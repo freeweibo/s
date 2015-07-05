@@ -36,7 +36,7 @@
 </h2>
 <p>改变美国经济十大人物，有一个中国人。谁？吓你一跳，帮美帝不帮中国？<br><img src="http://ww1.sinaimg.cn/large/710e6772jw1ets3p1ueu6j20k00t9n14.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3861308456035310" target="freeweibo-mirror">无论过去、现在、将来，理论上讲都是这样的，改朝换代是1949…</a>
 </h2>
