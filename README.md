@@ -66,13 +66,13 @@
 </h2>
 <p>@报人老罗 [偷笑]右，纪检干部？//@闵玉平: 必然的结果：听话的留用，不是一伙的深查。说实话，官做到了这个位置谁能经得起深查。<br><br>RE: 省部级婚外情、嫖娼、权色交易到了中纪委尴尬的程度？是敌对势力又在诋毁我纯洁的革命队伍吧？<br><img src="http://ww1.sinaimg.cn/large/b686ce1fjw1etrx6addqqj20k00zljv5.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3861279569444608" target="freeweibo-mirror">//@天主教福传团:我的微博不能转发？</a>
 </h2>
 <p>//@天主教福传团:我的微博不能转发？<br><br>RE: 唇亡齿寒，别等到拆十字架运动有一天拆到了你那里，才意识到事情的严重！ http://t.cn/RLwisUz<br><img src="http://ww2.sinaimg.cn/large/87497adegw1etrx7lbhwyj20cx08m3yz.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3861275668543233" target="freeweibo-mirror">SPAM 因为是“改革牛”，所以谁特么做空A股谁就是否定改革…</a>
 </h2>
