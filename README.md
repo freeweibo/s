@@ -30,37 +30,37 @@
 </h2>
 <p>想了又想，还是决定把真相写成文字。口误很正常，段子手恶搞就算了。对了，这段文字刚刚在公号上被举报，想了解真相的，赶紧吧</p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3861321206885572" target="freeweibo-mirror">改变美国经济十大人物，有一个中国人。谁？吓你一跳，帮美帝不帮…</a>
 </h2>
 <p>改变美国经济十大人物，有一个中国人。谁？吓你一跳，帮美帝不帮中国？<br><img src="http://ww1.sinaimg.cn/large/710e6772jw1ets3p1ueu6j20k00t9n14.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3861308456035310" target="freeweibo-mirror">无论过去、现在、将来，理论上讲都是这样的，改朝换代是1949…</a>
 </h2>
 <p>无论过去、现在、将来，理论上讲都是这样的，改朝换代是1949年。</p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3861307981914171" target="freeweibo-mirror">周三，伊斯坦布尔一家中餐馆遭袭击，但他们不知餐馆是土人的，餐…</a>
 </h2>
 <p>周三，伊斯坦布尔一家中餐馆遭袭击，但他们不知餐馆是土人的，餐师是某族人/ 上周二，土耳其政府刚刚接收了173名外逃的中国西北某族人，然后媒体到处是攻击中国的声音。于是数百暴徒在伊斯坦布尔最有名的景点外公然攻击有东亚面孔的游客，结果韩国人高呼“我是韩国人不是中国人”</p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3861294304273115" target="freeweibo-mirror">不准污蔑清朝。[doge]</a>
 </h2>
 <p>不准污蔑清朝。[doge]<br><br>RE: 【天朝官员之现状】装的是样子，混的是日子，保的是位子，上的是场子，下的是馆子，圆的是肚子，练的是胆子，搂的是妹子，哄的是娘子，享的是乐子，霸的是车子，占的是房子，把的是章子，盯的是票子。道德败坏的水平，可以与畜生媲美;缺德程度可称冠全球。转<br><img src="http://ww2.sinaimg.cn/large/e3b137cejw1etry6s4uekj20hc05gmxs.jpg"></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3861293251900491" target="freeweibo-mirror">SPAM 本屆政府基本是個混混。</a>
 </h2>
 <p>SPAM 本屆政府基本是個混混。</p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3861284213046995" target="freeweibo-mirror">@报人老罗 [偷笑]右，纪检干部？//@闵玉平: 必然的结果…</a>
 </h2>
@@ -72,19 +72,19 @@
 </h2>
 <p>//@天主教福传团:我的微博不能转发？<br><br>RE: 唇亡齿寒，别等到拆十字架运动有一天拆到了你那里，才意识到事情的严重！ http://t.cn/RLwisUz<br><img src="http://ww2.sinaimg.cn/large/87497adegw1etrx7lbhwyj20cx08m3yz.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3861275668543233" target="freeweibo-mirror">SPAM 因为是“改革牛”，所以谁特么做空A股谁就是否定改革…</a>
 </h2>
 <p>SPAM 因为是“改革牛”，所以谁特么做空A股谁就是否定改革咩？[哈哈]<br><br>RE: 【答问】一网友问：“吴老师好，这次空方到底是啥意思啊？”回答：“激起民变，绞杀改革，再次逼宫。”</p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3861272997565845" target="freeweibo-mirror">【天朝官员之现状】装的是样子，混的是日子，保的是位子，上的是…</a>
 </h2>
 <p>【天朝官员之现状】装的是样子，混的是日子，保的是位子，上的是场子，下的是馆子，圆的是肚子，练的是胆子，搂的是妹子，哄的是娘子，享的是乐子，霸的是车子，占的是房子，把的是章子，盯的是票子。道德败坏的水平，可以与畜生媲美;缺德程度可称冠全球。转<br><img src="http://ww2.sinaimg.cn/large/e3b137cejw1etry6s4uekj20hc05gmxs.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3861266239831517" target="freeweibo-mirror">[吃惊][吃惊][吃惊]</a>
 </h2>
