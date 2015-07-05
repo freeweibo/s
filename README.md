@@ -66,7 +66,7 @@
 </h2>
 <p>@报人老罗 [偷笑]右，纪检干部？//@闵玉平: 必然的结果：听话的留用，不是一伙的深查。说实话，官做到了这个位置谁能经得起深查。<br><br>RE: 省部级婚外情、嫖娼、权色交易到了中纪委尴尬的程度？是敌对势力又在诋毁我纯洁的革命队伍吧？<br><img src="http://ww1.sinaimg.cn/large/b686ce1fjw1etrx6addqqj20k00zljv5.jpg"></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3861279569444608" target="freeweibo-mirror">//@天主教福传团:我的微博不能转发？</a>
 </h2>
@@ -84,7 +84,7 @@
 </h2>
 <p>【天朝官员之现状】装的是样子，混的是日子，保的是位子，上的是场子，下的是馆子，圆的是肚子，练的是胆子，搂的是妹子，哄的是娘子，享的是乐子，霸的是车子，占的是房子，把的是章子，盯的是票子。道德败坏的水平，可以与畜生媲美;缺德程度可称冠全球。转<br><img src="http://ww2.sinaimg.cn/large/e3b137cejw1etry6s4uekj20hc05gmxs.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3861266239831517" target="freeweibo-mirror">[吃惊][吃惊][吃惊]</a>
 </h2>
@@ -96,19 +96,19 @@
 </h2>
 <p>SPAM //@文史女教师: 只转不评。。。<br><br>RE: 【答问】一网友问：“吴老师好，这次空方到底是啥意思啊？”回答：“激起民变，绞杀改革，再次逼宫。”</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3861265292325568" target="freeweibo-mirror">省部级婚外情、嫖娼、权色交易到了中纪委尴尬的程度？是敌对势力…</a>
 </h2>
 <p>省部级婚外情、嫖娼、权色交易到了中纪委尴尬的程度？是敌对势力又在诋毁我纯洁的革命队伍吧？<br><img src="http://ww1.sinaimg.cn/large/b686ce1fjw1etrx6addqqj20k00zljv5.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3861264491577766" target="freeweibo-mirror">唇亡齿寒，别等到拆十字架运动有一天拆到了你那里，才意识到事情…</a>
 </h2>
 <p>唇亡齿寒，别等到拆十字架运动有一天拆到了你那里，才意识到事情的严重！ http://t.cn/RLwisUz<br><img src="http://ww2.sinaimg.cn/large/87497adegw1etrx7lbhwyj20cx08m3yz.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3861246698890281" target="freeweibo-mirror">领导们都很安全吧？//@刘X地盘: //@我係阿毛://@去…</a>
 </h2>
