@@ -66,7 +66,7 @@
 </h2>
 <p>@报人老罗 [偷笑]右，纪检干部？//@闵玉平: 必然的结果：听话的留用，不是一伙的深查。说实话，官做到了这个位置谁能经得起深查。<br><br>RE: 省部级婚外情、嫖娼、权色交易到了中纪委尴尬的程度？是敌对势力又在诋毁我纯洁的革命队伍吧？<br><img src="http://ww1.sinaimg.cn/large/b686ce1fjw1etrx6addqqj20k00zljv5.jpg"></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3861279569444608" target="freeweibo-mirror">//@天主教福传团:我的微博不能转发？</a>
 </h2>
@@ -114,7 +114,7 @@
 </h2>
 <p>领导们都很安全吧？//@刘X地盘: //@我係阿毛://@去V的刘建锋:可怕的是，事先毫无警示，安全部门高官竟然没有公开为此担责谢罪！//@我是德赛://@帅仕相车马炮兵:[衰] //@ilpwsp://@吾甚有节操汝知否://@风谷之竹:转发微博<br><br>RE: 今天是个沉痛的纪念日，它离我们很近，谁也说不定什么时候会再次发生。<br><img src="http://ww4.sinaimg.cn/large/a76bc2aegw1etrrj441gjj20fa0ad41b.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3861244769904585" target="freeweibo-mirror">//@秋天的悲剧2011: //@一品九醉://@戌狗玉兔:…</a>
 </h2>
