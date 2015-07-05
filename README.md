@@ -42,7 +42,7 @@
 </h2>
 <p>不准污蔑清朝。[doge]<br><br>RE: 【天朝官员之现状】装的是样子，混的是日子，保的是位子，上的是场子，下的是馆子，圆的是肚子，练的是胆子，搂的是妹子，哄的是娘子，享的是乐子，霸的是车子，占的是房子，把的是章子，盯的是票子。道德败坏的水平，可以与畜生媲美;缺德程度可称冠全球。转<br><img src="http://ww2.sinaimg.cn/large/e3b137cejw1etry6s4uekj20hc05gmxs.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3861293251900491" target="freeweibo-mirror">SPAM 本屆政府基本是個混混。</a>
 </h2>
@@ -60,7 +60,7 @@
 </h2>
 <p>//@天主教福传团:我的微博不能转发？<br><br>RE: 唇亡齿寒，别等到拆十字架运动有一天拆到了你那里，才意识到事情的严重！ http://t.cn/RLwisUz<br><img src="http://ww2.sinaimg.cn/large/87497adegw1etrx7lbhwyj20cx08m3yz.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3861275668543233" target="freeweibo-mirror">SPAM 因为是“改革牛”，所以谁特么做空A股谁就是否定改革…</a>
 </h2>
@@ -96,7 +96,7 @@
 </h2>
 <p>唇亡齿寒，别等到拆十字架运动有一天拆到了你那里，才意识到事情的严重！ http://t.cn/RLwisUz<br><img src="http://ww2.sinaimg.cn/large/87497adegw1etrx7lbhwyj20cx08m3yz.jpg"></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3861246698890281" target="freeweibo-mirror">领导们都很安全吧？//@刘X地盘: //@我係阿毛://@去…</a>
 </h2>
