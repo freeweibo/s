@@ -60,7 +60,7 @@
 </h2>
 <p>SPAM 本屆政府基本是個混混。</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3861284213046995" target="freeweibo-mirror">@报人老罗 [偷笑]右，纪检干部？//@闵玉平: 必然的结果…</a>
 </h2>
