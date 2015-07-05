@@ -24,7 +24,7 @@
 </h2>
 <p>//@無風即風:下半句没实现。 //@马无悔:他说救美国奏是就中国，完了就是三鞠躬。//@無風即風:他救了美国，这是事实。 //@Northernist:温总获得“美国工人之友”奖，可谓实至名归。<br><br>RE: 改变美国经济十大人物，有一个中国人。谁？吓你一跳，帮美帝不帮中国？<br><img src="http://ww1.sinaimg.cn/large/710e6772jw1ets3p1ueu6j20k00t9n14.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3861355809633731" target="freeweibo-mirror">想了又想，还是决定把真相写成文字。口误很正常，段子手恶搞就算…</a>
 </h2>
@@ -84,7 +84,7 @@
 </h2>
 <p>【天朝官员之现状】装的是样子，混的是日子，保的是位子，上的是场子，下的是馆子，圆的是肚子，练的是胆子，搂的是妹子，哄的是娘子，享的是乐子，霸的是车子，占的是房子，把的是章子，盯的是票子。道德败坏的水平，可以与畜生媲美;缺德程度可称冠全球。转<br><img src="http://ww2.sinaimg.cn/large/e3b137cejw1etry6s4uekj20hc05gmxs.jpg"></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3861266239831517" target="freeweibo-mirror">[吃惊][吃惊][吃惊]</a>
 </h2>
