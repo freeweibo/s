@@ -24,7 +24,7 @@
 </h2>
 <p>//@無風即風:下半句没实现。 //@马无悔:他说救美国奏是就中国，完了就是三鞠躬。//@無風即風:他救了美国，这是事实。 //@Northernist:温总获得“美国工人之友”奖，可谓实至名归。<br><br>RE: 改变美国经济十大人物，有一个中国人。谁？吓你一跳，帮美帝不帮中国？<br><img src="http://ww1.sinaimg.cn/large/710e6772jw1ets3p1ueu6j20k00t9n14.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3861355809633731" target="freeweibo-mirror">想了又想，还是决定把真相写成文字。口误很正常，段子手恶搞就算…</a>
 </h2>
