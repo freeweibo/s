@@ -36,7 +36,7 @@
 </h2>
 <p>改变美国经济十大人物，有一个中国人。谁？吓你一跳，帮美帝不帮中国？<br><img src="http://ww1.sinaimg.cn/large/710e6772jw1ets3p1ueu6j20k00t9n14.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3861308456035310" target="freeweibo-mirror">无论过去、现在、将来，理论上讲都是这样的，改朝换代是1949…</a>
 </h2>
@@ -78,7 +78,7 @@
 </h2>
 <p>SPAM 因为是“改革牛”，所以谁特么做空A股谁就是否定改革咩？[哈哈]<br><br>RE: 【答问】一网友问：“吴老师好，这次空方到底是啥意思啊？”回答：“激起民变，绞杀改革，再次逼宫。”</p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3861272997565845" target="freeweibo-mirror">【天朝官员之现状】装的是样子，混的是日子，保的是位子，上的是…</a>
 </h2>
