@@ -54,7 +54,7 @@
 </h2>
 <p>@蔡哥64 周永康嫖完主播提上裤子就在台上大讲法制；薄熙来海外转移家产回身笑谈儿子奖学金；徐才厚遛完地下室钱库说自己最大缺点是廉洁；李遭腥子女移民美国却说中国人权是美国五倍；李小淋凭她爹，讲能力之外资本为零......</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3861720403846803" target="freeweibo-mirror">[哈哈]//@隆裕太后: 我们教课书上，还是国民党杀得多？/…</a>
 </h2>
@@ -72,7 +72,7 @@
 </h2>
 <p>国民党丢掉大好江山，让人难以理解。蒋经国晚年接见最后一位西方记者，问起他们父子来台已数十年，怎样回顾反思这一失败经验?蒋经国寻思片刻，回答：「我们杀人杀不过¥¥党，没他们狠，输了。」<br><img src="http://ww4.sinaimg.cn/large/48fe46d9jw1ettb1ygxbfj218g0x7aj7.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3861688711715744" target="freeweibo-mirror">被虐还是有人串通？这轮行情过后，中纪委要进驻了</a>
 </h2>
@@ -108,7 +108,7 @@
 </h2>
 <p>SPAM 内斗内行！<br><br>RE: 这个必须转。[怒]http://t.cn/R2yDIXg</p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3861604787619092" target="freeweibo-mirror">回复@糜新元:这也说明为什么历朝一到战乱，必须从民间另行幕兵…</a>
 </h2>
