@@ -24,7 +24,7 @@
 </h2>
 <p>一场经济政变被粉碎了 通俗吧 不能说得太细 你懂的[闭嘴]</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3861364018018212" target="freeweibo-mirror">//@無風即風:下半句没实现。 //@马无悔:他说救美国奏是…</a>
 </h2>
