@@ -36,7 +36,7 @@
 </h2>
 <p>国民党丢掉大好江山，让人难以理解。蒋经国晚年接见最后一位西方记者，问起他们父子来台已数十年，怎样回顾反思这一失败经验?蒋经国寻思片刻，回答：「我们杀人杀不过¥¥党，没他们狠，输了。」<br><img src="http://ww4.sinaimg.cn/large/48fe46d9jw1ettb1ygxbfj218g0x7aj7.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3861688711715744" target="freeweibo-mirror">被虐还是有人串通？这轮行情过后，中纪委要进驻了</a>
 </h2>
@@ -72,7 +72,7 @@
 </h2>
 <p>SPAM 内斗内行！<br><br>RE: 这个必须转。[怒]http://t.cn/R2yDIXg</p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3861604787619092" target="freeweibo-mirror">回复@糜新元:这也说明为什么历朝一到战乱，必须从民间另行幕兵…</a>
 </h2>
@@ -90,7 +90,7 @@
 </h2>
 <p>SPAM //@福建头号://@凌源黑暗之城://@活着是煎熬-网易: //@演员孙海英://@lotusliuxia95: 深圳市香蜜湖安托山七路侨香村实验幼儿园路边，城管横行霸道，无法无天，手持钢管器械群殴市民！一线城市的耻辱‼️‼️‼️‼️粤B1MS26无耻之极（城管车牌号码）<br><br>RE: #吐槽曝料# 这战斗力杠杠的！http://t.cn/RLwQjzO</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3861551855232179" target="freeweibo-mirror">去找公知或者“维权”律师啊，这些逼会解决你的一切问题。//@…</a>
 </h2>
