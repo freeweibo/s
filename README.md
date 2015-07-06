@@ -20,6 +20,12 @@
     
     </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3861720403846803" target="freeweibo-mirror">[哈哈]//@隆裕太后: 我们教课书上，还是国民党杀得多？/…</a>
+</h2>
+<p>[哈哈]//@隆裕太后: 我们教课书上，还是国民党杀得多？//@陈文伍:国民党说的话，大伙信吗？<br><br>RE: 国民党丢掉大好江山，让人难以理解。蒋经国晚年接见最后一位西方记者，问起他们父子来台已数十年，怎样回顾反思这一失败经验?蒋经国寻思片刻，回答：「我们杀人杀不过¥¥党，没他们狠，输了。」<br><img src="http://ww4.sinaimg.cn/large/48fe46d9jw1ettb1ygxbfj218g0x7aj7.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3861688711715744" target="freeweibo-mirror">被虐还是有人串通？这轮行情过后，中纪委要进驻了</a>
 </h2>
 <p>被虐还是有人串通？这轮行情过后，中纪委要进驻了<br><br>RE: 纽约时报今天发文：中国股市下跌增加全球经济风险。*不可战胜的光环被股市投机者破坏，政府努力阻止股价大跌，却受到投机者嘲弄。怀疑者对稳定股价的每一步动作都不屑。这使政府全盘掌控局面的光环失色\难堪。“这可能是政府无所不能的形象受到挑战的例子中，最公开最明显的一个”，可能造成政治影响<br><img src="http://ww3.sinaimg.cn/large/6a3d7f8cjw1ett7xa6wa8j20e10e3adi.jpg"></p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3861293251900491" target="freeweibo-mirror">SPAM 本屆政府基本是個混混。</a>
 </h2>
 <p>SPAM 本屆政府基本是個混混。</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3861284213046995" target="freeweibo-mirror">@报人老罗 [偷笑]右，纪检干部？//@闵玉平: 必然的结果…</a>
-</h2>
-<p>@报人老罗 [偷笑]右，纪检干部？//@闵玉平: 必然的结果：听话的留用，不是一伙的深查。说实话，官做到了这个位置谁能经得起深查。<br><br>RE: 省部级婚外情、嫖娼、权色交易到了中纪委尴尬的程度？是敌对势力又在诋毁我纯洁的革命队伍吧？<br><img src="http://ww1.sinaimg.cn/large/b686ce1fjw1etrx6addqqj20k00zljv5.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
