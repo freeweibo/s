@@ -30,7 +30,7 @@
 </h2>
 <p>SPAM #路透图片#【24小时时事新闻】7月5日，土耳其伊斯坦布尔，示威者在中国驻土耳其领事馆附近焚烧中国国旗。中国驻土耳其使领馆提醒在土中国公民注意加强安全防范，切勿接近或拍摄游行队伍，尽量减少单独外出活动。REUTERS/Osman Orsal<br><img src="http://ww3.sinaimg.cn/large/5ebb9dc3jw1ett5i6f3eoj20m80etjts.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3861637612342412" target="freeweibo-mirror">SPAM 内斗内行！</a>
 </h2>
@@ -42,7 +42,7 @@
 </h2>
 <p>回复@糜新元:这也说明为什么历朝一到战乱，必须从民间另行幕兵，原来几百万军队只浪费口粮，连马都不如。//@糜新元:无能不要紧，关键是还要充英明。[怒]<br><br>RE: 倾举国之力，仍不敌几个做空者，执政者之无能一览无遗！可悲乎？</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3861603080974709" target="freeweibo-mirror">倾举国之力，仍不敌几个做空者，执政者之无能一览无遗！可悲乎？</a>
 </h2>
