@@ -66,7 +66,7 @@
 </h2>
 <p>倾举国之力，仍不敌几个做空者，执政者之无能一览无遗！可悲乎？</p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3861570428332888" target="freeweibo-mirror">SPAM //@福建头号://@凌源黑暗之城://@活着是煎…</a>
 </h2>
