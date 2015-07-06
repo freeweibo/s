@@ -26,6 +26,12 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3861674262471489" target="freeweibo-mirror">若如此，不管你在不在股市，都将深受影响！所以只能胜不能败 /…</a>
+</h2>
+<p>若如此，不管你在不在股市，都将深受影响！所以只能胜不能败 //@徐昕:可能造成政治影响<br><br>RE: 纽约时报今天发文：中国股市下跌增加全球经济风险。*不可战胜的光环被股市投机者破坏，政府努力阻止股价大跌，却受到投机者嘲弄。怀疑者对稳定股价的每一步动作都不屑。这使政府全盘掌控局面的光环失色\难堪。“这可能是政府无所不能的形象受到挑战的例子中，最公开最明显的一个”，可能造成政治影响<br><img src="http://ww3.sinaimg.cn/large/6a3d7f8cjw1ett7xa6wa8j20e10e3adi.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3861671225171455" target="freeweibo-mirror">纽约时报今天发文：中国股市下跌增加全球经济风险。*不可战胜的…</a>
 </h2>
 <p>纽约时报今天发文：中国股市下跌增加全球经济风险。*不可战胜的光环被股市投机者破坏，政府努力阻止股价大跌，却受到投机者嘲弄。怀疑者对稳定股价的每一步动作都不屑。这使政府全盘掌控局面的光环失色\难堪。“这可能是政府无所不能的形象受到挑战的例子中，最公开最明显的一个”，可能造成政治影响<br><img src="http://ww3.sinaimg.cn/large/6a3d7f8cjw1ett7xa6wa8j20e10e3adi.jpg"></p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3861284213046995" target="freeweibo-mirror">@报人老罗 [偷笑]右，纪检干部？//@闵玉平: 必然的结果…</a>
 </h2>
 <p>@报人老罗 [偷笑]右，纪检干部？//@闵玉平: 必然的结果：听话的留用，不是一伙的深查。说实话，官做到了这个位置谁能经得起深查。<br><br>RE: 省部级婚外情、嫖娼、权色交易到了中纪委尴尬的程度？是敌对势力又在诋毁我纯洁的革命队伍吧？<br><img src="http://ww1.sinaimg.cn/large/b686ce1fjw1etrx6addqqj20k00zljv5.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3861279569444608" target="freeweibo-mirror">//@天主教福传团:我的微博不能转发？</a>
-</h2>
-<p>//@天主教福传团:我的微博不能转发？<br><br>RE: 唇亡齿寒，别等到拆十字架运动有一天拆到了你那里，才意识到事情的严重！ http://t.cn/RLwisUz<br><img src="http://ww2.sinaimg.cn/large/87497adegw1etrx7lbhwyj20cx08m3yz.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
