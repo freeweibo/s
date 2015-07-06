@@ -20,6 +20,12 @@
     
     </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3861604787619092" target="freeweibo-mirror">回复@糜新元:这也说明为什么历朝一到战乱，必须从民间另行幕兵…</a>
+</h2>
+<p>回复@糜新元:这也说明为什么历朝一到战乱，必须从民间另行幕兵，原来几百万军队只浪费口粮，连马都不如。//@糜新元:无能不要紧，关键是还要充英明。[怒]<br><br>RE: 倾举国之力，仍不敌几个做空者，执政者之无能一览无遗！可悲乎？</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3861570428332888" target="freeweibo-mirror">SPAM //@福建头号://@凌源黑暗之城://@活着是煎…</a>
 </h2>
 <p>SPAM //@福建头号://@凌源黑暗之城://@活着是煎熬-网易: //@演员孙海英://@lotusliuxia95: 深圳市香蜜湖安托山七路侨香村实验幼儿园路边，城管横行霸道，无法无天，手持钢管器械群殴市民！一线城市的耻辱‼️‼️‼️‼️粤B1MS26无耻之极（城管车牌号码）<br><br>RE: #吐槽曝料# 这战斗力杠杠的！http://t.cn/RLwQjzO</p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3861264491577766" target="freeweibo-mirror">唇亡齿寒，别等到拆十字架运动有一天拆到了你那里，才意识到事情…</a>
 </h2>
 <p>唇亡齿寒，别等到拆十字架运动有一天拆到了你那里，才意识到事情的严重！ http://t.cn/RLwisUz<br><img src="http://ww2.sinaimg.cn/large/87497adegw1etrx7lbhwyj20cx08m3yz.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3861246698890281" target="freeweibo-mirror">领导们都很安全吧？//@刘X地盘: //@我係阿毛://@去…</a>
-</h2>
-<p>领导们都很安全吧？//@刘X地盘: //@我係阿毛://@去V的刘建锋:可怕的是，事先毫无警示，安全部门高官竟然没有公开为此担责谢罪！//@我是德赛://@帅仕相车马炮兵:[衰] //@ilpwsp://@吾甚有节操汝知否://@风谷之竹:转发微博<br><br>RE: 今天是个沉痛的纪念日，它离我们很近，谁也说不定什么时候会再次发生。<br><img src="http://ww4.sinaimg.cn/large/a76bc2aegw1etrrj441gjj20fa0ad41b.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
