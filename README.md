@@ -26,6 +26,12 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3861671225171455" target="freeweibo-mirror">纽约时报今天发文：中国股市下跌增加全球经济风险。*不可战胜的…</a>
+</h2>
+<p>纽约时报今天发文：中国股市下跌增加全球经济风险。*不可战胜的光环被股市投机者破坏，政府努力阻止股价大跌，却受到投机者嘲弄。怀疑者对稳定股价的每一步动作都不屑。这使政府全盘掌控局面的光环失色\难堪。“这可能是政府无所不能的形象受到挑战的例子中，最公开最明显的一个”，可能造成政治影响<br><img src="http://ww3.sinaimg.cn/large/6a3d7f8cjw1ett7xa6wa8j20e10e3adi.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3861657615215418" target="freeweibo-mirror">军事爱好者不妨脑补一下某日中国军队在*****街头巡逻场景。…</a>
 </h2>
 <p>军事爱好者不妨脑补一下某日中国军队在*****街头巡逻场景。我估计，文景之治时人们多数也没想过汉军攻打大宛的场面……</p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3861279569444608" target="freeweibo-mirror">//@天主教福传团:我的微博不能转发？</a>
 </h2>
 <p>//@天主教福传团:我的微博不能转发？<br><br>RE: 唇亡齿寒，别等到拆十字架运动有一天拆到了你那里，才意识到事情的严重！ http://t.cn/RLwisUz<br><img src="http://ww2.sinaimg.cn/large/87497adegw1etrx7lbhwyj20cx08m3yz.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3861275668543233" target="freeweibo-mirror">SPAM 因为是“改革牛”，所以谁特么做空A股谁就是否定改革…</a>
-</h2>
-<p>SPAM 因为是“改革牛”，所以谁特么做空A股谁就是否定改革咩？[哈哈]<br><br>RE: 【答问】一网友问：“吴老师好，这次空方到底是啥意思啊？”回答：“激起民变，绞杀改革，再次逼宫。”</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
