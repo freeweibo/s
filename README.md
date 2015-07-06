@@ -26,6 +26,18 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3861708001204531" target="freeweibo-mirror">//@隆裕太后: 我们教课书上，还是国民党杀得多？//@陈文…</a>
+</h2>
+<p>//@隆裕太后: 我们教课书上，还是国民党杀得多？//@陈文伍:国民党说的话，大伙信吗？<br><br>RE: 国民党丢掉大好江山，让人难以理解。蒋经国晚年接见最后一位西方记者，问起他们父子来台已数十年，怎样回顾反思这一失败经验?蒋经国寻思片刻，回答：「我们杀人杀不过¥¥党，没他们狠，输了。」<br><img src="http://ww4.sinaimg.cn/large/48fe46d9jw1ettb1ygxbfj218g0x7aj7.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3861698467499449" target="freeweibo-mirror">国民党丢掉大好江山，让人难以理解。蒋经国晚年接见最后一位西方…</a>
+</h2>
+<p>国民党丢掉大好江山，让人难以理解。蒋经国晚年接见最后一位西方记者，问起他们父子来台已数十年，怎样回顾反思这一失败经验?蒋经国寻思片刻，回答：「我们杀人杀不过¥¥党，没他们狠，输了。」<br><img src="http://ww4.sinaimg.cn/large/48fe46d9jw1ettb1ygxbfj218g0x7aj7.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3861688711715744" target="freeweibo-mirror">被虐还是有人串通？这轮行情过后，中纪委要进驻了</a>
 </h2>
 <p>被虐还是有人串通？这轮行情过后，中纪委要进驻了<br><br>RE: 纽约时报今天发文：中国股市下跌增加全球经济风险。*不可战胜的光环被股市投机者破坏，政府努力阻止股价大跌，却受到投机者嘲弄。怀疑者对稳定股价的每一步动作都不屑。这使政府全盘掌控局面的光环失色\难堪。“这可能是政府无所不能的形象受到挑战的例子中，最公开最明显的一个”，可能造成政治影响<br><img src="http://ww3.sinaimg.cn/large/6a3d7f8cjw1ett7xa6wa8j20e10e3adi.jpg"></p>
@@ -125,18 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3861307981914171" target="freeweibo-mirror">周三，伊斯坦布尔一家中餐馆遭袭击，但他们不知餐馆是土人的，餐…</a>
 </h2>
 <p>周三，伊斯坦布尔一家中餐馆遭袭击，但他们不知餐馆是土人的，餐师是某族人/ 上周二，土耳其政府刚刚接收了173名外逃的中国西北某族人，然后媒体到处是攻击中国的声音。于是数百暴徒在伊斯坦布尔最有名的景点外公然攻击有东亚面孔的游客，结果韩国人高呼“我是韩国人不是中国人”</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3861294304273115" target="freeweibo-mirror">不准污蔑清朝。[doge]</a>
-</h2>
-<p>不准污蔑清朝。[doge]<br><br>RE: 【天朝官员之现状】装的是样子，混的是日子，保的是位子，上的是场子，下的是馆子，圆的是肚子，练的是胆子，搂的是妹子，哄的是娘子，享的是乐子，霸的是车子，占的是房子，把的是章子，盯的是票子。道德败坏的水平，可以与畜生媲美;缺德程度可称冠全球。转<br><img src="http://ww2.sinaimg.cn/large/e3b137cejw1etry6s4uekj20hc05gmxs.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3861293251900491" target="freeweibo-mirror">SPAM 本屆政府基本是個混混。</a>
-</h2>
-<p>SPAM 本屆政府基本是個混混。</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
