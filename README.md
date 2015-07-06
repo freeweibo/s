@@ -30,7 +30,7 @@
 </h2>
 <p>//@隆裕太后: 我们教课书上，还是国民党杀得多？//@陈文伍:国民党说的话，大伙信吗？<br><br>RE: 国民党丢掉大好江山，让人难以理解。蒋经国晚年接见最后一位西方记者，问起他们父子来台已数十年，怎样回顾反思这一失败经验?蒋经国寻思片刻，回答：「我们杀人杀不过¥¥党，没他们狠，输了。」<br><img src="http://ww4.sinaimg.cn/large/48fe46d9jw1ettb1ygxbfj218g0x7aj7.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3861698467499449" target="freeweibo-mirror">国民党丢掉大好江山，让人难以理解。蒋经国晚年接见最后一位西方…</a>
 </h2>
@@ -84,7 +84,7 @@
 </h2>
 <p>倾举国之力，仍不敌几个做空者，执政者之无能一览无遗！可悲乎？</p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3861570428332888" target="freeweibo-mirror">SPAM //@福建头号://@凌源黑暗之城://@活着是煎…</a>
 </h2>
