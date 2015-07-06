@@ -42,7 +42,7 @@
 </h2>
 <p>一场经济政变被粉碎了 通俗吧 不能说得太细 你懂的[闭嘴]</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3861376898094330" target="freeweibo-mirror">#吐槽曝料# 这战斗力杠杠的！http://t.cn/RLw…</a>
 </h2>
