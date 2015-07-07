@@ -24,7 +24,7 @@
 </h2>
 <p>SPAM 早安[太阳]开门迎喜。七月七日遇七喜。久旱逢甘霖 ；他乡遇故知 ；洞房花烛夜 ；金榜题名时 ；升官又进爵 ；财源纷纷至 ；共享天伦日。/赏.徐悲鸿画作：七喜 喜鹊 登枝 #书画界#<br><img src="http://ww2.sinaimg.cn/large/e7124480jw1ettu1ru1tgj20c80idmzl.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3861763735358342" target="freeweibo-mirror">//@阿里-席学刚://@一品泥人V: //@吕洞宾出山了:…</a>
 </h2>
@@ -66,7 +66,7 @@
 </h2>
 <p>[哈哈]//@隆裕太后: 我们教课书上，还是国民党杀得多？//@陈文伍:国民党说的话，大伙信吗？<br><br>RE: 国民党丢掉大好江山，让人难以理解。蒋经国晚年接见最后一位西方记者，问起他们父子来台已数十年，怎样回顾反思这一失败经验?蒋经国寻思片刻，回答：「我们杀人杀不过¥¥党，没他们狠，输了。」<br><img src="http://ww4.sinaimg.cn/large/48fe46d9jw1ettb1ygxbfj218g0x7aj7.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3861708001204531" target="freeweibo-mirror">//@隆裕太后: 我们教课书上，还是国民党杀得多？//@陈文…</a>
 </h2>
