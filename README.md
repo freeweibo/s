@@ -36,7 +36,7 @@
 </h2>
 <p>不评价。//@不沉默的大多数: [怒]针对高铁的恐怖袭击？有些蹊跷的事故还真得多注意。<br><br>RE: 【沪深动车线路疑遭人为破坏 致数列动车返行】7月3日晚，D2283次动车组(上海—深圳)行驶至福建漳浦站至云霄站区间时，司机听到异常停车，经工务检查发现道心内有一铁片，另外三趟动车组受影响反方向运行，构成铁路交通一般C类事故，铁路公安部门随即介入，并发出悬赏寻找疑犯。http://t.cn/RL29qhx<br><img src="http://ww4.sinaimg.cn/large/625ab309jw1etubp3xlx8j20c80gb750.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3862090601539450" target="freeweibo-mirror">SPAM 高级黑啊，这是毛腊肉的原话。 //@田越阳:哈哈哈…</a>
 </h2>
@@ -78,7 +78,7 @@
 </h2>
 <p>所以不可能“摔门”～[偷笑]//@王鹏律师:“李小琳同志政治素质较好”[偷笑][偷笑][偷笑]//@通州府尹: 毕竟是有道德的电婊</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3862049270362021" target="freeweibo-mirror">所以有人说，国军负责背面战场。 //@不沉默的大多数:老蒋负…</a>
 </h2>
@@ -132,7 +132,7 @@
 </h2>
 <p>北京突发：CBD永安里地铁附近发生多声巨大爆炸，东长安街浓烟密布，伤亡情况暂不详#北京突发#<br><img src="http://ww3.sinaimg.cn/large/71964564gw1etu6xe5f66j20c70f33zm.jpg"></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3861972841451982" target="freeweibo-mirror">[吃惊]</a>
 </h2>
