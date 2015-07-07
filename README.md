@@ -90,7 +90,7 @@
 </h2>
 <p>[吃惊]<br><br>RE: 【北京突发：CBD永安里地铁附近发生多声巨大爆炸】刚刚位于CBD新华保险南侧、永安里地铁口附近连续发生多声爆炸，目前东长安街上已浓烟密布！有现场人员报告称为，一饭店发生爆炸并燃起大火，现已有多辆消防车赶往现场。<br><img src="http://ww1.sinaimg.cn/large/6ba75546jw1etu6gldau6j20c60eq3yw.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3861972070166544" target="freeweibo-mirror">【北京突发：CBD永安里地铁附近发生多声巨大爆炸】刚刚位于C…</a>
 </h2>
@@ -120,7 +120,7 @@
 </h2>
 <p>SPAM 开启2015.5年的拉风攻略，躁起来吧，学生党 [带感]</p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3861946145272440" target="freeweibo-mirror">感谢日爹相救急，否则我已被剿灭，免你千亿战败款，知恩图报毛遮…</a>
 </h2>
