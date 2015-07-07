@@ -54,7 +54,7 @@
 </h2>
 <p>//@凤凰周刊:[吃惊][吃惊][吃惊]<br><br>RE: 【习近平下一个“打虎”目标？】有种种迹象表明，中国人民银行前任行长戴相龙可能成为国家主席习近平的下一个 “打虎”目标。香港《苹果日报》3日报道称， 戴相龙没有出席6月29日举行的妻子柯用珍的丧礼，可能因为他在接受中国当局的调查。http://t.cn/RL2yIlv<br><img src="http://ww4.sinaimg.cn/large/706ecc39gw1ettyk9spjij20b408ct8u.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3861903468409858" target="freeweibo-mirror">【习近平下一个“打虎”目标？】有种种迹象表明，中国人民银行前…</a>
 </h2>
