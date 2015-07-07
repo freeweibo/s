@@ -20,6 +20,18 @@
     
     </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3862223740933903" target="freeweibo-mirror">发表了一篇转载博文《[转载]周永康自辩书原文（四）》http…</a>
+</h2>
+<p>发表了一篇转载博文《[转载]周永康自辩书原文（四）》http://t.cn/RLLAL2g<br><img src="http://ww2.sinaimg.cn/large/5408ee85jw1etuzdq0uejj20j60fignf.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3862222884961364" target="freeweibo-mirror">发表了一篇转载博文《[转载]周永康自辩书》http://t.…</a>
+</h2>
+<p>发表了一篇转载博文《[转载]周永康自辩书》http://t.cn/RLLA7dB<br><img src="http://ww3.sinaimg.cn/large/5408ee85jw1etuza6iawuj20j60pkq4z.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3862173032050293" target="freeweibo-mirror">？？？//@cqyzs:[疑问]//@公民列宁: [吃惊] …</a>
 </h2>
 <p>？？？//@cqyzs:[疑问]//@公民列宁: [吃惊] //@paixuejinwu拍雪进屋:[吃惊]//@Z秦时明月H003://@精日钟表-表哥:[吃惊]<br><br>RE: 刚了解的情况是前总理家宝儿子温云松带领浙江做空资金一万亿联合外资在股指期货做空A股，该公子已向“老大”认错，承诺做多补过，但下面浙江的那些马仔正在作鸟兽散，国安局以危害金融安全、操纵市场的名义在追责，已抓了些人；国家维护市场稳定的决心非常坚决；明天所有“庄股”将会一字板开盘…</p>
@@ -42,7 +54,7 @@
 </h2>
 <p>连赌场都不如，注定长久不了。//@袁国宝: //@谢文:这就要追究政治责任了？ //@唯一在世的雷奥尼克斯:逼宫的果然来了，建议中国人民解放军与武警部队，防暴警察明日起进入一级战备</p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3862131814622087" target="freeweibo-mirror">转：刚了解的情况是前总理家宝儿子温云松带领浙江做空资金一万亿…</a>
 </h2>
@@ -120,25 +132,13 @@
 </h2>
 <p>[怒]针对高铁的恐怖袭击？有些蹊跷的事故还真得多注意。<br><br>RE: 【沪深动车线路疑遭人为破坏 致数列动车返行】7月3日晚，D2283次动车组(上海—深圳)行驶至福建漳浦站至云霄站区间时，司机听到异常停车，经工务检查发现道心内有一铁片，另外三趟动车组受影响反方向运行，构成铁路交通一般C类事故，铁路公安部门随即介入，并发出悬赏寻找疑犯。http://t.cn/RL29qhx<br><img src="http://ww4.sinaimg.cn/large/625ab309jw1etubp3xlx8j20c80gb750.jpg"></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3862079222113913" target="freeweibo-mirror">【沪深动车线路疑遭人为破坏 致数列动车返行】7月3日晚，D2…</a>
 </h2>
 <p>【沪深动车线路疑遭人为破坏 致数列动车返行】7月3日晚，D2283次动车组(上海—深圳)行驶至福建漳浦站至云霄站区间时，司机听到异常停车，经工务检查发现道心内有一铁片，另外三趟动车组受影响反方向运行，构成铁路交通一般C类事故，铁路公安部门随即介入，并发出悬赏寻找疑犯。http://t.cn/RL29qhx<br><img src="http://ww4.sinaimg.cn/large/625ab309jw1etubp3xlx8j20c80gb750.jpg"></p>
 <p>
 	<small> ============== 11小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3862065066363289" target="freeweibo-mirror">【沪深动车线路漳州段疑遭人为破坏 致数列动车返行】昨晚(7月…</a>
-</h2>
-<p>【沪深动车线路漳州段疑遭人为破坏 致数列动车返行】昨晚(7月6日)有网友爆料称7月3日晚间，D2283次动车组行驶至福建漳浦站至云霄站区间时，司机听到异常停车，后经工务检查，发现该区间道心内有一铁片，铁路公安部门随即介入，并发出悬赏通告。此事目前仍在南昌铁路公安局调查中。http://t.cn/RL28YR6<br><img src="http://ww1.sinaimg.cn/large/68fbcb6agw1etuh5kmg5uj20c80gbmxv.jpg"></p>
-<p>
-	<small> ============== 11小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3862052877182715" target="freeweibo-mirror">//@茶语一一马后炮://@大碌竹姐姐://@湘江红叶135…</a>
-</h2>
-<p>//@茶语一一马后炮://@大碌竹姐姐://@湘江红叶135: 靠忽悠还能走多远[失望]</p>
-<p>
-	<small> ============== 1天前</small>
 </p>
 <table>
     <tr>
