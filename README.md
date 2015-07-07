@@ -42,7 +42,7 @@
 </h2>
 <p>【沪深动车线路疑遭人为破坏 致数列动车返行】7月3日晚，D2283次动车组(上海—深圳)行驶至福建漳浦站至云霄站区间时，司机听到异常停车，经工务检查发现道心内有一铁片，另外三趟动车组受影响反方向运行，构成铁路交通一般C类事故，铁路公安部门随即介入，并发出悬赏寻找疑犯。http://t.cn/RL29qhx<br><img src="http://ww4.sinaimg.cn/large/625ab309jw1etubp3xlx8j20c80gb750.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3862052877182715" target="freeweibo-mirror">//@茶语一一马后炮://@大碌竹姐姐://@湘江红叶135…</a>
 </h2>
@@ -114,7 +114,7 @@
 </h2>
 <p>[吃惊]<br><br>RE: 【北京突发：CBD永安里地铁附近发生多声巨大爆炸】刚刚位于CBD新华保险南侧、永安里地铁口附近连续发生多声爆炸，目前东长安街上已浓烟密布！有现场人员报告称为，一饭店发生爆炸并燃起大火，现已有多辆消防车赶往现场。<br><img src="http://ww1.sinaimg.cn/large/6ba75546jw1etu6gldau6j20c60eq3yw.jpg"></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3861972070166544" target="freeweibo-mirror">【北京突发：CBD永安里地铁附近发生多声巨大爆炸】刚刚位于C…</a>
 </h2>
