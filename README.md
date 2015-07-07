@@ -90,7 +90,7 @@
 </h2>
 <p>祝她爹万寿无疆[哈哈]</p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3862079687794557" target="freeweibo-mirror">[怒]针对高铁的恐怖袭击？有些蹊跷的事故还真得多注意。</a>
 </h2>
