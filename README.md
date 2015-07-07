@@ -78,7 +78,7 @@
 </h2>
 <p>SPAM 【如果看不透这一点，只会徒增烦恼】对你不好的人，你不要太介意，没有人有义务要对你好；你学到的知识，就是你拥有的武器，可以白手起家，但不可以手无寸铁（专业技能）；你怎么待人，并不代表别人怎么待你。。。。#拿什么挑战你的高冷# #心疼乔杉#1句实话#<br><img src="http://ww3.sinaimg.cn/large/98c1610bjw1etu65as2tuj209s064gly.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3861959977496881" target="freeweibo-mirror">[衰]//@Miss高洁:人多事故就多</a>
 </h2>
@@ -114,13 +114,13 @@
 </h2>
 <p>发表了一篇转载博文《[转载]五毛党跟贴工作通知书曝光》http://t.cn/RL2cr7U<br><img src="http://ww2.sinaimg.cn/large/5408ee85jw1etu2vkgyzqj208c03wgma.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3861939891392989" target="freeweibo-mirror">发表了一篇转载博文《[转载]《历史的先声——半个世纪前的庄严…</a>
 </h2>
 <p>发表了一篇转载博文《[转载]《历史的先声——半个世纪前的庄严承诺》》http://t.cn/RL2cTJc</p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3861926633699266" target="freeweibo-mirror">香港媒体3日报道称， 戴相龙没有出席其妻柯用珍6月29日的的…</a>
 </h2>
