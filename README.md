@@ -60,7 +60,7 @@
 </h2>
 <p>北京突发：CBD永安里地铁附近发生多声巨大爆炸，东长安街浓烟密布，伤亡情况暂不详#北京突发#<br><img src="http://ww3.sinaimg.cn/large/71964564gw1etu6xe5f66j20c70f33zm.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3861972841451982" target="freeweibo-mirror">[吃惊]</a>
 </h2>
@@ -84,7 +84,7 @@
 </h2>
 <p>[衰]//@Miss高洁:人多事故就多<br><br>RE: #京城突发##永安里附近起火#【又起火了[话筒]】新华保险南侧，永安里地铁口附近一饭店着火了，还有几声爆炸…长安街上已浓烟密布！！</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3861959055048449" target="freeweibo-mirror">以为中国的财富是大家的，原来是戴家的。</a>
 </h2>
