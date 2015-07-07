@@ -42,7 +42,7 @@
 </h2>
 <p>SPAM 初步协议达成？<br><br>RE: 中纪委大功告成，令完成回国归案了！</p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3862114978086777" target="freeweibo-mirror">中纪委大功告成，令完成回国归案了！</a>
 </h2>
