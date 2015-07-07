@@ -54,7 +54,7 @@
 </h2>
 <p>祝她爹万寿无疆[哈哈]</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3862079687794557" target="freeweibo-mirror">[怒]针对高铁的恐怖袭击？有些蹊跷的事故还真得多注意。</a>
 </h2>
@@ -102,7 +102,7 @@
 </h2>
 <p>啊啊，所谓敬爱的周总理，丧失人格的事、丧权辱国的事……实在太多！！！//@山高路远N: 转发微博</p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3862024591751104" target="freeweibo-mirror">1960年，主持中缅划界的周不顾云南“麦克马洪线”地区人民及…</a>
 </h2>
