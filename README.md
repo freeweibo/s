@@ -54,7 +54,7 @@
 </h2>
 <p>[鄙视]</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3861745795938154" target="freeweibo-mirror">世纪之交，官二代依仗父辈权势，在改制大潮中里应外合上下其手，…</a>
 </h2>
