@@ -84,7 +84,7 @@
 </h2>
 <p>【北京突发：CBD永安里地铁附近发生多声巨大爆炸】刚刚位于CBD新华保险南侧、永安里地铁口附近连续发生多声爆炸，目前东长安街上已浓烟密布！有现场人员报告称为，一饭店发生爆炸并燃起大火，现已有多辆消防车赶往现场。<br><img src="http://ww1.sinaimg.cn/large/6ba75546jw1etu6gldau6j20c60eq3yw.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3861969859572526" target="freeweibo-mirror">SPAM 【如果看不透这一点，只会徒增烦恼】对你不好的人，你…</a>
 </h2>
@@ -138,7 +138,7 @@
 </h2>
 <p>香港媒体3日报道称， 戴相龙没有出席其妻柯用珍6月29日的的丧礼，可能因为他正在接受调查。戴相龙的女婿、香港数字王国大股东车峰6月2日因涉嫌向西方情报机关泄露机密已被带走。车峰的财产达1000亿元。车峰在北京运营秘密会所，招聘女大学生专门服侍中国部长、副部长级人物。 http://t.cn/RL2qMCq<br><img src="http://ww1.sinaimg.cn/large/6405269fjw1etu19bcwq8j204g064glq.jpg"></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p>
 <table>
     <tr>
