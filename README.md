@@ -66,7 +66,7 @@
 </h2>
 <p>//@关洪导演: //@凤凰视频:然而机智的朝阳区群众早已录下了现场视频，戳这里→ http://t.cn/RL2XkL0 //@萧军2014：朝阳区群众这回怎么搞的啊？<br><br>RE: 【北京突发：CBD永安里地铁附近发生多声巨大爆炸】刚刚位于CBD新华保险南侧、永安里地铁口附近连续发生多声爆炸，目前东长安街上已浓烟密布！有现场人员报告称为，一饭店发生爆炸并燃起大火，现已有多辆消防车赶往现场。<br><img src="http://ww1.sinaimg.cn/large/6ba75546jw1etu6gldau6j20c60eq3yw.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3861983088499004" target="freeweibo-mirror">厨房烟道里有积存的油垢，被点着了就这样，是失火的常见原因，全…</a>
 </h2>
@@ -78,7 +78,7 @@
 </h2>
 <p>餐馆煤气爆炸吧<br><br>RE: 【北京突发：CBD永安里地铁附近发生多声巨大爆炸】刚刚位于CBD新华保险南侧、永安里地铁口附近连续发生多声爆炸，目前东长安街上已浓烟密布！有现场人员报告称为，一饭店发生爆炸并燃起大火，现已有多辆消防车赶往现场。<br><img src="http://ww1.sinaimg.cn/large/6ba75546jw1etu6gldau6j20c60eq3yw.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3861976013093240" target="freeweibo-mirror">北京突发：CBD永安里地铁附近发生多声巨大爆炸，东长安街浓烟…</a>
 </h2>
@@ -126,7 +126,7 @@
 </h2>
 <p>感谢日爹相救急，否则我已被剿灭，免你千亿战败款，知恩图报毛遮洞！//@头条新闻: 七七事变78周年，重回卢沟桥战场</p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3861943712685354" target="freeweibo-mirror">#京城突发##永安里附近起火#【又起火了[话筒]】新华保险南…</a>
 </h2>
