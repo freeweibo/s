@@ -30,7 +30,7 @@
 </h2>
 <p>餐馆煤气爆炸吧<br><br>RE: 【北京突发：CBD永安里地铁附近发生多声巨大爆炸】刚刚位于CBD新华保险南侧、永安里地铁口附近连续发生多声爆炸，目前东长安街上已浓烟密布！有现场人员报告称为，一饭店发生爆炸并燃起大火，现已有多辆消防车赶往现场。<br><img src="http://ww1.sinaimg.cn/large/6ba75546jw1etu6gldau6j20c60eq3yw.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3861976013093240" target="freeweibo-mirror">北京突发：CBD永安里地铁附近发生多声巨大爆炸，东长安街浓烟…</a>
 </h2>
@@ -72,7 +72,7 @@
 </h2>
 <p>感谢日爹相救急，否则我已被剿灭，免你千亿战败款，知恩图报毛遮洞！//@头条新闻: 七七事变78周年，重回卢沟桥战场</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3861940721739001" target="freeweibo-mirror">发表了一篇转载博文《[转载]五毛党跟贴工作通知书曝光》htt…</a>
 </h2>
