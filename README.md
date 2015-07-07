@@ -20,6 +20,18 @@
     
     </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3861940721739001" target="freeweibo-mirror">发表了一篇转载博文《[转载]五毛党跟贴工作通知书曝光》htt…</a>
+</h2>
+<p>发表了一篇转载博文《[转载]五毛党跟贴工作通知书曝光》http://t.cn/RL2cr7U<br><img src="http://ww2.sinaimg.cn/large/5408ee85jw1etu2vkgyzqj208c03wgma.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3861939891392989" target="freeweibo-mirror">发表了一篇转载博文《[转载]《历史的先声——半个世纪前的庄严…</a>
+</h2>
+<p>发表了一篇转载博文《[转载]《历史的先声——半个世纪前的庄严承诺》》http://t.cn/RL2cTJc</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3861913521844198" target="freeweibo-mirror">//@凤凰周刊:[吃惊][吃惊][吃惊]</a>
 </h2>
 <p>//@凤凰周刊:[吃惊][吃惊][吃惊]<br><br>RE: 【习近平下一个“打虎”目标？】有种种迹象表明，中国人民银行前任行长戴相龙可能成为国家主席习近平的下一个 “打虎”目标。香港《苹果日报》3日报道称， 戴相龙没有出席6月29日举行的妻子柯用珍的丧礼，可能因为他在接受中国当局的调查。http://t.cn/RL2yIlv<br><img src="http://ww4.sinaimg.cn/large/706ecc39gw1ettyk9spjij20b408ct8u.jpg"></p>
@@ -125,18 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3861650149414714" target="freeweibo-mirror">SPAM #路透图片#【24小时时事新闻】7月5日，土耳其伊…</a>
 </h2>
 <p>SPAM #路透图片#【24小时时事新闻】7月5日，土耳其伊斯坦布尔，示威者在中国驻土耳其领事馆附近焚烧中国国旗。中国驻土耳其使领馆提醒在土中国公民注意加强安全防范，切勿接近或拍摄游行队伍，尽量减少单独外出活动。REUTERS/Osman Orsal<br><img src="http://ww3.sinaimg.cn/large/5ebb9dc3jw1ett5i6f3eoj20m80etjts.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3861637612342412" target="freeweibo-mirror">SPAM 内斗内行！</a>
-</h2>
-<p>SPAM 内斗内行！<br><br>RE: 这个必须转。[怒]http://t.cn/R2yDIXg</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3861604787619092" target="freeweibo-mirror">回复@糜新元:这也说明为什么历朝一到战乱，必须从民间另行幕兵…</a>
-</h2>
-<p>回复@糜新元:这也说明为什么历朝一到战乱，必须从民间另行幕兵，原来几百万军队只浪费口粮，连马都不如。//@糜新元:无能不要紧，关键是还要充英明。[怒]<br><br>RE: 倾举国之力，仍不敌几个做空者，执政者之无能一览无遗！可悲乎？</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
