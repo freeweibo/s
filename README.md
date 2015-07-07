@@ -72,7 +72,7 @@
 </h2>
 <p>国民党丢掉大好江山，让人难以理解。蒋经国晚年接见最后一位西方记者，问起他们父子来台已数十年，怎样回顾反思这一失败经验?蒋经国寻思片刻，回答：「我们杀人杀不过¥¥党，没他们狠，输了。」<br><img src="http://ww4.sinaimg.cn/large/48fe46d9jw1ettb1ygxbfj218g0x7aj7.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3861688711715744" target="freeweibo-mirror">被虐还是有人串通？这轮行情过后，中纪委要进驻了</a>
 </h2>
