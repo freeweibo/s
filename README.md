@@ -36,7 +36,7 @@
 </h2>
 <p>北京突发：CBD永安里地铁附近发生多声巨大爆炸，东长安街浓烟密布，伤亡情况暂不详#北京突发#<br><img src="http://ww3.sinaimg.cn/large/71964564gw1etu6xe5f66j20c70f33zm.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3861972841451982" target="freeweibo-mirror">[吃惊]</a>
 </h2>
