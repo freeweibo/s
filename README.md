@@ -114,7 +114,7 @@
 </h2>
 <p>中纪委大功告成，令完成回国归案了！</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3862105923139222" target="freeweibo-mirror">油价跌了吗？电价会涨吗？股价会跌吗？普通人就问这些问题，谁当…</a>
 </h2>
