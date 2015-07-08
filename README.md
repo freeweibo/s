@@ -90,7 +90,7 @@
 </h2>
 <p>//@溪水2002: 转发微博</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3862337553527555" target="freeweibo-mirror">看起来今后任命证监会主席第一要研究他们的姓名，像尚福林、郭树…</a>
 </h2>
