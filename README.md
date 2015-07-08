@@ -36,7 +36,7 @@
 </h2>
 <p>SPAM 不懂股市，盲转。<br><br>RE: 救市终极三招。<br><img src="http://ww1.sinaimg.cn/large/631402d0jw1etv3ttps3oj20hh18g111.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3862289042157454" target="freeweibo-mirror">[白眼]//@国爱米米: 死罪难免。</a>
 </h2>
