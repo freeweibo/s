@@ -36,13 +36,13 @@
 </h2>
 <p>SPAM 不知中共混混們有沒有聽過梁詠琪的膽小鬼。花瓶，呵呵呵⋯⋯寡人清明出生。</p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3862475508377540" target="freeweibo-mirror">SPAM 随手转给姑娘们~简直好用到没朋友~</a>
 </h2>
 <p>SPAM 随手转给姑娘们~简直好用到没朋友~</p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3862472991930096" target="freeweibo-mirror">天朝戈氏的母亲还没参加高考呢。//@温柔佐罗-王奇: 我曾说…</a>
 </h2>
