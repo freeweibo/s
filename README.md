@@ -90,7 +90,7 @@
 </h2>
 <p>【大大出境】大大在境外，但绝不会在墙外。今天有位小伙伴告诉我”习大大”在著名的境外网上 instagram秀照片了。我判断这绝对是假的，因为习大大从来身在红墙内却登高望远，无须翻墙。这是个常识嘛。@学习粉丝团 @新华社中国网事 http://t.cn/R2Wiwmb<br><img src="http://ww2.sinaimg.cn/large/63e82c46jw1etvb1ittvfj20hs0vkdhz.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3862305500636682" target="freeweibo-mirror">SPAM 不懂股市，盲转。</a>
 </h2>
