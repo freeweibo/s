@@ -48,7 +48,7 @@
 </h2>
 <p>假消息!鉴定完毕。</p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3862142682063275" target="freeweibo-mirror">刚了解的情况是前总理家宝儿子温云松带领浙江做空资金一万亿联合…</a>
 </h2>
@@ -132,7 +132,7 @@
 </h2>
 <p>祝她爹万寿无疆[哈哈]</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3862079687794557" target="freeweibo-mirror">[怒]针对高铁的恐怖袭击？有些蹊跷的事故还真得多注意。</a>
 </h2>
