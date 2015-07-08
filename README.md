@@ -114,13 +114,13 @@
 </h2>
 <p>SPAM 这要在清朝被这么解读，一颗脑袋又落地了，弄不好还要株连九族[偷笑]//@张本领: 多么好的诗句！被你误读。//@猎头马锡聪:什么意思？想造反不成？又是壮志未酬，又是蓝天、光明的，就是说习李统治是黑暗咯？</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3862099648656256" target="freeweibo-mirror">SPAM @韩中锋 我可以举报你侮辱习总吗？</a>
 </h2>
 <p>SPAM @韩中锋 我可以举报你侮辱习总吗？<br><img src="http://ww1.sinaimg.cn/large/0063f1begw1etul4kjaawj30gk08k75z.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3862097043741609" target="freeweibo-mirror">SPAM 多么好的诗句！被你误读。//@猎头马锡聪:什么意思…</a>
 </h2>
