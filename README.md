@@ -30,7 +30,7 @@
 </h2>
 <p>SPAM 小屁民们，休得放四！//@不会结网的蜘蛛: 圈//@董洁林:推墙 //@博联社马晓霖:【常委出墙】据说七大常委都已翻墙了。此前只是新华社和人民日报。求大大们别把我们丢在墙这边，要么推倒墙，要么带人民一起杀到外线，开辟敌后广阔战场。应该相信6亿多网民同胞的政治觉悟和战斗力啊！<br><br>RE: 【大大出境】大大在境外，但绝不会在墙外。今天有位小伙伴告诉我”习大大”在著名的境外网上 instagram秀照片了。我判断这绝对是假的，因为习大大从来身在红墙内却登高望远，无须翻墙。这是个常识嘛。@学习粉丝团 @新华社中国网事 http://t.cn/R2Wiwmb<br><img src="http://ww2.sinaimg.cn/large/63e82c46jw1etvb1ittvfj20hs0vkdhz.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3862355060899407" target="freeweibo-mirror">//@溪水2002: 转发微博</a>
 </h2>
@@ -48,7 +48,7 @@
 </h2>
 <p>真有趣 //@文山娃:惊了，党内民主新高度  //@Soramimi:此文亮点太多 涉嫌影射特色制度 建议永远封杀 并把作者全国通报批评 @文山娃<br><br>RE: 【人民网：老蛤蟆万寿无疆】http://t.cn/RL2D6sH<br><img src="http://ww1.sinaimg.cn/large/0066M2Rhjw1etuos4bwc4j30mp0j246q.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3862325411137671" target="freeweibo-mirror">【大大出境】大大在境外，但绝不会在墙外。今天有位小伙伴告诉我…</a>
 </h2>
