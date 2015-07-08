@@ -96,13 +96,13 @@
 </h2>
 <p>发表了一篇转载博文《[转载]周永康自辩书原文（四）》http://t.cn/RLLAL2g<br><img src="http://ww2.sinaimg.cn/large/5408ee85jw1etuzdq0uejj20j60fignf.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3862222884961364" target="freeweibo-mirror">发表了一篇转载博文《[转载]周永康自辩书》http://t.…</a>
 </h2>
 <p>发表了一篇转载博文《[转载]周永康自辩书》http://t.cn/RLLA7dB<br><img src="http://ww3.sinaimg.cn/large/5408ee85jw1etuza6iawuj20j60pkq4z.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3862173032050293" target="freeweibo-mirror">？？？//@cqyzs:[疑问]//@公民列宁: [吃惊] …</a>
 </h2>
