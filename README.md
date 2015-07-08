@@ -90,7 +90,7 @@
 </h2>
 <p>SPAM 初步协议达成？<br><br>RE: 中纪委大功告成，令完成回国归案了！</p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3862114978086777" target="freeweibo-mirror">中纪委大功告成，令完成回国归案了！</a>
 </h2>
@@ -126,7 +126,7 @@
 </h2>
 <p>不评价。//@不沉默的大多数: [怒]针对高铁的恐怖袭击？有些蹊跷的事故还真得多注意。<br><br>RE: 【沪深动车线路疑遭人为破坏 致数列动车返行】7月3日晚，D2283次动车组(上海—深圳)行驶至福建漳浦站至云霄站区间时，司机听到异常停车，经工务检查发现道心内有一铁片，另外三趟动车组受影响反方向运行，构成铁路交通一般C类事故，铁路公安部门随即介入，并发出悬赏寻找疑犯。http://t.cn/RL29qhx<br><img src="http://ww4.sinaimg.cn/large/625ab309jw1etubp3xlx8j20c80gb750.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3862090601539450" target="freeweibo-mirror">SPAM 高级黑啊，这是毛腊肉的原话。 //@田越阳:哈哈哈…</a>
 </h2>
