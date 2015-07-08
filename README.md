@@ -72,7 +72,7 @@
 </h2>
 <p>【人民网：老蛤蟆万寿无疆】http://t.cn/RL2D6sH<br><img src="http://ww1.sinaimg.cn/large/0066M2Rhjw1etuos4bwc4j30mp0j246q.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3862267227677215" target="freeweibo-mirror">SPAM 哈哈哈当时应该就他一个人转</a>
 </h2>
