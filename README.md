@@ -84,7 +84,7 @@
 </h2>
 <p>救市终极三招。<br><img src="http://ww1.sinaimg.cn/large/631402d0jw1etv3ttps3oj20hh18g111.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3862252723244671" target="freeweibo-mirror">[哈哈] //@转贴砖家:呵呵，最右//@广州湾在线: //…</a>
 </h2>
