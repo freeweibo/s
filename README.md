@@ -24,7 +24,7 @@
 </h2>
 <p>SPAM 随手转给姑娘们~简直好用到没朋友~</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3862472991930096" target="freeweibo-mirror">天朝戈氏的母亲还没参加高考呢。//@温柔佐罗-王奇: 我曾说…</a>
 </h2>
