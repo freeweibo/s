@@ -30,7 +30,7 @@
 </h2>
 <p>天朝戈氏的母亲还没参加高考呢。//@温柔佐罗-王奇: 我曾说过，现在党内的某些人，正在拼命榨取民众对党最后的一点儿好感，党一旦最终沦为了臭不可闻的抹布，这些人就会迅速摇身一变，以顺应民意、变革体制的英雄身份粉墨登场</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3862452632193466" target="freeweibo-mirror">//@老榕:新华财经？对李总好像挺有意见？</a>
 </h2>
@@ -84,7 +84,7 @@
 </h2>
 <p>真有趣 //@文山娃:惊了，党内民主新高度  //@Soramimi:此文亮点太多 涉嫌影射特色制度 建议永远封杀 并把作者全国通报批评 @文山娃<br><br>RE: 【人民网：老蛤蟆万寿无疆】http://t.cn/RL2D6sH<br><img src="http://ww1.sinaimg.cn/large/0066M2Rhjw1etuos4bwc4j30mp0j246q.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3862325411137671" target="freeweibo-mirror">【大大出境】大大在境外，但绝不会在墙外。今天有位小伙伴告诉我…</a>
 </h2>
