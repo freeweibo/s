@@ -36,7 +36,7 @@
 </h2>
 <p>#十字架在流泪##浙江杭州强拆十字架##浙江强拆十字架##说好的宗教自由呢# 天主教杭州教区萧山堂区最后一个十字架。急救车出动了，但是教友们没有报力，只有祈祷，在雨中#默默的哭泣#，为中国教会，为中国直正党，更为中华民族：虽然悠长，但更贫乏。<br><img src="http://ww3.sinaimg.cn/large/005CHfDrjw1etwqqdp2fvj30ez0qojta.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3862746825208532" target="freeweibo-mirror">SPAM //@情话箱: 好一场撕逼大战[doge]</a>
 </h2>
