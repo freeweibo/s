@@ -66,7 +66,7 @@
 </h2>
 <p>http://t.cn/RLy7Rc3 他很生气，拍了桌子</p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3862489844524026" target="freeweibo-mirror">SPAM 不知中共混混們有沒有聽過梁詠琪的膽小鬼。花瓶，呵呵…</a>
 </h2>
