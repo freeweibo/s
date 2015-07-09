@@ -132,7 +132,7 @@
 </h2>
 <p>SPAM //@情话箱: 好一场撕逼大战[doge]<br><br>RE: 小时代4结局说好的时光不老，我们不散，最后变成#集体大撕逼#了[doge]http://t.cn/RLyZRmB</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3862744489237183" target="freeweibo-mirror">SPAM 荣耀神秘新品这是要请宋冬野代言？从这张海报的A，你…</a>
 </h2>
