@@ -84,7 +84,7 @@
 </h2>
 <p>//@周士君牧野风:做空中国，也坐实他们自己？！//@王建国://@潇湘刀客9: 转发微博<br><br>RE: 【戴相龙之子开始向南非转移千亿美金巨额资产】<br><img src="http://ww2.sinaimg.cn/large/0065F7GUgw1etvv68l8w1j30c812t7cu.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3862567049081810" target="freeweibo-mirror">王宇律师半夜发消息称，她居住的房子突然停电，外面有人撬门的声…</a>
 </h2>
@@ -108,7 +108,7 @@
 </h2>
 <p>http://t.cn/RLy7Rc3 他很生气，拍了桌子</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3862489844524026" target="freeweibo-mirror">SPAM 不知中共混混們有沒有聽過梁詠琪的膽小鬼。花瓶，呵呵…</a>
 </h2>
