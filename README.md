@@ -30,7 +30,7 @@
 </h2>
 <p>证监会拿政策救市：失败。 央行拿钱救市：失败。 公安部拿枪救市：成功！</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3862845840408791" target="freeweibo-mirror">人马得血汗钱，他们不会心疼//@中华宪政梦难圆: TG对俄爹…</a>
 </h2>
