@@ -60,7 +60,7 @@
 </h2>
 <p>SPAM 妈了逼，我跟我妈一起看的 //@先知维纶:博主你大爷呀！！！我特么跟我们女领导一块儿看的！！！[躁狂症][躁狂症][躁狂症][躁狂症]<br><br>RE: 刚看到有人跳楼！吓死我了！ http://t.cn/RLy0uzy .</p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3862732011289572" target="freeweibo-mirror">尤其墙国人好忽悠 //@网易淡茶半杯:[good] //@神…</a>
 </h2>
