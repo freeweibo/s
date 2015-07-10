@@ -26,6 +26,24 @@
 <p>
 	<small> ============== 1小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3863172597788395" target="freeweibo-mirror">SPAM 关注！</a>
+</h2>
+<p>SPAM 关注！<br><br>RE: 【感谢大家关心，我没事儿。关注其他同行。】锋锐所被搜查，我恰好在那里，所有在场人手机都被收走。13:00---17:30 http://t.cn/R2WJpgI</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3863168390221143" target="freeweibo-mirror">让律师同行揪心的一天</a>
+</h2>
+<p>让律师同行揪心的一天<br><br>RE: 【感谢大家关心，我没事儿。关注其他同行。】锋锐所被搜查，我恰好在那里，所有在场人手机都被收走。13:00---17:30 http://t.cn/R2WJpgI</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3863161016910803" target="freeweibo-mirror">为啥？@中国政府网 @美国驻华大使馆  //@燕小小云:帮寻…</a>
+</h2>
+<p>为啥？@中国政府网 @美国驻华大使馆  //@燕小小云:帮寻人，今天这么大肆逮捕律师是为啥呀？<br><br>RE: 我的妻子赵威（@考拉就是考拉）是李和平律师的助手，今天被北京警方从家里带走，同时被带走的还有她的室友。请大家帮忙关注，如有任何她的消息，请各位及时通知我！在此拜谢了！<br><img src="http://ww1.sinaimg.cn/large/005U0KSYgw1etxyw1pyejj30c80c8gmh.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3863160711081671" target="freeweibo-mirror">//@伟荣V实说: //@以點帶面-: 转发微博</a>
 </h2>
 <p>//@伟荣V实说: //@以點帶面-: 转发微博<br><br>RE: 我的妻子赵威（@考拉就是考拉）是李和平律师的助手，今天被北京警方从家里带走，同时被带走的还有她的室友。请大家帮忙关注，如有任何她的消息，请各位及时通知我！在此拜谢了！<br><img src="http://ww1.sinaimg.cn/large/005U0KSYgw1etxyw1pyejj30c80c8gmh.jpg"></p>
@@ -48,13 +66,13 @@
 </h2>
 <p>//@斯律斯律: //@邓树林律师://@刘文华律师: //@律师文摘://@杨名跨: 难道某股力量要加快推进新中国到来的节奏！/@木刀无锋:/@李志勇律师:有意思吗？威风到天就能活五百年？<br><br>RE: #7•10律师劫# 北京锋锐律所被抄，律师王宇1家3口失联约40小时，主任周世锋、助理王四新、出纳王芳、律师李姝云等被带走，刘晓源律师将被警方控制。李和平律师及助理考拉被警方带走，伍雷律师洗冤网办公室被抄。哈哈！抓光所有律师，警察国家就高枕无忧了？律界朋友们，辛劳半生该到高墙内读书休养了！<br><img src="http://ww1.sinaimg.cn/large/005BvIoZjw1etxve5s3caj30ak0b1aaz.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3863152276063451" target="freeweibo-mirror">//@邱旭瑜律师:末日疯狂！</a>
 </h2>
 <p>//@邱旭瑜律师:末日疯狂！<br><br>RE: #7•10律师劫# 北京锋锐律所被抄，律师王宇1家3口失联约40小时，主任周世锋、助理王四新、出纳王芳、律师李姝云等被带走，刘晓源律师将被警方控制。李和平律师及助理考拉被警方带走，伍雷律师洗冤网办公室被抄。哈哈！抓光所有律师，警察国家就高枕无忧了？律界朋友们，辛劳半生该到高墙内读书休养了！<br><img src="http://ww1.sinaimg.cn/large/005BvIoZjw1etxve5s3caj30ak0b1aaz.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3863131208153531" target="freeweibo-mirror">#7•10律师劫# 北京锋锐律所被抄，律师王宇1家3口失联约…</a>
 </h2>
@@ -72,7 +90,7 @@
 </h2>
 <p>//@陈光武律师: 转发微博<br><br>RE: 李和平律师的助理考拉也被天津警方带走。 http://t.cn/RLUsNuX<br><img src="http://ww4.sinaimg.cn/large/d4050bc4jw1etxtkcdn0xj20e60e6jsd.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3863115055767927" target="freeweibo-mirror">SPAM 回复@kobe_macgrady:不好意思，是郎指…</a>
 </h2>
@@ -119,24 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3863102888263278" target="freeweibo-mirror">//@F-J-H转1世: //@我是念斌的姐姐://@陈光武…</a>
 </h2>
 <p>//@F-J-H转1世: //@我是念斌的姐姐://@陈光武律师: 转发微博<br><br>RE: 李春富律师：刚收到嫂子王峭岭的短信：“李和平律师被天津市公安局带走。家里被彻底搜查了一遍，所有电脑都被带走。涉及刑事案件。有什么好的律师可推荐。”请大家关注。 http://t.cn/RLUeCBF<br><img src="http://ww2.sinaimg.cn/large/d4050bc4jw1etxrovh04qj20hs0hsmxy.jpg"></p>
-<p>
-	<small> ============== 6小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3863098731897668" target="freeweibo-mirror">@李春富律师 ：【李和平律师被天津公安局带走，请关注】刚收到…</a>
-</h2>
-<p>@李春富律师 ：【李和平律师被天津公安局带走，请关注】刚收到嫂子王峭岭的短信：“和平被天津市公安局带走。家里被彻底搜查了一遍，所有电脑都被带走。涉及刑事案件。有什么好的律师可推荐。”<br><img src="http://ww4.sinaimg.cn/large/63869567jw1etxrvef7cnj20zk0qo79h.jpg"></p>
-<p>
-	<small> ============== 6小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3863097804620401" target="freeweibo-mirror">杨方旭是踩到了地上的汗水，膝盖扭到了。这伤可大可小，而且她膝…</a>
-</h2>
-<p>杨方旭是踩到了地上的汗水，膝盖扭到了。这伤可大可小，而且她膝盖原来也有老伤。现在大家都在等着检查结果。#世界女排大奖赛# @中国女排</p>
-<p>
-	<small> ============== 6小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3863097800424624" target="freeweibo-mirror">【继续关注律师大逮捕】李春富律师：刚收到嫂子王峭岭的短信：“…</a>
-</h2>
-<p>【继续关注律师大逮捕】李春富律师：刚收到嫂子王峭岭的短信：“李和平律师被天津市公安局带走。家里被彻底搜查了一遍，所有电脑都被带走。涉及刑事案件。有什么好的律师可推荐。”请大家关注！</p>
 <p>
 	<small> ============== 6小时前</small>
 </p>
