@@ -24,7 +24,7 @@
 </h2>
 <p>//@云散月明2013: //@麻毛雄: [话筒]<br><br>RE: 【不是说依法治国吗】王宇律师是恐怖分子？还是贩毒成员？或是暴力犯罪嫌疑人？这样办案符合程序吗？为什么不白天依法传唤？<br><img src="http://ww1.sinaimg.cn/large/73208676jw1etxi1a9277j20hs0hs76j.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3863013138602114" target="freeweibo-mirror">【不是说依法治国吗】王宇律师是恐怖分子？还是贩毒成员？或是暴…</a>
 </h2>
@@ -72,7 +72,7 @@
 </h2>
 <p>【周世锋律师今晨绑架失联】刘晓原律师：昨晚，周世锋律师到通州区看守所接张淼后，“木木”和张淼、周世锋律师各住在七天酒店。早七时多，“木木”听到服务员敲周世锋律师的房间门。之后，听到周世锋律师喊她的名字，“木木”打开房门，看见周世锋律师被三人强行带走，头部用衣服蒙着。<br><img src="http://ww3.sinaimg.cn/large/4231a8dbjw1etxd4c5cnpj20np0hsjtx.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3862897845586030" target="freeweibo-mirror">全国20个省市共101位著名律师、2位学者及1位法学博士联署…</a>
 </h2>
