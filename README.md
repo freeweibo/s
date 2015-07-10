@@ -96,7 +96,13 @@
 </h2>
 <p>吴有水律师：刚听闻李和平律师被抓了，说是涉嫌刑事犯罪。再刚才，听说是周世锋律师被抓，他的助理也失踪。再之前，王宇律师失踪，连带着她的丈夫和小孩。这年头，律师被抓不是新闻，就连袁裕来也说，时刻准备着。这些律师为什么被抓，现在仍然不得而知。<br><img src="http://ww3.sinaimg.cn/large/005OeAnmjw1ety1ow49alj30b308cgm2.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3863182978498063" target="freeweibo-mirror">请关注这几位律师 @周世锋律师 ，@律师王宇 ，@李和平律师…</a>
+</h2>
+<p>请关注这几位律师 @周世锋律师 ，@律师王宇 ，@李和平律师， @张维玉律师 @人权捍卫者2015 王全璋律师，@考拉就是考拉</p>
+<p>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3863179999894795" target="freeweibo-mirror">我都写到切割三了，吴敬琏和他真传徒子徒孙没有一个吱声的，这几…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3863160711081671" target="freeweibo-mirror">//@伟荣V实说: //@以點帶面-: 转发微博</a>
 </h2>
 <p>//@伟荣V实说: //@以點帶面-: 转发微博<br><br>RE: 我的妻子赵威（@考拉就是考拉）是李和平律师的助手，今天被北京警方从家里带走，同时被带走的还有她的室友。请大家帮忙关注，如有任何她的消息，请各位及时通知我！在此拜谢了！<br><img src="http://ww1.sinaimg.cn/large/005U0KSYgw1etxyw1pyejj30c80c8gmh.jpg"></p>
-<p>
-	<small> ============== 6小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3863160081826931" target="freeweibo-mirror">我的妻子赵威（@考拉就是考拉）是李和平律师的助手，今天被北京…</a>
-</h2>
-<p>我的妻子赵威（@考拉就是考拉）是李和平律师的助手，今天被北京警方从家里带走，同时被带走的还有她的室友。请大家帮忙关注，如有任何她的消息，请各位及时通知我！在此拜谢了！<br><img src="http://ww1.sinaimg.cn/large/005U0KSYgw1etxyw1pyejj30c80c8gmh.jpg"></p>
 <p>
 	<small> ============== 6小时前</small>
 </p>
