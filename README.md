@@ -26,6 +26,12 @@
 <p>
 	<small> ============== 1小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3863160081826931" target="freeweibo-mirror">我的妻子赵威（@考拉就是考拉）是李和平律师的助手，今天被北京…</a>
+</h2>
+<p>我的妻子赵威（@考拉就是考拉）是李和平律师的助手，今天被北京警方从家里带走，同时被带走的还有她的室友。请大家帮忙关注，如有任何她的消息，请各位及时通知我！在此拜谢了！<br><img src="http://ww1.sinaimg.cn/large/005U0KSYgw1etxyw1pyejj30c80c8gmh.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3863153412878701" target="freeweibo-mirror">//@郑湘律师: //@邓树林律师://@刘文华律师: //…</a>
 </h2>
 <p>//@郑湘律师: //@邓树林律师://@刘文华律师: //@律师文摘://@杨名跨: 难道某股力量要加快推进新中国到来的节奏！/@木刀无锋:/@李志勇律师:有意思吗？威风到天就能活五百年？<br><br>RE: #7•10律师劫# 北京锋锐律所被抄，律师王宇1家3口失联约40小时，主任周世锋、助理王四新、出纳王芳、律师李姝云等被带走，刘晓源律师将被警方控制。李和平律师及助理考拉被警方带走，伍雷律师洗冤网办公室被抄。哈哈！抓光所有律师，警察国家就高枕无忧了？律界朋友们，辛劳半生该到高墙内读书休养了！<br><img src="http://ww1.sinaimg.cn/large/005BvIoZjw1etxve5s3caj30ak0b1aaz.jpg"></p>
@@ -114,7 +120,7 @@
 </h2>
 <p>@李春富律师 ：【李和平律师被天津公安局带走，请关注】刚收到嫂子王峭岭的短信：“和平被天津市公安局带走。家里被彻底搜查了一遍，所有电脑都被带走。涉及刑事案件。有什么好的律师可推荐。”<br><img src="http://ww4.sinaimg.cn/large/63869567jw1etxrvef7cnj20zk0qo79h.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3863097804620401" target="freeweibo-mirror">杨方旭是踩到了地上的汗水，膝盖扭到了。这伤可大可小，而且她膝…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3863097154594556" target="freeweibo-mirror">李春富律师：刚收到嫂子王峭岭的短信：“李和平律师被天津市公安…</a>
 </h2>
 <p>李春富律师：刚收到嫂子王峭岭的短信：“李和平律师被天津市公安局带走。家里被彻底搜查了一遍，所有电脑都被带走。涉及刑事案件。有什么好的律师可推荐。”请大家关注。 http://t.cn/RLUeCBF<br><img src="http://ww2.sinaimg.cn/large/d4050bc4jw1etxrovh04qj20hs0hsmxy.jpg"></p>
-<p>
-	<small> ============== 6小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3863096693242665" target="freeweibo-mirror">SPAM #迷奇亮白新搭#改善因氧化造成的肌肤晦涩暗沉，提亮…</a>
-</h2>
-<p>SPAM #迷奇亮白新搭#改善因氧化造成的肌肤晦涩暗沉，提亮肤色，缔造水润莹白美肌，你还不快点来[来]</p>
 <p>
 	<small> ============== 6小时前</small>
 </p>
