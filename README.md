@@ -72,13 +72,13 @@
 </h2>
 <p>//@斯律斯律: //@邓树林律师://@刘文华律师: //@律师文摘://@杨名跨: 难道某股力量要加快推进新中国到来的节奏！/@木刀无锋:/@李志勇律师:有意思吗？威风到天就能活五百年？<br><br>RE: #7•10律师劫# 北京锋锐律所被抄，律师王宇1家3口失联约40小时，主任周世锋、助理王四新、出纳王芳、律师李姝云等被带走，刘晓源律师将被警方控制。李和平律师及助理考拉被警方带走，伍雷律师洗冤网办公室被抄。哈哈！抓光所有律师，警察国家就高枕无忧了？律界朋友们，辛劳半生该到高墙内读书休养了！<br><img src="http://ww1.sinaimg.cn/large/005BvIoZjw1etxve5s3caj30ak0b1aaz.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3863152276063451" target="freeweibo-mirror">//@邱旭瑜律师:末日疯狂！</a>
 </h2>
 <p>//@邱旭瑜律师:末日疯狂！<br><br>RE: #7•10律师劫# 北京锋锐律所被抄，律师王宇1家3口失联约40小时，主任周世锋、助理王四新、出纳王芳、律师李姝云等被带走，刘晓源律师将被警方控制。李和平律师及助理考拉被警方带走，伍雷律师洗冤网办公室被抄。哈哈！抓光所有律师，警察国家就高枕无忧了？律界朋友们，辛劳半生该到高墙内读书休养了！<br><img src="http://ww1.sinaimg.cn/large/005BvIoZjw1etxve5s3caj30ak0b1aaz.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3863146073043892" target="freeweibo-mirror">有种干脆把律师灭了算了，何苦装什么依法治国的B？</a>
 </h2>
@@ -102,7 +102,7 @@
 </h2>
 <p>//@陈光武律师: 转发微博<br><br>RE: 李和平律师的助理考拉也被天津警方带走。 http://t.cn/RLUsNuX<br><img src="http://ww4.sinaimg.cn/large/d4050bc4jw1etxtkcdn0xj20e60e6jsd.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3863120206540091" target="freeweibo-mirror">【感谢大家关心，我没事儿。关注其他同行。】锋锐所被搜查，我恰…</a>
 </h2>
