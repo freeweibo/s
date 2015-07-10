@@ -108,7 +108,7 @@
 </h2>
 <p>【感谢大家关心，我没事儿。关注其他同行。】锋锐所被搜查，我恰好在那里，所有在场人手机都被收走。13:00---17:30 http://t.cn/R2WJpgI</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3863115055767927" target="freeweibo-mirror">SPAM 回复@kobe_macgrady:不好意思，是郎指…</a>
 </h2>
