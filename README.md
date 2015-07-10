@@ -48,7 +48,7 @@
 </h2>
 <p>@李不白的空间:为什么啊？//@孟庆明v:不知道为了什么？！<br><br>RE: 吴有水律师：刚听闻李和平律师被抓了，说是涉嫌刑事犯罪。再刚才，听说是周世锋律师被抓，他的助理也失踪。再之前，王宇律师失踪，连带着她的丈夫和小孩。这年头，律师被抓不是新闻，就连袁裕来也说，时刻准备着。这些律师为什么被抓，现在仍然不得而知。<br><img src="http://ww3.sinaimg.cn/large/005OeAnmjw1ety1ow49alj30b308cgm2.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3863188183437545" target="freeweibo-mirror">[怒]</a>
 </h2>
@@ -90,13 +90,13 @@
 </h2>
 <p>为啥？@中国政府网 @美国驻华大使馆  //@燕小小云:帮寻人，今天这么大肆逮捕律师是为啥呀？<br><br>RE: 我的妻子赵威（@考拉就是考拉）是李和平律师的助手，今天被北京警方从家里带走，同时被带走的还有她的室友。请大家帮忙关注，如有任何她的消息，请各位及时通知我！在此拜谢了！<br><img src="http://ww1.sinaimg.cn/large/005U0KSYgw1etxyw1pyejj30c80c8gmh.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3863160711081671" target="freeweibo-mirror">//@伟荣V实说: //@以點帶面-: 转发微博</a>
 </h2>
 <p>//@伟荣V实说: //@以點帶面-: 转发微博<br><br>RE: 我的妻子赵威（@考拉就是考拉）是李和平律师的助手，今天被北京警方从家里带走，同时被带走的还有她的室友。请大家帮忙关注，如有任何她的消息，请各位及时通知我！在此拜谢了！<br><img src="http://ww1.sinaimg.cn/large/005U0KSYgw1etxyw1pyejj30c80c8gmh.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3863160081826931" target="freeweibo-mirror">我的妻子赵威（@考拉就是考拉）是李和平律师的助手，今天被北京…</a>
 </h2>
@@ -132,7 +132,7 @@
 </h2>
 <p>有种干脆把律师灭了算了，何苦装什么依法治国的B？<br><img src="http://ww3.sinaimg.cn/large/49abe88bgw1etxxb3sykmj20af07taag.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3863131208153531" target="freeweibo-mirror">#7•10律师劫# 北京锋锐律所被抄，律师王宇1家3口失联约…</a>
 </h2>
