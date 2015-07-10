@@ -30,7 +30,7 @@
 </h2>
 <p>SPAM 关注！<br><br>RE: 【感谢大家关心，我没事儿。关注其他同行。】锋锐所被搜查，我恰好在那里，所有在场人手机都被收走。13:00---17:30 http://t.cn/R2WJpgI</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3863168390221143" target="freeweibo-mirror">让律师同行揪心的一天</a>
 </h2>
@@ -55,6 +55,12 @@
 <p>我的妻子赵威（@考拉就是考拉）是李和平律师的助手，今天被北京警方从家里带走，同时被带走的还有她的室友。请大家帮忙关注，如有任何她的消息，请各位及时通知我！在此拜谢了！<br><img src="http://ww1.sinaimg.cn/large/005U0KSYgw1etxyw1pyejj30c80c8gmh.jpg"></p>
 <p>
 	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3863154868398304" target="freeweibo-mirror">SPAM #开团中#很多麻麻私信问几时可以再开的陶瓷刀来咯！…</a>
+</h2>
+<p>SPAM #开团中#很多麻麻私信问几时可以再开的陶瓷刀来咯！[爱你]</p>
+<p>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3863153412878701" target="freeweibo-mirror">//@郑湘律师: //@邓树林律师://@刘文华律师: //…</a>
 </h2>
@@ -92,6 +98,12 @@
 <p>
 	<small> ============== 5小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3863120206540091" target="freeweibo-mirror">【感谢大家关心，我没事儿。关注其他同行。】锋锐所被搜查，我恰…</a>
+</h2>
+<p>【感谢大家关心，我没事儿。关注其他同行。】锋锐所被搜查，我恰好在那里，所有在场人手机都被收走。13:00---17:30 http://t.cn/R2WJpgI</p>
+<p>
+	<small> ============== 5小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3863115055767927" target="freeweibo-mirror">SPAM 回复@kobe_macgrady:不好意思，是郎指…</a>
 </h2>
 <p>SPAM 回复@kobe_macgrady:不好意思，是郎指导告诉我的。我就在队里。难道你的意思是郎指导自己都没你清楚她的队员怎么伤的？<br><br>RE: 杨方旭是踩到了地上的汗水，膝盖扭到了。这伤可大可小，而且她膝盖原来也有老伤。现在大家都在等着检查结果。#世界女排大奖赛# @中国女排</p>
@@ -110,33 +122,21 @@
 <p>
 	<small> ============== 5小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3863111918311650" target="freeweibo-mirror">微信朋友圈满屏尽是抓律师的信息。一天抓那么多律师，这是在与庆…</a>
+</h2>
+<p>微信朋友圈满屏尽是抓律师的信息。一天抓那么多律师，这是在与庆安竞赛吗？我很困惑：熟悉的一些律师，不过靠一张嘴，为当事人说说话；抱着对这个国家的希望，对各种不公平与非正义，爱吼两嗓子；而已，他们能对这社会有啥危害呢？</p>
+<p>
+	<small> ============== 6小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3863111864244515" target="freeweibo-mirror">//@发明人沈保民: //@齐河律师://@济南舒向新://…</a>
 </h2>
 <p>//@发明人沈保民: //@齐河律师://@济南舒向新://@苏州朱永健: 转发微博<br><br>RE: 李春富律师：刚收到嫂子王峭岭的短信：“李和平律师被天津市公安局带走。家里被彻底搜查了一遍，所有电脑都被带走。涉及刑事案件。有什么好的律师可推荐。”请大家关注。 http://t.cn/RLUeCBF<br><img src="http://ww2.sinaimg.cn/large/d4050bc4jw1etxrovh04qj20hs0hsmxy.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3863111394409743" target="freeweibo-mirror">SPAM 回复@kobe_macgrady:看个转播都比当事…</a>
 </h2>
 <p>SPAM 回复@kobe_macgrady:看个转播都比当事人门儿清[哈哈]你是牛人，去有关部门工作吧。<br><br>RE: 杨方旭是踩到了地上的汗水，膝盖扭到了。这伤可大可小，而且她膝盖原来也有老伤。现在大家都在等着检查结果。#世界女排大奖赛# @中国女排</p>
-<p>
-	<small> ============== 5小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3863108856937008" target="freeweibo-mirror">回复@kobe_macgrady:你在现场吗？队员亲口说地上…</a>
-</h2>
-<p>回复@kobe_macgrady:你在现场吗？队员亲口说地上滴了汗。你比当事人还清楚？信口雌黄的主！//@kobe_macgrady:明显不是地面有水啊，记者同志，没有事实依据不要乱说啊，从视屏上看，就是扣球落地时，没有站稳，一点都不像是地上有水的情况。<br><br>RE: 杨方旭是踩到了地上的汗水，膝盖扭到了。这伤可大可小，而且她膝盖原来也有老伤。现在大家都在等着检查结果。#世界女排大奖赛# @中国女排</p>
-<p>
-	<small> ============== 6小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3863103211054386" target="freeweibo-mirror">//@邓树林律师: //@刘文华律师: 山雨欲来风满楼</a>
-</h2>
-<p>//@邓树林律师: //@刘文华律师: 山雨欲来风满楼</p>
-<p>
-	<small> ============== 6小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3863102888263278" target="freeweibo-mirror">//@F-J-H转1世: //@我是念斌的姐姐://@陈光武…</a>
-</h2>
-<p>//@F-J-H转1世: //@我是念斌的姐姐://@陈光武律师: 转发微博<br><br>RE: 李春富律师：刚收到嫂子王峭岭的短信：“李和平律师被天津市公安局带走。家里被彻底搜查了一遍，所有电脑都被带走。涉及刑事案件。有什么好的律师可推荐。”请大家关注。 http://t.cn/RLUeCBF<br><img src="http://ww2.sinaimg.cn/large/d4050bc4jw1etxrovh04qj20hs0hsmxy.jpg"></p>
 <p>
 	<small> ============== 6小时前</small>
 </p>
