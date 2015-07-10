@@ -54,7 +54,7 @@
 </h2>
 <p>我的妻子赵威（@考拉就是考拉）是李和平律师的助手，今天被北京警方从家里带走，同时被带走的还有她的室友。请大家帮忙关注，如有任何她的消息，请各位及时通知我！在此拜谢了！<br><img src="http://ww1.sinaimg.cn/large/005U0KSYgw1etxyw1pyejj30c80c8gmh.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3863154868398304" target="freeweibo-mirror">SPAM #开团中#很多麻麻私信问几时可以再开的陶瓷刀来咯！…</a>
 </h2>
@@ -77,6 +77,12 @@
 	<a href="https://freeweibo.com/weibo/3863152276063451" target="freeweibo-mirror">//@邱旭瑜律师:末日疯狂！</a>
 </h2>
 <p>//@邱旭瑜律师:末日疯狂！<br><br>RE: #7•10律师劫# 北京锋锐律所被抄，律师王宇1家3口失联约40小时，主任周世锋、助理王四新、出纳王芳、律师李姝云等被带走，刘晓源律师将被警方控制。李和平律师及助理考拉被警方带走，伍雷律师洗冤网办公室被抄。哈哈！抓光所有律师，警察国家就高枕无忧了？律界朋友们，辛劳半生该到高墙内读书休养了！<br><img src="http://ww1.sinaimg.cn/large/005BvIoZjw1etxve5s3caj30ak0b1aaz.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3863146073043892" target="freeweibo-mirror">有种干脆把律师灭了算了，何苦装什么依法治国的B？</a>
+</h2>
+<p>有种干脆把律师灭了算了，何苦装什么依法治国的B？<br><img src="http://ww3.sinaimg.cn/large/49abe88bgw1etxxb3sykmj20af07taag.jpg"></p>
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3863111864244515" target="freeweibo-mirror">//@发明人沈保民: //@齐河律师://@济南舒向新://…</a>
 </h2>
 <p>//@发明人沈保民: //@齐河律师://@济南舒向新://@苏州朱永健: 转发微博<br><br>RE: 李春富律师：刚收到嫂子王峭岭的短信：“李和平律师被天津市公安局带走。家里被彻底搜查了一遍，所有电脑都被带走。涉及刑事案件。有什么好的律师可推荐。”请大家关注。 http://t.cn/RLUeCBF<br><img src="http://ww2.sinaimg.cn/large/d4050bc4jw1etxrovh04qj20hs0hsmxy.jpg"></p>
-<p>
-	<small> ============== 6小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3863111394409743" target="freeweibo-mirror">SPAM 回复@kobe_macgrady:看个转播都比当事…</a>
-</h2>
-<p>SPAM 回复@kobe_macgrady:看个转播都比当事人门儿清[哈哈]你是牛人，去有关部门工作吧。<br><br>RE: 杨方旭是踩到了地上的汗水，膝盖扭到了。这伤可大可小，而且她膝盖原来也有老伤。现在大家都在等着检查结果。#世界女排大奖赛# @中国女排</p>
 <p>
 	<small> ============== 6小时前</small>
 </p>
