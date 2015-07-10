@@ -24,7 +24,7 @@
 </h2>
 <p>SPAM ???????????<br><br>RE: 今天一共逮了几个律师？七个？</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3863173600290830" target="freeweibo-mirror">杀完天下的公鸡，天照样亮啊！ //@栾少湖律师:不是说好了要…</a>
 </h2>
