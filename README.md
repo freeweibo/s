@@ -44,6 +44,12 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3863184630907772" target="freeweibo-mirror">吴有水律师：刚听闻李和平律师被抓了，说是涉嫌刑事犯罪。再刚才…</a>
+</h2>
+<p>吴有水律师：刚听闻李和平律师被抓了，说是涉嫌刑事犯罪。再刚才，听说是周世锋律师被抓，他的助理也失踪。再之前，王宇律师失踪，连带着她的丈夫和小孩。这年头，律师被抓不是新闻，就连袁裕来也说，时刻准备着。这些律师为什么被抓，现在仍然不得而知。<br><img src="http://ww3.sinaimg.cn/large/005OeAnmjw1ety1ow49alj30b308cgm2.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3863179999894795" target="freeweibo-mirror">我都写到切割三了，吴敬琏和他真传徒子徒孙没有一个吱声的，这几…</a>
 </h2>
 <p>我都写到切割三了，吴敬琏和他真传徒子徒孙没有一个吱声的，这几个小毛贼，一不懂中文二不懂道理三不懂逻辑四不懂自省，根本不值得理他们，叫他们干点活。//@吾语若: 认错也轮不到跟你认吧？//@暗瘤蛹洞://@邓相超:/ 【http://t.cn/R2IgsCV】，【http://t.cn/R2t7MDn】，【http://t.cn/RLPV95D】</p>
@@ -90,7 +96,7 @@
 </h2>
 <p>SPAM #开团中#很多麻麻私信问几时可以再开的陶瓷刀来咯！[爱你]</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3863153412878701" target="freeweibo-mirror">//@郑湘律师: //@邓树林律师://@刘文华律师: //…</a>
 </h2>
@@ -126,17 +132,11 @@
 </h2>
 <p>他们要一只树袋熊干什么呐？[思考]<br><br>RE: 李和平律师的助理考拉也被天津警方带走。 http://t.cn/RLUsNuX<br><img src="http://ww4.sinaimg.cn/large/d4050bc4jw1etxtkcdn0xj20e60e6jsd.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3863121372261878" target="freeweibo-mirror">//@陈光武律师: 转发微博</a>
 </h2>
 <p>//@陈光武律师: 转发微博<br><br>RE: 李和平律师的助理考拉也被天津警方带走。 http://t.cn/RLUsNuX<br><img src="http://ww4.sinaimg.cn/large/d4050bc4jw1etxtkcdn0xj20e60e6jsd.jpg"></p>
-<p>
-	<small> ============== 7小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3863120206540091" target="freeweibo-mirror">【感谢大家关心，我没事儿。关注其他同行。】锋锐所被搜查，我恰…</a>
-</h2>
-<p>【感谢大家关心，我没事儿。关注其他同行。】锋锐所被搜查，我恰好在那里，所有在场人手机都被收走。13:00---17:30 http://t.cn/R2WJpgI</p>
 <p>
 	<small> ============== 7小时前</small>
 </p>
