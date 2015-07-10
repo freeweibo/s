@@ -32,6 +32,12 @@
 <p>
 	<small> ============== 1小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3863131208153531" target="freeweibo-mirror">#7•10律师劫# 北京锋锐律所被抄，律师王宇1家3口失联约…</a>
+</h2>
+<p>#7•10律师劫# 北京锋锐律所被抄，律师王宇1家3口失联约40小时，主任周世锋、助理王四新、出纳王芳、律师李姝云等被带走，刘晓源律师将被警方控制。李和平律师及助理考拉被警方带走，伍雷律师洗冤网办公室被抄。哈哈！抓光所有律师，警察国家就高枕无忧了？律界朋友们，辛劳半生该到高墙内读书休养了！<br><img src="http://ww1.sinaimg.cn/large/005BvIoZjw1etxve5s3caj30ak0b1aaz.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3863124375148149" target="freeweibo-mirror">他们要一只树袋熊干什么呐？[思考]</a>
 </h2>
 <p>他们要一只树袋熊干什么呐？[思考]<br><br>RE: 李和平律师的助理考拉也被天津警方带走。 http://t.cn/RLUsNuX<br><img src="http://ww4.sinaimg.cn/large/d4050bc4jw1etxtkcdn0xj20e60e6jsd.jpg"></p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3863084483117412" target="freeweibo-mirror">抓一个女律师干什么呢？</a>
 </h2>
 <p>抓一个女律师干什么呢？<br><br>RE: 104位知名律师、学者联署，发表关于王宇律师失联的严正声明。王宇，乌兰浩特人，维权律师，曾代理曹顺利、范木根、伊力哈木等敏感案件，参与过2014年建三江事件，为气功学员做过无罪辩护。昨日凌晨，20多名警察以扫毒的名义，将她从家中带走，下落不明，她是屠夫的辩护人，被誉为最勇敢女律师。<br><img src="http://ww3.sinaimg.cn/large/0069kyRsgw1etxkbntyi4j30c10dxjs2.jpg"></p>
-<p>
-	<small> ============== 6小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3863084311776718" target="freeweibo-mirror">你胆子也够肥的呀[哼]</a>
-</h2>
-<p>你胆子也够肥的呀[哼]<br><br>RE: 【感觉恐怖】在一个随时都会被以任何罪名带走的年代（转发敏感微博、质疑某事件、律师在公堂死磕）人人自危，我突然间觉得我自己有点了不起[偷笑]，我连晚上自己睡觉都不敢关灯的女子还敢在微博上乱逛呢，哪天要是偶的微博傻了吧唧的转发个难以理解的事态文章[可怜]不敢想。。立马我也成了一条消息<br><img src="http://ww3.sinaimg.cn/large/d34e9a21jw1etxm4eg0dnj20fi06hwfp.jpg"></p>
 <p>
 	<small> ============== 6小时前</small>
 </p>
