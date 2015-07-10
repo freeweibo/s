@@ -26,6 +26,12 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3862997661821178" target="freeweibo-mirror">依法办事。 //@陈光武律师://@余元洲: 我是说，联名者…</a>
+</h2>
+<p>依法办事。 //@陈光武律师://@余元洲: 我是说，联名者中，应包括我。 //@宪行中国:[霹雳][围观][话筒]<br><br>RE: 全国20个省市共101位著名律师、2位学者及1位法学博士联署发表【关于王宇律师“失联”的严正声明】原文如下：<br><img src="http://ww3.sinaimg.cn/large/e723319cjw1etx4obu4baj20fm4b87ka.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3862976761274350" target="freeweibo-mirror">关注</a>
 </h2>
 <p>关注<br><br>RE: 【周世锋律师今晨绑架失联】刘晓原律师：昨晚，周世锋律师到通州区看守所接张淼后，“木木”和张淼、周世锋律师各住在七天酒店。早七时多，“木木”听到服务员敲周世锋律师的房间门。之后，听到周世锋律师喊她的名字，“木木”打开房门，看见周世锋律师被三人强行带走，头部用衣服蒙着。<br><img src="http://ww3.sinaimg.cn/large/4231a8dbjw1etxd4c5cnpj20np0hsjtx.jpg"></p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3862779150638815" target="freeweibo-mirror">又去她家收了个手串，根本停不下来的节奏呀……完全中了琥珀蜜蜡…</a>
 </h2>
 <p>又去她家收了个手串，根本停不下来的节奏呀……完全中了琥珀蜜蜡的毒，爱上她家了。 @寰九奢侈品</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3862775359337313" target="freeweibo-mirror">#十字架在流泪##浙江杭州强拆十字架##浙江强拆十字架##说…</a>
-</h2>
-<p>#十字架在流泪##浙江杭州强拆十字架##浙江强拆十字架##说好的宗教自由呢# 天主教杭州教区萧山堂区最后一个十字架。急救车出动了，但是教友们没有报力，只有祈祷，在雨中#默默的哭泣#，为中国教会，为中国直正党，更为中华民族：虽然悠长，但更贫乏。<br><img src="http://ww3.sinaimg.cn/large/005CHfDrjw1etwqqdp2fvj30ez0qojta.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
