@@ -44,6 +44,12 @@
 <p>
 	<small> ============== 4小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3862897845586030" target="freeweibo-mirror">全国20个省市共101位著名律师、2位学者及1位法学博士联署…</a>
+</h2>
+<p>全国20个省市共101位著名律师、2位学者及1位法学博士联署发表【关于王宇律师“失联”的严正声明】原文如下：<br><img src="http://ww3.sinaimg.cn/large/e723319cjw1etx4obu4baj20fm4b87ka.jpg"></p>
+<p>
+	<small> ============== 9小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3862868535969586" target="freeweibo-mirror">自由当然得限制，从随地大小便到恐怖主义。权利来于法律的规定，…</a>
 </h2>
 <p>自由当然得限制，从随地大小便到恐怖主义。权利来于法律的规定，而规定就必然有限制性排除。@联合国 应该好好学习，看看世界上动荡地区的安全应该如何保障。</p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3862783018070668" target="freeweibo-mirror">王全平律师: 她是勇敢、正直、无私的人权律师。多数时间奔波在…</a>
 </h2>
 <p>王全平律师: 她是勇敢、正直、无私的人权律师。多数时间奔波在维权的路上，为蒙冤受难的公民仗义执言，多次被公权辱骂、抢手机、驱逐甚至非法关押，但她毫不畏惧，与违法公权殊死抗争。她不计名利，不赚大钱，却风尘仆仆办理各种吃力不讨好的公益案件，只求法律正义。她叫王宇，中国律师的骄傲。<br><img src="http://ww3.sinaimg.cn/large/6a80bfcdjw1etwrm1aaxzj20nt0hs0uw.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3862779150638815" target="freeweibo-mirror">又去她家收了个手串，根本停不下来的节奏呀……完全中了琥珀蜜蜡…</a>
-</h2>
-<p>又去她家收了个手串，根本停不下来的节奏呀……完全中了琥珀蜜蜡的毒，爱上她家了。 @寰九奢侈品</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
