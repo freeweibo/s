@@ -26,6 +26,12 @@
 <p>
 	<small> ============== 1小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3863339887470071" target="freeweibo-mirror">//@去V的刘建锋: //@崔小平律师://@荣剑2001:…</a>
+</h2>
+<p>//@去V的刘建锋: //@崔小平律师://@荣剑2001:高度关注！<br><br>RE: 【又闻抓律师:游飞翥凌晨3时被带走】 http://t.cn/RL4Kv91事发深夜!昨晚23时许有人自称楼下邻居,敲门查是否漏水;今日凌晨0时许司法局领导打电话要求立即去谈话(游拒);凌晨3时许两道防盗门被撬开第一道,敲开第二道门,人被带走,电脑被抄走。此前其诉庆安公安被以抓人威胁让撤诉！<br><img src="http://ww3.sinaimg.cn/large/4bdb1fa0jw1etyh3eizzwj20c610xdvn.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3863327832664908" target="freeweibo-mirror">//@崔小平律师:应该是统一行动，疯狂。//@邱旭瑜律师:再…</a>
 </h2>
 <p>//@崔小平律师:应该是统一行动，疯狂。//@邱旭瑜律师:再看吧！//@中华文化研究:看来是全国统一行动//@毕明雄: //@兰州张维林:转发微博<br><br>RE: 早上获悉全国抓捕律师，希望仅是协助调查，否则势必走向反面，任何试图用强权压制某种力量，反而使某种力量更快速的获得正当性，执政党就是例证，因此有些权力不是不可以用，而是非不得以不能用，深切希望权力部门谨慎！</p>
@@ -66,13 +72,19 @@
 </h2>
 <p>【截至7月11号凌晨2点，共计34名律师及律所人员被带走/失联/约谈/要求约谈/传唤/限制人身自由】杨名跨评：这是中国律师注定要担受的历史责任，这是盛世中国加冕于中国律师的时代荣光，该来的终究要来，各位同仁当坦然面对。 http://t.cn/R2WJTyn<br><img src="http://ww3.sinaimg.cn/large/d4050bc4jw1etyfe0qrfmj20c70fdjrt.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3863291816543870" target="freeweibo-mirror">#7•10律师劫#续【截至7月11号凌晨2点，共计34名律师…</a>
 </h2>
 <p>#7•10律师劫#续【截至7月11号凌晨2点，共计34名律师及律所人员被带走/失联/约谈/要求约谈/传唤/限制人身自由】。杨名跨评：这是中国律师注定要担受的历史责任，这是盛世中国加冕于中国律师的时代荣光，该来的终究要来，各位同仁当坦然面对。<br><img src="http://ww3.sinaimg.cn/large/005BvIoZjw1etydyv87p6j30i00qodk8.jpg"></p>
 <p>
 	<small> ============== 4小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3863244210991562" target="freeweibo-mirror">@沈勇平17 整理的名单，应该有遗漏，速转！[话筒]</a>
+</h2>
+<p>@沈勇平17 整理的名单，应该有遗漏，速转！[话筒]<br><img src="http://ww2.sinaimg.cn/large/0069kyRsgw1ety8halohxj30c81dq778.jpg"></p>
+<p>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3863231057474770" target="freeweibo-mirror">门外有客，我没让进。委托书在我哥游忠洪13709405701…</a>
 </h2>
@@ -127,18 +139,6 @@
 <p>SPAM 共产党真是把华族的素质拉底了不知道多少个层次。</p>
 <p>
 	<small> ============== 10小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3863193326126469" target="freeweibo-mirror">SPAM ???????????</a>
-</h2>
-<p>SPAM ???????????<br><br>RE: 今天一共逮了几个律师？七个？</p>
-<p>
-	<small> ============== 11小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3863191929103581" target="freeweibo-mirror">今天一共逮了几个律师？七个？</a>
-</h2>
-<p>今天一共逮了几个律师？七个？</p>
-<p>
-	<small> ============== 11小时前</small>
 </p>
 <table>
     <tr>
