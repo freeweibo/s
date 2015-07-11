@@ -42,7 +42,13 @@
 </h2>
 <p>早上获悉全国抓捕律师，希望仅是协助调查，否则势必走向反面，任何试图用强权压制某种力量，反而使某种力量更快速的获得正当性，执政党就是例证，因此有些权力不是不可以用，而是非不得以不能用，深切希望权力部门谨慎！</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3863318554558215" target="freeweibo-mirror">【又闻抓律师:游飞翥凌晨3时被带走】 http://t.cn…</a>
+</h2>
+<p>【又闻抓律师:游飞翥凌晨3时被带走】 http://t.cn/RL4Kv91事发深夜!昨晚23时许有人自称楼下邻居,敲门查是否漏水;今日凌晨0时许司法局领导打电话要求立即去谈话(游拒);凌晨3时许两道防盗门被撬开第一道,敲开第二道门,人被带走,电脑被抄走。此前其诉庆安公安被以抓人威胁让撤诉！<br><img src="http://ww3.sinaimg.cn/large/4bdb1fa0jw1etyh3eizzwj20c610xdvn.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3863314889666335" target="freeweibo-mirror">//@苏州顾晓峰5:杀光了公鸡天照样会亮 //@郑湘律师:转…</a>
 </h2>
@@ -66,7 +72,7 @@
 </h2>
 <p>哪样不是一生，最终都是一死。把这点看透，那都不是事。<br><br>RE: #7•10律师劫#续【截至7月11号凌晨2点，共计34名律师及律所人员被带走/失联/约谈/要求约谈/传唤/限制人身自由】。杨名跨评：这是中国律师注定要担受的历史责任，这是盛世中国加冕于中国律师的时代荣光，该来的终究要来，各位同仁当坦然面对。<br><img src="http://ww3.sinaimg.cn/large/005BvIoZjw1etydyv87p6j30i00qodk8.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3863303497606465" target="freeweibo-mirror">【截至7月11号凌晨2点，共计34名律师及律所人员被带走/失…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3863199088913983" target="freeweibo-mirror">SPAM 许愿共产党这个政府能够在今年倒台。</a>
 </h2>
 <p>SPAM 许愿共产党这个政府能够在今年倒台。</p>
-<p>
-	<small> ============== 11小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3863198137005172" target="freeweibo-mirror">SPAM 共产党真是把华族的素质拉底了不知道多少个层次。</a>
-</h2>
-<p>SPAM 共产党真是把华族的素质拉底了不知道多少个层次。</p>
 <p>
 	<small> ============== 11小时前</small>
 </p>
