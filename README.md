@@ -102,7 +102,7 @@
 </h2>
 <p>#7•10律师劫#续【截至7月11号凌晨2点，共计34名律师及律所人员被带走/失联/约谈/要求约谈/传唤/限制人身自由】。杨名跨评：这是中国律师注定要担受的历史责任，这是盛世中国加冕于中国律师的时代荣光，该来的终究要来，各位同仁当坦然面对。<br><img src="http://ww3.sinaimg.cn/large/005BvIoZjw1etydyv87p6j30i00qodk8.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3863244210991562" target="freeweibo-mirror">@沈勇平17 整理的名单，应该有遗漏，速转！[话筒]</a>
 </h2>
