@@ -60,7 +60,7 @@
 </h2>
 <p>【又闻抓律师:游飞翥凌晨3时被带走】 http://t.cn/RL4Kv91事发深夜!昨晚23时许有人自称楼下邻居,敲门查是否漏水;今日凌晨0时许司法局领导打电话要求立即去谈话(游拒);凌晨3时许两道防盗门被撬开第一道,敲开第二道门,人被带走,电脑被抄走。此前其诉庆安公安被以抓人威胁让撤诉！<br><img src="http://ww3.sinaimg.cn/large/4bdb1fa0jw1etyh3eizzwj20c610xdvn.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3863315211819283" target="freeweibo-mirror">#亚蒙看法#「严打＂死磕＂律师」7.10至7.11凌晨，一天…</a>
 </h2>
@@ -96,7 +96,7 @@
 </h2>
 <p>【截至7月11号凌晨2点，共计34名律师及律所人员被带走/失联/约谈/要求约谈/传唤/限制人身自由】杨名跨评：这是中国律师注定要担受的历史责任，这是盛世中国加冕于中国律师的时代荣光，该来的终究要来，各位同仁当坦然面对。 http://t.cn/R2WJTyn<br><img src="http://ww3.sinaimg.cn/large/d4050bc4jw1etyfe0qrfmj20c70fdjrt.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3863291816543870" target="freeweibo-mirror">#7•10律师劫#续【截至7月11号凌晨2点，共计34名律师…</a>
 </h2>
