@@ -66,7 +66,7 @@
 </h2>
 <p>//@肖永泉: 说明启蒙的力量越来越大，前仆后继，体系感受到的压力越来越大。<br><br>RE: 今晚心情很沉重,看微博,全国不少律师被抓,这是为什么?</p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3863223507417556" target="freeweibo-mirror">//@白发萧萧法律人: 再加这几位：广东隋牧青律师，河北李威…</a>
 </h2>
@@ -102,13 +102,13 @@
 </h2>
 <p>SPAM 许愿共产党这个政府能够在今年倒台。</p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3863198137005172" target="freeweibo-mirror">SPAM 共产党真是把华族的素质拉底了不知道多少个层次。</a>
 </h2>
 <p>SPAM 共产党真是把华族的素质拉底了不知道多少个层次。</p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3863193326126469" target="freeweibo-mirror">SPAM ???????????</a>
 </h2>
