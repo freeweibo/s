@@ -108,7 +108,7 @@
 </h2>
 <p>@沈勇平17 整理的名单，应该有遗漏，速转！[话筒]<br><img src="http://ww2.sinaimg.cn/large/0069kyRsgw1ety8halohxj30c81dq778.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3863231057474770" target="freeweibo-mirror">门外有客，我没让进。委托书在我哥游忠洪13709405701…</a>
 </h2>
