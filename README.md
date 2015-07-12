@@ -78,7 +78,7 @@
 </h2>
 <p>不眠夜 //@陈以轩律师:关注他们就是关注自己[嘻嘻]//@黄思敏律师:Repost<br><br>RE: #7•10律师劫#续【截至7月11号凌晨2点，共计34名律师及律所人员被带走/失联/约谈/要求约谈/传唤/限制人身自由】。杨名跨评：这是中国律师注定要担受的历史责任，这是盛世中国加冕于中国律师的时代荣光，该来的终究要来，各位同仁当坦然面对。<br><img src="http://ww3.sinaimg.cn/large/005BvIoZjw1etydyv87p6j30i00qodk8.jpg"></p>
 <p>
-	<small> ============== 1天前</small>
+	<small> ============== 2天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3863306098256137" target="freeweibo-mirror">庆安之后又被抓？这是什么节奏？[怒] //@平凡的susie…</a>
 </h2>
