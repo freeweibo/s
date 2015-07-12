@@ -24,7 +24,7 @@
 </h2>
 <p>SPAM 中华律协今天加班。</p>
 <p>
-	<small> ============== 1天前</small>
+	<small> ============== 2天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3863339887470071" target="freeweibo-mirror">//@去V的刘建锋: //@崔小平律师://@荣剑2001:…</a>
 </h2>
