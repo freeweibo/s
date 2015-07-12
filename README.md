@@ -114,7 +114,7 @@
 </h2>
 <p>门外有客，我没让进。委托书在我哥游忠洪13709405701，13002317068那里，我坚信我无罪，你们也要坚信！我深爱着这个国家和这片土地上的人，我所做的，无非是想让这个国家和百姓生活得好一些。<br><img src="http://ww4.sinaimg.cn/large/49e990e7jw1ety72ifw1uj20m80ezglk.jpg"></p>
 <p>
-	<small> ============== 1天前</small>
+	<small> ============== 2天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3863228914674280" target="freeweibo-mirror">//@肖永泉: 说明启蒙的力量越来越大，前仆后继，体系感受到…</a>
 </h2>
