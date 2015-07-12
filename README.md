@@ -132,7 +132,7 @@
 </h2>
 <p>今晚心情很沉重,看微博,全国不少律师被抓,这是为什么?</p>
 <p>
-	<small> ============== 1天前</small>
+	<small> ============== 2天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3863216021217619" target="freeweibo-mirror">//@周难的微博: //@阿姜-aa: //@少康006: …</a>
 </h2>
