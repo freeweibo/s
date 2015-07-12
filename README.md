@@ -36,7 +36,7 @@
 </h2>
 <p>SPAM 难道这是传说中的一网打尽！？</p>
 <p>
-	<small> ============== 1天前</small>
+	<small> ============== 2天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3863328339930580" target="freeweibo-mirror">//@中华公知精神病总院:希望这次抓的彻底点！[心]</a>
 </h2>
