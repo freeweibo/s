@@ -66,13 +66,13 @@
 </h2>
 <p>呵呵。 //@石扉客2014:还是咱们西北人民实在，要不咱们也看不到这些栩栩如生的细节啊<br><br>RE: 【王岐山陕西调研 当地公安拦截上访者】中共中央政治局常委、中纪委书记王岐山上周到陕西省榆林市调研三天时，当地公安拦截了116名上访者。当地官媒将榆林市公安局动用警力与保安工作等细节公诸于世，结果文章在网上被删除。 http://t.cn/RLGiNFO<br><img src="http://ww2.sinaimg.cn/large/6298156bgw1eu0vooa54lj20go0b4gmz.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3864107835428762" target="freeweibo-mirror">//@老徐时评: //@我生有幸c：高层又不是傻子，怎么可能…</a>
 </h2>
 <p>//@老徐时评: //@我生有幸c：高层又不是傻子，怎么可能不知道？如果一件事儿容易搞了，早搞了，关键是牵扯的利益网太大，你懂得的。那些群众怎么知道他的路线的，我很好奇。<br><br>RE: 【王岐山陕西调研 当地公安拦截上访者】中共中央政治局常委、中纪委书记王岐山上周到陕西省榆林市调研三天时，当地公安拦截了116名上访者。当地官媒将榆林市公安局动用警力与保安工作等细节公诸于世，结果文章在网上被删除。 http://t.cn/RLGiNFO<br><img src="http://ww2.sinaimg.cn/large/6298156bgw1eu0vooa54lj20go0b4gmz.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3864107348742766" target="freeweibo-mirror">SPAM 【#昆明笑话#】吃菌中毒这事。因为隔夜的菌必须拿回…</a>
 </h2>
@@ -114,7 +114,7 @@
 </h2>
 <p>【王岐山陕西调研 当地公安拦截上访者】中共中央政治局常委、中纪委书记王岐山上周到陕西省榆林市调研三天时，当地公安拦截了116名上访者。当地官媒将榆林市公安局动用警力与保安工作等细节公诸于世，结果文章在网上被删除。 http://t.cn/RLGiNFO<br><img src="http://ww2.sinaimg.cn/large/6298156bgw1eu0vooa54lj20go0b4gmz.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3864064663235458" target="freeweibo-mirror">回复@寻找辉腾:[哈哈]别信哥，拉黑哥 //@寻找辉腾:你觉…</a>
 </h2>
@@ -126,13 +126,13 @@
 </h2>
 <p>//@白发萧萧小律师:转发微博<br><br>RE: 据我所知，维权律师基本上是为穷人打官司，代理费很少，有时还自己贴钱，大都过着清贫的日子，抓这些人，真是伤天害理。</p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3864062473671829" target="freeweibo-mirror">【实际人数已超】截至2015年7月12日晚22点，共计106…</a>
 </h2>
 <p>【实际人数已超】截至2015年7月12日晚22点，共计106名律师/律所人员/维权人士被刑拘/失联/约谈/传唤<br><img src="http://ww2.sinaimg.cn/large/d4050bc4jw1eu0uk1fbxoj20c82uy48w.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3864059772864268" target="freeweibo-mirror">//@午后的水妖: //@少女花影: //@阿花的伊萨卡岛:…</a>
 </h2>
