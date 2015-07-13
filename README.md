@@ -26,6 +26,12 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3864187430755985" target="freeweibo-mirror">两年多来，某人一面鼓吹不放水，不搞大水漫灌，搞精准调控、定向…</a>
+</h2>
+<p>两年多来，某人一面鼓吹不放水，不搞大水漫灌，搞精准调控、定向调控，切断了实体经济的资金血脉，一面又放纵股市投机，对投机大鳄提供资金支持。等股市崩盘、大鳄赚足、小散怨声载道后，先是视而不见，继而惊慌失措，一个劲地往股市里灌水注资。中国几十年攒下的财富，都快要被他败光了。</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3864175434779958" target="freeweibo-mirror">SPAM  //@陈茂来-:强烈抗议！</a>
 </h2>
 <p>SPAM  //@陈茂来-:强烈抗议！<br><br>RE: 美国人又干涉中国内政了。 http://t.cn/R2WJrAQ<br><img src="http://ww2.sinaimg.cn/large/53e839d2jw1eu170gl1atj20bw0piwhz.jpg"></p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3864062750823388" target="freeweibo-mirror">//@白发萧萧小律师:转发微博</a>
 </h2>
 <p>//@白发萧萧小律师:转发微博<br><br>RE: 据我所知，维权律师基本上是为穷人打官司，代理费很少，有时还自己贴钱，大都过着清贫的日子，抓这些人，真是伤天害理。</p>
-<p>
-	<small> ============== 10小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3864062473671829" target="freeweibo-mirror">【实际人数已超】截至2015年7月12日晚22点，共计106…</a>
-</h2>
-<p>【实际人数已超】截至2015年7月12日晚22点，共计106名律师/律所人员/维权人士被刑拘/失联/约谈/传唤<br><img src="http://ww2.sinaimg.cn/large/d4050bc4jw1eu0uk1fbxoj20c82uy48w.jpg"></p>
 <p>
 	<small> ============== 10小时前</small>
 </p>
