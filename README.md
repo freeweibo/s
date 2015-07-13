@@ -20,6 +20,18 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3864292829358321" target="freeweibo-mirror">说到点子上了//@塔列郎:这都是历史上狂信者辈出的地方，以前…</a>
+</h2>
+<p>说到点子上了//@塔列郎:这都是历史上狂信者辈出的地方，以前是苏菲派的如今都是瓦哈比派的<br><br>RE: 请大家注意一个细节，被活捉的女暴徒，籍贯是和田地区洛浦县。考虑到他忙的习惯，被击毙的三人应该也是洛浦县的。我前几天说过，和田地区有三个麻烦地方，分别是皮山，墨玉，洛浦，简称皮墨洛。有兴趣的朋友可以使用baidu一下这些地名+那个词<br><img src="http://ww1.sinaimg.cn/large/6272fab9jw1eu1knnod58j20d70hsac6.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3864291424049716" target="freeweibo-mirror">SPAM 【新疆三地】三个地名不算太好记。</a>
+</h2>
+<p>SPAM 【新疆三地】三个地名不算太好记。<br><br>RE: 请大家注意一个细节，被活捉的女暴徒，籍贯是和田地区洛浦县。考虑到他忙的习惯，被击毙的三人应该也是洛浦县的。我前几天说过，和田地区有三个麻烦地方，分别是皮山，墨玉，洛浦，简称皮墨洛。有兴趣的朋友可以使用baidu一下这些地名+那个词<br><img src="http://ww1.sinaimg.cn/large/6272fab9jw1eu1knnod58j20d70hsac6.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3864270728954954" target="freeweibo-mirror">赞，快些消灭共党赤匪//@美国的精神:[赞]//@蔡哥64:…</a>
 </h2>
 <p>赞，快些消灭共党赤匪//@美国的精神:[赞]//@蔡哥64: …//@网易绘春:/@aribaba: 很清楚了，阻碍统一的正是意识形态，如果从民族利益出发，就应开放D禁，让红蓝绿一起竞争。//@不开学好吗: [赞] //@花布二扯没:[赞]//@青山仍妩媚://@假装-回头: //@公正善良: //@麒哥归来:说得对！</p>
@@ -42,7 +54,7 @@
 </h2>
 <p>不管这些是不是希拉里说的话，一针见血[赞]//@杜芝富:转发微博</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3864245818735224" target="freeweibo-mirror">SPAM 真的吗</a>
 </h2>
@@ -127,18 +139,6 @@
 <p>我发表了文章 http://t.cn/RLqvfRc</p>
 <p>
 	<small> ============== 7小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3864202857110872" target="freeweibo-mirror">SPAM //@章文的文章: 看过便不会忘记。</a>
-</h2>
-<p>SPAM //@章文的文章: 看过便不会忘记。<br><br>RE: 我预计，这张图片将载入人类文明的史册。<br><img src="http://ww4.sinaimg.cn/large/41693645jw1eu19an8hfaj20k00k0gof.jpg"></p>
-<p>
-	<small> ============== 7小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3864200084926372" target="freeweibo-mirror">//@-开心的雪:话真糙，理真对[doge]</a>
-</h2>
-<p>//@-开心的雪:话真糙，理真对[doge]<br><br>RE: 律师们为了钱财帮上访人员。我操你们2奶的小逼儿啊！诬蔑也要讲点水平吧。你妈的大逼的，许多律师帮上访人员办案，基本是搭钱。你们这帮王八蛋操的！我操你们妈的大逼乎塌乎塌！</p>
-<p>
-	<small> ============== 8小时前</small>
 </p>
 <table>
     <tr>
