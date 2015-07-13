@@ -32,6 +32,12 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3864229461326139" target="freeweibo-mirror">今日下午，沈阳中街，突发新疆暴恐事件</a>
+</h2>
+<p>今日下午，沈阳中街，突发新疆暴恐事件<br><img src="http://ww3.sinaimg.cn/large/7896d879jw1eu1dq3f2h5j20f00qo40e.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3864210494529898" target="freeweibo-mirror">任何宗教都得遵守世俗法律//@新疆王建江: 基督教//@罗亚…</a>
 </h2>
 <p>任何宗教都得遵守世俗法律//@新疆王建江: 基督教//@罗亚蒙:#亚蒙看法# 我知道浙江“拆违”力度很大，如果建设之初申请办理了用地、规划、建设行政许可手续，就不会随便被拆了。//@金华教会小孩: 金华城区基督教会为了十字架不被强拆已经守护了一个多月，@自命不凡的建筑师 @罗亚蒙//@徐昕:火烧十字架？<br><br>RE: 狼烟四起，你看到了什么？<br><img src="http://ww3.sinaimg.cn/large/a9c7e7a9gw1eu15r7sxtmj20vk0vkq7v.jpg"></p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3864107835428762" target="freeweibo-mirror">//@老徐时评: //@我生有幸c：高层又不是傻子，怎么可能…</a>
 </h2>
 <p>//@老徐时评: //@我生有幸c：高层又不是傻子，怎么可能不知道？如果一件事儿容易搞了，早搞了，关键是牵扯的利益网太大，你懂得的。那些群众怎么知道他的路线的，我很好奇。<br><br>RE: 【王岐山陕西调研 当地公安拦截上访者】中共中央政治局常委、中纪委书记王岐山上周到陕西省榆林市调研三天时，当地公安拦截了116名上访者。当地官媒将榆林市公安局动用警力与保安工作等细节公诸于世，结果文章在网上被删除。 http://t.cn/RLGiNFO<br><img src="http://ww2.sinaimg.cn/large/6298156bgw1eu0vooa54lj20go0b4gmz.jpg"></p>
-<p>
-	<small> ============== 10小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3864107348742766" target="freeweibo-mirror">SPAM 【#昆明笑话#】吃菌中毒这事。因为隔夜的菌必须拿回…</a>
-</h2>
-<p>SPAM 【#昆明笑话#】吃菌中毒这事。因为隔夜的菌必须拿回锅里最好再爆炒一次才能吃。用微波炉转。即使很热了。但是会中毒。我朋友和他妈妈吵架。他妈妈就没帮他弄。自己随便热了下。吃了中毒。到医院指着白墙说【妈。你咋个放小兵张嘎。不好看。换台】。。。。。转[笑cry][笑cry][笑cry]<br><img src="http://ww1.sinaimg.cn/large/6a8bd5d1gw1eu0zp3fkxpj20d20g9q5i.jpg"></p>
 <p>
 	<small> ============== 10小时前</small>
 </p>
