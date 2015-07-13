@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3864249590040172" target="freeweibo-mirror">SPAM //@兔子老愚: 轉發微博</a>
+</h2>
+<p>SPAM //@兔子老愚: 轉發微博</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3864246113268322" target="freeweibo-mirror">不管这些是不是希拉里说的话，一针见血[赞]//@杜芝富:转发…</a>
 </h2>
 <p>不管这些是不是希拉里说的话，一针见血[赞]//@杜芝富:转发微博</p>
@@ -48,7 +54,7 @@
 </h2>
 <p>今日下午，沈阳中街，突发新疆暴恐事件<br><img src="http://ww3.sinaimg.cn/large/7896d879jw1eu1dq3f2h5j20f00qo40e.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3864210494529898" target="freeweibo-mirror">任何宗教都得遵守世俗法律//@新疆王建江: 基督教//@罗亚…</a>
 </h2>
@@ -133,12 +139,6 @@
 <p>斯律说<br><img src="http://ww1.sinaimg.cn/large/550c3f4ajw1eu13dw6n83j20hs320h2o.jpg"></p>
 <p>
 	<small> ============== 8小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3864115338380647" target="freeweibo-mirror">SPAM 【决定人生成败四点】一是起点。起点高不一定成就高，…</a>
-</h2>
-<p>SPAM 【决定人生成败四点】一是起点。起点高不一定成就高，起点低不一定境界低。二是自身。打铁还靠本身硬，自强才能立于不败之地。三是选择。人生不是赢在起点，而是赢在转折点。不同的选择成就不同的人生。四是帮助。高人指点贵人相助，家人支持，朋友照应都是成功条件，前提是自己努力#黄子韬正式回归#<br><img src="http://ww3.sinaimg.cn/large/98c1610bjw1eu10l0aohsj20c8099gmd.jpg"></p>
-<p>
-	<small> ============== 10小时前</small>
 </p>
 <table>
     <tr>
