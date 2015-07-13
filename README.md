@@ -80,6 +80,12 @@
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3864227733794790" target="freeweibo-mirror">沈阳中街枪战#沈阳中街枪战#大家小心出行  封锁信息只会引起…</a>
+</h2>
+<p>沈阳中街枪战#沈阳中街枪战#大家小心出行  封锁信息只会引起更大的恐慌 做好安保才是最根本的最重要的最急需的 http://t.cn/R2WxKET<br><img src="http://ww1.sinaimg.cn/large/005IMgsbjw1eu1dgvj0okj30f00qo75y.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3864222675236848" target="freeweibo-mirror">SPAM 啥也不说 别和谐我 注意安全 阿弥陀佛</a>
 </h2>
 <p>SPAM 啥也不说 别和谐我 注意安全 阿弥陀佛<br><img src="http://ww1.sinaimg.cn/large/4c208428jw1eu1cxytic2j20d70hsgnq.jpg"></p>
@@ -89,6 +95,12 @@
 	<a href="https://freeweibo.com/weibo/3864218371243779" target="freeweibo-mirror">SPAM @范忠信：这一系列针对律师的行动，有五个显著特征……</a>
 </h2>
 <p>SPAM @范忠信：这一系列针对律师的行动，有五个显著特征……大规模销号、删贴、禁言，对所有质疑运动式整肃律师的言论厉行禁止，同时组织网评员围辱咒骂所有发文质疑的人士，尤其是律师和学者……我认为这已经不是正常执法行动，已经是一场以律师为斗争对象的政治整肃运动。http://t.cn/RLq7U6E</p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3864215691211756" target="freeweibo-mirror">沈阳中街据说发生枪战，暴徒砍人事件，不知道是不是真的啊，好可…</a>
+</h2>
+<p>沈阳中街据说发生枪战，暴徒砍人事件，不知道是不是真的啊，好可怕<br><img src="http://ww2.sinaimg.cn/large/005FgupMjw1eu1c5436r9j30db0hsmzy.jpg"></p>
 <p>
 	<small> ============== 4小时前</small>
 </p><h2>
@@ -127,18 +139,6 @@
 <p>我预计，这张图片将载入人类文明的史册。<br><img src="http://ww4.sinaimg.cn/large/41693645jw1eu19an8hfaj20k00k0gof.jpg"></p>
 <p>
 	<small> ============== 6小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3864187430755985" target="freeweibo-mirror">两年多来，某人一面鼓吹不放水，不搞大水漫灌，搞精准调控、定向…</a>
-</h2>
-<p>两年多来，某人一面鼓吹不放水，不搞大水漫灌，搞精准调控、定向调控，切断了实体经济的资金血脉，一面又放纵股市投机，对投机大鳄提供资金支持。等股市崩盘、大鳄赚足、小散怨声载道后，先是视而不见，继而惊慌失措，一个劲地往股市里灌水注资。中国几十年攒下的财富，都快要被他败光了。</p>
-<p>
-	<small> ============== 6小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3864175434779958" target="freeweibo-mirror">SPAM  //@陈茂来-:强烈抗议！</a>
-</h2>
-<p>SPAM  //@陈茂来-:强烈抗议！<br><br>RE: 美国人又干涉中国内政了。 http://t.cn/R2WJrAQ<br><img src="http://ww2.sinaimg.cn/large/53e839d2jw1eu170gl1atj20bw0piwhz.jpg"></p>
-<p>
-	<small> ============== 7小时前</small>
 </p>
 <table>
     <tr>
