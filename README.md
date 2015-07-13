@@ -90,7 +90,7 @@
 </h2>
 <p>今日下午，沈阳中街，突发新疆暴恐事件<br><img src="http://ww3.sinaimg.cn/large/7896d879jw1eu1dq3f2h5j20f00qo40e.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3864227733794790" target="freeweibo-mirror">沈阳中街枪战#沈阳中街枪战#大家小心出行  封锁信息只会引起…</a>
 </h2>
