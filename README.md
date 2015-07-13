@@ -48,7 +48,7 @@
 </h2>
 <p>文革小将再现！//@朱渠律师://@宁清平律师:转发微博</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3864239720729214" target="freeweibo-mirror">SPAM //@袁裕来律师: 我不敢，这些人上帝都不怕。//…</a>
 </h2>
@@ -96,7 +96,7 @@
 </h2>
 <p>任何宗教都得遵守世俗法律//@新疆王建江: 基督教//@罗亚蒙:#亚蒙看法# 我知道浙江“拆违”力度很大，如果建设之初申请办理了用地、规划、建设行政许可手续，就不会随便被拆了。//@金华教会小孩: 金华城区基督教会为了十字架不被强拆已经守护了一个多月，@自命不凡的建筑师 @罗亚蒙//@徐昕:火烧十字架？<br><br>RE: 狼烟四起，你看到了什么？<br><img src="http://ww3.sinaimg.cn/large/a9c7e7a9gw1eu15r7sxtmj20vk0vkq7v.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3864202857110872" target="freeweibo-mirror">SPAM //@章文的文章: 看过便不会忘记。</a>
 </h2>
