@@ -42,7 +42,7 @@
 </h2>
 <p>SPAM //@章文的文章: 看过便不会忘记。<br><br>RE: 我预计，这张图片将载入人类文明的史册。<br><img src="http://ww4.sinaimg.cn/large/41693645jw1eu19an8hfaj20k00k0gof.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3864200084926372" target="freeweibo-mirror">//@-开心的雪:话真糙，理真对[doge]</a>
 </h2>
@@ -72,7 +72,7 @@
 </h2>
 <p>两年多来，某人一面鼓吹不放水，不搞大水漫灌，搞精准调控、定向调控，切断了实体经济的资金血脉，一面又放纵股市投机，对投机大鳄提供资金支持。等股市崩盘、大鳄赚足、小散怨声载道后，先是视而不见，继而惊慌失措，一个劲地往股市里灌水注资。中国几十年攒下的财富，都快要被他败光了。</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3864175434779958" target="freeweibo-mirror">SPAM  //@陈茂来-:强烈抗议！</a>
 </h2>
