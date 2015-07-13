@@ -30,7 +30,7 @@
 </h2>
 <p>敌人没有枪，没有人质，没传说那么严重//@李明波Hamas: 呵呵，不知道是否还有人为恐怖分子洗地，那些因为同情恐怖分子而攻击我的人，是不是又假装没看到<br><br>RE: 今日下午，沈阳中街，突发新疆暴恐事件<br><img src="http://ww3.sinaimg.cn/large/7896d879jw1eu1dq3f2h5j20f00qo40e.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3864210494529898" target="freeweibo-mirror">任何宗教都得遵守世俗法律//@新疆王建江: 基督教//@罗亚…</a>
 </h2>
@@ -42,7 +42,7 @@
 </h2>
 <p>//@-开心的雪:话真糙，理真对[doge]<br><br>RE: 律师们为了钱财帮上访人员。我操你们2奶的小逼儿啊！诬蔑也要讲点水平吧。你妈的大逼的，许多律师帮上访人员办案，基本是搭钱。你们这帮王八蛋操的！我操你们妈的大逼乎塌乎塌！</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3864197203235084" target="freeweibo-mirror">律师们为了钱财帮上访人员。我操你们2奶的小逼儿啊！诬蔑也要讲…</a>
 </h2>
@@ -84,7 +84,7 @@
 </h2>
 <p>狼烟四起，你看到了什么？<br><img src="http://ww3.sinaimg.cn/large/a9c7e7a9gw1eu15r7sxtmj20vk0vkq7v.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3864149119516687" target="freeweibo-mirror">SPAM 丧钟！</a>
 </h2>
@@ -102,7 +102,7 @@
 </h2>
 <p>斯律说<br><img src="http://ww1.sinaimg.cn/large/550c3f4ajw1eu13dw6n83j20hs320h2o.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3864115338380647" target="freeweibo-mirror">SPAM 【决定人生成败四点】一是起点。起点高不一定成就高，…</a>
 </h2>
