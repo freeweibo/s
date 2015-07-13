@@ -26,9 +26,27 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3864294628739701" target="freeweibo-mirror">无需救济援助那样的贫困地区，携带武器含管制刀具的 警告后不听…</a>
+</h2>
+<p>无需救济援助那样的贫困地区，携带武器含管制刀具的 警告后不听就击毙。 //@李明波Hamas:说到点子上了//@塔列郎:这都是历史上狂信者辈出的地方，以前是苏菲派的如今都是瓦哈比派的<br><br>RE: 请大家注意一个细节，被活捉的女暴徒，籍贯是和田地区洛浦县。考虑到他忙的习惯，被击毙的三人应该也是洛浦县的。我前几天说过，和田地区有三个麻烦地方，分别是皮山，墨玉，洛浦，简称皮墨洛。有兴趣的朋友可以使用baidu一下这些地名+那个词<br><img src="http://ww1.sinaimg.cn/large/6272fab9jw1eu1knnod58j20d70hsac6.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3864294154755220" target="freeweibo-mirror">SPAM //@博联社马晓霖:【新疆三地】三个地名不算太好记…</a>
+</h2>
+<p>SPAM //@博联社马晓霖:【新疆三地】三个地名不算太好记。<br><br>RE: 请大家注意一个细节，被活捉的女暴徒，籍贯是和田地区洛浦县。考虑到他忙的习惯，被击毙的三人应该也是洛浦县的。我前几天说过，和田地区有三个麻烦地方，分别是皮山，墨玉，洛浦，简称皮墨洛。有兴趣的朋友可以使用baidu一下这些地名+那个词<br><img src="http://ww1.sinaimg.cn/large/6272fab9jw1eu1knnod58j20d70hsac6.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3864292829358321" target="freeweibo-mirror">说到点子上了//@塔列郎:这都是历史上狂信者辈出的地方，以前…</a>
 </h2>
 <p>说到点子上了//@塔列郎:这都是历史上狂信者辈出的地方，以前是苏菲派的如今都是瓦哈比派的<br><br>RE: 请大家注意一个细节，被活捉的女暴徒，籍贯是和田地区洛浦县。考虑到他忙的习惯，被击毙的三人应该也是洛浦县的。我前几天说过，和田地区有三个麻烦地方，分别是皮山，墨玉，洛浦，简称皮墨洛。有兴趣的朋友可以使用baidu一下这些地名+那个词<br><img src="http://ww1.sinaimg.cn/large/6272fab9jw1eu1knnod58j20d70hsac6.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3864292409533536" target="freeweibo-mirror">这都是历史上狂信者辈出的地方，以前是苏菲派的如今都是瓦哈比派…</a>
+</h2>
+<p>这都是历史上狂信者辈出的地方，以前是苏菲派的如今都是瓦哈比派的<br><br>RE: 请大家注意一个细节，被活捉的女暴徒，籍贯是和田地区洛浦县。考虑到他忙的习惯，被击毙的三人应该也是洛浦县的。我前几天说过，和田地区有三个麻烦地方，分别是皮山，墨玉，洛浦，简称皮墨洛。有兴趣的朋友可以使用baidu一下这些地名+那个词<br><img src="http://ww1.sinaimg.cn/large/6272fab9jw1eu1knnod58j20d70hsac6.jpg"></p>
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
@@ -90,13 +108,13 @@
 </h2>
 <p>SPAM //@袁裕来律师: 我不敢，这些人上帝都不怕。//@袁国宝:老本家木有上去制止？<br><br>RE: 我预计，这张图片将载入人类文明的史册。<br><img src="http://ww4.sinaimg.cn/large/41693645jw1eu19an8hfaj20k00k0gof.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3864239334602287" target="freeweibo-mirror">微博，就是现实的实况。</a>
 </h2>
 <p>微博，就是现实的实况。<br><br>RE: 沈阳中街据说发生枪战，暴徒砍人事件，不知道是不是真的啊，好可怕<br><img src="http://ww2.sinaimg.cn/large/005FgupMjw1eu1c5436r9j30db0hsmzy.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3864235727963525" target="freeweibo-mirror">SPAM 消防演习？</a>
 </h2>
@@ -121,24 +139,6 @@
 <p>沈阳中街枪战#沈阳中街枪战#大家小心出行  封锁信息只会引起更大的恐慌 做好安保才是最根本的最重要的最急需的 http://t.cn/R2WxKET<br><img src="http://ww1.sinaimg.cn/large/005IMgsbjw1eu1dgvj0okj30f00qo75y.jpg"></p>
 <p>
 	<small> ============== 6小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3864222675236848" target="freeweibo-mirror">SPAM 啥也不说 别和谐我 注意安全 阿弥陀佛</a>
-</h2>
-<p>SPAM 啥也不说 别和谐我 注意安全 阿弥陀佛<br><img src="http://ww1.sinaimg.cn/large/4c208428jw1eu1cxytic2j20d70hsgnq.jpg"></p>
-<p>
-	<small> ============== 7小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3864218371243779" target="freeweibo-mirror">SPAM @范忠信：这一系列针对律师的行动，有五个显著特征……</a>
-</h2>
-<p>SPAM @范忠信：这一系列针对律师的行动，有五个显著特征……大规模销号、删贴、禁言，对所有质疑运动式整肃律师的言论厉行禁止，同时组织网评员围辱咒骂所有发文质疑的人士，尤其是律师和学者……我认为这已经不是正常执法行动，已经是一场以律师为斗争对象的政治整肃运动。http://t.cn/RLq7U6E</p>
-<p>
-	<small> ============== 7小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3864215691211756" target="freeweibo-mirror">沈阳中街据说发生枪战，暴徒砍人事件，不知道是不是真的啊，好可…</a>
-</h2>
-<p>沈阳中街据说发生枪战，暴徒砍人事件，不知道是不是真的啊，好可怕<br><img src="http://ww2.sinaimg.cn/large/005FgupMjw1eu1c5436r9j30db0hsmzy.jpg"></p>
-<p>
-	<small> ============== 7小时前</small>
 </p>
 <table>
     <tr>
