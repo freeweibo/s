@@ -66,7 +66,7 @@
 </h2>
 <p>请大家注意一个细节，被活捉的女暴徒，籍贯是和田地区洛浦县。考虑到他忙的习惯，被击毙的三人应该也是洛浦县的。我前几天说过，和田地区有三个麻烦地方，分别是皮山，墨玉，洛浦，简称皮墨洛。有兴趣的朋友可以使用baidu一下这些地名+那个词<br><img src="http://ww1.sinaimg.cn/large/6272fab9jw1eu1knnod58j20d70hsac6.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3864277566355134" target="freeweibo-mirror">北京市公安局昌平分局傍晚抓走阿苏卫垃圾填埋场周边村民夏磊和夏…</a>
 </h2>
@@ -102,7 +102,7 @@
 </h2>
 <p>SPAM 真的吗<br><br>RE: 沈阳中街枪战#沈阳中街枪战#大家小心出行  封锁信息只会引起更大的恐慌 做好安保才是最根本的最重要的最急需的 http://t.cn/R2WxKET<br><img src="http://ww1.sinaimg.cn/large/005IMgsbjw1eu1dgvj0okj30f00qo75y.jpg"></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3864243281841863" target="freeweibo-mirror">SPAM //@黄剑波AOC: 何光沪老师新开的微博。</a>
 </h2>
@@ -138,7 +138,7 @@
 </h2>
 <p>敌人没有枪，没有人质，没传说那么严重//@李明波Hamas: 呵呵，不知道是否还有人为恐怖分子洗地，那些因为同情恐怖分子而攻击我的人，是不是又假装没看到<br><br>RE: 今日下午，沈阳中街，突发新疆暴恐事件<br><img src="http://ww3.sinaimg.cn/large/7896d879jw1eu1dq3f2h5j20f00qo40e.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p>
 <table>
     <tr>
