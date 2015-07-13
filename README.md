@@ -48,7 +48,7 @@
 </h2>
 <p>SPAM 丧钟！<br><br>RE: 斯律说<br><img src="http://ww1.sinaimg.cn/large/550c3f4ajw1eu13dw6n83j20hs320h2o.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3864146854300818" target="freeweibo-mirror">//@孟庆德微博二代:转发微博</a>
 </h2>
