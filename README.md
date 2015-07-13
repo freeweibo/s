@@ -20,11 +20,23 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3864246113268322" target="freeweibo-mirror">不管这些是不是希拉里说的话，一针见血[赞]//@杜芝富:转发…</a>
+</h2>
+<p>不管这些是不是希拉里说的话，一针见血[赞]//@杜芝富:转发微博</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3864239720729214" target="freeweibo-mirror">SPAM //@袁裕来律师: 我不敢，这些人上帝都不怕。//…</a>
 </h2>
 <p>SPAM //@袁裕来律师: 我不敢，这些人上帝都不怕。//@袁国宝:老本家木有上去制止？<br><br>RE: 我预计，这张图片将载入人类文明的史册。<br><img src="http://ww4.sinaimg.cn/large/41693645jw1eu19an8hfaj20k00k0gof.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3864235727963525" target="freeweibo-mirror">SPAM 消防演习？</a>
+</h2>
+<p>SPAM 消防演习？<br><br>RE: 我预计，这张图片将载入人类文明的史册。<br><img src="http://ww4.sinaimg.cn/large/41693645jw1eu19an8hfaj20k00k0gof.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3864230866610374" target="freeweibo-mirror">敌人没有枪，没有人质，没传说那么严重//@李明波Hamas:…</a>
 </h2>
@@ -108,7 +120,7 @@
 </h2>
 <p>SPAM 丧钟！<br><br>RE: 斯律说<br><img src="http://ww1.sinaimg.cn/large/550c3f4ajw1eu13dw6n83j20hs320h2o.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3864146854300818" target="freeweibo-mirror">//@孟庆德微博二代:转发微博</a>
 </h2>
@@ -125,18 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3864115338380647" target="freeweibo-mirror">SPAM 【决定人生成败四点】一是起点。起点高不一定成就高，…</a>
 </h2>
 <p>SPAM 【决定人生成败四点】一是起点。起点高不一定成就高，起点低不一定境界低。二是自身。打铁还靠本身硬，自强才能立于不败之地。三是选择。人生不是赢在起点，而是赢在转折点。不同的选择成就不同的人生。四是帮助。高人指点贵人相助，家人支持，朋友照应都是成功条件，前提是自己努力#黄子韬正式回归#<br><img src="http://ww3.sinaimg.cn/large/98c1610bjw1eu10l0aohsj20c8099gmd.jpg"></p>
-<p>
-	<small> ============== 10小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3864107977146487" target="freeweibo-mirror">呵呵。 //@石扉客2014:还是咱们西北人民实在，要不咱们…</a>
-</h2>
-<p>呵呵。 //@石扉客2014:还是咱们西北人民实在，要不咱们也看不到这些栩栩如生的细节啊<br><br>RE: 【王岐山陕西调研 当地公安拦截上访者】中共中央政治局常委、中纪委书记王岐山上周到陕西省榆林市调研三天时，当地公安拦截了116名上访者。当地官媒将榆林市公安局动用警力与保安工作等细节公诸于世，结果文章在网上被删除。 http://t.cn/RLGiNFO<br><img src="http://ww2.sinaimg.cn/large/6298156bgw1eu0vooa54lj20go0b4gmz.jpg"></p>
-<p>
-	<small> ============== 10小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3864107835428762" target="freeweibo-mirror">//@老徐时评: //@我生有幸c：高层又不是傻子，怎么可能…</a>
-</h2>
-<p>//@老徐时评: //@我生有幸c：高层又不是傻子，怎么可能不知道？如果一件事儿容易搞了，早搞了，关键是牵扯的利益网太大，你懂得的。那些群众怎么知道他的路线的，我很好奇。<br><br>RE: 【王岐山陕西调研 当地公安拦截上访者】中共中央政治局常委、中纪委书记王岐山上周到陕西省榆林市调研三天时，当地公安拦截了116名上访者。当地官媒将榆林市公安局动用警力与保安工作等细节公诸于世，结果文章在网上被删除。 http://t.cn/RLGiNFO<br><img src="http://ww2.sinaimg.cn/large/6298156bgw1eu0vooa54lj20go0b4gmz.jpg"></p>
 <p>
 	<small> ============== 10小时前</small>
 </p>
