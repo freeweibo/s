@@ -30,7 +30,7 @@
 </h2>
 <p>不管这些是不是希拉里说的话，一针见血[赞]//@杜芝富:转发微博</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3864239720729214" target="freeweibo-mirror">SPAM //@袁裕来律师: 我不敢，这些人上帝都不怕。//…</a>
 </h2>
@@ -53,6 +53,18 @@
 	<a href="https://freeweibo.com/weibo/3864229461326139" target="freeweibo-mirror">今日下午，沈阳中街，突发新疆暴恐事件</a>
 </h2>
 <p>今日下午，沈阳中街，突发新疆暴恐事件<br><img src="http://ww3.sinaimg.cn/large/7896d879jw1eu1dq3f2h5j20f00qo40e.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3864222675236848" target="freeweibo-mirror">SPAM 啥也不说 别和谐我 注意安全 阿弥陀佛</a>
+</h2>
+<p>SPAM 啥也不说 别和谐我 注意安全 阿弥陀佛<br><img src="http://ww1.sinaimg.cn/large/4c208428jw1eu1cxytic2j20d70hsgnq.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3864218371243779" target="freeweibo-mirror">SPAM @范忠信：这一系列针对律师的行动，有五个显著特征……</a>
+</h2>
+<p>SPAM @范忠信：这一系列针对律师的行动，有五个显著特征……大规模销号、删贴、禁言，对所有质疑运动式整肃律师的言论厉行禁止，同时组织网评员围辱咒骂所有发文质疑的人士，尤其是律师和学者……我认为这已经不是正常执法行动，已经是一场以律师为斗争对象的政治整肃运动。http://t.cn/RLq7U6E</p>
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
@@ -114,7 +126,7 @@
 </h2>
 <p>美国人又干涉中国内政了。 http://t.cn/R2WJrAQ<br><img src="http://ww2.sinaimg.cn/large/53e839d2jw1eu170gl1atj20bw0piwhz.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3864169747396868" target="freeweibo-mirror">狼烟四起，你看到了什么？</a>
 </h2>
@@ -127,18 +139,6 @@
 <p>SPAM 丧钟！<br><br>RE: 斯律说<br><img src="http://ww1.sinaimg.cn/large/550c3f4ajw1eu13dw6n83j20hs320h2o.jpg"></p>
 <p>
 	<small> ============== 8小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3864146854300818" target="freeweibo-mirror">//@孟庆德微博二代:转发微博</a>
-</h2>
-<p>//@孟庆德微博二代:转发微博<br><br>RE: 斯律说<br><img src="http://ww1.sinaimg.cn/large/550c3f4ajw1eu13dw6n83j20hs320h2o.jpg"></p>
-<p>
-	<small> ============== 8小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3864139350750811" target="freeweibo-mirror">斯律说</a>
-</h2>
-<p>斯律说<br><img src="http://ww1.sinaimg.cn/large/550c3f4ajw1eu13dw6n83j20hs320h2o.jpg"></p>
-<p>
-	<small> ============== 9小时前</small>
 </p>
 <table>
     <tr>
