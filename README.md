@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3864115338380647" target="freeweibo-mirror">SPAM 【决定人生成败四点】一是起点。起点高不一定成就高，…</a>
+</h2>
+<p>SPAM 【决定人生成败四点】一是起点。起点高不一定成就高，起点低不一定境界低。二是自身。打铁还靠本身硬，自强才能立于不败之地。三是选择。人生不是赢在起点，而是赢在转折点。不同的选择成就不同的人生。四是帮助。高人指点贵人相助，家人支持，朋友照应都是成功条件，前提是自己努力#黄子韬正式回归#<br><img src="http://ww3.sinaimg.cn/large/98c1610bjw1eu10l0aohsj20c8099gmd.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3864107977146487" target="freeweibo-mirror">呵呵。 //@石扉客2014:还是咱们西北人民实在，要不咱们…</a>
 </h2>
 <p>呵呵。 //@石扉客2014:还是咱们西北人民实在，要不咱们也看不到这些栩栩如生的细节啊<br><br>RE: 【王岐山陕西调研 当地公安拦截上访者】中共中央政治局常委、中纪委书记王岐山上周到陕西省榆林市调研三天时，当地公安拦截了116名上访者。当地官媒将榆林市公安局动用警力与保安工作等细节公诸于世，结果文章在网上被删除。 http://t.cn/RLGiNFO<br><img src="http://ww2.sinaimg.cn/large/6298156bgw1eu0vooa54lj20go0b4gmz.jpg"></p>
@@ -29,6 +35,12 @@
 	<a href="https://freeweibo.com/weibo/3864107835428762" target="freeweibo-mirror">//@老徐时评: //@我生有幸c：高层又不是傻子，怎么可能…</a>
 </h2>
 <p>//@老徐时评: //@我生有幸c：高层又不是傻子，怎么可能不知道？如果一件事儿容易搞了，早搞了，关键是牵扯的利益网太大，你懂得的。那些群众怎么知道他的路线的，我很好奇。<br><br>RE: 【王岐山陕西调研 当地公安拦截上访者】中共中央政治局常委、中纪委书记王岐山上周到陕西省榆林市调研三天时，当地公安拦截了116名上访者。当地官媒将榆林市公安局动用警力与保安工作等细节公诸于世，结果文章在网上被删除。 http://t.cn/RLGiNFO<br><img src="http://ww2.sinaimg.cn/large/6298156bgw1eu0vooa54lj20go0b4gmz.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3864107348742766" target="freeweibo-mirror">SPAM 【#昆明笑话#】吃菌中毒这事。因为隔夜的菌必须拿回…</a>
+</h2>
+<p>SPAM 【#昆明笑话#】吃菌中毒这事。因为隔夜的菌必须拿回锅里最好再爆炒一次才能吃。用微波炉转。即使很热了。但是会中毒。我朋友和他妈妈吵架。他妈妈就没帮他弄。自己随便热了下。吃了中毒。到医院指着白墙说【妈。你咋个放小兵张嘎。不好看。换台】。。。。。转[笑cry][笑cry][笑cry]<br><img src="http://ww1.sinaimg.cn/large/6a8bd5d1gw1eu0zp3fkxpj20d20g9q5i.jpg"></p>
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
@@ -59,6 +71,12 @@
 	<a href="https://freeweibo.com/weibo/3864082911999042" target="freeweibo-mirror">//@王小山:多。//@老糊涂猫: //@北京崔卫平://@…</a>
 </h2>
 <p>//@王小山:多。//@老糊涂猫: //@北京崔卫平://@义阳郡王李抱真:转发微博<br><br>RE: 【实际人数已超】截至2015年7月12日晚22点，共计106名律师/律所人员/维权人士被刑拘/失联/约谈/传唤<br><img src="http://ww2.sinaimg.cn/large/d4050bc4jw1eu0uk1fbxoj20c82uy48w.jpg"></p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3864078395574116" target="freeweibo-mirror">【王岐山陕西调研 当地公安拦截上访者】中共中央政治局常委、中…</a>
+</h2>
+<p>【王岐山陕西调研 当地公安拦截上访者】中共中央政治局常委、中纪委书记王岐山上周到陕西省榆林市调研三天时，当地公安拦截了116名上访者。当地官媒将榆林市公安局动用警力与保安工作等细节公诸于世，结果文章在网上被删除。 http://t.cn/RLGiNFO<br><img src="http://ww2.sinaimg.cn/large/6298156bgw1eu0vooa54lj20go0b4gmz.jpg"></p>
 <p>
 	<small> ============== 4小时前</small>
 </p><h2>
@@ -119,24 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3863946823549618" target="freeweibo-mirror">//@自由良知:转发微博</a>
 </h2>
 <p>//@自由良知:转发微博<br><br>RE: 转自：熊大<br><img src="http://ww1.sinaimg.cn/large/005Odpy3jw1eu0gheb7vbj30bu0fntbe.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3863946723154891" target="freeweibo-mirror">国家在收拾死磕派律师，我认为过分了。维护国家稳定没错，在狗警…</a>
-</h2>
-<p>国家在收拾死磕派律师，我认为过分了。维护国家稳定没错，在狗警察狗法院没有从良之前，消灭了他们的天敌，以后，狗警察狗法院更加嚣张了。靠死抠法律整治死磕派律师，却对警察法院亵渎法律视而不见，倒退，党之不幸</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3863946354036840" target="freeweibo-mirror">//@越来越恨蒋中正: //@自由良知:转发微博</a>
-</h2>
-<p>//@越来越恨蒋中正: //@自由良知:转发微博<br><br>RE: 转自：熊大<br><img src="http://ww1.sinaimg.cn/large/005Odpy3jw1eu0gheb7vbj30bu0fntbe.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3863931800026626" target="freeweibo-mirror">//@胡説罷刀://@一品泥人: //@浅酌低唱-V: 这次…</a>
-</h2>
-<p>//@胡説罷刀://@一品泥人: //@浅酌低唱-V: 这次，真的晚安。[困] //@清华郭27于华:[话筒]//@三教布衣AAA: //@浊酒秋月://@自由良知://@歪扯歪道: //@迈瑞joe三世: //@只配叫猪: 转发微博</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
