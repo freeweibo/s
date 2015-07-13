@@ -42,7 +42,7 @@
 </h2>
 <p>SPAM 【#昆明笑话#】吃菌中毒这事。因为隔夜的菌必须拿回锅里最好再爆炒一次才能吃。用微波炉转。即使很热了。但是会中毒。我朋友和他妈妈吵架。他妈妈就没帮他弄。自己随便热了下。吃了中毒。到医院指着白墙说【妈。你咋个放小兵张嘎。不好看。换台】。。。。。转[笑cry][笑cry][笑cry]<br><img src="http://ww1.sinaimg.cn/large/6a8bd5d1gw1eu0zp3fkxpj20d20g9q5i.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3864103888204253" target="freeweibo-mirror">SPAM 后发酵时间不够，这款马帮生砖茶干仓近十年，汤色已红…</a>
 </h2>
