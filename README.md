@@ -78,7 +78,7 @@
 </h2>
 <p>今日下午，沈阳中街，突发新疆暴恐事件<br><img src="http://ww3.sinaimg.cn/large/7896d879jw1eu1dq3f2h5j20f00qo40e.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3864227733794790" target="freeweibo-mirror">沈阳中街枪战#沈阳中街枪战#大家小心出行  封锁信息只会引起…</a>
 </h2>
@@ -110,6 +110,12 @@
 <p>
 	<small> ============== 5小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3864205054897106" target="freeweibo-mirror">我发表了文章 http://t.cn/RLqvfRc</a>
+</h2>
+<p>我发表了文章 http://t.cn/RLqvfRc</p>
+<p>
+	<small> ============== 5小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3864202857110872" target="freeweibo-mirror">SPAM //@章文的文章: 看过便不会忘记。</a>
 </h2>
 <p>SPAM //@章文的文章: 看过便不会忘记。<br><br>RE: 我预计，这张图片将载入人类文明的史册。<br><img src="http://ww4.sinaimg.cn/large/41693645jw1eu19an8hfaj20k00k0gof.jpg"></p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3864192853521544" target="freeweibo-mirror">回复@Sheldon殷明:确实如此。两年多来，财政的、货币的…</a>
 </h2>
 <p>回复@Sheldon殷明:确实如此。两年多来，财政的、货币的、行政的、中央地方的、国企私企的，所有的好牌，都快被他丢光了。再来个2008年那样的大危机，大就没法应付了。 //@Sheldon殷明:等王炸都扔光了 牌就真的没好的了<br><br>RE: 两年多来，某人一面鼓吹不放水，不搞大水漫灌，搞精准调控、定向调控，切断了实体经济的资金血脉，一面又放纵股市投机，对投机大鳄提供资金支持。等股市崩盘、大鳄赚足、小散怨声载道后，先是视而不见，继而惊慌失措，一个劲地往股市里灌水注资。中国几十年攒下的财富，都快要被他败光了。</p>
-<p>
-	<small> ============== 6小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3864191490645024" target="freeweibo-mirror">我预计，这张图片将载入人类文明的史册。</a>
-</h2>
-<p>我预计，这张图片将载入人类文明的史册。<br><img src="http://ww4.sinaimg.cn/large/41693645jw1eu19an8hfaj20k00k0gof.jpg"></p>
 <p>
 	<small> ============== 6小时前</small>
 </p>
