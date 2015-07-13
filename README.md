@@ -102,7 +102,7 @@
 </h2>
 <p>我预计，这张图片将载入人类文明的史册。<br><img src="http://ww4.sinaimg.cn/large/41693645jw1eu19an8hfaj20k00k0gof.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3864187430755985" target="freeweibo-mirror">两年多来，某人一面鼓吹不放水，不搞大水漫灌，搞精准调控、定向…</a>
 </h2>
