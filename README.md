@@ -26,6 +26,12 @@
 <p>
 	<small> ============== 1小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3864200084926372" target="freeweibo-mirror">//@-开心的雪:话真糙，理真对[doge]</a>
+</h2>
+<p>//@-开心的雪:话真糙，理真对[doge]<br><br>RE: 律师们为了钱财帮上访人员。我操你们2奶的小逼儿啊！诬蔑也要讲点水平吧。你妈的大逼的，许多律师帮上访人员办案，基本是搭钱。你们这帮王八蛋操的！我操你们妈的大逼乎塌乎塌！</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3864192853521544" target="freeweibo-mirror">回复@Sheldon殷明:确实如此。两年多来，财政的、货币的…</a>
 </h2>
 <p>回复@Sheldon殷明:确实如此。两年多来，财政的、货币的、行政的、中央地方的、国企私企的，所有的好牌，都快被他丢光了。再来个2008年那样的大危机，大就没法应付了。 //@Sheldon殷明:等王炸都扔光了 牌就真的没好的了<br><br>RE: 两年多来，某人一面鼓吹不放水，不搞大水漫灌，搞精准调控、定向调控，切断了实体经济的资金血脉，一面又放纵股市投机，对投机大鳄提供资金支持。等股市崩盘、大鳄赚足、小散怨声载道后，先是视而不见，继而惊慌失措，一个劲地往股市里灌水注资。中国几十年攒下的财富，都快要被他败光了。</p>
@@ -66,7 +72,7 @@
 </h2>
 <p>SPAM 丧钟！<br><br>RE: 斯律说<br><img src="http://ww1.sinaimg.cn/large/550c3f4ajw1eu13dw6n83j20hs320h2o.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3864146854300818" target="freeweibo-mirror">//@孟庆德微博二代:转发微博</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3864082911999042" target="freeweibo-mirror">//@王小山:多。//@老糊涂猫: //@北京崔卫平://@…</a>
 </h2>
 <p>//@王小山:多。//@老糊涂猫: //@北京崔卫平://@义阳郡王李抱真:转发微博<br><br>RE: 【实际人数已超】截至2015年7月12日晚22点，共计106名律师/律所人员/维权人士被刑拘/失联/约谈/传唤<br><img src="http://ww2.sinaimg.cn/large/d4050bc4jw1eu0uk1fbxoj20c82uy48w.jpg"></p>
-<p>
-	<small> ============== 10小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3864078395574116" target="freeweibo-mirror">【王岐山陕西调研 当地公安拦截上访者】中共中央政治局常委、中…</a>
-</h2>
-<p>【王岐山陕西调研 当地公安拦截上访者】中共中央政治局常委、中纪委书记王岐山上周到陕西省榆林市调研三天时，当地公安拦截了116名上访者。当地官媒将榆林市公安局动用警力与保安工作等细节公诸于世，结果文章在网上被删除。 http://t.cn/RLGiNFO<br><img src="http://ww2.sinaimg.cn/large/6298156bgw1eu0vooa54lj20go0b4gmz.jpg"></p>
 <p>
 	<small> ============== 10小时前</small>
 </p>
