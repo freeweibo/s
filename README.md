@@ -78,7 +78,7 @@
 </h2>
 <p>SPAM 消防演习？<br><br>RE: 我预计，这张图片将载入人类文明的史册。<br><img src="http://ww4.sinaimg.cn/large/41693645jw1eu19an8hfaj20k00k0gof.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3864230866610374" target="freeweibo-mirror">敌人没有枪，没有人质，没传说那么严重//@李明波Hamas:…</a>
 </h2>
@@ -126,7 +126,7 @@
 </h2>
 <p>我发表了文章 http://t.cn/RLqvfRc</p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3864202857110872" target="freeweibo-mirror">SPAM //@章文的文章: 看过便不会忘记。</a>
 </h2>
