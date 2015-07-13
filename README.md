@@ -108,7 +108,7 @@
 </h2>
 <p>SPAM //@黄剑波AOC: 何光沪老师新开的微博。<br><br>RE: 我发表了文章 http://t.cn/RLqvfRc</p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3864240547284353" target="freeweibo-mirror">文革小将再现！//@朱渠律师://@宁清平律师:转发微博</a>
 </h2>
