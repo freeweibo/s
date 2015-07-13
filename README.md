@@ -38,6 +38,12 @@
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3864202857110872" target="freeweibo-mirror">SPAM //@章文的文章: 看过便不会忘记。</a>
+</h2>
+<p>SPAM //@章文的文章: 看过便不会忘记。<br><br>RE: 我预计，这张图片将载入人类文明的史册。<br><img src="http://ww4.sinaimg.cn/large/41693645jw1eu19an8hfaj20k00k0gof.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3864200084926372" target="freeweibo-mirror">//@-开心的雪:话真糙，理真对[doge]</a>
 </h2>
 <p>//@-开心的雪:话真糙，理真对[doge]<br><br>RE: 律师们为了钱财帮上访人员。我操你们2奶的小逼儿啊！诬蔑也要讲点水平吧。你妈的大逼的，许多律师帮上访人员办案，基本是搭钱。你们这帮王八蛋操的！我操你们妈的大逼乎塌乎塌！</p>
@@ -53,6 +59,12 @@
 	<a href="https://freeweibo.com/weibo/3864192853521544" target="freeweibo-mirror">回复@Sheldon殷明:确实如此。两年多来，财政的、货币的…</a>
 </h2>
 <p>回复@Sheldon殷明:确实如此。两年多来，财政的、货币的、行政的、中央地方的、国企私企的，所有的好牌，都快被他丢光了。再来个2008年那样的大危机，大就没法应付了。 //@Sheldon殷明:等王炸都扔光了 牌就真的没好的了<br><br>RE: 两年多来，某人一面鼓吹不放水，不搞大水漫灌，搞精准调控、定向调控，切断了实体经济的资金血脉，一面又放纵股市投机，对投机大鳄提供资金支持。等股市崩盘、大鳄赚足、小散怨声载道后，先是视而不见，继而惊慌失措，一个劲地往股市里灌水注资。中国几十年攒下的财富，都快要被他败光了。</p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3864191490645024" target="freeweibo-mirror">我预计，这张图片将载入人类文明的史册。</a>
+</h2>
+<p>我预计，这张图片将载入人类文明的史册。<br><img src="http://ww4.sinaimg.cn/large/41693645jw1eu19an8hfaj20k00k0gof.jpg"></p>
 <p>
 	<small> ============== 4小时前</small>
 </p><h2>
@@ -78,7 +90,7 @@
 </h2>
 <p>美国人又干涉中国内政了。 http://t.cn/R2WJrAQ<br><img src="http://ww2.sinaimg.cn/large/53e839d2jw1eu170gl1atj20bw0piwhz.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3864169747396868" target="freeweibo-mirror">狼烟四起，你看到了什么？</a>
 </h2>
@@ -125,18 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3864107348742766" target="freeweibo-mirror">SPAM 【#昆明笑话#】吃菌中毒这事。因为隔夜的菌必须拿回…</a>
 </h2>
 <p>SPAM 【#昆明笑话#】吃菌中毒这事。因为隔夜的菌必须拿回锅里最好再爆炒一次才能吃。用微波炉转。即使很热了。但是会中毒。我朋友和他妈妈吵架。他妈妈就没帮他弄。自己随便热了下。吃了中毒。到医院指着白墙说【妈。你咋个放小兵张嘎。不好看。换台】。。。。。转[笑cry][笑cry][笑cry]<br><img src="http://ww1.sinaimg.cn/large/6a8bd5d1gw1eu0zp3fkxpj20d20g9q5i.jpg"></p>
-<p>
-	<small> ============== 10小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3864103888204253" target="freeweibo-mirror">SPAM 后发酵时间不够，这款马帮生砖茶干仓近十年，汤色已红…</a>
-</h2>
-<p>SPAM 后发酵时间不够，这款马帮生砖茶干仓近十年，汤色已红变，回甘很好。//@不粉苹果的苹果:为毛我一喝生普就会晕茶</p>
-<p>
-	<small> ============== 10小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3864097030524849" target="freeweibo-mirror">庆丰年间会取消律师制度吗？就像当年文革一样。//@暮怒雷: …</a>
-</h2>
-<p>庆丰年间会取消律师制度吗？就像当年文革一样。//@暮怒雷: //@早报网: 北京泽博律师事务所律师周泽向本报指出，这次事件确实让律师界感到震惊与不安。官方透过官媒散播不全面的控诉，这将造成很恶劣的后果，导致涉案人未来很难获得公正的审判。而最高人民法院在官方微博转发官媒文章，似为公安背书，</p>
 <p>
 	<small> ============== 10小时前</small>
 </p>
