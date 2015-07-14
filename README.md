@@ -30,7 +30,13 @@
 </h2>
 <p>“CCTV中学生频道通讯员 全国校园文学新苗奖获奖者 ”，谁在塑造这样的媒体精英？<br><br>RE: 狗日的@中国移动 、狗日的共产党、狗日的共产党的傀儡——国务院、全国人大、中纪委，老子不信，老子就是不信！有种宰了老子！尔等狗腿子，还如此猖狂，看是你们逼着吾等人民反你们。你们凭什么压着人民，而人民凭什么不能反你们？你们是人民的老子？就是老子，儿女也照样反！决不允许邪恶压制正义！<br><img src="http://ww2.sinaimg.cn/large/6d84a418gw1eu2ggv3v9wj20ur0b4wey.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3864656412487654" target="freeweibo-mirror">#优衣库视频#http://t.cn/RL5JrSd</a>
+</h2>
+<p>#优衣库视频#http://t.cn/RL5JrSd</p>
+<p>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3864652352029570" target="freeweibo-mirror">公然煽动叛乱了，”自由“到如此程度，坐看央视如何处理，坐看新…</a>
 </h2>
@@ -84,7 +90,7 @@
 </h2>
 <p>黄力群是全国人大信访局副局长离职来做律师的。看来，领导干部都经不起考验啊。报道为什么不给锋锐所其他律师说话机会呢？<br><br>RE: 黄力群、翟岩民等一进派出所，就招了，就出买了律师事务所老板周世锋？被刑讯逼供了吗？还是本来就是卧底？【公安部：揭开“维权”事件黑幕】http://t.cn/RLbljK2<br><img src="http://ww3.sinaimg.cn/large/4bc782b3jw1eu2n1sch69j20vk0hsqau.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3864624056777128" target="freeweibo-mirror">黄力群、翟岩民等一进派出所，就招了，就出买了律师事务所老板周…</a>
 </h2>
@@ -108,7 +114,7 @@
 </h2>
 <p>//@干卫东律师: //@徐昕://@昕静自然好://@任志强:如何面对？ //@薛健同学:这些真的是警察吗？我们到底该如何面对这个国家[悲伤] //@赵克罗:转<br><br>RE: 同胞们，歇歇吧！[悲伤][悲伤][悲伤] http://t.cn/RLGlt3W</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3864597763486733" target="freeweibo-mirror">他们为啥狂抓律师？因为以下三位都是律师。</a>
 </h2>
@@ -133,12 +139,6 @@
 <p>SPAM 土豪请你来自拍！任选一个范儿，po上你的靓图，说出美丽宣言，就有机会赢取土豪发的免费美钻哦！心动了？那就来#晒美范儿赢美钻#吧，跟随@U美人 晒出最美的自己！<br><img src="http://ww1.sinaimg.cn/large/9e14cb4agw1eu2iuhxm4dj20hs0nt0vd.jpg"></p>
 <p>
 	<small> ============== 6小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3864582231876138" target="freeweibo-mirror">//@记者-薛洪涛: //@假行僧老巩: 道德姐家也这样//…</a>
-</h2>
-<p>//@记者-薛洪涛: //@假行僧老巩: 道德姐家也这样//@郎哩个郎:原来他们都是家族在做官呀！</p>
-<p>
-	<small> ============== 7小时前</small>
 </p>
 <table>
     <tr>
