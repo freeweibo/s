@@ -66,7 +66,7 @@
 </h2>
 <p>SPAM  //@寒秋孤影-2018: //@居安徽:[哈哈] //@可可-cm:[哈哈] //@cm2a2:[哈哈]</p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3864390988457979" target="freeweibo-mirror">如果平西王胜了，上台一定会崇毛，张口闭口毛语录，学毛的手段压…</a>
 </h2>
