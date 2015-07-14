@@ -108,7 +108,7 @@
 </h2>
 <p>SPAM //@黄剑波AOC: 何光沪老师新开的微博。<br><br>RE: 我发表了文章 http://t.cn/RLqvfRc</p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3864240547284353" target="freeweibo-mirror">文革小将再现！//@朱渠律师://@宁清平律师:转发微博</a>
 </h2>
@@ -132,7 +132,7 @@
 </h2>
 <p>SPAM 消防演习？<br><br>RE: 我预计，这张图片将载入人类文明的史册。<br><img src="http://ww4.sinaimg.cn/large/41693645jw1eu19an8hfaj20k00k0gof.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3864230866610374" target="freeweibo-mirror">敌人没有枪，没有人质，没传说那么严重//@李明波Hamas:…</a>
 </h2>
