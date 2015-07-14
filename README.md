@@ -24,7 +24,7 @@
 </h2>
 <p>黄力群是全国人大信访局副局长离职来做律师的。看来，领导干部都经不起考验啊。报道为什么不给锋锐所其他律师说话机会呢？<br><br>RE: 黄力群、翟岩民等一进派出所，就招了，就出买了律师事务所老板周世锋？被刑讯逼供了吗？还是本来就是卧底？【公安部：揭开“维权”事件黑幕】http://t.cn/RLbljK2<br><img src="http://ww3.sinaimg.cn/large/4bc782b3jw1eu2n1sch69j20vk0hsqau.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3864624056777128" target="freeweibo-mirror">黄力群、翟岩民等一进派出所，就招了，就出买了律师事务所老板周…</a>
 </h2>
@@ -42,7 +42,7 @@
 </h2>
 <p>//@干卫东律师: //@徐昕://@昕静自然好://@任志强:如何面对？ //@薛健同学:这些真的是警察吗？我们到底该如何面对这个国家[悲伤] //@赵克罗:转<br><br>RE: 同胞们，歇歇吧！[悲伤][悲伤][悲伤] http://t.cn/RLGlt3W</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3864597763486733" target="freeweibo-mirror">他们为啥狂抓律师？因为以下三位都是律师。</a>
 </h2>
