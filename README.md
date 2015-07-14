@@ -102,7 +102,7 @@
 </h2>
 <p>不管这些是不是希拉里说的话，一针见血[赞]//@杜芝富:转发微博</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3864245818735224" target="freeweibo-mirror">SPAM 真的吗</a>
 </h2>
