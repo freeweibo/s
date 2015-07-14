@@ -44,6 +44,12 @@
 <p>
 	<small> ============== 4小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3864591660651960" target="freeweibo-mirror">//@隆裕太后:下手是否可以轻点？他们是父母，他们是你们的衣…</a>
+</h2>
+<p>//@隆裕太后:下手是否可以轻点？他们是父母，他们是你们的衣食父母！百姓动手打人，警察可以依法拘留，警察与百姓撕打在一起，这还是执法吗？警察不会连这点道理也不清楚 吧？//@任志强:如何面对？<br><br>RE: 同胞们，歇歇吧！[悲伤][悲伤][悲伤] http://t.cn/RLGlt3W</p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3864587441041322" target="freeweibo-mirror">SPAM 土豪请你来自拍！任选一个范儿，po上你的靓图，说出…</a>
 </h2>
 <p>SPAM 土豪请你来自拍！任选一个范儿，po上你的靓图，说出美丽宣言，就有机会赢取土豪发的免费美钻哦！心动了？那就来#晒美范儿赢美钻#吧，跟随@U美人 晒出最美的自己！<br><img src="http://ww1.sinaimg.cn/large/9e14cb4agw1eu2iuhxm4dj20hs0nt0vd.jpg"></p>
@@ -78,7 +84,7 @@
 </h2>
 <p>斯偉江：＂央视审判＂損害司法權威：似乎《宪法》将受更多的尊重，因为人大通过新决议，最高领导及各级领导都要向宪法宣誓了。我国《宪法》明确写着：任何公民，非经人民检察院批准或者决定或者...文字版>> http://t.cn/RLqETEG （新浪长微博>> http://t.cn/zOXAaic）<br><img src="http://ww3.sinaimg.cn/large/70b79576jw1eu27g3xybdj20c8159k0y.jpg"></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3864445245978753" target="freeweibo-mirror">[吃惊]//@公民王海滨: //@记者欧阳: [吃惊] //…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3864294628739701" target="freeweibo-mirror">无需救济援助那样的贫困地区，携带武器含管制刀具的 警告后不听…</a>
 </h2>
 <p>无需救济援助那样的贫困地区，携带武器含管制刀具的 警告后不听就击毙。 //@李明波Hamas:说到点子上了//@塔列郎:这都是历史上狂信者辈出的地方，以前是苏菲派的如今都是瓦哈比派的<br><br>RE: 请大家注意一个细节，被活捉的女暴徒，籍贯是和田地区洛浦县。考虑到他忙的习惯，被击毙的三人应该也是洛浦县的。我前几天说过，和田地区有三个麻烦地方，分别是皮山，墨玉，洛浦，简称皮墨洛。有兴趣的朋友可以使用baidu一下这些地名+那个词<br><img src="http://ww1.sinaimg.cn/large/6272fab9jw1eu1knnod58j20d70hsac6.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3864294154755220" target="freeweibo-mirror">SPAM //@博联社马晓霖:【新疆三地】三个地名不算太好记…</a>
-</h2>
-<p>SPAM //@博联社马晓霖:【新疆三地】三个地名不算太好记。<br><br>RE: 请大家注意一个细节，被活捉的女暴徒，籍贯是和田地区洛浦县。考虑到他忙的习惯，被击毙的三人应该也是洛浦县的。我前几天说过，和田地区有三个麻烦地方，分别是皮山，墨玉，洛浦，简称皮墨洛。有兴趣的朋友可以使用baidu一下这些地名+那个词<br><img src="http://ww1.sinaimg.cn/large/6272fab9jw1eu1knnod58j20d70hsac6.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
