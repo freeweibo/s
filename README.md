@@ -66,7 +66,7 @@
 </h2>
 <p>[酷]//@冰封侠回归: [作揖]//@周老老老老师://@流浪王子马文彬A://@手机用户2259597831://@自在天渊: //@大师兄微薄: //@老豆不炒熟21: //@不开学好吗:转发微博<br><br>RE: 他们为啥狂抓律师？因为以下三位都是律师。<br><img src="http://ww3.sinaimg.cn/large/005JwROQjw1eu2k16y9ikj30f80azgm2.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3864605489560059" target="freeweibo-mirror">转发： 截至2015年7月14日19:30，共计159名律师…</a>
 </h2>
@@ -126,7 +126,7 @@
 </h2>
 <p>SPAM 【#昆明雀事#】昆明云纺门口一辆轿车开了个四轮底朝天。。。怕又是女司机？[挖鼻][挖鼻][挖鼻](@丨尛飝龘丨 投稿)<br><img src="http://ww2.sinaimg.cn/large/6a8bd5d1gw1eu2719ofdjj20qo0f0ack.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3864488170199684" target="freeweibo-mirror">斯偉江：＂央视审判＂損害司法權威：似乎《宪法》将受更多的尊重…</a>
 </h2>
