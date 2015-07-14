@@ -30,13 +30,13 @@
 </h2>
 <p>//@记者-薛洪涛: //@假行僧老巩: 道德姐家也这样//@郎哩个郎:原来他们都是家族在做官呀！</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3864507006514578" target="freeweibo-mirror">SPAM 【人人都要懂的道理】观念比能力重要；行动比承诺重要…</a>
 </h2>
 <p>SPAM 【人人都要懂的道理】观念比能力重要；行动比承诺重要；选择比努力重要；方向比速度重要。思路清晰比卖力苦干更重要；拥有远见比拥有资产重要；拥有健康比拥有金钱重要。思路决定出路，观念决定方向，性格决定命运，生活方式决定健康！。#杨幂恋爱中的秘密##世界癫狂，我心优雅#<br><img src="http://ww4.sinaimg.cn/large/98c1610bjw1eu29lvzffkj2064042jrc.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3864491366683148" target="freeweibo-mirror">SPAM 【#昆明雀事#】昆明云纺门口一辆轿车开了个四轮底朝…</a>
 </h2>
