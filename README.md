@@ -96,7 +96,7 @@
 </h2>
 <p>SPAM //@兔子老愚: 轉發微博</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3864246113268322" target="freeweibo-mirror">不管这些是不是希拉里说的话，一针见血[赞]//@杜芝富:转发…</a>
 </h2>
