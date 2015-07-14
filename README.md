@@ -108,7 +108,7 @@
 </h2>
 <p>SPAM 真的吗<br><br>RE: 沈阳中街枪战#沈阳中街枪战#大家小心出行  封锁信息只会引起更大的恐慌 做好安保才是最根本的最重要的最急需的 http://t.cn/R2WxKET<br><img src="http://ww1.sinaimg.cn/large/005IMgsbjw1eu1dgvj0okj30f00qo75y.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3864243281841863" target="freeweibo-mirror">SPAM //@黄剑波AOC: 何光沪老师新开的微博。</a>
 </h2>
