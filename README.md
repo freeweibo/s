@@ -20,6 +20,18 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3864628976734981" target="freeweibo-mirror">黄力群是全国人大信访局副局长离职来做律师的。看来，领导干部都…</a>
+</h2>
+<p>黄力群是全国人大信访局副局长离职来做律师的。看来，领导干部都经不起考验啊。报道为什么不给锋锐所其他律师说话机会呢？<br><br>RE: 黄力群、翟岩民等一进派出所，就招了，就出买了律师事务所老板周世锋？被刑讯逼供了吗？还是本来就是卧底？【公安部：揭开“维权”事件黑幕】http://t.cn/RLbljK2<br><img src="http://ww3.sinaimg.cn/large/4bc782b3jw1eu2n1sch69j20vk0hsqau.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3864624056777128" target="freeweibo-mirror">黄力群、翟岩民等一进派出所，就招了，就出买了律师事务所老板周…</a>
+</h2>
+<p>黄力群、翟岩民等一进派出所，就招了，就出买了律师事务所老板周世锋？被刑讯逼供了吗？还是本来就是卧底？【公安部：揭开“维权”事件黑幕】http://t.cn/RLbljK2<br><img src="http://ww3.sinaimg.cn/large/4bc782b3jw1eu2n1sch69j20vk0hsqau.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3864619640890714" target="freeweibo-mirror">[酷]//@冰封侠回归: [作揖]//@周老老老老师://@…</a>
 </h2>
 <p>[酷]//@冰封侠回归: [作揖]//@周老老老老师://@流浪王子马文彬A://@手机用户2259597831://@自在天渊: //@大师兄微薄: //@老豆不炒熟21: //@不开学好吗:转发微博<br><br>RE: 他们为啥狂抓律师？因为以下三位都是律师。<br><img src="http://ww3.sinaimg.cn/large/005JwROQjw1eu2k16y9ikj30f80azgm2.jpg"></p>
@@ -125,18 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3864309408968934" target="freeweibo-mirror">SPAM 狂风裹挟着雷暴犹如挥向死磕派律师的千钧铁拳北京今天…</a>
 </h2>
 <p>SPAM 狂风裹挟着雷暴犹如挥向死磕派律师的千钧铁拳北京今天的雨真大啊</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3864296646024306" target="freeweibo-mirror">难道是首都带头不讲法了？昌平区先起头？//@若兰幽悠: 北京…</a>
-</h2>
-<p>难道是首都带头不讲法了？昌平区先起头？//@若兰幽悠: 北京是首都啊！这么不讲法？ //@环境保护主义者联盟:当一切看似可行的方法都不可行的时候，我们只能为自己维权！<br><br>RE: 北京市公安局昌平分局傍晚抓走阿苏卫垃圾填埋场周边村民夏磊和夏永刚@北京12345 @平安北京 @昌平发布123 @北京昌平 知道昌平分局的违法行为吗？不履行给深受填埋场污染村民搬迁的承诺，反而随意抓人。污染受害者们现守在昌平分局门口要求放人，一起打电话(010)69746110，80193803，要昌平分局放人。<br><img src="http://ww4.sinaimg.cn/large/96131537jw1eu1ii2lkmxj20zk0qot99.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3864294628739701" target="freeweibo-mirror">无需救济援助那样的贫困地区，携带武器含管制刀具的 警告后不听…</a>
-</h2>
-<p>无需救济援助那样的贫困地区，携带武器含管制刀具的 警告后不听就击毙。 //@李明波Hamas:说到点子上了//@塔列郎:这都是历史上狂信者辈出的地方，以前是苏菲派的如今都是瓦哈比派的<br><br>RE: 请大家注意一个细节，被活捉的女暴徒，籍贯是和田地区洛浦县。考虑到他忙的习惯，被击毙的三人应该也是洛浦县的。我前几天说过，和田地区有三个麻烦地方，分别是皮山，墨玉，洛浦，简称皮墨洛。有兴趣的朋友可以使用baidu一下这些地名+那个词<br><img src="http://ww1.sinaimg.cn/large/6272fab9jw1eu1knnod58j20d70hsac6.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
