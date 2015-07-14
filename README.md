@@ -20,6 +20,18 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3864507006514578" target="freeweibo-mirror">SPAM 【人人都要懂的道理】观念比能力重要；行动比承诺重要…</a>
+</h2>
+<p>SPAM 【人人都要懂的道理】观念比能力重要；行动比承诺重要；选择比努力重要；方向比速度重要。思路清晰比卖力苦干更重要；拥有远见比拥有资产重要；拥有健康比拥有金钱重要。思路决定出路，观念决定方向，性格决定命运，生活方式决定健康！。#杨幂恋爱中的秘密##世界癫狂，我心优雅#<br><img src="http://ww4.sinaimg.cn/large/98c1610bjw1eu29lvzffkj2064042jrc.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3864491366683148" target="freeweibo-mirror">SPAM 【#昆明雀事#】昆明云纺门口一辆轿车开了个四轮底朝…</a>
+</h2>
+<p>SPAM 【#昆明雀事#】昆明云纺门口一辆轿车开了个四轮底朝天。。。怕又是女司机？[挖鼻][挖鼻][挖鼻](@丨尛飝龘丨 投稿)<br><img src="http://ww2.sinaimg.cn/large/6a8bd5d1gw1eu2719ofdjj20qo0f0ack.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3864488170199684" target="freeweibo-mirror">斯偉江：＂央视审判＂損害司法權威：似乎《宪法》将受更多的尊重…</a>
 </h2>
 <p>斯偉江：＂央视审判＂損害司法權威：似乎《宪法》将受更多的尊重，因为人大通过新决议，最高领导及各级领导都要向宪法宣誓了。我国《宪法》明确写着：任何公民，非经人民检察院批准或者决定或者...文字版>> http://t.cn/RLqETEG （新浪长微博>> http://t.cn/zOXAaic）<br><img src="http://ww3.sinaimg.cn/large/70b79576jw1eu27g3xybdj20c8159k0y.jpg"></p>
@@ -125,18 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3864270237961213" target="freeweibo-mirror">操你妈逼共党，看你还能蹦哒多久？与世界人民为敌，就算你的王八…</a>
 </h2>
 <p>操你妈逼共党，看你还能蹦哒多久？与世界人民为敌，就算你的王八后代跑到国外，世界人民都会消灭你！//@上海老哥://@灯火澜珊的世界:有法不依，信访又不许访，尼玛你还能再分裂点吗？？//@表与钢笔:转发微博</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3864249590040172" target="freeweibo-mirror">SPAM //@兔子老愚: 轉發微博</a>
-</h2>
-<p>SPAM //@兔子老愚: 轉發微博</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3864246113268322" target="freeweibo-mirror">不管这些是不是希拉里说的话，一针见血[赞]//@杜芝富:转发…</a>
-</h2>
-<p>不管这些是不是希拉里说的话，一针见血[赞]//@杜芝富:转发微博</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
