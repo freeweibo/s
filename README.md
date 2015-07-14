@@ -24,11 +24,17 @@
 </h2>
 <p>[酷]//@冰封侠回归: [作揖]//@周老老老老师://@流浪王子马文彬A://@手机用户2259597831://@自在天渊: //@大师兄微薄: //@老豆不炒熟21: //@不开学好吗:转发微博<br><br>RE: 他们为啥狂抓律师？因为以下三位都是律师。<br><img src="http://ww3.sinaimg.cn/large/005JwROQjw1eu2k16y9ikj30f80azgm2.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3864599105485494" target="freeweibo-mirror">//@干卫东律师: //@徐昕://@昕静自然好://@任志…</a>
 </h2>
 <p>//@干卫东律师: //@徐昕://@昕静自然好://@任志强:如何面对？ //@薛健同学:这些真的是警察吗？我们到底该如何面对这个国家[悲伤] //@赵克罗:转<br><br>RE: 同胞们，歇歇吧！[悲伤][悲伤][悲伤] http://t.cn/RLGlt3W</p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3864597763486733" target="freeweibo-mirror">他们为啥狂抓律师？因为以下三位都是律师。</a>
+</h2>
+<p>他们为啥狂抓律师？因为以下三位都是律师。<br><img src="http://ww3.sinaimg.cn/large/005JwROQjw1eu2k16y9ikj30f80azgm2.jpg"></p>
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
@@ -55,6 +61,12 @@
 <p>SPAM 【人人都要懂的道理】观念比能力重要；行动比承诺重要；选择比努力重要；方向比速度重要。思路清晰比卖力苦干更重要；拥有远见比拥有资产重要；拥有健康比拥有金钱重要。思路决定出路，观念决定方向，性格决定命运，生活方式决定健康！。#杨幂恋爱中的秘密##世界癫狂，我心优雅#<br><img src="http://ww4.sinaimg.cn/large/98c1610bjw1eu29lvzffkj2064042jrc.jpg"></p>
 <p>
 	<small> ============== 9小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3864497486044348" target="freeweibo-mirror">同胞们，歇歇吧！[悲伤][悲伤][悲伤] http://t.…</a>
+</h2>
+<p>同胞们，歇歇吧！[悲伤][悲伤][悲伤] http://t.cn/RLGlt3W</p>
+<p>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3864491366683148" target="freeweibo-mirror">SPAM 【#昆明雀事#】昆明云纺门口一辆轿车开了个四轮底朝…</a>
 </h2>
@@ -125,18 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3864294154755220" target="freeweibo-mirror">SPAM //@博联社马晓霖:【新疆三地】三个地名不算太好记…</a>
 </h2>
 <p>SPAM //@博联社马晓霖:【新疆三地】三个地名不算太好记。<br><br>RE: 请大家注意一个细节，被活捉的女暴徒，籍贯是和田地区洛浦县。考虑到他忙的习惯，被击毙的三人应该也是洛浦县的。我前几天说过，和田地区有三个麻烦地方，分别是皮山，墨玉，洛浦，简称皮墨洛。有兴趣的朋友可以使用baidu一下这些地名+那个词<br><img src="http://ww1.sinaimg.cn/large/6272fab9jw1eu1knnod58j20d70hsac6.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3864292829358321" target="freeweibo-mirror">说到点子上了//@塔列郎:这都是历史上狂信者辈出的地方，以前…</a>
-</h2>
-<p>说到点子上了//@塔列郎:这都是历史上狂信者辈出的地方，以前是苏菲派的如今都是瓦哈比派的<br><br>RE: 请大家注意一个细节，被活捉的女暴徒，籍贯是和田地区洛浦县。考虑到他忙的习惯，被击毙的三人应该也是洛浦县的。我前几天说过，和田地区有三个麻烦地方，分别是皮山，墨玉，洛浦，简称皮墨洛。有兴趣的朋友可以使用baidu一下这些地名+那个词<br><img src="http://ww1.sinaimg.cn/large/6272fab9jw1eu1knnod58j20d70hsac6.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3864292409533536" target="freeweibo-mirror">这都是历史上狂信者辈出的地方，以前是苏菲派的如今都是瓦哈比派…</a>
-</h2>
-<p>这都是历史上狂信者辈出的地方，以前是苏菲派的如今都是瓦哈比派的<br><br>RE: 请大家注意一个细节，被活捉的女暴徒，籍贯是和田地区洛浦县。考虑到他忙的习惯，被击毙的三人应该也是洛浦县的。我前几天说过，和田地区有三个麻烦地方，分别是皮山，墨玉，洛浦，简称皮墨洛。有兴趣的朋友可以使用baidu一下这些地名+那个词<br><img src="http://ww1.sinaimg.cn/large/6272fab9jw1eu1knnod58j20d70hsac6.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
