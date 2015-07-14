@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3864488170199684" target="freeweibo-mirror">斯偉江：＂央视审判＂損害司法權威：似乎《宪法》将受更多的尊重…</a>
+</h2>
+<p>斯偉江：＂央视审判＂損害司法權威：似乎《宪法》将受更多的尊重，因为人大通过新决议，最高领导及各级领导都要向宪法宣誓了。我国《宪法》明确写着：任何公民，非经人民检察院批准或者决定或者...文字版>> http://t.cn/RLqETEG （新浪长微博>> http://t.cn/zOXAaic）<br><img src="http://ww3.sinaimg.cn/large/70b79576jw1eu27g3xybdj20c8159k0y.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3864445245978753" target="freeweibo-mirror">[吃惊]//@公民王海滨: //@记者欧阳: [吃惊] //…</a>
 </h2>
 <p>[吃惊]//@公民王海滨: //@记者欧阳: [吃惊] //@作家刘小海:[吃惊] //@贺江兵:[黑线] //@月旨月方女人:[偷笑]<br><br>RE: 如果平西王胜了，上台一定会崇毛，张口闭口毛语录，学毛的手段压制知识分子，逮捕律师，纵容刀把子践踏法律，统一思想，舆论一律，限制人权和自由；重申国际主义义务，给第三世界大把撒钱，跟西方对抗；以改革之名掠夺民众财富，以反腐之名清除异己，以调控之名干涉市场经济。如此看来，薄其实没有入狱</p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3864246113268322" target="freeweibo-mirror">不管这些是不是希拉里说的话，一针见血[赞]//@杜芝富:转发…</a>
 </h2>
 <p>不管这些是不是希拉里说的话，一针见血[赞]//@杜芝富:转发微博</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3864245818735224" target="freeweibo-mirror">SPAM 真的吗</a>
-</h2>
-<p>SPAM 真的吗<br><br>RE: 沈阳中街枪战#沈阳中街枪战#大家小心出行  封锁信息只会引起更大的恐慌 做好安保才是最根本的最重要的最急需的 http://t.cn/R2WxKET<br><img src="http://ww1.sinaimg.cn/large/005IMgsbjw1eu1dgvj0okj30f00qo75y.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
