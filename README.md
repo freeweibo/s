@@ -120,7 +120,7 @@
 </h2>
 <p>//@亮剑兄来了: //@-孤影掠痕: //@自在天渊:[哈哈]//@海韵N魅影: //@青翠3绿竹://@姜戈無懼A31: 「撐不了多久了」——昆明的邵正祥老人也是如此結論//@Sg022哥哥: //@不变的糕哥: //@西秦狼六: //@gtchenwei2: 转发微博<br><br>RE: 分享图片<br><img src="http://ww2.sinaimg.cn/large/006aguB2gw1eu2ehts7tpj30k00nd76l.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3864659075147967" target="freeweibo-mirror">优衣库…北京三里屯 http://t.cn/RL5ipvI …</a>
 </h2>
