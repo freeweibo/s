@@ -38,6 +38,12 @@
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3864408617054062" target="freeweibo-mirror">[偷笑]//@贺江兵:[黑线]//@月旨月方女人:[偷笑]</a>
+</h2>
+<p>[偷笑]//@贺江兵:[黑线]//@月旨月方女人:[偷笑]<br><br>RE: 如果平西王胜了，上台一定会崇毛，张口闭口毛语录，学毛的手段压制知识分子，逮捕律师，纵容刀把子践踏法律，统一思想，舆论一律，限制人权和自由；重申国际主义义务，给第三世界大把撒钱，跟西方对抗；以改革之名掠夺民众财富，以反腐之名清除异己，以调控之名干涉市场经济。如此看来，薄其实没有入狱</p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3864398949509472" target="freeweibo-mirror">SPAM  //@寒秋孤影-2018: //@居安徽:[哈哈…</a>
 </h2>
 <p>SPAM  //@寒秋孤影-2018: //@居安徽:[哈哈] //@可可-cm:[哈哈] //@cm2a2:[哈哈]</p>
@@ -84,13 +90,13 @@
 </h2>
 <p>这都是历史上狂信者辈出的地方，以前是苏菲派的如今都是瓦哈比派的<br><br>RE: 请大家注意一个细节，被活捉的女暴徒，籍贯是和田地区洛浦县。考虑到他忙的习惯，被击毙的三人应该也是洛浦县的。我前几天说过，和田地区有三个麻烦地方，分别是皮山，墨玉，洛浦，简称皮墨洛。有兴趣的朋友可以使用baidu一下这些地名+那个词<br><img src="http://ww1.sinaimg.cn/large/6272fab9jw1eu1knnod58j20d70hsac6.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3864291424049716" target="freeweibo-mirror">SPAM 【新疆三地】三个地名不算太好记。</a>
 </h2>
 <p>SPAM 【新疆三地】三个地名不算太好记。<br><br>RE: 请大家注意一个细节，被活捉的女暴徒，籍贯是和田地区洛浦县。考虑到他忙的习惯，被击毙的三人应该也是洛浦县的。我前几天说过，和田地区有三个麻烦地方，分别是皮山，墨玉，洛浦，简称皮墨洛。有兴趣的朋友可以使用baidu一下这些地名+那个词<br><img src="http://ww1.sinaimg.cn/large/6272fab9jw1eu1knnod58j20d70hsac6.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3864290635714253" target="freeweibo-mirror">请大家注意一个细节，被活捉的女暴徒，籍贯是和田地区洛浦县。考…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3864245818735224" target="freeweibo-mirror">SPAM 真的吗</a>
 </h2>
 <p>SPAM 真的吗<br><br>RE: 沈阳中街枪战#沈阳中街枪战#大家小心出行  封锁信息只会引起更大的恐慌 做好安保才是最根本的最重要的最急需的 http://t.cn/R2WxKET<br><img src="http://ww1.sinaimg.cn/large/005IMgsbjw1eu1dgvj0okj30f00qo75y.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3864243281841863" target="freeweibo-mirror">SPAM //@黄剑波AOC: 何光沪老师新开的微博。</a>
-</h2>
-<p>SPAM //@黄剑波AOC: 何光沪老师新开的微博。<br><br>RE: 我发表了文章 http://t.cn/RLqvfRc</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
