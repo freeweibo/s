@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3864418754733933" target="freeweibo-mirror">//@月旨月方女人:[偷笑]</a>
+</h2>
+<p>//@月旨月方女人:[偷笑]<br><br>RE: 如果平西王胜了，上台一定会崇毛，张口闭口毛语录，学毛的手段压制知识分子，逮捕律师，纵容刀把子践踏法律，统一思想，舆论一律，限制人权和自由；重申国际主义义务，给第三世界大把撒钱，跟西方对抗；以改革之名掠夺民众财富，以反腐之名清除异己，以调控之名干涉市场经济。如此看来，薄其实没有入狱</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3864398949509472" target="freeweibo-mirror">SPAM  //@寒秋孤影-2018: //@居安徽:[哈哈…</a>
 </h2>
 <p>SPAM  //@寒秋孤影-2018: //@居安徽:[哈哈] //@可可-cm:[哈哈] //@cm2a2:[哈哈]</p>
@@ -36,7 +42,7 @@
 </h2>
 <p>难道是首都带头不讲法了？昌平区先起头？//@若兰幽悠: 北京是首都啊！这么不讲法？ //@环境保护主义者联盟:当一切看似可行的方法都不可行的时候，我们只能为自己维权！<br><br>RE: 北京市公安局昌平分局傍晚抓走阿苏卫垃圾填埋场周边村民夏磊和夏永刚@北京12345 @平安北京 @昌平发布123 @北京昌平 知道昌平分局的违法行为吗？不履行给深受填埋场污染村民搬迁的承诺，反而随意抓人。污染受害者们现守在昌平分局门口要求放人，一起打电话(010)69746110，80193803，要昌平分局放人。<br><img src="http://ww4.sinaimg.cn/large/96131537jw1eu1ii2lkmxj20zk0qot99.jpg"></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3864294628739701" target="freeweibo-mirror">无需救济援助那样的贫困地区，携带武器含管制刀具的 警告后不听…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3864239334602287" target="freeweibo-mirror">微博，就是现实的实况。</a>
 </h2>
 <p>微博，就是现实的实况。<br><br>RE: 沈阳中街据说发生枪战，暴徒砍人事件，不知道是不是真的啊，好可怕<br><img src="http://ww2.sinaimg.cn/large/005FgupMjw1eu1c5436r9j30db0hsmzy.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3864235727963525" target="freeweibo-mirror">SPAM 消防演习？</a>
-</h2>
-<p>SPAM 消防演习？<br><br>RE: 我预计，这张图片将载入人类文明的史册。<br><img src="http://ww4.sinaimg.cn/large/41693645jw1eu19an8hfaj20k00k0gof.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
