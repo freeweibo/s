@@ -96,7 +96,7 @@
 </h2>
 <p>请大家注意一个细节，被活捉的女暴徒，籍贯是和田地区洛浦县。考虑到他忙的习惯，被击毙的三人应该也是洛浦县的。我前几天说过，和田地区有三个麻烦地方，分别是皮山，墨玉，洛浦，简称皮墨洛。有兴趣的朋友可以使用baidu一下这些地名+那个词<br><img src="http://ww1.sinaimg.cn/large/6272fab9jw1eu1knnod58j20d70hsac6.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3864277566355134" target="freeweibo-mirror">北京市公安局昌平分局傍晚抓走阿苏卫垃圾填埋场周边村民夏磊和夏…</a>
 </h2>
