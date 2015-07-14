@@ -32,6 +32,12 @@
 <p>
 	<small> ============== 4小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3864390988457979" target="freeweibo-mirror">如果平西王胜了，上台一定会崇毛，张口闭口毛语录，学毛的手段压…</a>
+</h2>
+<p>如果平西王胜了，上台一定会崇毛，张口闭口毛语录，学毛的手段压制知识分子，逮捕律师，纵容刀把子践踏法律，统一思想，舆论一律，限制人权和自由；重申国际主义义务，给第三世界大把撒钱，跟西方对抗；以改革之名掠夺民众财富，以反腐之名清除异己，以调控之名干涉市场经济。如此看来，薄其实没有入狱</p>
+<p>
+	<small> ============== 5小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3864309408968934" target="freeweibo-mirror">SPAM 狂风裹挟着雷暴犹如挥向死磕派律师的千钧铁拳北京今天…</a>
 </h2>
 <p>SPAM 狂风裹挟着雷暴犹如挥向死磕派律师的千钧铁拳北京今天的雨真大啊</p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3864239720729214" target="freeweibo-mirror">SPAM //@袁裕来律师: 我不敢，这些人上帝都不怕。//…</a>
 </h2>
 <p>SPAM //@袁裕来律师: 我不敢，这些人上帝都不怕。//@袁国宝:老本家木有上去制止？<br><br>RE: 我预计，这张图片将载入人类文明的史册。<br><img src="http://ww4.sinaimg.cn/large/41693645jw1eu19an8hfaj20k00k0gof.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3864239334602287" target="freeweibo-mirror">微博，就是现实的实况。</a>
-</h2>
-<p>微博，就是现实的实况。<br><br>RE: 沈阳中街据说发生枪战，暴徒砍人事件，不知道是不是真的啊，好可怕<br><img src="http://ww2.sinaimg.cn/large/005FgupMjw1eu1c5436r9j30db0hsmzy.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
