@@ -108,13 +108,13 @@
 </h2>
 <p>//@碧水中庭: //@米超多1: //@郭松民:咦！谁说中国没有言论自由？<br><br>RE: 狗日的@中国移动 、狗日的共产党、狗日的共产党的傀儡——国务院、全国人大、中纪委，老子不信，老子就是不信！有种宰了老子！尔等狗腿子，还如此猖狂，看是你们逼着吾等人民反你们。你们凭什么压着人民，而人民凭什么不能反你们？你们是人民的老子？就是老子，儿女也照样反！决不允许邪恶压制正义！<br><img src="http://ww2.sinaimg.cn/large/6d84a418gw1eu2ggv3v9wj20ur0b4wey.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3864656412487654" target="freeweibo-mirror">#优衣库视频#http://t.cn/RL5JrSd</a>
 </h2>
 <p>#优衣库视频#http://t.cn/RL5JrSd</p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3864654230834436" target="freeweibo-mirror">//@北京杨博:习总说，我党能够接受任何尖锐的批评。五毛们说…</a>
 </h2>
