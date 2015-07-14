@@ -60,7 +60,7 @@
 </h2>
 <p>SPAM 狂风裹挟着雷暴犹如挥向死磕派律师的千钧铁拳北京今天的雨真大啊</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3864296646024306" target="freeweibo-mirror">难道是首都带头不讲法了？昌平区先起头？//@若兰幽悠: 北京…</a>
 </h2>
