@@ -36,7 +36,7 @@
 </h2>
 <p>炒作//@冉雄飞马卡王朝:到处都有啊！ //@资深金融小邪女:还真有。哈哈。播音员露馅了，一楼试衣间没了，到二楼。不是营销公关，我不转哦。哈哈<br><br>RE: #优衣酷视频#火了！http://t.cn/RL53FP2</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3864829729519891" target="freeweibo-mirror">#优衣酷视频#火了！http://t.cn/RL53FP2</a>
 </h2>
@@ -102,7 +102,7 @@
 </h2>
 <p>SPAM 台|湾|人|权|团|体|发|表|声|明|抗|议|中|国|当|局|大|规|模逮|捕|维|权|律|师<br><img src="http://ww3.sinaimg.cn/large/005NG4IWjw1eu2uxkytrej30hm5uc1cr.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3864686388961667" target="freeweibo-mirror">SPAM #北京三里屯优衣库试衣间视频#听说北京三里屯优衣库…</a>
 </h2>
