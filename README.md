@@ -20,6 +20,18 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3864768886913352" target="freeweibo-mirror">为了赚钱也不算错吧？律师又不是搞慈善的。 //@记者-薛洪涛…</a>
+</h2>
+<p>为了赚钱也不算错吧？律师又不是搞慈善的。 //@记者-薛洪涛://@路更强1: //@信周:不管是谁，只要说为最底层的上访民众服务是为了钱，纯属放屁！<br><br>RE: 央视说：公安部查出维权律师为了钱财勾结上访人员寻衅滋事、煽动颠覆等罪名，并在短短几天内就抓了一百多位维权律师。即使用脚后跟也能想明白：既然为了钱财，何必勾结上访人员？上访人员有钱吗？见过有千万、百万富翁去上访的吗？如果真是为了钱，就应该勾结权贵集团出卖法律和良知。<br><img src="http://ww3.sinaimg.cn/large/7d0b28ebgw1eu1ey8rk02j20c807kt8v.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3864768194278369" target="freeweibo-mirror">//@伤心的微笑999://@正义至尊:它们是在维护暴政特权…</a>
+</h2>
+<p>//@伤心的微笑999://@正义至尊:它们是在维护暴政特权！//@秋枫20089:一直在问：为什么这些人肯为一个小公务员背书？[疑问]</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3864757260363006" target="freeweibo-mirror">//@浙江周勇: //@金陵酒徒仓氏://@导丝三世: 转发…</a>
 </h2>
 <p>//@浙江周勇: //@金陵酒徒仓氏://@导丝三世: 转发微博</p>
@@ -60,7 +72,7 @@
 </h2>
 <p>SPAM 台|湾|人|权|团|体|发|表|声|明|抗|议|中|国|当|局|大|规|模逮|捕|维|权|律|师<br><img src="http://ww3.sinaimg.cn/large/005NG4IWjw1eu2uxkytrej30hm5uc1cr.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3864686388961667" target="freeweibo-mirror">SPAM #北京三里屯优衣库试衣间视频#听说北京三里屯优衣库…</a>
 </h2>
@@ -127,18 +139,6 @@
 <p>SPAM [吃惊]//@活捉死老鼠: [害羞]//@Raginghugo: 好人一生平安 //@假货大王不在了:厉害哟 //@上虞人渣:山前刘明<br><br>RE: #优衣库视频#http://t.cn/RL5JrSd</p>
 <p>
 	<small> ============== 8小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3864661407100328" target="freeweibo-mirror">博主活脱脱一条疯狗！@中国公知精神病总院 还不收治？[吃惊]…</a>
-</h2>
-<p>博主活脱脱一条疯狗！@中国公知精神病总院 还不收治？[吃惊]//@郭松民:咦！谁说中国没有言论自由？<br><br>RE: 狗日的@中国移动 、狗日的共产党、狗日的共产党的傀儡——国务院、全国人大、中纪委，老子不信，老子就是不信！有种宰了老子！尔等狗腿子，还如此猖狂，看是你们逼着吾等人民反你们。你们凭什么压着人民，而人民凭什么不能反你们？你们是人民的老子？就是老子，儿女也照样反！决不允许邪恶压制正义！<br><img src="http://ww2.sinaimg.cn/large/6d84a418gw1eu2ggv3v9wj20ur0b4wey.jpg"></p>
-<p>
-	<small> ============== 8小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3864660954843500" target="freeweibo-mirror">//@亮剑兄来了: //@-孤影掠痕: //@自在天渊:[哈…</a>
-</h2>
-<p>//@亮剑兄来了: //@-孤影掠痕: //@自在天渊:[哈哈]//@海韵N魅影: //@青翠3绿竹://@姜戈無懼A31: 「撐不了多久了」——昆明的邵正祥老人也是如此結論//@Sg022哥哥: //@不变的糕哥: //@西秦狼六: //@gtchenwei2: 转发微博<br><br>RE: 分享图片<br><img src="http://ww2.sinaimg.cn/large/006aguB2gw1eu2ehts7tpj30k00nd76l.jpg"></p>
-<p>
-	<small> ============== 9小时前</small>
 </p>
 <table>
     <tr>
