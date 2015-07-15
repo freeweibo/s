@@ -24,7 +24,7 @@
 </h2>
 <p>//@周子曦zzx: 转发微博</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3864931357554987" target="freeweibo-mirror">SPAM [哈哈][哈哈]</a>
 </h2>
