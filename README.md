@@ -66,7 +66,7 @@
 </h2>
 <p>呵呵，染丑逼在美国领土操中国大使馆。。小心被米国警察叔叔艹哦[挖鼻]http://t.cn/RLtPMab<br><br>RE: 南方系染香姐姐，去年在网上宣布成功经云南偷渡出境，经泰国抵达美国。我不解，在美国的领土上操中国大使馆，表明自己真英雄也？我更不解，诸如雷克那样的说尽中国不好却在中国活的很好，而致力于维护美国的人，为何不申请美国签证却偷渡？<br><img src="http://ww3.sinaimg.cn/large/62a145b1jw1eu3dmh608jj20yi1pc1ib.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3864855415293949" target="freeweibo-mirror">南方系染香姐姐，去年在网上宣布成功经云南偷渡出境，经泰国抵达…</a>
 </h2>
@@ -84,7 +84,7 @@
 </h2>
 <p>//@江荣生: 转发微博</p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3864837333531831" target="freeweibo-mirror">视频这里</a>
 </h2>
