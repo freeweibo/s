@@ -78,7 +78,7 @@
 </h2>
 <p>【也说优衣库】7月15日凌晨，在网页、微信、微博等疯传试衣间的“啪啪啪”事件，突破了以亿为单位的速度，堪称网络营销奇迹！这次营销的推手，并不高明，就是抓住了人们庸俗、好色的猎奇心理，同时也暴露了人性原始的另一面。虽然手法有失公允，但营销策划还是成功了，让人们记住了优衣库和试衣间。<br><img src="http://ww1.sinaimg.cn/large/9fa71d43jw1eu3mkd2ruxj20fa0c4gnc.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3864931357554987" target="freeweibo-mirror">SPAM [哈哈][哈哈]</a>
 </h2>
