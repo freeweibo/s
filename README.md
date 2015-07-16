@@ -42,7 +42,7 @@
 </h2>
 <p>SPAM [闭嘴]//@LifeTime: //@jlijames:又来了个境外敌对势力[挖鼻]//@梅虔:失道寡助！<br><br>RE: 分享图片<br><img src="http://ww2.sinaimg.cn/large/594607fbjw1eu4xvw4pwqj20k00ohgnl.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3865355405736854" target="freeweibo-mirror">除了强烈抗议还能干什么，世界在某些人眼里算个鸟。</a>
 </h2>
@@ -66,7 +66,7 @@
 </h2>
 <p>//@陶景洲:加拿大，已拿下...[晕] //@陈业文新大都:[赞] //@隆裕太后:大使馆这条消息，已经只能看不能转，所以，就……你懂的。@加拿大大使馆官方微博<br><br>RE: 今晚加拿大官方微博怎么了？为什么要发表声明？不要干涉中国内政！中国政 府有能力有条件有信心（这三句跟股市维稳一样）处理好一切国内事务，不须要境外势力指手划脚说三道四，本博代表自己同样发表严正声明：切勿以保护人权为名，干涉中国内政，立即无条件删除相关言论！记住这是在中国！！！<br><img src="http://ww3.sinaimg.cn/large/9063a9d4jw1eu4vv8m8l1j20k00oh76j.jpg"></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3865340679744324" target="freeweibo-mirror">忙着抓律师，股市能不跌吗 //@陈业文新大都:[赞] //@…</a>
 </h2>
@@ -84,7 +84,7 @@
 </h2>
 <p>今晚加拿大官方微博怎么了？为什么要发表声明？不要干涉中国内政！中国政 府有能力有条件有信心（这三句跟股市维稳一样）处理好一切国内事务，不须要境外势力指手划脚说三道四，本博代表自己同样发表严正声明：切勿以保护人权为名，干涉中国内政，立即无条件删除相关言论！记住这是在中国！！！<br><img src="http://ww3.sinaimg.cn/large/9063a9d4jw1eu4vv8m8l1j20k00oh76j.jpg"></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3865314913978431" target="freeweibo-mirror">//@我是伏起://@瞽聋: //@五哥放羊40: 转发微博</a>
 </h2>
