@@ -24,7 +24,7 @@
 </h2>
 <p>SPAM @思想碎片101 ：多久算时间？何时是机会？ http://t.cn/RLcdJQk<br><img src="http://ww2.sinaimg.cn/large/005XVQ6rjw1eu3hx4u43yj30hs0vkq7y.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3865364591156111" target="freeweibo-mirror">SPAM //@玲瀚:左抱右搂的两位如今什么身份啊？//@爱…</a>
 </h2>
@@ -120,19 +120,19 @@
 </h2>
 <p>嗯，政府算计好的</p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3865240775180235" target="freeweibo-mirror">从来没对这货抱过希望//@i-want-it-that-wa…</a>
 </h2>
 <p>从来没对这货抱过希望//@i-want-it-that-way: //@刘忠世:我承认我曾经是傻逼，因为对他们抱有希望。二十多年前开始自觉地从傻逼行列向外挣扎，不再希望。//@铁哥日记718: 包子刚出笼时当然新鲜。//@福州新人: 包子刚出笼时，曾经寄予希望，现在...... //@铁哥日记718:近平让你很失望了<br><br>RE: 十八大以后我们满怀信心，以为我们会学欧美，后来觉得我们会学苏俄，再后来发现我们在学朝鲜，现在怎么觉得我们在学纳粹？！<br><img src="http://ww1.sinaimg.cn/large/5634f1dfgw1eu2c3cc0zbj20go0c0dh7.jpg"></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3865240560860115" target="freeweibo-mirror">【铭记历史上的今天】2001年7月16日——时任中国国家主席…</a>
 </h2>
 <p>【铭记历史上的今天】2001年7月16日——时任中国国家主席江泽民和俄罗斯总统普京在莫斯科签订《中俄睦邻友好合作条约》，宣称“世代友好，永不为敌”。从此，中国彻底丧失了几十万平方公里领土！<br><img src="http://ww3.sinaimg.cn/large/b0016548jw1eu4lskm3phj205k05n0so.jpg"></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3865216654111936" target="freeweibo-mirror">//@冷俊123://@新觉起立://@论称分金: //@瘦…</a>
 </h2>
