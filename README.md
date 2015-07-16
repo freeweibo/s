@@ -90,7 +90,7 @@
 </h2>
 <p>//@我是伏起://@瞽聋: //@五哥放羊40: 转发微博</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3865307296642329" target="freeweibo-mirror">善良的退让，会让这些人更加有恃无恐的！//@爱新觉罗载勋: …</a>
 </h2>
