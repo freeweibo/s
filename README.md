@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3865381175067823" target="freeweibo-mirror">//@好火药://@喷嚏网铂程: 转发微博</a>
+</h2>
+<p>//@好火药://@喷嚏网铂程: 转发微博<br><br>RE: 该来的都会来。<br><img src="http://ww2.sinaimg.cn/large/6f0978aajw1eu4ywwmgmgj20hs0vk0wi.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3865376523939748" target="freeweibo-mirror">SPAM @思想碎片101 ：多久算时间？何时是机会？ ht…</a>
 </h2>
 <p>SPAM @思想碎片101 ：多久算时间？何时是机会？ http://t.cn/RLcdJQk<br><img src="http://ww2.sinaimg.cn/large/005XVQ6rjw1eu3hx4u43yj30hs0vkq7y.jpg"></p>
@@ -48,7 +54,7 @@
 </h2>
 <p>该来的都会来。<br><img src="http://ww2.sinaimg.cn/large/6f0978aajw1eu4ywwmgmgj20hs0vk0wi.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3865344257155062" target="freeweibo-mirror">//@海柳云烟:R</a>
 </h2>
@@ -133,12 +139,6 @@
 <p>律师被抓，草根阶层欢呼，悲哀。这固然与政府宣传有关，但最主要还是传统文化中政府代表天然正义，民众愿意把自己整个身心委身政府，西方人心中，政府天然是恶的，但又离不开，故要时刻提防。中国律师挑战政府不法，最具价值同时也最危险，所以律师职业是戴着荆棘的王冠。</p>
 <p>
 	<small> ============== 11小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3865240985333740" target="freeweibo-mirror">嗯，政府算计好的</a>
-</h2>
-<p>嗯，政府算计好的</p>
-<p>
-	<small> ============== 12小时前</small>
 </p>
 <table>
     <tr>
