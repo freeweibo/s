@@ -38,6 +38,12 @@
 <p>
 	<small> ============== 4小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3865355405736854" target="freeweibo-mirror">除了强烈抗议还能干什么，世界在某些人眼里算个鸟。</a>
+</h2>
+<p>除了强烈抗议还能干什么，世界在某些人眼里算个鸟。<br><br>RE: 该来的都会来。<br><img src="http://ww2.sinaimg.cn/large/6f0978aajw1eu4ywwmgmgj20hs0vk0wi.jpg"></p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3865344257155062" target="freeweibo-mirror">//@海柳云烟:R</a>
 </h2>
 <p>//@海柳云烟:R<br><br>RE: 今晚加拿大官方微博怎么了？为什么要发表声明？不要干涉中国内政！中国政 府有能力有条件有信心（这三句跟股市维稳一样）处理好一切国内事务，不须要境外势力指手划脚说三道四，本博代表自己同样发表严正声明：切勿以保护人权为名，干涉中国内政，立即无条件删除相关言论！记住这是在中国！！！<br><img src="http://ww3.sinaimg.cn/large/9063a9d4jw1eu4vv8m8l1j20k00oh76j.jpg"></p>
@@ -102,7 +108,7 @@
 </h2>
 <p>#掛#誰是真正的五毛？自有定論！[汗]#看熱鬧不嫌事大#爆粗口，集中攻擊，特定目標，這是你們的特點！現在開始攻擊@民警吕宏伟 和@陳裡 廳長了！[怒]@孤煙暮蟬 什麼居心？@报人老罗 @老榕 @赤峰龙腾 @段郎說事 @董郎dxp @遲夙生律師 @北疆观点 @段貴發 @假装是神枪手 @大藏布 @大唐药王 @陳士渠 @帮的<br><img src="http://ww4.sinaimg.cn/large/005NG4HEjw1eu4pmirvb0j30f00qo773.jpg"></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3865273881196545" target="freeweibo-mirror">//@如皋笨熊乖://@云端上的行走: 转发微博</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3865240775180235" target="freeweibo-mirror">从来没对这货抱过希望//@i-want-it-that-wa…</a>
 </h2>
 <p>从来没对这货抱过希望//@i-want-it-that-way: //@刘忠世:我承认我曾经是傻逼，因为对他们抱有希望。二十多年前开始自觉地从傻逼行列向外挣扎，不再希望。//@铁哥日记718: 包子刚出笼时当然新鲜。//@福州新人: 包子刚出笼时，曾经寄予希望，现在...... //@铁哥日记718:近平让你很失望了<br><br>RE: 十八大以后我们满怀信心，以为我们会学欧美，后来觉得我们会学苏俄，再后来发现我们在学朝鲜，现在怎么觉得我们在学纳粹？！<br><img src="http://ww1.sinaimg.cn/large/5634f1dfgw1eu2c3cc0zbj20go0c0dh7.jpg"></p>
-<p>
-	<small> ============== 12小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3865240560860115" target="freeweibo-mirror">【铭记历史上的今天】2001年7月16日——时任中国国家主席…</a>
-</h2>
-<p>【铭记历史上的今天】2001年7月16日——时任中国国家主席江泽民和俄罗斯总统普京在莫斯科签订《中俄睦邻友好合作条约》，宣称“世代友好，永不为敌”。从此，中国彻底丧失了几十万平方公里领土！<br><img src="http://ww3.sinaimg.cn/large/b0016548jw1eu4lskm3phj205k05n0so.jpg"></p>
 <p>
 	<small> ============== 12小时前</small>
 </p>
