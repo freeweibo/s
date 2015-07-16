@@ -24,7 +24,7 @@
 </h2>
 <p>//@好火药://@喷嚏网铂程: 转发微博<br><br>RE: 该来的都会来。<br><img src="http://ww2.sinaimg.cn/large/6f0978aajw1eu4ywwmgmgj20hs0vk0wi.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3865376523939748" target="freeweibo-mirror">SPAM @思想碎片101 ：多久算时间？何时是机会？ ht…</a>
 </h2>
