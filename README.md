@@ -24,7 +24,7 @@
 </h2>
 <p>//@好火药://@喷嚏网铂程: 转发微博<br><br>RE: 该来的都会来。<br><img src="http://ww2.sinaimg.cn/large/6f0978aajw1eu4ywwmgmgj20hs0vk0wi.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3865376523939748" target="freeweibo-mirror">SPAM @思想碎片101 ：多久算时间？何时是机会？ ht…</a>
 </h2>
@@ -132,7 +132,7 @@
 </h2>
 <p>//@曹先生2012w://@修竹415: //@feyipp:矮凳为了一私之利，把浆糊扶上台，种下祸根祸国殃民。 //@任我行7777:老不死蛤蟆<br><br>RE: 【铭记历史上的今天】2001年7月16日——时任中国国家主席江泽民和俄罗斯总统普京在莫斯科签订《中俄睦邻友好合作条约》，宣称“世代友好，永不为敌”。从此，中国彻底丧失了几十万平方公里领土！<br><img src="http://ww3.sinaimg.cn/large/b0016548jw1eu4lskm3phj205k05n0so.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3865254167859495" target="freeweibo-mirror">律师被抓，草根阶层欢呼，悲哀。这固然与政府宣传有关，但最主要…</a>
 </h2>
