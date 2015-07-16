@@ -24,7 +24,7 @@
 </h2>
 <p>SPAM 他们还有一个目的，叫“不可告人目的”。</p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3864987518947915" target="freeweibo-mirror">SPAM 想當帶路黨，還得不怕熱才行。「一帶一路」，捨我其誰…</a>
 </h2>
