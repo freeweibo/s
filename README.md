@@ -114,7 +114,7 @@
 </h2>
 <p>SPAM 为什么要是周二？为什么还要等到周二？为什么？</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3865612038573641" target="freeweibo-mirror">SPAM 使钱啦？ [害羞]</a>
 </h2>
