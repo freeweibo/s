@@ -72,7 +72,7 @@
 </h2>
 <p>@贺卫方 也是？ //@张鹤慈:回复@谢元:李洪志也是当年党内高层支持出来的，他和原公安部副部长关系不错，64后带众弟子给受伤军人和因阻止【暴乱】伤残的人治病，态度鲜明。和本拉登一样，都是喂出来的反对者。法功成气候，党内高层难逃其咎。 //@谢元:李洪志也算一个吧</p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3865590885953352" target="freeweibo-mirror">//@国资小新:转发微博</a>
 </h2>
@@ -90,13 +90,13 @@
 </h2>
 <p>SPAM →_→ //@微博股票:→_→//@古明:微博也能看股票了，不过想问问股票君绿色的横幅绿色的地板几个意思？[doge]//@微博股票:http://t.cn/RA2lPo4 各位不用谢 [doge][doge][doge]<br><br>RE: 大大今天到中车长客股份看望大家了[嘻嘻][嘻嘻]<br><img src="http://ww3.sinaimg.cn/large/0068cZQ1jw1eu5nw4xkj1j30no0hsmye.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3865584238038054" target="freeweibo-mirror">SPAM  //@魏晓军:值得政府与百姓都看看的好文章！[赞…</a>
 </h2>
 <p>SPAM  //@魏晓军:值得政府与百姓都看看的好文章！[赞][话筒]<br><br>RE: 60多年了，要举国反思，要举党反思！ http://t.cn/RLcZg8y</p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3865581356833678" target="freeweibo-mirror">SPAM →_→ //@蓝鲸财经记者工作平台:【快讯】中国中…</a>
 </h2>
@@ -132,7 +132,7 @@
 </h2>
 <p>60多年了，要举国反思，要举党反思！ http://t.cn/RLcZg8y</p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3865551657147858" target="freeweibo-mirror">SPAM //@北林施兵: 强烈抗议加拿大政府粗暴干涉中国内…</a>
 </h2>
