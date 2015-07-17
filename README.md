@@ -72,7 +72,7 @@
 </h2>
 <p>//@国资小新:转发微博<br><br>RE: 大大今天到中车长客股份看望大家了[嘻嘻][嘻嘻]<br><img src="http://ww3.sinaimg.cn/large/0068cZQ1jw1eu5nw4xkj1j30no0hsmye.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3865585085792480" target="freeweibo-mirror">SPAM 习近平今日到中车长客股份考察，中国中车午后快速拉涨…</a>
 </h2>
