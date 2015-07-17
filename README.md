@@ -78,7 +78,7 @@
 </h2>
 <p>SPAM 不只是夏天，我看秋天，冬天，还有春天，天天都值得托付给@NATUNA童装 //@NATUNA童装:[来] 来约！缤纷舒服的夏天，托付给NATUNA吧！</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3865681609282800" target="freeweibo-mirror">//@东岳晚晴://@虎叔-: 外科大夫，媒体要做大手术了</a>
 </h2>
@@ -126,7 +126,7 @@
 </h2>
 <p>SPAM  //@任志强:不是遗嘱！但是遗憾！ //@薛健同学:不是反思了，再不改就没机会了。<br><br>RE: 60多年了，要举国反思，要举党反思！ http://t.cn/RLcZg8y</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3865598851492358" target="freeweibo-mirror">@贺卫方 也是？ //@张鹤慈:回复@谢元:李洪志也是当年党…</a>
 </h2>
