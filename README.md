@@ -66,7 +66,7 @@
 </h2>
 <p>古语说：得道多助，失道寡助。<br><img src="http://ww4.sinaimg.cn/large/0068SFEdjw1eu67mide86j30k00zkgoq.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3865725146273411" target="freeweibo-mirror">带路党的干爹赞扬以双规来反腐，批评以执法约谈来反死磕，这种选…</a>
 </h2>
