@@ -50,6 +50,12 @@
 <p>
 	<small> ============== 4小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3865743554258666" target="freeweibo-mirror">古语说：得道多助，失道寡助。</a>
+</h2>
+<p>古语说：得道多助，失道寡助。<br><img src="http://ww4.sinaimg.cn/large/0068SFEdjw1eu67mide86j30k00zkgoq.jpg"></p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3865725146273411" target="freeweibo-mirror">带路党的干爹赞扬以双规来反腐，批评以执法约谈来反死磕，这种选…</a>
 </h2>
 <p>带路党的干爹赞扬以双规来反腐，批评以执法约谈来反死磕，这种选择性标准和人权有关吗？[思考] //@王鹏律师:小浪给他删除了，赶紧给他注销账号，限制发言！ //@观世音童:小秘书动手吧。[偷笑] //@木尔:[话筒][话筒][话筒]且看外交部会怎么回应？//@胡坤821: [话筒]//@朱孝顶律师: [话筒][话筒][话筒]</p>
@@ -108,13 +114,13 @@
 </h2>
 <p>杂碎共党！//@-志士仁心: //@公正善良: //@刀锋论:转发微博</p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3865645316261101" target="freeweibo-mirror">//@淮海游子A:谁让它去祸害中央的？尼玛太坏了。//@虎叔…</a>
 </h2>
 <p>//@淮海游子A:谁让它去祸害中央的？尼玛太坏了。//@虎叔-: 外科大夫，媒体要做大手术了</p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3865632712390780" target="freeweibo-mirror">→_→→_→//@甄_彦:[生病]//@ROC917: 广东…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3865617935660827" target="freeweibo-mirror">SPAM 为什么要是周二？为什么还要等到周二？为什么？</a>
 </h2>
 <p>SPAM 为什么要是周二？为什么还要等到周二？为什么？</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3865612038573641" target="freeweibo-mirror">SPAM 使钱啦？ [害羞]</a>
-</h2>
-<p>SPAM 使钱啦？ [害羞]<br><br>RE: 大大今天到中车长客股份看望大家了[嘻嘻][嘻嘻]<br><img src="http://ww3.sinaimg.cn/large/0068cZQ1jw1eu5nw4xkj1j30no0hsmye.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
