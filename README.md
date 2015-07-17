@@ -102,7 +102,7 @@
 </h2>
 <p>SPAM 使钱啦？ [害羞]<br><br>RE: 大大今天到中车长客股份看望大家了[嘻嘻][嘻嘻]<br><img src="http://ww3.sinaimg.cn/large/0068cZQ1jw1eu5nw4xkj1j30no0hsmye.jpg"></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3865601527746490" target="freeweibo-mirror">SPAM  //@任志强:不是遗嘱！但是遗憾！ //@薛健同…</a>
 </h2>
@@ -126,7 +126,7 @@
 </h2>
 <p>好消息是，原广东省宣传部长庹震不再祸害广东了，坏消息是它升任副部长了。[挖鼻]<br><img src="http://ww3.sinaimg.cn/large/68b3dde5jw1eu5pvujkc4j20f00qoq5u.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3865585085792480" target="freeweibo-mirror">SPAM 习近平今日到中车长客股份考察，中国中车午后快速拉涨…</a>
 </h2>
