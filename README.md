@@ -30,7 +30,7 @@
 </h2>
 <p>SPAM @思想碎片101 ：多久算时间？何时是机会？ http://t.cn/RLcdJQk<br><img src="http://ww2.sinaimg.cn/large/005XVQ6rjw1eu3hx4u43yj30hs0vkq7y.jpg"></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3865364591156111" target="freeweibo-mirror">SPAM //@玲瀚:左抱右搂的两位如今什么身份啊？//@爱…</a>
 </h2>
@@ -54,7 +54,7 @@
 </h2>
 <p>该来的都会来。<br><img src="http://ww2.sinaimg.cn/large/6f0978aajw1eu4ywwmgmgj20hs0vk0wi.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3865344257155062" target="freeweibo-mirror">//@海柳云烟:R</a>
 </h2>
