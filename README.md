@@ -24,7 +24,7 @@
 </h2>
 <p>@吴顾问1970:扭曲变态的制度！邪恶的组织！[哈哈]//@柏铭007:[抓狂]//@况秀猛: 一个邪灵.//@爱新觉罗载勋: 一个幽灵，一个迷信的幽灵在中国上空徘徊；胡万林、王林们的伏法，并不是幽灵的殒灭，幽灵是不会殒灭的。它飞快地变幻着形式，大江南北长城内外无时无处不有。迷信是因着空虚和没有信仰</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3865381175067823" target="freeweibo-mirror">//@好火药://@喷嚏网铂程: 转发微博</a>
 </h2>
@@ -36,7 +36,7 @@
 </h2>
 <p>SPAM @思想碎片101 ：多久算时间？何时是机会？ http://t.cn/RLcdJQk<br><img src="http://ww2.sinaimg.cn/large/005XVQ6rjw1eu3hx4u43yj30hs0vkq7y.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3865364591156111" target="freeweibo-mirror">SPAM //@玲瀚:左抱右搂的两位如今什么身份啊？//@爱…</a>
 </h2>
