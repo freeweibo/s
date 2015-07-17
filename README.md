@@ -36,7 +36,7 @@
 </h2>
 <p>SPAM //@北林施兵: 强烈抗议加拿大政府粗暴干涉中国内政[怒骂][怒]<br><br>RE: 我认为，这是对中国内政的粗暴干涉。<br><img src="http://ww1.sinaimg.cn/large/41693645jw1eu5hhyinw8j20yi0vcn0p.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3865528110005376" target="freeweibo-mirror">@吴顾问1970:扭曲变态的制度！邪恶的组织！[哈哈]//@…</a>
 </h2>
