@@ -138,7 +138,7 @@
 </h2>
 <p>我认为，这是对中国内政的粗暴干涉。<br><img src="http://ww1.sinaimg.cn/large/41693645jw1eu5hhyinw8j20yi0vcn0p.jpg"></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p>
 <table>
     <tr>
