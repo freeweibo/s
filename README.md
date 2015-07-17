@@ -20,11 +20,17 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3865705303058496" target="freeweibo-mirror">如果美国公布并冻结土匪及其家属在美的资产，呼吁多年的财产公开…</a>
+</h2>
+<p>如果美国公布并冻结土匪及其家属在美的资产，呼吁多年的财产公开就实现了，简直了！</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3865681609282800" target="freeweibo-mirror">//@东岳晚晴://@虎叔-: 外科大夫，媒体要做大手术了</a>
 </h2>
 <p>//@东岳晚晴://@虎叔-: 外科大夫，媒体要做大手术了<br><br>RE: 好消息是，原广东省宣传部长庹震不再祸害广东了，坏消息是它升任副部长了。[挖鼻]<br><img src="http://ww3.sinaimg.cn/large/68b3dde5jw1eu5pvujkc4j20f00qoq5u.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3865646226125447" target="freeweibo-mirror">杂碎共党！//@-志士仁心: //@公正善良: //@刀锋论…</a>
 </h2>
@@ -78,7 +84,7 @@
 </h2>
 <p>//@国资小新:转发微博<br><br>RE: 大大今天到中车长客股份看望大家了[嘻嘻][嘻嘻]<br><img src="http://ww3.sinaimg.cn/large/0068cZQ1jw1eu5nw4xkj1j30no0hsmye.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3865589464601283" target="freeweibo-mirror">好消息是，原广东省宣传部长庹震不再祸害广东了，坏消息是它升任…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3865554689839284" target="freeweibo-mirror">//@建筑史教师万谦: @战争史研究WHS: 够阴坏的//@…</a>
 </h2>
 <p>//@建筑史教师万谦: @战争史研究WHS: 够阴坏的//@C纯小纯H:吴为了黑可以不看79年的1609，只盯着1453，也只敢截到80年，因为81年就是1818并一路增到2500，也不敢查水灾年表，因为80年江淮都有洪水，安徽受灾。//@庐州骑都尉:80年江淮大水粮食减产，次年就增长，吴不说这事，断章取义</p>
-<p>
-	<small> ============== 11小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3865553888045005" target="freeweibo-mirror">60多年了，要举国反思，要举党反思！ http://t.cn…</a>
-</h2>
-<p>60多年了，要举国反思，要举党反思！ http://t.cn/RLcZg8y</p>
 <p>
 	<small> ============== 11小时前</small>
 </p>
