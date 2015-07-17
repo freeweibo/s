@@ -30,7 +30,7 @@
 </h2>
 <p>SPAM @思想碎片101 ：多久算时间？何时是机会？ http://t.cn/RLcdJQk<br><img src="http://ww2.sinaimg.cn/large/005XVQ6rjw1eu3hx4u43yj30hs0vkq7y.jpg"></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3865364591156111" target="freeweibo-mirror">SPAM //@玲瀚:左抱右搂的两位如今什么身份啊？//@爱…</a>
 </h2>
