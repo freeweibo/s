@@ -24,7 +24,7 @@
 </h2>
 <p>//@好火药://@喷嚏网铂程: 转发微博<br><br>RE: 该来的都会来。<br><img src="http://ww2.sinaimg.cn/large/6f0978aajw1eu4ywwmgmgj20hs0vk0wi.jpg"></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3865376523939748" target="freeweibo-mirror">SPAM @思想碎片101 ：多久算时间？何时是机会？ ht…</a>
 </h2>
@@ -60,7 +60,7 @@
 </h2>
 <p>//@海柳云烟:R<br><br>RE: 今晚加拿大官方微博怎么了？为什么要发表声明？不要干涉中国内政！中国政 府有能力有条件有信心（这三句跟股市维稳一样）处理好一切国内事务，不须要境外势力指手划脚说三道四，本博代表自己同样发表严正声明：切勿以保护人权为名，干涉中国内政，立即无条件删除相关言论！记住这是在中国！！！<br><img src="http://ww3.sinaimg.cn/large/9063a9d4jw1eu4vv8m8l1j20k00oh76j.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3865342474748826" target="freeweibo-mirror">//@陶景洲:加拿大，已拿下...[晕] //@陈业文新大都…</a>
 </h2>
