@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3865681609282800" target="freeweibo-mirror">//@东岳晚晴://@虎叔-: 外科大夫，媒体要做大手术了</a>
+</h2>
+<p>//@东岳晚晴://@虎叔-: 外科大夫，媒体要做大手术了<br><br>RE: 好消息是，原广东省宣传部长庹震不再祸害广东了，坏消息是它升任副部长了。[挖鼻]<br><img src="http://ww3.sinaimg.cn/large/68b3dde5jw1eu5pvujkc4j20f00qoq5u.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3865646226125447" target="freeweibo-mirror">杂碎共党！//@-志士仁心: //@公正善良: //@刀锋论…</a>
 </h2>
 <p>杂碎共党！//@-志士仁心: //@公正善良: //@刀锋论:转发微博</p>
@@ -133,12 +139,6 @@
 <p>SPAM //@北林施兵: 强烈抗议加拿大政府粗暴干涉中国内政[怒骂][怒]<br><br>RE: 我认为，这是对中国内政的粗暴干涉。<br><img src="http://ww1.sinaimg.cn/large/41693645jw1eu5hhyinw8j20yi0vcn0p.jpg"></p>
 <p>
 	<small> ============== 9小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3865528110005376" target="freeweibo-mirror">@吴顾问1970:扭曲变态的制度！邪恶的组织！[哈哈]//@…</a>
-</h2>
-<p>@吴顾问1970:扭曲变态的制度！邪恶的组织！[哈哈]//@柏铭007:[抓狂]//@况秀猛: 一个邪灵.//@爱新觉罗载勋: 一个幽灵，一个迷信的幽灵在中国上空徘徊；胡万林、王林们的伏法，并不是幽灵的殒灭，幽灵是不会殒灭的。它飞快地变幻着形式，大江南北长城内外无时无处不有。迷信是因着空虚和没有信仰</p>
-<p>
-	<small> ============== 11小时前</small>
 </p>
 <table>
     <tr>
