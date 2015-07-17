@@ -24,7 +24,7 @@
 </h2>
 <p>SPAM  //@任志强:不是遗嘱！但是遗憾！ //@薛健同学:不是反思了，再不改就没机会了。<br><br>RE: 60多年了，要举国反思，要举党反思！ http://t.cn/RLcZg8y</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3865598851492358" target="freeweibo-mirror">@贺卫方 也是？ //@张鹤慈:回复@谢元:李洪志也是当年党…</a>
 </h2>
