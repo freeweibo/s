@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3865612038573641" target="freeweibo-mirror">SPAM 使钱啦？ [害羞]</a>
+</h2>
+<p>SPAM 使钱啦？ [害羞]<br><br>RE: 大大今天到中车长客股份看望大家了[嘻嘻][嘻嘻]<br><img src="http://ww3.sinaimg.cn/large/0068cZQ1jw1eu5nw4xkj1j30no0hsmye.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3865601527746490" target="freeweibo-mirror">SPAM  //@任志强:不是遗嘱！但是遗憾！ //@薛健同…</a>
 </h2>
 <p>SPAM  //@任志强:不是遗嘱！但是遗憾！ //@薛健同学:不是反思了，再不改就没机会了。<br><br>RE: 60多年了，要举国反思，要举党反思！ http://t.cn/RLcZg8y</p>
@@ -38,6 +44,12 @@
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3865578978865347" target="freeweibo-mirror">SPAM 馬上漲停？</a>
+</h2>
+<p>SPAM 馬上漲停？<br><br>RE: 大大今天到中车长客股份看望大家了[嘻嘻][嘻嘻]<br><img src="http://ww3.sinaimg.cn/large/0068cZQ1jw1eu5nw4xkj1j30no0hsmye.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3865554894988763" target="freeweibo-mirror">SPAM 回复@鱼儿amtf918: 股神呀[嘻嘻] //@…</a>
 </h2>
 <p>SPAM 回复@鱼儿amtf918: 股神呀[嘻嘻] //@鱼儿amtf918:周老师，昨晚学习您的文章，挑选了几个股票今天又都涨停了，尝试大胆买了一部分2339，竟然成功了，谢谢您谢谢 //@周思CIO:上证3740开了一枪，现在3900了，快200点了，周三尾盘周四早盘3688割肉的，很痛苦，追还是不追[哈哈]</p>
@@ -47,6 +59,12 @@
 	<a href="https://freeweibo.com/weibo/3865554689839284" target="freeweibo-mirror">//@建筑史教师万谦: @战争史研究WHS: 够阴坏的//@…</a>
 </h2>
 <p>//@建筑史教师万谦: @战争史研究WHS: 够阴坏的//@C纯小纯H:吴为了黑可以不看79年的1609，只盯着1453，也只敢截到80年，因为81年就是1818并一路增到2500，也不敢查水灾年表，因为80年江淮都有洪水，安徽受灾。//@庐州骑都尉:80年江淮大水粮食减产，次年就增长，吴不说这事，断章取义</p>
+<p>
+	<small> ============== 5小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3865553888045005" target="freeweibo-mirror">60多年了，要举国反思，要举党反思！ http://t.cn…</a>
+</h2>
+<p>60多年了，要举国反思，要举党反思！ http://t.cn/RLcZg8y</p>
 <p>
 	<small> ============== 5小时前</small>
 </p><h2>
@@ -60,7 +78,7 @@
 </h2>
 <p>@吴顾问1970:扭曲变态的制度！邪恶的组织！[哈哈]//@柏铭007:[抓狂]//@况秀猛: 一个邪灵.//@爱新觉罗载勋: 一个幽灵，一个迷信的幽灵在中国上空徘徊；胡万林、王林们的伏法，并不是幽灵的殒灭，幽灵是不会殒灭的。它飞快地变幻着形式，大江南北长城内外无时无处不有。迷信是因着空虚和没有信仰</p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3865516152476301" target="freeweibo-mirror">我认为，这是对中国内政的粗暴干涉。</a>
 </h2>
@@ -119,24 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3865340679744324" target="freeweibo-mirror">忙着抓律师，股市能不跌吗 //@陈业文新大都:[赞] //@…</a>
 </h2>
 <p>忙着抓律师，股市能不跌吗 //@陈业文新大都:[赞] //@隆裕太后:大使馆这条消息，已经只能看不能转，所以，就……你懂的。@加拿大大使馆官方微博<br><br>RE: 今晚加拿大官方微博怎么了？为什么要发表声明？不要干涉中国内政！中国政 府有能力有条件有信心（这三句跟股市维稳一样）处理好一切国内事务，不须要境外势力指手划脚说三道四，本博代表自己同样发表严正声明：切勿以保护人权为名，干涉中国内政，立即无条件删除相关言论！记住这是在中国！！！<br><img src="http://ww3.sinaimg.cn/large/9063a9d4jw1eu4vv8m8l1j20k00oh76j.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3865340444463297" target="freeweibo-mirror">我大天朝有三个自信还怕@加拿大大使馆官方微博 干涉！</a>
-</h2>
-<p>我大天朝有三个自信还怕@加拿大大使馆官方微博 干涉！<br><br>RE: 今晚加拿大官方微博怎么了？为什么要发表声明？不要干涉中国内政！中国政 府有能力有条件有信心（这三句跟股市维稳一样）处理好一切国内事务，不须要境外势力指手划脚说三道四，本博代表自己同样发表严正声明：切勿以保护人权为名，干涉中国内政，立即无条件删除相关言论！记住这是在中国！！！<br><img src="http://ww3.sinaimg.cn/large/9063a9d4jw1eu4vv8m8l1j20k00oh76j.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3865327718937851" target="freeweibo-mirror">今晚加拿大官方微博怎么了？为什么要发表声明？不要干涉中国内政…</a>
-</h2>
-<p>今晚加拿大官方微博怎么了？为什么要发表声明？不要干涉中国内政！中国政 府有能力有条件有信心（这三句跟股市维稳一样）处理好一切国内事务，不须要境外势力指手划脚说三道四，本博代表自己同样发表严正声明：切勿以保护人权为名，干涉中国内政，立即无条件删除相关言论！记住这是在中国！！！<br><img src="http://ww3.sinaimg.cn/large/9063a9d4jw1eu4vv8m8l1j20k00oh76j.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3865314913978431" target="freeweibo-mirror">//@我是伏起://@瞽聋: //@五哥放羊40: 转发微博</a>
-</h2>
-<p>//@我是伏起://@瞽聋: //@五哥放羊40: 转发微博</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
