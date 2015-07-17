@@ -42,7 +42,7 @@
 </h2>
 <p>SPAM [闭嘴]//@LifeTime: //@jlijames:又来了个境外敌对势力[挖鼻]//@梅虔:失道寡助！<br><br>RE: 分享图片<br><img src="http://ww2.sinaimg.cn/large/594607fbjw1eu4xvw4pwqj20k00ohgnl.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3865355405736854" target="freeweibo-mirror">除了强烈抗议还能干什么，世界在某些人眼里算个鸟。</a>
 </h2>
