@@ -36,7 +36,7 @@
 </h2>
 <p>SPAM  //@全球评点-:挺薄，救中国！ //@新豪哥之冷锋南下:挺薄，救中国！//@zcl780000: //@我是三连一小兵: 挺薄救中国//@静夜之笋悄悄长7://@正东迎朝阳: 挺薄，救中国！//@胤佚胤佚: //@佛道合一://@中国心J:挺薄，救中国！</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3865770406876621" target="freeweibo-mirror">SPAM //@大明一派2012:[衰]//@陈-信滔://…</a>
 </h2>
@@ -102,7 +102,7 @@
 </h2>
 <p>分享图片这又咋了？？[群体围观][群体围观][群体围观][群体围观][群体围观]<br><img src="http://ww2.sinaimg.cn/large/006aqmOtjw1eu64kdvj6dj30go0bl0vj.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3865715017191651" target="freeweibo-mirror">2006年，胡锦涛不露声色地使出杀手锏——震动国内外的、中国…</a>
 </h2>
