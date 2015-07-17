@@ -42,7 +42,7 @@
 </h2>
 <p>SPAM 不只是夏天，我看秋天，冬天，还有春天，天天都值得托付给@NATUNA童装 //@NATUNA童装:[来] 来约！缤纷舒服的夏天，托付给NATUNA吧！</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3865681609282800" target="freeweibo-mirror">//@东岳晚晴://@虎叔-: 外科大夫，媒体要做大手术了</a>
 </h2>
@@ -138,7 +138,7 @@
 </h2>
 <p>SPAM 馬上漲停？<br><br>RE: 大大今天到中车长客股份看望大家了[嘻嘻][嘻嘻]<br><img src="http://ww3.sinaimg.cn/large/0068cZQ1jw1eu5nw4xkj1j30no0hsmye.jpg"></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p>
 <table>
     <tr>
