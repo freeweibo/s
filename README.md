@@ -54,7 +54,7 @@
 </h2>
 <p>→_→→_→//@甄_彦:[生病]//@ROC917: 广东人民不厚道，公然排污。</p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3865627787898803" target="freeweibo-mirror">//@新财富杂志:【证金公司弹药曝光：获商业银行授信约2万亿…</a>
 </h2>
@@ -66,7 +66,7 @@
 </h2>
 <p>SPAM 为什么要是周二？为什么还要等到周二？为什么？</p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3865612038573641" target="freeweibo-mirror">SPAM 使钱啦？ [害羞]</a>
 </h2>
