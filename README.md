@@ -48,7 +48,7 @@
 </h2>
 <p>除了强烈抗议还能干什么，世界在某些人眼里算个鸟。<br><br>RE: 该来的都会来。<br><img src="http://ww2.sinaimg.cn/large/6f0978aajw1eu4ywwmgmgj20hs0vk0wi.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3865354281785385" target="freeweibo-mirror">该来的都会来。</a>
 </h2>
