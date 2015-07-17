@@ -54,7 +54,7 @@
 </h2>
 <p>我认为，这是对中国内政的粗暴干涉。<br><img src="http://ww1.sinaimg.cn/large/41693645jw1eu5hhyinw8j20yi0vcn0p.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3865381175067823" target="freeweibo-mirror">//@好火药://@喷嚏网铂程: 转发微博</a>
 </h2>
