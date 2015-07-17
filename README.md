@@ -26,6 +26,12 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3865749511207467" target="freeweibo-mirror">SPAM 民心就是这样一点点丧失滴//@孚孚是臭美蛋://@…</a>
+</h2>
+<p>SPAM 民心就是这样一点点丧失滴//@孚孚是臭美蛋://@王有旺导演: //@lianglun1996: //@禾星来客: //@深川胡骏: //@守望曙光2://@少康006://@江西新余黄慧敏2: 转发微博<br><br>RE: 分享图片这又咋了？？[群体围观][群体围观][群体围观][群体围观][群体围观]<br><img src="http://ww2.sinaimg.cn/large/006aqmOtjw1eu64kdvj6dj30go0bl0vj.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3865725146273411" target="freeweibo-mirror">带路党的干爹赞扬以双规来反腐，批评以执法约谈来反死磕，这种选…</a>
 </h2>
 <p>带路党的干爹赞扬以双规来反腐，批评以执法约谈来反死磕，这种选择性标准和人权有关吗？[思考] //@王鹏律师:小浪给他删除了，赶紧给他注销账号，限制发言！ //@观世音童:小秘书动手吧。[偷笑] //@木尔:[话筒][话筒][话筒]且看外交部会怎么回应？//@胡坤821: [话筒]//@朱孝顶律师: [话筒][话筒][话筒]</p>
@@ -72,7 +78,7 @@
 </h2>
 <p>//@东岳晚晴://@虎叔-: 外科大夫，媒体要做大手术了<br><br>RE: 好消息是，原广东省宣传部长庹震不再祸害广东了，坏消息是它升任副部长了。[挖鼻]<br><img src="http://ww3.sinaimg.cn/large/68b3dde5jw1eu5pvujkc4j20f00qoq5u.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3865646226125447" target="freeweibo-mirror">杂碎共党！//@-志士仁心: //@公正善良: //@刀锋论…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3865589464601283" target="freeweibo-mirror">好消息是，原广东省宣传部长庹震不再祸害广东了，坏消息是它升任…</a>
 </h2>
 <p>好消息是，原广东省宣传部长庹震不再祸害广东了，坏消息是它升任副部长了。[挖鼻]<br><img src="http://ww3.sinaimg.cn/large/68b3dde5jw1eu5pvujkc4j20f00qoq5u.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3865585085792480" target="freeweibo-mirror">SPAM 习近平今日到中车长客股份考察，中国中车午后快速拉涨…</a>
-</h2>
-<p>SPAM 习近平今日到中车长客股份考察，中国中车午后快速拉涨，目前涨6%。<br><br>RE: 大大今天到中车长客股份看望大家了[嘻嘻][嘻嘻]<br><img src="http://ww3.sinaimg.cn/large/0068cZQ1jw1eu5nw4xkj1j30no0hsmye.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
