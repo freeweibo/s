@@ -48,7 +48,7 @@
 </h2>
 <p>SPAM 馬上漲停？<br><br>RE: 大大今天到中车长客股份看望大家了[嘻嘻][嘻嘻]<br><img src="http://ww3.sinaimg.cn/large/0068cZQ1jw1eu5nw4xkj1j30no0hsmye.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3865554894988763" target="freeweibo-mirror">SPAM 回复@鱼儿amtf918: 股神呀[嘻嘻] //@…</a>
 </h2>
