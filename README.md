@@ -60,7 +60,7 @@
 </h2>
 <p>分享图片这又咋了？？[群体围观][群体围观][群体围观][群体围观][群体围观]<br><img src="http://ww2.sinaimg.cn/large/006aqmOtjw1eu64kdvj6dj30go0bl0vj.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3865705303058496" target="freeweibo-mirror">如果美国公布并冻结土匪及其家属在美的资产，呼吁多年的财产公开…</a>
 </h2>
