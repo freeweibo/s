@@ -24,7 +24,7 @@
 </h2>
 <p>//@导演高晓舰小号: //@荷兰通讯://@公民专注: //@梁山汉: //@灵魂再战D://@SANGMING46204://@花前一壶酒11111: //@青山仍妩媚:转发微博<br><br>RE: 美国作出强烈反应，拟立法实施经济制裁。<br><img src="http://ww4.sinaimg.cn/large/006a8pRzjw1eu731ol3apj30f612jqbg.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3866050854715474" target="freeweibo-mirror">SPAM 不相信 //@红星闪闪少帅11:我下午就有在微信朋…</a>
 </h2>
@@ -48,7 +48,7 @@
 </h2>
 <p>真的假的啊？？@问沉1<br><img src="http://ww2.sinaimg.cn/large/e903ec9cjw1eu75pdzl4gj20u01hc193.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3866032169183490" target="freeweibo-mirror">SPAM 心缺良善，言行必恶毒； 心缺美德，言行必下流； 心…</a>
 </h2>
@@ -62,6 +62,12 @@
 <p>
 	<small> ============== 4小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3866017782944649" target="freeweibo-mirror">美国作出强烈反应，拟立法实施经济制裁。</a>
+</h2>
+<p>美国作出强烈反应，拟立法实施经济制裁。<br><img src="http://ww4.sinaimg.cn/large/006a8pRzjw1eu731ol3apj30f612jqbg.jpg"></p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3866013365821724" target="freeweibo-mirror">SPAM 这都什么样的蠢猪啊//@汴人郭威: 支持楼主，不能…</a>
 </h2>
 <p>SPAM 这都什么样的蠢猪啊//@汴人郭威: 支持楼主，不能忍，现在就起事吧。<br><br>RE: 预告：亲，本博主感觉中国已经快到了“官逼民反”的临界点了，如果本博主因言获罪，那出狱后本博主会第一个带头造反！</p>
@@ -72,19 +78,19 @@
 </h2>
 <p>SPAM 同右。 //@断刃天涯:别等以后啊，现在就造反呗。//@平民王小石: [哈哈]//@裸枪:要尊重每个人的选择！别放他出来不就行了嘛！//@狼阿姨:博主的中二病得的时间也是够久的… //@多摩的狸子:操你妈个傻逼，你有种反反试试~~~//@市井菜贩孙胖猫: 不造反你就是你就是你爷和你姐生的<br><br>RE: 预告：亲，本博主感觉中国已经快到了“官逼民反”的临界点了，如果本博主因言获罪，那出狱后本博主会第一个带头造反！</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3866010535324391" target="freeweibo-mirror">SPAM 嘴炮无敌，进去就尿！不反是狗娘养的！ //@天真纯…</a>
 </h2>
 <p>SPAM 嘴炮无敌，进去就尿！不反是狗娘养的！ //@天真纯洁布列斯:[笑cry]//@市井菜贩孙胖猫:不造反你就是你就是你爷和你姐生的<br><br>RE: 预告：亲，本博主感觉中国已经快到了“官逼民反”的临界点了，如果本博主因言获罪，那出狱后本博主会第一个带头造反！</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3866010433831495" target="freeweibo-mirror">SPAM [弱] //@贺江兵:[挖鼻] //@五岳散人:[…</a>
 </h2>
 <p>SPAM [弱] //@贺江兵:[挖鼻] //@五岳散人:[嘻嘻]<br><br>RE: 既有死磕，亦有活舔。<br><img src="http://ww3.sinaimg.cn/large/5d098bccjw1eu71ek2rm1j20gn0cc40o.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3866008093920273" target="freeweibo-mirror">新中国成立后发生过多起称帝、建国、造反事件。多数被片儿警平定…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3865965391548190" target="freeweibo-mirror">搞台独否认两岸同属于一个中国就是在十三亿大陆人民搞对抗！//…</a>
 </h2>
 <p>搞台独否认两岸同属于一个中国就是在十三亿大陆人民搞对抗！//@率率王乐妮99:老友们，俺今天关注已满，明天回粉啊[爱你][心]//@云嵩X: //@大光圈中焦5://@度日琢心1://@盐光水灵Isabel:好文！//@sibyl姐:反革命不准放屁，我们还要继续做中国梦呢。<br><br>RE: 曹長青： “民主時刻表”的黎明。[ok][加油啊]<br><img src="http://ww3.sinaimg.cn/large/0067hSajgw1eu6lsyop11j30c33aztyi.jpg"></p>
-<p>
-	<small> ============== 7小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3865956172901316" target="freeweibo-mirror">放下拿砖的左手试试！ //@移动购物://@雜面一碗: 尼瑪…</a>
-</h2>
-<p>放下拿砖的左手试试！ //@移动购物://@雜面一碗: 尼瑪，命根子不要了，好羞！</p>
 <p>
 	<small> ============== 8小时前</small>
 </p>
