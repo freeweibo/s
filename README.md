@@ -24,7 +24,7 @@
 </h2>
 <p>宇宙真理不会错，自信！ //@呱代:谁监督党？谁制约党？万一党错了呢？//@汶金让:党指挥枪始终是人民军队的立军之本、建军之魂，是军队最高的政治纪律和政治规矩。[心][话筒]</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3865823951047539" target="freeweibo-mirror">//@雨幕中正://@一品九醉://@老衲法号_册空: //…</a>
 </h2>
@@ -72,13 +72,13 @@
 </h2>
 <p>SPAM [衰]//@陈-信滔://@李国斌律师: 这是连孩子都不放过的共产党？</p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3865750462826611" target="freeweibo-mirror">//@孚孚是臭美蛋://@王有旺导演: //@lianglu…</a>
 </h2>
 <p>//@孚孚是臭美蛋://@王有旺导演: //@lianglun1996: //@禾星来客: //@深川胡骏: //@守望曙光2://@少康006://@江西新余黄慧敏2: 转发微博<br><br>RE: 分享图片这又咋了？？[群体围观][群体围观][群体围观][群体围观][群体围观]<br><img src="http://ww2.sinaimg.cn/large/006aqmOtjw1eu64kdvj6dj30go0bl0vj.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3865749511207467" target="freeweibo-mirror">SPAM 民心就是这样一点点丧失滴//@孚孚是臭美蛋://@…</a>
 </h2>
