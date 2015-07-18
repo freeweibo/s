@@ -72,7 +72,7 @@
 </h2>
 <p>SPAM 以卵击石，在高大坚硬的墙和鸡蛋之间，我永远站在鸡蛋那方。--村上春树<br><img src="http://ww3.sinaimg.cn/large/41693645jw1eu6okqyuw9j20dc08cjrs.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3865878762729163" target="freeweibo-mirror">日本民众抗议安保法案……也有海外敌对势力混迹其间[喵喵]</a>
 </h2>
