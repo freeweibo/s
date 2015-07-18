@@ -114,7 +114,7 @@
 </h2>
 <p>//@黎勇01:转发微博<br><br>RE: 铁流终于认罪了，TG没有办不下的案子<br><img src="http://ww4.sinaimg.cn/large/afe73c55jw1eu5g8434kkj20b71qh7b7.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3865718720818701" target="freeweibo-mirror">//@一品泥人:转发微博</a>
 </h2>
