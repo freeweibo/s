@@ -26,6 +26,12 @@
 <p>
 	<small> ============== 1小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3865955874783557" target="freeweibo-mirror">秦始皇算什么？焚书坑儒只不过坑掉460个人，而我镇压反革命一…</a>
+</h2>
+<p>秦始皇算什么？焚书坑儒只不过坑掉460个人，而我镇压反革命一次就干掉几十万，我是秦始皇的一百倍。——毛泽东 //@xh云中散步: //@皮革鞋盒: //@一品泥人V: //@-x星c辰-D31:转发微博</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3865949952062429" target="freeweibo-mirror">回复@简T-T:[思考]你觉得他会尴尬？你是以中国人特有的“…</a>
 </h2>
 <p>回复@简T-T:[思考]你觉得他会尴尬？你是以中国人特有的“日本人在中国一定会尴尬”的思维来想象“中国人在日本”的情形吧，面向蓝天面向地球，不要受局域网局限，思维再开阔一些。//@简T-T:他这身份在日本也很尴尬吧……//@梦晨伤:啊……//@旺喜39:7'8'9张惊现变态辣椒[偷笑]<br><br>RE: 日本民众抗议安保法案……也有海外敌对势力混迹其间[喵喵]<br><img src="http://ww3.sinaimg.cn/large/0066l7Gzjw1eu6n4hq2w2j30sg0lcn1e.jpg"></p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3865746532285364" target="freeweibo-mirror">//@小欣的家园05:转发微博</a>
 </h2>
 <p>//@小欣的家园05:转发微博<br><br>RE: 古语说：得道多助，失道寡助。<br><img src="http://ww4.sinaimg.cn/large/0068SFEdjw1eu67mide86j30k00zkgoq.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3865743554258666" target="freeweibo-mirror">古语说：得道多助，失道寡助。</a>
-</h2>
-<p>古语说：得道多助，失道寡助。<br><img src="http://ww4.sinaimg.cn/large/0068SFEdjw1eu67mide86j30k00zkgoq.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
