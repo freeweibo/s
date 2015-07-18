@@ -66,7 +66,7 @@
 </h2>
 <p>美国作出强烈反应，拟立法实施经济制裁。<br><img src="http://ww4.sinaimg.cn/large/006a8pRzjw1eu731ol3apj30f612jqbg.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3866013365821724" target="freeweibo-mirror">SPAM 这都什么样的蠢猪啊//@汴人郭威: 支持楼主，不能…</a>
 </h2>
