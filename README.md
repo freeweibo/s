@@ -30,7 +30,7 @@
 </h2>
 <p>SPAM 以卵击石，在高大坚硬的墙和鸡蛋之间，我永远站在鸡蛋那方。--村上春树<br><img src="http://ww3.sinaimg.cn/large/41693645jw1eu6okqyuw9j20dc08cjrs.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3865864355282459" target="freeweibo-mirror">//@何榕树: //@贺凯K: //@王小山://@袁裕来律…</a>
 </h2>
@@ -84,7 +84,7 @@
 </h2>
 <p>SPAM //@大明一派2012:[衰]//@陈-信滔://@李国斌律师: 这是连孩子都不放过的共产党？</p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3865764908063314" target="freeweibo-mirror">SPAM [衰]//@陈-信滔://@李国斌律师: 这是连孩…</a>
 </h2>
