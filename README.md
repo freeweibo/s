@@ -66,7 +66,7 @@
 </h2>
 <p>日本民众抗议安保法案……也有海外敌对势力混迹其间[喵喵]<br><img src="http://ww3.sinaimg.cn/large/0066l7Gzjw1eu6n4hq2w2j30sg0lcn1e.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3865867027090542" target="freeweibo-mirror">曹長青： “民主時刻表”的黎明。[ok][加油啊]</a>
 </h2>
