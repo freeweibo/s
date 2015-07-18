@@ -42,7 +42,7 @@
 </h2>
 <p>SPAM 除了时间，长春舰已经奥巴马，习总之外和98年的段子一模一样！博眼球转发量赚钱而已！总有2B转！//@张东方微博:感觉不真实//@美丽资阳我的家://@红星闪闪少帅11: 我下午就有在微信朋友圈看到//@问沉1:刚也看到这个消息，不知真假，求证！<br><br>RE: 真的假的啊？？@问沉1<br><img src="http://ww2.sinaimg.cn/large/e903ec9cjw1eu75pdzl4gj20u01hc193.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3866045284486391" target="freeweibo-mirror">[吃惊][吃惊]</a>
 </h2>
