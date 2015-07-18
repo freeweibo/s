@@ -20,6 +20,24 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3865903797843869" target="freeweibo-mirror">广州见！(这是之前被屏蔽的)</a>
+</h2>
+<p>广州见！(这是之前被屏蔽的)</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3865891152719183" target="freeweibo-mirror">SPAM 以卵击石，在高大坚硬的墙和鸡蛋之间，我永远站在鸡蛋…</a>
+</h2>
+<p>SPAM 以卵击石，在高大坚硬的墙和鸡蛋之间，我永远站在鸡蛋那方。--村上春树<br><img src="http://ww3.sinaimg.cn/large/41693645jw1eu6okqyuw9j20dc08cjrs.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3865864355282459" target="freeweibo-mirror">//@何榕树: //@贺凯K: //@王小山://@袁裕来律…</a>
+</h2>
+<p>//@何榕树: //@贺凯K: //@王小山://@袁裕来律师: 见到这个视频的，请应该转发一下。</p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3865856205538730" target="freeweibo-mirror">宇宙真理不会错，自信！ //@呱代:谁监督党？谁制约党？万一…</a>
 </h2>
 <p>宇宙真理不会错，自信！ //@呱代:谁监督党？谁制约党？万一党错了呢？//@汶金让:党指挥枪始终是人民军队的立军之本、建军之魂，是军队最高的政治纪律和政治规矩。[心][话筒]</p>
@@ -36,7 +54,7 @@
 </h2>
 <p>回复@王志钊不是作神:穆斯林就和同性恋一样，他们在个人世界如何去搞，本没人介意，也没人有兴趣评价。但搞到成为公共事件 社会新闻，甚至迫使当政者都得对他们放开规则，政治上表态支持认可，这就不是尊重个别群体权力的问题。对社会的规则秩序，其他群体当然可以提出不赞同和批评反对，为什么旁人只能认可、不得反对呢？</p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3865783279159071" target="freeweibo-mirror">友友夜安//@愚公故里在萌动:陈、薄全都是政治上不成熟，对中…</a>
 </h2>
@@ -84,7 +102,7 @@
 </h2>
 <p>SPAM 民心就是这样一点点丧失滴//@孚孚是臭美蛋://@王有旺导演: //@lianglun1996: //@禾星来客: //@深川胡骏: //@守望曙光2://@少康006://@江西新余黄慧敏2: 转发微博<br><br>RE: 分享图片这又咋了？？[群体围观][群体围观][群体围观][群体围观][群体围观]<br><img src="http://ww2.sinaimg.cn/large/006aqmOtjw1eu64kdvj6dj30go0bl0vj.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3865746532285364" target="freeweibo-mirror">//@小欣的家园05:转发微博</a>
 </h2>
@@ -119,24 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3865718720818701" target="freeweibo-mirror">//@一品泥人:转发微博</a>
 </h2>
 <p>//@一品泥人:转发微博</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3865717063025554" target="freeweibo-mirror">分享图片这又咋了？？[群体围观][群体围观][群体围观][群…</a>
-</h2>
-<p>分享图片这又咋了？？[群体围观][群体围观][群体围观][群体围观][群体围观]<br><img src="http://ww2.sinaimg.cn/large/006aqmOtjw1eu64kdvj6dj30go0bl0vj.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3865715017191651" target="freeweibo-mirror">2006年，胡锦涛不露声色地使出杀手锏——震动国内外的、中国…</a>
-</h2>
-<p>2006年，胡锦涛不露声色地使出杀手锏——震动国内外的、中国版的“斩首行动”。当年J的心腹、也是其定下的接替胡锦涛的人选——陈良宇，在“十七大”之前落马，提前出局。9月24日早上8时，陈良宇乘中央派遣的专机到北京出席十六届六中全会筹备会议，当陈良宇抵达北京后，即被中纪委宣布“双规”。<br><img src="http://ww1.sinaimg.cn/large/0061laFSjw1eu64651wnsj305u05laa9.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3865705303058496" target="freeweibo-mirror">如果美国公布并冻结土匪及其家属在美的资产，呼吁多年的财产公开…</a>
-</h2>
-<p>如果美国公布并冻结土匪及其家属在美的资产，呼吁多年的财产公开就实现了，简直了！</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
