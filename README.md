@@ -24,7 +24,7 @@
 </h2>
 <p>搞台独否认两岸同属于一个中国就是在十三亿大陆人民搞对抗！//@率率王乐妮99:老友们，俺今天关注已满，明天回粉啊[爱你][心]//@云嵩X: //@大光圈中焦5://@度日琢心1://@盐光水灵Isabel:好文！//@sibyl姐:反革命不准放屁，我们还要继续做中国梦呢。<br><br>RE: 曹長青： “民主時刻表”的黎明。[ok][加油啊]<br><img src="http://ww3.sinaimg.cn/large/0067hSajgw1eu6lsyop11j30c33aztyi.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3865956172901316" target="freeweibo-mirror">放下拿砖的左手试试！ //@移动购物://@雜面一碗: 尼瑪…</a>
 </h2>
@@ -42,7 +42,7 @@
 </h2>
 <p>回复@简T-T:[思考]你觉得他会尴尬？你是以中国人特有的“日本人在中国一定会尴尬”的思维来想象“中国人在日本”的情形吧，面向蓝天面向地球，不要受局域网局限，思维再开阔一些。//@简T-T:他这身份在日本也很尴尬吧……//@梦晨伤:啊……//@旺喜39:7'8'9张惊现变态辣椒[偷笑]<br><br>RE: 日本民众抗议安保法案……也有海外敌对势力混迹其间[喵喵]<br><img src="http://ww3.sinaimg.cn/large/0066l7Gzjw1eu6n4hq2w2j30sg0lcn1e.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3865947875931624" target="freeweibo-mirror">SPAM 啊……//@旺喜39:7'8'9张惊现变态辣椒[偷…</a>
 </h2>
@@ -67,6 +67,12 @@
 <p>日本民众抗议安保法案……也有海外敌对势力混迹其间[喵喵]<br><img src="http://ww3.sinaimg.cn/large/0066l7Gzjw1eu6n4hq2w2j30sg0lcn1e.jpg"></p>
 <p>
 	<small> ============== 7小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3865867027090542" target="freeweibo-mirror">曹長青： “民主時刻表”的黎明。[ok][加油啊]</a>
+</h2>
+<p>曹長青： “民主時刻表”的黎明。[ok][加油啊]<br><img src="http://ww3.sinaimg.cn/large/0067hSajgw1eu6lsyop11j30c33aztyi.jpg"></p>
+<p>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3865864355282459" target="freeweibo-mirror">//@何榕树: //@贺凯K: //@王小山://@袁裕来律…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3865750462826611" target="freeweibo-mirror">//@孚孚是臭美蛋://@王有旺导演: //@lianglu…</a>
 </h2>
 <p>//@孚孚是臭美蛋://@王有旺导演: //@lianglun1996: //@禾星来客: //@深川胡骏: //@守望曙光2://@少康006://@江西新余黄慧敏2: 转发微博<br><br>RE: 分享图片这又咋了？？[群体围观][群体围观][群体围观][群体围观][群体围观]<br><img src="http://ww2.sinaimg.cn/large/006aqmOtjw1eu64kdvj6dj30go0bl0vj.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3865749511207467" target="freeweibo-mirror">SPAM 民心就是这样一点点丧失滴//@孚孚是臭美蛋://@…</a>
-</h2>
-<p>SPAM 民心就是这样一点点丧失滴//@孚孚是臭美蛋://@王有旺导演: //@lianglun1996: //@禾星来客: //@深川胡骏: //@守望曙光2://@少康006://@江西新余黄慧敏2: 转发微博<br><br>RE: 分享图片这又咋了？？[群体围观][群体围观][群体围观][群体围观][群体围观]<br><img src="http://ww2.sinaimg.cn/large/006aqmOtjw1eu64kdvj6dj30go0bl0vj.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
