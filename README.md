@@ -72,7 +72,7 @@
 </h2>
 <p>[吃惊][吃惊]<br><br>RE: 南海战斗已经打响，以击沉菲律宾军舰一艘，其它有待中央新闻核实……</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3866040394250135" target="freeweibo-mirror">真的假的啊？？@问沉1</a>
 </h2>
