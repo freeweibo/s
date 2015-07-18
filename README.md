@@ -96,7 +96,7 @@
 </h2>
 <p>//@孚孚是臭美蛋://@王有旺导演: //@lianglun1996: //@禾星来客: //@深川胡骏: //@守望曙光2://@少康006://@江西新余黄慧敏2: 转发微博<br><br>RE: 分享图片这又咋了？？[群体围观][群体围观][群体围观][群体围观][群体围观]<br><img src="http://ww2.sinaimg.cn/large/006aqmOtjw1eu64kdvj6dj30go0bl0vj.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3865749511207467" target="freeweibo-mirror">SPAM 民心就是这样一点点丧失滴//@孚孚是臭美蛋://@…</a>
 </h2>
