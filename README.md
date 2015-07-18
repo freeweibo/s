@@ -72,7 +72,7 @@
 </h2>
 <p>曹長青： “民主時刻表”的黎明。[ok][加油啊]<br><img src="http://ww3.sinaimg.cn/large/0067hSajgw1eu6lsyop11j30c33aztyi.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3865864355282459" target="freeweibo-mirror">//@何榕树: //@贺凯K: //@王小山://@袁裕来律…</a>
 </h2>
