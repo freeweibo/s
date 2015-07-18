@@ -90,7 +90,7 @@
 </h2>
 <p>//@小欣的家园05:转发微博<br><br>RE: 古语说：得道多助，失道寡助。<br><img src="http://ww4.sinaimg.cn/large/0068SFEdjw1eu67mide86j30k00zkgoq.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3865743554258666" target="freeweibo-mirror">古语说：得道多助，失道寡助。</a>
 </h2>
