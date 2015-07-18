@@ -90,7 +90,7 @@
 </h2>
 <p>SPAM [衰]//@陈-信滔://@李国斌律师: 这是连孩子都不放过的共产党？</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3865750462826611" target="freeweibo-mirror">//@孚孚是臭美蛋://@王有旺导演: //@lianglu…</a>
 </h2>
