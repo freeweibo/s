@@ -30,7 +30,7 @@
 </h2>
 <p>SPAM 不相信 //@红星闪闪少帅11:我下午就有在微信朋友圈看到//@问沉1:刚也看到这个消息，不知真假，求证！<br><br>RE: 真的假的啊？？@问沉1<br><img src="http://ww2.sinaimg.cn/large/e903ec9cjw1eu75pdzl4gj20u01hc193.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3866049919622030" target="freeweibo-mirror">SPAM 除了时间，长春舰已经奥巴马，习总之外和98年的段子…</a>
 </h2>
