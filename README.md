@@ -60,7 +60,7 @@
 </h2>
 <p>SPAM 7月17日是今年斋月最后一天，晚22时15分许，张春贤来到新疆伊斯兰教经文学校餐厅，与伊斯兰教界人士共进开斋饭并致辞：斋月是穆斯林群众一年中最尊贵、最吉祥的月份，也是广大穆斯林净化身心、磨练意志、思考体悟教义的时间。伊斯兰教是倡导“和平、团结”的宗教。[哼] 呸！<br><img src="http://ww2.sinaimg.cn/large/562bc1d7jw1eu6b73kfugj20m80eswgx.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3865770406876621" target="freeweibo-mirror">SPAM //@大明一派2012:[衰]//@陈-信滔://…</a>
 </h2>
@@ -96,7 +96,7 @@
 </h2>
 <p>古语说：得道多助，失道寡助。<br><img src="http://ww4.sinaimg.cn/large/0068SFEdjw1eu67mide86j30k00zkgoq.jpg"></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3865725146273411" target="freeweibo-mirror">带路党的干爹赞扬以双规来反腐，批评以执法约谈来反死磕，这种选…</a>
 </h2>
