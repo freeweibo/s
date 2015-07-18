@@ -24,13 +24,13 @@
 </h2>
 <p>SPAM 活坑他爹<br><br>RE: #北京突发#【一醉酒男子抢车后连撞7车和2人[话筒]】@京华时报 ：今天上午望京望花路，一男子驾车逆行撞上一辆出租，踹车并用铁棍砸车后，阻拦其它行车并殴打路人。多名目击者称男子浑身酒气，警车靠近时，男子又驾驶被拦的一辆奥迪车逃离，期间连撞7辆汽车，刮蹭一辆电动车和撞飞一名60多岁老人。<br><img src="http://ww1.sinaimg.cn/large/63136032jw1eu6xg392ruj20k00qo77s.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3865968633937317" target="freeweibo-mirror">#北京突发#【一醉酒男子抢车后连撞7车和2人[话筒]】@京华…</a>
 </h2>
 <p>#北京突发#【一醉酒男子抢车后连撞7车和2人[话筒]】@京华时报 ：今天上午望京望花路，一男子驾车逆行撞上一辆出租，踹车并用铁棍砸车后，阻拦其它行车并殴打路人。多名目击者称男子浑身酒气，警车靠近时，男子又驾驶被拦的一辆奥迪车逃离，期间连撞7辆汽车，刮蹭一辆电动车和撞飞一名60多岁老人。<br><img src="http://ww1.sinaimg.cn/large/63136032jw1eu6xg392ruj20k00qo77s.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3865965391548190" target="freeweibo-mirror">搞台独否认两岸同属于一个中国就是在十三亿大陆人民搞对抗！//…</a>
 </h2>
@@ -78,7 +78,7 @@
 </h2>
 <p>日本民众抗议安保法案……也有海外敌对势力混迹其间[喵喵]<br><img src="http://ww3.sinaimg.cn/large/0066l7Gzjw1eu6n4hq2w2j30sg0lcn1e.jpg"></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3865867027090542" target="freeweibo-mirror">曹長青： “民主時刻表”的黎明。[ok][加油啊]</a>
 </h2>
