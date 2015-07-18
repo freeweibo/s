@@ -20,6 +20,48 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3866101576596502" target="freeweibo-mirror">SPAM  //@于晓非微博://@无欲之崖: [伤心] […</a>
+</h2>
+<p>SPAM  //@于晓非微博://@无欲之崖: [伤心] [悲伤] [赞] [拳头] [赞]<br><br>RE: 有企业家站出来发声！ http://t.cn/z8yZzb8<br><img src="http://ww4.sinaimg.cn/large/52ca06cfjw1eu74sgfx12j20hs56iqpv.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3866101484065072" target="freeweibo-mirror">//@社会罗宾汉:[思考] //@周泽律师:他们还能在法院没…</a>
+</h2>
+<p>//@社会罗宾汉:[思考] //@周泽律师:他们还能在法院没判就把当事人搞得罪大恶极！<br><br>RE: 我最佩服的记者，就是人民日报的黄庆畅和新华社的邹伟了！他们总是能搞到独家！他们总是能够采访到律师都见不到的当事人！http://t.cn/RLfs0oE</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3866101220376045" target="freeweibo-mirror">SPAM //@火星老妖蛇: [good] //@曾家山-居…</a>
+</h2>
+<p>SPAM //@火星老妖蛇: [good] //@曾家山-居士: //@迷与悟-adc://@皓宇楠-: //@石头汉3://@武昌万岁:恐惧像掩上来的夜色，越来越黑越浓，可是，随后，黎明就到来了。//@大气PANGBO://@自由水和阳光: //@天亮了gg: //@无欲之崖:[伤心][悲伤][赞][拳头][赞]//@红尘有缺-无际://@西之壺洀://@李念奴是我:<br><br>RE: 有企业家站出来发声！ http://t.cn/z8yZzb8<br><img src="http://ww4.sinaimg.cn/large/52ca06cfjw1eu74sgfx12j20hs56iqpv.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3866097298538486" target="freeweibo-mirror">御用不一定有快感，很多女同志都这样说。[哈哈]//@aman…</a>
+</h2>
+<p>御用不一定有快感，很多女同志都这样说。[哈哈]//@amantsun: 御用汪//@价值诠释: 御用！//@亿块红布: //@黄奎ART: 转发微博<br><br>RE: 我最佩服的记者，就是人民日报的黄庆畅和新华社的邹伟了！他们总是能搞到独家！他们总是能够采访到律师都见不到的当事人！http://t.cn/RLfs0oE</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3866096736523017" target="freeweibo-mirror">御用！//@亿块红布: //@黄奎ART: 转发微博</a>
+</h2>
+<p>御用！//@亿块红布: //@黄奎ART: 转发微博<br><br>RE: 我最佩服的记者，就是人民日报的黄庆畅和新华社的邹伟了！他们总是能搞到独家！他们总是能够采访到律师都见不到的当事人！http://t.cn/RLfs0oE</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3866096438259156" target="freeweibo-mirror">//@甘元春律师://@周泽律师:他们还能在法院没判就把当事…</a>
+</h2>
+<p>//@甘元春律师://@周泽律师:他们还能在法院没判就把当事人搞得罪大恶极！<br><br>RE: 我最佩服的记者，就是人民日报的黄庆畅和新华社的邹伟了！他们总是能搞到独家！他们总是能够采访到律师都见不到的当事人！http://t.cn/RLfs0oE</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3866093732868300" target="freeweibo-mirror">他们还能在法院没判就把当事人搞得罪大恶极！</a>
+</h2>
+<p>他们还能在法院没判就把当事人搞得罪大恶极！<br><br>RE: 我最佩服的记者，就是人民日报的黄庆畅和新华社的邹伟了！他们总是能搞到独家！他们总是能够采访到律师都见不到的当事人！http://t.cn/RLfs0oE</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3866085415774714" target="freeweibo-mirror">//@日记戎戎:转发微博</a>
 </h2>
 <p>//@日记戎戎:转发微博<br><br>RE: 【萧瀚: 权力的龙变——从反腐运动到绑架律师】 近期以警方查抄锋锐律师事务所、周世锋律师，王宇律师一家被警方绑架，王宇儿子被非法限制人身自由并恐吓为标志的大规模整肃律师群体事件，很让人有瞠乎其后之感——这几年人权纪录一日千里地恶化，至于到现在传唤、抓捕、恐吓数百名律师的事都敢做了。<br><img src="http://ww2.sinaimg.cn/large/0067UKsgjw1eu7aulx7h7j30hs2u67wh.jpg"></p>
@@ -32,11 +74,29 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3866084669121620" target="freeweibo-mirror">只要他认罪，就能从道义上搞垮他了。</a>
+</h2>
+<p>只要他认罪，就能从道义上搞垮他了。</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3866081552441060" target="freeweibo-mirror">我最佩服的记者，就是人民日报的黄庆畅和新华社的邹伟了！他们总…</a>
+</h2>
+<p>我最佩服的记者，就是人民日报的黄庆畅和新华社的邹伟了！他们总是能搞到独家！他们总是能够采访到律师都见不到的当事人！http://t.cn/RLfs0oE</p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3866081296552478" target="freeweibo-mirror">//@徐昕:下一步会他们上央视认罪吧？</a>
 </h2>
 <p>//@徐昕:下一步会他们上央视认罪吧？</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3866080852498240" target="freeweibo-mirror">他们是人民日报新华社公诉人，有个说法叫提前介入！//@王兴律…</a>
+</h2>
+<p>他们是人民日报新华社公诉人，有个说法叫提前介入！//@王兴律师v: 律师见不到人也不可能看到的供述材料，新华社记者跟在自己家一样，涉嫌非法获取国家秘密了</p>
+<p>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3866078444721613" target="freeweibo-mirror">闷声作大死的品牌真不少！</a>
 </h2>
@@ -66,7 +126,7 @@
 </h2>
 <p>SPAM 不相信 //@红星闪闪少帅11:我下午就有在微信朋友圈看到//@问沉1:刚也看到这个消息，不知真假，求证！<br><br>RE: 真的假的啊？？@问沉1<br><img src="http://ww2.sinaimg.cn/large/e903ec9cjw1eu75pdzl4gj20u01hc193.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3866049919622030" target="freeweibo-mirror">SPAM 除了时间，长春舰已经奥巴马，习总之外和98年的段子…</a>
 </h2>
@@ -79,66 +139,6 @@
 <p>[吃惊][吃惊]<br><br>RE: 南海战斗已经打响，以击沉菲律宾军舰一艘，其它有待中央新闻核实……</p>
 <p>
 	<small> ============== 5小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3866040394250135" target="freeweibo-mirror">真的假的啊？？@问沉1</a>
-</h2>
-<p>真的假的啊？？@问沉1<br><img src="http://ww2.sinaimg.cn/large/e903ec9cjw1eu75pdzl4gj20u01hc193.jpg"></p>
-<p>
-	<small> ============== 5小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3866040205614723" target="freeweibo-mirror">SPAM 这攀亲的技术，这智商还是律师，你们瞧瞧……真为当事…</a>
-</h2>
-<p>SPAM 这攀亲的技术，这智商还是律师，你们瞧瞧……真为当事人捏把汗！[汗]<br><img src="http://ww4.sinaimg.cn/large/63e10c60jw1eu75p20lnzj20gn0cc0tt.jpg"></p>
-<p>
-	<small> ============== 5小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3866032169183490" target="freeweibo-mirror">SPAM 心缺良善，言行必恶毒； 心缺美德，言行必下流； 心…</a>
-</h2>
-<p>SPAM 心缺良善，言行必恶毒； 心缺美德，言行必下流； 心缺自尊，言行必卑贱； 心缺诚实，言行必虚妄； 心缺涵养，言行必粗陋； 心缺教化，言行必无礼； 心缺敬畏，言行必随便； 心缺知识，言行必愚钝。 心是一杆秤，秤出的是自己的言行；言行是一面镜，映出的是自己的心灵。#金句王甜馨# #小暖神嗯哼甜馨#<br><img src="http://ww3.sinaimg.cn/large/98c1610bjw1eu74rnyjo4j209q06h3yo.jpg"></p>
-<p>
-	<small> ============== 6小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3866022853736663" target="freeweibo-mirror">南海战斗已经打响，以击沉菲律宾军舰一艘，其它有待中央新闻核实…</a>
-</h2>
-<p>南海战斗已经打响，以击沉菲律宾军舰一艘，其它有待中央新闻核实……</p>
-<p>
-	<small> ============== 6小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3866017782944649" target="freeweibo-mirror">美国作出强烈反应，拟立法实施经济制裁。</a>
-</h2>
-<p>美国作出强烈反应，拟立法实施经济制裁。<br><img src="http://ww4.sinaimg.cn/large/006a8pRzjw1eu731ol3apj30f612jqbg.jpg"></p>
-<p>
-	<small> ============== 7小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3866013365821724" target="freeweibo-mirror">SPAM 这都什么样的蠢猪啊//@汴人郭威: 支持楼主，不能…</a>
-</h2>
-<p>SPAM 这都什么样的蠢猪啊//@汴人郭威: 支持楼主，不能忍，现在就起事吧。<br><br>RE: 预告：亲，本博主感觉中国已经快到了“官逼民反”的临界点了，如果本博主因言获罪，那出狱后本博主会第一个带头造反！</p>
-<p>
-	<small> ============== 7小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3866010900045891" target="freeweibo-mirror">SPAM 同右。 //@断刃天涯:别等以后啊，现在就造反呗。…</a>
-</h2>
-<p>SPAM 同右。 //@断刃天涯:别等以后啊，现在就造反呗。//@平民王小石: [哈哈]//@裸枪:要尊重每个人的选择！别放他出来不就行了嘛！//@狼阿姨:博主的中二病得的时间也是够久的… //@多摩的狸子:操你妈个傻逼，你有种反反试试~~~//@市井菜贩孙胖猫: 不造反你就是你就是你爷和你姐生的<br><br>RE: 预告：亲，本博主感觉中国已经快到了“官逼民反”的临界点了，如果本博主因言获罪，那出狱后本博主会第一个带头造反！</p>
-<p>
-	<small> ============== 7小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3866010535324391" target="freeweibo-mirror">SPAM 嘴炮无敌，进去就尿！不反是狗娘养的！ //@天真纯…</a>
-</h2>
-<p>SPAM 嘴炮无敌，进去就尿！不反是狗娘养的！ //@天真纯洁布列斯:[笑cry]//@市井菜贩孙胖猫:不造反你就是你就是你爷和你姐生的<br><br>RE: 预告：亲，本博主感觉中国已经快到了“官逼民反”的临界点了，如果本博主因言获罪，那出狱后本博主会第一个带头造反！</p>
-<p>
-	<small> ============== 7小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3866010433831495" target="freeweibo-mirror">SPAM [弱] //@贺江兵:[挖鼻] //@五岳散人:[…</a>
-</h2>
-<p>SPAM [弱] //@贺江兵:[挖鼻] //@五岳散人:[嘻嘻]<br><br>RE: 既有死磕，亦有活舔。<br><img src="http://ww3.sinaimg.cn/large/5d098bccjw1eu71ek2rm1j20gn0cc40o.jpg"></p>
-<p>
-	<small> ============== 7小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3866008093920273" target="freeweibo-mirror">新中国成立后发生过多起称帝、建国、造反事件。多数被片儿警平定…</a>
-</h2>
-<p>新中国成立后发生过多起称帝、建国、造反事件。多数被片儿警平定。博主这样的，出动居委会大妈应该就够了。//@裸枪:要尊重每个人的选择！别放他出来不就行了嘛！//@狼阿姨:博主的中二病得的时间也是够久的…  //@多摩的狸子:你有种反反试试~~~//@市井菜贩孙胖猫: 不造反你就是你就是你爷和你姐生的<br><br>RE: 预告：亲，本博主感觉中国已经快到了“官逼民反”的临界点了，如果本博主因言获罪，那出狱后本博主会第一个带头造反！</p>
-<p>
-	<small> ============== 7小时前</small>
 </p>
 <table>
     <tr>
