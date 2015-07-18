@@ -48,7 +48,7 @@
 </h2>
 <p>SPAM 啊……//@旺喜39:7'8'9张惊现变态辣椒[偷笑]<br><br>RE: 日本民众抗议安保法案……也有海外敌对势力混迹其间[喵喵]<br><img src="http://ww3.sinaimg.cn/large/0066l7Gzjw1eu6n4hq2w2j30sg0lcn1e.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3865903797843869" target="freeweibo-mirror">广州见！(这是之前被屏蔽的)</a>
 </h2>
