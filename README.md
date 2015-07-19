@@ -96,7 +96,7 @@
 </h2>
 <p>SPAM  //@Z秦时明月H003: //@周琛平v: 要崩…<br><br>RE: 【宁馨：全面控制中国社会，习近平稳得住吗？】<br><img src="http://ww3.sinaimg.cn/large/00650DlOjw1eu7bj3h2bnj30c62sje81.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3866192139529886" target="freeweibo-mirror">嘿嘿，俺一直反对“救市”，便是与此有关：凭啥有人进去爽，有人…</a>
 </h2>
