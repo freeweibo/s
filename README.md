@@ -120,13 +120,13 @@
 </h2>
 <p>砍柴兄反射弧太长[偷笑]</p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3866258921938318" target="freeweibo-mirror">这几个月目睹一些事，恍然大悟。终于理解“依法治国”原来是依领…</a>
 </h2>
 <p>这几个月目睹一些事，恍然大悟。终于理解“依法治国”原来是依领导的看法治国。</p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3866256539039217" target="freeweibo-mirror">市场经济的世界，谁管谁？//@ 【堂堂大国农业部长与邪恶孟山…</a>
 </h2>
