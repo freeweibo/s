@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3866523406207043" target="freeweibo-mirror">为啥刘少奇死了，邓没事？ //@胖牛姐5:[哼] //@天狐…</a>
+</h2>
+<p>为啥刘少奇死了，邓没事？ //@胖牛姐5:[哼] //@天狐行空:这才是真历史。发动文革只是个假象，是为掩盖政变和进行后续清洗。//@无德无信的权贵3: 转发微博</p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3866492669984075" target="freeweibo-mirror">//@眠琴山房:轉發微博</a>
 </h2>
 <p>//@眠琴山房:轉發微博<br><br>RE: 【认罪的意义】杜培武认罪、佘祥林认罪、赵作海认罪、呼格吉勒图认罪，却证明都是冤案。重物证、轻口供，才是法治真谛。央视搞的认罪播报，又有多大法治意义？http://t.cn/RLMvSle<br><img src="http://ww4.sinaimg.cn/large/d4050bc4jw1eu8fs3yntpj20gn0kwwfy.jpg"></p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3866348587691607" target="freeweibo-mirror">//@孙兴刀具A:呦，这么大的肉粽子？//@总输誋: //@…</a>
 </h2>
 <p>//@孙兴刀具A:呦，这么大的肉粽子？//@总输誋: //@蓝色日新: //@关于李大声://@夜里挑灯看剑2014:哎 //@寒秋孤影-2018://@説叁道肆V:[怒] //@逍遥独我行G://@湘大嘴吧2:[怒]//@L15154002064://@巴蜀君17:[怒]<br><br>RE: 中国的人权<br><img src="http://ww3.sinaimg.cn/large/0066HTx1jw1eu7t0ef6tnj30dc08x3yu.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3866344535206460" target="freeweibo-mirror">SPAM 回复@皮_小_琪:卧槽，乘客取消也算，那就是故意坑…</a>
-</h2>
-<p>SPAM 回复@皮_小_琪:卧槽，乘客取消也算，那就是故意坑司机了，假设我今天下班接一个，结果对方取消了，我再接一个回家，就变成取消率50%，然后封号七天，一周奖励就被黑掉了啊…//@皮_小_琪:回复@顾扯淡:乘客取消的也算哦[笑哈哈]</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
