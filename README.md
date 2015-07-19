@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3866423560210231" target="freeweibo-mirror">发表了一篇转载博文《[转载]刘少奇邓小平曾联合决定罢免毛泽东…</a>
+</h2>
+<p>发表了一篇转载博文《[转载]刘少奇邓小平曾联合决定罢免毛泽东的一切职务》http://t.cn/RLIDBsO</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3866348587691607" target="freeweibo-mirror">//@孙兴刀具A:呦，这么大的肉粽子？//@总输誋: //@…</a>
 </h2>
 <p>//@孙兴刀具A:呦，这么大的肉粽子？//@总输誋: //@蓝色日新: //@关于李大声://@夜里挑灯看剑2014:哎 //@寒秋孤影-2018://@説叁道肆V:[怒] //@逍遥独我行G://@湘大嘴吧2:[怒]//@L15154002064://@巴蜀君17:[怒]<br><br>RE: 中国的人权<br><img src="http://ww3.sinaimg.cn/large/0066HTx1jw1eu7t0ef6tnj30dc08x3yu.jpg"></p>
@@ -42,7 +48,7 @@
 </h2>
 <p>臭道士，手拿开[偷笑]//@肖芳华律师: 施耐庵应当向佛教道歉，《水浒传》里描写和尚与杨雄的老婆勾搭成奸，而且还评论，富人不容易奸淫，穷人不容易奸淫，唯有和尚生活无忧无虑因而总想着奸淫。</p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3866314810259597" target="freeweibo-mirror">我记得当初小米也没有道歉。。。</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3866262792522929" target="freeweibo-mirror">请大家都读读这篇文章吧！因为你我他谁都可能会遇到，特别是在中…</a>
 </h2>
 <p>请大家都读读这篇文章吧！因为你我他谁都可能会遇到，特别是在中国！ http://t.cn/RLIc4H7</p>
-<p>
-	<small> ============== 11小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3866259156389015" target="freeweibo-mirror">砍柴兄反射弧太长[偷笑]</a>
-</h2>
-<p>砍柴兄反射弧太长[偷笑]</p>
 <p>
 	<small> ============== 12小时前</small>
 </p>
