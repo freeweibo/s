@@ -66,7 +66,7 @@
 </h2>
 <p>发表了一篇转载博文《[转载]刘少奇邓小平曾联合决定罢免毛泽东的一切职务》http://t.cn/RLIDBsO</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3866411845538423" target="freeweibo-mirror">双重标准是公知的一贯做法。//@没有法学院的无聊世界: 新京…</a>
 </h2>
@@ -90,7 +90,7 @@
 </h2>
 <p>//@孙兴刀具A:呦，这么大的肉粽子？//@总输誋: //@蓝色日新: //@关于李大声://@夜里挑灯看剑2014:哎 //@寒秋孤影-2018://@説叁道肆V:[怒] //@逍遥独我行G://@湘大嘴吧2:[怒]//@L15154002064://@巴蜀君17:[怒]<br><br>RE: 中国的人权<br><img src="http://ww3.sinaimg.cn/large/0066HTx1jw1eu7t0ef6tnj30dc08x3yu.jpg"></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3866344535206460" target="freeweibo-mirror">SPAM 回复@皮_小_琪:卧槽，乘客取消也算，那就是故意坑…</a>
 </h2>
