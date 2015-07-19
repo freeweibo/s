@@ -68,6 +68,12 @@
 <p>
 	<small> ============== 4小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3866244534560535" target="freeweibo-mirror">一个朋友是长春某厂管理人员，前几天有幸被安排习总握手之列，问…</a>
+</h2>
+<p>一个朋友是长春某厂管理人员，前几天有幸被安排习总握手之列，问：是不是组织安排的，答：政审、外调，搞了一个星期！</p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3866243591462490" target="freeweibo-mirror">SPAM 律师虽先走一步，传媒人也盼什么时也能有个执照，独自…</a>
 </h2>
 <p>SPAM 律师虽先走一步，传媒人也盼什么时也能有个执照，独自去叫板！</p>
@@ -108,7 +114,7 @@
 </h2>
 <p>嘿嘿，俺一直反对“救市”，便是与此有关：凭啥有人进去爽，有人帮买单？而且，看不上那些赌徒的的也正是他们“跟垬混没亏吃”的狡黠和无耻，说他们“死不足惜”的时候俺没有任何人性阻碍——当然不是说肉体消亡，而仅仅是倾家荡产。中国，早安。</p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3866109247748697" target="freeweibo-mirror">有病吧？大热天把头包裹得严严实实，我都替她们觉得热！这么变态…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3866101576596502" target="freeweibo-mirror">SPAM  //@于晓非微博://@无欲之崖: [伤心] […</a>
 </h2>
 <p>SPAM  //@于晓非微博://@无欲之崖: [伤心] [悲伤] [赞] [拳头] [赞]<br><br>RE: 有企业家站出来发声！ http://t.cn/z8yZzb8<br><img src="http://ww4.sinaimg.cn/large/52ca06cfjw1eu74sgfx12j20hs56iqpv.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3866101484065072" target="freeweibo-mirror">//@社会罗宾汉:[思考] //@周泽律师:他们还能在法院没…</a>
-</h2>
-<p>//@社会罗宾汉:[思考] //@周泽律师:他们还能在法院没判就把当事人搞得罪大恶极！<br><br>RE: 我最佩服的记者，就是人民日报的黄庆畅和新华社的邹伟了！他们总是能搞到独家！他们总是能够采访到律师都见不到的当事人！http://t.cn/RLfs0oE</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
