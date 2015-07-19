@@ -30,13 +30,19 @@
 </h2>
 <p>臭道士，手拿开[偷笑]//@肖芳华律师: 施耐庵应当向佛教道歉，《水浒传》里描写和尚与杨雄的老婆勾搭成奸，而且还评论，富人不容易奸淫，穷人不容易奸淫，唯有和尚生活无忧无虑因而总想着奸淫。</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3866314810259597" target="freeweibo-mirror">我记得当初小米也没有道歉。。。</a>
 </h2>
 <p>我记得当初小米也没有道歉。。。<br><br>RE: #文云微明#【西藏是中国</p>
 <p>
 	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3866303406621712" target="freeweibo-mirror">[哈哈]下一个？//@老左识途:谁知道你和那个啥二逼所背后有…</a>
+</h2>
+<p>[哈哈]下一个？//@老左识途:谁知道你和那个啥二逼所背后有啥勾当[闭嘴] //@袁裕来律师:央视报道中的其他内容，我不知道。但涉及到许昌中院的那起案件是我和孝顶代理的，和锋锐所无关，而且错在法院。<br><br>RE: 怎么把这个也和锋所扯上了？<br><img src="http://ww2.sinaimg.cn/large/3f1e171cjw1eu7u1cfqhej20yi0tdgrr.jpg"></p>
+<p>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3866295097850599" target="freeweibo-mirror">相当纠结的名字，更复杂的是权力瓜葛。 //@兔主席:[嘻嘻]…</a>
 </h2>
@@ -114,7 +120,7 @@
 </h2>
 <p>请大家都读读这篇文章吧！因为你我他谁都可能会遇到，特别是在中国！ http://t.cn/RLIc4H7</p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3866259156389015" target="freeweibo-mirror">砍柴兄反射弧太长[偷笑]</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3866256539039217" target="freeweibo-mirror">市场经济的世界，谁管谁？//@ 【堂堂大国农业部长与邪恶孟山…</a>
 </h2>
 <p>市场经济的世界，谁管谁？//@ 【堂堂大国农业部长与邪恶孟山都总裁达成“共识”，不敢公布，怕啥？】习近平总书记强调：“现在的社会，诱惑太多，围绕权力的陷阱太多。面对纷繁的物质利益，要做到君子之交淡如水，“官”“商”交往要有道，相敬如宾，而不要勾肩搭背、不分彼此，要划出公私分明的界限</p>
-<p>
-	<small> ============== 7小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3866252210702848" target="freeweibo-mirror">怎么把这个也和锋所扯上了？</a>
-</h2>
-<p>怎么把这个也和锋所扯上了？<br><img src="http://ww2.sinaimg.cn/large/3f1e171cjw1eu7u1cfqhej20yi0tdgrr.jpg"></p>
 <p>
 	<small> ============== 7小时前</small>
 </p>
