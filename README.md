@@ -24,7 +24,7 @@
 </h2>
 <p>//@眠琴山房:轉發微博<br><br>RE: 【认罪的意义】杜培武认罪、佘祥林认罪、赵作海认罪、呼格吉勒图认罪，却证明都是冤案。重物证、轻口供，才是法治真谛。央视搞的认罪播报，又有多大法治意义？http://t.cn/RLMvSle<br><img src="http://ww4.sinaimg.cn/large/d4050bc4jw1eu8fs3yntpj20gn0kwwfy.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3866484411818517" target="freeweibo-mirror">SPAM //@乌恶之乡:写的不错！[good] //@周铁…</a>
 </h2>
@@ -48,7 +48,7 @@
 </h2>
 <p>SPAM 发表了一篇转载博文《[转载]他们说》http://t.cn/RLMwuSF<br><img src="http://ww1.sinaimg.cn/large/5408ee85jw1eu8jxj05jbj20c20f1myo.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3866458612509474" target="freeweibo-mirror">他们家的蜜是直接从蜂巢上摇下来，经过简单的过滤后储存，他家的…</a>
 </h2>
