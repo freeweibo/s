@@ -36,7 +36,7 @@
 </h2>
 <p>SPAM 好文共赏。<br><br>RE: 请大家都读读这篇文章吧！因为你我他谁都可能会遇到，特别是在中国！ http://t.cn/RLIc4H7</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3866262792522929" target="freeweibo-mirror">请大家都读读这篇文章吧！因为你我他谁都可能会遇到，特别是在中…</a>
 </h2>
@@ -66,7 +66,7 @@
 </h2>
 <p>社会风险都高//@刘军宁: 看看，政治局的熙来薄，永康周，看看军委的财厚徐，某某郭，行业风险个个高。不过，该同情的是律师们</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3866243591462490" target="freeweibo-mirror">SPAM 律师虽先走一步，传媒人也盼什么时也能有个执照，独自…</a>
 </h2>
