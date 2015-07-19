@@ -108,13 +108,13 @@
 </h2>
 <p>#文云微明#【西藏是中国</p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3866276197412669" target="freeweibo-mirror">千万不要洗握过的手！ //@天涯赵瑜:中国式握手。</a>
 </h2>
 <p>千万不要洗握过的手！ //@天涯赵瑜:中国式握手。<br><br>RE: 一个朋友是长春某厂管理人员，前几天有幸被安排习总握手之列，问：是不是组织安排的，答：政审、外调，搞了一个星期！</p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3866272901446064" target="freeweibo-mirror">还有江世俊，汪伪中央宣传部副部长，他的儿子</a>
 </h2>
