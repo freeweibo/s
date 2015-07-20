@@ -24,7 +24,7 @@
 </h2>
 <p>SPAM 不忍拒绝~只能转了~</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3866567824014803" target="freeweibo-mirror">//@梦都夜话之风之子://@亮冰娜无穷动:唉，反腐，相信反…</a>
 </h2>
