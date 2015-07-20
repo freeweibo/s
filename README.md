@@ -60,7 +60,7 @@
 </h2>
 <p>难道这才是真相？[思考]<br><img src="http://ww3.sinaimg.cn/large/d34579d0jw1eu9carhj6ej20hs0vkdji.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3866716193225617" target="freeweibo-mirror">SPAM 不说了，我要去琢磨着把想下的APP都收回来了。</a>
 </h2>
@@ -102,7 +102,7 @@
 </h2>
 <p>道教协会应该要求道歉 //@一头小活猪:道教协会会要求花老道歉么？[思考] //@一头小活猪:陈抟老祖好吧，t-u-a-n，大哥。还陈传老祖，干脆叫沉船老祖得了。接待方里边肯定有反贼，居然带花副主席逛有生僻字的景点，还不提醒[笑cry]</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3866648244807874" target="freeweibo-mirror">SPAM 不忍拒绝~只能转了~</a>
 </h2>
