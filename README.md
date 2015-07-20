@@ -96,7 +96,7 @@
 </h2>
 <p>振兴中国 //@童大焕:东北振兴初见成效。<br><br>RE: 难道这才是真相？[思考]<br><img src="http://ww3.sinaimg.cn/large/d34579d0jw1eu9carhj6ej20hs0vkdji.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3866742755562427" target="freeweibo-mirror">SPAM //@上海康康7: //@鱼家俏妞:这就是公信力和…</a>
 </h2>
