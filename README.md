@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3866825818973749" target="freeweibo-mirror">SPAM 好，必须严惩这个汉奸及其汉奸家属[给力][给力][…</a>
+</h2>
+<p>SPAM 好，必须严惩这个汉奸及其汉奸家属[给力][给力][给力][给力][给力]//@羲和旸谷太阳马车999: //@银杏依然飘香://@冬-雪-雨纷qartyufv: //@打击侵略者D01: //@飞向人马座再来: //@松骨峰5连:真假反腐试金石！<br><br>RE: #快讯#*令*计*划*被开除党籍和公职 http://t.cn/RLxAUqX @思想火炬@军报记者<br><img src="http://ww1.sinaimg.cn/large/0060SpCzgw1eu9mtr152mj30bm0fxmyh.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3866815854090999" target="freeweibo-mirror">//@营口81岁被劳教://@honghongcq: //@…</a>
 </h2>
 <p>//@营口81岁被劳教://@honghongcq: //@真正1919: //@刘二狗蛋: 贺老师当年重庆黑打一封信写给重庆，如今比B书记更黑的角色掌握了天朝江山，不敢写了，转一下这样的也不错了！//@崔小平律师: //@王敏竹--反计救国://@活捉死老鼠:曾经有过吗？[疑问]//@煙巳惔嘸菋: [话筒]</p>
@@ -30,19 +36,19 @@
 </h2>
 <p>//@邵明波: 转发微博<br><br>RE: 看领导们的双开通报，虽说官品不好，口碑欠佳，能力有限，但身体特棒，谁没几个异性香染，都不好意思进秦城。往后的纪录，怕只能在同性上突破了。</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3866813311893560" target="freeweibo-mirror">看领导们的双开通报，虽说官品不好，口碑欠佳，能力有限，但身体…</a>
 </h2>
 <p>看领导们的双开通报，虽说官品不好，口碑欠佳，能力有限，但身体特棒，谁没几个异性香染，都不好意思进秦城。往后的纪录，怕只能在同性上突破了。</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3866753022998360" target="freeweibo-mirror">//@我是德赛://@冷眼之世界003:中共一惯的手法//@…</a>
 </h2>
 <p>//@我是德赛://@冷眼之世界003:中共一惯的手法//@章于非: //@鱼家俏妞:这就是公信力和权威力下降的原因吧……[吃惊][吃惊][吃惊]<br><br>RE: 难道这才是真相？[思考]<br><img src="http://ww3.sinaimg.cn/large/d34579d0jw1eu9carhj6ej20hs0vkdji.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3866747214348141" target="freeweibo-mirror">振兴中国 //@童大焕:东北振兴初见成效。</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3866523406207043" target="freeweibo-mirror">为啥刘少奇死了，邓没事？ //@胖牛姐5:[哼] //@天狐…</a>
 </h2>
 <p>为啥刘少奇死了，邓没事？ //@胖牛姐5:[哼] //@天狐行空:这才是真历史。发动文革只是个假象，是为掩盖政变和进行后续清洗。//@无德无信的权贵3: 转发微博</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3866492669984075" target="freeweibo-mirror">//@眠琴山房:轉發微博</a>
-</h2>
-<p>//@眠琴山房:轉發微博<br><br>RE: 【认罪的意义】杜培武认罪、佘祥林认罪、赵作海认罪、呼格吉勒图认罪，却证明都是冤案。重物证、轻口供，才是法治真谛。央视搞的认罪播报，又有多大法治意义？http://t.cn/RLMvSle<br><img src="http://ww4.sinaimg.cn/large/d4050bc4jw1eu8fs3yntpj20gn0kwwfy.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
