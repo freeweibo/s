@@ -60,7 +60,7 @@
 </h2>
 <p>发表了一篇转载博文《[转载]“五毛”十大恶》http://t.cn/RLMAzdI<br><img src="http://ww3.sinaimg.cn/large/5408ee85jw1eu8k603i1hj20cs0hpjtc.jpg"></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3866477612208763" target="freeweibo-mirror">SPAM 发表了一篇转载博文《[转载]他们说》http://…</a>
 </h2>
@@ -78,7 +78,7 @@
 </h2>
 <p>SPAM 新人类都在玩，00后和90后请接招。</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3866454569463467" target="freeweibo-mirror">//@书生不带刀: 既然是同学大可直接大骂一声“大傻逼”！/…</a>
 </h2>
