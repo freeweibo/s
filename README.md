@@ -24,7 +24,7 @@
 </h2>
 <p>//@我是德赛://@冷眼之世界003:中共一惯的手法//@章于非: //@鱼家俏妞:这就是公信力和权威力下降的原因吧……[吃惊][吃惊][吃惊]<br><br>RE: 难道这才是真相？[思考]<br><img src="http://ww3.sinaimg.cn/large/d34579d0jw1eu9carhj6ej20hs0vkdji.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3866747214348141" target="freeweibo-mirror">振兴中国 //@童大焕:东北振兴初见成效。</a>
 </h2>
