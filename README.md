@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3866828416068470" target="freeweibo-mirror">//@DopeyTom: //@开心流苏: 转发微博</a>
+</h2>
+<p>//@DopeyTom: //@开心流苏: 转发微博</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3866825818973749" target="freeweibo-mirror">SPAM 好，必须严惩这个汉奸及其汉奸家属[给力][给力][…</a>
 </h2>
 <p>SPAM 好，必须严惩这个汉奸及其汉奸家属[给力][给力][给力][给力][给力]//@羲和旸谷太阳马车999: //@银杏依然飘香://@冬-雪-雨纷qartyufv: //@打击侵略者D01: //@飞向人马座再来: //@松骨峰5连:真假反腐试金石！<br><br>RE: #快讯#*令*计*划*被开除党籍和公职 http://t.cn/RLxAUqX @思想火炬@军报记者<br><img src="http://ww1.sinaimg.cn/large/0060SpCzgw1eu9mtr152mj30bm0fxmyh.jpg"></p>
@@ -66,7 +72,7 @@
 </h2>
 <p>SPAM //@上海康康7: //@鱼家俏妞:这就是公信力和权威力下降的原因吧……[吃惊][吃惊][吃惊]<br><br>RE: 难道这才是真相？[思考]<br><img src="http://ww3.sinaimg.cn/large/d34579d0jw1eu9carhj6ej20hs0vkdji.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3866726184208363" target="freeweibo-mirror">//@刘上誉://@Ming_the_Great_大明: 同…</a>
 </h2>
@@ -90,13 +96,13 @@
 </h2>
 <p>SPAM 【六模式玩转准大学生“真空期” 】高考结束后，睡觉、上网、K歌这些高考前心心念念的事情已经做得差不多了，距离开学还有六周时间，在等待开学的这段真空期里，准大学生们该做点什么呢？戳图↓↓↓转发给你身边的大学新生。<br><img src="http://ww2.sinaimg.cn/large/a782e4abjw1eu9b0pawhtj20go0godhg.jpg"></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3866713274161941" target="freeweibo-mirror">做假成了习惯</a>
 </h2>
 <p>做假成了习惯<br><br>RE: 习大大来延吉视察，视察某企业职工全部先放假了，车间工人全部换成了干部，工作服都是新做的，都是第一天穿，所到之处都是如此，经商做生意的门市也全部被警察拉起了警戒线多日不让做生意，所到之处全部是假繁荣、假昌盛，全部都是假的，这样的视察有什么意义呢？除了扰民害民我真的看不到对国民的好处</p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3866712137295189" target="freeweibo-mirror">习大大来延吉视察，视察某企业职工全部先放假了，车间工人全部换…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3866567824014803" target="freeweibo-mirror">//@梦都夜话之风之子://@亮冰娜无穷动:唉，反腐，相信反…</a>
 </h2>
 <p>//@梦都夜话之风之子://@亮冰娜无穷动:唉，反腐，相信反腐吗。//@-大鸟施坦因-:呵呵。//@理性De归回: 这就是共产裆无产阶级，草泥马 //@费城少尉:404亿，躺银行帐户上。//@Sg022哥哥://@公民-吴健: //@啦啦啦哦啦:[围观][围观][围观] //@网易民不畏死: //@章于非:[话筒][围观]</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3866567202533130" target="freeweibo-mirror">SPAM ？</a>
-</h2>
-<p>SPAM ？</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
