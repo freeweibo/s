@@ -30,7 +30,7 @@
 </h2>
 <p>SPAM 不说了，我要去琢磨着把想下的APP都收回来了。</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3866713499985763" target="freeweibo-mirror">SPAM 【六模式玩转准大学生“真空期” 】高考结束后，睡觉…</a>
 </h2>
@@ -66,7 +66,7 @@
 </h2>
 <p>道教协会应该要求道歉 //@一头小活猪:道教协会会要求花老道歉么？[思考] //@一头小活猪:陈抟老祖好吧，t-u-a-n，大哥。还陈传老祖，干脆叫沉船老祖得了。接待方里边肯定有反贼，居然带花副主席逛有生僻字的景点，还不提醒[笑cry]</p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3866648244807874" target="freeweibo-mirror">SPAM 不忍拒绝~只能转了~</a>
 </h2>
