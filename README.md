@@ -20,6 +20,24 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3866753022998360" target="freeweibo-mirror">//@我是德赛://@冷眼之世界003:中共一惯的手法//@…</a>
+</h2>
+<p>//@我是德赛://@冷眼之世界003:中共一惯的手法//@章于非: //@鱼家俏妞:这就是公信力和权威力下降的原因吧……[吃惊][吃惊][吃惊]<br><br>RE: 难道这才是真相？[思考]<br><img src="http://ww3.sinaimg.cn/large/d34579d0jw1eu9carhj6ej20hs0vkdji.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3866747214348141" target="freeweibo-mirror">振兴中国 //@童大焕:东北振兴初见成效。</a>
+</h2>
+<p>振兴中国 //@童大焕:东北振兴初见成效。<br><br>RE: 难道这才是真相？[思考]<br><img src="http://ww3.sinaimg.cn/large/d34579d0jw1eu9carhj6ej20hs0vkdji.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3866742755562427" target="freeweibo-mirror">SPAM //@上海康康7: //@鱼家俏妞:这就是公信力和…</a>
+</h2>
+<p>SPAM //@上海康康7: //@鱼家俏妞:这就是公信力和权威力下降的原因吧……[吃惊][吃惊][吃惊]<br><br>RE: 难道这才是真相？[思考]<br><img src="http://ww3.sinaimg.cn/large/d34579d0jw1eu9carhj6ej20hs0vkdji.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3866726184208363" target="freeweibo-mirror">//@刘上誉://@Ming_the_Great_大明: 同…</a>
 </h2>
 <p>//@刘上誉://@Ming_the_Great_大明: 同問//@荣剑2001: 十字架被强拆，究竟是谁所为？<br><br>RE: 十字架被拆，股市被打压，上百律师被抓——所有这些，都是与中国全面改革以及全面崛起的中国梦相违背的。国安委官员前段接见中国家庭教会领袖群体，明确释放出十字架被拆不是中央所为，更不是最高领导所为的信息。海内外误解终得澄清。做空中国股市者也已被查。那阻挠法治中国的作法就能够长久吗？</p>
@@ -36,13 +54,13 @@
 </h2>
 <p>SPAM 【六模式玩转准大学生“真空期” 】高考结束后，睡觉、上网、K歌这些高考前心心念念的事情已经做得差不多了，距离开学还有六周时间，在等待开学的这段真空期里，准大学生们该做点什么呢？戳图↓↓↓转发给你身边的大学新生。<br><img src="http://ww2.sinaimg.cn/large/a782e4abjw1eu9b0pawhtj20go0godhg.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3866713274161941" target="freeweibo-mirror">做假成了习惯</a>
 </h2>
 <p>做假成了习惯<br><br>RE: 习大大来延吉视察，视察某企业职工全部先放假了，车间工人全部换成了干部，工作服都是新做的，都是第一天穿，所到之处都是如此，经商做生意的门市也全部被警察拉起了警戒线多日不让做生意，所到之处全部是假繁荣、假昌盛，全部都是假的，这样的视察有什么意义呢？除了扰民害民我真的看不到对国民的好处</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3866712137295189" target="freeweibo-mirror">习大大来延吉视察，视察某企业职工全部先放假了，车间工人全部换…</a>
 </h2>
@@ -119,24 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3866477612208763" target="freeweibo-mirror">SPAM 发表了一篇转载博文《[转载]他们说》http://…</a>
 </h2>
 <p>SPAM 发表了一篇转载博文《[转载]他们说》http://t.cn/RLMwuSF<br><img src="http://ww1.sinaimg.cn/large/5408ee85jw1eu8jxj05jbj20c20f1myo.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3866458612509474" target="freeweibo-mirror">他们家的蜜是直接从蜂巢上摇下来，经过简单的过滤后储存，他家的…</a>
-</h2>
-<p>他们家的蜜是直接从蜂巢上摇下来，经过简单的过滤后储存，他家的蜂蜜里是含有，花粉，蜂王浆蜂巢素为一体的原蜜，没有经过任何添加和加工，相对于加工蜜，他们的营养价值更高！ 品质承诺：不纯包退！！！</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3866456855284366" target="freeweibo-mirror">SPAM 新人类都在玩，00后和90后请接招。</a>
-</h2>
-<p>SPAM 新人类都在玩，00后和90后请接招。</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3866454569463467" target="freeweibo-mirror">//@书生不带刀: 既然是同学大可直接大骂一声“大傻逼”！/…</a>
-</h2>
-<p>//@书生不带刀: 既然是同学大可直接大骂一声“大傻逼”！//@杨佩昌:内心觉得你骂的爽。//@当律师的陈刚:这样的脑残千万万//@一品泥人V://@水兵李铭://@-农妇:[哈哈]//@关木旦0660:[哈哈]<br><br>RE: 有一次某老同学跟我谈到台湾，慷慨激昂：不管付出什么代价都要收回。我说：台湾曾表态，只要大陆直选，它们愿回归。他嗫嚅道：那怎么可能，这边不会答应的。我说：那就别怪人家想独立了，难道你忍心增加二千三百万没有选票的奴隶？他又怒发冲冠：不管怎么样，它想独立就一定要打。我暗骂了一句：傻逼。</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
