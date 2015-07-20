@@ -54,7 +54,7 @@
 </h2>
 <p>SPAM 好，必须严惩这个汉奸及其汉奸家属[给力][给力][给力][给力][给力]//@羲和旸谷太阳马车999: //@银杏依然飘香://@冬-雪-雨纷qartyufv: //@打击侵略者D01: //@飞向人马座再来: //@松骨峰5连:真假反腐试金石！<br><br>RE: #快讯#*令*计*划*被开除党籍和公职 http://t.cn/RLxAUqX @思想火炬@军报记者<br><img src="http://ww1.sinaimg.cn/large/0060SpCzgw1eu9mtr152mj30bm0fxmyh.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3866816491739401" target="freeweibo-mirror">#快讯#*令*计*划*被开除党籍和公职 http://t.c…</a>
 </h2>
@@ -84,7 +84,7 @@
 </h2>
 <p>【转别人的】央视不经审判就给人定罪,是要毁掉法制 （分享自 @凯迪网络） http://t.cn/RLIwtKo http://t.cn/RLIwtKo<br><img src="http://ww4.sinaimg.cn/large/48866320jw1eu9m72qc9kj20hs1ebqjs.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3866753022998360" target="freeweibo-mirror">//@我是德赛://@冷眼之世界003:中共一惯的手法//@…</a>
 </h2>
@@ -126,13 +126,13 @@
 </h2>
 <p>SPAM 【六模式玩转准大学生“真空期” 】高考结束后，睡觉、上网、K歌这些高考前心心念念的事情已经做得差不多了，距离开学还有六周时间，在等待开学的这段真空期里，准大学生们该做点什么呢？戳图↓↓↓转发给你身边的大学新生。<br><img src="http://ww2.sinaimg.cn/large/a782e4abjw1eu9b0pawhtj20go0godhg.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3866713274161941" target="freeweibo-mirror">做假成了习惯</a>
 </h2>
 <p>做假成了习惯<br><br>RE: 习大大来延吉视察，视察某企业职工全部先放假了，车间工人全部换成了干部，工作服都是新做的，都是第一天穿，所到之处都是如此，经商做生意的门市也全部被警察拉起了警戒线多日不让做生意，所到之处全部是假繁荣、假昌盛，全部都是假的，这样的视察有什么意义呢？除了扰民害民我真的看不到对国民的好处</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3866712137295189" target="freeweibo-mirror">习大大来延吉视察，视察某企业职工全部先放假了，车间工人全部换…</a>
 </h2>
