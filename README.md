@@ -42,7 +42,7 @@
 </h2>
 <p>SPAM ？</p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3866523406207043" target="freeweibo-mirror">为啥刘少奇死了，邓没事？ //@胖牛姐5:[哼] //@天狐…</a>
 </h2>
