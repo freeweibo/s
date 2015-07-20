@@ -78,7 +78,7 @@
 </h2>
 <p>SPAM 新人类都在玩，00后和90后请接招。</p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3866454569463467" target="freeweibo-mirror">//@书生不带刀: 既然是同学大可直接大骂一声“大傻逼”！/…</a>
 </h2>
