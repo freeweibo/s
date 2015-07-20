@@ -78,7 +78,7 @@
 </h2>
 <p>发表了博文《浙江温州台州有基督教两会发布声明要求停止强拆十字架》原文：http://t.cn/RLMY1Jj自浙江天主教“一教一团”与浙江基督教协会发出公开信要http://t.cn/RLMY1JY</p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3866660471674279" target="freeweibo-mirror">十字架被拆，股市被打压，上百律师被抓——所有这些，都是与中国…</a>
 </h2>
