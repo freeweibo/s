@@ -54,7 +54,7 @@
 </h2>
 <p>SPAM 好，必须严惩这个汉奸及其汉奸家属[给力][给力][给力][给力][给力]//@羲和旸谷太阳马车999: //@银杏依然飘香://@冬-雪-雨纷qartyufv: //@打击侵略者D01: //@飞向人马座再来: //@松骨峰5连:真假反腐试金石！<br><br>RE: #快讯#*令*计*划*被开除党籍和公职 http://t.cn/RLxAUqX @思想火炬@军报记者<br><img src="http://ww1.sinaimg.cn/large/0060SpCzgw1eu9mtr152mj30bm0fxmyh.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3866816491739401" target="freeweibo-mirror">#快讯#*令*计*划*被开除党籍和公职 http://t.c…</a>
 </h2>
@@ -84,7 +84,7 @@
 </h2>
 <p>【转别人的】央视不经审判就给人定罪,是要毁掉法制 （分享自 @凯迪网络） http://t.cn/RLIwtKo http://t.cn/RLIwtKo<br><img src="http://ww4.sinaimg.cn/large/48866320jw1eu9m72qc9kj20hs1ebqjs.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3866753022998360" target="freeweibo-mirror">//@我是德赛://@冷眼之世界003:中共一惯的手法//@…</a>
 </h2>
@@ -102,7 +102,7 @@
 </h2>
 <p>SPAM //@上海康康7: //@鱼家俏妞:这就是公信力和权威力下降的原因吧……[吃惊][吃惊][吃惊]<br><br>RE: 难道这才是真相？[思考]<br><img src="http://ww3.sinaimg.cn/large/d34579d0jw1eu9carhj6ej20hs0vkdji.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3866726184208363" target="freeweibo-mirror">//@刘上誉://@Ming_the_Great_大明: 同…</a>
 </h2>
