@@ -30,7 +30,7 @@
 </h2>
 <p>SPAM ？</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3866523406207043" target="freeweibo-mirror">为啥刘少奇死了，邓没事？ //@胖牛姐5:[哼] //@天狐…</a>
 </h2>
@@ -90,7 +90,7 @@
 </h2>
 <p>萧瀚教授的这篇文章，也是一种观点。<br><img src="http://ww4.sinaimg.cn/large/9ddb72ebjw1eu8h7yy1g4j20hs52i4qp.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3866452870296281" target="freeweibo-mirror">//@陶景洲:博主这问题谁能回答？</a>
 </h2>
