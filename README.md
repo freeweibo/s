@@ -66,7 +66,7 @@
 </h2>
 <p>SPAM 发表了一篇转载博文《[转载]他们说》http://t.cn/RLMwuSF<br><img src="http://ww1.sinaimg.cn/large/5408ee85jw1eu8jxj05jbj20c20f1myo.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3866458612509474" target="freeweibo-mirror">他们家的蜜是直接从蜂巢上摇下来，经过简单的过滤后储存，他家的…</a>
 </h2>
