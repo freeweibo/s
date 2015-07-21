@@ -38,6 +38,12 @@
 <p>
 	<small> ============== 4小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3866901359096183" target="freeweibo-mirror">突发【山东单县一公园发生爆炸案 已致1死27伤】中国网络资讯…</a>
+</h2>
+<p>突发【山东单县一公园发生爆炸案 已致1死27伤】中国网络资讯台山东菏泽7月21日电（记者 李双喜），7月20日22时35分，山东省单县湖西公园西门发生一起爆炸案，现场一片狼藉，受伤人员中有人手脚分离，记者从山东单县相关部门获悉目前已致1人死亡，23人受伤，其中3人伤势严重，具体情况记者还在了解中。<br><img src="http://ww3.sinaimg.cn/large/c4766b60gw1eu9wl92ympj20c90eidgl.jpg"></p>
+<p>
+	<small> ============== 6小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3866850717295586" target="freeweibo-mirror">那现在的创新是什么？几年后判词才能看出？//@清华孙立平: …</a>
 </h2>
 <p>那现在的创新是什么？几年后判词才能看出？//@清华孙立平: 不怪他们，那时候还没提倡创新嘛//@任志强: 一类通病！ //@米瑞蓉:党的干部都是老套路？ //@财经网:【收受他人钱物 与多名女性通奸】严重违反廉洁自律规定，本人及其妻收受他人钱物，为其妻经营活动谋取利益；与多名女性通奸，进行权色交易。</p>
@@ -78,13 +84,13 @@
 </h2>
 <p>#快讯#*令*计*划*被开除党籍和公职 http://t.cn/RLxAUqX @思想火炬@军报记者<br><img src="http://ww1.sinaimg.cn/large/0060SpCzgw1eu9mtr152mj30bm0fxmyh.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3866815854090999" target="freeweibo-mirror">//@营口81岁被劳教://@honghongcq: //@…</a>
 </h2>
 <p>//@营口81岁被劳教://@honghongcq: //@真正1919: //@刘二狗蛋: 贺老师当年重庆黑打一封信写给重庆，如今比B书记更黑的角色掌握了天朝江山，不敢写了，转一下这样的也不错了！//@崔小平律师: //@王敏竹--反计救国://@活捉死老鼠:曾经有过吗？[疑问]//@煙巳惔嘸菋: [话筒]</p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3866813786257223" target="freeweibo-mirror">//@邵明波: 转发微博</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3866724615337951" target="freeweibo-mirror">难道这才是真相？[思考]</a>
 </h2>
 <p>难道这才是真相？[思考]<br><img src="http://ww3.sinaimg.cn/large/d34579d0jw1eu9carhj6ej20hs0vkdji.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3866716193225617" target="freeweibo-mirror">SPAM 不说了，我要去琢磨着把想下的APP都收回来了。</a>
-</h2>
-<p>SPAM 不说了，我要去琢磨着把想下的APP都收回来了。</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
