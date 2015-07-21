@@ -66,7 +66,7 @@
 </h2>
 <p>SPAM //@IYALAN: //@微笑类星体://@mt108: 到旅游景点，封湖，让警察和家属扮成游客! //@何兵:胡总访问烟台，男法官假装成买菜的，女法官假装卖菜的。和平盛世，民乐无穷。[嘻嘻] //@Ming_the_Great_大明://@荣剑2001:借古讽今？这也不古啊！<br><br>RE: 这种微博都不安全？@刘耘博士<br><img src="http://ww4.sinaimg.cn/large/9ddb72ebjw1eu8y7hyyjkj20ez0qoacj.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3866926470316530" target="freeweibo-mirror">说白了，央企只是党的钱包，跟其他人无关~//@何兵: //@…</a>
 </h2>
