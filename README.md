@@ -50,6 +50,12 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3867021777281679" target="freeweibo-mirror">SPAM 配合新聞聯播好看//@陈业文新大都:见怪不怪。再说…</a>
+</h2>
+<p>SPAM 配合新聞聯播好看//@陈业文新大都:见怪不怪。再说，这些是新闻吗？[白眼]//@段贵发: 也是这样子一路走过来的～<br><br>RE: 这种事儿习总知道吗？<br><img src="http://ww3.sinaimg.cn/large/0065DSuUjw1eua95yb83dj30f00qodij.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3867010863956990" target="freeweibo-mirror">这种事儿习总知道吗？</a>
 </h2>
 <p>这种事儿习总知道吗？<br><img src="http://ww3.sinaimg.cn/large/0065DSuUjw1eua95yb83dj30f00qodij.jpg"></p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3866816491739401" target="freeweibo-mirror">#快讯#*令*计*划*被开除党籍和公职 http://t.c…</a>
 </h2>
 <p>#快讯#*令*计*划*被开除党籍和公职 http://t.cn/RLxAUqX @思想火炬@军报记者<br><img src="http://ww1.sinaimg.cn/large/0060SpCzgw1eu9mtr152mj30bm0fxmyh.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3866815854090999" target="freeweibo-mirror">//@营口81岁被劳教://@honghongcq: //@…</a>
-</h2>
-<p>//@营口81岁被劳教://@honghongcq: //@真正1919: //@刘二狗蛋: 贺老师当年重庆黑打一封信写给重庆，如今比B书记更黑的角色掌握了天朝江山，不敢写了，转一下这样的也不错了！//@崔小平律师: //@王敏竹--反计救国://@活捉死老鼠:曾经有过吗？[疑问]//@煙巳惔嘸菋: [话筒]</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
