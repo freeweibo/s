@@ -72,7 +72,7 @@
 </h2>
 <p>这种事儿习总知道吗？<br><img src="http://ww3.sinaimg.cn/large/0065DSuUjw1eua95yb83dj30f00qodij.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3867004630952155" target="freeweibo-mirror">SPAM //@风雷麦子: //@丁声基: //@时蝇喜箭:…</a>
 </h2>
