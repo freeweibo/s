@@ -24,7 +24,7 @@
 </h2>
 <p>//@天蝎黄世旭:[哈哈]//@清风飘逸噻:转发微博</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3867135921074815" target="freeweibo-mirror">即便打不开不能烫，还可以砸吧？不得不防！//@摩托车爱旅行:…</a>
 </h2>
@@ -66,7 +66,7 @@
 </h2>
 <p>喇嘛给中国领导人的建议 http://t.cn/RLVVknV</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3867105910957430" target="freeweibo-mirror">SPAM 你国畜生真多！</a>
 </h2>
