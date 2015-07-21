@@ -60,7 +60,7 @@
 </h2>
 <p>哦？ //@Fenng:青蛙不怕蛇?</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3867021777281679" target="freeweibo-mirror">SPAM 配合新聞聯播好看//@陈业文新大都:见怪不怪。再说…</a>
 </h2>
