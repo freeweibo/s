@@ -54,7 +54,7 @@
 </h2>
 <p>SPAM [吃惊][吃惊] 不会吧？//@陈业文新大都:见怪不怪。再说，这些是新闻吗？[白眼]//@段贵发: 也是这样子一路走过来的～<br><br>RE: 这种事儿习总知道吗？<br><img src="http://ww3.sinaimg.cn/large/0065DSuUjw1eua95yb83dj30f00qodij.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3867028198369252" target="freeweibo-mirror">哦？ //@Fenng:青蛙不怕蛇?</a>
 </h2>
@@ -84,7 +84,7 @@
 </h2>
 <p>港媒说夫妻俩都把手伸进某视<br><img src="http://ww4.sinaimg.cn/large/539d77e6jw1eua4bq4g70j215k0xgk2m.jpg"></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3866961055876468" target="freeweibo-mirror">#昨夜突发#据@平安单县 ，爆炸案嫌疑人身份已查明：解兴堂，…</a>
 </h2>
