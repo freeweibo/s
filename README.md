@@ -30,7 +30,7 @@
 </h2>
 <p>喇嘛给中国领导人的建议 http://t.cn/RLVVknV</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3867105910957430" target="freeweibo-mirror">SPAM 你国畜生真多！</a>
 </h2>
