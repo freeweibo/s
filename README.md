@@ -42,7 +42,7 @@
 </h2>
 <p>SPAM [吃惊][吃惊] 不会吧？//@陈业文新大都:见怪不怪。再说，这些是新闻吗？[白眼]//@段贵发: 也是这样子一路走过来的～<br><br>RE: 这种事儿习总知道吗？<br><img src="http://ww3.sinaimg.cn/large/0065DSuUjw1eua95yb83dj30f00qodij.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3867028198369252" target="freeweibo-mirror">哦？ //@Fenng:青蛙不怕蛇?</a>
 </h2>
