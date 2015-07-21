@@ -48,7 +48,7 @@
 </h2>
 <p>【[话筒]今天微博最搞笑的一句话】人日：共产党与腐败水火不容。[哈哈]<br><img src="http://ww3.sinaimg.cn/large/0067hSaYgw1euamwkvjq7j30c807xdg9.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3867126760868241" target="freeweibo-mirror">SPAM //@鲁公bj: //@邱岳首_:好吧，我不说你们…</a>
 </h2>
@@ -138,7 +138,7 @@
 </h2>
 <p>绝后…… //@IYALAN: //@嗨查理:为灭族而来。 //@赵克罗:万恶的计生基本国策[泪] //@叶匡政:[泪]//@顾猷: //@王周生:转发微博</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p>
 <table>
     <tr>
