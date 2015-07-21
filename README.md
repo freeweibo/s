@@ -38,6 +38,12 @@
 <p>
 	<small> ============== 4小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3866926280982622" target="freeweibo-mirror">卧槽，以后要深居简出了，活着不容易。[吃惊][吃惊][吃惊]…</a>
+</h2>
+<p>卧槽，以后要深居简出了，活着不容易。[吃惊][吃惊][吃惊]//@新罗居士://@菜乡之剑: //@俗人海洋_归来:小县城也搞恐怖袭击了？真是防不胜防啊！<br><br>RE: 突发【山东单县一公园发生爆炸案 已致1死27伤】中国网络资讯台山东菏泽7月21日电（记者 李双喜），7月20日22时35分，山东省单县湖西公园西门发生一起爆炸案，现场一片狼藉，受伤人员中有人手脚分离，记者从山东单县相关部门获悉目前已致1人死亡，23人受伤，其中3人伤势严重，具体情况记者还在了解中。<br><img src="http://ww3.sinaimg.cn/large/c4766b60gw1eu9wl92ympj20c90eidgl.jpg"></p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3866901359096183" target="freeweibo-mirror">突发【山东单县一公园发生爆炸案 已致1死27伤】中国网络资讯…</a>
 </h2>
 <p>突发【山东单县一公园发生爆炸案 已致1死27伤】中国网络资讯台山东菏泽7月21日电（记者 李双喜），7月20日22时35分，山东省单县湖西公园西门发生一起爆炸案，现场一片狼藉，受伤人员中有人手脚分离，记者从山东单县相关部门获悉目前已致1人死亡，23人受伤，其中3人伤势严重，具体情况记者还在了解中。<br><img src="http://ww3.sinaimg.cn/large/c4766b60gw1eu9wl92ympj20c90eidgl.jpg"></p>
@@ -108,7 +114,7 @@
 </h2>
 <p>【转别人的】央视不经审判就给人定罪,是要毁掉法制 （分享自 @凯迪网络） http://t.cn/RLIwtKo http://t.cn/RLIwtKo<br><img src="http://ww4.sinaimg.cn/large/48866320jw1eu9m72qc9kj20hs1ebqjs.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3866753022998360" target="freeweibo-mirror">//@我是德赛://@冷眼之世界003:中共一惯的手法//@…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3866726184208363" target="freeweibo-mirror">//@刘上誉://@Ming_the_Great_大明: 同…</a>
 </h2>
 <p>//@刘上誉://@Ming_the_Great_大明: 同問//@荣剑2001: 十字架被强拆，究竟是谁所为？<br><br>RE: 十字架被拆，股市被打压，上百律师被抓——所有这些，都是与中国全面改革以及全面崛起的中国梦相违背的。国安委官员前段接见中国家庭教会领袖群体，明确释放出十字架被拆不是中央所为，更不是最高领导所为的信息。海内外误解终得澄清。做空中国股市者也已被查。那阻挠法治中国的作法就能够长久吗？</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3866724615337951" target="freeweibo-mirror">难道这才是真相？[思考]</a>
-</h2>
-<p>难道这才是真相？[思考]<br><img src="http://ww3.sinaimg.cn/large/d34579d0jw1eu9carhj6ej20hs0vkdji.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
