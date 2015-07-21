@@ -120,7 +120,7 @@
 </h2>
 <p>SPAM 配合新聞聯播好看//@陈业文新大都:见怪不怪。再说，这些是新闻吗？[白眼]//@段贵发: 也是这样子一路走过来的～<br><br>RE: 这种事儿习总知道吗？<br><img src="http://ww3.sinaimg.cn/large/0065DSuUjw1eua95yb83dj30f00qodij.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3867010863956990" target="freeweibo-mirror">这种事儿习总知道吗？</a>
 </h2>
