@@ -24,7 +24,7 @@
 </h2>
 <p>SPAM “报告大哥：成本很高，漏洞很大，大家都亏，我赢（利）干啥”。<br><br>RE: 宋江开年会，林冲首先汇报：大哥，我管的粮店今年没赚到钱；鲁至深接着汇报：大哥，我管的客栈今年也赔了；孙二娘也凑了过来：大哥，我管的妓院也快破产了…宋江黑着脸一言不发。这时，李葵冲进来：大哥，我也赔了，正研究长期收费…宋江蹭的一下站起来：他们说赔我还信，你一个拦路抢劫的也有脸说赔？</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3867107119160096" target="freeweibo-mirror">喇嘛给中国领导人的建议 http://t.cn/RLVVkn…</a>
 </h2>
@@ -35,6 +35,12 @@
 	<a href="https://freeweibo.com/weibo/3867105910957430" target="freeweibo-mirror">SPAM 你国畜生真多！</a>
 </h2>
 <p>SPAM 你国畜生真多！</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3867105617307126" target="freeweibo-mirror">SPAM 高速拟延长收费的最佳段子，怒转[doge]</a>
+</h2>
+<p>SPAM 高速拟延长收费的最佳段子，怒转[doge]<br><img src="http://ww2.sinaimg.cn/large/62c109c2jw1euak1ubrzej208t0m8ta7.jpg"></p>
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
@@ -84,13 +90,13 @@
 </h2>
 <p>绝后…… //@IYALAN: //@嗨查理:为灭族而来。 //@赵克罗:万恶的计生基本国策[泪] //@叶匡政:[泪]//@顾猷: //@王周生:转发微博</p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3867032238234714" target="freeweibo-mirror">为灭族而来。 //@赵克罗:万恶的计生基本国策[泪] //@…</a>
 </h2>
 <p>为灭族而来。 //@赵克罗:万恶的计生基本国策[泪] //@叶匡政:[泪]//@顾猷: //@王周生:转发微博</p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3867029608511917" target="freeweibo-mirror">SPAM [吃惊][吃惊] 不会吧？//@陈业文新大都:见怪…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3866961055876468" target="freeweibo-mirror">#昨夜突发#据@平安单县 ，爆炸案嫌疑人身份已查明：解兴堂，…</a>
 </h2>
 <p>#昨夜突发#据@平安单县 ，爆炸案嫌疑人身份已查明：解兴堂，男，1982年生，单身无业，长年患病(肝硬化腹水)，近期病情恶化。已在爆炸中死亡。另据最新消息，目前该爆炸事件已致2人死亡、24人受伤，其中3人伤势较重。[蜡烛][蜡烛][蜡烛]<br><br>RE: 突发【山东单县一公园发生爆炸案 已致1死27伤】中国网络资讯台山东菏泽7月21日电（记者 李双喜），7月20日22时35分，山东省单县湖西公园西门发生一起爆炸案，现场一片狼藉，受伤人员中有人手脚分离，记者从山东单县相关部门获悉目前已致1人死亡，23人受伤，其中3人伤势严重，具体情况记者还在了解中。<br><img src="http://ww3.sinaimg.cn/large/c4766b60gw1eu9wl92ympj20c90eidgl.jpg"></p>
-<p>
-	<small> ============== 11小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3866958120654169" target="freeweibo-mirror">SPAM //@IYALAN: //@微笑类星体://@mt…</a>
-</h2>
-<p>SPAM //@IYALAN: //@微笑类星体://@mt108: 到旅游景点，封湖，让警察和家属扮成游客! //@何兵:胡总访问烟台，男法官假装成买菜的，女法官假装卖菜的。和平盛世，民乐无穷。[嘻嘻] //@Ming_the_Great_大明://@荣剑2001:借古讽今？这也不古啊！<br><br>RE: 这种微博都不安全？@刘耘博士<br><img src="http://ww4.sinaimg.cn/large/9ddb72ebjw1eu8y7hyyjkj20ez0qoacj.jpg"></p>
 <p>
 	<small> ============== 11小时前</small>
 </p>
