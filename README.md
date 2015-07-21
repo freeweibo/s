@@ -30,7 +30,7 @@
 </h2>
 <p>【[话筒]今天微博最搞笑的一句话】人日：共产党与腐败水火不容。[哈哈]<br><img src="http://ww3.sinaimg.cn/large/0067hSaYgw1euamwkvjq7j30c807xdg9.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3867122851756728" target="freeweibo-mirror">看看，昨天是花木兰，今天就是周扒皮了。看来离蒋公反攻大陆真的…</a>
 </h2>
