@@ -66,13 +66,13 @@
 </h2>
 <p>#快讯#*令*计*划*被开除党籍和公职 http://t.cn/RLxAUqX @思想火炬@军报记者<br><img src="http://ww1.sinaimg.cn/large/0060SpCzgw1eu9mtr152mj30bm0fxmyh.jpg"></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3866815854090999" target="freeweibo-mirror">//@营口81岁被劳教://@honghongcq: //@…</a>
 </h2>
 <p>//@营口81岁被劳教://@honghongcq: //@真正1919: //@刘二狗蛋: 贺老师当年重庆黑打一封信写给重庆，如今比B书记更黑的角色掌握了天朝江山，不敢写了，转一下这样的也不错了！//@崔小平律师: //@王敏竹--反计救国://@活捉死老鼠:曾经有过吗？[疑问]//@煙巳惔嘸菋: [话筒]</p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3866813786257223" target="freeweibo-mirror">//@邵明波: 转发微博</a>
 </h2>
