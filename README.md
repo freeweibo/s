@@ -36,13 +36,13 @@
 </h2>
 <p>即便打不开不能烫，还可以砸吧？不得不防！//@摩托车爱旅行: 那就是蓄意的，不给你误操作的接口//@爱新觉罗载勋: 回复@摩托车爱旅行: 不能完全打开上盖，就不能灌水吧？既然能打开，就不怕她中途打开去烫？ //@摩托车爱旅行:你个屌丝，这不是你用的那种，是气压式的，可防止开水烫人。</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3867135275086433" target="freeweibo-mirror">回复@露老邪: 所以呀！阶级斗争新动向！ //@露老邪:话说…</a>
 </h2>
 <p>回复@露老邪: 所以呀！阶级斗争新动向！ //@露老邪:话说圆珠笔签字笔钢笔也可能是凶器，好多人有拿着 //@爱新觉罗载勋:回复@摩托车爱旅行: 不能完全打开上盖，就不能灌水吧？既然能打开，就不怕她中途打开去烫？ //@摩托车爱旅行:你个屌丝，这不是你用的那种，是气压式的，可防止开水烫人。。。</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3867130875490678" target="freeweibo-mirror">【[话筒]今天微博最搞笑的一句话】人日：共产党与腐败水火不容…</a>
 </h2>
@@ -78,13 +78,13 @@
 </h2>
 <p>SPAM 你国畜生真多！</p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3867105617307126" target="freeweibo-mirror">SPAM 高速拟延长收费的最佳段子，怒转[doge]</a>
 </h2>
 <p>SPAM 高速拟延长收费的最佳段子，怒转[doge]<br><img src="http://ww2.sinaimg.cn/large/62c109c2jw1euak1ubrzej208t0m8ta7.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3867104178950947" target="freeweibo-mirror">SPAM 此山是我开，此树是我栽。。。[嘻嘻]</a>
 </h2>
