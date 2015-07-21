@@ -96,13 +96,19 @@
 </h2>
 <p>SPAM 你一个拦路抢劫的也有脸说赔？<br><br>RE: 宋江开年会，林冲首先汇报：大哥，我管的粮店今年没赚到钱；鲁至深接着汇报：大哥，我管的客栈今年也赔了；孙二娘也凑了过来：大哥，我管的妓院也快破产了…宋江黑着脸一言不发。这时，李葵冲进来：大哥，我也赔了，正研究长期收费…宋江蹭的一下站起来：他们说赔我还信，你一个拦路抢劫的也有脸说赔？</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3867094947251911" target="freeweibo-mirror">宋江开年会，林冲首先汇报：大哥，我管的粮店今年没赚到钱；鲁至…</a>
 </h2>
 <p>宋江开年会，林冲首先汇报：大哥，我管的粮店今年没赚到钱；鲁至深接着汇报：大哥，我管的客栈今年也赔了；孙二娘也凑了过来：大哥，我管的妓院也快破产了…宋江黑着脸一言不发。这时，李葵冲进来：大哥，我也赔了，正研究长期收费…宋江蹭的一下站起来：他们说赔我还信，你一个拦路抢劫的也有脸说赔？</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3867093961391001" target="freeweibo-mirror">誰要說我們是壞人，我們就殺了誰。</a>
+</h2>
+<p>誰要說我們是壞人，我們就殺了誰。<br><img src="http://ww1.sinaimg.cn/large/005JNxWTjw1euaipf38syj30hr0cbmye.jpg"></p>
+<p>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3867064576251858" target="freeweibo-mirror">SPAM #宝宝辅食分享#【猪肉泥】适合8个月以上的宝宝，多…</a>
 </h2>
@@ -120,7 +126,7 @@
 </h2>
 <p>[哈哈]//@Fenng:青蛙不怕蛇?</p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3867032603068607" target="freeweibo-mirror">绝后…… //@IYALAN: //@嗨查理:为灭族而来。 …</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3867032238234714" target="freeweibo-mirror">为灭族而来。 //@赵克罗:万恶的计生基本国策[泪] //@…</a>
 </h2>
 <p>为灭族而来。 //@赵克罗:万恶的计生基本国策[泪] //@叶匡政:[泪]//@顾猷: //@王周生:转发微博</p>
-<p>
-	<small> ============== 9小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3867029608511917" target="freeweibo-mirror">SPAM [吃惊][吃惊] 不会吧？//@陈业文新大都:见怪…</a>
-</h2>
-<p>SPAM [吃惊][吃惊] 不会吧？//@陈业文新大都:见怪不怪。再说，这些是新闻吗？[白眼]//@段贵发: 也是这样子一路走过来的～<br><br>RE: 这种事儿习总知道吗？<br><img src="http://ww3.sinaimg.cn/large/0065DSuUjw1eua95yb83dj30f00qodij.jpg"></p>
 <p>
 	<small> ============== 9小时前</small>
 </p>
