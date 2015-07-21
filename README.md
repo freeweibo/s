@@ -84,7 +84,7 @@
 </h2>
 <p>SPAM 好，必须严惩这个汉奸及其汉奸家属[给力][给力][给力][给力][给力]//@羲和旸谷太阳马车999: //@银杏依然飘香://@冬-雪-雨纷qartyufv: //@打击侵略者D01: //@飞向人马座再来: //@松骨峰5连:真假反腐试金石！<br><br>RE: #快讯#*令*计*划*被开除党籍和公职 http://t.cn/RLxAUqX @思想火炬@军报记者<br><img src="http://ww1.sinaimg.cn/large/0060SpCzgw1eu9mtr152mj30bm0fxmyh.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3866816491739401" target="freeweibo-mirror">#快讯#*令*计*划*被开除党籍和公职 http://t.c…</a>
 </h2>
