@@ -42,7 +42,7 @@
 </h2>
 <p>//@王敏竹--反计救国://@愤怒的山神://@东极渔翁: 互联网是独裁者最恨的科学成果吧？//@纯真的云06:强烈推荐关注一位多次转世的好友@诸葛文君</p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3867173137310195" target="freeweibo-mirror">SPAM  //@草原垂耳兔:打着红旗反红旗的篡党夺权者是汉…</a>
 </h2>
@@ -66,7 +66,7 @@
 </h2>
 <p>浙江玉环 楚门教堂 2015年7月21日<br><img src="http://ww2.sinaimg.cn/large/005P0qxbjw1euaolzliwuj30go0m8abb.jpg"></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3867142082942958" target="freeweibo-mirror">文不对题 //@魅力阜阳春日暖1:文不对题差评/@千鹤之舞6…</a>
 </h2>
@@ -96,7 +96,7 @@
 </h2>
 <p>【[话筒]今天微博最搞笑的一句话】人日：共产党与腐败水火不容。[哈哈]<br><img src="http://ww3.sinaimg.cn/large/0067hSaYgw1euamwkvjq7j30c807xdg9.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3867126760868241" target="freeweibo-mirror">SPAM //@鲁公bj: //@邱岳首_:好吧，我不说你们…</a>
 </h2>
@@ -108,7 +108,7 @@
 </h2>
 <p>看看，昨天是花木兰，今天就是周扒皮了。看来离蒋公反攻大陆真的不远了！</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3867108469852410" target="freeweibo-mirror">SPAM “报告大哥：成本很高，漏洞很大，大家都亏，我赢（利…</a>
 </h2>
