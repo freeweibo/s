@@ -36,7 +36,7 @@
 </h2>
 <p>//@西北胡杨x: 没关系，冒犯了谁，微博小秘书会替我删掉的[偷笑]//@李俊晓: 高兄太不含蓄了。[偷笑]</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3867416361052161" target="freeweibo-mirror">#浙江强拆十字架#</a>
 </h2>
@@ -54,7 +54,7 @@
 </h2>
 <p>浙江温州 龙湾 双村教堂 ，2015年7月22日。<br><img src="http://ww2.sinaimg.cn/large/005P0qxbjw1eubizfk2fzj30qo0f00ws.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3867404688116027" target="freeweibo-mirror">造谣者太可耻！拉出去机关枪！ //@华泰证券殷化阳:未经证实…</a>
 </h2>
@@ -120,7 +120,7 @@
 </h2>
 <p>朝鲜真是邪恶，我们和你们不一样，我们是反腐败，别说什么政敌不政敌的 //@周京平:1.未经授权，擅自命名“新四人帮”。2.不懂规矩，胡乱排名“徐周令薄”。3.建议聘请@作家崔成浩 主笔。<br><br>RE: 【令计划被开除党籍 习近平“清除政敌”完成】新华社21日报道称，中国共产党对中央统战部前部长令计划给予开除党籍、开除公职的“双开”处分。至此，反对中国国家主席习近平政权的“新四人帮”（徐才厚、周永康、令计划、薄熙来）彻底瓦解。习近平在执权2年半后清除了政敌。http://t.cn/RLJ0oMz<br><img src="http://ww3.sinaimg.cn/large/706ecc39gw1eub9zxsmvvj20fa0grgn3.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3867331707384093" target="freeweibo-mirror">【令计划被开除党籍 习近平“清除政敌”完成】新华社21日报道…</a>
 </h2>
