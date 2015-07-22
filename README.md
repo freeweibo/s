@@ -24,7 +24,7 @@
 </h2>
 <p>SPAM #寻找最美安徽好人# 【池州癌症女张国岚与夫共签遗体捐献书】7月20日上午，在池州市三献志愿者协会办公室，张国岚将她和丈夫所签订的遗体捐献登记书拿给记者看。她说，一直想找个地方捐献遗体，这一次终于了却了心愿。http://t.cn/RLizOwB<br><img src="http://ww3.sinaimg.cn/large/a1365734gw1eubnqb1nwej20r907g76u.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3867447087785952" target="freeweibo-mirror">SPAM 网络文明志愿者说，国家把我养大，我不能不爱国。  …</a>
 </h2>
@@ -36,7 +36,7 @@
 </h2>
 <p>SPAM //@假装要回头: //@天澜之水://@雪山樱子:除了“钱”中国人还信什么？//@文庙79先知: [衰]//@西之壺詊:[衰]//@七步阁2: [衰]//@-小麻子-:[衰]<br><br>RE: 浙江温州 龙湾 双村教堂 ，2015年7月22日。<br><img src="http://ww2.sinaimg.cn/large/005P0qxbjw1eubizfk2fzj30qo0f00ws.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3867426800727434" target="freeweibo-mirror">//@张大鹏roc://@若智啊:他当然知道，然后他裸退了。…</a>
 </h2>
