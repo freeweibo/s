@@ -72,7 +72,7 @@
 </h2>
 <p>浙江玉环 楚门教堂 2015年7月21日<br><img src="http://ww2.sinaimg.cn/large/005P0qxbjw1euaolzliwuj30go0m8abb.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3867142082942958" target="freeweibo-mirror">文不对题 //@魅力阜阳春日暖1:文不对题差评/@千鹤之舞6…</a>
 </h2>
