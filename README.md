@@ -20,6 +20,18 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3867451081166214" target="freeweibo-mirror">SPAM #寻找最美安徽好人# 【池州癌症女张国岚与夫共签遗…</a>
+</h2>
+<p>SPAM #寻找最美安徽好人# 【池州癌症女张国岚与夫共签遗体捐献书】7月20日上午，在池州市三献志愿者协会办公室，张国岚将她和丈夫所签订的遗体捐献登记书拿给记者看。她说，一直想找个地方捐献遗体，这一次终于了却了心愿。http://t.cn/RLizOwB<br><img src="http://ww3.sinaimg.cn/large/a1365734gw1eubnqb1nwej20r907g76u.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3867447087785952" target="freeweibo-mirror">SPAM 网络文明志愿者说，国家把我养大，我不能不爱国。  …</a>
+</h2>
+<p>SPAM 网络文明志愿者说，国家把我养大，我不能不爱国。   你是遗腹子并且你妈死于难产？</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3867436669565442" target="freeweibo-mirror">SPAM //@假装要回头: //@天澜之水://@雪山樱子…</a>
 </h2>
 <p>SPAM //@假装要回头: //@天澜之水://@雪山樱子:除了“钱”中国人还信什么？//@文庙79先知: [衰]//@西之壺詊:[衰]//@七步阁2: [衰]//@-小麻子-:[衰]<br><br>RE: 浙江温州 龙湾 双村教堂 ，2015年7月22日。<br><img src="http://ww2.sinaimg.cn/large/005P0qxbjw1eubizfk2fzj30qo0f00ws.jpg"></p>
@@ -96,7 +108,7 @@
 </h2>
 <p>SPAM 很多时候，股市上似乎涨得很热闹，落实到个人，能否赚钱，或者说赚多少钱，才是至关重要的！很多人不明白为什么涨,为什么会跌？而我们金鼎团队为了搞清这个原因，付出了比常人五倍以上的艰辛去研究！微信公众号里有很多分析，像《学习园地》《要闻解读》 或者扫描以上二维码都可以的！<br><img src="http://ww4.sinaimg.cn/large/531c8a89gw1eubdgbji53j204904fq2w.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3867348693651445" target="freeweibo-mirror">什么样的才能进五毛学习班培养成五毛呢，首先要没知识的，其次要…</a>
 </h2>
@@ -127,18 +139,6 @@
 <p>朝鲜真是邪恶，我们和你们不一样，我们是反腐败，别说什么政敌不政敌的 //@周京平:1.未经授权，擅自命名“新四人帮”。2.不懂规矩，胡乱排名“徐周令薄”。3.建议聘请@作家崔成浩 主笔。<br><br>RE: 【令计划被开除党籍 习近平“清除政敌”完成】新华社21日报道称，中国共产党对中央统战部前部长令计划给予开除党籍、开除公职的“双开”处分。至此，反对中国国家主席习近平政权的“新四人帮”（徐才厚、周永康、令计划、薄熙来）彻底瓦解。习近平在执权2年半后清除了政敌。http://t.cn/RLJ0oMz<br><img src="http://ww3.sinaimg.cn/large/706ecc39gw1eub9zxsmvvj20fa0grgn3.jpg"></p>
 <p>
 	<small> ============== 9小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3867331707384093" target="freeweibo-mirror">【令计划被开除党籍 习近平“清除政敌”完成】新华社21日报道…</a>
-</h2>
-<p>【令计划被开除党籍 习近平“清除政敌”完成】新华社21日报道称，中国共产党对中央统战部前部长令计划给予开除党籍、开除公职的“双开”处分。至此，反对中国国家主席习近平政权的“新四人帮”（徐才厚、周永康、令计划、薄熙来）彻底瓦解。习近平在执权2年半后清除了政敌。http://t.cn/RLJ0oMz<br><img src="http://ww3.sinaimg.cn/large/706ecc39gw1eub9zxsmvvj20fa0grgn3.jpg"></p>
-<p>
-	<small> ============== 9小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3867302569438346" target="freeweibo-mirror">【何解？何寻？】李和平，一个执业近20年的北京老律师，因涉嫌…</a>
-</h2>
-<p>【何解？何寻？】李和平，一个执业近20年的北京老律师，因涉嫌一个媒体点名的所谓“律师犯罪集团”被带走12天了。目前，其辩护律师还查不到办案单位、羁押地点、涉嫌罪名、甚至连家中扣押一车物品都没有一张扣押清单。<br><img src="http://ww4.sinaimg.cn/large/6a80bfcdjw1eub6f2sv51j20hs0hsmxp.jpg"></p>
-<p>
-	<small> ============== 11小时前</small>
 </p>
 <table>
     <tr>
