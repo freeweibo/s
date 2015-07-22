@@ -86,6 +86,12 @@
 <p>
 	<small> ============== 5小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3867365794525810" target="freeweibo-mirror">涛哥掌舵中国10年，上有两个老不死的干政，身边又有一群牛鬼蛇…</a>
+</h2>
+<p>涛哥掌舵中国10年，上有两个老不死的干政，身边又有一群牛鬼蛇神。<br><img src="http://ww2.sinaimg.cn/large/98c6dd80gw1eubdmjp297j208d06aq3z.jpg"></p>
+<p>
+	<small> ============== 7小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3867361751110272" target="freeweibo-mirror">SPAM 很多时候，股市上似乎涨得很热闹，落实到个人，能否赚…</a>
 </h2>
 <p>SPAM 很多时候，股市上似乎涨得很热闹，落实到个人，能否赚钱，或者说赚多少钱，才是至关重要的！很多人不明白为什么涨,为什么会跌？而我们金鼎团队为了搞清这个原因，付出了比常人五倍以上的艰辛去研究！微信公众号里有很多分析，像《学习园地》《要闻解读》 或者扫描以上二维码都可以的！<br><img src="http://ww4.sinaimg.cn/large/531c8a89gw1eubdgbji53j204904fq2w.jpg"></p>
@@ -102,7 +108,7 @@
 </h2>
 <p>看这话说的，怎么可以这样说，不能这样说的啊[吃惊]<br><br>RE: 【令计划被开除党籍 习近平“清除政敌”完成】新华社21日报道称，中国共产党对中央统战部前部长令计划给予开除党籍、开除公职的“双开”处分。至此，反对中国国家主席习近平政权的“新四人帮”（徐才厚、周永康、令计划、薄熙来）彻底瓦解。习近平在执权2年半后清除了政敌。http://t.cn/RLJ0oMz<br><img src="http://ww3.sinaimg.cn/large/706ecc39gw1eub9zxsmvvj20fa0grgn3.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3867335595404630" target="freeweibo-mirror">距离被封号不远了，这是典型的政治谣言。[弱] //@Life…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3867302569438346" target="freeweibo-mirror">【何解？何寻？】李和平，一个执业近20年的北京老律师，因涉嫌…</a>
 </h2>
 <p>【何解？何寻？】李和平，一个执业近20年的北京老律师，因涉嫌一个媒体点名的所谓“律师犯罪集团”被带走12天了。目前，其辩护律师还查不到办案单位、羁押地点、涉嫌罪名、甚至连家中扣押一车物品都没有一张扣押清单。<br><img src="http://ww4.sinaimg.cn/large/6a80bfcdjw1eub6f2sv51j20hs0hsmxp.jpg"></p>
-<p>
-	<small> ============== 11小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3867295992833733" target="freeweibo-mirror">//@杨肇通: //@丁丁的Twitter:新疆阿克苏地区职…</a>
-</h2>
-<p>//@杨肇通: //@丁丁的Twitter:新疆阿克苏地区职业技术学院艺术系钢琴女教师李文洁在过了检查站后被从后面射来的子弹击中头部，当地官方说法是枪支意外触发……</p>
 <p>
 	<small> ============== 11小时前</small>
 </p>
