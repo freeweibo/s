@@ -20,11 +20,17 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3867386640245646" target="freeweibo-mirror">也传谣到你那了？[抓狂]</a>
+</h2>
+<p>也传谣到你那了？[抓狂]<br><br>RE: 网上乱传的谣言，新浪也瞎折腾！哪来的没人要的可怜孩子，非要认个下马的官当爹？靠造谣言生活的人也先要弄清个家谱吧。别有个姓就认为是爹！弄不清楚就瞎认祖宗的人会断子绝孙的。[哈哈]<br><img src="http://ww3.sinaimg.cn/large/4679d351jw1eubg17or0wj20jz0zkwhm.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3867361751110272" target="freeweibo-mirror">SPAM 很多时候，股市上似乎涨得很热闹，落实到个人，能否赚…</a>
 </h2>
 <p>SPAM 很多时候，股市上似乎涨得很热闹，落实到个人，能否赚钱，或者说赚多少钱，才是至关重要的！很多人不明白为什么涨,为什么会跌？而我们金鼎团队为了搞清这个原因，付出了比常人五倍以上的艰辛去研究！微信公众号里有很多分析，像《学习园地》《要闻解读》 或者扫描以上二维码都可以的！<br><img src="http://ww4.sinaimg.cn/large/531c8a89gw1eubdgbji53j204904fq2w.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3867337155436608" target="freeweibo-mirror">看这话说的，怎么可以这样说，不能这样说的啊[吃惊]</a>
 </h2>
@@ -54,7 +60,7 @@
 </h2>
 <p>【令计划被开除党籍 习近平“清除政敌”完成】新华社21日报道称，中国共产党对中央统战部前部长令计划给予开除党籍、开除公职的“双开”处分。至此，反对中国国家主席习近平政权的“新四人帮”（徐才厚、周永康、令计划、薄熙来）彻底瓦解。习近平在执权2年半后清除了政敌。http://t.cn/RLJ0oMz<br><img src="http://ww3.sinaimg.cn/large/706ecc39gw1eub9zxsmvvj20fa0grgn3.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3867295992833733" target="freeweibo-mirror">//@杨肇通: //@丁丁的Twitter:新疆阿克苏地区职…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3867135275086433" target="freeweibo-mirror">回复@露老邪: 所以呀！阶级斗争新动向！ //@露老邪:话说…</a>
 </h2>
 <p>回复@露老邪: 所以呀！阶级斗争新动向！ //@露老邪:话说圆珠笔签字笔钢笔也可能是凶器，好多人有拿着 //@爱新觉罗载勋:回复@摩托车爱旅行: 不能完全打开上盖，就不能灌水吧？既然能打开，就不怕她中途打开去烫？ //@摩托车爱旅行:你个屌丝，这不是你用的那种，是气压式的，可防止开水烫人。。。</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3867130875490678" target="freeweibo-mirror">【[话筒]今天微博最搞笑的一句话】人日：共产党与腐败水火不容…</a>
-</h2>
-<p>【[话筒]今天微博最搞笑的一句话】人日：共产党与腐败水火不容。[哈哈]<br><img src="http://ww3.sinaimg.cn/large/0067hSaYgw1euamwkvjq7j30c807xdg9.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
