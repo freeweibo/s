@@ -78,7 +78,7 @@
 </h2>
 <p>//@天蝎黄世旭:[哈哈]//@清风飘逸噻:转发微博</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3867135921074815" target="freeweibo-mirror">即便打不开不能烫，还可以砸吧？不得不防！//@摩托车爱旅行:…</a>
 </h2>
