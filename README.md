@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3867295992833733" target="freeweibo-mirror">//@杨肇通: //@丁丁的Twitter:新疆阿克苏地区职…</a>
+</h2>
+<p>//@杨肇通: //@丁丁的Twitter:新疆阿克苏地区职业技术学院艺术系钢琴女教师李文洁在过了检查站后被从后面射来的子弹击中头部，当地官方说法是枪支意外触发……</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3867230054154201" target="freeweibo-mirror">看了下经过，网上能找到的只有两篇帖子说该事件官方定义是“枪击…</a>
 </h2>
 <p>看了下经过，网上能找到的只有两篇帖子说该事件官方定义是“枪击意外致人死亡”。这贴今天上了微博后，许多人则咬定“死者高速暴力连续多次冲卡”（找不到相关证据来源）并且回帖都是“活该”死得好”傻逼”，我不是想站队，只是感慨前几年自干五还是个和造谣靠不上边的好词儿</p>
@@ -36,7 +42,7 @@
 </h2>
 <p>SPAM l两个问题：一是原来政府如何承诺的，现在为什么要改，不是不能改，是因为政府不能失信；二是高速路财务数据要公开，有义务向大学和研究机构提供数据，特别是财务数据及其影响财务数据的非财务数据</p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3867176488485502" target="freeweibo-mirror">//@王敏竹--反计救国://@愤怒的山神://@东极渔翁:…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3867105617307126" target="freeweibo-mirror">SPAM 高速拟延长收费的最佳段子，怒转[doge]</a>
 </h2>
 <p>SPAM 高速拟延长收费的最佳段子，怒转[doge]<br><img src="http://ww2.sinaimg.cn/large/62c109c2jw1euak1ubrzej208t0m8ta7.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3867104178950947" target="freeweibo-mirror">SPAM 此山是我开，此树是我栽。。。[嘻嘻]</a>
-</h2>
-<p>SPAM 此山是我开，此树是我栽。。。[嘻嘻]</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
