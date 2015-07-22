@@ -20,6 +20,18 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3867337155436608" target="freeweibo-mirror">看这话说的，怎么可以这样说，不能这样说的啊[吃惊]</a>
+</h2>
+<p>看这话说的，怎么可以这样说，不能这样说的啊[吃惊]<br><br>RE: 【令计划被开除党籍 习近平“清除政敌”完成】新华社21日报道称，中国共产党对中央统战部前部长令计划给予开除党籍、开除公职的“双开”处分。至此，反对中国国家主席习近平政权的“新四人帮”（徐才厚、周永康、令计划、薄熙来）彻底瓦解。习近平在执权2年半后清除了政敌。http://t.cn/RLJ0oMz<br><img src="http://ww3.sinaimg.cn/large/706ecc39gw1eub9zxsmvvj20fa0grgn3.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3867334713956447" target="freeweibo-mirror">朝鲜真是邪恶，我们和你们不一样，我们是反腐败，别说什么政敌不…</a>
+</h2>
+<p>朝鲜真是邪恶，我们和你们不一样，我们是反腐败，别说什么政敌不政敌的 //@周京平:1.未经授权，擅自命名“新四人帮”。2.不懂规矩，胡乱排名“徐周令薄”。3.建议聘请@作家崔成浩 主笔。<br><br>RE: 【令计划被开除党籍 习近平“清除政敌”完成】新华社21日报道称，中国共产党对中央统战部前部长令计划给予开除党籍、开除公职的“双开”处分。至此，反对中国国家主席习近平政权的“新四人帮”（徐才厚、周永康、令计划、薄熙来）彻底瓦解。习近平在执权2年半后清除了政敌。http://t.cn/RLJ0oMz<br><img src="http://ww3.sinaimg.cn/large/706ecc39gw1eub9zxsmvvj20fa0grgn3.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3867295992833733" target="freeweibo-mirror">//@杨肇通: //@丁丁的Twitter:新疆阿克苏地区职…</a>
 </h2>
 <p>//@杨肇通: //@丁丁的Twitter:新疆阿克苏地区职业技术学院艺术系钢琴女教师李文洁在过了检查站后被从后面射来的子弹击中头部，当地官方说法是枪支意外触发……</p>
@@ -48,7 +60,7 @@
 </h2>
 <p>//@王敏竹--反计救国://@愤怒的山神://@东极渔翁: 互联网是独裁者最恨的科学成果吧？//@纯真的云06:强烈推荐关注一位多次转世的好友@诸葛文君</p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3867173137310195" target="freeweibo-mirror">SPAM  //@草原垂耳兔:打着红旗反红旗的篡党夺权者是汉…</a>
 </h2>
@@ -125,18 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3867107119160096" target="freeweibo-mirror">喇嘛给中国领导人的建议 http://t.cn/RLVVkn…</a>
 </h2>
 <p>喇嘛给中国领导人的建议 http://t.cn/RLVVknV</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3867105910957430" target="freeweibo-mirror">SPAM 你国畜生真多！</a>
-</h2>
-<p>SPAM 你国畜生真多！</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3867105617307126" target="freeweibo-mirror">SPAM 高速拟延长收费的最佳段子，怒转[doge]</a>
-</h2>
-<p>SPAM 高速拟延长收费的最佳段子，怒转[doge]<br><img src="http://ww2.sinaimg.cn/large/62c109c2jw1euak1ubrzej208t0m8ta7.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
