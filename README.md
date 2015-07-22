@@ -60,7 +60,7 @@
 </h2>
 <p>//@张大鹏roc://@若智啊:他当然知道，然后他裸退了。不容易！<br><br>RE: 涛哥掌舵中国10年，上有两个老不死的干政，身边又有一群牛鬼蛇神。<br><img src="http://ww2.sinaimg.cn/large/98c6dd80gw1eubdmjp297j208d06aq3z.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3867425315481015" target="freeweibo-mirror">//@西北胡杨x: 没关系，冒犯了谁，微博小秘书会替我删掉的…</a>
 </h2>
@@ -78,7 +78,7 @@
 </h2>
 <p>[吐]//@阿里大公鸡:靠！竟然这样对待文能写微博、武能扔菜刀的胡老师！难道过气了就注定被抛弃吗？<br><br>RE: 什么样的才能进五毛学习班培养成五毛呢，首先要没知识的，其次要没主见的，这样的人才能进政府，进军营，你好我好大家好的溜须拍马歌功颂德，做一个愉快的五毛，我这样有主见有知识有魄力有胆识的，是政府剿灭的对象，刚从新浪内部得到消息，要对我逐步清除粉丝，屏蔽部分内容，逐步减少消除我的影响力</p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3867410006478022" target="freeweibo-mirror">浙江温州 龙湾 双村教堂 ，2015年7月22日。</a>
 </h2>
@@ -120,7 +120,7 @@
 </h2>
 <p>涛哥掌舵中国10年，上有两个老不死的干政，身边又有一群牛鬼蛇神。<br><img src="http://ww2.sinaimg.cn/large/98c6dd80gw1eubdmjp297j208d06aq3z.jpg"></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3867361751110272" target="freeweibo-mirror">SPAM 很多时候，股市上似乎涨得很热闹，落实到个人，能否赚…</a>
 </h2>
