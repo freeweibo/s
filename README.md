@@ -32,6 +32,12 @@
 <p>
 	<small> ============== 1小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3867331707384093" target="freeweibo-mirror">【令计划被开除党籍 习近平“清除政敌”完成】新华社21日报道…</a>
+</h2>
+<p>【令计划被开除党籍 习近平“清除政敌”完成】新华社21日报道称，中国共产党对中央统战部前部长令计划给予开除党籍、开除公职的“双开”处分。至此，反对中国国家主席习近平政权的“新四人帮”（徐才厚、周永康、令计划、薄熙来）彻底瓦解。习近平在执权2年半后清除了政敌。http://t.cn/RLJ0oMz<br><img src="http://ww3.sinaimg.cn/large/706ecc39gw1eub9zxsmvvj20fa0grgn3.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3867295992833733" target="freeweibo-mirror">//@杨肇通: //@丁丁的Twitter:新疆阿克苏地区职…</a>
 </h2>
 <p>//@杨肇通: //@丁丁的Twitter:新疆阿克苏地区职业技术学院艺术系钢琴女教师李文洁在过了检查站后被从后面射来的子弹击中头部，当地官方说法是枪支意外触发……</p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3867108469852410" target="freeweibo-mirror">SPAM “报告大哥：成本很高，漏洞很大，大家都亏，我赢（利…</a>
 </h2>
 <p>SPAM “报告大哥：成本很高，漏洞很大，大家都亏，我赢（利）干啥”。<br><br>RE: 宋江开年会，林冲首先汇报：大哥，我管的粮店今年没赚到钱；鲁至深接着汇报：大哥，我管的客栈今年也赔了；孙二娘也凑了过来：大哥，我管的妓院也快破产了…宋江黑着脸一言不发。这时，李葵冲进来：大哥，我也赔了，正研究长期收费…宋江蹭的一下站起来：他们说赔我还信，你一个拦路抢劫的也有脸说赔？</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3867107119160096" target="freeweibo-mirror">喇嘛给中国领导人的建议 http://t.cn/RLVVkn…</a>
-</h2>
-<p>喇嘛给中国领导人的建议 http://t.cn/RLVVknV</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
