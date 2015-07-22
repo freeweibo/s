@@ -66,7 +66,7 @@
 </h2>
 <p>//@西北胡杨x: 没关系，冒犯了谁，微博小秘书会替我删掉的[偷笑]//@李俊晓: 高兄太不含蓄了。[偷笑]</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3867416361052161" target="freeweibo-mirror">#浙江强拆十字架#</a>
 </h2>
@@ -84,7 +84,7 @@
 </h2>
 <p>浙江温州 龙湾 双村教堂 ，2015年7月22日。<br><img src="http://ww2.sinaimg.cn/large/005P0qxbjw1eubizfk2fzj30qo0f00ws.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3867404688116027" target="freeweibo-mirror">造谣者太可耻！拉出去机关枪！ //@华泰证券殷化阳:未经证实…</a>
 </h2>
