@@ -32,11 +32,29 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3867416361052161" target="freeweibo-mirror">#浙江强拆十字架#</a>
+</h2>
+<p>#浙江强拆十字架#<br><img src="http://ww4.sinaimg.cn/large/c14b35b8jw1eubjpe2yonj20dw0ijgmh.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3867411633703436" target="freeweibo-mirror">[吐]//@阿里大公鸡:靠！竟然这样对待文能写微博、武能扔菜…</a>
 </h2>
 <p>[吐]//@阿里大公鸡:靠！竟然这样对待文能写微博、武能扔菜刀的胡老师！难道过气了就注定被抛弃吗？<br><br>RE: 什么样的才能进五毛学习班培养成五毛呢，首先要没知识的，其次要没主见的，这样的人才能进政府，进军营，你好我好大家好的溜须拍马歌功颂德，做一个愉快的五毛，我这样有主见有知识有魄力有胆识的，是政府剿灭的对象，刚从新浪内部得到消息，要对我逐步清除粉丝，屏蔽部分内容，逐步减少消除我的影响力</p>
 <p>
 	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3867410006478022" target="freeweibo-mirror">浙江温州 龙湾 双村教堂 ，2015年7月22日。</a>
+</h2>
+<p>浙江温州 龙湾 双村教堂 ，2015年7月22日。<br><img src="http://ww2.sinaimg.cn/large/005P0qxbjw1eubizfk2fzj30qo0f00ws.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3867388196110901" target="freeweibo-mirror">再融资已恢复正常了，华西股份刚拿到再融资发行批文，ipo也通…</a>
+</h2>
+<p>再融资已恢复正常了，华西股份刚拿到再融资发行批文，ipo也通知准备上初审会的企业尽快补半年报。所以才有大卖方首席私底下说下周有可能重启IPO。</p>
+<p>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3867386640245646" target="freeweibo-mirror">也传谣到你那了？[抓狂]</a>
 </h2>
@@ -66,7 +84,7 @@
 </h2>
 <p>看这话说的，怎么可以这样说，不能这样说的啊[吃惊]<br><br>RE: 【令计划被开除党籍 习近平“清除政敌”完成】新华社21日报道称，中国共产党对中央统战部前部长令计划给予开除党籍、开除公职的“双开”处分。至此，反对中国国家主席习近平政权的“新四人帮”（徐才厚、周永康、令计划、薄熙来）彻底瓦解。习近平在执权2年半后清除了政敌。http://t.cn/RLJ0oMz<br><img src="http://ww3.sinaimg.cn/large/706ecc39gw1eub9zxsmvvj20fa0grgn3.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3867335595404630" target="freeweibo-mirror">距离被封号不远了，这是典型的政治谣言。[弱] //@Life…</a>
 </h2>
@@ -119,24 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3867176488485502" target="freeweibo-mirror">//@王敏竹--反计救国://@愤怒的山神://@东极渔翁:…</a>
 </h2>
 <p>//@王敏竹--反计救国://@愤怒的山神://@东极渔翁: 互联网是独裁者最恨的科学成果吧？//@纯真的云06:强烈推荐关注一位多次转世的好友@诸葛文君</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3867173137310195" target="freeweibo-mirror">SPAM  //@草原垂耳兔:打着红旗反红旗的篡党夺权者是汉…</a>
-</h2>
-<p>SPAM  //@草原垂耳兔:打着红旗反红旗的篡党夺权者是汉奸卖国贼的首领![怒]//@公正善良:有奶就是娘 //@寻找光明V:贪生怕死 //@光明使者V:见利忘义</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3867163863782757" target="freeweibo-mirror">//@沧海逸僧:彻底清算令计划！ //@安妮莲心2://@长…</a>
-</h2>
-<p>//@沧海逸僧:彻底清算令计划！ //@安妮莲心2://@长空星河6: //@东-回归02: //@中国心J: 图中是真正的老虎！</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3867155735288124" target="freeweibo-mirror">//@d1018:转发微博</a>
-</h2>
-<p>//@d1018:转发微博<br><br>RE: 浙江玉环 楚门教堂 2015年7月21日<br><img src="http://ww2.sinaimg.cn/large/005P0qxbjw1euaolzliwuj30go0m8abb.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
