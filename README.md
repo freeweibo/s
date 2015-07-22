@@ -48,7 +48,7 @@
 </h2>
 <p>【令计划被开除党籍 习近平“清除政敌”完成】新华社21日报道称，中国共产党对中央统战部前部长令计划给予开除党籍、开除公职的“双开”处分。至此，反对中国国家主席习近平政权的“新四人帮”（徐才厚、周永康、令计划、薄熙来）彻底瓦解。习近平在执权2年半后清除了政敌。http://t.cn/RLJ0oMz<br><img src="http://ww3.sinaimg.cn/large/706ecc39gw1eub9zxsmvvj20fa0grgn3.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3867295992833733" target="freeweibo-mirror">//@杨肇通: //@丁丁的Twitter:新疆阿克苏地区职…</a>
 </h2>
