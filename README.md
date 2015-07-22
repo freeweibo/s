@@ -36,7 +36,7 @@
 </h2>
 <p>【漫画：人民网的投名状...】作者：@地瓜熊老六 @对儿双生 抄送：@摘星手010 @作业本 @韩寒 @雷克 原图下载： http://t.cn/RLi2TCB<br><img src="http://ww1.sinaimg.cn/large/005AX0pcjw1eubpqyfhfoj30hs2n8wpb.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3867451081166214" target="freeweibo-mirror">SPAM #寻找最美安徽好人# 【池州癌症女张国岚与夫共签遗…</a>
 </h2>
@@ -132,7 +132,7 @@
 </h2>
 <p>什么样的才能进五毛学习班培养成五毛呢，首先要没知识的，其次要没主见的，这样的人才能进政府，进军营，你好我好大家好的溜须拍马歌功颂德，做一个愉快的五毛，我这样有主见有知识有魄力有胆识的，是政府剿灭的对象，刚从新浪内部得到消息，要对我逐步清除粉丝，屏蔽部分内容，逐步减少消除我的影响力</p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3867337155436608" target="freeweibo-mirror">看这话说的，怎么可以这样说，不能这样说的啊[吃惊]</a>
 </h2>
