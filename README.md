@@ -24,7 +24,7 @@
 </h2>
 <p>SPAM //@假装要回头: //@天澜之水://@雪山樱子:除了“钱”中国人还信什么？//@文庙79先知: [衰]//@西之壺詊:[衰]//@七步阁2: [衰]//@-小麻子-:[衰]<br><br>RE: 浙江温州 龙湾 双村教堂 ，2015年7月22日。<br><img src="http://ww2.sinaimg.cn/large/005P0qxbjw1eubizfk2fzj30qo0f00ws.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3867425315481015" target="freeweibo-mirror">//@西北胡杨x: 没关系，冒犯了谁，微博小秘书会替我删掉的…</a>
 </h2>
