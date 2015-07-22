@@ -120,13 +120,13 @@
 </h2>
 <p>SPAM [嘻嘻][嘻嘻][嘻嘻] //@黑目黠戛斯:第三张白胖四眼警察骑在肌肉男上的照片很有喜感<br><br>RE: 有人报警了，白条猪被警察按倒了[哈哈][哈哈][哈哈] 这次赞一个 @平安北京 [good][good][good][兔子][兔子][兔子]<br><img src="http://ww1.sinaimg.cn/large/53a7ac51jw1eubtl67yq4j20m80gowiu.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3867507259856990" target="freeweibo-mirror">按博主数据，中国一年10万亿税收，就给了外国1833亿美元，…</a>
 </h2>
 <p>按博主数据，中国一年10万亿税收，就给了外国1833亿美元，约11365亿人民币。而实际上2014年中国对外援助的财政预算为211亿人民币。http://t.cn/RvN6wTr中国援非额只占全球援非额的1%，却占了非洲外贸近20%的份额 http://t.cn/RhQbjOy //@任志强:想知道这个预算经人大批准了吗？<br><br>RE: 复旦经济学院副院长韦森：美国政府负债累累，但人家3万多亿的财政支出里，1.9万亿用在医保和社保上。我们今年税收超10万亿，政府是怎么花的？--- 评：给委内瑞拉250亿、给厄瓜多尔75亿、给巴基斯坦460亿、给俄罗斯318亿、给巴西530亿、给缅甸200亿，而且都是美金，就这么花的。<br><img src="http://ww2.sinaimg.cn/large/005I6M5ajw1eubh5czaozj304v064q2z.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3867505913343646" target="freeweibo-mirror">SPAM 裸奔传统的发源地。[不要]</a>
 </h2>
