@@ -36,13 +36,13 @@
 </h2>
 <p>也传谣到你那了？[抓狂]<br><br>RE: 网上乱传的谣言，新浪也瞎折腾！哪来的没人要的可怜孩子，非要认个下马的官当爹？靠造谣言生活的人也先要弄清个家谱吧。别有个姓就认为是爹！弄不清楚就瞎认祖宗的人会断子绝孙的。[哈哈]<br><img src="http://ww3.sinaimg.cn/large/4679d351jw1eubg17or0wj20jz0zkwhm.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3867385477628804" target="freeweibo-mirror">网上乱传的谣言，新浪也瞎折腾！哪来的没人要的可怜孩子，非要认…</a>
 </h2>
 <p>网上乱传的谣言，新浪也瞎折腾！哪来的没人要的可怜孩子，非要认个下马的官当爹？靠造谣言生活的人也先要弄清个家谱吧。别有个姓就认为是爹！弄不清楚就瞎认祖宗的人会断子绝孙的。[哈哈]<br><img src="http://ww3.sinaimg.cn/large/4679d351jw1eubg17or0wj20jz0zkwhm.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3867361751110272" target="freeweibo-mirror">SPAM 很多时候，股市上似乎涨得很热闹，落实到个人，能否赚…</a>
 </h2>
@@ -90,7 +90,7 @@
 </h2>
 <p>//@杨肇通: //@丁丁的Twitter:新疆阿克苏地区职业技术学院艺术系钢琴女教师李文洁在过了检查站后被从后面射来的子弹击中头部，当地官方说法是枪支意外触发……</p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3867230054154201" target="freeweibo-mirror">看了下经过，网上能找到的只有两篇帖子说该事件官方定义是“枪击…</a>
 </h2>
