@@ -60,7 +60,7 @@
 </h2>
 <p>【漫画：人民网的投名状...】作者：@地瓜熊老六 @对儿双生 抄送：@摘星手010 @作业本 @韩寒 @雷克 原图下载： http://t.cn/RLi2TCB<br><img src="http://ww1.sinaimg.cn/large/005AX0pcjw1eubpqyfhfoj30hs2n8wpb.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3867451081166214" target="freeweibo-mirror">SPAM #寻找最美安徽好人# 【池州癌症女张国岚与夫共签遗…</a>
 </h2>
