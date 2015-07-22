@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3867549102002283" target="freeweibo-mirror">回复@da_free:谢谢。 //@da_free:15分4…</a>
+</h2>
+<p>回复@da_free:谢谢。 //@da_free:15分42秒开始,@书房点兵 说,(在近乎实战化对抗训练演习中,老旧的112如何打败先进的052C)我利用演习的海域,商船航迹比较密布,我把我的军舰隐蔽在商船编队之中,那么使你发现不了我的目标,那么接近到一定距离,我突然先敌开机,先敌发射导弹,先敌发起攻击.<br><br>RE: 国防大学教授房兵，说一旦中日发生海战，就让军舰混在商船队伍中，伺机攻击。天朝军校教授如此反人类，要换在文明国家，或者哪怕是有一点尊严的国家，早该道歉辞职了吧？当年数千清军守台湾，被两百登录日军打垮，一路奔逃，烧杀抢掠台湾百姓，难道一百多年过去，素质没有提高多少？</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3867518722684078" target="freeweibo-mirror">SPAM  //@陈业文新大都:[围观] //@静静的雪hu…</a>
 </h2>
 <p>SPAM  //@陈业文新大都:[围观] //@静静的雪hu-:[吃惊] //@自在天渊://@wyzxhp7: //@我还是铲吧铲子003: //@雪天鸿://@夏榕泽微博: //@醉虾搅11:[酷]<br><br>RE: 今天下午台灣律師团体在總統府前反穿律師袍，声援對岸同行，高呼：違法逮捕有罪，律師辯護無罪，停止騷擾，立即釋放。<br><img src="http://ww3.sinaimg.cn/large/006avncZjw1eu9jms0ty9j30go0b2my6.jpg"></p>
@@ -54,7 +60,7 @@
 </h2>
 <p>SPAM 实在无法理解 //@陈业文新大都:[衰][衰][衰]//@兔子老愚:最后的疯狂。<br><br>RE: 疯了，疯到极点！这是温州双村现在现场。谁能告诉我，一个之前被强拆后树立在院里的一个沧桑破损的十字架，ZF为何还孜孜不倦？为何还兴师动众，这样的破费为哪般？几个柔弱手无寸铁的阿姨将自己的身体与十字架绑在一起，那种以生命捍卫信仰尊严的举动令人震撼不已！图4居然大门进不去就捣毁围墙而入！<br><img src="http://ww4.sinaimg.cn/large/8016bfcejw1eubg2kqwbvj20go0m8gob.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3867514981433386" target="freeweibo-mirror">斯巴达人从不问敌人有多少，只问敌人在哪里；朝阳区警察从不问敌…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3867505913343646" target="freeweibo-mirror">SPAM 裸奔传统的发源地。[不要]</a>
 </h2>
 <p>SPAM 裸奔传统的发源地。[不要]<br><br>RE: 有人报警了，白条猪被警察按倒了[哈哈][哈哈][哈哈] 这次赞一个 @平安北京 [good][good][good][兔子][兔子][兔子]<br><img src="http://ww1.sinaimg.cn/large/53a7ac51jw1eubtl67yq4j20m80gowiu.jpg"></p>
-<p>
-	<small> ============== 4小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3867505804393141" target="freeweibo-mirror">SPAM 天水三千，当着我的面要看别人的裸照，你要怎样，我就…</a>
-</h2>
-<p>SPAM 天水三千，当着我的面要看别人的裸照，你要怎样，我就知道你们两有一腿！# 天下HD古风同人观光团 #成员到3W，直播天下三千和黄小才不能说的秘密<br><img src="http://ww4.sinaimg.cn/large/65a560e4jw1eubu0htdq5j20os0xqdq2.jpg"></p>
 <p>
 	<small> ============== 4小时前</small>
 </p>
