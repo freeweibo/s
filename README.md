@@ -36,7 +36,7 @@
 </h2>
 <p>养殖成本涨了多少？涨点肉价受不了？从李到温，你工资涨了多少？[晕]//@糜新元:衡量总理的水平，只要看猪肉的价格！当年，李相当政，猪肉价达10——12元，朱上任，降至6——8元，温接任，复涨至13——15元。</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3867775976132972" target="freeweibo-mirror">SPAM 小图怎么回事[doge]</a>
 </h2>
@@ -65,6 +65,12 @@
 	<a href="https://freeweibo.com/weibo/3867756615450937" target="freeweibo-mirror">SPAM ……//@JENNYFE: 好像已经听到雷声了</a>
 </h2>
 <p>SPAM ……//@JENNYFE: 好像已经听到雷声了<br><br>RE: 深圳今年上半年房价上涨速度快，已经引起了局里7位长老中的一位的朱批与提疑[疑问]……要当心变天下雨的可能哦……[下雨][沙尘暴]</p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3867754908520863" target="freeweibo-mirror">妈的！怒转！//@西门媚:[泪] //@天涯清流石01:成都…</a>
+</h2>
+<p>妈的！怒转！//@西门媚:[泪] //@天涯清流石01:成都啊，成都！[伤心]<br><br>RE: 当年决策上马、坚持开工这个毁坏天府之国的污染项目的官员，将永远受到成都人民的诅咒，不管他现在是在秦城，还是美丽坚。<br><img src="http://ww3.sinaimg.cn/large/5de2c613jw1eucmagfyjmj20hs0nsdiy.jpg"></p>
 <p>
 	<small> ============== 4小时前</small>
 </p><h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3867526402491921" target="freeweibo-mirror">SPAM 污染非常严重[吃惊]@好空气保卫侠@冯永锋@何兵@…</a>
 </h2>
 <p>SPAM 污染非常严重[吃惊]@好空气保卫侠@冯永锋@何兵@微言环保<br><br>RE: 成都彭州石化运行中！这可怎么活[吃惊][吃惊][吃惊] http://t.cn/R2d4cb2<br><img src="http://ww4.sinaimg.cn/large/6b75c449jw1eubvcwllwoj20hs0nq764.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3867518722684078" target="freeweibo-mirror">SPAM  //@陈业文新大都:[围观] //@静静的雪hu…</a>
-</h2>
-<p>SPAM  //@陈业文新大都:[围观] //@静静的雪hu-:[吃惊] //@自在天渊://@wyzxhp7: //@我还是铲吧铲子003: //@雪天鸿://@夏榕泽微博: //@醉虾搅11:[酷]<br><br>RE: 今天下午台灣律師团体在總統府前反穿律師袍，声援對岸同行，高呼：違法逮捕有罪，律師辯護無罪，停止騷擾，立即釋放。<br><img src="http://ww3.sinaimg.cn/large/006avncZjw1eu9jms0ty9j30go0b2my6.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
