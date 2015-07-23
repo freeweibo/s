@@ -24,7 +24,7 @@
 </h2>
 <p>成都的地形与气候能够容纳上风上水的彭州石化吗？//@马奇志://@旺秀才丹:PX项目质量如果过关，本身可能没问题。但是中国的生产、建设水平和质量标准，再加上其中的腐败，你如果在这附近生活，你也要担心！[汗]<br><br>RE: 昨天晴空万里彭州PX排放照片却触目惊心，距离成都仅30公里年炼化80万吨乙烯，政府说，PX污染毒性就和咖啡差不多，我想问问，这么壮观的咖啡是摩卡还是拿铁？不传谣不信谣，再过几年去化疗。无论你是不是成都人，都请帮转发，我们不仅为自己呐喊，还为全国所有城市对待PX态度，愿明日灾祸不因今时冷漠。<br><img src="http://ww3.sinaimg.cn/large/49014048jw1euclmhohahj20k20rqgpi.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3867766526675997" target="freeweibo-mirror">//@-九段://@笑扣柴扉: //@akid: //@p小…</a>
 </h2>
@@ -42,7 +42,7 @@
 </h2>
 <p>SPAM 无耻</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3867729498580128" target="freeweibo-mirror">SPAM 女儿拿着试卷怯怯地说：妈妈，我数学不及格。妈妈大怒…</a>
 </h2>
@@ -54,7 +54,7 @@
 </h2>
 <p>SPAM 这条被屏蔽毫不奇怪。<br><img src="http://ww4.sinaimg.cn/large/8bbe4f05jw1euch4ymmdhj20w70bo40x.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3867678776872429" target="freeweibo-mirror">//@法清_新型诗:台湾人干涉我内政了</a>
 </h2>
