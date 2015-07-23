@@ -102,7 +102,7 @@
 </h2>
 <p>SPAM #就是任性怎么了# 想听你说说，关于旅行的故事，旅行的味道[心]</p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3867834977490430" target="freeweibo-mirror">不让转发我再发！把超级石化项目建在距成都30公里的水源地上风…</a>
 </h2>
