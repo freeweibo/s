@@ -78,7 +78,7 @@
 </h2>
 <p>SPAM 删太快</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3867819244344936" target="freeweibo-mirror">SPAM 才正四品章京[泪]//@海贼王在洛杉矶: 按朱师的…</a>
 </h2>
@@ -108,7 +108,7 @@
 </h2>
 <p>SPAM 几只小玩意太优秀了～简直爱不释手～</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3867783207572466" target="freeweibo-mirror">SPAM @四川彭州石化基地 滚出四川，滚出成都！！！！！！…</a>
 </h2>
