@@ -30,7 +30,7 @@
 </h2>
 <p>//@-九段://@笑扣柴扉: //@akid: //@p小崽Cutepp茗阿稚: [话筒]</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3867746381109242" target="freeweibo-mirror">昨天晴空万里彭州PX排放照片却触目惊心，距离成都仅30公里年…</a>
 </h2>
