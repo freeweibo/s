@@ -96,13 +96,13 @@
 </h2>
 <p>斯巴达人从不问敌人有多少，只问敌人在哪里；朝阳区警察从不问敌人想干什么，只问敌人想不想死  //@好火药:没忍住 //@你是我的英熊:眼睛警察居然骑上去了[笑cry][笑cry]//@南夸坚赞:三里屯发生了什么？//@陈灵伟:哈哈哈哈，行为艺术啊！//@松木木木: 我擦 //@纸寿司: 建外SOHO耍<br><br>RE: 身材好好啊[色][色][色]<br><img src="http://ww2.sinaimg.cn/large/6841ec71jw1eubstxaio6j20k00f0jua.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3867514234790877" target="freeweibo-mirror">SPAM  //@杨凤岗:行毁坏的，必被毁灭 //@Chri…</a>
 </h2>
 <p>SPAM  //@杨凤岗:行毁坏的，必被毁灭 //@Chris刘天成://@杨兴权律师:上帝让谁灭亡，就先让他疯狂！<br><br>RE: 疯了，疯到极点！这是温州双村现在现场。谁能告诉我，一个之前被强拆后树立在院里的一个沧桑破损的十字架，ZF为何还孜孜不倦？为何还兴师动众，这样的破费为哪般？几个柔弱手无寸铁的阿姨将自己的身体与十字架绑在一起，那种以生命捍卫信仰尊严的举动令人震撼不已！图4居然大门进不去就捣毁围墙而入！<br><img src="http://ww4.sinaimg.cn/large/8016bfcejw1eubg2kqwbvj20go0m8gob.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3867513735713308" target="freeweibo-mirror">脑残真多！贷款换石油是一种贸易方式http://t.cn/R…</a>
 </h2>
