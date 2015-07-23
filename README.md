@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3867842581269797" target="freeweibo-mirror">“没有任何政党能用枪杆子长久统治国家的，即使毛泽东再世、斯大…</a>
+</h2>
+<p>“没有任何政党能用枪杆子长久统治国家的，即使毛泽东再世、斯大林再世、列宁再世，也不能使共产主义在柬埔寨复活！今天柬埔寨的民主多党制不能取消，因为这是付出200多万条生命才得来的历史结论！”——柬埔寨首相洪森<br><img src="http://ww2.sinaimg.cn/large/8434d6ccgw1eucwor35l8j208c080t8t.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3867830686806182" target="freeweibo-mirror">不信谣，不传谣，发贴当心查水表。有了政绩领导笑，升迁他处任逍…</a>
 </h2>
 <p>不信谣，不传谣，发贴当心查水表。有了政绩领导笑，升迁他处任逍遥。屁民自己把香烧，子子孙孙无处逃。 赶紧存钱买医保，不然没钱做化疗！//@阴阳为道继之为善:据权威部门检测不会造成污染[哈哈][哈哈]//@陈茂来-: [怒]<br><br>RE: 离成都30公里的彭州石化，晴空下的独特风景！触目惊心！毒害整个四川盆地，天府之国已成毒气室！不顾成都人民抗议强行上马，决策者丧尽天良！[怒][怒][怒][怒][怒]<br><img src="http://ww1.sinaimg.cn/large/594b6e6cjw1euco3mt8efj20f10qoq4r.jpg"></p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3867754908520863" target="freeweibo-mirror">妈的！怒转！//@西门媚:[泪] //@天涯清流石01:成都…</a>
 </h2>
 <p>妈的！怒转！//@西门媚:[泪] //@天涯清流石01:成都啊，成都！[伤心]<br><br>RE: 当年决策上马、坚持开工这个毁坏天府之国的污染项目的官员，将永远受到成都人民的诅咒，不管他现在是在秦城，还是美丽坚。<br><img src="http://ww3.sinaimg.cn/large/5de2c613jw1eucmagfyjmj20hs0nsdiy.jpg"></p>
-<p>
-	<small> ============== 7小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3867752031263720" target="freeweibo-mirror">当年决策上马、坚持开工这个毁坏天府之国的污染项目的官员，将永…</a>
-</h2>
-<p>当年决策上马、坚持开工这个毁坏天府之国的污染项目的官员，将永远受到成都人民的诅咒，不管他现在是在秦城，还是美丽坚。<br><img src="http://ww3.sinaimg.cn/large/5de2c613jw1eucmagfyjmj20hs0nsdiy.jpg"></p>
 <p>
 	<small> ============== 7小时前</small>
 </p>
