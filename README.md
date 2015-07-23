@@ -86,6 +86,12 @@
 <p>
 	<small> ============== 1天前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3867516927328096" target="freeweibo-mirror">【央S不会报道的新闻】台湾迅：今天下午台湾律师团体在总统府前…</a>
+</h2>
+<p>【央S不会报道的新闻】台湾迅：今天下午台湾律师团体在总统府前反穿律师袍，声援中国大陆岸同行，高呼：律师要有人权，违法逮捕有罪，律师辩护无罪，停止骚扰，立即释放。<br><img src="http://ww1.sinaimg.cn/large/005BL3bJjw1eubvalack2j30go09ggmy.jpg"></p>
+<p>
+	<small> ============== 1天前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3867516503923251" target="freeweibo-mirror">//@尤素的电线杆子://@逆风蝴蝶: 请问@环球日报 鉴定…</a>
 </h2>
 <p>//@尤素的电线杆子://@逆风蝴蝶: 请问@环球日报 鉴定一下，这算台湾亲华人士，还是反华势力？<br><br>RE: 今天下午台灣律師团体在總統府前反穿律師袍，声援對岸同行，高呼：違法逮捕有罪，律師辯護無罪，停止騷擾，立即釋放。<br><img src="http://ww3.sinaimg.cn/large/006avncZjw1eu9jms0ty9j30go0b2my6.jpg"></p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3867512313837316" target="freeweibo-mirror">//@岷江漫步: 转发微博</a>
 </h2>
 <p>//@岷江漫步: 转发微博</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3867511110007089" target="freeweibo-mirror">SPAM [围观] //@静静的雪hu-:[吃惊] //@自…</a>
-</h2>
-<p>SPAM [围观] //@静静的雪hu-:[吃惊] //@自在天渊://@wyzxhp7: //@我还是铲吧铲子003: //@雪天鸿://@夏榕泽微博: //@醉虾搅11:[酷]<br><br>RE: 今天下午台灣律師团体在總統府前反穿律師袍，声援對岸同行，高呼：違法逮捕有罪，律師辯護無罪，停止騷擾，立即釋放。<br><img src="http://ww3.sinaimg.cn/large/006avncZjw1eu9jms0ty9j30go0b2my6.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
