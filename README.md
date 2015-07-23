@@ -54,7 +54,7 @@
 </h2>
 <p>//@乐见花开: 服，长者确实还是很腻害的 //@chuant2010:擦 我毕业3年都算不了了(ಥ_ಥ) //@地刺Principle-First:作为蛤丝,必须点赞再续一秒[哆啦A梦微笑] //@不懂桑: //@奔驰的大白菜:very excited!</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3867872499672134" target="freeweibo-mirror">网络时代别再做头埋沙子里的鸵鸟了。</a>
 </h2>
