@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3867766526675997" target="freeweibo-mirror">//@-九段://@笑扣柴扉: //@akid: //@p小…</a>
+</h2>
+<p>//@-九段://@笑扣柴扉: //@akid: //@p小崽Cutepp茗阿稚: [话筒]</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3867737283733188" target="freeweibo-mirror">SPAM 无耻</a>
 </h2>
 <p>SPAM 无耻</p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3867514234790877" target="freeweibo-mirror">SPAM  //@杨凤岗:行毁坏的，必被毁灭 //@Chri…</a>
 </h2>
 <p>SPAM  //@杨凤岗:行毁坏的，必被毁灭 //@Chris刘天成://@杨兴权律师:上帝让谁灭亡，就先让他疯狂！<br><br>RE: 疯了，疯到极点！这是温州双村现在现场。谁能告诉我，一个之前被强拆后树立在院里的一个沧桑破损的十字架，ZF为何还孜孜不倦？为何还兴师动众，这样的破费为哪般？几个柔弱手无寸铁的阿姨将自己的身体与十字架绑在一起，那种以生命捍卫信仰尊严的举动令人震撼不已！图4居然大门进不去就捣毁围墙而入！<br><img src="http://ww4.sinaimg.cn/large/8016bfcejw1eubg2kqwbvj20go0m8gob.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3867513735713308" target="freeweibo-mirror">脑残真多！贷款换石油是一种贸易方式http://t.cn/R…</a>
-</h2>
-<p>脑残真多！贷款换石油是一种贸易方式http://t.cn/RLicUTC 关财政支出屁事！中国2014年外援211亿人民币，不是博主说的约11365亿http://t.cn/RvN6wTr中国援非额只占全球援非额的1%，却占了非洲外贸近20%的份额 http://t.cn/RhQbjOy //@曲子叶://@叶檀://@任志强:<br><br>RE: 复旦经济学院副院长韦森：美国政府负债累累，但人家3万多亿的财政支出里，1.9万亿用在医保和社保上。我们今年税收超10万亿，政府是怎么花的？--- 评：给委内瑞拉250亿、给厄瓜多尔75亿、给巴基斯坦460亿、给俄罗斯318亿、给巴西530亿、给缅甸200亿，而且都是美金，就这么花的。<br><img src="http://ww2.sinaimg.cn/large/005I6M5ajw1eubh5czaozj304v064q2z.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
