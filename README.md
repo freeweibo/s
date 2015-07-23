@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3867737283733188" target="freeweibo-mirror">SPAM 无耻</a>
+</h2>
+<p>SPAM 无耻</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3867729498580128" target="freeweibo-mirror">SPAM 女儿拿着试卷怯怯地说：妈妈，我数学不及格。妈妈大怒…</a>
 </h2>
 <p>SPAM 女儿拿着试卷怯怯地说：妈妈，我数学不及格。妈妈大怒：真的？女儿点点头，妈妈抬手要打她，女儿突然把卷子扬起来，说：看清楚，是100分！妈妈大喜，亲了女儿一口。女儿叹了一口气：我只是想考验一下，你到底是喜欢我还是喜欢分数。#指环上的独一无二# #真心英雄陈学冬#<br><img src="http://ww3.sinaimg.cn/large/98c1610bjw1eucjp6shbhj209w08cq37.jpg"></p>
@@ -36,7 +42,7 @@
 </h2>
 <p>//@法清_新型诗:台湾人干涉我内政了<br><br>RE: 【央S不会报道的新闻】台湾迅：今天下午台湾律师团体在总统府前反穿律师袍，声援中国大陆岸同行，高呼：律师要有人权，违法逮捕有罪，律师辩护无罪，停止骚扰，立即释放。<br><img src="http://ww1.sinaimg.cn/large/005BL3bJjw1eubvalack2j30go09ggmy.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3867647663699914" target="freeweibo-mirror">#萌娃守护神# “爸爸妈妈别把我遗忘在车里！”前段时间连续多…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3867513735713308" target="freeweibo-mirror">脑残真多！贷款换石油是一种贸易方式http://t.cn/R…</a>
 </h2>
 <p>脑残真多！贷款换石油是一种贸易方式http://t.cn/RLicUTC 关财政支出屁事！中国2014年外援211亿人民币，不是博主说的约11365亿http://t.cn/RvN6wTr中国援非额只占全球援非额的1%，却占了非洲外贸近20%的份额 http://t.cn/RhQbjOy //@曲子叶://@叶檀://@任志强:<br><br>RE: 复旦经济学院副院长韦森：美国政府负债累累，但人家3万多亿的财政支出里，1.9万亿用在医保和社保上。我们今年税收超10万亿，政府是怎么花的？--- 评：给委内瑞拉250亿、给厄瓜多尔75亿、给巴基斯坦460亿、给俄罗斯318亿、给巴西530亿、给缅甸200亿，而且都是美金，就这么花的。<br><img src="http://ww2.sinaimg.cn/large/005I6M5ajw1eubh5czaozj304v064q2z.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3867513723113571" target="freeweibo-mirror">[衰][衰][衰] //@兔子老愚:最后的疯狂//@漫游者粒…</a>
-</h2>
-<p>[衰][衰][衰] //@兔子老愚:最后的疯狂//@漫游者粒子: 转发微博<br><br>RE: 疯了，疯到极点！这是温州双村现在现场。谁能告诉我，一个之前被强拆后树立在院里的一个沧桑破损的十字架，ZF为何还孜孜不倦？为何还兴师动众，这样的破费为哪般？几个柔弱手无寸铁的阿姨将自己的身体与十字架绑在一起，那种以生命捍卫信仰尊严的举动令人震撼不已！图4居然大门进不去就捣毁围墙而入！<br><img src="http://ww4.sinaimg.cn/large/8016bfcejw1eubg2kqwbvj20go0m8gob.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
