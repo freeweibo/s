@@ -74,6 +74,12 @@
 <p>
 	<small> ============== 5小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3867735472181606" target="freeweibo-mirror">深圳今年上半年房价上涨速度快，已经引起了局里7位长老中的一位…</a>
+</h2>
+<p>深圳今年上半年房价上涨速度快，已经引起了局里7位长老中的一位的朱批与提疑[疑问]……要当心变天下雨的可能哦……[下雨][沙尘暴]</p>
+<p>
+	<small> ============== 5小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3867729498580128" target="freeweibo-mirror">SPAM 女儿拿着试卷怯怯地说：妈妈，我数学不及格。妈妈大怒…</a>
 </h2>
 <p>SPAM 女儿拿着试卷怯怯地说：妈妈，我数学不及格。妈妈大怒：真的？女儿点点头，妈妈抬手要打她，女儿突然把卷子扬起来，说：看清楚，是100分！妈妈大喜，亲了女儿一口。女儿叹了一口气：我只是想考验一下，你到底是喜欢我还是喜欢分数。#指环上的独一无二# #真心英雄陈学冬#<br><img src="http://ww3.sinaimg.cn/large/98c1610bjw1eucjp6shbhj209w08cq37.jpg"></p>
@@ -90,7 +96,7 @@
 </h2>
 <p>//@法清_新型诗:台湾人干涉我内政了<br><br>RE: 【央S不会报道的新闻】台湾迅：今天下午台湾律师团体在总统府前反穿律师袍，声援中国大陆岸同行，高呼：律师要有人权，违法逮捕有罪，律师辩护无罪，停止骚扰，立即释放。<br><img src="http://ww1.sinaimg.cn/large/005BL3bJjw1eubvalack2j30go09ggmy.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3867647663699914" target="freeweibo-mirror">#萌娃守护神# “爸爸妈妈别把我遗忘在车里！”前段时间连续多…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3867518282004562" target="freeweibo-mirror">SPAM 心态好，人缘好，因为懂得宽容；心态好，做事顺利，因…</a>
 </h2>
 <p>SPAM 心态好，人缘好，因为懂得宽容；心态好，做事顺利，因为不拘小节；心态好，生活愉快，因为懂得放下。别让脾气和本事一样大，越有本事的人越没脾气。心态好的人，处处圆融，处处圆满。好的心态，能激发人生最大的潜能，是你最大的财富。。。#全能极限王# #生命缘#<br><img src="http://ww4.sinaimg.cn/large/98c1610bjw1eubvfwd7uhj209q06hjrm.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3867517506311970" target="freeweibo-mirror">成都彭州石化运行中！这可怎么活[吃惊][吃惊][吃惊] ht…</a>
-</h2>
-<p>成都彭州石化运行中！这可怎么活[吃惊][吃惊][吃惊] http://t.cn/R2d4cb2<br><img src="http://ww4.sinaimg.cn/large/6b75c449jw1eubvcwllwoj20hs0nq764.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
