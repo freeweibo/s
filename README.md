@@ -30,7 +30,7 @@
 </h2>
 <p>SPAM 这条被屏蔽毫不奇怪。<br><img src="http://ww4.sinaimg.cn/large/8bbe4f05jw1euch4ymmdhj20w70bo40x.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3867678776872429" target="freeweibo-mirror">//@法清_新型诗:台湾人干涉我内政了</a>
 </h2>
