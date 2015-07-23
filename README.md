@@ -36,19 +36,19 @@
 </h2>
 <p>回复@da_free:谢谢。 //@da_free:15分42秒开始,@书房点兵 说,(在近乎实战化对抗训练演习中,老旧的112如何打败先进的052C)我利用演习的海域,商船航迹比较密布,我把我的军舰隐蔽在商船编队之中,那么使你发现不了我的目标,那么接近到一定距离,我突然先敌开机,先敌发射导弹,先敌发起攻击.<br><br>RE: 国防大学教授房兵，说一旦中日发生海战，就让军舰混在商船队伍中，伺机攻击。天朝军校教授如此反人类，要换在文明国家，或者哪怕是有一点尊严的国家，早该道歉辞职了吧？当年数千清军守台湾，被两百登录日军打垮，一路奔逃，烧杀抢掠台湾百姓，难道一百多年过去，素质没有提高多少？</p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3867527363186948" target="freeweibo-mirror">//@P死你的X:在长江上游四川建石化企业，这是找死的节奏。…</a>
 </h2>
 <p>//@P死你的X:在长江上游四川建石化企业，这是找死的节奏。强烈呼吁关停石化高污染企业//@菜乡之剑:污染非常严重[吃惊]@好空气保卫侠@冯永锋@何兵@微言环保<br><br>RE: 成都彭州石化运行中！这可怎么活[吃惊][吃惊][吃惊] http://t.cn/R2d4cb2<br><img src="http://ww4.sinaimg.cn/large/6b75c449jw1eubvcwllwoj20hs0nq764.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3867526402491921" target="freeweibo-mirror">SPAM 污染非常严重[吃惊]@好空气保卫侠@冯永锋@何兵@…</a>
 </h2>
 <p>SPAM 污染非常严重[吃惊]@好空气保卫侠@冯永锋@何兵@微言环保<br><br>RE: 成都彭州石化运行中！这可怎么活[吃惊][吃惊][吃惊] http://t.cn/R2d4cb2<br><img src="http://ww4.sinaimg.cn/large/6b75c449jw1eubvcwllwoj20hs0nq764.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3867518722684078" target="freeweibo-mirror">SPAM  //@陈业文新大都:[围观] //@静静的雪hu…</a>
 </h2>
