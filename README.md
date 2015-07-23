@@ -132,7 +132,7 @@
 </h2>
 <p>你我皆乘客，不是看客……7.23溫湧動車事件四週年，當年香港某媒體評論此事只用了一幅圖一句話……（圖轉）<br><img src="http://ww1.sinaimg.cn/large/0068624Ngw1eucv2wewz6j30c8097wfl.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3867827411073367" target="freeweibo-mirror">检察官跌落律师队伍，马上成为任人宰割的羔羊，悲夫！</a>
 </h2>
