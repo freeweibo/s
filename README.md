@@ -24,7 +24,7 @@
 </h2>
 <p>网络时代别再做头埋沙子里的鸵鸟了。</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3867859941398698" target="freeweibo-mirror">SPAM 在这世上，总会有人让你悲伤、让你嫉妒、让你咬牙切齿…</a>
 </h2>
@@ -60,13 +60,13 @@
 </h2>
 <p>“没有任何政党能用枪杆子长久统治国家的，即使毛泽东再世、斯大林再世、列宁再世，也不能使共产主义在柬埔寨复活！今天柬埔寨的民主多党制不能取消，因为这是付出200多万条生命才得来的历史结论！”——柬埔寨首相洪森<br><img src="http://ww2.sinaimg.cn/large/8434d6ccgw1eucwor35l8j208c080t8t.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3867842347191568" target="freeweibo-mirror">//@金陵酒徒仓氏: //@记者-薛洪涛://@彭园v://…</a>
 </h2>
 <p>//@金陵酒徒仓氏: //@记者-薛洪涛://@彭园v://@青山仍妩媚:[怒]牠媽的!<br><br>RE: 你我皆乘客，不是看客……7.23溫湧動車事件四週年，當年香港某媒體評論此事只用了一幅圖一句話……（圖轉）<br><img src="http://ww1.sinaimg.cn/large/0068624Ngw1eucv2wewz6j30c8097wfl.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3867839650087327" target="freeweibo-mirror">//@青山仍妩媚:[怒]牠媽的!</a>
 </h2>
@@ -96,13 +96,13 @@
 </h2>
 <p>检察官跌落律师队伍，马上成为任人宰割的羔羊，悲夫！</p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3867827343892432" target="freeweibo-mirror">//@香港通迅社:[话筒] //@掌握宇宙真理王国:这个要转…</a>
 </h2>
 <p>//@香港通迅社:[话筒] //@掌握宇宙真理王国:这个要转！//@邱岳首_: 社会的进步主要依靠民间的推动力！</p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3867820129819457" target="freeweibo-mirror">SPAM 删太快</a>
 </h2>
