@@ -24,7 +24,7 @@
 </h2>
 <p>SPAM 无耻</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3867729498580128" target="freeweibo-mirror">SPAM 女儿拿着试卷怯怯地说：妈妈，我数学不及格。妈妈大怒…</a>
 </h2>
@@ -36,7 +36,7 @@
 </h2>
 <p>SPAM 这条被屏蔽毫不奇怪。<br><img src="http://ww4.sinaimg.cn/large/8bbe4f05jw1euch4ymmdhj20w70bo40x.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3867678776872429" target="freeweibo-mirror">//@法清_新型诗:台湾人干涉我内政了</a>
 </h2>
