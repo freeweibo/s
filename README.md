@@ -36,7 +36,7 @@
 </h2>
 <p>SPAM 女儿拿着试卷怯怯地说：妈妈，我数学不及格。妈妈大怒：真的？女儿点点头，妈妈抬手要打她，女儿突然把卷子扬起来，说：看清楚，是100分！妈妈大喜，亲了女儿一口。女儿叹了一口气：我只是想考验一下，你到底是喜欢我还是喜欢分数。#指环上的独一无二# #真心英雄陈学冬#<br><img src="http://ww3.sinaimg.cn/large/98c1610bjw1eucjp6shbhj209w08cq37.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3867707189299334" target="freeweibo-mirror">SPAM 这条被屏蔽毫不奇怪。</a>
 </h2>
