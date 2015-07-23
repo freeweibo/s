@@ -104,6 +104,12 @@
 <p>
 	<small> ============== 4小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3867807076986350" target="freeweibo-mirror">【93岁抗战老兵为何要等到小日本来给他发救济粮】93岁抗战老…</a>
+</h2>
+<p>【93岁抗战老兵为何要等到小日本来给他发救济粮】93岁抗战老兵周福康，昨天上了日本电视台新闻节目。据日本亚洲通讯社徐静波社长说，日本政府参照本国"叛军"抚恤标准，将给这位靠捡垃圾度日的中国抗战老兵发放一年近10万人民币 。冷评：中国脊梁真正抗日英雄。只因他们没加入“中流砥柱”而被遗忘。<br><img src="http://ww4.sinaimg.cn/large/0067DXAegw1eucskn4oqbj30go0mrgnv.jpg"></p>
+<p>
+	<small> ============== 5小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3867789737846813" target="freeweibo-mirror">SPAM 几只小玩意太优秀了～简直爱不释手～</a>
 </h2>
 <p>SPAM 几只小玩意太优秀了～简直爱不释手～</p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3867775976132972" target="freeweibo-mirror">SPAM 小图怎么回事[doge]</a>
 </h2>
 <p>SPAM 小图怎么回事[doge]<br><br>RE: 少女玛丽和苏珊，这这这不得起飞喽啊！<br><img src="http://ww3.sinaimg.cn/large/ba0332f1jw1eubvb107vij20dw0evmxz.jpg"></p>
-<p>
-	<small> ============== 7小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3867769151433313" target="freeweibo-mirror">SPAM 在幼儿园，失去了天真；在小学，失去了童年；在初中，…</a>
-</h2>
-<p>SPAM 在幼儿园，失去了天真；在小学，失去了童年；在初中，失去了快乐；在高中，失去了思想；在大学，失去了追求；毕业后，失去了专业；工作后，失去了锋芒；恋爱时，失去了理智；婚姻中，失去了激情。。。#李晨秀才遇到兵# #1931新歌撞蔡依林#<br><img src="http://ww4.sinaimg.cn/large/98c1610bjw1euco960my9j209q08kglu.jpg"></p>
 <p>
 	<small> ============== 7小时前</small>
 </p>
