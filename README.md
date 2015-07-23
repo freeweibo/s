@@ -78,7 +78,7 @@
 </h2>
 <p>不是我！也不是你！//@李英俊律师: 下一个周永康会是谁？ //@姜杰律师:政治犯不让见？//@斯律斯律: 转发微博</p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3867850819326033" target="freeweibo-mirror">这股政治投机分子只有彻底失败了才会消失。 //@eliter…</a>
 </h2>
@@ -108,7 +108,7 @@
 </h2>
 <p>//@青山仍妩媚:[怒]牠媽的!<br><br>RE: 你我皆乘客，不是看客……7.23溫湧動車事件四週年，當年香港某媒體評論此事只用了一幅圖一句話……（圖轉）<br><img src="http://ww1.sinaimg.cn/large/0068624Ngw1eucv2wewz6j30c8097wfl.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3867836378555818" target="freeweibo-mirror">SPAM #就是任性怎么了# 想听你说说，关于旅行的故事，旅…</a>
 </h2>
