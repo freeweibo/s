@@ -78,7 +78,7 @@
 </h2>
 <p>SPAM @四川彭州石化基地 滚出四川，滚出成都！！！！！！！！！删你妈逼，你删老子继续发！！擦！@成都环保 @四川省政府官方博客 @柴静看见<br><img src="http://ww1.sinaimg.cn/large/4c35b2d5jw1eucpu2zw4uj20db0hsdgo.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3867782892723288" target="freeweibo-mirror">SPAM 哈哈哈哈，他爱人民币上的耄</a>
 </h2>
@@ -102,7 +102,7 @@
 </h2>
 <p>SPAM 在幼儿园，失去了天真；在小学，失去了童年；在初中，失去了快乐；在高中，失去了思想；在大学，失去了追求；毕业后，失去了专业；工作后，失去了锋芒；恋爱时，失去了理智；婚姻中，失去了激情。。。#李晨秀才遇到兵# #1931新歌撞蔡依林#<br><img src="http://ww4.sinaimg.cn/large/98c1610bjw1euco960my9j209q08kglu.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3867767281644410" target="freeweibo-mirror">成都的地形与气候能够容纳上风上水的彭州石化吗？//@马奇志:…</a>
 </h2>
