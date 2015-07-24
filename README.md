@@ -30,7 +30,7 @@
 </h2>
 <p>SPAM //@逍遥游的传说: 花开一场，岁月留香，那场盲舞，入了谁的梦？</p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3867918666204075" target="freeweibo-mirror">几位的吐槽不觉得轻率了点？！ //@九问求索:应该管山顶洞人…</a>
 </h2>
