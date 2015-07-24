@@ -24,7 +24,7 @@
 </h2>
 <p>SPAM “黑云压城城欲催”。//@张维玉律师:说句实话还能蹋天不成？<br><br>RE: 中国石油、国家电网，谁在撒谎？<br><img src="http://ww2.sinaimg.cn/large/5de2c613jw1eudis12al3j20k00ri42r.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3868103903042583" target="freeweibo-mirror">SPAM 听老歌 献爱心 雷蒙老歌会 订单义买 老区扶贫ht…</a>
 </h2>
