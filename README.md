@@ -90,7 +90,7 @@
 </h2>
 <p>买卖不成仁义在嘛，何必这么兜自己的老底[挖鼻] http://t.cn/RLJ5kwg</p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3868114020505976" target="freeweibo-mirror">SPAM “黑云压城城欲催”。//@张维玉律师:说句实话还能…</a>
 </h2>
@@ -120,7 +120,7 @@
 </h2>
 <p>[吃驚] //@baiyang_lc://@公民社会2015:天朝政权有流氓化趋势，视访民为二等人民维权律师为政权不稳定因素//@沈阳李庆: //@文刀看今朝: 又出一个新点子阻访//@冷眼看天下2830478733:MD</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3868034987178070" target="freeweibo-mirror">中国石油、国家电网，谁在撒谎？</a>
 </h2>
