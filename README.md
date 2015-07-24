@@ -60,7 +60,7 @@
 </h2>
 <p>SPAM 越左的人越有问题 //@陈业文新大都:标准的政治正确发型。[嘻嘻]//@何葆国:[哈哈]//@黔山鹰:看见男人留这种发型就特么恶心！[吐]<br><br>RE: 宣称“公民社会是陷阱”的周本顺，今天落入党为他挖的陷阱中[哈哈]<br><img src="http://ww3.sinaimg.cn/large/7052cea7jw1eue1wasu7ej206s09c74e.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3868215388450090" target="freeweibo-mirror">SPAM 这是什么情况啊？//@齐鲁足坛:[怒]//@新然宝…</a>
 </h2>
