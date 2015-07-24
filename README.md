@@ -42,7 +42,7 @@
 </h2>
 <p>SPAM 看熱鬧的不嫌事兒大<br><br>RE: 买卖不成仁义在嘛，何必这么兜自己的老底[挖鼻] http://t.cn/RLJ5kwg</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3868130839276797" target="freeweibo-mirror">SPAM 一辈子，一帆风顺也好，跌宕起伏也罢，或者平淡普通，…</a>
 </h2>
