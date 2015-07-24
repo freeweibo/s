@@ -54,7 +54,7 @@
 </h2>
 <p>SPAM 越左的人越有问题 //@陈业文新大都:标准的政治正确发型。[嘻嘻]//@何葆国:[哈哈]//@黔山鹰:看见男人留这种发型就特么恶心！[吐]<br><br>RE: 宣称“公民社会是陷阱”的周本顺，今天落入党为他挖的陷阱中[哈哈]<br><img src="http://ww3.sinaimg.cn/large/7052cea7jw1eue1wasu7ej206s09c74e.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3868215388450090" target="freeweibo-mirror">SPAM 这是什么情况啊？//@齐鲁足坛:[怒]//@新然宝…</a>
 </h2>
@@ -72,13 +72,13 @@
 </h2>
 <p>宣称“公民社会是陷阱”的周本顺，今天落入党为他挖的陷阱中[哈哈]<br><img src="http://ww3.sinaimg.cn/large/7052cea7jw1eue1wasu7ej206s09c74e.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3868201442310793" target="freeweibo-mirror">【莫大的讽刺！！！】@新华网 7月24日18:16发 周本顺…</a>
 </h2>
 <p>【莫大的讽刺！！！】@新华网 7月24日18:16发 周本顺：党员干部要做到真信笃行守纪自省 http://t.cn/RLX0KoL</p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3868193972322922" target="freeweibo-mirror">“维护信仰尊严，反对强拆十字架！”十字架是红十字会的标志；十…</a>
 </h2>
