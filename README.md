@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3868143271596551" target="freeweibo-mirror">//@好兵帅克归来: 转发微博</a>
+</h2>
+<p>//@好兵帅克归来: 转发微博<br><br>RE: 【美议员：中国与朝鲜竞逐践踏人权底线】美国共和党成员克里斯·史密斯（Chris Smith）是美国众议院外交事务委员会和中国问题委员会的一名高级成员，他在国会的一次听证会上表示，在人权问题上，中国目前在与朝鲜逐底竞争，这是联合国发出声音的时候了。 http://t.cn/RLXIuBj<br><img src="http://ww4.sinaimg.cn/large/9dcb59c7jw1eudv26su5ij20m80fmtdi.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3868128171988114" target="freeweibo-mirror">这话说的，马克思不是流氓？列宁不是流氓？斯大林不是流氓？</a>
 </h2>
 <p>这话说的，马克思不是流氓？列宁不是流氓？斯大林不是流氓？<br><br>RE: 打土豪分田地，养活了一帮无产阶级不劳而获的小流氓；大字报红卫兵，产生了一批造反有理不学无术的小流氓；共青团自干五，网罗了一群脏心烂肺人格俱失的小流氓。[doge]前无温饱为衣食，现有俸禄无廉耻，神州流氓何其多，追根溯源在老毛。</p>
@@ -43,6 +49,12 @@
 <p>SPAM 9张动图告诉你，来大姨妈的我是这样的~~~~~~<br><img src="http://ww2.sinaimg.cn/large/8d297649jw1eudnzdjpwpg207804ub2a.gif"></p>
 <p>
 	<small> ============== 4小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3868086581239753" target="freeweibo-mirror">打土豪分田地，养活了一帮无产阶级不劳而获的小流氓；大字报红卫…</a>
+</h2>
+<p>打土豪分田地，养活了一帮无产阶级不劳而获的小流氓；大字报红卫兵，产生了一批造反有理不学无术的小流氓；共青团自干五，网罗了一群脏心烂肺人格俱失的小流氓。[doge]前无温饱为衣食，现有俸禄无廉耻，神州流氓何其多，追根溯源在老毛。</p>
+<p>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3868037528965226" target="freeweibo-mirror">[吃驚] //@baiyang_lc://@公民社会2015…</a>
 </h2>
@@ -125,18 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3867846352648478" target="freeweibo-mirror">死磕还在兴致勃勃 继续革命？</a>
 </h2>
 <p>死磕还在兴致勃勃 继续革命？<br><br>RE: 预告：本博主计划下周一实名举报最高人民法院院长周强涉嫌渎职犯罪，根据《中华人民共和国刑诉法》第109、110条的规定，将依法向最高人民检察院实名举报周强的违法犯罪行为，同时，也向广西壮族自治区人民检察院实名举报广西高级人民法院分管立案庭的副院长涉嫌渎职犯罪。</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3867842581269797" target="freeweibo-mirror">“没有任何政党能用枪杆子长久统治国家的，即使毛泽东再世、斯大…</a>
-</h2>
-<p>“没有任何政党能用枪杆子长久统治国家的，即使毛泽东再世、斯大林再世、列宁再世，也不能使共产主义在柬埔寨复活！今天柬埔寨的民主多党制不能取消，因为这是付出200多万条生命才得来的历史结论！”——柬埔寨首相洪森<br><img src="http://ww2.sinaimg.cn/large/8434d6ccgw1eucwor35l8j208c080t8t.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3867842347191568" target="freeweibo-mirror">//@金陵酒徒仓氏: //@记者-薛洪涛://@彭园v://…</a>
-</h2>
-<p>//@金陵酒徒仓氏: //@记者-薛洪涛://@彭园v://@青山仍妩媚:[怒]牠媽的!<br><br>RE: 你我皆乘客，不是看客……7.23溫湧動車事件四週年，當年香港某媒體評論此事只用了一幅圖一句話……（圖轉）<br><img src="http://ww1.sinaimg.cn/large/0068624Ngw1eucv2wewz6j30c8097wfl.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
