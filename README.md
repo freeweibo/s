@@ -48,7 +48,7 @@
 </h2>
 <p>SPAM  //@老故事周伟思:总有在人说明：越是发言左的，越是有问题的。</p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3868243523071116" target="freeweibo-mirror">SPAM 《求是》发表曾周本顺重要文章；社会管理不能落入“公…</a>
 </h2>
@@ -120,7 +120,7 @@
 </h2>
 <p>天主教温州教区，主教神父们市政府前抗议强拆十字架！！！<br><img src="http://ww3.sinaimg.cn/large/857a392djw1eudyy453o6j20qo0f0dj3.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3868173088529837" target="freeweibo-mirror">http://t.cn/RLXSBzP 2015年7月24日…</a>
 </h2>
