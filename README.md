@@ -48,7 +48,7 @@
 </h2>
 <p>天主教温州教区，主教神父们市政府前抗议强拆十字架！！！<br><img src="http://ww3.sinaimg.cn/large/857a392djw1eudyy453o6j20qo0f0dj3.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3868155326162634" target="freeweibo-mirror">SPAM 团队智商始终堪忧，一定是从对家挖来坑自己的[拜拜]…</a>
 </h2>
@@ -78,7 +78,7 @@
 </h2>
 <p>SPAM 一辈子，一帆风顺也好，跌宕起伏也罢，或者平淡普通，都是自己的命运。那些走过的，偶遇的，相逢的，别离的，都是唯一。无论何种境地，都不要抱怨世态，不能放弃底线，不必嫉恨他人。不贪，欲念就少；不嗔，心就易平；不求，就常知足。随缘顺缘，遇上了请珍惜。#吾木提撞脸刘诺一##看勇者奇兵看什么#<br><img src="http://ww4.sinaimg.cn/large/98c1610bjw1eudtsuyvb4j20c80fmt9v.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3868128171988114" target="freeweibo-mirror">这话说的，马克思不是流氓？列宁不是流氓？斯大林不是流氓？</a>
 </h2>
