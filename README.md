@@ -54,7 +54,7 @@
 </h2>
 <p>//@乐见花开: 服，长者确实还是很腻害的 //@chuant2010:擦 我毕业3年都算不了了(ಥ_ಥ) //@地刺Principle-First:作为蛤丝,必须点赞再续一秒[哆啦A梦微笑] //@不懂桑: //@奔驰的大白菜:very excited!</p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3867872499672134" target="freeweibo-mirror">网络时代别再做头埋沙子里的鸵鸟了。</a>
 </h2>
@@ -66,7 +66,7 @@
 </h2>
 <p>SPAM 在这世上，总会有人让你悲伤、让你嫉妒、让你咬牙切齿。但并不是他们有多坏，而是因为你很在乎。所以想心安，首先就要不在乎。你对事不在乎，它就伤害不到你；你对人不在乎，那么他就不会令你生气。。。#颜值高的人情商低# #罗晋暖友力#<br><img src="http://ww3.sinaimg.cn/large/98c1610bjw1eucyo4tr7xj2064064q35.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3867857136247174" target="freeweibo-mirror">回复@我好你好大家好111:[哈哈] 据说就一瓶酒，啧啧  …</a>
 </h2>
