@@ -54,7 +54,7 @@
 </h2>
 <p>中国石油、国家电网，谁在撒谎？<br><img src="http://ww2.sinaimg.cn/large/5de2c613jw1eudis12al3j20k00ri42r.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3867933770239047" target="freeweibo-mirror">SPAM //@逍遥游的传说: 花开一场，岁月留香，那场盲舞…</a>
 </h2>
