@@ -20,6 +20,18 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3868215388450090" target="freeweibo-mirror">SPAM 这是什么情况啊？//@齐鲁足坛:[怒]//@新然宝…</a>
+</h2>
+<p>SPAM 这是什么情况啊？//@齐鲁足坛:[怒]//@新然宝宝2011: //@Seven_Mr-L:@齐鲁足坛 @鲁能泰山足球新闻 @乐视体育国内足球 @李璇R9 @李欣 @永远的偏锋 @大朋鸟哥Style @山东鲁能泰山队足球播报 @贾岩峰Jelena @王大全 @济南时报印朋 @山东鲁能 @泰山晚报左海涛 天津保安打鲁能女球迷！求扩散！<br><br>RE: 天津安保打我们女球迷的证据，连女鲁蜜都欺负，还算人嘛！@华华86 @山东忠義球迷会 http://t.cn/RLXOyFF .</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3868193972322922" target="freeweibo-mirror">“维护信仰尊严，反对强拆十字架！”十字架是红十字会的标志；十…</a>
+</h2>
+<p>“维护信仰尊严，反对强拆十字架！”十字架是红十字会的标志；十字架是医院的记号；十字架是和平的象征；十字架显示天主对人的爱；十字架告诉人们复活的主与我们同在；十字架是我们生命的力量与希望！</p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3868188238415511" target="freeweibo-mirror">缔造世界奇迹！//@徐利平律师://@律师孟浩然://@作家…</a>
 </h2>
 <p>缔造世界奇迹！//@徐利平律师://@律师孟浩然://@作家东海:为何要拆十字架？ //@50年矛苔://@北京的齐齐: //@官发科08://@一品泥人V:转发微博<br><br>RE: 天主教温州教区，主教神父们市政府前抗议强拆十字架！！！<br><img src="http://ww3.sinaimg.cn/large/857a392djw1eudyy453o6j20qo0f0dj3.jpg"></p>
@@ -36,7 +48,7 @@
 </h2>
 <p>SPAM //@薛健同学:请大家帮忙找到她@任志强 @崔程 @石扉客2014 @孙春龙 @眠琴山房 @王广宇<br><br>RE: 分享图片<br><img src="http://ww2.sinaimg.cn/large/0068BZO7gw1eudt4jk1gmj30ae0m8myl.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3868178940066931" target="freeweibo-mirror">SPAM 那天跟@NATUNA童装 的北大才女老板辣妈艳总闲…</a>
 </h2>
@@ -47,6 +59,12 @@
 	<a href="https://freeweibo.com/weibo/3868175735658390" target="freeweibo-mirror">天主教温州教区，主教神父们市政府前抗议强拆十字架！！！</a>
 </h2>
 <p>天主教温州教区，主教神父们市政府前抗议强拆十字架！！！<br><img src="http://ww3.sinaimg.cn/large/857a392djw1eudyy453o6j20qo0f0dj3.jpg"></p>
+<p>
+	<small> ============== 5小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3868173088529837" target="freeweibo-mirror">http://t.cn/RLXSBzP 2015年7月24日…</a>
+</h2>
+<p>http://t.cn/RLXSBzP 2015年7月24日下午天主教温州教区全体神父在朱维芳主教的带领下，前往温州市政府前维权抗议。“维护信仰尊严，反对强拆十字架”。请大家祈祷、守斋并通过合法手段来维护信仰，决不退缩！<br><img src="http://ww4.sinaimg.cn/large/005CHfDrjw1eudymbuhopj30hs0dcack.jpg"></p>
 <p>
 	<small> ============== 5小时前</small>
 </p><h2>
@@ -72,7 +90,7 @@
 </h2>
 <p>SPAM 看熱鬧的不嫌事兒大<br><br>RE: 买卖不成仁义在嘛，何必这么兜自己的老底[挖鼻] http://t.cn/RLJ5kwg</p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3868130839276797" target="freeweibo-mirror">SPAM 一辈子，一帆风顺也好，跌宕起伏也罢，或者平淡普通，…</a>
 </h2>
@@ -119,24 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3868037528965226" target="freeweibo-mirror">[吃驚] //@baiyang_lc://@公民社会2015…</a>
 </h2>
 <p>[吃驚] //@baiyang_lc://@公民社会2015:天朝政权有流氓化趋势，视访民为二等人民维权律师为政权不稳定因素//@沈阳李庆: //@文刀看今朝: 又出一个新点子阻访//@冷眼看天下2830478733:MD</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3868034987178070" target="freeweibo-mirror">中国石油、国家电网，谁在撒谎？</a>
-</h2>
-<p>中国石油、国家电网，谁在撒谎？<br><img src="http://ww2.sinaimg.cn/large/5de2c613jw1eudis12al3j20k00ri42r.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3867933770239047" target="freeweibo-mirror">SPAM //@逍遥游的传说: 花开一场，岁月留香，那场盲舞…</a>
-</h2>
-<p>SPAM //@逍遥游的传说: 花开一场，岁月留香，那场盲舞，入了谁的梦？</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3867918666204075" target="freeweibo-mirror">几位的吐槽不觉得轻率了点？！ //@九问求索:应该管山顶洞人…</a>
-</h2>
-<p>几位的吐槽不觉得轻率了点？！ //@九问求索:应该管山顶洞人、蓝美人//@光魔-游勇: 我觉得应该挂秦始皇[酷] //@李一白:这博主智商太值得商榷了//@城市里的农民种房子:连基本的黑白都需要激烈争辩的国家问题太大了。//@李一白:中国人的信仰只能是腊肉？//@神州八号99:转发微博</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
