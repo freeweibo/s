@@ -60,7 +60,7 @@
 </h2>
 <p>网络时代别再做头埋沙子里的鸵鸟了。</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3867859941398698" target="freeweibo-mirror">SPAM 在这世上，总会有人让你悲伤、让你嫉妒、让你咬牙切齿…</a>
 </h2>
