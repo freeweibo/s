@@ -42,7 +42,7 @@
 </h2>
 <p>SPAM  //@老故事周伟思:总有在人说明：越是发言左的，越是有问题的。</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3868243523071116" target="freeweibo-mirror">SPAM 《求是》发表曾周本顺重要文章；社会管理不能落入“公…</a>
 </h2>
