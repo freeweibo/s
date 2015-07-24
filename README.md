@@ -42,7 +42,7 @@
 </h2>
 <p>SPAM 这些人想干什么？要开始杀人了？@文登警方在线 @威海警方在线 @公安部刑侦局 @公安部打四黑除四害<br><img src="http://ww4.sinaimg.cn/large/8dd872eejw1euea1jejluj20gy0qo41b.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3868244517626449" target="freeweibo-mirror">SPAM  //@老故事周伟思:总有在人说明：越是发言左的，…</a>
 </h2>
@@ -72,7 +72,7 @@
 </h2>
 <p>天津安保打我们女球迷的证据，连女鲁蜜都欺负，还算人嘛！@华华86 @山东忠義球迷会 http://t.cn/RLXOyFF .</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3868201781891701" target="freeweibo-mirror">宣称“公民社会是陷阱”的周本顺，今天落入党为他挖的陷阱中[哈…</a>
 </h2>
