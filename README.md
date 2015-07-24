@@ -36,7 +36,7 @@
 </h2>
 <p>//@永远是龙的传人2012://@打击侵略者D01:一个人，当最可怕的力量架在他头上，当最肮脏的臭粪泼在他身上，数以亿计的人民仍不顾风险选择喜爱他，这个人，再坏，坏不到哪里去，再不好，也定有其最好、最代表群众利益之处。</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3868272359115348" target="freeweibo-mirror">SPAM 这些人想干什么？要开始杀人了？@文登警方在线 @威…</a>
 </h2>
@@ -96,19 +96,19 @@
 </h2>
 <p>缔造世界奇迹！//@徐利平律师://@律师孟浩然://@作家东海:为何要拆十字架？ //@50年矛苔://@北京的齐齐: //@官发科08://@一品泥人V:转发微博<br><br>RE: 天主教温州教区，主教神父们市政府前抗议强拆十字架！！！<br><img src="http://ww3.sinaimg.cn/large/857a392djw1eudyy453o6j20qo0f0dj3.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3868187701881306" target="freeweibo-mirror">SPAM //@上海翁广宗://@任志强:警方可以随便抓人吗…</a>
 </h2>
 <p>SPAM //@上海翁广宗://@任志强:警方可以随便抓人吗？ //@薛健同学:请大家帮忙找到她@任志强 @崔程 @石扉客2014 @孙春龙 @眠琴山房 @王广宇<br><br>RE: 分享图片<br><img src="http://ww2.sinaimg.cn/large/0068BZO7gw1eudt4jk1gmj30ae0m8myl.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3868180688891491" target="freeweibo-mirror">SPAM //@薛健同学:请大家帮忙找到她@任志强 @崔程 …</a>
 </h2>
 <p>SPAM //@薛健同学:请大家帮忙找到她@任志强 @崔程 @石扉客2014 @孙春龙 @眠琴山房 @王广宇<br><br>RE: 分享图片<br><img src="http://ww2.sinaimg.cn/large/0068BZO7gw1eudt4jk1gmj30ae0m8myl.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3868178940066931" target="freeweibo-mirror">SPAM 那天跟@NATUNA童装 的北大才女老板辣妈艳总闲…</a>
 </h2>
