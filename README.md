@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3868128171988114" target="freeweibo-mirror">这话说的，马克思不是流氓？列宁不是流氓？斯大林不是流氓？</a>
+</h2>
+<p>这话说的，马克思不是流氓？列宁不是流氓？斯大林不是流氓？<br><br>RE: 打土豪分田地，养活了一帮无产阶级不劳而获的小流氓；大字报红卫兵，产生了一批造反有理不学无术的小流氓；共青团自干五，网罗了一群脏心烂肺人格俱失的小流氓。[doge]前无温饱为衣食，现有俸禄无廉耻，神州流氓何其多，追根溯源在老毛。</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3868114020505976" target="freeweibo-mirror">SPAM “黑云压城城欲催”。//@张维玉律师:说句实话还能…</a>
 </h2>
 <p>SPAM “黑云压城城欲催”。//@张维玉律师:说句实话还能蹋天不成？<br><br>RE: 中国石油、国家电网，谁在撒谎？<br><img src="http://ww2.sinaimg.cn/large/5de2c613jw1eudis12al3j20k00ri42r.jpg"></p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3867842347191568" target="freeweibo-mirror">//@金陵酒徒仓氏: //@记者-薛洪涛://@彭园v://…</a>
 </h2>
 <p>//@金陵酒徒仓氏: //@记者-薛洪涛://@彭园v://@青山仍妩媚:[怒]牠媽的!<br><br>RE: 你我皆乘客，不是看客……7.23溫湧動車事件四週年，當年香港某媒體評論此事只用了一幅圖一句話……（圖轉）<br><img src="http://ww1.sinaimg.cn/large/0068624Ngw1eucv2wewz6j30c8097wfl.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3867839650087327" target="freeweibo-mirror">//@青山仍妩媚:[怒]牠媽的!</a>
-</h2>
-<p>//@青山仍妩媚:[怒]牠媽的!<br><br>RE: 你我皆乘客，不是看客……7.23溫湧動車事件四週年，當年香港某媒體評論此事只用了一幅圖一句話……（圖轉）<br><img src="http://ww1.sinaimg.cn/large/0068624Ngw1eucv2wewz6j30c8097wfl.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
