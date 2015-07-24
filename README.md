@@ -44,6 +44,12 @@
 <p>
 	<small> ============== 7小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3868034987178070" target="freeweibo-mirror">中国石油、国家电网，谁在撒谎？</a>
+</h2>
+<p>中国石油、国家电网，谁在撒谎？<br><img src="http://ww2.sinaimg.cn/large/5de2c613jw1eudis12al3j20k00ri42r.jpg"></p>
+<p>
+	<small> ============== 7小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3867933770239047" target="freeweibo-mirror">SPAM //@逍遥游的传说: 花开一场，岁月留香，那场盲舞…</a>
 </h2>
 <p>SPAM //@逍遥游的传说: 花开一场，岁月留香，那场盲舞，入了谁的梦？</p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3867839650087327" target="freeweibo-mirror">//@青山仍妩媚:[怒]牠媽的!</a>
 </h2>
 <p>//@青山仍妩媚:[怒]牠媽的!<br><br>RE: 你我皆乘客，不是看客……7.23溫湧動車事件四週年，當年香港某媒體評論此事只用了一幅圖一句話……（圖轉）<br><img src="http://ww1.sinaimg.cn/large/0068624Ngw1eucv2wewz6j30c8097wfl.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3867836378555818" target="freeweibo-mirror">SPAM #就是任性怎么了# 想听你说说，关于旅行的故事，旅…</a>
-</h2>
-<p>SPAM #就是任性怎么了# 想听你说说，关于旅行的故事，旅行的味道[心]</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
