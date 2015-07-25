@@ -36,7 +36,7 @@
 </h2>
 <p>河北省委通报周本顺案：无论什么人违法都会被查 http://t.cn/RLaRqaW [哈哈][哈哈][哈哈] @思想火炬@军报记者<br><img src="http://ww2.sinaimg.cn/large/006004TRgw1eufbn4i7ijj30bm0fxmyh.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3868596336313255" target="freeweibo-mirror">SPAM 号外！终于有人开通跑步类微博啦，聪明的人都选择跑步…</a>
 </h2>
