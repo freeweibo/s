@@ -36,7 +36,7 @@
 </h2>
 <p>SPAM //@浩正刘臻: 都够开两桌麻将了 //@贺江兵:毛晓峰……<br><br>RE: 依照文字查了一下，湖南大学这条微博还在，可以考虑成立秦城校友会～<br><img src="http://ww2.sinaimg.cn/large/621d03b7jw1eue6v3bc2ij20v90p8q7y.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3868445668469151" target="freeweibo-mirror">回复@天晴的日子AK: 怎么着也不止仅仅就杀了八百多鬼子吧？…</a>
 </h2>
@@ -60,7 +60,7 @@
 </h2>
 <p>SPAM 我的个天哪！<br><br>RE: 想看本人高清无码，加我  V.   X.   哈哈<br><img src="http://ww1.sinaimg.cn/large/006aW3FDjw1euepltrts5j30hs0k4wga.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3868407939942309" target="freeweibo-mirror">想看本人高清无码，加我  V.   X.   哈哈</a>
 </h2>
