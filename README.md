@@ -66,7 +66,7 @@
 </h2>
 <p>//@飘絮的李二锅://@d1018: //@杨凤岗:转发微博<br><br>RE: 八十九岁的朱主教撑著拐杖，与公开教会团体二十多位神父拉着写着「维护信仰尊严，反对强拆十字架」、下款写着温州教区的横幅，手持「坚决反对强拆十字架」的单张，游行到市政府大楼外请愿。 http://t.cn/RLaLT5f<br><img src="http://ww1.sinaimg.cn/large/87497adegw1euepqdrzi2j20cx08mq4l.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3868457776997976" target="freeweibo-mirror">SPAM [吃惊]//@隆裕太后:同学会，可到秦城开了。</a>
 </h2>
@@ -126,7 +126,7 @@
 </h2>
 <p>#我让你拆#浙江基督教有教会在行动，让十字架走入每个信徒家。GCD发起拆教堂十字架运动，教会就发起家家挂十字架,人人穿戴十字架运动，并把十字架挂在屋顶发光发亮，让十字架的光芒照耀每个家庭，让十字架扎根在每个人心里，这是种安全合法的非暴力不合作方式，他们希望各教会接力跟上。<br><img src="http://ww4.sinaimg.cn/large/7200e068jw1euemtujgilj20nq0hs40m.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3868373886889981" target="freeweibo-mirror">咱们一向对待敌人是毫不留情的，无论国外还是国内，这样才能保住…</a>
 </h2>
