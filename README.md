@@ -42,7 +42,7 @@
 </h2>
 <p>SPAM 你的名字，我的心事。把你的名字做成项链戴在离心脏最近的地方[心]</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3868423539265371" target="freeweibo-mirror">其實，我也反課綱，只要說「roc」還存在的課綱，我就反對。可…</a>
 </h2>
@@ -92,6 +92,12 @@
 <p>
 	<small> ============== 1天前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3868244614023592" target="freeweibo-mirror">依照文字查了一下，湖南大学这条微博还在，可以考虑成立秦城校友…</a>
+</h2>
+<p>依照文字查了一下，湖南大学这条微博还在，可以考虑成立秦城校友会～<br><img src="http://ww2.sinaimg.cn/large/621d03b7jw1eue6v3bc2ij20v90p8q7y.jpg"></p>
+<p>
+	<small> ============== 1天前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3868244517626449" target="freeweibo-mirror">SPAM  //@老故事周伟思:总有在人说明：越是发言左的，…</a>
 </h2>
 <p>SPAM  //@老故事周伟思:总有在人说明：越是发言左的，越是有问题的。</p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3868201781891701" target="freeweibo-mirror">宣称“公民社会是陷阱”的周本顺，今天落入党为他挖的陷阱中[哈…</a>
 </h2>
 <p>宣称“公民社会是陷阱”的周本顺，今天落入党为他挖的陷阱中[哈哈]<br><img src="http://ww3.sinaimg.cn/large/7052cea7jw1eue1wasu7ej206s09c74e.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3868201442310793" target="freeweibo-mirror">【莫大的讽刺！！！】@新华网 7月24日18:16发 周本顺…</a>
-</h2>
-<p>【莫大的讽刺！！！】@新华网 7月24日18:16发 周本顺：党员干部要做到真信笃行守纪自省 http://t.cn/RLX0KoL</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
