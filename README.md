@@ -54,7 +54,7 @@
 </h2>
 <p>SPAM “在还有人被奴役、没有获得自由之前，没有人是自由的”<br><img src="http://ww2.sinaimg.cn/large/7d076e3ajw1eufhfd45tjj20m80m8di8.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3868648760511146" target="freeweibo-mirror">毛泽东说：凡是敌人反对的，我们就要拥护；凡是敌人拥护的，我们…</a>
 </h2>
