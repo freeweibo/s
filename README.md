@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3868635804508373" target="freeweibo-mirror">//@bfjsj: //@野靖春9: 能坚持20天已经是超人…</a>
+</h2>
+<p>//@bfjsj: //@野靖春9: 能坚持20天已经是超人了[赞]//@性情中人_19://@无蛋可疼_://@开心果果00000000: //@华夏之光01:转发微博</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3868629961943895" target="freeweibo-mirror">谣言[挖鼻] //@用户5415519866:[吃惊][吃惊…</a>
 </h2>
 <p>谣言[挖鼻] //@用户5415519866:[吃惊][吃惊]//@轩辕铮骨:[吃惊]//@數理化abc://@迎风背手l: [围观]//@草民评: 转发微博<br><br>RE: 说点什么好呢！<br><img src="http://ww1.sinaimg.cn/large/0068IOrhjw1eufaic7mn7j30bg06mmyj.jpg"></p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3868459714888102" target="freeweibo-mirror">//@飘絮的李二锅://@d1018: //@杨凤岗:转发微…</a>
 </h2>
 <p>//@飘絮的李二锅://@d1018: //@杨凤岗:转发微博<br><br>RE: 八十九岁的朱主教撑著拐杖，与公开教会团体二十多位神父拉着写着「维护信仰尊严，反对强拆十字架」、下款写着温州教区的横幅，手持「坚决反对强拆十字架」的单张，游行到市政府大楼外请愿。 http://t.cn/RLaLT5f<br><img src="http://ww1.sinaimg.cn/large/87497adegw1euepqdrzi2j20cx08mq4l.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3868457776997976" target="freeweibo-mirror">SPAM [吃惊]//@隆裕太后:同学会，可到秦城开了。</a>
-</h2>
-<p>SPAM [吃惊]//@隆裕太后:同学会，可到秦城开了。<br><br>RE: 依照文字查了一下，湖南大学这条微博还在，可以考虑成立秦城校友会～<br><img src="http://ww2.sinaimg.cn/large/621d03b7jw1eue6v3bc2ij20v90p8q7y.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
