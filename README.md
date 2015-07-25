@@ -48,7 +48,7 @@
 </h2>
 <p>SPAM 你的名字，我的心事。把你的名字做成项链戴在离心脏最近的地方[心]</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3868423539265371" target="freeweibo-mirror">其實，我也反課綱，只要說「roc」還存在的課綱，我就反對。可…</a>
 </h2>
