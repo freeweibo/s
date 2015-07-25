@@ -20,6 +20,18 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3868650002168187" target="freeweibo-mirror">SPAM “在还有人被奴役、没有获得自由之前，没有人是自由的…</a>
+</h2>
+<p>SPAM “在还有人被奴役、没有获得自由之前，没有人是自由的”<br><img src="http://ww2.sinaimg.cn/large/7d076e3ajw1eufhfd45tjj20m80m8di8.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3868648760511146" target="freeweibo-mirror">毛泽东说：凡是敌人反对的，我们就要拥护；凡是敌人拥护的，我们…</a>
+</h2>
+<p>毛泽东说：凡是敌人反对的，我们就要拥护；凡是敌人拥护的，我们就要反对。根据这个逻辑，西方讲人权，我们就不讲人权；西方讲宪政，我们就不讲宪政；西方讲多党制，我们就不讲多党制；西方讲言论自由，我们就不讲言论自由；西方讲普世价值，我们就不讲普世价值。万恶的西方敌对势力逼得我们无路可走！</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3868635804508373" target="freeweibo-mirror">//@bfjsj: //@野靖春9: 能坚持20天已经是超人…</a>
 </h2>
 <p>//@bfjsj: //@野靖春9: 能坚持20天已经是超人了[赞]//@性情中人_19://@无蛋可疼_://@开心果果00000000: //@华夏之光01:转发微博</p>
@@ -48,7 +60,7 @@
 </h2>
 <p>//@何紫微:让他们写吧，最终钉在历史耻辱柱上的一定不是那些访民！//@荣剑2001:该县因为这个做法估计可以进入世界志了，这是自秦始皇以来没有的做法，可谓前无古人，但不知道有无来者。</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3868600131660669" target="freeweibo-mirror">河北省委通报周本顺案：无论什么人违法都会被查 http://…</a>
 </h2>
@@ -96,7 +108,7 @@
 </h2>
 <p>【黑领巾】在纳粹德国，在校生要么加入希特勒少年团，要么加入德国少女联盟，这两个组织都戴黑领巾，从照片看，跟戴红领巾一摸一样。纳粹之所以要把学生组织起来，目的为让下一代继续作恶，完成他们未竟事业。在纳粹统治下，人生被规划成：十岁参加少年团，十四岁参加希特勒青年团，然后加入纳粹党。<br><img src="http://ww4.sinaimg.cn/large/b7224575gw1euf387y8kej20980codhl.jpg"></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3868501565360153" target="freeweibo-mirror">SPAM  //@君达乐的慢先生:为您祷告，愿您一生平顺，绝…</a>
 </h2>
@@ -125,18 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3868463754153114" target="freeweibo-mirror">SPAM //@梁溪居士://@泪水不再有温度: [瞧瞧] …</a>
 </h2>
 <p>SPAM //@梁溪居士://@泪水不再有温度: [瞧瞧] //@华夏佬伙计25世:罪犯摇篮啊，佩服//@杨子评:可悲！//@何光伟: 计划已变，本来不顺……悲哀啊<br><br>RE: 湖南大学工商管理学院，膜拜中<br><img src="http://ww3.sinaimg.cn/large/7cc9aaf1gw1eue5wd0eafj20hs0ect9r.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3868460964985058" target="freeweibo-mirror">//@飘絮的李二锅: //@追逐星辰的ame://@隐形Be…</a>
-</h2>
-<p>//@飘絮的李二锅: //@追逐星辰的ame://@隐形Benjamin:牛逼 //@尤素的电线杆子://@天主教在线:转发微博<br><br>RE: 天亮时，你将会看到温州满城的十字架<br><img src="http://ww3.sinaimg.cn/large/9df5372bgw1euesj400f9j20hs0nqdhr.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3868459714888102" target="freeweibo-mirror">//@飘絮的李二锅://@d1018: //@杨凤岗:转发微…</a>
-</h2>
-<p>//@飘絮的李二锅://@d1018: //@杨凤岗:转发微博<br><br>RE: 八十九岁的朱主教撑著拐杖，与公开教会团体二十多位神父拉着写着「维护信仰尊严，反对强拆十字架」、下款写着温州教区的横幅，手持「坚决反对强拆十字架」的单张，游行到市政府大楼外请愿。 http://t.cn/RLaLT5f<br><img src="http://ww1.sinaimg.cn/large/87497adegw1euepqdrzi2j20cx08mq4l.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
