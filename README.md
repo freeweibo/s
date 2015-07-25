@@ -72,7 +72,7 @@
 </h2>
 <p>SPAM 号外！终于有人开通跑步类微博啦，聪明的人都选择跑步保持自己的健康和体型，推荐大家都去关注这个微博@开跑吧</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3868589985761520" target="freeweibo-mirror">说点什么好呢！</a>
 </h2>
@@ -126,7 +126,7 @@
 </h2>
 <p>SPAM 回复@爱你们的猪:有可能还会增加[嘻嘻]//@爱你们的猪:这学校至少5分之2的犯罪率[哈哈]<br><br>RE: 湖南大学这下悲催了[笑cry]<br><img src="http://ww4.sinaimg.cn/large/7052cea7jw1eue8x7y95qj20hs0ectaz.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3868477892999310" target="freeweibo-mirror">SPAM //@逗比: 关注逗比之后，整个人都变了[笑cry…</a>
 </h2>
