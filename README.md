@@ -96,7 +96,7 @@
 </h2>
 <p>//@飘絮的李二锅://@d1018: //@杨凤岗:转发微博<br><br>RE: 八十九岁的朱主教撑著拐杖，与公开教会团体二十多位神父拉着写着「维护信仰尊严，反对强拆十字架」、下款写着温州教区的横幅，手持「坚决反对强拆十字架」的单张，游行到市政府大楼外请愿。 http://t.cn/RLaLT5f<br><img src="http://ww1.sinaimg.cn/large/87497adegw1euepqdrzi2j20cx08mq4l.jpg"></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3868457776997976" target="freeweibo-mirror">SPAM [吃惊]//@隆裕太后:同学会，可到秦城开了。</a>
 </h2>
