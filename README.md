@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3868603323869405" target="freeweibo-mirror">//@何紫微:让他们写吧，最终钉在历史耻辱柱上的一定不是那些…</a>
+</h2>
+<p>//@何紫微:让他们写吧，最终钉在历史耻辱柱上的一定不是那些访民！//@荣剑2001:该县因为这个做法估计可以进入世界志了，这是自秦始皇以来没有的做法，可谓前无古人，但不知道有无来者。</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3868560407653992" target="freeweibo-mirror">专制的外表总是相似的，民主的形式各有不同！ //@浩正刘臻:…</a>
 </h2>
 <p>专制的外表总是相似的，民主的形式各有不同！ //@浩正刘臻:眼熟 //@笑林书纪:博主吃顿好。。<br><br>RE: 【黑领巾】在纳粹德国，在校生要么加入希特勒少年团，要么加入德国少女联盟，这两个组织都戴黑领巾，从照片看，跟戴红领巾一摸一样。纳粹之所以要把学生组织起来，目的为让下一代继续作恶，完成他们未竟事业。在纳粹统治下，人生被规划成：十岁参加少年团，十四岁参加希特勒青年团，然后加入纳粹党。<br><img src="http://ww4.sinaimg.cn/large/b7224575gw1euf387y8kej20980codhl.jpg"></p>
@@ -54,7 +60,7 @@
 </h2>
 <p>SPAM  //@君达乐的慢先生:为您祷告，愿您一生平顺，绝不横遭逼迫和冤屈吧，免得您倒是心如刀绞伸冤无门还要听畜生说风凉话。//@windjor: 出口不行.....房地产投机也不行.....温州发廊也不让开了,所以就闹腾!!!!!<br><br>RE: 天亮时，你将会看到温州满城的十字架<br><img src="http://ww3.sinaimg.cn/large/9df5372bgw1euesj400f9j20hs0nqdhr.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3868500311717815" target="freeweibo-mirror">SPAM 以此为荣，活该打脸。呸。//@章文的文章: 回复@…</a>
 </h2>
@@ -120,7 +126,7 @@
 </h2>
 <p>SPAM 你的名字，我的心事。把你的名字做成项链戴在离心脏最近的地方[心]</p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3868433265909108" target="freeweibo-mirror">天亮时，你将会看到温州满城的十字架</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3868423539265371" target="freeweibo-mirror">其實，我也反課綱，只要說「roc」還存在的課綱，我就反對。可…</a>
 </h2>
 <p>其實，我也反課綱，只要說「roc」還存在的課綱，我就反對。可是，這些「口腔發音障礙弟」到底在反什麼？看http://t.cn/RLXhhLA //@阿不拉桑TW_:泥的黨娘不正是非法暴力推翻政府奪取政權的嗎……</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3868409513608150" target="freeweibo-mirror">SPAM 我的个天哪！</a>
-</h2>
-<p>SPAM 我的个天哪！<br><br>RE: 想看本人高清无码，加我  V.   X.   哈哈<br><img src="http://ww1.sinaimg.cn/large/006aW3FDjw1euepltrts5j30hs0k4wga.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
