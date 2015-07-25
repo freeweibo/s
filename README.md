@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3868560407653992" target="freeweibo-mirror">专制的外表总是相似的，民主的形式各有不同！ //@浩正刘臻:…</a>
+</h2>
+<p>专制的外表总是相似的，民主的形式各有不同！ //@浩正刘臻:眼熟 //@笑林书纪:博主吃顿好。。<br><br>RE: 【黑领巾】在纳粹德国，在校生要么加入希特勒少年团，要么加入德国少女联盟，这两个组织都戴黑领巾，从照片看，跟戴红领巾一摸一样。纳粹之所以要把学生组织起来，目的为让下一代继续作恶，完成他们未竟事业。在纳粹统治下，人生被规划成：十岁参加少年团，十四岁参加希特勒青年团，然后加入纳粹党。<br><img src="http://ww4.sinaimg.cn/large/b7224575gw1euf387y8kej20980codhl.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3868531542561010" target="freeweibo-mirror">//@布-衣-乱-弹://@阜宁网络正能量陈猛:专制防范和打…</a>
 </h2>
 <p>//@布-衣-乱-弹://@阜宁网络正能量陈猛:专制防范和打击国民的组织化，宗教信仰自由会带来思想的自由。//@我是个种田的乡下人://@倪律师-2014://@一品泥人: //@公民叶生: //@夜郎国外长://@主耶稣的大爱://@基督教:哈利路亚<br><br>RE: #我让你拆#浙江基督教有教会在行动，让十字架走入每个信徒家。GCD发起拆教堂十字架运动，教会就发起家家挂十字架,人人穿戴十字架运动，并把十字架挂在屋顶发光发亮，让十字架的光芒照耀每个家庭，让十字架扎根在每个人心里，这是种安全合法的非暴力不合作方式，他们希望各教会接力跟上。<br><img src="http://ww4.sinaimg.cn/large/7200e068jw1euemtujgilj20nq0hs40m.jpg"></p>
@@ -66,7 +72,7 @@
 </h2>
 <p>//@飘絮的李二锅://@d1018: //@杨凤岗:转发微博<br><br>RE: 八十九岁的朱主教撑著拐杖，与公开教会团体二十多位神父拉着写着「维护信仰尊严，反对强拆十字架」、下款写着温州教区的横幅，手持「坚决反对强拆十字架」的单张，游行到市政府大楼外请愿。 http://t.cn/RLaLT5f<br><img src="http://ww1.sinaimg.cn/large/87497adegw1euepqdrzi2j20cx08mq4l.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3868457776997976" target="freeweibo-mirror">SPAM [吃惊]//@隆裕太后:同学会，可到秦城开了。</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3868373886889981" target="freeweibo-mirror">咱们一向对待敌人是毫不留情的，无论国外还是国内，这样才能保住…</a>
 </h2>
 <p>咱们一向对待敌人是毫不留情的，无论国外还是国内，这样才能保住享乐的权力//@柳林青医:国民党反动派哪有共军无耻啊！//@若般蜜波罗://@马仙家:[衰][衰]</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3868292580491463" target="freeweibo-mirror">SPAM 新一代moto G将可以在moto maker中定…</a>
-</h2>
-<p>SPAM 新一代moto G将可以在moto maker中定制，包括前板（黑白可选），多彩背壳，摄像头金属条（多达10种颜色）和运行内存（1GB或者2GB）以及自选壁纸等。<br><img src="http://ww2.sinaimg.cn/large/5434fd39jw1euec94bbsvj20rs0rstdo.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
