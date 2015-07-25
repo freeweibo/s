@@ -90,7 +90,7 @@
 </h2>
 <p>SPAM [吃惊]//@隆裕太后:同学会，可到秦城开了。<br><br>RE: 依照文字查了一下，湖南大学这条微博还在，可以考虑成立秦城校友会～<br><img src="http://ww2.sinaimg.cn/large/621d03b7jw1eue6v3bc2ij20v90p8q7y.jpg"></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3868454396436758" target="freeweibo-mirror">SPAM //@浩正刘臻: 都够开两桌麻将了 //@贺江兵:…</a>
 </h2>
