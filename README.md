@@ -78,7 +78,7 @@
 </h2>
 <p>SPAM 基本靠谱！</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3868658403375483" target="freeweibo-mirror">//@李宇晖4: //@纽约北大飞:Repost</a>
 </h2>
@@ -126,7 +126,7 @@
 </h2>
 <p>谣言[挖鼻] //@用户5415519866:[吃惊][吃惊]//@轩辕铮骨:[吃惊]//@數理化abc://@迎风背手l: [围观]//@草民评: 转发微博<br><br>RE: 说点什么好呢！<br><img src="http://ww1.sinaimg.cn/large/0068IOrhjw1eufaic7mn7j30bg06mmyj.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3868628262356896" target="freeweibo-mirror">//@赵晓://@张志鹏老师:使用公共资源来信拜、来掩盖。这…</a>
 </h2>
