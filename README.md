@@ -26,6 +26,12 @@
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3868541637682879" target="freeweibo-mirror">共青团系统在网上发生的到底是一伙人？[思考] //@张洪峰:…</a>
+</h2>
+<p>共青团系统在网上发生的到底是一伙人？[思考] //@张洪峰:清单很好。文登那个评论是真的？<br><br>RE: 昨天你闹得欢，今天我拉清单。共青团中央沦陷，约八成省级共青团沦陷，大量基层团委沦陷，前仆后继，豪壮激越，俨然新时期的红卫兵。江西、安徽、甘肃、青海、云南、贵州、吉林和河南等省鸡血指数位居前列，青海最猛，贵州最萌。在警方通报调查结论后，无一回应，未现反思。我谴责共青团。<br><img src="http://ww4.sinaimg.cn/large/e11902d2jw1euet4lsvpjj20bs0vx1bd.jpg"></p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3868531542561010" target="freeweibo-mirror">//@布-衣-乱-弹://@阜宁网络正能量陈猛:专制防范和打…</a>
 </h2>
 <p>//@布-衣-乱-弹://@阜宁网络正能量陈猛:专制防范和打击国民的组织化，宗教信仰自由会带来思想的自由。//@我是个种田的乡下人://@倪律师-2014://@一品泥人: //@公民叶生: //@夜郎国外长://@主耶稣的大爱://@基督教:哈利路亚<br><br>RE: #我让你拆#浙江基督教有教会在行动，让十字架走入每个信徒家。GCD发起拆教堂十字架运动，教会就发起家家挂十字架,人人穿戴十字架运动，并把十字架挂在屋顶发光发亮，让十字架的光芒照耀每个家庭，让十字架扎根在每个人心里，这是种安全合法的非暴力不合作方式，他们希望各教会接力跟上。<br><img src="http://ww4.sinaimg.cn/large/7200e068jw1euemtujgilj20nq0hs40m.jpg"></p>
@@ -84,7 +90,7 @@
 </h2>
 <p>//@飘絮的李二锅://@d1018: //@杨凤岗:转发微博<br><br>RE: 八十九岁的朱主教撑著拐杖，与公开教会团体二十多位神父拉着写着「维护信仰尊严，反对强拆十字架」、下款写着温州教区的横幅，手持「坚决反对强拆十字架」的单张，游行到市政府大楼外请愿。 http://t.cn/RLaLT5f<br><img src="http://ww1.sinaimg.cn/large/87497adegw1euepqdrzi2j20cx08mq4l.jpg"></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3868457776997976" target="freeweibo-mirror">SPAM [吃惊]//@隆裕太后:同学会，可到秦城开了。</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3868408947281853" target="freeweibo-mirror">八十九岁的朱主教撑著拐杖，与公开教会团体二十多位神父拉着写着…</a>
 </h2>
 <p>八十九岁的朱主教撑著拐杖，与公开教会团体二十多位神父拉着写着「维护信仰尊严，反对强拆十字架」、下款写着温州教区的横幅，手持「坚决反对强拆十字架」的单张，游行到市政府大楼外请愿。 http://t.cn/RLaLT5f<br><img src="http://ww1.sinaimg.cn/large/87497adegw1euepqdrzi2j20cx08mq4l.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3868407939942309" target="freeweibo-mirror">想看本人高清无码，加我  V.   X.   哈哈</a>
-</h2>
-<p>想看本人高清无码，加我  V.   X.   哈哈<br><img src="http://ww1.sinaimg.cn/large/006aW3FDjw1euepltrts5j30hs0k4wga.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
