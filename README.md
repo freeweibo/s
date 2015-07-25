@@ -78,7 +78,13 @@
 </h2>
 <p>SPAM 你的名字，我的心事。把你的名字做成项链戴在离心脏最近的地方[心]</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3868433265909108" target="freeweibo-mirror">天亮时，你将会看到温州满城的十字架</a>
+</h2>
+<p>天亮时，你将会看到温州满城的十字架<br><img src="http://ww3.sinaimg.cn/large/9df5372bgw1euesj400f9j20hs0nqdhr.jpg"></p>
+<p>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3868423539265371" target="freeweibo-mirror">其實，我也反課綱，只要說「roc」還存在的課綱，我就反對。可…</a>
 </h2>
@@ -89,6 +95,12 @@
 	<a href="https://freeweibo.com/weibo/3868409513608150" target="freeweibo-mirror">SPAM 我的个天哪！</a>
 </h2>
 <p>SPAM 我的个天哪！<br><br>RE: 想看本人高清无码，加我  V.   X.   哈哈<br><img src="http://ww1.sinaimg.cn/large/006aW3FDjw1euepltrts5j30hs0k4wga.jpg"></p>
+<p>
+	<small> ============== 8小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3868408947281853" target="freeweibo-mirror">八十九岁的朱主教撑著拐杖，与公开教会团体二十多位神父拉着写着…</a>
+</h2>
+<p>八十九岁的朱主教撑著拐杖，与公开教会团体二十多位神父拉着写着「维护信仰尊严，反对强拆十字架」、下款写着温州教区的横幅，手持「坚决反对强拆十字架」的单张，游行到市政府大楼外请愿。 http://t.cn/RLaLT5f<br><img src="http://ww1.sinaimg.cn/large/87497adegw1euepqdrzi2j20cx08mq4l.jpg"></p>
 <p>
 	<small> ============== 8小时前</small>
 </p><h2>
@@ -125,18 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3868272359115348" target="freeweibo-mirror">SPAM 这些人想干什么？要开始杀人了？@文登警方在线 @威…</a>
 </h2>
 <p>SPAM 这些人想干什么？要开始杀人了？@文登警方在线 @威海警方在线 @公安部刑侦局 @公安部打四黑除四害<br><img src="http://ww4.sinaimg.cn/large/8dd872eejw1euea1jejluj20gy0qo41b.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3868244614023592" target="freeweibo-mirror">依照文字查了一下，湖南大学这条微博还在，可以考虑成立秦城校友…</a>
-</h2>
-<p>依照文字查了一下，湖南大学这条微博还在，可以考虑成立秦城校友会～<br><img src="http://ww2.sinaimg.cn/large/621d03b7jw1eue6v3bc2ij20v90p8q7y.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3868244517626449" target="freeweibo-mirror">SPAM  //@老故事周伟思:总有在人说明：越是发言左的，…</a>
-</h2>
-<p>SPAM  //@老故事周伟思:总有在人说明：越是发言左的，越是有问题的。</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
