@@ -42,7 +42,7 @@
 </h2>
 <p>SPAM 号外！终于有人开通跑步类微博啦，聪明的人都选择跑步保持自己的健康和体型，推荐大家都去关注这个微博@开跑吧</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3868560407653992" target="freeweibo-mirror">专制的外表总是相似的，民主的形式各有不同！ //@浩正刘臻:…</a>
 </h2>
@@ -108,7 +108,7 @@
 </h2>
 <p>//@飘絮的李二锅: //@追逐星辰的ame://@隐形Benjamin:牛逼 //@尤素的电线杆子://@天主教在线:转发微博<br><br>RE: 天亮时，你将会看到温州满城的十字架<br><img src="http://ww3.sinaimg.cn/large/9df5372bgw1euesj400f9j20hs0nqdhr.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3868459714888102" target="freeweibo-mirror">//@飘絮的李二锅://@d1018: //@杨凤岗:转发微…</a>
 </h2>
