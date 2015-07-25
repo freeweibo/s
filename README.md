@@ -54,7 +54,7 @@
 </h2>
 <p>共青团系统在网上发生的到底是一伙人？[思考] //@张洪峰:清单很好。文登那个评论是真的？<br><br>RE: 昨天你闹得欢，今天我拉清单。共青团中央沦陷，约八成省级共青团沦陷，大量基层团委沦陷，前仆后继，豪壮激越，俨然新时期的红卫兵。江西、安徽、甘肃、青海、云南、贵州、吉林和河南等省鸡血指数位居前列，青海最猛，贵州最萌。在警方通报调查结论后，无一回应，未现反思。我谴责共青团。<br><img src="http://ww4.sinaimg.cn/large/e11902d2jw1euet4lsvpjj20bs0vx1bd.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3868531542561010" target="freeweibo-mirror">//@布-衣-乱-弹://@阜宁网络正能量陈猛:专制防范和打…</a>
 </h2>
@@ -120,7 +120,7 @@
 </h2>
 <p>SPAM [吃惊]//@隆裕太后:同学会，可到秦城开了。<br><br>RE: 依照文字查了一下，湖南大学这条微博还在，可以考虑成立秦城校友会～<br><img src="http://ww2.sinaimg.cn/large/621d03b7jw1eue6v3bc2ij20v90p8q7y.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3868454396436758" target="freeweibo-mirror">SPAM //@浩正刘臻: 都够开两桌麻将了 //@贺江兵:…</a>
 </h2>
