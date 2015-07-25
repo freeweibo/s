@@ -20,6 +20,36 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3868674530626872" target="freeweibo-mirror">//@清华秦鹏:--》 //@AGatHere:这些可都是官…</a>
+</h2>
+<p>//@清华秦鹏:--》 //@AGatHere:这些可都是官方网站 [笑cry]http://t.cn/hbXZmD http://t.cn/zTggzFs</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3868674316611005" target="freeweibo-mirror">SPAM //@hwbwyh:关注，清算！[怒]</a>
+</h2>
+<p>SPAM //@hwbwyh:关注，清算！[怒]<br><br>RE: 【这个星球前所未有的罪恶】<br><img src="http://ww2.sinaimg.cn/large/005UYVtojw1eufje3bemhj30k03yiwwn.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3868673699746163" target="freeweibo-mirror">//@老衲法号_册空: 转发微博</a>
+</h2>
+<p>//@老衲法号_册空: 转发微博<br><br>RE: 截至2015年7月25日20 :00，至少255名律师/律所人员/人权捍卫者被刑拘/带走/失联/约谈/传唤/短期限制人身自由  http://t.cn/RLShkqD</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3868673372735157" target="freeweibo-mirror">国防部请改名为党防部！退还税款改用党费养你们，中共党卫军！/…</a>
+</h2>
+<p>国防部请改名为党防部！退还税款改用党费养你们，中共党卫军！//@陈有西: 强权之下说胡话。宪法明确规定了国家军事委员会，党章同时规定了中央军委，两个军委任命来源不同，一套班子办公。否定军队的国家属性极为荒谬。 //@赵晓:中国人民解放军。 //@山高路远N:军队不是国家的，那是谁的？</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3868662358824237" target="freeweibo-mirror">//@理客墙://@隐形Benjamin:转发微博</a>
+</h2>
+<p>//@理客墙://@隐形Benjamin:转发微博<br><br>RE: 考拉，本名趙威，91年出生的小女孩，今年僅24歲，畢業於江西師範大學新聞專業，大學開始就從事於公益活動。2014年10月起任著名人權律師李和平的助手，從事法律維權工作， 考拉於2015年7月11日被北京警方從北京家中帶走並抄家，至今無任何拘留通知及手續，也不知道人被關在哪裡。<br><img src="http://ww3.sinaimg.cn/large/005VMkjFgw1euffgtt6dnj30dc0dcgoi.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3868650002168187" target="freeweibo-mirror">SPAM “在还有人被奴役、没有获得自由之前，没有人是自由的…</a>
 </h2>
 <p>SPAM “在还有人被奴役、没有获得自由之前，没有人是自由的”<br><img src="http://ww2.sinaimg.cn/large/7d076e3ajw1eufhfd45tjj20m80m8di8.jpg"></p>
@@ -30,7 +60,7 @@
 </h2>
 <p>毛泽东说：凡是敌人反对的，我们就要拥护；凡是敌人拥护的，我们就要反对。根据这个逻辑，西方讲人权，我们就不讲人权；西方讲宪政，我们就不讲宪政；西方讲多党制，我们就不讲多党制；西方讲言论自由，我们就不讲言论自由；西方讲普世价值，我们就不讲普世价值。万恶的西方敌对势力逼得我们无路可走！</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3868635804508373" target="freeweibo-mirror">//@bfjsj: //@野靖春9: 能坚持20天已经是超人…</a>
 </h2>
@@ -60,7 +90,7 @@
 </h2>
 <p>//@何紫微:让他们写吧，最终钉在历史耻辱柱上的一定不是那些访民！//@荣剑2001:该县因为这个做法估计可以进入世界志了，这是自秦始皇以来没有的做法，可谓前无古人，但不知道有无来者。</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3868600131660669" target="freeweibo-mirror">河北省委通报周本顺案：无论什么人违法都会被查 http://…</a>
 </h2>
@@ -108,37 +138,7 @@
 </h2>
 <p>【黑领巾】在纳粹德国，在校生要么加入希特勒少年团，要么加入德国少女联盟，这两个组织都戴黑领巾，从照片看，跟戴红领巾一摸一样。纳粹之所以要把学生组织起来，目的为让下一代继续作恶，完成他们未竟事业。在纳粹统治下，人生被规划成：十岁参加少年团，十四岁参加希特勒青年团，然后加入纳粹党。<br><img src="http://ww4.sinaimg.cn/large/b7224575gw1euf387y8kej20980codhl.jpg"></p>
 <p>
-	<small> ============== 10小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3868501565360153" target="freeweibo-mirror">SPAM  //@君达乐的慢先生:为您祷告，愿您一生平顺，绝…</a>
-</h2>
-<p>SPAM  //@君达乐的慢先生:为您祷告，愿您一生平顺，绝不横遭逼迫和冤屈吧，免得您倒是心如刀绞伸冤无门还要听畜生说风凉话。//@windjor: 出口不行.....房地产投机也不行.....温州发廊也不让开了,所以就闹腾!!!!!<br><br>RE: 天亮时，你将会看到温州满城的十字架<br><img src="http://ww3.sinaimg.cn/large/9df5372bgw1euesj400f9j20hs0nqdhr.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3868500311717815" target="freeweibo-mirror">SPAM 以此为荣，活该打脸。呸。//@章文的文章: 回复@…</a>
-</h2>
-<p>SPAM 以此为荣，活该打脸。呸。//@章文的文章: 回复@爱你们的猪:有可能还会增加[嘻嘻]//@爱你们的猪:这学校至少5分之2的犯罪率[哈哈]<br><br>RE: 湖南大学这下悲催了[笑cry]<br><img src="http://ww4.sinaimg.cn/large/7052cea7jw1eue8x7y95qj20hs0ectaz.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3868497815963448" target="freeweibo-mirror">SPAM 回复@爱你们的猪:有可能还会增加[嘻嘻]//@爱你…</a>
-</h2>
-<p>SPAM 回复@爱你们的猪:有可能还会增加[嘻嘻]//@爱你们的猪:这学校至少5分之2的犯罪率[哈哈]<br><br>RE: 湖南大学这下悲催了[笑cry]<br><img src="http://ww4.sinaimg.cn/large/7052cea7jw1eue8x7y95qj20hs0ectaz.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3868477892999310" target="freeweibo-mirror">SPAM //@逗比: 关注逗比之后，整个人都变了[笑cry…</a>
-</h2>
-<p>SPAM //@逗比: 关注逗比之后，整个人都变了[笑cry]</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3868463754153114" target="freeweibo-mirror">SPAM //@梁溪居士://@泪水不再有温度: [瞧瞧] …</a>
-</h2>
-<p>SPAM //@梁溪居士://@泪水不再有温度: [瞧瞧] //@华夏佬伙计25世:罪犯摇篮啊，佩服//@杨子评:可悲！//@何光伟: 计划已变，本来不顺……悲哀啊<br><br>RE: 湖南大学工商管理学院，膜拜中<br><img src="http://ww3.sinaimg.cn/large/7cc9aaf1gw1eue5wd0eafj20hs0ect9r.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
+	<small> ============== 11小时前</small>
 </p>
 <table>
     <tr>
