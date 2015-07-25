@@ -66,7 +66,7 @@
 </h2>
 <p>特务绑架？//@君达乐的慢先生: //@理客墙://@隐形Benjamin:转发微博<br><br>RE: 考拉，本名趙威，91年出生的小女孩，今年僅24歲，畢業於江西師範大學新聞專業，大學開始就從事於公益活動。2014年10月起任著名人權律師李和平的助手，從事法律維權工作， 考拉於2015年7月11日被北京警方從北京家中帶走並抄家，至今無任何拘留通知及手續，也不知道人被關在哪裡。<br><img src="http://ww3.sinaimg.cn/large/005VMkjFgw1euffgtt6dnj30dc0dcgoi.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3868662358824237" target="freeweibo-mirror">//@理客墙://@隐形Benjamin:转发微博</a>
 </h2>
@@ -90,13 +90,13 @@
 </h2>
 <p>SPAM “在还有人被奴役、没有获得自由之前，没有人是自由的”<br><img src="http://ww2.sinaimg.cn/large/7d076e3ajw1eufhfd45tjj20m80m8di8.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3868649440129150" target="freeweibo-mirror">//@顾不厌: //@akid://@石金领还在说: 转发微…</a>
 </h2>
 <p>//@顾不厌: //@akid://@石金领还在说: 转发微博<br><br>RE: 考拉，本名趙威，91年出生的小女孩，今年僅24歲，畢業於江西師範大學新聞專業，大學開始就從事於公益活動。2014年10月起任著名人權律師李和平的助手，從事法律維權工作， 考拉於2015年7月11日被北京警方從北京家中帶走並抄家，至今無任何拘留通知及手續，也不知道人被關在哪裡。<br><img src="http://ww3.sinaimg.cn/large/005VMkjFgw1euffgtt6dnj30dc0dcgoi.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3868648760511146" target="freeweibo-mirror">毛泽东说：凡是敌人反对的，我们就要拥护；凡是敌人拥护的，我们…</a>
 </h2>
