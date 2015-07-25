@@ -36,7 +36,7 @@
 </h2>
 <p>//@布-衣-乱-弹://@阜宁网络正能量陈猛:专制防范和打击国民的组织化，宗教信仰自由会带来思想的自由。//@我是个种田的乡下人://@倪律师-2014://@一品泥人: //@公民叶生: //@夜郎国外长://@主耶稣的大爱://@基督教:哈利路亚<br><br>RE: #我让你拆#浙江基督教有教会在行动，让十字架走入每个信徒家。GCD发起拆教堂十字架运动，教会就发起家家挂十字架,人人穿戴十字架运动，并把十字架挂在屋顶发光发亮，让十字架的光芒照耀每个家庭，让十字架扎根在每个人心里，这是种安全合法的非暴力不合作方式，他们希望各教会接力跟上。<br><img src="http://ww4.sinaimg.cn/large/7200e068jw1euemtujgilj20nq0hs40m.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3868530116454361" target="freeweibo-mirror">SPAM  //@陈忆V://@水兵李铭://@无名网络5M…</a>
 </h2>
@@ -60,7 +60,7 @@
 </h2>
 <p>SPAM 以此为荣，活该打脸。呸。//@章文的文章: 回复@爱你们的猪:有可能还会增加[嘻嘻]//@爱你们的猪:这学校至少5分之2的犯罪率[哈哈]<br><br>RE: 湖南大学这下悲催了[笑cry]<br><img src="http://ww4.sinaimg.cn/large/7052cea7jw1eue8x7y95qj20hs0ectaz.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3868497815963448" target="freeweibo-mirror">SPAM 回复@爱你们的猪:有可能还会增加[嘻嘻]//@爱你…</a>
 </h2>
@@ -126,7 +126,7 @@
 </h2>
 <p>天亮时，你将会看到温州满城的十字架<br><img src="http://ww3.sinaimg.cn/large/9df5372bgw1euesj400f9j20hs0nqdhr.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3868423539265371" target="freeweibo-mirror">其實，我也反課綱，只要說「roc」還存在的課綱，我就反對。可…</a>
 </h2>
