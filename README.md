@@ -30,7 +30,7 @@
 </h2>
 <p>SPAM 新一代moto G将可以在moto maker中定制，包括前板（黑白可选），多彩背壳，摄像头金属条（多达10种颜色）和运行内存（1GB或者2GB）以及自选壁纸等。<br><img src="http://ww2.sinaimg.cn/large/5434fd39jw1euec94bbsvj20rs0rstdo.jpg"></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3868279283961912" target="freeweibo-mirror">SPAM 清新又文艺，睡前刷刷刷 [鼓掌]</a>
 </h2>
