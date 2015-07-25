@@ -90,7 +90,7 @@
 </h2>
 <p>SPAM 回复@爱你们的猪:有可能还会增加[嘻嘻]//@爱你们的猪:这学校至少5分之2的犯罪率[哈哈]<br><br>RE: 湖南大学这下悲催了[笑cry]<br><img src="http://ww4.sinaimg.cn/large/7052cea7jw1eue8x7y95qj20hs0ectaz.jpg"></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3868477892999310" target="freeweibo-mirror">SPAM //@逗比: 关注逗比之后，整个人都变了[笑cry…</a>
 </h2>
@@ -108,7 +108,7 @@
 </h2>
 <p>//@飘絮的李二锅: //@追逐星辰的ame://@隐形Benjamin:牛逼 //@尤素的电线杆子://@天主教在线:转发微博<br><br>RE: 天亮时，你将会看到温州满城的十字架<br><img src="http://ww3.sinaimg.cn/large/9df5372bgw1euesj400f9j20hs0nqdhr.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3868459714888102" target="freeweibo-mirror">//@飘絮的李二锅://@d1018: //@杨凤岗:转发微…</a>
 </h2>
