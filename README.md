@@ -54,7 +54,7 @@
 </h2>
 <p>SPAM 清新又文艺，睡前刷刷刷 [鼓掌]</p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3868278495883080" target="freeweibo-mirror">//@永远是龙的传人2012://@打击侵略者D01:一个人…</a>
 </h2>
@@ -66,7 +66,7 @@
 </h2>
 <p>SPAM 这些人想干什么？要开始杀人了？@文登警方在线 @威海警方在线 @公安部刑侦局 @公安部打四黑除四害<br><img src="http://ww4.sinaimg.cn/large/8dd872eejw1euea1jejluj20gy0qo41b.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3868244517626449" target="freeweibo-mirror">SPAM  //@老故事周伟思:总有在人说明：越是发言左的，…</a>
 </h2>
