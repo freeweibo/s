@@ -30,7 +30,7 @@
 </h2>
 <p>SPAM  //@君达乐的慢先生:为您祷告，愿您一生平顺，绝不横遭逼迫和冤屈吧，免得您倒是心如刀绞伸冤无门还要听畜生说风凉话。//@windjor: 出口不行.....房地产投机也不行.....温州发廊也不让开了,所以就闹腾!!!!!<br><br>RE: 天亮时，你将会看到温州满城的十字架<br><img src="http://ww3.sinaimg.cn/large/9df5372bgw1euesj400f9j20hs0nqdhr.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3868500311717815" target="freeweibo-mirror">SPAM 以此为荣，活该打脸。呸。//@章文的文章: 回复@…</a>
 </h2>
@@ -90,7 +90,7 @@
 </h2>
 <p>SPAM 你的名字，我的心事。把你的名字做成项链戴在离心脏最近的地方[心]</p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3868433265909108" target="freeweibo-mirror">天亮时，你将会看到温州满城的十字架</a>
 </h2>
@@ -122,21 +122,21 @@
 <p>
 	<small> ============== 10小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3868384175549935" target="freeweibo-mirror">#我让你拆#浙江基督教有教会在行动，让十字架走入每个信徒家。…</a>
+</h2>
+<p>#我让你拆#浙江基督教有教会在行动，让十字架走入每个信徒家。GCD发起拆教堂十字架运动，教会就发起家家挂十字架,人人穿戴十字架运动，并把十字架挂在屋顶发光发亮，让十字架的光芒照耀每个家庭，让十字架扎根在每个人心里，这是种安全合法的非暴力不合作方式，他们希望各教会接力跟上。<br><img src="http://ww4.sinaimg.cn/large/7200e068jw1euemtujgilj20nq0hs40m.jpg"></p>
+<p>
+	<small> ============== 11小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3868373886889981" target="freeweibo-mirror">咱们一向对待敌人是毫不留情的，无论国外还是国内，这样才能保住…</a>
 </h2>
 <p>咱们一向对待敌人是毫不留情的，无论国外还是国内，这样才能保住享乐的权力//@柳林青医:国民党反动派哪有共军无耻啊！//@若般蜜波罗://@马仙家:[衰][衰]</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3868292580491463" target="freeweibo-mirror">SPAM 新一代moto G将可以在moto maker中定…</a>
 </h2>
 <p>SPAM 新一代moto G将可以在moto maker中定制，包括前板（黑白可选），多彩背壳，摄像头金属条（多达10种颜色）和运行内存（1GB或者2GB）以及自选壁纸等。<br><img src="http://ww2.sinaimg.cn/large/5434fd39jw1euec94bbsvj20rs0rstdo.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3868279283961912" target="freeweibo-mirror">SPAM 清新又文艺，睡前刷刷刷 [鼓掌]</a>
-</h2>
-<p>SPAM 清新又文艺，睡前刷刷刷 [鼓掌]</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
