@@ -84,7 +84,7 @@
 </h2>
 <p>//@飘絮的李二锅: //@追逐星辰的ame://@隐形Benjamin:牛逼 //@尤素的电线杆子://@天主教在线:转发微博<br><br>RE: 天亮时，你将会看到温州满城的十字架<br><img src="http://ww3.sinaimg.cn/large/9df5372bgw1euesj400f9j20hs0nqdhr.jpg"></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3868459714888102" target="freeweibo-mirror">//@飘絮的李二锅://@d1018: //@杨凤岗:转发微…</a>
 </h2>
@@ -108,7 +108,7 @@
 </h2>
 <p>回复@天晴的日子AK: 怎么着也不止仅仅就杀了八百多鬼子吧？这确实也有点儿离谱了.......[偷笑][嘻嘻][哈哈] //@天晴的日子AK:到底共党打死了几多鬼子，这数字不能公开吗？</p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3868441834345406" target="freeweibo-mirror">SPAM 你的名字，我的心事。把你的名字做成项链戴在离心脏最…</a>
 </h2>
@@ -126,7 +126,7 @@
 </h2>
 <p>其實，我也反課綱，只要說「roc」還存在的課綱，我就反對。可是，這些「口腔發音障礙弟」到底在反什麼？看http://t.cn/RLXhhLA //@阿不拉桑TW_:泥的黨娘不正是非法暴力推翻政府奪取政權的嗎……</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3868409513608150" target="freeweibo-mirror">SPAM 我的个天哪！</a>
 </h2>
