@@ -30,7 +30,7 @@
 </h2>
 <p>SPAM 以此为荣，活该打脸。呸。//@章文的文章: 回复@爱你们的猪:有可能还会增加[嘻嘻]//@爱你们的猪:这学校至少5分之2的犯罪率[哈哈]<br><br>RE: 湖南大学这下悲催了[笑cry]<br><img src="http://ww4.sinaimg.cn/large/7052cea7jw1eue8x7y95qj20hs0ectaz.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3868497815963448" target="freeweibo-mirror">SPAM 回复@爱你们的猪:有可能还会增加[嘻嘻]//@爱你…</a>
 </h2>
