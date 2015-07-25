@@ -120,7 +120,7 @@
 </h2>
 <p>咱们一向对待敌人是毫不留情的，无论国外还是国内，这样才能保住享乐的权力//@柳林青医:国民党反动派哪有共军无耻啊！//@若般蜜波罗://@马仙家:[衰][衰]</p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3868292580491463" target="freeweibo-mirror">SPAM 新一代moto G将可以在moto maker中定…</a>
 </h2>
