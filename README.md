@@ -24,7 +24,7 @@
 </h2>
 <p>其實，我也反課綱，只要說「roc」還存在的課綱，我就反對。可是，這些「口腔發音障礙弟」到底在反什麼？看http://t.cn/RLXhhLA //@阿不拉桑TW_:泥的黨娘不正是非法暴力推翻政府奪取政權的嗎……</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3868409513608150" target="freeweibo-mirror">SPAM 我的个天哪！</a>
 </h2>
@@ -60,7 +60,7 @@
 </h2>
 <p>SPAM 这些人想干什么？要开始杀人了？@文登警方在线 @威海警方在线 @公安部刑侦局 @公安部打四黑除四害<br><img src="http://ww4.sinaimg.cn/large/8dd872eejw1euea1jejluj20gy0qo41b.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3868244517626449" target="freeweibo-mirror">SPAM  //@老故事周伟思:总有在人说明：越是发言左的，…</a>
 </h2>
