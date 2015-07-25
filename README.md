@@ -20,6 +20,18 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3868629961943895" target="freeweibo-mirror">谣言[挖鼻] //@用户5415519866:[吃惊][吃惊…</a>
+</h2>
+<p>谣言[挖鼻] //@用户5415519866:[吃惊][吃惊]//@轩辕铮骨:[吃惊]//@數理化abc://@迎风背手l: [围观]//@草民评: 转发微博<br><br>RE: 说点什么好呢！<br><img src="http://ww1.sinaimg.cn/large/0068IOrhjw1eufaic7mn7j30bg06mmyj.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3868628262356896" target="freeweibo-mirror">//@赵晓://@张志鹏老师:使用公共资源来信拜、来掩盖。这…</a>
+</h2>
+<p>//@赵晓://@张志鹏老师:使用公共资源来信拜、来掩盖。这才是问题的严重性。//@李向平围脖: 除了温州之外，真正信基督教的官员并不多，而是参加各种宗教活动的多，信民间社会其他神灵的多，拜菩萨的多，信拜各种神秘“大师”的多。这种私秘信拜的现象非常严重，却又使用公共资源来信拜、来掩盖。</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3868612794365013" target="freeweibo-mirror">//@小朋友家族族长://@执着2012的天空: [给力][…</a>
 </h2>
 <p>//@小朋友家族族长://@执着2012的天空: [给力][给力][给力] //@我是小猪倌:最右！ //@文化刀十Q://@自我天地2014: [话筒]//@神枪2015://@红菱燕1:你若安好，便是黑暗！<br><br>RE: 河北省委通报周本顺案：无论什么人违法都会被查 http://t.cn/RLaRqaW [哈哈][哈哈][哈哈] @思想火炬@军报记者<br><img src="http://ww2.sinaimg.cn/large/006004TRgw1eufbn4i7ijj30bm0fxmyh.jpg"></p>
@@ -78,7 +90,7 @@
 </h2>
 <p>SPAM  //@君达乐的慢先生:为您祷告，愿您一生平顺，绝不横遭逼迫和冤屈吧，免得您倒是心如刀绞伸冤无门还要听畜生说风凉话。//@windjor: 出口不行.....房地产投机也不行.....温州发廊也不让开了,所以就闹腾!!!!!<br><br>RE: 天亮时，你将会看到温州满城的十字架<br><img src="http://ww3.sinaimg.cn/large/9df5372bgw1euesj400f9j20hs0nqdhr.jpg"></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3868500311717815" target="freeweibo-mirror">SPAM 以此为荣，活该打脸。呸。//@章文的文章: 回复@…</a>
 </h2>
@@ -125,18 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3868454396436758" target="freeweibo-mirror">SPAM //@浩正刘臻: 都够开两桌麻将了 //@贺江兵:…</a>
 </h2>
 <p>SPAM //@浩正刘臻: 都够开两桌麻将了 //@贺江兵:毛晓峰……<br><br>RE: 依照文字查了一下，湖南大学这条微博还在，可以考虑成立秦城校友会～<br><img src="http://ww2.sinaimg.cn/large/621d03b7jw1eue6v3bc2ij20v90p8q7y.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3868446607552868" target="freeweibo-mirror">昨天你闹得欢，今天我拉清单。共青团中央沦陷，约八成省级共青团…</a>
-</h2>
-<p>昨天你闹得欢，今天我拉清单。共青团中央沦陷，约八成省级共青团沦陷，大量基层团委沦陷，前仆后继，豪壮激越，俨然新时期的红卫兵。江西、安徽、甘肃、青海、云南、贵州、吉林和河南等省鸡血指数位居前列，青海最猛，贵州最萌。在警方通报调查结论后，无一回应，未现反思。我谴责共青团。<br><img src="http://ww4.sinaimg.cn/large/e11902d2jw1euet4lsvpjj20bs0vx1bd.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3868445668469151" target="freeweibo-mirror">回复@天晴的日子AK: 怎么着也不止仅仅就杀了八百多鬼子吧？…</a>
-</h2>
-<p>回复@天晴的日子AK: 怎么着也不止仅仅就杀了八百多鬼子吧？这确实也有点儿离谱了.......[偷笑][嘻嘻][哈哈] //@天晴的日子AK:到底共党打死了几多鬼子，这数字不能公开吗？</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
