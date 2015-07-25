@@ -32,11 +32,17 @@
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3868530116454361" target="freeweibo-mirror">SPAM  //@陈忆V://@水兵李铭://@无名网络5M…</a>
+</h2>
+<p>SPAM  //@陈忆V://@水兵李铭://@无名网络5MWL_com://@地球人很可怕:好像[doge]<br><br>RE: 【黑领巾】在纳粹德国，在校生要么加入希特勒少年团，要么加入德国少女联盟，这两个组织都戴黑领巾，从照片看，跟戴红领巾一摸一样。纳粹之所以要把学生组织起来，目的为让下一代继续作恶，完成他们未竟事业。在纳粹统治下，人生被规划成：十岁参加少年团，十四岁参加希特勒青年团，然后加入纳粹党。<br><img src="http://ww4.sinaimg.cn/large/b7224575gw1euf387y8kej20980codhl.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3868526928965013" target="freeweibo-mirror">【黑领巾】在纳粹德国，在校生要么加入希特勒少年团，要么加入德…</a>
 </h2>
 <p>【黑领巾】在纳粹德国，在校生要么加入希特勒少年团，要么加入德国少女联盟，这两个组织都戴黑领巾，从照片看，跟戴红领巾一摸一样。纳粹之所以要把学生组织起来，目的为让下一代继续作恶，完成他们未竟事业。在纳粹统治下，人生被规划成：十岁参加少年团，十四岁参加希特勒青年团，然后加入纳粹党。<br><img src="http://ww4.sinaimg.cn/large/b7224575gw1euf387y8kej20980codhl.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3868501565360153" target="freeweibo-mirror">SPAM  //@君达乐的慢先生:为您祷告，愿您一生平顺，绝…</a>
 </h2>
@@ -133,12 +139,6 @@
 <p>想看本人高清无码，加我  V.   X.   哈哈<br><img src="http://ww1.sinaimg.cn/large/006aW3FDjw1euepltrts5j30hs0k4wga.jpg"></p>
 <p>
 	<small> ============== 11小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3868384175549935" target="freeweibo-mirror">#我让你拆#浙江基督教有教会在行动，让十字架走入每个信徒家。…</a>
-</h2>
-<p>#我让你拆#浙江基督教有教会在行动，让十字架走入每个信徒家。GCD发起拆教堂十字架运动，教会就发起家家挂十字架,人人穿戴十字架运动，并把十字架挂在屋顶发光发亮，让十字架的光芒照耀每个家庭，让十字架扎根在每个人心里，这是种安全合法的非暴力不合作方式，他们希望各教会接力跟上。<br><img src="http://ww4.sinaimg.cn/large/7200e068jw1euemtujgilj20nq0hs40m.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
 </p>
 <table>
     <tr>
