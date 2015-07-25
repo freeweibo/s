@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3868501565360153" target="freeweibo-mirror">SPAM  //@君达乐的慢先生:为您祷告，愿您一生平顺，绝…</a>
+</h2>
+<p>SPAM  //@君达乐的慢先生:为您祷告，愿您一生平顺，绝不横遭逼迫和冤屈吧，免得您倒是心如刀绞伸冤无门还要听畜生说风凉话。//@windjor: 出口不行.....房地产投机也不行.....温州发廊也不让开了,所以就闹腾!!!!!<br><br>RE: 天亮时，你将会看到温州满城的十字架<br><img src="http://ww3.sinaimg.cn/large/9df5372bgw1euesj400f9j20hs0nqdhr.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3868500311717815" target="freeweibo-mirror">SPAM 以此为荣，活该打脸。呸。//@章文的文章: 回复@…</a>
 </h2>
 <p>SPAM 以此为荣，活该打脸。呸。//@章文的文章: 回复@爱你们的猪:有可能还会增加[嘻嘻]//@爱你们的猪:这学校至少5分之2的犯罪率[哈哈]<br><br>RE: 湖南大学这下悲催了[笑cry]<br><img src="http://ww4.sinaimg.cn/large/7052cea7jw1eue8x7y95qj20hs0ectaz.jpg"></p>
@@ -54,7 +60,7 @@
 </h2>
 <p>//@飘絮的李二锅://@d1018: //@杨凤岗:转发微博<br><br>RE: 八十九岁的朱主教撑著拐杖，与公开教会团体二十多位神父拉着写着「维护信仰尊严，反对强拆十字架」、下款写着温州教区的横幅，手持「坚决反对强拆十字架」的单张，游行到市政府大楼外请愿。 http://t.cn/RLaLT5f<br><img src="http://ww1.sinaimg.cn/large/87497adegw1euepqdrzi2j20cx08mq4l.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3868457776997976" target="freeweibo-mirror">SPAM [吃惊]//@隆裕太后:同学会，可到秦城开了。</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3868278495883080" target="freeweibo-mirror">//@永远是龙的传人2012://@打击侵略者D01:一个人…</a>
 </h2>
 <p>//@永远是龙的传人2012://@打击侵略者D01:一个人，当最可怕的力量架在他头上，当最肮脏的臭粪泼在他身上，数以亿计的人民仍不顾风险选择喜爱他，这个人，再坏，坏不到哪里去，再不好，也定有其最好、最代表群众利益之处。</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3868272359115348" target="freeweibo-mirror">SPAM 这些人想干什么？要开始杀人了？@文登警方在线 @威…</a>
-</h2>
-<p>SPAM 这些人想干什么？要开始杀人了？@文登警方在线 @威海警方在线 @公安部刑侦局 @公安部打四黑除四害<br><img src="http://ww4.sinaimg.cn/large/8dd872eejw1euea1jejluj20gy0qo41b.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
