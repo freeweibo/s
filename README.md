@@ -26,6 +26,12 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3868454396436758" target="freeweibo-mirror">SPAM //@浩正刘臻: 都够开两桌麻将了 //@贺江兵:…</a>
+</h2>
+<p>SPAM //@浩正刘臻: 都够开两桌麻将了 //@贺江兵:毛晓峰……<br><br>RE: 依照文字查了一下，湖南大学这条微博还在，可以考虑成立秦城校友会～<br><img src="http://ww2.sinaimg.cn/large/621d03b7jw1eue6v3bc2ij20v90p8q7y.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3868445668469151" target="freeweibo-mirror">回复@天晴的日子AK: 怎么着也不止仅仅就杀了八百多鬼子吧？…</a>
 </h2>
 <p>回复@天晴的日子AK: 怎么着也不止仅仅就杀了八百多鬼子吧？这确实也有点儿离谱了.......[偷笑][嘻嘻][哈哈] //@天晴的日子AK:到底共党打死了几多鬼子，这数字不能公开吗？</p>
@@ -60,7 +66,7 @@
 </h2>
 <p>咱们一向对待敌人是毫不留情的，无论国外还是国内，这样才能保住享乐的权力//@柳林青医:国民党反动派哪有共军无耻啊！//@若般蜜波罗://@马仙家:[衰][衰]</p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3868292580491463" target="freeweibo-mirror">SPAM 新一代moto G将可以在moto maker中定…</a>
 </h2>
@@ -98,6 +104,12 @@
 <p>
 	<small> ============== 1天前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3868236179098118" target="freeweibo-mirror">湖南大学工商管理学院，膜拜中</a>
+</h2>
+<p>湖南大学工商管理学院，膜拜中<br><img src="http://ww3.sinaimg.cn/large/7cc9aaf1gw1eue5wd0eafj20hs0ect9r.jpg"></p>
+<p>
+	<small> ============== 1天前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3868216923727518" target="freeweibo-mirror">SPAM 越左的人越有问题 //@陈业文新大都:标准的政治正…</a>
 </h2>
 <p>SPAM 越左的人越有问题 //@陈业文新大都:标准的政治正确发型。[嘻嘻]//@何葆国:[哈哈]//@黔山鹰:看见男人留这种发型就特么恶心！[吐]<br><br>RE: 宣称“公民社会是陷阱”的周本顺，今天落入党为他挖的陷阱中[哈哈]<br><img src="http://ww3.sinaimg.cn/large/7052cea7jw1eue1wasu7ej206s09c74e.jpg"></p>
@@ -125,18 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3868201442310793" target="freeweibo-mirror">【莫大的讽刺！！！】@新华网 7月24日18:16发 周本顺…</a>
 </h2>
 <p>【莫大的讽刺！！！】@新华网 7月24日18:16发 周本顺：党员干部要做到真信笃行守纪自省 http://t.cn/RLX0KoL</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3868193972322922" target="freeweibo-mirror">“维护信仰尊严，反对强拆十字架！”十字架是红十字会的标志；十…</a>
-</h2>
-<p>“维护信仰尊严，反对强拆十字架！”十字架是红十字会的标志；十字架是医院的记号；十字架是和平的象征；十字架显示天主对人的爱；十字架告诉人们复活的主与我们同在；十字架是我们生命的力量与希望！</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3868188238415511" target="freeweibo-mirror">缔造世界奇迹！//@徐利平律师://@律师孟浩然://@作家…</a>
-</h2>
-<p>缔造世界奇迹！//@徐利平律师://@律师孟浩然://@作家东海:为何要拆十字架？ //@50年矛苔://@北京的齐齐: //@官发科08://@一品泥人V:转发微博<br><br>RE: 天主教温州教区，主教神父们市政府前抗议强拆十字架！！！<br><img src="http://ww3.sinaimg.cn/large/857a392djw1eudyy453o6j20qo0f0dj3.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
