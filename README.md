@@ -84,7 +84,7 @@
 </h2>
 <p>SPAM 回复@爱你们的猪:有可能还会增加[嘻嘻]//@爱你们的猪:这学校至少5分之2的犯罪率[哈哈]<br><br>RE: 湖南大学这下悲催了[笑cry]<br><img src="http://ww4.sinaimg.cn/large/7052cea7jw1eue8x7y95qj20hs0ectaz.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3868477892999310" target="freeweibo-mirror">SPAM //@逗比: 关注逗比之后，整个人都变了[笑cry…</a>
 </h2>
@@ -132,7 +132,7 @@
 </h2>
 <p>回复@天晴的日子AK: 怎么着也不止仅仅就杀了八百多鬼子吧？这确实也有点儿离谱了.......[偷笑][嘻嘻][哈哈] //@天晴的日子AK:到底共党打死了几多鬼子，这数字不能公开吗？</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3868441834345406" target="freeweibo-mirror">SPAM 你的名字，我的心事。把你的名字做成项链戴在离心脏最…</a>
 </h2>
