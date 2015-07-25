@@ -126,7 +126,7 @@
 </h2>
 <p>SPAM 你的名字，我的心事。把你的名字做成项链戴在离心脏最近的地方[心]</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3868433265909108" target="freeweibo-mirror">天亮时，你将会看到温州满城的十字架</a>
 </h2>
