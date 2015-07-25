@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3868373886889981" target="freeweibo-mirror">咱们一向对待敌人是毫不留情的，无论国外还是国内，这样才能保住…</a>
+</h2>
+<p>咱们一向对待敌人是毫不留情的，无论国外还是国内，这样才能保住享乐的权力//@柳林青医:国民党反动派哪有共军无耻啊！//@若般蜜波罗://@马仙家:[衰][衰]</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3868292580491463" target="freeweibo-mirror">SPAM 新一代moto G将可以在moto maker中定…</a>
 </h2>
 <p>SPAM 新一代moto G将可以在moto maker中定制，包括前板（黑白可选），多彩背壳，摄像头金属条（多达10种颜色）和运行内存（1GB或者2GB）以及自选壁纸等。<br><img src="http://ww2.sinaimg.cn/large/5434fd39jw1euec94bbsvj20rs0rstdo.jpg"></p>
@@ -36,7 +42,7 @@
 </h2>
 <p>//@永远是龙的传人2012://@打击侵略者D01:一个人，当最可怕的力量架在他头上，当最肮脏的臭粪泼在他身上，数以亿计的人民仍不顾风险选择喜爱他，这个人，再坏，坏不到哪里去，再不好，也定有其最好、最代表群众利益之处。</p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3868272359115348" target="freeweibo-mirror">SPAM 这些人想干什么？要开始杀人了？@文登警方在线 @威…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3868155326162634" target="freeweibo-mirror">SPAM 团队智商始终堪忧，一定是从对家挖来坑自己的[拜拜]…</a>
 </h2>
 <p>SPAM 团队智商始终堪忧，一定是从对家挖来坑自己的[拜拜]//@工藤君:[哆啦A梦微笑] //@summer的连衣裙VV:过河拆桥，何必。<br><br>RE: 买卖不成仁义在嘛，何必这么兜自己的老底[挖鼻] http://t.cn/RLJ5kwg</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3868143271596551" target="freeweibo-mirror">//@好兵帅克归来: 转发微博</a>
-</h2>
-<p>//@好兵帅克归来: 转发微博<br><br>RE: 【美议员：中国与朝鲜竞逐践踏人权底线】美国共和党成员克里斯·史密斯（Chris Smith）是美国众议院外交事务委员会和中国问题委员会的一名高级成员，他在国会的一次听证会上表示，在人权问题上，中国目前在与朝鲜逐底竞争，这是联合国发出声音的时候了。 http://t.cn/RLXIuBj<br><img src="http://ww4.sinaimg.cn/large/9dcb59c7jw1eudv26su5ij20m80fmtdi.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
