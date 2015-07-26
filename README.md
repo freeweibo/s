@@ -30,7 +30,7 @@
 </h2>
 <p>SPAM 妙手拖宝</p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3869000268506176" target="freeweibo-mirror">//@M二郞: //@羊年赞微博: [给力][赞]//@天圆…</a>
 </h2>
@@ -78,7 +78,7 @@
 </h2>
 <p>SPAM @格瓦拉-战士 @楠小马62000 http://t.cn/RLSg47O</p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3868958925041016" target="freeweibo-mirror">没有什么领袖，可以永远正确；没有什么主义，可以永垂不朽；只有…</a>
 </h2>
