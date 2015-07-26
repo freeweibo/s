@@ -72,7 +72,7 @@
 </h2>
 <p>SPAM //@胡是糊: //@只配叫猪://@只配抬那个杠: //@山爪在途中: TS1989時裝[思考]<br><br>RE: 德国之声『 媒体看中国  德语媒体：“杀鸡儆猴”』<br><img src="http://ww2.sinaimg.cn/large/0064PCFtjw1eufhp3t4nlj30k00zktm4.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3868959965582448" target="freeweibo-mirror">SPAM @格瓦拉-战士 @楠小马62000 http://…</a>
 </h2>
@@ -84,7 +84,7 @@
 </h2>
 <p>没有什么领袖，可以永远正确；没有什么主义，可以永垂不朽；只有健全完善的法律制度，才可以流传千年，万世不灭。中国五千年的历史，为改朝换代，流的血太多了。如果可以的话，很多人都希望这是最后一次。没有人可以救中国，可以救中国的，只有法制，只有宪政，只有彻底把权利关进笼子里！<br><img src="http://ww2.sinaimg.cn/large/0068BZO7gw1euggwkfyz3j30hd0jpwh5.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3868953267244859" target="freeweibo-mirror">SPAM 体内睾酮水平较高的女性，可能会比比周围的人更喜欢自…</a>
 </h2>
@@ -108,7 +108,7 @@
 </h2>
 <p>金华传来消息，现在是2015年7月26日，浙江金华市为了拆除这个十字架，今天开始抓人了，现在估计不低于十人被抓。@联合国人权高专办 @最高人民检察院 @浙江发布 @中国政府网 @浙江民族宗教 @基督时报基督教资讯平台 @基督教中文网 @天主教在线 @福音时报基督教资讯门户网站<br><img src="http://ww3.sinaimg.cn/large/90fdc5e9jw1eugf5gyf1nj20fa0b0jsd.jpg"></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3868943221709598" target="freeweibo-mirror">政府竟然以解决“大病医保”为幌子把社保资金交给商业保险资本！…</a>
 </h2>
