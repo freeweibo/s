@@ -48,13 +48,13 @@
 </h2>
 <p>我很好奇那些脏话是在团委哪个部门集中学习的呢？ //@李蒙不蒙你:骂人即爱国？<br><br>RE: 【污言秽语地爱国?】侯聚森,一个满嘴污言秽语的网络混混,因发表过“爱国言论”,显而易见的违法,也受到@共青团中央 等团系官微力挺,让人匪夷所思。这使我想起历史学者@洪振快 发表了一篇有关“狼牙山五壮士”的史学研究文章,被经常发表“爱国言论”的人士辱骂“狗粮养的”;骂人者被告后也获官家力挺。<br><img src="http://ww4.sinaimg.cn/large/4bdb1fa0gw1eufyvg7hvhj20c31suwoz.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3868861453599867" target="freeweibo-mirror">一个省的共青团有三万名网络宣传员</a>
 </h2>
 <p>一个省的共青团有三万名网络宣传员<br><img src="http://ww3.sinaimg.cn/large/7d410493jw1eug5p8cx3mj20hf0drwgu.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3868859524039791" target="freeweibo-mirror">骂人即爱国？</a>
 </h2>
