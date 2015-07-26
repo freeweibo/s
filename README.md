@@ -30,7 +30,19 @@
 </h2>
 <p>骂人即爱国？<br><br>RE: 【污言秽语地爱国?】侯聚森,一个满嘴污言秽语的网络混混,因发表过“爱国言论”,显而易见的违法,也受到@共青团中央 等团系官微力挺,让人匪夷所思。这使我想起历史学者@洪振快 发表了一篇有关“狼牙山五壮士”的史学研究文章,被经常发表“爱国言论”的人士辱骂“狗粮养的”;骂人者被告后也获官家力挺。<br><img src="http://ww4.sinaimg.cn/large/4bdb1fa0gw1eufyvg7hvhj20c31suwoz.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3868855967184335" target="freeweibo-mirror">SPAM 1.懒惰，像生锈一样，比操劳更能消耗身体，经常用的…</a>
+</h2>
+<p>SPAM 1.懒惰，像生锈一样，比操劳更能消耗身体，经常用的钥匙总是亮闪闪的。2.命运的变化犹如月之圆缺，对智者无妨害。 3.我未曾见过一个早起、勤奋、谨慎、诚实的人抱怨命运不好；良好的品格，优良的习惯，坚强的意志，是不会被假设所谓的命运击败的。（富兰克林）。#挑战者联盟# #定制幸福开机#<br><img src="http://ww4.sinaimg.cn/large/98c1610bjw1eug525y16cj2097064t8r.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3868855396686703" target="freeweibo-mirror">SPAM 【正理】1：泥泞路上的奔驰，永远跑不过高速路上的夏…</a>
+</h2>
+<p>SPAM 【正理】1：泥泞路上的奔驰，永远跑不过高速路上的夏利。说明：＂平台很重要!＂ 2：男人，再优秀，没女人也生不下孩子。说明：合作很重要！ 3：我们都知道恶虎架不住群狼。说明：＂团队很重要！＂ 4：你拥有再大再多的水桶，也不如有一个水龙头。说明：管道很重要#票房冠军井柏然# #喜剧大王开心麻花#<br><img src="http://ww2.sinaimg.cn/large/98c1610bjw1eug4zqdnpuj20c80c7q47.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3868852423736450" target="freeweibo-mirror">这是毛贼的家传[哈哈]//@清华秦鹏:这一点计划做的特别好，…</a>
 </h2>
@@ -72,7 +84,7 @@
 </h2>
 <p>SPAM 你这么不坚强，是很容易走到敌人一边去的，[嘻嘻]<br><br>RE: 还爱党爱国的就是智商有问题的，你爱党爱国，党和国家几时爱过你？你爱党爱国去和人”言语不合”是你蠢，被鹰犬泄露个人信息是你活JB该，被人围殴了是你犯贱，连为国牺牲的烈士都没有好下场，你算哪根葱。都醒醒吧，不是你的拳拳报国之心变了，而是这个党这个国变了。都散了吧，照顾好自己，爱谁谁吧！</p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3868765018268760" target="freeweibo-mirror">散了吧，这样国这样党爱咋地就咋的[拜拜]//@狼狼我不服: …</a>
 </h2>
@@ -125,18 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3868667169131417" target="freeweibo-mirror">【这个星球前所未有的罪恶】</a>
 </h2>
 <p>【这个星球前所未有的罪恶】<br><img src="http://ww2.sinaimg.cn/large/005UYVtojw1eufje3bemhj30k03yiwwn.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3868666762466322" target="freeweibo-mirror">//@wxp阿力://@儒林泊客:还没消息？//@Jontu…</a>
-</h2>
-<p>//@wxp阿力://@儒林泊客:还没消息？//@Jontus://@前夜杀手://@akid://@石金领还在说: 转发微博<br><br>RE: 考拉，本名趙威，91年出生的小女孩，今年僅24歲，畢業於江西師範大學新聞專業，大學開始就從事於公益活動。2014年10月起任著名人權律師李和平的助手，從事法律維權工作， 考拉於2015年7月11日被北京警方從北京家中帶走並抄家，至今無任何拘留通知及手續，也不知道人被關在哪裡。<br><img src="http://ww3.sinaimg.cn/large/005VMkjFgw1euffgtt6dnj30dc0dcgoi.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3868666686908112" target="freeweibo-mirror">邓小平搞了一堆长了个理工科的鸡巴脑袋的人物来操控政权，只用2…</a>
-</h2>
-<p>邓小平搞了一堆长了个理工科的鸡巴脑袋的人物来操控政权，只用20年，就把国家搞成了一个非人类的社会，邓小平该当何罪？[怒]</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
