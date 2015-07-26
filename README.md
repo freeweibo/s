@@ -42,7 +42,7 @@
 </h2>
 <p>散了吧，这样国这样党爱咋地就咋的[拜拜]//@狼狼我不服: [话筒]<br><br>RE: 还爱党爱国的就是智商有问题的，你爱党爱国，党和国家几时爱过你？你爱党爱国去和人”言语不合”是你蠢，被鹰犬泄露个人信息是你活JB该，被人围殴了是你犯贱，连为国牺牲的烈士都没有好下场，你算哪根葱。都醒醒吧，不是你的拳拳报国之心变了，而是这个党这个国变了。都散了吧，照顾好自己，爱谁谁吧！</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3868756582920209" target="freeweibo-mirror">还爱党爱国的就是智商有问题的，你爱党爱国，党和国家几时爱过你…</a>
 </h2>
@@ -66,13 +66,13 @@
 </h2>
 <p>//@清华秦鹏:--》 //@AGatHere:这些可都是官方网站 [笑cry]http://t.cn/hbXZmD http://t.cn/zTggzFs</p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3868674316611005" target="freeweibo-mirror">SPAM //@hwbwyh:关注，清算！[怒]</a>
 </h2>
 <p>SPAM //@hwbwyh:关注，清算！[怒]<br><br>RE: 【这个星球前所未有的罪恶】<br><img src="http://ww2.sinaimg.cn/large/005UYVtojw1eufje3bemhj30k03yiwwn.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3868673699746163" target="freeweibo-mirror">//@老衲法号_册空: 转发微博</a>
 </h2>
@@ -90,19 +90,19 @@
 </h2>
 <p>【这个星球前所未有的罪恶】<br><img src="http://ww2.sinaimg.cn/large/005UYVtojw1eufje3bemhj30k03yiwwn.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3868666762466322" target="freeweibo-mirror">//@wxp阿力://@儒林泊客:还没消息？//@Jontu…</a>
 </h2>
 <p>//@wxp阿力://@儒林泊客:还没消息？//@Jontus://@前夜杀手://@akid://@石金领还在说: 转发微博<br><br>RE: 考拉，本名趙威，91年出生的小女孩，今年僅24歲，畢業於江西師範大學新聞專業，大學開始就從事於公益活動。2014年10月起任著名人權律師李和平的助手，從事法律維權工作， 考拉於2015年7月11日被北京警方從北京家中帶走並抄家，至今無任何拘留通知及手續，也不知道人被關在哪裡。<br><img src="http://ww3.sinaimg.cn/large/005VMkjFgw1euffgtt6dnj30dc0dcgoi.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3868666686908112" target="freeweibo-mirror">邓小平搞了一堆长了个理工科的鸡巴脑袋的人物来操控政权，只用2…</a>
 </h2>
 <p>邓小平搞了一堆长了个理工科的鸡巴脑袋的人物来操控政权，只用20年，就把国家搞成了一个非人类的社会，邓小平该当何罪？[怒]</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3868664715363813" target="freeweibo-mirror">特务绑架？//@君达乐的慢先生: //@理客墙://@隐形B…</a>
 </h2>
