@@ -24,7 +24,7 @@
 </h2>
 <p>散了吧，这样国这样党爱咋地就咋的[拜拜]//@狼狼我不服: [话筒]<br><br>RE: 还爱党爱国的就是智商有问题的，你爱党爱国，党和国家几时爱过你？你爱党爱国去和人”言语不合”是你蠢，被鹰犬泄露个人信息是你活JB该，被人围殴了是你犯贱，连为国牺牲的烈士都没有好下场，你算哪根葱。都醒醒吧，不是你的拳拳报国之心变了，而是这个党这个国变了。都散了吧，照顾好自己，爱谁谁吧！</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3868752497737600" target="freeweibo-mirror">[围观] //@春风秋雨beijing:转发微博</a>
 </h2>
@@ -42,13 +42,13 @@
 </h2>
 <p>//@清华秦鹏:--》 //@AGatHere:这些可都是官方网站 [笑cry]http://t.cn/hbXZmD http://t.cn/zTggzFs</p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3868674316611005" target="freeweibo-mirror">SPAM //@hwbwyh:关注，清算！[怒]</a>
 </h2>
 <p>SPAM //@hwbwyh:关注，清算！[怒]<br><br>RE: 【这个星球前所未有的罪恶】<br><img src="http://ww2.sinaimg.cn/large/005UYVtojw1eufje3bemhj30k03yiwwn.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3868673699746163" target="freeweibo-mirror">//@老衲法号_册空: 转发微博</a>
 </h2>
