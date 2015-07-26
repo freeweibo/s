@@ -38,6 +38,12 @@
 <p>
 	<small> ============== 1小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3868988713459612" target="freeweibo-mirror">SPAM //@胡是糊: //@只配叫猪://@只配抬那个杠…</a>
+</h2>
+<p>SPAM //@胡是糊: //@只配叫猪://@只配抬那个杠: //@山爪在途中: TS1989時裝[思考]<br><br>RE: 德国之声『 媒体看中国  德语媒体：“杀鸡儆猴”』<br><img src="http://ww2.sinaimg.cn/large/0064PCFtjw1eufhp3t4nlj30k00zktm4.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3868959965582448" target="freeweibo-mirror">SPAM @格瓦拉-战士 @楠小马62000 http://…</a>
 </h2>
 <p>SPAM @格瓦拉-战士 @楠小马62000 http://t.cn/RLSg47O</p>
@@ -72,19 +78,19 @@
 </h2>
 <p>政府竟然以解决“大病医保”为幌子把社保资金交给商业保险资本！医保主要靠商业保险的是美国，而美国医疗在西方最低效、昂贵，保险资本就是一群只知收钱见死不救的吸血鬼。请看美国纪录片《医疗内幕》http://t.cn/RLSreXN。美国正在抛弃、削弱商业保险，而官方却在这一领域学习美国，真是混账透顶。</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3868928113947387" target="freeweibo-mirror">请留意第四张图的最后：当航班在空中遭遇恶性事件，你需要注意什…</a>
 </h2>
 <p>请留意第四张图的最后：当航班在空中遭遇恶性事件，你需要注意什么。<br><br>RE: 【ZH9648航班纵火现场图曝光！】讨论：深航航班有人蓄意放火，台州机场安检是否存在漏洞？是否鼓励机上旅客都勇于和歹徒搏动？当航班尚在空中时航班遭遇恶性事件，你需要注意什么？http://t.cn/RLSic47 http://t.cn/RLS6M2W<br><img src="http://ww2.sinaimg.cn/large/83aa5e35gw1eug09gbnxij20gi0m8wfl.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3868927044129552" target="freeweibo-mirror">SPAM //@徐战前:养寇自重，杀良冒功都做得出来，虚列人…</a>
 </h2>
 <p>SPAM //@徐战前:养寇自重，杀良冒功都做得出来，虚列人头，骗取经费就是稀松平常了。<br><br>RE: 一个省的共青团有三万名网络宣传员<br><img src="http://ww3.sinaimg.cn/large/7d410493jw1eug5p8cx3mj20hf0drwgu.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3868917070064425" target="freeweibo-mirror">SPAM 为什么别人越来越不把你当一回事情，因为你太好说话了…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3868855967184335" target="freeweibo-mirror">SPAM 1.懒惰，像生锈一样，比操劳更能消耗身体，经常用的…</a>
 </h2>
 <p>SPAM 1.懒惰，像生锈一样，比操劳更能消耗身体，经常用的钥匙总是亮闪闪的。2.命运的变化犹如月之圆缺，对智者无妨害。 3.我未曾见过一个早起、勤奋、谨慎、诚实的人抱怨命运不好；良好的品格，优良的习惯，坚强的意志，是不会被假设所谓的命运击败的。（富兰克林）。#挑战者联盟# #定制幸福开机#<br><img src="http://ww4.sinaimg.cn/large/98c1610bjw1eug525y16cj2097064t8r.jpg"></p>
-<p>
-	<small> ============== 10小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3868855396686703" target="freeweibo-mirror">SPAM 【正理】1：泥泞路上的奔驰，永远跑不过高速路上的夏…</a>
-</h2>
-<p>SPAM 【正理】1：泥泞路上的奔驰，永远跑不过高速路上的夏利。说明：＂平台很重要!＂ 2：男人，再优秀，没女人也生不下孩子。说明：合作很重要！ 3：我们都知道恶虎架不住群狼。说明：＂团队很重要！＂ 4：你拥有再大再多的水桶，也不如有一个水龙头。说明：管道很重要#票房冠军井柏然# #喜剧大王开心麻花#<br><img src="http://ww2.sinaimg.cn/large/98c1610bjw1eug4zqdnpuj20c80c7q47.jpg"></p>
 <p>
 	<small> ============== 10小时前</small>
 </p>
