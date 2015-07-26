@@ -24,7 +24,7 @@
 </h2>
 <p>[哈哈]//@吃饱肚子最重要: 社會主義好，共產黨是人民的好領導</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3868805962754033" target="freeweibo-mirror">SPAM 周末就是要躺着刷好玩的哎屁屁呀。</a>
 </h2>
