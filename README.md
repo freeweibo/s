@@ -26,6 +26,12 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3868927044129552" target="freeweibo-mirror">SPAM //@徐战前:养寇自重，杀良冒功都做得出来，虚列人…</a>
+</h2>
+<p>SPAM //@徐战前:养寇自重，杀良冒功都做得出来，虚列人头，骗取经费就是稀松平常了。<br><br>RE: 一个省的共青团有三万名网络宣传员<br><img src="http://ww3.sinaimg.cn/large/7d410493jw1eug5p8cx3mj20hf0drwgu.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3868917070064425" target="freeweibo-mirror">SPAM 为什么别人越来越不把你当一回事情，因为你太好说话了…</a>
 </h2>
 <p>SPAM 为什么别人越来越不把你当一回事情，因为你太好说话了。什么事情，别人一找你就答应；什么东西，别人一给你就要。这样你就变得没那么珍贵了。做人除了说YES之外，还是要经常说一下NO。亲和力虽然很重要，但是人的价值，却是靠拒绝而来的。拒绝，可以让你变得更珍贵#长留最新CP##杨旭文带你穿越带你飞#<br><img src="http://ww1.sinaimg.cn/large/98c1610bjw1eugc3abxtnj20c8085q3g.jpg"></p>
@@ -48,7 +54,7 @@
 </h2>
 <p>骂人即爱国？<br><br>RE: 【污言秽语地爱国?】侯聚森,一个满嘴污言秽语的网络混混,因发表过“爱国言论”,显而易见的违法,也受到@共青团中央 等团系官微力挺,让人匪夷所思。这使我想起历史学者@洪振快 发表了一篇有关“狼牙山五壮士”的史学研究文章,被经常发表“爱国言论”的人士辱骂“狗粮养的”;骂人者被告后也获官家力挺。<br><img src="http://ww4.sinaimg.cn/large/4bdb1fa0gw1eufyvg7hvhj20c31suwoz.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3868855967184335" target="freeweibo-mirror">SPAM 1.懒惰，像生锈一样，比操劳更能消耗身体，经常用的…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3868710299310607" target="freeweibo-mirror">如果某国自己承认和纳粹并列，那大家也就确实不用爱了。组织起来…</a>
 </h2>
 <p>如果某国自己承认和纳粹并列，那大家也就确实不用爱了。组织起来，消灭新纳粹和伊斯兰国这类极端势力。 //@司马平邦:纳年纳兔纳些事吧----这网站的名字，源于仇视体制者对“兔子”这一中共网络呢称的“纳粹”丑化，即纳粹兔子，文登侯聚森事件就是他们实施的纳粹事件。</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3868674530626872" target="freeweibo-mirror">//@清华秦鹏:--》 //@AGatHere:这些可都是官…</a>
-</h2>
-<p>//@清华秦鹏:--》 //@AGatHere:这些可都是官方网站 [笑cry]http://t.cn/hbXZmD http://t.cn/zTggzFs</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
