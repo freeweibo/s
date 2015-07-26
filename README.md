@@ -60,7 +60,7 @@
 </h2>
 <p>骂人即爱国？<br><br>RE: 【污言秽语地爱国?】侯聚森,一个满嘴污言秽语的网络混混,因发表过“爱国言论”,显而易见的违法,也受到@共青团中央 等团系官微力挺,让人匪夷所思。这使我想起历史学者@洪振快 发表了一篇有关“狼牙山五壮士”的史学研究文章,被经常发表“爱国言论”的人士辱骂“狗粮养的”;骂人者被告后也获官家力挺。<br><img src="http://ww4.sinaimg.cn/large/4bdb1fa0gw1eufyvg7hvhj20c31suwoz.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3868855967184335" target="freeweibo-mirror">SPAM 1.懒惰，像生锈一样，比操劳更能消耗身体，经常用的…</a>
 </h2>
@@ -102,7 +102,7 @@
 </h2>
 <p>【ZH9648航班纵火现场图曝光！】讨论：深航航班有人蓄意放火，台州机场安检是否存在漏洞？是否鼓励机上旅客都勇于和歹徒搏动？当航班尚在空中时航班遭遇恶性事件，你需要注意什么？http://t.cn/RLSic47 http://t.cn/RLS6M2W<br><img src="http://ww2.sinaimg.cn/large/83aa5e35gw1eug09gbnxij20gi0m8wfl.jpg"></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3868812254354325" target="freeweibo-mirror">斯诺登曝光中国贪官在美资产：中国官员在国外存款达4·8万亿美…</a>
 </h2>
