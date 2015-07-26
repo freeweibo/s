@@ -114,7 +114,7 @@
 </h2>
 <p>SPAM 基本靠谱！</p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3868658403375483" target="freeweibo-mirror">//@李宇晖4: //@纽约北大飞:Repost</a>
 </h2>
