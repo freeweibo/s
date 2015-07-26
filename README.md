@@ -120,13 +120,13 @@
 </h2>
 <p>请留意第四张图的最后：当航班在空中遭遇恶性事件，你需要注意什么。<br><br>RE: 【ZH9648航班纵火现场图曝光！】讨论：深航航班有人蓄意放火，台州机场安检是否存在漏洞？是否鼓励机上旅客都勇于和歹徒搏动？当航班尚在空中时航班遭遇恶性事件，你需要注意什么？http://t.cn/RLSic47 http://t.cn/RLS6M2W<br><img src="http://ww2.sinaimg.cn/large/83aa5e35gw1eug09gbnxij20gi0m8wfl.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3868927044129552" target="freeweibo-mirror">SPAM //@徐战前:养寇自重，杀良冒功都做得出来，虚列人…</a>
 </h2>
 <p>SPAM //@徐战前:养寇自重，杀良冒功都做得出来，虚列人头，骗取经费就是稀松平常了。<br><br>RE: 一个省的共青团有三万名网络宣传员<br><img src="http://ww3.sinaimg.cn/large/7d410493jw1eug5p8cx3mj20hf0drwgu.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3868917070064425" target="freeweibo-mirror">SPAM 为什么别人越来越不把你当一回事情，因为你太好说话了…</a>
 </h2>
