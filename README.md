@@ -50,6 +50,12 @@
 <p>
 	<small> ============== 7小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3868861453599867" target="freeweibo-mirror">一个省的共青团有三万名网络宣传员</a>
+</h2>
+<p>一个省的共青团有三万名网络宣传员<br><img src="http://ww3.sinaimg.cn/large/7d410493jw1eug5p8cx3mj20hf0drwgu.jpg"></p>
+<p>
+	<small> ============== 7小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3868859524039791" target="freeweibo-mirror">骂人即爱国？</a>
 </h2>
 <p>骂人即爱国？<br><br>RE: 【污言秽语地爱国?】侯聚森,一个满嘴污言秽语的网络混混,因发表过“爱国言论”,显而易见的违法,也受到@共青团中央 等团系官微力挺,让人匪夷所思。这使我想起历史学者@洪振快 发表了一篇有关“狼牙山五壮士”的史学研究文章,被经常发表“爱国言论”的人士辱骂“狗粮养的”;骂人者被告后也获官家力挺。<br><img src="http://ww4.sinaimg.cn/large/4bdb1fa0gw1eufyvg7hvhj20c31suwoz.jpg"></p>
@@ -92,6 +98,12 @@
 <p>
 	<small> ============== 9小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3868814108269312" target="freeweibo-mirror">【ZH9648航班纵火现场图曝光！】讨论：深航航班有人蓄意放…</a>
+</h2>
+<p>【ZH9648航班纵火现场图曝光！】讨论：深航航班有人蓄意放火，台州机场安检是否存在漏洞？是否鼓励机上旅客都勇于和歹徒搏动？当航班尚在空中时航班遭遇恶性事件，你需要注意什么？http://t.cn/RLSic47 http://t.cn/RLS6M2W<br><img src="http://ww2.sinaimg.cn/large/83aa5e35gw1eug09gbnxij20gi0m8wfl.jpg"></p>
+<p>
+	<small> ============== 10小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3868812254354325" target="freeweibo-mirror">斯诺登曝光中国贪官在美资产：中国官员在国外存款达4·8万亿美…</a>
 </h2>
 <p>斯诺登曝光中国贪官在美资产：中国官员在国外存款达4·8万亿美元，约为30万亿人民币。主要分布在美国、加拿大、澳洲、欧洲南亚。按现金持有占总资产【现金/房产/股份/基金/收藏证卷等】的1/3算，贪官们海外资产达100万亿，全民免费医保毎年需1600亿，贪官海外资产可以搞中国全民免费医保625年？震惊…<br><img src="http://ww2.sinaimg.cn/large/c40b2b4djw1eug027ci06j20cu0j6goa.jpg"></p>
@@ -125,18 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3868756582920209" target="freeweibo-mirror">还爱党爱国的就是智商有问题的，你爱党爱国，党和国家几时爱过你…</a>
 </h2>
 <p>还爱党爱国的就是智商有问题的，你爱党爱国，党和国家几时爱过你？你爱党爱国去和人”言语不合”是你蠢，被鹰犬泄露个人信息是你活JB该，被人围殴了是你犯贱，连为国牺牲的烈士都没有好下场，你算哪根葱。都醒醒吧，不是你的拳拳报国之心变了，而是这个党这个国变了。都散了吧，照顾好自己，爱谁谁吧！</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3868752497737600" target="freeweibo-mirror">[围观] //@春风秋雨beijing:转发微博</a>
-</h2>
-<p>[围观] //@春风秋雨beijing:转发微博<br><br>RE: 分享自清雅竹韵《乔石临终部份遗言》 -  乔石临终部份遗言  乔石在临终前表示，自己可能等不到JZM被押上审判台的那一天，但周永康被判无期徒刑，等于是把JZM的结果给宣布了...  (来自 @头条博客)   http://t.cn/RLSPdu1</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3868710299310607" target="freeweibo-mirror">如果某国自己承认和纳粹并列，那大家也就确实不用爱了。组织起来…</a>
-</h2>
-<p>如果某国自己承认和纳粹并列，那大家也就确实不用爱了。组织起来，消灭新纳粹和伊斯兰国这类极端势力。 //@司马平邦:纳年纳兔纳些事吧----这网站的名字，源于仇视体制者对“兔子”这一中共网络呢称的“纳粹”丑化，即纳粹兔子，文登侯聚森事件就是他们实施的纳粹事件。</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
