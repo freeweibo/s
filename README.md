@@ -38,6 +38,12 @@
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3868812254354325" target="freeweibo-mirror">斯诺登曝光中国贪官在美资产：中国官员在国外存款达4·8万亿美…</a>
+</h2>
+<p>斯诺登曝光中国贪官在美资产：中国官员在国外存款达4·8万亿美元，约为30万亿人民币。主要分布在美国、加拿大、澳洲、欧洲南亚。按现金持有占总资产【现金/房产/股份/基金/收藏证卷等】的1/3算，贪官们海外资产达100万亿，全民免费医保毎年需1600亿，贪官海外资产可以搞中国全民免费医保625年？震惊…<br><img src="http://ww2.sinaimg.cn/large/c40b2b4djw1eug027ci06j20cu0j6goa.jpg"></p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3868805962754033" target="freeweibo-mirror">SPAM 周末就是要躺着刷好玩的哎屁屁呀。</a>
 </h2>
 <p>SPAM 周末就是要躺着刷好玩的哎屁屁呀。</p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3868660844450944" target="freeweibo-mirror">SPAM 基本靠谱！</a>
 </h2>
 <p>SPAM 基本靠谱！</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3868658403375483" target="freeweibo-mirror">//@李宇晖4: //@纽约北大飞:Repost</a>
-</h2>
-<p>//@李宇晖4: //@纽约北大飞:Repost<br><br>RE: 考拉，本名趙威，91年出生的小女孩，今年僅24歲，畢業於江西師範大學新聞專業，大學開始就從事於公益活動。2014年10月起任著名人權律師李和平的助手，從事法律維權工作， 考拉於2015年7月11日被北京警方從北京家中帶走並抄家，至今無任何拘留通知及手續，也不知道人被關在哪裡。<br><img src="http://ww3.sinaimg.cn/large/005VMkjFgw1euffgtt6dnj30dc0dcgoi.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
