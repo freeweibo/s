@@ -20,6 +20,18 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3869005347913961" target="freeweibo-mirror">SPAM 妙手拖宝</a>
+</h2>
+<p>SPAM 妙手拖宝</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3869000268506176" target="freeweibo-mirror">//@M二郞: //@羊年赞微博: [给力][赞]//@天圆…</a>
+</h2>
+<p>//@M二郞: //@羊年赞微博: [给力][赞]//@天圆地方3511E: //@坚持到底追求完美://@程程快长://@盗铃2010:[给力][赞][话筒]<br><br>RE: 没有什么领袖，可以永远正确；没有什么主义，可以永垂不朽；只有健全完善的法律制度，才可以流传千年，万世不灭。中国五千年的历史，为改朝换代，流的血太多了。如果可以的话，很多人都希望这是最后一次。没有人可以救中国，可以救中国的，只有法制，只有宪政，只有彻底把权利关进笼子里！<br><img src="http://ww2.sinaimg.cn/large/0068BZO7gw1euggwkfyz3j30hd0jpwh5.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3869000083730431" target="freeweibo-mirror">//@数虎乔风:[吃惊][吃惊][吃惊]//@锦江于静:[吃…</a>
 </h2>
 <p>//@数虎乔风:[吃惊][吃惊][吃惊]//@锦江于静:[吃惊] //@访客归来:[吃惊]//@微言萤光-:[吃惊]<br><br>RE: 维基百科看来的。<br><img src="http://ww1.sinaimg.cn/large/68b3dde5jw1eufcp83zb6j20f00qotaf.jpg"></p>
@@ -127,18 +139,6 @@
 <p>所谓的“网络文明志愿者"，即网络评论员，是文革后的新一代红卫兵，老红卫兵用器械和拳头在街头打砸抢，破坏社会秩序，损毁民众私产，乃至剥夺公民生命。新一代红卫兵用污言秽语在互联网上围攻普世价值，混淆视听，成为意识形态帮凶。两者在本质上无任何区别，文革从未走远，就在当下。<br><img src="http://ww2.sinaimg.cn/large/7d410493jw1eug7dkovedj20go0920ui.jpg"></p>
 <p>
 	<small> ============== 10小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3868861592139569" target="freeweibo-mirror">我很好奇那些脏话是在团委哪个部门集中学习的呢？ //@李蒙不…</a>
-</h2>
-<p>我很好奇那些脏话是在团委哪个部门集中学习的呢？ //@李蒙不蒙你:骂人即爱国？<br><br>RE: 【污言秽语地爱国?】侯聚森,一个满嘴污言秽语的网络混混,因发表过“爱国言论”,显而易见的违法,也受到@共青团中央 等团系官微力挺,让人匪夷所思。这使我想起历史学者@洪振快 发表了一篇有关“狼牙山五壮士”的史学研究文章,被经常发表“爱国言论”的人士辱骂“狗粮养的”;骂人者被告后也获官家力挺。<br><img src="http://ww4.sinaimg.cn/large/4bdb1fa0gw1eufyvg7hvhj20c31suwoz.jpg"></p>
-<p>
-	<small> ============== 11小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3868861453599867" target="freeweibo-mirror">一个省的共青团有三万名网络宣传员</a>
-</h2>
-<p>一个省的共青团有三万名网络宣传员<br><img src="http://ww3.sinaimg.cn/large/7d410493jw1eug5p8cx3mj20hf0drwgu.jpg"></p>
-<p>
-	<small> ============== 11小时前</small>
 </p>
 <table>
     <tr>
