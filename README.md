@@ -36,13 +36,13 @@
 </h2>
 <p>//@M二郞: //@羊年赞微博: [给力][赞]//@天圆地方3511E: //@坚持到底追求完美://@程程快长://@盗铃2010:[给力][赞][话筒]<br><br>RE: 没有什么领袖，可以永远正确；没有什么主义，可以永垂不朽；只有健全完善的法律制度，才可以流传千年，万世不灭。中国五千年的历史，为改朝换代，流的血太多了。如果可以的话，很多人都希望这是最后一次。没有人可以救中国，可以救中国的，只有法制，只有宪政，只有彻底把权利关进笼子里！<br><img src="http://ww2.sinaimg.cn/large/0068BZO7gw1euggwkfyz3j30hd0jpwh5.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3869000083730431" target="freeweibo-mirror">//@数虎乔风:[吃惊][吃惊][吃惊]//@锦江于静:[吃…</a>
 </h2>
 <p>//@数虎乔风:[吃惊][吃惊][吃惊]//@锦江于静:[吃惊] //@访客归来:[吃惊]//@微言萤光-:[吃惊]<br><br>RE: 维基百科看来的。<br><img src="http://ww1.sinaimg.cn/large/68b3dde5jw1eufcp83zb6j20f00qotaf.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3868998863594777" target="freeweibo-mirror">那些赞他们的人，也是一直叫嚣要把五毛挂路灯的匪徒。问题来了：…</a>
 </h2>
@@ -132,7 +132,7 @@
 </h2>
 <p>SPAM 为什么别人越来越不把你当一回事情，因为你太好说话了。什么事情，别人一找你就答应；什么东西，别人一给你就要。这样你就变得没那么珍贵了。做人除了说YES之外，还是要经常说一下NO。亲和力虽然很重要，但是人的价值，却是靠拒绝而来的。拒绝，可以让你变得更珍贵#长留最新CP##杨旭文带你穿越带你飞#<br><img src="http://ww1.sinaimg.cn/large/98c1610bjw1eugc3abxtnj20c8085q3g.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3868911684849720" target="freeweibo-mirror">SPAM [馋嘴][馋嘴][馋嘴]奏起！ //@黄靖翔:8月…</a>
 </h2>
