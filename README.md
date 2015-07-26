@@ -42,7 +42,7 @@
 </h2>
 <p>[围观] //@春风秋雨beijing:转发微博<br><br>RE: 分享自清雅竹韵《乔石临终部份遗言》 -  乔石临终部份遗言  乔石在临终前表示，自己可能等不到JZM被押上审判台的那一天，但周永康被判无期徒刑，等于是把JZM的结果给宣布了...  (来自 @头条博客)   http://t.cn/RLSPdu1</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3868710299310607" target="freeweibo-mirror">如果某国自己承认和纳粹并列，那大家也就确实不用爱了。组织起来…</a>
 </h2>
@@ -102,7 +102,7 @@
 </h2>
 <p>//@理客墙://@隐形Benjamin:转发微博<br><br>RE: 考拉，本名趙威，91年出生的小女孩，今年僅24歲，畢業於江西師範大學新聞專業，大學開始就從事於公益活動。2014年10月起任著名人權律師李和平的助手，從事法律維權工作， 考拉於2015年7月11日被北京警方從北京家中帶走並抄家，至今無任何拘留通知及手續，也不知道人被關在哪裡。<br><img src="http://ww3.sinaimg.cn/large/005VMkjFgw1euffgtt6dnj30dc0dcgoi.jpg"></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3868660844450944" target="freeweibo-mirror">SPAM 基本靠谱！</a>
 </h2>
