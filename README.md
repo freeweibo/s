@@ -96,7 +96,7 @@
 </h2>
 <p>[哈哈]//@吃饱肚子最重要: 社會主義好，共產黨是人民的好領導</p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3868814108269312" target="freeweibo-mirror">【ZH9648航班纵火现场图曝光！】讨论：深航航班有人蓄意放…</a>
 </h2>
