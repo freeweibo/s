@@ -102,7 +102,7 @@
 </h2>
 <p>SPAM [馋嘴][馋嘴][馋嘴]奏起！ //@黄靖翔:8月23号见~！</p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3868907905859251" target="freeweibo-mirror">玉环大麦屿教会，愿这个十字架为执政掌权的带去祝福，并为逼迫我…</a>
 </h2>
