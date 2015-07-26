@@ -60,13 +60,13 @@
 </h2>
 <p>SPAM 是啊，怎么会有这么可怕的亲人，几十根针全都扎进体内各个部位，多年后发现时针都生锈了，太可怕了[生病]//@诚信小曼曼: 这是视频，孩子太可怜了[泪][泪][泪][泪] http://t.cn/RLSkHAF</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3868991837585467" target="freeweibo-mirror">SPAM 这些人的后台是谁？</a>
 </h2>
 <p>SPAM 这些人的后台是谁？</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3868988713459612" target="freeweibo-mirror">SPAM //@胡是糊: //@只配叫猪://@只配抬那个杠…</a>
 </h2>
@@ -102,7 +102,7 @@
 </h2>
 <p>疯了！ //@天主教在线:转发微博<br><br>RE: 金华传来消息，现在是2015年7月26日，浙江金华市为了拆除这个十字架，今天开始抓人了，现在估计不低于十人被抓。@联合国人权高专办 @最高人民检察院 @浙江发布 @中国政府网 @浙江民族宗教 @基督时报基督教资讯平台 @基督教中文网 @天主教在线 @福音时报基督教资讯门户网站<br><img src="http://ww3.sinaimg.cn/large/90fdc5e9jw1eugf5gyf1nj20fa0b0jsd.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3868944173178901" target="freeweibo-mirror">金华传来消息，现在是2015年7月26日，浙江金华市为了拆除…</a>
 </h2>
