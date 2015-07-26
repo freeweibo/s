@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3869014902313195" target="freeweibo-mirror">//@沙滩五月花://@苏青银://@葫芦书法: //@阳光…</a>
+</h2>
+<p>//@沙滩五月花://@苏青银://@葫芦书法: //@阳光快乐天使a: //@公民64-志刚武12:转发微博<br><br>RE: 没有什么领袖，可以永远正确；没有什么主义，可以永垂不朽；只有健全完善的法律制度，才可以流传千年，万世不灭。中国五千年的历史，为改朝换代，流的血太多了。如果可以的话，很多人都希望这是最后一次。没有人可以救中国，可以救中国的，只有法制，只有宪政，只有彻底把权利关进笼子里！<br><img src="http://ww2.sinaimg.cn/large/0068BZO7gw1euggwkfyz3j30hd0jpwh5.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3869005347913961" target="freeweibo-mirror">SPAM 妙手拖宝</a>
 </h2>
 <p>SPAM 妙手拖宝</p>
@@ -30,13 +36,13 @@
 </h2>
 <p>//@M二郞: //@羊年赞微博: [给力][赞]//@天圆地方3511E: //@坚持到底追求完美://@程程快长://@盗铃2010:[给力][赞][话筒]<br><br>RE: 没有什么领袖，可以永远正确；没有什么主义，可以永垂不朽；只有健全完善的法律制度，才可以流传千年，万世不灭。中国五千年的历史，为改朝换代，流的血太多了。如果可以的话，很多人都希望这是最后一次。没有人可以救中国，可以救中国的，只有法制，只有宪政，只有彻底把权利关进笼子里！<br><img src="http://ww2.sinaimg.cn/large/0068BZO7gw1euggwkfyz3j30hd0jpwh5.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3869000083730431" target="freeweibo-mirror">//@数虎乔风:[吃惊][吃惊][吃惊]//@锦江于静:[吃…</a>
 </h2>
 <p>//@数虎乔风:[吃惊][吃惊][吃惊]//@锦江于静:[吃惊] //@访客归来:[吃惊]//@微言萤光-:[吃惊]<br><br>RE: 维基百科看来的。<br><img src="http://ww1.sinaimg.cn/large/68b3dde5jw1eufcp83zb6j20f00qotaf.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3868998863594777" target="freeweibo-mirror">那些赞他们的人，也是一直叫嚣要把五毛挂路灯的匪徒。问题来了：…</a>
 </h2>
@@ -71,6 +77,12 @@
 	<a href="https://freeweibo.com/weibo/3868959965582448" target="freeweibo-mirror">SPAM @格瓦拉-战士 @楠小马62000 http://…</a>
 </h2>
 <p>SPAM @格瓦拉-战士 @楠小马62000 http://t.cn/RLSg47O</p>
+<p>
+	<small> ============== 5小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3868958925041016" target="freeweibo-mirror">没有什么领袖，可以永远正确；没有什么主义，可以永垂不朽；只有…</a>
+</h2>
+<p>没有什么领袖，可以永远正确；没有什么主义，可以永垂不朽；只有健全完善的法律制度，才可以流传千年，万世不灭。中国五千年的历史，为改朝换代，流的血太多了。如果可以的话，很多人都希望这是最后一次。没有人可以救中国，可以救中国的，只有法制，只有宪政，只有彻底把权利关进笼子里！<br><img src="http://ww2.sinaimg.cn/large/0068BZO7gw1euggwkfyz3j30hd0jpwh5.jpg"></p>
 <p>
 	<small> ============== 5小时前</small>
 </p><h2>
@@ -127,18 +139,6 @@
 <p>SPAM [馋嘴][馋嘴][馋嘴]奏起！ //@黄靖翔:8月23号见~！</p>
 <p>
 	<small> ============== 8小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3868907905859251" target="freeweibo-mirror">玉环大麦屿教会，愿这个十字架为执政掌权的带去祝福，并为逼迫我…</a>
-</h2>
-<p>玉环大麦屿教会，愿这个十字架为执政掌权的带去祝福，并为逼迫我们的祷告，愿他们回转归向你！@坚持真理哦 @作家沙光 @基督公益传教士 @温州一鄭老师 @晓远--藤桥的 @杨兴权律师 @基督日报-中国 @艾罗纳多wb @金华约翰 @张凯律师 @周李城 @张培鸿 @主仆王怡 @郑亚洪z @林家冕 @陆伟民律师 @律师王学明<br><img src="http://ww1.sinaimg.cn/large/0061PLBcjw1eugawjw6kzj30no0vkn0z.jpg"></p>
-<p>
-	<small> ============== 9小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3868875986866685" target="freeweibo-mirror">所谓的“网络文明志愿者"，即网络评论员，是文革后的新一代红卫…</a>
-</h2>
-<p>所谓的“网络文明志愿者"，即网络评论员，是文革后的新一代红卫兵，老红卫兵用器械和拳头在街头打砸抢，破坏社会秩序，损毁民众私产，乃至剥夺公民生命。新一代红卫兵用污言秽语在互联网上围攻普世价值，混淆视听，成为意识形态帮凶。两者在本质上无任何区别，文革从未走远，就在当下。<br><img src="http://ww2.sinaimg.cn/large/7d410493jw1eug7dkovedj20go0920ui.jpg"></p>
-<p>
-	<small> ============== 11小时前</small>
 </p>
 <table>
     <tr>
