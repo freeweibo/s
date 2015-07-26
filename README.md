@@ -20,6 +20,18 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3869000083730431" target="freeweibo-mirror">//@数虎乔风:[吃惊][吃惊][吃惊]//@锦江于静:[吃…</a>
+</h2>
+<p>//@数虎乔风:[吃惊][吃惊][吃惊]//@锦江于静:[吃惊] //@访客归来:[吃惊]//@微言萤光-:[吃惊]<br><br>RE: 维基百科看来的。<br><img src="http://ww1.sinaimg.cn/large/68b3dde5jw1eufcp83zb6j20f00qotaf.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3868998863594777" target="freeweibo-mirror">那些赞他们的人，也是一直叫嚣要把五毛挂路灯的匪徒。问题来了：…</a>
+</h2>
+<p>那些赞他们的人，也是一直叫嚣要把五毛挂路灯的匪徒。问题来了：警察是不是五毛？公知是真爱他们，还是一时利用一下他们 ?//@男孩应龙: 话说@威海警方在线 被以往狂骂TG的这些人赞感觉如何？</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3868993112823466" target="freeweibo-mirror">依法治国可以这样吗？ //@深南-大盗:这些人的后台是谁？</a>
 </h2>
 <p>依法治国可以这样吗？ //@深南-大盗:这些人的后台是谁？</p>
@@ -78,19 +90,19 @@
 </h2>
 <p>政府竟然以解决“大病医保”为幌子把社保资金交给商业保险资本！医保主要靠商业保险的是美国，而美国医疗在西方最低效、昂贵，保险资本就是一群只知收钱见死不救的吸血鬼。请看美国纪录片《医疗内幕》http://t.cn/RLSreXN。美国正在抛弃、削弱商业保险，而官方却在这一领域学习美国，真是混账透顶。</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3868928113947387" target="freeweibo-mirror">请留意第四张图的最后：当航班在空中遭遇恶性事件，你需要注意什…</a>
 </h2>
 <p>请留意第四张图的最后：当航班在空中遭遇恶性事件，你需要注意什么。<br><br>RE: 【ZH9648航班纵火现场图曝光！】讨论：深航航班有人蓄意放火，台州机场安检是否存在漏洞？是否鼓励机上旅客都勇于和歹徒搏动？当航班尚在空中时航班遭遇恶性事件，你需要注意什么？http://t.cn/RLSic47 http://t.cn/RLS6M2W<br><img src="http://ww2.sinaimg.cn/large/83aa5e35gw1eug09gbnxij20gi0m8wfl.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3868927044129552" target="freeweibo-mirror">SPAM //@徐战前:养寇自重，杀良冒功都做得出来，虚列人…</a>
 </h2>
 <p>SPAM //@徐战前:养寇自重，杀良冒功都做得出来，虚列人头，骗取经费就是稀松平常了。<br><br>RE: 一个省的共青团有三万名网络宣传员<br><img src="http://ww3.sinaimg.cn/large/7d410493jw1eug5p8cx3mj20hf0drwgu.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3868917070064425" target="freeweibo-mirror">SPAM 为什么别人越来越不把你当一回事情，因为你太好说话了…</a>
 </h2>
@@ -125,18 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3868861453599867" target="freeweibo-mirror">一个省的共青团有三万名网络宣传员</a>
 </h2>
 <p>一个省的共青团有三万名网络宣传员<br><img src="http://ww3.sinaimg.cn/large/7d410493jw1eug5p8cx3mj20hf0drwgu.jpg"></p>
-<p>
-	<small> ============== 11小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3868859524039791" target="freeweibo-mirror">骂人即爱国？</a>
-</h2>
-<p>骂人即爱国？<br><br>RE: 【污言秽语地爱国?】侯聚森,一个满嘴污言秽语的网络混混,因发表过“爱国言论”,显而易见的违法,也受到@共青团中央 等团系官微力挺,让人匪夷所思。这使我想起历史学者@洪振快 发表了一篇有关“狼牙山五壮士”的史学研究文章,被经常发表“爱国言论”的人士辱骂“狗粮养的”;骂人者被告后也获官家力挺。<br><img src="http://ww4.sinaimg.cn/large/4bdb1fa0gw1eufyvg7hvhj20c31suwoz.jpg"></p>
-<p>
-	<small> ============== 11小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3868855967184335" target="freeweibo-mirror">SPAM 1.懒惰，像生锈一样，比操劳更能消耗身体，经常用的…</a>
-</h2>
-<p>SPAM 1.懒惰，像生锈一样，比操劳更能消耗身体，经常用的钥匙总是亮闪闪的。2.命运的变化犹如月之圆缺，对智者无妨害。 3.我未曾见过一个早起、勤奋、谨慎、诚实的人抱怨命运不好；良好的品格，优良的习惯，坚强的意志，是不会被假设所谓的命运击败的。（富兰克林）。#挑战者联盟# #定制幸福开机#<br><img src="http://ww4.sinaimg.cn/large/98c1610bjw1eug525y16cj2097064t8r.jpg"></p>
 <p>
 	<small> ============== 11小时前</small>
 </p>
