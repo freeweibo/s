@@ -26,6 +26,12 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3869202463003114" target="freeweibo-mirror">SPAM 【人生智慧】三个遗憾：不会选择；不坚持选择；不断地…</a>
+</h2>
+<p>SPAM 【人生智慧】三个遗憾：不会选择；不坚持选择；不断地选择。三个不斗：不与君子斗名，不与小人斗利，不与天地斗巧。三个修练：看得透想得开，拿得起放得下，立得正行得稳。三个陷阱：大意、轻信、贪婪。三个悲哀：遇良师不学，遇良友不交，遇良机不握。。#黄海波为老兵当导演# #给张若昀无心法师加戏#<br><img src="http://ww4.sinaimg.cn/large/98c1610bjw1euh8s37d37j20c00f8t9r.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3869202345543103" target="freeweibo-mirror">自证清白是皇帝对子民的态度！ //@刘力博士:自证清白是多么…</a>
 </h2>
 <p>自证清白是皇帝对子民的态度！ //@刘力博士:自证清白是多么恐怖的事//@本当无人://@EVIL摄影俱乐部: 垃圾国家，从执政党到老不死的，均无底线，崩盘是早晚的事</p>
@@ -41,6 +47,12 @@
 	<a href="https://freeweibo.com/weibo/3869197388001257" target="freeweibo-mirror">SPAM 后面的标志……//@超大欢乐多: 彩色1911[不…</a>
 </h2>
 <p>SPAM 后面的标志……//@超大欢乐多: 彩色1911[不好意思]<br><br>RE: 干嘛非死活放胸口，这样不久行了<br><img src="http://ww2.sinaimg.cn/large/005uNy2ejw1euh87dmwrvj318g0wythz.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3869196725033764" target="freeweibo-mirror">干嘛非死活放胸口，这样不久行了</a>
+</h2>
+<p>干嘛非死活放胸口，这样不久行了<br><img src="http://ww2.sinaimg.cn/large/005uNy2ejw1euh87dmwrvj318g0wythz.jpg"></p>
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
@@ -66,7 +78,7 @@
 </h2>
 <p>SPAM 卧槽，嘛节奏，扯上影帝了！ http://t.cn/RLSg47O</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3869156799791663" target="freeweibo-mirror">over</a>
 </h2>
@@ -127,18 +139,6 @@
 <p>//@IYALAN: //@言无忌禁言:日，人群年龄基本在40岁以上。没有独立的思想确实可怕！//@贺江兵:[挖鼻] //@公民叶海燕:我以为我太年轻，错过了文革现场，没想到……<br><br>RE: 我觉得“上街”就是好事，不管是诉求什么，，http://t.cn/RLSg47O 不知道这游行是哪个单位准许的[哈哈]</p>
 <p>
 	<small> ============== 8小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3869100860503232" target="freeweibo-mirror">//@发明人沈保民://@伍雷看夹边沟: 此生还能遇上文革真…</a>
-</h2>
-<p>//@发明人沈保民://@伍雷看夹边沟: 此生还能遇上文革真镜头，醉了！ //@贺江兵:[挖鼻] //@公民叶海燕:我以为我太年轻，错过了文革现场，没想到……<br><br>RE: 我觉得“上街”就是好事，不管是诉求什么，，http://t.cn/RLSg47O 不知道这游行是哪个单位准许的[哈哈]</p>
-<p>
-	<small> ============== 8小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3869093352592496" target="freeweibo-mirror">五毛都是有团青年？ //@育儿经奶爸:这… //@冉雄飞马卡…</a>
-</h2>
-<p>五毛都是有团青年？ //@育儿经奶爸:这… //@冉雄飞马卡王朝:得令了。 //@西恩潘西:?@任志强 @刘胜军改革 @曲子叶 //@十年砍柴:和辽沈战役廖耀湘用明语呼叫“到二道岗子”集合一样呀？</p>
-<p>
-	<small> ============== 9小时前</small>
 </p>
 <table>
     <tr>
