@@ -132,7 +132,7 @@
 </h2>
 <p>over</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3869152152819271" target="freeweibo-mirror">//@华胜天:中央不动邓，[蜡烛]江[蜡烛]，胡。 //@十…</a>
 </h2>
