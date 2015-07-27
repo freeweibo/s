@@ -72,7 +72,7 @@
 </h2>
 <p>SPAM //@胡是糊: //@只配叫猪://@只配抬那个杠: //@山爪在途中: TS1989時裝[思考]<br><br>RE: 德国之声『 媒体看中国  德语媒体：“杀鸡儆猴”』<br><img src="http://ww2.sinaimg.cn/large/0064PCFtjw1eufhp3t4nlj30k00zktm4.jpg"></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3868959965582448" target="freeweibo-mirror">SPAM @格瓦拉-战士 @楠小马62000 http://…</a>
 </h2>
