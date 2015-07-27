@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3869226206966900" target="freeweibo-mirror">主席说：“舆论阵地，无产阶级不去占领，资产阶级一定要去占领，…</a>
+</h2>
+<p>主席说：“舆论阵地，无产阶级不去占领，资产阶级一定要去占领，凡是要推翻一个政权，总是要造成舆论，总是要在意识形态领域做工作，革命的阶级是这样，反革命的阶级也是这样”。//@-静海心语-: 不信马列信上帝，意识形态沦陷了！ //@太史公公:全中国的基督徒都挂起十字架，<br><br>RE: 浙江省发起拆教堂十字架运动，教会就发起家家挂十字架、人人穿戴十字架运动，发动全国基督徒在家里和衣服上佩戴十字架，并把十字架挂在屋顶发光发亮，让十字架的光芒照耀每个家庭，让十字架扎根在每个人心里，这是种安全合法的非暴力不合作方式，他们说：希望各教会接力跟上。<br><img src="http://ww3.sinaimg.cn/large/005GMFoajw1euf5mgjupij30go0m876h.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3869203515865456" target="freeweibo-mirror">SPAM Nerf的吧？//@超大欢乐多:彩色1911[不好…</a>
 </h2>
 <p>SPAM Nerf的吧？//@超大欢乐多:彩色1911[不好意思]<br><br>RE: 干嘛非死活放胸口，这样不久行了<br><img src="http://ww2.sinaimg.cn/large/005uNy2ejw1euh87dmwrvj318g0wythz.jpg"></p>
@@ -96,7 +102,7 @@
 </h2>
 <p>SPAM 卧槽，嘛节奏，扯上影帝了！ http://t.cn/RLSg47O</p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3869156799791663" target="freeweibo-mirror">over</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3869112986226971" target="freeweibo-mirror">SPAM //@杨春林w: //@亮剑兄来了: //@率率乐…</a>
 </h2>
 <p>SPAM //@杨春林w: //@亮剑兄来了: //@率率乐妮再来: 感动！[泪][爱你]//@街头V海: 你炸尸了我也敢粉你！[嘻嘻]@率率乐妮再来:再转！最右我的尸体[哼][话筒]//@贾小母：[话筒][话筒][话筒]//@率率王乐妮99:再转！信仰无罪！[话筒]</p>
-<p>
-	<small> ============== 10小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3869112562416470" target="freeweibo-mirror">SPAM //@如意公主2010:网络宣传员是不是跟古时 太…</a>
-</h2>
-<p>SPAM //@如意公主2010:网络宣传员是不是跟古时 太监 一个职位，中国独有，世间少见[哈哈]</p>
 <p>
 	<small> ============== 10小时前</small>
 </p>
