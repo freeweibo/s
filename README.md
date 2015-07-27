@@ -84,7 +84,7 @@
 </h2>
 <p>没有什么领袖，可以永远正确；没有什么主义，可以永垂不朽；只有健全完善的法律制度，才可以流传千年，万世不灭。中国五千年的历史，为改朝换代，流的血太多了。如果可以的话，很多人都希望这是最后一次。没有人可以救中国，可以救中国的，只有法制，只有宪政，只有彻底把权利关进笼子里！<br><img src="http://ww2.sinaimg.cn/large/0068BZO7gw1euggwkfyz3j30hd0jpwh5.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3868953267244859" target="freeweibo-mirror">SPAM 体内睾酮水平较高的女性，可能会比比周围的人更喜欢自…</a>
 </h2>
