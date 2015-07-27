@@ -30,7 +30,7 @@
 </h2>
 <p>这是肿么了？//@孤独得农民: 爱国帽子一戴，啥玩意都敢做啊。真实NO做NO大耳 //@张发财:怎么转向打到影帝了乜？<br><br>RE: 湖南五月爱国运动纪实。据网友介绍，视频还不完整，后面还有一段曲调颇温婉深情的歌曲，是唱给重庆老书记的。 http://t.cn/RLSdRWm</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3869337544299668" target="freeweibo-mirror">费玉清……一转梅。</a>
 </h2>
@@ -72,13 +72,13 @@
 </h2>
 <p>SPAM Nerf的吧？//@超大欢乐多:彩色1911[不好意思]<br><br>RE: 干嘛非死活放胸口，这样不久行了<br><img src="http://ww2.sinaimg.cn/large/005uNy2ejw1euh87dmwrvj318g0wythz.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3869202463003114" target="freeweibo-mirror">SPAM 【人生智慧】三个遗憾：不会选择；不坚持选择；不断地…</a>
 </h2>
 <p>SPAM 【人生智慧】三个遗憾：不会选择；不坚持选择；不断地选择。三个不斗：不与君子斗名，不与小人斗利，不与天地斗巧。三个修练：看得透想得开，拿得起放得下，立得正行得稳。三个陷阱：大意、轻信、贪婪。三个悲哀：遇良师不学，遇良友不交，遇良机不握。。#黄海波为老兵当导演# #给张若昀无心法师加戏#<br><img src="http://ww4.sinaimg.cn/large/98c1610bjw1euh8s37d37j20c00f8t9r.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3869202345543103" target="freeweibo-mirror">自证清白是皇帝对子民的态度！ //@刘力博士:自证清白是多么…</a>
 </h2>
