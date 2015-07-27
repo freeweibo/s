@@ -32,6 +32,12 @@
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3869344842981765" target="freeweibo-mirror">且不论爱国，未成年学生是国家公民，不是什么小混混！类似网民全…</a>
+</h2>
+<p>且不论爱国，未成年学生是国家公民，不是什么小混混！类似网民全国数千万，成了网络黑社会人肉攻击的目标，街头围殴的对象，还是法治社会？殴打者背景是什么，一直在做着什么，是文明正义的代表？文登事件，公知为新纳粹站台，说明所谓民主人权都是虚装，它们实质是极右法西斯流氓的帮凶。<br><br>RE: 一个口含生殖器“爱国”的小混混約架吃了亏，在@共青团中央 以及一众左棍左混的炒作下掀起一波波针对特定人群绑架国家机器的恶浪。作为党的助手，胡赵时期改革开放是主旋律时，共青团就是改开的助推力量; 高层左转开倒车，共青团就堕落为打手和流氓混混的庇护所。所以问题出在共青团，根子还是在上面。<br><img src="http://ww1.sinaimg.cn/large/be8f8847jw1euh75oshegj20eg0aeq4z.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3869339453340835" target="freeweibo-mirror">这是肿么了？//@孤独得农民: 爱国帽子一戴，啥玩意都敢做啊…</a>
 </h2>
 <p>这是肿么了？//@孤独得农民: 爱国帽子一戴，啥玩意都敢做啊。真实NO做NO大耳 //@张发财:怎么转向打到影帝了乜？<br><br>RE: 湖南五月爱国运动纪实。据网友介绍，视频还不完整，后面还有一段曲调颇温婉深情的歌曲，是唱给重庆老书记的。 http://t.cn/RLSdRWm</p>
@@ -66,7 +72,7 @@
 </h2>
 <p>SPAM “铁肺”！小编你告诉我肺是铁的怎么呼吸？</p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3869226206966900" target="freeweibo-mirror">主席说：“舆论阵地，无产阶级不去占领，资产阶级一定要去占领，…</a>
 </h2>
@@ -78,7 +84,7 @@
 </h2>
 <p>【致@共青团中央  网评是21世纪最肮脏最无耻的产业！】图一省共青团网络宣传队伍编制31841人。图二爱国青年的爱国言论。图三孙立平先生的担忧与呼吁。图四事件深挖之结果，有看点！图五威海警方审查定性"普普通通的治安事件"。图六待续还有《捉妖记》！朱xx花xx千xx与共青团，出来！道歉！<br><img src="http://ww4.sinaimg.cn/large/df3004a0jw1euhb22yfbbj20hf0drdhv.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3869203515865456" target="freeweibo-mirror">SPAM Nerf的吧？//@超大欢乐多:彩色1911[不好…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3869196725033764" target="freeweibo-mirror">干嘛非死活放胸口，这样不久行了</a>
 </h2>
 <p>干嘛非死活放胸口，这样不久行了<br><img src="http://ww2.sinaimg.cn/large/005uNy2ejw1euh87dmwrvj318g0wythz.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3869192036177213" target="freeweibo-mirror">SPAM 年号庆丰[挖鼻] //@王亚军北京:近平三年[挖鼻…</a>
-</h2>
-<p>SPAM 年号庆丰[挖鼻] //@王亚军北京:近平三年[挖鼻]</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
