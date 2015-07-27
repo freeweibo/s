@@ -30,7 +30,7 @@
 </h2>
 <p>自证清白是皇帝对子民的态度！ //@刘力博士:自证清白是多么恐怖的事//@本当无人://@EVIL摄影俱乐部: 垃圾国家，从执政党到老不死的，均无底线，崩盘是早晚的事</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3869198030055831" target="freeweibo-mirror">事关世道人心，讹诈犯必须大刑伺候。 //@刘力博士:自证清白…</a>
 </h2>
@@ -54,7 +54,7 @@
 </h2>
 <p>高僧金刚法王赤仁波切日前在微信透露，此行参拜佛祖也是替病危父亲祈福。</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3869160646339056" target="freeweibo-mirror">SPAM 他这个游行还是审查批准过的？</a>
 </h2>
@@ -72,7 +72,7 @@
 </h2>
 <p>over</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3869152152819271" target="freeweibo-mirror">//@华胜天:中央不动邓，[蜡烛]江[蜡烛]，胡。 //@十…</a>
 </h2>
@@ -114,7 +114,7 @@
 </h2>
 <p>SPAM //@白兆东: 差不多吧 //@十年砍柴:和辽沈战役廖耀湘用明语呼叫“到二道岗子”集合一样呀？</p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3869110154353354" target="freeweibo-mirror">长沙开始文革试验？//@钢牙老马: //@发明人沈保民:长沙…</a>
 </h2>
