@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3869171144438287" target="freeweibo-mirror">高僧金刚法王赤仁波切日前在微信透露，此行参拜佛祖也是替病危父…</a>
+</h2>
+<p>高僧金刚法王赤仁波切日前在微信透露，此行参拜佛祖也是替病危父亲祈福。</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3869160646339056" target="freeweibo-mirror">SPAM 他这个游行还是审查批准过的？</a>
 </h2>
 <p>SPAM 他这个游行还是审查批准过的？</p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3868998863594777" target="freeweibo-mirror">那些赞他们的人，也是一直叫嚣要把五毛挂路灯的匪徒。问题来了：…</a>
 </h2>
 <p>那些赞他们的人，也是一直叫嚣要把五毛挂路灯的匪徒。问题来了：警察是不是五毛？公知是真爱他们，还是一时利用一下他们 ?//@男孩应龙: 话说@威海警方在线 被以往狂骂TG的这些人赞感觉如何？</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3868995919132086" target="freeweibo-mirror">我觉得“上街”就是好事，不管是诉求什么，，http://t.…</a>
-</h2>
-<p>我觉得“上街”就是好事，不管是诉求什么，，http://t.cn/RLSg47O 不知道这游行是哪个单位准许的[哈哈]</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
