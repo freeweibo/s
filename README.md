@@ -72,7 +72,7 @@
 </h2>
 <p>SPAM “铁肺”！小编你告诉我肺是铁的怎么呼吸？</p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3869226206966900" target="freeweibo-mirror">主席说：“舆论阵地，无产阶级不去占领，资产阶级一定要去占领，…</a>
 </h2>
