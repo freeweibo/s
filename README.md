@@ -114,7 +114,7 @@
 </h2>
 <p>高僧金刚法王赤仁波切日前在微信透露，此行参拜佛祖也是替病危父亲祈福。</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3869160646339056" target="freeweibo-mirror">SPAM 他这个游行还是审查批准过的？</a>
 </h2>
