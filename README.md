@@ -78,7 +78,7 @@
 </h2>
 <p>SPAM 年号庆丰[挖鼻] //@王亚军北京:近平三年[挖鼻]</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3869171144438287" target="freeweibo-mirror">高僧金刚法王赤仁波切日前在微信透露，此行参拜佛祖也是替病危父…</a>
 </h2>
@@ -126,7 +126,7 @@
 </h2>
 <p>SPAM //@饺子就酒999: //@老聊V:太无耻了[鄙视]//@普法三十年-://@十年砍柴: 和辽沈战役廖耀湘用明语呼叫“到二道岗子”集合一样呀？</p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3869112986226971" target="freeweibo-mirror">SPAM //@杨春林w: //@亮剑兄来了: //@率率乐…</a>
 </h2>
