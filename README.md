@@ -134,9 +134,9 @@
 <p>
 	<small> ============== 1天前</small>
 </p><h2>
-	<a href="https://freeweibo.com/weibo/3868993112823466" target="freeweibo-mirror">依法治国可以这样吗？ //@深南-大盗:这些人的后台是谁？</a>
+	<a href="https://freeweibo.com/weibo/3868995919132086" target="freeweibo-mirror">我觉得“上街”就是好事，不管是诉求什么，，http://t.…</a>
 </h2>
-<p>依法治国可以这样吗？ //@深南-大盗:这些人的后台是谁？</p>
+<p>我觉得“上街”就是好事，不管是诉求什么，，http://t.cn/RLSg47O 不知道这游行是哪个单位准许的[哈哈]</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
