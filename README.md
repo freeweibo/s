@@ -108,13 +108,13 @@
 </h2>
 <p>100多年来你以为中国改变了吗？没有！过去叫八旗子弟，现在叫红色基因；过去叫祖宗家法，现在叫优良传统；过去叫老佛爷，现在叫老领导；过去叫义和团，现在叫爱国青年。</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3869564884404431" target="freeweibo-mirror">SPAM 记住一句话吧：爱一个人的时候，爱到八分绝对刚刚好，…</a>
 </h2>
 <p>SPAM 记住一句话吧：爱一个人的时候，爱到八分绝对刚刚好，剩下两三分用来爱自己。如果你还继续爱得更多，很可能会给对方沉重的压力，让彼此喘不过气来。所以记住，爱一个人不要超过八分。。。。#安徽完整版克拉恋人# #柏邦妮安又琪大战#<br><img src="http://ww2.sinaimg.cn/large/98c1610bjw1euiehrxhdxj209q07awev.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3869560191240662" target="freeweibo-mirror">SPAM #美的人已经在晒了#今天你晒了吗？听@怡宝 说，走…</a>
 </h2>
