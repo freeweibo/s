@@ -26,11 +26,29 @@
 <p>
 	<small> ============== 1小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3869728072593932" target="freeweibo-mirror">你們現在知道為啥馬英九手底下的官員總是一副慫樣、一臉膿包了吧…</a>
+</h2>
+<p>你們現在知道為啥馬英九手底下的官員總是一副慫樣、一臉膿包了吧，因為他們若像新黨那樣敢戰、敢鬥，馬英九不但不會力挺他們，說不定還補一刀，殺自己人以謝敵人。</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3869721298858386" target="freeweibo-mirror">矮子千古罪人，国家叛徒。//@阳光帽合: 矮子平反的。回民在…</a>
+</h2>
+<p>矮子千古罪人，国家叛徒。//@阳光帽合: 矮子平反的。回民在中央有人，回民不断直接找中央，云南和红河州激烈反对平反，被强压了下去，平反就平反吧，还修个舍西德纪念碑，不是打解放军脸吗？//@云梦泽人: 武装叛乱被平息了，后来又平反了，真邪门。//@阳光帽合: 唉，75年时没有彻底铲除，又死灰复燃了<br><br>RE: 今天游沙甸，同行的女伴穿了长裙，在广场玩的伊斯兰教徒的女孩就向她吐口水，现场的解说员就世界上就两种人，信真主的和不信真主的，一副种族撕裂的模样。这样的地方就是内乱之源，共产党怎么会让这种地方存在。<br><img src="http://ww1.sinaimg.cn/large/89840b53jw1euiuqwl7btj20qo0ezmzh.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3869720870992791" target="freeweibo-mirror">这种愚昧野蛮却又自以为高人一等的女邪教徒，就是傻逼加疯子。</a>
+</h2>
+<p>这种愚昧野蛮却又自以为高人一等的女邪教徒，就是傻逼加疯子。<br><br>RE: 今天游沙甸，同行的女伴穿了长裙，在广场玩的伊斯兰教徒的女孩就向她吐口水，现场的解说员就世界上就两种人，信真主的和不信真主的，一副种族撕裂的模样。这样的地方就是内乱之源，共产党怎么会让这种地方存在。<br><img src="http://ww1.sinaimg.cn/large/89840b53jw1euiuqwl7btj20qo0ezmzh.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3869698087526462" target="freeweibo-mirror">SPAM 不睡了，High起来！</a>
 </h2>
 <p>SPAM 不睡了，High起来！</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3869664789040317" target="freeweibo-mirror">反正这件事得有两个结果： 1 有申请，有批准，合法。那就要讲…</a>
 </h2>
@@ -66,7 +84,7 @@
 </h2>
 <p>SPAM 以前我一直不太懂漂移有什么乐趣,直到我今天看了这个视频,才明白,自己还是图样图森破啊~[生病]http://t.cn/RLKWovq</p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3869600964244754" target="freeweibo-mirror">//@默默也语://@浩瀚小河流: 因为没有不腐败的，只是站…</a>
 </h2>
@@ -119,24 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3869564884404431" target="freeweibo-mirror">SPAM 记住一句话吧：爱一个人的时候，爱到八分绝对刚刚好，…</a>
 </h2>
 <p>SPAM 记住一句话吧：爱一个人的时候，爱到八分绝对刚刚好，剩下两三分用来爱自己。如果你还继续爱得更多，很可能会给对方沉重的压力，让彼此喘不过气来。所以记住，爱一个人不要超过八分。。。。#安徽完整版克拉恋人# #柏邦妮安又琪大战#<br><img src="http://ww2.sinaimg.cn/large/98c1610bjw1euiehrxhdxj209q07awev.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3869560191240662" target="freeweibo-mirror">SPAM #美的人已经在晒了#今天你晒了吗？听@怡宝 说，走…</a>
-</h2>
-<p>SPAM #美的人已经在晒了#今天你晒了吗？听@怡宝 说，走到户外晒三分钟，就可以做公益？看看名人们是怎么玩的！<br><img src="http://ww4.sinaimg.cn/large/7aa71322jw1euidyfdaz0j20omtyou11.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3869549902045315" target="freeweibo-mirror">SPAM 【为勇敢努力的姑娘鼓掌】11岁开始卖水果，19岁便…</a>
-</h2>
-<p>SPAM 【为勇敢努力的姑娘鼓掌】11岁开始卖水果，19岁便嫁入王室，28岁时再嫁LV太子……她展现了真实的灰姑娘逆袭！ #一加手机2#<br><img src="http://ww2.sinaimg.cn/large/6d3a2603gw1euicpv4c27j20c60m942c.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3869549788781717" target="freeweibo-mirror">SPAM 【记住八字幸福一生】情，不能做得太深，深了难以清醒…</a>
-</h2>
-<p>SPAM 【记住八字幸福一生】情，不能做得太深，深了难以清醒。话，不能说得太满，满了难以圆通。调，不能定得太高，高了难以合声。事，不能做得太绝，绝了难进退。情，不能陷得太深，深了难自拔。利，不能看得太重，重了难以明志。人，不能做得太假，假了难交心。世，不能看得太清，清了难作为。#一加手机2#<br><img src="http://ww2.sinaimg.cn/large/98c1610bjw1euiccd8p6wj209e064t90.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
