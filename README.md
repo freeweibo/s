@@ -54,7 +54,7 @@
 </h2>
 <p>湖南五月爱国运动纪实。据网友介绍，视频还不完整，后面还有一段曲调颇温婉深情的歌曲，是唱给重庆老书记的。 http://t.cn/RLSdRWm</p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3869290304760103" target="freeweibo-mirror">[哈哈] //@陆伟民律师:老油条[哈哈]</a>
 </h2>
