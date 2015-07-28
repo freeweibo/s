@@ -66,7 +66,7 @@
 </h2>
 <p>SPAM 温家宝咋了[嘻嘻]<br><br>RE: 速看！[嘻嘻][嘻嘻][嘻嘻] http://t.cn/RLKYzJY</p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3869651438592535" target="freeweibo-mirror">口号有亮点//@好人定会有好运:转发微博</a>
 </h2>
