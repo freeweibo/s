@@ -48,7 +48,7 @@
 </h2>
 <p>SPAM 一天15%了，坏了，又不到了[哈哈]</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3869580377751834" target="freeweibo-mirror">SPAM 不要怕某种性格会得罪人，要知道世界上没有任何一种性…</a>
 </h2>
