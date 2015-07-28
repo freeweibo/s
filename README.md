@@ -60,7 +60,7 @@
 </h2>
 <p>反正这件事得有两个结果： 1 有申请，有批准，合法。那就要讲清原委。 2 没申就是非法集会游行，诽谤他人，公安机关得有个处理结果。[睡]<br><br>RE: 速看！[嘻嘻][嘻嘻][嘻嘻] http://t.cn/RLKYzJY</p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3869656446372706" target="freeweibo-mirror">SPAM 温家宝咋了[嘻嘻]</a>
 </h2>
