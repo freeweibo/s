@@ -48,13 +48,13 @@
 </h2>
 <p>口号有亮点//@好人定会有好运:转发微博<br><br>RE: 速看！[嘻嘻][嘻嘻][嘻嘻] http://t.cn/RLKYzJY</p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3869635893630235" target="freeweibo-mirror">SPAM 急求，北京燕莎赛特附近，哪里有卖新生儿纸尿裤和用品…</a>
 </h2>
 <p>SPAM 急求，北京燕莎赛特附近，哪里有卖新生儿纸尿裤和用品的超市？求靠谱的。拜谢拜谢！！</p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3869623961472059" target="freeweibo-mirror">//@博者文摘://@侬侬乐://@凤凰紫荆://@涛翁的微…</a>
 </h2>
