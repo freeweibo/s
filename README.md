@@ -36,7 +36,7 @@
 </h2>
 <p>SPAM 温家宝咋了[嘻嘻]<br><br>RE: 速看！[嘻嘻][嘻嘻][嘻嘻] http://t.cn/RLKYzJY</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3869651438592535" target="freeweibo-mirror">口号有亮点//@好人定会有好运:转发微博</a>
 </h2>
@@ -78,13 +78,13 @@
 </h2>
 <p>速看！[嘻嘻][嘻嘻][嘻嘻] http://t.cn/RLKYzJY</p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3869580377751834" target="freeweibo-mirror">SPAM 不要怕某种性格会得罪人，要知道世界上没有任何一种性…</a>
 </h2>
 <p>SPAM 不要怕某种性格会得罪人，要知道世界上没有任何一种性格能避免得罪人，说话直的会得罪小人，说话委婉的会得罪急脾气，老好人会得罪有原则的人，圆滑的人会得罪聪明人……既然都会得罪人，那就做你自己，做好了自己，就不怕得罪人，因为你可以承担后果。。。#钟汉良否认隐婚# #马涛滚出星动亚洲#<br><img src="http://ww3.sinaimg.cn/large/98c1610bjw1euig9umtmtj20c80h6405.jpg"></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3869574481133348" target="freeweibo-mirror">//@无畏高尔察克: //@呼兰山炮:总结到位</a>
 </h2>
@@ -108,13 +108,13 @@
 </h2>
 <p>100多年来你以为中国改变了吗？没有！过去叫八旗子弟，现在叫红色基因；过去叫祖宗家法，现在叫优良传统；过去叫老佛爷，现在叫老领导；过去叫义和团，现在叫爱国青年。</p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3869564884404431" target="freeweibo-mirror">SPAM 记住一句话吧：爱一个人的时候，爱到八分绝对刚刚好，…</a>
 </h2>
 <p>SPAM 记住一句话吧：爱一个人的时候，爱到八分绝对刚刚好，剩下两三分用来爱自己。如果你还继续爱得更多，很可能会给对方沉重的压力，让彼此喘不过气来。所以记住，爱一个人不要超过八分。。。。#安徽完整版克拉恋人# #柏邦妮安又琪大战#<br><img src="http://ww2.sinaimg.cn/large/98c1610bjw1euiehrxhdxj209q07awev.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3869560191240662" target="freeweibo-mirror">SPAM #美的人已经在晒了#今天你晒了吗？听@怡宝 说，走…</a>
 </h2>
