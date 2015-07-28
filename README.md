@@ -72,7 +72,7 @@
 </h2>
 <p>口号有亮点//@好人定会有好运:转发微博<br><br>RE: 速看！[嘻嘻][嘻嘻][嘻嘻] http://t.cn/RLKYzJY</p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3869635893630235" target="freeweibo-mirror">SPAM 急求，北京燕莎赛特附近，哪里有卖新生儿纸尿裤和用品…</a>
 </h2>
