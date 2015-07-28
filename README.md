@@ -20,11 +20,47 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3869584644330410" target="freeweibo-mirror">SPAM 一天15%了，坏了，又不到了[哈哈]</a>
+</h2>
+<p>SPAM 一天15%了，坏了，又不到了[哈哈]</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3869574481133348" target="freeweibo-mirror">//@无畏高尔察克: //@呼兰山炮:总结到位</a>
+</h2>
+<p>//@无畏高尔察克: //@呼兰山炮:总结到位<br><br>RE: 100多年来你以为中国改变了吗？没有！过去叫八旗子弟，现在叫红色基因；过去叫祖宗家法，现在叫优良传统；过去叫老佛爷，现在叫老领导；过去叫义和团，现在叫爱国青年。</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3869574418394530" target="freeweibo-mirror">//@呼兰山炮:总结到位</a>
+</h2>
+<p>//@呼兰山炮:总结到位<br><br>RE: 100多年来你以为中国改变了吗？没有！过去叫八旗子弟，现在叫红色基因；过去叫祖宗家法，现在叫优良传统；过去叫老佛爷，现在叫老领导；过去叫义和团，现在叫爱国青年。</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3869570912169294" target="freeweibo-mirror">//@杜-奕宏: //@战略兵王V:→_→ //@王朔评论:…</a>
+</h2>
+<p>//@杜-奕宏: //@战略兵王V:→_→ //@王朔评论:精屁。<br><br>RE: 100多年来你以为中国改变了吗？没有！过去叫八旗子弟，现在叫红色基因；过去叫祖宗家法，现在叫优良传统；过去叫老佛爷，现在叫老领导；过去叫义和团，现在叫爱国青年。</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3869565119519854" target="freeweibo-mirror">100多年来你以为中国改变了吗？没有！过去叫八旗子弟，现在叫…</a>
+</h2>
+<p>100多年来你以为中国改变了吗？没有！过去叫八旗子弟，现在叫红色基因；过去叫祖宗家法，现在叫优良传统；过去叫老佛爷，现在叫老领导；过去叫义和团，现在叫爱国青年。</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3869564884404431" target="freeweibo-mirror">SPAM 记住一句话吧：爱一个人的时候，爱到八分绝对刚刚好，…</a>
 </h2>
 <p>SPAM 记住一句话吧：爱一个人的时候，爱到八分绝对刚刚好，剩下两三分用来爱自己。如果你还继续爱得更多，很可能会给对方沉重的压力，让彼此喘不过气来。所以记住，爱一个人不要超过八分。。。。#安徽完整版克拉恋人# #柏邦妮安又琪大战#<br><img src="http://ww2.sinaimg.cn/large/98c1610bjw1euiehrxhdxj209q07awev.jpg"></p>
 <p>
 	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3869560191240662" target="freeweibo-mirror">SPAM #美的人已经在晒了#今天你晒了吗？听@怡宝 说，走…</a>
+</h2>
+<p>SPAM #美的人已经在晒了#今天你晒了吗？听@怡宝 说，走到户外晒三分钟，就可以做公益？看看名人们是怎么玩的！<br><img src="http://ww4.sinaimg.cn/large/7aa71322jw1euidyfdaz0j20omtyou11.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3869549788781717" target="freeweibo-mirror">SPAM 【记住八字幸福一生】情，不能做得太深，深了难以清醒…</a>
 </h2>
@@ -101,42 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3869289679943829" target="freeweibo-mirror">老油条[哈哈]</a>
 </h2>
 <p>老油条[哈哈]<br><br>RE: 国宝找上门，他说：你又在网上瞎鸡巴讲。我说：没啊，最近风声紧，我他妈一直在装孙子。他说：挺直腰板操TG啥意思？我说：这话是我说的，有问题吗？他说：TG是啥意思？我说：贪官的缩写，你以为呢？国宝愣了一会，说：我也这么认为，你这老油条。</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3869237431111786" target="freeweibo-mirror">SPAM “铁肺”！小编你告诉我肺是铁的怎么呼吸？</a>
-</h2>
-<p>SPAM “铁肺”！小编你告诉我肺是铁的怎么呼吸？</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3869226206966900" target="freeweibo-mirror">主席说：“舆论阵地，无产阶级不去占领，资产阶级一定要去占领，…</a>
-</h2>
-<p>主席说：“舆论阵地，无产阶级不去占领，资产阶级一定要去占领，凡是要推翻一个政权，总是要造成舆论，总是要在意识形态领域做工作，革命的阶级是这样，反革命的阶级也是这样”。//@-静海心语-: 不信马列信上帝，意识形态沦陷了！ //@太史公公:全中国的基督徒都挂起十字架，<br><br>RE: 浙江省发起拆教堂十字架运动，教会就发起家家挂十字架、人人穿戴十字架运动，发动全国基督徒在家里和衣服上佩戴十字架，并把十字架挂在屋顶发光发亮，让十字架的光芒照耀每个家庭，让十字架扎根在每个人心里，这是种安全合法的非暴力不合作方式，他们说：希望各教会接力跟上。<br><img src="http://ww3.sinaimg.cn/large/005GMFoajw1euf5mgjupij30go0m876h.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3869221525930412" target="freeweibo-mirror">【致@共青团中央  网评是21世纪最肮脏最无耻的产业！】图一…</a>
-</h2>
-<p>【致@共青团中央  网评是21世纪最肮脏最无耻的产业！】图一省共青团网络宣传队伍编制31841人。图二爱国青年的爱国言论。图三孙立平先生的担忧与呼吁。图四事件深挖之结果，有看点！图五威海警方审查定性"普普通通的治安事件"。图六待续还有《捉妖记》！朱xx花xx千xx与共青团，出来！道歉！<br><img src="http://ww4.sinaimg.cn/large/df3004a0jw1euhb22yfbbj20hf0drdhv.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3869203515865456" target="freeweibo-mirror">SPAM Nerf的吧？//@超大欢乐多:彩色1911[不好…</a>
-</h2>
-<p>SPAM Nerf的吧？//@超大欢乐多:彩色1911[不好意思]<br><br>RE: 干嘛非死活放胸口，这样不久行了<br><img src="http://ww2.sinaimg.cn/large/005uNy2ejw1euh87dmwrvj318g0wythz.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3869202463003114" target="freeweibo-mirror">SPAM 【人生智慧】三个遗憾：不会选择；不坚持选择；不断地…</a>
-</h2>
-<p>SPAM 【人生智慧】三个遗憾：不会选择；不坚持选择；不断地选择。三个不斗：不与君子斗名，不与小人斗利，不与天地斗巧。三个修练：看得透想得开，拿得起放得下，立得正行得稳。三个陷阱：大意、轻信、贪婪。三个悲哀：遇良师不学，遇良友不交，遇良机不握。。#黄海波为老兵当导演# #给张若昀无心法师加戏#<br><img src="http://ww4.sinaimg.cn/large/98c1610bjw1euh8s37d37j20c00f8t9r.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3869202345543103" target="freeweibo-mirror">自证清白是皇帝对子民的态度！ //@刘力博士:自证清白是多么…</a>
-</h2>
-<p>自证清白是皇帝对子民的态度！ //@刘力博士:自证清白是多么恐怖的事//@本当无人://@EVIL摄影俱乐部: 垃圾国家，从执政党到老不死的，均无底线，崩盘是早晚的事</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
