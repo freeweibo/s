@@ -126,13 +126,13 @@
 </h2>
 <p>SPAM 【为勇敢努力的姑娘鼓掌】11岁开始卖水果，19岁便嫁入王室，28岁时再嫁LV太子……她展现了真实的灰姑娘逆袭！ #一加手机2#<br><img src="http://ww2.sinaimg.cn/large/6d3a2603gw1euicpv4c27j20c60m942c.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3869549788781717" target="freeweibo-mirror">SPAM 【记住八字幸福一生】情，不能做得太深，深了难以清醒…</a>
 </h2>
 <p>SPAM 【记住八字幸福一生】情，不能做得太深，深了难以清醒。话，不能说得太满，满了难以圆通。调，不能定得太高，高了难以合声。事，不能做得太绝，绝了难进退。情，不能陷得太深，深了难自拔。利，不能看得太重，重了难以明志。人，不能做得太假，假了难交心。世，不能看得太清，清了难作为。#一加手机2#<br><img src="http://ww2.sinaimg.cn/large/98c1610bjw1euiccd8p6wj209e064t90.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3869549697030092" target="freeweibo-mirror">SPAM 泰国一渣男出轨，被女友逮住时他正跟小三卿卿我我逛街…</a>
 </h2>
