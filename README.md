@@ -114,7 +114,7 @@
 </h2>
 <p>SPAM 求中</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3869736443913408" target="freeweibo-mirror">紧急代祷！2015.7.28浙江温州平阳笞湖教会（来自尼西视…</a>
 </h2>
