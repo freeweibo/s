@@ -24,7 +24,7 @@
 </h2>
 <p>//@芦笛先生:转发微博</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3869819063923164" target="freeweibo-mirror">SPAM 求中</a>
 </h2>
@@ -42,7 +42,7 @@
 </h2>
 <p>高瑜病危<br><img src="http://ww3.sinaimg.cn/large/74fa712bgw1euixeshqnwj20go0b9wf4.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3869728072593932" target="freeweibo-mirror">你們現在知道為啥馬英九手底下的官員總是一副慫樣、一臉膿包了吧…</a>
 </h2>
