@@ -48,7 +48,7 @@
 </h2>
 <p>SPAM 欢迎小太监来拍砖。<br><br>RE: 黄七反整个一个太监，这么被太监集团推崇，并不奇怪。</p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3870097477362805" target="freeweibo-mirror">SPAM //@lawyerzdy:另一个是？</a>
 </h2>
