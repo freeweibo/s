@@ -132,7 +132,7 @@
 </h2>
 <p>SPAM [吐]吃颗大青果药丸压压惊。</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3869905545841739" target="freeweibo-mirror">沙甸事件的前因后果事实已经很清楚，博主在这仅仅是想博同情吗？…</a>
 </h2>
