@@ -30,13 +30,13 @@
 </h2>
 <p>SPAM 江、山依旧在，几度曾经红。</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3869925108117160" target="freeweibo-mirror">想到了挡拖拉机那张照片。//@艳阳天_陆52://@陆伟民律…</a>
 </h2>
 <p>想到了挡拖拉机那张照片。//@艳阳天_陆52://@陆伟民律师: 没有上级的命令，士兵们是不敢开枪的，面对昂山素季，缅甸军政府有点胆怯。 //@张宾峰律师:值得称赞的是持枪的士兵，因为他们还有人性</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3869924646417974" target="freeweibo-mirror">SPAM 回覆@飞龙在天09125:[哼] //@飞龙在天0…</a>
 </h2>
@@ -72,7 +72,7 @@
 </h2>
 <p>SPAM 求中</p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3869736443913408" target="freeweibo-mirror">紧急代祷！2015.7.28浙江温州平阳笞湖教会（来自尼西视…</a>
 </h2>
