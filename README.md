@@ -38,6 +38,12 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3869920104704722" target="freeweibo-mirror">//@郭少坤:求上帝恩待受害的弟兄姊妹！//@SY徐风: 转…</a>
+</h2>
+<p>//@郭少坤:求上帝恩待受害的弟兄姊妹！//@SY徐风: 转发微博<br><br>RE: 紧急代祷！2015.7.28浙江温州平阳笞湖教会（来自尼西视野）2015.7.28浙江温州平阳笞湖教会 ，地理位置靠近平阳南雁镇。政府雇佣人员向守护教堂十字架的基督徒发起强攻，砸门扔物，破门而入，暴力殴打现场守护人员。目前造成一位弟兄(名：兰天思)昏迷 与 多人受伤。<br><img src="http://ww3.sinaimg.cn/large/4c28c8c3jw1euiy685dovj20hs0hs0ts.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3869909299602220" target="freeweibo-mirror">SPAM [吐]吃颗大青果药丸压压惊。</a>
 </h2>
 <p>SPAM [吐]吃颗大青果药丸压压惊。</p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3869623961472059" target="freeweibo-mirror">//@博者文摘://@侬侬乐://@凤凰紫荆://@涛翁的微…</a>
 </h2>
 <p>//@博者文摘://@侬侬乐://@凤凰紫荆://@涛翁的微博: 有一次跟几个红后代聊天，他们自认为自己就是共和国的股东。<br><br>RE: 据香港明报报道：十八大后的反腐浪潮中，迄今未有“红二代”受查。对此，叶剑英幼女叶向真、徐向前之子徐小岩中将昨表示，红二代幼承庭训，不受贪腐侵蚀。周恩来侄女周秉德称，红二代继承了父辈信仰，把人民和国家利益放在首位，不会贪。但据中国权威部门的一份报告显示，中国91%的亿万富翁是红二代。<br><img src="http://ww3.sinaimg.cn/large/dfe0481agw1euik60rk2nj20b707owfd.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3869607176048081" target="freeweibo-mirror">SPAM 以前我一直不太懂漂移有什么乐趣,直到我今天看了这个…</a>
-</h2>
-<p>SPAM 以前我一直不太懂漂移有什么乐趣,直到我今天看了这个视频,才明白,自己还是图样图森破啊~[生病]http://t.cn/RLKWovq</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
