@@ -66,7 +66,7 @@
 </h2>
 <p>#北京突发#【[话筒]】@mibxu：一辆白色小轿车从宣武门到和平门连撞至少8人（至少两个儿童）！！！<br><img src="http://ww1.sinaimg.cn/large/63136032jw1eujyaqbgcyj20dc0hswgl.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3870044255928172" target="freeweibo-mirror">SPAM 六界最强的 Coser 都在玩的游戏，我在列王的纷…</a>
 </h2>
