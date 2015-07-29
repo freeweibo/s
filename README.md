@@ -38,6 +38,12 @@
 <p>
 	<small> ============== 11小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3869729817599913" target="freeweibo-mirror">高瑜病危</a>
+</h2>
+<p>高瑜病危<br><img src="http://ww3.sinaimg.cn/large/74fa712bgw1euixeshqnwj20go0b9wf4.jpg"></p>
+<p>
+	<small> ============== 11小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3869728072593932" target="freeweibo-mirror">你們現在知道為啥馬英九手底下的官員總是一副慫樣、一臉膿包了吧…</a>
 </h2>
 <p>你們現在知道為啥馬英九手底下的官員總是一副慫樣、一臉膿包了吧，因為他們若像新黨那樣敢戰、敢鬥，馬英九不但不會力挺他們，說不定還補一刀，殺自己人以謝敵人。</p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3869580377751834" target="freeweibo-mirror">SPAM 不要怕某种性格会得罪人，要知道世界上没有任何一种性…</a>
 </h2>
 <p>SPAM 不要怕某种性格会得罪人，要知道世界上没有任何一种性格能避免得罪人，说话直的会得罪小人，说话委婉的会得罪急脾气，老好人会得罪有原则的人，圆滑的人会得罪聪明人……既然都会得罪人，那就做你自己，做好了自己，就不怕得罪人，因为你可以承担后果。。。#钟汉良否认隐婚# #马涛滚出星动亚洲#<br><img src="http://ww3.sinaimg.cn/large/98c1610bjw1euig9umtmtj20c80h6405.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3869574481133348" target="freeweibo-mirror">//@无畏高尔察克: //@呼兰山炮:总结到位</a>
-</h2>
-<p>//@无畏高尔察克: //@呼兰山炮:总结到位<br><br>RE: 100多年来你以为中国改变了吗？没有！过去叫八旗子弟，现在叫红色基因；过去叫祖宗家法，现在叫优良传统；过去叫老佛爷，现在叫老领导；过去叫义和团，现在叫爱国青年。</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
