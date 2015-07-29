@@ -30,7 +30,7 @@
 </h2>
 <p>SPAM 求中</p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3869734360010362" target="freeweibo-mirror">//@黄柏汉英://@残疾人维权张伟: //@高_彦生: /…</a>
 </h2>
