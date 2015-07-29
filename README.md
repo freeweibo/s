@@ -108,7 +108,7 @@
 </h2>
 <p>【两日大跌 全国股民人均亏损5.4万】7月27日A股市值蒸发了4.2万亿左右，人均亏损约4.6万元。7月28日蒸发了7787.49亿，人均亏损8467.8元。两个都是按照最近的期末投资者数量9196.55万人来计算。这样算下来，两天合计，全国股民人均亏约5.4万。http://t.cn/RL9QT7E<br><img src="http://ww4.sinaimg.cn/large/625ab309jw1eujh0x9mbdj20sg0iz0uy.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3869821194516763" target="freeweibo-mirror">//@芦笛先生:转发微博</a>
 </h2>
