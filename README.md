@@ -30,7 +30,7 @@
 </h2>
 <p>SPAM 求中</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3869734360010362" target="freeweibo-mirror">//@黄柏汉英://@残疾人维权张伟: //@高_彦生: /…</a>
 </h2>
@@ -60,7 +60,7 @@
 </h2>
 <p>今天游沙甸，同行的女伴穿了长裙，在广场玩的伊斯兰教徒的女孩就向她吐口水，现场的解说员就世界上就两种人，信真主的和不信真主的，一副种族撕裂的模样。这样的地方就是内乱之源，共产党怎么会让这种地方存在。<br><img src="http://ww1.sinaimg.cn/large/89840b53jw1euiuqwl7btj20qo0ezmzh.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3869698087526462" target="freeweibo-mirror">SPAM 不睡了，High起来！</a>
 </h2>
