@@ -38,6 +38,12 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3869924646417974" target="freeweibo-mirror">SPAM 回覆@飞龙在天09125:[哼] //@飞龙在天0…</a>
+</h2>
+<p>SPAM 回覆@飞龙在天09125:[哼] //@飞龙在天09125:私家太坏了[偷笑]</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3869920104704722" target="freeweibo-mirror">//@郭少坤:求上帝恩待受害的弟兄姊妹！//@SY徐风: 转…</a>
 </h2>
 <p>//@郭少坤:求上帝恩待受害的弟兄姊妹！//@SY徐风: 转发微博<br><br>RE: 紧急代祷！2015.7.28浙江温州平阳笞湖教会（来自尼西视野）2015.7.28浙江温州平阳笞湖教会 ，地理位置靠近平阳南雁镇。政府雇佣人员向守护教堂十字架的基督徒发起强攻，砸门扔物，破门而入，暴力殴打现场守护人员。目前造成一位弟兄(名：兰天思)昏迷 与 多人受伤。<br><img src="http://ww3.sinaimg.cn/large/4c28c8c3jw1euiy685dovj20hs0hs0ts.jpg"></p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3869651438592535" target="freeweibo-mirror">口号有亮点//@好人定会有好运:转发微博</a>
 </h2>
 <p>口号有亮点//@好人定会有好运:转发微博<br><br>RE: 速看！[嘻嘻][嘻嘻][嘻嘻] http://t.cn/RLKYzJY</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3869635893630235" target="freeweibo-mirror">SPAM 急求，北京燕莎赛特附近，哪里有卖新生儿纸尿裤和用品…</a>
-</h2>
-<p>SPAM 急求，北京燕莎赛特附近，哪里有卖新生儿纸尿裤和用品的超市？求靠谱的。拜谢拜谢！！</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
