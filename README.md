@@ -30,13 +30,13 @@
 </h2>
 <p>SPAM 江、山依旧在，几度曾经红。</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3869925108117160" target="freeweibo-mirror">想到了挡拖拉机那张照片。//@艳阳天_陆52://@陆伟民律…</a>
 </h2>
 <p>想到了挡拖拉机那张照片。//@艳阳天_陆52://@陆伟民律师: 没有上级的命令，士兵们是不敢开枪的，面对昂山素季，缅甸军政府有点胆怯。 //@张宾峰律师:值得称赞的是持枪的士兵，因为他们还有人性</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3869909299602220" target="freeweibo-mirror">SPAM [吐]吃颗大青果药丸压压惊。</a>
 </h2>
@@ -54,7 +54,7 @@
 </h2>
 <p>SPAM 求中</p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3869734360010362" target="freeweibo-mirror">//@黄柏汉英://@残疾人维权张伟: //@高_彦生: /…</a>
 </h2>
