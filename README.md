@@ -32,11 +32,17 @@
 <p>
 	<small> ============== 1小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3869925108117160" target="freeweibo-mirror">想到了挡拖拉机那张照片。//@艳阳天_陆52://@陆伟民律…</a>
+</h2>
+<p>想到了挡拖拉机那张照片。//@艳阳天_陆52://@陆伟民律师: 没有上级的命令，士兵们是不敢开枪的，面对昂山素季，缅甸军政府有点胆怯。 //@张宾峰律师:值得称赞的是持枪的士兵，因为他们还有人性</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3869909299602220" target="freeweibo-mirror">SPAM [吐]吃颗大青果药丸压压惊。</a>
 </h2>
 <p>SPAM [吐]吃颗大青果药丸压压惊。</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3869821194516763" target="freeweibo-mirror">//@芦笛先生:转发微博</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3869607176048081" target="freeweibo-mirror">SPAM 以前我一直不太懂漂移有什么乐趣,直到我今天看了这个…</a>
 </h2>
 <p>SPAM 以前我一直不太懂漂移有什么乐趣,直到我今天看了这个视频,才明白,自己还是图样图森破啊~[生病]http://t.cn/RLKWovq</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3869600964244754" target="freeweibo-mirror">//@默默也语://@浩瀚小河流: 因为没有不腐败的，只是站…</a>
-</h2>
-<p>//@默默也语://@浩瀚小河流: 因为没有不腐败的，只是站错队://@非首席化妆师: 为何？<br><br>RE: 人民群众对腐败官员历来深恶痛绝！但面对薄熙来、周永康、徐才厚、令计划、苏荣等严重违纪违法官员你恨他们吗？很多民众不仅不恨他们，还表示出同情，甚至力挺者有之。为什么？[思考]<br><img src="http://ww1.sinaimg.cn/large/5d7f0e1cgw1eui636sen3j20n00ekwfu.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
