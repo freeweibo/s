@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3869966514757938" target="freeweibo-mirror">SPAM #你不知道的瑞士# 瑞士是一个位于欧洲中部，全境以…</a>
+</h2>
+<p>SPAM #你不知道的瑞士# 瑞士是一个位于欧洲中部，全境以高原和山地为主，有"欧洲屋脊"之称。      瑞士给人的印象就是一个童话般的世界，到处都是森林、大草地、山坡、湖泊、雪山还有可爱的小木屋，人与自然可以融合地非常美妙。所http://t.cn/RLC2sjv<br><img src="http://ww2.sinaimg.cn/large/92810c02gw1eujntry7roj20xc0k0qau.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3869958549476160" target="freeweibo-mirror">SPAM 【全程高能！EXO和TFBOYS粉丝掐架 上演小学…</a>
 </h2>
 <p>SPAM 【全程高能！EXO和TFBOYS粉丝掐架 上演小学生世纪骂战】 虽然如今互联网上EXO和TFBOYS经常被网友拿出来说事，但是，依旧有一些忠实粉丝在维护自己的偶像，这不在日前，这两大天团的粉丝就在互联网上掐起架来，想感受一下这场惊天地泣鬼神的“小学生世纪骂战”？请自备狗眼！http://t.cn/RL9LpgM</p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3869729817599913" target="freeweibo-mirror">高瑜病危</a>
 </h2>
 <p>高瑜病危<br><img src="http://ww3.sinaimg.cn/large/74fa712bgw1euixeshqnwj20go0b9wf4.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3869728072593932" target="freeweibo-mirror">你們現在知道為啥馬英九手底下的官員總是一副慫樣、一臉膿包了吧…</a>
-</h2>
-<p>你們現在知道為啥馬英九手底下的官員總是一副慫樣、一臉膿包了吧，因為他們若像新黨那樣敢戰、敢鬥，馬英九不但不會力挺他們，說不定還補一刀，殺自己人以謝敵人。</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
