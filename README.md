@@ -26,6 +26,12 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3869940614438832" target="freeweibo-mirror">SPAM //@卖了张三买李四:今天上午根据收盘测算，所有股…</a>
+</h2>
+<p>SPAM //@卖了张三买李四:今天上午根据收盘测算，所有股民平均涨回1毛5~</p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3869927486278133" target="freeweibo-mirror">//@陈业文新大都: 想到了挡拖拉机那张照片。//@艳阳天_…</a>
 </h2>
 <p>//@陈业文新大都: 想到了挡拖拉机那张照片。//@艳阳天_陆52://@陆伟民律师: 没有上级的命令，士兵们是不敢开枪的，面对昂山素季，缅甸军政府有点胆怯。 //@张宾峰律师:值得称赞的是持枪的士兵，因为他们还有人性</p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3869698087526462" target="freeweibo-mirror">SPAM 不睡了，High起来！</a>
 </h2>
 <p>SPAM 不睡了，High起来！</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3869680169405601" target="freeweibo-mirror">谁最害怕文革？走资派、贪官、黑社会，卖淫嫖娼者，贩毒者、汉奸…</a>
-</h2>
-<p>谁最害怕文革？走资派、贪官、黑社会，卖淫嫖娼者，贩毒者、汉奸、卖国贼。大内是卧底，皇帝一无所知，军副贪污腐败，军头熟视无睹，一个政治白痴当家，任由汉奸温其久胡作非为。合伙陷害不厚先生。通敌卖国，给中华民族带来了巨大的危害。现在汉奸卖国贼遍布党政军各个部门。爱国者任重而道远。努力吧<br><img src="http://ww1.sinaimg.cn/large/005Awqg6jw1euirqkp9b4j30c807c3yv.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
