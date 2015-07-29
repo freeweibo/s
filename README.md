@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3870018867842741" target="freeweibo-mirror">//@磐石旗厦门: //@赵晓:心痛！警醒！更多祷告！撒旦虽…</a>
+</h2>
+<p>//@磐石旗厦门: //@赵晓:心痛！警醒！更多祷告！撒旦虽猖獗，主仍在掌权！ //@杨凤岗:举起手中的十字架，捍卫你的权利和尊严！ //@尼布楚城北老张:今天，我们都是基督徒，为了捍卫宪法保护的宗教自由的基本人权和尊严！//@只配叫猪://@迩東晨: [赞]<br><br>RE: 拆掉一个，举起成百上千个。<br><img src="http://ww4.sinaimg.cn/large/502310b2jw1eujgq7ca62j20m80ldada.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3870001385954357" target="freeweibo-mirror">//@恒莉小哈:[话筒] //@有冤-难申: //@搏浪沙2…</a>
 </h2>
 <p>//@恒莉小哈:[话筒] //@有冤-难申: //@搏浪沙2010:[话筒]</p>
@@ -90,13 +96,13 @@
 </h2>
 <p>SPAM 回覆@飞龙在天09125:[哼] //@飞龙在天09125:私家太坏了[偷笑]</p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3869924596076903" target="freeweibo-mirror">SPAM 回覆@清溪胡明伟:[右哼哼][左哼哼] //@清溪…</a>
 </h2>
 <p>SPAM 回覆@清溪胡明伟:[右哼哼][左哼哼] //@清溪胡明伟:私家今天怎么都发的是李鹏家庭轶事。难道变天了？</p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3869920104704722" target="freeweibo-mirror">//@郭少坤:求上帝恩待受害的弟兄姊妹！//@SY徐风: 转…</a>
 </h2>
@@ -108,7 +114,7 @@
 </h2>
 <p>SPAM [吐]吃颗大青果药丸压压惊。</p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3869905545841739" target="freeweibo-mirror">沙甸事件的前因后果事实已经很清楚，博主在这仅仅是想博同情吗？…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3869819063923164" target="freeweibo-mirror">SPAM 求中</a>
 </h2>
 <p>SPAM 求中</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3869736443913408" target="freeweibo-mirror">紧急代祷！2015.7.28浙江温州平阳笞湖教会（来自尼西视…</a>
-</h2>
-<p>紧急代祷！2015.7.28浙江温州平阳笞湖教会（来自尼西视野）2015.7.28浙江温州平阳笞湖教会 ，地理位置靠近平阳南雁镇。政府雇佣人员向守护教堂十字架的基督徒发起强攻，砸门扔物，破门而入，暴力殴打现场守护人员。目前造成一位弟兄(名：兰天思)昏迷 与 多人受伤。<br><img src="http://ww3.sinaimg.cn/large/4c28c8c3jw1euiy685dovj20hs0hs0ts.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
