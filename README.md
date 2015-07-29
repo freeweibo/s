@@ -90,7 +90,7 @@
 </h2>
 <p>SPAM 严惩各类逃逸！<br><br>RE: #北京突发#【北京宣武门一辆奥迪连撞多人逃逸】据@法制晚报 ：今晚8点半前后，一辆白色奥迪轿车在宣武门东大街由西向东行驶过程中，连撞多人后逃逸。急救人员表示，事故至少造成6人受伤，包括两名儿童。所幸伤者暂无生命危险。据了解，目前警方正在追缉肇事逃逸车辆。（图：@mibxu）<br><img src="http://ww4.sinaimg.cn/large/78b693efjw1eujzaaq0tuj20dc0hsta1.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3870061331162283" target="freeweibo-mirror">[怒] //@zzpzym200820://@逆风E而行:抓…</a>
 </h2>
