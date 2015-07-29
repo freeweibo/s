@@ -66,7 +66,7 @@
 </h2>
 <p>SPAM 不睡了，High起来！</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3869680169405601" target="freeweibo-mirror">谁最害怕文革？走资派、贪官、黑社会，卖淫嫖娼者，贩毒者、汉奸…</a>
 </h2>
