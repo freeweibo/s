@@ -24,7 +24,7 @@
 </h2>
 <p>陕西吃饭大学不吃干饭，赞一个！[good]//@梅新育: 不评价//@真主钦点仁波切:冷笑。知道陕师大为什么这么紧张ysl宗教活动么？2013年学校就有传闻，化学系本科某籍某教男生偷偷搞爆炸品，所幸实验失败炸伤了自己，没有酿成大祸。贵教能腆颜把自己当成老实可信的人，真是内心强大<br><br>RE: 【赏图：@陕西师范大学 “致新生和家长的信”】前阵子，该大学为干涉学生佩戴头巾而搞得风声鹤唳。现在，录取新生时发信，其中不乏威胁之辞，曲解教育与宗教相分离，不顾宪法第36条，提前干涉公民个人的衣着打扮和宗教行为；相关学生也只是履行自己作为公民的宪法权利，不会也不可能影响整个教育制度。<br><img src="http://ww4.sinaimg.cn/large/005Det23jw1euib6chawoj31180yrwyy.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3869940614438832" target="freeweibo-mirror">SPAM //@卖了张三买李四:今天上午根据收盘测算，所有股…</a>
 </h2>
@@ -80,6 +80,12 @@
 <p>
 	<small> ============== 5小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3869900336603993" target="freeweibo-mirror">【两日大跌 全国股民人均亏损5.4万】7月27日A股市值蒸发…</a>
+</h2>
+<p>【两日大跌 全国股民人均亏损5.4万】7月27日A股市值蒸发了4.2万亿左右，人均亏损约4.6万元。7月28日蒸发了7787.49亿，人均亏损8467.8元。两个都是按照最近的期末投资者数量9196.55万人来计算。这样算下来，两天合计，全国股民人均亏约5.4万。http://t.cn/RL9QT7E<br><img src="http://ww4.sinaimg.cn/large/625ab309jw1eujh0x9mbdj20sg0iz0uy.jpg"></p>
+<p>
+	<small> ============== 6小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3869821194516763" target="freeweibo-mirror">//@芦笛先生:转发微博</a>
 </h2>
 <p>//@芦笛先生:转发微博</p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3869706459282312" target="freeweibo-mirror">今天游沙甸，同行的女伴穿了长裙，在广场玩的伊斯兰教徒的女孩就…</a>
 </h2>
 <p>今天游沙甸，同行的女伴穿了长裙，在广场玩的伊斯兰教徒的女孩就向她吐口水，现场的解说员就世界上就两种人，信真主的和不信真主的，一副种族撕裂的模样。这样的地方就是内乱之源，共产党怎么会让这种地方存在。<br><img src="http://ww1.sinaimg.cn/large/89840b53jw1euiuqwl7btj20qo0ezmzh.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3869698087526462" target="freeweibo-mirror">SPAM 不睡了，High起来！</a>
-</h2>
-<p>SPAM 不睡了，High起来！</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
