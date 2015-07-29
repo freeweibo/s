@@ -24,7 +24,7 @@
 </h2>
 <p>[怒] //@zzpzym200820://@逆风E而行:抓律师、烧十字架，反人雷的本质，一览无遗[怒] //@軍魂-IV:[失望]<br><br>RE: 分享图片<br><img src="http://ww2.sinaimg.cn/large/0068BZO7gw1eudt4jk1gmj30ae0m8myl.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3870057794720313" target="freeweibo-mirror">SPAM 北戴河刚开会，各地事件频发啊！这老逼～</a>
 </h2>
@@ -72,7 +72,7 @@
 </h2>
 <p>//@恒莉小哈:[话筒] //@有冤-难申: //@搏浪沙2010:[话筒]</p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3869996793409277" target="freeweibo-mirror">7月22日，24家国际组织，联名向中国国家主席习近平和公安部…</a>
 </h2>
@@ -96,7 +96,7 @@
 </h2>
 <p>当年叛国武装叛乱，在沙甸成立所谓“伊斯兰共和国”被解放军灭国。去年昆明31人死，141人伤的恐袭事件。暴徒在沙甸逗留，推选头目、训练体能和购买刀具等，由沙甸驱车出发直奔昆明火车站，见人就斩。http://t.cn/RL9RVIs<br><br>RE: 沙甸事件的前因后果事实已经很清楚，博主在这仅仅是想博同情吗？先把古兰经中的毒瘤割掉再说。PS：你这个哈怂怎么删帖了？[鄙视]//@唱红打诬第五季: 穆斯林自诩为良民？猪都笑了！<br><img src="http://ww3.sinaimg.cn/large/dd753ad9jw1eujhm82b4qj20e906vwfq.jpg"></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3869948688645485" target="freeweibo-mirror">陕西吃饭大学不吃干饭，赞一个！[good]//@梅新育: 不…</a>
 </h2>
@@ -108,7 +108,7 @@
 </h2>
 <p>SPAM //@卖了张三买李四:今天上午根据收盘测算，所有股民平均涨回1毛5~</p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3869927486278133" target="freeweibo-mirror">//@陈业文新大都: 想到了挡拖拉机那张照片。//@艳阳天_…</a>
 </h2>
@@ -126,13 +126,13 @@
 </h2>
 <p>SPAM 江、山依旧在，几度曾经红。</p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3869925108117160" target="freeweibo-mirror">想到了挡拖拉机那张照片。//@艳阳天_陆52://@陆伟民律…</a>
 </h2>
 <p>想到了挡拖拉机那张照片。//@艳阳天_陆52://@陆伟民律师: 没有上级的命令，士兵们是不敢开枪的，面对昂山素季，缅甸军政府有点胆怯。 //@张宾峰律师:值得称赞的是持枪的士兵，因为他们还有人性</p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3869924646417974" target="freeweibo-mirror">SPAM 回覆@飞龙在天09125:[哼] //@飞龙在天0…</a>
 </h2>
