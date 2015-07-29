@@ -108,7 +108,7 @@
 </h2>
 <p>//@郭少坤:求上帝恩待受害的弟兄姊妹！//@SY徐风: 转发微博<br><br>RE: 紧急代祷！2015.7.28浙江温州平阳笞湖教会（来自尼西视野）2015.7.28浙江温州平阳笞湖教会 ，地理位置靠近平阳南雁镇。政府雇佣人员向守护教堂十字架的基督徒发起强攻，砸门扔物，破门而入，暴力殴打现场守护人员。目前造成一位弟兄(名：兰天思)昏迷 与 多人受伤。<br><img src="http://ww3.sinaimg.cn/large/4c28c8c3jw1euiy685dovj20hs0hs0ts.jpg"></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3869909299602220" target="freeweibo-mirror">SPAM [吐]吃颗大青果药丸压压惊。</a>
 </h2>
@@ -120,7 +120,7 @@
 </h2>
 <p>沙甸事件的前因后果事实已经很清楚，博主在这仅仅是想博同情吗？先把古兰经中的毒瘤割掉再说。PS：你这个哈怂怎么删帖了？[鄙视]//@唱红打诬第五季: 穆斯林自诩为良民？猪都笑了！<br><img src="http://ww3.sinaimg.cn/large/dd753ad9jw1eujhm82b4qj20e906vwfq.jpg"></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3869900336603993" target="freeweibo-mirror">【两日大跌 全国股民人均亏损5.4万】7月27日A股市值蒸发…</a>
 </h2>
