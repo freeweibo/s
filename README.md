@@ -24,7 +24,7 @@
 </h2>
 <p>//@袁裕来律师:老段越来越激烈了，要克制。<br><br>RE: 军队这篇针对郭伯雄的稿子颇有朝鲜官方针对张成泽的味道，不知道谁效仿谁？作为一个律师，我只能书生气的希望郭享有刑诉法规定的权利，公平公正接受审判。<br><img src="http://ww4.sinaimg.cn/large/4c148083jw1eul7m8gyn5j20p018gwnm.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3870454856925404" target="freeweibo-mirror">SPAM 不会又是保护性销号吧。过一阵又还魂了。。。渣浪这套…</a>
 </h2>
@@ -102,7 +102,7 @@
 </h2>
 <p>一个前政治局常委、一个前中办主任、两个前军委副主席，胡总身边坏人太多了吧[吃惊]</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3870439421576096" target="freeweibo-mirror">今天满屏都是郭伯雄，本博就有点奇怪，郭伯雄在不在位、开除不开…</a>
 </h2>
