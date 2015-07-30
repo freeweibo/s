@@ -24,7 +24,7 @@
 </h2>
 <p>SPAM 一个教女人穿衣撘配的徽博，速度关注~~</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3870298279945648" target="freeweibo-mirror">[哈哈][哈哈]//@李方毅:[哈哈]//@马小予:心念不要…</a>
 </h2>
