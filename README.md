@@ -20,6 +20,18 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3870369766782931" target="freeweibo-mirror">从1951年至今印度人口从3.6亿剧增到13亿增加了近4倍，…</a>
+</h2>
+<p>从1951年至今印度人口从3.6亿剧增到13亿增加了近4倍，1991年的普查数据表示，印度人口男女比为1000：927：印度8个邦贫困人口多于非洲26个最贫穷国家，总和人数众多达4.21亿，有将近42%的五岁以下儿童体重不足。印度执行过比中国严厉的计划生育后失败，对人口膨胀束手无策</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3870368353631365" target="freeweibo-mirror">聯合國今天表示，印度可望在10年內超越中國大陸，成為全球人口…</a>
+</h2>
+<p>聯合國今天表示，印度可望在10年內超越中國大陸，成為全球人口最多的國家，比原先預估早了6年。 聯合國預測，快速成長的非洲國家奈及利亞也將在2050年超越美國，成為全球人口第3多的國家。聯合國人口部門主任威爾摩斯（John Wilmoth）表示，最貧困國家的人口集中成長，會讓消滅貧窮、對抗飢餓和擴大學</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3870358882660138" target="freeweibo-mirror">//@蓝星虫No1:对红色家庭功劳大于天。 //@河东生:给…</a>
 </h2>
 <p>//@蓝星虫No1:对红色家庭功劳大于天。 //@河东生:给继任者一根滑溜的权杖。这就是耄的功劳，所以他们都维护耄，歌颂耄，神话耄。 //@冰封侠回归:转发微博</p>
@@ -54,7 +66,7 @@
 </h2>
 <p>//@老人河:书记入佛，和尚入俗。<br><br>RE: 刚看到一句话：李小琳书记信了佛，然后释永信方丈仍然坚信党……lol 有意思。<br><img src="http://ww3.sinaimg.cn/large/749bcf09gw1euk2y4fjojj20y80j2n3o.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3870228696115144" target="freeweibo-mirror">SPAM //@II米线II:你怎么知道他们不是一伙的呢？/…</a>
 </h2>
@@ -125,18 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3870096558756552" target="freeweibo-mirror">黄七反整个一个太监，这么被太监集团推崇，并不奇怪。</a>
 </h2>
 <p>黄七反整个一个太监，这么被太监集团推崇，并不奇怪。</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3870091604970403" target="freeweibo-mirror">SPAM 真够傻逼的树敌还少吗//@孤飘沙鸥:当一个人选择犯…</a>
-</h2>
-<p>SPAM 真够傻逼的树敌还少吗//@孤飘沙鸥:当一个人选择犯罪为获利手段时, 你很难阻止他//@njcao: 拆，你拆的了吗！//@孤飘沙鸥://@怜花儿人: 越多越好//@Peter_肖广松:稻草又多了一根<br><br>RE: 滿城盡帶十字架……浙江各地教會教徒在行動…….<br><img src="http://ww3.sinaimg.cn/large/00682IdLgw1eujvrwh3bdj30c8096q43.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3870091290887425" target="freeweibo-mirror">刚看到一句话：李小琳书记信了佛，然后释永信方丈仍然坚信党………</a>
-</h2>
-<p>刚看到一句话：李小琳书记信了佛，然后释永信方丈仍然坚信党……lol 有意思。<br><img src="http://ww3.sinaimg.cn/large/749bcf09gw1euk2y4fjojj20y80j2n3o.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
