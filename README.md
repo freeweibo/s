@@ -42,7 +42,7 @@
 </h2>
 <p>SPAM 驱逐蒋匪，复兴中华！//@侠骨柔情的杨华:醒得了吗？//@如皋老猫:转发只为提醒网信办，你们该醒醒了！！<br><br>RE: 打死都估唔到，間諜就在身邊[衰]<br><img src="http://ww2.sinaimg.cn/large/965a9cddjw1eujb18kwb8j20b90k0761.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3870191873982814" target="freeweibo-mirror">SPAM 发表了一篇转载博文《[转载]孔子学院在海外竟成了过…</a>
 </h2>
