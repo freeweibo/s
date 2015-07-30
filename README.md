@@ -24,7 +24,7 @@
 </h2>
 <p>《圣经》云：「只愿公道如水常流，正义像川流不息的江河！」//@cnmgf: //@肖芳华律师: //@杨凤岗: 转发微博<br><br>RE: 我们期待更多教会声音，捍卫十字架及信仰自由！ http://t.cn/RLNK1gW<br><img src="http://ww4.sinaimg.cn/large/87497adegw1eukyjgnwvrj20cx08lq4i.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3870369766782931" target="freeweibo-mirror">从1951年至今印度人口从3.6亿剧增到13亿增加了近4倍，…</a>
 </h2>
