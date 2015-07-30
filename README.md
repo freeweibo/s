@@ -60,7 +60,7 @@
 </h2>
 <p>SPAM 薄粉爱屋及乌的缘故吧？//@公平正义立国之本: //@吴稼祥: 欢迎小太监来拍砖。<br><br>RE: 黄七反整个一个太监，这么被太监集团推崇，并不奇怪。</p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3870099398701697" target="freeweibo-mirror">SPAM 欢迎小太监来拍砖。</a>
 </h2>
@@ -102,7 +102,7 @@
 </h2>
 <p>#北京突发#【北京：宣武门奥迪连撞多人逃逸】据网友@mibxu ，今晚8点半前后，一辆白色小轿车从宣武门到和平门连撞至少8人。<br><img src="http://ww1.sinaimg.cn/large/654ced53jw1euk0kjvb08j20c8096jrw.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3870063347841494" target="freeweibo-mirror">SPAM 严惩各类逃逸！</a>
 </h2>
