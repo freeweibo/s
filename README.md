@@ -90,7 +90,7 @@
 </h2>
 <p>黄七反整个一个太监，这么被太监集团推崇，并不奇怪。</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3870091604970403" target="freeweibo-mirror">SPAM 真够傻逼的树敌还少吗//@孤飘沙鸥:当一个人选择犯…</a>
 </h2>
