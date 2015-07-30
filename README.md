@@ -66,7 +66,7 @@
 </h2>
 <p>醉蟹！/@刘力博士: //@Chocolate鱼马:河蟹盛世//@北村: 相映成趣 //@周铁东本人:党员信佛，佛徒信党，好一幅和谐盛世图。//@围脖摘要:转发微博<br><br>RE: 刚看到一句话：李小琳书记信了佛，然后释永信方丈仍然坚信党……lol 有意思。<br><img src="http://ww3.sinaimg.cn/large/749bcf09gw1euk2y4fjojj20y80j2n3o.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3870271843053377" target="freeweibo-mirror">//@老人河:书记入佛，和尚入俗。</a>
 </h2>
