@@ -24,7 +24,7 @@
 </h2>
 <p>SPAM //@II米线II:你怎么知道他们不是一伙的呢？//@如皋老猫:转发只为提醒网信办，你们该醒醒了！！<br><br>RE: 打死都估唔到，間諜就在身邊[衰]<br><img src="http://ww2.sinaimg.cn/large/965a9cddjw1eujb18kwb8j20b90k0761.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3870205208394450" target="freeweibo-mirror">//@九床提臀内衣卫:畜生一样的体制 //@真名王亚龙:</a>
 </h2>
@@ -108,7 +108,7 @@
 </h2>
 <p>#北京突发#【北京：宣武门奥迪连撞多人逃逸】据网友@mibxu ，今晚8点半前后，一辆白色小轿车从宣武门到和平门连撞至少8人。<br><img src="http://ww1.sinaimg.cn/large/654ced53jw1euk0kjvb08j20c8096jrw.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3870063347841494" target="freeweibo-mirror">SPAM 严惩各类逃逸！</a>
 </h2>
