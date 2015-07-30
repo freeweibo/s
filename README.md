@@ -72,7 +72,7 @@
 </h2>
 <p>SPAM //@lawyerzdy:另一个是？<br><br>RE: 全世界目前只有二个组织会去拆和烧十字架。只有两个，ISIS占了一个。<br><img src="http://ww1.sinaimg.cn/large/749bcf09jw1eujro6619hj20gj09b761.jpg"></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3870096558756552" target="freeweibo-mirror">黄七反整个一个太监，这么被太监集团推崇，并不奇怪。</a>
 </h2>
@@ -120,13 +120,13 @@
 </h2>
 <p>SPAM  //@北京人不知道的北京事儿:和平门全聚德前及宣武门地铁东南口已拉起警戒线！//@法制晚报：一辆白色奥迪在宣武门东大街西向东方向疯狂行驶！连撞多人后逃逸！！现场急救人员称，事故至少造成6人受伤，包括两名儿童。目前警方正在追缉肇事逃逸车辆！<br><br>RE: #北京突发#【[话筒]】@mibxu：一辆白色小轿车从宣武门到和平门连撞至少8人（至少两个儿童）！！！<br><img src="http://ww1.sinaimg.cn/large/63136032jw1eujyaqbgcyj20dc0hswgl.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3870059359215422" target="freeweibo-mirror">#北京突发#【北京宣武门一辆奥迪连撞多人逃逸】据@法制晚报 …</a>
 </h2>
 <p>#北京突发#【北京宣武门一辆奥迪连撞多人逃逸】据@法制晚报 ：今晚8点半前后，一辆白色奥迪轿车在宣武门东大街由西向东行驶过程中，连撞多人后逃逸。急救人员表示，事故至少造成6人受伤，包括两名儿童。所幸伤者暂无生命危险。据了解，目前警方正在追缉肇事逃逸车辆。（图：@mibxu）<br><img src="http://ww4.sinaimg.cn/large/78b693efjw1eujzaaq0tuj20dc0hsta1.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3870057794720313" target="freeweibo-mirror">SPAM 北戴河刚开会，各地事件频发啊！这老逼～</a>
 </h2>
