@@ -30,7 +30,7 @@
 </h2>
 <p>[哈哈][哈哈]//@李方毅:[哈哈]//@马小予:心念不要太多，欲望也别太强 //@丁香橄榄茶:哇考 //@马小予:[生病]//@LifeTime: //@喷嚏网铂程:转发微博<br><br>RE: 刚看到一句话：李小琳书记信了佛，然后释永信方丈仍然坚信党……lol 有意思。<br><img src="http://ww3.sinaimg.cn/large/749bcf09gw1euk2y4fjojj20y80j2n3o.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3870275236378556" target="freeweibo-mirror">醉蟹！/@刘力博士: //@Chocolate鱼马:河蟹盛世…</a>
 </h2>
@@ -72,7 +72,7 @@
 </h2>
 <p>SPAM 发表了一篇转载博文《[转载]孔子学院在海外竟成了过街老鼠》http://t.cn/RLCuqUP<br><img src="http://ww3.sinaimg.cn/large/5408ee85jw1eukeiaxnfsj20ha0enwj6.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3870101898025460" target="freeweibo-mirror">//@曹操大叔:一个人被出卖而选择谅解，那是她灵魂的选择，而…</a>
 </h2>
