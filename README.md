@@ -54,7 +54,7 @@
 </h2>
 <p>SPAM [哈哈] //@演员孙海英: //@迟夙生律师:[哈哈]<br><br>RE: 千万不要小看你们身后的小弟，他有可能主宰你们的性命。<br><img src="http://ww4.sinaimg.cn/large/868ab95bjw1eul8vo8d4gj20cn07fjs6.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3870460628332357" target="freeweibo-mirror">SPAM  //@迟夙生律师:[哈哈]</a>
 </h2>
@@ -138,7 +138,7 @@
 </h2>
 <p>如果薄熙来、徐才厚、郭伯雄是大老虎，那么共产党才是最大的老虎。</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p>
 <table>
     <tr>
