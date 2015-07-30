@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3870437274473532" target="freeweibo-mirror">//@行者老陈: //@发明人沈保民:[嘻嘻]</a>
+</h2>
+<p>//@行者老陈: //@发明人沈保民:[嘻嘻]<br><br>RE: 這支人民的軍隊，政令系統出了徐才厚；軍令系統出了郭伯雄；聯勤系統出了谷俊山；過去這兩屆軍委主席是干什麼吃的！這麼個腐敗法，軍隊還是人民的嗎？還打得了仗嗎？真為共和國抹一把冷汗⋯⋯幸好這些年只抗震救災，沒真打仗！習整軍確有必要！</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3870394722909928" target="freeweibo-mirror">《圣经》云：「只愿公道如水常流，正义像川流不息的江河！」//…</a>
 </h2>
 <p>《圣经》云：「只愿公道如水常流，正义像川流不息的江河！」//@cnmgf: //@肖芳华律师: //@杨凤岗: 转发微博<br><br>RE: 我们期待更多教会声音，捍卫十字架及信仰自由！ http://t.cn/RLNK1gW<br><img src="http://ww4.sinaimg.cn/large/87497adegw1eukyjgnwvrj20cx08lq4i.jpg"></p>
@@ -66,7 +72,7 @@
 </h2>
 <p>//@高伟宁的围脖: //@山高路远N://@frank7383: //@见雨听风N:[疑问]//@北大农夫1://@漫随流云:耄对这个国家对这个民族不仅没有一丝一毫功劳，反倒是个罪魁祸首。//@甄卓wb:政治需要啊！//@禅茶意:扬名千古兮？遗臭万年兮？未来的历史自有公论！</p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3870298279945648" target="freeweibo-mirror">[哈哈][哈哈]//@李方毅:[哈哈]//@马小予:心念不要…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3870101142576509" target="freeweibo-mirror">回复@Parker好纠结:胡说八道，明明</a>
 </h2>
 <p>回复@Parker好纠结:胡说八道，明明</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3870099938943701" target="freeweibo-mirror">SPAM 薄粉爱屋及乌的缘故吧？//@公平正义立国之本: /…</a>
-</h2>
-<p>SPAM 薄粉爱屋及乌的缘故吧？//@公平正义立国之本: //@吴稼祥: 欢迎小太监来拍砖。<br><br>RE: 黄七反整个一个太监，这么被太监集团推崇，并不奇怪。</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
