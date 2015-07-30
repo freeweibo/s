@@ -24,7 +24,7 @@
 </h2>
 <p>SPAM //@II米线II:你怎么知道他们不是一伙的呢？//@如皋老猫:转发只为提醒网信办，你们该醒醒了！！<br><br>RE: 打死都估唔到，間諜就在身邊[衰]<br><img src="http://ww2.sinaimg.cn/large/965a9cddjw1eujb18kwb8j20b90k0761.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3870205208394450" target="freeweibo-mirror">//@九床提臀内衣卫:畜生一样的体制 //@真名王亚龙:</a>
 </h2>
@@ -72,7 +72,7 @@
 </h2>
 <p>SPAM 薄粉爱屋及乌的缘故吧？//@公平正义立国之本: //@吴稼祥: 欢迎小太监来拍砖。<br><br>RE: 黄七反整个一个太监，这么被太监集团推崇，并不奇怪。</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3870099398701697" target="freeweibo-mirror">SPAM 欢迎小太监来拍砖。</a>
 </h2>
