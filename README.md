@@ -90,13 +90,13 @@
 </h2>
 <p>是啊，几百亿赃款去哪儿了？//@开心的雪-: 几百亿赃款都没看到一毛[doge]<br><br>RE: 今天满屏都是郭伯雄，本博就有点奇怪，郭伯雄在不在位、开除不开除党籍真的和你我关系那么密切嘛？只要官员财产公开等约束制度不建立，一个郭伯雄倒下去，十个周伯雄、张伯雄会前赴后继。<br><img src="http://ww3.sinaimg.cn/large/9154fba0gw1eul6xchantj20dw08xwf3.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3870442173104083" target="freeweibo-mirror">【这个要求不算过分！】两名副主席都被拿掉了，主席至少也应该出…</a>
 </h2>
 <p>【这个要求不算过分！】两名副主席都被拿掉了，主席至少也应该出来道个歉了吧……<br><img src="http://ww1.sinaimg.cn/large/562f4083gw1eul78bl519j20cc078glt.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3870441514813813" target="freeweibo-mirror">一个前政治局常委、一个前中办主任、两个前军委副主席，胡总身边…</a>
 </h2>
