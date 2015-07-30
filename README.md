@@ -42,13 +42,13 @@
 </h2>
 <p>如果薄熙来、徐才厚、郭伯雄是大老虎，那么共产党才是最大的老虎。</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3870447768305480" target="freeweibo-mirror">SPAM 哦，看这条博，把博主归入奇葩一类也就不算过分了！[…</a>
 </h2>
 <p>SPAM 哦，看这条博，把博主归入奇葩一类也就不算过分了！[江南style]//@麻子王四: 前任主席啊。 //@艳阳天_陆52://@凤凤是个好妈妈: 谁提拔他俩的？<br><br>RE: 【这个要求不算过分！】两名副主席都被拿掉了，主席至少也应该出来道个歉了吧……<br><img src="http://ww1.sinaimg.cn/large/562f4083gw1eul78bl519j20cc078glt.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3870445642032645" target="freeweibo-mirror">//@尘兮2016:你们这些人心怀叵测，胡主席在龙潭虎穴潜伏…</a>
 </h2>
@@ -114,7 +114,7 @@
 </h2>
 <p>【时局微论214：4M争夺】郭与徐，两位前军头，退休也不能免于被追罚，不仅仅是腐败那么简单。可见18大前后，中国到了何等危亡时刻。在当代，谁掌控了4个M【Military（M1）、Media（M2）、Money（M3）、Mind（M4）】，谁就可以发动枪战、钱战、舆论战和心脑战。沟党最先失去M1，当前正在发动M3之战。</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3870394722909928" target="freeweibo-mirror">《圣经》云：「只愿公道如水常流，正义像川流不息的江河！」//…</a>
 </h2>
