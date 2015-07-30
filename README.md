@@ -126,19 +126,19 @@
 </h2>
 <p>//@林滤山:谁？谁面瘫了？//@兰花思维: 都已经面瘫了，怎么道歉？<br><br>RE: 【这个要求不算过分！】两名副主席都被拿掉了，主席至少也应该出来道个歉了吧……<br><img src="http://ww1.sinaimg.cn/large/562f4083gw1eul78bl519j20cc078glt.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3870446229333108" target="freeweibo-mirror">军队这篇针对郭伯雄的稿子颇有朝鲜官方针对张成泽的味道，不知道…</a>
 </h2>
 <p>军队这篇针对郭伯雄的稿子颇有朝鲜官方针对张成泽的味道，不知道谁效仿谁？作为一个律师，我只能书生气的希望郭享有刑诉法规定的权利，公平公正接受审判。<br><img src="http://ww4.sinaimg.cn/large/4c148083jw1eul7m8gyn5j20p018gwnm.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3870445642032645" target="freeweibo-mirror">//@尘兮2016:你们这些人心怀叵测，胡主席在龙潭虎穴潜伏…</a>
 </h2>
 <p>//@尘兮2016:你们这些人心怀叵测，胡主席在龙潭虎穴潜伏十年，容易吗？[哈哈] //@gtchenwei2: //@倒运鬼: 反副不反正<br><br>RE: 【这个要求不算过分！】两名副主席都被拿掉了，主席至少也应该出来道个歉了吧……<br><img src="http://ww1.sinaimg.cn/large/562f4083gw1eul78bl519j20cc078glt.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p>
 <table>
     <tr>
