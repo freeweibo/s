@@ -20,15 +20,63 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3870465908818084" target="freeweibo-mirror">SPAM //@演员孙海英: //@迟夙生律师:[哈哈]</a>
+</h2>
+<p>SPAM //@演员孙海英: //@迟夙生律师:[哈哈]<br><br>RE: 千万不要小看你们身后的小弟，他有可能主宰你们的性命。<br><img src="http://ww4.sinaimg.cn/large/868ab95bjw1eul8vo8d4gj20cn07fjs6.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3870463505699280" target="freeweibo-mirror">SPAM  //@龙旺山庄里的樱桃树://@光老顽童: [哈…</a>
+</h2>
+<p>SPAM  //@龙旺山庄里的樱桃树://@光老顽童: [哈哈] //@上海刘文浩:[嘻嘻] //@迟夙生律师:[哈哈]<br><br>RE: 千万不要小看你们身后的小弟，他有可能主宰你们的性命。<br><img src="http://ww4.sinaimg.cn/large/868ab95bjw1eul8vo8d4gj20cn07fjs6.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3870460628332357" target="freeweibo-mirror">SPAM  //@迟夙生律师:[哈哈]</a>
+</h2>
+<p>SPAM  //@迟夙生律师:[哈哈]<br><br>RE: 千万不要小看你们身后的小弟，他有可能主宰你们的性命。<br><img src="http://ww4.sinaimg.cn/large/868ab95bjw1eul8vo8d4gj20cn07fjs6.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3870460120416832" target="freeweibo-mirror">SPAM //@佬_牛: [喵喵][喵喵][喵喵]//@龙石…</a>
+</h2>
+<p>SPAM //@佬_牛: [喵喵][喵喵][喵喵]//@龙石石: [doge][doge][doge][doge][doge][doge][doge][doge][doge][doge][doge][doge][doge][doge][doge][doge][doge][doge][doge][doge][doge]//@迟夙生律师: [哈哈]<br><br>RE: 千万不要小看你们身后的小弟，他有可能主宰你们的性命。<br><img src="http://ww4.sinaimg.cn/large/868ab95bjw1eul8vo8d4gj20cn07fjs6.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3870457415395241" target="freeweibo-mirror">//@wyzxhp7:[good]//@渔夫转播: 转发微博</a>
+</h2>
+<p>//@wyzxhp7:[good]//@渔夫转播: 转发微博<br><br>RE: 前几天推出释永信是为了今天的郭伯雄，我党伟光正啊！[哈哈][哈哈][哈哈]<br><img src="http://ww2.sinaimg.cn/large/868ab95bjw1eul83yf0ejj20hs0butad.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3870457276679852" target="freeweibo-mirror">千万不要小看你们身后的小弟，他有可能主宰你们的性命。</a>
+</h2>
+<p>千万不要小看你们身后的小弟，他有可能主宰你们的性命。<br><img src="http://ww4.sinaimg.cn/large/868ab95bjw1eul8vo8d4gj20cn07fjs6.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3870456886681431" target="freeweibo-mirror">//@袁裕来律师:老段越来越激烈了，要克制。</a>
 </h2>
 <p>//@袁裕来律师:老段越来越激烈了，要克制。<br><br>RE: 军队这篇针对郭伯雄的稿子颇有朝鲜官方针对张成泽的味道，不知道谁效仿谁？作为一个律师，我只能书生气的希望郭享有刑诉法规定的权利，公平公正接受审判。<br><img src="http://ww4.sinaimg.cn/large/4c148083jw1eul7m8gyn5j20p018gwnm.jpg"></p>
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3870456593447188" target="freeweibo-mirror">老段越来越激烈了，要克制。</a>
+</h2>
+<p>老段越来越激烈了，要克制。<br><br>RE: 军队这篇针对郭伯雄的稿子颇有朝鲜官方针对张成泽的味道，不知道谁效仿谁？作为一个律师，我只能书生气的希望郭享有刑诉法规定的权利，公平公正接受审判。<br><img src="http://ww4.sinaimg.cn/large/4c148083jw1eul7m8gyn5j20p018gwnm.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3870454856925404" target="freeweibo-mirror">SPAM 不会又是保护性销号吧。过一阵又还魂了。。。渣浪这套…</a>
 </h2>
 <p>SPAM 不会又是保护性销号吧。过一阵又还魂了。。。渣浪这套玩的很熟练。。//@军工兔代号007:坟头长草！有事烧纸！</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3870453560991156" target="freeweibo-mirror">//@公民苏克://@渔夫转播:转发微博</a>
+</h2>
+<p>//@公民苏克://@渔夫转播:转发微博<br><br>RE: 前几天推出释永信是为了今天的郭伯雄，我党伟光正啊！[哈哈][哈哈][哈哈]<br><img src="http://ww2.sinaimg.cn/large/868ab95bjw1eul83yf0ejj20hs0butad.jpg"></p>
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
@@ -41,6 +89,12 @@
 	<a href="https://freeweibo.com/weibo/3870450905846402" target="freeweibo-mirror">//@林滤山:真是堵得慌！//@春煖花開: 我并不欢欣鼓舞。…</a>
 </h2>
 <p>//@林滤山:真是堵得慌！//@春煖花開: 我并不欢欣鼓舞。这种人都是怎么当上党政军高级统帅的？这么多年来，他们把我们的国家、社会、军队糟蹋的一塌糊涂，如今，都老快老死了，霍霍了一辈子了，有些损失是用任何代价都无法挽回的，直到临了才被抓，没被捉出来的还有多少？为何会如此？堵得慌！<br><br>RE: 【这个要求不算过分！】两名副主席都被拿掉了，主席至少也应该出来道个歉了吧……<br><img src="http://ww1.sinaimg.cn/large/562f4083gw1eul78bl519j20cc078glt.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3870449903356215" target="freeweibo-mirror">前几天推出释永信是为了今天的郭伯雄，我党伟光正啊！[哈哈][…</a>
+</h2>
+<p>前几天推出释永信是为了今天的郭伯雄，我党伟光正啊！[哈哈][哈哈][哈哈]<br><img src="http://ww2.sinaimg.cn/large/868ab95bjw1eul83yf0ejj20hs0butad.jpg"></p>
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
@@ -85,60 +139,6 @@
 <p>//@尘兮2016:你们这些人心怀叵测，胡主席在龙潭虎穴潜伏十年，容易吗？[哈哈] //@gtchenwei2: //@倒运鬼: 反副不反正<br><br>RE: 【这个要求不算过分！】两名副主席都被拿掉了，主席至少也应该出来道个歉了吧……<br><img src="http://ww1.sinaimg.cn/large/562f4083gw1eul78bl519j20cc078glt.jpg"></p>
 <p>
 	<small> ============== 2小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3870442869309922" target="freeweibo-mirror">是啊，几百亿赃款去哪儿了？//@开心的雪-: 几百亿赃款都没…</a>
-</h2>
-<p>是啊，几百亿赃款去哪儿了？//@开心的雪-: 几百亿赃款都没看到一毛[doge]<br><br>RE: 今天满屏都是郭伯雄，本博就有点奇怪，郭伯雄在不在位、开除不开除党籍真的和你我关系那么密切嘛？只要官员财产公开等约束制度不建立，一个郭伯雄倒下去，十个周伯雄、张伯雄会前赴后继。<br><img src="http://ww3.sinaimg.cn/large/9154fba0gw1eul6xchantj20dw08xwf3.jpg"></p>
-<p>
-	<small> ============== 3小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3870442173104083" target="freeweibo-mirror">【这个要求不算过分！】两名副主席都被拿掉了，主席至少也应该出…</a>
-</h2>
-<p>【这个要求不算过分！】两名副主席都被拿掉了，主席至少也应该出来道个歉了吧……<br><img src="http://ww1.sinaimg.cn/large/562f4083gw1eul78bl519j20cc078glt.jpg"></p>
-<p>
-	<small> ============== 3小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3870441514813813" target="freeweibo-mirror">一个前政治局常委、一个前中办主任、两个前军委副主席，胡总身边…</a>
-</h2>
-<p>一个前政治局常委、一个前中办主任、两个前军委副主席，胡总身边坏人太多了吧[吃惊]</p>
-<p>
-	<small> ============== 3小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3870439421576096" target="freeweibo-mirror">今天满屏都是郭伯雄，本博就有点奇怪，郭伯雄在不在位、开除不开…</a>
-</h2>
-<p>今天满屏都是郭伯雄，本博就有点奇怪，郭伯雄在不在位、开除不开除党籍真的和你我关系那么密切嘛？只要官员财产公开等约束制度不建立，一个郭伯雄倒下去，十个周伯雄、张伯雄会前赴后继。<br><img src="http://ww3.sinaimg.cn/large/9154fba0gw1eul6xchantj20dw08xwf3.jpg"></p>
-<p>
-	<small> ============== 3小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3870437274473532" target="freeweibo-mirror">//@行者老陈: //@发明人沈保民:[嘻嘻]</a>
-</h2>
-<p>//@行者老陈: //@发明人沈保民:[嘻嘻]<br><br>RE: 這支人民的軍隊，政令系統出了徐才厚；軍令系統出了郭伯雄；聯勤系統出了谷俊山；過去這兩屆軍委主席是干什麼吃的！這麼個腐敗法，軍隊還是人民的嗎？還打得了仗嗎？真為共和國抹一把冷汗⋯⋯幸好這些年只抗震救災，沒真打仗！習整軍確有必要！</p>
-<p>
-	<small> ============== 3小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3870436498527354" target="freeweibo-mirror">汶川地震时，温为军队不理他调度救灾大发脾气呢。//@韩江钓叟…</a>
-</h2>
-<p>汶川地震时，温为军队不理他调度救灾大发脾气呢。//@韩江钓叟7世: 【记得12年，两个军头突然有一种新提法：要确保军队听从中央军委、胡主席指挥】//@韩江钓叟7世:转发微博<br><br>RE: 【时局微论214：4M争夺】郭与徐，两位前军头，退休也不能免于被追罚，不仅仅是腐败那么简单。可见18大前后，中国到了何等危亡时刻。在当代，谁掌控了4个M【Military（M1）、Media（M2）、Money（M3）、Mind（M4）】，谁就可以发动枪战、钱战、舆论战和心脑战。沟党最先失去M1，当前正在发动M3之战。</p>
-<p>
-	<small> ============== 3小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3870433826786428" target="freeweibo-mirror">难道上任没有责任？？？？！！！！！</a>
-</h2>
-<p>难道上任没有责任？？？？！！！！！<br><br>RE: 這支人民的軍隊，政令系統出了徐才厚；軍令系統出了郭伯雄；聯勤系統出了谷俊山；過去這兩屆軍委主席是干什麼吃的！這麼個腐敗法，軍隊還是人民的嗎？還打得了仗嗎？真為共和國抹一把冷汗⋯⋯幸好這些年只抗震救災，沒真打仗！習整軍確有必要！</p>
-<p>
-	<small> ============== 3小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3870433738647524" target="freeweibo-mirror">//@IYALAN: 转发微博</a>
-</h2>
-<p>//@IYALAN: 转发微博<br><br>RE: 這支人民的軍隊，政令系統出了徐才厚；軍令系統出了郭伯雄；聯勤系統出了谷俊山；過去這兩屆軍委主席是干什麼吃的！這麼個腐敗法，軍隊還是人民的嗎？還打得了仗嗎？真為共和國抹一把冷汗⋯⋯幸好這些年只抗震救災，沒真打仗！習整軍確有必要！</p>
-<p>
-	<small> ============== 3小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3870433331791045" target="freeweibo-mirror">這支人民的軍隊，政令系統出了徐才厚；軍令系統出了郭伯雄；聯勤…</a>
-</h2>
-<p>這支人民的軍隊，政令系統出了徐才厚；軍令系統出了郭伯雄；聯勤系統出了谷俊山；過去這兩屆軍委主席是干什麼吃的！這麼個腐敗法，軍隊還是人民的嗎？還打得了仗嗎？真為共和國抹一把冷汗⋯⋯幸好這些年只抗震救災，沒真打仗！習整軍確有必要！</p>
-<p>
-	<small> ============== 3小时前</small>
 </p>
 <table>
     <tr>
