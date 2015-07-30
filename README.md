@@ -20,6 +20,18 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3870442869309922" target="freeweibo-mirror">是啊，几百亿赃款去哪儿了？//@开心的雪-: 几百亿赃款都没…</a>
+</h2>
+<p>是啊，几百亿赃款去哪儿了？//@开心的雪-: 几百亿赃款都没看到一毛[doge]<br><br>RE: 今天满屏都是郭伯雄，本博就有点奇怪，郭伯雄在不在位、开除不开除党籍真的和你我关系那么密切嘛？只要官员财产公开等约束制度不建立，一个郭伯雄倒下去，十个周伯雄、张伯雄会前赴后继。<br><img src="http://ww3.sinaimg.cn/large/9154fba0gw1eul6xchantj20dw08xwf3.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3870441514813813" target="freeweibo-mirror">一个前政治局常委、一个前中办主任、两个前军委副主席，胡总身边…</a>
+</h2>
+<p>一个前政治局常委、一个前中办主任、两个前军委副主席，胡总身边坏人太多了吧[吃惊]</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3870437274473532" target="freeweibo-mirror">//@行者老陈: //@发明人沈保民:[嘻嘻]</a>
 </h2>
 <p>//@行者老陈: //@发明人沈保民:[嘻嘻]<br><br>RE: 這支人民的軍隊，政令系統出了徐才厚；軍令系統出了郭伯雄；聯勤系統出了谷俊山；過去這兩屆軍委主席是干什麼吃的！這麼個腐敗法，軍隊還是人民的嗎？還打得了仗嗎？真為共和國抹一把冷汗⋯⋯幸好這些年只抗震救災，沒真打仗！習整軍確有必要！</p>
@@ -90,7 +102,7 @@
 </h2>
 <p>//@蓝星虫No1:对红色家庭功劳大于天。 //@河东生:给继任者一根滑溜的权杖。这就是耄的功劳，所以他们都维护耄，歌颂耄，神话耄。 //@冰封侠回归:转发微博</p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3870339882967150" target="freeweibo-mirror">SPAM 一个教女人穿衣撘配的徽博，速度关注~~</a>
 </h2>
@@ -125,18 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3870228696115144" target="freeweibo-mirror">SPAM //@II米线II:你怎么知道他们不是一伙的呢？/…</a>
 </h2>
 <p>SPAM //@II米线II:你怎么知道他们不是一伙的呢？//@如皋老猫:转发只为提醒网信办，你们该醒醒了！！<br><br>RE: 打死都估唔到，間諜就在身邊[衰]<br><img src="http://ww2.sinaimg.cn/large/965a9cddjw1eujb18kwb8j20b90k0761.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3870205208394450" target="freeweibo-mirror">//@九床提臀内衣卫:畜生一样的体制 //@真名王亚龙:</a>
-</h2>
-<p>//@九床提臀内衣卫:畜生一样的体制 //@真名王亚龙:</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3870202653806103" target="freeweibo-mirror">//@简直:[哈哈] //@傅峙峰WSJ://@chuant…</a>
-</h2>
-<p>//@简直:[哈哈] //@傅峙峰WSJ://@chuant2010: //@学经济家:你国hard模式 之 交社保的用途 //@小野猪君:气炸了//@棕熊德鲁伊://@菩提本無薯:感動兲朝！//@炼金术士gewesen: 正能量！ //@d1018://@国际时事军事评论员吴戈: //@石金领还在说:……………………败了！想象力在墙国完全不够用！<br><br>RE: 厦门97岁老人与儿媳相依为命，为补贴家用，老人上街摆摊。当街道社区知道97岁老人摆摊后，居然果断地把老人家原来的320元低保降为120元，说以此作为老人摆摊挣钱的动力。报纸还称之为“坚强奶奶”——真TM没人性不要脸的政府，事事都不失党性的罪恶德行！<br><img src="http://ww4.sinaimg.cn/large/006b4YFngw1eujon9ei04j30cs0fowg7.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
