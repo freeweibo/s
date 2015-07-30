@@ -38,6 +38,12 @@
 <p>
 	<small> ============== 4小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3870366311052949" target="freeweibo-mirror">我们期待更多教会声音，捍卫十字架及信仰自由！ http://…</a>
+</h2>
+<p>我们期待更多教会声音，捍卫十字架及信仰自由！ http://t.cn/RLNK1gW<br><img src="http://ww4.sinaimg.cn/large/87497adegw1eukyjgnwvrj20cx08lq4i.jpg"></p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3870360761855283" target="freeweibo-mirror">北京首都机场9月3日上午关闭：近期要飞北京的小伙伴请留意，9…</a>
 </h2>
 <p>北京首都机场9月3日上午关闭：近期要飞北京的小伙伴请留意，9月3日09:30-12:30，首都机场暂停所有航班运行。 6月9日华北空管局召开了关于《纪念反法西斯战争胜利70周年阅兵活动航行管制方案》宣讲... http://t.cn/RLNoSZc<br><img src="http://ww1.sinaimg.cn/large/5480598djw1eukxwl9foej20ci096gmo.jpg"></p>
@@ -78,7 +84,7 @@
 </h2>
 <p>//@老人河:书记入佛，和尚入俗。<br><br>RE: 刚看到一句话：李小琳书记信了佛，然后释永信方丈仍然坚信党……lol 有意思。<br><img src="http://ww3.sinaimg.cn/large/749bcf09gw1euk2y4fjojj20y80j2n3o.jpg"></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3870228696115144" target="freeweibo-mirror">SPAM //@II米线II:你怎么知道他们不是一伙的呢？/…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3870099938943701" target="freeweibo-mirror">SPAM 薄粉爱屋及乌的缘故吧？//@公平正义立国之本: /…</a>
 </h2>
 <p>SPAM 薄粉爱屋及乌的缘故吧？//@公平正义立国之本: //@吴稼祥: 欢迎小太监来拍砖。<br><br>RE: 黄七反整个一个太监，这么被太监集团推崇，并不奇怪。</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3870099398701697" target="freeweibo-mirror">SPAM 欢迎小太监来拍砖。</a>
-</h2>
-<p>SPAM 欢迎小太监来拍砖。<br><br>RE: 黄七反整个一个太监，这么被太监集团推崇，并不奇怪。</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
