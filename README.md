@@ -30,7 +30,7 @@
 </h2>
 <p>醉蟹！/@刘力博士: //@Chocolate鱼马:河蟹盛世//@北村: 相映成趣 //@周铁东本人:党员信佛，佛徒信党，好一幅和谐盛世图。//@围脖摘要:转发微博<br><br>RE: 刚看到一句话：李小琳书记信了佛，然后释永信方丈仍然坚信党……lol 有意思。<br><img src="http://ww3.sinaimg.cn/large/749bcf09gw1euk2y4fjojj20y80j2n3o.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3870271843053377" target="freeweibo-mirror">//@老人河:书记入佛，和尚入俗。</a>
 </h2>
@@ -60,7 +60,7 @@
 </h2>
 <p>SPAM 驱逐蒋匪，复兴中华！//@侠骨柔情的杨华:醒得了吗？//@如皋老猫:转发只为提醒网信办，你们该醒醒了！！<br><br>RE: 打死都估唔到，間諜就在身邊[衰]<br><img src="http://ww2.sinaimg.cn/large/965a9cddjw1eujb18kwb8j20b90k0761.jpg"></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3870191873982814" target="freeweibo-mirror">SPAM 发表了一篇转载博文《[转载]孔子学院在海外竟成了过…</a>
 </h2>
