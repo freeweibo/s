@@ -48,7 +48,7 @@
 </h2>
 <p>SPAM 发表了一篇转载博文《[转载]孔子学院在海外竟成了过街老鼠》http://t.cn/RLCuqUP<br><img src="http://ww3.sinaimg.cn/large/5408ee85jw1eukeiaxnfsj20ha0enwj6.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3870101898025460" target="freeweibo-mirror">//@曹操大叔:一个人被出卖而选择谅解，那是她灵魂的选择，而…</a>
 </h2>
