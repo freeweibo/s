@@ -72,7 +72,7 @@
 </h2>
 <p>SPAM //@lawyerzdy:另一个是？<br><br>RE: 全世界目前只有二个组织会去拆和烧十字架。只有两个，ISIS占了一个。<br><img src="http://ww1.sinaimg.cn/large/749bcf09jw1eujro6619hj20gj09b761.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3870096558756552" target="freeweibo-mirror">黄七反整个一个太监，这么被太监集团推崇，并不奇怪。</a>
 </h2>
