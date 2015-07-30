@@ -32,6 +32,12 @@
 <p>
 	<small> ============== 1小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3870439421576096" target="freeweibo-mirror">今天满屏都是郭伯雄，本博就有点奇怪，郭伯雄在不在位、开除不开…</a>
+</h2>
+<p>今天满屏都是郭伯雄，本博就有点奇怪，郭伯雄在不在位、开除不开除党籍真的和你我关系那么密切嘛？只要官员财产公开等约束制度不建立，一个郭伯雄倒下去，十个周伯雄、张伯雄会前赴后继。<br><img src="http://ww3.sinaimg.cn/large/9154fba0gw1eul6xchantj20dw08xwf3.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3870437274473532" target="freeweibo-mirror">//@行者老陈: //@发明人沈保民:[嘻嘻]</a>
 </h2>
 <p>//@行者老陈: //@发明人沈保民:[嘻嘻]<br><br>RE: 這支人民的軍隊，政令系統出了徐才厚；軍令系統出了郭伯雄；聯勤系統出了谷俊山；過去這兩屆軍委主席是干什麼吃的！這麼個腐敗法，軍隊還是人民的嗎？還打得了仗嗎？真為共和國抹一把冷汗⋯⋯幸好這些年只抗震救災，沒真打仗！習整軍確有必要！</p>
@@ -72,7 +78,7 @@
 </h2>
 <p>《圣经》云：「只愿公道如水常流，正义像川流不息的江河！」//@cnmgf: //@肖芳华律师: //@杨凤岗: 转发微博<br><br>RE: 我们期待更多教会声音，捍卫十字架及信仰自由！ http://t.cn/RLNK1gW<br><img src="http://ww4.sinaimg.cn/large/87497adegw1eukyjgnwvrj20cx08lq4i.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3870369766782931" target="freeweibo-mirror">从1951年至今印度人口从3.6亿剧增到13亿增加了近4倍，…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3870271843053377" target="freeweibo-mirror">//@老人河:书记入佛，和尚入俗。</a>
 </h2>
 <p>//@老人河:书记入佛，和尚入俗。<br><br>RE: 刚看到一句话：李小琳书记信了佛，然后释永信方丈仍然坚信党……lol 有意思。<br><img src="http://ww3.sinaimg.cn/large/749bcf09gw1euk2y4fjojj20y80j2n3o.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3870228696115144" target="freeweibo-mirror">SPAM //@II米线II:你怎么知道他们不是一伙的呢？/…</a>
-</h2>
-<p>SPAM //@II米线II:你怎么知道他们不是一伙的呢？//@如皋老猫:转发只为提醒网信办，你们该醒醒了！！<br><br>RE: 打死都估唔到，間諜就在身邊[衰]<br><img src="http://ww2.sinaimg.cn/large/965a9cddjw1eujb18kwb8j20b90k0761.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
