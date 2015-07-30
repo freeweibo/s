@@ -26,6 +26,30 @@
 <p>
 	<small> ============== 1小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3870436498527354" target="freeweibo-mirror">汶川地震时，温为军队不理他调度救灾大发脾气呢。//@韩江钓叟…</a>
+</h2>
+<p>汶川地震时，温为军队不理他调度救灾大发脾气呢。//@韩江钓叟7世: 【记得12年，两个军头突然有一种新提法：要确保军队听从中央军委、胡主席指挥】//@韩江钓叟7世:转发微博<br><br>RE: 【时局微论214：4M争夺】郭与徐，两位前军头，退休也不能免于被追罚，不仅仅是腐败那么简单。可见18大前后，中国到了何等危亡时刻。在当代，谁掌控了4个M【Military（M1）、Media（M2）、Money（M3）、Mind（M4）】，谁就可以发动枪战、钱战、舆论战和心脑战。沟党最先失去M1，当前正在发动M3之战。</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3870433826786428" target="freeweibo-mirror">难道上任没有责任？？？？！！！！！</a>
+</h2>
+<p>难道上任没有责任？？？？！！！！！<br><br>RE: 這支人民的軍隊，政令系統出了徐才厚；軍令系統出了郭伯雄；聯勤系統出了谷俊山；過去這兩屆軍委主席是干什麼吃的！這麼個腐敗法，軍隊還是人民的嗎？還打得了仗嗎？真為共和國抹一把冷汗⋯⋯幸好這些年只抗震救災，沒真打仗！習整軍確有必要！</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3870433738647524" target="freeweibo-mirror">//@IYALAN: 转发微博</a>
+</h2>
+<p>//@IYALAN: 转发微博<br><br>RE: 這支人民的軍隊，政令系統出了徐才厚；軍令系統出了郭伯雄；聯勤系統出了谷俊山；過去這兩屆軍委主席是干什麼吃的！這麼個腐敗法，軍隊還是人民的嗎？還打得了仗嗎？真為共和國抹一把冷汗⋯⋯幸好這些年只抗震救災，沒真打仗！習整軍確有必要！</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3870431796690909" target="freeweibo-mirror">【时局微论214：4M争夺】郭与徐，两位前军头，退休也不能免…</a>
+</h2>
+<p>【时局微论214：4M争夺】郭与徐，两位前军头，退休也不能免于被追罚，不仅仅是腐败那么简单。可见18大前后，中国到了何等危亡时刻。在当代，谁掌控了4个M【Military（M1）、Media（M2）、Money（M3）、Mind（M4）】，谁就可以发动枪战、钱战、舆论战和心脑战。沟党最先失去M1，当前正在发动M3之战。</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3870394722909928" target="freeweibo-mirror">《圣经》云：「只愿公道如水常流，正义像川流不息的江河！」//…</a>
 </h2>
 <p>《圣经》云：「只愿公道如水常流，正义像川流不息的江河！」//@cnmgf: //@肖芳华律师: //@杨凤岗: 转发微博<br><br>RE: 我们期待更多教会声音，捍卫十字架及信仰自由！ http://t.cn/RLNK1gW<br><img src="http://ww4.sinaimg.cn/large/87497adegw1eukyjgnwvrj20cx08lq4i.jpg"></p>
@@ -36,7 +60,7 @@
 </h2>
 <p>从1951年至今印度人口从3.6亿剧增到13亿增加了近4倍，1991年的普查数据表示，印度人口男女比为1000：927：印度8个邦贫困人口多于非洲26个最贫穷国家，总和人数众多达4.21亿，有将近42%的五岁以下儿童体重不足。印度执行过比中国严厉的计划生育后失败，对人口膨胀束手无策</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3870368353631365" target="freeweibo-mirror">聯合國今天表示，印度可望在10年內超越中國大陸，成為全球人口…</a>
 </h2>
@@ -66,7 +90,7 @@
 </h2>
 <p>SPAM 一个教女人穿衣撘配的徽博，速度关注~~</p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3870336653318593" target="freeweibo-mirror">//@高伟宁的围脖: //@山高路远N://@frank73…</a>
 </h2>
@@ -90,7 +114,7 @@
 </h2>
 <p>//@老人河:书记入佛，和尚入俗。<br><br>RE: 刚看到一句话：李小琳书记信了佛，然后释永信方丈仍然坚信党……lol 有意思。<br><img src="http://ww3.sinaimg.cn/large/749bcf09gw1euk2y4fjojj20y80j2n3o.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3870228696115144" target="freeweibo-mirror">SPAM //@II米线II:你怎么知道他们不是一伙的呢？/…</a>
 </h2>
@@ -113,30 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3870199054883506" target="freeweibo-mirror">SPAM 驱逐蒋匪，复兴中华！//@侠骨柔情的杨华:醒得了吗…</a>
 </h2>
 <p>SPAM 驱逐蒋匪，复兴中华！//@侠骨柔情的杨华:醒得了吗？//@如皋老猫:转发只为提醒网信办，你们该醒醒了！！<br><br>RE: 打死都估唔到，間諜就在身邊[衰]<br><img src="http://ww2.sinaimg.cn/large/965a9cddjw1eujb18kwb8j20b90k0761.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3870191873982814" target="freeweibo-mirror">SPAM 发表了一篇转载博文《[转载]孔子学院在海外竟成了过…</a>
-</h2>
-<p>SPAM 发表了一篇转载博文《[转载]孔子学院在海外竟成了过街老鼠》http://t.cn/RLCuqUP<br><img src="http://ww3.sinaimg.cn/large/5408ee85jw1eukeiaxnfsj20ha0enwj6.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3870101898025460" target="freeweibo-mirror">//@曹操大叔:一个人被出卖而选择谅解，那是她灵魂的选择，而…</a>
-</h2>
-<p>//@曹操大叔:一个人被出卖而选择谅解，那是她灵魂的选择，而为她被出卖寻求公道，是社会的职责，是关乎这个国家所有人现在和未来的事情，这绝对不是哪一个个人甚至是被害人本身能够决定追究与否的事情，我们必须去追究，以免有一天这种命运降临在自己头上</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3870101385871202" target="freeweibo-mirror">SPAM 回复@雁子头腌肉面:接个P，做太监梦去吧。//@雁…</a>
-</h2>
-<p>SPAM 回复@雁子头腌肉面:接个P，做太监梦去吧。//@雁子头腌肉面:接肖对调？人家能忍辱负重。//@吴稼祥:欢迎小太监来拍砖。<br><br>RE: 黄七反整个一个太监，这么被太监集团推崇，并不奇怪。</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3870101142576509" target="freeweibo-mirror">回复@Parker好纠结:胡说八道，明明</a>
-</h2>
-<p>回复@Parker好纠结:胡说八道，明明</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
