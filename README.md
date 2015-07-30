@@ -30,7 +30,7 @@
 </h2>
 <p>一个前政治局常委、一个前中办主任、两个前军委副主席，胡总身边坏人太多了吧[吃惊]</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3870439421576096" target="freeweibo-mirror">今天满屏都是郭伯雄，本博就有点奇怪，郭伯雄在不在位、开除不开…</a>
 </h2>
@@ -96,7 +96,7 @@
 </h2>
 <p>我们期待更多教会声音，捍卫十字架及信仰自由！ http://t.cn/RLNK1gW<br><img src="http://ww4.sinaimg.cn/large/87497adegw1eukyjgnwvrj20cx08lq4i.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3870360761855283" target="freeweibo-mirror">北京首都机场9月3日上午关闭：近期要飞北京的小伙伴请留意，9…</a>
 </h2>
