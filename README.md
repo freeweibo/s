@@ -54,7 +54,7 @@
 </h2>
 <p>//@尘兮2016:你们这些人心怀叵测，胡主席在龙潭虎穴潜伏十年，容易吗？[哈哈] //@gtchenwei2: //@倒运鬼: 反副不反正<br><br>RE: 【这个要求不算过分！】两名副主席都被拿掉了，主席至少也应该出来道个歉了吧……<br><img src="http://ww1.sinaimg.cn/large/562f4083gw1eul78bl519j20cc078glt.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3870442869309922" target="freeweibo-mirror">是啊，几百亿赃款去哪儿了？//@开心的雪-: 几百亿赃款都没…</a>
 </h2>
