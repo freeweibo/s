@@ -42,7 +42,7 @@
 </h2>
 <p>我们期待更多教会声音，捍卫十字架及信仰自由！ http://t.cn/RLNK1gW<br><img src="http://ww4.sinaimg.cn/large/87497adegw1eukyjgnwvrj20cx08lq4i.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3870360761855283" target="freeweibo-mirror">北京首都机场9月3日上午关闭：近期要飞北京的小伙伴请留意，9…</a>
 </h2>
@@ -78,7 +78,7 @@
 </h2>
 <p>醉蟹！/@刘力博士: //@Chocolate鱼马:河蟹盛世//@北村: 相映成趣 //@周铁东本人:党员信佛，佛徒信党，好一幅和谐盛世图。//@围脖摘要:转发微博<br><br>RE: 刚看到一句话：李小琳书记信了佛，然后释永信方丈仍然坚信党……lol 有意思。<br><img src="http://ww3.sinaimg.cn/large/749bcf09gw1euk2y4fjojj20y80j2n3o.jpg"></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3870271843053377" target="freeweibo-mirror">//@老人河:书记入佛，和尚入俗。</a>
 </h2>
