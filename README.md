@@ -102,13 +102,13 @@
 </h2>
 <p>//@袁裕来律师:老段越来越激烈了，要克制。<br><br>RE: 军队这篇针对郭伯雄的稿子颇有朝鲜官方针对张成泽的味道，不知道谁效仿谁？作为一个律师，我只能书生气的希望郭享有刑诉法规定的权利，公平公正接受审判。<br><img src="http://ww4.sinaimg.cn/large/4c148083jw1eul7m8gyn5j20p018gwnm.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3870456593447188" target="freeweibo-mirror">老段越来越激烈了，要克制。</a>
 </h2>
 <p>老段越来越激烈了，要克制。<br><br>RE: 军队这篇针对郭伯雄的稿子颇有朝鲜官方针对张成泽的味道，不知道谁效仿谁？作为一个律师，我只能书生气的希望郭享有刑诉法规定的权利，公平公正接受审判。<br><img src="http://ww4.sinaimg.cn/large/4c148083jw1eul7m8gyn5j20p018gwnm.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3870454856925404" target="freeweibo-mirror">SPAM 不会又是保护性销号吧。过一阵又还魂了。。。渣浪这套…</a>
 </h2>
