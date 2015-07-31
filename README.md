@@ -48,7 +48,7 @@
 </h2>
 <p>SPAM 同样是男扮女装，护士长生、副主席死——又一个现世报//@郑克强: [吃惊]<br><br>RE: 台媒披露。<br><img src="http://ww4.sinaimg.cn/large/539d77e6jw1eum4r1g4utj20xc18gqgy.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3870736718055583" target="freeweibo-mirror">SPAM 我预测，网上北京申冬奥成功的新闻，没一个敢开放评论…</a>
 </h2>
@@ -138,7 +138,7 @@
 </h2>
 <p>SPAM //@易圁先生: 牛逼//@麻子王四: //@eryueniao555: //@伊露桑://@豆名阳:这个必需转.[蜡烛]<br><br>RE: @豆名阳<br><img src="http://ww2.sinaimg.cn/large/005UZ4HSjw1euluracrzzj30f00qodj7.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p>
 <table>
     <tr>
