@@ -120,7 +120,7 @@
 </h2>
 <p>SPAM 我预测，网上北京申冬奥成功的新闻，没一个敢开放评论的[偷笑] #北京申奥成功#<br><img src="http://ww2.sinaimg.cn/large/5ed425fejw1eum50sjnjyj20hs0dcjsr.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3870734977784411" target="freeweibo-mirror">贵党办奥运，党的面子有光，合法性增强，官员可以借机利益输送，…</a>
 </h2>
