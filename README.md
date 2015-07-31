@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3870628089986754" target="freeweibo-mirror">自比坚贞夸栋梁，功臣悬图耀紫光。圣世即今赫武烈，却把秦城作故…</a>
+</h2>
+<p>自比坚贞夸栋梁，功臣悬图耀紫光。圣世即今赫武烈，却把秦城作故乡。 //@瓦良格号归来:转发微博<br><br>RE: 中国两位军委副主席落马，这另一只靴子终于掉了下来，丢尽了中国人民解放军的脸。国内意识形态撕裂严重，腐败严重，外交软弱，港台边疆内乱不断，习总任重道远，可怜百姓。<br><img src="http://ww1.sinaimg.cn/large/62a145b1jw1eul5x01dufj20ku1124b5.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3870607772849269" target="freeweibo-mirror">SPAM 回复@水陀螺:云山雾罩！[哈哈]//@水陀螺:含沙…</a>
 </h2>
 <p>SPAM 回复@水陀螺:云山雾罩！[哈哈]//@水陀螺:含沙射影吗？</p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3870456886681431" target="freeweibo-mirror">//@袁裕来律师:老段越来越激烈了，要克制。</a>
 </h2>
 <p>//@袁裕来律师:老段越来越激烈了，要克制。<br><br>RE: 军队这篇针对郭伯雄的稿子颇有朝鲜官方针对张成泽的味道，不知道谁效仿谁？作为一个律师，我只能书生气的希望郭享有刑诉法规定的权利，公平公正接受审判。<br><img src="http://ww4.sinaimg.cn/large/4c148083jw1eul7m8gyn5j20p018gwnm.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3870456593447188" target="freeweibo-mirror">老段越来越激烈了，要克制。</a>
-</h2>
-<p>老段越来越激烈了，要克制。<br><br>RE: 军队这篇针对郭伯雄的稿子颇有朝鲜官方针对张成泽的味道，不知道谁效仿谁？作为一个律师，我只能书生气的希望郭享有刑诉法规定的权利，公平公正接受审判。<br><img src="http://ww4.sinaimg.cn/large/4c148083jw1eul7m8gyn5j20p018gwnm.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
