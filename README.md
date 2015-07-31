@@ -20,15 +20,27 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3870729713946075" target="freeweibo-mirror">SPAM 那份筆錄是真是假，警方如何表態很重要。若假，一切沒…</a>
+</h2>
+<p>SPAM 那份筆錄是真是假，警方如何表態很重要。若假，一切沒事，媒體惹大麻煩。若真，不嚴查洩露途徑並作出交代，人人自危。</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3870721471999723" target="freeweibo-mirror">SPAM 只给大家吃窝头，当然大家都不吃馒头了 //@不戒行…</a>
 </h2>
 <p>SPAM 只给大家吃窝头，当然大家都不吃馒头了 //@不戒行者://@胡淑芬:属实，那都啥玩意儿，我周围根本没人用。<br><br>RE: 旧闻一则。<br><img src="http://ww1.sinaimg.cn/large/65cc9274jw1eulwjlkou3j20hs0vkn0n.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3870718372296641" target="freeweibo-mirror">好谦虚啊，不是99.999%么 //@向群微博:8% //@…</a>
 </h2>
 <p>好谦虚啊，不是99.999%么 //@向群微博:8% //@深南-大盗:8% //@那山杜鹃bj:8％ //@周铁东本人: 我是属于8%的，奥运给老子滚出中国！ //@报人老罗:有@奥林匹克运动会 委员就北京、延庆、张家口三地往返交通提出疑问了。</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3870714664633014" target="freeweibo-mirror">据说是外国版微博吧，既然没人爱用，应该是做得很差。 //@阿…</a>
+</h2>
+<p>据说是外国版微博吧，既然没人爱用，应该是做得很差。 //@阿子:那些是什么？？ //@胡淑芬:属实，那都啥玩意儿，我周围根本没人用。<br><br>RE: 旧闻一则。<br><img src="http://ww1.sinaimg.cn/large/65cc9274jw1eulwjlkou3j20hs0vkn0n.jpg"></p>
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
@@ -54,7 +66,7 @@
 </h2>
 <p>真心对待粉丝，收获越来越大！ //@新张利:经济要上去，得找李中堂！[笑cry]</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3870704132686364" target="freeweibo-mirror">SPAM K线图里的乾坤。//@吴稼祥: 29、30日的上证…</a>
 </h2>
@@ -127,18 +139,6 @@
 <p>SPAM @微博小秘书 @微博管理员 我的申诉无效，经微博管理员认真核审，我发的桃子照片确定为大鸡巴！[哈哈][哈哈][哈哈]<br><img src="http://ww3.sinaimg.cn/large/5f183f1ejw1euly85p664j20oz18gqa5.jpg"></p>
 <p>
 	<small> ============== 4小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3870669064077066" target="freeweibo-mirror">军中卖官的现象 由来已久、令人担忧的现实是;一旦下令把买来的…</a>
-</h2>
-<p>军中卖官的现象 由来已久、令人担忧的现实是;一旦下令把买来的官职都罢免、军队里还会有军官吗？ 同样的一旦把有腐败纪录的党员都清除出党、政府里还需要设党委吗？//@且将冷眼看世道:那些买来的将军还是可以继续当的//@王克勤://@北京朱维民: 老乡、我们是工农的子弟兵。....</p>
-<p>
-	<small> ============== 5小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3870662323850079" target="freeweibo-mirror">机智啊</a>
-</h2>
-<p>机智啊<br><br>RE: 那个阿拉木图何德何能，竟厚着脸皮跟北京张家口争夺冬奥会的举办权？不是我吓唬阿拉木图当局，奥运会可不是谁都能办得了的，搞不好欠一屁股债不说，一旦纳税人闹起意见来，就更不得了。连美国都偃旗息鼓了，阿拉木图就别不知天高地厚了。敬告奥委会委员们，只有集中力量办大事的地方，才能办好奥运会！<br><img src="http://ww1.sinaimg.cn/large/a8ef5277jw1eulwfn1638j20yi0jbgnc.jpg"></p>
-<p>
-	<small> ============== 5小时前</small>
 </p>
 <table>
     <tr>
