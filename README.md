@@ -26,11 +26,29 @@
 <p>
 	<small> ============== 1小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3870788060508100" target="freeweibo-mirror">//@周铁东本人:呵呵。//@北村:这话说的……[嘻嘻][吃…</a>
+</h2>
+<p>//@周铁东本人:呵呵。//@北村:这话说的……[嘻嘻][吃惊] //@范剑平:等着看。<br><br>RE: 向莉 ：2008年北京奥运会开幕，当年奥组委主席陈希同在高墙里； 2010年上海世博会开幕，当年申博主席陈良宇在高墙里； 2011年深圳大运会开幕，申办主席许宗衡在高墙里； 2014年南京青奥会开幕，申办主席季建业在高墙里，后来杨卫泽也进去了； 2022年北京冬奥会开幕，谁将进高墙？</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3870765478675789" target="freeweibo-mirror">你们赢了～</a>
+</h2>
+<p>你们赢了～<br><br>RE: 人家避之犹恐不及，我们趋之若鹜，这是为哪般？真不知道这奥运会对咱国家人民有啥好处。举办奥运至少几百个亿，如果在民生福利养老如此费心用心，那做为国民确实会觉得自豪，办运动会永远有钱，民生养老永远没钱。体育真的会强国？除了消耗纳税人的财力物力，全民免费医疗都没着落，办你妹！<br><img src="http://ww2.sinaimg.cn/large/ab756602gw1eum7rjqtphj20g90edac2.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3870763209454448" target="freeweibo-mirror">中纪委自己说十八大以来有效挽回经济损失387亿元，外媒这是说…</a>
+</h2>
+<p>中纪委自己说十八大以来有效挽回经济损失387亿元，外媒这是说办案机关说谎了还是贪污了？反腐要靠外媒造谣，也是醉了。 //@程中柳://@i-want-it-that-way: //@笑看333:[吃惊]//@CFYY陈封:轉發微博</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3870762119128868" target="freeweibo-mirror">SPAM 哦？！ //@王福重:那天我从沪回京，航班晚点八小…</a>
 </h2>
 <p>SPAM 哦？！ //@王福重:那天我从沪回京，航班晚点八小时，说是军演。<br><br>RE: 台媒披露。<br><img src="http://ww4.sinaimg.cn/large/539d77e6jw1eum4r1g4utj20xc18gqgy.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3870757664751887" target="freeweibo-mirror">SPAM 富在深山有远亲，穷在闹市无人问，你越大会越明白冷暖…</a>
 </h2>
@@ -119,24 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3870707379033096" target="freeweibo-mirror">至少应该出来向全国人民道歉一声吧… //@斯韦爵:出锅？ /…</a>
 </h2>
 <p>至少应该出来向全国人民道歉一声吧… //@斯韦爵:出锅？ //@研子yz1:蛤蟆出锅？</p>
-<p>
-	<small> ============== 6小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3870706972200752" target="freeweibo-mirror">真心对待粉丝，收获越来越大！ //@新张利:经济要上去，得找…</a>
-</h2>
-<p>真心对待粉丝，收获越来越大！ //@新张利:经济要上去，得找李中堂！[笑cry]</p>
-<p>
-	<small> ============== 6小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3870704132686364" target="freeweibo-mirror">SPAM K线图里的乾坤。//@吴稼祥: 29、30日的上证…</a>
-</h2>
-<p>SPAM K线图里的乾坤。//@吴稼祥: 29、30日的上证走势图。 //@银讯国际周国星:第三张是什么图？</p>
-<p>
-	<small> ============== 6小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3870703029467236" target="freeweibo-mirror">勃列日涅夫及其时代。//@杯中-红酒: 不过如此[ali掀桌…</a>
-</h2>
-<p>勃列日涅夫及其时代。//@杯中-红酒: 不过如此[ali掀桌子]//@曹先生2012w: 辗转腾挪，太极八卦，忍辱偷生，国家、民族利益全他娘的不顾，只为一个私字//@雷蒙6862: 独善其身于大管家兼文胆及左右两臂折戟沉沙之后居然独清//@流小曲:[嘻嘻]//@50年矛苔: //@正义记者2015-04: 我啥时选他的？<br><br>RE: 十年的忍辱偷生，也可視為一種政績。[嘻嘻]<br><img src="http://ww2.sinaimg.cn/large/0067BckUjw1eulyyz257mj308w06bdfw.jpg"></p>
 <p>
 	<small> ============== 6小时前</small>
 </p>
