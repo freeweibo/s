@@ -26,6 +26,12 @@
 <p>
 	<small> ============== 1小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3870796491119322" target="freeweibo-mirror">向党和人民负责，建议立即出政治自传</a>
+</h2>
+<p>向党和人民负责，建议立即出政治自传<br><br>RE: 【敌营十年，艰辛卧底】<br><img src="http://ww3.sinaimg.cn/large/473f8cfdjw1eum7ziyzerj20f00qojt1.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3870788844875008" target="freeweibo-mirror">‘时局眼’了解到，去年海军副政委马发祥跳楼自杀，即与郭伯雄有…</a>
 </h2>
 <p>‘时局眼’了解到，去年海军副政委马发祥跳楼自杀，即与郭伯雄有关。马发祥用自杀，暂时‘保护’了一批人，葬礼也以高规格进行。不过这一事件引起军委主要领导震怒，认为海军高层存在一定问题<br><br>RE: 【军队双煞落马】郭被开除党籍。99年郭、徐进京分任总参和总政常务副职。02年郭跳过总参谋长晋升军委副主席。2007-10年郭和徐是军委仅有的两名副主席。徐被抓后，友人劝郭坦白从宽：“他默然片刻，摇头说，有一两件事讲不清楚。”和他们同期落马的，还有至少37名将军，正所谓上梁不正下梁歪<br><img src="http://ww1.sinaimg.cn/large/709b1d0ejw1eulrocu9dxj209i0643z1.jpg"></p>
@@ -72,7 +78,7 @@
 </h2>
 <p>SPAM 哦？！ //@王福重:那天我从沪回京，航班晚点八小时，说是军演。<br><br>RE: 台媒披露。<br><img src="http://ww4.sinaimg.cn/large/539d77e6jw1eum4r1g4utj20xc18gqgy.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3870760084475559" target="freeweibo-mirror">人家避之犹恐不及，我们趋之若鹜，这是为哪般？真不知道这奥运会…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3870729713946075" target="freeweibo-mirror">SPAM 那份筆錄是真是假，警方如何表態很重要。若假，一切沒…</a>
 </h2>
 <p>SPAM 那份筆錄是真是假，警方如何表態很重要。若假，一切沒事，媒體惹大麻煩。若真，不嚴查洩露途徑並作出交代，人人自危。</p>
-<p>
-	<small> ============== 6小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3870721471999723" target="freeweibo-mirror">SPAM 只给大家吃窝头，当然大家都不吃馒头了 //@不戒行…</a>
-</h2>
-<p>SPAM 只给大家吃窝头，当然大家都不吃馒头了 //@不戒行者://@胡淑芬:属实，那都啥玩意儿，我周围根本没人用。<br><br>RE: 旧闻一则。<br><img src="http://ww1.sinaimg.cn/large/65cc9274jw1eulwjlkou3j20hs0vkn0n.jpg"></p>
 <p>
 	<small> ============== 6小时前</small>
 </p>
