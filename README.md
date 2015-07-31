@@ -24,7 +24,13 @@
 </h2>
 <p>SPAM 我预测，网上北京申冬奥成功的新闻，没一个敢开放评论的[偷笑] #北京申奥成功#<br><img src="http://ww2.sinaimg.cn/large/5ed425fejw1eum50sjnjyj20hs0dcjsr.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3870734977784411" target="freeweibo-mirror">贵党办奥运，党的面子有光，合法性增强，官员可以借机利益输送，…</a>
+</h2>
+<p>贵党办奥运，党的面子有光，合法性增强，官员可以借机利益输送，权贵可以拿地，拆迁，大赚特赚，老百姓们呢？又做了一次凯子！</p>
+<p>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3870733421488405" target="freeweibo-mirror">插遍茱萸少一人........只是台下少一人？[偷笑][偷笑…</a>
 </h2>
@@ -42,7 +48,7 @@
 </h2>
 <p>SPAM 只给大家吃窝头，当然大家都不吃馒头了 //@不戒行者://@胡淑芬:属实，那都啥玩意儿，我周围根本没人用。<br><br>RE: 旧闻一则。<br><img src="http://ww1.sinaimg.cn/large/65cc9274jw1eulwjlkou3j20hs0vkn0n.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3870718372296641" target="freeweibo-mirror">好谦虚啊，不是99.999%么 //@向群微博:8% //@…</a>
 </h2>
@@ -78,7 +84,7 @@
 </h2>
 <p>真心对待粉丝，收获越来越大！ //@新张利:经济要上去，得找李中堂！[笑cry]</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3870704132686364" target="freeweibo-mirror">SPAM K线图里的乾坤。//@吴稼祥: 29、30日的上证…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3870683261622170" target="freeweibo-mirror">SPAM 涛哥辛苦了 //@杂谈五味子:党国的衰落始于蛤蛤！…</a>
 </h2>
 <p>SPAM 涛哥辛苦了 //@杂谈五味子:党国的衰落始于蛤蛤！蛤蛤有一句名言：闷声发大财。。。说白了，就是以腐败换稳定。当然了，罪魁还是凳子<br><br>RE: 虎狼环伺，胡总能活下来，容易吗[泪]<br><img src="http://ww3.sinaimg.cn/large/6187648ajw1eulpwmayioj206y08dglt.jpg"></p>
-<p>
-	<small> ============== 5小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3870682733484568" target="freeweibo-mirror">放心，我认为这条微博很安全，很正确，跟党中央的精神是一致的 …</a>
-</h2>
-<p>放心，我认为这条微博很安全，很正确，跟党中央的精神是一致的 //@悟灬影:坐看po主被查水表~~~<br><br>RE: 【孤胆英雄】他们是真命天子，天降大任。他们给自己身边安插了一群无恶不作的恶棍——杀人、贪婪、卖官、奸淫，甚至搞“非组织活动”——来辅坐江山，让自己深陷虎穴，孤独求败，而他们自己始终全心全意为人民服务、努力建设中特主义。<br><img src="http://ww3.sinaimg.cn/large/473f8cfdjw1eulv8zj3wtj20fy0m7q3f.jpg"></p>
 <p>
 	<small> ============== 5小时前</small>
 </p>
