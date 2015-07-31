@@ -36,13 +36,13 @@
 </h2>
 <p>//@一杯茶叶水:转发微博<br><br>RE: 你好危险！你被人民的敌人包围，而你与敌人周旋了十年。他们邪恶无耻，无恶不作，而你“权为民所用，利为民所谋，情为民所系”，并且“没有自己的利益”，还能坚持不走“改弦更章的邪路”，你是如何做到的？如果你把你的革命秘籍说出来，将是你对人类政治文明的重大贡献！<br><img src="http://ww2.sinaimg.cn/large/473f8cfdjw1eum5e7vo7nj20l50hsq3x.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3870749573815746" target="freeweibo-mirror">劳民伤财，高压维稳。//@凌风观云: 贪官又双叒叕乐了！[g…</a>
 </h2>
 <p>劳民伤财，高压维稳。//@凌风观云: 贪官又双叒叕乐了！[good]车辆又双叒叕限行了！[good]工厂又双叒叕停了！[good]祖国又双叒叕强大了！[good]百姓又双叒叕苦了！[good]</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3870742887953021" target="freeweibo-mirror">SPAM 同样是男扮女装，护士长生、副主席死——又一个现世报…</a>
 </h2>
@@ -60,13 +60,13 @@
 </h2>
 <p>贵党办奥运，党的面子有光，合法性增强，官员可以借机利益输送，权贵可以拿地，拆迁，大赚特赚，老百姓们呢？又做了一次凯子！</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3870733874578955" target="freeweibo-mirror">台媒披露。</a>
 </h2>
 <p>台媒披露。<br><img src="http://ww4.sinaimg.cn/large/539d77e6jw1eum4r1g4utj20xc18gqgy.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3870733421488405" target="freeweibo-mirror">插遍茱萸少一人........只是台下少一人？[偷笑][偷笑…</a>
 </h2>
@@ -126,7 +126,7 @@
 </h2>
 <p>SPAM K线图里的乾坤。//@吴稼祥: 29、30日的上证走势图。 //@银讯国际周国星:第三张是什么图？</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3870703029467236" target="freeweibo-mirror">勃列日涅夫及其时代。//@杯中-红酒: 不过如此[ali掀桌…</a>
 </h2>
