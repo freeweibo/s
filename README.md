@@ -36,7 +36,7 @@
 </h2>
 <p>勃列日涅夫及其时代。//@杯中-红酒: 不过如此[ali掀桌子]//@曹先生2012w: 辗转腾挪，太极八卦，忍辱偷生，国家、民族利益全他娘的不顾，只为一个私字//@雷蒙6862: 独善其身于大管家兼文胆及左右两臂折戟沉沙之后居然独清//@流小曲:[嘻嘻]//@50年矛苔: //@正义记者2015-04: 我啥时选他的？<br><br>RE: 十年的忍辱偷生，也可視為一種政績。[嘻嘻]<br><img src="http://ww2.sinaimg.cn/large/0067BckUjw1eulyyz257mj308w06bdfw.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3870697564493649" target="freeweibo-mirror">SPAM //@易圁先生: 牛逼//@麻子王四: //@er…</a>
 </h2>
@@ -114,19 +114,19 @@
 </h2>
 <p>SPAM 占几条了么？</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3870657642873655" target="freeweibo-mirror">//@-作家草军书: 坊间郭老婆卖少将爵位，一个少将指标20…</a>
 </h2>
 <p>//@-作家草军书: 坊间郭老婆卖少将爵位，一个少将指标2000万[吃惊]这些狗将哪来这么多钱送？//@春去春又回a: 要查就查如今在位的亲属 //@荒岛恶郎十四代:胜王败寇，赢家通吃嘛！ //@演员孙海英: 转发微博</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3870657114450758" target="freeweibo-mirror">【孤胆英雄】他们是真命天子，天降大任。他们给自己身边安插了一…</a>
 </h2>
 <p>【孤胆英雄】他们是真命天子，天降大任。他们给自己身边安插了一群无恶不作的恶棍——杀人、贪婪、卖官、奸淫，甚至搞“非组织活动”——来辅坐江山，让自己深陷虎穴，孤独求败，而他们自己始终全心全意为人民服务、努力建设中特主义。<br><img src="http://ww3.sinaimg.cn/large/473f8cfdjw1eulv8zj3wtj20fy0m7q3f.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3870650487709852" target="freeweibo-mirror">这种体制，鬼都会腐败......</a>
 </h2>
