@@ -24,7 +24,7 @@
 </h2>
 <p>SPAM 哦？！ //@王福重:那天我从沪回京，航班晚点八小时，说是军演。<br><br>RE: 台媒披露。<br><img src="http://ww4.sinaimg.cn/large/539d77e6jw1eum4r1g4utj20xc18gqgy.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3870757664751887" target="freeweibo-mirror">SPAM 富在深山有远亲，穷在闹市无人问，你越大会越明白冷暖…</a>
 </h2>
