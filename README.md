@@ -72,7 +72,7 @@
 </h2>
 <p>SPAM //@演员孙海英: //@迟夙生律师:[哈哈]<br><br>RE: 千万不要小看你们身后的小弟，他有可能主宰你们的性命。<br><img src="http://ww4.sinaimg.cn/large/868ab95bjw1eul8vo8d4gj20cn07fjs6.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3870463505699280" target="freeweibo-mirror">SPAM  //@龙旺山庄里的樱桃树://@光老顽童: [哈…</a>
 </h2>
@@ -114,7 +114,7 @@
 </h2>
 <p>SPAM [嘻嘻] //@迟夙生律师:[哈哈]<br><br>RE: 千万不要小看你们身后的小弟，他有可能主宰你们的性命。<br><img src="http://ww4.sinaimg.cn/large/868ab95bjw1eul8vo8d4gj20cn07fjs6.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3870457415395241" target="freeweibo-mirror">//@wyzxhp7:[good]//@渔夫转播: 转发微博</a>
 </h2>
