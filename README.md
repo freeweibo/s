@@ -42,7 +42,7 @@
 </h2>
 <p>//@北疆观点: //@微言萤光-:权力滋生腐败，绝对权力导致绝对腐败。<br><br>RE: 郭的落马比徐落马更有意义、更说明问题。如果只是徐单独一个人落马，那就说明只是一个军委副主席腐败了，但是两个军委副主席双双落马，那就说明整个军队的体系已经是靡烂不堪了，而且必需要追究更上级的领导责任了。就是谁提拔这些腐败份子，放到这样的高位，让这两个人统领军队？<br><img src="http://ww2.sinaimg.cn/large/d3e9af42jw1eull142fpgj20gy0bawg2.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3870562201810118" target="freeweibo-mirror">郭的落马比徐落马更有意义、更说明问题。如果只是徐单独一个人落…</a>
 </h2>
@@ -54,7 +54,7 @@
 </h2>
 <p>[噢耶] //@WESVAN:期待尽快成立中国炒股领导小组。[doge]<br><br>RE: 组长帝又添一个小组。[doge]   中共中央总书记、国家主席、中央军委主席习近平担任组长的小组有：中央财经工作小组、中央全面深化改革领导小组、中央网络安全和信息化领导小组以及中央军委深化国防和军队改革领导小组。如今，又一个新的“中”字头小组将成立，这就是中央统一战线工作领导小组。</p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3870506325248896" target="freeweibo-mirror">组长帝又添一个小组。[doge]   中共中央总书记、国家主…</a>
 </h2>
@@ -66,7 +66,7 @@
 </h2>
 <p>SPAM 还真是 //@演员孙海英: //@迟夙生律师:[哈哈]<br><br>RE: 千万不要小看你们身后的小弟，他有可能主宰你们的性命。<br><img src="http://ww4.sinaimg.cn/large/868ab95bjw1eul8vo8d4gj20cn07fjs6.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3870465908818084" target="freeweibo-mirror">SPAM //@演员孙海英: //@迟夙生律师:[哈哈]</a>
 </h2>
@@ -102,13 +102,13 @@
 </h2>
 <p>SPAM  //@迟夙生律师:[哈哈]<br><br>RE: 千万不要小看你们身后的小弟，他有可能主宰你们的性命。<br><img src="http://ww4.sinaimg.cn/large/868ab95bjw1eul8vo8d4gj20cn07fjs6.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3870460120416832" target="freeweibo-mirror">SPAM //@佬_牛: [喵喵][喵喵][喵喵]//@龙石…</a>
 </h2>
 <p>SPAM //@佬_牛: [喵喵][喵喵][喵喵]//@龙石石: [doge][doge][doge][doge][doge][doge][doge][doge][doge][doge][doge][doge][doge][doge][doge][doge][doge][doge][doge][doge][doge]//@迟夙生律师: [哈哈]<br><br>RE: 千万不要小看你们身后的小弟，他有可能主宰你们的性命。<br><img src="http://ww4.sinaimg.cn/large/868ab95bjw1eul8vo8d4gj20cn07fjs6.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3870458648336202" target="freeweibo-mirror">SPAM [嘻嘻] //@迟夙生律师:[哈哈]</a>
 </h2>
