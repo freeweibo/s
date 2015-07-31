@@ -126,7 +126,7 @@
 </h2>
 <p>是京张冬奥，不是北京冬奥。。//@释不归: 假的！ //@罗罗被盛夏的果实迷晕了:@释不归 真的假的？///@Haruko-Nakajima:以破坏生态环境为代价，成就了的面子也是纸糊的，可悲可笑<br><br>RE: 这条被屏蔽了，看来是真的了<br><img src="http://ww1.sinaimg.cn/large/5307c0bcjw1eumatozc2mj20ku112jx0.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3870807174322256" target="freeweibo-mirror">就是破壞自然 //@PaulPaulJin: //@cyie…</a>
 </h2>
