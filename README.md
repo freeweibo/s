@@ -68,6 +68,12 @@
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3870683651884144" target="freeweibo-mirror">十年的忍辱偷生，也可視為一種政績。[嘻嘻]</a>
+</h2>
+<p>十年的忍辱偷生，也可視為一種政績。[嘻嘻]<br><img src="http://ww2.sinaimg.cn/large/0067BckUjw1eulyyz257mj308w06bdfw.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3870683261622170" target="freeweibo-mirror">SPAM 涛哥辛苦了 //@杂谈五味子:党国的衰落始于蛤蛤！…</a>
 </h2>
 <p>SPAM 涛哥辛苦了 //@杂谈五味子:党国的衰落始于蛤蛤！蛤蛤有一句名言：闷声发大财。。。说白了，就是以腐败换稳定。当然了，罪魁还是凳子<br><br>RE: 虎狼环伺，胡总能活下来，容易吗[泪]<br><img src="http://ww3.sinaimg.cn/large/6187648ajw1eulpwmayioj206y08dglt.jpg"></p>
@@ -108,7 +114,7 @@
 </h2>
 <p>那个阿拉木图何德何能，竟厚着脸皮跟北京张家口争夺冬奥会的举办权？不是我吓唬阿拉木图当局，奥运会可不是谁都能办得了的，搞不好欠一屁股债不说，一旦纳税人闹起意见来，就更不得了。连美国都偃旗息鼓了，阿拉木图就别不知天高地厚了。敬告奥委会委员们，只有集中力量办大事的地方，才能办好奥运会！<br><img src="http://ww1.sinaimg.cn/large/a8ef5277jw1eulwfn1638j20yi0jbgnc.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3870658158662023" target="freeweibo-mirror">SPAM 占几条了么？</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3870650487709852" target="freeweibo-mirror">这种体制，鬼都会腐败......</a>
 </h2>
 <p>这种体制，鬼都会腐败......<br><img src="http://ww3.sinaimg.cn/large/6f47298bjw1eulv6fdr4gj206y08dq34.jpg"></p>
-<p>
-	<small> ============== 5小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3870646880306258" target="freeweibo-mirror">@豆名阳</a>
-</h2>
-<p>@豆名阳<br><img src="http://ww2.sinaimg.cn/large/005UZ4HSjw1euluracrzzj30f00qodj7.jpg"></p>
 <p>
 	<small> ============== 5小时前</small>
 </p>
