@@ -30,7 +30,7 @@
 </h2>
 <p>SPAM K线图里的乾坤。//@吴稼祥: 29、30日的上证走势图。 //@银讯国际周国星:第三张是什么图？</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3870703029467236" target="freeweibo-mirror">勃列日涅夫及其时代。//@杯中-红酒: 不过如此[ali掀桌…</a>
 </h2>
