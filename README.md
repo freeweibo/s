@@ -36,7 +36,7 @@
 </h2>
 <p>自比坚贞夸栋梁，功臣悬图耀紫光。圣世即今赫武烈，却把秦城作故乡。 //@瓦良格号归来:转发微博<br><br>RE: 中国两位军委副主席落马，这另一只靴子终于掉了下来，丢尽了中国人民解放军的脸。国内意识形态撕裂严重，腐败严重，外交软弱，港台边疆内乱不断，习总任重道远，可怜百姓。<br><img src="http://ww1.sinaimg.cn/large/62a145b1jw1eul5x01dufj20ku1124b5.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3870627964027080" target="freeweibo-mirror">SPAM 增大增粗，需要的私信。无效退货…</a>
 </h2>
