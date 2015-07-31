@@ -138,7 +138,7 @@
 </h2>
 <p>前几天推出释永信是为了今天的郭伯雄，我党伟光正啊！[哈哈][哈哈][哈哈]<br><img src="http://ww2.sinaimg.cn/large/868ab95bjw1eul83yf0ejj20hs0butad.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p>
 <table>
     <tr>
