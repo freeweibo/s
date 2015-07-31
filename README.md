@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3870818288895981" target="freeweibo-mirror">1952年，在新疆举行欢迎入疆湘女的大会上，王震鼓励她们说：…</a>
+</h2>
+<p>1952年，在新疆举行欢迎入疆湘女的大会上，王震鼓励她们说：“同志们，你们要安心边疆，扎根边疆，要为新疆人民大办好事，要把你们的骨头埋在天山脚下……”他的话还没讲完，台下的秩序就乱了，因为大家原以为参军两三年后就可以转业回湖南老家的<br><br>RE: 最美被拐女教师算什么，你忘了“八千湘女上天山”英国《泰晤士报》刊登了过一篇报道说一批老年妇女出面讲述，当年她们是如何被虚假的培训和教育承诺引诱去中国的新边疆，结果发现自己被关在军营里，被强制与军人结婚。 http://t.cn/RLp0Mw0</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3870801507899379" target="freeweibo-mirror">？</a>
 </h2>
 <p>？<br><br>RE: 前者收拾了平媒。这角色更狠？收拾网媒和自媒？慎海雄，男，1967年4月生，浙江湖州人。杭州大学中文系本科毕业，上海交通大学高级金融学院金融EMBA，获硕士学位。中共党员，1989年参加工作。现任新华社副社长、党组成员，新华社新媒体中心主任。<br><img src="http://ww4.sinaimg.cn/large/3fe741bfjw1eumcbikoh9j20hs0buwfb.jpg"></p>
@@ -29,6 +35,12 @@
 	<a href="https://freeweibo.com/weibo/3870800819572606" target="freeweibo-mirror">建议冬奥会工程由山西太原市长耿彦波先生负责，耿市长从大同拆到…</a>
 </h2>
 <p>建议冬奥会工程由山西太原市长耿彦波先生负责，耿市长从大同拆到太原，一路的赞誉一路的好评一大批大批百姓的不舍和好口碑 //@隆裕太后:工程造起来了，一批贪官倒下了！</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3870799750377099" target="freeweibo-mirror">前者收拾了平媒。这角色更狠？收拾网媒和自媒？慎海雄，男，19…</a>
+</h2>
+<p>前者收拾了平媒。这角色更狠？收拾网媒和自媒？慎海雄，男，1967年4月生，浙江湖州人。杭州大学中文系本科毕业，上海交通大学高级金融学院金融EMBA，获硕士学位。中共党员，1989年参加工作。现任新华社副社长、党组成员，新华社新媒体中心主任。<br><img src="http://ww4.sinaimg.cn/large/3fe741bfjw1eumcbikoh9j20hs0buwfb.jpg"></p>
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
@@ -102,7 +114,7 @@
 </h2>
 <p>人家避之犹恐不及，我们趋之若鹜，这是为哪般？真不知道这奥运会对咱国家人民有啥好处。举办奥运至少几百个亿，如果在民生福利养老如此费心用心，那做为国民确实会觉得自豪，办运动会永远有钱，民生养老永远没钱。体育真的会强国？除了消耗纳税人的财力物力，全民免费医疗都没着落，办你妹！<br><img src="http://ww2.sinaimg.cn/large/ab756602gw1eum7rjqtphj20g90edac2.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3870757664751887" target="freeweibo-mirror">SPAM 富在深山有远亲，穷在闹市无人问，你越大会越明白冷暖…</a>
 </h2>
@@ -125,18 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3870742887953021" target="freeweibo-mirror">SPAM 同样是男扮女装，护士长生、副主席死——又一个现世报…</a>
 </h2>
 <p>SPAM 同样是男扮女装，护士长生、副主席死——又一个现世报//@郑克强: [吃惊]<br><br>RE: 台媒披露。<br><img src="http://ww4.sinaimg.cn/large/539d77e6jw1eum4r1g4utj20xc18gqgy.jpg"></p>
-<p>
-	<small> ============== 6小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3870736718055583" target="freeweibo-mirror">SPAM 我预测，网上北京申冬奥成功的新闻，没一个敢开放评论…</a>
-</h2>
-<p>SPAM 我预测，网上北京申冬奥成功的新闻，没一个敢开放评论的[偷笑] #北京申奥成功#<br><img src="http://ww2.sinaimg.cn/large/5ed425fejw1eum50sjnjyj20hs0dcjsr.jpg"></p>
-<p>
-	<small> ============== 6小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3870734977784411" target="freeweibo-mirror">贵党办奥运，党的面子有光，合法性增强，官员可以借机利益输送，…</a>
-</h2>
-<p>贵党办奥运，党的面子有光，合法性增强，官员可以借机利益输送，权贵可以拿地，拆迁，大赚特赚，老百姓们呢？又做了一次凯子！</p>
 <p>
 	<small> ============== 6小时前</small>
 </p>
