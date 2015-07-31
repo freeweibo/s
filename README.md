@@ -30,7 +30,7 @@
 </h2>
 <p>//@闵玉平: 九也恨来十也恨，洪洞县内是无好人。———《苏三起解》唱段苏三发出的千古一叹。@张晨初艺术空间<br><br>RE: 这种体制，鬼都会腐败......<br><img src="http://ww3.sinaimg.cn/large/6f47298bjw1eulv6fdr4gj206y08dq34.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3870669064077066" target="freeweibo-mirror">军中卖官的现象 由来已久、令人担忧的现实是;一旦下令把买来的…</a>
 </h2>
@@ -60,7 +60,7 @@
 </h2>
 <p>SPAM 局部…<br><img src="http://ww2.sinaimg.cn/large/757b8344jw1eultg4p2xuj20hs0nqaav.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3870631499982212" target="freeweibo-mirror">祝福阿拉木图[作揖]//@pupu-2012:祝福阿拉木图！…</a>
 </h2>
