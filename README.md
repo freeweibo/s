@@ -54,7 +54,7 @@
 </h2>
 <p>【网摘】据外媒报道，郭伯雄家中搜出人民币十多吨,美元近1亿,金条105吨,名字画古董估值近10亿,存折300多个,金额近1800亿元人民币，它一个人就可以救两个希腊了。<br><img src="http://ww3.sinaimg.cn/large/0067Tvmjjw1eulz6ce0xaj30g40963zk.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3870682733484568" target="freeweibo-mirror">放心，我认为这条微博很安全，很正确，跟党中央的精神是一致的 …</a>
 </h2>
