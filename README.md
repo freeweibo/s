@@ -20,6 +20,18 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3870749816852364" target="freeweibo-mirror">//@一杯茶叶水:转发微博</a>
+</h2>
+<p>//@一杯茶叶水:转发微博<br><br>RE: 你好危险！你被人民的敌人包围，而你与敌人周旋了十年。他们邪恶无耻，无恶不作，而你“权为民所用，利为民所谋，情为民所系”，并且“没有自己的利益”，还能坚持不走“改弦更章的邪路”，你是如何做到的？如果你把你的革命秘籍说出来，将是你对人类政治文明的重大贡献！<br><img src="http://ww2.sinaimg.cn/large/473f8cfdjw1eum5e7vo7nj20l50hsq3x.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3870749573815746" target="freeweibo-mirror">劳民伤财，高压维稳。//@凌风观云: 贪官又双叒叕乐了！[g…</a>
+</h2>
+<p>劳民伤财，高压维稳。//@凌风观云: 贪官又双叒叕乐了！[good]车辆又双叒叕限行了！[good]工厂又双叒叕停了！[good]祖国又双叒叕强大了！[good]百姓又双叒叕苦了！[good]</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3870736718055583" target="freeweibo-mirror">SPAM 我预测，网上北京申冬奥成功的新闻，没一个敢开放评论…</a>
 </h2>
 <p>SPAM 我预测，网上北京申冬奥成功的新闻，没一个敢开放评论的[偷笑] #北京申奥成功#<br><img src="http://ww2.sinaimg.cn/large/5ed425fejw1eum50sjnjyj20hs0dcjsr.jpg"></p>
@@ -42,7 +54,7 @@
 </h2>
 <p>SPAM 那份筆錄是真是假，警方如何表態很重要。若假，一切沒事，媒體惹大麻煩。若真，不嚴查洩露途徑並作出交代，人人自危。</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3870721471999723" target="freeweibo-mirror">SPAM 只给大家吃窝头，当然大家都不吃馒头了 //@不戒行…</a>
 </h2>
@@ -60,7 +72,7 @@
 </h2>
 <p>据说是外国版微博吧，既然没人爱用，应该是做得很差。 //@阿子:那些是什么？？ //@胡淑芬:属实，那都啥玩意儿，我周围根本没人用。<br><br>RE: 旧闻一则。<br><img src="http://ww1.sinaimg.cn/large/65cc9274jw1eulwjlkou3j20hs0vkn0n.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3870710587520606" target="freeweibo-mirror">和高铁一样，现在的现代化装备不都是那些年坏人搞出来的？[哈哈…</a>
 </h2>
@@ -127,18 +139,6 @@
 <p>【网摘】据外媒报道，郭伯雄家中搜出人民币十多吨,美元近1亿,金条105吨,名字画古董估值近10亿,存折300多个,金额近1800亿元人民币，它一个人就可以救两个希腊了。<br><img src="http://ww3.sinaimg.cn/large/0067Tvmjjw1eulz6ce0xaj30g40963zk.jpg"></p>
 <p>
 	<small> ============== 5小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3870683651884144" target="freeweibo-mirror">十年的忍辱偷生，也可視為一種政績。[嘻嘻]</a>
-</h2>
-<p>十年的忍辱偷生，也可視為一種政績。[嘻嘻]<br><img src="http://ww2.sinaimg.cn/large/0067BckUjw1eulyyz257mj308w06bdfw.jpg"></p>
-<p>
-	<small> ============== 5小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3870683261622170" target="freeweibo-mirror">SPAM 涛哥辛苦了 //@杂谈五味子:党国的衰落始于蛤蛤！…</a>
-</h2>
-<p>SPAM 涛哥辛苦了 //@杂谈五味子:党国的衰落始于蛤蛤！蛤蛤有一句名言：闷声发大财。。。说白了，就是以腐败换稳定。当然了，罪魁还是凳子<br><br>RE: 虎狼环伺，胡总能活下来，容易吗[泪]<br><img src="http://ww3.sinaimg.cn/large/6187648ajw1eulpwmayioj206y08dglt.jpg"></p>
-<p>
-	<small> ============== 6小时前</small>
 </p>
 <table>
     <tr>
