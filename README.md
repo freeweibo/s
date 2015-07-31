@@ -42,7 +42,7 @@
 </h2>
 <p>最美被拐女教师算什么，你忘了“八千湘女上天山”英国《泰晤士报》刊登了过一篇报道说一批老年妇女出面讲述，当年她们是如何被虚假的培训和教育承诺引诱去中国的新边疆，结果发现自己被关在军营里，被强制与军人结婚。 http://t.cn/RLp0Mw0</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3870813075630462" target="freeweibo-mirror">SPAM 在贵阳收到的一张纸币 http://t.cn/RL…</a>
 </h2>
@@ -78,7 +78,7 @@
 </h2>
 <p>SPAM ？[哼] @北京王惠 //@轩辕黛橼橼: //@欧美二线品牌:高山滑雪项目在海坨 //@五月的下午茶://@沈璎璎: 雪上项目不是应该在张家口的崇礼吗？现成的滑雪小镇，高速也修好了。为什么要在大海陀山，那边又不当道。<br><br>RE: SPAM 让人说话，天塌不下来<br><img src="http://ww4.sinaimg.cn/large/49421855jw1eumaljsfd0j20ku11244k.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3870801507899379" target="freeweibo-mirror">？</a>
 </h2>
