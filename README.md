@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3870669064077066" target="freeweibo-mirror">军中卖官的现象 由来已久、令人担忧的现实是;一旦下令把买来的…</a>
+</h2>
+<p>军中卖官的现象 由来已久、令人担忧的现实是;一旦下令把买来的官职都罢免、军队里还会有军官吗？ 同样的一旦把有腐败纪录的党员都清除出党、政府里还需要设党委吗？//@且将冷眼看世道:那些买来的将军还是可以继续当的//@王克勤://@北京朱维民: 老乡、我们是工农的子弟兵。....</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3870658158662023" target="freeweibo-mirror">SPAM 占几条了么？</a>
 </h2>
 <p>SPAM 占几条了么？</p>
@@ -84,7 +90,7 @@
 </h2>
 <p>//@北疆观点: //@微言萤光-:权力滋生腐败，绝对权力导致绝对腐败。<br><br>RE: 郭的落马比徐落马更有意义、更说明问题。如果只是徐单独一个人落马，那就说明只是一个军委副主席腐败了，但是两个军委副主席双双落马，那就说明整个军队的体系已经是靡烂不堪了，而且必需要追究更上级的领导责任了。就是谁提拔这些腐败份子，放到这样的高位，让这两个人统领军队？<br><img src="http://ww2.sinaimg.cn/large/d3e9af42jw1eull142fpgj20gy0bawg2.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3870562201810118" target="freeweibo-mirror">郭的落马比徐落马更有意义、更说明问题。如果只是徐单独一个人落…</a>
 </h2>
@@ -102,7 +108,7 @@
 </h2>
 <p>[噢耶] //@WESVAN:期待尽快成立中国炒股领导小组。[doge]<br><br>RE: 组长帝又添一个小组。[doge]   中共中央总书记、国家主席、中央军委主席习近平担任组长的小组有：中央财经工作小组、中央全面深化改革领导小组、中央网络安全和信息化领导小组以及中央军委深化国防和军队改革领导小组。如今，又一个新的“中”字头小组将成立，这就是中央统一战线工作领导小组。</p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3870506325248896" target="freeweibo-mirror">组长帝又添一个小组。[doge]   中共中央总书记、国家主…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3870463396202587" target="freeweibo-mirror">SPAM 悔之晚矣 //@周立新律师:他们会不会后悔没有zb…</a>
 </h2>
 <p>SPAM 悔之晚矣 //@周立新律师:他们会不会后悔没有zb//@迟夙生律师:[哈哈]<br><br>RE: 千万不要小看你们身后的小弟，他有可能主宰你们的性命。<br><img src="http://ww4.sinaimg.cn/large/868ab95bjw1eul8vo8d4gj20cn07fjs6.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3870463362634367" target="freeweibo-mirror">SPAM [悲伤][晕]</a>
-</h2>
-<p>SPAM [悲伤][晕]<br><br>RE: 千万不要小看你们身后的小弟，他有可能主宰你们的性命。<br><img src="http://ww4.sinaimg.cn/large/868ab95bjw1eul8vo8d4gj20cn07fjs6.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
