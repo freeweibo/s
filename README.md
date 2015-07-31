@@ -20,6 +20,18 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3870718372296641" target="freeweibo-mirror">好谦虚啊，不是99.999%么 //@向群微博:8% //@…</a>
+</h2>
+<p>好谦虚啊，不是99.999%么 //@向群微博:8% //@深南-大盗:8% //@那山杜鹃bj:8％ //@周铁东本人: 我是属于8%的，奥运给老子滚出中国！ //@报人老罗:有@奥林匹克运动会 委员就北京、延庆、张家口三地往返交通提出疑问了。</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3870709346235408" target="freeweibo-mirror">[给力]//@飞龙翩翩: //@三反黄: 毛共时期的土鳖是中…</a>
+</h2>
+<p>[给力]//@飞龙翩翩: //@三反黄: 毛共时期的土鳖是中国历史上唯一一个改变了农村面貌的政权了吧，空前也绝后…</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3870707379033096" target="freeweibo-mirror">至少应该出来向全国人民道歉一声吧… //@斯韦爵:出锅？ /…</a>
 </h2>
 <p>至少应该出来向全国人民道歉一声吧… //@斯韦爵:出锅？ //@研子yz1:蛤蟆出锅？</p>
@@ -125,18 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3870657642873655" target="freeweibo-mirror">//@-作家草军书: 坊间郭老婆卖少将爵位，一个少将指标20…</a>
 </h2>
 <p>//@-作家草军书: 坊间郭老婆卖少将爵位，一个少将指标2000万[吃惊]这些狗将哪来这么多钱送？//@春去春又回a: 要查就查如今在位的亲属 //@荒岛恶郎十四代:胜王败寇，赢家通吃嘛！ //@演员孙海英: 转发微博</p>
-<p>
-	<small> ============== 5小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3870657114450758" target="freeweibo-mirror">【孤胆英雄】他们是真命天子，天降大任。他们给自己身边安插了一…</a>
-</h2>
-<p>【孤胆英雄】他们是真命天子，天降大任。他们给自己身边安插了一群无恶不作的恶棍——杀人、贪婪、卖官、奸淫，甚至搞“非组织活动”——来辅坐江山，让自己深陷虎穴，孤独求败，而他们自己始终全心全意为人民服务、努力建设中特主义。<br><img src="http://ww3.sinaimg.cn/large/473f8cfdjw1eulv8zj3wtj20fy0m7q3f.jpg"></p>
-<p>
-	<small> ============== 5小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3870650487709852" target="freeweibo-mirror">这种体制，鬼都会腐败......</a>
-</h2>
-<p>这种体制，鬼都会腐败......<br><img src="http://ww3.sinaimg.cn/large/6f47298bjw1eulv6fdr4gj206y08dq34.jpg"></p>
 <p>
 	<small> ============== 5小时前</small>
 </p>
