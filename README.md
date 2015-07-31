@@ -60,7 +60,7 @@
 </h2>
 <p>至少应该出来向全国人民道歉一声吧… //@斯韦爵:出锅？ //@研子yz1:蛤蟆出锅？</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3870706972200752" target="freeweibo-mirror">真心对待粉丝，收获越来越大！ //@新张利:经济要上去，得找…</a>
 </h2>
@@ -138,7 +138,7 @@
 </h2>
 <p>SPAM @微博小秘书 @微博管理员 我的申诉无效，经微博管理员认真核审，我发的桃子照片确定为大鸡巴！[哈哈][哈哈][哈哈]<br><img src="http://ww3.sinaimg.cn/large/5f183f1ejw1euly85p664j20oz18gqa5.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p>
 <table>
     <tr>
