@@ -30,7 +30,7 @@
 </h2>
 <p>正能量鼻祖[糖宝惊呆了]//@Coffe_cup: 成人片？</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3870818288895981" target="freeweibo-mirror">1952年，在新疆举行欢迎入疆湘女的大会上，王震鼓励她们说：…</a>
 </h2>
@@ -72,7 +72,7 @@
 </h2>
 <p>//@天才小苹果:假如是真的，我宁愿不要什么冬奥会 //@红魔_火力全开://@拾豆叁: //@元猫大大://@没名儿挺好的: //@记忆罐头_厚道宝://@根儿在北京-牛震:转发微博<br><br>RE: 这条被屏蔽了，看来是真的了<br><img src="http://ww1.sinaimg.cn/large/5307c0bcjw1eumatozc2mj20ku112jx0.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3870801755085300" target="freeweibo-mirror">SPAM ？[哼] @北京王惠 //@轩辕黛橼橼: //@欧…</a>
 </h2>
@@ -122,6 +122,12 @@
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3870795593842516" target="freeweibo-mirror">”直接印钞买股票，你脸皮比我还厚啊”</a>
+</h2>
+<p>”直接印钞买股票，你脸皮比我还厚啊”<br><img src="http://ww1.sinaimg.cn/large/8dd446e3jw1eumbuedygfj20hm0brt9p.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3870788844875008" target="freeweibo-mirror">‘时局眼’了解到，去年海军副政委马发祥跳楼自杀，即与郭伯雄有…</a>
 </h2>
 <p>‘时局眼’了解到，去年海军副政委马发祥跳楼自杀，即与郭伯雄有关。马发祥用自杀，暂时‘保护’了一批人，葬礼也以高规格进行。不过这一事件引起军委主要领导震怒，认为海军高层存在一定问题<br><br>RE: 【军队双煞落马】郭被开除党籍。99年郭、徐进京分任总参和总政常务副职。02年郭跳过总参谋长晋升军委副主席。2007-10年郭和徐是军委仅有的两名副主席。徐被抓后，友人劝郭坦白从宽：“他默然片刻，摇头说，有一两件事讲不清楚。”和他们同期落马的，还有至少37名将军，正所谓上梁不正下梁歪<br><img src="http://ww1.sinaimg.cn/large/709b1d0ejw1eulrocu9dxj209i0643z1.jpg"></p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3870788169833003" target="freeweibo-mirror">今天所有涉及图中所说事的微博都被屏蔽了,我本以为我绕开说能幸…</a>
 </h2>
 <p>今天所有涉及图中所说事的微博都被屏蔽了,我本以为我绕开说能幸免,然而并没有。<br><br>RE: 这条被屏蔽了，看来是真的了<br><img src="http://ww1.sinaimg.cn/large/5307c0bcjw1eumatozc2mj20ku112jx0.jpg"></p>
-<p>
-	<small> ============== 4小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3870788060508100" target="freeweibo-mirror">//@周铁东本人:呵呵。//@北村:这话说的……[嘻嘻][吃…</a>
-</h2>
-<p>//@周铁东本人:呵呵。//@北村:这话说的……[嘻嘻][吃惊] //@范剑平:等着看。<br><br>RE: 向莉 ：2008年北京奥运会开幕，当年奥组委主席陈希同在高墙里； 2010年上海世博会开幕，当年申博主席陈良宇在高墙里； 2011年深圳大运会开幕，申办主席许宗衡在高墙里； 2014年南京青奥会开幕，申办主席季建业在高墙里，后来杨卫泽也进去了； 2022年北京冬奥会开幕，谁将进高墙？</p>
 <p>
 	<small> ============== 4小时前</small>
 </p>
