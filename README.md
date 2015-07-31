@@ -36,7 +36,7 @@
 </h2>
 <p>是京张冬奥，不是北京冬奥。。//@释不归: 假的！ //@罗罗被盛夏的果实迷晕了:@释不归 真的假的？///@Haruko-Nakajima:以破坏生态环境为代价，成就了的面子也是纸糊的，可悲可笑<br><br>RE: 这条被屏蔽了，看来是真的了<br><img src="http://ww1.sinaimg.cn/large/5307c0bcjw1eumatozc2mj20ku112jx0.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3870807174322256" target="freeweibo-mirror">就是破壞自然 //@PaulPaulJin: //@cyie…</a>
 </h2>
@@ -132,7 +132,7 @@
 </h2>
 <p>中纪委自己说十八大以来有效挽回经济损失387亿元，外媒这是说办案机关说谎了还是贪污了？反腐要靠外媒造谣，也是醉了。 //@程中柳://@i-want-it-that-way: //@笑看333:[吃惊]//@CFYY陈封:轉發微博</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3870762119128868" target="freeweibo-mirror">SPAM 哦？！ //@王福重:那天我从沪回京，航班晚点八小…</a>
 </h2>
