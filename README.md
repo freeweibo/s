@@ -42,7 +42,7 @@
 </h2>
 <p>SPAM [黑线]<br><br>RE: 【就是他，就是这个人】就是他把这个囯家煽坏的！就是他指使这些坏人祸害国家的！<br><img src="http://ww1.sinaimg.cn/large/473f8cfdgw1eumsjkl0kgj206s06sglj.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3870967891429896" target="freeweibo-mirror">//@陈独不锈:[思考]//@黑子哥不白: //@演员孙海英…</a>
 </h2>
