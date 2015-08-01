@@ -24,7 +24,7 @@
 </h2>
 <p>還我錢 //@大势将至:[哈哈]其实，土鳖集团也有自己的小算盘。它连3年以后的状况如何都没有把握，何况2022年乎？就是先忽悠一把。届时到底是谁受骗了还不好说呢。哈哈。<br><br>RE: 国际奥委会也要生存，也要钱，除了中国，没人对花钱赚吆喝的冬奥会感兴趣。大家避之不及的时候，中国却逆流而上，国家奥委会心里一定乐开了花。如果中国不申办，这届冬奥会可能就停了。阿拉木图，只是托儿。</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3870969292218557" target="freeweibo-mirror">SPAM [黑线]</a>
 </h2>
@@ -72,7 +72,7 @@
 </h2>
 <p>SPAM //@麒哥归来: 所谓谣言就是遥遥领先的预言！//@纪昀:谣言又成真了？<br><br>RE: 潜逃未遂<br><img src="http://ww3.sinaimg.cn/large/c5ddb484jw1eumk7mkzepj20xc18gdp5.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3870921766828588" target="freeweibo-mirror">//@alm858://@修竹415://@常武知府: //…</a>
 </h2>
@@ -96,7 +96,7 @@
 </h2>
 <p>对于某些城市来说，奥运是浪费公共资源和纳税，而对于某国的城市管理者来说，那是一次饕餮盛宴！</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3870903383260658" target="freeweibo-mirror">SPAM 大家还记得去年7月15日微博上与此相关的“禁飞令”…</a>
 </h2>
