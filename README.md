@@ -96,13 +96,13 @@
 </h2>
 <p>//@cnWATERS:第二十七条　禁止任何人进入自然保护区的核心区。 第二十八条　禁止在自然保护区的缓冲区开展旅游和生产经营活动。 第三十二条　在自然保护区的核心区和缓冲区内，不得建设任何生产设施。<br><br>RE: 再呵呵<br><img src="http://ww2.sinaimg.cn/large/8403c2c6jw1eumubo3wlhj20u01hcnfh.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3870966683543032" target="freeweibo-mirror">【故事 | 被遗忘的北京奥运废止场馆】 北京奥运会是历史上唯…</a>
 </h2>
 <p>【故事 | 被遗忘的北京奥运废止场馆】 北京奥运会是历史上唯一一个“低收入国家”举办的最昂贵的奥运。北京奥运会的总投资折合美元约420亿美元，投资规模超过了奥林匹克至今108年记录所有奥运会投资的总和。——著名中国问题学家，评论家巩胜利先生如是说。http://t.cn/RL0Xule<br><img src="http://ww4.sinaimg.cn/large/544a318cjw1eumv9fl01pj206o052aac.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3870964896743014" target="freeweibo-mirror">//@珠山泉水: @互联网的淘金者:当你为申奥成功欢呼之时，…</a>
 </h2>
