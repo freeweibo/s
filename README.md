@@ -48,7 +48,7 @@
 </h2>
 <p>【就是他，就是这个人】就是他把这个囯家煽坏的！就是他指使这些坏人祸害国家的！<br><img src="http://ww1.sinaimg.cn/large/473f8cfdgw1eumsjkl0kgj206s06sglj.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3870930193194257" target="freeweibo-mirror">还有，提醒下申办的城市管理者们，历届申办成功并圆满举办结束的…</a>
 </h2>
@@ -66,7 +66,7 @@
 </h2>
 <p>邪//@平凡樵丁:转发微博</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3870925478874773" target="freeweibo-mirror">SPAM //@麒哥归来: 所谓谣言就是遥遥领先的预言！//…</a>
 </h2>
@@ -114,7 +114,7 @@
 </h2>
 <p>外媒知道的太多了//@董郎dxp:什么事都被外媒报道？[嘻嘻] //@锦江于静:外媒知道的太多了[嘻嘻] //@王有旺导演://@玲瀚: 出来，吓死你！[哈哈][哈哈][哈哈]//@学习霸王花V:中国现在的大官这样的人应该不在少数。<br><br>RE: 外媒曝郭保养十几个情妇，搜出500AV碟120本色杂志，9本伪名护照，消息称，凡是郭看上的，都有徐调入战友歌舞团、战士歌舞团、前进歌舞团、海政歌舞团等文工团工作。郭荒淫无度，并称早在2010年家财就超过百亿人民币。<br><img src="http://ww1.sinaimg.cn/large/d34e9a21jw1eum87l4u5tj207804uq3d.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3870878741493111" target="freeweibo-mirror">大国中不进行#财产公示#的国家只剩中国了。从小我们受到的教育…</a>
 </h2>
