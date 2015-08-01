@@ -42,7 +42,7 @@
 </h2>
 <p>SPAM 最幸福的选择！</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3871069594889123" target="freeweibo-mirror">北京44：阿什木图40，有这样的托吗？差4票北京就输了。</a>
 </h2>
@@ -67,6 +67,12 @@
 <p>【空缺1年的山西运城市委书记，在河南找到了人选】新任运城市委书记王宇燕，女，1966年5月生，曾任济源市市长，3月刚升任为市委书记。微评：看了下简历，这位1986年7月毕业的中专生，在职务一路晋升的同时也拥有了博士研究生学历，经济学博士学位。不过恕我直言，一直不看好“学历大跃进”的官员。<br><img src="http://ww3.sinaimg.cn/large/4969c683gw1eun5xblc75j206y09iaam.jpg"></p>
 <p>
 	<small> ============== 7小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3871044890675233" target="freeweibo-mirror">【网传求证？】据外媒报道，郭伯雄家中搜出人民币十多吨,美元近…</a>
+</h2>
+<p>【网传求证？】据外媒报道，郭伯雄家中搜出人民币十多吨,美元近1亿,金条105吨,名字画古董估值近10亿,存折300多个,金额近1800亿元人民币，它一个人就可以救两个希腊了。他们什么都要，就是脸不要！<br><img src="http://ww2.sinaimg.cn/large/8d5e6ddfjw1eun4gs8h78j20cs09raaa.jpg"></p>
+<p>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3871041337991357" target="freeweibo-mirror">//@顾则徐2011:.</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3870994252682369" target="freeweibo-mirror">SPAM 八月好运</a>
 </h2>
 <p>SPAM 八月好运</p>
-<p>
-	<small> ============== 11小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3870991090227503" target="freeweibo-mirror">扒衣見君節，我扒了，你們扒了嗎？[阴险]</a>
-</h2>
-<p>扒衣見君節，我扒了，你們扒了嗎？[阴险]<br><img src="http://ww1.sinaimg.cn/large/005yhzkmjw1eumyap1ruuj30qo0zknkb.jpg"></p>
 <p>
 	<small> ============== 12小时前</small>
 </p>
