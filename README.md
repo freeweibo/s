@@ -66,7 +66,7 @@
 </h2>
 <p>刚从朋友圈看到的，浙江的朋友小心。最好提前做好预防演练。<br><img src="http://ww1.sinaimg.cn/large/47378826jw1eumywnto0oj20dc0hswgf.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3870994252682369" target="freeweibo-mirror">SPAM 八月好运</a>
 </h2>
