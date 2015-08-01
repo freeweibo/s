@@ -24,7 +24,7 @@
 </h2>
 <p>还有，提醒下申办的城市管理者们，历届申办成功并圆满举办结束的领导，走的都挺快的。前车之鉴。<br><br>RE: 对于某些城市来说，奥运是浪费公共资源和纳税，而对于某国的城市管理者来说，那是一次饕餮盛宴！</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3870926925606358" target="freeweibo-mirror">邪//@平凡樵丁:转发微博</a>
 </h2>
@@ -60,7 +60,7 @@
 </h2>
 <p>SPAM 两只老虎，两只老虎跑得快……<br><br>RE: 潜逃未遂<br><img src="http://ww3.sinaimg.cn/large/c5ddb484jw1eumk7mkzepj20xc18gdp5.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3870897049490380" target="freeweibo-mirror">外媒知道的太多了//@董郎dxp:什么事都被外媒报道？[嘻嘻…</a>
 </h2>
