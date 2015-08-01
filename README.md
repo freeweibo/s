@@ -72,7 +72,7 @@
 </h2>
 <p>【网传求证？】据外媒报道，郭伯雄家中搜出人民币十多吨,美元近1亿,金条105吨,名字画古董估值近10亿,存折300多个,金额近1800亿元人民币，它一个人就可以救两个希腊了。他们什么都要，就是脸不要！<br><img src="http://ww2.sinaimg.cn/large/8d5e6ddfjw1eun4gs8h78j20cs09raaa.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3871041337991357" target="freeweibo-mirror">//@顾则徐2011:.</a>
 </h2>
@@ -126,7 +126,7 @@
 </h2>
 <p>SPAM  //@镰刀刮腋毛:手残银的自我安慰</p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3870996634882719" target="freeweibo-mirror">刚从朋友圈看到的，浙江的朋友小心。最好提前做好预防演练。</a>
 </h2>
