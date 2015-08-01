@@ -126,7 +126,7 @@
 </h2>
 <p>SPAM 《战斗在敌人心脏》电影名。<br><br>RE: 扒衣节慰问一下长期被敌人重兵围困的前军委胡主席。[挤眼]<br><img src="http://ww2.sinaimg.cn/large/0067hSaYjw1eumwe1y2jqj30cs08tjry.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3871005434911650" target="freeweibo-mirror">//@法治路由器:转发微博</a>
 </h2>
