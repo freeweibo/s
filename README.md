@@ -66,7 +66,7 @@
 </h2>
 <p>//@顾则徐2011:.<br><br>RE: 【幸好有个SB，否则冬奥要停了】冬奥会预计耗资500亿美元，由于耗资巨额，赛后使用率不高。今年有四个国家先后退出了申办2022年冬奥会，其中有十分富裕的国家瑞典和挪威。哈萨克斯坦的阿拉木图只是个托儿。实际上除了中国，没人对花钱赚吆喝的冬奥会感兴趣。如果中国不申办，这届冬奥会可能就停了 。转</p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3871036837485149" target="freeweibo-mirror">//@元亨利贞ITALO:这类推理，释永信们的事就得佛门来负…</a>
 </h2>
@@ -120,7 +120,7 @@
 </h2>
 <p>刚从朋友圈看到的，浙江的朋友小心。最好提前做好预防演练。<br><img src="http://ww1.sinaimg.cn/large/47378826jw1eumywnto0oj20dc0hswgf.jpg"></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3870994252682369" target="freeweibo-mirror">SPAM 八月好运</a>
 </h2>
