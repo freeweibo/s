@@ -60,13 +60,13 @@
 </h2>
 <p>SPAM 马云收的话，叫淘宝同款。马未都收的话，叫古董。建川收的话，叫抗日证据。</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3871148263450647" target="freeweibo-mirror">SPAM 让我看看新人类的都在玩什么[挖鼻屎]</a>
 </h2>
 <p>SPAM 让我看看新人类的都在玩什么[挖鼻屎]</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3871144022989671" target="freeweibo-mirror">回复@亟兮般若:藏精阁 //@亟兮般若:一条保存了十五年而且…</a>
 </h2>
