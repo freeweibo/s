@@ -48,7 +48,7 @@
 </h2>
 <p>//@元亨利贞ITALO:这类推理，释永信们的事就得佛门来负责。如此，不知佛协那里会怎么说。</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3871033570112464" target="freeweibo-mirror">【幸好有个SB，否则冬奥要停了】冬奥会预计耗资500亿美元，…</a>
 </h2>
@@ -108,7 +108,7 @@
 </h2>
 <p>扒衣見君節，我扒了，你們扒了嗎？[阴险]<br><img src="http://ww1.sinaimg.cn/large/005yhzkmjw1eumyap1ruuj30qo0zknkb.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3870979866265553" target="freeweibo-mirror">SPAM 一个男士潮流服饰分享的网站 关注@涂格网 成为潮流…</a>
 </h2>
