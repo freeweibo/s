@@ -56,6 +56,18 @@
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3870964896743014" target="freeweibo-mirror">//@珠山泉水: @互联网的淘金者:当你为申奥成功欢呼之时，…</a>
+</h2>
+<p>//@珠山泉水: @互联网的淘金者:当你为申奥成功欢呼之时，请扪心自问：你的收入增加了没有、物价降低了没有、你的食品安全了没有、你的医保社保落实了没有、你的正当利益诉求伸张了没有…如果都没有，那么申奥成功关你屁事啊！ 不过贪官们高兴了，因为又要修建大型项目，他们贪财的机<br><br>RE: 我国人民正在为申请冬奥成功欢呼雀跃时，美国人却不屑一顾，7月27日，波士顿正式毁约拒办奥运会，原因就是：纳税人不同意花钱。---逍遥评论：万恶的资本主义在邪路上越走越远，这不是给脸不要么？他们不办俺们办，气死美帝国主义。<br><img src="http://ww2.sinaimg.cn/large/71019df9jw1eumsa2p404j204g03qt8o.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3870964636665451" target="freeweibo-mirror">//@Neo最爱向阳花:诶，美帝 //@寻找海洋的暖流:美帝…</a>
+</h2>
+<p>//@Neo最爱向阳花:诶，美帝 //@寻找海洋的暖流:美帝又放弃了一个展现大国风采的机会[思考]资本主义果然堕落了[拜拜] //@演员孙海英:[哈哈]<br><br>RE: 我国人民正在为申请冬奥成功欢呼雀跃时，美国人却不屑一顾，7月27日，波士顿正式毁约拒办奥运会，原因就是：纳税人不同意花钱。---逍遥评论：万恶的资本主义在邪路上越走越远，这不是给脸不要么？他们不办俺们办，气死美帝国主义。<br><img src="http://ww2.sinaimg.cn/large/71019df9jw1eumsa2p404j204g03qt8o.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3870961847512400" target="freeweibo-mirror">//@王楚襄在赵国: [吃惊]//@崔小平律师://@王巍w…</a>
 </h2>
 <p>//@王楚襄在赵国: [吃惊]//@崔小平律师://@王巍w: 真相？<br><br>RE: 国际奥委会也要生存，也要钱，除了中国，没人对花钱赚吆喝的冬奥会感兴趣。大家避之不及的时候，中国却逆流而上，国家奥委会心里一定乐开了花。如果中国不申办，这届冬奥会可能就停了。阿拉木图，只是托儿。</p>
@@ -125,18 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3870910144539422" target="freeweibo-mirror">对于某些城市来说，奥运是浪费公共资源和纳税，而对于某国的城市…</a>
 </h2>
 <p>对于某些城市来说，奥运是浪费公共资源和纳税，而对于某国的城市管理者来说，那是一次饕餮盛宴！</p>
-<p>
-	<small> ============== 7小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3870903383260658" target="freeweibo-mirror">SPAM 大家还记得去年7月15日微博上与此相关的“禁飞令”…</a>
-</h2>
-<p>SPAM 大家还记得去年7月15日微博上与此相关的“禁飞令” //@纪昀:谣言又成真了[吃惊]<br><br>RE: 潜逃未遂<br><img src="http://ww3.sinaimg.cn/large/c5ddb484jw1eumk7mkzepj20xc18gdp5.jpg"></p>
-<p>
-	<small> ============== 7小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3870900854062854" target="freeweibo-mirror">SPAM 两只老虎，两只老虎跑得快……</a>
-</h2>
-<p>SPAM 两只老虎，两只老虎跑得快……<br><br>RE: 潜逃未遂<br><img src="http://ww3.sinaimg.cn/large/c5ddb484jw1eumk7mkzepj20xc18gdp5.jpg"></p>
 <p>
 	<small> ============== 7小时前</small>
 </p>
