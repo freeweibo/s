@@ -126,7 +126,7 @@
 </h2>
 <p>再呵呵<br><img src="http://ww2.sinaimg.cn/large/8403c2c6jw1eumubo3wlhj20u01hcnfh.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3870944298481120" target="freeweibo-mirror">国际奥委会也要生存，也要钱，除了中国，没人对花钱赚吆喝的冬奥…</a>
 </h2>
@@ -138,7 +138,7 @@
 </h2>
 <p>【就是他，就是这个人】就是他把这个囯家煽坏的！就是他指使这些坏人祸害国家的！<br><img src="http://ww1.sinaimg.cn/large/473f8cfdgw1eumsjkl0kgj206s06sglj.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p>
 <table>
     <tr>
