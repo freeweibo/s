@@ -24,7 +24,7 @@
 </h2>
 <p>SPAM 人生就像走路，背负的东西越多，走起来就越累。只有学会放下才会轻松前行，心灵的修行亦是如此，只有少装一些世俗杂念，专心做好自己的份内事才会拥有一个轻松、宽敞、明朗的空间。别在无关的人与事上费尽心机，别在小处微利上计较太多，人生无须惊天动地，快乐就好。#我是有老公的# #教主重出江湖#<br><img src="http://ww1.sinaimg.cn/large/98c1610bjw1eun9895wjxj209q064aa8.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3871085591909569" target="freeweibo-mirror">SPAM 最幸福的选择！</a>
 </h2>
@@ -96,7 +96,7 @@
 </h2>
 <p>SPAM  //@镰刀刮腋毛:手残银的自我安慰</p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3870996634882719" target="freeweibo-mirror">刚从朋友圈看到的，浙江的朋友小心。最好提前做好预防演练。</a>
 </h2>
