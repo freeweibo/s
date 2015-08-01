@@ -90,7 +90,7 @@
 </h2>
 <p>大国中不进行#财产公示#的国家只剩中国了。从小我们受到的教育是：除了人民利益，共产党人没有任何特殊利益。既然没有特殊利益，那就一定没有特殊财产，公示一下又有何妨？资本主义国家官员都普遍财产公示了，以共产主义为最高近求的社会主义大国为何不敢、不能进行财产公示？<br><img src="http://ww1.sinaimg.cn/large/005uQjJUjw1eum2s4cstij30hs0dt40f.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3870869018905850" target="freeweibo-mirror">潜逃未遂</a>
 </h2>
