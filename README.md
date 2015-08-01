@@ -32,6 +32,30 @@
 <p>
 	<small> ============== 1小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3870918230778408" target="freeweibo-mirror">让部分群体实现共产主义//@天圆地方3511E: //@流血…</a>
+</h2>
+<p>让部分群体实现共产主义//@天圆地方3511E: //@流血功臣在流泪//@段子女作家:央视24小时炒作美国警察暴力执法，让美国民众对着镜头骂本国政府。但可笑的是，它对发生在中国的暴力执法视而不见，更不敢让中国人对着镜头直抒胸臆。如果那些美国人来到中国，就知道不是每个国家的<br><br>RE: 大国中不进行#财产公示#的国家只剩中国了。从小我们受到的教育是：除了人民利益，共产党人没有任何特殊利益。既然没有特殊利益，那就一定没有特殊财产，公示一下又有何妨？资本主义国家官员都普遍财产公示了，以共产主义为最高近求的社会主义大国为何不敢、不能进行财产公示？<br><img src="http://ww1.sinaimg.cn/large/005uQjJUjw1eum2s4cstij30hs0dt40f.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3870903383260658" target="freeweibo-mirror">SPAM 大家还记得去年7月15日微博上与此相关的“禁飞令”…</a>
+</h2>
+<p>SPAM 大家还记得去年7月15日微博上与此相关的“禁飞令” //@纪昀:谣言又成真了[吃惊]<br><br>RE: 潜逃未遂<br><img src="http://ww3.sinaimg.cn/large/c5ddb484jw1eumk7mkzepj20xc18gdp5.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3870900854062854" target="freeweibo-mirror">SPAM 两只老虎，两只老虎跑得快……</a>
+</h2>
+<p>SPAM 两只老虎，两只老虎跑得快……<br><br>RE: 潜逃未遂<br><img src="http://ww3.sinaimg.cn/large/c5ddb484jw1eumk7mkzepj20xc18gdp5.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3870878741493111" target="freeweibo-mirror">大国中不进行#财产公示#的国家只剩中国了。从小我们受到的教育…</a>
+</h2>
+<p>大国中不进行#财产公示#的国家只剩中国了。从小我们受到的教育是：除了人民利益，共产党人没有任何特殊利益。既然没有特殊利益，那就一定没有特殊财产，公示一下又有何妨？资本主义国家官员都普遍财产公示了，以共产主义为最高近求的社会主义大国为何不敢、不能进行财产公示？<br><img src="http://ww1.sinaimg.cn/large/005uQjJUjw1eum2s4cstij30hs0dt40f.jpg"></p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3870831740369316" target="freeweibo-mirror">SPAM 服了</a>
 </h2>
 <p>SPAM 服了<br><br>RE: 去年7月14日下午，有人男扮女装、使用假护照，被海关截住。空中管制、取消航班，超过100班往返上海、北京的航班大量延误，部份甚至取消。后来微博都被删了。现在已经正式开除党籍移送司法了，这事儿能说了吗？<br><img src="http://ww2.sinaimg.cn/large/51c21d10gw1eumeftl0eyj20hs0a076f.jpg"></p>
@@ -115,30 +139,6 @@
 <p>最美被拐女教师算什么，你忘了“八千湘女上天山”英国《泰晤士报》刊登了过一篇报道说一批老年妇女出面讲述，当年她们是如何被虚假的培训和教育承诺引诱去中国的新边疆，结果发现自己被关在军营里，被强制与军人结婚。 http://t.cn/RLp0Mw0</p>
 <p>
 	<small> ============== 8小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3870813075630462" target="freeweibo-mirror">SPAM 在贵阳收到的一张纸币 http://t.cn/RL…</a>
-</h2>
-<p>SPAM 在贵阳收到的一张纸币 http://t.cn/RL0ZcQc<br><img src="http://ww1.sinaimg.cn/large/48dcce8egw1eumdtwk4ymj236o2e0qva.jpg"></p>
-<p>
-	<small> ============== 9小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3870810026307612" target="freeweibo-mirror">还有，毁坏珍稀植物，国际奥委会首先就不答应！当人家是摆设啊/…</a>
-</h2>
-<p>还有，毁坏珍稀植物，国际奥委会首先就不答应！当人家是摆设啊//@终南刺青: 是京张冬奥，不是北京冬奥。。//@释不归: 假的！ //@罗罗被盛夏的果实迷晕了:@释不归 真的假的？///@Haruko-Nakajima:以破坏生态环境为代价，成就了的面子也是纸糊的，可悲可笑<br><br>RE: 这条被屏蔽了，看来是真的了<br><img src="http://ww1.sinaimg.cn/large/5307c0bcjw1eumatozc2mj20ku112jx0.jpg"></p>
-<p>
-	<small> ============== 9小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3870809711788097" target="freeweibo-mirror">SPAM 谁申请的[疑问]</a>
-</h2>
-<p>SPAM 谁申请的[疑问]</p>
-<p>
-	<small> ============== 9小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3870809250082040" target="freeweibo-mirror">是京张冬奥，不是北京冬奥。。//@释不归: 假的！ //@罗…</a>
-</h2>
-<p>是京张冬奥，不是北京冬奥。。//@释不归: 假的！ //@罗罗被盛夏的果实迷晕了:@释不归 真的假的？///@Haruko-Nakajima:以破坏生态环境为代价，成就了的面子也是纸糊的，可悲可笑<br><br>RE: 这条被屏蔽了，看来是真的了<br><img src="http://ww1.sinaimg.cn/large/5307c0bcjw1eumatozc2mj20ku112jx0.jpg"></p>
-<p>
-	<small> ============== 9小时前</small>
 </p>
 <table>
     <tr>
