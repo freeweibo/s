@@ -114,7 +114,7 @@
 </h2>
 <p>SPAM 最幸福的选择！</p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3871069594889123" target="freeweibo-mirror">北京44：阿什木图40，有这样的托吗？差4票北京就输了。</a>
 </h2>
