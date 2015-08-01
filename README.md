@@ -30,7 +30,7 @@
 </h2>
 <p>有网友说今晨发的另一条微博看不到了，小秘书，您们辛苦了，大周末都起这么早。<br><img src="http://ww1.sinaimg.cn/large/e6c45c70gw1eumr9l5r5aj20h20citc1.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3870926925606358" target="freeweibo-mirror">邪//@平凡樵丁:转发微博</a>
 </h2>
@@ -96,7 +96,7 @@
 </h2>
 <p>潜逃未遂<br><img src="http://ww3.sinaimg.cn/large/c5ddb484jw1eumk7mkzepj20xc18gdp5.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3870831740369316" target="freeweibo-mirror">SPAM 服了</a>
 </h2>
