@@ -24,7 +24,7 @@
 </h2>
 <p>SPAM 一个男士潮流服饰分享的网站 关注@涂格网 成为潮流达人</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3870970454258385" target="freeweibo-mirror">還我錢 //@大势将至:[哈哈]其实，土鳖集团也有自己的小算…</a>
 </h2>
