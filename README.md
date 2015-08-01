@@ -138,7 +138,7 @@
 </h2>
 <p>//@cnWATERS:第二十七条　禁止任何人进入自然保护区的核心区。 第二十八条　禁止在自然保护区的缓冲区开展旅游和生产经营活动。 第三十二条　在自然保护区的核心区和缓冲区内，不得建设任何生产设施。<br><br>RE: 再呵呵<br><img src="http://ww2.sinaimg.cn/large/8403c2c6jw1eumubo3wlhj20u01hcnfh.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p>
 <table>
     <tr>
