@@ -96,7 +96,7 @@
 </h2>
 <p>SPAM [哼]<br><br>RE: 问亲们一个医学问题，高位截瘫患者能够翘起二郎腿吗？有治愈的可能吗？[思考]照片是刚从朋友圈看来的。<br><img src="http://ww4.sinaimg.cn/large/656fc2e0jw1eun558uh9xj20hs0noq70.jpg"></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3871135710005617" target="freeweibo-mirror">//@难得糊涂在香港:建议捐赠国家历史博物馆珍藏！</a>
 </h2>
