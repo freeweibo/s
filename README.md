@@ -24,7 +24,7 @@
 </h2>
 <p>你还别说，现在这种剧本，最后被肯定的还只有大妓院版本。忘了BXL剧本了？ //@不沉默的大多数:所谓外媒原来就是轮子[哈哈]  连境外稍有常识的网站都不屑转。</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3871189900406908" target="freeweibo-mirror">//@lf9988二世://@huangtinghua_网易…</a>
 </h2>
