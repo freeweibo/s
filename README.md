@@ -24,7 +24,7 @@
 </h2>
 <p>SPAM 让我看看新人类的都在玩什么[挖鼻屎]</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3871093343366797" target="freeweibo-mirror">SPAM 。。。。</a>
 </h2>
@@ -66,7 +66,7 @@
 </h2>
 <p>【空缺1年的山西运城市委书记，在河南找到了人选】新任运城市委书记王宇燕，女，1966年5月生，曾任济源市市长，3月刚升任为市委书记。微评：看了下简历，这位1986年7月毕业的中专生，在职务一路晋升的同时也拥有了博士研究生学历，经济学博士学位。不过恕我直言，一直不看好“学历大跃进”的官员。<br><img src="http://ww3.sinaimg.cn/large/4969c683gw1eun5xblc75j206y09iaam.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3871044890675233" target="freeweibo-mirror">【网传求证？】据外媒报道，郭伯雄家中搜出人民币十多吨,美元近…</a>
 </h2>
