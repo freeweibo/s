@@ -54,7 +54,7 @@
 </h2>
 <p>//@cnWATERS:第二十七条　禁止任何人进入自然保护区的核心区。 第二十八条　禁止在自然保护区的缓冲区开展旅游和生产经营活动。 第三十二条　在自然保护区的核心区和缓冲区内，不得建设任何生产设施。<br><br>RE: 再呵呵<br><img src="http://ww2.sinaimg.cn/large/8403c2c6jw1eumubo3wlhj20u01hcnfh.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3870964896743014" target="freeweibo-mirror">//@珠山泉水: @互联网的淘金者:当你为申奥成功欢呼之时，…</a>
 </h2>
@@ -126,7 +126,7 @@
 </h2>
 <p>//@alm858://@修竹415://@常武知府: //@何时会天明4://@我哭中华:谣言百个牛逼将军被抓..以后慢慢登台//@纪昀: 谣言又成真了[吃惊]<br><br>RE: 潜逃未遂<br><img src="http://ww3.sinaimg.cn/large/c5ddb484jw1eumk7mkzepj20xc18gdp5.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3870918230778408" target="freeweibo-mirror">让部分群体实现共产主义//@天圆地方3511E: //@流血…</a>
 </h2>
