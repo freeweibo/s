@@ -60,7 +60,7 @@
 </h2>
 <p>国际奥委会也要生存，也要钱，除了中国，没人对花钱赚吆喝的冬奥会感兴趣。大家避之不及的时候，中国却逆流而上，国家奥委会心里一定乐开了花。如果中国不申办，这届冬奥会可能就停了。阿拉木图，只是托儿。</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3870941920204969" target="freeweibo-mirror">【就是他，就是这个人】就是他把这个囯家煽坏的！就是他指使这些…</a>
 </h2>
@@ -78,7 +78,7 @@
 </h2>
 <p>有网友说今晨发的另一条微博看不到了，小秘书，您们辛苦了，大周末都起这么早。<br><img src="http://ww1.sinaimg.cn/large/e6c45c70gw1eumr9l5r5aj20h20citc1.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3870926925606358" target="freeweibo-mirror">邪//@平凡樵丁:转发微博</a>
 </h2>
