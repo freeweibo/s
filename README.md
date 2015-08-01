@@ -126,7 +126,7 @@
 </h2>
 <p>SPAM 算是世界军事史上的奇闻//@醉翁: 操。不能说！<br><br>RE: 去年7月14日下午，有人男扮女装、使用假护照，被海关截住。空中管制、取消航班，超过100班往返上海、北京的航班大量延误，部份甚至取消。后来微博都被删了。现在已经正式开除党籍移送司法了，这事儿能说了吗？<br><img src="http://ww2.sinaimg.cn/large/51c21d10gw1eumeftl0eyj20hs0a076f.jpg"></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3870827411689726" target="freeweibo-mirror">SPAM 操。不能说！</a>
 </h2>
