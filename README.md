@@ -20,11 +20,17 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3870930193194257" target="freeweibo-mirror">还有，提醒下申办的城市管理者们，历届申办成功并圆满举办结束的…</a>
+</h2>
+<p>还有，提醒下申办的城市管理者们，历届申办成功并圆满举办结束的领导，走的都挺快的。前车之鉴。<br><br>RE: 对于某些城市来说，奥运是浪费公共资源和纳税，而对于某国的城市管理者来说，那是一次饕餮盛宴！</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3870925478874773" target="freeweibo-mirror">SPAM //@麒哥归来: 所谓谣言就是遥遥领先的预言！//…</a>
 </h2>
 <p>SPAM //@麒哥归来: 所谓谣言就是遥遥领先的预言！//@纪昀:谣言又成真了？<br><br>RE: 潜逃未遂<br><img src="http://ww3.sinaimg.cn/large/c5ddb484jw1eumk7mkzepj20xc18gdp5.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3870921766828588" target="freeweibo-mirror">//@alm858://@修竹415://@常武知府: //…</a>
 </h2>
@@ -53,6 +59,12 @@
 	<a href="https://freeweibo.com/weibo/3870878741493111" target="freeweibo-mirror">大国中不进行#财产公示#的国家只剩中国了。从小我们受到的教育…</a>
 </h2>
 <p>大国中不进行#财产公示#的国家只剩中国了。从小我们受到的教育是：除了人民利益，共产党人没有任何特殊利益。既然没有特殊利益，那就一定没有特殊财产，公示一下又有何妨？资本主义国家官员都普遍财产公示了，以共产主义为最高近求的社会主义大国为何不敢、不能进行财产公示？<br><img src="http://ww1.sinaimg.cn/large/005uQjJUjw1eum2s4cstij30hs0dt40f.jpg"></p>
+<p>
+	<small> ============== 5小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3870869018905850" target="freeweibo-mirror">潜逃未遂</a>
+</h2>
+<p>潜逃未遂<br><img src="http://ww3.sinaimg.cn/large/c5ddb484jw1eumk7mkzepj20xc18gdp5.jpg"></p>
 <p>
 	<small> ============== 5小时前</small>
 </p><h2>
@@ -120,23 +132,11 @@
 </h2>
 <p>正能量鼻祖[糖宝惊呆了]//@Coffe_cup: 成人片？</p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3870818314303346" target="freeweibo-mirror">去年7月14日下午，有人男扮女装、使用假护照，被海关截住。空…</a>
 </h2>
 <p>去年7月14日下午，有人男扮女装、使用假护照，被海关截住。空中管制、取消航班，超过100班往返上海、北京的航班大量延误，部份甚至取消。后来微博都被删了。现在已经正式开除党籍移送司法了，这事儿能说了吗？<br><img src="http://ww2.sinaimg.cn/large/51c21d10gw1eumeftl0eyj20hs0a076f.jpg"></p>
-<p>
-	<small> ============== 9小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3870818288895981" target="freeweibo-mirror">1952年，在新疆举行欢迎入疆湘女的大会上，王震鼓励她们说：…</a>
-</h2>
-<p>1952年，在新疆举行欢迎入疆湘女的大会上，王震鼓励她们说：“同志们，你们要安心边疆，扎根边疆，要为新疆人民大办好事，要把你们的骨头埋在天山脚下……”他的话还没讲完，台下的秩序就乱了，因为大家原以为参军两三年后就可以转业回湖南老家的<br><br>RE: 最美被拐女教师算什么，你忘了“八千湘女上天山”英国《泰晤士报》刊登了过一篇报道说一批老年妇女出面讲述，当年她们是如何被虚假的培训和教育承诺引诱去中国的新边疆，结果发现自己被关在军营里，被强制与军人结婚。 http://t.cn/RLp0Mw0</p>
-<p>
-	<small> ============== 9小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3870817198638659" target="freeweibo-mirror">最美被拐女教师算什么，你忘了“八千湘女上天山”英国《泰晤士报…</a>
-</h2>
-<p>最美被拐女教师算什么，你忘了“八千湘女上天山”英国《泰晤士报》刊登了过一篇报道说一批老年妇女出面讲述，当年她们是如何被虚假的培训和教育承诺引诱去中国的新边疆，结果发现自己被关在军营里，被强制与军人结婚。 http://t.cn/RLp0Mw0</p>
 <p>
 	<small> ============== 9小时前</small>
 </p>
