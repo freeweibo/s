@@ -92,6 +92,12 @@
 <p>
 	<small> ============== 8小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3871050766770351" target="freeweibo-mirror">问亲们一个医学问题，高位截瘫患者能够翘起二郎腿吗？有治愈的可…</a>
+</h2>
+<p>问亲们一个医学问题，高位截瘫患者能够翘起二郎腿吗？有治愈的可能吗？[思考]照片是刚从朋友圈看来的。<br><img src="http://ww4.sinaimg.cn/large/656fc2e0jw1eun558uh9xj20hs0noq70.jpg"></p>
+<p>
+	<small> ============== 9小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3871044890675233" target="freeweibo-mirror">【网传求证？】据外媒报道，郭伯雄家中搜出人民币十多吨,美元近…</a>
 </h2>
 <p>【网传求证？】据外媒报道，郭伯雄家中搜出人民币十多吨,美元近1亿,金条105吨,名字画古董估值近10亿,存折300多个,金额近1800亿元人民币，它一个人就可以救两个希腊了。他们什么都要，就是脸不要！<br><img src="http://ww2.sinaimg.cn/large/8d5e6ddfjw1eun4gs8h78j20cs09raaa.jpg"></p>
@@ -108,7 +114,7 @@
 </h2>
 <p>//@元亨利贞ITALO:这类推理，释永信们的事就得佛门来负责。如此，不知佛协那里会怎么说。</p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3871033570112464" target="freeweibo-mirror">【幸好有个SB，否则冬奥要停了】冬奥会预计耗资500亿美元，…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3871005283600738" target="freeweibo-mirror">SPAM 竟然不是十字架们要报复。</a>
 </h2>
 <p>SPAM 竟然不是十字架们要报复。<br><br>RE: 刚从朋友圈看到的，浙江的朋友小心。最好提前做好预防演练。<br><img src="http://ww1.sinaimg.cn/large/47378826jw1eumywnto0oj20dc0hswgf.jpg"></p>
-<p>
-	<small> ============== 12小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3871004906187614" target="freeweibo-mirror">大英帝国伦敦奥运会花了多少钱开着？造谣能不能造的像真的一点</a>
-</h2>
-<p>大英帝国伦敦奥运会花了多少钱开着？造谣能不能造的像真的一点</p>
 <p>
 	<small> ============== 12小时前</small>
 </p>
