@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3871431277967458" target="freeweibo-mirror">靠，太有时代特色了！</a>
+</h2>
+<p>靠，太有时代特色了！<br><br>RE: 中国的自由女神……？！<br><img src="http://ww4.sinaimg.cn/large/006b026Wgw1euoawo4vs0j309o0cbaa9.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3871409761661855" target="freeweibo-mirror">SPAM 回复@廖盛光:哪里说真的？//@廖盛光:原來是真的</a>
 </h2>
 <p>SPAM 回复@廖盛光:哪里说真的？//@廖盛光:原來是真的<br><br>RE: 前最高院首席大法官自首了？！<br><img src="http://ww2.sinaimg.cn/large/4c148083jw1euo60m65uaj20f00qoace.jpg"></p>
@@ -30,7 +36,7 @@
 </h2>
 <p>SPAM ？？//@北京刑事律师张雨:求辟谣！<br><br>RE: 前最高院首席大法官自首了？！<br><img src="http://ww2.sinaimg.cn/large/4c148083jw1euo60m65uaj20f00qoace.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3871404208268634" target="freeweibo-mirror">SPAM 真的不容易//@大地2125: 不容易啊 //@雨…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3871332930264724" target="freeweibo-mirror">奧巴馬在哈佛演讲时说：20年后，中国将成为全球最穷国家。他的…</a>
 </h2>
 <p>奧巴馬在哈佛演讲时说：20年后，中国将成为全球最穷国家。他的依据是：1.中国90%的高官家属和80%的富豪已申请移民，或有移民意愿。2.中国人不了解他们应该对国家和社会所承担的责任和义务。3.大众过去是权力的奴隶，演变为金钱的奴隶。4.肆无忌惮地对环境的破坏 对资源的掠夺... http://t.cn/RLOlUON<br><img src="http://ww2.sinaimg.cn/large/72ae17c5gw1euo1jpyij0j20f90dndh6.jpg"></p>
-<p>
-	<small> ============== 7小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3871329923056005" target="freeweibo-mirror">//@戎戎新日记://@礼江美鱼: //@白发萧萧小律师:转…</a>
-</h2>
-<p>//@戎戎新日记://@礼江美鱼: //@白发萧萧小律师:转发微博<br><br>RE: 奥委会自己明白，现在肯申奥，并且申得起的国家，大多都是独裁国家了，民主国家玩这个，政府一定会遇到抵制。而专政政权不会有抵制，又喜欢用大型活动装点门面，所以他们是奥委会最好的客户。奥运精神正在因奥委会的愚蠢走向死亡。奥运会逐渐沦为专政政府的充气娃娃。<br><img src="http://ww3.sinaimg.cn/large/006arOeBjw1eunhkmkq5dj30dv0fc76u.jpg"></p>
 <p>
 	<small> ============== 8小时前</small>
 </p>
