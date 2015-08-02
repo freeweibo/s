@@ -90,7 +90,7 @@
 </h2>
 <p>SPAM 什么玩意儿？！[怒]</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3871526505756240" target="freeweibo-mirror">SPAM [怒][怒][怒][怒骂][怒骂][怒骂][弱][…</a>
 </h2>
