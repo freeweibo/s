@@ -42,13 +42,13 @@
 </h2>
 <p>SPAM 左右逢敌，前后夹攻！<br><br>RE: 蛙政25年！<br><img src="http://ww1.sinaimg.cn/large/51834496jw1eunt0pfoyyj20k00gtdhw.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3871322460989511" target="freeweibo-mirror">SPAM  //@水兵李铭:这次还拿奥运梦当理由？为捞钱吧！…</a>
 </h2>
 <p>SPAM  //@水兵李铭:这次还拿奥运梦当理由？为捞钱吧！ //@教育不是忽悠人:现在谁在做百年奥运梦？和中国梦是什么关系？//@易水寒凌://@星夜_霓虹: //@水兵李铭://@文盲李世威:替你圆百年奥运梦怎么可能跟你没关系呢？<br><br>RE: 【有网友认为冬奥申办成功和大家没关系】——怎么会没关系呢？要盖场馆吧？要盖奥运村吧，要修路吧？要买器械吧……甚至志愿者统一的服装要生产吧？而且各国运动员的机票伙食是不是又免费呢？这些钱谁出？国家？国家哪来的钱？不信，看这几年的物价吧。（@柳林青医）<br><img src="http://ww1.sinaimg.cn/large/0062Ci3Xgw1eunk4jerplj30c80qvaau.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3871320368372755" target="freeweibo-mirror">SPAM http://t.cn/RLO040i</a>
 </h2>
