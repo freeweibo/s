@@ -26,6 +26,12 @@
 <p>
 	<small> ============== 1小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3871383555434262" target="freeweibo-mirror">放心，咱们有办法对付。不是说奥巴马他哥在深圳打工么？//@急…</a>
+</h2>
+<p>放心，咱们有办法对付。不是说奥巴马他哥在深圳打工么？//@急煞人也:[哈哈] //@李不白的空间:[哈哈]//@纪昀:[哈哈]<br><br>RE: 孙子兵法36计，奥巴马才有6计，弱爆了…… 所以，@杨子评 的微博应该被删。哼！<br><img src="http://ww1.sinaimg.cn/large/9ddb72ebjw1euo3j7avwsj20hs0gc0v6.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3871364274396416" target="freeweibo-mirror">//@三俗大哥://@纪昀: [哈哈]//@杨子评: 看来随…</a>
 </h2>
 <p>//@三俗大哥://@纪昀: [哈哈]//@杨子评: 看来随便使出一计，就击垮了“三个自信”[挤眼]<br><br>RE: 孙子兵法36计，奥巴马才有6计，弱爆了…… 所以，@杨子评 的微博应该被删。哼！<br><img src="http://ww1.sinaimg.cn/large/9ddb72ebjw1euo3j7avwsj20hs0gc0v6.jpg"></p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3871322460989511" target="freeweibo-mirror">SPAM  //@水兵李铭:这次还拿奥运梦当理由？为捞钱吧！…</a>
 </h2>
 <p>SPAM  //@水兵李铭:这次还拿奥运梦当理由？为捞钱吧！ //@教育不是忽悠人:现在谁在做百年奥运梦？和中国梦是什么关系？//@易水寒凌://@星夜_霓虹: //@水兵李铭://@文盲李世威:替你圆百年奥运梦怎么可能跟你没关系呢？<br><br>RE: 【有网友认为冬奥申办成功和大家没关系】——怎么会没关系呢？要盖场馆吧？要盖奥运村吧，要修路吧？要买器械吧……甚至志愿者统一的服装要生产吧？而且各国运动员的机票伙食是不是又免费呢？这些钱谁出？国家？国家哪来的钱？不信，看这几年的物价吧。（@柳林青医）<br><img src="http://ww1.sinaimg.cn/large/0062Ci3Xgw1eunk4jerplj30c80qvaau.jpg"></p>
-<p>
-	<small> ============== 5小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3871320368372755" target="freeweibo-mirror">SPAM http://t.cn/RLO040i</a>
-</h2>
-<p>SPAM http://t.cn/RLO040i</p>
 <p>
 	<small> ============== 5小时前</small>
 </p>
