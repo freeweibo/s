@@ -44,11 +44,35 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3871455336900883" target="freeweibo-mirror">2011年有人文辟谣与质疑：《 辛子陵造谣：竟敢造到党中央领…</a>
+</h2>
+<p>2011年有人文辟谣与质疑：《 辛子陵造谣：竟敢造到党中央领导人头上 》 http://t.cn/zOzAPJA</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3871454686856900" target="freeweibo-mirror">2011年5月19日上午10时30分市纪委李锋处长、国防大学…</a>
+</h2>
+<p>2011年5月19日上午10时30分市纪委李锋处长、国防大学政治部纪检处刘德伟处长与我进行第四次谈话。刘德伟处长告知：“以后不要再提179号决议（毛泽东思想不列入），没有那个事。”这件事牵涉问题很大，有紧急情况请示报告。 http://t.cn/8F7fdeP</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3871451088057990" target="freeweibo-mirror">辛子陵的书一般在香港出版，《千秋功罪毛泽东》 http://…</a>
+</h2>
+<p>辛子陵的书一般在香港出版，《千秋功罪毛泽东》 http://t.cn/RLWznIZ  谢韬为这本书写的序：“只有民主社会主义才能救中国” ，李锐给这本书写的序言的提法是“功劳盖世，罪恶滔天”。…另一本书 《红太阳的陨落 》茅于轼做序，妖魔化毛泽东。 http://t.cn/aog2Mj</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3871448864810101" target="freeweibo-mirror">@东谈西扯 发的图，原始出处链接是这个吧… http://t…</a>
+</h2>
+<p>@东谈西扯 发的图，原始出处链接是这个吧… http://t.cn/zjgpldS  （ ——辛子陵接受《新史记》特约记者高伐林专访）： 刘华清去年临终时建议撤销毛主席纪念堂。 中共党史修订，最重要的一点是彻底否定文革，承认大跃进中饿死了1000万人………这不是扯淡造谣吗……<br><img src="http://ww2.sinaimg.cn/large/43712f7djw1euoeqhiqd7j20dc0m8adf.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3871448613151435" target="freeweibo-mirror">抓一个老虎，可办5把，有啥大不了的//@肉末豆腐:转发微博</a>
 </h2>
 <p>抓一个老虎，可办5把，有啥大不了的//@肉末豆腐:转发微博<br><br>RE: 北京申办奥运会的经费2000万美元，举办费用15亿人民币，修建新的场馆，7年中需要130～160亿人民币。到如今，除了水立方和鸟巢等一些大型场馆在支撑门面以外，很多场馆人迹罕至荒草凄凄，难道这就是造福人民？<br><img src="http://ww2.sinaimg.cn/large/0068nRymjw1euo0msxd3nj30ku0dmwg5.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3871447128391868" target="freeweibo-mirror">姑且不论是否属实，话说一条带精的内裤能保存15年，确实也很不…</a>
 </h2>
@@ -65,6 +89,12 @@
 	<a href="https://freeweibo.com/weibo/3871436764169539" target="freeweibo-mirror">SPAM 横店帝国//@东四郎:奥黑吓得大姨妈来了！[挖鼻]…</a>
 </h2>
 <p>SPAM 横店帝国//@东四郎:奥黑吓得大姨妈来了！[挖鼻]//@大力水手AAA: 听说安倍还尿裤子了[太开心]//@scarlett冰与火: 这个我得问问@Rose_芙蓉 你们日本人有没有崩溃[哈哈] //@冷俊123:日本也大容易崩溃了。</p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3871435950422511" target="freeweibo-mirror">盛会的另一面。 //@演员孙海英:转发微博</a>
+</h2>
+<p>盛会的另一面。 //@演员孙海英:转发微博<br><br>RE: 北京申办奥运会的经费2000万美元，举办费用15亿人民币，修建新的场馆，7年中需要130～160亿人民币。到如今，除了水立方和鸟巢等一些大型场馆在支撑门面以外，很多场馆人迹罕至荒草凄凄，难道这就是造福人民？<br><img src="http://ww2.sinaimg.cn/large/0068nRymjw1euo0msxd3nj30ku0dmwg5.jpg"></p>
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
@@ -109,36 +139,6 @@
 <p>SPAM 回复@廖盛光:哪里说真的？//@廖盛光:原來是真的<br><br>RE: 前最高院首席大法官自首了？！<br><img src="http://ww2.sinaimg.cn/large/4c148083jw1euo60m65uaj20f00qoace.jpg"></p>
 <p>
 	<small> ============== 5小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3871408406655160" target="freeweibo-mirror">SPAM ？？//@北京刑事律师张雨:求辟谣！</a>
-</h2>
-<p>SPAM ？？//@北京刑事律师张雨:求辟谣！<br><br>RE: 前最高院首席大法官自首了？！<br><img src="http://ww2.sinaimg.cn/large/4c148083jw1euo60m65uaj20f00qoace.jpg"></p>
-<p>
-	<small> ============== 5小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3871404208268634" target="freeweibo-mirror">SPAM 真的不容易//@大地2125: 不容易啊 //@雨…</a>
-</h2>
-<p>SPAM 真的不容易//@大地2125: 不容易啊 //@雨农谈股:→_→ //@黑色金光://@郭洪钧: 出污泥而不染，掌国计而不管，行大义而不软，退三舍而不喘。不左不右的不倒翁才不被看扁！[哈哈][哈哈][哈哈]</p>
-<p>
-	<small> ============== 5小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3871402807432264" target="freeweibo-mirror">今年内一曾一贾会谢幕吗？ //@闵玉平:有样子庆亲王快了。 …</a>
-</h2>
-<p>今年内一曾一贾会谢幕吗？ //@闵玉平:有样子庆亲王快了。 //@陈茂来-:一笔交易就侵吞国有资产700亿；一出手买房，金额就达澳大利亚历史第三！我们除了惊叹，还能做什么？//@敏奇微博:[围观]</p>
-<p>
-	<small> ============== 6小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3871400324493492" target="freeweibo-mirror">SPAM 站起来说话。</a>
-</h2>
-<p>SPAM 站起来说话。<br><br>RE: #本镇动态#近日，天津中考结果已公布。上午的细雨中，一些家长在市教委门口儿跪着请愿。据悉，今年天津中考要求家长给孩子填报七到八个志愿，有的家长不希望孩子最后落到低档的差校，只给孩子填报了四五个志愿。结果公布后，因为填报志愿等问题，一些中考生成了”死档“，面临无学可上窘境。图自网络。<br><img src="http://ww1.sinaimg.cn/large/5d7ca92cjw1euo4qnobddj20c809fq44.jpg"></p>
-<p>
-	<small> ============== 6小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3871397920744265" target="freeweibo-mirror">《争鸣》：公安部传召曾伟</a>
-</h2>
-<p>《争鸣》：公安部传召曾伟<br><img src="http://ww2.sinaimg.cn/large/006broxmjw1euo8zvi9vcj30cc0ctgo1.jpg"></p>
-<p>
-	<small> ============== 6小时前</small>
 </p>
 <table>
     <tr>
