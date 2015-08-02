@@ -54,13 +54,13 @@
 </h2>
 <p>SPAM //@华胜天: //@张锦宏律师:都是裤衩惹得祸？</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3871150557638739" target="freeweibo-mirror">SPAM 没脸</a>
 </h2>
 <p>SPAM 没脸</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3871149622509165" target="freeweibo-mirror">看来武当峨眉崆峒等门派应该召集一次武林大会了，江湖血雨腥风在…</a>
 </h2>
