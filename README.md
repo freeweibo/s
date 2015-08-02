@@ -30,13 +30,13 @@
 </h2>
 <p>//@微言萤光-: //@豪放的先知先觉007:面纱终于揭开了，独裁从来没有宪法这个概念//@夏岚馨:翻译成大白话就是：将“以党治国”插入法律。</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3871335069461729" target="freeweibo-mirror">芮成钢、叶迎春、沈冰等都是净者了。//@530涅槃重生17:…</a>
 </h2>
 <p>芮成钢、叶迎春、沈冰等都是净者了。//@530涅槃重生17: 据说央屎是净土[挖鼻]//@海龙-梁楠: //@胡不谈: 转发微博</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3871329923056005" target="freeweibo-mirror">//@戎戎新日记://@礼江美鱼: //@白发萧萧小律师:转…</a>
 </h2>
@@ -102,7 +102,7 @@
 </h2>
 <p>蛙政25年！<br><img src="http://ww1.sinaimg.cn/large/51834496jw1eunt0pfoyyj20k00gtdhw.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3871202403470213" target="freeweibo-mirror">你还别说，现在这种剧本，最后被肯定的还只有大妓院版本。忘了B…</a>
 </h2>
