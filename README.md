@@ -26,6 +26,24 @@
 <p>
 	<small> ============== 1小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3871340870188892" target="freeweibo-mirror">SPAM //@李不白的空间: //@法律及其价值://@大…</a>
+</h2>
+<p>SPAM //@李不白的空间: //@法律及其价值://@大力水手AAA://@刘力博士: //@小人物0529:临时抱佛脚，有用么？你不是坚定地无神论者吗？入党誓言全忘了？</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3871340811160635" target="freeweibo-mirror">生活节俭，令人 感动！[泪][泪][泪]</a>
+</h2>
+<p>生活节俭，令人 感动！[泪][泪][泪]</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3871339028679866" target="freeweibo-mirror">SPAM //@亮剑兄来了://@法律及其价值://@大力水…</a>
+</h2>
+<p>SPAM //@亮剑兄来了://@法律及其价值://@大力水手AAA://@刘力博士: //@小人物0529:临时抱佛脚，有用么？你不是坚定地无神论者吗？入党誓言全忘了？</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3871335123787752" target="freeweibo-mirror">//@微言萤光-: //@豪放的先知先觉007:面纱终于揭开…</a>
 </h2>
 <p>//@微言萤光-: //@豪放的先知先觉007:面纱终于揭开了，独裁从来没有宪法这个概念//@夏岚馨:翻译成大白话就是：将“以党治国”插入法律。</p>
@@ -41,6 +59,12 @@
 	<a href="https://freeweibo.com/weibo/3871329923056005" target="freeweibo-mirror">//@戎戎新日记://@礼江美鱼: //@白发萧萧小律师:转…</a>
 </h2>
 <p>//@戎戎新日记://@礼江美鱼: //@白发萧萧小律师:转发微博<br><br>RE: 奥委会自己明白，现在肯申奥，并且申得起的国家，大多都是独裁国家了，民主国家玩这个，政府一定会遇到抵制。而专政政权不会有抵制，又喜欢用大型活动装点门面，所以他们是奥委会最好的客户。奥运精神正在因奥委会的愚蠢走向死亡。奥运会逐渐沦为专政政府的充气娃娃。<br><img src="http://ww3.sinaimg.cn/large/006arOeBjw1eunhkmkq5dj30dv0fc76u.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3871328383723498" target="freeweibo-mirror">SPAM 回复@林小篆谁会爱他的灵魂:不会比趋炎附势的劝进更…</a>
+</h2>
+<p>SPAM 回复@林小篆谁会爱他的灵魂:不会比趋炎附势的劝进更恶心吧[哈哈]//@林小篆谁会爱他的灵魂:现在是那么恶心j了//@不沉默的大多数:办公室主任也是别人计划的？是否强，看整事，不看整人。//@陶景洲:弱帝...  //@燕小小云:涛哥不容易</p>
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
@@ -84,7 +108,19 @@
 </h2>
 <p>SPAM http://t.cn/RLO040i</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3871319281768282" target="freeweibo-mirror">//@小时在行走: 家里有多少钱才佩说这话//@林春增: […</a>
+</h2>
+<p>//@小时在行走: 家里有多少钱才佩说这话//@林春增: [赞][赞]//@jx天民: [心][握手]//@白鹿是道塬:[给力][给力][给力]//@jx天民: //@不浪舟://@jx天民: [心]谢友[握手]下午好//@白鹿是道塬:[给力][给力][给力]//@jx天民: 妹好[心][心][心][鲜花]//@天平_TXQ:[赞][赞][赞]</p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3871314072764527" target="freeweibo-mirror">//@林春增: [赞][赞]//@jx天民: [心][握手]…</a>
+</h2>
+<p>//@林春增: [赞][赞]//@jx天民: [心][握手]//@白鹿是道塬:[给力][给力][给力]//@jx天民: //@不浪舟://@jx天民: [心]谢友[握手]下午好//@白鹿是道塬:[给力][给力][给力]//@jx天民: 妹好[心][心][心][鲜花]//@天平_TXQ:[赞][赞][赞]</p>
+<p>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3871308489918435" target="freeweibo-mirror">//@河东生:共产体制最先完善的就是官僚体系。不管挂什么牌子…</a>
 </h2>
@@ -103,42 +139,6 @@
 <p>蛙政25年！<br><img src="http://ww1.sinaimg.cn/large/51834496jw1eunt0pfoyyj20k00gtdhw.jpg"></p>
 <p>
 	<small> ============== 7小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3871202403470213" target="freeweibo-mirror">你还别说，现在这种剧本，最后被肯定的还只有大妓院版本。忘了B…</a>
-</h2>
-<p>你还别说，现在这种剧本，最后被肯定的还只有大妓院版本。忘了BXL剧本了？ //@不沉默的大多数:所谓外媒原来就是轮子[哈哈]  连境外稍有常识的网站都不屑转。</p>
-<p>
-	<small> ============== 10小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3871189900406908" target="freeweibo-mirror">//@lf9988二世://@huangtinghua_网易…</a>
-</h2>
-<p>//@lf9988二世://@huangtinghua_网易://@前度神-游: //@良民回归:转发微博</p>
-<p>
-	<small> ============== 11小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3871181163610156" target="freeweibo-mirror">【有网友认为冬奥申办成功和大家没关系】——怎么会没关系呢？要…</a>
-</h2>
-<p>【有网友认为冬奥申办成功和大家没关系】——怎么会没关系呢？要盖场馆吧？要盖奥运村吧，要修路吧？要买器械吧……甚至志愿者统一的服装要生产吧？而且各国运动员的机票伙食是不是又免费呢？这些钱谁出？国家？国家哪来的钱？不信，看这几年的物价吧。（@柳林青医）<br><img src="http://ww1.sinaimg.cn/large/0062Ci3Xgw1eunk4jerplj30c80qvaau.jpg"></p>
-<p>
-	<small> ============== 12小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3871158925438176" target="freeweibo-mirror">奥委会自己明白，现在肯申奥，并且申得起的国家，大多都是独裁国…</a>
-</h2>
-<p>奥委会自己明白，现在肯申奥，并且申得起的国家，大多都是独裁国家了，民主国家玩这个，政府一定会遇到抵制。而专政政权不会有抵制，又喜欢用大型活动装点门面，所以他们是奥委会最好的客户。奥运精神正在因奥委会的愚蠢走向死亡。奥运会逐渐沦为专政政府的充气娃娃。<br><img src="http://ww3.sinaimg.cn/large/006arOeBjw1eunhkmkq5dj30dv0fc76u.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3871155179544776" target="freeweibo-mirror">拿这些钱来扶贫多好！ #晚间话题#//@演员孙海英:→_→ …</a>
-</h2>
-<p>拿这些钱来扶贫多好！ #晚间话题#//@演员孙海英:→_→ //@北方猎手:把贪官污吏的钱还给纳税人，中国可以进入中等收入国家水平了//@演员孙海英:向敢揭开军队腐败盖子的习总、王总致敬！佩服！致八一节老兵的敬礼！<br><br>RE: 【网传求证？】据外媒报道，郭伯雄家中搜出人民币十多吨,美元近1亿,金条105吨,名字画古董估值近10亿,存折300多个,金额近1800亿元人民币，它一个人就可以救两个希腊了。他们什么都要，就是脸不要！<br><img src="http://ww2.sinaimg.cn/large/8d5e6ddfjw1eun4gs8h78j20cs09raaa.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3871151345919994" target="freeweibo-mirror">中国铁道部的日常[拜拜]</a>
-</h2>
-<p>中国铁道部的日常[拜拜]<br><img src="http://ww2.sinaimg.cn/large/005AA2f5jw1eungp4z8lkj30hs09z0to.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
 </p>
 <table>
     <tr>
