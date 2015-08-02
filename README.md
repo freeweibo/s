@@ -78,7 +78,7 @@
 </h2>
 <p>放心，咱们有办法对付。不是说奥巴马他哥在深圳打工么？//@急煞人也:[哈哈] //@李不白的空间:[哈哈]//@纪昀:[哈哈]<br><br>RE: 孙子兵法36计，奥巴马才有6计，弱爆了…… 所以，@杨子评 的微博应该被删。哼！<br><img src="http://ww1.sinaimg.cn/large/9ddb72ebjw1euo3j7avwsj20hs0gc0v6.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3871373845504951" target="freeweibo-mirror">发生什么事了？[吃惊]//@高辉_000157:常万全事件必…</a>
 </h2>
