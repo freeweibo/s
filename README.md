@@ -138,7 +138,7 @@
 </h2>
 <p>SPAM →_→ //@雨农谈股:→_→ //@黑色金光://@郭洪钧: 出污泥而不染，掌国计而不管，行大义而不软，退三舍而不喘。不左不右的不倒翁才不被看扁！[哈哈][哈哈][哈哈]<br><br>RE: 敌营十年，辛勤卧底。敌人倒了，你还屹立。<br><img src="http://ww2.sinaimg.cn/large/473f8cfdgw1eumrzr35amj20lz0ihtae.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p>
 <table>
     <tr>
