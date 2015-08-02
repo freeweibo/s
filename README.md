@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3871497489334140" target="freeweibo-mirror">辣椒同学写的。</a>
+</h2>
+<p>辣椒同学写的。<br><img src="http://ww4.sinaimg.cn/large/6b592247jw1euokf3nlazj20ic0zkwk8.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3871489667308010" target="freeweibo-mirror">央视批安倍政府安保法案，扩充军力，这不奇怪，但聆听如下表述，…</a>
 </h2>
 <p>央视批安倍政府安保法案，扩充军力，这不奇怪，但聆听如下表述，观众同志们全呆住了[晕]：日本藏资于海外，故意制造经济长期低迷假相，其实在放烟幕弹，将经济大国的称号扔给邻国。</p>
@@ -102,13 +108,13 @@
 </h2>
 <p>@东谈西扯 发的图，原始出处链接是这个吧… http://t.cn/zjgpldS  （ ——辛子陵接受《新史记》特约记者高伐林专访）： 刘华清去年临终时建议撤销毛主席纪念堂。 中共党史修订，最重要的一点是彻底否定文革，承认大跃进中饿死了1000万人………这不是扯淡造谣吗……<br><img src="http://ww2.sinaimg.cn/large/43712f7djw1euoeqhiqd7j20dc0m8adf.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3871448613151435" target="freeweibo-mirror">抓一个老虎，可办5把，有啥大不了的//@肉末豆腐:转发微博</a>
 </h2>
 <p>抓一个老虎，可办5把，有啥大不了的//@肉末豆腐:转发微博<br><br>RE: 北京申办奥运会的经费2000万美元，举办费用15亿人民币，修建新的场馆，7年中需要130～160亿人民币。到如今，除了水立方和鸟巢等一些大型场馆在支撑门面以外，很多场馆人迹罕至荒草凄凄，难道这就是造福人民？<br><img src="http://ww2.sinaimg.cn/large/0068nRymjw1euo0msxd3nj30ku0dmwg5.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3871447128391868" target="freeweibo-mirror">姑且不论是否属实，话说一条带精的内裤能保存15年，确实也很不…</a>
 </h2>
@@ -133,12 +139,6 @@
 <p>盛会的另一面。 //@演员孙海英:转发微博<br><br>RE: 北京申办奥运会的经费2000万美元，举办费用15亿人民币，修建新的场馆，7年中需要130～160亿人民币。到如今，除了水立方和鸟巢等一些大型场馆在支撑门面以外，很多场馆人迹罕至荒草凄凄，难道这就是造福人民？<br><img src="http://ww2.sinaimg.cn/large/0068nRymjw1euo0msxd3nj30ku0dmwg5.jpg"></p>
 <p>
 	<small> ============== 5小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3871431555143746" target="freeweibo-mirror">SPAM 哈哈哈~我就看到某人衣服上一大个脱字（什么~还有贫…</a>
-</h2>
-<p>SPAM 哈哈哈~我就看到某人衣服上一大个脱字（什么~还有贫？被挡住了没看到！）~~说到百度输入法的皮肤我喜欢这款特技皮，喏~还有什么特技快到碗里来吧~[喵喵][喵喵][喵喵][喵喵]</p>
-<p>
-	<small> ============== 6小时前</small>
 </p>
 <table>
     <tr>
