@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3871409761661855" target="freeweibo-mirror">SPAM 回复@廖盛光:哪里说真的？//@廖盛光:原來是真的</a>
+</h2>
+<p>SPAM 回复@廖盛光:哪里说真的？//@廖盛光:原來是真的<br><br>RE: 前最高院首席大法官自首了？！<br><img src="http://ww2.sinaimg.cn/large/4c148083jw1euo60m65uaj20f00qoace.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3871404208268634" target="freeweibo-mirror">SPAM 真的不容易//@大地2125: 不容易啊 //@雨…</a>
 </h2>
 <p>SPAM 真的不容易//@大地2125: 不容易啊 //@雨农谈股:→_→ //@黑色金光://@郭洪钧: 出污泥而不染，掌国计而不管，行大义而不软，退三舍而不喘。不左不右的不倒翁才不被看扁！[哈哈][哈哈][哈哈]</p>
@@ -108,7 +114,7 @@
 </h2>
 <p>奧巴馬在哈佛演讲时说：20年后，中国将成为全球最穷国家。他的依据是：1.中国90%的高官家属和80%的富豪已申请移民，或有移民意愿。2.中国人不了解他们应该对国家和社会所承担的责任和义务。3.大众过去是权力的奴隶，演变为金钱的奴隶。4.肆无忌惮地对环境的破坏 对资源的掠夺... http://t.cn/RLOlUON<br><img src="http://ww2.sinaimg.cn/large/72ae17c5gw1euo1jpyij0j20f90dndh6.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3871329923056005" target="freeweibo-mirror">//@戎戎新日记://@礼江美鱼: //@白发萧萧小律师:转…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3871323597721691" target="freeweibo-mirror">//@肇贻堂的微博: 说啥呢老黄，你会开逃荒证吗？</a>
 </h2>
 <p>//@肇贻堂的微博: 说啥呢老黄，你会开逃荒证吗？</p>
-<p>
-	<small> ============== 7小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3871323027616470" target="freeweibo-mirror">SPAM 这个……呃，你懂得！[嘻嘻] //@华创传媒老薄:…</a>
-</h2>
-<p>SPAM 这个……呃，你懂得！[嘻嘻] //@华创传媒老薄:您同意？[嘻嘻]//@刘刚吃亏是福:[偷笑] //@华创传媒老薄:这是闲了！找心灵慰藉//@清扬君: //@李俊晓:大师亲自开光吗？</p>
 <p>
 	<small> ============== 7小时前</small>
 </p>
