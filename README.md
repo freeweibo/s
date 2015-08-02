@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3871388596772666" target="freeweibo-mirror">//@俗人海洋_归来:提拔他的人不负责，组织部门不负责，人大…</a>
+</h2>
+<p>//@俗人海洋_归来:提拔他的人不负责，组织部门不负责，人大不负责，政协不不负责，纪委只管查处不追究任用责任。整个这就是一个没人负责的国家！这是一个常识问题，但执政65年可，仍然解决不了！</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3871364274396416" target="freeweibo-mirror">//@三俗大哥://@纪昀: [哈哈]//@杨子评: 看来随…</a>
 </h2>
 <p>//@三俗大哥://@纪昀: [哈哈]//@杨子评: 看来随便使出一计，就击垮了“三个自信”[挤眼]<br><br>RE: 孙子兵法36计，奥巴马才有6计，弱爆了…… 所以，@杨子评 的微博应该被删。哼！<br><img src="http://ww1.sinaimg.cn/large/9ddb72ebjw1euo3j7avwsj20hs0gc0v6.jpg"></p>
@@ -78,7 +84,7 @@
 </h2>
 <p>奧巴馬在哈佛演讲时说：20年后，中国将成为全球最穷国家。他的依据是：1.中国90%的高官家属和80%的富豪已申请移民，或有移民意愿。2.中国人不了解他们应该对国家和社会所承担的责任和义务。3.大众过去是权力的奴隶，演变为金钱的奴隶。4.肆无忌惮地对环境的破坏 对资源的掠夺... http://t.cn/RLOlUON<br><img src="http://ww2.sinaimg.cn/large/72ae17c5gw1euo1jpyij0j20f90dndh6.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3871329923056005" target="freeweibo-mirror">//@戎戎新日记://@礼江美鱼: //@白发萧萧小律师:转…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3871320368372755" target="freeweibo-mirror">SPAM http://t.cn/RLO040i</a>
 </h2>
 <p>SPAM http://t.cn/RLO040i</p>
-<p>
-	<small> ============== 5小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3871319281768282" target="freeweibo-mirror">//@小时在行走: 家里有多少钱才佩说这话//@林春增: […</a>
-</h2>
-<p>//@小时在行走: 家里有多少钱才佩说这话//@林春增: [赞][赞]//@jx天民: [心][握手]//@白鹿是道塬:[给力][给力][给力]//@jx天民: //@不浪舟://@jx天民: [心]谢友[握手]下午好//@白鹿是道塬:[给力][给力][给力]//@jx天民: 妹好[心][心][心][鲜花]//@天平_TXQ:[赞][赞][赞]</p>
 <p>
 	<small> ============== 5小时前</small>
 </p>
