@@ -36,7 +36,7 @@
 </h2>
 <p>SPAM 吃喝玩乐全都有，GET！！</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3871552782976303" target="freeweibo-mirror">SPAM  //@北疆观点:形象、生动的一盘棋！</a>
 </h2>
@@ -96,7 +96,7 @@
 </h2>
 <p>SPAM [怒][怒][怒][怒骂][怒骂][怒骂][弱][弱][弱]</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3871525666818822" target="freeweibo-mirror">SPAM //@善待他人就是善待自己: 图亮</a>
 </h2>
