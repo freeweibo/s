@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3871329923056005" target="freeweibo-mirror">//@戎戎新日记://@礼江美鱼: //@白发萧萧小律师:转…</a>
+</h2>
+<p>//@戎戎新日记://@礼江美鱼: //@白发萧萧小律师:转发微博<br><br>RE: 奥委会自己明白，现在肯申奥，并且申得起的国家，大多都是独裁国家了，民主国家玩这个，政府一定会遇到抵制。而专政政权不会有抵制，又喜欢用大型活动装点门面，所以他们是奥委会最好的客户。奥运精神正在因奥委会的愚蠢走向死亡。奥运会逐渐沦为专政政府的充气娃娃。<br><img src="http://ww3.sinaimg.cn/large/006arOeBjw1eunhkmkq5dj30dv0fc76u.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3871323597721691" target="freeweibo-mirror">//@肇贻堂的微博: 说啥呢老黄，你会开逃荒证吗？</a>
 </h2>
 <p>//@肇贻堂的微博: 说啥呢老黄，你会开逃荒证吗？</p>
@@ -49,6 +55,12 @@
 <p>//@山头a://@心红xy:卖国贼就是卖完祖宗卖子孙。//@-静海心语-:痛心疾首，这群卖国贼啊！ //@刘言平太极拳:[吃惊]//@枪毙走资派: 还有南方的磷矿,中国一方面进口大量磷肥,一方面出口大量磷矿,西部钾盐矿也一样 //@琉球战士://@Lucy_010: //@喜出望外之旅途艰辛:邓开始，黑猫当道，国盈满而民无䒿。</p>
 <p>
 	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3871258741374160" target="freeweibo-mirror">蛙政25年！</a>
+</h2>
+<p>蛙政25年！<br><img src="http://ww1.sinaimg.cn/large/51834496jw1eunt0pfoyyj20k00gtdhw.jpg"></p>
+<p>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3871202403470213" target="freeweibo-mirror">你还别说，现在这种剧本，最后被肯定的还只有大妓院版本。忘了B…</a>
 </h2>
@@ -125,18 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3871139447104087" target="freeweibo-mirror">SPAM 我们炒股之人，不迷信，不他信，唯自信。[偷笑]//…</a>
 </h2>
 <p>SPAM 我们炒股之人，不迷信，不他信，唯自信。[偷笑]//@雨农谈股: 炒股之人还是不要看罪证为好[汗] //@谭世平:哈哈。//@檐间飞鸟: 猛料？[吃惊]//@刘立明女士:你心知肚明，在劫难逃//@释永信花和尚：告诉我，这是真的吗？</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3871138561760341" target="freeweibo-mirror">SPAM [哼]</a>
-</h2>
-<p>SPAM [哼]<br><br>RE: 问亲们一个医学问题，高位截瘫患者能够翘起二郎腿吗？有治愈的可能吗？[思考]照片是刚从朋友圈看来的。<br><img src="http://ww4.sinaimg.cn/large/656fc2e0jw1eun558uh9xj20hs0noq70.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3871135710005617" target="freeweibo-mirror">//@难得糊涂在香港:建议捐赠国家历史博物馆珍藏！</a>
-</h2>
-<p>//@难得糊涂在香港:建议捐赠国家历史博物馆珍藏！</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
