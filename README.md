@@ -30,7 +30,7 @@
 </h2>
 <p>放心，咱们有办法对付。不是说奥巴马他哥在深圳打工么？//@急煞人也:[哈哈] //@李不白的空间:[哈哈]//@纪昀:[哈哈]<br><br>RE: 孙子兵法36计，奥巴马才有6计，弱爆了…… 所以，@杨子评 的微博应该被删。哼！<br><img src="http://ww1.sinaimg.cn/large/9ddb72ebjw1euo3j7avwsj20hs0gc0v6.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3871364274396416" target="freeweibo-mirror">//@三俗大哥://@纪昀: [哈哈]//@杨子评: 看来随…</a>
 </h2>
@@ -114,19 +114,19 @@
 </h2>
 <p>//@肇贻堂的微博: 说啥呢老黄，你会开逃荒证吗？</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3871323027616470" target="freeweibo-mirror">SPAM 这个……呃，你懂得！[嘻嘻] //@华创传媒老薄:…</a>
 </h2>
 <p>SPAM 这个……呃，你懂得！[嘻嘻] //@华创传媒老薄:您同意？[嘻嘻]//@刘刚吃亏是福:[偷笑] //@华创传媒老薄:这是闲了！找心灵慰藉//@清扬君: //@李俊晓:大师亲自开光吗？</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3871322792403365" target="freeweibo-mirror">SPAM 温和穆斯林、极端穆斯林、清真寺节点，关系好复杂。</a>
 </h2>
 <p>SPAM 温和穆斯林、极端穆斯林、清真寺节点，关系好复杂。</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3871322478136193" target="freeweibo-mirror">SPAM 左右逢敌，前后夹攻！</a>
 </h2>
