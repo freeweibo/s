@@ -26,6 +26,12 @@
 <p>
 	<small> ============== 1小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3871402807432264" target="freeweibo-mirror">今年内一曾一贾会谢幕吗？ //@闵玉平:有样子庆亲王快了。 …</a>
+</h2>
+<p>今年内一曾一贾会谢幕吗？ //@闵玉平:有样子庆亲王快了。 //@陈茂来-:一笔交易就侵吞国有资产700亿；一出手买房，金额就达澳大利亚历史第三！我们除了惊叹，还能做什么？//@敏奇微博:[围观]</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3871388596772666" target="freeweibo-mirror">//@俗人海洋_归来:提拔他的人不负责，组织部门不负责，人大…</a>
 </h2>
 <p>//@俗人海洋_归来:提拔他的人不负责，组织部门不负责，人大不负责，政协不不负责，纪委只管查处不追究任用责任。整个这就是一个没人负责的国家！这是一个常识问题，但执政65年可，仍然解决不了！</p>
@@ -37,6 +43,12 @@
 <p>放心，咱们有办法对付。不是说奥巴马他哥在深圳打工么？//@急煞人也:[哈哈] //@李不白的空间:[哈哈]//@纪昀:[哈哈]<br><br>RE: 孙子兵法36计，奥巴马才有6计，弱爆了…… 所以，@杨子评 的微博应该被删。哼！<br><img src="http://ww1.sinaimg.cn/large/9ddb72ebjw1euo3j7avwsj20hs0gc0v6.jpg"></p>
 <p>
 	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3871373845504951" target="freeweibo-mirror">发生什么事了？[吃惊]//@高辉_000157:常万全事件必…</a>
+</h2>
+<p>发生什么事了？[吃惊]//@高辉_000157:常万全事件必须清算，问题有三：1、重大历史时刻公然倒戈，置人民于何地？2、丢掉军魂，军队何以自处？3、罔顾事实，虚无历史，搞反攻倒算，遮羞布都不要了！</p>
+<p>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3871364274396416" target="freeweibo-mirror">//@三俗大哥://@纪昀: [哈哈]//@杨子评: 看来随…</a>
 </h2>
@@ -125,18 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3871323027616470" target="freeweibo-mirror">SPAM 这个……呃，你懂得！[嘻嘻] //@华创传媒老薄:…</a>
 </h2>
 <p>SPAM 这个……呃，你懂得！[嘻嘻] //@华创传媒老薄:您同意？[嘻嘻]//@刘刚吃亏是福:[偷笑] //@华创传媒老薄:这是闲了！找心灵慰藉//@清扬君: //@李俊晓:大师亲自开光吗？</p>
-<p>
-	<small> ============== 6小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3871322792403365" target="freeweibo-mirror">SPAM 温和穆斯林、极端穆斯林、清真寺节点，关系好复杂。</a>
-</h2>
-<p>SPAM 温和穆斯林、极端穆斯林、清真寺节点，关系好复杂。</p>
-<p>
-	<small> ============== 6小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3871322478136193" target="freeweibo-mirror">SPAM 左右逢敌，前后夹攻！</a>
-</h2>
-<p>SPAM 左右逢敌，前后夹攻！<br><br>RE: 蛙政25年！<br><img src="http://ww1.sinaimg.cn/large/51834496jw1eunt0pfoyyj20k00gtdhw.jpg"></p>
 <p>
 	<small> ============== 6小时前</small>
 </p>
