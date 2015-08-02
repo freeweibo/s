@@ -42,7 +42,7 @@
 </h2>
 <p>SPAM 什么玩意儿？！[怒]</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3871526505756240" target="freeweibo-mirror">SPAM [怒][怒][怒][怒骂][怒骂][怒骂][弱][…</a>
 </h2>
@@ -126,7 +126,7 @@
 </h2>
 <p>SPAM //@戎戎新日记://@一笑683://@幽壹:哦。。<br><br>RE: 步伐逼近庆亲王。<br><img src="http://ww1.sinaimg.cn/large/4c37da95jw1euofrp5b8bj20cc0cttar.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3871482062939714" target="freeweibo-mirror">SPAM 书店里高人多啊[嘻嘻]//@谁与居: [哈哈]//…</a>
 </h2>
