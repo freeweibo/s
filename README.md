@@ -24,7 +24,7 @@
 </h2>
 <p>辣椒同学写的。<br><img src="http://ww4.sinaimg.cn/large/6b592247jw1euokf3nlazj20ic0zkwk8.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3871489667308010" target="freeweibo-mirror">央视批安倍政府安保法案，扩充军力，这不奇怪，但聆听如下表述，…</a>
 </h2>
@@ -42,7 +42,7 @@
 </h2>
 <p>SPAM 书店里高人多啊[嘻嘻]//@谁与居: [哈哈]//@陆浑戎: [吃惊] //@行我不素://@香怜W:[偷笑][偷笑][偷笑]一物降一物，佛洛伊德派上用场了 [嘻嘻][嘻嘻][嘻嘻] //@pirate0://@顾扯淡: 哈哈哈哈哈 戳我笑点了</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3871478052962393" target="freeweibo-mirror">//@宏鑫88: //@又来金好多://@寒秋孤影-2018…</a>
 </h2>
@@ -102,7 +102,7 @@
 </h2>
 <p>辛子陵的书一般在香港出版，《千秋功罪毛泽东》 http://t.cn/RLWznIZ  谢韬为这本书写的序：“只有民主社会主义才能救中国” ，李锐给这本书写的序言的提法是“功劳盖世，罪恶滔天”。…另一本书 《红太阳的陨落 》茅于轼做序，妖魔化毛泽东。 http://t.cn/aog2Mj</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3871448864810101" target="freeweibo-mirror">@东谈西扯 发的图，原始出处链接是这个吧… http://t…</a>
 </h2>
@@ -132,13 +132,13 @@
 </h2>
 <p>SPAM 横店帝国//@东四郎:奥黑吓得大姨妈来了！[挖鼻]//@大力水手AAA: 听说安倍还尿裤子了[太开心]//@scarlett冰与火: 这个我得问问@Rose_芙蓉 你们日本人有没有崩溃[哈哈] //@冷俊123:日本也大容易崩溃了。</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3871435950422511" target="freeweibo-mirror">盛会的另一面。 //@演员孙海英:转发微博</a>
 </h2>
 <p>盛会的另一面。 //@演员孙海英:转发微博<br><br>RE: 北京申办奥运会的经费2000万美元，举办费用15亿人民币，修建新的场馆，7年中需要130～160亿人民币。到如今，除了水立方和鸟巢等一些大型场馆在支撑门面以外，很多场馆人迹罕至荒草凄凄，难道这就是造福人民？<br><img src="http://ww2.sinaimg.cn/large/0068nRymjw1euo0msxd3nj30ku0dmwg5.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p>
 <table>
     <tr>
