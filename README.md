@@ -84,7 +84,7 @@
 </h2>
 <p>SPAM 清朝？ //@徐昕://@广州吴凯律师: 还带孩子一起跪，这些家长怎么想的。//@徐玉杰律师://@昕静自然好: 又下跪<br><br>RE: #本镇动态#近日，天津中考结果已公布。上午的细雨中，一些家长在市教委门口儿跪着请愿。据悉，今年天津中考要求家长给孩子填报七到八个志愿，有的家长不希望孩子最后落到低档的差校，只给孩子填报了四五个志愿。结果公布后，因为填报志愿等问题，一些中考生成了”死档“，面临无学可上窘境。图自网络。<br><img src="http://ww1.sinaimg.cn/large/5d7ca92cjw1euo4qnobddj20c809fq44.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3871415625175045" target="freeweibo-mirror">SPAM 风雨飘摇中，不问江湖事，新时代来了</a>
 </h2>
@@ -132,7 +132,7 @@
 </h2>
 <p>《争鸣》：公安部传召曾伟<br><img src="http://ww2.sinaimg.cn/large/006broxmjw1euo8zvi9vcj30cc0ctgo1.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3871396352131172" target="freeweibo-mirror">SPAM →_→ //@雨农谈股:→_→ //@黑色金光:/…</a>
 </h2>
