@@ -24,7 +24,7 @@
 </h2>
 <p>不是370.是俄国人干下来的。 //@雨溪情:天朝弃民，背弃祖宗庐墓，在天上瞎飞一个劲儿，死则死耳，没必要为此得罪罗剎。//@宁清平律师:失踪飞机上这么多中国人，居然不支持调查？无法理解。[吃惊]</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3871563159532693" target="freeweibo-mirror">SPAM  //@伶伦-土拔鼠8:黑方必输。。。。。黑方前线…</a>
 </h2>
@@ -102,7 +102,7 @@
 </h2>
 <p>SPAM //@善待他人就是善待自己: 图亮</p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3871524001460733" target="freeweibo-mirror">SPAM 图亮</a>
 </h2>
