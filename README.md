@@ -54,7 +54,7 @@
 </h2>
 <p>SPAM ？？//@北京刑事律师张雨:求辟谣！<br><br>RE: 前最高院首席大法官自首了？！<br><img src="http://ww2.sinaimg.cn/large/4c148083jw1euo60m65uaj20f00qoace.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3871404208268634" target="freeweibo-mirror">SPAM 真的不容易//@大地2125: 不容易啊 //@雨…</a>
 </h2>
@@ -84,7 +84,7 @@
 </h2>
 <p>SPAM 谁还没有几个损友！http://t.cn/RL4goMR</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3871388596772666" target="freeweibo-mirror">//@俗人海洋_归来:提拔他的人不负责，组织部门不负责，人大…</a>
 </h2>
