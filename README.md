@@ -42,7 +42,7 @@
 </h2>
 <p>辣椒同学写的。<br><img src="http://ww4.sinaimg.cn/large/6b592247jw1euokf3nlazj20ic0zkwk8.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3871489667308010" target="freeweibo-mirror">央视批安倍政府安保法案，扩充军力，这不奇怪，但聆听如下表述，…</a>
 </h2>
@@ -60,7 +60,7 @@
 </h2>
 <p>SPAM 书店里高人多啊[嘻嘻]//@谁与居: [哈哈]//@陆浑戎: [吃惊] //@行我不素://@香怜W:[偷笑][偷笑][偷笑]一物降一物，佛洛伊德派上用场了 [嘻嘻][嘻嘻][嘻嘻] //@pirate0://@顾扯淡: 哈哈哈哈哈 戳我笑点了</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3871478052962393" target="freeweibo-mirror">//@宏鑫88: //@又来金好多://@寒秋孤影-2018…</a>
 </h2>
@@ -120,7 +120,7 @@
 </h2>
 <p>辛子陵的书一般在香港出版，《千秋功罪毛泽东》 http://t.cn/RLWznIZ  谢韬为这本书写的序：“只有民主社会主义才能救中国” ，李锐给这本书写的序言的提法是“功劳盖世，罪恶滔天”。…另一本书 《红太阳的陨落 》茅于轼做序，妖魔化毛泽东。 http://t.cn/aog2Mj</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3871448864810101" target="freeweibo-mirror">@东谈西扯 发的图，原始出处链接是这个吧… http://t…</a>
 </h2>
