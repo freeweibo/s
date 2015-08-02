@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3871341377245411" target="freeweibo-mirror">//@沂蒙山:不信奥黑。。。</a>
+</h2>
+<p>//@沂蒙山:不信奥黑。。。<br><br>RE: 奧巴馬在哈佛演讲时说：20年后，中国将成为全球最穷国家。他的依据是：1.中国90%的高官家属和80%的富豪已申请移民，或有移民意愿。2.中国人不了解他们应该对国家和社会所承担的责任和义务。3.大众过去是权力的奴隶，演变为金钱的奴隶。4.肆无忌惮地对环境的破坏 对资源的掠夺... http://t.cn/RLOlUON<br><img src="http://ww2.sinaimg.cn/large/72ae17c5gw1euo1jpyij0j20f90dndh6.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3871335123787752" target="freeweibo-mirror">//@微言萤光-: //@豪放的先知先觉007:面纱终于揭开…</a>
 </h2>
 <p>//@微言萤光-: //@豪放的先知先觉007:面纱终于揭开了，独裁从来没有宪法这个概念//@夏岚馨:翻译成大白话就是：将“以党治国”插入法律。</p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3871151345919994" target="freeweibo-mirror">中国铁道部的日常[拜拜]</a>
 </h2>
 <p>中国铁道部的日常[拜拜]<br><img src="http://ww2.sinaimg.cn/large/005AA2f5jw1eungp4z8lkj30hs09z0to.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3871151337971948" target="freeweibo-mirror">SPAM //@华胜天: //@张锦宏律师:都是裤衩惹得祸？</a>
-</h2>
-<p>SPAM //@华胜天: //@张锦宏律师:都是裤衩惹得祸？</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
