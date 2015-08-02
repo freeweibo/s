@@ -24,7 +24,13 @@
 </h2>
 <p>靠，太有时代特色了！<br><br>RE: 中国的自由女神……？！<br><img src="http://ww4.sinaimg.cn/large/006b026Wgw1euoawo4vs0j309o0cbaa9.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3871414358577799" target="freeweibo-mirror">中国的自由女神……？！</a>
+</h2>
+<p>中国的自由女神……？！<br><img src="http://ww4.sinaimg.cn/large/006b026Wgw1euoawo4vs0j309o0cbaa9.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3871409761661855" target="freeweibo-mirror">SPAM 回复@廖盛光:哪里说真的？//@廖盛光:原來是真的</a>
 </h2>
@@ -108,19 +114,19 @@
 </h2>
 <p>//@沂蒙山:不信奥黑。。。<br><br>RE: 奧巴馬在哈佛演讲时说：20年后，中国将成为全球最穷国家。他的依据是：1.中国90%的高官家属和80%的富豪已申请移民，或有移民意愿。2.中国人不了解他们应该对国家和社会所承担的责任和义务。3.大众过去是权力的奴隶，演变为金钱的奴隶。4.肆无忌惮地对环境的破坏 对资源的掠夺... http://t.cn/RLOlUON<br><img src="http://ww2.sinaimg.cn/large/72ae17c5gw1euo1jpyij0j20f90dndh6.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3871340870188892" target="freeweibo-mirror">SPAM //@李不白的空间: //@法律及其价值://@大…</a>
 </h2>
 <p>SPAM //@李不白的空间: //@法律及其价值://@大力水手AAA://@刘力博士: //@小人物0529:临时抱佛脚，有用么？你不是坚定地无神论者吗？入党誓言全忘了？</p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3871340811160635" target="freeweibo-mirror">生活节俭，令人 感动！[泪][泪][泪]</a>
 </h2>
 <p>生活节俭，令人 感动！[泪][泪][泪]</p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3871339028679866" target="freeweibo-mirror">SPAM //@亮剑兄来了://@法律及其价值://@大力水…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3871337355025549" target="freeweibo-mirror">不信奥黑。。。</a>
 </h2>
 <p>不信奥黑。。。<br><br>RE: 奧巴馬在哈佛演讲时说：20年后，中国将成为全球最穷国家。他的依据是：1.中国90%的高官家属和80%的富豪已申请移民，或有移民意愿。2.中国人不了解他们应该对国家和社会所承担的责任和义务。3.大众过去是权力的奴隶，演变为金钱的奴隶。4.肆无忌惮地对环境的破坏 对资源的掠夺... http://t.cn/RLOlUON<br><img src="http://ww2.sinaimg.cn/large/72ae17c5gw1euo1jpyij0j20f90dndh6.jpg"></p>
-<p>
-	<small> ============== 8小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3871335123787752" target="freeweibo-mirror">//@微言萤光-: //@豪放的先知先觉007:面纱终于揭开…</a>
-</h2>
-<p>//@微言萤光-: //@豪放的先知先觉007:面纱终于揭开了，独裁从来没有宪法这个概念//@夏岚馨:翻译成大白话就是：将“以党治国”插入法律。</p>
 <p>
 	<small> ============== 8小时前</small>
 </p>
