@@ -60,7 +60,7 @@
 </h2>
 <p>SPAM [怒][怒][怒][怒骂][怒骂][怒骂][弱][弱][弱]</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3871525666818822" target="freeweibo-mirror">SPAM //@善待他人就是善待自己: 图亮</a>
 </h2>
@@ -126,7 +126,7 @@
 </h2>
 <p>辣椒同学写的。<br><img src="http://ww4.sinaimg.cn/large/6b592247jw1euokf3nlazj20ic0zkwk8.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3871489667308010" target="freeweibo-mirror">央视批安倍政府安保法案，扩充军力，这不奇怪，但聆听如下表述，…</a>
 </h2>
