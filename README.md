@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3871483191127470" target="freeweibo-mirror">SPAM //@戎戎新日记://@一笑683://@幽壹:哦…</a>
+</h2>
+<p>SPAM //@戎戎新日记://@一笑683://@幽壹:哦。。<br><br>RE: 步伐逼近庆亲王。<br><img src="http://ww1.sinaimg.cn/large/4c37da95jw1euofrp5b8bj20cc0cttar.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3871459468093834" target="freeweibo-mirror">//@珂南三世:这样下去蒋介石的像也快迁回大陆了。//@火珠…</a>
 </h2>
 <p>//@珂南三世:这样下去蒋介石的像也快迁回大陆了。//@火珠林易学:重大节日不提毛泽东，树孙大炮像，权贵的意图再明确不过了:试图把毛泽东这个名字从中国历史上抹去！救救孩子！<br><br>RE: 国防部长常万全八一讲话不提马列毛遭网友炮轰狼狈不堪。8月1日，国防部长常万全在庆祝中国人民解放军建军八十八周年招待会上致辞，只字不提毛泽东思想，遭广大网友集体炮轰，被指数典忘祖、忘恩负义、背弃军魂。http://t.cn/RLOTEXf</p>
@@ -54,7 +60,7 @@
 </h2>
 <p>2011年5月19日上午10时30分市纪委李锋处长、国防大学政治部纪检处刘德伟处长与我进行第四次谈话。刘德伟处长告知：“以后不要再提179号决议（毛泽东思想不列入），没有那个事。”这件事牵涉问题很大，有紧急情况请示报告。 http://t.cn/8F7fdeP</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3871451088057990" target="freeweibo-mirror">辛子陵的书一般在香港出版，《千秋功罪毛泽东》 http://…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3871414358577799" target="freeweibo-mirror">中国的自由女神……？！</a>
 </h2>
 <p>中国的自由女神……？！<br><img src="http://ww4.sinaimg.cn/large/006b026Wgw1euoawo4vs0j309o0cbaa9.jpg"></p>
-<p>
-	<small> ============== 5小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3871409761661855" target="freeweibo-mirror">SPAM 回复@廖盛光:哪里说真的？//@廖盛光:原來是真的</a>
-</h2>
-<p>SPAM 回复@廖盛光:哪里说真的？//@廖盛光:原來是真的<br><br>RE: 前最高院首席大法官自首了？！<br><img src="http://ww2.sinaimg.cn/large/4c148083jw1euo60m65uaj20f00qoace.jpg"></p>
 <p>
 	<small> ============== 5小时前</small>
 </p>
