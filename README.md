@@ -90,7 +90,7 @@
 </h2>
 <p>SPAM 风雨飘摇中，不问江湖事，新时代来了<br><br>RE: 敌营十年，辛勤卧底。敌人倒了，你还屹立。<br><img src="http://ww2.sinaimg.cn/large/473f8cfdgw1eumrzr35amj20lz0ihtae.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3871414358577799" target="freeweibo-mirror">中国的自由女神……？！</a>
 </h2>
@@ -126,7 +126,7 @@
 </h2>
 <p>SPAM 站起来说话。<br><br>RE: #本镇动态#近日，天津中考结果已公布。上午的细雨中，一些家长在市教委门口儿跪着请愿。据悉，今年天津中考要求家长给孩子填报七到八个志愿，有的家长不希望孩子最后落到低档的差校，只给孩子填报了四五个志愿。结果公布后，因为填报志愿等问题，一些中考生成了”死档“，面临无学可上窘境。图自网络。<br><img src="http://ww1.sinaimg.cn/large/5d7ca92cjw1euo4qnobddj20c809fq44.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3871397920744265" target="freeweibo-mirror">《争鸣》：公安部传召曾伟</a>
 </h2>
