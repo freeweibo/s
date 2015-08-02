@@ -90,19 +90,19 @@
 </h2>
 <p>//@沂蒙山:不信奥黑。。。<br><br>RE: 奧巴馬在哈佛演讲时说：20年后，中国将成为全球最穷国家。他的依据是：1.中国90%的高官家属和80%的富豪已申请移民，或有移民意愿。2.中国人不了解他们应该对国家和社会所承担的责任和义务。3.大众过去是权力的奴隶，演变为金钱的奴隶。4.肆无忌惮地对环境的破坏 对资源的掠夺... http://t.cn/RLOlUON<br><img src="http://ww2.sinaimg.cn/large/72ae17c5gw1euo1jpyij0j20f90dndh6.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3871340870188892" target="freeweibo-mirror">SPAM //@李不白的空间: //@法律及其价值://@大…</a>
 </h2>
 <p>SPAM //@李不白的空间: //@法律及其价值://@大力水手AAA://@刘力博士: //@小人物0529:临时抱佛脚，有用么？你不是坚定地无神论者吗？入党誓言全忘了？</p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3871340811160635" target="freeweibo-mirror">生活节俭，令人 感动！[泪][泪][泪]</a>
 </h2>
 <p>生活节俭，令人 感动！[泪][泪][泪]</p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3871339028679866" target="freeweibo-mirror">SPAM //@亮剑兄来了://@法律及其价值://@大力水…</a>
 </h2>
