@@ -90,13 +90,13 @@
 </h2>
 <p>@东谈西扯 发的图，原始出处链接是这个吧… http://t.cn/zjgpldS  （ ——辛子陵接受《新史记》特约记者高伐林专访）： 刘华清去年临终时建议撤销毛主席纪念堂。 中共党史修订，最重要的一点是彻底否定文革，承认大跃进中饿死了1000万人………这不是扯淡造谣吗……<br><img src="http://ww2.sinaimg.cn/large/43712f7djw1euoeqhiqd7j20dc0m8adf.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3871448613151435" target="freeweibo-mirror">抓一个老虎，可办5把，有啥大不了的//@肉末豆腐:转发微博</a>
 </h2>
 <p>抓一个老虎，可办5把，有啥大不了的//@肉末豆腐:转发微博<br><br>RE: 北京申办奥运会的经费2000万美元，举办费用15亿人民币，修建新的场馆，7年中需要130～160亿人民币。到如今，除了水立方和鸟巢等一些大型场馆在支撑门面以外，很多场馆人迹罕至荒草凄凄，难道这就是造福人民？<br><img src="http://ww2.sinaimg.cn/large/0068nRymjw1euo0msxd3nj30ku0dmwg5.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3871447128391868" target="freeweibo-mirror">姑且不论是否属实，话说一条带精的内裤能保存15年，确实也很不…</a>
 </h2>
