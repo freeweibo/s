@@ -26,6 +26,12 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3871408406655160" target="freeweibo-mirror">SPAM ？？//@北京刑事律师张雨:求辟谣！</a>
+</h2>
+<p>SPAM ？？//@北京刑事律师张雨:求辟谣！<br><br>RE: 前最高院首席大法官自首了？！<br><img src="http://ww2.sinaimg.cn/large/4c148083jw1euo60m65uaj20f00qoace.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3871404208268634" target="freeweibo-mirror">SPAM 真的不容易//@大地2125: 不容易啊 //@雨…</a>
 </h2>
 <p>SPAM 真的不容易//@大地2125: 不容易啊 //@雨农谈股:→_→ //@黑色金光://@郭洪钧: 出污泥而不染，掌国计而不管，行大义而不软，退三舍而不喘。不左不右的不倒翁才不被看扁！[哈哈][哈哈][哈哈]</p>
@@ -37,6 +43,12 @@
 <p>今年内一曾一贾会谢幕吗？ //@闵玉平:有样子庆亲王快了。 //@陈茂来-:一笔交易就侵吞国有资产700亿；一出手买房，金额就达澳大利亚历史第三！我们除了惊叹，还能做什么？//@敏奇微博:[围观]</p>
 <p>
 	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3871395181912108" target="freeweibo-mirror">SPAM 第一个自首的？</a>
+</h2>
+<p>SPAM 第一个自首的？<br><br>RE: 前最高院首席大法官自首了？！<br><img src="http://ww2.sinaimg.cn/large/4c148083jw1euo60m65uaj20f00qoace.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3871388596772666" target="freeweibo-mirror">//@俗人海洋_归来:提拔他的人不负责，组织部门不负责，人大…</a>
 </h2>
@@ -53,6 +65,12 @@
 	<a href="https://freeweibo.com/weibo/3871373845504951" target="freeweibo-mirror">发生什么事了？[吃惊]//@高辉_000157:常万全事件必…</a>
 </h2>
 <p>发生什么事了？[吃惊]//@高辉_000157:常万全事件必须清算，问题有三：1、重大历史时刻公然倒戈，置人民于何地？2、丢掉军魂，军队何以自处？3、罔顾事实，虚无历史，搞反攻倒算，遮羞布都不要了！</p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3871371983487742" target="freeweibo-mirror">前最高院首席大法官自首了？！</a>
+</h2>
+<p>前最高院首席大法官自首了？！<br><img src="http://ww2.sinaimg.cn/large/4c148083jw1euo60m65uaj20f00qoace.jpg"></p>
 <p>
 	<small> ============== 4小时前</small>
 </p><h2>
@@ -119,24 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3871329923056005" target="freeweibo-mirror">//@戎戎新日记://@礼江美鱼: //@白发萧萧小律师:转…</a>
 </h2>
 <p>//@戎戎新日记://@礼江美鱼: //@白发萧萧小律师:转发微博<br><br>RE: 奥委会自己明白，现在肯申奥，并且申得起的国家，大多都是独裁国家了，民主国家玩这个，政府一定会遇到抵制。而专政政权不会有抵制，又喜欢用大型活动装点门面，所以他们是奥委会最好的客户。奥运精神正在因奥委会的愚蠢走向死亡。奥运会逐渐沦为专政政府的充气娃娃。<br><img src="http://ww3.sinaimg.cn/large/006arOeBjw1eunhkmkq5dj30dv0fc76u.jpg"></p>
-<p>
-	<small> ============== 7小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3871328383723498" target="freeweibo-mirror">SPAM 回复@林小篆谁会爱他的灵魂:不会比趋炎附势的劝进更…</a>
-</h2>
-<p>SPAM 回复@林小篆谁会爱他的灵魂:不会比趋炎附势的劝进更恶心吧[哈哈]//@林小篆谁会爱他的灵魂:现在是那么恶心j了//@不沉默的大多数:办公室主任也是别人计划的？是否强，看整事，不看整人。//@陶景洲:弱帝...  //@燕小小云:涛哥不容易</p>
-<p>
-	<small> ============== 7小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3871327846831623" target="freeweibo-mirror">努力修缮六十年的贞节牌坊在世界眼里就是耻辱柱</a>
-</h2>
-<p>努力修缮六十年的贞节牌坊在世界眼里就是耻辱柱</p>
-<p>
-	<small> ============== 7小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3871323597721691" target="freeweibo-mirror">//@肇贻堂的微博: 说啥呢老黄，你会开逃荒证吗？</a>
-</h2>
-<p>//@肇贻堂的微博: 说啥呢老黄，你会开逃荒证吗？</p>
 <p>
 	<small> ============== 7小时前</small>
 </p>
