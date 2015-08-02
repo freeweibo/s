@@ -54,7 +54,7 @@
 </h2>
 <p>今年内一曾一贾会谢幕吗？ //@闵玉平:有样子庆亲王快了。 //@陈茂来-:一笔交易就侵吞国有资产700亿；一出手买房，金额就达澳大利亚历史第三！我们除了惊叹，还能做什么？//@敏奇微博:[围观]</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3871396113242404" target="freeweibo-mirror">SPAM //@俗炮小白领:好大一条！</a>
 </h2>
@@ -96,7 +96,7 @@
 </h2>
 <p>前最高院首席大法官自首了？！<br><img src="http://ww2.sinaimg.cn/large/4c148083jw1euo60m65uaj20f00qoace.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3871364274396416" target="freeweibo-mirror">//@三俗大哥://@纪昀: [哈哈]//@杨子评: 看来随…</a>
 </h2>
