@@ -30,7 +30,7 @@
 </h2>
 <p>//@品茗云间客://@中产阶级文化在线:</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3871655128279257" target="freeweibo-mirror">SPAM 專訪艾未未：該說的話，我已經說完了</a>
 </h2>
@@ -48,7 +48,7 @@
 </h2>
 <p>助毛为虐//@墨鉅50:周总理在干嘛呢？</p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3871571049064032" target="freeweibo-mirror">不是370.是俄国人干下来的。 //@雨溪情:天朝弃民，背弃…</a>
 </h2>
