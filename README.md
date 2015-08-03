@@ -66,7 +66,7 @@
 </h2>
 <p>SPAM 吃喝玩乐全都有，GET！！</p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3871552782976303" target="freeweibo-mirror">SPAM  //@北疆观点:形象、生动的一盘棋！</a>
 </h2>
@@ -114,13 +114,13 @@
 </h2>
 <p>一句话，站队站错了。</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3871534239820169" target="freeweibo-mirror">//@梅虔: 好人，坏人都是他们自己人！//@喜水爱山: 转…</a>
 </h2>
 <p>//@梅虔: 好人，坏人都是他们自己人！//@喜水爱山: 转发微博</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3871528456235890" target="freeweibo-mirror">SPAM 什么玩意儿？！[怒]</a>
 </h2>
