@@ -24,7 +24,7 @@
 </h2>
 <p>SPAM 终于有人开教男人穿衣撘配的徽博拉~~</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3871801064613496" target="freeweibo-mirror">SPAM #拥抱生活拥抱爱#地球都找到男票了，为何我还是个单…</a>
 </h2>
