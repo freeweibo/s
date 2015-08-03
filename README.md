@@ -42,7 +42,7 @@
 </h2>
 <p>SPAM 專訪艾未未：該說的話，我已經說完了<br><img src="http://ww4.sinaimg.cn/large/895b3cacjw1eup2k4bdjpj20c33jdke5.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3871650535179432" target="freeweibo-mirror">这些高官，怎么一个个的像西门庆似的，是家教不好？还是别的啥原…</a>
 </h2>
