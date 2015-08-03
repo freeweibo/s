@@ -24,7 +24,7 @@
 </h2>
 <p>助毛为虐//@墨鉅50:周总理在干嘛呢？</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3871571049064032" target="freeweibo-mirror">不是370.是俄国人干下来的。 //@雨溪情:天朝弃民，背弃…</a>
 </h2>
@@ -114,7 +114,7 @@
 </h2>
 <p>SPAM 图亮</p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3871519396435532" target="freeweibo-mirror">SPAM 就是那个时候空中管制，在虹桥机场等了八小时。就说是…</a>
 </h2>
