@@ -54,7 +54,7 @@
 </h2>
 <p>SPAM 终于有人开教男人穿衣撘配的徽博拉~~</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3871833541565886" target="freeweibo-mirror">[哈哈]//@海南梁山:[哈哈] //@范桶:[哈哈]//@…</a>
 </h2>
