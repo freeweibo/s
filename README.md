@@ -54,7 +54,7 @@
 </h2>
 <p>助毛为虐//@墨鉅50:周总理在干嘛呢？</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3871571049064032" target="freeweibo-mirror">不是370.是俄国人干下来的。 //@雨溪情:天朝弃民，背弃…</a>
 </h2>
