@@ -32,6 +32,12 @@
 <p>
 	<small> ============== 1小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3871655128279257" target="freeweibo-mirror">SPAM 專訪艾未未：該說的話，我已經說完了</a>
+</h2>
+<p>SPAM 專訪艾未未：該說的話，我已經說完了<br><img src="http://ww4.sinaimg.cn/large/895b3cacjw1eup2k4bdjpj20c33jdke5.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3871650535179432" target="freeweibo-mirror">这些高官，怎么一个个的像西门庆似的，是家教不好？还是别的啥原…</a>
 </h2>
 <p>这些高官，怎么一个个的像西门庆似的，是家教不好？还是别的啥原因？//@刘军宁:跟红色电影里的主角相比，这个家伙才真是特殊材料制成的，估计肾是不锈钢的。 //@泰守轩Yamamoto:怎么可能没有责任？他可是胡的大管家诶！ //@蔚蓝1911ROC:姓胡的难道没有责任，不出来说几句吗？</p>
@@ -66,7 +72,7 @@
 </h2>
 <p>SPAM  //@北疆观点:形象、生动的一盘棋！</p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3871551096968461" target="freeweibo-mirror">//@活捉死老鼠: //@笑扣柴扉: //@shenggoo…</a>
 </h2>
@@ -102,7 +108,7 @@
 </h2>
 <p>食色性也，凡禁慾團體，無論佛耶，沒有不鬧醜聞的。中國佛教或許應該改革僧團戒律，向日本淨土真宗學習，允許僧尼結婚生育//@清华孙立平:有人问我对这个事情的看法，我说没看法。我对这个事情一点都不了解，只能希望有关部门弄清真相。对涉及他人荣辱的事情轻易表态，对没看懂他人的观点就肆意攻击，</p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3871535095701402" target="freeweibo-mirror">一句话，站队站错了。</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3871525666818822" target="freeweibo-mirror">SPAM //@善待他人就是善待自己: 图亮</a>
 </h2>
 <p>SPAM //@善待他人就是善待自己: 图亮</p>
-<p>
-	<small> ============== 10小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3871524001460733" target="freeweibo-mirror">SPAM 图亮</a>
-</h2>
-<p>SPAM 图亮</p>
 <p>
 	<small> ============== 10小时前</small>
 </p>
