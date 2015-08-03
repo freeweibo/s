@@ -66,7 +66,7 @@
 </h2>
 <p>SPAM 吃喝玩乐全都有，GET！！</p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3871552782976303" target="freeweibo-mirror">SPAM  //@北疆观点:形象、生动的一盘棋！</a>
 </h2>
@@ -90,13 +90,13 @@
 </h2>
 <p>SPAM //@活捉死老鼠: [偷笑]//@笑扣柴扉: 解散所有国际组织//@元士83:奥运政治化是奥林匹克精神的耻辱。//@率率乐妮再来: [doge][嘻嘻]//@萌军返航:[哼][嘻嘻]</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3871550274754631" target="freeweibo-mirror">SPAM 这棋局如何下？</a>
 </h2>
 <p>SPAM 这棋局如何下？<br><img src="http://ww3.sinaimg.cn/large/005WEf8wjw1euoqhxg4jej30bk0co755.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3871548009705543" target="freeweibo-mirror">SPAM 晚安，亲们</a>
 </h2>
