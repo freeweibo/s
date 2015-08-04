@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3872213272871429" target="freeweibo-mirror">SPAM 首先你得有一台车，还要有人约……[doge]</a>
+</h2>
+<p>SPAM 首先你得有一台车，还要有人约……[doge]</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3872177654997780" target="freeweibo-mirror">SPAM [doge]//@我的极品评论: //@有趣先森:…</a>
 </h2>
 <p>SPAM [doge]//@我的极品评论: //@有趣先森:[doge]<br><br>RE: 男人女人都爱死的KJ六式[doge]#男女之间那些事儿#<br><img src="http://ww3.sinaimg.cn/large/9ccac732gw1euqqf8s7jfj20d20puq4f.jpg"></p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3872145710846066" target="freeweibo-mirror">SPAM 10：43写错了//@太商公: 你如果在9：43分…</a>
 </h2>
 <p>SPAM 10：43写错了//@太商公: 你如果在9：43分哥说完就低吸，今儿收了15%吧，点个赞吧，嘻嘻嘻</p>
-<p>
-	<small> ============== 5小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3872143030689048" target="freeweibo-mirror">//@天主自会照料:马克思女儿燕妮，问历史学家维特克：“您能…</a>
-</h2>
-<p>//@天主自会照料:马克思女儿燕妮，问历史学家维特克：“您能用最简明的语言，把人类历史浓缩在一本小册子里吗？”维特克说：“不必，只要四句德国谚语就够了。”  ①天主让谁灭亡，总是先让他膨胀。 ②时间是筛子，最终会淘去一切沉渣。 ③蜜蜂盗花，结果却使花开茂盛。 ④暗透了，更能看得见星光。<br><br>RE: 今天上午温州地区最东边的村庄，洞头鹿西岛东臼教堂十字架被非法强拆。 http://t.cn/RLj2PyF<br><img src="http://ww1.sinaimg.cn/large/e59d35a1gw1euqigeouzuj20gn0ch3yn.jpg"></p>
 <p>
 	<small> ============== 5小时前</small>
 </p>
