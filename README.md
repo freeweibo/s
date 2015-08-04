@@ -26,6 +26,12 @@
 <p>
 	<small> ============== 1小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3872042316928087" target="freeweibo-mirror">纽约时报：令计划之弟已潜逃美国，或寻求政治庇护。</a>
+</h2>
+<p>纽约时报：令计划之弟已潜逃美国，或寻求政治庇护。<br><img src="http://ww3.sinaimg.cn/large/627cf045jw1euqb0nqddej20ff0m8wgp.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3872033013897135" target="freeweibo-mirror">【美国媒体：Finish Ling已在美国】美国纽约时报今天…</a>
 </h2>
 <p>【美国媒体：Finish Ling已在美国】美国纽约时报今天发布报道称，几位美国官员表示，其确已潜逃至美国，并有可能寻求政治庇护。文章分析认为，其掌握大量资料，“如果寻求政治庇护成功，将成为历史上最具破坏力的叛逃者。”http://t.cn/RLluoy4<br><img src="http://ww3.sinaimg.cn/large/6298156bgw1euq9xipvftj207705e0ss.jpg"></p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3871563159532693" target="freeweibo-mirror">SPAM  //@伶伦-土拔鼠8:黑方必输。。。。。黑方前线…</a>
 </h2>
 <p>SPAM  //@伶伦-土拔鼠8:黑方必输。。。。。黑方前线有一些是被蝇头小利收买的叛徒，余下大多是被洗脑的愚民；而后方大将则早已被没收了武器甚至被捆绑囚禁。//@周彣2015: 正负能量啥时候对决啊//@陈茂来-: //@北疆观点:形象、生动的一盘棋！</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3871557161877745" target="freeweibo-mirror">SPAM 吃喝玩乐全都有，GET！！</a>
-</h2>
-<p>SPAM 吃喝玩乐全都有，GET！！</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
