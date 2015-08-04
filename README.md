@@ -24,7 +24,7 @@
 </h2>
 <p>SPAM [嘻嘻]这个周末见~！</p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3871850964330032" target="freeweibo-mirror">SPAM 回复@梦语心说:亲，今儿抢入了#北斗星通# //@…</a>
 </h2>
