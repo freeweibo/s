@@ -38,6 +38,12 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3872192212821089" target="freeweibo-mirror">【时评】不必去担心境外势力的和平演变，国人对于国家朴实的感情…</a>
+</h2>
+<p>【时评】不必去担心境外势力的和平演变，国人对于国家朴实的感情是最坚强的武器；不必担心微博上那些哀其不幸怒其不争的批评，基于爱的批评再犀利的言辞也掩盖不了心中的善意。倒是应该警惕你们自己，那些丧心病狂的贪官，那些血腥冷酷的暴力，那些近乎无耻的谎言与标榜。他们才是这个国家最大的陷阱！<br><img src="http://ww1.sinaimg.cn/large/0068aOp0jw1euqs8rt3ggj30b407kt9e.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3872177654997780" target="freeweibo-mirror">SPAM [doge]//@我的极品评论: //@有趣先森:…</a>
 </h2>
 <p>SPAM [doge]//@我的极品评论: //@有趣先森:[doge]<br><br>RE: 男人女人都爱死的KJ六式[doge]#男女之间那些事儿#<br><img src="http://ww3.sinaimg.cn/large/9ccac732gw1euqqf8s7jfj20d20puq4f.jpg"></p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3872150068949069" target="freeweibo-mirror">SPAM [哈哈]//@都来汗: //@作家川歌: //@不…</a>
 </h2>
 <p>SPAM [哈哈]//@都来汗: //@作家川歌: //@不平则鸣V: //@陇上一哥:这是国家机密，里面有很多治国的计谋，岂能外人拿走，学了咋办？！//@鹰隼N1A晏欢: [哈哈][哈哈][哈哈]//@老衲昨夜观天象: [挖鼻]<br><br>RE: BBC的记者因为在书店买了几本习的著作被警察拆包盘问……她在Twitter上吐槽：“难道是因为这些书没有人会购买，所以当我去买就显得很可疑么？”<br><img src="http://ww2.sinaimg.cn/large/5d098bccgw1euqk9xjkyqj20gg0j676y.jpg"></p>
-<p>
-	<small> ============== 6小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3872146235160818" target="freeweibo-mirror">SPAM #ARM智趣生活#烈日炎炎，不如转战室内，在家轰趴…</a>
-</h2>
-<p>SPAM #ARM智趣生活#烈日炎炎，不如转战室内，在家轰趴如何？看看ARM Powered的几款夏日居家神器，现在入手正是时候！<br><img src="http://ww1.sinaimg.cn/large/5e0b3d25gw1euqmyfj7r8j21502n5000.jpg"></p>
 <p>
 	<small> ============== 6小时前</small>
 </p>
