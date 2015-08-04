@@ -138,7 +138,7 @@
 </h2>
 <p>歌声中，十字架被拆...http://t.cn/RLl4LWQ</p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p>
 <table>
     <tr>
