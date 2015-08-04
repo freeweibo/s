@@ -24,13 +24,13 @@
 </h2>
 <p>SPAM //@王亚军北京: 咋都往美国跑？跑一个朝鲜不行吗？<br><br>RE: 纽约时报：令计划之弟已潜逃美国，或寻求政治庇护。<br><img src="http://ww3.sinaimg.cn/large/627cf045jw1euqb0nqddej20ff0m8wgp.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3872046339436215" target="freeweibo-mirror">SPAM 咋都往美国跑？跑一个朝鲜不行吗？</a>
 </h2>
 <p>SPAM 咋都往美国跑？跑一个朝鲜不行吗？<br><br>RE: 纽约时报：令计划之弟已潜逃美国，或寻求政治庇护。<br><img src="http://ww3.sinaimg.cn/large/627cf045jw1euqb0nqddej20ff0m8wgp.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3872042316928087" target="freeweibo-mirror">纽约时报：令计划之弟已潜逃美国，或寻求政治庇护。</a>
 </h2>
