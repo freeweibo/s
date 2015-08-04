@@ -42,7 +42,7 @@
 </h2>
 <p>【美国媒体：Finish Ling已在美国】美国纽约时报今天发布报道称，几位美国官员表示，其确已潜逃至美国，并有可能寻求政治庇护。文章分析认为，其掌握大量资料，“如果寻求政治庇护成功，将成为历史上最具破坏力的叛逃者。”http://t.cn/RLluoy4<br><img src="http://ww3.sinaimg.cn/large/6298156bgw1euq9xipvftj207705e0ss.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3871855444117264" target="freeweibo-mirror">SPAM [嘻嘻]这个周末见~！</a>
 </h2>
