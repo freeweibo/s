@@ -30,7 +30,7 @@
 </h2>
 <p>纽约时报：令计划之弟已潜逃美国，或寻求政治庇护。<br><img src="http://ww3.sinaimg.cn/large/627cf045jw1euqb0nqddej20ff0m8wgp.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3872033013897135" target="freeweibo-mirror">【美国媒体：Finish Ling已在美国】美国纽约时报今天…</a>
 </h2>
