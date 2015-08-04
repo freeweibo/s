@@ -126,7 +126,7 @@
 </h2>
 <p>SPAM 无赦。</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3872078199391063" target="freeweibo-mirror">【海a陀a、松a山的最后申诉】大家理性转评，举国盛事要办好，…</a>
 </h2>
