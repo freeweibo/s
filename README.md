@@ -78,7 +78,7 @@
 </h2>
 <p>[泪][泪][泪]<br><br>RE: 【贵州毕节一对留守兄妹家中死亡】3日晚，贵州毕节纳雍县勺窝乡水沟村两名留守儿童在家中死亡，死者为亲兄妹，在家中被杀害，身中数刀。村民称，两名死者的爷爷奶奶过世多年，由父亲照看。父亲外出打工后，孩子独自生活。目前警方已介入调查，确定该案为刑事案件。（新京报）http://t.cn/RLjOSMo<br><img src="http://ww2.sinaimg.cn/large/625ab309jw1euqx88fa7cj20dc08wdh0.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3872262958552945" target="freeweibo-mirror">冰火两重天！ //@清华孙立平:回复@情菲得意精选集:这个不…</a>
 </h2>
@@ -126,7 +126,7 @@
 </h2>
 <p>#拍案#【贵州毕节怪圈！又一对留守兄妹家中遇害[蜡烛]】3日晚，贵州毕节纳雍县两名留守儿童在家中遇害。据悉死者为亲兄妹，排行老二、老三，昨晚大姐离家一夜未回，今晨回家发现老二(2000年生)和三弟(2003年生)遇害，身中数刀。毕节此前已发生多起留守儿童死亡事件，令人痛心。http://t.cn/RLjOftq<br><img src="http://ww2.sinaimg.cn/large/60718250jw1euqyorjyapj20dc08wab4.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3872247716278080" target="freeweibo-mirror">当地公安不是去尽快追查凶手，而是到当地发帖和转帖网友家中，到…</a>
 </h2>
