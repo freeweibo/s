@@ -26,6 +26,12 @@
 <p>
 	<small> ============== 1小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3872046339436215" target="freeweibo-mirror">SPAM 咋都往美国跑？跑一个朝鲜不行吗？</a>
+</h2>
+<p>SPAM 咋都往美国跑？跑一个朝鲜不行吗？<br><br>RE: 纽约时报：令计划之弟已潜逃美国，或寻求政治庇护。<br><img src="http://ww3.sinaimg.cn/large/627cf045jw1euqb0nqddej20ff0m8wgp.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3872042316928087" target="freeweibo-mirror">纽约时报：令计划之弟已潜逃美国，或寻求政治庇护。</a>
 </h2>
 <p>纽约时报：令计划之弟已潜逃美国，或寻求政治庇护。<br><img src="http://ww3.sinaimg.cn/large/627cf045jw1euqb0nqddej20ff0m8wgp.jpg"></p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3871571049064032" target="freeweibo-mirror">不是370.是俄国人干下来的。 //@雨溪情:天朝弃民，背弃…</a>
 </h2>
 <p>不是370.是俄国人干下来的。 //@雨溪情:天朝弃民，背弃祖宗庐墓，在天上瞎飞一个劲儿，死则死耳，没必要为此得罪罗剎。//@宁清平律师:失踪飞机上这么多中国人，居然不支持调查？无法理解。[吃惊]</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3871563159532693" target="freeweibo-mirror">SPAM  //@伶伦-土拔鼠8:黑方必输。。。。。黑方前线…</a>
-</h2>
-<p>SPAM  //@伶伦-土拔鼠8:黑方必输。。。。。黑方前线有一些是被蝇头小利收买的叛徒，余下大多是被洗脑的愚民；而后方大将则早已被没收了武器甚至被捆绑囚禁。//@周彣2015: 正负能量啥时候对决啊//@陈茂来-: //@北疆观点:形象、生动的一盘棋！</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
