@@ -32,6 +32,12 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3872043148157292" target="freeweibo-mirror">//@石扉客2014:转发微博</a>
+</h2>
+<p>//@石扉客2014:转发微博<br><br>RE: 纽约时报：令计划之弟已潜逃美国，或寻求政治庇护。<br><img src="http://ww3.sinaimg.cn/large/627cf045jw1euqb0nqddej20ff0m8wgp.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3872042316928087" target="freeweibo-mirror">纽约时报：令计划之弟已潜逃美国，或寻求政治庇护。</a>
 </h2>
 <p>纽约时报：令计划之弟已潜逃美国，或寻求政治庇护。<br><img src="http://ww3.sinaimg.cn/large/627cf045jw1euqb0nqddej20ff0m8wgp.jpg"></p>
@@ -41,6 +47,12 @@
 	<a href="https://freeweibo.com/weibo/3872033013897135" target="freeweibo-mirror">【美国媒体：Finish Ling已在美国】美国纽约时报今天…</a>
 </h2>
 <p>【美国媒体：Finish Ling已在美国】美国纽约时报今天发布报道称，几位美国官员表示，其确已潜逃至美国，并有可能寻求政治庇护。文章分析认为，其掌握大量资料，“如果寻求政治庇护成功，将成为历史上最具破坏力的叛逃者。”http://t.cn/RLluoy4<br><img src="http://ww3.sinaimg.cn/large/6298156bgw1euq9xipvftj207705e0ss.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3872032246543828" target="freeweibo-mirror">SPAM 这才是（被改造好了的）和平的宗教。[哈哈] //@…</a>
+</h2>
+<p>SPAM 这才是（被改造好了的）和平的宗教。[哈哈] //@明海老墨:这是上帝的意愿，不要忧伤。<br><br>RE: 歌声中，十字架被拆...http://t.cn/RLl4LWQ</p>
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
@@ -125,18 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3871650535179432" target="freeweibo-mirror">这些高官，怎么一个个的像西门庆似的，是家教不好？还是别的啥原…</a>
 </h2>
 <p>这些高官，怎么一个个的像西门庆似的，是家教不好？还是别的啥原因？//@刘军宁:跟红色电影里的主角相比，这个家伙才真是特殊材料制成的，估计肾是不锈钢的。 //@泰守轩Yamamoto:怎么可能没有责任？他可是胡的大管家诶！ //@蔚蓝1911ROC:姓胡的难道没有责任，不出来说几句吗？</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3871630033938435" target="freeweibo-mirror">助毛为虐//@墨鉅50:周总理在干嘛呢？</a>
-</h2>
-<p>助毛为虐//@墨鉅50:周总理在干嘛呢？</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3871571049064032" target="freeweibo-mirror">不是370.是俄国人干下来的。 //@雨溪情:天朝弃民，背弃…</a>
-</h2>
-<p>不是370.是俄国人干下来的。 //@雨溪情:天朝弃民，背弃祖宗庐墓，在天上瞎飞一个劲儿，死则死耳，没必要为此得罪罗剎。//@宁清平律师:失踪飞机上这么多中国人，居然不支持调查？无法理解。[吃惊]</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
