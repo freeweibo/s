@@ -66,7 +66,7 @@
 </h2>
 <p>歌声中，十字架被拆...http://t.cn/RLl4LWQ</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3871855444117264" target="freeweibo-mirror">SPAM [嘻嘻]这个周末见~！</a>
 </h2>
