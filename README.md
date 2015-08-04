@@ -108,7 +108,7 @@
 </h2>
 <p>歌声中，十字架被拆...http://t.cn/RLl4LWQ</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3871903053753782" target="freeweibo-mirror">【郭伯雄、徐才厚：要高度重视意识形态领域斗争；增强政治敏锐性…</a>
 </h2>
