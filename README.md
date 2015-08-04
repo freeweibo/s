@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3872076642932944" target="freeweibo-mirror">有本事的人不搞意识形态斗争，有道理的人不讲意识形态斗争。</a>
+</h2>
+<p>有本事的人不搞意识形态斗争，有道理的人不讲意识形态斗争。<br><br>RE: 【郭伯雄、徐才厚：要高度重视意识形态领域斗争；增强政治敏锐性和政治鉴别力】转：『更令人不可思议难以置信的是，甚至就连郭伯雄、徐才厚这样的军中“大奸”，居然也曾一次次地在公开场合大谈什么“要高度重视意识形态领域斗争；增强政治敏锐性和政治鉴别力”。使人今日目睹之余，别有一番滋味在心头<br><img src="http://ww3.sinaimg.cn/large/daa5b8bfjw1eupv14mx44j20co08c74i.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3872055075888313" target="freeweibo-mirror">SPAM 周一在下午2点之前最低点说轻仓的，现在怎么办捏[挤…</a>
 </h2>
 <p>SPAM 周一在下午2点之前最低点说轻仓的，现在怎么办捏[挤眼]，随思问道231名同学了，数据说明一切[酷]<br><img src="http://ww2.sinaimg.cn/large/5ef5c0aejw1euqch7uddoj20k00b6mxt.jpg"></p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3871664586122980" target="freeweibo-mirror">SPAM 微信朋友圈是墙内华人探索个人自由与边界的主要场所。</a>
 </h2>
 <p>SPAM 微信朋友圈是墙内华人探索个人自由与边界的主要场所。</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3871660060728234" target="freeweibo-mirror">//@品茗云间客://@中产阶级文化在线:</a>
-</h2>
-<p>//@品茗云间客://@中产阶级文化在线:</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
