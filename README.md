@@ -26,6 +26,24 @@
 <p>
 	<small> ============== 1小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3872066699180407" target="freeweibo-mirror">回覆@大明錦衣親軍:所以說啊，那蠢蛋說什麼阿共要血洗台灣，若…</a>
+</h2>
+<p>回覆@大明錦衣親軍:所以說啊，那蠢蛋說什麼阿共要血洗台灣，若台灣無蔣，洗個屁啊！謝謝你證明了他的無知。 //@大明錦衣親軍:蒋公和国民党在大陆 是剿赤匪天经地义，在台湾省的事情 也没血洗什么人啊（除了倭奴）</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3872065536709579" target="freeweibo-mirror">SPAM [吃惊][吃惊][吃惊][蜡烛][蜡烛][蜡烛]</a>
+</h2>
+<p>SPAM [吃惊][吃惊][吃惊][蜡烛][蜡烛][蜡烛]</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3872059341561472" target="freeweibo-mirror">震撼！这拆掉的是民心和合法性，这拆掉的是这个社会的根基。</a>
+</h2>
+<p>震撼！这拆掉的是民心和合法性，这拆掉的是这个社会的根基。</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3872055075888313" target="freeweibo-mirror">SPAM 周一在下午2点之前最低点说轻仓的，现在怎么办捏[挤…</a>
 </h2>
 <p>SPAM 周一在下午2点之前最低点说轻仓的，现在怎么办捏[挤眼]，随思问道231名同学了，数据说明一切[酷]<br><img src="http://ww2.sinaimg.cn/large/5ef5c0aejw1euqch7uddoj20k00b6mxt.jpg"></p>
@@ -116,27 +134,9 @@
 <p>
 	<small> ============== 1天前</small>
 </p><h2>
-	<a href="https://freeweibo.com/weibo/3871809847626312" target="freeweibo-mirror">人民日报副总编卢新宁说：我们在Facebook上的账号粉丝已…</a>
+	<a href="https://freeweibo.com/weibo/3871816017458202" target="freeweibo-mirror">这都拆，真是草木皆兵！[鄙视][鄙视][鄙视][鄙视] ht…</a>
 </h2>
-<p>人民日报副总编卢新宁说：我们在Facebook上的账号粉丝已达460万，超过华尔街日报，全球二位，仅次于纽约时报。记者就此事采访了卢新宁。记者：我只有一个问题。卢：请讲。记者：贵报用的什么翻墙软件？ 卢愣了一会儿，手指大门。记者：自由门？卢：滚出去！<br><img src="http://ww4.sinaimg.cn/large/0069n4G1gw1eupkbeq3w0j30dw09qaab.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3871801064613496" target="freeweibo-mirror">SPAM #拥抱生活拥抱爱#地球都找到男票了，为何我还是个单…</a>
-</h2>
-<p>SPAM #拥抱生活拥抱爱#地球都找到男票了，为何我还是个单身汪[泪][泪][泪]</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3871757070855963" target="freeweibo-mirror">用年轻的生命书写“忠诚”[心][心]就在一个小时前，北京市公…</a>
-</h2>
-<p>用年轻的生命书写“忠诚”[心][心]就在一个小时前，北京市公安局@丰台警事 丰台分局党委副书记、副局长石磊同志在开会时，感到心脏不舒服。送到307医院时已经错过了最佳抢救时间，没有抢救过来。年龄定格在了年轻的44岁。去年，这个分局，刚刚送走了一位病故的副局长！请战友一路走好[蜡烛][蜡烛]</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3871664586122980" target="freeweibo-mirror">SPAM 微信朋友圈是墙内华人探索个人自由与边界的主要场所。</a>
-</h2>
-<p>SPAM 微信朋友圈是墙内华人探索个人自由与边界的主要场所。</p>
+<p>这都拆，真是草木皆兵！[鄙视][鄙视][鄙视][鄙视] http://t.cn/RLl4LWQ .</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
