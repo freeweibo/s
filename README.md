@@ -90,7 +90,7 @@
 </h2>
 <p>SPAM //@元猫大大: //@押沙龙:主要还是担心当事人精神不正常吧。//@邵明波: 这个——有点搞不懂了：警察担心英国人被洗脑吗?<br><br>RE: BBC的记者因为在书店买了几本习的著作被警察拆包盘问……她在Twitter上吐槽：“难道是因为这些书没有人会购买，所以当我去买就显得很可疑么？”<br><img src="http://ww2.sinaimg.cn/large/5d098bccgw1euqk9xjkyqj20gg0j676y.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3872153101136157" target="freeweibo-mirror">SPAM //@汉译名著: [哈哈] //@顾肃:5</a>
 </h2>
