@@ -24,7 +24,7 @@
 </h2>
 <p>SPAM 写得很真实，马给妹子们[心][心][心]</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3872100689675249" target="freeweibo-mirror">SPAM —1吗？</a>
 </h2>
@@ -102,7 +102,7 @@
 </h2>
 <p>//@石扉客2014:转发微博<br><br>RE: 纽约时报：令计划之弟已潜逃美国，或寻求政治庇护。<br><img src="http://ww3.sinaimg.cn/large/627cf045jw1euqb0nqddej20ff0m8wgp.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3872042316928087" target="freeweibo-mirror">纽约时报：令计划之弟已潜逃美国，或寻求政治庇护。</a>
 </h2>
