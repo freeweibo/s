@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3872274421978143" target="freeweibo-mirror">关键词：贵州毕节、留守儿童、意外身亡…</a>
+</h2>
+<p>关键词：贵州毕节、留守儿童、意外身亡…<br><br>RE: 【贵州毕节一对留守兄妹家中死亡】3日晚，贵州毕节纳雍县勺窝乡水沟村两名留守儿童在家中死亡，死者为亲兄妹，在家中被杀害，身中数刀。村民称，两名死者的爷爷奶奶过世多年，由父亲照看。父亲外出打工后，孩子独自生活。目前警方已介入调查，确定该案为刑事案件。（新京报）http://t.cn/RLjOSMo<br><img src="http://ww2.sinaimg.cn/large/625ab309jw1euqx88fa7cj20dc08wdh0.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3872270525145877" target="freeweibo-mirror">太可怕了！ //@谓贤:该下台了！//@爱情发生器: 201…</a>
 </h2>
 <p>太可怕了！ //@谓贤:该下台了！//@爱情发生器: 2012年，5名儿童死在垃圾箱内；2014年4月27日，被爆12名女童被强奸；同年又爆出6名女童被其校长强奸；今年6月份，4名儿童中毒死亡；前者尸骨未寒，现在又有两兄妹被杀！所有这一切，都发生在同一个地方，贵州省毕节市！[怒]]<br><br>RE: 【贵州毕节一对留守兄妹家中死亡】3日晚，贵州毕节纳雍县勺窝乡水沟村两名留守儿童在家中死亡，死者为亲兄妹，在家中被杀害，身中数刀。村民称，两名死者的爷爷奶奶过世多年，由父亲照看。父亲外出打工后，孩子独自生活。目前警方已介入调查，确定该案为刑事案件。（新京报）http://t.cn/RLjOSMo<br><img src="http://ww2.sinaimg.cn/large/625ab309jw1euqx88fa7cj20dc08wdh0.jpg"></p>
@@ -35,6 +41,12 @@
 	<a href="https://freeweibo.com/weibo/3872253655237631" target="freeweibo-mirror">期待破案。谁这样残忍？</a>
 </h2>
 <p>期待破案。谁这样残忍？<br><br>RE: 【#毕节留守兄妹家中死亡# 身中数刀[伤心]】3日晚，贵州毕节两名留守儿童在家中死亡，死者为亲兄妹，分别为12、15岁左右。他们在家中被杀，身中数刀。村民称，死者的爷爷奶奶过世多年，由父亲照看。父亲外出打工后，孩子独自生活。目前警方已介入调查，确定该案为刑事案件。http://t.cn/RLjlEhr<br><img src="http://ww3.sinaimg.cn/large/655dd5f3gw1euqz6346jmj20c8085t9h.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3872253421273946" target="freeweibo-mirror">【#毕节留守兄妹家中死亡# 身中数刀[伤心]】3日晚，贵州毕…</a>
+</h2>
+<p>【#毕节留守兄妹家中死亡# 身中数刀[伤心]】3日晚，贵州毕节两名留守儿童在家中死亡，死者为亲兄妹，分别为12、15岁左右。他们在家中被杀，身中数刀。村民称，死者的爷爷奶奶过世多年，由父亲照看。父亲外出打工后，孩子独自生活。目前警方已介入调查，确定该案为刑事案件。http://t.cn/RLjlEhr<br><img src="http://ww3.sinaimg.cn/large/655dd5f3gw1euqz6346jmj20c8085t9h.jpg"></p>
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
@@ -68,9 +80,21 @@
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3872240929841445" target="freeweibo-mirror">【贵州毕节一对留守兄妹家中死亡】3日晚，贵州毕节纳雍县勺窝乡…</a>
+</h2>
+<p>【贵州毕节一对留守兄妹家中死亡】3日晚，贵州毕节纳雍县勺窝乡水沟村两名留守儿童在家中死亡，死者为亲兄妹，在家中被杀害，身中数刀。村民称，两名死者的爷爷奶奶过世多年，由父亲照看。父亲外出打工后，孩子独自生活。目前警方已介入调查，确定该案为刑事案件。（新京报）http://t.cn/RLjOSMo<br><img src="http://ww2.sinaimg.cn/large/625ab309jw1euqx88fa7cj20dc08wdh0.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3872234852205485" target="freeweibo-mirror">SPAM 睡前总是要有精致的东东陪伴~</a>
 </h2>
 <p>SPAM 睡前总是要有精致的东东陪伴~</p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3872234517389432" target="freeweibo-mirror">【#毕节两儿童家中遇害# 疑为留守儿童】村民张林称孩子的妈妈…</a>
+</h2>
+<p>【#毕节两儿童家中遇害# 疑为留守儿童】村民张林称孩子的妈妈、爷爷奶奶早年过世，事发前爸爸在贵阳打工，家里就剩三个孩子。姐姐在同学家睡觉，次日回到家，发现12岁的弟弟和14岁的妹妹遇害，当时两个孩子身上有刀伤。毕节市一工作人员证实有两名孩子遇害。县公安局正在调查中。http://t.cn/RLj0Slo<br><img src="http://ww4.sinaimg.cn/large/005vnhZYgw1euqx3o5r7ij30go0cm0tw.jpg"></p>
 <p>
 	<small> ============== 4小时前</small>
 </p><h2>
@@ -102,7 +126,7 @@
 </h2>
 <p>毕节市留守儿童又出事了！http://t.cn/RLjtABN 留守儿童被凶杀！死者为两个十多岁的小孩，男孩12岁，女孩14岁。当地警方封锁消息！请问毕节市政府某些官员，你们还有良心吗？当地政府严重失职渎职！此前我揭露的毕节市政府账户内1.77亿元留守儿童专项资金不见了，至今不回应<br><img src="http://ww4.sinaimg.cn/large/540e98dfgw1euqu2gtb92j20gb0cgdiq.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3872192212821089" target="freeweibo-mirror">【时评】不必去担心境外势力的和平演变，国人对于国家朴实的感情…</a>
 </h2>
@@ -115,30 +139,6 @@
 <p>SPAM [doge]//@我的极品评论: //@有趣先森:[doge]<br><br>RE: 男人女人都爱死的KJ六式[doge]#男女之间那些事儿#<br><img src="http://ww3.sinaimg.cn/large/9ccac732gw1euqqf8s7jfj20d20puq4f.jpg"></p>
 <p>
 	<small> ============== 8小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3872177528598705" target="freeweibo-mirror">测试一下：野生带鱼 //@BrianTzw://@开水族馆的…</a>
-</h2>
-<p>测试一下：野生带鱼 //@BrianTzw://@开水族馆的生物男:右右的链接太牛了，敢情长鱼侯的日常工作就是举报啊//@战争史研究WHS:[笑cry][真V5][真V5]//@北斗书生:今天一口气举报了数百名说带鱼的，野生的太伤人了 http://t.cn/RLjMgqN //@大咕咕咕鸡: 小平同志这是终于认祖了吗，喷了！当代生活</p>
-<p>
-	<small> ============== 8小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3872177272759026" target="freeweibo-mirror">男人女人都爱死的KJ六式[doge]#男女之间那些事儿#</a>
-</h2>
-<p>男人女人都爱死的KJ六式[doge]#男女之间那些事儿#<br><img src="http://ww3.sinaimg.cn/large/9ccac732gw1euqqf8s7jfj20d20puq4f.jpg"></p>
-<p>
-	<small> ============== 8小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3872162592729362" target="freeweibo-mirror">[嘻嘻][笑cry]那我昨天晚上吃了红烧带鱼，这岂不是更有问…</a>
-</h2>
-<p>[嘻嘻][笑cry]那我昨天晚上吃了红烧带鱼，这岂不是更有问题了[笑cry]//@WeMarketing: 不是说不许成精吗？//@大咕咕咕鸡: 小平同志这是终于认祖了吗，喷了！当代生活的残酷性，一个活生生的人，在话语的凝视下活活被建构成一条带鱼</p>
-<p>
-	<small> ============== 9小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3872162186112804" target="freeweibo-mirror">SPAM 那我请一条略带瑕疵 //@战争史研究WHS:“同志…</a>
-</h2>
-<p>SPAM 那我请一条略带瑕疵 //@战争史研究WHS:“同志，我买两条不要辜负时代”“混蛋，那能说买吗？得说请！” //@寒奈何:那以后买*#&怎么说？ //@开水族馆的生物男:还是得说，清蒸带鱼最好吃//@狼-勿开心:暴阉带鱼[嘻嘻]//@四月的风919:煎带鱼、炸带鱼、红烧带鱼、清蒸带鱼！//@ruanruan3:我也是打了带鱼两字</p>
-<p>
-	<small> ============== 9小时前</small>
 </p>
 <table>
     <tr>
