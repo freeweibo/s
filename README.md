@@ -38,6 +38,12 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3872241945040958" target="freeweibo-mirror">更正：是常万全，不是常万年。我要问这位国防部长，从习王揭出的…</a>
+</h2>
+<p>更正：是常万全，不是常万年。我要问这位国防部长，从习王揭出的问题来看，军内出了几十个大老虎，黄金人民币成吨成卡车地往家拉，房子几十几百套地捞。卖官卖到骇人听闻的地步，身为国防部长，该负什么责？一二十年来把军队搞成这样，还在吹这个时期的那种指导思想的伟大，到底还想干什么？</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3872234852205485" target="freeweibo-mirror">SPAM 睡前总是要有精致的东东陪伴~</a>
 </h2>
 <p>SPAM 睡前总是要有精致的东东陪伴~</p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3872153479011501" target="freeweibo-mirror">SPAM //@元猫大大: //@押沙龙:主要还是担心当事人…</a>
 </h2>
 <p>SPAM //@元猫大大: //@押沙龙:主要还是担心当事人精神不正常吧。//@邵明波: 这个——有点搞不懂了：警察担心英国人被洗脑吗?<br><br>RE: BBC的记者因为在书店买了几本习的著作被警察拆包盘问……她在Twitter上吐槽：“难道是因为这些书没有人会购买，所以当我去买就显得很可疑么？”<br><img src="http://ww2.sinaimg.cn/large/5d098bccgw1euqk9xjkyqj20gg0j676y.jpg"></p>
-<p>
-	<small> ============== 7小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3872153101136157" target="freeweibo-mirror">SPAM //@汉译名著: [哈哈] //@顾肃:5</a>
-</h2>
-<p>SPAM //@汉译名著: [哈哈] //@顾肃:5<br><br>RE: BBC的记者因为在书店买了几本习的著作被警察拆包盘问……她在Twitter上吐槽：“难道是因为这些书没有人会购买，所以当我去买就显得很可疑么？”<br><img src="http://ww2.sinaimg.cn/large/5d098bccgw1euqk9xjkyqj20gg0j676y.jpg"></p>
 <p>
 	<small> ============== 8小时前</small>
 </p>
