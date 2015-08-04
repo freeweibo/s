@@ -32,6 +32,12 @@
 <p>
 	<small> ============== 1小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3872208508136976" target="freeweibo-mirror">毕节市留守儿童又出事了！http://t.cn/RLjtAB…</a>
+</h2>
+<p>毕节市留守儿童又出事了！http://t.cn/RLjtABN 留守儿童被凶杀！死者为两个十多岁的小孩，男孩12岁，女孩14岁。当地警方封锁消息！请问毕节市政府某些官员，你们还有良心吗？当地政府严重失职渎职！此前我揭露的毕节市政府账户内1.77亿元留守儿童专项资金不见了，至今不回应<br><img src="http://ww4.sinaimg.cn/large/540e98dfgw1euqu2gtb92j20gb0cgdiq.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3872177654997780" target="freeweibo-mirror">SPAM [doge]//@我的极品评论: //@有趣先森:…</a>
 </h2>
 <p>SPAM [doge]//@我的极品评论: //@有趣先森:[doge]<br><br>RE: 男人女人都爱死的KJ六式[doge]#男女之间那些事儿#<br><img src="http://ww3.sinaimg.cn/large/9ccac732gw1euqqf8s7jfj20d20puq4f.jpg"></p>
@@ -114,13 +120,13 @@
 </h2>
 <p>SPAM 主要还是担心精髓被洋人学去了吧？[嘻嘻]//@织梦作坊: 还有这事？[吃惊]//@古丽亚2010: //@刘力博士://@shuiduoduo://@脱线的胖子: //@悠野V: //@押沙龙: 主要还是担心当事人精神不正常吧<br><br>RE: BBC的记者因为在书店买了几本习的著作被警察拆包盘问……她在Twitter上吐槽：“难道是因为这些书没有人会购买，所以当我去买就显得很可疑么？”<br><img src="http://ww2.sinaimg.cn/large/5d098bccgw1euqk9xjkyqj20gg0j676y.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3872151092097023" target="freeweibo-mirror">终于有人开教男人穿衣撘配的徽博拉~~</a>
 </h2>
 <p>终于有人开教男人穿衣撘配的徽博拉~~</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3872150068949069" target="freeweibo-mirror">SPAM [哈哈]//@都来汗: //@作家川歌: //@不…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3872146235160818" target="freeweibo-mirror">SPAM #ARM智趣生活#烈日炎炎，不如转战室内，在家轰趴…</a>
 </h2>
 <p>SPAM #ARM智趣生活#烈日炎炎，不如转战室内，在家轰趴如何？看看ARM Powered的几款夏日居家神器，现在入手正是时候！<br><img src="http://ww1.sinaimg.cn/large/5e0b3d25gw1euqmyfj7r8j21502n5000.jpg"></p>
-<p>
-	<small> ============== 6小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3872146067477609" target="freeweibo-mirror">SPAM 八十年代的中国，还有83年“严打”和89年的“柳丝…</a>
-</h2>
-<p>SPAM 八十年代的中国，还有83年“严打”和89年的“柳丝”。//@谁家横笛DR: 那时候，天光很蓝，水色很清，人心也干净…那时候，邻里相亲，师生互敬，日子过的特有劲…看而今，苟苟蝇营，计较斤斤，全民攀比论输赢…[巨汗]</p>
 <p>
 	<small> ============== 6小时前</small>
 </p>
