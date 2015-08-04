@@ -120,13 +120,13 @@
 </h2>
 <p>纽约时报：令计划之弟已潜逃美国，或寻求政治庇护。<br><img src="http://ww3.sinaimg.cn/large/627cf045jw1euqb0nqddej20ff0m8wgp.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3872042048496726" target="freeweibo-mirror">咬住合肥替身和法国幻灯别墅不放松，挺B降W不放松，和汉奸卖国…</a>
 </h2>
 <p>咬住合肥替身和法国幻灯别墅不放松，挺B降W不放松，和汉奸卖国贼的斗争不放松！</p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3872039473705797" target="freeweibo-mirror">在浙江各地，1200多间基督教堂被强拆“十字架”，众所周知基…</a>
 </h2>
