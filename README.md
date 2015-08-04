@@ -26,11 +26,17 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3872100689675249" target="freeweibo-mirror">SPAM —1吗？</a>
+</h2>
+<p>SPAM —1吗？</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3872096163689587" target="freeweibo-mirror">赵构永世之耻辱！这货根本没有底线！擦！//@银-狼: //@…</a>
 </h2>
 <p>赵构永世之耻辱！这货根本没有底线！擦！//@银-狼: //@jkglhlw://@梅铮星: //@小吕臭臭40: 见鬼的会纷至沓来[笑cry]//@薄衫降温2015:所以那个满铭安真的见鬼去了！//@未来之门123: 合肥替身事件实在是太无耻了//@讀天書AAA01://@李汉平Leehoping: //@又见冰轮1: //@霸州刘荣义://@夜雨巴山H:<br><br>RE: 咬住合肥替身和法国幻灯别墅不放松，挺B降W不放松，和汉奸卖国贼的斗争不放松！</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3872095069309611" target="freeweibo-mirror">SPAM 这也太胡说八道牵强附会了[哈哈]//@若般蜜波罗:…</a>
 </h2>
@@ -66,7 +72,7 @@
 </h2>
 <p>SPAM [吃惊][吃惊][吃惊][蜡烛][蜡烛][蜡烛]</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3872059341561472" target="freeweibo-mirror">震撼！这拆掉的是民心和合法性，这拆掉的是这个社会的根基。</a>
 </h2>
@@ -110,6 +116,12 @@
 <p>
 	<small> ============== 6小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3872039473705797" target="freeweibo-mirror">在浙江各地，1200多间基督教堂被强拆“十字架”，众所周知基…</a>
+</h2>
+<p>在浙江各地，1200多间基督教堂被强拆“十字架”，众所周知基督教传播的是自由，博爱，慈悲！世界上只有两个组织在强拆十字架:一个是ISIS，另一个就是中国！！！中国连最起码的国民信仰自由都做不到，谈何大国崛起，中华复兴！净TM扯犊子！！！造孽呀，造孽呀，这帮土匪！！！恳求“马克思”带走它们<br><img src="http://ww3.sinaimg.cn/large/67834479jw1euqaeds3qoj20dc0l6gmt.jpg"></p>
+<p>
+	<small> ============== 6小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3872033013897135" target="freeweibo-mirror">【美国媒体：Finish Ling已在美国】美国纽约时报今天…</a>
 </h2>
 <p>【美国媒体：Finish Ling已在美国】美国纽约时报今天发布报道称，几位美国官员表示，其确已潜逃至美国，并有可能寻求政治庇护。文章分析认为，其掌握大量资料，“如果寻求政治庇护成功，将成为历史上最具破坏力的叛逃者。”http://t.cn/RLluoy4<br><img src="http://ww3.sinaimg.cn/large/6298156bgw1euq9xipvftj207705e0ss.jpg"></p>
@@ -127,18 +139,6 @@
 <p>歌声中，十字架被拆...http://t.cn/RLl4LWQ</p>
 <p>
 	<small> ============== 7小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3871903053753782" target="freeweibo-mirror">【郭伯雄、徐才厚：要高度重视意识形态领域斗争；增强政治敏锐性…</a>
-</h2>
-<p>【郭伯雄、徐才厚：要高度重视意识形态领域斗争；增强政治敏锐性和政治鉴别力】转：『更令人不可思议难以置信的是，甚至就连郭伯雄、徐才厚这样的军中“大奸”，居然也曾一次次地在公开场合大谈什么“要高度重视意识形态领域斗争；增强政治敏锐性和政治鉴别力”。使人今日目睹之余，别有一番滋味在心头<br><img src="http://ww3.sinaimg.cn/large/daa5b8bfjw1eupv14mx44j20co08c74i.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3871855444117264" target="freeweibo-mirror">SPAM [嘻嘻]这个周末见~！</a>
-</h2>
-<p>SPAM [嘻嘻]这个周末见~！</p>
-<p>
-	<small> ============== 1天前</small>
 </p>
 <table>
     <tr>
