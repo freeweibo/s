@@ -54,13 +54,13 @@
 </h2>
 <p>英国人对商业利益的兴趣远大于对别国领土的兴趣。1840年以其军事实力击败中国，只要了香港岛作为贸易枢纽，可见一斑。[酷]//@林乐山: //@简直:目光如炬。老毛子＋老毛了结了中国。</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3872076642932944" target="freeweibo-mirror">有本事的人不搞意识形态斗争，有道理的人不讲意识形态斗争。</a>
 </h2>
 <p>有本事的人不搞意识形态斗争，有道理的人不讲意识形态斗争。<br><br>RE: 【郭伯雄、徐才厚：要高度重视意识形态领域斗争；增强政治敏锐性和政治鉴别力】转：『更令人不可思议难以置信的是，甚至就连郭伯雄、徐才厚这样的军中“大奸”，居然也曾一次次地在公开场合大谈什么“要高度重视意识形态领域斗争；增强政治敏锐性和政治鉴别力”。使人今日目睹之余，别有一番滋味在心头<br><img src="http://ww3.sinaimg.cn/large/daa5b8bfjw1eupv14mx44j20co08c74i.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3872066699180407" target="freeweibo-mirror">回覆@大明錦衣親軍:所以說啊，那蠢蛋說什麼阿共要血洗台灣，若…</a>
 </h2>
@@ -90,13 +90,13 @@
 </h2>
 <p>SPAM //@王亚军北京: 咋都往美国跑？跑一个朝鲜不行吗？<br><br>RE: 纽约时报：令计划之弟已潜逃美国，或寻求政治庇护。<br><img src="http://ww3.sinaimg.cn/large/627cf045jw1euqb0nqddej20ff0m8wgp.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3872046339436215" target="freeweibo-mirror">SPAM 咋都往美国跑？跑一个朝鲜不行吗？</a>
 </h2>
 <p>SPAM 咋都往美国跑？跑一个朝鲜不行吗？<br><br>RE: 纽约时报：令计划之弟已潜逃美国，或寻求政治庇护。<br><img src="http://ww3.sinaimg.cn/large/627cf045jw1euqb0nqddej20ff0m8wgp.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3872043148157292" target="freeweibo-mirror">//@石扉客2014:转发微博</a>
 </h2>
@@ -132,7 +132,7 @@
 </h2>
 <p>SPAM 这才是（被改造好了的）和平的宗教。[哈哈] //@明海老墨:这是上帝的意愿，不要忧伤。<br><br>RE: 歌声中，十字架被拆...http://t.cn/RLl4LWQ</p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3872030216618596" target="freeweibo-mirror">歌声中，十字架被拆...http://t.cn/RLl4LW…</a>
 </h2>
