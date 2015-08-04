@@ -48,7 +48,7 @@
 </h2>
 <p>SPAM 周一在下午2点之前最低点说轻仓的，现在怎么办捏[挤眼]，随思问道231名同学了，数据说明一切[酷]<br><img src="http://ww2.sinaimg.cn/large/5ef5c0aejw1euqch7uddoj20k00b6mxt.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3872046910453097" target="freeweibo-mirror">SPAM //@王亚军北京: 咋都往美国跑？跑一个朝鲜不行吗…</a>
 </h2>
