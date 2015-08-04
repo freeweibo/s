@@ -56,6 +56,12 @@
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3872030216618596" target="freeweibo-mirror">歌声中，十字架被拆...http://t.cn/RLl4LW…</a>
+</h2>
+<p>歌声中，十字架被拆...http://t.cn/RLl4LWQ</p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3871855444117264" target="freeweibo-mirror">SPAM [嘻嘻]这个周末见~！</a>
 </h2>
 <p>SPAM [嘻嘻]这个周末见~！</p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3871655128279257" target="freeweibo-mirror">SPAM 專訪艾未未：該說的話，我已經說完了</a>
 </h2>
 <p>SPAM 專訪艾未未：該說的話，我已經說完了<br><img src="http://ww4.sinaimg.cn/large/895b3cacjw1eup2k4bdjpj20c33jdke5.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3871650535179432" target="freeweibo-mirror">这些高官，怎么一个个的像西门庆似的，是家教不好？还是别的啥原…</a>
-</h2>
-<p>这些高官，怎么一个个的像西门庆似的，是家教不好？还是别的啥原因？//@刘军宁:跟红色电影里的主角相比，这个家伙才真是特殊材料制成的，估计肾是不锈钢的。 //@泰守轩Yamamoto:怎么可能没有责任？他可是胡的大管家诶！ //@蔚蓝1911ROC:姓胡的难道没有责任，不出来说几句吗？</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
