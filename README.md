@@ -66,7 +66,7 @@
 </h2>
 <p>毕节农村真的太穷了 //@我是西蒙周: 为什么？<br><br>RE: 【贵州毕节一对留守兄妹家中死亡】3日晚，贵州毕节纳雍县勺窝乡水沟村两名留守儿童在家中死亡，死者为亲兄妹，在家中被杀害，身中数刀。村民称，两名死者的爷爷奶奶过世多年，由父亲照看。父亲外出打工后，孩子独自生活。目前警方已介入调查，确定该案为刑事案件。（新京报）http://t.cn/RLjOSMo<br><img src="http://ww2.sinaimg.cn/large/625ab309jw1euqx88fa7cj20dc08wdh0.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3872266150782542" target="freeweibo-mirror">该下台了！//@爱情发生器: 2012年，5名儿童死在垃圾箱…</a>
 </h2>
@@ -108,19 +108,19 @@
 </h2>
 <p>期待破案。谁这样残忍？<br><br>RE: 【#毕节留守兄妹家中死亡# 身中数刀[伤心]】3日晚，贵州毕节两名留守儿童在家中死亡，死者为亲兄妹，分别为12、15岁左右。他们在家中被杀，身中数刀。村民称，死者的爷爷奶奶过世多年，由父亲照看。父亲外出打工后，孩子独自生活。目前警方已介入调查，确定该案为刑事案件。http://t.cn/RLjlEhr<br><img src="http://ww3.sinaimg.cn/large/655dd5f3gw1euqz6346jmj20c8085t9h.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3872253421273946" target="freeweibo-mirror">【#毕节留守兄妹家中死亡# 身中数刀[伤心]】3日晚，贵州毕…</a>
 </h2>
 <p>【#毕节留守兄妹家中死亡# 身中数刀[伤心]】3日晚，贵州毕节两名留守儿童在家中死亡，死者为亲兄妹，分别为12、15岁左右。他们在家中被杀，身中数刀。村民称，死者的爷爷奶奶过世多年，由父亲照看。父亲外出打工后，孩子独自生活。目前警方已介入调查，确定该案为刑事案件。http://t.cn/RLjlEhr<br><img src="http://ww3.sinaimg.cn/large/655dd5f3gw1euqz6346jmj20c8085t9h.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3872253177576232" target="freeweibo-mirror">现在没这样的局长了吧？//@浙江周勇: 非常贴切客观</a>
 </h2>
 <p>现在没这样的局长了吧？//@浙江周勇: 非常贴切客观</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3872249251581703" target="freeweibo-mirror">#拍案#【贵州毕节怪圈！又一对留守兄妹家中遇害[蜡烛]】3日…</a>
 </h2>
