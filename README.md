@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3872257812721889" target="freeweibo-mirror">4000点</a>
+</h2>
+<p>4000点</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3872253177576232" target="freeweibo-mirror">现在没这样的局长了吧？//@浙江周勇: 非常贴切客观</a>
 </h2>
 <p>现在没这样的局长了吧？//@浙江周勇: 非常贴切客观</p>
@@ -78,7 +84,7 @@
 </h2>
 <p>毕节市留守儿童又出事了！http://t.cn/RLjtABN 留守儿童被凶杀！死者为两个十多岁的小孩，男孩12岁，女孩14岁。当地警方封锁消息！请问毕节市政府某些官员，你们还有良心吗？当地政府严重失职渎职！此前我揭露的毕节市政府账户内1.77亿元留守儿童专项资金不见了，至今不回应<br><img src="http://ww4.sinaimg.cn/large/540e98dfgw1euqu2gtb92j20gb0cgdiq.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3872192212821089" target="freeweibo-mirror">【时评】不必去担心境外势力的和平演变，国人对于国家朴实的感情…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3872154728671906" target="freeweibo-mirror">中国计划引渡，美国能完成吗？今天的东京新闻晚报二版</a>
 </h2>
 <p>中国计划引渡，美国能完成吗？今天的东京新闻晚报二版<br><img src="http://ww4.sinaimg.cn/large/6b6fa84bjw1euqnxs7k85j20dc0hs41v.jpg"></p>
-<p>
-	<small> ============== 8小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3872153479011501" target="freeweibo-mirror">SPAM //@元猫大大: //@押沙龙:主要还是担心当事人…</a>
-</h2>
-<p>SPAM //@元猫大大: //@押沙龙:主要还是担心当事人精神不正常吧。//@邵明波: 这个——有点搞不懂了：警察担心英国人被洗脑吗?<br><br>RE: BBC的记者因为在书店买了几本习的著作被警察拆包盘问……她在Twitter上吐槽：“难道是因为这些书没有人会购买，所以当我去买就显得很可疑么？”<br><img src="http://ww2.sinaimg.cn/large/5d098bccgw1euqk9xjkyqj20gg0j676y.jpg"></p>
 <p>
 	<small> ============== 8小时前</small>
 </p>
