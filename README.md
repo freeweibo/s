@@ -54,7 +54,7 @@
 </h2>
 <p>//@温柔切菜刀: 说出实话的孩子，是要被打屁股滴。<br><br>RE: 北京大学法学院教授强世功一锤定音：“党比法大”(图)--usa-强世功指出，中国法律甚至包括宪法都是党制定的，党制宪、修宪所遵循的重要依据就是党的路线、方针和政策。因此在党国宪政体制的架构中，党领导全国人大，也因此高于全国人大。由此，我们可以说“党大”，而不是“法大”。<br><img src="http://ww2.sinaimg.cn/large/a284b3f9gw1euoq4pj00nj20r80kfdie.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3872221203875770" target="freeweibo-mirror">扭腰报道，中与令完成谈判失败，要求美引渡，美称这反可能促成令…</a>
 </h2>
@@ -126,7 +126,7 @@
 </h2>
 <p>SPAM 中美之间根本没有引渡条约，何谈引渡，要也是遣返。<br><br>RE: 中国计划引渡，美国能完成吗？今天的东京新闻晚报二版<br><img src="http://ww4.sinaimg.cn/large/6b6fa84bjw1euqnxs7k85j20dc0hs41v.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3872154728671906" target="freeweibo-mirror">中国计划引渡，美国能完成吗？今天的东京新闻晚报二版</a>
 </h2>
