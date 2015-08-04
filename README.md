@@ -60,7 +60,7 @@
 </h2>
 <p>SPAM 无赦。</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3872076907606153" target="freeweibo-mirror">英国人对商业利益的兴趣远大于对别国领土的兴趣。1840年以其…</a>
 </h2>
@@ -132,7 +132,7 @@
 </h2>
 <p>在浙江各地，1200多间基督教堂被强拆“十字架”，众所周知基督教传播的是自由，博爱，慈悲！世界上只有两个组织在强拆十字架:一个是ISIS，另一个就是中国！！！中国连最起码的国民信仰自由都做不到，谈何大国崛起，中华复兴！净TM扯犊子！！！造孽呀，造孽呀，这帮土匪！！！恳求“马克思”带走它们<br><img src="http://ww3.sinaimg.cn/large/67834479jw1euqaeds3qoj20dc0l6gmt.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3872033013897135" target="freeweibo-mirror">【美国媒体：Finish Ling已在美国】美国纽约时报今天…</a>
 </h2>
