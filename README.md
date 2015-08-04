@@ -66,7 +66,7 @@
 </h2>
 <p>//@石扉客2014:转发微博<br><br>RE: 纽约时报：令计划之弟已潜逃美国，或寻求政治庇护。<br><img src="http://ww3.sinaimg.cn/large/627cf045jw1euqb0nqddej20ff0m8wgp.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3872042316928087" target="freeweibo-mirror">纽约时报：令计划之弟已潜逃美国，或寻求政治庇护。</a>
 </h2>
@@ -91,6 +91,12 @@
 <p>歌声中，十字架被拆...http://t.cn/RLl4LWQ</p>
 <p>
 	<small> ============== 4小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3871903053753782" target="freeweibo-mirror">【郭伯雄、徐才厚：要高度重视意识形态领域斗争；增强政治敏锐性…</a>
+</h2>
+<p>【郭伯雄、徐才厚：要高度重视意识形态领域斗争；增强政治敏锐性和政治鉴别力】转：『更令人不可思议难以置信的是，甚至就连郭伯雄、徐才厚这样的军中“大奸”，居然也曾一次次地在公开场合大谈什么“要高度重视意识形态领域斗争；增强政治敏锐性和政治鉴别力”。使人今日目睹之余，别有一番滋味在心头<br><img src="http://ww3.sinaimg.cn/large/daa5b8bfjw1eupv14mx44j20co08c74i.jpg"></p>
+<p>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3871855444117264" target="freeweibo-mirror">SPAM [嘻嘻]这个周末见~！</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3871833541565886" target="freeweibo-mirror">[哈哈]//@海南梁山:[哈哈] //@范桶:[哈哈]//@…</a>
 </h2>
 <p>[哈哈]//@海南梁山:[哈哈] //@范桶:[哈哈]//@徐昕:[哈哈] //@演员孙海英: [哈哈] //@李不白的空间:[哈哈]//@豆名阳:[哈哈]//@凤凰紫荆: [哈哈]//@涛翁wt: [哈哈]<br><br>RE: 人民日报副总编卢新宁说：我们在Facebook上的账号粉丝已达460万，超过华尔街日报，全球二位，仅次于纽约时报。记者就此事采访了卢新宁。记者：我只有一个问题。卢：请讲。记者：贵报用的什么翻墙软件？ 卢愣了一会儿，手指大门。记者：自由门？卢：滚出去！<br><img src="http://ww4.sinaimg.cn/large/0069n4G1gw1eupkbeq3w0j30dw09qaab.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3871816017458202" target="freeweibo-mirror">这都拆，真是草木皆兵！[鄙视][鄙视][鄙视][鄙视] ht…</a>
-</h2>
-<p>这都拆，真是草木皆兵！[鄙视][鄙视][鄙视][鄙视] http://t.cn/RLl4LWQ .</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
