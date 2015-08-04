@@ -20,6 +20,18 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3872046910453097" target="freeweibo-mirror">SPAM //@王亚军北京: 咋都往美国跑？跑一个朝鲜不行吗…</a>
+</h2>
+<p>SPAM //@王亚军北京: 咋都往美国跑？跑一个朝鲜不行吗？<br><br>RE: 纽约时报：令计划之弟已潜逃美国，或寻求政治庇护。<br><img src="http://ww3.sinaimg.cn/large/627cf045jw1euqb0nqddej20ff0m8wgp.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3872033013897135" target="freeweibo-mirror">【美国媒体：Finish Ling已在美国】美国纽约时报今天…</a>
+</h2>
+<p>【美国媒体：Finish Ling已在美国】美国纽约时报今天发布报道称，几位美国官员表示，其确已潜逃至美国，并有可能寻求政治庇护。文章分析认为，其掌握大量资料，“如果寻求政治庇护成功，将成为历史上最具破坏力的叛逃者。”http://t.cn/RLluoy4<br><img src="http://ww3.sinaimg.cn/large/6298156bgw1euq9xipvftj207705e0ss.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3871855444117264" target="freeweibo-mirror">SPAM [嘻嘻]这个周末见~！</a>
 </h2>
 <p>SPAM [嘻嘻]这个周末见~！</p>
@@ -125,18 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3871557161877745" target="freeweibo-mirror">SPAM 吃喝玩乐全都有，GET！！</a>
 </h2>
 <p>SPAM 吃喝玩乐全都有，GET！！</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3871552782976303" target="freeweibo-mirror">SPAM  //@北疆观点:形象、生动的一盘棋！</a>
-</h2>
-<p>SPAM  //@北疆观点:形象、生动的一盘棋！</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3871551096968461" target="freeweibo-mirror">//@活捉死老鼠: //@笑扣柴扉: //@shenggoo…</a>
-</h2>
-<p>//@活捉死老鼠: //@笑扣柴扉: //@shenggooo:直接推毁 //@明天广州会下雨://@澳洲代购哥: 比旧社会还可怕……殊不知绑架拐卖妇女是您国传统，“旧社会”并不比您朝更可爱。 //@梦幻曲rue: //@-核平契丹: //@第388: //@桔灯之光: //@廖德长: //@从林开史: //@渴望自由地呼吸: 转发微博</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
