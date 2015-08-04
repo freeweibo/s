@@ -30,13 +30,13 @@
 </h2>
 <p>SPAM //@王亚军北京: 咋都往美国跑？跑一个朝鲜不行吗？<br><br>RE: 纽约时报：令计划之弟已潜逃美国，或寻求政治庇护。<br><img src="http://ww3.sinaimg.cn/large/627cf045jw1euqb0nqddej20ff0m8wgp.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3872046339436215" target="freeweibo-mirror">SPAM 咋都往美国跑？跑一个朝鲜不行吗？</a>
 </h2>
 <p>SPAM 咋都往美国跑？跑一个朝鲜不行吗？<br><br>RE: 纽约时报：令计划之弟已潜逃美国，或寻求政治庇护。<br><img src="http://ww3.sinaimg.cn/large/627cf045jw1euqb0nqddej20ff0m8wgp.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3872043148157292" target="freeweibo-mirror">//@石扉客2014:转发微博</a>
 </h2>
@@ -60,7 +60,7 @@
 </h2>
 <p>SPAM 这才是（被改造好了的）和平的宗教。[哈哈] //@明海老墨:这是上帝的意愿，不要忧伤。<br><br>RE: 歌声中，十字架被拆...http://t.cn/RLl4LWQ</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3872030216618596" target="freeweibo-mirror">歌声中，十字架被拆...http://t.cn/RLl4LW…</a>
 </h2>
