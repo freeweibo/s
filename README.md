@@ -54,7 +54,7 @@
 </h2>
 <p>SPAM //@小子之愚: 凭什么啊？就为了证明我大天朝有的是钱？//@小子之愚: 我心痛啊、心痛啊！忍不住就想骂娘！<br><br>RE: 两张图片比较，我简直无语了[抓狂]（非洲学生拿中国政府补贴去干什么…）<br><img src="http://ww2.sinaimg.cn/large/8fdf46d6gw1euqvyb1hkrj20cs0gvgn4.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3872274421978143" target="freeweibo-mirror">关键词：贵州毕节、留守儿童、意外身亡…</a>
 </h2>
@@ -96,7 +96,7 @@
 </h2>
 <p>4000点</p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3872254267629103" target="freeweibo-mirror">SPAM //@常哥-ken:当地政府衙门的人死绝了！[怒]</a>
 </h2>
