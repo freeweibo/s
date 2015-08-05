@@ -26,6 +26,12 @@
 <p>
 	<small> ============== 1小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3872625887431691" target="freeweibo-mirror">[衰]//@梁发芾://@搜狐的莱克星顿:呵呵//@王林的微…</a>
+</h2>
+<p>[衰]//@梁发芾://@搜狐的莱克星顿:呵呵//@王林的微博客://@还是南开老魏://@浮萍-6: 看了这图文，还对这国的执政裆抱有幻想的不是傻逼就是失了人性的狗奴才！<br><br>RE: 看到一张图，吓坏了，这是人民的军队，还是要人命的军队啊？<br><img src="http://ww3.sinaimg.cn/large/0068nRymjw1eurn1nte1ij30c80khwgh.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3872584737099033" target="freeweibo-mirror">这个“党”字，孩子们在考试？</a>
 </h2>
 <p>这个“党”字，孩子们在考试？<br><br>RE: 党管干部、党管人才、党管思想、党管群团、党管经济、党管军队、党管教育、党管文艺、党管舆论、党管政法、党管体育、党管生育、党管出版、党管网络、党管脸红、党管出汗、党管洗澡、党管照镜、党管消费、党管天气、党管散步、党管喝茶，党无处不在，无一不管，就是不管自己有没有合法性！<br><img src="http://ww1.sinaimg.cn/large/c57c1a49jw1eurzqiljnej20cs07zq49.jpg"></p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3872425227328011" target="freeweibo-mirror">SPAM  //@黄金树://@王晓鸥_地产: //@于洪涛…</a>
 </h2>
 <p>SPAM  //@黄金树://@王晓鸥_地产: //@于洪涛BP:雪上项目都放张家口吧。//@jlijames:随便 //@李铁军: //@小米黎明:只转不评。 //@鄭峻:只要面子。<br><br>RE: 无耻行径<br><img src="http://ww1.sinaimg.cn/large/459b09c7jw1euqqvoggbtj20c8cefx6p.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3872406693399120" target="freeweibo-mirror">强烈的自卑会使人强烈的自负，一般贪腐的，往往是像这些小时候穷…</a>
-</h2>
-<p>强烈的自卑会使人强烈的自负，一般贪腐的，往往是像这些小时候穷过，被人看不起的人。因为，他们经受不住诱惑，经受不住小人的吹捧。从长期考虑，此男会变成贪官的概率高达90%以上。//@云外天都: 这个男人脑子有病，得治！</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
