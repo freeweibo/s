@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3872626936109848" target="freeweibo-mirror">//@法律及其价值: 留存！//@后余万凯:回复@网络敏感词…</a>
+</h2>
+<p>//@法律及其价值: 留存！//@后余万凯:回复@网络敏感词:人类文明不可能长期允许这样的杀人组织存在下去。 //@网络敏感词:党卫军！为了维护政权可以射杀手无寸铁的人民，这样的政权注定被推翻！ //@后余万凯:高级将领贪腐成风已经是不义，如果向国民开枪更是不仁。不仁不义，存在的理由和根据是什么？<br><br>RE: 看到一张图，吓坏了，这是人民的军队，还是要人命的军队啊？<br><img src="http://ww3.sinaimg.cn/large/0068nRymjw1eurn1nte1ij30c80khwgh.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3872584737099033" target="freeweibo-mirror">这个“党”字，孩子们在考试？</a>
 </h2>
 <p>这个“党”字，孩子们在考试？<br><br>RE: 党管干部、党管人才、党管思想、党管群团、党管经济、党管军队、党管教育、党管文艺、党管舆论、党管政法、党管体育、党管生育、党管出版、党管网络、党管脸红、党管出汗、党管洗澡、党管照镜、党管消费、党管天气、党管散步、党管喝茶，党无处不在，无一不管，就是不管自己有没有合法性！<br><img src="http://ww1.sinaimg.cn/large/c57c1a49jw1eurzqiljnej20cs07zq49.jpg"></p>
@@ -36,7 +42,7 @@
 </h2>
 <p>党管干部、党管人才、党管思想、党管群团、党管经济、党管军队、党管教育、党管文艺、党管舆论、党管政法、党管体育、党管生育、党管出版、党管网络、党管脸红、党管出汗、党管洗澡、党管照镜、党管消费、党管天气、党管散步、党管喝茶，党无处不在，无一不管，就是不管自己有没有合法性！<br><img src="http://ww1.sinaimg.cn/large/c57c1a49jw1eurzqiljnej20cs07zq49.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3872539518710128" target="freeweibo-mirror">真的，这个女人的愚蠢和智商低劣，让我想到中国当下一部人，你告…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3872403551192650" target="freeweibo-mirror">SPAM 自然保护区在国家最高意志和举国欢庆的需要面前，其实…</a>
 </h2>
 <p>SPAM 自然保护区在国家最高意志和举国欢庆的需要面前，其实什么也不是。林业局乃至环保部又能有什么力量阻挡这股潮流？<br><br>RE: #随记# 为了一场盛事，北京，或者中国会失去什么 （文凡虫Ecobserver）<br><img src="http://ww4.sinaimg.cn/large/6142e05cgw1euqnlwc94yj20c8cefnpe.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3872389525995846" target="freeweibo-mirror">//@富敏荣律师: //@王祖哲:就是啊，搞什么意识形态？毛…</a>
-</h2>
-<p>//@富敏荣律师: //@王祖哲:就是啊，搞什么意识形态？毛左，反党，反对党的决议，谁能把他们扛东海了吗？？？//@王祖哲: 这是共产党对文革的定论——谁反对这个决议，谁就反党。当然，目前反党的人很多，党却充耳不闻。</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
