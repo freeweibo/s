@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3872463345195529" target="freeweibo-mirror">//@秋日往事: 你这是要把包子放火上煎啊</a>
+</h2>
+<p>//@秋日往事: 你这是要把包子放火上煎啊<br><br>RE: 【提议编纂《近平字典》！】《康熙字典》漫无标准，缺失个性，且疏漏和错误太多，更重要的是，“康熙”有国贼周永康和薄熙来合体之嫌，早已不适合作为工具书。习主席单单2015年，就带火了至少10个新热词，譬如:厕所革命、政治规矩等。刘信达提议相关部门着手编纂《近平字典》，让真正的权威流行起来！<br><img src="http://ww2.sinaimg.cn/large/005x6Hz9jw1euqsneewfgj30ci0gowfw.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3872425227328011" target="freeweibo-mirror">SPAM  //@黄金树://@王晓鸥_地产: //@于洪涛…</a>
 </h2>
 <p>SPAM  //@黄金树://@王晓鸥_地产: //@于洪涛BP:雪上项目都放张家口吧。//@jlijames:随便 //@李铁军: //@小米黎明:只转不评。 //@鄭峻:只要面子。<br><br>RE: 无耻行径<br><img src="http://ww1.sinaimg.cn/large/459b09c7jw1euqqvoggbtj20c8cefx6p.jpg"></p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3872257812721889" target="freeweibo-mirror">4000点</a>
 </h2>
 <p>4000点</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3872254267629103" target="freeweibo-mirror">SPAM //@常哥-ken:当地政府衙门的人死绝了！[怒]</a>
-</h2>
-<p>SPAM //@常哥-ken:当地政府衙门的人死绝了！[怒]<br><br>RE: #拍案#【贵州毕节怪圈！又一对留守兄妹家中遇害[蜡烛]】3日晚，贵州毕节纳雍县两名留守儿童在家中遇害。据悉死者为亲兄妹，排行老二、老三，昨晚大姐离家一夜未回，今晨回家发现老二(2000年生)和三弟(2003年生)遇害，身中数刀。毕节此前已发生多起留守儿童死亡事件，令人痛心。http://t.cn/RLjOftq<br><img src="http://ww2.sinaimg.cn/large/60718250jw1euqyorjyapj20dc08wab4.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
