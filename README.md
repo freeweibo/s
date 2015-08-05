@@ -24,7 +24,7 @@
 </h2>
 <p>SPAM 1945年7月28日,日本政府拒绝《波茨坦公告》,发誓要在本土进行“一亿玉碎”的陆上特攻作战。美国总统杜鲁门为使日本迅速“终战”,于8月6日和9日派B-29轰炸机给日本的广岛和长崎分别送去了美丽的礼物——壮观的蘑菇云!亲,70年前的蘑菇云该升起么？@美国驻华大使馆@日本国驻华大使馆 http://t.cn/RLTPwkE<br><img src="http://ww3.sinaimg.cn/large/a2e01879jw1eus8j4jgtcj20xc0xc0uu.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3872630908315512" target="freeweibo-mirror">SPAM //@五言六句: “我的政治舞台就交给胡锦涛了”。…</a>
 </h2>
@@ -84,7 +84,7 @@
 </h2>
 <p>党管干部、党管人才、党管思想、党管群团、党管经济、党管军队、党管教育、党管文艺、党管舆论、党管政法、党管体育、党管生育、党管出版、党管网络、党管脸红、党管出汗、党管洗澡、党管照镜、党管消费、党管天气、党管散步、党管喝茶，党无处不在，无一不管，就是不管自己有没有合法性！<br><img src="http://ww1.sinaimg.cn/large/c57c1a49jw1eurzqiljnej20cs07zq49.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3872539518710128" target="freeweibo-mirror">真的，这个女人的愚蠢和智商低劣，让我想到中国当下一部人，你告…</a>
 </h2>
