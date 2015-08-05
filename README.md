@@ -108,7 +108,7 @@
 </h2>
 <p>//@秋日往事: 你这是要把包子放火上煎啊<br><br>RE: 【提议编纂《近平字典》！】《康熙字典》漫无标准，缺失个性，且疏漏和错误太多，更重要的是，“康熙”有国贼周永康和薄熙来合体之嫌，早已不适合作为工具书。习主席单单2015年，就带火了至少10个新热词，譬如:厕所革命、政治规矩等。刘信达提议相关部门着手编纂《近平字典》，让真正的权威流行起来！<br><img src="http://ww2.sinaimg.cn/large/005x6Hz9jw1euqsneewfgj30ci0gowfw.jpg"></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3872430231222561" target="freeweibo-mirror">【浙江金华两“清贫牧师”被查：敛财数百万】包国华及其妻邢文香…</a>
 </h2>
@@ -120,7 +120,7 @@
 </h2>
 <p>SPAM  //@黄金树://@王晓鸥_地产: //@于洪涛BP:雪上项目都放张家口吧。//@jlijames:随便 //@李铁军: //@小米黎明:只转不评。 //@鄭峻:只要面子。<br><br>RE: 无耻行径<br><img src="http://ww1.sinaimg.cn/large/459b09c7jw1euqqvoggbtj20c8cefx6p.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3872406693399120" target="freeweibo-mirror">强烈的自卑会使人强烈的自负，一般贪腐的，往往是像这些小时候穷…</a>
 </h2>
