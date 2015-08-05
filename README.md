@@ -42,13 +42,13 @@
 </h2>
 <p>SPAM 自然保护区在国家最高意志和举国欢庆的需要面前，其实什么也不是。林业局乃至环保部又能有什么力量阻挡这股潮流？<br><br>RE: #随记# 为了一场盛事，北京，或者中国会失去什么 （文凡虫Ecobserver）<br><img src="http://ww4.sinaimg.cn/large/6142e05cgw1euqnlwc94yj20c8cefnpe.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3872389525995846" target="freeweibo-mirror">//@富敏荣律师: //@王祖哲:就是啊，搞什么意识形态？毛…</a>
 </h2>
 <p>//@富敏荣律师: //@王祖哲:就是啊，搞什么意识形态？毛左，反党，反对党的决议，谁能把他们扛东海了吗？？？//@王祖哲: 这是共产党对文革的定论——谁反对这个决议，谁就反党。当然，目前反党的人很多，党却充耳不闻。</p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3872378931147908" target="freeweibo-mirror">带路公知也成天价切糕党了，拿不稳定闹事来要挟，丫就一恐暴啦啦…</a>
 </h2>
