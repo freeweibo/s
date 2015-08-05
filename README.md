@@ -30,7 +30,25 @@
 </h2>
 <p>[衰]//@梁发芾://@搜狐的莱克星顿:呵呵//@王林的微博客://@还是南开老魏://@浮萍-6: 看了这图文，还对这国的执政裆抱有幻想的不是傻逼就是失了人性的狗奴才！<br><br>RE: 看到一张图，吓坏了，这是人民的军队，还是要人命的军队啊？<br><img src="http://ww3.sinaimg.cn/large/0068nRymjw1eurn1nte1ij30c80khwgh.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3872622762893894" target="freeweibo-mirror">//@无德无信的权贵3: //@忆梅下西舟://@拜骨山: …</a>
+</h2>
+<p>//@无德无信的权贵3: //@忆梅下西舟://@拜骨山: [衰] //@悠野V:有见识//@私家野史: 苟富贵，秦城见<br><br>RE: 老江在位的时候，好像是最后挡了很多太子党的晋升，现在是报复期，江的下属贪腐，用他们也是不得已，因为要对抗红色贵族，两派相争中民间才能在夹缝中生存，所以现在把两派相争变成一极独大，肯定未来是不好的，珍惜现在的资本市场疯狂吧，大佬们都清楚未来要死翘翘了，现在就是尽量捞</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3872612977704802" target="freeweibo-mirror">苟富贵，秦城见</a>
+</h2>
+<p>苟富贵，秦城见<br><br>RE: 老江在位的时候，好像是最后挡了很多太子党的晋升，现在是报复期，江的下属贪腐，用他们也是不得已，因为要对抗红色贵族，两派相争中民间才能在夹缝中生存，所以现在把两派相争变成一极独大，肯定未来是不好的，珍惜现在的资本市场疯狂吧，大佬们都清楚未来要死翘翘了，现在就是尽量捞</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3872611795199812" target="freeweibo-mirror">【慈溪交警在执勤中被碾压致死】慈溪市公安局交警大队证实，今天…</a>
+</h2>
+<p>【慈溪交警在执勤中被碾压致死】慈溪市公安局交警大队证实，今天傍晚，城区中队民警徐鉴华在执勤过程中，遭一辆工程车撞倒并碾压，经医院抢救无效后牺牲。目前肇事司机刘某某（男，1978年4月出生，安徽亳州人）已经被警方控制。案件正在进一步调查中。<br><img src="http://ww2.sinaimg.cn/large/6e05a6dajw1eus4dh35jpj20c80gb3z3.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3872584737099033" target="freeweibo-mirror">这个“党”字，孩子们在考试？</a>
 </h2>
@@ -119,24 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3872463345195529" target="freeweibo-mirror">//@秋日往事: 你这是要把包子放火上煎啊</a>
 </h2>
 <p>//@秋日往事: 你这是要把包子放火上煎啊<br><br>RE: 【提议编纂《近平字典》！】《康熙字典》漫无标准，缺失个性，且疏漏和错误太多，更重要的是，“康熙”有国贼周永康和薄熙来合体之嫌，早已不适合作为工具书。习主席单单2015年，就带火了至少10个新热词，譬如:厕所革命、政治规矩等。刘信达提议相关部门着手编纂《近平字典》，让真正的权威流行起来！<br><img src="http://ww2.sinaimg.cn/large/005x6Hz9jw1euqsneewfgj30ci0gowfw.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3872460707489503" target="freeweibo-mirror">看到一张图，吓坏了，这是人民的军队，还是要人命的军队啊？</a>
-</h2>
-<p>看到一张图，吓坏了，这是人民的军队，还是要人命的军队啊？<br><img src="http://ww3.sinaimg.cn/large/0068nRymjw1eurn1nte1ij30c80khwgh.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3872430231222561" target="freeweibo-mirror">【浙江金华两“清贫牧师”被查：敛财数百万】包国华及其妻邢文香…</a>
-</h2>
-<p>【浙江金华两“清贫牧师”被查：敛财数百万】包国华及其妻邢文香是神职人员，蜗居不足10平米的房间，“清贫牧师”形象吸引不少信众。近日警方却在其家中搜出20多件金银珠宝、大量铁皮枫斗、人参等补品和钱。包家有三套房产一辆汽车，他曾拿出400万炒汇结果被骗200多万，不敢报警。http://t.cn/RLjsG9s<br><img src="http://ww2.sinaimg.cn/large/6541fc49gw1eurjkqbaugj20hf0b1js4.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3872425227328011" target="freeweibo-mirror">SPAM  //@黄金树://@王晓鸥_地产: //@于洪涛…</a>
-</h2>
-<p>SPAM  //@黄金树://@王晓鸥_地产: //@于洪涛BP:雪上项目都放张家口吧。//@jlijames:随便 //@李铁军: //@小米黎明:只转不评。 //@鄭峻:只要面子。<br><br>RE: 无耻行径<br><img src="http://ww1.sinaimg.cn/large/459b09c7jw1euqqvoggbtj20c8cefx6p.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
