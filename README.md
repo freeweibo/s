@@ -24,7 +24,7 @@
 </h2>
 <p>SPAM 1945年7月28日,日本政府拒绝《波茨坦公告》,发誓要在本土进行“一亿玉碎”的陆上特攻作战。美国总统杜鲁门为使日本迅速“终战”,于8月6日和9日派B-29轰炸机给日本的广岛和长崎分别送去了美丽的礼物——壮观的蘑菇云!亲,70年前的蘑菇云该升起么？@美国驻华大使馆@日本国驻华大使馆 http://t.cn/RLTPwkE<br><img src="http://ww3.sinaimg.cn/large/a2e01879jw1eus8j4jgtcj20xc0xc0uu.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3872630908315512" target="freeweibo-mirror">SPAM //@五言六句: “我的政治舞台就交给胡锦涛了”。…</a>
 </h2>
