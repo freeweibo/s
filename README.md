@@ -42,7 +42,7 @@
 </h2>
 <p>[衰]//@梁发芾://@搜狐的莱克星顿:呵呵//@王林的微博客://@还是南开老魏://@浮萍-6: 看了这图文，还对这国的执政裆抱有幻想的不是傻逼就是失了人性的狗奴才！<br><br>RE: 看到一张图，吓坏了，这是人民的军队，还是要人命的军队啊？<br><img src="http://ww3.sinaimg.cn/large/0068nRymjw1eurn1nte1ij30c80khwgh.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3872622762893894" target="freeweibo-mirror">//@无德无信的权贵3: //@忆梅下西舟://@拜骨山: …</a>
 </h2>
