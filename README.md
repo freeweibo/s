@@ -66,7 +66,7 @@
 </h2>
 <p>【慈溪交警在执勤中被碾压致死】慈溪市公安局交警大队证实，今天傍晚，城区中队民警徐鉴华在执勤过程中，遭一辆工程车撞倒并碾压，经医院抢救无效后牺牲。目前肇事司机刘某某（男，1978年4月出生，安徽亳州人）已经被警方控制。案件正在进一步调查中。<br><img src="http://ww2.sinaimg.cn/large/6e05a6dajw1eus4dh35jpj20c80gb3z3.jpg"></p>
 <p>
-	<small> ============== 1天前</small>
+	<small> ============== 2天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3872584737099033" target="freeweibo-mirror">这个“党”字，孩子们在考试？</a>
 </h2>
