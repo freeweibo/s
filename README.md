@@ -30,7 +30,7 @@
 </h2>
 <p>SPAM //@五言六句: “我的政治舞台就交给胡锦涛了”。[哈哈]</p>
 <p>
-	<small> ============== 2天前</small>
+	<small> ============== 3天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3872626936109848" target="freeweibo-mirror">//@法律及其价值: 留存！//@后余万凯:回复@网络敏感词…</a>
 </h2>
