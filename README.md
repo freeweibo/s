@@ -38,6 +38,12 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3874328011217523" target="freeweibo-mirror">老外媒體的中文都成精了[互相膜拜][互相膜拜][互相膜拜]</a>
+</h2>
+<p>老外媒體的中文都成精了[互相膜拜][互相膜拜][互相膜拜]<br><img src="http://ww2.sinaimg.cn/large/006791ctjw1euxlil3t2lj30k30eiaci.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3874316917493767" target="freeweibo-mirror">他们不仅要管现世，还想管你的彼岸世界。//@只配叫猪:转发微…</a>
 </h2>
 <p>他们不仅要管现世，还想管你的彼岸世界。//@只配叫猪:转发微博</p>
@@ -84,7 +90,7 @@
 </h2>
 <p>SPAM 这速度慢到我有想杀人的冲动，GCD若倒台，中国电信功不可没。</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3874281249451603" target="freeweibo-mirror">想起26年前的初夏，上海大街上游行的队伍举着一条横幅标语，上…</a>
 </h2>
@@ -102,13 +108,13 @@
 </h2>
 <p>SPAM //@爱飞的猫2010://@喷嚏网铂程://@廖伟棠: 當年基督教就是在打壓中壯大的，這是一個以受難為榮耀的宗教。<br><br>RE: 绍兴嵊州市三界教堂正在拆十字架。<br><img src="http://ww2.sinaimg.cn/large/48fe46d9jw1euxadpjwdoj20qo0zk0uj.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3874268578136997" target="freeweibo-mirror">SPAM 在浙江很常见呀 //@笨笨an:很疯狂。</a>
 </h2>
 <p>SPAM 在浙江很常见呀 //@笨笨an:很疯狂。<br><br>RE: 绍兴嵊州市三界教堂正在拆十字架。<br><img src="http://ww2.sinaimg.cn/large/48fe46d9jw1euxadpjwdoj20qo0zk0uj.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3874260877404410" target="freeweibo-mirror">//@-孔智勇:妓院规则：只能干不能说！//@陶景洲:一碗脏…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3874250769767196" target="freeweibo-mirror">周五，看大戏？</a>
 </h2>
 <p>周五，看大戏？<br><br>RE: 媒体开始为清除那个谁造势。比如这一篇【人民日报：有的领导退下多年还不愿撒手，让新领导左右为难】； 再如，媒体报道，尉建行今年年初针对康师傅被抓表态支持，质问他在公安部长任上有530封举报信举报他，谁让他带病升职？前几天的财新网，提到郭伯雄，说时任军委主席提拔他，罕见不提同志。。。。。</p>
-<p>
-	<small> ============== 8小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3874245669074059" target="freeweibo-mirror">SPAM 那个老逼养的 //@编剧周力军://@演员孙海英:…</a>
-</h2>
-<p>SPAM 那个老逼养的 //@编剧周力军://@演员孙海英: 阶级斗争越来越复杂！[哈哈]<br><br>RE: 0阅读，只能截屏发了。<br><img src="http://ww2.sinaimg.cn/large/005vHR9ojw1euwmqlvg84j30oz18gwke.jpg"></p>
 <p>
 	<small> ============== 8小时前</small>
 </p>
