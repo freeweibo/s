@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3874268578136997" target="freeweibo-mirror">SPAM 在浙江很常见呀 //@笨笨an:很疯狂。</a>
+</h2>
+<p>SPAM 在浙江很常见呀 //@笨笨an:很疯狂。<br><br>RE: 绍兴嵊州市三界教堂正在拆十字架。<br><img src="http://ww2.sinaimg.cn/large/48fe46d9jw1euxadpjwdoj20qo0zk0uj.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3874250794101936" target="freeweibo-mirror">SPAM 【怪不得“独生儿子”被撞死的第二天，还能照常做报告…</a>
 </h2>
 <p>SPAM 【怪不得“独生儿子”被撞死的第二天，还能照常做报告！】 注：网络资料，非本人制作。<br><img src="http://ww3.sinaimg.cn/large/7d7de30djw1euxclq4v5tj20cs0mqwgc.jpg"></p>
@@ -84,7 +90,7 @@
 </h2>
 <p>临时工又出来了？？ //@陆浑戎:啥情况？<br><br>RE: 英国《经济学人》：蒋介石若未输掉内战，国民党也得面对穷人的不满，但蒋式独裁可能比较宽厚，不会只因意识形态就残杀数百万地主；不会有1950年代末期数千万人饿死的“大跃进”；不会消灭私人企业，强迫农民把土地交给“人民公社”，以致饥荒加速；不会让大陆陷入1960代的文革动乱，数百万人遭到杀害。</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3874192908776647" target="freeweibo-mirror">这个和美国大选一样有趣。有中国特色的政治斗争。 //@十年砍…</a>
 </h2>
@@ -96,7 +102,7 @@
 </h2>
 <p>让他们公开吧。[哈哈][哈哈][哈哈]@思想哥 @李途蕊 @咪润  //@大连_阿东:这？尼玛…美爹，你也太坏了！[笑哈哈][笑哈哈][笑哈哈]<br><br>RE: 巴马警告大陆高官：若敢对菲律宾越南日本开战，只六条，大陆即溃败。1. 公布官员海外存款并冻结。2. 公布有美国护照的官员名单。3. 公布在美国定居的高官家属名单。4. 下令清查洛杉矶二奶村。5. 把在美官员家属送往关塔那摩基地。6. 空投单兵武器给中国失业工人。只用第六条就够了！转<br><img src="http://ww4.sinaimg.cn/large/df3004a0jw1euwwo3zinwj20e80bfwfp.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3874173812649114" target="freeweibo-mirror">树欲静而风不止。近来官媒并没炒作令完成，但西方媒体接连热炒，…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3874021001390880" target="freeweibo-mirror">SPAM 头一次看到。镜头摇得不错。</a>
 </h2>
 <p>SPAM 头一次看到。镜头摇得不错。<br><br>RE: 欢送薄部长http://t.cn/RL8RkVV</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3874017637249120" target="freeweibo-mirror">当时他从商务部去重庆 //@有价值的阅读:盛况，老太太怎么也…</a>
-</h2>
-<p>当时他从商务部去重庆 //@有价值的阅读:盛况，老太太怎么也出来了?//@老李随想:最近越来越多的都开始赞薄了，什么节奏？有些以前还骂别人薄余孽呢 。另外，这视频上传者是@千年一回2012a  ，好不容易通过的上传审核。<br><br>RE: 欢送薄部长http://t.cn/RL8RkVV</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
