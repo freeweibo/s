@@ -78,7 +78,7 @@
 </h2>
 <p>SPAM 发表了一篇转载博文《[转载]宪政国家，宪法为你而立！》http://t.cn/RLnWO0f<br><img src="http://ww3.sinaimg.cn/large/5408ee85jw1euxu47t3t8j209i0ckjs1.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3874400178862578" target="freeweibo-mirror">短讯：大绳出事已定。</a>
 </h2>
@@ -132,13 +132,13 @@
 </h2>
 <p>SPAM 没有了！销号了！[吃惊]//@陈业文新大都:@新华财经 官微被销号了吗？[吃惊]<br><br>RE: 这个新华财经怎么回事？早上还发微博，下午就没了？[吃惊]<br><img src="http://ww3.sinaimg.cn/large/54a2d67fgw1euxpk9o5xnj20hs0nlq6i.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3874371905049834" target="freeweibo-mirror">//@大树终不倒: 自家敛聚人民血汗钱先富、暴富的一定是最坏…</a>
 </h2>
 <p>//@大树终不倒: 自家敛聚人民血汗钱先富、暴富的一定是最坏的！ //@金印达人:是要重新思考一下！是四人帮坏还是邓小平坏！</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p>
 <table>
     <tr>
