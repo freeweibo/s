@@ -30,7 +30,7 @@
 </h2>
 <p>//@-孔智勇:妓院规则：只能干不能说！//@陶景洲:一碗脏水泼在了毕老爷的头上。//@作家东海:大裤衩很脏！<br><br>RE: 0阅读，只能截屏发了。<br><img src="http://ww2.sinaimg.cn/large/005vHR9ojw1euwmqlvg84j30oz18gwke.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3874258776170574" target="freeweibo-mirror">SPAM //@廖伟棠: 當年基督教就是在打壓中壯大的，這是…</a>
 </h2>
@@ -54,7 +54,7 @@
 </h2>
 <p>SPAM 那个老逼养的 //@编剧周力军://@演员孙海英: 阶级斗争越来越复杂！[哈哈]<br><br>RE: 0阅读，只能截屏发了。<br><img src="http://ww2.sinaimg.cn/large/005vHR9ojw1euwmqlvg84j30oz18gwke.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3874242476871309" target="freeweibo-mirror">SPAM 《易时间》,对话汪涵。节目在上海法租界里一个精品酒…</a>
 </h2>
@@ -73,6 +73,12 @@
 <p>媒体：美国驻华大使司徒雷登：1949年以前，中国平均每年有300-700万人死于饥饿。以此推断，民国时代累计饿死的人口突破两亿大关！http://t.cn/RAIG5yo 若蒋介石继续掌权，还会饿死多少？<br><br>RE: 英国《经济学人》：蒋介石若未输掉内战，国民党也得面对穷人的不满，但蒋式独裁可能比较宽厚，不会只因意识形态就残杀数百万地主；不会有1950年代末期数千万人饿死的“大跃进”；不会消灭私人企业，强迫农民把土地交给“人民公社”，以致饥荒加速；不会让大陆陷入1960代的文革动乱，数百万人遭到杀害。</p>
 <p>
 	<small> ============== 4小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3874230871877177" target="freeweibo-mirror">绍兴嵊州市三界教堂正在拆十字架。</a>
+</h2>
+<p>绍兴嵊州市三界教堂正在拆十字架。<br><img src="http://ww2.sinaimg.cn/large/48fe46d9jw1euxadpjwdoj20qo0zk0uj.jpg"></p>
+<p>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3874228925725436" target="freeweibo-mirror">问题关键是，老蒋没有赢天下，所以一切假设都无必要求证。况且，…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3874028517026044" target="freeweibo-mirror">SPAM ？ //@海苔味的大海:真的假的？他出事了？天哪我…</a>
 </h2>
 <p>SPAM ？ //@海苔味的大海:真的假的？他出事了？天哪我要怎么庆祝  //@Mr得應鼎:翘了？//@茶馆酒仙:翘了？[蜡烛]//@_左勾拳小姐:神马情况 //@搪瓷吃厂办公室主任:死了吗[耶]//@RainY0gA:什么情况？//@一头爱游泳的猪：昨天被废的<br><br>RE: [蜡烛]</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3874025036035742" target="freeweibo-mirror">0阅读，只能截屏发了。</a>
-</h2>
-<p>0阅读，只能截屏发了。<br><img src="http://ww2.sinaimg.cn/large/005vHR9ojw1euwmqlvg84j30oz18gwke.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
