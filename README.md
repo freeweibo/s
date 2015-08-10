@@ -42,7 +42,7 @@
 </h2>
 <p>这个新华财经怎么回事？早上还发微博，下午就没了？[吃惊]<br><img src="http://ww3.sinaimg.cn/large/54a2d67fgw1euxpk9o5xnj20hs0nlq6i.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3874356176078585" target="freeweibo-mirror">这个意见就很好嘛//@肖芳华律师://@愚-言: 哈哈！专门…</a>
 </h2>
@@ -120,7 +120,7 @@
 </h2>
 <p>看视频的，来微信…</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3874298358356420" target="freeweibo-mirror">//@微读社会: 愚民、脑残、SB//@金汝姬:在我们朝鲜这…</a>
 </h2>
