@@ -38,6 +38,12 @@
 <p>
 	<small> ============== 1小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3874365256836741" target="freeweibo-mirror">这个新华财经怎么回事？早上还发微博，下午就没了？[吃惊]</a>
+</h2>
+<p>这个新华财经怎么回事？早上还发微博，下午就没了？[吃惊]<br><img src="http://ww3.sinaimg.cn/large/54a2d67fgw1euxpk9o5xnj20hs0nlq6i.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3874356176078585" target="freeweibo-mirror">这个意见就很好嘛//@肖芳华律师://@愚-言: 哈哈！专门…</a>
 </h2>
 <p>这个意见就很好嘛//@肖芳华律师://@愚-言: 哈哈！专门跟党添乱。</p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3874293194183631" target="freeweibo-mirror">张雪忠：“在当局的高压之下，原来的反对者若是选择放弃和退出，…</a>
 </h2>
 <p>张雪忠：“在当局的高压之下，原来的反对者若是选择放弃和退出，我们完全可以尊重他们的个人选择，并祝福他们回归平静安祥的生活。但是，如果他们还要对坚持反对的人踩上一脚，我们就有必要提醒他们：这种反戈一击的做法，是对自己和同仁的双重背叛。”<br><img src="http://ww4.sinaimg.cn/large/957ec276jw1euxhjdcn8bj20if0hswgb.jpg"></p>
-<p>
-	<small> ============== 6小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3874289994545879" target="freeweibo-mirror">SPAM 鞋底这个靠谱儿[偷笑][偷笑][偷笑] //@LU…</a>
-</h2>
-<p>SPAM 鞋底这个靠谱儿[偷笑][偷笑][偷笑] //@LU一丝:看了评论，目测鞋底，防滑垫，花纹餐桌垫都替代着用[拜拜]</p>
 <p>
 	<small> ============== 6小时前</small>
 </p>
