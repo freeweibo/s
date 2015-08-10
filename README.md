@@ -66,7 +66,7 @@
 </h2>
 <p>………可是………真的完成了？？？？？//@荒岛恶郎十四代:这起码得是汉语六级的考题啊。[哈哈] //@戎戎新日记:转发微博<br><br>RE: 老外媒體的中文都成精了[互相膜拜][互相膜拜][互相膜拜]<br><img src="http://ww2.sinaimg.cn/large/006791ctjw1euxlil3t2lj30k30eiaci.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3874328011217523" target="freeweibo-mirror">老外媒體的中文都成精了[互相膜拜][互相膜拜][互相膜拜]</a>
 </h2>
