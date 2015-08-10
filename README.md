@@ -26,6 +26,18 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3874260877404410" target="freeweibo-mirror">//@-孔智勇:妓院规则：只能干不能说！//@陶景洲:一碗脏…</a>
+</h2>
+<p>//@-孔智勇:妓院规则：只能干不能说！//@陶景洲:一碗脏水泼在了毕老爷的头上。//@作家东海:大裤衩很脏！<br><br>RE: 0阅读，只能截屏发了。<br><img src="http://ww2.sinaimg.cn/large/005vHR9ojw1euwmqlvg84j30oz18gwke.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3874258776170574" target="freeweibo-mirror">SPAM //@廖伟棠: 當年基督教就是在打壓中壯大的，這是…</a>
+</h2>
+<p>SPAM //@廖伟棠: 當年基督教就是在打壓中壯大的，這是一個以受難為榮耀的宗教。<br><br>RE: 绍兴嵊州市三界教堂正在拆十字架。<br><img src="http://ww2.sinaimg.cn/large/48fe46d9jw1euxadpjwdoj20qo0zk0uj.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3874250794101936" target="freeweibo-mirror">SPAM 【怪不得“独生儿子”被撞死的第二天，还能照常做报告…</a>
 </h2>
 <p>SPAM 【怪不得“独生儿子”被撞死的第二天，还能照常做报告！】 注：网络资料，非本人制作。<br><img src="http://ww3.sinaimg.cn/large/7d7de30djw1euxclq4v5tj20cs0mqwgc.jpg"></p>
@@ -114,7 +126,7 @@
 </h2>
 <p>巴马警告大陆高官：若敢对菲律宾越南日本开战，只六条，大陆即溃败。1. 公布官员海外存款并冻结。2. 公布有美国护照的官员名单。3. 公布在美国定居的高官家属名单。4. 下令清查洛杉矶二奶村。5. 把在美官员家属送往关塔那摩基地。6. 空投单兵武器给中国失业工人。只用第六条就够了！转<br><img src="http://ww4.sinaimg.cn/large/df3004a0jw1euwwo3zinwj20e80bfwfp.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3874028517026044" target="freeweibo-mirror">SPAM ？ //@海苔味的大海:真的假的？他出事了？天哪我…</a>
 </h2>
@@ -125,18 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3874025036035742" target="freeweibo-mirror">0阅读，只能截屏发了。</a>
 </h2>
 <p>0阅读，只能截屏发了。<br><img src="http://ww2.sinaimg.cn/large/005vHR9ojw1euwmqlvg84j30oz18gwke.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3874021474969612" target="freeweibo-mirror">看评论，右边有道理 //@顽石金无彩:这群人拿薄公出来影射习…</a>
-</h2>
-<p>看评论，右边有道理 //@顽石金无彩:这群人拿薄公出来影射习总和激化中央内部矛盾，哪是称赞？俺一直说，这些渣渣还得薄公出来收拾。//@老李随想: 从商务部去重庆 //@有价值的阅读:盛况，老太太怎么也出来了?//@老李随想:最近越来越多的都开始赞薄了，什么节奏？有些以前还骂别人薄余孽呢 。<br><br>RE: 欢送薄部长http://t.cn/RL8RkVV</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3874021001390880" target="freeweibo-mirror">SPAM 头一次看到。镜头摇得不错。</a>
-</h2>
-<p>SPAM 头一次看到。镜头摇得不错。<br><br>RE: 欢送薄部长http://t.cn/RL8RkVV</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
