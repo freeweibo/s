@@ -54,7 +54,7 @@
 </h2>
 <p>SPAM //@寒竹逸香:清算是早晚的事，只是希望这天早早到来！//@蝴蝶A11:[围观][围观][围观]@韶管南友K9 @传媒人苏现 @双鹰河微博A<br><br>RE: 短讯：大绳出事已定。</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3874410366340684" target="freeweibo-mirror">SPAM 马克。补补课[偷笑]</a>
 </h2>
@@ -138,7 +138,7 @@
 </h2>
 <p>这个新华财经怎么回事？早上还发微博，下午就没了？[吃惊]<br><img src="http://ww3.sinaimg.cn/large/54a2d67fgw1euxpk9o5xnj20hs0nlq6i.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p>
 <table>
     <tr>
