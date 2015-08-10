@@ -48,7 +48,7 @@
 </h2>
 <p>//@荣剑2001://@赵晓:习总在今年中央统战工作会议上强调：“宗教工作本质上是群众工作，要全面贯彻党的宗教信仰自由政策，依法管理宗教事务”；“必须提高宗教工作法治化水平，必须辩证看待宗教的社会作用，必须重视发挥宗教界人士作用”。既然是群众工作，就要抛弃敌我思维和冷战思维<br><br>RE: 何光沪：建议纠正浙江“拆除十字架”运动 http://t.cn/RLECUvs<br><img src="http://ww3.sinaimg.cn/large/507c0690gw1eux10i7vfaj20ci08ct9p.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3874410752145804" target="freeweibo-mirror">SPAM //@寒竹逸香:清算是早晚的事，只是希望这天早早到…</a>
 </h2>
@@ -59,6 +59,12 @@
 	<a href="https://freeweibo.com/weibo/3874410366340684" target="freeweibo-mirror">SPAM 马克。补补课[偷笑]</a>
 </h2>
 <p>SPAM 马克。补补课[偷笑]</p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3874408743099129" target="freeweibo-mirror">求问万能的微博：今年的阅兵能见到我蛤嚒？</a>
+</h2>
+<p>求问万能的微博：今年的阅兵能见到我蛤嚒？<br><img src="http://ww2.sinaimg.cn/large/6d0b6b33jw1euxut3xn4fj20d20830t7.jpg"></p>
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
@@ -78,19 +84,19 @@
 </h2>
 <p>回复@kosan007:→_→//@kosan007:金额肯定是天文数字，你太小瞧我们的心理素质了。随便一个村长，市长的数字都可以很大，何况是他？？？？？？？？只是确实不好放上台面啊！</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3874397607514631" target="freeweibo-mirror">文革走向第二步</a>
 </h2>
 <p>文革走向第二步</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3874396739985972" target="freeweibo-mirror">原来如此 //@陶景洲:右边这是什么节奏啊？ //@-孔智勇…</a>
 </h2>
 <p>原来如此 //@陶景洲:右边这是什么节奏啊？ //@-孔智勇:[衰] //@麒哥归来:[衰]//@不变的糕哥:[衰]//@小欣的家园05: 在包子的领导下，我们终于能够过上朝鲜人民一样的幸福生活了。//@小欣的家园05:红卫兵也就只能这样了。//@医疗律师刘晔:呜呼哀哉，伏维尚飨！</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3874394276889414" target="freeweibo-mirror">秘密不少</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3874366582017325" target="freeweibo-mirror">SPAM @新华财经 官微被销号了吗？[吃惊]</a>
 </h2>
 <p>SPAM @新华财经 官微被销号了吗？[吃惊]<br><br>RE: 这个新华财经怎么回事？早上还发微博，下午就没了？[吃惊]<br><img src="http://ww3.sinaimg.cn/large/54a2d67fgw1euxpk9o5xnj20hs0nlq6i.jpg"></p>
-<p>
-	<small> ============== 5小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3874365256836741" target="freeweibo-mirror">这个新华财经怎么回事？早上还发微博，下午就没了？[吃惊]</a>
-</h2>
-<p>这个新华财经怎么回事？早上还发微博，下午就没了？[吃惊]<br><img src="http://ww3.sinaimg.cn/large/54a2d67fgw1euxpk9o5xnj20hs0nlq6i.jpg"></p>
 <p>
 	<small> ============== 6小时前</small>
 </p>
