@@ -60,7 +60,7 @@
 </h2>
 <p>这厮掌握太多机密，暂留一命。</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3874351730038781" target="freeweibo-mirror">因为腐败被判死刑立即死刑，好像这些年来贪污的数额越拉越大，但…</a>
 </h2>
