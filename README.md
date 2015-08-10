@@ -24,7 +24,13 @@
 </h2>
 <p>SPAM 发表了一篇转载博文《[转载]牛逼》http://t.cn/RLnQc0E<br><img src="http://ww2.sinaimg.cn/large/5408ee85jw1euxwe6kr5ej20fq0a00wq.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3874422349882827" target="freeweibo-mirror">SPAM 补补课[偷笑]</a>
+</h2>
+<p>SPAM 补补课[偷笑]</p>
+<p>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3874419010770105" target="freeweibo-mirror">//@公民王海滨://@愤飞的麻雀: //@法律人冯岩: /…</a>
 </h2>
@@ -35,6 +41,12 @@
 	<a href="https://freeweibo.com/weibo/3874413176612559" target="freeweibo-mirror">//@闵玉平:→_→ //@上海老顽童吴德余:窃以为纪博主如…</a>
 </h2>
 <p>//@闵玉平:→_→ //@上海老顽童吴德余:窃以为纪博主如将“国家”一词改成“政权”，表达就更精准达意了。<br><br>RE: 一个国家的腐败，首先开始于官僚的腐败，接着是司法的腐败，接着是教育的腐败，最后是军队的腐败。当一个国家的军队腐败到了极致的时刻，这个国家也是无药可救，即便是秦始皇复生，汉武帝转世，朱重八降临，也是无力回天，只能是眼睁睁的看着国家灭亡。</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3874412699192519" target="freeweibo-mirror">//@荣剑2001://@赵晓:习总在今年中央统战工作会议上…</a>
+</h2>
+<p>//@荣剑2001://@赵晓:习总在今年中央统战工作会议上强调：“宗教工作本质上是群众工作，要全面贯彻党的宗教信仰自由政策，依法管理宗教事务”；“必须提高宗教工作法治化水平，必须辩证看待宗教的社会作用，必须重视发挥宗教界人士作用”。既然是群众工作，就要抛弃敌我思维和冷战思维<br><br>RE: 何光沪：建议纠正浙江“拆除十字架”运动 http://t.cn/RLECUvs<br><img src="http://ww3.sinaimg.cn/large/507c0690gw1eux10i7vfaj20ci08ct9p.jpg"></p>
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
@@ -127,18 +139,6 @@
 <p>这个新华财经怎么回事？早上还发微博，下午就没了？[吃惊]<br><img src="http://ww3.sinaimg.cn/large/54a2d67fgw1euxpk9o5xnj20hs0nlq6i.jpg"></p>
 <p>
 	<small> ============== 5小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3874356176078585" target="freeweibo-mirror">这个意见就很好嘛//@肖芳华律师://@愚-言: 哈哈！专门…</a>
-</h2>
-<p>这个意见就很好嘛//@肖芳华律师://@愚-言: 哈哈！专门跟党添乱。</p>
-<p>
-	<small> ============== 6小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3874355987385113" target="freeweibo-mirror">又是死缓，这是故意让他咬人吐脏款呢。//@大鹏看天下:这厮掌…</a>
-</h2>
-<p>又是死缓，这是故意让他咬人吐脏款呢。//@大鹏看天下:这厮掌握太多机密，暂留一命。</p>
-<p>
-	<small> ============== 6小时前</small>
 </p>
 <table>
     <tr>
