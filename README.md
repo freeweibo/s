@@ -120,13 +120,13 @@
 </h2>
 <p>//@黎津平老师: 周薄之流副国以上，不杀尚且可以理解，谷俊山之流也就是部级干部，不杀了用来祭旗，又是何故?刑法规定，贪腐10万元以上可判死刑，谷贪腐成千万上亿元，为啥不杀掉?</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3874386031848000" target="freeweibo-mirror">//@lawyerchina1999: WHO是卖国贼？//…</a>
 </h2>
 <p>//@lawyerchina1999: WHO是卖国贼？//@-孔智勇: [吃惊] //@作家东海:俺中了大汉族主义的毒？[吃惊]</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3874372345029178" target="freeweibo-mirror">SPAM 没有了！销号了！[吃惊]//@陈业文新大都:@新华…</a>
 </h2>
