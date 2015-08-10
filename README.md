@@ -54,7 +54,7 @@
 </h2>
 <p>四个字:欺善怕恶！<br><img src="http://ww4.sinaimg.cn/large/474df67ejw1euxyzh24zzj20g80qo42r.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3874428847205507" target="freeweibo-mirror">SPAM 【#昆明生活#】云A作死新闻连连看，第三个太亮了。…</a>
 </h2>
@@ -126,7 +126,7 @@
 </h2>
 <p>短讯：大绳出事已定。</p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3874397750371637" target="freeweibo-mirror">回复@kosan007:→_→//@kosan007:金额肯…</a>
 </h2>
