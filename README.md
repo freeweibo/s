@@ -132,7 +132,7 @@
 </h2>
 <p>SPAM 这速度慢到我有想杀人的冲动，GCD若倒台，中国电信功不可没。</p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3874281249451603" target="freeweibo-mirror">想起26年前的初夏，上海大街上游行的队伍举着一条横幅标语，上…</a>
 </h2>
