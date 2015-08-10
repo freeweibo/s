@@ -24,7 +24,7 @@
 </h2>
 <p>SPAM 鞋底这个靠谱儿[偷笑][偷笑][偷笑] //@LU一丝:看了评论，目测鞋底，防滑垫，花纹餐桌垫都替代着用[拜拜]</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3874288182423524" target="freeweibo-mirror">听蛤蟆叫不好种田.....</a>
 </h2>
