@@ -26,6 +26,12 @@
 <p>
 	<small> ============== 1小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3874305282561602" target="freeweibo-mirror">看视频的，来微信…</a>
+</h2>
+<p>看视频的，来微信…</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3874298358356420" target="freeweibo-mirror">//@微读社会: 愚民、脑残、SB//@金汝姬:在我们朝鲜这…</a>
 </h2>
 <p>//@微读社会: 愚民、脑残、SB//@金汝姬:在我们朝鲜这种反动言论应该炮决、犬决。党和政府给了你家给了你一切居然不懂的感恩[怒]</p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3874234289771907" target="freeweibo-mirror">媒体：美国驻华大使司徒雷登：1949年以前，中国平均每年有3…</a>
 </h2>
 <p>媒体：美国驻华大使司徒雷登：1949年以前，中国平均每年有300-700万人死于饥饿。以此推断，民国时代累计饿死的人口突破两亿大关！http://t.cn/RAIG5yo 若蒋介石继续掌权，还会饿死多少？<br><br>RE: 英国《经济学人》：蒋介石若未输掉内战，国民党也得面对穷人的不满，但蒋式独裁可能比较宽厚，不会只因意识形态就残杀数百万地主；不会有1950年代末期数千万人饿死的“大跃进”；不会消灭私人企业，强迫农民把土地交给“人民公社”，以致饥荒加速；不会让大陆陷入1960代的文革动乱，数百万人遭到杀害。</p>
-<p>
-	<small> ============== 6小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3874230871877177" target="freeweibo-mirror">绍兴嵊州市三界教堂正在拆十字架。</a>
-</h2>
-<p>绍兴嵊州市三界教堂正在拆十字架。<br><img src="http://ww2.sinaimg.cn/large/48fe46d9jw1euxadpjwdoj20qo0zk0uj.jpg"></p>
 <p>
 	<small> ============== 7小时前</small>
 </p>
