@@ -120,7 +120,7 @@
 </h2>
 <p>老外媒體的中文都成精了[互相膜拜][互相膜拜][互相膜拜]<br><img src="http://ww2.sinaimg.cn/large/006791ctjw1euxlil3t2lj30k30eiaci.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3874316917493767" target="freeweibo-mirror">他们不仅要管现世，还想管你的彼岸世界。//@只配叫猪:转发微…</a>
 </h2>
@@ -138,7 +138,7 @@
 </h2>
 <p>//@微读社会: 愚民、脑残、SB//@金汝姬:在我们朝鲜这种反动言论应该炮决、犬决。党和政府给了你家给了你一切居然不懂的感恩[怒]</p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p>
 <table>
     <tr>
