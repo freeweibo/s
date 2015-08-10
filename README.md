@@ -60,13 +60,13 @@
 </h2>
 <p>SPAM 【#昆明生活#】云A作死新闻连连看，第三个太亮了。[笑cry]<br><img src="http://ww3.sinaimg.cn/large/6a8bd5d1gw1euxapkjqd0j20rf0hxwiw.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3874428401890624" target="freeweibo-mirror">SPAM 闺蜜用了，效果还不错哦！[来][来]</a>
 </h2>
 <p>SPAM 闺蜜用了，效果还不错哦！[来][来]</p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3874422542788461" target="freeweibo-mirror">SPAM 发表了一篇转载博文《[转载]牛逼》http://t…</a>
 </h2>
@@ -90,7 +90,7 @@
 </h2>
 <p>//@闵玉平:→_→ //@上海老顽童吴德余:窃以为纪博主如将“国家”一词改成“政权”，表达就更精准达意了。<br><br>RE: 一个国家的腐败，首先开始于官僚的腐败，接着是司法的腐败，接着是教育的腐败，最后是军队的腐败。当一个国家的军队腐败到了极致的时刻，这个国家也是无药可救，即便是秦始皇复生，汉武帝转世，朱重八降临，也是无力回天，只能是眼睁睁的看着国家灭亡。</p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3874412699192519" target="freeweibo-mirror">//@荣剑2001://@赵晓:习总在今年中央统战工作会议上…</a>
 </h2>
