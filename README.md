@@ -54,7 +54,7 @@
 </h2>
 <p>有关方面不公开谷案犯罪数额和细节，可能原因。一、担心贪腐数额过大，超出公众的心理承受极限；二、担心谷案涉及面太广，公开后不好收拾；三、担心谷罪大恶极，不杀不足以平民愤。http://t.cn/RLnpHU4</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3874386031848000" target="freeweibo-mirror">//@lawyerchina1999: WHO是卖国贼？//…</a>
 </h2>
