@@ -138,7 +138,7 @@
 </h2>
 <p>SPAM 粉色看起来毫无食欲<br><br>RE: 最近肯德基推出了高颜值汉堡，你们来感受下网友晒出的实物图[拜拜]可以省钱了<br><img src="http://ww2.sinaimg.cn/large/005AVXTajw1euxnhuxnorj30hs0d70w7.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p>
 <table>
     <tr>
