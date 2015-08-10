@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3874386031848000" target="freeweibo-mirror">//@lawyerchina1999: WHO是卖国贼？//…</a>
+</h2>
+<p>//@lawyerchina1999: WHO是卖国贼？//@-孔智勇: [吃惊] //@作家东海:俺中了大汉族主义的毒？[吃惊]</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3874372345029178" target="freeweibo-mirror">SPAM 没有了！销号了！[吃惊]//@陈业文新大都:@新华…</a>
 </h2>
 <p>SPAM 没有了！销号了！[吃惊]//@陈业文新大都:@新华财经 官微被销号了吗？[吃惊]<br><br>RE: 这个新华财经怎么回事？早上还发微博，下午就没了？[吃惊]<br><img src="http://ww3.sinaimg.cn/large/54a2d67fgw1euxpk9o5xnj20hs0nlq6i.jpg"></p>
@@ -72,13 +78,13 @@
 </h2>
 <p>SPAM 粉色看起来毫无食欲<br><br>RE: 最近肯德基推出了高颜值汉堡，你们来感受下网友晒出的实物图[拜拜]可以省钱了<br><img src="http://ww2.sinaimg.cn/large/005AVXTajw1euxnhuxnorj30hs0d70w7.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3874347049138321" target="freeweibo-mirror">SPAM [哈哈]//@义阳郡王李抱真:回复@老陕:还是当年…</a>
 </h2>
 <p>SPAM [哈哈]//@义阳郡王李抱真:回复@老陕:还是当年北青报标题牛【忠祥不忠，饶颖不饶】[哈哈]<br><br>RE: 老外媒體的中文都成精了[互相膜拜][互相膜拜][互相膜拜]<br><img src="http://ww2.sinaimg.cn/large/006791ctjw1euxlil3t2lj30k30eiaci.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3874345497143622" target="freeweibo-mirror">最近肯德基推出了高颜值汉堡，你们来感受下网友晒出的实物图[拜…</a>
 </h2>
@@ -114,7 +120,7 @@
 </h2>
 <p>他们不仅要管现世，还想管你的彼岸世界。//@只配叫猪:转发微博</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3874305282561602" target="freeweibo-mirror">看视频的，来微信…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3874297464395074" target="freeweibo-mirror">SPAM 任何时候都不要给自己负面的暗示，不要让自己处于负面…</a>
 </h2>
 <p>SPAM 任何时候都不要给自己负面的暗示，不要让自己处于负面情绪中。如果你整天苦大仇深、怨天尤人，财神见了都会躲着你走。这里蕴含着宇宙的秘密--吸引力法则：你感觉好，你就吸引好的事物；你感觉糟，就吸引糟糕的事物。心态决定人生，高度决定价值！#张予曦你行你来##蠢萌少年马可#<br><img src="http://ww1.sinaimg.cn/large/98c1610bjw1euxi112cpcj20ce0hs0vq.jpg"></p>
-<p>
-	<small> ============== 7小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3874293194183631" target="freeweibo-mirror">张雪忠：“在当局的高压之下，原来的反对者若是选择放弃和退出，…</a>
-</h2>
-<p>张雪忠：“在当局的高压之下，原来的反对者若是选择放弃和退出，我们完全可以尊重他们的个人选择，并祝福他们回归平静安祥的生活。但是，如果他们还要对坚持反对的人踩上一脚，我们就有必要提醒他们：这种反戈一击的做法，是对自己和同仁的双重背叛。”<br><img src="http://ww4.sinaimg.cn/large/957ec276jw1euxhjdcn8bj20if0hswgb.jpg"></p>
 <p>
 	<small> ============== 7小时前</small>
 </p>
