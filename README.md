@@ -36,13 +36,13 @@
 </h2>
 <p>SPAM 没有了！销号了！[吃惊]//@陈业文新大都:@新华财经 官微被销号了吗？[吃惊]<br><br>RE: 这个新华财经怎么回事？早上还发微博，下午就没了？[吃惊]<br><img src="http://ww3.sinaimg.cn/large/54a2d67fgw1euxpk9o5xnj20hs0nlq6i.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3874371905049834" target="freeweibo-mirror">//@大树终不倒: 自家敛聚人民血汗钱先富、暴富的一定是最坏…</a>
 </h2>
 <p>//@大树终不倒: 自家敛聚人民血汗钱先富、暴富的一定是最坏的！ //@金印达人:是要重新思考一下！是四人帮坏还是邓小平坏！</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3874366582017325" target="freeweibo-mirror">SPAM @新华财经 官微被销号了吗？[吃惊]</a>
 </h2>
