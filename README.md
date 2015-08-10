@@ -36,7 +36,7 @@
 </h2>
 <p>//@另类无敌:老领导退休仍干政，新领导很是不开心，另类无敌8月11日首推转发扩散。@旧来行处好追寻:蛤蟆阴魂不散，新皇帝好难做//@不变的糕哥://@光远看经济: 这是我看到的学东最好的评论！//@色色猴:同问，谁啊？ //@土家野夫:這是说的谁啊</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3874445183515622" target="freeweibo-mirror">四个字:欺善怕恶！</a>
 </h2>
@@ -108,7 +108,7 @@
 </h2>
 <p>SPAM 发表了一篇转载博文《[转载]宪政国家，宪法为你而立！》http://t.cn/RLnWO0f<br><img src="http://ww3.sinaimg.cn/large/5408ee85jw1euxu47t3t8j209i0ckjs1.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3874400178862578" target="freeweibo-mirror">短讯：大绳出事已定。</a>
 </h2>
