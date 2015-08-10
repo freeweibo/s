@@ -54,7 +54,7 @@
 </h2>
 <p>SPAM 这速度慢到我有想杀人的冲动，GCD若倒台，中国电信功不可没。</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3874281249451603" target="freeweibo-mirror">想起26年前的初夏，上海大街上游行的队伍举着一条横幅标语，上…</a>
 </h2>
@@ -72,13 +72,13 @@
 </h2>
 <p>SPAM //@爱飞的猫2010://@喷嚏网铂程://@廖伟棠: 當年基督教就是在打壓中壯大的，這是一個以受難為榮耀的宗教。<br><br>RE: 绍兴嵊州市三界教堂正在拆十字架。<br><img src="http://ww2.sinaimg.cn/large/48fe46d9jw1euxadpjwdoj20qo0zk0uj.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3874268578136997" target="freeweibo-mirror">SPAM 在浙江很常见呀 //@笨笨an:很疯狂。</a>
 </h2>
 <p>SPAM 在浙江很常见呀 //@笨笨an:很疯狂。<br><br>RE: 绍兴嵊州市三界教堂正在拆十字架。<br><img src="http://ww2.sinaimg.cn/large/48fe46d9jw1euxadpjwdoj20qo0zk0uj.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3874260877404410" target="freeweibo-mirror">//@-孔智勇:妓院规则：只能干不能说！//@陶景洲:一碗脏…</a>
 </h2>
