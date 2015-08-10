@@ -36,7 +36,7 @@
 </h2>
 <p>因为腐败被判死刑立即死刑，好像这些年来贪污的数额越拉越大，但是极刑用得越来越少，真对不起陈子善、刘长青、成克杰他们！</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3874347242522010" target="freeweibo-mirror">SPAM 粉色看起来毫无食欲</a>
 </h2>
@@ -50,6 +50,12 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3874345497143622" target="freeweibo-mirror">最近肯德基推出了高颜值汉堡，你们来感受下网友晒出的实物图[拜…</a>
+</h2>
+<p>最近肯德基推出了高颜值汉堡，你们来感受下网友晒出的实物图[拜拜]可以省钱了<br><img src="http://ww2.sinaimg.cn/large/005AVXTajw1euxnhuxnorj30hs0d70w7.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3874345355426989" target="freeweibo-mirror">SPAM @谷大白话: 这个太赞了</a>
 </h2>
 <p>SPAM @谷大白话: 这个太赞了<br><br>RE: 老外媒體的中文都成精了[互相膜拜][互相膜拜][互相膜拜]<br><img src="http://ww2.sinaimg.cn/large/006791ctjw1euxlil3t2lj30k30eiaci.jpg"></p>
@@ -60,7 +66,7 @@
 </h2>
 <p>SPAM ①人生三个要想到：阴沟能翻船；鸡毛能上天；骨肉能相残 ②人生买不到三种药：后悔药；长生药；心病药 ③人生三个一：吃一堑长一智；经一事长一能；交一友结一缘 ④人生不做三无人：无知，孤陋寡闻；无惧，糊涂胆大无畏惧；无耻，寡廉鲜耻无羞耻 ⑤人生三为：和为贵；善为本；诚为先#董卿因虎爸痛哭#<br><img src="http://ww4.sinaimg.cn/large/98c1610bjw1euxmfl3skgj206608y0tl.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3874334949376617" target="freeweibo-mirror">………可是………真的完成了？？？？？//@荒岛恶郎十四代:这…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3874275796864998" target="freeweibo-mirror">五毛在向领导申请，咋洗地[哈哈]</a>
 </h2>
 <p>五毛在向领导申请，咋洗地[哈哈]</p>
-<p>
-	<small> ============== 7小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3874268855148980" target="freeweibo-mirror">SPAM //@爱飞的猫2010://@喷嚏网铂程://@廖…</a>
-</h2>
-<p>SPAM //@爱飞的猫2010://@喷嚏网铂程://@廖伟棠: 當年基督教就是在打壓中壯大的，這是一個以受難為榮耀的宗教。<br><br>RE: 绍兴嵊州市三界教堂正在拆十字架。<br><img src="http://ww2.sinaimg.cn/large/48fe46d9jw1euxadpjwdoj20qo0zk0uj.jpg"></p>
 <p>
 	<small> ============== 7小时前</small>
 </p>
