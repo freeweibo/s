@@ -84,7 +84,7 @@
 </h2>
 <p>老外媒體的中文都成精了[互相膜拜][互相膜拜][互相膜拜]<br><img src="http://ww2.sinaimg.cn/large/006791ctjw1euxlil3t2lj30k30eiaci.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3874316917493767" target="freeweibo-mirror">他们不仅要管现世，还想管你的彼岸世界。//@只配叫猪:转发微…</a>
 </h2>
@@ -102,13 +102,13 @@
 </h2>
 <p>//@微读社会: 愚民、脑残、SB//@金汝姬:在我们朝鲜这种反动言论应该炮决、犬决。党和政府给了你家给了你一切居然不懂的感恩[怒]</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3874297464395074" target="freeweibo-mirror">SPAM 任何时候都不要给自己负面的暗示，不要让自己处于负面…</a>
 </h2>
 <p>SPAM 任何时候都不要给自己负面的暗示，不要让自己处于负面情绪中。如果你整天苦大仇深、怨天尤人，财神见了都会躲着你走。这里蕴含着宇宙的秘密--吸引力法则：你感觉好，你就吸引好的事物；你感觉糟，就吸引糟糕的事物。心态决定人生，高度决定价值！#张予曦你行你来##蠢萌少年马可#<br><img src="http://ww1.sinaimg.cn/large/98c1610bjw1euxi112cpcj20ce0hs0vq.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3874293194183631" target="freeweibo-mirror">张雪忠：“在当局的高压之下，原来的反对者若是选择放弃和退出，…</a>
 </h2>
