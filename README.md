@@ -60,7 +60,7 @@
 </h2>
 <p>SPAM 马克。补补课[偷笑]</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3874402716253755" target="freeweibo-mirror">SPAM 发表了一篇转载博文《[转载]宪政国家，宪法为你而立…</a>
 </h2>
@@ -96,7 +96,7 @@
 </h2>
 <p>秘密不少</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3874392926830946" target="freeweibo-mirror">有关方面不公开谷案犯罪数额和细节，可能原因。一、担心贪腐数额…</a>
 </h2>
