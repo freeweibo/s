@@ -30,13 +30,13 @@
 </h2>
 <p>SPAM //@爱飞的猫2010://@喷嚏网铂程://@廖伟棠: 當年基督教就是在打壓中壯大的，這是一個以受難為榮耀的宗教。<br><br>RE: 绍兴嵊州市三界教堂正在拆十字架。<br><img src="http://ww2.sinaimg.cn/large/48fe46d9jw1euxadpjwdoj20qo0zk0uj.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3874268578136997" target="freeweibo-mirror">SPAM 在浙江很常见呀 //@笨笨an:很疯狂。</a>
 </h2>
 <p>SPAM 在浙江很常见呀 //@笨笨an:很疯狂。<br><br>RE: 绍兴嵊州市三界教堂正在拆十字架。<br><img src="http://ww2.sinaimg.cn/large/48fe46d9jw1euxadpjwdoj20qo0zk0uj.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3874260877404410" target="freeweibo-mirror">//@-孔智勇:妓院规则：只能干不能说！//@陶景洲:一碗脏…</a>
 </h2>
@@ -102,7 +102,7 @@
 </h2>
 <p>媒体开始为清除那个谁造势。比如这一篇【人民日报：有的领导退下多年还不愿撒手，让新领导左右为难】； 再如，媒体报道，尉建行今年年初针对康师傅被抓表态支持，质问他在公安部长任上有530封举报信举报他，谁让他带病升职？前几天的财新网，提到郭伯雄，说时任军委主席提拔他，罕见不提同志。。。。。</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3874222084095142" target="freeweibo-mirror">贵圈太尼玛乱了//@黑子杨涛:坐等删除//@博闻联播:新华社…</a>
 </h2>
@@ -126,7 +126,7 @@
 </h2>
 <p>这个和美国大选一样有趣。有中国特色的政治斗争。 //@十年砍柴:不仅仅是“他们”吧？这边的人民群众更喜欢看宫斗片。</p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3874180045276602" target="freeweibo-mirror">让他们公开吧。[哈哈][哈哈][哈哈]@思想哥 @李途蕊 @…</a>
 </h2>
