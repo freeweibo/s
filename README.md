@@ -102,7 +102,7 @@
 </h2>
 <p>SPAM //@廖伟棠: 當年基督教就是在打壓中壯大的，這是一個以受難為榮耀的宗教。<br><br>RE: 绍兴嵊州市三界教堂正在拆十字架。<br><img src="http://ww2.sinaimg.cn/large/48fe46d9jw1euxadpjwdoj20qo0zk0uj.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3874250794101936" target="freeweibo-mirror">SPAM 【怪不得“独生儿子”被撞死的第二天，还能照常做报告…</a>
 </h2>
