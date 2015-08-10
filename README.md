@@ -24,13 +24,13 @@
 </h2>
 <p>SPAM 【怪不得“独生儿子”被撞死的第二天，还能照常做报告！】 注：网络资料，非本人制作。<br><img src="http://ww3.sinaimg.cn/large/7d7de30djw1euxclq4v5tj20cs0mqwgc.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3874250769767196" target="freeweibo-mirror">周五，看大戏？</a>
 </h2>
 <p>周五，看大戏？<br><br>RE: 媒体开始为清除那个谁造势。比如这一篇【人民日报：有的领导退下多年还不愿撒手，让新领导左右为难】； 再如，媒体报道，尉建行今年年初针对康师傅被抓表态支持，质问他在公安部长任上有530封举报信举报他，谁让他带病升职？前几天的财新网，提到郭伯雄，说时任军委主席提拔他，罕见不提同志。。。。。</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3874237754517354" target="freeweibo-mirror">回复@梦幻咖啡色:当然咯，管理一个省能跟管理一个领土面积世界…</a>
 </h2>
@@ -60,7 +60,7 @@
 </h2>
 <p>//@不骂人讲道理:图样图森破。//@琢磨先生: 你们啊，不要总想着搞大新闻！ //@谢文:不撒手，就斩首。//@郑维: 蛤蛤</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3874209627878600" target="freeweibo-mirror">临时工又出来了？？ //@陆浑戎:啥情况？</a>
 </h2>
