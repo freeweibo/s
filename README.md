@@ -26,6 +26,12 @@
 <p>
 	<small> ============== 1小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3874453605664739" target="freeweibo-mirror">//@大连_阿东://@睡狮惊梦://@莫之时代: 考虑到有…</a>
+</h2>
+<p>//@大连_阿东://@睡狮惊梦://@莫之时代: 考虑到有些干部可能是通过徐才厚选拔的，这配图就有用了。@白马飘飘2013 //@牛郎V:这就是缺乏民主的结果！ //@九毛大公:纳税人的银子养这么多贪官，真不如养猪。</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3874447297939121" target="freeweibo-mirror">//@另类无敌:老领导退休仍干政，新领导很是不开心，另类无敌…</a>
 </h2>
 <p>//@另类无敌:老领导退休仍干政，新领导很是不开心，另类无敌8月11日首推转发扩散。@旧来行处好追寻:蛤蟆阴魂不散，新皇帝好难做//@不变的糕哥://@光远看经济: 这是我看到的学东最好的评论！//@色色猴:同问，谁啊？ //@土家野夫:這是说的谁啊</p>
@@ -36,7 +42,13 @@
 </h2>
 <p>四个字:欺善怕恶！<br><img src="http://ww4.sinaimg.cn/large/474df67ejw1euxyzh24zzj20g80qo42r.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3874428847205507" target="freeweibo-mirror">SPAM 【#昆明生活#】云A作死新闻连连看，第三个太亮了。…</a>
+</h2>
+<p>SPAM 【#昆明生活#】云A作死新闻连连看，第三个太亮了。[笑cry]<br><img src="http://ww3.sinaimg.cn/large/6a8bd5d1gw1euxapkjqd0j20rf0hxwiw.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3874428401890624" target="freeweibo-mirror">SPAM 闺蜜用了，效果还不错哦！[来][来]</a>
 </h2>
@@ -102,7 +114,7 @@
 </h2>
 <p>短讯：大绳出事已定。</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3874397750371637" target="freeweibo-mirror">回复@kosan007:→_→//@kosan007:金额肯…</a>
 </h2>
@@ -125,18 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3874394276889414" target="freeweibo-mirror">秘密不少</a>
 </h2>
 <p>秘密不少</p>
-<p>
-	<small> ============== 5小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3874392926830946" target="freeweibo-mirror">有关方面不公开谷案犯罪数额和细节，可能原因。一、担心贪腐数额…</a>
-</h2>
-<p>有关方面不公开谷案犯罪数额和细节，可能原因。一、担心贪腐数额过大，超出公众的心理承受极限；二、担心谷案涉及面太广，公开后不好收拾；三、担心谷罪大恶极，不杀不足以平民愤。http://t.cn/RLnpHU4</p>
-<p>
-	<small> ============== 5小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3874386261797920" target="freeweibo-mirror">//@黎津平老师: 周薄之流副国以上，不杀尚且可以理解，谷俊…</a>
-</h2>
-<p>//@黎津平老师: 周薄之流副国以上，不杀尚且可以理解，谷俊山之流也就是部级干部，不杀了用来祭旗，又是何故?刑法规定，贪腐10万元以上可判死刑，谷贪腐成千万上亿元，为啥不杀掉?</p>
 <p>
 	<small> ============== 5小时前</small>
 </p>
