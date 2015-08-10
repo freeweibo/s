@@ -62,6 +62,12 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3874386261797920" target="freeweibo-mirror">//@黎津平老师: 周薄之流副国以上，不杀尚且可以理解，谷俊…</a>
+</h2>
+<p>//@黎津平老师: 周薄之流副国以上，不杀尚且可以理解，谷俊山之流也就是部级干部，不杀了用来祭旗，又是何故?刑法规定，贪腐10万元以上可判死刑，谷贪腐成千万上亿元，为啥不杀掉?</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3874386031848000" target="freeweibo-mirror">//@lawyerchina1999: WHO是卖国贼？//…</a>
 </h2>
 <p>//@lawyerchina1999: WHO是卖国贼？//@-孔智勇: [吃惊] //@作家东海:俺中了大汉族主义的毒？[吃惊]</p>
@@ -108,7 +114,7 @@
 </h2>
 <p>这厮掌握太多机密，暂留一命。</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3874351730038781" target="freeweibo-mirror">因为腐败被判死刑立即死刑，好像这些年来贪污的数额越拉越大，但…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3874345497143622" target="freeweibo-mirror">最近肯德基推出了高颜值汉堡，你们来感受下网友晒出的实物图[拜…</a>
 </h2>
 <p>最近肯德基推出了高颜值汉堡，你们来感受下网友晒出的实物图[拜拜]可以省钱了<br><img src="http://ww2.sinaimg.cn/large/005AVXTajw1euxnhuxnorj30hs0d70w7.jpg"></p>
-<p>
-	<small> ============== 5小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3874345355426989" target="freeweibo-mirror">SPAM @谷大白话: 这个太赞了</a>
-</h2>
-<p>SPAM @谷大白话: 这个太赞了<br><br>RE: 老外媒體的中文都成精了[互相膜拜][互相膜拜][互相膜拜]<br><img src="http://ww2.sinaimg.cn/large/006791ctjw1euxlil3t2lj30k30eiaci.jpg"></p>
 <p>
 	<small> ============== 5小时前</small>
 </p>
