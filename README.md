@@ -48,7 +48,7 @@
 </h2>
 <p>秘密不少</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3874392926830946" target="freeweibo-mirror">有关方面不公开谷案犯罪数额和细节，可能原因。一、担心贪腐数额…</a>
 </h2>
