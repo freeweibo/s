@@ -32,6 +32,12 @@
 <p>
 	<small> ============== 5小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3874640848115420" target="freeweibo-mirror">【详细报道：中国采取措施引导人民币贬值】随着中国经济继续放缓…</a>
+</h2>
+<p>【详细报道：中国采取措施引导人民币贬值】随着中国经济继续放缓，中国央行周二引导人民币贬值，中间价较周一下调1.9%。央行此举目的在于增强人民币兑美元汇率中间价的市场化程度和基准性。这显然是为了回应外界对中国汇率政策的指责。http://t.cn/RLmXWGo http://t.cn/RLmXKGn<br><img src="http://ww1.sinaimg.cn/large/624c2f04gw1euylf8oansj20zk1hddl1.jpg"></p>
+<p>
+	<small> ============== 5小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3874629795763697" target="freeweibo-mirror">SPAM 成功属于那些有耐心的人。#郑钧百万征歌倒计时##叫…</a>
 </h2>
 <p>SPAM 成功属于那些有耐心的人。#郑钧百万征歌倒计时##叫我桂香大人#<br><br>RE: 逆境，是上帝帮你淘汰竞争者的地方。要知道，你不好受，别人也不好受，你坚持不下去了，别人也一样，千万不要告诉别人你坚持不住了，那只能让别人获得坚持的信心，让竞争者看着你微笑的面孔，失去信心，退出比赛。胜利，属于那些有耐心的人。#郑钧百万征歌倒计时##叫我桂香大人#<br><img src="http://ww2.sinaimg.cn/large/98c1610bjw1euyjhbsrs3j20bu0hsact.jpg"></p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3874422349882827" target="freeweibo-mirror">SPAM 补补课[偷笑]</a>
 </h2>
 <p>SPAM 补补课[偷笑]</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3874419010770105" target="freeweibo-mirror">//@公民王海滨://@愤飞的麻雀: //@法律人冯岩: /…</a>
-</h2>
-<p>//@公民王海滨://@愤飞的麻雀: //@法律人冯岩: //@石灰泥339: //@谓贤:比如，当初谁胆敢批评揭发薄周郭徐令等国贼，就是犯了颠覆国家罪。//@梁香禄律师: //@我是半耳人://@演员孙海英: 转发微博</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
