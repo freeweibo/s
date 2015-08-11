@@ -32,6 +32,12 @@
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3874672653773427" target="freeweibo-mirror">乱疆乱藏的源头//@斯图卡98: 这水平连一个县委书记都达不…</a>
+</h2>
+<p>乱疆乱藏的源头//@斯图卡98: 这水平连一个县委书记都达不到。。~不考虑自然地理历史条件等环境的制约，本来就是一种信口开河胡扯~当时西南各省各族少民自治州县贫困多的是了，是不是都是因为驻军、政府机关的原因。。今天藏疆成这样，他是最大的责任人，祸害百年<br><br>RE: 【西藏轶事】昨晚遇到一“老西藏”，80年代初在XZ军区大礼堂聆听邦同志讲话，曰百万翻身农奴之所以至今没富起来，就是因为要负担30万驻藏干部和解放军，所以今后都要撤出，每个县留两名观察员。当时引起听众不满，因干部和部队全由中央负担。当天下午拉萨街头就有要汉人滚出XZ的大标语。XZ从此乱矣。</p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3874647500004087" target="freeweibo-mirror">SPAM 矮油~好像还蛮好玩的 去玩玩！[嘻嘻]</a>
 </h2>
 <p>SPAM 矮油~好像还蛮好玩的 去玩玩！[嘻嘻]</p>
@@ -48,7 +54,7 @@
 </h2>
 <p>【详细报道：中国采取措施引导人民币贬值】随着中国经济继续放缓，中国央行周二引导人民币贬值，中间价较周一下调1.9%。央行此举目的在于增强人民币兑美元汇率中间价的市场化程度和基准性。这显然是为了回应外界对中国汇率政策的指责。http://t.cn/RLmXWGo http://t.cn/RLmXKGn<br><img src="http://ww1.sinaimg.cn/large/624c2f04gw1euylf8oansj20zk1hddl1.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3874629795763697" target="freeweibo-mirror">SPAM 成功属于那些有耐心的人。#郑钧百万征歌倒计时##叫…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3874428847205507" target="freeweibo-mirror">SPAM 【#昆明生活#】云A作死新闻连连看，第三个太亮了。…</a>
 </h2>
 <p>SPAM 【#昆明生活#】云A作死新闻连连看，第三个太亮了。[笑cry]<br><img src="http://ww3.sinaimg.cn/large/6a8bd5d1gw1euxapkjqd0j20rf0hxwiw.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3874428401890624" target="freeweibo-mirror">SPAM 闺蜜用了，效果还不错哦！[来][来]</a>
-</h2>
-<p>SPAM 闺蜜用了，效果还不错哦！[来][来]</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
