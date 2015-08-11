@@ -132,7 +132,7 @@
 </h2>
 <p>求问万能的微博：今年的阅兵能见到我蛤嚒？<br><img src="http://ww2.sinaimg.cn/large/6d0b6b33jw1euxut3xn4fj20d20830t7.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3874405932866693" target="freeweibo-mirror">有空还是得读点历史……</a>
 </h2>
