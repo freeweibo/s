@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3874714528945156" target="freeweibo-mirror">SPAM 【时刻铭记的一句话】当你毫不怀疑地相信一个人，那么…</a>
+</h2>
+<p>SPAM 【时刻铭记的一句话】当你毫不怀疑地相信一个人，那么你最终有可能得到两种结果，要么得到一个值得托付一生的人，要么得到一个值得铭记一生的教训。。。。#7点半看直播# #音乐大战#<br><img src="http://ww1.sinaimg.cn/large/98c1610bjw1euytwgkqxpj20c8085t97.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3874677686168677" target="freeweibo-mirror">SPAM 转发微博。</a>
 </h2>
 <p>SPAM 转发微博。<br><br>RE: 花唄提现~<br><img src="http://ww1.sinaimg.cn/large/9c6acfc5gw1euymfc723hj20ku1127ap.jpg"></p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3874448207337476" target="freeweibo-mirror">//@聚爱成行1964:郁达夫曾说过：有了伟大的人物，而不知…</a>
 </h2>
 <p>//@聚爱成行1964:郁达夫曾说过：有了伟大的人物，而不知拥护、爱戴、崇仰的国家，是没有希望的奴隶之邦。”//@举红旗重上井岗山: //@秦岭山上一棵松://@不舍昼夜者: 邓小平的确是祸水的源头。//@天朙人:邓的三七开评价，对文革的全面否定，对华汪胡（乔木）的过河拆桥。</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3874447297939121" target="freeweibo-mirror">//@另类无敌:老领导退休仍干政，新领导很是不开心，另类无敌…</a>
-</h2>
-<p>//@另类无敌:老领导退休仍干政，新领导很是不开心，另类无敌8月11日首推转发扩散。@旧来行处好追寻:蛤蟆阴魂不散，新皇帝好难做//@不变的糕哥://@光远看经济: 这是我看到的学东最好的评论！//@色色猴:同问，谁啊？ //@土家野夫:這是说的谁啊</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
