@@ -72,7 +72,7 @@
 </h2>
 <p>四个字:欺善怕恶！<br><img src="http://ww4.sinaimg.cn/large/474df67ejw1euxyzh24zzj20g80qo42r.jpg"></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3874428847205507" target="freeweibo-mirror">SPAM 【#昆明生活#】云A作死新闻连连看，第三个太亮了。…</a>
 </h2>
@@ -90,13 +90,13 @@
 </h2>
 <p>SPAM 发表了一篇转载博文《[转载]牛逼》http://t.cn/RLnQc0E<br><img src="http://ww2.sinaimg.cn/large/5408ee85jw1euxwe6kr5ej20fq0a00wq.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3874422349882827" target="freeweibo-mirror">SPAM 补补课[偷笑]</a>
 </h2>
 <p>SPAM 补补课[偷笑]</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3874419010770105" target="freeweibo-mirror">//@公民王海滨://@愤飞的麻雀: //@法律人冯岩: /…</a>
 </h2>
