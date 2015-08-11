@@ -44,6 +44,12 @@
 <p>
 	<small> ============== 7小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3874696644610030" target="freeweibo-mirror">同意把安徽人赶出上海的…点赞！</a>
+</h2>
+<p>同意把安徽人赶出上海的…点赞！</p>
+<p>
+	<small> ============== 8小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3874677686168677" target="freeweibo-mirror">SPAM 转发微博。</a>
 </h2>
 <p>SPAM 转发微博。<br><br>RE: 花唄提现~<br><img src="http://ww1.sinaimg.cn/large/9c6acfc5gw1euymfc723hj20ku1127ap.jpg"></p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3874548716234351" target="freeweibo-mirror">[哈哈]//@法兰西的故事: //@洛杉矶吴明: //@Li…</a>
 </h2>
 <p>[哈哈]//@法兰西的故事: //@洛杉矶吴明: //@LifeTime:[吃惊] //@勉哉夫子:以前也考虑过这种相似性 再加上中华民国跟秦朝也有一定相似性 辛亥革命之后孙中山也仅活了14年<br><br>RE: 有空还是得读点历史……<br><img src="http://ww3.sinaimg.cn/large/551ee816gw1euxuhg30luj20ci0m8acy.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3874525521688420" target="freeweibo-mirror">汉武帝有霍去病卫青，现在有吗？//@逆风蝴蝶: 大汉盛世和谐…</a>
-</h2>
-<p>汉武帝有霍去病卫青，现在有吗？//@逆风蝴蝶: 大汉盛世和谐，不要瞎比划。 //@琢儿他爹:[哈哈][哈哈]//@LifeTime: //@lifetimewe: //@婉恩252: //@褚达晨:转发微博<br><br>RE: 有空还是得读点历史……<br><img src="http://ww3.sinaimg.cn/large/551ee816gw1euxuhg30luj20ci0m8acy.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
