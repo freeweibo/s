@@ -36,7 +36,7 @@
 </h2>
 <p>汉武帝有霍去病卫青，现在有吗？//@逆风蝴蝶: 大汉盛世和谐，不要瞎比划。 //@琢儿他爹:[哈哈][哈哈]//@LifeTime: //@lifetimewe: //@婉恩252: //@褚达晨:转发微博<br><br>RE: 有空还是得读点历史……<br><img src="http://ww3.sinaimg.cn/large/551ee816gw1euxuhg30luj20ci0m8acy.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3874457275954843" target="freeweibo-mirror">如今的公务员，一边埋怨工作难干，一边却留恋万分，尤其是经济不…</a>
 </h2>
@@ -114,7 +114,7 @@
 </h2>
 <p>//@荣剑2001://@赵晓:习总在今年中央统战工作会议上强调：“宗教工作本质上是群众工作，要全面贯彻党的宗教信仰自由政策，依法管理宗教事务”；“必须提高宗教工作法治化水平，必须辩证看待宗教的社会作用，必须重视发挥宗教界人士作用”。既然是群众工作，就要抛弃敌我思维和冷战思维<br><br>RE: 何光沪：建议纠正浙江“拆除十字架”运动 http://t.cn/RLECUvs<br><img src="http://ww3.sinaimg.cn/large/507c0690gw1eux10i7vfaj20ci08ct9p.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3874410752145804" target="freeweibo-mirror">SPAM //@寒竹逸香:清算是早晚的事，只是希望这天早早到…</a>
 </h2>
