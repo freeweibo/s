@@ -30,7 +30,7 @@
 </h2>
 <p>[哈哈]//@法兰西的故事: //@洛杉矶吴明: //@LifeTime:[吃惊] //@勉哉夫子:以前也考虑过这种相似性 再加上中华民国跟秦朝也有一定相似性 辛亥革命之后孙中山也仅活了14年<br><br>RE: 有空还是得读点历史……<br><img src="http://ww3.sinaimg.cn/large/551ee816gw1euxuhg30luj20ci0m8acy.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3874525521688420" target="freeweibo-mirror">汉武帝有霍去病卫青，现在有吗？//@逆风蝴蝶: 大汉盛世和谐…</a>
 </h2>
@@ -42,7 +42,7 @@
 </h2>
 <p>如今的公务员，一边埋怨工作难干，一边却留恋万分，尤其是经济不发达地区。 //@作家东海:不穷才怪！<br><br>RE: 东北某大城市，人口300万，GDP46亿美元，人口是东京的五分之一、纽约的六分之一，GDP是东京的0.1%、纽约的0.18%，市领导41名，市委书记1名，副书记4名，常委11名，市长1名、副市长9名、市长助理3名，人大主任1名，副主任7名，政协主席1名，副主席8名。还有20名处级副秘书长，平均每个市长两个秘书长。<br><img src="http://ww2.sinaimg.cn/large/005A3cLbjw1euxbggrksvj30iu0sgwhl.jpg"></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3874454012798851" target="freeweibo-mirror">//@爱卿平身免礼吧://@軍魂-IV:很珍贵//@北京朝阳…</a>
 </h2>
