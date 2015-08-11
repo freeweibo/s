@@ -42,7 +42,7 @@
 </h2>
 <p>SPAM 回覆@Louis_路易斯王:我蛤不在干燥的帝都 //@Louis_路易斯王:难道要烧死蛤蟆？ //@郑维:[吃惊]</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3874615107707377" target="freeweibo-mirror">SPAM 【小故事】从前一个不会游泳的人，不慎跌进了池塘。他…</a>
 </h2>
