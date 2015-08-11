@@ -54,7 +54,7 @@
 </h2>
 <p>这是说谁呢？——【澎湃新闻：侠客岛：邓小平等力促建退休规矩“让病人挡路年轻人或亡党”】http://t.cn/RLmPgNG<br><img src="http://ww2.sinaimg.cn/large/692fb5b7jw1euyc4zuf0pj203c03cq2s.jpg"></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3874548716234351" target="freeweibo-mirror">[哈哈]//@法兰西的故事: //@洛杉矶吴明: //@Li…</a>
 </h2>
