@@ -78,7 +78,7 @@
 </h2>
 <p>【详细报道：中国采取措施引导人民币贬值】随着中国经济继续放缓，中国央行周二引导人民币贬值，中间价较周一下调1.9%。央行此举目的在于增强人民币兑美元汇率中间价的市场化程度和基准性。这显然是为了回应外界对中国汇率政策的指责。http://t.cn/RLmXWGo http://t.cn/RLmXKGn<br><img src="http://ww1.sinaimg.cn/large/624c2f04gw1euylf8oansj20zk1hddl1.jpg"></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3874629795763697" target="freeweibo-mirror">SPAM 成功属于那些有耐心的人。#郑钧百万征歌倒计时##叫…</a>
 </h2>
