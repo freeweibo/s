@@ -38,6 +38,12 @@
 <p>
 	<small> ============== 4小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3874649287165365" target="freeweibo-mirror">花唄提现~</a>
+</h2>
+<p>花唄提现~<br><img src="http://ww1.sinaimg.cn/large/9c6acfc5gw1euymfc723hj20ku1127ap.jpg"></p>
+<p>
+	<small> ============== 5小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3874647500004087" target="freeweibo-mirror">SPAM 矮油~好像还蛮好玩的 去玩玩！[嘻嘻]</a>
 </h2>
 <p>SPAM 矮油~好像还蛮好玩的 去玩玩！[嘻嘻]</p>
@@ -80,6 +86,12 @@
 <p>
 	<small> ============== 8小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3874585076373710" target="freeweibo-mirror">【西藏轶事】昨晚遇到一“老西藏”，80年代初在XZ军区大礼堂…</a>
+</h2>
+<p>【西藏轶事】昨晚遇到一“老西藏”，80年代初在XZ军区大礼堂聆听邦同志讲话，曰百万翻身农奴之所以至今没富起来，就是因为要负担30万驻藏干部和解放军，所以今后都要撤出，每个县留两名观察员。当时引起听众不满，因干部和部队全由中央负担。当天下午拉萨街头就有要汉人滚出XZ的大标语。XZ从此乱矣。</p>
+<p>
+	<small> ============== 10小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3874559943873719" target="freeweibo-mirror">这是说谁呢？——【澎湃新闻：侠客岛：邓小平等力促建退休规矩“…</a>
 </h2>
 <p>这是说谁呢？——【澎湃新闻：侠客岛：邓小平等力促建退休规矩“让病人挡路年轻人或亡党”】http://t.cn/RLmPgNG<br><img src="http://ww2.sinaimg.cn/large/692fb5b7jw1euyc4zuf0pj203c03cq2s.jpg"></p>
@@ -90,7 +102,7 @@
 </h2>
 <p>[哈哈]//@法兰西的故事: //@洛杉矶吴明: //@LifeTime:[吃惊] //@勉哉夫子:以前也考虑过这种相似性 再加上中华民国跟秦朝也有一定相似性 辛亥革命之后孙中山也仅活了14年<br><br>RE: 有空还是得读点历史……<br><img src="http://ww3.sinaimg.cn/large/551ee816gw1euxuhg30luj20ci0m8acy.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3874525521688420" target="freeweibo-mirror">汉武帝有霍去病卫青，现在有吗？//@逆风蝴蝶: 大汉盛世和谐…</a>
 </h2>
@@ -125,18 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3874447297939121" target="freeweibo-mirror">//@另类无敌:老领导退休仍干政，新领导很是不开心，另类无敌…</a>
 </h2>
 <p>//@另类无敌:老领导退休仍干政，新领导很是不开心，另类无敌8月11日首推转发扩散。@旧来行处好追寻:蛤蟆阴魂不散，新皇帝好难做//@不变的糕哥://@光远看经济: 这是我看到的学东最好的评论！//@色色猴:同问，谁啊？ //@土家野夫:這是说的谁啊</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3874445183515622" target="freeweibo-mirror">四个字:欺善怕恶！</a>
-</h2>
-<p>四个字:欺善怕恶！<br><img src="http://ww4.sinaimg.cn/large/474df67ejw1euxyzh24zzj20g80qo42r.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3874428847205507" target="freeweibo-mirror">SPAM 【#昆明生活#】云A作死新闻连连看，第三个太亮了。…</a>
-</h2>
-<p>SPAM 【#昆明生活#】云A作死新闻连连看，第三个太亮了。[笑cry]<br><img src="http://ww3.sinaimg.cn/large/6a8bd5d1gw1euxapkjqd0j20rf0hxwiw.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
