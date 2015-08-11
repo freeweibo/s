@@ -24,7 +24,7 @@
 </h2>
 <p>这是说谁呢？——【澎湃新闻：侠客岛：邓小平等力促建退休规矩“让病人挡路年轻人或亡党”】http://t.cn/RLmPgNG<br><img src="http://ww2.sinaimg.cn/large/692fb5b7jw1euyc4zuf0pj203c03cq2s.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3874548716234351" target="freeweibo-mirror">[哈哈]//@法兰西的故事: //@洛杉矶吴明: //@Li…</a>
 </h2>
@@ -48,13 +48,13 @@
 </h2>
 <p>//@爱卿平身免礼吧://@軍魂-IV:很珍贵//@北京朝阳群众办: //@词作家曾鸣: //@张旭5454://@木匠56: //@地球人很可怕:真相太可怕[衰]</p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3874453605664739" target="freeweibo-mirror">//@大连_阿东://@睡狮惊梦://@莫之时代: 考虑到有…</a>
 </h2>
 <p>//@大连_阿东://@睡狮惊梦://@莫之时代: 考虑到有些干部可能是通过徐才厚选拔的，这配图就有用了。@白马飘飘2013 //@牛郎V:这就是缺乏民主的结果！ //@九毛大公:纳税人的银子养这么多贪官，真不如养猪。</p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3874448207337476" target="freeweibo-mirror">//@聚爱成行1964:郁达夫曾说过：有了伟大的人物，而不知…</a>
 </h2>
@@ -132,7 +132,7 @@
 </h2>
 <p>求问万能的微博：今年的阅兵能见到我蛤嚒？<br><img src="http://ww2.sinaimg.cn/large/6d0b6b33jw1euxut3xn4fj20d20830t7.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3874405932866693" target="freeweibo-mirror">有空还是得读点历史……</a>
 </h2>
