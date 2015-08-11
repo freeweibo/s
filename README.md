@@ -24,7 +24,7 @@
 </h2>
 <p>SPAM 矮油~好像还蛮好玩的 去玩玩！[嘻嘻]</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3874629795763697" target="freeweibo-mirror">SPAM 成功属于那些有耐心的人。#郑钧百万征歌倒计时##叫…</a>
 </h2>
