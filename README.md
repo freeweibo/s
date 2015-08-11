@@ -66,7 +66,7 @@
 </h2>
 <p>SPAM 转发微博。<br><br>RE: 花唄提现~<br><img src="http://ww1.sinaimg.cn/large/9c6acfc5gw1euymfc723hj20ku1127ap.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3874675471555706" target="freeweibo-mirror">网上消息；【宋城集团向中纪委实名举报浙江省高院院长齐奇】11…</a>
 </h2>
