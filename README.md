@@ -48,7 +48,7 @@
 </h2>
 <p>[哈哈]//@法兰西的故事: //@洛杉矶吴明: //@LifeTime:[吃惊] //@勉哉夫子:以前也考虑过这种相似性 再加上中华民国跟秦朝也有一定相似性 辛亥革命之后孙中山也仅活了14年<br><br>RE: 有空还是得读点历史……<br><img src="http://ww3.sinaimg.cn/large/551ee816gw1euxuhg30luj20ci0m8acy.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3874525521688420" target="freeweibo-mirror">汉武帝有霍去病卫青，现在有吗？//@逆风蝴蝶: 大汉盛世和谐…</a>
 </h2>
