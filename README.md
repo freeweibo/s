@@ -20,6 +20,24 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3875083036543102" target="freeweibo-mirror">最新確定消息，據華爾街日報報導，繼人民幣連續兩日貶值之後，中…</a>
+</h2>
+<p>最新確定消息，據華爾街日報報導，繼人民幣連續兩日貶值之後，中國央行已經下令，要求國有銀行拋售美元，以此穩住人民幣匯率！</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3875082671294861" target="freeweibo-mirror">外媒传朝鲜内阁副总理崔英健被枪决！三胖又干掉了一个老臣。从传…</a>
+</h2>
+<p>外媒传朝鲜内阁副总理崔英健被枪决！三胖又干掉了一个老臣。从传闻中的犬决、炮决到枪决，额，无话可说。感谢蛋炒饭<br><img src="http://ww2.sinaimg.cn/large/62c109c2jw1ev0071mrykj20ez0qomzj.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3875077642476144" target="freeweibo-mirror">SPAM 【成功者具备的六个金子般的特质】1、强烈的成功欲望…</a>
+</h2>
+<p>SPAM 【成功者具备的六个金子般的特质】1、强烈的成功欲望。2、极强的学习能力。3、明确详细的计划。4、积极的心理暗示。5。和谐的人际关系及合作力。6、坚持不懈，永不放弃。。。。#洛克王国大牌驾到##那些为爱变腹黑的心机女#<br><img src="http://ww4.sinaimg.cn/large/98c1610bjw1euzzmgfnzwj209q06ht8v.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3875072642656191" target="freeweibo-mirror">//@非常梅花://@长安老陈BH4BYP: //@黎津平老…</a>
 </h2>
 <p>//@非常梅花://@长安老陈BH4BYP: //@黎津平老师://@李庄: 一次两个小时的传销洗脑，要好几天才能恢复正常，薄王四年的阴影确实很难消除，估计还要几年。</p>
@@ -121,24 +139,6 @@
 <p>最后一段亮了！[神马]按照这种常规，今年落马的这7位“大秘”，是不是还应该对应5只“大老虎”落马？或许，调查这些“大秘”，正是查处“大老虎”的前期动作！显然，反腐正未有穷期！或许，此时“大秘”背后的那些“大老虎”们心正悬着呢？</p>
 <p>
 	<small> ============== 11小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3874937091530896" target="freeweibo-mirror">人民币贬值啦，还是好好家里待着，已经出去了的也速回。//@义…</a>
-</h2>
-<p>人民币贬值啦，还是好好家里待着，已经出去了的也速回。//@义阳郡王李抱真:【过几天要尝试一下出境游，前几年，每年出去一两次，试探一下自己的危险指数】 //@哈哈哈哈-:缺德政府，让别人损失金钱//@燕小小云:让他们去危害资本主义国家多好啊<br><br>RE: 斯伟江被北京公安限制出境。我认为是对的。依法治国，伟江这样的法律人才不可多得，出境一天，都是国家的损失。<br><img src="http://ww4.sinaimg.cn/large/4bdb1fa0jw1euyz4vworjj20c80lpmz1.jpg"></p>
-<p>
-	<small> ============== 11小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3874926081423258" target="freeweibo-mirror">这不是在巡视整改，这是传播文革符号，背后操手和央视主管，你们…</a>
-</h2>
-<p>这不是在巡视整改，这是传播文革符号，背后操手和央视主管，你们加入造反队了吗？<br><img src="http://ww2.sinaimg.cn/large/593f681ajw1euzi82x237j20xc18g7hy.jpg"></p>
-<p>
-	<small> ============== 12小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3874902661071983" target="freeweibo-mirror">李克强总理一句感人话，让百姓欲哭无泪。沈阳市浑南区政府，伸手…</a>
-</h2>
-<p>李克强总理一句感人话，让百姓欲哭无泪。沈阳市浑南区政府，伸手看不见五指。</p>
-<p>
-	<small> ============== 1天前</small>
 </p>
 <table>
     <tr>
