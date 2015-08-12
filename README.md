@@ -80,11 +80,17 @@
 <p>
 	<small> ============== 8小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3874960601193653" target="freeweibo-mirror">【5岁男童遭患癌继母连砍30多刀 】河南安阳5岁男孩林林与生…</a>
+</h2>
+<p>【5岁男童遭患癌继母连砍30多刀 】河南安阳5岁男孩林林与生父和继母苗某一起生活。一个多月前苗某被查出胃癌，并于昨天借口给林林洗澡，砍了孩子30多刀。苗某或希望她死后丈夫能全力关注其亲生女儿，遂对林林起了歹意。[怒]人心太恶毒，不会有好报。看到好心痛，希望孩子早日康复 http://t.cn/RLmZQ0e<br><img src="http://ww2.sinaimg.cn/large/651bd7b3jw1euzm4cd4aij20c80h9myu.jpg"></p>
+<p>
+	<small> ============== 8小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3874956318006946" target="freeweibo-mirror">SPAM 人生是一方田，种什么得什么是因果循环，谁也逃不离；…</a>
 </h2>
 <p>SPAM 人生是一方田，种什么得什么是因果循环，谁也逃不离；人生是一场戏，想什么遇什么是悲喜交替，谁也躲不开。痛就痛了，痛，让你认识自己，也看清了别人。败就败了，站起来拍拍灰尘，有多少人会在乎你摔过跤？世间多少事，经历过了，看得清了，心就静了。#黄子韬自作单曲# #813宅女侦探桂香#<br><img src="http://ww1.sinaimg.cn/large/98c1610bjw1euzlox0hysj20ap08cmxa.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3874950760501644" target="freeweibo-mirror">老刘老刘，你在秦城还好吗？//@王久辛: 那是设计速度！盛光…</a>
 </h2>
@@ -114,13 +120,13 @@
 </h2>
 <p>这不是在巡视整改，这是传播文革符号，背后操手和央视主管，你们加入造反队了吗？<br><img src="http://ww2.sinaimg.cn/large/593f681ajw1euzi82x237j20xc18g7hy.jpg"></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3874902661071983" target="freeweibo-mirror">李克强总理一句感人话，让百姓欲哭无泪。沈阳市浑南区政府，伸手…</a>
 </h2>
 <p>李克强总理一句感人话，让百姓欲哭无泪。沈阳市浑南区政府，伸手看不见五指。</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3874894070989495" target="freeweibo-mirror">//@杨振宁教授:第二句的准确意思是，“他的武器是他持有的2…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3874893835656838" target="freeweibo-mirror">:李克强总理一句感人话，让百姓欲哭无泪。沈阳市浑南区政府，伸…</a>
 </h2>
 <p>:李克强总理一句感人话，让百姓欲哭无泪。沈阳市浑南区政府，伸手看不见五指。</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3874799547679013" target="freeweibo-mirror">同意把上海土著赶进大海喂鳖的点赞。[赞] @妞妞2005的传…</a>
-</h2>
-<p>同意把上海土著赶进大海喂鳖的点赞。[赞] @妞妞2005的传说 //@花满南京: 快回来！ //@种桃道士今又来:我这江苏人也该被赶走，上海应该是上海人的。 //@花满南京:搞地域攻击？博主疯了吗？ //@冰冻的柠檬:@警民直通车-上海 请问，你们准备怎么赶？<br><br>RE: 同意把安徽人赶出上海的…点赞！</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
