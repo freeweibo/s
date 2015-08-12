@@ -48,7 +48,7 @@
 </h2>
 <p>右边的军装也是国民党？//@爱新觉罗载勋: “向人民开枪，对人民有血债” ————这话我甚至不敢连续说三遍，我心虚、腿软............</p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3875088811688896" target="freeweibo-mirror">RT//@爱新觉罗载勋: “向人民开枪，对人民有血债” ——…</a>
 </h2>
@@ -114,13 +114,13 @@
 </h2>
 <p>SPAM [心][心]</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3875037138328171" target="freeweibo-mirror">SPAM 发表了一篇转载博文《[转载]是谁翻了“大国政”的烧…</a>
 </h2>
 <p>SPAM 发表了一篇转载博文《[转载]是谁翻了“大国政”的烧饼，是国家人社部！》http://t.cn/RLu1rVu<br><img src="http://ww1.sinaimg.cn/large/5408ee85jw1euzuz98otug206d09swgp.gif"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3875006418860398" target="freeweibo-mirror">SPAM 真正的缘，不只是给对方留下美好的第一印象，而是对方…</a>
 </h2>
