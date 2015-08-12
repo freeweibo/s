@@ -42,7 +42,7 @@
 </h2>
 <p>1、水滴石穿，不是因为力量大，而是因为功夫深。 2、势不可使尽，福不可享尽，便宜不可占尽，聪明不可用尽。 3、平生不做皱眉事，世上应无切齿人。 4多门之室生风，多言之人生祸。 5、人生至恶是善谈人过，人生至愚是恶对己非。 6、恶，恐人知，便是真恶；善，欲人知不是真善#赞美张大大##柯南徐浩#<br><img src="http://ww3.sinaimg.cn/large/98c1610bjw1ev037ghd85j20df0hs777.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3875090334556297" target="freeweibo-mirror">右边的军装也是国民党？//@爱新觉罗载勋: “向人民开枪，对…</a>
 </h2>
@@ -78,7 +78,7 @@
 </h2>
 <p>SPAM 【成功者具备的六个金子般的特质】1、强烈的成功欲望。2、极强的学习能力。3、明确详细的计划。4、积极的心理暗示。5。和谐的人际关系及合作力。6、坚持不懈，永不放弃。。。。#洛克王国大牌驾到##那些为爱变腹黑的心机女#<br><img src="http://ww4.sinaimg.cn/large/98c1610bjw1euzzmgfnzwj209q06ht8v.jpg"></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3875072642656191" target="freeweibo-mirror">//@非常梅花://@长安老陈BH4BYP: //@黎津平老…</a>
 </h2>
@@ -108,7 +108,7 @@
 </h2>
 <p>SPAM ！！！恶毒的女人早点儿下地狱！！<br><br>RE: 【5岁男童遭患癌继母连砍30多刀 】河南安阳5岁男孩林林与生父和继母苗某一起生活。一个多月前苗某被查出胃癌，并于昨天借口给林林洗澡，砍了孩子30多刀。苗某或希望她死后丈夫能全力关注其亲生女儿，遂对林林起了歹意。[怒]人心太恶毒，不会有好报。看到好心痛，希望孩子早日康复 http://t.cn/RLmZQ0e<br><img src="http://ww2.sinaimg.cn/large/651bd7b3jw1euzm4cd4aij20c80h9myu.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3875037477863565" target="freeweibo-mirror">SPAM [心][心]</a>
 </h2>
