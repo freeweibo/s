@@ -24,13 +24,13 @@
 </h2>
 <p>最新確定消息，據華爾街日報報導，繼人民幣連續兩日貶值之後，中國央行已經下令，要求國有銀行拋售美元，以此穩住人民幣匯率！</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3875082671294861" target="freeweibo-mirror">外媒传朝鲜内阁副总理崔英健被枪决！三胖又干掉了一个老臣。从传…</a>
 </h2>
 <p>外媒传朝鲜内阁副总理崔英健被枪决！三胖又干掉了一个老臣。从传闻中的犬决、炮决到枪决，额，无话可说。感谢蛋炒饭<br><img src="http://ww2.sinaimg.cn/large/62c109c2jw1ev0071mrykj20ez0qomzj.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3875077642476144" target="freeweibo-mirror">SPAM 【成功者具备的六个金子般的特质】1、强烈的成功欲望…</a>
 </h2>
@@ -72,13 +72,13 @@
 </h2>
 <p>SPAM [心][心]</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3875037138328171" target="freeweibo-mirror">SPAM 发表了一篇转载博文《[转载]是谁翻了“大国政”的烧…</a>
 </h2>
 <p>SPAM 发表了一篇转载博文《[转载]是谁翻了“大国政”的烧饼，是国家人社部！》http://t.cn/RLu1rVu<br><img src="http://ww1.sinaimg.cn/large/5408ee85jw1euzuz98otug206d09swgp.gif"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3875006418860398" target="freeweibo-mirror">SPAM 真正的缘，不只是给对方留下美好的第一印象，而是对方…</a>
 </h2>
