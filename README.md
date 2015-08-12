@@ -60,7 +60,7 @@
 </h2>
 <p>【快报】8月12日下午，中央网信办主任、国家互联网信息办公室主任鲁炜在京会见英国外交大臣菲利普·哈蒙德一行。<br><img src="http://ww4.sinaimg.cn/large/7377344agw1ev00czjts7j20m80fidkf.jpg"></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3875083036543102" target="freeweibo-mirror">最新確定消息，據華爾街日報報導，繼人民幣連續兩日貶值之後，中…</a>
 </h2>
