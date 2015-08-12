@@ -36,7 +36,7 @@
 </h2>
 <p>SPAM 人生是一方田，种什么得什么是因果循环，谁也逃不离；人生是一场戏，想什么遇什么是悲喜交替，谁也躲不开。痛就痛了，痛，让你认识自己，也看清了别人。败就败了，站起来拍拍灰尘，有多少人会在乎你摔过跤？世间多少事，经历过了，看得清了，心就静了。#黄子韬自作单曲# #813宅女侦探桂香#<br><img src="http://ww1.sinaimg.cn/large/98c1610bjw1euzlox0hysj20ap08cmxa.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3874950760501644" target="freeweibo-mirror">老刘老刘，你在秦城还好吗？//@王久辛: 那是设计速度！盛光…</a>
 </h2>
@@ -66,7 +66,7 @@
 </h2>
 <p>这不是在巡视整改，这是传播文革符号，背后操手和央视主管，你们加入造反队了吗？<br><img src="http://ww2.sinaimg.cn/large/593f681ajw1euzi82x237j20xc18g7hy.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3874902661071983" target="freeweibo-mirror">李克强总理一句感人话，让百姓欲哭无泪。沈阳市浑南区政府，伸手…</a>
 </h2>
