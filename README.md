@@ -120,7 +120,7 @@
 </h2>
 <p>SPAM 关注微信平台！接下来微信服务！<br><img src="http://ww3.sinaimg.cn/large/6314e5cbjw1euzqal33i4j204g04k3yj.jpg"></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3874983501457330" target="freeweibo-mirror">我为什么支持他，因为他是为百姓利益，当今中国富豪权贵资本势力…</a>
 </h2>
