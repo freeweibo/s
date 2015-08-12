@@ -36,7 +36,7 @@
 </h2>
 <p>只要城楼上的照片与纪念堂的遗体还在，不左才怪。</p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3875133925878499" target="freeweibo-mirror">SPAM @胡冰蜀黍 就是进驻的卧底。[笑cry]//@沪港…</a>
 </h2>
