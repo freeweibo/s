@@ -24,7 +24,7 @@
 </h2>
 <p>[吃惊][吃惊][吃惊] //@逆风蝴蝶:传闻燃起蘑菇云，油气直冲云霄，应该不是海外势力捣乱，是周永康残余部队干的。</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3875156630282321" target="freeweibo-mirror">只要城楼上的照片与纪念堂的遗体还在，不左才怪。</a>
 </h2>
@@ -78,7 +78,7 @@
 </h2>
 <p>SPAM 【成功者具备的六个金子般的特质】1、强烈的成功欲望。2、极强的学习能力。3、明确详细的计划。4、积极的心理暗示。5。和谐的人际关系及合作力。6、坚持不懈，永不放弃。。。。#洛克王国大牌驾到##那些为爱变腹黑的心机女#<br><img src="http://ww4.sinaimg.cn/large/98c1610bjw1euzzmgfnzwj209q06ht8v.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3875072642656191" target="freeweibo-mirror">//@非常梅花://@长安老陈BH4BYP: //@黎津平老…</a>
 </h2>
