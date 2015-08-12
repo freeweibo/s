@@ -42,7 +42,7 @@
 </h2>
 <p>李克强总理一句感人话，让百姓欲哭无泪。沈阳市浑南区政府，伸手看不见五指。</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3874894070989495" target="freeweibo-mirror">//@杨振宁教授:第二句的准确意思是，“他的武器是他持有的2…</a>
 </h2>
@@ -77,6 +77,12 @@
 	<a href="https://freeweibo.com/weibo/3874765863131506" target="freeweibo-mirror">唉，常常有人说我有美国爹，是个卖国贼。内心也是挺崩溃的。//…</a>
 </h2>
 <p>唉，常常有人说我有美国爹，是个卖国贼。内心也是挺崩溃的。//@胖子的虎子: //@卓越兄:完成比计划快！</p>
+<p>
+	<small> ============== 1天前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3874760175572928" target="freeweibo-mirror">斯伟江被北京公安限制出境。我认为是对的。依法治国，伟江这样的…</a>
+</h2>
+<p>斯伟江被北京公安限制出境。我认为是对的。依法治国，伟江这样的法律人才不可多得，出境一天，都是国家的损失。<br><img src="http://ww4.sinaimg.cn/large/4bdb1fa0jw1euyz4vworjj20c80lpmz1.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p><h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3874647500004087" target="freeweibo-mirror">SPAM 矮油~好像还蛮好玩的 去玩玩！[嘻嘻]</a>
 </h2>
 <p>SPAM 矮油~好像还蛮好玩的 去玩玩！[嘻嘻]</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3874642894873645" target="freeweibo-mirror">//@棉花糖有一颗坚强的心:今天市场很热闹啊</a>
-</h2>
-<p>//@棉花糖有一颗坚强的心:今天市场很热闹啊<br><br>RE: 【详细报道：中国采取措施引导人民币贬值】随着中国经济继续放缓，中国央行周二引导人民币贬值，中间价较周一下调1.9%。央行此举目的在于增强人民币兑美元汇率中间价的市场化程度和基准性。这显然是为了回应外界对中国汇率政策的指责。http://t.cn/RLmXWGo http://t.cn/RLmXKGn<br><img src="http://ww1.sinaimg.cn/large/624c2f04gw1euylf8oansj20zk1hddl1.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
