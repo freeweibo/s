@@ -60,7 +60,7 @@
 </h2>
 <p>唉，常常有人说我有美国爹，是个卖国贼。内心也是挺崩溃的。//@胖子的虎子: //@卓越兄:完成比计划快！</p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3874751338098161" target="freeweibo-mirror">//@Stierna: //@马土土_XXL:中华全国妇女联…</a>
 </h2>
