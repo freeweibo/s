@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3875176016105027" target="freeweibo-mirror">[吃惊][吃惊][吃惊] //@逆风蝴蝶:传闻燃起蘑菇云，油…</a>
+</h2>
+<p>[吃惊][吃惊][吃惊] //@逆风蝴蝶:传闻燃起蘑菇云，油气直冲云霄，应该不是海外势力捣乱，是周永康残余部队干的。</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3875156630282321" target="freeweibo-mirror">只要城楼上的照片与纪念堂的遗体还在，不左才怪。</a>
 </h2>
 <p>只要城楼上的照片与纪念堂的遗体还在，不左才怪。</p>
@@ -36,7 +42,7 @@
 </h2>
 <p>1、水滴石穿，不是因为力量大，而是因为功夫深。 2、势不可使尽，福不可享尽，便宜不可占尽，聪明不可用尽。 3、平生不做皱眉事，世上应无切齿人。 4多门之室生风，多言之人生祸。 5、人生至恶是善谈人过，人生至愚是恶对己非。 6、恶，恐人知，便是真恶；善，欲人知不是真善#赞美张大大##柯南徐浩#<br><img src="http://ww3.sinaimg.cn/large/98c1610bjw1ev037ghd85j20df0hs777.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3875090334556297" target="freeweibo-mirror">右边的军装也是国民党？//@爱新觉罗载勋: “向人民开枪，对…</a>
 </h2>
@@ -72,7 +78,7 @@
 </h2>
 <p>SPAM 【成功者具备的六个金子般的特质】1、强烈的成功欲望。2、极强的学习能力。3、明确详细的计划。4、积极的心理暗示。5。和谐的人际关系及合作力。6、坚持不懈，永不放弃。。。。#洛克王国大牌驾到##那些为爱变腹黑的心机女#<br><img src="http://ww4.sinaimg.cn/large/98c1610bjw1euzzmgfnzwj209q06ht8v.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3875072642656191" target="freeweibo-mirror">//@非常梅花://@长安老陈BH4BYP: //@黎津平老…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3874996487338966" target="freeweibo-mirror">SPAM 关注微信平台！接下来微信服务！</a>
 </h2>
 <p>SPAM 关注微信平台！接下来微信服务！<br><img src="http://ww3.sinaimg.cn/large/6314e5cbjw1euzqal33i4j204g04k3yj.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3874983501457330" target="freeweibo-mirror">我为什么支持他，因为他是为百姓利益，当今中国富豪权贵资本势力…</a>
-</h2>
-<p>我为什么支持他，因为他是为百姓利益，当今中国富豪权贵资本势力黑恶势力横行，为他们歌功颂德洗地捧脚的多的是，有经济学家、大学教授、知名律师，这些人模狗样的上层精英与权贵串通一气，明的暗的洗掠财富，只有书记是为平民百姓利益做事，为此他得罪了权贵被诬陷入狱，他就是当代中国的普罗米修斯！</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
