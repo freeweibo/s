@@ -24,7 +24,7 @@
 </h2>
 <p>SPAM 发表了一篇转载博文《[转载]是谁翻了“大国政”的烧饼，是国家人社部！》http://t.cn/RLu1rVu<br><img src="http://ww1.sinaimg.cn/large/5408ee85jw1euzuz98otug206d09swgp.gif"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3875006418860398" target="freeweibo-mirror">SPAM 真正的缘，不只是给对方留下美好的第一印象，而是对方…</a>
 </h2>
