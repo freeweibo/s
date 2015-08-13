@@ -42,7 +42,7 @@
 </h2>
 <p>呵呵 //@李凡:天津媒体的耻辱//@徐付群: 是不是上级的“口径”还没下来？是不是宣传部负责定“口径”的领导还在休假？狗屁口径！</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3875332413063865" target="freeweibo-mirror">好吧，心肮脏，哎...//@Adrian_Kliest: 我…</a>
 </h2>
@@ -116,6 +116,12 @@
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3875323017528464" target="freeweibo-mirror">不新鲜了 http://t.cn/RL3WB3L</a>
+</h2>
+<p>不新鲜了 http://t.cn/RL3WB3L<br><img src="http://ww2.sinaimg.cn/large/474243c8jw1ev0rszycz6j20k00zkdh6.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3875322984268148" target="freeweibo-mirror">不让说的秘密。</a>
 </h2>
 <p>不让说的秘密。<br><img src="http://ww1.sinaimg.cn/large/542a99b2jw1ev0rs6o8c5j20hs0dc75v.jpg"></p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3875321763351290" target="freeweibo-mirror">金钱至上、娱乐至死、良知尽丧//@喻国明: 俗话说，不作死就…</a>
 </h2>
 <p>金钱至上、娱乐至死、良知尽丧//@喻国明: 俗话说，不作死就不会死。传统媒介如果连起码的传统责任都不担当的话，就真的是死路一条了。 //@紫金太平:看到天津卫视早晨8点多还在播“糟糠之妻俱乐部”，简直肺都气爆了！感到这家媒体无党性无人性至少缺乏应对突发事件预案。@喻国明 //@李蕾1980: 转发微博<br><br>RE: #明态度#假如我当天津电视台长：1停止娱乐节目播出；2滚动跟进播出事故相关情况，例如党和政府指示及行动、救险现场、医院抢救、百姓安置等；3播出各种服务性常识，例如医院联系方式、防止次生灾害方法、如何自救和救人等；4记者现场感受，表达人文关怀。因此当不上台长，但真理是唯一，期盼未来！</p>
-<p>
-	<small> ============== 3小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3875320668752614" target="freeweibo-mirror">比想象的严重多了。//@谢文: //@米家那个山: [蜡烛]…</a>
-</h2>
-<p>比想象的严重多了。//@谢文: //@米家那个山: [蜡烛][蜡烛][蜡烛]<br><br>RE: 天津大爆炸最近的小区，海港城，距离500米，正常的话有5000—10000人。两公里范围内玻璃全碎。几个小区一共50000—100000人。受伤人数？还有很多其他损失，比如周围的的汽车城，一个数字科技中心，会展中心，轻轨……等等。 港区作业组是三班倒廿四小时全天候的，这么大港区至少上百人，能长翅膀灰了吗<br><img src="http://ww4.sinaimg.cn/large/3edaacb2jw1ev0o47u348j20hs0dcq5f.jpg"></p>
 <p>
 	<small> ============== 3小时前</small>
 </p>
