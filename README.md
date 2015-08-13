@@ -32,6 +32,12 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3875371995304583" target="freeweibo-mirror">#三里屯持刀砍人# 【突发[话筒]北京三里屯一男子持刀砍人被…</a>
+</h2>
+<p>#三里屯持刀砍人# 【突发[话筒]北京三里屯一男子持刀砍人被捕 一女子受伤】据多名网友爆料，今天中午，一名男子持刀在北京三里屯当街砍伤一名女子，随后该男子被警方控制，女子伤情不明。（央广网）<br><img src="http://ww2.sinaimg.cn/large/6e916bdegw1ev0xfnpa2tj20c80gbt9v.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3875371466399516" target="freeweibo-mirror">SPAM 哎！</a>
 </h2>
 <p>SPAM 哎！<br><br>RE: 转自天津同学微信：同学朋友们纷纷收到宣传部指示，全部编辑记者播音员主持人一律静音，不许发微博不许发朋友圈，不许参与传播。处理方式和我猜的一样，只是这次反应更加慢了些。记者证，我不要了。<br><img src="http://ww1.sinaimg.cn/large/49fb90c5jw1ev0snpd4xvj20zk0k4adf.jpg"></p>
@@ -108,7 +114,7 @@
 </h2>
 <p>SPAM 没事别添乱。//@不许喷嚏: 今天天津日报每日新报城市快报等几大报纸都已经发稿了，天津电视台也在直播，其他人没事别添乱了 //@noonnooon:@不许喷嚏 求出来辟谣<br><br>RE: 转自天津同学微信：同学朋友们纷纷收到宣传部指示，全部编辑记者播音员主持人一律静音，不许发微博不许发朋友圈，不许参与传播。处理方式和我猜的一样，只是这次反应更加慢了些。记者证，我不要了。<br><img src="http://ww1.sinaimg.cn/large/49fb90c5jw1ev0snpd4xvj20zk0k4adf.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3875343905828966" target="freeweibo-mirror">SPAM </a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3875332861669216" target="freeweibo-mirror">呵呵 //@李凡:天津媒体的耻辱//@徐付群: 是不是上级的…</a>
 </h2>
 <p>呵呵 //@李凡:天津媒体的耻辱//@徐付群: 是不是上级的“口径”还没下来？是不是宣传部负责定“口径”的领导还在休假？狗屁口径！</p>
-<p>
-	<small> ============== 4小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3875332413063865" target="freeweibo-mirror">好吧，心肮脏，哎...//@Adrian_Kliest: 我…</a>
-</h2>
-<p>好吧，心肮脏，哎...//@Adrian_Kliest: 我就奇了怪了，不让拍怎么了？自己还没闹清楚呢鬼知道你一个歪果仁来干嘛的？这时候还要发这种东西出来挑拨矛盾，心真他妈的脏[微笑]//@广西师大出版社理想国:这是全球直播.....<br><br>RE: 我刚才特意上CNN去看了那段被中断的连线采访视频，记者只是在医院门外报道和拍摄周围的情况，而且都离得比较远，也并没有采访家属。记者说许多路都被管制为了方便运送伤者，家属只能在外面等消息，场面非常令人心碎。后来就莫名其妙冲上来很多工作人员很粗鲁地叫他不要拍不要拍还对他进行攻击。<br><img src="http://ww3.sinaimg.cn/large/649b0881jw1ev0qqxsorgj20hs0vkwhr.jpg"></p>
 <p>
 	<small> ============== 5小时前</small>
 </p>
