@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3875525631987075" target="freeweibo-mirror">“感谢你游过那么悲伤的水域”并列第一 //@喷嚏网铂程:转发…</a>
+</h2>
+<p>“感谢你游过那么悲伤的水域”并列第一 //@喷嚏网铂程:转发微博<br><br>RE: “世界上最帅的逆行”——应该在今年最恶心口号里夺冠。</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3875514945270855" target="freeweibo-mirror">这个时候给陈良宇洗地算怎么回事？原po明白不明白是先定洋山港…</a>
 </h2>
 <p>这个时候给陈良宇洗地算怎么回事？原po明白不明白是先定洋山港再定储备油库位置，而不是反过来。原po再解释解释大金山的定位。//@武汉的小路:武汉的化工厂也远离老市区，而且风向位置的考虑也很好，但是离中国高铁的枢纽武汉站，还有武钢的生活区不那么远<br><br>RE: 中国最大的战略石油储备库建在距离洋山港15公里远的另外一孤岛上。真的应该好好感谢他！<br><img src="http://ww4.sinaimg.cn/large/b5c88416jw1ev19ylczamj20f00qo0uf.jpg"></p>
@@ -102,7 +108,7 @@
 </h2>
 <p>追谁？ //@开心的雪-:危险品仓库离居民区这么近，谁批准的？会追责吗？</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3875465087920552" target="freeweibo-mirror">SPAM 这一角，是多少个人？[怒]</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3875463682165628" target="freeweibo-mirror">SPAM  //@六六:不要无谓牺牲。//@绝版魏晋:老周你…</a>
 </h2>
 <p>SPAM  //@六六:不要无谓牺牲。//@绝版魏晋:老周你先英勇一下//@墨鉅50:只要说明白了，社会还是很通情达理的。//@周泽律师: 如果消防员不进去，社会是不是会说他们不够英勇？<br><br>RE: 转一种说法，希望更多的海内外专业人士出来说说。<br><img src="http://ww1.sinaimg.cn/large/a5658013gw1ev10nmohcvj20eu0bi76f.jpg"></p>
-<p>
-	<small> ============== 5小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3875462965149791" target="freeweibo-mirror">我的妈呀氰化纳……//@sherry變成killerS://…</a>
-</h2>
-<p>我的妈呀氰化纳……//@sherry變成killerS://@东方早报:目前消防救援正全力处置氰化钠，已准备15%的双氧水，准备将它们拉走，但据现场检测，下水沟里已检出氰化钠，说明已经泄露。 http://t.cn/RL1hfdd 新京报<br><br>RE: 【天津消防指挥部：爆炸物主要为硝酸类化学品】当时发生爆炸的地点存放着硝酸钾、硝酸钠等硝酸盐物质,遇热容易爆炸。目前已检出液碱、碘化氢、硫氢化钠、硫化钠等。厂家反映，出事货场还存放至少700多吨氰化钠。下水沟里已检出氰化钠,说明已经泄露。http://t.cn/RL3MoAw 新京报<br><img src="http://ww1.sinaimg.cn/large/005vnhZYgw1ev15ypow3bg30gy09qdsk.gif"></p>
 <p>
 	<small> ============== 5小时前</small>
 </p>
