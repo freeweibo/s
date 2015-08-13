@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3875378084609703" target="freeweibo-mirror">//@夜郎国太傅: [嘘][嘘][嘘][嘘][嘘][嘘][嘘…</a>
+</h2>
+<p>//@夜郎国太傅: [嘘][嘘][嘘][嘘][嘘][嘘][嘘][嘘][嘘]//@半天鸟: 没人性的官员！[怒][怒]<br><br>RE: 转自天津同学微信：同学朋友们纷纷收到宣传部指示，全部编辑记者播音员主持人一律静音，不许发微博不许发朋友圈，不许参与传播。处理方式和我猜的一样，只是这次反应更加慢了些。记者证，我不要了。<br><img src="http://ww1.sinaimg.cn/large/49fb90c5jw1ev0snpd4xvj20zk0k4adf.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3875364533155378" target="freeweibo-mirror">SPAM //@八大山债人: //@蓝鲸财经记者工作平台:[…</a>
 </h2>
 <p>SPAM //@八大山债人: //@蓝鲸财经记者工作平台:[闭嘴]<br><br>RE: 转自天津同学微信：同学朋友们纷纷收到宣传部指示，全部编辑记者播音员主持人一律静音，不许发微博不许发朋友圈，不许参与传播。处理方式和我猜的一样，只是这次反应更加慢了些。记者证，我不要了。<br><img src="http://ww1.sinaimg.cn/large/49fb90c5jw1ev0snpd4xvj20zk0k4adf.jpg"></p>
@@ -36,7 +42,7 @@
 </h2>
 <p>SPAM @Vista看天下 上期一篇文章写得对啊：三里屯派出所真是宇宙最忙碌的派出所了。祈求都少些戾气，平安为上…… //@热话题:Repost<br><br>RE: #北京突发#【三里屯[话筒]】@三千世界的一个俗人：三里屯优衣库门口有一男的拿砍刀追人砍！！歹徒已被警察制服了！！（现场图via@Yuki酱正在努力成为优质蟲師中 @答案永恒-问题依旧）<br><img src="http://ww1.sinaimg.cn/large/63136032jw1ev0vg333zhj20c80gb0u1.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3875355951925267" target="freeweibo-mirror">纽约时报广场上那些中国形象宣传片的作用一瞬间化为乌有</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3875327509587932" target="freeweibo-mirror">这是铁皮纸//@范桶: 为什么，纸能包住火？</a>
 </h2>
 <p>这是铁皮纸//@范桶: 为什么，纸能包住火？<br><br>RE: #天津塘沽大爆炸# CNN直播爆炸事故中 一群不明身份人员直接干倒记者[最右] @范桶<br><img src="http://ww4.sinaimg.cn/large/5094b86djw1ev0s18z7nqg20a105jnph.gif"></p>
-<p>
-	<small> ============== 4小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3875326419434407" target="freeweibo-mirror">这是全球直播.....</a>
-</h2>
-<p>这是全球直播.....<br><br>RE: 我刚才特意上CNN去看了那段被中断的连线采访视频，记者只是在医院门外报道和拍摄周围的情况，而且都离得比较远，也并没有采访家属。记者说许多路都被管制为了方便运送伤者，家属只能在外面等消息，场面非常令人心碎。后来就莫名其妙冲上来很多工作人员很粗鲁地叫他不要拍不要拍还对他进行攻击。<br><img src="http://ww3.sinaimg.cn/large/649b0881jw1ev0qqxsorgj20hs0vkwhr.jpg"></p>
 <p>
 	<small> ============== 5小时前</small>
 </p>
