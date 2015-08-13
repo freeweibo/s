@@ -72,7 +72,13 @@
 </h2>
 <p>每次习有庆典，必给他送口棺材。//@William-Lin324：吴老师，你算一算这次爆炸和反法西斯大阅兵是啥个关系</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3875275282739235" target="freeweibo-mirror">中国当下正面临着1932年德国纳粹上台前的形势，典型征兆之一…</a>
+</h2>
+<p>中国当下正面临着1932年德国纳粹上台前的形势，典型征兆之一：“希姆莱”的冲锋队到处发动恐怖袭击，影子内阁发动香港暴动、议会政变、股灾，而“戈培尔”的部队每天在网络上造谣围攻，包括在我微博评论栏里随地大小便。</p>
+<p>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3875273441544118" target="freeweibo-mirror">SPAM //@萧瑟洋场://@liberum: 两只老虎在…</a>
 </h2>
@@ -102,7 +108,7 @@
 </h2>
 <p>只要城楼上的照片与纪念堂的遗体还在，不左才怪。</p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3875138694591701" target="freeweibo-mirror">蘋果日報『 干不干政　都是專政 - 李平』</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3875088811688896" target="freeweibo-mirror">RT//@爱新觉罗载勋: “向人民开枪，对人民有血债” ——…</a>
 </h2>
 <p>RT//@爱新觉罗载勋: “向人民开枪，对人民有血债” ————这话我甚至不敢连续说三遍，我心虚、腿软............</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3875084122720242" target="freeweibo-mirror">【快报】8月12日下午，中央网信办主任、国家互联网信息办公室…</a>
-</h2>
-<p>【快报】8月12日下午，中央网信办主任、国家互联网信息办公室主任鲁炜在京会见英国外交大臣菲利普·哈蒙德一行。<br><img src="http://ww4.sinaimg.cn/large/7377344agw1ev00czjts7j20m80fidkf.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
