@@ -24,7 +24,7 @@
 </h2>
 <p>SPAM 我擦 //@单身老刘:可怕的国[衰]<br><br>RE: 北京刚才有新疆恐怖分子大长刀砍平民，艹[怒][怒骂] http://t.cn/RL3urK5 .</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3875378084609703" target="freeweibo-mirror">//@夜郎国太傅: [嘘][嘘][嘘][嘘][嘘][嘘][嘘…</a>
 </h2>
@@ -138,7 +138,7 @@
 </h2>
 <p>SPAM 唉//@罗昌平: //@李蝴蝶:<br><br>RE: 转自天津同学微信：同学朋友们纷纷收到宣传部指示，全部编辑记者播音员主持人一律静音，不许发微博不许发朋友圈，不许参与传播。处理方式和我猜的一样，只是这次反应更加慢了些。记者证，我不要了。<br><img src="http://ww1.sinaimg.cn/large/49fb90c5jw1ev0snpd4xvj20zk0k4adf.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p>
 <table>
     <tr>
