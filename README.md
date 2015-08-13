@@ -132,13 +132,13 @@
 </h2>
 <p>今天怎么这么长…………//@胡一钗: 我操今天真是……<br><br>RE: #鞍山爆炸#辽宁鞍山二台子锅炉厂于 21:45 发生爆炸！有在鞍山参与救援的战友，请及时传来现场信息！<br><img src="http://ww1.sinaimg.cn/large/6775674ajw1ev1d5t0278j206w098wef.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3875521651473887" target="freeweibo-mirror">是真的恐怖，逃出来的人也不容易！</a>
 </h2>
 <p>是真的恐怖，逃出来的人也不容易！<br><br>RE: youtube上外国网友拍摄到的天津塘沽大爆炸全过程。。。应该是目前距离最近最清晰的视频了，太可怕！[泪]http://t.cn/RL3ssvt</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p>
 <table>
     <tr>
