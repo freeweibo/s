@@ -26,6 +26,18 @@
 <p>
 	<small> ============== 1小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3875374783722507" target="freeweibo-mirror">SPAM 今天[蜡烛][蜡烛][蜡烛][蜡烛][蜡烛][蜡烛…</a>
+</h2>
+<p>SPAM 今天[蜡烛][蜡烛][蜡烛][蜡烛][蜡烛][蜡烛]<br><br>RE: #三里屯持刀砍人# 【突发[话筒]北京三里屯一男子持刀砍人被捕 一女子受伤】据多名网友爆料，今天中午，一名男子持刀在北京三里屯当街砍伤一名女子，随后该男子被警方控制，女子伤情不明。（央广网）<br><img src="http://ww2.sinaimg.cn/large/6e916bdegw1ev0xfnpa2tj20c80gbt9v.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3875371466399516" target="freeweibo-mirror">SPAM 哎！</a>
+</h2>
+<p>SPAM 哎！<br><br>RE: 转自天津同学微信：同学朋友们纷纷收到宣传部指示，全部编辑记者播音员主持人一律静音，不许发微博不许发朋友圈，不许参与传播。处理方式和我猜的一样，只是这次反应更加慢了些。记者证，我不要了。<br><img src="http://ww1.sinaimg.cn/large/49fb90c5jw1ev0snpd4xvj20zk0k4adf.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3875364533155378" target="freeweibo-mirror">SPAM //@八大山债人: //@蓝鲸财经记者工作平台:[…</a>
 </h2>
 <p>SPAM //@八大山债人: //@蓝鲸财经记者工作平台:[闭嘴]<br><br>RE: 转自天津同学微信：同学朋友们纷纷收到宣传部指示，全部编辑记者播音员主持人一律静音，不许发微博不许发朋友圈，不许参与传播。处理方式和我猜的一样，只是这次反应更加慢了些。记者证，我不要了。<br><img src="http://ww1.sinaimg.cn/large/49fb90c5jw1ev0snpd4xvj20zk0k4adf.jpg"></p>
@@ -36,11 +48,17 @@
 </h2>
 <p>SPAM 公司对面[泪] //@越来越淘气:@今天你淘气了嘛 @Panini不是paleni @我就淘气 真是不知道 明天和死亡哪个先来了@宇宙超级无敌肉丸子miyaaaaaa<br><br>RE: #北京突发#【三里屯[话筒]】@三千世界的一个俗人：三里屯优衣库门口有一男的拿砍刀追人砍！！歹徒已被警察制服了！！（现场图via@Yuki酱正在努力成为优质蟲師中 @答案永恒-问题依旧）<br><img src="http://ww1.sinaimg.cn/large/63136032jw1ev0vg333zhj20c80gb0u1.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3875357507916673" target="freeweibo-mirror">SPAM @Vista看天下 上期一篇文章写得对啊：三里屯派…</a>
 </h2>
 <p>SPAM @Vista看天下 上期一篇文章写得对啊：三里屯派出所真是宇宙最忙碌的派出所了。祈求都少些戾气，平安为上…… //@热话题:Repost<br><br>RE: #北京突发#【三里屯[话筒]】@三千世界的一个俗人：三里屯优衣库门口有一男的拿砍刀追人砍！！歹徒已被警察制服了！！（现场图via@Yuki酱正在努力成为优质蟲師中 @答案永恒-问题依旧）<br><img src="http://ww1.sinaimg.cn/large/63136032jw1ev0vg333zhj20c80gb0u1.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3875357415437379" target="freeweibo-mirror">//@五月的下午茶: //@不吃米饭先生:还好多年前就撤离天…</a>
+</h2>
+<p>//@五月的下午茶: //@不吃米饭先生:还好多年前就撤离天津媒体了 //@夏榆的海景房://@阿丁: //@李蝴蝶: 转发微博<br><br>RE: 转自天津同学微信：同学朋友们纷纷收到宣传部指示，全部编辑记者播音员主持人一律静音，不许发微博不许发朋友圈，不许参与传播。处理方式和我猜的一样，只是这次反应更加慢了些。记者证，我不要了。<br><img src="http://ww1.sinaimg.cn/large/49fb90c5jw1ev0snpd4xvj20zk0k4adf.jpg"></p>
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
@@ -56,6 +74,12 @@
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3875354801910943" target="freeweibo-mirror">SPAM 唉//@罗昌平: //@李蝴蝶:</a>
+</h2>
+<p>SPAM 唉//@罗昌平: //@李蝴蝶:<br><br>RE: 转自天津同学微信：同学朋友们纷纷收到宣传部指示，全部编辑记者播音员主持人一律静音，不许发微博不许发朋友圈，不许参与传播。处理方式和我猜的一样，只是这次反应更加慢了些。记者证，我不要了。<br><img src="http://ww1.sinaimg.cn/large/49fb90c5jw1ev0snpd4xvj20zk0k4adf.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3875354710048935" target="freeweibo-mirror">#北京突发#【三里屯[话筒]】@三千世界的一个俗人：三里屯优…</a>
 </h2>
 <p>#北京突发#【三里屯[话筒]】@三千世界的一个俗人：三里屯优衣库门口有一男的拿砍刀追人砍！！歹徒已被警察制服了！！（现场图via@Yuki酱正在努力成为优质蟲師中 @答案永恒-问题依旧）<br><img src="http://ww1.sinaimg.cn/large/63136032jw1ev0vg333zhj20c80gb0u1.jpg"></p>
@@ -68,9 +92,21 @@
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3875353468430959" target="freeweibo-mirror">SPAM [怒骂]</a>
+</h2>
+<p>SPAM [怒骂]<br><br>RE: 转自天津同学微信：同学朋友们纷纷收到宣传部指示，全部编辑记者播音员主持人一律静音，不许发微博不许发朋友圈，不许参与传播。处理方式和我猜的一样，只是这次反应更加慢了些。记者证，我不要了。<br><img src="http://ww1.sinaimg.cn/large/49fb90c5jw1ev0snpd4xvj20zk0k4adf.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3875352675751781" target="freeweibo-mirror">SPAM  //@罗昌平: //@李蝴蝶:</a>
 </h2>
 <p>SPAM  //@罗昌平: //@李蝴蝶:<br><br>RE: 转自天津同学微信：同学朋友们纷纷收到宣传部指示，全部编辑记者播音员主持人一律静音，不许发微博不许发朋友圈，不许参与传播。处理方式和我猜的一样，只是这次反应更加慢了些。记者证，我不要了。<br><img src="http://ww1.sinaimg.cn/large/49fb90c5jw1ev0snpd4xvj20zk0k4adf.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3875348754067703" target="freeweibo-mirror">SPAM 没事别添乱。//@不许喷嚏: 今天天津日报每日新报…</a>
+</h2>
+<p>SPAM 没事别添乱。//@不许喷嚏: 今天天津日报每日新报城市快报等几大报纸都已经发稿了，天津电视台也在直播，其他人没事别添乱了 //@noonnooon:@不许喷嚏 求出来辟谣<br><br>RE: 转自天津同学微信：同学朋友们纷纷收到宣传部指示，全部编辑记者播音员主持人一律静音，不许发微博不许发朋友圈，不许参与传播。处理方式和我猜的一样，只是这次反应更加慢了些。记者证，我不要了。<br><img src="http://ww1.sinaimg.cn/large/49fb90c5jw1ev0snpd4xvj20zk0k4adf.jpg"></p>
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
@@ -78,7 +114,7 @@
 </h2>
 <p>SPAM </p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3875335051211321" target="freeweibo-mirror">回复@老宫vv5:五毛党洗地真及时。记者现场播报，镜头里是他…</a>
 </h2>
@@ -103,42 +139,6 @@
 <p>好吧，心肮脏，哎...//@Adrian_Kliest: 我就奇了怪了，不让拍怎么了？自己还没闹清楚呢鬼知道你一个歪果仁来干嘛的？这时候还要发这种东西出来挑拨矛盾，心真他妈的脏[微笑]//@广西师大出版社理想国:这是全球直播.....<br><br>RE: 我刚才特意上CNN去看了那段被中断的连线采访视频，记者只是在医院门外报道和拍摄周围的情况，而且都离得比较远，也并没有采访家属。记者说许多路都被管制为了方便运送伤者，家属只能在外面等消息，场面非常令人心碎。后来就莫名其妙冲上来很多工作人员很粗鲁地叫他不要拍不要拍还对他进行攻击。<br><img src="http://ww3.sinaimg.cn/large/649b0881jw1ev0qqxsorgj20hs0vkwhr.jpg"></p>
 <p>
 	<small> ============== 4小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3875330542834030" target="freeweibo-mirror">转自天津同学微信：同学朋友们纷纷收到宣传部指示，全部编辑记者…</a>
-</h2>
-<p>转自天津同学微信：同学朋友们纷纷收到宣传部指示，全部编辑记者播音员主持人一律静音，不许发微博不许发朋友圈，不许参与传播。处理方式和我猜的一样，只是这次反应更加慢了些。记者证，我不要了。<br><img src="http://ww1.sinaimg.cn/large/49fb90c5jw1ev0snpd4xvj20zk0k4adf.jpg"></p>
-<p>
-	<small> ============== 4小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3875330521231327" target="freeweibo-mirror">[弱][弱][弱]//@原谅别人才能放过自己:[弱][弱][…</a>
-</h2>
-<p>[弱][弱][弱]//@原谅别人才能放过自己:[弱][弱][弱][弱][弱]//@深圳王庆斌: [弱]//@朱向红依法维权: //@真话哥: [弱]//@-孔智勇: [弱]<br><br>RE: 塘沽发生如此惨烈的爆炸，天津电视台竟能熟视无睹。再次诠释了“宇宙真理”：有党性，没人性！</p>
-<p>
-	<small> ============== 4小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3875330160385132" target="freeweibo-mirror">[弱] //@冯立果观察:[弱]//@清华秦鹏: //@纪昀…</a>
-</h2>
-<p>[弱] //@冯立果观察:[弱]//@清华秦鹏: //@纪昀:[弱]//@杨子评:[弱]//@-孔智勇:[弱]<br><br>RE: 塘沽发生如此惨烈的爆炸，天津电视台竟能熟视无睹。再次诠释了“宇宙真理”：有党性，没人性！</p>
-<p>
-	<small> ============== 4小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3875329762515008" target="freeweibo-mirror">//@木易搅雪:老江曾说过:一切新闻媒体必须为党服务。</a>
-</h2>
-<p>//@木易搅雪:老江曾说过:一切新闻媒体必须为党服务。<br><br>RE: 昨晚国外媒体都炸锅了…天津台还在这里“没有共产党就没有新中国”；今天、现在，韩剧：糟糠之妻俱乐部。次懊[怒]！再次诠释了流氓的“宇宙真理”：有党性，没人性！[弱][弱][弱]<br><img src="http://ww1.sinaimg.cn/large/b1143085jw1ev0r8v7yrvj20k00k0q5e.jpg"></p>
-<p>
-	<small> ============== 4小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3875328184890611" target="freeweibo-mirror">[蜡烛]//@宅男小夫: //@曹先生2012w://@青翠…</a>
-</h2>
-<p>[蜡烛]//@宅男小夫: //@曹先生2012w://@青翠3绿竹: //@裟僧情怀: 转发微博<br><br>RE: 不让说的秘密。<br><img src="http://ww1.sinaimg.cn/large/542a99b2jw1ev0rs6o8c5j20hs0dc75v.jpg"></p>
-<p>
-	<small> ============== 4小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3875327509587932" target="freeweibo-mirror">这是铁皮纸//@范桶: 为什么，纸能包住火？</a>
-</h2>
-<p>这是铁皮纸//@范桶: 为什么，纸能包住火？<br><br>RE: #天津塘沽大爆炸# CNN直播爆炸事故中 一群不明身份人员直接干倒记者[最右] @范桶<br><img src="http://ww4.sinaimg.cn/large/5094b86djw1ev0s18z7nqg20a105jnph.gif"></p>
-<p>
-	<small> ============== 5小时前</small>
 </p>
 <table>
     <tr>
