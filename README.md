@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3875430002567858" target="freeweibo-mirror">跟新宇差不多 //@秋日往事: 习阿大既没有希特勒的口才，也…</a>
+</h2>
+<p>跟新宇差不多 //@秋日往事: 习阿大既没有希特勒的口才，也没有丘吉尔的意志，你让他出来说话，说什么啊？</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3875406555431029" target="freeweibo-mirror">SPAM 看到这个的时候，广州正下着诡异的大雨，阴风怒号雷电…</a>
 </h2>
 <p>SPAM 看到这个的时候，广州正下着诡异的大雨，阴风怒号雷电交加，这是怎么了？[泪]//@壹立方: //@思想聚焦:[衰][衰][衰]<br><br>RE: 今天上午，东莞常平地陷扩大 http://t.cn/RL3TOlG .</p>
@@ -30,7 +36,7 @@
 </h2>
 <p>SPAM //@沈璎璎: 没什么想说的。就希望殉难的消防员们，都不是家中独子。//@阿花的伊萨卡岛:今天是我明天就是你，苏维埃轮盘赌。 //@洛之秋:在你发的所有长微博中，这一篇读起来最魔幻，最虚构。<br><br>RE: 都是炮灰，都是血泪，都是废话<br><img src="http://ww4.sinaimg.cn/large/74fa712bgw1ev0zf0zqj8j20c81d9n5o.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3875401774285651" target="freeweibo-mirror">SPAM  :天哪。。。</a>
 </h2>
@@ -96,7 +102,7 @@
 </h2>
 <p>SPAM [衰]（图片提供@757以及人之7 ）<br><img src="http://ww1.sinaimg.cn/large/95823738jw1ev0z7ynp3qj20k00dctar.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3875386733756747" target="freeweibo-mirror">@今何在 在这种时候真是没让人失望的一如既往的傻逼啊……//…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3875381624565688" target="freeweibo-mirror">灾难面前，有些人关心的不是救援，不是防护，更不是遇难者家属的…</a>
 </h2>
 <p>灾难面前，有些人关心的不是救援，不是防护，更不是遇难者家属的情绪，而是...编造谣言，侮辱自己的同胞。他们给中国带来的只有一样东西:傻逼公知。//@王冉:灾难面前，有些人最关心的不是救援，不是防护，不是调查，不是追责，而是...阻止真相传播！他们给中国带来的只有一样东西：耻辱。<br><br>RE: 【CNN天津爆炸现场采访遭围攻 大喊“不能拍”】美国CNN记者赶到天津医院采访，称送往医院的人数不断上升，群众情绪激动。直播仅持续一分半左右，多名天津男子闯入镜头拉扯记者，大喊“不能拍”、“不能报”、“Stop”等，拍摄被迫中断，主播还在末尾调侃“这不是第一次被打断了。”http://t.cn/RL3HOd6<br><img src="http://ww2.sinaimg.cn/large/75b52ed2jw1ev0u9ju4frj20c806yjs4.jpg"></p>
-<p>
-	<small> ============== 4小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3875380350231426" target="freeweibo-mirror">SPAM #益起来#我刚刚在“关怀救火伤亡消防员”中成功捐款…</a>
-</h2>
-<p>SPAM #益起来#我刚刚在“关怀救火伤亡消防员”中成功捐款若干元，希望小小的力量汇成大爱，托起他们的希望！小力量大奇迹，一起来支持吧！http://t.cn/RL3TAOa<br><img src="http://ww2.sinaimg.cn/large/70499295gw1ev0taj7uh9j20fa0a6dgo.jpg"></p>
 <p>
 	<small> ============== 4小时前</small>
 </p>
