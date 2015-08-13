@@ -48,7 +48,7 @@
 </h2>
 <p>@今何在 在这种时候真是没让人失望的一如既往的傻逼啊……//@百里芜虚: 最右还真是一如既往的傻逼。//@古火拉兹:请大家参观傻逼→→//@今何在: 大爆炸发生时 所有第一反应是掏出手机拍照的统统以泄露国家机密罪处理 叫你们直播<br><br>RE: 【CNN天津爆炸现场采访遭围攻 大喊“不能拍”】美国CNN记者赶到天津医院采访，称送往医院的人数不断上升，群众情绪激动。直播仅持续一分半左右，多名天津男子闯入镜头拉扯记者，大喊“不能拍”、“不能报”、“Stop”等，拍摄被迫中断，主播还在末尾调侃“这不是第一次被打断了。”http://t.cn/RL3HOd6<br><img src="http://ww2.sinaimg.cn/large/75b52ed2jw1ev0u9ju4frj20c806yjs4.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3875385140078109" target="freeweibo-mirror">SPAM 我擦 //@单身老刘:可怕的国[衰]</a>
 </h2>
@@ -110,6 +110,18 @@
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3875376843315163" target="freeweibo-mirror">【北京三里屯发生砍人事件 一名女子受伤】据北京青年报，今天中…</a>
+</h2>
+<p>【北京三里屯发生砍人事件 一名女子受伤】据北京青年报，今天中午12点左右，在三里屯，一名20多岁的男子手持长刀追砍一名女子，在该女子跑到优衣库门口时被砍倒，目击者称被砍伤的是一名外籍女子。砍人者随后被警方控制，受伤女子被送往医院救治。目前事发地点附近的店铺已恢复正常营业。<br><img src="http://ww4.sinaimg.cn/large/63207a53jw1ev0xpg3dy8j20c8096my4.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3875376373937503" target="freeweibo-mirror">【北京三里屯优衣库门口一男子持刀砍倒一女子，“双方为小贩”】…</a>
+</h2>
+<p>【北京三里屯优衣库门口一男子持刀砍倒一女子，“双方为小贩”】今天中午，三里屯优衣库门口一男子持刀将一女子砍倒。据目击者介绍，女的已经死亡，被警方抬走。据了解双方为小贩，疑因抢占地盘起冲突。目前现场正在清洗血迹。@京华时报 http://t.cn/RL3m7wh<br><img src="http://ww1.sinaimg.cn/large/005vnhZYgw1ev0xx4a7u5j30c80gbab0.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3875374783722507" target="freeweibo-mirror">SPAM 今天[蜡烛][蜡烛][蜡烛][蜡烛][蜡烛][蜡烛…</a>
 </h2>
 <p>SPAM 今天[蜡烛][蜡烛][蜡烛][蜡烛][蜡烛][蜡烛]<br><br>RE: #三里屯持刀砍人# 【突发[话筒]北京三里屯一男子持刀砍人被捕 一女子受伤】据多名网友爆料，今天中午，一名男子持刀在北京三里屯当街砍伤一名女子，随后该男子被警方控制，女子伤情不明。（央广网）<br><img src="http://ww2.sinaimg.cn/large/6e916bdegw1ev0xfnpa2tj20c80gbt9v.jpg"></p>
@@ -125,18 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3875373542855931" target="freeweibo-mirror">SPAM 男的拿的一把日本军刀？//@i-want-it-t…</a>
 </h2>
 <p>SPAM 男的拿的一把日本军刀？//@i-want-it-that-way: @觉所觉--美容美体微整形工作室 //@扭发条猴子:卧槽[衰] //@胡强Jankhu://@深圳老崔: 一个男的砍死一个女的然后被击毙了。。。<br><br>RE: 三里屯优衣库，刚刚。<br><img src="http://ww3.sinaimg.cn/large/488d2478jw1ev0x1r7e0ij209l0c4dg7.jpg"></p>
-<p>
-	<small> ============== 3小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3875372795936613" target="freeweibo-mirror">SPAM 为什么又是这个优衣库</a>
-</h2>
-<p>SPAM 为什么又是这个优衣库</p>
-<p>
-	<small> ============== 3小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3875372430656856" target="freeweibo-mirror">//@瓦全张明家://@孜孜一求:都互联网时代了？！ //@…</a>
-</h2>
-<p>//@瓦全张明家://@孜孜一求:都互联网时代了？！ //@戴兆均:出了事就这样。太腐败了，这个土匪邪教政权太可怕了。 //@策划狂张三疯子://@凤举使者:不可思议<br><br>RE: 转自天津同学微信：同学朋友们纷纷收到宣传部指示，全部编辑记者播音员主持人一律静音，不许发微博不许发朋友圈，不许参与传播。处理方式和我猜的一样，只是这次反应更加慢了些。记者证，我不要了。<br><img src="http://ww1.sinaimg.cn/large/49fb90c5jw1ev0snpd4xvj20zk0k4adf.jpg"></p>
 <p>
 	<small> ============== 3小时前</small>
 </p>
