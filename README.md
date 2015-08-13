@@ -84,7 +84,7 @@
 </h2>
 <p>SPAM //@韩酉酉://@男神一大队的小槿: 虽然现在救人是第一位的，有一些事也必须要说要问//@影评老大爷暗夜骑士: //@顾小白:死循环。 //@亵渎电影:每次都是点完蜡烛，然后，就没有然后了。下次还有更多的蜡烛，终究还是一文不值。<br><br>RE: 都是炮灰，都是血泪，都是废话<br><img src="http://ww4.sinaimg.cn/large/74fa712bgw1ev0zf0zqj8j20c81d9n5o.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3875412809357157" target="freeweibo-mirror">SPAM //@奏厨:牛逼！//@桃园爱CurePeach:…</a>
 </h2>
@@ -108,7 +108,7 @@
 </h2>
 <p>SPAM 看到这个的时候，广州正下着诡异的大雨，阴风怒号雷电交加，这是怎么了？[泪]//@壹立方: //@思想聚焦:[衰][衰][衰]<br><br>RE: 今天上午，东莞常平地陷扩大 http://t.cn/RL3TOlG .</p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3875403045556407" target="freeweibo-mirror">SPAM //@沈璎璎: 没什么想说的。就希望殉难的消防员们…</a>
 </h2>
