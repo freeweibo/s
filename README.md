@@ -78,7 +78,7 @@
 </h2>
 <p>这是铁皮纸//@范桶: 为什么，纸能包住火？<br><br>RE: #天津塘沽大爆炸# CNN直播爆炸事故中 一群不明身份人员直接干倒记者[最右] @范桶<br><img src="http://ww4.sinaimg.cn/large/5094b86djw1ev0s18z7nqg20a105jnph.gif"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3875326419434407" target="freeweibo-mirror">这是全球直播.....</a>
 </h2>
@@ -101,6 +101,12 @@
 	<a href="https://freeweibo.com/weibo/3875325211289304" target="freeweibo-mirror">扯淡，那是什么区？旁边码头、仓库…我以前公司曾经有批煤炭，天…</a>
 </h2>
 <p>扯淡，那是什么区？旁边码头、仓库…我以前公司曾经有批煤炭，天热码头天天浇水，还着火呢…你去郑州的化工仓库采访试试…//@盛大林:爆炸发生前，若是有记者去采访那里的安全隐患，是不太可能发表的。//@我爱十八盘: 掩耳盗铃<br><br>RE: #天津无新闻#媒体圈有一个流行的说法：“天津无新闻”。此所谓“新闻”，指的是负面报道。媒体上几乎见不到天津的丑闻。为何？因为天津“捂盖”有术！今天，天津终于有新闻了，而且是真正的“爆炸”性新闻——怎么捂都捂不住！其实，俺倒真是希望这样的爆炸能被“捂”住——这样，就不会死那么多人了！<br><img src="http://ww3.sinaimg.cn/large/53e839d2jw1ev0qditct2j20c80gbmy4.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3875324938620241" target="freeweibo-mirror">SPAM 中国梦就是这么做出来的~</a>
+</h2>
+<p>SPAM 中国梦就是这么做出来的~<br><br>RE: 不新鲜了 http://t.cn/RL3WB3L<br><img src="http://ww2.sinaimg.cn/large/474243c8jw1ev0rszycz6j20k00zkdh6.jpg"></p>
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3875320668752614" target="freeweibo-mirror">比想象的严重多了。//@谢文: //@米家那个山: [蜡烛]…</a>
 </h2>
 <p>比想象的严重多了。//@谢文: //@米家那个山: [蜡烛][蜡烛][蜡烛]<br><br>RE: 天津大爆炸最近的小区，海港城，距离500米，正常的话有5000—10000人。两公里范围内玻璃全碎。几个小区一共50000—100000人。受伤人数？还有很多其他损失，比如周围的的汽车城，一个数字科技中心，会展中心，轻轨……等等。 港区作业组是三班倒廿四小时全天候的，这么大港区至少上百人，能长翅膀灰了吗<br><img src="http://ww4.sinaimg.cn/large/3edaacb2jw1ev0o47u348j20hs0dcq5f.jpg"></p>
-<p>
-	<small> ============== 3小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3875318458431669" target="freeweibo-mirror">昨晚国外媒体都炸锅了…天津台还在这里“没有共产党就没有新中国…</a>
-</h2>
-<p>昨晚国外媒体都炸锅了…天津台还在这里“没有共产党就没有新中国”；今天、现在，韩剧：糟糠之妻俱乐部。次懊[怒]！再次诠释了流氓的“宇宙真理”：有党性，没人性！[弱][弱][弱]<br><img src="http://ww1.sinaimg.cn/large/b1143085jw1ev0r8v7yrvj20k00k0q5e.jpg"></p>
 <p>
 	<small> ============== 3小时前</small>
 </p>
