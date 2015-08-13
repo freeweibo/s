@@ -86,6 +86,12 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3875274229469627" target="freeweibo-mirror">废话连篇，十分讨厌！我们关心的不是谁谁谁的批示，而是爆炸的详…</a>
+</h2>
+<p>废话连篇，十分讨厌！我们关心的不是谁谁谁的批示，而是爆炸的详情！请不要再长篇累牍地报道“哪个领导第一时间赶到现场”、“哪个领导高度重视”、“哪个领导发出重要指示”。<br><img src="http://ww4.sinaimg.cn/large/006bGP2zjw1ev0m7ip43vj318g0oyjzl.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3875273441544118" target="freeweibo-mirror">SPAM //@萧瑟洋场://@liberum: 两只老虎在…</a>
 </h2>
 <p>SPAM //@萧瑟洋场://@liberum: 两只老虎在打架，赢者吃猪，若鼓掌就真是头蠢猪了。 //@追唐-如东李忠://@没良心-鱼: [围观]//@我看青山多妩媚W2:干不干政，都是专政。高不高風，何曾有節？//@遇见罗克://@不变糕哥://@冰封侠回归://@封神祭十叔:等待龙虎斗的两败俱伤。<br><br>RE: 蘋果日報『 干不干政　都是專政 - 李平』<br><img src="http://ww3.sinaimg.cn/large/0064PCFtjw1ev06mb0nefj30k00zk11e.jpg"></p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3875108777236374" target="freeweibo-mirror">1、水滴石穿，不是因为力量大，而是因为功夫深。 2、势不可使…</a>
 </h2>
 <p>1、水滴石穿，不是因为力量大，而是因为功夫深。 2、势不可使尽，福不可享尽，便宜不可占尽，聪明不可用尽。 3、平生不做皱眉事，世上应无切齿人。 4多门之室生风，多言之人生祸。 5、人生至恶是善谈人过，人生至愚是恶对己非。 6、恶，恐人知，便是真恶；善，欲人知不是真善#赞美张大大##柯南徐浩#<br><img src="http://ww3.sinaimg.cn/large/98c1610bjw1ev037ghd85j20df0hs777.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3875090334556297" target="freeweibo-mirror">右边的军装也是国民党？//@爱新觉罗载勋: “向人民开枪，对…</a>
-</h2>
-<p>右边的军装也是国民党？//@爱新觉罗载勋: “向人民开枪，对人民有血债” ————这话我甚至不敢连续说三遍，我心虚、腿软............</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
