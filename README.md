@@ -84,19 +84,19 @@
 </h2>
 <p>这是全球直播.....<br><br>RE: 我刚才特意上CNN去看了那段被中断的连线采访视频，记者只是在医院门外报道和拍摄周围的情况，而且都离得比较远，也并没有采访家属。记者说许多路都被管制为了方便运送伤者，家属只能在外面等消息，场面非常令人心碎。后来就莫名其妙冲上来很多工作人员很粗鲁地叫他不要拍不要拍还对他进行攻击。<br><img src="http://ww3.sinaimg.cn/large/649b0881jw1ev0qqxsorgj20hs0vkwhr.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3875325752216805" target="freeweibo-mirror">//@罗斯柴尔德伯爵: //@老关回来了: //@-孔智勇:…</a>
 </h2>
 <p>//@罗斯柴尔德伯爵: //@老关回来了: //@-孔智勇: [弱]<br><br>RE: 塘沽发生如此惨烈的爆炸，天津电视台竟能熟视无睹。再次诠释了“宇宙真理”：有党性，没人性！</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3875325345744188" target="freeweibo-mirror">#天津塘沽大爆炸# CNN直播爆炸事故中 一群不明身份人员直…</a>
 </h2>
 <p>#天津塘沽大爆炸# CNN直播爆炸事故中 一群不明身份人员直接干倒记者[最右] @范桶<br><img src="http://ww4.sinaimg.cn/large/5094b86djw1ev0s18z7nqg20a105jnph.gif"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3875325211289304" target="freeweibo-mirror">扯淡，那是什么区？旁边码头、仓库…我以前公司曾经有批煤炭，天…</a>
 </h2>
