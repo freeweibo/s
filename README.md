@@ -26,6 +26,24 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3875382799601674" target="freeweibo-mirror">#男子优衣库门口砍人#【目击者：事发后男子拿武士刀砍优衣库人…</a>
+</h2>
+<p>#男子优衣库门口砍人#【目击者：事发后男子拿武士刀砍优衣库人体模型】据目击者称，20多岁白衣男子手持一米长武士刀，将女子腹部刺穿。受伤女子旁边跪着一外国人，哭泣着捂着女子伤口。男子在事发后不断拿刀砍优衣库人体模型。随后，男子抱头倒地，被多名武警制服。by京华时报<br><br>RE: #突发快讯#【北京三里屯一男子持刀砍人】 今天中午，一持刀男子在北京三里屯当街砍伤一名女子，随后该男子被警方控制，女子伤情不明。图为行凶男子，已被警方控制。by 新浪新闻 http://t.cn/RL3uvyN 大图慎点！<br><img src="http://ww3.sinaimg.cn/large/72b66d3fjw1ev0y2fybu6j20c80g7jsp.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3875381624565688" target="freeweibo-mirror">灾难面前，有些人关心的不是救援，不是防护，更不是遇难者家属的…</a>
+</h2>
+<p>灾难面前，有些人关心的不是救援，不是防护，更不是遇难者家属的情绪，而是...编造谣言，侮辱自己的同胞。他们给中国带来的只有一样东西:傻逼公知。//@王冉:灾难面前，有些人最关心的不是救援，不是防护，不是调查，不是追责，而是...阻止真相传播！他们给中国带来的只有一样东西：耻辱。<br><br>RE: 【CNN天津爆炸现场采访遭围攻 大喊“不能拍”】美国CNN记者赶到天津医院采访，称送往医院的人数不断上升，群众情绪激动。直播仅持续一分半左右，多名天津男子闯入镜头拉扯记者，大喊“不能拍”、“不能报”、“Stop”等，拍摄被迫中断，主播还在末尾调侃“这不是第一次被打断了。”http://t.cn/RL3HOd6<br><img src="http://ww2.sinaimg.cn/large/75b52ed2jw1ev0u9ju4frj20c806yjs4.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3875379800071532" target="freeweibo-mirror"></a>
+</h2>
+<p></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3875378084609703" target="freeweibo-mirror">//@夜郎国太傅: [嘘][嘘][嘘][嘘][嘘][嘘][嘘…</a>
 </h2>
 <p>//@夜郎国太傅: [嘘][嘘][嘘][嘘][嘘][嘘][嘘][嘘][嘘]//@半天鸟: 没人性的官员！[怒][怒]<br><br>RE: 转自天津同学微信：同学朋友们纷纷收到宣传部指示，全部编辑记者播音员主持人一律静音，不许发微博不许发朋友圈，不许参与传播。处理方式和我猜的一样，只是这次反应更加慢了些。记者证，我不要了。<br><img src="http://ww1.sinaimg.cn/large/49fb90c5jw1ev0snpd4xvj20zk0k4adf.jpg"></p>
@@ -60,7 +78,7 @@
 </h2>
 <p>SPAM 男的拿的一把日本军刀？//@i-want-it-that-way: @觉所觉--美容美体微整形工作室 //@扭发条猴子:卧槽[衰] //@胡强Jankhu://@深圳老崔: 一个男的砍死一个女的然后被击毙了。。。<br><br>RE: 三里屯优衣库，刚刚。<br><img src="http://ww3.sinaimg.cn/large/488d2478jw1ev0x1r7e0ij209l0c4dg7.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3875372795936613" target="freeweibo-mirror">SPAM 为什么又是这个优衣库</a>
 </h2>
@@ -86,9 +104,27 @@
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3875371570936775" target="freeweibo-mirror">SPAM 刚看了一下，这个优衣库对面的楼，就是一把刀的形状啊…</a>
+</h2>
+<p>SPAM 刚看了一下，这个优衣库对面的楼，就是一把刀的形状啊//@温柔的小奴隶: 最近三里屯优衣库倒了霉了[吃惊]//@宁雪天:……//@老太太抹口红: 我操，刀客<br><br>RE: 三里屯优衣库，刚刚。<br><img src="http://ww3.sinaimg.cn/large/488d2478jw1ev0x1r7e0ij209l0c4dg7.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3875371466399516" target="freeweibo-mirror">SPAM 哎！</a>
 </h2>
 <p>SPAM 哎！<br><br>RE: 转自天津同学微信：同学朋友们纷纷收到宣传部指示，全部编辑记者播音员主持人一律静音，不许发微博不许发朋友圈，不许参与传播。处理方式和我猜的一样，只是这次反应更加慢了些。记者证，我不要了。<br><img src="http://ww1.sinaimg.cn/large/49fb90c5jw1ev0snpd4xvj20zk0k4adf.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3875371121934442" target="freeweibo-mirror">灾难面前，有些人最关心的不是救援，不是防护，不是调查，不是追…</a>
+</h2>
+<p>灾难面前，有些人最关心的不是救援，不是防护，不是调查，不是追责，而是...阻止真相传播！他们给中国带来的只有一样东西：耻辱。<br><br>RE: 【CNN天津爆炸现场采访遭围攻 大喊“不能拍”】美国CNN记者赶到天津医院采访，称送往医院的人数不断上升，群众情绪激动。直播仅持续一分半左右，多名天津男子闯入镜头拉扯记者，大喊“不能拍”、“不能报”、“Stop”等，拍摄被迫中断，主播还在末尾调侃“这不是第一次被打断了。”http://t.cn/RL3HOd6<br><img src="http://ww2.sinaimg.cn/large/75b52ed2jw1ev0u9ju4frj20c806yjs4.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3875370568907015" target="freeweibo-mirror">SPAM ……//@老太太抹口红: 我操，刀客</a>
+</h2>
+<p>SPAM ……//@老太太抹口红: 我操，刀客<br><br>RE: 三里屯优衣库，刚刚。<br><img src="http://ww3.sinaimg.cn/large/488d2478jw1ev0x1r7e0ij209l0c4dg7.jpg"></p>
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
@@ -103,42 +139,6 @@
 <p>【三里屯一名女子被砍伤】今天中午12点左右，在三里屯，一名20多岁的男子手持长刀追砍一名女子，在该女子跑到优衣库门口时被砍倒，目击者称被砍伤的是一名外籍女子。砍人者随后被警方控制，受伤女子被送往医院救治。目前事发地点附近的店铺已恢复正常营业。（北青报记者 李铁柱）<br><img src="http://ww1.sinaimg.cn/large/684ebae3jw1ev0x4anhhtj20zk0qo78q.jpg"></p>
 <p>
 	<small> ============== 3小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3875368622874582" target="freeweibo-mirror">三里屯优衣库，刚刚。</a>
-</h2>
-<p>三里屯优衣库，刚刚。<br><img src="http://ww3.sinaimg.cn/large/488d2478jw1ev0x1r7e0ij209l0c4dg7.jpg"></p>
-<p>
-	<small> ============== 3小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3875364533155378" target="freeweibo-mirror">SPAM //@八大山债人: //@蓝鲸财经记者工作平台:[…</a>
-</h2>
-<p>SPAM //@八大山债人: //@蓝鲸财经记者工作平台:[闭嘴]<br><br>RE: 转自天津同学微信：同学朋友们纷纷收到宣传部指示，全部编辑记者播音员主持人一律静音，不许发微博不许发朋友圈，不许参与传播。处理方式和我猜的一样，只是这次反应更加慢了些。记者证，我不要了。<br><img src="http://ww1.sinaimg.cn/large/49fb90c5jw1ev0snpd4xvj20zk0k4adf.jpg"></p>
-<p>
-	<small> ============== 3小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3875362092525954" target="freeweibo-mirror">SPAM ？？？？</a>
-</h2>
-<p>SPAM ？？？？<br><br>RE: 三里屯又出事了，又是在优衣库门口#三里屯砍人#<br><img src="http://ww4.sinaimg.cn/large/9b9d5b85jw1ev0vnxltn0j20k00zkq60.jpg"></p>
-<p>
-	<small> ============== 3小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3875358975208104" target="freeweibo-mirror">SPAM 公司对面[泪] //@越来越淘气:@今天你淘气了嘛…</a>
-</h2>
-<p>SPAM 公司对面[泪] //@越来越淘气:@今天你淘气了嘛 @Panini不是paleni @我就淘气 真是不知道 明天和死亡哪个先来了@宇宙超级无敌肉丸子miyaaaaaa<br><br>RE: #北京突发#【三里屯[话筒]】@三千世界的一个俗人：三里屯优衣库门口有一男的拿砍刀追人砍！！歹徒已被警察制服了！！（现场图via@Yuki酱正在努力成为优质蟲師中 @答案永恒-问题依旧）<br><img src="http://ww1.sinaimg.cn/large/63136032jw1ev0vg333zhj20c80gb0u1.jpg"></p>
-<p>
-	<small> ============== 3小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3875357507916673" target="freeweibo-mirror">SPAM @Vista看天下 上期一篇文章写得对啊：三里屯派…</a>
-</h2>
-<p>SPAM @Vista看天下 上期一篇文章写得对啊：三里屯派出所真是宇宙最忙碌的派出所了。祈求都少些戾气，平安为上…… //@热话题:Repost<br><br>RE: #北京突发#【三里屯[话筒]】@三千世界的一个俗人：三里屯优衣库门口有一男的拿砍刀追人砍！！歹徒已被警察制服了！！（现场图via@Yuki酱正在努力成为优质蟲師中 @答案永恒-问题依旧）<br><img src="http://ww1.sinaimg.cn/large/63136032jw1ev0vg333zhj20c80gb0u1.jpg"></p>
-<p>
-	<small> ============== 4小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3875357415437379" target="freeweibo-mirror">//@五月的下午茶: //@不吃米饭先生:还好多年前就撤离天…</a>
-</h2>
-<p>//@五月的下午茶: //@不吃米饭先生:还好多年前就撤离天津媒体了 //@夏榆的海景房://@阿丁: //@李蝴蝶: 转发微博<br><br>RE: 转自天津同学微信：同学朋友们纷纷收到宣传部指示，全部编辑记者播音员主持人一律静音，不许发微博不许发朋友圈，不许参与传播。处理方式和我猜的一样，只是这次反应更加慢了些。记者证，我不要了。<br><img src="http://ww1.sinaimg.cn/large/49fb90c5jw1ev0snpd4xvj20zk0k4adf.jpg"></p>
-<p>
-	<small> ============== 4小时前</small>
 </p>
 <table>
     <tr>
