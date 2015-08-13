@@ -38,11 +38,23 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3875355951925267" target="freeweibo-mirror">纽约时报广场上那些中国形象宣传片的作用一瞬间化为乌有</a>
+</h2>
+<p>纽约时报广场上那些中国形象宣传片的作用一瞬间化为乌有<br><br>RE: 李克强：让全世界倾听中国的声音。结果全世界都听见了：“删了！删了！删了！”</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3875353782799915" target="freeweibo-mirror">追查责任//@招福的花园:没什么好解释的了，就是相关直接责任…</a>
 </h2>
 <p>追查责任//@招福的花园:没什么好解释的了，就是相关直接责任人在报警时没有如实说明现场的真实情况，瞒报误导了消防官兵。@NORMA___</p>
 <p>
 	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3875352675751781" target="freeweibo-mirror">SPAM  //@罗昌平: //@李蝴蝶:</a>
+</h2>
+<p>SPAM  //@罗昌平: //@李蝴蝶:<br><br>RE: 转自天津同学微信：同学朋友们纷纷收到宣传部指示，全部编辑记者播音员主持人一律静音，不许发微博不许发朋友圈，不许参与传播。处理方式和我猜的一样，只是这次反应更加慢了些。记者证，我不要了。<br><img src="http://ww1.sinaimg.cn/large/49fb90c5jw1ev0snpd4xvj20zk0k4adf.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3875343905828966" target="freeweibo-mirror">SPAM </a>
 </h2>
@@ -125,18 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3875325211289304" target="freeweibo-mirror">扯淡，那是什么区？旁边码头、仓库…我以前公司曾经有批煤炭，天…</a>
 </h2>
 <p>扯淡，那是什么区？旁边码头、仓库…我以前公司曾经有批煤炭，天热码头天天浇水，还着火呢…你去郑州的化工仓库采访试试…//@盛大林:爆炸发生前，若是有记者去采访那里的安全隐患，是不太可能发表的。//@我爱十八盘: 掩耳盗铃<br><br>RE: #天津无新闻#媒体圈有一个流行的说法：“天津无新闻”。此所谓“新闻”，指的是负面报道。媒体上几乎见不到天津的丑闻。为何？因为天津“捂盖”有术！今天，天津终于有新闻了，而且是真正的“爆炸”性新闻——怎么捂都捂不住！其实，俺倒真是希望这样的爆炸能被“捂”住——这样，就不会死那么多人了！<br><img src="http://ww3.sinaimg.cn/large/53e839d2jw1ev0qditct2j20c80gbmy4.jpg"></p>
-<p>
-	<small> ============== 4小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3875324938620241" target="freeweibo-mirror">SPAM 中国梦就是这么做出来的~</a>
-</h2>
-<p>SPAM 中国梦就是这么做出来的~<br><br>RE: 不新鲜了 http://t.cn/RL3WB3L<br><img src="http://ww2.sinaimg.cn/large/474243c8jw1ev0rszycz6j20k00zkdh6.jpg"></p>
-<p>
-	<small> ============== 4小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3875323982280765" target="freeweibo-mirror">SPAM 天津组织上的童靴直接把正在直播的CNN连线记者干翻…</a>
-</h2>
-<p>SPAM 天津组织上的童靴直接把正在直播的CNN连线记者干翻，让我想起了2008年某乡书记从地上爬起来的第一反应：千万不要让外界知道我们乡地震了。</p>
 <p>
 	<small> ============== 4小时前</small>
 </p>
