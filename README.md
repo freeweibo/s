@@ -126,13 +126,13 @@
 </h2>
 <p>[衰][衰][衰] //@辽沈晚报:网友爆料：#鞍山爆炸#辽宁鞍山二台子锅炉厂于 21:45 发生爆炸！请鞍山的现场小伙伴，提供更多准确信息！祈祷平安！<br><br>RE: #鞍山爆炸#辽宁鞍山二台子锅炉厂于 21:45 发生爆炸！有在鞍山参与救援的战友，请及时传来现场信息！<br><img src="http://ww1.sinaimg.cn/large/6775674ajw1ev1d5t0278j206w098wef.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3875519478895925" target="freeweibo-mirror">SPAM 愤怒绝对多过感动……这事太可怕了</a>
 </h2>
 <p>SPAM 愤怒绝对多过感动……这事太可怕了<br><br>RE: 质问比感人更催泪<br><img src="http://ww2.sinaimg.cn/large/6394d19djw1ev1awvx1mzj20bu0hsq5j.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3875518757509530" target="freeweibo-mirror">今天这是怎么啦？……[可怜]</a>
 </h2>
