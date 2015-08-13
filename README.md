@@ -26,6 +26,12 @@
 <p>
 	<small> ============== 1小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3875407558679552" target="freeweibo-mirror">//@呆二://@Nefertari: //@松鼠会Shel…</a>
+</h2>
+<p>//@呆二://@Nefertari: //@松鼠会Sheldon: //@詹涓june:炮灰没有议价资格//@Swifters: 转发微博<br><br>RE: 都是炮灰，都是血泪，都是废话<br><img src="http://ww4.sinaimg.cn/large/74fa712bgw1ev0zf0zqj8j20c81d9n5o.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3875406555431029" target="freeweibo-mirror">SPAM 看到这个的时候，广州正下着诡异的大雨，阴风怒号雷电…</a>
 </h2>
 <p>SPAM 看到这个的时候，广州正下着诡异的大雨，阴风怒号雷电交加，这是怎么了？[泪]//@壹立方: //@思想聚焦:[衰][衰][衰]<br><br>RE: 今天上午，东莞常平地陷扩大 http://t.cn/RL3TOlG .</p>
@@ -47,6 +53,12 @@
 	<a href="https://freeweibo.com/weibo/3875399895324369" target="freeweibo-mirror">SPAM  //@开水族馆的生物男:消防收钱走形式这事，做过…</a>
 </h2>
 <p>SPAM  //@开水族馆的生物男:消防收钱走形式这事，做过企业都都一清二楚。发达地区好些，越穷的地方越黑。//@洛之秋:在你发的所有长微博中，这一篇读起来最魔幻，最虚构。<br><br>RE: 都是炮灰，都是血泪，都是废话<br><img src="http://ww4.sinaimg.cn/large/74fa712bgw1ev0zf0zqj8j20c81d9n5o.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3875398419327582" target="freeweibo-mirror">SPAM 为什么每次出事儿都不了了之 下次还出事儿？已经死了…</a>
+</h2>
+<p>SPAM 为什么每次出事儿都不了了之 下次还出事儿？已经死了44个人了 伤好几百个了  难道不应该愤怒吗 你在感动什么？如果大家都去追究 去问责 而不是发什么“最帅的逆行”“最美消防员”  情况会不会有那么一点点改善？ 政府会不会因此把民众的性命看得重一点？<br><br>RE: 都是炮灰，都是血泪，都是废话<br><img src="http://ww4.sinaimg.cn/large/74fa712bgw1ev0zf0zqj8j20c81d9n5o.jpg"></p>
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
@@ -96,7 +108,7 @@
 </h2>
 <p>真是虐心啊，蹲着的是老外，拍照居然是中国人。<br><br>RE: 【北京三里屯优衣库门口一男子持刀砍倒一女子，“双方为小贩”】今天中午，三里屯优衣库门口一男子持刀将一女子砍倒。据目击者介绍，女的已经死亡，被警方抬走。据了解双方为小贩，疑因抢占地盘起冲突。目前现场正在清洗血迹。@京华时报 http://t.cn/RL3m7wh<br><img src="http://ww1.sinaimg.cn/large/005vnhZYgw1ev0xx4a7u5j30c80gbab0.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3875387534493919" target="freeweibo-mirror">SPAM [衰]（图片提供@757以及人之7 ）</a>
 </h2>
@@ -125,18 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3875384363818687" target="freeweibo-mirror">SPAM  //@作业本: //@蒋方舟:天。。。</a>
 </h2>
 <p>SPAM  //@作业本: //@蒋方舟:天。。。<br><br>RE: 今天上午，东莞常平地陷扩大 http://t.cn/RL3TOlG .</p>
-<p>
-	<small> ============== 4小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3875382799601674" target="freeweibo-mirror">#男子优衣库门口砍人#【目击者：事发后男子拿武士刀砍优衣库人…</a>
-</h2>
-<p>#男子优衣库门口砍人#【目击者：事发后男子拿武士刀砍优衣库人体模型】据目击者称，20多岁白衣男子手持一米长武士刀，将女子腹部刺穿。受伤女子旁边跪着一外国人，哭泣着捂着女子伤口。男子在事发后不断拿刀砍优衣库人体模型。随后，男子抱头倒地，被多名武警制服。by京华时报<br><br>RE: #突发快讯#【北京三里屯一男子持刀砍人】 今天中午，一持刀男子在北京三里屯当街砍伤一名女子，随后该男子被警方控制，女子伤情不明。图为行凶男子，已被警方控制。by 新浪新闻 http://t.cn/RL3uvyN 大图慎点！<br><img src="http://ww3.sinaimg.cn/large/72b66d3fjw1ev0y2fybu6j20c80g7jsp.jpg"></p>
-<p>
-	<small> ============== 4小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3875381624565688" target="freeweibo-mirror">灾难面前，有些人关心的不是救援，不是防护，更不是遇难者家属的…</a>
-</h2>
-<p>灾难面前，有些人关心的不是救援，不是防护，更不是遇难者家属的情绪，而是...编造谣言，侮辱自己的同胞。他们给中国带来的只有一样东西:傻逼公知。//@王冉:灾难面前，有些人最关心的不是救援，不是防护，不是调查，不是追责，而是...阻止真相传播！他们给中国带来的只有一样东西：耻辱。<br><br>RE: 【CNN天津爆炸现场采访遭围攻 大喊“不能拍”】美国CNN记者赶到天津医院采访，称送往医院的人数不断上升，群众情绪激动。直播仅持续一分半左右，多名天津男子闯入镜头拉扯记者，大喊“不能拍”、“不能报”、“Stop”等，拍摄被迫中断，主播还在末尾调侃“这不是第一次被打断了。”http://t.cn/RL3HOd6<br><img src="http://ww2.sinaimg.cn/large/75b52ed2jw1ev0u9ju4frj20c806yjs4.jpg"></p>
 <p>
 	<small> ============== 4小时前</small>
 </p>
