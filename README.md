@@ -36,7 +36,7 @@
 </h2>
 <p>//@天圆地方3511E: 转发微博<br><br>RE: 分享@徐静波微博 的文章 http://t.cn/RL1V4MN</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3875553692006938" target="freeweibo-mirror">SPAM 为什么不能向小日本学习？？？ 我分享了http:/…</a>
 </h2>
@@ -126,13 +126,13 @@
 </h2>
 <p>看了视频才震惊到！有些愤怒！危险品仓库怎么规划的！离居民区这么近！[蜡烛][蜡烛][蜡烛] 求真相！<br><br>RE: #世界上最帅的逆行##天津塘沽大爆炸#【目前为止最可怕的现场视频】现场还有小孩哭声和建筑物的倒塌声，不知道视频作者怎么了样？[泪]http://t.cn/RL3r6oT</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3875526823186932" target="freeweibo-mirror">SPAM 天灾祈福，人祸问责！</a>
 </h2>
 <p>SPAM 天灾祈福，人祸问责！<br><br>RE: 质问比感人更催泪<br><img src="http://ww2.sinaimg.cn/large/6394d19djw1ev1awvx1mzj20bu0hsq5j.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3875526328452461" target="freeweibo-mirror">鞍山爆炸？！不平静的两天，祈望平安！</a>
 </h2>
