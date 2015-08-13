@@ -48,7 +48,7 @@
 </h2>
 <p>SPAM “炮灰没有议价资格”，看新闻，准备冲入火场的消防战士只戴着口罩，不清楚什么炸了火场空气里有没有毒不应该戴防毒面罩吗？然而，炮灰不应该问太多。 //@阿花的伊萨卡岛:今天是我明天就是你，苏维埃轮盘赌。 //@洛之秋:在你发的所有长微博中，这一篇读起来最魔幻，最虚构。<br><br>RE: 都是炮灰，都是血泪，都是废话<br><img src="http://ww4.sinaimg.cn/large/74fa712bgw1ev0zf0zqj8j20c81d9n5o.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3875396502025247" target="freeweibo-mirror">SPAM 死循环。 //@亵渎电影:每次都是点完蜡烛，然后，…</a>
 </h2>
@@ -120,7 +120,7 @@
 </h2>
 <p>#男子优衣库门口砍人#【目击者：事发后男子拿武士刀砍优衣库人体模型】据目击者称，20多岁白衣男子手持一米长武士刀，将女子腹部刺穿。受伤女子旁边跪着一外国人，哭泣着捂着女子伤口。男子在事发后不断拿刀砍优衣库人体模型。随后，男子抱头倒地，被多名武警制服。by京华时报<br><br>RE: #突发快讯#【北京三里屯一男子持刀砍人】 今天中午，一持刀男子在北京三里屯当街砍伤一名女子，随后该男子被警方控制，女子伤情不明。图为行凶男子，已被警方控制。by 新浪新闻 http://t.cn/RL3uvyN 大图慎点！<br><img src="http://ww3.sinaimg.cn/large/72b66d3fjw1ev0y2fybu6j20c80g7jsp.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3875381624565688" target="freeweibo-mirror">灾难面前，有些人关心的不是救援，不是防护，更不是遇难者家属的…</a>
 </h2>
@@ -134,9 +134,9 @@
 <p>
 	<small> ============== 4小时前</small>
 </p><h2>
-	<a href="https://freeweibo.com/weibo/3875380131918970" target="freeweibo-mirror">【突发新闻】中共中央决定：李鸿忠同志任天津市委委员、常委、书…</a>
+	<a href="https://freeweibo.com/weibo/3875380194674083" target="freeweibo-mirror">SPAM [衰][衰][衰]#东莞城轨工地塌陷#</a>
 </h2>
-<p>【突发新闻】中共中央决定：李鸿忠同志任天津市委委员、常委、书记；黄兴国同志不再代理天津市委书记职务。<br><img src="http://ww2.sinaimg.cn/large/5e740f2cgw1ev0ydb458qj20m80etacd.jpg"></p>
+<p>SPAM [衰][衰][衰]#东莞城轨工地塌陷#<br><br>RE: 今天上午，东莞常平地陷扩大 http://t.cn/RL3TOlG .</p>
 <p>
 	<small> ============== 4小时前</small>
 </p>
