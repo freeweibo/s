@@ -26,6 +26,12 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3875540001694730" target="freeweibo-mirror">[吃惊]//@袁裕来律师://@徐昕:千万别出问题 //@顾…</a>
+</h2>
+<p>[吃惊]//@袁裕来律师://@徐昕:千万别出问题 //@顾峰: //@迟夙生律师: //@深圳老崔:无论如何，都应该立即部署对自来水的严格检测，没事当然最好。<br><br>RE: 从下水道里检测出含有氰化纳的成份，证明存放在爆炸现场的700吨氯化钠已经泄露了。氰化钠是一种剧毒的化学用品，当年纳粹毒气室里面使用的就是氰化钠，氰气钠50毫克即可瞬间致人死亡，700吨是什么概念？如果此事处理不当，比爆炸要可怕的多。思之极恐！<br><img src="http://ww1.sinaimg.cn/large/006bhobbjw1ev1dhnwrraj30k00ekgon.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3875538441912017" target="freeweibo-mirror">//@弓長杰://@潘石屹:</a>
 </h2>
 <p>//@弓長杰://@潘石屹:</p>
@@ -42,7 +48,7 @@
 </h2>
 <p>老外貌似在幸灾乐祸？//@快乐至上小玉:[泪][泪] //@云南老年:[抓狂]<br><br>RE: youtube上外国网友拍摄到的天津塘沽大爆炸全过程。。。应该是目前距离最近最清晰的视频了，太可怕！[泪]http://t.cn/RL3ssvt</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3875531630433631" target="freeweibo-mirror">应该是天津，另外国内网友拍摄到的视频（1.08秒）与此差不多…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3875521651473887" target="freeweibo-mirror">是真的恐怖，逃出来的人也不容易！</a>
 </h2>
 <p>是真的恐怖，逃出来的人也不容易！<br><br>RE: youtube上外国网友拍摄到的天津塘沽大爆炸全过程。。。应该是目前距离最近最清晰的视频了，太可怕！[泪]http://t.cn/RL3ssvt</p>
-<p>
-	<small> ============== 3小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3875520909441228" target="freeweibo-mirror">这都是啥事啊！ //@天露Winner://@王官升: 谁的…</a>
-</h2>
-<p>这都是啥事啊！ //@天露Winner://@王官升: 谁的责任，为什么老是发生这样的问题！！！<br><br>RE: #鞍山爆炸#辽宁鞍山二台子锅炉厂于 21:45 发生爆炸！有在鞍山参与救援的战友，请及时传来现场信息！<br><img src="http://ww1.sinaimg.cn/large/6775674ajw1ev1d5t0278j206w098wef.jpg"></p>
 <p>
 	<small> ============== 3小时前</small>
 </p>
