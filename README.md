@@ -114,13 +114,13 @@
 </h2>
 <p>这都是啥事啊！ //@天露Winner://@王官升: 谁的责任，为什么老是发生这样的问题！！！<br><br>RE: #鞍山爆炸#辽宁鞍山二台子锅炉厂于 21:45 发生爆炸！有在鞍山参与救援的战友，请及时传来现场信息！<br><img src="http://ww1.sinaimg.cn/large/6775674ajw1ev1d5t0278j206w098wef.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3875520758411876" target="freeweibo-mirror">有人搞鬼是吧//@Sea_MoSand:尼玛这周是怎么回事啊…</a>
 </h2>
 <p>有人搞鬼是吧//@Sea_MoSand:尼玛这周是怎么回事啊……//@冰岛渔夫_FallenKing: 。。。//@AHSAMMAS: 喔艹。。。<br><br>RE: #鞍山爆炸#辽宁鞍山二台子锅炉厂于 21:45 发生爆炸！有在鞍山参与救援的战友，请及时传来现场信息！<br><img src="http://ww1.sinaimg.cn/large/6775674ajw1ev1d5t0278j206w098wef.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3875519596238387" target="freeweibo-mirror">[衰][衰][衰] //@辽沈晚报:网友爆料：#鞍山爆炸#辽…</a>
 </h2>
