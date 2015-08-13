@@ -54,7 +54,7 @@
 </h2>
 <p>SPAM 我擦 //@单身老刘:可怕的国[衰]<br><br>RE: 北京刚才有新疆恐怖分子大长刀砍平民，艹[怒][怒骂] http://t.cn/RL3urK5 .</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3875382799601674" target="freeweibo-mirror">#男子优衣库门口砍人#【目击者：事发后男子拿武士刀砍优衣库人…</a>
 </h2>
