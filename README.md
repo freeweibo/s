@@ -36,7 +36,7 @@
 </h2>
 <p>SPAM 很不错的文章 我分享了http://t.cn/RL1V4MN</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3875557433798716" target="freeweibo-mirror">//@天圆地方3511E: 转发微博</a>
 </h2>
@@ -108,7 +108,7 @@
 </h2>
 <p>老外貌似在幸灾乐祸？//@快乐至上小玉:[泪][泪] //@云南老年:[抓狂]<br><br>RE: youtube上外国网友拍摄到的天津塘沽大爆炸全过程。。。应该是目前距离最近最清晰的视频了，太可怕！[泪]http://t.cn/RL3ssvt</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3875531630433631" target="freeweibo-mirror">应该是天津，另外国内网友拍摄到的视频（1.08秒）与此差不多…</a>
 </h2>
