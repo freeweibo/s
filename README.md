@@ -90,7 +90,7 @@
 </h2>
 <p>废话连篇，十分讨厌！我们关心的不是谁谁谁的批示，而是爆炸的详情！请不要再长篇累牍地报道“哪个领导第一时间赶到现场”、“哪个领导高度重视”、“哪个领导发出重要指示”。<br><img src="http://ww4.sinaimg.cn/large/006bGP2zjw1ev0m7ip43vj318g0oyjzl.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3875273441544118" target="freeweibo-mirror">SPAM //@萧瑟洋场://@liberum: 两只老虎在…</a>
 </h2>
@@ -126,7 +126,7 @@
 </h2>
 <p>蘋果日報『 干不干政　都是專政 - 李平』<br><img src="http://ww3.sinaimg.cn/large/0064PCFtjw1ev06mb0nefj30k00zk11e.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3875133925878499" target="freeweibo-mirror">SPAM @胡冰蜀黍 就是进驻的卧底。[笑cry]//@沪港…</a>
 </h2>
