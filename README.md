@@ -54,7 +54,7 @@
 </h2>
 <p>//@刘丹禅: 天啊！<br><br>RE: youtube上外国网友拍摄到的天津塘沽大爆炸全过程。。。应该是目前距离最近最清晰的视频了，太可怕！[泪]http://t.cn/RL3ssvt</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3875527355809627" target="freeweibo-mirror">看了视频才震惊到！有些愤怒！危险品仓库怎么规划的！离居民区这…</a>
 </h2>
