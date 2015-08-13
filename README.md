@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3875544636941772" target="freeweibo-mirror">SPAM 兴你妈的个头</a>
+</h2>
+<p>SPAM 兴你妈的个头<br><br>RE: 不是自然灾害，不是战争，最怕不过国家机器的驾驶员是脑残[蜡烛]<br><img src="http://ww1.sinaimg.cn/large/6955b038gw1ev1ba7rdq7j20ci0j8wfd.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3875538441912017" target="freeweibo-mirror">//@弓長杰://@潘石屹:</a>
 </h2>
 <p>//@弓長杰://@潘石屹:</p>
@@ -42,7 +48,7 @@
 </h2>
 <p>应该是天津，另外国内网友拍摄到的视频（1.08秒）与此差不多，只是距离远了一点//@凯雷: 感觉不是天津，比之前看到的猛烈程度超十倍 //@小鱼磨牙: //@刘岩rocky://@林江不是老大:转发微博<br><br>RE: youtube上外国网友拍摄到的天津塘沽大爆炸全过程。。。应该是目前距离最近最清晰的视频了，太可怕！[泪]http://t.cn/RL3ssvt</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3875529595704255" target="freeweibo-mirror">感觉不是天津，比之前看到的猛烈程度超十倍 //@小鱼磨牙: …</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3875520909441228" target="freeweibo-mirror">这都是啥事啊！ //@天露Winner://@王官升: 谁的…</a>
 </h2>
 <p>这都是啥事啊！ //@天露Winner://@王官升: 谁的责任，为什么老是发生这样的问题！！！<br><br>RE: #鞍山爆炸#辽宁鞍山二台子锅炉厂于 21:45 发生爆炸！有在鞍山参与救援的战友，请及时传来现场信息！<br><img src="http://ww1.sinaimg.cn/large/6775674ajw1ev1d5t0278j206w098wef.jpg"></p>
-<p>
-	<small> ============== 3小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3875520758411876" target="freeweibo-mirror">有人搞鬼是吧//@Sea_MoSand:尼玛这周是怎么回事啊…</a>
-</h2>
-<p>有人搞鬼是吧//@Sea_MoSand:尼玛这周是怎么回事啊……//@冰岛渔夫_FallenKing: 。。。//@AHSAMMAS: 喔艹。。。<br><br>RE: #鞍山爆炸#辽宁鞍山二台子锅炉厂于 21:45 发生爆炸！有在鞍山参与救援的战友，请及时传来现场信息！<br><img src="http://ww1.sinaimg.cn/large/6775674ajw1ev1d5t0278j206w098wef.jpg"></p>
 <p>
 	<small> ============== 3小时前</small>
 </p>
