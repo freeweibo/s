@@ -24,7 +24,7 @@
 </h2>
 <p>//@弓長杰://@潘石屹:</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3875533542349378" target="freeweibo-mirror">//@陈维伟: [蜡烛][蜡烛][蜡烛] //@潘石屹: /…</a>
 </h2>
@@ -84,19 +84,19 @@
 </h2>
 <p>//@飞奔的小妹儿: //@智谷的吴扬文:爆炸烈度太失控[吃惊]<br><br>RE: youtube上外国网友拍摄到的天津塘沽大爆炸全过程。。。应该是目前距离最近最清晰的视频了，太可怕！[泪]http://t.cn/RL3ssvt</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3875523610081868" target="freeweibo-mirror">//@潘石屹:</a>
 </h2>
 <p>//@潘石屹:</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3875523429954099" target="freeweibo-mirror"></a>
 </h2>
 <p></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3875522218346680" target="freeweibo-mirror">今天怎么这么长…………//@胡一钗: 我操今天真是……</a>
 </h2>
