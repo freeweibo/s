@@ -30,7 +30,7 @@
 </h2>
 <p>SPAM 今天[蜡烛][蜡烛][蜡烛][蜡烛][蜡烛][蜡烛]<br><br>RE: #三里屯持刀砍人# 【突发[话筒]北京三里屯一男子持刀砍人被捕 一女子受伤】据多名网友爆料，今天中午，一名男子持刀在北京三里屯当街砍伤一名女子，随后该男子被警方控制，女子伤情不明。（央广网）<br><img src="http://ww2.sinaimg.cn/large/6e916bdegw1ev0xfnpa2tj20c80gbt9v.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3875371466399516" target="freeweibo-mirror">SPAM 哎！</a>
 </h2>
