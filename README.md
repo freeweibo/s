@@ -38,6 +38,12 @@
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3875446292442578" target="freeweibo-mirror">【天津消防指挥部：爆炸物主要为硝酸类化学品】当时发生爆炸的地…</a>
+</h2>
+<p>【天津消防指挥部：爆炸物主要为硝酸类化学品】当时发生爆炸的地点存放着硝酸钾、硝酸钠等硝酸盐物质,遇热容易爆炸。目前已检出液碱、碘化氢、硫氢化钠、硫化钠等。厂家反映，出事货场还存放至少700多吨氰化钠。下水沟里已检出氰化钠,说明已经泄露。http://t.cn/RL3MoAw 新京报<br><img src="http://ww1.sinaimg.cn/large/005vnhZYgw1ev15ypow3bg30gy09qdsk.gif"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3875439288613260" target="freeweibo-mirror">SPAM 细软跑 //@蜜龘龘-3-:牛逼啊//@资深灭婊专…</a>
 </h2>
 <p>SPAM 细软跑 //@蜜龘龘-3-:牛逼啊//@资深灭婊专家: 吃顿好的 //@总攻喵殿SAMA:牛逼啊//@次奥_kke_:牛逼//@富樫勇太-3-:牛步 //@Tabjy_大爆炸:牛逼啊//@六花的勇者夜祈: //@离笙安定做咸鱼:人民网！//@___嵐___: //@江豚-bot:找死，牛逼啊 //@制杖大师-鑫君:牛逼啊 //@若叶厨_selwary_bench:<br><br>RE: 分享图片<br><img src="http://ww1.sinaimg.cn/large/ea0a5e30jw1ev0wf9lc55j20qo0gumyz.jpg"></p>
@@ -54,7 +60,7 @@
 </h2>
 <p>跟新宇差不多 //@秋日往事: 习阿大既没有希特勒的口才，也没有丘吉尔的意志，你让他出来说话，说什么啊？</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3875421248676259" target="freeweibo-mirror">SPAM //@韩酉酉://@男神一大队的小槿: 虽然现在救…</a>
 </h2>
@@ -102,7 +108,7 @@
 </h2>
 <p>SPAM  //@开水族馆的生物男:消防收钱走形式这事，做过企业都都一清二楚。发达地区好些，越穷的地方越黑。//@洛之秋:在你发的所有长微博中，这一篇读起来最魔幻，最虚构。<br><br>RE: 都是炮灰，都是血泪，都是废话<br><img src="http://ww4.sinaimg.cn/large/74fa712bgw1ev0zf0zqj8j20c81d9n5o.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3875398419327582" target="freeweibo-mirror">SPAM 为什么每次出事儿都不了了之 下次还出事儿？已经死了…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3875392051929710" target="freeweibo-mirror">SPAM [蜡烛] //@虎叔-:[蜡烛] //@张晨初艺术…</a>
 </h2>
 <p>SPAM [蜡烛] //@虎叔-:[蜡烛] //@张晨初艺术空间:[蜡烛]//@A青花:[蜡烛]//@黑虱: [蜡烛]</p>
-<p>
-	<small> ============== 7小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3875390998971602" target="freeweibo-mirror">优衣库运气真好</a>
-</h2>
-<p>优衣库运气真好<br><br>RE: 【北京三里屯发生砍人事件 一名女子受伤】据北京青年报，今天中午12点左右，在三里屯，一名20多岁的男子手持长刀追砍一名女子，在该女子跑到优衣库门口时被砍倒，目击者称被砍伤的是一名外籍女子。砍人者随后被警方控制，受伤女子被送往医院救治。目前事发地点附近的店铺已恢复正常营业。<br><img src="http://ww4.sinaimg.cn/large/63207a53jw1ev0xpg3dy8j20c8096my4.jpg"></p>
 <p>
 	<small> ============== 7小时前</small>
 </p>
