@@ -126,13 +126,13 @@
 </h2>
 <p>//@真真假与真:希望政府尊重事实，还大众一个真相。#塘沽爆炸真相#<br><br>RE: #塘沽爆炸真相#我们不需要感动！不需要致敬！需要的是愤怒的质问！这个厂子到底是谁开的？谁允许开的？为什么会半夜爆炸？为什么那么多现场的记者媒体噤声？他们又知道了什么？感动的英雄主义只会导致更大的牺牲，现在质问远比感动更有意义！对于网上各种各样的问题，什么是真相什么又是隐藏！<br><img src="http://ww3.sinaimg.cn/large/744c04a1jw1ev1cdeyzcfj20f00qoadd.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3875528815669822" target="freeweibo-mirror">//@刘丹禅: 天啊！</a>
 </h2>
 <p>//@刘丹禅: 天啊！<br><br>RE: youtube上外国网友拍摄到的天津塘沽大爆炸全过程。。。应该是目前距离最近最清晰的视频了，太可怕！[泪]http://t.cn/RL3ssvt</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3875527355809627" target="freeweibo-mirror">看了视频才震惊到！有些愤怒！危险品仓库怎么规划的！离居民区这…</a>
 </h2>
