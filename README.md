@@ -42,7 +42,7 @@
 </h2>
 <p>SPAM [衰]（图片提供@757以及人之7 ）<br><img src="http://ww1.sinaimg.cn/large/95823738jw1ev0z7ynp3qj20k00dctar.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3875386733756747" target="freeweibo-mirror">@今何在 在这种时候真是没让人失望的一如既往的傻逼啊……//…</a>
 </h2>
