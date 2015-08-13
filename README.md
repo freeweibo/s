@@ -48,7 +48,7 @@
 </h2>
 <p>感觉不是天津，比之前看到的猛烈程度超十倍 //@小鱼磨牙: //@刘岩rocky://@林江不是老大:转发微博<br><br>RE: youtube上外国网友拍摄到的天津塘沽大爆炸全过程。。。应该是目前距离最近最清晰的视频了，太可怕！[泪]http://t.cn/RL3ssvt</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3875528815669822" target="freeweibo-mirror">//@刘丹禅: 天啊！</a>
 </h2>
