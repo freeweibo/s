@@ -30,7 +30,7 @@
 </h2>
 <p>SPAM 逆行、逆风飞行；明知道前方是条险路 依然勇往直前，致那些值得尊敬的人！<br><img src="http://ww1.sinaimg.cn/large/87b3b597jw1ev15zpg5ujj20zk0k040s.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3875439288613260" target="freeweibo-mirror">SPAM 细软跑 //@蜜龘龘-3-:牛逼啊//@资深灭婊专…</a>
 </h2>
@@ -90,7 +90,7 @@
 </h2>
 <p>SPAM  :天哪。。。<br><br>RE: 今天上午，东莞常平地陷扩大 http://t.cn/RL3TOlG .</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3875399895324369" target="freeweibo-mirror">SPAM  //@开水族馆的生物男:消防收钱走形式这事，做过…</a>
 </h2>
