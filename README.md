@@ -96,7 +96,7 @@
 </h2>
 <p>SPAM //@沈璎璎: 没什么想说的。就希望殉难的消防员们，都不是家中独子。//@阿花的伊萨卡岛:今天是我明天就是你，苏维埃轮盘赌。 //@洛之秋:在你发的所有长微博中，这一篇读起来最魔幻，最虚构。<br><br>RE: 都是炮灰，都是血泪，都是废话<br><img src="http://ww4.sinaimg.cn/large/74fa712bgw1ev0zf0zqj8j20c81d9n5o.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3875401774285651" target="freeweibo-mirror">SPAM  :天哪。。。</a>
 </h2>
