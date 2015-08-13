@@ -30,7 +30,7 @@
 </h2>
 <p>//@呆二://@Nefertari: //@松鼠会Sheldon: //@詹涓june:炮灰没有议价资格//@Swifters: 转发微博<br><br>RE: 都是炮灰，都是血泪，都是废话<br><img src="http://ww4.sinaimg.cn/large/74fa712bgw1ev0zf0zqj8j20c81d9n5o.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3875406555431029" target="freeweibo-mirror">SPAM 看到这个的时候，广州正下着诡异的大雨，阴风怒号雷电…</a>
 </h2>
@@ -84,7 +84,7 @@
 </h2>
 <p>SPAM [蜡烛] //@虎叔-:[蜡烛] //@张晨初艺术空间:[蜡烛]//@A青花:[蜡烛]//@黑虱: [蜡烛]</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3875390998971602" target="freeweibo-mirror">优衣库运气真好</a>
 </h2>
