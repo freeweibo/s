@@ -26,6 +26,42 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3875403045556407" target="freeweibo-mirror">SPAM //@沈璎璎: 没什么想说的。就希望殉难的消防员们…</a>
+</h2>
+<p>SPAM //@沈璎璎: 没什么想说的。就希望殉难的消防员们，都不是家中独子。//@阿花的伊萨卡岛:今天是我明天就是你，苏维埃轮盘赌。 //@洛之秋:在你发的所有长微博中，这一篇读起来最魔幻，最虚构。<br><br>RE: 都是炮灰，都是血泪，都是废话<br><img src="http://ww4.sinaimg.cn/large/74fa712bgw1ev0zf0zqj8j20c81d9n5o.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3875401774285651" target="freeweibo-mirror">SPAM  :天哪。。。</a>
+</h2>
+<p>SPAM  :天哪。。。<br><br>RE: 今天上午，东莞常平地陷扩大 http://t.cn/RL3TOlG .</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3875399895324369" target="freeweibo-mirror">SPAM  //@开水族馆的生物男:消防收钱走形式这事，做过…</a>
+</h2>
+<p>SPAM  //@开水族馆的生物男:消防收钱走形式这事，做过企业都都一清二楚。发达地区好些，越穷的地方越黑。//@洛之秋:在你发的所有长微博中，这一篇读起来最魔幻，最虚构。<br><br>RE: 都是炮灰，都是血泪，都是废话<br><img src="http://ww4.sinaimg.cn/large/74fa712bgw1ev0zf0zqj8j20c81d9n5o.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3875397160647320" target="freeweibo-mirror">SPAM “炮灰没有议价资格”，看新闻，准备冲入火场的消防战…</a>
+</h2>
+<p>SPAM “炮灰没有议价资格”，看新闻，准备冲入火场的消防战士只戴着口罩，不清楚什么炸了火场空气里有没有毒不应该戴防毒面罩吗？然而，炮灰不应该问太多。 //@阿花的伊萨卡岛:今天是我明天就是你，苏维埃轮盘赌。 //@洛之秋:在你发的所有长微博中，这一篇读起来最魔幻，最虚构。<br><br>RE: 都是炮灰，都是血泪，都是废话<br><img src="http://ww4.sinaimg.cn/large/74fa712bgw1ev0zf0zqj8j20c81d9n5o.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3875396502025247" target="freeweibo-mirror">SPAM 死循环。 //@亵渎电影:每次都是点完蜡烛，然后，…</a>
+</h2>
+<p>SPAM 死循环。 //@亵渎电影:每次都是点完蜡烛，然后，就没有然后了。下次还有更多的蜡烛，终究还是一文不值。<br><br>RE: 都是炮灰，都是血泪，都是废话<br><img src="http://ww4.sinaimg.cn/large/74fa712bgw1ev0zf0zqj8j20c81d9n5o.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3875393604364405" target="freeweibo-mirror">SPAM 很吓人，失踪了一些人。 //@广西师大出版社理想国…</a>
+</h2>
+<p>SPAM 很吓人，失踪了一些人。 //@广西师大出版社理想国:天.....<br><br>RE: 今天上午，东莞常平地陷扩大 http://t.cn/RL3TOlG .</p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3875392051929710" target="freeweibo-mirror">SPAM [蜡烛] //@虎叔-:[蜡烛] //@张晨初艺术…</a>
 </h2>
 <p>SPAM [蜡烛] //@虎叔-:[蜡烛] //@张晨初艺术空间:[蜡烛]//@A青花:[蜡烛]//@黑虱: [蜡烛]</p>
@@ -35,6 +71,12 @@
 	<a href="https://freeweibo.com/weibo/3875390998971602" target="freeweibo-mirror">优衣库运气真好</a>
 </h2>
 <p>优衣库运气真好<br><br>RE: 【北京三里屯发生砍人事件 一名女子受伤】据北京青年报，今天中午12点左右，在三里屯，一名20多岁的男子手持长刀追砍一名女子，在该女子跑到优衣库门口时被砍倒，目击者称被砍伤的是一名外籍女子。砍人者随后被警方控制，受伤女子被送往医院救治。目前事发地点附近的店铺已恢复正常营业。<br><img src="http://ww4.sinaimg.cn/large/63207a53jw1ev0xpg3dy8j20c8096my4.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3875390214554463" target="freeweibo-mirror">SPAM </a>
+</h2>
+<p>SPAM </p>
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
@@ -62,6 +104,18 @@
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3875384812683747" target="freeweibo-mirror">天津爆炸，東莞地陷，這一天到底是怎麼了？</a>
+</h2>
+<p>天津爆炸，東莞地陷，這一天到底是怎麼了？</p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3875384363818687" target="freeweibo-mirror">SPAM  //@作业本: //@蒋方舟:天。。。</a>
+</h2>
+<p>SPAM  //@作业本: //@蒋方舟:天。。。<br><br>RE: 今天上午，东莞常平地陷扩大 http://t.cn/RL3TOlG .</p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3875382799601674" target="freeweibo-mirror">#男子优衣库门口砍人#【目击者：事发后男子拿武士刀砍优衣库人…</a>
 </h2>
 <p>#男子优衣库门口砍人#【目击者：事发后男子拿武士刀砍优衣库人体模型】据目击者称，20多岁白衣男子手持一米长武士刀，将女子腹部刺穿。受伤女子旁边跪着一外国人，哭泣着捂着女子伤口。男子在事发后不断拿刀砍优衣库人体模型。随后，男子抱头倒地，被多名武警制服。by京华时报<br><br>RE: #突发快讯#【北京三里屯一男子持刀砍人】 今天中午，一持刀男子在北京三里屯当街砍伤一名女子，随后该男子被警方控制，女子伤情不明。图为行凶男子，已被警方控制。by 新浪新闻 http://t.cn/RL3uvyN 大图慎点！<br><img src="http://ww3.sinaimg.cn/large/72b66d3fjw1ev0y2fybu6j20c80g7jsp.jpg"></p>
@@ -72,71 +126,17 @@
 </h2>
 <p>灾难面前，有些人关心的不是救援，不是防护，更不是遇难者家属的情绪，而是...编造谣言，侮辱自己的同胞。他们给中国带来的只有一样东西:傻逼公知。//@王冉:灾难面前，有些人最关心的不是救援，不是防护，不是调查，不是追责，而是...阻止真相传播！他们给中国带来的只有一样东西：耻辱。<br><br>RE: 【CNN天津爆炸现场采访遭围攻 大喊“不能拍”】美国CNN记者赶到天津医院采访，称送往医院的人数不断上升，群众情绪激动。直播仅持续一分半左右，多名天津男子闯入镜头拉扯记者，大喊“不能拍”、“不能报”、“Stop”等，拍摄被迫中断，主播还在末尾调侃“这不是第一次被打断了。”http://t.cn/RL3HOd6<br><img src="http://ww2.sinaimg.cn/large/75b52ed2jw1ev0u9ju4frj20c806yjs4.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3875380350231426" target="freeweibo-mirror">SPAM #益起来#我刚刚在“关怀救火伤亡消防员”中成功捐款…</a>
+</h2>
+<p>SPAM #益起来#我刚刚在“关怀救火伤亡消防员”中成功捐款若干元，希望小小的力量汇成大爱，托起他们的希望！小力量大奇迹，一起来支持吧！http://t.cn/RL3TAOa<br><img src="http://ww2.sinaimg.cn/large/70499295gw1ev0taj7uh9j20fa0a6dgo.jpg"></p>
+<p>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3875380131918970" target="freeweibo-mirror">【突发新闻】中共中央决定：李鸿忠同志任天津市委委员、常委、书…</a>
 </h2>
 <p>【突发新闻】中共中央决定：李鸿忠同志任天津市委委员、常委、书记；黄兴国同志不再代理天津市委书记职务。<br><img src="http://ww2.sinaimg.cn/large/5e740f2cgw1ev0ydb458qj20m80etacd.jpg"></p>
-<p>
-	<small> ============== 4小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3875379800071532" target="freeweibo-mirror"></a>
-</h2>
-<p></p>
-<p>
-	<small> ============== 4小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3875379477755592" target="freeweibo-mirror">真是傻叼太多，上次央视外派记者在美国连线直播被警察勒令停止，…</a>
-</h2>
-<p>真是傻叼太多，上次央视外派记者在美国连线直播被警察勒令停止，一帮贱狗就在那喊希望国法度森严；今天外媒记者采访被群众呵斥，这帮脑残又来叫嚣自由民主，怎么不早点去死，来世争做自由民？CNN官推自己纠正说私拍人家致敬消防队员遗体被愤怒群众阻止，评论里的狗脸被主子吊打怎么破！？<br><br>RE: 【CNN天津爆炸现场采访遭围攻 大喊“不能拍”】美国CNN记者赶到天津医院采访，称送往医院的人数不断上升，群众情绪激动。直播仅持续一分半左右，多名天津男子闯入镜头拉扯记者，大喊“不能拍”、“不能报”、“Stop”等，拍摄被迫中断，主播还在末尾调侃“这不是第一次被打断了。”http://t.cn/RL3HOd6<br><img src="http://ww2.sinaimg.cn/large/75b52ed2jw1ev0u9ju4frj20c806yjs4.jpg"></p>
-<p>
-	<small> ============== 4小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3875378806457692" target="freeweibo-mirror">【#男子优衣库门口砍人#】今天中午，三里屯优衣库门口一男子持…</a>
-</h2>
-<p>【#男子优衣库门口砍人#】今天中午，三里屯优衣库门口一男子持刀将一女子砍倒。据目击者介绍，女的已经死亡，被警方抬走。据了解双方为小贩，疑因抢占地盘起冲突。目前现场正在清洗血迹。京华时报记者樊瑞 赵思衡 贾婷 实习记者王佳傲<br><img src="http://ww2.sinaimg.cn/large/652f5916gw1ev0y6wp7d3j20k00qowh2.jpg"></p>
-<p>
-	<small> ============== 4小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3875378084609703" target="freeweibo-mirror">//@夜郎国太傅: [嘘][嘘][嘘][嘘][嘘][嘘][嘘…</a>
-</h2>
-<p>//@夜郎国太傅: [嘘][嘘][嘘][嘘][嘘][嘘][嘘][嘘][嘘]//@半天鸟: 没人性的官员！[怒][怒]<br><br>RE: 转自天津同学微信：同学朋友们纷纷收到宣传部指示，全部编辑记者播音员主持人一律静音，不许发微博不许发朋友圈，不许参与传播。处理方式和我猜的一样，只是这次反应更加慢了些。记者证，我不要了。<br><img src="http://ww1.sinaimg.cn/large/49fb90c5jw1ev0snpd4xvj20zk0k4adf.jpg"></p>
-<p>
-	<small> ============== 4小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3875377720138368" target="freeweibo-mirror">【为抢北京三里屯优衣库门口地盘 一男子持刀砍倒一女子，“双方…</a>
-</h2>
-<p>【为抢北京三里屯优衣库门口地盘 一男子持刀砍倒一女子，“双方为小贩”】今天中午，三里屯优衣库门口一男子持刀将一女子砍倒。据目击者介绍，女的已经死亡，被警方抬走。据了解双方为小贩，疑因抢占地盘起冲突。目前现场正在清洗血迹。 http://t.cn/RL3m7wh<br><img src="http://ww3.sinaimg.cn/large/45444588jw1ev0y0yqwtrj20c80gb75t.jpg"></p>
-<p>
-	<small> ============== 4小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3875377498005368" target="freeweibo-mirror">#突发快讯#【北京三里屯一男子持刀砍人】 今天中午，一持刀男…</a>
-</h2>
-<p>#突发快讯#【北京三里屯一男子持刀砍人】 今天中午，一持刀男子在北京三里屯当街砍伤一名女子，随后该男子被警方控制，女子伤情不明。图为行凶男子，已被警方控制。by 新浪新闻 http://t.cn/RL3uvyN 大图慎点！<br><img src="http://ww3.sinaimg.cn/large/72b66d3fjw1ev0y2fybu6j20c80g7jsp.jpg"></p>
-<p>
-	<small> ============== 4小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3875377032568289" target="freeweibo-mirror">手机党与…</a>
-</h2>
-<p>手机党与…<br><br>RE: 【北京三里屯优衣库门口一男子持刀砍倒一女子，“双方为小贩”】今天中午，三里屯优衣库门口一男子持刀将一女子砍倒。据目击者介绍，女的已经死亡，被警方抬走。据了解双方为小贩，疑因抢占地盘起冲突。目前现场正在清洗血迹。@京华时报 http://t.cn/RL3m7wh<br><img src="http://ww1.sinaimg.cn/large/005vnhZYgw1ev0xx4a7u5j30c80gbab0.jpg"></p>
-<p>
-	<small> ============== 4小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3875377027791849" target="freeweibo-mirror">不知道该说些什么</a>
-</h2>
-<p>不知道该说些什么</p>
-<p>
-	<small> ============== 4小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3875376843315163" target="freeweibo-mirror">【北京三里屯发生砍人事件 一名女子受伤】据北京青年报，今天中…</a>
-</h2>
-<p>【北京三里屯发生砍人事件 一名女子受伤】据北京青年报，今天中午12点左右，在三里屯，一名20多岁的男子手持长刀追砍一名女子，在该女子跑到优衣库门口时被砍倒，目击者称被砍伤的是一名外籍女子。砍人者随后被警方控制，受伤女子被送往医院救治。目前事发地点附近的店铺已恢复正常营业。<br><img src="http://ww4.sinaimg.cn/large/63207a53jw1ev0xpg3dy8j20c8096my4.jpg"></p>
-<p>
-	<small> ============== 4小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3875376373937503" target="freeweibo-mirror">【北京三里屯优衣库门口一男子持刀砍倒一女子，“双方为小贩”】…</a>
-</h2>
-<p>【北京三里屯优衣库门口一男子持刀砍倒一女子，“双方为小贩”】今天中午，三里屯优衣库门口一男子持刀将一女子砍倒。据目击者介绍，女的已经死亡，被警方抬走。据了解双方为小贩，疑因抢占地盘起冲突。目前现场正在清洗血迹。@京华时报 http://t.cn/RL3m7wh<br><img src="http://ww1.sinaimg.cn/large/005vnhZYgw1ev0xx4a7u5j30c80gbab0.jpg"></p>
 <p>
 	<small> ============== 4小时前</small>
 </p>
