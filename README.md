@@ -24,7 +24,7 @@
 </h2>
 <p>SPAM 天灾祈福，人祸问责！<br><br>RE: 质问比感人更催泪<br><img src="http://ww2.sinaimg.cn/large/6394d19djw1ev1awvx1mzj20bu0hsq5j.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3875525631987075" target="freeweibo-mirror">“感谢你游过那么悲伤的水域”并列第一 //@喷嚏网铂程:转发…</a>
 </h2>
@@ -120,13 +120,13 @@
 </h2>
 <p>不管扣多少帽子穿多少小鞋可我们认他！感谢老陈！<br><br>RE: 中国最大的战略石油储备库建在距离洋山港15公里远的另外一孤岛上。真的应该好好感谢他！<br><img src="http://ww4.sinaimg.cn/large/b5c88416jw1ev19ylczamj20f00qo0uf.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3875511807883531" target="freeweibo-mirror">天津的爆炸是一个灾难性事件，不仅损失巨大，而且影响直接。之所…</a>
 </h2>
 <p>天津的爆炸是一个灾难性事件，不仅损失巨大，而且影响直接。之所以强调不是天灾，是因为它绝对不是普通的安全事故。<br><br>RE: 目前天津爆炸损失如下：大地保险承保的一个库，损失17亿；苏黎世保险承保的一个库，损失22个亿；现代保险4000辆车全损；天津港进口大众烧毁明细：甲壳虫391辆，迈特委770辆，UP84辆，高旅114辆，迈腾28辆，SportsVan39辆，tiguan257辆，途锐1065辆，烧毁2748辆进口大众。再加人员死伤，谁信这是天灾？<br><img src="http://ww3.sinaimg.cn/large/a7902ee4jw1ev17o7vneaj206e048jra.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3875511023038582" target="freeweibo-mirror">SPAM //@谁与居://@亚历克斯的根: //@尘尘满天…</a>
 </h2>
