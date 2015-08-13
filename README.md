@@ -44,6 +44,12 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3875325345744188" target="freeweibo-mirror">#天津塘沽大爆炸# CNN直播爆炸事故中 一群不明身份人员直…</a>
+</h2>
+<p>#天津塘沽大爆炸# CNN直播爆炸事故中 一群不明身份人员直接干倒记者[最右] @范桶<br><img src="http://ww4.sinaimg.cn/large/5094b86djw1ev0s18z7nqg20a105jnph.gif"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3875325211289304" target="freeweibo-mirror">扯淡，那是什么区？旁边码头、仓库…我以前公司曾经有批煤炭，天…</a>
 </h2>
 <p>扯淡，那是什么区？旁边码头、仓库…我以前公司曾经有批煤炭，天热码头天天浇水，还着火呢…你去郑州的化工仓库采访试试…//@盛大林:爆炸发生前，若是有记者去采访那里的安全隐患，是不太可能发表的。//@我爱十八盘: 掩耳盗铃<br><br>RE: #天津无新闻#媒体圈有一个流行的说法：“天津无新闻”。此所谓“新闻”，指的是负面报道。媒体上几乎见不到天津的丑闻。为何？因为天津“捂盖”有术！今天，天津终于有新闻了，而且是真正的“爆炸”性新闻——怎么捂都捂不住！其实，俺倒真是希望这样的爆炸能被“捂”住——这样，就不会死那么多人了！<br><img src="http://ww3.sinaimg.cn/large/53e839d2jw1ev0qditct2j20c80gbmy4.jpg"></p>
@@ -78,13 +84,13 @@
 </h2>
 <p>[弱]//@笨笨an://@纪昀:[弱]//@杨子评:[弱]//@-孔智勇:[弱]<br><br>RE: 塘沽发生如此惨烈的爆炸，天津电视台竟能熟视无睹。再次诠释了“宇宙真理”：有党性，没人性！</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3875316726695402" target="freeweibo-mirror">//@兔子老愚:回覆@-CHENSICONG:回笼子里去。 …</a>
 </h2>
 <p>//@兔子老愚:回覆@-CHENSICONG:回笼子里去。 //@-CHENSICONG:天津人民好样的 谁知道CNN又会怎样扭曲事实！<br><br>RE: 天津港大爆炸已上世界头条，美国CNN头版头条，英国BBC头版头条，意大利Rai头版头条。CNN采访天津塘沽爆炸现场连线时，旁边不时有人用天津话高吼“删了，删了，这是天津人的事儿。。。”的声音。http://t.cn/RL3olka<br><img src="http://ww4.sinaimg.cn/large/5d7ca92cjw1ev0qt87d1vj20c806ugms.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3875316248600945" target="freeweibo-mirror">相信每个媒体人都知道要做什么，但是能不能做他们决定不了。 /…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3875314952142264" target="freeweibo-mirror">天津港大爆炸已上世界头条，美国CNN头版头条，英国BBC头版…</a>
 </h2>
 <p>天津港大爆炸已上世界头条，美国CNN头版头条，英国BBC头版头条，意大利Rai头版头条。CNN采访天津塘沽爆炸现场连线时，旁边不时有人用天津话高吼“删了，删了，这是天津人的事儿。。。”的声音。http://t.cn/RL3olka<br><img src="http://ww4.sinaimg.cn/large/5d7ca92cjw1ev0qt87d1vj20c806ugms.jpg"></p>
-<p>
-	<small> ============== 3小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3875314889566912" target="freeweibo-mirror">限制外媒，然后微博开始删帖，一切数字以官媒为准，一直都是</a>
-</h2>
-<p>限制外媒，然后微博开始删帖，一切数字以官媒为准，一直都是<br><br>RE: ［CNN記者在報導天津爆炸事件時遭到攻擊］當時CNN記者現場在醫院門口報導受害者家屬情況的時候，突然有幾位中國籍男子衝上來向他實施攻擊，毆打他，不許他報導。新聞直播被迫中斷，而主持人倒是很淡定的說：這不是我們第一次在中國報導受到阻撓了。<br><img src="http://ww4.sinaimg.cn/large/005G5FU7jw1ev0ox6eohzj318g0xcagv.jpg"></p>
 <p>
 	<small> ============== 3小时前</small>
 </p>
