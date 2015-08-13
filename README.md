@@ -36,7 +36,7 @@
 </h2>
 <p>SPAM  :天哪。。。<br><br>RE: 今天上午，东莞常平地陷扩大 http://t.cn/RL3TOlG .</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3875399895324369" target="freeweibo-mirror">SPAM  //@开水族馆的生物男:消防收钱走形式这事，做过…</a>
 </h2>
@@ -80,6 +80,12 @@
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3875389586082089" target="freeweibo-mirror">都是炮灰，都是血泪，都是废话</a>
+</h2>
+<p>都是炮灰，都是血泪，都是废话<br><img src="http://ww4.sinaimg.cn/large/74fa712bgw1ev0zf0zqj8j20c81d9n5o.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3875389447621340" target="freeweibo-mirror">真是虐心啊，蹲着的是老外，拍照居然是中国人。</a>
 </h2>
 <p>真是虐心啊，蹲着的是老外，拍照居然是中国人。<br><br>RE: 【北京三里屯优衣库门口一男子持刀砍倒一女子，“双方为小贩”】今天中午，三里屯优衣库门口一男子持刀将一女子砍倒。据目击者介绍，女的已经死亡，被警方抬走。据了解双方为小贩，疑因抢占地盘起冲突。目前现场正在清洗血迹。@京华时报 http://t.cn/RL3m7wh<br><img src="http://ww1.sinaimg.cn/large/005vnhZYgw1ev0xx4a7u5j30c80gbab0.jpg"></p>
@@ -96,7 +102,7 @@
 </h2>
 <p>@今何在 在这种时候真是没让人失望的一如既往的傻逼啊……//@百里芜虚: 最右还真是一如既往的傻逼。//@古火拉兹:请大家参观傻逼→→//@今何在: 大爆炸发生时 所有第一反应是掏出手机拍照的统统以泄露国家机密罪处理 叫你们直播<br><br>RE: 【CNN天津爆炸现场采访遭围攻 大喊“不能拍”】美国CNN记者赶到天津医院采访，称送往医院的人数不断上升，群众情绪激动。直播仅持续一分半左右，多名天津男子闯入镜头拉扯记者，大喊“不能拍”、“不能报”、“Stop”等，拍摄被迫中断，主播还在末尾调侃“这不是第一次被打断了。”http://t.cn/RL3HOd6<br><img src="http://ww2.sinaimg.cn/large/75b52ed2jw1ev0u9ju4frj20c806yjs4.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3875385140078109" target="freeweibo-mirror">SPAM 我擦 //@单身老刘:可怕的国[衰]</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3875380350231426" target="freeweibo-mirror">SPAM #益起来#我刚刚在“关怀救火伤亡消防员”中成功捐款…</a>
 </h2>
 <p>SPAM #益起来#我刚刚在“关怀救火伤亡消防员”中成功捐款若干元，希望小小的力量汇成大爱，托起他们的希望！小力量大奇迹，一起来支持吧！http://t.cn/RL3TAOa<br><img src="http://ww2.sinaimg.cn/large/70499295gw1ev0taj7uh9j20fa0a6dgo.jpg"></p>
-<p>
-	<small> ============== 4小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3875380194674083" target="freeweibo-mirror">SPAM [衰][衰][衰]#东莞城轨工地塌陷#</a>
-</h2>
-<p>SPAM [衰][衰][衰]#东莞城轨工地塌陷#<br><br>RE: 今天上午，东莞常平地陷扩大 http://t.cn/RL3TOlG .</p>
 <p>
 	<small> ============== 4小时前</small>
 </p>
