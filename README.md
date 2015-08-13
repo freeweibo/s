@@ -86,6 +86,12 @@
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3875378806457692" target="freeweibo-mirror">【#男子优衣库门口砍人#】今天中午，三里屯优衣库门口一男子持…</a>
+</h2>
+<p>【#男子优衣库门口砍人#】今天中午，三里屯优衣库门口一男子持刀将一女子砍倒。据目击者介绍，女的已经死亡，被警方抬走。据了解双方为小贩，疑因抢占地盘起冲突。目前现场正在清洗血迹。京华时报记者樊瑞 赵思衡 贾婷 实习记者王佳傲<br><img src="http://ww2.sinaimg.cn/large/652f5916gw1ev0y6wp7d3j20k00qowh2.jpg"></p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3875378084609703" target="freeweibo-mirror">//@夜郎国太傅: [嘘][嘘][嘘][嘘][嘘][嘘][嘘…</a>
 </h2>
 <p>//@夜郎国太傅: [嘘][嘘][嘘][嘘][嘘][嘘][嘘][嘘][嘘]//@半天鸟: 没人性的官员！[怒][怒]<br><br>RE: 转自天津同学微信：同学朋友们纷纷收到宣传部指示，全部编辑记者播音员主持人一律静音，不许发微博不许发朋友圈，不许参与传播。处理方式和我猜的一样，只是这次反应更加慢了些。记者证，我不要了。<br><img src="http://ww1.sinaimg.cn/large/49fb90c5jw1ev0snpd4xvj20zk0k4adf.jpg"></p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3875374783722507" target="freeweibo-mirror">SPAM 今天[蜡烛][蜡烛][蜡烛][蜡烛][蜡烛][蜡烛…</a>
 </h2>
 <p>SPAM 今天[蜡烛][蜡烛][蜡烛][蜡烛][蜡烛][蜡烛]<br><br>RE: #三里屯持刀砍人# 【突发[话筒]北京三里屯一男子持刀砍人被捕 一女子受伤】据多名网友爆料，今天中午，一名男子持刀在北京三里屯当街砍伤一名女子，随后该男子被警方控制，女子伤情不明。（央广网）<br><img src="http://ww2.sinaimg.cn/large/6e916bdegw1ev0xfnpa2tj20c80gbt9v.jpg"></p>
-<p>
-	<small> ============== 4小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3875374557258789" target="freeweibo-mirror">最近。。 //@Vista看天下: 转发微博</a>
-</h2>
-<p>最近。。 //@Vista看天下: 转发微博<br><br>RE: 【三里屯一名女子被砍伤】今天中午12点左右，在三里屯，一名20多岁的男子手持长刀追砍一名女子，在该女子跑到优衣库门口时被砍倒，目击者称被砍伤的是一名外籍女子。砍人者随后被警方控制，受伤女子被送往医院救治。目前事发地点附近的店铺已恢复正常营业。（北青报记者 李铁柱）<br><img src="http://ww1.sinaimg.cn/large/684ebae3jw1ev0x4anhhtj20zk0qo78q.jpg"></p>
 <p>
 	<small> ============== 4小时前</small>
 </p>
