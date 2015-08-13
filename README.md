@@ -24,7 +24,7 @@
 </h2>
 <p>这个时候给陈良宇洗地算怎么回事？原po明白不明白是先定洋山港再定储备油库位置，而不是反过来。原po再解释解释大金山的定位。//@武汉的小路:武汉的化工厂也远离老市区，而且风向位置的考虑也很好，但是离中国高铁的枢纽武汉站，还有武钢的生活区不那么远<br><br>RE: 中国最大的战略石油储备库建在距离洋山港15公里远的另外一孤岛上。真的应该好好感谢他！<br><img src="http://ww4.sinaimg.cn/large/b5c88416jw1ev19ylczamj20f00qo0uf.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3875511023038582" target="freeweibo-mirror">SPAM //@谁与居://@亚历克斯的根: //@尘尘满天…</a>
 </h2>
@@ -55,6 +55,12 @@
 <p>【某报最新一期封面】本期纸质封面对部分地区用户有因不可抗力而无法送达的可能性<br><img src="http://ww3.sinaimg.cn/large/62b31d36jw1ev19r4nbzcj20b40fkgmk.jpg"></p>
 <p>
 	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3875481075949392" target="freeweibo-mirror">中国最大的战略石油储备库建在距离洋山港15公里远的另外一孤岛…</a>
+</h2>
+<p>中国最大的战略石油储备库建在距离洋山港15公里远的另外一孤岛上。真的应该好好感谢他！<br><img src="http://ww4.sinaimg.cn/large/b5c88416jw1ev19ylczamj20f00qo0uf.jpg"></p>
+<p>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3875479980989446" target="freeweibo-mirror">SPAM @老豆不炒熟22  这个角落应该不止17个吧，能删…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3875462965149791" target="freeweibo-mirror">我的妈呀氰化纳……//@sherry變成killerS://…</a>
 </h2>
 <p>我的妈呀氰化纳……//@sherry變成killerS://@东方早报:目前消防救援正全力处置氰化钠，已准备15%的双氧水，准备将它们拉走，但据现场检测，下水沟里已检出氰化钠，说明已经泄露。 http://t.cn/RL1hfdd 新京报<br><br>RE: 【天津消防指挥部：爆炸物主要为硝酸类化学品】当时发生爆炸的地点存放着硝酸钾、硝酸钠等硝酸盐物质,遇热容易爆炸。目前已检出液碱、碘化氢、硫氢化钠、硫化钠等。厂家反映，出事货场还存放至少700多吨氰化钠。下水沟里已检出氰化钠,说明已经泄露。http://t.cn/RL3MoAw 新京报<br><img src="http://ww1.sinaimg.cn/large/005vnhZYgw1ev15ypow3bg30gy09qdsk.gif"></p>
-<p>
-	<small> ============== 5小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3875461597695685" target="freeweibo-mirror">到底要怎么办啊太吓人了，国际应该派有技术的人参与救援啊 //…</a>
-</h2>
-<p>到底要怎么办啊太吓人了，国际应该派有技术的人参与救援啊 //@李正曦Sissi://@洛兵: 北京核生化应急救援队，就是来做这件事的吧。 //@重结晶:尽快确认氰化钠存放的准确位置，化出最大可能的泄漏范围，挖出隔离带，防止其他酸性物质混入，保证泄露范围地面强碱性。<br><br>RE: 【天津消防指挥部：爆炸物主要为硝酸类化学品】当时发生爆炸的地点存放着硝酸钾、硝酸钠等硝酸盐物质,遇热容易爆炸。目前已检出液碱、碘化氢、硫氢化钠、硫化钠等。厂家反映，出事货场还存放至少700多吨氰化钠。下水沟里已检出氰化钠,说明已经泄露。http://t.cn/RL3MoAw 新京报<br><img src="http://ww1.sinaimg.cn/large/005vnhZYgw1ev15ypow3bg30gy09qdsk.gif"></p>
 <p>
 	<small> ============== 5小时前</small>
 </p>
