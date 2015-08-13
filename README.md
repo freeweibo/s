@@ -90,7 +90,25 @@
 </h2>
 <p>SPAM 哎！<br><br>RE: 转自天津同学微信：同学朋友们纷纷收到宣传部指示，全部编辑记者播音员主持人一律静音，不许发微博不许发朋友圈，不许参与传播。处理方式和我猜的一样，只是这次反应更加慢了些。记者证，我不要了。<br><img src="http://ww1.sinaimg.cn/large/49fb90c5jw1ev0snpd4xvj20zk0k4adf.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3875370031800822" target="freeweibo-mirror">#三里屯优衣库砍人事件# 据@北京人不知道的北京事儿 北京时…</a>
+</h2>
+<p>#三里屯优衣库砍人事件# 据@北京人不知道的北京事儿 北京时间8月13日中午， 在北京三里屯的优衣库门口发生砍人事件，一男子手持刀行凶。据现场网友称，已有一名孕妇不幸遇难。目前该区域已进行管制，该男子已被控制。大家小心！@平安北京 @凤凰网<br><img src="http://ww4.sinaimg.cn/large/4b8bd145jw1ev0x776tekj20c80gbaao.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3875369645773295" target="freeweibo-mirror">【三里屯一名女子被砍伤】今天中午12点左右，在三里屯，一名2…</a>
+</h2>
+<p>【三里屯一名女子被砍伤】今天中午12点左右，在三里屯，一名20多岁的男子手持长刀追砍一名女子，在该女子跑到优衣库门口时被砍倒，目击者称被砍伤的是一名外籍女子。砍人者随后被警方控制，受伤女子被送往医院救治。目前事发地点附近的店铺已恢复正常营业。（北青报记者 李铁柱）<br><img src="http://ww1.sinaimg.cn/large/684ebae3jw1ev0x4anhhtj20zk0qo78q.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3875368622874582" target="freeweibo-mirror">三里屯优衣库，刚刚。</a>
+</h2>
+<p>三里屯优衣库，刚刚。<br><img src="http://ww3.sinaimg.cn/large/488d2478jw1ev0x1r7e0ij209l0c4dg7.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3875364533155378" target="freeweibo-mirror">SPAM //@八大山债人: //@蓝鲸财经记者工作平台:[…</a>
 </h2>
@@ -121,24 +139,6 @@
 <p>//@五月的下午茶: //@不吃米饭先生:还好多年前就撤离天津媒体了 //@夏榆的海景房://@阿丁: //@李蝴蝶: 转发微博<br><br>RE: 转自天津同学微信：同学朋友们纷纷收到宣传部指示，全部编辑记者播音员主持人一律静音，不许发微博不许发朋友圈，不许参与传播。处理方式和我猜的一样，只是这次反应更加慢了些。记者证，我不要了。<br><img src="http://ww1.sinaimg.cn/large/49fb90c5jw1ev0snpd4xvj20zk0k4adf.jpg"></p>
 <p>
 	<small> ============== 3小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3875355951925267" target="freeweibo-mirror">纽约时报广场上那些中国形象宣传片的作用一瞬间化为乌有</a>
-</h2>
-<p>纽约时报广场上那些中国形象宣传片的作用一瞬间化为乌有<br><br>RE: 李克强：让全世界倾听中国的声音。结果全世界都听见了：“删了！删了！删了！”</p>
-<p>
-	<small> ============== 3小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3875355561715490" target="freeweibo-mirror">李克强：让全世界倾听中国的声音。结果全世界都听见了：“删了！…</a>
-</h2>
-<p>李克强：让全世界倾听中国的声音。结果全世界都听见了：“删了！删了！删了！”</p>
-<p>
-	<small> ============== 3小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3875354801910943" target="freeweibo-mirror">SPAM 唉//@罗昌平: //@李蝴蝶:</a>
-</h2>
-<p>SPAM 唉//@罗昌平: //@李蝴蝶:<br><br>RE: 转自天津同学微信：同学朋友们纷纷收到宣传部指示，全部编辑记者播音员主持人一律静音，不许发微博不许发朋友圈，不许参与传播。处理方式和我猜的一样，只是这次反应更加慢了些。记者证，我不要了。<br><img src="http://ww1.sinaimg.cn/large/49fb90c5jw1ev0snpd4xvj20zk0k4adf.jpg"></p>
-<p>
-	<small> ============== 4小时前</small>
 </p>
 <table>
     <tr>
