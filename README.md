@@ -114,19 +114,19 @@
 </h2>
 <p>SPAM 天津组织上的童靴直接把正在直播的CNN连线记者干翻，让我想起了2008年某乡书记从地上爬起来的第一反应：千万不要让外界知道我们乡地震了。</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3875323017528464" target="freeweibo-mirror">不新鲜了 http://t.cn/RL3WB3L</a>
 </h2>
 <p>不新鲜了 http://t.cn/RL3WB3L<br><img src="http://ww2.sinaimg.cn/large/474243c8jw1ev0rszycz6j20k00zkdh6.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3875322984268148" target="freeweibo-mirror">不让说的秘密。</a>
 </h2>
 <p>不让说的秘密。<br><img src="http://ww1.sinaimg.cn/large/542a99b2jw1ev0rs6o8c5j20hs0dc75v.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3875322313231270" target="freeweibo-mirror">天津加油！[蜡烛][蜡烛][蜡烛]//@J神之吻: 转发微博</a>
 </h2>
