@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3875316726695402" target="freeweibo-mirror">//@兔子老愚:回覆@-CHENSICONG:回笼子里去。 …</a>
+</h2>
+<p>//@兔子老愚:回覆@-CHENSICONG:回笼子里去。 //@-CHENSICONG:天津人民好样的 谁知道CNN又会怎样扭曲事实！<br><br>RE: 天津港大爆炸已上世界头条，美国CNN头版头条，英国BBC头版头条，意大利Rai头版头条。CNN采访天津塘沽爆炸现场连线时，旁边不时有人用天津话高吼“删了，删了，这是天津人的事儿。。。”的声音。http://t.cn/RL3olka<br><img src="http://ww4.sinaimg.cn/large/5d7ca92cjw1ev0qt87d1vj20c806ugms.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3875316214407358" target="freeweibo-mirror">[泪]//@笨笨an:光屁股捂脸 //@郑维:[黑线]//@…</a>
 </h2>
 <p>[泪]//@笨笨an:光屁股捂脸 //@郑维:[黑线]//@复杂物堆FS:清淅大圖。<br><br>RE: ［CNN記者在報導天津爆炸事件時遭到攻擊］當時CNN記者現場在醫院門口報導受害者家屬情況的時候，突然有幾位中國籍男子衝上來向他實施攻擊，毆打他，不許他報導。新聞直播被迫中斷，而主持人倒是很淡定的說：這不是我們第一次在中國報導受到阻撓了。<br><img src="http://ww4.sinaimg.cn/large/005G5FU7jw1ev0ox6eohzj318g0xcagv.jpg"></p>
@@ -96,13 +102,13 @@
 </h2>
 <p>[吃惊]//@三合技术服务:@徐昕 死亡人数会不会超过35人？ //@徐昕:达到一枚微型战术核武器的爆炸当量，已有6名消防员牺牲，已致17人死亡[蜡烛][蜡烛][蜡烛]，32人危重，283人入院<br><br>RE: 天津的爆炸惊动了世界，唯独天津电视没有感到震动。转<br><img src="http://ww3.sinaimg.cn/large/6a3d7f8cjw1ev0pgswz2jj20c8096jrn.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3875304181178566" target="freeweibo-mirror">//@首席观察:8小时过去了，没看到有关过火面积的报道。</a>
 </h2>
 <p>//@首席观察:8小时过去了，没看到有关过火面积的报道。<br><br>RE: 现场比想象惨烈。<br><img src="http://ww1.sinaimg.cn/large/dd816182jw1ev0obtzsvpj20r80kftdb.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3875302965408374" target="freeweibo-mirror">是不是地方台没有这个业务能力 应该看中央电视台新闻台吧？ /…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3875300859588467" target="freeweibo-mirror">领导有连带责任，所以尽量淡化。实际中国这种军令状领导负责制不…</a>
 </h2>
 <p>领导有连带责任，所以尽量淡化。实际中国这种军令状领导负责制不合理，硬性规定死多少人领导下台固然让领导对安全问题不敢放松，但另外方面也导致此类弄虚作假和无人性的现象发生。这是个管理学的难题。<br><br>RE: 这个体制有病。越是在关键时刻，越是能显示出来。早上开车时，搜索了一下电台。几十个电台，没有一个在谈天津。网友指出：天津电视台现在还在歌舞升平。这是“人民共和国”应该做的吗？<br><img src="http://ww2.sinaimg.cn/large/4c0184bbjw1ev0owfw898j20oy18gtb6.jpg"></p>
-<p>
-	<small> ============== 3小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3875299823014109" target="freeweibo-mirror">SPAM //@脂肪家钟点工: 每临大事有静气</a>
-</h2>
-<p>SPAM //@脂肪家钟点工: 每临大事有静气<br><br>RE: 天津早新聞播報事故新聞一分鐘，黃xx畫面占40秒，其他新聞均無涉及。天津二套，每日笑吧。天津三套，狄仁傑。天津四套，炒菜節目。天津五套，外國搞笑錄像。天津六套，法制中國。天津公共頻道，港片奪命金。天津國際，求職。匯總完畢。@徐凤文</p>
 <p>
 	<small> ============== 3小时前</small>
 </p>
