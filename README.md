@@ -84,19 +84,19 @@
 </h2>
 <p>这是全球直播.....<br><br>RE: 我刚才特意上CNN去看了那段被中断的连线采访视频，记者只是在医院门外报道和拍摄周围的情况，而且都离得比较远，也并没有采访家属。记者说许多路都被管制为了方便运送伤者，家属只能在外面等消息，场面非常令人心碎。后来就莫名其妙冲上来很多工作人员很粗鲁地叫他不要拍不要拍还对他进行攻击。<br><img src="http://ww3.sinaimg.cn/large/649b0881jw1ev0qqxsorgj20hs0vkwhr.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3875325752216805" target="freeweibo-mirror">//@罗斯柴尔德伯爵: //@老关回来了: //@-孔智勇:…</a>
 </h2>
 <p>//@罗斯柴尔德伯爵: //@老关回来了: //@-孔智勇: [弱]<br><br>RE: 塘沽发生如此惨烈的爆炸，天津电视台竟能熟视无睹。再次诠释了“宇宙真理”：有党性，没人性！</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3875325345744188" target="freeweibo-mirror">#天津塘沽大爆炸# CNN直播爆炸事故中 一群不明身份人员直…</a>
 </h2>
 <p>#天津塘沽大爆炸# CNN直播爆炸事故中 一群不明身份人员直接干倒记者[最右] @范桶<br><img src="http://ww4.sinaimg.cn/large/5094b86djw1ev0s18z7nqg20a105jnph.gif"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3875325211289304" target="freeweibo-mirror">扯淡，那是什么区？旁边码头、仓库…我以前公司曾经有批煤炭，天…</a>
 </h2>
@@ -107,6 +107,12 @@
 	<a href="https://freeweibo.com/weibo/3875323982280765" target="freeweibo-mirror">SPAM 天津组织上的童靴直接把正在直播的CNN连线记者干翻…</a>
 </h2>
 <p>SPAM 天津组织上的童靴直接把正在直播的CNN连线记者干翻，让我想起了2008年某乡书记从地上爬起来的第一反应：千万不要让外界知道我们乡地震了。</p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3875322984268148" target="freeweibo-mirror">不让说的秘密。</a>
+</h2>
+<p>不让说的秘密。<br><img src="http://ww1.sinaimg.cn/large/542a99b2jw1ev0rs6o8c5j20hs0dc75v.jpg"></p>
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3875318458431669" target="freeweibo-mirror">昨晚国外媒体都炸锅了…天津台还在这里“没有共产党就没有新中国…</a>
 </h2>
 <p>昨晚国外媒体都炸锅了…天津台还在这里“没有共产党就没有新中国”；今天、现在，韩剧：糟糠之妻俱乐部。次懊[怒]！再次诠释了流氓的“宇宙真理”：有党性，没人性！[弱][弱][弱]<br><img src="http://ww1.sinaimg.cn/large/b1143085jw1ev0r8v7yrvj20k00k0q5e.jpg"></p>
-<p>
-	<small> ============== 3小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3875317673974904" target="freeweibo-mirror">//@廖伟棠:既然是天津人的事，你們怎麼不去質問天津媒體的缺…</a>
-</h2>
-<p>//@廖伟棠:既然是天津人的事，你們怎麼不去質問天津媒體的缺席和沉默<br><br>RE: 天津港大爆炸已上世界头条，美国CNN头版头条，英国BBC头版头条，意大利Rai头版头条。CNN采访天津塘沽爆炸现场连线时，旁边不时有人用天津话高吼“删了，删了，这是天津人的事儿。。。”的声音。http://t.cn/RL3olka<br><img src="http://ww4.sinaimg.cn/large/5d7ca92cjw1ev0qt87d1vj20c806ugms.jpg"></p>
 <p>
 	<small> ============== 3小时前</small>
 </p>
