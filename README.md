@@ -66,7 +66,7 @@
 </h2>
 <p>蘋果日報『 干不干政　都是專政 - 李平』<br><img src="http://ww3.sinaimg.cn/large/0064PCFtjw1ev06mb0nefj30k00zk11e.jpg"></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3875133925878499" target="freeweibo-mirror">SPAM @胡冰蜀黍 就是进驻的卧底。[笑cry]//@沪港…</a>
 </h2>
