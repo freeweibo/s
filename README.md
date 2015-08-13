@@ -32,6 +32,12 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3875532897080297" target="freeweibo-mirror">老外貌似在幸灾乐祸？//@快乐至上小玉:[泪][泪] //@…</a>
+</h2>
+<p>老外貌似在幸灾乐祸？//@快乐至上小玉:[泪][泪] //@云南老年:[抓狂]<br><br>RE: youtube上外国网友拍摄到的天津塘沽大爆炸全过程。。。应该是目前距离最近最清晰的视频了，太可怕！[泪]http://t.cn/RL3ssvt</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3875531630433631" target="freeweibo-mirror">应该是天津，另外国内网友拍摄到的视频（1.08秒）与此差不多…</a>
 </h2>
 <p>应该是天津，另外国内网友拍摄到的视频（1.08秒）与此差不多，只是距离远了一点//@凯雷: 感觉不是天津，比之前看到的猛烈程度超十倍 //@小鱼磨牙: //@刘岩rocky://@林江不是老大:转发微博<br><br>RE: youtube上外国网友拍摄到的天津塘沽大爆炸全过程。。。应该是目前距离最近最清晰的视频了，太可怕！[泪]http://t.cn/RL3ssvt</p>
@@ -62,9 +68,21 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3875526328452461" target="freeweibo-mirror">鞍山爆炸？！不平静的两天，祈望平安！</a>
+</h2>
+<p>鞍山爆炸？！不平静的两天，祈望平安！<br><br>RE: #鞍山爆炸#辽宁鞍山二台子锅炉厂于 21:45 发生爆炸！有在鞍山参与救援的战友，请及时传来现场信息！<br><img src="http://ww1.sinaimg.cn/large/6775674ajw1ev1d5t0278j206w098wef.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3875525631987075" target="freeweibo-mirror">“感谢你游过那么悲伤的水域”并列第一 //@喷嚏网铂程:转发…</a>
 </h2>
 <p>“感谢你游过那么悲伤的水域”并列第一 //@喷嚏网铂程:转发微博<br><br>RE: “世界上最帅的逆行”——应该在今年最恶心口号里夺冠。</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3875525472710673" target="freeweibo-mirror">太太太可怕了，单看视频都有种窒息的感觉，事发现场的人们啊[泪…</a>
+</h2>
+<p>太太太可怕了，单看视频都有种窒息的感觉，事发现场的人们啊[泪][泪][泪]//@刘春:[泪]<br><br>RE: youtube上外国网友拍摄到的天津塘沽大爆炸全过程。。。应该是目前距离最近最清晰的视频了，太可怕！[泪]http://t.cn/RL3ssvt</p>
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
@@ -72,13 +90,13 @@
 </h2>
 <p>不管是天灾还是人祸，网络世界一片黑白，全国人民一起哀悼，各种煽情，各种你坚强他挺住，就算有人出来客观的问问为什么会这样，也会被人骂都出这么大事情你还有心情说这些，所以我们出一次事，我们哭一次，哭完继续出事，我们继续哭，再点蜡烛，传爱心，送祝福，歌颂那些本不该牺牲的人。<br><br>RE: 质问比感人更催泪<br><img src="http://ww2.sinaimg.cn/large/6394d19djw1ev1awvx1mzj20bu0hsq5j.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3875524251942175" target="freeweibo-mirror">震惊，恐惧，担忧，但不感动</a>
 </h2>
 <p>震惊，恐惧，担忧，但不感动<br><br>RE: 一旦发生灾难，白头山政权已形成一整套完美解决方案。立马定性（尽量往天灾上靠），总萱立刻电告各地分萱，控制舆论导向，宣布家属情绪稳定，封锁现场防止信息外流。开始炮制各种感动朝鲜人物，国营慈善机关号召民间募捐揽钱。开表彰会，将丧事办成喜事，最后朝鲜中央通讯社宣布救灾取得伟大胜利。</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3875524071797423" target="freeweibo-mirror">//@飞奔的小妹儿: //@智谷的吴扬文:爆炸烈度太失控[吃…</a>
 </h2>
@@ -119,24 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3875520758411876" target="freeweibo-mirror">有人搞鬼是吧//@Sea_MoSand:尼玛这周是怎么回事啊…</a>
 </h2>
 <p>有人搞鬼是吧//@Sea_MoSand:尼玛这周是怎么回事啊……//@冰岛渔夫_FallenKing: 。。。//@AHSAMMAS: 喔艹。。。<br><br>RE: #鞍山爆炸#辽宁鞍山二台子锅炉厂于 21:45 发生爆炸！有在鞍山参与救援的战友，请及时传来现场信息！<br><img src="http://ww1.sinaimg.cn/large/6775674ajw1ev1d5t0278j206w098wef.jpg"></p>
-<p>
-	<small> ============== 3小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3875519596238387" target="freeweibo-mirror">[衰][衰][衰] //@辽沈晚报:网友爆料：#鞍山爆炸#辽…</a>
-</h2>
-<p>[衰][衰][衰] //@辽沈晚报:网友爆料：#鞍山爆炸#辽宁鞍山二台子锅炉厂于 21:45 发生爆炸！请鞍山的现场小伙伴，提供更多准确信息！祈祷平安！<br><br>RE: #鞍山爆炸#辽宁鞍山二台子锅炉厂于 21:45 发生爆炸！有在鞍山参与救援的战友，请及时传来现场信息！<br><img src="http://ww1.sinaimg.cn/large/6775674ajw1ev1d5t0278j206w098wef.jpg"></p>
-<p>
-	<small> ============== 3小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3875519478895925" target="freeweibo-mirror">SPAM 愤怒绝对多过感动……这事太可怕了</a>
-</h2>
-<p>SPAM 愤怒绝对多过感动……这事太可怕了<br><br>RE: 质问比感人更催泪<br><img src="http://ww2.sinaimg.cn/large/6394d19djw1ev1awvx1mzj20bu0hsq5j.jpg"></p>
-<p>
-	<small> ============== 3小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3875518757509530" target="freeweibo-mirror">今天这是怎么啦？……[可怜]</a>
-</h2>
-<p>今天这是怎么啦？……[可怜]<br><br>RE: #鞍山爆炸#辽宁鞍山二台子锅炉厂于 21:45 发生爆炸！有在鞍山参与救援的战友，请及时传来现场信息！<br><img src="http://ww1.sinaimg.cn/large/6775674ajw1ev1d5t0278j206w098wef.jpg"></p>
 <p>
 	<small> ============== 3小时前</small>
 </p>
