@@ -120,13 +120,13 @@
 </h2>
 <p>天津早新聞播報事故新聞一分鐘，黃xx畫面占40秒，其他新聞均無涉及。天津二套，每日笑吧。天津三套，狄仁傑。天津四套，炒菜節目。天津五套，外國搞笑錄像。天津六套，法制中國。天津公共頻道，港片奪命金。天津國際，求職。匯總完畢。@徐凤文</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3875274229469627" target="freeweibo-mirror">废话连篇，十分讨厌！我们关心的不是谁谁谁的批示，而是爆炸的详…</a>
 </h2>
 <p>废话连篇，十分讨厌！我们关心的不是谁谁谁的批示，而是爆炸的详情！请不要再长篇累牍地报道“哪个领导第一时间赶到现场”、“哪个领导高度重视”、“哪个领导发出重要指示”。<br><img src="http://ww4.sinaimg.cn/large/006bGP2zjw1ev0m7ip43vj318g0oyjzl.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3875273441544118" target="freeweibo-mirror">SPAM //@萧瑟洋场://@liberum: 两只老虎在…</a>
 </h2>
