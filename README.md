@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3875538441912017" target="freeweibo-mirror">//@弓長杰://@潘石屹:</a>
+</h2>
+<p>//@弓長杰://@潘石屹:</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3875526823186932" target="freeweibo-mirror">SPAM 天灾祈福，人祸问责！</a>
 </h2>
 <p>SPAM 天灾祈福，人祸问责！<br><br>RE: 质问比感人更催泪<br><img src="http://ww2.sinaimg.cn/large/6394d19djw1ev1awvx1mzj20bu0hsq5j.jpg"></p>
@@ -78,13 +84,13 @@
 </h2>
 <p>今晚阅兵式第一次预演，别闹了！</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3875515393581529" target="freeweibo-mirror">还有一句不吐不快：我自己会看会想会判断，别跟我讲什么“官方发…</a>
 </h2>
 <p>还有一句不吐不快：我自己会看会想会判断，别跟我讲什么“官方发布”的屁话，辟你妈逼谣。<br><br>RE: 质问比感人更催泪<br><img src="http://ww2.sinaimg.cn/large/6394d19djw1ev1awvx1mzj20bu0hsq5j.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3875514945270855" target="freeweibo-mirror">这个时候给陈良宇洗地算怎么回事？原po明白不明白是先定洋山港…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3875511023038582" target="freeweibo-mirror">SPAM //@谁与居://@亚历克斯的根: //@尘尘满天…</a>
 </h2>
 <p>SPAM //@谁与居://@亚历克斯的根: //@尘尘满天: //@公民王海滨://@浴过天情: //@龙城老石: 见鬼了</p>
-<p>
-	<small> ============== 3小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3875510926763805" target="freeweibo-mirror">上海人民感谢良宇同志 希望以后那些不会做事只会做官的不要再不…</a>
-</h2>
-<p>上海人民感谢良宇同志 希望以后那些不会做事只会做官的不要再不懂装懂 到处指手画脚。 //@肥貓湯姆:其實金山石化總廠的選址，也是上海行政區範圍內能找到的離市中心區最遠的地方了<br><br>RE: 中国最大的战略石油储备库建在距离洋山港15公里远的另外一孤岛上。真的应该好好感谢他！<br><img src="http://ww4.sinaimg.cn/large/b5c88416jw1ev19ylczamj20f00qo0uf.jpg"></p>
 <p>
 	<small> ============== 3小时前</small>
 </p>
