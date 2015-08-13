@@ -42,7 +42,7 @@
 </h2>
 <p>700多吨氰化钠……<br><br>RE: 【天津消防指挥部：爆炸物主要为硝酸类化学品】当时发生爆炸的地点存放着硝酸钾、硝酸钠等硝酸盐物质,遇热容易爆炸。目前已检出液碱、碘化氢、硫氢化钠、硫化钠等。厂家反映，出事货场还存放至少700多吨氰化钠。下水沟里已检出氰化钠,说明已经泄露。http://t.cn/RL3MoAw 新京报<br><img src="http://ww1.sinaimg.cn/large/005vnhZYgw1ev15ypow3bg30gy09qdsk.gif"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3875477011417385" target="freeweibo-mirror">SPAM  //@彭园v:[吃惊]</a>
 </h2>
@@ -78,13 +78,13 @@
 </h2>
 <p>SPAM  //@六六:不要无谓牺牲。//@绝版魏晋:老周你先英勇一下//@墨鉅50:只要说明白了，社会还是很通情达理的。//@周泽律师: 如果消防员不进去，社会是不是会说他们不够英勇？<br><br>RE: 转一种说法，希望更多的海内外专业人士出来说说。<br><img src="http://ww1.sinaimg.cn/large/a5658013gw1ev10nmohcvj20eu0bi76f.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3875462965149791" target="freeweibo-mirror">我的妈呀氰化纳……//@sherry變成killerS://…</a>
 </h2>
 <p>我的妈呀氰化纳……//@sherry變成killerS://@东方早报:目前消防救援正全力处置氰化钠，已准备15%的双氧水，准备将它们拉走，但据现场检测，下水沟里已检出氰化钠，说明已经泄露。 http://t.cn/RL1hfdd 新京报<br><br>RE: 【天津消防指挥部：爆炸物主要为硝酸类化学品】当时发生爆炸的地点存放着硝酸钾、硝酸钠等硝酸盐物质,遇热容易爆炸。目前已检出液碱、碘化氢、硫氢化钠、硫化钠等。厂家反映，出事货场还存放至少700多吨氰化钠。下水沟里已检出氰化钠,说明已经泄露。http://t.cn/RL3MoAw 新京报<br><img src="http://ww1.sinaimg.cn/large/005vnhZYgw1ev15ypow3bg30gy09qdsk.gif"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3875461597695685" target="freeweibo-mirror">到底要怎么办啊太吓人了，国际应该派有技术的人参与救援啊 //…</a>
 </h2>
@@ -95,6 +95,12 @@
 	<a href="https://freeweibo.com/weibo/3875459403687796" target="freeweibo-mirror">SPAM 这配图！//@问沉1: 作死了！ //@裸炮:猪圈…</a>
 </h2>
 <p>SPAM 这配图！//@问沉1: 作死了！ //@裸炮:猪圈太脏了！<br><br>RE: 网易同志[蜡烛]<br><img src="http://ww1.sinaimg.cn/large/e102cb15jw1ev14z7mg8sj20c807q3zc.jpg"></p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3875458896222086" target="freeweibo-mirror">SPAM //@胡紫微:有道理//@李佳佳Audrey: /…</a>
+</h2>
+<p>SPAM //@胡紫微:有道理//@李佳佳Audrey: //@今何在:这种仓库应像核电站 绝不容失误的 怎么就起火了呢<br><br>RE: 转一种说法，希望更多的海内外专业人士出来说说。<br><img src="http://ww1.sinaimg.cn/large/a5658013gw1ev10nmohcvj20eu0bi76f.jpg"></p>
 <p>
 	<small> ============== 4小时前</small>
 </p><h2>
@@ -114,7 +120,7 @@
 </h2>
 <p>回复@小法西施还有可臻:得,福岛核电站了变成~[生病][蜡烛] //@小法西施还有可臻:@Chiphell-nApoleon 窝艹！艹！艹！<br><br>RE: 【天津消防指挥部：爆炸物主要为硝酸类化学品】当时发生爆炸的地点存放着硝酸钾、硝酸钠等硝酸盐物质,遇热容易爆炸。目前已检出液碱、碘化氢、硫氢化钠、硫化钠等。厂家反映，出事货场还存放至少700多吨氰化钠。下水沟里已检出氰化钠,说明已经泄露。http://t.cn/RL3MoAw 新京报<br><img src="http://ww1.sinaimg.cn/large/005vnhZYgw1ev15ypow3bg30gy09qdsk.gif"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3875446880299936" target="freeweibo-mirror">SPAM 逆行、逆风飞行；明知道前方是条险路 依然勇往直前，…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3875439288613260" target="freeweibo-mirror">SPAM 细软跑 //@蜜龘龘-3-:牛逼啊//@资深灭婊专…</a>
 </h2>
 <p>SPAM 细软跑 //@蜜龘龘-3-:牛逼啊//@资深灭婊专家: 吃顿好的 //@总攻喵殿SAMA:牛逼啊//@次奥_kke_:牛逼//@富樫勇太-3-:牛步 //@Tabjy_大爆炸:牛逼啊//@六花的勇者夜祈: //@离笙安定做咸鱼:人民网！//@___嵐___: //@江豚-bot:找死，牛逼啊 //@制杖大师-鑫君:牛逼啊 //@若叶厨_selwary_bench:<br><br>RE: 分享图片<br><img src="http://ww1.sinaimg.cn/large/ea0a5e30jw1ev0wf9lc55j20qo0gumyz.jpg"></p>
-<p>
-	<small> ============== 5小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3875437740137775" target="freeweibo-mirror">网易同志[蜡烛]</a>
-</h2>
-<p>网易同志[蜡烛]<br><img src="http://ww1.sinaimg.cn/large/e102cb15jw1ev14z7mg8sj20c807q3zc.jpg"></p>
 <p>
 	<small> ============== 5小时前</small>
 </p>
