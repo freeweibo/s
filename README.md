@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3875406555431029" target="freeweibo-mirror">SPAM 看到这个的时候，广州正下着诡异的大雨，阴风怒号雷电…</a>
+</h2>
+<p>SPAM 看到这个的时候，广州正下着诡异的大雨，阴风怒号雷电交加，这是怎么了？[泪]//@壹立方: //@思想聚焦:[衰][衰][衰]<br><br>RE: 今天上午，东莞常平地陷扩大 http://t.cn/RL3TOlG .</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3875392051929710" target="freeweibo-mirror">SPAM [蜡烛] //@虎叔-:[蜡烛] //@张晨初艺术…</a>
 </h2>
 <p>SPAM [蜡烛] //@虎叔-:[蜡烛] //@张晨初艺术空间:[蜡烛]//@A青花:[蜡烛]//@黑虱: [蜡烛]</p>
@@ -72,19 +78,19 @@
 </h2>
 <p>【突发新闻】中共中央决定：李鸿忠同志任天津市委委员、常委、书记；黄兴国同志不再代理天津市委书记职务。<br><img src="http://ww2.sinaimg.cn/large/5e740f2cgw1ev0ydb458qj20m80etacd.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3875379800071532" target="freeweibo-mirror"></a>
 </h2>
 <p></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3875379477755592" target="freeweibo-mirror">真是傻叼太多，上次央视外派记者在美国连线直播被警察勒令停止，…</a>
 </h2>
 <p>真是傻叼太多，上次央视外派记者在美国连线直播被警察勒令停止，一帮贱狗就在那喊希望国法度森严；今天外媒记者采访被群众呵斥，这帮脑残又来叫嚣自由民主，怎么不早点去死，来世争做自由民？CNN官推自己纠正说私拍人家致敬消防队员遗体被愤怒群众阻止，评论里的狗脸被主子吊打怎么破！？<br><br>RE: 【CNN天津爆炸现场采访遭围攻 大喊“不能拍”】美国CNN记者赶到天津医院采访，称送往医院的人数不断上升，群众情绪激动。直播仅持续一分半左右，多名天津男子闯入镜头拉扯记者，大喊“不能拍”、“不能报”、“Stop”等，拍摄被迫中断，主播还在末尾调侃“这不是第一次被打断了。”http://t.cn/RL3HOd6<br><img src="http://ww2.sinaimg.cn/large/75b52ed2jw1ev0u9ju4frj20c806yjs4.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3875378806457692" target="freeweibo-mirror">【#男子优衣库门口砍人#】今天中午，三里屯优衣库门口一男子持…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3875376373937503" target="freeweibo-mirror">【北京三里屯优衣库门口一男子持刀砍倒一女子，“双方为小贩”】…</a>
 </h2>
 <p>【北京三里屯优衣库门口一男子持刀砍倒一女子，“双方为小贩”】今天中午，三里屯优衣库门口一男子持刀将一女子砍倒。据目击者介绍，女的已经死亡，被警方抬走。据了解双方为小贩，疑因抢占地盘起冲突。目前现场正在清洗血迹。@京华时报 http://t.cn/RL3m7wh<br><img src="http://ww1.sinaimg.cn/large/005vnhZYgw1ev0xx4a7u5j30c80gbab0.jpg"></p>
-<p>
-	<small> ============== 4小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3875374783722507" target="freeweibo-mirror">SPAM 今天[蜡烛][蜡烛][蜡烛][蜡烛][蜡烛][蜡烛…</a>
-</h2>
-<p>SPAM 今天[蜡烛][蜡烛][蜡烛][蜡烛][蜡烛][蜡烛]<br><br>RE: #三里屯持刀砍人# 【突发[话筒]北京三里屯一男子持刀砍人被捕 一女子受伤】据多名网友爆料，今天中午，一名男子持刀在北京三里屯当街砍伤一名女子，随后该男子被警方控制，女子伤情不明。（央广网）<br><img src="http://ww2.sinaimg.cn/large/6e916bdegw1ev0xfnpa2tj20c80gbt9v.jpg"></p>
 <p>
 	<small> ============== 4小时前</small>
 </p>
