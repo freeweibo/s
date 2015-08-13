@@ -44,6 +44,12 @@
 <p>
 	<small> ============== 1小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3875203714706244" target="freeweibo-mirror">天津剧爆，与其说是事故，不如说是“随机死亡”。区别在于前者认…</a>
+</h2>
+<p>天津剧爆，与其说是事故，不如说是“随机死亡”。区别在于前者认为这是偶发的独立事件，后者则认为这是与社会结构高度相关的必然结果。如果不彻底更改结构，就像不停的掷筛子一样，无论你是哪一面，总有轮到你的时候。这与运气无关，这是此国的游戏规则。</p>
+<p>
+	<small> ============== 6小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3875176016105027" target="freeweibo-mirror">[吃惊][吃惊][吃惊] //@逆风蝴蝶:传闻燃起蘑菇云，油…</a>
 </h2>
 <p>[吃惊][吃惊][吃惊] //@逆风蝴蝶:传闻燃起蘑菇云，油气直冲云霄，应该不是海外势力捣乱，是周永康残余部队干的。</p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3875040200436811" target="freeweibo-mirror">SPAM ！！！恶毒的女人早点儿下地狱！！</a>
 </h2>
 <p>SPAM ！！！恶毒的女人早点儿下地狱！！<br><br>RE: 【5岁男童遭患癌继母连砍30多刀 】河南安阳5岁男孩林林与生父和继母苗某一起生活。一个多月前苗某被查出胃癌，并于昨天借口给林林洗澡，砍了孩子30多刀。苗某或希望她死后丈夫能全力关注其亲生女儿，遂对林林起了歹意。[怒]人心太恶毒，不会有好报。看到好心痛，希望孩子早日康复 http://t.cn/RLmZQ0e<br><img src="http://ww2.sinaimg.cn/large/651bd7b3jw1euzm4cd4aij20c80h9myu.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3875037477863565" target="freeweibo-mirror">SPAM [心][心]</a>
-</h2>
-<p>SPAM [心][心]</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
