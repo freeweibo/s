@@ -36,13 +36,13 @@
 </h2>
 <p>SPAM //@萧瑟洋场://@liberum: 两只老虎在打架，赢者吃猪，若鼓掌就真是头蠢猪了。 //@追唐-如东李忠://@没良心-鱼: [围观]//@我看青山多妩媚W2:干不干政，都是专政。高不高風，何曾有節？//@遇见罗克://@不变糕哥://@冰封侠回归://@封神祭十叔:等待龙虎斗的两败俱伤。<br><br>RE: 蘋果日報『 干不干政　都是專政 - 李平』<br><img src="http://ww3.sinaimg.cn/large/0064PCFtjw1ev06mb0nefj30k00zk11e.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3875272740369218" target="freeweibo-mirror">[蜡烛]//@吴稼祥:还有动车组、青岛燃烧、国库和古城燃烧、…</a>
 </h2>
 <p>[蜡烛]//@吴稼祥:还有动车组、青岛燃烧、国库和古城燃烧、公共汽车燃烧、桥梁断裂、汽车撞广场、广场砍人、工厂爆炸、街道、幼儿园和养老院及公园游船、机场爆炸……罄竹难书。</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3875203714706244" target="freeweibo-mirror">天津剧爆，与其说是事故，不如说是“随机死亡”。区别在于前者认…</a>
 </h2>
@@ -61,6 +61,12 @@
 <p>只要城楼上的照片与纪念堂的遗体还在，不左才怪。</p>
 <p>
 	<small> ============== 9小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3875138694591701" target="freeweibo-mirror">蘋果日報『 干不干政　都是專政 - 李平』</a>
+</h2>
+<p>蘋果日報『 干不干政　都是專政 - 李平』<br><img src="http://ww3.sinaimg.cn/large/0064PCFtjw1ev06mb0nefj30k00zk11e.jpg"></p>
+<p>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3875133925878499" target="freeweibo-mirror">SPAM @胡冰蜀黍 就是进驻的卧底。[笑cry]//@沪港…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3875065622119148" target="freeweibo-mirror">//@邱岳首_: 明报发表题为“网络大总管鲁炜被举报”的报道…</a>
 </h2>
 <p>//@邱岳首_: 明报发表题为“网络大总管鲁炜被举报”的报道，署名“锺仕”的记者来自中新社，该记者多次为明报投稿。京城记者放这种消息，外间估计得到上级授意。[嘻嘻]//@天佑干女儿微博: 他咋啦？</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3875040200436811" target="freeweibo-mirror">SPAM ！！！恶毒的女人早点儿下地狱！！</a>
-</h2>
-<p>SPAM ！！！恶毒的女人早点儿下地狱！！<br><br>RE: 【5岁男童遭患癌继母连砍30多刀 】河南安阳5岁男孩林林与生父和继母苗某一起生活。一个多月前苗某被查出胃癌，并于昨天借口给林林洗澡，砍了孩子30多刀。苗某或希望她死后丈夫能全力关注其亲生女儿，遂对林林起了歹意。[怒]人心太恶毒，不会有好报。看到好心痛，希望孩子早日康复 http://t.cn/RLmZQ0e<br><img src="http://ww2.sinaimg.cn/large/651bd7b3jw1euzm4cd4aij20c80h9myu.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
