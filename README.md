@@ -72,19 +72,19 @@
 </h2>
 <p>鞍山爆炸？！不平静的两天，祈望平安！<br><br>RE: #鞍山爆炸#辽宁鞍山二台子锅炉厂于 21:45 发生爆炸！有在鞍山参与救援的战友，请及时传来现场信息！<br><img src="http://ww1.sinaimg.cn/large/6775674ajw1ev1d5t0278j206w098wef.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3875525631987075" target="freeweibo-mirror">“感谢你游过那么悲伤的水域”并列第一 //@喷嚏网铂程:转发…</a>
 </h2>
 <p>“感谢你游过那么悲伤的水域”并列第一 //@喷嚏网铂程:转发微博<br><br>RE: “世界上最帅的逆行”——应该在今年最恶心口号里夺冠。</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3875525472710673" target="freeweibo-mirror">太太太可怕了，单看视频都有种窒息的感觉，事发现场的人们啊[泪…</a>
 </h2>
 <p>太太太可怕了，单看视频都有种窒息的感觉，事发现场的人们啊[泪][泪][泪]//@刘春:[泪]<br><br>RE: youtube上外国网友拍摄到的天津塘沽大爆炸全过程。。。应该是目前距离最近最清晰的视频了，太可怕！[泪]http://t.cn/RL3ssvt</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3875525146002703" target="freeweibo-mirror">不管是天灾还是人祸，网络世界一片黑白，全国人民一起哀悼，各种…</a>
 </h2>
