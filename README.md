@@ -90,7 +90,7 @@
 </h2>
 <p>SPAM 很吓人，失踪了一些人。 //@广西师大出版社理想国:天.....<br><br>RE: 今天上午，东莞常平地陷扩大 http://t.cn/RL3TOlG .</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3875392051929710" target="freeweibo-mirror">SPAM [蜡烛] //@虎叔-:[蜡烛] //@张晨初艺术…</a>
 </h2>
