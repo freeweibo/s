@@ -48,13 +48,13 @@
 </h2>
 <p>SPAM 呼吁消防去军事化，转职业化；去勇敢性，实现科学性！我分享了@徐静波微博 的文章 http://t.cn/RL1V4MN</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3875553692006938" target="freeweibo-mirror">SPAM 为什么不能向小日本学习？？？ 我分享了http:/…</a>
 </h2>
 <p>SPAM 为什么不能向小日本学习？？？ 我分享了http://t.cn/RL1V4MN</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3875550970508293" target="freeweibo-mirror">分享@徐静波微博 的文章 http://t.cn/RL1V4…</a>
 </h2>
@@ -84,7 +84,7 @@
 </h2>
 <p>//@弓長杰://@潘石屹:</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3875535996495400" target="freeweibo-mirror">//@北京麦子2010:把财经网和南方周末隔一个抓一群，一个…</a>
 </h2>
