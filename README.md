@@ -90,7 +90,7 @@
 </h2>
 <p>每次习有庆典，必给他送口棺材。//@William-Lin324：吴老师，你算一算这次爆炸和反法西斯大阅兵是啥个关系</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3875275282739235" target="freeweibo-mirror">中国当下正面临着1932年德国纳粹上台前的形势，典型征兆之一…</a>
 </h2>
@@ -132,7 +132,7 @@
 </h2>
 <p>只要城楼上的照片与纪念堂的遗体还在，不左才怪。</p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3875138694591701" target="freeweibo-mirror">蘋果日報『 干不干政　都是專政 - 李平』</a>
 </h2>
