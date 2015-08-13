@@ -120,7 +120,7 @@
 </h2>
 <p>SPAM 死循环。 //@亵渎电影:每次都是点完蜡烛，然后，就没有然后了。下次还有更多的蜡烛，终究还是一文不值。<br><br>RE: 都是炮灰，都是血泪，都是废话<br><img src="http://ww4.sinaimg.cn/large/74fa712bgw1ev0zf0zqj8j20c81d9n5o.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3875393604364405" target="freeweibo-mirror">SPAM 很吓人，失踪了一些人。 //@广西师大出版社理想国…</a>
 </h2>
