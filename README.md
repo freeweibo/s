@@ -30,7 +30,7 @@
 </h2>
 <p>天津的爆炸惊动了世界，唯独天津电视没有感到震动。转<br><img src="http://ww3.sinaimg.cn/large/6a3d7f8cjw1ev0pgswz2jj20c8096jrn.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3875299823014109" target="freeweibo-mirror">SPAM //@脂肪家钟点工: 每临大事有静气</a>
 </h2>
@@ -132,13 +132,13 @@
 </h2>
 <p>SPAM //@萧瑟洋场://@liberum: 两只老虎在打架，赢者吃猪，若鼓掌就真是头蠢猪了。 //@追唐-如东李忠://@没良心-鱼: [围观]//@我看青山多妩媚W2:干不干政，都是专政。高不高風，何曾有節？//@遇见罗克://@不变糕哥://@冰封侠回归://@封神祭十叔:等待龙虎斗的两败俱伤。<br><br>RE: 蘋果日報『 干不干政　都是專政 - 李平』<br><img src="http://ww3.sinaimg.cn/large/0064PCFtjw1ev06mb0nefj30k00zk11e.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3875272740369218" target="freeweibo-mirror">[蜡烛]//@吴稼祥:还有动车组、青岛燃烧、国库和古城燃烧、…</a>
 </h2>
 <p>[蜡烛]//@吴稼祥:还有动车组、青岛燃烧、国库和古城燃烧、公共汽车燃烧、桥梁断裂、汽车撞广场、广场砍人、工厂爆炸、街道、幼儿园和养老院及公园游船、机场爆炸……罄竹难书。</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p>
 <table>
     <tr>
