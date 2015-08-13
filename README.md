@@ -42,7 +42,19 @@
 </h2>
 <p>纽约时报广场上那些中国形象宣传片的作用一瞬间化为乌有<br><br>RE: 李克强：让全世界倾听中国的声音。结果全世界都听见了：“删了！删了！删了！”</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3875355561715490" target="freeweibo-mirror">李克强：让全世界倾听中国的声音。结果全世界都听见了：“删了！…</a>
+</h2>
+<p>李克强：让全世界倾听中国的声音。结果全世界都听见了：“删了！删了！删了！”</p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3875354710048935" target="freeweibo-mirror">#北京突发#【三里屯[话筒]】@三千世界的一个俗人：三里屯优…</a>
+</h2>
+<p>#北京突发#【三里屯[话筒]】@三千世界的一个俗人：三里屯优衣库门口有一男的拿砍刀追人砍！！歹徒已被警察制服了！！（现场图via@Yuki酱正在努力成为优质蟲師中 @答案永恒-问题依旧）<br><img src="http://ww1.sinaimg.cn/large/63136032jw1ev0vg333zhj20c80gb0u1.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3875353782799915" target="freeweibo-mirror">追查责任//@招福的花园:没什么好解释的了，就是相关直接责任…</a>
 </h2>
@@ -126,19 +138,7 @@
 </h2>
 <p>这是全球直播.....<br><br>RE: 我刚才特意上CNN去看了那段被中断的连线采访视频，记者只是在医院门外报道和拍摄周围的情况，而且都离得比较远，也并没有采访家属。记者说许多路都被管制为了方便运送伤者，家属只能在外面等消息，场面非常令人心碎。后来就莫名其妙冲上来很多工作人员很粗鲁地叫他不要拍不要拍还对他进行攻击。<br><img src="http://ww3.sinaimg.cn/large/649b0881jw1ev0qqxsorgj20hs0vkwhr.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3875325752216805" target="freeweibo-mirror">//@罗斯柴尔德伯爵: //@老关回来了: //@-孔智勇:…</a>
-</h2>
-<p>//@罗斯柴尔德伯爵: //@老关回来了: //@-孔智勇: [弱]<br><br>RE: 塘沽发生如此惨烈的爆炸，天津电视台竟能熟视无睹。再次诠释了“宇宙真理”：有党性，没人性！</p>
-<p>
-	<small> ============== 4小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3875325345744188" target="freeweibo-mirror">#天津塘沽大爆炸# CNN直播爆炸事故中 一群不明身份人员直…</a>
-</h2>
-<p>#天津塘沽大爆炸# CNN直播爆炸事故中 一群不明身份人员直接干倒记者[最右] @范桶<br><img src="http://ww4.sinaimg.cn/large/5094b86djw1ev0s18z7nqg20a105jnph.gif"></p>
-<p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p>
 <table>
     <tr>
