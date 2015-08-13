@@ -114,7 +114,7 @@
 </h2>
 <p>SPAM  //@作业本: //@蒋方舟:天。。。<br><br>RE: 今天上午，东莞常平地陷扩大 http://t.cn/RL3TOlG .</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3875382799601674" target="freeweibo-mirror">#男子优衣库门口砍人#【目击者：事发后男子拿武士刀砍优衣库人…</a>
 </h2>
