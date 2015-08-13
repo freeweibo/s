@@ -30,7 +30,13 @@
 </h2>
 <p>SPAM 细软跑 //@蜜龘龘-3-:牛逼啊//@资深灭婊专家: 吃顿好的 //@总攻喵殿SAMA:牛逼啊//@次奥_kke_:牛逼//@富樫勇太-3-:牛步 //@Tabjy_大爆炸:牛逼啊//@六花的勇者夜祈: //@离笙安定做咸鱼:人民网！//@___嵐___: //@江豚-bot:找死，牛逼啊 //@制杖大师-鑫君:牛逼啊 //@若叶厨_selwary_bench:<br><br>RE: 分享图片<br><img src="http://ww1.sinaimg.cn/large/ea0a5e30jw1ev0wf9lc55j20qo0gumyz.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3875437740137775" target="freeweibo-mirror">网易同志[蜡烛]</a>
+</h2>
+<p>网易同志[蜡烛]<br><img src="http://ww1.sinaimg.cn/large/e102cb15jw1ev14z7mg8sj20c807q3zc.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3875430002567858" target="freeweibo-mirror">跟新宇差不多 //@秋日往事: 习阿大既没有希特勒的口才，也…</a>
 </h2>
@@ -54,7 +60,7 @@
 </h2>
 <p>SPAM 目瞪口呆.jpg<br><br>RE: 分享图片<br><img src="http://ww1.sinaimg.cn/large/ea0a5e30jw1ev0wf9lc55j20qo0gumyz.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3875407558679552" target="freeweibo-mirror">//@呆二://@Nefertari: //@松鼠会Shel…</a>
 </h2>
@@ -108,7 +114,7 @@
 </h2>
 <p>SPAM 很吓人，失踪了一些人。 //@广西师大出版社理想国:天.....<br><br>RE: 今天上午，东莞常平地陷扩大 http://t.cn/RL3TOlG .</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3875392051929710" target="freeweibo-mirror">SPAM [蜡烛] //@虎叔-:[蜡烛] //@张晨初艺术…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3875389586082089" target="freeweibo-mirror">都是炮灰，都是血泪，都是废话</a>
 </h2>
 <p>都是炮灰，都是血泪，都是废话<br><img src="http://ww4.sinaimg.cn/large/74fa712bgw1ev0zf0zqj8j20c81d9n5o.jpg"></p>
-<p>
-	<small> ============== 6小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3875389447621340" target="freeweibo-mirror">真是虐心啊，蹲着的是老外，拍照居然是中国人。</a>
-</h2>
-<p>真是虐心啊，蹲着的是老外，拍照居然是中国人。<br><br>RE: 【北京三里屯优衣库门口一男子持刀砍倒一女子，“双方为小贩”】今天中午，三里屯优衣库门口一男子持刀将一女子砍倒。据目击者介绍，女的已经死亡，被警方抬走。据了解双方为小贩，疑因抢占地盘起冲突。目前现场正在清洗血迹。@京华时报 http://t.cn/RL3m7wh<br><img src="http://ww1.sinaimg.cn/large/005vnhZYgw1ev0xx4a7u5j30c80gbab0.jpg"></p>
 <p>
 	<small> ============== 6小时前</small>
 </p>
