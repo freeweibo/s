@@ -108,13 +108,13 @@
 </h2>
 <p>是不是地方台没有这个业务能力 应该看中央电视台新闻台吧？ //@布小什大师: //@闻小雅:正打算去电视上看最新动态，直接cnn吧，不看傻X们的台了，说他们不专业都是好听的！ //@袁莉wsj:应该是不停更新情况，不停提醒市民各种事项。这种媒体是做什么的？拿财政钱吗？纳税人用钱养你关键时刻就这样？<br><br>RE: 刚刚天津卫视终于在早新闻节目结束时口播了国家领导人关注事故现场的新闻，连字幕都没有打，然后转切画面了。<br><img src="http://ww3.sinaimg.cn/large/6309fc78gw1ev0nsly0fkj218g0xc7gn.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3875302679566393" target="freeweibo-mirror">天津的爆炸惊动了世界，唯独天津电视没有感到震动。转</a>
 </h2>
 <p>天津的爆炸惊动了世界，唯独天津电视没有感到震动。转<br><img src="http://ww3.sinaimg.cn/large/6a3d7f8cjw1ev0pgswz2jj20c8096jrn.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3875302289895241" target="freeweibo-mirror">#明态度#假如我当天津电视台长：1停止娱乐节目播出；2滚动跟…</a>
 </h2>
