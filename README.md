@@ -36,7 +36,7 @@
 </h2>
 <p>SPAM //@丰人杰先生:内涵丰富啊！//@泰山之巅一疯僧:[挖鼻]<br><br>RE: 哈哈哈哈右图<br><img src="http://ww4.sinaimg.cn/large/005LBnzwjw1ev20o7ygs9j30yi1pcau3.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3875723137383316" target="freeweibo-mirror">//@夏河: 我国重要特色之一就是丧事喜办，灾难当头分分钟开…</a>
 </h2>
@@ -96,7 +96,7 @@
 </h2>
 <p>中国铁路还没私有化呢，@铁路南京站 脑残小编已经与公知@海南梁山 狼狈为奸啦。拿着体制钱的南京铁路官微小编，可不仅仅是五毛而是标准的体制婊，还尼玛轻松旅途，我呸！我呸！我呸！愤怒的话必须说三遍。@高铁见闻<br><img src="http://ww3.sinaimg.cn/large/8ee49ecagw1ev1x9e21tlj20kc0dz3z6.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3875682360945793" target="freeweibo-mirror">//@阿斯猴:不能去优衣库了，里外都让能让人捅了</a>
 </h2>
