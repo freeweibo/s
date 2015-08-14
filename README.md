@@ -54,17 +54,23 @@
 </h2>
 <p>生活在西朝鲜的悲哀 //@金子art://@画家陈浩东:[蜡烛][蜡烛]<br><br>RE: 天津港爆炸中，很可能有些人不能通过公安局直接开法律文书证明死亡，需要通过民诉法特别程序“宣告死亡”来确认，最终死亡法律程序确认可能已经是二年甚至四年之后的事情了，因为可能没有办法绝对证明爆炸时他在现场，之后尸体可能成为灰烬又无法证明尸体属于何人甚至无法证明尸体存在！悲！<br><img src="http://ww2.sinaimg.cn/large/4c148083jw1ev2bej2h1dj20qo0hrgqz.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3875811540666861" target="freeweibo-mirror">台媒《自由时报》报道：天津大爆炸，逾千人罹难。</a>
 </h2>
 <p>台媒《自由时报》报道：天津大爆炸，逾千人罹难。<br><img src="http://ww3.sinaimg.cn/large/d560177djw1ev2bw61ketj20nq0hsjvv.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3875810563900086" target="freeweibo-mirror">转：你在网上发条敏感信息，一分钟以后他们就知道；然而，仓库里…</a>
 </h2>
 <p>转：你在网上发条敏感信息，一分钟以后他们就知道；然而，仓库里有些什么危险品、有多少、谁放的、啥时候放的，炸完了好几天还是不知道。用审查言论的力度审查危险品；用搞防火墙的热情防火灾，你国的所有问题都可以迎刃而解。[嘻嘻]</p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3875808223287223" target="freeweibo-mirror">//@司马南:转发微博</a>
+</h2>
+<p>//@司马南:转发微博<br><br>RE: 【是政府白白牺牲消防员，还是王石传谣？】“burn down”谣言的出炉，是公知日杂群体为了使他们攻击党和政府更有说服力而已。拥有“党内自由派权贵二代”与国际富豪中国代言人的双重政治身份的王石则是谣言传播的重要鼓吹手之一。http://t.cn/RL1e9nj<br><img src="http://ww1.sinaimg.cn/large/005vdi3igw1ev29gw6g8cj30c8bzehdu.jpg"></p>
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
@@ -96,13 +102,13 @@
 </h2>
 <p>//@吴布衣50: //@去留无意38:草他大大的//@月半弯肆十捌世: //@阳光快乐天使a:屁//@大力水手AAA: //@LoveForever哩: 是个屁，风一吹，就散了。 //@yihong9:一诺……//@徐幸起: //@zhuzhaoyuchen://@歴史钩沉: //@无蛋可疼_: [怒骂]//@LoveForever哩: [怒骂] //@一言知贤:[怒骂]<br><br>RE: 这是人民网刚刚报道主席的最新指示：http://t.cn/RL1R32K 新浪网也要屏蔽？<br><img src="http://ww3.sinaimg.cn/large/749bcf09jw1ev2364smh7j20ku0zadl0.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3875796081243447" target="freeweibo-mirror">SPAM //@浴过天情: 经过牠们这么一（处理）倒勾起了自…</a>
 </h2>
 <p>SPAM //@浴过天情: 经过牠们这么一（处理）倒勾起了自我分析和猎奇的欲望！[围观][围观][围观]<br><br>RE: 分享图片<br><img src="http://ww4.sinaimg.cn/large/6bd14ac0jw1ev20k3vlyej20c80lqmye.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3875795111684275" target="freeweibo-mirror">SPAM //@吴布衣50: //@熊大鳌:化学反应，人的骨…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3875789965194952" target="freeweibo-mirror">//@安安5116://@深夜一只猫:没收公知的键盘和鼠标！…</a>
 </h2>
 <p>//@安安5116://@深夜一只猫:没收公知的键盘和鼠标！ //@Soarian: 公知们真讨厌，左一个主意右一个主意//@深夜一只猫:转发微博<br><br>RE: 有人发文质疑Burn Down。本人也无从确认是否在国际上存在这么一个原则。但是，中共国家安全监管局办公厅先后两次印发重点监管的危险化学品安全措施和应急处置原则的通知，在10.硝基胍、13硝化甘油的应急处置原则里，明确规定了如下内容：如处于火场中，严禁灭火，任其自行燃烧。@王志安<br><img src="http://ww2.sinaimg.cn/large/51ac59cbjw1ev1zyhiisaj20um0l0adw.jpg"></p>
-<p>
-	<small> ============== 4小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3875789294546842" target="freeweibo-mirror">[酷]//@月光手帕伊莲娜: 这次天津的事故如此之大，应该杀…</a>
-</h2>
-<p>[酷]//@月光手帕伊莲娜: 这次天津的事故如此之大，应该杀一批以平民愤吧//@上樟农民:呵呵！也只能呵呵了！<br><br>RE: 这是人民网刚刚报道主席的最新指示：http://t.cn/RL1R32K 新浪网也要屏蔽？<br><img src="http://ww3.sinaimg.cn/large/749bcf09jw1ev2364smh7j20ku0zadl0.jpg"></p>
 <p>
 	<small> ============== 4小时前</small>
 </p>
