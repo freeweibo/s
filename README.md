@@ -48,19 +48,19 @@
 </h2>
 <p>不信正腐谣，偏信楼主“谣”——最接近真相的逆行//@林檎_:比起你党的新闻，这个当然更接近真相，谁不同意谁的妈就炸了<br><br>RE: 分享图片<br><img src="http://ww4.sinaimg.cn/large/6bd14ac0jw1ev20k3vlyej20c80lqmye.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3875790107920594" target="freeweibo-mirror">SPAM [蜡烛][可憐][蜡烛][淚][蜡烛][怒]</a>
 </h2>
 <p>SPAM [蜡烛][可憐][蜡烛][淚][蜡烛][怒]<br><br>RE: 分享图片<br><img src="http://ww4.sinaimg.cn/large/6bd14ac0jw1ev20k3vlyej20c80lqmye.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3875789965194952" target="freeweibo-mirror">//@安安5116://@深夜一只猫:没收公知的键盘和鼠标！…</a>
 </h2>
 <p>//@安安5116://@深夜一只猫:没收公知的键盘和鼠标！ //@Soarian: 公知们真讨厌，左一个主意右一个主意//@深夜一只猫:转发微博<br><br>RE: 有人发文质疑Burn Down。本人也无从确认是否在国际上存在这么一个原则。但是，中共国家安全监管局办公厅先后两次印发重点监管的危险化学品安全措施和应急处置原则的通知，在10.硝基胍、13硝化甘油的应急处置原则里，明确规定了如下内容：如处于火场中，严禁灭火，任其自行燃烧。@王志安<br><img src="http://ww2.sinaimg.cn/large/51ac59cbjw1ev1zyhiisaj20um0l0adw.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3875789294546842" target="freeweibo-mirror">[酷]//@月光手帕伊莲娜: 这次天津的事故如此之大，应该杀…</a>
 </h2>
