@@ -20,6 +20,18 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3875800018962390" target="freeweibo-mirror">毛委员长。//@老简宁: 为什么不能坦坦荡荡地面对历史？弱智…</a>
+</h2>
+<p>毛委员长。//@老简宁: 为什么不能坦坦荡荡地面对历史？弱智的宣传部门让共产党丢人丢大发了 //@余戈-腾冲之围:唐国强说：要有个会！于是开罗开了个会。</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3875796353981568" target="freeweibo-mirror">//@吴布衣50: //@去留无意38:草他大大的//@月半…</a>
+</h2>
+<p>//@吴布衣50: //@去留无意38:草他大大的//@月半弯肆十捌世: //@阳光快乐天使a:屁//@大力水手AAA: //@LoveForever哩: 是个屁，风一吹，就散了。 //@yihong9:一诺……//@徐幸起: //@zhuzhaoyuchen://@歴史钩沉: //@无蛋可疼_: [怒骂]//@LoveForever哩: [怒骂] //@一言知贤:[怒骂]<br><br>RE: 这是人民网刚刚报道主席的最新指示：http://t.cn/RL1R32K 新浪网也要屏蔽？<br><img src="http://ww3.sinaimg.cn/large/749bcf09jw1ev2364smh7j20ku0zadl0.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3875786312487235" target="freeweibo-mirror">//@北京崔卫平://@李方平律师://@幽壹:转发微博</a>
 </h2>
 <p>//@北京崔卫平://@李方平律师://@幽壹:转发微博<br><br>RE: 出来后，我才发现，我是三个人里被搜得最仔细的，还删掉了手机照片，还删了电脑照片。在搜查结束后，出来之前，一个警察还大声呵斥我：“脱掉鞋子！”他怀疑我在鞋里藏了东西，真是too young，too simple，还让我掀开鞋垫看。当然他一无所获——一个年轻记者的现场拍摄手记http://t.cn/RL1pNTA<br><img src="http://ww3.sinaimg.cn/large/5d7ca92cjw1ev22w267e8j20hs0buq6b.jpg"></p>
@@ -108,13 +120,13 @@
 </h2>
 <p>//@徐幸起://@zhuzhaoyuchen://@歴史钩沉: //@无蛋可疼_: [怒骂]//@LoveForever哩: [怒骂] //@一言知贤:[怒骂]//@路见不平踩一下: 转发微博<br><br>RE: 这是人民网刚刚报道主席的最新指示：http://t.cn/RL1R32K 新浪网也要屏蔽？<br><img src="http://ww3.sinaimg.cn/large/749bcf09jw1ev2364smh7j20ku0zadl0.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3875772035166648" target="freeweibo-mirror">具体伤亡数字.尽管公众多有质疑的声音.但请别把板子打在媒体身…</a>
 </h2>
 <p>具体伤亡数字.尽管公众多有质疑的声音.但请别把板子打在媒体身上.你没做过媒体你不知道，碰到这样的突发事件，有关部门首先想到的是下禁令，封锁消息，不听话的就会被秋后算账.当年汶川大地震，我作为前线编辑部成员，就是如此.刚开始是不允许报道的，后来突破禁令.再后来.南方报业集团子媒普遍被算账.</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3875771669906242" target="freeweibo-mirror">从前有个公安分局，当年老百姓反对建危险品仓储区，第一线镇压的…</a>
 </h2>
@@ -125,18 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3875770994336501" target="freeweibo-mirror">八月十二日二十三点左右天津发生了一点小火，在我们领导的重视下…</a>
 </h2>
 <p>八月十二日二十三点左右天津发生了一点小火，在我们领导的重视下、在消防员的英勇善战下，火势迅速泼灭，这有助于我们在未来的突发火灾事故中的很好演练。这次事故党中央非常重视，表明了我国是一个多元化、重防范的大国。http://t.cn/RL1rwSt<br><img src="http://ww4.sinaimg.cn/large/957ec276jw1ev26ftigyuj20f00qodke.jpg"></p>
-<p>
-	<small> ============== 3小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3875768771902713" target="freeweibo-mirror">SPAM 嘿嘿，哈哈，啧啧</a>
-</h2>
-<p>SPAM 嘿嘿，哈哈，啧啧<br><img src="http://ww4.sinaimg.cn/large/3fac2db1jw1ev27050tsij20p018g48c.jpg"></p>
-<p>
-	<small> ============== 3小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3875767437889778" target="freeweibo-mirror">出来后，我才发现，我是三个人里被搜得最仔细的，还删掉了手机照…</a>
-</h2>
-<p>出来后，我才发现，我是三个人里被搜得最仔细的，还删掉了手机照片，还删了电脑照片。在搜查结束后，出来之前，一个警察还大声呵斥我：“脱掉鞋子！”他怀疑我在鞋里藏了东西，真是too young，too simple，还让我掀开鞋垫看。当然他一无所获——一个年轻记者的现场拍摄手记http://t.cn/RL1pNTA<br><img src="http://ww3.sinaimg.cn/large/5d7ca92cjw1ev22w267e8j20hs0buq6b.jpg"></p>
 <p>
 	<small> ============== 3小时前</small>
 </p>
