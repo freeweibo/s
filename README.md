@@ -24,7 +24,7 @@
 </h2>
 <p>SPAM 这不是独夫民贼吗？<br><br>RE: 开罗宣言[哈哈]<br><img src="http://ww2.sinaimg.cn/large/7052cea7jw1ev2k2napsbj20dw0antar.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3875935168076209" target="freeweibo-mirror">[真心英雄佟大为]//@陈业文新大都: [笑cry] //@…</a>
 </h2>
