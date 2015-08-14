@@ -84,7 +84,7 @@
 </h2>
 <p>SPAM 毛泽东不抗日的战略思想回顾。很多人不相信，也不理解。那个年代，土匪都抗日，唯独我党要保存实力，发展武装，拉着主力东躲西藏，为了抗战后夺取政权。从抗战初期的两万人，发展到抗战结束已经有“百万雄师”。如果没有策略，真心抗日，那区区两万人早就打光了，后来拿什么夺取政权？<br><img src="http://ww3.sinaimg.cn/large/5634f1dfjw1ev2gft7z25j20c80efdh8.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3875848144973753" target="freeweibo-mirror">开罗会议真相！是中国人就转！</a>
 </h2>
