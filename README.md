@@ -60,7 +60,13 @@
 </h2>
 <p>//@仍旧相信光明://@白帽青衫: //@星xc辰D33://@还是南开老魏://@惊醒的家奴3: //@奶香小豆包2: //@惊醒的家奴4: //@孤家寡哥89: 转发微博<br><br>RE: 分享图片<br><img src="http://ww1.sinaimg.cn/large/006aJuQ1jw1ev2kjz4lkfj30bt0qogoe.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3875908534026900" target="freeweibo-mirror">原来毯星毛泽东没有挤进四巨头合照，只好发单人艺术照</a>
+</h2>
+<p>原来毯星毛泽东没有挤进四巨头合照，只好发单人艺术照<br><img src="http://ww1.sinaimg.cn/large/56067e2ejw1ev2n0njwuqj21kw10u1eo.jpg"></p>
+<p>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3875902507275755" target="freeweibo-mirror">大楼房间很多吧。//@律师孟浩然: 所以？警察一早发现上班的…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3875871246833584" target="freeweibo-mirror">反腐不能只解决党的“私事”。天津大爆炸反映出居民在不知情的情…</a>
 </h2>
 <p>反腐不能只解决党的“私事”。天津大爆炸反映出居民在不知情的情况下，隔壁规划了危险化学品仓库；上周曝光的谷将军的别墅群也是周边老百姓被蒙蔽为国家重点军事科研项目。谷将军栽了，民众期望那些参与违法审批的人受到制裁；天津大爆炸善后，也应该追究参与乱审批的所有官员，即使没拿黑钱的。</p>
-<p>
-	<small> ============== 6小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3875870479235053" target="freeweibo-mirror">SPAM 确实新流行好应用，你们随便看看~</a>
-</h2>
-<p>SPAM 确实新流行好应用，你们随便看看~</p>
 <p>
 	<small> ============== 6小时前</small>
 </p>
