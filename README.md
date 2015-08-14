@@ -48,7 +48,7 @@
 </h2>
 <p>@铁路南京站 我们错了，不该在公知疯狂诋毁高铁的时候出来挺高铁，那时挨了多少骂我们知道。我们错了，不该在某些公知打着忘记仇恨的名义否认南京大屠杀时候站出来反驳。向你诚恳道歉。<br><img src="http://ww2.sinaimg.cn/large/6bd4a821jw1ev204dxgj5j20tf0fzgqn.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3875706779496530" target="freeweibo-mirror">得有个说法吧，这号咋回事？@上铁资讯 @中国铁路</a>
 </h2>
