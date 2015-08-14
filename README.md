@@ -66,7 +66,7 @@
 </h2>
 <p>SPAM 兴你妈的个头<br><br>RE: 不是自然灾害，不是战争，最怕不过国家机器的驾驶员是脑残[蜡烛]<br><img src="http://ww1.sinaimg.cn/large/6955b038gw1ev1ba7rdq7j20ci0j8wfd.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3875540492969931" target="freeweibo-mirror">//@胡坤821:</a>
 </h2>
@@ -120,7 +120,7 @@
 </h2>
 <p>感觉不是天津，比之前看到的猛烈程度超十倍 //@小鱼磨牙: //@刘岩rocky://@林江不是老大:转发微博<br><br>RE: youtube上外国网友拍摄到的天津塘沽大爆炸全过程。。。应该是目前距离最近最清晰的视频了，太可怕！[泪]http://t.cn/RL3ssvt</p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3875529100573481" target="freeweibo-mirror">//@真真假与真:希望政府尊重事实，还大众一个真相。#塘沽爆…</a>
 </h2>
