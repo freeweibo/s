@@ -30,7 +30,7 @@
 </h2>
 <p>逾千人罹难??//@杨子评: [吃惊]//@李不白的空间:[吃惊]//@静静的雪hu-: [吃惊]<br><br>RE: 台媒《自由时报》报道：天津大爆炸，逾千人罹难。<br><img src="http://ww3.sinaimg.cn/large/d560177djw1ev2bw61ketj20nq0hsjvv.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3875813302322862" target="freeweibo-mirror">陶大律，您本人啥意见？[阴险]//@陶景洲:还真有同意的。 …</a>
 </h2>
