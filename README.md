@@ -66,7 +66,7 @@
 </h2>
 <p>//@古歌-蓝藤: //@烤肉散人:反对新闻自由权就是放弃人权，就是没把自己当人看[弱][弱]//@胡老不死的37: //@鷄國那隻鷄:额~[吃惊]//@橙子-1967: 特务假扮群众，昨天阻拦CNN的也是这人//@暱稱禁止取名姜戈B: 這些玩意真該被炸死。//@清肺_化痰:傻逼 //@玳簋24://@情满江淮05: 转发微博<br><br>RE: 就是一群吸毒机器，神也救不了你！ http://t.cn/RL1EmWB .</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3875743521583045" target="freeweibo-mirror">是谁？ //@水木丁:接右：主管"交通运输和港口、市政公路等…</a>
 </h2>
@@ -114,25 +114,25 @@
 </h2>
 <p>SPAM [吃惊][泪]//@追唐-如东李忠: //@前18:图片SB说会记住他们的名字，真TMD廉价货//@国民女神勇敢的心02: //@裟僧情怀: //@小军的自油22: //@半天鸟: [吃驚]</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3875730188456222" target="freeweibo-mirror">SPAM [淚]</a>
 </h2>
 <p>SPAM [淚]<br><br>RE: 不让说的秘密 还有多少？<br><img src="http://ww3.sinaimg.cn/large/0064Oextjw1ev22f1x147j30c80lqt9i.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3875730137607112" target="freeweibo-mirror">SPAM //@丰人杰先生:内涵丰富啊！//@泰山之巅一疯僧…</a>
 </h2>
 <p>SPAM //@丰人杰先生:内涵丰富啊！//@泰山之巅一疯僧:[挖鼻]<br><br>RE: 哈哈哈哈右图<br><img src="http://ww4.sinaimg.cn/large/005LBnzwjw1ev20o7ygs9j30yi1pcau3.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3875729273563490" target="freeweibo-mirror">不让说的秘密 还有多少？</a>
 </h2>
 <p>不让说的秘密 还有多少？<br><img src="http://ww3.sinaimg.cn/large/0064Oextjw1ev22f1x147j30c80lqt9i.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3875727529426065" target="freeweibo-mirror">真对不起你们,就死了这么点人~//@木静子嫣：麻痹！中国政府…</a>
 </h2>
