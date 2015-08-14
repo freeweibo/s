@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3875666858131143" target="freeweibo-mirror">SPAM 追责</a>
+</h2>
+<p>SPAM 追责</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3875564958386512" target="freeweibo-mirror">//@小模小样： 能不能再还原一下，谁打电话给消防人员？消防…</a>
 </h2>
 <p>//@小模小样： 能不能再还原一下，谁打电话给消防人员？消防人员进入现场之后有找到起火地点相关负责人并询问现场有什么易燃易爆物品吗？//@财经网:【需要读清楚】并非消防人员不知道危险品不能沾水，而是消防人员不知道有不能沾水的危险化学品。<br><br>RE: 【爆炸现场，消防员未被告知不能用水灭火】记者在医院采访了一名第一批前往火灾现场的消防队员。据他介绍，现场并无人告知他们有不能沾水的危险化学品。大家就按照正常途径用水来救火。“开始是一个集装箱，大概喷水10多分钟，听见啪啪啪响，然后集装箱就亮了。”@南方周末 http://t.cn/RL1A6zw<br><img src="http://ww4.sinaimg.cn/large/61e04755gw1ev1batctl8j20bk07bwfa.jpg"></p>
@@ -48,13 +54,13 @@
 </h2>
 <p>SPAM 呼吁消防去军事化，转职业化；去勇敢性，实现科学性！我分享了@徐静波微博 的文章 http://t.cn/RL1V4MN</p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3875553692006938" target="freeweibo-mirror">SPAM 为什么不能向小日本学习？？？ 我分享了http:/…</a>
 </h2>
 <p>SPAM 为什么不能向小日本学习？？？ 我分享了http://t.cn/RL1V4MN</p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3875550970508293" target="freeweibo-mirror">分享@徐静波微博 的文章 http://t.cn/RL1V4…</a>
 </h2>
@@ -84,7 +90,7 @@
 </h2>
 <p>//@弓長杰://@潘石屹:</p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3875535996495400" target="freeweibo-mirror">//@北京麦子2010:把财经网和南方周末隔一个抓一群，一个…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3875528815669822" target="freeweibo-mirror">//@刘丹禅: 天啊！</a>
 </h2>
 <p>//@刘丹禅: 天啊！<br><br>RE: youtube上外国网友拍摄到的天津塘沽大爆炸全过程。。。应该是目前距离最近最清晰的视频了，太可怕！[泪]http://t.cn/RL3ssvt</p>
-<p>
-	<small> ============== 10小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3875527355809627" target="freeweibo-mirror">看了视频才震惊到！有些愤怒！危险品仓库怎么规划的！离居民区这…</a>
-</h2>
-<p>看了视频才震惊到！有些愤怒！危险品仓库怎么规划的！离居民区这么近！[蜡烛][蜡烛][蜡烛] 求真相！<br><br>RE: #世界上最帅的逆行##天津塘沽大爆炸#【目前为止最可怕的现场视频】现场还有小孩哭声和建筑物的倒塌声，不知道视频作者怎么了样？[泪]http://t.cn/RL3r6oT</p>
 <p>
 	<small> ============== 10小时前</small>
 </p>
