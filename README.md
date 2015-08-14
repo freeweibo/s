@@ -78,7 +78,7 @@
 </h2>
 <p>SPAM 转出来大家批判一下//@只配叫猪://@只配抬那个杠: 中文版出来了。//@肖雪慧40: 先转！</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3875730373081904" target="freeweibo-mirror">SPAM [吃惊][泪]//@追唐-如东李忠: //@前18…</a>
 </h2>
