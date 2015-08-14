@@ -26,9 +26,21 @@
 <p>
 	<small> ============== 1小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3875679118697277" target="freeweibo-mirror">阅</a>
+</h2>
+<p>阅<br><br>RE: 出了这么大的事儿，还阅兵吗？</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3875666858131143" target="freeweibo-mirror">SPAM 追责</a>
 </h2>
 <p>SPAM 追责</p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3875666489298177" target="freeweibo-mirror">全世界的人都是傻子吗，看视频那么大的爆炸会牺牲只有50人？牺…</a>
+</h2>
+<p>全世界的人都是傻子吗，看视频那么大的爆炸会牺牲只有50人？牺牲的消防官兵都快占所谓官方死亡数目一半了。错就是错，勇敢面对，实事求是，想着掩耳盗铃还不如早日妥善解决问题才更能对得起牺牲的民众们。<br><br>RE: 妈个逼的，都已经被炸得这个样了，你们还他妈的遮遮掩掩干什么？给个真相有那么难吗？<br><img src="http://ww3.sinaimg.cn/large/0066MXzDjw1ev1gmmeaq0j30k00zlgr8.jpg"></p>
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
@@ -49,6 +61,12 @@
 <p>站在船头了么？<br><img src="http://ww2.sinaimg.cn/large/5920f545jw1ev1ulbnxp2j20v716ktf9.jpg"></p>
 <p>
 	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3875651729990734" target="freeweibo-mirror">//@番禺无良人://@一缕夏日阳光168: 真相到底是什么…</a>
+</h2>
+<p>//@番禺无良人://@一缕夏日阳光168: 真相到底是什么 //@孟庆泉律师://@崩盘手:其实不觉得事故至今入院诊治的消防战士人数出奇的少吗？难道派的人少？不是的，他们响应很快，也派了很多人去……[蜡烛]<br><br>RE: 妈个逼的，都已经被炸得这个样了，你们还他妈的遮遮掩掩干什么？给个真相有那么难吗？<br><img src="http://ww3.sinaimg.cn/large/0066MXzDjw1ev1gmmeaq0j30k00zlgr8.jpg"></p>
+<p>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3875648642996014" target="freeweibo-mirror">SPAM  //@LUCY若水:是的，上海这方面做的很好，航…</a>
 </h2>
@@ -72,7 +90,7 @@
 </h2>
 <p>SPAM 很不错的文章 我分享了http://t.cn/RL1V4MN</p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3875557433798716" target="freeweibo-mirror">//@天圆地方3511E: 转发微博</a>
 </h2>
@@ -119,24 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3875540001694730" target="freeweibo-mirror">[吃惊]//@袁裕来律师://@徐昕:千万别出问题 //@顾…</a>
 </h2>
 <p>[吃惊]//@袁裕来律师://@徐昕:千万别出问题 //@顾峰: //@迟夙生律师: //@深圳老崔:无论如何，都应该立即部署对自来水的严格检测，没事当然最好。<br><br>RE: 从下水道里检测出含有氰化纳的成份，证明存放在爆炸现场的700吨氯化钠已经泄露了。氰化钠是一种剧毒的化学用品，当年纳粹毒气室里面使用的就是氰化钠，氰气钠50毫克即可瞬间致人死亡，700吨是什么概念？如果此事处理不当，比爆炸要可怕的多。思之极恐！<br><img src="http://ww1.sinaimg.cn/large/006bhobbjw1ev1dhnwrraj30k00ekgon.jpg"></p>
-<p>
-	<small> ============== 11小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3875539099647991" target="freeweibo-mirror">妈个逼的，都已经被炸得这个样了，你们还他妈的遮遮掩掩干什么？…</a>
-</h2>
-<p>妈个逼的，都已经被炸得这个样了，你们还他妈的遮遮掩掩干什么？给个真相有那么难吗？<br><img src="http://ww3.sinaimg.cn/large/0066MXzDjw1ev1gmmeaq0j30k00zlgr8.jpg"></p>
-<p>
-	<small> ============== 11小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3875538441912017" target="freeweibo-mirror">//@弓長杰://@潘石屹:</a>
-</h2>
-<p>//@弓長杰://@潘石屹:</p>
-<p>
-	<small> ============== 11小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3875535996495400" target="freeweibo-mirror">//@北京麦子2010:把财经网和南方周末隔一个抓一群，一个…</a>
-</h2>
-<p>//@北京麦子2010:把财经网和南方周末隔一个抓一群，一个都不会冤枉…新浪封不封他们的博是资本家的行为，这个执政党如果允许如此混淆概念的玩意儿张嘴胡说，只能说，灭了全部，没人会同情你们…是你们在作死！//@人世间的看客:你们以为消防人员是傻子吗，你们听说过干粉灭火吗，你们知道泡沫灭火吗？<br><br>RE: 【爆炸现场，消防员未被告知不能用水灭火】记者在医院采访了一名第一批前往火灾现场的消防队员。据他介绍，现场并无人告知他们有不能沾水的危险化学品。大家就按照正常途径用水来救火。“开始是一个集装箱，大概喷水10多分钟，听见啪啪啪响，然后集装箱就亮了。”@南方周末 http://t.cn/RL1A6zw<br><img src="http://ww4.sinaimg.cn/large/61e04755gw1ev1batctl8j20bk07bwfa.jpg"></p>
 <p>
 	<small> ============== 11小时前</small>
 </p>
