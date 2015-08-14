@@ -24,7 +24,7 @@
 </h2>
 <p>一群白痴以为自己在救火，真令人感动[熊猫]//@克勤在线: //@麻毛雄://@一线治病救人: @白云鹏V:他们不知道那是电石！没人告诉他们，这才是关键！<br><br>RE: 没有新闻的天津发生爆炸性的新闻震惊中外[吃惊][吃惊][吃惊] 然而，令人万万不敢承认也不能接受的是，种种迹象表明，爆炸事故可能来自消防员的不当施救——往上百吨的电石喷了近20分钟的水[嘘][嘘][嘘] 于是一个原本普通的火灾，酿成了一场惊天动地的大爆炸[霹雳][霹雳][霹雳]@信华叉烧包 [群体围观]<br><img src="http://ww2.sinaimg.cn/large/4a201e27gw1ev1uou40tbj20rs0f1ad1.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3875679118697277" target="freeweibo-mirror">阅</a>
 </h2>
@@ -59,6 +59,12 @@
 	<a href="https://freeweibo.com/weibo/3875663297202942" target="freeweibo-mirror">//@演员孙海英: 转发微博</a>
 </h2>
 <p>//@演员孙海英: 转发微博<br><br>RE: 妈个逼的，都已经被炸得这个样了，你们还他妈的遮遮掩掩干什么？给个真相有那么难吗？<br><img src="http://ww3.sinaimg.cn/large/0066MXzDjw1ev1gmmeaq0j30k00zlgr8.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3875661908854020" target="freeweibo-mirror">没有新闻的天津发生爆炸性的新闻震惊中外[吃惊][吃惊][吃惊…</a>
+</h2>
+<p>没有新闻的天津发生爆炸性的新闻震惊中外[吃惊][吃惊][吃惊] 然而，令人万万不敢承认也不能接受的是，种种迹象表明，爆炸事故可能来自消防员的不当施救——往上百吨的电石喷了近20分钟的水[嘘][嘘][嘘] 于是一个原本普通的火灾，酿成了一场惊天动地的大爆炸[霹雳][霹雳][霹雳]@信华叉烧包 [群体围观]<br><img src="http://ww2.sinaimg.cn/large/4a201e27gw1ev1uou40tbj20rs0f1ad1.jpg"></p>
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
@@ -120,7 +126,7 @@
 </h2>
 <p>分享@徐静波微博 的文章 http://t.cn/RL1V4MN</p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3875544636941772" target="freeweibo-mirror">SPAM 兴你妈的个头</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3875540895087537" target="freeweibo-mirror">用“陈书记”的称谓已不合适，但上海经验无疑值得天津反思。究竟…</a>
 </h2>
 <p>用“陈书记”的称谓已不合适，但上海经验无疑值得天津反思。究竟是谁，决定将天津港区建在市内？<br><img src="http://ww3.sinaimg.cn/large/7867052djw1ev1gt8uekrj20ci0m8gn9.jpg"></p>
-<p>
-	<small> ============== 11小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3875540492969931" target="freeweibo-mirror">//@胡坤821:</a>
-</h2>
-<p>//@胡坤821:</p>
 <p>
 	<small> ============== 11小时前</small>
 </p>
