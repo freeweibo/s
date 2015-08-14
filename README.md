@@ -66,7 +66,7 @@
 </h2>
 <p>//@仍旧相信光明://@白帽青衫: //@星xc辰D33://@还是南开老魏://@惊醒的家奴3: //@奶香小豆包2: //@惊醒的家奴4: //@孤家寡哥89: 转发微博<br><br>RE: 分享图片<br><img src="http://ww1.sinaimg.cn/large/006aJuQ1jw1ev2kjz4lkfj30bt0qogoe.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3875908534026900" target="freeweibo-mirror">原来毯星毛泽东没有挤进四巨头合照，只好发单人艺术照</a>
 </h2>
