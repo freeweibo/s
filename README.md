@@ -42,7 +42,7 @@
 </h2>
 <p>新闻满天飞。[疑问]//@无肉不欢911://@克利马查:转发微博<br><br>RE: 八月十二日二十三点左右天津发生了一点小火，在我们领导的重视下、在消防员的英勇善战下，火势迅速泼灭，这有助于我们在未来的突发火灾事故中的很好演练。这次事故党中央非常重视，表明了我国是一个多元化、重防范的大国。http://t.cn/RL1rwSt<br><img src="http://ww4.sinaimg.cn/large/957ec276jw1ev26ftigyuj20f00qodke.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3875776602450298" target="freeweibo-mirror">不可能的吧？</a>
 </h2>
@@ -65,6 +65,12 @@
 	<a href="https://freeweibo.com/weibo/3875771669906242" target="freeweibo-mirror">从前有个公安分局，当年老百姓反对建危险品仓储区，第一线镇压的…</a>
 </h2>
 <p>从前有个公安分局，当年老百姓反对建危险品仓储区，第一线镇压的就是该局干警，抓了不少人，拘留一批，判了几个，事态就平息了。有一天仓储区危险品大爆炸，公安分局的办公楼因为紧俟着仓储区，楼炸没了，多数干警连尸首都没有找着，那个惨啊！……我说的这事不是中国，是发生在万恶的美国。转</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3875770994336501" target="freeweibo-mirror">八月十二日二十三点左右天津发生了一点小火，在我们领导的重视下…</a>
+</h2>
+<p>八月十二日二十三点左右天津发生了一点小火，在我们领导的重视下、在消防员的英勇善战下，火势迅速泼灭，这有助于我们在未来的突发火灾事故中的很好演练。这次事故党中央非常重视，表明了我国是一个多元化、重防范的大国。http://t.cn/RL1rwSt<br><img src="http://ww4.sinaimg.cn/large/957ec276jw1ev26ftigyuj20f00qodke.jpg"></p>
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
@@ -96,7 +102,7 @@
 </h2>
 <p>//@时报翔哥://@慵懒不是懒://@知小更: //@驻津办李主任://@LayingQe:只峰他爹是原天津市副市长只升华 只升华曾负责天津市港口 交通运输 消防等工作 剩下我就不知道了哦 另外李瑞海是李瑞环常委的弟弟</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3875755227940223" target="freeweibo-mirror">这也值得说？再说，真是他本人“反应”么？其实是班子反应啦！别…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3875749179937735" target="freeweibo-mirror">心里默念：救救我…救救我…救救我…</a>
 </h2>
 <p>心里默念：救救我…救救我…救救我…</p>
-<p>
-	<small> ============== 3小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3875748887055937" target="freeweibo-mirror">//@宋海聚: //@夜之沉风: 转发微博</a>
-</h2>
-<p>//@宋海聚: //@夜之沉风: 转发微博<br><br>RE: 分享图片<br><img src="http://ww1.sinaimg.cn/large/ea0a5e30jw1ev0wf9lc55j20qo0gumyz.jpg"></p>
 <p>
 	<small> ============== 3小时前</small>
 </p>
