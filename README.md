@@ -30,7 +30,7 @@
 </h2>
 <p>剧毒//@平凡樵丁:转发微博<br><br>RE: 以前有灾害发生，都是各级领导“第一时间赶赴现场”，电视报道，多好的作秀的机会啊。可这回，李克强也没去，市委书记也没去，这是为毛呢？--因为现场有毒！</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3875825491091521" target="freeweibo-mirror">@公安部刑侦局 一阅 //@贵州一兵:[汗]//@红色奥巴马…</a>
 </h2>
@@ -48,7 +48,7 @@
 </h2>
 <p>逾千人罹难??//@杨子评: [吃惊]//@李不白的空间:[吃惊]//@静静的雪hu-: [吃惊]<br><br>RE: 台媒《自由时报》报道：天津大爆炸，逾千人罹难。<br><img src="http://ww3.sinaimg.cn/large/d560177djw1ev2bw61ketj20nq0hsjvv.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3875814607418517" target="freeweibo-mirror">//@洛阳阿灿: //@华富婧:转发微博</a>
 </h2>
@@ -90,7 +90,7 @@
 </h2>
 <p>//@司马南:转发微博<br><br>RE: 【是政府白白牺牲消防员，还是王石传谣？】“burn down”谣言的出炉，是公知日杂群体为了使他们攻击党和政府更有说服力而已。拥有“党内自由派权贵二代”与国际富豪中国代言人的双重政治身份的王石则是谣言传播的重要鼓吹手之一。http://t.cn/RL1e9nj<br><img src="http://ww1.sinaimg.cn/large/005vdi3igw1ev29gw6g8cj30c8bzehdu.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3875805887492180" target="freeweibo-mirror">天津瑞海国际物流有限公司，董事长：李亮。图一中间为李瑞海，图…</a>
 </h2>
