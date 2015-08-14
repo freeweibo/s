@@ -102,7 +102,7 @@
 </h2>
 <p>开罗宣言[哈哈]<br><img src="http://ww2.sinaimg.cn/large/7052cea7jw1ev2k2napsbj20dw0antar.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3875876728898001" target="freeweibo-mirror">//@DopeyTom: 急工出糙活啊。[嘻嘻]//@南云楼…</a>
 </h2>
