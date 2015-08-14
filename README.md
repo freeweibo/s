@@ -42,7 +42,7 @@
 </h2>
 <p>生活在西朝鲜的悲哀 //@金子art://@画家陈浩东:[蜡烛][蜡烛]<br><br>RE: 天津港爆炸中，很可能有些人不能通过公安局直接开法律文书证明死亡，需要通过民诉法特别程序“宣告死亡”来确认，最终死亡法律程序确认可能已经是二年甚至四年之后的事情了，因为可能没有办法绝对证明爆炸时他在现场，之后尸体可能成为灰烬又无法证明尸体属于何人甚至无法证明尸体存在！悲！<br><img src="http://ww2.sinaimg.cn/large/4c148083jw1ev2bej2h1dj20qo0hrgqz.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3875810563900086" target="freeweibo-mirror">转：你在网上发条敏感信息，一分钟以后他们就知道；然而，仓库里…</a>
 </h2>
@@ -68,17 +68,23 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3875799356992139" target="freeweibo-mirror">//@博者文摘://@刘上誉://@天佑干女儿微博: 他们心…</a>
+</h2>
+<p>//@博者文摘://@刘上誉://@天佑干女儿微博: 他们心思只放在防民之口上面。<br><br>RE: 你在网上发条敏感信息，一分钟以后他们就知道；然而，仓库里有些什么危险品、有多少、谁放的、啥时候放的，炸完了好几天还是不知道。用审查言论的力度审查危险品；用搞防火墙的热情防火灾，你国的所有问题都可以迎刃而解。（转自twitter）</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3875796353981568" target="freeweibo-mirror">//@吴布衣50: //@去留无意38:草他大大的//@月半…</a>
 </h2>
 <p>//@吴布衣50: //@去留无意38:草他大大的//@月半弯肆十捌世: //@阳光快乐天使a:屁//@大力水手AAA: //@LoveForever哩: 是个屁，风一吹，就散了。 //@yihong9:一诺……//@徐幸起: //@zhuzhaoyuchen://@歴史钩沉: //@无蛋可疼_: [怒骂]//@LoveForever哩: [怒骂] //@一言知贤:[怒骂]<br><br>RE: 这是人民网刚刚报道主席的最新指示：http://t.cn/RL1R32K 新浪网也要屏蔽？<br><img src="http://ww3.sinaimg.cn/large/749bcf09jw1ev2364smh7j20ku0zadl0.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3875796081243447" target="freeweibo-mirror">SPAM //@浴过天情: 经过牠们这么一（处理）倒勾起了自…</a>
 </h2>
 <p>SPAM //@浴过天情: 经过牠们这么一（处理）倒勾起了自我分析和猎奇的欲望！[围观][围观][围观]<br><br>RE: 分享图片<br><img src="http://ww4.sinaimg.cn/large/6bd14ac0jw1ev20k3vlyej20c80lqmye.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3875795111684275" target="freeweibo-mirror">SPAM //@吴布衣50: //@熊大鳌:化学反应，人的骨…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3875784420250267" target="freeweibo-mirror">一声叹息。//@吴伟bj:是的，掩盖真相的根子不在媒体，更不…</a>
 </h2>
 <p>一声叹息。//@吴伟bj:是的，掩盖真相的根子不在媒体，更不在记者们。[怒骂][抓狂]<br><br>RE: 具体伤亡数字.尽管公众多有质疑的声音.但请别把板子打在媒体身上.你没做过媒体你不知道，碰到这样的突发事件，有关部门首先想到的是下禁令，封锁消息，不听话的就会被秋后算账.当年汶川大地震，我作为前线编辑部成员，就是如此.刚开始是不允许报道的，后来突破禁令.再后来.南方报业集团子媒普遍被算账.</p>
-<p>
-	<small> ============== 3小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3875784378615370" target="freeweibo-mirror">//@李方平律师://@幽壹:转发微博</a>
-</h2>
-<p>//@李方平律师://@幽壹:转发微博<br><br>RE: 出来后，我才发现，我是三个人里被搜得最仔细的，还删掉了手机照片，还删了电脑照片。在搜查结束后，出来之前，一个警察还大声呵斥我：“脱掉鞋子！”他怀疑我在鞋里藏了东西，真是too young，too simple，还让我掀开鞋垫看。当然他一无所获——一个年轻记者的现场拍摄手记http://t.cn/RL1pNTA<br><img src="http://ww3.sinaimg.cn/large/5d7ca92cjw1ev22w267e8j20hs0buq6b.jpg"></p>
 <p>
 	<small> ============== 3小时前</small>
 </p>
