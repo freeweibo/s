@@ -32,6 +32,42 @@
 <p>
 	<small> ============== 1小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3875796081243447" target="freeweibo-mirror">SPAM //@浴过天情: 经过牠们这么一（处理）倒勾起了自…</a>
+</h2>
+<p>SPAM //@浴过天情: 经过牠们这么一（处理）倒勾起了自我分析和猎奇的欲望！[围观][围观][围观]<br><br>RE: 分享图片<br><img src="http://ww4.sinaimg.cn/large/6bd14ac0jw1ev20k3vlyej20c80lqmye.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3875795111684275" target="freeweibo-mirror">SPAM //@吴布衣50: //@熊大鳌:化学反应，人的骨…</a>
+</h2>
+<p>SPAM //@吴布衣50: //@熊大鳌:化学反应，人的骨头都可以瞬间消失。//@枫叶aaa红了:[吃惊][泪] //@湘江冷雨:[吃惊]//@文庙79先知:只须一瞬间。。。<br><br>RE: 人变成这样了？[吃惊]<br><img src="http://ww1.sinaimg.cn/large/df8d96b1jw1ev28o0oonjj20e509l0uw.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3875790347482876" target="freeweibo-mirror">不信正腐谣，偏信楼主“谣”——最接近真相的逆行//@林檎_:…</a>
+</h2>
+<p>不信正腐谣，偏信楼主“谣”——最接近真相的逆行//@林檎_:比起你党的新闻，这个当然更接近真相，谁不同意谁的妈就炸了<br><br>RE: 分享图片<br><img src="http://ww4.sinaimg.cn/large/6bd14ac0jw1ev20k3vlyej20c80lqmye.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3875790107920594" target="freeweibo-mirror">SPAM [蜡烛][可憐][蜡烛][淚][蜡烛][怒]</a>
+</h2>
+<p>SPAM [蜡烛][可憐][蜡烛][淚][蜡烛][怒]<br><br>RE: 分享图片<br><img src="http://ww4.sinaimg.cn/large/6bd14ac0jw1ev20k3vlyej20c80lqmye.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3875789965194952" target="freeweibo-mirror">//@安安5116://@深夜一只猫:没收公知的键盘和鼠标！…</a>
+</h2>
+<p>//@安安5116://@深夜一只猫:没收公知的键盘和鼠标！ //@Soarian: 公知们真讨厌，左一个主意右一个主意//@深夜一只猫:转发微博<br><br>RE: 有人发文质疑Burn Down。本人也无从确认是否在国际上存在这么一个原则。但是，中共国家安全监管局办公厅先后两次印发重点监管的危险化学品安全措施和应急处置原则的通知，在10.硝基胍、13硝化甘油的应急处置原则里，明确规定了如下内容：如处于火场中，严禁灭火，任其自行燃烧。@王志安<br><img src="http://ww2.sinaimg.cn/large/51ac59cbjw1ev1zyhiisaj20um0l0adw.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3875789294546842" target="freeweibo-mirror">[酷]//@月光手帕伊莲娜: 这次天津的事故如此之大，应该杀…</a>
+</h2>
+<p>[酷]//@月光手帕伊莲娜: 这次天津的事故如此之大，应该杀一批以平民愤吧//@上樟农民:呵呵！也只能呵呵了！<br><br>RE: 这是人民网刚刚报道主席的最新指示：http://t.cn/RL1R32K 新浪网也要屏蔽？<br><img src="http://ww3.sinaimg.cn/large/749bcf09jw1ev2364smh7j20ku0zadl0.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3875786312487235" target="freeweibo-mirror">//@北京崔卫平://@李方平律师://@幽壹:转发微博</a>
 </h2>
 <p>//@北京崔卫平://@李方平律师://@幽壹:转发微博<br><br>RE: 出来后，我才发现，我是三个人里被搜得最仔细的，还删掉了手机照片，还删了电脑照片。在搜查结束后，出来之前，一个警察还大声呵斥我：“脱掉鞋子！”他怀疑我在鞋里藏了东西，真是too young，too simple，还让我掀开鞋垫看。当然他一无所获——一个年轻记者的现场拍摄手记http://t.cn/RL1pNTA<br><img src="http://ww3.sinaimg.cn/large/5d7ca92cjw1ev22w267e8j20hs0buq6b.jpg"></p>
@@ -103,42 +139,6 @@
 <p>SPAM //@王有旺导演://@听古道今log: 绝对值得一读，有料！[话筒][话筒]<br><br>RE: 八月十二日二十三点左右天津发生了一点小火，在我们领导的重视下、在消防员的英勇善战下，火势迅速泼灭，这有助于我们在未来的突发火灾事故中的很好演练。这次事故党中央非常重视，表明了我国是一个多元化、重防范的大国。http://t.cn/RL1rwSt<br><img src="http://ww4.sinaimg.cn/large/957ec276jw1ev26ftigyuj20f00qodke.jpg"></p>
 <p>
 	<small> ============== 2小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3875775654507902" target="freeweibo-mirror">//@caowumao: //@公正善良: //@博志言论_…</a>
-</h2>
-<p>//@caowumao: //@公正善良: //@博志言论_:封锁消息，掩盖真相是对生命最卑鄙的尊重。。。<br><br>RE: 出来后，我才发现，我是三个人里被搜得最仔细的，还删掉了手机照片，还删了电脑照片。在搜查结束后，出来之前，一个警察还大声呵斥我：“脱掉鞋子！”他怀疑我在鞋里藏了东西，真是too young，too simple，还让我掀开鞋垫看。当然他一无所获——一个年轻记者的现场拍摄手记http://t.cn/RL1pNTA<br><img src="http://ww3.sinaimg.cn/large/5d7ca92cjw1ev22w267e8j20hs0buq6b.jpg"></p>
-<p>
-	<small> ============== 2小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3875774396224935" target="freeweibo-mirror">[哈哈][哈哈]//@景莲Gale: [哈哈][哈哈][哈哈…</a>
-</h2>
-<p>[哈哈][哈哈]//@景莲Gale: [哈哈][哈哈][哈哈]//@陇上一哥:[耶]<br><br>RE: 从前有个公安分局，当年老百姓反对建危险品仓储区，第一线镇压的就是该局干警，抓了不少人，拘留一批，判了几个，事态就平息了。有一天仓储区危险品大爆炸，公安分局的办公楼因为紧俟着仓储区，楼炸没了，多数干警连尸首都没有找着，那个惨啊！……我说的这事不是中国，是发生在万恶的美国。转</p>
-<p>
-	<small> ============== 2小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3875772668515151" target="freeweibo-mirror">//@徐幸起://@zhuzhaoyuchen://@歴史钩…</a>
-</h2>
-<p>//@徐幸起://@zhuzhaoyuchen://@歴史钩沉: //@无蛋可疼_: [怒骂]//@LoveForever哩: [怒骂] //@一言知贤:[怒骂]//@路见不平踩一下: 转发微博<br><br>RE: 这是人民网刚刚报道主席的最新指示：http://t.cn/RL1R32K 新浪网也要屏蔽？<br><img src="http://ww3.sinaimg.cn/large/749bcf09jw1ev2364smh7j20ku0zadl0.jpg"></p>
-<p>
-	<small> ============== 3小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3875772035166648" target="freeweibo-mirror">具体伤亡数字.尽管公众多有质疑的声音.但请别把板子打在媒体身…</a>
-</h2>
-<p>具体伤亡数字.尽管公众多有质疑的声音.但请别把板子打在媒体身上.你没做过媒体你不知道，碰到这样的突发事件，有关部门首先想到的是下禁令，封锁消息，不听话的就会被秋后算账.当年汶川大地震，我作为前线编辑部成员，就是如此.刚开始是不允许报道的，后来突破禁令.再后来.南方报业集团子媒普遍被算账.</p>
-<p>
-	<small> ============== 3小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3875771669906242" target="freeweibo-mirror">从前有个公安分局，当年老百姓反对建危险品仓储区，第一线镇压的…</a>
-</h2>
-<p>从前有个公安分局，当年老百姓反对建危险品仓储区，第一线镇压的就是该局干警，抓了不少人，拘留一批，判了几个，事态就平息了。有一天仓储区危险品大爆炸，公安分局的办公楼因为紧俟着仓储区，楼炸没了，多数干警连尸首都没有找着，那个惨啊！……我说的这事不是中国，是发生在万恶的美国。转</p>
-<p>
-	<small> ============== 3小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3875770994336501" target="freeweibo-mirror">八月十二日二十三点左右天津发生了一点小火，在我们领导的重视下…</a>
-</h2>
-<p>八月十二日二十三点左右天津发生了一点小火，在我们领导的重视下、在消防员的英勇善战下，火势迅速泼灭，这有助于我们在未来的突发火灾事故中的很好演练。这次事故党中央非常重视，表明了我国是一个多元化、重防范的大国。http://t.cn/RL1rwSt<br><img src="http://ww4.sinaimg.cn/large/957ec276jw1ev26ftigyuj20f00qodke.jpg"></p>
-<p>
-	<small> ============== 3小时前</small>
 </p>
 <table>
     <tr>
