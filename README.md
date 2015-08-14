@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3875753345255783" target="freeweibo-mirror">宣传只有一个目标，就是征服群众。 ——戈培尔http://t…</a>
+</h2>
+<p>宣传只有一个目标，就是征服群众。 ——戈培尔http://t.cn/RL1uwFS<br><img src="http://ww4.sinaimg.cn/large/8dd387a8gw1ev256uubx8j20kk0dnjt9.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3875751369627288" target="freeweibo-mirror">//@黑土邦德://@有间美苑: 转：瑞海神秘老板大揭秘：董…</a>
 </h2>
 <p>//@黑土邦德://@有间美苑: 转：瑞海神秘老板大揭秘：董蒙蒙，原天津港公安分局局长董培军之子。大学毕业后，董培军为其子做假军籍被告发。09年成立工程队，承接公安局三项工程，敛财上亿！瑞海公司成立之时，天津港物流发展、天津港安监部、天津海事局、天津港公安分局消防支队为其开绿灯，终酿<br><br>RE: 【只峰是谁？】天津滨海新区爆炸事故第二场新闻发布会结束时，现场记者大喊：只峰是谁？！没有回应。本报记者郝成</p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3875721158488490" target="freeweibo-mirror">//@花和尚一打白骨精:信息公开，是第一步，必须要求和支持。…</a>
 </h2>
 <p>//@花和尚一打白骨精:信息公开，是第一步，必须要求和支持。五毛，是帮助贼子逆臣来祸害子孙，羞辱祖先的无知乞丐。<br><br>RE: 【只峰是谁？】天津滨海新区爆炸事故第二场新闻发布会结束时，现场记者大喊：只峰是谁？！没有回应。本报记者郝成</p>
-<p>
-	<small> ============== 3小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3875718171259924" target="freeweibo-mirror">这么大巧合？//@中殷:哦?![汗]</a>
-</h2>
-<p>这么大巧合？//@中殷:哦?![汗]<br><br>RE: 天津爆炸企业瑞海国际确实与只升华没关系，背景另有他人，各手续都是特批。特大老虎要出笼了<br><img src="http://ww4.sinaimg.cn/large/005QCzycjw1ev1xniqr4pj30fa09ht9u.jpg"></p>
 <p>
 	<small> ============== 3小时前</small>
 </p>
