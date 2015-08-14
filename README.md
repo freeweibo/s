@@ -80,6 +80,12 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3875767437889778" target="freeweibo-mirror">出来后，我才发现，我是三个人里被搜得最仔细的，还删掉了手机照…</a>
+</h2>
+<p>出来后，我才发现，我是三个人里被搜得最仔细的，还删掉了手机照片，还删了电脑照片。在搜查结束后，出来之前，一个警察还大声呵斥我：“脱掉鞋子！”他怀疑我在鞋里藏了东西，真是too young，too simple，还让我掀开鞋垫看。当然他一无所获——一个年轻记者的现场拍摄手记http://t.cn/RL1pNTA<br><img src="http://ww3.sinaimg.cn/large/5d7ca92cjw1ev22w267e8j20hs0buq6b.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3875765529343373" target="freeweibo-mirror">是！</a>
 </h2>
 <p>是！<br><br>RE: 其实在有些人眼里，民众担心的氰化钠和易燃易爆化学品都不是危险品，真正的危险品是【自由和真相】，才是最大的敌人。这种认知差别，反映出这国家各种苦难，都是惊人的相似。<br><img src="http://ww1.sinaimg.cn/large/749bcf09jw1ev26iierk0j21120kuq73.jpg"></p>
@@ -92,11 +98,17 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3875764690865952" target="freeweibo-mirror">其实在有些人眼里，民众担心的氰化钠和易燃易爆化学品都不是危险…</a>
+</h2>
+<p>其实在有些人眼里，民众担心的氰化钠和易燃易爆化学品都不是危险品，真正的危险品是【自由和真相】，才是最大的敌人。这种认知差别，反映出这国家各种苦难，都是惊人的相似。<br><img src="http://ww1.sinaimg.cn/large/749bcf09jw1ev26iierk0j21120kuq73.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3875764040170799" target="freeweibo-mirror">//@开心就好Edison:瑞海公司的负责人叫李瑞海，只峰是…</a>
 </h2>
 <p>//@开心就好Edison:瑞海公司的负责人叫李瑞海，只峰是法人代表。百度上搜李瑞环，再搜李瑞环李瑞海，百度会告诉你他们的关系[呵呵]只峰和只升华（前天津市副市长，分管公安，消防，海运）的关系大家也都知道</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3875762450963009" target="freeweibo-mirror">//@时报翔哥://@慵懒不是懒://@知小更: //@驻津…</a>
 </h2>
@@ -125,18 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3875750258051208" target="freeweibo-mirror">总算又看到一个正常的律师了 //@mammoth6666:凡…</a>
 </h2>
 <p>总算又看到一个正常的律师了 //@mammoth6666:凡事前诸葛亮者，一律拿下，关秦城去！</p>
-<p>
-	<small> ============== 3小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3875750207320488" target="freeweibo-mirror">这下跑不了了//@隆裕太后: //@反腐剑客2015: 他们…</a>
-</h2>
-<p>这下跑不了了//@隆裕太后: //@反腐剑客2015: 他们之间到底是什么关系？一个民营企业为什么可以突破国务院危险品堆场1000米的禁令？<br><br>RE: 【他们都是什么人？是什么关系？】#天津港大爆炸# 只峰，天津爆炸企业瑞海公司董事长兼总经理；只峰 舒铮 尚庆森 曹海军 李亮…都是董事。只升华，1951年7月生，2003年-2012年任天津市副市长，分管市区工作及交通运输、港口、公安消防边防等。期间兼任滨海新区工委副书记、市政法委副书记。<br><img src="http://ww2.sinaimg.cn/large/d2da14c2jw1ev22oa85smj20b407474x.jpg"></p>
-<p>
-	<small> ============== 3小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3875749179937735" target="freeweibo-mirror">心里默念：救救我…救救我…救救我…</a>
-</h2>
-<p>心里默念：救救我…救救我…救救我…</p>
 <p>
 	<small> ============== 3小时前</small>
 </p>
