@@ -134,9 +134,9 @@
 <p>
 	<small> ============== 4小时前</small>
 </p><h2>
-	<a href="https://freeweibo.com/weibo/3875790107920594" target="freeweibo-mirror">SPAM [蜡烛][可憐][蜡烛][淚][蜡烛][怒]</a>
+	<a href="https://freeweibo.com/weibo/3875790288515824" target="freeweibo-mirror">【是政府白白牺牲消防员，还是王石传谣？】“burn down…</a>
 </h2>
-<p>SPAM [蜡烛][可憐][蜡烛][淚][蜡烛][怒]<br><br>RE: 分享图片<br><img src="http://ww4.sinaimg.cn/large/6bd14ac0jw1ev20k3vlyej20c80lqmye.jpg"></p>
+<p>【是政府白白牺牲消防员，还是王石传谣？】“burn down”谣言的出炉，是公知日杂群体为了使他们攻击党和政府更有说服力而已。拥有“党内自由派权贵二代”与国际富豪中国代言人的双重政治身份的王石则是谣言传播的重要鼓吹手之一。http://t.cn/RL1e9nj<br><img src="http://ww1.sinaimg.cn/large/005vdi3igw1ev29gw6g8cj30c8bzehdu.jpg"></p>
 <p>
 	<small> ============== 4小时前</small>
 </p>
