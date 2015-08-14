@@ -30,7 +30,7 @@
 </h2>
 <p>宣传只有一个目标，就是征服群众。 ——戈培尔http://t.cn/RL1uwFS<br><img src="http://ww4.sinaimg.cn/large/8dd387a8gw1ev256uubx8j20kk0dnjt9.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3875751369627288" target="freeweibo-mirror">//@黑土邦德://@有间美苑: 转：瑞海神秘老板大揭秘：董…</a>
 </h2>
@@ -72,7 +72,7 @@
 </h2>
 <p>//@凤凤是个好妈妈:转发微博<br><br>RE: #天津大爆炸#到底死了多少人？这个消防战士发给战友的微信或许可见真实！一个连死亡人数都不敢公布的国家！我真想骂娘！<br><img src="http://ww3.sinaimg.cn/large/4b4d8d54gw1ev1yjac8ihj20hs0b53zf.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3875736555426812" target="freeweibo-mirror">//@淮海游子A:爆炸企业：瑞海，李瑞海，李瑞环的弟弟。//…</a>
 </h2>
