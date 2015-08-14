@@ -26,6 +26,12 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3875680737288760" target="freeweibo-mirror">回复@NoGeek:事后追责是肯定的…但是现在造谣，无中生有…</a>
+</h2>
+<p>回复@NoGeek:事后追责是肯定的…但是现在造谣，无中生有的最可耻//@NoGeek:民众更应该把目光集中在事后的追责。要不人也白死了//@内蒙小达:@平安天津 来看看这些造谣的人。 //@NoGeek:转发微博<br><br>RE: #天津塘沽大爆炸#为什么要白白牺牲无辜的群众和消防员？为什么一出事就开启感动模式？有谁来为这些死去的冤魂一个说法！面面相觑的官员到底心怀什么鬼胎？死亡人数的统计是不是不全面？让群众理智？那给个说法#塘沽爆炸真相#不要舆论覆盖！！！<br><img src="http://ww2.sinaimg.cn/large/7336bc55gw1ev1fur1cyqj20fw0lfn01.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3875679118697277" target="freeweibo-mirror">阅</a>
 </h2>
 <p>阅<br><br>RE: 出了这么大的事儿，还阅兵吗？</p>
@@ -114,13 +120,13 @@
 </h2>
 <p>SPAM 呼吁消防去军事化，转职业化；去勇敢性，实现科学性！我分享了@徐静波微博 的文章 http://t.cn/RL1V4MN</p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3875553692006938" target="freeweibo-mirror">SPAM 为什么不能向小日本学习？？？ 我分享了http:/…</a>
 </h2>
 <p>SPAM 为什么不能向小日本学习？？？ 我分享了http://t.cn/RL1V4MN</p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3875550970508293" target="freeweibo-mirror">分享@徐静波微博 的文章 http://t.cn/RL1V4…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3875544636941772" target="freeweibo-mirror">SPAM 兴你妈的个头</a>
 </h2>
 <p>SPAM 兴你妈的个头<br><br>RE: 不是自然灾害，不是战争，最怕不过国家机器的驾驶员是脑残[蜡烛]<br><img src="http://ww1.sinaimg.cn/large/6955b038gw1ev1ba7rdq7j20ci0j8wfd.jpg"></p>
-<p>
-	<small> ============== 11小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3875540895087537" target="freeweibo-mirror">用“陈书记”的称谓已不合适，但上海经验无疑值得天津反思。究竟…</a>
-</h2>
-<p>用“陈书记”的称谓已不合适，但上海经验无疑值得天津反思。究竟是谁，决定将天津港区建在市内？<br><img src="http://ww3.sinaimg.cn/large/7867052djw1ev1gt8uekrj20ci0m8gn9.jpg"></p>
 <p>
 	<small> ============== 11小时前</small>
 </p>
