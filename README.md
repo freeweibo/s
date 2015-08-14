@@ -24,11 +24,17 @@
 </h2>
 <p>@公安部刑侦局 一阅 //@贵州一兵:[汗]//@红色奥巴马: //@灰姑娘新传:[吃惊]常委张//@中产阶级文化在线: 转发微博<br><br>RE: 天津大爆炸案有个槽点，离爆炸中心几百米距离的跃进路派出所据说在此次爆炸中夷为平地？当初附近小区的居民上街抗议反对瑞海时，维稳的正是该所黑皮犬，哈哈哈！炸不塌的天津，封杀不完的文章</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3875823209991020" target="freeweibo-mirror">逾千人罹难??//@杨子评: [吃惊]//@李不白的空间:[…</a>
 </h2>
 <p>逾千人罹难??//@杨子评: [吃惊]//@李不白的空间:[吃惊]//@静静的雪hu-: [吃惊]<br><br>RE: 台媒《自由时报》报道：天津大爆炸，逾千人罹难。<br><img src="http://ww3.sinaimg.cn/large/d560177djw1ev2bw61ketj20nq0hsjvv.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3875814607418517" target="freeweibo-mirror">//@洛阳阿灿: //@华富婧:转发微博</a>
+</h2>
+<p>//@洛阳阿灿: //@华富婧:转发微博<br><br>RE: 天津瑞海国际物流有限公司，董事长：李亮。图一中间为李瑞海，图二秃深破，据说图一里那张画是图二画的，这是什么关系？<br><img src="http://ww1.sinaimg.cn/large/712cbb25gw1ev2b8zvy84j21kw16owoh.jpg"></p>
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
@@ -60,7 +66,7 @@
 </h2>
 <p>转：你在网上发条敏感信息，一分钟以后他们就知道；然而，仓库里有些什么危险品、有多少、谁放的、啥时候放的，炸完了好几天还是不知道。用审查言论的力度审查危险品；用搞防火墙的热情防火灾，你国的所有问题都可以迎刃而解。[嘻嘻]</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3875800467869339" target="freeweibo-mirror">SPAM 开罗医院、专治不孕不育症。</a>
 </h2>
@@ -102,7 +108,7 @@
 </h2>
 <p>SPAM //@吴布衣50: //@熊大鳌:化学反应，人的骨头都可以瞬间消失。//@枫叶aaa红了:[吃惊][泪] //@湘江冷雨:[吃惊]//@文庙79先知:只须一瞬间。。。<br><br>RE: 人变成这样了？[吃惊]<br><img src="http://ww1.sinaimg.cn/large/df8d96b1jw1ev28o0oonjj20e509l0uw.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3875794503918888" target="freeweibo-mirror">//@天佑干女儿微博:他们心思只放在防民之口上面。</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3875789294546842" target="freeweibo-mirror">[酷]//@月光手帕伊莲娜: 这次天津的事故如此之大，应该杀…</a>
 </h2>
 <p>[酷]//@月光手帕伊莲娜: 这次天津的事故如此之大，应该杀一批以平民愤吧//@上樟农民:呵呵！也只能呵呵了！<br><br>RE: 这是人民网刚刚报道主席的最新指示：http://t.cn/RL1R32K 新浪网也要屏蔽？<br><img src="http://ww3.sinaimg.cn/large/749bcf09jw1ev2364smh7j20ku0zadl0.jpg"></p>
-<p>
-	<small> ============== 4小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3875786312487235" target="freeweibo-mirror">//@北京崔卫平://@李方平律师://@幽壹:转发微博</a>
-</h2>
-<p>//@北京崔卫平://@李方平律师://@幽壹:转发微博<br><br>RE: 出来后，我才发现，我是三个人里被搜得最仔细的，还删掉了手机照片，还删了电脑照片。在搜查结束后，出来之前，一个警察还大声呵斥我：“脱掉鞋子！”他怀疑我在鞋里藏了东西，真是too young，too simple，还让我掀开鞋垫看。当然他一无所获——一个年轻记者的现场拍摄手记http://t.cn/RL1pNTA<br><img src="http://ww3.sinaimg.cn/large/5d7ca92cjw1ev22w267e8j20hs0buq6b.jpg"></p>
 <p>
 	<small> ============== 4小时前</small>
 </p>
