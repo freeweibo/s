@@ -38,6 +38,12 @@
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3875660714086108" target="freeweibo-mirror">站在船头了么？</a>
+</h2>
+<p>站在船头了么？<br><img src="http://ww2.sinaimg.cn/large/5920f545jw1ev1ulbnxp2j20v716ktf9.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3875648642996014" target="freeweibo-mirror">SPAM  //@LUCY若水:是的，上海这方面做的很好，航…</a>
 </h2>
 <p>SPAM  //@LUCY若水:是的，上海这方面做的很好，航运最重要的洋山港，1到9类危险品分码头堆放的，离最近的镇差不多50公里，原住民全部迁走到滴水湖。</p>
@@ -90,7 +96,7 @@
 </h2>
 <p>SPAM 兴你妈的个头<br><br>RE: 不是自然灾害，不是战争，最怕不过国家机器的驾驶员是脑残[蜡烛]<br><img src="http://ww1.sinaimg.cn/large/6955b038gw1ev1ba7rdq7j20ci0j8wfd.jpg"></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3875540895087537" target="freeweibo-mirror">用“陈书记”的称谓已不合适，但上海经验无疑值得天津反思。究竟…</a>
 </h2>
@@ -110,6 +116,12 @@
 <p>
 	<small> ============== 11小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3875539099647991" target="freeweibo-mirror">妈个逼的，都已经被炸得这个样了，你们还他妈的遮遮掩掩干什么？…</a>
+</h2>
+<p>妈个逼的，都已经被炸得这个样了，你们还他妈的遮遮掩掩干什么？给个真相有那么难吗？<br><img src="http://ww3.sinaimg.cn/large/0066MXzDjw1ev1gmmeaq0j30k00zlgr8.jpg"></p>
+<p>
+	<small> ============== 11小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3875538441912017" target="freeweibo-mirror">//@弓長杰://@潘石屹:</a>
 </h2>
 <p>//@弓長杰://@潘石屹:</p>
@@ -125,18 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3875535464093706" target="freeweibo-mirror">//@真妮花的愛心: //@-孔智勇:如此巨大的爆炸冲击波我…</a>
 </h2>
 <p>//@真妮花的愛心: //@-孔智勇:如此巨大的爆炸冲击波我一直以为是核原料，看来我想多了。 //@听古道今log:恐怖！//@诸葛文君:思之极恐！<br><br>RE: 从下水道里检测出含有氰化纳的成份，证明存放在爆炸现场的700吨氯化钠已经泄露了。氰化钠是一种剧毒的化学用品，当年纳粹毒气室里面使用的就是氰化钠，氰气钠50毫克即可瞬间致人死亡，700吨是什么概念？如果此事处理不当，比爆炸要可怕的多。思之极恐！<br><img src="http://ww1.sinaimg.cn/large/006bhobbjw1ev1dhnwrraj30k00ekgon.jpg"></p>
-<p>
-	<small> ============== 11小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3875533542349378" target="freeweibo-mirror">//@陈维伟: [蜡烛][蜡烛][蜡烛] //@潘石屹: /…</a>
-</h2>
-<p>//@陈维伟: [蜡烛][蜡烛][蜡烛] //@潘石屹: //@刘春:[泪]<br><br>RE: youtube上外国网友拍摄到的天津塘沽大爆炸全过程。。。应该是目前距离最近最清晰的视频了，太可怕！[泪]http://t.cn/RL3ssvt</p>
-<p>
-	<small> ============== 11小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3875532897080297" target="freeweibo-mirror">老外貌似在幸灾乐祸？//@快乐至上小玉:[泪][泪] //@…</a>
-</h2>
-<p>老外貌似在幸灾乐祸？//@快乐至上小玉:[泪][泪] //@云南老年:[抓狂]<br><br>RE: youtube上外国网友拍摄到的天津塘沽大爆炸全过程。。。应该是目前距离最近最清晰的视频了，太可怕！[泪]http://t.cn/RL3ssvt</p>
 <p>
 	<small> ============== 11小时前</small>
 </p>
