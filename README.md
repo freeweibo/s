@@ -132,13 +132,13 @@
 </h2>
 <p>//@北京崔卫平://@李方平律师://@幽壹:转发微博<br><br>RE: 出来后，我才发现，我是三个人里被搜得最仔细的，还删掉了手机照片，还删了电脑照片。在搜查结束后，出来之前，一个警察还大声呵斥我：“脱掉鞋子！”他怀疑我在鞋里藏了东西，真是too young，too simple，还让我掀开鞋垫看。当然他一无所获——一个年轻记者的现场拍摄手记http://t.cn/RL1pNTA<br><img src="http://ww3.sinaimg.cn/large/5d7ca92cjw1ev22w267e8j20hs0buq6b.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3875786119130701" target="freeweibo-mirror">作？//@行者老陈:真相必须由他们说了算//@任晓雯:转发微…</a>
 </h2>
 <p>作？//@行者老陈:真相必须由他们说了算//@任晓雯:转发微博<br><br>RE: 出来后，我才发现，我是三个人里被搜得最仔细的，还删掉了手机照片，还删了电脑照片。在搜查结束后，出来之前，一个警察还大声呵斥我：“脱掉鞋子！”他怀疑我在鞋里藏了东西，真是too young，too simple，还让我掀开鞋垫看。当然他一无所获——一个年轻记者的现场拍摄手记http://t.cn/RL1pNTA<br><img src="http://ww3.sinaimg.cn/large/5d7ca92cjw1ev22w267e8j20hs0buq6b.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p>
 <table>
     <tr>
