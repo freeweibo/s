@@ -60,13 +60,13 @@
 </h2>
 <p>SPAM 追责</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3875666489298177" target="freeweibo-mirror">全世界的人都是傻子吗，看视频那么大的爆炸会牺牲只有50人？牺…</a>
 </h2>
 <p>全世界的人都是傻子吗，看视频那么大的爆炸会牺牲只有50人？牺牲的消防官兵都快占所谓官方死亡数目一半了。错就是错，勇敢面对，实事求是，想着掩耳盗铃还不如早日妥善解决问题才更能对得起牺牲的民众们。<br><br>RE: 妈个逼的，都已经被炸得这个样了，你们还他妈的遮遮掩掩干什么？给个真相有那么难吗？<br><img src="http://ww3.sinaimg.cn/large/0066MXzDjw1ev1gmmeaq0j30k00zlgr8.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3875663452583407" target="freeweibo-mirror">SPAM 好图。</a>
 </h2>
@@ -96,7 +96,7 @@
 </h2>
 <p>//@番禺无良人://@一缕夏日阳光168: 真相到底是什么 //@孟庆泉律师://@崩盘手:其实不觉得事故至今入院诊治的消防战士人数出奇的少吗？难道派的人少？不是的，他们响应很快，也派了很多人去……[蜡烛]<br><br>RE: 妈个逼的，都已经被炸得这个样了，你们还他妈的遮遮掩掩干什么？给个真相有那么难吗？<br><img src="http://ww3.sinaimg.cn/large/0066MXzDjw1ev1gmmeaq0j30k00zlgr8.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3875648642996014" target="freeweibo-mirror">SPAM  //@LUCY若水:是的，上海这方面做的很好，航…</a>
 </h2>
