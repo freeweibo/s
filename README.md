@@ -30,13 +30,13 @@
 </h2>
 <p>SPAM [哈哈]//@活捉死老鼠: [哈哈][赞]//@手术刀_李医生:[哈哈] //@西门吹糠:[哈哈]腊肉好有喜感</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3875895552583046" target="freeweibo-mirror">SPAM 回复@哈哈大王MUA:他们恶心我，我就恶心他们。老…</a>
 </h2>
 <p>SPAM 回复@哈哈大王MUA:他们恶心我，我就恶心他们。老屏蔽我的正常文字 //@哈哈大王MUA:为什么图发的这样low<br><br>RE: 如图<br><img src="http://ww4.sinaimg.cn/large/59391746jw1ev2l4cewyvj20m80gojuj.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3875890943462333" target="freeweibo-mirror">确实是谈笑风生 //@科学少女喵:现在想来，竟然在中国历史上…</a>
 </h2>
@@ -102,7 +102,7 @@
 </h2>
 <p>SPAM 毛泽东不抗日的战略思想回顾。很多人不相信，也不理解。那个年代，土匪都抗日，唯独我党要保存实力，发展武装，拉着主力东躲西藏，为了抗战后夺取政权。从抗战初期的两万人，发展到抗战结束已经有“百万雄师”。如果没有策略，真心抗日，那区区两万人早就打光了，后来拿什么夺取政权？<br><img src="http://ww3.sinaimg.cn/large/5634f1dfjw1ev2gft7z25j20c80efdh8.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3875848144973753" target="freeweibo-mirror">开罗会议真相！是中国人就转！</a>
 </h2>
