@@ -24,7 +24,7 @@
 </h2>
 <p>→_→//@作家崔成浩:只升华是谁？<br><br>RE: 【只峰是谁？】天津滨海新区爆炸事故第二场新闻发布会结束时，现场记者大喊：只峰是谁？！没有回应。本报记者郝成</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3875735259054129" target="freeweibo-mirror">SPAM 太惨了 //@王有旺导演: //@双色球qiu: …</a>
 </h2>
@@ -60,7 +60,7 @@
 </h2>
 <p>SPAM [兔子]<br><br>RE: 哈哈哈哈右图<br><img src="http://ww4.sinaimg.cn/large/005LBnzwjw1ev20o7ygs9j30yi1pcau3.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3875713646068535" target="freeweibo-mirror">哈哈哈哈右图</a>
 </h2>
