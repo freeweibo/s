@@ -78,7 +78,7 @@
 </h2>
 <p>@平安天津 来看看这些造谣的人。 //@NoGeek:转发微博<br><br>RE: #天津塘沽大爆炸#为什么要白白牺牲无辜的群众和消防员？为什么一出事就开启感动模式？有谁来为这些死去的冤魂一个说法！面面相觑的官员到底心怀什么鬼胎？死亡人数的统计是不是不全面？让群众理智？那给个说法#塘沽爆炸真相#不要舆论覆盖！！！<br><img src="http://ww2.sinaimg.cn/large/7336bc55gw1ev1fur1cyqj20fw0lfn01.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3875666858131143" target="freeweibo-mirror">SPAM 追责</a>
 </h2>
