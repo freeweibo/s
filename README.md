@@ -44,6 +44,18 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3875673564845114" target="freeweibo-mirror">每次必须要发生一次大事故，才知道要去做什么，暴雨淹死人才知道…</a>
+</h2>
+<p>每次必须要发生一次大事故，才知道要去做什么，暴雨淹死人才知道下水道的排水有问题，爆炸了，才知道不应该用水灭火或者不应该把危险品聚集在市区内，地震了，才知道不能有豆腐渣工程，每次都牺牲那么多人来买教训，哎。<br><br>RE: #天津塘沽大爆炸#为什么要白白牺牲无辜的群众和消防员？为什么一出事就开启感动模式？有谁来为这些死去的冤魂一个说法！面面相觑的官员到底心怀什么鬼胎？死亡人数的统计是不是不全面？让群众理智？那给个说法#塘沽爆炸真相#不要舆论覆盖！！！<br><img src="http://ww2.sinaimg.cn/large/7336bc55gw1ev1fur1cyqj20fw0lfn01.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3875667571577950" target="freeweibo-mirror">@平安天津 来看看这些造谣的人。 //@NoGeek:转发微…</a>
+</h2>
+<p>@平安天津 来看看这些造谣的人。 //@NoGeek:转发微博<br><br>RE: #天津塘沽大爆炸#为什么要白白牺牲无辜的群众和消防员？为什么一出事就开启感动模式？有谁来为这些死去的冤魂一个说法！面面相觑的官员到底心怀什么鬼胎？死亡人数的统计是不是不全面？让群众理智？那给个说法#塘沽爆炸真相#不要舆论覆盖！！！<br><img src="http://ww2.sinaimg.cn/large/7336bc55gw1ev1fur1cyqj20fw0lfn01.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3875666858131143" target="freeweibo-mirror">SPAM 追责</a>
 </h2>
 <p>SPAM 追责</p>
@@ -78,7 +90,7 @@
 </h2>
 <p>站在船头了么？<br><img src="http://ww2.sinaimg.cn/large/5920f545jw1ev1ulbnxp2j20v716ktf9.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3875651729990734" target="freeweibo-mirror">//@番禺无良人://@一缕夏日阳光168: 真相到底是什么…</a>
 </h2>
@@ -125,18 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3875553692006938" target="freeweibo-mirror">SPAM 为什么不能向小日本学习？？？ 我分享了http:/…</a>
 </h2>
 <p>SPAM 为什么不能向小日本学习？？？ 我分享了http://t.cn/RL1V4MN</p>
-<p>
-	<small> ============== 11小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3875550970508293" target="freeweibo-mirror">分享@徐静波微博 的文章 http://t.cn/RL1V4…</a>
-</h2>
-<p>分享@徐静波微博 的文章 http://t.cn/RL1V4MN</p>
-<p>
-	<small> ============== 11小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3875544636941772" target="freeweibo-mirror">SPAM 兴你妈的个头</a>
-</h2>
-<p>SPAM 兴你妈的个头<br><br>RE: 不是自然灾害，不是战争，最怕不过国家机器的驾驶员是脑残[蜡烛]<br><img src="http://ww1.sinaimg.cn/large/6955b038gw1ev1ba7rdq7j20ci0j8wfd.jpg"></p>
 <p>
 	<small> ============== 11小时前</small>
 </p>
