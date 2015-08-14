@@ -42,7 +42,7 @@
 </h2>
 <p>唉</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3875708826694458" target="freeweibo-mirror">@铁路南京站 我们错了，不该在公知疯狂诋毁高铁的时候出来挺高…</a>
 </h2>
@@ -60,7 +60,7 @@
 </h2>
 <p>这个社会病了。//@尹鸿: 这是改革开放快四十年之后的中国。<br><br>RE: 昨天发生在三里屯的杀人事件，被杀的是一个法国人的妻子。事发几个小时前，法国人和他中国妻子刚刚在法国大使馆登记结婚。在三里屯遇到这个杀人者，他对法国人说他不喜欢美国人。法国人告诉他，他是法国人。并要离开。但是杀人者用一把一米长的剑或刀扎进了他妻子的后背，然后扎进法国人两次。<br><img src="http://ww3.sinaimg.cn/large/51c21d10gw1ev1f0x0m8ij20go0m8adf.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3875686534006473" target="freeweibo-mirror">一群白痴以为自己在救火，真令人感动[熊猫]//@克勤在线: …</a>
 </h2>
@@ -90,13 +90,13 @@
 </h2>
 <p>阅<br><br>RE: 出了这么大的事儿，还阅兵吗？</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3875678959250957" target="freeweibo-mirror">出了这么大的事儿，还阅兵吗？</a>
 </h2>
 <p>出了这么大的事儿，还阅兵吗？</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3875676736156009" target="freeweibo-mirror">回复@张辰tobymz:[吃惊] //@张辰tobymz:父…</a>
 </h2>
