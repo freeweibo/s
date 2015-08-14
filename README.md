@@ -26,6 +26,12 @@
 <p>
 	<small> ============== 1小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3875648642996014" target="freeweibo-mirror">SPAM  //@LUCY若水:是的，上海这方面做的很好，航…</a>
+</h2>
+<p>SPAM  //@LUCY若水:是的，上海这方面做的很好，航运最重要的洋山港，1到9类危险品分码头堆放的，离最近的镇差不多50公里，原住民全部迁走到滴水湖。</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3875564958386512" target="freeweibo-mirror">//@小模小样： 能不能再还原一下，谁打电话给消防人员？消防…</a>
 </h2>
 <p>//@小模小样： 能不能再还原一下，谁打电话给消防人员？消防人员进入现场之后有找到起火地点相关负责人并询问现场有什么易燃易爆物品吗？//@财经网:【需要读清楚】并非消防人员不知道危险品不能沾水，而是消防人员不知道有不能沾水的危险化学品。<br><br>RE: 【爆炸现场，消防员未被告知不能用水灭火】记者在医院采访了一名第一批前往火灾现场的消防队员。据他介绍，现场并无人告知他们有不能沾水的危险化学品。大家就按照正常途径用水来救火。“开始是一个集装箱，大概喷水10多分钟，听见啪啪啪响，然后集装箱就亮了。”@南方周末 http://t.cn/RL1A6zw<br><img src="http://ww4.sinaimg.cn/large/61e04755gw1ev1batctl8j20bk07bwfa.jpg"></p>
@@ -74,6 +80,12 @@
 <p>
 	<small> ============== 9小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3875540895087537" target="freeweibo-mirror">用“陈书记”的称谓已不合适，但上海经验无疑值得天津反思。究竟…</a>
+</h2>
+<p>用“陈书记”的称谓已不合适，但上海经验无疑值得天津反思。究竟是谁，决定将天津港区建在市内？<br><img src="http://ww3.sinaimg.cn/large/7867052djw1ev1gt8uekrj20ci0m8gn9.jpg"></p>
+<p>
+	<small> ============== 9小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3875540492969931" target="freeweibo-mirror">//@胡坤821:</a>
 </h2>
 <p>//@胡坤821:</p>
@@ -84,7 +96,7 @@
 </h2>
 <p>[吃惊]//@袁裕来律师://@徐昕:千万别出问题 //@顾峰: //@迟夙生律师: //@深圳老崔:无论如何，都应该立即部署对自来水的严格检测，没事当然最好。<br><br>RE: 从下水道里检测出含有氰化纳的成份，证明存放在爆炸现场的700吨氯化钠已经泄露了。氰化钠是一种剧毒的化学用品，当年纳粹毒气室里面使用的就是氰化钠，氰气钠50毫克即可瞬间致人死亡，700吨是什么概念？如果此事处理不当，比爆炸要可怕的多。思之极恐！<br><img src="http://ww1.sinaimg.cn/large/006bhobbjw1ev1dhnwrraj30k00ekgon.jpg"></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3875538441912017" target="freeweibo-mirror">//@弓長杰://@潘石屹:</a>
 </h2>
@@ -125,18 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3875529595704255" target="freeweibo-mirror">感觉不是天津，比之前看到的猛烈程度超十倍 //@小鱼磨牙: …</a>
 </h2>
 <p>感觉不是天津，比之前看到的猛烈程度超十倍 //@小鱼磨牙: //@刘岩rocky://@林江不是老大:转发微博<br><br>RE: youtube上外国网友拍摄到的天津塘沽大爆炸全过程。。。应该是目前距离最近最清晰的视频了，太可怕！[泪]http://t.cn/RL3ssvt</p>
-<p>
-	<small> ============== 10小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3875529100573481" target="freeweibo-mirror">//@真真假与真:希望政府尊重事实，还大众一个真相。#塘沽爆…</a>
-</h2>
-<p>//@真真假与真:希望政府尊重事实，还大众一个真相。#塘沽爆炸真相#<br><br>RE: #塘沽爆炸真相#我们不需要感动！不需要致敬！需要的是愤怒的质问！这个厂子到底是谁开的？谁允许开的？为什么会半夜爆炸？为什么那么多现场的记者媒体噤声？他们又知道了什么？感动的英雄主义只会导致更大的牺牲，现在质问远比感动更有意义！对于网上各种各样的问题，什么是真相什么又是隐藏！<br><img src="http://ww3.sinaimg.cn/large/744c04a1jw1ev1cdeyzcfj20f00qoadd.jpg"></p>
-<p>
-	<small> ============== 10小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3875528815669822" target="freeweibo-mirror">//@刘丹禅: 天啊！</a>
-</h2>
-<p>//@刘丹禅: 天啊！<br><br>RE: youtube上外国网友拍摄到的天津塘沽大爆炸全过程。。。应该是目前距离最近最清晰的视频了，太可怕！[泪]http://t.cn/RL3ssvt</p>
 <p>
 	<small> ============== 10小时前</small>
 </p>
