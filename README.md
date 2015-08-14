@@ -48,13 +48,13 @@
 </h2>
 <p>心里默念：救救我…救救我…救救我…</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3875748887055937" target="freeweibo-mirror">//@宋海聚: //@夜之沉风: 转发微博</a>
 </h2>
 <p>//@宋海聚: //@夜之沉风: 转发微博<br><br>RE: 分享图片<br><img src="http://ww1.sinaimg.cn/large/ea0a5e30jw1ev0wf9lc55j20qo0gumyz.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3875748022966941" target="freeweibo-mirror">//@演员孙海英:[泪]</a>
 </h2>
@@ -71,6 +71,12 @@
 	<a href="https://freeweibo.com/weibo/3875743521583045" target="freeweibo-mirror">是谁？ //@水木丁:接右：主管"交通运输和港口、市政公路等…</a>
 </h2>
 <p>是谁？ //@水木丁:接右：主管"交通运输和港口、市政公路等城市管理，公安（消防、边防）、"//@萝贝贝: 只升华，2007.09——2012.01，天津市副市长、市委政法委副书记//@Vista看天下:失火企业瑞海国际物流有限公司总经理只峰<br><br>RE: 【只峰是谁？】天津滨海新区爆炸事故第二场新闻发布会结束时，现场记者大喊：只峰是谁？！没有回应。本报记者郝成</p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3875740565081029" target="freeweibo-mirror">就是一群吸毒机器，神也救不了你！ http://t.cn/R…</a>
+</h2>
+<p>就是一群吸毒机器，神也救不了你！ http://t.cn/RL1EmWB .</p>
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3875729273563490" target="freeweibo-mirror">不让说的秘密 还有多少？</a>
 </h2>
 <p>不让说的秘密 还有多少？<br><img src="http://ww3.sinaimg.cn/large/0064Oextjw1ev22f1x147j30c80lqt9i.jpg"></p>
-<p>
-	<small> ============== 4小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3875727529426065" target="freeweibo-mirror">真对不起你们,就死了这么点人~//@木静子嫣：麻痹！中国政府…</a>
-</h2>
-<p>真对不起你们,就死了这么点人~//@木静子嫣：麻痹！中国政府就是这样！//@陈长树H：这么大的爆炸又临近居民区,只死区区几十人,骗三岁小孩//@民自宪理想02：早就说过，在这朝真相就是个奢侈品！ //@尹小龙的：看看消防战友说的话[泪]，唉[鄙视]这个可耻的裆府[弱]<br><br>RE: #天津大爆炸#到底死了多少人？这个消防战士发给战友的微信或许可见真实！一个连死亡人数都不敢公布的国家！我真想骂娘！<br><img src="http://ww3.sinaimg.cn/large/4b4d8d54gw1ev1yjac8ihj20hs0b53zf.jpg"></p>
 <p>
 	<small> ============== 4小时前</small>
 </p>
