@@ -30,7 +30,7 @@
 </h2>
 <p>[真心英雄佟大为]//@陈业文新大都: [笑cry] //@葉子M微博:[哈哈][哈哈]//@岳阳姜宗福:这部庆丰版的《开罗宣言》今年很有可能获得奥斯卡年度最佳滥片奖！<br><br>RE: 开罗宣言[哈哈]<br><img src="http://ww2.sinaimg.cn/large/7052cea7jw1ev2k2napsbj20dw0antar.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3875933469154419" target="freeweibo-mirror">SPAM 开罗宣言的时候，只有三巨头。斯大林只参加了后来的德…</a>
 </h2>
