@@ -132,7 +132,7 @@
 </h2>
 <p>[酷]//@月光手帕伊莲娜: 这次天津的事故如此之大，应该杀一批以平民愤吧//@上樟农民:呵呵！也只能呵呵了！<br><br>RE: 这是人民网刚刚报道主席的最新指示：http://t.cn/RL1R32K 新浪网也要屏蔽？<br><img src="http://ww3.sinaimg.cn/large/749bcf09jw1ev2364smh7j20ku0zadl0.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3875786312487235" target="freeweibo-mirror">//@北京崔卫平://@李方平律师://@幽壹:转发微博</a>
 </h2>
