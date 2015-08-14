@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3875825491091521" target="freeweibo-mirror">@公安部刑侦局 一阅 //@贵州一兵:[汗]//@红色奥巴马…</a>
+</h2>
+<p>@公安部刑侦局 一阅 //@贵州一兵:[汗]//@红色奥巴马: //@灰姑娘新传:[吃惊]常委张//@中产阶级文化在线: 转发微博<br><br>RE: 天津大爆炸案有个槽点，离爆炸中心几百米距离的跃进路派出所据说在此次爆炸中夷为平地？当初附近小区的居民上街抗议反对瑞海时，维稳的正是该所黑皮犬，哈哈哈！炸不塌的天津，封杀不完的文章</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3875823209991020" target="freeweibo-mirror">逾千人罹难??//@杨子评: [吃惊]//@李不白的空间:[…</a>
 </h2>
 <p>逾千人罹难??//@杨子评: [吃惊]//@李不白的空间:[吃惊]//@静静的雪hu-: [吃惊]<br><br>RE: 台媒《自由时报》报道：天津大爆炸，逾千人罹难。<br><img src="http://ww3.sinaimg.cn/large/d560177djw1ev2bw61ketj20nq0hsjvv.jpg"></p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3875786312487235" target="freeweibo-mirror">//@北京崔卫平://@李方平律师://@幽壹:转发微博</a>
 </h2>
 <p>//@北京崔卫平://@李方平律师://@幽壹:转发微博<br><br>RE: 出来后，我才发现，我是三个人里被搜得最仔细的，还删掉了手机照片，还删了电脑照片。在搜查结束后，出来之前，一个警察还大声呵斥我：“脱掉鞋子！”他怀疑我在鞋里藏了东西，真是too young，too simple，还让我掀开鞋垫看。当然他一无所获——一个年轻记者的现场拍摄手记http://t.cn/RL1pNTA<br><img src="http://ww3.sinaimg.cn/large/5d7ca92cjw1ev22w267e8j20hs0buq6b.jpg"></p>
-<p>
-	<small> ============== 4小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3875786119130701" target="freeweibo-mirror">作？//@行者老陈:真相必须由他们说了算//@任晓雯:转发微…</a>
-</h2>
-<p>作？//@行者老陈:真相必须由他们说了算//@任晓雯:转发微博<br><br>RE: 出来后，我才发现，我是三个人里被搜得最仔细的，还删掉了手机照片，还删了电脑照片。在搜查结束后，出来之前，一个警察还大声呵斥我：“脱掉鞋子！”他怀疑我在鞋里藏了东西，真是too young，too simple，还让我掀开鞋垫看。当然他一无所获——一个年轻记者的现场拍摄手记http://t.cn/RL1pNTA<br><img src="http://ww3.sinaimg.cn/large/5d7ca92cjw1ev22w267e8j20hs0buq6b.jpg"></p>
 <p>
 	<small> ============== 4小时前</small>
 </p>
