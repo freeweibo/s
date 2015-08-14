@@ -20,6 +20,18 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3875935168076209" target="freeweibo-mirror">[真心英雄佟大为]//@陈业文新大都: [笑cry] //@…</a>
+</h2>
+<p>[真心英雄佟大为]//@陈业文新大都: [笑cry] //@葉子M微博:[哈哈][哈哈]//@岳阳姜宗福:这部庆丰版的《开罗宣言》今年很有可能获得奥斯卡年度最佳滥片奖！<br><br>RE: 开罗宣言[哈哈]<br><img src="http://ww2.sinaimg.cn/large/7052cea7jw1ev2k2napsbj20dw0antar.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3875933469154419" target="freeweibo-mirror">SPAM 开罗宣言的时候，只有三巨头。斯大林只参加了后来的德…</a>
+</h2>
+<p>SPAM 开罗宣言的时候，只有三巨头。斯大林只参加了后来的德黑兰会议。<br><br>RE: 原来毯星毛泽东没有挤进四巨头合照，只好发单人艺术照<br><img src="http://ww1.sinaimg.cn/large/56067e2ejw1ev2n0njwuqj21kw10u1eo.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3875926670339101" target="freeweibo-mirror">[笑cry] //@葉子M微博:[哈哈][哈哈]//@岳阳姜…</a>
 </h2>
 <p>[笑cry] //@葉子M微博:[哈哈][哈哈]//@岳阳姜宗福:这部庆丰版的《开罗宣言》今年很有可能获得奥斯卡年度最佳滥片奖！<br><br>RE: 开罗宣言[哈哈]<br><img src="http://ww2.sinaimg.cn/large/7052cea7jw1ev2k2napsbj20dw0antar.jpg"></p>
@@ -125,18 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3875853098152003" target="freeweibo-mirror">[哼]</a>
 </h2>
 <p>[哼]</p>
-<p>
-	<small> ============== 7小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3875850958693766" target="freeweibo-mirror">SPAM 毛泽东不抗日的战略思想回顾。很多人不相信，也不理解…</a>
-</h2>
-<p>SPAM 毛泽东不抗日的战略思想回顾。很多人不相信，也不理解。那个年代，土匪都抗日，唯独我党要保存实力，发展武装，拉着主力东躲西藏，为了抗战后夺取政权。从抗战初期的两万人，发展到抗战结束已经有“百万雄师”。如果没有策略，真心抗日，那区区两万人早就打光了，后来拿什么夺取政权？<br><img src="http://ww3.sinaimg.cn/large/5634f1dfjw1ev2gft7z25j20c80efdh8.jpg"></p>
-<p>
-	<small> ============== 7小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3875850699072557" target="freeweibo-mirror">我不太识字，自己看。听说当年小区居民反瑞海维权，离爆炸中心2…</a>
-</h2>
-<p>我不太识字，自己看。听说当年小区居民反瑞海维权，离爆炸中心234米的跃进路派出所干警是维稳先锋，这次全毁只剩下了框架。忽然很怜悯他们:维稳的、被维稳的在人祸面前，死亡一律平等的！ps:某报造谣罹难者过千。http://t.cn/RL1Y0HV<br><img src="http://ww4.sinaimg.cn/large/006bu5Sagw1ev2fxwpmfkj30f00qowh7.jpg"></p>
 <p>
 	<small> ============== 7小时前</small>
 </p>
