@@ -26,6 +26,12 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3875682360945793" target="freeweibo-mirror">//@阿斯猴:不能去优衣库了，里外都让能让人捅了</a>
+</h2>
+<p>//@阿斯猴:不能去优衣库了，里外都让能让人捅了<br><br>RE: 昨天发生在三里屯的杀人事件，被杀的是一个法国人的妻子。事发几个小时前，法国人和他中国妻子刚刚在法国大使馆登记结婚。在三里屯遇到这个杀人者，他对法国人说他不喜欢美国人。法国人告诉他，他是法国人。并要离开。但是杀人者用一把一米长的剑或刀扎进了他妻子的后背，然后扎进法国人两次。<br><img src="http://ww3.sinaimg.cn/large/51c21d10gw1ev1f0x0m8ij20go0m8adf.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3875680737288760" target="freeweibo-mirror">回复@NoGeek:事后追责是肯定的…但是现在造谣，无中生有…</a>
 </h2>
 <p>回复@NoGeek:事后追责是肯定的…但是现在造谣，无中生有的最可耻//@NoGeek:民众更应该把目光集中在事后的追责。要不人也白死了//@内蒙小达:@平安天津 来看看这些造谣的人。 //@NoGeek:转发微博<br><br>RE: #天津塘沽大爆炸#为什么要白白牺牲无辜的群众和消防员？为什么一出事就开启感动模式？有谁来为这些死去的冤魂一个说法！面面相觑的官员到底心怀什么鬼胎？死亡人数的统计是不是不全面？让群众理智？那给个说法#塘沽爆炸真相#不要舆论覆盖！！！<br><img src="http://ww2.sinaimg.cn/large/7336bc55gw1ev1fur1cyqj20fw0lfn01.jpg"></p>
@@ -44,6 +50,12 @@
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3875676736156009" target="freeweibo-mirror">回复@张辰tobymz:[吃惊] //@张辰tobymz:父…</a>
+</h2>
+<p>回复@张辰tobymz:[吃惊] //@张辰tobymz:父母在银矿工作多年，金银矿确实是靠氰化物为生产原材料的，也确实是这样的尾矿坝。地下水污染通常是不可避免的。收拾行李移民。 //@萧秋水:求科普@果壳网 //@喷嚏网铂程:转发微博</p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3875673564845114" target="freeweibo-mirror">每次必须要发生一次大事故，才知道要去做什么，暴雨淹死人才知道…</a>
 </h2>
 <p>每次必须要发生一次大事故，才知道要去做什么，暴雨淹死人才知道下水道的排水有问题，爆炸了，才知道不应该用水灭火或者不应该把危险品聚集在市区内，地震了，才知道不能有豆腐渣工程，每次都牺牲那么多人来买教训，哎。<br><br>RE: #天津塘沽大爆炸#为什么要白白牺牲无辜的群众和消防员？为什么一出事就开启感动模式？有谁来为这些死去的冤魂一个说法！面面相觑的官员到底心怀什么鬼胎？死亡人数的统计是不是不全面？让群众理智？那给个说法#塘沽爆炸真相#不要舆论覆盖！！！<br><img src="http://ww2.sinaimg.cn/large/7336bc55gw1ev1fur1cyqj20fw0lfn01.jpg"></p>
@@ -54,7 +66,7 @@
 </h2>
 <p>@平安天津 来看看这些造谣的人。 //@NoGeek:转发微博<br><br>RE: #天津塘沽大爆炸#为什么要白白牺牲无辜的群众和消防员？为什么一出事就开启感动模式？有谁来为这些死去的冤魂一个说法！面面相觑的官员到底心怀什么鬼胎？死亡人数的统计是不是不全面？让群众理智？那给个说法#塘沽爆炸真相#不要舆论覆盖！！！<br><img src="http://ww2.sinaimg.cn/large/7336bc55gw1ev1fur1cyqj20fw0lfn01.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3875666858131143" target="freeweibo-mirror">SPAM 追责</a>
 </h2>
@@ -65,6 +77,18 @@
 	<a href="https://freeweibo.com/weibo/3875666489298177" target="freeweibo-mirror">全世界的人都是傻子吗，看视频那么大的爆炸会牺牲只有50人？牺…</a>
 </h2>
 <p>全世界的人都是傻子吗，看视频那么大的爆炸会牺牲只有50人？牺牲的消防官兵都快占所谓官方死亡数目一半了。错就是错，勇敢面对，实事求是，想着掩耳盗铃还不如早日妥善解决问题才更能对得起牺牲的民众们。<br><br>RE: 妈个逼的，都已经被炸得这个样了，你们还他妈的遮遮掩掩干什么？给个真相有那么难吗？<br><img src="http://ww3.sinaimg.cn/large/0066MXzDjw1ev1gmmeaq0j30k00zlgr8.jpg"></p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3875665700516248" target="freeweibo-mirror">求科普@果壳网 //@喷嚏网铂程:转发微博</a>
+</h2>
+<p>求科普@果壳网 //@喷嚏网铂程:转发微博</p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3875665348469240" target="freeweibo-mirror">SPAM … //@戴叙:我勒个去//@楚山大魔王: //@…</a>
+</h2>
+<p>SPAM … //@戴叙:我勒个去//@楚山大魔王: //@裘新:原来７００吨氰化钠是用来干这个的。</p>
 <p>
 	<small> ============== 4小时前</small>
 </p><h2>
@@ -92,6 +116,12 @@
 <p>
 	<small> ============== 4小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3875655961485704" target="freeweibo-mirror">很愤怒 //@声音XP:[生病][生病][生病][生病]//…</a>
+</h2>
+<p>很愤怒 //@声音XP:[生病][生病][生病][生病]//@苏紫旭是草履虫: Je me suis arme contre la justice//@假装在纽约:转发微博<br><br>RE: 昨天发生在三里屯的杀人事件，被杀的是一个法国人的妻子。事发几个小时前，法国人和他中国妻子刚刚在法国大使馆登记结婚。在三里屯遇到这个杀人者，他对法国人说他不喜欢美国人。法国人告诉他，他是法国人。并要离开。但是杀人者用一把一米长的剑或刀扎进了他妻子的后背，然后扎进法国人两次。<br><img src="http://ww3.sinaimg.cn/large/51c21d10gw1ev1f0x0m8ij20go0m8adf.jpg"></p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3875651729990734" target="freeweibo-mirror">//@番禺无良人://@一缕夏日阳光168: 真相到底是什么…</a>
 </h2>
 <p>//@番禺无良人://@一缕夏日阳光168: 真相到底是什么 //@孟庆泉律师://@崩盘手:其实不觉得事故至今入院诊治的消防战士人数出奇的少吗？难道派的人少？不是的，他们响应很快，也派了很多人去……[蜡烛]<br><br>RE: 妈个逼的，都已经被炸得这个样了，你们还他妈的遮遮掩掩干什么？给个真相有那么难吗？<br><img src="http://ww3.sinaimg.cn/large/0066MXzDjw1ev1gmmeaq0j30k00zlgr8.jpg"></p>
@@ -109,36 +139,6 @@
 <p>//@小模小样： 能不能再还原一下，谁打电话给消防人员？消防人员进入现场之后有找到起火地点相关负责人并询问现场有什么易燃易爆物品吗？//@财经网:【需要读清楚】并非消防人员不知道危险品不能沾水，而是消防人员不知道有不能沾水的危险化学品。<br><br>RE: 【爆炸现场，消防员未被告知不能用水灭火】记者在医院采访了一名第一批前往火灾现场的消防队员。据他介绍，现场并无人告知他们有不能沾水的危险化学品。大家就按照正常途径用水来救火。“开始是一个集装箱，大概喷水10多分钟，听见啪啪啪响，然后集装箱就亮了。”@南方周末 http://t.cn/RL1A6zw<br><img src="http://ww4.sinaimg.cn/large/61e04755gw1ev1batctl8j20bk07bwfa.jpg"></p>
 <p>
 	<small> ============== 10小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3875564882746683" target="freeweibo-mirror">//@崎玉漱石:如果这则新闻与消防员的话属实，那么基本可以确…</a>
-</h2>
-<p>//@崎玉漱石:如果这则新闻与消防员的话属实，那么基本可以确定就是电石引起的后期爆炸。碳化钙遇水极剧烈反应生成大量乙炔气并大量放热，也就是剧烈爆炸。//@一伊://@来去之间:看清楚→_→ //@财经网:【需要读清楚】并非消防人员不知道危险品不能沾水，而是消防人员不知道有不能沾水的危险化学品。<br><br>RE: 【爆炸现场，消防员未被告知不能用水灭火】记者在医院采访了一名第一批前往火灾现场的消防队员。据他介绍，现场并无人告知他们有不能沾水的危险化学品。大家就按照正常途径用水来救火。“开始是一个集装箱，大概喷水10多分钟，听见啪啪啪响，然后集装箱就亮了。”@南方周末 http://t.cn/RL1A6zw<br><img src="http://ww4.sinaimg.cn/large/61e04755gw1ev1batctl8j20bk07bwfa.jpg"></p>
-<p>
-	<small> ============== 10小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3875562676723517" target="freeweibo-mirror">SPAM 很不错的文章 我分享了http://t.cn/RL…</a>
-</h2>
-<p>SPAM 很不错的文章 我分享了http://t.cn/RL1V4MN</p>
-<p>
-	<small> ============== 10小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3875557433798716" target="freeweibo-mirror">//@天圆地方3511E: 转发微博</a>
-</h2>
-<p>//@天圆地方3511E: 转发微博<br><br>RE: 分享@徐静波微博 的文章 http://t.cn/RL1V4MN</p>
-<p>
-	<small> ============== 11小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3875554169930830" target="freeweibo-mirror">SPAM 呼吁消防去军事化，转职业化；去勇敢性，实现科学性！…</a>
-</h2>
-<p>SPAM 呼吁消防去军事化，转职业化；去勇敢性，实现科学性！我分享了@徐静波微博 的文章 http://t.cn/RL1V4MN</p>
-<p>
-	<small> ============== 11小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3875553692006938" target="freeweibo-mirror">SPAM 为什么不能向小日本学习？？？ 我分享了http:/…</a>
-</h2>
-<p>SPAM 为什么不能向小日本学习？？？ 我分享了http://t.cn/RL1V4MN</p>
-<p>
-	<small> ============== 11小时前</small>
 </p>
 <table>
     <tr>
