@@ -54,7 +54,7 @@
 </h2>
 <p>//@中華保釣號://@价值诠释:[哈哈]//@杜君立: //@阿宝背书的美好生活: //@长吉乐府: 转发微博<br><br>RE: 这条微博，阅读量一万以后，禁转了。<br><img src="http://ww3.sinaimg.cn/large/0068BSWAjw1ev2ugxsqodj30k00zk79s.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3876042915574258" target="freeweibo-mirror">客观对待历史,理性面对今天,乐观进取未来。 //@林子易59…</a>
 </h2>
@@ -114,7 +114,7 @@
 </h2>
 <p>SPAM [生病]循环//@童梦柯:是的，若干年前是这样，若干年后也是如此<br><br>RE: 赞颂牺牲是中共历来的宣传卖点，不保护生命是中共历来不重视的盲点。民众也是如此。</p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3876000049678211" target="freeweibo-mirror">SPAM [吃惊] 花花，俺被你的中文水平惊呆了。//@真妮…</a>
 </h2>
