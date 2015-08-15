@@ -24,7 +24,7 @@
 </h2>
 <p>客观对待历史,理性面对今天,乐观进取未来。 //@林子易59://@郑维:回复@老蟹一个:党史专家考证去安源的是刘少奇。去开罗的肯定是毛主席。//@老蟹一个:外交部发言人说了，历史不容篡改<br><br>RE: 有图为证：毛主席去开罗。<br><img src="http://ww2.sinaimg.cn/large/6d0b6b33jw1ev2zywk1xbj209q0boaay.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3876042118660186" target="freeweibo-mirror">受不了啦[汗] //@苏西坡V:尼玛，整整走了三天，要不是碰…</a>
 </h2>
@@ -43,6 +43,12 @@
 <p>面对一边倒的众议而不关评论，可谓“开放宣言”。<br><br>RE: #开罗宣言定档9.3#由@胡军、@劉嘉玲 、@韩雪、马晓伟、@唐国强、@姚笛、@陈冲 等联袂出演。今日曝光的这四款海报主打历史人物，四位伟人的剪影与重大事件的画面浑然一体，这种设计也突出了历史造就伟人，这也充分体现了《开罗宣言》从国际视角观察历史、以全人类的角度去尊重历史的立意和胸怀。<br><img src="http://ww4.sinaimg.cn/large/006aZlw4jw1ev1xpeehz2j30dw3h04qp.jpg"></p>
 <p>
 	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3876021067852104" target="freeweibo-mirror">有图为证：毛主席去开罗。</a>
+</h2>
+<p>有图为证：毛主席去开罗。<br><img src="http://ww2.sinaimg.cn/large/6d0b6b33jw1ev2zywk1xbj209q0boaay.jpg"></p>
+<p>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3876008756856528" target="freeweibo-mirror">SPAM //@未來的主人翁90後:“中华有风骨，皆入共党囚…</a>
 </h2>
@@ -133,12 +139,6 @@
 <p>原来毯星毛泽东没有挤进四巨头合照，只好发单人艺术照<br><img src="http://ww1.sinaimg.cn/large/56067e2ejw1ev2n0njwuqj21kw10u1eo.jpg"></p>
 <p>
 	<small> ============== 11小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3875902507275755" target="freeweibo-mirror">大楼房间很多吧。//@律师孟浩然: 所以？警察一早发现上班的…</a>
-</h2>
-<p>大楼房间很多吧。//@律师孟浩然: 所以？警察一早发现上班的地方居然没了？ //@林一民围脖:派出所晚上一定有人的，不过一般都是小协警，或有几个正式工！//@律师孟浩然:分局晚上不一定有人//@青岛记:此博需细读！！！//@律师孟浩然:这派出所有点象分局的格局了啊 //@高艺城:转发<br><br>RE: 我不太识字，自己看。听说当年小区居民反瑞海维权，离爆炸中心234米的跃进路派出所干警是维稳先锋，这次全毁只剩下了框架。忽然很怜悯他们:维稳的、被维稳的在人祸面前，死亡一律平等的！ps:某报造谣罹难者过千。http://t.cn/RL1Y0HV<br><img src="http://ww4.sinaimg.cn/large/006bu5Sagw1ev2fxwpmfkj30f00qowh7.jpg"></p>
-<p>
-	<small> ============== 12小时前</small>
 </p>
 <table>
     <tr>
