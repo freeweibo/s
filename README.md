@@ -66,7 +66,7 @@
 </h2>
 <p>回复@中中4世:因为毛公的存在，老蒋就不好去当汪精卫了，你说是不是[哈哈]//@中中4世:抗日抗成了人民公敌，日炕日成了伟光正</p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3875926670339101" target="freeweibo-mirror">[笑cry] //@葉子M微博:[哈哈][哈哈]//@岳阳姜…</a>
 </h2>
@@ -132,13 +132,13 @@
 </h2>
 <p>开罗宣言[哈哈]<br><img src="http://ww2.sinaimg.cn/large/7052cea7jw1ev2k2napsbj20dw0antar.jpg"></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3875881577323135" target="freeweibo-mirror">人家啲原帖轉不出發不出。試下這樣發吧。上天幫幫忙。做個護主好…</a>
 </h2>
 <p>人家啲原帖轉不出發不出。試下這樣發吧。上天幫幫忙。做個護主好不好呢[甜馨得瑟]<br><img src="http://ww2.sinaimg.cn/large/0068CdX5jw1ev2jv357xjj30c80gb40d.jpg"></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p>
 <table>
     <tr>
