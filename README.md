@@ -30,7 +30,7 @@
 </h2>
 <p>受不了啦[汗] //@苏西坡V:尼玛，整整走了三天，要不是碰上滴滴专车，这开罗会议就要改期了。<br><br>RE: 有图为证：毛主席去开罗。<br><img src="http://ww2.sinaimg.cn/large/6d0b6b33jw1ev2zywk1xbj209q0boaay.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3876035688612114" target="freeweibo-mirror">SPAM  //@禹悦://@作家东海: [怒]</a>
 </h2>
