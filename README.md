@@ -126,7 +126,7 @@
 </h2>
 <p>SPAM //@常四爷-: //@没良心-鱼:[蜡烛]//@游荡2011://@宇宙真理002://@竹-昀://@淳西歸來:Repost<br><br>RE: 人家啲原帖轉不出發不出。試下這樣發吧。上天幫幫忙。做個護主好不好呢[甜馨得瑟]<br><img src="http://ww2.sinaimg.cn/large/0068CdX5jw1ev2jv357xjj30c80gb40d.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3875973080297581" target="freeweibo-mirror">这条微博，阅读量一万以后，禁转了。</a>
 </h2>
