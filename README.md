@@ -42,7 +42,7 @@
 </h2>
 <p>我就贴个图 http://t.cn/RLB98jh<br><br>RE: 【黑社会保护费座谈会纪要】主持人：“今天这个会，是我们宣传部和网信办两家联合召开的，主题是网络统战工作。能够邀请到诸位公知大V到会，我们感到十分荣幸。我们为大家准备了红包，一点心意，不成敬意。会后有酒宴，明天还有海钓。今后本省再发生舆情事件，尚请大家口下留情，多多关照，拜托拜托”</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3876051245685722" target="freeweibo-mirror">SPAM 其实60多年来，它们一直都在管人，在管事儿上面连个…</a>
 </h2>
@@ -66,7 +66,7 @@
 </h2>
 <p>受不了啦[汗] //@苏西坡V:尼玛，整整走了三天，要不是碰上滴滴专车，这开罗会议就要改期了。<br><br>RE: 有图为证：毛主席去开罗。<br><img src="http://ww2.sinaimg.cn/large/6d0b6b33jw1ev2zywk1xbj209q0boaay.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3876035688612114" target="freeweibo-mirror">SPAM  //@禹悦://@作家东海: [怒]</a>
 </h2>
