@@ -60,11 +60,17 @@
 </h2>
 <p>此刻，只看到他们的惴惴不安，丝毫感不到他们的一点惭愧！ //@万春雷2013:没有选过，但养过，所以应该监督他们的工作。<br><br>RE: 嘴脸，电视里没有的新闻发布会部分！！ 秒拍视频 http://t.cn/RL1hAwE http://t.cn/R2d2wQY</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3876095055574658" target="freeweibo-mirror">SPAM 向65周年献礼，炸他们一下[哈哈]//@TOUGH…</a>
 </h2>
 <p>SPAM 向65周年献礼，炸他们一下[哈哈]//@TOUGH刚:这个牛逼！[good][哈哈]//@作家崔成浩:罗斯福吓坏了！[笑cry]</p>
+<p>
+	<small> ============== 5小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3876089123893657" target="freeweibo-mirror">八一五，与历史</a>
+</h2>
+<p>八一五，与历史<br><img src="http://ww2.sinaimg.cn/large/537f4ef3jw1ev37sle3kgj20rs16vh1q.jpg"></p>
 <p>
 	<small> ============== 5小时前</small>
 </p><h2>
@@ -96,7 +102,7 @@
 </h2>
 <p>SPAM 其实60多年来，它们一直都在管人，在管事儿上面连个村长都不如！现在依然如此！</p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3876046417514479" target="freeweibo-mirror">//@中華保釣號://@价值诠释:[哈哈]//@杜君立: /…</a>
 </h2>
@@ -120,7 +126,7 @@
 </h2>
 <p>SPAM  //@禹悦://@作家东海: [怒]<br><br>RE: 如果不是谣言就是最大的丑闻。天津，真想把天津变成地狱？如果对死者与生者都不想有个交待，那就是典型的恶政！<br><img src="http://ww1.sinaimg.cn/large/b686ce1fjw1ev2j0iwrq7j20qo0fhdi3.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3876029942698126" target="freeweibo-mirror">面对一边倒的众议而不关评论，可谓“开放宣言”。</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3876027749483440" target="freeweibo-mirror">SPAM 求证？[围观][围观]</a>
 </h2>
 <p>SPAM 求证？[围观][围观]</p>
-<p>
-	<small> ============== 9小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3876024858779905" target="freeweibo-mirror">SPAM 网传！求证？瑞海公司，瑞海，李瑞海，李瑞✘？千万不…</a>
-</h2>
-<p>SPAM 网传！求证？瑞海公司，瑞海，李瑞海，李瑞✘？千万不敢读错，否则吓死你！[吃惊][吃惊][吃惊]<br><img src="http://ww3.sinaimg.cn/large/8d5e6ddfjw1ev30equy3nj20cs0mq0tu.jpg"></p>
 <p>
 	<small> ============== 9小时前</small>
 </p>
