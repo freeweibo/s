@@ -96,7 +96,7 @@
 </h2>
 <p>敷衍塞责，狡言饰非，且一味搪塞语无伦次，面对诘问，竟抱头鼠窜唯恐人后！好一班“能吏”！<br><br>RE: 嘴脸，电视里没有的新闻发布会部分！！ 秒拍视频 http://t.cn/RL1hAwE http://t.cn/R2d2wQY</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3876121034177837" target="freeweibo-mirror">[来][围观] //@假装在纽约:现场的记者在不停追问</a>
 </h2>
