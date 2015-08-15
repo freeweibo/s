@@ -44,6 +44,12 @@
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3876152022398781" target="freeweibo-mirror">一个物理博士的分析</a>
+</h2>
+<p>一个物理博士的分析<br><img src="http://ww4.sinaimg.cn/large/46dd91c4jw1ev3f0cakkxj20ci0m8766.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3876147240988244" target="freeweibo-mirror">SPAM [汗]//@i-want-it-that-way:…</a>
 </h2>
 <p>SPAM [汗]//@i-want-it-that-way: //@老音_59696://@兰园日记1://@陈首名001: //@不变的糕哥://@50年矛苔: [感冒][感冒][感冒] //@劲爆新资讯:维稳是大事！[感冒][感冒][感冒]<br><br>RE: 救援与维稳装备的差距！<br><img src="http://ww3.sinaimg.cn/large/90568a2fgw1ev3bad5z71j20cs08it94.jpg"></p>
@@ -108,7 +114,7 @@
 </h2>
 <p>此刻，只看到他们的惴惴不安，丝毫感不到他们的一点惭愧！ //@万春雷2013:没有选过，但养过，所以应该监督他们的工作。<br><br>RE: 嘴脸，电视里没有的新闻发布会部分！！ 秒拍视频 http://t.cn/RL1hAwE http://t.cn/R2d2wQY</p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3876095055574658" target="freeweibo-mirror">SPAM 向65周年献礼，炸他们一下[哈哈]//@TOUGH…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3876063019454019" target="freeweibo-mirror">//@中殷:转发微博</a>
 </h2>
 <p>//@中殷:转发微博<br><br>RE: #天津滨海爆炸#【发布会现场：消防员家属撞门】@界面 消息，上午发布会现场，一度出现混乱，有情绪激动的消防员家属企图撞门入内，并在发布会门外哭闹。@澎湃新闻 称，两名失踪合同工消防员家属被堵在门外(这些编外消防员率先进场，但伤亡一直未通报)。新浪正滚动播报：http://t.cn/RL3Jq30<br><img src="http://ww3.sinaimg.cn/large/60718250jw1ev349jp8wij20zk0qomzf.jpg"></p>
-<p>
-	<small> ============== 9小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3876062675385684" target="freeweibo-mirror">SPAM #加班# 莫说休两天半，两天也无从保证；如果每周都…</a>
-</h2>
-<p>SPAM #加班# 莫说休两天半，两天也无从保证；如果每周都休小长假，公安更要加强值班备勤，休息时间就更少喽。结论：公安民警的休息时间，与社会群众的休息时间成反比！<br><img src="http://ww4.sinaimg.cn/large/7ca637f5jw1ev34j5nl5cj218g0p00zh.jpg"></p>
 <p>
 	<small> ============== 9小时前</small>
 </p>
