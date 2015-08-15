@@ -42,7 +42,7 @@
 </h2>
 <p>SPAM  //@禹悦://@作家东海: [怒]<br><br>RE: 如果不是谣言就是最大的丑闻。天津，真想把天津变成地狱？如果对死者与生者都不想有个交待，那就是典型的恶政！<br><img src="http://ww1.sinaimg.cn/large/b686ce1fjw1ev2j0iwrq7j20qo0fhdi3.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3876029942698126" target="freeweibo-mirror">面对一边倒的众议而不关评论，可谓“开放宣言”。</a>
 </h2>
@@ -66,7 +66,7 @@
 </h2>
 <p>有图为证：毛主席去开罗。<br><img src="http://ww2.sinaimg.cn/large/6d0b6b33jw1ev2zywk1xbj209q0boaay.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3876008756856528" target="freeweibo-mirror">SPAM //@未來的主人翁90後:“中华有风骨，皆入共党囚…</a>
 </h2>
