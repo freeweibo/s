@@ -120,7 +120,7 @@
 </h2>
 <p>尼玛，实在太恐怖了！！！如此看来，怪不得引起全球高度重视和关注，难怪美国总统奥巴马说要派特种部队来华援助！[吃惊][吃惊][吃惊][汗][汗][汗]<br><img src="http://ww1.sinaimg.cn/large/a62471f0jw1ev3ls03uicj20f00ld0w8.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3876210939028039" target="freeweibo-mirror">//@堂主:我擦，这条竟然没被屏蔽！</a>
 </h2>
