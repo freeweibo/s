@@ -66,7 +66,7 @@
 </h2>
 <p>SPAM 向65周年献礼，炸他们一下[哈哈]//@TOUGH刚:这个牛逼！[good][哈哈]//@作家崔成浩:罗斯福吓坏了！[笑cry]</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3876063019454019" target="freeweibo-mirror">//@中殷:转发微博</a>
 </h2>
