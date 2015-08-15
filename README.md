@@ -24,7 +24,7 @@
 </h2>
 <p>SPAM //@未來的主人翁90後:“中华有风骨，皆入共党囚。护宪担道义，陷狱为民权。泣血捍公义，何日当自由？”</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3876002264124031" target="freeweibo-mirror">SPAM [泪]无辜的生命~//@千帆-看看:不赞扬哪有sb…</a>
 </h2>
@@ -66,7 +66,7 @@
 </h2>
 <p>SPAM 开罗宣言的时候，只有三巨头。斯大林只参加了后来的德黑兰会议。<br><br>RE: 原来毯星毛泽东没有挤进四巨头合照，只好发单人艺术照<br><img src="http://ww1.sinaimg.cn/large/56067e2ejw1ev2n0njwuqj21kw10u1eo.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3875930844388283" target="freeweibo-mirror">回复@中中4世:你居然不能原谅有良知有人性的中国人，良心太坏…</a>
 </h2>
