@@ -26,6 +26,12 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3876167112957032" target="freeweibo-mirror">来自iphone客户端。</a>
+</h2>
+<p>来自iphone客户端。<br><br>RE: 本人王明德，黑龙江人，在广东经商，因长沙声援区伯被广东衙役警告，因庆安徐纯合事件举报当地官员，被广东驱逐，被哈尔滨衙役追捕，带着8岁孩子已流亡3个月了。为孩子，也为其他四处流浪的良心人，坐牢的人，现小额募捐1——100不限，望朋友们支持！建行王明权：6217 0010 7000 1131 040叩谢！<br><img src="http://ww3.sinaimg.cn/large/005ASqIUjw1ev3375qpw9j30hs0hsjtn.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3876155545213978" target="freeweibo-mirror">SPAM //@煙巳惔嘸菋:保护权贵//@ICE啤酒://@…</a>
 </h2>
 <p>SPAM //@煙巳惔嘸菋:保护权贵//@ICE啤酒://@大胡子胖哥哦: //@话龙典经:哈哈 天朝特色 //@纪昀:[抓狂]<br><br>RE: 救援与维稳装备的差距！<br><img src="http://ww3.sinaimg.cn/large/90568a2fgw1ev3bad5z71j20cs08it94.jpg"></p>
@@ -133,12 +139,6 @@
 <p>【看到天津新港爆炸，想起一篇旧文，今翻出供分享】分享自拙政江南  《温家宝为何要置陈良宇于死地？》 - 温大笔一挥，给自己的家乡无偿拨去4000亿建“天津新港”。天津只是终端港，而且不是不冻港，花这样的巨款既无迫切性更没有必要... ——注：配图网络自动生成与本文无关。 http://t.cn/zHdSFfI<br><img src="http://ww1.sinaimg.cn/large/3c2a174bjw1ev36n91oroj2050050jrb.jpg"></p>
 <p>
 	<small> ============== 8小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3876063019454019" target="freeweibo-mirror">//@中殷:转发微博</a>
-</h2>
-<p>//@中殷:转发微博<br><br>RE: #天津滨海爆炸#【发布会现场：消防员家属撞门】@界面 消息，上午发布会现场，一度出现混乱，有情绪激动的消防员家属企图撞门入内，并在发布会门外哭闹。@澎湃新闻 称，两名失踪合同工消防员家属被堵在门外(这些编外消防员率先进场，但伤亡一直未通报)。新浪正滚动播报：http://t.cn/RL3Jq30<br><img src="http://ww3.sinaimg.cn/large/60718250jw1ev349jp8wij20zk0qomzf.jpg"></p>
-<p>
-	<small> ============== 9小时前</small>
 </p>
 <table>
     <tr>
