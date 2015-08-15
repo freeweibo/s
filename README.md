@@ -120,7 +120,7 @@
 </h2>
 <p>我就贴个图 http://t.cn/RLB98jh<br><br>RE: 【黑社会保护费座谈会纪要】主持人：“今天这个会，是我们宣传部和网信办两家联合召开的，主题是网络统战工作。能够邀请到诸位公知大V到会，我们感到十分荣幸。我们为大家准备了红包，一点心意，不成敬意。会后有酒宴，明天还有海钓。今后本省再发生舆情事件，尚请大家口下留情，多多关照，拜托拜托”</p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3876051245685722" target="freeweibo-mirror">SPAM 其实60多年来，它们一直都在管人，在管事儿上面连个…</a>
 </h2>
@@ -134,9 +134,9 @@
 <p>
 	<small> ============== 8小时前</small>
 </p><h2>
-	<a href="https://freeweibo.com/weibo/3876042915574258" target="freeweibo-mirror">客观对待历史,理性面对今天,乐观进取未来。 //@林子易59…</a>
+	<a href="https://freeweibo.com/weibo/3876045931100620" target="freeweibo-mirror">#天津塘沽大爆炸#这是我们小区，万科海港城，入住率极高，不是…</a>
 </h2>
-<p>客观对待历史,理性面对今天,乐观进取未来。 //@林子易59://@郑维:回复@老蟹一个:党史专家考证去安源的是刘少奇。去开罗的肯定是毛主席。//@老蟹一个:外交部发言人说了，历史不容篡改<br><br>RE: 有图为证：毛主席去开罗。<br><img src="http://ww2.sinaimg.cn/large/6d0b6b33jw1ev2zywk1xbj209q0boaay.jpg"></p>
+<p>#天津塘沽大爆炸#这是我们小区，万科海港城，入住率极高，不是媒体报道的入住率出租率极低，下面的图片是爆炸后第二天邻居进去拍的，这样的房子即使修了，谁敢住？求扩散<br><img src="http://ww2.sinaimg.cn/large/7cd21229jw1ev32u2fcitj20np0hsdia.jpg"></p>
 <p>
 	<small> ============== 8小时前</small>
 </p>
