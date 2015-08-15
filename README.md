@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3876008756856528" target="freeweibo-mirror">SPAM //@未來的主人翁90後:“中华有风骨，皆入共党囚…</a>
+</h2>
+<p>SPAM //@未來的主人翁90後:“中华有风骨，皆入共党囚。护宪担道义，陷狱为民权。泣血捍公义，何日当自由？”</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3875976855081050" target="freeweibo-mirror">SPAM //@常四爷-: //@没良心-鱼:[蜡烛]//@…</a>
 </h2>
 <p>SPAM //@常四爷-: //@没良心-鱼:[蜡烛]//@游荡2011://@宇宙真理002://@竹-昀://@淳西歸來:Repost<br><br>RE: 人家啲原帖轉不出發不出。試下這樣發吧。上天幫幫忙。做個護主好不好呢[甜馨得瑟]<br><img src="http://ww2.sinaimg.cn/large/0068CdX5jw1ev2jv357xjj30c80gb40d.jpg"></p>
@@ -66,7 +72,7 @@
 </h2>
 <p>斯大林对毛公说：胜利者是不受指责的。[哈哈] 你们的野爹又是什么口碑呢？被美国都抛弃了。 //@左派网:毛你爹妈公啊，斯大林的干儿子也配叫唤，叫毛敬塘算了</p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3875915354049115" target="freeweibo-mirror">//@仍旧相信光明://@白帽青衫: //@星xc辰D33:…</a>
 </h2>
@@ -78,7 +84,7 @@
 </h2>
 <p>原来毯星毛泽东没有挤进四巨头合照，只好发单人艺术照<br><img src="http://ww1.sinaimg.cn/large/56067e2ejw1ev2n0njwuqj21kw10u1eo.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3875902507275755" target="freeweibo-mirror">大楼房间很多吧。//@律师孟浩然: 所以？警察一早发现上班的…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3875876728898001" target="freeweibo-mirror">//@DopeyTom: 急工出糙活啊。[嘻嘻]//@南云楼…</a>
 </h2>
 <p>//@DopeyTom: 急工出糙活啊。[嘻嘻]//@南云楼-: 兰萍还没换上。 //@普法三十年-: //@夜之沉风: [哈哈] //@织梦作坊:真快。 //@予象阿三: [哈哈] //@啦啦啦哦啦:[哈哈][哈哈] //@冰水盆z: //@不合作的奴隶:[哈哈] //@藍色中國心_親愛精誠2期: //@浙江周勇: [哈哈][哈哈]<br><br>RE: 开罗会议真相！是中国人就转！<br><img src="http://ww2.sinaimg.cn/large/5ba8d0ebgw1ev2g4arak5j20dw0andim.jpg"></p>
-<p>
-	<small> ============== 10小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3875876304936950" target="freeweibo-mirror">急工出糙活啊。[嘻嘻]//@南云楼-: 兰萍还没换上。 //…</a>
-</h2>
-<p>急工出糙活啊。[嘻嘻]//@南云楼-: 兰萍还没换上。 //@普法三十年-: //@夜之沉风: [哈哈] //@织梦作坊:真快。 //@予象阿三: [哈哈] //@啦啦啦哦啦:[哈哈][哈哈] //@冰水盆z: //@不合作的奴隶:[哈哈] //@藍色中國心_親愛精誠2期: //@浙江周勇: [哈哈][哈哈]<br><br>RE: 开罗会议真相！是中国人就转！<br><img src="http://ww2.sinaimg.cn/large/5ba8d0ebgw1ev2g4arak5j20dw0andim.jpg"></p>
 <p>
 	<small> ============== 10小时前</small>
 </p>
