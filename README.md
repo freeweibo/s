@@ -42,7 +42,7 @@
 </h2>
 <p>SPAM 开罗宣言的时候，只有三巨头。斯大林只参加了后来的德黑兰会议。<br><br>RE: 原来毯星毛泽东没有挤进四巨头合照，只好发单人艺术照<br><img src="http://ww1.sinaimg.cn/large/56067e2ejw1ev2n0njwuqj21kw10u1eo.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3875930844388283" target="freeweibo-mirror">回复@中中4世:你居然不能原谅有良知有人性的中国人，良心太坏…</a>
 </h2>
@@ -122,6 +122,12 @@
 <p>
 	<small> ============== 9小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3875881577323135" target="freeweibo-mirror">人家啲原帖轉不出發不出。試下這樣發吧。上天幫幫忙。做個護主好…</a>
+</h2>
+<p>人家啲原帖轉不出發不出。試下這樣發吧。上天幫幫忙。做個護主好不好呢[甜馨得瑟]<br><img src="http://ww2.sinaimg.cn/large/0068CdX5jw1ev2jv357xjj30c80gb40d.jpg"></p>
+<p>
+	<small> ============== 9小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3875876728898001" target="freeweibo-mirror">//@DopeyTom: 急工出糙活啊。[嘻嘻]//@南云楼…</a>
 </h2>
 <p>//@DopeyTom: 急工出糙活啊。[嘻嘻]//@南云楼-: 兰萍还没换上。 //@普法三十年-: //@夜之沉风: [哈哈] //@织梦作坊:真快。 //@予象阿三: [哈哈] //@啦啦啦哦啦:[哈哈][哈哈] //@冰水盆z: //@不合作的奴隶:[哈哈] //@藍色中國心_親愛精誠2期: //@浙江周勇: [哈哈][哈哈]<br><br>RE: 开罗会议真相！是中国人就转！<br><img src="http://ww2.sinaimg.cn/large/5ba8d0ebgw1ev2g4arak5j20dw0andim.jpg"></p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3875876304936950" target="freeweibo-mirror">急工出糙活啊。[嘻嘻]//@南云楼-: 兰萍还没换上。 //…</a>
 </h2>
 <p>急工出糙活啊。[嘻嘻]//@南云楼-: 兰萍还没换上。 //@普法三十年-: //@夜之沉风: [哈哈] //@织梦作坊:真快。 //@予象阿三: [哈哈] //@啦啦啦哦啦:[哈哈][哈哈] //@冰水盆z: //@不合作的奴隶:[哈哈] //@藍色中國心_親愛精誠2期: //@浙江周勇: [哈哈][哈哈]<br><br>RE: 开罗会议真相！是中国人就转！<br><img src="http://ww2.sinaimg.cn/large/5ba8d0ebgw1ev2g4arak5j20dw0andim.jpg"></p>
-<p>
-	<small> ============== 9小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3875875218681712" target="freeweibo-mirror">臭不要脸到这个地步。//@黄土路:哦哦我着急了，应该带着娱乐…</a>
-</h2>
-<p>臭不要脸到这个地步。//@黄土路:哦哦我着急了，应该带着娱乐精神看。汗。//@赵卡的牛肉干:没有篡改，当时小平和泽民也跟着，你别造谣了！//@黄土路: 这不是篡改历史吗?开罗宣言不是老蒋参与谈的吗？百度得到: http://t.cn/RLBL1Zj 。这是电影人的耻辱。//@横hzg:不要脸到明目张胆</p>
 <p>
 	<small> ============== 9小时前</small>
 </p>
