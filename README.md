@@ -20,11 +20,41 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3876137308086471" target="freeweibo-mirror">//@围观者被围观:很远！共定远！！！</a>
+</h2>
+<p>//@围观者被围观:很远！共定远！！！<br><br>RE: 嘴脸，电视里没有的新闻发布会部分！！ 秒拍视频 http://t.cn/RL1hAwE http://t.cn/R2d2wQY</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3876135798869446" target="freeweibo-mirror">职业官僚。//@元猫大大://@谭人玮://@杜君立: 暴力…</a>
+</h2>
+<p>职业官僚。//@元猫大大://@谭人玮://@杜君立: 暴力背后，其实都是这样的货色，没有一个可以见光的//@北京厨子新号:草他妈的傻逼。没水平就不要出来丢政府的脸。<br><br>RE: 嘴脸，电视里没有的新闻发布会部分！！ 秒拍视频 http://t.cn/RL1hAwE http://t.cn/R2d2wQY</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3876123823382553" target="freeweibo-mirror">敷衍塞责，狡言饰非，且一味搪塞语无伦次，面对诘问，竟抱头鼠窜…</a>
+</h2>
+<p>敷衍塞责，狡言饰非，且一味搪塞语无伦次，面对诘问，竟抱头鼠窜唯恐人后！好一班“能吏”！<br><br>RE: 嘴脸，电视里没有的新闻发布会部分！！ 秒拍视频 http://t.cn/RL1hAwE http://t.cn/R2d2wQY</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3876121034177837" target="freeweibo-mirror">[来][围观] //@假装在纽约:现场的记者在不停追问</a>
 </h2>
 <p>[来][围观] //@假装在纽约:现场的记者在不停追问<br><br>RE: 嘴脸，电视里没有的新闻发布会部分！！ 秒拍视频 http://t.cn/RL1hAwE http://t.cn/R2d2wQY</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3876113862155609" target="freeweibo-mirror">开罗本无辜，硬贴则无耻。//@深夜一只猫: 因为月光宝盒啊，…</a>
+</h2>
+<p>开罗本无辜，硬贴则无耻。//@深夜一只猫: 因为月光宝盒啊，唐僧也去过开罗 //@电竞罗永浩: 我一个上海人怎么突然就去了开罗？//@就做了一点微小的工作:大新闻 //@帅呆酷毙了斯基:[doge]//@周彣2015: //@深夜一只猫: 转发微博<br><br>RE: 八一五，与历史<br><img src="http://ww2.sinaimg.cn/large/537f4ef3jw1ev37sle3kgj20rs16vh1q.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3876099018918531" target="freeweibo-mirror">//@施威博士:这样的发布会，不如不开；这样的官员，不如不来…</a>
+</h2>
+<p>//@施威博士:这样的发布会，不如不开；这样的官员，不如不来。每逢重大危机事件都会大量失分，能怨媒体不懂事，怨百姓不讲理？<br><br>RE: 嘴脸，电视里没有的新闻发布会部分！！ 秒拍视频 http://t.cn/RL1hAwE http://t.cn/R2d2wQY</p>
+<p>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3876096510175500" target="freeweibo-mirror">此刻，只看到他们的惴惴不安，丝毫感不到他们的一点惭愧！ //…</a>
 </h2>
@@ -96,7 +126,7 @@
 </h2>
 <p>面对一边倒的众议而不关评论，可谓“开放宣言”。<br><br>RE: #开罗宣言定档9.3#由@胡军、@劉嘉玲 、@韩雪、马晓伟、@唐国强、@姚笛、@陈冲 等联袂出演。今日曝光的这四款海报主打历史人物，四位伟人的剪影与重大事件的画面浑然一体，这种设计也突出了历史造就伟人，这也充分体现了《开罗宣言》从国际视角观察历史、以全人类的角度去尊重历史的立意和胸怀。<br><img src="http://ww4.sinaimg.cn/large/006aZlw4jw1ev1xpeehz2j30dw3h04qp.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3876027749483440" target="freeweibo-mirror">SPAM 求证？[围观][围观]</a>
 </h2>
@@ -109,36 +139,6 @@
 <p>SPAM 网传！求证？瑞海公司，瑞海，李瑞海，李瑞✘？千万不敢读错，否则吓死你！[吃惊][吃惊][吃惊]<br><img src="http://ww3.sinaimg.cn/large/8d5e6ddfjw1ev30equy3nj20cs0mq0tu.jpg"></p>
 <p>
 	<small> ============== 9小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3876021067852104" target="freeweibo-mirror">有图为证：毛主席去开罗。</a>
-</h2>
-<p>有图为证：毛主席去开罗。<br><img src="http://ww2.sinaimg.cn/large/6d0b6b33jw1ev2zywk1xbj209q0boaay.jpg"></p>
-<p>
-	<small> ============== 9小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3876019125180966" target="freeweibo-mirror">[耶][威武][来]</a>
-</h2>
-<p>[耶][威武][来]<br><img src="http://ww4.sinaimg.cn/large/617fc8a9jw1ev2zrc3b70j20m80fpgnk.jpg"></p>
-<p>
-	<small> ============== 9小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3876008756856528" target="freeweibo-mirror">SPAM //@未來的主人翁90後:“中华有风骨，皆入共党囚…</a>
-</h2>
-<p>SPAM //@未來的主人翁90後:“中华有风骨，皆入共党囚。护宪担道义，陷狱为民权。泣血捍公义，何日当自由？”</p>
-<p>
-	<small> ============== 10小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3876002264124031" target="freeweibo-mirror">SPAM [泪]无辜的生命~//@千帆-看看:不赞扬哪有sb…</a>
-</h2>
-<p>SPAM [泪]无辜的生命~//@千帆-看看:不赞扬哪有sb替它们送命？<br><br>RE: 赞颂牺牲是中共历来的宣传卖点，不保护生命是中共历来不重视的盲点。民众也是如此。</p>
-<p>
-	<small> ============== 10小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3876002151706479" target="freeweibo-mirror">SPAM [生病]循环//@童梦柯:是的，若干年前是这样，若…</a>
-</h2>
-<p>SPAM [生病]循环//@童梦柯:是的，若干年前是这样，若干年后也是如此<br><br>RE: 赞颂牺牲是中共历来的宣传卖点，不保护生命是中共历来不重视的盲点。民众也是如此。</p>
-<p>
-	<small> ============== 10小时前</small>
 </p>
 <table>
     <tr>
