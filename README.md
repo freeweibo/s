@@ -42,7 +42,19 @@
 </h2>
 <p>面对一边倒的众议而不关评论，可谓“开放宣言”。<br><br>RE: #开罗宣言定档9.3#由@胡军、@劉嘉玲 、@韩雪、马晓伟、@唐国强、@姚笛、@陈冲 等联袂出演。今日曝光的这四款海报主打历史人物，四位伟人的剪影与重大事件的画面浑然一体，这种设计也突出了历史造就伟人，这也充分体现了《开罗宣言》从国际视角观察历史、以全人类的角度去尊重历史的立意和胸怀。<br><img src="http://ww4.sinaimg.cn/large/006aZlw4jw1ev1xpeehz2j30dw3h04qp.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3876027749483440" target="freeweibo-mirror">SPAM 求证？[围观][围观]</a>
+</h2>
+<p>SPAM 求证？[围观][围观]</p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3876024858779905" target="freeweibo-mirror">SPAM 网传！求证？瑞海公司，瑞海，李瑞海，李瑞✘？千万不…</a>
+</h2>
+<p>SPAM 网传！求证？瑞海公司，瑞海，李瑞海，李瑞✘？千万不敢读错，否则吓死你！[吃惊][吃惊][吃惊]<br><img src="http://ww3.sinaimg.cn/large/8d5e6ddfjw1ev30equy3nj20cs0mq0tu.jpg"></p>
+<p>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3876021067852104" target="freeweibo-mirror">有图为证：毛主席去开罗。</a>
 </h2>
@@ -72,7 +84,7 @@
 </h2>
 <p>SPAM [吃惊] 花花，俺被你的中文水平惊呆了。//@真妮花的愛心:毛粉們不在乎無恥，但求在精神上達到高潮 //@礼江美鱼://@万家灯火65://@重阳楼: //@向善唠叨</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3875994761082293" target="freeweibo-mirror">赞颂牺牲是中共历来的宣传卖点，不保护生命是中共历来不重视的盲…</a>
 </h2>
@@ -90,7 +102,7 @@
 </h2>
 <p>SPAM 这不是独夫民贼吗？<br><br>RE: 开罗宣言[哈哈]<br><img src="http://ww2.sinaimg.cn/large/7052cea7jw1ev2k2napsbj20dw0antar.jpg"></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3875935168076209" target="freeweibo-mirror">[真心英雄佟大为]//@陈业文新大都: [笑cry] //@…</a>
 </h2>
@@ -127,18 +139,6 @@
 <p>斯大林对毛公说：胜利者是不受指责的。[哈哈] 你们的野爹又是什么口碑呢？被美国都抛弃了。 //@左派网:毛你爹妈公啊，斯大林的干儿子也配叫唤，叫毛敬塘算了</p>
 <p>
 	<small> ============== 11小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3875915354049115" target="freeweibo-mirror">//@仍旧相信光明://@白帽青衫: //@星xc辰D33:…</a>
-</h2>
-<p>//@仍旧相信光明://@白帽青衫: //@星xc辰D33://@还是南开老魏://@惊醒的家奴3: //@奶香小豆包2: //@惊醒的家奴4: //@孤家寡哥89: 转发微博<br><br>RE: 分享图片<br><img src="http://ww1.sinaimg.cn/large/006aJuQ1jw1ev2kjz4lkfj30bt0qogoe.jpg"></p>
-<p>
-	<small> ============== 11小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3875908534026900" target="freeweibo-mirror">原来毯星毛泽东没有挤进四巨头合照，只好发单人艺术照</a>
-</h2>
-<p>原来毯星毛泽东没有挤进四巨头合照，只好发单人艺术照<br><img src="http://ww1.sinaimg.cn/large/56067e2ejw1ev2n0njwuqj21kw10u1eo.jpg"></p>
-<p>
-	<small> ============== 12小时前</small>
 </p>
 <table>
     <tr>
