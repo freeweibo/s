@@ -44,6 +44,12 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3875994761082293" target="freeweibo-mirror">赞颂牺牲是中共历来的宣传卖点，不保护生命是中共历来不重视的盲…</a>
+</h2>
+<p>赞颂牺牲是中共历来的宣传卖点，不保护生命是中共历来不重视的盲点。民众也是如此。</p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3875976855081050" target="freeweibo-mirror">SPAM //@常四爷-: //@没良心-鱼:[蜡烛]//@…</a>
 </h2>
 <p>SPAM //@常四爷-: //@没良心-鱼:[蜡烛]//@游荡2011://@宇宙真理002://@竹-昀://@淳西歸來:Repost<br><br>RE: 人家啲原帖轉不出發不出。試下這樣發吧。上天幫幫忙。做個護主好不好呢[甜馨得瑟]<br><img src="http://ww2.sinaimg.cn/large/0068CdX5jw1ev2jv357xjj30c80gb40d.jpg"></p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3875891686320414" target="freeweibo-mirror">如图</a>
 </h2>
 <p>如图<br><img src="http://ww4.sinaimg.cn/large/59391746jw1ev2l4cewyvj20m80gojuj.jpg"></p>
-<p>
-	<small> ============== 9小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3875890943462333" target="freeweibo-mirror">确实是谈笑风生 //@科学少女喵:现在想来，竟然在中国历史上…</a>
-</h2>
-<p>确实是谈笑风生 //@科学少女喵:现在想来，竟然在中国历史上，空前绝后</p>
 <p>
 	<small> ============== 10小时前</small>
 </p>
