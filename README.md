@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3876042915574258" target="freeweibo-mirror">客观对待历史,理性面对今天,乐观进取未来。 //@林子易59…</a>
+</h2>
+<p>客观对待历史,理性面对今天,乐观进取未来。 //@林子易59://@郑维:回复@老蟹一个:党史专家考证去安源的是刘少奇。去开罗的肯定是毛主席。//@老蟹一个:外交部发言人说了，历史不容篡改<br><br>RE: 有图为证：毛主席去开罗。<br><img src="http://ww2.sinaimg.cn/large/6d0b6b33jw1ev2zywk1xbj209q0boaay.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3876042118660186" target="freeweibo-mirror">受不了啦[汗] //@苏西坡V:尼玛，整整走了三天，要不是碰…</a>
 </h2>
 <p>受不了啦[汗] //@苏西坡V:尼玛，整整走了三天，要不是碰上滴滴专车，这开罗会议就要改期了。<br><br>RE: 有图为证：毛主席去开罗。<br><img src="http://ww2.sinaimg.cn/large/6d0b6b33jw1ev2zywk1xbj209q0boaay.jpg"></p>
@@ -66,7 +72,7 @@
 </h2>
 <p>SPAM //@常四爷-: //@没良心-鱼:[蜡烛]//@游荡2011://@宇宙真理002://@竹-昀://@淳西歸來:Repost<br><br>RE: 人家啲原帖轉不出發不出。試下這樣發吧。上天幫幫忙。做個護主好不好呢[甜馨得瑟]<br><img src="http://ww2.sinaimg.cn/large/0068CdX5jw1ev2jv357xjj30c80gb40d.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3875939530716540" target="freeweibo-mirror">SPAM 这不是独夫民贼吗？</a>
 </h2>
@@ -90,7 +96,7 @@
 </h2>
 <p>回复@中中4世:你居然不能原谅有良知有人性的中国人，良心太坏了[哼]//@中中4世:作为一个有良知有人性，基于良知和人性的是非判断，仍然崇拜毛的中国人，是不原谅的//@不沉默的大多数:回复@中中4世:因为毛公的存在，老蒋就不好去当汪精卫了，你说是不是[哈哈]</p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3875929098650348" target="freeweibo-mirror">回复@中中4世:因为毛公的存在，老蒋就不好去当汪精卫了，你说…</a>
 </h2>
@@ -133,12 +139,6 @@
 <p>楼主弄错了，第一位是宋美龄阿姨，她女扮男装是为了躲过纳粹的追杀。开罗会议没有毛泽东</p>
 <p>
 	<small> ============== 11小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3875895763027392" target="freeweibo-mirror">SPAM [哈哈]//@活捉死老鼠: [哈哈][赞]//@手…</a>
-</h2>
-<p>SPAM [哈哈]//@活捉死老鼠: [哈哈][赞]//@手术刀_李医生:[哈哈] //@西门吹糠:[哈哈]腊肉好有喜感</p>
-<p>
-	<small> ============== 12小时前</small>
 </p>
 <table>
     <tr>
