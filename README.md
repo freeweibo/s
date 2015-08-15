@@ -48,7 +48,7 @@
 </h2>
 <p>SPAM [生病]循环//@童梦柯:是的，若干年前是这样，若干年后也是如此<br><br>RE: 赞颂牺牲是中共历来的宣传卖点，不保护生命是中共历来不重视的盲点。民众也是如此。</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3876000049678211" target="freeweibo-mirror">SPAM [吃惊] 花花，俺被你的中文水平惊呆了。//@真妮…</a>
 </h2>
@@ -102,7 +102,7 @@
 </h2>
 <p>[笑cry] //@葉子M微博:[哈哈][哈哈]//@岳阳姜宗福:这部庆丰版的《开罗宣言》今年很有可能获得奥斯卡年度最佳滥片奖！<br><br>RE: 开罗宣言[哈哈]<br><img src="http://ww2.sinaimg.cn/large/7052cea7jw1ev2k2napsbj20dw0antar.jpg"></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3875923118235463" target="freeweibo-mirror">斯大林对毛公说：胜利者是不受指责的。[哈哈] 你们的野爹又是…</a>
 </h2>
@@ -138,7 +138,7 @@
 </h2>
 <p>SPAM [哈哈]//@活捉死老鼠: [哈哈][赞]//@手术刀_李医生:[哈哈] //@西门吹糠:[哈哈]腊肉好有喜感</p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p>
 <table>
     <tr>
