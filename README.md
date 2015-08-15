@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3876058539365269" target="freeweibo-mirror">#天津滨海爆炸#【发布会现场：消防员家属撞门】@界面 消息，…</a>
+</h2>
+<p>#天津滨海爆炸#【发布会现场：消防员家属撞门】@界面 消息，上午发布会现场，一度出现混乱，有情绪激动的消防员家属企图撞门入内，并在发布会门外哭闹。@澎湃新闻 称，两名失踪合同工消防员家属被堵在门外(这些编外消防员率先进场，但伤亡一直未通报)。新浪正滚动播报：http://t.cn/RL3Jq30<br><img src="http://ww3.sinaimg.cn/large/60718250jw1ev349jp8wij20zk0qomzf.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3876042915574258" target="freeweibo-mirror">客观对待历史,理性面对今天,乐观进取未来。 //@林子易59…</a>
 </h2>
 <p>客观对待历史,理性面对今天,乐观进取未来。 //@林子易59://@郑维:回复@老蟹一个:党史专家考证去安源的是刘少奇。去开罗的肯定是毛主席。//@老蟹一个:外交部发言人说了，历史不容篡改<br><br>RE: 有图为证：毛主席去开罗。<br><img src="http://ww2.sinaimg.cn/large/6d0b6b33jw1ev2zywk1xbj209q0boaay.jpg"></p>
@@ -126,17 +132,11 @@
 </h2>
 <p>回复@中中4世:因为毛公的存在，老蒋就不好去当汪精卫了，你说是不是[哈哈]//@中中4世:抗日抗成了人民公敌，日炕日成了伟光正</p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3875926670339101" target="freeweibo-mirror">[笑cry] //@葉子M微博:[哈哈][哈哈]//@岳阳姜…</a>
 </h2>
 <p>[笑cry] //@葉子M微博:[哈哈][哈哈]//@岳阳姜宗福:这部庆丰版的《开罗宣言》今年很有可能获得奥斯卡年度最佳滥片奖！<br><br>RE: 开罗宣言[哈哈]<br><img src="http://ww2.sinaimg.cn/large/7052cea7jw1ev2k2napsbj20dw0antar.jpg"></p>
-<p>
-	<small> ============== 11小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3875923118235463" target="freeweibo-mirror">斯大林对毛公说：胜利者是不受指责的。[哈哈] 你们的野爹又是…</a>
-</h2>
-<p>斯大林对毛公说：胜利者是不受指责的。[哈哈] 你们的野爹又是什么口碑呢？被美国都抛弃了。 //@左派网:毛你爹妈公啊，斯大林的干儿子也配叫唤，叫毛敬塘算了</p>
 <p>
 	<small> ============== 11小时前</small>
 </p>
