@@ -66,7 +66,7 @@
 </h2>
 <p>SPAM  //@禹悦://@作家东海: [怒]<br><br>RE: 如果不是谣言就是最大的丑闻。天津，真想把天津变成地狱？如果对死者与生者都不想有个交待，那就是典型的恶政！<br><img src="http://ww1.sinaimg.cn/large/b686ce1fjw1ev2j0iwrq7j20qo0fhdi3.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3876029942698126" target="freeweibo-mirror">面对一边倒的众议而不关评论，可谓“开放宣言”。</a>
 </h2>
@@ -90,7 +90,7 @@
 </h2>
 <p>有图为证：毛主席去开罗。<br><img src="http://ww2.sinaimg.cn/large/6d0b6b33jw1ev2zywk1xbj209q0boaay.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3876008756856528" target="freeweibo-mirror">SPAM //@未來的主人翁90後:“中华有风骨，皆入共党囚…</a>
 </h2>
@@ -128,15 +128,15 @@
 <p>
 	<small> ============== 8小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3875973080297581" target="freeweibo-mirror">这条微博，阅读量一万以后，禁转了。</a>
+</h2>
+<p>这条微博，阅读量一万以后，禁转了。<br><img src="http://ww3.sinaimg.cn/large/0068BSWAjw1ev2ugxsqodj30k00zk79s.jpg"></p>
+<p>
+	<small> ============== 9小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3875939530716540" target="freeweibo-mirror">SPAM 这不是独夫民贼吗？</a>
 </h2>
 <p>SPAM 这不是独夫民贼吗？<br><br>RE: 开罗宣言[哈哈]<br><img src="http://ww2.sinaimg.cn/large/7052cea7jw1ev2k2napsbj20dw0antar.jpg"></p>
-<p>
-	<small> ============== 11小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3875935168076209" target="freeweibo-mirror">[真心英雄佟大为]//@陈业文新大都: [笑cry] //@…</a>
-</h2>
-<p>[真心英雄佟大为]//@陈业文新大都: [笑cry] //@葉子M微博:[哈哈][哈哈]//@岳阳姜宗福:这部庆丰版的《开罗宣言》今年很有可能获得奥斯卡年度最佳滥片奖！<br><br>RE: 开罗宣言[哈哈]<br><img src="http://ww2.sinaimg.cn/large/7052cea7jw1ev2k2napsbj20dw0antar.jpg"></p>
 <p>
 	<small> ============== 11小时前</small>
 </p>
