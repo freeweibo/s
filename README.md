@@ -72,7 +72,7 @@
 </h2>
 <p>面对一边倒的众议而不关评论，可谓“开放宣言”。<br><br>RE: #开罗宣言定档9.3#由@胡军、@劉嘉玲 、@韩雪、马晓伟、@唐国强、@姚笛、@陈冲 等联袂出演。今日曝光的这四款海报主打历史人物，四位伟人的剪影与重大事件的画面浑然一体，这种设计也突出了历史造就伟人，这也充分体现了《开罗宣言》从国际视角观察历史、以全人类的角度去尊重历史的立意和胸怀。<br><img src="http://ww4.sinaimg.cn/large/006aZlw4jw1ev1xpeehz2j30dw3h04qp.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3876027749483440" target="freeweibo-mirror">SPAM 求证？[围观][围观]</a>
 </h2>
@@ -114,7 +114,7 @@
 </h2>
 <p>SPAM [吃惊] 花花，俺被你的中文水平惊呆了。//@真妮花的愛心:毛粉們不在乎無恥，但求在精神上達到高潮 //@礼江美鱼://@万家灯火65://@重阳楼: //@向善唠叨</p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3875994761082293" target="freeweibo-mirror">赞颂牺牲是中共历来的宣传卖点，不保护生命是中共历来不重视的盲…</a>
 </h2>
@@ -132,7 +132,7 @@
 </h2>
 <p>SPAM 这不是独夫民贼吗？<br><br>RE: 开罗宣言[哈哈]<br><img src="http://ww2.sinaimg.cn/large/7052cea7jw1ev2k2napsbj20dw0antar.jpg"></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3875935168076209" target="freeweibo-mirror">[真心英雄佟大为]//@陈业文新大都: [笑cry] //@…</a>
 </h2>
