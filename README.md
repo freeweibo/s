@@ -48,7 +48,7 @@
 </h2>
 <p>#财新图片#【北京什刹海荷花市场 众人集体倒地】2015年8月15日下午，北京西城区什刹海荷花市场门口，数人倒地，身体出现明显不适症状。现场迅速拉起警戒线，救护车随即赶到，部分不适民众被送往医院 http://t.cn/RLBggHz<br><img src="http://ww1.sinaimg.cn/large/632dab64jw1ev3j391cfsj20dc08wt9g.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3876180786255677" target="freeweibo-mirror">就刚才，荷花市场，十几口子集体服毒自杀。</a>
 </h2>
