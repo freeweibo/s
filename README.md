@@ -62,6 +62,12 @@
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3876203871824432" target="freeweibo-mirror">绕晕了[晕]//@战术狂郑三炮:尼玛，博主油菜啊 //@周士…</a>
+</h2>
+<p>绕晕了[晕]//@战术狂郑三炮:尼玛，博主油菜啊 //@周士君牧野风:这段子，真能绕~~~~~~~<br><br>RE: 群众问《人民日报》社论提到的“退而不休”的领导是谁，有网友回：他在距离世纪之交11年的一场动乱让他成为了国家元首。他曾经发表过一个以“三”开头的理论，他英文流利，去过多个西方国家，他深爱着一位姓宋而且年龄与他悬殊很大的女性，一直到他退位以后很多人都认为他是国家元首——他就是孙中山。</p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3876199510490589" target="freeweibo-mirror">确定不是谣言？</a>
 </h2>
 <p>确定不是谣言？<br><br>RE: 【北京什刹海数人喝农药倒地 已送医】2015年8月15日，北京西城区什刹海荷花市场门口，数人喝药倒地，目前喝药原因不详。现场有十余个敌敌畏瓶子，4辆救护车随即赶到，将倒地者送往医院。 （财新网）</p>
@@ -78,7 +84,7 @@
 </h2>
 <p>去人多的地方小心，别座飞机去东南亚，就这样。北上广还是很安全的。<br><br>RE: #财新图片#【北京什刹海荷花市场 众人集体倒地】2015年8月15日下午，北京西城区什刹海荷花市场门口，数人倒地，身体出现明显不适症状。现场迅速拉起警戒线，救护车随即赶到，部分不适民众被送往医院 http://t.cn/RLBggHz<br><img src="http://ww1.sinaimg.cn/large/632dab64jw1ev3j391cfsj20dc08wt9g.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3876187446727013" target="freeweibo-mirror">#财新图片#【北京什刹海荷花市场 众人集体倒地】2015年8…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3876147240988244" target="freeweibo-mirror">SPAM [汗]//@i-want-it-that-way:…</a>
 </h2>
 <p>SPAM [汗]//@i-want-it-that-way: //@老音_59696://@兰园日记1://@陈首名001: //@不变的糕哥://@50年矛苔: [感冒][感冒][感冒] //@劲爆新资讯:维稳是大事！[感冒][感冒][感冒]<br><br>RE: 救援与维稳装备的差距！<br><img src="http://ww3.sinaimg.cn/large/90568a2fgw1ev3bad5z71j20cs08it94.jpg"></p>
-<p>
-	<small> ============== 7小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3876147139449971" target="freeweibo-mirror">SPAM //@深夜一只猫: 人民内部矛盾是主要矛盾 //@…</a>
-</h2>
-<p>SPAM //@深夜一只猫: 人民内部矛盾是主要矛盾 //@荣剑2001:说明什么？//@Ming_the_Great_大明://@陶景洲:这对比....[晕][晕] //@纪昀:[抓狂]<br><br>RE: 救援与维稳装备的差距！<br><img src="http://ww3.sinaimg.cn/large/90568a2fgw1ev3bad5z71j20cs08it94.jpg"></p>
 <p>
 	<small> ============== 7小时前</small>
 </p>
