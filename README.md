@@ -102,7 +102,7 @@
 </h2>
 <p>此刻，只看到他们的惴惴不安，丝毫感不到他们的一点惭愧！ //@万春雷2013:没有选过，但养过，所以应该监督他们的工作。<br><br>RE: 嘴脸，电视里没有的新闻发布会部分！！ 秒拍视频 http://t.cn/RL1hAwE http://t.cn/R2d2wQY</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3876095055574658" target="freeweibo-mirror">SPAM 向65周年献礼，炸他们一下[哈哈]//@TOUGH…</a>
 </h2>
