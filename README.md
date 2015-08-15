@@ -24,7 +24,7 @@
 </h2>
 <p>//@围观者被围观:很远！共定远！！！<br><br>RE: 嘴脸，电视里没有的新闻发布会部分！！ 秒拍视频 http://t.cn/RL1hAwE http://t.cn/R2d2wQY</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3876135798869446" target="freeweibo-mirror">职业官僚。//@元猫大大://@谭人玮://@杜君立: 暴力…</a>
 </h2>
@@ -102,7 +102,7 @@
 </h2>
 <p>//@中華保釣號://@价值诠释:[哈哈]//@杜君立: //@阿宝背书的美好生活: //@长吉乐府: 转发微博<br><br>RE: 这条微博，阅读量一万以后，禁转了。<br><img src="http://ww3.sinaimg.cn/large/0068BSWAjw1ev2ugxsqodj30k00zk79s.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3876042915574258" target="freeweibo-mirror">客观对待历史,理性面对今天,乐观进取未来。 //@林子易59…</a>
 </h2>
