@@ -66,7 +66,7 @@
 </h2>
 <p>职业官僚。//@元猫大大://@谭人玮://@杜君立: 暴力背后，其实都是这样的货色，没有一个可以见光的//@北京厨子新号:草他妈的傻逼。没水平就不要出来丢政府的脸。<br><br>RE: 嘴脸，电视里没有的新闻发布会部分！！ 秒拍视频 http://t.cn/RL1hAwE http://t.cn/R2d2wQY</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3876128542276767" target="freeweibo-mirror">//@隆裕太后:转发微博</a>
 </h2>
@@ -84,7 +84,7 @@
 </h2>
 <p>[来][围观] //@假装在纽约:现场的记者在不停追问<br><br>RE: 嘴脸，电视里没有的新闻发布会部分！！ 秒拍视频 http://t.cn/RL1hAwE http://t.cn/R2d2wQY</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3876119999117375" target="freeweibo-mirror">救援与维稳装备的差距！</a>
 </h2>
