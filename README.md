@@ -36,7 +36,7 @@
 </h2>
 <p>SPAM [偷笑]→_→//@松月江风: 比邓矮子还无赖[哈哈]//@奔六: //@清越微博1:[哈哈]//@捣蛋鬼差: [笑cry]</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3876246250931298" target="freeweibo-mirror">//@长大去天上人间玩://@无畏高尔察克:转发微博</a>
 </h2>
@@ -126,7 +126,7 @@
 </h2>
 <p>看了段微博视频，发不出，截了几张图，慎点，真正的人间地狱[泪][泪][泪][泪][泪][泪]<br><img src="http://ww1.sinaimg.cn/large/006b0ZLjjw1ev3kqfhfexj30hs0cvdgn.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3876199510490589" target="freeweibo-mirror">确定不是谣言？</a>
 </h2>
