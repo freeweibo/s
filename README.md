@@ -126,13 +126,13 @@
 </h2>
 <p>//@堂主:我擦，这条竟然没被屏蔽！<br><br>RE: #天津塘沽大爆炸# 这次大爆炸会否也炸掉权力核心？<br><img src="http://ww1.sinaimg.cn/large/005tYerBjw1ev30xjq53yj30qo0f0421.jpg"></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3876209941761748" target="freeweibo-mirror">据知情人士透露，在爆炸点附近小区，居住着5617户居民，而这…</a>
 </h2>
 <p>据知情人士透露，在爆炸点附近小区，居住着5617户居民，而这些居民所在的房屋均被摧毁成废墟。仅仅距离爆炸点500米的海港城，就有上万人居住。根据爆炸的严重程度分析，死亡人数应远比官方公布的数据大得多</p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3876208766562401" target="freeweibo-mirror">还请各位珍惜生命啊，没什么比好好活着更重要！</a>
 </h2>
