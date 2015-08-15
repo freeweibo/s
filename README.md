@@ -120,7 +120,7 @@
 </h2>
 <p>赞颂牺牲是中共历来的宣传卖点，不保护生命是中共历来不重视的盲点。民众也是如此。</p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3875976855081050" target="freeweibo-mirror">SPAM //@常四爷-: //@没良心-鱼:[蜡烛]//@…</a>
 </h2>
