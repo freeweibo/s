@@ -96,7 +96,7 @@
 </h2>
 <p>斯大林对毛公说：胜利者是不受指责的。[哈哈] 你们的野爹又是什么口碑呢？被美国都抛弃了。 //@左派网:毛你爹妈公啊，斯大林的干儿子也配叫唤，叫毛敬塘算了</p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3875915354049115" target="freeweibo-mirror">//@仍旧相信光明://@白帽青衫: //@星xc辰D33:…</a>
 </h2>
@@ -108,7 +108,7 @@
 </h2>
 <p>原来毯星毛泽东没有挤进四巨头合照，只好发单人艺术照<br><img src="http://ww1.sinaimg.cn/large/56067e2ejw1ev2n0njwuqj21kw10u1eo.jpg"></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3875902507275755" target="freeweibo-mirror">大楼房间很多吧。//@律师孟浩然: 所以？警察一早发现上班的…</a>
 </h2>
