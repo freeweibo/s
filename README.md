@@ -54,7 +54,7 @@
 </h2>
 <p>还请各位珍惜生命啊，没什么比好好活着更重要！</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3876205579307692" target="freeweibo-mirror">今天8月15日下午，什刹海荷花市场，多人喝农药啦……[吃惊]</a>
 </h2>
@@ -78,7 +78,7 @@
 </h2>
 <p>SPAM 不嫌乱啊…<br><br>RE: 就刚才，荷花市场，十几口子集体服毒自杀。<br><img src="http://ww4.sinaimg.cn/large/71d741b1jw1ev3ibjwrcoj20no0hsafc.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3876189208718173" target="freeweibo-mirror">去人多的地方小心，别座飞机去东南亚，就这样。北上广还是很安全…</a>
 </h2>
