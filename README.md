@@ -26,6 +26,18 @@
 <p>
 	<small> ============== 1小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3876002264124031" target="freeweibo-mirror">SPAM [泪]无辜的生命~//@千帆-看看:不赞扬哪有sb…</a>
+</h2>
+<p>SPAM [泪]无辜的生命~//@千帆-看看:不赞扬哪有sb替它们送命？<br><br>RE: 赞颂牺牲是中共历来的宣传卖点，不保护生命是中共历来不重视的盲点。民众也是如此。</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3876002151706479" target="freeweibo-mirror">SPAM [生病]循环//@童梦柯:是的，若干年前是这样，若…</a>
+</h2>
+<p>SPAM [生病]循环//@童梦柯:是的，若干年前是这样，若干年后也是如此<br><br>RE: 赞颂牺牲是中共历来的宣传卖点，不保护生命是中共历来不重视的盲点。民众也是如此。</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3876000049678211" target="freeweibo-mirror">SPAM [吃惊] 花花，俺被你的中文水平惊呆了。//@真妮…</a>
 </h2>
 <p>SPAM [吃惊] 花花，俺被你的中文水平惊呆了。//@真妮花的愛心:毛粉們不在乎無恥，但求在精神上達到高潮 //@礼江美鱼://@万家灯火65://@重阳楼: //@向善唠叨</p>
@@ -36,7 +48,7 @@
 </h2>
 <p>SPAM //@常四爷-: //@没良心-鱼:[蜡烛]//@游荡2011://@宇宙真理002://@竹-昀://@淳西歸來:Repost<br><br>RE: 人家啲原帖轉不出發不出。試下這樣發吧。上天幫幫忙。做個護主好不好呢[甜馨得瑟]<br><img src="http://ww2.sinaimg.cn/large/0068CdX5jw1ev2jv357xjj30c80gb40d.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3875939530716540" target="freeweibo-mirror">SPAM 这不是独夫民贼吗？</a>
 </h2>
@@ -60,7 +72,7 @@
 </h2>
 <p>回复@中中4世:你居然不能原谅有良知有人性的中国人，良心太坏了[哼]//@中中4世:作为一个有良知有人性，基于良知和人性的是非判断，仍然崇拜毛的中国人，是不原谅的//@不沉默的大多数:回复@中中4世:因为毛公的存在，老蒋就不好去当汪精卫了，你说是不是[哈哈]</p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3875929098650348" target="freeweibo-mirror">回复@中中4世:因为毛公的存在，老蒋就不好去当汪精卫了，你说…</a>
 </h2>
@@ -127,18 +139,6 @@
 <p>确实是谈笑风生 //@科学少女喵:现在想来，竟然在中国历史上，空前绝后</p>
 <p>
 	<small> ============== 9小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3875882634956657" target="freeweibo-mirror">开罗宣言[哈哈]</a>
-</h2>
-<p>开罗宣言[哈哈]<br><img src="http://ww2.sinaimg.cn/large/7052cea7jw1ev2k2napsbj20dw0antar.jpg"></p>
-<p>
-	<small> ============== 10小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3875881577323135" target="freeweibo-mirror">人家啲原帖轉不出發不出。試下這樣發吧。上天幫幫忙。做個護主好…</a>
-</h2>
-<p>人家啲原帖轉不出發不出。試下這樣發吧。上天幫幫忙。做個護主好不好呢[甜馨得瑟]<br><img src="http://ww2.sinaimg.cn/large/0068CdX5jw1ev2jv357xjj30c80gb40d.jpg"></p>
-<p>
-	<small> ============== 10小时前</small>
 </p>
 <table>
     <tr>
