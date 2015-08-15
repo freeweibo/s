@@ -30,7 +30,7 @@
 </h2>
 <p>SPAM 不嫌乱啊…<br><br>RE: 就刚才，荷花市场，十几口子集体服毒自杀。<br><img src="http://ww4.sinaimg.cn/large/71d741b1jw1ev3ibjwrcoj20no0hsafc.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3876189208718173" target="freeweibo-mirror">去人多的地方小心，别座飞机去东南亚，就这样。北上广还是很安全…</a>
 </h2>
