@@ -96,7 +96,7 @@
 </h2>
 <p>来自iphone客户端。<br><br>RE: 本人王明德，黑龙江人，在广东经商，因长沙声援区伯被广东衙役警告，因庆安徐纯合事件举报当地官员，被广东驱逐，被哈尔滨衙役追捕，带着8岁孩子已流亡3个月了。为孩子，也为其他四处流浪的良心人，坐牢的人，现小额募捐1——100不限，望朋友们支持！建行王明权：6217 0010 7000 1131 040叩谢！<br><img src="http://ww3.sinaimg.cn/large/005ASqIUjw1ev3375qpw9j30hs0hsjtn.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3876155545213978" target="freeweibo-mirror">SPAM //@煙巳惔嘸菋:保护权贵//@ICE啤酒://@…</a>
 </h2>
@@ -120,7 +120,7 @@
 </h2>
 <p>一个物理博士的分析<br><img src="http://ww4.sinaimg.cn/large/46dd91c4jw1ev3f0cakkxj20ci0m8766.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3876147240988244" target="freeweibo-mirror">SPAM [汗]//@i-want-it-that-way:…</a>
 </h2>
@@ -138,7 +138,7 @@
 </h2>
 <p>//@围观者被围观:很远！共定远！！！<br><br>RE: 嘴脸，电视里没有的新闻发布会部分！！ 秒拍视频 http://t.cn/RL1hAwE http://t.cn/R2d2wQY</p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p>
 <table>
     <tr>
