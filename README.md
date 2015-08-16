@@ -102,7 +102,7 @@
 </h2>
 <p>#開羅宣言#[哈哈] 誰配的對話？<br><img src="http://ww4.sinaimg.cn/large/00681p4ogw1ev4ftcaq8dj30ef0a6dg9.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3876464946082220" target="freeweibo-mirror">SPAM //@珠海老周:这回是因为现场有毒吧？</a>
 </h2>
