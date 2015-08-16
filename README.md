@@ -126,7 +126,7 @@
 </h2>
 <p>紧急通知西边人民今晚减少外出，万寿路，太平路，金沟河，永定路现在空气中弥漫着大量酸性物质，本人亲身体验，请关好门窗@北京的晖子 @空亡线情人的n世小号 @札克纳梵_冯_李希特二猪 @卡扎菲9119 ，造谣死妈的 http://t.cn/R2d2hdD http://t.cn/R2d2hdD<br><img src="http://ww4.sinaimg.cn/large/4ec32f61jw1ev4t57452gj20n00h9419.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3876586418114473" target="freeweibo-mirror">SPAM //@屌面骑士:多大点事，上武警</a>
 </h2>
