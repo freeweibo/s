@@ -30,7 +30,7 @@
 </h2>
 <p>//@唯一在世的雷奥尼克斯: 转发微博</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3876545934444755" target="freeweibo-mirror">[弱]//@老菜头2011://@飘落在南半球:回复@醒龙智…</a>
 </h2>
@@ -96,7 +96,7 @@
 </h2>
 <p>还是发吧，先睹为快，提振一下<br><br>RE: 抗战胜利纪念日阅兵彩排：很朴素节俭了。人数和规模远没有09年盛大。可能是想更多展示近年来先进武器的发展情况吧。 http://t.cn/RLrZ0Kp</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3876502384771849" target="freeweibo-mirror">好！站着，千万别跪下去！//@陈光武律师://@崔小平律师:…</a>
 </h2>
