@@ -132,7 +132,7 @@
 </h2>
 <p>忽如一夜白发至，个中缘由谁人知。<br><img src="http://ww2.sinaimg.cn/large/006chlvpjw1ev4s3c5ylqj30ew0am74m.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3876570789507480" target="freeweibo-mirror">转发微博//@邵明波:转发微博</a>
 </h2>
