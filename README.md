@@ -72,7 +72,7 @@
 </h2>
 <p>SPAM  //@李不白的空间:谣言！//@作家东海:谣言！ //@白发萧萧法律人:辟谣？//@浦东小夜曲://@听古道今log: 造谣！//@北疆观点:谣言，转发周知[话筒] //@孟庆明v:谣言<br><br>RE: 谣言<br><img src="http://ww3.sinaimg.cn/large/5cf7ad65jw1ev4fqm5oxlj20dy18g42v.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3876510051966622" target="freeweibo-mirror">【李克强赴天津重大火灾爆炸事故现场】才去现场！都第5天了。习…</a>
 </h2>
