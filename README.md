@@ -20,6 +20,18 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3876510051966622" target="freeweibo-mirror">【李克强赴天津重大火灾爆炸事故现场】才去现场！都第5天了。习…</a>
+</h2>
+<p>【李克强赴天津重大火灾爆炸事故现场】才去现场！都第5天了。习总还会不会去呢？ http://t.cn/RLrlQkV<br><img src="http://ww4.sinaimg.cn/large/53e839d2jw1ev4k537n05j20c8096dgd.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3876509217817549" target="freeweibo-mirror">从中南海到爆炸现场，不足170公里，却迟至第五天才到。。。所…</a>
+</h2>
+<p>从中南海到爆炸现场，不足170公里，却迟至第五天才到。。。所以，这次连“我来晚了”估计也不好意思说了吧？ //@作家岳南:思想也应保持高度一致。[熊猫]//@熊猫君再来: 制服挺整齐的</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3876495648585189" target="freeweibo-mirror">[哈哈] //@平凡樵丁:[哈哈][哈哈][哈哈]右边颇为自…</a>
 </h2>
 <p>[哈哈] //@平凡樵丁:[哈哈][哈哈][哈哈]右边颇为自豪地回答。<br><br>RE: #開羅宣言#[哈哈] 誰配的對話？<br><img src="http://ww4.sinaimg.cn/large/00681p4ogw1ev4ftcaq8dj30ef0a6dg9.jpg"></p>
@@ -90,7 +102,7 @@
 </h2>
 <p>SPAM  //@深夜一只猫:政府首脑第一时间到现场是非常必要的，苛责温相的人一定会后悔的<br><br>RE: 突然有点怀念那个爱说我来晚了的老演员，虽然总是迟到，可他从来不会躲着不来。</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3876460018602158" target="freeweibo-mirror">天津起码有两派政治势力，挺复杂。这次灾难毛派特兴奋，加入了质…</a>
 </h2>
@@ -125,18 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3876439814101889" target="freeweibo-mirror">哈哈哈哈。。。想不到还是终身制好。//@八大山债人: 说找到…</a>
 </h2>
 <p>哈哈哈哈。。。想不到还是终身制好。//@八大山债人: 说找到700吨氰化钠的，我都不知道那玩意放在这个爆炸现场的那个地点能保持下来，希望已经被爆炸烧得干净了//@买买提x-OK: 啊五环，你六环少一环。<br><br>RE: 【跪求】我对李瑞环的印象是很好的。天津事件瑞海公司的李瑞海浮出水面，我心目中的环就少了"一"环变成坏了…我跪求中央英明决策，实行"中央高级领导终身制"，5个常委，15个政治局委员，到死都不换人。否则，5年总产生几十个家族，老百姓负担比生20个私生子还重，真的要崩溃了: http://t.cn/RLB9N1Q</p>
-<p>
-	<small> ============== 6小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3876439071692315" target="freeweibo-mirror">SPAM [怒][怒]</a>
-</h2>
-<p>SPAM [怒][怒]<br><br>RE: SPAM 太残忍，怎么能下得了手！5岁孩子被#继母#连砍30多刀，连头骨都被砍裂了，我都看哭了，天下怎么会有这样的畜生！[怒][怒][怒]<br><img src="http://ww4.sinaimg.cn/large/881a05adjw1ev4b3z9pvvj20c80i40u9.jpg"></p>
-<p>
-	<small> ============== 6小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3876438434190252" target="freeweibo-mirror">所有业主无法接受仅对楼体进行修缮的解决方法，坚决要求政府采购…</a>
-</h2>
-<p>所有业主无法接受仅对楼体进行修缮的解决方法，坚决要求政府采购回购的方式解决业主房产损失问题。<br><br>RE: #天津爆炸事故#今天上午10点将举行天津港爆炸事故第六次新闻发布会。此刻，发布会美华酒店外，天津启航嘉园社区民众拉横幅请愿。现场秩序井然，四五名身着警服的警察默默地站在酒店门口看着。有家属代表上前与他们沟通，警察低声表示对家属同情，但希望不要闹事。本报@记者郝成<br><img src="http://ww4.sinaimg.cn/large/625ab309gw1ev48ffi015j20qo0zkwi1.jpg"></p>
 <p>
 	<small> ============== 6小时前</small>
 </p>
