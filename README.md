@@ -48,7 +48,7 @@
 </h2>
 <p>这就是高级黑！因为这些高级黑，关心国事的网民被称为屌丝，追求民主的被称为“公知”，讲究平等的先是被称为愤青，现在被称为左粪。用高级黑的方式，颠覆网络精神，无往而不胜 //@况秀猛:好像有一张是天津的。这种做法非常的不合适，网民需要有基本底线。 //@胡等政:一张天津的都没//<br><br>RE: 不忍目视！<br><img src="http://ww4.sinaimg.cn/large/4cb56c16jw1ev3lv7xuwsj20k00zkabs.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3876431030924467" target="freeweibo-mirror">[衰]//@亮冰娜无穷动:城管这么牛逼啊，应该让天津城管去救…</a>
 </h2>
@@ -102,7 +102,7 @@
 </h2>
 <p>被稳定的情绪。//@同福客栈邢捕头:大天津的官员有人为这场灾难流泪吗？<br><br>RE: 政府说家属情绪稳定，这是明显的造谣！造谣者应该坐牢！<br><img src="http://ww1.sinaimg.cn/large/006bGP2zjw1ev33bkvaaxj30f00qomyr.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3876416824936177" target="freeweibo-mirror">//@莫西干人://@袁甲: 这就是中国的红十字会</a>
 </h2>
