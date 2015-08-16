@@ -66,7 +66,7 @@
 </h2>
 <p>SPAM [作揖]祝长者生快！<br><img src="http://ww4.sinaimg.cn/large/6d0b6b33jw1ev4uvxuz3hj20dc0hs3ze.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3876602251305430" target="freeweibo-mirror">SPAM 我小心脏受不了了[吃惊]</a>
 </h2>
