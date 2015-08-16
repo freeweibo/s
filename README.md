@@ -36,7 +36,7 @@
 </h2>
 <p>[弱]//@老菜头2011://@飘落在南半球:回复@醒龙智:要不是昏官，要不就是有猫腻 //@醒龙智:中国官员太好当了，出这么大的人祸，造成如此严重的人员伤亡和财产损失，就不为奇了！． //@飘落在南半球:估计市级领导在爆炸中，被炸晕了 //@许志平: 糊涂瘴，糊涂账，糊涂仗，糊涂杖。<br><br>RE: 财新传媒的记者问：现场救援天津市哪位领导负责？ http://t.cn/RLrJr0K .</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3876539869378608" target="freeweibo-mirror">//@赶蟹国家: 有能耐搞身份证的，就可以像薄熙来的大哥、令…</a>
 </h2>
@@ -120,13 +120,13 @@
 </h2>
 <p>抗战胜利纪念日阅兵彩排：很朴素节俭了。人数和规模远没有09年盛大。可能是想更多展示近年来先进武器的发展情况吧。 http://t.cn/RLrZ0Kp</p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3876486094048625" target="freeweibo-mirror">【请愿，社会正常化的开端】天津发布会现场出现市民请愿一景，正…</a>
 </h2>
 <p>【请愿，社会正常化的开端】天津发布会现场出现市民请愿一景，正常社会不应该视此为畏途，更不应该寻衅滋事缉拿之！<br><img src="http://ww1.sinaimg.cn/large/6a80bfcdjw1ev4hbi2t14j20hs09zt9w.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3876481568475477" target="freeweibo-mirror">SPAM ok！//@艾风舞:身体语言？</a>
 </h2>
