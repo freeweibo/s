@@ -90,7 +90,13 @@
 </h2>
 <p>//@塞北偏北10: //@前度神-游://@祁国威://@只配叫猪:枪杆子，笔杆子，二杆子。//@山爪在途中: [哈哈][贊] //@用户星火5577063444://@微评议:。。。<br><br>RE: 最新一期《经济学人》的封面，应该是《开罗宣言》这部电影海报的很好注解。<br><img src="http://ww2.sinaimg.cn/large/4460fbdcjw1ev3jwmiut8j20b40emab9.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3876527491926110" target="freeweibo-mirror">天津 终于上街了。</a>
+</h2>
+<p>天津 终于上街了。<br><img src="http://ww1.sinaimg.cn/large/e7c20329jw1ev4m4yf8a2j20ba08lgm6.jpg"></p>
+<p>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3876527466742607" target="freeweibo-mirror">支持总理依法全面彻底取消环境评估、安全评估等毫无用处的评估！…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3876505970906040" target="freeweibo-mirror">还是发吧，先睹为快，提振一下</a>
 </h2>
 <p>还是发吧，先睹为快，提振一下<br><br>RE: 抗战胜利纪念日阅兵彩排：很朴素节俭了。人数和规模远没有09年盛大。可能是想更多展示近年来先进武器的发展情况吧。 http://t.cn/RLrZ0Kp</p>
-<p>
-	<small> ============== 7小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3876502384771849" target="freeweibo-mirror">好！站着，千万别跪下去！//@陈光武律师://@崔小平律师:…</a>
-</h2>
-<p>好！站着，千万别跪下去！//@陈光武律师://@崔小平律师://@燕文薪:转发微博<br><br>RE: 【请愿，社会正常化的开端】天津发布会现场出现市民请愿一景，正常社会不应该视此为畏途，更不应该寻衅滋事缉拿之！<br><img src="http://ww1.sinaimg.cn/large/6a80bfcdjw1ev4hbi2t14j20hs09zt9w.jpg"></p>
 <p>
 	<small> ============== 7小时前</small>
 </p>
