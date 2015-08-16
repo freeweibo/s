@@ -60,7 +60,7 @@
 </h2>
 <p>SPAM [哈哈] //@佩尔琳:[哈哈] //@公正善良:[哈哈] //@西之壺詊:[哈哈][哈哈][哈哈]//@光明使者V: [哈哈][哈哈][哈哈]<br><br>RE: #開羅宣言#[哈哈] 誰配的對話？<br><img src="http://ww4.sinaimg.cn/large/00681p4ogw1ev4ftcaq8dj30ef0a6dg9.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3876481568475477" target="freeweibo-mirror">SPAM ok！//@艾风舞:身体语言？</a>
 </h2>
