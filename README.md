@@ -42,7 +42,7 @@
 </h2>
 <p>//@水煮石头三世: //@安普若-外号安校长://@袁莉wsj: //@傅峙峰WSJ: //@投资者阮某人:转发微博<br><br>RE: RT @rosetangy: 美國哥倫比亞廣播公司記者Seth Doane @sethdoane 在天津一家醫院外採訪時被警方騷擾的情形。他在被警察推推搡搡時說：「我們只是想在醫院外拍點鏡頭，沒想做太多。但你可看到，警察阻攔我們拍。這就是在中國報導新聞的樣子。」 http://t.cn/RLBAY9a .</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3876401155717693" target="freeweibo-mirror">SPAM 灰常厉害 //@ROC917:非常厉害//@能好就…</a>
 </h2>
@@ -65,6 +65,12 @@
 	<a href="https://freeweibo.com/weibo/3876393471529213" target="freeweibo-mirror">[哈哈]公安可以按图索骥把他们这些开会的都抓起来！//@傻根…</a>
 </h2>
 <p>[哈哈]公安可以按图索骥把他们这些开会的都抓起来！//@傻根恶搞:[哈哈]//@浩正刘臻: 我已经到了，满街都是中流砥柱 //@劳丽诗:[吃惊] 一大波正在赶来的路上！<br><br>RE: 一大波参加开罗会者议来袭[汗]<br><img src="http://ww4.sinaimg.cn/large/767e4963jw1ev3otr6emtj20c80hjdio.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3876392871810473" target="freeweibo-mirror">有关部门！果然厉害</a>
+</h2>
+<p>有关部门！果然厉害<br><img src="http://ww2.sinaimg.cn/large/005Zc5hajw1ev46od2iroj30hs0bxtan.jpg"></p>
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3876373254491729" target="freeweibo-mirror">啥叫竞选？//@王荣耀营销管理培训:转发微博</a>
 </h2>
 <p>啥叫竞选？//@王荣耀营销管理培训:转发微博</p>
-<p>
-	<small> ============== 5小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3876372571472070" target="freeweibo-mirror">[哈哈] //@麒哥归来:[笑哈哈]//@孙智峰wufazh…</a>
-</h2>
-<p>[哈哈] //@麒哥归来:[笑哈哈]//@孙智峰wufazhuce: 看评论我真是醉了，还和华莱士谈笑风生，采访视频里华莱士完全就是句句讽刺挖苦。</p>
 <p>
 	<small> ============== 5小时前</small>
 </p>
