@@ -30,7 +30,7 @@
 </h2>
 <p>SPAM 太残忍，怎么能下得了手！5岁孩子被#继母#连砍30多刀，连头骨都被砍裂了，我都看哭了，天下怎么会有这样的畜生！[怒][怒][怒]<br><img src="http://ww4.sinaimg.cn/large/881a05adjw1ev4b3z9pvvj20c80i40u9.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3876431030924467" target="freeweibo-mirror">[衰]//@亮冰娜无穷动:城管这么牛逼啊，应该让天津城管去救…</a>
 </h2>
@@ -54,13 +54,13 @@
 </h2>
 <p>//@完颜络:最丑恶的步伐 //@多情键客无情剑://@Weaponmagazine-肖宁:回复@斯文的土匪---:冤枉啊我，都是网上流传，我想知道原作者是谁. //@斯文的土匪---:回复@pipiapipia:也不是我拍的，秒拍用户上传的</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3876418968838307" target="freeweibo-mirror">//@尹小龙的:举报！</a>
 </h2>
 <p>//@尹小龙的:举报！<br><br>RE: 政府说家属情绪稳定，这是明显的造谣！造谣者应该坐牢！<br><img src="http://ww1.sinaimg.cn/large/006bGP2zjw1ev33bkvaaxj30f00qomyr.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3876418360923300" target="freeweibo-mirror">被稳定的情绪。//@同福客栈邢捕头:大天津的官员有人为这场灾…</a>
 </h2>
@@ -83,6 +83,12 @@
 	<a href="https://freeweibo.com/weibo/3876411599211699" target="freeweibo-mirror">//@发布威海乳山:转发微博</a>
 </h2>
 <p>//@发布威海乳山:转发微博</p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3876408826551697" target="freeweibo-mirror">天津化工仓库的爆炸是老百姓的灾难，天津政府和传媒的应对是公信…</a>
+</h2>
+<p>天津化工仓库的爆炸是老百姓的灾难，天津政府和传媒的应对是公信力与治理能力的灾难，对境外传媒粗暴的干预是国家形象的灾难。</p>
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
@@ -132,13 +138,7 @@
 </h2>
 <p>我不敢转，同志，请通过党组织表达意见！<br><br>RE: 党的治理与建设，完全陷入了一种自说自话式的自我催眠，自命清高式的背离群众，主动背叛式的背弃先贤。从一个具有强大战斗力领导力和向心力的政党，逐步蜕变为一个裹足不前固步自封无知傲慢的官僚集团！</p>
 <p>
-	<small> ============== 4小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3876389000017864" target="freeweibo-mirror">党的治理与建设，完全陷入了一种自说自话式的自我催眠，自命清高…</a>
-</h2>
-<p>党的治理与建设，完全陷入了一种自说自话式的自我催眠，自命清高式的背离群众，主动背叛式的背弃先贤。从一个具有强大战斗力领导力和向心力的政党，逐步蜕变为一个裹足不前固步自封无知傲慢的官僚集团！</p>
-<p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p>
 <table>
     <tr>
