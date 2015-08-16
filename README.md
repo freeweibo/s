@@ -78,7 +78,7 @@
 </h2>
 <p>[哈哈] //@平凡樵丁:[哈哈][哈哈][哈哈]右边颇为自豪地回答。<br><br>RE: #開羅宣言#[哈哈] 誰配的對話？<br><img src="http://ww4.sinaimg.cn/large/00681p4ogw1ev4ftcaq8dj30ef0a6dg9.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3876491924026436" target="freeweibo-mirror">SPAM [哈哈] //@佩尔琳:[哈哈] //@公正善良:…</a>
 </h2>
@@ -102,13 +102,13 @@
 </h2>
 <p>SPAM ok！//@艾风舞:身体语言？<br><br>RE: 从心理学角度分析：民有一种难以按耐的控制欲望；山有时时防范的心理准备。<br><img src="http://ww3.sinaimg.cn/large/51834496jw1ev4go9o1a6j20cg09i755.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3876480440193412" target="freeweibo-mirror">SPAM 【建议年轻人，搞对象你就去书店，书店已帮你们把各种…</a>
 </h2>
 <p>SPAM 【建议年轻人，搞对象你就去书店，书店已帮你们把各种人分好类了】想找爱学习的去四六级，想找有气质的你去乐谱区，想找文艺的就去散文旅游区，想找时尚漂亮的你去美容杂志区，想找顾家的去菜谱美食区，想找聪颖的去经济金融区，想找年纪小的去教参区，连年级都分出来了。#立场挑战#<br><img src="http://ww2.sinaimg.cn/large/98c1610bjw1ev4gozobbqj20be07laat.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3876479878255990" target="freeweibo-mirror">从心理学角度分析：民有一种难以按耐的控制欲望；山有时时防范的…</a>
 </h2>
@@ -128,15 +128,15 @@
 <p>
 	<small> ============== 6小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3876471997068591" target="freeweibo-mirror">谣言</a>
+</h2>
+<p>谣言<br><img src="http://ww3.sinaimg.cn/large/5cf7ad65jw1ev4fqm5oxlj20dy18g42v.jpg"></p>
+<p>
+	<small> ============== 6小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3876464946082220" target="freeweibo-mirror">SPAM //@珠海老周:这回是因为现场有毒吧？</a>
 </h2>
 <p>SPAM //@珠海老周:这回是因为现场有毒吧？<br><br>RE: 突然有点怀念那个爱说我来晚了的老演员，虽然总是迟到，可他从来不会躲着不来。</p>
-<p>
-	<small> ============== 7小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3876464367740587" target="freeweibo-mirror">SPAM  //@闵玉平:俺只转，什么也不说。 //@-孔智…</a>
-</h2>
-<p>SPAM  //@闵玉平:俺只转，什么也不说。 //@-孔智勇: //@谓贤:这是哪年的报道？</p>
 <p>
 	<small> ============== 7小时前</small>
 </p>
