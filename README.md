@@ -42,7 +42,7 @@
 </h2>
 <p>SPAM 太残忍，怎么能下得了手！5岁孩子被#继母#连砍30多刀，连头骨都被砍裂了，我都看哭了，天下怎么会有这样的畜生！[怒][怒][怒]<br><img src="http://ww4.sinaimg.cn/large/881a05adjw1ev4b3z9pvvj20c80i40u9.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3876433283635025" target="freeweibo-mirror">这就是高级黑！因为这些高级黑，关心国事的网民被称为屌丝，追求…</a>
 </h2>
@@ -84,19 +84,19 @@
 </h2>
 <p>//@完颜络:最丑恶的步伐 //@多情键客无情剑://@Weaponmagazine-肖宁:回复@斯文的土匪---:冤枉啊我，都是网上流传，我想知道原作者是谁. //@斯文的土匪---:回复@pipiapipia:也不是我拍的，秒拍用户上传的</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3876419317080453" target="freeweibo-mirror">这话说的有水平。//@天狼50陈浩: CNN想要的镜头就是盖…</a>
 </h2>
 <p>这话说的有水平。//@天狼50陈浩: CNN想要的镜头就是盖住镜头的那只手。<br><br>RE: 天津化工仓库的爆炸是老百姓的灾难，天津政府和传媒的应对是公信力与治理能力的灾难，对境外传媒粗暴的干预是国家形象的灾难。</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3876418968838307" target="freeweibo-mirror">//@尹小龙的:举报！</a>
 </h2>
 <p>//@尹小龙的:举报！<br><br>RE: 政府说家属情绪稳定，这是明显的造谣！造谣者应该坐牢！<br><img src="http://ww1.sinaimg.cn/large/006bGP2zjw1ev33bkvaaxj30f00qomyr.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3876418360923300" target="freeweibo-mirror">被稳定的情绪。//@同福客栈邢捕头:大天津的官员有人为这场灾…</a>
 </h2>
