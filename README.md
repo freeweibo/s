@@ -32,9 +32,21 @@
 <p>
 	<small> ============== 1小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3876437511489945" target="freeweibo-mirror">国军五大王牌主力个个均非善茬，打得日军都闻风丧胆，堪称虎狼之…</a>
+</h2>
+<p>国军五大王牌主力个个均非善茬，打得日军都闻风丧胆，堪称虎狼之师！但最终均败于中共悍将之手，还是应了那句老话，不是国家无能是共党太厉害！当然人心气数也是其落难劫数！</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3876435066240897" target="freeweibo-mirror">SPAM 太残忍，怎么能下得了手！5岁孩子被#继母#连砍30…</a>
 </h2>
 <p>SPAM 太残忍，怎么能下得了手！5岁孩子被#继母#连砍30多刀，连头骨都被砍裂了，我都看哭了，天下怎么会有这样的畜生！[怒][怒][怒]<br><img src="http://ww4.sinaimg.cn/large/881a05adjw1ev4b3z9pvvj20c80i40u9.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3876433283635025" target="freeweibo-mirror">这就是高级黑！因为这些高级黑，关心国事的网民被称为屌丝，追求…</a>
+</h2>
+<p>这就是高级黑！因为这些高级黑，关心国事的网民被称为屌丝，追求民主的被称为“公知”，讲究平等的先是被称为愤青，现在被称为左粪。用高级黑的方式，颠覆网络精神，无往而不胜 //@况秀猛:好像有一张是天津的。这种做法非常的不合适，网民需要有基本底线。 //@胡等政:一张天津的都没//<br><br>RE: 不忍目视！<br><img src="http://ww4.sinaimg.cn/large/4cb56c16jw1ev3lv7xuwsj20k00zkabs.jpg"></p>
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
@@ -50,6 +62,12 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3876428863112995" target="freeweibo-mirror">有些当场被火化了··找不到了，好惨。追责。//@吴顾问197…</a>
+</h2>
+<p>有些当场被火化了··找不到了，好惨。追责。//@吴顾问1970: //@蝈蝈1968:公布数据像挤牙膏似。如果没有社会的强烈关注，还会隐藏什么？</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3876422152148246" target="freeweibo-mirror">//@任志强:转发微博</a>
 </h2>
 <p>//@任志强:转发微博<br><br>RE: 天津化工仓库的爆炸是老百姓的灾难，天津政府和传媒的应对是公信力与治理能力的灾难，对境外传媒粗暴的干预是国家形象的灾难。</p>
@@ -59,6 +77,12 @@
 	<a href="https://freeweibo.com/weibo/3876419380019533" target="freeweibo-mirror">//@完颜络:最丑恶的步伐 //@多情键客无情剑://@We…</a>
 </h2>
 <p>//@完颜络:最丑恶的步伐 //@多情键客无情剑://@Weaponmagazine-肖宁:回复@斯文的土匪---:冤枉啊我，都是网上流传，我想知道原作者是谁. //@斯文的土匪---:回复@pipiapipia:也不是我拍的，秒拍用户上传的</p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3876419317080453" target="freeweibo-mirror">这话说的有水平。//@天狼50陈浩: CNN想要的镜头就是盖…</a>
+</h2>
+<p>这话说的有水平。//@天狼50陈浩: CNN想要的镜头就是盖住镜头的那只手。<br><br>RE: 天津化工仓库的爆炸是老百姓的灾难，天津政府和传媒的应对是公信力与治理能力的灾难，对境外传媒粗暴的干预是国家形象的灾难。</p>
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
@@ -102,7 +126,7 @@
 </h2>
 <p>SPAM 8月13日阅兵预演视频http://t.cn/RLrZ0Kp 徒步方队</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3876405416883305" target="freeweibo-mirror">//@水煮石头三世: //@安普若-外号安校长://@袁莉w…</a>
 </h2>
@@ -113,30 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3876401155717693" target="freeweibo-mirror">SPAM 灰常厉害 //@ROC917:非常厉害//@能好就…</a>
 </h2>
 <p>SPAM 灰常厉害 //@ROC917:非常厉害//@能好就好啊://@可可-cm://@王亚军北京: 嘛蛋<br><br>RE: 有关部门！果然厉害<br><img src="http://ww2.sinaimg.cn/large/005Zc5hajw1ev46od2iroj30hs0bxtan.jpg"></p>
-<p>
-	<small> ============== 4小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3876397280314668" target="freeweibo-mirror">SPAM 安倍那是民选的，怎么比？僭越啊！</a>
-</h2>
-<p>SPAM 安倍那是民选的，怎么比？僭越啊！<br><br>RE: 作为一个刚刚值完夜班的媒体人，带着双重的伤痛下班，一是无辜死难同胞带来的内心伤痛和一些农民工财产尽失、求告无门的呻吟，二是政府无力的辩解、遮掩和看客丧事变成喜事的无良歌颂。天津港，104条生命，天文数字一般的财产损失，高昂的救援成本，等待着一声真挚的忏悔和道歉。竟连安倍也不如。</p>
-<p>
-	<small> ============== 4小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3876396542098223" target="freeweibo-mirror">SPAM 常看常新。</a>
-</h2>
-<p>SPAM 常看常新。<br><br>RE: #吐槽暴料#领导的大智慧 #吐槽曝料# #上海生活#http://t.cn/RLBrAhm</p>
-<p>
-	<small> ============== 4小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3876393471529213" target="freeweibo-mirror">[哈哈]公安可以按图索骥把他们这些开会的都抓起来！//@傻根…</a>
-</h2>
-<p>[哈哈]公安可以按图索骥把他们这些开会的都抓起来！//@傻根恶搞:[哈哈]//@浩正刘臻: 我已经到了，满街都是中流砥柱 //@劳丽诗:[吃惊] 一大波正在赶来的路上！<br><br>RE: 一大波参加开罗会者议来袭[汗]<br><img src="http://ww4.sinaimg.cn/large/767e4963jw1ev3otr6emtj20c80hjdio.jpg"></p>
-<p>
-	<small> ============== 4小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3876392871810473" target="freeweibo-mirror">有关部门！果然厉害</a>
-</h2>
-<p>有关部门！果然厉害<br><img src="http://ww2.sinaimg.cn/large/005Zc5hajw1ev46od2iroj30hs0bxtan.jpg"></p>
 <p>
 	<small> ============== 4小时前</small>
 </p>
