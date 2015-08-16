@@ -24,7 +24,7 @@
 </h2>
 <p>SPAM  //@郑敏:别指望了 //@又有壹楠://@GUOJI-ZHANG:图片评论 http://t.cn/RLrCu56</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3876622249579019" target="freeweibo-mirror">SPAM 蛤ppy birthday笑尿//@301_Mov…</a>
 </h2>
