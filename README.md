@@ -62,6 +62,12 @@
 <p>
 	<small> ============== 4小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3876527013690179" target="freeweibo-mirror">问:“天津这次救援是哪位领导牵头的？是如何组织指挥的？龚部长…</a>
+</h2>
+<p>问:“天津这次救援是哪位领导牵头的？是如何组织指挥的？龚部长回答。”答:“这个问题回去我再详细了解下。”问:“您作为宣传部长怎么不了解呢？”答:“请下一位。”<br><br>RE: #天津滨海爆炸#【天津官方：如何组织指挥待了解】天津市委宣传部副部长龚建生在回答记者有关此次爆炸事故救援总指挥是谁，如何组织指挥时表示，“这个问题下来以后我再尽快详细了解”。（财新网）http://t.cn/RLrJr0K</p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3876526438875464" target="freeweibo-mirror">SPAM 火烧屁股也不怕[衰]//@幸福林老太:这蛤蟆，还真…</a>
 </h2>
 <p>SPAM 火烧屁股也不怕[衰]//@幸福林老太:这蛤蟆，还真特么能撑。</p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3876481568475477" target="freeweibo-mirror">SPAM ok！//@艾风舞:身体语言？</a>
 </h2>
 <p>SPAM ok！//@艾风舞:身体语言？<br><br>RE: 从心理学角度分析：民有一种难以按耐的控制欲望；山有时时防范的心理准备。<br><img src="http://ww3.sinaimg.cn/large/51834496jw1ev4go9o1a6j20cg09i755.jpg"></p>
-<p>
-	<small> ============== 7小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3876480440193412" target="freeweibo-mirror">SPAM 【建议年轻人，搞对象你就去书店，书店已帮你们把各种…</a>
-</h2>
-<p>SPAM 【建议年轻人，搞对象你就去书店，书店已帮你们把各种人分好类了】想找爱学习的去四六级，想找有气质的你去乐谱区，想找文艺的就去散文旅游区，想找时尚漂亮的你去美容杂志区，想找顾家的去菜谱美食区，想找聪颖的去经济金融区，想找年纪小的去教参区，连年级都分出来了。#立场挑战#<br><img src="http://ww2.sinaimg.cn/large/98c1610bjw1ev4gozobbqj20be07laat.jpg"></p>
 <p>
 	<small> ============== 7小时前</small>
 </p>
