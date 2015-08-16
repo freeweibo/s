@@ -102,7 +102,7 @@
 </h2>
 <p>//@水煮石头三世: //@安普若-外号安校长://@袁莉wsj: //@傅峙峰WSJ: //@投资者阮某人:转发微博<br><br>RE: RT @rosetangy: 美國哥倫比亞廣播公司記者Seth Doane @sethdoane 在天津一家醫院外採訪時被警方騷擾的情形。他在被警察推推搡搡時說：「我們只是想在醫院外拍點鏡頭，沒想做太多。但你可看到，警察阻攔我們拍。這就是在中國報導新聞的樣子。」 http://t.cn/RLBAY9a .</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3876401155717693" target="freeweibo-mirror">SPAM 灰常厉害 //@ROC917:非常厉害//@能好就…</a>
 </h2>
