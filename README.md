@@ -48,7 +48,7 @@
 </h2>
 <p>//@发布威海乳山:转发微博</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3876405416883305" target="freeweibo-mirror">//@水煮石头三世: //@安普若-外号安校长://@袁莉w…</a>
 </h2>
@@ -66,13 +66,13 @@
 </h2>
 <p>SPAM 安倍那是民选的，怎么比？僭越啊！<br><br>RE: 作为一个刚刚值完夜班的媒体人，带着双重的伤痛下班，一是无辜死难同胞带来的内心伤痛和一些农民工财产尽失、求告无门的呻吟，二是政府无力的辩解、遮掩和看客丧事变成喜事的无良歌颂。天津港，104条生命，天文数字一般的财产损失，高昂的救援成本，等待着一声真挚的忏悔和道歉。竟连安倍也不如。</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3876396542098223" target="freeweibo-mirror">SPAM 常看常新。</a>
 </h2>
 <p>SPAM 常看常新。<br><br>RE: #吐槽暴料#领导的大智慧 #吐槽曝料# #上海生活#http://t.cn/RLBrAhm</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3876393471529213" target="freeweibo-mirror">[哈哈]公安可以按图索骥把他们这些开会的都抓起来！//@傻根…</a>
 </h2>
@@ -108,7 +108,7 @@
 </h2>
 <p>死者家属穿消防服？？？？？拿手台？？？？？？？？？？？？//@陈震同学:…………[打脸]<br><br>RE: #天津塘沽大爆炸# CNN live is blocked again .......所谓的保护记者采访权简直是笑话 http://t.cn/RLB8mId .</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3876378313140627" target="freeweibo-mirror">//@李蒙不蒙你:建议法办石述思煽颠。 //@人民在线新媒体…</a>
 </h2>
