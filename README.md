@@ -96,7 +96,7 @@
 </h2>
 <p>SPAM 我小心脏受不了了[吃惊]<br><img src="http://ww4.sinaimg.cn/large/957ec276jw1ev4upv1p8rj20ez0qo407.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3876600943148155" target="freeweibo-mirror">还是老领导有面子，临别常委们都来送行了；天津港死那么多人，他…</a>
 </h2>
@@ -132,7 +132,7 @@
 </h2>
 <p>SPAM //@屌面骑士:多大点事，上武警<br><br>RE: 天津 终于上街了。<br><img src="http://ww1.sinaimg.cn/large/e7c20329jw1ev4m4yf8a2j20ba08lgm6.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3876581720019962" target="freeweibo-mirror">SPAM 阅兵排练，要体现意志了</a>
 </h2>
