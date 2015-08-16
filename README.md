@@ -44,6 +44,12 @@
 <p>
 	<small> ============== 4小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3876542797161689" target="freeweibo-mirror">姐夫给条黄鹤楼1916，湖北最好的烟。俞主席督沪时，开会曾对…</a>
+</h2>
+<p>姐夫给条黄鹤楼1916，湖北最好的烟。俞主席督沪时，开会曾对上海的干部嚷嚷:你们一月挣多少?一天两包软中华，我只抽得起18元一包的黄鹤楼，并亮了亮手中的烟壳，恰是＂黄鹤楼1916＂。有在场人即嘀咕:这烟180一包，不是18一包。后传出，沪人以为笑谈。<br><img src="http://ww4.sinaimg.cn/large/005MTRwBgw1ev4nqdayjuj30u00u041p.jpg"></p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3876539869378608" target="freeweibo-mirror">//@赶蟹国家: 有能耐搞身份证的，就可以像薄熙来的大哥、令…</a>
 </h2>
 <p>//@赶蟹国家: 有能耐搞身份证的，就可以像薄熙来的大哥、令计划的弟弟和公子那样，搞个化名爽翻天；没能耐搞身份证的，借个身份证，也能爽歪歪 //@詹姆斯刘能2896259293: 这个社会有太多、太多这样的…………？//@菲力先生:逐渐清晰！ //@天津张翔: //@专业起哄: //@赶蟹国家:转发微博</p>
@@ -84,7 +90,7 @@
 </h2>
 <p>SPAM  //@李不白的空间:谣言！//@作家东海:谣言！ //@白发萧萧法律人:辟谣？//@浦东小夜曲://@听古道今log: 造谣！//@北疆观点:谣言，转发周知[话筒] //@孟庆明v:谣言<br><br>RE: 谣言<br><img src="http://ww3.sinaimg.cn/large/5cf7ad65jw1ev4fqm5oxlj20dy18g42v.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3876510051966622" target="freeweibo-mirror">【李克强赴天津重大火灾爆炸事故现场】才去现场！都第5天了。习…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3876486602204951" target="freeweibo-mirror">抗战胜利纪念日阅兵彩排：很朴素节俭了。人数和规模远没有09年…</a>
 </h2>
 <p>抗战胜利纪念日阅兵彩排：很朴素节俭了。人数和规模远没有09年盛大。可能是想更多展示近年来先进武器的发展情况吧。 http://t.cn/RLrZ0Kp</p>
-<p>
-	<small> ============== 8小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3876486094048625" target="freeweibo-mirror">【请愿，社会正常化的开端】天津发布会现场出现市民请愿一景，正…</a>
-</h2>
-<p>【请愿，社会正常化的开端】天津发布会现场出现市民请愿一景，正常社会不应该视此为畏途，更不应该寻衅滋事缉拿之！<br><img src="http://ww1.sinaimg.cn/large/6a80bfcdjw1ev4hbi2t14j20hs09zt9w.jpg"></p>
 <p>
 	<small> ============== 8小时前</small>
 </p>
