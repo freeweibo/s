@@ -26,6 +26,12 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3876616264045694" target="freeweibo-mirror">今天是我们伟大的长者的生日，让我们祝他生日快乐[蛋糕][蛋糕…</a>
+</h2>
+<p>今天是我们伟大的长者的生日，让我们祝他生日快乐[蛋糕][蛋糕][蛋糕][蛋糕][蛋糕][蛋糕]，转发一次续一秒。<br><img src="http://ww1.sinaimg.cn/large/7f56dbf9jw1ev4td1tzk5j204804a0sm.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3876612241707292" target="freeweibo-mirror">SPAM 个中缘由彭大嫂子最知晓。[右哼哼]</a>
 </h2>
 <p>SPAM 个中缘由彭大嫂子最知晓。[右哼哼]<br><br>RE: 忽如一夜白发至，个中缘由谁人知。<br><img src="http://ww2.sinaimg.cn/large/006chlvpjw1ev4s3c5ylqj30ew0am74m.jpg"></p>
@@ -108,7 +114,7 @@
 </h2>
 <p>忽如一夜白发至，个中缘由谁人知。<br><img src="http://ww2.sinaimg.cn/large/006chlvpjw1ev4s3c5ylqj30ew0am74m.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3876570789507480" target="freeweibo-mirror">转发微博//@邵明波:转发微博</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3876545934444755" target="freeweibo-mirror">[弱]//@老菜头2011://@飘落在南半球:回复@醒龙智…</a>
 </h2>
 <p>[弱]//@老菜头2011://@飘落在南半球:回复@醒龙智:要不是昏官，要不就是有猫腻 //@醒龙智:中国官员太好当了，出这么大的人祸，造成如此严重的人员伤亡和财产损失，就不为奇了！． //@飘落在南半球:估计市级领导在爆炸中，被炸晕了 //@许志平: 糊涂瘴，糊涂账，糊涂仗，糊涂杖。<br><br>RE: 财新传媒的记者问：现场救援天津市哪位领导负责？ http://t.cn/RLrJr0K .</p>
-<p>
-	<small> ============== 7小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3876542797161689" target="freeweibo-mirror">姐夫给条黄鹤楼1916，湖北最好的烟。俞主席督沪时，开会曾对…</a>
-</h2>
-<p>姐夫给条黄鹤楼1916，湖北最好的烟。俞主席督沪时，开会曾对上海的干部嚷嚷:你们一月挣多少?一天两包软中华，我只抽得起18元一包的黄鹤楼，并亮了亮手中的烟壳，恰是＂黄鹤楼1916＂。有在场人即嘀咕:这烟180一包，不是18一包。后传出，沪人以为笑谈。<br><img src="http://ww4.sinaimg.cn/large/005MTRwBgw1ev4nqdayjuj30u00u041p.jpg"></p>
 <p>
 	<small> ============== 7小时前</small>
 </p>
