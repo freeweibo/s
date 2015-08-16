@@ -36,7 +36,7 @@
 </h2>
 <p>SPAM 续一秒[蛋糕] //@夏宫的刘阳:[蛋糕] //@战争史研究WHS:add one second[蛋糕] //@不沉默的大多数: 祈福国泰民安[握手]</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3876607020727852" target="freeweibo-mirror">SPAM 太震惊了[衰]博主保重</a>
 </h2>
@@ -120,7 +120,7 @@
 </h2>
 <p>SPAM 你这是一场阴谋[哈哈]</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3876551957019751" target="freeweibo-mirror">//@唯一在世的雷奥尼克斯: 转发微博</a>
 </h2>
