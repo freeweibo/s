@@ -30,7 +30,7 @@
 </h2>
 <p>被稳定的情绪。//@同福客栈邢捕头:大天津的官员有人为这场灾难流泪吗？<br><br>RE: 政府说家属情绪稳定，这是明显的造谣！造谣者应该坐牢！<br><img src="http://ww1.sinaimg.cn/large/006bGP2zjw1ev33bkvaaxj30f00qomyr.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3876413339628203" target="freeweibo-mirror">//@安普若-外号安校长://@袁莉wsj: //@傅峙峰W…</a>
 </h2>
@@ -132,13 +132,13 @@
 </h2>
 <p>啥叫竞选？//@王荣耀营销管理培训:转发微博</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3876372571472070" target="freeweibo-mirror">[哈哈] //@麒哥归来:[笑哈哈]//@孙智峰wufazh…</a>
 </h2>
 <p>[哈哈] //@麒哥归来:[笑哈哈]//@孙智峰wufazhuce: 看评论我真是醉了，还和华莱士谈笑风生，采访视频里华莱士完全就是句句讽刺挖苦。</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p>
 <table>
     <tr>
