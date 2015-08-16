@@ -102,13 +102,13 @@
 </h2>
 <p>//@安普若-外号安校长://@袁莉wsj: //@傅峙峰WSJ: //@投资者阮某人:转发微博<br><br>RE: RT @rosetangy: 美國哥倫比亞廣播公司記者Seth Doane @sethdoane 在天津一家醫院外採訪時被警方騷擾的情形。他在被警察推推搡搡時說：「我們只是想在醫院外拍點鏡頭，沒想做太多。但你可看到，警察阻攔我們拍。這就是在中國報導新聞的樣子。」 http://t.cn/RLBAY9a .</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3876412639606206" target="freeweibo-mirror">//@袁莉wsj: //@谢文://@任志强: 转发微博</a>
 </h2>
 <p>//@袁莉wsj: //@谢文://@任志强: 转发微博<br><br>RE: 天津化工仓库的爆炸是老百姓的灾难，天津政府和传媒的应对是公信力与治理能力的灾难，对境外传媒粗暴的干预是国家形象的灾难。</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3876411599211699" target="freeweibo-mirror">//@发布威海乳山:转发微博</a>
 </h2>
