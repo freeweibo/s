@@ -26,6 +26,18 @@
 <p>
 	<small> ============== 1小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3876418360923300" target="freeweibo-mirror">被稳定的情绪。//@同福客栈邢捕头:大天津的官员有人为这场灾…</a>
+</h2>
+<p>被稳定的情绪。//@同福客栈邢捕头:大天津的官员有人为这场灾难流泪吗？<br><br>RE: 政府说家属情绪稳定，这是明显的造谣！造谣者应该坐牢！<br><img src="http://ww1.sinaimg.cn/large/006bGP2zjw1ev33bkvaaxj30f00qomyr.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3876413339628203" target="freeweibo-mirror">//@安普若-外号安校长://@袁莉wsj: //@傅峙峰W…</a>
+</h2>
+<p>//@安普若-外号安校长://@袁莉wsj: //@傅峙峰WSJ: //@投资者阮某人:转发微博<br><br>RE: RT @rosetangy: 美國哥倫比亞廣播公司記者Seth Doane @sethdoane 在天津一家醫院外採訪時被警方騷擾的情形。他在被警察推推搡搡時說：「我們只是想在醫院外拍點鏡頭，沒想做太多。但你可看到，警察阻攔我們拍。這就是在中國報導新聞的樣子。」 http://t.cn/RLBAY9a .</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3876405416883305" target="freeweibo-mirror">//@水煮石头三世: //@安普若-外号安校长://@袁莉w…</a>
 </h2>
 <p>//@水煮石头三世: //@安普若-外号安校长://@袁莉wsj: //@傅峙峰WSJ: //@投资者阮某人:转发微博<br><br>RE: RT @rosetangy: 美國哥倫比亞廣播公司記者Seth Doane @sethdoane 在天津一家醫院外採訪時被警方騷擾的情形。他在被警察推推搡搡時說：「我們只是想在醫院外拍點鏡頭，沒想做太多。但你可看到，警察阻攔我們拍。這就是在中國報導新聞的樣子。」 http://t.cn/RLBAY9a .</p>
@@ -71,6 +83,12 @@
 	<a href="https://freeweibo.com/weibo/3876382788325197" target="freeweibo-mirror">SPAM  //@光远看经济:竟连安倍都不如。</a>
 </h2>
 <p>SPAM  //@光远看经济:竟连安倍都不如。<br><br>RE: 作为一个刚刚值完夜班的媒体人，带着双重的伤痛下班，一是无辜死难同胞带来的内心伤痛和一些农民工财产尽失、求告无门的呻吟，二是政府无力的辩解、遮掩和看客丧事变成喜事的无良歌颂。天津港，104条生命，天文数字一般的财产损失，高昂的救援成本，等待着一声真挚的忏悔和道歉。竟连安倍也不如。</p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3876381660165483" target="freeweibo-mirror">死者家属穿消防服？？？？？拿手台？？？？？？？？？？？？//…</a>
+</h2>
+<p>死者家属穿消防服？？？？？拿手台？？？？？？？？？？？？//@陈震同学:…………[打脸]<br><br>RE: #天津塘沽大爆炸# CNN live is blocked again .......所谓的保护记者采访权简直是笑话 http://t.cn/RLB8mId .</p>
 <p>
 	<small> ============== 4小时前</small>
 </p><h2>
@@ -121,24 +139,6 @@
 <p>[哈哈] //@麒哥归来:[笑哈哈]//@孙智峰wufazhuce: 看评论我真是醉了，还和华莱士谈笑风生，采访视频里华莱士完全就是句句讽刺挖苦。</p>
 <p>
 	<small> ============== 4小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3876370843324002" target="freeweibo-mirror">习老板的说话好像有放走的意思//@黎津平老师: //@会飞的…</a>
-</h2>
-<p>习老板的说话好像有放走的意思//@黎津平老师: //@会飞的藤:应是哦！<br><br>RE: 有网友发帖称，天津瑞海国际物流公司最大股东是李瑞海，执行总裁是只瑞，李瑞海的哥哥叫某某环。请天津有关部门尽快辟谣。<br><img src="http://ww2.sinaimg.cn/large/58500250jw1ev43vxq8vuj206e04st8l.jpg"></p>
-<p>
-	<small> ============== 4小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3876357140120206" target="freeweibo-mirror">SPAM @石述思 兄悲愤地说他们竟连安倍都不如。我觉得石兄…</a>
-</h2>
-<p>SPAM @石述思 兄悲愤地说他们竟连安倍都不如。我觉得石兄错了。安倍可是竞选上台的，他们何德何能，敢来攀比！</p>
-<p>
-	<small> ============== 5小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3876353541300152" target="freeweibo-mirror">图样图森破⋯⋯看一遍笑一遍，长者好喜感 //@柳亿达弄啥嘞:…</a>
-</h2>
-<p>图样图森破⋯⋯看一遍笑一遍，长者好喜感 //@柳亿达弄啥嘞://@李晓琪:江说得对啊，没有问题啊！ //@君兮无言:好精彩！//@陈徐彬:转发微博</p>
-<p>
-	<small> ============== 6小时前</small>
 </p>
 <table>
     <tr>
