@@ -72,7 +72,7 @@
 </h2>
 <p>SPAM 续一秒[蛋糕] //@夏宫的刘阳:[蛋糕] //@战争史研究WHS:add one second[蛋糕] //@不沉默的大多数: 祈福国泰民安[握手]</p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3876607020727852" target="freeweibo-mirror">SPAM 太震惊了[衰]博主保重</a>
 </h2>
