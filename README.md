@@ -42,7 +42,7 @@
 </h2>
 <p>SPAM [哈哈] //@佩尔琳:[哈哈] //@公正善良:[哈哈] //@西之壺詊:[哈哈][哈哈][哈哈]//@光明使者V: [哈哈][哈哈][哈哈]<br><br>RE: #開羅宣言#[哈哈] 誰配的對話？<br><img src="http://ww4.sinaimg.cn/large/00681p4ogw1ev4ftcaq8dj30ef0a6dg9.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3876481568475477" target="freeweibo-mirror">SPAM ok！//@艾风舞:身体语言？</a>
 </h2>
@@ -126,7 +126,7 @@
 </h2>
 <p>//@赫连勃勃大王:从前我老乡“多难兴邦”当中堂，每次虽然都说“我来晚了”，他毕竟还真次次到现场。塘沽伤亡如此严重，和北京近在咫尺，李中堂愣是不去一趟亲自慰问一下，太说不过去了！难到因为只能当一届，就爱惜身体了？</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3876441747808807" target="freeweibo-mirror">这也能转了，居然不删！</a>
 </h2>
