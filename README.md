@@ -20,11 +20,29 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3876464946082220" target="freeweibo-mirror">SPAM //@珠海老周:这回是因为现场有毒吧？</a>
+</h2>
+<p>SPAM //@珠海老周:这回是因为现场有毒吧？<br><br>RE: 突然有点怀念那个爱说我来晚了的老演员，虽然总是迟到，可他从来不会躲着不来。</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3876464367740587" target="freeweibo-mirror">SPAM  //@闵玉平:俺只转，什么也不说。 //@-孔智…</a>
+</h2>
+<p>SPAM  //@闵玉平:俺只转，什么也不说。 //@-孔智勇: //@谓贤:这是哪年的报道？</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3876463969256371" target="freeweibo-mirror">服装统一是亮点 //@闵玉平:出来干嘛，继续躲着呗！[挖鼻]…</a>
+</h2>
+<p>服装统一是亮点 //@闵玉平:出来干嘛，继续躲着呗！[挖鼻] //@人民在线新媒体郭存根:终于露头了！[衰]</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3876460387012689" target="freeweibo-mirror">SPAM  //@深夜一只猫:政府首脑第一时间到现场是非常必…</a>
 </h2>
 <p>SPAM  //@深夜一只猫:政府首脑第一时间到现场是非常必要的，苛责温相的人一定会后悔的<br><br>RE: 突然有点怀念那个爱说我来晚了的老演员，虽然总是迟到，可他从来不会躲着不来。</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3876460018602158" target="freeweibo-mirror">天津起码有两派政治势力，挺复杂。这次灾难毛派特兴奋，加入了质…</a>
 </h2>
@@ -37,6 +55,18 @@
 <p>突然有点怀念那个爱说我来晚了的老演员，虽然总是迟到，可他从来不会躲着不来。</p>
 <p>
 	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3876446595982820" target="freeweibo-mirror">//@赫连勃勃大王:从前我老乡“多难兴邦”当中堂，每次虽然都…</a>
+</h2>
+<p>//@赫连勃勃大王:从前我老乡“多难兴邦”当中堂，每次虽然都说“我来晚了”，他毕竟还真次次到现场。塘沽伤亡如此严重，和北京近在咫尺，李中堂愣是不去一趟亲自慰问一下，太说不过去了！难到因为只能当一届，就爱惜身体了？</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3876441747808807" target="freeweibo-mirror">这也能转了，居然不删！</a>
+</h2>
+<p>这也能转了，居然不删！<br><br>RE: 有网友发贴说，《人民日报》发文指出的退而不休的领导人是指，在距离某世纪11年的时候，利用某事件成为了国家元首;发明了一个以三开头的个人理论;喜欢和自己年龄悬殊很大的姓宋的女子;不再担任国家元首后，大家仍认为他是领导人，这个人就是。。。。。。孙中山。<br><img src="http://ww4.sinaimg.cn/large/58500250jw1ev4bb7an3pj206o08e0sp.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3876439814101889" target="freeweibo-mirror">哈哈哈哈。。。想不到还是终身制好。//@八大山债人: 说找到…</a>
 </h2>
@@ -72,13 +102,13 @@
 </h2>
 <p>[衰]//@亮冰娜无穷动:城管这么牛逼啊，应该让天津城管去救火啊。//@水兵李铭:救灾地区，城管捣什么乱？！ //@李宝玖: //@风中疾走:刚才我发@闫小财 那条不知道多少人说我造谣 //@小菜第四俗:@奏耐天津 快点儿来洗//@荇山雪:转发微博</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3876430393402098" target="freeweibo-mirror">SPAM [衰]//@亮冰娜无穷动:城管这么牛逼啊，应该让天…</a>
 </h2>
 <p>SPAM [衰]//@亮冰娜无穷动:城管这么牛逼啊，应该让天津城管去救火啊。//@水兵李铭:救灾地区，城管捣什么乱？！ //@李宝玖: //@风中疾走:刚才我发@闫小财 那条不知道多少人说我造谣 //@小菜第四俗:@奏耐天津 快点儿来洗</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3876428863112995" target="freeweibo-mirror">有些当场被火化了··找不到了，好惨。追责。//@吴顾问197…</a>
 </h2>
@@ -109,36 +139,6 @@
 <p>这话说的有水平。//@天狼50陈浩: CNN想要的镜头就是盖住镜头的那只手。<br><br>RE: 天津化工仓库的爆炸是老百姓的灾难，天津政府和传媒的应对是公信力与治理能力的灾难，对境外传媒粗暴的干预是国家形象的灾难。</p>
 <p>
 	<small> ============== 4小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3876418968838307" target="freeweibo-mirror">//@尹小龙的:举报！</a>
-</h2>
-<p>//@尹小龙的:举报！<br><br>RE: 政府说家属情绪稳定，这是明显的造谣！造谣者应该坐牢！<br><img src="http://ww1.sinaimg.cn/large/006bGP2zjw1ev33bkvaaxj30f00qomyr.jpg"></p>
-<p>
-	<small> ============== 4小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3876418360923300" target="freeweibo-mirror">被稳定的情绪。//@同福客栈邢捕头:大天津的官员有人为这场灾…</a>
-</h2>
-<p>被稳定的情绪。//@同福客栈邢捕头:大天津的官员有人为这场灾难流泪吗？<br><br>RE: 政府说家属情绪稳定，这是明显的造谣！造谣者应该坐牢！<br><img src="http://ww1.sinaimg.cn/large/006bGP2zjw1ev33bkvaaxj30f00qomyr.jpg"></p>
-<p>
-	<small> ============== 4小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3876416824936177" target="freeweibo-mirror">//@莫西干人://@袁甲: 这就是中国的红十字会</a>
-</h2>
-<p>//@莫西干人://@袁甲: 这就是中国的红十字会<br><br>RE: 一位爆炸后凌晨赶到天津滨海的北京志愿者说：“现场所有物资都是我们买来的，用自己的车运来的，现在红十字会和城管要联合执法，抢走我们的物资纳入红十字会名下，强行算作我们捐给红十字会。” http://t.cn/RLrLwtP</p>
-<p>
-	<small> ============== 4小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3876413339628203" target="freeweibo-mirror">//@安普若-外号安校长://@袁莉wsj: //@傅峙峰W…</a>
-</h2>
-<p>//@安普若-外号安校长://@袁莉wsj: //@傅峙峰WSJ: //@投资者阮某人:转发微博<br><br>RE: RT @rosetangy: 美國哥倫比亞廣播公司記者Seth Doane @sethdoane 在天津一家醫院外採訪時被警方騷擾的情形。他在被警察推推搡搡時說：「我們只是想在醫院外拍點鏡頭，沒想做太多。但你可看到，警察阻攔我們拍。這就是在中國報導新聞的樣子。」 http://t.cn/RLBAY9a .</p>
-<p>
-	<small> ============== 5小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3876412639606206" target="freeweibo-mirror">//@袁莉wsj: //@谢文://@任志强: 转发微博</a>
-</h2>
-<p>//@袁莉wsj: //@谢文://@任志强: 转发微博<br><br>RE: 天津化工仓库的爆炸是老百姓的灾难，天津政府和传媒的应对是公信力与治理能力的灾难，对境外传媒粗暴的干预是国家形象的灾难。</p>
-<p>
-	<small> ============== 5小时前</small>
 </p>
 <table>
     <tr>
