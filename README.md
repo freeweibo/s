@@ -66,7 +66,13 @@
 </h2>
 <p>有些当场被火化了··找不到了，好惨。追责。//@吴顾问1970: //@蝈蝈1968:公布数据像挤牙膏似。如果没有社会的强烈关注，还会隐藏什么？</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3876427864264638" target="freeweibo-mirror">[吃惊]不敢相信。 //@诗人沙光:募捐不到就抢劫？//@任…</a>
+</h2>
+<p>[吃惊]不敢相信。 //@诗人沙光:募捐不到就抢劫？//@任志强:咋会这样？ //@杨锦麟:轉發微博<br><br>RE: 一位爆炸后凌晨赶到天津滨海的北京志愿者说：“现场所有物资都是我们买来的，用自己的车运来的，现在红十字会和城管要联合执法，抢走我们的物资纳入红十字会名下，强行算作我们捐给红十字会。” http://t.cn/RLrLwtP</p>
+<p>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3876422152148246" target="freeweibo-mirror">//@任志强:转发微博</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3876405416883305" target="freeweibo-mirror">//@水煮石头三世: //@安普若-外号安校长://@袁莉w…</a>
 </h2>
 <p>//@水煮石头三世: //@安普若-外号安校长://@袁莉wsj: //@傅峙峰WSJ: //@投资者阮某人:转发微博<br><br>RE: RT @rosetangy: 美國哥倫比亞廣播公司記者Seth Doane @sethdoane 在天津一家醫院外採訪時被警方騷擾的情形。他在被警察推推搡搡時說：「我們只是想在醫院外拍點鏡頭，沒想做太多。但你可看到，警察阻攔我們拍。這就是在中國報導新聞的樣子。」 http://t.cn/RLBAY9a .</p>
-<p>
-	<small> ============== 4小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3876401155717693" target="freeweibo-mirror">SPAM 灰常厉害 //@ROC917:非常厉害//@能好就…</a>
-</h2>
-<p>SPAM 灰常厉害 //@ROC917:非常厉害//@能好就好啊://@可可-cm://@王亚军北京: 嘛蛋<br><br>RE: 有关部门！果然厉害<br><img src="http://ww2.sinaimg.cn/large/005Zc5hajw1ev46od2iroj30hs0bxtan.jpg"></p>
 <p>
 	<small> ============== 4小时前</small>
 </p>
