@@ -42,13 +42,13 @@
 </h2>
 <p>我不敢转，同志，请通过党组织表达意见！<br><br>RE: 党的治理与建设，完全陷入了一种自说自话式的自我催眠，自命清高式的背离群众，主动背叛式的背弃先贤。从一个具有强大战斗力领导力和向心力的政党，逐步蜕变为一个裹足不前固步自封无知傲慢的官僚集团！</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3876389000017864" target="freeweibo-mirror">党的治理与建设，完全陷入了一种自说自话式的自我催眠，自命清高…</a>
 </h2>
 <p>党的治理与建设，完全陷入了一种自说自话式的自我催眠，自命清高式的背离群众，主动背叛式的背弃先贤。从一个具有强大战斗力领导力和向心力的政党，逐步蜕变为一个裹足不前固步自封无知傲慢的官僚集团！</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3876382788325197" target="freeweibo-mirror">SPAM  //@光远看经济:竟连安倍都不如。</a>
 </h2>
@@ -72,19 +72,19 @@
 </h2>
 <p>SPAM 有性格 //@郑维:膜蛤一族必看<br><br>RE: 经典 http://t.cn/RLBrAhm</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3876374597069251" target="freeweibo-mirror">SPAM 回复@午溪柳畔:那个年代比现在不知道高到哪里去了。…</a>
 </h2>
 <p>SPAM 回复@午溪柳畔:那个年代比现在不知道高到哪里去了。//@午溪柳畔:他在位时你们至少可以自由上网自由调侃他//@郑维:膜蛤一族必看<br><br>RE: 经典 http://t.cn/RLBrAhm</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3876373489476927" target="freeweibo-mirror">SPAM “图样图森破，闷声发大财” --- 我蛤 //@郑…</a>
 </h2>
 <p>SPAM “图样图森破，闷声发大财” --- 我蛤 //@郑维:膜蛤一族必看<br><br>RE: 经典 http://t.cn/RLBrAhm</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3876373254491729" target="freeweibo-mirror">啥叫竞选？//@王荣耀营销管理培训:转发微博</a>
 </h2>
