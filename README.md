@@ -78,7 +78,7 @@
 </h2>
 <p>紧急通知西边人民今晚减少外出，万寿路，太平路，金沟河，永定路现在空气中弥漫着大量酸性物质，本人亲身体验，请关好门窗@北京的晖子 @空亡线情人的n世小号 @札克纳梵_冯_李希特二猪 @卡扎菲9119 ，造谣死妈的 http://t.cn/R2d2hdD http://t.cn/R2d2hdD<br><img src="http://ww4.sinaimg.cn/large/4ec32f61jw1ev4t57452gj20n00h9419.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3876586418114473" target="freeweibo-mirror">SPAM //@屌面骑士:多大点事，上武警</a>
 </h2>
@@ -120,7 +120,7 @@
 </h2>
 <p>姐夫给条黄鹤楼1916，湖北最好的烟。俞主席督沪时，开会曾对上海的干部嚷嚷:你们一月挣多少?一天两包软中华，我只抽得起18元一包的黄鹤楼，并亮了亮手中的烟壳，恰是＂黄鹤楼1916＂。有在场人即嘀咕:这烟180一包，不是18一包。后传出，沪人以为笑谈。<br><img src="http://ww4.sinaimg.cn/large/005MTRwBgw1ev4nqdayjuj30u00u041p.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3876539869378608" target="freeweibo-mirror">//@赶蟹国家: 有能耐搞身份证的，就可以像薄熙来的大哥、令…</a>
 </h2>
