@@ -72,7 +72,7 @@
 </h2>
 <p>你的帖删得够快的！[怒][怒]@微读社会<br><img src="http://ww2.sinaimg.cn/large/646cf3bdjw1ev4wt4rlpjj20ku112tdy.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3876616264045694" target="freeweibo-mirror">今天是我们伟大的长者的生日，让我们祝他生日快乐[蛋糕][蛋糕…</a>
 </h2>
