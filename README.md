@@ -36,7 +36,13 @@
 </h2>
 <p>我蛤有海外留学经历，并且精通英、俄、德语（2002年出访德国用德语全程演讲）（也有资料显示精通八门），能用英语全文背诵《独立宣言》（他自己讲），这样一位学霸领导人，虽然在意识形态浓烈的国家掌权，但对西方世界的理解和海外文化的包容确实是其他土改型领导不能相比的。<br><img src="http://ww4.sinaimg.cn/large/59479230gw1ev5mo088x4j20e70i2wf0.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3876831046792712" target="freeweibo-mirror">[good]这才是有良心，说真话的专家！</a>
+</h2>
+<p>[good]这才是有良心，说真话的专家！</p>
+<p>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3876825094440735" target="freeweibo-mirror">SPAM 为了阅兵，北京将在9越2日到3日，天安门地区戒严。…</a>
 </h2>
@@ -47,6 +53,12 @@
 	<a href="https://freeweibo.com/weibo/3876821685076657" target="freeweibo-mirror">首发的庆山老师，也是加V的，为什么要用这样的不符合实际情况的…</a>
 </h2>
 <p>首发的庆山老师，也是加V的，为什么要用这样的不符合实际情况的标题来引人眼球呢？我很认真的看完这段视频，看不到“吵架”二字体现在什么地方!只是正常的记者问官员答，官员的回答也许不能让人满意，但现场并没有吵架的情形啊！为什么要这样煽风点火呢？对你有什么好处呢？<br><br>RE: #天津塘沽大爆炸# 什么电视台都看不到的发布会，官员和记者在吵架。[拜拜]http://t.cn/RL1hAwE</p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3876819574489211" target="freeweibo-mirror">@白静-汕大：在这次事件中，我欣慰地看到年轻的媒体人不畏宣传…</a>
+</h2>
+<p>@白静-汕大：在这次事件中，我欣慰地看到年轻的媒体人不畏宣传禁令，不畏生命危险，努力挖掘真相， 发布了大量有深度的调查报道，不管是官方的新媒体，还是民间的新媒体，一边被删，一边接力转发，新闻的价值，已经不能用简单的盈利来衡量，其对社会进步的正面意义无论过去现在还是未来都无比重要！<br><img src="http://ww4.sinaimg.cn/large/4231a8dbjw1ev5jke3snbj20no0hsdl9.jpg"></p>
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
@@ -72,13 +84,13 @@
 </h2>
 <p>//@一声炮响: 天津官场官气十足，暮气沉沉。 //@周京平: //@鼎鏊肖志军: //@何兵:转发微博<br><br>RE: #天津塘沽大爆炸# 什么电视台都看不到的发布会，官员和记者在吵架。[拜拜]http://t.cn/RL1hAwE</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3876800067431263" target="freeweibo-mirror">希望永久保留这个湖、警示后人。</a>
 </h2>
 <p>希望永久保留这个湖、警示后人。<br><br>RE: 现场深坑再次证明我的判断：爆炸威力相当约250吨TNT。如此图测量准确，水坑直径90米，深坑直径190米，考虑到炸掀的浮土覆盖，直接由爆炸破坏成土坑应约140米直径。再告诉大家一公式：R=k•B^3。R为弹坑半径，k为破坏系数（普通土壤为1.07），B为炸药当量。可知，破坏直径140米时，炸药威力约275吨TNT。<br><img src="http://ww4.sinaimg.cn/large/8ce63b13jw1ev4tuobwn8j20mk0rrtg6.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3876798901347808" target="freeweibo-mirror">SPAM 新五虎上将，卧槽[哈哈]</a>
 </h2>
@@ -127,18 +139,6 @@
 <p>//@医疗律师刘晔:转发微博<br><br>RE: 【北京就令完成事件和美国谈崩？】纽约时报 今天发文：http://t.cn/RLdhzQ6 Obama政府警告北京，停止在美国秘密特工活动，这些特工给在旅居美国的经济和政治犯监视和施压，让他们回国“自首”，文章特别提到令完成有申请政治庇护的权利。并强调美国FBI有自己的标准决定遣返什么人，中共猎狐计划受挫。<br><img src="http://ww4.sinaimg.cn/large/749bcf09jw1ev59w0daekj20ku112jyd.jpg"></p>
 <p>
 	<small> ============== 8小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3876734241559441" target="freeweibo-mirror">【北京就令完成事件和美国谈崩？】纽约时报 今天发文：http…</a>
-</h2>
-<p>【北京就令完成事件和美国谈崩？】纽约时报 今天发文：http://t.cn/RLdhzQ6 Obama政府警告北京，停止在美国秘密特工活动，这些特工给在旅居美国的经济和政治犯监视和施压，让他们回国“自首”，文章特别提到令完成有申请政治庇护的权利。并强调美国FBI有自己的标准决定遣返什么人，中共猎狐计划受挫。<br><img src="http://ww4.sinaimg.cn/large/749bcf09jw1ev59w0daekj20ku112jyd.jpg"></p>
-<p>
-	<small> ============== 9小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3876728507971324" target="freeweibo-mirror">//@竹盐王子://@通城风雨://@就算喝醉: 转发微博</a>
-</h2>
-<p>//@竹盐王子://@通城风雨://@就算喝醉: 转发微博<br><br>RE: 你们好像都搞错了，这父子俩才是真正的老板。关键词：信.义集团，李、圣泼。<br><img src="http://ww1.sinaimg.cn/large/68b3dde5jw1ev5540visqj20fp0bbabc.jpg"></p>
-<p>
-	<small> ============== 9小时前</small>
 </p>
 <table>
     <tr>
