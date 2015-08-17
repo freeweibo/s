@@ -72,13 +72,13 @@
 </h2>
 <p>SPAM Happy Birthday<br><img src="http://ww1.sinaimg.cn/large/a90c3530gw1ev5i9v2jjcj218g0xcqd9.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3876808389027577" target="freeweibo-mirror">[吃惊]//@miki-铃铛:我去，不会是军火吧！突然间我的…</a>
 </h2>
 <p>[吃惊]//@miki-铃铛:我去，不会是军火吧！突然间我的脑洞大开！<br><br>RE: 现场深坑再次证明我的判断：爆炸威力相当约250吨TNT。如此图测量准确，水坑直径90米，深坑直径190米，考虑到炸掀的浮土覆盖，直接由爆炸破坏成土坑应约140米直径。再告诉大家一公式：R=k•B^3。R为弹坑半径，k为破坏系数（普通土壤为1.07），B为炸药当量。可知，破坏直径140米时，炸药威力约275吨TNT。<br><img src="http://ww4.sinaimg.cn/large/8ce63b13jw1ev4tuobwn8j20mk0rrtg6.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3876800423400812" target="freeweibo-mirror">//@一声炮响: 天津官场官气十足，暮气沉沉。 //@周京平…</a>
 </h2>
@@ -102,7 +102,7 @@
 </h2>
 <p>SPAM //@杂谈五味子: 是遥遥领先的预言吗？</p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3876773962365316" target="freeweibo-mirror">SPAM 是遥遥领先的预言吗？</a>
 </h2>
@@ -114,7 +114,7 @@
 </h2>
 <p>SPAM 标准像。//@IYALAN: //@邵明波: 在今天，本人衷心祝愿长者长寿！//@喷嚏网铂程: //@thomasluo骆轶航: 谈笑风生90年<br><br>RE: 今天是我敬爱的长者的生日<br><img src="http://ww4.sinaimg.cn/large/72d8d389jw1ev4wnf1y3yj20fy0m7gmf.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3876762155235067" target="freeweibo-mirror">SPAM 在今天，本人衷心祝愿长者长寿！//@喷嚏网铂程: …</a>
 </h2>
@@ -132,7 +132,7 @@
 </h2>
 <p>人家讲法律，不讲“政治规矩”！[喵喵]//@麒哥归来: //@李不白的空间:猛料！<br><br>RE: 【北京就令完成事件和美国谈崩？】纽约时报 今天发文：http://t.cn/RLdhzQ6 Obama政府警告北京，停止在美国秘密特工活动，这些特工给在旅居美国的经济和政治犯监视和施压，让他们回国“自首”，文章特别提到令完成有申请政治庇护的权利。并强调美国FBI有自己的标准决定遣返什么人，中共猎狐计划受挫。<br><img src="http://ww4.sinaimg.cn/large/749bcf09jw1ev59w0daekj20ku112jyd.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3876747118387377" target="freeweibo-mirror">//@医疗律师刘晔:转发微博</a>
 </h2>
