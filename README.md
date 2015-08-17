@@ -108,7 +108,7 @@
 </h2>
 <p>SPAM 谣言吗？<br><br>RE: 你的帖删得够快的！[怒][怒]@微读社会<br><img src="http://ww2.sinaimg.cn/large/646cf3bdjw1ev4wt4rlpjj20ku112tdy.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3876627635166872" target="freeweibo-mirror">SPAM  //@郑敏:别指望了 //@又有壹楠://@GU…</a>
 </h2>
