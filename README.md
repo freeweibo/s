@@ -24,7 +24,7 @@
 </h2>
 <p>SPAM 为了阅兵，北京将在9越2日到3日，天安门地区戒严。9月3日上午首都机场关闭。<br><br>RE: 经济学人新封面文章从阅兵谈起。。。http://t.cn/RL1G1xJ<br><img src="http://ww4.sinaimg.cn/large/74eee4a3gw1ev48tchhzgj20b40em768.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3876814621300190" target="freeweibo-mirror">天津发言人都不知道，我哪儿能知道啊！[白眼]//@清华秦鹏:…</a>
 </h2>
@@ -84,7 +84,7 @@
 </h2>
 <p>【北京就令完成事件和美国谈崩？】纽约时报 今天发文：http://t.cn/RLdhzQ6 Obama政府警告北京，停止在美国秘密特工活动，这些特工给在旅居美国的经济和政治犯监视和施压，让他们回国“自首”，文章特别提到令完成有申请政治庇护的权利。并强调美国FBI有自己的标准决定遣返什么人，中共猎狐计划受挫。<br><img src="http://ww4.sinaimg.cn/large/749bcf09jw1ev59w0daekj20ku112jyd.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3876728507971324" target="freeweibo-mirror">//@竹盐王子://@通城风雨://@就算喝醉: 转发微博</a>
 </h2>
