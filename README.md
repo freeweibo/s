@@ -44,6 +44,24 @@
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3876808389027577" target="freeweibo-mirror">[吃惊]//@miki-铃铛:我去，不会是军火吧！突然间我的…</a>
+</h2>
+<p>[吃惊]//@miki-铃铛:我去，不会是军火吧！突然间我的脑洞大开！<br><br>RE: 现场深坑再次证明我的判断：爆炸威力相当约250吨TNT。如此图测量准确，水坑直径90米，深坑直径190米，考虑到炸掀的浮土覆盖，直接由爆炸破坏成土坑应约140米直径。再告诉大家一公式：R=k•B^3。R为弹坑半径，k为破坏系数（普通土壤为1.07），B为炸药当量。可知，破坏直径140米时，炸药威力约275吨TNT。<br><img src="http://ww4.sinaimg.cn/large/8ce63b13jw1ev4tuobwn8j20mk0rrtg6.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3876800423400812" target="freeweibo-mirror">//@一声炮响: 天津官场官气十足，暮气沉沉。 //@周京平…</a>
+</h2>
+<p>//@一声炮响: 天津官场官气十足，暮气沉沉。 //@周京平: //@鼎鏊肖志军: //@何兵:转发微博<br><br>RE: #天津塘沽大爆炸# 什么电视台都看不到的发布会，官员和记者在吵架。[拜拜]http://t.cn/RL1hAwE</p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3876800067431263" target="freeweibo-mirror">希望永久保留这个湖、警示后人。</a>
+</h2>
+<p>希望永久保留这个湖、警示后人。<br><br>RE: 现场深坑再次证明我的判断：爆炸威力相当约250吨TNT。如此图测量准确，水坑直径90米，深坑直径190米，考虑到炸掀的浮土覆盖，直接由爆炸破坏成土坑应约140米直径。再告诉大家一公式：R=k•B^3。R为弹坑半径，k为破坏系数（普通土壤为1.07），B为炸药当量。可知，破坏直径140米时，炸药威力约275吨TNT。<br><img src="http://ww4.sinaimg.cn/large/8ce63b13jw1ev4tuobwn8j20mk0rrtg6.jpg"></p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3876798901347808" target="freeweibo-mirror">SPAM 新五虎上将，卧槽[哈哈]</a>
 </h2>
 <p>SPAM 新五虎上将，卧槽[哈哈]<br><img src="http://ww4.sinaimg.cn/large/98c6dd80gw1ev5hbc4hoij20ee0m8dhd.jpg"></p>
@@ -121,24 +139,6 @@
 <p>你们好像都搞错了，这父子俩才是真正的老板。关键词：信.义集团，李、圣泼。<br><img src="http://ww1.sinaimg.cn/large/68b3dde5jw1ev5540visqj20fp0bbabc.jpg"></p>
 <p>
 	<small> ============== 11小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3876686481348345" target="freeweibo-mirror">大家有去泰山玩过吗？</a>
-</h2>
-<p>大家有去泰山玩过吗？<br><img src="http://ww1.sinaimg.cn/large/6c4fb28ejw1ev54ejhjcej20kk0iuad0.jpg"></p>
-<p>
-	<small> ============== 11小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3876642323344019" target="freeweibo-mirror">SPAM 我刚才就是没找到原发，这是惹了多大的祸吧。//@静…</a>
-</h2>
-<p>SPAM 我刚才就是没找到原发，这是惹了多大的祸吧。//@静止泰坦: @渤海论坛官博<br><br>RE: 滨海新区临港工业区LG化工着火了，介一天天有完吗？大半夜的，给人添麻烦，这些私企、外企怎么就不让人省心呢？关门吧！希望没有伤亡，都是无辜的人。希望消防战士们也都平安[推荐][推荐][推荐]</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3876630521169282" target="freeweibo-mirror">SPAM 谣言吗？</a>
-</h2>
-<p>SPAM 谣言吗？<br><br>RE: 你的帖删得够快的！[怒][怒]@微读社会<br><img src="http://ww2.sinaimg.cn/large/646cf3bdjw1ev4wt4rlpjj20ku112tdy.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
 </p>
 <table>
     <tr>
