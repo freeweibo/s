@@ -72,19 +72,19 @@
 </h2>
 <p>【媒体：爆炸原因基本确认 仓库金属钠遇水后爆炸】据腾讯财经，一位中国核生化救援部队的士兵透露，8月12日晚爆炸原因基本确认是因仓库内金属钠遇到水后引发爆炸，截至目前爆炸前着火原因仍不明。此前幸存消防员称，当晚发现火情灭火，一车水用完之后返回取水，这时爆炸发生http://t.cn/RLdjGE7<br><img src="http://ww3.sinaimg.cn/large/61e04755jw1ev5rhy9hhrj20c806gwey.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3876872100130081" target="freeweibo-mirror">所谓新闻次生灾害。//@郑维:哦，原来如此</a>
 </h2>
 <p>所谓新闻次生灾害。//@郑维:哦，原来如此<br><br>RE: 【天津爆炸涉事企业被曝肆意排氰化钠：河北村民买水度日不吃自种粮[衰][吃惊]】爆炸事件700吨氰化钠系河北诚信有限责任公司生产。调查发现，该公司20多家化工厂，多年来将含有氰化钠等毒素的污水大量排放，造成几个村庄的地下水和农田污染，部分群众被迫买水度日。http://t.cn/RLdiKYp<br><img src="http://ww4.sinaimg.cn/large/61e04755jw1ev5k834kjej20c806gwey.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3876871919636813" target="freeweibo-mirror">SPAM 啥。。。//@传媒老王: 这。。。</a>
 </h2>
 <p>SPAM 啥。。。//@传媒老王: 这。。。<br><br>RE: 「明报」新闻的大标题做得好，好就好在「第五天」这个词。<br><img src="http://ww3.sinaimg.cn/large/48fe46d9jw1ev5iufgfhhj20qo0zk43m.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3876871265886219" target="freeweibo-mirror">哦，原来如此</a>
 </h2>
@@ -102,7 +102,7 @@
 </h2>
 <p>………//@财经网:【河北诚信纳税占全县近四分之一 通过环评认证】排污企业名单中，作为元氏县利税第一大户的河北诚信有限责任公司位列其中。企业称“已通过环境管理体系认证，氰化钠等产品在国际上享有极高的信誉和知名度”，但村民质疑，虽通过环评认证，如执行不按环保标准排放照样造成污染<br><br>RE: 【天津爆炸涉事企业被曝肆意排氰化钠：河北村民买水度日不吃自种粮[衰][吃惊]】爆炸事件700吨氰化钠系河北诚信有限责任公司生产。调查发现，该公司20多家化工厂，多年来将含有氰化钠等毒素的污水大量排放，造成几个村庄的地下水和农田污染，部分群众被迫买水度日。http://t.cn/RLdiKYp<br><img src="http://ww4.sinaimg.cn/large/61e04755jw1ev5k834kjej20c806gwey.jpg"></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3876849321277390" target="freeweibo-mirror">摘：【一周来深为80后一代年轻记者所感动】天津爆炸与汶川地震…</a>
 </h2>
