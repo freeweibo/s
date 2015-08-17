@@ -26,6 +26,12 @@
 <p>
 	<small> ============== 1小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3876845730693240" target="freeweibo-mirror">我蛤有海外留学经历，并且精通英、俄、德语（2002年出访德国…</a>
+</h2>
+<p>我蛤有海外留学经历，并且精通英、俄、德语（2002年出访德国用德语全程演讲）（也有资料显示精通八门），能用英语全文背诵《独立宣言》（他自己讲），这样一位学霸领导人，虽然在意识形态浓烈的国家掌权，但对西方世界的理解和海外文化的包容确实是其他土改型领导不能相比的。<br><img src="http://ww4.sinaimg.cn/large/59479230gw1ev5mo088x4j20e70i2wf0.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3876825094440735" target="freeweibo-mirror">SPAM 为了阅兵，北京将在9越2日到3日，天安门地区戒严。…</a>
 </h2>
 <p>SPAM 为了阅兵，北京将在9越2日到3日，天安门地区戒严。9月3日上午首都机场关闭。<br><br>RE: 经济学人新封面文章从阅兵谈起。。。http://t.cn/RL1G1xJ<br><img src="http://ww4.sinaimg.cn/large/74eee4a3gw1ev48tchhzgj20b40em768.jpg"></p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3876727275568264" target="freeweibo-mirror">SPAM 笑啥？ //@青鸟唤春:呵呵。[哈哈]</a>
 </h2>
 <p>SPAM 笑啥？ //@青鸟唤春:呵呵。[哈哈]<br><br>RE: 大家有去泰山玩过吗？<br><img src="http://ww1.sinaimg.cn/large/6c4fb28ejw1ev54ejhjcej20kk0iuad0.jpg"></p>
-<p>
-	<small> ============== 9小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3876724251531090" target="freeweibo-mirror">//@常四爷-: //@练习一册: //@冷眼观世界12:转…</a>
-</h2>
-<p>//@常四爷-: //@练习一册: //@冷眼观世界12:转发微博<br><br>RE: 竟有这样的事情 ？<br><img src="http://ww2.sinaimg.cn/large/a7f09f89jw1ev4mzqn0jij20e00cit9x.jpg"></p>
 <p>
 	<small> ============== 9小时前</small>
 </p>
