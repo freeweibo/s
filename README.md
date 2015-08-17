@@ -38,6 +38,12 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3876844044532181" target="freeweibo-mirror">SPAM 转</a>
+</h2>
+<p>SPAM 转<br><br>RE: 转阅，大家有什么看法?<br><img src="http://ww3.sinaimg.cn/large/005BpdpXjw1ev5kzeu6bcj30hs0hi0x4.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3876831046792712" target="freeweibo-mirror">[good]这才是有良心，说真话的专家！</a>
 </h2>
 <p>[good]这才是有良心，说真话的专家！</p>
@@ -66,7 +72,7 @@
 </h2>
 <p>天津发言人都不知道，我哪儿能知道啊！[白眼]//@清华秦鹏: 也就是说，是不是只有成堆的爆炸物品本身才能够有这样大的爆炸当量？问题是：哪儿来的呢？想炸什么？ //@陈业文新大都:嗯，调查结果必须经得起全世界的检验<br><br>RE: 现场深坑再次证明我的判断：爆炸威力相当约250吨TNT。如此图测量准确，水坑直径90米，深坑直径190米，考虑到炸掀的浮土覆盖，直接由爆炸破坏成土坑应约140米直径。再告诉大家一公式：R=k•B^3。R为弹坑半径，k为破坏系数（普通土壤为1.07），B为炸药当量。可知，破坏直径140米时，炸药威力约275吨TNT。<br><img src="http://ww4.sinaimg.cn/large/8ce63b13jw1ev4tuobwn8j20mk0rrtg6.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3876808598483512" target="freeweibo-mirror">SPAM Happy Birthday</a>
 </h2>
@@ -96,7 +102,7 @@
 </h2>
 <p>SPAM 新五虎上将，卧槽[哈哈]<br><img src="http://ww4.sinaimg.cn/large/98c6dd80gw1ev5hbc4hoij20ee0m8dhd.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3876777971991238" target="freeweibo-mirror">SPAM //@杂谈五味子: 是遥遥领先的预言吗？</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3876748146417394" target="freeweibo-mirror">人家讲法律，不讲“政治规矩”！[喵喵]//@麒哥归来: //…</a>
 </h2>
 <p>人家讲法律，不讲“政治规矩”！[喵喵]//@麒哥归来: //@李不白的空间:猛料！<br><br>RE: 【北京就令完成事件和美国谈崩？】纽约时报 今天发文：http://t.cn/RLdhzQ6 Obama政府警告北京，停止在美国秘密特工活动，这些特工给在旅居美国的经济和政治犯监视和施压，让他们回国“自首”，文章特别提到令完成有申请政治庇护的权利。并强调美国FBI有自己的标准决定遣返什么人，中共猎狐计划受挫。<br><img src="http://ww4.sinaimg.cn/large/749bcf09jw1ev59w0daekj20ku112jyd.jpg"></p>
-<p>
-	<small> ============== 9小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3876747118387377" target="freeweibo-mirror">//@医疗律师刘晔:转发微博</a>
-</h2>
-<p>//@医疗律师刘晔:转发微博<br><br>RE: 【北京就令完成事件和美国谈崩？】纽约时报 今天发文：http://t.cn/RLdhzQ6 Obama政府警告北京，停止在美国秘密特工活动，这些特工给在旅居美国的经济和政治犯监视和施压，让他们回国“自首”，文章特别提到令完成有申请政治庇护的权利。并强调美国FBI有自己的标准决定遣返什么人，中共猎狐计划受挫。<br><img src="http://ww4.sinaimg.cn/large/749bcf09jw1ev59w0daekj20ku112jyd.jpg"></p>
 <p>
 	<small> ============== 9小时前</small>
 </p>
