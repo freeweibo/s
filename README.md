@@ -54,7 +54,7 @@
 </h2>
 <p>//@小杨哥JKY://@徐凤文:本镇，终于走出天津、走向世界、宇宙香烟、誉满全球了。<br><br>RE: “忙着扑灭网络大火”——纽约时报漫画和说明：天津存放剧毒化学品的仓库发生大爆炸，死亡人数已过百，数十人失踪。但社交媒体上，关于事故的质问与批评言论却被迅速删除。 （帕特里克·恰帕特是《国际纽约时报》评论版漫画师。<br><img src="http://ww2.sinaimg.cn/large/74eee4a3gw1ev5zojd3w4j20go0cgwh7.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3876967332411313" target="freeweibo-mirror">由此可见，时至今日，美帝亡我之心不死！可是，我们某些官员也太…</a>
 </h2>
@@ -96,7 +96,7 @@
 </h2>
 <p>SPAM 跟贴除了网易也没谁了<br><br>RE: #热门跟贴# 大爷，大爷，你幸福不？<br><img src="http://ww4.sinaimg.cn/large/75b52ed2jw1ev5s1o2g0bj20c81x5q6y.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3876892345865244" target="freeweibo-mirror">#热门跟贴# 大爷，大爷，你幸福不？</a>
 </h2>
