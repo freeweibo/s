@@ -30,7 +30,7 @@
 </h2>
 <p>政府长期失职，现场指挥失误。[衰][弱]//@孙老西儿: 金属钠通常保存在煤油里的，遇水产生氢气。消防员应该知道的啊[泪]//@逆风蝴蝶:如果能确认是金属钠遇水爆炸，也希望全国消防都普及一些化学知识。 //@杨锦麟:枉死了那么多年轻战士的生命。</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3876896968580593" target="freeweibo-mirror">这个大老虎恐怕连老王都不敢打//@北京厨子新号: 多少年轻的…</a>
 </h2>
@@ -54,7 +54,7 @@
 </h2>
 <p>//@杨锦麟:枉死了那么多年轻战士的生命。</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3876887581749113" target="freeweibo-mirror">【媒体：爆炸原因基本确认 仓库金属钠遇水后爆炸】据腾讯财经，…</a>
 </h2>
@@ -108,7 +108,7 @@
 </h2>
 <p>我蛤有海外留学经历，并且精通英、俄、德语（2002年出访德国用德语全程演讲）（也有资料显示精通八门），能用英语全文背诵《独立宣言》（他自己讲），这样一位学霸领导人，虽然在意识形态浓烈的国家掌权，但对西方世界的理解和海外文化的包容确实是其他土改型领导不能相比的。<br><img src="http://ww4.sinaimg.cn/large/59479230gw1ev5mo088x4j20e70i2wf0.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3876844044532181" target="freeweibo-mirror">SPAM 转</a>
 </h2>
@@ -120,13 +120,13 @@
 </h2>
 <p>转阅，大家有什么看法?<br><img src="http://ww3.sinaimg.cn/large/005BpdpXjw1ev5kzeu6bcj30hs0hi0x4.jpg"></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3876831046792712" target="freeweibo-mirror">[good]这才是有良心，说真话的专家！</a>
 </h2>
 <p>[good]这才是有良心，说真话的专家！</p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3876825094440735" target="freeweibo-mirror">SPAM 为了阅兵，北京将在9越2日到3日，天安门地区戒严。…</a>
 </h2>
