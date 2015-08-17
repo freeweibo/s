@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3876872100130081" target="freeweibo-mirror">所谓新闻次生灾害。//@郑维:哦，原来如此</a>
+</h2>
+<p>所谓新闻次生灾害。//@郑维:哦，原来如此<br><br>RE: 【天津爆炸涉事企业被曝肆意排氰化钠：河北村民买水度日不吃自种粮[衰][吃惊]】爆炸事件700吨氰化钠系河北诚信有限责任公司生产。调查发现，该公司20多家化工厂，多年来将含有氰化钠等毒素的污水大量排放，造成几个村庄的地下水和农田污染，部分群众被迫买水度日。http://t.cn/RLdiKYp<br><img src="http://ww4.sinaimg.cn/large/61e04755jw1ev5k834kjej20c806gwey.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3876849321277390" target="freeweibo-mirror">摘：【一周来深为80后一代年轻记者所感动】天津爆炸与汶川地震…</a>
 </h2>
 <p>摘：【一周来深为80后一代年轻记者所感动】天津爆炸与汶川地震还不一样，地震是天灾，爆炸是人祸，如果不能从中吸取教训，国家就不能进步，年轻人就没有未来。欣慰地看到，年轻的专业媒体人不畏宣传禁令，不畏生命危险，努力挖掘真相，让我看到新闻教育的价值。</p>
@@ -66,7 +72,7 @@
 </h2>
 <p>首发的庆山老师，也是加V的，为什么要用这样的不符合实际情况的标题来引人眼球呢？我很认真的看完这段视频，看不到“吵架”二字体现在什么地方!只是正常的记者问官员答，官员的回答也许不能让人满意，但现场并没有吵架的情形啊！为什么要这样煽风点火呢？对你有什么好处呢？<br><br>RE: #天津塘沽大爆炸# 什么电视台都看不到的发布会，官员和记者在吵架。[拜拜]http://t.cn/RL1hAwE</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3876819574489211" target="freeweibo-mirror">@白静-汕大：在这次事件中，我欣慰地看到年轻的媒体人不畏宣传…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3876762155235067" target="freeweibo-mirror">SPAM 在今天，本人衷心祝愿长者长寿！//@喷嚏网铂程: …</a>
 </h2>
 <p>SPAM 在今天，本人衷心祝愿长者长寿！//@喷嚏网铂程: //@thomasluo骆轶航: 谈笑风生90年<br><br>RE: 今天是我敬爱的长者的生日<br><img src="http://ww4.sinaimg.cn/large/72d8d389jw1ev4wnf1y3yj20fy0m7gmf.jpg"></p>
-<p>
-	<small> ============== 8小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3876758878980510" target="freeweibo-mirror">SPAM 你们还年轻。 //@thomasluo骆轶航:谈笑…</a>
-</h2>
-<p>SPAM 你们还年轻。 //@thomasluo骆轶航:谈笑风生90年<br><br>RE: 今天是我敬爱的长者的生日<br><img src="http://ww4.sinaimg.cn/large/72d8d389jw1ev4wnf1y3yj20fy0m7gmf.jpg"></p>
 <p>
 	<small> ============== 9小时前</small>
 </p>
