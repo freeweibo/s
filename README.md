@@ -60,7 +60,7 @@
 </h2>
 <p>SPAM 转<br><br>RE: 转阅，大家有什么看法?<br><img src="http://ww3.sinaimg.cn/large/005BpdpXjw1ev5kzeu6bcj30hs0hi0x4.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3876831394118360" target="freeweibo-mirror">转阅，大家有什么看法?</a>
 </h2>
@@ -102,7 +102,7 @@
 </h2>
 <p>天津发言人都不知道，我哪儿能知道啊！[白眼]//@清华秦鹏: 也就是说，是不是只有成堆的爆炸物品本身才能够有这样大的爆炸当量？问题是：哪儿来的呢？想炸什么？ //@陈业文新大都:嗯，调查结果必须经得起全世界的检验<br><br>RE: 现场深坑再次证明我的判断：爆炸威力相当约250吨TNT。如此图测量准确，水坑直径90米，深坑直径190米，考虑到炸掀的浮土覆盖，直接由爆炸破坏成土坑应约140米直径。再告诉大家一公式：R=k•B^3。R为弹坑半径，k为破坏系数（普通土壤为1.07），B为炸药当量。可知，破坏直径140米时，炸药威力约275吨TNT。<br><img src="http://ww4.sinaimg.cn/large/8ce63b13jw1ev4tuobwn8j20mk0rrtg6.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3876808598483512" target="freeweibo-mirror">SPAM Happy Birthday</a>
 </h2>
@@ -132,7 +132,7 @@
 </h2>
 <p>SPAM 新五虎上将，卧槽[哈哈]<br><img src="http://ww4.sinaimg.cn/large/98c6dd80gw1ev5hbc4hoij20ee0m8dhd.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3876777971991238" target="freeweibo-mirror">SPAM //@杂谈五味子: 是遥遥领先的预言吗？</a>
 </h2>
