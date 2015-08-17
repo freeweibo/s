@@ -116,6 +116,12 @@
 <p>
 	<small> ============== 6小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3876812222669812" target="freeweibo-mirror">「明报」新闻的大标题做得好，好就好在「第五天」这个词。</a>
+</h2>
+<p>「明报」新闻的大标题做得好，好就好在「第五天」这个词。<br><img src="http://ww3.sinaimg.cn/large/48fe46d9jw1ev5iufgfhhj20qo0zk43m.jpg"></p>
+<p>
+	<small> ============== 7小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3876808598483512" target="freeweibo-mirror">SPAM Happy Birthday</a>
 </h2>
 <p>SPAM Happy Birthday<br><img src="http://ww1.sinaimg.cn/large/a90c3530gw1ev5i9v2jjcj218g0xcqd9.jpg"></p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3876800423400812" target="freeweibo-mirror">//@一声炮响: 天津官场官气十足，暮气沉沉。 //@周京平…</a>
 </h2>
 <p>//@一声炮响: 天津官场官气十足，暮气沉沉。 //@周京平: //@鼎鏊肖志军: //@何兵:转发微博<br><br>RE: #天津塘沽大爆炸# 什么电视台都看不到的发布会，官员和记者在吵架。[拜拜]http://t.cn/RL1hAwE</p>
-<p>
-	<small> ============== 7小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3876800067431263" target="freeweibo-mirror">希望永久保留这个湖、警示后人。</a>
-</h2>
-<p>希望永久保留这个湖、警示后人。<br><br>RE: 现场深坑再次证明我的判断：爆炸威力相当约250吨TNT。如此图测量准确，水坑直径90米，深坑直径190米，考虑到炸掀的浮土覆盖，直接由爆炸破坏成土坑应约140米直径。再告诉大家一公式：R=k•B^3。R为弹坑半径，k为破坏系数（普通土壤为1.07），B为炸药当量。可知，破坏直径140米时，炸药威力约275吨TNT。<br><img src="http://ww4.sinaimg.cn/large/8ce63b13jw1ev4tuobwn8j20mk0rrtg6.jpg"></p>
 <p>
 	<small> ============== 7小时前</small>
 </p>
