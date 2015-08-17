@@ -48,7 +48,7 @@
 </h2>
 <p>[哈哈]//@青岛薛原:转发微博<br><br>RE: “忙着扑灭网络大火”——纽约时报漫画和说明：天津存放剧毒化学品的仓库发生大爆炸，死亡人数已过百，数十人失踪。但社交媒体上，关于事故的质问与批评言论却被迅速删除。 （帕特里克·恰帕特是《国际纽约时报》评论版漫画师。<br><img src="http://ww2.sinaimg.cn/large/74eee4a3gw1ev5zojd3w4j20go0cgwh7.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3876969000890723" target="freeweibo-mirror">//@小杨哥JKY://@徐凤文:本镇，终于走出天津、走向世…</a>
 </h2>
@@ -120,13 +120,13 @@
 </h2>
 <p>所谓新闻次生灾害。//@郑维:哦，原来如此<br><br>RE: 【天津爆炸涉事企业被曝肆意排氰化钠：河北村民买水度日不吃自种粮[衰][吃惊]】爆炸事件700吨氰化钠系河北诚信有限责任公司生产。调查发现，该公司20多家化工厂，多年来将含有氰化钠等毒素的污水大量排放，造成几个村庄的地下水和农田污染，部分群众被迫买水度日。http://t.cn/RLdiKYp<br><img src="http://ww4.sinaimg.cn/large/61e04755jw1ev5k834kjej20c806gwey.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3876871919636813" target="freeweibo-mirror">SPAM 啥。。。//@传媒老王: 这。。。</a>
 </h2>
 <p>SPAM 啥。。。//@传媒老王: 这。。。<br><br>RE: 「明报」新闻的大标题做得好，好就好在「第五天」这个词。<br><img src="http://ww3.sinaimg.cn/large/48fe46d9jw1ev5iufgfhhj20qo0zk43m.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3876871265886219" target="freeweibo-mirror">哦，原来如此</a>
 </h2>
