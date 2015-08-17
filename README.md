@@ -24,7 +24,7 @@
 </h2>
 <p>SPAM //@渔夫转播://@皮尔当人: //@亮剑兄来了://@散淡人生5: //@还是南开老魏://@率率王乐妮: //@暱稱禁止取名姜戈C:公有制之下，一黨專制的霸道，沒有什麼是辦不到的。//@无荫木-_:政府是怎么帮着办到的!//@涛抨:同问！//@静静的雪hu-: 同问。</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3876996503307088" target="freeweibo-mirror">SPAM 哈哈哈 //@Jonathan测试版:宝蛤姐深夜放…</a>
 </h2>
@@ -42,7 +42,7 @@
 </h2>
 <p>#曼谷市中心爆炸#现场图片慎入！己打码！[蜡烛][蜡烛][蜡烛]<br><img src="http://ww3.sinaimg.cn/large/74b78850gw1ev61thn548j20k00ovgoi.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3876969894389717" target="freeweibo-mirror">[哈哈]//@青岛薛原:转发微博</a>
 </h2>
@@ -114,7 +114,7 @@
 </h2>
 <p>【媒体：爆炸原因基本确认 仓库金属钠遇水后爆炸】据腾讯财经，一位中国核生化救援部队的士兵透露，8月12日晚爆炸原因基本确认是因仓库内金属钠遇到水后引发爆炸，截至目前爆炸前着火原因仍不明。此前幸存消防员称，当晚发现火情灭火，一车水用完之后返回取水，这时爆炸发生http://t.cn/RLdjGE7<br><img src="http://ww3.sinaimg.cn/large/61e04755jw1ev5rhy9hhrj20c806gwey.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3876872100130081" target="freeweibo-mirror">所谓新闻次生灾害。//@郑维:哦，原来如此</a>
 </h2>
