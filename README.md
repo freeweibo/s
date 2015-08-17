@@ -20,11 +20,17 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3876814621300190" target="freeweibo-mirror">天津发言人都不知道，我哪儿能知道啊！[白眼]//@清华秦鹏:…</a>
+</h2>
+<p>天津发言人都不知道，我哪儿能知道啊！[白眼]//@清华秦鹏: 也就是说，是不是只有成堆的爆炸物品本身才能够有这样大的爆炸当量？问题是：哪儿来的呢？想炸什么？ //@陈业文新大都:嗯，调查结果必须经得起全世界的检验<br><br>RE: 现场深坑再次证明我的判断：爆炸威力相当约250吨TNT。如此图测量准确，水坑直径90米，深坑直径190米，考虑到炸掀的浮土覆盖，直接由爆炸破坏成土坑应约140米直径。再告诉大家一公式：R=k•B^3。R为弹坑半径，k为破坏系数（普通土壤为1.07），B为炸药当量。可知，破坏直径140米时，炸药威力约275吨TNT。<br><img src="http://ww4.sinaimg.cn/large/8ce63b13jw1ev4tuobwn8j20mk0rrtg6.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3876798901347808" target="freeweibo-mirror">SPAM 新五虎上将，卧槽[哈哈]</a>
 </h2>
 <p>SPAM 新五虎上将，卧槽[哈哈]<br><img src="http://ww4.sinaimg.cn/large/98c6dd80gw1ev5hbc4hoij20ee0m8dhd.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3876777971991238" target="freeweibo-mirror">SPAM //@杂谈五味子: 是遥遥领先的预言吗？</a>
 </h2>
@@ -90,7 +96,7 @@
 </h2>
 <p>//@常四爷-: //@练习一册: //@冷眼观世界12:转发微博<br><br>RE: 竟有这样的事情 ？<br><img src="http://ww2.sinaimg.cn/large/a7f09f89jw1ev4mzqn0jij20e00cit9x.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3876692713772059" target="freeweibo-mirror">你们好像都搞错了，这父子俩才是真正的老板。关键词：信.义集团…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3876622249579019" target="freeweibo-mirror">SPAM 蛤ppy birthday笑尿//@301_Mov…</a>
 </h2>
 <p>SPAM 蛤ppy birthday笑尿//@301_Moved_Permanently: 续命//@bei_遠晴近雨: 虫合//@徳井青空:蛤ppy！蛤ppy！//@夏活认怂了吗: //@弥生推:续//@药学学徒-守姬骑士-枫语流年: 续 //@為什麼要玩垃圾遊戲呢:续//@SSK_kizuna: 蛤ppy birthday//@逐渐绅士的Miracleman: //@蕾米莉亚型伪娘搜索雷达:<br><br>RE: 今天是我们伟大的长者的生日，让我们祝他生日快乐[蛋糕][蛋糕][蛋糕][蛋糕][蛋糕][蛋糕]，转发一次续一秒。<br><img src="http://ww1.sinaimg.cn/large/7f56dbf9jw1ev4td1tzk5j204804a0sm.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3876620601447886" target="freeweibo-mirror">你的帖删得够快的！[怒][怒]@微读社会</a>
-</h2>
-<p>你的帖删得够快的！[怒][怒]@微读社会<br><img src="http://ww2.sinaimg.cn/large/646cf3bdjw1ev4wt4rlpjj20ku112tdy.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
