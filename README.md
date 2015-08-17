@@ -24,7 +24,7 @@
 </h2>
 <p>//@竹盐王子://@通城风雨://@就算喝醉: 转发微博<br><br>RE: 你们好像都搞错了，这父子俩才是真正的老板。关键词：信.义集团，李、圣泼。<br><img src="http://ww1.sinaimg.cn/large/68b3dde5jw1ev5540visqj20fp0bbabc.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3876727275568264" target="freeweibo-mirror">SPAM 笑啥？ //@青鸟唤春:呵呵。[哈哈]</a>
 </h2>
@@ -90,7 +90,7 @@
 </h2>
 <p>SPAM 续一秒[蛋糕] //@夏宫的刘阳:[蛋糕] //@战争史研究WHS:add one second[蛋糕] //@不沉默的大多数: 祈福国泰民安[握手]</p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3876607020727852" target="freeweibo-mirror">SPAM 太震惊了[衰]博主保重</a>
 </h2>
