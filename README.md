@@ -30,7 +30,7 @@
 </h2>
 <p>汪伪中央大学两年，应该还精通日语<br><br>RE: 我蛤有海外留学经历，并且精通英、俄、德语（2002年出访德国用德语全程演讲）（也有资料显示精通八门），能用英语全文背诵《独立宣言》（他自己讲），这样一位学霸领导人，虽然在意识形态浓烈的国家掌权，但对西方世界的理解和海外文化的包容确实是其他土改型领导不能相比的。<br><img src="http://ww4.sinaimg.cn/large/59479230gw1ev5mo088x4j20e70i2wf0.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3876845730693240" target="freeweibo-mirror">我蛤有海外留学经历，并且精通英、俄、德语（2002年出访德国…</a>
 </h2>
@@ -43,6 +43,12 @@
 <p>SPAM 转<br><br>RE: 转阅，大家有什么看法?<br><img src="http://ww3.sinaimg.cn/large/005BpdpXjw1ev5kzeu6bcj30hs0hi0x4.jpg"></p>
 <p>
 	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3876831394118360" target="freeweibo-mirror">转阅，大家有什么看法?</a>
+</h2>
+<p>转阅，大家有什么看法?<br><img src="http://ww3.sinaimg.cn/large/005BpdpXjw1ev5kzeu6bcj30hs0hi0x4.jpg"></p>
+<p>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3876831046792712" target="freeweibo-mirror">[good]这才是有良心，说真话的专家！</a>
 </h2>
@@ -133,12 +139,6 @@
 <p>SPAM 你们还年轻。 //@thomasluo骆轶航:谈笑风生90年<br><br>RE: 今天是我敬爱的长者的生日<br><img src="http://ww4.sinaimg.cn/large/72d8d389jw1ev4wnf1y3yj20fy0m7gmf.jpg"></p>
 <p>
 	<small> ============== 8小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3876748146417394" target="freeweibo-mirror">人家讲法律，不讲“政治规矩”！[喵喵]//@麒哥归来: //…</a>
-</h2>
-<p>人家讲法律，不讲“政治规矩”！[喵喵]//@麒哥归来: //@李不白的空间:猛料！<br><br>RE: 【北京就令完成事件和美国谈崩？】纽约时报 今天发文：http://t.cn/RLdhzQ6 Obama政府警告北京，停止在美国秘密特工活动，这些特工给在旅居美国的经济和政治犯监视和施压，让他们回国“自首”，文章特别提到令完成有申请政治庇护的权利。并强调美国FBI有自己的标准决定遣返什么人，中共猎狐计划受挫。<br><img src="http://ww4.sinaimg.cn/large/749bcf09jw1ev59w0daekj20ku112jyd.jpg"></p>
-<p>
-	<small> ============== 9小时前</small>
 </p>
 <table>
     <tr>
