@@ -44,6 +44,12 @@
 <p>
 	<small> ============== 4小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3876959203441628" target="freeweibo-mirror">“忙着扑灭网络大火”——纽约时报漫画和说明：天津存放剧毒化学…</a>
+</h2>
+<p>“忙着扑灭网络大火”——纽约时报漫画和说明：天津存放剧毒化学品的仓库发生大爆炸，死亡人数已过百，数十人失踪。但社交媒体上，关于事故的质问与批评言论却被迅速删除。 （帕特里克·恰帕特是《国际纽约时报》评论版漫画师。<br><img src="http://ww2.sinaimg.cn/large/74eee4a3gw1ev5zojd3w4j20go0cgwh7.jpg"></p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3876907089384268" target="freeweibo-mirror">SPAM 这里就明显看出来养猪业的前景如何了。养猪网的评论就…</a>
 </h2>
 <p>SPAM 这里就明显看出来养猪业的前景如何了。养猪网的评论就是这德行，有的是网友跟的，有的是养猪网自己员工刷跟的。之前早有解释，那地不是村干部卖了，是转租出去了<br><br>RE: #热门跟贴# 大爷，大爷，你幸福不？<br><img src="http://ww4.sinaimg.cn/large/75b52ed2jw1ev5s1o2g0bj20c81x5q6y.jpg"></p>
@@ -66,7 +72,7 @@
 </h2>
 <p>SPAM 跟贴除了网易也没谁了<br><br>RE: #热门跟贴# 大爷，大爷，你幸福不？<br><img src="http://ww4.sinaimg.cn/large/75b52ed2jw1ev5s1o2g0bj20c81x5q6y.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3876892345865244" target="freeweibo-mirror">#热门跟贴# 大爷，大爷，你幸福不？</a>
 </h2>
@@ -108,7 +114,7 @@
 </h2>
 <p>//@黄西Joe_Wong:转发微博<br><br>RE: 【天津爆炸涉事企业被曝肆意排氰化钠：河北村民买水度日不吃自种粮[衰][吃惊]】爆炸事件700吨氰化钠系河北诚信有限责任公司生产。调查发现，该公司20多家化工厂，多年来将含有氰化钠等毒素的污水大量排放，造成几个村庄的地下水和农田污染，部分群众被迫买水度日。http://t.cn/RLdiKYp<br><img src="http://ww4.sinaimg.cn/large/61e04755jw1ev5k834kjej20c806gwey.jpg"></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3876857571062138" target="freeweibo-mirror">………//@财经网:【河北诚信纳税占全县近四分之一 通过环评…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3876845730693240" target="freeweibo-mirror">我蛤有海外留学经历，并且精通英、俄、德语（2002年出访德国…</a>
 </h2>
 <p>我蛤有海外留学经历，并且精通英、俄、德语（2002年出访德国用德语全程演讲）（也有资料显示精通八门），能用英语全文背诵《独立宣言》（他自己讲），这样一位学霸领导人，虽然在意识形态浓烈的国家掌权，但对西方世界的理解和海外文化的包容确实是其他土改型领导不能相比的。<br><img src="http://ww4.sinaimg.cn/large/59479230gw1ev5mo088x4j20e70i2wf0.jpg"></p>
-<p>
-	<small> ============== 12小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3876844044532181" target="freeweibo-mirror">SPAM 转</a>
-</h2>
-<p>SPAM 转<br><br>RE: 转阅，大家有什么看法?<br><img src="http://ww3.sinaimg.cn/large/005BpdpXjw1ev5kzeu6bcj30hs0hi0x4.jpg"></p>
 <p>
 	<small> ============== 12小时前</small>
 </p>
