@@ -48,7 +48,7 @@
 </h2>
 <p>[哈哈]//@青岛薛原:转发微博<br><br>RE: “忙着扑灭网络大火”——纽约时报漫画和说明：天津存放剧毒化学品的仓库发生大爆炸，死亡人数已过百，数十人失踪。但社交媒体上，关于事故的质问与批评言论却被迅速删除。 （帕特里克·恰帕特是《国际纽约时报》评论版漫画师。<br><img src="http://ww2.sinaimg.cn/large/74eee4a3gw1ev5zojd3w4j20go0cgwh7.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3876969000890723" target="freeweibo-mirror">//@小杨哥JKY://@徐凤文:本镇，终于走出天津、走向世…</a>
 </h2>
@@ -114,7 +114,7 @@
 </h2>
 <p>【媒体：爆炸原因基本确认 仓库金属钠遇水后爆炸】据腾讯财经，一位中国核生化救援部队的士兵透露，8月12日晚爆炸原因基本确认是因仓库内金属钠遇到水后引发爆炸，截至目前爆炸前着火原因仍不明。此前幸存消防员称，当晚发现火情灭火，一车水用完之后返回取水，这时爆炸发生http://t.cn/RLdjGE7<br><img src="http://ww3.sinaimg.cn/large/61e04755jw1ev5rhy9hhrj20c806gwey.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3876872100130081" target="freeweibo-mirror">所谓新闻次生灾害。//@郑维:哦，原来如此</a>
 </h2>
