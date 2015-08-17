@@ -96,7 +96,7 @@
 </h2>
 <p>SPAM 谣言吗？<br><br>RE: 你的帖删得够快的！[怒][怒]@微读社会<br><img src="http://ww2.sinaimg.cn/large/646cf3bdjw1ev4wt4rlpjj20ku112tdy.jpg"></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3876627635166872" target="freeweibo-mirror">SPAM  //@郑敏:别指望了 //@又有壹楠://@GU…</a>
 </h2>
@@ -132,7 +132,7 @@
 </h2>
 <p>今天是我们伟大的长者的生日，让我们祝他生日快乐[蛋糕][蛋糕][蛋糕][蛋糕][蛋糕][蛋糕]，转发一次续一秒。<br><img src="http://ww1.sinaimg.cn/large/7f56dbf9jw1ev4td1tzk5j204804a0sm.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3876612241707292" target="freeweibo-mirror">SPAM 个中缘由彭大嫂子最知晓。[右哼哼]</a>
 </h2>
