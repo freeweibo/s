@@ -90,7 +90,7 @@
 </h2>
 <p>SPAM 笑啥？ //@青鸟唤春:呵呵。[哈哈]<br><br>RE: 大家有去泰山玩过吗？<br><img src="http://ww1.sinaimg.cn/large/6c4fb28ejw1ev54ejhjcej20kk0iuad0.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3876724251531090" target="freeweibo-mirror">//@常四爷-: //@练习一册: //@冷眼观世界12:转…</a>
 </h2>
