@@ -32,6 +32,12 @@
 <p>
 	<small> ============== 1小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3876734241559441" target="freeweibo-mirror">【北京就令完成事件和美国谈崩？】纽约时报 今天发文：http…</a>
+</h2>
+<p>【北京就令完成事件和美国谈崩？】纽约时报 今天发文：http://t.cn/RLdhzQ6 Obama政府警告北京，停止在美国秘密特工活动，这些特工给在旅居美国的经济和政治犯监视和施压，让他们回国“自首”，文章特别提到令完成有申请政治庇护的权利。并强调美国FBI有自己的标准决定遣返什么人，中共猎狐计划受挫。<br><img src="http://ww4.sinaimg.cn/large/749bcf09jw1ev59w0daekj20ku112jyd.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3876728507971324" target="freeweibo-mirror">//@竹盐王子://@通城风雨://@就算喝醉: 转发微博</a>
 </h2>
 <p>//@竹盐王子://@通城风雨://@就算喝醉: 转发微博<br><br>RE: 你们好像都搞错了，这父子俩才是真正的老板。关键词：信.义集团，李、圣泼。<br><img src="http://ww1.sinaimg.cn/large/68b3dde5jw1ev5540visqj20fp0bbabc.jpg"></p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3876602251305430" target="freeweibo-mirror">SPAM 我小心脏受不了了[吃惊]</a>
 </h2>
 <p>SPAM 我小心脏受不了了[吃惊]<br><img src="http://ww4.sinaimg.cn/large/957ec276jw1ev4upv1p8rj20ez0qo407.jpg"></p>
-<p>
-	<small> ============== 11小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3876600943148155" target="freeweibo-mirror">还是老领导有面子，临别常委们都来送行了；天津港死那么多人，他…</a>
-</h2>
-<p>还是老领导有面子，临别常委们都来送行了；天津港死那么多人，他们集体失踪多日。</p>
 <p>
 	<small> ============== 11小时前</small>
 </p>
