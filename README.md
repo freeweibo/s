@@ -72,7 +72,7 @@
 </h2>
 <p>//@常四爷-: //@练习一册: //@冷眼观世界12:转发微博<br><br>RE: 竟有这样的事情 ？<br><img src="http://ww2.sinaimg.cn/large/a7f09f89jw1ev4mzqn0jij20e00cit9x.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3876692713772059" target="freeweibo-mirror">你们好像都搞错了，这父子俩才是真正的老板。关键词：信.义集团…</a>
 </h2>
