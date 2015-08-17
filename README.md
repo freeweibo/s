@@ -26,6 +26,18 @@
 <p>
 	<small> ============== 1小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3876871265886219" target="freeweibo-mirror">哦，原来如此</a>
+</h2>
+<p>哦，原来如此<br><br>RE: 【天津爆炸涉事企业被曝肆意排氰化钠：河北村民买水度日不吃自种粮[衰][吃惊]】爆炸事件700吨氰化钠系河北诚信有限责任公司生产。调查发现，该公司20多家化工厂，多年来将含有氰化钠等毒素的污水大量排放，造成几个村庄的地下水和农田污染，部分群众被迫买水度日。http://t.cn/RLdiKYp<br><img src="http://ww4.sinaimg.cn/large/61e04755jw1ev5k834kjej20c806gwey.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3876857571062138" target="freeweibo-mirror">………//@财经网:【河北诚信纳税占全县近四分之一 通过环评…</a>
+</h2>
+<p>………//@财经网:【河北诚信纳税占全县近四分之一 通过环评认证】排污企业名单中，作为元氏县利税第一大户的河北诚信有限责任公司位列其中。企业称“已通过环境管理体系认证，氰化钠等产品在国际上享有极高的信誉和知名度”，但村民质疑，虽通过环评认证，如执行不按环保标准排放照样造成污染<br><br>RE: 【天津爆炸涉事企业被曝肆意排氰化钠：河北村民买水度日不吃自种粮[衰][吃惊]】爆炸事件700吨氰化钠系河北诚信有限责任公司生产。调查发现，该公司20多家化工厂，多年来将含有氰化钠等毒素的污水大量排放，造成几个村庄的地下水和农田污染，部分群众被迫买水度日。http://t.cn/RLdiKYp<br><img src="http://ww4.sinaimg.cn/large/61e04755jw1ev5k834kjej20c806gwey.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3876849321277390" target="freeweibo-mirror">摘：【一周来深为80后一代年轻记者所感动】天津爆炸与汶川地震…</a>
 </h2>
 <p>摘：【一周来深为80后一代年轻记者所感动】天津爆炸与汶川地震还不一样，地震是天灾，爆炸是人祸，如果不能从中吸取教训，国家就不能进步，年轻人就没有未来。欣慰地看到，年轻的专业媒体人不畏宣传禁令，不畏生命危险，努力挖掘真相，让我看到新闻教育的价值。</p>
@@ -90,13 +102,13 @@
 </h2>
 <p>SPAM Happy Birthday<br><img src="http://ww1.sinaimg.cn/large/a90c3530gw1ev5i9v2jjcj218g0xcqd9.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3876808389027577" target="freeweibo-mirror">[吃惊]//@miki-铃铛:我去，不会是军火吧！突然间我的…</a>
 </h2>
 <p>[吃惊]//@miki-铃铛:我去，不会是军火吧！突然间我的脑洞大开！<br><br>RE: 现场深坑再次证明我的判断：爆炸威力相当约250吨TNT。如此图测量准确，水坑直径90米，深坑直径190米，考虑到炸掀的浮土覆盖，直接由爆炸破坏成土坑应约140米直径。再告诉大家一公式：R=k•B^3。R为弹坑半径，k为破坏系数（普通土壤为1.07），B为炸药当量。可知，破坏直径140米时，炸药威力约275吨TNT。<br><img src="http://ww4.sinaimg.cn/large/8ce63b13jw1ev4tuobwn8j20mk0rrtg6.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3876800423400812" target="freeweibo-mirror">//@一声炮响: 天津官场官气十足，暮气沉沉。 //@周京平…</a>
 </h2>
@@ -120,25 +132,13 @@
 </h2>
 <p>SPAM //@杂谈五味子: 是遥遥领先的预言吗？</p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3876773962365316" target="freeweibo-mirror">SPAM 是遥遥领先的预言吗？</a>
 </h2>
 <p>SPAM 是遥遥领先的预言吗？</p>
 <p>
 	<small> ============== 8小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3876762981570458" target="freeweibo-mirror">SPAM 标准像。//@IYALAN: //@邵明波: 在今…</a>
-</h2>
-<p>SPAM 标准像。//@IYALAN: //@邵明波: 在今天，本人衷心祝愿长者长寿！//@喷嚏网铂程: //@thomasluo骆轶航: 谈笑风生90年<br><br>RE: 今天是我敬爱的长者的生日<br><img src="http://ww4.sinaimg.cn/large/72d8d389jw1ev4wnf1y3yj20fy0m7gmf.jpg"></p>
-<p>
-	<small> ============== 8小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3876762155235067" target="freeweibo-mirror">SPAM 在今天，本人衷心祝愿长者长寿！//@喷嚏网铂程: …</a>
-</h2>
-<p>SPAM 在今天，本人衷心祝愿长者长寿！//@喷嚏网铂程: //@thomasluo骆轶航: 谈笑风生90年<br><br>RE: 今天是我敬爱的长者的生日<br><img src="http://ww4.sinaimg.cn/large/72d8d389jw1ev4wnf1y3yj20fy0m7gmf.jpg"></p>
-<p>
-	<small> ============== 9小时前</small>
 </p>
 <table>
     <tr>
