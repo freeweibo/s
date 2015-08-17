@@ -36,7 +36,7 @@
 </h2>
 <p>我蛤有海外留学经历，并且精通英、俄、德语（2002年出访德国用德语全程演讲）（也有资料显示精通八门），能用英语全文背诵《独立宣言》（他自己讲），这样一位学霸领导人，虽然在意识形态浓烈的国家掌权，但对西方世界的理解和海外文化的包容确实是其他土改型领导不能相比的。<br><img src="http://ww4.sinaimg.cn/large/59479230gw1ev5mo088x4j20e70i2wf0.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3876844044532181" target="freeweibo-mirror">SPAM 转</a>
 </h2>
@@ -48,7 +48,7 @@
 </h2>
 <p>[good]这才是有良心，说真话的专家！</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3876825094440735" target="freeweibo-mirror">SPAM 为了阅兵，北京将在9越2日到3日，天安门地区戒严。…</a>
 </h2>
@@ -90,13 +90,13 @@
 </h2>
 <p>//@一声炮响: 天津官场官气十足，暮气沉沉。 //@周京平: //@鼎鏊肖志军: //@何兵:转发微博<br><br>RE: #天津塘沽大爆炸# 什么电视台都看不到的发布会，官员和记者在吵架。[拜拜]http://t.cn/RL1hAwE</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3876800067431263" target="freeweibo-mirror">希望永久保留这个湖、警示后人。</a>
 </h2>
 <p>希望永久保留这个湖、警示后人。<br><br>RE: 现场深坑再次证明我的判断：爆炸威力相当约250吨TNT。如此图测量准确，水坑直径90米，深坑直径190米，考虑到炸掀的浮土覆盖，直接由爆炸破坏成土坑应约140米直径。再告诉大家一公式：R=k•B^3。R为弹坑半径，k为破坏系数（普通土壤为1.07），B为炸药当量。可知，破坏直径140米时，炸药威力约275吨TNT。<br><img src="http://ww4.sinaimg.cn/large/8ce63b13jw1ev4tuobwn8j20mk0rrtg6.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3876798901347808" target="freeweibo-mirror">SPAM 新五虎上将，卧槽[哈哈]</a>
 </h2>
