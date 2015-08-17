@@ -24,7 +24,7 @@
 </h2>
 <p>SPAM 好复杂//@2885542665_856: 脑子有点乱，慢慢理理:王丽的胞妹与曾伟的曾家有关系，黎亮与小琳的李家有牵连，黎亮与王丽是夫妻，可是，这黎亮和王丽又是哪路的妖精？<br><br>RE: 原来如此</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3876977544812980" target="freeweibo-mirror">#曼谷市中心爆炸#现场图片慎入！己打码！[蜡烛][蜡烛][蜡…</a>
 </h2>
@@ -42,7 +42,7 @@
 </h2>
 <p>SPAM 这里就明显看出来养猪业的前景如何了。养猪网的评论就是这德行，有的是网友跟的，有的是养猪网自己员工刷跟的。之前早有解释，那地不是村干部卖了，是转租出去了<br><br>RE: #热门跟贴# 大爷，大爷，你幸福不？<br><img src="http://ww4.sinaimg.cn/large/75b52ed2jw1ev5s1o2g0bj20c81x5q6y.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3876905918632204" target="freeweibo-mirror">政府长期失职，现场指挥失误。[衰][弱]//@孙老西儿: 金…</a>
 </h2>
@@ -66,7 +66,7 @@
 </h2>
 <p>#热门跟贴# 大爷，大爷，你幸福不？<br><img src="http://ww4.sinaimg.cn/large/75b52ed2jw1ev5s1o2g0bj20c81x5q6y.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3876891583000157" target="freeweibo-mirror">//@杨锦麟:枉死了那么多年轻战士的生命。</a>
 </h2>
@@ -120,7 +120,7 @@
 </h2>
 <p>汪伪中央大学两年，应该还精通日语<br><br>RE: 我蛤有海外留学经历，并且精通英、俄、德语（2002年出访德国用德语全程演讲）（也有资料显示精通八门），能用英语全文背诵《独立宣言》（他自己讲），这样一位学霸领导人，虽然在意识形态浓烈的国家掌权，但对西方世界的理解和海外文化的包容确实是其他土改型领导不能相比的。<br><img src="http://ww4.sinaimg.cn/large/59479230gw1ev5mo088x4j20e70i2wf0.jpg"></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3876845730693240" target="freeweibo-mirror">我蛤有海外留学经历，并且精通英、俄、德语（2002年出访德国…</a>
 </h2>
