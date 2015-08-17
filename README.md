@@ -24,7 +24,7 @@
 </h2>
 <p>SPAM 新五虎上将，卧槽[哈哈]<br><img src="http://ww4.sinaimg.cn/large/98c6dd80gw1ev5hbc4hoij20ee0m8dhd.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3876777971991238" target="freeweibo-mirror">SPAM //@杂谈五味子: 是遥遥领先的预言吗？</a>
 </h2>
@@ -90,7 +90,7 @@
 </h2>
 <p>//@常四爷-: //@练习一册: //@冷眼观世界12:转发微博<br><br>RE: 竟有这样的事情 ？<br><img src="http://ww2.sinaimg.cn/large/a7f09f89jw1ev4mzqn0jij20e00cit9x.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3876692713772059" target="freeweibo-mirror">你们好像都搞错了，这父子俩才是真正的老板。关键词：信.义集团…</a>
 </h2>
