@@ -84,7 +84,7 @@
 </h2>
 <p>SPAM 这里就明显看出来养猪业的前景如何了。养猪网的评论就是这德行，有的是网友跟的，有的是养猪网自己员工刷跟的。之前早有解释，那地不是村干部卖了，是转租出去了<br><br>RE: #热门跟贴# 大爷，大爷，你幸福不？<br><img src="http://ww4.sinaimg.cn/large/75b52ed2jw1ev5s1o2g0bj20c81x5q6y.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3876905918632204" target="freeweibo-mirror">政府长期失职，现场指挥失误。[衰][弱]//@孙老西儿: 金…</a>
 </h2>
