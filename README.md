@@ -84,7 +84,7 @@
 </h2>
 <p>//@常四爷-: //@练习一册: //@冷眼观世界12:转发微博<br><br>RE: 竟有这样的事情 ？<br><img src="http://ww2.sinaimg.cn/large/a7f09f89jw1ev4mzqn0jij20e00cit9x.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3876692713772059" target="freeweibo-mirror">你们好像都搞错了，这父子俩才是真正的老板。关键词：信.义集团…</a>
 </h2>
@@ -120,7 +120,7 @@
 </h2>
 <p>滨海新区临港工业区LG化工着火了，介一天天有完吗？大半夜的，给人添麻烦，这些私企、外企怎么就不让人省心呢？关门吧！希望没有伤亡，都是无辜的人。希望消防战士们也都平安[推荐][推荐][推荐]</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3876622249579019" target="freeweibo-mirror">SPAM 蛤ppy birthday笑尿//@301_Mov…</a>
 </h2>
