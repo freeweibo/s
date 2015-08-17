@@ -36,7 +36,7 @@
 </h2>
 <p>【北京就令完成事件和美国谈崩？】纽约时报 今天发文：http://t.cn/RLdhzQ6 Obama政府警告北京，停止在美国秘密特工活动，这些特工给在旅居美国的经济和政治犯监视和施压，让他们回国“自首”，文章特别提到令完成有申请政治庇护的权利。并强调美国FBI有自己的标准决定遣返什么人，中共猎狐计划受挫。<br><img src="http://ww4.sinaimg.cn/large/749bcf09jw1ev59w0daekj20ku112jyd.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3876728507971324" target="freeweibo-mirror">//@竹盐王子://@通城风雨://@就算喝醉: 转发微博</a>
 </h2>
@@ -84,7 +84,7 @@
 </h2>
 <p>SPAM  //@郑敏:别指望了 //@又有壹楠://@GUOJI-ZHANG:图片评论 http://t.cn/RLrCu56</p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3876625512711619" target="freeweibo-mirror">滨海新区临港工业区LG化工着火了，介一天天有完吗？大半夜的，…</a>
 </h2>
