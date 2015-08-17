@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3876846850538486" target="freeweibo-mirror">汪伪中央大学两年，应该还精通日语</a>
+</h2>
+<p>汪伪中央大学两年，应该还精通日语<br><br>RE: 我蛤有海外留学经历，并且精通英、俄、德语（2002年出访德国用德语全程演讲）（也有资料显示精通八门），能用英语全文背诵《独立宣言》（他自己讲），这样一位学霸领导人，虽然在意识形态浓烈的国家掌权，但对西方世界的理解和海外文化的包容确实是其他土改型领导不能相比的。<br><img src="http://ww4.sinaimg.cn/large/59479230gw1ev5mo088x4j20e70i2wf0.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3876825094440735" target="freeweibo-mirror">SPAM 为了阅兵，北京将在9越2日到3日，天安门地区戒严。…</a>
 </h2>
 <p>SPAM 为了阅兵，北京将在9越2日到3日，天安门地区戒严。9月3日上午首都机场关闭。<br><br>RE: 经济学人新封面文章从阅兵谈起。。。http://t.cn/RL1G1xJ<br><img src="http://ww4.sinaimg.cn/large/74eee4a3gw1ev48tchhzgj20b40em768.jpg"></p>
@@ -30,7 +36,7 @@
 </h2>
 <p>首发的庆山老师，也是加V的，为什么要用这样的不符合实际情况的标题来引人眼球呢？我很认真的看完这段视频，看不到“吵架”二字体现在什么地方!只是正常的记者问官员答，官员的回答也许不能让人满意，但现场并没有吵架的情形啊！为什么要这样煽风点火呢？对你有什么好处呢？<br><br>RE: #天津塘沽大爆炸# 什么电视台都看不到的发布会，官员和记者在吵架。[拜拜]http://t.cn/RL1hAwE</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3876814621300190" target="freeweibo-mirror">天津发言人都不知道，我哪儿能知道啊！[白眼]//@清华秦鹏:…</a>
 </h2>
@@ -90,7 +96,7 @@
 </h2>
 <p>SPAM 在今天，本人衷心祝愿长者长寿！//@喷嚏网铂程: //@thomasluo骆轶航: 谈笑风生90年<br><br>RE: 今天是我敬爱的长者的生日<br><img src="http://ww4.sinaimg.cn/large/72d8d389jw1ev4wnf1y3yj20fy0m7gmf.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3876758878980510" target="freeweibo-mirror">SPAM 你们还年轻。 //@thomasluo骆轶航:谈笑…</a>
 </h2>
@@ -108,7 +114,7 @@
 </h2>
 <p>//@医疗律师刘晔:转发微博<br><br>RE: 【北京就令完成事件和美国谈崩？】纽约时报 今天发文：http://t.cn/RLdhzQ6 Obama政府警告北京，停止在美国秘密特工活动，这些特工给在旅居美国的经济和政治犯监视和施压，让他们回国“自首”，文章特别提到令完成有申请政治庇护的权利。并强调美国FBI有自己的标准决定遣返什么人，中共猎狐计划受挫。<br><img src="http://ww4.sinaimg.cn/large/749bcf09jw1ev59w0daekj20ku112jyd.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3876734241559441" target="freeweibo-mirror">【北京就令完成事件和美国谈崩？】纽约时报 今天发文：http…</a>
 </h2>
@@ -133,12 +139,6 @@
 <p>//@常四爷-: //@练习一册: //@冷眼观世界12:转发微博<br><br>RE: 竟有这样的事情 ？<br><img src="http://ww2.sinaimg.cn/large/a7f09f89jw1ev4mzqn0jij20e00cit9x.jpg"></p>
 <p>
 	<small> ============== 9小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3876692713772059" target="freeweibo-mirror">你们好像都搞错了，这父子俩才是真正的老板。关键词：信.义集团…</a>
-</h2>
-<p>你们好像都搞错了，这父子俩才是真正的老板。关键词：信.义集团，李、圣泼。<br><img src="http://ww1.sinaimg.cn/large/68b3dde5jw1ev5540visqj20fp0bbabc.jpg"></p>
-<p>
-	<small> ============== 11小时前</small>
 </p>
 <table>
     <tr>
