@@ -24,7 +24,7 @@
 </h2>
 <p>SPAM //@渔夫转播://@皮尔当人: //@亮剑兄来了://@散淡人生5: //@还是南开老魏://@率率王乐妮: //@暱稱禁止取名姜戈C:公有制之下，一黨專制的霸道，沒有什麼是辦不到的。//@无荫木-_:政府是怎么帮着办到的!//@涛抨:同问！//@静静的雪hu-: 同问。</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3876996503307088" target="freeweibo-mirror">SPAM 哈哈哈 //@Jonathan测试版:宝蛤姐深夜放…</a>
 </h2>
@@ -42,7 +42,7 @@
 </h2>
 <p>#曼谷市中心爆炸#现场图片慎入！己打码！[蜡烛][蜡烛][蜡烛]<br><img src="http://ww3.sinaimg.cn/large/74b78850gw1ev61thn548j20k00ovgoi.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3876969894389717" target="freeweibo-mirror">[哈哈]//@青岛薛原:转发微博</a>
 </h2>
