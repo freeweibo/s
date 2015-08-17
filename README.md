@@ -96,7 +96,7 @@
 </h2>
 <p>SPAM 跟贴除了网易也没谁了<br><br>RE: #热门跟贴# 大爷，大爷，你幸福不？<br><img src="http://ww4.sinaimg.cn/large/75b52ed2jw1ev5s1o2g0bj20c81x5q6y.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3876892345865244" target="freeweibo-mirror">#热门跟贴# 大爷，大爷，你幸福不？</a>
 </h2>
