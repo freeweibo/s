@@ -36,7 +36,7 @@
 </h2>
 <p>//@黄西Joe_Wong:转发微博<br><br>RE: 【天津爆炸涉事企业被曝肆意排氰化钠：河北村民买水度日不吃自种粮[衰][吃惊]】爆炸事件700吨氰化钠系河北诚信有限责任公司生产。调查发现，该公司20多家化工厂，多年来将含有氰化钠等毒素的污水大量排放，造成几个村庄的地下水和农田污染，部分群众被迫买水度日。http://t.cn/RLdiKYp<br><img src="http://ww4.sinaimg.cn/large/61e04755jw1ev5k834kjej20c806gwey.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3876857571062138" target="freeweibo-mirror">………//@财经网:【河北诚信纳税占全县近四分之一 通过环评…</a>
 </h2>
