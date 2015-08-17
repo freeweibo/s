@@ -26,6 +26,18 @@
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3876891583000157" target="freeweibo-mirror">//@杨锦麟:枉死了那么多年轻战士的生命。</a>
+</h2>
+<p>//@杨锦麟:枉死了那么多年轻战士的生命。</p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3876887581749113" target="freeweibo-mirror">【媒体：爆炸原因基本确认 仓库金属钠遇水后爆炸】据腾讯财经，…</a>
+</h2>
+<p>【媒体：爆炸原因基本确认 仓库金属钠遇水后爆炸】据腾讯财经，一位中国核生化救援部队的士兵透露，8月12日晚爆炸原因基本确认是因仓库内金属钠遇到水后引发爆炸，截至目前爆炸前着火原因仍不明。此前幸存消防员称，当晚发现火情灭火，一车水用完之后返回取水，这时爆炸发生http://t.cn/RLdjGE7<br><img src="http://ww3.sinaimg.cn/large/61e04755jw1ev5rhy9hhrj20c806gwey.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3876872100130081" target="freeweibo-mirror">所谓新闻次生灾害。//@郑维:哦，原来如此</a>
 </h2>
 <p>所谓新闻次生灾害。//@郑维:哦，原来如此<br><br>RE: 【天津爆炸涉事企业被曝肆意排氰化钠：河北村民买水度日不吃自种粮[衰][吃惊]】爆炸事件700吨氰化钠系河北诚信有限责任公司生产。调查发现，该公司20多家化工厂，多年来将含有氰化钠等毒素的污水大量排放，造成几个村庄的地下水和农田污染，部分群众被迫买水度日。http://t.cn/RLdiKYp<br><img src="http://ww4.sinaimg.cn/large/61e04755jw1ev5k834kjej20c806gwey.jpg"></p>
@@ -125,18 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3876812222669812" target="freeweibo-mirror">「明报」新闻的大标题做得好，好就好在「第五天」这个词。</a>
 </h2>
 <p>「明报」新闻的大标题做得好，好就好在「第五天」这个词。<br><img src="http://ww3.sinaimg.cn/large/48fe46d9jw1ev5iufgfhhj20qo0zk43m.jpg"></p>
-<p>
-	<small> ============== 8小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3876808598483512" target="freeweibo-mirror">SPAM Happy Birthday</a>
-</h2>
-<p>SPAM Happy Birthday<br><img src="http://ww1.sinaimg.cn/large/a90c3530gw1ev5i9v2jjcj218g0xcqd9.jpg"></p>
-<p>
-	<small> ============== 8小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3876808389027577" target="freeweibo-mirror">[吃惊]//@miki-铃铛:我去，不会是军火吧！突然间我的…</a>
-</h2>
-<p>[吃惊]//@miki-铃铛:我去，不会是军火吧！突然间我的脑洞大开！<br><br>RE: 现场深坑再次证明我的判断：爆炸威力相当约250吨TNT。如此图测量准确，水坑直径90米，深坑直径190米，考虑到炸掀的浮土覆盖，直接由爆炸破坏成土坑应约140米直径。再告诉大家一公式：R=k•B^3。R为弹坑半径，k为破坏系数（普通土壤为1.07），B为炸药当量。可知，破坏直径140米时，炸药威力约275吨TNT。<br><img src="http://ww4.sinaimg.cn/large/8ce63b13jw1ev4tuobwn8j20mk0rrtg6.jpg"></p>
 <p>
 	<small> ============== 8小时前</small>
 </p>
