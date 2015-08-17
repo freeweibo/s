@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3876849321277390" target="freeweibo-mirror">摘：【一周来深为80后一代年轻记者所感动】天津爆炸与汶川地震…</a>
+</h2>
+<p>摘：【一周来深为80后一代年轻记者所感动】天津爆炸与汶川地震还不一样，地震是天灾，爆炸是人祸，如果不能从中吸取教训，国家就不能进步，年轻人就没有未来。欣慰地看到，年轻的专业媒体人不畏宣传禁令，不畏生命危险，努力挖掘真相，让我看到新闻教育的价值。</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3876846850538486" target="freeweibo-mirror">汪伪中央大学两年，应该还精通日语</a>
 </h2>
 <p>汪伪中央大学两年，应该还精通日语<br><br>RE: 我蛤有海外留学经历，并且精通英、俄、德语（2002年出访德国用德语全程演讲）（也有资料显示精通八门），能用英语全文背诵《独立宣言》（他自己讲），这样一位学霸领导人，虽然在意识形态浓烈的国家掌权，但对西方世界的理解和海外文化的包容确实是其他土改型领导不能相比的。<br><img src="http://ww4.sinaimg.cn/large/59479230gw1ev5mo088x4j20e70i2wf0.jpg"></p>
@@ -48,7 +54,7 @@
 </h2>
 <p>天津发言人都不知道，我哪儿能知道啊！[白眼]//@清华秦鹏: 也就是说，是不是只有成堆的爆炸物品本身才能够有这样大的爆炸当量？问题是：哪儿来的呢？想炸什么？ //@陈业文新大都:嗯，调查结果必须经得起全世界的检验<br><br>RE: 现场深坑再次证明我的判断：爆炸威力相当约250吨TNT。如此图测量准确，水坑直径90米，深坑直径190米，考虑到炸掀的浮土覆盖，直接由爆炸破坏成土坑应约140米直径。再告诉大家一公式：R=k•B^3。R为弹坑半径，k为破坏系数（普通土壤为1.07），B为炸药当量。可知，破坏直径140米时，炸药威力约275吨TNT。<br><img src="http://ww4.sinaimg.cn/large/8ce63b13jw1ev4tuobwn8j20mk0rrtg6.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3876808598483512" target="freeweibo-mirror">SPAM Happy Birthday</a>
 </h2>
@@ -78,7 +84,7 @@
 </h2>
 <p>SPAM 新五虎上将，卧槽[哈哈]<br><img src="http://ww4.sinaimg.cn/large/98c6dd80gw1ev5hbc4hoij20ee0m8dhd.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3876777971991238" target="freeweibo-mirror">SPAM //@杂谈五味子: 是遥遥领先的预言吗？</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3876728507971324" target="freeweibo-mirror">//@竹盐王子://@通城风雨://@就算喝醉: 转发微博</a>
 </h2>
 <p>//@竹盐王子://@通城风雨://@就算喝醉: 转发微博<br><br>RE: 你们好像都搞错了，这父子俩才是真正的老板。关键词：信.义集团，李、圣泼。<br><img src="http://ww1.sinaimg.cn/large/68b3dde5jw1ev5540visqj20fp0bbabc.jpg"></p>
-<p>
-	<small> ============== 9小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3876727275568264" target="freeweibo-mirror">SPAM 笑啥？ //@青鸟唤春:呵呵。[哈哈]</a>
-</h2>
-<p>SPAM 笑啥？ //@青鸟唤春:呵呵。[哈哈]<br><br>RE: 大家有去泰山玩过吗？<br><img src="http://ww1.sinaimg.cn/large/6c4fb28ejw1ev54ejhjcej20kk0iuad0.jpg"></p>
 <p>
 	<small> ============== 9小时前</small>
 </p>
