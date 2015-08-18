@@ -44,6 +44,12 @@
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3877210018400690" target="freeweibo-mirror">事还没处理完就来强制捐款？？？这种自毁政府形象的傻逼事敢不敢…</a>
+</h2>
+<p>事还没处理完就来强制捐款？？？这种自毁政府形象的傻逼事敢不敢少干点？？？@天津发布<br><img src="http://ww2.sinaimg.cn/large/8f1bd71bgw1ev6sj2mxwdj20ax06g74r.jpg"></p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3877209930241392" target="freeweibo-mirror">SPAM 据说，活动是17号的某时间段的某些北京大楼下单那些…</a>
 </h2>
 <p>SPAM 据说，活动是17号的某时间段的某些北京大楼下单那些人！把你们揪出来，分我一半！</p>
@@ -133,12 +139,6 @@
 <p>大幕彻底拉开，疯狂推向极致。49年前今天的那个狂欢，罪恶成为正义，红色恐怖升级。8.18与红八月，半个世纪后还有几个人记得。<br><img src="http://ww3.sinaimg.cn/large/787d0e21jw1ev6ms3bdmbj206r04cwek.jpg"></p>
 <p>
 	<small> ============== 7小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3877150756879865" target="freeweibo-mirror">怕什么？？疏的优势远大于堵！//@风中楠竹: 次奥，这也实名…</a>
-</h2>
-<p>怕什么？？疏的优势远大于堵！//@风中楠竹: 次奥，这也实名？[汗]//@大鹏看天下: 有道理，吃饭要实名制，拉屎也要实名制，一进一出，谁都不能搞特殊。</p>
-<p>
-	<small> ============== 8小时前</small>
 </p>
 <table>
     <tr>
