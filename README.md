@@ -60,13 +60,13 @@
 </h2>
 <p>这是滨海新区还是天津市区？ //@George-瓜瓜:有人说要一辈子离开天津了 //@刘芮东:远离<br><br>RE: 天津爆炸事故后首次降雨，路面现大量白色泡沫。<br><img src="http://ww3.sinaimg.cn/large/7061c249gw1ev6npojvn4j20zk0nmdlh.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3877171431163334" target="freeweibo-mirror">敏感的消息一定要交代清楚，比如“路面”的具体位置//@五岳散…</a>
 </h2>
 <p>敏感的消息一定要交代清楚，比如“路面”的具体位置//@五岳散人: 洗衣粉……<br><br>RE: 天津爆炸事故后首次降雨，路面现大量白色泡沫。<br><img src="http://ww3.sinaimg.cn/large/7061c249gw1ev6npojvn4j20zk0nmdlh.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3877168737811821" target="freeweibo-mirror">关注水污染程度//@郑维:前线的救援人员和记者一定要做好防护…</a>
 </h2>
