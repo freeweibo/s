@@ -44,6 +44,12 @@
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3877232567558088" target="freeweibo-mirror">SPAM 彻底剿灭公知恐怖分子//@洋溢天空: 击毙的好//…</a>
+</h2>
+<p>SPAM 彻底剿灭公知恐怖分子//@洋溢天空: 击毙的好//@鸟市汉人:啥时候的事情？//@骑牛的马夫司机：地址是河南省郑州市管城区十八里河镇刘湾村！三名不明身份的公知！应该是一些暴力分子！警察当场击毙一名！逃跑两名！<br><br>RE: “开枪！开枪！开枪！” “往头打” “好！好！好！” “大伙都看着了，是不是？”http://t.cn/RL3GJ05</p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3877210018400690" target="freeweibo-mirror">事还没处理完就来强制捐款？？？这种自毁政府形象的傻逼事敢不敢…</a>
 </h2>
 <p>事还没处理完就来强制捐款？？？这种自毁政府形象的傻逼事敢不敢少干点？？？@天津发布<br><img src="http://ww2.sinaimg.cn/large/8f1bd71bgw1ev6sj2mxwdj20ax06g74r.jpg"></p>
@@ -72,19 +78,19 @@
 </h2>
 <p>//@新京报:转发微博<br><br>RE: 天津爆炸事故后首次降雨，路面现大量白色泡沫。<br><img src="http://ww3.sinaimg.cn/large/7061c249gw1ev6npojvn4j20zk0nmdlh.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3877177932325576" target="freeweibo-mirror">//@Hermann中国零售微博:可怕[衰][衰][衰] /…</a>
 </h2>
 <p>//@Hermann中国零售微博:可怕[衰][衰][衰] //@曲子叶:生命重于一切……//@范剑平:这是滨海新区还是天津市区？ //@George-瓜瓜:有人说要一辈子离开天津了 //@刘芮东:远离<br><br>RE: 天津爆炸事故后首次降雨，路面现大量白色泡沫。<br><img src="http://ww3.sinaimg.cn/large/7061c249gw1ev6npojvn4j20zk0nmdlh.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3877177831614947" target="freeweibo-mirror">//@凌星在田野: 转发微博</a>
 </h2>
 <p>//@凌星在田野: 转发微博</p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3877171439249553" target="freeweibo-mirror">这是滨海新区还是天津市区？ //@George-瓜瓜:有人说…</a>
 </h2>
@@ -133,12 +139,6 @@
 <p>SPAM 【农民工讨要四万工钱遭刁难：喝一杯给20 】民工被灌醉了，俺也是醉了！ http://t.cn/RLg7iVP<br><img src="http://ww3.sinaimg.cn/large/53e839d2jw1ev6nb27m0mj2076076t91.jpg"></p>
 <p>
 	<small> ============== 7小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3877159942543254" target="freeweibo-mirror">大幕彻底拉开，疯狂推向极致。49年前今天的那个狂欢，罪恶成为…</a>
-</h2>
-<p>大幕彻底拉开，疯狂推向极致。49年前今天的那个狂欢，罪恶成为正义，红色恐怖升级。8.18与红八月，半个世纪后还有几个人记得。<br><img src="http://ww3.sinaimg.cn/large/787d0e21jw1ev6ms3bdmbj206r04cwek.jpg"></p>
-<p>
-	<small> ============== 8小时前</small>
 </p>
 <table>
     <tr>
