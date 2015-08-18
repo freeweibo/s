@@ -42,7 +42,7 @@
 </h2>
 <p>一党zhuanzheng是最大的危爆品。//@菲姐-Maternity: 绝对的权利，绝对的贪腐！//@陈业文新大都: 何时改？还会改么？[抓狂][抓狂]//@隆裕太后:转发微博<br><br>RE: 【无辜民众买单】天津爆炸再次证明，每起事故背后，总能发现贪腐，而为贪腐买单的，总是无辜的民众，说好的把权力关进笼子，然而不幸被关进笼子的，却总是各种真相。不透明的体制，酿造了无数悲剧，要改。<br><img src="http://ww1.sinaimg.cn/large/749bcf09jw1ev6cfd3bkzj21880tc7d3.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3877104444160760" target="freeweibo-mirror">更要命的是祸国殃民啊！[衰]//@菲姐-Maternity:…</a>
 </h2>
@@ -65,6 +65,12 @@
 	<a href="https://freeweibo.com/weibo/3877100761382109" target="freeweibo-mirror">//@上官云开记者:害怕什么？！ //@第17粒://@甘华…</a>
 </h2>
 <p>//@上官云开记者:害怕什么？！ //@第17粒://@甘华军:这应申请专利 //@夺命书生的剑:这//@风青杨V:宛如惊弓之鸟？[吃惊]//@演员孙海英: //@杂汤有毒:时代真是进步了吃饭都实名制了，如果我猜的没错的话，下一步就会实行入厕实名制，带好身份证，别憋坏了，亲！//@天冷心热啊: 我去，牛逼！[汗]<br><br>RE: 现在帝都的同胞们吃个饭都要那么麻烦么？<br><img src="http://ww4.sinaimg.cn/large/62b03848gw1ev5zud3fnuj20go0m840e.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3877100027166457" target="freeweibo-mirror">【全国总动员】领导负责在新闻发布会上丢丑；媒体负责颂死；警察…</a>
+</h2>
+<p>【全国总动员】领导负责在新闻发布会上丢丑；媒体负责颂死；警察负责盯死者家属；规划局负责保密，宣传部负责删帖，环保局负责宣布空气质量没问题；相比之下还是老百姓的任务艰巨些，同时负责挨炸、感动、捐款、祈福和担心下次再挨炸。</p>
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3876977544812980" target="freeweibo-mirror">#曼谷市中心爆炸#现场图片慎入！己打码！[蜡烛][蜡烛][蜡…</a>
 </h2>
 <p>#曼谷市中心爆炸#现场图片慎入！己打码！[蜡烛][蜡烛][蜡烛]<br><img src="http://ww3.sinaimg.cn/large/74b78850gw1ev61thn548j20k00ovgoi.jpg"></p>
-<p>
-	<small> ============== 11小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3876969894389717" target="freeweibo-mirror">[哈哈]//@青岛薛原:转发微博</a>
-</h2>
-<p>[哈哈]//@青岛薛原:转发微博<br><br>RE: “忙着扑灭网络大火”——纽约时报漫画和说明：天津存放剧毒化学品的仓库发生大爆炸，死亡人数已过百，数十人失踪。但社交媒体上，关于事故的质问与批评言论却被迅速删除。 （帕特里克·恰帕特是《国际纽约时报》评论版漫画师。<br><img src="http://ww2.sinaimg.cn/large/74eee4a3gw1ev5zojd3w4j20go0cgwh7.jpg"></p>
 <p>
 	<small> ============== 11小时前</small>
 </p>
