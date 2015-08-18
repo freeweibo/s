@@ -26,11 +26,23 @@
 <p>
 	<small> ============== 1小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3877255325450141" target="freeweibo-mirror">[弱]//@老湿和尚12世: 转发微博</a>
+</h2>
+<p>[弱]//@老湿和尚12世: 转发微博</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3877246802100423" target="freeweibo-mirror">党会完，军队会完，但国家和百姓不会完，长远来看，我们终会幸福…</a>
 </h2>
 <p>党会完，军队会完，但国家和百姓不会完，长远来看，我们终会幸福………</p>
 <p>
 	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3877232709398418" target="freeweibo-mirror">天津官方还嫌丢脸不够吗？ //@隆裕太后:这种做法是错误的，…</a>
+</h2>
+<p>天津官方还嫌丢脸不够吗？ //@隆裕太后:这种做法是错误的，捐款一定要尊重别人的意愿，决不能“逼捐”！不然必定会引起人们的极大反感。“逼捐”实质上就是摊派，这跟苛捐杂税本质上是一样的！希望天津有关部门知错即改，充分尊重教师意愿，绝不强行扣款！<br><br>RE: 事还没处理完就来强制捐款？？？这种自毁政府形象的傻逼事敢不敢少干点？？？@天津发布<br><img src="http://ww2.sinaimg.cn/large/8f1bd71bgw1ev6sj2mxwdj20ax06g74r.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3877209930241392" target="freeweibo-mirror">SPAM 据说，活动是17号的某时间段的某些北京大楼下单那些…</a>
 </h2>
@@ -42,7 +54,7 @@
 </h2>
 <p>→_→//@大唐药王:造谣，这明明是牛奶。你们这些汉奸太可恶了。<br><br>RE: 天津爆炸事故后首次降雨，路面现大量白色泡沫。<br><img src="http://ww3.sinaimg.cn/large/7061c249gw1ev6npojvn4j20zk0nmdlh.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3877179751938313" target="freeweibo-mirror">大家注意@rouying333 //@方糖的想法: 事实胜于…</a>
 </h2>
@@ -125,18 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3877150756879865" target="freeweibo-mirror">怕什么？？疏的优势远大于堵！//@风中楠竹: 次奥，这也实名…</a>
 </h2>
 <p>怕什么？？疏的优势远大于堵！//@风中楠竹: 次奥，这也实名？[汗]//@大鹏看天下: 有道理，吃饭要实名制，拉屎也要实名制，一进一出，谁都不能搞特殊。</p>
-<p>
-	<small> ============== 8小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3877150396393199" target="freeweibo-mirror">SPAM 江湖时代，积重难返，朝朝暮暮，一声叹息。</a>
-</h2>
-<p>SPAM 江湖时代，积重难返，朝朝暮暮，一声叹息。</p>
-<p>
-	<small> ============== 8小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3877145979512961" target="freeweibo-mirror">SPAM 原帖已被删，原帖已被删，原帖已被删。//@苏渝: …</a>
-</h2>
-<p>SPAM 原帖已被删，原帖已被删，原帖已被删。//@苏渝: 实名制吃饭好呀。不占别人便宜。[哈哈]<br><br>RE: 这个是恶搞？还是在造谣？太不像话了！<br><img src="http://ww3.sinaimg.cn/large/72ae17c5gw1ev6idhzbppj20hs0vk77u.jpg"></p>
 <p>
 	<small> ============== 8小时前</small>
 </p>
