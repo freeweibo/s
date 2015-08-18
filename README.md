@@ -126,7 +126,7 @@
 </h2>
 <p>瞧这个流氓无赖  瞧这个流氓无赖 【素质真高】1996年6月24日，马德里。继往开来的领导人与西班牙国王卡洛斯共同检阅禁卫军时，突然拿出随身携带的梳子梳起了头发。一旁的卡洛斯满脸错愕。新闻曝出后，舆论大哗。<br><img src="http://ww2.sinaimg.cn/large/de5c49a5jw1ev72csi88sj20cs0hjdgt.jpg"></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3877287974281979" target="freeweibo-mirror">//@兔子老愚: 剧场中国，被导演戏弄的领导人还自我感觉良好…</a>
 </h2>
