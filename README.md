@@ -26,6 +26,30 @@
 <p>
 	<small> ============== 1小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3877104670724686" target="freeweibo-mirror">一党zhuanzheng是最大的危爆品。//@菲姐-Mate…</a>
+</h2>
+<p>一党zhuanzheng是最大的危爆品。//@菲姐-Maternity: 绝对的权利，绝对的贪腐！//@陈业文新大都: 何时改？还会改么？[抓狂][抓狂]//@隆裕太后:转发微博<br><br>RE: 【无辜民众买单】天津爆炸再次证明，每起事故背后，总能发现贪腐，而为贪腐买单的，总是无辜的民众，说好的把权力关进笼子，然而不幸被关进笼子的，却总是各种真相。不透明的体制，酿造了无数悲剧，要改。<br><img src="http://ww1.sinaimg.cn/large/749bcf09jw1ev6cfd3bkzj21880tc7d3.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3877104444160760" target="freeweibo-mirror">更要命的是祸国殃民啊！[衰]//@菲姐-Maternity:…</a>
+</h2>
+<p>更要命的是祸国殃民啊！[衰]//@菲姐-Maternity:绝对的权利，绝对的贪腐！//@陈业文新大都: 何时改？还会改么？[抓狂][抓狂]//@隆裕太后:转发微博<br><br>RE: 【无辜民众买单】天津爆炸再次证明，每起事故背后，总能发现贪腐，而为贪腐买单的，总是无辜的民众，说好的把权力关进笼子，然而不幸被关进笼子的，却总是各种真相。不透明的体制，酿造了无数悲剧，要改。<br><img src="http://ww1.sinaimg.cn/large/749bcf09jw1ev6cfd3bkzj21880tc7d3.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3877103198191213" target="freeweibo-mirror">//@陈业文新大都:何时改？还会改么？[抓狂][抓狂]//@…</a>
+</h2>
+<p>//@陈业文新大都:何时改？还会改么？[抓狂][抓狂]//@隆裕太后:转发微博<br><br>RE: 【无辜民众买单】天津爆炸再次证明，每起事故背后，总能发现贪腐，而为贪腐买单的，总是无辜的民众，说好的把权力关进笼子，然而不幸被关进笼子的，却总是各种真相。不透明的体制，酿造了无数悲剧，要改。<br><img src="http://ww1.sinaimg.cn/large/749bcf09jw1ev6cfd3bkzj21880tc7d3.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3877096591821428" target="freeweibo-mirror">//@张老汉一世:胡赵时期尚有思想错误和组织错误之别，前者允…</a>
+</h2>
+<p>//@张老汉一世:胡赵时期尚有思想错误和组织错误之别，前者允许，后者不允许，才有真正思想解放。任何人再想禁锢人的思想，那怕在党内，都不可能了，M魔王时代一去不返了。</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3877076329336889" target="freeweibo-mirror">SPAM 回复@洗月亮的:这也不关我事，还那句话，不是每个人…</a>
 </h2>
 <p>SPAM 回复@洗月亮的:这也不关我事，还那句话，不是每个人都狂妄到以为自己真是无所不知、永远没错的大神的 //@洗月亮的:回复@陶短房:我挺感兴趣的，因为我觉得他以前打得假是对的 //@徐天寧:回复@风来云雨生:您在那裡犯噁心可千萬不要來怨我啊，該去做個妊娠尿檢。另外，濃眉大眼也是我的錯啦？</p>
@@ -102,7 +126,7 @@
 </h2>
 <p>“忙着扑灭网络大火”——纽约时报漫画和说明：天津存放剧毒化学品的仓库发生大爆炸，死亡人数已过百，数十人失踪。但社交媒体上，关于事故的质问与批评言论却被迅速删除。 （帕特里克·恰帕特是《国际纽约时报》评论版漫画师。<br><img src="http://ww2.sinaimg.cn/large/74eee4a3gw1ev5zojd3w4j20go0cgwh7.jpg"></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3876907089384268" target="freeweibo-mirror">SPAM 这里就明显看出来养猪业的前景如何了。养猪网的评论就…</a>
 </h2>
@@ -113,30 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3876905918632204" target="freeweibo-mirror">政府长期失职，现场指挥失误。[衰][弱]//@孙老西儿: 金…</a>
 </h2>
 <p>政府长期失职，现场指挥失误。[衰][弱]//@孙老西儿: 金属钠通常保存在煤油里的，遇水产生氢气。消防员应该知道的啊[泪]//@逆风蝴蝶:如果能确认是金属钠遇水爆炸，也希望全国消防都普及一些化学知识。 //@杨锦麟:枉死了那么多年轻战士的生命。</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3876896968580593" target="freeweibo-mirror">这个大老虎恐怕连老王都不敢打//@北京厨子新号: 多少年轻的…</a>
-</h2>
-<p>这个大老虎恐怕连老王都不敢打//@北京厨子新号: 多少年轻的战士死于瞒报？这事儿不抓个大老虎出来，那么打老虎还有什么实际意义？ //@梦晨伤:[蜡烛]敬那些本不该逝去的年轻生命[悲伤]……我们现在能清楚地明白，他们，原本是不该死的……那么，该死的是谁？？！！！[怒骂]</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3876893851832329" target="freeweibo-mirror">SPAM 跟贴除了网易也没谁了</a>
-</h2>
-<p>SPAM 跟贴除了网易也没谁了<br><br>RE: #热门跟贴# 大爷，大爷，你幸福不？<br><img src="http://ww4.sinaimg.cn/large/75b52ed2jw1ev5s1o2g0bj20c81x5q6y.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3876892345865244" target="freeweibo-mirror">#热门跟贴# 大爷，大爷，你幸福不？</a>
-</h2>
-<p>#热门跟贴# 大爷，大爷，你幸福不？<br><img src="http://ww4.sinaimg.cn/large/75b52ed2jw1ev5s1o2g0bj20c81x5q6y.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3876891583000157" target="freeweibo-mirror">//@杨锦麟:枉死了那么多年轻战士的生命。</a>
-</h2>
-<p>//@杨锦麟:枉死了那么多年轻战士的生命。</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
