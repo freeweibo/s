@@ -36,7 +36,7 @@
 </h2>
 <p>一党zhuanzheng是最大的危爆品。//@菲姐-Maternity: 绝对的权利，绝对的贪腐！//@陈业文新大都: 何时改？还会改么？[抓狂][抓狂]//@隆裕太后:转发微博<br><br>RE: 【无辜民众买单】天津爆炸再次证明，每起事故背后，总能发现贪腐，而为贪腐买单的，总是无辜的民众，说好的把权力关进笼子，然而不幸被关进笼子的，却总是各种真相。不透明的体制，酿造了无数悲剧，要改。<br><img src="http://ww1.sinaimg.cn/large/749bcf09jw1ev6cfd3bkzj21880tc7d3.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3877104444160760" target="freeweibo-mirror">更要命的是祸国殃民啊！[衰]//@菲姐-Maternity:…</a>
 </h2>
@@ -126,7 +126,7 @@
 </h2>
 <p>//@小杨哥JKY://@徐凤文:本镇，终于走出天津、走向世界、宇宙香烟、誉满全球了。<br><br>RE: “忙着扑灭网络大火”——纽约时报漫画和说明：天津存放剧毒化学品的仓库发生大爆炸，死亡人数已过百，数十人失踪。但社交媒体上，关于事故的质问与批评言论却被迅速删除。 （帕特里克·恰帕特是《国际纽约时报》评论版漫画师。<br><img src="http://ww2.sinaimg.cn/large/74eee4a3gw1ev5zojd3w4j20go0cgwh7.jpg"></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3876967332411313" target="freeweibo-mirror">由此可见，时至今日，美帝亡我之心不死！可是，我们某些官员也太…</a>
 </h2>
