@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3877268365313045" target="freeweibo-mirror">//@天亮了gg: //@一品泥人V://@老杜微评://@…</a>
+</h2>
+<p>//@天亮了gg: //@一品泥人V://@老杜微评://@段贵发: //@豆名阳:提议国家得出最少上百亿救助：并追责到底否则；人民一分钱也不要出！ //@酒神老高站南方:这钱是不是该用组织的党费支付啊？<br><br>RE: 对于国外，中国高层嘴巴哒哒就成百上千亿资金捐助，对内人民被炸的尸横遍野，家破人亡。政府咬破嘴巴，才每户政府补贴6干元一户。权力被高层滥用到极至，人民何以安身。[怒]<br><img src="http://ww4.sinaimg.cn/large/a387f7fcjw1ev6r8y2ilnj20hs0qo423.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3877255518078292" target="freeweibo-mirror">找李中堂大人啊！</a>
 </h2>
 <p>找李中堂大人啊！</p>
@@ -114,7 +120,7 @@
 </h2>
 <p>关注水污染程度//@郑维:前线的救援人员和记者一定要做好防护工作<br><br>RE: 天津爆炸事故后首次降雨，路面现大量白色泡沫。<br><img src="http://ww3.sinaimg.cn/large/7061c249gw1ev6npojvn4j20zk0nmdlh.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3877168067278878" target="freeweibo-mirror">天津爆炸事故后首次降雨，路面现大量白色泡沫。</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3877167043887253" target="freeweibo-mirror">回复@宏风王:[赞] //@宏风王:一个人能裹挟起整个国家、…</a>
 </h2>
 <p>回复@宏风王:[赞] //@宏风王:一个人能裹挟起整个国家、整个民族颠倒疯狂整十年，这不仅仅靠他的能耐，更有深厚的历史背景和文化土壤来支撑、滋润。<br><br>RE: 大幕彻底拉开，疯狂推向极致。49年前今天的那个狂欢，罪恶成为正义，红色恐怖升级。8.18与红八月，半个世纪后还有几个人记得。<br><img src="http://ww3.sinaimg.cn/large/787d0e21jw1ev6ms3bdmbj206r04cwek.jpg"></p>
-<p>
-	<small> ============== 8小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3877166078858581" target="freeweibo-mirror">[吃惊] //@烈血悍将:[吃惊]</a>
-</h2>
-<p>[吃惊] //@烈血悍将:[吃惊]<br><br>RE: 问题可能比想象的严重，这绝非危言耸听。1984年12月3曰印度博帕尔玛化工厂氰化物泄露25000人直接致死，55万人间致死，20多万人永久致残。<br><img src="http://ww1.sinaimg.cn/large/a5f7e7f3jw1ev6cw98xl9j20c806vt9x.jpg"></p>
 <p>
 	<small> ============== 8小时前</small>
 </p>
