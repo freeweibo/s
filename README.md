@@ -38,6 +38,18 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3877319536216882" target="freeweibo-mirror">//@闵玉平: 俺们村的大队书记进城也随身带把梳子。 //@…</a>
+</h2>
+<p>//@闵玉平: 俺们村的大队书记进城也随身带把梳子。 //@彭园v:[吐]<br><br>RE: 瞧这个流氓无赖  瞧这个流氓无赖 【素质真高】1996年6月24日，马德里。继往开来的领导人与西班牙国王卡洛斯共同检阅禁卫军时，突然拿出随身携带的梳子梳起了头发。一旁的卡洛斯满脸错愕。新闻曝出后，舆论大哗。<br><img src="http://ww2.sinaimg.cn/large/de5c49a5jw1ev72csi88sj20cs0hjdgt.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3877314858983586" target="freeweibo-mirror">要保证不垮台，到底还有多少“栋梁”可断？</a>
+</h2>
+<p>要保证不垮台，到底还有多少“栋梁”可断？<br><br>RE: 天津港大爆炸，国难当头，总理从朝中钦点一名贪官前去调查。这戏演得太别扭，小强脸都被打黑了。[挖鼻]</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3877301844007517" target="freeweibo-mirror">同志们！我们可不能只看见红旗飘，看不见敌人在磨刀哇！大家看看…</a>
 </h2>
 <p>同志们！我们可不能只看见红旗飘，看不见敌人在磨刀哇！大家看看！这就是冲着五星红旗来的啊！斗争形势险峻啊！同志们！</p>
@@ -60,7 +72,7 @@
 </h2>
 <p>//@天亮了gg: //@一品泥人V://@老杜微评://@段贵发: //@豆名阳:提议国家得出最少上百亿救助：并追责到底否则；人民一分钱也不要出！ //@酒神老高站南方:这钱是不是该用组织的党费支付啊？<br><br>RE: 对于国外，中国高层嘴巴哒哒就成百上千亿资金捐助，对内人民被炸的尸横遍野，家破人亡。政府咬破嘴巴，才每户政府补贴6干元一户。权力被高层滥用到极至，人民何以安身。[怒]<br><img src="http://ww4.sinaimg.cn/large/a387f7fcjw1ev6r8y2ilnj20hs0qo423.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3877259305865084" target="freeweibo-mirror">//@妮可郡主:瘟神！//@滨海闲人01: //@一般人我不…</a>
 </h2>
@@ -125,18 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3877189332752013" target="freeweibo-mirror">“开枪！开枪！开枪！” “往头打” “好！好！好！” “大伙…</a>
 </h2>
 <p>“开枪！开枪！开枪！” “往头打” “好！好！好！” “大伙都看着了，是不是？”http://t.cn/RL3GJ05</p>
-<p>
-	<small> ============== 11小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3877185838501489" target="freeweibo-mirror">→_→//@大唐药王:造谣，这明明是牛奶。你们这些汉奸太可恶…</a>
-</h2>
-<p>→_→//@大唐药王:造谣，这明明是牛奶。你们这些汉奸太可恶了。<br><br>RE: 天津爆炸事故后首次降雨，路面现大量白色泡沫。<br><img src="http://ww3.sinaimg.cn/large/7061c249gw1ev6npojvn4j20zk0nmdlh.jpg"></p>
-<p>
-	<small> ============== 11小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3877179751938313" target="freeweibo-mirror">大家注意@rouying333 //@方糖的想法: 事实胜于…</a>
-</h2>
-<p>大家注意@rouying333 //@方糖的想法: 事实胜于雄辩，请大家也要多注意！//@北京人不知道的北京事儿:转发微博<br><br>RE: 天津爆炸事故后首次降雨，路面现大量白色泡沫。<br><img src="http://ww3.sinaimg.cn/large/7061c249gw1ev6npojvn4j20zk0nmdlh.jpg"></p>
 <p>
 	<small> ============== 11小时前</small>
 </p>
