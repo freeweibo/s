@@ -42,7 +42,7 @@
 </h2>
 <p>//@天亮了gg: //@一品泥人V://@老杜微评://@段贵发: //@豆名阳:提议国家得出最少上百亿救助：并追责到底否则；人民一分钱也不要出！ //@酒神老高站南方:这钱是不是该用组织的党费支付啊？<br><br>RE: 对于国外，中国高层嘴巴哒哒就成百上千亿资金捐助，对内人民被炸的尸横遍野，家破人亡。政府咬破嘴巴，才每户政府补贴6干元一户。权力被高层滥用到极至，人民何以安身。[怒]<br><img src="http://ww4.sinaimg.cn/large/a387f7fcjw1ev6r8y2ilnj20hs0qo423.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3877259305865084" target="freeweibo-mirror">//@妮可郡主:瘟神！//@滨海闲人01: //@一般人我不…</a>
 </h2>
@@ -126,19 +126,19 @@
 </h2>
 <p>//@新京报:转发微博<br><br>RE: 天津爆炸事故后首次降雨，路面现大量白色泡沫。<br><img src="http://ww3.sinaimg.cn/large/7061c249gw1ev6npojvn4j20zk0nmdlh.jpg"></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3877177932325576" target="freeweibo-mirror">//@Hermann中国零售微博:可怕[衰][衰][衰] /…</a>
 </h2>
 <p>//@Hermann中国零售微博:可怕[衰][衰][衰] //@曲子叶:生命重于一切……//@范剑平:这是滨海新区还是天津市区？ //@George-瓜瓜:有人说要一辈子离开天津了 //@刘芮东:远离<br><br>RE: 天津爆炸事故后首次降雨，路面现大量白色泡沫。<br><img src="http://ww3.sinaimg.cn/large/7061c249gw1ev6npojvn4j20zk0nmdlh.jpg"></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3877177831614947" target="freeweibo-mirror">//@凌星在田野: 转发微博</a>
 </h2>
 <p>//@凌星在田野: 转发微博</p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p>
 <table>
     <tr>
