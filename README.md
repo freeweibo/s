@@ -96,7 +96,7 @@
 </h2>
 <p>回复@宏风王:[赞] //@宏风王:一个人能裹挟起整个国家、整个民族颠倒疯狂整十年，这不仅仅靠他的能耐，更有深厚的历史背景和文化土壤来支撑、滋润。<br><br>RE: 大幕彻底拉开，疯狂推向极致。49年前今天的那个狂欢，罪恶成为正义，红色恐怖升级。8.18与红八月，半个世纪后还有几个人记得。<br><img src="http://ww3.sinaimg.cn/large/787d0e21jw1ev6ms3bdmbj206r04cwek.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3877166078858581" target="freeweibo-mirror">[吃惊] //@烈血悍将:[吃惊]</a>
 </h2>
