@@ -42,19 +42,19 @@
 </h2>
 <p>党会完，军队会完，但国家和百姓不会完，长远来看，我们终会幸福………</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3877232709398418" target="freeweibo-mirror">天津官方还嫌丢脸不够吗？ //@隆裕太后:这种做法是错误的，…</a>
 </h2>
 <p>天津官方还嫌丢脸不够吗？ //@隆裕太后:这种做法是错误的，捐款一定要尊重别人的意愿，决不能“逼捐”！不然必定会引起人们的极大反感。“逼捐”实质上就是摊派，这跟苛捐杂税本质上是一样的！希望天津有关部门知错即改，充分尊重教师意愿，绝不强行扣款！<br><br>RE: 事还没处理完就来强制捐款？？？这种自毁政府形象的傻逼事敢不敢少干点？？？@天津发布<br><img src="http://ww2.sinaimg.cn/large/8f1bd71bgw1ev6sj2mxwdj20ax06g74r.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3877232567558088" target="freeweibo-mirror">SPAM 彻底剿灭公知恐怖分子//@洋溢天空: 击毙的好//…</a>
 </h2>
 <p>SPAM 彻底剿灭公知恐怖分子//@洋溢天空: 击毙的好//@鸟市汉人:啥时候的事情？//@骑牛的马夫司机：地址是河南省郑州市管城区十八里河镇刘湾村！三名不明身份的公知！应该是一些暴力分子！警察当场击毙一名！逃跑两名！<br><br>RE: “开枪！开枪！开枪！” “往头打” “好！好！好！” “大伙都看着了，是不是？”http://t.cn/RL3GJ05</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3877210018400690" target="freeweibo-mirror">事还没处理完就来强制捐款？？？这种自毁政府形象的傻逼事敢不敢…</a>
 </h2>
@@ -108,13 +108,13 @@
 </h2>
 <p>这是滨海新区还是天津市区？ //@George-瓜瓜:有人说要一辈子离开天津了 //@刘芮东:远离<br><br>RE: 天津爆炸事故后首次降雨，路面现大量白色泡沫。<br><img src="http://ww3.sinaimg.cn/large/7061c249gw1ev6npojvn4j20zk0nmdlh.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3877171431163334" target="freeweibo-mirror">敏感的消息一定要交代清楚，比如“路面”的具体位置//@五岳散…</a>
 </h2>
 <p>敏感的消息一定要交代清楚，比如“路面”的具体位置//@五岳散人: 洗衣粉……<br><br>RE: 天津爆炸事故后首次降雨，路面现大量白色泡沫。<br><img src="http://ww3.sinaimg.cn/large/7061c249gw1ev6npojvn4j20zk0nmdlh.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3877168737811821" target="freeweibo-mirror">关注水污染程度//@郑维:前线的救援人员和记者一定要做好防护…</a>
 </h2>
