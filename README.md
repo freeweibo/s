@@ -72,7 +72,7 @@
 </h2>
 <p>关注水污染程度//@郑维:前线的救援人员和记者一定要做好防护工作<br><br>RE: 天津爆炸事故后首次降雨，路面现大量白色泡沫。<br><img src="http://ww3.sinaimg.cn/large/7061c249gw1ev6npojvn4j20zk0nmdlh.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3877168067278878" target="freeweibo-mirror">天津爆炸事故后首次降雨，路面现大量白色泡沫。</a>
 </h2>
