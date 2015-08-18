@@ -96,7 +96,7 @@
 </h2>
 <p>[吃惊] //@烈血悍将:[吃惊]<br><br>RE: 问题可能比想象的严重，这绝非危言耸听。1984年12月3曰印度博帕尔玛化工厂氰化物泄露25000人直接致死，55万人间致死，20多万人永久致残。<br><img src="http://ww1.sinaimg.cn/large/a5f7e7f3jw1ev6cw98xl9j20c806vt9x.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3877164530809872" target="freeweibo-mirror">SPAM 【农民工讨要四万工钱遭刁难：喝一杯给20 】民工被…</a>
 </h2>
@@ -114,13 +114,13 @@
 </h2>
 <p>怕什么？？疏的优势远大于堵！//@风中楠竹: 次奥，这也实名？[汗]//@大鹏看天下: 有道理，吃饭要实名制，拉屎也要实名制，一进一出，谁都不能搞特殊。</p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3877150396393199" target="freeweibo-mirror">SPAM 江湖时代，积重难返，朝朝暮暮，一声叹息。</a>
 </h2>
 <p>SPAM 江湖时代，积重难返，朝朝暮暮，一声叹息。</p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3877145979512961" target="freeweibo-mirror">SPAM 原帖已被删，原帖已被删，原帖已被删。//@苏渝: …</a>
 </h2>
