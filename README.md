@@ -36,19 +36,19 @@
 </h2>
 <p>//@新京报:转发微博<br><br>RE: 天津爆炸事故后首次降雨，路面现大量白色泡沫。<br><img src="http://ww3.sinaimg.cn/large/7061c249gw1ev6npojvn4j20zk0nmdlh.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3877177932325576" target="freeweibo-mirror">//@Hermann中国零售微博:可怕[衰][衰][衰] /…</a>
 </h2>
 <p>//@Hermann中国零售微博:可怕[衰][衰][衰] //@曲子叶:生命重于一切……//@范剑平:这是滨海新区还是天津市区？ //@George-瓜瓜:有人说要一辈子离开天津了 //@刘芮东:远离<br><br>RE: 天津爆炸事故后首次降雨，路面现大量白色泡沫。<br><img src="http://ww3.sinaimg.cn/large/7061c249gw1ev6npojvn4j20zk0nmdlh.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3877177831614947" target="freeweibo-mirror">//@凌星在田野: 转发微博</a>
 </h2>
 <p>//@凌星在田野: 转发微博</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3877171439249553" target="freeweibo-mirror">这是滨海新区还是天津市区？ //@George-瓜瓜:有人说…</a>
 </h2>
@@ -59,6 +59,12 @@
 	<a href="https://freeweibo.com/weibo/3877171431163334" target="freeweibo-mirror">敏感的消息一定要交代清楚，比如“路面”的具体位置//@五岳散…</a>
 </h2>
 <p>敏感的消息一定要交代清楚，比如“路面”的具体位置//@五岳散人: 洗衣粉……<br><br>RE: 天津爆炸事故后首次降雨，路面现大量白色泡沫。<br><img src="http://ww3.sinaimg.cn/large/7061c249gw1ev6npojvn4j20zk0nmdlh.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3877168737811821" target="freeweibo-mirror">关注水污染程度//@郑维:前线的救援人员和记者一定要做好防护…</a>
+</h2>
+<p>关注水污染程度//@郑维:前线的救援人员和记者一定要做好防护工作<br><br>RE: 天津爆炸事故后首次降雨，路面现大量白色泡沫。<br><img src="http://ww3.sinaimg.cn/large/7061c249gw1ev6npojvn4j20zk0nmdlh.jpg"></p>
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3877143534350598" target="freeweibo-mirror">SPAM 健身这事儿一定要科学，该增肌一定不要含糊，该减脂也…</a>
 </h2>
 <p>SPAM 健身这事儿一定要科学，该增肌一定不要含糊，该减脂也别停下，轻断食这个概念很好，排和补同时进行，Pro juice也是拼的，没有任何的不舒服，推荐大家都试试[鼓掌][鼓掌][鼓掌]@余声707<br><img src="http://ww4.sinaimg.cn/large/647a4d33jw1ev6jpqc935j20dc0hsq4u.jpg"></p>
-<p>
-	<small> ============== 5小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3877141261499376" target="freeweibo-mirror">中枢重臣//@郑维: 先帝欲封禅于泰山，时齐鲁郡守封山，以八…</a>
-</h2>
-<p>中枢重臣//@郑维: 先帝欲封禅于泰山，时齐鲁郡守封山，以八抬大轿送。上大悦，擢入中枢。</p>
 <p>
 	<small> ============== 5小时前</small>
 </p>
