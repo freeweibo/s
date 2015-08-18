@@ -68,6 +68,12 @@
 <p>
 	<small> ============== 5小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3877201189576151" target="freeweibo-mirror">对于国外，中国高层嘴巴哒哒就成百上千亿资金捐助，对内人民被炸…</a>
+</h2>
+<p>对于国外，中国高层嘴巴哒哒就成百上千亿资金捐助，对内人民被炸的尸横遍野，家破人亡。政府咬破嘴巴，才每户政府补贴6干元一户。权力被高层滥用到极至，人民何以安身。[怒]<br><img src="http://ww4.sinaimg.cn/large/a387f7fcjw1ev6r8y2ilnj20hs0qo423.jpg"></p>
+<p>
+	<small> ============== 6小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3877189332752013" target="freeweibo-mirror">“开枪！开枪！开枪！” “往头打” “好！好！好！” “大伙…</a>
 </h2>
 <p>“开枪！开枪！开枪！” “往头打” “好！好！好！” “大伙都看着了，是不是？”http://t.cn/RL3GJ05</p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3877167727330259" target="freeweibo-mirror">SPAM 是祭天神像，还是驱邪祛魔的佩饰？这件名为“翁仲”的…</a>
 </h2>
 <p>SPAM 是祭天神像，还是驱邪祛魔的佩饰？这件名为“翁仲”的玉人其人其事及作此像的背后用意是什么？现场嘉宾有怎样的热烈交锋，更多精彩，请关注北京卫视《天下收藏》每周日13:06分高古玉专场！<br><img src="http://ww3.sinaimg.cn/large/713aea19jw1ev6nnq7u9sj21jk15odn0.jpg"></p>
-<p>
-	<small> ============== 8小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3877167043887253" target="freeweibo-mirror">回复@宏风王:[赞] //@宏风王:一个人能裹挟起整个国家、…</a>
-</h2>
-<p>回复@宏风王:[赞] //@宏风王:一个人能裹挟起整个国家、整个民族颠倒疯狂整十年，这不仅仅靠他的能耐，更有深厚的历史背景和文化土壤来支撑、滋润。<br><br>RE: 大幕彻底拉开，疯狂推向极致。49年前今天的那个狂欢，罪恶成为正义，红色恐怖升级。8.18与红八月，半个世纪后还有几个人记得。<br><img src="http://ww3.sinaimg.cn/large/787d0e21jw1ev6ms3bdmbj206r04cwek.jpg"></p>
 <p>
 	<small> ============== 8小时前</small>
 </p>
