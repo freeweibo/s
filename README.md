@@ -62,6 +62,12 @@
 <p>
 	<small> ============== 5小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3877189332752013" target="freeweibo-mirror">“开枪！开枪！开枪！” “往头打” “好！好！好！” “大伙…</a>
+</h2>
+<p>“开枪！开枪！开枪！” “往头打” “好！好！好！” “大伙都看着了，是不是？”http://t.cn/RL3GJ05</p>
+<p>
+	<small> ============== 6小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3877185838501489" target="freeweibo-mirror">→_→//@大唐药王:造谣，这明明是牛奶。你们这些汉奸太可恶…</a>
 </h2>
 <p>→_→//@大唐药王:造谣，这明明是牛奶。你们这些汉奸太可恶了。<br><br>RE: 天津爆炸事故后首次降雨，路面现大量白色泡沫。<br><img src="http://ww3.sinaimg.cn/large/7061c249gw1ev6npojvn4j20zk0nmdlh.jpg"></p>
@@ -114,13 +120,13 @@
 </h2>
 <p>天津爆炸事故后首次降雨，路面现大量白色泡沫。<br><img src="http://ww3.sinaimg.cn/large/7061c249gw1ev6npojvn4j20zk0nmdlh.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3877167727330259" target="freeweibo-mirror">SPAM 是祭天神像，还是驱邪祛魔的佩饰？这件名为“翁仲”的…</a>
 </h2>
 <p>SPAM 是祭天神像，还是驱邪祛魔的佩饰？这件名为“翁仲”的玉人其人其事及作此像的背后用意是什么？现场嘉宾有怎样的热烈交锋，更多精彩，请关注北京卫视《天下收藏》每周日13:06分高古玉专场！<br><img src="http://ww3.sinaimg.cn/large/713aea19jw1ev6nnq7u9sj21jk15odn0.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3877167043887253" target="freeweibo-mirror">回复@宏风王:[赞] //@宏风王:一个人能裹挟起整个国家、…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3877166078858581" target="freeweibo-mirror">[吃惊] //@烈血悍将:[吃惊]</a>
 </h2>
 <p>[吃惊] //@烈血悍将:[吃惊]<br><br>RE: 问题可能比想象的严重，这绝非危言耸听。1984年12月3曰印度博帕尔玛化工厂氰化物泄露25000人直接致死，55万人间致死，20多万人永久致残。<br><img src="http://ww1.sinaimg.cn/large/a5f7e7f3jw1ev6cw98xl9j20c806vt9x.jpg"></p>
-<p>
-	<small> ============== 8小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3877164530809872" target="freeweibo-mirror">SPAM 【农民工讨要四万工钱遭刁难：喝一杯给20 】民工被…</a>
-</h2>
-<p>SPAM 【农民工讨要四万工钱遭刁难：喝一杯给20 】民工被灌醉了，俺也是醉了！ http://t.cn/RLg7iVP<br><img src="http://ww3.sinaimg.cn/large/53e839d2jw1ev6nb27m0mj2076076t91.jpg"></p>
 <p>
 	<small> ============== 8小时前</small>
 </p>
