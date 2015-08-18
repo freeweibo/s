@@ -24,7 +24,7 @@
 </h2>
 <p>同志们！我们可不能只看见红旗飘，看不见敌人在磨刀哇！大家看看！这就是冲着五星红旗来的啊！斗争形势险峻啊！同志们！</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3877287974281979" target="freeweibo-mirror">//@兔子老愚: 剧场中国，被导演戏弄的领导人还自我感觉良好…</a>
 </h2>
@@ -54,7 +54,7 @@
 </h2>
 <p>找李中堂大人啊！</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3877255325450141" target="freeweibo-mirror">[弱]//@老湿和尚12世: 转发微博</a>
 </h2>
