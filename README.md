@@ -20,6 +20,18 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3877137054273406" target="freeweibo-mirror">人民需要真相 http://t.cn/RLgciaD</a>
+</h2>
+<p>人民需要真相 http://t.cn/RLgciaD</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3877135695575051" target="freeweibo-mirror">右边，我仅仅因为“跪舔老邓”的言论就应该被挂路灯？//@ki…</a>
+</h2>
+<p>右边，我仅仅因为“跪舔老邓”的言论就应该被挂路灯？//@killhand-AK47: 严教授被挂路灯的那一天，我一定要放一挂一万响鞭炮。此贴为证。 //@核平脂拿://@破事又来了哈: 其实一个问题 严峰何时挂路灯//@路上的仟毛:此人还恬不知耻跪舔老邓，称其为中国人民立大功云云。在这些典型的无脊椎支那高知<br><br>RE: 今天看到大家都在温情脉脉地笑怀长者。这么说吧，老邓选的人，肯定是有些道理的。</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3877121673740807" target="freeweibo-mirror">哎，无语了</a>
 </h2>
 <p>哎，无语了<br><br>RE: 【良子直播】曾经农民焚烧秸秆他们不让，说监测到环境重度污染；过年然放鞭炮他们不让，说监测到环境重度污染；就连马路边烧烤他们都不让，说污染环境，今日塘沽来了一个百年不遇的化学有害物大爆炸，到处监测都特么的正常，我就纳了闷了，这特么炸的是空气清新剂呀！对得起逝者和英勇的消防官兵么？<br><img src="http://ww3.sinaimg.cn/large/c4cc850egw1ev6i9ez3c4j20c80c8myp.jpg"></p>
@@ -30,7 +42,7 @@
 </h2>
 <p>敌对势力昨天猖狂，今天怎么还猖狂？<br><br>RE: 拉脱维亚、立陶宛、波兰、爱沙尼亚、格鲁吉亚等前社会主义兄弟国家均通过立法规定：将共产主义和法西斯主义并列为国家必须彻底清除的对象。前社会主义兄弟国家匈牙利亦通过立法规定：禁止为共产主义犯罪和纳粹主义犯罪翻案，如果谁敢否认共产主义和法西斯有罪，将被处以1~3年监禁。——这是什么情况？<br><img src="http://ww4.sinaimg.cn/large/0065PJHXjw1ev5za2825yj308c0503yo.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3877106599263221" target="freeweibo-mirror">都和德国有关。[抓狂]//@作家东海:[最右] //@麒哥归…</a>
 </h2>
@@ -84,7 +96,7 @@
 </h2>
 <p>[怒] //@楊康令://@隆裕太后:转发微博<br><br>RE: 【无辜民众买单】天津爆炸再次证明，每起事故背后，总能发现贪腐，而为贪腐买单的，总是无辜的民众，说好的把权力关进笼子，然而不幸被关进笼子的，却总是各种真相。不透明的体制，酿造了无数悲剧，要改。<br><img src="http://ww1.sinaimg.cn/large/749bcf09jw1ev6cfd3bkzj21880tc7d3.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3877076329336889" target="freeweibo-mirror">SPAM 回复@洗月亮的:这也不关我事，还那句话，不是每个人…</a>
 </h2>
@@ -127,18 +139,6 @@
 <p>SPAM 哈哈哈 //@Jonathan测试版:宝蛤姐深夜放大招！</p>
 <p>
 	<small> ============== 10小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3876983543293688" target="freeweibo-mirror">SPAM 好复杂//@2885542665_856: 脑子有…</a>
-</h2>
-<p>SPAM 好复杂//@2885542665_856: 脑子有点乱，慢慢理理:王丽的胞妹与曾伟的曾家有关系，黎亮与小琳的李家有牵连，黎亮与王丽是夫妻，可是，这黎亮和王丽又是哪路的妖精？<br><br>RE: 原来如此</p>
-<p>
-	<small> ============== 11小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3876977544812980" target="freeweibo-mirror">#曼谷市中心爆炸#现场图片慎入！己打码！[蜡烛][蜡烛][蜡…</a>
-</h2>
-<p>#曼谷市中心爆炸#现场图片慎入！己打码！[蜡烛][蜡烛][蜡烛]<br><img src="http://ww3.sinaimg.cn/large/74b78850gw1ev61thn548j20k00ovgoi.jpg"></p>
-<p>
-	<small> ============== 11小时前</small>
 </p>
 <table>
     <tr>
