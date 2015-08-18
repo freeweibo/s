@@ -24,7 +24,7 @@
 </h2>
 <p>找李中堂大人啊！</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3877255325450141" target="freeweibo-mirror">[弱]//@老湿和尚12世: 转发微博</a>
 </h2>
@@ -132,7 +132,7 @@
 </h2>
 <p>[吃惊] //@烈血悍将:[吃惊]<br><br>RE: 问题可能比想象的严重，这绝非危言耸听。1984年12月3曰印度博帕尔玛化工厂氰化物泄露25000人直接致死，55万人间致死，20多万人永久致残。<br><img src="http://ww1.sinaimg.cn/large/a5f7e7f3jw1ev6cw98xl9j20c806vt9x.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3877164530809872" target="freeweibo-mirror">SPAM 【农民工讨要四万工钱遭刁难：喝一杯给20 】民工被…</a>
 </h2>
