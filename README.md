@@ -96,7 +96,7 @@
 </h2>
 <p>【无辜民众买单】天津爆炸再次证明，每起事故背后，总能发现贪腐，而为贪腐买单的，总是无辜的民众，说好的把权力关进笼子，然而不幸被关进笼子的，却总是各种真相。不透明的体制，酿造了无数悲剧，要改。<br><img src="http://ww1.sinaimg.cn/large/749bcf09jw1ev6cfd3bkzj21880tc7d3.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3877008385405118" target="freeweibo-mirror">SPAM //@渔夫转播://@皮尔当人: //@亮剑兄来了…</a>
 </h2>
