@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3877167727330259" target="freeweibo-mirror">SPAM 是祭天神像，还是驱邪祛魔的佩饰？这件名为“翁仲”的…</a>
+</h2>
+<p>SPAM 是祭天神像，还是驱邪祛魔的佩饰？这件名为“翁仲”的玉人其人其事及作此像的背后用意是什么？现场嘉宾有怎样的热烈交锋，更多精彩，请关注北京卫视《天下收藏》每周日13:06分高古玉专场！<br><img src="http://ww3.sinaimg.cn/large/713aea19jw1ev6nnq7u9sj21jk15odn0.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3877167043887253" target="freeweibo-mirror">回复@宏风王:[赞] //@宏风王:一个人能裹挟起整个国家、…</a>
 </h2>
 <p>回复@宏风王:[赞] //@宏风王:一个人能裹挟起整个国家、整个民族颠倒疯狂整十年，这不仅仅靠他的能耐，更有深厚的历史背景和文化土壤来支撑、滋润。<br><br>RE: 大幕彻底拉开，疯狂推向极致。49年前今天的那个狂欢，罪恶成为正义，红色恐怖升级。8.18与红八月，半个世纪后还有几个人记得。<br><img src="http://ww3.sinaimg.cn/large/787d0e21jw1ev6ms3bdmbj206r04cwek.jpg"></p>
@@ -108,7 +114,7 @@
 </h2>
 <p>SPAM 热烈祝贺北京实现吃饭实名制！<br><img src="http://ww2.sinaimg.cn/large/48bd8a32gw1ev6irqlsbgj20e60iwmzm.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3877121686195236" target="freeweibo-mirror">这个是恶搞？还是在造谣？太不像话了！</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3877113692144078" target="freeweibo-mirror">张雪忠：天津爆炸事件本是政治腐败和政府失职的结果，但一些毗邻…</a>
 </h2>
 <p>张雪忠：天津爆炸事件本是政治腐败和政府失职的结果，但一些毗邻业主在吁请政府回购房屋时，仍要举着＂爱党、信政府＂的标语。为实现自身诉求，不惜违心地奉承权势，将祸根称为救赎，这种没有原则和是非的表达，偶尔或可谋得个别的好处，却永远不能达至普遍的公正，大家仍将依次沦为专横权力的牺牲品。<br><img src="http://ww4.sinaimg.cn/large/d947f6e9jw1ev6hgojox5j20be0domy8.jpg"></p>
-<p>
-	<small> ============== 5小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3877110248564270" target="freeweibo-mirror">握草！舔菊到这种程度！</a>
-</h2>
-<p>握草！舔菊到这种程度！<br><br>RE: 【历史不是小姑娘，你想咋样就咋样】这组海报共有4幅，斯大林、罗斯福、丘吉尔、毛泽东的形象分别很突出地印在上面，而参加开罗会议的蒋介石却未出现。网友质疑这样的海报暗示毛泽东参加了开罗会议，而蒋介石没有去。舆论的不满声不绝于耳。 http://t.cn/RLdsEnz</p>
 <p>
 	<small> ============== 5小时前</small>
 </p>
