@@ -54,7 +54,7 @@
 </h2>
 <p>回复@宏风王:[赞] //@宏风王:一个人能裹挟起整个国家、整个民族颠倒疯狂整十年，这不仅仅靠他的能耐，更有深厚的历史背景和文化土壤来支撑、滋润。<br><br>RE: 大幕彻底拉开，疯狂推向极致。49年前今天的那个狂欢，罪恶成为正义，红色恐怖升级。8.18与红八月，半个世纪后还有几个人记得。<br><img src="http://ww3.sinaimg.cn/large/787d0e21jw1ev6ms3bdmbj206r04cwek.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3877166078858581" target="freeweibo-mirror">[吃惊] //@烈血悍将:[吃惊]</a>
 </h2>
@@ -120,13 +120,13 @@
 </h2>
 <p>人民需要真相 http://t.cn/RLgciaD</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3877136970242452" target="freeweibo-mirror">SPAM 偶靠！[巨汗]//@十月的枫叶林://@枫林秋色2…</a>
 </h2>
 <p>SPAM 偶靠！[巨汗]//@十月的枫叶林://@枫林秋色2008:[哈哈][哈哈]//@心儿煮浪浪: [哈哈][笑cry][笑cry]//@我的天空谁的城--:[笑cry][笑cry]都打肿了！//@我看青山多妩媚W2:[挖鼻]木護照，一口苕国腔又跟人掰扯不清。[生病]//@红尘有缺的世界:[哈哈]</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3877135695575051" target="freeweibo-mirror">右边，我仅仅因为“跪舔老邓”的言论就应该被挂路灯？//@ki…</a>
 </h2>
