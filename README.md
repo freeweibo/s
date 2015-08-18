@@ -138,7 +138,7 @@
 </h2>
 <p>大幕彻底拉开，疯狂推向极致。49年前今天的那个狂欢，罪恶成为正义，红色恐怖升级。8.18与红八月，半个世纪后还有几个人记得。<br><img src="http://ww3.sinaimg.cn/large/787d0e21jw1ev6ms3bdmbj206r04cwek.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p>
 <table>
     <tr>
