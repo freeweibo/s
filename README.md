@@ -20,6 +20,24 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3877167043887253" target="freeweibo-mirror">回复@宏风王:[赞] //@宏风王:一个人能裹挟起整个国家、…</a>
+</h2>
+<p>回复@宏风王:[赞] //@宏风王:一个人能裹挟起整个国家、整个民族颠倒疯狂整十年，这不仅仅靠他的能耐，更有深厚的历史背景和文化土壤来支撑、滋润。<br><br>RE: 大幕彻底拉开，疯狂推向极致。49年前今天的那个狂欢，罪恶成为正义，红色恐怖升级。8.18与红八月，半个世纪后还有几个人记得。<br><img src="http://ww3.sinaimg.cn/large/787d0e21jw1ev6ms3bdmbj206r04cwek.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3877166078858581" target="freeweibo-mirror">[吃惊] //@烈血悍将:[吃惊]</a>
+</h2>
+<p>[吃惊] //@烈血悍将:[吃惊]<br><br>RE: 问题可能比想象的严重，这绝非危言耸听。1984年12月3曰印度博帕尔玛化工厂氰化物泄露25000人直接致死，55万人间致死，20多万人永久致残。<br><img src="http://ww1.sinaimg.cn/large/a5f7e7f3jw1ev6cw98xl9j20c806vt9x.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3877164530809872" target="freeweibo-mirror">SPAM 【农民工讨要四万工钱遭刁难：喝一杯给20 】民工被…</a>
+</h2>
+<p>SPAM 【农民工讨要四万工钱遭刁难：喝一杯给20 】民工被灌醉了，俺也是醉了！ http://t.cn/RLg7iVP<br><img src="http://ww3.sinaimg.cn/large/53e839d2jw1ev6nb27m0mj2076076t91.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3877150756879865" target="freeweibo-mirror">怕什么？？疏的优势远大于堵！//@风中楠竹: 次奥，这也实名…</a>
 </h2>
 <p>怕什么？？疏的优势远大于堵！//@风中楠竹: 次奥，这也实名？[汗]//@大鹏看天下: 有道理，吃饭要实名制，拉屎也要实名制，一进一出，谁都不能搞特殊。</p>
@@ -47,6 +65,12 @@
 	<a href="https://freeweibo.com/weibo/3877144981791478" target="freeweibo-mirror">SPAM //@王健林:呵呵</a>
 </h2>
 <p>SPAM //@王健林:呵呵<br><br>RE: 有图有真相。<br><img src="http://ww4.sinaimg.cn/large/63142687gw1ev5ojdcew3j20fa0ap3zw.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3877143534350598" target="freeweibo-mirror">SPAM 健身这事儿一定要科学，该增肌一定不要含糊，该减脂也…</a>
+</h2>
+<p>SPAM 健身这事儿一定要科学，该增肌一定不要含糊，该减脂也别停下，轻断食这个概念很好，排和补同时进行，Pro juice也是拼的，没有任何的不舒服，推荐大家都试试[鼓掌][鼓掌][鼓掌]@余声707<br><img src="http://ww4.sinaimg.cn/large/647a4d33jw1ev6jpqc935j20dc0hsq4u.jpg"></p>
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
@@ -96,7 +120,7 @@
 </h2>
 <p>【天津大爆炸第一位被追责的人】天津大爆炸刚过三天，首个因此事件被查处的18岁网民“命运中的漏网之鱼”终于落网，被拘留5天。理由是“散布虚假信息”。<br><img src="http://ww1.sinaimg.cn/large/bc94095ajw1ev6hy2inuyj20cs0azaaz.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3877110248564270" target="freeweibo-mirror">握草！舔菊到这种程度！</a>
 </h2>
@@ -113,30 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3877106599263221" target="freeweibo-mirror">都和德国有关。[抓狂]//@作家东海:[最右] //@麒哥归…</a>
 </h2>
 <p>都和德国有关。[抓狂]//@作家东海:[最右] //@麒哥归来:二十世纪人类社会诞生了两大怪胎，一个是纳粹，一个是共产。前者早已被人类文明清除出历史舞台，但在东方的一个古老大国，它仍不知廉耻的奴役着当地淳朴善良的人们。<br><br>RE: 拉脱维亚、立陶宛、波兰、爱沙尼亚、格鲁吉亚等前社会主义兄弟国家均通过立法规定：将共产主义和法西斯主义并列为国家必须彻底清除的对象。前社会主义兄弟国家匈牙利亦通过立法规定：禁止为共产主义犯罪和纳粹主义犯罪翻案，如果谁敢否认共产主义和法西斯有罪，将被处以1~3年监禁。——这是什么情况？<br><img src="http://ww4.sinaimg.cn/large/0065PJHXjw1ev5za2825yj308c0503yo.jpg"></p>
-<p>
-	<small> ============== 5小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3877104670724686" target="freeweibo-mirror">一党zhuanzheng是最大的危爆品。//@菲姐-Mate…</a>
-</h2>
-<p>一党zhuanzheng是最大的危爆品。//@菲姐-Maternity: 绝对的权利，绝对的贪腐！//@陈业文新大都: 何时改？还会改么？[抓狂][抓狂]//@隆裕太后:转发微博<br><br>RE: 【无辜民众买单】天津爆炸再次证明，每起事故背后，总能发现贪腐，而为贪腐买单的，总是无辜的民众，说好的把权力关进笼子，然而不幸被关进笼子的，却总是各种真相。不透明的体制，酿造了无数悲剧，要改。<br><img src="http://ww1.sinaimg.cn/large/749bcf09jw1ev6cfd3bkzj21880tc7d3.jpg"></p>
-<p>
-	<small> ============== 5小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3877104444160760" target="freeweibo-mirror">更要命的是祸国殃民啊！[衰]//@菲姐-Maternity:…</a>
-</h2>
-<p>更要命的是祸国殃民啊！[衰]//@菲姐-Maternity:绝对的权利，绝对的贪腐！//@陈业文新大都: 何时改？还会改么？[抓狂][抓狂]//@隆裕太后:转发微博<br><br>RE: 【无辜民众买单】天津爆炸再次证明，每起事故背后，总能发现贪腐，而为贪腐买单的，总是无辜的民众，说好的把权力关进笼子，然而不幸被关进笼子的，却总是各种真相。不透明的体制，酿造了无数悲剧，要改。<br><img src="http://ww1.sinaimg.cn/large/749bcf09jw1ev6cfd3bkzj21880tc7d3.jpg"></p>
-<p>
-	<small> ============== 5小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3877104166739899" target="freeweibo-mirror">爆炸刚开始的时候我说了一句“难道又是境外势力惹得祸”被批说风…</a>
-</h2>
-<p>爆炸刚开始的时候我说了一句“难道又是境外势力惹得祸”被批说风凉话没同情心，现在救援基本结束了，容我再风凉一句：既然是人祸，是人主动为的祸吗？如果这样，水可就深了！<br><br>RE: 【全国总动员】领导负责在新闻发布会上丢丑；媒体负责颂死；警察负责盯死者家属；规划局负责保密，宣传部负责删帖，环保局负责宣布空气质量没问题；相比之下还是老百姓的任务艰巨些，同时负责挨炸、感动、捐款、祈福和担心下次再挨炸。</p>
-<p>
-	<small> ============== 5小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3877103198191213" target="freeweibo-mirror">//@陈业文新大都:何时改？还会改么？[抓狂][抓狂]//@…</a>
-</h2>
-<p>//@陈业文新大都:何时改？还会改么？[抓狂][抓狂]//@隆裕太后:转发微博<br><br>RE: 【无辜民众买单】天津爆炸再次证明，每起事故背后，总能发现贪腐，而为贪腐买单的，总是无辜的民众，说好的把权力关进笼子，然而不幸被关进笼子的，却总是各种真相。不透明的体制，酿造了无数悲剧，要改。<br><img src="http://ww1.sinaimg.cn/large/749bcf09jw1ev6cfd3bkzj21880tc7d3.jpg"></p>
 <p>
 	<small> ============== 5小时前</small>
 </p>
