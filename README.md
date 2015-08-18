@@ -24,7 +24,7 @@
 </h2>
 <p>回复@宏风王:[赞] //@宏风王:一个人能裹挟起整个国家、整个民族颠倒疯狂整十年，这不仅仅靠他的能耐，更有深厚的历史背景和文化土壤来支撑、滋润。<br><br>RE: 大幕彻底拉开，疯狂推向极致。49年前今天的那个狂欢，罪恶成为正义，红色恐怖升级。8.18与红八月，半个世纪后还有几个人记得。<br><img src="http://ww3.sinaimg.cn/large/787d0e21jw1ev6ms3bdmbj206r04cwek.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3877166078858581" target="freeweibo-mirror">[吃惊] //@烈血悍将:[吃惊]</a>
 </h2>
@@ -84,13 +84,13 @@
 </h2>
 <p>人民需要真相 http://t.cn/RLgciaD</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3877136970242452" target="freeweibo-mirror">SPAM 偶靠！[巨汗]//@十月的枫叶林://@枫林秋色2…</a>
 </h2>
 <p>SPAM 偶靠！[巨汗]//@十月的枫叶林://@枫林秋色2008:[哈哈][哈哈]//@心儿煮浪浪: [哈哈][笑cry][笑cry]//@我的天空谁的城--:[笑cry][笑cry]都打肿了！//@我看青山多妩媚W2:[挖鼻]木護照，一口苕国腔又跟人掰扯不清。[生病]//@红尘有缺的世界:[哈哈]</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3877135695575051" target="freeweibo-mirror">右边，我仅仅因为“跪舔老邓”的言论就应该被挂路灯？//@ki…</a>
 </h2>
@@ -108,13 +108,13 @@
 </h2>
 <p>这个是恶搞？还是在造谣？太不像话了！<br><img src="http://ww3.sinaimg.cn/large/72ae17c5gw1ev6idhzbppj20hs0vk77u.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3877121673740807" target="freeweibo-mirror">哎，无语了</a>
 </h2>
 <p>哎，无语了<br><br>RE: 【良子直播】曾经农民焚烧秸秆他们不让，说监测到环境重度污染；过年然放鞭炮他们不让，说监测到环境重度污染；就连马路边烧烤他们都不让，说污染环境，今日塘沽来了一个百年不遇的化学有害物大爆炸，到处监测都特么的正常，我就纳了闷了，这特么炸的是空气清新剂呀！对得起逝者和英勇的消防官兵么？<br><img src="http://ww3.sinaimg.cn/large/c4cc850egw1ev6i9ez3c4j20c80c8myp.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3877117856785256" target="freeweibo-mirror">【天津大爆炸第一位被追责的人】天津大爆炸刚过三天，首个因此事…</a>
 </h2>
