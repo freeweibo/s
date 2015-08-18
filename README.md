@@ -84,7 +84,7 @@
 </h2>
 <p>对于国外，中国高层嘴巴哒哒就成百上千亿资金捐助，对内人民被炸的尸横遍野，家破人亡。政府咬破嘴巴，才每户政府补贴6干元一户。权力被高层滥用到极至，人民何以安身。[怒]<br><img src="http://ww4.sinaimg.cn/large/a387f7fcjw1ev6r8y2ilnj20hs0qo423.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3877189332752013" target="freeweibo-mirror">“开枪！开枪！开枪！” “往头打” “好！好！好！” “大伙…</a>
 </h2>
@@ -96,7 +96,7 @@
 </h2>
 <p>→_→//@大唐药王:造谣，这明明是牛奶。你们这些汉奸太可恶了。<br><br>RE: 天津爆炸事故后首次降雨，路面现大量白色泡沫。<br><img src="http://ww3.sinaimg.cn/large/7061c249gw1ev6npojvn4j20zk0nmdlh.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3877179751938313" target="freeweibo-mirror">大家注意@rouying333 //@方糖的想法: 事实胜于…</a>
 </h2>
