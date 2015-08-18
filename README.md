@@ -54,7 +54,13 @@
 </h2>
 <p>同志们！我们可不能只看见红旗飘，看不见敌人在磨刀哇！大家看看！这就是冲着五星红旗来的啊！斗争形势险峻啊！同志们！</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3877295557180943" target="freeweibo-mirror">瞧这个流氓无赖  瞧这个流氓无赖 【素质真高】1996年6月…</a>
+</h2>
+<p>瞧这个流氓无赖  瞧这个流氓无赖 【素质真高】1996年6月24日，马德里。继往开来的领导人与西班牙国王卡洛斯共同检阅禁卫军时，突然拿出随身携带的梳子梳起了头发。一旁的卡洛斯满脸错愕。新闻曝出后，舆论大哗。<br><img src="http://ww2.sinaimg.cn/large/de5c49a5jw1ev72csi88sj20cs0hjdgt.jpg"></p>
+<p>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3877287974281979" target="freeweibo-mirror">//@兔子老愚: 剧场中国，被导演戏弄的领导人还自我感觉良好…</a>
 </h2>
@@ -84,7 +90,7 @@
 </h2>
 <p>找李中堂大人啊！</p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3877255325450141" target="freeweibo-mirror">[弱]//@老湿和尚12世: 转发微博</a>
 </h2>
@@ -133,12 +139,6 @@
 <p>对于国外，中国高层嘴巴哒哒就成百上千亿资金捐助，对内人民被炸的尸横遍野，家破人亡。政府咬破嘴巴，才每户政府补贴6干元一户。权力被高层滥用到极至，人民何以安身。[怒]<br><img src="http://ww4.sinaimg.cn/large/a387f7fcjw1ev6r8y2ilnj20hs0qo423.jpg"></p>
 <p>
 	<small> ============== 10小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3877189332752013" target="freeweibo-mirror">“开枪！开枪！开枪！” “往头打” “好！好！好！” “大伙…</a>
-</h2>
-<p>“开枪！开枪！开枪！” “往头打” “好！好！好！” “大伙都看着了，是不是？”http://t.cn/RL3GJ05</p>
-<p>
-	<small> ============== 11小时前</small>
 </p>
 <table>
     <tr>
