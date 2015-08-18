@@ -50,6 +50,12 @@
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3877311801576011" target="freeweibo-mirror">天津港大爆炸，国难当头，总理从朝中钦点一名贪官前去调查。这戏…</a>
+</h2>
+<p>天津港大爆炸，国难当头，总理从朝中钦点一名贪官前去调查。这戏演得太别扭，小强脸都被打黑了。[挖鼻]</p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3877301844007517" target="freeweibo-mirror">同志们！我们可不能只看见红旗飘，看不见敌人在磨刀哇！大家看看…</a>
 </h2>
 <p>同志们！我们可不能只看见红旗飘，看不见敌人在磨刀哇！大家看看！这就是冲着五星红旗来的啊！斗争形势险峻啊！同志们！</p>
@@ -66,13 +72,13 @@
 </h2>
 <p>//@兔子老愚: 剧场中国，被导演戏弄的领导人还自我感觉良好。滑稽剧。//@老书新作坊: //@徐凤文:演惯了，不好改。不止本镇如此，但本镇尤其如此。//@老花布: 介叫秀，现在电视节目不都兴介秀那秀吗[哼]//@哈哈大将军:都这时刻了，还拍戏啊……</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3877287369899901" target="freeweibo-mirror">五毛、粪青团快来辟谣，没人辟谣我就随便相信了啊。[笑cry]</a>
 </h2>
 <p>五毛、粪青团快来辟谣，没人辟谣我就随便相信了啊。[笑cry]<br><img src="http://ww2.sinaimg.cn/large/af92f3f8jw1ev71ee9pofj20en08d74r.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3877268365313045" target="freeweibo-mirror">//@天亮了gg: //@一品泥人V://@老杜微评://@…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3877209930241392" target="freeweibo-mirror">SPAM 据说，活动是17号的某时间段的某些北京大楼下单那些…</a>
 </h2>
 <p>SPAM 据说，活动是17号的某时间段的某些北京大楼下单那些人！把你们揪出来，分我一半！</p>
-<p>
-	<small> ============== 10小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3877201189576151" target="freeweibo-mirror">对于国外，中国高层嘴巴哒哒就成百上千亿资金捐助，对内人民被炸…</a>
-</h2>
-<p>对于国外，中国高层嘴巴哒哒就成百上千亿资金捐助，对内人民被炸的尸横遍野，家破人亡。政府咬破嘴巴，才每户政府补贴6干元一户。权力被高层滥用到极至，人民何以安身。[怒]<br><img src="http://ww4.sinaimg.cn/large/a387f7fcjw1ev6r8y2ilnj20hs0qo423.jpg"></p>
 <p>
 	<small> ============== 10小时前</small>
 </p>
