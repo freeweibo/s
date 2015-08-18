@@ -68,6 +68,12 @@
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3877121686195236" target="freeweibo-mirror">这个是恶搞？还是在造谣？太不像话了！</a>
+</h2>
+<p>这个是恶搞？还是在造谣？太不像话了！<br><img src="http://ww3.sinaimg.cn/large/72ae17c5gw1ev6idhzbppj20hs0vk77u.jpg"></p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3877121673740807" target="freeweibo-mirror">哎，无语了</a>
 </h2>
 <p>哎，无语了<br><br>RE: 【良子直播】曾经农民焚烧秸秆他们不让，说监测到环境重度污染；过年然放鞭炮他们不让，说监测到环境重度污染；就连马路边烧烤他们都不让，说污染环境，今日塘沽来了一个百年不遇的化学有害物大爆炸，到处监测都特么的正常，我就纳了闷了，这特么炸的是空气清新剂呀！对得起逝者和英勇的消防官兵么？<br><img src="http://ww3.sinaimg.cn/large/c4cc850egw1ev6i9ez3c4j20c80c8myp.jpg"></p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3877100027166457" target="freeweibo-mirror">【全国总动员】领导负责在新闻发布会上丢丑；媒体负责颂死；警察…</a>
 </h2>
 <p>【全国总动员】领导负责在新闻发布会上丢丑；媒体负责颂死；警察负责盯死者家属；规划局负责保密，宣传部负责删帖，环保局负责宣布空气质量没问题；相比之下还是老百姓的任务艰巨些，同时负责挨炸、感动、捐款、祈福和担心下次再挨炸。</p>
-<p>
-	<small> ============== 5小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3877099850725574" target="freeweibo-mirror">【历史不是小姑娘，你想咋样就咋样】这组海报共有4幅，斯大林、…</a>
-</h2>
-<p>【历史不是小姑娘，你想咋样就咋样】这组海报共有4幅，斯大林、罗斯福、丘吉尔、毛泽东的形象分别很突出地印在上面，而参加开罗会议的蒋介石却未出现。网友质疑这样的海报暗示毛泽东参加了开罗会议，而蒋介石没有去。舆论的不满声不绝于耳。 http://t.cn/RLdsEnz</p>
 <p>
 	<small> ============== 5小时前</small>
 </p>
