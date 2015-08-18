@@ -20,9 +20,21 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3877301844007517" target="freeweibo-mirror">同志们！我们可不能只看见红旗飘，看不见敌人在磨刀哇！大家看看…</a>
+</h2>
+<p>同志们！我们可不能只看见红旗飘，看不见敌人在磨刀哇！大家看看！这就是冲着五星红旗来的啊！斗争形势险峻啊！同志们！</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3877287974281979" target="freeweibo-mirror">//@兔子老愚: 剧场中国，被导演戏弄的领导人还自我感觉良好…</a>
 </h2>
 <p>//@兔子老愚: 剧场中国，被导演戏弄的领导人还自我感觉良好。滑稽剧。//@老书新作坊: //@徐凤文:演惯了，不好改。不止本镇如此，但本镇尤其如此。//@老花布: 介叫秀，现在电视节目不都兴介秀那秀吗[哼]//@哈哈大将军:都这时刻了，还拍戏啊……</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3877287369899901" target="freeweibo-mirror">五毛、粪青团快来辟谣，没人辟谣我就随便相信了啊。[笑cry]</a>
+</h2>
+<p>五毛、粪青团快来辟谣，没人辟谣我就随便相信了啊。[笑cry]<br><img src="http://ww2.sinaimg.cn/large/af92f3f8jw1ev71ee9pofj20en08d74r.jpg"></p>
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
@@ -30,7 +42,7 @@
 </h2>
 <p>//@天亮了gg: //@一品泥人V://@老杜微评://@段贵发: //@豆名阳:提议国家得出最少上百亿救助：并追责到底否则；人民一分钱也不要出！ //@酒神老高站南方:这钱是不是该用组织的党费支付啊？<br><br>RE: 对于国外，中国高层嘴巴哒哒就成百上千亿资金捐助，对内人民被炸的尸横遍野，家破人亡。政府咬破嘴巴，才每户政府补贴6干元一户。权力被高层滥用到极至，人民何以安身。[怒]<br><img src="http://ww4.sinaimg.cn/large/a387f7fcjw1ev6r8y2ilnj20hs0qo423.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3877259305865084" target="freeweibo-mirror">//@妮可郡主:瘟神！//@滨海闲人01: //@一般人我不…</a>
 </h2>
@@ -114,29 +126,17 @@
 </h2>
 <p>//@新京报:转发微博<br><br>RE: 天津爆炸事故后首次降雨，路面现大量白色泡沫。<br><img src="http://ww3.sinaimg.cn/large/7061c249gw1ev6npojvn4j20zk0nmdlh.jpg"></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3877177932325576" target="freeweibo-mirror">//@Hermann中国零售微博:可怕[衰][衰][衰] /…</a>
 </h2>
 <p>//@Hermann中国零售微博:可怕[衰][衰][衰] //@曲子叶:生命重于一切……//@范剑平:这是滨海新区还是天津市区？ //@George-瓜瓜:有人说要一辈子离开天津了 //@刘芮东:远离<br><br>RE: 天津爆炸事故后首次降雨，路面现大量白色泡沫。<br><img src="http://ww3.sinaimg.cn/large/7061c249gw1ev6npojvn4j20zk0nmdlh.jpg"></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3877177831614947" target="freeweibo-mirror">//@凌星在田野: 转发微博</a>
 </h2>
 <p>//@凌星在田野: 转发微博</p>
-<p>
-	<small> ============== 9小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3877171439249553" target="freeweibo-mirror">这是滨海新区还是天津市区？ //@George-瓜瓜:有人说…</a>
-</h2>
-<p>这是滨海新区还是天津市区？ //@George-瓜瓜:有人说要一辈子离开天津了 //@刘芮东:远离<br><br>RE: 天津爆炸事故后首次降雨，路面现大量白色泡沫。<br><img src="http://ww3.sinaimg.cn/large/7061c249gw1ev6npojvn4j20zk0nmdlh.jpg"></p>
-<p>
-	<small> ============== 10小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3877171431163334" target="freeweibo-mirror">敏感的消息一定要交代清楚，比如“路面”的具体位置//@五岳散…</a>
-</h2>
-<p>敏感的消息一定要交代清楚，比如“路面”的具体位置//@五岳散人: 洗衣粉……<br><br>RE: 天津爆炸事故后首次降雨，路面现大量白色泡沫。<br><img src="http://ww3.sinaimg.cn/large/7061c249gw1ev6npojvn4j20zk0nmdlh.jpg"></p>
 <p>
 	<small> ============== 10小时前</small>
 </p>
