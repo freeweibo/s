@@ -42,7 +42,7 @@
 </h2>
 <p>//@闵玉平: 俺们村的大队书记进城也随身带把梳子。 //@彭园v:[吐]<br><br>RE: 瞧这个流氓无赖  瞧这个流氓无赖 【素质真高】1996年6月24日，马德里。继往开来的领导人与西班牙国王卡洛斯共同检阅禁卫军时，突然拿出随身携带的梳子梳起了头发。一旁的卡洛斯满脸错愕。新闻曝出后，舆论大哗。<br><img src="http://ww2.sinaimg.cn/large/de5c49a5jw1ev72csi88sj20cs0hjdgt.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3877314858983586" target="freeweibo-mirror">要保证不垮台，到底还有多少“栋梁”可断？</a>
 </h2>
