@@ -24,7 +24,7 @@
 </h2>
 <p>SPAM [吃惊]//@莫志谨: //@摩羯老潘A://@最好的职业是老板://@不羁点灯-8:引导并控制舆情 //@草民lll嘟囔://@伟荣V实说://@肿输誋: [汗]<br><br>RE: 分享图片<br><img src="http://ww2.sinaimg.cn/large/006bcLdQjw1ev8bcfdtd9j30db0a375v.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3877697518680900" target="freeweibo-mirror">//@1夜晚阳光1::很清脆！[嘻嘻][笑cry][笑cry…</a>
 </h2>
@@ -36,7 +36,7 @@
 </h2>
 <p>SPAM 据说十秒内看到这张图的人，#七夕拆伙神器#不会让你一个人过！……一大批购物狂陪着你[doge]</p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3877692467945536" target="freeweibo-mirror">今日参军甘作朝廷鹰犬积极维稳，明朝退伍沦为弱势群体四处上访。</a>
 </h2>
