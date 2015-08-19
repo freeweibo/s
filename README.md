@@ -78,7 +78,7 @@
 </h2>
 <p>【微信封杀微博链接 对用户公平吗？】今晚有网友发现微信封杀了所有分享自微博的链接。作为目前覆盖率最高的两大社交类应用，微博微信互相屏蔽对方甚至是第三方应用链接的做法已发生多次，这对用户公平吗？<br><img src="http://ww3.sinaimg.cn/large/6f0f529djw1ev77jgswjsj20yi1pcaew.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3877341161888266" target="freeweibo-mirror">这场灾难的责任归谁负责？//@闵玉平:捐你妹。//@通州府尹…</a>
 </h2>
