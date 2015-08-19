@@ -78,7 +78,7 @@
 </h2>
 <p>视频：广东阳江，老兵秀肌肉啦！[笑cry][哈哈] http://t.cn/RLeQjxA</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3877589993332462" target="freeweibo-mirror">SPAM 【#昆明魔幻盛宴#】昆明首部全息投影墙体秀降临！[…</a>
 </h2>
