@@ -120,7 +120,7 @@
 </h2>
 <p>继往开来的领路人，多才多艺走进那新时代， 吹啦弹唱开创未来。#探索发现#<br><img src="http://ww4.sinaimg.cn/large/c8973f96jw1ev75dsijtjj20a30aq0tl.jpg"></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3877319536216882" target="freeweibo-mirror">//@闵玉平: 俺们村的大队书记进城也随身带把梳子。 //@…</a>
 </h2>
