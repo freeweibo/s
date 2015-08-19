@@ -38,11 +38,17 @@
 <p>
 	<small> ============== 4小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3877458765726959" target="freeweibo-mirror">#天津塘沽大爆炸#网曝塘沽民政局局长，不说人话！志愿者从出事…</a>
+</h2>
+<p>#天津塘沽大爆炸#网曝塘沽民政局局长，不说人话！志愿者从出事到现在，已经坚持5天了，你来了，告诉我们“可以走了，武警来了，用不着你们了”志愿者全部物资被没收，对外对政府对记者采访说是民政局捐助，多不要脸。局长就那个穿黑色衣服的，一直在后退的。 http://t.cn/RLeUkTB</p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3877453975974113" target="freeweibo-mirror">邪教控制这国家[怒][怒][怒]//@平凡樵丁://@樵歌云…</a>
 </h2>
 <p>邪教控制这国家[怒][怒][怒]//@平凡樵丁://@樵歌云天:转发微博<br><br>RE: 张高丽女婿是爆炸公司董事长。遭天谴的网警， 你敢辟这 '谣' 吗？！[怒]</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3877446547804733" target="freeweibo-mirror">赤匪，流氓，邪教//@平凡樵丁:历来如此，土匪流氓敢冒天下大…</a>
 </h2>
@@ -54,7 +60,7 @@
 </h2>
 <p>张高丽女婿是爆炸公司董事长。遭天谴的网警， 你敢辟这 '谣' 吗？！[怒]</p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3877368328117461" target="freeweibo-mirror">邓时代搞了经济改革，没搞政治改革，到了江时代官场陷入严重的腐…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3877326796262264" target="freeweibo-mirror">SPAM #原味分泌物##丝丝写真##yuanwei无内内内…</a>
 </h2>
 <p>SPAM #原味分泌物##丝丝写真##yuanwei无内内内##私拍写真##肉色内内精品##无内长腿热搜##原味物品##肉丝黑丝热搜##丝丝入味##肉丝黑丝热搜榜##二手黑丝##原味黑丝##原味圣水##原味视频#Everyone is a moon and has a dark side which he never shows to anybody.每个人都是一[蛋糕]轮月亮,都有着从不示人的<br><img src="http://ww4.sinaimg.cn/large/005S012Fgw1ev75xvvxlmj30go0mydje.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3877324028221175" target="freeweibo-mirror">继往开来的领路人，多才多艺走进那新时代， 吹啦弹唱开创未来。…</a>
-</h2>
-<p>继往开来的领路人，多才多艺走进那新时代， 吹啦弹唱开创未来。#探索发现#<br><img src="http://ww4.sinaimg.cn/large/c8973f96jw1ev75dsijtjj20a30aq0tl.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
