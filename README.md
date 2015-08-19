@@ -84,7 +84,7 @@
 </h2>
 <p>微评，一个字：中国特色。</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3877520090830904" target="freeweibo-mirror">臭不要脸//@武志红: 荒诞，但可悲的是，这正是我们生活着的…</a>
 </h2>
