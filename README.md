@@ -30,7 +30,7 @@
 </h2>
 <p>再转</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3877453975974113" target="freeweibo-mirror">邪教控制这国家[怒][怒][怒]//@平凡樵丁://@樵歌云…</a>
 </h2>
@@ -54,7 +54,7 @@
 </h2>
 <p>邓时代搞了经济改革，没搞政治改革，到了江时代官场陷入严重的腐败，这是想也不用想的必然结果。而在文化方面，江时代要比胡时代开化得多。到了现在的习时代，随着周花二傻的登堂入室，宣布了文化的彻底死亡。所以，在政治改革至今依然没有启动的前提下，一味黑长者又有何意义呢？</p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3877357129989231" target="freeweibo-mirror">[cp][怒][怒][怒]转载：塘沽民政局局长，不说人话!志…</a>
 </h2>
@@ -108,7 +108,7 @@
 </h2>
 <p>微博分享到朋友圈的文章都打不开了，新浪和腾讯又开撕了？<br><img src="http://ww4.sinaimg.cn/large/5c49f340jw1ev769zpvbgj20v91jln1w.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3877327031241470" target="freeweibo-mirror">好像要出事的样子？//@鸿略春秋影:邓矮子女婿//@俗人海洋…</a>
 </h2>
