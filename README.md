@@ -32,6 +32,18 @@
 <p>
 	<small> ============== 1小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3877555951826357" target="freeweibo-mirror">还不删？//@碎梦大叔://@天冷心热啊:@中国政府网 知道…</a>
+</h2>
+<p>还不删？//@碎梦大叔://@天冷心热啊:@中国政府网 知道这些把戏吧？都是老伎俩了！//@俗人海洋_归来: 到了无以复加的程度！</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3877550361187676" target="freeweibo-mirror">SPAM  //@周李城:只转不评！[作揖] //@陶景洲:…</a>
+</h2>
+<p>SPAM  //@周李城:只转不评！[作揖] //@陶景洲:评价这么高？大家的观点很不一样。<br><br>RE: 这算逆耳之言吗？<br><img src="http://ww3.sinaimg.cn/large/9ddb72ebjw1ev7tapbiocj20k00zkwm7.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3877549777688320" target="freeweibo-mirror">SPAM //@刘耘博士:妄议中央！[哼] //@吴澧-猪草…</a>
 </h2>
 <p>SPAM //@刘耘博士:妄议中央！[哼] //@吴澧-猪草园:忘了昨天是什么日子？毛毛8.18首次接见首都红卫兵。当天二代就掀起北京打砸狂潮，数千市民死于皮带、棍棒之下。二代从杀人到掌权，走了46年，人家容易吗？你要他们改？//@荣剑2001: 怎么会听得进去！<br><br>RE: 这算逆耳之言吗？<br><img src="http://ww3.sinaimg.cn/large/9ddb72ebjw1ev7tapbiocj20k00zkwm7.jpg"></p>
@@ -41,6 +53,12 @@
 	<a href="https://freeweibo.com/weibo/3877530144169880" target="freeweibo-mirror">这算逆耳之言吗？</a>
 </h2>
 <p>这算逆耳之言吗？<br><img src="http://ww3.sinaimg.cn/large/9ddb72ebjw1ev7tapbiocj20k00zkwm7.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3877526226622647" target="freeweibo-mirror">微评，一个字：中国特色。</a>
+</h2>
+<p>微评，一个字：中国特色。</p>
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
@@ -119,24 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3877368328117461" target="freeweibo-mirror">邓时代搞了经济改革，没搞政治改革，到了江时代官场陷入严重的腐…</a>
 </h2>
 <p>邓时代搞了经济改革，没搞政治改革，到了江时代官场陷入严重的腐败，这是想也不用想的必然结果。而在文化方面，江时代要比胡时代开化得多。到了现在的习时代，随着周花二傻的登堂入室，宣布了文化的彻底死亡。所以，在政治改革至今依然没有启动的前提下，一味黑长者又有何意义呢？</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3877357129989231" target="freeweibo-mirror">[cp][怒][怒][怒]转载：塘沽民政局局长，不说人话!志…</a>
-</h2>
-<p>[cp][怒][怒][怒]转载：塘沽民政局局长，不说人话!志愿者从出事到现在，已经坚持5天了，你来了，告诉我们“可以走了，武警来了，用不着你们了”志愿者全部物资被没收，对外对政府对记者采访说是民政局捐助，多不要脸。局长就那个穿黑色衣服的，一直在后退的！（无耻！）[/cp]http://t.cn/RLgEoHr</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3877346811602256" target="freeweibo-mirror">傻逼裆以为全国人民都是傻逼 //@黑月_季胜利: //@河上…</a>
-</h2>
-<p>傻逼裆以为全国人民都是傻逼 //@黑月_季胜利: //@河上-高惠君:如果中国人口和加拿大一样，这个规模的爆炸死亡一百多人还能接受。//@杨伯溆: // @程士安 :无语！[笑cry][笑cry]</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3877344843963695" target="freeweibo-mirror">回复@诗人缤年:各大平台攫取用户之后均已着手制造壁垒，试图圈…</a>
-</h2>
-<p>回复@诗人缤年:各大平台攫取用户之后均已着手制造壁垒，试图圈养用户，在它们面前用户渐渐只能任人宰割。//@诗人缤年:互联网应该是一个公平开放的平台，只有在维持良性竞争的环境下才可以有序发展，如果每个平台都封杀各自竞争对手，那么恶性竞争下，互联网环境将逐渐变得封闭，甚至失去存在价值。。。<br><br>RE: 【微信封杀微博链接 对用户公平吗？】今晚有网友发现微信封杀了所有分享自微博的链接。作为目前覆盖率最高的两大社交类应用，微博微信互相屏蔽对方甚至是第三方应用链接的做法已发生多次，这对用户公平吗？<br><img src="http://ww3.sinaimg.cn/large/6f0f529djw1ev77jgswjsj20yi1pcaew.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
