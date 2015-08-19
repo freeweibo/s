@@ -66,7 +66,7 @@
 </h2>
 <p>傻逼裆以为全国人民都是傻逼 //@黑月_季胜利: //@河上-高惠君:如果中国人口和加拿大一样，这个规模的爆炸死亡一百多人还能接受。//@杨伯溆: // @程士安 :无语！[笑cry][笑cry]</p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3877344843963695" target="freeweibo-mirror">回复@诗人缤年:各大平台攫取用户之后均已着手制造壁垒，试图圈…</a>
 </h2>
@@ -102,7 +102,7 @@
 </h2>
 <p>//@无差别社会://@丁栋宇: //@小小猫咪去钓鱼:哈哈哈//@佛光成觉: 蛤蛤二逼！<br><br>RE: 瞧这个流氓无赖  瞧这个流氓无赖 【素质真高】1996年6月24日，马德里。继往开来的领导人与西班牙国王卡洛斯共同检阅禁卫军时，突然拿出随身携带的梳子梳起了头发。一旁的卡洛斯满脸错愕。新闻曝出后，舆论大哗。<br><img src="http://ww2.sinaimg.cn/large/de5c49a5jw1ev72csi88sj20cs0hjdgt.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3877329946021519" target="freeweibo-mirror">微博分享到朋友圈的文章都打不开了，新浪和腾讯又开撕了？</a>
 </h2>
@@ -132,7 +132,7 @@
 </h2>
 <p>继往开来的领路人，多才多艺走进那新时代， 吹啦弹唱开创未来。#探索发现#<br><img src="http://ww4.sinaimg.cn/large/c8973f96jw1ev75dsijtjj20a30aq0tl.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3877319536216882" target="freeweibo-mirror">//@闵玉平: 俺们村的大队书记进城也随身带把梳子。 //@…</a>
 </h2>
