@@ -24,7 +24,7 @@
 </h2>
 <p>参考：据悉在纽约多个消防队中不乏有华裔消防员，在他们的要求下，他们所在的消防队举行了降半旗的纪念仪式。此项活动是自发行为，所以公众媒体上尚未有相关消息报道。http://t.cn/RLDIf0D<br><br>RE: 美国纽约消防队为中国天津牺牲消防员降半旗，我们。。。<br><img src="http://ww3.sinaimg.cn/large/58500250jw1ev8x06youpj208w0ft3ys.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3877919984083853" target="freeweibo-mirror">//@黄奎ART:[草泥马] //@苏亚雷斯归来://@醉虾…</a>
 </h2>
