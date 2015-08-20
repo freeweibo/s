@@ -78,7 +78,7 @@
 </h2>
 <p>六米深的水，这字幕组[馋嘴]</p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3877926246285611" target="freeweibo-mirror">参考：据悉在纽约多个消防队中不乏有华裔消防员，在他们的要求下…</a>
 </h2>
