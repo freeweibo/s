@@ -36,7 +36,7 @@
 </h2>
 <p>美国之音报道[感冒][感冒]</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3877909367994287" target="freeweibo-mirror">SPAM 养王八。//@陆亚明:淡定！[怒骂]</a>
 </h2>
@@ -60,25 +60,25 @@
 </h2>
 <p>//@吴顾问1970://@鲲鹏展翅qd: //@流血功臣在流泪://@狐哥归来: //@星xc辰D33: //@杨胜鹏腾讯:[阴险]//@只想偷懒的人: 转发微博</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3877900543584430" target="freeweibo-mirror">所以，上海电信 不让浏览外国网站了。//@喷嚏网铂程: 转发…</a>
 </h2>
 <p>所以，上海电信 不让浏览外国网站了。//@喷嚏网铂程: 转发微博</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3877900187276073" target="freeweibo-mirror">SPAM [哈哈]//@无毒砒霜A://@愚夫愚言: [哈哈…</a>
 </h2>
 <p>SPAM [哈哈]//@无毒砒霜A://@愚夫愚言: [哈哈]</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3877900052407496" target="freeweibo-mirror">SPAM 发表了一篇转载博文《[转载]马未都给天津人的建议》…</a>
 </h2>
 <p>SPAM 发表了一篇转载博文《[转载]马未都给天津人的建议》http://t.cn/RLD5iJU<br><img src="http://ww3.sinaimg.cn/large/5408ee85jw1ev8zs3pg43j20j60p0q6w.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3877887788274378" target="freeweibo-mirror">SPAM 二姨七姨哭了[泪]于总统你要干肾啊</a>
 </h2>
@@ -96,7 +96,7 @@
 </h2>
 <p>得…所有的国军，都变私人武装了…以前说阎锡山的军队、张学良的军队、蒋介石的军队，这下明确了，私军//@书房点兵:中国国民党陆军军官学校的全体毕业生，集体哭晕在厕所里……//@鲍迪克:也就是说，国军是国家的军队，不是国民党的军队，不能把国军抗日贡献等同于国民党的贡献。 //@任志强:国军！<br><br>RE: 【一个老兵的呼声：我們不是国民党军队，是国家军队】老人忿忿的表示：“当时我們不是国民党军队，国民党沒有军队，我們军队是国民政府的军队，是政府的军队。”他解释，因为当时国军部队里头连个党团组织都沒有的，不过党的生活、不发展团员，不发展的。別再叫我国民党老兵，我参加的是国军。</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3877871028496431" target="freeweibo-mirror">SPAM ……竟然是真の单身狗</a>
 </h2>
