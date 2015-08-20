@@ -96,7 +96,7 @@
 </h2>
 <p>SPAM 据说十秒内看到这张图的人，#七夕拆伙神器#不会让你一个人过！……一大批购物狂陪着你[doge]</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3877692467945536" target="freeweibo-mirror">今日参军甘作朝廷鹰犬积极维稳，明朝退伍沦为弱势群体四处上访。</a>
 </h2>
