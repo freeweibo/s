@@ -42,7 +42,7 @@
 </h2>
 <p>SPAM 愚公在移山   智叟：你在干嘛？  愚公：我在移山啊！  智叟：移山？你能移完吗！  愚公：我移不完，我还有儿子移，我儿子移不完还有孙子移，我孙子移不完我还有重孙子移……  智叟：你有女朋友吗？  愚公：……不挖了！<br><img src="http://ww3.sinaimg.cn/large/9e2b1383jw1ev8u2rqqsnj20hs0hp3zs.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3877828414599697" target="freeweibo-mirror">网评员快上//@大尸凶的漫画:五毛要上了</a>
 </h2>
