@@ -60,7 +60,7 @@
 </h2>
 <p>网评员快上//@大尸凶的漫画:五毛要上了<br><br>RE: 当年抗战胜利，全世界人民欢呼雀跃，国军的重庆共党的延安也各种庆祝，如今70年过去了，为何各种禁娱令如同大办丧事一般？反法西斯胜利究竟是喜事啊还是丧事啊？你们这么搞是站在希特勒一边吗？ http://t.cn/z8Sowx1<br><img src="http://ww3.sinaimg.cn/large/4aca2fbdjw1ev8pcx1gkzj20ku112450.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3877816406291500" target="freeweibo-mirror">数学不好的飘过。 //@蓝伟光博士:国家饮用水质标准GB57…</a>
 </h2>
