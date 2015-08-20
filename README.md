@@ -24,13 +24,13 @@
 </h2>
 <p>Blaise Cepis 是一位纽约艺术摄影师。（blaisecepis.com）<br><img src="http://ww1.sinaimg.cn/large/ea588ef2jw1ev8nnjj2s1j20sq0xe43h.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3878004390557245" target="freeweibo-mirror">SPAM //@乱弄三千: 都去公款吃喝了 //@个性快递:…</a>
 </h2>
 <p>SPAM //@乱弄三千: 都去公款吃喝了 //@个性快递:共产党那里去了？//@音乐小物:[心]</p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3878000976366301" target="freeweibo-mirror">SPAM 倒退的两年</a>
 </h2>
