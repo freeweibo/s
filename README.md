@@ -60,7 +60,7 @@
 </h2>
 <p>SPAM //@孙雪东:转发微博<br><br>RE: 纽约时报【 “我一个字不会相信他们，”她说。 】<br><img src="http://ww4.sinaimg.cn/large/006cfcOSjw1ev8f5qbnvwj30a0355b1x.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3877785992791848" target="freeweibo-mirror">//@一家之主512:转发微博</a>
 </h2>
@@ -102,7 +102,7 @@
 </h2>
 <p>今日参军甘作朝廷鹰犬积极维稳，明朝退伍沦为弱势群体四处上访。</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3877688969887191" target="freeweibo-mirror">再给你来一张 http://t.cn/RLer6R1 //@…</a>
 </h2>
