@@ -72,7 +72,7 @@
 </h2>
 <p>//@黎津平老师: 凤凰网报道，“休斯敦C频道”消息。<br><br>RE: 美国纽约消防队为中国天津牺牲消防员降半旗，我们。。。<br><img src="http://ww3.sinaimg.cn/large/58500250jw1ev8x06youpj208w0ft3ys.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3877940414558362" target="freeweibo-mirror">真有“上厕所实名制”？前段时间，我听人调侃总有一天，天朝会有…</a>
 </h2>
