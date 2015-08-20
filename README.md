@@ -30,7 +30,7 @@
 </h2>
 <p>SPAM 二姨七姨哭了[泪]于总统你要干肾啊</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3877871028496431" target="freeweibo-mirror">SPAM ……竟然是真の单身狗</a>
 </h2>
