@@ -32,6 +32,12 @@
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3877810751592591" target="freeweibo-mirror">当年抗战胜利，全世界人民欢呼雀跃，国军的重庆共党的延安也各种…</a>
+</h2>
+<p>当年抗战胜利，全世界人民欢呼雀跃，国军的重庆共党的延安也各种庆祝，如今70年过去了，为何各种禁娱令如同大办丧事一般？反法西斯胜利究竟是喜事啊还是丧事啊？你们这么搞是站在希特勒一边吗？ http://t.cn/z8Sowx1<br><img src="http://ww3.sinaimg.cn/large/4aca2fbdjw1ev8pcx1gkzj20ku112450.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3877805772851404" target="freeweibo-mirror">SPAM //@孙雪东:转发微博</a>
 </h2>
 <p>SPAM //@孙雪东:转发微博<br><br>RE: 纽约时报【 “我一个字不会相信他们，”她说。 】<br><img src="http://ww4.sinaimg.cn/large/006cfcOSjw1ev8f5qbnvwj30a0355b1x.jpg"></p>
@@ -84,7 +90,7 @@
 </h2>
 <p>再给你来一张 http://t.cn/RLer6R1 //@僊山: //@双鹰河-微博:现在还在持续中 http://t.cn/RLe1Mai //@山上有座庙2015:致敬！人民子弟兵！//@双鹰河-微博:分享图片 http://t.cn/RLe3g3I //@恒煦maoist:老兵[赞][赞][赞]//@僊山:转发微博</p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3877676995462726" target="freeweibo-mirror">//@淮安王志龙://@天桥1960-2:社会黑//@何斌-…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3877589993332462" target="freeweibo-mirror">SPAM 【#昆明魔幻盛宴#】昆明首部全息投影墙体秀降临！[…</a>
 </h2>
 <p>SPAM 【#昆明魔幻盛宴#】昆明首部全息投影墙体秀降临！[鼓掌]七夕活动来咯~凡转发本微博@3位好友 并且私信@昆明同城会 【魔幻昆明】 这4个字100%中奖！[礼物]立即获得7折《幻城·精灵归来》门票！七夕当天送6折~购票客服:4008710880 领奖地址：花鸟市场旁云瑞西路云南抗战胜利堂2楼 [礼物](看图片有惊喜)<br><img src="http://ww4.sinaimg.cn/large/6a8bd5d1gw1ev801l9za3g208w050q7s.gif"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3877586432077439" target="freeweibo-mirror">真正瓦解这个国家的正是这些王八蛋[怒]</a>
-</h2>
-<p>真正瓦解这个国家的正是这些王八蛋[怒]</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
