@@ -32,9 +32,21 @@
 <p>
 	<small> ============== 1小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3877915068379900" target="freeweibo-mirror">美国之音报道[感冒][感冒]</a>
+</h2>
+<p>美国之音报道[感冒][感冒]</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3877909367994287" target="freeweibo-mirror">SPAM 养王八。//@陆亚明:淡定！[怒骂]</a>
 </h2>
 <p>SPAM 养王八。//@陆亚明:淡定！[怒骂]</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3877905878413598" target="freeweibo-mirror">封灶台？//@竹羊羊:[偷笑][赞][赞][赞]</a>
+</h2>
+<p>封灶台？//@竹羊羊:[偷笑][赞][赞][赞]<br><br>RE: 为了阅兵，全国9月3号成了国家法定假日，而我们，因为离北京市近，所以提前休工，只是连灶台也封，一两个人的饭好做，几百个人的工厂的饭怎么做，我也是醉了。。<br><img src="http://ww4.sinaimg.cn/large/6d45573ejw1ev8y7kuq2jj20go0m8aak.jpg"></p>
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
@@ -62,6 +74,12 @@
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3877885704148089" target="freeweibo-mirror">得…所有的国军，都变私人武装了…以前说阎锡山的军队、张学良的…</a>
+</h2>
+<p>得…所有的国军，都变私人武装了…以前说阎锡山的军队、张学良的军队、蒋介石的军队，这下明确了，私军//@书房点兵:中国国民党陆军军官学校的全体毕业生，集体哭晕在厕所里……//@鲍迪克:也就是说，国军是国家的军队，不是国民党的军队，不能把国军抗日贡献等同于国民党的贡献。 //@任志强:国军！<br><br>RE: 【一个老兵的呼声：我們不是国民党军队，是国家军队】老人忿忿的表示：“当时我們不是国民党军队，国民党沒有军队，我們军队是国民政府的军队，是政府的军队。”他解释，因为当时国军部队里头连个党团组织都沒有的，不过党的生活、不发展团员，不发展的。別再叫我国民党老兵，我参加的是国军。</p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3877871028496431" target="freeweibo-mirror">SPAM ……竟然是真の单身狗</a>
 </h2>
 <p>SPAM ……竟然是真の单身狗</p>
@@ -84,7 +102,7 @@
 </h2>
 <p>SPAM 愚公在移山   智叟：你在干嘛？  愚公：我在移山啊！  智叟：移山？你能移完吗！  愚公：我移不完，我还有儿子移，我儿子移不完还有孙子移，我孙子移不完我还有重孙子移……  智叟：你有女朋友吗？  愚公：……不挖了！<br><img src="http://ww3.sinaimg.cn/large/9e2b1383jw1ev8u2rqqsnj20hs0hp3zs.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3877828414599697" target="freeweibo-mirror">网评员快上//@大尸凶的漫画:五毛要上了</a>
 </h2>
@@ -121,24 +139,6 @@
 <p>//@北京老伙子微博:还查到了1万多桃的存储地[嘻嘻][嘻嘻]<br><br>RE: 花果山发生爆炸........ 唐僧问：死了多少猴子？ 悟空：26个洞穴坍塌。 悟空：有5000颗桃树被毁。 悟空：已将活的猴子安全转移了。 悟空忙拭眼泪：领导已经迅速成立救灾小组赶赴灾区，目前死亡猴子家属情绪稳定。。。 唐僧发彪：TMD到底死了多少猴。 悟空：今天观音姐成功救出了一只猴 ！<br><img src="http://ww1.sinaimg.cn/large/537ae841jw1ev8784kx5mj20b406p3z3.jpg"></p>
 <p>
 	<small> ============== 10小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3877720599086642" target="freeweibo-mirror">纽约时报【 “我一个字不会相信他们，”她说。 】</a>
-</h2>
-<p>纽约时报【 “我一个字不会相信他们，”她说。 】<br><img src="http://ww4.sinaimg.cn/large/006cfcOSjw1ev8f5qbnvwj30a0355b1x.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3877709505416240" target="freeweibo-mirror">SPAM [吃惊]//@莫志谨: //@摩羯老潘A://@最…</a>
-</h2>
-<p>SPAM [吃惊]//@莫志谨: //@摩羯老潘A://@最好的职业是老板://@不羁点灯-8:引导并控制舆情 //@草民lll嘟囔://@伟荣V实说://@肿输誋: [汗]<br><br>RE: 分享图片<br><img src="http://ww2.sinaimg.cn/large/006bcLdQjw1ev8bcfdtd9j30db0a375v.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3877697518680900" target="freeweibo-mirror">//@1夜晚阳光1::很清脆！[嘻嘻][笑cry][笑cry…</a>
-</h2>
-<p>//@1夜晚阳光1::很清脆！[嘻嘻][笑cry][笑cry] //@林治波:打公知的脸，啪！ http://t.cn/RLeEB0p<br><br>RE: 从来没见过美国搞什么大阅兵，军队依然是世界第一，国力也是，只有专制国家才喜欢耀武扬威，干不了别的，吓唬老百姓而已。</p>
-<p>
-	<small> ============== 1天前</small>
 </p>
 <table>
     <tr>
