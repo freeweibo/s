@@ -66,7 +66,7 @@
 </h2>
 <p>SPAM //@孙雪东:转发微博<br><br>RE: 纽约时报【 “我一个字不会相信他们，”她说。 】<br><img src="http://ww4.sinaimg.cn/large/006cfcOSjw1ev8f5qbnvwj30a0355b1x.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3877785992791848" target="freeweibo-mirror">//@一家之主512:转发微博</a>
 </h2>
