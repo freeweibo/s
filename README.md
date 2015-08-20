@@ -114,7 +114,7 @@
 </h2>
 <p>SPAM #长者#上班路上，这个保良局小巴上的标语深深感动了我。<br><img src="http://ww1.sinaimg.cn/large/6d0b6b33jw1ev8udum5hdj20hs0dcmzv.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3877850387700142" target="freeweibo-mirror">SPAM 愚公在移山   智叟：你在干嘛？  愚公：我在移山…</a>
 </h2>
