@@ -30,7 +30,7 @@
 </h2>
 <p>SPAM //@孙雪东:转发微博<br><br>RE: 纽约时报【 “我一个字不会相信他们，”她说。 】<br><img src="http://ww4.sinaimg.cn/large/006cfcOSjw1ev8f5qbnvwj30a0355b1x.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3877785992791848" target="freeweibo-mirror">//@一家之主512:转发微博</a>
 </h2>
@@ -78,7 +78,7 @@
 </h2>
 <p>SPAM 拍电影吧？老兵方红旗招展不减当年，新军方年轻力壮盾牌作阵。你进我退，你退我进，两军对阵毫不示弱！求电影片名！</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3877655448992929" target="freeweibo-mirror">完全不懂阅兵的意义，这是中国第一次在抗战胜利日阅兵，不是朝鲜…</a>
 </h2>
