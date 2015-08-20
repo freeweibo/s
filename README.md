@@ -132,7 +132,7 @@
 </h2>
 <p>为了阅兵，全国9月3号成了国家法定假日，而我们，因为离北京市近，所以提前休工，只是连灶台也封，一两个人的饭好做，几百个人的工厂的饭怎么做，我也是醉了。。<br><img src="http://ww4.sinaimg.cn/large/6d45573ejw1ev8y7kuq2jj20go0m8aak.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3877885704148089" target="freeweibo-mirror">得…所有的国军，都变私人武装了…以前说阎锡山的军队、张学良的…</a>
 </h2>
