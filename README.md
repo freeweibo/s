@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3878161097615896" target="freeweibo-mirror">天津大爆炸就是改革的巨大成果，为改开放了个大礼花，还他妈不反…</a>
+</h2>
+<p>天津大爆炸就是改革的巨大成果，为改开放了个大礼花，还他妈不反思改革罪恶吗？ //@中华一P民://@朱剑00435:改革最主要是丢弃普通老百姓，政府可以减轻负担让掌握权力和权利的人发横财而一夜暴富，工人阶级用30多年血汗创造的财富和固定资产变成每个领导干部发财的第一桶金，每个单位变成家族式企业，</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3878065560271121" target="freeweibo-mirror">Blaise Cepis 是一位纽约艺术摄影师。（blais…</a>
 </h2>
 <p>Blaise Cepis 是一位纽约艺术摄影师。（blaisecepis.com）<br><img src="http://ww1.sinaimg.cn/large/ea588ef2jw1ev8nnjj2s1j20sq0xe43h.jpg"></p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3877905878413598" target="freeweibo-mirror">封灶台？//@竹羊羊:[偷笑][赞][赞][赞]</a>
 </h2>
 <p>封灶台？//@竹羊羊:[偷笑][赞][赞][赞]<br><br>RE: 为了阅兵，全国9月3号成了国家法定假日，而我们，因为离北京市近，所以提前休工，只是连灶台也封，一两个人的饭好做，几百个人的工厂的饭怎么做，我也是醉了。。<br><img src="http://ww4.sinaimg.cn/large/6d45573ejw1ev8y7kuq2jj20go0m8aak.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3877900749045225" target="freeweibo-mirror">//@吴顾问1970://@鲲鹏展翅qd: //@流血功臣在…</a>
-</h2>
-<p>//@吴顾问1970://@鲲鹏展翅qd: //@流血功臣在流泪://@狐哥归来: //@星xc辰D33: //@杨胜鹏腾讯:[阴险]//@只想偷懒的人: 转发微博</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
