@@ -24,19 +24,19 @@
 </h2>
 <p>//@吴顾问1970://@鲲鹏展翅qd: //@流血功臣在流泪://@狐哥归来: //@星xc辰D33: //@杨胜鹏腾讯:[阴险]//@只想偷懒的人: 转发微博</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3877900543584430" target="freeweibo-mirror">所以，上海电信 不让浏览外国网站了。//@喷嚏网铂程: 转发…</a>
 </h2>
 <p>所以，上海电信 不让浏览外国网站了。//@喷嚏网铂程: 转发微博</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3877900052407496" target="freeweibo-mirror">SPAM 发表了一篇转载博文《[转载]马未都给天津人的建议》…</a>
 </h2>
 <p>SPAM 发表了一篇转载博文《[转载]马未都给天津人的建议》http://t.cn/RLD5iJU<br><img src="http://ww3.sinaimg.cn/large/5408ee85jw1ev8zs3pg43j20j60p0q6w.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3877887788274378" target="freeweibo-mirror">SPAM 二姨七姨哭了[泪]于总统你要干肾啊</a>
 </h2>
