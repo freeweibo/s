@@ -42,7 +42,7 @@
 </h2>
 <p>天津领导立刻回答：平安无事了！习近平：要彻查事故责任并严肃追责 http://t.cn/RLDogdF</p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3877970269540989" target="freeweibo-mirror">→_→//@昕静自然好:→_→//@熊吉铲屎官:→_→//@…</a>
 </h2>
