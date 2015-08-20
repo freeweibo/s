@@ -78,7 +78,7 @@
 </h2>
 <p>真有“上厕所实名制”？前段时间，我听人调侃总有一天，天朝会有“上厕所实名制”，我当时只是当个笑话，一笑了之。没想到真有啊！这个朝代，太让人！让人！让人！我已经无话可说了！<br><img src="http://ww2.sinaimg.cn/large/b5978992jw1ev94ey4bj5j20f00qognf.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3877938745721600" target="freeweibo-mirror">六米深的水，这字幕组[馋嘴]</a>
 </h2>
