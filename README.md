@@ -44,6 +44,12 @@
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3878421782332096" target="freeweibo-mirror">#亚军微言#俗话说：蔫儿萝卜辣心，哑狗咬人。像朝鲜这种天天在…</a>
+</h2>
+<p>#亚军微言#俗话说：蔫儿萝卜辣心，哑狗咬人。像朝鲜这种天天在高音喇叭里喊打倒美帝占领南韩的，基本都属于空中飞舞的蜘蛛网--一动真格儿，毛儿都不是！<br><img src="http://ww4.sinaimg.cn/large/763fb12bjw1evanp6bcx2j20hs0b23zs.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3878420587037228" target="freeweibo-mirror">人家早就把你的权利关进笼子里去了！[挖鼻]//@第一经济学姜…</a>
 </h2>
 <p>人家早就把你的权利关进笼子里去了！[挖鼻]//@第一经济学姜: 我发现，凡是微博签约自媒体大牌都分不清权利和权力这两个截然不同的概念。<br><br>RE: 权利非但没有进笼子，人民的灶台却不能开火了。。只许皇帝阅兵，不许百姓开火。。<br><img src="http://ww3.sinaimg.cn/large/6362d8eagw1evamtfg4z7j20ci0m80tx.jpg"></p>
@@ -60,7 +66,7 @@
 </h2>
 <p>SPAM 至于吗？<br><br>RE: 周末两天阅兵演习，接到小区通知说届时周边商铺一律关门。[草泥马][草泥马][草泥马]</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3878416195683321" target="freeweibo-mirror">回复@姜毅敏的微博:呵呵，柴火是一种权利，燃气灶是浪费纳税人…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3878396238708639" target="freeweibo-mirror">SPAM //@笨笨an:啧啧啧。切断河北污染源？</a>
 </h2>
 <p>SPAM //@笨笨an:啧啧啧。切断河北污染源？<br><br>RE: 原来限号停产都已经out了，安新县斗已经限饭了，灶台封了'政府管饭不[哈哈]<br><img src="http://ww4.sinaimg.cn/large/a42e3aafjw1ev99g11vwyj20fj0bn75f.jpg"></p>
-<p>
-	<small> ============== 5小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3878392493199708" target="freeweibo-mirror">有图有真相系列。 //@杨佩昌:为啥拆除？[吃惊]//@弱者…</a>
-</h2>
-<p>有图有真相系列。 //@杨佩昌:为啥拆除？[吃惊]//@弱者的躯壳: //@晴朗李寒://@小麦撒野: 我们这里市中心有个工厂是他题词的，前一段整体拆除了<br><br>RE: 今天中共中央党校南门。江泽民题＂中共中央党校＂巨石刚被清除……（李金山转发图片）<br><img src="http://ww1.sinaimg.cn/large/438c7b53jw1evahepyxn9j20k00etjug.jpg"></p>
 <p>
 	<small> ============== 5小时前</small>
 </p>
