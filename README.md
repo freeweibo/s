@@ -26,6 +26,18 @@
 <p>
 	<small> ============== 1小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3878450814803110" target="freeweibo-mirror">潮汕话叫识世或识事。//@何兵:合肥话叫“识相”。@李修蛟律…</a>
+</h2>
+<p>潮汕话叫识世或识事。//@何兵:合肥话叫“识相”。@李修蛟律师: 这么说就是广东话中的“识做”。太TMD扯了，还要法律干什么？</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3878424643115280" target="freeweibo-mirror">SPAM //@王亚军北京:我故意的[嘘] //@莱德赵克强…</a>
+</h2>
+<p>SPAM //@王亚军北京:我故意的[嘘] //@莱德赵克强:图配错了<br><br>RE: #亚军微言#俗话说：蔫儿萝卜辣心，哑狗咬人。像朝鲜这种天天在高音喇叭里喊打倒美帝占领南韩的，基本都属于空中飞舞的蜘蛛网--一动真格儿，毛儿都不是！<br><img src="http://ww4.sinaimg.cn/large/763fb12bjw1evanp6bcx2j20hs0b23zs.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3878423968007541" target="freeweibo-mirror">SPAM 有枪就是牛逼//@陈业文新大都: 伟大的时代，阅尽…</a>
 </h2>
 <p>SPAM 有枪就是牛逼//@陈业文新大都: 伟大的时代，阅尽天下荒唐事！[衰][生病]//@王兴律师v:就是这么干的，商场，餐厅，健身房，银行……//@王亚林律师://@陶景洲:至于吗？<br><br>RE: 周末两天阅兵演习，接到小区通知说届时周边商铺一律关门。[草泥马][草泥马][草泥马]</p>
@@ -54,7 +66,7 @@
 </h2>
 <p>回复@姜毅敏的微博:呵呵，柴火是一种权利，燃气灶是浪费纳税人财产。。//@姜毅敏的微博:是不让烧柴禾了。不过每家发了液化气钢瓶和灶头。<br><br>RE: 权利非但没有进笼子，人民的灶台却不能开火了。。只许皇帝阅兵，不许百姓开火。。<br><img src="http://ww3.sinaimg.cn/large/6362d8eagw1evamtfg4z7j20ci0m80tx.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3878414216234935" target="freeweibo-mirror">权利非但没有进笼子，人民的灶台却不能开火了。。只许皇帝阅兵，…</a>
 </h2>
@@ -102,13 +114,13 @@
 </h2>
 <p>点哥，你们网信办怎么选这样的货色来培养啊，掉价啊@点子正 。人家长者是国家领导人啊，带领国家走过了改革开放之后最艰难最艰辛的一段路，这个姓雷的凭什么这样攻击国家领导人？他收了轮子的钱了么？</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3878401133486363" target="freeweibo-mirror">这盛世是堵了老百姓的嘴巴才造出来的。//@梁献: 大典//@…</a>
 </h2>
 <p>这盛世是堵了老百姓的嘴巴才造出来的。//@梁献: 大典//@新闻之殇:转发微博<br><br>RE: 【限行算个屁，人家直接限饭】河北省保定市安新县三台镇好有才，北京为了阅兵限行，该县三台镇直接给灶台都贴上了封条...<br><img src="http://ww2.sinaimg.cn/large/4d9f6f09jw1evadvwf1zrj20cs0mqwff.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3878397429857979" target="freeweibo-mirror">//@天高云淡T01: 一共9张图片，每张都具有历史价值！/…</a>
 </h2>
@@ -125,18 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3878392493199708" target="freeweibo-mirror">有图有真相系列。 //@杨佩昌:为啥拆除？[吃惊]//@弱者…</a>
 </h2>
 <p>有图有真相系列。 //@杨佩昌:为啥拆除？[吃惊]//@弱者的躯壳: //@晴朗李寒://@小麦撒野: 我们这里市中心有个工厂是他题词的，前一段整体拆除了<br><br>RE: 今天中共中央党校南门。江泽民题＂中共中央党校＂巨石刚被清除……（李金山转发图片）<br><img src="http://ww1.sinaimg.cn/large/438c7b53jw1evahepyxn9j20k00etjug.jpg"></p>
-<p>
-	<small> ============== 5小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3878391444558787" target="freeweibo-mirror">SPAM 最后一句[哈哈]</a>
-</h2>
-<p>SPAM 最后一句[哈哈]<br><br>RE: 刚听说，因为阅兵演习，这周末不但小区周边一切商店关门，而且地铁不通，马路封闭。今晚准备去超市买粮、买水，迎接一个周末的非正常生活。知道的这是庆祝反法西斯胜利70周年，不知道的还以为他妈的法西斯要进城了呢。<br><img src="http://ww1.sinaimg.cn/large/61c208bdjw1evafp04cznj210k0f2tcj.jpg"></p>
-<p>
-	<small> ============== 5小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3878391277401310" target="freeweibo-mirror">SPAM 啧啧啧。切断河北污染源？</a>
-</h2>
-<p>SPAM 啧啧啧。切断河北污染源？<br><br>RE: 原来限号停产都已经out了，安新县斗已经限饭了，灶台封了'政府管饭不[哈哈]<br><img src="http://ww4.sinaimg.cn/large/a42e3aafjw1ev99g11vwyj20fj0bn75f.jpg"></p>
 <p>
 	<small> ============== 5小时前</small>
 </p>
