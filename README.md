@@ -20,6 +20,18 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3878389695750717" target="freeweibo-mirror">//@笨笨an: 什么节奏？//@杨佩昌:为啥拆除？[吃惊]…</a>
+</h2>
+<p>//@笨笨an: 什么节奏？//@杨佩昌:为啥拆除？[吃惊]//@小麦撒野:我们这里市中心有个工厂是他题词的，前一段整体拆除了。<br><br>RE: 今天中共中央党校南门。江泽民题＂中共中央党校＂巨石刚被清除……（李金山转发图片）<br><img src="http://ww1.sinaimg.cn/large/438c7b53jw1evahepyxn9j20k00etjug.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3878388668622105" target="freeweibo-mirror">胡扯。中華人民共和國和中華民國是一回事嗎？國土丶憲法丶政府都…</a>
+</h2>
+<p>胡扯。中華人民共和國和中華民國是一回事嗎？國土丶憲法丶政府都不同[怒] //@袁裕来律师://@区健莹：爱国与爱党不是一会事。</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3878370909172286" target="freeweibo-mirror">//@寂寂--无名: //@转贴砖家:转发微博</a>
 </h2>
 <p>//@寂寂--无名: //@转贴砖家:转发微博<br><br>RE: 分享图片<br><img src="http://ww4.sinaimg.cn/large/d0654626jw1evahda8nvej20ek0jawgl.jpg"></p>
@@ -127,18 +139,6 @@
 <p>#保定身边事#【限行算什么，我们村“限饭”[挖鼻]】为了迎接即将到来的大阅兵以及田径世界赛，北京周边地市纷纷出台限行措施，一些小县城如今也开始实施单双号限行。限行就算了，安新三台镇居然连做饭也要限制…你封了锅台，是不是得管人家饭啊 ？#新闻in保定#<br><img src="http://ww2.sinaimg.cn/large/8be3cc61jw1eva1jxigb7j20fj0bnjry.jpg"></p>
 <p>
 	<small> ============== 11小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3878219860307009" target="freeweibo-mirror">网易+神棍，脑残二人组！2011《天津海河现大面积死鱼》ht…</a>
-</h2>
-<p>网易+神棍，脑残二人组！2011《天津海河现大面积死鱼》http://t.cn/RLDJ2QI；2012《死鱼》http://t.cn/RLD6IdD；2013《 死鱼》http://t.cn/RLDnOuS；2014《死鱼》 http://t.cn/RLDnOuo //@郎克宇律师: //@李春华律师://@喷嚏网铂程:<br><br>RE: 【孙海英：天津死鱼是偷渡来的】天津海河闸岸出现大面积死鱼，相关部门称正在核实原因。演员孙海英转发该新闻并调侃：“据网友透露：原因已基本查明，这些死亡的鱼并未取得海河水域永久户籍，也未办理暂住证，属于到海河打工的盲流鱼。还有一种可能，是集体从朝鲜偷渡的明太鱼。”http://t.cn/RLDBnpy<br><img src="http://ww4.sinaimg.cn/large/75b52ed2jw1ev9vo7jb7gj20c8096mxt.jpg"></p>
-<p>
-	<small> ============== 12小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3878208741480167" target="freeweibo-mirror">//@陶然万柳世界://@张鸣: //@何光伟: //@在野…</a>
-</h2>
-<p>//@陶然万柳世界://@张鸣: //@何光伟: //@在野的法曹:支持取保候审，但作为保证人是有条件的。//@红麦子9://@当律师的陈刚:我也愿意！ //@山-东老李://@赵克罗:我愿意！ //@宋海聚://@葉子M微博: 转发就是支持！[话筒]//@陈业文新大都:我愿意！<br><br>RE: 按照法律规定，取保候审，要么人保，要么钱保。我想知道的是，在中国网民中，有多少人愿意为大个子做保人？如果愿意，请转发。我先说：为大个子取保候审做担保，我愿意。<br><img src="http://ww3.sinaimg.cn/large/3f79a379jw1ev9ssy60b4j205j07pq37.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
 </p>
 <table>
     <tr>
