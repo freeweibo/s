@@ -120,7 +120,7 @@
 </h2>
 <p>有图有真相系列。 //@杨佩昌:为啥拆除？[吃惊]//@弱者的躯壳: //@晴朗李寒://@小麦撒野: 我们这里市中心有个工厂是他题词的，前一段整体拆除了<br><br>RE: 今天中共中央党校南门。江泽民题＂中共中央党校＂巨石刚被清除……（李金山转发图片）<br><img src="http://ww1.sinaimg.cn/large/438c7b53jw1evahepyxn9j20k00etjug.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3878391444558787" target="freeweibo-mirror">SPAM 最后一句[哈哈]</a>
 </h2>
