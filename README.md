@@ -32,6 +32,12 @@
 <p>
 	<small> ============== 1小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3878414216234935" target="freeweibo-mirror">权利非但没有进笼子，人民的灶台却不能开火了。。只许皇帝阅兵，…</a>
+</h2>
+<p>权利非但没有进笼子，人民的灶台却不能开火了。。只许皇帝阅兵，不许百姓开火。。<br><img src="http://ww3.sinaimg.cn/large/6362d8eagw1evamtfg4z7j20ci0m80tx.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3878413603097493" target="freeweibo-mirror">看到这个新闻我好开心！[微笑]末路穷途，我们的好日子快要来了…</a>
 </h2>
 <p>看到这个新闻我好开心！[微笑]末路穷途，我们的好日子快要来了[抓狂]//@写字李华良:我操，过分了。 //@熊华GG:卧槽，灶都给封了。[怒骂]<br><br>RE: 阅兵仪式在哪儿啊？河北？<br><img src="http://ww4.sinaimg.cn/large/9ddb72ebjw1evalwixk27j20c80lqgnh.jpg"></p>
@@ -78,7 +84,7 @@
 </h2>
 <p>//@天高云淡T01: 一共9张图片，每张都具有历史价值！//@人形畜牲五毛公知狗: //@天高云淡T01:第7张图——参与抓捕“四人帮”众人的结局如何？——有参考价值！人在做，天在看！<br><br>RE: 原任中共中央副主席、中顾委委员汪东兴逝世 http://t.cn/RLk747Q 华汪之流，国际笑尿，民族败类，历史罪人，遗臭万年！ [弱][弱][弱][吐][吐][吐] @思想火炬@军报记者@紫光阁<br><img src="http://ww4.sinaimg.cn/large/006004TRgw1evaatn8jg0j30c806l74o.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3878396238708639" target="freeweibo-mirror">SPAM //@笨笨an:啧啧啧。切断河北污染源？</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3878388093520865" target="freeweibo-mirror">什么节奏？//@杨佩昌:为啥拆除？[吃惊]//@小麦撒野:我…</a>
 </h2>
 <p>什么节奏？//@杨佩昌:为啥拆除？[吃惊]//@小麦撒野:我们这里市中心有个工厂是他题词的，前一段整体拆除了。<br><br>RE: 今天中共中央党校南门。江泽民题＂中共中央党校＂巨石刚被清除……（李金山转发图片）<br><img src="http://ww1.sinaimg.cn/large/438c7b53jw1evahepyxn9j20k00etjug.jpg"></p>
-<p>
-	<small> ============== 3小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3878387694939335" target="freeweibo-mirror">SPAM 哈哈哈哈，想到那个笑话，过去牛马不如，现在好了，如…</a>
-</h2>
-<p>SPAM 哈哈哈哈，想到那个笑话，过去牛马不如，现在好了，如了。 //@简直:人类历史之最 //@Thefourthwave://@冉氏艺文志: 在限制和折腾民众这一点上，其想像力古今中外皆难望其项背。<br><br>RE: 原来限号停产都已经out了，安新县斗已经限饭了，灶台封了'政府管饭不[哈哈]<br><img src="http://ww4.sinaimg.cn/large/a42e3aafjw1ev99g11vwyj20fj0bn75f.jpg"></p>
 <p>
 	<small> ============== 3小时前</small>
 </p>
