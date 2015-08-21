@@ -48,7 +48,7 @@
 </h2>
 <p>回复@姜毅敏的微博:呵呵，柴火是一种权利，燃气灶是浪费纳税人财产。。//@姜毅敏的微博:是不让烧柴禾了。不过每家发了液化气钢瓶和灶头。<br><br>RE: 权利非但没有进笼子，人民的灶台却不能开火了。。只许皇帝阅兵，不许百姓开火。。<br><img src="http://ww3.sinaimg.cn/large/6362d8eagw1evamtfg4z7j20ci0m80tx.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3878414216234935" target="freeweibo-mirror">权利非但没有进笼子，人民的灶台却不能开火了。。只许皇帝阅兵，…</a>
 </h2>
@@ -96,13 +96,13 @@
 </h2>
 <p>点哥，你们网信办怎么选这样的货色来培养啊，掉价啊@点子正 。人家长者是国家领导人啊，带领国家走过了改革开放之后最艰难最艰辛的一段路，这个姓雷的凭什么这样攻击国家领导人？他收了轮子的钱了么？</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3878401133486363" target="freeweibo-mirror">这盛世是堵了老百姓的嘴巴才造出来的。//@梁献: 大典//@…</a>
 </h2>
 <p>这盛世是堵了老百姓的嘴巴才造出来的。//@梁献: 大典//@新闻之殇:转发微博<br><br>RE: 【限行算个屁，人家直接限饭】河北省保定市安新县三台镇好有才，北京为了阅兵限行，该县三台镇直接给灶台都贴上了封条...<br><img src="http://ww2.sinaimg.cn/large/4d9f6f09jw1evadvwf1zrj20cs0mqwff.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3878397429857979" target="freeweibo-mirror">//@天高云淡T01: 一共9张图片，每张都具有历史价值！/…</a>
 </h2>
