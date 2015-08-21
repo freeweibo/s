@@ -66,7 +66,7 @@
 </h2>
 <p>普通家庭灶台？<br><br>RE: #保定身边事#【限行算什么，我们村“限饭”[挖鼻]】为了迎接即将到来的大阅兵以及田径世界赛，北京周边地市纷纷出台限行措施，一些小县城如今也开始实施单双号限行。限行就算了，安新三台镇居然连做饭也要限制…你封了锅台，是不是得管人家饭啊 ？#新闻in保定#<br><img src="http://ww2.sinaimg.cn/large/8be3cc61jw1eva1jxigb7j20fj0bnjry.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3878293767701481" target="freeweibo-mirror">嘿嘿。[酷]//@谭人玮:咦……</a>
 </h2>
@@ -108,7 +108,7 @@
 </h2>
 <p>//@红色军团赵泽琪: 没薄熙来估计还是个山沟卡卡黑社会当家呢。[笑cry]</p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3878228949016239" target="freeweibo-mirror">#保定身边事#【限行算什么，我们村“限饭”[挖鼻]】为了迎接…</a>
 </h2>
