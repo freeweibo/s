@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3878455026637090" target="freeweibo-mirror">公权不依法，扯老百姓，锤子个张！//@湖州老费四世: 一条狗…</a>
+</h2>
+<p>公权不依法，扯老百姓，锤子个张！//@湖州老费四世: 一条狗//@周泽律师: 我原以为律师只要懂法、守法,就够了。听我们会长这话,看来我还得去学几套切口。//@静娅_: 怎么听着就像江湖行话?//@酱里个酱:潮汕话叫识世或识事。//@何兵:合肥话叫“识相”。@李修蛟律师: 太TMD扯了</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3878423968007541" target="freeweibo-mirror">SPAM 有枪就是牛逼//@陈业文新大都: 伟大的时代，阅尽…</a>
 </h2>
 <p>SPAM 有枪就是牛逼//@陈业文新大都: 伟大的时代，阅尽天下荒唐事！[衰][生病]//@王兴律师v:就是这么干的，商场，餐厅，健身房，银行……//@王亚林律师://@陶景洲:至于吗？<br><br>RE: 周末两天阅兵演习，接到小区通知说届时周边商铺一律关门。[草泥马][草泥马][草泥马]</p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3878391277401310" target="freeweibo-mirror">SPAM 啧啧啧。切断河北污染源？</a>
 </h2>
 <p>SPAM 啧啧啧。切断河北污染源？<br><br>RE: 原来限号停产都已经out了，安新县斗已经限饭了，灶台封了'政府管饭不[哈哈]<br><img src="http://ww4.sinaimg.cn/large/a42e3aafjw1ev99g11vwyj20fj0bn75f.jpg"></p>
-<p>
-	<small> ============== 5小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3878389695750717" target="freeweibo-mirror">//@笨笨an: 什么节奏？//@杨佩昌:为啥拆除？[吃惊]…</a>
-</h2>
-<p>//@笨笨an: 什么节奏？//@杨佩昌:为啥拆除？[吃惊]//@小麦撒野:我们这里市中心有个工厂是他题词的，前一段整体拆除了。<br><br>RE: 今天中共中央党校南门。江泽民题＂中共中央党校＂巨石刚被清除……（李金山转发图片）<br><img src="http://ww1.sinaimg.cn/large/438c7b53jw1evahepyxn9j20k00etjug.jpg"></p>
 <p>
 	<small> ============== 5小时前</small>
 </p>
