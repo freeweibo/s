@@ -90,7 +90,7 @@
 </h2>
 <p>SPAM 北京到处大阅兵的气氛。其实阅兵不时举行，汶川地震已经全民阅了空军，长江翻船阅了海军，这次天津又阅了生化部队，就差核武部队了，但大阅兵也看不出来</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3878376253017677" target="freeweibo-mirror">阅兵闹剧彰显的权力之恶，只有中国这种魔幻作死主义国度才会发生…</a>
 </h2>
@@ -120,7 +120,7 @@
 </h2>
 <p>三三在发泄对北京不满，虽然他知道是找死！<br><br>RE: 北韓為什麼在這個時候「尋釁滋事」？其實這與韓國總統「應邀」參加北京的慶典有關，其實北韓這種流氓行為是北京一貫的作風。<br><img src="http://ww2.sinaimg.cn/large/006cv51Ojw1evahf4y50kj30b30890tp.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3878367101026335" target="freeweibo-mirror">北韓為什麼在這個時候「尋釁滋事」？其實這與韓國總統「應邀」參…</a>
 </h2>
