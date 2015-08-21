@@ -48,7 +48,7 @@
 </h2>
 <p>说到不如做到<br><br>RE: 这届律师工作会议是史上规格最高的，孟建柱的讲话也很切合实际，具体、深入、细致。但关键还在于能否落实如何落实。就目前来说，最能说明问题的是，被羁押的几位律师的合法权益能否得到保障。构成犯罪的就追究责任，没有构成犯罪的就释放。这几位律师的事情得不到依法处理，恐怕无法取信于人。@陈里<br><img src="http://ww2.sinaimg.cn/large/41693645gw1ev9ysj1qamj20dc08c0te.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3878280472026254" target="freeweibo-mirror">回复@用户5460831133:按现在的力度一直执行的话，估…</a>
 </h2>
@@ -73,6 +73,12 @@
 <p>//@红色军团赵泽琪: 没薄熙来估计还是个山沟卡卡黑社会当家呢。[笑cry]</p>
 <p>
 	<small> ============== 5小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3878228949016239" target="freeweibo-mirror">#保定身边事#【限行算什么，我们村“限饭”[挖鼻]】为了迎接…</a>
+</h2>
+<p>#保定身边事#【限行算什么，我们村“限饭”[挖鼻]】为了迎接即将到来的大阅兵以及田径世界赛，北京周边地市纷纷出台限行措施，一些小县城如今也开始实施单双号限行。限行就算了，安新三台镇居然连做饭也要限制…你封了锅台，是不是得管人家饭啊 ？#新闻in保定#<br><img src="http://ww2.sinaimg.cn/large/8be3cc61jw1eva1jxigb7j20fj0bnjry.jpg"></p>
+<p>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3878219860307009" target="freeweibo-mirror">网易+神棍，脑残二人组！2011《天津海河现大面积死鱼》ht…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3878183436302540" target="freeweibo-mirror">我愿意！ //@宋海聚://@葉子M微博: 转发就是支持！[…</a>
 </h2>
 <p>我愿意！ //@宋海聚://@葉子M微博: 转发就是支持！[话筒]//@陈业文新大都:我愿意！<br><br>RE: 按照法律规定，取保候审，要么人保，要么钱保。我想知道的是，在中国网民中，有多少人愿意为大个子做保人？如果愿意，请转发。我先说：为大个子取保候审做担保，我愿意。<br><img src="http://ww3.sinaimg.cn/large/3f79a379jw1ev9ssy60b4j205j07pq37.jpg"></p>
-<p>
-	<small> ============== 10小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3878182664709025" target="freeweibo-mirror">我视力不大好，看不清炉灶下那字条写着什么？网友帮看看。[围观…</a>
-</h2>
-<p>我视力不大好，看不清炉灶下那字条写着什么？网友帮看看。[围观]<br><img src="http://ww2.sinaimg.cn/large/006cjFarjw1ev9w79xcz3j30hs0fxac9.jpg"></p>
 <p>
 	<small> ============== 10小时前</small>
 </p>
