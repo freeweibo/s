@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3878459786807591" target="freeweibo-mirror">愿打愿挨，愿骗愿受。</a>
+</h2>
+<p>愿打愿挨，愿骗愿受。</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3878455026637090" target="freeweibo-mirror">公权不依法，扯老百姓，锤子个张！//@湖州老费四世: 一条狗…</a>
 </h2>
 <p>公权不依法，扯老百姓，锤子个张！//@湖州老费四世: 一条狗//@周泽律师: 我原以为律师只要懂法、守法,就够了。听我们会长这话,看来我还得去学几套切口。//@静娅_: 怎么听着就像江湖行话?//@酱里个酱:潮汕话叫识世或识事。//@何兵:合肥话叫“识相”。@李修蛟律师: 太TMD扯了</p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3878406154435111" target="freeweibo-mirror">阅兵仪式在哪儿啊？河北？</a>
 </h2>
 <p>阅兵仪式在哪儿啊？河北？<br><img src="http://ww4.sinaimg.cn/large/9ddb72ebjw1evalwixk27j20c80lqgnh.jpg"></p>
-<p>
-	<small> ============== 5小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3878401339183779" target="freeweibo-mirror">点哥，你们网信办怎么选这样的货色来培养啊，掉价啊@点子正 。…</a>
-</h2>
-<p>点哥，你们网信办怎么选这样的货色来培养啊，掉价啊@点子正 。人家长者是国家领导人啊，带领国家走过了改革开放之后最艰难最艰辛的一段路，这个姓雷的凭什么这样攻击国家领导人？他收了轮子的钱了么？</p>
 <p>
 	<small> ============== 5小时前</small>
 </p>
