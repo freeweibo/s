@@ -78,13 +78,13 @@
 </h2>
 <p>俄罗斯，朝鲜，天朝，还有谁擅长此项自淫工程？ //@潘丽华律师:多少底层民众鸡冻得热泪盈眶呢！//@老留学李嘉玉:这种皇家阅兵的意义在于祸害平民，吓唬邻里，炫耀政权。//@不知bz:流氓賊寇都稀飯擺擺譜嘛！<br><br>RE: 阅兵闹剧彰显的权力之恶，只有中国这种魔幻作死主义国度才会发生。。。</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3878384964568005" target="freeweibo-mirror">SPAM [吃惊] //@作家崔成浩:怕空气污染？哈哈哈哈……</a>
 </h2>
 <p>SPAM [吃惊] //@作家崔成浩:怕空气污染？哈哈哈哈… //@罗昌平:[汗]//@张宏杰: [微笑]<br><br>RE: 原来限号停产都已经out了，安新县斗已经限饭了，灶台封了'政府管饭不[哈哈]<br><img src="http://ww4.sinaimg.cn/large/a42e3aafjw1ev99g11vwyj20fj0bn75f.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3878383710795712" target="freeweibo-mirror">SPAM 北京到处大阅兵的气氛。其实阅兵不时举行，汶川地震已…</a>
 </h2>
