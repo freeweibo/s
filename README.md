@@ -72,7 +72,7 @@
 </h2>
 <p>收到最新信息，各位战友好消息：现在各地方参战老兵都陆续到达广东阳江，部份参战老兵还在半路上，南宁的今晚到达，株洲的已经到达。海南岛也到了，广东战友绝大部份到了，人数众多，阳江政府怎样处理呢？（转发）<br><img src="http://ww1.sinaimg.cn/large/c55e5f10jw1ev9wjnvjb3j205005074b.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3878183436302540" target="freeweibo-mirror">我愿意！ //@宋海聚://@葉子M微博: 转发就是支持！[…</a>
 </h2>
