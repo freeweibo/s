@@ -26,6 +26,12 @@
 <p>
 	<small> ============== 1小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3878367101026335" target="freeweibo-mirror">北韓為什麼在這個時候「尋釁滋事」？其實這與韓國總統「應邀」參…</a>
+</h2>
+<p>北韓為什麼在這個時候「尋釁滋事」？其實這與韓國總統「應邀」參加北京的慶典有關，其實北韓這種流氓行為是北京一貫的作風。<br><img src="http://ww2.sinaimg.cn/large/006cv51Ojw1evahf4y50kj30b30890tp.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3878333056042994" target="freeweibo-mirror">SPAM 呵呵。//@闵玉平:默默地转。 //@-孔智勇:两…</a>
 </h2>
 <p>SPAM 呵呵。//@闵玉平:默默地转。 //@-孔智勇:两个字：呵呵。 //@六安自媒体:电费没降，房价没降，网费依旧没降，这是事实。//@王海:造谣？<br><br>RE: 分享图片<br><img src="http://ww2.sinaimg.cn/large/71f95e93jw1eva5jcf5otj20cs0dowg4.jpg"></p>
@@ -36,7 +42,7 @@
 </h2>
 <p>拆违规建筑和违规十字架那事，以前说的够多了。这里单独说到最后，那个张凯律师，他是一个死磕维权派律师，以前哪里有热点那里就有他，死磕磕死过不少当事人，他早就以受到政治迫害等原因移民美国了。最近两年，在中国一直是无证代理，并配合舆论炒作，造谣啥的全套……<br><br>RE: 端傳媒出品  1200座十字架被拆，亞洲最大教堂陷危機<br><img src="http://ww2.sinaimg.cn/large/65cc9274jw1evaaabhoe5j20hsiio7wj.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3878311157348720" target="freeweibo-mirror">其他国家 //@无以为名:转发微博</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3878205024988651" target="freeweibo-mirror">这届律师工作会议是史上规格最高的，孟建柱的讲话也很切合实际，…</a>
 </h2>
 <p>这届律师工作会议是史上规格最高的，孟建柱的讲话也很切合实际，具体、深入、细致。但关键还在于能否落实如何落实。就目前来说，最能说明问题的是，被羁押的几位律师的合法权益能否得到保障。构成犯罪的就追究责任，没有构成犯罪的就释放。这几位律师的事情得不到依法处理，恐怕无法取信于人。@陈里<br><img src="http://ww2.sinaimg.cn/large/41693645gw1ev9ysj1qamj20dc08c0te.jpg"></p>
-<p>
-	<small> ============== 12小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3878204408658451" target="freeweibo-mirror">SPAM [吃惊]//@傅强永远强: 真的假的？[哼] //…</a>
-</h2>
-<p>SPAM [吃惊]//@傅强永远强: 真的假的？[哼] //@立场旁观008:亩产万斤，砸灶台，砸马桶，大食堂又要开张了！//@前度神-游: //@佩尔琳:[怒] //@琢儿他爹:今天封灶台不让百姓吃饭，明天百姓就会不让你们吃饭！安新县三台镇政府，你们这样干就不怕绝户吗？<br><br>RE: 我视力不大好，看不清炉灶下那字条写着什么？网友帮看看。[围观]<br><img src="http://ww2.sinaimg.cn/large/006cjFarjw1ev9w79xcz3j30hs0fxac9.jpg"></p>
 <p>
 	<small> ============== 12小时前</small>
 </p>
