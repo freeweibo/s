@@ -30,13 +30,13 @@
 </h2>
 <p>胡扯。中華人民共和國和中華民國是一回事嗎？國土丶憲法丶政府都不同[怒] //@袁裕来律师://@区健莹：爱国与爱党不是一会事。</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3878388618206830" target="freeweibo-mirror">//@笨笨an:什么节奏？//@杨佩昌:为啥拆除？[吃惊]/…</a>
 </h2>
 <p>//@笨笨an:什么节奏？//@杨佩昌:为啥拆除？[吃惊]//@小麦撒野:我们这里市中心有个工厂是他题词的，前一段整体拆除了。<br><br>RE: 今天中共中央党校南门。江泽民题＂中共中央党校＂巨石刚被清除……（李金山转发图片）<br><img src="http://ww1.sinaimg.cn/large/438c7b53jw1evahepyxn9j20k00etjug.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3878385144837798" target="freeweibo-mirror">俄罗斯，朝鲜，天朝，还有谁擅长此项自淫工程？ //@潘丽华律…</a>
 </h2>
