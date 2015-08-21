@@ -50,6 +50,12 @@
 <p>
 	<small> ============== 7小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3878205024988651" target="freeweibo-mirror">这届律师工作会议是史上规格最高的，孟建柱的讲话也很切合实际，…</a>
+</h2>
+<p>这届律师工作会议是史上规格最高的，孟建柱的讲话也很切合实际，具体、深入、细致。但关键还在于能否落实如何落实。就目前来说，最能说明问题的是，被羁押的几位律师的合法权益能否得到保障。构成犯罪的就追究责任，没有构成犯罪的就释放。这几位律师的事情得不到依法处理，恐怕无法取信于人。@陈里<br><img src="http://ww2.sinaimg.cn/large/41693645gw1ev9ysj1qamj20dc08c0te.jpg"></p>
+<p>
+	<small> ============== 7小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3878204408658451" target="freeweibo-mirror">SPAM [吃惊]//@傅强永远强: 真的假的？[哼] //…</a>
 </h2>
 <p>SPAM [吃惊]//@傅强永远强: 真的假的？[哼] //@立场旁观008:亩产万斤，砸灶台，砸马桶，大食堂又要开张了！//@前度神-游: //@佩尔琳:[怒] //@琢儿他爹:今天封灶台不让百姓吃饭，明天百姓就会不让你们吃饭！安新县三台镇政府，你们这样干就不怕绝户吗？<br><br>RE: 我视力不大好，看不清炉灶下那字条写着什么？网友帮看看。[围观]<br><img src="http://ww2.sinaimg.cn/large/006cjFarjw1ev9w79xcz3j30hs0fxac9.jpg"></p>
@@ -84,7 +90,7 @@
 </h2>
 <p>收到最新信息，各位战友好消息：现在各地方参战老兵都陆续到达广东阳江，部份参战老兵还在半路上，南宁的今晚到达，株洲的已经到达。海南岛也到了，广东战友绝大部份到了，人数众多，阳江政府怎样处理呢？（转发）<br><img src="http://ww1.sinaimg.cn/large/c55e5f10jw1ev9wjnvjb3j205005074b.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3878183436302540" target="freeweibo-mirror">我愿意！ //@宋海聚://@葉子M微博: 转发就是支持！[…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3878065560271121" target="freeweibo-mirror">Blaise Cepis 是一位纽约艺术摄影师。（blais…</a>
 </h2>
 <p>Blaise Cepis 是一位纽约艺术摄影师。（blaisecepis.com）<br><img src="http://ww1.sinaimg.cn/large/ea588ef2jw1ev8nnjj2s1j20sq0xe43h.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3878004390557245" target="freeweibo-mirror">SPAM //@乱弄三千: 都去公款吃喝了 //@个性快递:…</a>
-</h2>
-<p>SPAM //@乱弄三千: 都去公款吃喝了 //@个性快递:共产党那里去了？//@音乐小物:[心]</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
