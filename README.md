@@ -42,7 +42,7 @@
 </h2>
 <p>SPAM 至于吗？<br><br>RE: 周末两天阅兵演习，接到小区通知说届时周边商铺一律关门。[草泥马][草泥马][草泥马]</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3878416195683321" target="freeweibo-mirror">回复@姜毅敏的微博:呵呵，柴火是一种权利，燃气灶是浪费纳税人…</a>
 </h2>
