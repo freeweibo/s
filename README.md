@@ -30,7 +30,7 @@
 </h2>
 <p>荒謬！腦殘！//@大鹏看天下:我去！为了迎接大阅兵及田径世界赛，不让老百姓开火做饭了…… [衰]<br><br>RE: #保定身边事#【限行算什么，我们村“限饭”[挖鼻]】为了迎接即将到来的大阅兵以及田径世界赛，北京周边地市纷纷出台限行措施，一些小县城如今也开始实施单双号限行。限行就算了，安新三台镇居然连做饭也要限制…你封了锅台，是不是得管人家饭啊 ？#新闻in保定#<br><img src="http://ww2.sinaimg.cn/large/8be3cc61jw1eva1jxigb7j20fj0bnjry.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3878306107474983" target="freeweibo-mirror">真的？普通老百姓的灶台？</a>
 </h2>
@@ -48,7 +48,7 @@
 </h2>
 <p>嘿嘿。[酷]//@谭人玮:咦……<br><br>RE: </p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3878291557276822" target="freeweibo-mirror">说到不如做到</a>
 </h2>
@@ -72,13 +72,13 @@
 </h2>
 <p>真的么！！！//@宁可居无妻不愿夜未基: line 现在不用VPN也能用啊。//@网瘾少年清新: 呵呵 //@苍老师说我壮如山巴喳嘿:twitter耶 //@袖初凉:Wow //@waternotmoon:。。。//@Aie_猛毒映画: [思考]期间 哦 //@本场切绘:终于0..//@TW_nrl952006: 哇～ 不必翻牆了～～<br><br>RE: 【中国将开放Facebook、Twitter、YouTube和谷歌搜索的访问】国际田径联合会秘书长Essar Gabriel表示，北京锦标赛期间中国境内将可以使用社交网络脸书、推特、YouTube，以及搜索引擎谷歌。世界田径锦标赛将于8月22至30日在北京举行。@韦恩卑鄙 @正在成为超帅微软大法的青木和介 @传播微软大法的美男子<br><img src="http://ww1.sinaimg.cn/large/b7c3964djw1eva05gb6rij20rs0f1dhy.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3878263547981207" target="freeweibo-mirror">【中国即将开放Facebook、Google、YouTube…</a>
 </h2>
 <p>【中国即将开放Facebook、Google、YouTube和Twitter】就从明天开始[doge]夏季限定[嘻嘻]<br><br>RE: 【中国将开放Facebook、Twitter、YouTube和谷歌搜索的访问】国际田径联合会秘书长Essar Gabriel表示，北京锦标赛期间中国境内将可以使用社交网络脸书、推特、YouTube，以及搜索引擎谷歌。世界田径锦标赛将于8月22至30日在北京举行。@韦恩卑鄙 @正在成为超帅微软大法的青木和介 @传播微软大法的美男子<br><img src="http://ww1.sinaimg.cn/large/b7c3964djw1eva05gb6rij20rs0f1dhy.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3878251971847569" target="freeweibo-mirror">//@红色军团赵泽琪: 没薄熙来估计还是个山沟卡卡黑社会当家…</a>
 </h2>
@@ -120,7 +120,7 @@
 </h2>
 <p>//@作家央歌儿: 愿意//@捂大煽粗: //@赵克罗:我愿意！ //@宋海聚://@葉子M微博: 转发就是支持！[话筒]//@陈业文新大都:我愿意！<br><br>RE: 按照法律规定，取保候审，要么人保，要么钱保。我想知道的是，在中国网民中，有多少人愿意为大个子做保人？如果愿意，请转发。我先说：为大个子取保候审做担保，我愿意。<br><img src="http://ww3.sinaimg.cn/large/3f79a379jw1ev9ssy60b4j205j07pq37.jpg"></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3878194824318507" target="freeweibo-mirror">//@天冷心热啊:脑残！//@只想偷懒的人:他们成功了，因为…</a>
 </h2>
