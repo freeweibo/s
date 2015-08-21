@@ -54,7 +54,7 @@
 </h2>
 <p>我愿意！ //@宋海聚://@葉子M微博: 转发就是支持！[话筒]//@陈业文新大都:我愿意！<br><br>RE: 按照法律规定，取保候审，要么人保，要么钱保。我想知道的是，在中国网民中，有多少人愿意为大个子做保人？如果愿意，请转发。我先说：为大个子取保候审做担保，我愿意。<br><img src="http://ww3.sinaimg.cn/large/3f79a379jw1ev9ssy60b4j205j07pq37.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3878182664709025" target="freeweibo-mirror">我视力不大好，看不清炉灶下那字条写着什么？网友帮看看。[围观…</a>
 </h2>
@@ -84,7 +84,7 @@
 </h2>
 <p>按照法律规定，取保候审，要么人保，要么钱保。我想知道的是，在中国网民中，有多少人愿意为大个子做保人？如果愿意，请转发。我先说：为大个子取保候审做担保，我愿意。<br><img src="http://ww3.sinaimg.cn/large/3f79a379jw1ev9ssy60b4j205j07pq37.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3878065560271121" target="freeweibo-mirror">Blaise Cepis 是一位纽约艺术摄影师。（blais…</a>
 </h2>
