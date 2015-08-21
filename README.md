@@ -30,7 +30,7 @@
 </h2>
 <p>SPAM [吃惊]//@傅强永远强: 真的假的？[哼] //@立场旁观008:亩产万斤，砸灶台，砸马桶，大食堂又要开张了！//@前度神-游: //@佩尔琳:[怒] //@琢儿他爹:今天封灶台不让百姓吃饭，明天百姓就会不让你们吃饭！安新县三台镇政府，你们这样干就不怕绝户吗？<br><br>RE: 我视力不大好，看不清炉灶下那字条写着什么？网友帮看看。[围观]<br><img src="http://ww2.sinaimg.cn/large/006cjFarjw1ev9w79xcz3j30hs0fxac9.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3878203196143993" target="freeweibo-mirror">//@作家央歌儿: 愿意//@捂大煽粗: //@赵克罗:我愿…</a>
 </h2>
@@ -43,6 +43,18 @@
 <p>//@半虹骑士://@黄培雄-石狮强拆维权: 我身为福建石狮人!却还不知石狮这个全国文明城市!有优秀县委书记!要依法处理违法强拆赔偿!石狮巿的水!有多深!我不会游泳[给力][给力][给力]@迟夙生律师 @郑在索律师 @王才亮律师[给力][给力][给力]<br><br>RE: 先把爆炸公司的信息从百度屏蔽了，然后将公司“主人”多次更替，硬整出个什么“公司实际控制人”、什么“带持股的”。尼玛，谁没有常委做后台，谁就当替罪羊！[怒]<br><img src="http://ww1.sinaimg.cn/large/006bfKlvgw1ev9uvzk2bqj30i20c0mxv.jpg"></p>
 <p>
 	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3878193364526057" target="freeweibo-mirror">SPAM [怒]//@佩尔琳:[怒] //@琢儿他爹:今天封…</a>
+</h2>
+<p>SPAM [怒]//@佩尔琳:[怒] //@琢儿他爹:今天封灶台不让百姓吃饭，明天百姓就会不让你们吃饭！安新县三台镇政府，你们这样干就不怕绝户吗？<br><br>RE: 我视力不大好，看不清炉灶下那字条写着什么？网友帮看看。[围观]<br><img src="http://ww2.sinaimg.cn/large/006cjFarjw1ev9w79xcz3j30hs0fxac9.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3878183436302540" target="freeweibo-mirror">我愿意！ //@宋海聚://@葉子M微博: 转发就是支持！[…</a>
+</h2>
+<p>我愿意！ //@宋海聚://@葉子M微博: 转发就是支持！[话筒]//@陈业文新大都:我愿意！<br><br>RE: 按照法律规定，取保候审，要么人保，要么钱保。我想知道的是，在中国网民中，有多少人愿意为大个子做保人？如果愿意，请转发。我先说：为大个子取保候审做担保，我愿意。<br><img src="http://ww3.sinaimg.cn/large/3f79a379jw1ev9ssy60b4j205j07pq37.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3878171151368165" target="freeweibo-mirror">先把爆炸公司的信息从百度屏蔽了，然后将公司“主人”多次更替，…</a>
 </h2>
@@ -125,18 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3877938745721600" target="freeweibo-mirror">六米深的水，这字幕组[馋嘴]</a>
 </h2>
 <p>六米深的水，这字幕组[馋嘴]</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3877926246285611" target="freeweibo-mirror">参考：据悉在纽约多个消防队中不乏有华裔消防员，在他们的要求下…</a>
-</h2>
-<p>参考：据悉在纽约多个消防队中不乏有华裔消防员，在他们的要求下，他们所在的消防队举行了降半旗的纪念仪式。此项活动是自发行为，所以公众媒体上尚未有相关消息报道。http://t.cn/RLDIf0D<br><br>RE: 美国纽约消防队为中国天津牺牲消防员降半旗，我们。。。<br><img src="http://ww3.sinaimg.cn/large/58500250jw1ev8x06youpj208w0ft3ys.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3877919984083853" target="freeweibo-mirror">//@黄奎ART:[草泥马] //@苏亚雷斯归来://@醉虾…</a>
-</h2>
-<p>//@黄奎ART:[草泥马] //@苏亚雷斯归来://@醉虾搅11: //@王林的微博客://@wyzxhp7: //@惊醒的家奴4: //@星xc辰D33: //@惊醒的家奴3:转发微博<br><br>RE: 某网友说得好：用法西斯的方式庆祝反法西斯胜利。</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
