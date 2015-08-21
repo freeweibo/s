@@ -24,7 +24,7 @@
 </h2>
 <p>说到不如做到<br><br>RE: 这届律师工作会议是史上规格最高的，孟建柱的讲话也很切合实际，具体、深入、细致。但关键还在于能否落实如何落实。就目前来说，最能说明问题的是，被羁押的几位律师的合法权益能否得到保障。构成犯罪的就追究责任，没有构成犯罪的就释放。这几位律师的事情得不到依法处理，恐怕无法取信于人。@陈里<br><img src="http://ww2.sinaimg.cn/large/41693645gw1ev9ysj1qamj20dc08c0te.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3878263547981207" target="freeweibo-mirror">【中国即将开放Facebook、Google、YouTube…</a>
 </h2>
@@ -114,7 +114,7 @@
 </h2>
 <p>先把爆炸公司的信息从百度屏蔽了，然后将公司“主人”多次更替，硬整出个什么“公司实际控制人”、什么“带持股的”。尼玛，谁没有常委做后台，谁就当替罪羊！[怒]<br><img src="http://ww1.sinaimg.cn/large/006bfKlvgw1ev9uvzk2bqj30i20c0mxv.jpg"></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3878161097615896" target="freeweibo-mirror">天津大爆炸就是改革的巨大成果，为改开放了个大礼花，还他妈不反…</a>
 </h2>
