@@ -48,7 +48,7 @@
 </h2>
 <p>潮汕话叫识世或识事。//@何兵:合肥话叫“识相”。@李修蛟律师: 这么说就是广东话中的“识做”。太TMD扯了，还要法律干什么？</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3878448180879669" target="freeweibo-mirror">在反法西斯胜利70周年来临之际，采取了车辆单双号、地铁停站等…</a>
 </h2>
@@ -90,7 +90,7 @@
 </h2>
 <p>人家早就把你的权利关进笼子里去了！[挖鼻]//@第一经济学姜: 我发现，凡是微博签约自媒体大牌都分不清权利和权力这两个截然不同的概念。<br><br>RE: 权利非但没有进笼子，人民的灶台却不能开火了。。只许皇帝阅兵，不许百姓开火。。<br><img src="http://ww3.sinaimg.cn/large/6362d8eagw1evamtfg4z7j20ci0m80tx.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3878418913166687" target="freeweibo-mirror">回复@lzscript:羊毛出在猪身上。//@lzscrip…</a>
 </h2>
