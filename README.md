@@ -24,7 +24,7 @@
 </h2>
 <p>//@天高云淡T01: 一共9张图片，每张都具有历史价值！//@人形畜牲五毛公知狗: //@天高云淡T01:第7张图——参与抓捕“四人帮”众人的结局如何？——有参考价值！人在做，天在看！<br><br>RE: 原任中共中央副主席、中顾委委员汪东兴逝世 http://t.cn/RLk747Q 华汪之流，国际笑尿，民族败类，历史罪人，遗臭万年！ [弱][弱][弱][吐][吐][吐] @思想火炬@军报记者@紫光阁<br><img src="http://ww4.sinaimg.cn/large/006004TRgw1evaatn8jg0j30c806l74o.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3878392493199708" target="freeweibo-mirror">有图有真相系列。 //@杨佩昌:为啥拆除？[吃惊]//@弱者…</a>
 </h2>
@@ -126,13 +126,13 @@
 </h2>
 <p>北韓為什麼在這個時候「尋釁滋事」？其實這與韓國總統「應邀」參加北京的慶典有關，其實北韓這種流氓行為是北京一貫的作風。<br><img src="http://ww2.sinaimg.cn/large/006cv51Ojw1evahf4y50kj30b30890tp.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3878367042257608" target="freeweibo-mirror">今天中共中央党校南门。江泽民题＂中共中央党校＂巨石刚被清除……</a>
 </h2>
 <p>今天中共中央党校南门。江泽民题＂中共中央党校＂巨石刚被清除……（李金山转发图片）<br><img src="http://ww1.sinaimg.cn/large/438c7b53jw1evahepyxn9j20k00etjug.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3878362097422994" target="freeweibo-mirror">野史。</a>
 </h2>
