@@ -20,6 +20,18 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3878291557276822" target="freeweibo-mirror">说到不如做到</a>
+</h2>
+<p>说到不如做到<br><br>RE: 这届律师工作会议是史上规格最高的，孟建柱的讲话也很切合实际，具体、深入、细致。但关键还在于能否落实如何落实。就目前来说，最能说明问题的是，被羁押的几位律师的合法权益能否得到保障。构成犯罪的就追究责任，没有构成犯罪的就释放。这几位律师的事情得不到依法处理，恐怕无法取信于人。@陈里<br><img src="http://ww2.sinaimg.cn/large/41693645gw1ev9ysj1qamj20dc08c0te.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3878263547981207" target="freeweibo-mirror">【中国即将开放Facebook、Google、YouTube…</a>
+</h2>
+<p>【中国即将开放Facebook、Google、YouTube和Twitter】就从明天开始[doge]夏季限定[嘻嘻]<br><br>RE: 【中国将开放Facebook、Twitter、YouTube和谷歌搜索的访问】国际田径联合会秘书长Essar Gabriel表示，北京锦标赛期间中国境内将可以使用社交网络脸书、推特、YouTube，以及搜索引擎谷歌。世界田径锦标赛将于8月22至30日在北京举行。@韦恩卑鄙 @正在成为超帅微软大法的青木和介 @传播微软大法的美男子<br><img src="http://ww1.sinaimg.cn/large/b7c3964djw1eva05gb6rij20rs0f1dhy.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3878251971847569" target="freeweibo-mirror">//@红色军团赵泽琪: 没薄熙来估计还是个山沟卡卡黑社会当家…</a>
 </h2>
 <p>//@红色军团赵泽琪: 没薄熙来估计还是个山沟卡卡黑社会当家呢。[笑cry]</p>
@@ -125,18 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3878004390557245" target="freeweibo-mirror">SPAM //@乱弄三千: 都去公款吃喝了 //@个性快递:…</a>
 </h2>
 <p>SPAM //@乱弄三千: 都去公款吃喝了 //@个性快递:共产党那里去了？//@音乐小物:[心]</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3878000976366301" target="freeweibo-mirror">SPAM 倒退的两年</a>
-</h2>
-<p>SPAM 倒退的两年</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3877976431416403" target="freeweibo-mirror">天津领导立刻回答：平安无事了！习近平：要彻查事故责任并严肃追…</a>
-</h2>
-<p>天津领导立刻回答：平安无事了！习近平：要彻查事故责任并严肃追责 http://t.cn/RLDogdF</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
