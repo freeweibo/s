@@ -78,25 +78,25 @@
 </h2>
 <p>胡扯。中華人民共和國和中華民國是一回事嗎？國土丶憲法丶政府都不同[怒] //@袁裕来律师://@区健莹：爱国与爱党不是一会事。</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3878388618206830" target="freeweibo-mirror">//@笨笨an:什么节奏？//@杨佩昌:为啥拆除？[吃惊]/…</a>
 </h2>
 <p>//@笨笨an:什么节奏？//@杨佩昌:为啥拆除？[吃惊]//@小麦撒野:我们这里市中心有个工厂是他题词的，前一段整体拆除了。<br><br>RE: 今天中共中央党校南门。江泽民题＂中共中央党校＂巨石刚被清除……（李金山转发图片）<br><img src="http://ww1.sinaimg.cn/large/438c7b53jw1evahepyxn9j20k00etjug.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3878388265210434" target="freeweibo-mirror">[衰]//@史毋意:吃老百姓的饭，封老百姓的锅。</a>
 </h2>
 <p>[衰]//@史毋意:吃老百姓的饭，封老百姓的锅。<br><br>RE: 原来限号停产都已经out了，安新县斗已经限饭了，灶台封了'政府管饭不[哈哈]<br><img src="http://ww4.sinaimg.cn/large/a42e3aafjw1ev99g11vwyj20fj0bn75f.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3878388093520865" target="freeweibo-mirror">什么节奏？//@杨佩昌:为啥拆除？[吃惊]//@小麦撒野:我…</a>
 </h2>
 <p>什么节奏？//@杨佩昌:为啥拆除？[吃惊]//@小麦撒野:我们这里市中心有个工厂是他题词的，前一段整体拆除了。<br><br>RE: 今天中共中央党校南门。江泽民题＂中共中央党校＂巨石刚被清除……（李金山转发图片）<br><img src="http://ww1.sinaimg.cn/large/438c7b53jw1evahepyxn9j20k00etjug.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3878387694939335" target="freeweibo-mirror">SPAM 哈哈哈哈，想到那个笑话，过去牛马不如，现在好了，如…</a>
 </h2>
