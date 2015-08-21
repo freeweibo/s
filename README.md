@@ -44,6 +44,12 @@
 <p>
 	<small> ============== 4小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3878304987413819" target="freeweibo-mirror">端傳媒出品  1200座十字架被拆，亞洲最大教堂陷危機</a>
+</h2>
+<p>端傳媒出品  1200座十字架被拆，亞洲最大教堂陷危機<br><img src="http://ww2.sinaimg.cn/large/65cc9274jw1evaaabhoe5j20hsiio7wj.jpg"></p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3878296104198621" target="freeweibo-mirror">普通家庭灶台？</a>
 </h2>
 <p>普通家庭灶台？<br><br>RE: #保定身边事#【限行算什么，我们村“限饭”[挖鼻]】为了迎接即将到来的大阅兵以及田径世界赛，北京周边地市纷纷出台限行措施，一些小县城如今也开始实施单双号限行。限行就算了，安新三台镇居然连做饭也要限制…你封了锅台，是不是得管人家饭啊 ？#新闻in保定#<br><img src="http://ww2.sinaimg.cn/large/8be3cc61jw1eva1jxigb7j20fj0bnjry.jpg"></p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3878194824318507" target="freeweibo-mirror">//@天冷心热啊:脑残！//@只想偷懒的人:他们成功了，因为…</a>
 </h2>
 <p>//@天冷心热啊:脑残！//@只想偷懒的人:他们成功了，因为傻逼真的很多！微信圈里说天津爆炸是美日阴谋的人大有人在//@天冷心热啊: 你如果被这些王八蛋感动了你就是傻逼！<br><br>RE: 【有种演技是为了让你感动】当兵的趴在铁索桥上让群众踩背过河，没木板吗？雪灾后让当兵的用铁锹铲雪，没铲车吗？地震时用当兵的翻山越岭往灾区扛救灾物资，没飞机吗？救火戴个五毛钱的口罩就往火海里冲，没面罩吗——不是没钱，也不是科技落后，而是演悲情戏，骗你感动，然后让你忘记质疑忘记追责...<br><img src="http://ww2.sinaimg.cn/large/005RPri5gw1ev8dhrhr7mj30m80etgsc.jpg"></p>
-<p>
-	<small> ============== 11小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3878193645485213" target="freeweibo-mirror">//@半虹骑士://@黄培雄-石狮强拆维权: 我身为福建石狮…</a>
-</h2>
-<p>//@半虹骑士://@黄培雄-石狮强拆维权: 我身为福建石狮人!却还不知石狮这个全国文明城市!有优秀县委书记!要依法处理违法强拆赔偿!石狮巿的水!有多深!我不会游泳[给力][给力][给力]@迟夙生律师 @郑在索律师 @王才亮律师[给力][给力][给力]<br><br>RE: 先把爆炸公司的信息从百度屏蔽了，然后将公司“主人”多次更替，硬整出个什么“公司实际控制人”、什么“带持股的”。尼玛，谁没有常委做后台，谁就当替罪羊！[怒]<br><img src="http://ww1.sinaimg.cn/large/006bfKlvgw1ev9uvzk2bqj30i20c0mxv.jpg"></p>
 <p>
 	<small> ============== 12小时前</small>
 </p>
