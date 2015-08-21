@@ -42,7 +42,13 @@
 </h2>
 <p>可怜这么好一块石头 //@2015最后的黑暗:狗咬狗，我们只是看客，有何好事可言？！//@阳光快乐天使a: //@衔橄榄枝de飞鸽://@潮汐车道:好事。 //@惜秋微博:什么兆头？ //@发明人沈保民:转发微博<br><br>RE: 无眠—#求证# …… 有朋友消息： 刚才路过中央党校南门。蛤蟆题＂中共中央党校＂巨石刚被连根拔除。 …… 好玩，有意思，太可乐了。 …… 无眠，2015.08.21。。。<br><img src="http://ww4.sinaimg.cn/large/0064FpaQgw1evagwnz9jjj30hs0d50u1.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3878438274241142" target="freeweibo-mirror">转着转着就木有了.....</a>
+</h2>
+<p>转着转着就木有了.....<br><img src="http://ww4.sinaimg.cn/large/7e848a37jw1evapl0sjc6j20c8088wff.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3878424643115280" target="freeweibo-mirror">SPAM //@王亚军北京:我故意的[嘘] //@莱德赵克强…</a>
 </h2>
@@ -90,19 +96,19 @@
 </h2>
 <p>权利非但没有进笼子，人民的灶台却不能开火了。。只许皇帝阅兵，不许百姓开火。。<br><img src="http://ww3.sinaimg.cn/large/6362d8eagw1evamtfg4z7j20ci0m80tx.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3878413603097493" target="freeweibo-mirror">看到这个新闻我好开心！[微笑]末路穷途，我们的好日子快要来了…</a>
 </h2>
 <p>看到这个新闻我好开心！[微笑]末路穷途，我们的好日子快要来了[抓狂]//@写字李华良:我操，过分了。 //@熊华GG:卧槽，灶都给封了。[怒骂]<br><br>RE: 阅兵仪式在哪儿啊？河北？<br><img src="http://ww4.sinaimg.cn/large/9ddb72ebjw1evalwixk27j20c80lqgnh.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3878413472937504" target="freeweibo-mirror">//@沂蒙山: 我才不信呢。</a>
 </h2>
 <p>//@沂蒙山: 我才不信呢。</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3878411648697926" target="freeweibo-mirror">SPAM //@写字李华良:我操，过分了。 //@熊华GG:…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3878401339183779" target="freeweibo-mirror">点哥，你们网信办怎么选这样的货色来培养啊，掉价啊@点子正 。…</a>
 </h2>
 <p>点哥，你们网信办怎么选这样的货色来培养啊，掉价啊@点子正 。人家长者是国家领导人啊，带领国家走过了改革开放之后最艰难最艰辛的一段路，这个姓雷的凭什么这样攻击国家领导人？他收了轮子的钱了么？</p>
-<p>
-	<small> ============== 5小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3878401133486363" target="freeweibo-mirror">这盛世是堵了老百姓的嘴巴才造出来的。//@梁献: 大典//@…</a>
-</h2>
-<p>这盛世是堵了老百姓的嘴巴才造出来的。//@梁献: 大典//@新闻之殇:转发微博<br><br>RE: 【限行算个屁，人家直接限饭】河北省保定市安新县三台镇好有才，北京为了阅兵限行，该县三台镇直接给灶台都贴上了封条...<br><img src="http://ww2.sinaimg.cn/large/4d9f6f09jw1evadvwf1zrj20cs0mqwff.jpg"></p>
 <p>
 	<small> ============== 5小时前</small>
 </p>
