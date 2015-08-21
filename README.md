@@ -32,6 +32,12 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3878454543730500" target="freeweibo-mirror">潜规则。//@周泽律师:我原以为律师只要懂法、守法,就够了。…</a>
+</h2>
+<p>潜规则。//@周泽律师:我原以为律师只要懂法、守法,就够了。听我们会长这话,看来我还得去学几套切口。//@静娅_: 怎么听着就像江湖行话?过去的江湖帮派就经常这么说。//@酱里个酱:潮汕话叫识世或识事。//@何兵:合肥话叫“识相”。@李修蛟律师: 这么说就是广东话中的“识做”。太TMD扯了,还要法律干什么？</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3878450814803110" target="freeweibo-mirror">潮汕话叫识世或识事。//@何兵:合肥话叫“识相”。@李修蛟律…</a>
 </h2>
 <p>潮汕话叫识世或识事。//@何兵:合肥话叫“识相”。@李修蛟律师: 这么说就是广东话中的“识做”。太TMD扯了，还要法律干什么？</p>
@@ -96,7 +102,7 @@
 </h2>
 <p>回复@姜毅敏的微博:呵呵，柴火是一种权利，燃气灶是浪费纳税人财产。。//@姜毅敏的微博:是不让烧柴禾了。不过每家发了液化气钢瓶和灶头。<br><br>RE: 权利非但没有进笼子，人民的灶台却不能开火了。。只许皇帝阅兵，不许百姓开火。。<br><img src="http://ww3.sinaimg.cn/large/6362d8eagw1evamtfg4z7j20ci0m80tx.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3878414216234935" target="freeweibo-mirror">权利非但没有进笼子，人民的灶台却不能开火了。。只许皇帝阅兵，…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3878406775417689" target="freeweibo-mirror">SPAM 卧槽，灶都给封了。[怒骂]</a>
 </h2>
 <p>SPAM 卧槽，灶都给封了。[怒骂]<br><br>RE: 阅兵仪式在哪儿啊？河北？<br><img src="http://ww4.sinaimg.cn/large/9ddb72ebjw1evalwixk27j20c80lqgnh.jpg"></p>
-<p>
-	<small> ============== 5小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3878406154435111" target="freeweibo-mirror">阅兵仪式在哪儿啊？河北？</a>
-</h2>
-<p>阅兵仪式在哪儿啊？河北？<br><img src="http://ww4.sinaimg.cn/large/9ddb72ebjw1evalwixk27j20c80lqgnh.jpg"></p>
 <p>
 	<small> ============== 5小时前</small>
 </p>
