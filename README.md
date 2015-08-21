@@ -56,6 +56,12 @@
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3878275313077161" target="freeweibo-mirror"></a>
+</h2>
+<p></p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3878263585511710" target="freeweibo-mirror">真的么！！！//@宁可居无妻不愿夜未基: line 现在不用…</a>
 </h2>
 <p>真的么！！！//@宁可居无妻不愿夜未基: line 现在不用VPN也能用啊。//@网瘾少年清新: 呵呵 //@苍老师说我壮如山巴喳嘿:twitter耶 //@袖初凉:Wow //@waternotmoon:。。。//@Aie_猛毒映画: [思考]期间 哦 //@本场切绘:终于0..//@TW_nrl952006: 哇～ 不必翻牆了～～<br><br>RE: 【中国将开放Facebook、Twitter、YouTube和谷歌搜索的访问】国际田径联合会秘书长Essar Gabriel表示，北京锦标赛期间中国境内将可以使用社交网络脸书、推特、YouTube，以及搜索引擎谷歌。世界田径锦标赛将于8月22至30日在北京举行。@韦恩卑鄙 @正在成为超帅微软大法的青木和介 @传播微软大法的美男子<br><img src="http://ww1.sinaimg.cn/large/b7c3964djw1eva05gb6rij20rs0f1dhy.jpg"></p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3878187550908657" target="freeweibo-mirror">收到最新信息，各位战友好消息：现在各地方参战老兵都陆续到达广…</a>
 </h2>
 <p>收到最新信息，各位战友好消息：现在各地方参战老兵都陆续到达广东阳江，部份参战老兵还在半路上，南宁的今晚到达，株洲的已经到达。海南岛也到了，广东战友绝大部份到了，人数众多，阳江政府怎样处理呢？（转发）<br><img src="http://ww1.sinaimg.cn/large/c55e5f10jw1ev9wjnvjb3j205005074b.jpg"></p>
-<p>
-	<small> ============== 9小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3878183436302540" target="freeweibo-mirror">我愿意！ //@宋海聚://@葉子M微博: 转发就是支持！[…</a>
-</h2>
-<p>我愿意！ //@宋海聚://@葉子M微博: 转发就是支持！[话筒]//@陈业文新大都:我愿意！<br><br>RE: 按照法律规定，取保候审，要么人保，要么钱保。我想知道的是，在中国网民中，有多少人愿意为大个子做保人？如果愿意，请转发。我先说：为大个子取保候审做担保，我愿意。<br><img src="http://ww3.sinaimg.cn/large/3f79a379jw1ev9ssy60b4j205j07pq37.jpg"></p>
 <p>
 	<small> ============== 10小时前</small>
 </p>
