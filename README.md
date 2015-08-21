@@ -72,7 +72,7 @@
 </h2>
 <p>先把爆炸公司的信息从百度屏蔽了，然后将公司“主人”多次更替，硬整出个什么“公司实际控制人”、什么“带持股的”。尼玛，谁没有常委做后台，谁就当替罪羊！[怒]<br><img src="http://ww1.sinaimg.cn/large/006bfKlvgw1ev9uvzk2bqj30i20c0mxv.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3878161097615896" target="freeweibo-mirror">天津大爆炸就是改革的巨大成果，为改开放了个大礼花，还他妈不反…</a>
 </h2>
@@ -90,7 +90,7 @@
 </h2>
 <p>Blaise Cepis 是一位纽约艺术摄影师。（blaisecepis.com）<br><img src="http://ww1.sinaimg.cn/large/ea588ef2jw1ev8nnjj2s1j20sq0xe43h.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3878004390557245" target="freeweibo-mirror">SPAM //@乱弄三千: 都去公款吃喝了 //@个性快递:…</a>
 </h2>
