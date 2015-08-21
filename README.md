@@ -20,6 +20,18 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3878397429857979" target="freeweibo-mirror">//@天高云淡T01: 一共9张图片，每张都具有历史价值！/…</a>
+</h2>
+<p>//@天高云淡T01: 一共9张图片，每张都具有历史价值！//@人形畜牲五毛公知狗: //@天高云淡T01:第7张图——参与抓捕“四人帮”众人的结局如何？——有参考价值！人在做，天在看！<br><br>RE: 原任中共中央副主席、中顾委委员汪东兴逝世 http://t.cn/RLk747Q 华汪之流，国际笑尿，民族败类，历史罪人，遗臭万年！ [弱][弱][弱][吐][吐][吐] @思想火炬@军报记者@紫光阁<br><img src="http://ww4.sinaimg.cn/large/006004TRgw1evaatn8jg0j30c806l74o.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3878392493199708" target="freeweibo-mirror">有图有真相系列。 //@杨佩昌:为啥拆除？[吃惊]//@弱者…</a>
+</h2>
+<p>有图有真相系列。 //@杨佩昌:为啥拆除？[吃惊]//@弱者的躯壳: //@晴朗李寒://@小麦撒野: 我们这里市中心有个工厂是他题词的，前一段整体拆除了<br><br>RE: 今天中共中央党校南门。江泽民题＂中共中央党校＂巨石刚被清除……（李金山转发图片）<br><img src="http://ww1.sinaimg.cn/large/438c7b53jw1evahepyxn9j20k00etjug.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3878389695750717" target="freeweibo-mirror">//@笨笨an: 什么节奏？//@杨佩昌:为啥拆除？[吃惊]…</a>
 </h2>
 <p>//@笨笨an: 什么节奏？//@杨佩昌:为啥拆除？[吃惊]//@小麦撒野:我们这里市中心有个工厂是他题词的，前一段整体拆除了。<br><br>RE: 今天中共中央党校南门。江泽民题＂中共中央党校＂巨石刚被清除……（李金山转发图片）<br><img src="http://ww1.sinaimg.cn/large/438c7b53jw1evahepyxn9j20k00etjug.jpg"></p>
@@ -84,7 +96,7 @@
 </h2>
 <p>野史。<br><br>RE: 老猫的大内总管汪东兴死掉了！他是先帝的铁杆亲信，也是76年怀仁堂事变的主要策划者。有一种说法认为：太祖过于好色，泡妞太多，使江皇后怨气冲天，迁怒于具体负责操作的汪，大有和他秋后算总账的意思，汪不得已先发制人，说服华二世与老臣们合作，结果使先帝的政治安排完全落空。</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3878333056042994" target="freeweibo-mirror">SPAM 呵呵。//@闵玉平:默默地转。 //@-孔智勇:两…</a>
 </h2>
@@ -127,18 +139,6 @@
 <p>端傳媒出品  1200座十字架被拆，亞洲最大教堂陷危機<br><img src="http://ww2.sinaimg.cn/large/65cc9274jw1evaaabhoe5j20hsiio7wj.jpg"></p>
 <p>
 	<small> ============== 7小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3878296104198621" target="freeweibo-mirror">普通家庭灶台？</a>
-</h2>
-<p>普通家庭灶台？<br><br>RE: #保定身边事#【限行算什么，我们村“限饭”[挖鼻]】为了迎接即将到来的大阅兵以及田径世界赛，北京周边地市纷纷出台限行措施，一些小县城如今也开始实施单双号限行。限行就算了，安新三台镇居然连做饭也要限制…你封了锅台，是不是得管人家饭啊 ？#新闻in保定#<br><img src="http://ww2.sinaimg.cn/large/8be3cc61jw1eva1jxigb7j20fj0bnjry.jpg"></p>
-<p>
-	<small> ============== 8小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3878293767701481" target="freeweibo-mirror">嘿嘿。[酷]//@谭人玮:咦……</a>
-</h2>
-<p>嘿嘿。[酷]//@谭人玮:咦……<br><br>RE: </p>
-<p>
-	<small> ============== 8小时前</small>
 </p>
 <table>
     <tr>
