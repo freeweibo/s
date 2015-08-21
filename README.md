@@ -60,13 +60,13 @@
 </h2>
 <p>我视力不大好，看不清炉灶下那字条写着什么？网友帮看看。[围观]<br><img src="http://ww2.sinaimg.cn/large/006cjFarjw1ev9w79xcz3j30hs0fxac9.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3878182178211560" target="freeweibo-mirror">//@陶景洲:右边很实在。 //@徐德军律师:工作会议开过了…</a>
 </h2>
 <p>//@陶景洲:右边很实在。 //@徐德军律师:工作会议开过了，如果真要善待律师，请从哈儿做起。<br><br>RE: 按照法律规定，取保候审，要么人保，要么钱保。我想知道的是，在中国网民中，有多少人愿意为大个子做保人？如果愿意，请转发。我先说：为大个子取保候审做担保，我愿意。<br><img src="http://ww3.sinaimg.cn/large/3f79a379jw1ev9ssy60b4j205j07pq37.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3878171151368165" target="freeweibo-mirror">先把爆炸公司的信息从百度屏蔽了，然后将公司“主人”多次更替，…</a>
 </h2>
