@@ -30,7 +30,7 @@
 </h2>
 <p>三三在发泄对北京不满，虽然他知道是找死！<br><br>RE: 北韓為什麼在這個時候「尋釁滋事」？其實這與韓國總統「應邀」參加北京的慶典有關，其實北韓這種流氓行為是北京一貫的作風。<br><img src="http://ww2.sinaimg.cn/large/006cv51Ojw1evahf4y50kj30b30890tp.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3878367101026335" target="freeweibo-mirror">北韓為什麼在這個時候「尋釁滋事」？其實這與韓國總統「應邀」參…</a>
 </h2>
