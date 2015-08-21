@@ -26,6 +26,18 @@
 <p>
 	<small> ============== 1小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3878416195683321" target="freeweibo-mirror">回复@姜毅敏的微博:呵呵，柴火是一种权利，燃气灶是浪费纳税人…</a>
+</h2>
+<p>回复@姜毅敏的微博:呵呵，柴火是一种权利，燃气灶是浪费纳税人财产。。//@姜毅敏的微博:是不让烧柴禾了。不过每家发了液化气钢瓶和灶头。<br><br>RE: 权利非但没有进笼子，人民的灶台却不能开火了。。只许皇帝阅兵，不许百姓开火。。<br><img src="http://ww3.sinaimg.cn/large/6362d8eagw1evamtfg4z7j20ci0m80tx.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3878413603097493" target="freeweibo-mirror">看到这个新闻我好开心！[微笑]末路穷途，我们的好日子快要来了…</a>
+</h2>
+<p>看到这个新闻我好开心！[微笑]末路穷途，我们的好日子快要来了[抓狂]//@写字李华良:我操，过分了。 //@熊华GG:卧槽，灶都给封了。[怒骂]<br><br>RE: 阅兵仪式在哪儿啊？河北？<br><img src="http://ww4.sinaimg.cn/large/9ddb72ebjw1evalwixk27j20c80lqgnh.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3878411648697926" target="freeweibo-mirror">SPAM //@写字李华良:我操，过分了。 //@熊华GG:…</a>
 </h2>
 <p>SPAM //@写字李华良:我操，过分了。 //@熊华GG:卧槽，灶都给封了。[怒骂]<br><br>RE: 阅兵仪式在哪儿啊？河北？<br><img src="http://ww4.sinaimg.cn/large/9ddb72ebjw1evalwixk27j20c80lqgnh.jpg"></p>
@@ -37,6 +49,12 @@
 <p>SPAM 我操，过分了。 //@熊华GG:卧槽，灶都给封了。[怒骂]<br><br>RE: 阅兵仪式在哪儿啊？河北？<br><img src="http://ww4.sinaimg.cn/large/9ddb72ebjw1evalwixk27j20c80lqgnh.jpg"></p>
 <p>
 	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3878406775417689" target="freeweibo-mirror">SPAM 卧槽，灶都给封了。[怒骂]</a>
+</h2>
+<p>SPAM 卧槽，灶都给封了。[怒骂]<br><br>RE: 阅兵仪式在哪儿啊？河北？<br><img src="http://ww4.sinaimg.cn/large/9ddb72ebjw1evalwixk27j20c80lqgnh.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3878406154435111" target="freeweibo-mirror">阅兵仪式在哪儿啊？河北？</a>
 </h2>
@@ -80,6 +98,12 @@
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3878391277401310" target="freeweibo-mirror">SPAM 啧啧啧。切断河北污染源？</a>
+</h2>
+<p>SPAM 啧啧啧。切断河北污染源？<br><br>RE: 原来限号停产都已经out了，安新县斗已经限饭了，灶台封了'政府管饭不[哈哈]<br><img src="http://ww4.sinaimg.cn/large/a42e3aafjw1ev99g11vwyj20fj0bn75f.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3878389695750717" target="freeweibo-mirror">//@笨笨an: 什么节奏？//@杨佩昌:为啥拆除？[吃惊]…</a>
 </h2>
 <p>//@笨笨an: 什么节奏？//@杨佩昌:为啥拆除？[吃惊]//@小麦撒野:我们这里市中心有个工厂是他题词的，前一段整体拆除了。<br><br>RE: 今天中共中央党校南门。江泽民题＂中共中央党校＂巨石刚被清除……（李金山转发图片）<br><img src="http://ww1.sinaimg.cn/large/438c7b53jw1evahepyxn9j20k00etjug.jpg"></p>
@@ -113,30 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3878387694939335" target="freeweibo-mirror">SPAM 哈哈哈哈，想到那个笑话，过去牛马不如，现在好了，如…</a>
 </h2>
 <p>SPAM 哈哈哈哈，想到那个笑话，过去牛马不如，现在好了，如了。 //@简直:人类历史之最 //@Thefourthwave://@冉氏艺文志: 在限制和折腾民众这一点上，其想像力古今中外皆难望其项背。<br><br>RE: 原来限号停产都已经out了，安新县斗已经限饭了，灶台封了'政府管饭不[哈哈]<br><img src="http://ww4.sinaimg.cn/large/a42e3aafjw1ev99g11vwyj20fj0bn75f.jpg"></p>
-<p>
-	<small> ============== 3小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3878385144837798" target="freeweibo-mirror">俄罗斯，朝鲜，天朝，还有谁擅长此项自淫工程？ //@潘丽华律…</a>
-</h2>
-<p>俄罗斯，朝鲜，天朝，还有谁擅长此项自淫工程？ //@潘丽华律师:多少底层民众鸡冻得热泪盈眶呢！//@老留学李嘉玉:这种皇家阅兵的意义在于祸害平民，吓唬邻里，炫耀政权。//@不知bz:流氓賊寇都稀飯擺擺譜嘛！<br><br>RE: 阅兵闹剧彰显的权力之恶，只有中国这种魔幻作死主义国度才会发生。。。</p>
-<p>
-	<small> ============== 3小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3878384964568005" target="freeweibo-mirror">SPAM [吃惊] //@作家崔成浩:怕空气污染？哈哈哈哈……</a>
-</h2>
-<p>SPAM [吃惊] //@作家崔成浩:怕空气污染？哈哈哈哈… //@罗昌平:[汗]//@张宏杰: [微笑]<br><br>RE: 原来限号停产都已经out了，安新县斗已经限饭了，灶台封了'政府管饭不[哈哈]<br><img src="http://ww4.sinaimg.cn/large/a42e3aafjw1ev99g11vwyj20fj0bn75f.jpg"></p>
-<p>
-	<small> ============== 3小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3878383710795712" target="freeweibo-mirror">SPAM 北京到处大阅兵的气氛。其实阅兵不时举行，汶川地震已…</a>
-</h2>
-<p>SPAM 北京到处大阅兵的气氛。其实阅兵不时举行，汶川地震已经全民阅了空军，长江翻船阅了海军，这次天津又阅了生化部队，就差核武部队了，但大阅兵也看不出来</p>
-<p>
-	<small> ============== 3小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3878379272602994" target="freeweibo-mirror">太无耻啦//@于晓华_经济:吃人民的饭，砸人民的锅。几千年下…</a>
-</h2>
-<p>太无耻啦//@于晓华_经济:吃人民的饭，砸人民的锅。几千年下来，人民都是这么做饭的，污染了吗？//@罗昌平: [汗]//@张宏杰: [微笑]<br><br>RE: 原来限号停产都已经out了，安新县斗已经限饭了，灶台封了'政府管饭不[哈哈]<br><img src="http://ww4.sinaimg.cn/large/a42e3aafjw1ev99g11vwyj20fj0bn75f.jpg"></p>
 <p>
 	<small> ============== 3小时前</small>
 </p>
