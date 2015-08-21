@@ -56,6 +56,12 @@
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3878182664709025" target="freeweibo-mirror">我视力不大好，看不清炉灶下那字条写着什么？网友帮看看。[围观…</a>
+</h2>
+<p>我视力不大好，看不清炉灶下那字条写着什么？网友帮看看。[围观]<br><img src="http://ww2.sinaimg.cn/large/006cjFarjw1ev9w79xcz3j30hs0fxac9.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3878171151368165" target="freeweibo-mirror">先把爆炸公司的信息从百度屏蔽了，然后将公司“主人”多次更替，…</a>
 </h2>
 <p>先把爆炸公司的信息从百度屏蔽了，然后将公司“主人”多次更替，硬整出个什么“公司实际控制人”、什么“带持股的”。尼玛，谁没有常委做后台，谁就当替罪羊！[怒]<br><img src="http://ww1.sinaimg.cn/large/006bfKlvgw1ev9uvzk2bqj30i20c0mxv.jpg"></p>
@@ -66,7 +72,7 @@
 </h2>
 <p>天津大爆炸就是改革的巨大成果，为改开放了个大礼花，还他妈不反思改革罪恶吗？ //@中华一P民://@朱剑00435:改革最主要是丢弃普通老百姓，政府可以减轻负担让掌握权力和权利的人发横财而一夜暴富，工人阶级用30多年血汗创造的财富和固定资产变成每个领导干部发财的第一桶金，每个单位变成家族式企业，</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3878152881295403" target="freeweibo-mirror">按照法律规定，取保候审，要么人保，要么钱保。我想知道的是，在…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3877940414558362" target="freeweibo-mirror">真有“上厕所实名制”？前段时间，我听人调侃总有一天，天朝会有…</a>
 </h2>
 <p>真有“上厕所实名制”？前段时间，我听人调侃总有一天，天朝会有“上厕所实名制”，我当时只是当个笑话，一笑了之。没想到真有啊！这个朝代，太让人！让人！让人！我已经无话可说了！<br><img src="http://ww2.sinaimg.cn/large/b5978992jw1ev94ey4bj5j20f00qognf.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3877938745721600" target="freeweibo-mirror">六米深的水，这字幕组[馋嘴]</a>
-</h2>
-<p>六米深的水，这字幕组[馋嘴]</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
