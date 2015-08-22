@@ -36,7 +36,7 @@
 </h2>
 <p>实名举报法轮功制造舆论污蔑我蛤！</p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3878459786807591" target="freeweibo-mirror">愿打愿挨，愿骗愿受。</a>
 </h2>
@@ -120,7 +120,7 @@
 </h2>
 <p>回复@姜毅敏的微博:呵呵，柴火是一种权利，燃气灶是浪费纳税人财产。。//@姜毅敏的微博:是不让烧柴禾了。不过每家发了液化气钢瓶和灶头。<br><br>RE: 权利非但没有进笼子，人民的灶台却不能开火了。。只许皇帝阅兵，不许百姓开火。。<br><img src="http://ww3.sinaimg.cn/large/6362d8eagw1evamtfg4z7j20ci0m80tx.jpg"></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3878414216234935" target="freeweibo-mirror">权利非但没有进笼子，人民的灶台却不能开火了。。只许皇帝阅兵，…</a>
 </h2>
