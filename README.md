@@ -48,7 +48,7 @@
 </h2>
 <p>SPAM 朝阳区<br><br>RE: #北京事儿#【[心]】@妈妈系郝婧妤 ：阅兵预演的坦克和兵哥哥们从我家门前经过！太震撼了！<br><img src="http://ww4.sinaimg.cn/large/63136032jw1evbbxv2ykoj20hs0nq0yg.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3878635763646525" target="freeweibo-mirror">SPAM 黄色涂装太民主[doge]</a>
 </h2>
@@ -96,7 +96,7 @@
 </h2>
 <p>SPAM [伤心]//@林峰心连心: #心心相连# [吃惊]纳税人养的一群白眼儿狼[伤心]<br><br>RE: 现在警察也不容易，既要暴力抓捕疑是犯罪嫌疑人，又要忙着用非致命武器辣椒水喷雾之类的对付拍照的围观群众[吃惊]！！！ http://t.cn/RLk6Em4</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3878606641912039" target="freeweibo-mirror">【中央党校校名题字石被挪走】现场图片显示，题有“中共中央党校…</a>
 </h2>
@@ -116,6 +116,12 @@
 <p>
 	<small> ============== 5小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3878592318130778" target="freeweibo-mirror">阳江市人民政府暴打解放老兵，原因由于政府克扣老兵国家补贴！求…</a>
+</h2>
+<p>阳江市人民政府暴打解放老兵，原因由于政府克扣老兵国家补贴！求散！微博原文http://t.cn/RLk1PQE爆料人：@S-CHAM<br><img src="http://ww1.sinaimg.cn/large/7db92c47gw1evb76pzeqrj20hs0vkna5.jpg"></p>
+<p>
+	<small> ============== 6小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3878591198512403" target="freeweibo-mirror">SPAM //@程中柳:最能顾全大局的亡国奴！//@编剧林莺…</a>
 </h2>
 <p>SPAM //@程中柳:最能顾全大局的亡国奴！//@编剧林莺:命都没了要钱何用？想不开。//@ChoeGyeong://@流沙有金6: 苍天啊？大地啊？<br><br>RE: 死者叫周云芝，是湖南省宁乡灰汤政府强拆被逼死的，她家的房子位于紫龙湾大桥公路边，5口人一栋楼房，政府只出52万，只求加5000元，政府硬不依。第二天早上不到6点就来几百人来强拆，一人在家的她，被7—8个大汉男人拖出来送政府关押几天后，放他出来逼她签字、又扣1O万只42万，政府太黑只有跳楼。<br><img src="http://ww4.sinaimg.cn/large/95bcd0d4jw1eval92jzztj20m80go75e.jpg"></p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3878585091713506" target="freeweibo-mirror">//@刘毅:正部级面罩和正科级口罩。 //@大尸凶的漫画:霸…</a>
 </h2>
 <p>//@刘毅:正部级面罩和正科级口罩。 //@大尸凶的漫画:霸气侧漏//@黄龙游子:就这样还让孩子上学？缓缓查清楚最好<br><br>RE: 环境保护部部长陈吉宁查看天津事故核心区氰化物处置<br><img src="http://ww3.sinaimg.cn/large/8a742dcbgw1evahj4fljaj20fs0bjq4n.jpg"></p>
-<p>
-	<small> ============== 6小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3878580184449647" target="freeweibo-mirror">【律师大会出成果：规矩律师张学兵，政治律师钱列阳，道德律师陈…</a>
-</h2>
-<p>【律师大会出成果：规矩律师张学兵，政治律师钱列阳，道德律师陈平凡】……<br><img src="http://ww2.sinaimg.cn/large/63869567jw1evb5vxzq0ej20f00qojst.jpg"></p>
 <p>
 	<small> ============== 6小时前</small>
 </p>
