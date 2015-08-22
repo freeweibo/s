@@ -90,31 +90,31 @@
 </h2>
 <p>//@大案: 如果换个人说...<br><br>RE: 【新华网：正确理解毛泽东"感谢日本侵略"一语】1964.7.10，毛对佐佐木更三说：“没有你们皇军侵略大半个中国，中国人民就不能团结起来对付蒋介石，中国共产党就夺取不了政权。所以日本皇军是我们中国共产党人的好教员，也可以说是大恩人大救星。”毛与外宾谈话曾多次说过类似的话http://t.cn/RLFchEo<br><img src="http://ww3.sinaimg.cn/large/656952ecgw1evbrk1fv4uj20a90akwgc.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3878798111890730" target="freeweibo-mirror">SPAM 你保证照片不是26年前的？</a>
 </h2>
 <p>SPAM 你保证照片不是26年前的？<br><br>RE: 坦克进京……阅兵预演，今晚终于可以放心发[泪]<br><img src="http://ww2.sinaimg.cn/large/62c109c2jw1evbuvik9etj20hs0dbjta.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3878797730244567" target="freeweibo-mirror">坦克进京……阅兵预演，今晚终于可以放心发[泪]</a>
 </h2>
 <p>坦克进京……阅兵预演，今晚终于可以放心发[泪]<br><img src="http://ww2.sinaimg.cn/large/62c109c2jw1evbuvik9etj20hs0dbjta.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3878797511807380" target="freeweibo-mirror">SPAM 水印好赞</a>
 </h2>
 <p>SPAM 水印好赞</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3878797411337284" target="freeweibo-mirror">团结湖到东四十条马路上 全是作战车...@北京人捍卫北京城 …</a>
 </h2>
 <p>团结湖到东四十条马路上 全是作战车...@北京人捍卫北京城 @北京人聊北京事er @北京人不知道的北京事儿<br><img src="http://ww3.sinaimg.cn/large/005PLFSmjw1evbuty4nt7j30qo0zkdml.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3878796023137944" target="freeweibo-mirror">SPAM #93大阅兵##9.3天安门阅兵#今晚狂刷微博，可…</a>
 </h2>
