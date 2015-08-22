@@ -108,7 +108,7 @@
 </h2>
 <p>回复@lzscript:羊毛出在猪身上。//@lzscript:人头一天200元，煮不煮饭无所谓了<br><br>RE: 权利非但没有进笼子，人民的灶台却不能开火了。。只许皇帝阅兵，不许百姓开火。。<br><img src="http://ww3.sinaimg.cn/large/6362d8eagw1evamtfg4z7j20ci0m80tx.jpg"></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3878417046712498" target="freeweibo-mirror">SPAM 至于吗？</a>
 </h2>
