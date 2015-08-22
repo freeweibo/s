@@ -38,6 +38,12 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3878746929382687" target="freeweibo-mirror">这张好，杀人放火金腰带[doge]</a>
+</h2>
+<p>这张好，杀人放火金腰带[doge]<br><img src="http://ww1.sinaimg.cn/large/542184b2jw1evbp1b8n2mj20fc0qon19.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3878746458960681" target="freeweibo-mirror">SPAM  //@导演宋翔:假图真事</a>
 </h2>
 <p>SPAM  //@导演宋翔:假图真事<br><br>RE: 如图<br><img src="http://ww4.sinaimg.cn/large/706dd2c3jw1evbit0l6kjj20il0c8t9w.jpg"></p>
@@ -54,7 +60,7 @@
 </h2>
 <p>看图片是控制了，绝对不是P的，全都是军方便衣//@反烟人愚公在线:是否放信号，新浪的态度已经给出了答案[太开心][太开心][太开心]//@请叫我大上哥://@反烟人愚公在线:这样的图片突然在微博不断出现，绝非儿戏！<br><br>RE: 了解中国政治生活或者知道点内幕的网友是否注意到，新闻联播屡屡提起江泽民从外地送画圈这个细节？这就说明他早就被限制人身自由了！提他的名字是因为给外界一个信号而已，如果没有猜错的话中央有可能在阅兵过后宣布对他采取强制措施<br><img src="http://ww4.sinaimg.cn/large/005Xl1Rjjw1evbmvbdo3zj30im0dyjsw.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3878742781222157" target="freeweibo-mirror">/退而不休的典范！/@为你而来--振臂再呼:一面对邓推崇不已…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3878724338625125" target="freeweibo-mirror">有过前车之鉴//@傻小子吧:[笑cry][笑cry][笑cr…</a>
 </h2>
 <p>有过前车之鉴//@傻小子吧:[笑cry][笑cry][笑cry]居心叵测！<br><br>RE: 一批五毛，自干五，还有披着自干五大衣的生意人被网新办邀请搞活动，另一些以为应该被邀请而没被邀请的同志吃醋了，于是就开撕了。也可以理解，都是有头有脸的人，为什么邀请他们不邀请我啊？他们算个卵啊？先别忙着撕昵，会不会是网信办故意设的局，来分化你们昵？[嘻嘻]</p>
-<p>
-	<small> ============== 4小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3878722102847794" target="freeweibo-mirror">//@谢湘林://@TV哇哇:湖南境内打长沙会战干死十万日军…</a>
-</h2>
-<p>//@谢湘林://@TV哇哇:湖南境内打长沙会战干死十万日军，好样的了1/3的抗日大战役，无一场溃败，以极其惨烈的军民伤亡代价极大的震慑了日寇，为抗日的最终胜利作出了巨大的牺牲。//@CSU-大晟:湘军威武[泪流满面]//@TV哇哇: [泪]//@冷夜烈猫:很好！台湾那边有老兵来吗？//@青衿Scholar://@复旦陈云</p>
 <p>
 	<small> ============== 4小时前</small>
 </p>
