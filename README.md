@@ -60,7 +60,7 @@
 </h2>
 <p>为了政府的面子，很想知道政府存在的目的又是为了啥？ 一个国家，限制房子，限制车子、限制互联网，限制人口、限制透明、限制真相、限制新闻、限制自由、限制说话、限制公平、限制正义……这个国家什么都限制，唯独不限制的，就是政府的权力！[哼]<br><img src="http://ww4.sinaimg.cn/large/c5ed7ecfjw1evb1vsdwj9j20h00u3dk5.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3878538220262262" target="freeweibo-mirror">大致等于扯淡的多难兴邦，装逼表示有文化[噢耶]//@djvu…</a>
 </h2>
