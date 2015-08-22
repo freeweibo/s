@@ -30,7 +30,7 @@
 </h2>
 <p>官方都说空气很好很洁净，但是为了命，部长还是带着防毒面具过去了，这才叫：专业！<br><br>RE: 环境保护部部长陈吉宁查看天津事故核心区氰化物处置<br><img src="http://ww3.sinaimg.cn/large/8a742dcbgw1evahj4fljaj20fs0bjq4n.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3878608969909824" target="freeweibo-mirror">都是哈巴狗。</a>
 </h2>
@@ -120,13 +120,13 @@
 </h2>
 <p>空气质量对人体造不成危害！ 这话谁说的？<br><br>RE: 环境保护部部长陈吉宁查看天津事故核心区氰化物处置<br><img src="http://ww3.sinaimg.cn/large/8a742dcbgw1evahj4fljaj20fs0bjq4n.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3878566003725250" target="freeweibo-mirror">//@佩尔琳: //@-志士仁心:这个国家什么都限制，唯独不…</a>
 </h2>
 <p>//@佩尔琳: //@-志士仁心:这个国家什么都限制，唯独不限制的，就是政府的权力！[给力]<br><br>RE: 为了政府的面子，很想知道政府存在的目的又是为了啥？ 一个国家，限制房子，限制车子、限制互联网，限制人口、限制透明、限制真相、限制新闻、限制自由、限制说话、限制公平、限制正义……这个国家什么都限制，唯独不限制的，就是政府的权力！[哼]<br><img src="http://ww4.sinaimg.cn/large/c5ed7ecfjw1evb1vsdwj9j20h00u3dk5.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3878564673453628" target="freeweibo-mirror">//@战略兵王V:毛就是大恶魔，为了政权让中国在抗日胜利后又…</a>
 </h2>
