@@ -102,7 +102,13 @@
 </h2>
 <p>//@邱大春:专家表示，那些鱼是自己淹死的。<br><br>RE: 不传谣、不信谣，请问调查组：是否真有2000农民工在天津港爆炸中失踪？</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3878738506356325" target="freeweibo-mirror">哎！</a>
+</h2>
+<p>哎！<br><br>RE: 两段境外媒体天津事件采访视频：BBC采访报道，看到画面上横幅上闪过：相信政府、拒绝隐瞒等大字。http://t.cn/RLDpoDJ ；另一段境外媒体的视频，带着哭腔的大姐给滨海新区的区委书记、区长讲空气清新剂的冷笑话。印象最深的，是那个靠着车窗表情复杂地围观的一个天津大爷。http://t.cn/RLkBfnq</p>
+<p>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3878736527352560" target="freeweibo-mirror">专家表示，那些鱼是自己淹死的。</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3878731103702845" target="freeweibo-mirror">#突发#龙山县，他砂乡，今天出大事了，汪XX杀了14人，已经…</a>
 </h2>
 <p>#突发#龙山县，他砂乡，今天出大事了，汪XX杀了14人，已经死了九人，还有4人重伤！还有个40天婴儿的都被杀死、真的太恐怖了、这种人真是天里难容[怒][怒][怒][怒][怒]<br><img src="http://ww3.sinaimg.cn/large/c275a3adgw1evbn80pxusj20nq0fzace.jpg"></p>
-<p>
-	<small> ============== 4小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3878728041695996" target="freeweibo-mirror">了解中国政治生活或者知道点内幕的网友是否注意到，新闻联播屡屡…</a>
-</h2>
-<p>了解中国政治生活或者知道点内幕的网友是否注意到，新闻联播屡屡提起江泽民从外地送画圈这个细节？这就说明他早就被限制人身自由了！提他的名字是因为给外界一个信号而已，如果没有猜错的话中央有可能在阅兵过后宣布对他采取强制措施<br><img src="http://ww4.sinaimg.cn/large/005Xl1Rjjw1evbmvbdo3zj30im0dyjsw.jpg"></p>
 <p>
 	<small> ============== 4小时前</small>
 </p>
