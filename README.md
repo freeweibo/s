@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3878660546846832" target="freeweibo-mirror">系统自动转发//@草木不深:妖言[阴险][阴险][阴险]</a>
+</h2>
+<p>系统自动转发//@草木不深:妖言[阴险][阴险][阴险]</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3878658802966618" target="freeweibo-mirror">//@青岛记:官V发的！！//@东面有海:[思考]   @黄…</a>
 </h2>
 <p>//@青岛记:官V发的！！//@东面有海:[思考]   @黄岛老实人 @方思古钱儿 @黄花菜_凉了 @魅力灵山湾 @狂龙 @黄岛今日 @青岛记 @寳貝斌斌 @向北岭 @常山蛇1 @77623说 @胶南PETER @北美飞霜 @胶南印象 @充气菩萨 @黄岛硬汉<br><br>RE: 【中共中央党校整修 校名题词巨石被移走】8月21日，北京，海淀区大有庄100号中共中央党校。当日，中央党校门前题有“中共中央党校”的巨石已经被移走，大型施工机械正在现场施工，几名工人在整理裸露的地面。http://t.cn/RLkB3U3<br><img src="http://ww4.sinaimg.cn/large/515a7464jw1evbaq46axwj20hs0tetfu.jpg"></p>
@@ -56,6 +62,18 @@
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3878634844205090" target="freeweibo-mirror">#9.3天安门阅兵#会想起08年阅兵全小区人民趴阳台上数飞机…</a>
+</h2>
+<p>#9.3天安门阅兵#会想起08年阅兵全小区人民趴阳台上数飞机的盛况<br><br>RE: 坦克和兵哥哥们从我家门前过。。。家门口的路从未如此清静过，因为不开走的就都被拖走了。。。万幸小区出入没被封。。。感谢祖国感谢党。。。所有图片来自邻居盗图，感谢中国好邻居[呲牙]@北京人不知道的北京事儿<br><img src="http://ww1.sinaimg.cn/large/6a8ada83jw1evbb44cz4lj20hs0nqq8k.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3878633279812948" target="freeweibo-mirror">//@苏州朱永健: //@Belief1977: //@作家…</a>
+</h2>
+<p>//@苏州朱永健: //@Belief1977: //@作家盘子:解放台湾岛，核平小日本，爱国青年赶紧上。<br><br>RE: 阳江市人民政府暴打解放老兵，原因由于政府克扣老兵国家补贴！求散！微博原文http://t.cn/RLk1PQE爆料人：@S-CHAM<br><img src="http://ww1.sinaimg.cn/large/7db92c47gw1evb76pzeqrj20hs0vkna5.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3878633019871074" target="freeweibo-mirror">#北京事儿#【[心]】@妈妈系郝婧妤 ：阅兵预演的坦克和兵哥…</a>
 </h2>
 <p>#北京事儿#【[心]】@妈妈系郝婧妤 ：阅兵预演的坦克和兵哥哥们从我家门前经过！太震撼了！<br><img src="http://ww4.sinaimg.cn/large/63136032jw1evbbxv2ykoj20hs0nq0yg.jpg"></p>
@@ -72,7 +90,7 @@
 </h2>
 <p>【中共中央党校整修 校名题词巨石被移走】8月21日，北京，海淀区大有庄100号中共中央党校。当日，中央党校门前题有“中共中央党校”的巨石已经被移走，大型施工机械正在现场施工，几名工人在整理裸露的地面。http://t.cn/RLkB3U3<br><img src="http://ww4.sinaimg.cn/large/515a7464jw1evbaq46axwj20hs0tetfu.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3878619686339703" target="freeweibo-mirror">大半个中国停滞，换来阅兵蓝和龙颜大悦。该明白法西斯的含义了吧…</a>
 </h2>
@@ -80,11 +98,17 @@
 <p>
 	<small> ============== 4小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3878614942148576" target="freeweibo-mirror">[哈哈]//@五福祥云V:[哈哈][哈哈]绝对培养贪官的摇篮</a>
+</h2>
+<p>[哈哈]//@五福祥云V:[哈哈][哈哈]绝对培养贪官的摇篮<br><br>RE: #亚蒙社会观察#【砸牌子】十八大以来，被抓的高级贪官几乎100%中央党校毕业，你说气人不气人？索性，一气之下，中央党校自己把牌子铲了，[哈哈][哈哈][哈哈]<br><img src="http://ww4.sinaimg.cn/large/681521d1jw1evb0pnp7isj20hs0ui0zo.jpg"></p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3878612807730556" target="freeweibo-mirror">是被吓哭了吧？</a>
 </h2>
 <p>是被吓哭了吧？<br><br>RE: 湖南省委书记观看《中国出了个毛泽东》：眼泪都快出来了。听到省委书记如此评价，看演出的市委书记们说，眼泪不停的打转。县委书记们说，边看边偷偷地掉眼泪。乡镇书记们说，电影结束时，经不住大哭起来。。。</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3878611788306601" target="freeweibo-mirror">官方都说空气很好很洁净，但是为了命，部长还是带着防毒面具过去…</a>
 </h2>
@@ -115,30 +139,6 @@
 <p>【中央党校校名题字石被挪走】现场图片显示，题有“中共中央党校”的巨石已被移走，大型施工机械正施工。针对由此产生的种种解读，有分析人士指出，那块巨石不过是从校门外挪到校园内，并无特殊用意。因为影响秩序、经常被人刮金等原因，一年前已酝酿挪动。组图：http://t.cn/RLkr66Z<br><img src="http://ww1.sinaimg.cn/large/60718250jw1evb8wmqcv7j20hs0mbn2j.jpg"></p>
 <p>
 	<small> ============== 5小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3878606407121503" target="freeweibo-mirror">设计好的！//@侯宁: 不查就没有[喵喵] //@郭晏平:回…</a>
-</h2>
-<p>设计好的！//@侯宁: 不查就没有[喵喵] //@郭晏平:回复@冷眼看花糸:右边是邓家的管家吗？有账本和证据吗？[哈哈]//@冷眼看花糸:几万亿的家族资产，确实先富了<br><br>RE: 今天是邓小平诞辰，他是中国历史上第一位第一次给劳动人民松绑的旷世伟人，可惜至今尚无后来者！<br><img src="http://ww2.sinaimg.cn/large/4ac11db3jw1evb4mzoa6tj20cg0hsq3s.jpg"></p>
-<p>
-	<small> ============== 5小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3878597192146715" target="freeweibo-mirror">大阅兵搞搞也好，能让大家看看这些人的思维还停留在什么时代。 …</a>
-</h2>
-<p>大阅兵搞搞也好，能让大家看看这些人的思维还停留在什么时代。 //@王东成cyu:一骑红尘，只送荔枝。朝廷的事再小，也是大事；民众的事再大，也是小事。朝廷的利益与民众的利益常常不一致，甚至常常对立；而朝廷往往把其私利说成是民众、民族的利益，驱使民众为之当炮灰。<br><br>RE: 一边是天津爆炸案事前治理和事后处理的粗糙紊乱，另一边是抗战大阅兵每个人、每一步、每一方队的精益求精，以及提早的限行和各种防范措施的落实。这是皇权制度的最好的写照：但凡涉及民众的事情，能少用一份心思就少用一份心思，但凡涉及皇上的事情，能用十二分心思绝不用十一份。一骑红尘，只送荔枝。</p>
-<p>
-	<small> ============== 5小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3878592318130778" target="freeweibo-mirror">阳江市人民政府暴打解放老兵，原因由于政府克扣老兵国家补贴！求…</a>
-</h2>
-<p>阳江市人民政府暴打解放老兵，原因由于政府克扣老兵国家补贴！求散！微博原文http://t.cn/RLk1PQE爆料人：@S-CHAM<br><img src="http://ww1.sinaimg.cn/large/7db92c47gw1evb76pzeqrj20hs0vkna5.jpg"></p>
-<p>
-	<small> ============== 6小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3878591198512403" target="freeweibo-mirror">SPAM //@程中柳:最能顾全大局的亡国奴！//@编剧林莺…</a>
-</h2>
-<p>SPAM //@程中柳:最能顾全大局的亡国奴！//@编剧林莺:命都没了要钱何用？想不开。//@ChoeGyeong://@流沙有金6: 苍天啊？大地啊？<br><br>RE: 死者叫周云芝，是湖南省宁乡灰汤政府强拆被逼死的，她家的房子位于紫龙湾大桥公路边，5口人一栋楼房，政府只出52万，只求加5000元，政府硬不依。第二天早上不到6点就来几百人来强拆，一人在家的她，被7—8个大汉男人拖出来送政府关押几天后，放他出来逼她签字、又扣1O万只42万，政府太黑只有跳楼。<br><img src="http://ww4.sinaimg.cn/large/95bcd0d4jw1eval92jzztj20m80go75e.jpg"></p>
-<p>
-	<small> ============== 6小时前</small>
 </p>
 <table>
     <tr>
