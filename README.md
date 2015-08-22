@@ -126,7 +126,7 @@
 </h2>
 <p>了解中国政治生活或者知道点内幕的网友是否注意到，新闻联播屡屡提起江泽民从外地送画圈这个细节？这就说明他早就被限制人身自由了！提他的名字是因为给外界一个信号而已，如果没有猜错的话中央有可能在阅兵过后宣布对他采取强制措施<br><img src="http://ww4.sinaimg.cn/large/005Xl1Rjjw1evbmvbdo3zj30im0dyjsw.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3878724338625125" target="freeweibo-mirror">有过前车之鉴//@傻小子吧:[笑cry][笑cry][笑cr…</a>
 </h2>
