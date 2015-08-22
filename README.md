@@ -132,7 +132,7 @@
 </h2>
 <p>SPAM 太过分了。//@IB林立人://@华商天民: //@民间治堵人陈哲宏: //@真话哥://@周李城: 广东解放老兵为何被打？[怒]请@真话哥 @何兵 @米瑞蓉 关注！<br><br>RE: 阳江市人民政府暴打解放老兵，原因由于政府克扣老兵国家补贴！求散！微博原文http://t.cn/RLk1PQE爆料人：@S-CHAM<br><img src="http://ww1.sinaimg.cn/large/7db92c47gw1evb76pzeqrj20hs0vkna5.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3878608969909824" target="freeweibo-mirror">都是哈巴狗。</a>
 </h2>
