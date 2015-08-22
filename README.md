@@ -30,7 +30,7 @@
 </h2>
 <p>//@叶匡政:转发微博<br><br>RE: 天津，淄博，南宁......类似“定时炸弹”还有2489个，自求多福吧<br><img src="http://ww2.sinaimg.cn/large/97fd5ce7jw1evbt7rzs90j20ez0qo77d.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3878808283129352" target="freeweibo-mirror">SPAM 今天深夜，北京路上，预备参加阅兵的军车。</a>
 </h2>
@@ -126,7 +126,7 @@
 </h2>
 <p>SPAM #93大阅兵##9.3天安门阅兵#<br><br>RE: 坦克进京……阅兵预演，今晚终于可以放心发[泪]<br><img src="http://ww2.sinaimg.cn/large/62c109c2jw1evbuvik9etj20hs0dbjta.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3878798146018821" target="freeweibo-mirror">//@大案: 如果换个人说...</a>
 </h2>
