@@ -68,6 +68,12 @@
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3878627260822776" target="freeweibo-mirror">【中共中央党校整修 校名题词巨石被移走】8月21日，北京，海…</a>
+</h2>
+<p>【中共中央党校整修 校名题词巨石被移走】8月21日，北京，海淀区大有庄100号中共中央党校。当日，中央党校门前题有“中共中央党校”的巨石已经被移走，大型施工机械正在现场施工，几名工人在整理裸露的地面。http://t.cn/RLkB3U3<br><img src="http://ww4.sinaimg.cn/large/515a7464jw1evbaq46axwj20hs0tetfu.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3878619686339703" target="freeweibo-mirror">大半个中国停滞，换来阅兵蓝和龙颜大悦。该明白法西斯的含义了吧…</a>
 </h2>
 <p>大半个中国停滞，换来阅兵蓝和龙颜大悦。该明白法西斯的含义了吧？<br><img src="http://ww1.sinaimg.cn/large/6252b6cdjw1evbaep9je9j21kw1kwjtt.jpg"></p>
@@ -90,7 +96,7 @@
 </h2>
 <p>SPAM 太过分了。//@IB林立人://@华商天民: //@民间治堵人陈哲宏: //@真话哥://@周李城: 广东解放老兵为何被打？[怒]请@真话哥 @何兵 @米瑞蓉 关注！<br><br>RE: 阳江市人民政府暴打解放老兵，原因由于政府克扣老兵国家补贴！求散！微博原文http://t.cn/RLk1PQE爆料人：@S-CHAM<br><img src="http://ww1.sinaimg.cn/large/7db92c47gw1evb76pzeqrj20hs0vkna5.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3878608969909824" target="freeweibo-mirror">都是哈巴狗。</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3878591198512403" target="freeweibo-mirror">SPAM //@程中柳:最能顾全大局的亡国奴！//@编剧林莺…</a>
 </h2>
 <p>SPAM //@程中柳:最能顾全大局的亡国奴！//@编剧林莺:命都没了要钱何用？想不开。//@ChoeGyeong://@流沙有金6: 苍天啊？大地啊？<br><br>RE: 死者叫周云芝，是湖南省宁乡灰汤政府强拆被逼死的，她家的房子位于紫龙湾大桥公路边，5口人一栋楼房，政府只出52万，只求加5000元，政府硬不依。第二天早上不到6点就来几百人来强拆，一人在家的她，被7—8个大汉男人拖出来送政府关押几天后，放他出来逼她签字、又扣1O万只42万，政府太黑只有跳楼。<br><img src="http://ww4.sinaimg.cn/large/95bcd0d4jw1eval92jzztj20m80go75e.jpg"></p>
-<p>
-	<small> ============== 6小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3878585976392968" target="freeweibo-mirror">SPAM 这个这个……//@华商天民: //@人生漫步111…</a>
-</h2>
-<p>SPAM 这个这个……//@华商天民: //@人生漫步111: //@66-李亮: //@未得糊涂: //@整合之道刘鸿雁: [晕][挖鼻]<br><br>RE: #福利#连屁也不让放了！。。。。[哈哈][哈哈]<br><img src="http://ww2.sinaimg.cn/large/006056APgw1eval1p51u7j30ci07q0t4.jpg"></p>
 <p>
 	<small> ============== 6小时前</small>
 </p>
