@@ -32,9 +32,27 @@
 <p>
 	<small> ============== 1小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3878606641912039" target="freeweibo-mirror">【中央党校校名题字石被挪走】现场图片显示，题有“中共中央党校…</a>
+</h2>
+<p>【中央党校校名题字石被挪走】现场图片显示，题有“中共中央党校”的巨石已被移走，大型施工机械正施工。针对由此产生的种种解读，有分析人士指出，那块巨石不过是从校门外挪到校园内，并无特殊用意。因为影响秩序、经常被人刮金等原因，一年前已酝酿挪动。组图：http://t.cn/RLkr66Z<br><img src="http://ww1.sinaimg.cn/large/60718250jw1evb8wmqcv7j20hs0mbn2j.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3878591198512403" target="freeweibo-mirror">SPAM //@程中柳:最能顾全大局的亡国奴！//@编剧林莺…</a>
+</h2>
+<p>SPAM //@程中柳:最能顾全大局的亡国奴！//@编剧林莺:命都没了要钱何用？想不开。//@ChoeGyeong://@流沙有金6: 苍天啊？大地啊？<br><br>RE: 死者叫周云芝，是湖南省宁乡灰汤政府强拆被逼死的，她家的房子位于紫龙湾大桥公路边，5口人一栋楼房，政府只出52万，只求加5000元，政府硬不依。第二天早上不到6点就来几百人来强拆，一人在家的她，被7—8个大汉男人拖出来送政府关押几天后，放他出来逼她签字、又扣1O万只42万，政府太黑只有跳楼。<br><img src="http://ww4.sinaimg.cn/large/95bcd0d4jw1eval92jzztj20m80go75e.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3878585976392968" target="freeweibo-mirror">SPAM 这个这个……//@华商天民: //@人生漫步111…</a>
 </h2>
 <p>SPAM 这个这个……//@华商天民: //@人生漫步111: //@66-李亮: //@未得糊涂: //@整合之道刘鸿雁: [晕][挖鼻]<br><br>RE: #福利#连屁也不让放了！。。。。[哈哈][哈哈]<br><img src="http://ww2.sinaimg.cn/large/006056APgw1eval1p51u7j30ci07q0t4.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3878585091713506" target="freeweibo-mirror">//@刘毅:正部级面罩和正科级口罩。 //@大尸凶的漫画:霸…</a>
+</h2>
+<p>//@刘毅:正部级面罩和正科级口罩。 //@大尸凶的漫画:霸气侧漏//@黄龙游子:就这样还让孩子上学？缓缓查清楚最好<br><br>RE: 环境保护部部长陈吉宁查看天津事故核心区氰化物处置<br><img src="http://ww3.sinaimg.cn/large/8a742dcbgw1evahj4fljaj20fs0bjq4n.jpg"></p>
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
@@ -48,7 +66,7 @@
 </h2>
 <p>新华网和人民网发消息时，只提曾担任党的重要领导职务，未提曾任中共中央副主席。在历史重要关头，汪东兴确实起到了“旺东兴”作用，他始终忠于毛泽东。享年高寿，也许体认世事、荣辱无念。说起来，我大姑今年99岁，身体硬朗，松柏不老，主要是心好心态好http://t.cn/RLkAmUV http://t.cn/RLkRFTh<br><img src="http://ww3.sinaimg.cn/large/49e0cb69jw1evb4epx07mj20dc0a074r.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3878566003725250" target="freeweibo-mirror">//@佩尔琳: //@-志士仁心:这个国家什么都限制，唯独不…</a>
 </h2>
@@ -96,7 +114,7 @@
 </h2>
 <p>实名举报法轮功制造舆论污蔑我蛤！</p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3878459786807591" target="freeweibo-mirror">愿打愿挨，愿骗愿受。</a>
 </h2>
@@ -121,24 +139,6 @@
 <p>潮汕话叫识世或识事。//@何兵:合肥话叫“识相”。@李修蛟律师: 这么说就是广东话中的“识做”。太TMD扯了，还要法律干什么？</p>
 <p>
 	<small> ============== 11小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3878448180879669" target="freeweibo-mirror">在反法西斯胜利70周年来临之际，采取了车辆单双号、地铁停站等…</a>
-</h2>
-<p>在反法西斯胜利70周年来临之际，采取了车辆单双号、地铁停站等措施，就是为了让百姓们亲身去体会，这些措施已经给百姓带来了诸多不便，当年比这些措施更可怕的法西斯恐怖行径，是多么流氓，多么无耻啊！</p>
-<p>
-	<small> ============== 11小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3878443546844152" target="freeweibo-mirror">可怜这么好一块石头 //@2015最后的黑暗:狗咬狗，我们只…</a>
-</h2>
-<p>可怜这么好一块石头 //@2015最后的黑暗:狗咬狗，我们只是看客，有何好事可言？！//@阳光快乐天使a: //@衔橄榄枝de飞鸽://@潮汐车道:好事。 //@惜秋微博:什么兆头？ //@发明人沈保民:转发微博<br><br>RE: 无眠—#求证# …… 有朋友消息： 刚才路过中央党校南门。蛤蟆题＂中共中央党校＂巨石刚被连根拔除。 …… 好玩，有意思，太可乐了。 …… 无眠，2015.08.21。。。<br><img src="http://ww4.sinaimg.cn/large/0064FpaQgw1evagwnz9jjj30hs0d50u1.jpg"></p>
-<p>
-	<small> ============== 12小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3878438274241142" target="freeweibo-mirror">转着转着就木有了.....</a>
-</h2>
-<p>转着转着就木有了.....<br><img src="http://ww4.sinaimg.cn/large/7e848a37jw1evapl0sjc6j20c8088wff.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
 </p>
 <table>
     <tr>
