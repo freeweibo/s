@@ -24,7 +24,13 @@
 </h2>
 <p>是被吓哭了吧？<br><br>RE: 湖南省委书记观看《中国出了个毛泽东》：眼泪都快出来了。听到省委书记如此评价，看演出的市委书记们说，眼泪不停的打转。县委书记们说，边看边偷偷地掉眼泪。乡镇书记们说，电影结束时，经不住大哭起来。。。</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3878611788306601" target="freeweibo-mirror">官方都说空气很好很洁净，但是为了命，部长还是带着防毒面具过去…</a>
+</h2>
+<p>官方都说空气很好很洁净，但是为了命，部长还是带着防毒面具过去了，这才叫：专业！<br><br>RE: 环境保护部部长陈吉宁查看天津事故核心区氰化物处置<br><img src="http://ww3.sinaimg.cn/large/8a742dcbgw1evahj4fljaj20fs0bjq4n.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3878608969909824" target="freeweibo-mirror">都是哈巴狗。</a>
 </h2>
@@ -48,7 +54,7 @@
 </h2>
 <p>大阅兵搞搞也好，能让大家看看这些人的思维还停留在什么时代。 //@王东成cyu:一骑红尘，只送荔枝。朝廷的事再小，也是大事；民众的事再大，也是小事。朝廷的利益与民众的利益常常不一致，甚至常常对立；而朝廷往往把其私利说成是民众、民族的利益，驱使民众为之当炮灰。<br><br>RE: 一边是天津爆炸案事前治理和事后处理的粗糙紊乱，另一边是抗战大阅兵每个人、每一步、每一方队的精益求精，以及提早的限行和各种防范措施的落实。这是皇权制度的最好的写照：但凡涉及民众的事情，能少用一份心思就少用一份心思，但凡涉及皇上的事情，能用十二分心思绝不用十一份。一骑红尘，只送荔枝。</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3878591198512403" target="freeweibo-mirror">SPAM //@程中柳:最能顾全大局的亡国奴！//@编剧林莺…</a>
 </h2>
@@ -80,6 +86,12 @@
 <p>
 	<small> ============== 4小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3878572756578991" target="freeweibo-mirror">前面那位咸蛋超人装@#￥%//@深圳王剑: //@谢文://…</a>
+</h2>
+<p>前面那位咸蛋超人装@#￥%//@深圳王剑: //@谢文://@何兵: //@袁立:这个面具很特别，眼睛都罩起来了。[奥特曼] //@张晨初艺术空间://@王光复: 同问！//@品茗wm: 没有装备的百姓如何在那里继续生存？？？//雪视点: 老百姓还能健康生活吗？<br><br>RE: 环境保护部部长陈吉宁查看天津事故核心区氰化物处置<br><img src="http://ww3.sinaimg.cn/large/8a742dcbgw1evahj4fljaj20fs0bjq4n.jpg"></p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3878571955209295" target="freeweibo-mirror">SPAM 哈哈哈[得意地笑]帝都好帝都棒帝都呱呱叫</a>
 </h2>
 <p>SPAM 哈哈哈[得意地笑]帝都好帝都棒帝都呱呱叫<br><br>RE: 深圳都市报好刚啊哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈<br><img src="http://ww2.sinaimg.cn/large/79f6e6ddgw1ev8wf9anzvj20qo0zkjvb.jpg"></p>
@@ -96,7 +108,13 @@
 </h2>
 <p>新华网和人民网发消息时，只提曾担任党的重要领导职务，未提曾任中共中央副主席。在历史重要关头，汪东兴确实起到了“旺东兴”作用，他始终忠于毛泽东。享年高寿，也许体认世事、荣辱无念。说起来，我大姑今年99岁，身体硬朗，松柏不老，主要是心好心态好http://t.cn/RLkAmUV http://t.cn/RLkRFTh<br><img src="http://ww3.sinaimg.cn/large/49e0cb69jw1evb4epx07mj20dc0a074r.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3878566267293411" target="freeweibo-mirror">空气质量对人体造不成危害！ 这话谁说的？</a>
+</h2>
+<p>空气质量对人体造不成危害！ 这话谁说的？<br><br>RE: 环境保护部部长陈吉宁查看天津事故核心区氰化物处置<br><img src="http://ww3.sinaimg.cn/large/8a742dcbgw1evahj4fljaj20fs0bjq4n.jpg"></p>
+<p>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3878566003725250" target="freeweibo-mirror">//@佩尔琳: //@-志士仁心:这个国家什么都限制，唯独不…</a>
 </h2>
@@ -121,24 +139,6 @@
 <p>现在警察也不容易，既要暴力抓捕疑是犯罪嫌疑人，又要忙着用非致命武器辣椒水喷雾之类的对付拍照的围观群众[吃惊]！！！ http://t.cn/RLk6Em4</p>
 <p>
 	<small> ============== 6小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3878547204505472" target="freeweibo-mirror">为了政府的面子，很想知道政府存在的目的又是为了啥？ 一个国家…</a>
-</h2>
-<p>为了政府的面子，很想知道政府存在的目的又是为了啥？ 一个国家，限制房子，限制车子、限制互联网，限制人口、限制透明、限制真相、限制新闻、限制自由、限制说话、限制公平、限制正义……这个国家什么都限制，唯独不限制的，就是政府的权力！[哼]<br><img src="http://ww4.sinaimg.cn/large/c5ed7ecfjw1evb1vsdwj9j20h00u3dk5.jpg"></p>
-<p>
-	<small> ============== 6小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3878538220262262" target="freeweibo-mirror">大致等于扯淡的多难兴邦，装逼表示有文化[噢耶]//@djvu…</a>
-</h2>
-<p>大致等于扯淡的多难兴邦，装逼表示有文化[噢耶]//@djvu9:“腾笼换鸟、凤凰涅槃”。请问下腾笼换鸟我大致能理解，凤凰涅槃是个什么梗？跟飞蛾扑火有什么关系吗？</p>
-<p>
-	<small> ============== 6小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3878534990629462" target="freeweibo-mirror">强盗，赤匪//@朱令是谁: //@中华自主联盟://@反黑人…</a>
-</h2>
-<p>强盗，赤匪//@朱令是谁: //@中华自主联盟://@反黑人义勇军: //@无欲之崖: 不以为耻，反以为荣！//@孤飘沙鸥:传统技能</p>
-<p>
-	<small> ============== 7小时前</small>
 </p>
 <table>
     <tr>
