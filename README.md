@@ -108,7 +108,7 @@
 </h2>
 <p>人家早就把你的权利关进笼子里去了！[挖鼻]//@第一经济学姜: 我发现，凡是微博签约自媒体大牌都分不清权利和权力这两个截然不同的概念。<br><br>RE: 权利非但没有进笼子，人民的灶台却不能开火了。。只许皇帝阅兵，不许百姓开火。。<br><img src="http://ww3.sinaimg.cn/large/6362d8eagw1evamtfg4z7j20ci0m80tx.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3878418913166687" target="freeweibo-mirror">回复@lzscript:羊毛出在猪身上。//@lzscrip…</a>
 </h2>
