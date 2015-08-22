@@ -96,7 +96,7 @@
 </h2>
 <p>#亚军微言#俗话说：蔫儿萝卜辣心，哑狗咬人。像朝鲜这种天天在高音喇叭里喊打倒美帝占领南韩的，基本都属于空中飞舞的蜘蛛网--一动真格儿，毛儿都不是！<br><img src="http://ww4.sinaimg.cn/large/763fb12bjw1evanp6bcx2j20hs0b23zs.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3878420587037228" target="freeweibo-mirror">人家早就把你的权利关进笼子里去了！[挖鼻]//@第一经济学姜…</a>
 </h2>
@@ -126,19 +126,19 @@
 </h2>
 <p>权利非但没有进笼子，人民的灶台却不能开火了。。只许皇帝阅兵，不许百姓开火。。<br><img src="http://ww3.sinaimg.cn/large/6362d8eagw1evamtfg4z7j20ci0m80tx.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3878413603097493" target="freeweibo-mirror">看到这个新闻我好开心！[微笑]末路穷途，我们的好日子快要来了…</a>
 </h2>
 <p>看到这个新闻我好开心！[微笑]末路穷途，我们的好日子快要来了[抓狂]//@写字李华良:我操，过分了。 //@熊华GG:卧槽，灶都给封了。[怒骂]<br><br>RE: 阅兵仪式在哪儿啊？河北？<br><img src="http://ww4.sinaimg.cn/large/9ddb72ebjw1evalwixk27j20c80lqgnh.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3878413472937504" target="freeweibo-mirror">//@沂蒙山: 我才不信呢。</a>
 </h2>
 <p>//@沂蒙山: 我才不信呢。</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p>
 <table>
     <tr>
