@@ -20,11 +20,23 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3878800964038448" target="freeweibo-mirror">//@演员孙海英:按指示精神，不会把唱词改为：“没有日本人就…</a>
+</h2>
+<p>//@演员孙海英:按指示精神，不会把唱词改为：“没有日本人就没有新中国？”想不通！我要数十天睡不好觉了。<br><br>RE: 【新华网：正确理解毛泽东"感谢日本侵略"一语】http://t.cn/h9tnr 1964年7月10日北京，毛对日本社会党委员长佐佐木更三说：“没有你们皇军侵略大半个中国，中国人民就不能团结起来对付蒋介石，中国共产党就夺取不了政权。所以，日本皇军是我们中国共产党人的好教员，也可以说是大恩人，大救星。”<br><img src="http://ww3.sinaimg.cn/large/7e035fcbjw1evblt8m305j20c808c0t9.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3878800578208965" target="freeweibo-mirror">//@乌龙防务评论:中国有一句俗话叫闷声发大财，这是极好的/…</a>
+</h2>
+<p>//@乌龙防务评论:中国有一句俗话叫闷声发大财，这是极好的//@CD华夏本尊:不要总是想搞个大新闻[打脸]//@三途河的虾:[打脸]//@再跑就开枪_FIA: [笑cry]反贼!反贼!反贼!重要的话说三遍<br><br>RE: 晚安北京。<br><img src="http://ww2.sinaimg.cn/large/6f094a59jw1evbr7qdps0j20fg0abmy2.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3878791958958888" target="freeweibo-mirror">SPAM [吃惊]//@陆亚明:[吃惊]</a>
 </h2>
 <p>SPAM [吃惊]//@陆亚明:[吃惊]<br><br>RE: 分享图片<br><img src="http://ww1.sinaimg.cn/large/ecd55bbejw1evbsdgndstj20hs0u5acw.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3878791581245202" target="freeweibo-mirror">SPAM 回复@蒋君Style:跪了 //@蒋君Style:…</a>
 </h2>
@@ -120,23 +132,11 @@
 </h2>
 <p>这张好，杀人放火金腰带[doge]<br><img src="http://ww1.sinaimg.cn/large/542184b2jw1evbp1b8n2mj20fc0qon19.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3878746458960681" target="freeweibo-mirror">SPAM  //@导演宋翔:假图真事</a>
 </h2>
 <p>SPAM  //@导演宋翔:假图真事<br><br>RE: 如图<br><img src="http://ww4.sinaimg.cn/large/706dd2c3jw1evbit0l6kjj20il0c8t9w.jpg"></p>
-<p>
-	<small> ============== 5小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3878745381789560" target="freeweibo-mirror">由衷感谢！新时代的英雄... （SS的作者被约喝茶，无奈停止…</a>
-</h2>
-<p>由衷感谢！新时代的英雄... （SS的作者被约喝茶，无奈停止该项目并删除全部公开代码...）<br><br>RE: 「两天前 Police 找到我，希望我停止 shadowsocks 的相关维护工作，8月22日又要求我删除 GitHub 上所有代码，我没有任何其它选择，只能无奈服从。希望有一天我能在没有恐惧，可以随心所欲自由编写代码的国家生活。」<br><img src="http://ww2.sinaimg.cn/large/6dbeae07jw1evbi27fd5mj20iw0tbq60.jpg"></p>
-<p>
-	<small> ============== 5小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3878744748191569" target="freeweibo-mirror">看图片是控制了，绝对不是P的，全都是军方便衣//@反烟人愚公…</a>
-</h2>
-<p>看图片是控制了，绝对不是P的，全都是军方便衣//@反烟人愚公在线:是否放信号，新浪的态度已经给出了答案[太开心][太开心][太开心]//@请叫我大上哥://@反烟人愚公在线:这样的图片突然在微博不断出现，绝非儿戏！<br><br>RE: 了解中国政治生活或者知道点内幕的网友是否注意到，新闻联播屡屡提起江泽民从外地送画圈这个细节？这就说明他早就被限制人身自由了！提他的名字是因为给外界一个信号而已，如果没有猜错的话中央有可能在阅兵过后宣布对他采取强制措施<br><img src="http://ww4.sinaimg.cn/large/005Xl1Rjjw1evbmvbdo3zj30im0dyjsw.jpg"></p>
 <p>
 	<small> ============== 5小时前</small>
 </p>
