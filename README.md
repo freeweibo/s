@@ -30,7 +30,7 @@
 </h2>
 <p>//@王光复:考证困难 //@苏州朱永健://@麻毛雄: //@作家东海: 到也是句实话！</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3878701441388688" target="freeweibo-mirror">1964年7月10日北京，毛对日本社会党委员长佐佐木更三说：…</a>
 </h2>
@@ -60,7 +60,7 @@
 </h2>
 <p>SPAM 还能无耻点吗？ //@佩尔琳:奇葩的天朝不拿百姓当人看！[怒]<br><br>RE: 限行算个屁，限饭算个屁，接下来应该要限屁，把屁眼用封条堵上，哼～<br><img src="http://ww4.sinaimg.cn/large/0067tz80jw1evb960j06aj30cs0kuwfu.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3878694877549311" target="freeweibo-mirror">SPAM 呵呵 //@虞亦萌:[思考]//@七步阁2: 哦？</a>
 </h2>
@@ -132,7 +132,7 @@
 </h2>
 <p>不关心事故，只关心自己房子，傻屄没有救。//@作家东海:[巨汗] //@50年矛苔:[巨汗]</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3878660546846832" target="freeweibo-mirror">系统自动转发//@草木不深:妖言[阴险][阴险][阴险]</a>
 </h2>
