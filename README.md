@@ -50,11 +50,17 @@
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3878547204505472" target="freeweibo-mirror">为了政府的面子，很想知道政府存在的目的又是为了啥？ 一个国家…</a>
+</h2>
+<p>为了政府的面子，很想知道政府存在的目的又是为了啥？ 一个国家，限制房子，限制车子、限制互联网，限制人口、限制透明、限制真相、限制新闻、限制自由、限制说话、限制公平、限制正义……这个国家什么都限制，唯独不限制的，就是政府的权力！[哼]<br><img src="http://ww4.sinaimg.cn/large/c5ed7ecfjw1evb1vsdwj9j20h00u3dk5.jpg"></p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3878538220262262" target="freeweibo-mirror">大致等于扯淡的多难兴邦，装逼表示有文化[噢耶]//@djvu…</a>
 </h2>
 <p>大致等于扯淡的多难兴邦，装逼表示有文化[噢耶]//@djvu9:“腾笼换鸟、凤凰涅槃”。请问下腾笼换鸟我大致能理解，凤凰涅槃是个什么梗？跟飞蛾扑火有什么关系吗？</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3878534990629462" target="freeweibo-mirror">强盗，赤匪//@朱令是谁: //@中华自主联盟://@反黑人…</a>
 </h2>
@@ -96,7 +102,7 @@
 </h2>
 <p>在反法西斯胜利70周年来临之际，采取了车辆单双号、地铁停站等措施，就是为了让百姓们亲身去体会，这些措施已经给百姓带来了诸多不便，当年比这些措施更可怕的法西斯恐怖行径，是多么流氓，多么无耻啊！</p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3878443546844152" target="freeweibo-mirror">可怜这么好一块石头 //@2015最后的黑暗:狗咬狗，我们只…</a>
 </h2>
@@ -114,7 +120,7 @@
 </h2>
 <p>SPAM //@王亚军北京:我故意的[嘘] //@莱德赵克强:图配错了<br><br>RE: #亚军微言#俗话说：蔫儿萝卜辣心，哑狗咬人。像朝鲜这种天天在高音喇叭里喊打倒美帝占领南韩的，基本都属于空中飞舞的蜘蛛网--一动真格儿，毛儿都不是！<br><img src="http://ww4.sinaimg.cn/large/763fb12bjw1evanp6bcx2j20hs0b23zs.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3878423968007541" target="freeweibo-mirror">SPAM 有枪就是牛逼//@陈业文新大都: 伟大的时代，阅尽…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3878420587037228" target="freeweibo-mirror">人家早就把你的权利关进笼子里去了！[挖鼻]//@第一经济学姜…</a>
 </h2>
 <p>人家早就把你的权利关进笼子里去了！[挖鼻]//@第一经济学姜: 我发现，凡是微博签约自媒体大牌都分不清权利和权力这两个截然不同的概念。<br><br>RE: 权利非但没有进笼子，人民的灶台却不能开火了。。只许皇帝阅兵，不许百姓开火。。<br><img src="http://ww3.sinaimg.cn/large/6362d8eagw1evamtfg4z7j20ci0m80tx.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3878418913166687" target="freeweibo-mirror">回复@lzscript:羊毛出在猪身上。//@lzscrip…</a>
-</h2>
-<p>回复@lzscript:羊毛出在猪身上。//@lzscript:人头一天200元，煮不煮饭无所谓了<br><br>RE: 权利非但没有进笼子，人民的灶台却不能开火了。。只许皇帝阅兵，不许百姓开火。。<br><img src="http://ww3.sinaimg.cn/large/6362d8eagw1evamtfg4z7j20ci0m80tx.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
