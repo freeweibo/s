@@ -30,7 +30,7 @@
 </h2>
 <p>SPAM 两人架//@子在圳上曰:回复@麥先生同学:[疑问]//@麥先生同学:[闭嘴]他还在......[囧]<br><br>RE: 分享图片<br><img src="http://ww1.sinaimg.cn/large/ecd55bbejw1evbsdgndstj20hs0u5acw.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3878800964038448" target="freeweibo-mirror">//@演员孙海英:按指示精神，不会把唱词改为：“没有日本人就…</a>
 </h2>
@@ -53,6 +53,12 @@
 	<a href="https://freeweibo.com/weibo/3878798111890730" target="freeweibo-mirror">SPAM 你保证照片不是26年前的？</a>
 </h2>
 <p>SPAM 你保证照片不是26年前的？<br><br>RE: 坦克进京……阅兵预演，今晚终于可以放心发[泪]<br><img src="http://ww2.sinaimg.cn/large/62c109c2jw1evbuvik9etj20hs0dbjta.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3878797730244567" target="freeweibo-mirror">坦克进京……阅兵预演，今晚终于可以放心发[泪]</a>
+</h2>
+<p>坦克进京……阅兵预演，今晚终于可以放心发[泪]<br><img src="http://ww2.sinaimg.cn/large/62c109c2jw1evbuvik9etj20hs0dbjta.jpg"></p>
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
@@ -114,13 +120,13 @@
 </h2>
 <p>魔幻现实主义<br><img src="http://ww1.sinaimg.cn/large/c14d47b8jw1evbu0c7gszj20m80gotb0.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3878789610609700" target="freeweibo-mirror">SPAM [汗][汗][汗]//@戎戎53日记: [吃惊][…</a>
 </h2>
 <p>SPAM [汗][汗][汗]//@戎戎53日记: [吃惊][吃惊]<br><br>RE: 分享图片<br><img src="http://ww1.sinaimg.cn/large/ecd55bbejw1evbsdgndstj20hs0u5acw.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3878788653804567" target="freeweibo-mirror">日本鬼子万岁[哈哈] //@陈宝林果然:统一战线是三大法宝之…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3878788503008523" target="freeweibo-mirror">SPAM 不懂 //@财经评论徐斌:[衰] //@东岳晚晴:…</a>
 </h2>
 <p>SPAM 不懂 //@财经评论徐斌:[衰] //@东岳晚晴:天呢[泪]真假啊，这是谁在做怪啊，我们这安不安全啊 //@春天的音韵21: [吃惊][吃惊][吃惊] //@灡曦s5:[吃惊][吃惊] //@一见穿心-4:[吃惊][吃惊] //@负三度的冰: [吃惊][话筒]<br><br>RE: 分享图片<br><img src="http://ww1.sinaimg.cn/large/ecd55bbejw1evbsdgndstj20hs0u5acw.jpg"></p>
-<p>
-	<small> ============== 3小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3878788049844641" target="freeweibo-mirror">[哈哈]实话！正解？//@演员孙海英: 按指示精神，不会把唱…</a>
-</h2>
-<p>[哈哈]实话！正解？//@演员孙海英: 按指示精神，不会把唱词改为：“没有日本人就没有新中国？”报告！这一时还想不通！<br><br>RE: 【新华网：正确理解毛泽东"感谢日本侵略"一语】http://t.cn/h9tnr 1964年7月10日北京，毛对日本社会党委员长佐佐木更三说：“没有你们皇军侵略大半个中国，中国人民就不能团结起来对付蒋介石，中国共产党就夺取不了政权。所以，日本皇军是我们中国共产党人的好教员，也可以说是大恩人，大救星。”<br><img src="http://ww3.sinaimg.cn/large/7e035fcbjw1evblt8m305j20c808c0t9.jpg"></p>
 <p>
 	<small> ============== 3小时前</small>
 </p>
