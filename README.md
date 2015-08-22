@@ -24,7 +24,7 @@
 </h2>
 <p>SPAM  //@导演宋翔:假图真事<br><br>RE: 如图<br><img src="http://ww4.sinaimg.cn/large/706dd2c3jw1evbit0l6kjj20il0c8t9w.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3878744748191569" target="freeweibo-mirror">看图片是控制了，绝对不是P的，全都是军方便衣//@反烟人愚公…</a>
 </h2>
@@ -132,7 +132,7 @@
 </h2>
 <p>谣言？ //@春风梳柳66:[怒]//@漢青社:土鳖真混账…//@说话的人很多不如我也说说:？[怒]</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3878698450715870" target="freeweibo-mirror">//@浦东小夜曲: //@听古道今l: 速看！[围观]</a>
 </h2>
