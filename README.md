@@ -42,7 +42,7 @@
 </h2>
 <p>//@山东ypy:猫论、摸论、改开、特色，所谓的总设计师，百姓的克星！</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3878793440092108" target="freeweibo-mirror">原来这一切居然都是真的！竟然不是公知在造谣！颠覆三观！ //…</a>
 </h2>
