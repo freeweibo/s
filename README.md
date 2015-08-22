@@ -48,7 +48,7 @@
 </h2>
 <p>篡改历史<br><br>RE: 蘋果日報『 中共假大空的中國夢 - 錢志健』 這些已是擁有香港永久「三粒星」的金融共黨半生熟之交認為，1949年以來，中國社會的集體主義教育造成了大家普遍認同一個「有國才有家，國富才能民強」的「先集體，後個人」邏輯。<br><img src="http://ww4.sinaimg.cn/large/006cfcOSjw1evadcm0255j30a02nbe1v.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3878814247589690" target="freeweibo-mirror">//@叶匡政:转发微博</a>
 </h2>
