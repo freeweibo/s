@@ -36,7 +36,7 @@
 </h2>
 <p>SPAM //@刘耘博士: 人格不高，脊梁不直，骨头不硬，不吹不行啊。<br><br>RE: “不是政府人士，永远不要去做政府的吹鼓手，因为吹鼓手在政府眼里永远只值一个夜壶铜钿，尿急了拿出来用一下，用完了将夜壶放到最角落地方；你吹得越起劲，不仅公众看不起你，政府更看不起你，所以吹鼓手都没有好下场。”一一杜月笙<br><img src="http://ww1.sinaimg.cn/large/41693645gw1evbnyt8uoij20k00f0jtm.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3878761135377518" target="freeweibo-mirror">//@崖上尋芳草: 到阅兵式上去喊冤,让全世界都看见.://…</a>
 </h2>
@@ -134,9 +134,9 @@
 <p>
 	<small> ============== 4小时前</small>
 </p><h2>
-	<a href="https://freeweibo.com/weibo/3878736527352560" target="freeweibo-mirror">专家表示，那些鱼是自己淹死的。</a>
+	<a href="https://freeweibo.com/weibo/3878737604612806" target="freeweibo-mirror">“不是政府人士，永远不要去做政府的吹鼓手，因为吹鼓手在政府眼…</a>
 </h2>
-<p>专家表示，那些鱼是自己淹死的。<br><br>RE: 不传谣、不信谣，请问调查组：是否真有2000农民工在天津港爆炸中失踪？</p>
+<p>“不是政府人士，永远不要去做政府的吹鼓手，因为吹鼓手在政府眼里永远只值一个夜壶铜钿，尿急了拿出来用一下，用完了将夜壶放到最角落地方；你吹得越起劲，不仅公众看不起你，政府更看不起你，所以吹鼓手都没有好下场。”一一杜月笙<br><img src="http://ww1.sinaimg.cn/large/41693645gw1evbnyt8uoij20k00f0jtm.jpg"></p>
 <p>
 	<small> ============== 4小时前</small>
 </p>
