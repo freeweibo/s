@@ -24,7 +24,7 @@
 </h2>
 <p>噗嗤！//@LifeTime:普京阅兵还不是靠包总捧场，彼此彼此。[汗]</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3878822933704340" target="freeweibo-mirror">出城砍柴者不受此限</a>
 </h2>
@@ -84,7 +84,7 @@
 </h2>
 <p>SPAM 今天深夜，北京路上，预备参加阅兵的军车。<br><img src="http://ww3.sinaimg.cn/large/9647a31ejw1evbw37b3psj20c8096js5.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3878807217542618" target="freeweibo-mirror">SPAM #93大阅兵#[doge] //@白城以北:#9.…</a>
 </h2>
