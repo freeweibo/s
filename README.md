@@ -54,13 +54,13 @@
 </h2>
 <p>shadowsocks[衰]<br><br>RE: 「两天前 Police 找到我，希望我停止 shadowsocks 的相关维护工作，8月22日又要求我删除 GitHub 上所有代码，我没有任何其它选择，只能无奈服从。希望有一天我能在没有恐惧，可以随心所欲自由编写代码的国家生活。」<br><img src="http://ww2.sinaimg.cn/large/6dbeae07jw1evbi27fd5mj20iw0tbq60.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3878750573716940" target="freeweibo-mirror">路过没去，你们好好拍[哈哈]各位右边是八一厂阅兵纪录片导演/…</a>
 </h2>
 <p>路过没去，你们好好拍[哈哈]各位右边是八一厂阅兵纪录片导演//@辰爸老范：你没进村感受一下？这次又是我跟高山导演[泪]<br><br>RE: 这张好，杀人放火金腰带[doge]<br><img src="http://ww1.sinaimg.cn/large/542184b2jw1evbp1b8n2mj20fc0qon19.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3878746929382687" target="freeweibo-mirror">这张好，杀人放火金腰带[doge]</a>
 </h2>
