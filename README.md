@@ -42,7 +42,7 @@
 </h2>
 <p>SPAM [汗][汗][汗]//@戎戎53日记: [吃惊][吃惊]<br><br>RE: 分享图片<br><img src="http://ww1.sinaimg.cn/large/ecd55bbejw1evbsdgndstj20hs0u5acw.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3878788503008523" target="freeweibo-mirror">SPAM 不懂 //@财经评论徐斌:[衰] //@东岳晚晴:…</a>
 </h2>
@@ -126,7 +126,7 @@
 </h2>
 <p>看图片是控制了，绝对不是P的，全都是军方便衣//@反烟人愚公在线:是否放信号，新浪的态度已经给出了答案[太开心][太开心][太开心]//@请叫我大上哥://@反烟人愚公在线:这样的图片突然在微博不断出现，绝非儿戏！<br><br>RE: 了解中国政治生活或者知道点内幕的网友是否注意到，新闻联播屡屡提起江泽民从外地送画圈这个细节？这就说明他早就被限制人身自由了！提他的名字是因为给外界一个信号而已，如果没有猜错的话中央有可能在阅兵过后宣布对他采取强制措施<br><img src="http://ww4.sinaimg.cn/large/005Xl1Rjjw1evbmvbdo3zj30im0dyjsw.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3878742781222157" target="freeweibo-mirror">/退而不休的典范！/@为你而来--振臂再呼:一面对邓推崇不已…</a>
 </h2>
