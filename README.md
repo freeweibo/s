@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3878814247589690" target="freeweibo-mirror">//@叶匡政:转发微博</a>
+</h2>
+<p>//@叶匡政:转发微博<br><br>RE: 天津，淄博，南宁......类似“定时炸弹”还有2489个，自求多福吧<br><img src="http://ww2.sinaimg.cn/large/97fd5ce7jw1evbt7rzs90j20ez0qo77d.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3878805929961681" target="freeweibo-mirror">//@呱代://@法治路由器://@老衲法号_册空: //@…</a>
 </h2>
 <p>//@呱代://@法治路由器://@老衲法号_册空: //@陈光武律师://@张维玉律师: //@作家东海:十五个多月了，顶着各种病痛和心理折磨，没上央视，老浦的确是条汉子！</p>
@@ -90,19 +96,19 @@
 </h2>
 <p>想起看到过一个段子：如果中日再次开战，你会上前线吗？答：上前线干嘛，赶紧在后方建党啊！！！[哈哈][哈哈][哈哈][哈哈][哈哈]<br><br>RE: 【新华网：正确理解毛泽东"感谢日本侵略"一语】http://t.cn/h9tnr 1964年7月10日北京，毛对日本社会党委员长佐佐木更三说：“没有你们皇军侵略大半个中国，中国人民就不能团结起来对付蒋介石，中国共产党就夺取不了政权。所以，日本皇军是我们中国共产党人的好教员，也可以说是大恩人，大救星。”<br><img src="http://ww3.sinaimg.cn/large/7e035fcbjw1evblt8m305j20c808c0t9.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3878792013064063" target="freeweibo-mirror">SPAM 外面真热闹………[傻眼][傻眼]</a>
 </h2>
 <p>SPAM 外面真热闹………[傻眼][傻眼]<br><img src="http://ww2.sinaimg.cn/large/6853040fjw1evbu7rn8juj20zk0qo7ax.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3878791958958888" target="freeweibo-mirror">SPAM [吃惊]//@陆亚明:[吃惊]</a>
 </h2>
 <p>SPAM [吃惊]//@陆亚明:[吃惊]<br><br>RE: 分享图片<br><img src="http://ww1.sinaimg.cn/large/ecd55bbejw1evbsdgndstj20hs0u5acw.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3878791581245202" target="freeweibo-mirror">SPAM 回复@蒋君Style:跪了 //@蒋君Style:…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3878788653804567" target="freeweibo-mirror">日本鬼子万岁[哈哈] //@陈宝林果然:统一战线是三大法宝之…</a>
 </h2>
 <p>日本鬼子万岁[哈哈] //@陈宝林果然:统一战线是三大法宝之一 //@演员孙海英:按指示精神，不会把唱词改为：“没有日本人就没有新中国？”<br><br>RE: 【新华网：正确理解毛泽东"感谢日本侵略"一语】http://t.cn/h9tnr 1964年7月10日北京，毛对日本社会党委员长佐佐木更三说：“没有你们皇军侵略大半个中国，中国人民就不能团结起来对付蒋介石，中国共产党就夺取不了政权。所以，日本皇军是我们中国共产党人的好教员，也可以说是大恩人，大救星。”<br><img src="http://ww3.sinaimg.cn/large/7e035fcbjw1evblt8m305j20c808c0t9.jpg"></p>
-<p>
-	<small> ============== 3小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3878788503008523" target="freeweibo-mirror">SPAM 不懂 //@财经评论徐斌:[衰] //@东岳晚晴:…</a>
-</h2>
-<p>SPAM 不懂 //@财经评论徐斌:[衰] //@东岳晚晴:天呢[泪]真假啊，这是谁在做怪啊，我们这安不安全啊 //@春天的音韵21: [吃惊][吃惊][吃惊] //@灡曦s5:[吃惊][吃惊] //@一见穿心-4:[吃惊][吃惊] //@负三度的冰: [吃惊][话筒]<br><br>RE: 分享图片<br><img src="http://ww1.sinaimg.cn/large/ecd55bbejw1evbsdgndstj20hs0u5acw.jpg"></p>
 <p>
 	<small> ============== 3小时前</small>
 </p>
