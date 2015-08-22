@@ -68,6 +68,12 @@
 <p>
 	<small> ============== 5小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3878495300240452" target="freeweibo-mirror">有人说何妨拿嬴政、刘邦、李世民、朱元璋们…与毛做对比………但…</a>
+</h2>
+<p>有人说何妨拿嬴政、刘邦、李世民、朱元璋们…与毛做对比………但是，毛不配与那些人相比。嬴政懂经济，车同轨文同体，毛不懂；刘邦能够把国家恢复成盛世大汉，毛只会折腾；李世民是被迫反击，对敌人对家人仁义无私，毛害了跟他亲近的几乎一切人；朱元璋只对官严酷，毛对民众极其严酷。。。</p>
+<p>
+	<small> ============== 7小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3878462009965311" target="freeweibo-mirror">实名举报法轮功制造舆论污蔑我蛤！</a>
 </h2>
 <p>实名举报法轮功制造舆论污蔑我蛤！</p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3878421782332096" target="freeweibo-mirror">#亚军微言#俗话说：蔫儿萝卜辣心，哑狗咬人。像朝鲜这种天天在…</a>
 </h2>
 <p>#亚军微言#俗话说：蔫儿萝卜辣心，哑狗咬人。像朝鲜这种天天在高音喇叭里喊打倒美帝占领南韩的，基本都属于空中飞舞的蜘蛛网--一动真格儿，毛儿都不是！<br><img src="http://ww4.sinaimg.cn/large/763fb12bjw1evanp6bcx2j20hs0b23zs.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3878420587037228" target="freeweibo-mirror">人家早就把你的权利关进笼子里去了！[挖鼻]//@第一经济学姜…</a>
-</h2>
-<p>人家早就把你的权利关进笼子里去了！[挖鼻]//@第一经济学姜: 我发现，凡是微博签约自媒体大牌都分不清权利和权力这两个截然不同的概念。<br><br>RE: 权利非但没有进笼子，人民的灶台却不能开火了。。只许皇帝阅兵，不许百姓开火。。<br><img src="http://ww3.sinaimg.cn/large/6362d8eagw1evamtfg4z7j20ci0m80tx.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
