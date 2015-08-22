@@ -26,6 +26,12 @@
 <p>
 	<small> ============== 1小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3878750753965502" target="freeweibo-mirror">shadowsocks[衰]</a>
+</h2>
+<p>shadowsocks[衰]<br><br>RE: 「两天前 Police 找到我，希望我停止 shadowsocks 的相关维护工作，8月22日又要求我删除 GitHub 上所有代码，我没有任何其它选择，只能无奈服从。希望有一天我能在没有恐惧，可以随心所欲自由编写代码的国家生活。」<br><img src="http://ww2.sinaimg.cn/large/6dbeae07jw1evbi27fd5mj20iw0tbq60.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3878746458960681" target="freeweibo-mirror">SPAM  //@导演宋翔:假图真事</a>
 </h2>
 <p>SPAM  //@导演宋翔:假图真事<br><br>RE: 如图<br><img src="http://ww4.sinaimg.cn/large/706dd2c3jw1evbit0l6kjj20il0c8t9w.jpg"></p>
@@ -66,7 +72,7 @@
 </h2>
 <p>//@邱大春:专家表示，那些鱼是自己淹死的。<br><br>RE: 不传谣、不信谣，请问调查组：是否真有2000农民工在天津港爆炸中失踪？</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3878736527352560" target="freeweibo-mirror">专家表示，那些鱼是自己淹死的。</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3878703689644511" target="freeweibo-mirror">网信办组织一批五毛到各地乱窜，花着纳税人的钱游山玩水，到地方…</a>
 </h2>
 <p>网信办组织一批五毛到各地乱窜，花着纳税人的钱游山玩水，到地方后，与当地政府吹牛拍马歌功颂德一味溜须，有意思吗，估计挺有意思的，要不@雷希颖 那样在澳洲洗盘子的能关上洗碗机不远万里的跑回来参加么。全国一圈转下来，估计就天下太平国泰民安了，不知活动经费算不算维稳经费里，难怪天文数字呢。</p>
-<p>
-	<small> ============== 5小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3878701798467866" target="freeweibo-mirror">回复@圣西罗的向往:钓鱼岛历史上都属于台湾，那得先收复台湾。…</a>
-</h2>
-<p>回复@圣西罗的向往:钓鱼岛历史上都属于台湾，那得先收复台湾。//@圣西罗的向往:钓鱼岛还沦陷呢，你裆到底什么时候出兵？//@不沉默的大多数:江山沦陷，前线将士都是中国军人，高层统帅则需自责反思。历史和事实都得辩证看待。//@汪亚民:正视歷史是自信大度的表現！</p>
 <p>
 	<small> ============== 5小时前</small>
 </p>
