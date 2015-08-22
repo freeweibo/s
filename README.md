@@ -20,6 +20,24 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3878719019823758" target="freeweibo-mirror">好人不黑人，被黑是好人。//@两江四岸：可能吴先生和海鹏是真…</a>
+</h2>
+<p>好人不黑人，被黑是好人。//@两江四岸：可能吴先生和海鹏是真正的智者。水工被黑是最多的了，HW中W被骂为奸相，而猪首相和H基本没被黑过甚至他们得到更多的是赞。耐人寻味。</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3878711088563182" target="freeweibo-mirror">//@王光复:考证困难 //@苏州朱永健://@麻毛雄: /…</a>
+</h2>
+<p>//@王光复:考证困难 //@苏州朱永健://@麻毛雄: //@作家东海: 到也是句实话！</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3878701441388688" target="freeweibo-mirror">1964年7月10日北京，毛对日本社会党委员长佐佐木更三说：…</a>
+</h2>
+<p>1964年7月10日北京，毛对日本社会党委员长佐佐木更三说：“没有你们皇军侵略大半个中国，中国人民就不能团结起来对付蒋介石，中国共产党就夺取不了政权。所以，日本皇军是我们中国共产党人的好教员，也可以说是大恩人，大救星。” 这老逼养的，可把我们害苦了！<br><img src="http://ww2.sinaimg.cn/large/c091022fjw1evbjtg5fhaj20bo07ot98.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3878700242548307" target="freeweibo-mirror">谣言？ //@春风梳柳66:[怒]//@漢青社:土鳖真混账……</a>
 </h2>
 <p>谣言？ //@春风梳柳66:[怒]//@漢青社:土鳖真混账…//@说话的人很多不如我也说说:？[怒]</p>
@@ -48,7 +66,7 @@
 </h2>
 <p>SPAM 呵呵 //@虞亦萌:[思考]//@七步阁2: 哦？</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3878693640724457" target="freeweibo-mirror">//@曹小明律师:[ok]//@szandykoko:本国的…</a>
 </h2>
@@ -119,24 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3878660546846832" target="freeweibo-mirror">系统自动转发//@草木不深:妖言[阴险][阴险][阴险]</a>
 </h2>
 <p>系统自动转发//@草木不深:妖言[阴险][阴险][阴险]</p>
-<p>
-	<small> ============== 5小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3878658823134914" target="freeweibo-mirror">SPAM //@康国平://@王缉志:[哈哈] //@忆梅下…</a>
-</h2>
-<p>SPAM //@康国平://@王缉志:[哈哈] //@忆梅下西舟:太搞笑了！//@ushistory: 这是绕口令啊。建议郭德纲将其作为相声题材。<br><br>RE: 美术馆反法西斯胜利70周年画展因庆祝反法西斯胜利70周年活动而暂停。</p>
-<p>
-	<small> ============== 5小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3878658802966618" target="freeweibo-mirror">//@青岛记:官V发的！！//@东面有海:[思考]   @黄…</a>
-</h2>
-<p>//@青岛记:官V发的！！//@东面有海:[思考]   @黄岛老实人 @方思古钱儿 @黄花菜_凉了 @魅力灵山湾 @狂龙 @黄岛今日 @青岛记 @寳貝斌斌 @向北岭 @常山蛇1 @77623说 @胶南PETER @北美飞霜 @胶南印象 @充气菩萨 @黄岛硬汉<br><br>RE: 【中共中央党校整修 校名题词巨石被移走】8月21日，北京，海淀区大有庄100号中共中央党校。当日，中央党校门前题有“中共中央党校”的巨石已经被移走，大型施工机械正在现场施工，几名工人在整理裸露的地面。http://t.cn/RLkB3U3<br><img src="http://ww4.sinaimg.cn/large/515a7464jw1evbaq46axwj20hs0tetfu.jpg"></p>
-<p>
-	<small> ============== 5小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3878654335134773" target="freeweibo-mirror">//@域名投资神马:转发微博</a>
-</h2>
-<p>//@域名投资神马:转发微博<br><br>RE: 阳江市人民政府暴打解放老兵，原因由于政府克扣老兵国家补贴！求散！微博原文http://t.cn/RLk1PQE爆料人：@S-CHAM<br><img src="http://ww1.sinaimg.cn/large/7db92c47gw1evb76pzeqrj20hs0vkna5.jpg"></p>
 <p>
 	<small> ============== 5小时前</small>
 </p>
