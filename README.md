@@ -30,13 +30,19 @@
 </h2>
 <p>SPAM 回复@蒋君Style:跪了 //@蒋君Style:回复@木林HM:肯定长安街预演啊<br><br>RE: 魔幻现实主义<br><img src="http://ww1.sinaimg.cn/large/c14d47b8jw1evbu0c7gszj20m80gotb0.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3878790637500277" target="freeweibo-mirror">SPAM 晕，这是哪？</a>
 </h2>
 <p>SPAM 晕，这是哪？<br><br>RE: 魔幻现实主义<br><img src="http://ww1.sinaimg.cn/large/c14d47b8jw1evbu0c7gszj20m80gotb0.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3878790415825408" target="freeweibo-mirror">魔幻现实主义</a>
+</h2>
+<p>魔幻现实主义<br><img src="http://ww1.sinaimg.cn/large/c14d47b8jw1evbu0c7gszj20m80gotb0.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3878789610609700" target="freeweibo-mirror">SPAM [汗][汗][汗]//@戎戎53日记: [吃惊][…</a>
 </h2>
@@ -74,6 +80,12 @@
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3878769167079951" target="freeweibo-mirror">【新华网：正确理解毛泽东"感谢日本侵略"一语】1964.7.…</a>
+</h2>
+<p>【新华网：正确理解毛泽东"感谢日本侵略"一语】1964.7.10，毛对佐佐木更三说：“没有你们皇军侵略大半个中国，中国人民就不能团结起来对付蒋介石，中国共产党就夺取不了政权。所以日本皇军是我们中国共产党人的好教员，也可以说是大恩人大救星。”毛与外宾谈话曾多次说过类似的话http://t.cn/RLFchEo<br><img src="http://ww3.sinaimg.cn/large/656952ecgw1evbrk1fv4uj20a90akwgc.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3878765291371072" target="freeweibo-mirror">SPAM //@刘耘博士: 人格不高，脊梁不直，骨头不硬，不…</a>
 </h2>
 <p>SPAM //@刘耘博士: 人格不高，脊梁不直，骨头不硬，不吹不行啊。<br><br>RE: “不是政府人士，永远不要去做政府的吹鼓手，因为吹鼓手在政府眼里永远只值一个夜壶铜钿，尿急了拿出来用一下，用完了将夜壶放到最角落地方；你吹得越起劲，不仅公众看不起你，政府更看不起你，所以吹鼓手都没有好下场。”一一杜月笙<br><img src="http://ww1.sinaimg.cn/large/41693645gw1evbnyt8uoij20k00f0jtm.jpg"></p>
@@ -84,7 +96,7 @@
 </h2>
 <p>//@崖上尋芳草: 到阅兵式上去喊冤,让全世界都看见.://@一品泥人://@裟僧情怀: //@粵東老趙://@熊猫清清河边草: //@叶3峰://@仙怜凡尘:转给正在当兵的看看。 //@豆名阳: 军队不是国家化，被党派所控制，后果自然是这样。<br><br>RE: @S-CHAM ：阳江市人民政府暴打解放老兵，原因由于政府克扣老兵国家补贴！网友直呼：“报应”！<br><img src="http://ww3.sinaimg.cn/large/82384fadgw1evbcqdimqmj20c80lpwgn.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3878759071847761" target="freeweibo-mirror">//@上海美途旅游: 共党无处不邪恶//@西北胡杨x:如果法…</a>
 </h2>
@@ -114,29 +126,17 @@
 </h2>
 <p>SPAM  //@导演宋翔:假图真事<br><br>RE: 如图<br><img src="http://ww4.sinaimg.cn/large/706dd2c3jw1evbit0l6kjj20il0c8t9w.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3878745381789560" target="freeweibo-mirror">由衷感谢！新时代的英雄... （SS的作者被约喝茶，无奈停止…</a>
 </h2>
 <p>由衷感谢！新时代的英雄... （SS的作者被约喝茶，无奈停止该项目并删除全部公开代码...）<br><br>RE: 「两天前 Police 找到我，希望我停止 shadowsocks 的相关维护工作，8月22日又要求我删除 GitHub 上所有代码，我没有任何其它选择，只能无奈服从。希望有一天我能在没有恐惧，可以随心所欲自由编写代码的国家生活。」<br><img src="http://ww2.sinaimg.cn/large/6dbeae07jw1evbi27fd5mj20iw0tbq60.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3878744748191569" target="freeweibo-mirror">看图片是控制了，绝对不是P的，全都是军方便衣//@反烟人愚公…</a>
 </h2>
 <p>看图片是控制了，绝对不是P的，全都是军方便衣//@反烟人愚公在线:是否放信号，新浪的态度已经给出了答案[太开心][太开心][太开心]//@请叫我大上哥://@反烟人愚公在线:这样的图片突然在微博不断出现，绝非儿戏！<br><br>RE: 了解中国政治生活或者知道点内幕的网友是否注意到，新闻联播屡屡提起江泽民从外地送画圈这个细节？这就说明他早就被限制人身自由了！提他的名字是因为给外界一个信号而已，如果没有猜错的话中央有可能在阅兵过后宣布对他采取强制措施<br><img src="http://ww4.sinaimg.cn/large/005Xl1Rjjw1evbmvbdo3zj30im0dyjsw.jpg"></p>
-<p>
-	<small> ============== 5小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3878742781222157" target="freeweibo-mirror">/退而不休的典范！/@为你而来--振臂再呼:一面对邓推崇不已…</a>
-</h2>
-<p>/退而不休的典范！/@为你而来--振臂再呼:一面对邓推崇不已，一面公开推墙，这是赞邓还是黑邓？//@侯宁: 客观真难。[泪流满面]//@2011梁永升: //@鄂尔多斯人在北京:差点亡了党国//@轩轩闱阁:留下一地鸡毛的改革，使共产党陷入亡党亡国的绝境！国家危机四伏，还有一群厚颜无耻的杂粹称其为伟大人物</p>
-<p>
-	<small> ============== 5小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3878742688659092" target="freeweibo-mirror">//@李家楚琪：我国灰常有大国风范，心系泰国爆炸呢</a>
-</h2>
-<p>//@李家楚琪：我国灰常有大国风范，心系泰国爆炸呢<br><br>RE: 两段境外媒体天津事件采访视频：BBC采访报道，看到画面上横幅上闪过：相信政府、拒绝隐瞒等大字。http://t.cn/RLDpoDJ ；另一段境外媒体的视频，带着哭腔的大姐给滨海新区的区委书记、区长讲空气清新剂的冷笑话。印象最深的，是那个靠着车窗表情复杂地围观的一个天津大爷。http://t.cn/RLkBfnq</p>
 <p>
 	<small> ============== 5小时前</small>
 </p>
