@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3878761135377518" target="freeweibo-mirror">//@崖上尋芳草: 到阅兵式上去喊冤,让全世界都看见.://…</a>
+</h2>
+<p>//@崖上尋芳草: 到阅兵式上去喊冤,让全世界都看见.://@一品泥人://@裟僧情怀: //@粵東老趙://@熊猫清清河边草: //@叶3峰://@仙怜凡尘:转给正在当兵的看看。 //@豆名阳: 军队不是国家化，被党派所控制，后果自然是这样。<br><br>RE: @S-CHAM ：阳江市人民政府暴打解放老兵，原因由于政府克扣老兵国家补贴！网友直呼：“报应”！<br><img src="http://ww3.sinaimg.cn/large/82384fadgw1evbcqdimqmj20c80lpwgn.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3878746458960681" target="freeweibo-mirror">SPAM  //@导演宋翔:假图真事</a>
 </h2>
 <p>SPAM  //@导演宋翔:假图真事<br><br>RE: 如图<br><img src="http://ww4.sinaimg.cn/large/706dd2c3jw1evbit0l6kjj20il0c8t9w.jpg"></p>
@@ -80,6 +86,12 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3878732227545192" target="freeweibo-mirror">SPAM //@柳心娇:为什么杀人？@贾贸律师 出来辟谣[生…</a>
+</h2>
+<p>SPAM //@柳心娇:为什么杀人？@贾贸律师 出来辟谣[生病]<br><br>RE: #突发#龙山县，他砂乡，今天出大事了，汪XX杀了14人，已经死了九人，还有4人重伤！还有个40天婴儿的都被杀死、真的太恐怖了、这种人真是天里难容[怒][怒][怒][怒][怒]<br><img src="http://ww3.sinaimg.cn/large/c275a3adgw1evbn80pxusj20nq0fzace.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3878728041695996" target="freeweibo-mirror">了解中国政治生活或者知道点内幕的网友是否注意到，新闻联播屡屡…</a>
 </h2>
 <p>了解中国政治生活或者知道点内幕的网友是否注意到，新闻联播屡屡提起江泽民从外地送画圈这个细节？这就说明他早就被限制人身自由了！提他的名字是因为给外界一个信号而已，如果没有猜错的话中央有可能在阅兵过后宣布对他采取强制措施<br><img src="http://ww4.sinaimg.cn/large/005Xl1Rjjw1evbmvbdo3zj30im0dyjsw.jpg"></p>
@@ -114,7 +126,7 @@
 </h2>
 <p>网信办组织一批五毛到各地乱窜，花着纳税人的钱游山玩水，到地方后，与当地政府吹牛拍马歌功颂德一味溜须，有意思吗，估计挺有意思的，要不@雷希颖 那样在澳洲洗盘子的能关上洗碗机不远万里的跑回来参加么。全国一圈转下来，估计就天下太平国泰民安了，不知活动经费算不算维稳经费里，难怪天文数字呢。</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3878701798467866" target="freeweibo-mirror">回复@圣西罗的向往:钓鱼岛历史上都属于台湾，那得先收复台湾。…</a>
 </h2>
@@ -125,18 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3878701441388688" target="freeweibo-mirror">1964年7月10日北京，毛对日本社会党委员长佐佐木更三说：…</a>
 </h2>
 <p>1964年7月10日北京，毛对日本社会党委员长佐佐木更三说：“没有你们皇军侵略大半个中国，中国人民就不能团结起来对付蒋介石，中国共产党就夺取不了政权。所以，日本皇军是我们中国共产党人的好教员，也可以说是大恩人，大救星。” 这老逼养的，可把我们害苦了！<br><img src="http://ww2.sinaimg.cn/large/c091022fjw1evbjtg5fhaj20bo07ot98.jpg"></p>
-<p>
-	<small> ============== 5小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3878700242548307" target="freeweibo-mirror">谣言？ //@春风梳柳66:[怒]//@漢青社:土鳖真混账……</a>
-</h2>
-<p>谣言？ //@春风梳柳66:[怒]//@漢青社:土鳖真混账…//@说话的人很多不如我也说说:？[怒]</p>
-<p>
-	<small> ============== 5小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3878698450715870" target="freeweibo-mirror">//@浦东小夜曲: //@听古道今l: 速看！[围观]</a>
-</h2>
-<p>//@浦东小夜曲: //@听古道今l: 速看！[围观]</p>
 <p>
 	<small> ============== 5小时前</small>
 </p>
