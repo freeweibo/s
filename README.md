@@ -24,7 +24,7 @@
 </h2>
 <p>好人不黑人，被黑是好人。//@两江四岸：可能吴先生和海鹏是真正的智者。水工被黑是最多的了，HW中W被骂为奸相，而猪首相和H基本没被黑过甚至他们得到更多的是赞。耐人寻味。</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3878711088563182" target="freeweibo-mirror">//@王光复:考证困难 //@苏州朱永健://@麻毛雄: /…</a>
 </h2>
@@ -84,13 +84,13 @@
 </h2>
 <p>SPAM //@沥沥夏雪2521032: //@孟庆明v:恐怖，不寒而栗！<br><br>RE: 轉一篇文章，聽聽不同渠道的聲音：天津倖存消防員對外媒泄密 一句話“不寒而慄”<br><img src="http://ww1.sinaimg.cn/large/bdfc7496gw1evbde5zi4zj20c32agaqy.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3878689554642446" target="freeweibo-mirror">//@张文学m: 这个比下跪求官，进步多了。//@平民内参:…</a>
 </h2>
 <p>//@张文学m: 这个比下跪求官，进步多了。//@平民内参: //@罗昌平://@傻菇粮：//@周京平:</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3878688686593155" target="freeweibo-mirror">//@罗昌平://@傻菇粮：//@周京平:</a>
 </h2>
@@ -120,7 +120,7 @@
 </h2>
 <p>。。。//@谢文:堂堂大国，，，变成“其他国家”？<br><br>RE: 缅甸太坏了，这样“其他国家”就比较显眼了。<br><img src="http://ww3.sinaimg.cn/large/7b9bdae1jw1eva7i9ub9yj20p018gn5x.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3878666239253272" target="freeweibo-mirror">//@太平金黄鱼:右边[赞]//@王建民钢笔画:反法西斯的 …</a>
 </h2>
