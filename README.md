@@ -30,7 +30,7 @@
 </h2>
 <p>//@小东邪v:在民主国家不需要军队参与过多的政治决策，需要弱化军队对国内政治的影响，因此不需要阅兵！ //@罗昌平:英国正规军被不会走正步的美国农民打败！//@mattcello：真正的高手不需要任何的炫耀！<br><br>RE: 【美式阅兵】美国阅兵多在战场上，最大一次阅兵，不在本土，是在日本受降仪式上举行的海空大阅兵，当时美国陆军、海军的航空队1000架飞机、22艘航母、8艘战列舰和数十艘战斗舰参加了史无前例的阅兵观礼。相反，在本土阅兵近几十年几乎没有，因为美军都被派驻到了海外，无法组织足够的阅兵单位参加。<br><img src="http://ww3.sinaimg.cn/large/749bcf09jw1evalh3tbh1j20hs2ze1bt.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3879006816912238" target="freeweibo-mirror">广东居然被排除在外，这是处处给胡春华难看啊[衰][衰][衰]</a>
 </h2>
@@ -72,31 +72,31 @@
 </h2>
 <p>SPAM 老王，你把小秘书怎么了？</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3878977980299287" target="freeweibo-mirror">美国为什么不是用筷子吃饭呢？//@不沉默的大多数:美国如何关…</a>
 </h2>
 <p>美国为什么不是用筷子吃饭呢？//@不沉默的大多数:美国如何关我们屁事[哈哈] //@大鹏看天下:美国人为什么不搞大阅兵。[思考]<br><br>RE: 【美式阅兵】美国阅兵多在战场上，最大一次阅兵，不在本土，是在日本受降仪式上举行的海空大阅兵，当时美国陆军、海军的航空队1000架飞机、22艘航母、8艘战列舰和数十艘战斗舰参加了史无前例的阅兵观礼。相反，在本土阅兵近几十年几乎没有，因为美军都被派驻到了海外，无法组织足够的阅兵单位参加。<br><img src="http://ww3.sinaimg.cn/large/749bcf09jw1evalh3tbh1j20hs2ze1bt.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3878977397356698" target="freeweibo-mirror">SPAM 我，@王亚军北京 还在微博！换个地方继续胡言@高会…</a>
 </h2>
 <p>SPAM 我，@王亚军北京 还在微博！换个地方继续胡言@高会民 @何光伟 @煮酒君谈史 @段贵发 @浩正刘臻 @大尸凶的漫画 @大鹏看天下 @五岳散人 @林萍在日本 @-孔智勇 @虎叔- @作家东海 @作家崔成浩<br><img src="http://ww1.sinaimg.cn/large/005Zc5hajw1evcfeevoyqj30c80lr75e.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3878977381262707" target="freeweibo-mirror">SPAM [喵喵]</a>
 </h2>
 <p>SPAM [喵喵]<br><br>RE: SPAM 驾着七彩云朵来的，不一定是你的意中人，还可能是你的血汗钱。<br><img src="http://ww4.sinaimg.cn/large/625da52cgw1evcfg1hkjqj20zk0qowh9.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3878977129497276" target="freeweibo-mirror">SPAM 然而，各种花样秀军力满天跑飞机，都还不如美国大兵徒…</a>
 </h2>
 <p>SPAM 然而，各种花样秀军力满天跑飞机，都还不如美国大兵徒手制伏持枪恐怖分子救一火车人更有说服力。<br><img src="http://ww2.sinaimg.cn/large/62044e6fjw1evcfdto0p1j20hs0h80vw.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3878976827060289" target="freeweibo-mirror">SPAM 驾着七彩云朵来的，不一定是你的意中人，还可能是你的…</a>
 </h2>
