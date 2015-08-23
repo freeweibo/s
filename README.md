@@ -24,7 +24,7 @@
 </h2>
 <p>跺着脚走、小跑着走、散兵游勇哄闹着走，这些不是根本。根本不在于阅兵如何个走法儿，而在于阅兵本身。这人类阅兵本身就是对于战争标榜和诠释。</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3879053302025061" target="freeweibo-mirror">//@但斌://@PiYio：毛说一根指头打倒刘一句是真的，…</a>
 </h2>
@@ -84,7 +84,7 @@
 </h2>
 <p>原来是酱紫呀 [吃惊] //@郭宇宽以研究会友: 正步踢得整齐的国家，值得思考，往往名声都不好。<br><br>RE: 人民的事，再大也是小事<br><img src="http://ww1.sinaimg.cn/large/5940f48djw1evch50hswwj20f00qon1b.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3879010679525881" target="freeweibo-mirror">SPAM //@黄土路: 怪不得。</a>
 </h2>
