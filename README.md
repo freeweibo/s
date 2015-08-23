@@ -62,6 +62,12 @@
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3879004740431639" target="freeweibo-mirror">“我们从来不在自己的家园阅兵，我们只在战场上阅兵；我们从来不…</a>
+</h2>
+<p>“我们从来不在自己的家园阅兵，我们只在战场上阅兵；我们从来不在自己的家人面前傲武扬威，我们只在敌人的土地上策马扬鞭；我们从来不在白宫门前检阅武器，我们只在实战中检阅武器；我们从来不要求战士的走姿，我们只强调战争中的隐形。”——五角大楼</p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3879004669311136" target="freeweibo-mirror">我们的军队主要用于维稳</a>
 </h2>
 <p>我们的军队主要用于维稳<br><br>RE: 【美式阅兵】美国阅兵多在战场上，最大一次阅兵，不在本土，是在日本受降仪式上举行的海空大阅兵，当时美国陆军、海军的航空队1000架飞机、22艘航母、8艘战列舰和数十艘战斗舰参加了史无前例的阅兵观礼。相反，在本土阅兵近几十年几乎没有，因为美军都被派驻到了海外，无法组织足够的阅兵单位参加。<br><img src="http://ww3.sinaimg.cn/large/749bcf09jw1evalh3tbh1j20hs2ze1bt.jpg"></p>
@@ -84,13 +90,13 @@
 </h2>
 <p>老汉放羊时发生的一幕，哈哈哈感受下“别人家的阅兵场景”[笑cry] http://t.cn/RZnLHr2</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3879001447349412" target="freeweibo-mirror">死磕派律师要么被关进去了，要么被吊销执照了，剩下的吓回去了，…</a>
 </h2>
 <p>死磕派律师要么被关进去了，要么被吊销执照了，剩下的吓回去了，就是付律师费都没有几个律师敢代理。中国人“士”的精神在律师中还有一些残余，现在也快没了。<br><img src="http://ww4.sinaimg.cn/large/4c148083jw1evci7p84vhj20e80hs416.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3878995684309228" target="freeweibo-mirror">回复@青年张鑫:我晒你这种傻逼就是为国民帮忙[爱你] //@…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3878987677392457" target="freeweibo-mirror">SPAM [挖鼻]这又是咋了？//@饭扯: 这名儿不改估计活…</a>
 </h2>
 <p>SPAM [挖鼻]这又是咋了？//@饭扯: 这名儿不改估计活不长//@虎叔-:老王，你把小秘书怎么了？</p>
-<p>
-	<small> ============== 4小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3878986855379877" target="freeweibo-mirror">SPAM 哈哈啊 //@VintageMuse:论重复的重要…</a>
-</h2>
-<p>SPAM 哈哈啊 //@VintageMuse:论重复的重要性。 //@summer的连衣裙VV:给各路明星们一个样板，买水军不要贪图便宜。 //@Mia0920:哈哈哈哈<br><br>RE: SPAM 蛮好笑的<br><img src="http://ww3.sinaimg.cn/large/70fa393dgw1evcen6jed6j20ku056dgb.jpg"></p>
 <p>
 	<small> ============== 4小时前</small>
 </p>
