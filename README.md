@@ -26,6 +26,12 @@
 <p>
 	<small> ============== 1小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3879034930400469" target="freeweibo-mirror">//@阿訇说-洗洗睡啦:对头！想想那些为了正步踢断腿的当兵的…</a>
+</h2>
+<p>//@阿訇说-洗洗睡啦:对头！想想那些为了正步踢断腿的当兵的，他们的俩副主席喝兵血贪军粮，这个兵还有啥当头//@谢文:有的军队使命是对外，有的军队使命是对内<br><br>RE: “我们从来不在自己的家园阅兵，我们只在战场上阅兵；我们从来不在自己的家人面前傲武扬威，我们只在敌人的土地上策马扬鞭；我们从来不在白宫门前检阅武器，我们只在实战中检阅武器；我们从来不要求战士的走姿，我们只强调战争中的隐形。”——五角大楼</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3879021898711560" target="freeweibo-mirror">SPAM 自娱自乐。</a>
 </h2>
 <p>SPAM 自娱自乐。<br><br>RE: 老汉放羊时发生的一幕，哈哈哈感受下“别人家的阅兵场景”[笑cry] http://t.cn/RZnLHr2</p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3878986855379877" target="freeweibo-mirror">SPAM 哈哈啊 //@VintageMuse:论重复的重要…</a>
 </h2>
 <p>SPAM 哈哈啊 //@VintageMuse:论重复的重要性。 //@summer的连衣裙VV:给各路明星们一个样板，买水军不要贪图便宜。 //@Mia0920:哈哈哈哈<br><br>RE: SPAM 蛮好笑的<br><img src="http://ww3.sinaimg.cn/large/70fa393dgw1evcen6jed6j20ku056dgb.jpg"></p>
-<p>
-	<small> ============== 4小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3878983453964878" target="freeweibo-mirror">[哈哈]//@甲胄子:迎面向我们走来的是手机方队，他们拿着手…</a>
-</h2>
-<p>[哈哈]//@甲胄子:迎面向我们走来的是手机方队，他们拿着手机，雄赳赳气昂昂，喊着响亮的口号向我们走来。“同志们好！”“首长好，天安门WIFI密码是多少？！”[doge]</p>
 <p>
 	<small> ============== 4小时前</small>
 </p>
