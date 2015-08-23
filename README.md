@@ -36,7 +36,7 @@
 </h2>
 <p>//@不变的糕哥:谁是军国主义，一目了然啊//@海韻O魅影: //@野火苍茫:庆丰盛世终于迎来了高潮[哈哈] //@爱卿平身免礼吧:[哈哈]<br><br>RE: “戒严态势”[哈哈][哈哈]，变相的说对老百姓是法西斯呢！<br><img src="http://ww3.sinaimg.cn/large/e0aa6a0ejw1evc5sxypk6j20hs0i1tcm.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3878907591642120" target="freeweibo-mirror">有本国法西斯保护，外国法西斯绝不敢入侵。</a>
 </h2>
@@ -66,7 +66,7 @@
 </h2>
 <p>“戒严态势”[哈哈][哈哈]，变相的说对老百姓是法西斯呢！<br><img src="http://ww3.sinaimg.cn/large/e0aa6a0ejw1evc5sxypk6j20hs0i1tcm.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3878876000107723" target="freeweibo-mirror">SPAM ☁ //@鹪鹩一枝:再转发一次！为何不见哀悼这些无…</a>
 </h2>
@@ -114,7 +114,7 @@
 </h2>
 <p>篡改历史<br><br>RE: 蘋果日報『 中共假大空的中國夢 - 錢志健』 這些已是擁有香港永久「三粒星」的金融共黨半生熟之交認為，1949年以來，中國社會的集體主義教育造成了大家普遍認同一個「有國才有家，國富才能民強」的「先集體，後個人」邏輯。<br><img src="http://ww4.sinaimg.cn/large/006cfcOSjw1evadcm0255j30a02nbe1v.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3878814247589690" target="freeweibo-mirror">//@叶匡政:转发微博</a>
 </h2>
