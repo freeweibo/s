@@ -20,11 +20,17 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3878930467221561" target="freeweibo-mirror">当如今上档次的大贪有几个不是当年打打杀杀把毛泽东当成唯一真神…</a>
+</h2>
+<p>当如今上档次的大贪有几个不是当年打打杀杀把毛泽东当成唯一真神的红卫兵？只有具有这种品质的人才有资格进入共党的提干梯队 。如今的五毛们聪明地看到了这点//@风清飏v:个人理解对红卫兵的批评和反思不是对某个曾经是红卫兵的人的批判，而是对集体无意识的思想进行彻底的反思。也是对文革的彻底否定。</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3878920816000330" target="freeweibo-mirror">//@泪水不再有温度:转发微博</a>
 </h2>
 <p>//@泪水不再有温度:转发微博<br><br>RE: 北京网友：刚听说，因为阅兵演习，这周末不但小区周边一切商店关门，而且地铁不通，马路封闭。今晚准备去超市买粮、买水，迎接一个周末的非正常生活。知道的这是庆祝反法西斯胜利70周年，不知道的还以为他妈的法西斯要进城了呢。</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3878916731587172" target="freeweibo-mirror">定他们个反人类罪也不为过。</a>
 </h2>
@@ -84,7 +90,7 @@
 </h2>
 <p>SPAM ☁ //@鹪鹩一枝:再转发一次！为何不见哀悼这些无辜平民的仪式、文章或者报道？</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3878874116613612" target="freeweibo-mirror">SPAM 说这样的话竟然没被投入大牢，说明伟光正还是与时俱进…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3878814247589690" target="freeweibo-mirror">//@叶匡政:转发微博</a>
 </h2>
 <p>//@叶匡政:转发微博<br><br>RE: 天津，淄博，南宁......类似“定时炸弹”还有2489个，自求多福吧<br><img src="http://ww2.sinaimg.cn/large/97fd5ce7jw1evbt7rzs90j20ez0qo77d.jpg"></p>
-<p>
-	<small> ============== 9小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3878814109001961" target="freeweibo-mirror">SPAM #93大阅兵##9.3天安门阅兵#这组照片真拉风</a>
-</h2>
-<p>SPAM #93大阅兵##9.3天安门阅兵#这组照片真拉风<br><br>RE: 兄弟们睡吧，我继续熬夜[doge]明天应该还有大飞机拉烟[doge]说实话，1DX真牛逼[嘻嘻]<br><img src="http://ww1.sinaimg.cn/large/42595886jw1evbwnh8th0j218g0tm7fj.jpg"></p>
 <p>
 	<small> ============== 9小时前</small>
 </p>
