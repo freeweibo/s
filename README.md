@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3879095911637931" target="freeweibo-mirror">//@幸福树ok:转发微博</a>
+</h2>
+<p>//@幸福树ok:转发微博<br><br>RE: 一个国家的国威真的不是靠阅兵来检验的，而是靠人民的自由、法治的衡定有效、普通民众的尊严和安全感。没有这一切，却拿出枪炮，实际是自卑和心虚的表现。<br><img src="http://ww1.sinaimg.cn/large/4c6e5911jw1evcr1q0gogj20k00cltbn.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3879082737447066" target="freeweibo-mirror">[哈哈][伤心]</a>
 </h2>
 <p>[哈哈][伤心]<br><br>RE: #北京事儿#【[衰]】@小闲闲：今儿大家秀的不是灰机，是房价。自家能拍摄到的拉烟的是二环以内，带点儿余烟的三环，能看到飞机的四环附近，五环以外的都在忙着点赞……[泪]<br><img src="http://ww1.sinaimg.cn/large/63136032jw1evceljvfd0j20x30x3mzs.jpg"></p>
@@ -90,7 +96,7 @@
 </h2>
 <p>//@王兴律师v:正步有差距，队列也不够齐，没有北斗差老事了//@律师文摘:共同点是：整齐划一。//@隆裕太后: //@记者郝成:他们也号称为了人类，为了民族……//@苏州郎心铁: 呵呵。//@高小曜: //@郑承晚: //@子夜的昙3: //@晴晴姑姐:<br><br>RE: 让我们怀着同一个世界,同一个梦想的眼光，来温故一下70年前反对的那个法西斯是啥样的！<br><img src="http://ww3.sinaimg.cn/large/6401cc2cjw1evcg0spu42j20zk0sgadt.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3879054463693508" target="freeweibo-mirror">遮挡镜头的那些人到底是怎么想的？ //@演员孙海英:该做的都…</a>
 </h2>
@@ -133,12 +139,6 @@
 <p>看看美国有没有阅兵？http://t.cn/RZuEZJ8<br><img src="http://ww1.sinaimg.cn/large/7772f1d3gw1evcmzd2dh4j20hs0adq4p.jpg"></p>
 <p>
 	<small> ============== 4小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3879039439498883" target="freeweibo-mirror">SPAM 回复@德语客:逢中必反，逢美必舔。它们的惯性而已。…</a>
-</h2>
-<p>SPAM 回复@德语客:逢中必反，逢美必舔。它们的惯性而已。//@德语客:但凡是个人都能看清楚美国脸孔，特不理解，这些家伙看不到美国在中东，在非洲所做所为。难道他们就喜欢伪善？//@醉鱼:拿这个骂中舔美真是脑子被屎填满了。。阅兵是平和地展现实力，以震宵小。楼主美爹喜欢隐形在别的国家制造战争，损人利己<br><br>RE: “我们从来不在自己的家园阅兵，我们只在战场上阅兵；我们从来不在自己的家人面前傲武扬威，我们只在敌人的土地上策马扬鞭；我们从来不在白宫门前检阅武器，我们只在实战中检阅武器；我们从来不要求战士的走姿，我们只强调战争中的隐形。”——五角大楼</p>
-<p>
-	<small> ============== 5小时前</small>
 </p>
 <table>
     <tr>
