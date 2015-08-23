@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3879060725614087" target="freeweibo-mirror">跺着脚走、小跑着走、散兵游勇哄闹着走，这些不是根本。根本不在…</a>
+</h2>
+<p>跺着脚走、小跑着走、散兵游勇哄闹着走，这些不是根本。根本不在于阅兵如何个走法儿，而在于阅兵本身。这人类阅兵本身就是对于战争标榜和诠释。</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3879053302025061" target="freeweibo-mirror">//@但斌://@PiYio：毛说一根指头打倒刘一句是真的，…</a>
 </h2>
 <p>//@但斌://@PiYio：毛说一根指头打倒刘一句是真的，由于感觉到危机刘无力的反击打断毛的话也是真的。请看毛泽东传吧，当然，那种歌功颂德的不必看，多看看吧<br><br>RE: 【2016文革发动50周年】1964年毛泽东与刘少奇就“四清”问题发生争论，刘在毛说话时打断他的话头，虽然刘事后做了自我批评，但在毛眼里此事非同小可，是彼“取而代之”意图流露。毛认为刘要把他变成牌坊。年底毛当着中央领导的面训斥刘少奇：“你有什么了不起？我一个小指头就可以把你打倒”！<br><img src="http://ww2.sinaimg.cn/large/709b1d0ejw1evcc0sbnbgj20go0cgmyk.jpg"></p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3879001996933999" target="freeweibo-mirror">老汉放羊时发生的一幕，哈哈哈感受下“别人家的阅兵场景”[笑c…</a>
 </h2>
 <p>老汉放羊时发生的一幕，哈哈哈感受下“别人家的阅兵场景”[笑cry] http://t.cn/RZnLHr2</p>
-<p>
-	<small> ============== 5小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3879001447349412" target="freeweibo-mirror">死磕派律师要么被关进去了，要么被吊销执照了，剩下的吓回去了，…</a>
-</h2>
-<p>死磕派律师要么被关进去了，要么被吊销执照了，剩下的吓回去了，就是付律师费都没有几个律师敢代理。中国人“士”的精神在律师中还有一些残余，现在也快没了。<br><img src="http://ww4.sinaimg.cn/large/4c148083jw1evci7p84vhj20e80hs416.jpg"></p>
 <p>
 	<small> ============== 5小时前</small>
 </p>
