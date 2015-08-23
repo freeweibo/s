@@ -78,7 +78,7 @@
 </h2>
 <p>天津爆炸事故之后，小区受损业主们忽然发现，他们告状无门，连一个接单的律师都找不到，原来在两个月之前，敢接单的律师都被抓到牢里了。——我忽然发共产党真的很伟大！很有预见性！<br><img src="http://ww2.sinaimg.cn/large/5634f1dfjw1evc6ziyagcj204i064q2v.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3878900993622862" target="freeweibo-mirror">问题是这事跟网信办没关系，是私人行为。@黄胜友微博 你看你一…</a>
 </h2>
