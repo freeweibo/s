@@ -60,7 +60,7 @@
 </h2>
 <p>//@周泽律师:法西斯不是被消灭了吗？怎么还有这些东西？<br><br>RE: 让我们怀着同一个世界,同一个梦想的眼光，来温故一下70年前反对的那个法西斯是啥样的！<br><img src="http://ww3.sinaimg.cn/large/6401cc2cjw1evcg0spu42j20zk0sgadt.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3879069881840725" target="freeweibo-mirror">//@登耳人圭:期待一场同样壮观的阅兵！</a>
 </h2>
@@ -138,7 +138,7 @@
 </h2>
 <p>看看美国有没有阅兵？http://t.cn/RZuEZJ8<br><img src="http://ww1.sinaimg.cn/large/7772f1d3gw1evcmzd2dh4j20hs0adq4p.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p>
 <table>
     <tr>
