@@ -30,7 +30,7 @@
 </h2>
 <p>//@冰哥微谈:毛贼之恶，罄竹难书[怒]//@逍遥慕容仙: //@访客归来: 转发微博<br><br>RE: 分享图片<br><img src="http://ww1.sinaimg.cn/large/ecd55bbejw1evbsdgndstj20hs0u5acw.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3879072994238599" target="freeweibo-mirror">//@周泽律师:法西斯不是被消灭了吗？怎么还有这些东西？</a>
 </h2>
