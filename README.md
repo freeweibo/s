@@ -102,7 +102,7 @@
 </h2>
 <p>//@李少凡: 这些东西包括入伍操练都要拜德国所赐，为专制钟爱//@风中疾走:德国梦 //@无痕轩:军装真好看//@水兵李铭:转发微博<br><br>RE: 让我们怀着同一个世界,同一个梦想的眼光，来温故一下70年前反对的那个法西斯是啥样的！<br><img src="http://ww3.sinaimg.cn/large/6401cc2cjw1evcg0spu42j20zk0sgadt.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3879065855233727" target="freeweibo-mirror">俄罗斯为纪念卫国战争、反法西斯战争胜利70周年阅兵的时候，那…</a>
 </h2>
