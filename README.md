@@ -26,11 +26,23 @@
 <p>
 	<small> ============== 1小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3878942659890450" target="freeweibo-mirror">SPAM 南山长者？</a>
+</h2>
+<p>SPAM 南山长者？<br><br>RE: 刚刚在我微信朋友圈看到的图片，你知道带走的人是谁吗？[吃惊][吃惊][吃惊]<br><img src="http://ww3.sinaimg.cn/large/8528bf0djw1evby9uz8t7j20im0dywfi.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3878940173574609" target="freeweibo-mirror">//@徐凤文: 感谢蓝豹救援总队队长提供的信息，事发初期不少…</a>
 </h2>
 <p>//@徐凤文: 感谢蓝豹救援总队队长提供的信息，事发初期不少媒体拍摄了一些农民工的照片（见图），但这个依然跟远大的其余人数对不上号： @简格民 我清楚记得8月14日中午起有大巴进入开发区二小安置点，下午陆陆续续拉走了300余人农民工，就是远大的。博主最好核实清楚，安置点民工就在我们安置区。<br><br>RE: 关于爆炸现场600米左右万科清水港湾三期住宅项目农民工，终于有消息了。据湖北远大集团官网透露， 施工现场有施工人员589人。经摸底排查，目前住院人数为14人，此外骨折、缝针、脚、手、臂、肩被砸伤人员达30人，轻伤达96人，其余人员均存在不同程度的中毒症状。死多少人，未知。http://t.cn/RLFhrGH<br><img src="http://ww3.sinaimg.cn/large/5d7ca92cjw1evbtdpbuc5j20qo0zk0yv.jpg"></p>
 <p>
 	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3878934053284629" target="freeweibo-mirror">//@荣剑2001:究竟死了多少人？关切！//@陶景洲:终于…</a>
+</h2>
+<p>//@荣剑2001:究竟死了多少人？关切！//@陶景洲:终于报道民工的事情了。他们的命在新闻面前也要低三分吗？ //@陈业文新大都:为何那么多天了才刚报道他们？//@杨锦麟:每個個體生命，都應該得到尊重。 //@老徐时评:死多少人，未知？[吃惊]//@细语柔柔: 苍天在上，谁给他们一个交代[泪][泪]<br><br>RE: 关于爆炸现场600米左右万科清水港湾三期住宅项目农民工，终于有消息了。据湖北远大集团官网透露， 施工现场有施工人员589人。经摸底排查，目前住院人数为14人，此外骨折、缝针、脚、手、臂、肩被砸伤人员达30人，轻伤达96人，其余人员均存在不同程度的中毒症状。死多少人，未知。http://t.cn/RLFhrGH<br><img src="http://ww3.sinaimg.cn/large/5d7ca92cjw1evbtdpbuc5j20qo0zk0yv.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3878930467221561" target="freeweibo-mirror">当如今上档次的大贪有几个不是当年打打杀杀把毛泽东当成唯一真神…</a>
 </h2>
@@ -41,6 +53,12 @@
 	<a href="https://freeweibo.com/weibo/3878921176894212" target="freeweibo-mirror">SPAM 朝鲜：当官的到哪都醉，文工团到哪都睡，扛枪的只练踢…</a>
 </h2>
 <p>SPAM 朝鲜：当官的到哪都醉，文工团到哪都睡，扛枪的只练踢腿，消防的只练浇水。<br><img src="http://ww4.sinaimg.cn/large/a62471f0jw1evc919k81ij20dw094jsh.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3878921021892190" target="freeweibo-mirror">//@援民律师:轉發微博</a>
+</h2>
+<p>//@援民律师:轉發微博<br><br>RE: 关于爆炸现场600米左右万科清水港湾三期住宅项目农民工，终于有消息了。据湖北远大集团官网透露， 施工现场有施工人员589人。经摸底排查，目前住院人数为14人，此外骨折、缝针、脚、手、臂、肩被砸伤人员达30人，轻伤达96人，其余人员均存在不同程度的中毒症状。死多少人，未知。http://t.cn/RLFhrGH<br><img src="http://ww3.sinaimg.cn/large/5d7ca92cjw1evbtdpbuc5j20qo0zk0yv.jpg"></p>
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
@@ -72,11 +90,17 @@
 </h2>
 <p>有本国法西斯保护，外国法西斯绝不敢入侵。<br><br>RE: “戒严态势”[哈哈][哈哈]，变相的说对老百姓是法西斯呢！<br><img src="http://ww3.sinaimg.cn/large/e0aa6a0ejw1evc5sxypk6j20hs0i1tcm.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3878903338977377" target="freeweibo-mirror">天津爆炸事故之后，小区受损业主们忽然发现，他们告状无门，连一…</a>
 </h2>
 <p>天津爆炸事故之后，小区受损业主们忽然发现，他们告状无门，连一个接单的律师都找不到，原来在两个月之前，敢接单的律师都被抓到牢里了。——我忽然发共产党真的很伟大！很有预见性！<br><img src="http://ww2.sinaimg.cn/large/5634f1dfjw1evc6ziyagcj204i064q2v.jpg"></p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3878901682327800" target="freeweibo-mirror">SPAM 事故频发期，多事之秋日，大家早上好！</a>
+</h2>
+<p>SPAM 事故频发期，多事之秋日，大家早上好！<br><img src="http://ww1.sinaimg.cn/large/4e0cd94bjw1evc6snmivnj20d00gsgmg.jpg"></p>
 <p>
 	<small> ============== 4小时前</small>
 </p><h2>
@@ -115,30 +139,6 @@
 <p>SPAM 说这样的话竟然没被投入大牢，说明伟光正还是与时俱进了//@鹪鹩一枝:“良药苦口利于病，忠言逆耳利于行！”//@鹪鹩一枝: 资中筠先生（女）的谈话，直率、深刻，是对于中国共产党真心的爱护啊！</p>
 <p>
 	<small> ============== 6小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3878872091407946" target="freeweibo-mirror">要培养一个熊孩子，最直接的方法就是当他和人打架之后，对他说打…</a>
-</h2>
-<p>要培养一个熊孩子，最直接的方法就是当他和人打架之后，对他说打的好。喜欢暴力爽快见血解气的，有想过将来如何教育自己的孩子吗？</p>
-<p>
-	<small> ============== 6小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3878823697004551" target="freeweibo-mirror">噗嗤！//@LifeTime:普京阅兵还不是靠包总捧场，彼此…</a>
-</h2>
-<p>噗嗤！//@LifeTime:普京阅兵还不是靠包总捧场，彼此彼此。[汗]</p>
-<p>
-	<small> ============== 9小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3878822933704340" target="freeweibo-mirror">出城砍柴者不受此限</a>
-</h2>
-<p>出城砍柴者不受此限<br><br>RE: 卢沟桥事变后，日军迅速占领平津等华北大地，强化治安，颁发良民证，对进城的百姓四处设卡检查。——历史证明，从纯粹治安措施而言，七十多年后亦可沿用。<br><img src="http://ww1.sinaimg.cn/large/61fcc2a9jw1evbn29ln9mj208c058t8y.jpg"></p>
-<p>
-	<small> ============== 9小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3878821402968352" target="freeweibo-mirror">//@铁路工人2013a: //@就爱酒://@赤馬於歸:/…</a>
-</h2>
-<p>//@铁路工人2013a: //@就爱酒://@赤馬於歸://@曾敏红: 没有血性//@拉萨万举:这般窝囊阅兵日，你们何以能昂首挺胸走过天安门广场？何以能仰视人民英雄纪念碑？ //@赤馬於歸://@拉萨万举: 如此窝囊的政府，少见啊！草泥马！ //@紅星闖將://@赤馬於歸:不让叫抗日叫抗战，如此百年之后，中国人就不知是抗谁</p>
-<p>
-	<small> ============== 9小时前</small>
 </p>
 <table>
     <tr>
