@@ -42,7 +42,7 @@
 </h2>
 <p>SPAM 日本鬼子在时他们是抗日英雄。建国后他们是蒋匪特务、人民敌人。后来，他们是犯人、孤寡老人、乞丐…。突然，又变成了抗战老英雄。这真是人生成了戏子，导演说演啥就演啥。http://t.cn/RLFccLS<br><img src="http://ww4.sinaimg.cn/large/b8e65f0ajw1evchg0apomj20ca0hswgq.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3878991515416320" target="freeweibo-mirror">发表了博文《是是非非汪东兴（组图）》汪东兴号称警卫毛泽东三十…</a>
 </h2>
