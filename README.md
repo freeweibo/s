@@ -42,7 +42,7 @@
 </h2>
 <p>//@李少凡: 这些东西包括入伍操练都要拜德国所赐，为专制钟爱//@风中疾走:德国梦 //@无痕轩:军装真好看//@水兵李铭:转发微博<br><br>RE: 让我们怀着同一个世界,同一个梦想的眼光，来温故一下70年前反对的那个法西斯是啥样的！<br><img src="http://ww3.sinaimg.cn/large/6401cc2cjw1evcg0spu42j20zk0sgadt.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3879060725614087" target="freeweibo-mirror">跺着脚走、小跑着走、散兵游勇哄闹着走，这些不是根本。根本不在…</a>
 </h2>
@@ -60,7 +60,7 @@
 </h2>
 <p>我确实感觉到他们的面容和服装更好看。//@捉刀人: 当年《意志的胜利》看的我心潮澎湃，设身处地想想如果我是德国青年，我会不会热血沸腾为元首卖命，结论是“会”，从此对任何充满蛊惑的宣传保持警惕。<br><br>RE: 让我们怀着同一个世界,同一个梦想的眼光，来温故一下70年前反对的那个法西斯是啥样的！<br><img src="http://ww3.sinaimg.cn/large/6401cc2cjw1evcg0spu42j20zk0sgadt.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3879039439498883" target="freeweibo-mirror">SPAM 回复@德语客:逢中必反，逢美必舔。它们的惯性而已。…</a>
 </h2>
@@ -90,7 +90,7 @@
 </h2>
 <p>//@LENOVO525://@天驴行太空:MM裙纸好短[花心] //@礼江美鱼://@被遗忘者的长枪:你一定会变成你反对的那个人……<br><br>RE: 让我们怀着同一个世界,同一个梦想的眼光，来温故一下70年前反对的那个法西斯是啥样的！<br><img src="http://ww3.sinaimg.cn/large/6401cc2cjw1evcg0spu42j20zk0sgadt.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3879034930400469" target="freeweibo-mirror">//@阿訇说-洗洗睡啦:对头！想想那些为了正步踢断腿的当兵的…</a>
 </h2>
@@ -114,7 +114,7 @@
 </h2>
 <p>SPAM 自娱自乐。<br><br>RE: 老汉放羊时发生的一幕，哈哈哈感受下“别人家的阅兵场景”[笑cry] http://t.cn/RZnLHr2</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3879014701245540" target="freeweibo-mirror">原来是酱紫呀 [吃惊] //@郭宇宽以研究会友: 正步踢得整…</a>
 </h2>
@@ -138,7 +138,7 @@
 </h2>
 <p>//@小东邪v:在民主国家不需要军队参与过多的政治决策，需要弱化军队对国内政治的影响，因此不需要阅兵！ //@罗昌平:英国正规军被不会走正步的美国农民打败！//@mattcello：真正的高手不需要任何的炫耀！<br><br>RE: 【美式阅兵】美国阅兵多在战场上，最大一次阅兵，不在本土，是在日本受降仪式上举行的海空大阅兵，当时美国陆军、海军的航空队1000架飞机、22艘航母、8艘战列舰和数十艘战斗舰参加了史无前例的阅兵观礼。相反，在本土阅兵近几十年几乎没有，因为美军都被派驻到了海外，无法组织足够的阅兵单位参加。<br><img src="http://ww3.sinaimg.cn/large/749bcf09jw1evalh3tbh1j20hs2ze1bt.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p>
 <table>
     <tr>
