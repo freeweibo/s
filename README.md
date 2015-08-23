@@ -66,19 +66,19 @@
 </h2>
 <p>//@周泽律师:转发微博<br><br>RE: 在这里读懂法西斯以及阅兵<br><img src="http://ww1.sinaimg.cn/large/639695d4jw1evctj1mrw1j20ey6307wh.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3879128606479042" target="freeweibo-mirror">看到调查组的装备，真是心疼冲进去的消防员和记者们 http:…</a>
 </h2>
 <p>看到调查组的装备，真是心疼冲进去的消防员和记者们 http://t.cn/RLeRPkd 今天，满屏尽是阅兵预演照，进入庆祝季了，天津爆炸没什么人记得了，受害者又要开始艰难的维权与被维稳了，类似的悲剧又可能在未来某天重演</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3879127889179878" target="freeweibo-mirror">SPAM 看看这个方队表演如何。http://t.cn/RL…</a>
 </h2>
 <p>SPAM 看看这个方队表演如何。http://t.cn/RLFQF67</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3879127255478176" target="freeweibo-mirror">SPAM [哈哈]//@性感玉米:[笑cry]</a>
 </h2>
@@ -102,7 +102,7 @@
 </h2>
 <p>回复@人生不过如此兮:【历史事实】1923～1945年，22年，李登辉就是日本国籍。1945年中国政府收回台湾，他才又变成中国国籍。//@人生不过如此兮:李登辉说自己是日本人，看来是有根据的。//@罗亚蒙:回复@爱新觉罗载勋:那个时代，创作自由，诗人想些啥就写啥，不受约束，</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3879109090647514" target="freeweibo-mirror">SPAM 老乡，，，，，别跑！ --------------…</a>
 </h2>
