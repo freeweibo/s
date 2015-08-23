@@ -50,6 +50,12 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3879034041631017" target="freeweibo-mirror">//@但斌: //@PiYio：毛说一根指头打倒刘一句是真的…</a>
+</h2>
+<p>//@但斌: //@PiYio：毛说一根指头打倒刘一句是真的，由于感觉到危机刘无力的反击打断毛的话也是真的。请看毛泽东传吧，当然，那种歌功颂德的不必看，多看看吧<br><br>RE: 【2016文革发动50周年】1964年毛泽东与刘少奇就“四清”问题发生争论，刘在毛说话时打断他的话头，虽然刘事后做了自我批评，但在毛眼里此事非同小可，是彼“取而代之”意图流露。毛认为刘要把他变成牌坊。年底毛当着中央领导的面训斥刘少奇：“你有什么了不起？我一个小指头就可以把你打倒”！<br><img src="http://ww2.sinaimg.cn/large/709b1d0ejw1evcc0sbnbgj20go0cgmyk.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3879021898711560" target="freeweibo-mirror">SPAM 自娱自乐。</a>
 </h2>
 <p>SPAM 自娱自乐。<br><br>RE: 老汉放羊时发生的一幕，哈哈哈感受下“别人家的阅兵场景”[笑cry] http://t.cn/RZnLHr2</p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3878994652527919" target="freeweibo-mirror">//@布小什大师:转发微博</a>
 </h2>
 <p>//@布小什大师:转发微博<br><br>RE: 人民的事，再大也是小事<br><img src="http://ww1.sinaimg.cn/large/5940f48djw1evch50hswwj20f00qon1b.jpg"></p>
-<p>
-	<small> ============== 5小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3878994271390171" target="freeweibo-mirror">SPAM 日本鬼子在时他们是抗日英雄。建国后他们是蒋匪特务、…</a>
-</h2>
-<p>SPAM 日本鬼子在时他们是抗日英雄。建国后他们是蒋匪特务、人民敌人。后来，他们是犯人、孤寡老人、乞丐…。突然，又变成了抗战老英雄。这真是人生成了戏子，导演说演啥就演啥。http://t.cn/RLFccLS<br><img src="http://ww4.sinaimg.cn/large/b8e65f0ajw1evchg0apomj20ca0hswgq.jpg"></p>
 <p>
 	<small> ============== 5小时前</small>
 </p>
