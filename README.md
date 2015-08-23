@@ -48,7 +48,7 @@
 </h2>
 <p>SPAM 自娱自乐。<br><br>RE: 老汉放羊时发生的一幕，哈哈哈感受下“别人家的阅兵场景”[笑cry] http://t.cn/RZnLHr2</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3879014701245540" target="freeweibo-mirror">原来是酱紫呀 [吃惊] //@郭宇宽以研究会友: 正步踢得整…</a>
 </h2>
@@ -72,13 +72,13 @@
 </h2>
 <p>//@小东邪v:在民主国家不需要军队参与过多的政治决策，需要弱化军队对国内政治的影响，因此不需要阅兵！ //@罗昌平:英国正规军被不会走正步的美国农民打败！//@mattcello：真正的高手不需要任何的炫耀！<br><br>RE: 【美式阅兵】美国阅兵多在战场上，最大一次阅兵，不在本土，是在日本受降仪式上举行的海空大阅兵，当时美国陆军、海军的航空队1000架飞机、22艘航母、8艘战列舰和数十艘战斗舰参加了史无前例的阅兵观礼。相反，在本土阅兵近几十年几乎没有，因为美军都被派驻到了海外，无法组织足够的阅兵单位参加。<br><img src="http://ww3.sinaimg.cn/large/749bcf09jw1evalh3tbh1j20hs2ze1bt.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3879006816912238" target="freeweibo-mirror">广东居然被排除在外，这是处处给胡春华难看啊[衰][衰][衰]</a>
 </h2>
 <p>广东居然被排除在外，这是处处给胡春华难看啊[衰][衰][衰]</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3879004740431639" target="freeweibo-mirror">“我们从来不在自己的家园阅兵，我们只在战场上阅兵；我们从来不…</a>
 </h2>
@@ -138,7 +138,7 @@
 </h2>
 <p>人民的事，再大也是小事<br><img src="http://ww1.sinaimg.cn/large/5940f48djw1evch50hswwj20f00qon1b.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p>
 <table>
     <tr>
