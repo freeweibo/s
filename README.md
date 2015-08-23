@@ -36,11 +36,17 @@
 </h2>
 <p>//@周泽律师:法西斯不是被消灭了吗？怎么还有这些东西？<br><br>RE: 让我们怀着同一个世界,同一个梦想的眼光，来温故一下70年前反对的那个法西斯是啥样的！<br><img src="http://ww3.sinaimg.cn/large/6401cc2cjw1evcg0spu42j20zk0sgadt.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3879069881840725" target="freeweibo-mirror">//@登耳人圭:期待一场同样壮观的阅兵！</a>
 </h2>
 <p>//@登耳人圭:期待一场同样壮观的阅兵！<br><br>RE: 让我们怀着同一个世界,同一个梦想的眼光，来温故一下70年前反对的那个法西斯是啥样的！<br><img src="http://ww3.sinaimg.cn/large/6401cc2cjw1evcg0spu42j20zk0sgadt.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3879068833021485" target="freeweibo-mirror">SPAM 重点看第六张、第七张，男孩女孩们在通往奴役的路上。</a>
+</h2>
+<p>SPAM 重点看第六张、第七张，男孩女孩们在通往奴役的路上。<br><br>RE: 让我们怀着同一个世界,同一个梦想的眼光，来温故一下70年前反对的那个法西斯是啥样的！<br><img src="http://ww3.sinaimg.cn/large/6401cc2cjw1evcg0spu42j20zk0sgadt.jpg"></p>
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
@@ -50,11 +56,29 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3879065855233727" target="freeweibo-mirror">俄罗斯为纪念卫国战争、反法西斯战争胜利70周年阅兵的时候，那…</a>
+</h2>
+<p>俄罗斯为纪念卫国战争、反法西斯战争胜利70周年阅兵的时候，那些喊着美国不阅兵的喷子，曾经集中瞎嚷嚷    （更正）<br><br>RE: 看看美国有没有阅兵？http://t.cn/RZuEZJ8<br><img src="http://ww1.sinaimg.cn/large/7772f1d3gw1evcmzd2dh4j20hs0adq4p.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3879060725614087" target="freeweibo-mirror">跺着脚走、小跑着走、散兵游勇哄闹着走，这些不是根本。根本不在…</a>
 </h2>
 <p>跺着脚走、小跑着走、散兵游勇哄闹着走，这些不是根本。根本不在于阅兵如何个走法儿，而在于阅兵本身。这人类阅兵本身就是对于战争标榜和诠释。</p>
 <p>
 	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3879057034472429" target="freeweibo-mirror">//@王兴律师v:正步有差距，队列也不够齐，没有北斗差老事了…</a>
+</h2>
+<p>//@王兴律师v:正步有差距，队列也不够齐，没有北斗差老事了//@律师文摘:共同点是：整齐划一。//@隆裕太后: //@记者郝成:他们也号称为了人类，为了民族……//@苏州郎心铁: 呵呵。//@高小曜: //@郑承晚: //@子夜的昙3: //@晴晴姑姐:<br><br>RE: 让我们怀着同一个世界,同一个梦想的眼光，来温故一下70年前反对的那个法西斯是啥样的！<br><img src="http://ww3.sinaimg.cn/large/6401cc2cjw1evcg0spu42j20zk0sgadt.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3879054426111507" target="freeweibo-mirror">SPAM 很威武 //@喷嚏网铂程</a>
+</h2>
+<p>SPAM 很威武 //@喷嚏网铂程<br><br>RE: 让我们怀着同一个世界,同一个梦想的眼光，来温故一下70年前反对的那个法西斯是啥样的！<br><img src="http://ww3.sinaimg.cn/large/6401cc2cjw1evcg0spu42j20zk0sgadt.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3879053302025061" target="freeweibo-mirror">//@但斌://@PiYio：毛说一根指头打倒刘一句是真的，…</a>
 </h2>
@@ -65,6 +89,18 @@
 	<a href="https://freeweibo.com/weibo/3879051838295064" target="freeweibo-mirror">我确实感觉到他们的面容和服装更好看。//@捉刀人: 当年《意…</a>
 </h2>
 <p>我确实感觉到他们的面容和服装更好看。//@捉刀人: 当年《意志的胜利》看的我心潮澎湃，设身处地想想如果我是德国青年，我会不会热血沸腾为元首卖命，结论是“会”，从此对任何充满蛊惑的宣传保持警惕。<br><br>RE: 让我们怀着同一个世界,同一个梦想的眼光，来温故一下70年前反对的那个法西斯是啥样的！<br><img src="http://ww3.sinaimg.cn/large/6401cc2cjw1evcg0spu42j20zk0sgadt.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3879051699273775" target="freeweibo-mirror">[good] //@野人胖大海_赵海量:国内的在等待通稿//…</a>
+</h2>
+<p>[good] //@野人胖大海_赵海量:国内的在等待通稿//@摇滚不死://@Rorschach_H:国内新闻工作者哪儿去了？//@影色渔樵:不愧为敬业的新闻记者！//@顾则徐2011://@阿甘先生-: //@虎儿爷tiger: //@文发漫画0:这新闻就看到一只只捂过来的黑手，让世界看看。//@还是南开老魏:[话筒]//@YT百年老汤:丢脸呐！</p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3879045358400774" target="freeweibo-mirror">我们不是希特勒，也无能力做希特勒。//@孤独得农民: //@…</a>
+</h2>
+<p>我们不是希特勒，也无能力做希特勒。//@孤独得农民: //@夏克言: 事曾相似。 //@隆裕太后://@记者郝成:他们也号称为了人类，为了民族……//@苏州郎心铁: 呵呵。//@高小曜: //@郑承晚: //@子夜的昙3: //@晴晴姑姐:<br><br>RE: 让我们怀着同一个世界,同一个梦想的眼光，来温故一下70年前反对的那个法西斯是啥样的！<br><img src="http://ww3.sinaimg.cn/large/6401cc2cjw1evcg0spu42j20zk0sgadt.jpg"></p>
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
@@ -103,42 +139,6 @@
 <p>//@阿訇说-洗洗睡啦:对头！想想那些为了正步踢断腿的当兵的，他们的俩副主席喝兵血贪军粮，这个兵还有啥当头//@谢文:有的军队使命是对外，有的军队使命是对内<br><br>RE: “我们从来不在自己的家园阅兵，我们只在战场上阅兵；我们从来不在自己的家人面前傲武扬威，我们只在敌人的土地上策马扬鞭；我们从来不在白宫门前检阅武器，我们只在实战中检阅武器；我们从来不要求战士的走姿，我们只强调战争中的隐形。”——五角大楼</p>
 <p>
 	<small> ============== 4小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3879034271945666" target="freeweibo-mirror">四九年国民党输掉大陆，七二年又被逼出联合国。可现在台湾不仅成…</a>
-</h2>
-<p>四九年国民党输掉大陆，七二年又被逼出联合国。可现在台湾不仅成为亚洲民主典范，更成为中华民族“民主的灯塔”。经济发展和文化教育赢得世界的尊敬，中华民国在教育方面世界排名第九位，在经济方面世界排名第十二位，中华民国护照免签证国家一百四十八个，台湾赢得世界尊重，其普世观被世界人民认同。<br><img src="http://ww2.sinaimg.cn/large/0065Fm16jw1evcm1kbqnqj30h50kon2i.jpg"></p>
-<p>
-	<small> ============== 4小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3879034041631017" target="freeweibo-mirror">//@但斌: //@PiYio：毛说一根指头打倒刘一句是真的…</a>
-</h2>
-<p>//@但斌: //@PiYio：毛说一根指头打倒刘一句是真的，由于感觉到危机刘无力的反击打断毛的话也是真的。请看毛泽东传吧，当然，那种歌功颂德的不必看，多看看吧<br><br>RE: 【2016文革发动50周年】1964年毛泽东与刘少奇就“四清”问题发生争论，刘在毛说话时打断他的话头，虽然刘事后做了自我批评，但在毛眼里此事非同小可，是彼“取而代之”意图流露。毛认为刘要把他变成牌坊。年底毛当着中央领导的面训斥刘少奇：“你有什么了不起？我一个小指头就可以把你打倒”！<br><img src="http://ww2.sinaimg.cn/large/709b1d0ejw1evcc0sbnbgj20go0cgmyk.jpg"></p>
-<p>
-	<small> ============== 4小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3879021898711560" target="freeweibo-mirror">SPAM 自娱自乐。</a>
-</h2>
-<p>SPAM 自娱自乐。<br><br>RE: 老汉放羊时发生的一幕，哈哈哈感受下“别人家的阅兵场景”[笑cry] http://t.cn/RZnLHr2</p>
-<p>
-	<small> ============== 5小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3879014701245540" target="freeweibo-mirror">原来是酱紫呀 [吃惊] //@郭宇宽以研究会友: 正步踢得整…</a>
-</h2>
-<p>原来是酱紫呀 [吃惊] //@郭宇宽以研究会友: 正步踢得整齐的国家，值得思考，往往名声都不好。<br><br>RE: 人民的事，再大也是小事<br><img src="http://ww1.sinaimg.cn/large/5940f48djw1evch50hswwj20f00qon1b.jpg"></p>
-<p>
-	<small> ============== 5小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3879010679525881" target="freeweibo-mirror">SPAM //@黄土路: 怪不得。</a>
-</h2>
-<p>SPAM //@黄土路: 怪不得。<br><br>RE: “我们从来不在自己的家园阅兵，我们只在战场上阅兵；我们从来不在自己的家人面前傲武扬威，我们只在敌人的土地上策马扬鞭；我们从来不在白宫门前检阅武器，我们只在实战中检阅武器；我们从来不要求战士的走姿，我们只强调战争中的隐形。”——五角大楼</p>
-<p>
-	<small> ============== 6小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3879008410342780" target="freeweibo-mirror">//@崔小平律师://@宪政是敏感词: //@郭宇宽以研究会…</a>
-</h2>
-<p>//@崔小平律师://@宪政是敏感词: //@郭宇宽以研究会友:正步踢得整齐的国家，值得思考，往往名声都不好。<br><br>RE: 人民的事，再大也是小事<br><img src="http://ww1.sinaimg.cn/large/5940f48djw1evch50hswwj20f00qon1b.jpg"></p>
-<p>
-	<small> ============== 6小时前</small>
 </p>
 <table>
     <tr>
