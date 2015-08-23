@@ -38,6 +38,12 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3879087820692085" target="freeweibo-mirror">【中央党校换了“门面”，猜猜这是谁】</a>
+</h2>
+<p>【中央党校换了“门面”，猜猜这是谁】<br><img src="http://ww2.sinaimg.cn/large/48ddc70cjw1evcs6rzvdqj20c806vglo.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3879086621185774" target="freeweibo-mirror">SPAM [汗]//@anna波罗蜜部长: [汗] //@技…</a>
 </h2>
 <p>SPAM [汗]//@anna波罗蜜部长: [汗] //@技术宅李叔叔:西方哪种口味我没喝过</p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3879054426111507" target="freeweibo-mirror">SPAM 很威武 //@喷嚏网铂程</a>
 </h2>
 <p>SPAM 很威武 //@喷嚏网铂程<br><br>RE: 让我们怀着同一个世界,同一个梦想的眼光，来温故一下70年前反对的那个法西斯是啥样的！<br><img src="http://ww3.sinaimg.cn/large/6401cc2cjw1evcg0spu42j20zk0sgadt.jpg"></p>
-<p>
-	<small> ============== 5小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3879053302025061" target="freeweibo-mirror">//@但斌://@PiYio：毛说一根指头打倒刘一句是真的，…</a>
-</h2>
-<p>//@但斌://@PiYio：毛说一根指头打倒刘一句是真的，由于感觉到危机刘无力的反击打断毛的话也是真的。请看毛泽东传吧，当然，那种歌功颂德的不必看，多看看吧<br><br>RE: 【2016文革发动50周年】1964年毛泽东与刘少奇就“四清”问题发生争论，刘在毛说话时打断他的话头，虽然刘事后做了自我批评，但在毛眼里此事非同小可，是彼“取而代之”意图流露。毛认为刘要把他变成牌坊。年底毛当着中央领导的面训斥刘少奇：“你有什么了不起？我一个小指头就可以把你打倒”！<br><img src="http://ww2.sinaimg.cn/large/709b1d0ejw1evcc0sbnbgj20go0cgmyk.jpg"></p>
 <p>
 	<small> ============== 5小时前</small>
 </p>
