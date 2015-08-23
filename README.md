@@ -114,7 +114,7 @@
 </h2>
 <p>定他们个反人类罪也不为过。</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3878915514375801" target="freeweibo-mirror">//@老金来也: //@-游戏一回-://@联邦宪法起草委员…</a>
 </h2>
