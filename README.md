@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3879107319855457" target="freeweibo-mirror">SPAM 看背影像洪秀全！ //@希望有底线: //@导演陈…</a>
+</h2>
+<p>SPAM 看背影像洪秀全！ //@希望有底线: //@导演陈一雄一:[挖鼻]中国队长//@swansu_yw:胡耀邦？ //@罗昌平:看姿势，交警队长！<br><br>RE: 【中央党校换了“门面”，猜猜这是谁】<br><img src="http://ww2.sinaimg.cn/large/48ddc70cjw1evcs6rzvdqj20c806vglo.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3879095911637931" target="freeweibo-mirror">//@幸福树ok:转发微博</a>
 </h2>
 <p>//@幸福树ok:转发微博<br><br>RE: 一个国家的国威真的不是靠阅兵来检验的，而是靠人民的自由、法治的衡定有效、普通民众的尊严和安全感。没有这一切，却拿出枪炮，实际是自卑和心虚的表现。<br><img src="http://ww1.sinaimg.cn/large/4c6e5911jw1evcr1q0gogj20k00cltbn.jpg"></p>
@@ -133,12 +139,6 @@
 <p>[good] //@野人胖大海_赵海量:国内的在等待通稿//@摇滚不死://@Rorschach_H:国内新闻工作者哪儿去了？//@影色渔樵:不愧为敬业的新闻记者！//@顾则徐2011://@阿甘先生-: //@虎儿爷tiger: //@文发漫画0:这新闻就看到一只只捂过来的黑手，让世界看看。//@还是南开老魏:[话筒]//@YT百年老汤:丢脸呐！</p>
 <p>
 	<small> ============== 4小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3879045358400774" target="freeweibo-mirror">我们不是希特勒，也无能力做希特勒。//@孤独得农民: //@…</a>
-</h2>
-<p>我们不是希特勒，也无能力做希特勒。//@孤独得农民: //@夏克言: 事曾相似。 //@隆裕太后://@记者郝成:他们也号称为了人类，为了民族……//@苏州郎心铁: 呵呵。//@高小曜: //@郑承晚: //@子夜的昙3: //@晴晴姑姐:<br><br>RE: 让我们怀着同一个世界,同一个梦想的眼光，来温故一下70年前反对的那个法西斯是啥样的！<br><img src="http://ww3.sinaimg.cn/large/6401cc2cjw1evcg0spu42j20zk0sgadt.jpg"></p>
-<p>
-	<small> ============== 5小时前</small>
 </p>
 <table>
     <tr>
