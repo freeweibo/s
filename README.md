@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3879053302025061" target="freeweibo-mirror">//@但斌://@PiYio：毛说一根指头打倒刘一句是真的，…</a>
+</h2>
+<p>//@但斌://@PiYio：毛说一根指头打倒刘一句是真的，由于感觉到危机刘无力的反击打断毛的话也是真的。请看毛泽东传吧，当然，那种歌功颂德的不必看，多看看吧<br><br>RE: 【2016文革发动50周年】1964年毛泽东与刘少奇就“四清”问题发生争论，刘在毛说话时打断他的话头，虽然刘事后做了自我批评，但在毛眼里此事非同小可，是彼“取而代之”意图流露。毛认为刘要把他变成牌坊。年底毛当着中央领导的面训斥刘少奇：“你有什么了不起？我一个小指头就可以把你打倒”！<br><img src="http://ww2.sinaimg.cn/large/709b1d0ejw1evcc0sbnbgj20go0cgmyk.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3879039439498883" target="freeweibo-mirror">SPAM 回复@德语客:逢中必反，逢美必舔。它们的惯性而已。…</a>
 </h2>
 <p>SPAM 回复@德语客:逢中必反，逢美必舔。它们的惯性而已。//@德语客:但凡是个人都能看清楚美国脸孔，特不理解，这些家伙看不到美国在中东，在非洲所做所为。难道他们就喜欢伪善？//@醉鱼:拿这个骂中舔美真是脑子被屎填满了。。阅兵是平和地展现实力，以震宵小。楼主美爹喜欢隐形在别的国家制造战争，损人利己<br><br>RE: “我们从来不在自己的家园阅兵，我们只在战场上阅兵；我们从来不在自己的家人面前傲武扬威，我们只在敌人的土地上策马扬鞭；我们从来不在白宫门前检阅武器，我们只在实战中检阅武器；我们从来不要求战士的走姿，我们只强调战争中的隐形。”——五角大楼</p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3878994271390171" target="freeweibo-mirror">SPAM 日本鬼子在时他们是抗日英雄。建国后他们是蒋匪特务、…</a>
 </h2>
 <p>SPAM 日本鬼子在时他们是抗日英雄。建国后他们是蒋匪特务、人民敌人。后来，他们是犯人、孤寡老人、乞丐…。突然，又变成了抗战老英雄。这真是人生成了戏子，导演说演啥就演啥。http://t.cn/RLFccLS<br><img src="http://ww4.sinaimg.cn/large/b8e65f0ajw1evchg0apomj20ca0hswgq.jpg"></p>
-<p>
-	<small> ============== 5小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3878991583235554" target="freeweibo-mirror">人民的事，再大也是小事</a>
-</h2>
-<p>人民的事，再大也是小事<br><img src="http://ww1.sinaimg.cn/large/5940f48djw1evch50hswwj20f00qon1b.jpg"></p>
 <p>
 	<small> ============== 5小时前</small>
 </p>
