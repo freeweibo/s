@@ -24,7 +24,7 @@
 </h2>
 <p>SPAM  //@嘟嘟美女:中兴圣教，寿与天齐！[膜拜]千秋万载，一统江湖！[膜拜]文成武德，泽被苍生！[膜拜]//@CFYY陈封: //@李俊晓:[吃惊]<br><br>RE: 真相之天安门<br><img src="http://ww4.sinaimg.cn/large/404ba3d2jw1evcnd2vgnzj20m80goabl.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3879133911920676" target="freeweibo-mirror">SPAM 星宿老仙，法力无边，攻无不克，战无不胜 星宿老仙，…</a>
 </h2>
@@ -47,6 +47,12 @@
 	<a href="https://freeweibo.com/weibo/3879128698645654" target="freeweibo-mirror">//@周泽律师:转发微博</a>
 </h2>
 <p>//@周泽律师:转发微博<br><br>RE: 在这里读懂法西斯以及阅兵<br><img src="http://ww1.sinaimg.cn/large/639695d4jw1evctj1mrw1j20ey6307wh.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3879128606479042" target="freeweibo-mirror">看到调查组的装备，真是心疼冲进去的消防员和记者们 http:…</a>
+</h2>
+<p>看到调查组的装备，真是心疼冲进去的消防员和记者们 http://t.cn/RLeRPkd 今天，满屏尽是阅兵预演照，进入庆祝季了，天津爆炸没什么人记得了，受害者又要开始艰难的维权与被维稳了，类似的悲剧又可能在未来某天重演</p>
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3879092753117557" target="freeweibo-mirror">洪秀全？ //@燕小小云:右边调皮 //@十年砍柴:真像历史…</a>
 </h2>
 <p>洪秀全？ //@燕小小云:右边调皮 //@十年砍柴:真像历史教科书和文艺作品中的洪秀全 //@罗昌平:看姿势，交警队长！<br><br>RE: 【中央党校换了“门面”，猜猜这是谁】<br><img src="http://ww2.sinaimg.cn/large/48ddc70cjw1evcs6rzvdqj20c806vglo.jpg"></p>
-<p>
-	<small> ============== 4小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3879092291839652" target="freeweibo-mirror">右边</a>
-</h2>
-<p>右边</p>
 <p>
 	<small> ============== 4小时前</small>
 </p>
