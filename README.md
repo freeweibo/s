@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3879113582167255" target="freeweibo-mirror">回复@人生不过如此兮:【历史事实】1923～1945年，22…</a>
+</h2>
+<p>回复@人生不过如此兮:【历史事实】1923～1945年，22年，李登辉就是日本国籍。1945年中国政府收回台湾，他才又变成中国国籍。//@人生不过如此兮:李登辉说自己是日本人，看来是有根据的。//@罗亚蒙:回复@爱新觉罗载勋:那个时代，创作自由，诗人想些啥就写啥，不受约束，</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3879107319855457" target="freeweibo-mirror">SPAM 看背影像洪秀全！ //@希望有底线: //@导演陈…</a>
 </h2>
 <p>SPAM 看背影像洪秀全！ //@希望有底线: //@导演陈一雄一:[挖鼻]中国队长//@swansu_yw:胡耀邦？ //@罗昌平:看姿势，交警队长！<br><br>RE: 【中央党校换了“门面”，猜猜这是谁】<br><img src="http://ww2.sinaimg.cn/large/48ddc70cjw1evcs6rzvdqj20c806vglo.jpg"></p>
@@ -48,7 +54,7 @@
 </h2>
 <p>SPAM [汗]//@anna波罗蜜部长: [汗] //@技术宅李叔叔:西方哪种口味我没喝过</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3879082737447066" target="freeweibo-mirror">[哈哈][伤心]</a>
 </h2>
@@ -126,17 +132,11 @@
 </h2>
 <p>//@王兴律师v:正步有差距，队列也不够齐，没有北斗差老事了//@律师文摘:共同点是：整齐划一。//@隆裕太后: //@记者郝成:他们也号称为了人类，为了民族……//@苏州郎心铁: 呵呵。//@高小曜: //@郑承晚: //@子夜的昙3: //@晴晴姑姐:<br><br>RE: 让我们怀着同一个世界,同一个梦想的眼光，来温故一下70年前反对的那个法西斯是啥样的！<br><img src="http://ww3.sinaimg.cn/large/6401cc2cjw1evcg0spu42j20zk0sgadt.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3879054463693508" target="freeweibo-mirror">遮挡镜头的那些人到底是怎么想的？ //@演员孙海英:该做的都…</a>
 </h2>
 <p>遮挡镜头的那些人到底是怎么想的？ //@演员孙海英:该做的都在做，怕什么？</p>
-<p>
-	<small> ============== 5小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3879054426111507" target="freeweibo-mirror">SPAM 很威武 //@喷嚏网铂程</a>
-</h2>
-<p>SPAM 很威武 //@喷嚏网铂程<br><br>RE: 让我们怀着同一个世界,同一个梦想的眼光，来温故一下70年前反对的那个法西斯是啥样的！<br><img src="http://ww3.sinaimg.cn/large/6401cc2cjw1evcg0spu42j20zk0sgadt.jpg"></p>
 <p>
 	<small> ============== 5小时前</small>
 </p>
