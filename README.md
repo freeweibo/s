@@ -26,6 +26,12 @@
 <p>
 	<small> ============== 1小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3878962184408502" target="freeweibo-mirror">千万别把党和政府逼急了，当软柿子捏一但翻脸够你受的！以前有过…</a>
+</h2>
+<p>千万别把党和政府逼急了，当软柿子捏一但翻脸够你受的！以前有过例子记住中国特色[怒][怒][怒]</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3878962029877801" target="freeweibo-mirror">SPAM //@朱孝顶律师: 转发微博</a>
 </h2>
 <p>SPAM //@朱孝顶律师: 转发微博<br><br>RE: 倆朋友，一位昨晚出門過了條馬路，一扭頭，東大橋路口被管制，回不了家了；還有一位，在長椿街路口碰到閱兵綵排，準備步行繞大遠回家，“爭取天亮能到”。[哈哈]</p>
@@ -60,13 +66,13 @@
 </h2>
 <p>多难兴邦的一个典型例子。多难不仅兴邦，而且兴党。//@远处风景: //@铁军祥哥:严重篡改了，原话是：没有日本的侵略，中国人民就不可能团结起来对付你们...... http://t.cn/RLFCX5A<br><br>RE: 新华网的二逼之处在于，毛感谢日本侵略这套说辞在网上传了好多年了，大多数人都以为是“公知”造谣，大多半信半疑，这新华网一叼盘子可倒好，从官方角度证实了毛确实说过这番话，你说你这是洗地还是黑。怎么这么蠢呢。<br><img src="http://ww2.sinaimg.cn/large/69a55eb2jw1evbr93fxi6j20hs0mctba.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3878943117299364" target="freeweibo-mirror">以前，死磕律师在死磕，屁民还嘲讽，事不关己，高高挂起，自顾低…</a>
 </h2>
 <p>以前，死磕律师在死磕，屁民还嘲讽，事不关己，高高挂起，自顾低头吃猪食，。。。。。。总以为跟自己没关系。。。。。。唉。。。。。终于有一天。。。。。。据悉：天津大爆炸受灾业主、居民准备聘请律师参与谈判，维权，但联系了几位律师，都不愿接。。。。。。没有愿意接的律师了。。。。。。</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3878942777932373" target="freeweibo-mirror">//@陶景洲: [哈哈] //@演员孙海英:→_→ //@王…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3878921176894212" target="freeweibo-mirror">SPAM 朝鲜：当官的到哪都醉，文工团到哪都睡，扛枪的只练踢…</a>
 </h2>
 <p>SPAM 朝鲜：当官的到哪都醉，文工团到哪都睡，扛枪的只练踢腿，消防的只练浇水。<br><img src="http://ww4.sinaimg.cn/large/a62471f0jw1evc919k81ij20dw094jsh.jpg"></p>
-<p>
-	<small> ============== 4小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3878921021892190" target="freeweibo-mirror">//@援民律师:轉發微博</a>
-</h2>
-<p>//@援民律师:轉發微博<br><br>RE: 关于爆炸现场600米左右万科清水港湾三期住宅项目农民工，终于有消息了。据湖北远大集团官网透露， 施工现场有施工人员589人。经摸底排查，目前住院人数为14人，此外骨折、缝针、脚、手、臂、肩被砸伤人员达30人，轻伤达96人，其余人员均存在不同程度的中毒症状。死多少人，未知。http://t.cn/RLFhrGH<br><img src="http://ww3.sinaimg.cn/large/5d7ca92cjw1evbtdpbuc5j20qo0zk0yv.jpg"></p>
 <p>
 	<small> ============== 4小时前</small>
 </p>
