@@ -44,11 +44,35 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3879004500775186" target="freeweibo-mirror">你的遭遇说明公知、五毛是一枚硬币的两面。两鸡巴炒菜一个鸡巴味…</a>
+</h2>
+<p>你的遭遇说明公知、五毛是一枚硬币的两面。两鸡巴炒菜一个鸡巴味儿。</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3879003570463087" target="freeweibo-mirror">罗昌平君说的英国正规军被美国农民击败肯定是不符合历史事实的/…</a>
+</h2>
+<p>罗昌平君说的英国正规军被美国农民击败肯定是不符合历史事实的//@于晓华_经济:美军有6大军区和3大军种司令部。中国被美君太平洋军区所覆盖!http://t.cn/RLFT2HK罗昌平:英国正规军被不会走正步的美国农民打败！//@mattcello：真正的高手不需要任何的炫耀！<br><br>RE: 【美式阅兵】美国阅兵多在战场上，最大一次阅兵，不在本土，是在日本受降仪式上举行的海空大阅兵，当时美国陆军、海军的航空队1000架飞机、22艘航母、8艘战列舰和数十艘战斗舰参加了史无前例的阅兵观礼。相反，在本土阅兵近几十年几乎没有，因为美军都被派驻到了海外，无法组织足够的阅兵单位参加。<br><img src="http://ww3.sinaimg.cn/large/749bcf09jw1evalh3tbh1j20hs2ze1bt.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3879001447349412" target="freeweibo-mirror">死磕派律师要么被关进去了，要么被吊销执照了，剩下的吓回去了，…</a>
 </h2>
 <p>死磕派律师要么被关进去了，要么被吊销执照了，剩下的吓回去了，就是付律师费都没有几个律师敢代理。中国人“士”的精神在律师中还有一些残余，现在也快没了。<br><img src="http://ww4.sinaimg.cn/large/4c148083jw1evci7p84vhj20e80hs416.jpg"></p>
 <p>
 	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3878995684309228" target="freeweibo-mirror">回复@青年张鑫:我晒你这种傻逼就是为国民帮忙[爱你] //@…</a>
+</h2>
+<p>回复@青年张鑫:我晒你这种傻逼就是为国民帮忙[爱你] //@青年张鑫:回复@bbbbbbbcccccceline-:看到说这种话的人就烦，就键盘敲的响，爆炸也没看他捐款，当志愿者去，既然国家那么差，你作为国民倒是帮忙啊 //@布小什大师:转发微博<br><br>RE: 人民的事，再大也是小事<br><img src="http://ww1.sinaimg.cn/large/5940f48djw1evch50hswwj20f00qon1b.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3878994652527919" target="freeweibo-mirror">//@布小什大师:转发微博</a>
+</h2>
+<p>//@布小什大师:转发微博<br><br>RE: 人民的事，再大也是小事<br><img src="http://ww1.sinaimg.cn/large/5940f48djw1evch50hswwj20f00qon1b.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3878994271390171" target="freeweibo-mirror">SPAM 日本鬼子在时他们是抗日英雄。建国后他们是蒋匪特务、…</a>
 </h2>
@@ -113,30 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3878977129497276" target="freeweibo-mirror">SPAM 然而，各种花样秀军力满天跑飞机，都还不如美国大兵徒…</a>
 </h2>
 <p>SPAM 然而，各种花样秀军力满天跑飞机，都还不如美国大兵徒手制伏持枪恐怖分子救一火车人更有说服力。<br><img src="http://ww2.sinaimg.cn/large/62044e6fjw1evcfdto0p1j20hs0h80vw.jpg"></p>
-<p>
-	<small> ============== 4小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3878976827060289" target="freeweibo-mirror">SPAM 驾着七彩云朵来的，不一定是你的意中人，还可能是你的…</a>
-</h2>
-<p>SPAM 驾着七彩云朵来的，不一定是你的意中人，还可能是你的血汗钱。<br><img src="http://ww4.sinaimg.cn/large/625da52cgw1evcfg1hkjqj20zk0qowh9.jpg"></p>
-<p>
-	<small> ============== 4小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3878976503868718" target="freeweibo-mirror">//@博闻泰来: //@长沙凌杰15:可恨的是，TG最后不光…</a>
-</h2>
-<p>//@博闻泰来: //@长沙凌杰15:可恨的是，TG最后不光偷了桃子，连整个桃园都霸占，把果农也逼成了奴隶。<br><br>RE: 抗战时，皇军根本瞧不起TG，所谓的敌后游击，被皇军称为华北治安战，治安就是维稳，那是皇协军干的事。抗战末期，除了东北和缅甸，中国战区16个受降点，TG一个都没捞到。你不种树，哪来桃子摘？9.3阅兵，安倍为啥不来？从感情上接受不了。将我揍趴下的是国军和美军，凭啥要受你TG胯下之辱？<br><img src="http://ww2.sinaimg.cn/large/006biu8Wjw1evce0sd855j30go09m0te.jpg"></p>
-<p>
-	<small> ============== 4小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3878973996243664" target="freeweibo-mirror">历史证明，一代领导人有一次阅兵机会：59年的毛，84年的邓，…</a>
-</h2>
-<p>历史证明，一代领导人有一次阅兵机会：59年的毛，84年的邓，99年的江，09年的胡。例外的是毛还在66年阅了11次红卫兵，目的是为了树立个人权威搞运动。84年不是正日子搞阅兵，后来证明是为了大裁军。三次该阅没阅的日子都有各自历史原因。这次阅兵的历史地位如何，且看以后的历史如何记载。</p>
-<p>
-	<small> ============== 4小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3878973178613136" target="freeweibo-mirror">美军也阅兵，形式不一样，而且比较密集，体育比赛也会有美军仪仗…</a>
-</h2>
-<p>美军也阅兵，形式不一样，而且比较密集，体育比赛也会有美军仪仗、军乐、跳伞等表演，还有各种城市庆典和对外开放日，他们和民众活动结合很好，是值得借鉴的形式。//@不沉默的大多数: 美国如何关我们屁事[哈哈] //@大鹏看天下:美国人为什么不搞大阅兵。[思考]<br><br>RE: 【美式阅兵】美国阅兵多在战场上，最大一次阅兵，不在本土，是在日本受降仪式上举行的海空大阅兵，当时美国陆军、海军的航空队1000架飞机、22艘航母、8艘战列舰和数十艘战斗舰参加了史无前例的阅兵观礼。相反，在本土阅兵近几十年几乎没有，因为美军都被派驻到了海外，无法组织足够的阅兵单位参加。<br><img src="http://ww3.sinaimg.cn/large/749bcf09jw1evalh3tbh1j20hs2ze1bt.jpg"></p>
 <p>
 	<small> ============== 4小时前</small>
 </p>
