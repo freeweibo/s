@@ -30,7 +30,7 @@
 </h2>
 <p>SPAM  //@嘟嘟美女:中兴圣教，寿与天齐！[膜拜]千秋万载，一统江湖！[膜拜]文成武德，泽被苍生！[膜拜]//@CFYY陈封: //@李俊晓:[吃惊]<br><br>RE: 真相之天安门<br><img src="http://ww4.sinaimg.cn/large/404ba3d2jw1evcnd2vgnzj20m80goabl.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3879134591879450" target="freeweibo-mirror">SPAM 呵呵 //@我是西蒙周:呵呵 //@陆亚明:[哈哈…</a>
 </h2>
