@@ -60,7 +60,7 @@
 </h2>
 <p>死磕派律师要么被关进去了，要么被吊销执照了，剩下的吓回去了，就是付律师费都没有几个律师敢代理。中国人“士”的精神在律师中还有一些残余，现在也快没了。<br><img src="http://ww4.sinaimg.cn/large/4c148083jw1evci7p84vhj20e80hs416.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3878995684309228" target="freeweibo-mirror">回复@青年张鑫:我晒你这种傻逼就是为国民帮忙[爱你] //@…</a>
 </h2>
