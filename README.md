@@ -20,11 +20,29 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3878942777932373" target="freeweibo-mirror">//@陶景洲: [哈哈] //@演员孙海英:→_→ //@王…</a>
+</h2>
+<p>//@陶景洲: [哈哈] //@演员孙海英:→_→ //@王亚军北京: //@孤飘沙鸥://@-孔智勇: [哈哈] //@苏微人1987:[哈哈]//@朱心梦:他大哥也是这样！</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3878940173574609" target="freeweibo-mirror">//@徐凤文: 感谢蓝豹救援总队队长提供的信息，事发初期不少…</a>
+</h2>
+<p>//@徐凤文: 感谢蓝豹救援总队队长提供的信息，事发初期不少媒体拍摄了一些农民工的照片（见图），但这个依然跟远大的其余人数对不上号： @简格民 我清楚记得8月14日中午起有大巴进入开发区二小安置点，下午陆陆续续拉走了300余人农民工，就是远大的。博主最好核实清楚，安置点民工就在我们安置区。<br><br>RE: 关于爆炸现场600米左右万科清水港湾三期住宅项目农民工，终于有消息了。据湖北远大集团官网透露， 施工现场有施工人员589人。经摸底排查，目前住院人数为14人，此外骨折、缝针、脚、手、臂、肩被砸伤人员达30人，轻伤达96人，其余人员均存在不同程度的中毒症状。死多少人，未知。http://t.cn/RLFhrGH<br><img src="http://ww3.sinaimg.cn/large/5d7ca92cjw1evbtdpbuc5j20qo0zk0yv.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3878930467221561" target="freeweibo-mirror">当如今上档次的大贪有几个不是当年打打杀杀把毛泽东当成唯一真神…</a>
 </h2>
 <p>当如今上档次的大贪有几个不是当年打打杀杀把毛泽东当成唯一真神的红卫兵？只有具有这种品质的人才有资格进入共党的提干梯队 。如今的五毛们聪明地看到了这点//@风清飏v:个人理解对红卫兵的批评和反思不是对某个曾经是红卫兵的人的批判，而是对集体无意识的思想进行彻底的反思。也是对文革的彻底否定。</p>
 <p>
 	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3878921176894212" target="freeweibo-mirror">SPAM 朝鲜：当官的到哪都醉，文工团到哪都睡，扛枪的只练踢…</a>
+</h2>
+<p>SPAM 朝鲜：当官的到哪都醉，文工团到哪都睡，扛枪的只练踢腿，消防的只练浇水。<br><img src="http://ww4.sinaimg.cn/large/a62471f0jw1evc919k81ij20dw094jsh.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3878920816000330" target="freeweibo-mirror">//@泪水不再有温度:转发微博</a>
 </h2>
@@ -108,7 +126,7 @@
 </h2>
 <p>噗嗤！//@LifeTime:普京阅兵还不是靠包总捧场，彼此彼此。[汗]</p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3878822933704340" target="freeweibo-mirror">出城砍柴者不受此限</a>
 </h2>
@@ -119,24 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3878821402968352" target="freeweibo-mirror">//@铁路工人2013a: //@就爱酒://@赤馬於歸:/…</a>
 </h2>
 <p>//@铁路工人2013a: //@就爱酒://@赤馬於歸://@曾敏红: 没有血性//@拉萨万举:这般窝囊阅兵日，你们何以能昂首挺胸走过天安门广场？何以能仰视人民英雄纪念碑？ //@赤馬於歸://@拉萨万举: 如此窝囊的政府，少见啊！草泥马！ //@紅星闖將://@赤馬於歸:不让叫抗日叫抗战，如此百年之后，中国人就不知是抗谁</p>
-<p>
-	<small> ============== 9小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3878819436348116" target="freeweibo-mirror">SPAM 后背两个柱状燃料桶 也算苏式留下的一点痕迹</a>
-</h2>
-<p>SPAM 后背两个柱状燃料桶 也算苏式留下的一点痕迹<br><br>RE: 当坦克从前面开过时，轰隆隆，第一次真正感觉到了震撼，乡下人进城总算见世面了。彻夜未眠总算有所收获：）<br><img src="http://ww2.sinaimg.cn/large/53ca4a59gw1evbq0e034wj21jk111dye.jpg"></p>
-<p>
-	<small> ============== 9小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3878818215853938" target="freeweibo-mirror">篡改历史</a>
-</h2>
-<p>篡改历史<br><br>RE: 蘋果日報『 中共假大空的中國夢 - 錢志健』 這些已是擁有香港永久「三粒星」的金融共黨半生熟之交認為，1949年以來，中國社會的集體主義教育造成了大家普遍認同一個「有國才有家，國富才能民強」的「先集體，後個人」邏輯。<br><img src="http://ww4.sinaimg.cn/large/006cfcOSjw1evadcm0255j30a02nbe1v.jpg"></p>
-<p>
-	<small> ============== 9小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3878814247589690" target="freeweibo-mirror">//@叶匡政:转发微博</a>
-</h2>
-<p>//@叶匡政:转发微博<br><br>RE: 天津，淄博，南宁......类似“定时炸弹”还有2489个，自求多福吧<br><img src="http://ww2.sinaimg.cn/large/97fd5ce7jw1evbt7rzs90j20ez0qo77d.jpg"></p>
 <p>
 	<small> ============== 9小时前</small>
 </p>
