@@ -30,7 +30,7 @@
 </h2>
 <p>定他们个反人类罪也不为过。</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3878909743527766" target="freeweibo-mirror">//@程中柳: //@不变的糕哥:谁是军国主义，一目了然啊/…</a>
 </h2>
@@ -96,7 +96,7 @@
 </h2>
 <p>要培养一个熊孩子，最直接的方法就是当他和人打架之后，对他说打的好。喜欢暴力爽快见血解气的，有想过将来如何教育自己的孩子吗？</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3878823697004551" target="freeweibo-mirror">噗嗤！//@LifeTime:普京阅兵还不是靠包总捧场，彼此…</a>
 </h2>
