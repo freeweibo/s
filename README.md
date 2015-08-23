@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3878962197335119" target="freeweibo-mirror">//@游云庭律师: //@王周生:转发微博</a>
+</h2>
+<p>//@游云庭律师: //@王周生:转发微博<br><br>RE: 以前，死磕律师在死磕，屁民还嘲讽，事不关己，高高挂起，自顾低头吃猪食，。。。。。。总以为跟自己没关系。。。。。。唉。。。。。终于有一天。。。。。。据悉：天津大爆炸受灾业主、居民准备聘请律师参与谈判，维权，但联系了几位律师，都不愿接。。。。。。没有愿意接的律师了。。。。。。</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3878950180239001" target="freeweibo-mirror">新华网是有能力查到毛主席谈话的原文的，但新华网引用的绝对不是…</a>
 </h2>
 <p>新华网是有能力查到毛主席谈话的原文的，但新华网引用的绝对不是原文，而是公知编造的谣言！新华网是故意传谣污蔑毛主席！<br><br>RE: 新华网的二逼之处在于，毛感谢日本侵略这套说辞在网上传了好多年了，大多数人都以为是“公知”造谣，大多半信半疑，这新华网一叼盘子可倒好，从官方角度证实了毛确实说过这番话，你说你这是洗地还是黑。怎么这么蠢呢。<br><img src="http://ww2.sinaimg.cn/large/69a55eb2jw1evbr93fxi6j20hs0mctba.jpg"></p>
@@ -96,19 +102,19 @@
 </h2>
 <p>SPAM 朝鲜：当官的到哪都醉，文工团到哪都睡，扛枪的只练踢腿，消防的只练浇水。<br><img src="http://ww4.sinaimg.cn/large/a62471f0jw1evc919k81ij20dw094jsh.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3878921021892190" target="freeweibo-mirror">//@援民律师:轉發微博</a>
 </h2>
 <p>//@援民律师:轉發微博<br><br>RE: 关于爆炸现场600米左右万科清水港湾三期住宅项目农民工，终于有消息了。据湖北远大集团官网透露， 施工现场有施工人员589人。经摸底排查，目前住院人数为14人，此外骨折、缝针、脚、手、臂、肩被砸伤人员达30人，轻伤达96人，其余人员均存在不同程度的中毒症状。死多少人，未知。http://t.cn/RLFhrGH<br><img src="http://ww3.sinaimg.cn/large/5d7ca92cjw1evbtdpbuc5j20qo0zk0yv.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3878920816000330" target="freeweibo-mirror">//@泪水不再有温度:转发微博</a>
 </h2>
 <p>//@泪水不再有温度:转发微博<br><br>RE: 北京网友：刚听说，因为阅兵演习，这周末不但小区周边一切商店关门，而且地铁不通，马路封闭。今晚准备去超市买粮、买水，迎接一个周末的非正常生活。知道的这是庆祝反法西斯胜利70周年，不知道的还以为他妈的法西斯要进城了呢。</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3878916731587172" target="freeweibo-mirror">定他们个反人类罪也不为过。</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3878908007228559" target="freeweibo-mirror">//@不变的糕哥:谁是军国主义，一目了然啊//@海韻O魅影:…</a>
 </h2>
 <p>//@不变的糕哥:谁是军国主义，一目了然啊//@海韻O魅影: //@野火苍茫:庆丰盛世终于迎来了高潮[哈哈] //@爱卿平身免礼吧:[哈哈]<br><br>RE: “戒严态势”[哈哈][哈哈]，变相的说对老百姓是法西斯呢！<br><img src="http://ww3.sinaimg.cn/large/e0aa6a0ejw1evc5sxypk6j20hs0i1tcm.jpg"></p>
-<p>
-	<small> ============== 4小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3878907591642120" target="freeweibo-mirror">有本国法西斯保护，外国法西斯绝不敢入侵。</a>
-</h2>
-<p>有本国法西斯保护，外国法西斯绝不敢入侵。<br><br>RE: “戒严态势”[哈哈][哈哈]，变相的说对老百姓是法西斯呢！<br><img src="http://ww3.sinaimg.cn/large/e0aa6a0ejw1evc5sxypk6j20hs0i1tcm.jpg"></p>
 <p>
 	<small> ============== 4小时前</small>
 </p>
