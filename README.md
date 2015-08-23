@@ -42,13 +42,13 @@
 </h2>
 <p>SPAM 朝鲜：当官的到哪都醉，文工团到哪都睡，扛枪的只练踢腿，消防的只练浇水。<br><img src="http://ww4.sinaimg.cn/large/a62471f0jw1evc919k81ij20dw094jsh.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3878920816000330" target="freeweibo-mirror">//@泪水不再有温度:转发微博</a>
 </h2>
 <p>//@泪水不再有温度:转发微博<br><br>RE: 北京网友：刚听说，因为阅兵演习，这周末不但小区周边一切商店关门，而且地铁不通，马路封闭。今晚准备去超市买粮、买水，迎接一个周末的非正常生活。知道的这是庆祝反法西斯胜利70周年，不知道的还以为他妈的法西斯要进城了呢。</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3878916731587172" target="freeweibo-mirror">定他们个反人类罪也不为过。</a>
 </h2>
@@ -108,7 +108,7 @@
 </h2>
 <p>SPAM ☁ //@鹪鹩一枝:再转发一次！为何不见哀悼这些无辜平民的仪式、文章或者报道？</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3878874116613612" target="freeweibo-mirror">SPAM 说这样的话竟然没被投入大牢，说明伟光正还是与时俱进…</a>
 </h2>
