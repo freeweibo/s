@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3879014701245540" target="freeweibo-mirror">原来是酱紫呀 [吃惊] //@郭宇宽以研究会友: 正步踢得整…</a>
+</h2>
+<p>原来是酱紫呀 [吃惊] //@郭宇宽以研究会友: 正步踢得整齐的国家，值得思考，往往名声都不好。<br><br>RE: 人民的事，再大也是小事<br><img src="http://ww1.sinaimg.cn/large/5940f48djw1evch50hswwj20f00qon1b.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3879007034849080" target="freeweibo-mirror">//@小东邪v:在民主国家不需要军队参与过多的政治决策，需要…</a>
 </h2>
 <p>//@小东邪v:在民主国家不需要军队参与过多的政治决策，需要弱化军队对国内政治的影响，因此不需要阅兵！ //@罗昌平:英国正规军被不会走正步的美国农民打败！//@mattcello：真正的高手不需要任何的炫耀！<br><br>RE: 【美式阅兵】美国阅兵多在战场上，最大一次阅兵，不在本土，是在日本受降仪式上举行的海空大阅兵，当时美国陆军、海军的航空队1000架飞机、22艘航母、8艘战列舰和数十艘战斗舰参加了史无前例的阅兵观礼。相反，在本土阅兵近几十年几乎没有，因为美军都被派驻到了海外，无法组织足够的阅兵单位参加。<br><img src="http://ww3.sinaimg.cn/large/749bcf09jw1evalh3tbh1j20hs2ze1bt.jpg"></p>
@@ -31,6 +37,12 @@
 <p>广东居然被排除在外，这是处处给胡春华难看啊[衰][衰][衰]</p>
 <p>
 	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3878994271390171" target="freeweibo-mirror">SPAM 日本鬼子在时他们是抗日英雄。建国后他们是蒋匪特务、…</a>
+</h2>
+<p>SPAM 日本鬼子在时他们是抗日英雄。建国后他们是蒋匪特务、人民敌人。后来，他们是犯人、孤寡老人、乞丐…。突然，又变成了抗战老英雄。这真是人生成了戏子，导演说演啥就演啥。http://t.cn/RLFccLS<br><img src="http://ww4.sinaimg.cn/large/b8e65f0ajw1evchg0apomj20ca0hswgq.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3878991515416320" target="freeweibo-mirror">发表了博文《是是非非汪东兴（组图）》汪东兴号称警卫毛泽东三十…</a>
 </h2>
@@ -59,6 +71,12 @@
 	<a href="https://freeweibo.com/weibo/3878978052365402" target="freeweibo-mirror">SPAM 老王，你把小秘书怎么了？</a>
 </h2>
 <p>SPAM 老王，你把小秘书怎么了？</p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3878977980299287" target="freeweibo-mirror">美国为什么不是用筷子吃饭呢？//@不沉默的大多数:美国如何关…</a>
+</h2>
+<p>美国为什么不是用筷子吃饭呢？//@不沉默的大多数:美国如何关我们屁事[哈哈] //@大鹏看天下:美国人为什么不搞大阅兵。[思考]<br><br>RE: 【美式阅兵】美国阅兵多在战场上，最大一次阅兵，不在本土，是在日本受降仪式上举行的海空大阅兵，当时美国陆军、海军的航空队1000架飞机、22艘航母、8艘战列舰和数十艘战斗舰参加了史无前例的阅兵观礼。相反，在本土阅兵近几十年几乎没有，因为美军都被派驻到了海外，无法组织足够的阅兵单位参加。<br><img src="http://ww3.sinaimg.cn/large/749bcf09jw1evalh3tbh1j20hs2ze1bt.jpg"></p>
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
@@ -104,6 +122,12 @@
 <p>
 	<small> ============== 4小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3878972301496874" target="freeweibo-mirror">美国如何关我们屁事[哈哈] //@大鹏看天下:美国人为什么不…</a>
+</h2>
+<p>美国如何关我们屁事[哈哈] //@大鹏看天下:美国人为什么不搞大阅兵。[思考]<br><br>RE: 【美式阅兵】美国阅兵多在战场上，最大一次阅兵，不在本土，是在日本受降仪式上举行的海空大阅兵，当时美国陆军、海军的航空队1000架飞机、22艘航母、8艘战列舰和数十艘战斗舰参加了史无前例的阅兵观礼。相反，在本土阅兵近几十年几乎没有，因为美军都被派驻到了海外，无法组织足够的阅兵单位参加。<br><img src="http://ww3.sinaimg.cn/large/749bcf09jw1evalh3tbh1j20hs2ze1bt.jpg"></p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3878970862742133" target="freeweibo-mirror">SPAM 你的座位在哪里？</a>
 </h2>
 <p>SPAM 你的座位在哪里？<br><img src="http://ww1.sinaimg.cn/large/4cd1c167jw1evceqlug7yj20zk0qodjp.jpg"></p>
@@ -113,30 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3878965657680454" target="freeweibo-mirror">抗战时，皇军根本瞧不起TG，所谓的敌后游击，被皇军称为华北治…</a>
 </h2>
 <p>抗战时，皇军根本瞧不起TG，所谓的敌后游击，被皇军称为华北治安战，治安就是维稳，那是皇协军干的事。抗战末期，除了东北和缅甸，中国战区16个受降点，TG一个都没捞到。你不种树，哪来桃子摘？9.3阅兵，安倍为啥不来？从感情上接受不了。将我揍趴下的是国军和美军，凭啥要受你TG胯下之辱？<br><img src="http://ww2.sinaimg.cn/large/006biu8Wjw1evce0sd855j30go09m0te.jpg"></p>
-<p>
-	<small> ============== 4小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3878963853864574" target="freeweibo-mirror">SPAM 小意外………[衰]</a>
-</h2>
-<p>SPAM 小意外………[衰]<br><img src="http://ww3.sinaimg.cn/large/6853040fjw1evcdalsuc9j20hs0dcjtj.jpg"></p>
-<p>
-	<small> ============== 4小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3878962197335119" target="freeweibo-mirror">//@游云庭律师: //@王周生:转发微博</a>
-</h2>
-<p>//@游云庭律师: //@王周生:转发微博<br><br>RE: 以前，死磕律师在死磕，屁民还嘲讽，事不关己，高高挂起，自顾低头吃猪食，。。。。。。总以为跟自己没关系。。。。。。唉。。。。。终于有一天。。。。。。据悉：天津大爆炸受灾业主、居民准备聘请律师参与谈判，维权，但联系了几位律师，都不愿接。。。。。。没有愿意接的律师了。。。。。。</p>
-<p>
-	<small> ============== 4小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3878962184408502" target="freeweibo-mirror">千万别把党和政府逼急了，当软柿子捏一但翻脸够你受的！以前有过…</a>
-</h2>
-<p>千万别把党和政府逼急了，当软柿子捏一但翻脸够你受的！以前有过例子记住中国特色[怒][怒][怒]</p>
-<p>
-	<small> ============== 4小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3878962029877801" target="freeweibo-mirror">SPAM //@朱孝顶律师: 转发微博</a>
-</h2>
-<p>SPAM //@朱孝顶律师: 转发微博<br><br>RE: 倆朋友，一位昨晚出門過了條馬路，一扭頭，東大橋路口被管制，回不了家了；還有一位，在長椿街路口碰到閱兵綵排，準備步行繞大遠回家，“爭取天亮能到”。[哈哈]</p>
 <p>
 	<small> ============== 4小时前</small>
 </p>
