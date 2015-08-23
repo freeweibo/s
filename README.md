@@ -24,7 +24,7 @@
 </h2>
 <p>原来是酱紫呀 [吃惊] //@郭宇宽以研究会友: 正步踢得整齐的国家，值得思考，往往名声都不好。<br><br>RE: 人民的事，再大也是小事<br><img src="http://ww1.sinaimg.cn/large/5940f48djw1evch50hswwj20f00qon1b.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3879007034849080" target="freeweibo-mirror">//@小东邪v:在民主国家不需要军队参与过多的政治决策，需要…</a>
 </h2>
