@@ -30,7 +30,7 @@
 </h2>
 <p>SPAM 星宿老仙，法力无边，攻无不克，战无不胜 星宿老仙，法驾中原，神通广大，法力无边 星宿老仙，法力无边，仙福永享，寿与天齐 //@李俊晓:[吃惊] //@孟庆明v: 谁有“日出东方,唯我不败,千秋万载,一统江湖”的配音？<br><br>RE: 真相之天安门<br><img src="http://ww4.sinaimg.cn/large/404ba3d2jw1evcnd2vgnzj20m80goabl.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3879132641752113" target="freeweibo-mirror">//@何怪哉:一次比一次惨烈，一次比一次健忘//@崔小平律师…</a>
 </h2>
@@ -41,6 +41,18 @@
 	<a href="https://freeweibo.com/weibo/3879129206596517" target="freeweibo-mirror">//@李彤律师: 转发微博</a>
 </h2>
 <p>//@李彤律师: 转发微博<br><br>RE: 在这里读懂法西斯以及阅兵<br><img src="http://ww1.sinaimg.cn/large/639695d4jw1evctj1mrw1j20ey6307wh.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3879128698645654" target="freeweibo-mirror">//@周泽律师:转发微博</a>
+</h2>
+<p>//@周泽律师:转发微博<br><br>RE: 在这里读懂法西斯以及阅兵<br><img src="http://ww1.sinaimg.cn/large/639695d4jw1evctj1mrw1j20ey6307wh.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3879127255478176" target="freeweibo-mirror">SPAM [哈哈]//@性感玉米:[笑cry]</a>
+</h2>
+<p>SPAM [哈哈]//@性感玉米:[笑cry]</p>
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
@@ -72,7 +84,7 @@
 </h2>
 <p>您儿子或许比您生活更自由开放，却比您更爱国，就是这么回事。[哈哈]//@北野的理想国:确实 //@陈业文新大都:最右不妨谈谈您理性的判断。[阴险] /@方绍伟:这个愤青了。现在的任何危机事件都会被当成崩溃的征兆，但政权偏偏不是这么崩溃的，任何从民心、统治成本看问题的都是冲动。<br><br>RE: 你封杀与否已没有意义，我其实也不想说什么了。王朝末世，还想讲点真话的，多数还是对你们抱有丁点希望。东方之星沉没的并不只是船，唐沽一炸炸掉的也不只是仅存的那点希望。当一国之朝堂，竟无一人能明明白白地言语和担当，我连骂都不想骂了。除了崩溃和灭亡，还有别的可能么？</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3879101129905075" target="freeweibo-mirror">最右不妨谈谈您理性的判断。[阴险] //@雨溪情://@方绍…</a>
 </h2>
@@ -125,18 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3879092291839652" target="freeweibo-mirror">右边</a>
 </h2>
 <p>右边</p>
-<p>
-	<small> ============== 4小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3879091427894972" target="freeweibo-mirror">从身材上看，肯定不是我。//@侯宁: [思考]//@距离因交…</a>
-</h2>
-<p>从身材上看，肯定不是我。//@侯宁: [思考]//@距离因交流而拉近: 肯定是毛主席<br><br>RE: 【中央党校换了“门面”，猜猜这是谁】<br><img src="http://ww2.sinaimg.cn/large/48ddc70cjw1evcs6rzvdqj20c806vglo.jpg"></p>
-<p>
-	<small> ============== 4小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3879087820692085" target="freeweibo-mirror">【中央党校换了“门面”，猜猜这是谁】</a>
-</h2>
-<p>【中央党校换了“门面”，猜猜这是谁】<br><img src="http://ww2.sinaimg.cn/large/48ddc70cjw1evcs6rzvdqj20c806vglo.jpg"></p>
 <p>
 	<small> ============== 4小时前</small>
 </p>
