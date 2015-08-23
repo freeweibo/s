@@ -36,7 +36,7 @@
 </h2>
 <p>广东居然被排除在外，这是处处给胡春华难看啊[衰][衰][衰]</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3878994271390171" target="freeweibo-mirror">SPAM 日本鬼子在时他们是抗日英雄。建国后他们是蒋匪特务、…</a>
 </h2>
@@ -48,13 +48,13 @@
 </h2>
 <p>发表了博文《是是非非汪东兴（组图）》汪东兴号称警卫毛泽东三十年的内廷唯一行走，而纪登奎素来以毛泽东的“老朋友”为外界所共知，吴德在董必武死后，成为中国人大的实际当家人，朱德死后，他成为中共全国人大党组http://t.cn/RLFYrEQ<br><img src="http://ww4.sinaimg.cn/large/4a8a18bfjw1evch4sogx7j20ft0kv7at.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3878991469512324" target="freeweibo-mirror">回复@faircat:显示正统，亮出肌肉，压制矛盾，震慑内外…</a>
 </h2>
 <p>回复@faircat:显示正统，亮出肌肉，压制矛盾，震慑内外。 //@faircat:也是一种封禅，证明正统继位。<br><br>RE: 历史证明，一代领导人有一次阅兵机会：59年的毛，84年的邓，99年的江，09年的胡。例外的是毛还在66年阅了11次红卫兵，目的是为了树立个人权威搞运动。84年不是正日子搞阅兵，后来证明是为了大裁军。三次该阅没阅的日子都有各自历史原因。这次阅兵的历史地位如何，且看以后的历史如何记载。</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3878987677392457" target="freeweibo-mirror">SPAM [挖鼻]这又是咋了？//@饭扯: 这名儿不改估计活…</a>
 </h2>
@@ -102,13 +102,13 @@
 </h2>
 <p>SPAM 驾着七彩云朵来的，不一定是你的意中人，还可能是你的血汗钱。<br><img src="http://ww4.sinaimg.cn/large/625da52cgw1evcfg1hkjqj20zk0qowh9.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3878976503868718" target="freeweibo-mirror">//@博闻泰来: //@长沙凌杰15:可恨的是，TG最后不光…</a>
 </h2>
 <p>//@博闻泰来: //@长沙凌杰15:可恨的是，TG最后不光偷了桃子，连整个桃园都霸占，把果农也逼成了奴隶。<br><br>RE: 抗战时，皇军根本瞧不起TG，所谓的敌后游击，被皇军称为华北治安战，治安就是维稳，那是皇协军干的事。抗战末期，除了东北和缅甸，中国战区16个受降点，TG一个都没捞到。你不种树，哪来桃子摘？9.3阅兵，安倍为啥不来？从感情上接受不了。将我揍趴下的是国军和美军，凭啥要受你TG胯下之辱？<br><img src="http://ww2.sinaimg.cn/large/006biu8Wjw1evce0sd855j30go09m0te.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3878973996243664" target="freeweibo-mirror">历史证明，一代领导人有一次阅兵机会：59年的毛，84年的邓，…</a>
 </h2>
