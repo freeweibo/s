@@ -24,7 +24,7 @@
 </h2>
 <p>SPAM 自娱自乐。<br><br>RE: 老汉放羊时发生的一幕，哈哈哈感受下“别人家的阅兵场景”[笑cry] http://t.cn/RZnLHr2</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3879014701245540" target="freeweibo-mirror">原来是酱紫呀 [吃惊] //@郭宇宽以研究会友: 正步踢得整…</a>
 </h2>
@@ -48,7 +48,7 @@
 </h2>
 <p>广东居然被排除在外，这是处处给胡春华难看啊[衰][衰][衰]</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3879004669311136" target="freeweibo-mirror">我们的军队主要用于维稳</a>
 </h2>
@@ -96,19 +96,19 @@
 </h2>
 <p>人民的事，再大也是小事<br><img src="http://ww1.sinaimg.cn/large/5940f48djw1evch50hswwj20f00qon1b.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3878991515416320" target="freeweibo-mirror">发表了博文《是是非非汪东兴（组图）》汪东兴号称警卫毛泽东三十…</a>
 </h2>
 <p>发表了博文《是是非非汪东兴（组图）》汪东兴号称警卫毛泽东三十年的内廷唯一行走，而纪登奎素来以毛泽东的“老朋友”为外界所共知，吴德在董必武死后，成为中国人大的实际当家人，朱德死后，他成为中共全国人大党组http://t.cn/RLFYrEQ<br><img src="http://ww4.sinaimg.cn/large/4a8a18bfjw1evch4sogx7j20ft0kv7at.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3878991469512324" target="freeweibo-mirror">回复@faircat:显示正统，亮出肌肉，压制矛盾，震慑内外…</a>
 </h2>
 <p>回复@faircat:显示正统，亮出肌肉，压制矛盾，震慑内外。 //@faircat:也是一种封禅，证明正统继位。<br><br>RE: 历史证明，一代领导人有一次阅兵机会：59年的毛，84年的邓，99年的江，09年的胡。例外的是毛还在66年阅了11次红卫兵，目的是为了树立个人权威搞运动。84年不是正日子搞阅兵，后来证明是为了大裁军。三次该阅没阅的日子都有各自历史原因。这次阅兵的历史地位如何，且看以后的历史如何记载。</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3878987677392457" target="freeweibo-mirror">SPAM [挖鼻]这又是咋了？//@饭扯: 这名儿不改估计活…</a>
 </h2>
