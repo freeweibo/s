@@ -114,7 +114,7 @@
 </h2>
 <p>出城砍柴者不受此限<br><br>RE: 卢沟桥事变后，日军迅速占领平津等华北大地，强化治安，颁发良民证，对进城的百姓四处设卡检查。——历史证明，从纯粹治安措施而言，七十多年后亦可沿用。<br><img src="http://ww1.sinaimg.cn/large/61fcc2a9jw1evbn29ln9mj208c058t8y.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3878821402968352" target="freeweibo-mirror">//@铁路工人2013a: //@就爱酒://@赤馬於歸:/…</a>
 </h2>
