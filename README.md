@@ -54,7 +54,7 @@
 </h2>
 <p>SPAM 毛雄才大略，邓理性务实，江睿智灵活，都是与时俱进的一时之选。//@说话的人很多不如我也说说:真不好猜！//@jintianlanhong:看上去是高个//@一蓑卧月: //@不沉默的大多数: 无论谁，肯定是一位长者。<br><br>RE: 【中央党校换了“门面”，猜猜这是谁】<br><img src="http://ww2.sinaimg.cn/large/48ddc70cjw1evcs6rzvdqj20c806vglo.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3879095911637931" target="freeweibo-mirror">//@幸福树ok:转发微博</a>
 </h2>
