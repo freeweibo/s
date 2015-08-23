@@ -42,7 +42,7 @@
 </h2>
 <p>有本国法西斯保护，外国法西斯绝不敢入侵。<br><br>RE: “戒严态势”[哈哈][哈哈]，变相的说对老百姓是法西斯呢！<br><img src="http://ww3.sinaimg.cn/large/e0aa6a0ejw1evc5sxypk6j20hs0i1tcm.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3878903338977377" target="freeweibo-mirror">天津爆炸事故之后，小区受损业主们忽然发现，他们告状无门，连一…</a>
 </h2>
