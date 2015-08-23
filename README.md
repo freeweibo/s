@@ -60,7 +60,7 @@
 </h2>
 <p>SPAM //@黄土路: 怪不得。<br><br>RE: “我们从来不在自己的家园阅兵，我们只在战场上阅兵；我们从来不在自己的家人面前傲武扬威，我们只在敌人的土地上策马扬鞭；我们从来不在白宫门前检阅武器，我们只在实战中检阅武器；我们从来不要求战士的走姿，我们只强调战争中的隐形。”——五角大楼</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3879008410342780" target="freeweibo-mirror">//@崔小平律师://@宪政是敏感词: //@郭宇宽以研究会…</a>
 </h2>
@@ -120,13 +120,13 @@
 </h2>
 <p>回复@青年张鑫:我晒你这种傻逼就是为国民帮忙[爱你] //@青年张鑫:回复@bbbbbbbcccccceline-:看到说这种话的人就烦，就键盘敲的响，爆炸也没看他捐款，当志愿者去，既然国家那么差，你作为国民倒是帮忙啊 //@布小什大师:转发微博<br><br>RE: 人民的事，再大也是小事<br><img src="http://ww1.sinaimg.cn/large/5940f48djw1evch50hswwj20f00qon1b.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3878994652527919" target="freeweibo-mirror">//@布小什大师:转发微博</a>
 </h2>
 <p>//@布小什大师:转发微博<br><br>RE: 人民的事，再大也是小事<br><img src="http://ww1.sinaimg.cn/large/5940f48djw1evch50hswwj20f00qon1b.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3878994271390171" target="freeweibo-mirror">SPAM 日本鬼子在时他们是抗日英雄。建国后他们是蒋匪特务、…</a>
 </h2>
