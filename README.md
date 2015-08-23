@@ -90,7 +90,7 @@
 </h2>
 <p>洪秀全？ //@燕小小云:右边调皮 //@十年砍柴:真像历史教科书和文艺作品中的洪秀全 //@罗昌平:看姿势，交警队长！<br><br>RE: 【中央党校换了“门面”，猜猜这是谁】<br><img src="http://ww2.sinaimg.cn/large/48ddc70cjw1evcs6rzvdqj20c806vglo.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3879092291839652" target="freeweibo-mirror">右边</a>
 </h2>
@@ -132,13 +132,13 @@
 </h2>
 <p>一个国家的国威真的不是靠阅兵来检验的，而是靠人民的自由、法治的衡定有效、普通民众的尊严和安全感。没有这一切，却拿出枪炮，实际是自卑和心虚的表现。<br><img src="http://ww1.sinaimg.cn/large/4c6e5911jw1evcr1q0gogj20k00cltbn.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3879077595761768" target="freeweibo-mirror">//@冰哥微谈:毛贼之恶，罄竹难书[怒]//@逍遥慕容仙: …</a>
 </h2>
 <p>//@冰哥微谈:毛贼之恶，罄竹难书[怒]//@逍遥慕容仙: //@访客归来: 转发微博<br><br>RE: 分享图片<br><img src="http://ww1.sinaimg.cn/large/ecd55bbejw1evbsdgndstj20hs0u5acw.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p>
 <table>
     <tr>
