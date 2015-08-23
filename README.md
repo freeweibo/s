@@ -42,7 +42,7 @@
 </h2>
 <p>问题是这事跟网信办没关系，是私人行为。@黄胜友微博 你看你一个私人行为，把网信办都搁里边了<br><br>RE: 这条微博被快速屏蔽，为什么？<br><img src="http://ww4.sinaimg.cn/large/3f840b6bjw1evbi2kvmioj20p018g7cm.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3878894593287245" target="freeweibo-mirror">SPAM 不懂法的暴力大熊孩子，打了不懂事的捣乱小熊孩子。两…</a>
 </h2>
