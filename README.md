@@ -24,7 +24,7 @@
 </h2>
 <p>SPAM 大阅兵！<br><img src="http://ww2.sinaimg.cn/large/68f3cf9cgw1evdh5kh47fj20do0dwacg.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3879262605899118" target="freeweibo-mirror">美国人不这样，但很有战斗力//@加勒比海风: //@庄主子石…</a>
 </h2>
@@ -48,7 +48,7 @@
 </h2>
 <p>SPAM 性姿势大全！看看你都用过哪招！以后慢慢尝试<br><img src="http://ww2.sinaimg.cn/large/9e14cb4agw1evcswrfcpfj20c80dcdh7.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3879136109987072" target="freeweibo-mirror">SPAM  //@嘟嘟美女:中兴圣教，寿与天齐！[膜拜]千秋…</a>
 </h2>
