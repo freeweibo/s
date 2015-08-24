@@ -36,7 +36,7 @@
 </h2>
 <p>SPAM 大阅兵！<br><img src="http://ww2.sinaimg.cn/large/68f3cf9cgw1evdh5kh47fj20do0dwacg.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3879277965313370" target="freeweibo-mirror">SPAM 终于有人开琥珀的徽博拉~~</a>
 </h2>
