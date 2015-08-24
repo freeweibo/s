@@ -66,7 +66,7 @@
 </h2>
 <p>SPAM 星宿老仙，法力无边，攻无不克，战无不胜 星宿老仙，法驾中原，神通广大，法力无边 星宿老仙，法力无边，仙福永享，寿与天齐 //@李俊晓:[吃惊] //@孟庆明v: 谁有“日出东方,唯我不败,千秋万载,一统江湖”的配音？<br><br>RE: 真相之天安门<br><img src="http://ww4.sinaimg.cn/large/404ba3d2jw1evcnd2vgnzj20m80goabl.jpg"></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3879132641752113" target="freeweibo-mirror">//@何怪哉:一次比一次惨烈，一次比一次健忘//@崔小平律师…</a>
 </h2>
