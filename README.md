@@ -30,7 +30,7 @@
 </h2>
 <p>正步走18世纪起源于德国普鲁士，希特勒上台后推广到德国军队，还要求集中营的犹太人也走正步，直至走向焚烧炉。二战后德国人把正步走作为纳粹德国的象征而予以法律禁止。俄国人从普鲁士人那里学到了正步，通过苏联传给中国。奥威尔说过，只有在那些平民不敢嘲笑军队的国家里，才可能实行正步走阅兵式。<br><img src="http://ww3.sinaimg.cn/large/e6c45c70gw1evdaba8ezwj20fa09k0uu.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3879233837743368" target="freeweibo-mirror">SPAM [哈哈]→_→ //@闵玉平:→_→[哈哈] //…</a>
 </h2>
@@ -114,7 +114,7 @@
 </h2>
 <p>今儿个朋友圈里都是阅兵的图，后来大家都说这是显摆自己家房价的，其实你们都没领会精神了，看清楚喽，人家明明白白告诉你了，甭管您家在几环，产权只有70年…[嘻嘻]<br><img src="http://ww1.sinaimg.cn/large/6dff8cb2jw1evcwe9ezaug208s04yaa8.gif"></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3879116794999992" target="freeweibo-mirror">回复@蘑菇屯养大了我施光荣:终有一天会浮出水面的。 //@蘑…</a>
 </h2>
@@ -132,7 +132,7 @@
 </h2>
 <p>SPAM 老乡，，，，，别跑！ ---------------------------- 呸，不跑，等死。</p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3879107319855457" target="freeweibo-mirror">SPAM 看背影像洪秀全！ //@希望有底线: //@导演陈…</a>
 </h2>
