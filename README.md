@@ -66,7 +66,7 @@
 </h2>
 <p>钱呢？<br><br>RE: 看央视，央视说陕西某县一所高中，1700多人参加高考，上线1400多人，其中600多人是贫困生，交不起学费。然后，央视贴出了助学热线。我就想问问央视：为啥这么多学生交不起学费？是这个国家没钱吗？你们到处撒钱，学生上不起学就叫老百姓捐款？</p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3879481242168213" target="freeweibo-mirror">SPAM //@私家野史: [good] //@暗战T:根据…</a>
 </h2>
@@ -132,13 +132,13 @@
 </h2>
 <p>//@王明旺律师: //@崔小平律师://@律师姬来松:保障律师权利的会议显得很滑稽</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3879444206354795" target="freeweibo-mirror">转个通知和谐了，我理解新浪压力很大。不过被删感觉很野蛮。</a>
 </h2>
 <p>转个通知和谐了，我理解新浪压力很大。不过被删感觉很野蛮。<br><img src="http://ww1.sinaimg.cn/large/749bcf09jw1evdx3bnrwxj20ku112ahy.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p>
 <table>
     <tr>
