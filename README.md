@@ -36,7 +36,7 @@
 </h2>
 <p>SPAM //@为公居士://@周泽律师:确保三个自信，全部体现。<br><br>RE: 紧急通知：统一思想、统一战线、统一方便面！<br><img src="http://ww1.sinaimg.cn/large/b5e60e71jw1evdzv7txjqj20hs0eyq6w.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3879504009057383" target="freeweibo-mirror">//@莫志谨: //@爱卿平身免礼吧: //@摩羯老潘A:[…</a>
 </h2>
@@ -132,7 +132,7 @@
 </h2>
 <p>SPAM 最后一个可真是个心机婊</p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3879425566927404" target="freeweibo-mirror">SPAM 还是西方的！</a>
 </h2>
