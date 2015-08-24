@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3879518815329736" target="freeweibo-mirror">//@段贵发: 钱呢？</a>
+</h2>
+<p>//@段贵发: 钱呢？<br><br>RE: 看央视，央视说陕西某县一所高中，1700多人参加高考，上线1400多人，其中600多人是贫困生，交不起学费。然后，央视贴出了助学热线。我就想问问央视：为啥这么多学生交不起学费？是这个国家没钱吗？你们到处撒钱，学生上不起学就叫老百姓捐款？</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3879508778418933" target="freeweibo-mirror">SPAM 这是从证监会微博下面的评论截屏，疯了！</a>
 </h2>
 <p>SPAM 这是从证监会微博下面的评论截屏，疯了！<br><img src="http://ww2.sinaimg.cn/large/68f3cf9cgw1eve4i86wlkj20p018gdkh.jpg"></p>
@@ -108,7 +114,7 @@
 </h2>
 <p>SPAM 法西斯//@kkk888666yyy: //@徐昕: 再不老实，销你的号 //@把盏向西天:[打脸]//@FuZhenYu163:[挖鼻]//@演员孙海英: 转<br><br>RE: 转个通知和谐了，我理解新浪压力很大。不过被删感觉很野蛮。<br><img src="http://ww1.sinaimg.cn/large/749bcf09jw1evdx3bnrwxj20ku112ahy.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3879444513004275" target="freeweibo-mirror">//@王明旺律师: //@崔小平律师://@律师姬来松:保障…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3879430076470998" target="freeweibo-mirror">SPAM 最后一个可真是个心机婊</a>
 </h2>
 <p>SPAM 最后一个可真是个心机婊</p>
-<p>
-	<small> ============== 7小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3879425566927404" target="freeweibo-mirror">SPAM 还是西方的！</a>
-</h2>
-<p>SPAM 还是西方的！<br><br>RE: 阅兵前夕，股票暴跌，难道又是，敌对势力。。。。<br><img src="http://ww3.sinaimg.cn/large/656952ecgw1evduv7ctgfj20eg0i87a9.jpg"></p>
 <p>
 	<small> ============== 7小时前</small>
 </p>
