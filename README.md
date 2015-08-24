@@ -36,13 +36,13 @@
 </h2>
 <p>SPAM //@私家野史: [good] //@暗战T:根据ID落实具体地址和个人信息，便于抓捕。 //@十年砍柴:什么叫“落地”呀？<br><br>RE: 转发十三次的微博，都给你监控到。<br><img src="http://ww4.sinaimg.cn/large/404ba3d2gw1eve06biev3j20np0hsta5.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3879480672095711" target="freeweibo-mirror">SPAM //@律师孟浩然: 落地！ //@俗人海洋_归来:…</a>
 </h2>
 <p>SPAM //@律师孟浩然: 落地！ //@俗人海洋_归来:这东西能就出来，说明还是有几个有良心的人！//@私家野史:[good] //@暗战T:根据ID落实具体地址和个人信息，便于抓捕。 //@十年砍柴:什么叫“落地”呀？<br><br>RE: 转发十三次的微博，都给你监控到。<br><img src="http://ww4.sinaimg.cn/large/404ba3d2gw1eve06biev3j20np0hsta5.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3879478688601958" target="freeweibo-mirror">SPAM [good] //@暗战T:根据ID落实具体地址和…</a>
 </h2>
@@ -65,6 +65,12 @@
 	<a href="https://freeweibo.com/weibo/3879462082567184" target="freeweibo-mirror">股民加入了阅兵队列：他们头戴绿帽，身穿绿色服装，手拿绿色k线…</a>
 </h2>
 <p>股民加入了阅兵队列：他们头戴绿帽，身穿绿色服装，手拿绿色k线棒，面色憔悴，脚步蹒跚,他们为了参检，从海拔5179米高山直接翻滚下来，我们可以看到，他们内心是火热的，侠之大者、为国护盘的决心是前所未有的！首长：同志们辛苦了！股民：为圈钱服务！首长：同志们晒黑了。股民：证监会更黑。<br><img src="http://ww3.sinaimg.cn/large/464c1f95jw1evdz66tqbcj20do0dwwg3.jpg"></p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3879462002807360" target="freeweibo-mirror">SPAM 分享视频：一将成名万骨朽，徐才厚，郭伯雄啊这是你的…</a>
+</h2>
+<p>SPAM 分享视频：一将成名万骨朽，徐才厚，郭伯雄啊这是你的兵 http://t.cn/RLsQOEJ</p>
 <p>
 	<small> ============== 4小时前</small>
 </p><h2>
@@ -133,12 +139,6 @@
 <p>[赞]//@黄亭序: 武孔有力，真正的经历沙的军人。//@隆裕太后:民族的骨气！ //@郑在索律师: [玫瑰][玫瑰][玫瑰] [威武]是您，铸就了“中华民族魂”！</p>
 <p>
 	<small> ============== 7小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3879392369295868" target="freeweibo-mirror">//@邢建民律师: 转发微博</a>
-</h2>
-<p>//@邢建民律师: 转发微博<br><br>RE: 满屏都是阅兵，天津爆炸竟没消息了，比如氰化钠清除了多少，核心区内外土壤、水质的氰化物浓度是多少？阅兵，不过是高级的、精致的洗脑术而已。阅兵步伐精确到0.3秒，居民小区离危化仓库随意到数百米，二者是相关的。</p>
-<p>
-	<small> ============== 8小时前</small>
 </p>
 <table>
     <tr>
