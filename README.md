@@ -96,7 +96,7 @@
 </h2>
 <p>紧急通知：统一思想、统一战线、统一方便面！<br><img src="http://ww1.sinaimg.cn/large/b5e60e71jw1evdzv7txjqj20hs0eyq6w.jpg"></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3879462518944172" target="freeweibo-mirror">天津大爆炸之后居民抗议视频！ http://t.cn/RLs…</a>
 </h2>
