@@ -54,7 +54,7 @@
 </h2>
 <p>SPAM 确保三个自信，全部体现。<br><br>RE: 紧急通知：统一思想、统一战线、统一方便面！<br><img src="http://ww1.sinaimg.cn/large/b5e60e71jw1evdzv7txjqj20hs0eyq6w.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3879481242168213" target="freeweibo-mirror">SPAM //@私家野史: [good] //@暗战T:根据…</a>
 </h2>
@@ -78,7 +78,7 @@
 </h2>
 <p>转发十三次的微博，都给你监控到。<br><img src="http://ww4.sinaimg.cn/large/404ba3d2gw1eve06biev3j20np0hsta5.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3879468093678050" target="freeweibo-mirror">紧急通知：统一思想、统一战线、统一方便面！</a>
 </h2>
