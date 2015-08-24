@@ -66,7 +66,7 @@
 </h2>
 <p>SPAM 还是西方的！<br><br>RE: 阅兵前夕，股票暴跌，难道又是，敌对势力。。。。<br><img src="http://ww3.sinaimg.cn/large/656952ecgw1evduv7ctgfj20eg0i87a9.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3879424678442895" target="freeweibo-mirror">阅兵前夕，股票暴跌，难道又是，敌对势力。。。。</a>
 </h2>
@@ -138,7 +138,7 @@
 </h2>
 <p>SPAM #昆明生活#【昆明又见奇葩证明:“证明我儿子是我儿子？”】昆明网友@张张zhang先生 投稿：今天在金碧路建行总行给自己的儿子开个户，幼儿园用的，银行让我证明我儿是我儿子？就因为户口本没我名字，就感觉像是说我儿就不是我儿子了……[汗]<br><img src="http://ww3.sinaimg.cn/large/6a8bd5d1gw1evdisy51cnj20ad0dwdgk.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p>
 <table>
     <tr>
