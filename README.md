@@ -48,7 +48,7 @@
 </h2>
 <p>SPAM  //@嘟嘟美女:中兴圣教，寿与天齐！[膜拜]千秋万载，一统江湖！[膜拜]文成武德，泽被苍生！[膜拜]//@CFYY陈封: //@李俊晓:[吃惊]<br><br>RE: 真相之天安门<br><img src="http://ww4.sinaimg.cn/large/404ba3d2jw1evcnd2vgnzj20m80goabl.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3879134591879450" target="freeweibo-mirror">SPAM 呵呵 //@我是西蒙周:呵呵 //@陆亚明:[哈哈…</a>
 </h2>
@@ -90,19 +90,19 @@
 </h2>
 <p>//@周泽律师:转发微博<br><br>RE: 在这里读懂法西斯以及阅兵<br><img src="http://ww1.sinaimg.cn/large/639695d4jw1evctj1mrw1j20ey6307wh.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3879128606479042" target="freeweibo-mirror">看到调查组的装备，真是心疼冲进去的消防员和记者们 http:…</a>
 </h2>
 <p>看到调查组的装备，真是心疼冲进去的消防员和记者们 http://t.cn/RLeRPkd 今天，满屏尽是阅兵预演照，进入庆祝季了，天津爆炸没什么人记得了，受害者又要开始艰难的维权与被维稳了，类似的悲剧又可能在未来某天重演</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3879127889179878" target="freeweibo-mirror">SPAM 看看这个方队表演如何。http://t.cn/RL…</a>
 </h2>
 <p>SPAM 看看这个方队表演如何。http://t.cn/RLFQF67</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3879127255478176" target="freeweibo-mirror">SPAM [哈哈]//@性感玉米:[笑cry]</a>
 </h2>
