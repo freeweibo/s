@@ -56,6 +56,12 @@
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3879468093678050" target="freeweibo-mirror">紧急通知：统一思想、统一战线、统一方便面！</a>
+</h2>
+<p>紧急通知：统一思想、统一战线、统一方便面！<br><img src="http://ww1.sinaimg.cn/large/b5e60e71jw1evdzv7txjqj20hs0eyq6w.jpg"></p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3879462518944172" target="freeweibo-mirror">天津大爆炸之后居民抗议视频！ http://t.cn/RLs…</a>
 </h2>
 <p>天津大爆炸之后居民抗议视频！ http://t.cn/RLs8fT2</p>
@@ -126,17 +132,11 @@
 </h2>
 <p>SPAM #我们为什么膜蛤# //@蛤蛤萌爆了: 现在就说出现，会不会给人一种钦定的感觉呢？ //@文山娃:會。</p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3879418441105808" target="freeweibo-mirror">SPAM “这个很贵吧？” ———“瞧您说的！我们要少花钱多…</a>
 </h2>
 <p>SPAM “这个很贵吧？” ———“瞧您说的！我们要少花钱多办事儿！集中力量办大事儿！这个.......平壤泡菜总厂一年的产值.......噢噢！还没用完！这不您瞧，又买了个底座！这个一过电就能转的，真转，我给您开开，您瞧瞧！............”<br><img src="http://ww4.sinaimg.cn/large/7fd6e271jw1evdu52jigvj20c80b8mzi.jpg"></p>
-<p>
-	<small> ============== 7小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3879407393873906" target="freeweibo-mirror">[赞]//@黄亭序: 武孔有力，真正的经历沙的军人。//@隆…</a>
-</h2>
-<p>[赞]//@黄亭序: 武孔有力，真正的经历沙的军人。//@隆裕太后:民族的骨气！ //@郑在索律师: [玫瑰][玫瑰][玫瑰] [威武]是您，铸就了“中华民族魂”！</p>
 <p>
 	<small> ============== 7小时前</small>
 </p>
