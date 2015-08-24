@@ -30,7 +30,7 @@
 </h2>
 <p>@封神祭十叔:中共四处撒钱，民主国家为了利益，纵容天朝为祸。中共宁可天下大乱，绝不放弃独裁，如今中共带着天朝一起走向经济政治全面崩盘。世界经济一体化的今天，天朝的崩溃对于世界注定是巨大灾难。无论是体制维护者还是民主国家绥靖，还是袖手旁观者，这就是你们纵容中共应有的报应！一切都是天意</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3879449067756503" target="freeweibo-mirror">SPAM 法西斯//@kkk888666yyy: //@徐昕…</a>
 </h2>
@@ -42,19 +42,19 @@
 </h2>
 <p>//@王明旺律师: //@崔小平律师://@律师姬来松:保障律师权利的会议显得很滑稽</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3879444206354795" target="freeweibo-mirror">转个通知和谐了，我理解新浪压力很大。不过被删感觉很野蛮。</a>
 </h2>
 <p>转个通知和谐了，我理解新浪压力很大。不过被删感觉很野蛮。<br><img src="http://ww1.sinaimg.cn/large/749bcf09jw1evdx3bnrwxj20ku112ahy.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3879443892057971" target="freeweibo-mirror">SPAM 阴魂不散//@杜子建: 算是算，但是你能追究谁？都…</a>
 </h2>
 <p>SPAM 阴魂不散//@杜子建: 算是算，但是你能追究谁？都已经过世了！</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3879430076470998" target="freeweibo-mirror">SPAM 最后一个可真是个心机婊</a>
 </h2>
