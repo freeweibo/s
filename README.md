@@ -24,7 +24,7 @@
 </h2>
 <p>股民加入了阅兵队列：他们头戴绿帽，身穿绿色服装，手拿绿色k线棒，面色憔悴，脚步蹒跚,他们为了参检，从海拔5179米高山直接翻滚下来，我们可以看到，他们内心是火热的，侠之大者、为国护盘的决心是前所未有的！首长：同志们辛苦了！股民：为圈钱服务！首长：同志们晒黑了。股民：证监会更黑。<br><img src="http://ww3.sinaimg.cn/large/464c1f95jw1evdz66tqbcj20do0dwwg3.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3879459088100621" target="freeweibo-mirror">@封神祭十叔:中共四处撒钱，民主国家为了利益，纵容天朝为祸。…</a>
 </h2>
@@ -65,6 +65,12 @@
 	<a href="https://freeweibo.com/weibo/3879425566927404" target="freeweibo-mirror">SPAM 还是西方的！</a>
 </h2>
 <p>SPAM 还是西方的！<br><br>RE: 阅兵前夕，股票暴跌，难道又是，敌对势力。。。。<br><img src="http://ww3.sinaimg.cn/large/656952ecgw1evduv7ctgfj20eg0i87a9.jpg"></p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3879424678442895" target="freeweibo-mirror">阅兵前夕，股票暴跌，难道又是，敌对势力。。。。</a>
+</h2>
+<p>阅兵前夕，股票暴跌，难道又是，敌对势力。。。。<br><img src="http://ww3.sinaimg.cn/large/656952ecgw1evduv7ctgfj20eg0i87a9.jpg"></p>
 <p>
 	<small> ============== 4小时前</small>
 </p><h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3879319967679410" target="freeweibo-mirror">SPAM #昆明生活#【昆明又见奇葩证明:“证明我儿子是我儿…</a>
 </h2>
 <p>SPAM #昆明生活#【昆明又见奇葩证明:“证明我儿子是我儿子？”】昆明网友@张张zhang先生 投稿：今天在金碧路建行总行给自己的儿子开个户，幼儿园用的，银行让我证明我儿是我儿子？就因为户口本没我名字，就感觉像是说我儿就不是我儿子了……[汗]<br><img src="http://ww3.sinaimg.cn/large/6a8bd5d1gw1evdisy51cnj20ad0dwdgk.jpg"></p>
-<p>
-	<small> ============== 11小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3879318284929579" target="freeweibo-mirror">不要神化中国政府的经济管理能力 - FT中文网 中国政策制定…</a>
-</h2>
-<p>不要神化中国政府的经济管理能力 - FT中文网 中国政策制定者的致命缺陷在于，他们必须将政治上置于经济理性之上。其合法性和公众支持同它实现快速增长、创造良好就业和提升民众收入的能力密切相关。只要经济像党期望的那样运行，党就会对潜在的危险视而不见，直至局面不可收拾 http://t.cn/RLsUld9<br><img src="http://ww4.sinaimg.cn/large/513a2b80jw1evdinubxxoj20go09eq4e.jpg"></p>
 <p>
 	<small> ============== 11小时前</small>
 </p>
