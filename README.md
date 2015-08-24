@@ -114,7 +114,7 @@
 </h2>
 <p>SPAM 终于有人开琥珀的徽博拉~~</p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3879262605899118" target="freeweibo-mirror">美国人不这样，但很有战斗力//@加勒比海风: //@庄主子石…</a>
 </h2>
