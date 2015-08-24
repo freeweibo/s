@@ -20,6 +20,18 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3879318284929579" target="freeweibo-mirror">不要神化中国政府的经济管理能力 - FT中文网 中国政策制定…</a>
+</h2>
+<p>不要神化中国政府的经济管理能力 - FT中文网 中国政策制定者的致命缺陷在于，他们必须将政治上置于经济理性之上。其合法性和公众支持同它实现快速增长、创造良好就业和提升民众收入的能力密切相关。只要经济像党期望的那样运行，党就会对潜在的危险视而不见，直至局面不可收拾 http://t.cn/RLsUld9<br><img src="http://ww4.sinaimg.cn/large/513a2b80jw1evdinubxxoj20go09eq4e.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3879317408586224" target="freeweibo-mirror">中国经济雄风不再？ - 头版 - FT中文网 在没有任何明显…</a>
+</h2>
+<p>中国经济雄风不再？ - 头版 - FT中文网 在没有任何明显危机之际，中国为何决定打破巨大禁忌、让人民币贬值呢？分析师乃至一些要求匿名的中共官员表示，答案在于，中国自己已经处于静悄悄的经济危机当中，而且没有足够的工具来应对这场危机。 http://t.cn/RLsUIfS<br><img src="http://ww3.sinaimg.cn/large/513a2b80jw1evdik82etjj20go09eq4g.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3879305241501244" target="freeweibo-mirror">SPAM 大阅兵！</a>
 </h2>
 <p>SPAM 大阅兵！<br><img src="http://ww2.sinaimg.cn/large/68f3cf9cgw1evdh5kh47fj20do0dwacg.jpg"></p>
@@ -125,18 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3879116794999992" target="freeweibo-mirror">回复@蘑菇屯养大了我施光荣:终有一天会浮出水面的。 //@蘑…</a>
 </h2>
 <p>回复@蘑菇屯养大了我施光荣:终有一天会浮出水面的。 //@蘑菇屯养大了我施光荣:[蜡烛][蜡烛][蜡烛]真相可以被掩盖一时，但相信终会浮出水面，愿马跃在天堂安好，还他一个公道！<br><br>RE: 发表了博文《谁是当年处理马跃地铁事故的指挥官？》5年了，中国司法不能给躺在冰柜中等待着的马跃一个交待！！8月23日是马跃走后第五个忌日，5年了，连个坟墓都没有，更没有墓碑，只有冰柜，他说冷，冷，冷呀！http://t.cn/RLFlhUj<br><img src="http://ww4.sinaimg.cn/large/6baf338fjw1evcf70mxv9j20d0079myj.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3879113582167255" target="freeweibo-mirror">回复@人生不过如此兮:【历史事实】1923～1945年，22…</a>
-</h2>
-<p>回复@人生不过如此兮:【历史事实】1923～1945年，22年，李登辉就是日本国籍。1945年中国政府收回台湾，他才又变成中国国籍。//@人生不过如此兮:李登辉说自己是日本人，看来是有根据的。//@罗亚蒙:回复@爱新觉罗载勋:那个时代，创作自由，诗人想些啥就写啥，不受约束，</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3879109090647514" target="freeweibo-mirror">SPAM 老乡，，，，，别跑！ --------------…</a>
-</h2>
-<p>SPAM 老乡，，，，，别跑！ ---------------------------- 呸，不跑，等死。</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
