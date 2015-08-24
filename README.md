@@ -30,7 +30,7 @@
 </h2>
 <p>正步走18世纪起源于德国普鲁士，希特勒上台后推广到德国军队，还要求集中营的犹太人也走正步，直至走向焚烧炉。二战后德国人把正步走作为纳粹德国的象征而予以法律禁止。俄国人从普鲁士人那里学到了正步，通过苏联传给中国。奥威尔说过，只有在那些平民不敢嘲笑军队的国家里，才可能实行正步走阅兵式。<br><img src="http://ww3.sinaimg.cn/large/e6c45c70gw1evdaba8ezwj20fa09k0uu.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3879233837743368" target="freeweibo-mirror">SPAM [哈哈]→_→ //@闵玉平:→_→[哈哈] //…</a>
 </h2>
@@ -66,13 +66,13 @@
 </h2>
 <p>SPAM 星宿老仙，法力无边，攻无不克，战无不胜 星宿老仙，法驾中原，神通广大，法力无边 星宿老仙，法力无边，仙福永享，寿与天齐 //@李俊晓:[吃惊] //@孟庆明v: 谁有“日出东方,唯我不败,千秋万载,一统江湖”的配音？<br><br>RE: 真相之天安门<br><img src="http://ww4.sinaimg.cn/large/404ba3d2jw1evcnd2vgnzj20m80goabl.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3879132641752113" target="freeweibo-mirror">//@何怪哉:一次比一次惨烈，一次比一次健忘//@崔小平律师…</a>
 </h2>
 <p>//@何怪哉:一次比一次惨烈，一次比一次健忘//@崔小平律师: 转发微博<br><br>RE: 看到调查组的装备，真是心疼冲进去的消防员和记者们 http://t.cn/RLeRPkd 今天，满屏尽是阅兵预演照，进入庆祝季了，天津爆炸没什么人记得了，受害者又要开始艰难的维权与被维稳了，类似的悲剧又可能在未来某天重演</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3879129293843871" target="freeweibo-mirror">SPAM 网传：已经被拿下的高法副院长奚晓明的公子家，被抄出…</a>
 </h2>
