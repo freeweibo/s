@@ -36,7 +36,7 @@
 </h2>
 <p>SPAM [哈哈]→_→ //@闵玉平:→_→[哈哈] //@海南梁山:→_→[哈哈] //@窝窝网事:染香！[哈哈]</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3879153029712408" target="freeweibo-mirror">SPAM 性姿势大全！看看你都用过哪招！以后慢慢尝试</a>
 </h2>
@@ -48,7 +48,7 @@
 </h2>
 <p>SPAM  //@嘟嘟美女:中兴圣教，寿与天齐！[膜拜]千秋万载，一统江湖！[膜拜]文成武德，泽被苍生！[膜拜]//@CFYY陈封: //@李俊晓:[吃惊]<br><br>RE: 真相之天安门<br><img src="http://ww4.sinaimg.cn/large/404ba3d2jw1evcnd2vgnzj20m80goabl.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3879134591879450" target="freeweibo-mirror">SPAM 呵呵 //@我是西蒙周:呵呵 //@陆亚明:[哈哈…</a>
 </h2>
