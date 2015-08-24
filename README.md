@@ -24,7 +24,7 @@
 </h2>
 <p>SPAM #昆明生活#【昆明又见奇葩证明:“证明我儿子是我儿子？”】昆明网友@张张zhang先生 投稿：今天在金碧路建行总行给自己的儿子开个户，幼儿园用的，银行让我证明我儿是我儿子？就因为户口本没我名字，就感觉像是说我儿就不是我儿子了……[汗]<br><img src="http://ww3.sinaimg.cn/large/6a8bd5d1gw1evdisy51cnj20ad0dwdgk.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3879318284929579" target="freeweibo-mirror">不要神化中国政府的经济管理能力 - FT中文网 中国政策制定…</a>
 </h2>
@@ -42,7 +42,7 @@
 </h2>
 <p>SPAM 大阅兵！<br><img src="http://ww2.sinaimg.cn/large/68f3cf9cgw1evdh5kh47fj20do0dwacg.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3879277965313370" target="freeweibo-mirror">SPAM 终于有人开琥珀的徽博拉~~</a>
 </h2>
