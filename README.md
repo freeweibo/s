@@ -36,7 +36,7 @@
 </h2>
 <p>不要神化中国政府的经济管理能力 - FT中文网 中国政策制定者的致命缺陷在于，他们必须将政治上置于经济理性之上。其合法性和公众支持同它实现快速增长、创造良好就业和提升民众收入的能力密切相关。只要经济像党期望的那样运行，党就会对潜在的危险视而不见，直至局面不可收拾 http://t.cn/RLsUld9<br><img src="http://ww4.sinaimg.cn/large/513a2b80jw1evdinubxxoj20go09eq4e.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3879317408586224" target="freeweibo-mirror">中国经济雄风不再？ - 头版 - FT中文网 在没有任何明显…</a>
 </h2>
