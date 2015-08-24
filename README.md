@@ -42,7 +42,7 @@
 </h2>
 <p>//@莫志谨: //@爱卿平身免礼吧: //@摩羯老潘A:[good][赞][good]//@手机用户2096664891:转发微博<br><br>RE: 紧急通知：统一思想、统一战线、统一方便面！<br><img src="http://ww1.sinaimg.cn/large/b5e60e71jw1evdzv7txjqj20hs0eyq6w.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3879501354121406" target="freeweibo-mirror">SPAM 确保三个自信，全部体现。</a>
 </h2>
