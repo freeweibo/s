@@ -56,6 +56,12 @@
 <p>
 	<small> ============== 5小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3879341785947694" target="freeweibo-mirror">股民方队[哈哈]</a>
+</h2>
+<p>股民方队[哈哈]<br><img src="http://ww4.sinaimg.cn/large/4ca2560djw1evdlcvuvsdj20do0dwq42.jpg"></p>
+<p>
+	<small> ============== 5小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3879319967679410" target="freeweibo-mirror">SPAM #昆明生活#【昆明又见奇葩证明:“证明我儿子是我儿…</a>
 </h2>
 <p>SPAM #昆明生活#【昆明又见奇葩证明:“证明我儿子是我儿子？”】昆明网友@张张zhang先生 投稿：今天在金碧路建行总行给自己的儿子开个户，幼儿园用的，银行让我证明我儿是我儿子？就因为户口本没我名字，就感觉像是说我儿就不是我儿子了……[汗]<br><img src="http://ww3.sinaimg.cn/large/6a8bd5d1gw1evdisy51cnj20ad0dwdgk.jpg"></p>
@@ -66,7 +72,7 @@
 </h2>
 <p>不要神化中国政府的经济管理能力 - FT中文网 中国政策制定者的致命缺陷在于，他们必须将政治上置于经济理性之上。其合法性和公众支持同它实现快速增长、创造良好就业和提升民众收入的能力密切相关。只要经济像党期望的那样运行，党就会对潜在的危险视而不见，直至局面不可收拾 http://t.cn/RLsUld9<br><img src="http://ww4.sinaimg.cn/large/513a2b80jw1evdinubxxoj20go09eq4e.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3879317408586224" target="freeweibo-mirror">中国经济雄风不再？ - 头版 - FT中文网 在没有任何明显…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3879134310241437" target="freeweibo-mirror">//@老鲍98: //@孤东树:转发微博</a>
 </h2>
 <p>//@老鲍98: //@孤东树:转发微博</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3879133911920676" target="freeweibo-mirror">SPAM 星宿老仙，法力无边，攻无不克，战无不胜 星宿老仙，…</a>
-</h2>
-<p>SPAM 星宿老仙，法力无边，攻无不克，战无不胜 星宿老仙，法驾中原，神通广大，法力无边 星宿老仙，法力无边，仙福永享，寿与天齐 //@李俊晓:[吃惊] //@孟庆明v: 谁有“日出东方,唯我不败,千秋万载,一统江湖”的配音？<br><br>RE: 真相之天安门<br><img src="http://ww4.sinaimg.cn/large/404ba3d2jw1evcnd2vgnzj20m80goabl.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
