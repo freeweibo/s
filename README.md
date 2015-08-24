@@ -24,7 +24,7 @@
 </h2>
 <p>SPAM 最后一个可真是个心机婊</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3879423528663155" target="freeweibo-mirror">SPAM #我们为什么膜蛤# //@蛤蛤萌爆了: 现在就说出…</a>
 </h2>
