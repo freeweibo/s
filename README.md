@@ -44,6 +44,12 @@
 <p>
 	<small> ============== 4小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3879343094848078" target="freeweibo-mirror">【中国股市已经被人为操纵】@刘姝威：这已不是市场行为，而是中…</a>
+</h2>
+<p>【中国股市已经被人为操纵】@刘姝威：这已不是市场行为，而是中国股市被人利用股指期货恶意操纵了。2015年9月3日纪念抗日战争胜利70周年大阅兵，利用股指期货操纵中国股市的人是否妄想在大阅兵前，让中国重演美国1929年股灾的悲剧呢？中国政府应该将这些恶意操纵股市的人绳之以法http://t.cn/RLsVEKO<br><img src="http://ww1.sinaimg.cn/large/65dc17d3jw1evdliffwwmj20go0dkaax.jpg"></p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3879319967679410" target="freeweibo-mirror">SPAM #昆明生活#【昆明又见奇葩证明:“证明我儿子是我儿…</a>
 </h2>
 <p>SPAM #昆明生活#【昆明又见奇葩证明:“证明我儿子是我儿子？”】昆明网友@张张zhang先生 投稿：今天在金碧路建行总行给自己的儿子开个户，幼儿园用的，银行让我证明我儿是我儿子？就因为户口本没我名字，就感觉像是说我儿就不是我儿子了……[汗]<br><img src="http://ww3.sinaimg.cn/large/6a8bd5d1gw1evdisy51cnj20ad0dwdgk.jpg"></p>
@@ -98,6 +104,12 @@
 <p>
 	<small> ============== 1天前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3879140233393731" target="freeweibo-mirror">满屏都是阅兵，天津爆炸竟没消息了，比如氰化钠清除了多少，核心…</a>
+</h2>
+<p>满屏都是阅兵，天津爆炸竟没消息了，比如氰化钠清除了多少，核心区内外土壤、水质的氰化物浓度是多少？阅兵，不过是高级的、精致的洗脑术而已。阅兵步伐精确到0.3秒，居民小区离危化仓库随意到数百米，二者是相关的。</p>
+<p>
+	<small> ============== 1天前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3879136109987072" target="freeweibo-mirror">SPAM  //@嘟嘟美女:中兴圣教，寿与天齐！[膜拜]千秋…</a>
 </h2>
 <p>SPAM  //@嘟嘟美女:中兴圣教，寿与天齐！[膜拜]千秋万载，一统江湖！[膜拜]文成武德，泽被苍生！[膜拜]//@CFYY陈封: //@李俊晓:[吃惊]<br><br>RE: 真相之天安门<br><img src="http://ww4.sinaimg.cn/large/404ba3d2jw1evcnd2vgnzj20m80goabl.jpg"></p>
@@ -125,18 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3879132641752113" target="freeweibo-mirror">//@何怪哉:一次比一次惨烈，一次比一次健忘//@崔小平律师…</a>
 </h2>
 <p>//@何怪哉:一次比一次惨烈，一次比一次健忘//@崔小平律师: 转发微博<br><br>RE: 看到调查组的装备，真是心疼冲进去的消防员和记者们 http://t.cn/RLeRPkd 今天，满屏尽是阅兵预演照，进入庆祝季了，天津爆炸没什么人记得了，受害者又要开始艰难的维权与被维稳了，类似的悲剧又可能在未来某天重演</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3879129293843871" target="freeweibo-mirror">SPAM 网传：已经被拿下的高法副院长奚晓明的公子家，被抄出…</a>
-</h2>
-<p>SPAM 网传：已经被拿下的高法副院长奚晓明的公子家，被抄出20吨现金，如果这是真的，这是多少冤案、枉法多少次的对价？</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3879129206596517" target="freeweibo-mirror">//@李彤律师: 转发微博</a>
-</h2>
-<p>//@李彤律师: 转发微博<br><br>RE: 在这里读懂法西斯以及阅兵<br><img src="http://ww1.sinaimg.cn/large/639695d4jw1evctj1mrw1j20ey6307wh.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
