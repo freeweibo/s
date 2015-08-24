@@ -78,7 +78,7 @@
 </h2>
 <p>【中国股市已经被人为操纵】@刘姝威：这已不是市场行为，而是中国股市被人利用股指期货恶意操纵了。2015年9月3日纪念抗日战争胜利70周年大阅兵，利用股指期货操纵中国股市的人是否妄想在大阅兵前，让中国重演美国1929年股灾的悲剧呢？中国政府应该将这些恶意操纵股市的人绳之以法http://t.cn/RLsVEKO<br><img src="http://ww1.sinaimg.cn/large/65dc17d3jw1evdliffwwmj20go0dkaax.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3879341785947694" target="freeweibo-mirror">股民方队[哈哈]</a>
 </h2>
