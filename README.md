@@ -24,7 +24,7 @@
 </h2>
 <p>SPAM 收了！</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3879319967679410" target="freeweibo-mirror">SPAM #昆明生活#【昆明又见奇葩证明:“证明我儿子是我儿…</a>
 </h2>
