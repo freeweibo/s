@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3879319967679410" target="freeweibo-mirror">SPAM #昆明生活#【昆明又见奇葩证明:“证明我儿子是我儿…</a>
+</h2>
+<p>SPAM #昆明生活#【昆明又见奇葩证明:“证明我儿子是我儿子？”】昆明网友@张张zhang先生 投稿：今天在金碧路建行总行给自己的儿子开个户，幼儿园用的，银行让我证明我儿是我儿子？就因为户口本没我名字，就感觉像是说我儿就不是我儿子了……[汗]<br><img src="http://ww3.sinaimg.cn/large/6a8bd5d1gw1evdisy51cnj20ad0dwdgk.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3879318284929579" target="freeweibo-mirror">不要神化中国政府的经济管理能力 - FT中文网 中国政策制定…</a>
 </h2>
 <p>不要神化中国政府的经济管理能力 - FT中文网 中国政策制定者的致命缺陷在于，他们必须将政治上置于经济理性之上。其合法性和公众支持同它实现快速增长、创造良好就业和提升民众收入的能力密切相关。只要经济像党期望的那样运行，党就会对潜在的危险视而不见，直至局面不可收拾 http://t.cn/RLsUld9<br><img src="http://ww4.sinaimg.cn/large/513a2b80jw1evdinubxxoj20go09eq4e.jpg"></p>
@@ -54,7 +60,7 @@
 </h2>
 <p>正步走18世纪起源于德国普鲁士，希特勒上台后推广到德国军队，还要求集中营的犹太人也走正步，直至走向焚烧炉。二战后德国人把正步走作为纳粹德国的象征而予以法律禁止。俄国人从普鲁士人那里学到了正步，通过苏联传给中国。奥威尔说过，只有在那些平民不敢嘲笑军队的国家里，才可能实行正步走阅兵式。<br><img src="http://ww3.sinaimg.cn/large/e6c45c70gw1evdaba8ezwj20fa09k0uu.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3879233837743368" target="freeweibo-mirror">SPAM [哈哈]→_→ //@闵玉平:→_→[哈哈] //…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3879127255478176" target="freeweibo-mirror">SPAM [哈哈]//@性感玉米:[笑cry]</a>
 </h2>
 <p>SPAM [哈哈]//@性感玉米:[笑cry]</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3879124579507572" target="freeweibo-mirror">今儿个朋友圈里都是阅兵的图，后来大家都说这是显摆自己家房价的…</a>
-</h2>
-<p>今儿个朋友圈里都是阅兵的图，后来大家都说这是显摆自己家房价的，其实你们都没领会精神了，看清楚喽，人家明明白白告诉你了，甭管您家在几环，产权只有70年…[嘻嘻]<br><img src="http://ww1.sinaimg.cn/large/6dff8cb2jw1evcwe9ezaug208s04yaa8.gif"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
