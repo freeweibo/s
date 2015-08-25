@@ -48,7 +48,7 @@
 </h2>
 <p>哈哈哈哈 //@老沉:[偷笑][偷笑][偷笑]<br><br>RE: 已经被韩国媒体、中国公知“谣决”过无数次的朝鲜二号人物崔海龙，这回要来北京参加九三阅兵。http://t.cn/RyvZKOk</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3879707302738597" target="freeweibo-mirror">周末跟一个券商董事长聊，他的观点是，管理层也不是不想，是技不…</a>
 </h2>
@@ -114,7 +114,7 @@
 </h2>
 <p>几千年伟大的文明真是好东西。[哈哈][哈哈]<br><img src="http://ww3.sinaimg.cn/large/006cjnm5jw1evehkk6697j309k0a9my8.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3879621567061238" target="freeweibo-mirror">SPAM 不要妄议中央！</a>
 </h2>
