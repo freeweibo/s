@@ -26,6 +26,12 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3879627988661511" target="freeweibo-mirror">确实如此！//@苏渝:阅兵使中国老百姓实现了中国梦，值得点个…</a>
+</h2>
+<p>确实如此！//@苏渝:阅兵使中国老百姓实现了中国梦，值得点个：[赞]@谭显荣财富人生: 米国会顶住，否则马仔会跑来看阅兵。 //@范剑平:不服请来看阅兵。<br><br>RE: 证监会在A股扔了个炸弹，央行在全球扔了颗核弹，更牛逼的是他俩觉得这事影响不大———然后很快乐的阅兵去了。<br><img src="http://ww2.sinaimg.cn/large/7c1d7ba8gw1eve1zsnqfrj20hs0vk78k.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3879621567061238" target="freeweibo-mirror">SPAM 不要妄议中央！</a>
 </h2>
 <p>SPAM 不要妄议中央！</p>
@@ -54,7 +60,7 @@
 </h2>
 <p>//@段贵发: 钱呢？<br><br>RE: 看央视，央视说陕西某县一所高中，1700多人参加高考，上线1400多人，其中600多人是贫困生，交不起学费。然后，央视贴出了助学热线。我就想问问央视：为啥这么多学生交不起学费？是这个国家没钱吗？你们到处撒钱，学生上不起学就叫老百姓捐款？</p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3879508778418933" target="freeweibo-mirror">SPAM 这是从证监会微博下面的评论截屏，疯了！</a>
 </h2>
@@ -78,7 +84,7 @@
 </h2>
 <p>//@莫志谨: //@爱卿平身免礼吧: //@摩羯老潘A:[good][赞][good]//@手机用户2096664891:转发微博<br><br>RE: 紧急通知：统一思想、统一战线、统一方便面！<br><img src="http://ww1.sinaimg.cn/large/b5e60e71jw1evdzv7txjqj20hs0eyq6w.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3879501354121406" target="freeweibo-mirror">SPAM 确保三个自信，全部体现。</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3879462082567184" target="freeweibo-mirror">股民加入了阅兵队列：他们头戴绿帽，身穿绿色服装，手拿绿色k线…</a>
 </h2>
 <p>股民加入了阅兵队列：他们头戴绿帽，身穿绿色服装，手拿绿色k线棒，面色憔悴，脚步蹒跚,他们为了参检，从海拔5179米高山直接翻滚下来，我们可以看到，他们内心是火热的，侠之大者、为国护盘的决心是前所未有的！首长：同志们辛苦了！股民：为圈钱服务！首长：同志们晒黑了。股民：证监会更黑。<br><img src="http://ww3.sinaimg.cn/large/464c1f95jw1evdz66tqbcj20do0dwwg3.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3879462002807360" target="freeweibo-mirror">SPAM 分享视频：一将成名万骨朽，徐才厚，郭伯雄啊这是你的…</a>
-</h2>
-<p>SPAM 分享视频：一将成名万骨朽，徐才厚，郭伯雄啊这是你的兵 http://t.cn/RLsQOEJ</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
