@@ -78,7 +78,7 @@
 </h2>
 <p>SPAM 敢胆泄密！//@徐昕: //@为公居士://@周泽律师:确保三个自信，全部体现。<br><br>RE: 紧急通知：统一思想、统一战线、统一方便面！<br><img src="http://ww1.sinaimg.cn/large/b5e60e71jw1evdzv7txjqj20hs0eyq6w.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3879506106776399" target="freeweibo-mirror">SPAM //@为公居士://@周泽律师:确保三个自信，全部…</a>
 </h2>
