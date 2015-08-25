@@ -24,7 +24,7 @@
 </h2>
 <p>SPAM  //@纪昀://@谓贤: 若包括政治犯的话，就能得诺贝尔和平奖了。<br><br>RE: 时隔四十年，重启特赦。只是一个不包括政治犯的特赦，无法创新宪法实践，积累德政，彰显执政自信。<br><img src="http://ww2.sinaimg.cn/large/c57c1a49jw1eveulaynrfj208708cjrp.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3879769659425826" target="freeweibo-mirror">奴隶社会，对奴隶主真是好东西。//@大连_阿东://@大连徐…</a>
 </h2>
