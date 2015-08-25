@@ -36,7 +36,7 @@
 </h2>
 <p>SPAM [doge]好好好<br><br>RE: 深夜食堂[馋嘴]<br><img src="http://ww2.sinaimg.cn/large/006cCSaggw1evf9vrh9h0j30mh0u0mz2.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3879879080397416" target="freeweibo-mirror">SPAM 喔噢</a>
 </h2>
@@ -54,7 +54,7 @@
 </h2>
 <p>深夜食堂[馋嘴]<br><img src="http://ww2.sinaimg.cn/large/006cCSaggw1evf9vrh9h0j30mh0u0mz2.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3879863150298351" target="freeweibo-mirror">就9月3日抗战阅兵仪式安排,中央在内部征求各方意见,前任副国…</a>
 </h2>
