@@ -48,7 +48,7 @@
 </h2>
 <p>[最右] //@斗眼脚气:纸逼糊弄屌、全国糊弄党中央、党中央糊弄习近平。</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3879602693129674" target="freeweibo-mirror">这是在掐腰肌嘛！ //@刘毅:看姿势像关公…… //@Lif…</a>
 </h2>
@@ -90,7 +90,7 @@
 </h2>
 <p>//@莫志谨: //@爱卿平身免礼吧: //@摩羯老潘A:[good][赞][good]//@手机用户2096664891:转发微博<br><br>RE: 紧急通知：统一思想、统一战线、统一方便面！<br><img src="http://ww1.sinaimg.cn/large/b5e60e71jw1evdzv7txjqj20hs0eyq6w.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3879501354121406" target="freeweibo-mirror">SPAM 确保三个自信，全部体现。</a>
 </h2>
