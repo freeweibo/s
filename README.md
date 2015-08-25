@@ -36,7 +36,7 @@
 </h2>
 <p>”无法忍受CCTV全天候对阅兵训练细节的无底线追踪，竟让人们已经忘掉了这场阅兵主要目的之一是纪念抗日战争胜利70周年，那些抗日的英雄们呢，难道不值得挖掘他们抗战的英雄故事吗？天天聚焦那些19岁的军人小朋友挥汗如雨的画面，那些女兵的裙子，到底有什么意义！！！【重点看评论】<br><br>RE: 问得好。今天看见报道，说训练了一小时不眨眼，我就醉了。是参加不眨眼比赛么？ 我分享了@博联社马晓霖 的文章 http://t.cn/RLsFAva</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3879724793353053" target="freeweibo-mirror">问得好。今天看见报道，说训练了一小时不眨眼，我就醉了。是参加…</a>
 </h2>
@@ -78,7 +78,7 @@
 </h2>
 <p>SPAM 【黎平述洞】“以巨木埋地作楼，高数丈，歌者夜则缘宿其上”，述洞独柱鼓楼开创了鼓楼建筑形式之先河。述洞独柱鼓楼始建于明崇祯九年（1636年），为纯木结构建筑，七层檐四角攒尖顶，密檐式木结构建筑，#环球精品旅游#http://t.cn/RLsk0es九寨沟旅游纯玩#http://t.cn/R2C06JZ<br><img src="http://ww2.sinaimg.cn/large/a6a67c26jw1eveq2rr0rfj20ia0d7jst.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3879689858684277" target="freeweibo-mirror">SPAM 我蛤必须转</a>
 </h2>
@@ -108,7 +108,7 @@
 </h2>
 <p>确实如此！//@苏渝:阅兵使中国老百姓实现了中国梦，值得点个：[赞]@谭显荣财富人生: 米国会顶住，否则马仔会跑来看阅兵。 //@范剑平:不服请来看阅兵。<br><br>RE: 证监会在A股扔了个炸弹，央行在全球扔了颗核弹，更牛逼的是他俩觉得这事影响不大———然后很快乐的阅兵去了。<br><img src="http://ww2.sinaimg.cn/large/7c1d7ba8gw1eve1zsnqfrj20hs0vk78k.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3879622485645538" target="freeweibo-mirror">几千年伟大的文明真是好东西。[哈哈][哈哈]</a>
 </h2>
