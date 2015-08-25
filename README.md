@@ -48,7 +48,7 @@
 </h2>
 <p>//@段贵发: 钱呢？<br><br>RE: 看央视，央视说陕西某县一所高中，1700多人参加高考，上线1400多人，其中600多人是贫困生，交不起学费。然后，央视贴出了助学热线。我就想问问央视：为啥这么多学生交不起学费？是这个国家没钱吗？你们到处撒钱，学生上不起学就叫老百姓捐款？</p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3879508778418933" target="freeweibo-mirror">SPAM 这是从证监会微博下面的评论截屏，疯了！</a>
 </h2>
@@ -72,7 +72,7 @@
 </h2>
 <p>//@莫志谨: //@爱卿平身免礼吧: //@摩羯老潘A:[good][赞][good]//@手机用户2096664891:转发微博<br><br>RE: 紧急通知：统一思想、统一战线、统一方便面！<br><img src="http://ww1.sinaimg.cn/large/b5e60e71jw1evdzv7txjqj20hs0eyq6w.jpg"></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3879501354121406" target="freeweibo-mirror">SPAM 确保三个自信，全部体现。</a>
 </h2>
@@ -90,13 +90,13 @@
 </h2>
 <p>SPAM //@私家野史: [good] //@暗战T:根据ID落实具体地址和个人信息，便于抓捕。 //@十年砍柴:什么叫“落地”呀？<br><br>RE: 转发十三次的微博，都给你监控到。<br><img src="http://ww4.sinaimg.cn/large/404ba3d2gw1eve06biev3j20np0hsta5.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3879480672095711" target="freeweibo-mirror">SPAM //@律师孟浩然: 落地！ //@俗人海洋_归来:…</a>
 </h2>
 <p>SPAM //@律师孟浩然: 落地！ //@俗人海洋_归来:这东西能就出来，说明还是有几个有良心的人！//@私家野史:[good] //@暗战T:根据ID落实具体地址和个人信息，便于抓捕。 //@十年砍柴:什么叫“落地”呀？<br><br>RE: 转发十三次的微博，都给你监控到。<br><img src="http://ww4.sinaimg.cn/large/404ba3d2gw1eve06biev3j20np0hsta5.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3879478688601958" target="freeweibo-mirror">SPAM [good] //@暗战T:根据ID落实具体地址和…</a>
 </h2>
