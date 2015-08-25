@@ -66,7 +66,7 @@
 </h2>
 <p>就9月3日抗战阅兵仪式安排,中央在内部征求各方意见,前任副国级以上官员都属征求意见的对像.在征求病危的李鹏时,他仍然表示希望与习近平在天安门城楼阅兵亮相.不过,李鹏的意见遭医生的拒绝,医生认为李鹏不适宜外出活动.据称,李鹏目前仍躺在医院病床上,靠输氧和能量合剂维生.<br><img src="http://ww3.sinaimg.cn/large/6e74bb90jw1evf98bqp3lj208d0750t6.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3879856976419642" target="freeweibo-mirror">如果不能震慑美国，就不能震慑日本。//@陶然万柳世界: //…</a>
 </h2>
@@ -96,7 +96,7 @@
 </h2>
 <p>SPAM  //@纪昀://@谓贤: 若包括政治犯的话，就能得诺贝尔和平奖了。<br><br>RE: 时隔四十年，重启特赦。只是一个不包括政治犯的特赦，无法创新宪法实践，积累德政，彰显执政自信。<br><img src="http://ww2.sinaimg.cn/large/c57c1a49jw1eveulaynrfj208708cjrp.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3879800890237077" target="freeweibo-mirror">05年救市是为了救国企，08年救市是为了救官企，15年救市是…</a>
 </h2>
