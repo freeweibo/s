@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3879769659425826" target="freeweibo-mirror">奴隶社会，对奴隶主真是好东西。//@大连_阿东://@大连徐…</a>
+</h2>
+<p>奴隶社会，对奴隶主真是好东西。//@大连_阿东://@大连徐飞://@查良钧<br><br>RE: 几千年伟大的文明真是好东西。[哈哈][哈哈]<br><img src="http://ww3.sinaimg.cn/large/006cjnm5jw1evehkk6697j309k0a9my8.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3879753763102701" target="freeweibo-mirror">SPAM 右右是茶茶咩？是的话么么哒！ //@忆迷悟:没的 …</a>
 </h2>
 <p>SPAM 右右是茶茶咩？是的话么么哒！ //@忆迷悟:没的 别乱说 我在那里呆过 往北非常富有//@又一茶:有，底特律//@忆迷悟: 所以 我觉得在微博上嚷嚷换美元的人 大多数 然并卵，你那点可怜的5万刀 就算偷渡到美国最后基本也是饿死，你真以为美国房子便宜到白菜价？ //@大流6:钱太少，肉翻不了，换了等于白换</p>
@@ -54,7 +60,7 @@
 </h2>
 <p>一幅好牌被一群自以为聪明的人打成这样，几乎没做任何稳定民众信心的事，或说所做的一切都没有起到稳定信心的作用，甚至取了反作用，还一味的掩耳盗铃，这是股市，没信心大家会用脚投票的，这比出国容易，怎么就没人明白，历史会记住这些耻辱的日子。</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3879700621704525" target="freeweibo-mirror">已经被韩国媒体、中国公知“谣决”过无数次的朝鲜二号人物崔海龙…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3879536829742577" target="freeweibo-mirror">在多才多艺的长者面前，某些工农兵废物连给他提鞋都不配</a>
 </h2>
 <p>在多才多艺的长者面前，某些工农兵废物连给他提鞋都不配<br><img src="http://ww3.sinaimg.cn/large/006b1qLXgw1eve7retpuhj30np0vkwgn.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3879521935559852" target="freeweibo-mirror">据说有个法西斯国家要搞个反法西斯阅兵[微笑]//@SY徐风:…</a>
-</h2>
-<p>据说有个法西斯国家要搞个反法西斯阅兵[微笑]//@SY徐风:转发微博<br><br>RE: 【希特勒的大排场，由此走向法西斯】<br><img src="http://ww2.sinaimg.cn/large/6a80bfcdjw1evcwn7qklgj20k00evabd.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
