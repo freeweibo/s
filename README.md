@@ -72,7 +72,7 @@
 </h2>
 <p>SPAM 为个球//@大尸凶的漫画:[笑cry]为球//@琢磨先生: 为球接盘[挖鼻]<br><br>RE: [笑cry]</p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3879696301617246" target="freeweibo-mirror">SPAM 【黎平述洞】“以巨木埋地作楼，高数丈，歌者夜则缘宿…</a>
 </h2>
@@ -132,7 +132,7 @@
 </h2>
 <p>[最右] //@斗眼脚气:纸逼糊弄屌、全国糊弄党中央、党中央糊弄习近平。</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3879602693129674" target="freeweibo-mirror">这是在掐腰肌嘛！ //@刘毅:看姿势像关公…… //@Lif…</a>
 </h2>
