@@ -72,7 +72,7 @@
 </h2>
 <p>据说有个法西斯国家要搞个反法西斯阅兵[微笑]//@SY徐风:转发微博<br><br>RE: 【希特勒的大排场，由此走向法西斯】<br><img src="http://ww2.sinaimg.cn/large/6a80bfcdjw1evcwn7qklgj20k00evabd.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3879518815329736" target="freeweibo-mirror">//@段贵发: 钱呢？</a>
 </h2>
