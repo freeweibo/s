@@ -50,6 +50,12 @@
 <p>
 	<small> ============== 5小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3879799741054561" target="freeweibo-mirror">本日金句：看到过去三十年内唯一一支向中国平民开过枪的军队在犯…</a>
+</h2>
+<p>本日金句：看到过去三十年内唯一一支向中国平民开过枪的军队在犯罪现场阅兵，还有大批中国人觉得心生自豪……这种感觉是很难用语言描述的。</p>
+<p>
+	<small> ============== 5小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3879769659425826" target="freeweibo-mirror">奴隶社会，对奴隶主真是好东西。//@大连_阿东://@大连徐…</a>
 </h2>
 <p>奴隶社会，对奴隶主真是好东西。//@大连_阿东://@大连徐飞://@查良钧<br><br>RE: 几千年伟大的文明真是好东西。[哈哈][哈哈]<br><img src="http://ww3.sinaimg.cn/large/006cjnm5jw1evehkk6697j309k0a9my8.jpg"></p>
@@ -114,7 +120,7 @@
 </h2>
 <p>SPAM 【黎平述洞】“以巨木埋地作楼，高数丈，歌者夜则缘宿其上”，述洞独柱鼓楼开创了鼓楼建筑形式之先河。述洞独柱鼓楼始建于明崇祯九年（1636年），为纯木结构建筑，七层檐四角攒尖顶，密檐式木结构建筑，#环球精品旅游#http://t.cn/RLsk0es九寨沟旅游纯玩#http://t.cn/R2C06JZ<br><img src="http://ww2.sinaimg.cn/large/a6a67c26jw1eveq2rr0rfj20ia0d7jst.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3879689858684277" target="freeweibo-mirror">SPAM 我蛤必须转</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3879662704576305" target="freeweibo-mirror">有人说@雷希颖 道歉了，你们看过那狗屁道歉吗，他将责任完全推…</a>
 </h2>
 <p>有人说@雷希颖 道歉了，你们看过那狗屁道歉吗，他将责任完全推给我，把我塑造成问题启始者，他装出大人不记小人过的样，他将肆意的连续的当众的辱骂说成【用词不当】狡辩回避事实，我要是接受这样的道歉就是对我的再次羞辱！这孙子是在五毛培训班学的这一手春秋写法？成绩不错，难怪受捧，前程大大的。<br><br>RE: 真卑鄙！我所有与雷纠纷的帖子都被屏蔽掉了。</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3879641200530047" target="freeweibo-mirror">SPAM 路还在前行，卸下所有的伪装，人生故事里的大多数结局…</a>
-</h2>
-<p>SPAM 路还在前行，卸下所有的伪装，人生故事里的大多数结局都源于你的选择，没有什么好抱怨的。<br><img src="http://ww1.sinaimg.cn/large/74f90965jw1evejqyk09sj20ho0d8gn0.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
