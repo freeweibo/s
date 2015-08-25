@@ -108,7 +108,7 @@
 </h2>
 <p>SPAM 不要妄议中央！</p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3879618790780491" target="freeweibo-mirror">发表文章 http://t.cn/RLsFAva http:…</a>
 </h2>
