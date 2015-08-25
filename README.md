@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3879883647988684" target="freeweibo-mirror">SPAM [doge]好好好</a>
+</h2>
+<p>SPAM [doge]好好好<br><br>RE: 深夜食堂[馋嘴]<br><img src="http://ww2.sinaimg.cn/large/006cCSaggw1evf9vrh9h0j30mh0u0mz2.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3879879080397416" target="freeweibo-mirror">SPAM 喔噢</a>
 </h2>
 <p>SPAM 喔噢<br><br>RE: 深夜食堂[馋嘴]<br><img src="http://ww2.sinaimg.cn/large/006cCSaggw1evf9vrh9h0j30mh0u0mz2.jpg"></p>
@@ -48,7 +54,7 @@
 </h2>
 <p>如果不能震慑美国，就不能震慑日本。//@陶然万柳世界: //@罗争eedoo:事实。//@哀斯寂寞://@王建国://@品茗云间客: 与其说是震慑日本，不如说是震慑中国老百姓！！！！ //@老黄的微博2014: //@杨胜鹏腾讯: //@不变的糕哥: //@少康006: //@前度神-游: //@语关联2: //@瘦农民伯伯C: //@武昌万岁:<br><br>RE: 本日金句：看到过去三十年内唯一一支向中国平民开过枪的军队在犯罪现场阅兵，还有大批中国人觉得心生自豪……这种感觉是很难用语言描述的。</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3879845140336261" target="freeweibo-mirror">//@夜之沉风://@好兵帅克归来: //@莫志谨: //@…</a>
 </h2>
@@ -102,7 +108,7 @@
 </h2>
 <p>时隔四十年，重启特赦。只是一个不包括政治犯的特赦，无法创新宪法实践，积累德政，彰显执政自信。<br><img src="http://ww2.sinaimg.cn/large/c57c1a49jw1eveulaynrfj208708cjrp.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3879725606570383" target="freeweibo-mirror">”无法忍受CCTV全天候对阅兵训练细节的无底线追踪，竟让人们…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3879705763138159" target="freeweibo-mirror">一幅好牌被一群自以为聪明的人打成这样，几乎没做任何稳定民众信…</a>
 </h2>
 <p>一幅好牌被一群自以为聪明的人打成这样，几乎没做任何稳定民众信心的事，或说所做的一切都没有起到稳定信心的作用，甚至取了反作用，还一味的掩耳盗铃，这是股市，没信心大家会用脚投票的，这比出国容易，怎么就没人明白，历史会记住这些耻辱的日子。</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3879700621704525" target="freeweibo-mirror">已经被韩国媒体、中国公知“谣决”过无数次的朝鲜二号人物崔海龙…</a>
-</h2>
-<p>已经被韩国媒体、中国公知“谣决”过无数次的朝鲜二号人物崔海龙，这回要来北京参加九三阅兵。http://t.cn/RyvZKOk</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
