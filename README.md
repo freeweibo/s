@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3879894444186228" target="freeweibo-mirror">挂着玩，睡觉。//@多摩的狸子: 我就挂个傻逼//@道言_最…</a>
+</h2>
+<p>挂着玩，睡觉。//@多摩的狸子: 我就挂个傻逼//@道言_最后的龙骑士: 其实简单啊，先断绝提倡者的一切耗电可能。如果真有那么多赞同的人一起节能不用一丝一毫的电，说不定连老的发电站都要亏到拆除了。所以先请诸位从自我做起，断绝一切耗电行为吧！ //@铁血悍将汤恩伯:我们学台巴子用爱发电吧<br><br>RE: 天津塘沽大爆炸只是警告，真正的恶魔是核电站。 中国目前有17座核子反应炉在营运，30座在兴建，並计划再建造59座。 德国决定在2022年前关闭所有核电站，而意大利禁止核电站.核能反对者认为，核反应堆的一个主要缺点就是它面临着核事故和恐怖分子袭击的威胁，因大量平民都会受到辐射线的照射。（转）</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3879883647988684" target="freeweibo-mirror">SPAM [doge]好好好</a>
 </h2>
 <p>SPAM [doge]好好好<br><br>RE: 深夜食堂[馋嘴]<br><img src="http://ww2.sinaimg.cn/large/006cCSaggw1evf9vrh9h0j30mh0u0mz2.jpg"></p>
@@ -30,7 +36,7 @@
 </h2>
 <p>SPAM 喔噢<br><br>RE: 深夜食堂[馋嘴]<br><img src="http://ww2.sinaimg.cn/large/006cCSaggw1evf9vrh9h0j30mh0u0mz2.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3879870453201521" target="freeweibo-mirror">//@唐建萍冤上加冤:转发微博</a>
 </h2>
@@ -66,13 +72,13 @@
 </h2>
 <p>SPAM 屌炸天了http://t.cn/RyvCaot</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3879819807069068" target="freeweibo-mirror">//@萝卜日报社:你知道的太多了[拜拜] //@红尘有缺的天…</a>
 </h2>
 <p>//@萝卜日报社:你知道的太多了[拜拜] //@红尘有缺的天空:[doge]//@语关联2:转发微博<br><br>RE: 05年救市是为了救国企，08年救市是为了救官企，15年救市是为了救政府，17年救市是为了救政权。<br><img src="http://ww1.sinaimg.cn/large/0068BVmkgw1evf2310wj9j30sg15e0y8.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3879818401423316" target="freeweibo-mirror">SPAM  //@纪昀://@谓贤: 若包括政治犯的话，就能…</a>
 </h2>
@@ -108,7 +114,7 @@
 </h2>
 <p>时隔四十年，重启特赦。只是一个不包括政治犯的特赦，无法创新宪法实践，积累德政，彰显执政自信。<br><img src="http://ww2.sinaimg.cn/large/c57c1a49jw1eveulaynrfj208708cjrp.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3879725606570383" target="freeweibo-mirror">”无法忍受CCTV全天候对阅兵训练细节的无底线追踪，竟让人们…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3879707302738597" target="freeweibo-mirror">周末跟一个券商董事长聊，他的观点是，管理层也不是不想，是技不…</a>
 </h2>
 <p>周末跟一个券商董事长聊，他的观点是，管理层也不是不想，是技不如人，粗糙。你糙，不跌你跌谁？<br><br>RE: 一幅好牌被一群自以为聪明的人打成这样，几乎没做任何稳定民众信心的事，或说所做的一切都没有起到稳定信心的作用，甚至取了反作用，还一味的掩耳盗铃，这是股市，没信心大家会用脚投票的，这比出国容易，怎么就没人明白，历史会记住这些耻辱的日子。</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3879705763138159" target="freeweibo-mirror">一幅好牌被一群自以为聪明的人打成这样，几乎没做任何稳定民众信…</a>
-</h2>
-<p>一幅好牌被一群自以为聪明的人打成这样，几乎没做任何稳定民众信心的事，或说所做的一切都没有起到稳定信心的作用，甚至取了反作用，还一味的掩耳盗铃，这是股市，没信心大家会用脚投票的，这比出国容易，怎么就没人明白，历史会记住这些耻辱的日子。</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
