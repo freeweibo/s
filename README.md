@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3879818401423316" target="freeweibo-mirror">SPAM  //@纪昀://@谓贤: 若包括政治犯的话，就能…</a>
+</h2>
+<p>SPAM  //@纪昀://@谓贤: 若包括政治犯的话，就能得诺贝尔和平奖了。<br><br>RE: 时隔四十年，重启特赦。只是一个不包括政治犯的特赦，无法创新宪法实践，积累德政，彰显执政自信。<br><img src="http://ww2.sinaimg.cn/large/c57c1a49jw1eveulaynrfj208708cjrp.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3879769659425826" target="freeweibo-mirror">奴隶社会，对奴隶主真是好东西。//@大连_阿东://@大连徐…</a>
 </h2>
 <p>奴隶社会，对奴隶主真是好东西。//@大连_阿东://@大连徐飞://@查良钧<br><br>RE: 几千年伟大的文明真是好东西。[哈哈][哈哈]<br><img src="http://ww3.sinaimg.cn/large/006cjnm5jw1evehkk6697j309k0a9my8.jpg"></p>
@@ -48,7 +54,7 @@
 </h2>
 <p>哈哈哈哈 //@老沉:[偷笑][偷笑][偷笑]<br><br>RE: 已经被韩国媒体、中国公知“谣决”过无数次的朝鲜二号人物崔海龙，这回要来北京参加九三阅兵。http://t.cn/RyvZKOk</p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3879707302738597" target="freeweibo-mirror">周末跟一个券商董事长聊，他的观点是，管理层也不是不想，是技不…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3879616886721783" target="freeweibo-mirror">[最右] //@斗眼脚气:纸逼糊弄屌、全国糊弄党中央、党中央…</a>
 </h2>
 <p>[最右] //@斗眼脚气:纸逼糊弄屌、全国糊弄党中央、党中央糊弄习近平。</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3879602693129674" target="freeweibo-mirror">这是在掐腰肌嘛！ //@刘毅:看姿势像关公…… //@Lif…</a>
-</h2>
-<p>这是在掐腰肌嘛！ //@刘毅:看姿势像关公…… //@LifeTime:能不能先从男女猜起？[白眼] //@文山娃:還有猜是長者的…//@凌云未奇:有什么悬念吗？</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
