@@ -24,7 +24,7 @@
 </h2>
 <p>博主您不认识字吗，对照一下特赦的4个条件啊，你觉得李适合哪条？//@贾贸律师: 链接已经说了，说的很明白，李不符合特赦条件。喷子们还在那里喷</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3879662704576305" target="freeweibo-mirror">有人说@雷希颖 道歉了，你们看过那狗屁道歉吗，他将责任完全推…</a>
 </h2>
@@ -54,7 +54,7 @@
 </h2>
 <p>发表文章 http://t.cn/RLsFAva http://t.cn/RLdfiEf</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3879616886721783" target="freeweibo-mirror">[最右] //@斗眼脚气:纸逼糊弄屌、全国糊弄党中央、党中央…</a>
 </h2>
