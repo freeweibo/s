@@ -60,7 +60,7 @@
 </h2>
 <p>SPAM 我蛤必须转<br><br>RE: 在多才多艺的长者面前，某些工农兵废物连给他提鞋都不配<br><img src="http://ww3.sinaimg.cn/large/006b1qLXgw1eve7retpuhj30np0vkwgn.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3879664583543022" target="freeweibo-mirror">博主您不认识字吗，对照一下特赦的4个条件啊，你觉得李适合哪条…</a>
 </h2>
