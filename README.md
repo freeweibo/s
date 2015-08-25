@@ -54,7 +54,7 @@
 </h2>
 <p>SPAM 不要妄议中央！</p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3879618790780491" target="freeweibo-mirror">发表文章 http://t.cn/RLsFAva http:…</a>
 </h2>
@@ -73,6 +73,12 @@
 <p>这是在掐腰肌嘛！ //@刘毅:看姿势像关公…… //@LifeTime:能不能先从男女猜起？[白眼] //@文山娃:還有猜是長者的…//@凌云未奇:有什么悬念吗？</p>
 <p>
 	<small> ============== 8小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3879536829742577" target="freeweibo-mirror">在多才多艺的长者面前，某些工农兵废物连给他提鞋都不配</a>
+</h2>
+<p>在多才多艺的长者面前，某些工农兵废物连给他提鞋都不配<br><img src="http://ww3.sinaimg.cn/large/006b1qLXgw1eve7retpuhj30np0vkwgn.jpg"></p>
+<p>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3879521935559852" target="freeweibo-mirror">据说有个法西斯国家要搞个反法西斯阅兵[微笑]//@SY徐风:…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3879481242168213" target="freeweibo-mirror">SPAM //@私家野史: [good] //@暗战T:根据…</a>
 </h2>
 <p>SPAM //@私家野史: [good] //@暗战T:根据ID落实具体地址和个人信息，便于抓捕。 //@十年砍柴:什么叫“落地”呀？<br><br>RE: 转发十三次的微博，都给你监控到。<br><img src="http://ww4.sinaimg.cn/large/404ba3d2gw1eve06biev3j20np0hsta5.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3879480672095711" target="freeweibo-mirror">SPAM //@律师孟浩然: 落地！ //@俗人海洋_归来:…</a>
-</h2>
-<p>SPAM //@律师孟浩然: 落地！ //@俗人海洋_归来:这东西能就出来，说明还是有几个有良心的人！//@私家野史:[good] //@暗战T:根据ID落实具体地址和个人信息，便于抓捕。 //@十年砍柴:什么叫“落地”呀？<br><br>RE: 转发十三次的微博，都给你监控到。<br><img src="http://ww4.sinaimg.cn/large/404ba3d2gw1eve06biev3j20np0hsta5.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
