@@ -26,6 +26,12 @@
 <p>
 	<small> ============== 1小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3879725606570383" target="freeweibo-mirror">”无法忍受CCTV全天候对阅兵训练细节的无底线追踪，竟让人们…</a>
+</h2>
+<p>”无法忍受CCTV全天候对阅兵训练细节的无底线追踪，竟让人们已经忘掉了这场阅兵主要目的之一是纪念抗日战争胜利70周年，那些抗日的英雄们呢，难道不值得挖掘他们抗战的英雄故事吗？天天聚焦那些19岁的军人小朋友挥汗如雨的画面，那些女兵的裙子，到底有什么意义！！！【重点看评论】<br><br>RE: 问得好。今天看见报道，说训练了一小时不眨眼，我就醉了。是参加不眨眼比赛么？ 我分享了@博联社马晓霖 的文章 http://t.cn/RLsFAva</p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3879724793353053" target="freeweibo-mirror">问得好。今天看见报道，说训练了一小时不眨眼，我就醉了。是参加…</a>
 </h2>
 <p>问得好。今天看见报道，说训练了一小时不眨眼，我就醉了。是参加不眨眼比赛么？ 我分享了@博联社马晓霖 的文章 http://t.cn/RLsFAva</p>
@@ -60,7 +66,7 @@
 </h2>
 <p>SPAM 为个球//@大尸凶的漫画:[笑cry]为球//@琢磨先生: 为球接盘[挖鼻]<br><br>RE: [笑cry]</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3879696301617246" target="freeweibo-mirror">SPAM 【黎平述洞】“以巨木埋地作楼，高数丈，歌者夜则缘宿…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3879521935559852" target="freeweibo-mirror">据说有个法西斯国家要搞个反法西斯阅兵[微笑]//@SY徐风:…</a>
 </h2>
 <p>据说有个法西斯国家要搞个反法西斯阅兵[微笑]//@SY徐风:转发微博<br><br>RE: 【希特勒的大排场，由此走向法西斯】<br><img src="http://ww2.sinaimg.cn/large/6a80bfcdjw1evcwn7qklgj20k00evabd.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3879518815329736" target="freeweibo-mirror">//@段贵发: 钱呢？</a>
-</h2>
-<p>//@段贵发: 钱呢？<br><br>RE: 看央视，央视说陕西某县一所高中，1700多人参加高考，上线1400多人，其中600多人是贫困生，交不起学费。然后，央视贴出了助学热线。我就想问问央视：为啥这么多学生交不起学费？是这个国家没钱吗？你们到处撒钱，学生上不起学就叫老百姓捐款？</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
