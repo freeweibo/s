@@ -108,7 +108,7 @@
 </h2>
 <p>确实如此！//@苏渝:阅兵使中国老百姓实现了中国梦，值得点个：[赞]@谭显荣财富人生: 米国会顶住，否则马仔会跑来看阅兵。 //@范剑平:不服请来看阅兵。<br><br>RE: 证监会在A股扔了个炸弹，央行在全球扔了颗核弹，更牛逼的是他俩觉得这事影响不大———然后很快乐的阅兵去了。<br><img src="http://ww2.sinaimg.cn/large/7c1d7ba8gw1eve1zsnqfrj20hs0vk78k.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3879622485645538" target="freeweibo-mirror">几千年伟大的文明真是好东西。[哈哈][哈哈]</a>
 </h2>
