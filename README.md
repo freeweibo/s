@@ -26,6 +26,12 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3879707302738597" target="freeweibo-mirror">周末跟一个券商董事长聊，他的观点是，管理层也不是不想，是技不…</a>
+</h2>
+<p>周末跟一个券商董事长聊，他的观点是，管理层也不是不想，是技不如人，粗糙。你糙，不跌你跌谁？<br><br>RE: 一幅好牌被一群自以为聪明的人打成这样，几乎没做任何稳定民众信心的事，或说所做的一切都没有起到稳定信心的作用，甚至取了反作用，还一味的掩耳盗铃，这是股市，没信心大家会用脚投票的，这比出国容易，怎么就没人明白，历史会记住这些耻辱的日子。</p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3879696301617246" target="freeweibo-mirror">SPAM 【黎平述洞】“以巨木埋地作楼，高数丈，歌者夜则缘宿…</a>
 </h2>
 <p>SPAM 【黎平述洞】“以巨木埋地作楼，高数丈，歌者夜则缘宿其上”，述洞独柱鼓楼开创了鼓楼建筑形式之先河。述洞独柱鼓楼始建于明崇祯九年（1636年），为纯木结构建筑，七层檐四角攒尖顶，密檐式木结构建筑，#环球精品旅游#http://t.cn/RLsk0es九寨沟旅游纯玩#http://t.cn/R2C06JZ<br><img src="http://ww2.sinaimg.cn/large/a6a67c26jw1eveq2rr0rfj20ia0d7jst.jpg"></p>
@@ -78,7 +84,7 @@
 </h2>
 <p>[最右] //@斗眼脚气:纸逼糊弄屌、全国糊弄党中央、党中央糊弄习近平。</p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3879602693129674" target="freeweibo-mirror">这是在掐腰肌嘛！ //@刘毅:看姿势像关公…… //@Lif…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3879501354121406" target="freeweibo-mirror">SPAM 确保三个自信，全部体现。</a>
 </h2>
 <p>SPAM 确保三个自信，全部体现。<br><br>RE: 紧急通知：统一思想、统一战线、统一方便面！<br><img src="http://ww1.sinaimg.cn/large/b5e60e71jw1evdzv7txjqj20hs0eyq6w.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3879497021721920" target="freeweibo-mirror">钱呢？</a>
-</h2>
-<p>钱呢？<br><br>RE: 看央视，央视说陕西某县一所高中，1700多人参加高考，上线1400多人，其中600多人是贫困生，交不起学费。然后，央视贴出了助学热线。我就想问问央视：为啥这么多学生交不起学费？是这个国家没钱吗？你们到处撒钱，学生上不起学就叫老百姓捐款？</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
