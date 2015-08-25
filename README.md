@@ -48,7 +48,7 @@
 </h2>
 <p>05年救市是为了救国企，08年救市是为了救官企，15年救市是为了救政府，17年救市是为了救政权。<br><img src="http://ww1.sinaimg.cn/large/0068BVmkgw1evf2310wj9j30sg15e0y8.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3879799741054561" target="freeweibo-mirror">本日金句：看到过去三十年内唯一一支向中国平民开过枪的军队在犯…</a>
 </h2>
@@ -60,7 +60,7 @@
 </h2>
 <p>奴隶社会，对奴隶主真是好东西。//@大连_阿东://@大连徐飞://@查良钧<br><br>RE: 几千年伟大的文明真是好东西。[哈哈][哈哈]<br><img src="http://ww3.sinaimg.cn/large/006cjnm5jw1evehkk6697j309k0a9my8.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3879753763102701" target="freeweibo-mirror">SPAM 右右是茶茶咩？是的话么么哒！ //@忆迷悟:没的 …</a>
 </h2>
@@ -84,7 +84,7 @@
 </h2>
 <p>问得好。今天看见报道，说训练了一小时不眨眼，我就醉了。是参加不眨眼比赛么？ 我分享了@博联社马晓霖 的文章 http://t.cn/RLsFAva</p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3879713195985051" target="freeweibo-mirror">哈哈哈哈 //@老沉:[偷笑][偷笑][偷笑]</a>
 </h2>
