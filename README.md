@@ -72,7 +72,7 @@
 </h2>
 <p>[最右] //@斗眼脚气:纸逼糊弄屌、全国糊弄党中央、党中央糊弄习近平。</p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3879602693129674" target="freeweibo-mirror">这是在掐腰肌嘛！ //@刘毅:看姿势像关公…… //@Lif…</a>
 </h2>
