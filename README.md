@@ -42,7 +42,7 @@
 </h2>
 <p>据说有个法西斯国家要搞个反法西斯阅兵[微笑]//@SY徐风:转发微博<br><br>RE: 【希特勒的大排场，由此走向法西斯】<br><img src="http://ww2.sinaimg.cn/large/6a80bfcdjw1evcwn7qklgj20k00evabd.jpg"></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3879518815329736" target="freeweibo-mirror">//@段贵发: 钱呢？</a>
 </h2>
@@ -60,7 +60,7 @@
 </h2>
 <p>SPAM 敢胆泄密！//@徐昕: //@为公居士://@周泽律师:确保三个自信，全部体现。<br><br>RE: 紧急通知：统一思想、统一战线、统一方便面！<br><img src="http://ww1.sinaimg.cn/large/b5e60e71jw1evdzv7txjqj20hs0eyq6w.jpg"></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3879506106776399" target="freeweibo-mirror">SPAM //@为公居士://@周泽律师:确保三个自信，全部…</a>
 </h2>
