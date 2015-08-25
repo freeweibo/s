@@ -110,11 +110,17 @@
 <p>
 	<small> ============== 11小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3879622485645538" target="freeweibo-mirror">几千年伟大的文明真是好东西。[哈哈][哈哈]</a>
+</h2>
+<p>几千年伟大的文明真是好东西。[哈哈][哈哈]<br><img src="http://ww3.sinaimg.cn/large/006cjnm5jw1evehkk6697j309k0a9my8.jpg"></p>
+<p>
+	<small> ============== 11小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3879621567061238" target="freeweibo-mirror">SPAM 不要妄议中央！</a>
 </h2>
 <p>SPAM 不要妄议中央！</p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3879618790780491" target="freeweibo-mirror">发表文章 http://t.cn/RLsFAva http:…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3879602693129674" target="freeweibo-mirror">这是在掐腰肌嘛！ //@刘毅:看姿势像关公…… //@Lif…</a>
 </h2>
 <p>这是在掐腰肌嘛！ //@刘毅:看姿势像关公…… //@LifeTime:能不能先从男女猜起？[白眼] //@文山娃:還有猜是長者的…//@凌云未奇:有什么悬念吗？</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3879536829742577" target="freeweibo-mirror">在多才多艺的长者面前，某些工农兵废物连给他提鞋都不配</a>
-</h2>
-<p>在多才多艺的长者面前，某些工农兵废物连给他提鞋都不配<br><img src="http://ww3.sinaimg.cn/large/006b1qLXgw1eve7retpuhj30np0vkwgn.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
