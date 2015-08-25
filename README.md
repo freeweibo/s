@@ -126,7 +126,7 @@
 </h2>
 <p>发表文章 http://t.cn/RLsFAva http://t.cn/RLdfiEf</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3879616886721783" target="freeweibo-mirror">[最右] //@斗眼脚气:纸逼糊弄屌、全国糊弄党中央、党中央…</a>
 </h2>
