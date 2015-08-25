@@ -26,6 +26,12 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3879863150298351" target="freeweibo-mirror">就9月3日抗战阅兵仪式安排,中央在内部征求各方意见,前任副国…</a>
+</h2>
+<p>就9月3日抗战阅兵仪式安排,中央在内部征求各方意见,前任副国级以上官员都属征求意见的对像.在征求病危的李鹏时,他仍然表示希望与习近平在天安门城楼阅兵亮相.不过,李鹏的意见遭医生的拒绝,医生认为李鹏不适宜外出活动.据称,李鹏目前仍躺在医院病床上,靠输氧和能量合剂维生.<br><img src="http://ww3.sinaimg.cn/large/6e74bb90jw1evf98bqp3lj208d0750t6.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3879856976419642" target="freeweibo-mirror">如果不能震慑美国，就不能震慑日本。//@陶然万柳世界: //…</a>
 </h2>
 <p>如果不能震慑美国，就不能震慑日本。//@陶然万柳世界: //@罗争eedoo:事实。//@哀斯寂寞://@王建国://@品茗云间客: 与其说是震慑日本，不如说是震慑中国老百姓！！！！ //@老黄的微博2014: //@杨胜鹏腾讯: //@不变的糕哥: //@少康006: //@前度神-游: //@语关联2: //@瘦农民伯伯C: //@武昌万岁:<br><br>RE: 本日金句：看到过去三十年内唯一一支向中国平民开过枪的军队在犯罪现场阅兵，还有大批中国人觉得心生自豪……这种感觉是很难用语言描述的。</p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3879696301617246" target="freeweibo-mirror">SPAM 【黎平述洞】“以巨木埋地作楼，高数丈，歌者夜则缘宿…</a>
 </h2>
 <p>SPAM 【黎平述洞】“以巨木埋地作楼，高数丈，歌者夜则缘宿其上”，述洞独柱鼓楼开创了鼓楼建筑形式之先河。述洞独柱鼓楼始建于明崇祯九年（1636年），为纯木结构建筑，七层檐四角攒尖顶，密檐式木结构建筑，#环球精品旅游#http://t.cn/RLsk0es九寨沟旅游纯玩#http://t.cn/R2C06JZ<br><img src="http://ww2.sinaimg.cn/large/a6a67c26jw1eveq2rr0rfj20ia0d7jst.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3879689858684277" target="freeweibo-mirror">SPAM 我蛤必须转</a>
-</h2>
-<p>SPAM 我蛤必须转<br><br>RE: 在多才多艺的长者面前，某些工农兵废物连给他提鞋都不配<br><img src="http://ww3.sinaimg.cn/large/006b1qLXgw1eve7retpuhj30np0vkwgn.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
