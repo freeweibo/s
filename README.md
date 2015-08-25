@@ -42,7 +42,7 @@
 </h2>
 <p>SPAM 路还在前行，卸下所有的伪装，人生故事里的大多数结局都源于你的选择，没有什么好抱怨的。<br><img src="http://ww1.sinaimg.cn/large/74f90965jw1evejqyk09sj20ho0d8gn0.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3879627988661511" target="freeweibo-mirror">确实如此！//@苏渝:阅兵使中国老百姓实现了中国梦，值得点个…</a>
 </h2>
