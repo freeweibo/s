@@ -54,7 +54,7 @@
 </h2>
 <p>SPAM 【黎平述洞】“以巨木埋地作楼，高数丈，歌者夜则缘宿其上”，述洞独柱鼓楼开创了鼓楼建筑形式之先河。述洞独柱鼓楼始建于明崇祯九年（1636年），为纯木结构建筑，七层檐四角攒尖顶，密檐式木结构建筑，#环球精品旅游#http://t.cn/RLsk0es九寨沟旅游纯玩#http://t.cn/R2C06JZ<br><img src="http://ww2.sinaimg.cn/large/a6a67c26jw1eveq2rr0rfj20ia0d7jst.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3879689858684277" target="freeweibo-mirror">SPAM 我蛤必须转</a>
 </h2>
