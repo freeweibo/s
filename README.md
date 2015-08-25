@@ -78,7 +78,7 @@
 </h2>
 <p>//@夜之沉风://@好兵帅克归来: //@莫志谨: //@猫胡子003://@王双增的博客: //@朱自尊肖像漫画://@jianglOl: //@杜君立://@兔子老愚: //@不变的糕哥: //@少康006: //@前度神-游: //@语关联2://@瘦农民伯伯C://@武昌万岁:转发微博<br><br>RE: 本日金句：看到过去三十年内唯一一支向中国平民开过枪的军队在犯罪现场阅兵，还有大批中国人觉得心生自豪……这种感觉是很难用语言描述的。</p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3879833752427618" target="freeweibo-mirror">SPAM 屌炸天了http://t.cn/RyvCaot</a>
 </h2>
@@ -102,7 +102,7 @@
 </h2>
 <p>05年救市是为了救国企，08年救市是为了救官企，15年救市是为了救政府，17年救市是为了救政权。<br><img src="http://ww1.sinaimg.cn/large/0068BVmkgw1evf2310wj9j30sg15e0y8.jpg"></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3879799741054561" target="freeweibo-mirror">本日金句：看到过去三十年内唯一一支向中国平民开过枪的军队在犯…</a>
 </h2>
@@ -114,7 +114,7 @@
 </h2>
 <p>奴隶社会，对奴隶主真是好东西。//@大连_阿东://@大连徐飞://@查良钧<br><br>RE: 几千年伟大的文明真是好东西。[哈哈][哈哈]<br><img src="http://ww3.sinaimg.cn/large/006cjnm5jw1evehkk6697j309k0a9my8.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3879753763102701" target="freeweibo-mirror">SPAM 右右是茶茶咩？是的话么么哒！ //@忆迷悟:没的 …</a>
 </h2>
