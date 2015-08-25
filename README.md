@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3879641200530047" target="freeweibo-mirror">SPAM 路还在前行，卸下所有的伪装，人生故事里的大多数结局…</a>
+</h2>
+<p>SPAM 路还在前行，卸下所有的伪装，人生故事里的大多数结局都源于你的选择，没有什么好抱怨的。<br><img src="http://ww1.sinaimg.cn/large/74f90965jw1evejqyk09sj20ho0d8gn0.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3879621567061238" target="freeweibo-mirror">SPAM 不要妄议中央！</a>
 </h2>
 <p>SPAM 不要妄议中央！</p>
@@ -30,7 +36,7 @@
 </h2>
 <p>[最右] //@斗眼脚气:纸逼糊弄屌、全国糊弄党中央、党中央糊弄习近平。</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3879602693129674" target="freeweibo-mirror">这是在掐腰肌嘛！ //@刘毅:看姿势像关公…… //@Lif…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3879462002807360" target="freeweibo-mirror">SPAM 分享视频：一将成名万骨朽，徐才厚，郭伯雄啊这是你的…</a>
 </h2>
 <p>SPAM 分享视频：一将成名万骨朽，徐才厚，郭伯雄啊这是你的兵 http://t.cn/RLsQOEJ</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3879459088100621" target="freeweibo-mirror">@封神祭十叔:中共四处撒钱，民主国家为了利益，纵容天朝为祸。…</a>
-</h2>
-<p>@封神祭十叔:中共四处撒钱，民主国家为了利益，纵容天朝为祸。中共宁可天下大乱，绝不放弃独裁，如今中共带着天朝一起走向经济政治全面崩盘。世界经济一体化的今天，天朝的崩溃对于世界注定是巨大灾难。无论是体制维护者还是民主国家绥靖，还是袖手旁观者，这就是你们纵容中共应有的报应！一切都是天意</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
