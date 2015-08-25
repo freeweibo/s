@@ -24,7 +24,7 @@
 </h2>
 <p>挂着玩，睡觉。//@多摩的狸子: 我就挂个傻逼//@道言_最后的龙骑士: 其实简单啊，先断绝提倡者的一切耗电可能。如果真有那么多赞同的人一起节能不用一丝一毫的电，说不定连老的发电站都要亏到拆除了。所以先请诸位从自我做起，断绝一切耗电行为吧！ //@铁血悍将汤恩伯:我们学台巴子用爱发电吧<br><br>RE: 天津塘沽大爆炸只是警告，真正的恶魔是核电站。 中国目前有17座核子反应炉在营运，30座在兴建，並计划再建造59座。 德国决定在2022年前关闭所有核电站，而意大利禁止核电站.核能反对者认为，核反应堆的一个主要缺点就是它面临着核事故和恐怖分子袭击的威胁，因大量平民都会受到辐射线的照射。（转）</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3879885623734514" target="freeweibo-mirror">那么多人口，能源问题只能靠多建核电站了。要是德国也有那么多人…</a>
 </h2>
@@ -48,7 +48,7 @@
 </h2>
 <p>SPAM 喔噢<br><br>RE: 深夜食堂[馋嘴]<br><img src="http://ww2.sinaimg.cn/large/006cCSaggw1evf9vrh9h0j30mh0u0mz2.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3879870453201521" target="freeweibo-mirror">//@唐建萍冤上加冤:转发微博</a>
 </h2>
@@ -84,13 +84,13 @@
 </h2>
 <p>SPAM 屌炸天了http://t.cn/RyvCaot</p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3879819807069068" target="freeweibo-mirror">//@萝卜日报社:你知道的太多了[拜拜] //@红尘有缺的天…</a>
 </h2>
 <p>//@萝卜日报社:你知道的太多了[拜拜] //@红尘有缺的天空:[doge]//@语关联2:转发微博<br><br>RE: 05年救市是为了救国企，08年救市是为了救官企，15年救市是为了救政府，17年救市是为了救政权。<br><img src="http://ww1.sinaimg.cn/large/0068BVmkgw1evf2310wj9j30sg15e0y8.jpg"></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3879818401423316" target="freeweibo-mirror">SPAM  //@纪昀://@谓贤: 若包括政治犯的话，就能…</a>
 </h2>
