@@ -108,7 +108,7 @@
 </h2>
 <p>问得好。今天看见报道，说训练了一小时不眨眼，我就醉了。是参加不眨眼比赛么？ 我分享了@博联社马晓霖 的文章 http://t.cn/RLsFAva</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3879713195985051" target="freeweibo-mirror">哈哈哈哈 //@老沉:[偷笑][偷笑][偷笑]</a>
 </h2>
