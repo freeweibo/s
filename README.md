@@ -38,6 +38,12 @@
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3879883429925496" target="freeweibo-mirror">天津塘沽大爆炸只是警告，真正的恶魔是核电站。 中国目前有17…</a>
+</h2>
+<p>天津塘沽大爆炸只是警告，真正的恶魔是核电站。 中国目前有17座核子反应炉在营运，30座在兴建，並计划再建造59座。 德国决定在2022年前关闭所有核电站，而意大利禁止核电站.核能反对者认为，核反应堆的一个主要缺点就是它面临着核事故和恐怖分子袭击的威胁，因大量平民都会受到辐射线的照射。（转）</p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3879879080397416" target="freeweibo-mirror">SPAM 喔噢</a>
 </h2>
 <p>SPAM 喔噢<br><br>RE: 深夜食堂[馋嘴]<br><img src="http://ww2.sinaimg.cn/large/006cCSaggw1evf9vrh9h0j30mh0u0mz2.jpg"></p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3879724793353053" target="freeweibo-mirror">问得好。今天看见报道，说训练了一小时不眨眼，我就醉了。是参加…</a>
 </h2>
 <p>问得好。今天看见报道，说训练了一小时不眨眼，我就醉了。是参加不眨眼比赛么？ 我分享了@博联社马晓霖 的文章 http://t.cn/RLsFAva</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3879713195985051" target="freeweibo-mirror">哈哈哈哈 //@老沉:[偷笑][偷笑][偷笑]</a>
-</h2>
-<p>哈哈哈哈 //@老沉:[偷笑][偷笑][偷笑]<br><br>RE: 已经被韩国媒体、中国公知“谣决”过无数次的朝鲜二号人物崔海龙，这回要来北京参加九三阅兵。http://t.cn/RyvZKOk</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
