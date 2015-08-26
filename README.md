@@ -26,11 +26,17 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3880186573495448" target="freeweibo-mirror">//@福州新人: 就这样了还敢吹嘘伟光正。 //@微言木子:…</a>
+</h2>
+<p>//@福州新人: 就这样了还敢吹嘘伟光正。 //@微言木子://@天下为公8008://@开心的雪-: 同问。</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3880166705343630" target="freeweibo-mirror">SPAM 既会讲英语又会说俄语的长者，素质还是不同的。 //…</a>
 </h2>
 <p>SPAM 既会讲英语又会说俄语的长者，素质还是不同的。 //@盘索:这论调是想说出砸盘的真像吗？[馋嘴]//@morningtiger:本来没股市还是能打65分的，现在直接38了<br><br>RE: 膜蛤，其实是因为对现状失望。</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3880165622584572" target="freeweibo-mirror">SPAM 这论调是想说出砸盘的真像吗？[馋嘴]//@morn…</a>
 </h2>
@@ -41,6 +47,12 @@
 	<a href="https://freeweibo.com/weibo/3880159931006537" target="freeweibo-mirror">SPAM 这个还不算法西斯暴行？//@绍兴师爷在北京: 如此…</a>
 </h2>
 <p>SPAM 这个还不算法西斯暴行？//@绍兴师爷在北京: 如此灭绝人性、惨绝人寰的人类史上灾难，近五十年来，不仅没有得到彻底的清算，相反，还在不择手段设立禁区，阻止还原真相。 //@开心的雪-:毛骨悚然[黑线]</p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3880158961960454" target="freeweibo-mirror">【谁能治出这样的国来？】满地贪官，无官不贪；大官裸身，小官裸…</a>
+</h2>
+<p>【谁能治出这样的国来？】满地贪官，无官不贪；大官裸身，小官裸体；官不畏道，民不畏法；政者无信，商者无德；学而无教，劳而无获；见人坑人，见爹坑爹；女人卖色，男人卖德；上无蓝天，下无绿水，上上下下，龌龌龊龊……这样的国家是人给治出来的吗？</p>
 <p>
 	<small> ============== 4小时前</small>
 </p><h2>
@@ -127,18 +139,6 @@
 <p>SPAM 三炮方阵？ //@萝卜日报社:炮兵部队[嘻嘻]你懂得<br><br>RE: “莞式月饼”你懂得！<br><img src="http://ww2.sinaimg.cn/large/005SuA62gw1evfqybsm0nj30gc0a675x.jpg"></p>
 <p>
 	<small> ============== 8小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3880089009556435" target="freeweibo-mirror">SPAM 蛤蛤蛤//@看这片云:续一秒//@清瘦不如:服，[…</a>
-</h2>
-<p>SPAM 蛤蛤蛤//@看这片云:续一秒//@清瘦不如:服，[笑cry][doge]<br><br>RE: 吾蛤#漂亮得不像实力派#<br><img src="http://ww1.sinaimg.cn/large/ae384279jw1evfu3biy7cj20do0mlgqi.jpg"></p>
-<p>
-	<small> ============== 9小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3880084941448474" target="freeweibo-mirror">SPAM 大屏幕。</a>
-</h2>
-<p>SPAM 大屏幕。<br><img src="http://ww3.sinaimg.cn/large/488d2478jw1evfypdoqzhj20fh0a0q3g.jpg"></p>
-<p>
-	<small> ============== 9小时前</small>
 </p>
 <table>
     <tr>
