@@ -44,6 +44,12 @@
 <p>
 	<small> ============== 4小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3880133566130215" target="freeweibo-mirror">膜蛤，其实是因为对现状失望。</a>
+</h2>
+<p>膜蛤，其实是因为对现状失望。</p>
+<p>
+	<small> ============== 5小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3880111570819565" target="freeweibo-mirror">还是换个政府吧//@君众咨询邓学君: 经济稀烂，跟老大没关。…</a>
 </h2>
 <p>还是换个政府吧//@君众咨询邓学君: 经济稀烂，跟老大没关。 //@杨先定:这一届确实不懂经济！组阁时，班子都没配好！<br><br>RE: 【救市受挫 中国总理面临困境】A股再度暴跌并引发全球市场动荡，让中国救市计划的设计者陷入不妙的处境。外界认为北京方面对股灾及经济放缓应对不当，他是否会为此担责？http://t.cn/RyPzCky<br><img src="http://ww4.sinaimg.cn/large/6538fd8cgw1evfzqqf182j20go09et9b.jpg"></p>
@@ -72,7 +78,7 @@
 </h2>
 <p>http://t.cn/RyPwbhB 滚他妈的这本傻逼书要一百三四十块啊！！！@真主钦点仁波切</p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3880102754542643" target="freeweibo-mirror">【香港人的历史是非感】香港TVB昨晚的抗战特辑，用五星红旗代…</a>
 </h2>
@@ -114,7 +120,7 @@
 </h2>
 <p>SPAM 蛤蛤蛤//@看这片云:续一秒//@清瘦不如:服，[笑cry][doge]<br><br>RE: 吾蛤#漂亮得不像实力派#<br><img src="http://ww1.sinaimg.cn/large/ae384279jw1evfu3biy7cj20do0mlgqi.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3880084941448474" target="freeweibo-mirror">SPAM 大屏幕。</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3880072555362372" target="freeweibo-mirror">//@诗人沙光:转。//@不白的淘宝:转。//@东岳晚晴:转…</a>
 </h2>
 <p>//@诗人沙光:转。//@不白的淘宝:转。//@东岳晚晴:转。//@假装是神枪手:转。//@励志思维:转。</p>
-<p>
-	<small> ============== 9小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3880069758266806" target="freeweibo-mirror">//@何葆国://@宋海聚: //@涛涛微文:文革是史上最黑…</a>
-</h2>
-<p>//@何葆国://@宋海聚: //@涛涛微文:文革是史上最黑暗的年代，没有之一！</p>
 <p>
 	<small> ============== 9小时前</small>
 </p>
