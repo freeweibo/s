@@ -42,7 +42,7 @@
 </h2>
 <p>SPAM 笑疯了，评价居然这么高//@菁瓜: 哈哈哈哈哈//@真主钦点仁波切:哈哈哈哈哈太low b了题目居然是拼音……我还想领略一下高级的翻译呢……<br><br>RE: http://t.cn/RyPwbhB 滚他妈的这本傻逼书要一百三四十块啊！！！@真主钦点仁波切</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3880103786809812" target="freeweibo-mirror">http://t.cn/RyPwbhB 滚他妈的这本傻逼书要…</a>
 </h2>
