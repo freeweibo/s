@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3880245364957275" target="freeweibo-mirror">总理阁下圣明！可是，活活地将大米从三毛钱一斤，生生鼓捣到三块…</a>
+</h2>
+<p>总理阁下圣明！可是，活活地将大米从三毛钱一斤，生生鼓捣到三块钱一斤，需要多少届总理的共同努力呀！</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3880230517029274" target="freeweibo-mirror">[赞]//@如此而已也: [威武][赞]</a>
 </h2>
 <p>[赞]//@如此而已也: [威武][赞]<br><br>RE: 当全国弥漫着雾霾时，森林重庆却独有一片清新；当天津爆炸时，想起了书记的那句“带血的GDP,白给也不要”；当全国房价高企、鬼城遍地、实业凋敝时，重庆却房价平稳、产业兴盛；当今社会矛盾越来越尖锐，我们更加怀念书记执政时的重庆，三年无一人上访……只有深刻理解人民的人，才能拥有超前的眼光！<br><img src="http://ww3.sinaimg.cn/large/006bVicDjw1evekz7rqn8j30dw099gm5.jpg"></p>
@@ -60,7 +66,7 @@
 </h2>
 <p>SPAM 既会讲英语又会说俄语的长者，素质还是不同的。 //@盘索:这论调是想说出砸盘的真像吗？[馋嘴]//@morningtiger:本来没股市还是能打65分的，现在直接38了<br><br>RE: 膜蛤，其实是因为对现状失望。</p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3880165622584572" target="freeweibo-mirror">SPAM 这论调是想说出砸盘的真像吗？[馋嘴]//@morn…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3880105174871908" target="freeweibo-mirror">SPAM 笑疯了，评价居然这么高//@菁瓜: 哈哈哈哈哈//…</a>
 </h2>
 <p>SPAM 笑疯了，评价居然这么高//@菁瓜: 哈哈哈哈哈//@真主钦点仁波切:哈哈哈哈哈太low b了题目居然是拼音……我还想领略一下高级的翻译呢……<br><br>RE: http://t.cn/RyPwbhB 滚他妈的这本傻逼书要一百三四十块啊！！！@真主钦点仁波切</p>
-<p>
-	<small> ============== 11小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3880103786809812" target="freeweibo-mirror">http://t.cn/RyPwbhB 滚他妈的这本傻逼书要…</a>
-</h2>
-<p>http://t.cn/RyPwbhB 滚他妈的这本傻逼书要一百三四十块啊！！！@真主钦点仁波切</p>
 <p>
 	<small> ============== 11小时前</small>
 </p>
