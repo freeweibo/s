@@ -42,13 +42,13 @@
 </h2>
 <p>还是换个政府吧//@君众咨询邓学君: 经济稀烂，跟老大没关。 //@杨先定:这一届确实不懂经济！组阁时，班子都没配好！<br><br>RE: 【救市受挫 中国总理面临困境】A股再度暴跌并引发全球市场动荡，让中国救市计划的设计者陷入不妙的处境。外界认为北京方面对股灾及经济放缓应对不当，他是否会为此担责？http://t.cn/RyPzCky<br><img src="http://ww4.sinaimg.cn/large/6538fd8cgw1evfzqqf182j20go09et9b.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3880110861793303" target="freeweibo-mirror">SPAM 太扯淡了。当年我10元买过一本，但只能用来擦腚，根…</a>
 </h2>
 <p>SPAM 太扯淡了。当年我10元买过一本，但只能用来擦腚，根本没法看。//@战争史研究WHS: ☸ 梵语 धर्मचक्रप्रवर्तन Dharmacakra Pravartan ☸ 巴利语धम्मचक्कप्पवत्तन Dhammacakkappavattana //@顾惜之: 评价居然这么高 //@菁瓜: 哈哈哈哈哈<br><br>RE: http://t.cn/RyPwbhB 滚他妈的这本傻逼书要一百三四十块啊！！！@真主钦点仁波切</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3880107493678892" target="freeweibo-mirror">首都是北京人民的，也是全国人民的，但归根结底，是志愿者，尤其…</a>
 </h2>
