@@ -90,7 +90,7 @@
 </h2>
 <p>SPAM 下週起，翻牆更難啦[围观] #记者那点事#<br><img src="http://ww2.sinaimg.cn/large/5938d248jw1evfuw2u5vej20dr0hs0ua.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3880049973595978" target="freeweibo-mirror">//@公平正义立国之本://@Betterline牧童杏花酒…</a>
 </h2>
@@ -120,7 +120,7 @@
 </h2>
 <p>SPAM 不得围观？不得拍摄? 军令如山，我保证：我连电视也不看，让您放心。//@梅春来律师: 不得围观阅兵、不得拍摄阅兵？原来阅兵与我们无关，那些打了鸡血瞎激动的人民该怎么活啊！<br><br>RE: 呵呵<br><img src="http://ww3.sinaimg.cn/large/538aff2djw1evfcw7il0hj20go0m8mzg.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3880018201641624" target="freeweibo-mirror">“莞式月饼”你懂得！</a>
 </h2>
