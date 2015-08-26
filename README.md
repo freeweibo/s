@@ -36,7 +36,7 @@
 </h2>
 <p>他是“特色”的旗帜，绝非社会主义的旗帜！<br><br>RE: ★【纪念邓小平只是一种政治的需要】邓小平死后，其实并没有人怀念他，民间对他充满着仇恨，尤其遭到广大劳动人民的唾弃，而只那些怀有不同政治目的政客们惺惺作态，故作娇嗔。国家怀念邓小平只是一种政治的需要，当他这杆旗没有了利用价值后，自然就成了被社会遗弃的垃圾，永远消失在历史的长河中。<br><img src="http://ww1.sinaimg.cn/large/9fa72927jw1evgcfbgfjsj207808n74o.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3880204357762584" target="freeweibo-mirror">★【纪念邓小平只是一种政治的需要】邓小平死后，其实并没有人怀…</a>
 </h2>
@@ -126,7 +126,7 @@
 </h2>
 <p>首都是北京人民的，也是全国人民的，但归根结底，是志愿者，尤其是大妈们的。<br><img src="http://ww2.sinaimg.cn/large/61d634bajw1evg1arp661j20ku112jyu.jpg"></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3880105174871908" target="freeweibo-mirror">SPAM 笑疯了，评价居然这么高//@菁瓜: 哈哈哈哈哈//…</a>
 </h2>
