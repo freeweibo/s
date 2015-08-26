@@ -128,15 +128,15 @@
 <p>
 	<small> ============== 10小时前</small>
 </p><h2>
-	<a href="https://freeweibo.com/weibo/3879870453201521" target="freeweibo-mirror">//@唐建萍冤上加冤:转发微博</a>
+	<a href="https://freeweibo.com/weibo/3879872725853925" target="freeweibo-mirror">参加中国阅兵的南太平洋国家瓦努阿图，1982年独立，人口20…</a>
 </h2>
-<p>//@唐建萍冤上加冤:转发微博</p>
+<p>参加中国阅兵的南太平洋国家瓦努阿图，1982年独立，人口20多万，被称为世界上最幸福国度。根本不知道什么是反法西斯战争。到北京打酱油的！<br><img src="http://ww1.sinaimg.cn/large/a04f9f0djw1evfabml79cj20go0b4405.jpg"></p>
 <p>
 	<small> ============== 10小时前</small>
 </p><h2>
-	<a href="https://freeweibo.com/weibo/3879868788138074" target="freeweibo-mirror">深夜食堂[馋嘴]</a>
+	<a href="https://freeweibo.com/weibo/3879870453201521" target="freeweibo-mirror">//@唐建萍冤上加冤:转发微博</a>
 </h2>
-<p>深夜食堂[馋嘴]<br><img src="http://ww2.sinaimg.cn/large/006cCSaggw1evf9vrh9h0j30mh0u0mz2.jpg"></p>
+<p>//@唐建萍冤上加冤:转发微博</p>
 <p>
 	<small> ============== 10小时前</small>
 </p>
