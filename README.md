@@ -96,7 +96,7 @@
 </h2>
 <p>SPAM 这论调是想说出砸盘的真像吗？[馋嘴]//@morningtiger:本来没股市还是能打65分的，现在直接38了<br><br>RE: 膜蛤，其实是因为对现状失望。</p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3880159931006537" target="freeweibo-mirror">SPAM 这个还不算法西斯暴行？//@绍兴师爷在北京: 如此…</a>
 </h2>
