@@ -24,7 +24,7 @@
 </h2>
 <p>[赞]//@如此而已也: [威武][赞]<br><br>RE: 当全国弥漫着雾霾时，森林重庆却独有一片清新；当天津爆炸时，想起了书记的那句“带血的GDP,白给也不要”；当全国房价高企、鬼城遍地、实业凋敝时，重庆却房价平稳、产业兴盛；当今社会矛盾越来越尖锐，我们更加怀念书记执政时的重庆，三年无一人上访……只有深刻理解人民的人，才能拥有超前的眼光！<br><img src="http://ww3.sinaimg.cn/large/006bVicDjw1evekz7rqn8j30dw099gm5.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3880228839586106" target="freeweibo-mirror"></a>
 </h2>
