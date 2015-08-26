@@ -80,6 +80,12 @@
 <p>
 	<small> ============== 6小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3880115559472847" target="freeweibo-mirror">语言学家王力的家乡在广西博白，文革中：一贫农子弟欲强奸一地主…</a>
+</h2>
+<p>语言学家王力的家乡在广西博白，文革中：一贫农子弟欲强奸一地主女儿，女不从，便将女先奸后杀。又到公社领导处要求入党、表扬：我对阶级敌人斗争坚决！领导说：光我们知道还不行，得让大家都了解你的事迹。该无赖将被害者头颅割下，到公社中学篮球场上以人头作球去投篮。大会表扬，光荣入党…【转】<br><img src="http://ww1.sinaimg.cn/large/0063XfN6jw1evg287kbx3j30gt0p2t9k.jpg"></p>
+<p>
+	<small> ============== 7小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3880111570819565" target="freeweibo-mirror">还是换个政府吧//@君众咨询邓学君: 经济稀烂，跟老大没关。…</a>
 </h2>
 <p>还是换个政府吧//@君众咨询邓学君: 经济稀烂，跟老大没关。 //@杨先定:这一届确实不懂经济！组阁时，班子都没配好！<br><br>RE: 【救市受挫 中国总理面临困境】A股再度暴跌并引发全球市场动荡，让中国救市计划的设计者陷入不妙的处境。外界认为北京方面对股灾及经济放缓应对不当，他是否会为此担责？http://t.cn/RyPzCky<br><img src="http://ww4.sinaimg.cn/large/6538fd8cgw1evfzqqf182j20go09et9b.jpg"></p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3880095435179752" target="freeweibo-mirror">SPAM 上班时间去吃下午茶应该怎么发朋友圈。</a>
 </h2>
 <p>SPAM 上班时间去吃下午茶应该怎么发朋友圈。<br><img src="http://ww3.sinaimg.cn/large/7aa71322jw1evfqkjbp7cj20ku0kuq3o.jpg"></p>
-<p>
-	<small> ============== 9小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3880093988749034" target="freeweibo-mirror">【救市受挫 中国总理面临困境】A股再度暴跌并引发全球市场动荡…</a>
-</h2>
-<p>【救市受挫 中国总理面临困境】A股再度暴跌并引发全球市场动荡，让中国救市计划的设计者陷入不妙的处境。外界认为北京方面对股灾及经济放缓应对不当，他是否会为此担责？http://t.cn/RyPzCky<br><img src="http://ww4.sinaimg.cn/large/6538fd8cgw1evfzqqf182j20go09et9b.jpg"></p>
 <p>
 	<small> ============== 9小时前</small>
 </p>
