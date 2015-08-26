@@ -30,7 +30,13 @@
 </h2>
 <p>//@斯人黄鹤: //@maguangcun:转发微博</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3880051718693214" target="freeweibo-mirror">SPAM 下週起，翻牆更難啦[围观] #记者那点事#</a>
+</h2>
+<p>SPAM 下週起，翻牆更難啦[围观] #记者那点事#<br><img src="http://ww2.sinaimg.cn/large/5938d248jw1evfuw2u5vej20dr0hs0ua.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3880049973595978" target="freeweibo-mirror">//@公平正义立国之本://@Betterline牧童杏花酒…</a>
 </h2>
@@ -102,7 +108,7 @@
 </h2>
 <p>//@鹰隼N1A晏欢: [弱][鄙视][吐]物以类聚 人以群分//@骑着毛驴的艺术爱好者: //@伊德尔-小炉匠://@胡新宇-filmmaker:转发微博<br><br>RE: 失道寡助。九三阅兵，各国元首首脑出席者实在是可怜，独联体、前南、前华约、共产国体（蒙朝越古）、几个非洲黑兄弟、亚洲小兄弟（柬巴），估计有些还是花了银子搬来捧场的。唯一像样点的只有一个韩国女总统。人往高出走、水往低处流，拒绝普世价值观，死抱意思形态僵尸，自甘下流，那是谁也没办法的。<br><img src="http://ww3.sinaimg.cn/large/4938b75fgw1evewyia8pej20ht0ddwf0.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3880006025734399" target="freeweibo-mirror">SPAM 要统一 //@性感玉米:卧槽，奶都能统一大小和形状…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3879999449001154" target="freeweibo-mirror">[笑cry] //@吉祥-幸运:免费旅游，临别还有红包//@…</a>
 </h2>
 <p>[笑cry] //@吉祥-幸运:免费旅游，临别还有红包//@徐幸起://@何紫微:[哈哈]//@陶景洲:评论百花齐放。<br><br>RE: 参加中国阅兵的南太平洋国家瓦努阿图，1982年独立，人口20多万，被称为世界上最幸福国度。根本不知道什么是反法西斯战争。到北京打酱油的！<br><img src="http://ww1.sinaimg.cn/large/a04f9f0djw1evfabml79cj20go0b4405.jpg"></p>
-<p>
-	<small> ============== 5小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3879998597723592" target="freeweibo-mirror">关键总理是民选的吗？更像是钦点的。</a>
-</h2>
-<p>关键总理是民选的吗？更像是钦点的。<br><br>RE: 【任志强：五年规划没一个完成 但没有一个总理辞职】任志强又放炮了：“我们最大的问题是如果政府说了不做我们没有任何办法，从一五到十二五期间没有一个任务完成，但没有一个总理辞职。如果我们有办法能把权力关到笼子里，三中全会所有文件才有可能被落实。” http://t.cn/8FptQ4I<br><img src="http://ww1.sinaimg.cn/large/680d8f00gw1evfnum14n5j20a90cawf7.jpg"></p>
 <p>
 	<small> ============== 5小时前</small>
 </p>
