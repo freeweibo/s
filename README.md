@@ -102,7 +102,7 @@
 </h2>
 <p>膜蛤，其实是因为对现状失望。</p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3880115559472847" target="freeweibo-mirror">语言学家王力的家乡在广西博白，文革中：一贫农子弟欲强奸一地主…</a>
 </h2>
@@ -138,7 +138,7 @@
 </h2>
 <p>http://t.cn/RyPwbhB 滚他妈的这本傻逼书要一百三四十块啊！！！@真主钦点仁波切</p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p>
 <table>
     <tr>
