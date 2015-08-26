@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3880014313159939" target="freeweibo-mirror">SPAM [偷笑] //@行者老陈:要钱方阵</a>
+</h2>
+<p>SPAM [偷笑] //@行者老陈:要钱方阵<br><br>RE: 看了这个国外阅兵方队和观摩团名单，会不会下意识捂住钱包？<br><img src="http://ww1.sinaimg.cn/large/6340b20bjw1evfq3hxulxj208w0c2aax.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3880013750953423" target="freeweibo-mirror">回复@流浪中的木木:[挤眼] //@流浪中的木木:中共中央及…</a>
 </h2>
 <p>回复@流浪中的木木:[挤眼] //@流浪中的木木:中共中央及国家人事部、教育部关于学历、学位的有关规定。2009年颁布的，里面明确说明了：“学历”是指一个人最后也是最高层次的一段学习经历，以经教育行政部门批准，有国家认可的文凭颁发权利的学校及其它教育机构所颁发的学历证书为凭证。因为读过但是没<br><br>RE: 女兵方阵平均年龄20岁，大学及以上学历占88%……大学及以上学历咱就按照大学学历来算，大学毕业22岁。88%的人超过22岁，也就是说剩下的12%年龄应该在5.3岁以内。这些女兵不到5岁半就能长到1.78米的身高，真是一大群巨婴来的！当然，也或者那88%都是少年天才，14岁上大学……傻傻问一句，这是真的么？<br><img src="http://ww4.sinaimg.cn/large/64429cefjw1everm4bozjj20f00qojuv.jpg"></p>
@@ -60,7 +66,7 @@
 </h2>
 <p>它们狼狈为奸。 //@猛虎啸林海: //@自由的小猪:转发微博</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3879978766829828" target="freeweibo-mirror">//@前度神-游://@赞美诗6201:[吃惊]//@秋日往…</a>
 </h2>
@@ -72,7 +78,7 @@
 </h2>
 <p>//@修竹415: 转发微博<br><br>RE: 发表了一篇转载博文《[转载]和平时候中国死了3千多万人。从国家主席，开国元帅，没有人出来道歉》http://t.cn/RyvEIda<br><img src="http://ww1.sinaimg.cn/large/62a91420jw1evfljiosxpj20c8085abk.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3879970734484154" target="freeweibo-mirror">→_→//@库狼:反贼！//@不合作的奴隶: [哈哈]→_→…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3879872725853925" target="freeweibo-mirror">参加中国阅兵的南太平洋国家瓦努阿图，1982年独立，人口20…</a>
 </h2>
 <p>参加中国阅兵的南太平洋国家瓦努阿图，1982年独立，人口20多万，被称为世界上最幸福国度。根本不知道什么是反法西斯战争。到北京打酱油的！<br><img src="http://ww1.sinaimg.cn/large/a04f9f0djw1evfabml79cj20go0b4405.jpg"></p>
-<p>
-	<small> ============== 10小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3879870453201521" target="freeweibo-mirror">//@唐建萍冤上加冤:转发微博</a>
-</h2>
-<p>//@唐建萍冤上加冤:转发微博</p>
 <p>
 	<small> ============== 11小时前</small>
 </p>
