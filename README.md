@@ -66,7 +66,7 @@
 </h2>
 <p>SPAM 这论调是想说出砸盘的真像吗？[馋嘴]//@morningtiger:本来没股市还是能打65分的，现在直接38了<br><br>RE: 膜蛤，其实是因为对现状失望。</p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3880159931006537" target="freeweibo-mirror">SPAM 这个还不算法西斯暴行？//@绍兴师爷在北京: 如此…</a>
 </h2>
@@ -132,7 +132,7 @@
 </h2>
 <p>SPAM 笑疯了，评价居然这么高//@菁瓜: 哈哈哈哈哈//@真主钦点仁波切:哈哈哈哈哈太low b了题目居然是拼音……我还想领略一下高级的翻译呢……<br><br>RE: http://t.cn/RyPwbhB 滚他妈的这本傻逼书要一百三四十块啊！！！@真主钦点仁波切</p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3880103786809812" target="freeweibo-mirror">http://t.cn/RyPwbhB 滚他妈的这本傻逼书要…</a>
 </h2>
