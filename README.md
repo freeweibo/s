@@ -36,7 +36,7 @@
 </h2>
 <p>//@宋海聚: //@涛涛微文:文革是史上最黑暗的年代，没有之一！</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3880066507810650" target="freeweibo-mirror">正能量。[哈哈]//@独俏逍遥: [哈哈][哈哈] //@一…</a>
 </h2>
@@ -54,7 +54,7 @@
 </h2>
 <p>//@斯人黄鹤: //@maguangcun:转发微博</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3880051718693214" target="freeweibo-mirror">SPAM 下週起，翻牆更難啦[围观] #记者那点事#</a>
 </h2>
@@ -132,7 +132,7 @@
 </h2>
 <p>//@鹰隼N1A晏欢: [弱][鄙视][吐]物以类聚 人以群分//@骑着毛驴的艺术爱好者: //@伊德尔-小炉匠://@胡新宇-filmmaker:转发微博<br><br>RE: 失道寡助。九三阅兵，各国元首首脑出席者实在是可怜，独联体、前南、前华约、共产国体（蒙朝越古）、几个非洲黑兄弟、亚洲小兄弟（柬巴），估计有些还是花了银子搬来捧场的。唯一像样点的只有一个韩国女总统。人往高出走、水往低处流，拒绝普世价值观，死抱意思形态僵尸，自甘下流，那是谁也没办法的。<br><img src="http://ww3.sinaimg.cn/large/4938b75fgw1evewyia8pej20ht0ddwf0.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3880006025734399" target="freeweibo-mirror">SPAM 要统一 //@性感玉米:卧槽，奶都能统一大小和形状…</a>
 </h2>
