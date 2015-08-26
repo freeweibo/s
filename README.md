@@ -42,7 +42,13 @@
 </h2>
 <p>//@王建民钢笔画:在北京，他们穿衣服吗？ //@刘杨林律师和税务师://@幽壹: //@王周生://@江北横财神:呵呵，3月份刚给了三千万美金物资援助，原来是出场费，回头我也去非洲成立个国家，没事挣点钱花。<br><br>RE: 参加中国阅兵的南太平洋国家瓦努阿图，1982年独立，人口20多万，被称为世界上最幸福国度。根本不知道什么是反法西斯战争。到北京打酱油的！<br><img src="http://ww1.sinaimg.cn/large/a04f9f0djw1evfabml79cj20go0b4405.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3880010496529369" target="freeweibo-mirror">看了这个国外阅兵方队和观摩团名单，会不会下意识捂住钱包？</a>
+</h2>
+<p>看了这个国外阅兵方队和观摩团名单，会不会下意识捂住钱包？<br><img src="http://ww1.sinaimg.cn/large/6340b20bjw1evfq3hxulxj208w0c2aax.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3880009858783658" target="freeweibo-mirror">http://t.cn/RyvLtnj //@一杯咖啡就瞌睡…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3879883647988684" target="freeweibo-mirror">SPAM [doge]好好好</a>
 </h2>
 <p>SPAM [doge]好好好<br><br>RE: 深夜食堂[馋嘴]<br><img src="http://ww2.sinaimg.cn/large/006cCSaggw1evf9vrh9h0j30mh0u0mz2.jpg"></p>
-<p>
-	<small> ============== 10小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3879883429925496" target="freeweibo-mirror">天津塘沽大爆炸只是警告，真正的恶魔是核电站。 中国目前有17…</a>
-</h2>
-<p>天津塘沽大爆炸只是警告，真正的恶魔是核电站。 中国目前有17座核子反应炉在营运，30座在兴建，並计划再建造59座。 德国决定在2022年前关闭所有核电站，而意大利禁止核电站.核能反对者认为，核反应堆的一个主要缺点就是它面临着核事故和恐怖分子袭击的威胁，因大量平民都会受到辐射线的照射。（转）</p>
 <p>
 	<small> ============== 10小时前</small>
 </p>
