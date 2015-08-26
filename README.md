@@ -24,7 +24,7 @@
 </h2>
 <p>【香港人的历史是非感】香港TVB昨晚的抗战特辑，用五星红旗代表台儿庄战役的中国军队，结果一天之內超过600人投诉到通讯局，指內容与史实不符、误导公众。今晚，TVB道歉并更正相关画面。天下本无事，庸人自扰之。中国内地将毛泽东做开罗宣言海报，目前无人公开致歉！<br><img src="http://ww2.sinaimg.cn/large/6a80bfcdjw1evg0pwkxnkj20f00qo0v1.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3880099474369406" target="freeweibo-mirror">[哈哈] //@吉四六:这回宋襄公了吧。</a>
 </h2>
@@ -60,7 +60,7 @@
 </h2>
 <p>//@诗人沙光:转。//@不白的淘宝:转。//@东岳晚晴:转。//@假装是神枪手:转。//@励志思维:转。</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3880069758266806" target="freeweibo-mirror">//@何葆国://@宋海聚: //@涛涛微文:文革是史上最黑…</a>
 </h2>
