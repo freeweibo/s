@@ -20,6 +20,18 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3880054189188306" target="freeweibo-mirror">[笑cry] //@星xc辰D33:[哈哈]//@wyzxh…</a>
+</h2>
+<p>[笑cry] //@星xc辰D33:[哈哈]//@wyzxhp7: [笑cry]//@真实民猪: [哈哈] //@徐幸起://@公平正义立国之本://@Betterline牧童杏花酒家: [哈哈][哈哈][哈哈]</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3880053781940046" target="freeweibo-mirror">//@斯人黄鹤: //@maguangcun:转发微博</a>
+</h2>
+<p>//@斯人黄鹤: //@maguangcun:转发微博</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3880024463150354" target="freeweibo-mirror">//@美国律师Kevin: 《毛泽东选集》第四卷其中一页写道…</a>
 </h2>
 <p>//@美国律师Kevin: 《毛泽东选集》第四卷其中一页写道：“你们每占领一个村庄，就要让当地农民获得看得见的利益，或者让他们分到地主的田地，或者让他们分得地主的财物。” 尤其耐人寻味的是，毛还在“看得见的利益”下面划上了着重号！后来轰轰烈烈的土改土地收归国(党）有，产权70的事大家都知道了。</p>
@@ -96,7 +108,7 @@
 </h2>
 <p>去看看参加阅兵式的是些什么国家 //@杨子评://@心苦每一天:走的时候顺点礼金，反正天朝有钱不要白不要。//@江北横财神:3月份刚给了三千万美金物资援助，原来是出场费，回头我也去非洲成立个国家，没事挣点钱花。<br><br>RE: 参加中国阅兵的南太平洋国家瓦努阿图，1982年独立，人口20多万，被称为世界上最幸福国度。根本不知道什么是反法西斯战争。到北京打酱油的！<br><img src="http://ww1.sinaimg.cn/large/a04f9f0djw1evfabml79cj20go0b4405.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3879999449001154" target="freeweibo-mirror">[笑cry] //@吉祥-幸运:免费旅游，临别还有红包//@…</a>
 </h2>
@@ -127,18 +139,6 @@
 <p>【任志强：五年规划没一个完成 但没有一个总理辞职】任志强又放炮了：“我们最大的问题是如果政府说了不做我们没有任何办法，从一五到十二五期间没有一个任务完成，但没有一个总理辞职。如果我们有办法能把权力关到笼子里，三中全会所有文件才有可能被落实。” http://t.cn/8FptQ4I<br><img src="http://ww1.sinaimg.cn/large/680d8f00gw1evfnum14n5j20a90cawf7.jpg"></p>
 <p>
 	<small> ============== 5小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3879978766829828" target="freeweibo-mirror">//@前度神-游://@赞美诗6201:[吃惊]//@秋日往…</a>
-</h2>
-<p>//@前度神-游://@赞美诗6201:[吃惊]//@秋日往事://@修竹415: 转发微博<br><br>RE: 发表了一篇转载博文《[转载]和平时候中国死了3千多万人。从国家主席，开国元帅，没有人出来道歉》http://t.cn/RyvEIda<br><img src="http://ww1.sinaimg.cn/large/62a91420jw1evfljiosxpj20c8085abk.jpg"></p>
-<p>
-	<small> ============== 6小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3879977533768294" target="freeweibo-mirror">//@修竹415: 转发微博</a>
-</h2>
-<p>//@修竹415: 转发微博<br><br>RE: 发表了一篇转载博文《[转载]和平时候中国死了3千多万人。从国家主席，开国元帅，没有人出来道歉》http://t.cn/RyvEIda<br><img src="http://ww1.sinaimg.cn/large/62a91420jw1evfljiosxpj20c8085abk.jpg"></p>
-<p>
-	<small> ============== 6小时前</small>
 </p>
 <table>
     <tr>
