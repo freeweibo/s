@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3880069758266806" target="freeweibo-mirror">//@何葆国://@宋海聚: //@涛涛微文:文革是史上最黑…</a>
+</h2>
+<p>//@何葆国://@宋海聚: //@涛涛微文:文革是史上最黑暗的年代，没有之一！</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3880054189188306" target="freeweibo-mirror">[笑cry] //@星xc辰D33:[哈哈]//@wyzxh…</a>
 </h2>
 <p>[笑cry] //@星xc辰D33:[哈哈]//@wyzxhp7: [笑cry]//@真实民猪: [哈哈] //@徐幸起://@公平正义立国之本://@Betterline牧童杏花酒家: [哈哈][哈哈][哈哈]</p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3880000006586256" target="freeweibo-mirror">去看看参加阅兵式的是些什么国家 //@杨子评://@心苦每一…</a>
 </h2>
 <p>去看看参加阅兵式的是些什么国家 //@杨子评://@心苦每一天:走的时候顺点礼金，反正天朝有钱不要白不要。//@江北横财神:3月份刚给了三千万美金物资援助，原来是出场费，回头我也去非洲成立个国家，没事挣点钱花。<br><br>RE: 参加中国阅兵的南太平洋国家瓦努阿图，1982年独立，人口20多万，被称为世界上最幸福国度。根本不知道什么是反法西斯战争。到北京打酱油的！<br><img src="http://ww1.sinaimg.cn/large/a04f9f0djw1evfabml79cj20go0b4405.jpg"></p>
-<p>
-	<small> ============== 5小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3879999449001154" target="freeweibo-mirror">[笑cry] //@吉祥-幸运:免费旅游，临别还有红包//@…</a>
-</h2>
-<p>[笑cry] //@吉祥-幸运:免费旅游，临别还有红包//@徐幸起://@何紫微:[哈哈]//@陶景洲:评论百花齐放。<br><br>RE: 参加中国阅兵的南太平洋国家瓦努阿图，1982年独立，人口20多万，被称为世界上最幸福国度。根本不知道什么是反法西斯战争。到北京打酱油的！<br><img src="http://ww1.sinaimg.cn/large/a04f9f0djw1evfabml79cj20go0b4405.jpg"></p>
 <p>
 	<small> ============== 6小时前</small>
 </p>
