@@ -114,7 +114,7 @@
 </h2>
 <p>金正恩心想，那次我们阅兵，你们让周永康来，就站在我爹俩旁边，事后证明他是坏人，这不故意羞辱我们么？我要以其人之道还治其人之身，这次派崔龙海去，等他回来的……<br><img src="http://ww1.sinaimg.cn/large/4ce32014jw1evflq0n947j20cf08qwfg.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3879970734484154" target="freeweibo-mirror">→_→//@库狼:反贼！//@不合作的奴隶: [哈哈]→_→…</a>
 </h2>
