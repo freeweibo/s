@@ -48,7 +48,7 @@
 </h2>
 <p>SPAM 要统一 //@性感玉米:卧槽，奶都能统一大小和形状啊[悲伤]</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3879999449001154" target="freeweibo-mirror">[笑cry] //@吉祥-幸运:免费旅游，临别还有红包//@…</a>
 </h2>
