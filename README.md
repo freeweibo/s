@@ -66,7 +66,7 @@
 </h2>
 <p></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3880227995996298" target="freeweibo-mirror">他是“特色”的旗帜，绝非社会主义的旗帜！</a>
 </h2>
