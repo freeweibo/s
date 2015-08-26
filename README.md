@@ -26,6 +26,12 @@
 <p>
 	<small> ============== 1小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3880021486198692" target="freeweibo-mirror">SPAM 不得围观？不得拍摄? 军令如山，我保证：我连电视也…</a>
+</h2>
+<p>SPAM 不得围观？不得拍摄? 军令如山，我保证：我连电视也不看，让您放心。//@梅春来律师: 不得围观阅兵、不得拍摄阅兵？原来阅兵与我们无关，那些打了鸡血瞎激动的人民该怎么活啊！<br><br>RE: 呵呵<br><img src="http://ww3.sinaimg.cn/large/538aff2djw1evfcw7il0hj20go0m8mzg.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3880014313159939" target="freeweibo-mirror">SPAM [偷笑] //@行者老陈:要钱方阵</a>
 </h2>
 <p>SPAM [偷笑] //@行者老陈:要钱方阵<br><br>RE: 看了这个国外阅兵方队和观摩团名单，会不会下意识捂住钱包？<br><img src="http://ww1.sinaimg.cn/large/6340b20bjw1evfq3hxulxj208w0c2aax.jpg"></p>
@@ -86,6 +92,12 @@
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3879998597723592" target="freeweibo-mirror">关键总理是民选的吗？更像是钦点的。</a>
+</h2>
+<p>关键总理是民选的吗？更像是钦点的。<br><br>RE: 【任志强：五年规划没一个完成 但没有一个总理辞职】任志强又放炮了：“我们最大的问题是如果政府说了不做我们没有任何办法，从一五到十二五期间没有一个任务完成，但没有一个总理辞职。如果我们有办法能把权力关到笼子里，三中全会所有文件才有可能被落实。” http://t.cn/8FptQ4I<br><img src="http://ww1.sinaimg.cn/large/680d8f00gw1evfnum14n5j20a90cawf7.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3879996420467044" target="freeweibo-mirror">首长的儿子遇一农民工，见他长得与自己一模一样，便鄙夷地问：你…</a>
 </h2>
 <p>首长的儿子遇一农民工，见他长得与自己一模一样，便鄙夷地问：你妈以前在钓鱼台当过服务员吗？农民工答：俺娘从小没出过村，俺爹倒是给个首长当过警卫员。</p>
@@ -96,7 +108,7 @@
 </h2>
 <p>它们狼狈为奸。 //@猛虎啸林海: //@自由的小猪:转发微博</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3879978766829828" target="freeweibo-mirror">//@前度神-游://@赞美诗6201:[吃惊]//@秋日往…</a>
 </h2>
@@ -108,7 +120,7 @@
 </h2>
 <p>//@修竹415: 转发微博<br><br>RE: 发表了一篇转载博文《[转载]和平时候中国死了3千多万人。从国家主席，开国元帅，没有人出来道歉》http://t.cn/RyvEIda<br><img src="http://ww1.sinaimg.cn/large/62a91420jw1evfljiosxpj20c8085abk.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3879971954766318" target="freeweibo-mirror">金正恩心想，那次我们阅兵，你们让周永康来，就站在我爹俩旁边，…</a>
 </h2>
@@ -127,18 +139,6 @@
 <p>发表了一篇转载博文《[转载]和平时候中国死了3千多万人。从国家主席，开国元帅，没有人出来道歉》http://t.cn/RyvEIda<br><img src="http://ww1.sinaimg.cn/large/62a91420jw1evfljiosxpj20c8085abk.jpg"></p>
 <p>
 	<small> ============== 5小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3879894444186228" target="freeweibo-mirror">挂着玩，睡觉。//@多摩的狸子: 我就挂个傻逼//@道言_最…</a>
-</h2>
-<p>挂着玩，睡觉。//@多摩的狸子: 我就挂个傻逼//@道言_最后的龙骑士: 其实简单啊，先断绝提倡者的一切耗电可能。如果真有那么多赞同的人一起节能不用一丝一毫的电，说不定连老的发电站都要亏到拆除了。所以先请诸位从自我做起，断绝一切耗电行为吧！ //@铁血悍将汤恩伯:我们学台巴子用爱发电吧<br><br>RE: 天津塘沽大爆炸只是警告，真正的恶魔是核电站。 中国目前有17座核子反应炉在营运，30座在兴建，並计划再建造59座。 德国决定在2022年前关闭所有核电站，而意大利禁止核电站.核能反对者认为，核反应堆的一个主要缺点就是它面临着核事故和恐怖分子袭击的威胁，因大量平民都会受到辐射线的照射。（转）</p>
-<p>
-	<small> ============== 10小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3879892166508200" target="freeweibo-mirror">作家徐星：傻逼们搞不清一个问题,毛整了、害了那么多人,为什么…</a>
-</h2>
-<p>作家徐星：傻逼们搞不清一个问题,毛整了、害了那么多人,为什么否定不了他？其实只要看看是谁,什么阶层在享用毛留下来的巨大政治遗产,这问题就很清楚地被解答了。毛留下的政治遗产包括了现今社会里的阶级、等级的固化,谁,什么人能充分享用这种社会现实带来的利益？动动脑子就不会提出如此傻逼的问题了。<br><img src="http://ww4.sinaimg.cn/large/006cNxVPjw1evfckkr3zkj30cs0bs74y.jpg"></p>
-<p>
-	<small> ============== 10小时前</small>
 </p>
 <table>
     <tr>
