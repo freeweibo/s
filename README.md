@@ -20,9 +20,21 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3880230517029274" target="freeweibo-mirror">[赞]//@如此而已也: [威武][赞]</a>
+</h2>
+<p>[赞]//@如此而已也: [威武][赞]<br><br>RE: 当全国弥漫着雾霾时，森林重庆却独有一片清新；当天津爆炸时，想起了书记的那句“带血的GDP,白给也不要”；当全国房价高企、鬼城遍地、实业凋敝时，重庆却房价平稳、产业兴盛；当今社会矛盾越来越尖锐，我们更加怀念书记执政时的重庆，三年无一人上访……只有深刻理解人民的人，才能拥有超前的眼光！<br><img src="http://ww3.sinaimg.cn/large/006bVicDjw1evekz7rqn8j30dw099gm5.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3880228839586106" target="freeweibo-mirror"></a>
 </h2>
 <p></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3880227995996298" target="freeweibo-mirror">他是“特色”的旗帜，绝非社会主义的旗帜！</a>
+</h2>
+<p>他是“特色”的旗帜，绝非社会主义的旗帜！<br><br>RE: ★【纪念邓小平只是一种政治的需要】邓小平死后，其实并没有人怀念他，民间对他充满着仇恨，尤其遭到广大劳动人民的唾弃，而只那些怀有不同政治目的政客们惺惺作态，故作娇嗔。国家怀念邓小平只是一种政治的需要，当他这杆旗没有了利用价值后，自然就成了被社会遗弃的垃圾，永远消失在历史的长河中。<br><img src="http://ww1.sinaimg.cn/large/9fa72927jw1evgcfbgfjsj207808n74o.jpg"></p>
 <p>
 	<small> ============== 1小时前</small>
 </p><h2>
@@ -48,7 +60,7 @@
 </h2>
 <p>SPAM 既会讲英语又会说俄语的长者，素质还是不同的。 //@盘索:这论调是想说出砸盘的真像吗？[馋嘴]//@morningtiger:本来没股市还是能打65分的，现在直接38了<br><br>RE: 膜蛤，其实是因为对现状失望。</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3880165622584572" target="freeweibo-mirror">SPAM 这论调是想说出砸盘的真像吗？[馋嘴]//@morn…</a>
 </h2>
@@ -125,18 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3880103786809812" target="freeweibo-mirror">http://t.cn/RyPwbhB 滚他妈的这本傻逼书要…</a>
 </h2>
 <p>http://t.cn/RyPwbhB 滚他妈的这本傻逼书要一百三四十块啊！！！@真主钦点仁波切</p>
-<p>
-	<small> ============== 10小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3880102754542643" target="freeweibo-mirror">【香港人的历史是非感】香港TVB昨晚的抗战特辑，用五星红旗代…</a>
-</h2>
-<p>【香港人的历史是非感】香港TVB昨晚的抗战特辑，用五星红旗代表台儿庄战役的中国军队，结果一天之內超过600人投诉到通讯局，指內容与史实不符、误导公众。今晚，TVB道歉并更正相关画面。天下本无事，庸人自扰之。中国内地将毛泽东做开罗宣言海报，目前无人公开致歉！<br><img src="http://ww2.sinaimg.cn/large/6a80bfcdjw1evg0pwkxnkj20f00qo0v1.jpg"></p>
-<p>
-	<small> ============== 10小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3880099813928757" target="freeweibo-mirror">FT要闹哪样？一周前FT发文“周小川：中国改革派的央行行长”…</a>
-</h2>
-<p>FT要闹哪样？一周前FT发文“周小川：中国改革派的央行行长”也别有用心地提及小川行长当年当红卫兵头头的历史。<br><br>RE: 【救市受挫 中国总理面临困境】A股再度暴跌并引发全球市场动荡，让中国救市计划的设计者陷入不妙的处境。外界认为北京方面对股灾及经济放缓应对不当，他是否会为此担责？http://t.cn/RyPzCky<br><img src="http://ww4.sinaimg.cn/large/6538fd8cgw1evfzqqf182j20go09et9b.jpg"></p>
 <p>
 	<small> ============== 10小时前</small>
 </p>
