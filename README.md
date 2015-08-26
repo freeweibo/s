@@ -30,7 +30,7 @@
 </h2>
 <p>//@前度神-游://@赞美诗6201:[吃惊]//@秋日往事://@修竹415: 转发微博<br><br>RE: 发表了一篇转载博文《[转载]和平时候中国死了3千多万人。从国家主席，开国元帅，没有人出来道歉》http://t.cn/RyvEIda<br><img src="http://ww1.sinaimg.cn/large/62a91420jw1evfljiosxpj20c8085abk.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3879977533768294" target="freeweibo-mirror">//@修竹415: 转发微博</a>
 </h2>
