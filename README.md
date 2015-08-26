@@ -54,7 +54,7 @@
 </h2>
 <p>//@福州新人: 就这样了还敢吹嘘伟光正。 //@微言木子://@天下为公8008://@开心的雪-: 同问。</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3880166705343630" target="freeweibo-mirror">SPAM 既会讲英语又会说俄语的长者，素质还是不同的。 //…</a>
 </h2>
@@ -84,7 +84,7 @@
 </h2>
 <p>//@邓相超://@吴顾问1970: 邪恶的组织！扭曲变态的制度！//@加菲炮1314cat://@刀锋论v: //@我的天空谁的城--:<br><br>RE: 语言学家王力的家乡在广西博白，文革中：一贫农子弟欲强奸一地主女儿，女不从，便将女先奸后杀。又到公社领导处要求入党、表扬：我对阶级敌人斗争坚决！领导说：光我们知道还不行，得让大家都了解你的事迹。该无赖将被害者头颅割下，到公社中学篮球场上以人头作球去投篮。大会表扬，光荣入党…【转】<br><img src="http://ww1.sinaimg.cn/large/0063XfN6jw1evg287kbx3j30gt0p2t9k.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3880144378598171" target="freeweibo-mirror">SPAM 发表了一篇转载博文《[转载]SOS！惊天大担心，当…</a>
 </h2>
@@ -114,13 +114,13 @@
 </h2>
 <p>还是换个政府吧//@君众咨询邓学君: 经济稀烂，跟老大没关。 //@杨先定:这一届确实不懂经济！组阁时，班子都没配好！<br><br>RE: 【救市受挫 中国总理面临困境】A股再度暴跌并引发全球市场动荡，让中国救市计划的设计者陷入不妙的处境。外界认为北京方面对股灾及经济放缓应对不当，他是否会为此担责？http://t.cn/RyPzCky<br><img src="http://ww4.sinaimg.cn/large/6538fd8cgw1evfzqqf182j20go09et9b.jpg"></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3880110861793303" target="freeweibo-mirror">SPAM 太扯淡了。当年我10元买过一本，但只能用来擦腚，根…</a>
 </h2>
 <p>SPAM 太扯淡了。当年我10元买过一本，但只能用来擦腚，根本没法看。//@战争史研究WHS: ☸ 梵语 धर्मचक्रप्रवर्तन Dharmacakra Pravartan ☸ 巴利语धम्मचक्कप्पवत्तन Dhammacakkappavattana //@顾惜之: 评价居然这么高 //@菁瓜: 哈哈哈哈哈<br><br>RE: http://t.cn/RyPwbhB 滚他妈的这本傻逼书要一百三四十块啊！！！@真主钦点仁波切</p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3880107493678892" target="freeweibo-mirror">首都是北京人民的，也是全国人民的，但归根结底，是志愿者，尤其…</a>
 </h2>
