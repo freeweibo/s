@@ -66,7 +66,7 @@
 </h2>
 <p></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3880227995996298" target="freeweibo-mirror">他是“特色”的旗帜，绝非社会主义的旗帜！</a>
 </h2>
@@ -132,7 +132,7 @@
 </h2>
 <p>SPAM 日本综艺之火车钻洞测胸....http://t.cn/Ryvbj1H</p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3880133566130215" target="freeweibo-mirror">膜蛤，其实是因为对现状失望。</a>
 </h2>
