@@ -24,7 +24,7 @@
 </h2>
 <p>SPAM 发表了一篇转载博文《[转载]SOS！惊天大担心，当今中国雪上加霜，内忧外患！！！》http://t.cn/RyPbh30<br><img src="http://ww2.sinaimg.cn/large/5408ee85jw1evg5jcw795j205k03pwef.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3880138699479826" target="freeweibo-mirror">SPAM 日本综艺之火车钻洞测胸....http://t.c…</a>
 </h2>
