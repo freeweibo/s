@@ -26,6 +26,30 @@
 <p>
 	<small> ============== 1小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3880245348284039" target="freeweibo-mirror">SPAM //@当律师的陈刚: 王立军和溥熙来不知怎么想 /…</a>
+</h2>
+<p>SPAM //@当律师的陈刚: 王立军和溥熙来不知怎么想 //@彭园v:</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3880243867663434" target="freeweibo-mirror">总理阁下圣明！您知道，那时候大米三毛钱一斤，现在三块钱一斤。…</a>
+</h2>
+<p>总理阁下圣明！您知道，那时候大米三毛钱一斤，现在三块钱一斤。您圣明！</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3880241917713333" target="freeweibo-mirror">SPAM 王立军和溥熙来不知怎么想 //@彭园v:</a>
+</h2>
+<p>SPAM 王立军和溥熙来不知怎么想 //@彭园v:</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3880239773675016" target="freeweibo-mirror">//@青岛记:我觉得右边是个色鬼[挖鼻]→_→//@我确实不…</a>
+</h2>
+<p>//@青岛记:我觉得右边是个色鬼[挖鼻]→_→//@我确实不是色鬼:炮架子、军妓而已!</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3880230517029274" target="freeweibo-mirror">[赞]//@如此而已也: [威武][赞]</a>
 </h2>
 <p>[赞]//@如此而已也: [威武][赞]<br><br>RE: 当全国弥漫着雾霾时，森林重庆却独有一片清新；当天津爆炸时，想起了书记的那句“带血的GDP,白给也不要”；当全国房价高企、鬼城遍地、实业凋敝时，重庆却房价平稳、产业兴盛；当今社会矛盾越来越尖锐，我们更加怀念书记执政时的重庆，三年无一人上访……只有深刻理解人民的人，才能拥有超前的眼光！<br><img src="http://ww3.sinaimg.cn/large/006bVicDjw1evekz7rqn8j30dw099gm5.jpg"></p>
@@ -42,7 +66,7 @@
 </h2>
 <p>他是“特色”的旗帜，绝非社会主义的旗帜！<br><br>RE: ★【纪念邓小平只是一种政治的需要】邓小平死后，其实并没有人怀念他，民间对他充满着仇恨，尤其遭到广大劳动人民的唾弃，而只那些怀有不同政治目的政客们惺惺作态，故作娇嗔。国家怀念邓小平只是一种政治的需要，当他这杆旗没有了利用价值后，自然就成了被社会遗弃的垃圾，永远消失在历史的长河中。<br><img src="http://ww1.sinaimg.cn/large/9fa72927jw1evgcfbgfjsj207808n74o.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3880204357762584" target="freeweibo-mirror">★【纪念邓小平只是一种政治的需要】邓小平死后，其实并没有人怀…</a>
 </h2>
@@ -115,30 +139,6 @@
 <p>语言学家王力的家乡在广西博白，文革中：一贫农子弟欲强奸一地主女儿，女不从，便将女先奸后杀。又到公社领导处要求入党、表扬：我对阶级敌人斗争坚决！领导说：光我们知道还不行，得让大家都了解你的事迹。该无赖将被害者头颅割下，到公社中学篮球场上以人头作球去投篮。大会表扬，光荣入党…【转】<br><img src="http://ww1.sinaimg.cn/large/0063XfN6jw1evg287kbx3j30gt0p2t9k.jpg"></p>
 <p>
 	<small> ============== 10小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3880111570819565" target="freeweibo-mirror">还是换个政府吧//@君众咨询邓学君: 经济稀烂，跟老大没关。…</a>
-</h2>
-<p>还是换个政府吧//@君众咨询邓学君: 经济稀烂，跟老大没关。 //@杨先定:这一届确实不懂经济！组阁时，班子都没配好！<br><br>RE: 【救市受挫 中国总理面临困境】A股再度暴跌并引发全球市场动荡，让中国救市计划的设计者陷入不妙的处境。外界认为北京方面对股灾及经济放缓应对不当，他是否会为此担责？http://t.cn/RyPzCky<br><img src="http://ww4.sinaimg.cn/large/6538fd8cgw1evfzqqf182j20go09et9b.jpg"></p>
-<p>
-	<small> ============== 10小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3880110861793303" target="freeweibo-mirror">SPAM 太扯淡了。当年我10元买过一本，但只能用来擦腚，根…</a>
-</h2>
-<p>SPAM 太扯淡了。当年我10元买过一本，但只能用来擦腚，根本没法看。//@战争史研究WHS: ☸ 梵语 धर्मचक्रप्रवर्तन Dharmacakra Pravartan ☸ 巴利语धम्मचक्कप्पवत्तन Dhammacakkappavattana //@顾惜之: 评价居然这么高 //@菁瓜: 哈哈哈哈哈<br><br>RE: http://t.cn/RyPwbhB 滚他妈的这本傻逼书要一百三四十块啊！！！@真主钦点仁波切</p>
-<p>
-	<small> ============== 10小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3880107493678892" target="freeweibo-mirror">首都是北京人民的，也是全国人民的，但归根结底，是志愿者，尤其…</a>
-</h2>
-<p>首都是北京人民的，也是全国人民的，但归根结底，是志愿者，尤其是大妈们的。<br><img src="http://ww2.sinaimg.cn/large/61d634bajw1evg1arp661j20ku112jyu.jpg"></p>
-<p>
-	<small> ============== 10小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3880105174871908" target="freeweibo-mirror">SPAM 笑疯了，评价居然这么高//@菁瓜: 哈哈哈哈哈//…</a>
-</h2>
-<p>SPAM 笑疯了，评价居然这么高//@菁瓜: 哈哈哈哈哈//@真主钦点仁波切:哈哈哈哈哈太low b了题目居然是拼音……我还想领略一下高级的翻译呢……<br><br>RE: http://t.cn/RyPwbhB 滚他妈的这本傻逼书要一百三四十块啊！！！@真主钦点仁波切</p>
-<p>
-	<small> ============== 11小时前</small>
 </p>
 <table>
     <tr>
