@@ -24,7 +24,7 @@
 </h2>
 <p>[笑cry] //@星xc辰D33:[哈哈]//@wyzxhp7: [笑cry]//@真实民猪: [哈哈] //@徐幸起://@公平正义立国之本://@Betterline牧童杏花酒家: [哈哈][哈哈][哈哈]</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3880053781940046" target="freeweibo-mirror">//@斯人黄鹤: //@maguangcun:转发微博</a>
 </h2>
@@ -54,7 +54,7 @@
 </h2>
 <p>//@美国律师Kevin: 《毛泽东选集》第四卷其中一页写道：“你们每占领一个村庄，就要让当地农民获得看得见的利益，或者让他们分到地主的田地，或者让他们分得地主的财物。” 尤其耐人寻味的是，毛还在“看得见的利益”下面划上了着重号！后来轰轰烈烈的土改土地收归国(党）有，产权70的事大家都知道了。</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3880021486198692" target="freeweibo-mirror">SPAM 不得围观？不得拍摄? 军令如山，我保证：我连电视也…</a>
 </h2>
@@ -84,25 +84,25 @@
 </h2>
 <p>//@王建民钢笔画:在北京，他们穿衣服吗？ //@刘杨林律师和税务师://@幽壹: //@王周生://@江北横财神:呵呵，3月份刚给了三千万美金物资援助，原来是出场费，回头我也去非洲成立个国家，没事挣点钱花。<br><br>RE: 参加中国阅兵的南太平洋国家瓦努阿图，1982年独立，人口20多万，被称为世界上最幸福国度。根本不知道什么是反法西斯战争。到北京打酱油的！<br><img src="http://ww1.sinaimg.cn/large/a04f9f0djw1evfabml79cj20go0b4405.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3880010496529369" target="freeweibo-mirror">看了这个国外阅兵方队和观摩团名单，会不会下意识捂住钱包？</a>
 </h2>
 <p>看了这个国外阅兵方队和观摩团名单，会不会下意识捂住钱包？<br><img src="http://ww1.sinaimg.cn/large/6340b20bjw1evfq3hxulxj208w0c2aax.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3880009858783658" target="freeweibo-mirror">http://t.cn/RyvLtnj //@一杯咖啡就瞌睡…</a>
 </h2>
 <p>http://t.cn/RyvLtnj //@一杯咖啡就瞌睡:瓦努阿图这国家在1980年以前，不存在，是英法殖民地，历史上也从无独立国家。换句话说，二战时，此岛是属于英法版图。按理说，应由宗主国代表出席阅兵。别整天以为打别人脸，自己闹笑话还不知。//@斯库里:桑托岛，瓦努阿图最大<br><br>RE: 参加中国阅兵的南太平洋国家瓦努阿图，1982年独立，人口20多万，被称为世界上最幸福国度。根本不知道什么是反法西斯战争。到北京打酱油的！<br><img src="http://ww1.sinaimg.cn/large/a04f9f0djw1evfabml79cj20go0b4405.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3880009318443450" target="freeweibo-mirror">回复@隔壁老屎:是，虽比不过斐济的重要性但也是相当关键的 /…</a>
 </h2>
 <p>回复@隔壁老屎:是，虽比不过斐济的重要性但也是相当关键的 //@隔壁老屎:回复@叫Ethan的Ted:这是美军的海军基地...别逗了 //@陶短房:帖主真不知太平洋战争时那里也是战区范围? //@巴黎赵永升_金融学:这个国家绝对重要！据说是多少年后海水一涨就会没了的那个国家。<br><br>RE: 参加中国阅兵的南太平洋国家瓦努阿图，1982年独立，人口20多万，被称为世界上最幸福国度。根本不知道什么是反法西斯战争。到北京打酱油的！<br><img src="http://ww1.sinaimg.cn/large/a04f9f0djw1evfabml79cj20go0b4405.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3880007782944299" target="freeweibo-mirror">//@鹰隼N1A晏欢: [弱][鄙视][吐]物以类聚 人以群…</a>
 </h2>
