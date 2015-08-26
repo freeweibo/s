@@ -20,6 +20,18 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3880189622349075" target="freeweibo-mirror">SPAM [吃惊] //@反烟人愚公在线:党校南门其题词被铲…</a>
+</h2>
+<p>SPAM [吃惊] //@反烟人愚公在线:党校南门其题词被铲之际，网络热传“其被控制”为题图片。 人们更关注在这时候突然有这样一张“其被控制”的图在流传，很多人很开心，正等着这一天的到来。</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3880166705343630" target="freeweibo-mirror">SPAM 既会讲英语又会说俄语的长者，素质还是不同的。 //…</a>
+</h2>
+<p>SPAM 既会讲英语又会说俄语的长者，素质还是不同的。 //@盘索:这论调是想说出砸盘的真像吗？[馋嘴]//@morningtiger:本来没股市还是能打65分的，现在直接38了<br><br>RE: 膜蛤，其实是因为对现状失望。</p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3880165622584572" target="freeweibo-mirror">SPAM 这论调是想说出砸盘的真像吗？[馋嘴]//@morn…</a>
 </h2>
 <p>SPAM 这论调是想说出砸盘的真像吗？[馋嘴]//@morningtiger:本来没股市还是能打65分的，现在直接38了<br><br>RE: 膜蛤，其实是因为对现状失望。</p>
@@ -127,18 +139,6 @@
 <p>SPAM 大屏幕。<br><img src="http://ww3.sinaimg.cn/large/488d2478jw1evfypdoqzhj20fh0a0q3g.jpg"></p>
 <p>
 	<small> ============== 8小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3880075600461656" target="freeweibo-mirror">小时无法理解会盟诸侯为什么算霸业。现在明了。1.阅兵时本地人…</a>
-</h2>
-<p>小时无法理解会盟诸侯为什么算霸业。现在明了。1.阅兵时本地人麻烦，老百姓怕你或者爱你，扛你折腾。2.来齐人很难3.暴秦来了，强楚就难请。4.看大国脸色的其他国更难请。5.派下大夫来，接待得一肚子火。6.小国来三五辆兵车，不够威。7.不开眼的国人野人问，这国旗不认识，莒邾滑豳，参加反戎之战了吗？</p>
-<p>
-	<small> ============== 8小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3880072555362372" target="freeweibo-mirror">//@诗人沙光:转。//@不白的淘宝:转。//@东岳晚晴:转…</a>
-</h2>
-<p>//@诗人沙光:转。//@不白的淘宝:转。//@东岳晚晴:转。//@假装是神枪手:转。//@励志思维:转。</p>
-<p>
-	<small> ============== 9小时前</small>
 </p>
 <table>
     <tr>
