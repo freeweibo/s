@@ -108,13 +108,13 @@
 </h2>
 <p>SPAM [doge]好好好<br><br>RE: 深夜食堂[馋嘴]<br><img src="http://ww2.sinaimg.cn/large/006cCSaggw1evf9vrh9h0j30mh0u0mz2.jpg"></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3879883429925496" target="freeweibo-mirror">天津塘沽大爆炸只是警告，真正的恶魔是核电站。 中国目前有17…</a>
 </h2>
 <p>天津塘沽大爆炸只是警告，真正的恶魔是核电站。 中国目前有17座核子反应炉在营运，30座在兴建，並计划再建造59座。 德国决定在2022年前关闭所有核电站，而意大利禁止核电站.核能反对者认为，核反应堆的一个主要缺点就是它面临着核事故和恐怖分子袭击的威胁，因大量平民都会受到辐射线的照射。（转）</p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3879881257030578" target="freeweibo-mirror">为这花点纳税人钱，怎么就不行？怎么就不行？怎么就不行？</a>
 </h2>
