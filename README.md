@@ -48,7 +48,7 @@
 </h2>
 <p>//@青岛记:我觉得右边是个色鬼[挖鼻]→_→//@我确实不是色鬼:炮架子、军妓而已!</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3880230517029274" target="freeweibo-mirror">[赞]//@如此而已也: [威武][赞]</a>
 </h2>
@@ -132,7 +132,7 @@
 </h2>
 <p>膜蛤，其实是因为对现状失望。</p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3880115559472847" target="freeweibo-mirror">语言学家王力的家乡在广西博白，文革中：一贫农子弟欲强奸一地主…</a>
 </h2>
