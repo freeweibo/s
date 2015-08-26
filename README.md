@@ -30,7 +30,7 @@
 </h2>
 <p>SPAM 不得围观？不得拍摄? 军令如山，我保证：我连电视也不看，让您放心。//@梅春来律师: 不得围观阅兵、不得拍摄阅兵？原来阅兵与我们无关，那些打了鸡血瞎激动的人民该怎么活啊！<br><br>RE: 呵呵<br><img src="http://ww3.sinaimg.cn/large/538aff2djw1evfcw7il0hj20go0m8mzg.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3880014313159939" target="freeweibo-mirror">SPAM [偷笑] //@行者老陈:要钱方阵</a>
 </h2>
@@ -86,6 +86,12 @@
 <p>
 	<small> ============== 4小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3880003093617743" target="freeweibo-mirror">//@任志强:没有笼子的约束。</a>
+</h2>
+<p>//@任志强:没有笼子的约束。<br><br>RE: 【任志强：五年规划没一个完成 但没有一个总理辞职】任志强又放炮了：“我们最大的问题是如果政府说了不做我们没有任何办法，从一五到十二五期间没有一个任务完成，但没有一个总理辞职。如果我们有办法能把权力关到笼子里，三中全会所有文件才有可能被落实。” http://t.cn/8FptQ4I<br><img src="http://ww1.sinaimg.cn/large/680d8f00gw1evfnum14n5j20a90cawf7.jpg"></p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3880000006586256" target="freeweibo-mirror">去看看参加阅兵式的是些什么国家 //@杨子评://@心苦每一…</a>
 </h2>
 <p>去看看参加阅兵式的是些什么国家 //@杨子评://@心苦每一天:走的时候顺点礼金，反正天朝有钱不要白不要。//@江北横财神:3月份刚给了三千万美金物资援助，原来是出场费，回头我也去非洲成立个国家，没事挣点钱花。<br><br>RE: 参加中国阅兵的南太平洋国家瓦努阿图，1982年独立，人口20多万，被称为世界上最幸福国度。根本不知道什么是反法西斯战争。到北京打酱油的！<br><img src="http://ww1.sinaimg.cn/large/a04f9f0djw1evfabml79cj20go0b4405.jpg"></p>
@@ -114,7 +120,7 @@
 </h2>
 <p>它们狼狈为奸。 //@猛虎啸林海: //@自由的小猪:转发微博</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3879990372829491" target="freeweibo-mirror">【任志强：五年规划没一个完成 但没有一个总理辞职】任志强又放…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3879977533768294" target="freeweibo-mirror">//@修竹415: 转发微博</a>
 </h2>
 <p>//@修竹415: 转发微博<br><br>RE: 发表了一篇转载博文《[转载]和平时候中国死了3千多万人。从国家主席，开国元帅，没有人出来道歉》http://t.cn/RyvEIda<br><img src="http://ww1.sinaimg.cn/large/62a91420jw1evfljiosxpj20c8085abk.jpg"></p>
-<p>
-	<small> ============== 5小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3879971954766318" target="freeweibo-mirror">金正恩心想，那次我们阅兵，你们让周永康来，就站在我爹俩旁边，…</a>
-</h2>
-<p>金正恩心想，那次我们阅兵，你们让周永康来，就站在我爹俩旁边，事后证明他是坏人，这不故意羞辱我们么？我要以其人之道还治其人之身，这次派崔龙海去，等他回来的……<br><img src="http://ww1.sinaimg.cn/large/4ce32014jw1evflq0n947j20cf08qwfg.jpg"></p>
 <p>
 	<small> ============== 6小时前</small>
 </p>
