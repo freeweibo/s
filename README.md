@@ -56,6 +56,12 @@
 <p>
 	<small> ============== 4小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3880156026221994" target="freeweibo-mirror">//@邓相超://@吴顾问1970: 邪恶的组织！扭曲变态的…</a>
+</h2>
+<p>//@邓相超://@吴顾问1970: 邪恶的组织！扭曲变态的制度！//@加菲炮1314cat://@刀锋论v: //@我的天空谁的城--:<br><br>RE: 语言学家王力的家乡在广西博白，文革中：一贫农子弟欲强奸一地主女儿，女不从，便将女先奸后杀。又到公社领导处要求入党、表扬：我对阶级敌人斗争坚决！领导说：光我们知道还不行，得让大家都了解你的事迹。该无赖将被害者头颅割下，到公社中学篮球场上以人头作球去投篮。大会表扬，光荣入党…【转】<br><img src="http://ww1.sinaimg.cn/large/0063XfN6jw1evg287kbx3j30gt0p2t9k.jpg"></p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3880144378598171" target="freeweibo-mirror">SPAM 发表了一篇转载博文《[转载]SOS！惊天大担心，当…</a>
 </h2>
 <p>SPAM 发表了一篇转载博文《[转载]SOS！惊天大担心，当今中国雪上加霜，内忧外患！！！》http://t.cn/RyPbh30<br><img src="http://ww2.sinaimg.cn/large/5408ee85jw1evg5jcw795j205k03pwef.jpg"></p>
@@ -90,7 +96,7 @@
 </h2>
 <p>首都是北京人民的，也是全国人民的，但归根结底，是志愿者，尤其是大妈们的。<br><img src="http://ww2.sinaimg.cn/large/61d634bajw1evg1arp661j20ku112jyu.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3880105174871908" target="freeweibo-mirror">SPAM 笑疯了，评价居然这么高//@菁瓜: 哈哈哈哈哈//…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3880093988749034" target="freeweibo-mirror">【救市受挫 中国总理面临困境】A股再度暴跌并引发全球市场动荡…</a>
 </h2>
 <p>【救市受挫 中国总理面临困境】A股再度暴跌并引发全球市场动荡，让中国救市计划的设计者陷入不妙的处境。外界认为北京方面对股灾及经济放缓应对不当，他是否会为此担责？http://t.cn/RyPzCky<br><img src="http://ww4.sinaimg.cn/large/6538fd8cgw1evfzqqf182j20go09et9b.jpg"></p>
-<p>
-	<small> ============== 8小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3880093321373119" target="freeweibo-mirror">SPAM 三炮方阵？ //@萝卜日报社:炮兵部队[嘻嘻]你懂…</a>
-</h2>
-<p>SPAM 三炮方阵？ //@萝卜日报社:炮兵部队[嘻嘻]你懂得<br><br>RE: “莞式月饼”你懂得！<br><img src="http://ww2.sinaimg.cn/large/005SuA62gw1evfqybsm0nj30gc0a675x.jpg"></p>
 <p>
 	<small> ============== 8小时前</small>
 </p>
