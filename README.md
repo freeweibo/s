@@ -24,7 +24,7 @@
 </h2>
 <p>SPAM [吃惊] //@反烟人愚公在线:党校南门其题词被铲之际，网络热传“其被控制”为题图片。 人们更关注在这时候突然有这样一张“其被控制”的图在流传，很多人很开心，正等着这一天的到来。</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3880166705343630" target="freeweibo-mirror">SPAM 既会讲英语又会说俄语的长者，素质还是不同的。 //…</a>
 </h2>
@@ -48,7 +48,7 @@
 </h2>
 <p>SPAM 发表了一篇转载博文《[转载]SOS！惊天大担心，当今中国雪上加霜，内忧外患！！！》http://t.cn/RyPbh30<br><img src="http://ww2.sinaimg.cn/large/5408ee85jw1evg5jcw795j205k03pwef.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3880138699479826" target="freeweibo-mirror">SPAM 日本综艺之火车钻洞测胸....http://t.c…</a>
 </h2>
