@@ -96,7 +96,7 @@
 </h2>
 <p>【香港人的历史是非感】香港TVB昨晚的抗战特辑，用五星红旗代表台儿庄战役的中国军队，结果一天之內超过600人投诉到通讯局，指內容与史实不符、误导公众。今晚，TVB道歉并更正相关画面。天下本无事，庸人自扰之。中国内地将毛泽东做开罗宣言海报，目前无人公开致歉！<br><img src="http://ww2.sinaimg.cn/large/6a80bfcdjw1evg0pwkxnkj20f00qo0v1.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3880099813928757" target="freeweibo-mirror">FT要闹哪样？一周前FT发文“周小川：中国改革派的央行行长”…</a>
 </h2>
