@@ -78,7 +78,7 @@
 </h2>
 <p>首都是北京人民的，也是全国人民的，但归根结底，是志愿者，尤其是大妈们的。<br><img src="http://ww2.sinaimg.cn/large/61d634bajw1evg1arp661j20ku112jyu.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3880105174871908" target="freeweibo-mirror">SPAM 笑疯了，评价居然这么高//@菁瓜: 哈哈哈哈哈//…</a>
 </h2>
