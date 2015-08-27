@@ -54,7 +54,7 @@
 </h2>
 <p>SPAM 啊啊啊啊啊啊啊啊啊啊啊啊啊啊啊啊//@大圣的妖纹:我升天。</p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3880604309149994" target="freeweibo-mirror">//@天圆地方3511E: 在爆炸前的生活中，当他们见到不公…</a>
 </h2>
