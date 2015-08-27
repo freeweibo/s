@@ -42,13 +42,13 @@
 </h2>
 <p>总理阁下圣明！可是，活活地将大米从三毛钱一斤，生生鼓捣到三块钱一斤，需要多少届总理的共同努力呀！</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3880245348284039" target="freeweibo-mirror">SPAM //@当律师的陈刚: 王立军和溥熙来不知怎么想 /…</a>
 </h2>
 <p>SPAM //@当律师的陈刚: 王立军和溥熙来不知怎么想 //@彭园v:</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3880243867663434" target="freeweibo-mirror">总理阁下圣明！您知道，那时候大米三毛钱一斤，现在三块钱一斤。…</a>
 </h2>
