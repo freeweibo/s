@@ -54,7 +54,13 @@
 </h2>
 <p>SPAM #军训进行时# 看着一支支不知番号的戎装队伍，记起毛伟人说过的话：学生要以学为主，兼学别样，既不但学文，也要学工、学农、学军……。纵观象牙塔里培育出的雨后春笋般的“小眼镜”，愈发觉得伟人的话震耳发聩。但不知入学“军训”是什么目的，能起到什么作用——是“学军”吗？<br><img src="http://ww2.sinaimg.cn/large/7ca637f5jw1evhc6zsivwj218g0p0jy5.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3880515385610670" target="freeweibo-mirror">在哈佛大学的一次演讲中，希拉里说：“中国百分之八九十的权贵亲…</a>
+</h2>
+<p>在哈佛大学的一次演讲中，希拉里说：“中国百分之八九十的权贵亲属都在申请移民或打算移民，作为统治阶层这样做，让人不解！为什么它们自己都不相信这个国家的未来？” PS：有谁见过贼会安心的留在被盗人的家里？<br><img src="http://ww3.sinaimg.cn/large/006br3uPgw1evhc5atbzfj307i077q39.jpg"></p>
+<p>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3880511624175412" target="freeweibo-mirror">#天津塘沽大爆炸# 天津受难业主去市政府请愿 ，不让他们录视…</a>
 </h2>
@@ -120,23 +126,17 @@
 </h2>
 <p>感觉我们大陆的历史课本确实谎言太多。上学时候，抗日战场一直是国军的正面战场、共军的敌后战场与世界反法西斯的国际战场三大块儿。后来上网，才发现哪有什么正面战场，根本是一个失败连着又一个失败、永远在丢失国土的国军会战而已。。。。。。唉，大陆历史课本的真实度太低了</p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3880421345019814" target="freeweibo-mirror">SPAM 哈哈，以丢人现眼的方式，信心满满地展示大锅形象。</a>
 </h2>
 <p>SPAM 哈哈，以丢人现眼的方式，信心满满地展示大锅形象。<br><img src="http://ww1.sinaimg.cn/large/65cfb01djw1evh1cfkbnzj20ha09amy9.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3880396515276893" target="freeweibo-mirror">SPAM 各位道长应该划归空军吧，排在武直十的后面//@老刀…</a>
 </h2>
 <p>SPAM 各位道长应该划归空军吧，排在武直十的后面//@老刀99: [哈哈] //@五岳散人:[嘻嘻]</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3880391234361386" target="freeweibo-mirror">SPAM 不是应该北斗七星阵吗？</a>
-</h2>
-<p>SPAM 不是应该北斗七星阵吗？</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
