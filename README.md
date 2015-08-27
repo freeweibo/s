@@ -54,7 +54,7 @@
 </h2>
 <p>SPAM 王立军和溥熙来不知怎么想 //@彭园v:</p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3880239773675016" target="freeweibo-mirror">//@青岛记:我觉得右边是个色鬼[挖鼻]→_→//@我确实不…</a>
 </h2>
@@ -84,7 +84,7 @@
 </h2>
 <p>★【纪念邓小平只是一种政治的需要】邓小平死后，其实并没有人怀念他，民间对他充满着仇恨，尤其遭到广大劳动人民的唾弃，而只那些怀有不同政治目的政客们惺惺作态，故作娇嗔。国家怀念邓小平只是一种政治的需要，当他这杆旗没有了利用价值后，自然就成了被社会遗弃的垃圾，永远消失在历史的长河中。<br><img src="http://ww1.sinaimg.cn/large/9fa72927jw1evgcfbgfjsj207808n74o.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3880189622349075" target="freeweibo-mirror">SPAM [吃惊] //@反烟人愚公在线:党校南门其题词被铲…</a>
 </h2>
