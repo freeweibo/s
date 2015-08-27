@@ -20,6 +20,18 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3880430396580894" target="freeweibo-mirror">SPAM  //@记录者棍客:崛起的民主大国</a>
+</h2>
+<p>SPAM  //@记录者棍客:崛起的民主大国</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3880421345019814" target="freeweibo-mirror">SPAM 哈哈，以丢人现眼的方式，信心满满地展示大锅形象。</a>
+</h2>
+<p>SPAM 哈哈，以丢人现眼的方式，信心满满地展示大锅形象。<br><img src="http://ww1.sinaimg.cn/large/65cfb01djw1evh1cfkbnzj20ha09amy9.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3880396515276893" target="freeweibo-mirror">SPAM 各位道长应该划归空军吧，排在武直十的后面//@老刀…</a>
 </h2>
 <p>SPAM 各位道长应该划归空军吧，排在武直十的后面//@老刀99: [哈哈] //@五岳散人:[嘻嘻]</p>
@@ -125,18 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3880159931006537" target="freeweibo-mirror">SPAM 这个还不算法西斯暴行？//@绍兴师爷在北京: 如此…</a>
 </h2>
 <p>SPAM 这个还不算法西斯暴行？//@绍兴师爷在北京: 如此灭绝人性、惨绝人寰的人类史上灾难，近五十年来，不仅没有得到彻底的清算，相反，还在不择手段设立禁区，阻止还原真相。 //@开心的雪-:毛骨悚然[黑线]</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3880158961960454" target="freeweibo-mirror">【谁能治出这样的国来？】满地贪官，无官不贪；大官裸身，小官裸…</a>
-</h2>
-<p>【谁能治出这样的国来？】满地贪官，无官不贪；大官裸身，小官裸体；官不畏道，民不畏法；政者无信，商者无德；学而无教，劳而无获；见人坑人，见爹坑爹；女人卖色，男人卖德；上无蓝天，下无绿水，上上下下，龌龌龊龊……这样的国家是人给治出来的吗？</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3880156026221994" target="freeweibo-mirror">//@邓相超://@吴顾问1970: 邪恶的组织！扭曲变态的…</a>
-</h2>
-<p>//@邓相超://@吴顾问1970: 邪恶的组织！扭曲变态的制度！//@加菲炮1314cat://@刀锋论v: //@我的天空谁的城--:<br><br>RE: 语言学家王力的家乡在广西博白，文革中：一贫农子弟欲强奸一地主女儿，女不从，便将女先奸后杀。又到公社领导处要求入党、表扬：我对阶级敌人斗争坚决！领导说：光我们知道还不行，得让大家都了解你的事迹。该无赖将被害者头颅割下，到公社中学篮球场上以人头作球去投篮。大会表扬，光荣入党…【转】<br><img src="http://ww1.sinaimg.cn/large/0063XfN6jw1evg287kbx3j30gt0p2t9k.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
