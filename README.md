@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3880476702252170" target="freeweibo-mirror">//@迈阿密OmiamiOQ: //@福建郑开明:我爱北京天…</a>
+</h2>
+<p>//@迈阿密OmiamiOQ: //@福建郑开明:我爱北京天安门[愛你] //@世界是他们的51: //@幽曾I:好//@Leslie_群峰://@核平脂拿: //@羽HHW: 正能量啊。//@改制05:真得感谢党，还给安排它处。<br><br>RE: “楼对面的楼顶有狙击手，家里必须没人”。法西尸大月饼我们吃不起<br><img src="http://ww4.sinaimg.cn/large/005CsTSHgw1evh29ix9thj30gn0m00wu.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3880455784418315" target="freeweibo-mirror">哇 //@文盲李世威:[吃惊]//@贺江兵:[色] //@教…</a>
 </h2>
 <p>哇 //@文盲李世威:[吃惊]//@贺江兵:[色] //@教育不是忽悠人:这难道是抱着看车模的心情看阅兵？//@罗争eedoo://@程中柳://@陈业文新大都:军费开支。 //@易水寒凌:与时俱进：焦距腿、胸、臀、脸，吓死一切反动派。<br><br>RE: 【 海外报道 】曾获得央视大赛十佳模特的车模 门佳慧，出现在阅兵队伍中 ...<br><img src="http://ww3.sinaimg.cn/large/005Rlda6gw1evglhz96olj30am0gzabx.jpg"></p>
@@ -36,7 +42,7 @@
 </h2>
 <p>SPAM 还有9站才到家，我还是先刷会吧</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3880438693106655" target="freeweibo-mirror">SPAM “ 平均年龄20岁，大学及以上学历达88%” ？几…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3880228839586106" target="freeweibo-mirror"></a>
 </h2>
 <p></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3880227995996298" target="freeweibo-mirror">他是“特色”的旗帜，绝非社会主义的旗帜！</a>
-</h2>
-<p>他是“特色”的旗帜，绝非社会主义的旗帜！<br><br>RE: ★【纪念邓小平只是一种政治的需要】邓小平死后，其实并没有人怀念他，民间对他充满着仇恨，尤其遭到广大劳动人民的唾弃，而只那些怀有不同政治目的政客们惺惺作态，故作娇嗔。国家怀念邓小平只是一种政治的需要，当他这杆旗没有了利用价值后，自然就成了被社会遗弃的垃圾，永远消失在历史的长河中。<br><img src="http://ww1.sinaimg.cn/large/9fa72927jw1evgcfbgfjsj207808n74o.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
