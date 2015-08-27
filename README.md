@@ -44,6 +44,12 @@
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3880436906326774" target="freeweibo-mirror">#午间话题讨论#不回购，不回家。应不应该回购？由谁来回购？</a>
+</h2>
+<p>#午间话题讨论#不回购，不回家。应不应该回购？由谁来回购？<br><img src="http://ww1.sinaimg.cn/large/88678931jw1evh34j9cjxj20hs0dcdis.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3880430396580894" target="freeweibo-mirror">SPAM  //@记录者棍客:崛起的民主大国</a>
 </h2>
 <p>SPAM  //@记录者棍客:崛起的民主大国</p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3880227995996298" target="freeweibo-mirror">他是“特色”的旗帜，绝非社会主义的旗帜！</a>
 </h2>
 <p>他是“特色”的旗帜，绝非社会主义的旗帜！<br><br>RE: ★【纪念邓小平只是一种政治的需要】邓小平死后，其实并没有人怀念他，民间对他充满着仇恨，尤其遭到广大劳动人民的唾弃，而只那些怀有不同政治目的政客们惺惺作态，故作娇嗔。国家怀念邓小平只是一种政治的需要，当他这杆旗没有了利用价值后，自然就成了被社会遗弃的垃圾，永远消失在历史的长河中。<br><img src="http://ww1.sinaimg.cn/large/9fa72927jw1evgcfbgfjsj207808n74o.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3880204357762584" target="freeweibo-mirror">★【纪念邓小平只是一种政治的需要】邓小平死后，其实并没有人怀…</a>
-</h2>
-<p>★【纪念邓小平只是一种政治的需要】邓小平死后，其实并没有人怀念他，民间对他充满着仇恨，尤其遭到广大劳动人民的唾弃，而只那些怀有不同政治目的政客们惺惺作态，故作娇嗔。国家怀念邓小平只是一种政治的需要，当他这杆旗没有了利用价值后，自然就成了被社会遗弃的垃圾，永远消失在历史的长河中。<br><img src="http://ww1.sinaimg.cn/large/9fa72927jw1evgcfbgfjsj207808n74o.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
