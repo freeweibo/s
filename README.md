@@ -26,6 +26,12 @@
 <p>
 	<small> ============== 1小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3880451192121297" target="freeweibo-mirror">同问！</a>
+</h2>
+<p>同问！<br><br>RE: #午间话题讨论#不回购，不回家。应不应该回购？由谁来回购？<br><img src="http://ww1.sinaimg.cn/large/88678931jw1evh34j9cjxj20hs0dcdis.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3880440023123648" target="freeweibo-mirror">SPAM 还有9站才到家，我还是先刷会吧</a>
 </h2>
 <p>SPAM 还有9站才到家，我还是先刷会吧</p>
@@ -36,7 +42,7 @@
 </h2>
 <p>SPAM “ 平均年龄20岁，大学及以上学历达88%” ？几岁大学毕业？？？[吃惊]<br><br>RE: #9.3天安门大阅兵#【瞧瞧咱女兵的颜值[赞] 有队员曾是“十佳模特”】参加此次阅兵的三军仪仗队女队员平均身高1.78，平均年龄20岁，大学及以上学历达88%，颜值爆表。其中一位队员@西门佳慧，曾获央视模特大赛全国十佳。可在训练场上她们没有丝毫娇气,站立2小时不动,正步行进200米不变形…她们准备好了！<br><img src="http://ww2.sinaimg.cn/large/6a5ce645jw1evfzq1q7t5j20q40hdgng.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3880430396580894" target="freeweibo-mirror">SPAM  //@记录者棍客:崛起的民主大国</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3880204357762584" target="freeweibo-mirror">★【纪念邓小平只是一种政治的需要】邓小平死后，其实并没有人怀…</a>
 </h2>
 <p>★【纪念邓小平只是一种政治的需要】邓小平死后，其实并没有人怀念他，民间对他充满着仇恨，尤其遭到广大劳动人民的唾弃，而只那些怀有不同政治目的政客们惺惺作态，故作娇嗔。国家怀念邓小平只是一种政治的需要，当他这杆旗没有了利用价值后，自然就成了被社会遗弃的垃圾，永远消失在历史的长河中。<br><img src="http://ww1.sinaimg.cn/large/9fa72927jw1evgcfbgfjsj207808n74o.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3880189622349075" target="freeweibo-mirror">SPAM [吃惊] //@反烟人愚公在线:党校南门其题词被铲…</a>
-</h2>
-<p>SPAM [吃惊] //@反烟人愚公在线:党校南门其题词被铲之际，网络热传“其被控制”为题图片。 人们更关注在这时候突然有这样一张“其被控制”的图在流传，很多人很开心，正等着这一天的到来。</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
