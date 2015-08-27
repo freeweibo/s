@@ -24,7 +24,7 @@
 </h2>
 <p>SPAM 还有9站才到家，我还是先刷会吧</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3880430396580894" target="freeweibo-mirror">SPAM  //@记录者棍客:崛起的民主大国</a>
 </h2>
