@@ -72,7 +72,7 @@
 </h2>
 <p>#午间话题讨论#不回购，不回家。应不应该回购？由谁来回购？<br><img src="http://ww1.sinaimg.cn/large/88678931jw1evh34j9cjxj20hs0dcdis.jpg"></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3880430396580894" target="freeweibo-mirror">SPAM  //@记录者棍客:崛起的民主大国</a>
 </h2>
