@@ -38,6 +38,12 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3880568708107000" target="freeweibo-mirror">#知政#【人民网总裁廖玒被调查】据南方周末报道，多个可靠消息…</a>
+</h2>
+<p>#知政#【人民网总裁廖玒被调查】据南方周末报道，多个可靠消息源对记者确认，人民网副董事长、总裁廖玒，近日被检察机关带走调查。消息人士称，廖玒被调查，与2015年5月人民网副总编辑徐辉案或有关联。廖玒8月19日还参加深圳举办的2015媒体融合发展论坛。http://t.cn/RyhU7a4<br><img src="http://ww4.sinaimg.cn/large/60718250jw1evhi9czp64j20fa0a63yw.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3880560353356792" target="freeweibo-mirror">不添麻烦。</a>
 </h2>
 <p>不添麻烦。<br><img src="http://ww1.sinaimg.cn/large/9ddb72ebjw1evhhb7oyi4j20qo0h7q6s.jpg"></p>
@@ -96,7 +102,7 @@
 </h2>
 <p>#午间话题讨论#不回购，不回家。应不应该回购？由谁来回购？<br><img src="http://ww1.sinaimg.cn/large/88678931jw1evh34j9cjxj20hs0dcdis.jpg"></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3880430396580894" target="freeweibo-mirror">SPAM  //@记录者棍客:崛起的民主大国</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3880391234361386" target="freeweibo-mirror">SPAM 不是应该北斗七星阵吗？</a>
 </h2>
 <p>SPAM 不是应该北斗七星阵吗？</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3880345013142502" target="freeweibo-mirror">[笑哈哈] //@麒哥归来:[笑哈哈]//@杨佩昌:[笑哈哈…</a>
-</h2>
-<p>[笑哈哈] //@麒哥归来:[笑哈哈]//@杨佩昌:[笑哈哈]//@价值诠释:[笑哈哈]//@浩正刘臻:[笑哈哈]//@张晨初艺术空间:[笑哈哈]//@独孤一剑长啸:[笑哈哈]//@我是西蒙周:大数据时代啊！<br><br>RE: 女兵方阵平均年龄20岁，大学及以上学历占88%……大学及以上学历咱就按照大学学历来算，大学毕业22岁。88%的人超过22岁，也就是说剩下的12%年龄应该在5.3岁以内。这些女兵不到5岁半就能长到1.78米的身高，真是一大群巨婴来的！当然，也或者那88%都是少年天才，14岁上大学……<br><img src="http://ww4.sinaimg.cn/large/70619764jw1evg47e3joej20bq0hlq4h.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
