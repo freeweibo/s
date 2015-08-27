@@ -42,7 +42,7 @@
 </h2>
 <p>SPAM 各位道长应该划归空军吧，排在武直十的后面//@老刀99: [哈哈] //@五岳散人:[嘻嘻]</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3880391234361386" target="freeweibo-mirror">SPAM 不是应该北斗七星阵吗？</a>
 </h2>
