@@ -38,6 +38,18 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3880602962744363" target="freeweibo-mirror">在爆炸前的生活中，当他们见到不公时，是旁观、沉默还是支持维权…</a>
+</h2>
+<p>在爆炸前的生活中，当他们见到不公时，是旁观、沉默还是支持维权人士？//@只配叫猪猪: //@只配抬杠杠杠: 这还有一个， http://t.cn/Ryhqggs<br><br>RE: 今天天津市政府门口，受难业主请愿 ，不让他们录视频，抢手机打人撕扯衣服 最后直接把业主抬走 [伤心] via @何以生姜末 http://t.cn/RyPB8vK</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3880602237223230" target="freeweibo-mirror">//@灵魂绽放-TX:转发微博</a>
+</h2>
+<p>//@灵魂绽放-TX:转发微博</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3880595593725186" target="freeweibo-mirror">SPAM 不能我一个人看，分享给大家~[阴险]</a>
 </h2>
 <p>SPAM 不能我一个人看，分享给大家~[阴险]</p>
@@ -125,18 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3880518876090227" target="freeweibo-mirror">SPAM #军训进行时# 看着一支支不知番号的戎装队伍，记起…</a>
 </h2>
 <p>SPAM #军训进行时# 看着一支支不知番号的戎装队伍，记起毛伟人说过的话：学生要以学为主，兼学别样，既不但学文，也要学工、学农、学军……。纵观象牙塔里培育出的雨后春笋般的“小眼镜”，愈发觉得伟人的话震耳发聩。但不知入学“军训”是什么目的，能起到什么作用——是“学军”吗？<br><img src="http://ww2.sinaimg.cn/large/7ca637f5jw1evhc6zsivwj218g0p0jy5.jpg"></p>
-<p>
-	<small> ============== 8小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3880515385610670" target="freeweibo-mirror">在哈佛大学的一次演讲中，希拉里说：“中国百分之八九十的权贵亲…</a>
-</h2>
-<p>在哈佛大学的一次演讲中，希拉里说：“中国百分之八九十的权贵亲属都在申请移民或打算移民，作为统治阶层这样做，让人不解！为什么它们自己都不相信这个国家的未来？” PS：有谁见过贼会安心的留在被盗人的家里？<br><img src="http://ww3.sinaimg.cn/large/006br3uPgw1evhc5atbzfj307i077q39.jpg"></p>
-<p>
-	<small> ============== 8小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3880511624175412" target="freeweibo-mirror">#天津塘沽大爆炸# 天津受难业主去市政府请愿 ，不让他们录视…</a>
-</h2>
-<p>#天津塘沽大爆炸# 天津受难业主去市政府请愿 ，不让他们录视频，抢手机打人撕扯衣服 最后直接把业主抬走 [伤心] via @何以生姜末 http://t.cn/RyPB8vK</p>
 <p>
 	<small> ============== 8小时前</small>
 </p>
