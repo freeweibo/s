@@ -48,7 +48,7 @@
 </h2>
 <p>总理阁下圣明！您知道，那时候大米三毛钱一斤，现在三块钱一斤。您圣明！</p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3880241917713333" target="freeweibo-mirror">SPAM 王立军和溥熙来不知怎么想 //@彭园v:</a>
 </h2>
