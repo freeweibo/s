@@ -24,7 +24,7 @@
 </h2>
 <p>SPAM #军训进行时# 看着一支支不知番号的戎装队伍，记起毛伟人说过的话：学生要以学为主，兼学别样，既不但学文，也要学工、学农、学军……。纵观象牙塔里培育出的雨后春笋般的“小眼镜”，愈发觉得伟人的话震耳发聩。但不知入学“军训”是什么目的，能起到什么作用——是“学军”吗？<br><img src="http://ww2.sinaimg.cn/large/7ca637f5jw1evhc6zsivwj218g0p0jy5.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3880476702252170" target="freeweibo-mirror">//@迈阿密OmiamiOQ: //@福建郑开明:我爱北京天…</a>
 </h2>
