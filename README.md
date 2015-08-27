@@ -68,6 +68,12 @@
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3880592376737899" target="freeweibo-mirror">今天天津市政府门口，受难业主请愿 ，不让他们录视频，抢手机打…</a>
+</h2>
+<p>今天天津市政府门口，受难业主请愿 ，不让他们录视频，抢手机打人撕扯衣服 最后直接把业主抬走 [伤心] via @何以生姜末 http://t.cn/RyPB8vK</p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3880591742776346" target="freeweibo-mirror">律师有免罪金牌？丹书铁卷？难道成了律师，就可以不受法律约束了…</a>
 </h2>
 <p>律师有免罪金牌？丹书铁卷？难道成了律师，就可以不受法律约束了？<br><br>RE: 已经忍了48小时！只有到温州公安要说法了。张凯案律师团已经组建，详细信息很快发布。请大家关注！@平安温州<br><img src="http://ww4.sinaimg.cn/large/728e6175jw1evhjiytcaxj20hs0ugjw9.jpg"></p>
@@ -133,12 +139,6 @@
 <p>不添麻烦。<br><img src="http://ww1.sinaimg.cn/large/9ddb72ebjw1evhhb7oyi4j20qo0h7q6s.jpg"></p>
 <p>
 	<small> ============== 5小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3880518876090227" target="freeweibo-mirror">SPAM #军训进行时# 看着一支支不知番号的戎装队伍，记起…</a>
-</h2>
-<p>SPAM #军训进行时# 看着一支支不知番号的戎装队伍，记起毛伟人说过的话：学生要以学为主，兼学别样，既不但学文，也要学工、学农、学军……。纵观象牙塔里培育出的雨后春笋般的“小眼镜”，愈发觉得伟人的话震耳发聩。但不知入学“军训”是什么目的，能起到什么作用——是“学军”吗？<br><img src="http://ww2.sinaimg.cn/large/7ca637f5jw1evhc6zsivwj218g0p0jy5.jpg"></p>
-<p>
-	<small> ============== 8小时前</small>
 </p>
 <table>
     <tr>
