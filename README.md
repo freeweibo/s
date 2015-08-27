@@ -20,6 +20,18 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3880591742776346" target="freeweibo-mirror">律师有免罪金牌？丹书铁卷？难道成了律师，就可以不受法律约束了…</a>
+</h2>
+<p>律师有免罪金牌？丹书铁卷？难道成了律师，就可以不受法律约束了？<br><br>RE: 已经忍了48小时！只有到温州公安要说法了。张凯案律师团已经组建，详细信息很快发布。请大家关注！@平安温州<br><img src="http://ww4.sinaimg.cn/large/728e6175jw1evhjiytcaxj20hs0ugjw9.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3880579785639112" target="freeweibo-mirror">SPAM  //@雁塔小木屋4:赞一个，够不要脸//@王修2…</a>
+</h2>
+<p>SPAM  //@雁塔小木屋4:赞一个，够不要脸//@王修216: [good]//@夜之沉风:这一种吃自己大便的勇气[good]</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3880571920925520" target="freeweibo-mirror">邓亚萍呢？//@北京李清: 转发微博</a>
 </h2>
 <p>邓亚萍呢？//@北京李清: 转发微博<br><br>RE: #知政#【人民网总裁廖玒被调查】据南方周末报道，多个可靠消息源对记者确认，人民网副董事长、总裁廖玒，近日被检察机关带走调查。消息人士称，廖玒被调查，与2015年5月人民网副总编辑徐辉案或有关联。廖玒8月19日还参加深圳举办的2015媒体融合发展论坛。http://t.cn/RyhU7a4<br><img src="http://ww4.sinaimg.cn/large/60718250jw1evhi9czp64j20fa0a63yw.jpg"></p>
@@ -72,7 +84,7 @@
 </h2>
 <p>//@迈阿密OmiamiOQ: //@福建郑开明:我爱北京天安门[愛你] //@世界是他们的51: //@幽曾I:好//@Leslie_群峰://@核平脂拿: //@羽HHW: 正能量啊。//@改制05:真得感谢党，还给安排它处。<br><br>RE: “楼对面的楼顶有狙击手，家里必须没人”。法西尸大月饼我们吃不起<br><img src="http://ww4.sinaimg.cn/large/005CsTSHgw1evh29ix9thj30gn0m00wu.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3880472729923032" target="freeweibo-mirror">[笑cry]//@爱民如子汤恩伯:看媒体吹45年国军反攻，然…</a>
 </h2>
@@ -114,7 +126,7 @@
 </h2>
 <p>SPAM  //@记录者棍客:崛起的民主大国</p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3880429339416438" target="freeweibo-mirror">“楼对面的楼顶有狙击手，家里必须没人”。法西尸大月饼我们吃不…</a>
 </h2>
@@ -127,18 +139,6 @@
 <p>感觉我们大陆的历史课本确实谎言太多。上学时候，抗日战场一直是国军的正面战场、共军的敌后战场与世界反法西斯的国际战场三大块儿。后来上网，才发现哪有什么正面战场，根本是一个失败连着又一个失败、永远在丢失国土的国军会战而已。。。。。。唉，大陆历史课本的真实度太低了</p>
 <p>
 	<small> ============== 12小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3880421345019814" target="freeweibo-mirror">SPAM 哈哈，以丢人现眼的方式，信心满满地展示大锅形象。</a>
-</h2>
-<p>SPAM 哈哈，以丢人现眼的方式，信心满满地展示大锅形象。<br><img src="http://ww1.sinaimg.cn/large/65cfb01djw1evh1cfkbnzj20ha09amy9.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3880396515276893" target="freeweibo-mirror">SPAM 各位道长应该划归空军吧，排在武直十的后面//@老刀…</a>
-</h2>
-<p>SPAM 各位道长应该划归空军吧，排在武直十的后面//@老刀99: [哈哈] //@五岳散人:[嘻嘻]</p>
-<p>
-	<small> ============== 1天前</small>
 </p>
 <table>
     <tr>
