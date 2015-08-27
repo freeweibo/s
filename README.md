@@ -20,11 +20,17 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3880518876090227" target="freeweibo-mirror">SPAM #军训进行时# 看着一支支不知番号的戎装队伍，记起…</a>
+</h2>
+<p>SPAM #军训进行时# 看着一支支不知番号的戎装队伍，记起毛伟人说过的话：学生要以学为主，兼学别样，既不但学文，也要学工、学农、学军……。纵观象牙塔里培育出的雨后春笋般的“小眼镜”，愈发觉得伟人的话震耳发聩。但不知入学“军训”是什么目的，能起到什么作用——是“学军”吗？<br><img src="http://ww2.sinaimg.cn/large/7ca637f5jw1evhc6zsivwj218g0p0jy5.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3880476702252170" target="freeweibo-mirror">//@迈阿密OmiamiOQ: //@福建郑开明:我爱北京天…</a>
 </h2>
 <p>//@迈阿密OmiamiOQ: //@福建郑开明:我爱北京天安门[愛你] //@世界是他们的51: //@幽曾I:好//@Leslie_群峰://@核平脂拿: //@羽HHW: 正能量啊。//@改制05:真得感谢党，还给安排它处。<br><br>RE: “楼对面的楼顶有狙击手，家里必须没人”。法西尸大月饼我们吃不起<br><img src="http://ww4.sinaimg.cn/large/005CsTSHgw1evh29ix9thj30gn0m00wu.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3880472729923032" target="freeweibo-mirror">[笑cry]//@爱民如子汤恩伯:看媒体吹45年国军反攻，然…</a>
 </h2>
@@ -66,7 +72,7 @@
 </h2>
 <p>SPAM  //@记录者棍客:崛起的民主大国</p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3880429339416438" target="freeweibo-mirror">“楼对面的楼顶有狙击手，家里必须没人”。法西尸大月饼我们吃不…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3880243867663434" target="freeweibo-mirror">总理阁下圣明！您知道，那时候大米三毛钱一斤，现在三块钱一斤。…</a>
 </h2>
 <p>总理阁下圣明！您知道，那时候大米三毛钱一斤，现在三块钱一斤。您圣明！</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3880241917713333" target="freeweibo-mirror">SPAM 王立军和溥熙来不知怎么想 //@彭园v:</a>
-</h2>
-<p>SPAM 王立军和溥熙来不知怎么想 //@彭园v:</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
