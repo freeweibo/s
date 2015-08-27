@@ -60,7 +60,7 @@
 </h2>
 <p>#午间话题讨论#不回购，不回家。应不应该回购？由谁来回购？<br><img src="http://ww1.sinaimg.cn/large/88678931jw1evh34j9cjxj20hs0dcdis.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3880430396580894" target="freeweibo-mirror">SPAM  //@记录者棍客:崛起的民主大国</a>
 </h2>
@@ -71,6 +71,12 @@
 	<a href="https://freeweibo.com/weibo/3880429339416438" target="freeweibo-mirror">“楼对面的楼顶有狙击手，家里必须没人”。法西尸大月饼我们吃不…</a>
 </h2>
 <p>“楼对面的楼顶有狙击手，家里必须没人”。法西尸大月饼我们吃不起<br><img src="http://ww4.sinaimg.cn/large/005CsTSHgw1evh29ix9thj30gn0m00wu.jpg"></p>
+<p>
+	<small> ============== 5小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3880428916158994" target="freeweibo-mirror">感觉我们大陆的历史课本确实谎言太多。上学时候，抗日战场一直是…</a>
+</h2>
+<p>感觉我们大陆的历史课本确实谎言太多。上学时候，抗日战场一直是国军的正面战场、共军的敌后战场与世界反法西斯的国际战场三大块儿。后来上网，才发现哪有什么正面战场，根本是一个失败连着又一个失败、永远在丢失国土的国军会战而已。。。。。。唉，大陆历史课本的真实度太低了</p>
 <p>
 	<small> ============== 5小时前</small>
 </p><h2>
@@ -90,7 +96,7 @@
 </h2>
 <p>SPAM 不是应该北斗七星阵吗？</p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3880345013142502" target="freeweibo-mirror">[笑哈哈] //@麒哥归来:[笑哈哈]//@杨佩昌:[笑哈哈…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3880241917713333" target="freeweibo-mirror">SPAM 王立军和溥熙来不知怎么想 //@彭园v:</a>
 </h2>
 <p>SPAM 王立军和溥熙来不知怎么想 //@彭园v:</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3880239773675016" target="freeweibo-mirror">//@青岛记:我觉得右边是个色鬼[挖鼻]→_→//@我确实不…</a>
-</h2>
-<p>//@青岛记:我觉得右边是个色鬼[挖鼻]→_→//@我确实不是色鬼:炮架子、军妓而已!</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
