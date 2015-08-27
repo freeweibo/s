@@ -48,7 +48,7 @@
 </h2>
 <p>律师有免罪金牌？丹书铁卷？难道成了律师，就可以不受法律约束了？<br><br>RE: 已经忍了48小时！只有到温州公安要说法了。张凯案律师团已经组建，详细信息很快发布。请大家关注！@平安温州<br><img src="http://ww4.sinaimg.cn/large/728e6175jw1evhjiytcaxj20hs0ugjw9.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3880589860187159" target="freeweibo-mirror">死磕律师开始表演了，亲自上了，发了声明，此前是委托别人发的…</a>
 </h2>
