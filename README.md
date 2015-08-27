@@ -54,7 +54,7 @@
 </h2>
 <p>SPAM  //@记录者棍客:崛起的民主大国</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3880421345019814" target="freeweibo-mirror">SPAM 哈哈，以丢人现眼的方式，信心满满地展示大锅形象。</a>
 </h2>
