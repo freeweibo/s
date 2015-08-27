@@ -72,13 +72,13 @@
 </h2>
 <p>“楼对面的楼顶有狙击手，家里必须没人”。法西尸大月饼我们吃不起<br><img src="http://ww4.sinaimg.cn/large/005CsTSHgw1evh29ix9thj30gn0m00wu.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3880428916158994" target="freeweibo-mirror">感觉我们大陆的历史课本确实谎言太多。上学时候，抗日战场一直是…</a>
 </h2>
 <p>感觉我们大陆的历史课本确实谎言太多。上学时候，抗日战场一直是国军的正面战场、共军的敌后战场与世界反法西斯的国际战场三大块儿。后来上网，才发现哪有什么正面战场，根本是一个失败连着又一个失败、永远在丢失国土的国军会战而已。。。。。。唉，大陆历史课本的真实度太低了</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3880421345019814" target="freeweibo-mirror">SPAM 哈哈，以丢人现眼的方式，信心满满地展示大锅形象。</a>
 </h2>
