@@ -48,7 +48,7 @@
 </h2>
 <p>不添麻烦。<br><img src="http://ww1.sinaimg.cn/large/9ddb72ebjw1evhhb7oyi4j20qo0h7q6s.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3880518876090227" target="freeweibo-mirror">SPAM #军训进行时# 看着一支支不知番号的戎装队伍，记起…</a>
 </h2>
@@ -90,7 +90,7 @@
 </h2>
 <p>SPAM 还有9站才到家，我还是先刷会吧</p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3880438693106655" target="freeweibo-mirror">SPAM “ 平均年龄20岁，大学及以上学历达88%” ？几…</a>
 </h2>
