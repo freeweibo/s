@@ -48,13 +48,13 @@
 </h2>
 <p>SPAM  //@雁塔小木屋4:赞一个，够不要脸//@王修216: [good]//@夜之沉风:这一种吃自己大便的勇气[good]</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3880579759701801" target="freeweibo-mirror">已经忍了48小时！只有到温州公安要说法了。张凯案律师团已经组…</a>
 </h2>
 <p>已经忍了48小时！只有到温州公安要说法了。张凯案律师团已经组建，详细信息很快发布。请大家关注！@平安温州<br><img src="http://ww4.sinaimg.cn/large/728e6175jw1evhjiytcaxj20hs0ugjw9.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3880571920925520" target="freeweibo-mirror">邓亚萍呢？//@北京李清: 转发微博</a>
 </h2>
@@ -90,7 +90,7 @@
 </h2>
 <p>SPAM #军训进行时# 看着一支支不知番号的戎装队伍，记起毛伟人说过的话：学生要以学为主，兼学别样，既不但学文，也要学工、学农、学军……。纵观象牙塔里培育出的雨后春笋般的“小眼镜”，愈发觉得伟人的话震耳发聩。但不知入学“军训”是什么目的，能起到什么作用——是“学军”吗？<br><img src="http://ww2.sinaimg.cn/large/7ca637f5jw1evhc6zsivwj218g0p0jy5.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3880515385610670" target="freeweibo-mirror">在哈佛大学的一次演讲中，希拉里说：“中国百分之八九十的权贵亲…</a>
 </h2>
