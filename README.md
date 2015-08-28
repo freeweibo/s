@@ -24,7 +24,7 @@
 </h2>
 <p>能立几多风雨春秋//@网易流浪的日子:不是一猫，是二猫。//@管荣君同志:总射计师//@________碎夢: 原来是小邓，我还以为是毛腊！！[哈哈]</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3880802045898423" target="freeweibo-mirror">//@薛明波:[泪]//@丽桥-坚定地活着: 转发微博</a>
 </h2>
@@ -53,6 +53,18 @@
 	<a href="https://freeweibo.com/weibo/3880791924576673" target="freeweibo-mirror">SPAM 'He-who-must-not-be-named…</a>
 </h2>
 <p>SPAM 'He-who-must-not-be-named' .......[草泥马]<br><img src="http://ww1.sinaimg.cn/large/642c6c3dgw1evi7vllprkj20pf0ll0xb.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3880791438599133" target="freeweibo-mirror">回复@兔斯基集挤季:→_→//@兔斯基集挤季:六四学生也不同…</a>
+</h2>
+<p>回复@兔斯基集挤季:→_→//@兔斯基集挤季:六四学生也不同意军队开进来[doge]</p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3880791069033209" target="freeweibo-mirror">SPAM 有在新疆包车旅游过的同学没？求私信靠谱司机或机构联…</a>
+</h2>
+<p>SPAM 有在新疆包车旅游过的同学没？求私信靠谱司机或机构联系方式，谢啦！#稍后删# 大致路线【乌鲁木齐-克拉玛依-乌尔禾-白沙湖-哈巴河-喀纳斯-禾木-布尔津-可可托海-乌鲁木齐】</p>
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
@@ -108,7 +120,7 @@
 </h2>
 <p>SPAM [衰][吃惊] //@武汉李杜:场景很熟悉。鬼子进村，坚壁清野。 //@章诒和://@幕退海棠影: 莫非是这个版本？ http://t.cn/RyhO93Y<br><br>RE: 昨天有事去王府井，南河沿。行人要安检，车要安检。临街店铺歇业。上厕所要身份证。——啊，我们的70周年！</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3880745997329584" target="freeweibo-mirror">缅甸曾被国际互联网业界认为是管制最严厉的国家。2005年的一…</a>
 </h2>
@@ -125,18 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3880741685130668" target="freeweibo-mirror">上厕所要身份证？如果尿急偏偏又没有身份证呢？借抗战领袖的话:…</a>
 </h2>
 <p>上厕所要身份证？如果尿急偏偏又没有身份证呢？借抗战领袖的话: 娘希匹！宋女士把它译成Fuck out ! [鄙视][怒]//@无畏高尔察克://@少女花影:若起奥威尔于地下，要为自己低下的想象力惭愧了。。。<br><br>RE: 昨天有事去王府井，南河沿。行人要安检，车要安检。临街店铺歇业。上厕所要身份证。——啊，我们的70周年！</p>
-<p>
-	<small> ============== 6小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3880737923568762" target="freeweibo-mirror">//@雷颐: 转发微博</a>
-</h2>
-<p>//@雷颐: 转发微博</p>
-<p>
-	<small> ============== 6小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3880737540946095" target="freeweibo-mirror">SPAM //@徐昕:只是三个自信，希望早到100个自信的时…</a>
-</h2>
-<p>SPAM //@徐昕:只是三个自信，希望早到100个自信的时候 //@公民-老闫:说好的三个自信呢？月个饼，如临大敌[弱]<br><br>RE: 昨天有事去王府井，南河沿。行人要安检，车要安检。临街店铺歇业。上厕所要身份证。——啊，我们的70周年！</p>
 <p>
 	<small> ============== 6小时前</small>
 </p>
