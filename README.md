@@ -30,7 +30,7 @@
 </h2>
 <p>SPAM 谁能告诉我什么是“其他国家”？<br><img src="http://ww3.sinaimg.cn/large/61fcc2a9jw1evi6kzqpszj20hs0d4gng.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3880752879539516" target="freeweibo-mirror">//@陈业文新大都: 特色王国。 //@浩正刘臻:[挖鼻] …</a>
 </h2>
@@ -60,7 +60,7 @@
 </h2>
 <p>[挖鼻] //@大脸-张老师:理直气壮，不走邪路[右哼哼][右哼哼][右哼哼]//@不白的淘宝:转发微博<br><br>RE: 缅甸曾被国际互联网业界认为是管制最严厉的国家。2005年的一个国际组织调查指出，缅甸政府过滤了85%含有对政府敏感信息的页面。目前，缅甸已经对全球最受欢迎的社交网站Facebook解禁，今天全球仅剩4个国家仍然对Facebook实施封锁，其中包括朝鲜、古巴、伊朗和＂理直气壮＂的＂世界上最大的民主国家＂。</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3880749709019790" target="freeweibo-mirror">SPAM [衰][吃惊] //@武汉李杜:场景很熟悉。鬼子进…</a>
 </h2>
