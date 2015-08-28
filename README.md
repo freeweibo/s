@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3880872702626406" target="freeweibo-mirror">SPAM //@曾璜: 在红色北京，需要国军战将饶国华将军的…</a>
+</h2>
+<p>SPAM //@曾璜: 在红色北京，需要国军战将饶国华将军的女儿来解救新华社记者，他才被武警放了出来！//@Yuning_Lee: 新华社？<br><br>RE: 新华社记者为了采访来北京参加阅兵的支前模范，需要＂化身亲戚去酒店聊天，被发现了，删除了照片，还险些被抢了拜访本。还好有饶国华将军的女儿协调，才被放了出来。＂ 组织者到底在害怕什么？想隐瞒什么？<br><img src="http://ww1.sinaimg.cn/large/53c0ef89jw1evi300qyhoj20hs0dcdh3.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3880846022429882" target="freeweibo-mirror">这就是娱妓的特色//@崔小平律师:转发微博</a>
 </h2>
 <p>这就是娱妓的特色//@崔小平律师:转发微博<br><br>RE: CCTV全天候无底线追踪阅兵细节，已经让人们忘掉了这场阅兵主要目的之一是纪念抗日战争胜利70周年。那些抗日的英雄们呢，不值得挖掘吗？那些无名英雄呢，不值得去缅怀吗？全球华侨们支援抗日的感人故事呢，不值得去歌颂吗？天天聚焦那些19岁军人小朋友挥汗如雨，那些女兵的裙子，到底有什么意义？转<br><img src="http://ww4.sinaimg.cn/large/41693645gw1evic0p7jyqj20hl0qe76n.jpg"></p>
@@ -114,7 +120,7 @@
 </h2>
 <p>张凯律师，37岁，基督徒，在浙江强拆十字架风暴中，他挺身而出，为信徒维权。他说：想通了，大不了坐牢，若保持沉默，我会后悔一辈子。两周后，他被警方带走，再无音讯。7月10日，他曾被约谈，一位长得像范冰冰的女国宝劝他：你没有背景，做温州教案是自讨苦吃，他说：你错了，我的背景是上帝。<br><img src="http://ww4.sinaimg.cn/large/006cQy1Djw1evi4kg9ri8j30fc0f9q4k.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3880752879539516" target="freeweibo-mirror">//@陈业文新大都: 特色王国。 //@浩正刘臻:[挖鼻] …</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3880751940097243" target="freeweibo-mirror">SPAM //@任志强:宅吧！[哈哈]</a>
 </h2>
 <p>SPAM //@任志强:宅吧！[哈哈]<br><br>RE: 昨天有事去王府井，南河沿。行人要安检，车要安检。临街店铺歇业。上厕所要身份证。——啊，我们的70周年！</p>
-<p>
-	<small> ============== 9小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3880751302605121" target="freeweibo-mirror">SPAM 憋着！[笑cry]//@任志强:宅吧！[哈哈]</a>
-</h2>
-<p>SPAM 憋着！[笑cry]//@任志强:宅吧！[哈哈]<br><br>RE: 昨天有事去王府井，南河沿。行人要安检，车要安检。临街店铺歇业。上厕所要身份证。——啊，我们的70周年！</p>
 <p>
 	<small> ============== 9小时前</small>
 </p>
