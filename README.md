@@ -66,13 +66,13 @@
 </h2>
 <p>SPAM 'He-who-must-not-be-named' .......[草泥马]<br><img src="http://ww1.sinaimg.cn/large/642c6c3dgw1evi7vllprkj20pf0ll0xb.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3880791438599133" target="freeweibo-mirror">回复@兔斯基集挤季:→_→//@兔斯基集挤季:六四学生也不同…</a>
 </h2>
 <p>回复@兔斯基集挤季:→_→//@兔斯基集挤季:六四学生也不同意军队开进来[doge]</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3880791069033209" target="freeweibo-mirror">SPAM 有在新疆包车旅游过的同学没？求私信靠谱司机或机构联…</a>
 </h2>
@@ -138,7 +138,7 @@
 </h2>
 <p>缅甸曾被国际互联网业界认为是管制最严厉的国家。2005年的一个国际组织调查指出，缅甸政府过滤了85%含有对政府敏感信息的页面。目前，缅甸已经对全球最受欢迎的社交网站Facebook解禁，今天全球仅剩4个国家仍然对Facebook实施封锁，其中包括朝鲜、古巴、伊朗和＂理直气壮＂的＂世界上最大的民主国家＂。</p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p>
 <table>
     <tr>
