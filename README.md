@@ -126,7 +126,7 @@
 </h2>
 <p>外交部：中国的互联网是自由的。环球时报：中国是最民主的国家。<br><img src="http://ww1.sinaimg.cn/large/4c7c1ba8jw1eviijng9z3j20k00eqdh5.jpg"></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3880882303909379" target="freeweibo-mirror">SPAM 这………好吧！//@刘耘博士:就是。有情有义，真男…</a>
 </h2>
