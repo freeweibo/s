@@ -54,7 +54,7 @@
 </h2>
 <p>SPAM 这………好吧！//@刘耘博士:就是。有情有义，真男人！//@传媒老王:这。。。<br><br>RE: 說實在話，柯女士這個訪談無損於習先生的光輝形象！對習先生只會加分，而不會減分，一個真誠的男人，不會為自己一己之私謀利益，說得多好。請負責刪貼的朋友，別再刪了，把心思放在更值得重視，注意的領域，或許會更更好些。<br><img src="http://ww4.sinaimg.cn/large/5937c055jw1eviguvgkp2j20hs31idwl.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3880877194818512" target="freeweibo-mirror">它们从来不提对生命的尊重……</a>
 </h2>
