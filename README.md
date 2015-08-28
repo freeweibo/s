@@ -30,19 +30,19 @@
 </h2>
 <p>文章是真，还是假？//@郑维: 照片假的。//@胡胡和闹闹: 呃 这也编？[哼] //@石扉客2014:右右财新记者说该新闻为假[哈哈] //@吉四六:[doge] what....//@周Cissy: 照片是假的，搜了下，照片上的女的是美国达拉斯的一名华裔议员。刚才打电话问了英国侨报，对方否认发过这篇稿子，表示不知情<br><br>RE: 說實在話，柯女士這個訪談無損於習先生的光輝形象！對習先生只會加分，而不會減分，一個真誠的男人，不會為自己一己之私謀利益，說得多好。請負責刪貼的朋友，別再刪了，把心思放在更值得重視，注意的領域，或許會更更好些。<br><img src="http://ww4.sinaimg.cn/large/5937c055jw1eviguvgkp2j20hs31idwl.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3880889153021480" target="freeweibo-mirror">转段子，哦不，真事：继北京某美术馆反法西斯胜利70周年画展因…</a>
 </h2>
 <p>转段子，哦不，真事：继北京某美术馆反法西斯胜利70周年画展因庆祝反法西斯胜利70周年活动而暂停之后，俄罗斯一票否决了乌克兰提出的取消俄罗斯一票否决权的安理会提案！莫名喜感，戳中笑点。。。[嘻嘻]</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3880888334878995" target="freeweibo-mirror">SPAM 这些死鱼不会上餐桌吧[吃惊]//@网易珀迦索斯:面…</a>
 </h2>
 <p>SPAM 这些死鱼不会上餐桌吧[吃惊]//@网易珀迦索斯:面子大于里子//@愤怒的老鬼5: //@游子评://@歴史钩沉:人命如狗~<br><br>RE: 它们从来不提对生命的尊重……<br><img src="http://ww2.sinaimg.cn/large/dfee1ff8gw1evihp62bqgj20jo0drdku.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3880882303909379" target="freeweibo-mirror">SPAM 这………好吧！//@刘耘博士:就是。有情有义，真男…</a>
 </h2>
@@ -84,7 +84,7 @@
 </h2>
 <p>SPAM 发现一个琥珀蜜蜡的徽博~~超赞！！</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3880836170020584" target="freeweibo-mirror">看图片就知道是近几天的事情//@ufo6: @精彩安阳 @清…</a>
 </h2>
@@ -120,7 +120,7 @@
 </h2>
 <p>SPAM @十年砍柴 一個自然得不能再自然的疑問，在一個“其他國家”，自然不允許轉發 。這是什麼黑色荒誕？</p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3880796350281878" target="freeweibo-mirror">一党专制是最大的民主国家？ //@忆闻官微: 同意，就该这样…</a>
 </h2>
