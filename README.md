@@ -26,6 +26,12 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3880924934753415" target="freeweibo-mirror">SPAM 他不容易</a>
+</h2>
+<p>SPAM 他不容易<br><br>RE: 唯一看点<br><img src="http://ww2.sinaimg.cn/large/006bpWWPgw1evibectxqcj30hs0jdwgk.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3880903426511021" target="freeweibo-mirror">//@FT中文网://@兔子老愚: 为长者续命的活动，对当局…</a>
 </h2>
 <p>//@FT中文网://@兔子老愚: 为长者续命的活动，对当局来说，恐怕是不祥的信号。<br><br>RE: 【阅兵前的情绪】FT中文网专栏作家@兔子老愚  ：夏去秋来，中国人的情绪正在发生某种遽变。目睹国家机器不受制约地极速膨胀，肆意侵犯个人私域，人们愤怒、焦虑、惶惑不安。 http://t.cn/RyhShAh</p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3880797972709025" target="freeweibo-mirror">SPAM @十年砍柴 一個自然得不能再自然的疑問，在一個“其…</a>
 </h2>
 <p>SPAM @十年砍柴 一個自然得不能再自然的疑問，在一個“其他國家”，自然不允許轉發 。這是什麼黑色荒誕？</p>
-<p>
-	<small> ============== 10小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3880796350281878" target="freeweibo-mirror">一党专制是最大的民主国家？ //@忆闻官微: 同意，就该这样…</a>
-</h2>
-<p>一党专制是最大的民主国家？ //@忆闻官微: 同意，就该这样做 //@谢文：谁敢说我们不民主，我们就把他删贴封号，不行就抓起来，剩下一个红彤彤的民主世界。</p>
 <p>
 	<small> ============== 10小时前</small>
 </p>
