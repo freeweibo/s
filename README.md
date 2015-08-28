@@ -96,13 +96,13 @@
 </h2>
 <p>SPAM 'He-who-must-not-be-named' .......[草泥马]<br><img src="http://ww1.sinaimg.cn/large/642c6c3dgw1evi7vllprkj20pf0ll0xb.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3880791438599133" target="freeweibo-mirror">回复@兔斯基集挤季:→_→//@兔斯基集挤季:六四学生也不同…</a>
 </h2>
 <p>回复@兔斯基集挤季:→_→//@兔斯基集挤季:六四学生也不同意军队开进来[doge]</p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3880791069033209" target="freeweibo-mirror">SPAM 有在新疆包车旅游过的同学没？求私信靠谱司机或机构联…</a>
 </h2>
