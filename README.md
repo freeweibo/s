@@ -48,7 +48,7 @@
 </h2>
 <p>SPAM 'He-who-must-not-be-named' .......[草泥马]<br><img src="http://ww1.sinaimg.cn/large/642c6c3dgw1evi7vllprkj20pf0ll0xb.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3880783590811335" target="freeweibo-mirror">SPAM 《农业部答复政协提案：上市转基因食品都安全》……P…</a>
 </h2>
@@ -61,6 +61,12 @@
 <p>SPAM 谁能告诉我什么是“其他国家”？<br><img src="http://ww3.sinaimg.cn/large/61fcc2a9jw1evi6kzqpszj20hs0d4gng.jpg"></p>
 <p>
 	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3880762988223761" target="freeweibo-mirror">张凯律师，37岁，基督徒，在浙江强拆十字架风暴中，他挺身而出…</a>
+</h2>
+<p>张凯律师，37岁，基督徒，在浙江强拆十字架风暴中，他挺身而出，为信徒维权。他说：想通了，大不了坐牢，若保持沉默，我会后悔一辈子。两周后，他被警方带走，再无音讯。7月10日，他曾被约谈，一位长得像范冰冰的女国宝劝他：你没有背景，做温州教案是自讨苦吃，他说：你错了，我的背景是上帝。<br><img src="http://ww4.sinaimg.cn/large/006cQy1Djw1evi4kg9ri8j30fc0f9q4k.jpg"></p>
+<p>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3880752879539516" target="freeweibo-mirror">//@陈业文新大都: 特色王国。 //@浩正刘臻:[挖鼻] …</a>
 </h2>
@@ -102,7 +108,7 @@
 </h2>
 <p>缅甸曾被国际互联网业界认为是管制最严厉的国家。2005年的一个国际组织调查指出，缅甸政府过滤了85%含有对政府敏感信息的页面。目前，缅甸已经对全球最受欢迎的社交网站Facebook解禁，今天全球仅剩4个国家仍然对Facebook实施封锁，其中包括朝鲜、古巴、伊朗和＂理直气壮＂的＂世界上最大的民主国家＂。</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3880744499405271" target="freeweibo-mirror">善恶到头终有报[偷笑] //@地瓜熊老六:不可以啊……[泪]…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3880736728144315" target="freeweibo-mirror">[吃惊]//@雷颐:转发微博</a>
 </h2>
 <p>[吃惊]//@雷颐:转发微博<br><br>RE: 昨天有事去王府井，南河沿。行人要安检，车要安检。临街店铺歇业。上厕所要身份证。——啊，我们的70周年！</p>
-<p>
-	<small> ============== 6小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3880733510659809" target="freeweibo-mirror">【漫画：人民网的投名状】人民网老大说：警察蜀黍，你不能这样对…</a>
-</h2>
-<p>【漫画：人民网的投名状】人民网老大说：警察蜀黍，你不能这样对我！我为国家培养了韩寒，作业本！还为洋大人开了专栏！你不可以这样对我……不可以……作者：@地瓜熊老六 @对儿双生 #抗战胜利70周年纪念##指尖护卫大阅兵#<br><img src="http://ww4.sinaimg.cn/large/005AX0pcgw1evi161tru3j30hs3eytku.jpg"></p>
 <p>
 	<small> ============== 6小时前</small>
 </p>
