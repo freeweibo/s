@@ -20,6 +20,24 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3880750191444942" target="freeweibo-mirror">[挖鼻] //@大脸-张老师:理直气壮，不走邪路[右哼哼][…</a>
+</h2>
+<p>[挖鼻] //@大脸-张老师:理直气壮，不走邪路[右哼哼][右哼哼][右哼哼]//@不白的淘宝:转发微博<br><br>RE: 缅甸曾被国际互联网业界认为是管制最严厉的国家。2005年的一个国际组织调查指出，缅甸政府过滤了85%含有对政府敏感信息的页面。目前，缅甸已经对全球最受欢迎的社交网站Facebook解禁，今天全球仅剩4个国家仍然对Facebook实施封锁，其中包括朝鲜、古巴、伊朗和＂理直气壮＂的＂世界上最大的民主国家＂。</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3880749709019790" target="freeweibo-mirror">SPAM [衰][吃惊] //@武汉李杜:场景很熟悉。鬼子进…</a>
+</h2>
+<p>SPAM [衰][吃惊] //@武汉李杜:场景很熟悉。鬼子进村，坚壁清野。 //@章诒和://@幕退海棠影: 莫非是这个版本？ http://t.cn/RyhO93Y<br><br>RE: 昨天有事去王府井，南河沿。行人要安检，车要安检。临街店铺歇业。上厕所要身份证。——啊，我们的70周年！</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3880741685130668" target="freeweibo-mirror">上厕所要身份证？如果尿急偏偏又没有身份证呢？借抗战领袖的话:…</a>
+</h2>
+<p>上厕所要身份证？如果尿急偏偏又没有身份证呢？借抗战领袖的话: 娘希匹！宋女士把它译成Fuck out ! [鄙视][怒]//@无畏高尔察克://@少女花影:若起奥威尔于地下，要为自己低下的想象力惭愧了。。。<br><br>RE: 昨天有事去王府井，南河沿。行人要安检，车要安检。临街店铺歇业。上厕所要身份证。——啊，我们的70周年！</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3880721255245160" target="freeweibo-mirror">SPAM 哈哈哈 //@韩颖t:哈哈哈哈//@卫生巾厂长:哈…</a>
 </h2>
 <p>SPAM 哈哈哈 //@韩颖t:哈哈哈哈//@卫生巾厂长:哈哈哈哈哈哈哈老马失前蹄 //@粘合国组织拉管协会会长:没忍住笑 //@再说洋洋就拿鼻毛刺死你:笑死 //@中送右:大哥：我突然眼前一黑 //@夏目家的小诗哥:大哥倒地的第一眼赶紧先回头看看相机//@手机姬: 大意了！ //@metalslie:博尔特：没想到<br><br>RE: 刚才博尔特200米夺冠后。。。哈哈哈哈哈这个摄像大哥，可以可以。。。@新浪体育 http://t.cn/RyhUxXK<br><img src="http://ww1.sinaimg.cn/large/83fae389jw1evhj2i187xg208o04ohdv.gif"></p>
@@ -66,7 +84,7 @@
 </h2>
 <p>SPAM 啊啊啊啊啊啊啊啊啊啊啊啊啊啊啊啊//@大圣的妖纹:我升天。</p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3880604309149994" target="freeweibo-mirror">//@天圆地方3511E: 在爆炸前的生活中，当他们见到不公…</a>
 </h2>
@@ -119,24 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3880589860187159" target="freeweibo-mirror">死磕律师开始表演了，亲自上了，发了声明，此前是委托别人发的…</a>
 </h2>
 <p>死磕律师开始表演了，亲自上了，发了声明，此前是委托别人发的…<br><br>RE: 已经忍了48小时！只有到温州公安要说法了。张凯案律师团已经组建，详细信息很快发布。请大家关注！@平安温州<br><img src="http://ww4.sinaimg.cn/large/728e6175jw1evhjiytcaxj20hs0ugjw9.jpg"></p>
-<p>
-	<small> ============== 12小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3880589797222064" target="freeweibo-mirror">小心，那儿查个当事人户籍资料，都要法院立案手续//@小欣的家…</a>
-</h2>
-<p>小心，那儿查个当事人户籍资料，都要法院立案手续//@小欣的家园06:忍无可忍，无需再忍！@孙云康律师 @基督教诗歌网 @美国驻华大使馆 @联合国 @联合国人权高专办 @CCDM基督教数字传媒 @单身穷哥之聿仁 @段万金律师 @傅强家园18 @肖芳华律师 @黄益梓 @张培鸿<br><br>RE: 已经忍了48小时！只有到温州公安要说法了。张凯案律师团已经组建，详细信息很快发布。请大家关注！@平安温州<br><img src="http://ww4.sinaimg.cn/large/728e6175jw1evhjiytcaxj20hs0ugjw9.jpg"></p>
-<p>
-	<small> ============== 12小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3880588635269604" target="freeweibo-mirror">主任有担当！</a>
-</h2>
-<p>主任有担当！<br><br>RE: 已经忍了48小时！只有到温州公安要说法了。张凯案律师团已经组建，详细信息很快发布。请大家关注！@平安温州<br><img src="http://ww4.sinaimg.cn/large/728e6175jw1evhjiytcaxj20hs0ugjw9.jpg"></p>
-<p>
-	<small> ============== 12小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3880584495591128" target="freeweibo-mirror">北京外国语大学党委书记韩震在环球时报发文，宣称中国才是最大的…</a>
-</h2>
-<p>北京外国语大学党委书记韩震在环球时报发文，宣称中国才是最大的民主国家。有朋友问我的看法，我认真拜读了一遍后，只能用托马斯.潘恩的名言回答：“如果一个人堕落到去宣传连他自己都不相信的东西的时候，他已经做好了干一切坏事的准备”。http://t.cn/RyPWSFZ<br><img src="http://ww1.sinaimg.cn/large/be8f8847gw1evhk29xbejj207g0adglr.jpg"></p>
 <p>
 	<small> ============== 12小时前</small>
 </p>
