@@ -66,7 +66,7 @@
 </h2>
 <p>SPAM 他不容易<br><br>RE: 唯一看点<br><img src="http://ww2.sinaimg.cn/large/006bpWWPgw1evibectxqcj30hs0jdwgk.jpg"></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3880919888753707" target="freeweibo-mirror">SPAM 养了一个类似糖宝的胖，当然也许是孵化中的无心，过程…</a>
 </h2>
