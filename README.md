@@ -36,7 +36,7 @@
 </h2>
 <p>SPAM 他不容易<br><br>RE: 唯一看点<br><img src="http://ww2.sinaimg.cn/large/006bpWWPgw1evibectxqcj30hs0jdwgk.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3880913824068961" target="freeweibo-mirror">中央整治人民網，反腐矛頭直指中宣部。</a>
 </h2>
