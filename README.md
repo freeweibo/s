@@ -32,6 +32,12 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3880913824068961" target="freeweibo-mirror">中央整治人民網，反腐矛頭直指中宣部。</a>
+</h2>
+<p>中央整治人民網，反腐矛頭直指中宣部。<br><img src="http://ww1.sinaimg.cn/large/53608990jw1evilwo4i4kj20yi15s147.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3880912196414273" target="freeweibo-mirror">再转，右边图片信息显示，有人指此采访存疑。//@文山娃: 供…</a>
 </h2>
 <p>再转，右边图片信息显示，有人指此采访存疑。//@文山娃: 供參考。http://t.cn/Ry7LWFa //@辟谣与真相:看了看这采访报道，也没啥不可言的→_→//@东莞刘光松:弄明白了。http://t.cn/Ry7wFo5//@</p>
@@ -126,17 +132,11 @@
 </h2>
 <p>SPAM 超跌，第一波概念，平潭fa</p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3880809872215876" target="freeweibo-mirror">能立几多风雨春秋//@网易流浪的日子:不是一猫，是二猫。//…</a>
 </h2>
 <p>能立几多风雨春秋//@网易流浪的日子:不是一猫，是二猫。//@管荣君同志:总射计师//@________碎夢: 原来是小邓，我还以为是毛腊！！[哈哈]</p>
-<p>
-	<small> ============== 10小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3880802045898423" target="freeweibo-mirror">//@薛明波:[泪]//@丽桥-坚定地活着: 转发微博</a>
-</h2>
-<p>//@薛明波:[泪]//@丽桥-坚定地活着: 转发微博<br><br>RE: 张凯律师，37岁，基督徒，在浙江强拆十字架风暴中，他挺身而出，为信徒维权。他说：想通了，大不了坐牢，若保持沉默，我会后悔一辈子。两周后，他被警方带走，再无音讯。7月10日，他曾被约谈，一位长得像范冰冰的女国宝劝他：你没有背景，做温州教案是自讨苦吃，他说：你错了，我的背景是上帝。<br><img src="http://ww4.sinaimg.cn/large/006cQy1Djw1evi4kg9ri8j30fc0f9q4k.jpg"></p>
 <p>
 	<small> ============== 10小时前</small>
 </p>
