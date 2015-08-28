@@ -26,6 +26,12 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3880934631545715" target="freeweibo-mirror">SPAM 拉低中奖率</a>
+</h2>
+<p>SPAM 拉低中奖率</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3880927748442045" target="freeweibo-mirror">有个男孩叫刘源 //@小小鸟youmin://@醒世微语:/…</a>
 </h2>
 <p>有个男孩叫刘源 //@小小鸟youmin://@醒世微语://@又来金好多: //@万家灯火65:?//@一品泥人: /@周彣2015: 曾经一个叫习仲勋的同志带着一家老小接受专委会的审查，其中一个小男孩吓得瑟瑟发抖！后来这一家人终于熬过了文革，再后来那个男孩成了国家主席，小男孩说坚决不能否定前三十年！</p>
@@ -42,7 +48,7 @@
 </h2>
 <p>中央整治人民網，反腐矛頭直指中宣部。<br><img src="http://ww1.sinaimg.cn/large/53608990jw1evilwo4i4kj20yi15s147.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3880912196414273" target="freeweibo-mirror">再转，右边图片信息显示，有人指此采访存疑。//@文山娃: 供…</a>
 </h2>
@@ -133,12 +139,6 @@
 <p>CCTV全天候无底线追踪阅兵细节，已经让人们忘掉了这场阅兵主要目的之一是纪念抗日战争胜利70周年。那些抗日的英雄们呢，不值得挖掘吗？那些无名英雄呢，不值得去缅怀吗？全球华侨们支援抗日的感人故事呢，不值得去歌颂吗？天天聚焦那些19岁军人小朋友挥汗如雨，那些女兵的裙子，到底有什么意义？转<br><img src="http://ww4.sinaimg.cn/large/41693645gw1evic0p7jyqj20hl0qe76n.jpg"></p>
 <p>
 	<small> ============== 9小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3880822438813831" target="freeweibo-mirror">唯一看点</a>
-</h2>
-<p>唯一看点<br><img src="http://ww2.sinaimg.cn/large/006bpWWPgw1evibectxqcj30hs0jdwgk.jpg"></p>
-<p>
-	<small> ============== 10小时前</small>
 </p>
 <table>
     <tr>
