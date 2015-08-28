@@ -78,7 +78,7 @@
 </h2>
 <p>中央整治人民網，反腐矛頭直指中宣部。<br><img src="http://ww1.sinaimg.cn/large/53608990jw1evilwo4i4kj20yi15s147.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3880912196414273" target="freeweibo-mirror">再转，右边图片信息显示，有人指此采访存疑。//@文山娃: 供…</a>
 </h2>
