@@ -30,7 +30,7 @@
 </h2>
 <p>SPAM 超跌，第一波概念，平潭fa</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3880809872215876" target="freeweibo-mirror">能立几多风雨春秋//@网易流浪的日子:不是一猫，是二猫。//…</a>
 </h2>
@@ -60,7 +60,7 @@
 </h2>
 <p>SPAM 你的增高特效药[围观]别为身高问题难过，别在独自悲伤，全新增高精油，让你从此信心十足[心]纯天然配方，只需每晚涂抹，简单有效，让你轻松长高10厘米[给力]现特价99元，让你只恨比天低[赞啊]，需要的微信我</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3880791924576673" target="freeweibo-mirror">SPAM 'He-who-must-not-be-named…</a>
 </h2>
@@ -90,7 +90,7 @@
 </h2>
 <p>SPAM 谁能告诉我什么是“其他国家”？<br><img src="http://ww3.sinaimg.cn/large/61fcc2a9jw1evi6kzqpszj20hs0d4gng.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3880762988223761" target="freeweibo-mirror">张凯律师，37岁，基督徒，在浙江强拆十字架风暴中，他挺身而出…</a>
 </h2>
@@ -126,7 +126,7 @@
 </h2>
 <p>[挖鼻] //@大脸-张老师:理直气壮，不走邪路[右哼哼][右哼哼][右哼哼]//@不白的淘宝:转发微博<br><br>RE: 缅甸曾被国际互联网业界认为是管制最严厉的国家。2005年的一个国际组织调查指出，缅甸政府过滤了85%含有对政府敏感信息的页面。目前，缅甸已经对全球最受欢迎的社交网站Facebook解禁，今天全球仅剩4个国家仍然对Facebook实施封锁，其中包括朝鲜、古巴、伊朗和＂理直气壮＂的＂世界上最大的民主国家＂。</p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3880749709019790" target="freeweibo-mirror">SPAM [衰][吃惊] //@武汉李杜:场景很熟悉。鬼子进…</a>
 </h2>
