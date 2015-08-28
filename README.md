@@ -114,7 +114,7 @@
 </h2>
 <p>外交部：中国的互联网是自由的。环球时报：中国是最民主的国家。<br><img src="http://ww1.sinaimg.cn/large/4c7c1ba8jw1eviijng9z3j20k00eqdh5.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3880882303909379" target="freeweibo-mirror">SPAM 这………好吧！//@刘耘博士:就是。有情有义，真男…</a>
 </h2>
@@ -138,7 +138,7 @@
 </h2>
 <p>說實在話，柯女士這個訪談無損於習先生的光輝形象！對習先生只會加分，而不會減分，一個真誠的男人，不會為自己一己之私謀利益，說得多好。請負責刪貼的朋友，別再刪了，把心思放在更值得重視，注意的領域，或許會更更好些。<br><img src="http://ww4.sinaimg.cn/large/5937c055jw1eviguvgkp2j20hs31idwl.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p>
 <table>
     <tr>
