@@ -66,7 +66,7 @@
 </h2>
 <p>SPAM [衰][吃惊] //@武汉李杜:场景很熟悉。鬼子进村，坚壁清野。 //@章诒和://@幕退海棠影: 莫非是这个版本？ http://t.cn/RyhO93Y<br><br>RE: 昨天有事去王府井，南河沿。行人要安检，车要安检。临街店铺歇业。上厕所要身份证。——啊，我们的70周年！</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3880745997329584" target="freeweibo-mirror">缅甸曾被国际互联网业界认为是管制最严厉的国家。2005年的一…</a>
 </h2>
@@ -114,7 +114,7 @@
 </h2>
 <p>SPAM 哈哈！<br><br>RE: 刚才博尔特200米夺冠后。。。哈哈哈哈哈这个摄像大哥，可以可以。。。@新浪体育 http://t.cn/RyhUxXK<br><img src="http://ww1.sinaimg.cn/large/83fae389jw1evhj2i187xg208o04ohdv.gif"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3880677227170493" target="freeweibo-mirror">SPAM ？//@大仙:好吧，假如生活欺骗了你……</a>
 </h2>
