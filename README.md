@@ -54,7 +54,7 @@
 </h2>
 <p>SPAM 拉低中奖率</p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3880927748442045" target="freeweibo-mirror">有个男孩叫刘源 //@小小鸟youmin://@醒世微语:/…</a>
 </h2>
@@ -96,7 +96,7 @@
 </h2>
 <p>//@FT中文网://@兔子老愚: 为长者续命的活动，对当局来说，恐怕是不祥的信号。<br><br>RE: 【阅兵前的情绪】FT中文网专栏作家@兔子老愚  ：夏去秋来，中国人的情绪正在发生某种遽变。目睹国家机器不受制约地极速膨胀，肆意侵犯个人私域，人们愤怒、焦虑、惶惑不安。 http://t.cn/RyhShAh</p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3880893779159048" target="freeweibo-mirror">//@douban豆瓣123: 吾老实人[汗] //@鸡肚山…</a>
 </h2>
