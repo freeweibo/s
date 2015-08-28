@@ -20,6 +20,24 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3880797972709025" target="freeweibo-mirror">SPAM @十年砍柴 一個自然得不能再自然的疑問，在一個“其…</a>
+</h2>
+<p>SPAM @十年砍柴 一個自然得不能再自然的疑問，在一個“其他國家”，自然不允許轉發 。這是什麼黑色荒誕？</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3880796350281878" target="freeweibo-mirror">一党专制是最大的民主国家？ //@忆闻官微: 同意，就该这样…</a>
+</h2>
+<p>一党专制是最大的民主国家？ //@忆闻官微: 同意，就该这样做 //@谢文：谁敢说我们不民主，我们就把他删贴封号，不行就抓起来，剩下一个红彤彤的民主世界。</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3880791924576673" target="freeweibo-mirror">SPAM 'He-who-must-not-be-named…</a>
+</h2>
+<p>SPAM 'He-who-must-not-be-named' .......[草泥马]<br><img src="http://ww1.sinaimg.cn/large/642c6c3dgw1evi7vllprkj20pf0ll0xb.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3880783590811335" target="freeweibo-mirror">SPAM 《农业部答复政协提案：上市转基因食品都安全》……P…</a>
 </h2>
 <p>SPAM 《农业部答复政协提案：上市转基因食品都安全》……PS：为支持政府的结论，建议中南海以及中央各部委、机关等食堂，即日起，全部采用上市转基因食品<br><img src="http://ww2.sinaimg.cn/large/62f8add8jw1evi6y6c3yuj20gj0fbq67.jpg"></p>
@@ -66,7 +84,7 @@
 </h2>
 <p>SPAM [衰][吃惊] //@武汉李杜:场景很熟悉。鬼子进村，坚壁清野。 //@章诒和://@幕退海棠影: 莫非是这个版本？ http://t.cn/RyhO93Y<br><br>RE: 昨天有事去王府井，南河沿。行人要安检，车要安检。临街店铺歇业。上厕所要身份证。——啊，我们的70周年！</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3880745997329584" target="freeweibo-mirror">缅甸曾被国际互联网业界认为是管制最严厉的国家。2005年的一…</a>
 </h2>
@@ -108,7 +126,7 @@
 </h2>
 <p>【漫画：人民网的投名状】人民网老大说：警察蜀黍，你不能这样对我！我为国家培养了韩寒，作业本！还为洋大人开了专栏！你不可以这样对我……不可以……作者：@地瓜熊老六 @对儿双生 #抗战胜利70周年纪念##指尖护卫大阅兵#<br><img src="http://ww4.sinaimg.cn/large/005AX0pcgw1evi161tru3j30hs3eytku.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3880726841537685" target="freeweibo-mirror">昨天有事去王府井，南河沿。行人要安检，车要安检。临街店铺歇业…</a>
 </h2>
@@ -121,24 +139,6 @@
 <p>SPAM 哈哈哈 //@韩颖t:哈哈哈哈//@卫生巾厂长:哈哈哈哈哈哈哈老马失前蹄 //@粘合国组织拉管协会会长:没忍住笑 //@再说洋洋就拿鼻毛刺死你:笑死 //@中送右:大哥：我突然眼前一黑 //@夏目家的小诗哥:大哥倒地的第一眼赶紧先回头看看相机//@手机姬: 大意了！ //@metalslie:博尔特：没想到<br><br>RE: 刚才博尔特200米夺冠后。。。哈哈哈哈哈这个摄像大哥，可以可以。。。@新浪体育 http://t.cn/RyhUxXK<br><img src="http://ww1.sinaimg.cn/large/83fae389jw1evhj2i187xg208o04ohdv.gif"></p>
 <p>
 	<small> ============== 6小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3880718532479564" target="freeweibo-mirror">SPAM 哈哈！</a>
-</h2>
-<p>SPAM 哈哈！<br><br>RE: 刚才博尔特200米夺冠后。。。哈哈哈哈哈这个摄像大哥，可以可以。。。@新浪体育 http://t.cn/RyhUxXK<br><img src="http://ww1.sinaimg.cn/large/83fae389jw1evhj2i187xg208o04ohdv.gif"></p>
-<p>
-	<small> ============== 6小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3880677227170493" target="freeweibo-mirror">SPAM ？//@大仙:好吧，假如生活欺骗了你……</a>
-</h2>
-<p>SPAM ？//@大仙:好吧，假如生活欺骗了你……<br><br>RE: 普京，习总，金正恩，三人站一起，可以组成最具诗意组合“普习金”（如果金正恩也来参加大阅兵就完美了，我P了张图）<br><img src="http://ww2.sinaimg.cn/large/005yXe3qgw1evhpinhdggj30q10c10vv.jpg"></p>
-<p>
-	<small> ============== 9小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3880646139289485" target="freeweibo-mirror">SPAM 多亏他没来，不然都看他了！[doge]</a>
-</h2>
-<p>SPAM 多亏他没来，不然都看他了！[doge]<br><br>RE: 普京，习总，金正恩，三人站一起，可以组成最具诗意组合“普习金”（如果金正恩也来参加大阅兵就完美了，我P了张图）<br><img src="http://ww2.sinaimg.cn/large/005yXe3qgw1evhpinhdggj30q10c10vv.jpg"></p>
-<p>
-	<small> ============== 11小时前</small>
 </p>
 <table>
     <tr>
