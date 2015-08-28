@@ -66,7 +66,7 @@
 </h2>
 <p>在爆炸前的生活中，当他们见到不公时，是旁观、沉默还是支持维权人士？//@只配叫猪猪: //@只配抬杠杠杠: 这还有一个， http://t.cn/Ryhqggs<br><br>RE: 今天天津市政府门口，受难业主请愿 ，不让他们录视频，抢手机打人撕扯衣服 最后直接把业主抬走 [伤心] via @何以生姜末 http://t.cn/RyPB8vK</p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3880602237223230" target="freeweibo-mirror">//@灵魂绽放-TX:转发微博</a>
 </h2>
@@ -120,7 +120,7 @@
 </h2>
 <p>主任有担当！<br><br>RE: 已经忍了48小时！只有到温州公安要说法了。张凯案律师团已经组建，详细信息很快发布。请大家关注！@平安温州<br><img src="http://ww4.sinaimg.cn/large/728e6175jw1evhjiytcaxj20hs0ugjw9.jpg"></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3880584495591128" target="freeweibo-mirror">北京外国语大学党委书记韩震在环球时报发文，宣称中国才是最大的…</a>
 </h2>
