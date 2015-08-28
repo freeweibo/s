@@ -42,7 +42,7 @@
 </h2>
 <p>//@xy冷眼看世界:前天我就说,月饼后,这事逐渐淡出公众视线,就会对受灾市民用上维稳手段.这些受灾市民中的绝大多数人都想不到他们自己也会有访民一样的经历<br><br>RE: 今天天津市政府门口，受难业主请愿 ，不让他们录视频，抢手机打人撕扯衣服 最后直接把业主抬走 [伤心] via @何以生姜末 http://t.cn/RyPB8vK</p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3880608474258645" target="freeweibo-mirror">//@菏锄事://@天圆地方3511E: //@奶香小豆包2…</a>
 </h2>
@@ -78,13 +78,13 @@
 </h2>
 <p>SPAM 不能我一个人看，分享给大家~[阴险]</p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3880595011135892" target="freeweibo-mirror">这律师多次、在多场合表示爱美国…而且和前驻华大使一起喝下午茶…</a>
 </h2>
 <p>这律师多次、在多场合表示爱美国…而且和前驻华大使一起喝下午茶的人… http://t.cn/Ryh5q8Y //@佚名涛:“当局”听着怎么这么别扭！//@贾贸律师:死磕律师开始表演了，亲自上了，发了声明，此前是委托别人发的…<br><br>RE: 已经忍了48小时！只有到温州公安要说法了。张凯案律师团已经组建，详细信息很快发布。请大家关注！@平安温州<br><img src="http://ww4.sinaimg.cn/large/728e6175jw1evhjiytcaxj20hs0ugjw9.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3880593298935365" target="freeweibo-mirror">史律师，你在切割俺们啊，以后俺们还要不要在江湖上玩耍了？[嘻…</a>
 </h2>
@@ -122,21 +122,21 @@
 <p>
 	<small> ============== 9小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3880584495591128" target="freeweibo-mirror">北京外国语大学党委书记韩震在环球时报发文，宣称中国才是最大的…</a>
+</h2>
+<p>北京外国语大学党委书记韩震在环球时报发文，宣称中国才是最大的民主国家。有朋友问我的看法，我认真拜读了一遍后，只能用托马斯.潘恩的名言回答：“如果一个人堕落到去宣传连他自己都不相信的东西的时候，他已经做好了干一切坏事的准备”。http://t.cn/RyPWSFZ<br><img src="http://ww1.sinaimg.cn/large/be8f8847gw1evhk29xbejj207g0adglr.jpg"></p>
+<p>
+	<small> ============== 9小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3880579785639112" target="freeweibo-mirror">SPAM  //@雁塔小木屋4:赞一个，够不要脸//@王修2…</a>
 </h2>
 <p>SPAM  //@雁塔小木屋4:赞一个，够不要脸//@王修216: [good]//@夜之沉风:这一种吃自己大便的勇气[good]</p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3880579759701801" target="freeweibo-mirror">已经忍了48小时！只有到温州公安要说法了。张凯案律师团已经组…</a>
 </h2>
 <p>已经忍了48小时！只有到温州公安要说法了。张凯案律师团已经组建，详细信息很快发布。请大家关注！@平安温州<br><img src="http://ww4.sinaimg.cn/large/728e6175jw1evhjiytcaxj20hs0ugjw9.jpg"></p>
-<p>
-	<small> ============== 9小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3880571920925520" target="freeweibo-mirror">邓亚萍呢？//@北京李清: 转发微博</a>
-</h2>
-<p>邓亚萍呢？//@北京李清: 转发微博<br><br>RE: #知政#【人民网总裁廖玒被调查】据南方周末报道，多个可靠消息源对记者确认，人民网副董事长、总裁廖玒，近日被检察机关带走调查。消息人士称，廖玒被调查，与2015年5月人民网副总编辑徐辉案或有关联。廖玒8月19日还参加深圳举办的2015媒体融合发展论坛。http://t.cn/RyhU7a4<br><img src="http://ww4.sinaimg.cn/large/60718250jw1evhi9czp64j20fa0a63yw.jpg"></p>
 <p>
 	<small> ============== 10小时前</small>
 </p>
