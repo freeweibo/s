@@ -24,13 +24,13 @@
 </h2>
 <p>//@陈业文新大都: 特色王国。 //@浩正刘臻:[挖鼻] //@大脸-张老师:理直气壮，不走邪路[右哼哼][右哼哼][右哼哼] //@不白的淘宝:转发微博<br><br>RE: 缅甸曾被国际互联网业界认为是管制最严厉的国家。2005年的一个国际组织调查指出，缅甸政府过滤了85%含有对政府敏感信息的页面。目前，缅甸已经对全球最受欢迎的社交网站Facebook解禁，今天全球仅剩4个国家仍然对Facebook实施封锁，其中包括朝鲜、古巴、伊朗和＂理直气壮＂的＂世界上最大的民主国家＂。</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3880752884574822" target="freeweibo-mirror">世界上最大的民主国家</a>
 </h2>
 <p>世界上最大的民主国家<br><br>RE: 缅甸曾被国际互联网业界认为是管制最严厉的国家。2005年的一个国际组织调查指出，缅甸政府过滤了85%含有对政府敏感信息的页面。目前，缅甸已经对全球最受欢迎的社交网站Facebook解禁，今天全球仅剩4个国家仍然对Facebook实施封锁，其中包括朝鲜、古巴、伊朗和＂理直气壮＂的＂世界上最大的民主国家＂。</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3880751940097243" target="freeweibo-mirror">SPAM //@任志强:宅吧！[哈哈]</a>
 </h2>
@@ -72,13 +72,13 @@
 </h2>
 <p>//@雷颐: 转发微博</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3880737540946095" target="freeweibo-mirror">SPAM //@徐昕:只是三个自信，希望早到100个自信的时…</a>
 </h2>
 <p>SPAM //@徐昕:只是三个自信，希望早到100个自信的时候 //@公民-老闫:说好的三个自信呢？月个饼，如临大敌[弱]<br><br>RE: 昨天有事去王府井，南河沿。行人要安检，车要安检。临街店铺歇业。上厕所要身份证。——啊，我们的70周年！</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3880736728144315" target="freeweibo-mirror">[吃惊]//@雷颐:转发微博</a>
 </h2>
@@ -108,7 +108,7 @@
 </h2>
 <p>SPAM ？//@大仙:好吧，假如生活欺骗了你……<br><br>RE: 普京，习总，金正恩，三人站一起，可以组成最具诗意组合“普习金”（如果金正恩也来参加大阅兵就完美了，我P了张图）<br><img src="http://ww2.sinaimg.cn/large/005yXe3qgw1evhpinhdggj30q10c10vv.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3880646139289485" target="freeweibo-mirror">SPAM 多亏他没来，不然都看他了！[doge]</a>
 </h2>
@@ -120,13 +120,13 @@
 </h2>
 <p>普京，习总，金正恩，三人站一起，可以组成最具诗意组合“普习金”（如果金正恩也来参加大阅兵就完美了，我P了张图）<br><img src="http://ww2.sinaimg.cn/large/005yXe3qgw1evhpinhdggj30q10c10vv.jpg"></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3880609077845792" target="freeweibo-mirror">//@xy冷眼看世界:前天我就说,月饼后,这事逐渐淡出公众视…</a>
 </h2>
 <p>//@xy冷眼看世界:前天我就说,月饼后,这事逐渐淡出公众视线,就会对受灾市民用上维稳手段.这些受灾市民中的绝大多数人都想不到他们自己也会有访民一样的经历<br><br>RE: 今天天津市政府门口，受难业主请愿 ，不让他们录视频，抢手机打人撕扯衣服 最后直接把业主抬走 [伤心] via @何以生姜末 http://t.cn/RyPB8vK</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3880608474258645" target="freeweibo-mirror">//@菏锄事://@天圆地方3511E: //@奶香小豆包2…</a>
 </h2>
