@@ -42,7 +42,7 @@
 </h2>
 <p>有个男孩叫刘源 //@小小鸟youmin://@醒世微语://@又来金好多: //@万家灯火65:?//@一品泥人: /@周彣2015: 曾经一个叫习仲勋的同志带着一家老小接受专委会的审查，其中一个小男孩吓得瑟瑟发抖！后来这一家人终于熬过了文革，再后来那个男孩成了国家主席，小男孩说坚决不能否定前三十年！</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3880924934753415" target="freeweibo-mirror">SPAM 他不容易</a>
 </h2>
@@ -66,7 +66,7 @@
 </h2>
 <p>再转，右边图片信息显示，有人指此采访存疑。//@文山娃: 供參考。http://t.cn/Ry7LWFa //@辟谣与真相:看了看这采访报道，也没啥不可言的→_→//@东莞刘光松:弄明白了。http://t.cn/Ry7wFo5//@</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3880904910695367" target="freeweibo-mirror">这个视频，怎么看都像是意有所指，特别那句“看看这七个人吧”，…</a>
 </h2>
@@ -104,11 +104,17 @@
 <p>
 	<small> ============== 6小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3880884551749434" target="freeweibo-mirror">外交部：中国的互联网是自由的。环球时报：中国是最民主的国家。</a>
+</h2>
+<p>外交部：中国的互联网是自由的。环球时报：中国是最民主的国家。<br><img src="http://ww1.sinaimg.cn/large/4c7c1ba8jw1eviijng9z3j20k00eqdh5.jpg"></p>
+<p>
+	<small> ============== 6小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3880882303909379" target="freeweibo-mirror">SPAM 这………好吧！//@刘耘博士:就是。有情有义，真男…</a>
 </h2>
 <p>SPAM 这………好吧！//@刘耘博士:就是。有情有义，真男人！//@传媒老王:这。。。<br><br>RE: 說實在話，柯女士這個訪談無損於習先生的光輝形象！對習先生只會加分，而不會減分，一個真誠的男人，不會為自己一己之私謀利益，說得多好。請負責刪貼的朋友，別再刪了，把心思放在更值得重視，注意的領域，或許會更更好些。<br><img src="http://ww4.sinaimg.cn/large/5937c055jw1eviguvgkp2j20hs31idwl.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3880877194818512" target="freeweibo-mirror">它们从来不提对生命的尊重……</a>
 </h2>
@@ -133,12 +139,6 @@
 <p>【杨浦推出街（镇）行政服务清单 门户网站、智能机器人、微信订阅号同步上线！】杨浦区积极探索建立行政服务清单制度，目前已编制形成全区12个街道（镇）行政服务事项目录，在“上海•杨浦”门户网站、街道办事处和镇政府网站以及“杨浦审改”微信公众平台同步上线。<br><img src="http://ww2.sinaimg.cn/large/768feb10gw1evigcsgo2wj20l10lbtfc.jpg"></p>
 <p>
 	<small> ============== 8小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3880846022429882" target="freeweibo-mirror">这就是娱妓的特色//@崔小平律师:转发微博</a>
-</h2>
-<p>这就是娱妓的特色//@崔小平律师:转发微博<br><br>RE: CCTV全天候无底线追踪阅兵细节，已经让人们忘掉了这场阅兵主要目的之一是纪念抗日战争胜利70周年。那些抗日的英雄们呢，不值得挖掘吗？那些无名英雄呢，不值得去缅怀吗？全球华侨们支援抗日的感人故事呢，不值得去歌颂吗？天天聚焦那些19岁军人小朋友挥汗如雨，那些女兵的裙子，到底有什么意义？转<br><img src="http://ww4.sinaimg.cn/large/41693645gw1evic0p7jyqj20hl0qe76n.jpg"></p>
-<p>
-	<small> ============== 9小时前</small>
 </p>
 <table>
     <tr>
