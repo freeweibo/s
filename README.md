@@ -20,6 +20,18 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3881316506905818" target="freeweibo-mirror">SPAM 战时造谣是否有可能列入叛国罪直接枪毙？</a>
+</h2>
+<p>SPAM 战时造谣是否有可能列入叛国罪直接枪毙？<br><br>RE: 只有卖国贼、汉奸才会支持取消这些罪的死刑！明显是乱国之举！<br><img src="http://ww4.sinaimg.cn/large/0065xvrPjw1evju10rcywj309l05gmxn.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3881290853551205" target="freeweibo-mirror">博主风格一变，粉丝突然都喊着要取关  </a>
+</h2>
+<p>博主风格一变，粉丝突然都喊着要取关  </p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3881263725389063" target="freeweibo-mirror">贪官什么的，借机出来罢了，政治兑换，或者金钱利益兑换，自古如…</a>
 </h2>
 <p>贪官什么的，借机出来罢了，政治兑换，或者金钱利益兑换，自古如此，社会更不稳定//@gu小资: 有个疑问，李双江儿子应该也在此例里面吧？犯法时不到18岁，而且有被钓鱼的嫌疑。//@华尔街见闻APP:转发微博</p>
@@ -48,7 +60,7 @@
 </h2>
 <p>SPAM “然并卵，那都不是事儿！无题飘过！消磨下大家等饭的时间！٩(๑˃̌ۿ˂̌๑)۶”我的秒拍作品，一起来看~http://t.cn/Ry7eq6m（使用#秒拍#录制）</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3881242031888935" target="freeweibo-mirror">//@邪人疯: 可以有。//@张晨初艺术空间://@范忠信:…</a>
 </h2>
@@ -127,18 +139,6 @@
 <p>//@姬红: [good][good][good] //@盼青天D:鬼要黑的，可鬼都不收这黑恶贪腐矮子。//@东-回归线:[偷笑]//@王胜军: [偷笑]//@姬红: 说什么不搞个人崇拜，结果把各地毛主席的雕像拆掉，中共中央党校却弄了个邓的，你们这是高级黑吗？还总高5.5米，这是告诉大家总设计师的身高只有1.55吗？<br><br>RE: 中共中央党校邓小平雕像8月28日揭幕。 尼玛还真够坑爹的以为8月28日是啥好日子呢？结果网上去查，不查不知道，一查吓一跳，原来是中国的鬼节（中元节，每年农历7月15日），这日子选的真他妈叫好，人吓人吓死人，拿鬼吓人不厚道！天意啊[哈哈][哈哈][哈哈][哈哈][哈哈]<br><img src="http://ww4.sinaimg.cn/large/005KcKJygw1evirvcgsg4j30fe08owex.jpg"></p>
 <p>
 	<small> ============== 10小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3881173770263403" target="freeweibo-mirror">邓家海外资产4.8万亿美元[抓狂]</a>
-</h2>
-<p>邓家海外资产4.8万亿美元[抓狂]<br><img src="http://ww3.sinaimg.cn/large/005RslUKjw1evjfreba7tj30go0keaba.jpg"></p>
-<p>
-	<small> ============== 10小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3881168393003700" target="freeweibo-mirror">当年的抗战将领几乎无一例外都是战犯或历史反革命、共产党重写了…</a>
-</h2>
-<p>当年的抗战将领几乎无一例外都是战犯或历史反革命、共产党重写了历史！东条英机可以瞑目了。</p>
-<p>
-	<small> ============== 11小时前</small>
 </p>
 <table>
     <tr>
