@@ -26,6 +26,12 @@
 <p>
 	<small> ============== 1小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3881332276642198" target="freeweibo-mirror">沈阳消防沈阳警察。本该是保卫人民的人民子弟兵，人民的公仆，人…</a>
+</h2>
+<p>沈阳消防沈阳警察。本该是保卫人民的人民子弟兵，人民的公仆，人民的警察，竟然把水炮对准了自己的人民打晕，谁后人民警察暴力群殴自己的百姓，这个是什么世道，大家看了心里是何感想！！！国家能放纵地方这等残暴行径，那么这个国家就是主凶。</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3881325964062743" target="freeweibo-mirror">SPAM //@赵晓:[吃惊]</a>
 </h2>
 <p>SPAM //@赵晓:[吃惊]<br><br>RE: 网评员培训，转发学习http://t.cn/RyzvWmA</p>
@@ -78,7 +84,7 @@
 </h2>
 <p>博主风格一变，粉丝突然都喊着要取关  </p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3881289482070125" target="freeweibo-mirror">//@善待他人就是善待自己: 转发微博</a>
 </h2>
@@ -120,7 +126,7 @@
 </h2>
 <p>SPAM “然并卵，那都不是事儿！无题飘过！消磨下大家等饭的时间！٩(๑˃̌ۿ˂̌๑)۶”我的秒拍作品，一起来看~http://t.cn/Ry7eq6m（使用#秒拍#录制）</p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3881242031888935" target="freeweibo-mirror">//@邪人疯: 可以有。//@张晨初艺术空间://@范忠信:…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3881241935362160" target="freeweibo-mirror">SPAM //@仙怜凡尘:[吃惊]//@小草命大: //@T…</a>
 </h2>
 <p>SPAM //@仙怜凡尘:[吃惊]//@小草命大: //@TX豫R大地: 个子不高，浮财不少！[怒]//@还是那中年人:光年？//@醉虾搅11:用几光年赚的？//@木林free骑士:[吃惊] //@朝歌97军-长:[害羞]好啊，都给我存着呢。4万亿美元，够了。//@心儿煮浪浪: 靠以前传1.6万亿美元，原来是4.8万亿美元<br><br>RE: 邓家海外资产4.8万亿美元[抓狂]<br><img src="http://ww3.sinaimg.cn/large/005RslUKjw1evjfreba7tj30go0keaba.jpg"></p>
-<p>
-	<small> ============== 8小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3881241088842987" target="freeweibo-mirror">//@北京杨博: 近百年的革命没有完成一张选票的使命</a>
-</h2>
-<p>//@北京杨博: 近百年的革命没有完成一张选票的使命</p>
 <p>
 	<small> ============== 8小时前</small>
 </p>
