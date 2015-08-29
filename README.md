@@ -32,6 +32,12 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3881065741048430" target="freeweibo-mirror">听听这口气。。 //@郑敏:老同志好可怜 //@吴铭:其实就…</a>
+</h2>
+<p>听听这口气。。 //@郑敏:老同志好可怜 //@吴铭:其实就是两个不准：这也不准，那也不准。<br><br>RE: 這些參加抗战老兵方陣的老人家，70年之後才有一次被承認的機會，這措辭嚴厲的「十不准」，他們應該不會也不敢犯規吧！其實可以更客氣表達出來，看這文字，不會是朝陽區人民群眾寫的吧？<br><img src="http://ww1.sinaimg.cn/large/5937c055gw1eviky7nmdwj20qo0zk7as.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3880968840632918" target="freeweibo-mirror">SPAM [哼][哼][哼]难的好差！</a>
 </h2>
 <p>SPAM [哼][哼][哼]难的好差！<br><br>RE: #线上电影少女# [怒骂][怒骂][怒骂] 高 清版 甲鸟王 奉上！速 赞 转走！http://t.cn/RyhFy1E</p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3880888334878995" target="freeweibo-mirror">SPAM 这些死鱼不会上餐桌吧[吃惊]//@网易珀迦索斯:面…</a>
 </h2>
 <p>SPAM 这些死鱼不会上餐桌吧[吃惊]//@网易珀迦索斯:面子大于里子//@愤怒的老鬼5: //@游子评://@歴史钩沉:人命如狗~<br><br>RE: 它们从来不提对生命的尊重……<br><img src="http://ww2.sinaimg.cn/large/dfee1ff8gw1evihp62bqgj20jo0drdku.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3880884551749434" target="freeweibo-mirror">外交部：中国的互联网是自由的。环球时报：中国是最民主的国家。</a>
-</h2>
-<p>外交部：中国的互联网是自由的。环球时报：中国是最民主的国家。<br><img src="http://ww1.sinaimg.cn/large/4c7c1ba8jw1eviijng9z3j20k00eqdh5.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
