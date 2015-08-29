@@ -104,6 +104,12 @@
 <p>
 	<small> ============== 1天前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3880905729350296" target="freeweibo-mirror">這些參加抗战老兵方陣的老人家，70年之後才有一次被承認的機會…</a>
+</h2>
+<p>這些參加抗战老兵方陣的老人家，70年之後才有一次被承認的機會，這措辭嚴厲的「十不准」，他們應該不會也不敢犯規吧！其實可以更客氣表達出來，看這文字，不會是朝陽區人民群眾寫的吧？<br><img src="http://ww1.sinaimg.cn/large/5937c055gw1eviky7nmdwj20qo0zk7as.jpg"></p>
+<p>
+	<small> ============== 1天前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3880904910695367" target="freeweibo-mirror">这个视频，怎么看都像是意有所指，特别那句“看看这七个人吧”，…</a>
 </h2>
 <p>这个视频，怎么看都像是意有所指，特别那句“看看这七个人吧”，似乎只差没点名道姓......虽然知道仅是戏言而已，但听着依然解气啊....[吃惊][吃惊]@90后@大漠飞鹰孤独侠 http://t.cn/RLFkosT</p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3880889153021480" target="freeweibo-mirror">转段子，哦不，真事：继北京某美术馆反法西斯胜利70周年画展因…</a>
 </h2>
 <p>转段子，哦不，真事：继北京某美术馆反法西斯胜利70周年画展因庆祝反法西斯胜利70周年活动而暂停之后，俄罗斯一票否决了乌克兰提出的取消俄罗斯一票否决权的安理会提案！莫名喜感，戳中笑点。。。[嘻嘻]</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3880888334878995" target="freeweibo-mirror">SPAM 这些死鱼不会上餐桌吧[吃惊]//@网易珀迦索斯:面…</a>
-</h2>
-<p>SPAM 这些死鱼不会上餐桌吧[吃惊]//@网易珀迦索斯:面子大于里子//@愤怒的老鬼5: //@游子评://@歴史钩沉:人命如狗~<br><br>RE: 它们从来不提对生命的尊重……<br><img src="http://ww2.sinaimg.cn/large/dfee1ff8gw1evihp62bqgj20jo0drdku.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
