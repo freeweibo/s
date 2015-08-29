@@ -24,7 +24,7 @@
 </h2>
 <p>关于和尚兄弟的最新消息。<br><img src="http://ww1.sinaimg.cn/large/857a392dgw1evj56p35lvj20ez0qoq6e.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3880968840632918" target="freeweibo-mirror">SPAM [哼][哼][哼]难的好差！</a>
 </h2>
