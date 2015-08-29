@@ -36,7 +36,7 @@
 </h2>
 <p>SPAM //@赵晓:[吃惊]<br><br>RE: 网评员培训，转发学习http://t.cn/RyzvWmA</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3881320059082340" target="freeweibo-mirror">SPAM 自发学习！[哈哈]</a>
 </h2>
@@ -102,7 +102,7 @@
 </h2>
 <p>SPAM [喵喵][喵喵][喵喵][喵喵][喵喵]网络评论员培训班开班啦。 http://t.cn/RyzvWmA .</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3881263725389063" target="freeweibo-mirror">贪官什么的，借机出来罢了，政治兑换，或者金钱利益兑换，自古如…</a>
 </h2>
