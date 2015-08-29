@@ -54,7 +54,7 @@
 </h2>
 <p>SPAM 拉低中奖率</p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3880927748442045" target="freeweibo-mirror">有个男孩叫刘源 //@小小鸟youmin://@醒世微语:/…</a>
 </h2>
