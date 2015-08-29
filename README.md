@@ -126,7 +126,7 @@
 </h2>
 <p>说到底，也不关广电的事，中国连一个综艺节目都有这么多限制，舆论监督，可见一斑。<br><br>RE: 广电已经出真相，《极限挑战》遭停播的原因是广电一致认为它不够正能量，并召开会议，今后真人秀禁止拼明星阵容。会议上特此表扬央视自制的真人秀节目…<br><img src="http://ww4.sinaimg.cn/large/7aa71322jw1evjb65wufij20v913sn8j.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3881153146387438" target="freeweibo-mirror">SPAM 看了参加阅兵仪式的女兵训练照，我仿佛看到了波涛汹涌…</a>
 </h2>
