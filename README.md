@@ -62,6 +62,12 @@
 <p>
 	<small> ============== 4小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3881301729573838" target="freeweibo-mirror">//@紫禁城中的狼73793: 真的不想说什么了//@-孔智…</a>
+</h2>
+<p>//@紫禁城中的狼73793: 真的不想说什么了//@-孔智勇:→_→<br><br>RE: #思想哥说#在阅兵式既将到来之际、广东阳江参战老兵到政府上访维权被政府维稳人员殴打致二十余人重伤，全国五千余名老兵齐聚阳声援！ http://t.cn/Ry7reBC http://t.cn/Ry7rDuz .<br><img src="http://ww4.sinaimg.cn/large/6e68668dgw1evju2q6urmj20hr0m2gmy.jpg"></p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3881298676757385" target="freeweibo-mirror">#思想哥说#在阅兵式既将到来之际、广东阳江参战老兵到政府上访…</a>
 </h2>
 <p>#思想哥说#在阅兵式既将到来之际、广东阳江参战老兵到政府上访维权被政府维稳人员殴打致二十余人重伤，全国五千余名老兵齐聚阳声援！ http://t.cn/Ry7reBC http://t.cn/Ry7rDuz .<br><img src="http://ww4.sinaimg.cn/large/6e68668dgw1evju2q6urmj20hr0m2gmy.jpg"></p>
@@ -120,7 +126,7 @@
 </h2>
 <p>SPAM  //@淵流青年:你身邊的牆，就是我未來的牢獄，在這片土地上，沒有人能逃離。祝好運。</p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3881246063137014" target="freeweibo-mirror">SPAM “然并卵，那都不是事儿！无题飘过！消磨下大家等饭的…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3881242031888935" target="freeweibo-mirror">//@邪人疯: 可以有。//@张晨初艺术空间://@范忠信:…</a>
 </h2>
 <p>//@邪人疯: 可以有。//@张晨初艺术空间://@范忠信:反文革言行法，就是中国今日的反纳粹言行法！<br><br>RE: 据可靠消息，一部分人大代表、政协委员已向全国人大法工委申请制定《反对否认文革罪行法》，主要内容是，凡是不承认、否认文革罪恶，即在公开场合公开表达、通过文件图片和视频等任何方式进行否认的人，将被处以一年到三年的有期徒刑和一万到一千万人民币的罚金。（转）</p>
-<p>
-	<small> ============== 8小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3881241935362160" target="freeweibo-mirror">SPAM //@仙怜凡尘:[吃惊]//@小草命大: //@T…</a>
-</h2>
-<p>SPAM //@仙怜凡尘:[吃惊]//@小草命大: //@TX豫R大地: 个子不高，浮财不少！[怒]//@还是那中年人:光年？//@醉虾搅11:用几光年赚的？//@木林free骑士:[吃惊] //@朝歌97军-长:[害羞]好啊，都给我存着呢。4万亿美元，够了。//@心儿煮浪浪: 靠以前传1.6万亿美元，原来是4.8万亿美元<br><br>RE: 邓家海外资产4.8万亿美元[抓狂]<br><img src="http://ww3.sinaimg.cn/large/005RslUKjw1evjfreba7tj30go0keaba.jpg"></p>
 <p>
 	<small> ============== 8小时前</small>
 </p>
