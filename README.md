@@ -20,6 +20,24 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3881150638008942" target="freeweibo-mirror">//@穆罕默德_大冬冬W://@石下顽草10世://@北马南…</a>
+</h2>
+<p>//@穆罕默德_大冬冬W://@石下顽草10世://@北马南山://@吴显庆教授: //@罗争eedoo: //@徐幸起: //@大藏布: //@作家东海: //@深度News官网:装[挖鼻]，中国是最大的民主国家！→_→ //@任志强: 造谣！</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3881149186805590" target="freeweibo-mirror">阿凡达是一个掌握宇宙真理后实证！万岁！ //@陈业文新大都:…</a>
+</h2>
+<p>阿凡达是一个掌握宇宙真理后实证！万岁！ //@陈业文新大都:阿凡达是哪个解放区的？//@罗亚蒙:阿凡达也是在毛泽东思想指引下拯救世界， //@陈业文新大都:乔老爷豁出老脸了！</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3881148528555556" target="freeweibo-mirror">阿凡达是哪个解放区的？//@罗亚蒙:阿凡达也是在毛泽东思想指…</a>
+</h2>
+<p>阿凡达是哪个解放区的？//@罗亚蒙:阿凡达也是在毛泽东思想指引下拯救世界， //@陈业文新大都:乔老爷豁出老脸了！</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3881136721633806" target="freeweibo-mirror">是谁这么恨毛泽东？幽燕龙君是谁？[吃惊]//@天涯论坛花猫0…</a>
 </h2>
 <p>是谁这么恨毛泽东？幽燕龙君是谁？[吃惊]//@天涯论坛花猫009: 幽燕龙君？//@陆弃: 总而言之只有一句话，毛泽东罪恶滔天，上下五千年罕有。——这句话又是谁说的？<br><br>RE: 1949年的变动被毛称为“解放”，实际上，真正解放的只是毛一个人，他赢得了人类有史以来最大的自由，超过历代君王的自由，用他自己的话说就是“和尚打伞”，他玩尽天下美女，占尽天下风景，骄奢淫逸，却以爱吃辣椒和红烧肉和打补丁的睡袍、毯子之类的特殊癖好，编造了朴素的神话。—谁知道这话谁说的？</p>
@@ -66,19 +84,19 @@
 </h2>
 <p>关于和尚兄弟的最新消息。<br><img src="http://ww1.sinaimg.cn/large/857a392dgw1evj56p35lvj20ez0qoq6e.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3881080992538654" target="freeweibo-mirror">杨是故意的//@HowardXue:对方队车队的服务人员严格…</a>
 </h2>
 <p>杨是故意的//@HowardXue:对方队车队的服务人员严格要求，尽心尽力服务好这些抗战英雄，用实际行动向老兵致敬。赞！[赞][心] 顺带鄙视一下语文不及格，看不懂中国话的，或者故意装傻充愣阴阳怪气的。[鄙视]<br><br>RE: 這些參加抗战老兵方陣的老人家，70年之後才有一次被承認的機會，這措辭嚴厲的「十不准」，他們應該不會也不敢犯規吧！其實可以更客氣表達出來，看這文字，不會是朝陽區人民群眾寫的吧？<br><img src="http://ww1.sinaimg.cn/large/5937c055gw1eviky7nmdwj20qo0zk7as.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3881065741048430" target="freeweibo-mirror">听听这口气。。 //@郑敏:老同志好可怜 //@吴铭:其实就…</a>
 </h2>
 <p>听听这口气。。 //@郑敏:老同志好可怜 //@吴铭:其实就是两个不准：这也不准，那也不准。<br><br>RE: 這些參加抗战老兵方陣的老人家，70年之後才有一次被承認的機會，這措辭嚴厲的「十不准」，他們應該不會也不敢犯規吧！其實可以更客氣表達出來，看這文字，不會是朝陽區人民群眾寫的吧？<br><img src="http://ww1.sinaimg.cn/large/5937c055gw1eviky7nmdwj20qo0zk7as.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3880968840632918" target="freeweibo-mirror">SPAM [哼][哼][哼]难的好差！</a>
 </h2>
@@ -119,24 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3880927748442045" target="freeweibo-mirror">有个男孩叫刘源 //@小小鸟youmin://@醒世微语:/…</a>
 </h2>
 <p>有个男孩叫刘源 //@小小鸟youmin://@醒世微语://@又来金好多: //@万家灯火65:?//@一品泥人: /@周彣2015: 曾经一个叫习仲勋的同志带着一家老小接受专委会的审查，其中一个小男孩吓得瑟瑟发抖！后来这一家人终于熬过了文革，再后来那个男孩成了国家主席，小男孩说坚决不能否定前三十年！</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3880924934753415" target="freeweibo-mirror">SPAM 他不容易</a>
-</h2>
-<p>SPAM 他不容易<br><br>RE: 唯一看点<br><img src="http://ww2.sinaimg.cn/large/006bpWWPgw1evibectxqcj30hs0jdwgk.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3880919888753707" target="freeweibo-mirror">SPAM 养了一个类似糖宝的胖，当然也许是孵化中的无心，过程…</a>
-</h2>
-<p>SPAM 养了一个类似糖宝的胖，当然也许是孵化中的无心，过程一把屎一把尿……抱回家时忘车里了。早上忽然想起来，按着钥匙到处找汽车，认定一宿没喂肯定成尸宝了，怒骂老公没心没肺——醒来讲给他听，他说你至于吗？一个连猫狗都没养过的人！无言以对，最后有点难堪地承认：在梦里，虫子是我生的！</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3880913824068961" target="freeweibo-mirror">中央整治人民網，反腐矛頭直指中宣部。</a>
-</h2>
-<p>中央整治人民網，反腐矛頭直指中宣部。<br><img src="http://ww1.sinaimg.cn/large/53608990jw1evilwo4i4kj20yi15s147.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
