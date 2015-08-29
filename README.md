@@ -20,11 +20,23 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3881196977420986" target="freeweibo-mirror">[闭嘴]//@老徐时评:说谁呢？[思考]//@ninghao…</a>
+</h2>
+<p>[闭嘴]//@老徐时评:说谁呢？[思考]//@ninghao6688:不得好死！[怒]//@红2011糖:一点不错 //@小阁楼v:岂有此理，黑良心！千万别发生在咱们国家哈。<br><br>RE: 【秘诀】据说世界上最赚钱的方法，就是爹控制媒体，儿子控制基金，大赚三笔钱：第一笔是股市上升的钱，爹鼓吹股市形势一片大好，引诱大妈们入市，儿子在股市飙升过程赚大钱。第二笔是大做空头股指期货，儿子在高位砸盘，吞噬巨额资金；第三笔钱是利用救市良机，大捞特捞。</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3881195630269708" target="freeweibo-mirror">说谁呢？[思考]//@ninghao6688:不得好死！[怒…</a>
 </h2>
 <p>说谁呢？[思考]//@ninghao6688:不得好死！[怒]//@红2011糖: 一点不错 //@小阁楼v:岂有此理，黑良心！千万别发生在咱们国家哈。<br><br>RE: 【秘诀】据说世界上最赚钱的方法，就是爹控制媒体，儿子控制基金，大赚三笔钱：第一笔是股市上升的钱，爹鼓吹股市形势一片大好，引诱大妈们入市，儿子在股市飙升过程赚大钱。第二笔是大做空头股指期货，儿子在高位砸盘，吞噬巨额资金；第三笔钱是利用救市良机，大捞特捞。</p>
 <p>
 	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3881176290659540" target="freeweibo-mirror">//@姬红: [good][good][good] //@盼…</a>
+</h2>
+<p>//@姬红: [good][good][good] //@盼青天D:鬼要黑的，可鬼都不收这黑恶贪腐矮子。//@东-回归线:[偷笑]//@王胜军: [偷笑]//@姬红: 说什么不搞个人崇拜，结果把各地毛主席的雕像拆掉，中共中央党校却弄了个邓的，你们这是高级黑吗？还总高5.5米，这是告诉大家总设计师的身高只有1.55吗？<br><br>RE: 中共中央党校邓小平雕像8月28日揭幕。 尼玛还真够坑爹的以为8月28日是啥好日子呢？结果网上去查，不查不知道，一查吓一跳，原来是中国的鬼节（中元节，每年农历7月15日），这日子选的真他妈叫好，人吓人吓死人，拿鬼吓人不厚道！天意啊[哈哈][哈哈][哈哈][哈哈][哈哈]<br><img src="http://ww4.sinaimg.cn/large/005KcKJygw1evirvcgsg4j30fe08owex.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3881168393003700" target="freeweibo-mirror">当年的抗战将领几乎无一例外都是战犯或历史反革命、共产党重写了…</a>
 </h2>
@@ -84,7 +96,7 @@
 </h2>
 <p>官员最大的优点是清廉，政府最大的优越是民主，网络最大的特色是自由，国民最大的特惠是幸福。@杨建国 你还忧虑(⊙o⊙)啥？！？<br><img src="http://ww2.sinaimg.cn/large/a62471f0jw1evjc20ii98j20fc0hsdhu.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3881136721633806" target="freeweibo-mirror">是谁这么恨毛泽东？幽燕龙君是谁？[吃惊]//@天涯论坛花猫0…</a>
 </h2>
@@ -108,7 +120,7 @@
 </h2>
 <p>这记者应该问问，令尊是体制内还是体制外的？这么成功。<br><br>RE: 这是BBC采访@王思聪 的视频！这些话能从一个富二代嘴里说出来，真让我很惊讶。http://t.cn/RyPgZdu</p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3881121554905281" target="freeweibo-mirror">//@人生有棋: [思考] //@邓相超: //@拉风红孩:…</a>
 </h2>
@@ -127,18 +139,6 @@
 <p>如今的鸭子，也是够拼的了！http://t.cn/Ry7KxVz</p>
 <p>
 	<small> ============== 8小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3881091867515354" target="freeweibo-mirror">陕西省委的党建网站已被国民党攻陷？</a>
-</h2>
-<p>陕西省委的党建网站已被国民党攻陷？<br><img src="http://ww3.sinaimg.cn/large/aeaf9bf0jw1evj6ci2ro7j20xc18ggvg.jpg"></p>
-<p>
-	<small> ============== 9小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3881081776780613" target="freeweibo-mirror">关于和尚兄弟的最新消息。</a>
-</h2>
-<p>关于和尚兄弟的最新消息。<br><img src="http://ww1.sinaimg.cn/large/857a392dgw1evj56p35lvj20ez0qoq6e.jpg"></p>
-<p>
-	<small> ============== 9小时前</small>
 </p>
 <table>
     <tr>
