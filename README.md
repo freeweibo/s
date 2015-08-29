@@ -48,13 +48,19 @@
 </h2>
 <p>SPAM 战时造谣是否有可能列入叛国罪直接枪毙？<br><br>RE: 只有卖国贼、汉奸才会支持取消这些罪的死刑！明显是乱国之举！<br><img src="http://ww4.sinaimg.cn/large/0065xvrPjw1evju10rcywj309l05gmxn.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3881304086989100" target="freeweibo-mirror">SPAM 这个真是太不要脸了！可耻可悲。 //@图宾根木匠:…</a>
 </h2>
 <p>SPAM 这个真是太不要脸了！可耻可悲。 //@图宾根木匠:真的假的？还有文件？</p>
 <p>
 	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3881298676757385" target="freeweibo-mirror">#思想哥说#在阅兵式既将到来之际、广东阳江参战老兵到政府上访…</a>
+</h2>
+<p>#思想哥说#在阅兵式既将到来之际、广东阳江参战老兵到政府上访维权被政府维稳人员殴打致二十余人重伤，全国五千余名老兵齐聚阳声援！ http://t.cn/Ry7reBC http://t.cn/Ry7rDuz .<br><img src="http://ww4.sinaimg.cn/large/6e68668dgw1evju2q6urmj20hr0m2gmy.jpg"></p>
+<p>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3881298579908665" target="freeweibo-mirror">SPAM 哎嘛！年度大让利～</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3881241088842987" target="freeweibo-mirror">//@北京杨博: 近百年的革命没有完成一张选票的使命</a>
 </h2>
 <p>//@北京杨博: 近百年的革命没有完成一张选票的使命</p>
-<p>
-	<small> ============== 7小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3881234277018327" target="freeweibo-mirror">//@谭力涛: //@浩正刘臻:希望是真的 //@不白的淘宝…</a>
-</h2>
-<p>//@谭力涛: //@浩正刘臻:希望是真的 //@不白的淘宝://@崔小平律师: //@醉翁:不管怎么样先转发支持<br><br>RE: 据可靠消息，一部分人大代表、政协委员已向全国人大法工委申请制定《反对否认文革罪行法》，主要内容是，凡是不承认、否认文革罪恶，即在公开场合公开表达、通过文件图片和视频等任何方式进行否认的人，将被处以一年到三年的有期徒刑和一万到一千万人民币的罚金。（转）</p>
 <p>
 	<small> ============== 8小时前</small>
 </p>
