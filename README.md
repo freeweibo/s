@@ -26,6 +26,12 @@
 <p>
 	<small> ============== 1小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3881320059082340" target="freeweibo-mirror">SPAM 自发学习！[哈哈]</a>
+</h2>
+<p>SPAM 自发学习！[哈哈]<br><br>RE: 网评员培训，转发学习http://t.cn/RyzvWmA</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3881318171418804" target="freeweibo-mirror">网评员培训，转发学习http://t.cn/RyzvWmA</a>
 </h2>
 <p>网评员培训，转发学习http://t.cn/RyzvWmA</p>
@@ -37,6 +43,18 @@
 <p>SPAM 战时造谣是否有可能列入叛国罪直接枪毙？<br><br>RE: 只有卖国贼、汉奸才会支持取消这些罪的死刑！明显是乱国之举！<br><img src="http://ww4.sinaimg.cn/large/0065xvrPjw1evju10rcywj309l05gmxn.jpg"></p>
 <p>
 	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3881304086989100" target="freeweibo-mirror">SPAM 这个真是太不要脸了！可耻可悲。 //@图宾根木匠:…</a>
+</h2>
+<p>SPAM 这个真是太不要脸了！可耻可悲。 //@图宾根木匠:真的假的？还有文件？</p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3881298579908665" target="freeweibo-mirror">SPAM 哎嘛！年度大让利～</a>
+</h2>
+<p>SPAM 哎嘛！年度大让利～</p>
+<p>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3881298244299401" target="freeweibo-mirror">只有卖国贼、汉奸才会支持取消这些罪的死刑！明显是乱国之举！</a>
 </h2>
@@ -84,7 +102,7 @@
 </h2>
 <p>SPAM  //@淵流青年:你身邊的牆，就是我未來的牢獄，在這片土地上，沒有人能逃離。祝好運。</p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3881246063137014" target="freeweibo-mirror">SPAM “然并卵，那都不是事儿！无题飘过！消磨下大家等饭的…</a>
 </h2>
@@ -121,24 +139,6 @@
 <p>→_→//@浩正刘臻:希望是真的 //@不白的淘宝://@崔小平律师: //@醉翁:不管怎么样先转发支持<br><br>RE: 据可靠消息，一部分人大代表、政协委员已向全国人大法工委申请制定《反对否认文革罪行法》，主要内容是，凡是不承认、否认文革罪恶，即在公开场合公开表达、通过文件图片和视频等任何方式进行否认的人，将被处以一年到三年的有期徒刑和一万到一千万人民币的罚金。（转）</p>
 <p>
 	<small> ============== 8小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3881220708508928" target="freeweibo-mirror">//@学虎在线://@醉翁:不管怎么样先转发支持</a>
-</h2>
-<p>//@学虎在线://@醉翁:不管怎么样先转发支持<br><br>RE: 据可靠消息，一部分人大代表、政协委员已向全国人大法工委申请制定《反对否认文革罪行法》，主要内容是，凡是不承认、否认文革罪恶，即在公开场合公开表达、通过文件图片和视频等任何方式进行否认的人，将被处以一年到三年的有期徒刑和一万到一千万人民币的罚金。（转）</p>
-<p>
-	<small> ============== 8小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3881212315370123" target="freeweibo-mirror">回复@短笛_郑州:不是针对具体谁的父母，而是说明一个道理：与…</a>
-</h2>
-<p>回复@短笛_郑州:不是针对具体谁的父母，而是说明一个道理：与毛泽东同时代的人亲身经历了那么多苦难，但绝大多数都爱戴他。要么，中华民族集体弱智，要么，一小部分人的历史认知不对。//@短笛_郑州:唉，辩论不过，就问候别人父母...</p>
-<p>
-	<small> ============== 9小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3881209052396010" target="freeweibo-mirror">SPAM 贪婪与对抗公义的代价！ //@老简宁:我一早就提醒…</a>
-</h2>
-<p>SPAM 贪婪与对抗公义的代价！ //@老简宁:我一早就提醒他们准备牙膏牙刷了</p>
-<p>
-	<small> ============== 9小时前</small>
 </p>
 <table>
     <tr>
