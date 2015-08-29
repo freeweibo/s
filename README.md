@@ -54,13 +54,13 @@
 </h2>
 <p>信不信由你！ //@山高路远N:[哈哈]//@正义微言联合会:[哈哈]//@江湖夜雨晚来急:[哈哈]//@博志微评:[哈哈]//@何紫微:[哈哈]//@王祖哲:我做了艰苦的思想重建：刚刚认识到专制是好的，民主是坏的——却又说中国是最民主的！[抓狂]<br><br>RE: 外交部：中国的互联网是自由的。环球时报：中国是最民主的国家。<br><img src="http://ww1.sinaimg.cn/large/4c7c1ba8jw1eviijng9z3j20k00eqdh5.jpg"></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3880965191322027" target="freeweibo-mirror">太监：我们是真男人！ //@张锐丶Baldwin:苍井空：我…</a>
 </h2>
 <p>太监：我们是真男人！ //@张锐丶Baldwin:苍井空：我还是处女 //@Ceca猫窝: 上港：我们是沪上代表//@愚公盐城: 骗子：我们最真诚。 //@纪昀:[哈哈]//@不变的糕哥:[哈哈]//@山河倒流: 流氓：我们最善良。//@杨子评:妓女：我们最干净。//@开心的雪-:太监：我们最男人。<br><br>RE: 外交部：中国的互联网是自由的。环球时报：中国是最民主的国家。<br><img src="http://ww1.sinaimg.cn/large/4c7c1ba8jw1eviijng9z3j20k00eqdh5.jpg"></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3880939375146454" target="freeweibo-mirror">//@陆弃:他们七个人，哪个不是两鬓斑白，哪个不是朝庭栋梁，…</a>
 </h2>
