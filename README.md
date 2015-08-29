@@ -26,6 +26,18 @@
 <p>
 	<small> ============== 1小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3881135349781251" target="freeweibo-mirror">我去，张灵甫的小老婆雇水军来了？这些呆货，有几个能说出张灵甫…</a>
+</h2>
+<p>我去，张灵甫的小老婆雇水军来了？这些呆货，有几个能说出张灵甫有什么抗日战绩可以称得上抗日英雄和民族之魂？说张灵甫帅的，希望不希望你奶奶当年嫁给张灵甫当原配成为它枪下冤魂的？国粉果然是智商问题。真要赞美国军中的抗战英雄，论抗日战功，王耀武也比张灵甫拿得出手嘛，为什么国粉不赞王耀武？<br><br>RE: 陕西省委的党建网站已被国民党攻陷？<br><img src="http://ww3.sinaimg.cn/large/aeaf9bf0jw1evj6ci2ro7j20xc18ggvg.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3881134552823426" target="freeweibo-mirror">SPAM  //@新建伯翁:刘，蒙古王！ //@浮萍晓之:/…</a>
+</h2>
+<p>SPAM  //@新建伯翁:刘，蒙古王！ //@浮萍晓之://@兰州O记还咳嗽: [嘻嘻]//@故宫的草尼马: 我只是临时当几天搬运工，绝无歹意。小秘书千万别像去年那样把我咔了，拜托！拜托！</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3881121554905281" target="freeweibo-mirror">//@人生有棋: [思考] //@邓相超: //@拉风红孩:…</a>
 </h2>
 <p>//@人生有棋: [思考] //@邓相超: //@拉风红孩: //@玲瀚: [哈哈][哈哈][哈哈][哈哈] //@浩骞兄: 必须追究杀害这位抗日英豪民族英雄的元凶—陈毅和粟裕！</p>
@@ -42,19 +54,19 @@
 </h2>
 <p>关于和尚兄弟的最新消息。<br><img src="http://ww1.sinaimg.cn/large/857a392dgw1evj56p35lvj20ez0qoq6e.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3881080992538654" target="freeweibo-mirror">杨是故意的//@HowardXue:对方队车队的服务人员严格…</a>
 </h2>
 <p>杨是故意的//@HowardXue:对方队车队的服务人员严格要求，尽心尽力服务好这些抗战英雄，用实际行动向老兵致敬。赞！[赞][心] 顺带鄙视一下语文不及格，看不懂中国话的，或者故意装傻充愣阴阳怪气的。[鄙视]<br><br>RE: 這些參加抗战老兵方陣的老人家，70年之後才有一次被承認的機會，這措辭嚴厲的「十不准」，他們應該不會也不敢犯規吧！其實可以更客氣表達出來，看這文字，不會是朝陽區人民群眾寫的吧？<br><img src="http://ww1.sinaimg.cn/large/5937c055gw1eviky7nmdwj20qo0zk7as.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3881065741048430" target="freeweibo-mirror">听听这口气。。 //@郑敏:老同志好可怜 //@吴铭:其实就…</a>
 </h2>
 <p>听听这口气。。 //@郑敏:老同志好可怜 //@吴铭:其实就是两个不准：这也不准，那也不准。<br><br>RE: 這些參加抗战老兵方陣的老人家，70年之後才有一次被承認的機會，這措辭嚴厲的「十不准」，他們應該不會也不敢犯規吧！其實可以更客氣表達出來，看這文字，不會是朝陽區人民群眾寫的吧？<br><img src="http://ww1.sinaimg.cn/large/5937c055gw1eviky7nmdwj20qo0zk7as.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3880968840632918" target="freeweibo-mirror">SPAM [哼][哼][哼]难的好差！</a>
 </h2>
@@ -125,18 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3880905729350296" target="freeweibo-mirror">這些參加抗战老兵方陣的老人家，70年之後才有一次被承認的機會…</a>
 </h2>
 <p>這些參加抗战老兵方陣的老人家，70年之後才有一次被承認的機會，這措辭嚴厲的「十不准」，他們應該不會也不敢犯規吧！其實可以更客氣表達出來，看這文字，不會是朝陽區人民群眾寫的吧？<br><img src="http://ww1.sinaimg.cn/large/5937c055gw1eviky7nmdwj20qo0zk7as.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3880904910695367" target="freeweibo-mirror">这个视频，怎么看都像是意有所指，特别那句“看看这七个人吧”，…</a>
-</h2>
-<p>这个视频，怎么看都像是意有所指，特别那句“看看这七个人吧”，似乎只差没点名道姓......虽然知道仅是戏言而已，但听着依然解气啊....[吃惊][吃惊]@90后@大漠飞鹰孤独侠 http://t.cn/RLFkosT</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3880903426511021" target="freeweibo-mirror">//@FT中文网://@兔子老愚: 为长者续命的活动，对当局…</a>
-</h2>
-<p>//@FT中文网://@兔子老愚: 为长者续命的活动，对当局来说，恐怕是不祥的信号。<br><br>RE: 【阅兵前的情绪】FT中文网专栏作家@兔子老愚  ：夏去秋来，中国人的情绪正在发生某种遽变。目睹国家机器不受制约地极速膨胀，肆意侵犯个人私域，人们愤怒、焦虑、惶惑不安。 http://t.cn/RyhShAh</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
