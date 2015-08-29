@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3881325964062743" target="freeweibo-mirror">SPAM //@赵晓:[吃惊]</a>
+</h2>
+<p>SPAM //@赵晓:[吃惊]<br><br>RE: 网评员培训，转发学习http://t.cn/RyzvWmA</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3881316506905818" target="freeweibo-mirror">SPAM 战时造谣是否有可能列入叛国罪直接枪毙？</a>
 </h2>
 <p>SPAM 战时造谣是否有可能列入叛国罪直接枪毙？<br><br>RE: 只有卖国贼、汉奸才会支持取消这些罪的死刑！明显是乱国之举！<br><img src="http://ww4.sinaimg.cn/large/0065xvrPjw1evju10rcywj309l05gmxn.jpg"></p>
@@ -48,7 +54,7 @@
 </h2>
 <p>SPAM 【 高清细节图】Versace/范思哲Pour Homme同名经典男士淡香水100ml   经典成熟魅力男香结合时尚、迷人、自在，各方面集成一身的香水，味道持久舒适又有一股优雅的魅力，香水颜色以及瓶身的宝石切割，不愧是VERSACE经典！[害羞][害羞] 【V号：LANEIGE678】[心][心][心]<br><img src="http://ww3.sinaimg.cn/large/962cf244gw1evjoy7b75oj20nk0vkgob.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3881248809960236" target="freeweibo-mirror">→_→//@水兵李铭:[最右] //@煙巳惔嘸菋:→_→ /…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3881195316146226" target="freeweibo-mirror">SPAM 应该是华为定制</a>
 </h2>
 <p>SPAM 应该是华为定制<br><br>RE: 军用手机，让大家开下眼界。<br><img src="http://ww1.sinaimg.cn/large/de2159bfgw1evjbn6crapj21w02io7wi.jpg"></p>
-<p>
-	<small> ============== 9小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3881195139720864" target="freeweibo-mirror">据可靠消息，一部分人大代表、政协委员已向全国人大法工委申请制…</a>
-</h2>
-<p>据可靠消息，一部分人大代表、政协委员已向全国人大法工委申请制定《反对否认文革罪行法》，主要内容是，凡是不承认、否认文革罪恶，即在公开场合公开表达、通过文件图片和视频等任何方式进行否认的人，将被处以一年到三年的有期徒刑和一万到一千万人民币的罚金。（转）</p>
 <p>
 	<small> ============== 9小时前</small>
 </p>
