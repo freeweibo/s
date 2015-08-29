@@ -24,7 +24,7 @@
 </h2>
 <p>//@吴澍言论:如此维稳，当局何安？@戴旭<br><br>RE: #思想哥说#在阅兵式既将到来之际、广东阳江参战老兵到政府上访维权被政府维稳人员殴打致二十余人重伤，全国五千余名老兵齐聚阳声援！ http://t.cn/Ry7reBC http://t.cn/Ry7rDuz .<br><img src="http://ww4.sinaimg.cn/large/6e68668dgw1evju2q6urmj20hr0m2gmy.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3881335732909085" target="freeweibo-mirror">“世上最悲哀的事情恐怕就是公开隐私来证明自己。”当我们学习爱…</a>
 </h2>
@@ -120,7 +120,7 @@
 </h2>
 <p>贪官什么的，借机出来罢了，政治兑换，或者金钱利益兑换，自古如此，社会更不稳定//@gu小资: 有个疑问，李双江儿子应该也在此例里面吧？犯法时不到18岁，而且有被钓鱼的嫌疑。//@华尔街见闻APP:转发微博</p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3881253793606149" target="freeweibo-mirror">SPAM 【 高清细节图】Versace/范思哲Pour H…</a>
 </h2>
@@ -132,7 +132,7 @@
 </h2>
 <p>→_→//@水兵李铭:[最右] //@煙巳惔嘸菋:→_→ //@紫琪凤凰:→_→ //@纯真的云10:良民都实名了，唯强盗不实名。</p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3881247287713037" target="freeweibo-mirror">SPAM  //@淵流青年:你身邊的牆，就是我未來的牢獄，在…</a>
 </h2>
