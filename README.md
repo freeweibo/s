@@ -30,7 +30,7 @@
 </h2>
 <p>我去，张灵甫的小老婆雇水军来了？这些呆货，有几个能说出张灵甫有什么抗日战绩可以称得上抗日英雄和民族之魂？说张灵甫帅的，希望不希望你奶奶当年嫁给张灵甫当原配成为它枪下冤魂的？国粉果然是智商问题。真要赞美国军中的抗战英雄，论抗日战功，王耀武也比张灵甫拿得出手嘛，为什么国粉不赞王耀武？<br><br>RE: 陕西省委的党建网站已被国民党攻陷？<br><img src="http://ww3.sinaimg.cn/large/aeaf9bf0jw1evj6ci2ro7j20xc18ggvg.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3881134552823426" target="freeweibo-mirror">SPAM  //@新建伯翁:刘，蒙古王！ //@浮萍晓之:/…</a>
 </h2>
@@ -54,7 +54,7 @@
 </h2>
 <p>如今的鸭子，也是够拼的了！http://t.cn/Ry7KxVz</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3881091867515354" target="freeweibo-mirror">陕西省委的党建网站已被国民党攻陷？</a>
 </h2>
