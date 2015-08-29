@@ -54,7 +54,7 @@
 </h2>
 <p>当年的抗战将领几乎无一例外都是战犯或历史反革命、共产党重写了历史！东条英机可以瞑目了。</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3881165910191551" target="freeweibo-mirror">右边不要乱说话！ //@万家灯火65:我忧虑，下一个杨佳不会…</a>
 </h2>
@@ -84,7 +84,7 @@
 </h2>
 <p>SPAM 看了参加阅兵仪式的女兵训练照，我仿佛看到了波涛汹涌的大海。得人美胸大，否则都不够格。<br><img src="http://ww3.sinaimg.cn/large/49230bc5gw1evjde3e74cj20ca055q3z.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3881150638008942" target="freeweibo-mirror">//@穆罕默德_大冬冬W://@石下顽草10世://@北马南…</a>
 </h2>
