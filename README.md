@@ -108,7 +108,7 @@
 </h2>
 <p>官员最大的优点是清廉，政府最大的优越是民主，网络最大的特色是自由，国民最大的特惠是幸福。@杨建国 你还忧虑(⊙o⊙)啥？！？<br><img src="http://ww2.sinaimg.cn/large/a62471f0jw1evjc20ii98j20fc0hsdhu.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3881136721633806" target="freeweibo-mirror">是谁这么恨毛泽东？幽燕龙君是谁？[吃惊]//@天涯论坛花猫0…</a>
 </h2>
@@ -132,7 +132,7 @@
 </h2>
 <p>这记者应该问问，令尊是体制内还是体制外的？这么成功。<br><br>RE: 这是BBC采访@王思聪 的视频！这些话能从一个富二代嘴里说出来，真让我很惊讶。http://t.cn/RyPgZdu</p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3881121554905281" target="freeweibo-mirror">//@人生有棋: [思考] //@邓相超: //@拉风红孩:…</a>
 </h2>
