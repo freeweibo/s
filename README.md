@@ -48,7 +48,7 @@
 </h2>
 <p>SPAM 自发学习！[哈哈]<br><br>RE: 网评员培训，转发学习http://t.cn/RyzvWmA</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3881318171418804" target="freeweibo-mirror">网评员培训，转发学习http://t.cn/RyzvWmA</a>
 </h2>
