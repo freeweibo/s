@@ -20,6 +20,24 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3881168393003700" target="freeweibo-mirror">当年的抗战将领几乎无一例外都是战犯或历史反革命、共产党重写了…</a>
+</h2>
+<p>当年的抗战将领几乎无一例外都是战犯或历史反革命、共产党重写了历史！东条英机可以瞑目了。</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3881164727078158" target="freeweibo-mirror">恭送[拜拜]//@夏榆的海景房:以目前时局和风潮看，所列这些…</a>
+</h2>
+<p>恭送[拜拜]//@夏榆的海景房:以目前时局和风潮看，所列这些二货进政治局也不是不可能的[哈哈]//@石扉客2014: 这个我信，文大大言必有中！[哈哈] //@文山娃:這就是正能量的三觀。三觀正則點子正，目測：點爺必入選。</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3881153146387438" target="freeweibo-mirror">SPAM 看了参加阅兵仪式的女兵训练照，我仿佛看到了波涛汹涌…</a>
+</h2>
+<p>SPAM 看了参加阅兵仪式的女兵训练照，我仿佛看到了波涛汹涌的大海。得人美胸大，否则都不够格。<br><img src="http://ww3.sinaimg.cn/large/49230bc5gw1evjde3e74cj20ca055q3z.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3881150638008942" target="freeweibo-mirror">//@穆罕默德_大冬冬W://@石下顽草10世://@北马南…</a>
 </h2>
 <p>//@穆罕默德_大冬冬W://@石下顽草10世://@北马南山://@吴显庆教授: //@罗争eedoo: //@徐幸起: //@大藏布: //@作家东海: //@深度News官网:装[挖鼻]，中国是最大的民主国家！→_→ //@任志强: 造谣！</p>
@@ -60,7 +78,7 @@
 </h2>
 <p>这记者应该问问，令尊是体制内还是体制外的？这么成功。<br><br>RE: 这是BBC采访@王思聪 的视频！这些话能从一个富二代嘴里说出来，真让我很惊讶。http://t.cn/RyPgZdu</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3881121554905281" target="freeweibo-mirror">//@人生有棋: [思考] //@邓相超: //@拉风红孩:…</a>
 </h2>
@@ -90,19 +108,19 @@
 </h2>
 <p>关于和尚兄弟的最新消息。<br><img src="http://ww1.sinaimg.cn/large/857a392dgw1evj56p35lvj20ez0qoq6e.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3881080992538654" target="freeweibo-mirror">杨是故意的//@HowardXue:对方队车队的服务人员严格…</a>
 </h2>
 <p>杨是故意的//@HowardXue:对方队车队的服务人员严格要求，尽心尽力服务好这些抗战英雄，用实际行动向老兵致敬。赞！[赞][心] 顺带鄙视一下语文不及格，看不懂中国话的，或者故意装傻充愣阴阳怪气的。[鄙视]<br><br>RE: 這些參加抗战老兵方陣的老人家，70年之後才有一次被承認的機會，這措辭嚴厲的「十不准」，他們應該不會也不敢犯規吧！其實可以更客氣表達出來，看這文字，不會是朝陽區人民群眾寫的吧？<br><img src="http://ww1.sinaimg.cn/large/5937c055gw1eviky7nmdwj20qo0zk7as.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3881065741048430" target="freeweibo-mirror">听听这口气。。 //@郑敏:老同志好可怜 //@吴铭:其实就…</a>
 </h2>
 <p>听听这口气。。 //@郑敏:老同志好可怜 //@吴铭:其实就是两个不准：这也不准，那也不准。<br><br>RE: 這些參加抗战老兵方陣的老人家，70年之後才有一次被承認的機會，這措辭嚴厲的「十不准」，他們應該不會也不敢犯規吧！其實可以更客氣表達出來，看這文字，不會是朝陽區人民群眾寫的吧？<br><img src="http://ww1.sinaimg.cn/large/5937c055gw1eviky7nmdwj20qo0zk7as.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3880968840632918" target="freeweibo-mirror">SPAM [哼][哼][哼]难的好差！</a>
 </h2>
@@ -119,24 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3880965577216364" target="freeweibo-mirror">信不信由你！ //@山高路远N:[哈哈]//@正义微言联合会…</a>
 </h2>
 <p>信不信由你！ //@山高路远N:[哈哈]//@正义微言联合会:[哈哈]//@江湖夜雨晚来急:[哈哈]//@博志微评:[哈哈]//@何紫微:[哈哈]//@王祖哲:我做了艰苦的思想重建：刚刚认识到专制是好的，民主是坏的——却又说中国是最民主的！[抓狂]<br><br>RE: 外交部：中国的互联网是自由的。环球时报：中国是最民主的国家。<br><img src="http://ww1.sinaimg.cn/large/4c7c1ba8jw1eviijng9z3j20k00eqdh5.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3880965191322027" target="freeweibo-mirror">太监：我们是真男人！ //@张锐丶Baldwin:苍井空：我…</a>
-</h2>
-<p>太监：我们是真男人！ //@张锐丶Baldwin:苍井空：我还是处女 //@Ceca猫窝: 上港：我们是沪上代表//@愚公盐城: 骗子：我们最真诚。 //@纪昀:[哈哈]//@不变的糕哥:[哈哈]//@山河倒流: 流氓：我们最善良。//@杨子评:妓女：我们最干净。//@开心的雪-:太监：我们最男人。<br><br>RE: 外交部：中国的互联网是自由的。环球时报：中国是最民主的国家。<br><img src="http://ww1.sinaimg.cn/large/4c7c1ba8jw1eviijng9z3j20k00eqdh5.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3880939375146454" target="freeweibo-mirror">//@陆弃:他们七个人，哪个不是两鬓斑白，哪个不是朝庭栋梁，…</a>
-</h2>
-<p>//@陆弃:他们七个人，哪个不是两鬓斑白，哪个不是朝庭栋梁，哪个不是朕的儿女亲家，他们烂了，朕心碎了。大清的心头之患就在这朝堂之上，你们烂一点，全国就会烂一片。你们全烂了，各地就会揭竿而起。[泪流满面]<br><br>RE: 这个视频，怎么看都像是意有所指，特别那句“看看这七个人吧”，似乎只差没点名道姓......虽然知道仅是戏言而已，但听着依然解气啊....[吃惊][吃惊]@90后@大漠飞鹰孤独侠 http://t.cn/RLFkosT</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3880934631545715" target="freeweibo-mirror">SPAM 拉低中奖率</a>
-</h2>
-<p>SPAM 拉低中奖率</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
