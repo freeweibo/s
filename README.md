@@ -38,6 +38,12 @@
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3881321510060824" target="freeweibo-mirror">//@真话哥: 转发微博</a>
+</h2>
+<p>//@真话哥: 转发微博<br><br>RE: #思想哥说#在阅兵式既将到来之际、广东阳江参战老兵到政府上访维权被政府维稳人员殴打致二十余人重伤，全国五千余名老兵齐聚阳声援！ http://t.cn/Ry7reBC http://t.cn/Ry7rDuz .<br><img src="http://ww4.sinaimg.cn/large/6e68668dgw1evju2q6urmj20hr0m2gmy.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3881320059082340" target="freeweibo-mirror">SPAM 自发学习！[哈哈]</a>
 </h2>
 <p>SPAM 自发学习！[哈哈]<br><br>RE: 网评员培训，转发学习http://t.cn/RyzvWmA</p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3881246063137014" target="freeweibo-mirror">SPAM “然并卵，那都不是事儿！无题飘过！消磨下大家等饭的…</a>
 </h2>
 <p>SPAM “然并卵，那都不是事儿！无题飘过！消磨下大家等饭的时间！٩(๑˃̌ۿ˂̌๑)۶”我的秒拍作品，一起来看~http://t.cn/Ry7eq6m（使用#秒拍#录制）</p>
-<p>
-	<small> ============== 8小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3881242031888935" target="freeweibo-mirror">//@邪人疯: 可以有。//@张晨初艺术空间://@范忠信:…</a>
-</h2>
-<p>//@邪人疯: 可以有。//@张晨初艺术空间://@范忠信:反文革言行法，就是中国今日的反纳粹言行法！<br><br>RE: 据可靠消息，一部分人大代表、政协委员已向全国人大法工委申请制定《反对否认文革罪行法》，主要内容是，凡是不承认、否认文革罪恶，即在公开场合公开表达、通过文件图片和视频等任何方式进行否认的人，将被处以一年到三年的有期徒刑和一万到一千万人民币的罚金。（转）</p>
 <p>
 	<small> ============== 8小时前</small>
 </p>
