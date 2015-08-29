@@ -38,6 +38,12 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3881157554782449" target="freeweibo-mirror">说到底，也不关广电的事，中国连一个综艺节目都有这么多限制，舆…</a>
+</h2>
+<p>说到底，也不关广电的事，中国连一个综艺节目都有这么多限制，舆论监督，可见一斑。<br><br>RE: 广电已经出真相，《极限挑战》遭停播的原因是广电一致认为它不够正能量，并召开会议，今后真人秀禁止拼明星阵容。会议上特此表扬央视自制的真人秀节目…<br><img src="http://ww4.sinaimg.cn/large/7aa71322jw1evjb65wufij20v913sn8j.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3881153146387438" target="freeweibo-mirror">SPAM 看了参加阅兵仪式的女兵训练照，我仿佛看到了波涛汹涌…</a>
 </h2>
 <p>SPAM 看了参加阅兵仪式的女兵训练照，我仿佛看到了波涛汹涌的大海。得人美胸大，否则都不够格。<br><img src="http://ww3.sinaimg.cn/large/49230bc5gw1evjde3e74cj20ca055q3z.jpg"></p>
@@ -133,12 +139,6 @@
 <p>听听这口气。。 //@郑敏:老同志好可怜 //@吴铭:其实就是两个不准：这也不准，那也不准。<br><br>RE: 這些參加抗战老兵方陣的老人家，70年之後才有一次被承認的機會，這措辭嚴厲的「十不准」，他們應該不會也不敢犯規吧！其實可以更客氣表達出來，看這文字，不會是朝陽區人民群眾寫的吧？<br><img src="http://ww1.sinaimg.cn/large/5937c055gw1eviky7nmdwj20qo0zk7as.jpg"></p>
 <p>
 	<small> ============== 8小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3880968840632918" target="freeweibo-mirror">SPAM [哼][哼][哼]难的好差！</a>
-</h2>
-<p>SPAM [哼][哼][哼]难的好差！<br><br>RE: #线上电影少女# [怒骂][怒骂][怒骂] 高 清版 甲鸟王 奉上！速 赞 转走！http://t.cn/RyhFy1E</p>
-<p>
-	<small> ============== 1天前</small>
 </p>
 <table>
     <tr>
