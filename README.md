@@ -96,7 +96,7 @@
 </h2>
 <p>若批评不自由，则赞美无意义——长平<br><img src="http://ww4.sinaimg.cn/large/621d03b7jw1evkror1421j20hs39rdxg.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3881589198849127" target="freeweibo-mirror">//@范忠信:转发微博</a>
 </h2>
@@ -126,7 +126,7 @@
 </h2>
 <p>//@何葆国: //@陶然万柳世界: //@晋商-孙志强:受教了[微笑]。我只是觉得某政权虽然自诩“中流砥柱”，但“一分抗日,二分敷衍,七分发展,十分宣传”的小人行径终究是无耻的。//@漫游者粒子: 现在的天皇少年时也因为战争随学校疏散到边远地区，是坚定的反战者，也是优秀的科学家。</p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3881559801180313" target="freeweibo-mirror">SPAM 没事，还有西北风。//@雪南兰: 一大奇观//@巴…</a>
 </h2>
