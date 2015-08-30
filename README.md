@@ -24,7 +24,7 @@
 </h2>
 <p>史料记载周总理的最后半年岁月痛苦不堪，持续尿血，一个全国知名的癌症专家小组，一套被寄托希望的治疗方案，结果被伟人的一个决定毁了，没人知道伟人有什么心理，可能他觉得自己的医术更高明？毛粉别的可以喷，这种事不要再来喷了，丧良心啊</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3881560510551922" target="freeweibo-mirror">//@何葆国: //@陶然万柳世界: //@晋商-孙志强:受…</a>
 </h2>
@@ -66,7 +66,7 @@
 </h2>
 <p>[吃惊] //@邵明波:转发微博</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3881542810170111" target="freeweibo-mirror">SPAM 【#女白领电脑存黄片被公司开除# 不满起诉】8月2…</a>
 </h2>
@@ -102,7 +102,7 @@
 </h2>
 <p>SPAM 呵呵<br><br>RE: 明君圣师都出来了……一帮奴才……<br><img src="http://ww2.sinaimg.cn/large/b0016548gw1evkiu7mvukj20hs0hst9g.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3881514305615484" target="freeweibo-mirror">明君圣师都出来了……一帮奴才……</a>
 </h2>
