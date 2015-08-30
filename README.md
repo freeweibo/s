@@ -24,7 +24,13 @@
 </h2>
 <p>SPAM 呵呵<br><br>RE: 明君圣师都出来了……一帮奴才……<br><img src="http://ww2.sinaimg.cn/large/b0016548gw1evkiu7mvukj20hs0hst9g.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3881514305615484" target="freeweibo-mirror">明君圣师都出来了……一帮奴才……</a>
+</h2>
+<p>明君圣师都出来了……一帮奴才……<br><img src="http://ww2.sinaimg.cn/large/b0016548gw1evkiu7mvukj20hs0hst9g.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3881511915263280" target="freeweibo-mirror">SPAM u#做爱视频#就是要开心[心]就是这么任性！电影一…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3881300580379853" target="freeweibo-mirror">建议特赦刘志军。理由如下：1对中国高铁发展做出有目共睹的巨大…</a>
 </h2>
 <p>建议特赦刘志军。理由如下：1对中国高铁发展做出有目共睹的巨大贡献。2对社会已无危害，失去权力后，无法再利用权力犯罪。3年事已高，且身患重病。4特赦刘志军体现了宽严相济，有罪治罪，有功也不是一笔勾销。会有极好的社会效果。有支持的转发点个赞吧，我们影响不了只是个态度。 http://t.cn/R2WJ0LW<br><img src="http://ww3.sinaimg.cn/large/5854ac96jw1evju3xjz7kj204905kdft.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3881298676757385" target="freeweibo-mirror">#思想哥说#在阅兵式既将到来之际、广东阳江参战老兵到政府上访…</a>
-</h2>
-<p>#思想哥说#在阅兵式既将到来之际、广东阳江参战老兵到政府上访维权被政府维稳人员殴打致二十余人重伤，全国五千余名老兵齐聚阳声援！ http://t.cn/Ry7reBC http://t.cn/Ry7rDuz .<br><img src="http://ww4.sinaimg.cn/large/6e68668dgw1evju2q6urmj20hr0m2gmy.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
