@@ -48,7 +48,7 @@
 </h2>
 <p>[吃惊] //@邵明波:转发微博</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3881538145745214" target="freeweibo-mirror">一道選擇題，可以顛覆“國家論”，讓“愛國者”精神徹底崩潰——…</a>
 </h2>
@@ -72,7 +72,7 @@
 </h2>
 <p>SPAM 呵呵<br><br>RE: 明君圣师都出来了……一帮奴才……<br><img src="http://ww2.sinaimg.cn/large/b0016548gw1evkiu7mvukj20hs0hst9g.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3881514305615484" target="freeweibo-mirror">明君圣师都出来了……一帮奴才……</a>
 </h2>
