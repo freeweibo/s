@@ -50,11 +50,17 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3881586859157984" target="freeweibo-mirror">[围观] //@Ming_the_Great_大明:都主义啦…</a>
+</h2>
+<p>[围观] //@Ming_the_Great_大明:都主义啦?[笑哈哈]//@北野的理想国:真是会恶心人！捧杀！ //@程立澜:又一个主义？ //@徐昕:[哈哈]//@磨_镜台:毛才混个思想[哈哈]<br><br>RE: 当代智库论坛: 探讨习近平主义，中国文化发展，经济前景以及智库发展。<br><img src="http://ww1.sinaimg.cn/large/4746bd3ejw1evkn7n5eabj20qo0ezabm.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3881585411310645" target="freeweibo-mirror">SPAM 成绩斐然//@文山娃:離今晚報更遠吧。 //@打断…</a>
 </h2>
 <p>SPAM 成绩斐然//@文山娃:離今晚報更遠吧。 //@打断亲爹三根肋骨:对照北京晚报 南方系的路还很长 //@文山娃:[鼓掌]//@武功高强王小虎：恭喜南方报业摘掉汉奸帽子加入爱国阵营[鼓掌][鼓掌][鼓掌]<br><br>RE: 分享图片<br><img src="http://ww4.sinaimg.cn/large/65cc9274jw1evklcf2b6oj20hs39rarm.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3881561806361900" target="freeweibo-mirror">史料记载周总理的最后半年岁月痛苦不堪，持续尿血，一个全国知名…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3881524698857681" target="freeweibo-mirror">为了大阅兵，菜农也休假。微评议：没事，我家还有水！</a>
 </h2>
 <p>为了大阅兵，菜农也休假。微评议：没事，我家还有水！<br><img src="http://ww3.sinaimg.cn/large/654270efjw1evkk1d67i5j20dc0h1n1p.jpg"></p>
-<p>
-	<small> ============== 7小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3881516117552809" target="freeweibo-mirror">SPAM 呵呵</a>
-</h2>
-<p>SPAM 呵呵<br><br>RE: 明君圣师都出来了……一帮奴才……<br><img src="http://ww2.sinaimg.cn/large/b0016548gw1evkiu7mvukj20hs0hst9g.jpg"></p>
 <p>
 	<small> ============== 7小时前</small>
 </p>
