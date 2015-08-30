@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3881536673403984" target="freeweibo-mirror">“悉贡所能”？！此信写于傅作义的堂弟留美博士、水利专家傅作恭…</a>
+</h2>
+<p>“悉贡所能”？！此信写于傅作义的堂弟留美博士、水利专家傅作恭1960年冬季饿死在夹边沟之后。1963年的傅作义早已将他们的真实面目看得一清二楚。//@私家野史: [吃驚]</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3881529812178225" target="freeweibo-mirror">兰园日记1  《乔石复杂身世再揭秘：柳丝态度首度曝光》   …</a>
 </h2>
 <p>兰园日记1  《乔石复杂身世再揭秘：柳丝态度首度曝光》   作者：大卫空间 2015年6月14日，原中共中央政治局常委、全国人大...  (来自 @头条博客) - http://t.cn/RyzSrOg<br><img src="http://ww1.sinaimg.cn/large/7d7de30djw1evkknhcjxzj20j60ed0tx.jpg"></p>
@@ -54,7 +60,7 @@
 </h2>
 <p>【中国加强监控基督教活动 影响波及香港】中国当局近期加大力度监控基督教在中国各地的影响力，影响所致，连在“一国两制”的香港也受到波及。香港一所小型新教教会的活跃领袖邬小鹤牧师表示，他上个月被传召到深圳与宗教事务局官员见面。该官员指他违背了一系列法律。http://t.cn/Ryzfsyv</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3881465638759854" target="freeweibo-mirror">SPAM #高级黑#1、高级黑是有意而为之；2、高级黑的成功…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3881304086989100" target="freeweibo-mirror">SPAM 这个真是太不要脸了！可耻可悲。 //@图宾根木匠:…</a>
 </h2>
 <p>SPAM 这个真是太不要脸了！可耻可悲。 //@图宾根木匠:真的假的？还有文件？</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3881301729573838" target="freeweibo-mirror">//@紫禁城中的狼73793: 真的不想说什么了//@-孔智…</a>
-</h2>
-<p>//@紫禁城中的狼73793: 真的不想说什么了//@-孔智勇:→_→<br><br>RE: #思想哥说#在阅兵式既将到来之际、广东阳江参战老兵到政府上访维权被政府维稳人员殴打致二十余人重伤，全国五千余名老兵齐聚阳声援！ http://t.cn/Ry7reBC http://t.cn/Ry7rDuz .<br><img src="http://ww4.sinaimg.cn/large/6e68668dgw1evju2q6urmj20hr0m2gmy.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
