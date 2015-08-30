@@ -24,7 +24,7 @@
 </h2>
 <p>……//@吴铭:历史虚无主义。</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3881624418605642" target="freeweibo-mirror">SPAM 汪精卫诶！哈哈哈哈哈哈！！</a>
 </h2>
