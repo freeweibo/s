@@ -138,7 +138,7 @@
 </h2>
 <p>你说，它们究竟是“理直气壮”呢还是“厚颜无耻”？<br><img src="http://ww2.sinaimg.cn/large/0069ZnPZjw1evkayhy9yyj30cq0fy0ts.jpg"></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p>
 <table>
     <tr>
