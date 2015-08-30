@@ -44,6 +44,12 @@
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3881591081899219" target="freeweibo-mirror">若批评不自由，则赞美无意义——长平</a>
+</h2>
+<p>若批评不自由，则赞美无意义——长平<br><img src="http://ww4.sinaimg.cn/large/621d03b7jw1evkror1421j20hs39rdxg.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3881589198849127" target="freeweibo-mirror">//@范忠信:转发微博</a>
 </h2>
 <p>//@范忠信:转发微博</p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3881536673403984" target="freeweibo-mirror">“悉贡所能”？！此信写于傅作义的堂弟留美博士、水利专家傅作恭…</a>
 </h2>
 <p>“悉贡所能”？！此信写于傅作义的堂弟留美博士、水利专家傅作恭1960年冬季饿死在夹边沟之后。1963年的傅作义早已将他们的真实面目看得一清二楚。//@私家野史: [吃驚]</p>
-<p>
-	<small> ============== 7小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3881529812178225" target="freeweibo-mirror">兰园日记1  《乔石复杂身世再揭秘：柳丝态度首度曝光》   …</a>
-</h2>
-<p>兰园日记1  《乔石复杂身世再揭秘：柳丝态度首度曝光》   作者：大卫空间 2015年6月14日，原中共中央政治局常委、全国人大...  (来自 @头条博客) - http://t.cn/RyzSrOg<br><img src="http://ww1.sinaimg.cn/large/7d7de30djw1evkknhcjxzj20j60ed0tx.jpg"></p>
 <p>
 	<small> ============== 7小时前</small>
 </p>
