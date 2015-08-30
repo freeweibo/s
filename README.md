@@ -108,7 +108,7 @@
 </h2>
 <p>《看！“百团大战”反动本质》 http://t.cn/RyzTGuz<br><img src="http://ww3.sinaimg.cn/large/621d03b7jw1evkv5vb5f9j20ku0wrjyl.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3881608497267668" target="freeweibo-mirror">[心][心][心]#做爱视频#就是要开心[心][心][心]就…</a>
 </h2>
