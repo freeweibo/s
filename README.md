@@ -86,6 +86,12 @@
 <p>
 	<small> ============== 10小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3881300580379853" target="freeweibo-mirror">建议特赦刘志军。理由如下：1对中国高铁发展做出有目共睹的巨大…</a>
+</h2>
+<p>建议特赦刘志军。理由如下：1对中国高铁发展做出有目共睹的巨大贡献。2对社会已无危害，失去权力后，无法再利用权力犯罪。3年事已高，且身患重病。4特赦刘志军体现了宽严相济，有罪治罪，有功也不是一笔勾销。会有极好的社会效果。有支持的转发点个赞吧，我们影响不了只是个态度。 http://t.cn/R2WJ0LW<br><img src="http://ww3.sinaimg.cn/large/5854ac96jw1evju3xjz7kj204905kdft.jpg"></p>
+<p>
+	<small> ============== 10小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3881298676757385" target="freeweibo-mirror">#思想哥说#在阅兵式既将到来之际、广东阳江参战老兵到政府上访…</a>
 </h2>
 <p>#思想哥说#在阅兵式既将到来之际、广东阳江参战老兵到政府上访维权被政府维稳人员殴打致二十余人重伤，全国五千余名老兵齐聚阳声援！ http://t.cn/Ry7reBC http://t.cn/Ry7rDuz .<br><img src="http://ww4.sinaimg.cn/large/6e68668dgw1evju2q6urmj20hr0m2gmy.jpg"></p>
@@ -102,7 +108,7 @@
 </h2>
 <p>只有卖国贼、汉奸才会支持取消这些罪的死刑！明显是乱国之举！<br><img src="http://ww4.sinaimg.cn/large/0065xvrPjw1evju10rcywj309l05gmxn.jpg"></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3881290853551205" target="freeweibo-mirror">博主风格一变，粉丝突然都喊着要取关  </a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3881253793606149" target="freeweibo-mirror">SPAM 【 高清细节图】Versace/范思哲Pour H…</a>
 </h2>
 <p>SPAM 【 高清细节图】Versace/范思哲Pour Homme同名经典男士淡香水100ml   经典成熟魅力男香结合时尚、迷人、自在，各方面集成一身的香水，味道持久舒适又有一股优雅的魅力，香水颜色以及瓶身的宝石切割，不愧是VERSACE经典！[害羞][害羞] 【V号：LANEIGE678】[心][心][心]<br><img src="http://ww3.sinaimg.cn/large/962cf244gw1evjoy7b75oj20nk0vkgob.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3881248809960236" target="freeweibo-mirror">→_→//@水兵李铭:[最右] //@煙巳惔嘸菋:→_→ /…</a>
-</h2>
-<p>→_→//@水兵李铭:[最右] //@煙巳惔嘸菋:→_→ //@紫琪凤凰:→_→ //@纯真的云10:良民都实名了，唯强盗不实名。</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
