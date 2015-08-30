@@ -60,7 +60,7 @@
 </h2>
 <p>一道選擇題，可以顛覆“國家論”，讓“愛國者”精神徹底崩潰——如果你是釣魚島居民，現在從兩個國家中公投選擇歸屬，請選擇：1.中國 2.日本<br><img src="http://ww4.sinaimg.cn/large/8434d6ccgw1evklksdzuhj20sg0lc42b.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3881536673403984" target="freeweibo-mirror">“悉贡所能”？！此信写于傅作义的堂弟留美博士、水利专家傅作恭…</a>
 </h2>
