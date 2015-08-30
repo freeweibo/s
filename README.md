@@ -24,7 +24,7 @@
 </h2>
 <p>中国加强监控基督教活动 影响波及香港 | www.zaobao.com#0-tsina-1-11728-397232819ff9a47a7b7e80a40613cfe1 本届中共总书记上台后，中国出现了打击公民社会的运动，与外籍人士有关联的非营利组织和宗教领袖成为打击对象。过去一年里，官员也加大了拆除教堂、关闭基督教学 http://t.cn/RyzfLAp<br><img src="http://ww4.sinaimg.cn/large/513a2b80jw1evke682qa0j206m02kdfp.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3881455320768059" target="freeweibo-mirror">希望有生之年还能看到这帮“妖孽”走上“正道”！</a>
 </h2>
