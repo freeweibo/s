@@ -72,7 +72,7 @@
 </h2>
 <p>SPAM 自发学习！[哈哈]<br><br>RE: 网评员培训，转发学习http://t.cn/RyzvWmA</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3881318762747240" target="freeweibo-mirror">墙内，拿着枪抢地收钱掠资源，墙外，拿着钱奴颜婢膝买朋友，到头…</a>
 </h2>
