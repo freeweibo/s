@@ -50,6 +50,12 @@
 <p>
 	<small> ============== 1小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3881538145745214" target="freeweibo-mirror">一道選擇題，可以顛覆“國家論”，讓“愛國者”精神徹底崩潰——…</a>
+</h2>
+<p>一道選擇題，可以顛覆“國家論”，讓“愛國者”精神徹底崩潰——如果你是釣魚島居民，現在從兩個國家中公投選擇歸屬，請選擇：1.中國 2.日本<br><img src="http://ww4.sinaimg.cn/large/8434d6ccgw1evklksdzuhj20sg0lc42b.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3881536673403984" target="freeweibo-mirror">“悉贡所能”？！此信写于傅作义的堂弟留美博士、水利专家傅作恭…</a>
 </h2>
 <p>“悉贡所能”？！此信写于傅作义的堂弟留美博士、水利专家傅作恭1960年冬季饿死在夹边沟之后。1963年的傅作义早已将他们的真实面目看得一清二楚。//@私家野史: [吃驚]</p>
@@ -104,6 +110,12 @@
 <p>
 	<small> ============== 7小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3881445401382135" target="freeweibo-mirror">你说，它们究竟是“理直气壮”呢还是“厚颜无耻”？</a>
+</h2>
+<p>你说，它们究竟是“理直气壮”呢还是“厚颜无耻”？<br><img src="http://ww2.sinaimg.cn/large/0069ZnPZjw1evkayhy9yyj30cq0fy0ts.jpg"></p>
+<p>
+	<small> ============== 8小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3881429882582994" target="freeweibo-mirror">支持 //@AC偶遇梅里斯:转发微博</a>
 </h2>
 <p>支持 //@AC偶遇梅里斯:转发微博<br><br>RE: 建议特赦刘志军。理由如下：1对中国高铁发展做出有目共睹的巨大贡献。2对社会已无危害，失去权力后，无法再利用权力犯罪。3年事已高，且身患重病。4特赦刘志军体现了宽严相济，有罪治罪，有功也不是一笔勾销。会有极好的社会效果。有支持的转发点个赞吧，我们影响不了只是个态度。 http://t.cn/R2WJ0LW<br><img src="http://ww3.sinaimg.cn/large/5854ac96jw1evju3xjz7kj204905kdft.jpg"></p>
@@ -125,18 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3881332276642198" target="freeweibo-mirror">沈阳消防沈阳警察。本该是保卫人民的人民子弟兵，人民的公仆，人…</a>
 </h2>
 <p>沈阳消防沈阳警察。本该是保卫人民的人民子弟兵，人民的公仆，人民的警察，竟然把水炮对准了自己的人民打晕，谁后人民警察暴力群殴自己的百姓，这个是什么世道，大家看了心里是何感想！！！国家能放纵地方这等残暴行径，那么这个国家就是主凶。</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3881325964062743" target="freeweibo-mirror">SPAM //@赵晓:[吃惊]</a>
-</h2>
-<p>SPAM //@赵晓:[吃惊]<br><br>RE: 网评员培训，转发学习http://t.cn/RyzvWmA</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3881321510060824" target="freeweibo-mirror">//@真话哥: 转发微博</a>
-</h2>
-<p>//@真话哥: 转发微博<br><br>RE: #思想哥说#在阅兵式既将到来之际、广东阳江参战老兵到政府上访维权被政府维稳人员殴打致二十余人重伤，全国五千余名老兵齐聚阳声援！ http://t.cn/Ry7reBC http://t.cn/Ry7rDuz .<br><img src="http://ww4.sinaimg.cn/large/6e68668dgw1evju2q6urmj20hr0m2gmy.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
