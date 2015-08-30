@@ -120,13 +120,13 @@
 </h2>
 <p>你说，它们究竟是“理直气壮”呢还是“厚颜无耻”？<br><img src="http://ww2.sinaimg.cn/large/0069ZnPZjw1evkayhy9yyj30cq0fy0ts.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3881429882582994" target="freeweibo-mirror">支持 //@AC偶遇梅里斯:转发微博</a>
 </h2>
 <p>支持 //@AC偶遇梅里斯:转发微博<br><br>RE: 建议特赦刘志军。理由如下：1对中国高铁发展做出有目共睹的巨大贡献。2对社会已无危害，失去权力后，无法再利用权力犯罪。3年事已高，且身患重病。4特赦刘志军体现了宽严相济，有罪治罪，有功也不是一笔勾销。会有极好的社会效果。有支持的转发点个赞吧，我们影响不了只是个态度。 http://t.cn/R2WJ0LW<br><img src="http://ww3.sinaimg.cn/large/5854ac96jw1evju3xjz7kj204905kdft.jpg"></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3881339063820880" target="freeweibo-mirror">//@吴澍言论:如此维稳，当局何安？@戴旭</a>
 </h2>
