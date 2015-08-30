@@ -24,7 +24,7 @@
 </h2>
 <p>中国加强监控基督教活动 影响波及香港 | www.zaobao.com#0-tsina-1-11728-397232819ff9a47a7b7e80a40613cfe1 本届中共总书记上台后，中国出现了打击公民社会的运动，与外籍人士有关联的非营利组织和宗教领袖成为打击对象。过去一年里，官员也加大了拆除教堂、关闭基督教学 http://t.cn/RyzfLAp<br><img src="http://ww4.sinaimg.cn/large/513a2b80jw1evke682qa0j206m02kdfp.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3881473264167874" target="freeweibo-mirror">【中国加强监控基督教活动 影响波及香港】中国当局近期加大力度…</a>
 </h2>
@@ -48,7 +48,7 @@
 </h2>
 <p>支持 //@AC偶遇梅里斯:转发微博<br><br>RE: 建议特赦刘志军。理由如下：1对中国高铁发展做出有目共睹的巨大贡献。2对社会已无危害，失去权力后，无法再利用权力犯罪。3年事已高，且身患重病。4特赦刘志军体现了宽严相济，有罪治罪，有功也不是一笔勾销。会有极好的社会效果。有支持的转发点个赞吧，我们影响不了只是个态度。 http://t.cn/R2WJ0LW<br><img src="http://ww3.sinaimg.cn/large/5854ac96jw1evju3xjz7kj204905kdft.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3881339063820880" target="freeweibo-mirror">//@吴澍言论:如此维稳，当局何安？@戴旭</a>
 </h2>
