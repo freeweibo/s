@@ -48,7 +48,7 @@
 </h2>
 <p>“世上最悲哀的事情恐怕就是公开隐私来证明自己。”当我们学习爱人，学会恨人，知道幸福，懂得人生，才敢面对自己。别人不重要，重要的是经过风雨，你仍会潇洒的吹干头发。希望每个人都有自己选择幸福的权利，也希望每个人不要为了别人去证明自己。对任何人都一样。</p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3881332276642198" target="freeweibo-mirror">沈阳消防沈阳警察。本该是保卫人民的人民子弟兵，人民的公仆，人…</a>
 </h2>
@@ -72,7 +72,13 @@
 </h2>
 <p>SPAM 自发学习！[哈哈]<br><br>RE: 网评员培训，转发学习http://t.cn/RyzvWmA</p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3881318762747240" target="freeweibo-mirror">墙内，拿着枪抢地收钱掠资源，墙外，拿着钱奴颜婢膝买朋友，到头…</a>
+</h2>
+<p>墙内，拿着枪抢地收钱掠资源，墙外，拿着钱奴颜婢膝买朋友，到头来丢了墙内的人心没了墙外的朋友，治国到此已是黔驴技穷；未来三年经济压力会致底层临爆，墙外民宪大潮冲垮了一个又一个专独正权，没有人能阻挡人民冲向自由的脚步；好戏或许不会连台但终究会上演，想做硬骨头的罪犯一定会死得最难看！<br><img src="http://ww2.sinaimg.cn/large/006cLn6Agw1evjwewd5cxj30dc076dgl.jpg"></p>
+<p>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3881318171418804" target="freeweibo-mirror">网评员培训，转发学习http://t.cn/RyzvWmA</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3881289482070125" target="freeweibo-mirror">//@善待他人就是善待自己: 转发微博</a>
 </h2>
 <p>//@善待他人就是善待自己: 转发微博</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3881279592830818" target="freeweibo-mirror">SPAM [喵喵][喵喵][喵喵][喵喵][喵喵]网络评论员…</a>
-</h2>
-<p>SPAM [喵喵][喵喵][喵喵][喵喵][喵喵]网络评论员培训班开班啦。 http://t.cn/RyzvWmA .</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
