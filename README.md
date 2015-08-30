@@ -24,7 +24,7 @@
 </h2>
 <p>//@何葆国: //@陶然万柳世界: //@晋商-孙志强:受教了[微笑]。我只是觉得某政权虽然自诩“中流砥柱”，但“一分抗日,二分敷衍,七分发展,十分宣传”的小人行径终究是无耻的。//@漫游者粒子: 现在的天皇少年时也因为战争随学校疏散到边远地区，是坚定的反战者，也是优秀的科学家。</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3881559801180313" target="freeweibo-mirror">SPAM 没事，还有西北风。//@雪南兰: 一大奇观//@巴…</a>
 </h2>
@@ -86,6 +86,12 @@
 <p>
 	<small> ============== 4小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3881524698857681" target="freeweibo-mirror">为了大阅兵，菜农也休假。微评议：没事，我家还有水！</a>
+</h2>
+<p>为了大阅兵，菜农也休假。微评议：没事，我家还有水！<br><img src="http://ww3.sinaimg.cn/large/654270efjw1evkk1d67i5j20dc0h1n1p.jpg"></p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3881516117552809" target="freeweibo-mirror">SPAM 呵呵</a>
 </h2>
 <p>SPAM 呵呵<br><br>RE: 明君圣师都出来了……一帮奴才……<br><img src="http://ww2.sinaimg.cn/large/b0016548gw1evkiu7mvukj20hs0hst9g.jpg"></p>
@@ -126,19 +132,13 @@
 </h2>
 <p>希望有生之年还能看到这帮“妖孽”走上“正道”！<br><br>RE: 墙内，拿着枪抢地收钱掠资源，墙外，拿着钱奴颜婢膝买朋友，到头来丢了墙内的人心没了墙外的朋友，治国到此已是黔驴技穷；未来三年经济压力会致底层临爆，墙外民宪大潮冲垮了一个又一个专独正权，没有人能阻挡人民冲向自由的脚步；好戏或许不会连台但终究会上演，想做硬骨头的罪犯一定会死得最难看！<br><img src="http://ww2.sinaimg.cn/large/006cLn6Agw1evjwewd5cxj30dc076dgl.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3881445401382135" target="freeweibo-mirror">你说，它们究竟是“理直气壮”呢还是“厚颜无耻”？</a>
 </h2>
 <p>你说，它们究竟是“理直气壮”呢还是“厚颜无耻”？<br><img src="http://ww2.sinaimg.cn/large/0069ZnPZjw1evkayhy9yyj30cq0fy0ts.jpg"></p>
 <p>
 	<small> ============== 9小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3881429882582994" target="freeweibo-mirror">支持 //@AC偶遇梅里斯:转发微博</a>
-</h2>
-<p>支持 //@AC偶遇梅里斯:转发微博<br><br>RE: 建议特赦刘志军。理由如下：1对中国高铁发展做出有目共睹的巨大贡献。2对社会已无危害，失去权力后，无法再利用权力犯罪。3年事已高，且身患重病。4特赦刘志军体现了宽严相济，有罪治罪，有功也不是一笔勾销。会有极好的社会效果。有支持的转发点个赞吧，我们影响不了只是个态度。 http://t.cn/R2WJ0LW<br><img src="http://ww3.sinaimg.cn/large/5854ac96jw1evju3xjz7kj204905kdft.jpg"></p>
-<p>
-	<small> ============== 10小时前</small>
 </p>
 <table>
     <tr>
