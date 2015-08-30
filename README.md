@@ -120,7 +120,7 @@
 </h2>
 <p>SPAM 发表了一篇转载博文《[转载]希望中国看近平》http://t.cn/RyzTtiB<br><img src="http://ww1.sinaimg.cn/large/5408ee85jw1evktbz366ej20f90ehdgj.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3881603325879746" target="freeweibo-mirror">汪精卫~~~奋不顾身~~~网贴看多了就真认为汪是自视中华难敌…</a>
 </h2>
