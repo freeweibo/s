@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3881605388608385" target="freeweibo-mirror">SPAM 发表了一篇转载博文《[转载]希望中国看近平》htt…</a>
+</h2>
+<p>SPAM 发表了一篇转载博文《[转载]希望中国看近平》http://t.cn/RyzTtiB<br><img src="http://ww1.sinaimg.cn/large/5408ee85jw1evktbz366ej20f90ehdgj.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3881594949106632" target="freeweibo-mirror">//@吴顾问1970://@媒体人杜二伟-2://@洒家大头…</a>
 </h2>
 <p>//@吴顾问1970://@媒体人杜二伟-2://@洒家大头阿福:转发微博</p>
@@ -30,7 +36,7 @@
 </h2>
 <p>小小的台湾敢如此挑衅，岂能竟无一人是男儿？ //@王建国:[赞][赞][赞]//@王坤_企业文化顾问: 转发微博</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3881592277942864" target="freeweibo-mirror">SPAM 冬天来了</a>
 </h2>
@@ -78,19 +84,19 @@
 </h2>
 <p>SPAM 94[哈哈] //@怀仁和尚:你真坏！<br><br>RE: 一道選擇題，可以顛覆“國家論”，讓“愛國者”精神徹底崩潰——如果你是釣魚島居民，現在從兩個國家中公投選擇歸屬，請選擇：1.中國 2.日本<br><img src="http://ww4.sinaimg.cn/large/8434d6ccgw1evklksdzuhj20sg0lc42b.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3881548245828648" target="freeweibo-mirror">//@柳絮209:“必须”两字很说明问题～ //@可可-cm…</a>
 </h2>
 <p>//@柳絮209:“必须”两字很说明问题～ //@可可-cm://@陈业文新大都: //@徐幸起://@不变的糕哥://@齐鲁秦人5: 厚颜无耻//@小白兔378转世://@杨胜鹏腾讯: 转发微博<br><br>RE: 你说，它们究竟是“理直气壮”呢还是“厚颜无耻”？<br><img src="http://ww2.sinaimg.cn/large/0069ZnPZjw1evkayhy9yyj30cq0fy0ts.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3881547633346926" target="freeweibo-mirror">苛政还在，屁民还在。 //@燕小小云:老百姓的血汗钱最终还是…</a>
 </h2>
 <p>苛政还在，屁民还在。 //@燕小小云:老百姓的血汗钱最终还是落入国库，罚没也是然并卵 //@张老汉一世:大戏好看！ //@邵明波:转发微博</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3881546861416736" target="freeweibo-mirror">[吃惊] //@邵明波:转发微博</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3881516117552809" target="freeweibo-mirror">SPAM 呵呵</a>
 </h2>
 <p>SPAM 呵呵<br><br>RE: 明君圣师都出来了……一帮奴才……<br><img src="http://ww2.sinaimg.cn/large/b0016548gw1evkiu7mvukj20hs0hst9g.jpg"></p>
-<p>
-	<small> ============== 7小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3881514305615484" target="freeweibo-mirror">明君圣师都出来了……一帮奴才……</a>
-</h2>
-<p>明君圣师都出来了……一帮奴才……<br><img src="http://ww2.sinaimg.cn/large/b0016548gw1evkiu7mvukj20hs0hst9g.jpg"></p>
 <p>
 	<small> ============== 7小时前</small>
 </p>
