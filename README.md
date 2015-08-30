@@ -26,6 +26,12 @@
 <p>
 	<small> ============== 1小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3881559801180313" target="freeweibo-mirror">SPAM 没事，还有西北风。//@雪南兰: 一大奇观//@巴…</a>
+</h2>
+<p>SPAM 没事，还有西北风。//@雪南兰: 一大奇观//@巴黎赵永升_金融学:满大街的朝阳群众，低头玩手机，抬头数雨滴。<br><br>RE: 为了大阅兵，菜农也休假。微评议：没事，我家还有水！<br><img src="http://ww3.sinaimg.cn/large/654270efjw1evkk1d67i5j20dc0h1n1p.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3881549525356715" target="freeweibo-mirror">？ //@一枚落叶一百世:这也太离谱了。</a>
 </h2>
 <p>？ //@一枚落叶一百世:这也太离谱了。<br><br>RE: 令计划和郭美美关系不一般，两人不但通奸同居，还生儿育女。虽然郭美美事件造成了极其严重的社会影响，社会公众反响极其强烈，要求彻查，可是由于令计划借口维稳，硬是将这一明显的贪污案压下。去年郭美美再次出事，围绕着她产生了一场非常激烈的斗争——现在已经到了白热化的程度。请各位密切注意。</p>
@@ -53,6 +59,12 @@
 	<a href="https://freeweibo.com/weibo/3881546861416736" target="freeweibo-mirror">[吃惊] //@邵明波:转发微博</a>
 </h2>
 <p>[吃惊] //@邵明波:转发微博</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3881542810170111" target="freeweibo-mirror">SPAM 【#女白领电脑存黄片被公司开除# 不满起诉】8月2…</a>
+</h2>
+<p>SPAM 【#女白领电脑存黄片被公司开除# 不满起诉】8月28日，外企女白领郑女士因电脑存成人电影被开除案二审开庭。一审中，法院认为涉事公司有权解雇郑女士且无需支付解除劳动合同赔偿金。郑女士上诉要求撤销一审判决，并要求涉事公司支付赔偿金近30万元。此案未当庭宣判。（千龙网）http://t.cn/Ry7wGhP<br><img src="http://ww1.sinaimg.cn/large/90e75078gw1evkm57pvdbj20dw098q3r.jpg"></p>
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
@@ -108,7 +120,7 @@
 </h2>
 <p>SPAM #高级黑#1、高级黑是有意而为之；2、高级黑的成功机制是借力打力。比如，你说美国的好，我就说“美国的月亮都比中国的圆”；3、当宣传夸张到极致的的时候，就成了高级黑。比如，共党共产共妻；4、越愚昧的社会，高级黑的市场越大；5、国共、左右、穷富等等都深受高级黑之害，但都乐此不疲；6、请补充…<br><img src="http://ww2.sinaimg.cn/large/7867f2a5jw1evkd9507z3j20dc0hs0u9.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3881455320768059" target="freeweibo-mirror">希望有生之年还能看到这帮“妖孽”走上“正道”！</a>
 </h2>
@@ -127,18 +139,6 @@
 <p>支持 //@AC偶遇梅里斯:转发微博<br><br>RE: 建议特赦刘志军。理由如下：1对中国高铁发展做出有目共睹的巨大贡献。2对社会已无危害，失去权力后，无法再利用权力犯罪。3年事已高，且身患重病。4特赦刘志军体现了宽严相济，有罪治罪，有功也不是一笔勾销。会有极好的社会效果。有支持的转发点个赞吧，我们影响不了只是个态度。 http://t.cn/R2WJ0LW<br><img src="http://ww3.sinaimg.cn/large/5854ac96jw1evju3xjz7kj204905kdft.jpg"></p>
 <p>
 	<small> ============== 10小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3881339063820880" target="freeweibo-mirror">//@吴澍言论:如此维稳，当局何安？@戴旭</a>
-</h2>
-<p>//@吴澍言论:如此维稳，当局何安？@戴旭<br><br>RE: #思想哥说#在阅兵式既将到来之际、广东阳江参战老兵到政府上访维权被政府维稳人员殴打致二十余人重伤，全国五千余名老兵齐聚阳声援！ http://t.cn/Ry7reBC http://t.cn/Ry7rDuz .<br><img src="http://ww4.sinaimg.cn/large/6e68668dgw1evju2q6urmj20hr0m2gmy.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3881335732909085" target="freeweibo-mirror">“世上最悲哀的事情恐怕就是公开隐私来证明自己。”当我们学习爱…</a>
-</h2>
-<p>“世上最悲哀的事情恐怕就是公开隐私来证明自己。”当我们学习爱人，学会恨人，知道幸福，懂得人生，才敢面对自己。别人不重要，重要的是经过风雨，你仍会潇洒的吹干头发。希望每个人都有自己选择幸福的权利，也希望每个人不要为了别人去证明自己。对任何人都一样。</p>
-<p>
-	<small> ============== 1天前</small>
 </p>
 <table>
     <tr>
