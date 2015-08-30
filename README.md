@@ -60,7 +60,7 @@
 </h2>
 <p>[吃惊] //@邵明波:转发微博</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3881542810170111" target="freeweibo-mirror">SPAM 【#女白领电脑存黄片被公司开除# 不满起诉】8月2…</a>
 </h2>
@@ -96,7 +96,7 @@
 </h2>
 <p>SPAM 呵呵<br><br>RE: 明君圣师都出来了……一帮奴才……<br><img src="http://ww2.sinaimg.cn/large/b0016548gw1evkiu7mvukj20hs0hst9g.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3881514305615484" target="freeweibo-mirror">明君圣师都出来了……一帮奴才……</a>
 </h2>
