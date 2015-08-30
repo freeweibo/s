@@ -26,6 +26,12 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3881465638759854" target="freeweibo-mirror">SPAM #高级黑#1、高级黑是有意而为之；2、高级黑的成功…</a>
+</h2>
+<p>SPAM #高级黑#1、高级黑是有意而为之；2、高级黑的成功机制是借力打力。比如，你说美国的好，我就说“美国的月亮都比中国的圆”；3、当宣传夸张到极致的的时候，就成了高级黑。比如，共党共产共妻；4、越愚昧的社会，高级黑的市场越大；5、国共、左右、穷富等等都深受高级黑之害，但都乐此不疲；6、请补充…<br><img src="http://ww2.sinaimg.cn/large/7867f2a5jw1evkd9507z3j20dc0hs0u9.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3881455320768059" target="freeweibo-mirror">希望有生之年还能看到这帮“妖孽”走上“正道”！</a>
 </h2>
 <p>希望有生之年还能看到这帮“妖孽”走上“正道”！<br><br>RE: 墙内，拿着枪抢地收钱掠资源，墙外，拿着钱奴颜婢膝买朋友，到头来丢了墙内的人心没了墙外的朋友，治国到此已是黔驴技穷；未来三年经济压力会致底层临爆，墙外民宪大潮冲垮了一个又一个专独正权，没有人能阻挡人民冲向自由的脚步；好戏或许不会连台但终究会上演，想做硬骨头的罪犯一定会死得最难看！<br><img src="http://ww2.sinaimg.cn/large/006cLn6Agw1evjwewd5cxj30dc076dgl.jpg"></p>
@@ -66,7 +72,7 @@
 </h2>
 <p>//@真话哥: 转发微博<br><br>RE: #思想哥说#在阅兵式既将到来之际、广东阳江参战老兵到政府上访维权被政府维稳人员殴打致二十余人重伤，全国五千余名老兵齐聚阳声援！ http://t.cn/Ry7reBC http://t.cn/Ry7rDuz .<br><img src="http://ww4.sinaimg.cn/large/6e68668dgw1evju2q6urmj20hr0m2gmy.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3881320059082340" target="freeweibo-mirror">SPAM 自发学习！[哈哈]</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3881290853551205" target="freeweibo-mirror">博主风格一变，粉丝突然都喊着要取关  </a>
 </h2>
 <p>博主风格一变，粉丝突然都喊着要取关  </p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3881289482070125" target="freeweibo-mirror">//@善待他人就是善待自己: 转发微博</a>
-</h2>
-<p>//@善待他人就是善待自己: 转发微博</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
