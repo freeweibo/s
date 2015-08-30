@@ -96,7 +96,7 @@
 </h2>
 <p>SPAM 冬天来了<br><br>RE: 分享图片<br><img src="http://ww4.sinaimg.cn/large/65cc9274jw1evklcf2b6oj20hs39rarm.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3881591081899219" target="freeweibo-mirror">若批评不自由，则赞美无意义——长平</a>
 </h2>
@@ -126,7 +126,7 @@
 </h2>
 <p>史料记载周总理的最后半年岁月痛苦不堪，持续尿血，一个全国知名的癌症专家小组，一套被寄托希望的治疗方案，结果被伟人的一个决定毁了，没人知道伟人有什么心理，可能他觉得自己的医术更高明？毛粉别的可以喷，这种事不要再来喷了，丧良心啊</p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3881560510551922" target="freeweibo-mirror">//@何葆国: //@陶然万柳世界: //@晋商-孙志强:受…</a>
 </h2>
