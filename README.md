@@ -60,7 +60,7 @@
 </h2>
 <p>【九鼎投资集团发20亿红包，已上央视CCTV2了】#人脉变钱脉#！下载这个绑定银行卡就可以提现20，同时你每邀请一位好友还能赚20，好友邀请别人，你又能赚10块。注册地址：猛擢☞http://t.cn/RyPZ5xK邀请码：HERBA2N，记住，一定要记得填写邀请码，不填就没有20奖励了！<br><img src="http://ww3.sinaimg.cn/large/990ef6acjw1evl1pr5o5mj20c80lsjs4.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3881676763523355" target="freeweibo-mirror">SPAM 哈哈哈哈谁窥视狙击谁 //@人神共粉:利用光的折射…</a>
 </h2>
@@ -102,7 +102,7 @@
 </h2>
 <p>SPAM 汪精卫诶！哈哈哈哈哈哈！！<br><br>RE: 二战四巨头，蒋中正堂堂正正算一位。全世界都承认的民族英雄、抗战功臣，宵小之辈敲敲键盘、舔舔当局，就给一笔抹杀了？无知可以原谅，无耻就是辱没祖宗。没有蒋中正的艰苦抗战，没有汪精卫的奋不顾身，没有国军将士的牺牲，能有你？你是谁？你这会儿是日本人的一泡尿。天天抗日，居然连祖宗都搞不清。<br><img src="http://ww4.sinaimg.cn/large/56b01c69jw1evks735x80j20fa0a6aaj.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3881623533295837" target="freeweibo-mirror">SPAM 没看到“美”。[熊猫] //@非花非我o: 快点过…</a>
 </h2>
