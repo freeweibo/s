@@ -66,7 +66,7 @@
 </h2>
 <p>//@瑟瑟0101://@江南梅://@木尔:[话筒][话筒][话筒]以史为镜、兼听则明！//@深圳祝羚: 转发微博<br><br>RE: 《看！“百团大战”反动本质》 http://t.cn/RyzTGuz<br><img src="http://ww3.sinaimg.cn/large/621d03b7jw1evkv5vb5f9j20ku0wrjyl.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3881671314903895" target="freeweibo-mirror">【为了阅兵，北京人被要求暂停生病】9月3日阅兵日当天，东西城…</a>
 </h2>
