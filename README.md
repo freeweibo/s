@@ -66,7 +66,7 @@
 </h2>
 <p>SPAM //@赵晓:[吃惊]<br><br>RE: 网评员培训，转发学习http://t.cn/RyzvWmA</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3881321510060824" target="freeweibo-mirror">//@真话哥: 转发微博</a>
 </h2>
