@@ -72,7 +72,7 @@
 </h2>
 <p>SPAM 【#女白领电脑存黄片被公司开除# 不满起诉】8月28日，外企女白领郑女士因电脑存成人电影被开除案二审开庭。一审中，法院认为涉事公司有权解雇郑女士且无需支付解除劳动合同赔偿金。郑女士上诉要求撤销一审判决，并要求涉事公司支付赔偿金近30万元。此案未当庭宣判。（千龙网）http://t.cn/Ry7wGhP<br><img src="http://ww1.sinaimg.cn/large/90e75078gw1evkm57pvdbj20dw098q3r.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3881538145745214" target="freeweibo-mirror">一道選擇題，可以顛覆“國家論”，讓“愛國者”精神徹底崩潰——…</a>
 </h2>
