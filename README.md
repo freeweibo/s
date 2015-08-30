@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3881529812178225" target="freeweibo-mirror">兰园日记1  《乔石复杂身世再揭秘：柳丝态度首度曝光》   …</a>
+</h2>
+<p>兰园日记1  《乔石复杂身世再揭秘：柳丝态度首度曝光》   作者：大卫空间 2015年6月14日，原中共中央政治局常委、全国人大...  (来自 @头条博客) - http://t.cn/RyzSrOg<br><img src="http://ww1.sinaimg.cn/large/7d7de30djw1evkknhcjxzj20j60ed0tx.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3881516117552809" target="freeweibo-mirror">SPAM 呵呵</a>
 </h2>
 <p>SPAM 呵呵<br><br>RE: 明君圣师都出来了……一帮奴才……<br><img src="http://ww2.sinaimg.cn/large/b0016548gw1evkiu7mvukj20hs0hst9g.jpg"></p>
@@ -54,7 +60,7 @@
 </h2>
 <p>SPAM #高级黑#1、高级黑是有意而为之；2、高级黑的成功机制是借力打力。比如，你说美国的好，我就说“美国的月亮都比中国的圆”；3、当宣传夸张到极致的的时候，就成了高级黑。比如，共党共产共妻；4、越愚昧的社会，高级黑的市场越大；5、国共、左右、穷富等等都深受高级黑之害，但都乐此不疲；6、请补充…<br><img src="http://ww2.sinaimg.cn/large/7867f2a5jw1evkd9507z3j20dc0hs0u9.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3881455320768059" target="freeweibo-mirror">希望有生之年还能看到这帮“妖孽”走上“正道”！</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3881301729573838" target="freeweibo-mirror">//@紫禁城中的狼73793: 真的不想说什么了//@-孔智…</a>
 </h2>
 <p>//@紫禁城中的狼73793: 真的不想说什么了//@-孔智勇:→_→<br><br>RE: #思想哥说#在阅兵式既将到来之际、广东阳江参战老兵到政府上访维权被政府维稳人员殴打致二十余人重伤，全国五千余名老兵齐聚阳声援！ http://t.cn/Ry7reBC http://t.cn/Ry7rDuz .<br><img src="http://ww4.sinaimg.cn/large/6e68668dgw1evju2q6urmj20hr0m2gmy.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3881300580379853" target="freeweibo-mirror">建议特赦刘志军。理由如下：1对中国高铁发展做出有目共睹的巨大…</a>
-</h2>
-<p>建议特赦刘志军。理由如下：1对中国高铁发展做出有目共睹的巨大贡献。2对社会已无危害，失去权力后，无法再利用权力犯罪。3年事已高，且身患重病。4特赦刘志军体现了宽严相济，有罪治罪，有功也不是一笔勾销。会有极好的社会效果。有支持的转发点个赞吧，我们影响不了只是个态度。 http://t.cn/R2WJ0LW<br><img src="http://ww3.sinaimg.cn/large/5854ac96jw1evju3xjz7kj204905kdft.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
