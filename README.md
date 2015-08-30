@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3881429882582994" target="freeweibo-mirror">支持 //@AC偶遇梅里斯:转发微博</a>
+</h2>
+<p>支持 //@AC偶遇梅里斯:转发微博<br><br>RE: 建议特赦刘志军。理由如下：1对中国高铁发展做出有目共睹的巨大贡献。2对社会已无危害，失去权力后，无法再利用权力犯罪。3年事已高，且身患重病。4特赦刘志军体现了宽严相济，有罪治罪，有功也不是一笔勾销。会有极好的社会效果。有支持的转发点个赞吧，我们影响不了只是个态度。 http://t.cn/R2WJ0LW<br><img src="http://ww3.sinaimg.cn/large/5854ac96jw1evju3xjz7kj204905kdft.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3881339063820880" target="freeweibo-mirror">//@吴澍言论:如此维稳，当局何安？@戴旭</a>
 </h2>
 <p>//@吴澍言论:如此维稳，当局何安？@戴旭<br><br>RE: #思想哥说#在阅兵式既将到来之际、广东阳江参战老兵到政府上访维权被政府维稳人员殴打致二十余人重伤，全国五千余名老兵齐聚阳声援！ http://t.cn/Ry7reBC http://t.cn/Ry7rDuz .<br><img src="http://ww4.sinaimg.cn/large/6e68668dgw1evju2q6urmj20hr0m2gmy.jpg"></p>
@@ -48,7 +54,7 @@
 </h2>
 <p>//@真话哥: 转发微博<br><br>RE: #思想哥说#在阅兵式既将到来之际、广东阳江参战老兵到政府上访维权被政府维稳人员殴打致二十余人重伤，全国五千余名老兵齐聚阳声援！ http://t.cn/Ry7reBC http://t.cn/Ry7rDuz .<br><img src="http://ww4.sinaimg.cn/large/6e68668dgw1evju2q6urmj20hr0m2gmy.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3881320059082340" target="freeweibo-mirror">SPAM 自发学习！[哈哈]</a>
 </h2>
@@ -102,7 +108,7 @@
 </h2>
 <p>博主风格一变，粉丝突然都喊着要取关  </p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3881289482070125" target="freeweibo-mirror">//@善待他人就是善待自己: 转发微博</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3881248809960236" target="freeweibo-mirror">→_→//@水兵李铭:[最右] //@煙巳惔嘸菋:→_→ /…</a>
 </h2>
 <p>→_→//@水兵李铭:[最右] //@煙巳惔嘸菋:→_→ //@紫琪凤凰:→_→ //@纯真的云10:良民都实名了，唯强盗不实名。</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3881247287713037" target="freeweibo-mirror">SPAM  //@淵流青年:你身邊的牆，就是我未來的牢獄，在…</a>
-</h2>
-<p>SPAM  //@淵流青年:你身邊的牆，就是我未來的牢獄，在這片土地上，沒有人能逃離。祝好運。</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
