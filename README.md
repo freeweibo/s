@@ -66,7 +66,7 @@
 </h2>
 <p>网评员培训，转发学习http://t.cn/RyzvWmA</p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3881316506905818" target="freeweibo-mirror">SPAM 战时造谣是否有可能列入叛国罪直接枪毙？</a>
 </h2>
@@ -126,7 +126,7 @@
 </h2>
 <p>SPAM [喵喵][喵喵][喵喵][喵喵][喵喵]网络评论员培训班开班啦。 http://t.cn/RyzvWmA .</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3881263725389063" target="freeweibo-mirror">贪官什么的，借机出来罢了，政治兑换，或者金钱利益兑换，自古如…</a>
 </h2>
