@@ -48,19 +48,19 @@
 </h2>
 <p>SPAM 94[哈哈] //@怀仁和尚:你真坏！<br><br>RE: 一道選擇題，可以顛覆“國家論”，讓“愛國者”精神徹底崩潰——如果你是釣魚島居民，現在從兩個國家中公投選擇歸屬，請選擇：1.中國 2.日本<br><img src="http://ww4.sinaimg.cn/large/8434d6ccgw1evklksdzuhj20sg0lc42b.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3881548245828648" target="freeweibo-mirror">//@柳絮209:“必须”两字很说明问题～ //@可可-cm…</a>
 </h2>
 <p>//@柳絮209:“必须”两字很说明问题～ //@可可-cm://@陈业文新大都: //@徐幸起://@不变的糕哥://@齐鲁秦人5: 厚颜无耻//@小白兔378转世://@杨胜鹏腾讯: 转发微博<br><br>RE: 你说，它们究竟是“理直气壮”呢还是“厚颜无耻”？<br><img src="http://ww2.sinaimg.cn/large/0069ZnPZjw1evkayhy9yyj30cq0fy0ts.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3881547633346926" target="freeweibo-mirror">苛政还在，屁民还在。 //@燕小小云:老百姓的血汗钱最终还是…</a>
 </h2>
 <p>苛政还在，屁民还在。 //@燕小小云:老百姓的血汗钱最终还是落入国库，罚没也是然并卵 //@张老汉一世:大戏好看！ //@邵明波:转发微博</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3881546861416736" target="freeweibo-mirror">[吃惊] //@邵明波:转发微博</a>
 </h2>
@@ -126,7 +126,7 @@
 </h2>
 <p>【中国加强监控基督教活动 影响波及香港】中国当局近期加大力度监控基督教在中国各地的影响力，影响所致，连在“一国两制”的香港也受到波及。香港一所小型新教教会的活跃领袖邬小鹤牧师表示，他上个月被传召到深圳与宗教事务局官员见面。该官员指他违背了一系列法律。http://t.cn/Ryzfsyv</p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3881465638759854" target="freeweibo-mirror">SPAM #高级黑#1、高级黑是有意而为之；2、高级黑的成功…</a>
 </h2>
