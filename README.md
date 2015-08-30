@@ -78,7 +78,7 @@
 </h2>
 <p>墙内，拿着枪抢地收钱掠资源，墙外，拿着钱奴颜婢膝买朋友，到头来丢了墙内的人心没了墙外的朋友，治国到此已是黔驴技穷；未来三年经济压力会致底层临爆，墙外民宪大潮冲垮了一个又一个专独正权，没有人能阻挡人民冲向自由的脚步；好戏或许不会连台但终究会上演，想做硬骨头的罪犯一定会死得最难看！<br><img src="http://ww2.sinaimg.cn/large/006cLn6Agw1evjwewd5cxj30dc076dgl.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3881318171418804" target="freeweibo-mirror">网评员培训，转发学习http://t.cn/RyzvWmA</a>
 </h2>
