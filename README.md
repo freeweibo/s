@@ -26,6 +26,12 @@
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3881473264167874" target="freeweibo-mirror">【中国加强监控基督教活动 影响波及香港】中国当局近期加大力度…</a>
+</h2>
+<p>【中国加强监控基督教活动 影响波及香港】中国当局近期加大力度监控基督教在中国各地的影响力，影响所致，连在“一国两制”的香港也受到波及。香港一所小型新教教会的活跃领袖邬小鹤牧师表示，他上个月被传召到深圳与宗教事务局官员见面。该官员指他违背了一系列法律。http://t.cn/Ryzfsyv</p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3881465638759854" target="freeweibo-mirror">SPAM #高级黑#1、高级黑是有意而为之；2、高级黑的成功…</a>
 </h2>
 <p>SPAM #高级黑#1、高级黑是有意而为之；2、高级黑的成功机制是借力打力。比如，你说美国的好，我就说“美国的月亮都比中国的圆”；3、当宣传夸张到极致的的时候，就成了高级黑。比如，共党共产共妻；4、越愚昧的社会，高级黑的市场越大；5、国共、左右、穷富等等都深受高级黑之害，但都乐此不疲；6、请补充…<br><img src="http://ww2.sinaimg.cn/large/7867f2a5jw1evkd9507z3j20dc0hs0u9.jpg"></p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3881298244299401" target="freeweibo-mirror">只有卖国贼、汉奸才会支持取消这些罪的死刑！明显是乱国之举！</a>
 </h2>
 <p>只有卖国贼、汉奸才会支持取消这些罪的死刑！明显是乱国之举！<br><img src="http://ww4.sinaimg.cn/large/0065xvrPjw1evju10rcywj309l05gmxn.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3881290853551205" target="freeweibo-mirror">博主风格一变，粉丝突然都喊着要取关  </a>
-</h2>
-<p>博主风格一变，粉丝突然都喊着要取关  </p>
 <p>
 	<small> ============== 1天前</small>
 </p>
