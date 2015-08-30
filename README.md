@@ -48,7 +48,7 @@
 </h2>
 <p>//@吴澍言论:如此维稳，当局何安？@戴旭<br><br>RE: #思想哥说#在阅兵式既将到来之际、广东阳江参战老兵到政府上访维权被政府维稳人员殴打致二十余人重伤，全国五千余名老兵齐聚阳声援！ http://t.cn/Ry7reBC http://t.cn/Ry7rDuz .<br><img src="http://ww4.sinaimg.cn/large/6e68668dgw1evju2q6urmj20hr0m2gmy.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3881335732909085" target="freeweibo-mirror">“世上最悲哀的事情恐怕就是公开隐私来证明自己。”当我们学习爱…</a>
 </h2>
