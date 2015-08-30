@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3881626696010820" target="freeweibo-mirror">……//@吴铭:历史虚无主义。</a>
+</h2>
+<p>……//@吴铭:历史虚无主义。</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3881605388608385" target="freeweibo-mirror">SPAM 发表了一篇转载博文《[转载]希望中国看近平》htt…</a>
 </h2>
 <p>SPAM 发表了一篇转载博文《[转载]希望中国看近平》http://t.cn/RyzTtiB<br><img src="http://ww1.sinaimg.cn/large/5408ee85jw1evktbz366ej20f90ehdgj.jpg"></p>
@@ -66,7 +72,7 @@
 </h2>
 <p>SPAM 成绩斐然//@文山娃:離今晚報更遠吧。 //@打断亲爹三根肋骨:对照北京晚报 南方系的路还很长 //@文山娃:[鼓掌]//@武功高强王小虎：恭喜南方报业摘掉汉奸帽子加入爱国阵营[鼓掌][鼓掌][鼓掌]<br><br>RE: 分享图片<br><img src="http://ww4.sinaimg.cn/large/65cc9274jw1evklcf2b6oj20hs39rarm.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3881561806361900" target="freeweibo-mirror">史料记载周总理的最后半年岁月痛苦不堪，持续尿血，一个全国知名…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3881538145745214" target="freeweibo-mirror">一道選擇題，可以顛覆“國家論”，讓“愛國者”精神徹底崩潰——…</a>
 </h2>
 <p>一道選擇題，可以顛覆“國家論”，讓“愛國者”精神徹底崩潰——如果你是釣魚島居民，現在從兩個國家中公投選擇歸屬，請選擇：1.中國 2.日本<br><img src="http://ww4.sinaimg.cn/large/8434d6ccgw1evklksdzuhj20sg0lc42b.jpg"></p>
-<p>
-	<small> ============== 7小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3881536673403984" target="freeweibo-mirror">“悉贡所能”？！此信写于傅作义的堂弟留美博士、水利专家傅作恭…</a>
-</h2>
-<p>“悉贡所能”？！此信写于傅作义的堂弟留美博士、水利专家傅作恭1960年冬季饿死在夹边沟之后。1963年的傅作义早已将他们的真实面目看得一清二楚。//@私家野史: [吃驚]</p>
 <p>
 	<small> ============== 7小时前</small>
 </p>
