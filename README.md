@@ -72,7 +72,7 @@
 </h2>
 <p>SPAM 此次纪念反法西斯活动意义重大，至少，我们从未如此真切地感受到法西斯的罪恶。</p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3881793084639404" target="freeweibo-mirror">SPAM @斯律斯律：绝大多数律师，都会远离刑事辩护，只能让…</a>
 </h2>
