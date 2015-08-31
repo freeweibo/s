@@ -50,6 +50,12 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3881905000958313" target="freeweibo-mirror">//@雁塔小木屋4://@仙怜凡尘: [思考]//@西澳魔都…</a>
+</h2>
+<p>//@雁塔小木屋4://@仙怜凡尘: [思考]//@西澳魔都寺初八方丈: 赤裸裸的法西斯宣言<br><br>RE: 【原来不是反法西斯】“阅兵首先检阅的就是三军将士对党中央和习主席的无比忠诚与坚决拥护”——要不是北京军区王健中将昨天在人民日报说这句话，我一直以为这次阅兵是纪念抗战胜利呢。（石扉客脸书）<br><img src="http://ww2.sinaimg.cn/large/006bu5Sagw1evlr0nivcmj308m05rglw.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3881900458365338" target="freeweibo-mirror">网友曝料:今日天津？求证！</a>
 </h2>
 <p>网友曝料:今日天津？求证！<br><img src="http://ww1.sinaimg.cn/large/006aWce3jw1evlr77rml6j30qo0zkta7.jpg"></p>
@@ -133,12 +139,6 @@
 <p>//@王誓华律师: //@周泽律师: 不要误以为律师是在为自己争什么。像斯伟江做这样知识产权业务出身的律师，也只是在偶然介入刑辩业务之后，才感受到刑事司法领域民权面临之灾害。他随时可以退回知产业务领域，以眼不见为净的。民众恐怕没有他这么进退裕如。</p>
 <p>
 	<small> ============== 6小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3881803091651066" target="freeweibo-mirror">SPAM 此次纪念反法西斯活动意义重大，至少，我们从未如此真…</a>
-</h2>
-<p>SPAM 此次纪念反法西斯活动意义重大，至少，我们从未如此真切地感受到法西斯的罪恶。</p>
-<p>
-	<small> ============== 9小时前</small>
 </p>
 <table>
     <tr>
