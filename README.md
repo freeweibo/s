@@ -24,7 +24,7 @@
 </h2>
 <p>大货真冤……[汗]我觉得这种事故就不能赔。道义上的赔付或抚恤就是在变相鼓励这种行为。//@汽车电商:同情大车司机！[吃惊]//@PS3保罗: 像自杀[哼] //@交通安全蜀黍:视频来了 ，105济宁唐口段，一男子横穿105，直插入一辆正在前行的货车下，骑车者当场死亡。 http://t.cn/RyhP0Bt<br><br>RE: 卧槽！摩托车司机被大卡车直接压爆....[衰]请点评！<br><img src="http://ww1.sinaimg.cn/large/d54a1fa7jw1evjfgxitpwg20ak06uhdt.gif"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3881882951299827" target="freeweibo-mirror">//@王甫律师:痞子做派，无耻至极!//@律师王兴:这可是典…</a>
 </h2>
