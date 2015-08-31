@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3881854190922637" target="freeweibo-mirror">[偷笑]</a>
+</h2>
+<p>[偷笑]<br><br>RE: 如果换个角度看当今的一些现象，就会感觉现在多少还是有进步。过去皇帝出巡，要黄土铺路，净水泼街，路人肃静，跪拜在地，不得抬头，敢有造次，抓进大牢。现在也就是限个车号，停一些工厂，封几条道路，关一些店铺，停个诊，上茅房看看身份证。若用更悲观的眼睛看一些现状，总能透过眼泪挤出几丝笑容。</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3881841746092687" target="freeweibo-mirror">SPAM 中国之进步，很多时候退二进三。</a>
 </h2>
 <p>SPAM 中国之进步，很多时候退二进三。</p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3881623533295837" target="freeweibo-mirror">SPAM 没看到“美”。[熊猫] //@非花非我o: 快点过…</a>
 </h2>
 <p>SPAM 没看到“美”。[熊猫] //@非花非我o: 快点过去吧,连着两个周末都没休息了,美名其曰'首都治安志愿者' [笑cry]//@作家岳南:一个幽灵在你家门前徘徊。奥威尔《1984》 @天燧:啥时改9月3日为寒食节了？<br><br>RE: 奇葩规定！小区居民不打开门窗、不使用煤气、不收留无关人员，我的想像力明显不够用了！家里如果有病人需要开窗透气怎么办？不使用煤气我要烧饭怎么办？有朋友来访不能收留住一晚？<br><img src="http://ww3.sinaimg.cn/large/0066Ukjwgw1evkeioq55dj30dg0gyq3o.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3881621331431731" target="freeweibo-mirror">《看！“百团大战”反动本质》 http://t.cn/Ryz…</a>
-</h2>
-<p>《看！“百团大战”反动本质》 http://t.cn/RyzTGuz<br><img src="http://ww3.sinaimg.cn/large/621d03b7jw1evkv5vb5f9j20ku0wrjyl.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
