@@ -24,7 +24,7 @@
 </h2>
 <p>怕再发生“火烧赵家楼”事件么？[挖鼻] //@邱乱作:有这事？[挖鼻] //@筝羽携香: 公交车现在经过东单，天安门都不允许开车窗。<br><br>RE: 向朝阳区群众举报：潘金莲偷窥。<br><img src="http://ww3.sinaimg.cn/large/006cgSnKgw1evkx555eqej30ce096q3h.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3881854190922637" target="freeweibo-mirror">[偷笑]</a>
 </h2>
