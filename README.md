@@ -66,7 +66,7 @@
 </h2>
 <p>就职盛典<br><br>RE: 【中国领导人为何热爱阅兵】境外各方对于中国此次阅兵的用意有不同角度的解读。负面评价包括了“穷兵黩武秀肌肉”，“让相关邻国难堪”。但从中国历任领导人的执政文化来看，这更接近是中国国家主席习近平的就职盛典，以向境内外展示全方位掌控最高权力的政治强者形象。http://t.cn/RyZyEOY<br><img src="http://ww4.sinaimg.cn/large/6298156bgw1evlsi2usj4j20e509jmy6.jpg"></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3881911657211047" target="freeweibo-mirror">【中国领导人为何热爱阅兵】境外各方对于中国此次阅兵的用意有不…</a>
 </h2>
@@ -108,19 +108,19 @@
 </h2>
 <p>网友曝料:今日天津？求证！<br><img src="http://ww1.sinaimg.cn/large/006aWce3jw1evlr77rml6j30qo0zkta7.jpg"></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3881900071987782" target="freeweibo-mirror">大货真冤……[汗]我觉得这种事故就不能赔。道义上的赔付或抚恤…</a>
 </h2>
 <p>大货真冤……[汗]我觉得这种事故就不能赔。道义上的赔付或抚恤就是在变相鼓励这种行为。//@汽车电商:同情大车司机！[吃惊]//@PS3保罗: 像自杀[哼] //@交通安全蜀黍:视频来了 ，105济宁唐口段，一男子横穿105，直插入一辆正在前行的货车下，骑车者当场死亡。 http://t.cn/RyhP0Bt<br><br>RE: 卧槽！摩托车司机被大卡车直接压爆....[衰]请点评！<br><img src="http://ww1.sinaimg.cn/large/d54a1fa7jw1evjfgxitpwg20ak06uhdt.gif"></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3881899875533997" target="freeweibo-mirror">SPAM //@米迦勒94: [怒]</a>
 </h2>
 <p>SPAM //@米迦勒94: [怒]</p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3881899690593911" target="freeweibo-mirror">我参与了@月光博客 发起的投票 【你觉得中国抗日战争取得胜利…</a>
 </h2>
