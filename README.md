@@ -20,6 +20,24 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3882052665571067" target="freeweibo-mirror">我算是明白了，所谓反，就是超越。</a>
+</h2>
+<p>我算是明白了，所谓反，就是超越。<br><br>RE: 纳粹德国阿道夫同志阅兵，沿街的窗口、阳台、甚至楼顶，柏林群众是可以观看的。<br><img src="http://ww2.sinaimg.cn/large/d718076cjw1evlevucz3tj20h80cwgng.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3882052464389318" target="freeweibo-mirror">能把“反”字理解成“超越”吗？</a>
+</h2>
+<p>能把“反”字理解成“超越”吗？<br><br>RE: 纳粹德国阿道夫同志阅兵，沿街的窗口、阳台、甚至楼顶，柏林群众是可以观看的。<br><img src="http://ww2.sinaimg.cn/large/d718076cjw1evlevucz3tj20h80cwgng.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3882048547180068" target="freeweibo-mirror">//@Jenny娟娟:“窥视”，这词儿用的？[思考][思考]…</a>
+</h2>
+<p>//@Jenny娟娟:“窥视”，这词儿用的？[思考][思考][思考][思考]//@简直: 幸好这次不允许群众看，否则就和法西斯一样了 //@胡淑芬:凡是敌人拥护的，我们就要反对，把反法西斯工作落到实处。<br><br>RE: 纳粹德国阿道夫同志阅兵，沿街的窗口、阳台、甚至楼顶，柏林群众是可以观看的。<br><img src="http://ww2.sinaimg.cn/large/d718076cjw1evlevucz3tj20h80cwgng.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3882016619475577" target="freeweibo-mirror">//@小大芝蔴: 亡秦者秦人，亡黨者黨人，亡政權者權貴。//…</a>
 </h2>
 <p>//@小大芝蔴: 亡秦者秦人，亡黨者黨人，亡政權者權貴。//@迟夙生律师:[思考]//@布衣优婆塞：亡党都是要有因 不出因 怎么亡党 所以应该高兴 出了这条款 离变天不远了！！！</p>
@@ -119,24 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3881899875533997" target="freeweibo-mirror">SPAM //@米迦勒94: [怒]</a>
 </h2>
 <p>SPAM //@米迦勒94: [怒]</p>
-<p>
-	<small> ============== 11小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3881899690593911" target="freeweibo-mirror">我参与了@月光博客 发起的投票 【你觉得中国抗日战争取得胜利…</a>
-</h2>
-<p>我参与了@月光博客 发起的投票 【你觉得中国抗日战争取得胜利，谁的功劳最大？】，我投给了“国民党”这个选项。你也快来表态吧~<br><br>RE: 投票： 【你觉得中国抗日战争取得胜利，谁的功劳最大？】http://t.cn/RyZAPjI</p>
-<p>
-	<small> ============== 11小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3881898931226751" target="freeweibo-mirror">SPAM 文字发不出去！</a>
-</h2>
-<p>SPAM 文字发不出去！<br><img src="http://ww3.sinaimg.cn/large/728e6175jw1evlr0k149dj20ez0qomyh.jpg"></p>
-<p>
-	<small> ============== 11小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3881898705231859" target="freeweibo-mirror">【原来不是反法西斯】“阅兵首先检阅的就是三军将士对党中央和习…</a>
-</h2>
-<p>【原来不是反法西斯】“阅兵首先检阅的就是三军将士对党中央和习主席的无比忠诚与坚决拥护”——要不是北京军区王健中将昨天在人民日报说这句话，我一直以为这次阅兵是纪念抗战胜利呢。（石扉客脸书）<br><img src="http://ww2.sinaimg.cn/large/006bu5Sagw1evlr0nivcmj308m05rglw.jpg"></p>
 <p>
 	<small> ============== 11小时前</small>
 </p>
