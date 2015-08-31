@@ -108,7 +108,7 @@
 </h2>
 <p>今天北京地铁里据说是这样的了？<br><img src="http://ww3.sinaimg.cn/large/6c97f797jw1evm0j4fjqlj20d60hsjsq.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3881976757375543" target="freeweibo-mirror">一天不找茬黑共产党不舒服。看：http://t.cn/RZt…</a>
 </h2>
@@ -120,7 +120,7 @@
 </h2>
 <p>自由是人的天性[玫瑰][玫瑰][爱你][爱你][嘻嘻][哈哈][哈哈]寻老友[话筒][话筒]<br><img src="http://ww1.sinaimg.cn/large/006d9UiNjw1evlx09xt7kj30c80dj75a.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3881916606072848" target="freeweibo-mirror">SPAM [吃惊]//@公民面包: 我靠，别吓俺……[吃惊]…</a>
 </h2>
