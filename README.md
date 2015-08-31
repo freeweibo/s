@@ -32,9 +32,21 @@
 <p>
 	<small> ============== 1小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3881906749747276" target="freeweibo-mirror">你们就想搞个大新闻！[弱]</a>
+</h2>
+<p>你们就想搞个大新闻！[弱]<br><br>RE: 关于小米刚刚发布的声明，可能大家不太能意会，我来翻译下：<br><img src="http://ww3.sinaimg.cn/large/67a52ad2gw1evlrsf8inhj20ri14l7f5.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3881900071987782" target="freeweibo-mirror">大货真冤……[汗]我觉得这种事故就不能赔。道义上的赔付或抚恤…</a>
 </h2>
 <p>大货真冤……[汗]我觉得这种事故就不能赔。道义上的赔付或抚恤就是在变相鼓励这种行为。//@汽车电商:同情大车司机！[吃惊]//@PS3保罗: 像自杀[哼] //@交通安全蜀黍:视频来了 ，105济宁唐口段，一男子横穿105，直插入一辆正在前行的货车下，骑车者当场死亡。 http://t.cn/RyhP0Bt<br><br>RE: 卧槽！摩托车司机被大卡车直接压爆....[衰]请点评！<br><img src="http://ww1.sinaimg.cn/large/d54a1fa7jw1evjfgxitpwg20ak06uhdt.gif"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3881899690593911" target="freeweibo-mirror">我参与了@月光博客 发起的投票 【你觉得中国抗日战争取得胜利…</a>
+</h2>
+<p>我参与了@月光博客 发起的投票 【你觉得中国抗日战争取得胜利，谁的功劳最大？】，我投给了“国民党”这个选项。你也快来表态吧~<br><br>RE: 投票： 【你觉得中国抗日战争取得胜利，谁的功劳最大？】http://t.cn/RyZAPjI</p>
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
@@ -120,23 +132,11 @@
 </h2>
 <p>如果换个角度看当今的一些现象，就会感觉现在多少还是有进步。过去皇帝出巡，要黄土铺路，净水泼街，路人肃静，跪拜在地，不得抬头，敢有造次，抓进大牢。现在也就是限个车号，停一些工厂，封几条道路，关一些店铺，停个诊，上茅房看看身份证。若用更悲观的眼睛看一些现状，总能透过眼泪挤出几丝笑容。</p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3881694795185805" target="freeweibo-mirror">//@苏州郎心铁: 举国？是你的国么？切！//@百合咖啡馆:…</a>
 </h2>
 <p>//@苏州郎心铁: 举国？是你的国么？切！//@百合咖啡馆: 什么词儿啊？庆祝抗日战争胜利！应该举国欢庆啊！ //@呱代://@天亮了gg: //@吃饱肚子最重要://@爱看不敢写: //@陶然万柳世界:[衰]//@情系南北疆:咋就变成了“窥视”。//@説叁道肆V:[衰] //@l鑫鑫鑫l://@苏州郎心铁:领导叫阅，百姓叫窥视。<br><br>RE: 阅兵不是为了阅，是为了碧莲！[生病]<br><img src="http://ww2.sinaimg.cn/large/005XCrt5jw1evkwwci2caj30et0i3my9.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3881689723588236" target="freeweibo-mirror">SPAM //@侬侬乐: //@煙巳惔嘸菋:电影院门口有贴这…</a>
-</h2>
-<p>SPAM //@侬侬乐: //@煙巳惔嘸菋:电影院门口有贴这背景资料？//@江飞2011: //@石城公民:[吃惊]//@公民专注: //@梁山汉: //@京都观潮:[偷笑][偷笑][偷笑]<br><br>RE: 《看！“百团大战”反动本质》 http://t.cn/RyzTGuz<br><img src="http://ww3.sinaimg.cn/large/621d03b7jw1evkv5vb5f9j20ku0wrjyl.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3881685689366332" target="freeweibo-mirror">【训练猕猴拆鸟窝之妙招引起老鹤担忧】也许只有咱们上国能够发明…</a>
-</h2>
-<p>【训练猕猴拆鸟窝之妙招引起老鹤担忧】也许只有咱们上国能够发明这种奇妙的猴拆鸟窝法。不过，这种强拆家园的行为会不会人为地制造仇恨，导致</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
