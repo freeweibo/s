@@ -60,13 +60,13 @@
 </h2>
 <p>//@徐昕:我希望中国更美好，国富民强，像您这样的人都享有自由人权民主法治，不会被强拆被鸡奸而无处申冤 //@义勇军人间正道：你怎么见不得中国好！[怒]//@徐昕:请您找出一条谣言 //@义勇军人间正道: 这家伙老是造谣[怒]</p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3881678382822466" target="freeweibo-mirror">【九鼎投资集团发20亿红包，已上央视CCTV2了】#人脉变钱…</a>
 </h2>
 <p>【九鼎投资集团发20亿红包，已上央视CCTV2了】#人脉变钱脉#！下载这个绑定银行卡就可以提现20，同时你每邀请一位好友还能赚20，好友邀请别人，你又能赚10块。注册地址：猛擢☞http://t.cn/RyPZ5xK邀请码：HERBA2N，记住，一定要记得填写邀请码，不填就没有20奖励了！<br><img src="http://ww3.sinaimg.cn/large/990ef6acjw1evl1pr5o5mj20c80lsjs4.jpg"></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3881676763523355" target="freeweibo-mirror">SPAM 哈哈哈哈谁窥视狙击谁 //@人神共粉:利用光的折射…</a>
 </h2>
