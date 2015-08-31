@@ -84,19 +84,19 @@
 </h2>
 <p>党掌管一切，却管不了人民的死活 //@喷嚏网铂程://@木尔: 阅-兵献-礼-----彻底无语！！！[衰][泪]//@彭园v: //@贪官多11世:打脸 //@粵東老趙:打脸！啪啪啪。。。。。</p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3882046185072841" target="freeweibo-mirror">凡是敌人拥护的，我们就要反对，把反法西斯工作落到实处。</a>
 </h2>
 <p>凡是敌人拥护的，我们就要反对，把反法西斯工作落到实处。<br><br>RE: 纳粹德国阿道夫同志阅兵，沿街的窗口、阳台、甚至楼顶，柏林群众是可以观看的。<br><img src="http://ww2.sinaimg.cn/large/d718076cjw1evlevucz3tj20h80cwgng.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3882045891805509" target="freeweibo-mirror">所以才有个“反”字在前面，人家怎样咱也怎样那还不成法西斯了。</a>
 </h2>
 <p>所以才有个“反”字在前面，人家怎样咱也怎样那还不成法西斯了。<br><br>RE: 纳粹德国阿道夫同志阅兵，沿街的窗口、阳台、甚至楼顶，柏林群众是可以观看的。<br><img src="http://ww2.sinaimg.cn/large/d718076cjw1evlevucz3tj20h80cwgng.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3882044327638659" target="freeweibo-mirror">SPAM //@木尔: 阅-兵献-礼-----彻底无语！！！…</a>
 </h2>
@@ -114,13 +114,13 @@
 </h2>
 <p>你说的是纳粹德国的事儿，怎么跟咱比！[挖鼻]<br><br>RE: 纳粹德国阿道夫同志阅兵，沿街的窗口、阳台、甚至楼顶，柏林群众是可以观看的。<br><img src="http://ww2.sinaimg.cn/large/d718076cjw1evlevucz3tj20h80cwgng.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3882016619475577" target="freeweibo-mirror">//@小大芝蔴: 亡秦者秦人，亡黨者黨人，亡政權者權貴。//…</a>
 </h2>
 <p>//@小大芝蔴: 亡秦者秦人，亡黨者黨人，亡政權者權貴。//@迟夙生律师:[思考]//@布衣优婆塞：亡党都是要有因 不出因 怎么亡党 所以应该高兴 出了这条款 离变天不远了！！！</p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3882008859762448" target="freeweibo-mirror">SPAM 唉！我们该说什么好？ http://t.cn/Ry…</a>
 </h2>
