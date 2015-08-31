@@ -30,7 +30,7 @@
 </h2>
 <p>SPAM 此次纪念反法西斯活动意义重大，至少，我们从未如此真切地感受到法西斯的罪恶。</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3881793084639404" target="freeweibo-mirror">SPAM @斯律斯律：绝大多数律师，都会远离刑事辩护，只能让…</a>
 </h2>
@@ -90,7 +90,7 @@
 </h2>
 <p>//@瑟瑟0101://@江南梅://@木尔:[话筒][话筒][话筒]以史为镜、兼听则明！//@深圳祝羚: 转发微博<br><br>RE: 《看！“百团大战”反动本质》 http://t.cn/RyzTGuz<br><img src="http://ww3.sinaimg.cn/large/621d03b7jw1evkv5vb5f9j20ku0wrjyl.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3881671314903895" target="freeweibo-mirror">【为了阅兵，北京人被要求暂停生病】9月3日阅兵日当天，东西城…</a>
 </h2>
