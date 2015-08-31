@@ -24,7 +24,7 @@
 </h2>
 <p>SPAM [吃惊]//@公民面包: 我靠，别吓俺……[吃惊][吃惊]//@爱卿平身免礼吧: //@老豆不炒熟22:原址再爆？//@翟大伟无悔:[吃惊]//@星xc辰D33: [吃惊]<br><br>RE: 网友曝料:今日天津？求证！<br><img src="http://ww1.sinaimg.cn/large/006aWce3jw1evlr77rml6j30qo0zkta7.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3881915192692886" target="freeweibo-mirror">就职盛典</a>
 </h2>
