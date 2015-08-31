@@ -36,7 +36,13 @@
 </h2>
 <p>你们就想搞个大新闻！[弱]<br><br>RE: 关于小米刚刚发布的声明，可能大家不太能意会，我来翻译下：<br><img src="http://ww3.sinaimg.cn/large/67a52ad2gw1evlrsf8inhj20ri14l7f5.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3881900458365338" target="freeweibo-mirror">网友曝料:今日天津？求证！</a>
+</h2>
+<p>网友曝料:今日天津？求证！<br><img src="http://ww1.sinaimg.cn/large/006aWce3jw1evlr77rml6j30qo0zkta7.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3881900071987782" target="freeweibo-mirror">大货真冤……[汗]我觉得这种事故就不能赔。道义上的赔付或抚恤…</a>
 </h2>
@@ -126,19 +132,13 @@
 </h2>
 <p>//@UC歌迷: //@田野bku: //@UC恋歌: //@霞06932: //@Golden_Dragon_China: //@愿下一代红红火火: //@Mbb4: //@平凡的刀2012: ://@大老潘潘老大: //@yiyu你: //@丰邑草民: //@黑人cccp: 向革命老人敬礼！[赞]//@红色小学生: 向刘老致敬![鲜花][给力]</p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3881783227813044" target="freeweibo-mirror">如果换个角度看当今的一些现象，就会感觉现在多少还是有进步。过…</a>
 </h2>
 <p>如果换个角度看当今的一些现象，就会感觉现在多少还是有进步。过去皇帝出巡，要黄土铺路，净水泼街，路人肃静，跪拜在地，不得抬头，敢有造次，抓进大牢。现在也就是限个车号，停一些工厂，封几条道路，关一些店铺，停个诊，上茅房看看身份证。若用更悲观的眼睛看一些现状，总能透过眼泪挤出几丝笑容。</p>
 <p>
 	<small> ============== 10小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3881694795185805" target="freeweibo-mirror">//@苏州郎心铁: 举国？是你的国么？切！//@百合咖啡馆:…</a>
-</h2>
-<p>//@苏州郎心铁: 举国？是你的国么？切！//@百合咖啡馆: 什么词儿啊？庆祝抗日战争胜利！应该举国欢庆啊！ //@呱代://@天亮了gg: //@吃饱肚子最重要://@爱看不敢写: //@陶然万柳世界:[衰]//@情系南北疆:咋就变成了“窥视”。//@説叁道肆V:[衰] //@l鑫鑫鑫l://@苏州郎心铁:领导叫阅，百姓叫窥视。<br><br>RE: 阅兵不是为了阅，是为了碧莲！[生病]<br><img src="http://ww2.sinaimg.cn/large/005XCrt5jw1evkwwci2caj30et0i3my9.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
 </p>
 <table>
     <tr>
