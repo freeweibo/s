@@ -66,7 +66,7 @@
 </h2>
 <p>【中国领导人为何热爱阅兵】境外各方对于中国此次阅兵的用意有不同角度的解读。负面评价包括了“穷兵黩武秀肌肉”，“让相关邻国难堪”。但从中国历任领导人的执政文化来看，这更接近是中国国家主席习近平的就职盛典，以向境内外展示全方位掌控最高权力的政治强者形象。http://t.cn/RyZyEOY<br><img src="http://ww4.sinaimg.cn/large/6298156bgw1evlsi2usj4j20e509jmy6.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3881906922263204" target="freeweibo-mirror">//@洛-欣: //@雁塔小木屋4://@仙怜凡尘: [思考…</a>
 </h2>
