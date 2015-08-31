@@ -50,6 +50,12 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3882048488429396" target="freeweibo-mirror">为什么我们的眼中常含泪水 //@简直:幸好这次不允许群众看，…</a>
+</h2>
+<p>为什么我们的眼中常含泪水 //@简直:幸好这次不允许群众看，否则就和法西斯一样了 //@胡淑芬:凡是敌人拥护的，我们就要反对，把反法西斯工作落到实处。<br><br>RE: 纳粹德国阿道夫同志阅兵，沿街的窗口、阳台、甚至楼顶，柏林群众是可以观看的。<br><img src="http://ww2.sinaimg.cn/large/d718076cjw1evlevucz3tj20h80cwgng.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3882048290752343" target="freeweibo-mirror">会被爆头吗[嘻嘻]//@谭人玮://@好火药: //@喷嚏网…</a>
 </h2>
 <p>会被爆头吗[嘻嘻]//@谭人玮://@好火药: //@喷嚏网铂程:转发微博<br><br>RE: 纳粹德国阿道夫同志阅兵，沿街的窗口、阳台、甚至楼顶，柏林群众是可以观看的。<br><img src="http://ww2.sinaimg.cn/large/d718076cjw1evlevucz3tj20h80cwgng.jpg"></p>
@@ -114,7 +120,7 @@
 </h2>
 <p>SPAM 唉！我们该说什么好？ http://t.cn/Ryzlalo</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3881983459472308" target="freeweibo-mirror">SPAM 美！ //@儒林泊客://@熊大鳌: [推荐]</a>
 </h2>
@@ -133,12 +139,6 @@
 <p>今天北京地铁里据说是这样的了？<br><img src="http://ww3.sinaimg.cn/large/6c97f797jw1evm0j4fjqlj20d60hsjsq.jpg"></p>
 <p>
 	<small> ============== 6小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3881976757375543" target="freeweibo-mirror">一天不找茬黑共产党不舒服。看：http://t.cn/RZt…</a>
-</h2>
-<p>一天不找茬黑共产党不舒服。看：http://t.cn/RZtISAW 清朝割让海参崴，1945年民国政府也承认是苏联领土，现在赖共党头上？共党好歹还和苏联打一仗保住珍宝岛，又谈判收回被占70多年的黑瞎子岛一半主权，英明神武的“国府”呢？//@徐德军律师:明知故问//@黎津平老师: 1991，谁领导?//@戴和平律师:</p>
-<p>
-	<small> ============== 7小时前</small>
 </p>
 <table>
     <tr>
