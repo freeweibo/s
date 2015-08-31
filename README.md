@@ -24,7 +24,7 @@
 </h2>
 <p>SPAM 此次纪念反法西斯活动意义重大，至少，我们从未如此真切地感受到法西斯的罪恶。</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3881785861455337" target="freeweibo-mirror">//@UC歌迷: //@田野bku: //@UC恋歌: //…</a>
 </h2>
