@@ -120,19 +120,19 @@
 </h2>
 <p>我参与了@月光博客 发起的投票 【你觉得中国抗日战争取得胜利，谁的功劳最大？】，我投给了“国民党”这个选项。你也快来表态吧~<br><br>RE: 投票： 【你觉得中国抗日战争取得胜利，谁的功劳最大？】http://t.cn/RyZAPjI</p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3881898931226751" target="freeweibo-mirror">SPAM 文字发不出去！</a>
 </h2>
 <p>SPAM 文字发不出去！<br><img src="http://ww3.sinaimg.cn/large/728e6175jw1evlr0k149dj20ez0qomyh.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3881898705231859" target="freeweibo-mirror">【原来不是反法西斯】“阅兵首先检阅的就是三军将士对党中央和习…</a>
 </h2>
 <p>【原来不是反法西斯】“阅兵首先检阅的就是三军将士对党中央和习主席的无比忠诚与坚决拥护”——要不是北京军区王健中将昨天在人民日报说这句话，我一直以为这次阅兵是纪念抗战胜利呢。（石扉客脸书）<br><img src="http://ww2.sinaimg.cn/large/006bu5Sagw1evlr0nivcmj308m05rglw.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3881882951299827" target="freeweibo-mirror">//@王甫律师:痞子做派，无耻至极!//@律师王兴:这可是典…</a>
 </h2>
