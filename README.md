@@ -36,7 +36,7 @@
 </h2>
 <p>【中国领导人为何热爱阅兵】境外各方对于中国此次阅兵的用意有不同角度的解读。负面评价包括了“穷兵黩武秀肌肉”，“让相关邻国难堪”。但从中国历任领导人的执政文化来看，这更接近是中国国家主席习近平的就职盛典，以向境内外展示全方位掌控最高权力的政治强者形象。http://t.cn/RyZyEOY<br><img src="http://ww4.sinaimg.cn/large/6298156bgw1evlsi2usj4j20e509jmy6.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3881906749747276" target="freeweibo-mirror">你们就想搞个大新闻！[弱]</a>
 </h2>
@@ -84,7 +84,7 @@
 </h2>
 <p>SPAM //@李文的智蹼: [吃惊]</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3881877922408204" target="freeweibo-mirror">//@王天定:转发微博</a>
 </h2>
@@ -108,7 +108,7 @@
 </h2>
 <p>怕再发生“火烧赵家楼”事件么？[挖鼻] //@邱乱作:有这事？[挖鼻] //@筝羽携香: 公交车现在经过东单，天安门都不允许开车窗。<br><br>RE: 向朝阳区群众举报：潘金莲偷窥。<br><img src="http://ww3.sinaimg.cn/large/006cgSnKgw1evkx555eqej30ce096q3h.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3881854190922637" target="freeweibo-mirror">[偷笑]</a>
 </h2>
