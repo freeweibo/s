@@ -50,11 +50,23 @@
 <p>
 	<small> ============== 1小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3882048290752343" target="freeweibo-mirror">会被爆头吗[嘻嘻]//@谭人玮://@好火药: //@喷嚏网…</a>
+</h2>
+<p>会被爆头吗[嘻嘻]//@谭人玮://@好火药: //@喷嚏网铂程:转发微博<br><br>RE: 纳粹德国阿道夫同志阅兵，沿街的窗口、阳台、甚至楼顶，柏林群众是可以观看的。<br><img src="http://ww2.sinaimg.cn/large/d718076cjw1evlevucz3tj20h80cwgng.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3882047758514824" target="freeweibo-mirror">幸好这次不允许群众看，否则就和法西斯一样了 //@胡淑芬:凡…</a>
 </h2>
 <p>幸好这次不允许群众看，否则就和法西斯一样了 //@胡淑芬:凡是敌人拥护的，我们就要反对，把反法西斯工作落到实处。<br><br>RE: 纳粹德国阿道夫同志阅兵，沿街的窗口、阳台、甚至楼顶，柏林群众是可以观看的。<br><img src="http://ww2.sinaimg.cn/large/d718076cjw1evlevucz3tj20h80cwgng.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3882047078542599" target="freeweibo-mirror">//@叶新Robert: 赵家楼。 //@张开磊:窥阴癖[挖…</a>
+</h2>
+<p>//@叶新Robert: 赵家楼。 //@张开磊:窥阴癖[挖鼻]//@罗争eedoo: 希特勒阅兵没有要求民众关闭窗户哦。//@老河北:就怕比较<br><br>RE: 纳粹德国阿道夫同志阅兵，沿街的窗口、阳台、甚至楼顶，柏林群众是可以观看的。<br><img src="http://ww2.sinaimg.cn/large/d718076cjw1evlevucz3tj20h80cwgng.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3882046847678964" target="freeweibo-mirror">党掌管一切，却管不了人民的死活 //@喷嚏网铂程://@木尔…</a>
 </h2>
@@ -127,18 +139,6 @@
 <p>一天不找茬黑共产党不舒服。看：http://t.cn/RZtISAW 清朝割让海参崴，1945年民国政府也承认是苏联领土，现在赖共党头上？共党好歹还和苏联打一仗保住珍宝岛，又谈判收回被占70多年的黑瞎子岛一半主权，英明神武的“国府”呢？//@徐德军律师:明知故问//@黎津平老师: 1991，谁领导?//@戴和平律师:</p>
 <p>
 	<small> ============== 6小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3881950865992369" target="freeweibo-mirror">自由是人的天性[玫瑰][玫瑰][爱你][爱你][嘻嘻][哈哈…</a>
-</h2>
-<p>自由是人的天性[玫瑰][玫瑰][爱你][爱你][嘻嘻][哈哈][哈哈]寻老友[话筒][话筒]<br><img src="http://ww1.sinaimg.cn/large/006d9UiNjw1evlx09xt7kj30c80dj75a.jpg"></p>
-<p>
-	<small> ============== 8小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3881916606072848" target="freeweibo-mirror">SPAM [吃惊]//@公民面包: 我靠，别吓俺……[吃惊]…</a>
-</h2>
-<p>SPAM [吃惊]//@公民面包: 我靠，别吓俺……[吃惊][吃惊]//@爱卿平身免礼吧: //@老豆不炒熟22:原址再爆？//@翟大伟无悔:[吃惊]//@星xc辰D33: [吃惊]<br><br>RE: 网友曝料:今日天津？求证！<br><img src="http://ww1.sinaimg.cn/large/006aWce3jw1evlr77rml6j30qo0zkta7.jpg"></p>
-<p>
-	<small> ============== 10小时前</small>
 </p>
 <table>
     <tr>
