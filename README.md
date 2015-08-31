@@ -32,6 +32,12 @@
 <p>
 	<small> ============== 1小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3881911657211047" target="freeweibo-mirror">【中国领导人为何热爱阅兵】境外各方对于中国此次阅兵的用意有不…</a>
+</h2>
+<p>【中国领导人为何热爱阅兵】境外各方对于中国此次阅兵的用意有不同角度的解读。负面评价包括了“穷兵黩武秀肌肉”，“让相关邻国难堪”。但从中国历任领导人的执政文化来看，这更接近是中国国家主席习近平的就职盛典，以向境内外展示全方位掌控最高权力的政治强者形象。http://t.cn/RyZyEOY<br><img src="http://ww4.sinaimg.cn/large/6298156bgw1evlsi2usj4j20e509jmy6.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3881906749747276" target="freeweibo-mirror">你们就想搞个大新闻！[弱]</a>
 </h2>
 <p>你们就想搞个大新闻！[弱]<br><br>RE: 关于小米刚刚发布的声明，可能大家不太能意会，我来翻译下：<br><img src="http://ww3.sinaimg.cn/large/67a52ad2gw1evlrsf8inhj20ri14l7f5.jpg"></p>
@@ -72,7 +78,7 @@
 </h2>
 <p>//@王天定:转发微博</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3881872574266813" target="freeweibo-mirror">//@何光伟://@毕明雄://@王天定:转发微博</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3881785861455337" target="freeweibo-mirror">//@UC歌迷: //@田野bku: //@UC恋歌: //…</a>
 </h2>
 <p>//@UC歌迷: //@田野bku: //@UC恋歌: //@霞06932: //@Golden_Dragon_China: //@愿下一代红红火火: //@Mbb4: //@平凡的刀2012: ://@大老潘潘老大: //@yiyu你: //@丰邑草民: //@黑人cccp: 向革命老人敬礼！[赞]//@红色小学生: 向刘老致敬![鲜花][给力]</p>
-<p>
-	<small> ============== 10小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3881783227813044" target="freeweibo-mirror">如果换个角度看当今的一些现象，就会感觉现在多少还是有进步。过…</a>
-</h2>
-<p>如果换个角度看当今的一些现象，就会感觉现在多少还是有进步。过去皇帝出巡，要黄土铺路，净水泼街，路人肃静，跪拜在地，不得抬头，敢有造次，抓进大牢。现在也就是限个车号，停一些工厂，封几条道路，关一些店铺，停个诊，上茅房看看身份证。若用更悲观的眼睛看一些现状，总能透过眼泪挤出几丝笑容。</p>
 <p>
 	<small> ============== 10小时前</small>
 </p>
