@@ -60,19 +60,19 @@
 </h2>
 <p>会被爆头吗[嘻嘻]//@谭人玮://@好火药: //@喷嚏网铂程:转发微博<br><br>RE: 纳粹德国阿道夫同志阅兵，沿街的窗口、阳台、甚至楼顶，柏林群众是可以观看的。<br><img src="http://ww2.sinaimg.cn/large/d718076cjw1evlevucz3tj20h80cwgng.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3882047758514824" target="freeweibo-mirror">幸好这次不允许群众看，否则就和法西斯一样了 //@胡淑芬:凡…</a>
 </h2>
 <p>幸好这次不允许群众看，否则就和法西斯一样了 //@胡淑芬:凡是敌人拥护的，我们就要反对，把反法西斯工作落到实处。<br><br>RE: 纳粹德国阿道夫同志阅兵，沿街的窗口、阳台、甚至楼顶，柏林群众是可以观看的。<br><img src="http://ww2.sinaimg.cn/large/d718076cjw1evlevucz3tj20h80cwgng.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3882047078542599" target="freeweibo-mirror">//@叶新Robert: 赵家楼。 //@张开磊:窥阴癖[挖…</a>
 </h2>
 <p>//@叶新Robert: 赵家楼。 //@张开磊:窥阴癖[挖鼻]//@罗争eedoo: 希特勒阅兵没有要求民众关闭窗户哦。//@老河北:就怕比较<br><br>RE: 纳粹德国阿道夫同志阅兵，沿街的窗口、阳台、甚至楼顶，柏林群众是可以观看的。<br><img src="http://ww2.sinaimg.cn/large/d718076cjw1evlevucz3tj20h80cwgng.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3882046847678964" target="freeweibo-mirror">党掌管一切，却管不了人民的死活 //@喷嚏网铂程://@木尔…</a>
 </h2>
