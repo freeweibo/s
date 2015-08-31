@@ -54,19 +54,19 @@
 </h2>
 <p>关于小米刚刚发布的声明，可能大家不太能意会，我来翻译下：<br><img src="http://ww3.sinaimg.cn/large/67a52ad2gw1evlrsf8inhj20ri14l7f5.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3881905000958313" target="freeweibo-mirror">//@雁塔小木屋4://@仙怜凡尘: [思考]//@西澳魔都…</a>
 </h2>
 <p>//@雁塔小木屋4://@仙怜凡尘: [思考]//@西澳魔都寺初八方丈: 赤裸裸的法西斯宣言<br><br>RE: 【原来不是反法西斯】“阅兵首先检阅的就是三军将士对党中央和习主席的无比忠诚与坚决拥护”——要不是北京军区王健中将昨天在人民日报说这句话，我一直以为这次阅兵是纪念抗战胜利呢。（石扉客脸书）<br><img src="http://ww2.sinaimg.cn/large/006bu5Sagw1evlr0nivcmj308m05rglw.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3881904958453672" target="freeweibo-mirror">呵呵。//@剑走偏锋之刀客: //@不变的糕哥:就是啊，说好…</a>
 </h2>
 <p>呵呵。//@剑走偏锋之刀客: //@不变的糕哥:就是啊，说好的纪念抗日战争的嘛//@海龙-7: //@西澳魔都寺初八方丈: 赤裸裸的法西斯宣言<br><br>RE: 【原来不是反法西斯】“阅兵首先检阅的就是三军将士对党中央和习主席的无比忠诚与坚决拥护”——要不是北京军区王健中将昨天在人民日报说这句话，我一直以为这次阅兵是纪念抗战胜利呢。（石扉客脸书）<br><img src="http://ww2.sinaimg.cn/large/006bu5Sagw1evlr0nivcmj308m05rglw.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3881900458365338" target="freeweibo-mirror">网友曝料:今日天津？求证！</a>
 </h2>
