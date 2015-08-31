@@ -38,6 +38,12 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3881906922263204" target="freeweibo-mirror">//@洛-欣: //@雁塔小木屋4://@仙怜凡尘: [思考…</a>
+</h2>
+<p>//@洛-欣: //@雁塔小木屋4://@仙怜凡尘: [思考]//@西澳魔都寺初八方丈: 赤裸裸的法西斯宣言<br><br>RE: 【原来不是反法西斯】“阅兵首先检阅的就是三军将士对党中央和习主席的无比忠诚与坚决拥护”——要不是北京军区王健中将昨天在人民日报说这句话，我一直以为这次阅兵是纪念抗战胜利呢。（石扉客脸书）<br><img src="http://ww2.sinaimg.cn/large/006bu5Sagw1evlr0nivcmj308m05rglw.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3881906749747276" target="freeweibo-mirror">你们就想搞个大新闻！[弱]</a>
 </h2>
 <p>你们就想搞个大新闻！[弱]<br><br>RE: 关于小米刚刚发布的声明，可能大家不太能意会，我来翻译下：<br><img src="http://ww3.sinaimg.cn/large/67a52ad2gw1evlrsf8inhj20ri14l7f5.jpg"></p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3881853314773752" target="freeweibo-mirror">以前微博里有人发什么宠物猴、耍猴卖艺之类的内容，动物保护者啊…</a>
 </h2>
 <p>以前微博里有人发什么宠物猴、耍猴卖艺之类的内容，动物保护者啊科普爱好者啊纷纷跳出来说猕猴是国家几级保护动物这样做是违法的巴拉巴拉巴拉……现在官方为了大月饼训练猴子上树掏鸟窝，这些人全不说话了。归根到底全是小粉红，呵呵。</p>
-<p>
-	<small> ============== 6小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3881847001835895" target="freeweibo-mirror">投票： 【你觉得中国抗日战争取得胜利，谁的功劳最大？】htt…</a>
-</h2>
-<p>投票： 【你觉得中国抗日战争取得胜利，谁的功劳最大？】http://t.cn/RyZAPjI</p>
 <p>
 	<small> ============== 6小时前</small>
 </p>
