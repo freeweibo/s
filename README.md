@@ -42,7 +42,7 @@
 </h2>
 <p>SPAM 中国之进步，很多时候退二进三。</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3881837657199751" target="freeweibo-mirror">//@王誓华律师: //@周泽律师: 不要误以为律师是在为自…</a>
 </h2>
