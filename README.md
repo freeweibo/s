@@ -80,9 +80,21 @@
 <p>
 	<small> ============== 4小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3881899875533997" target="freeweibo-mirror">SPAM //@米迦勒94: [怒]</a>
+</h2>
+<p>SPAM //@米迦勒94: [怒]</p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3881899690593911" target="freeweibo-mirror">我参与了@月光博客 发起的投票 【你觉得中国抗日战争取得胜利…</a>
 </h2>
 <p>我参与了@月光博客 发起的投票 【你觉得中国抗日战争取得胜利，谁的功劳最大？】，我投给了“国民党”这个选项。你也快来表态吧~<br><br>RE: 投票： 【你觉得中国抗日战争取得胜利，谁的功劳最大？】http://t.cn/RyZAPjI</p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3881898931226751" target="freeweibo-mirror">SPAM 文字发不出去！</a>
+</h2>
+<p>SPAM 文字发不出去！<br><img src="http://ww3.sinaimg.cn/large/728e6175jw1evlr0k149dj20ez0qomyh.jpg"></p>
 <p>
 	<small> ============== 4小时前</small>
 </p><h2>
@@ -127,18 +139,6 @@
 <p>怕再发生“火烧赵家楼”事件么？[挖鼻] //@邱乱作:有这事？[挖鼻] //@筝羽携香: 公交车现在经过东单，天安门都不允许开车窗。<br><br>RE: 向朝阳区群众举报：潘金莲偷窥。<br><img src="http://ww3.sinaimg.cn/large/006cgSnKgw1evkx555eqej30ce096q3h.jpg"></p>
 <p>
 	<small> ============== 6小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3881854190922637" target="freeweibo-mirror">[偷笑]</a>
-</h2>
-<p>[偷笑]<br><br>RE: 如果换个角度看当今的一些现象，就会感觉现在多少还是有进步。过去皇帝出巡，要黄土铺路，净水泼街，路人肃静，跪拜在地，不得抬头，敢有造次，抓进大牢。现在也就是限个车号，停一些工厂，封几条道路，关一些店铺，停个诊，上茅房看看身份证。若用更悲观的眼睛看一些现状，总能透过眼泪挤出几丝笑容。</p>
-<p>
-	<small> ============== 7小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3881853314773752" target="freeweibo-mirror">以前微博里有人发什么宠物猴、耍猴卖艺之类的内容，动物保护者啊…</a>
-</h2>
-<p>以前微博里有人发什么宠物猴、耍猴卖艺之类的内容，动物保护者啊科普爱好者啊纷纷跳出来说猕猴是国家几级保护动物这样做是违法的巴拉巴拉巴拉……现在官方为了大月饼训练猴子上树掏鸟窝，这些人全不说话了。归根到底全是小粉红，呵呵。</p>
-<p>
-	<small> ============== 7小时前</small>
 </p>
 <table>
     <tr>
