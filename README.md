@@ -120,7 +120,7 @@
 </h2>
 <p>SPAM 唉！我们该说什么好？ http://t.cn/Ryzlalo</p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3881983459472308" target="freeweibo-mirror">SPAM 美！ //@儒林泊客://@熊大鳌: [推荐]</a>
 </h2>
