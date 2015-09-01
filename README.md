@@ -72,13 +72,13 @@
 </h2>
 <p>SPAM //@诗人刀哥: 这样实用，阻挡十三亿人毫无问题！[哈哈] //@-孔智勇:如临大敌……<br><br>RE: 某些人灵魂深处的刺。<br><img src="http://ww3.sinaimg.cn/large/41693645gw1evn6vfzxxyj20hs0nqdif.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3882369297996644" target="freeweibo-mirror">外媒称中国军队将迎30年来最大改革 http://t.cn/…</a>
 </h2>
 <p>外媒称中国军队将迎30年来最大改革 http://t.cn/RyZBJRj</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3882367523010811" target="freeweibo-mirror">SPAM 不清楚。小时候看评书，滚木雷石刺马。//@乔志峰:…</a>
 </h2>
