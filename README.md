@@ -42,7 +42,7 @@
 </h2>
 <p>这是真的吗？ http://t.cn/R2WJPrP<br><img src="http://ww4.sinaimg.cn/large/65f82df7jw1evmm2pbshgj20c8061jrw.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3882167400974693" target="freeweibo-mirror">//@廖睿:群众的眼睛是雪亮的。</a>
 </h2>
@@ -84,19 +84,19 @@
 </h2>
 <p>//@查良钧:所以才有个“反”字在前面，人家怎样咱也怎样那还不成法西斯了。<br><br>RE: 纳粹德国阿道夫同志阅兵，沿街的窗口、阳台、甚至楼顶，柏林群众是可以观看的。<br><img src="http://ww2.sinaimg.cn/large/d718076cjw1evlevucz3tj20h80cwgng.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3882048547180068" target="freeweibo-mirror">//@Jenny娟娟:“窥视”，这词儿用的？[思考][思考]…</a>
 </h2>
 <p>//@Jenny娟娟:“窥视”，这词儿用的？[思考][思考][思考][思考]//@简直: 幸好这次不允许群众看，否则就和法西斯一样了 //@胡淑芬:凡是敌人拥护的，我们就要反对，把反法西斯工作落到实处。<br><br>RE: 纳粹德国阿道夫同志阅兵，沿街的窗口、阳台、甚至楼顶，柏林群众是可以观看的。<br><img src="http://ww2.sinaimg.cn/large/d718076cjw1evlevucz3tj20h80cwgng.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3882048488429396" target="freeweibo-mirror">为什么我们的眼中常含泪水 //@简直:幸好这次不允许群众看，…</a>
 </h2>
 <p>为什么我们的眼中常含泪水 //@简直:幸好这次不允许群众看，否则就和法西斯一样了 //@胡淑芬:凡是敌人拥护的，我们就要反对，把反法西斯工作落到实处。<br><br>RE: 纳粹德国阿道夫同志阅兵，沿街的窗口、阳台、甚至楼顶，柏林群众是可以观看的。<br><img src="http://ww2.sinaimg.cn/large/d718076cjw1evlevucz3tj20h80cwgng.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3882048290752343" target="freeweibo-mirror">会被爆头吗[嘻嘻]//@谭人玮://@好火药: //@喷嚏网…</a>
 </h2>
