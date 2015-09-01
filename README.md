@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3882404437505457" target="freeweibo-mirror">//@水兵李铭: //@玳簋21:转发微博</a>
+</h2>
+<p>//@水兵李铭: //@玳簋21:转发微博</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3882394820517346" target="freeweibo-mirror">//@邵明波://@金陵酒徒仓氏: [阴险] //@秦州閑人…</a>
 </h2>
 <p>//@邵明波://@金陵酒徒仓氏: [阴险] //@秦州閑人:转发微博</p>
@@ -53,6 +59,12 @@
 	<a href="https://freeweibo.com/weibo/3882382966411493" target="freeweibo-mirror">SPAM 无耻！//@自由的章鱼哥12:什么谎都敢撒</a>
 </h2>
 <p>SPAM 无耻！//@自由的章鱼哥12:什么谎都敢撒</p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3882376797552501" target="freeweibo-mirror">9月1日，新《廣告法》正式施行……從今日起，“太陽最紅毛主席…</a>
+</h2>
+<p>9月1日，新《廣告法》正式施行……從今日起，“太陽最紅毛主席最親”涉嫌廣告語違法……（圖via @吾黑畫）<br><img src="http://ww3.sinaimg.cn/large/006862Njgw1evn9xc2jptj30960dcgmu.jpg"></p>
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
@@ -120,23 +132,11 @@
 </h2>
 <p>//@李翔196811: 转发微博<br><br>RE: 某些人灵魂深处的刺。<br><img src="http://ww3.sinaimg.cn/large/41693645gw1evn6vfzxxyj20hs0nqdif.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3882352717625341" target="freeweibo-mirror">//@不明假真相:[哼]//@-九段: //@儒林泊客://…</a>
 </h2>
 <p>//@不明假真相:[哼]//@-九段: //@儒林泊客://@八月战鞑靼: //@江山Brave_47527://@推倒洛丽塔五世: //@影孑太郎://@维克多星球://@WALLE_A://@SokratesjrIII: 民政部，最高检的门前常年备有这种路障。 //@艹长老105:法西斯反人民的庆典！</p>
-<p>
-	<small> ============== 5小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3882351840763048" target="freeweibo-mirror">SPAM //@范桶: 反恐，必须的！//@作家东海:[吃惊…</a>
-</h2>
-<p>SPAM //@范桶: 反恐，必须的！//@作家东海:[吃惊]暗器？ //@不变的糕哥:可能害怕野猪之类窜访吧？//@小军的自油20: //@绝对集团: 这树角丫叉不是冷兵器时代安营扎寨用的么？<br><br>RE: 北京灯市口地铁口——不知是啥 反法西斯的新式武器？[疑问][思考]<br><img src="http://ww3.sinaimg.cn/large/005SuA62gw1evn5shgquxj30go0m80ub.jpg"></p>
-<p>
-	<small> ============== 5小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3882350381680091" target="freeweibo-mirror">某些人灵魂深处的刺。</a>
-</h2>
-<p>某些人灵魂深处的刺。<br><img src="http://ww3.sinaimg.cn/large/41693645gw1evn6vfzxxyj20hs0nqdif.jpg"></p>
 <p>
 	<small> ============== 5小时前</small>
 </p>
