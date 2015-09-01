@@ -42,13 +42,13 @@
 </h2>
 <p>我算是明白了，所谓反，就是超越。<br><br>RE: 纳粹德国阿道夫同志阅兵，沿街的窗口、阳台、甚至楼顶，柏林群众是可以观看的。<br><img src="http://ww2.sinaimg.cn/large/d718076cjw1evlevucz3tj20h80cwgng.jpg"></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3882052464389318" target="freeweibo-mirror">能把“反”字理解成“超越”吗？</a>
 </h2>
 <p>能把“反”字理解成“超越”吗？<br><br>RE: 纳粹德国阿道夫同志阅兵，沿街的窗口、阳台、甚至楼顶，柏林群众是可以观看的。<br><img src="http://ww2.sinaimg.cn/large/d718076cjw1evlevucz3tj20h80cwgng.jpg"></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3882050802934478" target="freeweibo-mirror">那时他们相信大多数老百姓支持他们。 //@简直:幸好这次不允…</a>
 </h2>
