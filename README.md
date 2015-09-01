@@ -24,7 +24,7 @@
 </h2>
 <p>SPAM 这算什么？//@袁裕来律师: 我是来删帖的。//@徐昕:呵呵 //@感园室主人: 呵呵 //@崔小平律师: 转发<br><br>RE: 这是真的吗？ http://t.cn/R2WJPrP<br><img src="http://ww4.sinaimg.cn/large/65f82df7jw1evmm2pbshgj20c8061jrw.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3882169162220579" target="freeweibo-mirror">这是真的吗？ http://t.cn/R2WJPrP</a>
 </h2>
@@ -138,7 +138,7 @@
 </h2>
 <p>你说的是纳粹德国的事儿，怎么跟咱比！[挖鼻]<br><br>RE: 纳粹德国阿道夫同志阅兵，沿街的窗口、阳台、甚至楼顶，柏林群众是可以观看的。<br><img src="http://ww2.sinaimg.cn/large/d718076cjw1evlevucz3tj20h80cwgng.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p>
 <table>
     <tr>
