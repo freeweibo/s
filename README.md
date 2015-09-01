@@ -60,7 +60,7 @@
 </h2>
 <p>SPAM 无耻！//@自由的章鱼哥12:什么谎都敢撒</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3882376797552501" target="freeweibo-mirror">9月1日，新《廣告法》正式施行……從今日起，“太陽最紅毛主席…</a>
 </h2>
@@ -84,7 +84,7 @@
 </h2>
 <p>SPAM 不清楚。小时候看评书，滚木雷石刺马。//@乔志峰:这是什么 //@-孔智勇:如临大敌……<br><br>RE: 某些人灵魂深处的刺。<br><img src="http://ww3.sinaimg.cn/large/41693645gw1evn6vfzxxyj20hs0nqdif.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3882365959071753" target="freeweibo-mirror">找个领导站在后头，就不用纪念什么反法西斯胜利了。因为....…</a>
 </h2>
@@ -138,7 +138,7 @@
 </h2>
 <p>//@不明假真相:[哼]//@-九段: //@儒林泊客://@八月战鞑靼: //@江山Brave_47527://@推倒洛丽塔五世: //@影孑太郎://@维克多星球://@WALLE_A://@SokratesjrIII: 民政部，最高检的门前常年备有这种路障。 //@艹长老105:法西斯反人民的庆典！</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p>
 <table>
     <tr>
