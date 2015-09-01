@@ -36,7 +36,7 @@
 </h2>
 <p>游而不击，专打国军。好一个中流砥柱！@查良钧 @肖雪慧43 @胖牛姐5 http://t.cn/RyzVXag</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3882298552308886" target="freeweibo-mirror">SPAM 1[哈哈][哈哈][哈哈]</a>
 </h2>
@@ -126,13 +126,13 @@
 </h2>
 <p>所以说:共党邪恶，说一套，做一套，上面一套，下面一套//@德西资本://@8度新闻: //@老哥日记:转发微博</p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3882232840188947" target="freeweibo-mirror">//@守望曙光2: //@厌非再来://@我泣中华原名我哭中…</a>
 </h2>
 <p>//@守望曙光2: //@厌非再来://@我泣中华原名我哭中华: 毛鬼把果敢送给缅甸共产小弟旳结局[泪]//@人权9: //@宝宝xfshi:太恐怖[怒]//@三号战斗员:[怒]//@伟伟ZHANGXIAOWEI:[怒]//@井冈山的格瓦拉:缅甸军队枪杀我果敢老百姓的学腥残忍视频。<br><br>RE: 分享视频 http://t.cn/RyZx5ko .</p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3882210757263617" target="freeweibo-mirror">将日本人民与安倍区分开来，是智也是策</a>
 </h2>
