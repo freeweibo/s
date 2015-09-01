@@ -120,7 +120,7 @@
 </h2>
 <p>这是真的吗？ http://t.cn/R2WJPrP<br><img src="http://ww4.sinaimg.cn/large/65f82df7jw1evmm2pbshgj20c8061jrw.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3882167400974693" target="freeweibo-mirror">//@廖睿:群众的眼睛是雪亮的。</a>
 </h2>
