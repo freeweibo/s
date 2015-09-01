@@ -24,7 +24,7 @@
 </h2>
 <p>青史不灭，荣耀永照！ //@陶景洲:这算反革命宣传吗？<br><br>RE: 用事实说话！！！  http://t.cn/RyzgZvJ</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3882238813147098" target="freeweibo-mirror">SPAM [挤眼]//@陶景洲: 这算反革命宣传吗？</a>
 </h2>
