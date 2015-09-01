@@ -44,6 +44,12 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3882389039822239" target="freeweibo-mirror">我想问一下，世界上是有一些国家不能正常登录脸书、推特，看看这…</a>
+</h2>
+<p>我想问一下，世界上是有一些国家不能正常登录脸书、推特，看看这都是些什么国家（除了天朝）？这还不打紧，试问，世界上还有多少国家封禁谷歌，甚至封禁谷歌学术搜索、《自然》这些学术性网站？真是奇葩中的奇葩，烂货中的烂货。</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3882382966411493" target="freeweibo-mirror">SPAM 无耻！//@自由的章鱼哥12:什么谎都敢撒</a>
 </h2>
 <p>SPAM 无耻！//@自由的章鱼哥12:什么谎都敢撒</p>
@@ -54,13 +60,13 @@
 </h2>
 <p>SPAM //@诗人刀哥: 这样实用，阻挡十三亿人毫无问题！[哈哈] //@-孔智勇:如临大敌……<br><br>RE: 某些人灵魂深处的刺。<br><img src="http://ww3.sinaimg.cn/large/41693645gw1evn6vfzxxyj20hs0nqdif.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3882369297996644" target="freeweibo-mirror">外媒称中国军队将迎30年来最大改革 http://t.cn/…</a>
 </h2>
 <p>外媒称中国军队将迎30年来最大改革 http://t.cn/RyZBJRj</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3882367523010811" target="freeweibo-mirror">SPAM 不清楚。小时候看评书，滚木雷石刺马。//@乔志峰:…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3882350381680091" target="freeweibo-mirror">某些人灵魂深处的刺。</a>
 </h2>
 <p>某些人灵魂深处的刺。<br><img src="http://ww3.sinaimg.cn/large/41693645gw1evn6vfzxxyj20hs0nqdif.jpg"></p>
-<p>
-	<small> ============== 5小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3882348343277420" target="freeweibo-mirror">//@媒体人欧菲:预防日本帝国主义搞突袭？//@A青花:钉板…</a>
-</h2>
-<p>//@媒体人欧菲:预防日本帝国主义搞突袭？//@A青花:钉板么？[吃惊]</p>
 <p>
 	<small> ============== 5小时前</small>
 </p>
