@@ -114,7 +114,7 @@
 </h2>
 <p>【他们，是日本的良知】渡边淳一：“（日本）不愿意道歉也必须要道歉，因为我们的父亲、祖父或者曾祖父，他们的身体里流淌着和我们一样的血。虽然我们的家族认为他们温文尔雅，但他们毕竟在那场癫狂的战争中，成为癫狂的人。”今年#抗战胜利#70周年，听听这些来自日本的声音↓正视历史，才能更好前行。<br><img src="http://ww1.sinaimg.cn/large/a716fd45jw1evmm9ks7emj20c80c840r.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3882169162220579" target="freeweibo-mirror">这是真的吗？ http://t.cn/R2WJPrP</a>
 </h2>
