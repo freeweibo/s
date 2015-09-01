@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3882167400974693" target="freeweibo-mirror">//@廖睿:群众的眼睛是雪亮的。</a>
+</h2>
+<p>//@廖睿:群众的眼睛是雪亮的。<br><br>RE: 北京军区中将王健：“阅兵首先检阅的就是三军将士对党中央和习主席的无比忠诚与坚决拥护”。网友：“我一直还以为这次阅兵主要是纪念抗日战争暨世界反法西斯战争胜利呢”。</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3882156869061647" target="freeweibo-mirror">让歪国人来也为献忠诚？//@吴长缨: //@西北胡杨x: 不…</a>
 </h2>
 <p>让歪国人来也为献忠诚？//@吴长缨: //@西北胡杨x: 不是说好了纪念抗战胜利70周年吗//@陈业文新大都:[笑cry]//@周铁东本人:猪队友。//@无肉不欢911:俺还当真了，你说说这事儿整的[困]//@蔡慕阮:不打自招。<br><br>RE: 北京军区中将王健：“阅兵首先检阅的就是三军将士对党中央和习主席的无比忠诚与坚决拥护”。网友：“我一直还以为这次阅兵主要是纪念抗日战争暨世界反法西斯战争胜利呢”。</p>
@@ -54,37 +60,37 @@
 </h2>
 <p>//@查良钧:所以才有个“反”字在前面，人家怎样咱也怎样那还不成法西斯了。<br><br>RE: 纳粹德国阿道夫同志阅兵，沿街的窗口、阳台、甚至楼顶，柏林群众是可以观看的。<br><img src="http://ww2.sinaimg.cn/large/d718076cjw1evlevucz3tj20h80cwgng.jpg"></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3882048547180068" target="freeweibo-mirror">//@Jenny娟娟:“窥视”，这词儿用的？[思考][思考]…</a>
 </h2>
 <p>//@Jenny娟娟:“窥视”，这词儿用的？[思考][思考][思考][思考]//@简直: 幸好这次不允许群众看，否则就和法西斯一样了 //@胡淑芬:凡是敌人拥护的，我们就要反对，把反法西斯工作落到实处。<br><br>RE: 纳粹德国阿道夫同志阅兵，沿街的窗口、阳台、甚至楼顶，柏林群众是可以观看的。<br><img src="http://ww2.sinaimg.cn/large/d718076cjw1evlevucz3tj20h80cwgng.jpg"></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3882048488429396" target="freeweibo-mirror">为什么我们的眼中常含泪水 //@简直:幸好这次不允许群众看，…</a>
 </h2>
 <p>为什么我们的眼中常含泪水 //@简直:幸好这次不允许群众看，否则就和法西斯一样了 //@胡淑芬:凡是敌人拥护的，我们就要反对，把反法西斯工作落到实处。<br><br>RE: 纳粹德国阿道夫同志阅兵，沿街的窗口、阳台、甚至楼顶，柏林群众是可以观看的。<br><img src="http://ww2.sinaimg.cn/large/d718076cjw1evlevucz3tj20h80cwgng.jpg"></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3882048290752343" target="freeweibo-mirror">会被爆头吗[嘻嘻]//@谭人玮://@好火药: //@喷嚏网…</a>
 </h2>
 <p>会被爆头吗[嘻嘻]//@谭人玮://@好火药: //@喷嚏网铂程:转发微博<br><br>RE: 纳粹德国阿道夫同志阅兵，沿街的窗口、阳台、甚至楼顶，柏林群众是可以观看的。<br><img src="http://ww2.sinaimg.cn/large/d718076cjw1evlevucz3tj20h80cwgng.jpg"></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3882047758514824" target="freeweibo-mirror">幸好这次不允许群众看，否则就和法西斯一样了 //@胡淑芬:凡…</a>
 </h2>
 <p>幸好这次不允许群众看，否则就和法西斯一样了 //@胡淑芬:凡是敌人拥护的，我们就要反对，把反法西斯工作落到实处。<br><br>RE: 纳粹德国阿道夫同志阅兵，沿街的窗口、阳台、甚至楼顶，柏林群众是可以观看的。<br><img src="http://ww2.sinaimg.cn/large/d718076cjw1evlevucz3tj20h80cwgng.jpg"></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3882047078542599" target="freeweibo-mirror">//@叶新Robert: 赵家楼。 //@张开磊:窥阴癖[挖…</a>
 </h2>
 <p>//@叶新Robert: 赵家楼。 //@张开磊:窥阴癖[挖鼻]//@罗争eedoo: 希特勒阅兵没有要求民众关闭窗户哦。//@老河北:就怕比较<br><br>RE: 纳粹德国阿道夫同志阅兵，沿街的窗口、阳台、甚至楼顶，柏林群众是可以观看的。<br><img src="http://ww2.sinaimg.cn/large/d718076cjw1evlevucz3tj20h80cwgng.jpg"></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3882046847678964" target="freeweibo-mirror">党掌管一切，却管不了人民的死活 //@喷嚏网铂程://@木尔…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3882008859762448" target="freeweibo-mirror">SPAM 唉！我们该说什么好？ http://t.cn/Ry…</a>
 </h2>
 <p>SPAM 唉！我们该说什么好？ http://t.cn/Ryzlalo</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3881983459472308" target="freeweibo-mirror">SPAM 美！ //@儒林泊客://@熊大鳌: [推荐]</a>
-</h2>
-<p>SPAM 美！ //@儒林泊客://@熊大鳌: [推荐]<br><br>RE: 自由是人的天性[玫瑰][玫瑰][爱你][爱你][嘻嘻][哈哈][哈哈]寻老友[话筒][话筒]<br><img src="http://ww1.sinaimg.cn/large/006d9UiNjw1evlx09xt7kj30c80dj75a.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
