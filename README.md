@@ -20,6 +20,18 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3882240159220799" target="freeweibo-mirror">青史不灭，荣耀永照！ //@陶景洲:这算反革命宣传吗？</a>
+</h2>
+<p>青史不灭，荣耀永照！ //@陶景洲:这算反革命宣传吗？<br><br>RE: 用事实说话！！！  http://t.cn/RyzgZvJ</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3882233247027627" target="freeweibo-mirror">所以说:共党邪恶，说一套，做一套，上面一套，下面一套//@德…</a>
+</h2>
+<p>所以说:共党邪恶，说一套，做一套，上面一套，下面一套//@德西资本://@8度新闻: //@老哥日记:转发微博</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3882203920766044" target="freeweibo-mirror">//@北京杨博:问央视：一个末流记者一篇文章就能让股市暴跌？…</a>
 </h2>
 <p>//@北京杨博:问央视：一个末流记者一篇文章就能让股市暴跌？那么多一流记者的优秀文章为何不能让股市暴涨？这是怎样的狗屁逻辑？<br><br>RE: 【央视又当帮凶】一个非主流媒体的末流记者一篇胡说八道的文章就能让股市暴跌；一条微博就可以让一个国家覆灭；一条善意的批评就是吃谁的饭杂谁的碗；一个电视台可以当法官；嫖客可以审判妓女的国家；一个宪法赋予言论自由而现实到处都是因言获罪的国家；一个官媒总是充当帮凶的国家…可怕不？<br><img src="http://ww1.sinaimg.cn/large/b686ce1fgw1evmehornpuj20c80njq56.jpg"></p>
@@ -54,7 +66,7 @@
 </h2>
 <p>//@廖睿:群众的眼睛是雪亮的。<br><br>RE: 北京军区中将王健：“阅兵首先检阅的就是三军将士对党中央和习主席的无比忠诚与坚决拥护”。网友：“我一直还以为这次阅兵主要是纪念抗日战争暨世界反法西斯战争胜利呢”。</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3882156869061647" target="freeweibo-mirror">让歪国人来也为献忠诚？//@吴长缨: //@西北胡杨x: 不…</a>
 </h2>
@@ -125,18 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3882047078542599" target="freeweibo-mirror">//@叶新Robert: 赵家楼。 //@张开磊:窥阴癖[挖…</a>
 </h2>
 <p>//@叶新Robert: 赵家楼。 //@张开磊:窥阴癖[挖鼻]//@罗争eedoo: 希特勒阅兵没有要求民众关闭窗户哦。//@老河北:就怕比较<br><br>RE: 纳粹德国阿道夫同志阅兵，沿街的窗口、阳台、甚至楼顶，柏林群众是可以观看的。<br><img src="http://ww2.sinaimg.cn/large/d718076cjw1evlevucz3tj20h80cwgng.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3882046847678964" target="freeweibo-mirror">党掌管一切，却管不了人民的死活 //@喷嚏网铂程://@木尔…</a>
-</h2>
-<p>党掌管一切，却管不了人民的死活 //@喷嚏网铂程://@木尔: 阅-兵献-礼-----彻底无语！！！[衰][泪]//@彭园v: //@贪官多11世:打脸 //@粵東老趙:打脸！啪啪啪。。。。。</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3882046185072841" target="freeweibo-mirror">凡是敌人拥护的，我们就要反对，把反法西斯工作落到实处。</a>
-</h2>
-<p>凡是敌人拥护的，我们就要反对，把反法西斯工作落到实处。<br><br>RE: 纳粹德国阿道夫同志阅兵，沿街的窗口、阳台、甚至楼顶，柏林群众是可以观看的。<br><img src="http://ww2.sinaimg.cn/large/d718076cjw1evlevucz3tj20h80cwgng.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
