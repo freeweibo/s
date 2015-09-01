@@ -30,7 +30,7 @@
 </h2>
 <p>SPAM 这算什么？//@袁裕来律师: 我是来删帖的。//@徐昕:呵呵 //@感园室主人: 呵呵 //@崔小平律师: 转发<br><br>RE: 这是真的吗？ http://t.cn/R2WJPrP<br><img src="http://ww4.sinaimg.cn/large/65f82df7jw1evmm2pbshgj20c8061jrw.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3882187427960936" target="freeweibo-mirror">问央视：一个末流记者一篇文章就能让股市暴跌？那么多一流记者的…</a>
 </h2>
@@ -126,19 +126,19 @@
 </h2>
 <p>党掌管一切，却管不了人民的死活 //@喷嚏网铂程://@木尔: 阅-兵献-礼-----彻底无语！！！[衰][泪]//@彭园v: //@贪官多11世:打脸 //@粵東老趙:打脸！啪啪啪。。。。。</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3882046185072841" target="freeweibo-mirror">凡是敌人拥护的，我们就要反对，把反法西斯工作落到实处。</a>
 </h2>
 <p>凡是敌人拥护的，我们就要反对，把反法西斯工作落到实处。<br><br>RE: 纳粹德国阿道夫同志阅兵，沿街的窗口、阳台、甚至楼顶，柏林群众是可以观看的。<br><img src="http://ww2.sinaimg.cn/large/d718076cjw1evlevucz3tj20h80cwgng.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3882045891805509" target="freeweibo-mirror">所以才有个“反”字在前面，人家怎样咱也怎样那还不成法西斯了。</a>
 </h2>
 <p>所以才有个“反”字在前面，人家怎样咱也怎样那还不成法西斯了。<br><br>RE: 纳粹德国阿道夫同志阅兵，沿街的窗口、阳台、甚至楼顶，柏林群众是可以观看的。<br><img src="http://ww2.sinaimg.cn/large/d718076cjw1evlevucz3tj20h80cwgng.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p>
 <table>
     <tr>
