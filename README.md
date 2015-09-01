@@ -24,7 +24,7 @@
 </h2>
 <p>SPAM //@肖雪慧43:那场剧叫人大跌眼镜[吃惊]<br><br>RE: 游而不击，专打国军。好一个中流砥柱！@查良钧 @肖雪慧43 @胖牛姐5 http://t.cn/RyzVXag</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3882283775674656" target="freeweibo-mirror">//@乌蒙迹浪: //@海上春天: //@不舍昼夜者: 这个…</a>
 </h2>
