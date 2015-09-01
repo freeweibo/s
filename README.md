@@ -20,6 +20,24 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3882254231508940" target="freeweibo-mirror">//@谢文: 这是谁啊？老毛与华国锋的合二为一？</a>
+</h2>
+<p>//@谢文: 这是谁啊？老毛与华国锋的合二为一？</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3882244151947347" target="freeweibo-mirror">//@刘X地盘://@去V的刘建锋://@潇湘酒徒胜哥:[吃…</a>
+</h2>
+<p>//@刘X地盘://@去V的刘建锋://@潇湘酒徒胜哥:[吃惊] //@大熊出没: 因言获罪 //@亮冰娜无穷动:[吃惊]//@刘迎新R://@无德无信的权贵3: 转发微博<br><br>RE: 知名博主、信孚教育集团创办人信力建在8月21日被捕，同时被捕的有他的妻子吴静、公司总经理，还有司机、秘书。据传是先抓后审，寻找税务方面的借口。一岁的儿子，失去父母看顾。在中国企业家中，信力建以敢言闻名，热心公益，维护公义。</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3882244005045052" target="freeweibo-mirror">//@去V的刘建锋://@潇湘酒徒胜哥:[吃惊] //@大熊…</a>
+</h2>
+<p>//@去V的刘建锋://@潇湘酒徒胜哥:[吃惊] //@大熊出没: 因言获罪 //@亮冰娜无穷动:[吃惊]//@刘迎新R://@无德无信的权贵3: 转发微博<br><br>RE: 知名博主、信孚教育集团创办人信力建在8月21日被捕，同时被捕的有他的妻子吴静、公司总经理，还有司机、秘书。据传是先抓后审，寻找税务方面的借口。一岁的儿子，失去父母看顾。在中国企业家中，信力建以敢言闻名，热心公益，维护公义。</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3882240159220799" target="freeweibo-mirror">青史不灭，荣耀永照！ //@陶景洲:这算反革命宣传吗？</a>
 </h2>
 <p>青史不灭，荣耀永照！ //@陶景洲:这算反革命宣传吗？<br><br>RE: 用事实说话！！！  http://t.cn/RyzgZvJ</p>
@@ -37,6 +55,12 @@
 <p>所以说:共党邪恶，说一套，做一套，上面一套，下面一套//@德西资本://@8度新闻: //@老哥日记:转发微博</p>
 <p>
 	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3882210757263617" target="freeweibo-mirror">将日本人民与安倍区分开来，是智也是策</a>
+</h2>
+<p>将日本人民与安倍区分开来，是智也是策</p>
+<p>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3882203920766044" target="freeweibo-mirror">//@北京杨博:问央视：一个末流记者一篇文章就能让股市暴跌？…</a>
 </h2>
@@ -61,6 +85,12 @@
 <p>问央视：一个末流记者一篇文章就能让股市暴跌？那么多一流记者的优秀文章为何不能让股市暴涨？这是怎样的狗屁逻辑？<br><br>RE: 【央视又当帮凶】一个非主流媒体的末流记者一篇胡说八道的文章就能让股市暴跌；一条微博就可以让一个国家覆灭；一条善意的批评就是吃谁的饭杂谁的碗；一个电视台可以当法官；嫖客可以审判妓女的国家；一个宪法赋予言论自由而现实到处都是因言获罪的国家；一个官媒总是充当帮凶的国家…可怕不？<br><img src="http://ww1.sinaimg.cn/large/b686ce1fgw1evmehornpuj20c80njq56.jpg"></p>
 <p>
 	<small> ============== 5小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3882170772885434" target="freeweibo-mirror">【他们，是日本的良知】渡边淳一：“（日本）不愿意道歉也必须要…</a>
+</h2>
+<p>【他们，是日本的良知】渡边淳一：“（日本）不愿意道歉也必须要道歉，因为我们的父亲、祖父或者曾祖父，他们的身体里流淌着和我们一样的血。虽然我们的家族认为他们温文尔雅，但他们毕竟在那场癫狂的战争中，成为癫狂的人。”今年#抗战胜利#70周年，听听这些来自日本的声音↓正视历史，才能更好前行。<br><img src="http://ww1.sinaimg.cn/large/a716fd45jw1evmm9ks7emj20c80c840r.jpg"></p>
+<p>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3882169162220579" target="freeweibo-mirror">这是真的吗？ http://t.cn/R2WJPrP</a>
 </h2>
@@ -107,36 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3882050802934478" target="freeweibo-mirror">那时他们相信大多数老百姓支持他们。 //@简直:幸好这次不允…</a>
 </h2>
 <p>那时他们相信大多数老百姓支持他们。 //@简直:幸好这次不允许群众看，否则就和法西斯一样了 //@胡淑芬:凡是敌人拥护的，我们就要反对，把反法西斯工作落到实处。<br><br>RE: 纳粹德国阿道夫同志阅兵，沿街的窗口、阳台、甚至楼顶，柏林群众是可以观看的。<br><img src="http://ww2.sinaimg.cn/large/d718076cjw1evlevucz3tj20h80cwgng.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3882049150931230" target="freeweibo-mirror">//@查良钧:所以才有个“反”字在前面，人家怎样咱也怎样那还…</a>
-</h2>
-<p>//@查良钧:所以才有个“反”字在前面，人家怎样咱也怎样那还不成法西斯了。<br><br>RE: 纳粹德国阿道夫同志阅兵，沿街的窗口、阳台、甚至楼顶，柏林群众是可以观看的。<br><img src="http://ww2.sinaimg.cn/large/d718076cjw1evlevucz3tj20h80cwgng.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3882048547180068" target="freeweibo-mirror">//@Jenny娟娟:“窥视”，这词儿用的？[思考][思考]…</a>
-</h2>
-<p>//@Jenny娟娟:“窥视”，这词儿用的？[思考][思考][思考][思考]//@简直: 幸好这次不允许群众看，否则就和法西斯一样了 //@胡淑芬:凡是敌人拥护的，我们就要反对，把反法西斯工作落到实处。<br><br>RE: 纳粹德国阿道夫同志阅兵，沿街的窗口、阳台、甚至楼顶，柏林群众是可以观看的。<br><img src="http://ww2.sinaimg.cn/large/d718076cjw1evlevucz3tj20h80cwgng.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3882048488429396" target="freeweibo-mirror">为什么我们的眼中常含泪水 //@简直:幸好这次不允许群众看，…</a>
-</h2>
-<p>为什么我们的眼中常含泪水 //@简直:幸好这次不允许群众看，否则就和法西斯一样了 //@胡淑芬:凡是敌人拥护的，我们就要反对，把反法西斯工作落到实处。<br><br>RE: 纳粹德国阿道夫同志阅兵，沿街的窗口、阳台、甚至楼顶，柏林群众是可以观看的。<br><img src="http://ww2.sinaimg.cn/large/d718076cjw1evlevucz3tj20h80cwgng.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3882048290752343" target="freeweibo-mirror">会被爆头吗[嘻嘻]//@谭人玮://@好火药: //@喷嚏网…</a>
-</h2>
-<p>会被爆头吗[嘻嘻]//@谭人玮://@好火药: //@喷嚏网铂程:转发微博<br><br>RE: 纳粹德国阿道夫同志阅兵，沿街的窗口、阳台、甚至楼顶，柏林群众是可以观看的。<br><img src="http://ww2.sinaimg.cn/large/d718076cjw1evlevucz3tj20h80cwgng.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3882047758514824" target="freeweibo-mirror">幸好这次不允许群众看，否则就和法西斯一样了 //@胡淑芬:凡…</a>
-</h2>
-<p>幸好这次不允许群众看，否则就和法西斯一样了 //@胡淑芬:凡是敌人拥护的，我们就要反对，把反法西斯工作落到实处。<br><br>RE: 纳粹德国阿道夫同志阅兵，沿街的窗口、阳台、甚至楼顶，柏林群众是可以观看的。<br><img src="http://ww2.sinaimg.cn/large/d718076cjw1evlevucz3tj20h80cwgng.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
