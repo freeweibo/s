@@ -72,7 +72,7 @@
 </h2>
 <p>【央视又当帮凶】一个非主流媒体的末流记者一篇胡说八道的文章就能让股市暴跌；一条微博就可以让一个国家覆灭；一条善意的批评就是吃谁的饭杂谁的碗；一个电视台可以当法官；嫖客可以审判妓女的国家；一个宪法赋予言论自由而现实到处都是因言获罪的国家；一个官媒总是充当帮凶的国家…可怕不？<br><img src="http://ww1.sinaimg.cn/large/b686ce1fgw1evmehornpuj20c80njq56.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3882052665571067" target="freeweibo-mirror">我算是明白了，所谓反，就是超越。</a>
 </h2>
@@ -90,7 +90,7 @@
 </h2>
 <p>那时他们相信大多数老百姓支持他们。 //@简直:幸好这次不允许群众看，否则就和法西斯一样了 //@胡淑芬:凡是敌人拥护的，我们就要反对，把反法西斯工作落到实处。<br><br>RE: 纳粹德国阿道夫同志阅兵，沿街的窗口、阳台、甚至楼顶，柏林群众是可以观看的。<br><img src="http://ww2.sinaimg.cn/large/d718076cjw1evlevucz3tj20h80cwgng.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3882049150931230" target="freeweibo-mirror">//@查良钧:所以才有个“反”字在前面，人家怎样咱也怎样那还…</a>
 </h2>
