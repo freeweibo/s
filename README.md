@@ -20,9 +20,21 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3882203920766044" target="freeweibo-mirror">//@北京杨博:问央视：一个末流记者一篇文章就能让股市暴跌？…</a>
+</h2>
+<p>//@北京杨博:问央视：一个末流记者一篇文章就能让股市暴跌？那么多一流记者的优秀文章为何不能让股市暴涨？这是怎样的狗屁逻辑？<br><br>RE: 【央视又当帮凶】一个非主流媒体的末流记者一篇胡说八道的文章就能让股市暴跌；一条微博就可以让一个国家覆灭；一条善意的批评就是吃谁的饭杂谁的碗；一个电视台可以当法官；嫖客可以审判妓女的国家；一个宪法赋予言论自由而现实到处都是因言获罪的国家；一个官媒总是充当帮凶的国家…可怕不？<br><img src="http://ww1.sinaimg.cn/large/b686ce1fgw1evmehornpuj20c80njq56.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3882189361837182" target="freeweibo-mirror">SPAM 这算什么？//@袁裕来律师: 我是来删帖的。//@…</a>
 </h2>
 <p>SPAM 这算什么？//@袁裕来律师: 我是来删帖的。//@徐昕:呵呵 //@感园室主人: 呵呵 //@崔小平律师: 转发<br><br>RE: 这是真的吗？ http://t.cn/R2WJPrP<br><img src="http://ww4.sinaimg.cn/large/65f82df7jw1evmm2pbshgj20c8061jrw.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3882187427960936" target="freeweibo-mirror">问央视：一个末流记者一篇文章就能让股市暴跌？那么多一流记者的…</a>
+</h2>
+<p>问央视：一个末流记者一篇文章就能让股市暴跌？那么多一流记者的优秀文章为何不能让股市暴涨？这是怎样的狗屁逻辑？<br><br>RE: 【央视又当帮凶】一个非主流媒体的末流记者一篇胡说八道的文章就能让股市暴跌；一条微博就可以让一个国家覆灭；一条善意的批评就是吃谁的饭杂谁的碗；一个电视台可以当法官；嫖客可以审判妓女的国家；一个宪法赋予言论自由而现实到处都是因言获罪的国家；一个官媒总是充当帮凶的国家…可怕不？<br><img src="http://ww1.sinaimg.cn/large/b686ce1fgw1evmehornpuj20c80njq56.jpg"></p>
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
@@ -36,7 +48,7 @@
 </h2>
 <p>//@廖睿:群众的眼睛是雪亮的。<br><br>RE: 北京军区中将王健：“阅兵首先检阅的就是三军将士对党中央和习主席的无比忠诚与坚决拥护”。网友：“我一直还以为这次阅兵主要是纪念抗日战争暨世界反法西斯战争胜利呢”。</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3882156869061647" target="freeweibo-mirror">让歪国人来也为献忠诚？//@吴长缨: //@西北胡杨x: 不…</a>
 </h2>
@@ -108,37 +120,25 @@
 </h2>
 <p>党掌管一切，却管不了人民的死活 //@喷嚏网铂程://@木尔: 阅-兵献-礼-----彻底无语！！！[衰][泪]//@彭园v: //@贪官多11世:打脸 //@粵東老趙:打脸！啪啪啪。。。。。</p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3882046185072841" target="freeweibo-mirror">凡是敌人拥护的，我们就要反对，把反法西斯工作落到实处。</a>
 </h2>
 <p>凡是敌人拥护的，我们就要反对，把反法西斯工作落到实处。<br><br>RE: 纳粹德国阿道夫同志阅兵，沿街的窗口、阳台、甚至楼顶，柏林群众是可以观看的。<br><img src="http://ww2.sinaimg.cn/large/d718076cjw1evlevucz3tj20h80cwgng.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3882045891805509" target="freeweibo-mirror">所以才有个“反”字在前面，人家怎样咱也怎样那还不成法西斯了。</a>
 </h2>
 <p>所以才有个“反”字在前面，人家怎样咱也怎样那还不成法西斯了。<br><br>RE: 纳粹德国阿道夫同志阅兵，沿街的窗口、阳台、甚至楼顶，柏林群众是可以观看的。<br><img src="http://ww2.sinaimg.cn/large/d718076cjw1evlevucz3tj20h80cwgng.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3882044327638659" target="freeweibo-mirror">SPAM //@木尔: 阅-兵献-礼-----彻底无语！！！…</a>
 </h2>
 <p>SPAM //@木尔: 阅-兵献-礼-----彻底无语！！！[衰][泪]//@彭园v: //@贪官多11世:打脸 //@粵東老趙:打脸！啪啪啪。。。。。</p>
 <p>
 	<small> ============== 12小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3882039936255647" target="freeweibo-mirror">SPAM #做爱视频#就是要开心[心][心][心]就是这么任…</a>
-</h2>
-<p>SPAM #做爱视频#就是要开心[心][心][心]就是这么任性！啪啪啪[互粉]，云盘资源看什么#av##女优视频#呀。百度云盘[赞][爱你]做爱小视频[疑问][失望]情人不在家怎么办。 小意思。 Ta帮你轻松解决 wei信;</p>
-<p>
-	<small> ============== 12小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3882030926749077" target="freeweibo-mirror">你说的是纳粹德国的事儿，怎么跟咱比！[挖鼻]</a>
-</h2>
-<p>你说的是纳粹德国的事儿，怎么跟咱比！[挖鼻]<br><br>RE: 纳粹德国阿道夫同志阅兵，沿街的窗口、阳台、甚至楼顶，柏林群众是可以观看的。<br><img src="http://ww2.sinaimg.cn/large/d718076cjw1evlevucz3tj20h80cwgng.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
 </p>
 <table>
     <tr>
