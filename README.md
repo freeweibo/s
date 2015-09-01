@@ -26,6 +26,12 @@
 <p>
 	<small> ============== 1小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3882169162220579" target="freeweibo-mirror">这是真的吗？ http://t.cn/R2WJPrP</a>
+</h2>
+<p>这是真的吗？ http://t.cn/R2WJPrP<br><img src="http://ww4.sinaimg.cn/large/65f82df7jw1evmm2pbshgj20c8061jrw.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3882167400974693" target="freeweibo-mirror">//@廖睿:群众的眼睛是雪亮的。</a>
 </h2>
 <p>//@廖睿:群众的眼睛是雪亮的。<br><br>RE: 北京军区中将王健：“阅兵首先检阅的就是三军将士对党中央和习主席的无比忠诚与坚决拥护”。网友：“我一直还以为这次阅兵主要是纪念抗日战争暨世界反法西斯战争胜利呢”。</p>
@@ -48,13 +54,13 @@
 </h2>
 <p>我算是明白了，所谓反，就是超越。<br><br>RE: 纳粹德国阿道夫同志阅兵，沿街的窗口、阳台、甚至楼顶，柏林群众是可以观看的。<br><img src="http://ww2.sinaimg.cn/large/d718076cjw1evlevucz3tj20h80cwgng.jpg"></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3882052464389318" target="freeweibo-mirror">能把“反”字理解成“超越”吗？</a>
 </h2>
 <p>能把“反”字理解成“超越”吗？<br><br>RE: 纳粹德国阿道夫同志阅兵，沿街的窗口、阳台、甚至楼顶，柏林群众是可以观看的。<br><img src="http://ww2.sinaimg.cn/large/d718076cjw1evlevucz3tj20h80cwgng.jpg"></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3882050802934478" target="freeweibo-mirror">那时他们相信大多数老百姓支持他们。 //@简直:幸好这次不允…</a>
 </h2>
@@ -133,12 +139,6 @@
 <p>你说的是纳粹德国的事儿，怎么跟咱比！[挖鼻]<br><br>RE: 纳粹德国阿道夫同志阅兵，沿街的窗口、阳台、甚至楼顶，柏林群众是可以观看的。<br><img src="http://ww2.sinaimg.cn/large/d718076cjw1evlevucz3tj20h80cwgng.jpg"></p>
 <p>
 	<small> ============== 12小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3882016619475577" target="freeweibo-mirror">//@小大芝蔴: 亡秦者秦人，亡黨者黨人，亡政權者權貴。//…</a>
-</h2>
-<p>//@小大芝蔴: 亡秦者秦人，亡黨者黨人，亡政權者權貴。//@迟夙生律师:[思考]//@布衣优婆塞：亡党都是要有因 不出因 怎么亡党 所以应该高兴 出了这条款 离变天不远了！！！</p>
-<p>
-	<small> ============== 1天前</small>
 </p>
 <table>
     <tr>
