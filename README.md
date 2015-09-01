@@ -42,13 +42,19 @@
 </h2>
 <p>SPAM 你到底懂不懂呀？[嘻嘻]拒马，可现在哪来的马？//@梅虔: 这是古代岳飞对付金国战车马队的铁刺阵，现在用于阻挡自杀汽车炸弹。[哼]//@专业起哄: 别乱说，冷兵器你不是专家[悲伤] //@吃素的好老虎:【人不坏，国不爱？】 TMD谁发明的这玩儿意儿，早点把他弄死去比较稳妥！<br><br>RE: 北京灯市口地铁口——不知是啥 反法西斯的新式武器？[疑问][思考]<br><img src="http://ww3.sinaimg.cn/large/005SuA62gw1evn5shgquxj30go0m80ub.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3882365359586409" target="freeweibo-mirror">SPAM 北京欢迎你[good]</a>
 </h2>
 <p>SPAM 北京欢迎你[good]<br><br>RE: 某些人灵魂深处的刺。<br><img src="http://ww3.sinaimg.cn/large/41693645gw1evn6vfzxxyj20hs0nqdif.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3882360741205300" target="freeweibo-mirror">//@胡惄:转发微博</a>
+</h2>
+<p>//@胡惄:转发微博<br><br>RE: 中国的死刑支持者有个他们自己不觉察的逻辑混乱，即他们往往也痛恨腐败与制度不公，可一谈及死刑，立刻将其视为天然合理，仿佛死刑的制度操作是个远离腐败和不公的世外桃源，不晓得包括死刑制度在内的总体性制度不公，使得死刑本身远比其他任何制度都更严重更无法纠正且不可逆地伤害无辜。</p>
+<p>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3882360158680254" target="freeweibo-mirror">维族及穆斯林精英快出来洗地吧。//@報道香港1:警方在疑犯身…</a>
 </h2>
@@ -98,6 +104,12 @@
 <p>
 	<small> ============== 4小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3882325521316278" target="freeweibo-mirror">SPAM @徐昕 被禁言，无通知，但愿只是阅兵期间的例假，请…</a>
+</h2>
+<p>SPAM @徐昕 被禁言，无通知，但愿只是阅兵期间的例假，请关注其微信lawxuxin<br><img src="http://ww1.sinaimg.cn/large/6a3d7f8cjw1evn41522dxj208q04gjrj.jpg"></p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3882324418870601" target="freeweibo-mirror">李丽珍 //@-孔智勇:不划算。[哈哈] //@思念成幸福:…</a>
 </h2>
 <p>李丽珍 //@-孔智勇:不划算。[哈哈] //@思念成幸福:你敢拉她吗？[挖鼻]//@童颜永在--心理医生:谁让你不搭？[哈哈][哈哈][哈哈]//@思念成幸福:真的是精神病吗？//@天明再会时:[笑哈哈]//@基层平民世界1:[哈哈]看一眼的代价。</p>
@@ -127,18 +139,6 @@
 <p>SPAM 1[哈哈][哈哈][哈哈]<br><img src="http://ww2.sinaimg.cn/large/dc8d662cjw1evn0x7ekiqg207f05k1kz.gif"></p>
 <p>
 	<small> ============== 6小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3882283775674656" target="freeweibo-mirror">//@乌蒙迹浪: //@海上春天: //@不舍昼夜者: 这个…</a>
-</h2>
-<p>//@乌蒙迹浪: //@海上春天: //@不舍昼夜者: 这个党的变质，自邓小平始。 //@北京佳音特翻译有限责任公司:改革开放把邓小平逼成历史的罪人，该反思了。[笑哈哈][笑哈哈][笑哈哈][笑哈哈][笑哈哈][笑哈哈][笑哈哈][笑哈哈][笑哈哈][笑哈哈][笑哈哈][怒][笑哈哈][笑哈哈][笑哈哈][笑哈哈][笑哈哈]</p>
-<p>
-	<small> ============== 7小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3882275491721577" target="freeweibo-mirror">SPAM 发表了一篇转载博文《[转载]央妈喂奶，谁能喝爽？》…</a>
-</h2>
-<p>SPAM 发表了一篇转载博文《[转载]央妈喂奶，谁能喝爽？》http://t.cn/RywyxCi</p>
-<p>
-	<small> ============== 7小时前</small>
 </p>
 <table>
     <tr>
