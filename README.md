@@ -24,7 +24,7 @@
 </h2>
 <p>//@北京杨博:问央视：一个末流记者一篇文章就能让股市暴跌？那么多一流记者的优秀文章为何不能让股市暴涨？这是怎样的狗屁逻辑？<br><br>RE: 【央视又当帮凶】一个非主流媒体的末流记者一篇胡说八道的文章就能让股市暴跌；一条微博就可以让一个国家覆灭；一条善意的批评就是吃谁的饭杂谁的碗；一个电视台可以当法官；嫖客可以审判妓女的国家；一个宪法赋予言论自由而现实到处都是因言获罪的国家；一个官媒总是充当帮凶的国家…可怕不？<br><img src="http://ww1.sinaimg.cn/large/b686ce1fgw1evmehornpuj20c80njq56.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3882189361837182" target="freeweibo-mirror">SPAM 这算什么？//@袁裕来律师: 我是来删帖的。//@…</a>
 </h2>
@@ -62,17 +62,23 @@
 <p>
 	<small> ============== 8小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3882103088978907" target="freeweibo-mirror">【央视又当帮凶】一个非主流媒体的末流记者一篇胡说八道的文章就…</a>
+</h2>
+<p>【央视又当帮凶】一个非主流媒体的末流记者一篇胡说八道的文章就能让股市暴跌；一条微博就可以让一个国家覆灭；一条善意的批评就是吃谁的饭杂谁的碗；一个电视台可以当法官；嫖客可以审判妓女的国家；一个宪法赋予言论自由而现实到处都是因言获罪的国家；一个官媒总是充当帮凶的国家…可怕不？<br><img src="http://ww1.sinaimg.cn/large/b686ce1fgw1evmehornpuj20c80njq56.jpg"></p>
+<p>
+	<small> ============== 8小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3882052665571067" target="freeweibo-mirror">我算是明白了，所谓反，就是超越。</a>
 </h2>
 <p>我算是明白了，所谓反，就是超越。<br><br>RE: 纳粹德国阿道夫同志阅兵，沿街的窗口、阳台、甚至楼顶，柏林群众是可以观看的。<br><img src="http://ww2.sinaimg.cn/large/d718076cjw1evlevucz3tj20h80cwgng.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3882052464389318" target="freeweibo-mirror">能把“反”字理解成“超越”吗？</a>
 </h2>
 <p>能把“反”字理解成“超越”吗？<br><br>RE: 纳粹德国阿道夫同志阅兵，沿街的窗口、阳台、甚至楼顶，柏林群众是可以观看的。<br><img src="http://ww2.sinaimg.cn/large/d718076cjw1evlevucz3tj20h80cwgng.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3882050802934478" target="freeweibo-mirror">那时他们相信大多数老百姓支持他们。 //@简直:幸好这次不允…</a>
 </h2>
@@ -133,12 +139,6 @@
 <p>所以才有个“反”字在前面，人家怎样咱也怎样那还不成法西斯了。<br><br>RE: 纳粹德国阿道夫同志阅兵，沿街的窗口、阳台、甚至楼顶，柏林群众是可以观看的。<br><img src="http://ww2.sinaimg.cn/large/d718076cjw1evlevucz3tj20h80cwgng.jpg"></p>
 <p>
 	<small> ============== 12小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3882044327638659" target="freeweibo-mirror">SPAM //@木尔: 阅-兵献-礼-----彻底无语！！！…</a>
-</h2>
-<p>SPAM //@木尔: 阅-兵献-礼-----彻底无语！！！[衰][泪]//@彭园v: //@贪官多11世:打脸 //@粵東老趙:打脸！啪啪啪。。。。。</p>
-<p>
-	<small> ============== 1天前</small>
 </p>
 <table>
     <tr>
