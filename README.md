@@ -30,7 +30,7 @@
 </h2>
 <p>//@水兵李铭: //@玳簋21:转发微博</p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3882394820517346" target="freeweibo-mirror">//@邵明波://@金陵酒徒仓氏: [阴险] //@秦州閑人…</a>
 </h2>
@@ -120,13 +120,13 @@
 </h2>
 <p>对恐暴分子是不是应该更狠一点？[可爱] //@袁裕来律师://@神话真的是：已涉嫌危害公共安全，应举报！<br><br>RE: 某些人灵魂深处的刺。<br><img src="http://ww3.sinaimg.cn/large/41693645gw1evn6vfzxxyj20hs0nqdif.jpg"></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3882360158680254" target="freeweibo-mirror">维族及穆斯林精英快出来洗地吧。//@報道香港1:警方在疑犯身…</a>
 </h2>
 <p>维族及穆斯林精英快出来洗地吧。//@報道香港1:警方在疑犯身上發現有2本護照，其中一本為中國護照，來自新疆，而另一本則為土耳其護照。根據該本中國護照持有人叫「米爾艾力‧玉蘇甫」(Mieraili Yusufu)，國籍為中國，出生日期為1989年10月1日，出生地點及簽發地點均為新疆。護照的簽發日期為2013</p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3882357842990502" target="freeweibo-mirror">中国的死刑支持者有个他们自己不觉察的逻辑混乱，即他们往往也痛…</a>
 </h2>
