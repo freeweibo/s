@@ -20,6 +20,18 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3882632234731069" target="freeweibo-mirror">SPAM 看你们抽打就行了~~太乐呵 //@星舰政委章北海:…</a>
+</h2>
+<p>SPAM 看你们抽打就行了~~太乐呵 //@星舰政委章北海:我们不妨翻翻本子当年的后勤记录什么的…枪炮弹药国军专供 //@苏俄水师步勇:我记得11军麾下就有2个国械混成旅团 //@红茶魔术猫:右右不知道皇军有国械旅团[偷笑] //@华务先驱卡梅伦:全副国军装备扛着捷克式的太君你见过吗？<br><br>RE: 要说共军文宣是渣，从来没拍过蒋军豫湘桂大溃退的同时共军怎么大反攻的，也不要说抗战后期八路军怎么横行山东，新四军怎么上门向日军收税的。北朝那故事就不错，八路战士与日军作战中战死了，家乡的日军地方驻军代表只能带着维持会哭着上门向烈属赔罪……抗日剧都是加特林狙击手特战队，就没从土下手的</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3882628509521809" target="freeweibo-mirror">SPAM 軍人都驕傲，瞧不起敗兵。那日軍肯定瞧不起中國各色兵…</a>
+</h2>
+<p>SPAM 軍人都驕傲，瞧不起敗兵。那日軍肯定瞧不起中國各色兵。</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3882596230820660" target="freeweibo-mirror">//@十年砍柴: 你抹掉的是“刘万永同志”么？党的十八大代表…</a>
 </h2>
 <p>//@十年砍柴: 你抹掉的是“刘万永同志”么？党的十八大代表，也就这些福利了。<br><br>RE: 正版請柬。<br><img src="http://ww2.sinaimg.cn/large/65cc9274jw1evnfxujo80j20zk0oegq5.jpg"></p>
@@ -90,7 +102,7 @@
 </h2>
 <p>座个地铁都享受国家领导人的保护待遇，作为中国人你还有什么不满的呢？<br><img src="http://ww3.sinaimg.cn/large/005WPOo2jw1evnuyxdhtaj30c80d9aar.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3882558984805982" target="freeweibo-mirror">北京地铁站</a>
 </h2>
@@ -125,18 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3882544740774665" target="freeweibo-mirror">SPAM //@Window1234: //@沙沙11://…</a>
 </h2>
 <p>SPAM //@Window1234: //@沙沙11://@博者文摘: //@刘力博士: //@顾明峰://@初二2012://@榆木根V:/@饮水居士:什么叫做草木皆兵？ //@饭扯:三个自信荡然无存啊哈哈//@水兵李铭: 祖国强大了啊！国富警强！热泪盈眶！<br><br>RE: 同学公司在国贸附近，上午JC带着警犬去拜访，两个字“服”。。。<br><img src="http://ww4.sinaimg.cn/large/6d349c6fjw1evnc8pjskfj20dc0gggoa.jpg"></p>
-<p>
-	<small> ============== 6小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3882541931509307" target="freeweibo-mirror">这是中华民族欠他们的债。</a>
-</h2>
-<p>这是中华民族欠他们的债。</p>
-<p>
-	<small> ============== 7小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3882540970276310" target="freeweibo-mirror">//@北方雄鹰01: //@迟夙生律师: //@观世音童:@…</a>
-</h2>
-<p>//@北方雄鹰01: //@迟夙生律师: //@观世音童:@信力建 不会吧？ //@李不白的店://@喷嚏网铂程:转发微博<br><br>RE: 海外媒体传广州民营信孚教育集团老总信力建被抓，公司资产被冻结，同时被抓的还有其妻、总经理、司机、出纳和会计，家留有一岁儿子。据报涉嫌偷税漏税。他算一位敢言商人，被捕应与其言论有关。</p>
 <p>
 	<small> ============== 7小时前</small>
 </p>
