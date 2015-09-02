@@ -36,7 +36,7 @@
 </h2>
 <p>SPAM [汗]扫雪<br><br>RE: #北京身边事# 单位楼下，长安街边，为了保证阅兵安全，战士们正在扫雷。 http://t.cn/z8M1hLp<br><img src="http://ww4.sinaimg.cn/large/54ded3d7jw1evmzr64e1rj20zk0qo7ba.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3882572469305713" target="freeweibo-mirror">想玩政治，就别留辫子；想赚钱，就别露老脸！//@河南内黄冯改…</a>
 </h2>
@@ -65,6 +65,12 @@
 	<a href="https://freeweibo.com/weibo/3882568539572472" target="freeweibo-mirror">被东突一家伙轰死就不矫情了//@天涯赵瑜:假设北京每一天都这…</a>
 </h2>
 <p>被东突一家伙轰死就不矫情了//@天涯赵瑜:假设北京每一天都这样，那么……//@风青杨V: 这么多人给你做保镖，还有啥不满的？[酷]//@刀锋论v: //@公正善良:特护……<br><br>RE: 座个地铁都享受国家领导人的保护待遇，作为中国人你还有什么不满的呢？<br><img src="http://ww3.sinaimg.cn/large/005WPOo2jw1evnuyxdhtaj30c80d9aar.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3882566370922240" target="freeweibo-mirror">連爺爺看閱兵 http://t.cn/R2WJvly</a>
+</h2>
+<p>連爺爺看閱兵 http://t.cn/R2WJvly<br><img src="http://ww1.sinaimg.cn/large/5186d665jw1evnvox6ti9j20k00ef76o.jpg"></p>
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
@@ -133,12 +139,6 @@
 <p>【老兵：我不该参加国军抗日！】49年后，国民革命军的军人一律被称为“伪军”“反革命”。他们是镇压、批斗、改造的对象。钱青就是这样的一个老反革命。他三次被判处徒刑,一共在狱中渡过26个春夏秋冬。他们本是民族英雄，抗战胜利时他们也曾感到过无上光荣。http://t.cn/RZdJTS9<br><img src="http://ww1.sinaimg.cn/large/41693645gw1evnseq0u8tj20wa18gqbj.jpg"></p>
 <p>
 	<small> ============== 5小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3882529524383418" target="freeweibo-mirror">//@韩雨亭微观世界: 为了意识形态，以及被剥夺了话语权，抗…</a>
-</h2>
-<p>//@韩雨亭微观世界: 为了意识形态，以及被剥夺了话语权，抗战老兵这几十年活得确实辛苦。</p>
-<p>
-	<small> ============== 6小时前</small>
 </p>
 <table>
     <tr>
