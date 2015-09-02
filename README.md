@@ -72,11 +72,17 @@
 </h2>
 <p>把国际通辑儿招来了，这是要与世隔绝的节奏。<br><img src="http://ww2.sinaimg.cn/large/0064Co4Vgw1evnzh83pv0j30c80gyjsp.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3882596683020537" target="freeweibo-mirror">阅兵最好不要把国军老兵和八路新四军老兵放同一辆车上，担心一句…</a>
 </h2>
 <p>阅兵最好不要把国军老兵和八路新四军老兵放同一辆车上，担心一句不合会打起来。我采访过东江纵队老战士，一老战士说：孩子让我去旅游，两个地方我绝不去，一个日本一个台湾。另一老战士谈及国军，一脸鄙夷。军人都骄傲，瞧不起败兵。[挖鼻]</p>
+<p>
+	<small> ============== 5小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3882596570488874" target="freeweibo-mirror">哈萨克斯坦总统签了230亿美元合同、委内瑞拉总统签了50亿美…</a>
+</h2>
+<p>哈萨克斯坦总统签了230亿美元合同、委内瑞拉总统签了50亿美元合同。。。。。敢情这些外国大大们都是来签合同的吗？[笑cry]<br><img src="http://ww4.sinaimg.cn/large/005DFMKzgw1evnz5zrigaj30c80lqjtr.jpg"></p>
 <p>
 	<small> ============== 5小时前</small>
 </p><h2>
@@ -126,17 +132,11 @@
 </h2>
 <p>SPAM 大阅兵与大管制 - 评论 - FT中文网 在当下中国，似乎已经形成了这样一种悖论：大型活动要想举办成功，就必须实施管控，而且管控越严才能确保举办越成功；但管控越严，其对日常生活秩序的破坏与冲击就越强，社会秩序被破坏越多，所谓成功举办的意义就越被消解。 http://t.cn/RywRpaY<br><img src="http://ww2.sinaimg.cn/large/513a2b80jw1evnw3flvp0j202102iq2v.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3882568539572472" target="freeweibo-mirror">被东突一家伙轰死就不矫情了//@天涯赵瑜:假设北京每一天都这…</a>
 </h2>
 <p>被东突一家伙轰死就不矫情了//@天涯赵瑜:假设北京每一天都这样，那么……//@风青杨V: 这么多人给你做保镖，还有啥不满的？[酷]//@刀锋论v: //@公正善良:特护……<br><br>RE: 座个地铁都享受国家领导人的保护待遇，作为中国人你还有什么不满的呢？<br><img src="http://ww3.sinaimg.cn/large/005WPOo2jw1evnuyxdhtaj30c80d9aar.jpg"></p>
-<p>
-	<small> ============== 7小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3882566370922240" target="freeweibo-mirror">連爺爺看閱兵 http://t.cn/R2WJvly</a>
-</h2>
-<p>連爺爺看閱兵 http://t.cn/R2WJvly<br><img src="http://ww1.sinaimg.cn/large/5186d665jw1evnvox6ti9j20k00ef76o.jpg"></p>
 <p>
 	<small> ============== 7小时前</small>
 </p>
