@@ -24,7 +24,7 @@
 </h2>
 <p>SPAM //@巴蜀君23: 我搬张沙发，再把茶泡好来看热闹，评论里面太精彩了[嘻嘻]<br><br>RE: 有组织，有预谋，谁导演的出来保证不打湿你。 http://t.cn/RywHYiv .</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3882555801766490" target="freeweibo-mirror">【永无天日】</a>
 </h2>
