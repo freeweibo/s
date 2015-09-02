@@ -36,7 +36,7 @@
 </h2>
 <p>//@谷大白话: 转发微博 http://t.cn/RyAhaD5<br><br>RE: 谷歌新旧logo对比图（中国版）。<br><img src="http://ww2.sinaimg.cn/large/7e948b4djw1evnxz606kkj20c80dw3yt.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3882653889617841" target="freeweibo-mirror">SPAM 这个笑话好好笑。。。</a>
 </h2>
@@ -77,6 +77,12 @@
 	<a href="https://freeweibo.com/weibo/3882630951097157" target="freeweibo-mirror">回复@老酸菜s:国军军事顾问是冈村宁次这事儿大家知道吗//@…</a>
 </h2>
 <p>回复@老酸菜s:国军军事顾问是冈村宁次这事儿大家知道吗//@老酸菜s:当年日本兵参加解放军 然后打死了很多国军 这些人知道吗<br><br>RE: 阅兵最好不要把国军老兵和八路新四军老兵放同一辆车上，担心一句不合会打起来。我采访过东江纵队老战士，一老战士说：孩子让我去旅游，两个地方我绝不去，一个日本一个台湾。另一老战士谈及国军，一脸鄙夷。军人都骄傲，瞧不起败兵。[挖鼻]</p>
+<p>
+	<small> ============== 5小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3882630334881816" target="freeweibo-mirror">“手机上市前送我们实验室测下，帮你们找找问题吧”，“可是我们…</a>
+</h2>
+<p>“手机上市前送我们实验室测下，帮你们找找问题吧”，“可是我们有自己的测试室呀”，“你们那个不专业，我们连央视都敢撕”，“噢，多少钱呀？”，“20万”，“……那我们要是不送你们会不会骂我们呀”，“不会不会，我们实验室和媒体完全隔离，我们会像坚果一样到市场采购，正常评测的”，“……送”</p>
 <p>
 	<small> ============== 5小时前</small>
 </p><h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3882596230820660" target="freeweibo-mirror">//@十年砍柴: 你抹掉的是“刘万永同志”么？党的十八大代表…</a>
 </h2>
 <p>//@十年砍柴: 你抹掉的是“刘万永同志”么？党的十八大代表，也就这些福利了。<br><br>RE: 正版請柬。<br><img src="http://ww2.sinaimg.cn/large/65cc9274jw1evnfxujo80j20zk0oegq5.jpg"></p>
-<p>
-	<small> ============== 8小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3882586285707858" target="freeweibo-mirror">谷歌新旧logo对比图（中国版）。</a>
-</h2>
-<p>谷歌新旧logo对比图（中国版）。<br><img src="http://ww2.sinaimg.cn/large/7e948b4djw1evnxz606kkj20c80dw3yt.jpg"></p>
 <p>
 	<small> ============== 8小时前</small>
 </p>
