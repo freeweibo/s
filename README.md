@@ -66,7 +66,7 @@
 </h2>
 <p>SPAM 发现一个琥 珀 蜜 蜡 的徽博！超赞哦~~</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3882694519773653" target="freeweibo-mirror">帮转</a>
 </h2>
