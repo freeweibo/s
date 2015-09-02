@@ -108,7 +108,7 @@
 </h2>
 <p>//@邵明波://@金陵酒徒仓氏: [阴险] //@秦州閑人:转发微博</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3882392861491726" target="freeweibo-mirror">请问最不要脸的政府是哪一家？</a>
 </h2>
