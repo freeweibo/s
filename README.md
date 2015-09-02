@@ -120,19 +120,19 @@
 </h2>
 <p>阅兵最好不要把国军老兵和八路新四军老兵放同一辆车上，担心一句不合会打起来。我采访过东江纵队老战士，一老战士说：孩子让我去旅游，两个地方我绝不去，一个日本一个台湾。另一老战士谈及国军，一脸鄙夷。军人都骄傲，瞧不起败兵。[挖鼻]</p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3882596570488874" target="freeweibo-mirror">哈萨克斯坦总统签了230亿美元合同、委内瑞拉总统签了50亿美…</a>
 </h2>
 <p>哈萨克斯坦总统签了230亿美元合同、委内瑞拉总统签了50亿美元合同。。。。。敢情这些外国大大们都是来签合同的吗？[笑cry]<br><img src="http://ww4.sinaimg.cn/large/005DFMKzgw1evnz5zrigaj30c80lqjtr.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3882596230820660" target="freeweibo-mirror">//@十年砍柴: 你抹掉的是“刘万永同志”么？党的十八大代表…</a>
 </h2>
 <p>//@十年砍柴: 你抹掉的是“刘万永同志”么？党的十八大代表，也就这些福利了。<br><br>RE: 正版請柬。<br><img src="http://ww2.sinaimg.cn/large/65cc9274jw1evnfxujo80j20zk0oegq5.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3882586285707858" target="freeweibo-mirror">谷歌新旧logo对比图（中国版）。</a>
 </h2>
