@@ -24,7 +24,7 @@
 </h2>
 <p>这是中华民族欠他们的债。</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3882529524383418" target="freeweibo-mirror">//@韩雨亭微观世界: 为了意识形态，以及被剥夺了话语权，抗…</a>
 </h2>
@@ -36,7 +36,7 @@
 </h2>
 <p>SPAM 造谣 人民政府不会怕人民 //@兔子老愚:回覆@祖传老司机:滑稽戏 //@祖传老司机:这才是真正的法西斯<br><br>RE: 北京地铁好威武[酷]<br><img src="http://ww1.sinaimg.cn/large/006cSyQigw1evn8arunvuj30d60hsjsk.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3882526038727897" target="freeweibo-mirror">法西斯在这国成为一个很微妙的词语 //@喷嚏网铂程://@雷…</a>
 </h2>
