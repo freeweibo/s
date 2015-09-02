@@ -114,31 +114,31 @@
 </h2>
 <p>阅兵最好不要把国军老兵和八路新四军老兵放同一辆车上，担心一句不合会打起来。我采访过东江纵队老战士，一老战士说：孩子让我去旅游，两个地方我绝不去，一个日本一个台湾。另一老战士谈及国军，一脸鄙夷。军人都骄傲，瞧不起败兵。[挖鼻]</p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3882596570488874" target="freeweibo-mirror">哈萨克斯坦总统签了230亿美元合同、委内瑞拉总统签了50亿美…</a>
 </h2>
 <p>哈萨克斯坦总统签了230亿美元合同、委内瑞拉总统签了50亿美元合同。。。。。敢情这些外国大大们都是来签合同的吗？[笑cry]<br><img src="http://ww4.sinaimg.cn/large/005DFMKzgw1evnz5zrigaj30c80lqjtr.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3882596230820660" target="freeweibo-mirror">//@十年砍柴: 你抹掉的是“刘万永同志”么？党的十八大代表…</a>
 </h2>
 <p>//@十年砍柴: 你抹掉的是“刘万永同志”么？党的十八大代表，也就这些福利了。<br><br>RE: 正版請柬。<br><img src="http://ww2.sinaimg.cn/large/65cc9274jw1evnfxujo80j20zk0oegq5.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3882586285707858" target="freeweibo-mirror">谷歌新旧logo对比图（中国版）。</a>
+</h2>
+<p>谷歌新旧logo对比图（中国版）。<br><img src="http://ww2.sinaimg.cn/large/7e948b4djw1evnxz606kkj20c80dw3yt.jpg"></p>
+<p>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3882582800252303" target="freeweibo-mirror">这么大事中方没有报道啊。 //@北京大众2015:50多个国…</a>
 </h2>
 <p>这么大事中方没有报道啊。 //@北京大众2015:50多个国家，总共花费多少？ //@邵明波:面子真的值钱哎！//@ICO刘开明: //@隐者飞飞: [围观][挖鼻]没钱谁起早啊。//@袁东1972: 转发微博<br><br>RE: 出场费一人一份<br><img src="http://ww3.sinaimg.cn/large/8dd446e3jw1evnwgrhkvhj20u318ggwe.jpg"></p>
 <p>
 	<small> ============== 7小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3882576987058034" target="freeweibo-mirror">SPAM [汗]扫雪</a>
-</h2>
-<p>SPAM [汗]扫雪<br><br>RE: #北京身边事# 单位楼下，长安街边，为了保证阅兵安全，战士们正在扫雷。 http://t.cn/z8M1hLp<br><img src="http://ww4.sinaimg.cn/large/54ded3d7jw1evmzr64e1rj20zk0qo7ba.jpg"></p>
-<p>
-	<small> ============== 8小时前</small>
 </p>
 <table>
     <tr>
