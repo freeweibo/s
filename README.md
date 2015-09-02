@@ -32,6 +32,18 @@
 <p>
 	<small> ============== 1小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3882621576416315" target="freeweibo-mirror">SPAM 水军[哈哈]</a>
+</h2>
+<p>SPAM 水军[哈哈]<br><br>RE: 这算什么兵种?<br><img src="http://ww4.sinaimg.cn/large/7e848a37jw1evo1h2420dj20c80ec765.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3882606812442779" target="freeweibo-mirror">//@省港通缉犯:习近平请我，我都没去！我怕给党抹黑 //@…</a>
+</h2>
+<p>//@省港通缉犯:习近平请我，我都没去！我怕给党抹黑 //@南湖细雨: 也凑个数吧，你们何必呢？ //@省港通缉犯:太荒唐 //@千山万水依旧在: 反对战争，纪念和平却招来了战争罪犯，荒唐！<br><br>RE: 把国际通辑儿招来了，这是要与世隔绝的节奏。<br><img src="http://ww2.sinaimg.cn/large/0064Co4Vgw1evnzh83pv0j30c80gyjsp.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3882596683020537" target="freeweibo-mirror">阅兵最好不要把国军老兵和八路新四军老兵放同一辆车上，担心一句…</a>
 </h2>
 <p>阅兵最好不要把国军老兵和八路新四军老兵放同一辆车上，担心一句不合会打起来。我采访过东江纵队老战士，一老战士说：孩子让我去旅游，两个地方我绝不去，一个日本一个台湾。另一老战士谈及国军，一脸鄙夷。军人都骄傲，瞧不起败兵。[挖鼻]</p>
@@ -48,7 +60,7 @@
 </h2>
 <p>这么大事中方没有报道啊。 //@北京大众2015:50多个国家，总共花费多少？ //@邵明波:面子真的值钱哎！//@ICO刘开明: //@隐者飞飞: [围观][挖鼻]没钱谁起早啊。//@袁东1972: 转发微博<br><br>RE: 出场费一人一份<br><img src="http://ww3.sinaimg.cn/large/8dd446e3jw1evnwgrhkvhj20u318ggwe.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3882576987058034" target="freeweibo-mirror">SPAM [汗]扫雪</a>
 </h2>
@@ -127,18 +139,6 @@
 <p>【永无天日】<br><br>RE: 【老兵：我不该参加国军抗日！】49年后，国民革命军的军人一律被称为“伪军”“反革命”。他们是镇压、批斗、改造的对象。钱青就是这样的一个老反革命。他三次被判处徒刑,一共在狱中渡过26个春夏秋冬。他们本是民族英雄，抗战胜利时他们也曾感到过无上光荣。http://t.cn/RZdJTS9<br><img src="http://ww1.sinaimg.cn/large/41693645gw1evnseq0u8tj20wa18gqbj.jpg"></p>
 <p>
 	<small> ============== 6小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3882554853615754" target="freeweibo-mirror">要说共军文宣是渣，从来没拍过蒋军豫湘桂大溃退的同时共军怎么大…</a>
-</h2>
-<p>要说共军文宣是渣，从来没拍过蒋军豫湘桂大溃退的同时共军怎么大反攻的，也不要说抗战后期八路军怎么横行山东，新四军怎么上门向日军收税的。北朝那故事就不错，八路战士与日军作战中战死了，家乡的日军地方驻军代表只能带着维持会哭着上门向烈属赔罪……抗日剧都是加特林狙击手特战队，就没从土下手的</p>
-<p>
-	<small> ============== 6小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3882549170140119" target="freeweibo-mirror">//@品格教育父母教练: 转发微博</a>
-</h2>
-<p>//@品格教育父母教练: 转发微博<br><br>RE: 一种鬼子进村扫荡、人民坚壁清野的历史感，沉甸甸的。</p>
-<p>
-	<small> ============== 7小时前</small>
 </p>
 <table>
     <tr>
