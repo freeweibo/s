@@ -30,7 +30,7 @@
 </h2>
 <p>[嘻嘻]//@大连_阿东: [哈哈]//@尘满天--: //@东岳晚晴:[笑cry]我是其他国家人//@率率王乐妮a: [偷笑]//@WildCat212: 以后老夫就是“其他国家”的臣民了//@scarlett冰与火: 这发明,杠杠地啊 //@率妮妮再来:中国的新国名：其他国家。[偷笑] //@豆名阳: [笑cry]掩耳盗铃。。。<br><br>RE: 刚在脸书上看到的，看笑了，居然称自己为其他国家！[笑cry][抓狂][衰]<br><img src="http://ww1.sinaimg.cn/large/be86a49cgw1evo343817ij20mf0gj76b.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3882637267771260" target="freeweibo-mirror">//@黄山下的老愚民: //@无蛋可疼_: //@街头V海:…</a>
 </h2>
@@ -126,7 +126,7 @@
 </h2>
 <p>出场费一人一份<br><img src="http://ww3.sinaimg.cn/large/8dd446e3jw1evnwgrhkvhj20u318ggwe.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3882572469305713" target="freeweibo-mirror">想玩政治，就别留辫子；想赚钱，就别露老脸！//@河南内黄冯改…</a>
 </h2>
