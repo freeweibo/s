@@ -32,6 +32,18 @@
 <p>
 	<small> ============== 1小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3882526038727897" target="freeweibo-mirror">法西斯在这国成为一个很微妙的词语 //@喷嚏网铂程://@雷…</a>
+</h2>
+<p>法西斯在这国成为一个很微妙的词语 //@喷嚏网铂程://@雷颐: //@法律案例-文史典故:中國不是《國際刑事法院羅馬規約》的締約國</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3882525229219831" target="freeweibo-mirror">哈哈 //@LifeTime:印度上来一位小号邓小平，中国迎…</a>
+</h2>
+<p>哈哈 //@LifeTime:印度上来一位小号邓小平，中国迎来小号毛泽东。[汗]</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3882415737162304" target="freeweibo-mirror">SPAM 奉天承运，吾老昭曰，举国上下，孤独寂寞者众。 甲午…</a>
 </h2>
 <p>SPAM 奉天承运，吾老昭曰，举国上下，孤独寂寞者众。 甲午好兆年，承爱民之意，赖友邦之仗义，助你马上有TA 约! 特通告天下，咸使周知！钦赐红线一根，约天下有情人！[右边亮了] 男生入：1 5 4 1 2 0 3 3 5 （[q][q]群号）； 女生入： 2 0 7 6 3 9 9 5 0（[q][q]号）。<br><img src="http://ww4.sinaimg.cn/large/7701a533gw1evneedbi8pj20c80ehab7.jpg"></p>
@@ -114,29 +126,17 @@
 </h2>
 <p>SPAM 你到底懂不懂呀？[嘻嘻]拒马，可现在哪来的马？//@梅虔: 这是古代岳飞对付金国战车马队的铁刺阵，现在用于阻挡自杀汽车炸弹。[哼]//@专业起哄: 别乱说，冷兵器你不是专家[悲伤] //@吃素的好老虎:【人不坏，国不爱？】 TMD谁发明的这玩儿意儿，早点把他弄死去比较稳妥！<br><br>RE: 北京灯市口地铁口——不知是啥 反法西斯的新式武器？[疑问][思考]<br><img src="http://ww3.sinaimg.cn/large/005SuA62gw1evn5shgquxj30go0m80ub.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3882365359586409" target="freeweibo-mirror">SPAM 北京欢迎你[good]</a>
 </h2>
 <p>SPAM 北京欢迎你[good]<br><br>RE: 某些人灵魂深处的刺。<br><img src="http://ww3.sinaimg.cn/large/41693645gw1evn6vfzxxyj20hs0nqdif.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3882360741205300" target="freeweibo-mirror">//@胡惄:转发微博</a>
 </h2>
 <p>//@胡惄:转发微博<br><br>RE: 中国的死刑支持者有个他们自己不觉察的逻辑混乱，即他们往往也痛恨腐败与制度不公，可一谈及死刑，立刻将其视为天然合理，仿佛死刑的制度操作是个远离腐败和不公的世外桃源，不晓得包括死刑制度在内的总体性制度不公，使得死刑本身远比其他任何制度都更严重更无法纠正且不可逆地伤害无辜。</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3882360170571742" target="freeweibo-mirror">对恐暴分子是不是应该更狠一点？[可爱] //@袁裕来律师:/…</a>
-</h2>
-<p>对恐暴分子是不是应该更狠一点？[可爱] //@袁裕来律师://@神话真的是：已涉嫌危害公共安全，应举报！<br><br>RE: 某些人灵魂深处的刺。<br><img src="http://ww3.sinaimg.cn/large/41693645gw1evn6vfzxxyj20hs0nqdif.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3882360158680254" target="freeweibo-mirror">维族及穆斯林精英快出来洗地吧。//@報道香港1:警方在疑犯身…</a>
-</h2>
-<p>维族及穆斯林精英快出来洗地吧。//@報道香港1:警方在疑犯身上發現有2本護照，其中一本為中國護照，來自新疆，而另一本則為土耳其護照。根據該本中國護照持有人叫「米爾艾力‧玉蘇甫」(Mieraili Yusufu)，國籍為中國，出生日期為1989年10月1日，出生地點及簽發地點均為新疆。護照的簽發日期為2013</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
