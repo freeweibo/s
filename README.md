@@ -24,7 +24,7 @@
 </h2>
 <p>SPAM 发现一个琥 珀 蜜 蜡 的徽博！超赞哦~~</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3882677260461080" target="freeweibo-mirror">SPAM //@孟庆德微博二代:[吃惊] //@卖炭翁二表妹…</a>
 </h2>
