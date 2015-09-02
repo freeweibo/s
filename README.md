@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3882677255960708" target="freeweibo-mirror">[哈哈]//@一鞭直渡_90594:[哈哈]</a>
+</h2>
+<p>[哈哈]//@一鞭直渡_90594:[哈哈]<br><br>RE: 幸亏再有半天反法西斯就胜利了，不然的话，首都人民真扛不住了。</p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3882660604459520" target="freeweibo-mirror">人民军队忠于党！因为党是忠于人民的，党除了人民的利益，没有自…</a>
 </h2>
 <p>人民军队忠于党！因为党是忠于人民的，党除了人民的利益，没有自己的利益。因此，我们忠于党也就是忠于人民！————这时一个新兵举手要求说话，获准后，他说：那我们直接忠于人民不就行了？我告诉他：人民很抽象，不具体。他看着我说：那就是忠于你呗？因为党不也是抽象的么？九零后的兵，不好带啊！<br><img src="http://ww3.sinaimg.cn/large/7fd6e271jw1evo6iq33stj20c80cawfk.jpg"></p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3882596570488874" target="freeweibo-mirror">哈萨克斯坦总统签了230亿美元合同、委内瑞拉总统签了50亿美…</a>
 </h2>
 <p>哈萨克斯坦总统签了230亿美元合同、委内瑞拉总统签了50亿美元合同。。。。。敢情这些外国大大们都是来签合同的吗？[笑cry]<br><img src="http://ww4.sinaimg.cn/large/005DFMKzgw1evnz5zrigaj30c80lqjtr.jpg"></p>
-<p>
-	<small> ============== 8小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3882596230820660" target="freeweibo-mirror">//@十年砍柴: 你抹掉的是“刘万永同志”么？党的十八大代表…</a>
-</h2>
-<p>//@十年砍柴: 你抹掉的是“刘万永同志”么？党的十八大代表，也就这些福利了。<br><br>RE: 正版請柬。<br><img src="http://ww2.sinaimg.cn/large/65cc9274jw1evnfxujo80j20zk0oegq5.jpg"></p>
 <p>
 	<small> ============== 8小时前</small>
 </p>
