@@ -30,13 +30,13 @@
 </h2>
 <p>【庆祝】当时，人们走向街头奔走相告、喜极而泣。当时的胜利真的属于人民！<br><img src="http://ww3.sinaimg.cn/large/b686ce1fgw1evolvgn19sj20fk0jswhk.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3882793858104225" target="freeweibo-mirror">SPAM 中国不差钱！</a>
 </h2>
 <p>SPAM 中国不差钱！<br><br>RE: 今晚的北京灯光辉煌，普天同庆。就是不知道要花多少电费？<br><img src="http://ww2.sinaimg.cn/large/006d9UqQgw1evojvznldqj30m80etq6r.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3882788459781859" target="freeweibo-mirror">//@陈-信滔: 转发微博</a>
 </h2>
