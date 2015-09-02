@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3882649019871840" target="freeweibo-mirror">[嘻嘻]//@大连_阿东: [哈哈]//@尘满天--: //…</a>
+</h2>
+<p>[嘻嘻]//@大连_阿东: [哈哈]//@尘满天--: //@东岳晚晴:[笑cry]我是其他国家人//@率率王乐妮a: [偷笑]//@WildCat212: 以后老夫就是“其他国家”的臣民了//@scarlett冰与火: 这发明,杠杠地啊 //@率妮妮再来:中国的新国名：其他国家。[偷笑] //@豆名阳: [笑cry]掩耳盗铃。。。<br><br>RE: 刚在脸书上看到的，看笑了，居然称自己为其他国家！[笑cry][抓狂][衰]<br><img src="http://ww1.sinaimg.cn/large/be86a49cgw1evo343817ij20mf0gj76b.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3882632234731069" target="freeweibo-mirror">SPAM 看你们抽打就行了~~太乐呵 //@星舰政委章北海:…</a>
 </h2>
 <p>SPAM 看你们抽打就行了~~太乐呵 //@星舰政委章北海:我们不妨翻翻本子当年的后勤记录什么的…枪炮弹药国军专供 //@苏俄水师步勇:我记得11军麾下就有2个国械混成旅团 //@红茶魔术猫:右右不知道皇军有国械旅团[偷笑] //@华务先驱卡梅伦:全副国军装备扛着捷克式的太君你见过吗？<br><br>RE: 要说共军文宣是渣，从来没拍过蒋军豫湘桂大溃退的同时共军怎么大反攻的，也不要说抗战后期八路军怎么横行山东，新四军怎么上门向日军收税的。北朝那故事就不错，八路战士与日军作战中战死了，家乡的日军地方驻军代表只能带着维持会哭着上门向烈属赔罪……抗日剧都是加特林狙击手特战队，就没从土下手的</p>
@@ -78,7 +84,7 @@
 </h2>
 <p>这么大事中方没有报道啊。 //@北京大众2015:50多个国家，总共花费多少？ //@邵明波:面子真的值钱哎！//@ICO刘开明: //@隐者飞飞: [围观][挖鼻]没钱谁起早啊。//@袁东1972: 转发微博<br><br>RE: 出场费一人一份<br><img src="http://ww3.sinaimg.cn/large/8dd446e3jw1evnwgrhkvhj20u318ggwe.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3882576987058034" target="freeweibo-mirror">SPAM [汗]扫雪</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3882564374635444" target="freeweibo-mirror">SPAM  //@米家那个山:哪里？</a>
 </h2>
 <p>SPAM  //@米家那个山:哪里？<br><br>RE: 北京地铁站<br><img src="http://ww4.sinaimg.cn/large/680d8f00gw1evnuundv6ij20c80gbdhd.jpg"></p>
-<p>
-	<small> ============== 7小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3882560146704513" target="freeweibo-mirror">座个地铁都享受国家领导人的保护待遇，作为中国人你还有什么不满…</a>
-</h2>
-<p>座个地铁都享受国家领导人的保护待遇，作为中国人你还有什么不满的呢？<br><img src="http://ww3.sinaimg.cn/large/005WPOo2jw1evnuyxdhtaj30c80d9aar.jpg"></p>
 <p>
 	<small> ============== 7小时前</small>
 </p>
