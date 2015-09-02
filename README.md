@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3882788459781859" target="freeweibo-mirror">//@陈-信滔: 转发微博</a>
+</h2>
+<p>//@陈-信滔: 转发微博<br><br>RE: 当你心跳激昂，可有勇气与我们并肩？！为了维护我们的合法权利与腐败抗争，我们希望良心，我们希望理智，我们希望人性重到人间，让阳光不再黑暗，新的生活即将到来…… http://t.cn/RyA6St4 .</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3882777709213814" target="freeweibo-mirror">SPAM 哪里不对？</a>
 </h2>
 <p>SPAM 哪里不对？<br><br>RE: 总感觉哪里不对[思考]<br><img src="http://ww1.sinaimg.cn/large/4c7f9b17jw1evogyloq3nj20b407l74u.jpg"></p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3882660570702630" target="freeweibo-mirror">SPAM 呵呵呵你国的404</a>
 </h2>
 <p>SPAM 呵呵呵你国的404<br><br>RE: 谷歌新旧logo对比图（中国版）。<br><img src="http://ww2.sinaimg.cn/large/7e948b4djw1evnxz606kkj20c80dw3yt.jpg"></p>
-<p>
-	<small> ============== 9小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3882660437118081" target="freeweibo-mirror">幸亏再有半天反法西斯就胜利了，不然的话，首都人民真扛不住了。</a>
-</h2>
-<p>幸亏再有半天反法西斯就胜利了，不然的话，首都人民真扛不住了。</p>
 <p>
 	<small> ============== 9小时前</small>
 </p>
