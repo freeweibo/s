@@ -72,7 +72,7 @@
 </h2>
 <p>SPAM //@前度神-游: //@救赎_醉侠老高://@深川胡骏: //@天之蓝11: //@軍魂-IV://@明天会是晴天2: //@洒家大头阿福: //@南京倪若愚: //@国师万能毛:<br><br>RE: 分享图片<br><img src="http://ww4.sinaimg.cn/large/65cfb01djw1evoi2cuy5zj20nr0mldjq.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3882777709213814" target="freeweibo-mirror">SPAM 哪里不对？</a>
 </h2>
@@ -102,13 +102,13 @@
 </h2>
 <p>SPAM //@赤峰龙腾:转发微博<br><br>RE: #突发#目前发生地还无法确定，扩散了，求解释[话筒][话筒] http://t.cn/RyAMmEQ .</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3882766988773483" target="freeweibo-mirror">SPAM [心][心][心][心]</a>
 </h2>
 <p>SPAM [心][心][心][心]</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3882760282765088" target="freeweibo-mirror">#突发#目前发生地还无法确定，扩散了，求解释[话筒][话筒]…</a>
 </h2>
