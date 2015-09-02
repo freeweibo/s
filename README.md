@@ -42,13 +42,13 @@
 </h2>
 <p>法西斯在这国成为一个很微妙的词语 //@喷嚏网铂程://@雷颐: //@法律案例-文史典故:中國不是《國際刑事法院羅馬規約》的締約國</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3882525229219831" target="freeweibo-mirror">哈哈 //@LifeTime:印度上来一位小号邓小平，中国迎…</a>
 </h2>
 <p>哈哈 //@LifeTime:印度上来一位小号邓小平，中国迎来小号毛泽东。[汗]</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3882509748084645" target="freeweibo-mirror">【中国面临的最大威胁并非经济】FT专栏作家拉赫曼：对中国繁荣…</a>
 </h2>
@@ -66,7 +66,7 @@
 </h2>
 <p>//@水兵李铭: //@玳簋21:转发微博</p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3882394820517346" target="freeweibo-mirror">//@邵明波://@金陵酒徒仓氏: [阴险] //@秦州閑人…</a>
 </h2>
@@ -102,7 +102,7 @@
 </h2>
 <p>SPAM 无耻！//@自由的章鱼哥12:什么谎都敢撒</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3882376797552501" target="freeweibo-mirror">9月1日，新《廣告法》正式施行……從今日起，“太陽最紅毛主席…</a>
 </h2>
