@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3882660604459520" target="freeweibo-mirror">人民军队忠于党！因为党是忠于人民的，党除了人民的利益，没有自…</a>
+</h2>
+<p>人民军队忠于党！因为党是忠于人民的，党除了人民的利益，没有自己的利益。因此，我们忠于党也就是忠于人民！————这时一个新兵举手要求说话，获准后，他说：那我们直接忠于人民不就行了？我告诉他：人民很抽象，不具体。他看着我说：那就是忠于你呗？因为党不也是抽象的么？九零后的兵，不好带啊！<br><img src="http://ww3.sinaimg.cn/large/7fd6e271jw1evo6iq33stj20c80cawfk.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3882649019871840" target="freeweibo-mirror">[嘻嘻]//@大连_阿东: [哈哈]//@尘满天--: //…</a>
 </h2>
 <p>[嘻嘻]//@大连_阿东: [哈哈]//@尘满天--: //@东岳晚晴:[笑cry]我是其他国家人//@率率王乐妮a: [偷笑]//@WildCat212: 以后老夫就是“其他国家”的臣民了//@scarlett冰与火: 这发明,杠杠地啊 //@率妮妮再来:中国的新国名：其他国家。[偷笑] //@豆名阳: [笑cry]掩耳盗铃。。。<br><br>RE: 刚在脸书上看到的，看笑了，居然称自己为其他国家！[笑cry][抓狂][衰]<br><img src="http://ww1.sinaimg.cn/large/be86a49cgw1evo343817ij20mf0gj76b.jpg"></p>
@@ -108,7 +114,7 @@
 </h2>
 <p>这么大事中方没有报道啊。 //@北京大众2015:50多个国家，总共花费多少？ //@邵明波:面子真的值钱哎！//@ICO刘开明: //@隐者飞飞: [围观][挖鼻]没钱谁起早啊。//@袁东1972: 转发微博<br><br>RE: 出场费一人一份<br><img src="http://ww3.sinaimg.cn/large/8dd446e3jw1evnwgrhkvhj20u318ggwe.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3882576987058034" target="freeweibo-mirror">SPAM [汗]扫雪</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3882571559462583" target="freeweibo-mirror">SPAM 孩子，这是你的家…《陈真》//@况秀猛:那么多全副…</a>
 </h2>
 <p>SPAM 孩子，这是你的家…《陈真》//@况秀猛:那么多全副武装的军队，那么多先进武器，还怕谁呢？ //@赵克罗: //@米家那个山:哪里？<br><br>RE: 北京地铁站<br><img src="http://ww4.sinaimg.cn/large/680d8f00gw1evnuundv6ij20c80gbdhd.jpg"></p>
-<p>
-	<small> ============== 7小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3882570808751087" target="freeweibo-mirror">SPAM 我操 //@缥缈://@清风竹影55555: 呵呵…</a>
-</h2>
-<p>SPAM 我操 //@缥缈://@清风竹影55555: 呵呵呵呵<br><br>RE: 北京地铁站<br><img src="http://ww4.sinaimg.cn/large/680d8f00gw1evnuundv6ij20c80gbdhd.jpg"></p>
 <p>
 	<small> ============== 7小时前</small>
 </p>
