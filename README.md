@@ -42,7 +42,7 @@
 </h2>
 <p>SPAM 水军[哈哈]<br><br>RE: 这算什么兵种?<br><img src="http://ww4.sinaimg.cn/large/7e848a37jw1evo1h2420dj20c80ec765.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3882616836909186" target="freeweibo-mirror">这算什么兵种?</a>
 </h2>
@@ -54,7 +54,7 @@
 </h2>
 <p>//@省港通缉犯:习近平请我，我都没去！我怕给党抹黑 //@南湖细雨: 也凑个数吧，你们何必呢？ //@省港通缉犯:太荒唐 //@千山万水依旧在: 反对战争，纪念和平却招来了战争罪犯，荒唐！<br><br>RE: 把国际通辑儿招来了，这是要与世隔绝的节奏。<br><img src="http://ww2.sinaimg.cn/large/0064Co4Vgw1evnzh83pv0j30c80gyjsp.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3882599632432005" target="freeweibo-mirror">把国际通辑儿招来了，这是要与世隔绝的节奏。</a>
 </h2>
