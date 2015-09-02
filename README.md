@@ -90,7 +90,7 @@
 </h2>
 <p>//@韩雨亭微观世界: 为了意识形态，以及被剥夺了话语权，抗战老兵这几十年活得确实辛苦。</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3882526509065298" target="freeweibo-mirror">SPAM 造谣 人民政府不会怕人民 //@兔子老愚:回覆@祖…</a>
 </h2>
