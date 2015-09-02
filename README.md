@@ -84,7 +84,7 @@
 </h2>
 <p>我想问一下，世界上是有一些国家不能正常登录脸书、推特，看看这都是些什么国家（除了天朝）？这还不打紧，试问，世界上还有多少国家封禁谷歌，甚至封禁谷歌学术搜索、《自然》这些学术性网站？真是奇葩中的奇葩，烂货中的烂货。</p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3882382966411493" target="freeweibo-mirror">SPAM 无耻！//@自由的章鱼哥12:什么谎都敢撒</a>
 </h2>
@@ -120,7 +120,7 @@
 </h2>
 <p>找个领导站在后头，就不用纪念什么反法西斯胜利了。因为......。[嘻嘻]<br><br>RE: 北京灯市口地铁口——不知是啥 反法西斯的新式武器？[疑问][思考]<br><img src="http://ww3.sinaimg.cn/large/005SuA62gw1evn5shgquxj30go0m80ub.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3882365405201888" target="freeweibo-mirror">SPAM 你到底懂不懂呀？[嘻嘻]拒马，可现在哪来的马？//…</a>
 </h2>
