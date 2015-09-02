@@ -24,7 +24,7 @@
 </h2>
 <p>//@十年砍柴: 你抹掉的是“刘万永同志”么？党的十八大代表，也就这些福利了。<br><br>RE: 正版請柬。<br><img src="http://ww2.sinaimg.cn/large/65cc9274jw1evnfxujo80j20zk0oegq5.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3882582800252303" target="freeweibo-mirror">这么大事中方没有报道啊。 //@北京大众2015:50多个国…</a>
 </h2>
@@ -35,6 +35,12 @@
 	<a href="https://freeweibo.com/weibo/3882576987058034" target="freeweibo-mirror">SPAM [汗]扫雪</a>
 </h2>
 <p>SPAM [汗]扫雪<br><br>RE: #北京身边事# 单位楼下，长安街边，为了保证阅兵安全，战士们正在扫雷。 http://t.cn/z8M1hLp<br><img src="http://ww4.sinaimg.cn/large/54ded3d7jw1evmzr64e1rj20zk0qo7ba.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3882573040614119" target="freeweibo-mirror">出场费一人一份</a>
+</h2>
+<p>出场费一人一份<br><img src="http://ww3.sinaimg.cn/large/8dd446e3jw1evnwgrhkvhj20u318ggwe.jpg"></p>
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
@@ -72,7 +78,7 @@
 </h2>
 <p>連爺爺看閱兵 http://t.cn/R2WJvly<br><img src="http://ww1.sinaimg.cn/large/5186d665jw1evnvox6ti9j20k00ef76o.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3882564374635444" target="freeweibo-mirror">SPAM  //@米家那个山:哪里？</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3882540970276310" target="freeweibo-mirror">//@北方雄鹰01: //@迟夙生律师: //@观世音童:@…</a>
 </h2>
 <p>//@北方雄鹰01: //@迟夙生律师: //@观世音童:@信力建 不会吧？ //@李不白的店://@喷嚏网铂程:转发微博<br><br>RE: 海外媒体传广州民营信孚教育集团老总信力建被抓，公司资产被冻结，同时被抓的还有其妻、总经理、司机、出纳和会计，家留有一岁儿子。据报涉嫌偷税漏税。他算一位敢言商人，被捕应与其言论有关。</p>
-<p>
-	<small> ============== 5小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3882537719558894" target="freeweibo-mirror">【老兵：我不该参加国军抗日！】49年后，国民革命军的军人一律…</a>
-</h2>
-<p>【老兵：我不该参加国军抗日！】49年后，国民革命军的军人一律被称为“伪军”“反革命”。他们是镇压、批斗、改造的对象。钱青就是这样的一个老反革命。他三次被判处徒刑,一共在狱中渡过26个春夏秋冬。他们本是民族英雄，抗战胜利时他们也曾感到过无上光荣。http://t.cn/RZdJTS9<br><img src="http://ww1.sinaimg.cn/large/41693645gw1evnseq0u8tj20wa18gqbj.jpg"></p>
 <p>
 	<small> ============== 5小时前</small>
 </p>
