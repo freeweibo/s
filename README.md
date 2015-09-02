@@ -24,7 +24,7 @@
 </h2>
 <p>人民军队忠于党！因为党是忠于人民的，党除了人民的利益，没有自己的利益。因此，我们忠于党也就是忠于人民！————这时一个新兵举手要求说话，获准后，他说：那我们直接忠于人民不就行了？我告诉他：人民很抽象，不具体。他看着我说：那就是忠于你呗？因为党不也是抽象的么？九零后的兵，不好带啊！<br><img src="http://ww3.sinaimg.cn/large/7fd6e271jw1evo6iq33stj20c80cawfk.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3882649019871840" target="freeweibo-mirror">[嘻嘻]//@大连_阿东: [哈哈]//@尘满天--: //…</a>
 </h2>
@@ -90,7 +90,7 @@
 </h2>
 <p>把国际通辑儿招来了，这是要与世隔绝的节奏。<br><img src="http://ww2.sinaimg.cn/large/0064Co4Vgw1evnzh83pv0j30c80gyjsp.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3882596683020537" target="freeweibo-mirror">阅兵最好不要把国军老兵和八路新四军老兵放同一辆车上，担心一句…</a>
 </h2>
