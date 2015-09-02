@@ -60,7 +60,7 @@
 </h2>
 <p>当你心跳激昂，可有勇气与我们并肩？！为了维护我们的合法权利与腐败抗争，我们希望良心，我们希望理智，我们希望人性重到人间，让阳光不再黑暗，新的生活即将到来…… http://t.cn/RyA6St4 .</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3882783875604570" target="freeweibo-mirror">SPAM 北京现在安检老严了，昨天有人拿着一面党旗坐地铁过安…</a>
 </h2>
@@ -90,7 +90,7 @@
 </h2>
 <p>嗯嗯，敌后战场也有国军，这些算不算？→_→冈村宁次：投降日军的伪军将领称：我们是想和日军一起消灭共产党，我们至今仍在接受重庆国民政府军饷。我们不能参加对中央军作战，而愿协助维持后方治安。http://t.cn/RywkI9a<br><br>RE: 打臉連戰！國史館：中共領導敵後戰場的說法不存在！<br><img src="http://ww4.sinaimg.cn/large/0068NIJzjw1evneesjnpwj30hs0jb0uk.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3882768512054356" target="freeweibo-mirror">国军在敌后战场的确很多，比战死的国军都多，但都是投降做了汉奸…</a>
 </h2>
