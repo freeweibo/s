@@ -48,7 +48,7 @@
 </h2>
 <p>//@品格教育父母教练: 转发微博<br><br>RE: 一种鬼子进村扫荡、人民坚壁清野的历史感，沉甸甸的。</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3882546578230322" target="freeweibo-mirror">//@榆木根V: //@砀山人_在上海L: //@天池岁月1…</a>
 </h2>
@@ -120,7 +120,7 @@
 </h2>
 <p>//@水兵李铭: //@玳簋21:转发微博</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3882394820517346" target="freeweibo-mirror">//@邵明波://@金陵酒徒仓氏: [阴险] //@秦州閑人…</a>
 </h2>
