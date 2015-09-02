@@ -30,7 +30,7 @@
 </h2>
 <p>这么大事中方没有报道啊。 //@北京大众2015:50多个国家，总共花费多少？ //@邵明波:面子真的值钱哎！//@ICO刘开明: //@隐者飞飞: [围观][挖鼻]没钱谁起早啊。//@袁东1972: 转发微博<br><br>RE: 出场费一人一份<br><img src="http://ww3.sinaimg.cn/large/8dd446e3jw1evnwgrhkvhj20u318ggwe.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3882576987058034" target="freeweibo-mirror">SPAM [汗]扫雪</a>
 </h2>
