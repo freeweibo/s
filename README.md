@@ -42,7 +42,7 @@
 </h2>
 <p>SPAM 这个笑话好好笑。。。<br><br>RE: 谷歌新旧logo对比图（中国版）。<br><img src="http://ww2.sinaimg.cn/large/7e948b4djw1evnxz606kkj20c80dw3yt.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3882649019871840" target="freeweibo-mirror">[嘻嘻]//@大连_阿东: [哈哈]//@尘满天--: //…</a>
 </h2>
