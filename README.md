@@ -26,6 +26,12 @@
 <p>
 	<small> ============== 1小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3882786152521986" target="freeweibo-mirror">当你心跳激昂，可有勇气与我们并肩？！为了维护我们的合法权利与…</a>
+</h2>
+<p>当你心跳激昂，可有勇气与我们并肩？！为了维护我们的合法权利与腐败抗争，我们希望良心，我们希望理智，我们希望人性重到人间，让阳光不再黑暗，新的生活即将到来…… http://t.cn/RyA6St4 .</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3882777709213814" target="freeweibo-mirror">SPAM 哪里不对？</a>
 </h2>
 <p>SPAM 哪里不对？<br><br>RE: 总感觉哪里不对[思考]<br><img src="http://ww1.sinaimg.cn/large/4c7f9b17jw1evogyloq3nj20b407l74u.jpg"></p>
@@ -114,7 +120,7 @@
 </h2>
 <p>帮转<br><br>RE: 新浪理想15层的小伙伴们只能像我一样，因为我们的行政领导总是在办公室里抽烟，没人管他，他门口还有孕妇直吸。卑鄙。垃圾。畜生。<br><img src="http://ww2.sinaimg.cn/large/668c3d6bjw1evnve13z81j20qo0zk7ba.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3882677260461080" target="freeweibo-mirror">SPAM //@孟庆德微博二代:[吃惊] //@卖炭翁二表妹…</a>
 </h2>
@@ -133,12 +139,6 @@
 <p>打个比方，你的工程要10亿元，我贷给你100亿，只要你还10亿，还不了就免债。但条件是10亿的工程要喊成100亿，并以100亿承包给我的人。这样，90亿就名正言顺地出去了。好些专制国家的外援就是用的这个商业模式。还记得前些年那个喊援助非州1000所小学，每所150万美元的人吗？他用的是慈善免税洗钱模式。</p>
 <p>
 	<small> ============== 9小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3882660604459520" target="freeweibo-mirror">人民军队忠于党！因为党是忠于人民的，党除了人民的利益，没有自…</a>
-</h2>
-<p>人民军队忠于党！因为党是忠于人民的，党除了人民的利益，没有自己的利益。因此，我们忠于党也就是忠于人民！————这时一个新兵举手要求说话，获准后，他说：那我们直接忠于人民不就行了？我告诉他：人民很抽象，不具体。他看着我说：那就是忠于你呗？因为党不也是抽象的么？九零后的兵，不好带啊！<br><img src="http://ww3.sinaimg.cn/large/7fd6e271jw1evo6iq33stj20c80cawfk.jpg"></p>
-<p>
-	<small> ============== 10小时前</small>
 </p>
 <table>
     <tr>
