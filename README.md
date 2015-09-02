@@ -32,6 +32,12 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3882768512054356" target="freeweibo-mirror">国军在敌后战场的确很多，比战死的国军都多，但都是投降做了汉奸…</a>
+</h2>
+<p>国军在敌后战场的确很多，比战死的国军都多，但都是投降做了汉奸的伪军，成了二狗子的国军你们国民党自己认不认啊？//@安崇民: 部分在敌后国军，悉数作了鬼魂或伪军。博主回那馆问问去，老安说错没有？[衰]<br><br>RE: 打臉連戰！國史館：中共領導敵後戰場的說法不存在！<br><img src="http://ww4.sinaimg.cn/large/0068NIJzjw1evneesjnpwj30hs0jb0uk.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3882767156791560" target="freeweibo-mirror">SPAM //@赤峰龙腾:转发微博</a>
 </h2>
 <p>SPAM //@赤峰龙腾:转发微博<br><br>RE: #突发#目前发生地还无法确定，扩散了，求解释[话筒][话筒] http://t.cn/RyAMmEQ .</p>
@@ -126,17 +132,11 @@
 </h2>
 <p>打个比方，你的工程要10亿元，我贷给你100亿，只要你还10亿，还不了就免债。但条件是10亿的工程要喊成100亿，并以100亿承包给我的人。这样，90亿就名正言顺地出去了。好些专制国家的外援就是用的这个商业模式。还记得前些年那个喊援助非州1000所小学，每所150万美元的人吗？他用的是慈善免税洗钱模式。</p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3882660604459520" target="freeweibo-mirror">人民军队忠于党！因为党是忠于人民的，党除了人民的利益，没有自…</a>
 </h2>
 <p>人民军队忠于党！因为党是忠于人民的，党除了人民的利益，没有自己的利益。因此，我们忠于党也就是忠于人民！————这时一个新兵举手要求说话，获准后，他说：那我们直接忠于人民不就行了？我告诉他：人民很抽象，不具体。他看着我说：那就是忠于你呗？因为党不也是抽象的么？九零后的兵，不好带啊！<br><img src="http://ww3.sinaimg.cn/large/7fd6e271jw1evo6iq33stj20c80cawfk.jpg"></p>
-<p>
-	<small> ============== 9小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3882660570702630" target="freeweibo-mirror">SPAM 呵呵呵你国的404</a>
-</h2>
-<p>SPAM 呵呵呵你国的404<br><br>RE: 谷歌新旧logo对比图（中国版）。<br><img src="http://ww2.sinaimg.cn/large/7e948b4djw1evnxz606kkj20c80dw3yt.jpg"></p>
 <p>
 	<small> ============== 9小时前</small>
 </p>
