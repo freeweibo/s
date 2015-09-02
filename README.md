@@ -20,6 +20,18 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3882596230820660" target="freeweibo-mirror">//@十年砍柴: 你抹掉的是“刘万永同志”么？党的十八大代表…</a>
+</h2>
+<p>//@十年砍柴: 你抹掉的是“刘万永同志”么？党的十八大代表，也就这些福利了。<br><br>RE: 正版請柬。<br><img src="http://ww2.sinaimg.cn/large/65cc9274jw1evnfxujo80j20zk0oegq5.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3882576987058034" target="freeweibo-mirror">SPAM [汗]扫雪</a>
+</h2>
+<p>SPAM [汗]扫雪<br><br>RE: #北京身边事# 单位楼下，长安街边，为了保证阅兵安全，战士们正在扫雷。 http://t.cn/z8M1hLp<br><img src="http://ww4.sinaimg.cn/large/54ded3d7jw1evmzr64e1rj20zk0qo7ba.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3882571559462583" target="freeweibo-mirror">SPAM 孩子，这是你的家…《陈真》//@况秀猛:那么多全副…</a>
 </h2>
 <p>SPAM 孩子，这是你的家…《陈真》//@况秀猛:那么多全副武装的军队，那么多先进武器，还怕谁呢？ //@赵克罗: //@米家那个山:哪里？<br><br>RE: 北京地铁站<br><img src="http://ww4.sinaimg.cn/large/680d8f00gw1evnuundv6ij20c80gbdhd.jpg"></p>
@@ -108,7 +120,7 @@
 </h2>
 <p>【老兵：我不该参加国军抗日！】49年后，国民革命军的军人一律被称为“伪军”“反革命”。他们是镇压、批斗、改造的对象。钱青就是这样的一个老反革命。他三次被判处徒刑,一共在狱中渡过26个春夏秋冬。他们本是民族英雄，抗战胜利时他们也曾感到过无上光荣。http://t.cn/RZdJTS9<br><img src="http://ww1.sinaimg.cn/large/41693645gw1evnseq0u8tj20wa18gqbj.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3882529524383418" target="freeweibo-mirror">//@韩雨亭微观世界: 为了意识形态，以及被剥夺了话语权，抗…</a>
 </h2>
@@ -125,18 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3882526038727897" target="freeweibo-mirror">法西斯在这国成为一个很微妙的词语 //@喷嚏网铂程://@雷…</a>
 </h2>
 <p>法西斯在这国成为一个很微妙的词语 //@喷嚏网铂程://@雷颐: //@法律案例-文史典故:中國不是《國際刑事法院羅馬規約》的締約國</p>
-<p>
-	<small> ============== 5小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3882525229219831" target="freeweibo-mirror">哈哈 //@LifeTime:印度上来一位小号邓小平，中国迎…</a>
-</h2>
-<p>哈哈 //@LifeTime:印度上来一位小号邓小平，中国迎来小号毛泽东。[汗]</p>
-<p>
-	<small> ============== 5小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3882521634373604" target="freeweibo-mirror">有意思。</a>
-</h2>
-<p>有意思。</p>
 <p>
 	<small> ============== 5小时前</small>
 </p>
