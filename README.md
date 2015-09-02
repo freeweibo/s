@@ -44,6 +44,12 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3882537719558894" target="freeweibo-mirror">【老兵：我不该参加国军抗日！】49年后，国民革命军的军人一律…</a>
+</h2>
+<p>【老兵：我不该参加国军抗日！】49年后，国民革命军的军人一律被称为“伪军”“反革命”。他们是镇压、批斗、改造的对象。钱青就是这样的一个老反革命。他三次被判处徒刑,一共在狱中渡过26个春夏秋冬。他们本是民族英雄，抗战胜利时他们也曾感到过无上光荣。http://t.cn/RZdJTS9<br><img src="http://ww1.sinaimg.cn/large/41693645gw1evnseq0u8tj20wa18gqbj.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3882529524383418" target="freeweibo-mirror">//@韩雨亭微观世界: 为了意识形态，以及被剥夺了话语权，抗…</a>
 </h2>
 <p>//@韩雨亭微观世界: 为了意识形态，以及被剥夺了话语权，抗战老兵这几十年活得确实辛苦。</p>
@@ -84,7 +90,7 @@
 </h2>
 <p>SPAM 奉天承运，吾老昭曰，举国上下，孤独寂寞者众。 甲午好兆年，承爱民之意，赖友邦之仗义，助你马上有TA 约! 特通告天下，咸使周知！钦赐红线一根，约天下有情人！[右边亮了] 男生入：1 5 4 1 2 0 3 3 5 （[q][q]群号）； 女生入： 2 0 7 6 3 9 9 5 0（[q][q]号）。<br><img src="http://ww4.sinaimg.cn/large/7701a533gw1evneedbi8pj20c80ehab7.jpg"></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3882404437505457" target="freeweibo-mirror">//@水兵李铭: //@玳簋21:转发微博</a>
 </h2>
@@ -102,19 +108,19 @@
 </h2>
 <p>请问最不要脸的政府是哪一家？</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3882392458521354" target="freeweibo-mirror">一丘之貉都是秋后的蚂蚱，还能蹦等多久[疑问]</a>
 </h2>
 <p>一丘之貉都是秋后的蚂蚱，还能蹦等多久[疑问]</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3882392298986530" target="freeweibo-mirror">简单的说，isis用推特等煽动国内那些sml，政府架不住的，…</a>
 </h2>
 <p>简单的说，isis用推特等煽动国内那些sml，政府架不住的，所以目前还是屏蔽。 //@希波克拉底门徒:我看古巴快要离席了，伊朗也快了，以后就剩“战斗中用鲜血凝成友谊”的北朝鲜跟其他国家玩二人转了//@特别调查员: 朝鲜、古巴、伊朗等民主国家，都是中国人民的老朋友了，中国不好意思缺席，不然三缺一呀<br><br>RE: 我想问一下，世界上是有一些国家不能正常登录脸书、推特，看看这都是些什么国家（除了天朝）？这还不打紧，试问，世界上还有多少国家封禁谷歌，甚至封禁谷歌学术搜索、《自然》这些学术性网站？真是奇葩中的奇葩，烂货中的烂货。</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3882389039822239" target="freeweibo-mirror">我想问一下，世界上是有一些国家不能正常登录脸书、推特，看看这…</a>
 </h2>
@@ -122,21 +128,15 @@
 <p>
 	<small> ============== 1天前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3882386221978100" target="freeweibo-mirror">一种鬼子进村扫荡、人民坚壁清野的历史感，沉甸甸的。</a>
+</h2>
+<p>一种鬼子进村扫荡、人民坚壁清野的历史感，沉甸甸的。</p>
+<p>
+	<small> ============== 1天前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3882382966411493" target="freeweibo-mirror">SPAM 无耻！//@自由的章鱼哥12:什么谎都敢撒</a>
 </h2>
 <p>SPAM 无耻！//@自由的章鱼哥12:什么谎都敢撒</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3882376797552501" target="freeweibo-mirror">9月1日，新《廣告法》正式施行……從今日起，“太陽最紅毛主席…</a>
-</h2>
-<p>9月1日，新《廣告法》正式施行……從今日起，“太陽最紅毛主席最親”涉嫌廣告語違法……（圖via @吾黑畫）<br><img src="http://ww3.sinaimg.cn/large/006862Njgw1evn9xc2jptj30960dcgmu.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3882369935144633" target="freeweibo-mirror">SPAM //@诗人刀哥: 这样实用，阻挡十三亿人毫无问题！…</a>
-</h2>
-<p>SPAM //@诗人刀哥: 这样实用，阻挡十三亿人毫无问题！[哈哈] //@-孔智勇:如临大敌……<br><br>RE: 某些人灵魂深处的刺。<br><img src="http://ww3.sinaimg.cn/large/41693645gw1evn6vfzxxyj20hs0nqdif.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
