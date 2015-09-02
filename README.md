@@ -20,6 +20,18 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3882555801766490" target="freeweibo-mirror">【永无天日】</a>
+</h2>
+<p>【永无天日】<br><br>RE: 【老兵：我不该参加国军抗日！】49年后，国民革命军的军人一律被称为“伪军”“反革命”。他们是镇压、批斗、改造的对象。钱青就是这样的一个老反革命。他三次被判处徒刑,一共在狱中渡过26个春夏秋冬。他们本是民族英雄，抗战胜利时他们也曾感到过无上光荣。http://t.cn/RZdJTS9<br><img src="http://ww1.sinaimg.cn/large/41693645gw1evnseq0u8tj20wa18gqbj.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3882549170140119" target="freeweibo-mirror">//@品格教育父母教练: 转发微博</a>
+</h2>
+<p>//@品格教育父母教练: 转发微博<br><br>RE: 一种鬼子进村扫荡、人民坚壁清野的历史感，沉甸甸的。</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3882541931509307" target="freeweibo-mirror">这是中华民族欠他们的债。</a>
 </h2>
 <p>这是中华民族欠他们的债。</p>
@@ -30,7 +42,7 @@
 </h2>
 <p>//@韩雨亭微观世界: 为了意识形态，以及被剥夺了话语权，抗战老兵这几十年活得确实辛苦。</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3882526509065298" target="freeweibo-mirror">SPAM 造谣 人民政府不会怕人民 //@兔子老愚:回覆@祖…</a>
 </h2>
@@ -125,18 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3882367523010811" target="freeweibo-mirror">SPAM 不清楚。小时候看评书，滚木雷石刺马。//@乔志峰:…</a>
 </h2>
 <p>SPAM 不清楚。小时候看评书，滚木雷石刺马。//@乔志峰:这是什么 //@-孔智勇:如临大敌……<br><br>RE: 某些人灵魂深处的刺。<br><img src="http://ww3.sinaimg.cn/large/41693645gw1evn6vfzxxyj20hs0nqdif.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3882365959071753" target="freeweibo-mirror">找个领导站在后头，就不用纪念什么反法西斯胜利了。因为....…</a>
-</h2>
-<p>找个领导站在后头，就不用纪念什么反法西斯胜利了。因为......。[嘻嘻]<br><br>RE: 北京灯市口地铁口——不知是啥 反法西斯的新式武器？[疑问][思考]<br><img src="http://ww3.sinaimg.cn/large/005SuA62gw1evn5shgquxj30go0m80ub.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3882365405201888" target="freeweibo-mirror">SPAM 你到底懂不懂呀？[嘻嘻]拒马，可现在哪来的马？//…</a>
-</h2>
-<p>SPAM 你到底懂不懂呀？[嘻嘻]拒马，可现在哪来的马？//@梅虔: 这是古代岳飞对付金国战车马队的铁刺阵，现在用于阻挡自杀汽车炸弹。[哼]//@专业起哄: 别乱说，冷兵器你不是专家[悲伤] //@吃素的好老虎:【人不坏，国不爱？】 TMD谁发明的这玩儿意儿，早点把他弄死去比较稳妥！<br><br>RE: 北京灯市口地铁口——不知是啥 反法西斯的新式武器？[疑问][思考]<br><img src="http://ww3.sinaimg.cn/large/005SuA62gw1evn5shgquxj30go0m80ub.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
