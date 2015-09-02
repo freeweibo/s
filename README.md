@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3882766988773483" target="freeweibo-mirror">SPAM [心][心][心][心]</a>
+</h2>
+<p>SPAM [心][心][心][心]</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3882751566598671" target="freeweibo-mirror">//@陆伟民律师: 为此毛泽东指示日本战犯的待遇比照中国同级…</a>
 </h2>
 <p>//@陆伟民律师: 为此毛泽东指示日本战犯的待遇比照中国同级干部的待遇。//@宦卿世界: #宦卿历史#历史事实是:1942年毛在瓦窑堡会议上说，"—分抗日，二分应付，七分发展"。1972年中日建交时毛对当时日相田中角荣说，无日本侵略，中共不能胜利。日本是恩人、是老师，并放弃日本战争赔款。<br><br>RE: 【抗战小常识】1八路军和新四军是国民革命军旗下的二个番号，也就是国军的组成部分；2中国共产党是中华民国的合法政党；3延安地区为中华民国行政院管辖下的陕甘宁边区；4边区在毛泽东主持下实行一人一票的自由选举；5蒋介石为国民政府主席、军事委员会委员长，毛泽东二次高呼“蒋委员长万岁”。<br><img src="http://ww1.sinaimg.cn/large/9154fba0gw1evoehp2e76j20hs0eamyc.jpg"></p>
@@ -120,7 +126,7 @@
 </h2>
 <p>//@谷大白话: 转发微博 http://t.cn/RyAhaD5<br><br>RE: 谷歌新旧logo对比图（中国版）。<br><img src="http://ww2.sinaimg.cn/large/7e948b4djw1evnxz606kkj20c80dw3yt.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3882653889617841" target="freeweibo-mirror">SPAM 这个笑话好好笑。。。</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3882649019871840" target="freeweibo-mirror">[嘻嘻]//@大连_阿东: [哈哈]//@尘满天--: //…</a>
 </h2>
 <p>[嘻嘻]//@大连_阿东: [哈哈]//@尘满天--: //@东岳晚晴:[笑cry]我是其他国家人//@率率王乐妮a: [偷笑]//@WildCat212: 以后老夫就是“其他国家”的臣民了//@scarlett冰与火: 这发明,杠杠地啊 //@率妮妮再来:中国的新国名：其他国家。[偷笑] //@豆名阳: [笑cry]掩耳盗铃。。。<br><br>RE: 刚在脸书上看到的，看笑了，居然称自己为其他国家！[笑cry][抓狂][衰]<br><img src="http://ww1.sinaimg.cn/large/be86a49cgw1evo343817ij20mf0gj76b.jpg"></p>
-<p>
-	<small> ============== 9小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3882647442532870" target="freeweibo-mirror">北京现在安检老严了，昨天有人拿着一面党旗坐地铁过安检，出来之…</a>
-</h2>
-<p>北京现在安检老严了，昨天有人拿着一面党旗坐地铁过安检，出来之后变成了一块红布，镰刀，锤子都被没收了…转<br><img src="http://ww1.sinaimg.cn/large/e6a570c1jw1evo50957mhj20qo0fp75q.jpg"></p>
 <p>
 	<small> ============== 9小时前</small>
 </p>
