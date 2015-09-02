@@ -66,13 +66,13 @@
 </h2>
 <p>阅兵最好不要把国军老兵和八路新四军老兵放同一辆车上，担心一句不合会打起来。我采访过东江纵队老战士，一老战士说：孩子让我去旅游，两个地方我绝不去，一个日本一个台湾。另一老战士谈及国军，一脸鄙夷。军人都骄傲，瞧不起败兵。[挖鼻]</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3882596230820660" target="freeweibo-mirror">//@十年砍柴: 你抹掉的是“刘万永同志”么？党的十八大代表…</a>
 </h2>
 <p>//@十年砍柴: 你抹掉的是“刘万永同志”么？党的十八大代表，也就这些福利了。<br><br>RE: 正版請柬。<br><img src="http://ww2.sinaimg.cn/large/65cc9274jw1evnfxujo80j20zk0oegq5.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3882582800252303" target="freeweibo-mirror">这么大事中方没有报道啊。 //@北京大众2015:50多个国…</a>
 </h2>
@@ -126,7 +126,7 @@
 </h2>
 <p>連爺爺看閱兵 http://t.cn/R2WJvly<br><img src="http://ww1.sinaimg.cn/large/5186d665jw1evnvox6ti9j20k00ef76o.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3882564374635444" target="freeweibo-mirror">SPAM  //@米家那个山:哪里？</a>
 </h2>
