@@ -36,13 +36,13 @@
 </h2>
 <p>法西斯在这国成为一个很微妙的词语 //@喷嚏网铂程://@雷颐: //@法律案例-文史典故:中國不是《國際刑事法院羅馬規約》的締約國</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3882525229219831" target="freeweibo-mirror">哈哈 //@LifeTime:印度上来一位小号邓小平，中国迎…</a>
 </h2>
 <p>哈哈 //@LifeTime:印度上来一位小号邓小平，中国迎来小号毛泽东。[汗]</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3882415737162304" target="freeweibo-mirror">SPAM 奉天承运，吾老昭曰，举国上下，孤独寂寞者众。 甲午…</a>
 </h2>
@@ -54,7 +54,7 @@
 </h2>
 <p>//@水兵李铭: //@玳簋21:转发微博</p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3882394820517346" target="freeweibo-mirror">//@邵明波://@金陵酒徒仓氏: [阴险] //@秦州閑人…</a>
 </h2>
@@ -114,7 +114,7 @@
 </h2>
 <p>SPAM 不清楚。小时候看评书，滚木雷石刺马。//@乔志峰:这是什么 //@-孔智勇:如临大敌……<br><br>RE: 某些人灵魂深处的刺。<br><img src="http://ww3.sinaimg.cn/large/41693645gw1evn6vfzxxyj20hs0nqdif.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3882365959071753" target="freeweibo-mirror">找个领导站在后头，就不用纪念什么反法西斯胜利了。因为....…</a>
 </h2>
