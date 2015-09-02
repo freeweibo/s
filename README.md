@@ -90,7 +90,7 @@
 </h2>
 <p>SPAM 无耻！//@自由的章鱼哥12:什么谎都敢撒</p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3882376797552501" target="freeweibo-mirror">9月1日，新《廣告法》正式施行……從今日起，“太陽最紅毛主席…</a>
 </h2>
