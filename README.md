@@ -36,7 +36,7 @@
 </h2>
 <p>//@谷大白话: 转发微博 http://t.cn/RyAhaD5<br><br>RE: 谷歌新旧logo对比图（中国版）。<br><img src="http://ww2.sinaimg.cn/large/7e948b4djw1evnxz606kkj20c80dw3yt.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3882653889617841" target="freeweibo-mirror">SPAM 这个笑话好好笑。。。</a>
 </h2>
@@ -138,7 +138,7 @@
 </h2>
 <p>这么大事中方没有报道啊。 //@北京大众2015:50多个国家，总共花费多少？ //@邵明波:面子真的值钱哎！//@ICO刘开明: //@隐者飞飞: [围观][挖鼻]没钱谁起早啊。//@袁东1972: 转发微博<br><br>RE: 出场费一人一份<br><img src="http://ww3.sinaimg.cn/large/8dd446e3jw1evnwgrhkvhj20u318ggwe.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p>
 <table>
     <tr>
