@@ -78,13 +78,13 @@
 </h2>
 <p>SPAM 哪里不对？<br><br>RE: 总感觉哪里不对[思考]<br><img src="http://ww1.sinaimg.cn/large/4c7f9b17jw1evogyloq3nj20b407l74u.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3882777466162228" target="freeweibo-mirror">今晚的北京灯光辉煌，普天同庆。就是不知道要花多少电费？</a>
 </h2>
 <p>今晚的北京灯光辉煌，普天同庆。就是不知道要花多少电费？<br><img src="http://ww2.sinaimg.cn/large/006d9UqQgw1evojvznldqj30m80etq6r.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3882771460622960" target="freeweibo-mirror">嗯嗯，敌后战场也有国军，这些算不算？→_→冈村宁次：投降日军…</a>
 </h2>
