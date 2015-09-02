@@ -60,7 +60,7 @@
 </h2>
 <p>【段子】北京现在安检老严了，昨天有人拿着一面党旗坐地铁过安检，出来之后变成了一块红布，镰刀，锤子都被没收了……<br><img src="http://ww1.sinaimg.cn/large/005XCrt5jw1evobz2kwudj30m80go0v1.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3882700186310903" target="freeweibo-mirror">SPAM 发现一个琥 珀 蜜 蜡 的徽博！超赞哦~~</a>
 </h2>
@@ -138,7 +138,7 @@
 </h2>
 <p>北京现在安检老严了，昨天有人拿着一面党旗坐地铁过安检，出来之后变成了一块红布，镰刀，锤子都被没收了…转<br><img src="http://ww1.sinaimg.cn/large/e6a570c1jw1evo50957mhj20qo0fp75q.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p>
 <table>
     <tr>
