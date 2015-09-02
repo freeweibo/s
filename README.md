@@ -24,11 +24,17 @@
 </h2>
 <p>[嘻嘻]//@大连_阿东: [哈哈]//@尘满天--: //@东岳晚晴:[笑cry]我是其他国家人//@率率王乐妮a: [偷笑]//@WildCat212: 以后老夫就是“其他国家”的臣民了//@scarlett冰与火: 这发明,杠杠地啊 //@率妮妮再来:中国的新国名：其他国家。[偷笑] //@豆名阳: [笑cry]掩耳盗铃。。。<br><br>RE: 刚在脸书上看到的，看笑了，居然称自己为其他国家！[笑cry][抓狂][衰]<br><img src="http://ww1.sinaimg.cn/large/be86a49cgw1evo343817ij20mf0gj76b.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3882632234731069" target="freeweibo-mirror">SPAM 看你们抽打就行了~~太乐呵 //@星舰政委章北海:…</a>
 </h2>
 <p>SPAM 看你们抽打就行了~~太乐呵 //@星舰政委章北海:我们不妨翻翻本子当年的后勤记录什么的…枪炮弹药国军专供 //@苏俄水师步勇:我记得11军麾下就有2个国械混成旅团 //@红茶魔术猫:右右不知道皇军有国械旅团[偷笑] //@华务先驱卡梅伦:全副国军装备扛着捷克式的太君你见过吗？<br><br>RE: 要说共军文宣是渣，从来没拍过蒋军豫湘桂大溃退的同时共军怎么大反攻的，也不要说抗战后期八路军怎么横行山东，新四军怎么上门向日军收税的。北朝那故事就不错，八路战士与日军作战中战死了，家乡的日军地方驻军代表只能带着维持会哭着上门向烈属赔罪……抗日剧都是加特林狙击手特战队，就没从土下手的</p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3882630955295586" target="freeweibo-mirror">刚在脸书上看到的，看笑了，居然称自己为其他国家！[笑cry]…</a>
+</h2>
+<p>刚在脸书上看到的，看笑了，居然称自己为其他国家！[笑cry][抓狂][衰]<br><img src="http://ww1.sinaimg.cn/large/be86a49cgw1evo343817ij20mf0gj76b.jpg"></p>
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
@@ -108,7 +114,7 @@
 </h2>
 <p>出场费一人一份<br><img src="http://ww3.sinaimg.cn/large/8dd446e3jw1evnwgrhkvhj20u318ggwe.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3882572469305713" target="freeweibo-mirror">想玩政治，就别留辫子；想赚钱，就别露老脸！//@河南内黄冯改…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3882569814460261" target="freeweibo-mirror">SPAM 大阅兵与大管制 - 评论 - FT中文网 在当下中…</a>
 </h2>
 <p>SPAM 大阅兵与大管制 - 评论 - FT中文网 在当下中国，似乎已经形成了这样一种悖论：大型活动要想举办成功，就必须实施管控，而且管控越严才能确保举办越成功；但管控越严，其对日常生活秩序的破坏与冲击就越强，社会秩序被破坏越多，所谓成功举办的意义就越被消解。 http://t.cn/RywRpaY<br><img src="http://ww2.sinaimg.cn/large/513a2b80jw1evnw3flvp0j202102iq2v.jpg"></p>
-<p>
-	<small> ============== 7小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3882568539572472" target="freeweibo-mirror">被东突一家伙轰死就不矫情了//@天涯赵瑜:假设北京每一天都这…</a>
-</h2>
-<p>被东突一家伙轰死就不矫情了//@天涯赵瑜:假设北京每一天都这样，那么……//@风青杨V: 这么多人给你做保镖，还有啥不满的？[酷]//@刀锋论v: //@公正善良:特护……<br><br>RE: 座个地铁都享受国家领导人的保护待遇，作为中国人你还有什么不满的呢？<br><img src="http://ww3.sinaimg.cn/large/005WPOo2jw1evnuyxdhtaj30c80d9aar.jpg"></p>
 <p>
 	<small> ============== 7小时前</small>
 </p>
