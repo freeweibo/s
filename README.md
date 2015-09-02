@@ -48,7 +48,7 @@
 </h2>
 <p>想玩政治，就别留辫子；想赚钱，就别露老脸！//@河南内黄冯改娣儿子冯磊: //@刘志伟--妻:转发微博<br><br>RE: 連爺爺看閱兵 http://t.cn/R2WJvly<br><img src="http://ww1.sinaimg.cn/large/5186d665jw1evnvox6ti9j20k00ef76o.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3882571559462583" target="freeweibo-mirror">SPAM 孩子，这是你的家…《陈真》//@况秀猛:那么多全副…</a>
 </h2>
@@ -132,7 +132,7 @@
 </h2>
 <p>这是中华民族欠他们的债。</p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3882540970276310" target="freeweibo-mirror">//@北方雄鹰01: //@迟夙生律师: //@观世音童:@…</a>
 </h2>
