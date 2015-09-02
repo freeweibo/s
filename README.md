@@ -30,7 +30,7 @@
 </h2>
 <p>当你心跳激昂，可有勇气与我们并肩？！为了维护我们的合法权利与腐败抗争，我们希望良心，我们希望理智，我们希望人性重到人间，让阳光不再黑暗，新的生活即将到来…… http://t.cn/RyA6St4 .</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3882777709213814" target="freeweibo-mirror">SPAM 哪里不对？</a>
 </h2>
