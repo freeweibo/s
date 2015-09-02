@@ -72,7 +72,7 @@
 </h2>
 <p>被东突一家伙轰死就不矫情了//@天涯赵瑜:假设北京每一天都这样，那么……//@风青杨V: 这么多人给你做保镖，还有啥不满的？[酷]//@刀锋论v: //@公正善良:特护……<br><br>RE: 座个地铁都享受国家领导人的保护待遇，作为中国人你还有什么不满的呢？<br><img src="http://ww3.sinaimg.cn/large/005WPOo2jw1evnuyxdhtaj30c80d9aar.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3882566370922240" target="freeweibo-mirror">連爺爺看閱兵 http://t.cn/R2WJvly</a>
 </h2>
