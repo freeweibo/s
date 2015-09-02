@@ -54,7 +54,7 @@
 </h2>
 <p>【抗战小常识】1八路军和新四军是国民革命军旗下的二个番号，也就是国军的组成部分；2中国共产党是中华民国的合法政党；3延安地区为中华民国行政院管辖下的陕甘宁边区；4边区在毛泽东主持下实行一人一票的自由选举；5蒋介石为国民政府主席、军事委员会委员长，毛泽东二次高呼“蒋委员长万岁”。<br><img src="http://ww1.sinaimg.cn/large/9154fba0gw1evoehp2e76j20hs0eamyc.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3882708125662792" target="freeweibo-mirror">【段子】北京现在安检老严了，昨天有人拿着一面党旗坐地铁过安检…</a>
 </h2>
@@ -126,7 +126,7 @@
 </h2>
 <p>SPAM 这个笑话好好笑。。。<br><br>RE: 谷歌新旧logo对比图（中国版）。<br><img src="http://ww2.sinaimg.cn/large/7e948b4djw1evnxz606kkj20c80dw3yt.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3882649019871840" target="freeweibo-mirror">[嘻嘻]//@大连_阿东: [哈哈]//@尘满天--: //…</a>
 </h2>
