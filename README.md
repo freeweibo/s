@@ -66,19 +66,19 @@
 </h2>
 <p>请问最不要脸的政府是哪一家？</p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3882392458521354" target="freeweibo-mirror">一丘之貉都是秋后的蚂蚱，还能蹦等多久[疑问]</a>
 </h2>
 <p>一丘之貉都是秋后的蚂蚱，还能蹦等多久[疑问]</p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3882392298986530" target="freeweibo-mirror">简单的说，isis用推特等煽动国内那些sml，政府架不住的，…</a>
 </h2>
 <p>简单的说，isis用推特等煽动国内那些sml，政府架不住的，所以目前还是屏蔽。 //@希波克拉底门徒:我看古巴快要离席了，伊朗也快了，以后就剩“战斗中用鲜血凝成友谊”的北朝鲜跟其他国家玩二人转了//@特别调查员: 朝鲜、古巴、伊朗等民主国家，都是中国人民的老朋友了，中国不好意思缺席，不然三缺一呀<br><br>RE: 我想问一下，世界上是有一些国家不能正常登录脸书、推特，看看这都是些什么国家（除了天朝）？这还不打紧，试问，世界上还有多少国家封禁谷歌，甚至封禁谷歌学术搜索、《自然》这些学术性网站？真是奇葩中的奇葩，烂货中的烂货。</p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3882389039822239" target="freeweibo-mirror">我想问一下，世界上是有一些国家不能正常登录脸书、推特，看看这…</a>
 </h2>
@@ -96,19 +96,19 @@
 </h2>
 <p>9月1日，新《廣告法》正式施行……從今日起，“太陽最紅毛主席最親”涉嫌廣告語違法……（圖via @吾黑畫）<br><img src="http://ww3.sinaimg.cn/large/006862Njgw1evn9xc2jptj30960dcgmu.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3882369935144633" target="freeweibo-mirror">SPAM //@诗人刀哥: 这样实用，阻挡十三亿人毫无问题！…</a>
 </h2>
 <p>SPAM //@诗人刀哥: 这样实用，阻挡十三亿人毫无问题！[哈哈] //@-孔智勇:如临大敌……<br><br>RE: 某些人灵魂深处的刺。<br><img src="http://ww3.sinaimg.cn/large/41693645gw1evn6vfzxxyj20hs0nqdif.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3882369297996644" target="freeweibo-mirror">外媒称中国军队将迎30年来最大改革 http://t.cn/…</a>
 </h2>
 <p>外媒称中国军队将迎30年来最大改革 http://t.cn/RyZBJRj</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3882367523010811" target="freeweibo-mirror">SPAM 不清楚。小时候看评书，滚木雷石刺马。//@乔志峰:…</a>
 </h2>
@@ -134,9 +134,9 @@
 <p>
 	<small> ============== 1天前</small>
 </p><h2>
-	<a href="https://freeweibo.com/weibo/3882360741205300" target="freeweibo-mirror">//@胡惄:转发微博</a>
+	<a href="https://freeweibo.com/weibo/3882362675333596" target="freeweibo-mirror">北京地铁好威武[酷]</a>
 </h2>
-<p>//@胡惄:转发微博<br><br>RE: 中国的死刑支持者有个他们自己不觉察的逻辑混乱，即他们往往也痛恨腐败与制度不公，可一谈及死刑，立刻将其视为天然合理，仿佛死刑的制度操作是个远离腐败和不公的世外桃源，不晓得包括死刑制度在内的总体性制度不公，使得死刑本身远比其他任何制度都更严重更无法纠正且不可逆地伤害无辜。</p>
+<p>北京地铁好威武[酷]<br><img src="http://ww1.sinaimg.cn/large/006cSyQigw1evn8arunvuj30d60hsjsk.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
