@@ -38,6 +38,12 @@
 <p>
 	<small> ============== 4小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3882660437118081" target="freeweibo-mirror">幸亏再有半天反法西斯就胜利了，不然的话，首都人民真扛不住了。</a>
+</h2>
+<p>幸亏再有半天反法西斯就胜利了，不然的话，首都人民真扛不住了。</p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3882657459000666" target="freeweibo-mirror">//@谷大白话: 转发微博 http://t.cn/RyAh…</a>
 </h2>
 <p>//@谷大白话: 转发微博 http://t.cn/RyAhaD5<br><br>RE: 谷歌新旧logo对比图（中国版）。<br><img src="http://ww2.sinaimg.cn/large/7e948b4djw1evnxz606kkj20c80dw3yt.jpg"></p>
@@ -132,13 +138,7 @@
 </h2>
 <p>阅兵最好不要把国军老兵和八路新四军老兵放同一辆车上，担心一句不合会打起来。我采访过东江纵队老战士，一老战士说：孩子让我去旅游，两个地方我绝不去，一个日本一个台湾。另一老战士谈及国军，一脸鄙夷。军人都骄傲，瞧不起败兵。[挖鼻]</p>
 <p>
-	<small> ============== 8小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3882596570488874" target="freeweibo-mirror">哈萨克斯坦总统签了230亿美元合同、委内瑞拉总统签了50亿美…</a>
-</h2>
-<p>哈萨克斯坦总统签了230亿美元合同、委内瑞拉总统签了50亿美元合同。。。。。敢情这些外国大大们都是来签合同的吗？[笑cry]<br><img src="http://ww4.sinaimg.cn/large/005DFMKzgw1evnz5zrigaj30c80lqjtr.jpg"></p>
-<p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p>
 <table>
     <tr>
