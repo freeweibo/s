@@ -50,6 +50,12 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3882730008224839" target="freeweibo-mirror">【抗战小常识】1八路军和新四军是国民革命军旗下的二个番号，也…</a>
+</h2>
+<p>【抗战小常识】1八路军和新四军是国民革命军旗下的二个番号，也就是国军的组成部分；2中国共产党是中华民国的合法政党；3延安地区为中华民国行政院管辖下的陕甘宁边区；4边区在毛泽东主持下实行一人一票的自由选举；5蒋介石为国民政府主席、军事委员会委员长，毛泽东二次高呼“蒋委员长万岁”。<br><img src="http://ww1.sinaimg.cn/large/9154fba0gw1evoehp2e76j20hs0eamyc.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3882708125662792" target="freeweibo-mirror">【段子】北京现在安检老严了，昨天有人拿着一面党旗坐地铁过安检…</a>
 </h2>
 <p>【段子】北京现在安检老严了，昨天有人拿着一面党旗坐地铁过安检，出来之后变成了一块红布，镰刀，锤子都被没收了……<br><img src="http://ww1.sinaimg.cn/large/005XCrt5jw1evobz2kwudj30m80go0v1.jpg"></p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3882647442532870" target="freeweibo-mirror">北京现在安检老严了，昨天有人拿着一面党旗坐地铁过安检，出来之…</a>
 </h2>
 <p>北京现在安检老严了，昨天有人拿着一面党旗坐地铁过安检，出来之后变成了一块红布，镰刀，锤子都被没收了…转<br><img src="http://ww1.sinaimg.cn/large/e6a570c1jw1evo50957mhj20qo0fp75q.jpg"></p>
-<p>
-	<small> ============== 8小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3882637267771260" target="freeweibo-mirror">//@黄山下的老愚民: //@无蛋可疼_: //@街头V海:…</a>
-</h2>
-<p>//@黄山下的老愚民: //@无蛋可疼_: //@街头V海: 天宽地阔，竟容不得一个秀才驻足… //@救赎-醉侠老高:[哼][推荐]//@第五只草泥馬衝鋒:以前的土匪都不會為難讀書人（秀才）//@被淹死的金枪鱼三世:卧槽，没公款不幸福哦//@救赎-醉侠老高:秀才遇着匪，有理无法说！[挖鼻屎]</p>
 <p>
 	<small> ============== 8小时前</small>
 </p>
