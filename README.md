@@ -78,13 +78,13 @@
 </h2>
 <p>SPAM 哪里不对？<br><br>RE: 总感觉哪里不对[思考]<br><img src="http://ww1.sinaimg.cn/large/4c7f9b17jw1evogyloq3nj20b407l74u.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3882777466162228" target="freeweibo-mirror">今晚的北京灯光辉煌，普天同庆。就是不知道要花多少电费？</a>
 </h2>
 <p>今晚的北京灯光辉煌，普天同庆。就是不知道要花多少电费？<br><img src="http://ww2.sinaimg.cn/large/006d9UqQgw1evojvznldqj30m80etq6r.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3882771460622960" target="freeweibo-mirror">嗯嗯，敌后战场也有国军，这些算不算？→_→冈村宁次：投降日军…</a>
 </h2>
@@ -116,6 +116,12 @@
 <p>
 	<small> ============== 5小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3882758009319187" target="freeweibo-mirror">最近频繁被销号后，以前很多不支持我上微博的朋友，都为我鸣不平…</a>
+</h2>
+<p>最近频繁被销号后，以前很多不支持我上微博的朋友，都为我鸣不平，他们都认为当局蛮不讲理的做法已经释放出一种强烈的信号，这个国家将逐渐的走向极权专制了，如果大家还沉默不言，不但我们这一代人遭罪，下一代也将生活在恐惧当中。追求民主自由是每个人应有的权利，你们凭什么剥夺我们的发言权？</p>
+<p>
+	<small> ============== 5小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3882751667351660" target="freeweibo-mirror">总感觉哪里不对[思考]</a>
 </h2>
 <p>总感觉哪里不对[思考]<br><img src="http://ww1.sinaimg.cn/large/4c7f9b17jw1evogyloq3nj20b407l74u.jpg"></p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3882751180604309" target="freeweibo-mirror">//@杨浩HoYeung:要爱党爱政府，不要给国家添乱，马上…</a>
 </h2>
 <p>//@杨浩HoYeung:要爱党爱政府，不要给国家添乱，马上要阅兵了！</p>
-<p>
-	<small> ============== 5小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3882750547804642" target="freeweibo-mirror">右边正解。 //@兔子老愚:从来没有一个所谓的国民党政府和国…</a>
-</h2>
-<p>右边正解。 //@兔子老愚:从来没有一个所谓的国民党政府和国民党军队，只有中华民国政府和国军。<br><br>RE: 【抗战小常识】1八路军和新四军是国民革命军旗下的二个番号，也就是国军的组成部分；2中国共产党是中华民国的合法政党；3延安地区为中华民国行政院管辖下的陕甘宁边区；4边区在毛泽东主持下实行一人一票的自由选举；5蒋介石为国民政府主席、军事委员会委员长，毛泽东二次高呼“蒋委员长万岁”。<br><img src="http://ww1.sinaimg.cn/large/9154fba0gw1evoehp2e76j20hs0eamyc.jpg"></p>
 <p>
 	<small> ============== 5小时前</small>
 </p>
