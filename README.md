@@ -26,6 +26,12 @@
 <p>
 	<small> ============== 1小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3882708125662792" target="freeweibo-mirror">【段子】北京现在安检老严了，昨天有人拿着一面党旗坐地铁过安检…</a>
+</h2>
+<p>【段子】北京现在安检老严了，昨天有人拿着一面党旗坐地铁过安检，出来之后变成了一块红布，镰刀，锤子都被没收了……<br><img src="http://ww1.sinaimg.cn/large/005XCrt5jw1evobz2kwudj30m80go0v1.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3882700186310903" target="freeweibo-mirror">SPAM 发现一个琥 珀 蜜 蜡 的徽博！超赞哦~~</a>
 </h2>
 <p>SPAM 发现一个琥 珀 蜜 蜡 的徽博！超赞哦~~</p>
@@ -60,19 +66,19 @@
 </h2>
 <p>人民军队忠于党！因为党是忠于人民的，党除了人民的利益，没有自己的利益。因此，我们忠于党也就是忠于人民！————这时一个新兵举手要求说话，获准后，他说：那我们直接忠于人民不就行了？我告诉他：人民很抽象，不具体。他看着我说：那就是忠于你呗？因为党不也是抽象的么？九零后的兵，不好带啊！<br><img src="http://ww3.sinaimg.cn/large/7fd6e271jw1evo6iq33stj20c80cawfk.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3882660570702630" target="freeweibo-mirror">SPAM 呵呵呵你国的404</a>
 </h2>
 <p>SPAM 呵呵呵你国的404<br><br>RE: 谷歌新旧logo对比图（中国版）。<br><img src="http://ww2.sinaimg.cn/large/7e948b4djw1evnxz606kkj20c80dw3yt.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3882660437118081" target="freeweibo-mirror">幸亏再有半天反法西斯就胜利了，不然的话，首都人民真扛不住了。</a>
 </h2>
 <p>幸亏再有半天反法西斯就胜利了，不然的话，首都人民真扛不住了。</p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3882657459000666" target="freeweibo-mirror">//@谷大白话: 转发微博 http://t.cn/RyAh…</a>
 </h2>
@@ -126,17 +132,11 @@
 </h2>
 <p>“手机上市前送我们实验室测下，帮你们找找问题吧”，“可是我们有自己的测试室呀”，“你们那个不专业，我们连央视都敢撕”，“噢，多少钱呀？”，“20万”，“……那我们要是不送你们会不会骂我们呀”，“不会不会，我们实验室和媒体完全隔离，我们会像坚果一样到市场采购，正常评测的”，“……送”</p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3882628509521809" target="freeweibo-mirror">SPAM 軍人都驕傲，瞧不起敗兵。那日軍肯定瞧不起中國各色兵…</a>
 </h2>
 <p>SPAM 軍人都驕傲，瞧不起敗兵。那日軍肯定瞧不起中國各色兵。</p>
-<p>
-	<small> ============== 9小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3882621576416315" target="freeweibo-mirror">SPAM 水军[哈哈]</a>
-</h2>
-<p>SPAM 水军[哈哈]<br><br>RE: 这算什么兵种?<br><img src="http://ww4.sinaimg.cn/large/7e848a37jw1evo1h2420dj20c80ec765.jpg"></p>
 <p>
 	<small> ============== 9小时前</small>
 </p>
