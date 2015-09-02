@@ -42,7 +42,7 @@
 </h2>
 <p>SPAM //@导演高晓舰小号: //@真妮花的愛-:Repost<br><br>RE: 【段子】北京现在安检老严了，昨天有人拿着一面党旗坐地铁过安检，出来之后变成了一块红布，镰刀，锤子都被没收了……<br><img src="http://ww1.sinaimg.cn/large/005XCrt5jw1evobz2kwudj30m80go0v1.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3882735515122011" target="freeweibo-mirror">这个才好看，这些不解决法律就是摆设</a>
 </h2>
