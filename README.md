@@ -32,6 +32,12 @@
 <p>
 	<small> ============== 1小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3882596683020537" target="freeweibo-mirror">阅兵最好不要把国军老兵和八路新四军老兵放同一辆车上，担心一句…</a>
+</h2>
+<p>阅兵最好不要把国军老兵和八路新四军老兵放同一辆车上，担心一句不合会打起来。我采访过东江纵队老战士，一老战士说：孩子让我去旅游，两个地方我绝不去，一个日本一个台湾。另一老战士谈及国军，一脸鄙夷。军人都骄傲，瞧不起败兵。[挖鼻]</p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3882596230820660" target="freeweibo-mirror">//@十年砍柴: 你抹掉的是“刘万永同志”么？党的十八大代表…</a>
 </h2>
 <p>//@十年砍柴: 你抹掉的是“刘万永同志”么？党的十八大代表，也就这些福利了。<br><br>RE: 正版請柬。<br><img src="http://ww2.sinaimg.cn/large/65cc9274jw1evnfxujo80j20zk0oegq5.jpg"></p>
@@ -96,7 +102,7 @@
 </h2>
 <p>SPAM  //@米家那个山:哪里？<br><br>RE: 北京地铁站<br><img src="http://ww4.sinaimg.cn/large/680d8f00gw1evnuundv6ij20c80gbdhd.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3882560146704513" target="freeweibo-mirror">座个地铁都享受国家领导人的保护待遇，作为中国人你还有什么不满…</a>
 </h2>
@@ -126,17 +132,11 @@
 </h2>
 <p>//@品格教育父母教练: 转发微博<br><br>RE: 一种鬼子进村扫荡、人民坚壁清野的历史感，沉甸甸的。</p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3882546578230322" target="freeweibo-mirror">//@榆木根V: //@砀山人_在上海L: //@天池岁月1…</a>
 </h2>
 <p>//@榆木根V: //@砀山人_在上海L: //@天池岁月1: //@游飞翥: //@埃玛Emma:正因为深深热爱这个国家，才不希望记者和律师成为高危职业。正是这两个群体的坚守和努力，才使奢侈的真相不至绝迹。 //@北京袁丽萍律师://@郑湘律师: //@王楚襄在赵国://@崔小平律师://@邓树林律师://@纯情的肉包包:</p>
-<p>
-	<small> ============== 7小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3882544740774665" target="freeweibo-mirror">SPAM //@Window1234: //@沙沙11://…</a>
-</h2>
-<p>SPAM //@Window1234: //@沙沙11://@博者文摘: //@刘力博士: //@顾明峰://@初二2012://@榆木根V:/@饮水居士:什么叫做草木皆兵？ //@饭扯:三个自信荡然无存啊哈哈//@水兵李铭: 祖国强大了啊！国富警强！热泪盈眶！<br><br>RE: 同学公司在国贸附近，上午JC带着警犬去拜访，两个字“服”。。。<br><img src="http://ww4.sinaimg.cn/large/6d349c6fjw1evnc8pjskfj20dc0gggoa.jpg"></p>
 <p>
 	<small> ============== 7小时前</small>
 </p>
