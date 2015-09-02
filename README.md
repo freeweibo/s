@@ -72,13 +72,13 @@
 </h2>
 <p>刚在脸书上看到的，看笑了，居然称自己为其他国家！[笑cry][抓狂][衰]<br><img src="http://ww1.sinaimg.cn/large/be86a49cgw1evo343817ij20mf0gj76b.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3882630951097157" target="freeweibo-mirror">回复@老酸菜s:国军军事顾问是冈村宁次这事儿大家知道吗//@…</a>
 </h2>
 <p>回复@老酸菜s:国军军事顾问是冈村宁次这事儿大家知道吗//@老酸菜s:当年日本兵参加解放军 然后打死了很多国军 这些人知道吗<br><br>RE: 阅兵最好不要把国军老兵和八路新四军老兵放同一辆车上，担心一句不合会打起来。我采访过东江纵队老战士，一老战士说：孩子让我去旅游，两个地方我绝不去，一个日本一个台湾。另一老战士谈及国军，一脸鄙夷。军人都骄傲，瞧不起败兵。[挖鼻]</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3882630334881816" target="freeweibo-mirror">“手机上市前送我们实验室测下，帮你们找找问题吧”，“可是我们…</a>
 </h2>
@@ -102,7 +102,7 @@
 </h2>
 <p>这算什么兵种?<br><img src="http://ww4.sinaimg.cn/large/7e848a37jw1evo1h2420dj20c80ec765.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3882613330950432" target="freeweibo-mirror">SPAM //@IAN-Cheung:不给钱能来嘛，早就应该…</a>
 </h2>
