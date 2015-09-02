@@ -30,7 +30,7 @@
 </h2>
 <p>【永无天日】<br><br>RE: 【老兵：我不该参加国军抗日！】49年后，国民革命军的军人一律被称为“伪军”“反革命”。他们是镇压、批斗、改造的对象。钱青就是这样的一个老反革命。他三次被判处徒刑,一共在狱中渡过26个春夏秋冬。他们本是民族英雄，抗战胜利时他们也曾感到过无上光荣。http://t.cn/RZdJTS9<br><img src="http://ww1.sinaimg.cn/large/41693645gw1evnseq0u8tj20wa18gqbj.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3882549170140119" target="freeweibo-mirror">//@品格教育父母教练: 转发微博</a>
 </h2>
@@ -72,13 +72,13 @@
 </h2>
 <p>法西斯在这国成为一个很微妙的词语 //@喷嚏网铂程://@雷颐: //@法律案例-文史典故:中國不是《國際刑事法院羅馬規約》的締約國</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3882525229219831" target="freeweibo-mirror">哈哈 //@LifeTime:印度上来一位小号邓小平，中国迎…</a>
 </h2>
 <p>哈哈 //@LifeTime:印度上来一位小号邓小平，中国迎来小号毛泽东。[汗]</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3882521634373604" target="freeweibo-mirror">有意思。</a>
 </h2>
@@ -102,7 +102,7 @@
 </h2>
 <p>//@水兵李铭: //@玳簋21:转发微博</p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3882394820517346" target="freeweibo-mirror">//@邵明波://@金陵酒徒仓氏: [阴险] //@秦州閑人…</a>
 </h2>
