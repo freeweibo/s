@@ -48,7 +48,7 @@
 </h2>
 <p>SPAM 哪里不对？<br><br>RE: 总感觉哪里不对[思考]<br><img src="http://ww1.sinaimg.cn/large/4c7f9b17jw1evogyloq3nj20b407l74u.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3882771460622960" target="freeweibo-mirror">嗯嗯，敌后战场也有国军，这些算不算？→_→冈村宁次：投降日军…</a>
 </h2>
