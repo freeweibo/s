@@ -114,7 +114,7 @@
 </h2>
 <p>#突发#目前发生地还无法确定，扩散了，求解释[话筒][话筒] http://t.cn/RyAMmEQ .</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3882751667351660" target="freeweibo-mirror">总感觉哪里不对[思考]</a>
 </h2>
