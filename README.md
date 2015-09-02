@@ -90,7 +90,7 @@
 </h2>
 <p>SPAM 軍人都驕傲，瞧不起敗兵。那日軍肯定瞧不起中國各色兵。</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3882621576416315" target="freeweibo-mirror">SPAM 水军[哈哈]</a>
 </h2>
@@ -108,7 +108,7 @@
 </h2>
 <p>SPAM //@IAN-Cheung:不给钱能来嘛，早就应该明白<br><br>RE: 哈萨克斯坦总统签了230亿美元合同、委内瑞拉总统签了50亿美元合同。。。。。敢情这些外国大大们都是来签合同的吗？[笑cry]<br><img src="http://ww4.sinaimg.cn/large/005DFMKzgw1evnz5zrigaj30c80lqjtr.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3882606812442779" target="freeweibo-mirror">//@省港通缉犯:习近平请我，我都没去！我怕给党抹黑 //@…</a>
 </h2>
