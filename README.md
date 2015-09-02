@@ -44,6 +44,12 @@
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3882599632432005" target="freeweibo-mirror">把国际通辑儿招来了，这是要与世隔绝的节奏。</a>
+</h2>
+<p>把国际通辑儿招来了，这是要与世隔绝的节奏。<br><img src="http://ww2.sinaimg.cn/large/0064Co4Vgw1evnzh83pv0j30c80gyjsp.jpg"></p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3882596683020537" target="freeweibo-mirror">阅兵最好不要把国军老兵和八路新四军老兵放同一辆车上，担心一句…</a>
 </h2>
 <p>阅兵最好不要把国军老兵和八路新四军老兵放同一辆车上，担心一句不合会打起来。我采访过东江纵队老战士，一老战士说：孩子让我去旅游，两个地方我绝不去，一个日本一个台湾。另一老战士谈及国军，一脸鄙夷。军人都骄傲，瞧不起败兵。[挖鼻]</p>
@@ -96,7 +102,7 @@
 </h2>
 <p>SPAM 大阅兵与大管制 - 评论 - FT中文网 在当下中国，似乎已经形成了这样一种悖论：大型活动要想举办成功，就必须实施管控，而且管控越严才能确保举办越成功；但管控越严，其对日常生活秩序的破坏与冲击就越强，社会秩序被破坏越多，所谓成功举办的意义就越被消解。 http://t.cn/RywRpaY<br><img src="http://ww2.sinaimg.cn/large/513a2b80jw1evnw3flvp0j202102iq2v.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3882568539572472" target="freeweibo-mirror">被东突一家伙轰死就不矫情了//@天涯赵瑜:假设北京每一天都这…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3882557978900592" target="freeweibo-mirror">SPAM //@巴蜀君23: 我搬张沙发，再把茶泡好来看热闹…</a>
 </h2>
 <p>SPAM //@巴蜀君23: 我搬张沙发，再把茶泡好来看热闹，评论里面太精彩了[嘻嘻]<br><br>RE: 有组织，有预谋，谁导演的出来保证不打湿你。 http://t.cn/RywHYiv .</p>
-<p>
-	<small> ============== 6小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3882555801766490" target="freeweibo-mirror">【永无天日】</a>
-</h2>
-<p>【永无天日】<br><br>RE: 【老兵：我不该参加国军抗日！】49年后，国民革命军的军人一律被称为“伪军”“反革命”。他们是镇压、批斗、改造的对象。钱青就是这样的一个老反革命。他三次被判处徒刑,一共在狱中渡过26个春夏秋冬。他们本是民族英雄，抗战胜利时他们也曾感到过无上光荣。http://t.cn/RZdJTS9<br><img src="http://ww1.sinaimg.cn/large/41693645gw1evnseq0u8tj20wa18gqbj.jpg"></p>
 <p>
 	<small> ============== 6小时前</small>
 </p>
