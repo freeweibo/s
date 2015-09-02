@@ -48,7 +48,13 @@
 </h2>
 <p>[嘻嘻]//@大连_阿东: [哈哈]//@尘满天--: //@东岳晚晴:[笑cry]我是其他国家人//@率率王乐妮a: [偷笑]//@WildCat212: 以后老夫就是“其他国家”的臣民了//@scarlett冰与火: 这发明,杠杠地啊 //@率妮妮再来:中国的新国名：其他国家。[偷笑] //@豆名阳: [笑cry]掩耳盗铃。。。<br><br>RE: 刚在脸书上看到的，看笑了，居然称自己为其他国家！[笑cry][抓狂][衰]<br><img src="http://ww1.sinaimg.cn/large/be86a49cgw1evo343817ij20mf0gj76b.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3882647442532870" target="freeweibo-mirror">北京现在安检老严了，昨天有人拿着一面党旗坐地铁过安检，出来之…</a>
+</h2>
+<p>北京现在安检老严了，昨天有人拿着一面党旗坐地铁过安检，出来之后变成了一块红布，镰刀，锤子都被没收了…转<br><img src="http://ww1.sinaimg.cn/large/e6a570c1jw1evo50957mhj20qo0fp75q.jpg"></p>
+<p>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3882637267771260" target="freeweibo-mirror">//@黄山下的老愚民: //@无蛋可疼_: //@街头V海:…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3882586285707858" target="freeweibo-mirror">谷歌新旧logo对比图（中国版）。</a>
 </h2>
 <p>谷歌新旧logo对比图（中国版）。<br><img src="http://ww2.sinaimg.cn/large/7e948b4djw1evnxz606kkj20c80dw3yt.jpg"></p>
-<p>
-	<small> ============== 8小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3882582800252303" target="freeweibo-mirror">这么大事中方没有报道啊。 //@北京大众2015:50多个国…</a>
-</h2>
-<p>这么大事中方没有报道啊。 //@北京大众2015:50多个国家，总共花费多少？ //@邵明波:面子真的值钱哎！//@ICO刘开明: //@隐者飞飞: [围观][挖鼻]没钱谁起早啊。//@袁东1972: 转发微博<br><br>RE: 出场费一人一份<br><img src="http://ww3.sinaimg.cn/large/8dd446e3jw1evnwgrhkvhj20u318ggwe.jpg"></p>
 <p>
 	<small> ============== 8小时前</small>
 </p>
