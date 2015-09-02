@@ -62,6 +62,12 @@
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3882777466162228" target="freeweibo-mirror">今晚的北京灯光辉煌，普天同庆。就是不知道要花多少电费？</a>
+</h2>
+<p>今晚的北京灯光辉煌，普天同庆。就是不知道要花多少电费？<br><img src="http://ww2.sinaimg.cn/large/006d9UqQgw1evojvznldqj30m80etq6r.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3882771460622960" target="freeweibo-mirror">嗯嗯，敌后战场也有国军，这些算不算？→_→冈村宁次：投降日军…</a>
 </h2>
 <p>嗯嗯，敌后战场也有国军，这些算不算？→_→冈村宁次：投降日军的伪军将领称：我们是想和日军一起消灭共产党，我们至今仍在接受重庆国民政府军饷。我们不能参加对中央军作战，而愿协助维持后方治安。http://t.cn/RywkI9a<br><br>RE: 打臉連戰！國史館：中共領導敵後戰場的說法不存在！<br><img src="http://ww4.sinaimg.cn/large/0068NIJzjw1evneesjnpwj30hs0jb0uk.jpg"></p>
@@ -133,12 +139,6 @@
 <p>【抗战小常识】1八路军和新四军是国民革命军旗下的二个番号，也就是国军的组成部分；2中国共产党是中华民国的合法政党；3延安地区为中华民国行政院管辖下的陕甘宁边区；4边区在毛泽东主持下实行一人一票的自由选举；5蒋介石为国民政府主席、军事委员会委员长，毛泽东二次高呼“蒋委员长万岁”。<br><img src="http://ww1.sinaimg.cn/large/9154fba0gw1evoehp2e76j20hs0eamyc.jpg"></p>
 <p>
 	<small> ============== 6小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3882708125662792" target="freeweibo-mirror">【段子】北京现在安检老严了，昨天有人拿着一面党旗坐地铁过安检…</a>
-</h2>
-<p>【段子】北京现在安检老严了，昨天有人拿着一面党旗坐地铁过安检，出来之后变成了一块红布，镰刀，锤子都被没收了……<br><img src="http://ww1.sinaimg.cn/large/005XCrt5jw1evobz2kwudj30m80go0v1.jpg"></p>
-<p>
-	<small> ============== 8小时前</small>
 </p>
 <table>
     <tr>
