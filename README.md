@@ -78,7 +78,7 @@
 </h2>
 <p>SPAM //@晓辰:轉發微博<br><br>RE: 不明白这段掷地有声的话语，为何就不能发？ http://t.cn/RyAdnwI .</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3883033012240022" target="freeweibo-mirror">【煽情不必用形容词】没能向大家走来的还有国军方队，他们参加了…</a>
 </h2>
@@ -101,6 +101,12 @@
 	<a href="https://freeweibo.com/weibo/3883026008524479" target="freeweibo-mirror">SPAM //@天圆地方3511E: //@郁闷的东北虎:嗯…</a>
 </h2>
 <p>SPAM //@天圆地方3511E: //@郁闷的东北虎:嗯，有道理。<br><br>RE: 建筑学中有一个很形象的比喻：只换一个包工头，想领着原来一帮盖草房的泥瓦匠盖起高楼大厦，简直是天方夜谭。</p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3883023780818325" target="freeweibo-mirror">假如习大大宣布解散城管部队，一定最得人心！</a>
+</h2>
+<p>假如习大大宣布解散城管部队，一定最得人心！</p>
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3883010275278500" target="freeweibo-mirror">//@江荣生:罪名真多啊 //@王鹏律师:境外？</a>
 </h2>
 <p>//@江荣生:罪名真多啊 //@王鹏律师:境外？</p>
-<p>
-	<small> ============== 4小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3883010200026173" target="freeweibo-mirror">罪名真多啊 //@王鹏律师:境外？</a>
-</h2>
-<p>罪名真多啊 //@王鹏律师:境外？</p>
 <p>
 	<small> ============== 4小时前</small>
 </p>
