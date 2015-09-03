@@ -66,7 +66,7 @@
 </h2>
 <p>SPAM  请告诉我，所有的会战，八路新四军参加了几次？//@雷霆一击普沙皇:抗战的国军老兵还能坐车接受检阅，弯弯那里有八路老兵吗？而且这么多会战，打赢的有几次？//@释不归:闻诸先辈云：平江李次青元度本书生，不知兵。曾国藩令其将兵作战，屡战屡败。国藩大怒，拟奏文劾之，有“屡战屡败”语。<br><br>RE: 【煽情不必用形容词】没能向大家走来的还有国军方队，他们参加了淞沪会战、太原会战、南京保卫战、徐州会战、武汉会战、随枣会战 、枣宜会战、南昌会战、上高会战、中条山会战、第一次长沙会战、第二次长沙会战、第三次长沙会战、浙赣会战、鄂西会战、常德会战、豫中会战、长衡会战、缅北会战…（转）<br><img src="http://ww3.sinaimg.cn/large/537cc0fdjw1evpdagdbd1j20kv0hsmz4.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3883040281427189" target="freeweibo-mirror">//@陈业文新大都: →_→ //@张四少:站起來了不是说说…</a>
 </h2>
@@ -134,9 +134,9 @@
 <p>
 	<small> ============== 4小时前</small>
 </p><h2>
-	<a href="https://freeweibo.com/weibo/3883013513311556" target="freeweibo-mirror">中</a>
+	<a href="https://freeweibo.com/weibo/3883019179494469" target="freeweibo-mirror">SPAM vip... //@Top-Cars://@D调的…</a>
 </h2>
-<p>中<br><br>RE: 很不幸的告诉大家，今天早上你们所看到的抗日胜利70周年纪念阅兵直播，都TM是日本摄像机拍的……</p>
+<p>SPAM vip... //@Top-Cars://@D调的turbo:哈哈哈！<br><br>RE: 国家有理想 人民有希望</p>
 <p>
 	<small> ============== 4小时前</small>
 </p>
