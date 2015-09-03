@@ -20,6 +20,24 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3882902791775299" target="freeweibo-mirror">SPAM 超级厌恶阅兵，一群税猪欣赏屠夫磨刀霍霍，该是多么讽…</a>
+</h2>
+<p>SPAM 超级厌恶阅兵，一群税猪欣赏屠夫磨刀霍霍，该是多么讽刺。但我会看一下女兵方阵，要让人相信，人还是有美的东西。</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3882902582812423" target="freeweibo-mirror">//@君众咨询邓学君: 现在还有？//@北京磬石: //@西…</a>
+</h2>
+<p>//@君众咨询邓学君: 现在还有？//@北京磬石: //@西郭山人: //@郭顺guoshun: @老范老烦: //@度为王<br><br>RE: 文革其实是一场邪教运动、它的特点与邪教高度重合——对神无限膜拜、集体洗脑、排斥一切外来文明、利用谎言让人民沉浸在虚妄的幸福之中，利用暴力让人民不敢有怀疑和反抗；......它颠覆美丑，扭曲人性、无视道德，践踏法制、虚无历史，对中华民族的戕害至今还在延续..........<br><img src="http://ww4.sinaimg.cn/large/6edbf5eejw1evo6i1ujhyj209e0dmdhg.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3882892125668278" target="freeweibo-mirror">SPAM 早，你们到观礼台了吗？[doge]</a>
+</h2>
+<p>SPAM 早，你们到观礼台了吗？[doge]<br><br>RE: 感觉我的朋友圈已经沦陷了，明天大家都好忙[笑cry]<br><img src="http://ww2.sinaimg.cn/large/96018969jw1evoirbw7fbj20p018gaeq.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3882887843825993" target="freeweibo-mirror">SPAM 那样的话今天也是一样的活动吧//@PTR竞技：岸英…</a>
 </h2>
 <p>SPAM 那样的话今天也是一样的活动吧//@PTR竞技：岸英不死的话，这会儿也80多了，该让位于新宇了。如果这样，新宇和金三胖要为天蓬元帅竞争上岗咯。</p>
@@ -84,13 +102,13 @@
 </h2>
 <p>为什么不让说话呢？高压锅也有排气阀的 //@再现-:力荐关注纯真新号@纯真的年代12<br><br>RE: 最近频繁被销号后，以前很多不支持我上微博的朋友，都为我鸣不平，他们都认为当局蛮不讲理的做法已经释放出一种强烈的信号，这个国家将逐渐的走向极权专制了，如果大家还沉默不言，不但我们这一代人遭罪，下一代也将生活在恐惧当中。追求民主自由是每个人应有的权利，你们凭什么剥夺我们的发言权？</p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3882787339394284" target="freeweibo-mirror">//@豆名阳: 他怒了！</a>
 </h2>
 <p>//@豆名阳: 他怒了！</p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3882786152521986" target="freeweibo-mirror">当你心跳激昂，可有勇气与我们并肩？！为了维护我们的合法权利与…</a>
 </h2>
@@ -121,24 +139,6 @@
 <p>今晚的北京灯光辉煌，普天同庆。就是不知道要花多少电费？<br><img src="http://ww2.sinaimg.cn/large/006d9UqQgw1evojvznldqj30m80etq6r.jpg"></p>
 <p>
 	<small> ============== 9小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3882771460622960" target="freeweibo-mirror">嗯嗯，敌后战场也有国军，这些算不算？→_→冈村宁次：投降日军…</a>
-</h2>
-<p>嗯嗯，敌后战场也有国军，这些算不算？→_→冈村宁次：投降日军的伪军将领称：我们是想和日军一起消灭共产党，我们至今仍在接受重庆国民政府军饷。我们不能参加对中央军作战，而愿协助维持后方治安。http://t.cn/RywkI9a<br><br>RE: 打臉連戰！國史館：中共領導敵後戰場的說法不存在！<br><img src="http://ww4.sinaimg.cn/large/0068NIJzjw1evneesjnpwj30hs0jb0uk.jpg"></p>
-<p>
-	<small> ============== 10小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3882768512054356" target="freeweibo-mirror">国军在敌后战场的确很多，比战死的国军都多，但都是投降做了汉奸…</a>
-</h2>
-<p>国军在敌后战场的确很多，比战死的国军都多，但都是投降做了汉奸的伪军，成了二狗子的国军你们国民党自己认不认啊？//@安崇民: 部分在敌后国军，悉数作了鬼魂或伪军。博主回那馆问问去，老安说错没有？[衰]<br><br>RE: 打臉連戰！國史館：中共領導敵後戰場的說法不存在！<br><img src="http://ww4.sinaimg.cn/large/0068NIJzjw1evneesjnpwj30hs0jb0uk.jpg"></p>
-<p>
-	<small> ============== 10小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3882767156791560" target="freeweibo-mirror">SPAM //@赤峰龙腾:转发微博</a>
-</h2>
-<p>SPAM //@赤峰龙腾:转发微博<br><br>RE: #突发#目前发生地还无法确定，扩散了，求解释[话筒][话筒] http://t.cn/RyAMmEQ .</p>
-<p>
-	<small> ============== 10小时前</small>
 </p>
 <table>
     <tr>
