@@ -30,7 +30,7 @@
 </h2>
 <p>SPAM 同一支軍隊，同一個地方，可以屠殺自己的人民，又可以搶別人的功勞紀念抗敵勝利。</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3882994391603229" target="freeweibo-mirror">SPAM  //@-孔智勇:切徐…… //@依旧尤脉: 国共…</a>
 </h2>
@@ -72,25 +72,25 @@
 </h2>
 <p>SPAM 懂得！//@小麻煩君:哈哈哈哈哈笑死我了 果然真爱[害羞]</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3882980533650016" target="freeweibo-mirror">SPAM 回复@五毒居士:[嘻嘻]//@五毒居士:我主要是做…</a>
 </h2>
 <p>SPAM 回复@五毒居士:[嘻嘻]//@五毒居士:我主要是做了那三件事。一點微小的工作，很慚愧，謝謝大家！<br><br>RE: 老领导：三！个代表<br><img src="http://ww3.sinaimg.cn/large/6d0b6b33gw1evp67vutb1j20c80hiwfn.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3882980353645781" target="freeweibo-mirror">守望相助，点击为盼！ 阅兵不如悦民！ //@内蒙敲诈ZF被捕…</a>
 </h2>
 <p>守望相助，点击为盼！ 阅兵不如悦民！ //@内蒙敲诈ZF被捕访民赵艳波: //@内蒙敲诈ZF被捕访民赵艳波: //@lawyerchina1999: //@济南舒向新: 转发微博</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3882980009306394" target="freeweibo-mirror">SPAM 横店时刻//@朱学东: //@简直:毫无疑问，本次…</a>
 </h2>
 <p>SPAM 横店时刻//@朱学东: //@简直:毫无疑问，本次横店活动的积极作用在于提升了民国抗战正史的公众认知度。//@飚滮：中国军人形象！[good]</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3882979367141946" target="freeweibo-mirror">SPAM  //@简直:毫无疑问，本次横店活动的积极作用在于…</a>
 </h2>
@@ -116,6 +116,12 @@
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3882972623108710" target="freeweibo-mirror">今日有感：一，阅兵还是有所保留的，最能打的城管方队和最耐打的…</a>
+</h2>
+<p>今日有感：一，阅兵还是有所保留的，最能打的城管方队和最耐打的股民方队都没有出现。二，央视直播不过而而，没什么惊艳。连女兵的特写都没有。三，散了吧，明天问问天津还火不火。<br><img src="http://ww2.sinaimg.cn/large/68f3cf9cgw1evp6bt7avyj20hs0dc0v3.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3882971931471629" target="freeweibo-mirror">SPAM 人要是牛逼到一定份儿上，举错手都有人帮着给想辙。</a>
 </h2>
 <p>SPAM 人要是牛逼到一定份儿上，举错手都有人帮着给想辙。</p>
@@ -128,15 +134,9 @@
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
-	<a href="https://freeweibo.com/weibo/3882970006286809" target="freeweibo-mirror">救。。。失血。。。我还能。。。趴。。。</a>
+	<a href="https://freeweibo.com/weibo/3882970555438509" target="freeweibo-mirror">我觉得阅兵的时候应该空出一大截，然后军乐照响，大家若无其事，…</a>
 </h2>
-<p>救。。。失血。。。我还能。。。趴。。。</p>
-<p>
-	<small> ============== 3小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3882969691536422" target="freeweibo-mirror">SPAM 感悟:阅兵还是有所保留的，最能打的城管方队和最耐打…</a>
-</h2>
-<p>SPAM 感悟:阅兵还是有所保留的，最能打的城管方队和最耐打的股民方队都没有出现。[偷笑][偷笑][偷笑]<br><img src="http://ww3.sinaimg.cn/large/49fdbfd4jw1evp60qii6vj20f00qo402.jpg"></p>
+<p>我觉得阅兵的时候应该空出一大截，然后军乐照响，大家若无其事，习大大照样挥手。然后主持人解说：下面走来的是我国隐形部队方阵……然后第二天全世界头条……</p>
 <p>
 	<small> ============== 3小时前</small>
 </p>
