@@ -42,7 +42,7 @@
 </h2>
 <p>此事不得再議！//@Newlife11_: 吴孟达同志在月饼的激励下不慎自爆，令人扼腕！[抓狂]吴同志是我裆秘密战线上的一员老将，为HK的繁荣昌盛做出了卓越的贡献。鉴于身份暴露已失去潜伏价值，是调回国内还是另行处置，请组织指示。</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3883038532864898" target="freeweibo-mirror">SPAM [哈哈]//@黑森林的女祭司: 蛤蛤蛤蛤蛤蛤蛤</a>
 </h2>
@@ -126,7 +126,7 @@
 </h2>
 <p>SPAM 正解！<br><br>RE: 网络热语：今天，你的傻逼程度和激动程度是成正比的。</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3883008236853609" target="freeweibo-mirror">SPAM [鲜花]永遠紀念他們</a>
 </h2>
