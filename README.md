@@ -24,13 +24,13 @@
 </h2>
 <p>回复@suk-cri-歌:就是这个理！//@suk-cri-歌:国军仗打得惨烈是真的，打的屡战屡败以至于首都被屠城也是真的，且不论国民政府的无能程度，博主先搞清楚，今天是在纪念反法西斯胜利七十周年，，胜利是整个中华民族的，而不仅仅是哪个党派的荣光。<br><br>RE: 【煽情不必用形容词】没能向大家走来的还有国军方队，他们参加了淞沪会战、太原会战、南京保卫战、徐州会战、武汉会战、随枣会战 、枣宜会战、南昌会战、上高会战、中条山会战、第一次长沙会战、第二次长沙会战、第三次长沙会战、浙赣会战、鄂西会战、常德会战、豫中会战、长衡会战、缅北会战…（转）<br><img src="http://ww3.sinaimg.cn/large/537cc0fdjw1evpdagdbd1j20kv0hsmz4.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3883046564259428" target="freeweibo-mirror">SPAM [笑cry][笑cry][笑cry] //@国有银…</a>
 </h2>
 <p>SPAM [笑cry][笑cry][笑cry] //@国有银行美联储:他们没能来参加此次阅兵，是因为不仅上述会战都败了，还因为之后他们还输掉了辽省战役、平津战役和淮海战役。<br><br>RE: 【煽情不必用形容词】没能向大家走来的还有国军方队，他们参加了淞沪会战、太原会战、南京保卫战、徐州会战、武汉会战、随枣会战 、枣宜会战、南昌会战、上高会战、中条山会战、第一次长沙会战、第二次长沙会战、第三次长沙会战、浙赣会战、鄂西会战、常德会战、豫中会战、长衡会战、缅北会战…（转）<br><img src="http://ww3.sinaimg.cn/large/537cc0fdjw1evpdagdbd1j20kv0hsmz4.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3883044471531722" target="freeweibo-mirror">SPAM [哈哈][哈哈]//@孙毅__:少了横店方队，就像…</a>
 </h2>
@@ -77,6 +77,12 @@
 	<a href="https://freeweibo.com/weibo/3883034430273971" target="freeweibo-mirror">SPAM //@晓辰:轉發微博</a>
 </h2>
 <p>SPAM //@晓辰:轉發微博<br><br>RE: 不明白这段掷地有声的话语，为何就不能发？ http://t.cn/RyAdnwI .</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3883033012240022" target="freeweibo-mirror">【煽情不必用形容词】没能向大家走来的还有国军方队，他们参加了…</a>
+</h2>
+<p>【煽情不必用形容词】没能向大家走来的还有国军方队，他们参加了淞沪会战、太原会战、南京保卫战、徐州会战、武汉会战、随枣会战 、枣宜会战、南昌会战、上高会战、中条山会战、第一次长沙会战、第二次长沙会战、第三次长沙会战、浙赣会战、鄂西会战、常德会战、豫中会战、长衡会战、缅北会战…（转）<br><img src="http://ww3.sinaimg.cn/large/537cc0fdjw1evpdagdbd1j20kv0hsmz4.jpg"></p>
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3883010200026173" target="freeweibo-mirror">罪名真多啊 //@王鹏律师:境外？</a>
 </h2>
 <p>罪名真多啊 //@王鹏律师:境外？</p>
-<p>
-	<small> ============== 4小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3883009704518557" target="freeweibo-mirror">SPAM 然 //@幽壹: //@博者文摘://@Brigh…</a>
-</h2>
-<p>SPAM 然 //@幽壹: //@博者文摘://@Bright113: //@不变的糕哥:[给力]//@風雷益地風生: 轉發微博<br><br>RE: 网络热语：今天，你的傻逼程度和激动程度是成正比的。</p>
 <p>
 	<small> ============== 4小时前</small>
 </p>
