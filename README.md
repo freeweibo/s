@@ -24,7 +24,7 @@
 </h2>
 <p>//@活捉死老鼠:转发微博</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3883118396078453" target="freeweibo-mirror">国家的几个钱袋子都在朱家手里掌管。 //@李俊晓:[吃惊]/…</a>
 </h2>
@@ -66,13 +66,13 @@
 </h2>
 <p>SPAM 当过总指？//@華琨堂:比秦基伟还是差点儿</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3883077882957716" target="freeweibo-mirror">SPAM 哪个说的天津快递已签收？站出来我保证不打死你[do…</a>
 </h2>
 <p>SPAM 哪个说的天津快递已签收？站出来我保证不打死你[doge]<br><br>RE: 现在通过检阅区的是东风快递方队。使命必达，谢绝拒收，货到付款，全球包邮[doge]<br><img src="http://ww4.sinaimg.cn/large/425a5ca3gw1evp3l1gdp2j20nu3ajnkc.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3883076574399114" target="freeweibo-mirror">SPAM 小编是疯子吧？//@文山娃:提前鎖定第三次世界大戰…</a>
 </h2>
@@ -83,6 +83,12 @@
 	<a href="https://freeweibo.com/weibo/3883076130074363" target="freeweibo-mirror">老百姓不需要阅兵，事不关己，在今天把五星红旗插到那个关键词岛…</a>
 </h2>
 <p>老百姓不需要阅兵，事不关己，在今天把五星红旗插到那个关键词岛上去，比什么都威风！老百姓不需要什么老兵出来赚眼泪，别他妈的让老百姓给老兵捐款就行，政府包了。如果这些都做不到，就开启SAVE/LOAD模式，把大盘调到5100点去，让老百姓重玩一次。这样的国家才是老百姓爱戴的。 http://t.cn/R2dLFOj</p>
+<p>
+	<small> ============== 5小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3883075434391385" target="freeweibo-mirror">网络热语：今天，你的傻逼程度和激动程度是成正比的！</a>
+</h2>
+<p>网络热语：今天，你的傻逼程度和激动程度是成正比的！</p>
 <p>
 	<small> ============== 5小时前</small>
 </p><h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3883055733738654" target="freeweibo-mirror">SPAM //@阿猫和阿狗1314：这是要打遍全世界的节奏，…</a>
 </h2>
 <p>SPAM //@阿猫和阿狗1314：这是要打遍全世界的节奏，反法西斯阅兵的法西斯言论？习总最后3句话是怎么说的？<br><br>RE: 【常规导弹第二方队】领队的是李军少将。特色是受阅的东21D导弹是打击舰船目标的陆基弹道导弹，是我军海上非对称作战的“杀手锏”武器。其中东风15B-台北快递，东风16-冲绳快递，东风21-东京快递，东风26-关岛快递，东风31-夏威夷快递，东风5-纽约快递。[哈哈][哈哈][哈哈][哈哈]快递公司开张喽！<br><img src="http://ww3.sinaimg.cn/large/595a8491jw1evp3pye683j20qw0ew0wo.jpg"></p>
-<p>
-	<small> ============== 6小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3883055590665698" target="freeweibo-mirror">SPAM //@火星人来自巴厘岛：美国将军陈纳德的夫人，在人…</a>
-</h2>
-<p>SPAM //@火星人来自巴厘岛：美国将军陈纳德的夫人，在人民大会堂坐着领的奖章，还没有回家中国导弹就来了，别黑习大大了<br><br>RE: 【常规导弹第二方队】领队的是李军少将。特色是受阅的东21D导弹是打击舰船目标的陆基弹道导弹，是我军海上非对称作战的“杀手锏”武器。其中东风15B-台北快递，东风16-冲绳快递，东风21-东京快递，东风26-关岛快递，东风31-夏威夷快递，东风5-纽约快递。[哈哈][哈哈][哈哈][哈哈]快递公司开张喽！<br><img src="http://ww3.sinaimg.cn/large/595a8491jw1evp3pye683j20qw0ew0wo.jpg"></p>
 <p>
 	<small> ============== 6小时前</small>
 </p>
