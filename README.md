@@ -96,7 +96,7 @@
 </h2>
 <p>今天最大的新闻已出。<br><img src="http://ww1.sinaimg.cn/large/7061c249gw1evp16g7rtjj20q00gtjuz.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3882924921150371" target="freeweibo-mirror">屏幕左侧可以看见中南海,好大一片湖,风景真好,空气应当不错。…</a>
 </h2>
