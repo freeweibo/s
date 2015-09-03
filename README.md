@@ -36,7 +36,7 @@
 </h2>
 <p>SPAM 早，你们到观礼台了吗？[doge]<br><br>RE: 感觉我的朋友圈已经沦陷了，明天大家都好忙[笑cry]<br><img src="http://ww2.sinaimg.cn/large/96018969jw1evoirbw7fbj20p018gaeq.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3882887843825993" target="freeweibo-mirror">SPAM 那样的话今天也是一样的活动吧//@PTR竞技：岸英…</a>
 </h2>
@@ -114,7 +114,7 @@
 </h2>
 <p>当你心跳激昂，可有勇气与我们并肩？！为了维护我们的合法权利与腐败抗争，我们希望良心，我们希望理智，我们希望人性重到人间，让阳光不再黑暗，新的生活即将到来…… http://t.cn/RyA6St4 .</p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3882783875604570" target="freeweibo-mirror">SPAM 北京现在安检老严了，昨天有人拿着一面党旗坐地铁过安…</a>
 </h2>
