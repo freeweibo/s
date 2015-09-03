@@ -42,7 +42,7 @@
 </h2>
 <p>一个小玩儿闹，除了会杀人还会啥？[酷]//@联欢画: //@主临-盛宴: [哈哈][哈哈]<br><br>RE: 抗战时期的最高司令官……<br><img src="http://ww4.sinaimg.cn/large/a8ef5277jw1evoi3tli0aj20ug18gtfv.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3882871947384670" target="freeweibo-mirror">永远喂不饱的恶狼</a>
 </h2>
