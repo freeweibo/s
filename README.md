@@ -30,13 +30,13 @@
 </h2>
 <p>SPAM 当过总指？//@華琨堂:比秦基伟还是差点儿</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3883077882957716" target="freeweibo-mirror">SPAM 哪个说的天津快递已签收？站出来我保证不打死你[do…</a>
 </h2>
 <p>SPAM 哪个说的天津快递已签收？站出来我保证不打死你[doge]<br><br>RE: 现在通过检阅区的是东风快递方队。使命必达，谢绝拒收，货到付款，全球包邮[doge]<br><img src="http://ww4.sinaimg.cn/large/425a5ca3gw1evp3l1gdp2j20nu3ajnkc.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3883074481593627" target="freeweibo-mirror">//@nfs1112:台湾住着你的骨肉同胞，一样的抗日战士和…</a>
 </h2>
