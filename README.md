@@ -66,7 +66,7 @@
 </h2>
 <p>SPAM 北京现在安检老严了，昨天有人拿着一面党旗坐地铁过安检，出来之后变成了一块红布，镰刀，锤子都被没收了… http://t.cn/RyA64sa</p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3882783104012167" target="freeweibo-mirror">SPAM //@前度神-游: //@救赎_醉侠老高://@深…</a>
 </h2>
@@ -96,7 +96,7 @@
 </h2>
 <p>国军在敌后战场的确很多，比战死的国军都多，但都是投降做了汉奸的伪军，成了二狗子的国军你们国民党自己认不认啊？//@安崇民: 部分在敌后国军，悉数作了鬼魂或伪军。博主回那馆问问去，老安说错没有？[衰]<br><br>RE: 打臉連戰！國史館：中共領導敵後戰場的說法不存在！<br><img src="http://ww4.sinaimg.cn/large/0068NIJzjw1evneesjnpwj30hs0jb0uk.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3882767156791560" target="freeweibo-mirror">SPAM //@赤峰龙腾:转发微博</a>
 </h2>
