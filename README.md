@@ -36,7 +36,7 @@
 </h2>
 <p>SPAM [嘻嘻][嘻嘻][嘻嘻][嘻嘻][嘻嘻][嘻嘻]<br><img src="http://ww4.sinaimg.cn/large/464c1f95jw1evp5bw7d6pj20k00k3wgo.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3882961005063969" target="freeweibo-mirror">SPAM [哈哈][哈哈] //@投行老人: //@Boss…</a>
 </h2>
