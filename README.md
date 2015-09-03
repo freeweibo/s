@@ -44,9 +44,21 @@
 <p>
 	<small> ============== 1小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3883003145066661" target="freeweibo-mirror">难道要学奥巴马那吊儿郎当的样子吗？我们文化不同，中国文化博大…</a>
+</h2>
+<p>难道要学奥巴马那吊儿郎当的样子吗？我们文化不同，中国文化博大精深，不知道咋说，砖家们快上～～//@南山灯火_1c8: //@懶得起銘:明确告诉大家：党确实抗日了……<br><br>RE: 阅兵总体看很好，也有些不足：一是领导人有些拘谨，欠潇洒和帅气，前几任也如此，其实用心训练一下就行，领导人在检阅军队，人民群众何尝不是在检阅领导人？二是阅兵以狼牙山五壮士、平型关战役、百团大战等英模部队方队的方式不妥，这样做不像是全民族的胜利日，给人感觉是一个党的纪念活动。</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3882995184823692" target="freeweibo-mirror">SPAM 同一支軍隊，同一個地方，可以屠殺自己的人民，又可以…</a>
 </h2>
 <p>SPAM 同一支軍隊，同一個地方，可以屠殺自己的人民，又可以搶別人的功勞紀念抗敵勝利。</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3882994576045674" target="freeweibo-mirror">SPAM 哈哈哈//@贝克街的扫地老太太:哈哈哈哈太赞//@…</a>
+</h2>
+<p>SPAM 哈哈哈//@贝克街的扫地老太太:哈哈哈哈太赞//@陌上Kaitherine: 哈哈哈哈哈哈//@苏铁_闪闪发光的深井冰: 哈哈哈哈哈//@CE和一美都无法割舍的迷妹:这逼装的给满分 //@楚天祥纯属虚构:哈哈哈哈哈哈 //@蔡撇撇:奥巴马得立刻打飞机过来瞅瞅…<br><br>RE: 我觉得阅兵的时候应该空出一大截，然后军乐照响，大家若无其事，习大大照样挥手。然后主持人解说：下面走来的是我国隐形部队方阵……然后第二天全世界头条……</p>
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
@@ -78,7 +90,7 @@
 </h2>
 <p>SPAM 有点搞笑！马娘娘也是文彩飞扬啊。 //@人形畜牲五毛公知狗:怎么没把党国敌后人员300万皇协军写上？//@谍报:居然没有写党的领导[哼]//@投资舆情:内容不论，台湾的文字读起来倒别具一格<br><br>RE: 马英九讲话，兼听则明<br><img src="http://ww2.sinaimg.cn/large/810f7234gw1evp24o4cvsj20hs6fr4qp.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3882981590676472" target="freeweibo-mirror">SPAM 哈哈哈 //@琢儿他爹:[吃惊]//@老夫乃布衣:…</a>
 </h2>
@@ -122,21 +134,9 @@
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
-	<a href="https://freeweibo.com/weibo/3882975853276537" target="freeweibo-mirror">SPAM 双手是亮点。</a>
+	<a href="https://freeweibo.com/weibo/3882976913758632" target="freeweibo-mirror">SPAM  //@洋洋有点酷:哈哈哈//@李易峰的小龙虾:自…</a>
 </h2>
-<p>SPAM 双手是亮点。<br><br>RE: 老领导：三！个代表<br><img src="http://ww3.sinaimg.cn/large/6d0b6b33gw1evp67vutb1j20c80hiwfn.jpg"></p>
-<p>
-	<small> ============== 3小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3882975697543684" target="freeweibo-mirror">有人对阅兵仪式进行认真解读：最开始空军出场，然后人民群众艰苦…</a>
-</h2>
-<p>有人对阅兵仪式进行认真解读：最开始空军出场，然后人民群众艰苦做反弹，接着国外做空势力出场，紧接着国家队救市，最后空军大规模出动，国家队放鸽子！！！ （转自网络）</p>
-<p>
-	<small> ============== 3小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3882974967577309" target="freeweibo-mirror">抬头的话</a>
-</h2>
-<p>抬头的话<br><img src="http://ww3.sinaimg.cn/large/5d0b33degw1evp6mcyh4wj20tc0zkn0c.jpg"></p>
+<p>SPAM  //@洋洋有点酷:哈哈哈//@李易峰的小龙虾:自信的温总理[笑cry][笑cry][笑cry]<br><br>RE: 三大呆萌男子天团和自信宝宝<br><img src="http://ww3.sinaimg.cn/large/7622e0a1gw1evp2uo7z51j20hs0cm0ue.jpg"></p>
 <p>
 	<small> ============== 3小时前</small>
 </p>
