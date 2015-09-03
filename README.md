@@ -54,7 +54,7 @@
 </h2>
 <p>//@nfs1112:台湾住着你的骨肉同胞，一样的抗日战士和他们的后代，日本二战已经投降，和平年代以法西斯言论纪念反法西斯战争，完全曲解阅兵之意！@新浪军事 [弱][弱]</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3883068270188607" target="freeweibo-mirror">SPAM 不知道说什么好，这小编脑子坏了吧？ //@王小峰_…</a>
 </h2>
@@ -72,7 +72,7 @@
 </h2>
 <p>[哈哈] //@明德尚行疾恶如仇:五毛都这样，脑残[笑cry]@未得糊涂@lianglun1996: 人家知识渊博好不好[右哼哼]@MeiPad: [笑cry]愣了2秒才反映过来@法律及其价值: 爱国青年典型代表！[哈哈]@闵玉平:[哈哈]@海南梁山 ：[哈哈] @夜之沉风:[哈哈]<br><br>RE: 吾朝盛产爱国青年。脑残志坚！<br><img src="http://ww3.sinaimg.cn/large/64429cefjw1evp9ufzcwaj20hs0vkabd.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3883056055989240" target="freeweibo-mirror">SPAM //@蕨代霜蛟: 呵呵。原博给每种导弹起了这样LO…</a>
 </h2>
