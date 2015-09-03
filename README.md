@@ -36,7 +36,7 @@
 </h2>
 <p>SPAM 终于有人开琥.珀.徽.博啦~~</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3883010493183844" target="freeweibo-mirror">//@活捉死老鼠: [吃惊]@联合国 @联合国人权高专办</a>
 </h2>
@@ -126,13 +126,13 @@
 </h2>
 <p>唯一敢在长安街遮牌逆行还压线的呆萌美男子[笑cry]<br><img src="http://ww4.sinaimg.cn/large/85972563gw1evp94ps4igj20hs08e74l.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3882996756686190" target="freeweibo-mirror">阅完兵，要抓经济了。//@越爱幂雪: 这个说到点子上了[偷笑…</a>
 </h2>
 <p>阅完兵，要抓经济了。//@越爱幂雪: 这个说到点子上了[偷笑]<br><br>RE: 【史记·微博通鉴】有个说法，股市严重下跌是因为境外势力做空中国。今天起，炒股的可以放心了，因为习大大宣布了：人民币胜！<br><img src="http://ww4.sinaimg.cn/large/712ec3a3jw1evp5xobx5nj20c80cbaaz.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3882995184823692" target="freeweibo-mirror">SPAM 同一支軍隊，同一個地方，可以屠殺自己的人民，又可以…</a>
 </h2>
