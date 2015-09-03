@@ -66,7 +66,7 @@
 </h2>
 <p>SPAM 正解！<br><br>RE: 网络热语：今天，你的傻逼程度和激动程度是成正比的。</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3883008236853609" target="freeweibo-mirror">SPAM [鲜花]永遠紀念他們</a>
 </h2>
