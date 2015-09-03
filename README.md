@@ -120,7 +120,7 @@
 </h2>
 <p>SPAM 北京现在安检老严了，昨天有人拿着一面党旗坐地铁过安检，出来之后变成了一块红布，镰刀，锤子都被没收了… http://t.cn/RyA64sa</p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3882783104012167" target="freeweibo-mirror">SPAM //@前度神-游: //@救赎_醉侠老高://@深…</a>
 </h2>
