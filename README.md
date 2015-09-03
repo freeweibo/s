@@ -24,13 +24,13 @@
 </h2>
 <p>神解释。<br><br>RE: 习大大刚行左手礼大有讲究:《道德经》曰“夫兵者，不祥之器，物或恶之，故有道者不处。君子居则贵左，用兵则贵右。”又曰：“吉事尚左，凶事尚右。”因此，这个寓意深刻，左为阳右为阴。左手敬礼表示不尚武力。#纪念抗战胜利70周年#<br><img src="http://ww4.sinaimg.cn/large/3ed20e9djw1evp58uk1blj20k00cimyz.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3882965362477900" target="freeweibo-mirror">连战和毛主席孙子明显受到的礼遇不够。</a>
 </h2>
 <p>连战和毛主席孙子明显受到的礼遇不够。<br><img src="http://ww4.sinaimg.cn/large/4c148083jw1evp5hwst0aj20ih0hswg5.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3882963739191609" target="freeweibo-mirror">SPAM [嘻嘻][嘻嘻][嘻嘻][嘻嘻][嘻嘻][嘻嘻]</a>
 </h2>
@@ -84,13 +84,13 @@
 </h2>
 <p>好和谐呀 //@嘉骏ls:右[偷笑]//@竹羊羊:中间那张谁拍的，站出来，不打死你 //@郑维:回覆@拉达克的床:神右 //@拉达克的床:普京在一旁默语，哥和你们仨都打过交道。 //@郑维:回覆@敏斯基:谈笑风生 //@敏斯基:谈笑风生 //@郑维:[亲亲]</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3882949323627836" target="freeweibo-mirror">阅兵台上唱歌的跳舞的，得裁掉 //@写字李华良:文工团裁掉</a>
 </h2>
 <p>阅兵台上唱歌的跳舞的，得裁掉 //@写字李华良:文工团裁掉</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3882947796750164" target="freeweibo-mirror">SPAM 哈哈哈哈，来来来。。。[笑cry] //@牛肉饭:…</a>
 </h2>
