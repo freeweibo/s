@@ -30,7 +30,7 @@
 </h2>
 <p>SPAM 有点搞笑！马娘娘也是文彩飞扬啊。 //@人形畜牲五毛公知狗:怎么没把党国敌后人员300万皇协军写上？//@谍报:居然没有写党的领导[哼]//@投资舆情:内容不论，台湾的文字读起来倒别具一格<br><br>RE: 马英九讲话，兼听则明<br><img src="http://ww2.sinaimg.cn/large/810f7234gw1evp24o4cvsj20hs6fr4qp.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3882981590676472" target="freeweibo-mirror">SPAM 哈哈哈 //@琢儿他爹:[吃惊]//@老夫乃布衣:…</a>
 </h2>
@@ -59,6 +59,24 @@
 	<a href="https://freeweibo.com/weibo/3882979367141946" target="freeweibo-mirror">SPAM  //@简直:毫无疑问，本次横店活动的积极作用在于…</a>
 </h2>
 <p>SPAM  //@简直:毫无疑问，本次横店活动的积极作用在于提升了民国抗战正史的公众认知度。//@飚滮：中国军人形象！[good]</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3882977442005239" target="freeweibo-mirror">SPAM [黑线]//@重工组长于彦舒: 23333333看…</a>
+</h2>
+<p>SPAM [黑线]//@重工组长于彦舒: 23333333看透了一切//@pp_注孤生百分百:[笑cry] //@jason_geng:[哈哈] //@静听彰声:[笑cry]//@-小欣_: 手牵手一步两步三步望着天 //@小西_太阳:[笑cry][笑cry][笑cry] //@yxhyde:[笑cry]//@koori-初心高尾: [笑cry] //@晨儿doge啾丶:彭麻麻看透了一切[笑cry]//@達央自販機<br><br>RE: 真心不能直视惹</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3882975853276537" target="freeweibo-mirror">SPAM 双手是亮点。</a>
+</h2>
+<p>SPAM 双手是亮点。<br><br>RE: 老领导：三！个代表<br><img src="http://ww3.sinaimg.cn/large/6d0b6b33gw1evp67vutb1j20c80hiwfn.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3882971931471629" target="freeweibo-mirror">SPAM 人要是牛逼到一定份儿上，举错手都有人帮着给想辙。</a>
+</h2>
+<p>SPAM 人要是牛逼到一定份儿上，举错手都有人帮着给想辙。</p>
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
@@ -119,24 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3882961042519659" target="freeweibo-mirror">并没有哪里不对</a>
 </h2>
 <p>并没有哪里不对</p>
-<p>
-	<small> ============== 3小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3882961005063969" target="freeweibo-mirror">SPAM [哈哈][哈哈] //@投行老人: //@Boss…</a>
-</h2>
-<p>SPAM [哈哈][哈哈] //@投行老人: //@Boss_U:</p>
-<p>
-	<small> ============== 3小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3882960262056383" target="freeweibo-mirror">SPAM 哈哈哈哈哈 //@叉r叉:哈哈哈哈哈哈哈哈难怪一张…</a>
-</h2>
-<p>SPAM 哈哈哈哈哈 //@叉r叉:哈哈哈哈哈哈哈哈难怪一张伐开心脸。<br><br>RE: 哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈<br><img src="http://ww4.sinaimg.cn/large/6c097934jw1evp2tbn543j20lc0zk417.jpg"></p>
-<p>
-	<small> ============== 3小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3882959423708364" target="freeweibo-mirror">//@丰理骨现:权力不受监督制约就产生了权力寻租腐败。</a>
-</h2>
-<p>//@丰理骨现:权力不受监督制约就产生了权力寻租腐败。<br><br>RE: 有领导人的女儿说：“能力之外的资本等于零”，我说这其实是“既想当婊子，又想立牌坊”。试问，清华北大当中那些领导人的小孩都是凭人人平等的“考分”进去的吗？中直机关那些领导人的后代都是凭国家公务员考试进去的吗？电力一姐完全是凭自己的本事坐上宝座的吗？http://t.cn/RvRjqj5</p>
 <p>
 	<small> ============== 3小时前</small>
 </p>
