@@ -60,7 +60,7 @@
 </h2>
 <p>不承认中华民国的法统，却继承中华民国的功业，不要脸。</p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3883144782603196" target="freeweibo-mirror">SPAM 所谓“左手敬礼”的经典，就是当代版的“秉烛”。NM…</a>
 </h2>
