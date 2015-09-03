@@ -24,7 +24,7 @@
 </h2>
 <p>你给解释解释这个图片</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3883082753376637" target="freeweibo-mirror">SPAM [哈哈]其实是个冷幽默，我喜欢！！//@中国公知精…</a>
 </h2>
