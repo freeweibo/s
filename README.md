@@ -30,13 +30,13 @@
 </h2>
 <p>SPAM //@深夜一只猫:照相器材好像还是以前轴心国的好[喵喵]</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3883130668552482" target="freeweibo-mirror">SPAM 甭管是什麼，這東東應該不讓帶上去！這特麼不會打出去…</a>
 </h2>
 <p>SPAM 甭管是什麼，這東東應該不讓帶上去！這特麼不會打出去什麼東東吧？</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3883129422929043" target="freeweibo-mirror">//@Cheriemimi: //@琴声响起_:赶快砸了吧，…</a>
 </h2>
