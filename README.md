@@ -38,6 +38,12 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3882962946388107" target="freeweibo-mirror">习大大刚行左手礼大有讲究:《道德经》曰“夫兵者，不祥之器，物…</a>
+</h2>
+<p>习大大刚行左手礼大有讲究:《道德经》曰“夫兵者，不祥之器，物或恶之，故有道者不处。君子居则贵左，用兵则贵右。”又曰：“吉事尚左，凶事尚右。”因此，这个寓意深刻，左为阳右为阴。左手敬礼表示不尚武力。#纪念抗战胜利70周年#<br><img src="http://ww4.sinaimg.cn/large/3ed20e9djw1evp58uk1blj20k00cimyz.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3882961005063969" target="freeweibo-mirror">SPAM [哈哈][哈哈] //@投行老人: //@Boss…</a>
 </h2>
 <p>SPAM [哈哈][哈哈] //@投行老人: //@Boss_U:</p>
@@ -53,6 +59,12 @@
 	<a href="https://freeweibo.com/weibo/3882957472819152" target="freeweibo-mirror">SPAM 哈哈哈哈哈这个回复好 //@shmily_yyy:…</a>
 </h2>
 <p>SPAM 哈哈哈哈哈这个回复好 //@shmily_yyy:哈哈哈哈哈哈哈哈//@纪录片之家: 哈哈哈哈哈哈哈哈 //@贝克街的扫地老太太:哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈//@抖佩mio: 哈哈哈哈哈哈哈哈哈//@德哈重症患者:哈哈哈哈 //@蟬與明燈:哈哈哈哈哈哈哈哈哈 //@言猫想要抖那个咚:哈哈哈哈哈哈哈哈哈<br><br>RE: 哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈<br><img src="http://ww4.sinaimg.cn/large/6c097934jw1evp2tbn543j20lc0zk417.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3882956575702075" target="freeweibo-mirror">尚能飯否？三⋯⋯三個代表。</a>
+</h2>
+<p>尚能飯否？三⋯⋯三個代表。<br><img src="http://ww4.sinaimg.cn/large/5937c055jw1evp4hyye2gj20ef0kngms.jpg"></p>
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
@@ -74,11 +86,17 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3882953085688837" target="freeweibo-mirror">发自真心关怀习大大。感人肺腑！</a>
+</h2>
+<p>发自真心关怀习大大。感人肺腑！<br><img src="http://ww1.sinaimg.cn/large/6576a9c2jw1evp4433tkej20m80gomze.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3882951290804517" target="freeweibo-mirror">SPAM [笑cry][笑cry][笑cry]//@2013…</a>
 </h2>
 <p>SPAM [笑cry][笑cry][笑cry]//@2013年九月6号:哈哈哈哈哈哈哈哈哈哈哈哈//@-RockerPax-:哈哈哈哈哈哈哈//@凉凉凉凉凉凉凉凉凉凉彤_:哈哈哈哈哈哈哈//@曦曦曦曦曦曦曦曦子:哈哈哈哈哈//@_Paven:哈哈哈哈哈哈哈//@Rr菊花君:[笑cry][笑cry][笑cry][笑cry] //@罗子涵涵涵涵:哈哈哈哈哈哈哈<br><br>RE: 习大大一直都是这个表情……<br><img src="http://ww3.sinaimg.cn/large/6d287fbfjw1evp241e9ejj201j01mwea.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3882949625679143" target="freeweibo-mirror">好和谐呀 //@嘉骏ls:右[偷笑]//@竹羊羊:中间那张谁…</a>
 </h2>
@@ -89,6 +107,12 @@
 	<a href="https://freeweibo.com/weibo/3882949323627836" target="freeweibo-mirror">阅兵台上唱歌的跳舞的，得裁掉 //@写字李华良:文工团裁掉</a>
 </h2>
 <p>阅兵台上唱歌的跳舞的，得裁掉 //@写字李华良:文工团裁掉</p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3882948857778873" target="freeweibo-mirror">哈哈哈哈</a>
+</h2>
+<p>哈哈哈哈<br><img src="http://ww3.sinaimg.cn/large/bad2f13bjw1evp3mlsu52j20nq0hswhh.jpg"></p>
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
@@ -113,30 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3882944206490803" target="freeweibo-mirror">感觉有点像习大大和彭女神的婚礼。。。“呀，来啦，来来来，里面…</a>
 </h2>
 <p>感觉有点像习大大和彭女神的婚礼。。。“呀，来啦，来来来，里面请……等会，拍个照再走。。”[哈哈]<br><img src="http://ww4.sinaimg.cn/large/78c23a17jw1evp2nicnqbg20780437wk.gif"></p>
-<p>
-	<small> ============== 3小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3882943989015397" target="freeweibo-mirror">SPAM 开门 媛通快递！</a>
-</h2>
-<p>SPAM 开门 媛通快递！<br><br>RE: 习大大在车上一直是这个表情。。。<br><img src="http://ww3.sinaimg.cn/large/5bbf8143jw1evp2bjm340j203c039745.jpg"></p>
-<p>
-	<small> ============== 3小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3882943212597417" target="freeweibo-mirror">SPAM //@小根Vip:excited //@慕容德彪:…</a>
-</h2>
-<p>SPAM //@小根Vip:excited //@慕容德彪://@过去即使未来: //@关我屁thing:蛤蛤蛤蛤蛤蛤蛤<br><br>RE: 蛤？<br><img src="http://ww3.sinaimg.cn/large/50aceaaejw1evp1dkkmrkg207408rnl1.gif"></p>
-<p>
-	<small> ============== 3小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3882942994634713" target="freeweibo-mirror">SPAM [偷笑]//@5蓝控: //@奈留子:哈哈哈哈哈哈…</a>
-</h2>
-<p>SPAM [偷笑]//@5蓝控: //@奈留子:哈哈哈哈哈哈哈哈哈哈哈哈 //@为什么这么酷:哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈 //@lllllllll88888888:哈哈哈哈哈哈哈 //@-suli酥梨-:笑死 //@丹DANcing:哈哈哈哈哈哈哈哈哈哈哈报警了！！！ //@西瓜鱼饼子:噗 //@望月望的脖子疼:原po快递<br><br>RE: 分享图片<br><img src="http://ww4.sinaimg.cn/large/665299f2jw1evp23dny1tj20bg0bgaah.jpg"></p>
-<p>
-	<small> ============== 3小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3882942554057127" target="freeweibo-mirror">SPAM 手滑 //@小NO先森:哈哈哈 //@音乐车祸现场…</a>
-</h2>
-<p>SPAM 手滑 //@小NO先森:哈哈哈 //@音乐车祸现场:笑死我了，您的媛通快递已到达//@八卦_我实在是太CJ了: 一模一样//@辣条娘: 哈哈哈哈当着我妈面笑喷了 //@太皇太后您有喜啦:哈哈哈哈哈哈 //@某酱人品负值中:哈哈哈哈哈哈哈//@是阿悄也是慕炭:哈哈哈哈又是维尼熊//@NICH名为熊:卧槽<br><br>RE: 分享图片<br><img src="http://ww4.sinaimg.cn/large/665299f2jw1evp23dny1tj20bg0bgaah.jpg"></p>
 <p>
 	<small> ============== 3小时前</small>
 </p>
