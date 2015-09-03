@@ -102,7 +102,7 @@
 </h2>
 <p>SPAM //@晓辰:轉發微博<br><br>RE: 不明白这段掷地有声的话语，为何就不能发？ http://t.cn/RyAdnwI .</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3883033012240022" target="freeweibo-mirror">【煽情不必用形容词】没能向大家走来的还有国军方队，他们参加了…</a>
 </h2>
@@ -138,7 +138,7 @@
 </h2>
 <p>SPAM vip... //@Top-Cars://@D调的turbo:哈哈哈！<br><br>RE: 国家有理想 人民有希望</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p>
 <table>
     <tr>
