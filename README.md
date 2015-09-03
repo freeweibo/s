@@ -90,7 +90,7 @@
 </h2>
 <p>阅完兵，要抓经济了。//@越爱幂雪: 这个说到点子上了[偷笑]<br><br>RE: 【史记·微博通鉴】有个说法，股市严重下跌是因为境外势力做空中国。今天起，炒股的可以放心了，因为习大大宣布了：人民币胜！<br><img src="http://ww4.sinaimg.cn/large/712ec3a3jw1evp5xobx5nj20c80cbaaz.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3882995184823692" target="freeweibo-mirror">SPAM 同一支軍隊，同一個地方，可以屠殺自己的人民，又可以…</a>
 </h2>
