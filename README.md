@@ -20,6 +20,18 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3883040281427189" target="freeweibo-mirror">//@陈业文新大都: →_→ //@张四少:站起來了不是说说…</a>
+</h2>
+<p>//@陈业文新大都: →_→ //@张四少:站起來了不是说说而已，但凡強盛起來的都是落實民权转型成功的民主政体国 //@王阿招: //@奉命归来:资本主义救世界；社会主义救中国。//@赵克罗: 无论是美英法苏中战胜国，还是德日意战败国，七十年后，完全证明走资本主义的国家胜过走社会主义的国家！</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3883040168718753" target="freeweibo-mirror">前阵子不是被抓了吗？//@晓辰: 又見黃宏老師。。。</a>
+</h2>
+<p>前阵子不是被抓了吗？//@晓辰: 又見黃宏老師。。。</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3883034430273971" target="freeweibo-mirror">SPAM //@晓辰:轉發微博</a>
 </h2>
 <p>SPAM //@晓辰:轉發微博<br><br>RE: 不明白这段掷地有声的话语，为何就不能发？ http://t.cn/RyAdnwI .</p>
@@ -125,18 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3882996828316928" target="freeweibo-mirror">唯一敢在长安街遮牌逆行还压线的呆萌美男子[笑cry]</a>
 </h2>
 <p>唯一敢在长安街遮牌逆行还压线的呆萌美男子[笑cry]<br><img src="http://ww4.sinaimg.cn/large/85972563gw1evp94ps4igj20hs08e74l.jpg"></p>
-<p>
-	<small> ============== 4小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3882996756686190" target="freeweibo-mirror">阅完兵，要抓经济了。//@越爱幂雪: 这个说到点子上了[偷笑…</a>
-</h2>
-<p>阅完兵，要抓经济了。//@越爱幂雪: 这个说到点子上了[偷笑]<br><br>RE: 【史记·微博通鉴】有个说法，股市严重下跌是因为境外势力做空中国。今天起，炒股的可以放心了，因为习大大宣布了：人民币胜！<br><img src="http://ww4.sinaimg.cn/large/712ec3a3jw1evp5xobx5nj20c80cbaaz.jpg"></p>
-<p>
-	<small> ============== 4小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3882995184823692" target="freeweibo-mirror">SPAM 同一支軍隊，同一個地方，可以屠殺自己的人民，又可以…</a>
-</h2>
-<p>SPAM 同一支軍隊，同一個地方，可以屠殺自己的人民，又可以搶別人的功勞紀念抗敵勝利。</p>
 <p>
 	<small> ============== 4小时前</small>
 </p>
