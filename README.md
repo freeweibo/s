@@ -42,7 +42,7 @@
 </h2>
 <p>SPAM //@晓辰:轉發微博<br><br>RE: 不明白这段掷地有声的话语，为何就不能发？ http://t.cn/RyAdnwI .</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3883032785857993" target="freeweibo-mirror">长春同志，对猴子也很有研究。//@友好的大简: 转发微博</a>
 </h2>
