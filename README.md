@@ -30,7 +30,13 @@
 </h2>
 <p>世界的目光曾经多次聚焦天安门广场，因为这里发生过很多重大事件。你都知道其中的哪些事件？</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3882904733839504" target="freeweibo-mirror">//@旁观者马勇:“每个国家都在追求一条自己的道路，这条道路…</a>
+</h2>
+<p>//@旁观者马勇:“每个国家都在追求一条自己的道路，这条道路根植于这个国家人民的文化当中，但是经验告诉我们，历史的发展最终是站在自由这一边的。开放的经济、开放的社会和开放的政府，是人类社会之所以能够进步最深厚最强大的基础。”</p>
+<p>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3882902791775299" target="freeweibo-mirror">SPAM 超级厌恶阅兵，一群税猪欣赏屠夫磨刀霍霍，该是多么讽…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3882783875604570" target="freeweibo-mirror">SPAM 北京现在安检老严了，昨天有人拿着一面党旗坐地铁过安…</a>
 </h2>
 <p>SPAM 北京现在安检老严了，昨天有人拿着一面党旗坐地铁过安检，出来之后变成了一块红布，镰刀，锤子都被没收了… http://t.cn/RyA64sa</p>
-<p>
-	<small> ============== 10小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3882783104012167" target="freeweibo-mirror">SPAM //@前度神-游: //@救赎_醉侠老高://@深…</a>
-</h2>
-<p>SPAM //@前度神-游: //@救赎_醉侠老高://@深川胡骏: //@天之蓝11: //@軍魂-IV://@明天会是晴天2: //@洒家大头阿福: //@南京倪若愚: //@国师万能毛:<br><br>RE: 分享图片<br><img src="http://ww4.sinaimg.cn/large/65cfb01djw1evoi2cuy5zj20nr0mldjq.jpg"></p>
 <p>
 	<small> ============== 10小时前</small>
 </p>
