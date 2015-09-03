@@ -66,7 +66,7 @@
 </h2>
 <p>SPAM 哈哈哈 //@琢儿他爹:[吃惊]//@老夫乃布衣: 这解读，有几分玄机，仔细琢磨下，可不？<br><br>RE: 有人对阅兵仪式进行认真解读：最开始空军出场，然后人民群众艰苦做反弹，接着国外做空势力出场，紧接着国家队救市，最后空军大规模出动，国家队放鸽子！！！ （转自网络）</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3882980718548864" target="freeweibo-mirror">SPAM 懂得！//@小麻煩君:哈哈哈哈哈笑死我了 果然真爱…</a>
 </h2>
@@ -116,6 +116,12 @@
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3882974967577309" target="freeweibo-mirror">抬头的话</a>
+</h2>
+<p>抬头的话<br><img src="http://ww3.sinaimg.cn/large/5d0b33degw1evp6mcyh4wj20tc0zkn0c.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3882972623108710" target="freeweibo-mirror">今日有感：一，阅兵还是有所保留的，最能打的城管方队和最耐打的…</a>
 </h2>
 <p>今日有感：一，阅兵还是有所保留的，最能打的城管方队和最耐打的股民方队都没有出现。二，央视直播不过而而，没什么惊艳。连女兵的特写都没有。三，散了吧，明天问问天津还火不火。<br><img src="http://ww2.sinaimg.cn/large/68f3cf9cgw1evp6bt7avyj20hs0dc0v3.jpg"></p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3882971523817586" target="freeweibo-mirror">老领导：三！个代表</a>
 </h2>
 <p>老领导：三！个代表<br><img src="http://ww3.sinaimg.cn/large/6d0b6b33gw1evp67vutb1j20c80hiwfn.jpg"></p>
-<p>
-	<small> ============== 3小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3882970555438509" target="freeweibo-mirror">我觉得阅兵的时候应该空出一大截，然后军乐照响，大家若无其事，…</a>
-</h2>
-<p>我觉得阅兵的时候应该空出一大截，然后军乐照响，大家若无其事，习大大照样挥手。然后主持人解说：下面走来的是我国隐形部队方阵……然后第二天全世界头条……</p>
 <p>
 	<small> ============== 3小时前</small>
 </p>
