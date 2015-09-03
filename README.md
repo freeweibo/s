@@ -132,7 +132,7 @@
 </h2>
 <p>#突发#目前发生地还无法确定，扩散了，求解释[话筒][话筒] http://t.cn/RyAMmEQ .</p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3882758009319187" target="freeweibo-mirror">最近频繁被销号后，以前很多不支持我上微博的朋友，都为我鸣不平…</a>
 </h2>
