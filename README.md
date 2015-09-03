@@ -78,7 +78,7 @@
 </h2>
 <p>SPAM 所谓“左手敬礼”的经典，就是当代版的“秉烛”。NMD拍马屁酸文人！</p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3883142433617020" target="freeweibo-mirror">SPAM 月饼。。</a>
 </h2>
