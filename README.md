@@ -48,7 +48,7 @@
 </h2>
 <p>长春同志，对猴子也很有研究。//@友好的大简: 转发微博<br><br>RE: 没想到，长春同志还有这一手！<br><img src="http://ww2.sinaimg.cn/large/5d0b33degw1evpcr7cq1ej20dg0dgah1.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3883026247299893" target="freeweibo-mirror">[最右]//@尔等--莫相离 ：交警同志，向你反映一个情况，…</a>
 </h2>
