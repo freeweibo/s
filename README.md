@@ -84,13 +84,19 @@
 </h2>
 <p>SPAM 回复@小南-河北:宝宝和林林都出现了，红红呢？//@小南-河北:[哈哈]宝宝好像不合群<br><br>RE: 胡大大的帕金森竟然这么严重了，看样子身体还不如江爷爷。老朱彻底的老年痴呆了需要有人指导动作。宝宝还是一如既往的微笑，小琳和小鹏安全了。</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3882928293162445" target="freeweibo-mirror">My 蛤 Will Go On</a>
+</h2>
+<p>My 蛤 Will Go On<br><img src="http://ww3.sinaimg.cn/large/50aceaaejw1evp19iaqs7j20g4092abx.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3882928066832544" target="freeweibo-mirror">胡大大的帕金森竟然这么严重了，看样子身体还不如江爷爷。老朱彻…</a>
 </h2>
 <p>胡大大的帕金森竟然这么严重了，看样子身体还不如江爷爷。老朱彻底的老年痴呆了需要有人指导动作。宝宝还是一如既往的微笑，小琳和小鹏安全了。</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3882927593543307" target="freeweibo-mirror">今天最大的新闻已出。</a>
 </h2>
@@ -101,6 +107,12 @@
 	<a href="https://freeweibo.com/weibo/3882924921150371" target="freeweibo-mirror">屏幕左侧可以看见中南海,好大一片湖,风景真好,空气应当不错。…</a>
 </h2>
 <p>屏幕左侧可以看见中南海,好大一片湖,风景真好,空气应当不错。北京市政府只会欺负外地低端人员,把他们往城外赶。报应,祝贺你们也被赶到通州。善恶有报,时间未到。</p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3882922849516212" target="freeweibo-mirror">看 这就是朕为你打下的江山</a>
+</h2>
+<p>看 这就是朕为你打下的江山<br><img src="http://ww1.sinaimg.cn/large/00603ISfgw1evp0mneo5sj318g0xcqg1.jpg"></p>
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
@@ -127,18 +139,6 @@
 <p>//@君众咨询邓学君: 现在还有？//@北京磬石: //@西郭山人: //@郭顺guoshun: @老范老烦: //@度为王<br><br>RE: 文革其实是一场邪教运动、它的特点与邪教高度重合——对神无限膜拜、集体洗脑、排斥一切外来文明、利用谎言让人民沉浸在虚妄的幸福之中，利用暴力让人民不敢有怀疑和反抗；......它颠覆美丑，扭曲人性、无视道德，践踏法制、虚无历史，对中华民族的戕害至今还在延续..........<br><img src="http://ww4.sinaimg.cn/large/6edbf5eejw1evo6i1ujhyj209e0dmdhg.jpg"></p>
 <p>
 	<small> ============== 4小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3882892125668278" target="freeweibo-mirror">SPAM 早，你们到观礼台了吗？[doge]</a>
-</h2>
-<p>SPAM 早，你们到观礼台了吗？[doge]<br><br>RE: 感觉我的朋友圈已经沦陷了，明天大家都好忙[笑cry]<br><img src="http://ww2.sinaimg.cn/large/96018969jw1evoirbw7fbj20p018gaeq.jpg"></p>
-<p>
-	<small> ============== 5小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3882887843825993" target="freeweibo-mirror">SPAM 那样的话今天也是一样的活动吧//@PTR竞技：岸英…</a>
-</h2>
-<p>SPAM 那样的话今天也是一样的活动吧//@PTR竞技：岸英不死的话，这会儿也80多了，该让位于新宇了。如果这样，新宇和金三胖要为天蓬元帅竞争上岗咯。</p>
-<p>
-	<small> ============== 5小时前</small>
 </p>
 <table>
     <tr>
