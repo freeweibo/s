@@ -66,7 +66,7 @@
 </h2>
 <p>知道呀，宋祖英//@madeinchinavictor：因为太激动了！那么你知道国歌的词曲作者吗？</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3883187232887387" target="freeweibo-mirror">有些人都以为下岗前国企工人都是每天混吃混喝混日子的米虫了………</a>
 </h2>
@@ -138,7 +138,7 @@
 </h2>
 <p>下岗人的魂呀//@舞钢闲人: 洪桐县里真没好人啦?<br><br>RE: 棺材今天露面，公知集体跪舔：说什么一世清白云云……  他儿子朱云来在中金年薪上亿没人提啊？<br><img src="http://ww3.sinaimg.cn/large/0065xvrPjw1evpir3rl2lj30c808j3z3.jpg"></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p>
 <table>
     <tr>
