@@ -48,7 +48,7 @@
 </h2>
 <p>SPAM 长微博已经是这种形态了啊？！ http://t.cn/Ry2JZ8v</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3883351163695152" target="freeweibo-mirror">//@王小峰_带三个表: 怎么举报？//@侯虹斌: 这是一个…</a>
 </h2>
