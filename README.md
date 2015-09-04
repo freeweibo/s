@@ -48,7 +48,7 @@
 </h2>
 <p>SPAM [偷笑][偷笑]//@-孔智勇: [哈哈][哈哈][哈哈]</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3883331614069942" target="freeweibo-mirror">SPAM 谁P的？[哈哈][哈哈][哈哈]</a>
 </h2>
