@@ -24,7 +24,7 @@
 </h2>
 <p>//@二十年磨刀://@引擎77: //@深圳刘军2018://@查理修:转发微博</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3883251628175384" target="freeweibo-mirror">//@天蝎黄世旭:会在来一次89吗？世界人民在看着你们！奥巴…</a>
 </h2>
@@ -132,7 +132,7 @@
 </h2>
 <p>//@2可器: //@幽壹:转发微博</p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3883136620512559" target="freeweibo-mirror">下岗人的魂呀//@舞钢闲人: 洪桐县里真没好人啦?</a>
 </h2>
