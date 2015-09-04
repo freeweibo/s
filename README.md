@@ -102,7 +102,7 @@
 </h2>
 <p>表里如一，这个要支持。不过鉴于公知的信誉，先晒晒党证吧。<br><br>RE: 【公开退党声明】因为深感失望，自今天开始，本人公开退出中国共产党组织，不再相信共产主义！特此声明！上海钟锦化律师。<br><img src="http://ww2.sinaimg.cn/large/9c85ac23gw1evqrhtazp4j20ci0m8401.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3883494545444061" target="freeweibo-mirror">先把党员证晒出来</a>
 </h2>
