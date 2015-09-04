@@ -24,7 +24,7 @@
 </h2>
 <p>SPAM 发表了一篇转载博文《[转载]当他们达到最无耻的亢奋状态时，算总帐的来了》http://t.cn/Ry2jxTd</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3883400332779678" target="freeweibo-mirror">SPAM 什么情况？[疑问]</a>
 </h2>
@@ -120,7 +120,7 @@
 </h2>
 <p>SB！</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3883340044036178" target="freeweibo-mirror">昨天微信本想拉黑所有月餅SB的，可是最後祗刪掉了兩個。一個是…</a>
 </h2>
