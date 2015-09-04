@@ -84,7 +84,7 @@
 </h2>
 <p>知道呀，宋祖英//@madeinchinavictor：因为太激动了！那么你知道国歌的词曲作者吗？</p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3883187232887387" target="freeweibo-mirror">有些人都以为下岗前国企工人都是每天混吃混喝混日子的米虫了………</a>
 </h2>
