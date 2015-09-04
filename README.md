@@ -30,25 +30,25 @@
 </h2>
 <p>//@橄榄888: //@民间治堵人陈哲宏: //@陈晨czy://@崔小平律师: 国保胡搞，伤透钟律的心。何时才真有法治，不知道。<br><br>RE: 【公开退党声明】因为深感失望，自今天开始，本人公开退出中国共产党组织，不再相信共产主义！特此声明！上海钟锦化律师。<br><img src="http://ww2.sinaimg.cn/large/9c85ac23gw1evqrhtazp4j20ci0m8401.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3883499993774279" target="freeweibo-mirror">//@张鸿:？ //@蔡照明:这个还没删？</a>
 </h2>
 <p>//@张鸿:？ //@蔡照明:这个还没删？<br><br>RE: 【公开退党声明】因为深感失望，自今天开始，本人公开退出中国共产党组织，不再相信共产主义！特此声明！上海钟锦化律师。<br><img src="http://ww2.sinaimg.cn/large/9c85ac23gw1evqrhtazp4j20ci0m8401.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3883499527971179" target="freeweibo-mirror">//@KELE02:[赞]//@老沈重回49: [赞]//@…</a>
 </h2>
 <p>//@KELE02:[赞]//@老沈重回49: [赞]//@还是南开老魏: [赞][威武]//@戎戎日60记: [good][威武]<br><br>RE: 【公开退党声明】因为深感失望，自今天开始，本人公开退出中国共产党组织，不再相信共产主义！特此声明！上海钟锦化律师。<br><img src="http://ww2.sinaimg.cn/large/9c85ac23gw1evqrhtazp4j20ci0m8401.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3883499481804884" target="freeweibo-mirror">回复@一碗拉面加个蛋:同意您的意见，发布者罪恶更大。希望不是…</a>
 </h2>
 <p>回复@一碗拉面加个蛋:同意您的意见，发布者罪恶更大。希望不是警察。谢谢交流。 //@一碗拉面加个蛋:证明是警察先，我看到的法律事实是，一个叫纳慧投资公司的总经理发布的。没有证明就不猜测。</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3883499000059013" target="freeweibo-mirror">叛党和退党我觉得是两个概念吧，不过贵党的事爷不想弄明白，就是…</a>
 </h2>
