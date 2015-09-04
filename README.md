@@ -24,7 +24,7 @@
 </h2>
 <p>//@2可器: //@垂直的风:保重！ //@陈光武律师://@骑牛隐士: //@崔小平律师: 国保胡搞，伤透钟律的心。何时才真有法治，不知道。<br><br>RE: 【公开退党声明】因为深感失望，自今天开始，本人公开退出中国共产党组织，不再相信共产主义！特此声明！上海钟锦化律师。<br><img src="http://ww2.sinaimg.cn/large/9c85ac23gw1evqrhtazp4j20ci0m8401.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3883500199965826" target="freeweibo-mirror">//@橄榄888: //@民间治堵人陈哲宏: //@陈晨cz…</a>
 </h2>
@@ -126,7 +126,7 @@
 </h2>
 <p>如梅之傲骨，与松比挺拨！//@刘二狗蛋: //@燕小小云:我记得他带着孩子出境被边控 //@刘二狗蛋: //@乔玉东在深圳:我记得一旦加入组织，永远不能叛党的。<br><br>RE: 【公开退党声明】因为深感失望，自今天开始，本人公开退出中国共产党组织，不再相信共产主义！特此声明！上海钟锦化律师。<br><img src="http://ww2.sinaimg.cn/large/9c85ac23gw1evqrhtazp4j20ci0m8401.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3883476035781070" target="freeweibo-mirror">SPAM 七二一方针……</a>
 </h2>
