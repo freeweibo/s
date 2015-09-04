@@ -26,6 +26,12 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3883474139779605" target="freeweibo-mirror">新四军5师15旅营长周村在接受香港某电视台采访时说，他在抗日…</a>
+</h2>
+<p>新四军5师15旅营长周村在接受香港某电视台采访时说，他在抗日战争中没怎么受伤，但在后来的内战中受了很多伤（请看下面的屏幕照片）…… 这话信息量好大！<br><img src="http://ww1.sinaimg.cn/large/4b5412b5gw1evqryagettj218g0oy0yd.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3883470197131214" target="freeweibo-mirror">//@朱令是谁: //@老逗老逗://@wann2127:/…</a>
 </h2>
 <p>//@朱令是谁: //@老逗老逗://@wann2127://@快乐欧菲: //@不变的糕哥://@水木双刀_: [话筒][话筒][话筒][给力][给力][给力][赞啊][赞啊][赞啊]//@三教布衣AAA:转发微博<br><br>RE: 一个提出"亚投行"和"一路一带"试图引领世界经济的国家，国内股市跌了就骂美国阴谋。纪念反法西斯胜利70年，媒体居然把阅兵仪式的导弹取名东京快递纽约快递，网络居然充斥咒骂美国和种族言论。911后曾欢庆的人还不该反省吗？美国或许连纸老虎都不是，但咱自己养的老虎打都打不完，甚至，打都不舍得打。</p>
@@ -102,7 +108,7 @@
 </h2>
 <p>今晚，在钓鱼台国宾馆，习大潘基文等贵宾闹过洞房后，一对新人遂成好事。<br><img src="http://ww3.sinaimg.cn/large/3f840b6bjw1evqh9ovj1fj20hp0df0u6.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3883360763527608" target="freeweibo-mirror">SPAM 长微博已经是这种形态了啊？！ http://t.c…</a>
 </h2>
@@ -120,7 +126,7 @@
 </h2>
 <p>//@王小峰_带三个表: 怎么举报？//@侯虹斌: 这是一个法西斯在运营的官微。已举报两次。不谢</p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3883349377008608" target="freeweibo-mirror">最后一句翻译成民间语言就是：……？！[哈哈]//@张晨初艺术…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3883349074575566" target="freeweibo-mirror">//@海南梁山:已坐实。 //@海南卫浴专家:你不是去日本查…</a>
 </h2>
 <p>//@海南梁山:已坐实。 //@海南卫浴专家:你不是去日本查实了么？[哈哈]<br><br>RE: 【抗日是挣钱 媚日是姻缘】网上看到这话，突然毛骨悚然：笑话羊一面高喊抗日，一面把所有良知人士打成汉奸，私下里却悄悄把女儿送往日本。#良言疯言#原来，笑话在制造混乱，因为假汉奸越多，真汉奸越好隐藏。毛左五毛兄弟，醒醒吧！<br><img src="http://ww4.sinaimg.cn/large/6650c1ebgw1evqcw5xmnvj20ku11279t.jpg"></p>
-<p>
-	<small> ============== 11小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3883348457574157" target="freeweibo-mirror">SPAM [哈哈]//@汪海林: 假证，中关村办的吧</a>
-</h2>
-<p>SPAM [哈哈]//@汪海林: 假证，中关村办的吧<br><br>RE: 网友好热心啊。[微笑]<br><img src="http://ww1.sinaimg.cn/large/4d35417ajw1evqcinebfkj20fi0ki75e.jpg"></p>
 <p>
 	<small> ============== 11小时前</small>
 </p>
