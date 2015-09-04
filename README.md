@@ -30,19 +30,19 @@
 </h2>
 <p>最后一句翻译成民间语言就是：……？！[哈哈]//@张晨初艺术空间: 昨天看到的视频已屏蔽，这条没屏蔽！//@家有宝贝正调皮: 牛//@交通安全蜀黍:[good]//@海比天蓝刘:习大大威武！！[good] //@这不是历史:铿锵有力！[good]<br><br>RE: O(∩_∩)O哈哈哈~通俗易懂，句句在理！[good]http://t.cn/RyAenTx</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3883349074575566" target="freeweibo-mirror">//@海南梁山:已坐实。 //@海南卫浴专家:你不是去日本查…</a>
 </h2>
 <p>//@海南梁山:已坐实。 //@海南卫浴专家:你不是去日本查实了么？[哈哈]<br><br>RE: 【抗日是挣钱 媚日是姻缘】网上看到这话，突然毛骨悚然：笑话羊一面高喊抗日，一面把所有良知人士打成汉奸，私下里却悄悄把女儿送往日本。#良言疯言#原来，笑话在制造混乱，因为假汉奸越多，真汉奸越好隐藏。毛左五毛兄弟，醒醒吧！<br><img src="http://ww4.sinaimg.cn/large/6650c1ebgw1evqcw5xmnvj20ku11279t.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3883348457574157" target="freeweibo-mirror">SPAM [哈哈]//@汪海林: 假证，中关村办的吧</a>
 </h2>
 <p>SPAM [哈哈]//@汪海林: 假证，中关村办的吧<br><br>RE: 网友好热心啊。[微笑]<br><img src="http://ww1.sinaimg.cn/large/4d35417ajw1evqcinebfkj20fi0ki75e.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3883347925568052" target="freeweibo-mirror">[汗]//@孤烟暮蝉: 那不算啥，日本人打到炕上了，他还跟人…</a>
 </h2>
@@ -120,13 +120,13 @@
 </h2>
 <p>SPAM [哈哈]//@孟庆明v: [哈哈] //@-孔智勇:[哈哈][哈哈][哈哈]</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3883333534475502" target="freeweibo-mirror">SPAM 连爷爷，您终于回来了！！//@-孔智勇: [哈哈]…</a>
 </h2>
 <p>SPAM 连爷爷，您终于回来了！！//@-孔智勇: [哈哈][哈哈][哈哈]</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3883332880638026" target="freeweibo-mirror">SPAM [偷笑][偷笑]//@-孔智勇: [哈哈][哈哈]…</a>
 </h2>
