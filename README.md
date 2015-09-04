@@ -72,7 +72,7 @@
 </h2>
 <p>希望习主席也能注意到这个方队的存在。</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3883309945347909" target="freeweibo-mirror">//@-孔智勇: //@孟庆明v:大俄经济衰退有什么启示，多…</a>
 </h2>
@@ -89,6 +89,12 @@
 	<a href="https://freeweibo.com/weibo/3883299665193362" target="freeweibo-mirror">郑州今天有雨，继续保持空气清新[嘻嘻]</a>
 </h2>
 <p>郑州今天有雨，继续保持空气清新[嘻嘻]<br><br>RE: 昨天还是阅兵蓝，今天已是雾霾黑，把京津冀三省市的管环保的全渎职抓了吧！这一宿是真没少排啊！用特权保障的蓝天真是稀罕物！<br><img src="http://ww4.sinaimg.cn/large/69bc760ejw1evq7peiy0nj20k00b9jtm.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3883298184609728" target="freeweibo-mirror">昨天还是阅兵蓝，今天已是雾霾黑，把京津冀三省市的管环保的全渎…</a>
+</h2>
+<p>昨天还是阅兵蓝，今天已是雾霾黑，把京津冀三省市的管环保的全渎职抓了吧！这一宿是真没少排啊！用特权保障的蓝天真是稀罕物！<br><img src="http://ww4.sinaimg.cn/large/69bc760ejw1evq7peiy0nj20k00b9jtm.jpg"></p>
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3883258939128444" target="freeweibo-mirror">//@二十年磨刀://@引擎77: //@深圳刘军2018:…</a>
 </h2>
 <p>//@二十年磨刀://@引擎77: //@深圳刘军2018://@查理修:转发微博</p>
-<p>
-	<small> ============== 6小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3883251628175384" target="freeweibo-mirror">//@天蝎黄世旭:会在来一次89吗？世界人民在看着你们！奥巴…</a>
-</h2>
-<p>//@天蝎黄世旭:会在来一次89吗？世界人民在看着你们！奥巴马这个美国口炮代言人好像说过，天朝若在来一次“文哥”，美国不会袖手旁观！//@邓相超://@奥巴马AOBAMA2013: 转发微博<br><br>RE: 中央党校教授蔡霞：打压网络言论空间是在给习挖坑。公权力肆无忌惮地压制公众言论，势必激起反弹，是要把公众逼到搞街头政治。现在公权力的恣意妄为正在把温和派逼成激进派，把网路政治逼成街头政治，这是在给习挖坑。</p>
 <p>
 	<small> ============== 6小时前</small>
 </p>
