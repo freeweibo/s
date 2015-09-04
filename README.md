@@ -54,7 +54,7 @@
 </h2>
 <p>SB！</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3883335958840815" target="freeweibo-mirror">SPAM [哈哈]//@煙巳惔嘸菋:[哈哈]//@孟庆明v:…</a>
 </h2>
@@ -132,7 +132,7 @@
 </h2>
 <p>希望习主席也能注意到这个方队的存在。</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3883309945347909" target="freeweibo-mirror">//@-孔智勇: //@孟庆明v:大俄经济衰退有什么启示，多…</a>
 </h2>
