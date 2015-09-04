@@ -20,6 +20,18 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3883501642095403" target="freeweibo-mirror">//@2可器: //@垂直的风:保重！ //@陈光武律师:/…</a>
+</h2>
+<p>//@2可器: //@垂直的风:保重！ //@陈光武律师://@骑牛隐士: //@崔小平律师: 国保胡搞，伤透钟律的心。何时才真有法治，不知道。<br><br>RE: 【公开退党声明】因为深感失望，自今天开始，本人公开退出中国共产党组织，不再相信共产主义！特此声明！上海钟锦化律师。<br><img src="http://ww2.sinaimg.cn/large/9c85ac23gw1evqrhtazp4j20ci0m8401.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3883499527971179" target="freeweibo-mirror">//@KELE02:[赞]//@老沈重回49: [赞]//@…</a>
+</h2>
+<p>//@KELE02:[赞]//@老沈重回49: [赞]//@还是南开老魏: [赞][威武]//@戎戎日60记: [good][威武]<br><br>RE: 【公开退党声明】因为深感失望，自今天开始，本人公开退出中国共产党组织，不再相信共产主义！特此声明！上海钟锦化律师。<br><img src="http://ww2.sinaimg.cn/large/9c85ac23gw1evqrhtazp4j20ci0m8401.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3883476035781070" target="freeweibo-mirror">SPAM 七二一方针……</a>
 </h2>
 <p>SPAM 七二一方针……<br><br>RE: 新四军5师15旅营长周村在接受香港某电视台采访时说，他在抗日战争中没怎么受伤，但在后来的内战中受了很多伤（请看下面的屏幕照片）…… 这话信息量好大！<br><img src="http://ww1.sinaimg.cn/large/4b5412b5gw1evqryagettj218g0oy0yd.jpg"></p>
@@ -72,7 +84,7 @@
 </h2>
 <p>SPAM 男女拍拖，到底拍几耐就可以做爱？D女仔居然咁嚟回答！吓咗我一跳！男女都应该睇睇。睇内容请加 微-信-号：gzhappy123，然后发送数字：888，即显示内容!!<br><img src="http://ww3.sinaimg.cn/large/983b0720gw1evqkyr0m6pj20cw08yq4a.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3883403277552298" target="freeweibo-mirror">SPAM 【澳門】本澳青少年網站普遍存私隱風險（2/3）個資…</a>
 </h2>
@@ -102,7 +114,7 @@
 </h2>
 <p>邓小平说可以考虑。 //@毛保诠_hbu:统一中国的一定是中华民国。//@不变的糕哥: [哈哈]//@北京朱维民: 女人能做到你这样、得在黑社会的窑子里体验生活多久？拉黑！ //@妮可郡主:你这老不死的贱逼婊子逼养的也早点承认老蒋是你爹吧[哈哈][哈哈][嘻嘻][嘻嘻]</p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3883381144391302" target="freeweibo-mirror">今晚，在钓鱼台国宾馆，习大潘基文等贵宾闹过洞房后，一对新人遂…</a>
 </h2>
@@ -125,18 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3883351163695152" target="freeweibo-mirror">//@王小峰_带三个表: 怎么举报？//@侯虹斌: 这是一个…</a>
 </h2>
 <p>//@王小峰_带三个表: 怎么举报？//@侯虹斌: 这是一个法西斯在运营的官微。已举报两次。不谢</p>
-<p>
-	<small> ============== 11小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3883349377008608" target="freeweibo-mirror">最后一句翻译成民间语言就是：……？！[哈哈]//@张晨初艺术…</a>
-</h2>
-<p>最后一句翻译成民间语言就是：……？！[哈哈]//@张晨初艺术空间: 昨天看到的视频已屏蔽，这条没屏蔽！//@家有宝贝正调皮: 牛//@交通安全蜀黍:[good]//@海比天蓝刘:习大大威武！！[good] //@这不是历史:铿锵有力！[good]<br><br>RE: O(∩_∩)O哈哈哈~通俗易懂，句句在理！[good]http://t.cn/RyAenTx</p>
-<p>
-	<small> ============== 11小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3883349074575566" target="freeweibo-mirror">//@海南梁山:已坐实。 //@海南卫浴专家:你不是去日本查…</a>
-</h2>
-<p>//@海南梁山:已坐实。 //@海南卫浴专家:你不是去日本查实了么？[哈哈]<br><br>RE: 【抗日是挣钱 媚日是姻缘】网上看到这话，突然毛骨悚然：笑话羊一面高喊抗日，一面把所有良知人士打成汉奸，私下里却悄悄把女儿送往日本。#良言疯言#原来，笑话在制造混乱，因为假汉奸越多，真汉奸越好隐藏。毛左五毛兄弟，醒醒吧！<br><img src="http://ww4.sinaimg.cn/large/6650c1ebgw1evqcw5xmnvj20ku11279t.jpg"></p>
 <p>
 	<small> ============== 11小时前</small>
 </p>
