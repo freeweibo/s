@@ -32,6 +32,12 @@
 <p>
 	<small> ============== 1小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3883349074575566" target="freeweibo-mirror">//@海南梁山:已坐实。 //@海南卫浴专家:你不是去日本查…</a>
+</h2>
+<p>//@海南梁山:已坐实。 //@海南卫浴专家:你不是去日本查实了么？[哈哈]<br><br>RE: 【抗日是挣钱 媚日是姻缘】网上看到这话，突然毛骨悚然：笑话羊一面高喊抗日，一面把所有良知人士打成汉奸，私下里却悄悄把女儿送往日本。#良言疯言#原来，笑话在制造混乱，因为假汉奸越多，真汉奸越好隐藏。毛左五毛兄弟，醒醒吧！<br><img src="http://ww4.sinaimg.cn/large/6650c1ebgw1evqcw5xmnvj20ku11279t.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3883348457574157" target="freeweibo-mirror">SPAM [哈哈]//@汪海林: 假证，中关村办的吧</a>
 </h2>
 <p>SPAM [哈哈]//@汪海林: 假证，中关村办的吧<br><br>RE: 网友好热心啊。[微笑]<br><img src="http://ww1.sinaimg.cn/large/4d35417ajw1evqcinebfkj20fi0ki75e.jpg"></p>
@@ -43,6 +49,24 @@
 <p>[汗]//@孤烟暮蝉: 那不算啥，日本人打到炕上了，他还跟人签《何梅协定》//@我爱闷面小炒肉儿:老蔣真是奇葩，强盗都抢到家里了，还给人送吃送喝送钱！//@孤烟暮蝉:常凯申做的那些事儿，亏得马娘娘这两天还歌功颂德，说实在的，绿吱吱们不是恨死这个运输大队长了？</p>
 <p>
 	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3883347543953717" target="freeweibo-mirror">SPAM 昨天看到的视频已屏蔽，这条没屏蔽！//@家有宝贝正…</a>
+</h2>
+<p>SPAM 昨天看到的视频已屏蔽，这条没屏蔽！//@家有宝贝正调皮: 牛//@交通安全蜀黍:[good]//@海比天蓝刘:习大大威武！！[good] //@这不是历史:铿锵有力！[good]<br><br>RE: O(∩_∩)O哈哈哈~通俗易懂，句句在理！[good]http://t.cn/RyAenTx</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3883344373202568" target="freeweibo-mirror">//@苏州郎心铁:@齐州张赢政:这么一段在全世界引起轰动的视…</a>
+</h2>
+<p>//@苏州郎心铁:@齐州张赢政:这么一段在全世界引起轰动的视频都不知道？ //@齐州张赢政:有些断章取义吧，整个视频在哪呢，上下文呢？我并非来辩护，只是觉得这样的传播与谣言何易，再有能力的人也说过“草泥马”，不过他说这话确实是太难听了！[思考] //@苏州郎心铁:从此后，我便不再看好此人。<br><br>RE: O(∩_∩)O哈哈哈~通俗易懂，句句在理！[good]http://t.cn/RyAenTx</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3883342258843701" target="freeweibo-mirror">SPAM 法治只是件皇帝的新衣，法官独裁不独裁有什么区别，一…</a>
+</h2>
+<p>SPAM 法治只是件皇帝的新衣，法官独裁不独裁有什么区别，一笔写出两个荒唐来？//@梅春来律师:对民独裁还是对官独裁？</p>
+<p>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3883342053569509" target="freeweibo-mirror">SPAM ：）//@-九段: 此二人全是女性</a>
 </h2>
@@ -102,7 +126,7 @@
 </h2>
 <p>SPAM 谁P的？[哈哈][哈哈][哈哈]<br><img src="http://ww1.sinaimg.cn/large/698e3e6fgw1evqbl46xggj208v08vmxl.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3883327255584077" target="freeweibo-mirror">[哈哈][哈哈]//@苏渝: 这。。 //@浩正刘臻:[哈哈…</a>
 </h2>
@@ -115,30 +139,6 @@
 <p>网络段子：在阅兵式结束后的记者发布会上，有记者问:为什么在抗日战争胜利70周年的阅兵仪式上使用的摄像机、照相机等“长枪短炮”都是日本生产的？发言人:因为……没有枪没有炮，敌人给我们造！</p>
 <p>
 	<small> ============== 3小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3883320196573230" target="freeweibo-mirror">[话筒]</a>
-</h2>
-<p>[话筒]<br><br>RE: 二战后，日本已经不再是一个军国主义国家，二战最伟大的战绩，就是美国和西方驯服了日德，使他们重新回归民主，自由，富强的人类文明。认识不到这一点，即使你70年前是战胜国，现今仍然是走不出二战的阴影。70年过去了，战败国日德致力于提高国民福祉，而当年的战胜国俄中仍然走不出专制的老路。</p>
-<p>
-	<small> ============== 3小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3883320129843488" target="freeweibo-mirror">SPAM 真的？//@陆疯郎: 别再对人民洗脑了！//@韩城…</a>
-</h2>
-<p>SPAM 真的？//@陆疯郎: 别再对人民洗脑了！//@韩城县令:[吐] //@作家东海:[哈哈][哈哈][哈哈] //@吴顾问1970:脑袋进水了。//@法律及其价值:疯了。这飞机有人敢乘吗？</p>
-<p>
-	<small> ============== 3小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3883314165800890" target="freeweibo-mirror">SPAM  //@吃饭才胖://@广州湾在线://@华师学习…</a>
-</h2>
-<p>SPAM  //@吃饭才胖://@广州湾在线://@华师学习者:博主保重！//@及时雨89103:[哈哈]</p>
-<p>
-	<small> ============== 4小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3883312688652279" target="freeweibo-mirror">美国不受撒比//@机械金刚人: 这厮混了个共济会外围小组织的…</a>
-</h2>
-<p>美国不受撒比//@机械金刚人: 这厮混了个共济会外围小组织的委员什么的。//@花花小虾在成长://@徐勇凌香云居:美国读书脑子进屎了//@洪国荃:王石，你想说什么就说出来，这样暗示会憋死的，身体要紧。<br><br>RE: 庆祝中国人民反法西斯战争胜利70周年<br><img src="http://ww4.sinaimg.cn/large/47233d0fjw1evpcox5wp1j20cb0hswgo.jpg"></p>
-<p>
-	<small> ============== 4小时前</small>
 </p>
 <table>
     <tr>
