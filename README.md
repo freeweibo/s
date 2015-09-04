@@ -132,7 +132,7 @@
 </h2>
 <p>SPAM 七二一方针……<br><br>RE: 新四军5师15旅营长周村在接受香港某电视台采访时说，他在抗日战争中没怎么受伤，但在后来的内战中受了很多伤（请看下面的屏幕照片）…… 这话信息量好大！<br><img src="http://ww1.sinaimg.cn/large/4b5412b5gw1evqryagettj218g0oy0yd.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3883474139779605" target="freeweibo-mirror">新四军5师15旅营长周村在接受香港某电视台采访时说，他在抗日…</a>
 </h2>
