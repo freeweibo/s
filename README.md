@@ -36,13 +36,13 @@
 </h2>
 <p>SPAM [哈哈]//@孟庆明v: [哈哈] //@-孔智勇:[哈哈][哈哈][哈哈]</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3883333534475502" target="freeweibo-mirror">SPAM 连爷爷，您终于回来了！！//@-孔智勇: [哈哈]…</a>
 </h2>
 <p>SPAM 连爷爷，您终于回来了！！//@-孔智勇: [哈哈][哈哈][哈哈]</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3883332880638026" target="freeweibo-mirror">SPAM [偷笑][偷笑]//@-孔智勇: [哈哈][哈哈]…</a>
 </h2>
