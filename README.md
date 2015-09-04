@@ -60,7 +60,7 @@
 </h2>
 <p>SPAM 七二一方针……<br><br>RE: 新四军5师15旅营长周村在接受香港某电视台采访时说，他在抗日战争中没怎么受伤，但在后来的内战中受了很多伤（请看下面的屏幕照片）…… 这话信息量好大！<br><img src="http://ww1.sinaimg.cn/large/4b5412b5gw1evqryagettj218g0oy0yd.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3883474139779605" target="freeweibo-mirror">新四军5师15旅营长周村在接受香港某电视台采访时说，他在抗日…</a>
 </h2>
@@ -90,7 +90,7 @@
 </h2>
 <p>//@地中海盗_68752:博主只是重复国民党的说辞。问题是你国民党和国军不那么烂，共产党能有机会吗？你丢了一大半国土给日本人，怪谁？共产党进入敌后的部队最初不过4万人，最后发展到100万；你国军留在敌后的部队最初有上百万，可最后不是投敌就是被消灭，怪谁？你发展不起来，却不让别人发展，可能吗？</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3883422948774475" target="freeweibo-mirror">SPAM 低俗的心思，你想让欧和亚联姻毁掉中国吗？开这样的玩…</a>
 </h2>
@@ -126,13 +126,13 @@
 </h2>
 <p>SPAM 什么情况？[疑问]<br><br>RE: 从号子里面出来了，麻痹因为暴力膜蛤蹲了10天</p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3883399833858488" target="freeweibo-mirror">SPAM 膜蛤无罪！[泪] //@黄薄码:…</a>
 </h2>
 <p>SPAM 膜蛤无罪！[泪] //@黄薄码:…<br><br>RE: 从号子里面出来了，麻痹因为暴力膜蛤蹲了10天</p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3883383044354831" target="freeweibo-mirror">邓小平说可以考虑。 //@毛保诠_hbu:统一中国的一定是中…</a>
 </h2>
