@@ -116,11 +116,17 @@
 <p>
 	<small> ============== 7小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3883216366450497" target="freeweibo-mirror">二战后，日本已经不再是一个军国主义国家，二战最伟大的战绩，就…</a>
+</h2>
+<p>二战后，日本已经不再是一个军国主义国家，二战最伟大的战绩，就是美国和西方驯服了日德，使他们重新回归民主，自由，富强的人类文明。认识不到这一点，即使你70年前是战胜国，现今仍然是走不出二战的阴影。70年过去了，战败国日德致力于提高国民福祉，而当年的战胜国俄中仍然走不出专制的老路。</p>
+<p>
+	<small> ============== 8小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3883197077223541" target="freeweibo-mirror">知道呀，宋祖英//@madeinchinavictor：因为…</a>
 </h2>
 <p>知道呀，宋祖英//@madeinchinavictor：因为太激动了！那么你知道国歌的词曲作者吗？</p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3883187232887387" target="freeweibo-mirror">有些人都以为下岗前国企工人都是每天混吃混喝混日子的米虫了………</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3883182875019674" target="freeweibo-mirror">SPAM 许多时候，彼此见解不同，仅仅是因为历史车轮碾过的位…</a>
 </h2>
 <p>SPAM 许多时候，彼此见解不同，仅仅是因为历史车轮碾过的位置不同罢了。但没被碾过的指着被碾过的笑，这是个吃相问题了</p>
-<p>
-	<small> ============== 10小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3883182686255231" target="freeweibo-mirror">SPAM [蜡烛]//@五小六_sod蜜:⋯⋯港台和国外为其…</a>
-</h2>
-<p>SPAM [蜡烛]//@五小六_sod蜜:⋯⋯港台和国外为其冠名中国影帝 蜡烛我给自己点上了[蜡烛]</p>
 <p>
 	<small> ============== 10小时前</small>
 </p>
