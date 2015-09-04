@@ -120,7 +120,7 @@
 </h2>
 <p>SPAM 发表了一篇转载博文《[转载]当他们达到最无耻的亢奋状态时，算总帐的来了》http://t.cn/Ry2jxTd</p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3883400332779678" target="freeweibo-mirror">SPAM 什么情况？[疑问]</a>
 </h2>
