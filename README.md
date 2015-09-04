@@ -66,19 +66,19 @@
 </h2>
 <p>SPAM 许多时候，彼此见解不同，仅仅是因为历史车轮碾过的位置不同罢了。但没被碾过的指着被碾过的笑，这是个吃相问题了</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3883182686255231" target="freeweibo-mirror">SPAM [蜡烛]//@五小六_sod蜜:⋯⋯港台和国外为其…</a>
 </h2>
 <p>SPAM [蜡烛]//@五小六_sod蜜:⋯⋯港台和国外为其冠名中国影帝 蜡烛我给自己点上了[蜡烛]</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3883167507759964" target="freeweibo-mirror">//@多多爸比://@瓦全张明家: //@价值诠释:[酷]</a>
 </h2>
 <p>//@多多爸比://@瓦全张明家: //@价值诠释:[酷]<br><br>RE: 阅兵结束了，亿万人热血沸腾，口颂赞歌！可明天呢？生活还是继续，上不起学仍上不起，看不起病仍病不起，老无所依仍无所依；该贪污者继续贪污，该通奸者继续通奸，该看见的仍视若未见，外交部老声常谈老调不变！全民狂欢，现实依旧，民主自由法治人权依然遥远！<br><img src="http://ww4.sinaimg.cn/large/005QJ0R3jw1evpfdbxvnxj30k00dcabb.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3883165645390810" target="freeweibo-mirror">手上拿着红宝书。要飞机大炮干嘛？毛泽东思想天下无敌。//@北…</a>
 </h2>
