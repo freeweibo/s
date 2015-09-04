@@ -96,7 +96,7 @@
 </h2>
 <p>今晚，在钓鱼台国宾馆，习大潘基文等贵宾闹过洞房后，一对新人遂成好事。<br><img src="http://ww3.sinaimg.cn/large/3f840b6bjw1evqh9ovj1fj20hp0df0u6.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3883360763527608" target="freeweibo-mirror">SPAM 长微博已经是这种形态了啊？！ http://t.c…</a>
 </h2>
@@ -114,7 +114,7 @@
 </h2>
 <p>//@王小峰_带三个表: 怎么举报？//@侯虹斌: 这是一个法西斯在运营的官微。已举报两次。不谢</p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3883349377008608" target="freeweibo-mirror">最后一句翻译成民间语言就是：……？！[哈哈]//@张晨初艺术…</a>
 </h2>
