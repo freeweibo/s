@@ -24,7 +24,7 @@
 </h2>
 <p>SPAM [哈哈]//@煙巳惔嘸菋:[哈哈]//@孟庆明v: [哈哈] //@-孔智勇:[哈哈][哈哈][哈哈]</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3883334800930607" target="freeweibo-mirror">SPAM 还是给画一漫画更传神//@官场写真集:[哈哈][哈…</a>
 </h2>
