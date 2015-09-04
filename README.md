@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3883432616326535" target="freeweibo-mirror">投降日军的伪军将领称，他们投降日军的目的，就是为了和日军联手…</a>
+</h2>
+<p>投降日军的伪军将领称，他们投降日军的目的，就是为了和日军联手消灭共产党。由此可见他们没投降日军前，这些“友军”对共军是什么样的态度。 http://t.cn/Ry2H06X</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3883413298153946" target="freeweibo-mirror">SPAM 男女拍拖，到底拍几耐就可以做爱？D女仔居然咁嚟回答…</a>
 </h2>
 <p>SPAM 男女拍拖，到底拍几耐就可以做爱？D女仔居然咁嚟回答！吓咗我一跳！男女都应该睇睇。睇内容请加 微-信-号：gzhappy123，然后发送数字：888，即显示内容!!<br><img src="http://ww3.sinaimg.cn/large/983b0720gw1evqkyr0m6pj20cw08yq4a.jpg"></p>
@@ -102,7 +108,7 @@
 </h2>
 <p>//@苏州郎心铁:@齐州张赢政:这么一段在全世界引起轰动的视频都不知道？ //@齐州张赢政:有些断章取义吧，整个视频在哪呢，上下文呢？我并非来辩护，只是觉得这样的传播与谣言何易，再有能力的人也说过“草泥马”，不过他说这话确实是太难听了！[思考] //@苏州郎心铁:从此后，我便不再看好此人。<br><br>RE: O(∩_∩)O哈哈哈~通俗易懂，句句在理！[good]http://t.cn/RyAenTx</p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3883343055483956" target="freeweibo-mirror">[吃惊][吃惊][吃惊]//@紫月缥缈://@汴人郭威: 对…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3883341726504175" target="freeweibo-mirror">SB！</a>
 </h2>
 <p>SB！</p>
-<p>
-	<small> ============== 8小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3883340044036178" target="freeweibo-mirror">昨天微信本想拉黑所有月餅SB的，可是最後祗刪掉了兩個。一個是…</a>
-</h2>
-<p>昨天微信本想拉黑所有月餅SB的，可是最後祗刪掉了兩個。一個是普京的粉，那種一見就褲子濕還非要說出來的勁兒，實在讓人受不了，並且其一貫SB。喜歡普京的兲朝女，一般都有共同點，就是對權勢的極度熱愛。另一個是在現場，已經自我暈菜，與平時差別巨大。</p>
 <p>
 	<small> ============== 8小时前</small>
 </p>
