@@ -32,6 +32,30 @@
 <p>
 	<small> ============== 1小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3883498177793127" target="freeweibo-mirror">？ //@蔡照明:这个还没删？</a>
+</h2>
+<p>？ //@蔡照明:这个还没删？<br><br>RE: 【公开退党声明】因为深感失望，自今天开始，本人公开退出中国共产党组织，不再相信共产主义！特此声明！上海钟锦化律师。<br><img src="http://ww2.sinaimg.cn/large/9c85ac23gw1evqrhtazp4j20ci0m8401.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3883497611193960" target="freeweibo-mirror">【敬请严重关注】鉴于当前中国整个社会情势十分严峻，国家民主、…</a>
+</h2>
+<p>【敬请严重关注】鉴于当前中国整个社会情势十分严峻，国家民主、自由、人权、法治状况严重恶化，万一我退党声明发布后遭遇什么不幸，请大家能给予一定关注和帮助！谢谢！钟锦化律师手机：13918852168。<br><br>RE: 【公开退党声明】因为深感失望，自今天开始，本人公开退出中国共产党组织，不再相信共产主义！特此声明！上海钟锦化律师。<br><img src="http://ww2.sinaimg.cn/large/9c85ac23gw1evqrhtazp4j20ci0m8401.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3883497489469484" target="freeweibo-mirror">这个还没删？</a>
+</h2>
+<p>这个还没删？<br><br>RE: 【公开退党声明】因为深感失望，自今天开始，本人公开退出中国共产党组织，不再相信共产主义！特此声明！上海钟锦化律师。<br><img src="http://ww2.sinaimg.cn/large/9c85ac23gw1evqrhtazp4j20ci0m8401.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3883497229493467" target="freeweibo-mirror">[挖鼻]第一反应居然是，轮子？//@西西福厮:表里如一，这个…</a>
+</h2>
+<p>[挖鼻]第一反应居然是，轮子？//@西西福厮:表里如一，这个要支持。不过鉴于公知的信誉，先晒晒党证吧。<br><br>RE: 【公开退党声明】因为深感失望，自今天开始，本人公开退出中国共产党组织，不再相信共产主义！特此声明！上海钟锦化律师。<br><img src="http://ww2.sinaimg.cn/large/9c85ac23gw1evqrhtazp4j20ci0m8401.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3883476035781070" target="freeweibo-mirror">SPAM 七二一方针……</a>
 </h2>
 <p>SPAM 七二一方针……<br><br>RE: 新四军5师15旅营长周村在接受香港某电视台采访时说，他在抗日战争中没怎么受伤，但在后来的内战中受了很多伤（请看下面的屏幕照片）…… 这话信息量好大！<br><img src="http://ww1.sinaimg.cn/large/4b5412b5gw1evqryagettj218g0oy0yd.jpg"></p>
@@ -42,7 +66,7 @@
 </h2>
 <p>新四军5师15旅营长周村在接受香港某电视台采访时说，他在抗日战争中没怎么受伤，但在后来的内战中受了很多伤（请看下面的屏幕照片）…… 这话信息量好大！<br><img src="http://ww1.sinaimg.cn/large/4b5412b5gw1evqryagettj218g0oy0yd.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3883470197131214" target="freeweibo-mirror">//@朱令是谁: //@老逗老逗://@wann2127:/…</a>
 </h2>
@@ -115,30 +139,6 @@
 <p>邓小平说可以考虑。 //@毛保诠_hbu:统一中国的一定是中华民国。//@不变的糕哥: [哈哈]//@北京朱维民: 女人能做到你这样、得在黑社会的窑子里体验生活多久？拉黑！ //@妮可郡主:你这老不死的贱逼婊子逼养的也早点承认老蒋是你爹吧[哈哈][哈哈][嘻嘻][嘻嘻]</p>
 <p>
 	<small> ============== 9小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3883381144391302" target="freeweibo-mirror">今晚，在钓鱼台国宾馆，习大潘基文等贵宾闹过洞房后，一对新人遂…</a>
-</h2>
-<p>今晚，在钓鱼台国宾馆，习大潘基文等贵宾闹过洞房后，一对新人遂成好事。<br><img src="http://ww3.sinaimg.cn/large/3f840b6bjw1evqh9ovj1fj20hp0df0u6.jpg"></p>
-<p>
-	<small> ============== 9小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3883360763527608" target="freeweibo-mirror">SPAM 长微博已经是这种形态了啊？！ http://t.c…</a>
-</h2>
-<p>SPAM 长微博已经是这种形态了啊？！ http://t.cn/Ry2JZ8v</p>
-<p>
-	<small> ============== 10小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3883355534117669" target="freeweibo-mirror">一个提出"亚投行"和"一路一带"试图引领世界经济的国家，国内…</a>
-</h2>
-<p>一个提出"亚投行"和"一路一带"试图引领世界经济的国家，国内股市跌了就骂美国阴谋。纪念反法西斯胜利70年，媒体居然把阅兵仪式的导弹取名东京快递纽约快递，网络居然充斥咒骂美国和种族言论。911后曾欢庆的人还不该反省吗？美国或许连纸老虎都不是，但咱自己养的老虎打都打不完，甚至，打都不舍得打。</p>
-<p>
-	<small> ============== 10小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3883351163695152" target="freeweibo-mirror">//@王小峰_带三个表: 怎么举报？//@侯虹斌: 这是一个…</a>
-</h2>
-<p>//@王小峰_带三个表: 怎么举报？//@侯虹斌: 这是一个法西斯在运营的官微。已举报两次。不谢</p>
-<p>
-	<small> ============== 11小时前</small>
 </p>
 <table>
     <tr>
