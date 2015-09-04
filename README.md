@@ -62,6 +62,12 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3883343055483956" target="freeweibo-mirror">[吃惊][吃惊][吃惊]//@紫月缥缈://@汴人郭威: 对…</a>
+</h2>
+<p>[吃惊][吃惊][吃惊]//@紫月缥缈://@汴人郭威: 对于国民党的不堪，共产党揭露了不到百分之一 //@北山南人:哈哈哈…苦笑。所以我说，讨厌共产党没关系，政治倾向而已，但如果因为不喜欢共产党而去做国粉，那就好比嫌榴莲味道臭而选择吃屎一样脑残。越看历史，越知道国民党是何等废物。</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3883342992528112" target="freeweibo-mirror">【抗日是挣钱 媚日是姻缘】网上看到这话，突然毛骨悚然：笑话羊…</a>
 </h2>
 <p>【抗日是挣钱 媚日是姻缘】网上看到这话，突然毛骨悚然：笑话羊一面高喊抗日，一面把所有良知人士打成汉奸，私下里却悄悄把女儿送往日本。#良言疯言#原来，笑话在制造混乱，因为假汉奸越多，真汉奸越好隐藏。毛左五毛兄弟，醒醒吧！<br><img src="http://ww4.sinaimg.cn/large/6650c1ebgw1evqcw5xmnvj20ku11279t.jpg"></p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3883331614069942" target="freeweibo-mirror">SPAM 谁P的？[哈哈][哈哈][哈哈]</a>
 </h2>
 <p>SPAM 谁P的？[哈哈][哈哈][哈哈]<br><img src="http://ww1.sinaimg.cn/large/698e3e6fgw1evqbl46xggj208v08vmxl.jpg"></p>
-<p>
-	<small> ============== 3小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3883327255584077" target="freeweibo-mirror">[哈哈][哈哈]//@苏渝: 这。。 //@浩正刘臻:[哈哈…</a>
-</h2>
-<p>[哈哈][哈哈]//@苏渝: 这。。 //@浩正刘臻:[哈哈] //@卫庄哥://@袁裕来律师:[哈哈]//@-孔智勇: [哈哈] //@蒲正波V:[哈哈]看来不只我们，连老天爷都怕寻衅滋事啊！</p>
 <p>
 	<small> ============== 3小时前</small>
 </p>
