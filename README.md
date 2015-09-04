@@ -26,9 +26,39 @@
 <p>
 	<small> ============== 1小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3883500199965826" target="freeweibo-mirror">//@橄榄888: //@民间治堵人陈哲宏: //@陈晨cz…</a>
+</h2>
+<p>//@橄榄888: //@民间治堵人陈哲宏: //@陈晨czy://@崔小平律师: 国保胡搞，伤透钟律的心。何时才真有法治，不知道。<br><br>RE: 【公开退党声明】因为深感失望，自今天开始，本人公开退出中国共产党组织，不再相信共产主义！特此声明！上海钟锦化律师。<br><img src="http://ww2.sinaimg.cn/large/9c85ac23gw1evqrhtazp4j20ci0m8401.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3883499993774279" target="freeweibo-mirror">//@张鸿:？ //@蔡照明:这个还没删？</a>
+</h2>
+<p>//@张鸿:？ //@蔡照明:这个还没删？<br><br>RE: 【公开退党声明】因为深感失望，自今天开始，本人公开退出中国共产党组织，不再相信共产主义！特此声明！上海钟锦化律师。<br><img src="http://ww2.sinaimg.cn/large/9c85ac23gw1evqrhtazp4j20ci0m8401.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3883499527971179" target="freeweibo-mirror">//@KELE02:[赞]//@老沈重回49: [赞]//@…</a>
 </h2>
 <p>//@KELE02:[赞]//@老沈重回49: [赞]//@还是南开老魏: [赞][威武]//@戎戎日60记: [good][威武]<br><br>RE: 【公开退党声明】因为深感失望，自今天开始，本人公开退出中国共产党组织，不再相信共产主义！特此声明！上海钟锦化律师。<br><img src="http://ww2.sinaimg.cn/large/9c85ac23gw1evqrhtazp4j20ci0m8401.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3883499481804884" target="freeweibo-mirror">回复@一碗拉面加个蛋:同意您的意见，发布者罪恶更大。希望不是…</a>
+</h2>
+<p>回复@一碗拉面加个蛋:同意您的意见，发布者罪恶更大。希望不是警察。谢谢交流。 //@一碗拉面加个蛋:证明是警察先，我看到的法律事实是，一个叫纳慧投资公司的总经理发布的。没有证明就不猜测。</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3883499000059013" target="freeweibo-mirror">叛党和退党我觉得是两个概念吧，不过贵党的事爷不想弄明白，就是…</a>
+</h2>
+<p>叛党和退党我觉得是两个概念吧，不过贵党的事爷不想弄明白，就是觉得，就算是入了黑社会也有金盆洗手的自由吧？//@钢铁侠森哥三世: 入党宣誓第一条：永不叛党！//@苏州郎心铁:回复@光宏的天涯:哈，贵党没有退党的自由么？ //@光宏的天涯:叛徒！汉奸！你申明？你算老几？我们先开除你！ ]<br><br>RE: 【公开退党声明】因为深感失望，自今天开始，本人公开退出中国共产党组织，不再相信共产主义！特此声明！上海钟锦化律师。<br><img src="http://ww2.sinaimg.cn/large/9c85ac23gw1evqrhtazp4j20ci0m8401.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3883498471702639" target="freeweibo-mirror">[威武]@联欢画 @肖雪慧43 //@钟锦化: 【敬请严重关…</a>
+</h2>
+<p>[威武]@联欢画 @肖雪慧43 //@钟锦化: 【敬请严重关注】鉴于当前中国整个社会情势十分严峻，国家民主、自由、人权、法治状况严重恶化，万一我退党声明发布后遭遇什么不幸，请大家能给予一定关注和帮助！谢谢！钟锦化律师手机：13918852168。<br><br>RE: 【公开退党声明】因为深感失望，自今天开始，本人公开退出中国共产党组织，不再相信共产主义！特此声明！上海钟锦化律师。<br><img src="http://ww2.sinaimg.cn/large/9c85ac23gw1evqrhtazp4j20ci0m8401.jpg"></p>
 <p>
 	<small> ============== 1小时前</small>
 </p><h2>
@@ -42,19 +72,61 @@
 </h2>
 <p>【敬请严重关注】鉴于当前中国整个社会情势十分严峻，国家民主、自由、人权、法治状况严重恶化，万一我退党声明发布后遭遇什么不幸，请大家能给予一定关注和帮助！谢谢！钟锦化律师手机：13918852168。<br><br>RE: 【公开退党声明】因为深感失望，自今天开始，本人公开退出中国共产党组织，不再相信共产主义！特此声明！上海钟锦化律师。<br><img src="http://ww2.sinaimg.cn/large/9c85ac23gw1evqrhtazp4j20ci0m8401.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3883497489469484" target="freeweibo-mirror">这个还没删？</a>
 </h2>
 <p>这个还没删？<br><br>RE: 【公开退党声明】因为深感失望，自今天开始，本人公开退出中国共产党组织，不再相信共产主义！特此声明！上海钟锦化律师。<br><img src="http://ww2.sinaimg.cn/large/9c85ac23gw1evqrhtazp4j20ci0m8401.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3883497229493467" target="freeweibo-mirror">[挖鼻]第一反应居然是，轮子？//@西西福厮:表里如一，这个…</a>
 </h2>
 <p>[挖鼻]第一反应居然是，轮子？//@西西福厮:表里如一，这个要支持。不过鉴于公知的信誉，先晒晒党证吧。<br><br>RE: 【公开退党声明】因为深感失望，自今天开始，本人公开退出中国共产党组织，不再相信共产主义！特此声明！上海钟锦化律师。<br><img src="http://ww2.sinaimg.cn/large/9c85ac23gw1evqrhtazp4j20ci0m8401.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3883497154560481" target="freeweibo-mirror">回复@光宏的天涯:哈，贵党没有退党的自由么？ //@光宏的天…</a>
+</h2>
+<p>回复@光宏的天涯:哈，贵党没有退党的自由么？ //@光宏的天涯:中国共产党历史上出不少叛徒！汉奸！你申明？你算老几？我们先开除你！ //@苏州郎心铁:是条汉子！ //@一品泥人: //@碧海彩霞: //@老齊備用號: //@老沈重回49: [赞] //@还是南开老魏: [赞][威武] //@戎戎日60记: [good][威武]<br><br>RE: 【公开退党声明】因为深感失望，自今天开始，本人公开退出中国共产党组织，不再相信共产主义！特此声明！上海钟锦化律师。<br><img src="http://ww2.sinaimg.cn/large/9c85ac23gw1evqrhtazp4j20ci0m8401.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3883496667598718" target="freeweibo-mirror">他本人为何不发微博呢？没有微博？//@周蓬安: 朋友圈的东西…</a>
+</h2>
+<p>他本人为何不发微博呢？没有微博？//@周蓬安: 朋友圈的东西弄这里，经过他本人同意了吗？//@王鹏律师: 保重，做好预案！//@爱新觉罗载勋: 嗯嗯，在黨史上，張國燾是第一人，你是第二人，尚無他人。但是我們無法受理退黨手續，只能責成你的組織關係管理單位按照開除黨籍處理，并通報全黨。<br><br>RE: 【公开退党声明】因为深感失望，自今天开始，本人公开退出中国共产党组织，不再相信共产主义！特此声明！上海钟锦化律师。<br><img src="http://ww2.sinaimg.cn/large/9c85ac23gw1evqrhtazp4j20ci0m8401.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3883496369587450" target="freeweibo-mirror">表里如一，这个要支持。不过鉴于公知的信誉，先晒晒党证吧。</a>
+</h2>
+<p>表里如一，这个要支持。不过鉴于公知的信誉，先晒晒党证吧。<br><br>RE: 【公开退党声明】因为深感失望，自今天开始，本人公开退出中国共产党组织，不再相信共产主义！特此声明！上海钟锦化律师。<br><img src="http://ww2.sinaimg.cn/large/9c85ac23gw1evqrhtazp4j20ci0m8401.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3883494545444061" target="freeweibo-mirror">先把党员证晒出来</a>
+</h2>
+<p>先把党员证晒出来<br><br>RE: 【公开退党声明】因为深感失望，自今天开始，本人公开退出中国共产党组织，不再相信共产主义！特此声明！上海钟锦化律师。<br><img src="http://ww2.sinaimg.cn/large/9c85ac23gw1evqrhtazp4j20ci0m8401.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3883493564318614" target="freeweibo-mirror">//@淡竹尚有仁://@沥泉枪挑:[鼓掌]//@鱼儿时评:/…</a>
+</h2>
+<p>//@淡竹尚有仁://@沥泉枪挑:[鼓掌]//@鱼儿时评://@黄河水长浪打浪://@王建国: //@民间治堵人陈哲宏: //@陈晨czy://@崔小平律师: 国保胡搞，伤透钟律的心。何时才真有法治，不知道。<br><br>RE: 【公开退党声明】因为深感失望，自今天开始，本人公开退出中国共产党组织，不再相信共产主义！特此声明！上海钟锦化律师。<br><img src="http://ww2.sinaimg.cn/large/9c85ac23gw1evqrhtazp4j20ci0m8401.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3883493358129605" target="freeweibo-mirror">是条汉子！//@一品泥人: //@碧海彩霞: //@老齊備用…</a>
+</h2>
+<p>是条汉子！//@一品泥人: //@碧海彩霞: //@老齊備用號: //@老沈重回49: [赞]//@还是南开老魏: [赞][威武]//@戎戎日60记: [good][威武]<br><br>RE: 【公开退党声明】因为深感失望，自今天开始，本人公开退出中国共产党组织，不再相信共产主义！特此声明！上海钟锦化律师。<br><img src="http://ww2.sinaimg.cn/large/9c85ac23gw1evqrhtazp4j20ci0m8401.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3883485989587260" target="freeweibo-mirror">如梅之傲骨，与松比挺拨！//@刘二狗蛋: //@燕小小云:我…</a>
+</h2>
+<p>如梅之傲骨，与松比挺拨！//@刘二狗蛋: //@燕小小云:我记得他带着孩子出境被边控 //@刘二狗蛋: //@乔玉东在深圳:我记得一旦加入组织，永远不能叛党的。<br><br>RE: 【公开退党声明】因为深感失望，自今天开始，本人公开退出中国共产党组织，不再相信共产主义！特此声明！上海钟锦化律师。<br><img src="http://ww2.sinaimg.cn/large/9c85ac23gw1evqrhtazp4j20ci0m8401.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3883476035781070" target="freeweibo-mirror">SPAM 七二一方针……</a>
 </h2>
@@ -67,78 +139,6 @@
 <p>新四军5师15旅营长周村在接受香港某电视台采访时说，他在抗日战争中没怎么受伤，但在后来的内战中受了很多伤（请看下面的屏幕照片）…… 这话信息量好大！<br><img src="http://ww1.sinaimg.cn/large/4b5412b5gw1evqryagettj218g0oy0yd.jpg"></p>
 <p>
 	<small> ============== 3小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3883470265239060" target="freeweibo-mirror">【公开退党声明】因为深感失望，自今天开始，本人公开退出中国共…</a>
-</h2>
-<p>【公开退党声明】因为深感失望，自今天开始，本人公开退出中国共产党组织，不再相信共产主义！特此声明！上海钟锦化律师。<br><img src="http://ww2.sinaimg.cn/large/9c85ac23gw1evqrhtazp4j20ci0m8401.jpg"></p>
-<p>
-	<small> ============== 3小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3883470197131214" target="freeweibo-mirror">//@朱令是谁: //@老逗老逗://@wann2127:/…</a>
-</h2>
-<p>//@朱令是谁: //@老逗老逗://@wann2127://@快乐欧菲: //@不变的糕哥://@水木双刀_: [话筒][话筒][话筒][给力][给力][给力][赞啊][赞啊][赞啊]//@三教布衣AAA:转发微博<br><br>RE: 一个提出"亚投行"和"一路一带"试图引领世界经济的国家，国内股市跌了就骂美国阴谋。纪念反法西斯胜利70年，媒体居然把阅兵仪式的导弹取名东京快递纽约快递，网络居然充斥咒骂美国和种族言论。911后曾欢庆的人还不该反省吗？美国或许连纸老虎都不是，但咱自己养的老虎打都打不完，甚至，打都不舍得打。</p>
-<p>
-	<small> ============== 3小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3883450056268705" target="freeweibo-mirror">SPAM 养蜂小哥用视频带您感受养蜂生活，这么执着，质朴，难…</a>
-</h2>
-<p>SPAM 养蜂小哥用视频带您感受养蜂生活，这么执着，质朴，难道不值得我们支持吗？</p>
-<p>
-	<small> ============== 5小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3883432616326535" target="freeweibo-mirror">投降日军的伪军将领称，他们投降日军的目的，就是为了和日军联手…</a>
-</h2>
-<p>投降日军的伪军将领称，他们投降日军的目的，就是为了和日军联手消灭共产党。由此可见他们没投降日军前，这些“友军”对共军是什么样的态度。 http://t.cn/Ry2H06X</p>
-<p>
-	<small> ============== 6小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3883430137569116" target="freeweibo-mirror">//@地中海盗_68752:博主只是重复国民党的说辞。问题是…</a>
-</h2>
-<p>//@地中海盗_68752:博主只是重复国民党的说辞。问题是你国民党和国军不那么烂，共产党能有机会吗？你丢了一大半国土给日本人，怪谁？共产党进入敌后的部队最初不过4万人，最后发展到100万；你国军留在敌后的部队最初有上百万，可最后不是投敌就是被消灭，怪谁？你发展不起来，却不让别人发展，可能吗？</p>
-<p>
-	<small> ============== 6小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3883422948774475" target="freeweibo-mirror">SPAM 低俗的心思，你想让欧和亚联姻毁掉中国吗？开这样的玩…</a>
-</h2>
-<p>SPAM 低俗的心思，你想让欧和亚联姻毁掉中国吗？开这样的玩笑，过了[嘻嘻]</p>
-<p>
-	<small> ============== 6小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3883422520715955" target="freeweibo-mirror">德驻华大使密电：“他(蒋介石)秘密告诉我，假如他同意日本要求…</a>
-</h2>
-<p>德驻华大使密电：“他(蒋介石)秘密告诉我，假如他同意日本要求，政府会被舆论浪潮冲倒发生革命，唯一结果就是共产党在中国占优势，这就意味着日本不可能与中国议和，因为共产党是从来不投降的。”——没共党，是不是早就投降了，最后成为二战战败国？就冲这一点，共产党怎么不是中流砥柱？</p>
-<p>
-	<small> ============== 6小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3883413298153946" target="freeweibo-mirror">SPAM 男女拍拖，到底拍几耐就可以做爱？D女仔居然咁嚟回答…</a>
-</h2>
-<p>SPAM 男女拍拖，到底拍几耐就可以做爱？D女仔居然咁嚟回答！吓咗我一跳！男女都应该睇睇。睇内容请加 微-信-号：gzhappy123，然后发送数字：888，即显示内容!!<br><img src="http://ww3.sinaimg.cn/large/983b0720gw1evqkyr0m6pj20cw08yq4a.jpg"></p>
-<p>
-	<small> ============== 7小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3883403277552298" target="freeweibo-mirror">SPAM 【澳門】本澳青少年網站普遍存私隱風險（2/3）個資…</a>
-</h2>
-<p>SPAM 【澳門】本澳青少年網站普遍存私隱風險（2/3）個資辦早前與全球29個私隱執法機構開展“私隱風險搜尋” (Privacy Sweep) 聯合行動，個資辦共評估了9個以青少年為主要使用對象的網站或手機應用程式的私隱風險，包括大中小學的校園討論區、動漫或遊戲討論區、成人話題討論區等。</p>
-<p>
-	<small> ============== 8小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3883402018919161" target="freeweibo-mirror">SPAM 发表了一篇转载博文《[转载]当他们达到最无耻的亢奋…</a>
-</h2>
-<p>SPAM 发表了一篇转载博文《[转载]当他们达到最无耻的亢奋状态时，算总帐的来了》http://t.cn/Ry2jxTd</p>
-<p>
-	<small> ============== 8小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3883400332779678" target="freeweibo-mirror">SPAM 什么情况？[疑问]</a>
-</h2>
-<p>SPAM 什么情况？[疑问]<br><br>RE: 从号子里面出来了，麻痹因为暴力膜蛤蹲了10天</p>
-<p>
-	<small> ============== 8小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3883399833858488" target="freeweibo-mirror">SPAM 膜蛤无罪！[泪] //@黄薄码:…</a>
-</h2>
-<p>SPAM 膜蛤无罪！[泪] //@黄薄码:…<br><br>RE: 从号子里面出来了，麻痹因为暴力膜蛤蹲了10天</p>
-<p>
-	<small> ============== 8小时前</small>
 </p>
 <table>
     <tr>
