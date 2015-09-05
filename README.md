@@ -66,7 +66,7 @@
 </h2>
 <p>//@广州区伯:垃圾留下的是垃圾，垃圾走后还有垃圾，垃圾不可能带走垃圾。<br><br>RE: 偶的脸也红了……<br><img src="http://ww1.sinaimg.cn/large/a62471f0jw1evrh43skrtj20p00eq42a.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3883805343581413" target="freeweibo-mirror">垃圾留下的是垃圾，垃圾走后还有垃圾，垃圾不可能带走垃圾。</a>
 </h2>
