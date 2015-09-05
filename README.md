@@ -114,7 +114,7 @@
 </h2>
 <p>SPAM 为什么不是国庆阅啊？以前9月3号阅过吗？//@老卒过河:……<br><br>RE: 凤姐这是再不打算回来了啊[拜拜]<br><img src="http://ww2.sinaimg.cn/large/76716e15jw1evr99cu5e3j20v90rqdkz.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3883660548228607" target="freeweibo-mirror">SPAM 中国文学经典可以传世的不多，段子能够传世的不少！[…</a>
 </h2>
