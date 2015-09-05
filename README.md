@@ -32,6 +32,18 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3883639714335787" target="freeweibo-mirror">「昏睡百年，國人猶未醒」</a>
+</h2>
+<p>「昏睡百年，國人猶未醒」</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3883638573977601" target="freeweibo-mirror">这几天很多人因为一场月饼而与自己的熟人观点迥异，互相拉黑。其…</a>
+</h2>
+<p>这几天很多人因为一场月饼而与自己的熟人观点迥异，互相拉黑。其实质是国民没有公共记忆导致的信息落差，奴化教育与公民自觉之间的冲突。这场冲突一直存在，且会越来越严重，这是原有的洗脑教育成果与网络时代民间启蒙的一次正面交锋。可悲的是，这也预示着一个撕裂时代的到来，其前景并不乐观。</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3883634731875905" target="freeweibo-mirror">SPAM 图文并茂，看懂”防火墙“的升级，在月饼之际中国网民…</a>
 </h2>
 <p>SPAM 图文并茂，看懂”防火墙“的升级，在月饼之际中国网民感受至深——原本，互联网让知识可以扁平传递，现在“屠梯”行动恐将人们逼回“口耳相传”的模式。未来，“翻墙”可能是一种手艺，如何传承，任重道远。@王思聪</p>
@@ -125,18 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3883501642095403" target="freeweibo-mirror">//@2可器: //@垂直的风:保重！ //@陈光武律师:/…</a>
 </h2>
 <p>//@2可器: //@垂直的风:保重！ //@陈光武律师://@骑牛隐士: //@崔小平律师: 国保胡搞，伤透钟律的心。何时才真有法治，不知道。<br><br>RE: 【公开退党声明】因为深感失望，自今天开始，本人公开退出中国共产党组织，不再相信共产主义！特此声明！上海钟锦化律师。<br><img src="http://ww2.sinaimg.cn/large/9c85ac23gw1evqrhtazp4j20ci0m8401.jpg"></p>
-<p>
-	<small> ============== 11小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3883500199965826" target="freeweibo-mirror">//@橄榄888: //@民间治堵人陈哲宏: //@陈晨cz…</a>
-</h2>
-<p>//@橄榄888: //@民间治堵人陈哲宏: //@陈晨czy://@崔小平律师: 国保胡搞，伤透钟律的心。何时才真有法治，不知道。<br><br>RE: 【公开退党声明】因为深感失望，自今天开始，本人公开退出中国共产党组织，不再相信共产主义！特此声明！上海钟锦化律师。<br><img src="http://ww2.sinaimg.cn/large/9c85ac23gw1evqrhtazp4j20ci0m8401.jpg"></p>
-<p>
-	<small> ============== 11小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3883499993774279" target="freeweibo-mirror">//@张鸿:？ //@蔡照明:这个还没删？</a>
-</h2>
-<p>//@张鸿:？ //@蔡照明:这个还没删？<br><br>RE: 【公开退党声明】因为深感失望，自今天开始，本人公开退出中国共产党组织，不再相信共产主义！特此声明！上海钟锦化律师。<br><img src="http://ww2.sinaimg.cn/large/9c85ac23gw1evqrhtazp4j20ci0m8401.jpg"></p>
 <p>
 	<small> ============== 11小时前</small>
 </p>
