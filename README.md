@@ -24,7 +24,7 @@
 </h2>
 <p>SPAM 我们总是把胆识二字放在一起说，但很多时候我搞不明白到底是胆大撑起识见，还是见识撑起胆量？<br><img src="http://ww3.sinaimg.cn/large/6322f7ddjw1evrxea3juvj20c80ic409.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3883828450333174" target="freeweibo-mirror">//@老犯错GGG:[哈哈]玉凤的龙种，毛将军应该叫他四叔吧…</a>
 </h2>
@@ -53,6 +53,12 @@
 	<a href="https://freeweibo.com/weibo/3883810582409525" target="freeweibo-mirror">→_→区伯说得好！[赞]//@敏奇微博: 区伯评论精准！//…</a>
 </h2>
 <p>→_→区伯说得好！[赞]//@敏奇微博: 区伯评论精准！//@钟老汉: //@国际时事军事评论员吴戈: //@广州区伯:垃圾留下的是垃圾，垃圾走后还有垃圾，垃圾不可能带走垃圾。<br><br>RE: 偶的脸也红了……<br><img src="http://ww1.sinaimg.cn/large/a62471f0jw1evrh43skrtj20p00eq42a.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3883808652723510" target="freeweibo-mirror">刘少奇以中华人民共和国主席之尊，被斗倒斗臭，甚至火葬时都不能…</a>
+</h2>
+<p>刘少奇以中华人民共和国主席之尊，被斗倒斗臭，甚至火葬时都不能用真名，革命一生，下场凄凉。死前说了一句名言：「好在历史是人民写的。」我觉得他老兄至死不悟。事实上，统治人民高高在上的党棍固不能写出真历史，他们统治下低低在下的人民也写不出真历史。真历史是独来独往的专家写的。</p>
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
@@ -108,7 +114,7 @@
 </h2>
 <p>//@王楚襄在赵国: 转发微博<br><br>RE: 并不是所有抗战老兵记忆都不靠谱，共产党的老兵明显比国民党的靠谱，地位高的比地位低的靠谱。<br><img src="http://ww2.sinaimg.cn/large/67780590jw1evrme0tkhaj20e40epaax.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3883769775660275" target="freeweibo-mirror">[生病]//@贺江兵:[衰] //@张洲:哈哈哈哈哈，不忍细…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3883763651694253" target="freeweibo-mirror">博主的意思是想说：奥巴马破坏中美默契缺席中国阅兵式，作为回应…</a>
 </h2>
 <p>博主的意思是想说：奥巴马破坏中美默契缺席中国阅兵式，作为回应，习大大也会放弃9月份访美？！</p>
-<p>
-	<small> ============== 6小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3883759806221018" target="freeweibo-mirror">[哈哈][哈哈]//@易天:当年新四军残部在安庆怀宁枞阳一带…</a>
-</h2>
-<p>[哈哈][哈哈]//@易天:当年新四军残部在安庆怀宁枞阳一带组织抗日游击队，当地乡绅冒死为游击队征集钱物，除了寥寥几个富商，农户平民无一响应。而此地刚刚经历日军屠杀，数户被灭门。最悲哀的就是，游击队队长被日军乱枪击毙时，农民围观看热闹！说实话，为此等民众卖命，换我也不甘心。<br><br>RE: 并不是所有抗战老兵记忆都不靠谱，共产党的老兵明显比国民党的靠谱，地位高的比地位低的靠谱。<br><img src="http://ww2.sinaimg.cn/large/67780590jw1evrme0tkhaj20e40epaax.jpg"></p>
 <p>
 	<small> ============== 6小时前</small>
 </p>
