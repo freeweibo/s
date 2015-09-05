@@ -32,6 +32,12 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3883769775660275" target="freeweibo-mirror">[生病]//@贺江兵:[衰] //@张洲:哈哈哈哈哈，不忍细…</a>
+</h2>
+<p>[生病]//@贺江兵:[衰] //@张洲:哈哈哈哈哈，不忍细读。//@喷嚏网铂程: 转发微博<br><br>RE: 并不是所有抗战老兵记忆都不靠谱，共产党的老兵明显比国民党的靠谱，地位高的比地位低的靠谱。<br><img src="http://ww2.sinaimg.cn/large/67780590jw1evrme0tkhaj20e40epaax.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3883766277240137" target="freeweibo-mirror">SPAM 回覆@手机号新昵称:你不要被國民黨呆丸人吹鳥了。 …</a>
 </h2>
 <p>SPAM 回覆@手机号新昵称:你不要被國民黨呆丸人吹鳥了。 //@手机号新昵称:你不要被共产党大陆人洗脑了[笑cry][笑cry][笑cry]@我愛夏天在台灣 @喜楓彩</p>
@@ -56,11 +62,17 @@
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3883751316381057" target="freeweibo-mirror">//@海龙-7:转发微博</a>
+</h2>
+<p>//@海龙-7:转发微博<br><br>RE: 【人民币胜！】隔壁寡妇说:   终于明白为什么说出人民必胜了，原来请来的看客都是用人民币砸出来的，不给钱人家不鸟你，白给钱的买卖谁不干[哈哈]屁民们还做梦以为人民必胜呢，结果是人民币胜了[笑cry]整个月饼不只是花纳税人的血汗钱，简直就是烧人民的血汗钱啊……<br><img src="http://ww3.sinaimg.cn/large/0065sdkVjw1evrnkoiexjj30ac0cdaa7.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3883746900043142" target="freeweibo-mirror">//@快乐的猪-星哥: //@又有来来7:[吃惊][吃惊]/…</a>
 </h2>
 <p>//@快乐的猪-星哥: //@又有来来7:[吃惊][吃惊]//@华夏苍生: 又炸了？[吃惊]<br><br>RE: #天津塘沽大爆炸#今天上午，海港城有几百请愿的聚集在新区政府门口，后被劝去了信访办。又抓了几个人警车拉走了。同样也是刚刚，核心区又爆炸了，一声巨响。本来灾民就有心理阴影，下雨打雷都惊恐。。<br><img src="http://ww3.sinaimg.cn/large/6ca0a725jw1evrh370xmxj20p018g41x.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3883743133497821" target="freeweibo-mirror">天津今天又爆炸了？不是谣言吧？//@施力勤: //@连鹏:这…</a>
 </h2>
@@ -96,7 +108,7 @@
 </h2>
 <p>SPAM 徐兄太[偷笑]<br><br>RE: 看完阅兵直播，部长让网评员谈体会。老李兴奋地说：东风SB导弹太强大了，射程1.5万公里，覆盖美国本地，可随时把纽约炸沉海底。话音刚落，部长冲过来，抽了他一耳光：是东风5B，不是东风SB，你才傻逼呢。老李捂着脸，无地自容。邻座的小声说：你活该，他的老婆孩子就在曼哈顿。</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3883726947454055" target="freeweibo-mirror">SPAM //@潘朵拉: [汗] //@航海的波:这种谣也造…</a>
 </h2>
@@ -125,18 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3883714561755588" target="freeweibo-mirror">[吃惊]什么概念啊，又来！//@任志强: [吃惊] //@洪…</a>
 </h2>
 <p>[吃惊]什么概念啊，又来！//@任志强: [吃惊] //@洪晃ilook:转发微博<br><br>RE: #天津塘沽大爆炸#今天上午，海港城有几百请愿的聚集在新区政府门口，后被劝去了信访办。又抓了几个人警车拉走了。同样也是刚刚，核心区又爆炸了，一声巨响。本来灾民就有心理阴影，下雨打雷都惊恐。。<br><img src="http://ww3.sinaimg.cn/large/6ca0a725jw1evrh370xmxj20p018g41x.jpg"></p>
-<p>
-	<small> ============== 6小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3883713072499292" target="freeweibo-mirror">[吃惊]//@任志强: [吃惊] //@洪晃ilook:转发…</a>
-</h2>
-<p>[吃惊]//@任志强: [吃惊] //@洪晃ilook:转发微博<br><br>RE: #天津塘沽大爆炸#今天上午，海港城有几百请愿的聚集在新区政府门口，后被劝去了信访办。又抓了几个人警车拉走了。同样也是刚刚，核心区又爆炸了，一声巨响。本来灾民就有心理阴影，下雨打雷都惊恐。。<br><img src="http://ww3.sinaimg.cn/large/6ca0a725jw1evrh370xmxj20p018g41x.jpg"></p>
-<p>
-	<small> ============== 6小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3883712854807936" target="freeweibo-mirror">//@但斌:转发微博</a>
-</h2>
-<p>//@但斌:转发微博<br><br>RE: 【自从发明了五毛 整个网络都不好了】负责任说真话的名博慢慢消灭殆尽，网上已经找不到几篇有价值的东西。狼多肉少，五毛太多，公知不够用了。[嘻嘻]<br><img src="http://ww1.sinaimg.cn/large/6b804b51jw1evrf0xojdnj20c807tt8w.jpg"></p>
 <p>
 	<small> ============== 6小时前</small>
 </p>
