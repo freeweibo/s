@@ -20,15 +20,27 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3883823068295516" target="freeweibo-mirror">SPAM 评论 @江湖侠客吴仲湛 的博文 【斯大林的错字爱与…</a>
+</h2>
+<p>SPAM 评论 @江湖侠客吴仲湛 的博文 【斯大林的错字爱与习大大的左手礼：东鳞西爪（119）】："秉烛笑话。一县官写信给老朋友另一县官，师爷执笔。天黑，县官高声吩咐下人：“秉烛！”点灯照明之意。师爷照写下来。老友接信，怎么读也不通晓信中突兀出现秉烛二字" 查看原文：http://t.cn/RyLZkEN</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3883813442923488" target="freeweibo-mirror">//@作家东海: →_→ //@星夜_霓虹:→_→//@广州…</a>
 </h2>
 <p>//@作家东海: →_→ //@星夜_霓虹:→_→//@广州区伯: 垃圾留下的是垃圾，垃圾走后还有垃圾，垃圾不可能带走垃圾。<br><br>RE: 偶的脸也红了……<br><img src="http://ww1.sinaimg.cn/large/a62471f0jw1evrh43skrtj20p00eq42a.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3883810582409525" target="freeweibo-mirror">→_→区伯说得好！[赞]//@敏奇微博: 区伯评论精准！//…</a>
 </h2>
 <p>→_→区伯说得好！[赞]//@敏奇微博: 区伯评论精准！//@钟老汉: //@国际时事军事评论员吴戈: //@广州区伯:垃圾留下的是垃圾，垃圾走后还有垃圾，垃圾不可能带走垃圾。<br><br>RE: 偶的脸也红了……<br><img src="http://ww1.sinaimg.cn/large/a62471f0jw1evrh43skrtj20p00eq42a.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3883806815701588" target="freeweibo-mirror">//@广州区伯:垃圾留下的是垃圾，垃圾走后还有垃圾，垃圾不可…</a>
+</h2>
+<p>//@广州区伯:垃圾留下的是垃圾，垃圾走后还有垃圾，垃圾不可能带走垃圾。<br><br>RE: 偶的脸也红了……<br><img src="http://ww1.sinaimg.cn/large/a62471f0jw1evrh43skrtj20p00eq42a.jpg"></p>
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
@@ -54,7 +66,7 @@
 </h2>
 <p>SPAM //@王冲: 近期最好的文章 //@笨笨an://@悠野V:精辟！<br><br>RE: 【张千帆：法西斯并未离我们远去-华尔街日报】<br><img src="http://ww2.sinaimg.cn/large/7f67ac0dgw1evransmlegj20hs3067wh.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3883779393808228" target="freeweibo-mirror">SPAM //@悠野V:精辟！</a>
 </h2>
@@ -127,18 +139,6 @@
 <p>另一种观点。//@文紫川: 二战后发动战争最多的国家：美国<br><br>RE: 【深度好文|法西斯并未离我们远去】http://t.cn/RyLG5HQ专制国家天生有更强的打仗动因，因为专制国家的决策由统治者说了算，而统治者自己并不直接承担战争的代价。仗打赢了，自己扩充疆土和财宝；即便打输了，一般也是割地赔款了事，只要不做亡国之君就不会危及自己家族的生活。<br><img src="http://ww2.sinaimg.cn/large/41693645jw1evrifj5t01j20t318gag0.jpg"></p>
 <p>
 	<small> ============== 5小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3883755066403396" target="freeweibo-mirror">说了实话</a>
-</h2>
-<p>说了实话<br><br>RE: 并不是所有抗战老兵记忆都不靠谱，共产党的老兵明显比国民党的靠谱，地位高的比地位低的靠谱。<br><img src="http://ww2.sinaimg.cn/large/67780590jw1evrme0tkhaj20e40epaax.jpg"></p>
-<p>
-	<small> ============== 5小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3883751316381057" target="freeweibo-mirror">//@海龙-7:转发微博</a>
-</h2>
-<p>//@海龙-7:转发微博<br><br>RE: 【人民币胜！】隔壁寡妇说:   终于明白为什么说出人民必胜了，原来请来的看客都是用人民币砸出来的，不给钱人家不鸟你，白给钱的买卖谁不干[哈哈]屁民们还做梦以为人民必胜呢，结果是人民币胜了[笑cry]整个月饼不只是花纳税人的血汗钱，简直就是烧人民的血汗钱啊……<br><img src="http://ww3.sinaimg.cn/large/0065sdkVjw1evrnkoiexjj30ac0cdaa7.jpg"></p>
-<p>
-	<small> ============== 6小时前</small>
 </p>
 <table>
     <tr>
