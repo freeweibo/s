@@ -72,7 +72,7 @@
 </h2>
 <p>知识贴：你是这样show 爱爱的吗？收图不谢 #啪啪分享#<br><img src="http://ww4.sinaimg.cn/large/9ff760d3gw1evryf1luoxg206y03w4p7.gif"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3883835135329092" target="freeweibo-mirror">SPAM 再学学日语～</a>
 </h2>
