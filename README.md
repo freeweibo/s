@@ -36,13 +36,13 @@
 </h2>
 <p>SPAM  //@刘文华律师://@崔小平律师://@李继锋:凤姐这下回不了国喽[挖鼻]//@贺江兵: 跨国[哈哈] //@无畏高尔察克://@垂直的风:[偷笑][偷笑]<br><br>RE: 罗玉凤发完这篇东西被许多女性围攻谩骂，而男性却表示难以置信，凤姐竟能写出这样的东西。无知与狭隘限制了精神认知的成长，也造就了盲目信仰的温床。凤姐，你事大了。<br><img src="http://ww3.sinaimg.cn/large/6c938239jw1evrcpa95otj20c80lpmyx.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3883672820538602" target="freeweibo-mirror">SPAM 红色通缉令？//@田佳佳: 心明眼亮//@贺江兵:…</a>
 </h2>
 <p>SPAM 红色通缉令？//@田佳佳: 心明眼亮//@贺江兵: 跨国[哈哈] //@无畏高尔察克://@垂直的风:[偷笑][偷笑]<br><br>RE: 罗玉凤发完这篇东西被许多女性围攻谩骂，而男性却表示难以置信，凤姐竟能写出这样的东西。无知与狭隘限制了精神认知的成长，也造就了盲目信仰的温床。凤姐，你事大了。<br><img src="http://ww3.sinaimg.cn/large/6c938239jw1evrcpa95otj20c80lpmyx.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3883672774078063" target="freeweibo-mirror">SPAM 凤姐这下回不了国喽[挖鼻]//@贺江兵: 跨国[哈…</a>
 </h2>
@@ -83,6 +83,12 @@
 	<a href="https://freeweibo.com/weibo/3883647406455002" target="freeweibo-mirror">另一种声音</a>
 </h2>
 <p>另一种声音<br><br>RE: 今年7月罗玉凤女士成为凤凰新闻客户端签约主笔，今天，罗主笔发了这条微博，凤凰新闻客户端怎么看？<br><img src="http://ww1.sinaimg.cn/large/6309fc78jw1evrautcfmgj20g20c840k.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3883646597558290" target="freeweibo-mirror">昨晚临睡前发了这组网络照片，因为有人发出来是阅兵观礼台阅兵之…</a>
+</h2>
+<p>昨晚临睡前发了这组网络照片，因为有人发出来是阅兵观礼台阅兵之后的场景，我不由感慨，说中国文明素质目前和日本差距与清末中国日本差距一样，结果早晨醒来醒来被网友爆骂，于是删帖，我坚持我的观点，我只是想求证下，这是不是观礼台阅兵后现场照片？<br><img src="http://ww3.sinaimg.cn/large/4c148083jw1evrbmit47fj20dc09kq39.jpg"></p>
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
@@ -133,12 +139,6 @@
 <p>凤姐这是再不打算回来了啊[拜拜]<br><img src="http://ww2.sinaimg.cn/large/76716e15jw1evr99cu5e3j20v90rqdkz.jpg"></p>
 <p>
 	<small> ============== 5小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3883608504749232" target="freeweibo-mirror">//@陈军--价值投资者:刮目相看！//@安普若-外号安校长…</a>
-</h2>
-<p>//@陈军--价值投资者:刮目相看！//@安普若-外号安校长:我凤姐的勇气折服。<br><br>RE: 去年的南京大屠杀纪念，今年是二战胜利阅兵，目的都只有一个，就是让愚昧的群众在仇恨和骄傲这些虚无缥缈的情绪中，忘记自己的饥饿，失业和无望的生活。在国际上，美国和俄国比中国更有资格举行庆祝二战胜利阅兵。在国内，国民党比共产党更有资格阅兵。所谓的庆祝二战胜利阅兵，不过是个国际笑话。</p>
-<p>
-	<small> ============== 6小时前</small>
 </p>
 <table>
     <tr>
