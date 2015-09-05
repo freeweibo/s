@@ -96,13 +96,13 @@
 </h2>
 <p>我现在知道为什么要签罗玉凤当主笔了，可以让很多人多个笔名。<br><br>RE: 今年7月罗玉凤女士成为凤凰新闻客户端签约主笔，今天，罗主笔发了这条微博，凤凰新闻客户端怎么看？<br><img src="http://ww1.sinaimg.cn/large/6309fc78jw1evrautcfmgj20g20c840k.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3883669716736194" target="freeweibo-mirror">SPAM 凤姐的三观时而其邪，时而其正。该如何解释？[吃惊]</a>
 </h2>
 <p>SPAM 凤姐的三观时而其邪，时而其正。该如何解释？[吃惊]<br><br>RE: 凤姐貌似很卑微，因为她一直生活在社会的底层，父亲母亲也都是这样，甚至连一个拿得出手的亲戚朋友都没有。同时她也很骄傲，因为她也是一个不甘于生活现状的人，并且为此努力了，更重要的是，她至今还保留一颗傲世不逊的心，知道自己为什么这样被奴役和压迫。我想这也是很多朋友能够保持自尊的原因。<br><img src="http://ww1.sinaimg.cn/large/006deEbfjw1evrcu9i0pqj30g20c8gmi.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3883665941521565" target="freeweibo-mirror">//@郭春江:博主说出了一个事实！无可争辩的事实！//@余丰…</a>
 </h2>
@@ -138,7 +138,7 @@
 </h2>
 <p>罗玉凤发完这篇东西被许多女性围攻谩骂，而男性却表示难以置信，凤姐竟能写出这样的东西。无知与狭隘限制了精神认知的成长，也造就了盲目信仰的温床。凤姐，你事大了。<br><img src="http://ww3.sinaimg.cn/large/6c938239jw1evrcpa95otj20c80lpmyx.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p>
 <table>
     <tr>
