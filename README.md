@@ -66,7 +66,7 @@
 </h2>
 <p>//@王楚襄在赵国: 转发微博<br><br>RE: 并不是所有抗战老兵记忆都不靠谱，共产党的老兵明显比国民党的靠谱，地位高的比地位低的靠谱。<br><img src="http://ww2.sinaimg.cn/large/67780590jw1evrme0tkhaj20e40epaax.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3883769775660275" target="freeweibo-mirror">[生病]//@贺江兵:[衰] //@张洲:哈哈哈哈哈，不忍细…</a>
 </h2>
