@@ -68,6 +68,12 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3883848918018931" target="freeweibo-mirror">知识贴：你是这样show 爱爱的吗？收图不谢 #啪啪分享#</a>
+</h2>
+<p>知识贴：你是这样show 爱爱的吗？收图不谢 #啪啪分享#<br><img src="http://ww4.sinaimg.cn/large/9ff760d3gw1evryf1luoxg206y03w4p7.gif"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3883835135329092" target="freeweibo-mirror">SPAM 再学学日语～</a>
 </h2>
 <p>SPAM 再学学日语～<br><img src="http://ww1.sinaimg.cn/large/6e6b548bjw1evrxeu3el1j20u00u0gu9.jpg"></p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3883805343581413" target="freeweibo-mirror">垃圾留下的是垃圾，垃圾走后还有垃圾，垃圾不可能带走垃圾。</a>
 </h2>
 <p>垃圾留下的是垃圾，垃圾走后还有垃圾，垃圾不可能带走垃圾。<br><br>RE: 偶的脸也红了……<br><img src="http://ww1.sinaimg.cn/large/a62471f0jw1evrh43skrtj20p00eq42a.jpg"></p>
-<p>
-	<small> ============== 5小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3883804692852687" target="freeweibo-mirror">【谁在阻碍统一】转：对台湾，以前很强硬，什么不排除武力，什么…</a>
-</h2>
-<p>【谁在阻碍统一】转：对台湾，以前很强硬，什么不排除武力，什么试射导弹，什么外交封锁，能做的基本都做了；现在，那边放话过来，只要普选，就可以统一，这边反而沉寂了。看来，他们宁愿战争，或者说宁愿不统一，也不愿实现普选、民主、自由；对于他们来说，最可怕的就是失去政权和既得利益。</p>
 <p>
 	<small> ============== 5小时前</small>
 </p>
