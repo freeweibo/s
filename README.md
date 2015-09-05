@@ -72,7 +72,7 @@
 </h2>
 <p>SPAM 微信朋友圈里已经看不到 //@杨佩昌:据说已被全网风沙。//@王冲:近期最好的文章 //@笨笨an://@悠野V:精辟！<br><br>RE: 【张千帆：法西斯并未离我们远去-华尔街日报】<br><img src="http://ww2.sinaimg.cn/large/7f67ac0dgw1evransmlegj20hs3067wh.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3883784196047332" target="freeweibo-mirror">SPAM 据说已被全网风沙。//@王冲:近期最好的文章 //…</a>
 </h2>
@@ -114,7 +114,7 @@
 </h2>
 <p>[生病]//@贺江兵:[衰] //@张洲:哈哈哈哈哈，不忍细读。//@喷嚏网铂程: 转发微博<br><br>RE: 并不是所有抗战老兵记忆都不靠谱，共产党的老兵明显比国民党的靠谱，地位高的比地位低的靠谱。<br><img src="http://ww2.sinaimg.cn/large/67780590jw1evrme0tkhaj20e40epaax.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3883766332178325" target="freeweibo-mirror">[生病] //@-孔智勇:希望此贴不被屏蔽，相信喷喷更健康！…</a>
 </h2>
