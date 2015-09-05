@@ -96,7 +96,7 @@
 </h2>
 <p>//@应天澜:想动摇我党执政地位，门也没有[右哼哼]//@杨子评:这是蓝绿两党的糖衣炮弹，我们才不上当呢[偷笑]</p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3883823496716429" target="freeweibo-mirror">SPAM 有[喜]糖么？</a>
 </h2>
@@ -132,7 +132,7 @@
 </h2>
 <p>→_→区伯说得好！[赞]//@敏奇微博: 区伯评论精准！//@钟老汉: //@国际时事军事评论员吴戈: //@广州区伯:垃圾留下的是垃圾，垃圾走后还有垃圾，垃圾不可能带走垃圾。<br><br>RE: 偶的脸也红了……<br><img src="http://ww1.sinaimg.cn/large/a62471f0jw1evrh43skrtj20p00eq42a.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3883808652723510" target="freeweibo-mirror">刘少奇以中华人民共和国主席之尊，被斗倒斗臭，甚至火葬时都不能…</a>
 </h2>
