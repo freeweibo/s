@@ -114,7 +114,7 @@
 </h2>
 <p>→_→区伯说得好！[赞]//@敏奇微博: 区伯评论精准！//@钟老汉: //@国际时事军事评论员吴戈: //@广州区伯:垃圾留下的是垃圾，垃圾走后还有垃圾，垃圾不可能带走垃圾。<br><br>RE: 偶的脸也红了……<br><img src="http://ww1.sinaimg.cn/large/a62471f0jw1evrh43skrtj20p00eq42a.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3883808652723510" target="freeweibo-mirror">刘少奇以中华人民共和国主席之尊，被斗倒斗臭，甚至火葬时都不能…</a>
 </h2>
