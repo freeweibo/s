@@ -72,7 +72,7 @@
 </h2>
 <p>SPAM 回覆@手机号新昵称:你不要被國民黨呆丸人吹鳥了。 //@手机号新昵称:你不要被共产党大陆人洗脑了[笑cry][笑cry][笑cry]@我愛夏天在台灣 @喜楓彩</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3883763651694253" target="freeweibo-mirror">博主的意思是想说：奥巴马破坏中美默契缺席中国阅兵式，作为回应…</a>
 </h2>
@@ -114,7 +114,7 @@
 </h2>
 <p>//@海龙-7:转发微博<br><br>RE: 【人民币胜！】隔壁寡妇说:   终于明白为什么说出人民必胜了，原来请来的看客都是用人民币砸出来的，不给钱人家不鸟你，白给钱的买卖谁不干[哈哈]屁民们还做梦以为人民必胜呢，结果是人民币胜了[笑cry]整个月饼不只是花纳税人的血汗钱，简直就是烧人民的血汗钱啊……<br><img src="http://ww3.sinaimg.cn/large/0065sdkVjw1evrnkoiexjj30ac0cdaa7.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3883749466793611" target="freeweibo-mirror">【人民币胜！】隔壁寡妇说:   终于明白为什么说出人民必胜了…</a>
 </h2>
