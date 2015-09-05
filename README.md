@@ -48,7 +48,7 @@
 </h2>
 <p>→_→区伯说得好！[赞]//@敏奇微博: 区伯评论精准！//@钟老汉: //@国际时事军事评论员吴戈: //@广州区伯:垃圾留下的是垃圾，垃圾走后还有垃圾，垃圾不可能带走垃圾。<br><br>RE: 偶的脸也红了……<br><img src="http://ww1.sinaimg.cn/large/a62471f0jw1evrh43skrtj20p00eq42a.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3883806815701588" target="freeweibo-mirror">//@广州区伯:垃圾留下的是垃圾，垃圾走后还有垃圾，垃圾不可…</a>
 </h2>
