@@ -30,7 +30,7 @@
 </h2>
 <p>SPAM 据说已被全网风沙。//@王冲:近期最好的文章 //@笨笨an://@悠野V:精辟！<br><br>RE: 【张千帆：法西斯并未离我们远去-华尔街日报】<br><img src="http://ww2.sinaimg.cn/large/7f67ac0dgw1evransmlegj20hs3067wh.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3883782588935274" target="freeweibo-mirror">SPAM //@王冲: 近期最好的文章 //@笨笨an://…</a>
 </h2>
@@ -38,9 +38,27 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3883779393808228" target="freeweibo-mirror">SPAM //@悠野V:精辟！</a>
+</h2>
+<p>SPAM //@悠野V:精辟！<br><br>RE: 【张千帆：法西斯并未离我们远去-华尔街日报】<br><img src="http://ww2.sinaimg.cn/large/7f67ac0dgw1evransmlegj20hs3067wh.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3883775866297832" target="freeweibo-mirror">SPAM 最右//@斌动自如生生不息: //@价值诠释:[哈…</a>
 </h2>
 <p>SPAM 最右//@斌动自如生生不息: //@价值诠释:[哈哈]//@全球评点-: 一代奸贼摧毁国企，七千万工人兄弟下岗！自己儿女却非常途径各据肥差，儿子小来子国企却年薪1.7亿！博主你奶奶个熊，为了点狗粮，你连你爹姓什么都忘了吧！</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3883774876215658" target="freeweibo-mirror">以偏概全。150万鬼子是自己死的？平型关、响堂铺都是吹的？历…</a>
+</h2>
+<p>以偏概全。150万鬼子是自己死的？平型关、响堂铺都是吹的？历史虚无主义者都别有用心 //@连鹏:“保存了实力”，老人激动地说。<br><br>RE: 并不是所有抗战老兵记忆都不靠谱，共产党的老兵明显比国民党的靠谱，地位高的比地位低的靠谱。<br><img src="http://ww2.sinaimg.cn/large/67780590jw1evrme0tkhaj20e40epaax.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3883774507239970" target="freeweibo-mirror">//@王楚襄在赵国: 转发微博</a>
+</h2>
+<p>//@王楚襄在赵国: 转发微博<br><br>RE: 并不是所有抗战老兵记忆都不靠谱，共产党的老兵明显比国民党的靠谱，地位高的比地位低的靠谱。<br><img src="http://ww2.sinaimg.cn/large/67780590jw1evrme0tkhaj20e40epaax.jpg"></p>
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
@@ -62,15 +80,33 @@
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3883759806221018" target="freeweibo-mirror">[哈哈][哈哈]//@易天:当年新四军残部在安庆怀宁枞阳一带…</a>
+</h2>
+<p>[哈哈][哈哈]//@易天:当年新四军残部在安庆怀宁枞阳一带组织抗日游击队，当地乡绅冒死为游击队征集钱物，除了寥寥几个富商，农户平民无一响应。而此地刚刚经历日军屠杀，数户被灭门。最悲哀的就是，游击队队长被日军乱枪击毙时，农民围观看热闹！说实话，为此等民众卖命，换我也不甘心。<br><br>RE: 并不是所有抗战老兵记忆都不靠谱，共产党的老兵明显比国民党的靠谱，地位高的比地位低的靠谱。<br><img src="http://ww2.sinaimg.cn/large/67780590jw1evrme0tkhaj20e40epaax.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3883758190773993" target="freeweibo-mirror">自己打自己嘴巴[怒]//@袁裕来律师: 另一种观点。//@文…</a>
 </h2>
 <p>自己打自己嘴巴[怒]//@袁裕来律师: 另一种观点。//@文紫川: 二战后发动战争最多的国家：美国<br><br>RE: 【深度好文|法西斯并未离我们远去】http://t.cn/RyLG5HQ专制国家天生有更强的打仗动因，因为专制国家的决策由统治者说了算，而统治者自己并不直接承担战争的代价。仗打赢了，自己扩充疆土和财宝；即便打输了，一般也是割地赔款了事，只要不做亡国之君就不会危及自己家族的生活。<br><img src="http://ww2.sinaimg.cn/large/41693645jw1evrifj5t01j20t318gag0.jpg"></p>
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3883757637653815" target="freeweibo-mirror">[吃惊] //@陈业文新大都:听淮阴的老人们讲过类似的事。还…</a>
+</h2>
+<p>[吃惊] //@陈业文新大都:听淮阴的老人们讲过类似的事。还有比这个更机智的方法呢。//@白家食品陈朝晖:说了实话<br><br>RE: 并不是所有抗战老兵记忆都不靠谱，共产党的老兵明显比国民党的靠谱，地位高的比地位低的靠谱。<br><img src="http://ww2.sinaimg.cn/large/67780590jw1evrme0tkhaj20e40epaax.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3883755758900696" target="freeweibo-mirror">另一种观点。//@文紫川: 二战后发动战争最多的国家：美国</a>
 </h2>
 <p>另一种观点。//@文紫川: 二战后发动战争最多的国家：美国<br><br>RE: 【深度好文|法西斯并未离我们远去】http://t.cn/RyLG5HQ专制国家天生有更强的打仗动因，因为专制国家的决策由统治者说了算，而统治者自己并不直接承担战争的代价。仗打赢了，自己扩充疆土和财宝；即便打输了，一般也是割地赔款了事，只要不做亡国之君就不会危及自己家族的生活。<br><img src="http://ww2.sinaimg.cn/large/41693645jw1evrifj5t01j20t318gag0.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3883755066403396" target="freeweibo-mirror">说了实话</a>
+</h2>
+<p>说了实话<br><br>RE: 并不是所有抗战老兵记忆都不靠谱，共产党的老兵明显比国民党的靠谱，地位高的比地位低的靠谱。<br><img src="http://ww2.sinaimg.cn/large/67780590jw1evrme0tkhaj20e40epaax.jpg"></p>
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
@@ -103,42 +139,6 @@
 <p>并不是所有抗战老兵记忆都不靠谱，共产党的老兵明显比国民党的靠谱，地位高的比地位低的靠谱。<br><img src="http://ww2.sinaimg.cn/large/67780590jw1evrme0tkhaj20e40epaax.jpg"></p>
 <p>
 	<small> ============== 4小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3883735487146966" target="freeweibo-mirror">SPAM 发表了一篇转载博文《[转载]也谈“不为帝王唱赞歌”…</a>
-</h2>
-<p>SPAM 发表了一篇转载博文《[转载]也谈“不为帝王唱赞歌”》http://t.cn/RyLVzbC</p>
-<p>
-	<small> ============== 5小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3883735151661420" target="freeweibo-mirror">SPAM 发表了一篇转载博文《[转载]一个女人及胎儿的尸体成…</a>
-</h2>
-<p>SPAM 发表了一篇转载博文《[转载]一个女人及胎儿的尸体成迷》http://t.cn/RyLVvD1<br><img src="http://ww1.sinaimg.cn/large/5408ee85jw1evrlxki200j209i0fp75z.jpg"></p>
-<p>
-	<small> ============== 5小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3883734141045702" target="freeweibo-mirror">//@网易年轻的老猫2014://@柳林卿: //@加菲炮1…</a>
-</h2>
-<p>//@网易年轻的老猫2014://@柳林卿: //@加菲炮1314cat://@冬天的鼠标1://@阜宁大陈国君私人微博: //@二哥哥窜访秋爽斋:[怒骂]//@任志强:[吃惊] //@洪晃ilook:转发微博<br><br>RE: #天津塘沽大爆炸#今天上午，海港城有几百请愿的聚集在新区政府门口，后被劝去了信访办。又抓了几个人警车拉走了。同样也是刚刚，核心区又爆炸了，一声巨响。本来灾民就有心理阴影，下雨打雷都惊恐。。<br><img src="http://ww3.sinaimg.cn/large/6ca0a725jw1evrh370xmxj20p018g41x.jpg"></p>
-<p>
-	<small> ============== 5小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3883731875663710" target="freeweibo-mirror">SPAM 徐兄太[偷笑]</a>
-</h2>
-<p>SPAM 徐兄太[偷笑]<br><br>RE: 看完阅兵直播，部长让网评员谈体会。老李兴奋地说：东风SB导弹太强大了，射程1.5万公里，覆盖美国本地，可随时把纽约炸沉海底。话音刚落，部长冲过来，抽了他一耳光：是东风5B，不是东风SB，你才傻逼呢。老李捂着脸，无地自容。邻座的小声说：你活该，他的老婆孩子就在曼哈顿。</p>
-<p>
-	<small> ============== 5小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3883726947454055" target="freeweibo-mirror">SPAM //@潘朵拉: [汗] //@航海的波:这种谣也造…</a>
-</h2>
-<p>SPAM //@潘朵拉: [汗] //@航海的波:这种谣也造？ //@买菜的大婶:[晕]//@冰克尔:[汗]</p>
-<p>
-	<small> ============== 5小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3883721344643740" target="freeweibo-mirror">看看大家的转发和评论就知道淄博的环境污染非常严重。马上向@淄…</a>
-</h2>
-<p>看看大家的转发和评论就知道淄博的环境污染非常严重。马上向@淄博环保 申请公开博汇集团相关环境信息。@淄博发布@山东发布@学习中国@邓飞@于建嵘@迟夙生律师@山东公安<br><br>RE: 今年9月1日家住山东省淄博市的胡安新先生，因揭露博汇集团非法排污被打伤。这是自去年9月24日以来，博汇集团联合@淄博警方 马桥镇派出所非法扣押来自重庆等四地环保志愿者并强制删除污染图片的又一恶性事件！为什么扣押、殴打环保志愿者的事件连续发生在淄博？@生态梦人@山东环境@冯永锋@何兵@任志强<br><img src="http://ww4.sinaimg.cn/large/899d6794jw1evq3dhcwlkj20np0hs0ub.jpg"></p>
-<p>
-	<small> ============== 6小时前</small>
 </p>
 <table>
     <tr>
