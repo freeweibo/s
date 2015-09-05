@@ -68,6 +68,12 @@
 <p>
 	<small> ============== 4小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3883683725855531" target="freeweibo-mirror">五毛是中国灾难。//@陈有西:说得对。农村有句话，狗仗人势。…</a>
+</h2>
+<p>五毛是中国灾难。//@陈有西:说得对。农村有句话，狗仗人势。狗只在主人篱笆门内才叫得欢。离门三尺就呜咽夹紧尾巴了。//@龙的精灵：五毛不是狼，是人类比猪蠢、猪类像恶狗的玩意。<br><br>RE: 【自从发明了五毛 整个网络都不好了】负责任说真话的名博慢慢消灭殆尽，网上已经找不到几篇有价值的东西。狼多肉少，五毛太多，公知不够用了。[嘻嘻]<br><img src="http://ww1.sinaimg.cn/large/6b804b51jw1evrf0xojdnj20c807tt8w.jpg"></p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3883682328490034" target="freeweibo-mirror">醒醒吧，该干嘛干嘛！ //@甬上菜贩:观礼发的水，喝完瓶子留…</a>
 </h2>
 <p>醒醒吧，该干嘛干嘛！ //@甬上菜贩:观礼发的水，喝完瓶子留在原地就好。至于上纲上线吗？<br><br>RE: 昨晚临睡前发了这组网络照片，因为有人发出来是阅兵观礼台阅兵之后的场景，我不由感慨，说中国文明素质目前和日本差距与清末中国日本差距一样，结果早晨醒来醒来被网友爆骂，于是删帖，我坚持我的观点，我只是想求证下，这是不是观礼台阅兵后现场照片？<br><img src="http://ww3.sinaimg.cn/large/4c148083jw1evrbmit47fj20dc09kq39.jpg"></p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3883671398246941" target="freeweibo-mirror">SPAM 跨国[哈哈] //@无畏高尔察克://@垂直的风:…</a>
 </h2>
 <p>SPAM 跨国[哈哈] //@无畏高尔察克://@垂直的风:[偷笑][偷笑]<br><br>RE: 罗玉凤发完这篇东西被许多女性围攻谩骂，而男性却表示难以置信，凤姐竟能写出这样的东西。无知与狭隘限制了精神认知的成长，也造就了盲目信仰的温床。凤姐，你事大了。<br><img src="http://ww3.sinaimg.cn/large/6c938239jw1evrcpa95otj20c80lpmyx.jpg"></p>
-<p>
-	<small> ============== 4小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3883670160926284" target="freeweibo-mirror">我现在知道为什么要签罗玉凤当主笔了，可以让很多人多个笔名。</a>
-</h2>
-<p>我现在知道为什么要签罗玉凤当主笔了，可以让很多人多个笔名。<br><br>RE: 今年7月罗玉凤女士成为凤凰新闻客户端签约主笔，今天，罗主笔发了这条微博，凤凰新闻客户端怎么看？<br><img src="http://ww1.sinaimg.cn/large/6309fc78jw1evrautcfmgj20g20c840k.jpg"></p>
 <p>
 	<small> ============== 4小时前</small>
 </p>
