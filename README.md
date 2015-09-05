@@ -30,7 +30,7 @@
 </h2>
 <p>SPAM 作者：罗玉凤<br><img src="http://ww2.sinaimg.cn/large/426cd442jw1evrbojcn30j20ch0m8ac8.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3883634731875905" target="freeweibo-mirror">SPAM 图文并茂，看懂”防火墙“的升级，在月饼之际中国网民…</a>
 </h2>
