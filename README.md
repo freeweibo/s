@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3883834988391749" target="freeweibo-mirror">SPAM 我们总是把胆识二字放在一起说，但很多时候我搞不明白…</a>
+</h2>
+<p>SPAM 我们总是把胆识二字放在一起说，但很多时候我搞不明白到底是胆大撑起识见，还是见识撑起胆量？<br><img src="http://ww3.sinaimg.cn/large/6322f7ddjw1evrxea3juvj20c80ic409.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3883828450333174" target="freeweibo-mirror">//@老犯错GGG:[哈哈]玉凤的龙种，毛将军应该叫他四叔吧…</a>
 </h2>
 <p>//@老犯错GGG:[哈哈]玉凤的龙种，毛将军应该叫他四叔吧 //@孟庆明v:狸猫换太子？@雷神_雷愚: 右边那位简单匪首当年原版。[哈哈]@Just无话可说: 这谁是亲生的还不一定咋回事呢？严重怀疑新宇少将的血统纯正，现在你们自己喊着血统论，要不要给毛少将验验血啊？ps:右边那人不用验了，肯定是亲生的啊！</p>
@@ -72,7 +78,7 @@
 </h2>
 <p>SPAM 据说已被全网风沙。//@王冲:近期最好的文章 //@笨笨an://@悠野V:精辟！<br><br>RE: 【张千帆：法西斯并未离我们远去-华尔街日报】<br><img src="http://ww2.sinaimg.cn/large/7f67ac0dgw1evransmlegj20hs3067wh.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3883782588935274" target="freeweibo-mirror">SPAM //@王冲: 近期最好的文章 //@笨笨an://…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3883759806221018" target="freeweibo-mirror">[哈哈][哈哈]//@易天:当年新四军残部在安庆怀宁枞阳一带…</a>
 </h2>
 <p>[哈哈][哈哈]//@易天:当年新四军残部在安庆怀宁枞阳一带组织抗日游击队，当地乡绅冒死为游击队征集钱物，除了寥寥几个富商，农户平民无一响应。而此地刚刚经历日军屠杀，数户被灭门。最悲哀的就是，游击队队长被日军乱枪击毙时，农民围观看热闹！说实话，为此等民众卖命，换我也不甘心。<br><br>RE: 并不是所有抗战老兵记忆都不靠谱，共产党的老兵明显比国民党的靠谱，地位高的比地位低的靠谱。<br><img src="http://ww2.sinaimg.cn/large/67780590jw1evrme0tkhaj20e40epaax.jpg"></p>
-<p>
-	<small> ============== 6小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3883758190773993" target="freeweibo-mirror">自己打自己嘴巴[怒]//@袁裕来律师: 另一种观点。//@文…</a>
-</h2>
-<p>自己打自己嘴巴[怒]//@袁裕来律师: 另一种观点。//@文紫川: 二战后发动战争最多的国家：美国<br><br>RE: 【深度好文|法西斯并未离我们远去】http://t.cn/RyLG5HQ专制国家天生有更强的打仗动因，因为专制国家的决策由统治者说了算，而统治者自己并不直接承担战争的代价。仗打赢了，自己扩充疆土和财宝；即便打输了，一般也是割地赔款了事，只要不做亡国之君就不会危及自己家族的生活。<br><img src="http://ww2.sinaimg.cn/large/41693645jw1evrifj5t01j20t318gag0.jpg"></p>
 <p>
 	<small> ============== 6小时前</small>
 </p>
