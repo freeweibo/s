@@ -44,6 +44,12 @@
 <p>
 	<small> ============== 1小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3883852130622864" target="freeweibo-mirror">中国之人，上诈下愚，说透了中国国情</a>
+</h2>
+<p>中国之人，上诈下愚，说透了中国国情<br><br>RE: 当年屠杀地主时，农村万人空巷、都出来围观鼓掌。但那些愚昧的农民伯伯们没有意识到：今天你将地主消灭了，以后你自身也就危险了。道理十分简单：你破坏了秩序，秩序就会反过来破坏你；统治者不尊重地主的生命、他们一样不会尊重农民的生命。陈寅恪说“中国之人，上诈下愚”。是有道理的。@媒体人萧萧<br><img src="http://ww4.sinaimg.cn/large/005OVhBigw1evqogu9nk0j30cs083q40.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3883851883662305" target="freeweibo-mirror">必须清算周永康的维稳思维和措施。大坏蛋以极左形式爬上高位，对…</a>
 </h2>
 <p>必须清算周永康的维稳思维和措施。大坏蛋以极左形式爬上高位，对老百姓特别使恨使横，以人民为敌。</p>
@@ -60,7 +66,7 @@
 </h2>
 <p>SPAM 再学学日语～<br><img src="http://ww1.sinaimg.cn/large/6e6b548bjw1evrxeu3el1j20u00u0gu9.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3883834988391749" target="freeweibo-mirror">SPAM 我们总是把胆识二字放在一起说，但很多时候我搞不明白…</a>
 </h2>
@@ -84,7 +90,7 @@
 </h2>
 <p>这个截图有网友发给我，是河南日报的吗？我没找到，求证。微博太短，说不清楚，容易引起人家误会，影响不好嘛，如果鬼子进村你上山，鬼子走了你下山，实力是保存了，但啥时侯打鬼子呢？你没说出来嘛。各宣传部门要注意了</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3883813442923488" target="freeweibo-mirror">//@作家东海: →_→ //@星夜_霓虹:→_→//@广州…</a>
 </h2>
@@ -114,7 +120,7 @@
 </h2>
 <p>垃圾留下的是垃圾，垃圾走后还有垃圾，垃圾不可能带走垃圾。<br><br>RE: 偶的脸也红了……<br><img src="http://ww1.sinaimg.cn/large/a62471f0jw1evrh43skrtj20p00eq42a.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3883804692852687" target="freeweibo-mirror">【谁在阻碍统一】转：对台湾，以前很强硬，什么不排除武力，什么…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3883784863105899" target="freeweibo-mirror">SPAM 微信朋友圈里已经看不到 //@杨佩昌:据说已被全网…</a>
 </h2>
 <p>SPAM 微信朋友圈里已经看不到 //@杨佩昌:据说已被全网风沙。//@王冲:近期最好的文章 //@笨笨an://@悠野V:精辟！<br><br>RE: 【张千帆：法西斯并未离我们远去-华尔街日报】<br><img src="http://ww2.sinaimg.cn/large/7f67ac0dgw1evransmlegj20hs3067wh.jpg"></p>
-<p>
-	<small> ============== 6小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3883784196047332" target="freeweibo-mirror">SPAM 据说已被全网风沙。//@王冲:近期最好的文章 //…</a>
-</h2>
-<p>SPAM 据说已被全网风沙。//@王冲:近期最好的文章 //@笨笨an://@悠野V:精辟！<br><br>RE: 【张千帆：法西斯并未离我们远去-华尔街日报】<br><img src="http://ww2.sinaimg.cn/large/7f67ac0dgw1evransmlegj20hs3067wh.jpg"></p>
 <p>
 	<small> ============== 6小时前</small>
 </p>
