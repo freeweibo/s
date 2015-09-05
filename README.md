@@ -48,17 +48,23 @@
 </h2>
 <p>中国之人，上诈下愚，说透了中国国情<br><br>RE: 当年屠杀地主时，农村万人空巷、都出来围观鼓掌。但那些愚昧的农民伯伯们没有意识到：今天你将地主消灭了，以后你自身也就危险了。道理十分简单：你破坏了秩序，秩序就会反过来破坏你；统治者不尊重地主的生命、他们一样不会尊重农民的生命。陈寅恪说“中国之人，上诈下愚”。是有道理的。@媒体人萧萧<br><img src="http://ww4.sinaimg.cn/large/005OVhBigw1evqogu9nk0j30cs083q40.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3883851883662305" target="freeweibo-mirror">必须清算周永康的维稳思维和措施。大坏蛋以极左形式爬上高位，对…</a>
 </h2>
 <p>必须清算周永康的维稳思维和措施。大坏蛋以极左形式爬上高位，对老百姓特别使恨使横，以人民为敌。</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3883849928868245" target="freeweibo-mirror">决不能中海外敌对分子的奸计 //@冰克尔:[汗]//@荣剑2…</a>
 </h2>
 <p>决不能中海外敌对分子的奸计 //@冰克尔:[汗]//@荣剑2001: 台湾的核心竞争力找到了。//@杨子评:这是蓝绿两党的糖衣炮弹，我们才不上当呢[偷笑]</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3883849908294369" target="freeweibo-mirror">SPAM [害羞]//@爱上吐槽的特长生: 收图//@壹周猫…</a>
+</h2>
+<p>SPAM [害羞]//@爱上吐槽的特长生: 收图//@壹周猫眼秀: [害羞]<br><br>RE: 知识贴：你是这样show 爱爱的吗？收图不谢 #啪啪分享#<br><img src="http://ww4.sinaimg.cn/large/9ff760d3gw1evryf1luoxg206y03w4p7.gif"></p>
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
@@ -77,6 +83,12 @@
 	<a href="https://freeweibo.com/weibo/3883828450333174" target="freeweibo-mirror">//@老犯错GGG:[哈哈]玉凤的龙种，毛将军应该叫他四叔吧…</a>
 </h2>
 <p>//@老犯错GGG:[哈哈]玉凤的龙种，毛将军应该叫他四叔吧 //@孟庆明v:狸猫换太子？@雷神_雷愚: 右边那位简单匪首当年原版。[哈哈]@Just无话可说: 这谁是亲生的还不一定咋回事呢？严重怀疑新宇少将的血统纯正，现在你们自己喊着血统论，要不要给毛少将验验血啊？ps:右边那人不用验了，肯定是亲生的啊！</p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3883823496716429" target="freeweibo-mirror">SPAM 有[喜]糖么？</a>
+</h2>
+<p>SPAM 有[喜]糖么？<br><br>RE: 只有汉语，不科学！应该增加俄语、韩语。@发盐哥 @平壤崔成浩<br><img src="http://ww2.sinaimg.cn/large/9de6a2a7gw1evrt5x6545j20dv0hswfm.jpg"></p>
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
@@ -114,7 +126,7 @@
 </h2>
 <p>//@广州区伯:垃圾留下的是垃圾，垃圾走后还有垃圾，垃圾不可能带走垃圾。<br><br>RE: 偶的脸也红了……<br><img src="http://ww1.sinaimg.cn/large/a62471f0jw1evrh43skrtj20p00eq42a.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3883805343581413" target="freeweibo-mirror">垃圾留下的是垃圾，垃圾走后还有垃圾，垃圾不可能带走垃圾。</a>
 </h2>
@@ -127,18 +139,6 @@
 <p>【谁在阻碍统一】转：对台湾，以前很强硬，什么不排除武力，什么试射导弹，什么外交封锁，能做的基本都做了；现在，那边放话过来，只要普选，就可以统一，这边反而沉寂了。看来，他们宁愿战争，或者说宁愿不统一，也不愿实现普选、民主、自由；对于他们来说，最可怕的就是失去政权和既得利益。</p>
 <p>
 	<small> ============== 5小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3883802403250446" target="freeweibo-mirror">台北市长柯文哲称：在台大校园立牌子“台湾独立”，没有人会理你…</a>
-</h2>
-<p>台北市长柯文哲称：在台大校园立牌子“台湾独立”，没有人会理你。上面写“两岸统一”，也没人会停下脚步。但如果写：“全校禁止使用网络”。肯定会引起暴动。所以统独对现在的年轻人来说是假议题。我去过大陆10几次，年轻助理一路上都赞美大陆，但发现上不了GOOGLE、FB之后，他们对大陆的看法就变了。</p>
-<p>
-	<small> ============== 5小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3883784863105899" target="freeweibo-mirror">SPAM 微信朋友圈里已经看不到 //@杨佩昌:据说已被全网…</a>
-</h2>
-<p>SPAM 微信朋友圈里已经看不到 //@杨佩昌:据说已被全网风沙。//@王冲:近期最好的文章 //@笨笨an://@悠野V:精辟！<br><br>RE: 【张千帆：法西斯并未离我们远去-华尔街日报】<br><img src="http://ww2.sinaimg.cn/large/7f67ac0dgw1evransmlegj20hs3067wh.jpg"></p>
-<p>
-	<small> ============== 6小时前</small>
 </p>
 <table>
     <tr>
