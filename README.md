@@ -54,7 +54,7 @@
 </h2>
 <p>SPAM 发表了一篇转载博文《[转载]两会瞬间：温家宝三鞠躬胡锦涛掩面》http://t.cn/RyL4heH<br><img src="http://ww3.sinaimg.cn/large/5408ee85jw1evrgr5cp2kj20dj0dfaay.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3883682328490034" target="freeweibo-mirror">醒醒吧，该干嘛干嘛！ //@甬上菜贩:观礼发的水，喝完瓶子留…</a>
 </h2>
@@ -78,7 +78,7 @@
 </h2>
 <p>这个时候，找到某国某活动散场之后遍地垃圾以证明绝非中国独有一点都不难，不少人很乐意这样干，于是胜利归胜利，垃圾还是垃圾。<br><br>RE: 昨晚临睡前发了这组网络照片，因为有人发出来是阅兵观礼台阅兵之后的场景，我不由感慨，说中国文明素质目前和日本差距与清末中国日本差距一样，结果早晨醒来醒来被网友爆骂，于是删帖，我坚持我的观点，我只是想求证下，这是不是观礼台阅兵后现场照片？<br><img src="http://ww3.sinaimg.cn/large/4c148083jw1evrbmit47fj20dc09kq39.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3883673508522646" target="freeweibo-mirror">SPAM  //@刘文华律师://@崔小平律师://@李继锋…</a>
 </h2>
