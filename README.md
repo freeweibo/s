@@ -78,7 +78,7 @@
 </h2>
 <p>SPAM 再学学日语～<br><img src="http://ww1.sinaimg.cn/large/6e6b548bjw1evrxeu3el1j20u00u0gu9.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3883834988391749" target="freeweibo-mirror">SPAM 我们总是把胆识二字放在一起说，但很多时候我搞不明白…</a>
 </h2>
@@ -114,7 +114,7 @@
 </h2>
 <p>这个截图有网友发给我，是河南日报的吗？我没找到，求证。微博太短，说不清楚，容易引起人家误会，影响不好嘛，如果鬼子进村你上山，鬼子走了你下山，实力是保存了，但啥时侯打鬼子呢？你没说出来嘛。各宣传部门要注意了</p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3883813828837521" target="freeweibo-mirror">SPAM //@郑州范强://@中文台陈慧: 【觉醒】觉醒是…</a>
 </h2>
