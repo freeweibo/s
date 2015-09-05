@@ -30,7 +30,7 @@
 </h2>
 <p>SPAM 作者：罗玉凤<br><img src="http://ww2.sinaimg.cn/large/426cd442jw1evrbojcn30j20ch0m8ac8.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3883639714335787" target="freeweibo-mirror">「昏睡百年，國人猶未醒」</a>
 </h2>
