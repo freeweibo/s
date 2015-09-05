@@ -68,9 +68,21 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3883656110503232" target="freeweibo-mirror">凤姐貌似很卑微，因为她一直生活在社会的底层，父亲母亲也都是这…</a>
+</h2>
+<p>凤姐貌似很卑微，因为她一直生活在社会的底层，父亲母亲也都是这样，甚至连一个拿得出手的亲戚朋友都没有。同时她也很骄傲，因为她也是一个不甘于生活现状的人，并且为此努力了，更重要的是，她至今还保留一颗傲世不逊的心，知道自己为什么这样被奴役和压迫。我想这也是很多朋友能够保持自尊的原因。<br><img src="http://ww1.sinaimg.cn/large/006deEbfjw1evrcu9i0pqj30g20c8gmi.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3883654838850050" target="freeweibo-mirror">罗玉凤发完这篇东西被许多女性围攻谩骂，而男性却表示难以置信，…</a>
 </h2>
 <p>罗玉凤发完这篇东西被许多女性围攻谩骂，而男性却表示难以置信，凤姐竟能写出这样的东西。无知与狭隘限制了精神认知的成长，也造就了盲目信仰的温床。凤姐，你事大了。<br><img src="http://ww3.sinaimg.cn/large/6c938239jw1evrcpa95otj20c80lpmyx.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3883653572481982" target="freeweibo-mirror">【凤姐，你事大了。。】罗玉凤，出生在中国，目前居住在美国，在…</a>
+</h2>
+<p>【凤姐，你事大了。。】罗玉凤，出生在中国，目前居住在美国，在深夜发表了自己的看法之后妙删，你们怎么看？<br><img src="http://ww1.sinaimg.cn/large/98c6dd80gw1evrck7d4g1j20c80jaq4l.jpg"></p>
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
@@ -96,7 +108,7 @@
 </h2>
 <p>SPAM 作者：罗玉凤<br><img src="http://ww2.sinaimg.cn/large/426cd442jw1evrbojcn30j20ch0m8ac8.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3883641937461802" target="freeweibo-mirror">SPAM 有思想，有见地！//@何庆军:凤姐短期不敢回来了。</a>
 </h2>
@@ -127,18 +139,6 @@
 <p>SPAM 图文并茂，看懂”防火墙“的升级，在月饼之际中国网民感受至深——原本，互联网让知识可以扁平传递，现在“屠梯”行动恐将人们逼回“口耳相传”的模式。未来，“翻墙”可能是一种手艺，如何传承，任重道远。@王思聪</p>
 <p>
 	<small> ============== 4小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3883629878642180" target="freeweibo-mirror">//@-静海心语-:→_→//@松月江风A: 这个老杂种，我…</a>
-</h2>
-<p>//@-静海心语-:→_→//@松月江风A: 这个老杂种，我勒个呸！装什么人啊，扒了皮看看。说什么一世清白云云…… 他儿子朱云来在中金年薪上亿没人提啊？朱云来的位子敢面对社会竞争吗？ 贱卖国企，坐享分赃，以医改房改教育改革为名，刮地皮，搜民脂民膏，把十三亿人民推进火坑的就是这个畜生。</p>
-<p>
-	<small> ============== 5小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3883624912740881" target="freeweibo-mirror">凤姐这是再不打算回来了啊[拜拜]</a>
-</h2>
-<p>凤姐这是再不打算回来了啊[拜拜]<br><img src="http://ww2.sinaimg.cn/large/76716e15jw1evr99cu5e3j20v90rqdkz.jpg"></p>
-<p>
-	<small> ============== 5小时前</small>
 </p>
 <table>
     <tr>
