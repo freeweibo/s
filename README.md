@@ -48,7 +48,7 @@
 </h2>
 <p>SPAM 八一厂导演对9.3大阅兵实况转播表达强烈不滿 http://t.cn/RyL5Sdc<br><img src="http://ww1.sinaimg.cn/large/5f6520eajw1evrk3uune5j20nq0hsac7.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3883712854807936" target="freeweibo-mirror">//@但斌:转发微博</a>
 </h2>
@@ -72,7 +72,7 @@
 </h2>
 <p>美国的国家公园不管多大，没有看到保洁人员，但是，一路上看不到垃圾，秩序也很好，游客都是互谅互让。前几天，看一个网站做的东京街头采访，说，东京没有垃圾桶，有了垃圾都是自己带回家。当然，也有报道说，欧洲集会之后，也是垃圾遍地。不管怎么说，我不愿意看到，这些垃圾出现在天安门阅兵场。</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3883698816899665" target="freeweibo-mirror">“信我者必能得到救赎”的意思。即使是个傻逼。//@开水族馆的…</a>
 </h2>
