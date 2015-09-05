@@ -60,7 +60,7 @@
 </h2>
 <p>SPAM 八一厂导演对9.3大阅兵实况转播表达强烈不滿 http://t.cn/RyL5Sdc<br><img src="http://ww1.sinaimg.cn/large/5f6520eajw1evrk3uune5j20nq0hsac7.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3883713072499292" target="freeweibo-mirror">[吃惊]//@任志强: [吃惊] //@洪晃ilook:转发…</a>
 </h2>
@@ -86,11 +86,17 @@
 <p>
 	<small> ============== 4小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3883704676031259" target="freeweibo-mirror">【深度好文|法西斯并未离我们远去】http://t.cn/R…</a>
+</h2>
+<p>【深度好文|法西斯并未离我们远去】http://t.cn/RyLG5HQ专制国家天生有更强的打仗动因，因为专制国家的决策由统治者说了算，而统治者自己并不直接承担战争的代价。仗打赢了，自己扩充疆土和财宝；即便打输了，一般也是割地赔款了事，只要不做亡国之君就不会危及自己家族的生活。<br><img src="http://ww2.sinaimg.cn/large/41693645jw1evrifj5t01j20t318gag0.jpg"></p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3883703178914270" target="freeweibo-mirror">美国的国家公园不管多大，没有看到保洁人员，但是，一路上看不到…</a>
 </h2>
 <p>美国的国家公园不管多大，没有看到保洁人员，但是，一路上看不到垃圾，秩序也很好，游客都是互谅互让。前几天，看一个网站做的东京街头采访，说，东京没有垃圾桶，有了垃圾都是自己带回家。当然，也有报道说，欧洲集会之后，也是垃圾遍地。不管怎么说，我不愿意看到，这些垃圾出现在天安门阅兵场。</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3883698816899665" target="freeweibo-mirror">“信我者必能得到救赎”的意思。即使是个傻逼。//@开水族馆的…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3883681720204784" target="freeweibo-mirror">刚刚庆祝反法西斯胜利70周年，广西南宁又现赤裸裸的的法西斯暴…</a>
 </h2>
 <p>刚刚庆祝反法西斯胜利70周年，广西南宁又现赤裸裸的的法西斯暴力！[怒] http://t.cn/Ry2nzYx</p>
-<p>
-	<small> ============== 6小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3883680433421467" target="freeweibo-mirror">//@反贪女侠26://@尼高纺织余师傅: 如果连这种现场不…</a>
-</h2>
-<p>//@反贪女侠26://@尼高纺织余师傅: 如果连这种现场不敢承认，不去改正，现代中国跟晚清还是同样！//@周蓬安: 我为这种场景感到脸红。//@悠一说一: //@盛科峰: //@作家岳南:这些肉食者不能代表中国人。“肉食者鄙，未能远谋”，古今皆然。[熊猫] //@孙浩元: 我认识的一个媒体人竟也是说不该揭短的。<br><br>RE: 昨晚临睡前发了这组网络照片，因为有人发出来是阅兵观礼台阅兵之后的场景，我不由感慨，说中国文明素质目前和日本差距与清末中国日本差距一样，结果早晨醒来醒来被网友爆骂，于是删帖，我坚持我的观点，我只是想求证下，这是不是观礼台阅兵后现场照片？<br><img src="http://ww3.sinaimg.cn/large/4c148083jw1evrbmit47fj20dc09kq39.jpg"></p>
 <p>
 	<small> ============== 6小时前</small>
 </p>
