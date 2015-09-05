@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3883758190773993" target="freeweibo-mirror">自己打自己嘴巴[怒]//@袁裕来律师: 另一种观点。//@文…</a>
+</h2>
+<p>自己打自己嘴巴[怒]//@袁裕来律师: 另一种观点。//@文紫川: 二战后发动战争最多的国家：美国<br><br>RE: 【深度好文|法西斯并未离我们远去】http://t.cn/RyLG5HQ专制国家天生有更强的打仗动因，因为专制国家的决策由统治者说了算，而统治者自己并不直接承担战争的代价。仗打赢了，自己扩充疆土和财宝；即便打输了，一般也是割地赔款了事，只要不做亡国之君就不会危及自己家族的生活。<br><img src="http://ww2.sinaimg.cn/large/41693645jw1evrifj5t01j20t318gag0.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3883735487146966" target="freeweibo-mirror">SPAM 发表了一篇转载博文《[转载]也谈“不为帝王唱赞歌”…</a>
 </h2>
 <p>SPAM 发表了一篇转载博文《[转载]也谈“不为帝王唱赞歌”》http://t.cn/RyLVzbC</p>
@@ -55,6 +61,12 @@
 <p>SPAM 八一厂导演对9.3大阅兵实况转播表达强烈不滿 http://t.cn/RyL5Sdc<br><img src="http://ww1.sinaimg.cn/large/5f6520eajw1evrk3uune5j20nq0hsac7.jpg"></p>
 <p>
 	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3883713072499292" target="freeweibo-mirror">[吃惊]//@任志强: [吃惊] //@洪晃ilook:转发…</a>
+</h2>
+<p>[吃惊]//@任志强: [吃惊] //@洪晃ilook:转发微博<br><br>RE: #天津塘沽大爆炸#今天上午，海港城有几百请愿的聚集在新区政府门口，后被劝去了信访办。又抓了几个人警车拉走了。同样也是刚刚，核心区又爆炸了，一声巨响。本来灾民就有心理阴影，下雨打雷都惊恐。。<br><img src="http://ww3.sinaimg.cn/large/6ca0a725jw1evrh370xmxj20p018g41x.jpg"></p>
+<p>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3883712854807936" target="freeweibo-mirror">//@但斌:转发微博</a>
 </h2>
@@ -125,18 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3883680433421467" target="freeweibo-mirror">//@反贪女侠26://@尼高纺织余师傅: 如果连这种现场不…</a>
 </h2>
 <p>//@反贪女侠26://@尼高纺织余师傅: 如果连这种现场不敢承认，不去改正，现代中国跟晚清还是同样！//@周蓬安: 我为这种场景感到脸红。//@悠一说一: //@盛科峰: //@作家岳南:这些肉食者不能代表中国人。“肉食者鄙，未能远谋”，古今皆然。[熊猫] //@孙浩元: 我认识的一个媒体人竟也是说不该揭短的。<br><br>RE: 昨晚临睡前发了这组网络照片，因为有人发出来是阅兵观礼台阅兵之后的场景，我不由感慨，说中国文明素质目前和日本差距与清末中国日本差距一样，结果早晨醒来醒来被网友爆骂，于是删帖，我坚持我的观点，我只是想求证下，这是不是观礼台阅兵后现场照片？<br><img src="http://ww3.sinaimg.cn/large/4c148083jw1evrbmit47fj20dc09kq39.jpg"></p>
-<p>
-	<small> ============== 6小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3883677634818314" target="freeweibo-mirror">观礼发的水，喝完瓶子留在原地就好。至于上纲上线吗？</a>
-</h2>
-<p>观礼发的水，喝完瓶子留在原地就好。至于上纲上线吗？<br><br>RE: 昨晚临睡前发了这组网络照片，因为有人发出来是阅兵观礼台阅兵之后的场景，我不由感慨，说中国文明素质目前和日本差距与清末中国日本差距一样，结果早晨醒来醒来被网友爆骂，于是删帖，我坚持我的观点，我只是想求证下，这是不是观礼台阅兵后现场照片？<br><img src="http://ww3.sinaimg.cn/large/4c148083jw1evrbmit47fj20dc09kq39.jpg"></p>
-<p>
-	<small> ============== 6小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3883675140008691" target="freeweibo-mirror">【自从发明了五毛 整个网络都不好了】负责任说真话的名博慢慢消…</a>
-</h2>
-<p>【自从发明了五毛 整个网络都不好了】负责任说真话的名博慢慢消灭殆尽，网上已经找不到几篇有价值的东西。狼多肉少，五毛太多，公知不够用了。[嘻嘻]<br><img src="http://ww1.sinaimg.cn/large/6b804b51jw1evrf0xojdnj20c807tt8w.jpg"></p>
 <p>
 	<small> ============== 6小时前</small>
 </p>
