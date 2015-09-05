@@ -54,7 +54,7 @@
 </h2>
 <p>决不能中海外敌对分子的奸计 //@冰克尔:[汗]//@荣剑2001: 台湾的核心竞争力找到了。//@杨子评:这是蓝绿两党的糖衣炮弹，我们才不上当呢[偷笑]</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3883835135329092" target="freeweibo-mirror">SPAM 再学学日语～</a>
 </h2>
@@ -66,7 +66,7 @@
 </h2>
 <p>SPAM 我们总是把胆识二字放在一起说，但很多时候我搞不明白到底是胆大撑起识见，还是见识撑起胆量？<br><img src="http://ww3.sinaimg.cn/large/6322f7ddjw1evrxea3juvj20c80ic409.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3883828450333174" target="freeweibo-mirror">//@老犯错GGG:[哈哈]玉凤的龙种，毛将军应该叫他四叔吧…</a>
 </h2>
@@ -120,7 +120,13 @@
 </h2>
 <p>【谁在阻碍统一】转：对台湾，以前很强硬，什么不排除武力，什么试射导弹，什么外交封锁，能做的基本都做了；现在，那边放话过来，只要普选，就可以统一，这边反而沉寂了。看来，他们宁愿战争，或者说宁愿不统一，也不愿实现普选、民主、自由；对于他们来说，最可怕的就是失去政权和既得利益。</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3883802403250446" target="freeweibo-mirror">台北市长柯文哲称：在台大校园立牌子“台湾独立”，没有人会理你…</a>
+</h2>
+<p>台北市长柯文哲称：在台大校园立牌子“台湾独立”，没有人会理你。上面写“两岸统一”，也没人会停下脚步。但如果写：“全校禁止使用网络”。肯定会引起暴动。所以统独对现在的年轻人来说是假议题。我去过大陆10几次，年轻助理一路上都赞美大陆，但发现上不了GOOGLE、FB之后，他们对大陆的看法就变了。</p>
+<p>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3883784863105899" target="freeweibo-mirror">SPAM 微信朋友圈里已经看不到 //@杨佩昌:据说已被全网…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3883784196047332" target="freeweibo-mirror">SPAM 据说已被全网风沙。//@王冲:近期最好的文章 //…</a>
 </h2>
 <p>SPAM 据说已被全网风沙。//@王冲:近期最好的文章 //@笨笨an://@悠野V:精辟！<br><br>RE: 【张千帆：法西斯并未离我们远去-华尔街日报】<br><img src="http://ww2.sinaimg.cn/large/7f67ac0dgw1evransmlegj20hs3067wh.jpg"></p>
-<p>
-	<small> ============== 6小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3883782588935274" target="freeweibo-mirror">SPAM //@王冲: 近期最好的文章 //@笨笨an://…</a>
-</h2>
-<p>SPAM //@王冲: 近期最好的文章 //@笨笨an://@悠野V:精辟！<br><br>RE: 【张千帆：法西斯并未离我们远去-华尔街日报】<br><img src="http://ww2.sinaimg.cn/large/7f67ac0dgw1evransmlegj20hs3067wh.jpg"></p>
 <p>
 	<small> ============== 6小时前</small>
 </p>
