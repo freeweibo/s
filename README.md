@@ -90,7 +90,13 @@
 </h2>
 <p>//@老犯错GGG:[哈哈]玉凤的龙种，毛将军应该叫他四叔吧 //@孟庆明v:狸猫换太子？@雷神_雷愚: 右边那位简单匪首当年原版。[哈哈]@Just无话可说: 这谁是亲生的还不一定咋回事呢？严重怀疑新宇少将的血统纯正，现在你们自己喊着血统论，要不要给毛少将验验血啊？ps:右边那人不用验了，肯定是亲生的啊！</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3883826071888069" target="freeweibo-mirror">//@应天澜:想动摇我党执政地位，门也没有[右哼哼]//@杨…</a>
+</h2>
+<p>//@应天澜:想动摇我党执政地位，门也没有[右哼哼]//@杨子评:这是蓝绿两党的糖衣炮弹，我们才不上当呢[偷笑]</p>
+<p>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3883823496716429" target="freeweibo-mirror">SPAM 有[喜]糖么？</a>
 </h2>
@@ -114,7 +120,7 @@
 </h2>
 <p>//@作家东海: →_→ //@星夜_霓虹:→_→//@广州区伯: 垃圾留下的是垃圾，垃圾走后还有垃圾，垃圾不可能带走垃圾。<br><br>RE: 偶的脸也红了……<br><img src="http://ww1.sinaimg.cn/large/a62471f0jw1evrh43skrtj20p00eq42a.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3883810582409525" target="freeweibo-mirror">→_→区伯说得好！[赞]//@敏奇微博: 区伯评论精准！//…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3883806815701588" target="freeweibo-mirror">//@广州区伯:垃圾留下的是垃圾，垃圾走后还有垃圾，垃圾不可…</a>
 </h2>
 <p>//@广州区伯:垃圾留下的是垃圾，垃圾走后还有垃圾，垃圾不可能带走垃圾。<br><br>RE: 偶的脸也红了……<br><img src="http://ww1.sinaimg.cn/large/a62471f0jw1evrh43skrtj20p00eq42a.jpg"></p>
-<p>
-	<small> ============== 5小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3883805343581413" target="freeweibo-mirror">垃圾留下的是垃圾，垃圾走后还有垃圾，垃圾不可能带走垃圾。</a>
-</h2>
-<p>垃圾留下的是垃圾，垃圾走后还有垃圾，垃圾不可能带走垃圾。<br><br>RE: 偶的脸也红了……<br><img src="http://ww1.sinaimg.cn/large/a62471f0jw1evrh43skrtj20p00eq42a.jpg"></p>
 <p>
 	<small> ============== 5小时前</small>
 </p>
