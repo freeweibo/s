@@ -60,7 +60,7 @@
 </h2>
 <p>SPAM 据说已被全网风沙。//@王冲:近期最好的文章 //@笨笨an://@悠野V:精辟！<br><br>RE: 【张千帆：法西斯并未离我们远去-华尔街日报】<br><img src="http://ww2.sinaimg.cn/large/7f67ac0dgw1evransmlegj20hs3067wh.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3883782588935274" target="freeweibo-mirror">SPAM //@王冲: 近期最好的文章 //@笨笨an://…</a>
 </h2>
