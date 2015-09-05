@@ -96,7 +96,7 @@
 </h2>
 <p>SPAM //@悠野V:精辟！<br><br>RE: 【张千帆：法西斯并未离我们远去-华尔街日报】<br><img src="http://ww2.sinaimg.cn/large/7f67ac0dgw1evransmlegj20hs3067wh.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3883775866297832" target="freeweibo-mirror">SPAM 最右//@斌动自如生生不息: //@价值诠释:[哈…</a>
 </h2>
@@ -138,7 +138,7 @@
 </h2>
 <p>博主的意思是想说：奥巴马破坏中美默契缺席中国阅兵式，作为回应，习大大也会放弃9月份访美？！</p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p>
 <table>
     <tr>
