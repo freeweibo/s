@@ -48,13 +48,13 @@
 </h2>
 <p>SPAM 凤姐这下回不了国喽[挖鼻]//@贺江兵: 跨国[哈哈] //@无畏高尔察克://@垂直的风:[偷笑][偷笑]<br><br>RE: 罗玉凤发完这篇东西被许多女性围攻谩骂，而男性却表示难以置信，凤姐竟能写出这样的东西。无知与狭隘限制了精神认知的成长，也造就了盲目信仰的温床。凤姐，你事大了。<br><img src="http://ww3.sinaimg.cn/large/6c938239jw1evrcpa95otj20c80lpmyx.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3883672152874926" target="freeweibo-mirror">SPAM //@柳刀叶://@高小曜:[good]//@自由…</a>
 </h2>
 <p>SPAM //@柳刀叶://@高小曜:[good]//@自由联盟八世: //@曼殊19:[哈哈]凤姐明白人啊//@特种铲车轮胎://@若_之:[哈哈][哈哈] //@郁闷的东北虎:文笔流畅了许多。[阴险]<br><br>RE: 凤姐这是再不打算回来了啊[拜拜]<br><img src="http://ww2.sinaimg.cn/large/76716e15jw1evr99cu5e3j20v90rqdkz.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3883671398246941" target="freeweibo-mirror">SPAM 跨国[哈哈] //@无畏高尔察克://@垂直的风:…</a>
 </h2>
@@ -96,7 +96,7 @@
 </h2>
 <p>SPAM 有思想，有见地！//@何庆军:凤姐短期不敢回来了。<br><br>RE: 凤姐这是再不打算回来了啊[拜拜]<br><img src="http://ww2.sinaimg.cn/large/76716e15jw1evr99cu5e3j20v90rqdkz.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3883639714335787" target="freeweibo-mirror">「昏睡百年，國人猶未醒」</a>
 </h2>
