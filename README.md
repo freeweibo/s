@@ -30,13 +30,13 @@
 </h2>
 <p>SPAM 发表了一篇转载博文《[转载]也谈“不为帝王唱赞歌”》http://t.cn/RyLVzbC</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3883735151661420" target="freeweibo-mirror">SPAM 发表了一篇转载博文《[转载]一个女人及胎儿的尸体成…</a>
 </h2>
 <p>SPAM 发表了一篇转载博文《[转载]一个女人及胎儿的尸体成迷》http://t.cn/RyLVvD1<br><img src="http://ww1.sinaimg.cn/large/5408ee85jw1evrlxki200j209i0fp75z.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3883731875663710" target="freeweibo-mirror">SPAM 徐兄太[偷笑]</a>
 </h2>
@@ -90,7 +90,7 @@
 </h2>
 <p>【深度好文|法西斯并未离我们远去】http://t.cn/RyLG5HQ专制国家天生有更强的打仗动因，因为专制国家的决策由统治者说了算，而统治者自己并不直接承担战争的代价。仗打赢了，自己扩充疆土和财宝；即便打输了，一般也是割地赔款了事，只要不做亡国之君就不会危及自己家族的生活。<br><img src="http://ww2.sinaimg.cn/large/41693645jw1evrifj5t01j20t318gag0.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3883703178914270" target="freeweibo-mirror">美国的国家公园不管多大，没有看到保洁人员，但是，一路上看不到…</a>
 </h2>
@@ -110,11 +110,17 @@
 <p>
 	<small> ============== 5小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3883693401551732" target="freeweibo-mirror">#天津塘沽大爆炸#今天上午，海港城有几百请愿的聚集在新区政府…</a>
+</h2>
+<p>#天津塘沽大爆炸#今天上午，海港城有几百请愿的聚集在新区政府门口，后被劝去了信访办。又抓了几个人警车拉走了。同样也是刚刚，核心区又爆炸了，一声巨响。本来灾民就有心理阴影，下雨打雷都惊恐。。<br><img src="http://ww3.sinaimg.cn/large/6ca0a725jw1evrh370xmxj20p018g41x.jpg"></p>
+<p>
+	<small> ============== 5小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3883690062537056" target="freeweibo-mirror">SPAM 发表了一篇转载博文《[转载]两会瞬间：温家宝三鞠躬…</a>
 </h2>
 <p>SPAM 发表了一篇转载博文《[转载]两会瞬间：温家宝三鞠躬胡锦涛掩面》http://t.cn/RyL4heH<br><img src="http://ww3.sinaimg.cn/large/5408ee85jw1evrgr5cp2kj20dj0dfaay.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3883683863556963" target="freeweibo-mirror">//@乌托邦瘟疫: //@赵财财-:转发微博</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3883682328490034" target="freeweibo-mirror">醒醒吧，该干嘛干嘛！ //@甬上菜贩:观礼发的水，喝完瓶子留…</a>
 </h2>
 <p>醒醒吧，该干嘛干嘛！ //@甬上菜贩:观礼发的水，喝完瓶子留在原地就好。至于上纲上线吗？<br><br>RE: 昨晚临睡前发了这组网络照片，因为有人发出来是阅兵观礼台阅兵之后的场景，我不由感慨，说中国文明素质目前和日本差距与清末中国日本差距一样，结果早晨醒来醒来被网友爆骂，于是删帖，我坚持我的观点，我只是想求证下，这是不是观礼台阅兵后现场照片？<br><img src="http://ww3.sinaimg.cn/large/4c148083jw1evrbmit47fj20dc09kq39.jpg"></p>
-<p>
-	<small> ============== 6小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3883681720204784" target="freeweibo-mirror">刚刚庆祝反法西斯胜利70周年，广西南宁又现赤裸裸的的法西斯暴…</a>
-</h2>
-<p>刚刚庆祝反法西斯胜利70周年，广西南宁又现赤裸裸的的法西斯暴力！[怒] http://t.cn/Ry2nzYx</p>
 <p>
 	<small> ============== 6小时前</small>
 </p>
