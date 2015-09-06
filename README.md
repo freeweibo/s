@@ -36,7 +36,7 @@
 </h2>
 <p>SPAM 博主，吃错了药，会损智商。<br><br>RE: 这么多奖牌，那一枚与抗战有关[疑问]？<br><img src="http://ww3.sinaimg.cn/large/6a83dd8ejw1evs28k9p10j20c80dnq42.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3884036043036524" target="freeweibo-mirror">右边，看国军远征军12岁娃娃兵。 http://t.cn/R…</a>
 </h2>
@@ -72,7 +72,7 @@
 </h2>
 <p>我这人胆子小，换成是我，碰上这种拿刀砍车的爱国贼，肯定会误将油门当车刹，慌慌张张踩下去～～请教律师，这个不是犯罪吧？//@吴铭:转发微博<br><br>RE: 阅兵日，被长刀砍车。@平安郑州 @郑州公安特警 @平安中原<br><img src="http://ww1.sinaimg.cn/large/636ddeb4jw1evrpce15p4j20c80yiq91.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3883998352588080" target="freeweibo-mirror">细思恐极 //@爱姬平不了身:依法不管的又一现象。好机智！ …</a>
 </h2>
