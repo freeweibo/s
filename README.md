@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3884031362209963" target="freeweibo-mirror">SPAM 这年头，开国产日本车的地位貌似比“汉奸”都低~~~…</a>
+</h2>
+<p>SPAM 这年头，开国产日本车的地位貌似比“汉奸”都低~~~这是怎么了？？<br><br>RE: 阅兵日，被长刀砍车。@平安郑州 @郑州公安特警 @平安中原<br><img src="http://ww1.sinaimg.cn/large/636ddeb4jw1evrpce15p4j20c80yiq91.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3884020204713220" target="freeweibo-mirror">SPAM 锯齿，工具刀，砍车不犯法？//@苏葭:这种垃圾自会…</a>
 </h2>
 <p>SPAM 锯齿，工具刀，砍车不犯法？//@苏葭:这种垃圾自会遭报应。<br><br>RE: 阅兵日，被长刀砍车。@平安郑州 @郑州公安特警 @平安中原<br><img src="http://ww1.sinaimg.cn/large/636ddeb4jw1evrpce15p4j20c80yiq91.jpg"></p>
@@ -78,7 +84,7 @@
 </h2>
 <p>中国放弃日本赔款问题很复杂，简单说是日本政府利用国共相争而得利。先是旧金山和约签订，美英为扶植日本放弃赔款，在台的蒋政府代表中国亦放弃赔款。1972中共政府为突破外交孤立，与日建交，同样放弃（否则日本愿与20年前放弃赔款的蒋政府继续保持外交关系）<br><br>RE: 1972年中日建交后，日本首相田中角荣访华向毛泽东道歉。毛说：“不要对不起啊，你们有功啊，为啥有功呢？因为你们要不是发动侵华战争的话，我们共产党怎么能够强大？我们怎么能够夺权哪？怎么能够把蒋介石打败呀？我们如何感谢你们？我们不要你们战争赔偿！”--译自《田中角荣传》日语原版<br><img src="http://ww1.sinaimg.cn/large/51c21d10gw1evsaij9137j20dw0e8t99.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3883949233755755" target="freeweibo-mirror">1972年中日建交后，日本首相田中角荣访华向毛泽东道歉。毛说…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3883849908294369" target="freeweibo-mirror">SPAM [害羞]//@爱上吐槽的特长生: 收图//@壹周猫…</a>
 </h2>
 <p>SPAM [害羞]//@爱上吐槽的特长生: 收图//@壹周猫眼秀: [害羞]<br><br>RE: 知识贴：你是这样show 爱爱的吗？收图不谢 #啪啪分享#<br><img src="http://ww4.sinaimg.cn/large/9ff760d3gw1evryf1luoxg206y03w4p7.gif"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3883848918018931" target="freeweibo-mirror">知识贴：你是这样show 爱爱的吗？收图不谢 #啪啪分享#</a>
-</h2>
-<p>知识贴：你是这样show 爱爱的吗？收图不谢 #啪啪分享#<br><img src="http://ww4.sinaimg.cn/large/9ff760d3gw1evryf1luoxg206y03w4p7.gif"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
