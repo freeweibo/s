@@ -26,6 +26,12 @@
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3884045874186714" target="freeweibo-mirror">SPAM //@成都双石: 她老人家是支前模范，跟八爷纳过军…</a>
+</h2>
+<p>SPAM //@成都双石: 她老人家是支前模范，跟八爷纳过军鞋耶——你耶？<br><br>RE: 这么多奖牌，那一枚与抗战有关[疑问]？<br><img src="http://ww3.sinaimg.cn/large/6a83dd8ejw1evs28k9p10j20c80dnq42.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3884031362209963" target="freeweibo-mirror">SPAM 这年头，开国产日本车的地位貌似比“汉奸”都低~~~…</a>
 </h2>
 <p>SPAM 这年头，开国产日本车的地位貌似比“汉奸”都低~~~这是怎么了？？<br><br>RE: 阅兵日，被长刀砍车。@平安郑州 @郑州公安特警 @平安中原<br><img src="http://ww1.sinaimg.cn/large/636ddeb4jw1evrpce15p4j20c80yiq91.jpg"></p>
@@ -102,7 +108,7 @@
 </h2>
 <p>1972年中日建交后，日本首相田中角荣访华向毛泽东道歉。毛说：“不要对不起啊，你们有功啊，为啥有功呢？因为你们要不是发动侵华战争的话，我们共产党怎么能够强大？我们怎么能够夺权哪？怎么能够把蒋介石打败呀？我们如何感谢你们？我们不要你们战争赔偿！”--译自《田中角荣传》日语原版<br><img src="http://ww1.sinaimg.cn/large/51c21d10gw1evsaij9137j20dw0e8t99.jpg"></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3883854840430422" target="freeweibo-mirror">SPAM 有意思//@谓贤: 记不得谁说过：朝廷不变没关系，…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3883852130622864" target="freeweibo-mirror">中国之人，上诈下愚，说透了中国国情</a>
 </h2>
 <p>中国之人，上诈下愚，说透了中国国情<br><br>RE: 当年屠杀地主时，农村万人空巷、都出来围观鼓掌。但那些愚昧的农民伯伯们没有意识到：今天你将地主消灭了，以后你自身也就危险了。道理十分简单：你破坏了秩序，秩序就会反过来破坏你；统治者不尊重地主的生命、他们一样不会尊重农民的生命。陈寅恪说“中国之人，上诈下愚”。是有道理的。@媒体人萧萧<br><img src="http://ww4.sinaimg.cn/large/005OVhBigw1evqogu9nk0j30cs083q40.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3883851883662305" target="freeweibo-mirror">必须清算周永康的维稳思维和措施。大坏蛋以极左形式爬上高位，对…</a>
-</h2>
-<p>必须清算周永康的维稳思维和措施。大坏蛋以极左形式爬上高位，对老百姓特别使恨使横，以人民为敌。</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
