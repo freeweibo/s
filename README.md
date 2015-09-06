@@ -66,7 +66,7 @@
 </h2>
 <p>九月二日游览张掖马蹄寺，创于十六国时代的石窟寺。历代多有修葺，史无前例的亿恶的十年浩劫时期，被恐怖分子彻底摧毁！[泪][泪][泪]<br><img src="http://ww2.sinaimg.cn/large/617fc8a9jw1evsxibyzxgj20dc0hsdip.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3884142238734680" target="freeweibo-mirror">SPAM 前面造成了工厂里外和E罩杯的恐慌 我收回我前面的话…</a>
 </h2>
@@ -114,13 +114,13 @@
 </h2>
 <p>右边，看国军远征军12岁娃娃兵。 http://t.cn/RyLBSzB //@黄照旋:15岁组织支前抗日？编吧！//@辟谣与真相:申纪兰15岁就响应抗日政府号召，组织妇女纺花织布做军鞋，并担任组长。积极支援抗日前线。 http://t.cn/RyLQ8R3 ； http://t.cn/RyLQ8zd //@媒体人欧菲:这么大的年纪了，应该“抗日”了吧？<br><br>RE: 这么多奖牌，那一枚与抗战有关[疑问]？<br><img src="http://ww3.sinaimg.cn/large/6a83dd8ejw1evs28k9p10j20c80dnq42.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3884035685954223" target="freeweibo-mirror">最右那位媒体人，说话不合适哦！//@司马平邦: 右边这位＂前…</a>
 </h2>
 <p>最右那位媒体人，说话不合适哦！//@司马平邦: 右边这位＂前祖国杂志社福建记者者站站长＂是日本鬼子后代吗？耍流氓连支前模范老奶奶也不放过！申纪兰15岁就响应抗日号召，组织妇女纺花织布做军鞋，并担任组长。//@媒体人欧菲:这么大的年纪了，应该“抗日”了吧？<br><br>RE: 这么多奖牌，那一枚与抗战有关[疑问]？<br><img src="http://ww3.sinaimg.cn/large/6a83dd8ejw1evs28k9p10j20c80dnq42.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3884031362209963" target="freeweibo-mirror">SPAM 这年头，开国产日本车的地位貌似比“汉奸”都低~~~…</a>
 </h2>
