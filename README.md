@@ -32,6 +32,18 @@
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3884036043036524" target="freeweibo-mirror">右边，看国军远征军12岁娃娃兵。 http://t.cn/R…</a>
+</h2>
+<p>右边，看国军远征军12岁娃娃兵。 http://t.cn/RyLBSzB //@黄照旋:15岁组织支前抗日？编吧！//@辟谣与真相:申纪兰15岁就响应抗日政府号召，组织妇女纺花织布做军鞋，并担任组长。积极支援抗日前线。 http://t.cn/RyLQ8R3 ； http://t.cn/RyLQ8zd //@媒体人欧菲:这么大的年纪了，应该“抗日”了吧？<br><br>RE: 这么多奖牌，那一枚与抗战有关[疑问]？<br><img src="http://ww3.sinaimg.cn/large/6a83dd8ejw1evs28k9p10j20c80dnq42.jpg"></p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3884035685954223" target="freeweibo-mirror">最右那位媒体人，说话不合适哦！//@司马平邦: 右边这位＂前…</a>
+</h2>
+<p>最右那位媒体人，说话不合适哦！//@司马平邦: 右边这位＂前祖国杂志社福建记者者站站长＂是日本鬼子后代吗？耍流氓连支前模范老奶奶也不放过！申纪兰15岁就响应抗日号召，组织妇女纺花织布做军鞋，并担任组长。//@媒体人欧菲:这么大的年纪了，应该“抗日”了吧？<br><br>RE: 这么多奖牌，那一枚与抗战有关[疑问]？<br><img src="http://ww3.sinaimg.cn/large/6a83dd8ejw1evs28k9p10j20c80dnq42.jpg"></p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3884031362209963" target="freeweibo-mirror">SPAM 这年头，开国产日本车的地位貌似比“汉奸”都低~~~…</a>
 </h2>
 <p>SPAM 这年头，开国产日本车的地位貌似比“汉奸”都低~~~这是怎么了？？<br><br>RE: 阅兵日，被长刀砍车。@平安郑州 @郑州公安特警 @平安中原<br><img src="http://ww1.sinaimg.cn/large/636ddeb4jw1evrpce15p4j20c80yiq91.jpg"></p>
@@ -72,7 +84,7 @@
 </h2>
 <p>清算邓贼罪恶，彻底摒弃猫论，中华民族才有真正复兴强盛之日！假中共卖国走资集团统治下的花花盛景，只不过是缕缕彩色泡沫而己，其灭衰败和灭亡是必然的、不可抗拒的！！！</p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3883963095719747" target="freeweibo-mirror">请看这里 http://t.cn/RyLHY4s</a>
 </h2>
@@ -125,18 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3883853242286361" target="freeweibo-mirror">SPAM [话筒][话筒][话筒]</a>
 </h2>
 <p>SPAM [话筒][话筒][话筒]<br><br>RE: 台北市长柯文哲称：在台大校园立牌子“台湾独立”，没有人会理你。上面写“两岸统一”，也没人会停下脚步。但如果写：“全校禁止使用网络”。肯定会引起暴动。所以统独对现在的年轻人来说是假议题。我去过大陆10几次，年轻助理一路上都赞美大陆，但发现上不了GOOGLE、FB之后，他们对大陆的看法就变了。</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3883852835997925" target="freeweibo-mirror">//@冰克尔://@西北胡杨x: 中国之人，上诈下愚，说透了…</a>
-</h2>
-<p>//@冰克尔://@西北胡杨x: 中国之人，上诈下愚，说透了中国国情<br><br>RE: 当年屠杀地主时，农村万人空巷、都出来围观鼓掌。但那些愚昧的农民伯伯们没有意识到：今天你将地主消灭了，以后你自身也就危险了。道理十分简单：你破坏了秩序，秩序就会反过来破坏你；统治者不尊重地主的生命、他们一样不会尊重农民的生命。陈寅恪说“中国之人，上诈下愚”。是有道理的。@媒体人萧萧<br><img src="http://ww4.sinaimg.cn/large/005OVhBigw1evqogu9nk0j30cs083q40.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3883852130622864" target="freeweibo-mirror">中国之人，上诈下愚，说透了中国国情</a>
-</h2>
-<p>中国之人，上诈下愚，说透了中国国情<br><br>RE: 当年屠杀地主时，农村万人空巷、都出来围观鼓掌。但那些愚昧的农民伯伯们没有意识到：今天你将地主消灭了，以后你自身也就危险了。道理十分简单：你破坏了秩序，秩序就会反过来破坏你；统治者不尊重地主的生命、他们一样不会尊重农民的生命。陈寅恪说“中国之人，上诈下愚”。是有道理的。@媒体人萧萧<br><img src="http://ww4.sinaimg.cn/large/005OVhBigw1evqogu9nk0j30cs083q40.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
