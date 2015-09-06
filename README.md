@@ -60,7 +60,7 @@
 </h2>
 <p>响应红利号召嘛，大众创业万众创新 //@农民工萧武:政治迫害这四个字，这些年养活了多少人？这个产业链怎么着也不会比上访差吧？</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3884149640916048" target="freeweibo-mirror">九月二日游览张掖马蹄寺，创于十六国时代的石窟寺。历代多有修葺…</a>
 </h2>
@@ -84,13 +84,13 @@
 </h2>
 <p>周先生，保重。<br><br>RE: 【申请公开阅兵费用】阅兵已经结束，现在网上有很多谣言，说化了多少多少钱，有说化了215亿，不敢相信。谣言是阴暗的生物，公开的阳光一晒自然消失。为制止谣言流传影响党和政府的声誉，中国公民周永坤依法申请公开阅兵开支费用。</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3884051414477841" target="freeweibo-mirror">SPAM http://t.cn/RyLdD1O</a>
 </h2>
 <p>SPAM http://t.cn/RyLdD1O</p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3884048885848829" target="freeweibo-mirror">到底谁是神经病，谁说搞破坏[吃惊][怒] http://t.…</a>
 </h2>
@@ -114,13 +114,13 @@
 </h2>
 <p>右边，看国军远征军12岁娃娃兵。 http://t.cn/RyLBSzB //@黄照旋:15岁组织支前抗日？编吧！//@辟谣与真相:申纪兰15岁就响应抗日政府号召，组织妇女纺花织布做军鞋，并担任组长。积极支援抗日前线。 http://t.cn/RyLQ8R3 ； http://t.cn/RyLQ8zd //@媒体人欧菲:这么大的年纪了，应该“抗日”了吧？<br><br>RE: 这么多奖牌，那一枚与抗战有关[疑问]？<br><img src="http://ww3.sinaimg.cn/large/6a83dd8ejw1evs28k9p10j20c80dnq42.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3884035685954223" target="freeweibo-mirror">最右那位媒体人，说话不合适哦！//@司马平邦: 右边这位＂前…</a>
 </h2>
 <p>最右那位媒体人，说话不合适哦！//@司马平邦: 右边这位＂前祖国杂志社福建记者者站站长＂是日本鬼子后代吗？耍流氓连支前模范老奶奶也不放过！申纪兰15岁就响应抗日号召，组织妇女纺花织布做军鞋，并担任组长。//@媒体人欧菲:这么大的年纪了，应该“抗日”了吧？<br><br>RE: 这么多奖牌，那一枚与抗战有关[疑问]？<br><img src="http://ww3.sinaimg.cn/large/6a83dd8ejw1evs28k9p10j20c80dnq42.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3884031362209963" target="freeweibo-mirror">SPAM 这年头，开国产日本车的地位貌似比“汉奸”都低~~~…</a>
 </h2>
