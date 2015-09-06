@@ -62,6 +62,12 @@
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3884126317225630" target="freeweibo-mirror">周先生，保重。</a>
+</h2>
+<p>周先生，保重。<br><br>RE: 【申请公开阅兵费用】阅兵已经结束，现在网上有很多谣言，说化了多少多少钱，有说化了215亿，不敢相信。谣言是阴暗的生物，公开的阳光一晒自然消失。为制止谣言流传影响党和政府的声誉，中国公民周永坤依法申请公开阅兵开支费用。</p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3884051414477841" target="freeweibo-mirror">SPAM http://t.cn/RyLdD1O</a>
 </h2>
 <p>SPAM http://t.cn/RyLdD1O</p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3883965435551205" target="freeweibo-mirror">清算邓贼罪恶，彻底摒弃猫论，中华民族才有真正复兴强盛之日！假…</a>
 </h2>
 <p>清算邓贼罪恶，彻底摒弃猫论，中华民族才有真正复兴强盛之日！假中共卖国走资集团统治下的花花盛景，只不过是缕缕彩色泡沫而己，其灭衰败和灭亡是必然的、不可抗拒的！！！</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3883963095719747" target="freeweibo-mirror">请看这里 http://t.cn/RyLHY4s</a>
-</h2>
-<p>请看这里 http://t.cn/RyLHY4s<br><br>RE: 1972年中日建交后，日本首相田中角荣访华向毛泽东道歉。毛说：“不要对不起啊，你们有功啊，为啥有功呢？因为你们要不是发动侵华战争的话，我们共产党怎么能够强大？我们怎么能够夺权哪？怎么能够把蒋介石打败呀？我们如何感谢你们？我们不要你们战争赔偿！”--译自《田中角荣传》日语原版<br><img src="http://ww1.sinaimg.cn/large/51c21d10gw1evsaij9137j20dw0e8t99.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
