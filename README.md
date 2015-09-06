@@ -108,7 +108,7 @@
 </h2>
 <p>SPAM 博主，吃错了药，会损智商。<br><br>RE: 这么多奖牌，那一枚与抗战有关[疑问]？<br><img src="http://ww3.sinaimg.cn/large/6a83dd8ejw1evs28k9p10j20c80dnq42.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3884036043036524" target="freeweibo-mirror">右边，看国军远征军12岁娃娃兵。 http://t.cn/R…</a>
 </h2>
