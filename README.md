@@ -30,7 +30,7 @@
 </h2>
 <p>SPAM [吃惊]这画外音，格外惊悚寒心！<br><br>RE: 到底谁是神经病，谁说搞破坏[吃惊][怒] http://t.cn/RyLdK6D .</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3884159921540398" target="freeweibo-mirror">Repost</a>
 </h2>
@@ -102,7 +102,7 @@
 </h2>
 <p>SPAM //@成都双石: 她老人家是支前模范，跟八爷纳过军鞋耶——你耶？<br><br>RE: 这么多奖牌，那一枚与抗战有关[疑问]？<br><img src="http://ww3.sinaimg.cn/large/6a83dd8ejw1evs28k9p10j20c80dnq42.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3884037187414843" target="freeweibo-mirror">SPAM 博主，吃错了药，会损智商。</a>
 </h2>
