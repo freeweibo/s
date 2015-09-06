@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3884149640916048" target="freeweibo-mirror">九月二日游览张掖马蹄寺，创于十六国时代的石窟寺。历代多有修葺…</a>
+</h2>
+<p>九月二日游览张掖马蹄寺，创于十六国时代的石窟寺。历代多有修葺，史无前例的亿恶的十年浩劫时期，被恐怖分子彻底摧毁！[泪][泪][泪]<br><img src="http://ww2.sinaimg.cn/large/617fc8a9jw1evsxibyzxgj20dc0hsdip.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3884051414477841" target="freeweibo-mirror">SPAM http://t.cn/RyLdD1O</a>
 </h2>
 <p>SPAM http://t.cn/RyLdD1O</p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3883877124861711" target="freeweibo-mirror">这么多奖牌，那一枚与抗战有关[疑问]？</a>
 </h2>
 <p>这么多奖牌，那一枚与抗战有关[疑问]？<br><img src="http://ww3.sinaimg.cn/large/6a83dd8ejw1evs28k9p10j20c80dnq42.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3883854840430422" target="freeweibo-mirror">SPAM 有意思//@谓贤: 记不得谁说过：朝廷不变没关系，…</a>
-</h2>
-<p>SPAM 有意思//@谓贤: 记不得谁说过：朝廷不变没关系，人心变了，一切都会变。<br><br>RE: 台北市长柯文哲称：在台大校园立牌子“台湾独立”，没有人会理你。上面写“两岸统一”，也没人会停下脚步。但如果写：“全校禁止使用网络”。肯定会引起暴动。所以统独对现在的年轻人来说是假议题。我去过大陆10几次，年轻助理一路上都赞美大陆，但发现上不了GOOGLE、FB之后，他们对大陆的看法就变了。</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
