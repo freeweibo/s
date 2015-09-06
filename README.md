@@ -84,13 +84,13 @@
 </h2>
 <p>响应红利号召嘛，大众创业万众创新 //@农民工萧武:政治迫害这四个字，这些年养活了多少人？这个产业链怎么着也不会比上访差吧？</p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3884149640916048" target="freeweibo-mirror">九月二日游览张掖马蹄寺，创于十六国时代的石窟寺。历代多有修葺…</a>
 </h2>
 <p>九月二日游览张掖马蹄寺，创于十六国时代的石窟寺。历代多有修葺，史无前例的亿恶的十年浩劫时期，被恐怖分子彻底摧毁！[泪][泪][泪]<br><img src="http://ww2.sinaimg.cn/large/617fc8a9jw1evsxibyzxgj20dc0hsdip.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3884142238734680" target="freeweibo-mirror">SPAM 前面造成了工厂里外和E罩杯的恐慌 我收回我前面的话…</a>
 </h2>
