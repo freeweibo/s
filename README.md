@@ -126,7 +126,7 @@
 </h2>
 <p>SPAM 这年头，开国产日本车的地位貌似比“汉奸”都低~~~这是怎么了？？<br><br>RE: 阅兵日，被长刀砍车。@平安郑州 @郑州公安特警 @平安中原<br><img src="http://ww1.sinaimg.cn/large/636ddeb4jw1evrpce15p4j20c80yiq91.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3884022998488333" target="freeweibo-mirror">我从来都在驾驶位下面放一根擀面杖的，不为打人，只为自卫。 /…</a>
 </h2>
