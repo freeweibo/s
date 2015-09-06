@@ -24,7 +24,7 @@
 </h2>
 <p>SPAM 当你坚持了，瘦下来的不只是惊喜[心][心]。享瘦去找她→_→@方雪宜</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3884209569079079" target="freeweibo-mirror">邪恶共党//@龙行-得水688://@上桥南蛮: /@元芳周…</a>
 </h2>
@@ -54,7 +54,7 @@
 </h2>
 <p>SPAM [吃惊]这画外音，格外惊悚寒心！<br><br>RE: 到底谁是神经病，谁说搞破坏[吃惊][怒] http://t.cn/RyLdK6D .</p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3884159921540398" target="freeweibo-mirror">Repost</a>
 </h2>
