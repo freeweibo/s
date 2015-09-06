@@ -114,7 +114,7 @@
 </h2>
 <p>知识贴：你是这样show 爱爱的吗？收图不谢 #啪啪分享#<br><img src="http://ww4.sinaimg.cn/large/9ff760d3gw1evryf1luoxg206y03w4p7.gif"></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3883835135329092" target="freeweibo-mirror">SPAM 再学学日语～</a>
 </h2>
@@ -138,7 +138,7 @@
 </h2>
 <p>//@应天澜:想动摇我党执政地位，门也没有[右哼哼]//@杨子评:这是蓝绿两党的糖衣炮弹，我们才不上当呢[偷笑]</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p>
 <table>
     <tr>
