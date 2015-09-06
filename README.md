@@ -30,7 +30,7 @@
 </h2>
 <p>美国公民才有资格。博主是中国公民。//@生而在世_我很抱歉_：你敢叫你美爹公开支出吗？[哼]<br><br>RE: 【申请公开阅兵费用】阅兵已经结束，现在网上有很多谣言，说化了多少多少钱，有说化了215亿，不敢相信。谣言是阴暗的生物，公开的阳光一晒自然消失。为制止谣言流传影响党和政府的声誉，中国公民周永坤依法申请公开阅兵开支费用。</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3884156980830444" target="freeweibo-mirror">响应红利号召嘛，大众创业万众创新 //@农民工萧武:政治迫害…</a>
 </h2>
@@ -48,7 +48,7 @@
 </h2>
 <p>SPAM 前面造成了工厂里外和E罩杯的恐慌 我收回我前面的话[拜拜]我是一刻也不能停吗[悲催][悲催][悲催]我想说我也有兴趣爱好的嘛[悲催][悲催][悲催]<br><img src="http://ww3.sinaimg.cn/large/5c5966afjw1evswil8lfrj21w01w0b2a.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3884051414477841" target="freeweibo-mirror">SPAM http://t.cn/RyLdD1O</a>
 </h2>
@@ -66,7 +66,7 @@
 </h2>
 <p>SPAM 博主，吃错了药，会损智商。<br><br>RE: 这么多奖牌，那一枚与抗战有关[疑问]？<br><img src="http://ww3.sinaimg.cn/large/6a83dd8ejw1evs28k9p10j20c80dnq42.jpg"></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3884036043036524" target="freeweibo-mirror">右边，看国军远征军12岁娃娃兵。 http://t.cn/R…</a>
 </h2>
@@ -102,7 +102,7 @@
 </h2>
 <p>我这人胆子小，换成是我，碰上这种拿刀砍车的爱国贼，肯定会误将油门当车刹，慌慌张张踩下去～～请教律师，这个不是犯罪吧？//@吴铭:转发微博<br><br>RE: 阅兵日，被长刀砍车。@平安郑州 @郑州公安特警 @平安中原<br><img src="http://ww1.sinaimg.cn/large/636ddeb4jw1evrpce15p4j20c80yiq91.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3883998352588080" target="freeweibo-mirror">细思恐极 //@爱姬平不了身:依法不管的又一现象。好机智！ …</a>
 </h2>
