@@ -120,7 +120,7 @@
 </h2>
 <p>SPAM 再学学日语～<br><img src="http://ww1.sinaimg.cn/large/6e6b548bjw1evrxeu3el1j20u00u0gu9.jpg"></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3883834988391749" target="freeweibo-mirror">SPAM 我们总是把胆识二字放在一起说，但很多时候我搞不明白…</a>
 </h2>
