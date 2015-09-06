@@ -32,6 +32,12 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3884195346838748" target="freeweibo-mirror">中国股市动荡，汇率下跌，成本优势正在丧失，实体经济正面临被转…</a>
+</h2>
+<p>中国股市动荡，汇率下跌，成本优势正在丧失，实体经济正面临被转移到其它国家的风险，此时美国将其制造业转移到美国本土和墨西哥，日本和欧洲正在将制造业转向东南亚各国和印度，美正在构建利用日.越.菲在南海给中国制造麻烦，利用缅甸国内政治变革打击中国影响力，阻击中国“一路一带”战略的推进<br><img src="http://ww4.sinaimg.cn/large/bc62ebd1gw1evt2s4a6l1j207r064jrm.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3884173352074327" target="freeweibo-mirror">SPAM 这种女神经太多了//@天津魏甫全家蒙冤: 这女的就…</a>
 </h2>
 <p>SPAM 这种女神经太多了//@天津魏甫全家蒙冤: 这女的就是神经病。没有冤屈怎么会拦车，一点都不体谅别人，还说人家.<br><br>RE: #吐槽曝料# 谁是神经病？http://t.cn/RyLdK6D</p>
@@ -42,7 +48,7 @@
 </h2>
 <p>SPAM [吃惊]这画外音，格外惊悚寒心！<br><br>RE: 到底谁是神经病，谁说搞破坏[吃惊][怒] http://t.cn/RyLdK6D .</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3884159921540398" target="freeweibo-mirror">Repost</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3884035685954223" target="freeweibo-mirror">最右那位媒体人，说话不合适哦！//@司马平邦: 右边这位＂前…</a>
 </h2>
 <p>最右那位媒体人，说话不合适哦！//@司马平邦: 右边这位＂前祖国杂志社福建记者者站站长＂是日本鬼子后代吗？耍流氓连支前模范老奶奶也不放过！申纪兰15岁就响应抗日号召，组织妇女纺花织布做军鞋，并担任组长。//@媒体人欧菲:这么大的年纪了，应该“抗日”了吧？<br><br>RE: 这么多奖牌，那一枚与抗战有关[疑问]？<br><img src="http://ww3.sinaimg.cn/large/6a83dd8ejw1evs28k9p10j20c80dnq42.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3884031362209963" target="freeweibo-mirror">SPAM 这年头，开国产日本车的地位貌似比“汉奸”都低~~~…</a>
-</h2>
-<p>SPAM 这年头，开国产日本车的地位貌似比“汉奸”都低~~~这是怎么了？？<br><br>RE: 阅兵日，被长刀砍车。@平安郑州 @郑州公安特警 @平安中原<br><img src="http://ww1.sinaimg.cn/large/636ddeb4jw1evrpce15p4j20c80yiq91.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
