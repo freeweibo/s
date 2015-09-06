@@ -24,7 +24,7 @@
 </h2>
 <p>SPAM http://t.cn/RyLdD1O</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3884045874186714" target="freeweibo-mirror">SPAM //@成都双石: 她老人家是支前模范，跟八爷纳过军…</a>
 </h2>
@@ -42,13 +42,13 @@
 </h2>
 <p>右边，看国军远征军12岁娃娃兵。 http://t.cn/RyLBSzB //@黄照旋:15岁组织支前抗日？编吧！//@辟谣与真相:申纪兰15岁就响应抗日政府号召，组织妇女纺花织布做军鞋，并担任组长。积极支援抗日前线。 http://t.cn/RyLQ8R3 ； http://t.cn/RyLQ8zd //@媒体人欧菲:这么大的年纪了，应该“抗日”了吧？<br><br>RE: 这么多奖牌，那一枚与抗战有关[疑问]？<br><img src="http://ww3.sinaimg.cn/large/6a83dd8ejw1evs28k9p10j20c80dnq42.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3884035685954223" target="freeweibo-mirror">最右那位媒体人，说话不合适哦！//@司马平邦: 右边这位＂前…</a>
 </h2>
 <p>最右那位媒体人，说话不合适哦！//@司马平邦: 右边这位＂前祖国杂志社福建记者者站站长＂是日本鬼子后代吗？耍流氓连支前模范老奶奶也不放过！申纪兰15岁就响应抗日号召，组织妇女纺花织布做军鞋，并担任组长。//@媒体人欧菲:这么大的年纪了，应该“抗日”了吧？<br><br>RE: 这么多奖牌，那一枚与抗战有关[疑问]？<br><img src="http://ww3.sinaimg.cn/large/6a83dd8ejw1evs28k9p10j20c80dnq42.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3884031362209963" target="freeweibo-mirror">SPAM 这年头，开国产日本车的地位貌似比“汉奸”都低~~~…</a>
 </h2>
@@ -66,7 +66,7 @@
 </h2>
 <p>SPAM 锯齿，工具刀，砍车不犯法？//@苏葭:这种垃圾自会遭报应。<br><br>RE: 阅兵日，被长刀砍车。@平安郑州 @郑州公安特警 @平安中原<br><img src="http://ww1.sinaimg.cn/large/636ddeb4jw1evrpce15p4j20c80yiq91.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3884007387337978" target="freeweibo-mirror">我这人胆子小，换成是我，碰上这种拿刀砍车的爱国贼，肯定会误将…</a>
 </h2>
@@ -108,7 +108,7 @@
 </h2>
 <p>国共相争，日人得利。//@十年砍柴: 中国放弃日本赔款问题很复杂，简单说是日本政府利用国共相争而得利。先是旧金山和约签订，美英为扶植日本放弃赔款，在台的蒋政府代表中国亦放弃赔款。1972中共政府为突破外交孤立，与日建交，同样放弃（否则日本愿与20年前放弃赔款的蒋政府继续保持外交关系）<br><br>RE: 1972年中日建交后，日本首相田中角荣访华向毛泽东道歉。毛说：“不要对不起啊，你们有功啊，为啥有功呢？因为你们要不是发动侵华战争的话，我们共产党怎么能够强大？我们怎么能够夺权哪？怎么能够把蒋介石打败呀？我们如何感谢你们？我们不要你们战争赔偿！”--译自《田中角荣传》日语原版<br><img src="http://ww1.sinaimg.cn/large/51c21d10gw1evsaij9137j20dw0e8t99.jpg"></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3883957517091053" target="freeweibo-mirror">//@十年砍柴: 中国放弃日本赔款问题很复杂，简单说是日本政…</a>
 </h2>
