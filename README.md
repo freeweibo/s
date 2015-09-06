@@ -108,7 +108,7 @@
 </h2>
 <p>到底谁是神经病，谁说搞破坏[吃惊][怒] http://t.cn/RyLdK6D .</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3884045874186714" target="freeweibo-mirror">SPAM //@成都双石: 她老人家是支前模范，跟八爷纳过军…</a>
 </h2>
