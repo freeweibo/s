@@ -102,7 +102,7 @@
 </h2>
 <p>#吐槽曝料# 谁是神经病？http://t.cn/RyLdK6D</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3884126317225630" target="freeweibo-mirror">周先生，保重。</a>
 </h2>
