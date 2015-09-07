@@ -80,11 +80,17 @@
 <p>
 	<small> ============== 4小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3884481028649536" target="freeweibo-mirror">//@付亮的竞争情报应用: 不知道真假，评论很热闹！#微言传…</a>
+</h2>
+<p>//@付亮的竞争情报应用: 不知道真假，评论很热闹！#微言传播#<br><br>RE: 一个消息，586动怒，央视的那帮肉食者小王八羔子要不好过了。</p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3884478780553553" target="freeweibo-mirror">【访民】这是9月3日阅兵当天上午十点多，发生在北京建国门南红…</a>
 </h2>
 <p>【访民】这是9月3日阅兵当天上午十点多，发生在北京建国门南红绿灯路口的事件。据说这是上海访民胡某，看到军演开道摩托车车队及警车驶来时，其不顾生命危险，背着装满材料的包冲到马路中间，高呼“打倒腐败”等口号。 http://t.cn/Ryy1azR .</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3884473794191618" target="freeweibo-mirror">是不是已经淡忘天津大爆炸了？对了，长江上啥时候翻过一条游轮闷…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3884368957192813" target="freeweibo-mirror">我还想去美国上学呢//@好大只菇菇:你还想干嘛？//@我是马…</a>
 </h2>
 <p>我还想去美国上学呢//@好大只菇菇:你还想干嘛？//@我是马甲马老师:你还想干嘛？<br><br>RE: #新浪看见#【“我想在北京上学”】今天开学，北京将有15万新生入学，其中非京籍6万人。在巨大的人口调控压力下，2014年起，非京藉儿童在京上学难度骤然提升，许多孩子被种种证明挡在北京校门外。甚至在部分区县，需要办齐20多种证明才能入学…http://t.cn/RyyIlaY<br><img src="http://ww2.sinaimg.cn/large/60718250jw1evtkth77zpj20qe0hl79b.jpg"></p>
-<p>
-	<small> ============== 12小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3884367937975915" target="freeweibo-mirror">文革法西斯</a>
-</h2>
-<p>文革法西斯</p>
 <p>
 	<small> ============== 12小时前</small>
 </p>
