@@ -30,7 +30,7 @@
 </h2>
 <p>SPAM 人權，是人類超越一切的權力，包括其他附屬權屬如物權。只要是人類，就不會以保護動物的名義踐踏人權。不是剛結束了反法西斯閱兵么？這就是當代法西斯翻版。//@holicchen: 以爱心的名义施暴。//@苏州郎心铁: 谁给他们的执法权？</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3884602634638785" target="freeweibo-mirror">SPAM 別做夢了，朱熹早就說過“孔孟之道未嘗一日行於天地間…</a>
 </h2>
@@ -108,13 +108,13 @@
 </h2>
 <p>见图！试问：“中东路事件”的真相该不该告诉国人民等？！当年，武装保卫苏联、武装保卫斯大林，又究竟是为了哪般？！   #分享音乐##送别-杨沛宜# http://t.cn/RyUzeiG @尐玩崓<br><img src="http://ww4.sinaimg.cn/large/005OVhBigw1evu8lfq1xuj30c62tytnr.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3884559386885409" target="freeweibo-mirror">//@郑维:转发微博</a>
 </h2>
 <p>//@郑维:转发微博<br><br>RE: 【访民】这是9月3日阅兵当天上午十点多，发生在北京建国门南红绿灯路口的事件。据说这是上海访民胡某，看到军演开道摩托车车队及警车驶来时，其不顾生命危险，背着装满材料的包冲到马路中间，高呼“打倒腐败”等口号。 据@媒体人欧菲 http://t.cn/Ryyr27H .</p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3884557415433164" target="freeweibo-mirror">//@很傻的妮子:好一句“神经病”——有人因为神经病而关了进…</a>
 </h2>
