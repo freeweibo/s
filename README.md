@@ -36,7 +36,7 @@
 </h2>
 <p>SPAM 吸烟有害健康<br><img src="http://ww2.sinaimg.cn/large/62f8add8jw1evtrljsa9kj20c80a13zr.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3884409637851282" target="freeweibo-mirror">SPAM 男女拍拖到底拍几耐就可以做爱？万万想唔到D女仔係咁…</a>
 </h2>
