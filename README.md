@@ -36,13 +36,13 @@
 </h2>
 <p>SPAM 发表了一篇转载博文《[转载]谷俊山为求免死疯狂咬人，习近平留下活口，牵制军中不听话者》http://t.cn/RyygTjF</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3884504576383112" target="freeweibo-mirror">呵呵，马上教授就要满天飞了……</a>
 </h2>
 <p>呵呵，马上教授就要满天飞了……</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3884504198651978" target="freeweibo-mirror">右边的，只许你们北师大的得诺贝尔和平奖，清华难道不能得一个？…</a>
 </h2>
@@ -126,7 +126,7 @@
 </h2>
 <p>我还想去美国上学呢//@好大只菇菇:你还想干嘛？//@我是马甲马老师:你还想干嘛？<br><br>RE: #新浪看见#【“我想在北京上学”】今天开学，北京将有15万新生入学，其中非京籍6万人。在巨大的人口调控压力下，2014年起，非京藉儿童在京上学难度骤然提升，许多孩子被种种证明挡在北京校门外。甚至在部分区县，需要办齐20多种证明才能入学…http://t.cn/RyyIlaY<br><img src="http://ww2.sinaimg.cn/large/60718250jw1evtkth77zpj20qe0hl79b.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3884367937975915" target="freeweibo-mirror">文革法西斯</a>
 </h2>
