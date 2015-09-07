@@ -36,7 +36,7 @@
 </h2>
 <p>SPAM  //@詹道葵: //@武汉李杜:俄罗斯和某国政府正日益成为文明的敌人。不问是非，只认强权。如果ISIS全面控制叙利亚，某国照样邀请它来阅兵//@浩正刘臻:俄罗斯、等国……</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3884236446972322" target="freeweibo-mirror">谁是罪人？http://t.cn/RyyMfWg</a>
 </h2>
@@ -48,7 +48,7 @@
 </h2>
 <p>SPAM 当你坚持了，瘦下来的不只是惊喜[心][心]。享瘦去找她→_→@方雪宜</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3884209569079079" target="freeweibo-mirror">邪恶共党//@龙行-得水688://@上桥南蛮: /@元芳周…</a>
 </h2>
