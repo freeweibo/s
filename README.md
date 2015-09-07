@@ -42,13 +42,13 @@
 </h2>
 <p>//@游弋都市:转发微博<br><br>RE: 某部门举行的新闻发布会上，有记者问这次阅兵花了多少钱？发言人：这次阅兵非常成功。记者：到底花了多少钱？发言人：有30位国家元首出席。记者：到底花了多少钱啊？发言人：此次阅兵向世界显示中国有能力承担大国责任。记者急了：说清楚到底花了多少钱？发言人：全世界华人都为此次阅兵感到自豪.....</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3884506492475412" target="freeweibo-mirror">SPAM //@京城--痞子:这评论…[衰] //@猫了个咪…</a>
 </h2>
 <p>SPAM //@京城--痞子:这评论…[衰] //@猫了个咪了个猫:卧槽，评论里都是上海人？//@竹羊羊:看评论吓死了。。。<br><br>RE: YP的崽子闹事了。@爱上海-彪彪哥 @爱上海-芒果叔 http://t.cn/zHEx8sV<br><img src="http://ww4.sinaimg.cn/large/9d38252agw1evtui8mmonj22io1w07wi.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3884504621519374" target="freeweibo-mirror">SPAM 发表了一篇转载博文《[转载]谷俊山为求免死疯狂咬人…</a>
 </h2>
@@ -65,6 +65,12 @@
 	<a href="https://freeweibo.com/weibo/3884504198651978" target="freeweibo-mirror">右边的，只许你们北师大的得诺贝尔和平奖，清华难道不能得一个？…</a>
 </h2>
 <p>右边的，只许你们北师大的得诺贝尔和平奖，清华难道不能得一个？ //@文山娃:如能如願，幾近蟬聯。[鼓掌]</p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3884501631148330" target="freeweibo-mirror">今天掌趣科技（300315）涨停，机构席位清一色卖出，其中竟…</a>
+</h2>
+<p>今天掌趣科技（300315）涨停，机构席位清一色卖出，其中竟然有3家机构的卖出金额完全一样，都是7579.719万元，按照涨停价是732.34万股。怎么可能有三家机构持股数量完全一致？唯一的解释就是平均分仓造成的。这个想象余地很大，让人怀疑难道这些股票就可以卖了？此时卖出这些股票，又有什么内涵呢？</p>
 <p>
 	<small> ============== 4小时前</small>
 </p><h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3884411517094852" target="freeweibo-mirror">SPAM 看不懂文章意图，大家都可以揣摩。http://t.…</a>
 </h2>
 <p>SPAM 看不懂文章意图，大家都可以揣摩。http://t.cn/Ryy9C6A</p>
-<p>
-	<small> ============== 10小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3884411403195909" target="freeweibo-mirror">SPAM 吸烟有害健康</a>
-</h2>
-<p>SPAM 吸烟有害健康<br><img src="http://ww2.sinaimg.cn/large/62f8add8jw1evtrljsa9kj20c80a13zr.jpg"></p>
 <p>
 	<small> ============== 10小时前</small>
 </p>
