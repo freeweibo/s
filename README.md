@@ -44,6 +44,12 @@
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3884354172783754" target="freeweibo-mirror">教育公平问题咋就解决不了呢？[围观][围观][围观][围观]</a>
+</h2>
+<p>教育公平问题咋就解决不了呢？[围观][围观][围观][围观]<br><br>RE: #新浪看见#【“我想在北京上学”】今天开学，北京将有15万新生入学，其中非京籍6万人。在巨大的人口调控压力下，2014年起，非京藉儿童在京上学难度骤然提升，许多孩子被种种证明挡在北京校门外。甚至在部分区县，需要办齐20多种证明才能入学…http://t.cn/RyyIlaY<br><img src="http://ww2.sinaimg.cn/large/60718250jw1evtkth77zpj20qe0hl79b.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3884236446972322" target="freeweibo-mirror">谁是罪人？http://t.cn/RyyMfWg</a>
 </h2>
 <p>谁是罪人？http://t.cn/RyyMfWg</p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3884140422290266" target="freeweibo-mirror">#吐槽曝料# 谁是神经病？http://t.cn/RyLdK…</a>
 </h2>
 <p>#吐槽曝料# 谁是神经病？http://t.cn/RyLdK6D</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3884126317225630" target="freeweibo-mirror">周先生，保重。</a>
-</h2>
-<p>周先生，保重。<br><br>RE: 【申请公开阅兵费用】阅兵已经结束，现在网上有很多谣言，说化了多少多少钱，有说化了215亿，不敢相信。谣言是阴暗的生物，公开的阳光一晒自然消失。为制止谣言流传影响党和政府的声誉，中国公民周永坤依法申请公开阅兵开支费用。</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
