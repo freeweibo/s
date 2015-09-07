@@ -66,7 +66,7 @@
 </h2>
 <p>谁是罪人？http://t.cn/RyyMfWg</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3884211330940129" target="freeweibo-mirror">SPAM 当你坚持了，瘦下来的不只是惊喜[心][心]。享瘦去…</a>
 </h2>
