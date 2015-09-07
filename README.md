@@ -24,7 +24,7 @@
 </h2>
 <p>SPAM 真假？好怕怕！<br><img src="http://ww4.sinaimg.cn/large/5f6520eajw1evufvmelbdj20hm0djgmv.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3884604085292540" target="freeweibo-mirror">SPAM 人權，是人類超越一切的權力，包括其他附屬權屬如物權…</a>
 </h2>
