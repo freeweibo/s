@@ -20,6 +20,18 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3884412473407143" target="freeweibo-mirror">SPAM 我对中国未来持极度悲观的态度。白痴式的洗脑，灌输那…</a>
+</h2>
+<p>SPAM 我对中国未来持极度悲观的态度。白痴式的洗脑，灌输那么多的仇恨，狂热的民族煽动，远离世界民主和平主流，恶果已经逐渐体现在年轻一代身上。看抗日神剧、沉迷游戏、追逐金钱又被沉重压力屈服的青年到中年这一代，彻底玩完，暴力、冲击和民粹越来越多。精英们都会出国，剩下的玩火自焚，为国殉葬。</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3884411403195909" target="freeweibo-mirror">SPAM 吸烟有害健康</a>
+</h2>
+<p>SPAM 吸烟有害健康<br><img src="http://ww2.sinaimg.cn/large/62f8add8jw1evtrljsa9kj20c80a13zr.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3884382773170300" target="freeweibo-mirror">//@冰封侠回归: [作揖][作揖]//@大连_阿东:推荐！…</a>
 </h2>
 <p>//@冰封侠回归: [作揖][作揖]//@大连_阿东:推荐！[推荐][推荐][推荐][推荐]@冰封侠回归 //@北疆观点: //@回头太难C3:转发微博</p>
@@ -125,18 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3884158138657237" target="freeweibo-mirror">美国公民才有资格。博主是中国公民。//@生而在世_我很抱歉_…</a>
 </h2>
 <p>美国公民才有资格。博主是中国公民。//@生而在世_我很抱歉_：你敢叫你美爹公开支出吗？[哼]<br><br>RE: 【申请公开阅兵费用】阅兵已经结束，现在网上有很多谣言，说化了多少多少钱，有说化了215亿，不敢相信。谣言是阴暗的生物，公开的阳光一晒自然消失。为制止谣言流传影响党和政府的声誉，中国公民周永坤依法申请公开阅兵开支费用。</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3884156980830444" target="freeweibo-mirror">响应红利号召嘛，大众创业万众创新 //@农民工萧武:政治迫害…</a>
-</h2>
-<p>响应红利号召嘛，大众创业万众创新 //@农民工萧武:政治迫害这四个字，这些年养活了多少人？这个产业链怎么着也不会比上访差吧？</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3884149640916048" target="freeweibo-mirror">九月二日游览张掖马蹄寺，创于十六国时代的石窟寺。历代多有修葺…</a>
-</h2>
-<p>九月二日游览张掖马蹄寺，创于十六国时代的石窟寺。历代多有修葺，史无前例的亿恶的十年浩劫时期，被恐怖分子彻底摧毁！[泪][泪][泪]<br><img src="http://ww2.sinaimg.cn/large/617fc8a9jw1evsxibyzxgj20dc0hsdip.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
