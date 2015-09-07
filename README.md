@@ -60,7 +60,7 @@
 </h2>
 <p>还要至少再加一问：究竟是谁做出了这个鉴定？他们的鉴定资质是如何弄来的？</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3884483864282046" target="freeweibo-mirror">//@马丁路德纲: 回复@洋洋cynthia:只能说这傻逼是…</a>
 </h2>
@@ -86,23 +86,29 @@
 <p>
 	<small> ============== 4小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3884437173091429" target="freeweibo-mirror">YP的崽子闹事了。@爱上海-彪彪哥 @爱上海-芒果叔 htt…</a>
+</h2>
+<p>YP的崽子闹事了。@爱上海-彪彪哥 @爱上海-芒果叔 http://t.cn/zHEx8sV<br><img src="http://ww4.sinaimg.cn/large/9d38252agw1evtui8mmonj22io1w07wi.jpg"></p>
+<p>
+	<small> ============== 7小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3884412473407143" target="freeweibo-mirror">SPAM 我对中国未来持极度悲观的态度。白痴式的洗脑，灌输那…</a>
 </h2>
 <p>SPAM 我对中国未来持极度悲观的态度。白痴式的洗脑，灌输那么多的仇恨，狂热的民族煽动，远离世界民主和平主流，恶果已经逐渐体现在年轻一代身上。看抗日神剧、沉迷游戏、追逐金钱又被沉重压力屈服的青年到中年这一代，彻底玩完，暴力、冲击和民粹越来越多。精英们都会出国，剩下的玩火自焚，为国殉葬。</p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3884411517094852" target="freeweibo-mirror">SPAM 看不懂文章意图，大家都可以揣摩。http://t.…</a>
 </h2>
 <p>SPAM 看不懂文章意图，大家都可以揣摩。http://t.cn/Ryy9C6A</p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3884411403195909" target="freeweibo-mirror">SPAM 吸烟有害健康</a>
 </h2>
 <p>SPAM 吸烟有害健康<br><img src="http://ww2.sinaimg.cn/large/62f8add8jw1evtrljsa9kj20c80a13zr.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3884409637851282" target="freeweibo-mirror">SPAM 男女拍拖到底拍几耐就可以做爱？万万想唔到D女仔係咁…</a>
 </h2>
@@ -133,12 +139,6 @@
 <p>文革味道越来越浓厚了。//@SCMP_南華早報: 浙江省教育厅日前要求，将国内外形势、党和国家重大方针政策等时政教育纳入全省中小学德育工作年度考核指标体系。中小学校要在师生易去地方的显著位置设置时政宣传栏，内容至少每周更新一次。此外，也将对校长、班主任、德育老师进行时政教育培养。</p>
 <p>
 	<small> ============== 11小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3884354176518403" target="freeweibo-mirror">SPAM  //@詹道葵: //@武汉李杜:俄罗斯和某国政府…</a>
-</h2>
-<p>SPAM  //@詹道葵: //@武汉李杜:俄罗斯和某国政府正日益成为文明的敌人。不问是非，只认强权。如果ISIS全面控制叙利亚，某国照样邀请它来阅兵//@浩正刘臻:俄罗斯、等国……</p>
-<p>
-	<small> ============== 1天前</small>
 </p>
 <table>
     <tr>
