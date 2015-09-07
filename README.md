@@ -48,7 +48,7 @@
 </h2>
 <p>//@冰封侠回归: [作揖][作揖]//@大连_阿东:推荐！[推荐][推荐][推荐][推荐]@冰封侠回归 //@北疆观点: //@回头太难C3:转发微博</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3884368957192813" target="freeweibo-mirror">我还想去美国上学呢//@好大只菇菇:你还想干嘛？//@我是马…</a>
 </h2>
@@ -60,13 +60,13 @@
 </h2>
 <p>文革法西斯</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3884367636197175" target="freeweibo-mirror">文革味道越来越浓厚了。//@SCMP_南華早報: 浙江省教育…</a>
 </h2>
 <p>文革味道越来越浓厚了。//@SCMP_南華早報: 浙江省教育厅日前要求，将国内外形势、党和国家重大方针政策等时政教育纳入全省中小学德育工作年度考核指标体系。中小学校要在师生易去地方的显著位置设置时政宣传栏，内容至少每周更新一次。此外，也将对校长、班主任、德育老师进行时政教育培养。</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3884354176518403" target="freeweibo-mirror">SPAM  //@詹道葵: //@武汉李杜:俄罗斯和某国政府…</a>
 </h2>
@@ -84,7 +84,7 @@
 </h2>
 <p>#新浪看见#【“我想在北京上学”】今天开学，北京将有15万新生入学，其中非京籍6万人。在巨大的人口调控压力下，2014年起，非京藉儿童在京上学难度骤然提升，许多孩子被种种证明挡在北京校门外。甚至在部分区县，需要办齐20多种证明才能入学…http://t.cn/RyyIlaY<br><img src="http://ww2.sinaimg.cn/large/60718250jw1evtkth77zpj20qe0hl79b.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3884236446972322" target="freeweibo-mirror">谁是罪人？http://t.cn/RyyMfWg</a>
 </h2>
