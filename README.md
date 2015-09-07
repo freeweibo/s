@@ -20,6 +20,18 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3884367937975915" target="freeweibo-mirror">文革法西斯</a>
+</h2>
+<p>文革法西斯</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3884367636197175" target="freeweibo-mirror">文革味道越来越浓厚了。//@SCMP_南華早報: 浙江省教育…</a>
+</h2>
+<p>文革味道越来越浓厚了。//@SCMP_南華早報: 浙江省教育厅日前要求，将国内外形势、党和国家重大方针政策等时政教育纳入全省中小学德育工作年度考核指标体系。中小学校要在师生易去地方的显著位置设置时政宣传栏，内容至少每周更新一次。此外，也将对校长、班主任、德育老师进行时政教育培养。</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3884354176518403" target="freeweibo-mirror">SPAM  //@詹道葵: //@武汉李杜:俄罗斯和某国政府…</a>
 </h2>
 <p>SPAM  //@詹道葵: //@武汉李杜:俄罗斯和某国政府正日益成为文明的敌人。不问是非，只认强权。如果ISIS全面控制叙利亚，某国照样邀请它来阅兵//@浩正刘臻:俄罗斯、等国……</p>
@@ -30,7 +42,7 @@
 </h2>
 <p>谁是罪人？http://t.cn/RyyMfWg</p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3884211330940129" target="freeweibo-mirror">SPAM 当你坚持了，瘦下来的不只是惊喜[心][心]。享瘦去…</a>
 </h2>
@@ -125,18 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3884051414477841" target="freeweibo-mirror">SPAM http://t.cn/RyLdD1O</a>
 </h2>
 <p>SPAM http://t.cn/RyLdD1O</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3884048885848829" target="freeweibo-mirror">到底谁是神经病，谁说搞破坏[吃惊][怒] http://t.…</a>
-</h2>
-<p>到底谁是神经病，谁说搞破坏[吃惊][怒] http://t.cn/RyLdK6D .</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3884045874186714" target="freeweibo-mirror">SPAM //@成都双石: 她老人家是支前模范，跟八爷纳过军…</a>
-</h2>
-<p>SPAM //@成都双石: 她老人家是支前模范，跟八爷纳过军鞋耶——你耶？<br><br>RE: 这么多奖牌，那一枚与抗战有关[疑问]？<br><img src="http://ww3.sinaimg.cn/large/6a83dd8ejw1evs28k9p10j20c80dnq42.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
