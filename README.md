@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3884482194834551" target="freeweibo-mirror">回复@洋洋cynthia:只能说这傻逼是自己没赶上事儿。//…</a>
+</h2>
+<p>回复@洋洋cynthia:只能说这傻逼是自己没赶上事儿。//@洋洋cynthia:擦，还有一个解说大妈。丫真正直//@马丁路德纲:视频来了。<br><br>RE: 【访民】这是9月3日阅兵当天上午十点多，发生在北京建国门南红绿灯路口的事件。据说这是上海访民胡某，看到军演开道摩托车车队及警车驶来时，其不顾生命危险，背着装满材料的包冲到马路中间，高呼“打倒腐败”等口号。 http://t.cn/Ryy1azR .</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3884473794191618" target="freeweibo-mirror">是不是已经淡忘天津大爆炸了？对了，长江上啥时候翻过一条游轮闷…</a>
 </h2>
 <p>是不是已经淡忘天津大爆炸了？对了，长江上啥时候翻过一条游轮闷死四百人？阅兵威武，祖国强大，不点赞不是中国人。</p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3884166892312005" target="freeweibo-mirror">SPAM [吃惊]这画外音，格外惊悚寒心！</a>
 </h2>
 <p>SPAM [吃惊]这画外音，格外惊悚寒心！<br><br>RE: 到底谁是神经病，谁说搞破坏[吃惊][怒] http://t.cn/RyLdK6D .</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3884159921540398" target="freeweibo-mirror">Repost</a>
-</h2>
-<p>Repost<br><br>RE: 【申请公开阅兵费用】阅兵已经结束，现在网上有很多谣言，说化了多少多少钱，有说化了215亿，不敢相信。谣言是阴暗的生物，公开的阳光一晒自然消失。为制止谣言流传影响党和政府的声誉，中国公民周永坤依法申请公开阅兵开支费用。</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
