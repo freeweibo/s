@@ -26,6 +26,12 @@
 <p>
 	<small> ============== 1小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3884368957192813" target="freeweibo-mirror">我还想去美国上学呢//@好大只菇菇:你还想干嘛？//@我是马…</a>
+</h2>
+<p>我还想去美国上学呢//@好大只菇菇:你还想干嘛？//@我是马甲马老师:你还想干嘛？<br><br>RE: #新浪看见#【“我想在北京上学”】今天开学，北京将有15万新生入学，其中非京籍6万人。在巨大的人口调控压力下，2014年起，非京藉儿童在京上学难度骤然提升，许多孩子被种种证明挡在北京校门外。甚至在部分区县，需要办齐20多种证明才能入学…http://t.cn/RyyIlaY<br><img src="http://ww2.sinaimg.cn/large/60718250jw1evtkth77zpj20qe0hl79b.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3884367937975915" target="freeweibo-mirror">文革法西斯</a>
 </h2>
 <p>文革法西斯</p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3884149640916048" target="freeweibo-mirror">九月二日游览张掖马蹄寺，创于十六国时代的石窟寺。历代多有修葺…</a>
 </h2>
 <p>九月二日游览张掖马蹄寺，创于十六国时代的石窟寺。历代多有修葺，史无前例的亿恶的十年浩劫时期，被恐怖分子彻底摧毁！[泪][泪][泪]<br><img src="http://ww2.sinaimg.cn/large/617fc8a9jw1evsxibyzxgj20dc0hsdip.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3884142238734680" target="freeweibo-mirror">SPAM 前面造成了工厂里外和E罩杯的恐慌 我收回我前面的话…</a>
-</h2>
-<p>SPAM 前面造成了工厂里外和E罩杯的恐慌 我收回我前面的话[拜拜]我是一刻也不能停吗[悲催][悲催][悲催]我想说我也有兴趣爱好的嘛[悲催][悲催][悲催]<br><img src="http://ww3.sinaimg.cn/large/5c5966afjw1evswil8lfrj21w01w0b2a.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
