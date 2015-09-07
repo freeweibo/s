@@ -60,7 +60,7 @@
 </h2>
 <p>SPAM 深夜福利！</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3884195346838748" target="freeweibo-mirror">中国股市动荡，汇率下跌，成本优势正在丧失，实体经济正面临被转…</a>
 </h2>
