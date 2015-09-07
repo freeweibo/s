@@ -36,7 +36,7 @@
 </h2>
 <p>SPAM 找到完整版 http://t.cn/RyUU6ou</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3884595654857187" target="freeweibo-mirror">没有对公民权利的认识，只有做高等奴隶的幻想 //@MarkD…</a>
 </h2>
@@ -120,13 +120,13 @@
 </h2>
 <p>//@游弋都市:转发微博<br><br>RE: 某部门举行的新闻发布会上，有记者问这次阅兵花了多少钱？发言人：这次阅兵非常成功。记者：到底花了多少钱？发言人：有30位国家元首出席。记者：到底花了多少钱啊？发言人：此次阅兵向世界显示中国有能力承担大国责任。记者急了：说清楚到底花了多少钱？发言人：全世界华人都为此次阅兵感到自豪.....</p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3884506492475412" target="freeweibo-mirror">SPAM //@京城--痞子:这评论…[衰] //@猫了个咪…</a>
 </h2>
 <p>SPAM //@京城--痞子:这评论…[衰] //@猫了个咪了个猫:卧槽，评论里都是上海人？//@竹羊羊:看评论吓死了。。。<br><br>RE: YP的崽子闹事了。@爱上海-彪彪哥 @爱上海-芒果叔 http://t.cn/zHEx8sV<br><img src="http://ww4.sinaimg.cn/large/9d38252agw1evtui8mmonj22io1w07wi.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3884504621519374" target="freeweibo-mirror">SPAM 发表了一篇转载博文《[转载]谷俊山为求免死疯狂咬人…</a>
 </h2>
