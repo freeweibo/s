@@ -108,7 +108,7 @@
 </h2>
 <p>还要至少再加一问：究竟是谁做出了这个鉴定？他们的鉴定资质是如何弄来的？</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3884483864282046" target="freeweibo-mirror">//@马丁路德纲: 回复@洋洋cynthia:只能说这傻逼是…</a>
 </h2>
