@@ -78,7 +78,7 @@
 </h2>
 <p>还要至少再加一问：究竟是谁做出了这个鉴定？他们的鉴定资质是如何弄来的？</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3884483864282046" target="freeweibo-mirror">//@马丁路德纲: 回复@洋洋cynthia:只能说这傻逼是…</a>
 </h2>
@@ -126,19 +126,19 @@
 </h2>
 <p>SPAM 我对中国未来持极度悲观的态度。白痴式的洗脑，灌输那么多的仇恨，狂热的民族煽动，远离世界民主和平主流，恶果已经逐渐体现在年轻一代身上。看抗日神剧、沉迷游戏、追逐金钱又被沉重压力屈服的青年到中年这一代，彻底玩完，暴力、冲击和民粹越来越多。精英们都会出国，剩下的玩火自焚，为国殉葬。</p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3884411517094852" target="freeweibo-mirror">SPAM 看不懂文章意图，大家都可以揣摩。http://t.…</a>
 </h2>
 <p>SPAM 看不懂文章意图，大家都可以揣摩。http://t.cn/Ryy9C6A</p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3884411403195909" target="freeweibo-mirror">SPAM 吸烟有害健康</a>
 </h2>
 <p>SPAM 吸烟有害健康<br><img src="http://ww2.sinaimg.cn/large/62f8add8jw1evtrljsa9kj20c80a13zr.jpg"></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p>
 <table>
     <tr>
