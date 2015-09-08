@@ -30,7 +30,7 @@
 </h2>
 <p>SPAM #史上最low告白#看到这样狂拽酷霸的广告版面，估计十周嫁出去的男嘉宾也就放心了，终于少了个竞争对手，可以安心约会了[微笑]<br><img src="http://ww2.sinaimg.cn/large/9e14cb4agw1evv2z4xvpzj216o1kwwrh.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3884757354343110" target="freeweibo-mirror">SPAM 今天，真的被环球转发的这条新闻给笑喷了。。。无价之…</a>
 </h2>
@@ -90,7 +90,13 @@
 </h2>
 <p>【 周恩来侄子周尔鎏：李鹏不是周总理养子】信息量很大。。。</p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3884641771077283" target="freeweibo-mirror">良心长文：墙是怎样一步步升级的</a>
+</h2>
+<p>良心长文：墙是怎样一步步升级的<br><img src="http://ww3.sinaimg.cn/large/60ff905bjw1evuhxpass8j20hsk2m7wk.jpg"></p>
+<p>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3884622842317030" target="freeweibo-mirror">SPAM 真假？好怕怕！</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3884596276202991" target="freeweibo-mirror">SPAM 遵命</a>
 </h2>
 <p>SPAM 遵命</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3884596146122266" target="freeweibo-mirror">//@i-want-it-that-way:第一次听说//@…</a>
-</h2>
-<p>//@i-want-it-that-way:第一次听说//@李翔196811: //@斯韦爵://@胤懿：//@范忠信: //@醒龙智: 爱国贼行动！ //@老关回来了: //@秦氏近黄昏: 转发微博<br><br>RE: 见图！试问：“中东路事件”的真相该不该告诉国人民等？！当年，武装保卫苏联、武装保卫斯大林，又究竟是为了哪般？！   #分享音乐##送别-杨沛宜# http://t.cn/RyUzeiG @尐玩崓<br><img src="http://ww4.sinaimg.cn/large/005OVhBigw1evu8lfq1xuj30c62tytnr.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
