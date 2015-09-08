@@ -60,7 +60,7 @@
 </h2>
 <p>鄭州維族人與警駁火逾10槍，傳雙方各1死。<br><img src="http://ww1.sinaimg.cn/large/53608990jw1evv2k0tz7uj20yi0wpaif.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3884810134929944" target="freeweibo-mirror">SPAM //@一只浣: 好文，看完不觉得长。存图。</a>
 </h2>
@@ -96,7 +96,7 @@
 </h2>
 <p>SPAM [汗]//@作家东海: [汗] //@急煞人也:哈哈，全中国人民都知道。 //@李不白的店:[害羞]//@杨子评: [害羞]<br><br>RE: 斯诺登爆料，邓的瘫儿子实为中国首富</p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3884735522488598" target="freeweibo-mirror">一直不关注司法局，直到近期上海司法局杨科长在网络上异军突起，…</a>
 </h2>
