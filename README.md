@@ -78,7 +78,7 @@
 </h2>
 <p>想起百年孤独里的情节<br><br>RE: 【天津大爆炸】上条微博已阵亡，再发一次。<br><img src="http://ww4.sinaimg.cn/large/006aZyiAjw1evuul6qj5vj30hsfn2b2a.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3884838412650815" target="freeweibo-mirror">SPAM 怕怕。 //@ConnieTse:郑州</a>
 </h2>
