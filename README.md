@@ -72,7 +72,7 @@
 </h2>
 <p>SPAM 今天，真的被环球转发的这条新闻给笑喷了。。。无价之宝啊！[笑哈哈]<br><img src="http://ww4.sinaimg.cn/large/006dfjLQgw1evuvasz449j30hs0s5q6e.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3884743718362914" target="freeweibo-mirror">SPAM [汗]//@作家东海: [汗] //@急煞人也:哈…</a>
 </h2>
