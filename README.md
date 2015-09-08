@@ -102,7 +102,7 @@
 </h2>
 <p>鄭州維族人與警駁火逾10槍，傳雙方各1死。<br><img src="http://ww1.sinaimg.cn/large/53608990jw1evv2k0tz7uj20yi0wpaif.jpg"></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3884810134929944" target="freeweibo-mirror">SPAM //@一只浣: 好文，看完不觉得长。存图。</a>
 </h2>
