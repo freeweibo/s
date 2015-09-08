@@ -96,7 +96,7 @@
 </h2>
 <p>SPAM 人类文明史上悲剧，在某种程度上也算是喜剧。制造这一悲喜剧的人将被钉在历史耻辱柱上 //@陆浑戎:墙史<br><br>RE: 良心长文：墙是怎样一步步升级的<br><img src="http://ww3.sinaimg.cn/large/60ff905bjw1evuhxpass8j20hsk2m7wk.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3884824575965673" target="freeweibo-mirror">吴祚来：通过革命,他们战胜了资产阶级。通过卖地,他们战胜了中…</a>
 </h2>
