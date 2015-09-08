@@ -60,7 +60,7 @@
 </h2>
 <p>【老师图解】第四弹：世界十大禁片之罗马帝国艳情史。本片的数百人的裸体和人山肉海的性交场面令人瞠目结舌，同时以乱伦，同性恋，口交，群交，酷刑，杀戮，被称为情色影片史上的史诗性巨作。<br><img src="http://ww1.sinaimg.cn/large/006aQd5Pjw1evv9321h0sj30c8adbe81.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3884858306641382" target="freeweibo-mirror">请问这个特效怎么弄？有这方面的软件吗？[笑cry][可怜][…</a>
 </h2>
@@ -120,13 +120,13 @@
 </h2>
 <p>SPAM //@一只浣: 好文，看完不觉得长。存图。<br><br>RE: 良心长文：墙是怎样一步步升级的<br><img src="http://ww3.sinaimg.cn/large/60ff905bjw1evuhxpass8j20hsk2m7wk.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3884810113882334" target="freeweibo-mirror">有确切消息表明，张凯律师正在被虐待，不给睡觉，只能喝水，或伴…</a>
 </h2>
 <p>有确切消息表明，张凯律师正在被虐待，不给睡觉，只能喝水，或伴有暴力手段，要他违心认罪。</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3884794914028050" target="freeweibo-mirror">一刷朋友圈看到这么劲爆的消息：昨晚在郑州淮河路发生枪战，有嫌…</a>
 </h2>
