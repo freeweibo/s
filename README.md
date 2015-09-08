@@ -24,7 +24,7 @@
 </h2>
 <p>SPAM 怕怕。 //@ConnieTse:郑州<br><br>RE: 鄭州維族人與警駁火逾10槍，傳雙方各1死。<br><img src="http://ww1.sinaimg.cn/large/53608990jw1evv2k0tz7uj20yi0wpaif.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3884837872104470" target="freeweibo-mirror">不让睡觉是大刑//@陈光武律师:转发微博</a>
 </h2>
@@ -42,7 +42,7 @@
 </h2>
 <p>SPAM #史上最low告白#看到这样狂拽酷霸的广告版面，估计十周嫁出去的男嘉宾也就放心了，终于少了个竞争对手，可以安心约会了[微笑]<br><img src="http://ww2.sinaimg.cn/large/9e14cb4agw1evv2z4xvpzj216o1kwwrh.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3884820293999837" target="freeweibo-mirror">鄭州維族人與警駁火逾10槍，傳雙方各1死。</a>
 </h2>
