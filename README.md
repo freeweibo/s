@@ -20,11 +20,29 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3884743718362914" target="freeweibo-mirror">SPAM [汗]//@作家东海: [汗] //@急煞人也:哈…</a>
+</h2>
+<p>SPAM [汗]//@作家东海: [汗] //@急煞人也:哈哈，全中国人民都知道。 //@李不白的店:[害羞]//@杨子评: [害羞]<br><br>RE: 斯诺登爆料，邓的瘫儿子实为中国首富</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3884729512361381" target="freeweibo-mirror">无语凝噎 //@李铁军://@reporter记者刘虎:很好…</a>
+</h2>
+<p>无语凝噎 //@李铁军://@reporter记者刘虎:很好的报道，有阅读与传播的价值。//@张洪忠: //@萧含:唉！如此对待受灾无辜居民，令人无语。只能说一句文革流行语：目前，天津与全国一样，形势一片大好，不是小好。//@北京厨子新号: 一万多户。销声匿迹。 //@谭人玮:转发微博<br><br>RE: 【天津大爆炸】快一个月了，转眼业主成了访民。端传媒的报道，朋友圈转疯后消失。<br><img src="http://ww1.sinaimg.cn/large/006aZyiAjw1evu7ste5guj30hsfn2b2a.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3884729390537595" target="freeweibo-mirror">哎！中国梦！//@张洪忠: //@萧含:唉！如此对待受灾无辜…</a>
+</h2>
+<p>哎！中国梦！//@张洪忠: //@萧含:唉！如此对待受灾无辜居民，令人无语。只能说一句文革流行语：目前，天津与全国一样，形势一片大好，不是小好。//@北京厨子新号: 一万多户。销声匿迹。 //@谭人玮:转发微博<br><br>RE: 【天津大爆炸】快一个月了，转眼业主成了访民。端传媒的报道，朋友圈转疯后消失。<br><img src="http://ww1.sinaimg.cn/large/006aZyiAjw1evu7ste5guj30hsfn2b2a.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3884704753438654" target="freeweibo-mirror">SPAM 现在传的图片版本漏了好多段，花点时间自己做了一个，…</a>
 </h2>
 <p>SPAM 现在传的图片版本漏了好多段，花点时间自己做了一个，大家右键保存。<br><img src="http://ww4.sinaimg.cn/large/64a6d38cjw1evupacsy09j20rinpu4qu.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3884698335664181" target="freeweibo-mirror">[吃惊]//@鲔鱼再来:[吃惊]//@阿拉要砸鍋:不是養子?…</a>
 </h2>
@@ -66,13 +84,13 @@
 </h2>
 <p>//@萧含:这才是真实的声音。惨啊！//@王鹏律师: 访民就在一瞬间，别说政治与你无关，别总在沉默和作恶，等与你有关了，再高的职位也保护不了你，也就是体制下被维稳的访民！</p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3884599568038683" target="freeweibo-mirror">这才是真实的声音。惨啊！//@王鹏律师: 访民就在一瞬间，别…</a>
 </h2>
 <p>这才是真实的声音。惨啊！//@王鹏律师: 访民就在一瞬间，别说政治与你无关，别总在沉默和作恶，等与你有关了，再高的职位也保护不了你，也就是体制下被维稳的访民！</p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3884596875960969" target="freeweibo-mirror">SPAM 找到完整版 http://t.cn/RyUU6ou</a>
 </h2>
@@ -108,35 +126,17 @@
 </h2>
 <p>[拳头][拳头][拳头][拳头][拳头][拳头][拳头][拳头][拳头][拳头][拳头][拳头][拳头]//@时不时变变: [心][心][心][心][心][心][心][心][心]<br><br>RE: 至高至贵之人！高来自呕心沥血弹尽竭虑“全心全意为人民服务！”贵缘于身处艰险对正义正气的誓死坚持“敢同恶鬼争高下，不向霸王让寸分！” 国有此人，甚幸，民有此人，甚福！万千颗红心为他搭建回家的路[心][心][心][心][心][心][心][心][心]<br><img src="http://ww4.sinaimg.cn/large/006bT1Kzjw1evtm1zi9fnj30gf0oddgu.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3884577032796591" target="freeweibo-mirror">//@lovely袁霞2012:相比之下，毛新宇真是个好人，…</a>
 </h2>
 <p>//@lovely袁霞2012:相比之下，毛新宇真是个好人，大家还老吐糟人家，真是很不应该。/@赵丽华: 回复@DieyPK:[吃惊][吃惊]//@DieyPK:许姓开国将军的孙子，江苏省军区司令员的儿子……</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3884573119046986" target="freeweibo-mirror">回复@东元马夫: 毛澤東同志曾說：歷史的經驗值得注意，要制定…</a>
 </h2>
 <p>回复@东元马夫: 毛澤東同志曾說：歷史的經驗值得注意，要制定反修防修的長期國策，要深挖洞、廣積糧、不稱霸。 //@东元马夫:历史证明，害人熊！谎言熊！趁火打劫熊！</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3884562326843293" target="freeweibo-mirror">//@守望地球村://@周难的微博: //@梦都夜话之风之子…</a>
-</h2>
-<p>//@守望地球村://@周难的微博: //@梦都夜话之风之子: //@张洪忠: 突发新闻 //@郑维:转发微博<br><br>RE: 【访民】这是9月3日阅兵当天上午十点多，发生在北京建国门南红绿灯路口的事件。据说这是上海访民胡某，看到军演开道摩托车车队及警车驶来时，其不顾生命危险，背着装满材料的包冲到马路中间，高呼“打倒腐败”等口号。 据@媒体人欧菲 http://t.cn/Ryyr27H .</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3884559542318933" target="freeweibo-mirror">见图！试问：“中东路事件”的真相该不该告诉国人民等？！当年，…</a>
-</h2>
-<p>见图！试问：“中东路事件”的真相该不该告诉国人民等？！当年，武装保卫苏联、武装保卫斯大林，又究竟是为了哪般？！   #分享音乐##送别-杨沛宜# http://t.cn/RyUzeiG @尐玩崓<br><img src="http://ww4.sinaimg.cn/large/005OVhBigw1evu8lfq1xuj30c62tytnr.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3884559386885409" target="freeweibo-mirror">//@郑维:转发微博</a>
-</h2>
-<p>//@郑维:转发微博<br><br>RE: 【访民】这是9月3日阅兵当天上午十点多，发生在北京建国门南红绿灯路口的事件。据说这是上海访民胡某，看到军演开道摩托车车队及警车驶来时，其不顾生命危险，背着装满材料的包冲到马路中间，高呼“打倒腐败”等口号。 据@媒体人欧菲 http://t.cn/Ryyr27H .</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
