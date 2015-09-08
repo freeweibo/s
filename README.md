@@ -44,11 +44,23 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3884820293999837" target="freeweibo-mirror">鄭州維族人與警駁火逾10槍，傳雙方各1死。</a>
+</h2>
+<p>鄭州維族人與警駁火逾10槍，傳雙方各1死。<br><img src="http://ww1.sinaimg.cn/large/53608990jw1evv2k0tz7uj20yi0wpaif.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3884810134929944" target="freeweibo-mirror">SPAM //@一只浣: 好文，看完不觉得长。存图。</a>
 </h2>
 <p>SPAM //@一只浣: 好文，看完不觉得长。存图。<br><br>RE: 良心长文：墙是怎样一步步升级的<br><img src="http://ww3.sinaimg.cn/large/60ff905bjw1evuhxpass8j20hsk2m7wk.jpg"></p>
 <p>
 	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3884794914028050" target="freeweibo-mirror">一刷朋友圈看到这么劲爆的消息：昨晚在郑州淮河路发生枪战，有嫌…</a>
+</h2>
+<p>一刷朋友圈看到这么劲爆的消息：昨晚在郑州淮河路发生枪战，有嫌烦逃跑，大家最近要注意安全啊，尽量减少外出[悲伤][悲伤]<br><img src="http://ww2.sinaimg.cn/large/005v6yFnjw1evuzmxsf96j307u0ag751.jpg"></p>
+<p>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3884757354343110" target="freeweibo-mirror">SPAM 今天，真的被环球转发的这条新闻给笑喷了。。。无价之…</a>
 </h2>
@@ -125,18 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3884604085292540" target="freeweibo-mirror">SPAM 人權，是人類超越一切的權力，包括其他附屬權屬如物權…</a>
 </h2>
 <p>SPAM 人權，是人類超越一切的權力，包括其他附屬權屬如物權。只要是人類，就不會以保護動物的名義踐踏人權。不是剛結束了反法西斯閱兵么？這就是當代法西斯翻版。//@holicchen: 以爱心的名义施暴。//@苏州郎心铁: 谁给他们的执法权？</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3884602634638785" target="freeweibo-mirror">SPAM 別做夢了，朱熹早就說過“孔孟之道未嘗一日行於天地間…</a>
-</h2>
-<p>SPAM 別做夢了，朱熹早就說過“孔孟之道未嘗一日行於天地間”，何況是今日？宋明理學家本著“修齊治平”的理想，前仆後繼奮鬥了數百年，其結果，並沒能把國治了把天下平了，倒是結結實實把三貞九烈觀念灌輸給各階層。今天的儒學若果復興，其結果也不外如此。而作為女性，當然要竭力阻止這種開倒車的企圖。</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3884599744480431" target="freeweibo-mirror">//@萧含:这才是真实的声音。惨啊！//@王鹏律师: 访民就…</a>
-</h2>
-<p>//@萧含:这才是真实的声音。惨啊！//@王鹏律师: 访民就在一瞬间，别说政治与你无关，别总在沉默和作恶，等与你有关了，再高的职位也保护不了你，也就是体制下被维稳的访民！</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
