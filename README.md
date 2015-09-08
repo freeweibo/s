@@ -66,7 +66,7 @@
 </h2>
 <p>鄭州維族人與警駁火逾10槍，傳雙方各1死。<br><img src="http://ww1.sinaimg.cn/large/53608990jw1evv2k0tz7uj20yi0wpaif.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3884810134929944" target="freeweibo-mirror">SPAM //@一只浣: 好文，看完不觉得长。存图。</a>
 </h2>
@@ -96,7 +96,7 @@
 </h2>
 <p>【天津大爆炸】上条微博已阵亡，再发一次。<br><img src="http://ww4.sinaimg.cn/large/006aZyiAjw1evuul6qj5vj30hsfn2b2a.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3884743718362914" target="freeweibo-mirror">SPAM [汗]//@作家东海: [汗] //@急煞人也:哈…</a>
 </h2>
