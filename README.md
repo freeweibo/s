@@ -42,7 +42,7 @@
 </h2>
 <p>P的//@锦绣汪铭: //@罗是我的姓:博主得了法西斯的真传， 崇尚血腥。 对一个宗教领袖如此羞辱， 流氓习气入骨。<br><br>RE: 请问这个特效怎么弄？有这方面的软件吗？[笑cry][可怜][xkl转圈]<br><img src="http://ww1.sinaimg.cn/large/63aa2d9cjw1evv6wan7hej20cs0h1jt3.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3884905475576877" target="freeweibo-mirror">//@囧囧走神: 转发微博</a>
 </h2>
