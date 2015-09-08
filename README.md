@@ -54,7 +54,7 @@
 </h2>
 <p>【老师图解】第四弹：世界十大禁片之罗马帝国艳情史。本片的数百人的裸体和人山肉海的性交场面令人瞠目结舌，同时以乱伦，同性恋，口交，群交，酷刑，杀戮，被称为情色影片史上的史诗性巨作。<br><img src="http://ww1.sinaimg.cn/large/006aQd5Pjw1evv9321h0sj30c8adbe81.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3884858306641382" target="freeweibo-mirror">请问这个特效怎么弄？有这方面的软件吗？[笑cry][可怜][…</a>
 </h2>
@@ -120,7 +120,7 @@
 </h2>
 <p>一刷朋友圈看到这么劲爆的消息：昨晚在郑州淮河路发生枪战，有嫌烦逃跑，大家最近要注意安全啊，尽量减少外出[悲伤][悲伤]<br><img src="http://ww2.sinaimg.cn/large/005v6yFnjw1evuzmxsf96j307u0ag751.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3884757354343110" target="freeweibo-mirror">SPAM 今天，真的被环球转发的这条新闻给笑喷了。。。无价之…</a>
 </h2>
