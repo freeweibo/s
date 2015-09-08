@@ -78,7 +78,7 @@
 </h2>
 <p>想起百年孤独里的情节<br><br>RE: 【天津大爆炸】上条微博已阵亡，再发一次。<br><img src="http://ww4.sinaimg.cn/large/006aZyiAjw1evuul6qj5vj30hsfn2b2a.jpg"></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3884838412650815" target="freeweibo-mirror">SPAM 怕怕。 //@ConnieTse:郑州</a>
 </h2>
@@ -102,7 +102,7 @@
 </h2>
 <p>吴祚来：通过革命,他们战胜了资产阶级。通过卖地,他们战胜了中产阶级。通过膨胀,他们战胜了无产阶级。通过金钱，他们战胜了道德。通过改历史，他们战胜历史。通过法院，他们战胜了法律。通过教育，他们战胜未来；通过过滤，他们战胜了知识分子，他们战胜互联网，他们战无不胜！微评：他们是谁？<br><img src="http://ww1.sinaimg.cn/large/eb8ff740gw1evv31rv1mjj20gz0ckdin.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3884823946563825" target="freeweibo-mirror">SPAM #史上最low告白#看到这样狂拽酷霸的广告版面，估…</a>
 </h2>
