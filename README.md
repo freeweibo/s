@@ -24,7 +24,7 @@
 </h2>
 <p>SPAM 现在传的图片版本漏了好多段，花点时间自己做了一个，大家右键保存。<br><img src="http://ww4.sinaimg.cn/large/64a6d38cjw1evupacsy09j20rinpu4qu.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3884698335664181" target="freeweibo-mirror">[吃惊]//@鲔鱼再来:[吃惊]//@阿拉要砸鍋:不是養子?…</a>
 </h2>
@@ -66,13 +66,13 @@
 </h2>
 <p>//@萧含:这才是真实的声音。惨啊！//@王鹏律师: 访民就在一瞬间，别说政治与你无关，别总在沉默和作恶，等与你有关了，再高的职位也保护不了你，也就是体制下被维稳的访民！</p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3884599568038683" target="freeweibo-mirror">这才是真实的声音。惨啊！//@王鹏律师: 访民就在一瞬间，别…</a>
 </h2>
 <p>这才是真实的声音。惨啊！//@王鹏律师: 访民就在一瞬间，别说政治与你无关，别总在沉默和作恶，等与你有关了，再高的职位也保护不了你，也就是体制下被维稳的访民！</p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3884596875960969" target="freeweibo-mirror">SPAM 找到完整版 http://t.cn/RyUU6ou</a>
 </h2>
