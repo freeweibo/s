@@ -66,7 +66,7 @@
 </h2>
 <p>请问这个特效怎么弄？有这方面的软件吗？[笑cry][可怜][xkl转圈]<br><img src="http://ww1.sinaimg.cn/large/63aa2d9cjw1evv6wan7hej20cs0h1jt3.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3884841869270548" target="freeweibo-mirror">//@蘑菇与雲: //@认准头像:[围观]//@大唐药王:目…</a>
 </h2>
