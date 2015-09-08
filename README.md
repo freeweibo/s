@@ -24,7 +24,7 @@
 </h2>
 <p>SPAM 怕怕。 //@ConnieTse:郑州<br><br>RE: 鄭州維族人與警駁火逾10槍，傳雙方各1死。<br><img src="http://ww1.sinaimg.cn/large/53608990jw1evv2k0tz7uj20yi0wpaif.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3884837872104470" target="freeweibo-mirror">不让睡觉是大刑//@陈光武律师:转发微博</a>
 </h2>
@@ -42,7 +42,7 @@
 </h2>
 <p>SPAM #史上最low告白#看到这样狂拽酷霸的广告版面，估计十周嫁出去的男嘉宾也就放心了，终于少了个竞争对手，可以安心约会了[微笑]<br><img src="http://ww2.sinaimg.cn/large/9e14cb4agw1evv2z4xvpzj216o1kwwrh.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3884820293999837" target="freeweibo-mirror">鄭州維族人與警駁火逾10槍，傳雙方各1死。</a>
 </h2>
@@ -53,6 +53,12 @@
 	<a href="https://freeweibo.com/weibo/3884810134929944" target="freeweibo-mirror">SPAM //@一只浣: 好文，看完不觉得长。存图。</a>
 </h2>
 <p>SPAM //@一只浣: 好文，看完不觉得长。存图。<br><br>RE: 良心长文：墙是怎样一步步升级的<br><img src="http://ww3.sinaimg.cn/large/60ff905bjw1evuhxpass8j20hsk2m7wk.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3884810113882334" target="freeweibo-mirror">有确切消息表明，张凯律师正在被虐待，不给睡觉，只能喝水，或伴…</a>
+</h2>
+<p>有确切消息表明，张凯律师正在被虐待，不给睡觉，只能喝水，或伴有暴力手段，要他违心认罪。</p>
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
@@ -120,7 +126,7 @@
 </h2>
 <p>【 周恩来侄子周尔鎏：李鹏不是周总理养子】信息量很大。。。</p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3884641771077283" target="freeweibo-mirror">良心长文：墙是怎样一步步升级的</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3884622842317030" target="freeweibo-mirror">SPAM 真假？好怕怕！</a>
 </h2>
 <p>SPAM 真假？好怕怕！<br><img src="http://ww4.sinaimg.cn/large/5f6520eajw1evufvmelbdj20hm0djgmv.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3884604085292540" target="freeweibo-mirror">SPAM 人權，是人類超越一切的權力，包括其他附屬權屬如物權…</a>
-</h2>
-<p>SPAM 人權，是人類超越一切的權力，包括其他附屬權屬如物權。只要是人類，就不會以保護動物的名義踐踏人權。不是剛結束了反法西斯閱兵么？這就是當代法西斯翻版。//@holicchen: 以爱心的名义施暴。//@苏州郎心铁: 谁给他们的执法权？</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
