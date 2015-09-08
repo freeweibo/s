@@ -38,6 +38,12 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3884728098928453" target="freeweibo-mirror">斯诺登爆料，邓的瘫儿子实为中国首富</a>
+</h2>
+<p>斯诺登爆料，邓的瘫儿子实为中国首富</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3884704753438654" target="freeweibo-mirror">SPAM 现在传的图片版本漏了好多段，花点时间自己做了一个，…</a>
 </h2>
 <p>SPAM 现在传的图片版本漏了好多段，花点时间自己做了一个，大家右键保存。<br><img src="http://ww4.sinaimg.cn/large/64a6d38cjw1evupacsy09j20rinpu4qu.jpg"></p>
@@ -72,7 +78,7 @@
 </h2>
 <p>SPAM 人權，是人類超越一切的權力，包括其他附屬權屬如物權。只要是人類，就不會以保護動物的名義踐踏人權。不是剛結束了反法西斯閱兵么？這就是當代法西斯翻版。//@holicchen: 以爱心的名义施暴。//@苏州郎心铁: 谁给他们的执法权？</p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3884602634638785" target="freeweibo-mirror">SPAM 別做夢了，朱熹早就說過“孔孟之道未嘗一日行於天地間…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3884577032796591" target="freeweibo-mirror">//@lovely袁霞2012:相比之下，毛新宇真是个好人，…</a>
 </h2>
 <p>//@lovely袁霞2012:相比之下，毛新宇真是个好人，大家还老吐糟人家，真是很不应该。/@赵丽华: 回复@DieyPK:[吃惊][吃惊]//@DieyPK:许姓开国将军的孙子，江苏省军区司令员的儿子……</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3884573119046986" target="freeweibo-mirror">回复@东元马夫: 毛澤東同志曾說：歷史的經驗值得注意，要制定…</a>
-</h2>
-<p>回复@东元马夫: 毛澤東同志曾說：歷史的經驗值得注意，要制定反修防修的長期國策，要深挖洞、廣積糧、不稱霸。 //@东元马夫:历史证明，害人熊！谎言熊！趁火打劫熊！</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
