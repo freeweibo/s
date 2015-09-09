@@ -30,7 +30,13 @@
 </h2>
 <p>SPAM 发 现 一 个 琥 珀 蜜 蜡 的徽 博 ！超 赞 哦~ ~</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3885313816122322" target="freeweibo-mirror">//@民间治堵人陈哲宏: //@邓相超://@猫在阳台:: …</a>
+</h2>
+<p>//@民间治堵人陈哲宏: //@邓相超://@猫在阳台:: //@作家东海:@阿勒泰公安在线</p>
+<p>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3885284783534723" target="freeweibo-mirror">SPAM 没有你还没有别人？你是他们哪位的私生子啊？/@望海…</a>
 </h2>
@@ -65,6 +71,12 @@
 	<a href="https://freeweibo.com/weibo/3885279003875776" target="freeweibo-mirror">SPAM 这段最不认同。与神之下众人平等矛盾。</a>
 </h2>
 <p>SPAM 这段最不认同。与神之下众人平等矛盾。<br><img src="http://ww3.sinaimg.cn/large/98ca7ddcjw1evwj7y1e94j20xc18g7op.jpg"></p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3885278655595937" target="freeweibo-mirror">@绽放己死-Tx 习仲勋在广东省委上讲话摘录：毛泽东的一生是…</a>
+</h2>
+<p>@绽放己死-Tx 习仲勋在广东省委上讲话摘录：毛泽东的一生是罪恶的一生，杀戮的一生，破坏的一生；它罪恶的触角几乎伸及整个亚洲，给人类和平乃至进步带来相当大的阻碍。我说这话不带半点偏见，是认真了解后的准确定位，不管你承不承认，我不会和你辩论，我希望你认真了解真实的党史以后我们再讨论。</p>
 <p>
 	<small> ============== 4小时前</small>
 </p><h2>
@@ -125,18 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3885235109927756" target="freeweibo-mirror">他是那个时代唯一可以说实话的人！//@三俗大哥: 转发微博</a>
 </h2>
 <p>他是那个时代唯一可以说实话的人！//@三俗大哥: 转发微博</p>
-<p>
-	<small> ============== 7小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3885234405439659" target="freeweibo-mirror">讨厌别人说真话，必有不良动机。毛泽东最可爱的地方是对日本人说…</a>
-</h2>
-<p>讨厌别人说真话，必有不良动机。毛泽东最可爱的地方是对日本人说了真话。</p>
-<p>
-	<small> ============== 7小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3885231667134420" target="freeweibo-mirror">//@智勇新号: //@乔玉东在深圳://@江南布衣陆书全:…</a>
-</h2>
-<p>//@智勇新号: //@乔玉东在深圳://@江南布衣陆书全:看似简单的事，对他们来说，难于登天。<br><br>RE: 中央正在研究，如何管好7常委，20多个政治局委员，200多个中央委员。-----很容易，只要新闻自由，民主选举，司法独立，足够了！如果是像对记者刘虎那样，网络举报几个副部级干部，就被以寻衅滋事抓去关了一年，还有谁敢监督更高级别的官员呢？！<br><img src="http://ww4.sinaimg.cn/large/4bdb1fa0jw1evwcdk42yxj20bu0hs0us.jpg"></p>
 <p>
 	<small> ============== 7小时前</small>
 </p>
