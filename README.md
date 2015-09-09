@@ -44,6 +44,12 @@
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3885279632975745" target="freeweibo-mirror">再次申明：在俺的地盘上歌颂法西斯腊肉的，滚远一点儿！否则一律…</a>
+</h2>
+<p>再次申明：在俺的地盘上歌颂法西斯腊肉的，滚远一点儿！否则一律拉黑。</p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3885279003875776" target="freeweibo-mirror">SPAM 这段最不认同。与神之下众人平等矛盾。</a>
 </h2>
 <p>SPAM 这段最不认同。与神之下众人平等矛盾。<br><img src="http://ww3.sinaimg.cn/large/98ca7ddcjw1evwj7y1e94j20xc18g7op.jpg"></p>
@@ -84,7 +90,7 @@
 </h2>
 <p>SPAM [阴险]//@金陵酒徒仓氏:[阴险]<br><br>RE: 讨厌别人说真话，必有不良动机。毛泽东最可爱的地方是对日本人说了真话。</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3885245193391923" target="freeweibo-mirror">对人民领袖的评价不能根据自己利益得失而妄加评论，过去一些利益…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3885221189140457" target="freeweibo-mirror">中央正在研究，如何管好7常委，20多个政治局委员，200多个…</a>
 </h2>
 <p>中央正在研究，如何管好7常委，20多个政治局委员，200多个中央委员。-----很容易，只要新闻自由，民主选举，司法独立，足够了！如果是像对记者刘虎那样，网络举报几个副部级干部，就被以寻衅滋事抓去关了一年，还有谁敢监督更高级别的官员呢？！<br><img src="http://ww4.sinaimg.cn/large/4bdb1fa0jw1evwcdk42yxj20bu0hs0us.jpg"></p>
-<p>
-	<small> ============== 7小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3885220736172468" target="freeweibo-mirror">SPAM //@阿里大公鸡: 连这都知道？[吃惊]</a>
-</h2>
-<p>SPAM //@阿里大公鸡: 连这都知道？[吃惊]<br><br>RE: 杨科长@侠骨柔情的杨华 叫嚣着对台湾动武，难道你不知道你侄女的男朋友就是国军的吗？要是真的动武了，你的立场又是滋瓷那一边呢？</p>
 <p>
 	<small> ============== 7小时前</small>
 </p>
