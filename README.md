@@ -42,7 +42,7 @@
 </h2>
 <p>【贺卫方揭发邓小平揭得够彻底】从贺贼的揭发微信来看，邓矮子之流当年设立教师节存心不良，他们拿天下所有的教师的德操做挡箭牌，干了一件低级下流，卑鄙无耻，龌龊不堪的恶事。足见邓某其人内心的肮脏，灵魂的丑陋。<br><img src="http://ww2.sinaimg.cn/large/9fa72927jw1evwegtv061j20c60c4gm7.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3885235109927756" target="freeweibo-mirror">他是那个时代唯一可以说实话的人！//@三俗大哥: 转发微博</a>
 </h2>
@@ -90,7 +90,7 @@
 </h2>
 <p>SPAM 比将军谁死得多，也是醉了。争功不嫌晚，但安倍会不会看笑话？【中共抗战牺牲将领不亚于国军】 ( 下载客户端: http://t.cn/zHDFkNR )http://t.cn/Ry4VlDM</p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3885190768146114" target="freeweibo-mirror">SPAM 一班靓女用手撸又用口含，唔洗10秒保证留鼻血。太刺…</a>
 </h2>
