@@ -54,7 +54,7 @@
 </h2>
 <p>9月9号是主席逝世39周年纪念日。翻开76年的画报，发现一堆参加追悼会领导的名字被用XXX取代，影像被从照片抠去。<br><img src="http://ww3.sinaimg.cn/large/539d77e6gw1evvd440rkej218g0xcdtr.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3884905475576877" target="freeweibo-mirror">//@囧囧走神: 转发微博</a>
 </h2>
