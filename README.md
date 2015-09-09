@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3885281419638801" target="freeweibo-mirror">SPAM 好有型，都要用一下 [鼓掌]</a>
+</h2>
+<p>SPAM 好有型，都要用一下 [鼓掌]</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3885279003875776" target="freeweibo-mirror">SPAM 这段最不认同。与神之下众人平等矛盾。</a>
 </h2>
 <p>SPAM 这段最不认同。与神之下众人平等矛盾。<br><img src="http://ww3.sinaimg.cn/large/98ca7ddcjw1evwj7y1e94j20xc18g7op.jpg"></p>
@@ -30,7 +36,7 @@
 </h2>
 <p>政府不能让每一个中国人体面地活着？ //@賀_大強:烂的要死</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3885276319610144" target="freeweibo-mirror">//@吉四六: 老同志身体真好。。。。五六年之后。就四世同堂…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3885178386350408" target="freeweibo-mirror">//@去V的刘建锋:只有具备这样伟大精神的人物，其躯体才配得…</a>
 </h2>
 <p>//@去V的刘建锋:只有具备这样伟大精神的人物，其躯体才配得上用来证明“不朽”。//@时艰:毛主席他老人家用绳命粉碎谣言，这是一种什么样的精神！<br><br>RE: 三十九年前的今天，伟大领袖毛主席他老人家以大无畏的革命勇气，用实际行动一举粉碎了“毛主席万岁”的谣言！享年八十三岁！<br><img src="http://ww1.sinaimg.cn/large/749a72b0gw1evvi0mckcgj20c00djjrv.jpg"></p>
-<p>
-	<small> ============== 8小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3885173702035822" target="freeweibo-mirror">SPAM  //@天主自会照料:地球人都知道[挤眼]</a>
-</h2>
-<p>SPAM  //@天主自会照料:地球人都知道[挤眼]<br><br>RE: 在这个时代，人人都得背起十字架，无论你愿不愿意，明不明白。<br><img src="http://ww2.sinaimg.cn/large/502310b2jw1evvzgrynvsj20b406smxl.jpg"></p>
 <p>
 	<small> ============== 8小时前</small>
 </p>
