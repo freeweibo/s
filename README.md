@@ -104,6 +104,12 @@
 <p>
 	<small> ============== 7小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3885108500913785" target="freeweibo-mirror">在这个时代，人人都得背起十字架，无论你愿不愿意，明不明白。</a>
+</h2>
+<p>在这个时代，人人都得背起十字架，无论你愿不愿意，明不明白。<br><img src="http://ww2.sinaimg.cn/large/502310b2jw1evvzgrynvsj20b406smxl.jpg"></p>
+<p>
+	<small> ============== 8小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3885101279042172" target="freeweibo-mirror">我来报告一下事情的最终结果！大跌眼镜！我误会了妹子们！那些妹…</a>
 </h2>
 <p>我来报告一下事情的最终结果！大跌眼镜！我误会了妹子们！那些妹子是故意在演戏就为了抓住王俊！王俊已于9月3号被抓！就我所知欠两个妹子的钱加起来大约4500，别的肯定还有！活久见！妹子好评啊！妹子来做朋友吧！<br><img src="http://ww1.sinaimg.cn/large/005H7UQhgw1evvyqfy090j30hi0dktbf.jpg"></p>
@@ -122,21 +128,15 @@
 <p>
 	<small> ============== 11小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3884956730720780" target="freeweibo-mirror">三十九年前的今天，伟大领袖毛主席他老人家以大无畏的革命勇气，…</a>
+</h2>
+<p>三十九年前的今天，伟大领袖毛主席他老人家以大无畏的革命勇气，用实际行动一举粉碎了“毛主席万岁”的谣言！享年八十三岁！<br><img src="http://ww1.sinaimg.cn/large/749a72b0gw1evvi0mckcgj20c00djjrv.jpg"></p>
+<p>
+	<small> ============== 1天前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3884955757379993" target="freeweibo-mirror">这货憋坏了吧…[偷笑] //@奔跑的LUCY若水:劳资不相信…</a>
 </h2>
 <p>这货憋坏了吧…[偷笑] //@奔跑的LUCY若水:劳资不相信哦，一帖就挂了，测测是不是这个惹的事。[怒]<br><br>RE: 吴祚来：通过革命,他们战胜了资产阶级。通过卖地,他们战胜了中产阶级。通过膨胀,他们战胜了无产阶级。通过金钱，他们战胜了道德。通过改历史，他们战胜历史。通过法院，他们战胜了法律。通过教育，他们战胜未来；通过过滤，他们战胜了知识分子，他们战胜互联网，他们战无不胜！微评：他们是谁？<br><img src="http://ww1.sinaimg.cn/large/eb8ff740gw1evv31rv1mjj20gz0ckdin.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3884950028121314" target="freeweibo-mirror">SPAM @不加V 老师，肉唐僧微博被封，求你微信关注，私聊…</a>
-</h2>
-<p>SPAM @不加V 老师，肉唐僧微博被封，求你微信关注，私聊。<br><img src="http://ww2.sinaimg.cn/large/5e1806b3gw1evvhfrzzzyj20by0byjs0.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3884920005263866" target="freeweibo-mirror">这一块碑或许可以惊醒国内一批有圣母病的人 【分享自中亚民族吧…</a>
-</h2>
-<p>这一块碑或许可以惊醒国内一批有圣母病的人 【分享自中亚民族吧】 中国要是接收了中东的邪教徒难民会有什么后果？要是不清楚，那就请看看这块碑吧！ 一张真正悲惨的照片，至少比叙利亚三岁童悲惨三倍！[图片]（分享自 @百度贴吧） http://t.cn/RyUrTjY<br><img src="http://ww2.sinaimg.cn/large/0066wAXTjw1evve0e7wz1j30go0ni0tc.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
