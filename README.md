@@ -60,7 +60,7 @@
 </h2>
 <p>//@囧囧走神: 转发微博</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3884904209398164" target="freeweibo-mirror">[弱]//@荣剑2001: 流氓不得好死！//@管汝佳_守住…</a>
 </h2>
