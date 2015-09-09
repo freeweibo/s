@@ -38,11 +38,29 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3885314583733091" target="freeweibo-mirror">SPAM //@民间治堵人陈哲宏: //@普法三十年-://…</a>
+</h2>
+<p>SPAM //@民间治堵人陈哲宏: //@普法三十年-://@三俗大哥: //@哥们风太大: 发朵小红花鼓励他一下//@爱卿平身免礼吧:似乎有点道理！[笑cry]</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3885313816122322" target="freeweibo-mirror">//@民间治堵人陈哲宏: //@邓相超://@猫在阳台:: …</a>
 </h2>
 <p>//@民间治堵人陈哲宏: //@邓相超://@猫在阳台:: //@作家东海:@阿勒泰公安在线</p>
 <p>
 	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3885308216698761" target="freeweibo-mirror">关键是毛粉要认真看看。 //@邓相超://@人生漫步111:…</a>
+</h2>
+<p>关键是毛粉要认真看看。 //@邓相超://@人生漫步111: //@轻烟黛: //@卿烟黛: //@堂诘诃德://@王祖哲: 看看这个，看看这个，不搞历史虚无主义。 @阿勒泰公安在线</p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3885304609989882" target="freeweibo-mirror">SPAM 谁说主席不伟大我跟他急！一个人的死就能换来几亿人吃…</a>
+</h2>
+<p>SPAM 谁说主席不伟大我跟他急！一个人的死就能换来几亿人吃饱饭！谁能做到？你死一个我看看？[哼]<br><img src="http://ww4.sinaimg.cn/large/006deztSjw1evwm6id4bkj30cs0hfabb.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3885284783534723" target="freeweibo-mirror">SPAM 没有你还没有别人？你是他们哪位的私生子啊？/@望海…</a>
 </h2>
@@ -78,13 +96,13 @@
 </h2>
 <p>SPAM 这段最不认同。与神之下众人平等矛盾。<br><img src="http://ww3.sinaimg.cn/large/98ca7ddcjw1evwj7y1e94j20xc18g7op.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3885278655595937" target="freeweibo-mirror">@绽放己死-Tx 习仲勋在广东省委上讲话摘录：毛泽东的一生是…</a>
 </h2>
 <p>@绽放己死-Tx 习仲勋在广东省委上讲话摘录：毛泽东的一生是罪恶的一生，杀戮的一生，破坏的一生；它罪恶的触角几乎伸及整个亚洲，给人类和平乃至进步带来相当大的阻碍。我说这话不带半点偏见，是认真了解后的准确定位，不管你承不承认，我不会和你辩论，我希望你认真了解真实的党史以后我们再讨论。</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3885277460109670" target="freeweibo-mirror">政府不能让每一个中国人体面地活着？ //@賀_大強:烂的要死</a>
 </h2>
@@ -121,24 +139,6 @@
 <p>SPAM [阴险]//@金陵酒徒仓氏:[阴险]<br><br>RE: 讨厌别人说真话，必有不良动机。毛泽东最可爱的地方是对日本人说了真话。</p>
 <p>
 	<small> ============== 6小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3885245193391923" target="freeweibo-mirror">对人民领袖的评价不能根据自己利益得失而妄加评论，过去一些利益…</a>
-</h2>
-<p>对人民领袖的评价不能根据自己利益得失而妄加评论，过去一些利益得失者，所谓平反后，对社会恶毒报复，无比贪婪，现在人们看清了一些真右派的丑恶嘴脸及对国家的危害。对领袖的态度，应该建立在领袖对他的人民和国家的态度及贡献上，不能以个人的私利而为。</p>
-<p>
-	<small> ============== 7小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3885238360821004" target="freeweibo-mirror">//@作家东海:当真你就寻衅了！ //@北京磬石:转发微博</a>
-</h2>
-<p>//@作家东海:当真你就寻衅了！ //@北京磬石:转发微博<br><br>RE: 中央正在研究，如何管好7常委，20多个政治局委员，200多个中央委员。-----很容易，只要新闻自由，民主选举，司法独立，足够了！如果是像对记者刘虎那样，网络举报几个副部级干部，就被以寻衅滋事抓去关了一年，还有谁敢监督更高级别的官员呢？！<br><img src="http://ww4.sinaimg.cn/large/4bdb1fa0jw1evwcdk42yxj20bu0hs0us.jpg"></p>
-<p>
-	<small> ============== 7小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3885237802826243" target="freeweibo-mirror">【贺卫方揭发邓小平揭得够彻底】从贺贼的揭发微信来看，邓矮子之…</a>
-</h2>
-<p>【贺卫方揭发邓小平揭得够彻底】从贺贼的揭发微信来看，邓矮子之流当年设立教师节存心不良，他们拿天下所有的教师的德操做挡箭牌，干了一件低级下流，卑鄙无耻，龌龊不堪的恶事。足见邓某其人内心的肮脏，灵魂的丑陋。<br><img src="http://ww2.sinaimg.cn/large/9fa72927jw1evwegtv061j20c60c4gm7.jpg"></p>
-<p>
-	<small> ============== 7小时前</small>
 </p>
 <table>
     <tr>
