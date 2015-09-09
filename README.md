@@ -42,7 +42,7 @@
 </h2>
 <p>SPAM 这叫没教养//@maggielau999：别指责香港人，他们只是在还能自由表达意见的时候做最后挣扎而已……<br><br>RE: #香港身边事#【顶风作案！中国香港球迷再嘘国歌恐遭重罚】9月8日在中国香港主场对阵卡塔尔的比赛前，中国香港的主场球迷又一次在奏《义勇军进行曲》时报以嘘声，这一行为很可能会导致香港赛区遭到处罚http://t.cn/Ry4ziCN<br><img src="http://ww4.sinaimg.cn/large/006163jYjw1evvz495850j30hs0afdhy.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3885192495778806" target="freeweibo-mirror">SPAM 比将军谁死得多，也是醉了。争功不嫌晚，但安倍会不会…</a>
 </h2>
