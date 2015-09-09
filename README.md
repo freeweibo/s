@@ -108,7 +108,7 @@
 </h2>
 <p>【今天是个好日子！】如果他1945年死，少战死600万；58年死，少饿死3000万。66年死，少斗死200万；76年死，中国人才吃饱了饭。结论：祸害死得越早贡献越大。<br><img src="http://ww2.sinaimg.cn/large/006bY7Qogw1evw2q5wk2sj30dt093752.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3885122292488278" target="freeweibo-mirror">信力建授权朱永平律师转述如下:     信对公司在运营管理过…</a>
 </h2>
