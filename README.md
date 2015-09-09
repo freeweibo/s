@@ -30,7 +30,7 @@
 </h2>
 <p>SPAM 这段最不认同。与神之下众人平等矛盾。<br><img src="http://ww3.sinaimg.cn/large/98ca7ddcjw1evwj7y1e94j20xc18g7op.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3885277460109670" target="freeweibo-mirror">政府不能让每一个中国人体面地活着？ //@賀_大強:烂的要死</a>
 </h2>
