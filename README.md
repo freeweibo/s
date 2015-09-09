@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3885061684362718" target="freeweibo-mirror">SPAM //@忆梅下西舟:</a>
+</h2>
+<p>SPAM //@忆梅下西舟:</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3884955757379993" target="freeweibo-mirror">这货憋坏了吧…[偷笑] //@奔跑的LUCY若水:劳资不相信…</a>
 </h2>
 <p>这货憋坏了吧…[偷笑] //@奔跑的LUCY若水:劳资不相信哦，一帖就挂了，测测是不是这个惹的事。[怒]<br><br>RE: 吴祚来：通过革命,他们战胜了资产阶级。通过卖地,他们战胜了中产阶级。通过膨胀,他们战胜了无产阶级。通过金钱，他们战胜了道德。通过改历史，他们战胜历史。通过法院，他们战胜了法律。通过教育，他们战胜未来；通过过滤，他们战胜了知识分子，他们战胜互联网，他们战无不胜！微评：他们是谁？<br><img src="http://ww1.sinaimg.cn/large/eb8ff740gw1evv31rv1mjj20gz0ckdin.jpg"></p>
@@ -41,6 +47,12 @@
 	<a href="https://freeweibo.com/weibo/3884916104383790" target="freeweibo-mirror">P的//@锦绣汪铭: //@罗是我的姓:博主得了法西斯的真传…</a>
 </h2>
 <p>P的//@锦绣汪铭: //@罗是我的姓:博主得了法西斯的真传， 崇尚血腥。 对一个宗教领袖如此羞辱， 流氓习气入骨。<br><br>RE: 请问这个特效怎么弄？有这方面的软件吗？[笑cry][可怜][xkl转圈]<br><img src="http://ww1.sinaimg.cn/large/63aa2d9cjw1evv6wan7hej20cs0h1jt3.jpg"></p>
+<p>
+	<small> ============== 11小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3884913872618256" target="freeweibo-mirror">9月9号是主席逝世39周年纪念日。翻开76年的画报，发现一堆…</a>
+</h2>
+<p>9月9号是主席逝世39周年纪念日。翻开76年的画报，发现一堆参加追悼会领导的名字被用XXX取代，影像被从照片抠去。<br><img src="http://ww3.sinaimg.cn/large/539d77e6gw1evvd440rkej218g0xcdtr.jpg"></p>
 <p>
 	<small> ============== 11小时前</small>
 </p><h2>
@@ -125,18 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3884810113882334" target="freeweibo-mirror">有确切消息表明，张凯律师正在被虐待，不给睡觉，只能喝水，或伴…</a>
 </h2>
 <p>有确切消息表明，张凯律师正在被虐待，不给睡觉，只能喝水，或伴有暴力手段，要他违心认罪。</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3884794914028050" target="freeweibo-mirror">一刷朋友圈看到这么劲爆的消息：昨晚在郑州淮河路发生枪战，有嫌…</a>
-</h2>
-<p>一刷朋友圈看到这么劲爆的消息：昨晚在郑州淮河路发生枪战，有嫌烦逃跑，大家最近要注意安全啊，尽量减少外出[悲伤][悲伤]<br><img src="http://ww2.sinaimg.cn/large/005v6yFnjw1evuzmxsf96j307u0ag751.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3884757354343110" target="freeweibo-mirror">SPAM 今天，真的被环球转发的这条新闻给笑喷了。。。无价之…</a>
-</h2>
-<p>SPAM 今天，真的被环球转发的这条新闻给笑喷了。。。无价之宝啊！[笑哈哈]<br><img src="http://ww4.sinaimg.cn/large/006dfjLQgw1evuvasz449j30hs0s5q6e.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
