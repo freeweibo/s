@@ -66,7 +66,7 @@
 </h2>
 <p>SPAM  //@天主自会照料:地球人都知道[挤眼]<br><br>RE: 在这个时代，人人都得背起十字架，无论你愿不愿意，明不明白。<br><img src="http://ww2.sinaimg.cn/large/502310b2jw1evvzgrynvsj20b406smxl.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3885169062312610" target="freeweibo-mirror">按此逻辑，公知收境外的钱，就相当于当年武装造反闹革命的苏维埃…</a>
 </h2>
