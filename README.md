@@ -30,13 +30,13 @@
 </h2>
 <p>SPAM  //@猫在阳台:死得真伟大！ //@普法三十年-: //@三俗大哥:  //@哥们风太大: 发朵小红花鼓励他一下 //@爱卿平身免礼吧:似乎有点道理！[笑cry]</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3885316458588539" target="freeweibo-mirror">SPAM 发 现 一 个 琥 珀 蜜 蜡 的徽 博 ！超 赞…</a>
 </h2>
 <p>SPAM 发 现 一 个 琥 珀 蜜 蜡 的徽 博 ！超 赞 哦~ ~</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3885314583733091" target="freeweibo-mirror">SPAM //@民间治堵人陈哲宏: //@普法三十年-://…</a>
 </h2>
