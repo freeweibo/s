@@ -72,13 +72,13 @@
 </h2>
 <p>中央正在研究，如何管好7常委，20多个政治局委员，200多个中央委员。-----很容易，只要新闻自由，民主选举，司法独立，足够了！如果是像对记者刘虎那样，网络举报几个副部级干部，就被以寻衅滋事抓去关了一年，还有谁敢监督更高级别的官员呢？！<br><img src="http://ww4.sinaimg.cn/large/4bdb1fa0jw1evwcdk42yxj20bu0hs0us.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3885220736172468" target="freeweibo-mirror">SPAM //@阿里大公鸡: 连这都知道？[吃惊]</a>
 </h2>
 <p>SPAM //@阿里大公鸡: 连这都知道？[吃惊]<br><br>RE: 杨科长@侠骨柔情的杨华 叫嚣着对台湾动武，难道你不知道你侄女的男朋友就是国军的吗？要是真的动武了，你的立场又是滋瓷那一边呢？</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3885197894259443" target="freeweibo-mirror">SPAM 这叫没教养//@maggielau999：别指责香…</a>
 </h2>
@@ -96,7 +96,7 @@
 </h2>
 <p>SPAM 一班靓女用手撸又用口含，唔洗10秒保证留鼻血。太刺激啦，可唔可以停一停回回气？睇内容请添加 微-信-号：gzhappy123，添加后发送数字：10，即可显示内容...<br><img src="http://ww4.sinaimg.cn/large/7a4b94ccgw1evw92vlr4aj20e80htjsq.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3885178386350408" target="freeweibo-mirror">//@去V的刘建锋:只有具备这样伟大精神的人物，其躯体才配得…</a>
 </h2>
@@ -132,7 +132,7 @@
 </h2>
 <p>//@卍心潮澎湃卐: //@羊羊咩-:75过后全城戒严，断网一年，街上的武警比行人都多，逢年过节警备还得加强。就这样每年也是大事小事不断，不过是你们不知道罢了。去年5月暴徒开车冲撞早市行人，从此我们没有早市没有夜市。商场门口重要街道都有武警，大小公众场所都得开包检查过安检机这日子我们都习惯了</p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3885159977614648" target="freeweibo-mirror">//@疯子张不抬杠: 难为他们一直假装很努力地摸石头。公布财…</a>
 </h2>
