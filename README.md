@@ -42,7 +42,7 @@
 </h2>
 <p>【今天是个好日子！】如果他1945年死，少战死600万；58年死，少饿死3000万。66年死，少斗死200万；76年死，中国人才吃饱了饭。结论：祸害死得越早贡献越大。<br><img src="http://ww2.sinaimg.cn/large/006bY7Qogw1evw2q5wk2sj30dt093752.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3885116806090626" target="freeweibo-mirror">//@刘迎新R: 转发微博</a>
 </h2>
