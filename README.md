@@ -48,7 +48,7 @@
 </h2>
 <p>//@张七公子HBU: //@蔡小心:耸耸肩，又一个藏独粉…挂起右边挂V的四川省优秀志愿者、四川省眉山市首届十大杰出青年志愿者、彭山爱心连线常务副会长兼秘书长～～好长…//@管汝佳_守住良知: 知道蔡小心是个流氓，没想到居然流氓到这个程度[怒]<br><br>RE: 请问这个特效怎么弄？有这方面的软件吗？[笑cry][可怜][xkl转圈]<br><img src="http://ww1.sinaimg.cn/large/63aa2d9cjw1evv6wan7hej20cs0h1jt3.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3884916104383790" target="freeweibo-mirror">P的//@锦绣汪铭: //@罗是我的姓:博主得了法西斯的真传…</a>
 </h2>
