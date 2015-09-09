@@ -24,7 +24,7 @@
 </h2>
 <p>拭目以待。 //@梦中de影子:月饼吃完了 也该实现诺言了</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3885316458588539" target="freeweibo-mirror">SPAM 发 现 一 个 琥 珀 蜜 蜡 的徽 博 ！超 赞…</a>
 </h2>
@@ -114,7 +114,7 @@
 </h2>
 <p>SPAM [阴险]//@金陵酒徒仓氏:[阴险]<br><br>RE: 讨厌别人说真话，必有不良动机。毛泽东最可爱的地方是对日本人说了真话。</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3885245193391923" target="freeweibo-mirror">对人民领袖的评价不能根据自己利益得失而妄加评论，过去一些利益…</a>
 </h2>
