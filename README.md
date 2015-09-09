@@ -24,7 +24,7 @@
 </h2>
 <p>拭目以待。 //@梦中de影子:月饼吃完了 也该实现诺言了</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3885317000202104" target="freeweibo-mirror">SPAM  //@猫在阳台:死得真伟大！ //@普法三十年-…</a>
 </h2>
@@ -66,7 +66,7 @@
 </h2>
 <p>SPAM 谁说主席不伟大我跟他急！一个人的死就能换来几亿人吃饱饭！谁能做到？你死一个我看看？[哼]<br><img src="http://ww4.sinaimg.cn/large/006deztSjw1evwm6id4bkj30cs0hfabb.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3885284783534723" target="freeweibo-mirror">SPAM 没有你还没有别人？你是他们哪位的私生子啊？/@望海…</a>
 </h2>
