@@ -26,6 +26,12 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3885162695388195" target="freeweibo-mirror">化解国内绿教，当以镇抚两手抓。镇不必多说，持续强硬军警反恐；…</a>
+</h2>
+<p>化解国内绿教，当以镇抚两手抓。镇不必多说，持续强硬军警反恐；抚是长期拉锯战，经济；教育；融合三板斧。越穷越不幸（或自认为不幸），受教育程度越低，生活中受歧视，越容易投奔宗教甚至为宗教牺牲。而生活好有希望，受教育程度高，不被社会歧视者，自然珍惜自己的性命，就算信宗教也不会盲从极端。</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3885159977614648" target="freeweibo-mirror">//@疯子张不抬杠: 难为他们一直假装很努力地摸石头。公布财…</a>
 </h2>
 <p>//@疯子张不抬杠: 难为他们一直假装很努力地摸石头。公布财产，开放报禁，连纪委都可以撤销。//@魚躍于淵Y4:连个具有权威意义的宪法都不存在，管毛线，都是笑话。你党玩儿自己的倒也罢，拉上所有人陪玩儿真是补药碧莲//@演员孙海英:干部犯错误，党管！党犯错误，谁管？</p>
@@ -98,6 +104,12 @@
 <p>
 	<small> ============== 1天前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3884920005263866" target="freeweibo-mirror">这一块碑或许可以惊醒国内一批有圣母病的人 【分享自中亚民族吧…</a>
+</h2>
+<p>这一块碑或许可以惊醒国内一批有圣母病的人 【分享自中亚民族吧】 中国要是接收了中东的邪教徒难民会有什么后果？要是不清楚，那就请看看这块碑吧！ 一张真正悲惨的照片，至少比叙利亚三岁童悲惨三倍！[图片]（分享自 @百度贴吧） http://t.cn/RyUrTjY<br><img src="http://ww2.sinaimg.cn/large/0066wAXTjw1evve0e7wz1j30go0ni0tc.jpg"></p>
+<p>
+	<small> ============== 1天前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3884919320970583" target="freeweibo-mirror">//@张七公子HBU: //@蔡小心:耸耸肩，又一个藏独粉……</a>
 </h2>
 <p>//@张七公子HBU: //@蔡小心:耸耸肩，又一个藏独粉…挂起右边挂V的四川省优秀志愿者、四川省眉山市首届十大杰出青年志愿者、彭山爱心连线常务副会长兼秘书长～～好长…//@管汝佳_守住良知: 知道蔡小心是个流氓，没想到居然流氓到这个程度[怒]<br><br>RE: 请问这个特效怎么弄？有这方面的软件吗？[笑cry][可怜][xkl转圈]<br><img src="http://ww1.sinaimg.cn/large/63aa2d9cjw1evv6wan7hej20cs0h1jt3.jpg"></p>
@@ -125,18 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3884904209398164" target="freeweibo-mirror">[弱]//@荣剑2001: 流氓不得好死！//@管汝佳_守住…</a>
 </h2>
 <p>[弱]//@荣剑2001: 流氓不得好死！//@管汝佳_守住良知:知道蔡小心是个流氓，没想到居然流氓到这个程度[怒]</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3884877340938881" target="freeweibo-mirror">【老师图解】第四弹：世界十大禁片之罗马帝国艳情史。本片的数百…</a>
-</h2>
-<p>【老师图解】第四弹：世界十大禁片之罗马帝国艳情史。本片的数百人的裸体和人山肉海的性交场面令人瞠目结舌，同时以乱伦，同性恋，口交，群交，酷刑，杀戮，被称为情色影片史上的史诗性巨作。<br><img src="http://ww1.sinaimg.cn/large/006aQd5Pjw1evv9321h0sj30c8adbe81.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3884858306641382" target="freeweibo-mirror">请问这个特效怎么弄？有这方面的软件吗？[笑cry][可怜][…</a>
-</h2>
-<p>请问这个特效怎么弄？有这方面的软件吗？[笑cry][可怜][xkl转圈]<br><img src="http://ww1.sinaimg.cn/large/63aa2d9cjw1evv6wan7hej20cs0h1jt3.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
