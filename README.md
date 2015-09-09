@@ -36,7 +36,7 @@
 </h2>
 <p>政府不能让每一个中国人体面地活着？ //@賀_大強:烂的要死</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3885276319610144" target="freeweibo-mirror">//@吉四六: 老同志身体真好。。。。五六年之后。就四世同堂…</a>
 </h2>
