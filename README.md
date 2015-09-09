@@ -30,7 +30,7 @@
 </h2>
 <p>SPAM [阴险]//@金陵酒徒仓氏:[阴险]<br><br>RE: 讨厌别人说真话，必有不良动机。毛泽东最可爱的地方是对日本人说了真话。</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3885238360821004" target="freeweibo-mirror">//@作家东海:当真你就寻衅了！ //@北京磬石:转发微博</a>
 </h2>
@@ -66,7 +66,7 @@
 </h2>
 <p>SPAM 这叫没教养//@maggielau999：别指责香港人，他们只是在还能自由表达意见的时候做最后挣扎而已……<br><br>RE: #香港身边事#【顶风作案！中国香港球迷再嘘国歌恐遭重罚】9月8日在中国香港主场对阵卡塔尔的比赛前，中国香港的主场球迷又一次在奏《义勇军进行曲》时报以嘘声，这一行为很可能会导致香港赛区遭到处罚http://t.cn/Ry4ziCN<br><img src="http://ww4.sinaimg.cn/large/006163jYjw1evvz495850j30hs0afdhy.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3885192495778806" target="freeweibo-mirror">SPAM 比将军谁死得多，也是醉了。争功不嫌晚，但安倍会不会…</a>
 </h2>
