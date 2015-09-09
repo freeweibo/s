@@ -90,13 +90,13 @@
 </h2>
 <p>他是那个时代唯一可以说实话的人！//@三俗大哥: 转发微博</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3885234405439659" target="freeweibo-mirror">讨厌别人说真话，必有不良动机。毛泽东最可爱的地方是对日本人说…</a>
 </h2>
 <p>讨厌别人说真话，必有不良动机。毛泽东最可爱的地方是对日本人说了真话。</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3885231667134420" target="freeweibo-mirror">//@智勇新号: //@乔玉东在深圳://@江南布衣陆书全:…</a>
 </h2>
