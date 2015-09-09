@@ -42,7 +42,7 @@
 </h2>
 <p>//@卍心潮澎湃卐: //@羊羊咩-:75过后全城戒严，断网一年，街上的武警比行人都多，逢年过节警备还得加强。就这样每年也是大事小事不断，不过是你们不知道罢了。去年5月暴徒开车冲撞早市行人，从此我们没有早市没有夜市。商场门口重要街道都有武警，大小公众场所都得开包检查过安检机这日子我们都习惯了</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3885159977614648" target="freeweibo-mirror">//@疯子张不抬杠: 难为他们一直假装很努力地摸石头。公布财…</a>
 </h2>
@@ -72,13 +72,13 @@
 </h2>
 <p>//@深夜一只猫: 庆祝他的死亡</p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3885115874740793" target="freeweibo-mirror">SPAM 一班靓女又用手又用口，唔洗10秒保证留鼻血。太刺激…</a>
 </h2>
 <p>SPAM 一班靓女又用手又用口，唔洗10秒保证留鼻血。太刺激啦，可唔可以停一停！睇内容请添加 微-信-号：gzhappy123，添加后发送数字：10，即可显示内容<br><img src="http://ww1.sinaimg.cn/large/983b0720gw1evw0i3xip9j208x08tq3s.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3885114604327228" target="freeweibo-mirror">侮辱罪？</a>
 </h2>
