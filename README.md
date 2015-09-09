@@ -24,7 +24,7 @@
 </h2>
 <p>//@刘迎新R: 转发微博</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3885115941774229" target="freeweibo-mirror">//@深夜一只猫: 庆祝他的死亡</a>
 </h2>
