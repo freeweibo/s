@@ -54,7 +54,7 @@
 </h2>
 <p>P的//@锦绣汪铭: //@罗是我的姓:博主得了法西斯的真传， 崇尚血腥。 对一个宗教领袖如此羞辱， 流氓习气入骨。<br><br>RE: 请问这个特效怎么弄？有这方面的软件吗？[笑cry][可怜][xkl转圈]<br><img src="http://ww1.sinaimg.cn/large/63aa2d9cjw1evv6wan7hej20cs0h1jt3.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3884913872618256" target="freeweibo-mirror">9月9号是主席逝世39周年纪念日。翻开76年的画报，发现一堆…</a>
 </h2>
