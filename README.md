@@ -24,7 +24,7 @@
 </h2>
 <p>SPAM 好有型，都要用一下 [鼓掌]</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3885279003875776" target="freeweibo-mirror">SPAM 这段最不认同。与神之下众人平等矛盾。</a>
 </h2>
@@ -114,13 +114,13 @@
 </h2>
 <p>中央正在研究，如何管好7常委，20多个政治局委员，200多个中央委员。-----很容易，只要新闻自由，民主选举，司法独立，足够了！如果是像对记者刘虎那样，网络举报几个副部级干部，就被以寻衅滋事抓去关了一年，还有谁敢监督更高级别的官员呢？！<br><img src="http://ww4.sinaimg.cn/large/4bdb1fa0jw1evwcdk42yxj20bu0hs0us.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3885220736172468" target="freeweibo-mirror">SPAM //@阿里大公鸡: 连这都知道？[吃惊]</a>
 </h2>
 <p>SPAM //@阿里大公鸡: 连这都知道？[吃惊]<br><br>RE: 杨科长@侠骨柔情的杨华 叫嚣着对台湾动武，难道你不知道你侄女的男朋友就是国军的吗？要是真的动武了，你的立场又是滋瓷那一边呢？</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3885197894259443" target="freeweibo-mirror">SPAM 这叫没教养//@maggielau999：别指责香…</a>
 </h2>
@@ -138,7 +138,7 @@
 </h2>
 <p>SPAM 一班靓女用手撸又用口含，唔洗10秒保证留鼻血。太刺激啦，可唔可以停一停回回气？睇内容请添加 微-信-号：gzhappy123，添加后发送数字：10，即可显示内容...<br><img src="http://ww4.sinaimg.cn/large/7a4b94ccgw1evw92vlr4aj20e80htjsq.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p>
 <table>
     <tr>
