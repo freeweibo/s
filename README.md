@@ -48,7 +48,7 @@
 </h2>
 <p>SPAM 比将军谁死得多，也是醉了。争功不嫌晚，但安倍会不会看笑话？【中共抗战牺牲将领不亚于国军】 ( 下载客户端: http://t.cn/zHDFkNR )http://t.cn/Ry4VlDM</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3885190768146114" target="freeweibo-mirror">SPAM 一班靓女用手撸又用口含，唔洗10秒保证留鼻血。太刺…</a>
 </h2>
@@ -102,7 +102,7 @@
 </h2>
 <p>//@晴天有雪如一: //@杜康111: //@圍脖難民-:腊肉这么黑怎么気？//@小四啊2: //@公民蚂蚁咬死大象: //@網易大和尚7: //@平凡的沙石:转发微博<br><br>RE: 【今天是个好日子！】如果他1945年死，少战死600万；58年死，少饿死3000万。66年死，少斗死200万；76年死，中国人才吃饱了饭。结论：祸害死得越早贡献越大。<br><img src="http://ww2.sinaimg.cn/large/006bY7Qogw1evw2q5wk2sj30dt093752.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3885135210709042" target="freeweibo-mirror">【今天是个好日子！】如果他1945年死，少战死600万；58…</a>
 </h2>
@@ -120,7 +120,7 @@
 </h2>
 <p>//@刘迎新R: 转发微博</p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3885115941774229" target="freeweibo-mirror">//@深夜一只猫: 庆祝他的死亡</a>
 </h2>
