@@ -30,7 +30,7 @@
 </h2>
 <p>//@深夜一只猫: 庆祝他的死亡</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3885114604327228" target="freeweibo-mirror">侮辱罪？</a>
 </h2>
