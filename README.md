@@ -20,11 +20,17 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3885235109927756" target="freeweibo-mirror">他是那个时代唯一可以说实话的人！//@三俗大哥: 转发微博</a>
+</h2>
+<p>他是那个时代唯一可以说实话的人！//@三俗大哥: 转发微博</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3885224892912927" target="freeweibo-mirror">SPAM //@淮海游子k:这皮扒的，连筋都扯动了。[哈哈]…</a>
 </h2>
 <p>SPAM //@淮海游子k:这皮扒的，连筋都扯动了。[哈哈]//@阿里大公鸡: 连这都知道？[吃惊]<br><br>RE: 杨科长@侠骨柔情的杨华 叫嚣着对台湾动武，难道你不知道你侄女的男朋友就是国军的吗？要是真的动武了，你的立场又是滋瓷那一边呢？</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3885220736172468" target="freeweibo-mirror">SPAM //@阿里大公鸡: 连这都知道？[吃惊]</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3885114604327228" target="freeweibo-mirror">侮辱罪？</a>
 </h2>
 <p>侮辱罪？</p>
-<p>
-	<small> ============== 9小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3885108500913785" target="freeweibo-mirror">在这个时代，人人都得背起十字架，无论你愿不愿意，明不明白。</a>
-</h2>
-<p>在这个时代，人人都得背起十字架，无论你愿不愿意，明不明白。<br><img src="http://ww2.sinaimg.cn/large/502310b2jw1evvzgrynvsj20b406smxl.jpg"></p>
 <p>
 	<small> ============== 9小时前</small>
 </p>
