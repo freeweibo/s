@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3885078905644083" target="freeweibo-mirror">堂堂省检官博如此没有法律和历史常识，真让人大跌眼镜！//@昆…</a>
+</h2>
+<p>堂堂省检官博如此没有法律和历史常识，真让人大跌眼镜！//@昆明律师龚列钢: 中国人是一个法律概念，即中国公民，这和对某某人有没有感情似乎没有啥关系吧，作为一个法律官博，这种对法律概念的认知，很难说是不是具备足够的法律专业知识！//@云南省人民检察院: 回复@M_KHADIJAH:一个对毛泽东没有感情的</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3885061684362718" target="freeweibo-mirror">SPAM //@忆梅下西舟:</a>
 </h2>
 <p>SPAM //@忆梅下西舟:</p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3884810134929944" target="freeweibo-mirror">SPAM //@一只浣: 好文，看完不觉得长。存图。</a>
 </h2>
 <p>SPAM //@一只浣: 好文，看完不觉得长。存图。<br><br>RE: 良心长文：墙是怎样一步步升级的<br><img src="http://ww3.sinaimg.cn/large/60ff905bjw1evuhxpass8j20hsk2m7wk.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3884810113882334" target="freeweibo-mirror">有确切消息表明，张凯律师正在被虐待，不给睡觉，只能喝水，或伴…</a>
-</h2>
-<p>有确切消息表明，张凯律师正在被虐待，不给睡觉，只能喝水，或伴有暴力手段，要他违心认罪。</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
