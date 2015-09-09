@@ -30,7 +30,7 @@
 </h2>
 <p>SPAM 这段最不认同。与神之下众人平等矛盾。<br><img src="http://ww3.sinaimg.cn/large/98ca7ddcjw1evwj7y1e94j20xc18g7op.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3885277460109670" target="freeweibo-mirror">政府不能让每一个中国人体面地活着？ //@賀_大強:烂的要死</a>
 </h2>
@@ -67,6 +67,12 @@
 <p>SPAM [阴险]//@金陵酒徒仓氏:[阴险]<br><br>RE: 讨厌别人说真话，必有不良动机。毛泽东最可爱的地方是对日本人说了真话。</p>
 <p>
 	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3885245193391923" target="freeweibo-mirror">对人民领袖的评价不能根据自己利益得失而妄加评论，过去一些利益…</a>
+</h2>
+<p>对人民领袖的评价不能根据自己利益得失而妄加评论，过去一些利益得失者，所谓平反后，对社会恶毒报复，无比贪婪，现在人们看清了一些真右派的丑恶嘴脸及对国家的危害。对领袖的态度，应该建立在领袖对他的人民和国家的态度及贡献上，不能以个人的私利而为。</p>
+<p>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3885238360821004" target="freeweibo-mirror">//@作家东海:当真你就寻衅了！ //@北京磬石:转发微博</a>
 </h2>
@@ -133,12 +139,6 @@
 <p>SPAM 一班靓女用手撸又用口含，唔洗10秒保证留鼻血。太刺激啦，可唔可以停一停回回气？睇内容请添加 微-信-号：gzhappy123，添加后发送数字：10，即可显示内容...<br><img src="http://ww4.sinaimg.cn/large/7a4b94ccgw1evw92vlr4aj20e80htjsq.jpg"></p>
 <p>
 	<small> ============== 7小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3885178386350408" target="freeweibo-mirror">//@去V的刘建锋:只有具备这样伟大精神的人物，其躯体才配得…</a>
-</h2>
-<p>//@去V的刘建锋:只有具备这样伟大精神的人物，其躯体才配得上用来证明“不朽”。//@时艰:毛主席他老人家用绳命粉碎谣言，这是一种什么样的精神！<br><br>RE: 三十九年前的今天，伟大领袖毛主席他老人家以大无畏的革命勇气，用实际行动一举粉碎了“毛主席万岁”的谣言！享年八十三岁！<br><img src="http://ww1.sinaimg.cn/large/749a72b0gw1evvi0mckcgj20c00djjrv.jpg"></p>
-<p>
-	<small> ============== 8小时前</small>
 </p>
 <table>
     <tr>
