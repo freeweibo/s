@@ -90,7 +90,7 @@
 </h2>
 <p>SPAM //@学儒修礼:虽然他可恨，但这样做也反人性，尤其不该教坏孩子。 //@朱明江01://@zhangzhaoyang2015:太恶心了！这样吃得下？<br><br>RE: 今天定制这样的蛋糕庆祝还来得及么？<br><img src="http://ww4.sinaimg.cn/large/54298462gw1evwdfx8dp0g20ak089nph.gif"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3885529126476323" target="freeweibo-mirror">SPAM 三尺讲台，教书育人更要关爱自己；满园桃李，无私奉献…</a>
 </h2>
