@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3885491571374552" target="freeweibo-mirror">[吃惊]//@汪海林: [吃惊]//@湿吻的鱼: @汪海林 …</a>
+</h2>
+<p>[吃惊]//@汪海林: [吃惊]//@湿吻的鱼: @汪海林 自由顾问是干啥的？ //@德国的农村妇女:自由顾问[挖鼻]，你说他去叙利亚伊拉克干嘛去了呢？顾问那里人民自由？ //@梅新育:旁观。//@郑维:这人是怎么被抓的？</p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3885469471627830" target="freeweibo-mirror">SPAM #华硕4K大屏#aliens难道不是我们在电影里看…</a>
 </h2>
 <p>SPAM #华硕4K大屏#aliens难道不是我们在电影里看到的那些样子吗？有点儿懵了......<br><img src="http://ww4.sinaimg.cn/large/6e36b546gw1evx5440kydj20u01hck43.jpg"></p>
@@ -31,6 +37,12 @@
 <p>SPAM 感同身受，促人深思，若想成熟，广索真知。 @作家陈岚 的文章《陈岚：一个资深毛粉、爱国青年的自白》说得太好了，转评赞是浮云，必须打赏！#微博打赏#http://t.cn/Ry4xrE1</p>
 <p>
 	<small> ============== 8小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3885406355557748" target="freeweibo-mirror">恐怖组织ISIS的杂志 Dabiq 宣布公开拍卖挪威和中国人…</a>
+</h2>
+<p>恐怖组织ISIS的杂志 Dabiq 宣布公开拍卖挪威和中国人质，中国人质名字为樊京辉（Fan Jinghui），列出了他详细的北京住址。挪威政府已经承认有挪威人被抓。<br><img src="http://ww3.sinaimg.cn/large/61b0f914gw1evwxu7ms6xj20ay0ey0te.jpg"></p>
+<p>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3885319038590448" target="freeweibo-mirror">拭目以待。 //@梦中de影子:月饼吃完了 也该实现诺言了</a>
 </h2>
@@ -125,18 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3885277460109670" target="freeweibo-mirror">政府不能让每一个中国人体面地活着？ //@賀_大強:烂的要死</a>
 </h2>
 <p>政府不能让每一个中国人体面地活着？ //@賀_大強:烂的要死</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3885276319610144" target="freeweibo-mirror">//@吉四六: 老同志身体真好。。。。五六年之后。就四世同堂…</a>
-</h2>
-<p>//@吉四六: 老同志身体真好。。。。五六年之后。就四世同堂啦。</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3885276152193258" target="freeweibo-mirror">我也同意贺卫方，谁说死亡总是坏事//@王祖哲: 博主【@子午…</a>
-</h2>
-<p>我也同意贺卫方，谁说死亡总是坏事//@王祖哲: 博主【@子午侠士 】你也记着我——我同意贺卫方。大家同意，报个名，增加博主的记忆负担。[嘻嘻][嘻嘻]</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
