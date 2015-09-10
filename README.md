@@ -24,7 +24,7 @@
 </h2>
 <p>SPAM #华硕4K大屏#aliens难道不是我们在电影里看到的那些样子吗？有点儿懵了......<br><img src="http://ww4.sinaimg.cn/large/6e36b546gw1evx5440kydj20u01hck43.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3885418589722260" target="freeweibo-mirror">SPAM 感同身受，促人深思，若想成熟，广索真知。 @作家陈…</a>
 </h2>
