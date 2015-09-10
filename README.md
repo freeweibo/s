@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3885469471627830" target="freeweibo-mirror">SPAM #华硕4K大屏#aliens难道不是我们在电影里看…</a>
+</h2>
+<p>SPAM #华硕4K大屏#aliens难道不是我们在电影里看到的那些样子吗？有点儿懵了......<br><img src="http://ww4.sinaimg.cn/large/6e36b546gw1evx5440kydj20u01hck43.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3885418589722260" target="freeweibo-mirror">SPAM 感同身受，促人深思，若想成熟，广索真知。 @作家陈…</a>
 </h2>
 <p>SPAM 感同身受，促人深思，若想成熟，广索真知。 @作家陈岚 的文章《陈岚：一个资深毛粉、爱国青年的自白》说得太好了，转评赞是浮云，必须打赏！#微博打赏#http://t.cn/Ry4xrE1</p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3885276152193258" target="freeweibo-mirror">我也同意贺卫方，谁说死亡总是坏事//@王祖哲: 博主【@子午…</a>
 </h2>
 <p>我也同意贺卫方，谁说死亡总是坏事//@王祖哲: 博主【@子午侠士 】你也记着我——我同意贺卫方。大家同意，报个名，增加博主的记忆负担。[嘻嘻][嘻嘻]</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3885274876638922" target="freeweibo-mirror">【那年】今天是我从法兰西回北京工作的第24个年头。1991年…</a>
-</h2>
-<p>【那年】今天是我从法兰西回北京工作的第24个年头。1991年我的想法是：之前两年在柏林和北京发生的事件，前共产主义国家有两种发展模式：俄罗斯是先政治改革再经济改革，局面混乱；而中国是先经济改革再政治改革，局势可控，中国模式应该更受世界企业家欢迎。现在说“改革进入了深水区”，水多深啊？<br><img src="http://ww4.sinaimg.cn/large/9ddb72ebjw1evwirjyj3pj20fv0hsgn6.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
