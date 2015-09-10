@@ -66,7 +66,7 @@
 </h2>
 <p>恐怖组织ISIS的杂志 Dabiq 宣布公开拍卖挪威和中国人质，中国人质名字为樊京辉（Fan Jinghui），列出了他详细的北京住址。挪威政府已经承认有挪威人被抓。<br><img src="http://ww3.sinaimg.cn/large/61b0f914gw1evwxu7ms6xj20ay0ey0te.jpg"></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3885319038590448" target="freeweibo-mirror">拭目以待。 //@梦中de影子:月饼吃完了 也该实现诺言了</a>
 </h2>
