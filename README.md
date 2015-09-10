@@ -20,6 +20,18 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3885534198080105" target="freeweibo-mirror">SPAM //@学儒修礼:虽然他可恨，但这样做也反人性，尤其…</a>
+</h2>
+<p>SPAM //@学儒修礼:虽然他可恨，但这样做也反人性，尤其不该教坏孩子。 //@朱明江01://@zhangzhaoyang2015:太恶心了！这样吃得下？<br><br>RE: 今天定制这样的蛋糕庆祝还来得及么？<br><img src="http://ww4.sinaimg.cn/large/54298462gw1evwdfx8dp0g20ak089nph.gif"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3885529126476323" target="freeweibo-mirror">SPAM 三尺讲台，教书育人更要关爱自己；满园桃李，无私奉献…</a>
+</h2>
+<p>SPAM 三尺讲台，教书育人更要关爱自己；满园桃李，无私奉献也不能透支身体！今天教师节，你知道吗？教师群体已成为“职业病”高发区！健康比感恩更实际！老师们，让我们说声：关爱健康，从我做起！——一张长图告诉你所不了解的老师。@百度医生<br><img src="http://ww3.sinaimg.cn/large/87bf19f7jw1evxby1n1mrj21609u87wj.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3885491571374552" target="freeweibo-mirror">[吃惊]//@汪海林: [吃惊]//@湿吻的鱼: @汪海林 …</a>
 </h2>
 <p>[吃惊]//@汪海林: [吃惊]//@湿吻的鱼: @汪海林 自由顾问是干啥的？ //@德国的农村妇女:自由顾问[挖鼻]，你说他去叙利亚伊拉克干嘛去了呢？顾问那里人民自由？ //@梅新育:旁观。//@郑维:这人是怎么被抓的？</p>
@@ -42,7 +54,7 @@
 </h2>
 <p>恐怖组织ISIS的杂志 Dabiq 宣布公开拍卖挪威和中国人质，中国人质名字为樊京辉（Fan Jinghui），列出了他详细的北京住址。挪威政府已经承认有挪威人被抓。<br><img src="http://ww3.sinaimg.cn/large/61b0f914gw1evwxu7ms6xj20ay0ey0te.jpg"></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3885319038590448" target="freeweibo-mirror">拭目以待。 //@梦中de影子:月饼吃完了 也该实现诺言了</a>
 </h2>
@@ -125,18 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3885279003875776" target="freeweibo-mirror">SPAM 这段最不认同。与神之下众人平等矛盾。</a>
 </h2>
 <p>SPAM 这段最不认同。与神之下众人平等矛盾。<br><img src="http://ww3.sinaimg.cn/large/98ca7ddcjw1evwj7y1e94j20xc18g7op.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3885278655595937" target="freeweibo-mirror">@绽放己死-Tx 习仲勋在广东省委上讲话摘录：毛泽东的一生是…</a>
-</h2>
-<p>@绽放己死-Tx 习仲勋在广东省委上讲话摘录：毛泽东的一生是罪恶的一生，杀戮的一生，破坏的一生；它罪恶的触角几乎伸及整个亚洲，给人类和平乃至进步带来相当大的阻碍。我说这话不带半点偏见，是认真了解后的准确定位，不管你承不承认，我不会和你辩论，我希望你认真了解真实的党史以后我们再讨论。</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3885277460109670" target="freeweibo-mirror">政府不能让每一个中国人体面地活着？ //@賀_大強:烂的要死</a>
-</h2>
-<p>政府不能让每一个中国人体面地活着？ //@賀_大強:烂的要死</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
