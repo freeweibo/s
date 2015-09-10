@@ -84,7 +84,7 @@
 </h2>
 <p>【检方今日对刘虎案作出不起诉决定】检察院认为,公安移送审查起诉的刘虎涉嫌犯罪事实和证据,不符合提起公诉的条件，故决定不予起诉。因举报多位副部级高官涉嫌腐败,记者刘虎被以寻衅滋事立案追诉,并被以寻衅滋事、诽谤等多项罪名移送审查起诉,被关押近一年。下一步,将继续代理刘虎申请国家赔偿。<br><img src="http://ww3.sinaimg.cn/large/4bdb1fa0jw1evxhh1kehrj20jz0zkjte.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3885534198080105" target="freeweibo-mirror">SPAM //@学儒修礼:虽然他可恨，但这样做也反人性，尤其…</a>
 </h2>
