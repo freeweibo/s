@@ -24,7 +24,7 @@
 </h2>
 <p>SPAM //@学儒修礼:虽然他可恨，但这样做也反人性，尤其不该教坏孩子。 //@朱明江01://@zhangzhaoyang2015:太恶心了！这样吃得下？<br><br>RE: 今天定制这样的蛋糕庆祝还来得及么？<br><img src="http://ww4.sinaimg.cn/large/54298462gw1evwdfx8dp0g20ak089nph.gif"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3885529126476323" target="freeweibo-mirror">SPAM 三尺讲台，教书育人更要关爱自己；满园桃李，无私奉献…</a>
 </h2>
@@ -66,7 +66,7 @@
 </h2>
 <p>恐怖组织ISIS的杂志 Dabiq 宣布公开拍卖挪威和中国人质，中国人质名字为樊京辉（Fan Jinghui），列出了他详细的北京住址。挪威政府已经承认有挪威人被抓。<br><img src="http://ww3.sinaimg.cn/large/61b0f914gw1evwxu7ms6xj20ay0ey0te.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3885319038590448" target="freeweibo-mirror">拭目以待。 //@梦中de影子:月饼吃完了 也该实现诺言了</a>
 </h2>
