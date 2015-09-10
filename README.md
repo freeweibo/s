@@ -72,7 +72,7 @@
 </h2>
 <p>SPAM 谁说主席不伟大我跟他急！一个人的死就能换来几亿人吃饱饭！谁能做到？你死一个我看看？[哼]<br><img src="http://ww4.sinaimg.cn/large/006deztSjw1evwm6id4bkj30cs0hfabb.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3885284783534723" target="freeweibo-mirror">SPAM 没有你还没有别人？你是他们哪位的私生子啊？/@望海…</a>
 </h2>
