@@ -30,7 +30,7 @@
 </h2>
 <p>拭目以待。 //@梦中de影子:月饼吃完了 也该实现诺言了</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3885317000202104" target="freeweibo-mirror">SPAM  //@猫在阳台:死得真伟大！ //@普法三十年-…</a>
 </h2>
