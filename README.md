@@ -42,7 +42,7 @@
 </h2>
 <p>分享视频 http://t.cn/RyG5nlO .</p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3886000423802574" target="freeweibo-mirror">把地球管起来。嗯哼。</a>
 </h2>
