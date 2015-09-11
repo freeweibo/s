@@ -30,7 +30,7 @@
 </h2>
 <p>SPAM 发表了一篇转载博文《[转载]“制度性干旱”---论中国北方恶性水源危机的社会成因》http://t.cn/RybsgYx<br><img src="http://ww2.sinaimg.cn/large/5408ee85jw1evyjbjqatqj20hy0betbs.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3885899857549976" target="freeweibo-mirror">//@王周生:毛对现领导来说，不仅因为他领导建立了这个政权，…</a>
 </h2>
