@@ -30,7 +30,7 @@
 </h2>
 <p>分享视频 http://t.cn/RyG5nlO .</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3886000423802574" target="freeweibo-mirror">把地球管起来。嗯哼。</a>
 </h2>
@@ -102,7 +102,7 @@
 </h2>
 <p>//@李不白的店: //@剑哥传奇: 转发微博</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3885872183332872" target="freeweibo-mirror">//@江荣生: 恶魔一个，怎么洗也没用！</a>
 </h2>
