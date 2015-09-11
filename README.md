@@ -60,7 +60,7 @@
 </h2>
 <p>《毛泽东遗体将于2016年葬于故土韶山》 毛泽东遗体将于2016年葬于故土韶山天安门再也瞻仰不到毛主席了，毛泽东遗体将于2016年将葬于故土韶山。毛泽东主席回韶山，安归故土，那是不需要怀疑的。不管什么人，什么力量，都阻止不了老人家的“安归”。http://t.cn/RyGPPXh<br><img src="http://ww2.sinaimg.cn/large/4c98fa42jw1evyk3qy89rj20ax064aap.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3885906609618548" target="freeweibo-mirror">SPAM 发表了一篇转载博文《[转载]“制度性干旱”---论…</a>
 </h2>
