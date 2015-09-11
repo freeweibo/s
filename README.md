@@ -26,11 +26,17 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3886040714243735" target="freeweibo-mirror">这个说法和毛泽东的说法不一致了。毛泽东的说法是“枪杆子里面出…</a>
+</h2>
+<p>这个说法和毛泽东的说法不一致了。毛泽东的说法是“枪杆子里面出政权”，所以中国共产党的合法性来源于——枪。</p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3886027032736480" target="freeweibo-mirror">//@陈茂来-:@王爱忠2: 一个政权的统治的合法性源自于历…</a>
 </h2>
 <p>//@陈茂来-:@王爱忠2: 一个政权的统治的合法性源自于历史，或者说一个政权的统治是历史的选择这类的论调本质上都属于世袭论的范畴。一个政权在60多年前赢得上台执政就算客观上是当时人民的选择的结果，那么他的合法性也只限于当时而不能把祖辈的政治选择替代后辈的政治选择这种合法性显然是不能继承的</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3886002923880866" target="freeweibo-mirror">分享视频 http://t.cn/RyG5nlO .</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3885865212069911" target="freeweibo-mirror">章立凡:在毛的问题上，中共领导层处于一种非常纠结的状态。一方…</a>
 </h2>
 <p>章立凡:在毛的问题上，中共领导层处于一种非常纠结的状态。一方面，毛泽东实际上是中共的一个负资产。但这个负资产他们又不能丢弃。因为是毛泽东带领中共建立了这个政权。如果否定了毛，他们担心自己统治的合法性将会受到严重影响。在这种情况下，他们不敢舍弃毛。 http://t.cn/RybB1V6<br><img src="http://ww4.sinaimg.cn/large/df3004a0jw1evyed0onbrj20go0azgmp.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3885858425907687" target="freeweibo-mirror">//@新闻就是新闻://@李方平律师: 转发微博</a>
-</h2>
-<p>//@新闻就是新闻://@李方平律师: 转发微博<br><br>RE: @于建嵘：前不久，我拟号集研究力量来全面梳理中共“合法性”的问题。吓坏了有关部门。他们采取一切手段进行阻挠，甚至动用国保与我交涉。其中的理由是，根本不存在共产党合法性这个问题，合不合法，我们说了算。现在王歧山终于正视这个问题了。有些意思。<br><img src="http://ww1.sinaimg.cn/large/4231a8dbgw1evy8cisx83j20un0judk1.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
