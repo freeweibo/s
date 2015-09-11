@@ -30,7 +30,7 @@
 </h2>
 <p>古代确实这样！<br><br>RE: 皇上打了一只老虎。太监说：“陛下神功盖世！”皇帝说：“赏！”官员说：“皇帝英明无比！”皇上说：“升！主流媒体说：“皇上为民做主！”皇上说：“加薪！”专家说：“反映了皇上坚决反对腐败的决心！”皇上说：“奖！”有一个P民说：“皇上，是不是检查一下产生老虎的原因？”皇上说：“抓起来！</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3885906609618548" target="freeweibo-mirror">SPAM 发表了一篇转载博文《[转载]“制度性干旱”---论…</a>
 </h2>
@@ -78,19 +78,19 @@
 </h2>
 <p>//@江荣生: 恶魔一个，怎么洗也没用！</p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3885872095019369" target="freeweibo-mirror">秦始皇也是人民的选择，统一了中国嘛。</a>
 </h2>
 <p>秦始皇也是人民的选择，统一了中国嘛。</p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3885871025966979" target="freeweibo-mirror">恶魔一个，怎么洗也没用！</a>
 </h2>
 <p>恶魔一个，怎么洗也没用！</p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3885865212069911" target="freeweibo-mirror">章立凡:在毛的问题上，中共领导层处于一种非常纠结的状态。一方…</a>
 </h2>
