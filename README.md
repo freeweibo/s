@@ -78,7 +78,7 @@
 </h2>
 <p>恶魔一个，怎么洗也没用！</p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3885865212069911" target="freeweibo-mirror">章立凡:在毛的问题上，中共领导层处于一种非常纠结的状态。一方…</a>
 </h2>
