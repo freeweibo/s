@@ -20,6 +20,18 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3885810556315880" target="freeweibo-mirror">孙长老又冒傻气了，国家对文革的态度是全面否定，怎么会因为反文…</a>
+</h2>
+<p>孙长老又冒傻气了，国家对文革的态度是全面否定，怎么会因为反文革拒绝播？//@赫连勃勃大王:老孙，大形势变了，像你从前又信耶稣又骂党国又能拿大钱的时代，渐行渐远。//@演员孙海英:当初“激情燃烧的岁月”也是被央视拒绝（因为石光荣反对文革）推到地方台的。后来火了才拿到一套和八套重播不下十遍。</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3885797859687004" target="freeweibo-mirror">SPAM @演员孙海英 老师，因为你不会在生活中戴着面具歌功…</a>
+</h2>
+<p>SPAM @演员孙海英 老师，因为你不会在生活中戴着面具歌功颂德，因为你不会在生活中粉墨登场摇尾乞怜，因为你不会背弃自己的信仰认贼作父，这比那些CCAV的脊梁高贵一千倍！<br><img src="http://ww4.sinaimg.cn/large/6abaa945gw1evy6nr9gqpj20c80khmyk.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3885675382746614" target="freeweibo-mirror">//@国家新媒体: 好。</a>
 </h2>
 <p>//@国家新媒体: 好。<br><br>RE: 【检方今日对刘虎案作出不起诉决定】检察院认为,公安移送审查起诉的刘虎涉嫌犯罪事实和证据,不符合提起公诉的条件，故决定不予起诉。因举报多位副部级高官涉嫌腐败,记者刘虎被以寻衅滋事立案追诉,并被以寻衅滋事、诽谤等多项罪名移送审查起诉,被关押近一年。下一步,将继续代理刘虎申请国家赔偿。<br><img src="http://ww3.sinaimg.cn/large/4bdb1fa0jw1evxhh1kehrj20jz0zkjte.jpg"></p>
@@ -125,18 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3885418589722260" target="freeweibo-mirror">SPAM 感同身受，促人深思，若想成熟，广索真知。 @作家陈…</a>
 </h2>
 <p>SPAM 感同身受，促人深思，若想成熟，广索真知。 @作家陈岚 的文章《陈岚：一个资深毛粉、爱国青年的自白》说得太好了，转评赞是浮云，必须打赏！#微博打赏#http://t.cn/Ry4xrE1</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3885406355557748" target="freeweibo-mirror">恐怖组织ISIS的杂志 Dabiq 宣布公开拍卖挪威和中国人…</a>
-</h2>
-<p>恐怖组织ISIS的杂志 Dabiq 宣布公开拍卖挪威和中国人质，中国人质名字为樊京辉（Fan Jinghui），列出了他详细的北京住址。挪威政府已经承认有挪威人被抓。<br><img src="http://ww3.sinaimg.cn/large/61b0f914gw1evwxu7ms6xj20ay0ey0te.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3885319038590448" target="freeweibo-mirror">拭目以待。 //@梦中de影子:月饼吃完了 也该实现诺言了</a>
-</h2>
-<p>拭目以待。 //@梦中de影子:月饼吃完了 也该实现诺言了</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
