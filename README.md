@@ -36,7 +36,7 @@
 </h2>
 <p>SPAM 发表了一篇转载博文《[转载]“制度性干旱”---论中国北方恶性水源危机的社会成因》http://t.cn/RybsgYx<br><img src="http://ww2.sinaimg.cn/large/5408ee85jw1evyjbjqatqj20hy0betbs.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3885900527999055" target="freeweibo-mirror">一个政权的统治的合法性源自于历史，或者说一个政权的统治是历史…</a>
 </h2>
