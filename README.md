@@ -24,7 +24,7 @@
 </h2>
 <p>把地球管起来。嗯哼。</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3885993314355271" target="freeweibo-mirror">不火葬吗？//@北京老伙子微博:不信谣，不传谣。就等官方辟谣…</a>
 </h2>
@@ -78,7 +78,7 @@
 </h2>
 <p>//@斯韦爵://@王亚军上海:转发微博</p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3885875736154238" target="freeweibo-mirror">//@经典汇聚人生:转发微博</a>
 </h2>
