@@ -36,7 +36,7 @@
 </h2>
 <p>把地球管起来。嗯哼。</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3885993314355271" target="freeweibo-mirror">不火葬吗？//@北京老伙子微博:不信谣，不传谣。就等官方辟谣…</a>
 </h2>
@@ -90,7 +90,7 @@
 </h2>
 <p>//@斯韦爵://@王亚军上海:转发微博</p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3885875736154238" target="freeweibo-mirror">//@经典汇聚人生:转发微博</a>
 </h2>
@@ -108,19 +108,19 @@
 </h2>
 <p>//@江荣生: 恶魔一个，怎么洗也没用！</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3885872095019369" target="freeweibo-mirror">秦始皇也是人民的选择，统一了中国嘛。</a>
 </h2>
 <p>秦始皇也是人民的选择，统一了中国嘛。</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3885871025966979" target="freeweibo-mirror">恶魔一个，怎么洗也没用！</a>
 </h2>
 <p>恶魔一个，怎么洗也没用！</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3885865212069911" target="freeweibo-mirror">章立凡:在毛的问题上，中共领导层处于一种非常纠结的状态。一方…</a>
 </h2>
