@@ -84,7 +84,7 @@
 </h2>
 <p>章立凡:在毛的问题上，中共领导层处于一种非常纠结的状态。一方面，毛泽东实际上是中共的一个负资产。但这个负资产他们又不能丢弃。因为是毛泽东带领中共建立了这个政权。如果否定了毛，他们担心自己统治的合法性将会受到严重影响。在这种情况下，他们不敢舍弃毛。 http://t.cn/RybB1V6<br><img src="http://ww4.sinaimg.cn/large/df3004a0jw1evyed0onbrj20go0azgmp.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3885858425907687" target="freeweibo-mirror">//@新闻就是新闻://@李方平律师: 转发微博</a>
 </h2>
