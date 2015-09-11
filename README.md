@@ -48,7 +48,7 @@
 </h2>
 <p>把地球管起来。嗯哼。</p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3885993314355271" target="freeweibo-mirror">不火葬吗？//@北京老伙子微博:不信谣，不传谣。就等官方辟谣…</a>
 </h2>
