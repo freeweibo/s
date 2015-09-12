@@ -66,19 +66,25 @@
 </h2>
 <p>@屈子赋 海参不是肉，是树皮！[偷笑]//@冉雄飞中美体育: 这不骂人吗？</p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3886257493418775" target="freeweibo-mirror">这不骂人吗？</a>
 </h2>
 <p>这不骂人吗？</p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3886244716890975" target="freeweibo-mirror">SPAM @王源宗Bboy  微博被禁言了。</a>
 </h2>
 <p>SPAM @王源宗Bboy  微博被禁言了。</p>
 <p>
 	<small> ============== 8小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3886237565434531" target="freeweibo-mirror">好多人私信问于是就整理了一下：日本摄影师”一鬼のこ“作品：『…</a>
+</h2>
+<p>好多人私信问于是就整理了一下：日本摄影师”一鬼のこ“作品：『RED』。和谐前右键~<br><img src="http://ww2.sinaimg.cn/large/69f6cb38gw1evzlbqgm6wj20qu15o4kr.jpg"></p>
+<p>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3886225863739944" target="freeweibo-mirror">反人类屠杀进行时！ http://t.cn/RyGOkvI</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3886040714243735" target="freeweibo-mirror">这个说法和毛泽东的说法不一致了。毛泽东的说法是“枪杆子里面出…</a>
 </h2>
 <p>这个说法和毛泽东的说法不一致了。毛泽东的说法是“枪杆子里面出政权”，所以中国共产党的合法性来源于——枪。</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3886027032736480" target="freeweibo-mirror">//@陈茂来-:@王爱忠2: 一个政权的统治的合法性源自于历…</a>
-</h2>
-<p>//@陈茂来-:@王爱忠2: 一个政权的统治的合法性源自于历史，或者说一个政权的统治是历史的选择这类的论调本质上都属于世袭论的范畴。一个政权在60多年前赢得上台执政就算客观上是当时人民的选择的结果，那么他的合法性也只限于当时而不能把祖辈的政治选择替代后辈的政治选择这种合法性显然是不能继承的</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
