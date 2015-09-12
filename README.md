@@ -30,7 +30,7 @@
 </h2>
 <p>SPAM 奥巴马在哪里？<br><br>RE: 反人类屠杀进行时！ http://t.cn/RyGOkvI</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3886314275543518" target="freeweibo-mirror">SPAM 残酷</a>
 </h2>
