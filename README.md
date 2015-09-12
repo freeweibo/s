@@ -48,13 +48,13 @@
 </h2>
 <p>福山：为何自2011年“阿拉伯之春”以来，阿拉伯世界的局势反而一直恶化？埃及出现新的独裁，利比亚、也门和叙利亚呈无政府状态，以至出现了ISIS。http://t.cn/RAwaFHs<br><br>RE: 反人类屠杀进行时！ http://t.cn/RyGOkvI</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3886282427812944" target="freeweibo-mirror">SPAM 一.个 不.错的 琥.珀.徽.博~~</a>
 </h2>
 <p>SPAM 一.个 不.错的 琥.珀.徽.博~~</p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3886273716261555" target="freeweibo-mirror">【这样的大屠杀就没有政府出来管吗？@这里是美国 @联合国 】…</a>
 </h2>
