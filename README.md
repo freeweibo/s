@@ -72,7 +72,7 @@
 </h2>
 <p>【这样的大屠杀就没有政府出来管吗？@这里是美国 @联合国 】http://t.cn/RyGOkvI</p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3886258121987792" target="freeweibo-mirror">@屈子赋 海参不是肉，是树皮！[偷笑]//@冉雄飞中美体育:…</a>
 </h2>
@@ -96,7 +96,7 @@
 </h2>
 <p>SPAM @王源宗Bboy  微博被禁言了。</p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3886237565434531" target="freeweibo-mirror">好多人私信问于是就整理了一下：日本摄影师”一鬼のこ“作品：『…</a>
 </h2>
