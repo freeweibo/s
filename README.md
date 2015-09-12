@@ -26,6 +26,12 @@
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3886338338067534" target="freeweibo-mirror">还想演讲，稿子背得顺溜吗//@亲心港湾://@公民王海滨:/…</a>
+</h2>
+<p>还想演讲，稿子背得顺溜吗//@亲心港湾://@公民王海滨://@瓦全张明家: //@愤怒的老鬼5: //@惊醒的家奴6:[赞]//@青山也妩媚V://@贾家楼三十八友://@商略雪://@啦啦啦哦啦: 转发微博<br><br>RE: 美帝真是寡廉无耻！[哈哈]<br><img src="http://ww4.sinaimg.cn/large/006bu5Sagw1evzm96puqzj30d30m8myt.jpg"></p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3886316766991139" target="freeweibo-mirror">SPAM @美国驻华大使馆 //@偶像张熙怀:谁在姑息纵容这…</a>
 </h2>
 <p>SPAM @美国驻华大使馆 //@偶像张熙怀:谁在姑息纵容这反人类的罪行？[怒][怒][怒]<br><br>RE: 反人类屠杀进行时！ http://t.cn/RyGOkvI</p>
@@ -54,13 +60,13 @@
 </h2>
 <p>福山：为何自2011年“阿拉伯之春”以来，阿拉伯世界的局势反而一直恶化？埃及出现新的独裁，利比亚、也门和叙利亚呈无政府状态，以至出现了ISIS。http://t.cn/RAwaFHs<br><br>RE: 反人类屠杀进行时！ http://t.cn/RyGOkvI</p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3886282427812944" target="freeweibo-mirror">SPAM 一.个 不.错的 琥.珀.徽.博~~</a>
 </h2>
 <p>SPAM 一.个 不.错的 琥.珀.徽.博~~</p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3886273716261555" target="freeweibo-mirror">【这样的大屠杀就没有政府出来管吗？@这里是美国 @联合国 】…</a>
 </h2>
@@ -108,7 +114,7 @@
 </h2>
 <p>//@未醉已迷情: //@连营二代: //@福建头号:转发微博<br><br>RE: #吐槽曝料# 泉州泰和广场的业主维权现场 http://t.cn/RyGydHh .</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3886208566036288" target="freeweibo-mirror">SPAM 终 于 有 人 开 琥 .珀 .徽 .博 啦 ~ …</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3886175581926367" target="freeweibo-mirror">哈儿呢，差不多就行了，出来吧。刘虎已经出来了。</a>
 </h2>
 <p>哈儿呢，差不多就行了，出来吧。刘虎已经出来了。<br><img src="http://ww3.sinaimg.cn/large/41693645gw1evze7dmatyj20dc08c0te.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3886069357168982" target="freeweibo-mirror">【股灾的罪魁祸首】是权贵用犯罪手段洗钱捞钱做空中国梦杰作 1…</a>
-</h2>
-<p>【股灾的罪魁祸首】是权贵用犯罪手段洗钱捞钱做空中国梦杰作 1.银监会放水相当于股市总值20%的11.7万亿银行资金进股市打造杠杆牛 2.证监会今年4月植入股灾工具 二十证券账户、中证500期货指数 3.用洗钱神器Homs 和证监会不顾市场强烈反对 违反国际惯例设计的裸空和期现套利机制做空捞万亿@奉命归国微博<br><img src="http://ww1.sinaimg.cn/large/eda620d4jw1evz1uaf9flj20icigox6r.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
