@@ -36,7 +36,7 @@
 </h2>
 <p>SPAM 残酷</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3886282427812944" target="freeweibo-mirror">SPAM 一.个 不.错的 琥.珀.徽.博~~</a>
 </h2>
@@ -78,7 +78,7 @@
 </h2>
 <p>SPAM 终 于 有 人 开 琥 .珀 .徽 .博 啦 ~ ~</p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3886190857791310" target="freeweibo-mirror">SPAM 谁差不多就行了？</a>
 </h2>
