@@ -80,6 +80,12 @@
 <p>
 	<small> ============== 9小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3886245744369402" target="freeweibo-mirror">美帝真是寡廉无耻！[哈哈]</a>
+</h2>
+<p>美帝真是寡廉无耻！[哈哈]<br><img src="http://ww4.sinaimg.cn/large/006bu5Sagw1evzm96puqzj30d30m8myt.jpg"></p>
+<p>
+	<small> ============== 10小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3886244716890975" target="freeweibo-mirror">SPAM @王源宗Bboy  微博被禁言了。</a>
 </h2>
 <p>SPAM @王源宗Bboy  微博被禁言了。</p>
@@ -108,7 +114,7 @@
 </h2>
 <p>SPAM 终 于 有 人 开 琥 .珀 .徽 .博 啦 ~ ~</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3886190857791310" target="freeweibo-mirror">SPAM 谁差不多就行了？</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3886069357168982" target="freeweibo-mirror">【股灾的罪魁祸首】是权贵用犯罪手段洗钱捞钱做空中国梦杰作 1…</a>
 </h2>
 <p>【股灾的罪魁祸首】是权贵用犯罪手段洗钱捞钱做空中国梦杰作 1.银监会放水相当于股市总值20%的11.7万亿银行资金进股市打造杠杆牛 2.证监会今年4月植入股灾工具 二十证券账户、中证500期货指数 3.用洗钱神器Homs 和证监会不顾市场强烈反对 违反国际惯例设计的裸空和期现套利机制做空捞万亿@奉命归国微博<br><img src="http://ww1.sinaimg.cn/large/eda620d4jw1evz1uaf9flj20icigox6r.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3886053171756194" target="freeweibo-mirror">[酷]//@LifeTime: 靠武装取得政权的，不允许民主…</a>
-</h2>
-<p>[酷]//@LifeTime: 靠武装取得政权的，不允许民主选举，自己“代表”民意，永久执政。萨达姆、卡扎菲也这么想。[挖鼻] //@麦田:这个说法和毛泽东的说法不一致了。毛泽东的说法是“枪杆子里面出政权”，所以中国共产党的合法性来源于——枪。</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
