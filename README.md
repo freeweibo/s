@@ -108,7 +108,7 @@
 </h2>
 <p>反人类屠杀进行时！ http://t.cn/RyGOkvI</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3886213762707417" target="freeweibo-mirror">//@未醉已迷情: //@连营二代: //@福建头号:转发微…</a>
 </h2>
