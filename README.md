@@ -54,7 +54,7 @@
 </h2>
 <p>SPAM 谁差不多就行了？<br><br>RE: 哈儿呢，差不多就行了，出来吧。刘虎已经出来了。<br><img src="http://ww3.sinaimg.cn/large/41693645gw1evze7dmatyj20dc08c0te.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3886189096180444" target="freeweibo-mirror">SPAM →_→ //@作家东海:[最右][话筒] //@-…</a>
 </h2>
@@ -66,7 +66,7 @@
 </h2>
 <p>哈儿呢，差不多就行了，出来吧。刘虎已经出来了。<br><img src="http://ww3.sinaimg.cn/large/41693645gw1evze7dmatyj20dc08c0te.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3886069357168982" target="freeweibo-mirror">【股灾的罪魁祸首】是权贵用犯罪手段洗钱捞钱做空中国梦杰作 1…</a>
 </h2>
