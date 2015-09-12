@@ -54,7 +54,7 @@
 </h2>
 <p>SPAM 终 于 有 人 开 琥 .珀 .徽 .博 啦 ~ ~</p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3886190857791310" target="freeweibo-mirror">SPAM 谁差不多就行了？</a>
 </h2>
