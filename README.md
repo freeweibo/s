@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3886258121987792" target="freeweibo-mirror">@屈子赋 海参不是肉，是树皮！[偷笑]//@冉雄飞中美体育:…</a>
+</h2>
+<p>@屈子赋 海参不是肉，是树皮！[偷笑]//@冉雄飞中美体育: 这不骂人吗？</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3886257493418775" target="freeweibo-mirror">这不骂人吗？</a>
 </h2>
 <p>这不骂人吗？</p>
@@ -30,13 +36,13 @@
 </h2>
 <p>SPAM @王源宗Bboy  微博被禁言了。</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3886213762707417" target="freeweibo-mirror">//@未醉已迷情: //@连营二代: //@福建头号:转发微…</a>
 </h2>
 <p>//@未醉已迷情: //@连营二代: //@福建头号:转发微博<br><br>RE: #吐槽曝料# 泉州泰和广场的业主维权现场 http://t.cn/RyGydHh .</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3886208566036288" target="freeweibo-mirror">SPAM 终 于 有 人 开 琥 .珀 .徽 .博 啦 ~ …</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3885906609618548" target="freeweibo-mirror">SPAM 发表了一篇转载博文《[转载]“制度性干旱”---论…</a>
 </h2>
 <p>SPAM 发表了一篇转载博文《[转载]“制度性干旱”---论中国北方恶性水源危机的社会成因》http://t.cn/RybsgYx<br><img src="http://ww2.sinaimg.cn/large/5408ee85jw1evyjbjqatqj20hy0betbs.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3885900527999055" target="freeweibo-mirror">一个政权的统治的合法性源自于历史，或者说一个政权的统治是历史…</a>
-</h2>
-<p>一个政权的统治的合法性源自于历史，或者说一个政权的统治是历史的选择这类的论调本质上都属于世袭论的范畴。一个政权在60多年前赢得上台执政就算客观上是当时人民的选择的结果，那么他的合法性也只限于当时，而不能把祖辈的政治选择替代后辈的政治选择，这种合法性显然是不能继承的，这是很简单的道理</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
