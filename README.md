@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3886257493418775" target="freeweibo-mirror">这不骂人吗？</a>
+</h2>
+<p>这不骂人吗？</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3886244716890975" target="freeweibo-mirror">SPAM @王源宗Bboy  微博被禁言了。</a>
 </h2>
 <p>SPAM @王源宗Bboy  微博被禁言了。</p>
@@ -42,7 +48,7 @@
 </h2>
 <p>SPAM 谁差不多就行了？<br><br>RE: 哈儿呢，差不多就行了，出来吧。刘虎已经出来了。<br><img src="http://ww3.sinaimg.cn/large/41693645gw1evze7dmatyj20dc08c0te.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3886189096180444" target="freeweibo-mirror">SPAM →_→ //@作家东海:[最右][话筒] //@-…</a>
 </h2>
@@ -54,7 +60,7 @@
 </h2>
 <p>哈儿呢，差不多就行了，出来吧。刘虎已经出来了。<br><img src="http://ww3.sinaimg.cn/large/41693645gw1evze7dmatyj20dc08c0te.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3886069357168982" target="freeweibo-mirror">【股灾的罪魁祸首】是权贵用犯罪手段洗钱捞钱做空中国梦杰作 1…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3885900527999055" target="freeweibo-mirror">一个政权的统治的合法性源自于历史，或者说一个政权的统治是历史…</a>
 </h2>
 <p>一个政权的统治的合法性源自于历史，或者说一个政权的统治是历史的选择这类的论调本质上都属于世袭论的范畴。一个政权在60多年前赢得上台执政就算客观上是当时人民的选择的结果，那么他的合法性也只限于当时，而不能把祖辈的政治选择替代后辈的政治选择，这种合法性显然是不能继承的，这是很简单的道理</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3885899857549976" target="freeweibo-mirror">//@王周生:毛对现领导来说，不仅因为他领导建立了这个政权，…</a>
-</h2>
-<p>//@王周生:毛对现领导来说，不仅因为他领导建立了这个政权，还因为他的思想和执政手段对当下有用。</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
