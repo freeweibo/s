@@ -26,6 +26,12 @@
 <p>
 	<small> ============== 1小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3886175581926367" target="freeweibo-mirror">哈儿呢，差不多就行了，出来吧。刘虎已经出来了。</a>
+</h2>
+<p>哈儿呢，差不多就行了，出来吧。刘虎已经出来了。<br><img src="http://ww3.sinaimg.cn/large/41693645gw1evze7dmatyj20dc08c0te.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3886053171756194" target="freeweibo-mirror">[酷]//@LifeTime: 靠武装取得政权的，不允许民主…</a>
 </h2>
 <p>[酷]//@LifeTime: 靠武装取得政权的，不允许民主选举，自己“代表”民意，永久执政。萨达姆、卡扎菲也这么想。[挖鼻] //@麦田:这个说法和毛泽东的说法不一致了。毛泽东的说法是“枪杆子里面出政权”，所以中国共产党的合法性来源于——枪。</p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3885872095019369" target="freeweibo-mirror">秦始皇也是人民的选择，统一了中国嘛。</a>
 </h2>
 <p>秦始皇也是人民的选择，统一了中国嘛。</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3885871025966979" target="freeweibo-mirror">恶魔一个，怎么洗也没用！</a>
-</h2>
-<p>恶魔一个，怎么洗也没用！</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
