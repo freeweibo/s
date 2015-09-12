@@ -60,7 +60,7 @@
 </h2>
 <p>SPAM →_→ //@作家东海:[最右][话筒] //@-孔智勇:→_→ //@魏晓军:→_→//@程中柳:→_→//@真给你米田共:→_→//@麻毛雄:→_→//@宇凡小栈:→_→ //@-孔智勇: 回家！<br><br>RE: 哈儿呢，差不多就行了，出来吧。刘虎已经出来了。<br><img src="http://ww3.sinaimg.cn/large/41693645gw1evze7dmatyj20dc08c0te.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3886175581926367" target="freeweibo-mirror">哈儿呢，差不多就行了，出来吧。刘虎已经出来了。</a>
 </h2>
