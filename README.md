@@ -96,13 +96,13 @@
 </h2>
 <p>其他国家与普特勒投了反对票？//@他回精神病院了:太可怕了！为什么这时候美国不出兵了？<br><br>RE: 反人类屠杀进行时！ http://t.cn/RyGOkvI</p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3886314275543518" target="freeweibo-mirror">SPAM 残酷</a>
 </h2>
 <p>SPAM 残酷</p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3886297334866203" target="freeweibo-mirror">福山：为何自2011年“阿拉伯之春”以来，阿拉伯世界的局势反…</a>
 </h2>
