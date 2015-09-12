@@ -114,7 +114,7 @@
 </h2>
 <p>SPAM @美国驻华大使馆 //@偶像张熙怀:谁在姑息纵容这反人类的罪行？[怒][怒][怒]<br><br>RE: 反人类屠杀进行时！ http://t.cn/RyGOkvI</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3886315688689554" target="freeweibo-mirror">SPAM 奥巴马在哪里？</a>
 </h2>
