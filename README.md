@@ -24,7 +24,7 @@
 </h2>
 <p>SPAM 谁差不多就行了？<br><br>RE: 哈儿呢，差不多就行了，出来吧。刘虎已经出来了。<br><img src="http://ww3.sinaimg.cn/large/41693645gw1evze7dmatyj20dc08c0te.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3886189096180444" target="freeweibo-mirror">SPAM →_→ //@作家东海:[最右][话筒] //@-…</a>
 </h2>
@@ -36,7 +36,7 @@
 </h2>
 <p>哈儿呢，差不多就行了，出来吧。刘虎已经出来了。<br><img src="http://ww3.sinaimg.cn/large/41693645gw1evze7dmatyj20dc08c0te.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3886053171756194" target="freeweibo-mirror">[酷]//@LifeTime: 靠武装取得政权的，不允许民主…</a>
 </h2>
@@ -48,7 +48,7 @@
 </h2>
 <p>这个说法和毛泽东的说法不一致了。毛泽东的说法是“枪杆子里面出政权”，所以中国共产党的合法性来源于——枪。</p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3886027032736480" target="freeweibo-mirror">//@陈茂来-:@王爱忠2: 一个政权的统治的合法性源自于历…</a>
 </h2>
