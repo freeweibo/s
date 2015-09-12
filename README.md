@@ -30,7 +30,7 @@
 </h2>
 <p>SPAM 奥巴马在哪里？<br><br>RE: 反人类屠杀进行时！ http://t.cn/RyGOkvI</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3886314912577918" target="freeweibo-mirror">其他国家与普特勒投了反对票？//@他回精神病院了:太可怕了！…</a>
 </h2>
