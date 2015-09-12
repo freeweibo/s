@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3886347309991406" target="freeweibo-mirror">//@邓树林律师: //@所罗门來: //@三合技术服务:/…</a>
+</h2>
+<p>//@邓树林律师: //@所罗门來: //@三合技术服务://@上官云开记者: 不评！ //@曾昌平微博:[哈哈]美帝真不知天高地厚//@亲心港湾://@公民王海滨://@瓦全张明家: //@愤怒的老鬼5: //@惊醒的家奴6:[赞]//@青山也妩媚V://@贾家楼三十八友://@商略雪://@啦啦啦哦啦: 转发微博<br><br>RE: 美帝真是寡廉无耻！[哈哈]<br><img src="http://ww4.sinaimg.cn/large/006bu5Sagw1evzm96puqzj30d30m8myt.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3886316766991139" target="freeweibo-mirror">SPAM @美国驻华大使馆 //@偶像张熙怀:谁在姑息纵容这…</a>
 </h2>
 <p>SPAM @美国驻华大使馆 //@偶像张熙怀:谁在姑息纵容这反人类的罪行？[怒][怒][怒]<br><br>RE: 反人类屠杀进行时！ http://t.cn/RyGOkvI</p>
@@ -60,7 +66,7 @@
 </h2>
 <p>【这样的大屠杀就没有政府出来管吗？@这里是美国 @联合国 】http://t.cn/RyGOkvI</p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3886258121987792" target="freeweibo-mirror">@屈子赋 海参不是肉，是树皮！[偷笑]//@冉雄飞中美体育:…</a>
 </h2>
@@ -78,7 +84,7 @@
 </h2>
 <p>SPAM @王源宗Bboy  微博被禁言了。</p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3886237565434531" target="freeweibo-mirror">好多人私信问于是就整理了一下：日本摄影师”一鬼のこ“作品：『…</a>
 </h2>
@@ -96,7 +102,7 @@
 </h2>
 <p>//@未醉已迷情: //@连营二代: //@福建头号:转发微博<br><br>RE: #吐槽曝料# 泉州泰和广场的业主维权现场 http://t.cn/RyGydHh .</p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3886208566036288" target="freeweibo-mirror">SPAM 终 于 有 人 开 琥 .珀 .徽 .博 啦 ~ …</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3886053171756194" target="freeweibo-mirror">[酷]//@LifeTime: 靠武装取得政权的，不允许民主…</a>
 </h2>
 <p>[酷]//@LifeTime: 靠武装取得政权的，不允许民主选举，自己“代表”民意，永久执政。萨达姆、卡扎菲也这么想。[挖鼻] //@麦田:这个说法和毛泽东的说法不一致了。毛泽东的说法是“枪杆子里面出政权”，所以中国共产党的合法性来源于——枪。</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3886040714243735" target="freeweibo-mirror">这个说法和毛泽东的说法不一致了。毛泽东的说法是“枪杆子里面出…</a>
-</h2>
-<p>这个说法和毛泽东的说法不一致了。毛泽东的说法是“枪杆子里面出政权”，所以中国共产党的合法性来源于——枪。</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
