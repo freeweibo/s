@@ -90,7 +90,7 @@
 </h2>
 <p>美帝真是寡廉无耻！[哈哈]<br><img src="http://ww4.sinaimg.cn/large/006bu5Sagw1evzm96puqzj30d30m8myt.jpg"></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3886244716890975" target="freeweibo-mirror">SPAM @王源宗Bboy  微博被禁言了。</a>
 </h2>
