@@ -84,7 +84,7 @@
 </h2>
 <p>好多人私信问于是就整理了一下：日本摄影师”一鬼のこ“作品：『RED』。和谐前右键~<br><img src="http://ww2.sinaimg.cn/large/69f6cb38gw1evzlbqgm6wj20qu15o4kr.jpg"></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3886225863739944" target="freeweibo-mirror">反人类屠杀进行时！ http://t.cn/RyGOkvI</a>
 </h2>
