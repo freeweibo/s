@@ -48,7 +48,7 @@
 </h2>
 <p>【股灾的罪魁祸首】是权贵用犯罪手段洗钱捞钱做空中国梦杰作 1.银监会放水相当于股市总值20%的11.7万亿银行资金进股市打造杠杆牛 2.证监会今年4月植入股灾工具 二十证券账户、中证500期货指数 3.用洗钱神器Homs 和证监会不顾市场强烈反对 违反国际惯例设计的裸空和期现套利机制做空捞万亿@奉命归国微博<br><img src="http://ww1.sinaimg.cn/large/eda620d4jw1evz1uaf9flj20icigox6r.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3886053171756194" target="freeweibo-mirror">[酷]//@LifeTime: 靠武装取得政权的，不允许民主…</a>
 </h2>
