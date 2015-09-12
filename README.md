@@ -30,7 +30,7 @@
 </h2>
 <p>这个说法和毛泽东的说法不一致了。毛泽东的说法是“枪杆子里面出政权”，所以中国共产党的合法性来源于——枪。</p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3886027032736480" target="freeweibo-mirror">//@陈茂来-:@王爱忠2: 一个政权的统治的合法性源自于历…</a>
 </h2>
@@ -42,7 +42,7 @@
 </h2>
 <p>分享视频 http://t.cn/RyG5nlO .</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3886000423802574" target="freeweibo-mirror">把地球管起来。嗯哼。</a>
 </h2>
