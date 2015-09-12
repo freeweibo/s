@@ -30,7 +30,7 @@
 </h2>
 <p>还想演讲，稿子背得顺溜吗//@亲心港湾://@公民王海滨://@瓦全张明家: //@愤怒的老鬼5: //@惊醒的家奴6:[赞]//@青山也妩媚V://@贾家楼三十八友://@商略雪://@啦啦啦哦啦: 转发微博<br><br>RE: 美帝真是寡廉无耻！[哈哈]<br><img src="http://ww4.sinaimg.cn/large/006bu5Sagw1evzm96puqzj30d30m8myt.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3886316766991139" target="freeweibo-mirror">SPAM @美国驻华大使馆 //@偶像张熙怀:谁在姑息纵容这…</a>
 </h2>
