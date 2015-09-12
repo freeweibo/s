@@ -20,6 +20,18 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3886316766991139" target="freeweibo-mirror">SPAM @美国驻华大使馆 //@偶像张熙怀:谁在姑息纵容这…</a>
+</h2>
+<p>SPAM @美国驻华大使馆 //@偶像张熙怀:谁在姑息纵容这反人类的罪行？[怒][怒][怒]<br><br>RE: 反人类屠杀进行时！ http://t.cn/RyGOkvI</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3886315688689554" target="freeweibo-mirror">SPAM 奥巴马在哪里？</a>
+</h2>
+<p>SPAM 奥巴马在哪里？<br><br>RE: 反人类屠杀进行时！ http://t.cn/RyGOkvI</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3886282427812944" target="freeweibo-mirror">SPAM 一.个 不.错的 琥.珀.徽.博~~</a>
 </h2>
 <p>SPAM 一.个 不.错的 琥.珀.徽.博~~</p>
@@ -125,18 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3885925468017236" target="freeweibo-mirror">//@陆伟民律师: 老毛也知道合法性来自选票，但他发明了等额…</a>
 </h2>
 <p>//@陆伟民律师: 老毛也知道合法性来自选票，但他发明了等额选举。 //@麻毛雄://@救赎_醉侠老高: //@新泊投资--Eric:爱忠，你知道太多简单的道理啦！<br><br>RE: 一个政权的统治的合法性源自于历史，或者说一个政权的统治是历史的选择这类的论调本质上都属于世袭论的范畴。一个政权在60多年前赢得上台执政就算客观上是当时人民的选择的结果，那么他的合法性也只限于当时，而不能把祖辈的政治选择替代后辈的政治选择，这种合法性显然是不能继承的，这是很简单的道理</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3885917498721289" target="freeweibo-mirror">古代确实这样！</a>
-</h2>
-<p>古代确实这样！<br><br>RE: 皇上打了一只老虎。太监说：“陛下神功盖世！”皇帝说：“赏！”官员说：“皇帝英明无比！”皇上说：“升！主流媒体说：“皇上为民做主！”皇上说：“加薪！”专家说：“反映了皇上坚决反对腐败的决心！”皇上说：“奖！”有一个P民说：“皇上，是不是检查一下产生老虎的原因？”皇上说：“抓起来！</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3885913434646435" target="freeweibo-mirror">《毛泽东遗体将于2016年葬于故土韶山》 毛泽东遗体将于20…</a>
-</h2>
-<p>《毛泽东遗体将于2016年葬于故土韶山》 毛泽东遗体将于2016年葬于故土韶山天安门再也瞻仰不到毛主席了，毛泽东遗体将于2016年将葬于故土韶山。毛泽东主席回韶山，安归故土，那是不需要怀疑的。不管什么人，什么力量，都阻止不了老人家的“安归”。http://t.cn/RyGPPXh<br><img src="http://ww2.sinaimg.cn/large/4c98fa42jw1evyk3qy89rj20ax064aap.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
