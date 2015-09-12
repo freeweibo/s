@@ -24,7 +24,7 @@
 </h2>
 <p>SPAM @美国驻华大使馆 //@偶像张熙怀:谁在姑息纵容这反人类的罪行？[怒][怒][怒]<br><br>RE: 反人类屠杀进行时！ http://t.cn/RyGOkvI</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3886315688689554" target="freeweibo-mirror">SPAM 奥巴马在哪里？</a>
 </h2>
@@ -84,7 +84,7 @@
 </h2>
 <p>反人类屠杀进行时！ http://t.cn/RyGOkvI</p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3886213762707417" target="freeweibo-mirror">//@未醉已迷情: //@连营二代: //@福建头号:转发微…</a>
 </h2>
@@ -108,7 +108,7 @@
 </h2>
 <p>SPAM →_→ //@作家东海:[最右][话筒] //@-孔智勇:→_→ //@魏晓军:→_→//@程中柳:→_→//@真给你米田共:→_→//@麻毛雄:→_→//@宇凡小栈:→_→ //@-孔智勇: 回家！<br><br>RE: 哈儿呢，差不多就行了，出来吧。刘虎已经出来了。<br><img src="http://ww3.sinaimg.cn/large/41693645gw1evze7dmatyj20dc08c0te.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3886175581926367" target="freeweibo-mirror">哈儿呢，差不多就行了，出来吧。刘虎已经出来了。</a>
 </h2>
