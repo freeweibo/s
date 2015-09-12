@@ -44,17 +44,23 @@
 <p>
 	<small> ============== 4小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3886273716261555" target="freeweibo-mirror">【这样的大屠杀就没有政府出来管吗？@这里是美国 @联合国 】…</a>
+</h2>
+<p>【这样的大屠杀就没有政府出来管吗？@这里是美国 @联合国 】http://t.cn/RyGOkvI</p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3886258121987792" target="freeweibo-mirror">@屈子赋 海参不是肉，是树皮！[偷笑]//@冉雄飞中美体育:…</a>
 </h2>
 <p>@屈子赋 海参不是肉，是树皮！[偷笑]//@冉雄飞中美体育: 这不骂人吗？</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3886257493418775" target="freeweibo-mirror">这不骂人吗？</a>
 </h2>
 <p>这不骂人吗？</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3886244716890975" target="freeweibo-mirror">SPAM @王源宗Bboy  微博被禁言了。</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3886000423802574" target="freeweibo-mirror">把地球管起来。嗯哼。</a>
 </h2>
 <p>把地球管起来。嗯哼。</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3885993314355271" target="freeweibo-mirror">不火葬吗？//@北京老伙子微博:不信谣，不传谣。就等官方辟谣…</a>
-</h2>
-<p>不火葬吗？//@北京老伙子微博:不信谣，不传谣。就等官方辟谣了。//@張杰同學:真的？//@青岛记: →_→ //@舞鹤G2:别介，留着鞭尸呢//@韩叟13世:【什么情况！？】<br><br>RE: 《毛泽东遗体将于2016年葬于故土韶山》 毛泽东遗体将于2016年葬于故土韶山天安门再也瞻仰不到毛主席了，毛泽东遗体将于2016年将葬于故土韶山。毛泽东主席回韶山，安归故土，那是不需要怀疑的。不管什么人，什么力量，都阻止不了老人家的“安归”。http://t.cn/RyGPPXh<br><img src="http://ww2.sinaimg.cn/large/4c98fa42jw1evyk3qy89rj20ax064aap.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
