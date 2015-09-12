@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3886189096180444" target="freeweibo-mirror">SPAM →_→ //@作家东海:[最右][话筒] //@-…</a>
+</h2>
+<p>SPAM →_→ //@作家东海:[最右][话筒] //@-孔智勇:→_→ //@魏晓军:→_→//@程中柳:→_→//@真给你米田共:→_→//@麻毛雄:→_→//@宇凡小栈:→_→ //@-孔智勇: 回家！<br><br>RE: 哈儿呢，差不多就行了，出来吧。刘虎已经出来了。<br><img src="http://ww3.sinaimg.cn/large/41693645gw1evze7dmatyj20dc08c0te.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3886053171756194" target="freeweibo-mirror">[酷]//@LifeTime: 靠武装取得政权的，不允许民主…</a>
 </h2>
 <p>[酷]//@LifeTime: 靠武装取得政权的，不允许民主选举，自己“代表”民意，永久执政。萨达姆、卡扎菲也这么想。[挖鼻] //@麦田:这个说法和毛泽东的说法不一致了。毛泽东的说法是“枪杆子里面出政权”，所以中国共产党的合法性来源于——枪。</p>
@@ -30,7 +36,7 @@
 </h2>
 <p>这个说法和毛泽东的说法不一致了。毛泽东的说法是“枪杆子里面出政权”，所以中国共产党的合法性来源于——枪。</p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3886027032736480" target="freeweibo-mirror">//@陈茂来-:@王爱忠2: 一个政权的统治的合法性源自于历…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3885871025966979" target="freeweibo-mirror">恶魔一个，怎么洗也没用！</a>
 </h2>
 <p>恶魔一个，怎么洗也没用！</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3885865212069911" target="freeweibo-mirror">章立凡:在毛的问题上，中共领导层处于一种非常纠结的状态。一方…</a>
-</h2>
-<p>章立凡:在毛的问题上，中共领导层处于一种非常纠结的状态。一方面，毛泽东实际上是中共的一个负资产。但这个负资产他们又不能丢弃。因为是毛泽东带领中共建立了这个政权。如果否定了毛，他们担心自己统治的合法性将会受到严重影响。在这种情况下，他们不敢舍弃毛。 http://t.cn/RybB1V6<br><img src="http://ww4.sinaimg.cn/large/df3004a0jw1evyed0onbrj20go0azgmp.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
