@@ -56,6 +56,12 @@
 <p>
 	<small> ============== 6小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3886225863739944" target="freeweibo-mirror">反人类屠杀进行时！ http://t.cn/RyGOkvI</a>
+</h2>
+<p>反人类屠杀进行时！ http://t.cn/RyGOkvI</p>
+<p>
+	<small> ============== 7小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3886213762707417" target="freeweibo-mirror">//@未醉已迷情: //@连营二代: //@福建头号:转发微…</a>
 </h2>
 <p>//@未醉已迷情: //@连营二代: //@福建头号:转发微博<br><br>RE: #吐槽曝料# 泉州泰和广场的业主维权现场 http://t.cn/RyGydHh .</p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3885988587459503" target="freeweibo-mirror">#吐槽曝料# 泉州泰和广场的业主维权现场 http://t.…</a>
 </h2>
 <p>#吐槽曝料# 泉州泰和广场的业主维权现场 http://t.cn/RyGydHh .</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3885925468017236" target="freeweibo-mirror">//@陆伟民律师: 老毛也知道合法性来自选票，但他发明了等额…</a>
-</h2>
-<p>//@陆伟民律师: 老毛也知道合法性来自选票，但他发明了等额选举。 //@麻毛雄://@救赎_醉侠老高: //@新泊投资--Eric:爱忠，你知道太多简单的道理啦！<br><br>RE: 一个政权的统治的合法性源自于历史，或者说一个政权的统治是历史的选择这类的论调本质上都属于世袭论的范畴。一个政权在60多年前赢得上台执政就算客观上是当时人民的选择的结果，那么他的合法性也只限于当时，而不能把祖辈的政治选择替代后辈的政治选择，这种合法性显然是不能继承的，这是很简单的道理</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
