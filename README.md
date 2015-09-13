@@ -84,7 +84,7 @@
 </h2>
 <p>//@-寒风雪纷vufat://@柳絮潭: 薄熙来是清官//@蝴蝶A11://@樊庚函07:转发微博</p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3886557695883750" target="freeweibo-mirror">扁鹊、华伦等神医能穿越时空集体来一次天朝吗？[泪]</a>
 </h2>
