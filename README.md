@@ -54,7 +54,7 @@
 </h2>
 <p></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3886572913080109" target="freeweibo-mirror">汉人有汉人宗教//@天下为公乎:石光荣已经看清黄俄邪教，加入…</a>
 </h2>
@@ -78,7 +78,7 @@
 </h2>
 <p>SPAM “少女妈妈” http://t.cn/RyqDwaT</p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3886558933875810" target="freeweibo-mirror">//@-寒风雪纷vufat://@柳絮潭: 薄熙来是清官//…</a>
 </h2>
