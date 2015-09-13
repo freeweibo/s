@@ -30,13 +30,13 @@
 </h2>
 <p>SPAM 发表了一篇转载博文《[转载]領導范儿》http://t.cn/Ry5nAl7<br><img src="http://ww2.sinaimg.cn/large/5408ee85jw1ew18nb0isnj20di0fnq4w.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3886753506977703" target="freeweibo-mirror">SPAM 发表了一篇转载博文《[转载]發明創造》http:/…</a>
 </h2>
 <p>SPAM 发表了一篇转载博文《[转载]發明創造》http://t.cn/Ry5Ek1M<br><img src="http://ww1.sinaimg.cn/large/5408ee85jw1ew18l38yg9j20dl0hamz7.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3886736079873774" target="freeweibo-mirror">//@夕烟暮雨闻笛声:《笛声》各类流派、群体反对共产主义反了…</a>
 </h2>
