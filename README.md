@@ -36,7 +36,7 @@
 </h2>
 <p>听说《刘虎，你几斤几两自己不清楚吗》在一些地方的宣管系统内热传。果然赤膊上阵了<br><img src="http://ww3.sinaimg.cn/large/7cc9aaf1gw1ew0nmkac04j20k00zkjwd.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3886558933875810" target="freeweibo-mirror">//@-寒风雪纷vufat://@柳絮潭: 薄熙来是清官//…</a>
 </h2>
