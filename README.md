@@ -84,7 +84,7 @@
 </h2>
 <p></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3886572913080109" target="freeweibo-mirror">汉人有汉人宗教//@天下为公乎:石光荣已经看清黄俄邪教，加入…</a>
 </h2>
