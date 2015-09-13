@@ -24,7 +24,7 @@
 </h2>
 <p>SPAM 发 现一个琥 珀 蜜 蜡 的徽 博！超 赞 哦~~</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3886572913080109" target="freeweibo-mirror">汉人有汉人宗教//@天下为公乎:石光荣已经看清黄俄邪教，加入…</a>
 </h2>
@@ -42,7 +42,7 @@
 </h2>
 <p>听说《刘虎，你几斤几两自己不清楚吗》在一些地方的宣管系统内热传。果然赤膊上阵了<br><img src="http://ww3.sinaimg.cn/large/7cc9aaf1gw1ew0nmkac04j20k00zkjwd.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3886564797120255" target="freeweibo-mirror">SPAM “少女妈妈” http://t.cn/RyqDwa…</a>
 </h2>
