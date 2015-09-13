@@ -72,13 +72,13 @@
 </h2>
 <p>汉人有汉人宗教//@天下为公乎:石光荣已经看清黄俄邪教，加入基督教才是人间正道[哈哈]//@和氏璧发现者:转@孙海英  我有石证//@醋葫芦_玉楼春:有请@孙海英 神棍预览[偷笑]</p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3886572451390430" target="freeweibo-mirror">SPAM 媒体一旦沦落成权力的打手，任何灾难都可能发生。[衰…</a>
 </h2>
 <p>SPAM 媒体一旦沦落成权力的打手，任何灾难都可能发生。[衰]<br><br>RE: 听说《刘虎，你几斤几两自己不清楚吗》在一些地方的宣管系统内热传。果然赤膊上阵了<br><img src="http://ww3.sinaimg.cn/large/7cc9aaf1gw1ew0nmkac04j20k00zkjwd.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3886571482761447" target="freeweibo-mirror">听说《刘虎，你几斤几两自己不清楚吗》在一些地方的宣管系统内热…</a>
 </h2>
@@ -90,7 +90,7 @@
 </h2>
 <p>SPAM “少女妈妈” http://t.cn/RyqDwaT</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3886558933875810" target="freeweibo-mirror">//@-寒风雪纷vufat://@柳絮潭: 薄熙来是清官//…</a>
 </h2>
