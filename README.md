@@ -78,7 +78,7 @@
 </h2>
 <p>SPAM 发 现一个琥 珀 蜜 蜡 的徽 博！超 赞 哦~~</p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3886579736898884" target="freeweibo-mirror"></a>
 </h2>
