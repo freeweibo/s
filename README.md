@@ -42,7 +42,7 @@
 </h2>
 <p>SPAM 补下课了[偷笑]</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3886720019535671" target="freeweibo-mirror">SPAM //@共济会驻京办: 党校叫兽说了:不能让李嘉诚跑…</a>
 </h2>
@@ -98,6 +98,12 @@
 <p>
 	<small> ============== 11小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3886601984234800" target="freeweibo-mirror">如果有人还在拿共产主义做理想，就一定是伪君子！如果还在用共产…</a>
+</h2>
+<p>如果有人还在拿共产主义做理想，就一定是伪君子！如果还在用共产主义理想教育干部，就一定是大逼忽悠二逼，逼骗逼！如果谁说他真相信什么共产主义，令我信服的办法很简单，首先请公示财产，然后请自觉充公！</p>
+<p>
+	<small> ============== 11小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3886585872928013" target="freeweibo-mirror">SPAM 发 现一个琥 珀 蜜 蜡 的徽 博！超 赞 哦~~</a>
 </h2>
 <p>SPAM 发 现一个琥 珀 蜜 蜡 的徽 博！超 赞 哦~~</p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3886564797120255" target="freeweibo-mirror">SPAM “少女妈妈” http://t.cn/RyqDwa…</a>
 </h2>
 <p>SPAM “少女妈妈” http://t.cn/RyqDwaT</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3886558933875810" target="freeweibo-mirror">//@-寒风雪纷vufat://@柳絮潭: 薄熙来是清官//…</a>
-</h2>
-<p>//@-寒风雪纷vufat://@柳絮潭: 薄熙来是清官//@蝴蝶A11://@樊庚函07:转发微博</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
