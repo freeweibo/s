@@ -38,6 +38,12 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3886746733239949" target="freeweibo-mirror">SPAM 第二个毁三观[拜拜]</a>
+</h2>
+<p>SPAM 第二个毁三观[拜拜]<br><br>RE: 周末八卦Wx来啦！睡不着的小伙伴加了看！➡️qnshh8<br><img src="http://ww4.sinaimg.cn/large/006bpLKTgw1ew17quqf7kj30ku112tdr.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3886736079873774" target="freeweibo-mirror">//@夕烟暮雨闻笛声:《笛声》各类流派、群体反对共产主义反了…</a>
 </h2>
 <p>//@夕烟暮雨闻笛声:《笛声》各类流派、群体反对共产主义反了一百多年啦，信仰共产主义的不仅在中国、不仅在发展中国家、连美国、德国、英国、日本……发达国家都还有共产党组织，大多都合法存在！兴衰存亡历史会做出结论的！但像博主这样低级下作水平的反对者，玷污博士之名！[弱][弱][弱][弱]<br><br>RE: 如果有人还在拿共产主义做理想，就一定是伪君子！如果还在用共产主义理想教育干部，就一定是大逼忽悠二逼，逼骗逼！如果谁说他真相信什么共产主义，令我信服的办法很简单，首先请公示财产，然后请自觉充公！</p>
@@ -90,7 +96,7 @@
 </h2>
 <p>//@程中柳:硕放机场，913之后赫赫有名的机场。//@松本纯一郎: 不管林彪专机究竟是定时炸弹搞死，还是导弹击落，都是中共残酷的内斗。 //@千里马常有://@杨春林w:什么都是国家秘密，就导致国民都成傻子了。</p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3886613296075459" target="freeweibo-mirror">心寒 //@张庭源律师2:刘虎无罪被关押近一年，不见道歉，却…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3886572451390430" target="freeweibo-mirror">SPAM 媒体一旦沦落成权力的打手，任何灾难都可能发生。[衰…</a>
 </h2>
 <p>SPAM 媒体一旦沦落成权力的打手，任何灾难都可能发生。[衰]<br><br>RE: 听说《刘虎，你几斤几两自己不清楚吗》在一些地方的宣管系统内热传。果然赤膊上阵了<br><img src="http://ww3.sinaimg.cn/large/7cc9aaf1gw1ew0nmkac04j20k00zkjwd.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3886571482761447" target="freeweibo-mirror">听说《刘虎，你几斤几两自己不清楚吗》在一些地方的宣管系统内热…</a>
-</h2>
-<p>听说《刘虎，你几斤几两自己不清楚吗》在一些地方的宣管系统内热传。果然赤膊上阵了<br><img src="http://ww3.sinaimg.cn/large/7cc9aaf1gw1ew0nmkac04j20k00zkjwd.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
