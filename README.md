@@ -54,7 +54,7 @@
 </h2>
 <p>//@-寒风雪纷vufat://@柳絮潭: 薄熙来是清官//@蝴蝶A11://@樊庚函07:转发微博</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3886557695883750" target="freeweibo-mirror">扁鹊、华伦等神医能穿越时空集体来一次天朝吗？[泪]</a>
 </h2>
@@ -90,7 +90,7 @@
 </h2>
 <p>一部电影被禁，并不是说明这部电影有多好。被禁只是说明了，有些人总是在害怕。<br><img src="http://ww4.sinaimg.cn/large/623f5850gw1ew079efbgbj20sg0mrtim.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3886417299901805" target="freeweibo-mirror">//@到香港逛街去:转发微博</a>
 </h2>
