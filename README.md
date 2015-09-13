@@ -42,7 +42,7 @@
 </h2>
 <p>SPAM “少女妈妈” http://t.cn/RyqDwaT</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3886558933875810" target="freeweibo-mirror">//@-寒风雪纷vufat://@柳絮潭: 薄熙来是清官//…</a>
 </h2>
