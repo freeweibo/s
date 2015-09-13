@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3886756766401686" target="freeweibo-mirror">//@章文的文章: //@悠野V:真敢说</a>
+</h2>
+<p>//@章文的文章: //@悠野V:真敢说<br><br>RE: 如果有人还在拿共产主义做理想，就一定是伪君子！如果还在用共产主义理想教育干部，就一定是大逼忽悠二逼，逼骗逼！如果谁说他真相信什么共产主义，令我信服的办法很简单，首先请公示财产，然后请自觉充公！</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3886754039514986" target="freeweibo-mirror">SPAM 发表了一篇转载博文《[转载]領導范儿》http:/…</a>
 </h2>
 <p>SPAM 发表了一篇转载博文《[转载]領導范儿》http://t.cn/Ry5nAl7<br><img src="http://ww2.sinaimg.cn/large/5408ee85jw1ew18nb0isnj20di0fnq4w.jpg"></p>
@@ -48,7 +54,7 @@
 </h2>
 <p>SPAM //@共济会驻京办: 党校叫兽说了:不能让李嘉诚跑了!//@陶景洲:李嘉诚不够哥们儿。//@明资顾问0839：马云马化腾是不是要失眠？！是不是再思念李嘉诚？！<br><br>RE: 想到共产主义马上就要实现了，可以分马云马化腾们的财产了，可以睡别人漂亮的人妻了，打土豪分田地，打倒私有制，无产阶级最光荣。鸡冻，捉急，开森。</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3886695017509996" target="freeweibo-mirror">[挖鼻]//@陆亚明:转发微博</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3886571482761447" target="freeweibo-mirror">听说《刘虎，你几斤几两自己不清楚吗》在一些地方的宣管系统内热…</a>
 </h2>
 <p>听说《刘虎，你几斤几两自己不清楚吗》在一些地方的宣管系统内热传。果然赤膊上阵了<br><img src="http://ww3.sinaimg.cn/large/7cc9aaf1gw1ew0nmkac04j20k00zkjwd.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3886564797120255" target="freeweibo-mirror">SPAM “少女妈妈” http://t.cn/RyqDwa…</a>
-</h2>
-<p>SPAM “少女妈妈” http://t.cn/RyqDwaT</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
