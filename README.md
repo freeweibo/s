@@ -48,7 +48,7 @@
 </h2>
 <p>SPAM 玩潮流，关注后告诉你是什么是专业！</p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3887106386433436" target="freeweibo-mirror">嗯，说的是朝鲜!</a>
 </h2>
