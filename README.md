@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3886899166944422" target="freeweibo-mirror">SPAM //@远征锋: //@如东维权王峰://@熊猫清清…</a>
+</h2>
+<p>SPAM //@远征锋: //@如东维权王峰://@熊猫清清河边草: //@通城风雨://@常州吴明远: //@作家东海:没有人权，你连人都不是。[怒][话筒]<br><br>RE: 记者刘虎的牢狱生活<br><img src="http://ww2.sinaimg.cn/large/d756e096gw1ew1m6nwv3nj20hs42dduf.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3886874206929960" target="freeweibo-mirror">SPAM //@整整明白: 乱战。。。。[睡][睡]</a>
 </h2>
 <p>SPAM //@整整明白: 乱战。。。。[睡][睡]<br><br>RE: 发表文章 http://t.cn/Ry5jmuD http://t.cn/R2dLikT</p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3886607797481742" target="freeweibo-mirror">想到共产主义马上就要实现了，可以分马云马化腾们的财产了，可以…</a>
 </h2>
 <p>想到共产主义马上就要实现了，可以分马云马化腾们的财产了，可以睡别人漂亮的人妻了，打土豪分田地，打倒私有制，无产阶级最光荣。鸡冻，捉急，开森。</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3886601984234800" target="freeweibo-mirror">如果有人还在拿共产主义做理想，就一定是伪君子！如果还在用共产…</a>
-</h2>
-<p>如果有人还在拿共产主义做理想，就一定是伪君子！如果还在用共产主义理想教育干部，就一定是大逼忽悠二逼，逼骗逼！如果谁说他真相信什么共产主义，令我信服的办法很简单，首先请公示财产，然后请自觉充公！</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
