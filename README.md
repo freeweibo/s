@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3887089575690996" target="freeweibo-mirror">SPAM 学会感觉</a>
+</h2>
+<p>SPAM 学会感觉<br><img src="http://ww1.sinaimg.cn/large/6d1b7fb6jw1ew2b6f8ol6j20hs0vkjvh.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3887081304958212" target="freeweibo-mirror">不行，得要国家赔偿，看政府怎么说，这是建设法制社会应该做的。</a>
 </h2>
 <p>不行，得要国家赔偿，看政府怎么说，这是建设法制社会应该做的。<br><br>RE: 【威胁见效？】刘虎被不起诉后,表示将申请国家赔偿。正义网、法制网随后同时发表评论,说刘虎没罪不等于没错，若干官微默契转发。还有若干官微转发一题为“刘虎,你几斤几两自己不清楚吗?”的评论。另有人放话：不要以为不起诉决定是不可改变的。虎妻今天电我:“周律师,要不我们就不要国家赔偿了吧?”<br><img src="http://ww2.sinaimg.cn/large/4bdb1fa0jw1ew2a4we8x7j20ez0qo0vs.jpg"></p>
@@ -72,7 +78,7 @@
 </h2>
 <p>回复@IOT1873:向外国要援助，政府主要搞福利，公共投资建设是挤压民企，发展国防是挤压福利，忽悠大家不劳而获，逮着拆迁医闹等机会就拼命维权，像中彩一样暴富。自由主义左派要搞成希腊，自由主义右派要搞成叙利亚，还他妈说这是普世价值民主革命，其实就是娘胎里带出的那点个人小肚鸡肠。<br><br>RE: 共产党最不应该谈的就是执政合法性问题。因为只要你开始谈“合法”，那就必然会有“不合法”。谈合法就是为了给自己不合法创造条件。所谓的执政合法性概念，纯属一种生造的毫无意义的东西。有本事你拿人头滚滚尸山血海来换！没本事你就在家好好呆着撸！天下是打下来，不是靠说出来的。</p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3886978351004726" target="freeweibo-mirror">//@陈业文新大都:[阴险] //@渣打money://@塞…</a>
 </h2>
@@ -96,7 +102,7 @@
 </h2>
 <p>SPAM //@海龙-7: //@中国大陆准公民A: //@何光伟:几条微博换来近1年的牢狱生活<br><br>RE: 记者刘虎的346天牢狱生活<br><img src="http://ww4.sinaimg.cn/large/7c1f76efgw1ew1uytdprjj20c82sm154.jpg"></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3886967786023554" target="freeweibo-mirror">SPAM 中国式警媒角力。</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3886914392492425" target="freeweibo-mirror">从签约仪式来看，不是做单个电影项目投资——双方计划成立博纳（…</a>
 </h2>
 <p>从签约仪式来看，不是做单个电影项目投资——双方计划成立博纳（南昌）影视公司以及设立影视投资基金，基金规模15至17亿元，资金由博纳募集。博纳拟在江西投资拍电影、建电影院、建影视基地等相关项目。 http://t.cn/Ryt43YT //@老家伙Bill_WU:政府拿纳税人的钱来做单个电影项目投资……</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3886911716462722" target="freeweibo-mirror">SPAM  http://t.cn/Ryt4z96 //@谓…</a>
-</h2>
-<p>SPAM  http://t.cn/Ryt4z96 //@谓贤:合法吗？</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
