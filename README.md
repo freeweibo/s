@@ -24,7 +24,7 @@
 </h2>
 <p>//@罗争eedoo:等辟谣。//@公民王石2:转发微博</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3887114532341180" target="freeweibo-mirror">SPAM 【VANS万斯官方大促专场】不能再错过今日[威武]…</a>
 </h2>
