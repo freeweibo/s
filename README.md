@@ -30,7 +30,7 @@
 </h2>
 <p>SPAM //@远征锋: //@如东维权王峰://@熊猫清清河边草: //@通城风雨://@常州吴明远: //@作家东海:没有人权，你连人都不是。[怒][话筒]<br><br>RE: 记者刘虎的牢狱生活<br><img src="http://ww2.sinaimg.cn/large/d756e096gw1ew1m6nwv3nj20hs42dduf.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3886897304862436" target="freeweibo-mirror">发表文章 http://t.cn/RytAd50</a>
 </h2>
@@ -54,7 +54,7 @@
 </h2>
 <p>//@章文的文章: //@悠野V:真敢说<br><br>RE: 如果有人还在拿共产主义做理想，就一定是伪君子！如果还在用共产主义理想教育干部，就一定是大逼忽悠二逼，逼骗逼！如果谁说他真相信什么共产主义，令我信服的办法很简单，首先请公示财产，然后请自觉充公！</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3886754039514986" target="freeweibo-mirror">SPAM 发表了一篇转载博文《[转载]領導范儿》http:/…</a>
 </h2>
