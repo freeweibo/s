@@ -78,7 +78,7 @@
 </h2>
 <p>SPAM 中国式警媒角力。<br><br>RE: 记者刘虎的346天牢狱生活<br><img src="http://ww4.sinaimg.cn/large/7c1f76efgw1ew1uytdprjj20c82sm154.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3886948391184462" target="freeweibo-mirror">记者刘虎的346天牢狱生活</a>
 </h2>
@@ -108,7 +108,7 @@
 </h2>
 <p>从签约仪式来看，不是做单个电影项目投资——双方计划成立博纳（南昌）影视公司以及设立影视投资基金，基金规模15至17亿元，资金由博纳募集。博纳拟在江西投资拍电影、建电影院、建影视基地等相关项目。 http://t.cn/Ryt43YT //@老家伙Bill_WU:政府拿纳税人的钱来做单个电影项目投资……</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3886911716462722" target="freeweibo-mirror">SPAM  http://t.cn/Ryt4z96 //@谓…</a>
 </h2>
