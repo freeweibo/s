@@ -66,7 +66,7 @@
 </h2>
 <p>SPAM  http://t.cn/Ryt4z96 //@谓贤:合法吗？</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3886909954364417" target="freeweibo-mirror">SPAM  //@建州雏: //@昆明湖_布都本命:[吐] …</a>
 </h2>
@@ -108,7 +108,7 @@
 </h2>
 <p>发表文章 http://t.cn/RytAd50</p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3886887183496521" target="freeweibo-mirror">SPAM 关于重提共产主义，他们自己也不信，既然自己都不信，…</a>
 </h2>
