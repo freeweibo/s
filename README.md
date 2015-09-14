@@ -24,7 +24,7 @@
 </h2>
 <p>//@袁裕来律师://@記録者陳寳成:转发微博<br><br>RE: 发表文章 http://t.cn/RytAd50</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3886899166944422" target="freeweibo-mirror">SPAM //@远征锋: //@如东维权王峰://@熊猫清清…</a>
 </h2>
