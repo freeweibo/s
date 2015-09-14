@@ -42,7 +42,7 @@
 </h2>
 <p>SPAM  http://t.cn/Ryt4z96 //@谓贤:合法吗？</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3886907941232094" target="freeweibo-mirror">这个国家领导出来放“卫星”，这个民族没希望 //@应天澜:这…</a>
 </h2>
@@ -78,7 +78,7 @@
 </h2>
 <p>发表文章 http://t.cn/RytAd50</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3886887183496521" target="freeweibo-mirror">SPAM 关于重提共产主义，他们自己也不信，既然自己都不信，…</a>
 </h2>
