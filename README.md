@@ -36,7 +36,13 @@
 </h2>
 <p>SPAM  //@江南囚://@千山万水依旧在: 高，实在是高！[哈哈][good]<br><br>RE: 今天我作为一个长者,我有必要告诉你们一点人生的经验：相信包子的嘴不如相信我李嘉诚的腿！<br><img src="http://ww3.sinaimg.cn/large/0066xQzEgw1ew20vsutcaj30ot0gdwiu.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3886999960443014" target="freeweibo-mirror">今天我作为一个长者,我有必要告诉你们一点人生的经验：相信包子…</a>
+</h2>
+<p>今天我作为一个长者,我有必要告诉你们一点人生的经验：相信包子的嘴不如相信我李嘉诚的腿！<br><img src="http://ww3.sinaimg.cn/large/0066xQzEgw1ew20vsutcaj30ot0gdwiu.jpg"></p>
+<p>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3886983959461655" target="freeweibo-mirror">回复@IOT1873:向外国要援助，政府主要搞福利，公共投资…</a>
 </h2>
@@ -48,7 +54,7 @@
 </h2>
 <p>//@陈业文新大都:[阴险] //@渣打money://@塞北偏北10://@小军的自油20://@神评V剑客: //@十三姨萌萌哒:共产主义也不是不可能实现。当这个地球，仅剩下一个人的时候。。。您随便共。<br><br>RE: 最近，共产主义这个幽灵突然又活跃起来了！共产主义就是主张消灭私权，达成所谓解放全人类的一种思想。其实质是借权力强行占有和支配所有人的生存和财产的集权，国有全有集体沦为官有权有，连生命的生杀大权都在它手上，骨子里是一种恐怖独裁。<br><img src="http://ww2.sinaimg.cn/large/006dcJnfjw1ew1tacqzowj30c70f9756.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3886972458002356" target="freeweibo-mirror">SPAM [吃惊][吃惊][吃惊][吃惊][吃惊][吃惊][…</a>
 </h2>
@@ -78,7 +84,7 @@
 </h2>
 <p>记者刘虎的346天牢狱生活<br><img src="http://ww4.sinaimg.cn/large/7c1f76efgw1ew1uytdprjj20c82sm154.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3886932137943774" target="freeweibo-mirror">刘虎被不起诉后，正义网、法制网同时发布评论，若干官微转发，说…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3886903625326368" target="freeweibo-mirror">//@袁裕来律师://@記録者陳寳成:转发微博</a>
 </h2>
 <p>//@袁裕来律师://@記録者陳寳成:转发微博<br><br>RE: 发表文章 http://t.cn/RytAd50</p>
-<p>
-	<small> ============== 10小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3886901037751933" target="freeweibo-mirror">据本人所知，很多单位都组织观影活动，特别是工会。可以看美国大…</a>
-</h2>
-<p>据本人所知，很多单位都组织观影活动，特别是工会。可以看美国大片、香港喜剧，就不能看主旋律？//@四环胡同:肯定赚呀，主旋律，“鼓励”党员干部带领群众自发组织观看，单位送票就更不用说了。</p>
 <p>
 	<small> ============== 11小时前</small>
 </p>
