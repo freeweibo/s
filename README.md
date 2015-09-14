@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3886967786023554" target="freeweibo-mirror">SPAM 中国式警媒角力。</a>
+</h2>
+<p>SPAM 中国式警媒角力。<br><br>RE: 记者刘虎的346天牢狱生活<br><img src="http://ww4.sinaimg.cn/large/7c1f76efgw1ew1uytdprjj20c82sm154.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3886932137943774" target="freeweibo-mirror">刘虎被不起诉后，正义网、法制网同时发布评论，若干官微转发，说…</a>
 </h2>
 <p>刘虎被不起诉后，正义网、法制网同时发布评论，若干官微转发，说他没罪不等于没错；还有若干官微转发一题为“刘虎，你几斤几两自己不清楚吗？”的评论。他们似乎在放话：你不要跳得欢，我们随时可以把你抓回来的！还有人对刘虎说，不起诉决定也不是不可以改变的！嗯，我信！http://t.cn/Ryt51Fw</p>
@@ -36,7 +42,7 @@
 </h2>
 <p>这不是烧钱，是投资，从前两部电影《建国大业》《建党伟业》的情况看，赚钱是肯定的，南昌政府的行为无可厚非。不过确实应该报警，遇见博主这样的傻帽是应该报警抓去捡肥皂。</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3886914392492425" target="freeweibo-mirror">从签约仪式来看，不是做单个电影项目投资——双方计划成立博纳（…</a>
 </h2>
@@ -78,7 +84,7 @@
 </h2>
 <p>据本人所知，很多单位都组织观影活动，特别是工会。可以看美国大片、香港喜剧，就不能看主旋律？//@四环胡同:肯定赚呀，主旋律，“鼓励”党员干部带领群众自发组织观看，单位送票就更不用说了。</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3886899166944422" target="freeweibo-mirror">SPAM //@远征锋: //@如东维权王峰://@熊猫清清…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3886756766401686" target="freeweibo-mirror">//@章文的文章: //@悠野V:真敢说</a>
 </h2>
 <p>//@章文的文章: //@悠野V:真敢说<br><br>RE: 如果有人还在拿共产主义做理想，就一定是伪君子！如果还在用共产主义理想教育干部，就一定是大逼忽悠二逼，逼骗逼！如果谁说他真相信什么共产主义，令我信服的办法很简单，首先请公示财产，然后请自觉充公！</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3886754039514986" target="freeweibo-mirror">SPAM 发表了一篇转载博文《[转载]領導范儿》http:/…</a>
-</h2>
-<p>SPAM 发表了一篇转载博文《[转载]領導范儿》http://t.cn/Ry5nAl7<br><img src="http://ww2.sinaimg.cn/large/5408ee85jw1ew18nb0isnj20di0fnq4w.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
