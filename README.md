@@ -24,7 +24,13 @@
 </h2>
 <p>SPAM 中国式警媒角力。<br><br>RE: 记者刘虎的346天牢狱生活<br><img src="http://ww4.sinaimg.cn/large/7c1f76efgw1ew1uytdprjj20c82sm154.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3886948391184462" target="freeweibo-mirror">记者刘虎的346天牢狱生活</a>
+</h2>
+<p>记者刘虎的346天牢狱生活<br><img src="http://ww4.sinaimg.cn/large/7c1f76efgw1ew1uytdprjj20c82sm154.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3886932137943774" target="freeweibo-mirror">刘虎被不起诉后，正义网、法制网同时发布评论，若干官微转发，说…</a>
 </h2>
@@ -72,7 +78,7 @@
 </h2>
 <p>//@应天澜:这……//@刘庆-大风居:能发动全国正副处级干部（共产党）捐出自己全部海内外财产，那我彻底信仰共产主义，否则，滚你娘的蛋………<br><br>RE: 早在1958年我们放出卫星“跑步进入共产主义”，建立过所谓“共产主义新乐园”，后来失败了，认为这是一场探索性错误。而前苏联试验了70年彻底告别，叶利钦认为“这是人民的一场悲剧，共产主义是一个美丽而愚蠢的乌托邦”。苏联无一人是男儿，半途而废了，现在我们重新出发，一定要实现共产主义。<br><img src="http://ww2.sinaimg.cn/large/c5d90a82jw1ew180j0pyjj20j20cpjt4.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3886903625326368" target="freeweibo-mirror">//@袁裕来律师://@記録者陳寳成:转发微博</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3886777410242553" target="freeweibo-mirror">BBC：“ 村内通讯全部被切断，外界无法联系。”</a>
 </h2>
 <p>BBC：“ 村内通讯全部被切断，外界无法联系。”<br><img src="http://ww1.sinaimg.cn/large/006cfcOSjw1ew1bb8lm9lj30k00zkgxk.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3886756766401686" target="freeweibo-mirror">//@章文的文章: //@悠野V:真敢说</a>
-</h2>
-<p>//@章文的文章: //@悠野V:真敢说<br><br>RE: 如果有人还在拿共产主义做理想，就一定是伪君子！如果还在用共产主义理想教育干部，就一定是大逼忽悠二逼，逼骗逼！如果谁说他真相信什么共产主义，令我信服的办法很简单，首先请公示财产，然后请自觉充公！</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
