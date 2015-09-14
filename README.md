@@ -96,7 +96,7 @@
 </h2>
 <p>#博友爆料#[话筒] //@历史真容:一亿可以建多少所学校//@历史真容:@董郎dxp //@紫荆报:江西老百姓看了不知何想？</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3886874206929960" target="freeweibo-mirror">SPAM //@整整明白: 乱战。。。。[睡][睡]</a>
 </h2>
@@ -114,7 +114,7 @@
 </h2>
 <p>BBC：“ 村内通讯全部被切断，外界无法联系。”<br><img src="http://ww1.sinaimg.cn/large/006cfcOSjw1ew1bb8lm9lj30k00zkgxk.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3886756766401686" target="freeweibo-mirror">//@章文的文章: //@悠野V:真敢说</a>
 </h2>
