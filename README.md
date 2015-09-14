@@ -72,7 +72,7 @@
 </h2>
 <p>SPAM 补下课了[偷笑]</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3886731055542362" target="freeweibo-mirror">发表文章 http://t.cn/Ry5jmuD http:…</a>
 </h2>
