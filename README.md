@@ -60,7 +60,7 @@
 </h2>
 <p>SPAM [吃惊][吃惊][吃惊][吃惊][吃惊][吃惊][吃惊][吃惊][吃惊][吃惊][吃惊][吃惊][吃惊][吃惊][吃惊][吃惊][吃惊][吃惊][吃惊][吃惊][吃惊][吃惊][吃惊][吃惊] http://t.cn/R77GJA6</p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3886970310592950" target="freeweibo-mirror">【台湾共产主义】台湾人均GDP值4倍于大陆；推行12年义务教…</a>
 </h2>
@@ -114,7 +114,7 @@
 </h2>
 <p>SPAM  http://t.cn/Ryt4z96 //@谓贤:合法吗？</p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3886909954364417" target="freeweibo-mirror">SPAM  //@建州雏: //@昆明湖_布都本命:[吐] …</a>
 </h2>
