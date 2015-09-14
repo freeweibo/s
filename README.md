@@ -68,6 +68,12 @@
 <p>
 	<small> ============== 11小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3886731055542362" target="freeweibo-mirror">发表文章 http://t.cn/Ry5jmuD http:…</a>
+</h2>
+<p>发表文章 http://t.cn/Ry5jmuD http://t.cn/R2dLikT</p>
+<p>
+	<small> ============== 11小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3886720019535671" target="freeweibo-mirror">SPAM //@共济会驻京办: 党校叫兽说了:不能让李嘉诚跑…</a>
 </h2>
 <p>SPAM //@共济会驻京办: 党校叫兽说了:不能让李嘉诚跑了!//@陶景洲:李嘉诚不够哥们儿。//@明资顾问0839：马云马化腾是不是要失眠？！是不是再思念李嘉诚？！<br><br>RE: 想到共产主义马上就要实现了，可以分马云马化腾们的财产了，可以睡别人漂亮的人妻了，打土豪分田地，打倒私有制，无产阶级最光荣。鸡冻，捉急，开森。</p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3886601984234800" target="freeweibo-mirror">如果有人还在拿共产主义做理想，就一定是伪君子！如果还在用共产…</a>
 </h2>
 <p>如果有人还在拿共产主义做理想，就一定是伪君子！如果还在用共产主义理想教育干部，就一定是大逼忽悠二逼，逼骗逼！如果谁说他真相信什么共产主义，令我信服的办法很简单，首先请公示财产，然后请自觉充公！</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3886585872928013" target="freeweibo-mirror">SPAM 发 现一个琥 珀 蜜 蜡 的徽 博！超 赞 哦~~</a>
-</h2>
-<p>SPAM 发 现一个琥 珀 蜜 蜡 的徽 博！超 赞 哦~~</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
