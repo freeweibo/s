@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3886978351004726" target="freeweibo-mirror">//@陈业文新大都:[阴险] //@渣打money://@塞…</a>
+</h2>
+<p>//@陈业文新大都:[阴险] //@渣打money://@塞北偏北10://@小军的自油20://@神评V剑客: //@十三姨萌萌哒:共产主义也不是不可能实现。当这个地球，仅剩下一个人的时候。。。您随便共。<br><br>RE: 最近，共产主义这个幽灵突然又活跃起来了！共产主义就是主张消灭私权，达成所谓解放全人类的一种思想。其实质是借权力强行占有和支配所有人的生存和财产的集权，国有全有集体沦为官有权有，连生命的生杀大权都在它手上，骨子里是一种恐怖独裁。<br><img src="http://ww2.sinaimg.cn/large/006dcJnfjw1ew1tacqzowj30c70f9756.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3886969416880399" target="freeweibo-mirror">SPAM //@海龙-7: //@中国大陆准公民A: //@…</a>
 </h2>
 <p>SPAM //@海龙-7: //@中国大陆准公民A: //@何光伟:几条微博换来近1年的牢狱生活<br><br>RE: 记者刘虎的346天牢狱生活<br><img src="http://ww4.sinaimg.cn/large/7c1f76efgw1ew1uytdprjj20c82sm154.jpg"></p>
@@ -54,7 +60,7 @@
 </h2>
 <p>这不是烧钱，是投资，从前两部电影《建国大业》《建党伟业》的情况看，赚钱是肯定的，南昌政府的行为无可厚非。不过确实应该报警，遇见博主这样的傻帽是应该报警抓去捡肥皂。</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3886914392492425" target="freeweibo-mirror">从签约仪式来看，不是做单个电影项目投资——双方计划成立博纳（…</a>
 </h2>
@@ -96,7 +102,7 @@
 </h2>
 <p>据本人所知，很多单位都组织观影活动，特别是工会。可以看美国大片、香港喜剧，就不能看主旋律？//@四环胡同:肯定赚呀，主旋律，“鼓励”党员干部带领群众自发组织观看，单位送票就更不用说了。</p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3886899166944422" target="freeweibo-mirror">SPAM //@远征锋: //@如东维权王峰://@熊猫清清…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3886874206929960" target="freeweibo-mirror">SPAM //@整整明白: 乱战。。。。[睡][睡]</a>
 </h2>
 <p>SPAM //@整整明白: 乱战。。。。[睡][睡]<br><br>RE: 发表文章 http://t.cn/Ry5jmuD http://t.cn/R2dLikT</p>
-<p>
-	<small> ============== 8小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3886872000839542" target="freeweibo-mirror">记者刘虎的牢狱生活</a>
-</h2>
-<p>记者刘虎的牢狱生活<br><img src="http://ww2.sinaimg.cn/large/d756e096gw1ew1m6nwv3nj20hs42dduf.jpg"></p>
 <p>
 	<small> ============== 8小时前</small>
 </p>
