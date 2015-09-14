@@ -48,7 +48,7 @@
 </h2>
 <p>SPAM 浪费那么多人力//@范桶: 想安罪名却一败涂地//@昕静自然好:是谁拍板抓刘虎的？ //@思达逸语: 一定要好好读。</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3887058781361201" target="freeweibo-mirror">SPAM 这文章值得一读。</a>
 </h2>
@@ -66,7 +66,7 @@
 </h2>
 <p>//@CASON_JOBS: //@章诒和:哈！//@徐昕: 少谈主义 //@我们是纳税人://@公正善良: //@浩瀚浪涛: //@演员孙海英:转发<br><br>RE: 【台湾共产主义】台湾人均GDP值4倍于大陆；推行12年义务教育，学生都有免费午餐，人人能考上大学，不存在上学难；人人看得起病，政府会管你的医疗；电视上谁都可以骂最高领导人；市民受儒家影响，个个温良恭俭让；文化保持了纯正的中国传统（仁义忠孝信处处可见）。我的祖宗，台湾这不是共产主义吗？<br><img src="http://ww1.sinaimg.cn/large/006dBNqyjw1ew1xhdfl1wj30k009dq4c.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3887023763135389" target="freeweibo-mirror">SPAM  //@江南囚://@千山万水依旧在: 高，实在是…</a>
 </h2>
@@ -120,7 +120,7 @@
 </h2>
 <p>记者刘虎的346天牢狱生活<br><img src="http://ww4.sinaimg.cn/large/7c1f76efgw1ew1uytdprjj20c82sm154.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3886932137943774" target="freeweibo-mirror">刘虎被不起诉后，正义网、法制网同时发布评论，若干官微转发，说…</a>
 </h2>
