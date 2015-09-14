@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3886969416880399" target="freeweibo-mirror">SPAM //@海龙-7: //@中国大陆准公民A: //@…</a>
+</h2>
+<p>SPAM //@海龙-7: //@中国大陆准公民A: //@何光伟:几条微博换来近1年的牢狱生活<br><br>RE: 记者刘虎的346天牢狱生活<br><img src="http://ww4.sinaimg.cn/large/7c1f76efgw1ew1uytdprjj20c82sm154.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3886967786023554" target="freeweibo-mirror">SPAM 中国式警媒角力。</a>
 </h2>
 <p>SPAM 中国式警媒角力。<br><br>RE: 记者刘虎的346天牢狱生活<br><img src="http://ww4.sinaimg.cn/large/7c1f76efgw1ew1uytdprjj20c82sm154.jpg"></p>
@@ -72,7 +78,7 @@
 </h2>
 <p>这个国家领导出来放“卫星”，这个民族没希望 //@应天澜:这……//@刘庆-大风居:能发动全国正副处级干部（共产党）捐出自己全部海内外财产，那我彻底信仰共产主义，否则，滚你娘的蛋………<br><br>RE: 早在1958年我们放出卫星“跑步进入共产主义”，建立过所谓“共产主义新乐园”，后来失败了，认为这是一场探索性错误。而前苏联试验了70年彻底告别，叶利钦认为“这是人民的一场悲剧，共产主义是一个美丽而愚蠢的乌托邦”。苏联无一人是男儿，半途而废了，现在我们重新出发，一定要实现共产主义。<br><img src="http://ww2.sinaimg.cn/large/c5d90a82jw1ew180j0pyjj20j20cpjt4.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3886907652148758" target="freeweibo-mirror">//@应天澜:这……//@刘庆-大风居:能发动全国正副处级干…</a>
 </h2>
@@ -133,12 +139,6 @@
 <p>记者刘虎的牢狱生活<br><img src="http://ww2.sinaimg.cn/large/d756e096gw1ew1m6nwv3nj20hs42dduf.jpg"></p>
 <p>
 	<small> ============== 8小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3886777410242553" target="freeweibo-mirror">BBC：“ 村内通讯全部被切断，外界无法联系。”</a>
-</h2>
-<p>BBC：“ 村内通讯全部被切断，外界无法联系。”<br><img src="http://ww1.sinaimg.cn/large/006cfcOSjw1ew1bb8lm9lj30k00zkgxk.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
 </p>
 <table>
     <tr>
