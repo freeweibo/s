@@ -32,11 +32,23 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3886914392492425" target="freeweibo-mirror">从签约仪式来看，不是做单个电影项目投资——双方计划成立博纳（…</a>
+</h2>
+<p>从签约仪式来看，不是做单个电影项目投资——双方计划成立博纳（南昌）影视公司以及设立影视投资基金，基金规模15至17亿元，资金由博纳募集。博纳拟在江西投资拍电影、建电影院、建影视基地等相关项目。 http://t.cn/Ryt43YT //@老家伙Bill_WU:政府拿纳税人的钱来做单个电影项目投资……</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3886911716462722" target="freeweibo-mirror">SPAM  http://t.cn/Ryt4z96 //@谓…</a>
+</h2>
+<p>SPAM  http://t.cn/Ryt4z96 //@谓贤:合法吗？</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3886907941232094" target="freeweibo-mirror">这个国家领导出来放“卫星”，这个民族没希望 //@应天澜:这…</a>
 </h2>
 <p>这个国家领导出来放“卫星”，这个民族没希望 //@应天澜:这……//@刘庆-大风居:能发动全国正副处级干部（共产党）捐出自己全部海内外财产，那我彻底信仰共产主义，否则，滚你娘的蛋………<br><br>RE: 早在1958年我们放出卫星“跑步进入共产主义”，建立过所谓“共产主义新乐园”，后来失败了，认为这是一场探索性错误。而前苏联试验了70年彻底告别，叶利钦认为“这是人民的一场悲剧，共产主义是一个美丽而愚蠢的乌托邦”。苏联无一人是男儿，半途而废了，现在我们重新出发，一定要实现共产主义。<br><img src="http://ww2.sinaimg.cn/large/c5d90a82jw1ew180j0pyjj20j20cpjt4.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3886907652148758" target="freeweibo-mirror">//@应天澜:这……//@刘庆-大风居:能发动全国正副处级干…</a>
 </h2>
@@ -125,18 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3886746448075014" target="freeweibo-mirror">周末八卦Wx来啦！睡不着的小伙伴加了看！➡️qnshh8</a>
 </h2>
 <p>周末八卦Wx来啦！睡不着的小伙伴加了看！➡️qnshh8<br><img src="http://ww4.sinaimg.cn/large/006bpLKTgw1ew17quqf7kj30ku112tdr.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3886736079873774" target="freeweibo-mirror">//@夕烟暮雨闻笛声:《笛声》各类流派、群体反对共产主义反了…</a>
-</h2>
-<p>//@夕烟暮雨闻笛声:《笛声》各类流派、群体反对共产主义反了一百多年啦，信仰共产主义的不仅在中国、不仅在发展中国家、连美国、德国、英国、日本……发达国家都还有共产党组织，大多都合法存在！兴衰存亡历史会做出结论的！但像博主这样低级下作水平的反对者，玷污博士之名！[弱][弱][弱][弱]<br><br>RE: 如果有人还在拿共产主义做理想，就一定是伪君子！如果还在用共产主义理想教育干部，就一定是大逼忽悠二逼，逼骗逼！如果谁说他真相信什么共产主义，令我信服的办法很简单，首先请公示财产，然后请自觉充公！</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3886732073987623" target="freeweibo-mirror">SPAM 补下课了[偷笑]</a>
-</h2>
-<p>SPAM 补下课了[偷笑]</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
