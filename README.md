@@ -24,7 +24,7 @@
 </h2>
 <p>SPAM //@上官云开记者: //@-蓝色-心情://@此路禁止通行: //@深秋亦无语: //@砀山人_在上海O:[吃惊][围观] //@加菲炮1314cat://@Hk灭豬魔神52://@曦曦雨EG://@游明磊43://@傘幕下的曉曉: //@负三度的冰://@MKANDYKLN:<br><br>RE: BBC：“ 村内通讯全部被切断，外界无法联系。”<br><img src="http://ww1.sinaimg.cn/large/006cfcOSjw1ew1bb8lm9lj30k00zkgxk.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3886916099006088" target="freeweibo-mirror">这不是烧钱，是投资，从前两部电影《建国大业》《建党伟业》的情…</a>
 </h2>
@@ -62,6 +62,12 @@
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3886901037751933" target="freeweibo-mirror">据本人所知，很多单位都组织观影活动，特别是工会。可以看美国大…</a>
+</h2>
+<p>据本人所知，很多单位都组织观影活动，特别是工会。可以看美国大片、香港喜剧，就不能看主旋律？//@四环胡同:肯定赚呀，主旋律，“鼓励”党员干部带领群众自发组织观看，单位送票就更不用说了。</p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3886899166944422" target="freeweibo-mirror">SPAM //@远征锋: //@如东维权王峰://@熊猫清清…</a>
 </h2>
 <p>SPAM //@远征锋: //@如东维权王峰://@熊猫清清河边草: //@通城风雨://@常州吴明远: //@作家东海:没有人权，你连人都不是。[怒][话筒]<br><br>RE: 记者刘虎的牢狱生活<br><img src="http://ww2.sinaimg.cn/large/d756e096gw1ew1m6nwv3nj20hs42dduf.jpg"></p>
@@ -73,6 +79,12 @@
 <p>发表文章 http://t.cn/RytAd50</p>
 <p>
 	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3886887183496521" target="freeweibo-mirror">SPAM 关于重提共产主义，他们自己也不信，既然自己都不信，…</a>
+</h2>
+<p>SPAM 关于重提共产主义，他们自己也不信，既然自己都不信，为何要提，其目的昭然若揭：拖！</p>
+<p>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3886884835448044" target="freeweibo-mirror">SPAM 不差钱？@陈东有 @江南浪子万军 @南昌陈政 @东…</a>
 </h2>
@@ -125,18 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3886748926745965" target="freeweibo-mirror">早在1958年我们放出卫星“跑步进入共产主义”，建立过所谓“…</a>
 </h2>
 <p>早在1958年我们放出卫星“跑步进入共产主义”，建立过所谓“共产主义新乐园”，后来失败了，认为这是一场探索性错误。而前苏联试验了70年彻底告别，叶利钦认为“这是人民的一场悲剧，共产主义是一个美丽而愚蠢的乌托邦”。苏联无一人是男儿，半途而废了，现在我们重新出发，一定要实现共产主义。<br><img src="http://ww2.sinaimg.cn/large/c5d90a82jw1ew180j0pyjj20j20cpjt4.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3886746733239949" target="freeweibo-mirror">SPAM 第二个毁三观[拜拜]</a>
-</h2>
-<p>SPAM 第二个毁三观[拜拜]<br><br>RE: 周末八卦Wx来啦！睡不着的小伙伴加了看！➡️qnshh8<br><img src="http://ww4.sinaimg.cn/large/006bpLKTgw1ew17quqf7kj30ku112tdr.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3886746448075014" target="freeweibo-mirror">周末八卦Wx来啦！睡不着的小伙伴加了看！➡️qnshh8</a>
-</h2>
-<p>周末八卦Wx来啦！睡不着的小伙伴加了看！➡️qnshh8<br><img src="http://ww4.sinaimg.cn/large/006bpLKTgw1ew17quqf7kj30ku112tdr.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
