@@ -44,6 +44,12 @@
 <p>
 	<small> ============== 5小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3886970310592950" target="freeweibo-mirror">【台湾共产主义】台湾人均GDP值4倍于大陆；推行12年义务教…</a>
+</h2>
+<p>【台湾共产主义】台湾人均GDP值4倍于大陆；推行12年义务教育，学生都有免费午餐，人人能考上大学，不存在上学难；人人看得起病，政府会管你的医疗；电视上谁都可以骂最高领导人；市民受儒家影响，个个温良恭俭让；文化保持了纯正的中国传统（仁义忠孝信处处可见）。我的祖宗，台湾这不是共产主义吗？<br><img src="http://ww1.sinaimg.cn/large/006dBNqyjw1ew1xhdfl1wj30k009dq4c.jpg"></p>
+<p>
+	<small> ============== 5小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3886969416880399" target="freeweibo-mirror">SPAM //@海龙-7: //@中国大陆准公民A: //@…</a>
 </h2>
 <p>SPAM //@海龙-7: //@中国大陆准公民A: //@何光伟:几条微博换来近1年的牢狱生活<br><br>RE: 记者刘虎的346天牢狱生活<br><img src="http://ww4.sinaimg.cn/large/7c1f76efgw1ew1uytdprjj20c82sm154.jpg"></p>
@@ -133,12 +139,6 @@
 <p>发表文章 http://t.cn/RytAd50</p>
 <p>
 	<small> ============== 10小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3886887183496521" target="freeweibo-mirror">SPAM 关于重提共产主义，他们自己也不信，既然自己都不信，…</a>
-</h2>
-<p>SPAM 关于重提共产主义，他们自己也不信，既然自己都不信，为何要提，其目的昭然若揭：拖！</p>
-<p>
-	<small> ============== 11小时前</small>
 </p>
 <table>
     <tr>
