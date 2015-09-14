@@ -78,13 +78,19 @@
 </h2>
 <p>SPAM //@整整明白: 乱战。。。。[睡][睡]<br><br>RE: 发表文章 http://t.cn/Ry5jmuD http://t.cn/R2dLikT</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3886872000839542" target="freeweibo-mirror">记者刘虎的牢狱生活</a>
 </h2>
 <p>记者刘虎的牢狱生活<br><img src="http://ww2.sinaimg.cn/large/d756e096gw1ew1m6nwv3nj20hs42dduf.jpg"></p>
 <p>
 	<small> ============== 5小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3886777410242553" target="freeweibo-mirror">BBC：“ 村内通讯全部被切断，外界无法联系。”</a>
+</h2>
+<p>BBC：“ 村内通讯全部被切断，外界无法联系。”<br><img src="http://ww1.sinaimg.cn/large/006cfcOSjw1ew1bb8lm9lj30k00zkgxk.jpg"></p>
+<p>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3886756766401686" target="freeweibo-mirror">//@章文的文章: //@悠野V:真敢说</a>
 </h2>
@@ -101,6 +107,12 @@
 	<a href="https://freeweibo.com/weibo/3886753506977703" target="freeweibo-mirror">SPAM 发表了一篇转载博文《[转载]發明創造》http:/…</a>
 </h2>
 <p>SPAM 发表了一篇转载博文《[转载]發明創造》http://t.cn/Ry5Ek1M<br><img src="http://ww1.sinaimg.cn/large/5408ee85jw1ew18l38yg9j20dl0hamz7.jpg"></p>
+<p>
+	<small> ============== 1天前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3886748926745965" target="freeweibo-mirror">早在1958年我们放出卫星“跑步进入共产主义”，建立过所谓“…</a>
+</h2>
+<p>早在1958年我们放出卫星“跑步进入共产主义”，建立过所谓“共产主义新乐园”，后来失败了，认为这是一场探索性错误。而前苏联试验了70年彻底告别，叶利钦认为“这是人民的一场悲剧，共产主义是一个美丽而愚蠢的乌托邦”。苏联无一人是男儿，半途而废了，现在我们重新出发，一定要实现共产主义。<br><img src="http://ww2.sinaimg.cn/large/c5d90a82jw1ew180j0pyjj20j20cpjt4.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p><h2>
@@ -125,18 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3886732073987623" target="freeweibo-mirror">SPAM 补下课了[偷笑]</a>
 </h2>
 <p>SPAM 补下课了[偷笑]</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3886731055542362" target="freeweibo-mirror">发表文章 http://t.cn/Ry5jmuD http:…</a>
-</h2>
-<p>发表文章 http://t.cn/Ry5jmuD http://t.cn/R2dLikT</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3886720019535671" target="freeweibo-mirror">SPAM //@共济会驻京办: 党校叫兽说了:不能让李嘉诚跑…</a>
-</h2>
-<p>SPAM //@共济会驻京办: 党校叫兽说了:不能让李嘉诚跑了!//@陶景洲:李嘉诚不够哥们儿。//@明资顾问0839：马云马化腾是不是要失眠？！是不是再思念李嘉诚？！<br><br>RE: 想到共产主义马上就要实现了，可以分马云马化腾们的财产了，可以睡别人漂亮的人妻了，打土豪分田地，打倒私有制，无产阶级最光荣。鸡冻，捉急，开森。</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
