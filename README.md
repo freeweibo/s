@@ -42,7 +42,7 @@
 </h2>
 <p>今天我作为一个长者,我有必要告诉你们一点人生的经验：相信包子的嘴不如相信我李嘉诚的腿！<br><img src="http://ww3.sinaimg.cn/large/0066xQzEgw1ew20vsutcaj30ot0gdwiu.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3886983959461655" target="freeweibo-mirror">回复@IOT1873:向外国要援助，政府主要搞福利，公共投资…</a>
 </h2>
@@ -66,7 +66,7 @@
 </h2>
 <p>【台湾共产主义】台湾人均GDP值4倍于大陆；推行12年义务教育，学生都有免费午餐，人人能考上大学，不存在上学难；人人看得起病，政府会管你的医疗；电视上谁都可以骂最高领导人；市民受儒家影响，个个温良恭俭让；文化保持了纯正的中国传统（仁义忠孝信处处可见）。我的祖宗，台湾这不是共产主义吗？<br><img src="http://ww1.sinaimg.cn/large/006dBNqyjw1ew1xhdfl1wj30k009dq4c.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3886969416880399" target="freeweibo-mirror">SPAM //@海龙-7: //@中国大陆准公民A: //@…</a>
 </h2>
@@ -96,7 +96,7 @@
 </h2>
 <p>SPAM //@上官云开记者: //@-蓝色-心情://@此路禁止通行: //@深秋亦无语: //@砀山人_在上海O:[吃惊][围观] //@加菲炮1314cat://@Hk灭豬魔神52://@曦曦雨EG://@游明磊43://@傘幕下的曉曉: //@负三度的冰://@MKANDYKLN:<br><br>RE: BBC：“ 村内通讯全部被切断，外界无法联系。”<br><img src="http://ww1.sinaimg.cn/large/006cfcOSjw1ew1bb8lm9lj30k00zkgxk.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3886916099006088" target="freeweibo-mirror">这不是烧钱，是投资，从前两部电影《建国大业》《建党伟业》的情…</a>
 </h2>
