@@ -30,7 +30,7 @@
 </h2>
 <p>SPAM 【VANS万斯官方大促专场】不能再错过今日[威武]全场1折大促！原价495，现在只要135！每天随机送出10台iPhone 6 Plus！几十个全新款式任选，明星潮人必备！[心]专柜信誉，香港代购附专柜发票，[赞]七天无理由退换货，[礼物]优惠仅此一天抢购地址>>http://t.cn/Ryzv6Bo</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3887113625850603" target="freeweibo-mirror">等辟谣。//@公民王石2:转发微博</a>
 </h2>
@@ -102,7 +102,7 @@
 </h2>
 <p>SPAM  //@江南囚://@千山万水依旧在: 高，实在是高！[哈哈][good]<br><br>RE: 今天我作为一个长者,我有必要告诉你们一点人生的经验：相信包子的嘴不如相信我李嘉诚的腿！<br><img src="http://ww3.sinaimg.cn/large/0066xQzEgw1ew20vsutcaj30ot0gdwiu.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3886999960443014" target="freeweibo-mirror">今天我作为一个长者,我有必要告诉你们一点人生的经验：相信包子…</a>
 </h2>
@@ -120,7 +120,7 @@
 </h2>
 <p>//@陈业文新大都:[阴险] //@渣打money://@塞北偏北10://@小军的自油20://@神评V剑客: //@十三姨萌萌哒:共产主义也不是不可能实现。当这个地球，仅剩下一个人的时候。。。您随便共。<br><br>RE: 最近，共产主义这个幽灵突然又活跃起来了！共产主义就是主张消灭私权，达成所谓解放全人类的一种思想。其实质是借权力强行占有和支配所有人的生存和财产的集权，国有全有集体沦为官有权有，连生命的生杀大权都在它手上，骨子里是一种恐怖独裁。<br><img src="http://ww2.sinaimg.cn/large/006dcJnfjw1ew1tacqzowj30c70f9756.jpg"></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3886972458002356" target="freeweibo-mirror">SPAM [吃惊][吃惊][吃惊][吃惊][吃惊][吃惊][…</a>
 </h2>
