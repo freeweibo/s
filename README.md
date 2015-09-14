@@ -114,7 +114,7 @@
 </h2>
 <p>SPAM  http://t.cn/Ryt4z96 //@谓贤:合法吗？</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3886909954364417" target="freeweibo-mirror">SPAM  //@建州雏: //@昆明湖_布都本命:[吐] …</a>
 </h2>
