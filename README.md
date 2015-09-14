@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3886932137943774" target="freeweibo-mirror">刘虎被不起诉后，正义网、法制网同时发布评论，若干官微转发，说…</a>
+</h2>
+<p>刘虎被不起诉后，正义网、法制网同时发布评论，若干官微转发，说他没罪不等于没错；还有若干官微转发一题为“刘虎，你几斤几两自己不清楚吗？”的评论。他们似乎在放话：你不要跳得欢，我们随时可以把你抓回来的！还有人对刘虎说，不起诉决定也不是不可以改变的！嗯，我信！http://t.cn/Ryt51Fw</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3886925251680135" target="freeweibo-mirror">SPAM //@上官云开记者: //@-蓝色-心情://@此…</a>
 </h2>
 <p>SPAM //@上官云开记者: //@-蓝色-心情://@此路禁止通行: //@深秋亦无语: //@砀山人_在上海O:[吃惊][围观] //@加菲炮1314cat://@Hk灭豬魔神52://@曦曦雨EG://@游明磊43://@傘幕下的曉曉: //@负三度的冰://@MKANDYKLN:<br><br>RE: BBC：“ 村内通讯全部被切断，外界无法联系。”<br><img src="http://ww1.sinaimg.cn/large/006cfcOSjw1ew1bb8lm9lj30k00zkgxk.jpg"></p>
@@ -30,7 +36,7 @@
 </h2>
 <p>这不是烧钱，是投资，从前两部电影《建国大业》《建党伟业》的情况看，赚钱是肯定的，南昌政府的行为无可厚非。不过确实应该报警，遇见博主这样的傻帽是应该报警抓去捡肥皂。</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3886914392492425" target="freeweibo-mirror">从签约仪式来看，不是做单个电影项目投资——双方计划成立博纳（…</a>
 </h2>
@@ -41,6 +47,12 @@
 	<a href="https://freeweibo.com/weibo/3886911716462722" target="freeweibo-mirror">SPAM  http://t.cn/Ryt4z96 //@谓…</a>
 </h2>
 <p>SPAM  http://t.cn/Ryt4z96 //@谓贤:合法吗？</p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3886909954364417" target="freeweibo-mirror">SPAM  //@建州雏: //@昆明湖_布都本命:[吐] …</a>
+</h2>
+<p>SPAM  //@建州雏: //@昆明湖_布都本命:[吐] //@雪夜饮酒浊: //@娘歆://@枯荣与共_MO51:[怒]//@囧纳森III:这帮法盲是谍战片看多了吧？//@废青的李二锅://@星川闌: 太下作 //@张凯律师--妈妈:简直无耻到了极点！ //@杨兴权律师:十多个人，伪装成电信维修工，欺骗孩子，到民宅抓捕一名牧师<br><br>RE: 红色恐怖@杨凤岗 @杨兴权律师 @欧阳委员 @东方月 @胡牧师 @父的孩子-小天哥<br><img src="http://ww1.sinaimg.cn/large/b627938fjw1ew0gpmtjd5j20dv0gxjs7.jpg"></p>
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
@@ -66,7 +78,7 @@
 </h2>
 <p>据本人所知，很多单位都组织观影活动，特别是工会。可以看美国大片、香港喜剧，就不能看主旋律？//@四环胡同:肯定赚呀，主旋律，“鼓励”党员干部带领群众自发组织观看，单位送票就更不用说了。</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3886899166944422" target="freeweibo-mirror">SPAM //@远征锋: //@如东维权王峰://@熊猫清清…</a>
 </h2>
@@ -125,18 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3886754039514986" target="freeweibo-mirror">SPAM 发表了一篇转载博文《[转载]領導范儿》http:/…</a>
 </h2>
 <p>SPAM 发表了一篇转载博文《[转载]領導范儿》http://t.cn/Ry5nAl7<br><img src="http://ww2.sinaimg.cn/large/5408ee85jw1ew18nb0isnj20di0fnq4w.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3886753506977703" target="freeweibo-mirror">SPAM 发表了一篇转载博文《[转载]發明創造》http:/…</a>
-</h2>
-<p>SPAM 发表了一篇转载博文《[转载]發明創造》http://t.cn/Ry5Ek1M<br><img src="http://ww1.sinaimg.cn/large/5408ee85jw1ew18l38yg9j20dl0hamz7.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3886748926745965" target="freeweibo-mirror">早在1958年我们放出卫星“跑步进入共产主义”，建立过所谓“…</a>
-</h2>
-<p>早在1958年我们放出卫星“跑步进入共产主义”，建立过所谓“共产主义新乐园”，后来失败了，认为这是一场探索性错误。而前苏联试验了70年彻底告别，叶利钦认为“这是人民的一场悲剧，共产主义是一个美丽而愚蠢的乌托邦”。苏联无一人是男儿，半途而废了，现在我们重新出发，一定要实现共产主义。<br><img src="http://ww2.sinaimg.cn/large/c5d90a82jw1ew180j0pyjj20j20cpjt4.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
