@@ -42,7 +42,7 @@
 </h2>
 <p>等辟谣。//@公民王石2:转发微博</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3887111964575638" target="freeweibo-mirror">SPAM 玩潮流，关注后告诉你是什么是专业！</a>
 </h2>
@@ -114,7 +114,7 @@
 </h2>
 <p>今天我作为一个长者,我有必要告诉你们一点人生的经验：相信包子的嘴不如相信我李嘉诚的腿！<br><img src="http://ww3.sinaimg.cn/large/0066xQzEgw1ew20vsutcaj30ot0gdwiu.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3886983959461655" target="freeweibo-mirror">回复@IOT1873:向外国要援助，政府主要搞福利，公共投资…</a>
 </h2>
