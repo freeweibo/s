@@ -30,7 +30,7 @@
 </h2>
 <p>SPAM //@上官云开记者: //@-蓝色-心情://@此路禁止通行: //@深秋亦无语: //@砀山人_在上海O:[吃惊][围观] //@加菲炮1314cat://@Hk灭豬魔神52://@曦曦雨EG://@游明磊43://@傘幕下的曉曉: //@负三度的冰://@MKANDYKLN:<br><br>RE: BBC：“ 村内通讯全部被切断，外界无法联系。”<br><img src="http://ww1.sinaimg.cn/large/006cfcOSjw1ew1bb8lm9lj30k00zkgxk.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3886916099006088" target="freeweibo-mirror">这不是烧钱，是投资，从前两部电影《建国大业》《建党伟业》的情…</a>
 </h2>
@@ -54,7 +54,7 @@
 </h2>
 <p>SPAM  //@建州雏: //@昆明湖_布都本命:[吐] //@雪夜饮酒浊: //@娘歆://@枯荣与共_MO51:[怒]//@囧纳森III:这帮法盲是谍战片看多了吧？//@废青的李二锅://@星川闌: 太下作 //@张凯律师--妈妈:简直无耻到了极点！ //@杨兴权律师:十多个人，伪装成电信维修工，欺骗孩子，到民宅抓捕一名牧师<br><br>RE: 红色恐怖@杨凤岗 @杨兴权律师 @欧阳委员 @东方月 @胡牧师 @父的孩子-小天哥<br><img src="http://ww1.sinaimg.cn/large/b627938fjw1ew0gpmtjd5j20dv0gxjs7.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3886907941232094" target="freeweibo-mirror">这个国家领导出来放“卫星”，这个民族没希望 //@应天澜:这…</a>
 </h2>
