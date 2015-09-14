@@ -48,7 +48,7 @@
 </h2>
 <p>SPAM 这文章值得一读。<br><img src="http://ww1.sinaimg.cn/large/9ddb72ebjw1ew27n8zafyj20hs42dk5u.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3887041626933917" target="freeweibo-mirror">谁在“倒行逆施”，谁是“过街老鼠”，与那里的同行、朋友和学生…</a>
 </h2>
@@ -108,7 +108,7 @@
 </h2>
 <p>SPAM 中国式警媒角力。<br><br>RE: 记者刘虎的346天牢狱生活<br><img src="http://ww4.sinaimg.cn/large/7c1f76efgw1ew1uytdprjj20c82sm154.jpg"></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3886948391184462" target="freeweibo-mirror">记者刘虎的346天牢狱生活</a>
 </h2>
