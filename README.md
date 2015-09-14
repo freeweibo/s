@@ -72,7 +72,7 @@
 </h2>
 <p>今天我作为一个长者,我有必要告诉你们一点人生的经验：相信包子的嘴不如相信我李嘉诚的腿！<br><img src="http://ww3.sinaimg.cn/large/0066xQzEgw1ew20vsutcaj30ot0gdwiu.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3886983959461655" target="freeweibo-mirror">回复@IOT1873:向外国要援助，政府主要搞福利，公共投资…</a>
 </h2>
@@ -96,7 +96,7 @@
 </h2>
 <p>【台湾共产主义】台湾人均GDP值4倍于大陆；推行12年义务教育，学生都有免费午餐，人人能考上大学，不存在上学难；人人看得起病，政府会管你的医疗；电视上谁都可以骂最高领导人；市民受儒家影响，个个温良恭俭让；文化保持了纯正的中国传统（仁义忠孝信处处可见）。我的祖宗，台湾这不是共产主义吗？<br><img src="http://ww1.sinaimg.cn/large/006dBNqyjw1ew1xhdfl1wj30k009dq4c.jpg"></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3886969416880399" target="freeweibo-mirror">SPAM //@海龙-7: //@中国大陆准公民A: //@…</a>
 </h2>
@@ -120,7 +120,7 @@
 </h2>
 <p>刘虎被不起诉后，正义网、法制网同时发布评论，若干官微转发，说他没罪不等于没错；还有若干官微转发一题为“刘虎，你几斤几两自己不清楚吗？”的评论。他们似乎在放话：你不要跳得欢，我们随时可以把你抓回来的！还有人对刘虎说，不起诉决定也不是不可以改变的！嗯，我信！http://t.cn/Ryt51Fw</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3886925251680135" target="freeweibo-mirror">SPAM //@上官云开记者: //@-蓝色-心情://@此…</a>
 </h2>
