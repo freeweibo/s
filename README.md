@@ -126,7 +126,7 @@
 </h2>
 <p>BBC：“ 村内通讯全部被切断，外界无法联系。”<br><img src="http://ww1.sinaimg.cn/large/006cfcOSjw1ew1bb8lm9lj30k00zkgxk.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3886756766401686" target="freeweibo-mirror">//@章文的文章: //@悠野V:真敢说</a>
 </h2>
