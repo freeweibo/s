@@ -20,9 +20,21 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3887041626933917" target="freeweibo-mirror">谁在“倒行逆施”，谁是“过街老鼠”，与那里的同行、朋友和学生…</a>
+</h2>
+<p>谁在“倒行逆施”，谁是“过街老鼠”，与那里的同行、朋友和学生聊聊天，很快就能得到准确的答案。<br><br>RE: 香港政制50年不变，是邓小平当年决策和承诺。香港司法终审权，体现了三权分立实质上不可动摇，除非修改基本法。妄议行政中心论，是一种盲目自信和蛮干。有人可能想参照殖民地总督制。但不知道英联邦的总督制恰植根于三权分立，而非英国皇室。http://t.cn/Ry52bon<br><img src="http://ww2.sinaimg.cn/large/6b804b51jw1ew0rw9378kj20ez0qon13.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3887031765561069" target="freeweibo-mirror">//@CASON_JOBS: //@章诒和:哈！//@徐昕:…</a>
 </h2>
 <p>//@CASON_JOBS: //@章诒和:哈！//@徐昕: 少谈主义 //@我们是纳税人://@公正善良: //@浩瀚浪涛: //@演员孙海英:转发<br><br>RE: 【台湾共产主义】台湾人均GDP值4倍于大陆；推行12年义务教育，学生都有免费午餐，人人能考上大学，不存在上学难；人人看得起病，政府会管你的医疗；电视上谁都可以骂最高领导人；市民受儒家影响，个个温良恭俭让；文化保持了纯正的中国传统（仁义忠孝信处处可见）。我的祖宗，台湾这不是共产主义吗？<br><img src="http://ww1.sinaimg.cn/large/006dBNqyjw1ew1xhdfl1wj30k009dq4c.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3887023763135389" target="freeweibo-mirror">SPAM  //@江南囚://@千山万水依旧在: 高，实在是…</a>
+</h2>
+<p>SPAM  //@江南囚://@千山万水依旧在: 高，实在是高！[哈哈][good]<br><br>RE: 今天我作为一个长者,我有必要告诉你们一点人生的经验：相信包子的嘴不如相信我李嘉诚的腿！<br><img src="http://ww3.sinaimg.cn/large/0066xQzEgw1ew20vsutcaj30ot0gdwiu.jpg"></p>
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
@@ -72,7 +84,7 @@
 </h2>
 <p>刘虎被不起诉后，正义网、法制网同时发布评论，若干官微转发，说他没罪不等于没错；还有若干官微转发一题为“刘虎，你几斤几两自己不清楚吗？”的评论。他们似乎在放话：你不要跳得欢，我们随时可以把你抓回来的！还有人对刘虎说，不起诉决定也不是不可以改变的！嗯，我信！http://t.cn/Ryt51Fw</p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3886925251680135" target="freeweibo-mirror">SPAM //@上官云开记者: //@-蓝色-心情://@此…</a>
 </h2>
@@ -125,18 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3886901037751933" target="freeweibo-mirror">据本人所知，很多单位都组织观影活动，特别是工会。可以看美国大…</a>
 </h2>
 <p>据本人所知，很多单位都组织观影活动，特别是工会。可以看美国大片、香港喜剧，就不能看主旋律？//@四环胡同:肯定赚呀，主旋律，“鼓励”党员干部带领群众自发组织观看，单位送票就更不用说了。</p>
-<p>
-	<small> ============== 11小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3886899166944422" target="freeweibo-mirror">SPAM //@远征锋: //@如东维权王峰://@熊猫清清…</a>
-</h2>
-<p>SPAM //@远征锋: //@如东维权王峰://@熊猫清清河边草: //@通城风雨://@常州吴明远: //@作家东海:没有人权，你连人都不是。[怒][话筒]<br><br>RE: 记者刘虎的牢狱生活<br><img src="http://ww2.sinaimg.cn/large/d756e096gw1ew1m6nwv3nj20hs42dduf.jpg"></p>
-<p>
-	<small> ============== 11小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3886897304862436" target="freeweibo-mirror">发表文章 http://t.cn/RytAd50</a>
-</h2>
-<p>发表文章 http://t.cn/RytAd50</p>
 <p>
 	<small> ============== 11小时前</small>
 </p>
