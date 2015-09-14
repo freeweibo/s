@@ -42,7 +42,7 @@
 </h2>
 <p>SPAM 玩潮流，关注后告诉你是什么是专业！</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3887106386433436" target="freeweibo-mirror">嗯，说的是朝鲜!</a>
 </h2>
@@ -138,7 +138,7 @@
 </h2>
 <p>SPAM //@海龙-7: //@中国大陆准公民A: //@何光伟:几条微博换来近1年的牢狱生活<br><br>RE: 记者刘虎的346天牢狱生活<br><img src="http://ww4.sinaimg.cn/large/7c1f76efgw1ew1uytdprjj20c82sm154.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p>
 <table>
     <tr>
