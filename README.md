@@ -26,6 +26,12 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3887105874447506" target="freeweibo-mirror">最近和平二字頻頻见诸报端。需要知道的是，和平首先是个国内概念…</a>
+</h2>
+<p>最近和平二字頻頻见诸报端。需要知道的是，和平首先是个国内概念，其次才是国与国之关系。当一个政权视其国民为仇寇、为盗賊、为嫌疑犯，并以绝对暴力禁锢其国民，恐吓其国民，迫害其国民，它的統治就沒有什么合法性可言。这样的政权也不配谈论和平，它所做出的一切和平承諾都应视为謊言。</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3887089575690996" target="freeweibo-mirror">SPAM 学会感觉</a>
 </h2>
 <p>SPAM 学会感觉<br><img src="http://ww1.sinaimg.cn/large/6d1b7fb6jw1ew2b6f8ol6j20hs0vkjvh.jpg"></p>
@@ -96,7 +102,7 @@
 </h2>
 <p>SPAM [吃惊][吃惊][吃惊][吃惊][吃惊][吃惊][吃惊][吃惊][吃惊][吃惊][吃惊][吃惊][吃惊][吃惊][吃惊][吃惊][吃惊][吃惊][吃惊][吃惊][吃惊][吃惊][吃惊][吃惊] http://t.cn/R77GJA6</p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3886970310592950" target="freeweibo-mirror">【台湾共产主义】台湾人均GDP值4倍于大陆；推行12年义务教…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3886925251680135" target="freeweibo-mirror">SPAM //@上官云开记者: //@-蓝色-心情://@此…</a>
 </h2>
 <p>SPAM //@上官云开记者: //@-蓝色-心情://@此路禁止通行: //@深秋亦无语: //@砀山人_在上海O:[吃惊][围观] //@加菲炮1314cat://@Hk灭豬魔神52://@曦曦雨EG://@游明磊43://@傘幕下的曉曉: //@负三度的冰://@MKANDYKLN:<br><br>RE: BBC：“ 村内通讯全部被切断，外界无法联系。”<br><img src="http://ww1.sinaimg.cn/large/006cfcOSjw1ew1bb8lm9lj30k00zkgxk.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3886916099006088" target="freeweibo-mirror">这不是烧钱，是投资，从前两部电影《建国大业》《建党伟业》的情…</a>
-</h2>
-<p>这不是烧钱，是投资，从前两部电影《建国大业》《建党伟业》的情况看，赚钱是肯定的，南昌政府的行为无可厚非。不过确实应该报警，遇见博主这样的傻帽是应该报警抓去捡肥皂。</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
