@@ -96,7 +96,7 @@
 </h2>
 <p>谁在“倒行逆施”，谁是“过街老鼠”，与那里的同行、朋友和学生聊聊天，很快就能得到准确的答案。<br><br>RE: 香港政制50年不变，是邓小平当年决策和承诺。香港司法终审权，体现了三权分立实质上不可动摇，除非修改基本法。妄议行政中心论，是一种盲目自信和蛮干。有人可能想参照殖民地总督制。但不知道英联邦的总督制恰植根于三权分立，而非英国皇室。http://t.cn/Ry52bon<br><img src="http://ww2.sinaimg.cn/large/6b804b51jw1ew0rw9378kj20ez0qon13.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3887031765561069" target="freeweibo-mirror">//@CASON_JOBS: //@章诒和:哈！//@徐昕:…</a>
 </h2>
