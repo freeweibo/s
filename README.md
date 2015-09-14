@@ -90,7 +90,7 @@
 </h2>
 <p>从签约仪式来看，不是做单个电影项目投资——双方计划成立博纳（南昌）影视公司以及设立影视投资基金，基金规模15至17亿元，资金由博纳募集。博纳拟在江西投资拍电影、建电影院、建影视基地等相关项目。 http://t.cn/Ryt43YT //@老家伙Bill_WU:政府拿纳税人的钱来做单个电影项目投资……</p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3886911716462722" target="freeweibo-mirror">SPAM  http://t.cn/Ryt4z96 //@谓…</a>
 </h2>
@@ -132,7 +132,7 @@
 </h2>
 <p>SPAM //@远征锋: //@如东维权王峰://@熊猫清清河边草: //@通城风雨://@常州吴明远: //@作家东海:没有人权，你连人都不是。[怒][话筒]<br><br>RE: 记者刘虎的牢狱生活<br><img src="http://ww2.sinaimg.cn/large/d756e096gw1ew1m6nwv3nj20hs42dduf.jpg"></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3886897304862436" target="freeweibo-mirror">发表文章 http://t.cn/RytAd50</a>
 </h2>
