@@ -114,13 +114,13 @@
 </h2>
 <p>[偷笑] //@LifeTime: //@军事观察员东旭:转发微博<br><br>RE: 公安部给360的感谢信，360激动地贴出来。。。。<br><img src="http://ww4.sinaimg.cn/large/6a3d7f8cgw1ew28y60lgtj20c80vowh4.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3887247818464692" target="freeweibo-mirror">SPAM  //@张晨初艺术空间://@好说话还随和: //…</a>
 </h2>
 <p>SPAM  //@张晨初艺术空间://@好说话还随和: //@徐昕:好看</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3887239308089729" target="freeweibo-mirror">这代表用户需求//@隆裕太后: 务实！//@南柯舟:看来清华…</a>
 </h2>
