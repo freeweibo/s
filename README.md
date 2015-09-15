@@ -108,7 +108,7 @@
 </h2>
 <p>郭美美在美国的亲戚在喊话：给中国三天时间，如果不释放郭美美，立即向《纽约时报》披露郭美美提供震憾资料……<br><img src="http://ww3.sinaimg.cn/large/006dBNqyjw1ew2wuphwehj30fm0dptbb.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3887266969518822" target="freeweibo-mirror">//@尹鸿:任何立论，不是以最大限度地保护人的生命和权利为出…</a>
 </h2>
