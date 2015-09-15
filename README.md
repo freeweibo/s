@@ -54,7 +54,7 @@
 </h2>
 <p>看人看问题都要看本质。他活着的时候不讲问题，以后早晚要讲。我分享了@鲁迅民族魂 的文章 http://t.cn/RyqB11F</p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3887146194854529" target="freeweibo-mirror">SPAM 哈//@赣南好脐橙微博: 小马，原来你也曾经很帅 …</a>
 </h2>
@@ -90,13 +90,19 @@
 </h2>
 <p>嗯，说的是朝鲜!<br><br>RE: 最近和平二字頻頻见诸报端。需要知道的是，和平首先是个国内概念，其次才是国与国之关系。当一个政权视其国民为仇寇、为盗賊、为嫌疑犯，并以绝对暴力禁锢其国民，恐吓其国民，迫害其国民，它的統治就沒有什么合法性可言。这样的政权也不配谈论和平，它所做出的一切和平承諾都应视为謊言。</p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3887105874447506" target="freeweibo-mirror">最近和平二字頻頻见诸报端。需要知道的是，和平首先是个国内概念…</a>
 </h2>
 <p>最近和平二字頻頻见诸报端。需要知道的是，和平首先是个国内概念，其次才是国与国之关系。当一个政权视其国民为仇寇、为盗賊、为嫌疑犯，并以绝对暴力禁锢其国民，恐吓其国民，迫害其国民，它的統治就沒有什么合法性可言。这样的政权也不配谈论和平，它所做出的一切和平承諾都应视为謊言。</p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3887102213334225" target="freeweibo-mirror">@韩寒 厦大演讲，精彩，速看http://t.cn/Ryt8…</a>
+</h2>
+<p>@韩寒 厦大演讲，精彩，速看http://t.cn/Ryt82iK</p>
+<p>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3887093408901114" target="freeweibo-mirror">这就是“依法治国”？[生病]</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3887058781361201" target="freeweibo-mirror">SPAM 这文章值得一读。</a>
 </h2>
 <p>SPAM 这文章值得一读。<br><img src="http://ww1.sinaimg.cn/large/9ddb72ebjw1ew27n8zafyj20hs42dk5u.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3887041626933917" target="freeweibo-mirror">谁在“倒行逆施”，谁是“过街老鼠”，与那里的同行、朋友和学生…</a>
-</h2>
-<p>谁在“倒行逆施”，谁是“过街老鼠”，与那里的同行、朋友和学生聊聊天，很快就能得到准确的答案。<br><br>RE: 香港政制50年不变，是邓小平当年决策和承诺。香港司法终审权，体现了三权分立实质上不可动摇，除非修改基本法。妄议行政中心论，是一种盲目自信和蛮干。有人可能想参照殖民地总督制。但不知道英联邦的总督制恰植根于三权分立，而非英国皇室。http://t.cn/Ry52bon<br><img src="http://ww2.sinaimg.cn/large/6b804b51jw1ew0rw9378kj20ez0qon13.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
