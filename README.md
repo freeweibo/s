@@ -24,7 +24,7 @@
 </h2>
 <p>SPAM 朋友圈被一个黄色的蠢萌天团占领，史上最萌的电影角色小黄人又双叒叕来啦！这次它们不再是配角，从史前的单细胞黄色生物体到格鲁的呆萌仆人，小黄人的小秘密你知道多少？猛戳大图告诉你的电影上看不到的没脖子星人的100个冷知识！Banana！Yum Yum！<br><img src="http://ww1.sinaimg.cn/large/6f86dff2gw1ew37vo6d9tj20c884g1kx.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3887355188269485" target="freeweibo-mirror">SPAM //@谭人玮: //@文山娃: 或者默克爾… //…</a>
 </h2>
@@ -120,7 +120,7 @@
 </h2>
 <p>//@北京厨子新号:可怕</p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3887228943927749" target="freeweibo-mirror">历史罪人。</a>
 </h2>
