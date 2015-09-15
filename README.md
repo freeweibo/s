@@ -26,6 +26,12 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3887286745799954" target="freeweibo-mirror">【徐庆全、杜明明：万里的政治担当】80年代的历史中有一个悖论…</a>
+</h2>
+<p>【徐庆全、杜明明：万里的政治担当】80年代的历史中有一个悖论贯穿其中。这就是：在庙堂之高履职却声播江湖乏远的人，往往结局不是太妙。胡耀邦等就不要说了，就万里而言，因为讲政治体制改革太多了，因为被民间目为改革派的代表，所以，始终进入不了权力的最高层——政治局常委。http://t.cn/Ryc13T8<br><img src="http://ww1.sinaimg.cn/large/544a318cgw1ew2xtrkj3tj208v0643ym.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3887266969518822" target="freeweibo-mirror">//@尹鸿:任何立论，不是以最大限度地保护人的生命和权利为出…</a>
 </h2>
 <p>//@尹鸿:任何立论，不是以最大限度地保护人的生命和权利为出发点，都是别有用心。<br><br>RE: 国外的鹰派，无论对外态度多么强硬，都不会对本国百姓丝毫轻视。我国的一些鹰派，不是整日以笔作刀，一脸狰狞，跟普通网民过不去，在网络上留下一片喊杀声；要么就是动辄声称如果跟外国发生战争时死伤多少百姓不在乎，大片国土都可以弃之不要。这样的鹰派在任何国家都会被视为打着爱国旗号的独夫民贼。</p>
@@ -62,11 +68,17 @@
 <p>
 	<small> ============== 6小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3887222544006624" target="freeweibo-mirror">国外的鹰派，无论对外态度多么强硬，都不会对本国百姓丝毫轻视。…</a>
+</h2>
+<p>国外的鹰派，无论对外态度多么强硬，都不会对本国百姓丝毫轻视。我国的一些鹰派，不是整日以笔作刀，一脸狰狞，跟普通网民过不去，在网络上留下一片喊杀声；要么就是动辄声称如果跟外国发生战争时死伤多少百姓不在乎，大片国土都可以弃之不要。这样的鹰派在任何国家都会被视为打着爱国旗号的独夫民贼。</p>
+<p>
+	<small> ============== 6小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3887217200546427" target="freeweibo-mirror">SPAM 我正在看【陸旅社發文禁反共片 觀光局重申言論自由 …</a>
 </h2>
 <p>SPAM 我正在看【陸旅社發文禁反共片 觀光局重申言論自由 - 新唐人亞太電視台】，分享给你，一起看吧！http://t.cn/RycNL1l<br><img src="http://ww2.sinaimg.cn/large/72276697jw1ew2pu95sq7j20u01f9wm0.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3887150871601479" target="freeweibo-mirror">看人看问题都要看本质。他活着的时候不讲问题，以后早晚要讲。我…</a>
 </h2>
@@ -125,18 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3887102213334225" target="freeweibo-mirror">@韩寒 厦大演讲，精彩，速看http://t.cn/Ryt8…</a>
 </h2>
 <p>@韩寒 厦大演讲，精彩，速看http://t.cn/Ryt82iK</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3887093408901114" target="freeweibo-mirror">这就是“依法治国”？[生病]</a>
-</h2>
-<p>这就是“依法治国”？[生病]<br><img src="http://ww3.sinaimg.cn/large/6f47298bgw1ew2bm7rueij20c82sm7fd.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3887089575690996" target="freeweibo-mirror">SPAM 学会感觉</a>
-</h2>
-<p>SPAM 学会感觉<br><img src="http://ww1.sinaimg.cn/large/6d1b7fb6jw1ew2b6f8ol6j20hs0vkjvh.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
