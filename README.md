@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3887294937191573" target="freeweibo-mirror">SPAM 拼了.....? ? ? ? ?</a>
+</h2>
+<p>SPAM 拼了.....? ? ? ? ?<br><br>RE: 郭美美在美国的亲戚在喊话：给中国三天时间，如果不释放郭美美，立即向《纽约时报》披露郭美美提供震憾资料……<br><img src="http://ww3.sinaimg.cn/large/006dBNqyjw1ew2wuphwehj30fm0dptbb.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3887288826290563" target="freeweibo-mirror">【万里接着说：我认为，我们应该广开言路，破除言禁，把宪法规定…</a>
 </h2>
 <p>【万里接着说：我认为，我们应该广开言路，破除言禁，把宪法规定的言论自由切实付诸实施。堂堂10亿人口的社会主义大国，只要领导路线正确，政通人和，百业兴旺，是不会被几句逆耳之言或别有用心的人借某些问题的煽动搞垮的。】<br><br>RE: 【徐庆全、杜明明：万里的政治担当】80年代的历史中有一个悖论贯穿其中。这就是：在庙堂之高履职却声播江湖乏远的人，往往结局不是太妙。胡耀邦等就不要说了，就万里而言，因为讲政治体制改革太多了，因为被民间目为改革派的代表，所以，始终进入不了权力的最高层——政治局常委。http://t.cn/Ryc13T8<br><img src="http://ww1.sinaimg.cn/large/544a318cgw1ew2xtrkj3tj208v0643ym.jpg"></p>
@@ -42,7 +48,7 @@
 </h2>
 <p>[偷笑] //@LifeTime: //@军事观察员东旭:转发微博<br><br>RE: 公安部给360的感谢信，360激动地贴出来。。。。<br><img src="http://ww4.sinaimg.cn/large/6a3d7f8cgw1ew28y60lgtj20c80vowh4.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3887247818464692" target="freeweibo-mirror">SPAM  //@张晨初艺术空间://@好说话还随和: //…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3887104780502988" target="freeweibo-mirror">某农村老支书喟叹：不要老是思量打什么大旗，走什么道路，喊什么…</a>
 </h2>
 <p>某农村老支书喟叹：不要老是思量打什么大旗，走什么道路，喊什么口号了。这都是装B！戏演三遍无人看，百姓早就腻歪了！你只要真心把对朝鲜的包容，对古巴的仁义，对非洲的慷慨，对俄国的孝顺，转用到国内百姓身上，包你国泰民安。<br><img src="http://ww3.sinaimg.cn/large/006cIMfnjw1ew2cxfdz6aj30ax09aaas.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3887102213334225" target="freeweibo-mirror">@韩寒 厦大演讲，精彩，速看http://t.cn/Ryt8…</a>
-</h2>
-<p>@韩寒 厦大演讲，精彩，速看http://t.cn/Ryt82iK</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
