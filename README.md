@@ -60,7 +60,7 @@
 </h2>
 <p>SPAM 【VANS万斯官方大促专场】不能再错过今日[威武]全场1折大促！原价495，现在只要135！每天随机送出10台iPhone 6 Plus！几十个全新款式任选，明星潮人必备！[心]专柜信誉，香港代购附专柜发票，[赞]七天无理由退换货，[礼物]优惠仅此一天抢购地址>>http://t.cn/Ryzv6Bo</p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3887113625850603" target="freeweibo-mirror">等辟谣。//@公民王石2:转发微博</a>
 </h2>
@@ -114,7 +114,7 @@
 </h2>
 <p>SPAM 浪费那么多人力//@范桶: 想安罪名却一败涂地//@昕静自然好:是谁拍板抓刘虎的？ //@思达逸语: 一定要好好读。</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3887058781361201" target="freeweibo-mirror">SPAM 这文章值得一读。</a>
 </h2>
