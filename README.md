@@ -98,11 +98,17 @@
 <p>
 	<small> ============== 12小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3887104780502988" target="freeweibo-mirror">某农村老支书喟叹：不要老是思量打什么大旗，走什么道路，喊什么…</a>
+</h2>
+<p>某农村老支书喟叹：不要老是思量打什么大旗，走什么道路，喊什么口号了。这都是装B！戏演三遍无人看，百姓早就腻歪了！你只要真心把对朝鲜的包容，对古巴的仁义，对非洲的慷慨，对俄国的孝顺，转用到国内百姓身上，包你国泰民安。<br><img src="http://ww3.sinaimg.cn/large/006cIMfnjw1ew2cxfdz6aj30ax09aaas.jpg"></p>
+<p>
+	<small> ============== 12小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3887102213334225" target="freeweibo-mirror">@韩寒 厦大演讲，精彩，速看http://t.cn/Ryt8…</a>
 </h2>
 <p>@韩寒 厦大演讲，精彩，速看http://t.cn/Ryt82iK</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3887093408901114" target="freeweibo-mirror">这就是“依法治国”？[生病]</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3887077391539756" target="freeweibo-mirror">SPAM 浪费那么多人力//@范桶: 想安罪名却一败涂地//…</a>
 </h2>
 <p>SPAM 浪费那么多人力//@范桶: 想安罪名却一败涂地//@昕静自然好:是谁拍板抓刘虎的？ //@思达逸语: 一定要好好读。</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3887058781361201" target="freeweibo-mirror">SPAM 这文章值得一读。</a>
-</h2>
-<p>SPAM 这文章值得一读。<br><img src="http://ww1.sinaimg.cn/large/9ddb72ebjw1ew27n8zafyj20hs42dk5u.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
