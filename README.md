@@ -42,7 +42,7 @@
 </h2>
 <p>SPAM //@谭人玮: //@文山娃: 或者默克爾… //@李明波Hamas:让奥巴马多见几次大大呗//@文山娃:大概看領導心情。//@黔山鹰：浦律啥时回家？</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3887344815736399" target="freeweibo-mirror">玉闪还是胖点好看。那么瘦看得心酸[泪] //@阿花的伊萨卡岛…</a>
 </h2>
@@ -84,7 +84,7 @@
 </h2>
 <p>SPAM 拼了.....? ? ? ? ?<br><br>RE: 郭美美在美国的亲戚在喊话：给中国三天时间，如果不释放郭美美，立即向《纽约时报》披露郭美美提供震憾资料……<br><img src="http://ww3.sinaimg.cn/large/006dBNqyjw1ew2wuphwehj30fm0dptbb.jpg"></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3887291770236239" target="freeweibo-mirror">在别人的汤里看到了一堆特别有意思的照片，就想分享出来。多可爱…</a>
 </h2>
