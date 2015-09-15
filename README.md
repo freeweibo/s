@@ -36,7 +36,7 @@
 </h2>
 <p>【徐庆全、杜明明：万里的政治担当】80年代的历史中有一个悖论贯穿其中。这就是：在庙堂之高履职却声播江湖乏远的人，往往结局不是太妙。胡耀邦等就不要说了，就万里而言，因为讲政治体制改革太多了，因为被民间目为改革派的代表，所以，始终进入不了权力的最高层——政治局常委。http://t.cn/Ryc13T8<br><img src="http://ww1.sinaimg.cn/large/544a318cgw1ew2xtrkj3tj208v0643ym.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3887266969518822" target="freeweibo-mirror">//@尹鸿:任何立论，不是以最大限度地保护人的生命和权利为出…</a>
 </h2>
@@ -90,7 +90,7 @@
 </h2>
 <p>看人看问题都要看本质。他活着的时候不讲问题，以后早晚要讲。我分享了@鲁迅民族魂 的文章 http://t.cn/RyqB11F</p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3887146194854529" target="freeweibo-mirror">SPAM 哈//@赣南好脐橙微博: 小马，原来你也曾经很帅 …</a>
 </h2>
