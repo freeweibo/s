@@ -30,7 +30,7 @@
 </h2>
 <p>SPAM 拼了.....? ? ? ? ?<br><br>RE: 郭美美在美国的亲戚在喊话：给中国三天时间，如果不释放郭美美，立即向《纽约时报》披露郭美美提供震憾资料……<br><img src="http://ww3.sinaimg.cn/large/006dBNqyjw1ew2wuphwehj30fm0dptbb.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3887288826290563" target="freeweibo-mirror">【万里接着说：我认为，我们应该广开言路，破除言禁，把宪法规定…</a>
 </h2>
@@ -102,7 +102,7 @@
 </h2>
 <p>看人看问题都要看本质。他活着的时候不讲问题，以后早晚要讲。我分享了@鲁迅民族魂 的文章 http://t.cn/RyqB11F</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3887146194854529" target="freeweibo-mirror">SPAM 哈//@赣南好脐橙微博: 小马，原来你也曾经很帅 …</a>
 </h2>
