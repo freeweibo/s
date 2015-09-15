@@ -60,7 +60,7 @@
 </h2>
 <p>朱棣篡位做上黄帝，为了让自己的执政合法性不受外界质疑，便使尽举国之力为自己创造了四大功劳，弄什么郑和下西洋、编辑永乐大典、北阀蒙古、南征越南、这都是一块遮羞布。今天的朝上又搞什么大阅兵式，基本也是这个意思。用大阅兵式来抵毁国民政府功劳，借此模糊国人对这段历史的概念来混淆视听而已。<br><img src="http://ww4.sinaimg.cn/large/a387f7fcgw1ew33v55nnvj207g09nwej.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3887320404871095" target="freeweibo-mirror">SPAM 急招临时工；要求：会上网即可，时间：自由安排，每天…</a>
 </h2>
@@ -102,7 +102,7 @@
 </h2>
 <p>郭美美在美国的亲戚在喊话：给中国三天时间，如果不释放郭美美，立即向《纽约时报》披露郭美美提供震憾资料……<br><img src="http://ww3.sinaimg.cn/large/006dBNqyjw1ew2wuphwehj30fm0dptbb.jpg"></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3887266969518822" target="freeweibo-mirror">//@尹鸿:任何立论，不是以最大限度地保护人的生命和权利为出…</a>
 </h2>
@@ -120,7 +120,7 @@
 </h2>
 <p>SPAM  //@张晨初艺术空间://@好说话还随和: //@徐昕:好看</p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3887239308089729" target="freeweibo-mirror">这代表用户需求//@隆裕太后: 务实！//@南柯舟:看来清华…</a>
 </h2>
