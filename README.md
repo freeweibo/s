@@ -24,7 +24,7 @@
 </h2>
 <p>SPAM  //@张晨初艺术空间://@好说话还随和: //@徐昕:好看</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3887239308089729" target="freeweibo-mirror">这代表用户需求//@隆裕太后: 务实！//@南柯舟:看来清华…</a>
 </h2>
@@ -84,7 +84,7 @@
 </h2>
 <p>SPAM 玩潮流，关注后告诉你是什么是专业！</p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3887106386433436" target="freeweibo-mirror">嗯，说的是朝鲜!</a>
 </h2>
@@ -102,7 +102,7 @@
 </h2>
 <p>某农村老支书喟叹：不要老是思量打什么大旗，走什么道路，喊什么口号了。这都是装B！戏演三遍无人看，百姓早就腻歪了！你只要真心把对朝鲜的包容，对古巴的仁义，对非洲的慷慨，对俄国的孝顺，转用到国内百姓身上，包你国泰民安。<br><img src="http://ww3.sinaimg.cn/large/006cIMfnjw1ew2cxfdz6aj30ax09aaas.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3887102213334225" target="freeweibo-mirror">@韩寒 厦大演讲，精彩，速看http://t.cn/Ryt8…</a>
 </h2>
