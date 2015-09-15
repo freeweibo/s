@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3887303036153378" target="freeweibo-mirror">SPAM  //@潘益兵:使出杀手锏了？</a>
+</h2>
+<p>SPAM  //@潘益兵:使出杀手锏了？<br><br>RE: 郭美美在美国的亲戚在喊话：给中国三天时间，如果不释放郭美美，立即向《纽约时报》披露郭美美提供震憾资料……<br><img src="http://ww3.sinaimg.cn/large/006dBNqyjw1ew2wuphwehj30fm0dptbb.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3887294937191573" target="freeweibo-mirror">SPAM 拼了.....? ? ? ? ?</a>
 </h2>
 <p>SPAM 拼了.....? ? ? ? ?<br><br>RE: 郭美美在美国的亲戚在喊话：给中国三天时间，如果不释放郭美美，立即向《纽约时报》披露郭美美提供震憾资料……<br><img src="http://ww3.sinaimg.cn/large/006dBNqyjw1ew2wuphwehj30fm0dptbb.jpg"></p>
@@ -42,7 +48,7 @@
 </h2>
 <p>郭美美在美国的亲戚在喊话：给中国三天时间，如果不释放郭美美，立即向《纽约时报》披露郭美美提供震憾资料……<br><img src="http://ww3.sinaimg.cn/large/006dBNqyjw1ew2wuphwehj30fm0dptbb.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3887266969518822" target="freeweibo-mirror">//@尹鸿:任何立论，不是以最大限度地保护人的生命和权利为出…</a>
 </h2>
@@ -60,7 +66,7 @@
 </h2>
 <p>SPAM  //@张晨初艺术空间://@好说话还随和: //@徐昕:好看</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3887239308089729" target="freeweibo-mirror">这代表用户需求//@隆裕太后: 务实！//@南柯舟:看来清华…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3887106386433436" target="freeweibo-mirror">嗯，说的是朝鲜!</a>
 </h2>
 <p>嗯，说的是朝鲜!<br><br>RE: 最近和平二字頻頻见诸报端。需要知道的是，和平首先是个国内概念，其次才是国与国之关系。当一个政权视其国民为仇寇、为盗賊、为嫌疑犯，并以绝对暴力禁锢其国民，恐吓其国民，迫害其国民，它的統治就沒有什么合法性可言。这样的政权也不配谈论和平，它所做出的一切和平承諾都应视为謊言。</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3887105874447506" target="freeweibo-mirror">最近和平二字頻頻见诸报端。需要知道的是，和平首先是个国内概念…</a>
-</h2>
-<p>最近和平二字頻頻见诸报端。需要知道的是，和平首先是个国内概念，其次才是国与国之关系。当一个政权视其国民为仇寇、为盗賊、为嫌疑犯，并以绝对暴力禁锢其国民，恐吓其国民，迫害其国民，它的統治就沒有什么合法性可言。这样的政权也不配谈论和平，它所做出的一切和平承諾都应视为謊言。</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
