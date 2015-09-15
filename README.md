@@ -30,7 +30,7 @@
 </h2>
 <p>SPAM  //@潘益兵:使出杀手锏了？<br><br>RE: 郭美美在美国的亲戚在喊话：给中国三天时间，如果不释放郭美美，立即向《纽约时报》披露郭美美提供震憾资料……<br><img src="http://ww3.sinaimg.cn/large/006dBNqyjw1ew2wuphwehj30fm0dptbb.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3887294937191573" target="freeweibo-mirror">SPAM 拼了.....? ? ? ? ?</a>
 </h2>
@@ -42,7 +42,7 @@
 </h2>
 <p>【万里接着说：我认为，我们应该广开言路，破除言禁，把宪法规定的言论自由切实付诸实施。堂堂10亿人口的社会主义大国，只要领导路线正确，政通人和，百业兴旺，是不会被几句逆耳之言或别有用心的人借某些问题的煽动搞垮的。】<br><br>RE: 【徐庆全、杜明明：万里的政治担当】80年代的历史中有一个悖论贯穿其中。这就是：在庙堂之高履职却声播江湖乏远的人，往往结局不是太妙。胡耀邦等就不要说了，就万里而言，因为讲政治体制改革太多了，因为被民间目为改革派的代表，所以，始终进入不了权力的最高层——政治局常委。http://t.cn/Ryc13T8<br><img src="http://ww1.sinaimg.cn/large/544a318cgw1ew2xtrkj3tj208v0643ym.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3887286745799954" target="freeweibo-mirror">【徐庆全、杜明明：万里的政治担当】80年代的历史中有一个悖论…</a>
 </h2>
