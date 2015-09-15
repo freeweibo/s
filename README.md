@@ -42,7 +42,7 @@
 </h2>
 <p>SPAM 股東：この彼のように⋯⋯ 企鵝：メスです。（はいアウト——！（企鵝CG感太濃了後期扣雞腿好嗎<br><img src="http://ww3.sinaimg.cn/large/4cc6853fgw1ew3fzwavwuj218g1jp7a1.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3887420590253823" target="freeweibo-mirror">SPAM 怎么呆？要萌点不？</a>
 </h2>
@@ -78,7 +78,7 @@
 </h2>
 <p>SPAM //@谭人玮: //@文山娃: 或者默克爾… //@李明波Hamas:让奥巴马多见几次大大呗//@文山娃:大概看領導心情。//@黔山鹰：浦律啥时回家？</p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3887348275967128" target="freeweibo-mirror">[汗]这组合.......</a>
 </h2>
