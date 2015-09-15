@@ -24,7 +24,7 @@
 </h2>
 <p>历史罪人。<br><br>RE: 看人看问题都要看本质。他活着的时候不讲问题，以后早晚要讲。我分享了@鲁迅民族魂 的文章 http://t.cn/RyqB11F</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3887217200546427" target="freeweibo-mirror">SPAM 我正在看【陸旅社發文禁反共片 觀光局重申言論自由 …</a>
 </h2>
