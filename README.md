@@ -60,7 +60,7 @@
 </h2>
 <p>看人看问题都要看本质。他活着的时候不讲问题，以后早晚要讲。我分享了@鲁迅民族魂 的文章 http://t.cn/RyqB11F</p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3887146194854529" target="freeweibo-mirror">SPAM 哈//@赣南好脐橙微博: 小马，原来你也曾经很帅 …</a>
 </h2>
@@ -84,7 +84,7 @@
 </h2>
 <p>等辟谣。//@公民王石2:转发微博</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3887111964575638" target="freeweibo-mirror">SPAM 玩潮流，关注后告诉你是什么是专业！</a>
 </h2>
