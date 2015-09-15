@@ -38,6 +38,12 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3887339326004152" target="freeweibo-mirror">朱棣篡位做上黄帝，为了让自己的执政合法性不受外界质疑，便使尽…</a>
+</h2>
+<p>朱棣篡位做上黄帝，为了让自己的执政合法性不受外界质疑，便使尽举国之力为自己创造了四大功劳，弄什么郑和下西洋、编辑永乐大典、北阀蒙古、南征越南、这都是一块遮羞布。今天的朝上又搞什么大阅兵式，基本也是这个意思。用大阅兵式来抵毁国民政府功劳，借此模糊国人对这段历史的概念来混淆视听而已。<br><img src="http://ww4.sinaimg.cn/large/a387f7fcgw1ew33v55nnvj207g09nwej.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3887320404871095" target="freeweibo-mirror">SPAM 急招临时工；要求：会上网即可，时间：自由安排，每天…</a>
 </h2>
 <p>SPAM 急招临时工；要求：会上网即可，时间：自由安排，每天在线1-3小时即可。 薪资： 每天保底190=-580元。完成马上返款 。 从不拖欠，10分钟内到账。地点、年龄、性别、.学历等无限制 ，加[q][q] 859737405 妍妍 （电脑/手机都可以操作）友公司放心合作》<br><img src="http://ww1.sinaimg.cn/large/4972ec39jw1ew31ob3e9gj20cm0gpwic.jpg"></p>
@@ -120,7 +126,7 @@
 </h2>
 <p>SPAM 我正在看【陸旅社發文禁反共片 觀光局重申言論自由 - 新唐人亞太電視台】，分享给你，一起看吧！http://t.cn/RycNL1l<br><img src="http://ww2.sinaimg.cn/large/72276697jw1ew2pu95sq7j20u01f9wm0.jpg"></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3887150871601479" target="freeweibo-mirror">看人看问题都要看本质。他活着的时候不讲问题，以后早晚要讲。我…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3887146194854529" target="freeweibo-mirror">SPAM 哈//@赣南好脐橙微博: 小马，原来你也曾经很帅 …</a>
 </h2>
 <p>SPAM 哈//@赣南好脐橙微博: 小马，原来你也曾经很帅 //@亚龙微营销:岁月就像一把杀猪刀。 //@海南特产阿黄:[色]//@电子商务分析湿:马云原来也有帅的时候？ //@吴蚊米:@大自然保护协会-马云 马总的青葱岁月有张明星脸，姚明+李宇春+宁泽涛[哈哈][哈哈]</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3887115878528825" target="freeweibo-mirror">//@罗争eedoo:等辟谣。//@公民王石2:转发微博</a>
-</h2>
-<p>//@罗争eedoo:等辟谣。//@公民王石2:转发微博</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
