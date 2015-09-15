@@ -24,7 +24,7 @@
 </h2>
 <p>对敌人，他都不赶尽杀绝，不搞肉体消灭</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3887450302304457" target="freeweibo-mirror">[衰][吃惊]//@捅子娄:哈哈//@侯宁:基民，套宝，强平…</a>
 </h2>
@@ -120,7 +120,7 @@
 </h2>
 <p>SPAM 拼了.....? ? ? ? ?<br><br>RE: 郭美美在美国的亲戚在喊话：给中国三天时间，如果不释放郭美美，立即向《纽约时报》披露郭美美提供震憾资料……<br><img src="http://ww3.sinaimg.cn/large/006dBNqyjw1ew2wuphwehj30fm0dptbb.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3887291770236239" target="freeweibo-mirror">在别人的汤里看到了一堆特别有意思的照片，就想分享出来。多可爱…</a>
 </h2>
