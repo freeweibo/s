@@ -26,11 +26,17 @@
 <p>
 	<small> ============== 1小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3887266969518822" target="freeweibo-mirror">//@尹鸿:任何立论，不是以最大限度地保护人的生命和权利为出…</a>
+</h2>
+<p>//@尹鸿:任何立论，不是以最大限度地保护人的生命和权利为出发点，都是别有用心。<br><br>RE: 国外的鹰派，无论对外态度多么强硬，都不会对本国百姓丝毫轻视。我国的一些鹰派，不是整日以笔作刀，一脸狰狞，跟普通网民过不去，在网络上留下一片喊杀声；要么就是动辄声称如果跟外国发生战争时死伤多少百姓不在乎，大片国土都可以弃之不要。这样的鹰派在任何国家都会被视为打着爱国旗号的独夫民贼。</p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3887255435406171" target="freeweibo-mirror">[偷笑] //@LifeTime: //@军事观察员东旭:转…</a>
 </h2>
 <p>[偷笑] //@LifeTime: //@军事观察员东旭:转发微博<br><br>RE: 公安部给360的感谢信，360激动地贴出来。。。。<br><img src="http://ww4.sinaimg.cn/large/6a3d7f8cgw1ew28y60lgtj20c80vowh4.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3887247818464692" target="freeweibo-mirror">SPAM  //@张晨初艺术空间://@好说话还随和: //…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3887089575690996" target="freeweibo-mirror">SPAM 学会感觉</a>
 </h2>
 <p>SPAM 学会感觉<br><img src="http://ww1.sinaimg.cn/large/6d1b7fb6jw1ew2b6f8ol6j20hs0vkjvh.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3887081304958212" target="freeweibo-mirror">不行，得要国家赔偿，看政府怎么说，这是建设法制社会应该做的。</a>
-</h2>
-<p>不行，得要国家赔偿，看政府怎么说，这是建设法制社会应该做的。<br><br>RE: 【威胁见效？】刘虎被不起诉后,表示将申请国家赔偿。正义网、法制网随后同时发表评论,说刘虎没罪不等于没错，若干官微默契转发。还有若干官微转发一题为“刘虎,你几斤几两自己不清楚吗?”的评论。另有人放话：不要以为不起诉决定是不可改变的。虎妻今天电我:“周律师,要不我们就不要国家赔偿了吧?”<br><img src="http://ww2.sinaimg.cn/large/4bdb1fa0jw1ew2a4we8x7j20ez0qo0vs.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
