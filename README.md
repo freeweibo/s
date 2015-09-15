@@ -36,7 +36,7 @@
 </h2>
 <p>SPAM 我正在看【陸旅社發文禁反共片 觀光局重申言論自由 - 新唐人亞太電視台】，分享给你，一起看吧！http://t.cn/RycNL1l<br><img src="http://ww2.sinaimg.cn/large/72276697jw1ew2pu95sq7j20u01f9wm0.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3887150871601479" target="freeweibo-mirror">看人看问题都要看本质。他活着的时候不讲问题，以后早晚要讲。我…</a>
 </h2>
