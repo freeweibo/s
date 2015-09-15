@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3887238641139812" target="freeweibo-mirror">//@北京厨子新号:可怕</a>
+</h2>
+<p>//@北京厨子新号:可怕</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3887228943927749" target="freeweibo-mirror">历史罪人。</a>
 </h2>
 <p>历史罪人。<br><br>RE: 看人看问题都要看本质。他活着的时候不讲问题，以后早晚要讲。我分享了@鲁迅民族魂 的文章 http://t.cn/RyqB11F</p>
@@ -66,7 +72,7 @@
 </h2>
 <p>SPAM 玩潮流，关注后告诉你是什么是专业！</p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3887106386433436" target="freeweibo-mirror">嗯，说的是朝鲜!</a>
 </h2>
@@ -79,6 +85,12 @@
 <p>最近和平二字頻頻见诸报端。需要知道的是，和平首先是个国内概念，其次才是国与国之关系。当一个政权视其国民为仇寇、为盗賊、为嫌疑犯，并以绝对暴力禁锢其国民，恐吓其国民，迫害其国民，它的統治就沒有什么合法性可言。这样的政权也不配谈论和平，它所做出的一切和平承諾都应视为謊言。</p>
 <p>
 	<small> ============== 10小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3887093408901114" target="freeweibo-mirror">这就是“依法治国”？[生病]</a>
+</h2>
+<p>这就是“依法治国”？[生病]<br><img src="http://ww3.sinaimg.cn/large/6f47298bgw1ew2bm7rueij20c82sm7fd.jpg"></p>
+<p>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3887089575690996" target="freeweibo-mirror">SPAM 学会感觉</a>
 </h2>
@@ -125,18 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3887023763135389" target="freeweibo-mirror">SPAM  //@江南囚://@千山万水依旧在: 高，实在是…</a>
 </h2>
 <p>SPAM  //@江南囚://@千山万水依旧在: 高，实在是高！[哈哈][good]<br><br>RE: 今天我作为一个长者,我有必要告诉你们一点人生的经验：相信包子的嘴不如相信我李嘉诚的腿！<br><img src="http://ww3.sinaimg.cn/large/0066xQzEgw1ew20vsutcaj30ot0gdwiu.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3886999960443014" target="freeweibo-mirror">今天我作为一个长者,我有必要告诉你们一点人生的经验：相信包子…</a>
-</h2>
-<p>今天我作为一个长者,我有必要告诉你们一点人生的经验：相信包子的嘴不如相信我李嘉诚的腿！<br><img src="http://ww3.sinaimg.cn/large/0066xQzEgw1ew20vsutcaj30ot0gdwiu.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3886983959461655" target="freeweibo-mirror">回复@IOT1873:向外国要援助，政府主要搞福利，公共投资…</a>
-</h2>
-<p>回复@IOT1873:向外国要援助，政府主要搞福利，公共投资建设是挤压民企，发展国防是挤压福利，忽悠大家不劳而获，逮着拆迁医闹等机会就拼命维权，像中彩一样暴富。自由主义左派要搞成希腊，自由主义右派要搞成叙利亚，还他妈说这是普世价值民主革命，其实就是娘胎里带出的那点个人小肚鸡肠。<br><br>RE: 共产党最不应该谈的就是执政合法性问题。因为只要你开始谈“合法”，那就必然会有“不合法”。谈合法就是为了给自己不合法创造条件。所谓的执政合法性概念，纯属一种生造的毫无意义的东西。有本事你拿人头滚滚尸山血海来换！没本事你就在家好好呆着撸！天下是打下来，不是靠说出来的。</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
