@@ -60,7 +60,7 @@
 </h2>
 <p>对敌人，他都不赶尽杀绝，不搞肉体消灭</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3887450302304457" target="freeweibo-mirror">[衰][吃惊]//@捅子娄:哈哈//@侯宁:基民，套宝，强平…</a>
 </h2>
@@ -108,7 +108,7 @@
 </h2>
 <p>SPAM //@谭人玮: //@文山娃: 或者默克爾… //@李明波Hamas:让奥巴马多见几次大大呗//@文山娃:大概看領導心情。//@黔山鹰：浦律啥时回家？</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3887348275967128" target="freeweibo-mirror">[汗]这组合.......</a>
 </h2>
