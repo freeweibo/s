@@ -78,7 +78,7 @@
 </h2>
 <p>[汗]这组合.......<br><img src="http://ww2.sinaimg.cn/large/92b81679gw1ew34vwuzvyj20k00b4jrz.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3887344815736399" target="freeweibo-mirror">玉闪还是胖点好看。那么瘦看得心酸[泪] //@阿花的伊萨卡岛…</a>
 </h2>
@@ -114,7 +114,7 @@
 </h2>
 <p>SPAM  //@潘益兵:使出杀手锏了？<br><br>RE: 郭美美在美国的亲戚在喊话：给中国三天时间，如果不释放郭美美，立即向《纽约时报》披露郭美美提供震憾资料……<br><img src="http://ww3.sinaimg.cn/large/006dBNqyjw1ew2wuphwehj30fm0dptbb.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3887294937191573" target="freeweibo-mirror">SPAM 拼了.....? ? ? ? ?</a>
 </h2>
