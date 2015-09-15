@@ -20,6 +20,18 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3887247818464692" target="freeweibo-mirror">SPAM  //@张晨初艺术空间://@好说话还随和: //…</a>
+</h2>
+<p>SPAM  //@张晨初艺术空间://@好说话还随和: //@徐昕:好看</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3887239308089729" target="freeweibo-mirror">这代表用户需求//@隆裕太后: 务实！//@南柯舟:看来清华…</a>
+</h2>
+<p>这代表用户需求//@隆裕太后: 务实！//@南柯舟:看来清华北大马克思博士不如农村老支书[衰] //@彼岸花dll:[偷乐]原来还有这么多美德 //@土男易污: 黔驴技穷，词穷理屈，哲学博士，辱尽清华//@迷与悟-AcB:务实的“共产主义！<br><br>RE: 某农村老支书喟叹：不要老是思量打什么大旗，走什么道路，喊什么口号了。这都是装B！戏演三遍无人看，百姓早就腻歪了！你只要真心把对朝鲜的包容，对古巴的仁义，对非洲的慷慨，对俄国的孝顺，转用到国内百姓身上，包你国泰民安。<br><img src="http://ww3.sinaimg.cn/large/006cIMfnjw1ew2cxfdz6aj30ax09aaas.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3887238641139812" target="freeweibo-mirror">//@北京厨子新号:可怕</a>
 </h2>
 <p>//@北京厨子新号:可怕</p>
@@ -125,18 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3887041626933917" target="freeweibo-mirror">谁在“倒行逆施”，谁是“过街老鼠”，与那里的同行、朋友和学生…</a>
 </h2>
 <p>谁在“倒行逆施”，谁是“过街老鼠”，与那里的同行、朋友和学生聊聊天，很快就能得到准确的答案。<br><br>RE: 香港政制50年不变，是邓小平当年决策和承诺。香港司法终审权，体现了三权分立实质上不可动摇，除非修改基本法。妄议行政中心论，是一种盲目自信和蛮干。有人可能想参照殖民地总督制。但不知道英联邦的总督制恰植根于三权分立，而非英国皇室。http://t.cn/Ry52bon<br><img src="http://ww2.sinaimg.cn/large/6b804b51jw1ew0rw9378kj20ez0qon13.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3887031765561069" target="freeweibo-mirror">//@CASON_JOBS: //@章诒和:哈！//@徐昕:…</a>
-</h2>
-<p>//@CASON_JOBS: //@章诒和:哈！//@徐昕: 少谈主义 //@我们是纳税人://@公正善良: //@浩瀚浪涛: //@演员孙海英:转发<br><br>RE: 【台湾共产主义】台湾人均GDP值4倍于大陆；推行12年义务教育，学生都有免费午餐，人人能考上大学，不存在上学难；人人看得起病，政府会管你的医疗；电视上谁都可以骂最高领导人；市民受儒家影响，个个温良恭俭让；文化保持了纯正的中国传统（仁义忠孝信处处可见）。我的祖宗，台湾这不是共产主义吗？<br><img src="http://ww1.sinaimg.cn/large/006dBNqyjw1ew1xhdfl1wj30k009dq4c.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3887023763135389" target="freeweibo-mirror">SPAM  //@江南囚://@千山万水依旧在: 高，实在是…</a>
-</h2>
-<p>SPAM  //@江南囚://@千山万水依旧在: 高，实在是高！[哈哈][good]<br><br>RE: 今天我作为一个长者,我有必要告诉你们一点人生的经验：相信包子的嘴不如相信我李嘉诚的腿！<br><img src="http://ww3.sinaimg.cn/large/0066xQzEgw1ew20vsutcaj30ot0gdwiu.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
