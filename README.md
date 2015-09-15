@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3887479239115654" target="freeweibo-mirror">还有某公子？</a>
+</h2>
+<p>还有某公子？</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3887452726559900" target="freeweibo-mirror">对敌人，他都不赶尽杀绝，不搞肉体消灭</a>
 </h2>
 <p>对敌人，他都不赶尽杀绝，不搞肉体消灭</p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3887288826290563" target="freeweibo-mirror">【万里接着说：我认为，我们应该广开言路，破除言禁，把宪法规定…</a>
 </h2>
 <p>【万里接着说：我认为，我们应该广开言路，破除言禁，把宪法规定的言论自由切实付诸实施。堂堂10亿人口的社会主义大国，只要领导路线正确，政通人和，百业兴旺，是不会被几句逆耳之言或别有用心的人借某些问题的煽动搞垮的。】<br><br>RE: 【徐庆全、杜明明：万里的政治担当】80年代的历史中有一个悖论贯穿其中。这就是：在庙堂之高履职却声播江湖乏远的人，往往结局不是太妙。胡耀邦等就不要说了，就万里而言，因为讲政治体制改革太多了，因为被民间目为改革派的代表，所以，始终进入不了权力的最高层——政治局常委。http://t.cn/Ryc13T8<br><img src="http://ww1.sinaimg.cn/large/544a318cgw1ew2xtrkj3tj208v0643ym.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3887286745799954" target="freeweibo-mirror">【徐庆全、杜明明：万里的政治担当】80年代的历史中有一个悖论…</a>
-</h2>
-<p>【徐庆全、杜明明：万里的政治担当】80年代的历史中有一个悖论贯穿其中。这就是：在庙堂之高履职却声播江湖乏远的人，往往结局不是太妙。胡耀邦等就不要说了，就万里而言，因为讲政治体制改革太多了，因为被民间目为改革派的代表，所以，始终进入不了权力的最高层——政治局常委。http://t.cn/Ryc13T8<br><img src="http://ww1.sinaimg.cn/large/544a318cgw1ew2xtrkj3tj208v0643ym.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
