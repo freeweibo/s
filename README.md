@@ -42,7 +42,7 @@
 </h2>
 <p>SPAM 今天（16日）下午2点左右，一男子在北京天安门广场持刀闹事。<br><img src="http://ww3.sinaimg.cn/large/63f372f5jw1ew4ebwu7x8j20vx0l9n28.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3887741370740154" target="freeweibo-mirror">//@张桥桥护士:哈哈，觉悟就好[赞]</a>
 </h2>
@@ -72,7 +72,7 @@
 </h2>
 <p>德。法也。禮義廉耻仁信智勇。-摘自《治天神术》 @关注民生的法学硕士: 真心希望这个视频不要被删除，有利于大家对一个领导人最真实的了解。 http://t.cn/RvRjqj5<br><br>RE: 这个视频还在[哈哈]http://t.cn/RLrz90A</p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3887697464527783" target="freeweibo-mirror">//@刘志强律师: 长者还是蛮有趣的嘛。 //@章文的文章:…</a>
 </h2>
