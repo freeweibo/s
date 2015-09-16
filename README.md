@@ -102,7 +102,7 @@
 </h2>
 <p>这个视频还在[哈哈]http://t.cn/RLrz90A</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3887657941877194" target="freeweibo-mirror">SPAM #人民日报玩艾特#如果说世界上最霸气的言语是“开机…</a>
 </h2>
