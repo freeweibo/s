@@ -60,7 +60,7 @@
 </h2>
 <p>对敌人，他都不赶尽杀绝，不搞肉体消灭</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3887450302304457" target="freeweibo-mirror">[衰][吃惊]//@捅子娄:哈哈//@侯宁:基民，套宝，强平…</a>
 </h2>
