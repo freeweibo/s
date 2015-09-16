@@ -78,13 +78,13 @@
 </h2>
 <p>//@刘志强律师: 长者还是蛮有趣的嘛。 //@章文的文章: //@龚治飞://@关注民生的法学硕士:真心希望这个视频不要被删除，有利于大家对一个领导人最真实的了解。 http://t.cn/RvRjqj5<br><br>RE: 这个视频还在[哈哈]http://t.cn/RLrz90A</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3887696848411444" target="freeweibo-mirror">//@章文的文章: //@龚治飞://@关注民生的法学硕士:…</a>
 </h2>
 <p>//@章文的文章: //@龚治飞://@关注民生的法学硕士:真心希望这个视频不要被删除，有利于大家对一个领导人最真实的了解。http://t.cn/RvRjqj5<br><br>RE: 这个视频还在[哈哈]http://t.cn/RLrz90A</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3887694545051373" target="freeweibo-mirror">哈哈，总书记主席，也是人啊，也会有人性自然反应的啊! //@…</a>
 </h2>
