@@ -32,6 +32,24 @@
 <p>
 	<small> ============== 1小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3887697464527783" target="freeweibo-mirror">//@刘志强律师: 长者还是蛮有趣的嘛。 //@章文的文章:…</a>
+</h2>
+<p>//@刘志强律师: 长者还是蛮有趣的嘛。 //@章文的文章: //@龚治飞://@关注民生的法学硕士:真心希望这个视频不要被删除，有利于大家对一个领导人最真实的了解。 http://t.cn/RvRjqj5<br><br>RE: 这个视频还在[哈哈]http://t.cn/RLrz90A</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3887696848411444" target="freeweibo-mirror">//@章文的文章: //@龚治飞://@关注民生的法学硕士:…</a>
+</h2>
+<p>//@章文的文章: //@龚治飞://@关注民生的法学硕士:真心希望这个视频不要被删除，有利于大家对一个领导人最真实的了解。http://t.cn/RvRjqj5<br><br>RE: 这个视频还在[哈哈]http://t.cn/RLrz90A</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3887694545051373" target="freeweibo-mirror">哈哈，总书记主席，也是人啊，也会有人性自然反应的啊! //@…</a>
+</h2>
+<p>哈哈，总书记主席，也是人啊，也会有人性自然反应的啊! //@章文的文章: //@龚治飞://@关注民生的法学硕士:真心希望这个视频不要被删除，有利于大家对一个领导人最真实的了解。http://t.cn/RvRjqj5<br><br>RE: 这个视频还在[哈哈]http://t.cn/RLrz90A</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3887657941877194" target="freeweibo-mirror">SPAM #人民日报玩艾特#如果说世界上最霸气的言语是“开机…</a>
 </h2>
 <p>SPAM #人民日报玩艾特#如果说世界上最霸气的言语是“开机画面必须是我”，那么最会玩的便是在人民日报上只刊登了一个大写的@ 了！所以人民日报才是真正的会玩大boss？已经迫不及待想一探究竟了呢[doge]<br><img src="http://ww2.sinaimg.cn/large/957bb68agw1ew44fbdvp3j20ci45dwrq.jpg"></p>
@@ -119,24 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3887374281330541" target="freeweibo-mirror">SPAM 朋友圈被一个黄色的蠢萌天团占领，史上最萌的电影角色…</a>
 </h2>
 <p>SPAM 朋友圈被一个黄色的蠢萌天团占领，史上最萌的电影角色小黄人又双叒叕来啦！这次它们不再是配角，从史前的单细胞黄色生物体到格鲁的呆萌仆人，小黄人的小秘密你知道多少？猛戳大图告诉你的电影上看不到的没脖子星人的100个冷知识！Banana！Yum Yum！<br><img src="http://ww1.sinaimg.cn/large/6f86dff2gw1ew37vo6d9tj20c884g1kx.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3887355188269485" target="freeweibo-mirror">SPAM //@谭人玮: //@文山娃: 或者默克爾… //…</a>
-</h2>
-<p>SPAM //@谭人玮: //@文山娃: 或者默克爾… //@李明波Hamas:让奥巴马多见几次大大呗//@文山娃:大概看領導心情。//@黔山鹰：浦律啥时回家？</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3887348275967128" target="freeweibo-mirror">[汗]这组合.......</a>
-</h2>
-<p>[汗]这组合.......<br><img src="http://ww2.sinaimg.cn/large/92b81679gw1ew34vwuzvyj20k00b4jrz.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3887344815736399" target="freeweibo-mirror">玉闪还是胖点好看。那么瘦看得心酸[泪] //@阿花的伊萨卡岛…</a>
-</h2>
-<p>玉闪还是胖点好看。那么瘦看得心酸[泪] //@阿花的伊萨卡岛:这是玉闪的律师李瑾，谢谢大家这一年对玉闪小何的关心。今天凌晨见到瘦了三十斤的胖子（好像已经不能称之为胖子了），大家都哭，就我一个人一直傻笑，显得我非常无情[嘻嘻][嘻嘻][嘻嘻][嘻嘻]<br><br>RE: 恭喜小何和玉闪回家。玉闪和阿潘现在家陪家人，无法一一回复朋友们的问候。感谢所有关心和帮助过玉闪的朋友们。[鲜花]</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
