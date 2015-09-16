@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3887657941877194" target="freeweibo-mirror">SPAM #人民日报玩艾特#如果说世界上最霸气的言语是“开机…</a>
+</h2>
+<p>SPAM #人民日报玩艾特#如果说世界上最霸气的言语是“开机画面必须是我”，那么最会玩的便是在人民日报上只刊登了一个大写的@ 了！所以人民日报才是真正的会玩大boss？已经迫不及待想一探究竟了呢[doge]<br><img src="http://ww2.sinaimg.cn/large/957bb68agw1ew44fbdvp3j20ci45dwrq.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3887504257768942" target="freeweibo-mirror">刘乐飞？</a>
 </h2>
 <p>刘乐飞？</p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3887340978223945" target="freeweibo-mirror">恭喜小何和玉闪回家。玉闪和阿潘现在家陪家人，无法一一回复朋友…</a>
 </h2>
 <p>恭喜小何和玉闪回家。玉闪和阿潘现在家陪家人，无法一一回复朋友们的问候。感谢所有关心和帮助过玉闪的朋友们。[鲜花]</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3887339326004152" target="freeweibo-mirror">朱棣篡位做上黄帝，为了让自己的执政合法性不受外界质疑，便使尽…</a>
-</h2>
-<p>朱棣篡位做上黄帝，为了让自己的执政合法性不受外界质疑，便使尽举国之力为自己创造了四大功劳，弄什么郑和下西洋、编辑永乐大典、北阀蒙古、南征越南、这都是一块遮羞布。今天的朝上又搞什么大阅兵式，基本也是这个意思。用大阅兵式来抵毁国民政府功劳，借此模糊国人对这段历史的概念来混淆视听而已。<br><img src="http://ww4.sinaimg.cn/large/a387f7fcgw1ew33v55nnvj207g09nwej.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
