@@ -36,7 +36,7 @@
 </h2>
 <p>SPAM 晚安！//@电影特搜: 深夜福利！</p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3887479239115654" target="freeweibo-mirror">还有某公子？</a>
 </h2>
@@ -54,7 +54,7 @@
 </h2>
 <p>SPAM 给大家推荐一部关于约跑的韩国喜剧片——《触摸》。约跑技术哪家强——涨姿势了<br><img src="http://ww4.sinaimg.cn/large/006dKZffgw1ew33e6s2hvg307f0464qp.gif"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3887452726559900" target="freeweibo-mirror">对敌人，他都不赶尽杀绝，不搞肉体消灭</a>
 </h2>
