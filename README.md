@@ -24,7 +24,7 @@
 </h2>
 <p>[哈哈]//@张艺冬: 转发微博<br><br>RE: 这个视频还在[哈哈]http://t.cn/RLrz90A</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3887699141935940" target="freeweibo-mirror">德。法也。禮義廉耻仁信智勇。-摘自《治天神术》 @关注民生的…</a>
 </h2>
