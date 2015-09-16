@@ -44,6 +44,12 @@
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3887730578445182" target="freeweibo-mirror">崔永元：十年前我对美国充满仇恨，对九一一拍手叫好；并期盼着统…</a>
+</h2>
+<p>崔永元：十年前我对美国充满仇恨，对九一一拍手叫好；并期盼着统一台湾，对陈水扁深恶痛绝；十年前我觉得国家就要专制严管，对西方民主嗤之以鼻；十年前我觉得党给人民做了巨大贡献，要多感恩少责难！现在发现当时就是一个被蒙蔽的可怜的愚蠢奴才，想法都是畜生的想法！到今天还不醒那就是可怜的猪民！</p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3887699679134737" target="freeweibo-mirror">[哈哈]//@张艺冬: 转发微博</a>
 </h2>
 <p>[哈哈]//@张艺冬: 转发微博<br><br>RE: 这个视频还在[哈哈]http://t.cn/RLrz90A</p>
@@ -73,6 +79,12 @@
 <p>哈哈，总书记主席，也是人啊，也会有人性自然反应的啊! //@章文的文章: //@龚治飞://@关注民生的法学硕士:真心希望这个视频不要被删除，有利于大家对一个领导人最真实的了解。http://t.cn/RvRjqj5<br><br>RE: 这个视频还在[哈哈]http://t.cn/RLrz90A</p>
 <p>
 	<small> ============== 5小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3887667941436701" target="freeweibo-mirror">（南早中文网讯）广东省陆丰市碣石镇上林村村民，因不满当地兴建…</a>
+</h2>
+<p>（南早中文网讯）广东省陆丰市碣石镇上林村村民，因不满当地兴建核电站，连续几天在电站地盘阻碍施工。日前当地警方出动警力清场，19人被捕，... http://t.cn/RyVmsZy</p>
+<p>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3887664338383995" target="freeweibo-mirror">这个视频还在[哈哈]http://t.cn/RLrz90A</a>
 </h2>
@@ -125,18 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3887474810395415" target="freeweibo-mirror">SPAM 给大家推荐一部关于约跑的韩国喜剧片——《触摸》。约…</a>
 </h2>
 <p>SPAM 给大家推荐一部关于约跑的韩国喜剧片——《触摸》。约跑技术哪家强——涨姿势了<br><img src="http://ww4.sinaimg.cn/large/006dKZffgw1ew33e6s2hvg307f0464qp.gif"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3887452726559900" target="freeweibo-mirror">对敌人，他都不赶尽杀绝，不搞肉体消灭</a>
-</h2>
-<p>对敌人，他都不赶尽杀绝，不搞肉体消灭</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3887450302304457" target="freeweibo-mirror">[衰][吃惊]//@捅子娄:哈哈//@侯宁:基民，套宝，强平…</a>
-</h2>
-<p>[衰][吃惊]//@捅子娄:哈哈//@侯宁:基民，套宝，强平……[阴险] //@侯宁:[哈哈] //@侯爷海森:套宝时代已逝[汗] //@侯爷海森:[汗] //@一品小鲨: //@交银施罗德基金: →_→ //@傅峙峰WSJ:抓起来</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
