@@ -20,6 +20,24 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3887745971607858" target="freeweibo-mirror">项目规划前与村民保持沟通是必不可少的程序。 //@大别山居1…</a>
+</h2>
+<p>项目规划前与村民保持沟通是必不可少的程序。 //@大别山居10世:一个广东省，建五座核电站，太可怕了！ //@乔楠_6: //@超级低俗的菜佬:挡不住了。 //@救赎_醉侠老高: //@改制05: //@阿姜aa:[围观]<br><br>RE: （南早中文网讯）广东省陆丰市碣石镇上林村村民，因不满当地兴建核电站，连续几天在电站地盘阻碍施工。日前当地警方出动警力清场，19人被捕，... http://t.cn/RyVmsZy</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3887743908635623" target="freeweibo-mirror">SPAM 今天（16日）下午2点左右，一男子在北京天安门广场…</a>
+</h2>
+<p>SPAM 今天（16日）下午2点左右，一男子在北京天安门广场持刀闹事。<br><img src="http://ww3.sinaimg.cn/large/63f372f5jw1ew4ebwu7x8j20vx0l9n28.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3887741370740154" target="freeweibo-mirror">//@张桥桥护士:哈哈，觉悟就好[赞]</a>
+</h2>
+<p>//@张桥桥护士:哈哈，觉悟就好[赞]<br><br>RE: 崔永元：十年前我对美国充满仇恨，对九一一拍手叫好；并期盼着统一台湾，对陈水扁深恶痛绝；十年前我觉得国家就要专制严管，对西方民主嗤之以鼻；十年前我觉得党给人民做了巨大贡献，要多感恩少责难！现在发现当时就是一个被蒙蔽的可怜的愚蠢奴才，想法都是畜生的想法！到今天还不醒那就是可怜的猪民！</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3887736467363473" target="freeweibo-mirror">//@没有思想只有常识2: //@张晨初艺术空间: //@勤…</a>
 </h2>
 <p>//@没有思想只有常识2: //@张晨初艺术空间: //@勤奋的少平2://@毛保诠_hbu: //@王虎威王: 转发微博<br><br>RE: 【习访美前维权学者郭玉闪获释】郭的妻子潘海霞周二15日表示，郭被关押11个月后获得保释。郭2014年10月被北京警方以“涉嫌寻衅滋事”罪名传唤和刑拘，今年1月被正式逮捕，罪名换成了“非法经营罪”。2012年5月郭曾冒险驱车将奇迹般逃出临沂东师古村的盲人维权人士陈光诚接到北京并送到美国驻北京大使馆</p>
@@ -119,24 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3887450302304457" target="freeweibo-mirror">[衰][吃惊]//@捅子娄:哈哈//@侯宁:基民，套宝，强平…</a>
 </h2>
 <p>[衰][吃惊]//@捅子娄:哈哈//@侯宁:基民，套宝，强平……[阴险] //@侯宁:[哈哈] //@侯爷海森:套宝时代已逝[汗] //@侯爷海森:[汗] //@一品小鲨: //@交银施罗德基金: →_→ //@傅峙峰WSJ:抓起来</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3887445193612201" target="freeweibo-mirror">SPAM 股東：この彼のように⋯⋯ 企鵝：メスです。（はいア…</a>
-</h2>
-<p>SPAM 股東：この彼のように⋯⋯ 企鵝：メスです。（はいアウト——！（企鵝CG感太濃了後期扣雞腿好嗎<br><img src="http://ww3.sinaimg.cn/large/4cc6853fgw1ew3fzwavwuj218g1jp7a1.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3887420590253823" target="freeweibo-mirror">SPAM 怎么呆？要萌点不？</a>
-</h2>
-<p>SPAM 怎么呆？要萌点不？<br><br>RE: 中信证券内部今天下午的紧急邮件。<br><img src="http://ww2.sinaimg.cn/large/7c1d7ba8gw1ew3d4w0tbhj20k00zk0ul.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3887420191422057" target="freeweibo-mirror">中信证券内部今天下午的紧急邮件。</a>
-</h2>
-<p>中信证券内部今天下午的紧急邮件。<br><img src="http://ww2.sinaimg.cn/large/7c1d7ba8gw1ew3d4w0tbhj20k00zk0ul.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
