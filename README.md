@@ -84,7 +84,7 @@
 </h2>
 <p>哈哈，总书记主席，也是人啊，也会有人性自然反应的啊! //@章文的文章: //@龚治飞://@关注民生的法学硕士:真心希望这个视频不要被删除，有利于大家对一个领导人最真实的了解。http://t.cn/RvRjqj5<br><br>RE: 这个视频还在[哈哈]http://t.cn/RLrz90A</p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3887667941436701" target="freeweibo-mirror">（南早中文网讯）广东省陆丰市碣石镇上林村村民，因不满当地兴建…</a>
 </h2>
@@ -96,7 +96,7 @@
 </h2>
 <p>这个视频还在[哈哈]http://t.cn/RLrz90A</p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3887657941877194" target="freeweibo-mirror">SPAM #人民日报玩艾特#如果说世界上最霸气的言语是“开机…</a>
 </h2>
