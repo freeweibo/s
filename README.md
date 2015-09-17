@@ -36,7 +36,7 @@
 </h2>
 <p>SPAM 自动转发</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3888052168767704" target="freeweibo-mirror">SPAM //@66-李亮: //@立场旁观009: 等着看…</a>
 </h2>
