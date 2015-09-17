@@ -26,6 +26,12 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3888054047505810" target="freeweibo-mirror">SPAM 自动转发</a>
+</h2>
+<p>SPAM 自动转发</p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3888052168767704" target="freeweibo-mirror">SPAM //@66-李亮: //@立场旁观009: 等着看…</a>
 </h2>
 <p>SPAM //@66-李亮: //@立场旁观009: 等着看某人难堪。//@加菲炮1314cat:[哈哈]//@網易大和尚7: //@chen迁迁5: //@惊醒的家奴6:[哈哈]//@十棵草: //@阿拉要砸鍋_: //@白东平0720://@北京老妪:真热闹[偷笑]<br><br>RE: 习总要访美了，不由得想起了胡总2006年4月的访美。小布什陪同胡总白宫西草坪检阅了三军仪仗队后奏国歌，司仪出错，高喊：奏中华民国国歌！[哈哈]小布什致辞后胡总讲话1分19秒时，华人女医生王文怡扯出横幅，高喊：你是个屠夫，布什总统请阻止他杀人！保安将她逐出白宫，然后她举行记者招待会去了。<br><img src="http://ww2.sinaimg.cn/large/0067tN4ijw1ew59ql7sy6j308c0g9q4k.jpg"></p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3887667941436701" target="freeweibo-mirror">（南早中文网讯）广东省陆丰市碣石镇上林村村民，因不满当地兴建…</a>
 </h2>
 <p>（南早中文网讯）广东省陆丰市碣石镇上林村村民，因不满当地兴建核电站，连续几天在电站地盘阻碍施工。日前当地警方出动警力清场，19人被捕，... http://t.cn/RyVmsZy</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3887664338383995" target="freeweibo-mirror">这个视频还在[哈哈]http://t.cn/RLrz90A</a>
-</h2>
-<p>这个视频还在[哈哈]http://t.cn/RLrz90A</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
