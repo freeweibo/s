@@ -48,7 +48,7 @@
 </h2>
 <p>SPAM 自动转发</p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3888052168767704" target="freeweibo-mirror">SPAM //@66-李亮: //@立场旁观009: 等着看…</a>
 </h2>
@@ -72,7 +72,7 @@
 </h2>
 <p>SPAM 万一呢！</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3887964583267130" target="freeweibo-mirror">SPAM  @张荣奎:逃难淹死的小孩也没有这样痛苦绝望[伤心…</a>
 </h2>
