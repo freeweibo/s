@@ -48,7 +48,7 @@
 </h2>
 <p>他们一面谈宪政，一面却不给人民以丝毫的自由。</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3888060507281130" target="freeweibo-mirror">SPAM //@骑着毛驴的艺术爱好者: //@虎叔-:[爱你…</a>
 </h2>
