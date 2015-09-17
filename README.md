@@ -20,11 +20,17 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3888217005008583" target="freeweibo-mirror">江姐死得不但有尊严，人家儿子还成功移民美国去绣星条旗了！张志…</a>
+</h2>
+<p>江姐死得不但有尊严，人家儿子还成功移民美国去绣星条旗了！张志新怎能比？//@晓雨闻铃:自己人比敌人更狠，这不科学，不信！[可怜]//@燕小小云: 起码作品里确实是这么描述的</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3888214580812882" target="freeweibo-mirror">不乐观→_→[话筒]</a>
 </h2>
 <p>不乐观→_→[话筒]<br><br>RE: 他谈“依法治国”之后，法制环境恶化；现在他又谈“人权”，会怎么样呢？[汗]</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3888203536905857" target="freeweibo-mirror">他谈“依法治国”之后，法制环境恶化；现在他又谈“人权”，会怎…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3887806680009558" target="freeweibo-mirror">大家说，张育军被抓，今晚，谁铁定无眠？</a>
 </h2>
 <p>大家说，张育军被抓，今晚，谁铁定无眠？</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3887760106448143" target="freeweibo-mirror">北京天安门一男子持刀闹事被抓 http://t.cn/Ryf…</a>
-</h2>
-<p>北京天安门一男子持刀闹事被抓 http://t.cn/Ryf7lLZ</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
