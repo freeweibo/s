@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3888214580812882" target="freeweibo-mirror">不乐观→_→[话筒]</a>
+</h2>
+<p>不乐观→_→[话筒]<br><br>RE: 他谈“依法治国”之后，法制环境恶化；现在他又谈“人权”，会怎么样呢？[汗]</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3888187594669002" target="freeweibo-mirror">SPAM 6个小时了，没删</a>
 </h2>
 <p>SPAM 6个小时了，没删<br><br>RE: 可恶的联合国老是造谣说中国没有人权 http://t.cn/R2dU207 http://t.cn/RyfkbTn .</p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3887745971607858" target="freeweibo-mirror">项目规划前与村民保持沟通是必不可少的程序。 //@大别山居1…</a>
 </h2>
 <p>项目规划前与村民保持沟通是必不可少的程序。 //@大别山居10世:一个广东省，建五座核电站，太可怕了！ //@乔楠_6: //@超级低俗的菜佬:挡不住了。 //@救赎_醉侠老高: //@改制05: //@阿姜aa:[围观]<br><br>RE: （南早中文网讯）广东省陆丰市碣石镇上林村村民，因不满当地兴建核电站，连续几天在电站地盘阻碍施工。日前当地警方出动警力清场，19人被捕，... http://t.cn/RyVmsZy</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3887743908635623" target="freeweibo-mirror">SPAM 今天（16日）下午2点左右，一男子在北京天安门广场…</a>
-</h2>
-<p>SPAM 今天（16日）下午2点左右，一男子在北京天安门广场持刀闹事。<br><img src="http://ww3.sinaimg.cn/large/63f372f5jw1ew4ebwu7x8j20vx0l9n28.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
