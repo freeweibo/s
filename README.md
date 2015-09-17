@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3888052168767704" target="freeweibo-mirror">SPAM //@66-李亮: //@立场旁观009: 等着看…</a>
+</h2>
+<p>SPAM //@66-李亮: //@立场旁观009: 等着看某人难堪。//@加菲炮1314cat:[哈哈]//@網易大和尚7: //@chen迁迁5: //@惊醒的家奴6:[哈哈]//@十棵草: //@阿拉要砸鍋_: //@白东平0720://@北京老妪:真热闹[偷笑]<br><br>RE: 习总要访美了，不由得想起了胡总2006年4月的访美。小布什陪同胡总白宫西草坪检阅了三军仪仗队后奏国歌，司仪出错，高喊：奏中华民国国歌！[哈哈]小布什致辞后胡总讲话1分19秒时，华人女医生王文怡扯出横幅，高喊：你是个屠夫，布什总统请阻止他杀人！保安将她逐出白宫，然后她举行记者招待会去了。<br><img src="http://ww2.sinaimg.cn/large/0067tN4ijw1ew59ql7sy6j308c0g9q4k.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3888016097989689" target="freeweibo-mirror">SPAM 万一呢！</a>
 </h2>
 <p>SPAM 万一呢！</p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3887504257768942" target="freeweibo-mirror">刘乐飞？</a>
 </h2>
 <p>刘乐飞？</p>
-<p>
-	<small> ============== 2天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3887500798410588" target="freeweibo-mirror">土匪永远是土匪//@周子曦zzx: //@李不白的店: //…</a>
-</h2>
-<p>土匪永远是土匪//@周子曦zzx: //@李不白的店: //@一品泥人:转发微博</p>
 <p>
 	<small> ============== 2天前</small>
 </p>
