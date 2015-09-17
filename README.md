@@ -42,7 +42,7 @@
 </h2>
 <p>SPAM //@骑着毛驴的艺术爱好者: //@虎叔-:[爱你]小清新咯</p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3888054047505810" target="freeweibo-mirror">SPAM 自动转发</a>
 </h2>
@@ -72,7 +72,7 @@
 </h2>
 <p>SPAM 万一呢！</p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3887964583267130" target="freeweibo-mirror">SPAM  @张荣奎:逃难淹死的小孩也没有这样痛苦绝望[伤心…</a>
 </h2>
