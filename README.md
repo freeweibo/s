@@ -78,13 +78,13 @@
 </h2>
 <p>SPAM //@骑着毛驴的艺术爱好者: //@虎叔-:[爱你]小清新咯</p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3888054047505810" target="freeweibo-mirror">SPAM 自动转发</a>
 </h2>
 <p>SPAM 自动转发</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3888052168767704" target="freeweibo-mirror">SPAM //@66-李亮: //@立场旁观009: 等着看…</a>
 </h2>
