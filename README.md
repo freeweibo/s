@@ -24,7 +24,7 @@
 </h2>
 <p>//@庞特勤Tikin:右边说得一点都不假//@猫咪呢朋友8:90年代中期以后新疆国有经济的崩溃和维族在经济上被内地新移民竞争破产【私企只要内地民工】，经济上的完全崩溃和政治上的受歧视最终导致极端宗教兴起 //@老芋头: 女的漂亮男的很帅！ 当时我在库尔勒当兵，当时的维汉关系军民关系真是亲如一家</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3888217005008583" target="freeweibo-mirror">江姐死得不但有尊严，人家儿子还成功移民美国去绣星条旗了！张志…</a>
 </h2>
@@ -42,13 +42,13 @@
 </h2>
 <p>他谈“依法治国”之后，法制环境恶化；现在他又谈“人权”，会怎么样呢？[汗]</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3888187594669002" target="freeweibo-mirror">SPAM 6个小时了，没删</a>
 </h2>
 <p>SPAM 6个小时了，没删<br><br>RE: 可恶的联合国老是造谣说中国没有人权 http://t.cn/R2dU207 http://t.cn/RyfkbTn .</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3888187514342586" target="freeweibo-mirror">离退休高级老干部与国内现任领导干部见面，官方措辞仍然居高临下…</a>
 </h2>
@@ -72,7 +72,7 @@
 </h2>
 <p>//@李国斌律师: 还要科学养殖带鱼！</p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3888141377108218" target="freeweibo-mirror">//@肖雪慧43:浦案头到尾都在展示为了构陷一个人可以怎样胡…</a>
 </h2>
