@@ -62,6 +62,12 @@
 <p>
 	<small> ============== 7小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3888101698602560" target="freeweibo-mirror">可恶的联合国老是造谣说中国没有人权 http://t.cn/…</a>
+</h2>
+<p>可恶的联合国老是造谣说中国没有人权 http://t.cn/R2dU207 http://t.cn/RyfkbTn .</p>
+<p>
+	<small> ============== 8小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3888060507281130" target="freeweibo-mirror">SPAM //@骑着毛驴的艺术爱好者: //@虎叔-:[爱你…</a>
 </h2>
 <p>SPAM //@骑着毛驴的艺术爱好者: //@虎叔-:[爱你]小清新咯</p>
@@ -84,7 +90,7 @@
 </h2>
 <p>SPAM 虐哭单身狗 //@珂兰钻石:谢谢@李晨 的祝福，珂兰有个大大的生日愿望——人人有礼！珂兰接下来还会在“多平台”送出更多钻石大礼，只要参与，100%中奖！快来关注我们的下一条内容吧！剧透一下，8克拉哦！//@李晨: 送人，手有余香。@珂兰钻石 8周年生日快乐！</p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3888020044534030" target="freeweibo-mirror">习总要访美了，不由得想起了胡总2006年4月的访美。小布什陪…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3887743908635623" target="freeweibo-mirror">SPAM 今天（16日）下午2点左右，一男子在北京天安门广场…</a>
 </h2>
 <p>SPAM 今天（16日）下午2点左右，一男子在北京天安门广场持刀闹事。<br><img src="http://ww3.sinaimg.cn/large/63f372f5jw1ew4ebwu7x8j20vx0l9n28.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3887741370740154" target="freeweibo-mirror">//@张桥桥护士:哈哈，觉悟就好[赞]</a>
-</h2>
-<p>//@张桥桥护士:哈哈，觉悟就好[赞]<br><br>RE: 崔永元：十年前我对美国充满仇恨，对九一一拍手叫好；并期盼着统一台湾，对陈水扁深恶痛绝；十年前我觉得国家就要专制严管，对西方民主嗤之以鼻；十年前我觉得党给人民做了巨大贡献，要多感恩少责难！现在发现当时就是一个被蒙蔽的可怜的愚蠢奴才，想法都是畜生的想法！到今天还不醒那就是可怜的猪民！</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
