@@ -72,7 +72,7 @@
 </h2>
 <p>//@李国斌律师: 还要科学养殖带鱼！</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3888141377108218" target="freeweibo-mirror">//@肖雪慧43:浦案头到尾都在展示为了构陷一个人可以怎样胡…</a>
 </h2>
