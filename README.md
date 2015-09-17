@@ -60,7 +60,7 @@
 </h2>
 <p>SPAM //@东北老姜:俺不信，美美的亲属，你敢吗？绝对不敢！！！</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3888142404572306" target="freeweibo-mirror">//@李国斌律师: 还要科学养殖带鱼！</a>
 </h2>
@@ -90,7 +90,7 @@
 </h2>
 <p>SPAM //@骑着毛驴的艺术爱好者: //@虎叔-:[爱你]小清新咯</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3888054047505810" target="freeweibo-mirror">SPAM 自动转发</a>
 </h2>
