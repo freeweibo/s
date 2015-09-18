@@ -30,7 +30,7 @@
 </h2>
 <p>[推荐]//@haistone4: [给力][围观][话筒]<br><br>RE: 写了篇批评@吴法天 的文章，新浪微博竟然不让转发了！好奇怪！<br><img src="http://ww2.sinaimg.cn/large/4bdb1fa0jw1ew6emsjm01j20c63ug1kx.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3888373518968590" target="freeweibo-mirror">写了篇批评@吴法天 的文章，新浪微博竟然不让转发了！好奇怪！</a>
 </h2>
