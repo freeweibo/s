@@ -30,7 +30,13 @@
 </h2>
 <p>SPAM 这几天的朋友圈又被这款“上车”APP刷屏啦！[偷笑][偷笑]刚看了下也是醉啦！[笑cry]有认证果然靠谱，各种富帅白美都在上面，这是炫富炫美的节奏嘛？[笑cry][doge][doge]等了好几个月的安卓版也上线咯，地址给你们咯，找我玩耍来~[嘻嘻][来][来] @上车科技 http://t.cn/RyvC74L<br><img src="http://ww3.sinaimg.cn/large/a180de74jw1ew6w7uyrcsj20hr0vk76r.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3888534894947606" target="freeweibo-mirror">我从习近平上台到现在都保持理性。从今天开始，只能以包子相称了…</a>
+</h2>
+<p>我从习近平上台到现在都保持理性。从今天开始，只能以包子相称了。。因为你不配！言论控制到了疯狂如狗的地步。</p>
+<p>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3888482587965901" target="freeweibo-mirror">SPAM 小三有武功！[汗]//@小西坡: 女打女, 女辱女…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3888187594669002" target="freeweibo-mirror">SPAM 6个小时了，没删</a>
 </h2>
 <p>SPAM 6个小时了，没删<br><br>RE: 可恶的联合国老是造谣说中国没有人权 http://t.cn/R2dU207 http://t.cn/RyfkbTn .</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3888187514342586" target="freeweibo-mirror">离退休高级老干部与国内现任领导干部见面，官方措辞仍然居高临下…</a>
-</h2>
-<p>离退休高级老干部与国内现任领导干部见面，官方措辞仍然居高临下——接见！然而，现任最高领导与美国人见面，官方措辞就回归正常了——会见。 真是耐人寻味！<br><img src="http://ww3.sinaimg.cn/large/676abacdjw1ew5t904fbfj20j50ibjsq.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
