@@ -86,6 +86,12 @@
 <p>
 	<small> ============== 4小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3888541542866309" target="freeweibo-mirror">//@南山灯火_1c8: //@月光手帕伊莲娜:全世界都知道…</a>
+</h2>
+<p>//@南山灯火_1c8: //@月光手帕伊莲娜:全世界都知道中国政府有钱啊！[笑cry]<br><br>RE: 中国国家主席到访美国，记者在纽约街头采访，一位美国联邦政府社安局工作人员说，“我就是希望中国国家主席可以借我们更多钱，我说的是实话。”[笑cry]<br><img src="http://ww1.sinaimg.cn/large/4c7c1ba8gw1ew6vyi1tvxj20ix0dtwfh.jpg"></p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3888537310945878" target="freeweibo-mirror">SPAM 这几天的朋友圈又被这款“上车”APP刷屏啦！[偷笑…</a>
 </h2>
 <p>SPAM 这几天的朋友圈又被这款“上车”APP刷屏啦！[偷笑][偷笑]刚看了下也是醉啦！[笑cry]有认证果然靠谱，各种富帅白美都在上面，这是炫富炫美的节奏嘛？[笑cry][doge][doge]等了好几个月的安卓版也上线咯，地址给你们咯，找我玩耍来~[嘻嘻][来][来] @上车科技 http://t.cn/RyvC74L<br><img src="http://ww3.sinaimg.cn/large/a180de74jw1ew6w7uyrcsj20hr0vk76r.jpg"></p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3888414628017695" target="freeweibo-mirror">能够百度到给我发短信的那位“首都卫士”的案件，看来他已来北京…</a>
 </h2>
 <p>能够百度到给我发短信的那位“首都卫士”的案件，看来他已来北京上访多年。一声叹息。<br><img src="http://ww3.sinaimg.cn/large/61fcc2a9jw1ew6jd190s7j20ez0qoq66.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3888375066783977" target="freeweibo-mirror">[推荐]//@haistone4: [给力][围观][话筒]</a>
-</h2>
-<p>[推荐]//@haistone4: [给力][围观][话筒]<br><br>RE: 写了篇批评@吴法天 的文章，新浪微博竟然不让转发了！好奇怪！<br><img src="http://ww2.sinaimg.cn/large/4bdb1fa0jw1ew6emsjm01j20c63ug1kx.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
