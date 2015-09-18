@@ -36,13 +36,13 @@
 </h2>
 <p>很多很多很多人认为，买美国国债就是把钱借给美国……人家美国要人民币有屁用……//@午夜暖茶非禅院-FYJS:最右我深深的困惑是什么知识体系让你认为外汇怎么用和国内的人民币怎么花有如此密切的关系？</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3888570651924713" target="freeweibo-mirror">最右我深深的困惑是什么知识体系让你认为外汇怎么用和国内的人民…</a>
 </h2>
 <p>最右我深深的困惑是什么知识体系让你认为外汇怎么用和国内的人民币怎么花有如此密切的关系？</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3888569238059893" target="freeweibo-mirror">回复@风影随行hxf:我们的医保覆盖率比美国高多了，不信你问…</a>
 </h2>
@@ -66,7 +66,7 @@
 </h2>
 <p>就想着拿中国当凯子<br><br>RE: 中国国家主席到访美国，记者在纽约街头采访，一位美国联邦政府社安局工作人员说，“我就是希望中国国家主席可以借我们更多钱，我说的是实话。”[笑cry]<br><img src="http://ww1.sinaimg.cn/large/4c7c1ba8gw1ew6vyi1tvxj20ix0dtwfh.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3888546752188115" target="freeweibo-mirror">等了三年还没有等来收编滴消息，发火了！[哈哈]//@麻子王四…</a>
 </h2>
@@ -120,7 +120,7 @@
 </h2>
 <p>SPAM //@曹小明律师: [赞]//@手机用户2940908293:小三的反革命气焰太他妈嚣张！</p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3888432113566068" target="freeweibo-mirror">SPAM [微笑]</a>
 </h2>
