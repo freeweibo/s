@@ -42,7 +42,7 @@
 </h2>
 <p>美国呼吁将其释放 中方：有些人心很大手很长 http://t.cn/RyI9jOr 美国跳出来为他呼吁，不知是为了中国的利益呢？还是为了美国的利益？//@徐昕:习主席访美，不妨先取保<br><br>RE: 500天了，你是否已适应那种“度日如年、度年如日”的生活？希望你能“把命照看好、把心安顿好”！<br><img src="http://ww3.sinaimg.cn/large/6dc02171jw1ew5ilzvuomj205g08cjrf.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3888311007561181" target="freeweibo-mirror">汉人应重建汉人的宗教信仰</a>
 </h2>
