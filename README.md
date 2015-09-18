@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3888375066783977" target="freeweibo-mirror">[推荐]//@haistone4: [给力][围观][话筒]</a>
+</h2>
+<p>[推荐]//@haistone4: [给力][围观][话筒]<br><br>RE: 写了篇批评@吴法天 的文章，新浪微博竟然不让转发了！好奇怪！<br><img src="http://ww2.sinaimg.cn/large/4bdb1fa0jw1ew6emsjm01j20c63ug1kx.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3888311007561181" target="freeweibo-mirror">汉人应重建汉人的宗教信仰</a>
 </h2>
 <p>汉人应重建汉人的宗教信仰<br><br>RE: 一个政府只是把“人民利益高于一切”挂在嘴边，而事实上，一直制止不了野蛮拆迁，制止不了暴力执法，制止不了贪污腐败，制止不了与民争利，制止不了对老百姓的残酷剥夺和压榨。这不能不说我们政府的无能！“水可载舟，也可覆舟”，这是千古的定律，政府应当知道这个定律 http://weibo.com/u/2806559662</p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3888020044534030" target="freeweibo-mirror">习总要访美了，不由得想起了胡总2006年4月的访美。小布什陪…</a>
 </h2>
 <p>习总要访美了，不由得想起了胡总2006年4月的访美。小布什陪同胡总白宫西草坪检阅了三军仪仗队后奏国歌，司仪出错，高喊：奏中华民国国歌！[哈哈]小布什致辞后胡总讲话1分19秒时，华人女医生王文怡扯出横幅，高喊：你是个屠夫，布什总统请阻止他杀人！保安将她逐出白宫，然后她举行记者招待会去了。<br><img src="http://ww2.sinaimg.cn/large/0067tN4ijw1ew59ql7sy6j308c0g9q4k.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3888016097989689" target="freeweibo-mirror">SPAM 万一呢！</a>
-</h2>
-<p>SPAM 万一呢！</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
