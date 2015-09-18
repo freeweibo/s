@@ -42,7 +42,7 @@
 </h2>
 <p>能够百度到给我发短信的那位“首都卫士”的案件，看来他已来北京上访多年。一声叹息。<br><img src="http://ww3.sinaimg.cn/large/61fcc2a9jw1ew6jd190s7j20ez0qoq66.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3888375066783977" target="freeweibo-mirror">[推荐]//@haistone4: [给力][围观][话筒]</a>
 </h2>
