@@ -24,7 +24,7 @@
 </h2>
 <p>回复@周而维生:只是受不了傻逼们逼逼……//@周而维生:回复@勾魂电眼李明博:也是没办法的事情//@勾魂电眼李明博:很多很多很多人认为，买美国国债就是把钱借给美国……人家美国要人民币有屁用……<br><br>RE: 中国国家主席到访美国，记者在纽约街头采访，一位美国联邦政府社安局工作人员说，“我就是希望中国国家主席可以借我们更多钱，我说的是实话。”[笑cry]<br><img src="http://ww1.sinaimg.cn/large/4c7c1ba8gw1ew6vyi1tvxj20ix0dtwfh.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3888572417161742" target="freeweibo-mirror">回复@周而维生:对嘛！买美国国债可是很赚钱的事！//@周而维…</a>
 </h2>
@@ -84,7 +84,7 @@
 </h2>
 <p>//@晓_风_残_月:唉！你只知道中国政府有钱，你哪里知道中国百姓的贫穷！<br><br>RE: 中国国家主席到访美国，记者在纽约街头采访，一位美国联邦政府社安局工作人员说，“我就是希望中国国家主席可以借我们更多钱，我说的是实话。”[笑cry]<br><img src="http://ww1.sinaimg.cn/large/4c7c1ba8gw1ew6vyi1tvxj20ix0dtwfh.jpg"></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3888541542866309" target="freeweibo-mirror">//@南山灯火_1c8: //@月光手帕伊莲娜:全世界都知道…</a>
 </h2>
