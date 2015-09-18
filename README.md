@@ -66,7 +66,7 @@
 </h2>
 <p>SPAM 盼早日归来<br><br>RE: 500天了，你是否已适应那种“度日如年、度年如日”的生活？希望你能“把命照看好、把心安顿好”！<br><img src="http://ww3.sinaimg.cn/large/6dc02171jw1ew5ilzvuomj205g08cjrf.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3888347925930452" target="freeweibo-mirror">美国呼吁将其释放 中方：有些人心很大手很长 http://t…</a>
 </h2>
