@@ -24,7 +24,7 @@
 </h2>
 <p>SPAM 这几天的朋友圈又被这款“上车”APP刷屏啦！[偷笑][偷笑]刚看了下也是醉啦！[笑cry]有认证果然靠谱，各种富帅白美都在上面，这是炫富炫美的节奏嘛？[笑cry][doge][doge]等了好几个月的安卓版也上线咯，地址给你们咯，找我玩耍来~[嘻嘻][来][来] @上车科技 http://t.cn/RyvC74L<br><img src="http://ww3.sinaimg.cn/large/a180de74jw1ew6w7uyrcsj20hr0vk76r.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3888482587965901" target="freeweibo-mirror">SPAM 小三有武功！[汗]//@小西坡: 女打女, 女辱女…</a>
 </h2>
