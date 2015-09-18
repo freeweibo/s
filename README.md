@@ -62,15 +62,27 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3888555639952989" target="freeweibo-mirror">就想着拿中国当凯子</a>
+</h2>
+<p>就想着拿中国当凯子<br><br>RE: 中国国家主席到访美国，记者在纽约街头采访，一位美国联邦政府社安局工作人员说，“我就是希望中国国家主席可以借我们更多钱，我说的是实话。”[笑cry]<br><img src="http://ww1.sinaimg.cn/large/4c7c1ba8gw1ew6vyi1tvxj20ix0dtwfh.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3888546752188115" target="freeweibo-mirror">等了三年还没有等来收编滴消息，发火了！[哈哈]//@麻子王四…</a>
 </h2>
 <p>等了三年还没有等来收编滴消息，发火了！[哈哈]//@麻子王四: 以为不骂就会有好处？赶紧骂啊，不骂哪有好处啊，真傻逼。 //@渔夫转播://@小军的自油20://@wyzxhp7: [笑cry]//@sy漁夫: [话筒][哈哈][围观] 还是抱有幻想！<br><br>RE: 我从习近平上台到现在都保持理性。从今天开始，只能以包子相称了。。因为你不配！言论控制到了疯狂如狗的地步。</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3888544446074832" target="freeweibo-mirror">//@北京杨博:转发微博</a>
 </h2>
 <p>//@北京杨博:转发微博<br><br>RE: 中国国家主席到访美国，记者在纽约街头采访，一位美国联邦政府社安局工作人员说，“我就是希望中国国家主席可以借我们更多钱，我说的是实话。”[笑cry]<br><img src="http://ww1.sinaimg.cn/large/4c7c1ba8gw1ew6vyi1tvxj20ix0dtwfh.jpg"></p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3888542423618557" target="freeweibo-mirror">//@晓_风_残_月:唉！你只知道中国政府有钱，你哪里知道中…</a>
+</h2>
+<p>//@晓_风_残_月:唉！你只知道中国政府有钱，你哪里知道中国百姓的贫穷！<br><br>RE: 中国国家主席到访美国，记者在纽约街头采访，一位美国联邦政府社安局工作人员说，“我就是希望中国国家主席可以借我们更多钱，我说的是实话。”[笑cry]<br><img src="http://ww1.sinaimg.cn/large/4c7c1ba8gw1ew6vyi1tvxj20ix0dtwfh.jpg"></p>
 <p>
 	<small> ============== 4小时前</small>
 </p><h2>
@@ -114,7 +126,7 @@
 </h2>
 <p>和临沂一比，丽江人撵走合法租客显得很文明//@文山娃: 底線一破再破。<br><br>RE: 习近平撰文《人权保障没有最好，只有更好》。希望16日临沂平邑的野蛮拆迁烧死房主事件能成为保障人权这一困难重重的事业的转折点。启示：1.如果让陈盲人这样的学法普法草根公民发挥作用，临沂何至于如此？2.不止于临沂，各地地方官府庇护纵容下的拆迁公司该被查查都是些什么人、都干了哪些事了。</p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3888414628017695" target="freeweibo-mirror">能够百度到给我发短信的那位“首都卫士”的案件，看来他已来北京…</a>
 </h2>
@@ -125,18 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3888375066783977" target="freeweibo-mirror">[推荐]//@haistone4: [给力][围观][话筒]</a>
 </h2>
 <p>[推荐]//@haistone4: [给力][围观][话筒]<br><br>RE: 写了篇批评@吴法天 的文章，新浪微博竟然不让转发了！好奇怪！<br><img src="http://ww2.sinaimg.cn/large/4bdb1fa0jw1ew6emsjm01j20c63ug1kx.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3888373518968590" target="freeweibo-mirror">写了篇批评@吴法天 的文章，新浪微博竟然不让转发了！好奇怪！</a>
-</h2>
-<p>写了篇批评@吴法天 的文章，新浪微博竟然不让转发了！好奇怪！<br><img src="http://ww2.sinaimg.cn/large/4bdb1fa0jw1ew6emsjm01j20c63ug1kx.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3888357043831580" target="freeweibo-mirror">SPAM 盼早日归来</a>
-</h2>
-<p>SPAM 盼早日归来<br><br>RE: 500天了，你是否已适应那种“度日如年、度年如日”的生活？希望你能“把命照看好、把心安顿好”！<br><img src="http://ww3.sinaimg.cn/large/6dc02171jw1ew5ilzvuomj205g08cjrf.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
