@@ -42,7 +42,7 @@
 </h2>
 <p>江姐死得不但有尊严，人家儿子还成功移民美国去绣星条旗了！张志新怎能比？//@晓雨闻铃:自己人比敌人更狠，这不科学，不信！[可怜]//@燕小小云: 起码作品里确实是这么描述的</p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3888214580812882" target="freeweibo-mirror">不乐观→_→[话筒]</a>
 </h2>
@@ -66,7 +66,7 @@
 </h2>
 <p>离退休高级老干部与国内现任领导干部见面，官方措辞仍然居高临下——接见！然而，现任最高领导与美国人见面，官方措辞就回归正常了——会见。 真是耐人寻味！<br><img src="http://ww3.sinaimg.cn/large/676abacdjw1ew5t904fbfj20j50ibjsq.jpg"></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3888161417197728" target="freeweibo-mirror">神女啊，干翻了红十字会，又继续披荆斩棘打更大的boss//@…</a>
 </h2>
