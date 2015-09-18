@@ -32,6 +32,12 @@
 <p>
 	<small> ============== 7小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3888222478309512" target="freeweibo-mirror">一个政府只是把“人民利益高于一切”挂在嘴边，而事实上，一直制…</a>
+</h2>
+<p>一个政府只是把“人民利益高于一切”挂在嘴边，而事实上，一直制止不了野蛮拆迁，制止不了暴力执法，制止不了贪污腐败，制止不了与民争利，制止不了对老百姓的残酷剥夺和压榨。这不能不说我们政府的无能！“水可载舟，也可覆舟”，这是千古的定律，政府应当知道这个定律 http://weibo.com/u/2806559662</p>
+<p>
+	<small> ============== 8小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3888217005008583" target="freeweibo-mirror">江姐死得不但有尊严，人家儿子还成功移民美国去绣星条旗了！张志…</a>
 </h2>
 <p>江姐死得不但有尊严，人家儿子还成功移民美国去绣星条旗了！张志新怎能比？//@晓雨闻铃:自己人比敌人更狠，这不科学，不信！[可怜]//@燕小小云: 起码作品里确实是这么描述的</p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3888016097989689" target="freeweibo-mirror">SPAM 万一呢！</a>
 </h2>
 <p>SPAM 万一呢！</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3888013790734946" target="freeweibo-mirror">郭美美美国亲戚向中国下最后通牒：3天内不放人将向《纽约时报》…</a>
-</h2>
-<p>郭美美美国亲戚向中国下最后通牒：3天内不放人将向《纽约时报》披露郭美美提供震憾资料 http://t.cn/Ryfj9WH<br><img src="http://ww1.sinaimg.cn/large/e4876e8fjw1ew59bs4kkmj20go0em76v.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
