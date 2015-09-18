@@ -30,7 +30,7 @@
 </h2>
 <p>回复@周而维生:对嘛！买美国国债可是很赚钱的事！//@周而维生:用美元外汇买的国债啊//@勾魂电眼李明博:很多很多很多人认为，买美国国债就是把钱借给美国……人家美国要人民币有屁用……<br><br>RE: 中国国家主席到访美国，记者在纽约街头采访，一位美国联邦政府社安局工作人员说，“我就是希望中国国家主席可以借我们更多钱，我说的是实话。”[笑cry]<br><img src="http://ww1.sinaimg.cn/large/4c7c1ba8gw1ew6vyi1tvxj20ix0dtwfh.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3888571226506107" target="freeweibo-mirror">很多很多很多人认为，买美国国债就是把钱借给美国……人家美国要…</a>
 </h2>
@@ -86,6 +86,12 @@
 <p>
 	<small> ============== 4小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3888524305101560" target="freeweibo-mirror">中国国家主席到访美国，记者在纽约街头采访，一位美国联邦政府社…</a>
+</h2>
+<p>中国国家主席到访美国，记者在纽约街头采访，一位美国联邦政府社安局工作人员说，“我就是希望中国国家主席可以借我们更多钱，我说的是实话。”[笑cry]<br><img src="http://ww1.sinaimg.cn/large/4c7c1ba8gw1ew6vyi1tvxj20ix0dtwfh.jpg"></p>
+<p>
+	<small> ============== 5小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3888482587965901" target="freeweibo-mirror">SPAM 小三有武功！[汗]//@小西坡: 女打女, 女辱女…</a>
 </h2>
 <p>SPAM 小三有武功！[汗]//@小西坡: 女打女, 女辱女不犯性侵法, 所以这类事越来越多. 谁力气大谁就赢. [带着微博去旅行] //@陈光武律师: //@曹小明律师: [赞] //@手机用户2940908293:小三的反革命气焰太他妈嚣张！</p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3888357043831580" target="freeweibo-mirror">SPAM 盼早日归来</a>
 </h2>
 <p>SPAM 盼早日归来<br><br>RE: 500天了，你是否已适应那种“度日如年、度年如日”的生活？希望你能“把命照看好、把心安顿好”！<br><img src="http://ww3.sinaimg.cn/large/6dc02171jw1ew5ilzvuomj205g08cjrf.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3888347925930452" target="freeweibo-mirror">美国呼吁将其释放 中方：有些人心很大手很长 http://t…</a>
-</h2>
-<p>美国呼吁将其释放 中方：有些人心很大手很长 http://t.cn/RyI9jOr 美国跳出来为他呼吁，不知是为了中国的利益呢？还是为了美国的利益？//@徐昕:习主席访美，不妨先取保<br><br>RE: 500天了，你是否已适应那种“度日如年、度年如日”的生活？希望你能“把命照看好、把心安顿好”！<br><img src="http://ww3.sinaimg.cn/large/6dc02171jw1ew5ilzvuomj205g08cjrf.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
