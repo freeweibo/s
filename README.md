@@ -54,7 +54,7 @@
 </h2>
 <p>他谈“依法治国”之后，法制环境恶化；现在他又谈“人权”，会怎么样呢？[汗]</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3888187594669002" target="freeweibo-mirror">SPAM 6个小时了，没删</a>
 </h2>
