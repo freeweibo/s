@@ -60,7 +60,7 @@
 </h2>
 <p>SPAM 6个小时了，没删<br><br>RE: 可恶的联合国老是造谣说中国没有人权 http://t.cn/R2dU207 http://t.cn/RyfkbTn .</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3888187514342586" target="freeweibo-mirror">离退休高级老干部与国内现任领导干部见面，官方措辞仍然居高临下…</a>
 </h2>
