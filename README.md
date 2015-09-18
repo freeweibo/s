@@ -30,7 +30,7 @@
 </h2>
 <p>回复@周而维生:对嘛！买美国国债可是很赚钱的事！//@周而维生:用美元外汇买的国债啊//@勾魂电眼李明博:很多很多很多人认为，买美国国债就是把钱借给美国……人家美国要人民币有屁用……<br><br>RE: 中国国家主席到访美国，记者在纽约街头采访，一位美国联邦政府社安局工作人员说，“我就是希望中国国家主席可以借我们更多钱，我说的是实话。”[笑cry]<br><img src="http://ww1.sinaimg.cn/large/4c7c1ba8gw1ew6vyi1tvxj20ix0dtwfh.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3888571226506107" target="freeweibo-mirror">很多很多很多人认为，买美国国债就是把钱借给美国……人家美国要…</a>
 </h2>
@@ -90,7 +90,7 @@
 </h2>
 <p>//@南山灯火_1c8: //@月光手帕伊莲娜:全世界都知道中国政府有钱啊！[笑cry]<br><br>RE: 中国国家主席到访美国，记者在纽约街头采访，一位美国联邦政府社安局工作人员说，“我就是希望中国国家主席可以借我们更多钱，我说的是实话。”[笑cry]<br><img src="http://ww1.sinaimg.cn/large/4c7c1ba8gw1ew6vyi1tvxj20ix0dtwfh.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3888537310945878" target="freeweibo-mirror">SPAM 这几天的朋友圈又被这款“上车”APP刷屏啦！[偷笑…</a>
 </h2>
