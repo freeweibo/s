@@ -66,7 +66,7 @@
 </h2>
 <p>离退休高级老干部与国内现任领导干部见面，官方措辞仍然居高临下——接见！然而，现任最高领导与美国人见面，官方措辞就回归正常了——会见。 真是耐人寻味！<br><img src="http://ww3.sinaimg.cn/large/676abacdjw1ew5t904fbfj20j50ibjsq.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3888161417197728" target="freeweibo-mirror">神女啊，干翻了红十字会，又继续披荆斩棘打更大的boss//@…</a>
 </h2>
