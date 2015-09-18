@@ -60,7 +60,7 @@
 </h2>
 <p>第三世界供养第一世界?//@陶然万柳世界:[哈哈]//@老简宁:说实话，咱没钱了，做客非得带钱去？<br><br>RE: 中国国家主席到访美国，记者在纽约街头采访，一位美国联邦政府社安局工作人员说，“我就是希望中国国家主席可以借我们更多钱，我说的是实话。”[笑cry]<br><img src="http://ww1.sinaimg.cn/large/4c7c1ba8gw1ew6vyi1tvxj20ix0dtwfh.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3888555639952989" target="freeweibo-mirror">就想着拿中国当凯子</a>
 </h2>
