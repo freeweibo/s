@@ -24,7 +24,7 @@
 </h2>
 <p>[推荐]//@haistone4: [给力][围观][话筒]<br><br>RE: 写了篇批评@吴法天 的文章，新浪微博竟然不让转发了！好奇怪！<br><img src="http://ww2.sinaimg.cn/large/4bdb1fa0jw1ew6emsjm01j20c63ug1kx.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3888373518968590" target="freeweibo-mirror">写了篇批评@吴法天 的文章，新浪微博竟然不让转发了！好奇怪！</a>
 </h2>
@@ -66,7 +66,7 @@
 </h2>
 <p>江姐死得不但有尊严，人家儿子还成功移民美国去绣星条旗了！张志新怎能比？//@晓雨闻铃:自己人比敌人更狠，这不科学，不信！[可怜]//@燕小小云: 起码作品里确实是这么描述的</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3888214580812882" target="freeweibo-mirror">不乐观→_→[话筒]</a>
 </h2>
