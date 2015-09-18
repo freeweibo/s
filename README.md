@@ -78,7 +78,7 @@
 </h2>
 <p>//@北京杨博:转发微博<br><br>RE: 中国国家主席到访美国，记者在纽约街头采访，一位美国联邦政府社安局工作人员说，“我就是希望中国国家主席可以借我们更多钱，我说的是实话。”[笑cry]<br><img src="http://ww1.sinaimg.cn/large/4c7c1ba8gw1ew6vyi1tvxj20ix0dtwfh.jpg"></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3888542423618557" target="freeweibo-mirror">//@晓_风_残_月:唉！你只知道中国政府有钱，你哪里知道中…</a>
 </h2>
