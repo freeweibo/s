@@ -26,6 +26,12 @@
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3888425662606656" target="freeweibo-mirror">和临沂一比，丽江人撵走合法租客显得很文明//@文山娃: 底線…</a>
+</h2>
+<p>和临沂一比，丽江人撵走合法租客显得很文明//@文山娃: 底線一破再破。<br><br>RE: 习近平撰文《人权保障没有最好，只有更好》。希望16日临沂平邑的野蛮拆迁烧死房主事件能成为保障人权这一困难重重的事业的转折点。启示：1.如果让陈盲人这样的学法普法草根公民发挥作用，临沂何至于如此？2.不止于临沂，各地地方官府庇护纵容下的拆迁公司该被查查都是些什么人、都干了哪些事了。</p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3888414628017695" target="freeweibo-mirror">能够百度到给我发短信的那位“首都卫士”的案件，看来他已来北京…</a>
 </h2>
 <p>能够百度到给我发短信的那位“首都卫士”的案件，看来他已来北京上访多年。一声叹息。<br><img src="http://ww3.sinaimg.cn/large/61fcc2a9jw1ew6jd190s7j20ez0qoq66.jpg"></p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3888119755196853" target="freeweibo-mirror">他们一面谈宪政，一面却不给人民以丝毫的自由。</a>
 </h2>
 <p>他们一面谈宪政，一面却不给人民以丝毫的自由。</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3888101698602560" target="freeweibo-mirror">可恶的联合国老是造谣说中国没有人权 http://t.cn/…</a>
-</h2>
-<p>可恶的联合国老是造谣说中国没有人权 http://t.cn/R2dU207 http://t.cn/RyfkbTn .</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
