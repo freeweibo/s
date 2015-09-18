@@ -24,7 +24,7 @@
 </h2>
 <p>回复@周而维生:只是受不了傻逼们逼逼……//@周而维生:回复@勾魂电眼李明博:也是没办法的事情//@勾魂电眼李明博:很多很多很多人认为，买美国国债就是把钱借给美国……人家美国要人民币有屁用……<br><br>RE: 中国国家主席到访美国，记者在纽约街头采访，一位美国联邦政府社安局工作人员说，“我就是希望中国国家主席可以借我们更多钱，我说的是实话。”[笑cry]<br><img src="http://ww1.sinaimg.cn/large/4c7c1ba8gw1ew6vyi1tvxj20ix0dtwfh.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3888572417161742" target="freeweibo-mirror">回复@周而维生:对嘛！买美国国债可是很赚钱的事！//@周而维…</a>
 </h2>
@@ -96,7 +96,7 @@
 </h2>
 <p>SPAM 小三有武功！[汗]//@小西坡: 女打女, 女辱女不犯性侵法, 所以这类事越来越多. 谁力气大谁就赢. [带着微博去旅行] //@陈光武律师: //@曹小明律师: [赞] //@手机用户2940908293:小三的反革命气焰太他妈嚣张！</p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3888479567735548" target="freeweibo-mirror">SPAM //@曹小明律师: [赞]//@手机用户29409…</a>
 </h2>
@@ -120,7 +120,7 @@
 </h2>
 <p>能够百度到给我发短信的那位“首都卫士”的案件，看来他已来北京上访多年。一声叹息。<br><img src="http://ww3.sinaimg.cn/large/61fcc2a9jw1ew6jd190s7j20ez0qoq66.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3888375066783977" target="freeweibo-mirror">[推荐]//@haistone4: [给力][围观][话筒]</a>
 </h2>
