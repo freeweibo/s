@@ -48,7 +48,7 @@
 </h2>
 <p>回复@风影随行hxf:我们的医保覆盖率比美国高多了，不信你问问奥巴马！//@风影随行hxf:没问题，我们再推迟十年全民医保计划。@美国驻华大使馆<br><br>RE: 中国国家主席到访美国，记者在纽约街头采访，一位美国联邦政府社安局工作人员说，“我就是希望中国国家主席可以借我们更多钱，我说的是实话。”[笑cry]<br><img src="http://ww1.sinaimg.cn/large/4c7c1ba8gw1ew6vyi1tvxj20ix0dtwfh.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3888567585335759" target="freeweibo-mirror">太黑了！[怒]//@三岔河口我的家:[疑问]//@灵逸飞羽:…</a>
 </h2>
@@ -108,7 +108,7 @@
 </h2>
 <p>中国国家主席到访美国，记者在纽约街头采访，一位美国联邦政府社安局工作人员说，“我就是希望中国国家主席可以借我们更多钱，我说的是实话。”[笑cry]<br><img src="http://ww1.sinaimg.cn/large/4c7c1ba8gw1ew6vyi1tvxj20ix0dtwfh.jpg"></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3888482587965901" target="freeweibo-mirror">SPAM 小三有武功！[汗]//@小西坡: 女打女, 女辱女…</a>
 </h2>
