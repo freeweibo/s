@@ -42,7 +42,7 @@
 </h2>
 <p>写了篇批评@吴法天 的文章，新浪微博竟然不让转发了！好奇怪！<br><img src="http://ww2.sinaimg.cn/large/4bdb1fa0jw1ew6emsjm01j20c63ug1kx.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3888357043831580" target="freeweibo-mirror">SPAM 盼早日归来</a>
 </h2>
