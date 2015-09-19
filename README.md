@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3888670404592010" target="freeweibo-mirror">//@蓝星虫No1://@轻松漫步一生://@沈向东大连:/…</a>
+</h2>
+<p>//@蓝星虫No1://@轻松漫步一生://@沈向东大连://@常武知府: //@草根儿传媒:是呢//@浊酒秋月: //@清风飘逸噻://@易牙和竖刁://@半苦半乐2:</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3888573524613167" target="freeweibo-mirror">回复@周而维生:只是受不了傻逼们逼逼……//@周而维生:回复…</a>
 </h2>
 <p>回复@周而维生:只是受不了傻逼们逼逼……//@周而维生:回复@勾魂电眼李明博:也是没办法的事情//@勾魂电眼李明博:很多很多很多人认为，买美国国债就是把钱借给美国……人家美国要人民币有屁用……<br><br>RE: 中国国家主席到访美国，记者在纽约街头采访，一位美国联邦政府社安局工作人员说，“我就是希望中国国家主席可以借我们更多钱，我说的是实话。”[笑cry]<br><img src="http://ww1.sinaimg.cn/large/4c7c1ba8gw1ew6vyi1tvxj20ix0dtwfh.jpg"></p>
@@ -48,7 +54,7 @@
 </h2>
 <p>回复@风影随行hxf:我们的医保覆盖率比美国高多了，不信你问问奥巴马！//@风影随行hxf:没问题，我们再推迟十年全民医保计划。@美国驻华大使馆<br><br>RE: 中国国家主席到访美国，记者在纽约街头采访，一位美国联邦政府社安局工作人员说，“我就是希望中国国家主席可以借我们更多钱，我说的是实话。”[笑cry]<br><img src="http://ww1.sinaimg.cn/large/4c7c1ba8gw1ew6vyi1tvxj20ix0dtwfh.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3888567585335759" target="freeweibo-mirror">太黑了！[怒]//@三岔河口我的家:[疑问]//@灵逸飞羽:…</a>
 </h2>
@@ -108,7 +114,7 @@
 </h2>
 <p>中国国家主席到访美国，记者在纽约街头采访，一位美国联邦政府社安局工作人员说，“我就是希望中国国家主席可以借我们更多钱，我说的是实话。”[笑cry]<br><img src="http://ww1.sinaimg.cn/large/4c7c1ba8gw1ew6vyi1tvxj20ix0dtwfh.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3888482587965901" target="freeweibo-mirror">SPAM 小三有武功！[汗]//@小西坡: 女打女, 女辱女…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3888425662606656" target="freeweibo-mirror">和临沂一比，丽江人撵走合法租客显得很文明//@文山娃: 底線…</a>
 </h2>
 <p>和临沂一比，丽江人撵走合法租客显得很文明//@文山娃: 底線一破再破。<br><br>RE: 习近平撰文《人权保障没有最好，只有更好》。希望16日临沂平邑的野蛮拆迁烧死房主事件能成为保障人权这一困难重重的事业的转折点。启示：1.如果让陈盲人这样的学法普法草根公民发挥作用，临沂何至于如此？2.不止于临沂，各地地方官府庇护纵容下的拆迁公司该被查查都是些什么人、都干了哪些事了。</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3888414628017695" target="freeweibo-mirror">能够百度到给我发短信的那位“首都卫士”的案件，看来他已来北京…</a>
-</h2>
-<p>能够百度到给我发短信的那位“首都卫士”的案件，看来他已来北京上访多年。一声叹息。<br><img src="http://ww3.sinaimg.cn/large/61fcc2a9jw1ew6jd190s7j20ez0qoq66.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
