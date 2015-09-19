@@ -26,6 +26,12 @@
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3888659738934047" target="freeweibo-mirror">SPAM 叫我小宇好了[喵喵]</a>
+</h2>
+<p>SPAM 叫我小宇好了[喵喵]</p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3888573524613167" target="freeweibo-mirror">回复@周而维生:只是受不了傻逼们逼逼……//@周而维生:回复…</a>
 </h2>
 <p>回复@周而维生:只是受不了傻逼们逼逼……//@周而维生:回复@勾魂电眼李明博:也是没办法的事情//@勾魂电眼李明博:很多很多很多人认为，买美国国债就是把钱借给美国……人家美国要人民币有屁用……<br><br>RE: 中国国家主席到访美国，记者在纽约街头采访，一位美国联邦政府社安局工作人员说，“我就是希望中国国家主席可以借我们更多钱，我说的是实话。”[笑cry]<br><img src="http://ww1.sinaimg.cn/large/4c7c1ba8gw1ew6vyi1tvxj20ix0dtwfh.jpg"></p>
@@ -54,7 +60,7 @@
 </h2>
 <p>回复@风影随行hxf:我们的医保覆盖率比美国高多了，不信你问问奥巴马！//@风影随行hxf:没问题，我们再推迟十年全民医保计划。@美国驻华大使馆<br><br>RE: 中国国家主席到访美国，记者在纽约街头采访，一位美国联邦政府社安局工作人员说，“我就是希望中国国家主席可以借我们更多钱，我说的是实话。”[笑cry]<br><img src="http://ww1.sinaimg.cn/large/4c7c1ba8gw1ew6vyi1tvxj20ix0dtwfh.jpg"></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3888567585335759" target="freeweibo-mirror">太黑了！[怒]//@三岔河口我的家:[疑问]//@灵逸飞羽:…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3888432113566068" target="freeweibo-mirror">SPAM [微笑]</a>
 </h2>
 <p>SPAM [微笑]</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3888425662606656" target="freeweibo-mirror">和临沂一比，丽江人撵走合法租客显得很文明//@文山娃: 底線…</a>
-</h2>
-<p>和临沂一比，丽江人撵走合法租客显得很文明//@文山娃: 底線一破再破。<br><br>RE: 习近平撰文《人权保障没有最好，只有更好》。希望16日临沂平邑的野蛮拆迁烧死房主事件能成为保障人权这一困难重重的事业的转折点。启示：1.如果让陈盲人这样的学法普法草根公民发挥作用，临沂何至于如此？2.不止于临沂，各地地方官府庇护纵容下的拆迁公司该被查查都是些什么人、都干了哪些事了。</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
