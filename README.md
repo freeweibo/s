@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3888932464805756" target="freeweibo-mirror">严峻的历史将作出裁决，我不在这里评价</a>
+</h2>
+<p>严峻的历史将作出裁决，我不在这里评价</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3888862982041169" target="freeweibo-mirror">方星海：新加坡政府薪水全球之冠，部长年薪人民币千万。政府极精…</a>
 </h2>
 <p>方星海：新加坡政府薪水全球之冠，部长年薪人民币千万。政府极精简，中央党部仅十几个全职人员。官员要公布财产，无法说明的财产被推定为贪污<br><br>RE: 【中国财政供养人数远超6400万，超过英国总人口】财政部《2009年地方财政统计资料》：到2009年底全国不包括中央的财政供养人口5392.6万人。此外还存在超过1000万的准财政供养人员，包括数十万个村委会和城市居委会。因离退长休人员和在职人员迅速增加，1998－2009年财政供养增加1550万人，年均增141万<br><img src="http://ww2.sinaimg.cn/large/709b1d0egw1ew7wju5gsrj20c807q0ti.jpg"></p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3888659738934047" target="freeweibo-mirror">SPAM 叫我小宇好了[喵喵]</a>
 </h2>
 <p>SPAM 叫我小宇好了[喵喵]</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3888589215588576" target="freeweibo-mirror">呵呵，每个房间一本，书的销量能不大么</a>
-</h2>
-<p>呵呵，每个房间一本，书的销量能不大么<br><img src="http://ww1.sinaimg.cn/large/62f8add8gw1ew73ewf0h8j218g0xcq81.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
