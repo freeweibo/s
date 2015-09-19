@@ -78,7 +78,7 @@
 </h2>
 <p>就想着拿中国当凯子<br><br>RE: 中国国家主席到访美国，记者在纽约街头采访，一位美国联邦政府社安局工作人员说，“我就是希望中国国家主席可以借我们更多钱，我说的是实话。”[笑cry]<br><img src="http://ww1.sinaimg.cn/large/4c7c1ba8gw1ew6vyi1tvxj20ix0dtwfh.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3888546752188115" target="freeweibo-mirror">等了三年还没有等来收编滴消息，发火了！[哈哈]//@麻子王四…</a>
 </h2>
