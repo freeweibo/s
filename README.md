@@ -90,7 +90,7 @@
 </h2>
 <p>//@北京杨博:转发微博<br><br>RE: 中国国家主席到访美国，记者在纽约街头采访，一位美国联邦政府社安局工作人员说，“我就是希望中国国家主席可以借我们更多钱，我说的是实话。”[笑cry]<br><img src="http://ww1.sinaimg.cn/large/4c7c1ba8gw1ew6vyi1tvxj20ix0dtwfh.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3888542423618557" target="freeweibo-mirror">//@晓_风_残_月:唉！你只知道中国政府有钱，你哪里知道中…</a>
 </h2>
@@ -108,7 +108,7 @@
 </h2>
 <p>SPAM 这几天的朋友圈又被这款“上车”APP刷屏啦！[偷笑][偷笑]刚看了下也是醉啦！[笑cry]有认证果然靠谱，各种富帅白美都在上面，这是炫富炫美的节奏嘛？[笑cry][doge][doge]等了好几个月的安卓版也上线咯，地址给你们咯，找我玩耍来~[嘻嘻][来][来] @上车科技 http://t.cn/RyvC74L<br><img src="http://ww3.sinaimg.cn/large/a180de74jw1ew6w7uyrcsj20hr0vk76r.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3888534894947606" target="freeweibo-mirror">我从习近平上台到现在都保持理性。从今天开始，只能以包子相称了…</a>
 </h2>
