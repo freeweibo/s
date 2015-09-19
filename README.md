@@ -30,11 +30,17 @@
 </h2>
 <p>用户不存在。[黑线] //@宦卿世界:#宦卿微评#请见  @宦卿微评 长微博《中国权力圈之500家庭》。//@天下第壹白龙马:[怒][抓狂]⚡//@呐喊真理:为共产主义而奋斗……[哈哈]呐喊！</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3888752042771526" target="freeweibo-mirror">SPAM 当年鬼子也曾这样干过</a>
 </h2>
 <p>SPAM 当年鬼子也曾这样干过<br><br>RE: 土地财政的罪恶！[怒][怒][怒]<br><img src="http://ww2.sinaimg.cn/large/90568a2fgw1ew7lrknz6mj20fa0hrdgy.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3888751724069457" target="freeweibo-mirror">土地财政的罪恶！[怒][怒][怒]</a>
+</h2>
+<p>土地财政的罪恶！[怒][怒][怒]<br><img src="http://ww2.sinaimg.cn/large/90568a2fgw1ew7lrknz6mj20fa0hrdgy.jpg"></p>
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
@@ -60,7 +66,7 @@
 </h2>
 <p>SPAM 约不约[偷笑]</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3888670404592010" target="freeweibo-mirror">//@蓝星虫No1://@轻松漫步一生://@沈向东大连:/…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3888544446074832" target="freeweibo-mirror">//@北京杨博:转发微博</a>
 </h2>
 <p>//@北京杨博:转发微博<br><br>RE: 中国国家主席到访美国，记者在纽约街头采访，一位美国联邦政府社安局工作人员说，“我就是希望中国国家主席可以借我们更多钱，我说的是实话。”[笑cry]<br><img src="http://ww1.sinaimg.cn/large/4c7c1ba8gw1ew6vyi1tvxj20ix0dtwfh.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3888542423618557" target="freeweibo-mirror">//@晓_风_残_月:唉！你只知道中国政府有钱，你哪里知道中…</a>
-</h2>
-<p>//@晓_风_残_月:唉！你只知道中国政府有钱，你哪里知道中国百姓的贫穷！<br><br>RE: 中国国家主席到访美国，记者在纽约街头采访，一位美国联邦政府社安局工作人员说，“我就是希望中国国家主席可以借我们更多钱，我说的是实话。”[笑cry]<br><img src="http://ww1.sinaimg.cn/large/4c7c1ba8gw1ew6vyi1tvxj20ix0dtwfh.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
