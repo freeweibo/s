@@ -26,6 +26,12 @@
 <p>
 	<small> ============== 1小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3888929998531972" target="freeweibo-mirror">他没胆@崔永元 //@长安农夫2595392335:没见崔永…</a>
+</h2>
+<p>他没胆@崔永元 //@长安农夫2595392335:没见崔永元。</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3888862982041169" target="freeweibo-mirror">方星海：新加坡政府薪水全球之冠，部长年薪人民币千万。政府极精…</a>
 </h2>
 <p>方星海：新加坡政府薪水全球之冠，部长年薪人民币千万。政府极精简，中央党部仅十几个全职人员。官员要公布财产，无法说明的财产被推定为贪污<br><br>RE: 【中国财政供养人数远超6400万，超过英国总人口】财政部《2009年地方财政统计资料》：到2009年底全国不包括中央的财政供养人口5392.6万人。此外还存在超过1000万的准财政供养人员，包括数十万个村委会和城市居委会。因离退长休人员和在职人员迅速增加，1998－2009年财政供养增加1550万人，年均增141万<br><img src="http://ww2.sinaimg.cn/large/709b1d0egw1ew7wju5gsrj20c807q0ti.jpg"></p>
@@ -54,13 +60,13 @@
 </h2>
 <p>这是解禁《纽/约/时报》的节奏吗？</p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3888781075475858" target="freeweibo-mirror">[挤眼] //@泰迪熊leodarling:彭博社，说得就是…</a>
 </h2>
 <p>[挤眼] //@泰迪熊leodarling:彭博社，说得就是你[拜拜]//@LifeTime:底线是不能再报道领导人家族财富。[doge]</p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3888769839280545" target="freeweibo-mirror">日本社会有种浓烈的AV氛围，妹子喜欢做AV女优，汉子喜欢搞A…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3888670404592010" target="freeweibo-mirror">//@蓝星虫No1://@轻松漫步一生://@沈向东大连:/…</a>
 </h2>
 <p>//@蓝星虫No1://@轻松漫步一生://@沈向东大连://@常武知府: //@草根儿传媒:是呢//@浊酒秋月: //@清风飘逸噻://@易牙和竖刁://@半苦半乐2:</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3888659738934047" target="freeweibo-mirror">SPAM 叫我小宇好了[喵喵]</a>
-</h2>
-<p>SPAM 叫我小宇好了[喵喵]</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
