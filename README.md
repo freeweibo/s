@@ -90,13 +90,13 @@
 </h2>
 <p>SPAM 当年鬼子也曾这样干过<br><br>RE: 土地财政的罪恶！[怒][怒][怒]<br><img src="http://ww2.sinaimg.cn/large/90568a2fgw1ew7lrknz6mj20fa0hrdgy.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3888751724069457" target="freeweibo-mirror">土地财政的罪恶！[怒][怒][怒]</a>
 </h2>
 <p>土地财政的罪恶！[怒][怒][怒]<br><img src="http://ww2.sinaimg.cn/large/90568a2fgw1ew7lrknz6mj20fa0hrdgy.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3888727199587481" target="freeweibo-mirror">一帮口是心非的东西！你们干嘛都把自己的子女往火坑推啊....…</a>
 </h2>
