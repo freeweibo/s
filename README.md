@@ -32,6 +32,12 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3888725043645005" target="freeweibo-mirror">中国梦和美国梦相通指的又是啥？//@陶景洲:把自己的子女推向…</a>
+</h2>
+<p>中国梦和美国梦相通指的又是啥？//@陶景洲:把自己的子女推向火坑....  //@纪筱薇://@翁浩在思考: [笑cry] //@川大陈法拉:强烈推荐关注@凤凰紫荆-</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3888709688125096" target="freeweibo-mirror">SPAM 约不约[偷笑]</a>
 </h2>
 <p>SPAM 约不约[偷笑]</p>
@@ -78,7 +84,7 @@
 </h2>
 <p>回复@风影随行hxf:我们的医保覆盖率比美国高多了，不信你问问奥巴马！//@风影随行hxf:没问题，我们再推迟十年全民医保计划。@美国驻华大使馆<br><br>RE: 中国国家主席到访美国，记者在纽约街头采访，一位美国联邦政府社安局工作人员说，“我就是希望中国国家主席可以借我们更多钱，我说的是实话。”[笑cry]<br><img src="http://ww1.sinaimg.cn/large/4c7c1ba8gw1ew6vyi1tvxj20ix0dtwfh.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3888567585335759" target="freeweibo-mirror">太黑了！[怒]//@三岔河口我的家:[疑问]//@灵逸飞羽:…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3888534894947606" target="freeweibo-mirror">我从习近平上台到现在都保持理性。从今天开始，只能以包子相称了…</a>
 </h2>
 <p>我从习近平上台到现在都保持理性。从今天开始，只能以包子相称了。。因为你不配！言论控制到了疯狂如狗的地步。</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3888524305101560" target="freeweibo-mirror">中国国家主席到访美国，记者在纽约街头采访，一位美国联邦政府社…</a>
-</h2>
-<p>中国国家主席到访美国，记者在纽约街头采访，一位美国联邦政府社安局工作人员说，“我就是希望中国国家主席可以借我们更多钱，我说的是实话。”[笑cry]<br><img src="http://ww1.sinaimg.cn/large/4c7c1ba8gw1ew6vyi1tvxj20ix0dtwfh.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
