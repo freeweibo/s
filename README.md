@@ -72,7 +72,7 @@
 </h2>
 <p>这是解禁《纽/约/时报》的节奏吗？</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3888781075475858" target="freeweibo-mirror">[挤眼] //@泰迪熊leodarling:彭博社，说得就是…</a>
 </h2>
