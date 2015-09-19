@@ -78,7 +78,7 @@
 </h2>
 <p>SPAM 发表了一篇转载博文《[转载]李新回忆录选摘：因政治需要而篡改军史的两个实例》http://t.cn/RyM0fCX</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3888755708490967" target="freeweibo-mirror">你个被人民日爆！你还幸灾乐祸，人家敢打，说明真实自由，因为结…</a>
 </h2>
