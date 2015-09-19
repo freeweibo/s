@@ -66,7 +66,7 @@
 </h2>
 <p>日本社会有种浓烈的AV氛围，妹子喜欢做AV女优，汉子喜欢搞AV女优，所以，日本国会的参政议政方式，也有一种强烈的AV风格！[围观]</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3888768207320087" target="freeweibo-mirror">SPAM //@菲力先生:您必须成为李近平！ //@特许连锁…</a>
 </h2>
