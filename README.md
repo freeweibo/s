@@ -114,7 +114,7 @@
 </h2>
 <p>SPAM 叫我小宇好了[喵喵]</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3888589215588576" target="freeweibo-mirror">呵呵，每个房间一本，书的销量能不大么</a>
 </h2>
