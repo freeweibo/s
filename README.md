@@ -78,7 +78,7 @@
 </h2>
 <p>[挤眼] //@泰迪熊leodarling:彭博社，说得就是你[拜拜]//@LifeTime:底线是不能再报道领导人家族财富。[doge]</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3888769839280545" target="freeweibo-mirror">日本社会有种浓烈的AV氛围，妹子喜欢做AV女优，汉子喜欢搞A…</a>
 </h2>
