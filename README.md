@@ -30,7 +30,7 @@
 </h2>
 <p>他没胆@崔永元 //@长安农夫2595392335:没见崔永元。</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3888929268676562" target="freeweibo-mirror">色厉内荏的傻逼而已</a>
 </h2>
