@@ -24,7 +24,7 @@
 </h2>
 <p>严峻的历史将作出裁决，我不在这里评价</p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3888929998531972" target="freeweibo-mirror">他没胆@崔永元 //@长安农夫2595392335:没见崔永…</a>
 </h2>
