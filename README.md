@@ -36,7 +36,7 @@
 </h2>
 <p>他没胆@崔永元 //@长安农夫2595392335:没见崔永元。</p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3888929268676562" target="freeweibo-mirror">色厉内荏的傻逼而已</a>
 </h2>
@@ -48,7 +48,7 @@
 </h2>
 <p>因为要从美国签单购买几百万吨转基因大豆的事，反转控们果然公开扬言要摁倒“中国一号领导人”，还真有种。<br><img src="http://ww4.sinaimg.cn/large/69c710a1jw1ew85quplnlj20gn0lamzl.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3888862982041169" target="freeweibo-mirror">方星海：新加坡政府薪水全球之冠，部长年薪人民币千万。政府极精…</a>
 </h2>
