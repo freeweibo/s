@@ -132,7 +132,7 @@
 </h2>
 <p>@鲁迅民族魂 的文章《薄.熙.来.有无平反的可能性？》精彩极了，打赏9.9元以资鼓励！#微博打赏#http://t.cn/RyGhZqv</p>
 <p>
-	<small> ============== 1天前</small>
+	<small> ============== 2天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3888862982041169" target="freeweibo-mirror">方星海：新加坡政府薪水全球之冠，部长年薪人民币千万。政府极精…</a>
 </h2>
