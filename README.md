@@ -36,7 +36,7 @@
 </h2>
 <p>//@光明家具刘志军:[吃惊][吃惊][吃惊]//@杨剑鑫: 怎么会有这么多人进套套呢？<br><br>RE: 出了一件吓死人的事情。有个云南民间自营的交易所叫泛亚金融，全国22万投资者注册，总额超过400亿，资金断链崩盘了。现在高管已被限制出境，而投资者分别在云南和上海集结申冤，举着本届老板照片要求政府作主。话说泛亚金融我有印象，但我真的没想到这玩意的规模有400亿+，这是要死人的节奏。<br><img src="http://ww3.sinaimg.cn/large/8d354b32jw1ew98lnr1muj20c808zjs9.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3889267996579347" target="freeweibo-mirror">[蜡烛]//@总统Allen：平均一人20多万，不过这些人不…</a>
 </h2>
@@ -60,13 +60,13 @@
 </h2>
 <p>彭博社的调查说，**八老子孙103人掠夺1.6万亿美元，每个家族均占2000亿美元，每个成员均占160亿美元。<br><img src="http://ww1.sinaimg.cn/large/bc27e63djw1ew8y9afgmtj20eg0frq4t.jpg"></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3889140951597257" target="freeweibo-mirror">//@广州区伯: 反法西斯抗战胜利70周年了，法西斯的残酷暴…</a>
 </h2>
 <p>//@广州区伯: 反法西斯抗战胜利70周年了，法西斯的残酷暴力行为在中国依然存在！国人怎么活了？人权那里去了？</p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3889111502753429" target="freeweibo-mirror">反法西斯抗战胜利70周年了，法西斯的残酷暴力行为在中国依然存…</a>
 </h2>
