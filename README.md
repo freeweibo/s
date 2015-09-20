@@ -36,7 +36,7 @@
 </h2>
 <p>SPAM tg的t真是一个境界 “上海的印制电路PCB企业收到上海市新闻出版局〔2014〕905号文被要求办理《印刷经营许可证》”——来自 中国印制电路行业协会 http://t.cn/RyxBDf6 v587<br><img src="http://ww1.sinaimg.cn/large/572b82eagw1ew9b6balh0j20ct0h10xl.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3889276918118825" target="freeweibo-mirror">//@光明家具刘志军:[吃惊][吃惊][吃惊]//@杨剑鑫:…</a>
 </h2>
@@ -84,7 +84,7 @@
 </h2>
 <p>//@广州区伯: 反法西斯抗战胜利70周年了，法西斯的残酷暴力行为在中国依然存在！国人怎么活了？人权那里去了？</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3889111502753429" target="freeweibo-mirror">反法西斯抗战胜利70周年了，法西斯的残酷暴力行为在中国依然存…</a>
 </h2>
