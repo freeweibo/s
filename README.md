@@ -26,6 +26,12 @@
 <p>
 	<small> ============== 1小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3889171233884843" target="freeweibo-mirror">彭博社的调查说，**八老子孙103人掠夺1.6万亿美元，每个…</a>
+</h2>
+<p>彭博社的调查说，**八老子孙103人掠夺1.6万亿美元，每个家族均占2000亿美元，每个成员均占160亿美元。<br><img src="http://ww1.sinaimg.cn/large/bc27e63djw1ew8y9afgmtj20eg0frq4t.jpg"></p>
+<p>
+	<small> ============== 5小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3889140951597257" target="freeweibo-mirror">//@广州区伯: 反法西斯抗战胜利70周年了，法西斯的残酷暴…</a>
 </h2>
 <p>//@广州区伯: 反法西斯抗战胜利70周年了，法西斯的残酷暴力行为在中国依然存在！国人怎么活了？人权那里去了？</p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3888766839904852" target="freeweibo-mirror">SPAM 发表了一篇转载博文《[转载]李新回忆录选摘：因政治…</a>
 </h2>
 <p>SPAM 发表了一篇转载博文《[转载]李新回忆录选摘：因政治需要而篡改军史的两个实例》http://t.cn/RyM0fCX</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3888755708490967" target="freeweibo-mirror">你个被人民日爆！你还幸灾乐祸，人家敢打，说明真实自由，因为结…</a>
-</h2>
-<p>你个被人民日爆！你还幸灾乐祸，人家敢打，说明真实自由，因为结果是国家文明富强民主法制。</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
