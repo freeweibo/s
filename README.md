@@ -84,7 +84,7 @@
 </h2>
 <p>回复@成一虫:整顿交易所,发改38号文 //@成一虫:清理整顿交易所是证监会发起的，搞了多年． 非法集资是 银监会与公安局管的吧：）<br><br>RE: 泛亚不归证监会管吧 孩子，你们闹错地方了<br><img src="http://ww2.sinaimg.cn/large/530952abjw1ewa39h0r1kj20zk0k0n1c.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3889544765986217" target="freeweibo-mirror">SPAM 好吧，证监会刚忙完救市，新的工作安排又来了。。/@…</a>
 </h2>
