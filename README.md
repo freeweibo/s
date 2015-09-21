@@ -60,7 +60,7 @@
 </h2>
 <p>从左开始价格：140.90.170.150.168.135，都是包邮价@书香可人 @傳古樓 @有書來兮 @贩读者言<br><img src="http://ww1.sinaimg.cn/large/87dfdf4bgw1ew97383jv5j20xc18gn73.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3889226226044224" target="freeweibo-mirror">//@乌托国人民: //@迷与悟-AcB: //@守望者的晨…</a>
 </h2>
