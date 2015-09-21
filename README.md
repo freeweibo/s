@@ -20,6 +20,18 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3889454773471395" target="freeweibo-mirror">SPAM 新疆出大事了，吐鲁番葡萄酿出罕见有机深根红酒，性价…</a>
+</h2>
+<p>SPAM 新疆出大事了，吐鲁番葡萄酿出罕见有机深根红酒，性价比高的不敢相信…… http://t.cn/RyJywaj</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3889444497497747" target="freeweibo-mirror">SPAM //@管荣君同志: [赞]//@V一骑绝尘V: […</a>
+</h2>
+<p>SPAM //@管荣君同志: [赞]//@V一骑绝尘V: [赞]<br><br>RE: 如慶豐乾綱獨斷特赦了LXB，他倆可能一起去三文魚故鄉領取諾貝爾和平獎。#中國夢#</p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3889294127571061" target="freeweibo-mirror">残酷[怒]//@诗人记者陈小平: //@何天恩-:[怒][怒…</a>
 </h2>
 <p>残酷[怒]//@诗人记者陈小平: //@何天恩-:[怒][怒]//@宝贝回家-中原: [怒][怒]//@王于京:[怒][怒][怒] //@交警陈清洲:[吃惊][怒]这是哪个国家呀？！//@何天恩-：@王于京 @侯宁@杨建国 [吃惊][吃惊]</p>
@@ -125,18 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3888922977297875" target="freeweibo-mirror">因为要从美国签单购买几百万吨转基因大豆的事，反转控们果然公开…</a>
 </h2>
 <p>因为要从美国签单购买几百万吨转基因大豆的事，反转控们果然公开扬言要摁倒“中国一号领导人”，还真有种。<br><img src="http://ww4.sinaimg.cn/large/69c710a1jw1ew85quplnlj20gn0lamzl.jpg"></p>
-<p>
-	<small> ============== 2天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3888872347712429" target="freeweibo-mirror">@鲁迅民族魂 的文章《薄.熙.来.有无平反的可能性？》精彩极…</a>
-</h2>
-<p>@鲁迅民族魂 的文章《薄.熙.来.有无平反的可能性？》精彩极了，打赏9.9元以资鼓励！#微博打赏#http://t.cn/RyGhZqv</p>
-<p>
-	<small> ============== 2天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3888862982041169" target="freeweibo-mirror">方星海：新加坡政府薪水全球之冠，部长年薪人民币千万。政府极精…</a>
-</h2>
-<p>方星海：新加坡政府薪水全球之冠，部长年薪人民币千万。政府极精简，中央党部仅十几个全职人员。官员要公布财产，无法说明的财产被推定为贪污<br><br>RE: 【中国财政供养人数远超6400万，超过英国总人口】财政部《2009年地方财政统计资料》：到2009年底全国不包括中央的财政供养人口5392.6万人。此外还存在超过1000万的准财政供养人员，包括数十万个村委会和城市居委会。因离退长休人员和在职人员迅速增加，1998－2009年财政供养增加1550万人，年均增141万<br><img src="http://ww2.sinaimg.cn/large/709b1d0egw1ew7wju5gsrj20c807q0ti.jpg"></p>
 <p>
 	<small> ============== 2天前</small>
 </p>
