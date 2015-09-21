@@ -126,7 +126,7 @@
 </h2>
 <p>因为要从美国签单购买几百万吨转基因大豆的事，反转控们果然公开扬言要摁倒“中国一号领导人”，还真有种。<br><img src="http://ww4.sinaimg.cn/large/69c710a1jw1ew85quplnlj20gn0lamzl.jpg"></p>
 <p>
-	<small> ============== 1天前</small>
+	<small> ============== 2天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3888872347712429" target="freeweibo-mirror">@鲁迅民族魂 的文章《薄.熙.来.有无平反的可能性？》精彩极…</a>
 </h2>
