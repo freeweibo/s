@@ -24,7 +24,7 @@
 </h2>
 <p>任总到现在还执迷不悟，没有退党，说明他还相信共产主义必然胜利！//@隆裕太后: 转发微博</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3889550285983531" target="freeweibo-mirror">SPAM 云南泛亚</a>
 </h2>
@@ -84,7 +84,7 @@
 </h2>
 <p>共产，共妻，共小秘。[微笑]</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3889490525041279" target="freeweibo-mirror">SPAM [吃惊]//@苏州朱永健: //@急性短暂性精神障…</a>
 </h2>
