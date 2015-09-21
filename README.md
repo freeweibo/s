@@ -50,6 +50,12 @@
 <p>
 	<small> ============== 4小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3889488809445557" target="freeweibo-mirror">邓改开的本意就是要让中围逐渐走向私有制，在体制上引进西方先进…</a>
+</h2>
+<p>邓改开的本意就是要让中围逐渐走向私有制，在体制上引进西方先进的东西，使体制、政党为服务型，为现代化服好务。现在好了，全国包子铺眼看都变国有了，只许卖一种馅的！牛肉饼不让卖了。农村似乎要恢复人民公社、吃大食堂了。毛的好后生，你干得漂亮！（费2爷）</p>
+<p>
+	<small> ============== 5小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3889463861988665" target="freeweibo-mirror">有人要抢皇后！[哈哈] http://t.cn/RyxVZU…</a>
 </h2>
 <p>有人要抢皇后！[哈哈] http://t.cn/RyxVZU7 .</p>
@@ -66,7 +72,7 @@
 </h2>
 <p>SPAM //@管荣君同志: [赞]//@V一骑绝尘V: [赞]<br><br>RE: 如慶豐乾綱獨斷特赦了LXB，他倆可能一起去三文魚故鄉領取諾貝爾和平獎。#中國夢#</p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3889313161186145" target="freeweibo-mirror">如慶豐乾綱獨斷特赦了LXB，他倆可能一起去三文魚故鄉領取諾貝…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3889224715454705" target="freeweibo-mirror">据@庆阳热媒体 这是哪个国家的视频？这名女子到底犯了什么弥天…</a>
 </h2>
 <p>据@庆阳热媒体 这是哪个国家的视频？这名女子到底犯了什么弥天大罪？竟在众目睽睽下，被人当街放火活活烧死！残忍[吃惊]胆小者慎点...... [怒]@90后 http://t.cn/Ryx9Ec0</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3889171233884843" target="freeweibo-mirror">彭博社的调查说，**八老子孙103人掠夺1.6万亿美元，每个…</a>
-</h2>
-<p>彭博社的调查说，**八老子孙103人掠夺1.6万亿美元，每个家族均占2000亿美元，每个成员均占160亿美元。<br><img src="http://ww1.sinaimg.cn/large/bc27e63djw1ew8y9afgmtj20eg0frq4t.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
