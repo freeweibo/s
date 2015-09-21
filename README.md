@@ -56,6 +56,12 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3889528282675972" target="freeweibo-mirror">泛亚不归证监会管吧 孩子，你们闹错地方了</a>
+</h2>
+<p>泛亚不归证监会管吧 孩子，你们闹错地方了<br><img src="http://ww2.sinaimg.cn/large/530952abjw1ewa39h0r1kj20zk0k0n1c.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3889528068949819" target="freeweibo-mirror">//@费煜鈞: //@费煜鈞: 转发微博</a>
 </h2>
 <p>//@费煜鈞: //@费煜鈞: 转发微博<br><br>RE: 邓改开的本意就是要让中围逐渐走向私有制，在体制上引进西方先进的东西，使体制、政党为服务型，为现代化服好务。现在好了，全国包子铺眼看都变国有了，只许卖一种馅的！牛肉饼不让卖了。农村似乎要恢复人民公社、吃大食堂了。毛的好后生，你干得漂亮！（费2爷）</p>
@@ -90,7 +96,7 @@
 </h2>
 <p>邓改开的本意就是要让中围逐渐走向私有制，在体制上引进西方先进的东西，使体制、政党为服务型，为现代化服好务。现在好了，全国包子铺眼看都变国有了，只许卖一种馅的！牛肉饼不让卖了。农村似乎要恢复人民公社、吃大食堂了。毛的好后生，你干得漂亮！（费2爷）</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3889463861988665" target="freeweibo-mirror">有人要抢皇后！[哈哈] http://t.cn/RyxVZU…</a>
 </h2>
@@ -108,7 +114,7 @@
 </h2>
 <p>SPAM //@管荣君同志: [赞]//@V一骑绝尘V: [赞]<br><br>RE: 如慶豐乾綱獨斷特赦了LXB，他倆可能一起去三文魚故鄉領取諾貝爾和平獎。#中國夢#</p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3889313161186145" target="freeweibo-mirror">如慶豐乾綱獨斷特赦了LXB，他倆可能一起去三文魚故鄉領取諾貝…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3889283758882106" target="freeweibo-mirror">SPAM tg的t真是一个境界 “上海的印制电路PCB企业收…</a>
 </h2>
 <p>SPAM tg的t真是一个境界 “上海的印制电路PCB企业收到上海市新闻出版局〔2014〕905号文被要求办理《印刷经营许可证》”——来自 中国印制电路行业协会 http://t.cn/RyxBDf6 v587<br><img src="http://ww1.sinaimg.cn/large/572b82eagw1ew9b6balh0j20ct0h10xl.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3889276918118825" target="freeweibo-mirror">//@光明家具刘志军:[吃惊][吃惊][吃惊]//@杨剑鑫:…</a>
-</h2>
-<p>//@光明家具刘志军:[吃惊][吃惊][吃惊]//@杨剑鑫: 怎么会有这么多人进套套呢？<br><br>RE: 出了一件吓死人的事情。有个云南民间自营的交易所叫泛亚金融，全国22万投资者注册，总额超过400亿，资金断链崩盘了。现在高管已被限制出境，而投资者分别在云南和上海集结申冤，举着本届老板照片要求政府作主。话说泛亚金融我有印象，但我真的没想到这玩意的规模有400亿+，这是要死人的节奏。<br><img src="http://ww3.sinaimg.cn/large/8d354b32jw1ew98lnr1muj20c808zjs9.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
