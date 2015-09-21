@@ -66,13 +66,13 @@
 </h2>
 <p>【22万投资者陷泛亚骗局，近430亿难追讨】泛亚自2011年开盘以来，投资热浪令市场震惊。监管的缺失，人性的贪婪，令这家号称世界最大的稀有金属交易所，延续了数年疯狂的围猎资本游戏。最终资金链断裂，20多个省份的22万投资者的430亿元资金难以讨回。<br><img src="http://ww3.sinaimg.cn/large/9c9f80b1gw1ewa6ag0oyij20c8copqv6.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3889554454633552" target="freeweibo-mirror">哈哈，证监会门口热闹了！大盘跌股民都知道“投资有风险入市需谨…</a>
 </h2>
 <p>哈哈，证监会门口热闹了！大盘跌股民都知道“投资有风险入市需谨慎”，大盘暴跌没人去门口喊口号，今天投资贵金属失利的不远千里，来了~~[笑cry]<br><img src="http://ww4.sinaimg.cn/large/005vSjEdjw1ewa64jkv4qj30c80800ty.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3889551720155079" target="freeweibo-mirror">任总到现在还执迷不悟，没有退党，说明他还相信共产主义必然胜利…</a>
 </h2>
