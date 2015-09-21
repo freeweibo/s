@@ -24,13 +24,13 @@
 </h2>
 <p>SPAM 发表了一篇转载博文《[转载]“資本主義”是一個僞命題》http://t.cn/RyJTzAD<br><img src="http://ww1.sinaimg.cn/large/5408ee85jw1ewad48m89ej20j60j6769.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3889613623770480" target="freeweibo-mirror">SPAM 发表了一篇转载博文《[转载]落差如此之大》http…</a>
 </h2>
 <p>SPAM 发表了一篇转载博文《[转载]落差如此之大》http://t.cn/RyJYFJr<br><img src="http://ww2.sinaimg.cn/large/5408ee85jw1ewad2d2k60j20gu0hq0vp.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3889575007253872" target="freeweibo-mirror">//@价值投资快客: //@思饭辙: //@深夜走过长安街0…</a>
 </h2>
@@ -138,7 +138,7 @@
 </h2>
 <p>应该尊重历史，不要臆想瞎编，经过那个时代的人都活着。 //@华夏-东东: （《人民日报》一九六六年九月五日社论） 毛泽东同志反复地告诉我们，无产阶级文化大革命是一场触及人们灵魂的大革命。又说，实现这一场大革命，要用文斗，不用武斗。 邓相超，不要因你个人得失整天传谣诋毁毛主席。<br><br>RE: 一九六六年六月间，打人之风刚开始盛行，北京市委书记李雪峰传达了毛的关于发生打死人事件的指示：“打就打嘛，好人打好人误会，不打不相识；好人打坏人，活该；好人打坏人光荣。”（江青传达的字句稍有不同）正是在得到这个最高指示之后，红卫兵打死人合法化……</p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p>
 <table>
     <tr>
