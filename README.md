@@ -30,7 +30,13 @@
 </h2>
 <p>SPAM //@管荣君同志: [赞]//@V一骑绝尘V: [赞]<br><br>RE: 如慶豐乾綱獨斷特赦了LXB，他倆可能一起去三文魚故鄉領取諾貝爾和平獎。#中國夢#</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3889313161186145" target="freeweibo-mirror">如慶豐乾綱獨斷特赦了LXB，他倆可能一起去三文魚故鄉領取諾貝…</a>
+</h2>
+<p>如慶豐乾綱獨斷特赦了LXB，他倆可能一起去三文魚故鄉領取諾貝爾和平獎。#中國夢#</p>
+<p>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3889294127571061" target="freeweibo-mirror">残酷[怒]//@诗人记者陈小平: //@何天恩-:[怒][怒…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3888929268676562" target="freeweibo-mirror">色厉内荏的傻逼而已</a>
 </h2>
 <p>色厉内荏的傻逼而已</p>
-<p>
-	<small> ============== 2天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3888922977297875" target="freeweibo-mirror">因为要从美国签单购买几百万吨转基因大豆的事，反转控们果然公开…</a>
-</h2>
-<p>因为要从美国签单购买几百万吨转基因大豆的事，反转控们果然公开扬言要摁倒“中国一号领导人”，还真有种。<br><img src="http://ww4.sinaimg.cn/large/69c710a1jw1ew85quplnlj20gn0lamzl.jpg"></p>
 <p>
 	<small> ============== 2天前</small>
 </p>
