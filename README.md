@@ -114,13 +114,13 @@
 </h2>
 <p>泛亚不归证监会管吧 孩子，你们闹错地方了<br><img src="http://ww2.sinaimg.cn/large/530952abjw1ewa39h0r1kj20zk0k0n1c.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3889528068949819" target="freeweibo-mirror">//@费煜鈞: //@费煜鈞: 转发微博</a>
 </h2>
 <p>//@费煜鈞: //@费煜鈞: 转发微博<br><br>RE: 邓改开的本意就是要让中围逐渐走向私有制，在体制上引进西方先进的东西，使体制、政党为服务型，为现代化服好务。现在好了，全国包子铺眼看都变国有了，只许卖一种馅的！牛肉饼不让卖了。农村似乎要恢复人民公社、吃大食堂了。毛的好后生，你干得漂亮！（费2爷）</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3889493025588761" target="freeweibo-mirror">应该尊重历史，不要臆想瞎编，经过那个时代的人都活着。 //@…</a>
 </h2>
