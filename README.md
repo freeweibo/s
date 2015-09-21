@@ -54,7 +54,7 @@
 </h2>
 <p>SPAM 他们该去哪里闹呢？//@中银唐老鸭: 贪婪的一帮无赖 //@陈军--价值投资者:[汗] //@麻黑浮云:此国此政此民真绝配。泛亚这点就这样，想象一下刚兑。<br><br>RE: 泛亚不归证监会管吧 孩子，你们闹错地方了<br><img src="http://ww2.sinaimg.cn/large/530952abjw1ewa39h0r1kj20zk0k0n1c.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3889528282675972" target="freeweibo-mirror">泛亚不归证监会管吧 孩子，你们闹错地方了</a>
 </h2>
