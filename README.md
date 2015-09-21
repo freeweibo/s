@@ -36,7 +36,7 @@
 </h2>
 <p>回复@成一虫:整顿交易所,发改38号文 //@成一虫:清理整顿交易所是证监会发起的，搞了多年． 非法集资是 银监会与公安局管的吧：）<br><br>RE: 泛亚不归证监会管吧 孩子，你们闹错地方了<br><img src="http://ww2.sinaimg.cn/large/530952abjw1ewa39h0r1kj20zk0k0n1c.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3889544765986217" target="freeweibo-mirror">SPAM 好吧，证监会刚忙完救市，新的工作安排又来了。。/@…</a>
 </h2>
@@ -102,7 +102,7 @@
 </h2>
 <p>SPAM 新疆出大事了，吐鲁番葡萄酿出罕见有机深根红酒，性价比高的不敢相信…… http://t.cn/RyJywaj</p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3889444497497747" target="freeweibo-mirror">SPAM //@管荣君同志: [赞]//@V一骑绝尘V: […</a>
 </h2>
