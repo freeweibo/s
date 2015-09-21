@@ -24,7 +24,7 @@
 </h2>
 <p>共产，共妻，共小秘。[微笑]</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3889454773471395" target="freeweibo-mirror">SPAM 新疆出大事了，吐鲁番葡萄酿出罕见有机深根红酒，性价…</a>
 </h2>
