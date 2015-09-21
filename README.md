@@ -120,7 +120,7 @@
 </h2>
 <p>SPAM #北京突发#【金融街[话筒]】@高赛昂：证监会门口儿炸了窝了。。。<br><img src="http://ww1.sinaimg.cn/large/63136032gw1ewa5qsm9dtj20zk0zk4ay.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3889545794067831" target="freeweibo-mirror">回复@成一虫:整顿交易所,发改38号文 //@成一虫:清理整…</a>
 </h2>
@@ -138,7 +138,7 @@
 </h2>
 <p>SPAM //@Newsfeed: //@麻黑浮云:回复@胖猪猪呼呼睡:越是这样，就越会发生。//@胖猪猪呼呼睡:所以这个泡泡绝对不能破。//@麻黑浮云:此国此政此民真绝配。泛亚这点就这样，想象一下刚兑。<br><br>RE: 泛亚不归证监会管吧 孩子，你们闹错地方了<br><img src="http://ww2.sinaimg.cn/large/530952abjw1ewa39h0r1kj20zk0k0n1c.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p>
 <table>
     <tr>
