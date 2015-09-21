@@ -108,13 +108,13 @@
 </h2>
 <p>SPAM ✌️<br><br>RE: SPAM #北京突发#【金融街[话筒]】@高赛昂：证监会门口儿炸了窝了。。。<br><img src="http://ww1.sinaimg.cn/large/63136032gw1ewa5qsm9dtj20zk0zk4ay.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3889550285983531" target="freeweibo-mirror">SPAM 云南泛亚</a>
 </h2>
 <p>SPAM 云南泛亚<br><br>RE: 一个公司能引发这么大的动静？ http://t.cn/RyJXUme .</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3889549917178787" target="freeweibo-mirror">SPAM #北京突发#【金融街[话筒]】@高赛昂：证监会门口…</a>
 </h2>
