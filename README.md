@@ -66,13 +66,13 @@
 </h2>
 <p>SPAM 风险自担，谁闹抓谁！！//@于晓华_经济:还不删网？//@李君的世界: 贵金属交易平台大都是骗子.<br><br>RE: SPAM #北京突发#【金融街[话筒]】@高赛昂：证监会门口儿炸了窝了。。。<br><img src="http://ww1.sinaimg.cn/large/63136032gw1ewa5qsm9dtj20zk0zk4ay.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3889572431384156" target="freeweibo-mirror">SPAM //@贺江兵:占领金融街？</a>
 </h2>
 <p>SPAM //@贺江兵:占领金融街？<br><br>RE: SPAM 泛亚投资人牛逼！占领富凯大厦！<br><img src="http://ww2.sinaimg.cn/large/62a6f5c1gw1ewa7poxre6j20hs0dcwhf.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3889567356295385" target="freeweibo-mirror">SPAM 泛亚投资人牛逼！占领富凯大厦！</a>
 </h2>
