@@ -24,13 +24,13 @@
 </h2>
 <p>SPAM 为保安全，截屏发了。看得尼玛笑死了～复读机啊卧槽。当年要是有微博，何至于此啊，哎～<br><img src="http://ww1.sinaimg.cn/large/8f1bd71bgw1ewbam0gdqcj20hs0vkn29.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3889875687936980" target="freeweibo-mirror">SPAM #跟着习大大去美国#</a>
 </h2>
 <p>SPAM #跟着习大大去美国#<br><br>RE: 习近平接受华尔街日报书面专访，不要怪小鲸没提醒你们，重点、好好、睁大眼睛看第七问，看了再自己默默滴去掂量。[酷]<br><img src="http://ww2.sinaimg.cn/large/7061c249gw1ewb5u5ot00j20c8aizhdu.jpg"></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3889874677536169" target="freeweibo-mirror">SPAM 嗯，咳咳，，，，</a>
 </h2>
