@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3889779059701031" target="freeweibo-mirror">阿谀唯上，见风使舵。 //@浩正刘臻:[生病] //@演员孙…</a>
+</h2>
+<p>阿谀唯上，见风使舵。 //@浩正刘臻:[生病] //@演员孙海英:不管他说什么，反正股民可以受益几天。<br><br>RE: 因领导人访美，央视腔调为之一变，这几天多个栏目都在谈美国，谈中美关系。把美国夸的跟花一样，把中美关系说的比穿一条裤子还嫌肥般亲密。与过往凡事都指责美国、把中国的种种不幸都推到美国黑手上的说法，有着天壤之别。这种用人朝前不用人朝后的市侩、功利主义做法，让人作呕，露出官媒猥琐的嘴脸。</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3889775142935568" target="freeweibo-mirror">//@再走一程2://@龙望东: →_→//@何兵:竟然有人…</a>
 </h2>
 <p>//@再走一程2://@龙望东: →_→//@何兵:竟然有人说他要分裂国家。@幸福正在路上溜达呢:每次提到他，都羞愧不已，愿浦律安好！<br><br>RE: 分享视频 http://t.cn/RyJ3WZN .</p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3889549917178787" target="freeweibo-mirror">SPAM #北京突发#【金融街[话筒]】@高赛昂：证监会门口…</a>
 </h2>
 <p>SPAM #北京突发#【金融街[话筒]】@高赛昂：证监会门口儿炸了窝了。。。<br><img src="http://ww1.sinaimg.cn/large/63136032gw1ewa5qsm9dtj20zk0zk4ay.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3889545794067831" target="freeweibo-mirror">回复@成一虫:整顿交易所,发改38号文 //@成一虫:清理整…</a>
-</h2>
-<p>回复@成一虫:整顿交易所,发改38号文 //@成一虫:清理整顿交易所是证监会发起的，搞了多年． 非法集资是 银监会与公安局管的吧：）<br><br>RE: 泛亚不归证监会管吧 孩子，你们闹错地方了<br><img src="http://ww2.sinaimg.cn/large/530952abjw1ewa39h0r1kj20zk0k0n1c.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
