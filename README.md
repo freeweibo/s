@@ -24,7 +24,7 @@
 </h2>
 <p>才知道啊，习惯了！<br><br>RE: 因领导人访美，央视腔调为之一变，这几天多个栏目都在谈美国，把美国夸的跟花一样，把中美关系说的比穿一条裤子还嫌肥般亲密。与过往凡事都指责美国、把中国的种种不幸都推到美国黑手上的说法，有着天壤之别。这种用人朝前不用人朝后的市侩、功利主义做法，让人作呕，露出官媒猥琐的嘴脸。@书生老田05</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3890041111741792" target="freeweibo-mirror">//@悬崖中山楂树://@Ibiso_II://@快乐老龙龙…</a>
 </h2>
@@ -72,7 +72,7 @@
 </h2>
 <p>922'会见记'<br><img src="http://ww1.sinaimg.cn/large/857a392dgw1ewbk3pqjlmj20c80x643i.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3889971892777569" target="freeweibo-mirror">暑假期间，朋友自掏腰包请我们去西九华山玩，没动用一分钱公款，…</a>
 </h2>
@@ -108,7 +108,7 @@
 </h2>
 <p>SPAM 为保安全，截屏发了。看得尼玛笑死了～复读机啊卧槽。当年要是有微博，何至于此啊，哎～<br><img src="http://ww1.sinaimg.cn/large/8f1bd71bgw1ewbam0gdqcj20hs0vkn29.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3889875687936980" target="freeweibo-mirror">SPAM #跟着习大大去美国#</a>
 </h2>
