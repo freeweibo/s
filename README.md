@@ -30,7 +30,13 @@
 </h2>
 <p>//@悬崖中山楂树://@Ibiso_II://@快乐老龙龙: //@倚剑下天山-倚天剑://@号被跟踪: [笑cry][笑cry]→_→//@咪润://@余芷诺01:[哈哈]//@心儿吃货: [哈哈][笑cry][笑cry][钟][钟][钟][蜡烛]//@九九重阳688:自以为靠红卫兵那一套混吃世界，做梦吧<br><br>RE: VOA记者方冰：“习近平的混乱棋局”研讨会：#陈破空：“习近平访美是美中关系40年中的最低点，他在华盛顿只呆一天半，说明中美关系濒临摊牌和破裂，而且国宴设在星期五晚上，据说这在美国属首次，因为议员都离开了，减少了炮轰的可能性。” 他总结8个字，习近平政权是“四面树敌，内外交困”。<br><img src="http://ww1.sinaimg.cn/large/005El4jTjw1ewbhkgig9dj308w0643yk.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3890036384565432" target="freeweibo-mirror">噗，央视骂美国又不是骂给美国人听的。 //@彭保红:美国，不…</a>
+</h2>
+<p>噗，央视骂美国又不是骂给美国人听的。 //@彭保红:美国，不再是敌对势力了？//@无为儿至: //@刘耘博士://@应天澜: [哈哈][哈哈]//@湖南豆可夫:不提西方敌对势力亡我之心不死了？<br><br>RE: 因领导人访美，央视腔调为之一变，这几天多个栏目都在谈美国，把美国夸的跟花一样，把中美关系说的比穿一条裤子还嫌肥般亲密。与过往凡事都指责美国、把中国的种种不幸都推到美国黑手上的说法，有着天壤之别。这种用人朝前不用人朝后的市侩、功利主义做法，让人作呕，露出官媒猥琐的嘴脸。@书生老田05</p>
+<p>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3890035994316705" target="freeweibo-mirror">民主的美国已经有了它的同伴，孙中山的事业已经有了它的继承者，…</a>
 </h2>
@@ -78,7 +84,7 @@
 </h2>
 <p>VOA记者方冰：“习近平的混乱棋局”研讨会：#陈破空：“习近平访美是美中关系40年中的最低点，他在华盛顿只呆一天半，说明中美关系濒临摊牌和破裂，而且国宴设在星期五晚上，据说这在美国属首次，因为议员都离开了，减少了炮轰的可能性。” 他总结8个字，习近平政权是“四面树敌，内外交困”。<br><img src="http://ww1.sinaimg.cn/large/005El4jTjw1ewbhkgig9dj308w0643yk.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3889962346960558" target="freeweibo-mirror">纽约时报：《内忧外扰并不妨碍习近平强势访美》习近平经常被形容…</a>
 </h2>
@@ -102,7 +108,7 @@
 </h2>
 <p>SPAM 为保安全，截屏发了。看得尼玛笑死了～复读机啊卧槽。当年要是有微博，何至于此啊，哎～<br><img src="http://ww1.sinaimg.cn/large/8f1bd71bgw1ewbam0gdqcj20hs0vkn29.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3889875687936980" target="freeweibo-mirror">SPAM #跟着习大大去美国#</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3889834156541508" target="freeweibo-mirror">SPAM 历史在不停地重复着。</a>
 </h2>
 <p>SPAM 历史在不停地重复着。<br><br>RE: #當年今日#    去年今日，學生罷課，序曲響起～<br><img src="http://ww2.sinaimg.cn/large/0066Rkgjjw1ewaz962ioij30zk0qoaiy.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3889822320253773" target="freeweibo-mirror">SPAM 回复@张开磊:呵呵   全对上//@张开磊:[汗]</a>
-</h2>
-<p>SPAM 回复@张开磊:呵呵   全对上//@张开磊:[汗]<br><br>RE: 中美圆桌会议：李彦宏对面坐着谷歌 ，马云 对面坐着亚马逊 ，马化腾对面坐着盖茨（MSN）。 奥巴马左右一看，嚎啕大哭，一群抄作业的，牛逼哄哄抄到家门口来了！[偷笑]天涯杂谈<br><img src="http://ww2.sinaimg.cn/large/49fdbfd4jw1ewb0exjl5fj20e80e875g.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
