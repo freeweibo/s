@@ -24,13 +24,13 @@
 </h2>
 <p>SPAM 为保安全，截屏发了。看得尼玛笑死了～复读机啊卧槽。当年要是有微博，何至于此啊，哎～<br><img src="http://ww1.sinaimg.cn/large/8f1bd71bgw1ewbam0gdqcj20hs0vkn29.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3889875687936980" target="freeweibo-mirror">SPAM #跟着习大大去美国#</a>
 </h2>
 <p>SPAM #跟着习大大去美国#<br><br>RE: 习近平接受华尔街日报书面专访，不要怪小鲸没提醒你们，重点、好好、睁大眼睛看第七问，看了再自己默默滴去掂量。[酷]<br><img src="http://ww2.sinaimg.cn/large/7061c249gw1ewb5u5ot00j20c8aizhdu.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3889874677536169" target="freeweibo-mirror">SPAM 嗯，咳咳，，，，</a>
 </h2>
@@ -60,7 +60,7 @@
 </h2>
 <p>SPAM 回复@张开磊:呵呵   全对上//@张开磊:[汗]<br><br>RE: 中美圆桌会议：李彦宏对面坐着谷歌 ，马云 对面坐着亚马逊 ，马化腾对面坐着盖茨（MSN）。 奥巴马左右一看，嚎啕大哭，一群抄作业的，牛逼哄哄抄到家门口来了！[偷笑]天涯杂谈<br><img src="http://ww2.sinaimg.cn/large/49fdbfd4jw1ewb0exjl5fj20e80e875g.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3889816930424299" target="freeweibo-mirror">中美圆桌会议：李彦宏对面坐着谷歌 ，马云 对面坐着亚马逊 ，…</a>
 </h2>
