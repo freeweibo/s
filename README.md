@@ -96,7 +96,7 @@
 </h2>
 <p>有一个国家，天天骂美国。领导人一访美，美国忽然成了亲人。</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3889929497504138" target="freeweibo-mirror">因领导人访美，央视腔调为之一变，这几天多个栏目都在谈美国，把…</a>
 </h2>
