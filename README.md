@@ -24,13 +24,13 @@
 </h2>
 <p>SPAM 为保安全，截屏发了。看得尼玛笑死了～复读机啊卧槽。当年要是有微博，何至于此啊，哎～<br><img src="http://ww1.sinaimg.cn/large/8f1bd71bgw1ewbam0gdqcj20hs0vkn29.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3889875687936980" target="freeweibo-mirror">SPAM #跟着习大大去美国#</a>
 </h2>
 <p>SPAM #跟着习大大去美国#<br><br>RE: 习近平接受华尔街日报书面专访，不要怪小鲸没提醒你们，重点、好好、睁大眼睛看第七问，看了再自己默默滴去掂量。[酷]<br><img src="http://ww2.sinaimg.cn/large/7061c249gw1ewb5u5ot00j20c8aizhdu.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3889874677536169" target="freeweibo-mirror">SPAM 嗯，咳咳，，，，</a>
 </h2>
@@ -102,7 +102,7 @@
 </h2>
 <p>http://weibo.com/u/2806559662 是什么让如今的人民警察如此完全丧失了人民性？是制度的缺失，还是政府管理的无能，还是警察机关已经全面走向腐败？河南警察派出所门口枪指女子称“打死你也是白打” http://t.cn/RyJGnL8</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3889757450844539" target="freeweibo-mirror">因领导人访美，央视腔调为之一变，这几天多个栏目都在谈美国，谈…</a>
 </h2>
