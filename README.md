@@ -42,13 +42,13 @@
 </h2>
 <p>习近平接受华尔街日报书面专访，不要怪小鲸没提醒你们，重点、好好、睁大眼睛看第七问，看了再自己默默滴去掂量。[酷]<br><img src="http://ww2.sinaimg.cn/large/7061c249gw1ewb5u5ot00j20c8aizhdu.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3889834156541508" target="freeweibo-mirror">SPAM 历史在不停地重复着。</a>
 </h2>
 <p>SPAM 历史在不停地重复着。<br><br>RE: #當年今日#    去年今日，學生罷課，序曲響起～<br><img src="http://ww2.sinaimg.cn/large/0066Rkgjjw1ewaz962ioij30zk0qoaiy.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3889822320253773" target="freeweibo-mirror">SPAM 回复@张开磊:呵呵   全对上//@张开磊:[汗]</a>
 </h2>
@@ -90,7 +90,7 @@
 </h2>
 <p>[哈哈]分裂症。//@演员孙海英: 不管他说什么，反正股民可以受益几天。<br><br>RE: 因领导人访美，央视腔调为之一变，这几天多个栏目都在谈美国，谈中美关系。把美国夸的跟花一样，把中美关系说的比穿一条裤子还嫌肥般亲密。与过往凡事都指责美国、把中国的种种不幸都推到美国黑手上的说法，有着天壤之别。这种用人朝前不用人朝后的市侩、功利主义做法，让人作呕，露出官媒猥琐的嘴脸。</p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3889771644303171" target="freeweibo-mirror">术语：新闻宣传。//@楚地鄂人:一而贯之，1949年前，我党…</a>
 </h2>
