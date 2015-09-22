@@ -66,7 +66,7 @@
 </h2>
 <p>中美圆桌会议：李彦宏对面坐着谷歌 ，马云 对面坐着亚马逊 ，马化腾对面坐着盖茨（MSN）。 奥巴马左右一看，嚎啕大哭，一群抄作业的，牛逼哄哄抄到家门口来了！[偷笑]天涯杂谈<br><img src="http://ww2.sinaimg.cn/large/49fdbfd4jw1ewb0exjl5fj20e80e875g.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3889807241965974" target="freeweibo-mirror">#當年今日#    去年今日，學生罷課，序曲響起～</a>
 </h2>
