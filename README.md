@@ -90,7 +90,7 @@
 </h2>
 <p>纽约时报：《内忧外扰并不妨碍习近平强势访美》习近平经常被形容为共产党数代领导人中，权力最大的一位。周二他抵达美国时，将会面临经济领域吹来的逆风，以及他的执政方式受到的日益严重的质疑——这与他去年接待奥巴马总统时，所表现出的胸有成竹的形象大相径庭。http://t.cn/RyipVYI<br><img src="http://ww3.sinaimg.cn/large/66e6a0b2gw1ewbh43e43cj20go0bytbm.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3889949126178523" target="freeweibo-mirror">有一个国家，天天骂美国。领导人一访美，美国忽然成了亲人。</a>
 </h2>
