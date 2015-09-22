@@ -54,7 +54,7 @@
 </h2>
 <p>SPAM 回复@张开磊:呵呵   全对上//@张开磊:[汗]<br><br>RE: 中美圆桌会议：李彦宏对面坐着谷歌 ，马云 对面坐着亚马逊 ，马化腾对面坐着盖茨（MSN）。 奥巴马左右一看，嚎啕大哭，一群抄作业的，牛逼哄哄抄到家门口来了！[偷笑]天涯杂谈<br><img src="http://ww2.sinaimg.cn/large/49fdbfd4jw1ewb0exjl5fj20e80e875g.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3889816930424299" target="freeweibo-mirror">中美圆桌会议：李彦宏对面坐着谷歌 ，马云 对面坐着亚马逊 ，…</a>
 </h2>
@@ -66,7 +66,7 @@
 </h2>
 <p>#當年今日#    去年今日，學生罷課，序曲響起～<br><img src="http://ww2.sinaimg.cn/large/0066Rkgjjw1ewaz962ioij30zk0qoaiy.jpg"></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3889779059701031" target="freeweibo-mirror">阿谀唯上，见风使舵。 //@浩正刘臻:[生病] //@演员孙…</a>
 </h2>
