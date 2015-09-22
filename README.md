@@ -78,7 +78,7 @@
 </h2>
 <p>我的每一个字都来自中国官方媒体报道，建议您去把他们都自行抓起来</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3889663074644029" target="freeweibo-mirror">SPAM [笑cry]山东人民。。。</a>
 </h2>
