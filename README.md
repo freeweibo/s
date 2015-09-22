@@ -42,7 +42,7 @@
 </h2>
 <p>习近平接受华尔街日报书面专访，不要怪小鲸没提醒你们，重点、好好、睁大眼睛看第七问，看了再自己默默滴去掂量。[酷]<br><img src="http://ww2.sinaimg.cn/large/7061c249gw1ewb5u5ot00j20c8aizhdu.jpg"></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3889861293077635" target="freeweibo-mirror">一个月前美国还是最危险的西方敌对势力，支持日本，搞乱南海，围…</a>
 </h2>
