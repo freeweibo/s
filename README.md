@@ -60,13 +60,13 @@
 </h2>
 <p>SPAM 发表了一篇转载博文《[转载]“資本主義”是一個僞命題》http://t.cn/RyJTzAD<br><img src="http://ww1.sinaimg.cn/large/5408ee85jw1ewad48m89ej20j60j6769.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3889613623770480" target="freeweibo-mirror">SPAM 发表了一篇转载博文《[转载]落差如此之大》http…</a>
 </h2>
 <p>SPAM 发表了一篇转载博文《[转载]落差如此之大》http://t.cn/RyJYFJr<br><img src="http://ww2.sinaimg.cn/large/5408ee85jw1ewad2d2k60j20gu0hq0vp.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3889575007253872" target="freeweibo-mirror">//@价值投资快客: //@思饭辙: //@深夜走过长安街0…</a>
 </h2>
