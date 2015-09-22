@@ -32,6 +32,12 @@
 <p>
 	<small> ============== 5小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3889966616990805" target="freeweibo-mirror">VOA记者方冰：“习近平的混乱棋局”研讨会：#陈破空：“习近…</a>
+</h2>
+<p>VOA记者方冰：“习近平的混乱棋局”研讨会：#陈破空：“习近平访美是美中关系40年中的最低点，他在华盛顿只呆一天半，说明中美关系濒临摊牌和破裂，而且国宴设在星期五晚上，据说这在美国属首次，因为议员都离开了，减少了炮轰的可能性。” 他总结8个字，习近平政权是“四面树敌，内外交困”。<br><img src="http://ww1.sinaimg.cn/large/005El4jTjw1ewbhkgig9dj308w0643yk.jpg"></p>
+<p>
+	<small> ============== 6小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3889905820271225" target="freeweibo-mirror">SPAM 为保安全，截屏发了。看得尼玛笑死了～复读机啊卧槽。…</a>
 </h2>
 <p>SPAM 为保安全，截屏发了。看得尼玛笑死了～复读机啊卧槽。当年要是有微博，何至于此啊，哎～<br><img src="http://ww1.sinaimg.cn/large/8f1bd71bgw1ewbam0gdqcj20hs0vkn29.jpg"></p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3889681269945797" target="freeweibo-mirror">我的每一个字都来自中国官方媒体报道，建议您去把他们都自行抓起…</a>
 </h2>
 <p>我的每一个字都来自中国官方媒体报道，建议您去把他们都自行抓起来</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3889663074644029" target="freeweibo-mirror">SPAM [笑cry]山东人民。。。</a>
-</h2>
-<p>SPAM [笑cry]山东人民。。。</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
