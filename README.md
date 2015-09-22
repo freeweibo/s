@@ -42,7 +42,7 @@
 </h2>
 <p>习近平接受华尔街日报书面专访，不要怪小鲸没提醒你们，重点、好好、睁大眼睛看第七问，看了再自己默默滴去掂量。[酷]<br><img src="http://ww2.sinaimg.cn/large/7061c249gw1ewb5u5ot00j20c8aizhdu.jpg"></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3889861293077635" target="freeweibo-mirror">一个月前美国还是最危险的西方敌对势力，支持日本，搞乱南海，围…</a>
 </h2>
@@ -54,7 +54,7 @@
 </h2>
 <p>SPAM 历史在不停地重复着。<br><br>RE: #當年今日#    去年今日，學生罷課，序曲響起～<br><img src="http://ww2.sinaimg.cn/large/0066Rkgjjw1ewaz962ioij30zk0qoaiy.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3889822320253773" target="freeweibo-mirror">SPAM 回复@张开磊:呵呵   全对上//@张开磊:[汗]</a>
 </h2>
