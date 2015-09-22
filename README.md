@@ -20,6 +20,18 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3889834156541508" target="freeweibo-mirror">SPAM 历史在不停地重复着。</a>
+</h2>
+<p>SPAM 历史在不停地重复着。<br><br>RE: #當年今日#    去年今日，學生罷課，序曲響起～<br><img src="http://ww2.sinaimg.cn/large/0066Rkgjjw1ewaz962ioij30zk0qoaiy.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3889822320253773" target="freeweibo-mirror">SPAM 回复@张开磊:呵呵   全对上//@张开磊:[汗]</a>
+</h2>
+<p>SPAM 回复@张开磊:呵呵   全对上//@张开磊:[汗]<br><br>RE: 中美圆桌会议：李彦宏对面坐着谷歌 ，马云 对面坐着亚马逊 ，马化腾对面坐着盖茨（MSN）。 奥巴马左右一看，嚎啕大哭，一群抄作业的，牛逼哄哄抄到家门口来了！[偷笑]天涯杂谈<br><img src="http://ww2.sinaimg.cn/large/49fdbfd4jw1ewb0exjl5fj20e80e875g.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3889779059701031" target="freeweibo-mirror">阿谀唯上，见风使舵。 //@浩正刘臻:[生病] //@演员孙…</a>
 </h2>
 <p>阿谀唯上，见风使舵。 //@浩正刘臻:[生病] //@演员孙海英:不管他说什么，反正股民可以受益几天。<br><br>RE: 因领导人访美，央视腔调为之一变，这几天多个栏目都在谈美国，谈中美关系。把美国夸的跟花一样，把中美关系说的比穿一条裤子还嫌肥般亲密。与过往凡事都指责美国、把中国的种种不幸都推到美国黑手上的说法，有着天壤之别。这种用人朝前不用人朝后的市侩、功利主义做法，让人作呕，露出官媒猥琐的嘴脸。</p>
@@ -54,7 +66,7 @@
 </h2>
 <p>http://weibo.com/u/2806559662 是什么让如今的人民警察如此完全丧失了人民性？是制度的缺失，还是政府管理的无能，还是警察机关已经全面走向腐败？河南警察派出所门口枪指女子称“打死你也是白打” http://t.cn/RyJGnL8</p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3889757450844539" target="freeweibo-mirror">因领导人访美，央视腔调为之一变，这几天多个栏目都在谈美国，谈…</a>
 </h2>
@@ -125,18 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3889566316104818" target="freeweibo-mirror">鞋底抹（酒）（油）？ //@侯宁:山酒量跑了么？//@郭施亮…</a>
 </h2>
 <p>鞋底抹（酒）（油）？ //@侯宁:山酒量跑了么？//@郭施亮: 各方都需要承担一定的责任。<br><br>RE: 【22万投资者陷泛亚骗局，近430亿难追讨】泛亚自2011年开盘以来，投资热浪令市场震惊。监管的缺失，人性的贪婪，令这家号称世界最大的稀有金属交易所，延续了数年疯狂的围猎资本游戏。最终资金链断裂，20多个省份的22万投资者的430亿元资金难以讨回。<br><img src="http://ww3.sinaimg.cn/large/9c9f80b1gw1ewa6ag0oyij20c8copqv6.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3889554794714536" target="freeweibo-mirror">【22万投资者陷泛亚骗局，近430亿难追讨】泛亚自2011年…</a>
-</h2>
-<p>【22万投资者陷泛亚骗局，近430亿难追讨】泛亚自2011年开盘以来，投资热浪令市场震惊。监管的缺失，人性的贪婪，令这家号称世界最大的稀有金属交易所，延续了数年疯狂的围猎资本游戏。最终资金链断裂，20多个省份的22万投资者的430亿元资金难以讨回。<br><img src="http://ww3.sinaimg.cn/large/9c9f80b1gw1ewa6ag0oyij20c8copqv6.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3889554454633552" target="freeweibo-mirror">哈哈，证监会门口热闹了！大盘跌股民都知道“投资有风险入市需谨…</a>
-</h2>
-<p>哈哈，证监会门口热闹了！大盘跌股民都知道“投资有风险入市需谨慎”，大盘暴跌没人去门口喊口号，今天投资贵金属失利的不远千里，来了~~[笑cry]<br><img src="http://ww4.sinaimg.cn/large/005vSjEdjw1ewa64jkv4qj30c80800ty.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
