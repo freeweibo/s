@@ -42,7 +42,7 @@
 </h2>
 <p>SPAM 一个钱包还两个人掐着，就知道是购物去了……<br><img src="http://ww3.sinaimg.cn/large/4ce32014jw1ewcntkfv31j20jq0p3wit.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3890328232347136" target="freeweibo-mirror">【突发】陪同习大大出访美国的科技大佬下榻的Hilton Be…</a>
 </h2>
@@ -108,7 +108,7 @@
 </h2>
 <p>//@红卫少侠: //@胜利的英雄: 扣一顶绿色的牛仔帽。中美关系已非简单的国际关系了。是夫妻？小妾？情人？性奴？附庸？[笑cry] //@呼唤-未来:先给你戴个高帽子，让你飘飘然，呵呵，然后、、、 //@禅易之苑: 转发微博<br><br>RE: 中国历届元首访美，脑袋上总是被扣一顶奇形怪状的帽子，引发世人关注。这次习大大访美会被扣顶什么样的帽子呢？[思考]<br><img src="http://ww1.sinaimg.cn/large/9fa72927jw1ewcbtfuaojj20c8088t8z.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3890258405638381" target="freeweibo-mirror">没用删帖干嘛？ //@敏奇微博:没用封我们号干嘛！//@浩正…</a>
 </h2>
