@@ -48,7 +48,7 @@
 </h2>
 <p>这可是美国人自己出来说的，知道推不动，还是在商言商吧[哈哈] //@袁裕来律师://@寧靜齋主人: 美國奇跡般地从「境外敵對勢力」的總代表，變成了與我國有着長期友誼，並不斷加強中的共同利益和美好前景的「戰略夥伴關係<br><br>RE: 以前我一直有一个错觉，感觉美国佬处处与中国为难。今天看了央视新闻联播，才知道中美两国友谊牢不可破！<br><img src="http://ww2.sinaimg.cn/large/6024837agw1ewaal4mwb6j218g0p0q9e.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3890217369069523" target="freeweibo-mirror">好主意！//@隆裕太后: 实践是检验真理的标准。//@谓贤:…</a>
 </h2>
@@ -78,7 +78,7 @@
 </h2>
 <p>外交政策杂志写的啥，看不懂<br><img src="http://ww1.sinaimg.cn/large/6d0b6b33jw1ewc7oyb3ssj20m80hljtq.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3890191460912726" target="freeweibo-mirror">陈左珥说香港没有依法去除英帝国主义的殖民化。其实这个问题在大…</a>
 </h2>
