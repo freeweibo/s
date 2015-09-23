@@ -42,7 +42,7 @@
 </h2>
 <p>陈左珥说香港没有依法去除英帝国主义的殖民化。其实这个问题在大陆同样存在、在中国大陆存在着第三国际六十多年意识形态的殖民化更是中国人民亟待解除的桎梏！</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3890189699037372" target="freeweibo-mirror">SPAM 这种平衡也是对的//@腾龙布雨://@朱孝顶律师:…</a>
 </h2>
@@ -54,7 +54,7 @@
 </h2>
 <p>善麻将之术，喜推倒重来，成王败寇，愿赌服输，永无进步。</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3890174767019039" target="freeweibo-mirror">回复@陈业文新大都:呵呵，业文兄，博主的这一帖，黑得确实欠水…</a>
 </h2>
@@ -84,7 +84,7 @@
 </h2>
 <p>天佑：习和教皇同天抵达美国。一个到达时地方官员在机场迎候，一个在机场受到总统全家和副总统夫妇迎接。<br><img src="http://ww3.sinaimg.cn/large/4c808cbdgw1ewc3vvjfsnj20hs0bsdh3.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3890154433760677" target="freeweibo-mirror">SPAM  //@安普若-外号安校长:回复@水城孔府:奇帆说…</a>
 </h2>
