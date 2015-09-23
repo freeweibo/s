@@ -24,7 +24,7 @@
 </h2>
 <p>陈左珥说香港没有依法去除英帝国主义的殖民化。其实这个问题在大陆同样存在、在中国大陆存在着第三国际六十多年意识形态的殖民化更是中国人民亟待解除的桎梏！</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3890189699037372" target="freeweibo-mirror">SPAM 这种平衡也是对的//@腾龙布雨://@朱孝顶律师:…</a>
 </h2>
@@ -36,7 +36,7 @@
 </h2>
 <p>善麻将之术，喜推倒重来，成王败寇，愿赌服输，永无进步。</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3890174767019039" target="freeweibo-mirror">回复@陈业文新大都:呵呵，业文兄，博主的这一帖，黑得确实欠水…</a>
 </h2>
@@ -50,6 +50,12 @@
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3890165963404317" target="freeweibo-mirror">赵晓是一贯攻击诋毁体制的推墙派，网络上无人不知，重庆方面居然…</a>
+</h2>
+<p>赵晓是一贯攻击诋毁体制的推墙派，网络上无人不知，重庆方面居然邀请这样的货色去参观访问，把酒言欢，真是不明白是何用意，宴席之上五毛与公知和谐相处共叙未来，酒酣耳热，勾肩搭背，你拍我肩膀，我抹你脸蛋，其乐融融的场面想起来[吐]。政府部门迟钝麻木愚蠢到什么地步。</p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3890165384276417" target="freeweibo-mirror">SPAM 漂亮吧！</a>
 </h2>
 <p>SPAM 漂亮吧！<br><img src="http://ww4.sinaimg.cn/large/68f3cf9cjw1ewc4fn5yd0j20hs16ak0m.jpg"></p>
@@ -60,7 +66,7 @@
 </h2>
 <p>天佑：习和教皇同天抵达美国。一个到达时地方官员在机场迎候，一个在机场受到总统全家和副总统夫妇迎接。<br><img src="http://ww3.sinaimg.cn/large/4c808cbdgw1ewc3vvjfsnj20hs0bsdh3.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3890154433760677" target="freeweibo-mirror">SPAM  //@安普若-外号安校长:回复@水城孔府:奇帆说…</a>
 </h2>
@@ -102,7 +108,7 @@
 </h2>
 <p>SPAM 网信办你真够扯淡的[衰]//@点子正:@张鸣 没来[衰]<br><br>RE: 暑假期间，朋友自掏腰包请我们去西九华山玩，没动用一分钱公款，引来一群公知说三道四。一个月后，国信办邀请大V们去重庆指导工作，组员里不乏爱造谣的基督徒，爱传谣的营销账号以及某些个号称要推墙的右派公知们。结果，没人质疑了，一派祥和。重庆，真是一座包容的城市，国信办威武，一统左左右右！<br><img src="http://ww2.sinaimg.cn/large/53c7cd33jw1ewbhy30tndj20k00u0djd.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3890023764353750" target="freeweibo-mirror">看来张口是没有去[哈哈]//@老李随想: 名单有意思…//@…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3889971892777569" target="freeweibo-mirror">暑假期间，朋友自掏腰包请我们去西九华山玩，没动用一分钱公款，…</a>
 </h2>
 <p>暑假期间，朋友自掏腰包请我们去西九华山玩，没动用一分钱公款，引来一群公知说三道四。一个月后，国信办邀请大V们去重庆指导工作，组员里不乏爱造谣的基督徒，爱传谣的营销账号以及某些个号称要推墙的右派公知们。结果，没人质疑了，一派祥和。重庆，真是一座包容的城市，国信办威武，一统左左右右！<br><img src="http://ww2.sinaimg.cn/large/53c7cd33jw1ewbhy30tndj20k00u0djd.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3889966616990805" target="freeweibo-mirror">VOA记者方冰：“习近平的混乱棋局”研讨会：#陈破空：“习近…</a>
-</h2>
-<p>VOA记者方冰：“习近平的混乱棋局”研讨会：#陈破空：“习近平访美是美中关系40年中的最低点，他在华盛顿只呆一天半，说明中美关系濒临摊牌和破裂，而且国宴设在星期五晚上，据说这在美国属首次，因为议员都离开了，减少了炮轰的可能性。” 他总结8个字，习近平政权是“四面树敌，内外交困”。<br><img src="http://ww1.sinaimg.cn/large/005El4jTjw1ewbhkgig9dj308w0643yk.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
