@@ -42,7 +42,7 @@
 </h2>
 <p>SPAM 漂亮吧！<br><img src="http://ww4.sinaimg.cn/large/68f3cf9cjw1ewc4fn5yd0j20hs16ak0m.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3890154433760677" target="freeweibo-mirror">SPAM  //@安普若-外号安校长:回复@水城孔府:奇帆说…</a>
 </h2>
