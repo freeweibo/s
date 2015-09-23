@@ -32,6 +32,12 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3890193779707804" target="freeweibo-mirror">外交政策杂志写的啥，看不懂</a>
+</h2>
+<p>外交政策杂志写的啥，看不懂<br><img src="http://ww1.sinaimg.cn/large/6d0b6b33jw1ewc7oyb3ssj20m80hljtq.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3890191460912726" target="freeweibo-mirror">陈左珥说香港没有依法去除英帝国主义的殖民化。其实这个问题在大…</a>
 </h2>
 <p>陈左珥说香港没有依法去除英帝国主义的殖民化。其实这个问题在大陆同样存在、在中国大陆存在着第三国际六十多年意识形态的殖民化更是中国人民亟待解除的桎梏！</p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3890022488585126" target="freeweibo-mirror">有什么奇怪，市侩都是这德性。[酷]</a>
 </h2>
 <p>有什么奇怪，市侩都是这德性。[酷]<br><br>RE: 有一个国家，天天骂美国。领导人一访美，美国忽然成了亲人。</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3890013488509531" target="freeweibo-mirror">//@杜芝富: //@山高路远N://@陈业文新大都:与国内…</a>
-</h2>
-<p>//@杜芝富: //@山高路远N://@陈业文新大都:与国内媒体口径不太一样嘛。//@美国大学网:预计习近平还会再掌权七年，除非最高层有出人意料的事情发生，而奥巴马距离卸任只有16个月了。由于存在这样的差距，一些中国学者表示，这让习近平认为，奥巴马是“跛脚鸭”。<br><br>RE: 纽约时报：《内忧外扰并不妨碍习近平强势访美》习近平经常被形容为共产党数代领导人中，权力最大的一位。周二他抵达美国时，将会面临经济领域吹来的逆风，以及他的执政方式受到的日益严重的质疑——这与他去年接待奥巴马总统时，所表现出的胸有成竹的形象大相径庭。http://t.cn/RyipVYI<br><img src="http://ww3.sinaimg.cn/large/66e6a0b2gw1ewbh43e43cj20go0bytbm.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
