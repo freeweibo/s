@@ -36,7 +36,7 @@
 </h2>
 <p>SPAM 发表了一篇转载博文《[转载]政策左转，外资民企都预感到危险，开始逃跑》http://t.cn/Ry61zXy</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3890376798369587" target="freeweibo-mirror">//@崔小平律师: //@刘耘博士:错误的时间错误i地挑起错…</a>
 </h2>
@@ -108,7 +108,7 @@
 </h2>
 <p>这……<br><br>RE: 【突发】陪同习大大出访美国的科技大佬下榻的Hilton Bellevue酒店发生火警，一群大佬狼狈跑出酒店....阿里马云、腾讯马化腾、猎豹移动傅盛、京东刘强东、联想杨元庆、新浪曹国伟、搜狐张朝阳...啊啊啊...上万亿身家啊...[衰] http://t.cn/Ry6l6pi</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3890328232347136" target="freeweibo-mirror">【突发】陪同习大大出访美国的科技大佬下榻的Hilton Be…</a>
 </h2>
