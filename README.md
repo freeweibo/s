@@ -120,7 +120,7 @@
 </h2>
 <p>SPAM 漂亮吧！<br><img src="http://ww4.sinaimg.cn/large/68f3cf9cjw1ewc4fn5yd0j20hs16ak0m.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3890160607325792" target="freeweibo-mirror">天佑：习和教皇同天抵达美国。一个到达时地方官员在机场迎候，一…</a>
 </h2>
