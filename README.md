@@ -66,13 +66,13 @@
 </h2>
 <p>谣传美国宣传部昨天电话通知美国各大媒体，对习主席到访西雅图采取冷处理，不报道，或者在报纸不显著位置简短报道，不上头条，不推荐热门，各社交自媒体应该密切监控舆情动态，及时删帖。通知指令美国各大媒体今日报道的重点和头条是教皇到访华盛顿。对美帝国主义的新闻封锁，我们怎么破？</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3890276701400553" target="freeweibo-mirror">旅美华人热烈欢迎习近平访美，央视怎么不报道一下？</a>
 </h2>
 <p>旅美华人热烈欢迎习近平访美，央视怎么不报道一下？<br><img src="http://ww4.sinaimg.cn/large/006e7qN6jw1ewch7osgakj30hs0nqtbo.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3890260062383609" target="freeweibo-mirror">SPAM 最右。//@記録者陳寳成:中国没有纸牌屋，只有小黑…</a>
 </h2>
