@@ -24,7 +24,7 @@
 </h2>
 <p>善麻将之术，喜推倒重来，成王败寇，愿赌服输，永无进步。</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3890165384276417" target="freeweibo-mirror">SPAM 漂亮吧！</a>
 </h2>
