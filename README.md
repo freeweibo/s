@@ -96,7 +96,7 @@
 </h2>
 <p>别开生面的欢迎仪式。//@夜郎国提督: //@塞北偏北10: //@王林的微博客://@回头系岸Q: //@fanny7788-1:[挖鼻] //@白帽青衫:西方反动势力，如此拆台，300架波音……[馋嘴]//@天艹起个名字也很难啊:转发微博<br><br>RE: 旅美华人热烈欢迎习近平访美，央视怎么不报道一下？<br><img src="http://ww4.sinaimg.cn/large/006e7qN6jw1ewch7osgakj30hs0nqtbo.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3890288097104565" target="freeweibo-mirror">博主居然看西梅？[鄙视]</a>
 </h2>
