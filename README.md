@@ -78,7 +78,7 @@
 </h2>
 <p>第八届#中美互联网论坛#网民时代，美国商业软件联盟总裁维多利亚·埃斯皮纳主持。发言人：新浪公司董事长兼首席执行官@曹国伟 今日头条@张一鸣 Expedia公司达拉·霍斯劳沙希  、领英公司'霍夫曼。曹国伟介绍了中国不同城市级别的年轻一代在互联网上不同的多元化需求。 http://t.cn/Ry6shJL .<br><img src="http://ww2.sinaimg.cn/large/70f3bd8dgw1ewd3yr16zfj20xc18gajb.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3890472936182369" target="freeweibo-mirror">因为真实，所以搞笑。[笑cry]</a>
 </h2>
