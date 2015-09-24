@@ -20,17 +20,41 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3890681388877557" target="freeweibo-mirror">有钱任性啊 //@杨锦麟:三百架波音飞机的订单，波音可乐坏了…</a>
+</h2>
+<p>有钱任性啊 //@杨锦麟:三百架波音飞机的订单，波音可乐坏了。</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3890680256005920" target="freeweibo-mirror">三百架波音飞机的订单，波音可乐坏了。</a>
 </h2>
 <p>三百架波音飞机的订单，波音可乐坏了。</p>
 <p>
 	<small> ============== 1小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3890668717984118" target="freeweibo-mirror">回复@细雨倒骑驴:最近共青团官微偏极端，不够理性，上纲上线、…</a>
+</h2>
+<p>回复@细雨倒骑驴:最近共青团官微偏极端，不够理性，上纲上线、过度褒过度贬都不可取。尤其是青少年的引导者。#微言传播#<br><br>RE: PK任志强：全世界无产者联合起来http://t.cn/Ry6nLf4 共青团中央：【与任志强先生榷】作为整个共青团组织的一员，有必要认真严肃、平心静气地对任志强先生进行回应。共产主义是一个崇高的目标。我们共青团员是共产主义的接班人，是指接过奋斗的班…只要我们一代接一代延续下去，共产主义就一定能实现！</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3890666004158105" target="freeweibo-mirror">小调查：访阿梅利坚的表现，蛤与包孰强？请回复蛤或包。谢！</a>
 </h2>
 <p>小调查：访阿梅利坚的表现，蛤与包孰强？请回复蛤或包。谢！</p>
 <p>
 	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3890665961918451" target="freeweibo-mirror">不论人品不论动机只看内容，同对任志强、共青团。#微言传播#/…</a>
+</h2>
+<p>不论人品不论动机只看内容，同对任志强、共青团。#微言传播#//@细雨倒骑驴:任志强老先生真是玩的好一手，年轻当红卫兵，改革开放走私，又当国企老大混钱，退休了又开始骂共产党。这种人人品咋样，你们自己想想，说白了，不就是任志强有个好爹么？副部长的爹真好[挖鼻][挖鼻][挖鼻][挖鼻][挖鼻]<br><br>RE: PK任志强：全世界无产者联合起来http://t.cn/Ry6nLf4 共青团中央：【与任志强先生榷】作为整个共青团组织的一员，有必要认真严肃、平心静气地对任志强先生进行回应。共产主义是一个崇高的目标。我们共青团员是共产主义的接班人，是指接过奋斗的班…只要我们一代接一代延续下去，共产主义就一定能实现！</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3890662593850816" target="freeweibo-mirror">SPAM //@辟谣与真相: 嗯，1975到1979年在清华…</a>
+</h2>
+<p>SPAM //@辟谣与真相: 嗯，1975到1979年在清华大学学习四年的习近平不如初中肄业的胡耀邦，不如大学叫兽@贺卫方 //@东河-猎鹰倚天屠龙:[偷笑] //@阿姜aa:[嘻嘻] //@打铁小榔头2世:[嘘] //@老饕加鈾: [哈哈]<br><br>RE: 胡说习就一初中生水平[嘻嘻]<br><img src="http://ww1.sinaimg.cn/large/005zqoqigw1ewdko0qxc8j30ci0m8q4l.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3890656948531421" target="freeweibo-mirror">不会吧，这么节俭把旧书送外宾，谁发了乌龙照？</a>
 </h2>
@@ -60,19 +84,19 @@
 </h2>
 <p>前方记者发来的：习给美国中学赠书，其中赫然见到袁腾飞《这个历史挺靠谱》。其他亮点自找。@袁腾飞<br><img src="http://ww3.sinaimg.cn/large/63201153jw1ewdk9y789dj20zk0ks436.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3890616767475839" target="freeweibo-mirror">丢人不</a>
 </h2>
 <p>丢人不<br><br>RE: 双方就不宜公开讨论的政治内容达成了因涉及敏感词汇正在审核中的共识<br><img src="http://ww4.sinaimg.cn/large/6042b8eajw1ewdh3tqey2j20ej09bt98.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3890616654010510" target="freeweibo-mirror">SPAM 中美共勉，印钞发债，和平竞赛。</a>
 </h2>
 <p>SPAM 中美共勉，印钞发债，和平竞赛。<br><br>RE: 习大大访美前夕，米歇儿在白宫拿出彭丽媛赠送的 “厚德载物” 题词给丈夫奥巴马温习刚学会的汉语中文读给奥巴马听：好多债务。奥巴马听后忙说：No！No！No！中国文字是从右往左读的。于是，奥巴马用不标准的中文读：无债多好……[偷笑]<br><img src="http://ww3.sinaimg.cn/large/71353b70gw1ewdj1rm9z4j20l40a3jsn.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3890613910901012" target="freeweibo-mirror">他都接见他了是不是要开放网络了 要不然哪来的脸呢 不害臊吗</a>
 </h2>
@@ -115,30 +139,6 @@
 <p>[哈哈]//@邵明波: 转发微博<br><br>RE: 国家主席习近平在美国会见了404 not found网站负责人。网友评：主席说:“小伙子，不简单，网站都打不开还能上市，真能忽悠啊，学习学习！ ”小伙谦虚地说:“贵国财产都不用公开，就实现了反腐，佩服佩服！”<br><img src="http://ww2.sinaimg.cn/large/422323bfjw1ewdfsp5qpej20m80jj0vf.jpg"></p>
 <p>
 	<small> ============== 6小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3890602351015634" target="freeweibo-mirror">哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈</a>
-</h2>
-<p>哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈<br><img src="http://ww4.sinaimg.cn/large/a0827410jw1ewdim6xnbyj20ei09at9b.jpg"></p>
-<p>
-	<small> ============== 6小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3890600044402261" target="freeweibo-mirror">[哈哈]//@韩青草2012: [哈哈]</a>
-</h2>
-<p>[哈哈]//@韩青草2012: [哈哈]<br><br>RE: 国家主席习近平在美国会见了404 not found网站负责人。网友评：主席说:“小伙子，不简单，网站都打不开还能上市，真能忽悠啊，学习学习！ ”小伙谦虚地说:“贵国财产都不用公开，就实现了反腐，佩服佩服！”<br><img src="http://ww2.sinaimg.cn/large/422323bfjw1ewdfsp5qpej20m80jj0vf.jpg"></p>
-<p>
-	<small> ============== 7小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3890596101771650" target="freeweibo-mirror">[笑哈哈]//@V一骑绝尘V:[笑哈哈]//@鲔鱼再来:[挖…</a>
-</h2>
-<p>[笑哈哈]//@V一骑绝尘V:[笑哈哈]//@鲔鱼再来:[挖鼻]//@众神阳虚v: [喵喵]//@a马治平: //@自由的小猪:转发微博</p>
-<p>
-	<small> ============== 7小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3890595959830563" target="freeweibo-mirror">任志强瓜分国家财产变为私有财产，然后还要国家再保护他的私有财…</a>
-</h2>
-<p>任志强瓜分国家财产变为私有财产，然后还要国家再保护他的私有财产。为了避免吃相太难看，成为众怒，然后就编一些冠冕堂皇的理论来粉饰正当合理性。任志强是典型的做婊子还要树牌坊，满足私欲还要扯什么宪政民主普世价值。 //@秋天的草木大帅:这说明任志强不是阴险无比，就是知识太差。。。<br><br>RE: 【立场坚定逗志强-扒扒@任志强 的诡辩术】提醒网友，不要相信资本大鳄的良心，更不要相信他们的民主自由宪政法治那套鬼话。任志强的文章就跟他本人一样，小动作很多，表面正义凛然，手脚却不是那么干净。@共青团中央 官微表态#我们是共产主义接班人#，简直戳了公知们的肺。..http://t.cn/RyXGuI5<br><img src="http://ww1.sinaimg.cn/large/aeaf9bf0jw1ewddib61fqj20c85jpx6p.jpg"></p>
-<p>
-	<small> ============== 7小时前</small>
 </p>
 <table>
     <tr>
