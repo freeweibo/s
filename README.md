@@ -74,6 +74,12 @@
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3890606281108647" target="freeweibo-mirror">习大大访美前夕，米歇儿在白宫拿出彭丽媛赠送的 “厚德载物” …</a>
+</h2>
+<p>习大大访美前夕，米歇儿在白宫拿出彭丽媛赠送的 “厚德载物” 题词给丈夫奥巴马温习刚学会的汉语中文读给奥巴马听：好多债务。奥巴马听后忙说：No！No！No！中国文字是从右往左读的。于是，奥巴马用不标准的中文读：无债多好……[偷笑]<br><img src="http://ww3.sinaimg.cn/large/71353b70gw1ewdj1rm9z4j20l40a3jsn.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3890602997776751" target="freeweibo-mirror">[哈哈]//@邵明波: 转发微博</a>
 </h2>
 <p>[哈哈]//@邵明波: 转发微博<br><br>RE: 国家主席习近平在美国会见了404 not found网站负责人。网友评：主席说:“小伙子，不简单，网站都打不开还能上市，真能忽悠啊，学习学习！ ”小伙谦虚地说:“贵国财产都不用公开，就实现了反腐，佩服佩服！”<br><img src="http://ww2.sinaimg.cn/large/422323bfjw1ewdfsp5qpej20m80jj0vf.jpg"></p>
@@ -90,7 +96,7 @@
 </h2>
 <p>[笑哈哈]//@V一骑绝尘V:[笑哈哈]//@鲔鱼再来:[挖鼻]//@众神阳虚v: [喵喵]//@a马治平: //@自由的小猪:转发微博</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3890593979383605" target="freeweibo-mirror">SPAM [喵喵]怪我咯</a>
 </h2>
@@ -133,12 +139,6 @@
 <p>反……反贼[抓狂]<br><img src="http://ww4.sinaimg.cn/large/623e1d29jw1ewdf9hjvc8j20jz0zkad0.jpg"></p>
 <p>
 	<small> ============== 5小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3890542289136292" target="freeweibo-mirror">#私企立宪#15年9月24日，保定，大午集团千人游行抗议，孙…</a>
-</h2>
-<p>#私企立宪#15年9月24日，保定，大午集团千人游行抗议，孙大午，浩浩荡荡……#知名企业维权#http://t.cn/Ry67xvt<br><img src="http://ww2.sinaimg.cn/large/6bdd389egw1ewdb7my8ozj20qo0f0myh.jpg"></p>
-<p>
-	<small> ============== 7小时前</small>
 </p>
 <table>
     <tr>
