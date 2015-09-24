@@ -114,7 +114,7 @@
 </h2>
 <p>“除了……习近平还给林肯高中送去图书，有《红楼梦》，莫言、冰心，余光中的作品，以及袁腾飞的《这个历史挺靠谱》……”<br><img src="http://ww2.sinaimg.cn/large/005vSjEdjw1ewduwvw7xbj30f00qogpx.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3890703635365140" target="freeweibo-mirror">潘仁美没人敢查？厉害！ //@秦风子-牛:潘任美[思考] /…</a>
 </h2>
