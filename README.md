@@ -24,7 +24,7 @@
 </h2>
 <p>小调查：访阿梅利坚的表现，蛤与包孰强？请回复蛤或包。谢！</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3890656948531421" target="freeweibo-mirror">不会吧，这么节俭把旧书送外宾，谁发了乌龙照？</a>
 </h2>
