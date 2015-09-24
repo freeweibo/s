@@ -84,7 +84,7 @@
 </h2>
 <p>习大大访美前夕，米歇儿在白宫拿出彭丽媛赠送的 “厚德载物” 题词给丈夫奥巴马温习刚学会的汉语中文读给奥巴马听：好多债务。奥巴马听后忙说：No！No！No！中国文字是从右往左读的。于是，奥巴马用不标准的中文读：无债多好……[偷笑]<br><img src="http://ww3.sinaimg.cn/large/71353b70gw1ewdj1rm9z4j20l40a3jsn.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3890602997776751" target="freeweibo-mirror">[哈哈]//@邵明波: 转发微博</a>
 </h2>
