@@ -48,7 +48,7 @@
 </h2>
 <p>枯老连骨髓都是粉红的了 //@枯墨子:...<br><br>RE: 【独家直击：盖茨夫妇陪彭丽媛参观科研机构】今天凌晨，彭丽媛参观了一家以癌症、艾滋病疫苗著称的研究机构。新浪国际在现场看到了不少国旗、欢迎横幅和热情的民众，彭丽媛参观结束后，面带微笑的向人们挥手致意。现场直击详见：http://t.cn/RyX2LMi 视频：http://t.cn/RyX2i1A（新浪）<br><img src="http://ww2.sinaimg.cn/large/70e11e0fjw1ewdah7f4byj20c80g1ta3.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3890616880138230" target="freeweibo-mirror">前方记者发来的：习给美国中学赠书，其中赫然见到袁腾飞《这个历…</a>
 </h2>
@@ -96,7 +96,7 @@
 </h2>
 <p>//@韩青草2012:[哈哈]<br><br>RE: 国家主席习近平在美国会见了404 not found网站负责人。网友评：主席说:“小伙子，不简单，网站都打不开还能上市，真能忽悠啊，学习学习！ ”小伙谦虚地说:“贵国财产都不用公开，就实现了反腐，佩服佩服！”<br><img src="http://ww2.sinaimg.cn/large/422323bfjw1ewdfsp5qpej20m80jj0vf.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3890606281108647" target="freeweibo-mirror">习大大访美前夕，米歇儿在白宫拿出彭丽媛赠送的 “厚德载物” …</a>
 </h2>
