@@ -42,13 +42,13 @@
 </h2>
 <p>丢人不<br><br>RE: 双方就不宜公开讨论的政治内容达成了因涉及敏感词汇正在审核中的共识<br><img src="http://ww4.sinaimg.cn/large/6042b8eajw1ewdh3tqey2j20ej09bt98.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3890616654010510" target="freeweibo-mirror">SPAM 中美共勉，印钞发债，和平竞赛。</a>
 </h2>
 <p>SPAM 中美共勉，印钞发债，和平竞赛。<br><br>RE: 习大大访美前夕，米歇儿在白宫拿出彭丽媛赠送的 “厚德载物” 题词给丈夫奥巴马温习刚学会的汉语中文读给奥巴马听：好多债务。奥巴马听后忙说：No！No！No！中国文字是从右往左读的。于是，奥巴马用不标准的中文读：无债多好……[偷笑]<br><img src="http://ww3.sinaimg.cn/large/71353b70gw1ewdj1rm9z4j20l40a3jsn.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3890613910901012" target="freeweibo-mirror">他都接见他了是不是要开放网络了 要不然哪来的脸呢 不害臊吗</a>
 </h2>
@@ -104,6 +104,12 @@
 <p>
 	<small> ============== 4小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3890595959830563" target="freeweibo-mirror">任志强瓜分国家财产变为私有财产，然后还要国家再保护他的私有财…</a>
+</h2>
+<p>任志强瓜分国家财产变为私有财产，然后还要国家再保护他的私有财产。为了避免吃相太难看，成为众怒，然后就编一些冠冕堂皇的理论来粉饰正当合理性。任志强是典型的做婊子还要树牌坊，满足私欲还要扯什么宪政民主普世价值。 //@秋天的草木大帅:这说明任志强不是阴险无比，就是知识太差。。。<br><br>RE: 【立场坚定逗志强-扒扒@任志强 的诡辩术】提醒网友，不要相信资本大鳄的良心，更不要相信他们的民主自由宪政法治那套鬼话。任志强的文章就跟他本人一样，小动作很多，表面正义凛然，手脚却不是那么干净。@共青团中央 官微表态#我们是共产主义接班人#，简直戳了公知们的肺。..http://t.cn/RyXGuI5<br><img src="http://ww1.sinaimg.cn/large/aeaf9bf0jw1ewddib61fqj20c85jpx6p.jpg"></p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3890593979383605" target="freeweibo-mirror">SPAM [喵喵]怪我咯</a>
 </h2>
 <p>SPAM [喵喵]怪我咯<br><br>RE: 习总：小伙子很不错嘛，网站都打不开还能做到上市[doge] via @sunwear<br><img src="http://ww3.sinaimg.cn/large/78e4b8d4gw1ewdg3zydb0j20bq0bvmyo.jpg"></p>
@@ -122,21 +128,15 @@
 <p>
 	<small> ============== 4小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3890586072999864" target="freeweibo-mirror">SPAM [笑cry]//@鹰隼N1A晏欢: [陰險]</a>
+</h2>
+<p>SPAM [笑cry]//@鹰隼N1A晏欢: [陰險]<br><br>RE: 习近平会晤境外最大的反动网站负责人。<br><img src="http://ww2.sinaimg.cn/large/4de85d08jw1ewdgnmx4mmj20ez0qotau.jpg"></p>
+<p>
+	<small> ============== 5小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3890580516172291" target="freeweibo-mirror">习总：小伙子很不错嘛，网站都打不开还能做到上市[doge] …</a>
 </h2>
 <p>习总：小伙子很不错嘛，网站都打不开还能做到上市[doge] via @sunwear<br><img src="http://ww3.sinaimg.cn/large/78e4b8d4gw1ewdg3zydb0j20bq0bvmyo.jpg"></p>
-<p>
-	<small> ============== 5小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3890579710653383" target="freeweibo-mirror">SPAM 共产主义一个令人诟病的地方就是它号称在人世间实现。…</a>
-</h2>
-<p>SPAM 共产主义一个令人诟病的地方就是它号称在人世间实现。宗教就聪明得多，美好世界都在死后实现。号称在人世间实现，人们就要检验。死后的事情么……你得先死了再说。</p>
-<p>
-	<small> ============== 5小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3890577001091644" target="freeweibo-mirror">[哈哈] //@邓威:[哈哈] //@明风:[doge]</a>
-</h2>
-<p>[哈哈] //@邓威:[哈哈] //@明风:[doge]<br><br>RE: 根据当地法律法规部分搜索结果未显示接见了404 not found 网站负责人<br><img src="http://ww1.sinaimg.cn/large/005SiNxyjw1ewdcqbtk17j30d308nq3e.jpg"></p>
 <p>
 	<small> ============== 5小时前</small>
 </p>
