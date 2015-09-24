@@ -24,11 +24,17 @@
 </h2>
 <p>//@北京海淀区前沙涧村金实: //@野靖春9://@愚-言:[哈哈]→_→//@咨政议员:一会儿是国外敌对势力，一会儿是友好国家，严重的患精神分裂症。<br><br>RE: 【这是境外敌对势力吗？：中美竟是如此友好！】中国31个省区市同美国50个州建立了43对友好省州、200对友好城市。过去10年，美国42个州对华出口增幅达到3位数。据美方统计，中国过去5年对美投资年均超过80多亿美元，增速还在加快。（习近平）<br><img src="http://ww3.sinaimg.cn/large/41693645gw1ewdeyd477lj20yi124tgv.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3890687835421559" target="freeweibo-mirror">→_→ //@刘新征:→_→//@小柯视界：奥巴马：三带一G…</a>
 </h2>
 <p>→_→ //@刘新征:→_→//@小柯视界：奥巴马：三带一Google！Twitter ！Facebook！YouTube！习主席：404，炸了！！！ 奥巴马：[吃惊][吃惊][吃惊]</p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3890687306876484" target="freeweibo-mirror">→_→//@刘新征: //@小柯视界：奥巴马：三带一Goog…</a>
+</h2>
+<p>→_→//@刘新征: //@小柯视界：奥巴马：三带一Google！Twitter ！Facebook！YouTube！习主席：404，炸了！！！ 奥巴马：[吃惊][吃惊][吃惊]<br><br>RE: 奥巴马：Yahoo! 习主席：管上，SOHU。 奥巴马：segway! 习主席：收了，納恩博。 奥巴马：Amazon! 习主席：压死，阿里巴巴。 奥巴马：Uber! 习主席：别动，滴滴！ 奥巴马：该你出了… 习主席：搜狗输入法！ 奥巴马：要不起。 习主席：[阴险]</p>
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
@@ -90,7 +96,7 @@
 </h2>
 <p>这就是自诩自由派的言论自由，最容不得不同观点的就是这些自由主义者。如果他们真掌了权，挂路灯绝对不只是传说。//@乖乖小猫咪儿:作者写得好透彻[鼓掌]昨天说实话，就因为我在团中央文章下发表个人看法写了句不合某些人意见的评论，这两天连着一堆人跑来围攻我，真是见了鬼了[衰]<br><br>RE: 【立场坚定逗志强-扒扒@任志强 的诡辩术】提醒网友，不要相信资本大鳄的良心，更不要相信他们的民主自由宪政法治那套鬼话。任志强的文章就跟他本人一样，小动作很多，表面正义凛然，手脚却不是那么干净。@共青团中央 官微表态#我们是共产主义接班人#，简直戳了公知们的肺。..http://t.cn/RyXGuI5<br><img src="http://ww1.sinaimg.cn/large/aeaf9bf0jw1ewddib61fqj20c85jpx6p.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3890623322921133" target="freeweibo-mirror">枯老连骨髓都是粉红的了 //@枯墨子:...</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3890613604907550" target="freeweibo-mirror">//@头条新闻:转发微博</a>
 </h2>
 <p>//@头条新闻:转发微博<br><br>RE: 【独家直击：盖茨夫妇陪彭丽媛参观科研机构】今天凌晨，彭丽媛参观了一家以癌症、艾滋病疫苗著称的研究机构。新浪国际在现场看到了不少国旗、欢迎横幅和热情的民众，彭丽媛参观结束后，面带微笑的向人们挥手致意。现场直击详见：http://t.cn/RyX2LMi 视频：http://t.cn/RyX2i1A（新浪）<br><img src="http://ww2.sinaimg.cn/large/70e11e0fjw1ewdah7f4byj20c80g1ta3.jpg"></p>
-<p>
-	<small> ============== 8小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3890611406729343" target="freeweibo-mirror">SPAM 404 not found友站爱好者顺手转发～//…</a>
-</h2>
-<p>SPAM 404 not found友站爱好者顺手转发～//@优秀网页设计: [doge]//@-暴躁鸽: 你的心有一道墙 我却发现一扇窗 偶尔透出一丝暖暖的微光[害羞]//@orimuse:当“404 Not Found”与“部分搜索结果未显示”见面，墙内与墙外的会见...[偷笑][偷笑][偷笑]<br><br>RE: 哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈<br><img src="http://ww4.sinaimg.cn/large/a0827410jw1ewdim6xnbyj20ei09at9b.jpg"></p>
 <p>
 	<small> ============== 8小时前</small>
 </p>
