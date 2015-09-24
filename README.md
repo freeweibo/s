@@ -60,11 +60,17 @@
 </h2>
 <p>SPAM //@辟谣与真相: 嗯，1975到1979年在清华大学学习四年的习近平不如初中肄业的胡耀邦，不如大学叫兽@贺卫方 //@东河-猎鹰倚天屠龙:[偷笑] //@阿姜aa:[嘻嘻] //@打铁小榔头2世:[嘘] //@老饕加鈾: [哈哈]<br><br>RE: 胡说习就一初中生水平[嘻嘻]<br><img src="http://ww1.sinaimg.cn/large/005zqoqigw1ewdko0qxc8j30ci0m8q4l.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3890656948531421" target="freeweibo-mirror">不会吧，这么节俭把旧书送外宾，谁发了乌龙照？</a>
 </h2>
 <p>不会吧，这么节俭把旧书送外宾，谁发了乌龙照？<br><br>RE: 前方记者发来的：习给美国中学赠书，其中赫然见到袁腾飞《这个历史挺靠谱》。其他亮点自找。@袁腾飞<br><img src="http://ww3.sinaimg.cn/large/63201153jw1ewdk9y789dj20zk0ks436.jpg"></p>
+<p>
+	<small> ============== 5小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3890649893521096" target="freeweibo-mirror">奥巴马：Yahoo! 习主席：管上，SOHU。 奥巴马：se…</a>
+</h2>
+<p>奥巴马：Yahoo! 习主席：管上，SOHU。 奥巴马：segway! 习主席：收了，納恩博。 奥巴马：Amazon! 习主席：压死，阿里巴巴。 奥巴马：Uber! 习主席：别动，滴滴！ 奥巴马：该你出了… 习主席：搜狗输入法！ 奥巴马：要不起。 习主席：[阴险]</p>
 <p>
 	<small> ============== 5小时前</small>
 </p><h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3890608801859414" target="freeweibo-mirror">//@1丫头蒙蒙: [哈哈][哈哈] //@吴学谦的微博:[…</a>
 </h2>
 <p>//@1丫头蒙蒙: [哈哈][哈哈] //@吴学谦的微博:[哈哈]//@枫叶aaa红了3: [哈哈] //@诗想佳:[哈哈][哈哈]佩服佩服[笑cry][笑cry]//@Mr-cake-TX: [哆啦A梦微笑] //@法治路由器:转发微博<br><br>RE: 国家主席习近平在美国会见了404 not found网站负责人。网友评：主席说:“小伙子，不简单，网站都打不开还能上市，真能忽悠啊，学习学习！ ”小伙谦虚地说:“贵国财产都不用公开，就实现了反腐，佩服佩服！”<br><img src="http://ww2.sinaimg.cn/large/422323bfjw1ewdfsp5qpej20m80jj0vf.jpg"></p>
-<p>
-	<small> ============== 8小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3890608185551753" target="freeweibo-mirror">//@韩青草2012:[哈哈]</a>
-</h2>
-<p>//@韩青草2012:[哈哈]<br><br>RE: 国家主席习近平在美国会见了404 not found网站负责人。网友评：主席说:“小伙子，不简单，网站都打不开还能上市，真能忽悠啊，学习学习！ ”小伙谦虚地说:“贵国财产都不用公开，就实现了反腐，佩服佩服！”<br><img src="http://ww2.sinaimg.cn/large/422323bfjw1ewdfsp5qpej20m80jj0vf.jpg"></p>
 <p>
 	<small> ============== 8小时前</small>
 </p>
