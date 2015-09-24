@@ -36,7 +36,7 @@
 </h2>
 <p>→_→//@刘新征: //@小柯视界：奥巴马：三带一Google！Twitter ！Facebook！YouTube！习主席：404，炸了！！！ 奥巴马：[吃惊][吃惊][吃惊]<br><br>RE: 奥巴马：Yahoo! 习主席：管上，SOHU。 奥巴马：segway! 习主席：收了，納恩博。 奥巴马：Amazon! 习主席：压死，阿里巴巴。 奥巴马：Uber! 习主席：别动，滴滴！ 奥巴马：该你出了… 习主席：搜狗输入法！ 奥巴马：要不起。 习主席：[阴险]</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3890681388877557" target="freeweibo-mirror">有钱任性啊 //@杨锦麟:三百架波音飞机的订单，波音可乐坏了…</a>
 </h2>
@@ -78,7 +78,7 @@
 </h2>
 <p>不会吧，这么节俭把旧书送外宾，谁发了乌龙照？<br><br>RE: 前方记者发来的：习给美国中学赠书，其中赫然见到袁腾飞《这个历史挺靠谱》。其他亮点自找。@袁腾飞<br><img src="http://ww3.sinaimg.cn/large/63201153jw1ewdk9y789dj20zk0ks436.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3890649893521096" target="freeweibo-mirror">奥巴马：Yahoo! 习主席：管上，SOHU。 奥巴马：se…</a>
 </h2>
