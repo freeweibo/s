@@ -126,7 +126,7 @@
 </h2>
 <p>SPAM //@辟谣与真相: 嗯，1975到1979年在清华大学学习四年的习近平不如初中肄业的胡耀邦，不如大学叫兽@贺卫方 //@东河-猎鹰倚天屠龙:[偷笑] //@阿姜aa:[嘻嘻] //@打铁小榔头2世:[嘘] //@老饕加鈾: [哈哈]<br><br>RE: 胡说习就一初中生水平[嘻嘻]<br><img src="http://ww1.sinaimg.cn/large/005zqoqigw1ewdko0qxc8j30ci0m8q4l.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3890656948531421" target="freeweibo-mirror">不会吧，这么节俭把旧书送外宾，谁发了乌龙照？</a>
 </h2>
