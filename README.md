@@ -72,7 +72,7 @@
 </h2>
 <p>奥巴马：Yahoo! 习主席：管上，SOHU。 奥巴马：segway! 习主席：收了，納恩博。 奥巴马：Amazon! 习主席：压死，阿里巴巴。 奥巴马：Uber! 习主席：别动，滴滴！ 奥巴马：该你出了… 习主席：搜狗输入法！ 奥巴马：要不起。 习主席：[阴险]</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3890628959899730" target="freeweibo-mirror">GFW 开始影响普通用户，转自微信朋友圈。</a>
 </h2>
