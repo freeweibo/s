@@ -24,7 +24,7 @@
 </h2>
 <p>GFW 开始影响普通用户，转自微信朋友圈。<br><img src="http://ww1.sinaimg.cn/large/72d174dbgw1ewdlnib4gbj20hs4fx7wh.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3890623985737674" target="freeweibo-mirror">这就是自诩自由派的言论自由，最容不得不同观点的就是这些自由主…</a>
 </h2>
@@ -54,13 +54,13 @@
 </h2>
 <p>他都接见他了是不是要开放网络了 要不然哪来的脸呢 不害臊吗<br><br>RE: 双方就不宜公开讨论的政治内容达成了因涉及敏感词汇正在审核中的共识<br><img src="http://ww4.sinaimg.cn/large/6042b8eajw1ewdh3tqey2j20ej09bt98.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3890613604907550" target="freeweibo-mirror">//@头条新闻:转发微博</a>
 </h2>
 <p>//@头条新闻:转发微博<br><br>RE: 【独家直击：盖茨夫妇陪彭丽媛参观科研机构】今天凌晨，彭丽媛参观了一家以癌症、艾滋病疫苗著称的研究机构。新浪国际在现场看到了不少国旗、欢迎横幅和热情的民众，彭丽媛参观结束后，面带微笑的向人们挥手致意。现场直击详见：http://t.cn/RyX2LMi 视频：http://t.cn/RyX2i1A（新浪）<br><img src="http://ww2.sinaimg.cn/large/70e11e0fjw1ewdah7f4byj20c80g1ta3.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3890608801859414" target="freeweibo-mirror">//@1丫头蒙蒙: [哈哈][哈哈] //@吴学谦的微博:[…</a>
 </h2>
@@ -116,6 +116,12 @@
 <p>
 	<small> ============== 4小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3890580516172291" target="freeweibo-mirror">习总：小伙子很不错嘛，网站都打不开还能做到上市[doge] …</a>
+</h2>
+<p>习总：小伙子很不错嘛，网站都打不开还能做到上市[doge] via @sunwear<br><img src="http://ww3.sinaimg.cn/large/78e4b8d4gw1ewdg3zydb0j20bq0bvmyo.jpg"></p>
+<p>
+	<small> ============== 5小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3890579710653383" target="freeweibo-mirror">SPAM 共产主义一个令人诟病的地方就是它号称在人世间实现。…</a>
 </h2>
 <p>SPAM 共产主义一个令人诟病的地方就是它号称在人世间实现。宗教就聪明得多，美好世界都在死后实现。号称在人世间实现，人们就要检验。死后的事情么……你得先死了再说。</p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3890575004610804" target="freeweibo-mirror">严谨。 //@昂昂千里://@zaiyueminggui:转…</a>
 </h2>
 <p>严谨。 //@昂昂千里://@zaiyueminggui:转发微博。</p>
-<p>
-	<small> ============== 5小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3890573226161901" target="freeweibo-mirror">反……反贼[抓狂]</a>
-</h2>
-<p>反……反贼[抓狂]<br><img src="http://ww4.sinaimg.cn/large/623e1d29jw1ewdf9hjvc8j20jz0zkad0.jpg"></p>
 <p>
 	<small> ============== 5小时前</small>
 </p>
