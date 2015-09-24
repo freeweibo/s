@@ -60,7 +60,7 @@
 </h2>
 <p>团中央好长时间都找不到北，摸来摸去，摸到一个门，觉得是北了，拼力打开一看，是共产主义。居然就进去了，万一错了呢？</p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3890511716862901" target="freeweibo-mirror">看老查飙英文。#跟着习大大去美国#</a>
 </h2>
@@ -108,7 +108,7 @@
 </h2>
 <p>难得一见的蒋介石和宋美龄的珍贵视频，大概是在1927年底左右，此时蒋40岁，宋30岁。 http://t.cn/RyzRZlJ</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3890403193083700" target="freeweibo-mirror">好奇，联邦党人文集和常识，现在究竟属不属于七不讲的范畴……</a>
 </h2>
