@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3890714825582763" target="freeweibo-mirror">//@北京海淀区前沙涧村金实: //@野靖春9://@愚-言…</a>
+</h2>
+<p>//@北京海淀区前沙涧村金实: //@野靖春9://@愚-言:[哈哈]→_→//@咨政议员:一会儿是国外敌对势力，一会儿是友好国家，严重的患精神分裂症。<br><br>RE: 【这是境外敌对势力吗？：中美竟是如此友好！】中国31个省区市同美国50个州建立了43对友好省州、200对友好城市。过去10年，美国42个州对华出口增幅达到3位数。据美方统计，中国过去5年对美投资年均超过80多亿美元，增速还在加快。（习近平）<br><img src="http://ww3.sinaimg.cn/large/41693645gw1ewdeyd477lj20yi124tgv.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3890687835421559" target="freeweibo-mirror">→_→ //@刘新征:→_→//@小柯视界：奥巴马：三带一G…</a>
 </h2>
 <p>→_→ //@刘新征:→_→//@小柯视界：奥巴马：三带一Google！Twitter ！Facebook！YouTube！习主席：404，炸了！！！ 奥巴马：[吃惊][吃惊][吃惊]</p>
@@ -42,7 +48,7 @@
 </h2>
 <p>回复@细雨倒骑驴:最近共青团官微偏极端，不够理性，上纲上线、过度褒过度贬都不可取。尤其是青少年的引导者。#微言传播#<br><br>RE: PK任志强：全世界无产者联合起来http://t.cn/Ry6nLf4 共青团中央：【与任志强先生榷】作为整个共青团组织的一员，有必要认真严肃、平心静气地对任志强先生进行回应。共产主义是一个崇高的目标。我们共青团员是共产主义的接班人，是指接过奋斗的班…只要我们一代接一代延续下去，共产主义就一定能实现！</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3890666004158105" target="freeweibo-mirror">小调查：访阿梅利坚的表现，蛤与包孰强？请回复蛤或包。谢！</a>
 </h2>
@@ -90,7 +96,7 @@
 </h2>
 <p>枯老连骨髓都是粉红的了 //@枯墨子:...<br><br>RE: 【独家直击：盖茨夫妇陪彭丽媛参观科研机构】今天凌晨，彭丽媛参观了一家以癌症、艾滋病疫苗著称的研究机构。新浪国际在现场看到了不少国旗、欢迎横幅和热情的民众，彭丽媛参观结束后，面带微笑的向人们挥手致意。现场直击详见：http://t.cn/RyX2LMi 视频：http://t.cn/RyX2i1A（新浪）<br><img src="http://ww2.sinaimg.cn/large/70e11e0fjw1ewdah7f4byj20c80g1ta3.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3890620353422666" target="freeweibo-mirror">胡说习就一初中生水平[嘻嘻]</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3890611406729343" target="freeweibo-mirror">SPAM 404 not found友站爱好者顺手转发～//…</a>
 </h2>
 <p>SPAM 404 not found友站爱好者顺手转发～//@优秀网页设计: [doge]//@-暴躁鸽: 你的心有一道墙 我却发现一扇窗 偶尔透出一丝暖暖的微光[害羞]//@orimuse:当“404 Not Found”与“部分搜索结果未显示”见面，墙内与墙外的会见...[偷笑][偷笑][偷笑]<br><br>RE: 哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈<br><img src="http://ww4.sinaimg.cn/large/a0827410jw1ewdim6xnbyj20ei09at9b.jpg"></p>
-<p>
-	<small> ============== 8小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3890608801859414" target="freeweibo-mirror">//@1丫头蒙蒙: [哈哈][哈哈] //@吴学谦的微博:[…</a>
-</h2>
-<p>//@1丫头蒙蒙: [哈哈][哈哈] //@吴学谦的微博:[哈哈]//@枫叶aaa红了3: [哈哈] //@诗想佳:[哈哈][哈哈]佩服佩服[笑cry][笑cry]//@Mr-cake-TX: [哆啦A梦微笑] //@法治路由器:转发微博<br><br>RE: 国家主席习近平在美国会见了404 not found网站负责人。网友评：主席说:“小伙子，不简单，网站都打不开还能上市，真能忽悠啊，学习学习！ ”小伙谦虚地说:“贵国财产都不用公开，就实现了反腐，佩服佩服！”<br><img src="http://ww2.sinaimg.cn/large/422323bfjw1ewdfsp5qpej20m80jj0vf.jpg"></p>
 <p>
 	<small> ============== 8小时前</small>
 </p>
