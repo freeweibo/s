@@ -54,7 +54,7 @@
 </h2>
 <p>[哈哈]//@邵明波: 转发微博<br><br>RE: 国家主席习近平在美国会见了404 not found网站负责人。网友评：主席说:“小伙子，不简单，网站都打不开还能上市，真能忽悠啊，学习学习！ ”小伙谦虚地说:“贵国财产都不用公开，就实现了反腐，佩服佩服！”<br><img src="http://ww2.sinaimg.cn/large/422323bfjw1ewdfsp5qpej20m80jj0vf.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3890600044402261" target="freeweibo-mirror">[哈哈]//@韩青草2012: [哈哈]</a>
 </h2>
@@ -90,7 +90,13 @@
 </h2>
 <p>反……反贼[抓狂]<br><img src="http://ww4.sinaimg.cn/large/623e1d29jw1ewdf9hjvc8j20jz0zkad0.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3890542289136292" target="freeweibo-mirror">#私企立宪#15年9月24日，保定，大午集团千人游行抗议，孙…</a>
+</h2>
+<p>#私企立宪#15年9月24日，保定，大午集团千人游行抗议，孙大午，浩浩荡荡……#知名企业维权#http://t.cn/Ry67xvt<br><img src="http://ww2.sinaimg.cn/large/6bdd389egw1ewdb7my8ozj20qo0f0myh.jpg"></p>
+<p>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3890532445155142" target="freeweibo-mirror">//@旺旺是拉布拉多:团中央不是共产主义的接班人，是共产主义…</a>
 </h2>
@@ -126,17 +132,11 @@
 </h2>
 <p>看老查飙英文。#跟着习大大去美国#<br><br>RE: 第八届#中美互联网论坛#网民时代，美国商业软件联盟总裁维多利亚·埃斯皮纳主持。发言人：新浪公司董事长兼首席执行官@曹国伟 今日头条@张一鸣 Expedia公司达拉·霍斯劳沙希  、领英公司'霍夫曼。曹国伟介绍了中国不同城市级别的年轻一代在互联网上不同的多元化需求。 http://t.cn/Ry6shJL .<br><img src="http://ww2.sinaimg.cn/large/70f3bd8dgw1ewd3yr16zfj20xc18gajb.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3890502895716573" target="freeweibo-mirror">根据经验：历来被扣反党反社会主义帽子的都是好人，给人扣帽子的…</a>
 </h2>
 <p>根据经验：历来被扣反党反社会主义帽子的都是好人，给人扣帽子的都是王八蛋。 //@英定文:现在就是在宣传接班人的事，你以为真有共产主义什么事吗？//@徐枫华:胡锦涛十年提拔的人做的事危害太大，恐怕二三十年都没办法彻底消除。胡春华隔代接班的事情终止吧，以后谁也别搞什么隔代指定接班人的事情。</p>
-<p>
-	<small> ============== 9小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3890497405784882" target="freeweibo-mirror">共党邪教，对百姓太残暴，血腥//@路见不平的家001://@…</a>
-</h2>
-<p>共党邪教，对百姓太残暴，血腥//@路见不平的家001://@看透实质: //@陈萧健c:用金钱腐蚀世界[吃惊]肯花钱的最后一定能成为大佬，社会如此，国亦同</p>
 <p>
 	<small> ============== 9小时前</small>
 </p>
