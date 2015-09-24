@@ -60,7 +60,7 @@
 </h2>
 <p>不会吧，这么节俭把旧书送外宾，谁发了乌龙照？<br><br>RE: 前方记者发来的：习给美国中学赠书，其中赫然见到袁腾飞《这个历史挺靠谱》。其他亮点自找。@袁腾飞<br><img src="http://ww3.sinaimg.cn/large/63201153jw1ewdk9y789dj20zk0ks436.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3890628959899730" target="freeweibo-mirror">GFW 开始影响普通用户，转自微信朋友圈。</a>
 </h2>
@@ -120,7 +120,7 @@
 </h2>
 <p>SPAM 404 not found友站爱好者顺手转发～//@优秀网页设计: [doge]//@-暴躁鸽: 你的心有一道墙 我却发现一扇窗 偶尔透出一丝暖暖的微光[害羞]//@orimuse:当“404 Not Found”与“部分搜索结果未显示”见面，墙内与墙外的会见...[偷笑][偷笑][偷笑]<br><br>RE: 哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈<br><img src="http://ww4.sinaimg.cn/large/a0827410jw1ewdim6xnbyj20ei09at9b.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3890608801859414" target="freeweibo-mirror">//@1丫头蒙蒙: [哈哈][哈哈] //@吴学谦的微博:[…</a>
 </h2>
