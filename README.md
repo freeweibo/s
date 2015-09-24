@@ -20,6 +20,18 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3890502895716573" target="freeweibo-mirror">根据经验：历来被扣反党反社会主义帽子的都是好人，给人扣帽子的…</a>
+</h2>
+<p>根据经验：历来被扣反党反社会主义帽子的都是好人，给人扣帽子的都是王八蛋。 //@英定文:现在就是在宣传接班人的事，你以为真有共产主义什么事吗？//@徐枫华:胡锦涛十年提拔的人做的事危害太大，恐怕二三十年都没办法彻底消除。胡春华隔代接班的事情终止吧，以后谁也别搞什么隔代指定接班人的事情。</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3890497405784882" target="freeweibo-mirror">共党邪教，对百姓太残暴，血腥//@路见不平的家001://@…</a>
+</h2>
+<p>共党邪教，对百姓太残暴，血腥//@路见不平的家001://@看透实质: //@陈萧健c:用金钱腐蚀世界[吃惊]肯花钱的最后一定能成为大佬，社会如此，国亦同</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3890465751241376" target="freeweibo-mirror">SPAM //@黄奎ART://@我叫方放: //@伟荣V实…</a>
 </h2>
 <p>SPAM //@黄奎ART://@我叫方放: //@伟荣V实说://@权贵治国7: //@石下顽草10世: 何罪之有？ //@众神阳虚v:这才是当之无愧的世界正能量，而非中国党徒们吹兴正酣的泡泡糖。</p>
@@ -127,18 +139,6 @@
 <p>说明大佬太火了！</p>
 <p>
 	<small> ============== 12小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3890334884647257" target="freeweibo-mirror">SPAM 一个钱包还两个人掐着，就知道是购物去了……</a>
-</h2>
-<p>SPAM 一个钱包还两个人掐着，就知道是购物去了……<br><img src="http://ww3.sinaimg.cn/large/4ce32014jw1ewcntkfv31j20jq0p3wit.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3890332410008798" target="freeweibo-mirror">这……</a>
-</h2>
-<p>这……<br><br>RE: 【突发】陪同习大大出访美国的科技大佬下榻的Hilton Bellevue酒店发生火警，一群大佬狼狈跑出酒店....阿里马云、腾讯马化腾、猎豹移动傅盛、京东刘强东、联想杨元庆、新浪曹国伟、搜狐张朝阳...啊啊啊...上万亿身家啊...[衰] http://t.cn/Ry6l6pi</p>
-<p>
-	<small> ============== 1天前</small>
 </p>
 <table>
     <tr>
