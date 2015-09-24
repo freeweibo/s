@@ -102,7 +102,7 @@
 </h2>
 <p>GFW 开始影响普通用户，转自微信朋友圈。<br><img src="http://ww1.sinaimg.cn/large/72d174dbgw1ewdlnib4gbj20hs4fx7wh.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3890623985737674" target="freeweibo-mirror">这就是自诩自由派的言论自由，最容不得不同观点的就是这些自由主…</a>
 </h2>
