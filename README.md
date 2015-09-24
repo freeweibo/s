@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3890666004158105" target="freeweibo-mirror">小调查：访阿梅利坚的表现，蛤与包孰强？请回复蛤或包。谢！</a>
+</h2>
+<p>小调查：访阿梅利坚的表现，蛤与包孰强？请回复蛤或包。谢！</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3890628959899730" target="freeweibo-mirror">GFW 开始影响普通用户，转自微信朋友圈。</a>
 </h2>
 <p>GFW 开始影响普通用户，转自微信朋友圈。<br><img src="http://ww1.sinaimg.cn/large/72d174dbgw1ewdlnib4gbj20hs4fx7wh.jpg"></p>
@@ -36,7 +42,7 @@
 </h2>
 <p>枯老连骨髓都是粉红的了 //@枯墨子:...<br><br>RE: 【独家直击：盖茨夫妇陪彭丽媛参观科研机构】今天凌晨，彭丽媛参观了一家以癌症、艾滋病疫苗著称的研究机构。新浪国际在现场看到了不少国旗、欢迎横幅和热情的民众，彭丽媛参观结束后，面带微笑的向人们挥手致意。现场直击详见：http://t.cn/RyX2LMi 视频：http://t.cn/RyX2i1A（新浪）<br><img src="http://ww2.sinaimg.cn/large/70e11e0fjw1ewdah7f4byj20c80g1ta3.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3890616767475839" target="freeweibo-mirror">丢人不</a>
 </h2>
@@ -78,7 +84,7 @@
 </h2>
 <p>//@韩青草2012:[哈哈]<br><br>RE: 国家主席习近平在美国会见了404 not found网站负责人。网友评：主席说:“小伙子，不简单，网站都打不开还能上市，真能忽悠啊，学习学习！ ”小伙谦虚地说:“贵国财产都不用公开，就实现了反腐，佩服佩服！”<br><img src="http://ww2.sinaimg.cn/large/422323bfjw1ewdfsp5qpej20m80jj0vf.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3890606281108647" target="freeweibo-mirror">习大大访美前夕，米歇儿在白宫拿出彭丽媛赠送的 “厚德载物” …</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3890588883807822" target="freeweibo-mirror">//@律师王学明://@麻毛雄: //@wklmt: 干得漂…</a>
 </h2>
 <p>//@律师王学明://@麻毛雄: //@wklmt: 干得漂亮[doge]//@宪政是敏感词:转发微博<br><br>RE: #私企立宪#15年9月24日，保定，大午集团千人游行抗议，孙大午，浩浩荡荡……#知名企业维权#http://t.cn/Ry67xvt<br><img src="http://ww2.sinaimg.cn/large/6bdd389egw1ewdb7my8ozj20qo0f0myh.jpg"></p>
-<p>
-	<small> ============== 6小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3890586072999864" target="freeweibo-mirror">SPAM [笑cry]//@鹰隼N1A晏欢: [陰險]</a>
-</h2>
-<p>SPAM [笑cry]//@鹰隼N1A晏欢: [陰險]<br><br>RE: 习近平会晤境外最大的反动网站负责人。<br><img src="http://ww2.sinaimg.cn/large/4de85d08jw1ewdgnmx4mmj20ez0qotau.jpg"></p>
 <p>
 	<small> ============== 6小时前</small>
 </p>
