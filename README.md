@@ -20,6 +20,18 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3890732588934627" target="freeweibo-mirror">贵党何时能分成两党，公开和平竞争呢？那恐将是中国福音//@五…</a>
+</h2>
+<p>贵党何时能分成两党，公开和平竞争呢？那恐将是中国福音//@五岳散人: 华远地产是国企。您的意思是政府加上国企洗劫了老百姓？<br><br>RE: 【警惕任志强的诡辩术】潘任美透支了房奴们的钱包，还要接着透支房奴们的智商。正是任志强传销的私有制加市场经济导致了贫富悬殊，但他却告诉我们公有制加计划经济已经失败，通过私有制加市场经济实现共同富裕。他跟所有的公知一样，把造成问题的原因说成是解决问题的出路。@共青团中央<br><img src="http://ww1.sinaimg.cn/large/81def7cagw1ewdhh0edjpj20hs7xnqv5.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3890731909700376" target="freeweibo-mirror">[哈哈] //@任志强:领导说：你大人大量。别跟流氓一般见识…</a>
+</h2>
+<p>[哈哈] //@任志强:领导说：你大人大量。别跟流氓一般见识。[哈哈] //@米家那个山:什么都不懂，阵脚全乱的，可悲！//@五岳散人: 华远地产是国企。您的意思是政府加上国企洗劫了老百姓？<br><br>RE: 【警惕任志强的诡辩术】潘任美透支了房奴们的钱包，还要接着透支房奴们的智商。正是任志强传销的私有制加市场经济导致了贫富悬殊，但他却告诉我们公有制加计划经济已经失败，通过私有制加市场经济实现共同富裕。他跟所有的公知一样，把造成问题的原因说成是解决问题的出路。@共青团中央<br><img src="http://ww1.sinaimg.cn/large/81def7cagw1ewdhh0edjpj20hs7xnqv5.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3890729371813882" target="freeweibo-mirror">[吃惊]//@五岳散人: 华远地产是国企。您的意思是政府加上…</a>
 </h2>
 <p>[吃惊]//@五岳散人: 华远地产是国企。您的意思是政府加上国企洗劫了老百姓？<br><br>RE: 【警惕任志强的诡辩术】潘任美透支了房奴们的钱包，还要接着透支房奴们的智商。正是任志强传销的私有制加市场经济导致了贫富悬殊，但他却告诉我们公有制加计划经济已经失败，通过私有制加市场经济实现共同富裕。他跟所有的公知一样，把造成问题的原因说成是解决问题的出路。@共青团中央<br><img src="http://ww1.sinaimg.cn/large/81def7cagw1ewdhh0edjpj20hs7xnqv5.jpg"></p>
@@ -125,18 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3890616880138230" target="freeweibo-mirror">前方记者发来的：习给美国中学赠书，其中赫然见到袁腾飞《这个历…</a>
 </h2>
 <p>前方记者发来的：习给美国中学赠书，其中赫然见到袁腾飞《这个历史挺靠谱》。其他亮点自找。@袁腾飞<br><img src="http://ww3.sinaimg.cn/large/63201153jw1ewdk9y789dj20zk0ks436.jpg"></p>
-<p>
-	<small> ============== 8小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3890616767475839" target="freeweibo-mirror">丢人不</a>
-</h2>
-<p>丢人不<br><br>RE: 双方就不宜公开讨论的政治内容达成了因涉及敏感词汇正在审核中的共识<br><img src="http://ww4.sinaimg.cn/large/6042b8eajw1ewdh3tqey2j20ej09bt98.jpg"></p>
-<p>
-	<small> ============== 8小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3890616654010510" target="freeweibo-mirror">SPAM 中美共勉，印钞发债，和平竞赛。</a>
-</h2>
-<p>SPAM 中美共勉，印钞发债，和平竞赛。<br><br>RE: 习大大访美前夕，米歇儿在白宫拿出彭丽媛赠送的 “厚德载物” 题词给丈夫奥巴马温习刚学会的汉语中文读给奥巴马听：好多债务。奥巴马听后忙说：No！No！No！中国文字是从右往左读的。于是，奥巴马用不标准的中文读：无债多好……[偷笑]<br><img src="http://ww3.sinaimg.cn/large/71353b70gw1ewdj1rm9z4j20l40a3jsn.jpg"></p>
 <p>
 	<small> ============== 8小时前</small>
 </p>
