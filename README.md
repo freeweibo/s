@@ -30,7 +30,7 @@
 </h2>
 <p>枯老连骨髓都是粉红的了 //@枯墨子:...<br><br>RE: 【独家直击：盖茨夫妇陪彭丽媛参观科研机构】今天凌晨，彭丽媛参观了一家以癌症、艾滋病疫苗著称的研究机构。新浪国际在现场看到了不少国旗、欢迎横幅和热情的民众，彭丽媛参观结束后，面带微笑的向人们挥手致意。现场直击详见：http://t.cn/RyX2LMi 视频：http://t.cn/RyX2i1A（新浪）<br><img src="http://ww2.sinaimg.cn/large/70e11e0fjw1ewdah7f4byj20c80g1ta3.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3890616767475839" target="freeweibo-mirror">丢人不</a>
 </h2>
@@ -54,7 +54,7 @@
 </h2>
 <p>//@韩青草2012:[哈哈]<br><br>RE: 国家主席习近平在美国会见了404 not found网站负责人。网友评：主席说:“小伙子，不简单，网站都打不开还能上市，真能忽悠啊，学习学习！ ”小伙谦虚地说:“贵国财产都不用公开，就实现了反腐，佩服佩服！”<br><img src="http://ww2.sinaimg.cn/large/422323bfjw1ewdfsp5qpej20m80jj0vf.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3890602997776751" target="freeweibo-mirror">[哈哈]//@邵明波: 转发微博</a>
 </h2>
@@ -114,7 +114,7 @@
 </h2>
 <p>//@旺旺是拉布拉多:团中央不是共产主义的接班人，是共产主义领导者的接班人！所谓团派，报团儿吃派！<br><br>RE: 团中央好长时间都找不到北，摸来摸去，摸到一个门，觉得是北了，拼力打开一看，是共产主义。居然就进去了，万一错了呢？</p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3890531471940225" target="freeweibo-mirror">【独家直击：盖茨夫妇陪彭丽媛参观科研机构】今天凌晨，彭丽媛参…</a>
 </h2>
