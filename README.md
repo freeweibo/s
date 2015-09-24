@@ -134,9 +134,9 @@
 <p>
 	<small> ============== 5小时前</small>
 </p><h2>
-	<a href="https://freeweibo.com/weibo/3890580516172291" target="freeweibo-mirror">习总：小伙子很不错嘛，网站都打不开还能做到上市[doge] …</a>
+	<a href="https://freeweibo.com/weibo/3890585285343836" target="freeweibo-mirror">习近平会晤境外最大的反动网站负责人。</a>
 </h2>
-<p>习总：小伙子很不错嘛，网站都打不开还能做到上市[doge] via @sunwear<br><img src="http://ww3.sinaimg.cn/large/78e4b8d4gw1ewdg3zydb0j20bq0bvmyo.jpg"></p>
+<p>习近平会晤境外最大的反动网站负责人。<br><img src="http://ww2.sinaimg.cn/large/4de85d08jw1ewdgnmx4mmj20ez0qotau.jpg"></p>
 <p>
 	<small> ============== 5小时前</small>
 </p>
