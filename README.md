@@ -80,6 +80,12 @@
 <p>
 	<small> ============== 5小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3890620353422666" target="freeweibo-mirror">胡说习就一初中生水平[嘻嘻]</a>
+</h2>
+<p>胡说习就一初中生水平[嘻嘻]<br><img src="http://ww1.sinaimg.cn/large/005zqoqigw1ewdko0qxc8j30ci0m8q4l.jpg"></p>
+<p>
+	<small> ============== 5小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3890616880138230" target="freeweibo-mirror">前方记者发来的：习给美国中学赠书，其中赫然见到袁腾飞《这个历…</a>
 </h2>
 <p>前方记者发来的：习给美国中学赠书，其中赫然见到袁腾飞《这个历史挺靠谱》。其他亮点自找。@袁腾飞<br><img src="http://ww3.sinaimg.cn/large/63201153jw1ewdk9y789dj20zk0ks436.jpg"></p>
@@ -133,12 +139,6 @@
 <p>习大大访美前夕，米歇儿在白宫拿出彭丽媛赠送的 “厚德载物” 题词给丈夫奥巴马温习刚学会的汉语中文读给奥巴马听：好多债务。奥巴马听后忙说：No！No！No！中国文字是从右往左读的。于是，奥巴马用不标准的中文读：无债多好……[偷笑]<br><img src="http://ww3.sinaimg.cn/large/71353b70gw1ewdj1rm9z4j20l40a3jsn.jpg"></p>
 <p>
 	<small> ============== 6小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3890602997776751" target="freeweibo-mirror">[哈哈]//@邵明波: 转发微博</a>
-</h2>
-<p>[哈哈]//@邵明波: 转发微博<br><br>RE: 国家主席习近平在美国会见了404 not found网站负责人。网友评：主席说:“小伙子，不简单，网站都打不开还能上市，真能忽悠啊，学习学习！ ”小伙谦虚地说:“贵国财产都不用公开，就实现了反腐，佩服佩服！”<br><img src="http://ww2.sinaimg.cn/large/422323bfjw1ewdfsp5qpej20m80jj0vf.jpg"></p>
-<p>
-	<small> ============== 7小时前</small>
 </p>
 <table>
     <tr>
