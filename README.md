@@ -102,7 +102,7 @@
 </h2>
 <p>[哈哈]//@韩青草2012: [哈哈]<br><br>RE: 国家主席习近平在美国会见了404 not found网站负责人。网友评：主席说:“小伙子，不简单，网站都打不开还能上市，真能忽悠啊，学习学习！ ”小伙谦虚地说:“贵国财产都不用公开，就实现了反腐，佩服佩服！”<br><img src="http://ww2.sinaimg.cn/large/422323bfjw1ewdfsp5qpej20m80jj0vf.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3890596101771650" target="freeweibo-mirror">[笑哈哈]//@V一骑绝尘V:[笑哈哈]//@鲔鱼再来:[挖…</a>
 </h2>
