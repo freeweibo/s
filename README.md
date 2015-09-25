@@ -48,7 +48,7 @@
 </h2>
 <p>SPAM 萱萱威武 //@王天定:纽约时报上的中文广告，是登给谁看的？//@enclavetj: Repost</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3890897533956525" target="freeweibo-mirror">一大波深井冰正在赶来。//@傅蔚冈: 麻烦，还记得几年前很多…</a>
 </h2>
