@@ -66,7 +66,7 @@
 </h2>
 <p>SPAM 教皇<br><br>RE: 今天的纽约时报和昨天一样，头版依然给了教皇。。。然而被内页惊到了。。。给茅台，加多宝，凯迪生态，保利地产和格力跪了。。。<br><img src="http://ww1.sinaimg.cn/large/64923b0dgw1ewe4t893bwj218g0x7aq9.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3890941846401982" target="freeweibo-mirror">SPAM 实力追星。以后不买个报纸的整版来告白，都不好意思说…</a>
 </h2>
@@ -83,6 +83,12 @@
 	<a href="https://freeweibo.com/weibo/3890937342493243" target="freeweibo-mirror">人家皮糙肉厚不在乎//@胖子0641: [哈哈]//@鲁壁藏…</a>
 </h2>
 <p>人家皮糙肉厚不在乎//@胖子0641: [哈哈]//@鲁壁藏书:友情提示：应该用简体字！//@Thomas程5: //@remarker的空间://@ytdream69:转发微博<br><br>RE: 明天中共總書記習近平將訪問我們首都，不過美國新聞博物館知道習不懂英語，特意用中文書寫標語，懸掛市區歡迎習對首都的訪問。看清楚了，不是華人幹的。<br><img src="http://ww2.sinaimg.cn/large/a380a663jw1ewegtguq96j20ic0ab40d.jpg"></p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3890936717234240" target="freeweibo-mirror">#玩出花样 活出自己#不是天生神力，而是后天努力！快加满能量…</a>
+</h2>
+<p>#玩出花样 活出自己#不是天生神力，而是后天努力！快加满能量橙！@波司登_BOSIDENG<br><img src="http://ww3.sinaimg.cn/large/4b0dc518gw1ewel0qysv0j20et0m8wgd.jpg"></p>
 <p>
 	<small> ============== 4小时前</small>
 </p><h2>
@@ -126,17 +132,11 @@
 </h2>
 <p>明天中共總書記習近平將訪問我們首都，不過美國新聞博物館知道習不懂英語，特意用中文書寫標語，懸掛市區歡迎習對首都的訪問。看清楚了，不是華人幹的。<br><img src="http://ww2.sinaimg.cn/large/a380a663jw1ewegtguq96j20ic0ab40d.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3890897533956525" target="freeweibo-mirror">一大波深井冰正在赶来。//@傅蔚冈: 麻烦，还记得几年前很多…</a>
 </h2>
 <p>一大波深井冰正在赶来。//@傅蔚冈: 麻烦，还记得几年前很多省市为了节能减排而拉闸限电和停止供暖。<br><br>RE: 扭腰时报刚刚报道，明天X主席将宣布中国会从2017年开始实施碳排放限量和交易等减排措施。对于美国来说，这是个重大消息，因为怀疑气候变化和反对限排碳的政客一直拿中国说事儿，中国不限美国干嘛要自我约束。中国走在前边了，美国还怎么说？这是奥巴马得到的大礼。</p>
-<p>
-	<small> ============== 7小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3890896150166377" target="freeweibo-mirror">扭腰时报刚刚报道，明天X主席将宣布中国会从2017年开始实施…</a>
-</h2>
-<p>扭腰时报刚刚报道，明天X主席将宣布中国会从2017年开始实施碳排放限量和交易等减排措施。对于美国来说，这是个重大消息，因为怀疑气候变化和反对限排碳的政客一直拿中国说事儿，中国不限美国干嘛要自我约束。中国走在前边了，美国还怎么说？这是奥巴马得到的大礼。</p>
 <p>
 	<small> ============== 7小时前</small>
 </p>
