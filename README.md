@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3891018229755346" target="freeweibo-mirror">这些称呼，特别不合适。大家作为一个有个人尊严的人，应该自觉抵…</a>
+</h2>
+<p>这些称呼，特别不合适。大家作为一个有个人尊严的人，应该自觉抵制这样的称呼。//@戴建业微博: 把泱泱大国的主席称为“习大大”，把仪态万方的第一夫人称为“彭麻麻”，没有一点格调。<br><br>RE: 习主席的包装团队没有跨入现代门坎，甚至比不上封建时代的大臣。中国古代强调“君臣父子”，“君”与“父”分得清清楚楚，绝不会把君主包装成“大大”，反而到了社会主义新中国，官方喊出了“爹亲娘亲不如毛主席亲”，官方媒体称领袖为“大大”，不仅背离了现代政治文明，而且完全违反了人类天伦。</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3890967826223213" target="freeweibo-mirror">SPAM 有钱任性[doge]</a>
 </h2>
 <p>SPAM 有钱任性[doge]<br><br>RE: 今天的纽约时报和昨天一样，头版依然给了教皇。。。然而被内页惊到了。。。给茅台，加多宝，凯迪生态，保利地产和格力跪了。。。<br><img src="http://ww1.sinaimg.cn/large/64923b0dgw1ewe4t893bwj218g0x7aq9.jpg"></p>
@@ -30,7 +36,7 @@
 </h2>
 <p>SPAM 那么拼命，习大大会看吗？<br><br>RE: 今天的纽约时报和昨天一样，头版依然给了教皇。。。然而被内页惊到了。。。给茅台，加多宝，凯迪生态，保利地产和格力跪了。。。<br><img src="http://ww1.sinaimg.cn/large/64923b0dgw1ewe4t893bwj218g0x7aq9.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3890959421057794" target="freeweibo-mirror">习主席身边的包装团队没有跨入现代门坎，甚至比不上封建时代的大…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3890908195687190" target="freeweibo-mirror">SPAM 现在我们需要你这样的养蜂人，为良知点赞，帮转[赞]</a>
 </h2>
 <p>SPAM 现在我们需要你这样的养蜂人，为良知点赞，帮转[赞]</p>
-<p>
-	<small> ============== 9小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3890905629376233" target="freeweibo-mirror">SPAM 萱萱威武 //@王天定:纽约时报上的中文广告，是登…</a>
-</h2>
-<p>SPAM 萱萱威武 //@王天定:纽约时报上的中文广告，是登给谁看的？//@enclavetj: Repost</p>
 <p>
 	<small> ============== 9小时前</small>
 </p>
