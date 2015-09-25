@@ -32,6 +32,12 @@
 <p>
 	<small> ============== 6小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3890963548536771" target="freeweibo-mirror">习主席的包装团队没有跨入现代门坎，甚至比不上封建时代的大臣。…</a>
+</h2>
+<p>习主席的包装团队没有跨入现代门坎，甚至比不上封建时代的大臣。中国古代强调“君臣父子”，“君”与“父”分得清清楚楚，绝不会把君主包装成“大大”，反而到了社会主义新中国，官方喊出了“爹亲娘亲不如毛主席亲”，官方媒体称领袖为“大大”，不仅背离了现代政治文明，而且完全违反了人类天伦。</p>
+<p>
+	<small> ============== 6小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3890963077957381" target="freeweibo-mirror">SPAM 那么拼命，习大大会看吗？</a>
 </h2>
 <p>SPAM 那么拼命，习大大会看吗？<br><br>RE: 今天的纽约时报和昨天一样，头版依然给了教皇。。。然而被内页惊到了。。。给茅台，加多宝，凯迪生态，保利地产和格力跪了。。。<br><img src="http://ww1.sinaimg.cn/large/64923b0dgw1ewe4t893bwj218g0x7aq9.jpg"></p>
@@ -90,7 +96,7 @@
 </h2>
 <p>SPAM 壕气万千……//@立誓成妖: 哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈//@老梅梅梅://@宇宙时代的阿涟莲: //@菖蒲君_牛奶莫吉托:[笑cry][笑cry][笑cry][笑cry][笑cry] //@imfleur:[笑cry][笑cry][笑cry] //@失血过多的雯子:。。。。。。//@塞北羽山:我在火车上笑出了声//@YC-抖M属性没救了:[笑cry]<br><br>RE: 今天的纽约时报和昨天一样，头版依然给了教皇。。。然而被内页惊到了。。。给茅台，加多宝，凯迪生态，保利地产和格力跪了。。。<br><img src="http://ww1.sinaimg.cn/large/64923b0dgw1ewe4t893bwj218g0x7aq9.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3890937342493243" target="freeweibo-mirror">人家皮糙肉厚不在乎//@胖子0641: [哈哈]//@鲁壁藏…</a>
 </h2>
@@ -126,19 +132,13 @@
 </h2>
 <p>SPAM 老杜太猛，憾山动地！<br><br>RE: 任志强恶行累累、劣迹斑斑，路人皆知，为何却又如此嚣张？有恃才能无恐。《任志强的后台是谁呢？》<br><img src="http://ww2.sinaimg.cn/large/4a8ce83ajw1ewdg8i6vl1j20c810f7al.jpg"></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3890908380404153" target="freeweibo-mirror">@杜建国微博 长微博称任志强恶行累累、劣迹斑斑，矛头直指老王…</a>
 </h2>
 <p>@杜建国微博 长微博称任志强恶行累累、劣迹斑斑，矛头直指老王。【润良问一声，这位姓杜的后台又是谁呢？支持律师介入！】<br><img src="http://ww4.sinaimg.cn/large/63142687gw1ewehr2mtz0j20c810fdm5.jpg"></p>
 <p>
-	<small> ============== 9小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3890908195687190" target="freeweibo-mirror">SPAM 现在我们需要你这样的养蜂人，为良知点赞，帮转[赞]</a>
-</h2>
-<p>SPAM 现在我们需要你这样的养蜂人，为良知点赞，帮转[赞]</p>
-<p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p>
 <table>
     <tr>
