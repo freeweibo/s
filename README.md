@@ -24,7 +24,7 @@
 </h2>
 <p>SPAM 有钱任性[doge]<br><br>RE: 今天的纽约时报和昨天一样，头版依然给了教皇。。。然而被内页惊到了。。。给茅台，加多宝，凯迪生态，保利地产和格力跪了。。。<br><img src="http://ww1.sinaimg.cn/large/64923b0dgw1ewe4t893bwj218g0x7aq9.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3890963077957381" target="freeweibo-mirror">SPAM 那么拼命，习大大会看吗？</a>
 </h2>
@@ -54,7 +54,7 @@
 </h2>
 <p>人家皮糙肉厚不在乎//@胖子0641: [哈哈]//@鲁壁藏书:友情提示：应该用简体字！//@Thomas程5: //@remarker的空间://@ytdream69:转发微博<br><br>RE: 明天中共總書記習近平將訪問我們首都，不過美國新聞博物館知道習不懂英語，特意用中文書寫標語，懸掛市區歡迎習對首都的訪問。看清楚了，不是華人幹的。<br><img src="http://ww2.sinaimg.cn/large/a380a663jw1ewegtguq96j20ic0ab40d.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3890933638432815" target="freeweibo-mirror">我说过，现在的美国已经是一个日渐不自信的小家子气的国家，这种…</a>
 </h2>
@@ -120,7 +120,7 @@
 </h2>
 <p>这月饼有意思？能吃吗？ //@雷颐://@罗亚蒙:[微笑] //@阅读12345678:什么时候该报的网络版在内地解禁？我可是已经连续阅读了12年了。<br><br>RE: #亚蒙看天下#【纽约时报的中国企业广告】中国企业跑到美国去做广告欢迎中国领导人访问美国？逻辑不通啊？世界上还有比这更傻、更丢人的广告吗！[哈哈][哈哈][哈哈]<br><img src="http://ww3.sinaimg.cn/large/681521d1jw1ewe15mshf2j20k00qogob.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3890875115108499" target="freeweibo-mirror">//@崔小平律师://@山高路远N:习总告诉我们，西方的书是…</a>
 </h2>
