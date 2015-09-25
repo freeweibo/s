@@ -96,7 +96,7 @@
 </h2>
 <p>#玩出花样 活出自己#不是天生神力，而是后天努力！快加满能量橙！@波司登_BOSIDENG<br><img src="http://ww3.sinaimg.cn/large/4b0dc518gw1ewel0qysv0j20et0m8wgd.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3890933638432815" target="freeweibo-mirror">我说过，现在的美国已经是一个日渐不自信的小家子气的国家，这种…</a>
 </h2>
@@ -132,7 +132,7 @@
 </h2>
 <p>SPAM 萱萱威武 //@王天定:纽约时报上的中文广告，是登给谁看的？//@enclavetj: Repost</p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3890900876691417" target="freeweibo-mirror">明天中共總書記習近平將訪問我們首都，不過美國新聞博物館知道習…</a>
 </h2>
