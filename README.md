@@ -72,7 +72,7 @@
 </h2>
 <p>其实党和国家领导人们还是很喜欢美国的。允许妖魔化美国是一种政治需要。有一个外敌（不管是真实的还是假想的）能让民众团结在自己周围。</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3891087385539232" target="freeweibo-mirror">//@广州城堡堡主:报告首长，百团大战有一个团可能叛变了，现…</a>
 </h2>
@@ -114,7 +114,7 @@
 </h2>
 <p>[哈哈] //@诸子百家之一:小童鞋[哈哈][哈哈]<br><br>RE: 【微博动态】这……请问该班同学，你们真看懂了上级组织的态度了吗[汗]<br><img src="http://ww2.sinaimg.cn/large/61e04755jw1ewez1irgjcj20yi11yqct.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3891072767455614" target="freeweibo-mirror">#女主播时间#性感诱惑、极品36F温泉洗浴。[色]出水芙蓉h…</a>
 </h2>
@@ -138,7 +138,7 @@
 </h2>
 <p>【微博动态】这……请问该班同学，你们真看懂了上级组织的态度了吗[汗]<br><img src="http://ww2.sinaimg.cn/large/61e04755jw1ewez1irgjcj20yi11yqct.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p>
 <table>
     <tr>
