@@ -90,7 +90,7 @@
 </h2>
 <p>很惭愧，来美国已经19年，竟然不了解Thomas Paine，多亏习主席博学，才让我有机会认真学习一下潘恩的两句名言:“爱国者的责任就是保护国家不受政府侵犯。”“思想上的谎言在社会里所产生的道德损害，是无法计算的；当一个人腐化到宣扬他自己都不相信的东西，他已经做好了做一切坏事的准备！”<br><img src="http://ww1.sinaimg.cn/large/be2e7b60gw1ewe98hnsnyj20fa0clt9q.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3890773663470847" target="freeweibo-mirror">//@瓦全张明家://@冯师长:这次党大还是法大？[笑cry…</a>
 </h2>
