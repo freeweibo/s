@@ -44,11 +44,23 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3890945915155088" target="freeweibo-mirror">SPAM 教皇</a>
+</h2>
+<p>SPAM 教皇<br><br>RE: 今天的纽约时报和昨天一样，头版依然给了教皇。。。然而被内页惊到了。。。给茅台，加多宝，凯迪生态，保利地产和格力跪了。。。<br><img src="http://ww1.sinaimg.cn/large/64923b0dgw1ewe4t893bwj218g0x7aq9.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3890937342493243" target="freeweibo-mirror">人家皮糙肉厚不在乎//@胖子0641: [哈哈]//@鲁壁藏…</a>
+</h2>
+<p>人家皮糙肉厚不在乎//@胖子0641: [哈哈]//@鲁壁藏书:友情提示：应该用简体字！//@Thomas程5: //@remarker的空间://@ytdream69:转发微博<br><br>RE: 明天中共總書記習近平將訪問我們首都，不過美國新聞博物館知道習不懂英語，特意用中文書寫標語，懸掛市區歡迎習對首都的訪問。看清楚了，不是華人幹的。<br><img src="http://ww2.sinaimg.cn/large/a380a663jw1ewegtguq96j20ic0ab40d.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3890933638432815" target="freeweibo-mirror">我说过，现在的美国已经是一个日渐不自信的小家子气的国家，这种…</a>
 </h2>
 <p>我说过，现在的美国已经是一个日渐不自信的小家子气的国家，这种冷淡是极度重视的反面折射。//@秦师名粤: 美方的低调也许是傲慢，但更可能是内心的酸劲导致的刻意。<br><br>RE: 转发：美国时间昨天和前天，美国只有PBS台以极短的时间，且在报道教皇访问之后简单报道了习扺西雅图及发表关于中美联合共同打击网络犯罪的讲话的消息，其他各大新闻台未见关于习访问的报道。这就是现实！一味妥协、讨好美国只会自取其辱！</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3890930212151559" target="freeweibo-mirror">原来围攻@任志强 是醉翁之意不在酒啊……</a>
 </h2>
@@ -102,7 +114,7 @@
 </h2>
 <p>[笑cry] //@简直:好东西当然留给自己人</p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3890877674196301" target="freeweibo-mirror">这月饼有意思？能吃吗？ //@雷颐://@罗亚蒙:[微笑] …</a>
 </h2>
@@ -120,25 +132,13 @@
 </h2>
 <p>SPAM #跟着习大大去美国# //@LifeTime:今天纽约群众自发。 //@satingwoo沙丁鱼:群众自发的?<br><br>RE: 包总走下灰机，群众已等不急了。<br><img src="http://ww1.sinaimg.cn/large/dd816182gw1ewe9cr9qh8j20r90i60vx.jpg"></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3890834120063407" target="freeweibo-mirror">很惭愧，来美国已经19年，竟然不了解Thomas Paine…</a>
 </h2>
 <p>很惭愧，来美国已经19年，竟然不了解Thomas Paine，多亏习主席博学，才让我有机会认真学习一下潘恩的两句名言:“爱国者的责任就是保护国家不受政府侵犯。”“思想上的谎言在社会里所产生的道德损害，是无法计算的；当一个人腐化到宣扬他自己都不相信的东西，他已经做好了做一切坏事的准备！”<br><img src="http://ww1.sinaimg.cn/large/be2e7b60gw1ewe98hnsnyj20fa0clt9q.jpg"></p>
 <p>
 	<small> ============== 10小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3890773663470847" target="freeweibo-mirror">//@瓦全张明家://@冯师长:这次党大还是法大？[笑cry…</a>
-</h2>
-<p>//@瓦全张明家://@冯师长:这次党大还是法大？[笑cry]<br><br>RE: 区别！两个首脑同一天抵达美国。一个通过上千万干部领导13亿人， 一个通过41万神父领导12亿人。一个中央委员有205人， 另一个红衣主教团有114人。一个到达时地方官员在机场迎候，一个在机场受到总统全家和副总统夫妇迎接（罕见！）。共产党与天主教！谁更重要一目了然，你信或者不信，事实就在那里！<br><img src="http://ww4.sinaimg.cn/large/422323bfjw1ewc7wvnzv7j24002kcu0y.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3890764750675531" target="freeweibo-mirror">#亚蒙看天下#【纽约时报的中国企业广告】中国企业跑到美国去做…</a>
-</h2>
-<p>#亚蒙看天下#【纽约时报的中国企业广告】中国企业跑到美国去做广告欢迎中国领导人访问美国？逻辑不通啊？世界上还有比这更傻、更丢人的广告吗！[哈哈][哈哈][哈哈]<br><img src="http://ww3.sinaimg.cn/large/681521d1jw1ewe15mshf2j20k00qogob.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
 </p>
 <table>
     <tr>
