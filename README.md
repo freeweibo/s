@@ -42,7 +42,13 @@
 </h2>
 <p>支持依法抹掉共产主义 //@风中的蒲公英云:转发微博</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3890949493207311" target="freeweibo-mirror">SPAM 马屁拍的飞起哈哈哈哈哈哈哈//@辣条娘: 亚洲第一…</a>
+</h2>
+<p>SPAM 马屁拍的飞起哈哈哈哈哈哈哈//@辣条娘: 亚洲第一男子天团实力全球后援会[拜拜]//@动漫妖君: 哈哈哈//@男子高校生的日肠: 就是有钱//@掉粉达人: 厉害！ //@劉徳崋AndyLau:卧槽//@漫惹炉烟双袖:任性<br><br>RE: 今天的纽约时报和昨天一样，头版依然给了教皇。。。然而被内页惊到了。。。给茅台，加多宝，凯迪生态，保利地产和格力跪了。。。<br><img src="http://ww1.sinaimg.cn/large/64923b0dgw1ewe4t893bwj218g0x7aq9.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3890945915155088" target="freeweibo-mirror">SPAM 教皇</a>
 </h2>
@@ -133,12 +139,6 @@
 <p>//@崔小平律师://@山高路远N:习总告诉我们，西方的书是可以读的!//@微笑类星体://@通城风雨: [思考]//@龙化石: //@京都探花://@海口梁山:<br><br>RE: 很惭愧，来美国已经19年，竟然不了解Thomas Paine，多亏习主席博学，才让我有机会认真学习一下潘恩的两句名言:“爱国者的责任就是保护国家不受政府侵犯。”“思想上的谎言在社会里所产生的道德损害，是无法计算的；当一个人腐化到宣扬他自己都不相信的东西，他已经做好了做一切坏事的准备！”<br><img src="http://ww1.sinaimg.cn/large/be2e7b60gw1ewe98hnsnyj20fa0clt9q.jpg"></p>
 <p>
 	<small> ============== 8小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3890843658484772" target="freeweibo-mirror">SPAM #跟着习大大去美国# //@LifeTime:今天…</a>
-</h2>
-<p>SPAM #跟着习大大去美国# //@LifeTime:今天纽约群众自发。 //@satingwoo沙丁鱼:群众自发的?<br><br>RE: 包总走下灰机，群众已等不急了。<br><img src="http://ww1.sinaimg.cn/large/dd816182gw1ewe9cr9qh8j20r90i60vx.jpg"></p>
-<p>
-	<small> ============== 10小时前</small>
 </p>
 <table>
     <tr>
