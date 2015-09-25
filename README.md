@@ -30,7 +30,7 @@
 </h2>
 <p>SPAM 那么拼命，习大大会看吗？<br><br>RE: 今天的纽约时报和昨天一样，头版依然给了教皇。。。然而被内页惊到了。。。给茅台，加多宝，凯迪生态，保利地产和格力跪了。。。<br><img src="http://ww1.sinaimg.cn/large/64923b0dgw1ewe4t893bwj218g0x7aq9.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3890959421057794" target="freeweibo-mirror">习主席身边的包装团队没有跨入现代门坎，甚至比不上封建时代的大…</a>
 </h2>
