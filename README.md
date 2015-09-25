@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3890888378210018" target="freeweibo-mirror">[笑cry] //@简直:好东西当然留给自己人</a>
+</h2>
+<p>[笑cry] //@简直:好东西当然留给自己人</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3890843658484772" target="freeweibo-mirror">SPAM #跟着习大大去美国# //@LifeTime:今天…</a>
 </h2>
 <p>SPAM #跟着习大大去美国# //@LifeTime:今天纽约群众自发。 //@satingwoo沙丁鱼:群众自发的?<br><br>RE: 包总走下灰机，群众已等不急了。<br><img src="http://ww1.sinaimg.cn/large/dd816182gw1ewe9cr9qh8j20r90i60vx.jpg"></p>
@@ -78,7 +84,7 @@
 </h2>
 <p>这让那些骂@袁腾飞 老师的五毛小粉红们情何以堪啊[哈哈]</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3890727900139022" target="freeweibo-mirror">看到@共青湖南 带@任志强 重温入党誓词，想知道8000万党…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3890702402206952" target="freeweibo-mirror">//@贪官多11世:公有制你麻辣隔壁 //@转战江淮V:→_…</a>
 </h2>
 <p>//@贪官多11世:公有制你麻辣隔壁 //@转战江淮V:→_→//@沉默蓝天TX:→_→//@老犯错GGG: 滚你妈的公有制，80年前就是公有制，差点把你爹我饿死，共产党的狗们缺的就是智商，共青团是纳粹发明的知道不？<br><br>RE: 【警惕任志强的诡辩术】潘任美透支了房奴们的钱包，还要接着透支房奴们的智商。正是任志强传销的私有制加市场经济导致了贫富悬殊，但他却告诉我们公有制加计划经济已经失败，通过私有制加市场经济实现共同富裕。他跟所有的公知一样，把造成问题的原因说成是解决问题的出路。@共青团中央<br><img src="http://ww1.sinaimg.cn/large/81def7cagw1ewdhh0edjpj20hs7xnqv5.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3890697305904116" target="freeweibo-mirror">这钱真好赚 //@天涯烟火:这个比五毛贵啊，两小时三百。而且…</a>
-</h2>
-<p>这钱真好赚 //@天涯烟火:这个比五毛贵啊，两小时三百。而且还不用骂人！ //@水兵李铭:GDP第二的财主<br><br>RE: 看图<br><img src="http://ww3.sinaimg.cn/large/64429cefjw1ewd9owk5puj20p70bw0v0.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
