@@ -68,11 +68,23 @@
 <p>
 	<small> ============== 6小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3890834120063407" target="freeweibo-mirror">很惭愧，来美国已经19年，竟然不了解Thomas Paine…</a>
+</h2>
+<p>很惭愧，来美国已经19年，竟然不了解Thomas Paine，多亏习主席博学，才让我有机会认真学习一下潘恩的两句名言:“爱国者的责任就是保护国家不受政府侵犯。”“思想上的谎言在社会里所产生的道德损害，是无法计算的；当一个人腐化到宣扬他自己都不相信的东西，他已经做好了做一切坏事的准备！”<br><img src="http://ww1.sinaimg.cn/large/be2e7b60gw1ewe98hnsnyj20fa0clt9q.jpg"></p>
+<p>
+	<small> ============== 7小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3890773663470847" target="freeweibo-mirror">//@瓦全张明家://@冯师长:这次党大还是法大？[笑cry…</a>
 </h2>
 <p>//@瓦全张明家://@冯师长:这次党大还是法大？[笑cry]<br><br>RE: 区别！两个首脑同一天抵达美国。一个通过上千万干部领导13亿人， 一个通过41万神父领导12亿人。一个中央委员有205人， 另一个红衣主教团有114人。一个到达时地方官员在机场迎候，一个在机场受到总统全家和副总统夫妇迎接（罕见！）。共产党与天主教！谁更重要一目了然，你信或者不信，事实就在那里！<br><img src="http://ww4.sinaimg.cn/large/422323bfjw1ewc7wvnzv7j24002kcu0y.jpg"></p>
 <p>
 	<small> ============== 11小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3890764750675531" target="freeweibo-mirror">#亚蒙看天下#【纽约时报的中国企业广告】中国企业跑到美国去做…</a>
+</h2>
+<p>#亚蒙看天下#【纽约时报的中国企业广告】中国企业跑到美国去做广告欢迎中国领导人访问美国？逻辑不通啊？世界上还有比这更傻、更丢人的广告吗！[哈哈][哈哈][哈哈]<br><img src="http://ww3.sinaimg.cn/large/681521d1jw1ewe15mshf2j20k00qogob.jpg"></p>
+<p>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3890733960402831" target="freeweibo-mirror">湖南团委书记是谁呀？真希望他能公开财产？</a>
 </h2>
@@ -125,18 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3890727900139022" target="freeweibo-mirror">看到@共青湖南 带@任志强 重温入党誓词，想知道8000万党…</a>
 </h2>
 <p>看到@共青湖南 带@任志强 重温入党誓词，想知道8000万党员中有多少能做到宣誓的这些？<br><img src="http://ww2.sinaimg.cn/large/656952ecjw1ewdx1d03ovj20fa0efjww.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3890727874173907" target="freeweibo-mirror">//@夸夸奇谭://@任志强: 领导说：你大人大量。别跟流氓…</a>
-</h2>
-<p>//@夸夸奇谭://@任志强: 领导说：你大人大量。别跟流氓一般见识。[哈哈] //@米家那个山:什么都不懂，阵脚全乱的，可悲！//@五岳散人: 华远地产是国企。您的意思是政府加上国企洗劫了老百姓？<br><br>RE: 【警惕任志强的诡辩术】潘任美透支了房奴们的钱包，还要接着透支房奴们的智商。正是任志强传销的私有制加市场经济导致了贫富悬殊，但他却告诉我们公有制加计划经济已经失败，通过私有制加市场经济实现共同富裕。他跟所有的公知一样，把造成问题的原因说成是解决问题的出路。@共青团中央<br><img src="http://ww1.sinaimg.cn/large/81def7cagw1ewdhh0edjpj20hs7xnqv5.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3890727589747375" target="freeweibo-mirror">谁是任总的领导？有奖竟猜。 //@任志强:领导说：你大人大量…</a>
-</h2>
-<p>谁是任总的领导？有奖竟猜。 //@任志强:领导说：你大人大量。别跟流氓一般见识。[哈哈] //@米家那个山:什么都不懂，阵脚全乱的，可悲！//@五岳散人: 华远地产是国企。您的意思是政府加上国企洗劫了老百姓？<br><br>RE: 【警惕任志强的诡辩术】潘任美透支了房奴们的钱包，还要接着透支房奴们的智商。正是任志强传销的私有制加市场经济导致了贫富悬殊，但他却告诉我们公有制加计划经济已经失败，通过私有制加市场经济实现共同富裕。他跟所有的公知一样，把造成问题的原因说成是解决问题的出路。@共青团中央<br><img src="http://ww1.sinaimg.cn/large/81def7cagw1ewdhh0edjpj20hs7xnqv5.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
