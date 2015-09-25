@@ -78,7 +78,7 @@
 </h2>
 <p>SPAM 实力追星。以后不买个报纸的整版来告白，都不好意思说自己是追星的。<br><br>RE: 今天的纽约时报和昨天一样，头版依然给了教皇。。。然而被内页惊到了。。。给茅台，加多宝，凯迪生态，保利地产和格力跪了。。。<br><img src="http://ww1.sinaimg.cn/large/64923b0dgw1ewe4t893bwj218g0x7aq9.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3890939363958286" target="freeweibo-mirror">SPAM 壕气万千……//@立誓成妖: 哈哈哈哈哈哈哈哈哈哈…</a>
 </h2>
