@@ -24,7 +24,7 @@
 </h2>
 <p>SPAM #跟着习大大去美国# //@LifeTime:今天纽约群众自发。 //@satingwoo沙丁鱼:群众自发的?<br><br>RE: 包总走下灰机，群众已等不急了。<br><img src="http://ww1.sinaimg.cn/large/dd816182gw1ewe9cr9qh8j20r90i60vx.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3890773663470847" target="freeweibo-mirror">//@瓦全张明家://@冯师长:这次党大还是法大？[笑cry…</a>
 </h2>
@@ -114,7 +114,7 @@
 </h2>
 <p>//@北京海淀区前沙涧村金实: //@野靖春9://@愚-言:[哈哈]→_→//@咨政议员:一会儿是国外敌对势力，一会儿是友好国家，严重的患精神分裂症。<br><br>RE: 【这是境外敌对势力吗？：中美竟是如此友好！】中国31个省区市同美国50个州建立了43对友好省州、200对友好城市。过去10年，美国42个州对华出口增幅达到3位数。据美方统计，中国过去5年对美投资年均超过80多亿美元，增速还在加快。（习近平）<br><img src="http://ww3.sinaimg.cn/large/41693645gw1ewdeyd477lj20yi124tgv.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3890710241368054" target="freeweibo-mirror">“除了……习近平还给林肯高中送去图书，有《红楼梦》，莫言、冰…</a>
 </h2>
