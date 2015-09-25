@@ -72,23 +72,29 @@
 </h2>
 <p>SPAM 老杜太猛，憾山动地！<br><br>RE: 任志强恶行累累、劣迹斑斑，路人皆知，为何却又如此嚣张？有恃才能无恐。《任志强的后台是谁呢？》<br><img src="http://ww2.sinaimg.cn/large/4a8ce83ajw1ewdg8i6vl1j20c810f7al.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3890908380404153" target="freeweibo-mirror">@杜建国微博 长微博称任志强恶行累累、劣迹斑斑，矛头直指老王…</a>
 </h2>
 <p>@杜建国微博 长微博称任志强恶行累累、劣迹斑斑，矛头直指老王。【润良问一声，这位姓杜的后台又是谁呢？支持律师介入！】<br><img src="http://ww4.sinaimg.cn/large/63142687gw1ewehr2mtz0j20c810fdm5.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3890908195687190" target="freeweibo-mirror">SPAM 现在我们需要你这样的养蜂人，为良知点赞，帮转[赞]</a>
 </h2>
 <p>SPAM 现在我们需要你这样的养蜂人，为良知点赞，帮转[赞]</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3890905629376233" target="freeweibo-mirror">SPAM 萱萱威武 //@王天定:纽约时报上的中文广告，是登…</a>
 </h2>
 <p>SPAM 萱萱威武 //@王天定:纽约时报上的中文广告，是登给谁看的？//@enclavetj: Repost</p>
+<p>
+	<small> ============== 6小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3890900876691417" target="freeweibo-mirror">明天中共總書記習近平將訪問我們首都，不過美國新聞博物館知道習…</a>
+</h2>
+<p>明天中共總書記習近平將訪問我們首都，不過美國新聞博物館知道習不懂英語，特意用中文書寫標語，懸掛市區歡迎習對首都的訪問。看清楚了，不是華人幹的。<br><img src="http://ww2.sinaimg.cn/large/a380a663jw1ewegtguq96j20ic0ab40d.jpg"></p>
 <p>
 	<small> ============== 6小时前</small>
 </p><h2>
@@ -108,7 +114,7 @@
 </h2>
 <p>转发：美国时间昨天和前天，美国只有PBS台以极短的时间，且在报道教皇访问之后简单报道了习扺西雅图及发表关于中美联合共同打击网络犯罪的讲话的消息，其他各大新闻台未见关于习访问的报道。这就是现实！一味妥协、讨好美国只会自取其辱！</p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3890888378210018" target="freeweibo-mirror">[笑cry] //@简直:好东西当然留给自己人</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3890843658484772" target="freeweibo-mirror">SPAM #跟着习大大去美国# //@LifeTime:今天…</a>
 </h2>
 <p>SPAM #跟着习大大去美国# //@LifeTime:今天纽约群众自发。 //@satingwoo沙丁鱼:群众自发的?<br><br>RE: 包总走下灰机，群众已等不急了。<br><img src="http://ww1.sinaimg.cn/large/dd816182gw1ewe9cr9qh8j20r90i60vx.jpg"></p>
-<p>
-	<small> ============== 10小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3890834120063407" target="freeweibo-mirror">很惭愧，来美国已经19年，竟然不了解Thomas Paine…</a>
-</h2>
-<p>很惭愧，来美国已经19年，竟然不了解Thomas Paine，多亏习主席博学，才让我有机会认真学习一下潘恩的两句名言:“爱国者的责任就是保护国家不受政府侵犯。”“思想上的谎言在社会里所产生的道德损害，是无法计算的；当一个人腐化到宣扬他自己都不相信的东西，他已经做好了做一切坏事的准备！”<br><img src="http://ww1.sinaimg.cn/large/be2e7b60gw1ewe98hnsnyj20fa0clt9q.jpg"></p>
 <p>
 	<small> ============== 10小时前</small>
 </p>
