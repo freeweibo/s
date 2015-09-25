@@ -24,7 +24,7 @@
 </h2>
 <p>SPAM 有钱任性[doge]<br><br>RE: 今天的纽约时报和昨天一样，头版依然给了教皇。。。然而被内页惊到了。。。给茅台，加多宝，凯迪生态，保利地产和格力跪了。。。<br><img src="http://ww1.sinaimg.cn/large/64923b0dgw1ewe4t893bwj218g0x7aq9.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3890963077957381" target="freeweibo-mirror">SPAM 那么拼命，习大大会看吗？</a>
 </h2>
@@ -90,7 +90,7 @@
 </h2>
 <p>人家皮糙肉厚不在乎//@胖子0641: [哈哈]//@鲁壁藏书:友情提示：应该用简体字！//@Thomas程5: //@remarker的空间://@ytdream69:转发微博<br><br>RE: 明天中共總書記習近平將訪問我們首都，不過美國新聞博物館知道習不懂英語，特意用中文書寫標語，懸掛市區歡迎習對首都的訪問。看清楚了，不是華人幹的。<br><img src="http://ww2.sinaimg.cn/large/a380a663jw1ewegtguq96j20ic0ab40d.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3890936717234240" target="freeweibo-mirror">#玩出花样 活出自己#不是天生神力，而是后天努力！快加满能量…</a>
 </h2>
