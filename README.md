@@ -66,7 +66,7 @@
 </h2>
 <p>习主席的包装团队没有跨入现代门坎，甚至比不上封建时代的大臣。中国古代强调“君臣父子”，“君”与“父”分得清清楚楚，绝不会把君主包装成“大大”，反而到了社会主义新中国，官方喊出了“爹亲娘亲不如毛主席亲”，官方媒体称领袖为“大大”，不仅背离了现代政治文明，而且完全违反了人类天伦。</p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3890963077957381" target="freeweibo-mirror">SPAM 那么拼命，习大大会看吗？</a>
 </h2>
@@ -96,13 +96,13 @@
 </h2>
 <p>SPAM 哈哈哈哈哈有钱任性//@凌家阿空爱吃糖: 我要你知道纽约时报都被我们包了[笑cry]//@律韬: 有钱任性//@易爻_叉子: [吃惊]//@魔法少女狗剩剩: 有钱太可怕了[笑cry] //@阿全力兔子:实际追星 //@据可靠人士透露: 有钱任性 //@小鸟大王-:哈哈哈哈哈阔气 //@ACE星:哈哈哈就是如此任性，商家给大boss充脸面呢<br><br>RE: 今天的纽约时报和昨天一样，头版依然给了教皇。。。然而被内页惊到了。。。给茅台，加多宝，凯迪生态，保利地产和格力跪了。。。<br><img src="http://ww1.sinaimg.cn/large/64923b0dgw1ewe4t893bwj218g0x7aq9.jpg"></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3890948687646600" target="freeweibo-mirror">SPAM #玩出花样 活出自己#【能量橙】奔跑吧，能量“晨”…</a>
 </h2>
 <p>SPAM #玩出花样 活出自己#【能量橙】奔跑吧，能量“晨”！如同暖系的橙色，温暖阳光向上！<br><br>RE: #玩出花样 活出自己#不是天生神力，而是后天努力！快加满能量橙！@波司登_BOSIDENG<br><img src="http://ww3.sinaimg.cn/large/4b0dc518gw1ewel0qysv0j20et0m8wgd.jpg"></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3890945915155088" target="freeweibo-mirror">SPAM 教皇</a>
 </h2>
