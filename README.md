@@ -30,7 +30,7 @@
 </h2>
 <p>SPAM 那么拼命，习大大会看吗？<br><br>RE: 今天的纽约时报和昨天一样，头版依然给了教皇。。。然而被内页惊到了。。。给茅台，加多宝，凯迪生态，保利地产和格力跪了。。。<br><img src="http://ww1.sinaimg.cn/large/64923b0dgw1ewe4t893bwj218g0x7aq9.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3890959421057794" target="freeweibo-mirror">习主席身边的包装团队没有跨入现代门坎，甚至比不上封建时代的大…</a>
 </h2>
@@ -65,6 +65,12 @@
 	<a href="https://freeweibo.com/weibo/3890945915155088" target="freeweibo-mirror">SPAM 教皇</a>
 </h2>
 <p>SPAM 教皇<br><br>RE: 今天的纽约时报和昨天一样，头版依然给了教皇。。。然而被内页惊到了。。。给茅台，加多宝，凯迪生态，保利地产和格力跪了。。。<br><img src="http://ww1.sinaimg.cn/large/64923b0dgw1ewe4t893bwj218g0x7aq9.jpg"></p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3890945092786910" target="freeweibo-mirror">信仰与博爱，才能赢得真正的尊敬~</a>
+</h2>
+<p>信仰与博爱，才能赢得真正的尊敬~<br><br>RE: 【教皇访美】美国社会狂热欢迎，主流电视台满屏教皇，国会发表演讲，许多国人看不懂，教皇没有任何订单，手下更无一兵一卒，况且美国又不是天主教为主的国家，但他们忘记的是，在这世界上，比财富、武力更强大的是人性，教皇带来的是宽容和博爱，带来了宗教间的和谐，带来了人世间最需要的真、善、美！<br><img src="http://ww3.sinaimg.cn/large/9154fba0gw1eweimg9t9ij20lt0exdh2.jpg"></p>
 <p>
 	<small> ============== 4小时前</small>
 </p><h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3890900876691417" target="freeweibo-mirror">明天中共總書記習近平將訪問我們首都，不過美國新聞博物館知道習…</a>
 </h2>
 <p>明天中共總書記習近平將訪問我們首都，不過美國新聞博物館知道習不懂英語，特意用中文書寫標語，懸掛市區歡迎習對首都的訪問。看清楚了，不是華人幹的。<br><img src="http://ww2.sinaimg.cn/large/a380a663jw1ewegtguq96j20ic0ab40d.jpg"></p>
-<p>
-	<small> ============== 7小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3890897533956525" target="freeweibo-mirror">一大波深井冰正在赶来。//@傅蔚冈: 麻烦，还记得几年前很多…</a>
-</h2>
-<p>一大波深井冰正在赶来。//@傅蔚冈: 麻烦，还记得几年前很多省市为了节能减排而拉闸限电和停止供暖。<br><br>RE: 扭腰时报刚刚报道，明天X主席将宣布中国会从2017年开始实施碳排放限量和交易等减排措施。对于美国来说，这是个重大消息，因为怀疑气候变化和反对限排碳的政客一直拿中国说事儿，中国不限美国干嘛要自我约束。中国走在前边了，美国还怎么说？这是奥巴马得到的大礼。</p>
 <p>
 	<small> ============== 7小时前</small>
 </p>
