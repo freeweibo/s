@@ -54,7 +54,7 @@
 </h2>
 <p>支持依法抹掉共产主义 //@风中的蒲公英云:转发微博</p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3890949493207311" target="freeweibo-mirror">SPAM 马屁拍的飞起哈哈哈哈哈哈哈//@辣条娘: 亚洲第一…</a>
 </h2>
