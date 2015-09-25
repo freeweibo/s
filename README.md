@@ -44,6 +44,12 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3891088437565836" target="freeweibo-mirror">其实党和国家领导人们还是很喜欢美国的。允许妖魔化美国是一种政…</a>
+</h2>
+<p>其实党和国家领导人们还是很喜欢美国的。允许妖魔化美国是一种政治需要。有一个外敌（不管是真实的还是假想的）能让民众团结在自己周围。</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3891087385539232" target="freeweibo-mirror">//@广州城堡堡主:报告首长，百团大战有一个团可能叛变了，现…</a>
 </h2>
 <p>//@广州城堡堡主:报告首长，百团大战有一个团可能叛变了，现在和敌人站在一起[抓狂][抓狂]<br><br>RE: 【微博动态】这……请问该班同学，你们真看懂了上级组织的态度了吗[汗]<br><img src="http://ww2.sinaimg.cn/large/61e04755jw1ewez1irgjcj20yi11yqct.jpg"></p>
@@ -133,12 +139,6 @@
 <p>#访族呼声#习大大访美，受到了爱国访民的热烈欢迎！大家纷纷表示“还我财产，还我家园”<br><img src="http://ww3.sinaimg.cn/large/4c35595fjw1ewerri8m5ij20hr1rrdmb.jpg"></p>
 <p>
 	<small> ============== 8小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3890967826223213" target="freeweibo-mirror">SPAM 有钱任性[doge]</a>
-</h2>
-<p>SPAM 有钱任性[doge]<br><br>RE: 今天的纽约时报和昨天一样，头版依然给了教皇。。。然而被内页惊到了。。。给茅台，加多宝，凯迪生态，保利地产和格力跪了。。。<br><img src="http://ww1.sinaimg.cn/large/64923b0dgw1ewe4t893bwj218g0x7aq9.jpg"></p>
-<p>
-	<small> ============== 10小时前</small>
 </p>
 <table>
     <tr>
