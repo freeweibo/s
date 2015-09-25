@@ -60,7 +60,7 @@
 </h2>
 <p>其实党和国家领导人们还是很喜欢美国的。允许妖魔化美国是一种政治需要。有一个外敌（不管是真实的还是假想的）能让民众团结在自己周围。</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3891087385539232" target="freeweibo-mirror">//@广州城堡堡主:报告首长，百团大战有一个团可能叛变了，现…</a>
 </h2>
@@ -102,7 +102,7 @@
 </h2>
 <p>[哈哈] //@诸子百家之一:小童鞋[哈哈][哈哈]<br><br>RE: 【微博动态】这……请问该班同学，你们真看懂了上级组织的态度了吗[汗]<br><img src="http://ww2.sinaimg.cn/large/61e04755jw1ewez1irgjcj20yi11yqct.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3891065474285260" target="freeweibo-mirror">伟人习总智商超群，胸怀宇宙，但送袁腾飞的书给美国中学生，以我…</a>
 </h2>
@@ -120,7 +120,7 @@
 </h2>
 <p>【微博动态】这……请问该班同学，你们真看懂了上级组织的态度了吗[汗]<br><img src="http://ww2.sinaimg.cn/large/61e04755jw1ewez1irgjcj20yi11yqct.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3891047208251783" target="freeweibo-mirror">SPAM [哈哈]这叫忍辱负重着眼大局！//@松川寄语: […</a>
 </h2>
