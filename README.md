@@ -132,7 +132,7 @@
 </h2>
 <p>这钱真好赚 //@天涯烟火:这个比五毛贵啊，两小时三百。而且还不用骂人！ //@水兵李铭:GDP第二的财主<br><br>RE: 看图<br><img src="http://ww3.sinaimg.cn/large/64429cefjw1ewd9owk5puj20p70bw0v0.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3890693359667531" target="freeweibo-mirror">//@柳华芳:我晕，共青团官微//@马海平:围观//@李铁军…</a>
 </h2>
