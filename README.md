@@ -50,9 +50,21 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3891065474285260" target="freeweibo-mirror">伟人习总智商超群，胸怀宇宙，但送袁腾飞的书给美国中学生，以我…</a>
+</h2>
+<p>伟人习总智商超群，胸怀宇宙，但送袁腾飞的书给美国中学生，以我的智商还是不能理解伟人战略思路：袁的言论：毛纪念堂那是靖国神社，里面供奉的是一个双手沾满人民鲜血的刽子手。天安门广场我是从来不去，我开车从那里经过都鸡皮疙瘩，四千多万冤魂索命啊，太可怕了，那个地方就应该改成大屠杀纪念馆，</p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3891062147406225" target="freeweibo-mirror">SPAM 看开头觉得磨磨唧唧的装小女孩骗人好无聊，看到后面游…</a>
 </h2>
 <p>SPAM 看开头觉得磨磨唧唧的装小女孩骗人好无聊，看到后面游戏部分惊了… //@霜叶不活跃:卧槽 //@我妻十娃:好可怕…… //@装甲战兔:恋童癖就该阉割了！ //@火狼:我靠，太恐怖了……</p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3891058804726715" target="freeweibo-mirror">【微博动态】这……请问该班同学，你们真看懂了上级组织的态度了…</a>
+</h2>
+<p>【微博动态】这……请问该班同学，你们真看懂了上级组织的态度了吗[汗]<br><img src="http://ww2.sinaimg.cn/large/61e04755jw1ewez1irgjcj20yi11yqct.jpg"></p>
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
@@ -125,18 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3890949425780992" target="freeweibo-mirror">SPAM 哈哈哈哈哈有钱任性//@凌家阿空爱吃糖: 我要你知…</a>
 </h2>
 <p>SPAM 哈哈哈哈哈有钱任性//@凌家阿空爱吃糖: 我要你知道纽约时报都被我们包了[笑cry]//@律韬: 有钱任性//@易爻_叉子: [吃惊]//@魔法少女狗剩剩: 有钱太可怕了[笑cry] //@阿全力兔子:实际追星 //@据可靠人士透露: 有钱任性 //@小鸟大王-:哈哈哈哈哈阔气 //@ACE星:哈哈哈就是如此任性，商家给大boss充脸面呢<br><br>RE: 今天的纽约时报和昨天一样，头版依然给了教皇。。。然而被内页惊到了。。。给茅台，加多宝，凯迪生态，保利地产和格力跪了。。。<br><img src="http://ww1.sinaimg.cn/large/64923b0dgw1ewe4t893bwj218g0x7aq9.jpg"></p>
-<p>
-	<small> ============== 10小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3890948687646600" target="freeweibo-mirror">SPAM #玩出花样 活出自己#【能量橙】奔跑吧，能量“晨”…</a>
-</h2>
-<p>SPAM #玩出花样 活出自己#【能量橙】奔跑吧，能量“晨”！如同暖系的橙色，温暖阳光向上！<br><br>RE: #玩出花样 活出自己#不是天生神力，而是后天努力！快加满能量橙！@波司登_BOSIDENG<br><img src="http://ww3.sinaimg.cn/large/4b0dc518gw1ewel0qysv0j20et0m8wgd.jpg"></p>
-<p>
-	<small> ============== 10小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3890945915155088" target="freeweibo-mirror">SPAM 教皇</a>
-</h2>
-<p>SPAM 教皇<br><br>RE: 今天的纽约时报和昨天一样，头版依然给了教皇。。。然而被内页惊到了。。。给茅台，加多宝，凯迪生态，保利地产和格力跪了。。。<br><img src="http://ww1.sinaimg.cn/large/64923b0dgw1ewe4t893bwj218g0x7aq9.jpg"></p>
 <p>
 	<small> ============== 10小时前</small>
 </p>
