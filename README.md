@@ -20,6 +20,18 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3890967826223213" target="freeweibo-mirror">SPAM 有钱任性[doge]</a>
+</h2>
+<p>SPAM 有钱任性[doge]<br><br>RE: 今天的纽约时报和昨天一样，头版依然给了教皇。。。然而被内页惊到了。。。给茅台，加多宝，凯迪生态，保利地产和格力跪了。。。<br><img src="http://ww1.sinaimg.cn/large/64923b0dgw1ewe4t893bwj218g0x7aq9.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3890963077957381" target="freeweibo-mirror">SPAM 那么拼命，习大大会看吗？</a>
+</h2>
+<p>SPAM 那么拼命，习大大会看吗？<br><br>RE: 今天的纽约时报和昨天一样，头版依然给了教皇。。。然而被内页惊到了。。。给茅台，加多宝，凯迪生态，保利地产和格力跪了。。。<br><img src="http://ww1.sinaimg.cn/large/64923b0dgw1ewe4t893bwj218g0x7aq9.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3890959421057794" target="freeweibo-mirror">习主席身边的包装团队没有跨入现代门坎，甚至比不上封建时代的大…</a>
 </h2>
 <p>习主席身边的包装团队没有跨入现代门坎，甚至比不上封建时代的大臣。中国古代强调“君君臣臣父父子子”，“君”与“父”分得清清楚楚，绝不会把君主包装成“大大”，反而到了社会主义新中国，官方喊出了“爹亲娘亲不如毛主席亲”，官方媒体称领袖为“大大”，不仅背离现代政治文明，而且全违反了天伦。</p>
@@ -125,18 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3890764750675531" target="freeweibo-mirror">#亚蒙看天下#【纽约时报的中国企业广告】中国企业跑到美国去做…</a>
 </h2>
 <p>#亚蒙看天下#【纽约时报的中国企业广告】中国企业跑到美国去做广告欢迎中国领导人访问美国？逻辑不通啊？世界上还有比这更傻、更丢人的广告吗！[哈哈][哈哈][哈哈]<br><img src="http://ww3.sinaimg.cn/large/681521d1jw1ewe15mshf2j20k00qogob.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3890733960402831" target="freeweibo-mirror">湖南团委书记是谁呀？真希望他能公开财产？</a>
-</h2>
-<p>湖南团委书记是谁呀？真希望他能公开财产？</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3890733524340555" target="freeweibo-mirror">//@邓树林律师:为什么那么多领导做不到？//@徐昕: “为…</a>
-</h2>
-<p>//@邓树林律师:为什么那么多领导做不到？//@徐昕: “为共产主义奋斗终身，随时准备为党和人民牺牲一切，永不叛党 ”，咱不要求你们牺牲一切，先实行官员财产公开行不？</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
