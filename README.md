@@ -24,7 +24,7 @@
 </h2>
 <p>SPAM 老杜太猛，憾山动地！<br><br>RE: 任志强恶行累累、劣迹斑斑，路人皆知，为何却又如此嚣张？有恃才能无恐。《任志强的后台是谁呢？》<br><img src="http://ww2.sinaimg.cn/large/4a8ce83ajw1ewdg8i6vl1j20c810f7al.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3890905629376233" target="freeweibo-mirror">SPAM 萱萱威武 //@王天定:纽约时报上的中文广告，是登…</a>
 </h2>
