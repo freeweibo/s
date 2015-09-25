@@ -84,7 +84,7 @@
 </h2>
 <p>SPAM 壕气万千……//@立誓成妖: 哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈//@老梅梅梅://@宇宙时代的阿涟莲: //@菖蒲君_牛奶莫吉托:[笑cry][笑cry][笑cry][笑cry][笑cry] //@imfleur:[笑cry][笑cry][笑cry] //@失血过多的雯子:。。。。。。//@塞北羽山:我在火车上笑出了声//@YC-抖M属性没救了:[笑cry]<br><br>RE: 今天的纽约时报和昨天一样，头版依然给了教皇。。。然而被内页惊到了。。。给茅台，加多宝，凯迪生态，保利地产和格力跪了。。。<br><img src="http://ww1.sinaimg.cn/large/64923b0dgw1ewe4t893bwj218g0x7aq9.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3890937342493243" target="freeweibo-mirror">人家皮糙肉厚不在乎//@胖子0641: [哈哈]//@鲁壁藏…</a>
 </h2>
@@ -110,33 +110,33 @@
 <p>
 	<small> ============== 5小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3890918384064466" target="freeweibo-mirror">【教皇访美】美国社会狂热欢迎，主流电视台满屏教皇，国会发表演…</a>
+</h2>
+<p>【教皇访美】美国社会狂热欢迎，主流电视台满屏教皇，国会发表演讲，许多国人看不懂，教皇没有任何订单，手下更无一兵一卒，况且美国又不是天主教为主的国家，但他们忘记的是，在这世界上，比财富、武力更强大的是人性，教皇带来的是宽容和博爱，带来了宗教间的和谐，带来了人世间最需要的真、善、美！<br><img src="http://ww3.sinaimg.cn/large/9154fba0gw1eweimg9t9ij20lt0exdh2.jpg"></p>
+<p>
+	<small> ============== 6小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3890908863226362" target="freeweibo-mirror">SPAM 老杜太猛，憾山动地！</a>
 </h2>
 <p>SPAM 老杜太猛，憾山动地！<br><br>RE: 任志强恶行累累、劣迹斑斑，路人皆知，为何却又如此嚣张？有恃才能无恐。《任志强的后台是谁呢？》<br><img src="http://ww2.sinaimg.cn/large/4a8ce83ajw1ewdg8i6vl1j20c810f7al.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3890908380404153" target="freeweibo-mirror">@杜建国微博 长微博称任志强恶行累累、劣迹斑斑，矛头直指老王…</a>
 </h2>
 <p>@杜建国微博 长微博称任志强恶行累累、劣迹斑斑，矛头直指老王。【润良问一声，这位姓杜的后台又是谁呢？支持律师介入！】<br><img src="http://ww4.sinaimg.cn/large/63142687gw1ewehr2mtz0j20c810fdm5.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3890908195687190" target="freeweibo-mirror">SPAM 现在我们需要你这样的养蜂人，为良知点赞，帮转[赞]</a>
 </h2>
 <p>SPAM 现在我们需要你这样的养蜂人，为良知点赞，帮转[赞]</p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3890905629376233" target="freeweibo-mirror">SPAM 萱萱威武 //@王天定:纽约时报上的中文广告，是登…</a>
 </h2>
 <p>SPAM 萱萱威武 //@王天定:纽约时报上的中文广告，是登给谁看的？//@enclavetj: Repost</p>
-<p>
-	<small> ============== 7小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3890900876691417" target="freeweibo-mirror">明天中共總書記習近平將訪問我們首都，不過美國新聞博物館知道習…</a>
-</h2>
-<p>明天中共總書記習近平將訪問我們首都，不過美國新聞博物館知道習不懂英語，特意用中文書寫標語，懸掛市區歡迎習對首都的訪問。看清楚了，不是華人幹的。<br><img src="http://ww2.sinaimg.cn/large/a380a663jw1ewegtguq96j20ic0ab40d.jpg"></p>
 <p>
 	<small> ============== 7小时前</small>
 </p>
