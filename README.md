@@ -116,6 +116,12 @@
 <p>
 	<small> ============== 4小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3891293354537805" target="freeweibo-mirror">中午去参加美国务院午餐会路上出点状况，来自国内4个省市访民把…</a>
+</h2>
+<p>中午去参加美国务院午餐会路上出点状况，来自国内4个省市访民把车拦下了。只好留下一名高官善后。美国主要媒体还算厚道，并没有公开报道，社交媒体有些报道。都不容易。</p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3891283053339412" target="freeweibo-mirror">「多位人员在美国成功拦车」......车队经过18街与E街交…</a>
 </h2>
 <p>「多位人员在美国成功拦车」......车队经过18街与E街交叉口，当两辆凯迪拉克出现时多位人员冲过去将前面一辆凯迪拉克拦下，北京李焕君和上海葛丽芳钻到后面一辆加长的凯迪拉克的车底下，将车拦截下来......受惊后派秘书接见了这两名拦车人。<br><img src="http://ww2.sinaimg.cn/large/947145fejw1ewfosn8nhoj20g00lcdhr.jpg"></p>
@@ -133,12 +139,6 @@
 <p>同在美國的這些所謂 訪民 真的夠了，居然差點撞上大大的車，在國際場合一點常識沒有，丟臉丟到國外去了！！<br><img src="http://ww1.sinaimg.cn/large/8172c7eegw1ewfmuokkt4j20p018gtbu.jpg"></p>
 <p>
 	<small> ============== 6小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3891258278090771" target="freeweibo-mirror">尽管Facekook在中国境内仍然被屏蔽，但这并不妨碍习近平…</a>
-</h2>
-<p>尽管Facekook在中国境内仍然被屏蔽，但这并不妨碍习近平拥有自己的一个Facebook主页。请问有司，我想去给总书记点赞，咋办？<br><img src="http://ww4.sinaimg.cn/large/0063f1begw1ewflxyi4ksj30c806kt9b.jpg"></p>
-<p>
-	<small> ============== 7小时前</small>
 </p>
 <table>
     <tr>
