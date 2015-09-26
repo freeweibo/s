@@ -60,7 +60,7 @@
 </h2>
 <p>越洋上访为哪般？<br><img src="http://ww3.sinaimg.cn/large/006dBVvigw1ewfw3ro6dnj30hs13f0xt.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3891342750755712" target="freeweibo-mirror">越级上访变异//@何光伟:转发微博</a>
 </h2>
@@ -96,7 +96,7 @@
 </h2>
 <p>SPAM 访民都跑到美国了！ //@胖哥专用: //@刘桂娟:[吃惊]<br><br>RE: 惊扰圣驾，其罪当~<br><img src="http://ww4.sinaimg.cn/large/98c6dd80gw1ewftkfpn0zj20c80lpgof.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3891330557686806" target="freeweibo-mirror">美国人这一手真绝//@叶新Robert:转发微博</a>
 </h2>
