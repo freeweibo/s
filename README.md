@@ -38,6 +38,12 @@
 <p>
 	<small> ============== 1小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3891219400493349" target="freeweibo-mirror">SPAM 必须把共产主义这个邪根彻底挖掉，不然就会有无量的懒…</a>
+</h2>
+<p>SPAM 必须把共产主义这个邪根彻底挖掉，不然就会有无量的懒人恶人要共别人的财产，必须断了他们的念想，国家才会正常起来！</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3891210265544352" target="freeweibo-mirror">SPAM 中美互联网大佬同台亮相了。何谓互联网精神?民主，平…</a>
 </h2>
 <p>SPAM 中美互联网大佬同台亮相了。何谓互联网精神?民主，平等，共享，迭代，核心是平等，去中心化。这些元素，谷歌有，苹果有，比尔盖茨有；但马云没有，马化腾没有，李彦宏也没有。在中国互联网巨头身上，这些互联网精神荡然无存！除了钱多，一文不值。所以，用不着为全球十大互联网公司中国占了一半而自豪<br><img src="http://ww4.sinaimg.cn/large/005SvoAtgw1ewfgfh2e6qj30hs09ygnl.jpg"></p>
@@ -133,12 +139,6 @@
 <p>//@媒体人杨清林:看反了[哈哈] //@浩正刘臻:财经网太坏了[笑cry] //@大藏布:[哈哈]//@文山娃: 噗。<br><br>RE: 【微博动态】这……请问该班同学，你们真看懂了上级组织的态度了吗[汗]<br><img src="http://ww2.sinaimg.cn/large/61e04755jw1ewez1irgjcj20yi11yqct.jpg"></p>
 <p>
 	<small> ============== 10小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3891081244204864" target="freeweibo-mirror">SPAM @马千里Jacky @张斌Optimize @兜小…</a>
-</h2>
-<p>SPAM @马千里Jacky @张斌Optimize @兜小麦小兜小  //@最神奇的视频:我只看了二十遍 呵呵~<br><br>RE: #女主播时间#性感诱惑、极品36F温泉洗浴。[色]出水芙蓉http://t.cn/RLDRo8i</p>
-<p>
-	<small> ============== 11小时前</small>
 </p>
 <table>
     <tr>
