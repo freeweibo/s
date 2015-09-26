@@ -32,6 +32,24 @@
 <p>
 	<small> ============== 1小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3891330557686806" target="freeweibo-mirror">美国人这一手真绝//@叶新Robert:转发微博</a>
+</h2>
+<p>美国人这一手真绝//@叶新Robert:转发微博<br><br>RE: 惊扰圣驾，其罪当~<br><img src="http://ww4.sinaimg.cn/large/98c6dd80gw1ewftkfpn0zj20c80lpgof.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3891330465690902" target="freeweibo-mirror">9月25下午1点多，车队驶出，李冲破警察封锁线，冲进车队，躺…</a>
+</h2>
+<p>9月25下午1点多，车队驶出，李冲破警察封锁线，冲进车队，躺倒车下，震惊一行大小官员。慌乱不已的美国安保警察数人冲上去，将她从车下扯出来，抬到了马路边。<br><br>RE: 「多位人员在美国成功拦车」......车队经过18街与E街交叉口，当两辆凯迪拉克出现时多位人员冲过去将前面一辆凯迪拉克拦下，北京李焕君和上海葛丽芳钻到后面一辆加长的凯迪拉克的车底下，将车拦截下来......受惊后派秘书接见了这两名拦车人。<br><img src="http://ww2.sinaimg.cn/large/947145fejw1ewfosn8nhoj20g00lcdhr.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3891328829642982" target="freeweibo-mirror">//@傻小子吧:这是美方布置的【适度、可控表达】。//@宵朗…</a>
+</h2>
+<p>//@傻小子吧:这是美方布置的【适度、可控表达】。//@宵朗琦琦:碰瓷比这差远了//@一株草的纪念: 碰瓷这套也用上了 //@兔儿喵喵喵: //@蓉蓉_舍得://@秋乏君://@SH-2015:[阴险]//@Fung-V:故意的//@吐槽鬼:所以不大可能是安保失误,而是美内部有人授意如此 //@王小东:这人叫李焕君截停了习总的车<br><br>RE: 如果这个包里面是炸弹，那么结果不堪设想。这属于美国保卫部门的严重失职。<br><img src="http://ww4.sinaimg.cn/large/75b19183gw1ewfr8diyoqj20hr09sjsl.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3891321913700093" target="freeweibo-mirror">美国负责安保任务的特勤人员一定恨死这个贱货了//@良知在神州…</a>
 </h2>
 <p>美国负责安保任务的特勤人员一定恨死这个贱货了//@良知在神州01:美国是故意的@美国驻华大使馆<br><br>RE: 如果这个包里面是炸弹，那么结果不堪设想。这属于美国保卫部门的严重失职。<br><img src="http://ww4.sinaimg.cn/large/75b19183gw1ewfr8diyoqj20hr09sjsl.jpg"></p>
@@ -90,7 +108,7 @@
 </h2>
 <p>同在美國的這些所謂 訪民 真的夠了，居然差點撞上大大的車，在國際場合一點常識沒有，丟臉丟到國外去了！！<br><img src="http://ww1.sinaimg.cn/large/8172c7eegw1ewfmuokkt4j20p018gtbu.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3891258278090771" target="freeweibo-mirror">尽管Facekook在中国境内仍然被屏蔽，但这并不妨碍习近平…</a>
 </h2>
@@ -102,7 +120,7 @@
 </h2>
 <p>宗教的力量。<br><br>RE: 习总应该感谢教皇Pope。因为南海、网络安全、中国市场剧烈动荡等问题，中美关系跌入近年低谷。美国政坛批评习总的人士跃跃欲试，尤其是总统候选人们。因为教皇到访，所有媒体全程聚集教皇行程，其他话题根本插不上嘴。不知国内是否理解。</p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3891224257249653" target="freeweibo-mirror">共产主义的危险性，是它建立在以物质基础极其匮乏的时代，目标仍…</a>
 </h2>
@@ -121,24 +139,6 @@
 <p>共产主义作为一种形而上的理论是可以探讨的，但是作为一种行动纲领则现阶段有害而无益，此为学术看法，勿喷//@陶然万柳世界: //@山高路远N://@刘建伟_微博:为了接班，不遗余力。//@针砭客: 有任务安排的 不然不会这么统一纷纷跳出来 每一次都利用年轻人 老套路 无创意 差评 滚粗级</p>
 <p>
 	<small> ============== 8小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3891219400493349" target="freeweibo-mirror">SPAM 必须把共产主义这个邪根彻底挖掉，不然就会有无量的懒…</a>
-</h2>
-<p>SPAM 必须把共产主义这个邪根彻底挖掉，不然就会有无量的懒人恶人要共别人的财产，必须断了他们的念想，国家才会正常起来！</p>
-<p>
-	<small> ============== 9小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3891210265544352" target="freeweibo-mirror">SPAM 中美互联网大佬同台亮相了。何谓互联网精神?民主，平…</a>
-</h2>
-<p>SPAM 中美互联网大佬同台亮相了。何谓互联网精神?民主，平等，共享，迭代，核心是平等，去中心化。这些元素，谷歌有，苹果有，比尔盖茨有；但马云没有，马化腾没有，李彦宏也没有。在中国互联网巨头身上，这些互联网精神荡然无存！除了钱多，一文不值。所以，用不着为全球十大互联网公司中国占了一半而自豪<br><img src="http://ww4.sinaimg.cn/large/005SvoAtgw1ewfgfh2e6qj30hs09ygnl.jpg"></p>
-<p>
-	<small> ============== 9小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3891189529155952" target="freeweibo-mirror">啊哈哈哈哈哈哈，围脖上骂你两句就要“保留诉诸法律的权利，等不…</a>
-</h2>
-<p>啊哈哈哈哈哈哈，围脖上骂你两句就要“保留诉诸法律的权利，等不到道歉，我们绝不姑息”。罗老师赶紧出山吧，被包养的婊子最近又痒痒了 [哈哈][哈哈][哈哈]<br><img src="http://ww3.sinaimg.cn/large/bb8b8fbcjw1ewfe0jsssij209a0bq0t5.jpg"></p>
-<p>
-	<small> ============== 11小时前</small>
 </p>
 <table>
     <tr>
