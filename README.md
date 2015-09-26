@@ -26,6 +26,12 @@
 <p>
 	<small> ============== 1小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3891339911880616" target="freeweibo-mirror">什么胃口 //@华胜天://@刘志强律师:据说状子递上去了。…</a>
+</h2>
+<p>什么胃口 //@华胜天://@刘志强律师:据说状子递上去了。 //@喷嚏网铂程:转发微博<br><br>RE: 越国上访<br><img src="http://ww1.sinaimg.cn/large/638bf4e8jw1ewfqy6j26sj20k00b9jsc.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3891338036314222" target="freeweibo-mirror">//@黎勇01: //@崔小平律师: //@干卫东律师:告洋…</a>
 </h2>
 <p>//@黎勇01: //@崔小平律师: //@干卫东律师:告洋状。//@张庭源律师2:拦轿伸冤美国版。 //@邻水四娃子:真有到美国上访的[吃惊] //@伍雷看夹边沟:都不容易啊 //@律师老周401://@笨笨an:转发微博<br><br>RE: 中午去参加美国务院午餐会路上出点状况，来自国内4个省市访民把车拦下了。只好留下一名高官善后。美国主要媒体还算厚道，并没有公开报道，社交媒体有些报道。都不容易。</p>
@@ -72,7 +78,7 @@
 </h2>
 <p>惊扰圣驾，其罪当~<br><img src="http://ww4.sinaimg.cn/large/98c6dd80gw1ewftkfpn0zj20c80lpgof.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3891321913700093" target="freeweibo-mirror">美国负责安保任务的特勤人员一定恨死这个贱货了//@良知在神州…</a>
 </h2>
@@ -83,6 +89,12 @@
 	<a href="https://freeweibo.com/weibo/3891319330096354" target="freeweibo-mirror">//@剑走偏锋Jeffrey: //@写字李华良: //@陈…</a>
 </h2>
 <p>//@剑走偏锋Jeffrey: //@写字李华良: //@陈玉歌:转发微博<br><br>RE: 「多位人员在美国成功拦车」......车队经过18街与E街交叉口，当两辆凯迪拉克出现时多位人员冲过去将前面一辆凯迪拉克拦下，北京李焕君和上海葛丽芳钻到后面一辆加长的凯迪拉克的车底下，将车拦截下来......受惊后派秘书接见了这两名拦车人。<br><img src="http://ww2.sinaimg.cn/large/947145fejw1ewfosn8nhoj20g00lcdhr.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3891317979886751" target="freeweibo-mirror">吹捧式宣传显得很傻，各为自己利益而交往谈判，和商业谈判差不多…</a>
+</h2>
+<p>吹捧式宣传显得很傻，各为自己利益而交往谈判，和商业谈判差不多，搞得跟相亲结婚式的，那眼光能看到啥？<br><br>RE: 【访美媒体宣传战五渣】：1、和美方理性低调相比，大张旗鼓高调舆论狂欢；2、好大喜功定性，什么“历史上从未有过”“开创新纪元”等，不给自己留余地；3、对副总统接机这类惯例性礼节缺少外交常识地过度渲染，好像刘姥姥进大观园；4、没有事先通过宣传打出对己有利的外交先手牌；5、措辞表述各种low。</p>
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
@@ -97,6 +109,12 @@
 <p>让国宾被拦车，美国的安保也太烂了吧？<br><br>RE: 如果这个包里面是炸弹，那么结果不堪设想。这属于美国保卫部门的严重失职。<br><img src="http://ww4.sinaimg.cn/large/75b19183gw1ewfr8diyoqj20hr09sjsl.jpg"></p>
 <p>
 	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3891308349835129" target="freeweibo-mirror">中国拿出去评奖的影片大多都是讲中国穷、愚昧、同性恋、文革这种…</a>
+</h2>
+<p>中国拿出去评奖的影片大多都是讲中国穷、愚昧、同性恋、文革这种题材的，认为中国有皇帝算不错了，他们应该以为中国人都住山洞。<br><br>RE: “我本以为中国还有皇帝”，美国一中学生在习总访问后说。这一句话充分说明了美国政府对美国孩子的洗脑是多么可怕，一个民主国家的中学生竟然有如此弱智的想法……</p>
+<p>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3891304259432324" target="freeweibo-mirror">如果这个包里面是炸弹，那么结果不堪设想。这属于美国保卫部门的…</a>
 </h2>
@@ -121,24 +139,6 @@
 <p>//@少年不努力长大在內地: //@谢文://@LifeTime:转发微博<br><br>RE: 同在美國的這些所謂 訪民 真的夠了，居然差點撞上大大的車，在國際場合一點常識沒有，丟臉丟到國外去了！！<br><img src="http://ww1.sinaimg.cn/large/8172c7eegw1ewfmuokkt4j20p018gtbu.jpg"></p>
 <p>
 	<small> ============== 4小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3891293354537805" target="freeweibo-mirror">中午去参加美国务院午餐会路上出点状况，来自国内4个省市访民把…</a>
-</h2>
-<p>中午去参加美国务院午餐会路上出点状况，来自国内4个省市访民把车拦下了。只好留下一名高官善后。美国主要媒体还算厚道，并没有公开报道，社交媒体有些报道。都不容易。</p>
-<p>
-	<small> ============== 5小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3891283053339412" target="freeweibo-mirror">「多位人员在美国成功拦车」......车队经过18街与E街交…</a>
-</h2>
-<p>「多位人员在美国成功拦车」......车队经过18街与E街交叉口，当两辆凯迪拉克出现时多位人员冲过去将前面一辆凯迪拉克拦下，北京李焕君和上海葛丽芳钻到后面一辆加长的凯迪拉克的车底下，将车拦截下来......受惊后派秘书接见了这两名拦车人。<br><img src="http://ww2.sinaimg.cn/large/947145fejw1ewfosn8nhoj20g00lcdhr.jpg"></p>
-<p>
-	<small> ============== 5小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3891268348203482" target="freeweibo-mirror">//@吴铭: 这……</a>
-</h2>
-<p>//@吴铭: 这……</p>
-<p>
-	<small> ============== 6小时前</small>
 </p>
 <table>
     <tr>
