@@ -66,25 +66,25 @@
 </h2>
 <p>//@地球剑客: //@广东巫冠聪: 到美国上访去</p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3891380184970841" target="freeweibo-mirror">什么人？竟敢在中华人民共和国驻美国大使馆门口张贴“拆”字，请…</a>
 </h2>
 <p>什么人？竟敢在中华人民共和国驻美国大使馆门口张贴“拆”字，请@公安部刑侦局 严查，依法追究有关责任！<br><img src="http://ww1.sinaimg.cn/large/7db92c47gw1ewfzrekidwj20fu0qo4ba.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3891380068173170" target="freeweibo-mirror">SPAM 你在cctv看100年也看不到的。</a>
 </h2>
 <p>SPAM 你在cctv看100年也看不到的。</p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3891379908249023" target="freeweibo-mirror">SPAM //@杨兴权律师: 多亏把贾灵敏老师关起来了！</a>
 </h2>
 <p>SPAM //@杨兴权律师: 多亏把贾灵敏老师关起来了！</p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3891379765501989" target="freeweibo-mirror">SPAM 不会超过数小时，就会被永远枪毙（微溥）</a>
 </h2>
