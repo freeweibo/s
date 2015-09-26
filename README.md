@@ -44,6 +44,12 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3891363504009980" target="freeweibo-mirror">SPAM 我分享了http://t.cn/RyoVvsv</a>
+</h2>
+<p>SPAM 我分享了http://t.cn/RyoVvsv</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3891354105061640" target="freeweibo-mirror">SPAM 美国为什么不怕新华网、人民网？</a>
 </h2>
 <p>SPAM 美国为什么不怕新华网、人民网？<br><br>RE: 在美国可以没有限制上新华网，为何在大陆不能自由上美国之音？其实，我们内心仍然弱小自卑，内心的强大才是真正的强大。 http://t.cn/Ryocjcn</p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3891319330096354" target="freeweibo-mirror">//@剑走偏锋Jeffrey: //@写字李华良: //@陈…</a>
 </h2>
 <p>//@剑走偏锋Jeffrey: //@写字李华良: //@陈玉歌:转发微博<br><br>RE: 「多位人员在美国成功拦车」......车队经过18街与E街交叉口，当两辆凯迪拉克出现时多位人员冲过去将前面一辆凯迪拉克拦下，北京李焕君和上海葛丽芳钻到后面一辆加长的凯迪拉克的车底下，将车拦截下来......受惊后派秘书接见了这两名拦车人。<br><img src="http://ww2.sinaimg.cn/large/947145fejw1ewfosn8nhoj20g00lcdhr.jpg"></p>
-<p>
-	<small> ============== 5小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3891317979886751" target="freeweibo-mirror">吹捧式宣传显得很傻，各为自己利益而交往谈判，和商业谈判差不多…</a>
-</h2>
-<p>吹捧式宣传显得很傻，各为自己利益而交往谈判，和商业谈判差不多，搞得跟相亲结婚式的，那眼光能看到啥？<br><br>RE: 【访美媒体宣传战五渣】：1、和美方理性低调相比，大张旗鼓高调舆论狂欢；2、好大喜功定性，什么“历史上从未有过”“开创新纪元”等，不给自己留余地；3、对副总统接机这类惯例性礼节缺少外交常识地过度渲染，好像刘姥姥进大观园；4、没有事先通过宣传打出对己有利的外交先手牌；5、措辞表述各种low。</p>
 <p>
 	<small> ============== 5小时前</small>
 </p>
