@@ -60,13 +60,13 @@
 </h2>
 <p>美国人这一手真绝//@叶新Robert:转发微博<br><br>RE: 惊扰圣驾，其罪当~<br><img src="http://ww4.sinaimg.cn/large/98c6dd80gw1ewftkfpn0zj20c80lpgof.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3891330465690902" target="freeweibo-mirror">9月25下午1点多，车队驶出，李冲破警察封锁线，冲进车队，躺…</a>
 </h2>
 <p>9月25下午1点多，车队驶出，李冲破警察封锁线，冲进车队，躺倒车下，震惊一行大小官员。慌乱不已的美国安保警察数人冲上去，将她从车下扯出来，抬到了马路边。<br><br>RE: 「多位人员在美国成功拦车」......车队经过18街与E街交叉口，当两辆凯迪拉克出现时多位人员冲过去将前面一辆凯迪拉克拦下，北京李焕君和上海葛丽芳钻到后面一辆加长的凯迪拉克的车底下，将车拦截下来......受惊后派秘书接见了这两名拦车人。<br><img src="http://ww2.sinaimg.cn/large/947145fejw1ewfosn8nhoj20g00lcdhr.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3891328829642982" target="freeweibo-mirror">//@傻小子吧:这是美方布置的【适度、可控表达】。//@宵朗…</a>
 </h2>
