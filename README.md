@@ -30,7 +30,7 @@
 </h2>
 <p>没出息！//@天煞穆珏: 六十年代末的美国日本人民也不见得天天能吃上肉，美国黑人还种族隔离呢，世界范围都在治疗战争创伤。现在西北有些贫困地区可能也还是吃不上肉呢。//@健坤强德之声闻: 想看到全文或者全部视频，再下定论！<br><br>RE: 【习近平开创了向国际倾诉中国的先河】9月22日习近平在西雅图说：上世纪60年代末，我才十几岁，插队到一个叫梁家河的小村庄当农民。那时候，我和乡亲们都住在土窑里、睡在土炕上，乡亲们生活十分贫困，经常是几个月吃不到一块肉。我了解乡亲们最需要什么……！但是，这个心愿在当时是很难实现的。<br><img src="http://ww2.sinaimg.cn/large/005KcKJygw1ewf9mvon8wj30dw0bgq3s.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3891476884591186" target="freeweibo-mirror">大豆，近一千三百万吨！//@健坤强德之声闻: 这事该有反转！…</a>
 </h2>
@@ -102,25 +102,25 @@
 </h2>
 <p>//@地球剑客: //@广东巫冠聪: 到美国上访去</p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3891380184970841" target="freeweibo-mirror">什么人？竟敢在中华人民共和国驻美国大使馆门口张贴“拆”字，请…</a>
 </h2>
 <p>什么人？竟敢在中华人民共和国驻美国大使馆门口张贴“拆”字，请@公安部刑侦局 严查，依法追究有关责任！<br><img src="http://ww1.sinaimg.cn/large/7db92c47gw1ewfzrekidwj20fu0qo4ba.jpg"></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3891380068173170" target="freeweibo-mirror">SPAM 你在cctv看100年也看不到的。</a>
 </h2>
 <p>SPAM 你在cctv看100年也看不到的。</p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3891379908249023" target="freeweibo-mirror">SPAM //@杨兴权律师: 多亏把贾灵敏老师关起来了！</a>
 </h2>
 <p>SPAM //@杨兴权律师: 多亏把贾灵敏老师关起来了！</p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3891379765501989" target="freeweibo-mirror">SPAM 不会超过数小时，就会被永远枪毙（微溥）</a>
 </h2>
