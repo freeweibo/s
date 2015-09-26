@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3891303232612789" target="freeweibo-mirror">//@逻辑小刀:中午去参加美国务院午餐会路上出点状况，来自国…</a>
+</h2>
+<p>//@逻辑小刀:中午去参加美国务院午餐会路上出点状况，来自国内4个省市访民把车拦下了。只好留下一名高官善后。美国主要媒体还算厚道，并没有公开报道，社交媒体有些报道。都不容易。这个是戏文里边唱的告御状吗？？？？<br><br>RE: 同在美國的這些所謂 訪民 真的夠了，居然差點撞上大大的車，在國際場合一點常識沒有，丟臉丟到國外去了！！<br><img src="http://ww1.sinaimg.cn/large/8172c7eegw1ewfmuokkt4j20p018gtbu.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3891268348203482" target="freeweibo-mirror">//@吴铭: 这……</a>
 </h2>
 <p>//@吴铭: 这……</p>
@@ -60,7 +66,7 @@
 </h2>
 <p>SPAM 必须把共产主义这个邪根彻底挖掉，不然就会有无量的懒人恶人要共别人的财产，必须断了他们的念想，国家才会正常起来！</p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3891210265544352" target="freeweibo-mirror">SPAM 中美互联网大佬同台亮相了。何谓互联网精神?民主，平…</a>
 </h2>
@@ -72,13 +78,13 @@
 </h2>
 <p>啊哈哈哈哈哈哈，围脖上骂你两句就要“保留诉诸法律的权利，等不到道歉，我们绝不姑息”。罗老师赶紧出山吧，被包养的婊子最近又痒痒了 [哈哈][哈哈][哈哈]<br><img src="http://ww3.sinaimg.cn/large/bb8b8fbcjw1ewfe0jsssij209a0bq0t5.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3891173704043471" target="freeweibo-mirror">​“环球新闻时讯网站”：《新“四人帮”的背后老板》... 文…</a>
 </h2>
 <p>​“环球新闻时讯网站”：《新“四人帮”的背后老板》... 文章真敢说，直接指出背后老板是J，而且更有意思的是这个文章9月1日发表，至今还在。[思考]http://t.cn/RySHvjl<br><img src="http://ww3.sinaimg.cn/large/006dBciGgw1ewfc7r9r3uj305m06y0sx.jpg"></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3891137247349577" target="freeweibo-mirror">习总应该感谢教皇Pope。因为南海、网络安全、中国市场剧烈动…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3891090593650468" target="freeweibo-mirror">喜欢和与之为敌没什么矛盾的，我也喜欢我们班第一名，不少东西可…</a>
 </h2>
 <p>喜欢和与之为敌没什么矛盾的，我也喜欢我们班第一名，不少东西可以学。可一个班只有一个第一，于是只能争了。而且从八十年代到今天，美国工人的月薪从相当于两个中国正教授的年薪到现在基本差不多，谁更把谁看做敌人还说不定呢。<br><br>RE: 其实党和国家领导人们还是很喜欢美国的。允许妖魔化美国是一种政治需要。有一个外敌（不管是真实的还是假想的）能让民众团结在自己周围。</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3891088437565836" target="freeweibo-mirror">其实党和国家领导人们还是很喜欢美国的。允许妖魔化美国是一种政…</a>
-</h2>
-<p>其实党和国家领导人们还是很喜欢美国的。允许妖魔化美国是一种政治需要。有一个外敌（不管是真实的还是假想的）能让民众团结在自己周围。</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
