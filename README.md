@@ -132,7 +132,7 @@
 </h2>
 <p>SPAM //@吴顾问1970://@岗头村夫://@领秀芜湖:<br><br>RE: 越洋上访为哪般？<br><img src="http://ww3.sinaimg.cn/large/006dBVvigw1ewfw3ro6dnj30hs13f0xt.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3891363504009980" target="freeweibo-mirror">SPAM 我分享了http://t.cn/RyoVvsv</a>
 </h2>
