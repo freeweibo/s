@@ -24,7 +24,13 @@
 </h2>
 <p>SPAM http://t.cn/RyoKsGc</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3891403869970386" target="freeweibo-mirror">到美国躺车底为征地拆迁上访，刷新了国人上访的新纪录……为此我…</a>
+</h2>
+<p>到美国躺车底为征地拆迁上访，刷新了国人上访的新纪录……为此我问过几位美国的华裔朋友，他们说现在中美关系紧张，这些上访行为除了给中国人添堵以外，美国人也只是看笑话，不会有任何意义。另外，这些教育程度不高的上访者可以举着英语牌子，能把国宾路线、时间搞清楚，没有一股力量支撑是不可能的。</p>
+<p>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3891394303496826" target="freeweibo-mirror">//@愚人_止石: //@凉水洞主://@磕死了: 有朝一日…</a>
 </h2>
@@ -38,9 +44,21 @@
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3891380268575227" target="freeweibo-mirror">//@地球剑客: //@广东巫冠聪: 到美国上访去</a>
+</h2>
+<p>//@地球剑客: //@广东巫冠聪: 到美国上访去</p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3891380068173170" target="freeweibo-mirror">SPAM 你在cctv看100年也看不到的。</a>
 </h2>
 <p>SPAM 你在cctv看100年也看不到的。</p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3891379908249023" target="freeweibo-mirror">SPAM //@杨兴权律师: 多亏把贾灵敏老师关起来了！</a>
+</h2>
+<p>SPAM //@杨兴权律师: 多亏把贾灵敏老师关起来了！</p>
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
@@ -119,24 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3891331967988953" target="freeweibo-mirror">SPAM 访民都跑到美国了！ //@胖哥专用: //@刘桂娟…</a>
 </h2>
 <p>SPAM 访民都跑到美国了！ //@胖哥专用: //@刘桂娟:[吃惊]<br><br>RE: 惊扰圣驾，其罪当~<br><img src="http://ww4.sinaimg.cn/large/98c6dd80gw1ewftkfpn0zj20c80lpgof.jpg"></p>
-<p>
-	<small> ============== 7小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3891330557686806" target="freeweibo-mirror">美国人这一手真绝//@叶新Robert:转发微博</a>
-</h2>
-<p>美国人这一手真绝//@叶新Robert:转发微博<br><br>RE: 惊扰圣驾，其罪当~<br><img src="http://ww4.sinaimg.cn/large/98c6dd80gw1ewftkfpn0zj20c80lpgof.jpg"></p>
-<p>
-	<small> ============== 7小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3891330465690902" target="freeweibo-mirror">9月25下午1点多，车队驶出，李冲破警察封锁线，冲进车队，躺…</a>
-</h2>
-<p>9月25下午1点多，车队驶出，李冲破警察封锁线，冲进车队，躺倒车下，震惊一行大小官员。慌乱不已的美国安保警察数人冲上去，将她从车下扯出来，抬到了马路边。<br><br>RE: 「多位人员在美国成功拦车」......车队经过18街与E街交叉口，当两辆凯迪拉克出现时多位人员冲过去将前面一辆凯迪拉克拦下，北京李焕君和上海葛丽芳钻到后面一辆加长的凯迪拉克的车底下，将车拦截下来......受惊后派秘书接见了这两名拦车人。<br><img src="http://ww2.sinaimg.cn/large/947145fejw1ewfosn8nhoj20g00lcdhr.jpg"></p>
-<p>
-	<small> ============== 7小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3891328829642982" target="freeweibo-mirror">//@傻小子吧:这是美方布置的【适度、可控表达】。//@宵朗…</a>
-</h2>
-<p>//@傻小子吧:这是美方布置的【适度、可控表达】。//@宵朗琦琦:碰瓷比这差远了//@一株草的纪念: 碰瓷这套也用上了 //@兔儿喵喵喵: //@蓉蓉_舍得://@秋乏君://@SH-2015:[阴险]//@Fung-V:故意的//@吐槽鬼:所以不大可能是安保失误,而是美内部有人授意如此 //@王小东:这人叫李焕君截停了习总的车<br><br>RE: 如果这个包里面是炸弹，那么结果不堪设想。这属于美国保卫部门的严重失职。<br><img src="http://ww4.sinaimg.cn/large/75b19183gw1ewfr8diyoqj20hr09sjsl.jpg"></p>
 <p>
 	<small> ============== 7小时前</small>
 </p>
