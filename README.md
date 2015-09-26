@@ -66,7 +66,7 @@
 </h2>
 <p>SPAM 不和谐声音。[NO] //@草根女2:[吃惊]//@木子童童姐: //@路见不平的家001://@逝水溶冰01: //@医行天下1953:转发微博<br><br>RE: #访族呼声#习大大访美，受到了爱国访民的热烈欢迎！大家纷纷表示“还我财产，还我家园”<br><img src="http://ww3.sinaimg.cn/large/4c35595fjw1ewerri8m5ij20hr1rrdmb.jpg"></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3891092195890418" target="freeweibo-mirror">SPAM FACE，你们也配！//@王亚军上海: →_→ /…</a>
 </h2>
@@ -120,7 +120,7 @@
 </h2>
 <p>SPAM @马千里Jacky @张斌Optimize @兜小麦小兜小  //@最神奇的视频:我只看了二十遍 呵呵~<br><br>RE: #女主播时间#性感诱惑、极品36F温泉洗浴。[色]出水芙蓉http://t.cn/RLDRo8i</p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3891075574155071" target="freeweibo-mirror">[哈哈]//@深南-大盗:[哈哈] //@粵東老趙:[哈哈]…</a>
 </h2>
