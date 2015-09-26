@@ -30,7 +30,7 @@
 </h2>
 <p>SPAM http://t.cn/RyoKsGc</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3891403869970386" target="freeweibo-mirror">到美国躺车底为征地拆迁上访，刷新了国人上访的新纪录……为此我…</a>
 </h2>
@@ -96,7 +96,7 @@
 </h2>
 <p>分享视频：分享视频  猜猜这是哪里？在干吗？ http://t.cn/RyotQpq</p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3891361948681626" target="freeweibo-mirror">真实的新闻都在外面。</a>
 </h2>
