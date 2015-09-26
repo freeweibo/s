@@ -30,7 +30,7 @@
 </h2>
 <p>SPAM 访民都跑到美国了！ //@胖哥专用: //@刘桂娟:[吃惊]<br><br>RE: 惊扰圣驾，其罪当~<br><img src="http://ww4.sinaimg.cn/large/98c6dd80gw1ewftkfpn0zj20c80lpgof.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3891330557686806" target="freeweibo-mirror">美国人这一手真绝//@叶新Robert:转发微博</a>
 </h2>
@@ -47,6 +47,12 @@
 	<a href="https://freeweibo.com/weibo/3891328829642982" target="freeweibo-mirror">//@傻小子吧:这是美方布置的【适度、可控表达】。//@宵朗…</a>
 </h2>
 <p>//@傻小子吧:这是美方布置的【适度、可控表达】。//@宵朗琦琦:碰瓷比这差远了//@一株草的纪念: 碰瓷这套也用上了 //@兔儿喵喵喵: //@蓉蓉_舍得://@秋乏君://@SH-2015:[阴险]//@Fung-V:故意的//@吐槽鬼:所以不大可能是安保失误,而是美内部有人授意如此 //@王小东:这人叫李焕君截停了习总的车<br><br>RE: 如果这个包里面是炸弹，那么结果不堪设想。这属于美国保卫部门的严重失职。<br><img src="http://ww4.sinaimg.cn/large/75b19183gw1ewfr8diyoqj20hr09sjsl.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3891324657160141" target="freeweibo-mirror">惊扰圣驾，其罪当~</a>
+</h2>
+<p>惊扰圣驾，其罪当~<br><img src="http://ww4.sinaimg.cn/large/98c6dd80gw1ewftkfpn0zj20c80lpgof.jpg"></p>
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
@@ -90,7 +96,7 @@
 </h2>
 <p>//@少年不努力长大在內地: //@谢文://@LifeTime:转发微博<br><br>RE: 同在美國的這些所謂 訪民 真的夠了，居然差點撞上大大的車，在國際場合一點常識沒有，丟臉丟到國外去了！！<br><img src="http://ww1.sinaimg.cn/large/8172c7eegw1ewfmuokkt4j20p018gtbu.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3891283053339412" target="freeweibo-mirror">「多位人员在美国成功拦车」......车队经过18街与E街交…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3891223687129398" target="freeweibo-mirror">毛的老战友们晚年这样评价他：老毛不是马克思主义者，也不是共和…</a>
 </h2>
 <p>毛的老战友们晚年这样评价他：老毛不是马克思主义者，也不是共和主义者，甚至连旧民主主义者都不是，他就是一个封建君王。他不接受世界先进文化，一生只泡在中国线装故书中。他的路线斗争策略都来自于历代王朝宫廷内斗。<br><br>RE: ​“环球新闻时讯网站”：《新“四人帮”的背后老板》... 文章真敢说，直接指出背后老板是J，而且更有意思的是这个文章9月1日发表，至今还在。[思考]http://t.cn/RySHvjl<br><img src="http://ww3.sinaimg.cn/large/006dBciGgw1ewfc7r9r3uj305m06y0sx.jpg"></p>
-<p>
-	<small> ============== 9小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3891223511166232" target="freeweibo-mirror">共产主义作为一种形而上的理论是可以探讨的，但是作为一种行动纲…</a>
-</h2>
-<p>共产主义作为一种形而上的理论是可以探讨的，但是作为一种行动纲领则现阶段有害而无益，此为学术看法，勿喷//@陶然万柳世界: //@山高路远N://@刘建伟_微博:为了接班，不遗余力。//@针砭客: 有任务安排的 不然不会这么统一纷纷跳出来 每一次都利用年轻人 老套路 无创意 差评 滚粗级</p>
 <p>
 	<small> ============== 9小时前</small>
 </p>
