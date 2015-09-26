@@ -30,7 +30,7 @@
 </h2>
 <p>//@少年不努力长大在內地: //@谢文://@LifeTime:转发微博<br><br>RE: 同在美國的這些所謂 訪民 真的夠了，居然差點撞上大大的車，在國際場合一點常識沒有，丟臉丟到國外去了！！<br><img src="http://ww1.sinaimg.cn/large/8172c7eegw1ewfmuokkt4j20p018gtbu.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3891268348203482" target="freeweibo-mirror">//@吴铭: 这……</a>
 </h2>
@@ -84,7 +84,7 @@
 </h2>
 <p>SPAM 中美互联网大佬同台亮相了。何谓互联网精神?民主，平等，共享，迭代，核心是平等，去中心化。这些元素，谷歌有，苹果有，比尔盖茨有；但马云没有，马化腾没有，李彦宏也没有。在中国互联网巨头身上，这些互联网精神荡然无存！除了钱多，一文不值。所以，用不着为全球十大互联网公司中国占了一半而自豪<br><img src="http://ww4.sinaimg.cn/large/005SvoAtgw1ewfgfh2e6qj30hs09ygnl.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3891189529155952" target="freeweibo-mirror">啊哈哈哈哈哈哈，围脖上骂你两句就要“保留诉诸法律的权利，等不…</a>
 </h2>
