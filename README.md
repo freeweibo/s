@@ -80,6 +80,12 @@
 <p>
 	<small> ============== 8小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3891137247349577" target="freeweibo-mirror">习总应该感谢教皇Pope。因为南海、网络安全、中国市场剧烈动…</a>
+</h2>
+<p>习总应该感谢教皇Pope。因为南海、网络安全、中国市场剧烈动荡等问题，中美关系跌入近年低谷。美国政坛批评习总的人士跃跃欲试，尤其是总统候选人们。因为教皇到访，所有媒体全程聚集教皇行程，其他话题根本插不上嘴。不知国内是否理解。</p>
+<p>
+	<small> ============== 10小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3891123019423614" target="freeweibo-mirror">傻逼太多，骗子不够用！</a>
 </h2>
 <p>傻逼太多，骗子不够用！</p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3891088437565836" target="freeweibo-mirror">其实党和国家领导人们还是很喜欢美国的。允许妖魔化美国是一种政…</a>
 </h2>
 <p>其实党和国家领导人们还是很喜欢美国的。允许妖魔化美国是一种政治需要。有一个外敌（不管是真实的还是假想的）能让民众团结在自己周围。</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3891087385539232" target="freeweibo-mirror">//@广州城堡堡主:报告首长，百团大战有一个团可能叛变了，现…</a>
-</h2>
-<p>//@广州城堡堡主:报告首长，百团大战有一个团可能叛变了，现在和敌人站在一起[抓狂][抓狂]<br><br>RE: 【微博动态】这……请问该班同学，你们真看懂了上级组织的态度了吗[汗]<br><img src="http://ww2.sinaimg.cn/large/61e04755jw1ewez1irgjcj20yi11yqct.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
