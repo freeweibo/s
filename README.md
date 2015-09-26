@@ -42,7 +42,7 @@
 </h2>
 <p>同在美國的這些所謂 訪民 真的夠了，居然差點撞上大大的車，在國際場合一點常識沒有，丟臉丟到國外去了！！<br><img src="http://ww1.sinaimg.cn/large/8172c7eegw1ewfmuokkt4j20p018gtbu.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3891258278090771" target="freeweibo-mirror">尽管Facekook在中国境内仍然被屏蔽，但这并不妨碍习近平…</a>
 </h2>
@@ -54,7 +54,7 @@
 </h2>
 <p>宗教的力量。<br><br>RE: 习总应该感谢教皇Pope。因为南海、网络安全、中国市场剧烈动荡等问题，中美关系跌入近年低谷。美国政坛批评习总的人士跃跃欲试，尤其是总统候选人们。因为教皇到访，所有媒体全程聚集教皇行程，其他话题根本插不上嘴。不知国内是否理解。</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3891224257249653" target="freeweibo-mirror">共产主义的危险性，是它建立在以物质基础极其匮乏的时代，目标仍…</a>
 </h2>
