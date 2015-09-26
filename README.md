@@ -96,7 +96,7 @@
 </h2>
 <p>嗐</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3891380268575227" target="freeweibo-mirror">//@地球剑客: //@广东巫冠聪: 到美国上访去</a>
 </h2>
