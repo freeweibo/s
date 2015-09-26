@@ -24,7 +24,13 @@
 </h2>
 <p>SPAM 美国为什么不怕新华网、人民网？<br><br>RE: 在美国可以没有限制上新华网，为何在大陆不能自由上美国之音？其实，我们内心仍然弱小自卑，内心的强大才是真正的强大。 http://t.cn/Ryocjcn</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3891353434448054" target="freeweibo-mirror">在美国可以没有限制上新华网，为何在大陆不能自由上美国之音？其…</a>
+</h2>
+<p>在美国可以没有限制上新华网，为何在大陆不能自由上美国之音？其实，我们内心仍然弱小自卑，内心的强大才是真正的强大。 http://t.cn/Ryocjcn</p>
+<p>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3891342750755712" target="freeweibo-mirror">越级上访变异//@何光伟:转发微博</a>
 </h2>
@@ -120,7 +126,7 @@
 </h2>
 <p>中国拿出去评奖的影片大多都是讲中国穷、愚昧、同性恋、文革这种题材的，认为中国有皇帝算不错了，他们应该以为中国人都住山洞。<br><br>RE: “我本以为中国还有皇帝”，美国一中学生在习总访问后说。这一句话充分说明了美国政府对美国孩子的洗脑是多么可怕，一个民主国家的中学生竟然有如此弱智的想法……</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3891304259432324" target="freeweibo-mirror">如果这个包里面是炸弹，那么结果不堪设想。这属于美国保卫部门的…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3891303232612789" target="freeweibo-mirror">//@逻辑小刀:中午去参加美国务院午餐会路上出点状况，来自国…</a>
 </h2>
 <p>//@逻辑小刀:中午去参加美国务院午餐会路上出点状况，来自国内4个省市访民把车拦下了。只好留下一名高官善后。美国主要媒体还算厚道，并没有公开报道，社交媒体有些报道。都不容易。这个是戏文里边唱的告御状吗？？？？<br><br>RE: 同在美國的這些所謂 訪民 真的夠了，居然差點撞上大大的車，在國際場合一點常識沒有，丟臉丟到國外去了！！<br><img src="http://ww1.sinaimg.cn/large/8172c7eegw1ewfmuokkt4j20p018gtbu.jpg"></p>
-<p>
-	<small> ============== 5小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3891301864703508" target="freeweibo-mirror">越国上访</a>
-</h2>
-<p>越国上访<br><img src="http://ww1.sinaimg.cn/large/638bf4e8jw1ewfqy6j26sj20k00b9jsc.jpg"></p>
 <p>
 	<small> ============== 5小时前</small>
 </p>
