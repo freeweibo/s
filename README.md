@@ -96,7 +96,7 @@
 </h2>
 <p>//@傻小子吧:这是美方布置的【适度、可控表达】。//@宵朗琦琦:碰瓷比这差远了//@一株草的纪念: 碰瓷这套也用上了 //@兔儿喵喵喵: //@蓉蓉_舍得://@秋乏君://@SH-2015:[阴险]//@Fung-V:故意的//@吐槽鬼:所以不大可能是安保失误,而是美内部有人授意如此 //@王小东:这人叫李焕君截停了习总的车<br><br>RE: 如果这个包里面是炸弹，那么结果不堪设想。这属于美国保卫部门的严重失职。<br><img src="http://ww4.sinaimg.cn/large/75b19183gw1ewfr8diyoqj20hr09sjsl.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3891324657160141" target="freeweibo-mirror">惊扰圣驾，其罪当~</a>
 </h2>
@@ -132,7 +132,7 @@
 </h2>
 <p>让国宾被拦车，美国的安保也太烂了吧？<br><br>RE: 如果这个包里面是炸弹，那么结果不堪设想。这属于美国保卫部门的严重失职。<br><img src="http://ww4.sinaimg.cn/large/75b19183gw1ewfr8diyoqj20hr09sjsl.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3891308349835129" target="freeweibo-mirror">中国拿出去评奖的影片大多都是讲中国穷、愚昧、同性恋、文革这种…</a>
 </h2>
