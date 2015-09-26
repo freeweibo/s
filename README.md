@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3891368856561198" target="freeweibo-mirror">SPAM //@吴顾问1970://@岗头村夫://@领秀芜…</a>
+</h2>
+<p>SPAM //@吴顾问1970://@岗头村夫://@领秀芜湖:<br><br>RE: 越洋上访为哪般？<br><img src="http://ww3.sinaimg.cn/large/006dBVvigw1ewfw3ro6dnj30hs13f0xt.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3891354105061640" target="freeweibo-mirror">SPAM 美国为什么不怕新华网、人民网？</a>
 </h2>
 <p>SPAM 美国为什么不怕新华网、人民网？<br><br>RE: 在美国可以没有限制上新华网，为何在大陆不能自由上美国之音？其实，我们内心仍然弱小自卑，内心的强大才是真正的强大。 http://t.cn/Ryocjcn</p>
@@ -42,7 +48,7 @@
 </h2>
 <p>什么胃口 //@华胜天://@刘志强律师:据说状子递上去了。 //@喷嚏网铂程:转发微博<br><br>RE: 越国上访<br><img src="http://ww1.sinaimg.cn/large/638bf4e8jw1ewfqy6j26sj20k00b9jsc.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3891338036314222" target="freeweibo-mirror">//@黎勇01: //@崔小平律师: //@干卫东律师:告洋…</a>
 </h2>
@@ -90,7 +96,7 @@
 </h2>
 <p>惊扰圣驾，其罪当~<br><img src="http://ww4.sinaimg.cn/large/98c6dd80gw1ewftkfpn0zj20c80lpgof.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3891321913700093" target="freeweibo-mirror">美国负责安保任务的特勤人员一定恨死这个贱货了//@良知在神州…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3891304259432324" target="freeweibo-mirror">如果这个包里面是炸弹，那么结果不堪设想。这属于美国保卫部门的…</a>
 </h2>
 <p>如果这个包里面是炸弹，那么结果不堪设想。这属于美国保卫部门的严重失职。<br><img src="http://ww4.sinaimg.cn/large/75b19183gw1ewfr8diyoqj20hr09sjsl.jpg"></p>
-<p>
-	<small> ============== 5小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3891303232612789" target="freeweibo-mirror">//@逻辑小刀:中午去参加美国务院午餐会路上出点状况，来自国…</a>
-</h2>
-<p>//@逻辑小刀:中午去参加美国务院午餐会路上出点状况，来自国内4个省市访民把车拦下了。只好留下一名高官善后。美国主要媒体还算厚道，并没有公开报道，社交媒体有些报道。都不容易。这个是戏文里边唱的告御状吗？？？？<br><br>RE: 同在美國的這些所謂 訪民 真的夠了，居然差點撞上大大的車，在國際場合一點常識沒有，丟臉丟到國外去了！！<br><img src="http://ww1.sinaimg.cn/large/8172c7eegw1ewfmuokkt4j20p018gtbu.jpg"></p>
 <p>
 	<small> ============== 5小时前</small>
 </p>
