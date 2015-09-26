@@ -20,6 +20,18 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3891268348203482" target="freeweibo-mirror">//@吴铭: 这……</a>
+</h2>
+<p>//@吴铭: 这……</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3891258278090771" target="freeweibo-mirror">尽管Facekook在中国境内仍然被屏蔽，但这并不妨碍习近平…</a>
+</h2>
+<p>尽管Facekook在中国境内仍然被屏蔽，但这并不妨碍习近平拥有自己的一个Facebook主页。请问有司，我想去给总书记点赞，咋办？<br><img src="http://ww4.sinaimg.cn/large/0063f1begw1ewflxyi4ksj30c806kt9b.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3891224257249653" target="freeweibo-mirror">共产主义的危险性，是它建立在以物质基础极其匮乏的时代，目标仍…</a>
 </h2>
 <p>共产主义的危险性，是它建立在以物质基础极其匮乏的时代，目标仍是物质性的，按需分配。所以获得土地前还觉得它崇高。一些率先以这个信仰为工具掠夺了极大社会财富，造成贫富严重分化的阶层，对被掠夺者说，我靠，你们看，共产主义是骗人的。由此来看，真正能够持续的信仰，是建立在精神层面。如佛教。</p>
@@ -42,7 +54,7 @@
 </h2>
 <p>SPAM 必须把共产主义这个邪根彻底挖掉，不然就会有无量的懒人恶人要共别人的财产，必须断了他们的念想，国家才会正常起来！</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3891210265544352" target="freeweibo-mirror">SPAM 中美互联网大佬同台亮相了。何谓互联网精神?民主，平…</a>
 </h2>
@@ -54,13 +66,13 @@
 </h2>
 <p>啊哈哈哈哈哈哈，围脖上骂你两句就要“保留诉诸法律的权利，等不到道歉，我们绝不姑息”。罗老师赶紧出山吧，被包养的婊子最近又痒痒了 [哈哈][哈哈][哈哈]<br><img src="http://ww3.sinaimg.cn/large/bb8b8fbcjw1ewfe0jsssij209a0bq0t5.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3891173704043471" target="freeweibo-mirror">​“环球新闻时讯网站”：《新“四人帮”的背后老板》... 文…</a>
 </h2>
 <p>​“环球新闻时讯网站”：《新“四人帮”的背后老板》... 文章真敢说，直接指出背后老板是J，而且更有意思的是这个文章9月1日发表，至今还在。[思考]http://t.cn/RySHvjl<br><img src="http://ww3.sinaimg.cn/large/006dBciGgw1ewfc7r9r3uj305m06y0sx.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3891123019423614" target="freeweibo-mirror">傻逼太多，骗子不够用！</a>
 </h2>
@@ -78,7 +90,7 @@
 </h2>
 <p>→_→//@湘潭勇哥: →_→//@浩正刘臻:→_→ //@演员孙海英:→_→ //@公正善良:[哈哈]人还在就知足吧……</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3891105470764060" target="freeweibo-mirror">【费解】几年前，胡大大出访，有微博说老大出访期间按惯例由排名…</a>
 </h2>
@@ -125,18 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3891087200844534" target="freeweibo-mirror">哈，扣五毛！[哈哈][哈哈]//@古今评谈: //@無為而治…</a>
 </h2>
 <p>哈，扣五毛！[哈哈][哈哈]//@古今评谈: //@無為而治-://@媒体人杨清林:看反了[哈哈] //@浩正刘臻:财经网太坏了[笑cry] //@大藏布:[哈哈]//@文山娃: 噗。<br><br>RE: 【微博动态】这……请问该班同学，你们真看懂了上级组织的态度了吗[汗]<br><img src="http://ww2.sinaimg.cn/large/61e04755jw1ewez1irgjcj20yi11yqct.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3891086558605524" target="freeweibo-mirror">//@無為而治-://@媒体人杨清林:看反了[哈哈] //@…</a>
-</h2>
-<p>//@無為而治-://@媒体人杨清林:看反了[哈哈] //@浩正刘臻:财经网太坏了[笑cry] //@大藏布:[哈哈]//@文山娃: 噗。<br><br>RE: 【微博动态】这……请问该班同学，你们真看懂了上级组织的态度了吗[汗]<br><img src="http://ww2.sinaimg.cn/large/61e04755jw1ewez1irgjcj20yi11yqct.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3891086114647336" target="freeweibo-mirror">//@媒体人杨清林:看反了[哈哈] //@浩正刘臻:财经网太…</a>
-</h2>
-<p>//@媒体人杨清林:看反了[哈哈] //@浩正刘臻:财经网太坏了[笑cry] //@大藏布:[哈哈]//@文山娃: 噗。<br><br>RE: 【微博动态】这……请问该班同学，你们真看懂了上级组织的态度了吗[汗]<br><img src="http://ww2.sinaimg.cn/large/61e04755jw1ewez1irgjcj20yi11yqct.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
