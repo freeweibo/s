@@ -30,7 +30,7 @@
 </h2>
 <p>SPAM 你在cctv看100年也看不到的。</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3891379765501989" target="freeweibo-mirror">SPAM 不会超过数小时，就会被永远枪毙（微溥）</a>
 </h2>
