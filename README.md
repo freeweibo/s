@@ -90,7 +90,7 @@
 </h2>
 <p>//@愚人_止石: //@凉水洞主://@磕死了: 有朝一日就会走上中国人的问题要有美国来解决了。//@黑龙江来去之间: 转发微博<br><br>RE: 真实的新闻都在外面。<br><img src="http://ww4.sinaimg.cn/large/005NmBuHgw1ewfxuk7y1uj30rz18gajh.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3891384408811546" target="freeweibo-mirror">嗐</a>
 </h2>
