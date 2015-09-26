@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3891535744004532" target="freeweibo-mirror">只要能为美国人民谋利益，奥巴马随时准备为习总提鞋。//@大力…</a>
+</h2>
+<p>只要能为美国人民谋利益，奥巴马随时准备为习总提鞋。//@大力水手AAA:见利忘义的奥黑鬼[衰]//@顾猷: 当奥巴马在做这些的时候，他心里在想什么呢？ //@LifeTime:转发微博<br><br>RE: 【够朋友】奥巴马为了不让他看到抗议者，先是把拉法耶特广场关到11点，交涉后不得不开放，但又把白宫的北阳台遮蔽起来。白宫的主人做了所有他能做的，让客人感到心情愉快。<br><img src="http://ww4.sinaimg.cn/large/9baa2a12jw1ewfewhxo2ej20fm0kuaby.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3891491473049047" target="freeweibo-mirror">[衰]//@杨武陵:唉-------------------…</a>
 </h2>
 <p>[衰]//@杨武陵:唉---------------------！<br><br>RE: 【习近平开创了向国际倾诉中国的先河】9月22日习近平在西雅图说：上世纪60年代末，我才十几岁，插队到一个叫梁家河的小村庄当农民。那时候，我和乡亲们都住在土窑里、睡在土炕上，乡亲们生活十分贫困，经常是几个月吃不到一块肉。我了解乡亲们最需要什么……！但是，这个心愿在当时是很难实现的。<br><img src="http://ww2.sinaimg.cn/large/005KcKJygw1ewf9mvon8wj30dw0bgq3s.jpg"></p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3891368856561198" target="freeweibo-mirror">SPAM //@吴顾问1970://@岗头村夫://@领秀芜…</a>
 </h2>
 <p>SPAM //@吴顾问1970://@岗头村夫://@领秀芜湖:<br><br>RE: 越洋上访为哪般？<br><img src="http://ww3.sinaimg.cn/large/006dBVvigw1ewfw3ro6dnj30hs13f0xt.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3891363504009980" target="freeweibo-mirror">SPAM 我分享了http://t.cn/RyoVvsv</a>
-</h2>
-<p>SPAM 我分享了http://t.cn/RyoVvsv</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
