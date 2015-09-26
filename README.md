@@ -38,6 +38,12 @@
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3891266322010479" target="freeweibo-mirror">同在美國的這些所謂 訪民 真的夠了，居然差點撞上大大的車，在…</a>
+</h2>
+<p>同在美國的這些所謂 訪民 真的夠了，居然差點撞上大大的車，在國際場合一點常識沒有，丟臉丟到國外去了！！<br><img src="http://ww1.sinaimg.cn/large/8172c7eegw1ewfmuokkt4j20p018gtbu.jpg"></p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3891258278090771" target="freeweibo-mirror">尽管Facekook在中国境内仍然被屏蔽，但这并不妨碍习近平…</a>
 </h2>
 <p>尽管Facekook在中国境内仍然被屏蔽，但这并不妨碍习近平拥有自己的一个Facebook主页。请问有司，我想去给总书记点赞，咋办？<br><img src="http://ww4.sinaimg.cn/large/0063f1begw1ewflxyi4ksj30c806kt9b.jpg"></p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3891092195890418" target="freeweibo-mirror">SPAM FACE，你们也配！//@王亚军上海: →_→ /…</a>
 </h2>
 <p>SPAM FACE，你们也配！//@王亚军上海: →_→ //@1208毫米:谁有梯子 //@迎着风儿-:如何翻的墙，求方法[偷笑] //@虎叔-:连我都不好意思了</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3891090882750536" target="freeweibo-mirror">SPAM 微博上帖子被删得尸横遍野，信息流里全是经过官方筛选…</a>
-</h2>
-<p>SPAM 微博上帖子被删得尸横遍野，信息流里全是经过官方筛选的一堆垃圾，有思想的人被销号，一惊一乍的娱乐圈占据头条、热门帖子毫无营养。自己关注的人经常看不到、经常消失。我们开始习惯被销号、开始习惯被删帖、开始习惯被禁言、开始习惯一大堆垃圾。#这盛世，如你所愿？#</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
