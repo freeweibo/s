@@ -30,7 +30,7 @@
 </h2>
 <p>尽管Facekook在中国境内仍然被屏蔽，但这并不妨碍习近平拥有自己的一个Facebook主页。请问有司，我想去给总书记点赞，咋办？<br><img src="http://ww4.sinaimg.cn/large/0063f1begw1ewflxyi4ksj30c806kt9b.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3891250270821939" target="freeweibo-mirror">宗教的力量。</a>
 </h2>
@@ -84,13 +84,13 @@
 </h2>
 <p>习总应该感谢教皇Pope。因为南海、网络安全、中国市场剧烈动荡等问题，中美关系跌入近年低谷。美国政坛批评习总的人士跃跃欲试，尤其是总统候选人们。因为教皇到访，所有媒体全程聚集教皇行程，其他话题根本插不上嘴。不知国内是否理解。</p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3891123019423614" target="freeweibo-mirror">傻逼太多，骗子不够用！</a>
 </h2>
 <p>傻逼太多，骗子不够用！</p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3891107253931413" target="freeweibo-mirror">我我我</a>
 </h2>
