@@ -20,11 +20,35 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3891321913700093" target="freeweibo-mirror">美国负责安保任务的特勤人员一定恨死这个贱货了//@良知在神州…</a>
+</h2>
+<p>美国负责安保任务的特勤人员一定恨死这个贱货了//@良知在神州01:美国是故意的@美国驻华大使馆<br><br>RE: 如果这个包里面是炸弹，那么结果不堪设想。这属于美国保卫部门的严重失职。<br><img src="http://ww4.sinaimg.cn/large/75b19183gw1ewfr8diyoqj20hr09sjsl.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3891319330096354" target="freeweibo-mirror">//@剑走偏锋Jeffrey: //@写字李华良: //@陈…</a>
+</h2>
+<p>//@剑走偏锋Jeffrey: //@写字李华良: //@陈玉歌:转发微博<br><br>RE: 「多位人员在美国成功拦车」......车队经过18街与E街交叉口，当两辆凯迪拉克出现时多位人员冲过去将前面一辆凯迪拉克拦下，北京李焕君和上海葛丽芳钻到后面一辆加长的凯迪拉克的车底下，将车拦截下来......受惊后派秘书接见了这两名拦车人。<br><img src="http://ww2.sinaimg.cn/large/947145fejw1ewfosn8nhoj20g00lcdhr.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3891317736473428" target="freeweibo-mirror">回复@照见99:我真不认为美国是故意的，到底也是几百年修成的…</a>
+</h2>
+<p>回复@照见99:我真不认为美国是故意的，到底也是几百年修成的帝国，不至于这么不要脸。这事就是安保失职，丢了美国的脸。//@照见99:故意的。美国的格局真小啊，像泼皮无赖的做法了。//@西西福厮:让国宾被拦车，美国的安保也太烂了吧？<br><br>RE: 如果这个包里面是炸弹，那么结果不堪设想。这属于美国保卫部门的严重失职。<br><img src="http://ww4.sinaimg.cn/large/75b19183gw1ewfr8diyoqj20hr09sjsl.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3891313936109242" target="freeweibo-mirror">让国宾被拦车，美国的安保也太烂了吧？</a>
+</h2>
+<p>让国宾被拦车，美国的安保也太烂了吧？<br><br>RE: 如果这个包里面是炸弹，那么结果不堪设想。这属于美国保卫部门的严重失职。<br><img src="http://ww4.sinaimg.cn/large/75b19183gw1ewfr8diyoqj20hr09sjsl.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3891303232612789" target="freeweibo-mirror">//@逻辑小刀:中午去参加美国务院午餐会路上出点状况，来自国…</a>
 </h2>
 <p>//@逻辑小刀:中午去参加美国务院午餐会路上出点状况，来自国内4个省市访民把车拦下了。只好留下一名高官善后。美国主要媒体还算厚道，并没有公开报道，社交媒体有些报道。都不容易。这个是戏文里边唱的告御状吗？？？？<br><br>RE: 同在美國的這些所謂 訪民 真的夠了，居然差點撞上大大的車，在國際場合一點常識沒有，丟臉丟到國外去了！！<br><img src="http://ww1.sinaimg.cn/large/8172c7eegw1ewfmuokkt4j20p018gtbu.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3891301206909741" target="freeweibo-mirror">//@少年不努力长大在內地: //@谢文://@LifeTi…</a>
 </h2>
@@ -48,7 +72,7 @@
 </h2>
 <p>尽管Facekook在中国境内仍然被屏蔽，但这并不妨碍习近平拥有自己的一个Facebook主页。请问有司，我想去给总书记点赞，咋办？<br><img src="http://ww4.sinaimg.cn/large/0063f1begw1ewflxyi4ksj30c806kt9b.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3891250270821939" target="freeweibo-mirror">宗教的力量。</a>
 </h2>
@@ -113,30 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3891107253931413" target="freeweibo-mirror">我我我</a>
 </h2>
 <p>我我我</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3891105822911983" target="freeweibo-mirror">→_→//@湘潭勇哥: →_→//@浩正刘臻:→_→ //@…</a>
-</h2>
-<p>→_→//@湘潭勇哥: →_→//@浩正刘臻:→_→ //@演员孙海英:→_→ //@公正善良:[哈哈]人还在就知足吧……</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3891105470764060" target="freeweibo-mirror">【费解】几年前，胡大大出访，有微博说老大出访期间按惯例由排名…</a>
-</h2>
-<p>【费解】几年前，胡大大出访，有微博说老大出访期间按惯例由排名第二的常委主持中央工作，结果一帮五毛在评论中都异口同声地说：反对！真不知道为何吴委员长在五毛中的口碑会这么差？</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3891095937400481" target="freeweibo-mirror">SPAM 不和谐声音。[NO] //@草根女2:[吃惊]//…</a>
-</h2>
-<p>SPAM 不和谐声音。[NO] //@草根女2:[吃惊]//@木子童童姐: //@路见不平的家001://@逝水溶冰01: //@医行天下1953:转发微博<br><br>RE: #访族呼声#习大大访美，受到了爱国访民的热烈欢迎！大家纷纷表示“还我财产，还我家园”<br><img src="http://ww3.sinaimg.cn/large/4c35595fjw1ewerri8m5ij20hr1rrdmb.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3891092195890418" target="freeweibo-mirror">SPAM FACE，你们也配！//@王亚军上海: →_→ /…</a>
-</h2>
-<p>SPAM FACE，你们也配！//@王亚军上海: →_→ //@1208毫米:谁有梯子 //@迎着风儿-:如何翻的墙，求方法[偷笑] //@虎叔-:连我都不好意思了</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
