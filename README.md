@@ -38,6 +38,12 @@
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3891173704043471" target="freeweibo-mirror">​“环球新闻时讯网站”：《新“四人帮”的背后老板》... 文…</a>
+</h2>
+<p>​“环球新闻时讯网站”：《新“四人帮”的背后老板》... 文章真敢说，直接指出背后老板是J，而且更有意思的是这个文章9月1日发表，至今还在。[思考]http://t.cn/RySHvjl<br><img src="http://ww3.sinaimg.cn/large/006dBciGgw1ewfc7r9r3uj305m06y0sx.jpg"></p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3891123019423614" target="freeweibo-mirror">傻逼太多，骗子不够用！</a>
 </h2>
 <p>傻逼太多，骗子不够用！</p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3891072822585347" target="freeweibo-mirror">[哈哈] //@诸子百家之一:小童鞋[哈哈][哈哈]</a>
 </h2>
 <p>[哈哈] //@诸子百家之一:小童鞋[哈哈][哈哈]<br><br>RE: 【微博动态】这……请问该班同学，你们真看懂了上级组织的态度了吗[汗]<br><img src="http://ww2.sinaimg.cn/large/61e04755jw1ewez1irgjcj20yi11yqct.jpg"></p>
-<p>
-	<small> ============== 11小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3891072767455614" target="freeweibo-mirror">#女主播时间#性感诱惑、极品36F温泉洗浴。[色]出水芙蓉h…</a>
-</h2>
-<p>#女主播时间#性感诱惑、极品36F温泉洗浴。[色]出水芙蓉http://t.cn/RLDRo8i</p>
 <p>
 	<small> ============== 11小时前</small>
 </p>
