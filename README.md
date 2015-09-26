@@ -60,7 +60,7 @@
 </h2>
 <p>SPAM 必须把共产主义这个邪根彻底挖掉，不然就会有无量的懒人恶人要共别人的财产，必须断了他们的念想，国家才会正常起来！</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3891210265544352" target="freeweibo-mirror">SPAM 中美互联网大佬同台亮相了。何谓互联网精神?民主，平…</a>
 </h2>
@@ -72,13 +72,13 @@
 </h2>
 <p>啊哈哈哈哈哈哈，围脖上骂你两句就要“保留诉诸法律的权利，等不到道歉，我们绝不姑息”。罗老师赶紧出山吧，被包养的婊子最近又痒痒了 [哈哈][哈哈][哈哈]<br><img src="http://ww3.sinaimg.cn/large/bb8b8fbcjw1ewfe0jsssij209a0bq0t5.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3891173704043471" target="freeweibo-mirror">​“环球新闻时讯网站”：《新“四人帮”的背后老板》... 文…</a>
 </h2>
 <p>​“环球新闻时讯网站”：《新“四人帮”的背后老板》... 文章真敢说，直接指出背后老板是J，而且更有意思的是这个文章9月1日发表，至今还在。[思考]http://t.cn/RySHvjl<br><img src="http://ww3.sinaimg.cn/large/006dBciGgw1ewfc7r9r3uj305m06y0sx.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3891137247349577" target="freeweibo-mirror">习总应该感谢教皇Pope。因为南海、网络安全、中国市场剧烈动…</a>
 </h2>
