@@ -56,6 +56,12 @@
 <p>
 	<small> ============== 4小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3891380184970841" target="freeweibo-mirror">什么人？竟敢在中华人民共和国驻美国大使馆门口张贴“拆”字，请…</a>
+</h2>
+<p>什么人？竟敢在中华人民共和国驻美国大使馆门口张贴“拆”字，请@公安部刑侦局 严查，依法追究有关责任！<br><img src="http://ww1.sinaimg.cn/large/7db92c47gw1ewfzrekidwj20fu0qo4ba.jpg"></p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3891380068173170" target="freeweibo-mirror">SPAM 你在cctv看100年也看不到的。</a>
 </h2>
 <p>SPAM 你在cctv看100年也看不到的。</p>
@@ -96,7 +102,7 @@
 </h2>
 <p>真实的新闻都在外面。<br><img src="http://ww4.sinaimg.cn/large/005NmBuHgw1ewfxuk7y1uj30rz18gajh.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3891354105061640" target="freeweibo-mirror">SPAM 美国为什么不怕新华网、人民网？</a>
 </h2>
@@ -114,7 +120,7 @@
 </h2>
 <p>越洋上访为哪般？<br><img src="http://ww3.sinaimg.cn/large/006dBVvigw1ewfw3ro6dnj30hs13f0xt.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3891342750755712" target="freeweibo-mirror">越级上访变异//@何光伟:转发微博</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3891339911880616" target="freeweibo-mirror">什么胃口 //@华胜天://@刘志强律师:据说状子递上去了。…</a>
 </h2>
 <p>什么胃口 //@华胜天://@刘志强律师:据说状子递上去了。 //@喷嚏网铂程:转发微博<br><br>RE: 越国上访<br><img src="http://ww1.sinaimg.cn/large/638bf4e8jw1ewfqy6j26sj20k00b9jsc.jpg"></p>
-<p>
-	<small> ============== 7小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3891338036314222" target="freeweibo-mirror">//@黎勇01: //@崔小平律师: //@干卫东律师:告洋…</a>
-</h2>
-<p>//@黎勇01: //@崔小平律师: //@干卫东律师:告洋状。//@张庭源律师2:拦轿伸冤美国版。 //@邻水四娃子:真有到美国上访的[吃惊] //@伍雷看夹边沟:都不容易啊 //@律师老周401://@笨笨an:转发微博<br><br>RE: 中午去参加美国务院午餐会路上出点状况，来自国内4个省市访民把车拦下了。只好留下一名高官善后。美国主要媒体还算厚道，并没有公开报道，社交媒体有些报道。都不容易。</p>
 <p>
 	<small> ============== 7小时前</small>
 </p>
