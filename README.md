@@ -20,9 +20,21 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3891224257249653" target="freeweibo-mirror">共产主义的危险性，是它建立在以物质基础极其匮乏的时代，目标仍…</a>
+</h2>
+<p>共产主义的危险性，是它建立在以物质基础极其匮乏的时代，目标仍是物质性的，按需分配。所以获得土地前还觉得它崇高。一些率先以这个信仰为工具掠夺了极大社会财富，造成贫富严重分化的阶层，对被掠夺者说，我靠，你们看，共产主义是骗人的。由此来看，真正能够持续的信仰，是建立在精神层面。如佛教。</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3891223687129398" target="freeweibo-mirror">毛的老战友们晚年这样评价他：老毛不是马克思主义者，也不是共和…</a>
 </h2>
 <p>毛的老战友们晚年这样评价他：老毛不是马克思主义者，也不是共和主义者，甚至连旧民主主义者都不是，他就是一个封建君王。他不接受世界先进文化，一生只泡在中国线装故书中。他的路线斗争策略都来自于历代王朝宫廷内斗。<br><br>RE: ​“环球新闻时讯网站”：《新“四人帮”的背后老板》... 文章真敢说，直接指出背后老板是J，而且更有意思的是这个文章9月1日发表，至今还在。[思考]http://t.cn/RySHvjl<br><img src="http://ww3.sinaimg.cn/large/006dBciGgw1ewfc7r9r3uj305m06y0sx.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3891223511166232" target="freeweibo-mirror">共产主义作为一种形而上的理论是可以探讨的，但是作为一种行动纲…</a>
+</h2>
+<p>共产主义作为一种形而上的理论是可以探讨的，但是作为一种行动纲领则现阶段有害而无益，此为学术看法，勿喷//@陶然万柳世界: //@山高路远N://@刘建伟_微博:为了接班，不遗余力。//@针砭客: 有任务安排的 不然不会这么统一纷纷跳出来 每一次都利用年轻人 老套路 无创意 差评 滚粗级</p>
 <p>
 	<small> ============== 1小时前</small>
 </p><h2>
@@ -36,13 +48,13 @@
 </h2>
 <p>啊哈哈哈哈哈哈，围脖上骂你两句就要“保留诉诸法律的权利，等不到道歉，我们绝不姑息”。罗老师赶紧出山吧，被包养的婊子最近又痒痒了 [哈哈][哈哈][哈哈]<br><img src="http://ww3.sinaimg.cn/large/bb8b8fbcjw1ewfe0jsssij209a0bq0t5.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3891173704043471" target="freeweibo-mirror">​“环球新闻时讯网站”：《新“四人帮”的背后老板》... 文…</a>
 </h2>
 <p>​“环球新闻时讯网站”：《新“四人帮”的背后老板》... 文章真敢说，直接指出背后老板是J，而且更有意思的是这个文章9月1日发表，至今还在。[思考]http://t.cn/RySHvjl<br><img src="http://ww3.sinaimg.cn/large/006dBciGgw1ewfc7r9r3uj305m06y0sx.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3891123019423614" target="freeweibo-mirror">傻逼太多，骗子不够用！</a>
 </h2>
@@ -125,18 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3891081244204864" target="freeweibo-mirror">SPAM @马千里Jacky @张斌Optimize @兜小…</a>
 </h2>
 <p>SPAM @马千里Jacky @张斌Optimize @兜小麦小兜小  //@最神奇的视频:我只看了二十遍 呵呵~<br><br>RE: #女主播时间#性感诱惑、极品36F温泉洗浴。[色]出水芙蓉http://t.cn/RLDRo8i</p>
-<p>
-	<small> ============== 11小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3891075574155071" target="freeweibo-mirror">[哈哈]//@深南-大盗:[哈哈] //@粵東老趙:[哈哈]…</a>
-</h2>
-<p>[哈哈]//@深南-大盗:[哈哈] //@粵東老趙:[哈哈] //@大藏布: [哈哈] //@文山娃: 噗。<br><br>RE: 【微博动态】这……请问该班同学，你们真看懂了上级组织的态度了吗[汗]<br><img src="http://ww2.sinaimg.cn/large/61e04755jw1ewez1irgjcj20yi11yqct.jpg"></p>
-<p>
-	<small> ============== 11小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3891072822585347" target="freeweibo-mirror">[哈哈] //@诸子百家之一:小童鞋[哈哈][哈哈]</a>
-</h2>
-<p>[哈哈] //@诸子百家之一:小童鞋[哈哈][哈哈]<br><br>RE: 【微博动态】这……请问该班同学，你们真看懂了上级组织的态度了吗[汗]<br><img src="http://ww2.sinaimg.cn/large/61e04755jw1ewez1irgjcj20yi11yqct.jpg"></p>
 <p>
 	<small> ============== 11小时前</small>
 </p>
