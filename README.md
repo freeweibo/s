@@ -36,7 +36,7 @@
 </h2>
 <p>SPAM 不会超过数小时，就会被永远枪毙（微溥）</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3891368856561198" target="freeweibo-mirror">SPAM //@吴顾问1970://@岗头村夫://@领秀芜…</a>
 </h2>
@@ -48,7 +48,7 @@
 </h2>
 <p>SPAM 我分享了http://t.cn/RyoVvsv</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3891354105061640" target="freeweibo-mirror">SPAM 美国为什么不怕新华网、人民网？</a>
 </h2>
@@ -138,7 +138,7 @@
 </h2>
 <p>//@剑走偏锋Jeffrey: //@写字李华良: //@陈玉歌:转发微博<br><br>RE: 「多位人员在美国成功拦车」......车队经过18街与E街交叉口，当两辆凯迪拉克出现时多位人员冲过去将前面一辆凯迪拉克拦下，北京李焕君和上海葛丽芳钻到后面一辆加长的凯迪拉克的车底下，将车拦截下来......受惊后派秘书接见了这两名拦车人。<br><img src="http://ww2.sinaimg.cn/large/947145fejw1ewfosn8nhoj20g00lcdhr.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p>
 <table>
     <tr>
