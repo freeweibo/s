@@ -20,6 +20,18 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3891491473049047" target="freeweibo-mirror">[衰]//@杨武陵:唉-------------------…</a>
+</h2>
+<p>[衰]//@杨武陵:唉---------------------！<br><br>RE: 【习近平开创了向国际倾诉中国的先河】9月22日习近平在西雅图说：上世纪60年代末，我才十几岁，插队到一个叫梁家河的小村庄当农民。那时候，我和乡亲们都住在土窑里、睡在土炕上，乡亲们生活十分贫困，经常是几个月吃不到一块肉。我了解乡亲们最需要什么……！但是，这个心愿在当时是很难实现的。<br><img src="http://ww2.sinaimg.cn/large/005KcKJygw1ewf9mvon8wj30dw0bgq3s.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3891486070159183" target="freeweibo-mirror">没出息！//@天煞穆珏: 六十年代末的美国日本人民也不见得天…</a>
+</h2>
+<p>没出息！//@天煞穆珏: 六十年代末的美国日本人民也不见得天天能吃上肉，美国黑人还种族隔离呢，世界范围都在治疗战争创伤。现在西北有些贫困地区可能也还是吃不上肉呢。//@健坤强德之声闻: 想看到全文或者全部视频，再下定论！<br><br>RE: 【习近平开创了向国际倾诉中国的先河】9月22日习近平在西雅图说：上世纪60年代末，我才十几岁，插队到一个叫梁家河的小村庄当农民。那时候，我和乡亲们都住在土窑里、睡在土炕上，乡亲们生活十分贫困，经常是几个月吃不到一块肉。我了解乡亲们最需要什么……！但是，这个心愿在当时是很难实现的。<br><img src="http://ww2.sinaimg.cn/large/005KcKJygw1ewf9mvon8wj30dw0bgq3s.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3891458270485527" target="freeweibo-mirror">SPAM 西装不错嘛。 //@李文的智蹼:[礼物]</a>
 </h2>
 <p>SPAM 西装不错嘛。 //@李文的智蹼:[礼物]<br><br>RE: 中秋节，好多人在想念他！<br><img src="http://ww3.sinaimg.cn/large/41693645gw1ewg8i179a7j20dq0kq757.jpg"></p>
@@ -42,7 +54,7 @@
 </h2>
 <p>SPAM http://t.cn/RyoKsGc</p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3891403869970386" target="freeweibo-mirror">到美国躺车底为征地拆迁上访，刷新了国人上访的新纪录……为此我…</a>
 </h2>
@@ -108,7 +120,7 @@
 </h2>
 <p>分享视频：分享视频  猜猜这是哪里？在干吗？ http://t.cn/RyotQpq</p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3891361948681626" target="freeweibo-mirror">真实的新闻都在外面。</a>
 </h2>
@@ -127,18 +139,6 @@
 <p>在美国可以没有限制上新华网，为何在大陆不能自由上美国之音？其实，我们内心仍然弱小自卑，内心的强大才是真正的强大。 http://t.cn/Ryocjcn</p>
 <p>
 	<small> ============== 11小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3891346689732965" target="freeweibo-mirror">越洋上访为哪般？</a>
-</h2>
-<p>越洋上访为哪般？<br><img src="http://ww3.sinaimg.cn/large/006dBVvigw1ewfw3ro6dnj30hs13f0xt.jpg"></p>
-<p>
-	<small> ============== 12小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3891342750755712" target="freeweibo-mirror">越级上访变异//@何光伟:转发微博</a>
-</h2>
-<p>越级上访变异//@何光伟:转发微博<br><br>RE: 越国上访<br><img src="http://ww1.sinaimg.cn/large/638bf4e8jw1ewfqy6j26sj20k00b9jsc.jpg"></p>
-<p>
-	<small> ============== 12小时前</small>
 </p>
 <table>
     <tr>
