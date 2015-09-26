@@ -54,7 +54,7 @@
 </h2>
 <p>SPAM 访民都跑到美国了！ //@胖哥专用: //@刘桂娟:[吃惊]<br><br>RE: 惊扰圣驾，其罪当~<br><img src="http://ww4.sinaimg.cn/large/98c6dd80gw1ewftkfpn0zj20c80lpgof.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3891330557686806" target="freeweibo-mirror">美国人这一手真绝//@叶新Robert:转发微博</a>
 </h2>
@@ -138,7 +138,7 @@
 </h2>
 <p>//@少年不努力长大在內地: //@谢文://@LifeTime:转发微博<br><br>RE: 同在美國的這些所謂 訪民 真的夠了，居然差點撞上大大的車，在國際場合一點常識沒有，丟臉丟到國外去了！！<br><img src="http://ww1.sinaimg.cn/large/8172c7eegw1ewfmuokkt4j20p018gtbu.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p>
 <table>
     <tr>
