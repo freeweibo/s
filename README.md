@@ -90,7 +90,7 @@
 </h2>
 <p>SPAM 不和谐声音。[NO] //@草根女2:[吃惊]//@木子童童姐: //@路见不平的家001://@逝水溶冰01: //@医行天下1953:转发微博<br><br>RE: #访族呼声#习大大访美，受到了爱国访民的热烈欢迎！大家纷纷表示“还我财产，还我家园”<br><img src="http://ww3.sinaimg.cn/large/4c35595fjw1ewerri8m5ij20hr1rrdmb.jpg"></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3891092195890418" target="freeweibo-mirror">SPAM FACE，你们也配！//@王亚军上海: →_→ /…</a>
 </h2>
