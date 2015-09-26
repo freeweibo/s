@@ -42,7 +42,7 @@
 </h2>
 <p>开始删了……这次算是反映速度慢的，可能都中秋国庆前懒散了。//@景德镇行者: //@林一民围脖:推一下！[阴险] //@记者郝成:今日美国拦车者，貌似就这位了。原来，贵国的问题要这样才可以解决……</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3891331967988953" target="freeweibo-mirror">SPAM 访民都跑到美国了！ //@胖哥专用: //@刘桂娟…</a>
 </h2>
@@ -78,7 +78,7 @@
 </h2>
 <p>美国负责安保任务的特勤人员一定恨死这个贱货了//@良知在神州01:美国是故意的@美国驻华大使馆<br><br>RE: 如果这个包里面是炸弹，那么结果不堪设想。这属于美国保卫部门的严重失职。<br><img src="http://ww4.sinaimg.cn/large/75b19183gw1ewfr8diyoqj20hr09sjsl.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3891319330096354" target="freeweibo-mirror">//@剑走偏锋Jeffrey: //@写字李华良: //@陈…</a>
 </h2>
