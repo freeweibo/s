@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3891384408811546" target="freeweibo-mirror">嗐</a>
+</h2>
+<p>嗐</p>
+<p>
+	<small> ============== 27分钟前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3891368856561198" target="freeweibo-mirror">SPAM //@吴顾问1970://@岗头村夫://@领秀芜…</a>
 </h2>
 <p>SPAM //@吴顾问1970://@岗头村夫://@领秀芜湖:<br><br>RE: 越洋上访为哪般？<br><img src="http://ww3.sinaimg.cn/large/006dBVvigw1ewfw3ro6dnj30hs13f0xt.jpg"></p>
@@ -60,13 +66,13 @@
 </h2>
 <p>//@黎勇01: //@崔小平律师: //@干卫东律师:告洋状。//@张庭源律师2:拦轿伸冤美国版。 //@邻水四娃子:真有到美国上访的[吃惊] //@伍雷看夹边沟:都不容易啊 //@律师老周401://@笨笨an:转发微博<br><br>RE: 中午去参加美国务院午餐会路上出点状况，来自国内4个省市访民把车拦下了。只好留下一名高官善后。美国主要媒体还算厚道，并没有公开报道，社交媒体有些报道。都不容易。</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3891337704780641" target="freeweibo-mirror">[围观]//@上官云开记者: //@南通维权陆红霞二世://…</a>
 </h2>
 <p>[围观]//@上官云开记者: //@南通维权陆红霞二世://@腾龙布雨://@一条静静的鳄鱼: //@陈光武律师: //@深圳朱律师: 拦轿喊冤的？ //@崔小平律师://@何光伟:转发微博<br><br>RE: 越国上访<br><img src="http://ww1.sinaimg.cn/large/638bf4e8jw1ewfqy6j26sj20k00b9jsc.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3891336815869977" target="freeweibo-mirror">开始删了……这次算是反映速度慢的，可能都中秋国庆前懒散了。/…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3891313936109242" target="freeweibo-mirror">让国宾被拦车，美国的安保也太烂了吧？</a>
 </h2>
 <p>让国宾被拦车，美国的安保也太烂了吧？<br><br>RE: 如果这个包里面是炸弹，那么结果不堪设想。这属于美国保卫部门的严重失职。<br><img src="http://ww4.sinaimg.cn/large/75b19183gw1ewfr8diyoqj20hr09sjsl.jpg"></p>
-<p>
-	<small> ============== 5小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3891308349835129" target="freeweibo-mirror">中国拿出去评奖的影片大多都是讲中国穷、愚昧、同性恋、文革这种…</a>
-</h2>
-<p>中国拿出去评奖的影片大多都是讲中国穷、愚昧、同性恋、文革这种题材的，认为中国有皇帝算不错了，他们应该以为中国人都住山洞。<br><br>RE: “我本以为中国还有皇帝”，美国一中学生在习总访问后说。这一句话充分说明了美国政府对美国孩子的洗脑是多么可怕，一个民主国家的中学生竟然有如此弱智的想法……</p>
 <p>
 	<small> ============== 5小时前</small>
 </p>
