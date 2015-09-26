@@ -90,7 +90,7 @@
 </h2>
 <p>SPAM 不和谐声音。[NO] //@草根女2:[吃惊]//@木子童童姐: //@路见不平的家001://@逝水溶冰01: //@医行天下1953:转发微博<br><br>RE: #访族呼声#习大大访美，受到了爱国访民的热烈欢迎！大家纷纷表示“还我财产，还我家园”<br><img src="http://ww3.sinaimg.cn/large/4c35595fjw1ewerri8m5ij20hr1rrdmb.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3891092195890418" target="freeweibo-mirror">SPAM FACE，你们也配！//@王亚军上海: →_→ /…</a>
 </h2>
@@ -114,7 +114,7 @@
 </h2>
 <p>其实党和国家领导人们还是很喜欢美国的。允许妖魔化美国是一种政治需要。有一个外敌（不管是真实的还是假想的）能让民众团结在自己周围。</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3891087385539232" target="freeweibo-mirror">//@广州城堡堡主:报告首长，百团大战有一个团可能叛变了，现…</a>
 </h2>
