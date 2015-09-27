@@ -36,7 +36,7 @@
 </h2>
 <p>回复@我是天上最帅的:Xi是贵国领导人吧。//@我是天上最帅的:中国俩字在哪里？<br><br>RE: 希拉里加入敲打中国行列……[挖鼻]<br><img src="http://ww3.sinaimg.cn/large/6d0b6b33gw1ewhbywbhomj20hs0fx404.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3891804615347742" target="freeweibo-mirror">SPAM 的确该彻查 @人民日报，如何被渗透到</a>
 </h2>
@@ -50,11 +50,17 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3891798382674458" target="freeweibo-mirror">希拉里加入敲打中国行列……[挖鼻]</a>
+</h2>
+<p>希拉里加入敲打中国行列……[挖鼻]<br><img src="http://ww3.sinaimg.cn/large/6d0b6b33gw1ewhbywbhomj20hs0fx404.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3891797258830206" target="freeweibo-mirror">SPAM 境外敌对势力太猖狂了！我抗议！[怒]</a>
 </h2>
 <p>SPAM 境外敌对势力太猖狂了！我抗议！[怒]<br><img src="http://ww2.sinaimg.cn/large/61c02bf2gw1ewhbudyqzxj20hs0vk76v.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3891793663584095" target="freeweibo-mirror">SPAM 噴了！是真的！</a>
 </h2>
@@ -96,7 +102,7 @@
 </h2>
 <p>@上海老哥: @布衣老头子: 人心向背心的和谐是维稳武器永远不能达到的，解决不了社会的和谐。只有民主自由平等宪政的制度可以做到。二亿公民四亿多条枪的美国没有维稳武警。 @围观中国--李长新: 中国人民出奇迹新创举，到国外拦中国领导车喊冤？！！！<br><br>RE: 到美国去上访！！！！！社会主义好,社会主义好!社会主义国家人民地位高,共产党好,共产党好!共产党是人民的好领导,说得到,做得到,全心全意为了人民立功劳！<br><img src="http://ww4.sinaimg.cn/large/8d5e6ddfjw1ewh4jffowdj20cs1kr7cs.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3891764488018483" target="freeweibo-mirror">@大道小理李寻刀: 怎么会这样？//@手机用户2661136…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3891758326966283" target="freeweibo-mirror">啥时候给自己的国民做个这样的承诺？ //@淡淡的丁香2:来看…</a>
 </h2>
 <p>啥时候给自己的国民做个这样的承诺？ //@淡淡的丁香2:来看评论的！ //@老芋头:转发微博</p>
-<p>
-	<small> ============== 5小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3891758104071040" target="freeweibo-mirror">又是一年了！我的律师大个子、我的朋友许志永、贾灵敏等正道直行…</a>
-</h2>
-<p>又是一年了！我的律师大个子、我的朋友许志永、贾灵敏等正道直行之人，仍在身陷囹圄不得自由。我衷心地希望，今晚的月光，能照进大墙之内；他们在监禁场所里，能够得到各方面的善待，并早日恢复清白自由之身。而身在外面的我们，还要为之付出更多的努力。 http://t.cn/Rh5nLXA</p>
 <p>
 	<small> ============== 5小时前</small>
 </p>
