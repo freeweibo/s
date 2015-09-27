@@ -20,11 +20,23 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3891856825494574" target="freeweibo-mirror">//@愚民512: //@渔夫转播://@刘志强律师:这是哪…</a>
+</h2>
+<p>//@愚民512: //@渔夫转播://@刘志强律师:这是哪里的媒体？</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3891853331725577" target="freeweibo-mirror">我觉得这样评价“中国人”不妥，“中国人”是没有权力和资格禁脸…</a>
+</h2>
+<p>我觉得这样评价“中国人”不妥，“中国人”是没有权力和资格禁脸谱的。谁有权禁就批评谁才对啊。</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3891823707447886" target="freeweibo-mirror">//@郑维:党国机密，不可追问。另向王岐山书记致敬 //@沪…</a>
 </h2>
 <p>//@郑维:党国机密，不可追问。另向王岐山书记致敬 //@沪港小生:出來混，遲早要還的，黨員也不例外。</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3891822461647893" target="freeweibo-mirror">//@早社://@渝泰然处之3: //@台风小K://@读爱…</a>
 </h2>
@@ -66,7 +78,7 @@
 </h2>
 <p>这点小事，以后注意点就行了。我们大家不批评所谓腐败，只批评无能，比如 @人民日报 让打乒乓球的去做搜索，20亿怎么样了？不要嘴硬，批评别人把自己搞死了。 //@外媒实译:擅自变更路线，是要额外花费公款的，怎么就不该处分涅？//@不沉默的大多数:@人民日报<br><br>RE: 腐败你妈个头！今天这个文件让许多人象吸了毒一样兴奋。胡锡进管理一个影响大，收入不错的媒体，一个活动决定让嘉宾到波兰转了转，这本就是他的权限。这都处分，还怎么工作？那些看胡不爽的借这个咬，真是贱到骨子里，平时人民日报什么你都不支持，支持处理胡了。贱货！ http://t.cn/R2WJ0LW<br><img src="http://ww3.sinaimg.cn/large/5854ac96jw1ewh2lwls2nj20gh0l1myq.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3891804615347742" target="freeweibo-mirror">SPAM 的确该彻查 @人民日报，如何被渗透到</a>
 </h2>
@@ -126,19 +138,7 @@
 </h2>
 <p>SPAM 噴了！是真的！<br><img src="http://ww3.sinaimg.cn/large/5938d248gw1ewhbfmm0qgj20ku0ildhs.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3891788680763629" target="freeweibo-mirror">马歇尔计划听说过吗？//@好火药: 哪个国家的元首敢长期随便…</a>
-</h2>
-<p>马歇尔计划听说过吗？//@好火药: 哪个国家的元首敢长期随便拿压榨民众的钱去收买讨好别的国家，以巩固政权</p>
-<p>
 	<small> ============== 6小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3891776047614989" target="freeweibo-mirror">胡编被处分一事尚未得到证实，网上已有人为环球拟好了社评《总编…</a>
-</h2>
-<p>胡编被处分一事尚未得到证实，网上已有人为环球拟好了社评《总编受处分彰显自我监督完备》、《内部处分轮不着敌对势力幸灾乐祸》、《要允许工作人员适度腐败》。PS：这是位几十年如一日，苦口婆心做说服教育工作的优秀童稚，一个高尚的人，一个纯粹的人，一个有益于人民的人，怎么会堕落受处分呢？<br><img src="http://ww4.sinaimg.cn/large/4c7c1ba8gw1ewh9eyv9k6j20go0m8gmt.jpg"></p>
-<p>
-	<small> ============== 7小时前</small>
 </p>
 <table>
     <tr>
