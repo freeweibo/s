@@ -24,7 +24,13 @@
 </h2>
 <p>//@郑维:党国机密，不可追问。另向王岐山书记致敬 //@沪港小生:出來混，遲早要還的，黨員也不例外。</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3891822461647893" target="freeweibo-mirror">//@早社://@渝泰然处之3: //@台风小K://@读爱…</a>
+</h2>
+<p>//@早社://@渝泰然处之3: //@台风小K://@读爱微评12: 没有肉吃，记恨毛泽东，却迁怒薄熙来，一块非洲腊肉就把大哥送进了风波亭！</p>
+<p>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3891815490703224" target="freeweibo-mirror">//@沈向东大连:他是什么材料制成的？！[哈哈]//@纪昀:…</a>
 </h2>
@@ -96,7 +102,7 @@
 </h2>
 <p>SPAM 噴了！是真的！<br><img src="http://ww3.sinaimg.cn/large/5938d248gw1ewhbfmm0qgj20ku0ildhs.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3891788680763629" target="freeweibo-mirror">马歇尔计划听说过吗？//@好火药: 哪个国家的元首敢长期随便…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3891768238315822" target="freeweibo-mirror">SPAM 气起来就撒钱</a>
 </h2>
 <p>SPAM 气起来就撒钱<br><br>RE: 联合国大会是最散漫的地方。<br><img src="http://ww4.sinaimg.cn/large/9ddb72ebjw1ewgnsar51rj20hs0buq48.jpg"></p>
-<p>
-	<small> ============== 5小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3891766811660678" target="freeweibo-mirror">@上海老哥: @布衣老头子: 人心向背心的和谐是维稳武器永远…</a>
-</h2>
-<p>@上海老哥: @布衣老头子: 人心向背心的和谐是维稳武器永远不能达到的，解决不了社会的和谐。只有民主自由平等宪政的制度可以做到。二亿公民四亿多条枪的美国没有维稳武警。 @围观中国--李长新: 中国人民出奇迹新创举，到国外拦中国领导车喊冤？！！！<br><br>RE: 到美国去上访！！！！！社会主义好,社会主义好!社会主义国家人民地位高,共产党好,共产党好!共产党是人民的好领导,说得到,做得到,全心全意为了人民立功劳！<br><img src="http://ww4.sinaimg.cn/large/8d5e6ddfjw1ewh4jffowdj20cs1kr7cs.jpg"></p>
 <p>
 	<small> ============== 5小时前</small>
 </p>
