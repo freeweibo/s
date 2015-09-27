@@ -24,7 +24,7 @@
 </h2>
 <p>SPAM 气起来就撒钱<br><br>RE: 联合国大会是最散漫的地方。<br><img src="http://ww4.sinaimg.cn/large/9ddb72ebjw1ewgnsar51rj20hs0buq48.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3891764223608999" target="freeweibo-mirror">//@赵克罗:今晚的月亮能照进墙内墙外！ //@朱孝顶律师:…</a>
 </h2>
