@@ -32,6 +32,12 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3891582451413987" target="freeweibo-mirror">@杨杨ljm: 千古奇景[嘻嘻]，我们国家领导人要脸，就怕把…</a>
+</h2>
+<p>@杨杨ljm: 千古奇景[嘻嘻]，我们国家领导人要脸，就怕把脸丢到外面，可国人可不怕这个，在国外干尽了丢人事[嘻嘻]//@我在等你AA: [思考][思考][思考]<br><br>RE: 越洋“告御状”就是不一样。[鼓掌][鼓掌][鼓掌]<br><img src="http://ww2.sinaimg.cn/large/6a83dd8ejw1ewg5h4gtq7j20gs0qotas.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3891547953120316" target="freeweibo-mirror">SPAM 丢中国人脸的访问。</a>
 </h2>
 <p>SPAM 丢中国人脸的访问。<br><br>RE: 我分享了@却道风景依然 的文章 http://t.cn/RyoB7iI</p>
@@ -42,7 +48,7 @@
 </h2>
 <p>这样的出勤率，该点名册伺候了！<br><img src="http://ww3.sinaimg.cn/large/6cfd6289gw1ewgiusnsaej20hs0bumz1.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3891535744004532" target="freeweibo-mirror">只要能为美国人民谋利益，奥巴马随时准备为习总提鞋。//@大力…</a>
 </h2>
@@ -54,7 +60,7 @@
 </h2>
 <p>我分享了@却道风景依然 的文章 http://t.cn/RyoB7iI</p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3891491473049047" target="freeweibo-mirror">[衰]//@杨武陵:唉-------------------…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3891384408811546" target="freeweibo-mirror">嗐</a>
 </h2>
 <p>嗐</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3891380268575227" target="freeweibo-mirror">//@地球剑客: //@广东巫冠聪: 到美国上访去</a>
-</h2>
-<p>//@地球剑客: //@广东巫冠聪: 到美国上访去</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
