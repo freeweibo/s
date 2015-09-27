@@ -42,7 +42,7 @@
 </h2>
 <p>SPAM 丢中国人脸的访问。<br><br>RE: 我分享了@却道风景依然 的文章 http://t.cn/RyoB7iI</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3891544916991638" target="freeweibo-mirror">这样的出勤率，该点名册伺候了！</a>
 </h2>
