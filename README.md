@@ -102,7 +102,7 @@
 </h2>
 <p>//@手机用户2661136510: 中国美国谁才为人民服务？//@围观中国--李长新: 中国人民出奇迹新创举，到国外揽中国领导车喊冤？！！！<br><br>RE: 到美国去上访！！！！！社会主义好,社会主义好!社会主义国家人民地位高,共产党好,共产党好!共产党是人民的好领导,说得到,做得到,全心全意为了人民立功劳！<br><img src="http://ww4.sinaimg.cn/large/8d5e6ddfjw1ewh4jffowdj20cs1kr7cs.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3891745509576117" target="freeweibo-mirror">SPAM 每逢佳节BASS亲[色]BASS最亲裸女群[鼓掌]…</a>
 </h2>
