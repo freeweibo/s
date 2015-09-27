@@ -84,7 +84,7 @@
 </h2>
 <p>SPAM 差别这么大？没想到！//@Fenng:不错…<br><br>RE: 演讲是一门技术。<br><img src="http://ww4.sinaimg.cn/large/dd816182gw1ewgngmjzjlj20fb09875c.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3891628609964780" target="freeweibo-mirror">美国免除巴基斯坦债务 http://t.cn/RyKy6zM…</a>
 </h2>
@@ -120,7 +120,7 @@
 </h2>
 <p>肯定是送票工作没做好！不要紧，等回国以后，各级领导干部一组织就一群，优越感就回来了！[偷笑][嘻嘻]<br><br>RE: 演讲是一门技术。<br><img src="http://ww4.sinaimg.cn/large/dd816182gw1ewgngmjzjlj20fb09875c.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3891603162475770" target="freeweibo-mirror">@联合国 没安排群众听会补座，没安排人带头鼓掌吗？太不了解中…</a>
 </h2>
