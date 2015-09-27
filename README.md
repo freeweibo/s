@@ -24,7 +24,7 @@
 </h2>
 <p>SPAM 丢中国人脸的访问。<br><br>RE: 我分享了@却道风景依然 的文章 http://t.cn/RyoB7iI</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3891535744004532" target="freeweibo-mirror">只要能为美国人民谋利益，奥巴马随时准备为习总提鞋。//@大力…</a>
 </h2>
