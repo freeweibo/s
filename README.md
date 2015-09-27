@@ -32,6 +32,18 @@
 <p>
 	<small> ============== 1小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3891630547162974" target="freeweibo-mirror">SPAM 差别这么大？没想到！//@Fenng:不错…</a>
+</h2>
+<p>SPAM 差别这么大？没想到！//@Fenng:不错…<br><br>RE: 演讲是一门技术。<br><img src="http://ww4.sinaimg.cn/large/dd816182gw1ewgngmjzjlj20fb09875c.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3891628609964780" target="freeweibo-mirror">美国免除巴基斯坦债务 http://t.cn/RyKy6zM…</a>
+</h2>
+<p>美国免除巴基斯坦债务 http://t.cn/RyKy6zM 免阿富汗债务 http://t.cn/RyKy6zc 呼吁中国免除伊拉克债务http://t.cn/RyKy6zt 要求日本免除埃及债务 http://t.cn/RyKy6zI 右边,像你这样每天一睁眼就期盼能看到中国负面新闻并击节而歌的臭虫, ,真理解么?//@琢磨先生: 来的免除债务,教皇能做到吗？哼！<br><br>RE: 演讲是一门技术。<br><img src="http://ww4.sinaimg.cn/large/dd816182gw1ewgngmjzjlj20fb09875c.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3891623626472902" target="freeweibo-mirror">白区，就是五毛去不了的地方。 //@陶景洲:@联合国 也有责…</a>
 </h2>
 <p>白区，就是五毛去不了的地方。 //@陶景洲:@联合国 也有责任！ //@jereed_z:习办主任组织不力，有伤国体，归国查办//@都梁老罗:你们就这么对待财神？[怒] //@倦鸟归巢9908:在座的大概就是铁杆盟友！哼！习大大发表重要讲话，竟然如此怠慢！让中国人民情何以堪！//@杨子评:可怜啊，自弹自唱。</p>
@@ -50,15 +62,33 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3891615368727810" target="freeweibo-mirror">肯定是送票工作没做好！不要紧，等回国以后，各级领导干部一组织…</a>
+</h2>
+<p>肯定是送票工作没做好！不要紧，等回国以后，各级领导干部一组织就一群，优越感就回来了！[偷笑][嘻嘻]<br><br>RE: 演讲是一门技术。<br><img src="http://ww4.sinaimg.cn/large/dd816182gw1ewgngmjzjlj20fb09875c.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3891603162475770" target="freeweibo-mirror">@联合国 没安排群众听会补座，没安排人带头鼓掌吗？太不了解中…</a>
+</h2>
+<p>@联合国 没安排群众听会补座，没安排人带头鼓掌吗？太不了解中国国情啦！<br><br>RE: 【座无虚席】习大大出席联合国峰会画面，@人民日报  会怎么报道？<br><img src="http://ww3.sinaimg.cn/large/e0fff2a7gw1ewgdq0px6dj20hs0ckjsd.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3891598322464086" target="freeweibo-mirror">伟人一到，帝国主义夹着尾巴逃跑了[哈哈]</a>
 </h2>
 <p>伟人一到，帝国主义夹着尾巴逃跑了[哈哈]<br><img src="http://ww1.sinaimg.cn/large/b08fb95bgw1ewgoz41mxmj20c80epmz9.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3891593221946012" target="freeweibo-mirror">SPAM //@龙化石: //@转帖小王://@泉州de人:…</a>
 </h2>
 <p>SPAM //@龙化石: //@转帖小王://@泉州de人://@宝鸡卧佛寺侯煜: //@蚂蚊搬掉泰山405932: //@老骥微言://@八桂直播: 信访开辟新途径。[酷]@鐵血桂軍- @屈子赋<br><br>RE: 越洋“告御状”就是不一样。[鼓掌][鼓掌][鼓掌]<br><img src="http://ww2.sinaimg.cn/large/6a83dd8ejw1ewg5h4gtq7j20gs0qotas.jpg"></p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3891589233083729" target="freeweibo-mirror">SPAM 票房</a>
+</h2>
+<p>SPAM 票房<br><br>RE: 演讲是一门技术。<br><img src="http://ww4.sinaimg.cn/large/dd816182gw1ewgngmjzjlj20fb09875c.jpg"></p>
 <p>
 	<small> ============== 4小时前</small>
 </p><h2>
@@ -72,13 +102,13 @@
 </h2>
 <p>[哈哈]//@庐山瀑布01:借钱也没有下次！//@醉卧溪山品香茗:强烈谴责未到国家，到期债务一概不免！<br><br>RE: 这样的出勤率，该点名册伺候了！<br><img src="http://ww3.sinaimg.cn/large/6cfd6289gw1ewgiusnsaej20hs0bumz1.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3891582451413987" target="freeweibo-mirror">@杨杨ljm: 千古奇景[嘻嘻]，我们国家领导人要脸，就怕把…</a>
 </h2>
 <p>@杨杨ljm: 千古奇景[嘻嘻]，我们国家领导人要脸，就怕把脸丢到外面，可国人可不怕这个，在国外干尽了丢人事[嘻嘻]//@我在等你AA: [思考][思考][思考]<br><br>RE: 越洋“告御状”就是不一样。[鼓掌][鼓掌][鼓掌]<br><img src="http://ww2.sinaimg.cn/large/6a83dd8ejw1ewg5h4gtq7j20gs0qotas.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3891547953120316" target="freeweibo-mirror">SPAM 丢中国人脸的访问。</a>
 </h2>
@@ -104,41 +134,11 @@
 <p>
 	<small> ============== 9小时前</small>
 </p><h2>
-	<a href="https://freeweibo.com/weibo/3891491473049047" target="freeweibo-mirror">[衰]//@杨武陵:唉-------------------…</a>
+	<a href="https://freeweibo.com/weibo/3891498116195113" target="freeweibo-mirror">[偷笑][偷笑][偷笑]</a>
 </h2>
-<p>[衰]//@杨武陵:唉---------------------！<br><br>RE: 【习近平开创了向国际倾诉中国的先河】9月22日习近平在西雅图说：上世纪60年代末，我才十几岁，插队到一个叫梁家河的小村庄当农民。那时候，我和乡亲们都住在土窑里、睡在土炕上，乡亲们生活十分贫困，经常是几个月吃不到一块肉。我了解乡亲们最需要什么……！但是，这个心愿在当时是很难实现的。<br><img src="http://ww2.sinaimg.cn/large/005KcKJygw1ewf9mvon8wj30dw0bgq3s.jpg"></p>
+<p>[偷笑][偷笑][偷笑]<br><img src="http://ww4.sinaimg.cn/large/a68d6077jw1ewgdht24spj20qo0zk42t.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3891486070159183" target="freeweibo-mirror">没出息！//@天煞穆珏: 六十年代末的美国日本人民也不见得天…</a>
-</h2>
-<p>没出息！//@天煞穆珏: 六十年代末的美国日本人民也不见得天天能吃上肉，美国黑人还种族隔离呢，世界范围都在治疗战争创伤。现在西北有些贫困地区可能也还是吃不上肉呢。//@健坤强德之声闻: 想看到全文或者全部视频，再下定论！<br><br>RE: 【习近平开创了向国际倾诉中国的先河】9月22日习近平在西雅图说：上世纪60年代末，我才十几岁，插队到一个叫梁家河的小村庄当农民。那时候，我和乡亲们都住在土窑里、睡在土炕上，乡亲们生活十分贫困，经常是几个月吃不到一块肉。我了解乡亲们最需要什么……！但是，这个心愿在当时是很难实现的。<br><img src="http://ww2.sinaimg.cn/large/005KcKJygw1ewf9mvon8wj30dw0bgq3s.jpg"></p>
-<p>
-	<small> ============== 11小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3891476884591186" target="freeweibo-mirror">大豆，近一千三百万吨！//@健坤强德之声闻: 这事该有反转！…</a>
-</h2>
-<p>大豆，近一千三百万吨！//@健坤强德之声闻: 这事该有反转！//@清越微博1:转基因肉！[哈哈]//@风中的蒲公英云: 其实最主要想表达自中国跟美国混以后才吃上肉//@健坤强德之声闻:什么意思？//@清越微博1:看看家里头！//@健坤强德之声闻: 想看到全文或者全部视频，再下定论！//@清越微博1:丢脸！/<br><br>RE: 【习近平开创了向国际倾诉中国的先河】9月22日习近平在西雅图说：上世纪60年代末，我才十几岁，插队到一个叫梁家河的小村庄当农民。那时候，我和乡亲们都住在土窑里、睡在土炕上，乡亲们生活十分贫困，经常是几个月吃不到一块肉。我了解乡亲们最需要什么……！但是，这个心愿在当时是很难实现的。<br><img src="http://ww2.sinaimg.cn/large/005KcKJygw1ewf9mvon8wj30dw0bgq3s.jpg"></p>
-<p>
-	<small> ============== 11小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3891475416999421" target="freeweibo-mirror">转基因肉！[哈哈]//@风中的蒲公英云: 其实最主要想表达自…</a>
-</h2>
-<p>转基因肉！[哈哈]//@风中的蒲公英云: 其实最主要想表达自中国跟美国混以后才吃上肉//@健坤强德之声闻:什么意思？//@清越微博1:看看家里头！//@健坤强德之声闻: 想看到全文或者全部视频，再下定论！//@清越微博1:丢脸！//@欢乐小猪2013-2: //@路鉴醒OK:一个就知道逃，一个就知道吃，中国希望在那里？<br><br>RE: 【习近平开创了向国际倾诉中国的先河】9月22日习近平在西雅图说：上世纪60年代末，我才十几岁，插队到一个叫梁家河的小村庄当农民。那时候，我和乡亲们都住在土窑里、睡在土炕上，乡亲们生活十分贫困，经常是几个月吃不到一块肉。我了解乡亲们最需要什么……！但是，这个心愿在当时是很难实现的。<br><img src="http://ww2.sinaimg.cn/large/005KcKJygw1ewf9mvon8wj30dw0bgq3s.jpg"></p>
-<p>
-	<small> ============== 12小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3891474523405256" target="freeweibo-mirror">你闻到臭味没有？！//@清越微博1: 国有企业改革八盘菜！/…</a>
-</h2>
-<p>你闻到臭味没有？！//@清越微博1: 国有企业改革八盘菜！//@健坤强德之声闻: 什么意思？//@清越微博1:看看家里头！//@健坤强德之声闻: 想看到全文或者全部视频，再下定论！//@清越微博1:丢脸！//@欢乐小猪2013-2: //@路鉴醒OK:一个就知道逃，一个就知道吃，中国希望在那里？<br><br>RE: 【习近平开创了向国际倾诉中国的先河】9月22日习近平在西雅图说：上世纪60年代末，我才十几岁，插队到一个叫梁家河的小村庄当农民。那时候，我和乡亲们都住在土窑里、睡在土炕上，乡亲们生活十分贫困，经常是几个月吃不到一块肉。我了解乡亲们最需要什么……！但是，这个心愿在当时是很难实现的。<br><img src="http://ww2.sinaimg.cn/large/005KcKJygw1ewf9mvon8wj30dw0bgq3s.jpg"></p>
-<p>
-	<small> ============== 12小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3891474271813222" target="freeweibo-mirror">国有企业改革八盘菜！//@健坤强德之声闻: 什么意思？//@…</a>
-</h2>
-<p>国有企业改革八盘菜！//@健坤强德之声闻: 什么意思？//@清越微博1:看看家里头！//@健坤强德之声闻: 想看到全文或者全部视频，再下定论！//@清越微博1:丢脸！//@欢乐小猪2013-2: //@路鉴醒OK:一个就知道逃，一个就知道吃，中国希望在那里？<br><br>RE: 【习近平开创了向国际倾诉中国的先河】9月22日习近平在西雅图说：上世纪60年代末，我才十几岁，插队到一个叫梁家河的小村庄当农民。那时候，我和乡亲们都住在土窑里、睡在土炕上，乡亲们生活十分贫困，经常是几个月吃不到一块肉。我了解乡亲们最需要什么……！但是，这个心愿在当时是很难实现的。<br><img src="http://ww2.sinaimg.cn/large/005KcKJygw1ewf9mvon8wj30dw0bgq3s.jpg"></p>
-<p>
-	<small> ============== 12小时前</small>
+	<small> ============== 10小时前</small>
 </p>
 <table>
     <tr>
