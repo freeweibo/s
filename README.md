@@ -32,6 +32,12 @@
 <p>
 	<small> ============== 4小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3891544916991638" target="freeweibo-mirror">这样的出勤率，该点名册伺候了！</a>
+</h2>
+<p>这样的出勤率，该点名册伺候了！<br><img src="http://ww3.sinaimg.cn/large/6cfd6289gw1ewgiusnsaej20hs0bumz1.jpg"></p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3891535744004532" target="freeweibo-mirror">只要能为美国人民谋利益，奥巴马随时准备为习总提鞋。//@大力…</a>
 </h2>
 <p>只要能为美国人民谋利益，奥巴马随时准备为习总提鞋。//@大力水手AAA:见利忘义的奥黑鬼[衰]//@顾猷: 当奥巴马在做这些的时候，他心里在想什么呢？ //@LifeTime:转发微博<br><br>RE: 【够朋友】奥巴马为了不让他看到抗议者，先是把拉法耶特广场关到11点，交涉后不得不开放，但又把白宫的北阳台遮蔽起来。白宫的主人做了所有他能做的，让客人感到心情愉快。<br><img src="http://ww4.sinaimg.cn/large/9baa2a12jw1ewfewhxo2ej20fm0kuaby.jpg"></p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3891380184970841" target="freeweibo-mirror">什么人？竟敢在中华人民共和国驻美国大使馆门口张贴“拆”字，请…</a>
 </h2>
 <p>什么人？竟敢在中华人民共和国驻美国大使馆门口张贴“拆”字，请@公安部刑侦局 严查，依法追究有关责任！<br><img src="http://ww1.sinaimg.cn/large/7db92c47gw1ewfzrekidwj20fu0qo4ba.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3891380068173170" target="freeweibo-mirror">SPAM 你在cctv看100年也看不到的。</a>
-</h2>
-<p>SPAM 你在cctv看100年也看不到的。</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
