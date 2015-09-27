@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3891653578652980" target="freeweibo-mirror">//@老杜找乐儿: 中文标语上的字很漂亮</a>
+</h2>
+<p>//@老杜找乐儿: 中文标语上的字很漂亮</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3891637904029549" target="freeweibo-mirror">这些缺席的国家领导人对习主席真是大大不敬，大家说应该怎样处理…</a>
 </h2>
 <p>这些缺席的国家领导人对习主席真是大大不敬，大家说应该怎样处理？<br><img src="http://ww2.sinaimg.cn/large/4c148083jw1ewgtj0u1chj20c8085dh0.jpg"></p>
@@ -35,6 +41,12 @@
 	<a href="https://freeweibo.com/weibo/3891637841591242" target="freeweibo-mirror">回复@全唐人狂朝:結果呢，送了多少領土出去？//@全唐人狂朝…</a>
 </h2>
 <p>回复@全唐人狂朝:結果呢，送了多少領土出去？//@全唐人狂朝:珍宝岛反苏修大三线哪个不是对付苏联的？//@廖伟棠:是跪舔蘇俄，不死不休吧？</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3891636930673433" target="freeweibo-mirror">SPAM  //@秋日往事://@LEENIO: //@封神…</a>
+</h2>
+<p>SPAM  //@秋日往事://@LEENIO: //@封神祭十二叔://@都梁老罗:你们就这么对待财神？[怒] //@倦鸟归巢9908:在座的大概就是铁杆盟友！哼！习大大发表重要讲话，竟然如此怠慢！让中国人民情何以堪！//@杨子评:可怜啊，自弹自唱。</p>
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
@@ -125,18 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3891585034990648" target="freeweibo-mirror">演讲是一门技术。</a>
 </h2>
 <p>演讲是一门技术。<br><img src="http://ww4.sinaimg.cn/large/dd816182gw1ewgngmjzjlj20fb09875c.jpg"></p>
-<p>
-	<small> ============== 5小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3891582962615495" target="freeweibo-mirror">[哈哈]//@庐山瀑布01:借钱也没有下次！//@醉卧溪山品…</a>
-</h2>
-<p>[哈哈]//@庐山瀑布01:借钱也没有下次！//@醉卧溪山品香茗:强烈谴责未到国家，到期债务一概不免！<br><br>RE: 这样的出勤率，该点名册伺候了！<br><img src="http://ww3.sinaimg.cn/large/6cfd6289gw1ewgiusnsaej20hs0bumz1.jpg"></p>
-<p>
-	<small> ============== 5小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3891582451413987" target="freeweibo-mirror">@杨杨ljm: 千古奇景[嘻嘻]，我们国家领导人要脸，就怕把…</a>
-</h2>
-<p>@杨杨ljm: 千古奇景[嘻嘻]，我们国家领导人要脸，就怕把脸丢到外面，可国人可不怕这个，在国外干尽了丢人事[嘻嘻]//@我在等你AA: [思考][思考][思考]<br><br>RE: 越洋“告御状”就是不一样。[鼓掌][鼓掌][鼓掌]<br><img src="http://ww2.sinaimg.cn/large/6a83dd8ejw1ewg5h4gtq7j20gs0qotas.jpg"></p>
 <p>
 	<small> ============== 5小时前</small>
 </p>
