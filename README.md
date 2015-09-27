@@ -30,7 +30,7 @@
 </h2>
 <p>SPAM 境外敌对势力太猖狂了！我抗议！[怒]<br><img src="http://ww2.sinaimg.cn/large/61c02bf2gw1ewhbudyqzxj20hs0vk76v.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3891788680763629" target="freeweibo-mirror">马歇尔计划听说过吗？//@好火药: 哪个国家的元首敢长期随便…</a>
 </h2>
@@ -60,7 +60,7 @@
 </h2>
 <p>@上海老哥: @布衣老头子: 人心向背心的和谐是维稳武器永远不能达到的，解决不了社会的和谐。只有民主自由平等宪政的制度可以做到。二亿公民四亿多条枪的美国没有维稳武警。 @围观中国--李长新: 中国人民出奇迹新创举，到国外拦中国领导车喊冤？！！！<br><br>RE: 到美国去上访！！！！！社会主义好,社会主义好!社会主义国家人民地位高,共产党好,共产党好!共产党是人民的好领导,说得到,做得到,全心全意为了人民立功劳！<br><img src="http://ww4.sinaimg.cn/large/8d5e6ddfjw1ewh4jffowdj20cs1kr7cs.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3891764488018483" target="freeweibo-mirror">@大道小理李寻刀: 怎么会这样？//@手机用户2661136…</a>
 </h2>
