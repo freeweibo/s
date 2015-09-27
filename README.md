@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3891863792206441" target="freeweibo-mirror">//@和合邓润:西门扯淡 //@光远看经济:这话实在太尖锐，…</a>
+</h2>
+<p>//@和合邓润:西门扯淡 //@光远看经济:这话实在太尖锐，对推动中国进步其实无益。//@胡说金融:太尖锐啦[吃惊]</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3891860608860428" target="freeweibo-mirror">不要脸的都道貌岸然。 //@罗伯特Hollywood: //…</a>
 </h2>
 <p>不要脸的都道貌岸然。 //@罗伯特Hollywood: //@洛兵:又不是你我墙掉的FB，时代周刊不敢点正主的名，就说中国人不知羞耻，这才是真正的不要脸加不知羞耻，值得你挨刺吗？</p>
@@ -60,7 +66,7 @@
 </h2>
 <p>我觉得这样评价“中国人”不妥，“中国人”是没有权力和资格禁脸谱的。谁有权禁就批评谁才对啊。</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3891851746309565" target="freeweibo-mirror">这是哪里的媒体？</a>
 </h2>
@@ -102,7 +108,7 @@
 </h2>
 <p>//@郑维:党国机密，不可追问。另向王岐山书记致敬 //@沪港小生:出來混，遲早要還的，黨員也不例外。</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3891822461647893" target="freeweibo-mirror">//@早社://@渝泰然处之3: //@台风小K://@读爱…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3891811565022280" target="freeweibo-mirror">回复@我是天上最帅的:Xi是贵国领导人吧。//@我是天上最帅…</a>
 </h2>
 <p>回复@我是天上最帅的:Xi是贵国领导人吧。//@我是天上最帅的:中国俩字在哪里？<br><br>RE: 希拉里加入敲打中国行列……[挖鼻]<br><img src="http://ww3.sinaimg.cn/large/6d0b6b33gw1ewhbywbhomj20hs0fx404.jpg"></p>
-<p>
-	<small> ============== 5小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3891810491400966" target="freeweibo-mirror">评胡锡进事：一，如此事违反现行规定，处分说得过去，组织纪律要…</a>
-</h2>
-<p>评胡锡进事：一，如此事违反现行规定，处分说得过去，组织纪律要有。二，这种规定失之过苛，胡锡进主持环球时报工作，居然连这点经营自主权都没有？难以想象。比处分胡更重要的是改进现行规定。类似，反腐不要变成剥夺国企经营自主权、堵塞国际学术交流。三，把这说成胡腐败的人是展示自己品质问题吧？<br><img src="http://ww4.sinaimg.cn/large/4b18c48fgw1ewhd0j8y8pj20c80fmgmt.jpg"></p>
 <p>
 	<small> ============== 5小时前</small>
 </p>
