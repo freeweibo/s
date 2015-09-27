@@ -96,7 +96,7 @@
 </h2>
 <p>问：胡锡进2013年6月违纪的事到2015年9月才处分，且在胡锡进高调拥护共产主义之际，是因为调查取证困难，还是释放什么信号？[思考]<br><br>RE: 环球时报总编胡锡进因腐败被处分[疑问]这......<br><img src="http://ww3.sinaimg.cn/large/7061c249gw1ewgvlyc81hj20c82a2h7k.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3891798382674458" target="freeweibo-mirror">希拉里加入敲打中国行列……[挖鼻]</a>
 </h2>
