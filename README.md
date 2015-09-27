@@ -120,13 +120,13 @@
 </h2>
 <p>太尖锐啦[吃惊]</p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3891844263799742" target="freeweibo-mirror">又不是你我墙掉的FB，时代周刊不敢点正主的名，就说中国人不知…</a>
 </h2>
 <p>又不是你我墙掉的FB，时代周刊不敢点正主的名，就说中国人不知羞耻，这才是真正的不要脸加不知羞耻，值得你挨刺吗？</p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3891842552342400" target="freeweibo-mirror">《时代》周刊：“中国人好像从来就不懂得何为羞耻，他们禁止fa…</a>
 </h2>
