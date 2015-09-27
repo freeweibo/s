@@ -126,7 +126,7 @@
 </h2>
 <p>@联合国 没安排群众听会补座，没安排人带头鼓掌吗？太不了解中国国情啦！<br><br>RE: 【座无虚席】习大大出席联合国峰会画面，@人民日报  会怎么报道？<br><img src="http://ww3.sinaimg.cn/large/e0fff2a7gw1ewgdq0px6dj20hs0ckjsd.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3891598322464086" target="freeweibo-mirror">伟人一到，帝国主义夹着尾巴逃跑了[哈哈]</a>
 </h2>
