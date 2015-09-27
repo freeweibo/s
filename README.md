@@ -78,7 +78,7 @@
 </h2>
 <p>美国免除巴基斯坦债务 http://t.cn/RyKy6zM 免阿富汗债务 http://t.cn/RyKy6zc 呼吁中国免除伊拉克债务http://t.cn/RyKy6zt 要求日本免除埃及债务 http://t.cn/RyKy6zI 右边,像你这样每天一睁眼就期盼能看到中国负面新闻并击节而歌的臭虫, ,真理解么?//@琢磨先生: 来的免除债务,教皇能做到吗？哼！<br><br>RE: 演讲是一门技术。<br><img src="http://ww4.sinaimg.cn/large/dd816182gw1ewgngmjzjlj20fb09875c.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3891623626472902" target="freeweibo-mirror">白区，就是五毛去不了的地方。 //@陶景洲:@联合国 也有责…</a>
 </h2>
@@ -89,6 +89,12 @@
 	<a href="https://freeweibo.com/weibo/3891623178410277" target="freeweibo-mirror">视力不好的人容易把“大大”看成“太太”，还是用先生、主席这类…</a>
 </h2>
 <p>视力不好的人容易把“大大”看成“太太”，还是用先生、主席这类词语比较尊重当事人！//@王万琼律师:[哈哈][耶]//@于建嵘://@杨武陵://@公务员张敏宴: 上海土族。称爷爷外公辈为大大。</p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3891619218190392" target="freeweibo-mirror">袁腾飞们想当汉奸都快想疯了//@尹国明: 袁腾飞们想要的就是…</a>
+</h2>
+<p>袁腾飞们想当汉奸都快想疯了//@尹国明: 袁腾飞们想要的就是让这段侮辱历史重现中国。<br><br>RE: 天安门前第一次现代阅兵见证了螨蜻政府的荒诞、无能和耻辱。1900年8月28日，八国联军在紫禁城阅兵，俄日英美法德意奥等3170名侵略军列队通过天安门，穿过皇宫，出神武门。这是对中国史无前例的严重侮辱。阅兵之后，各国军官重新回到皇宫，以参观为名公然疯狂抢劫，掀开了北京被大肆烧杀抢掠的大幕。<br><img src="http://ww3.sinaimg.cn/large/c029ec4cjw1ewg3co18ufj20fa0bhq4y.jpg"></p>
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
@@ -114,7 +120,7 @@
 </h2>
 <p>伟人一到，帝国主义夹着尾巴逃跑了[哈哈]<br><img src="http://ww1.sinaimg.cn/large/b08fb95bgw1ewgoz41mxmj20c80epmz9.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3891593221946012" target="freeweibo-mirror">SPAM //@龙化石: //@转帖小王://@泉州de人:…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3891585856849016" target="freeweibo-mirror">SPAM //@夜之沉风://@居安徽:你国屁民要遭殃。 /…</a>
 </h2>
 <p>SPAM //@夜之沉风://@居安徽:你国屁民要遭殃。 //@寂寂--无名:调查一下，看都哪国没来，明天挨个送钱。<br><br>RE: 这样的出勤率，该点名册伺候了！<br><img src="http://ww3.sinaimg.cn/large/6cfd6289gw1ewgiusnsaej20hs0bumz1.jpg"></p>
-<p>
-	<small> ============== 5小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3891585034990648" target="freeweibo-mirror">演讲是一门技术。</a>
-</h2>
-<p>演讲是一门技术。<br><img src="http://ww4.sinaimg.cn/large/dd816182gw1ewgngmjzjlj20fb09875c.jpg"></p>
 <p>
 	<small> ============== 5小时前</small>
 </p>
