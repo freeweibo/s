@@ -54,7 +54,7 @@
 </h2>
 <p>回复@我是天上最帅的:Xi是贵国领导人吧。//@我是天上最帅的:中国俩字在哪里？<br><br>RE: 希拉里加入敲打中国行列……[挖鼻]<br><img src="http://ww3.sinaimg.cn/large/6d0b6b33gw1ewhbywbhomj20hs0fx404.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3891810491400966" target="freeweibo-mirror">评胡锡进事：一，如此事违反现行规定，处分说得过去，组织纪律要…</a>
 </h2>
@@ -114,13 +114,13 @@
 </h2>
 <p>SPAM 境外敌对势力太猖狂了！我抗议！[怒]<br><img src="http://ww2.sinaimg.cn/large/61c02bf2gw1ewhbudyqzxj20hs0vk76v.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3891797124260525" target="freeweibo-mirror">要說胡錫進那事吧，如果是真的，我們是不是應該向人民日報編追問…</a>
 </h2>
 <p>要說胡錫進那事吧，如果是真的，我們是不是應該向人民日報編追問八條問題：他帶了多少人去？3天期間做了什麼？花了多少錢？當中有多少真的屬於公務？多少應算私人開銷？是否涉及貪污、挪用公款？事件屬於違規還是違法？編委會有沒有權力以罰代法？<br><img src="http://ww2.sinaimg.cn/large/642c6c3djw1ewhbmzg0ylj20k00qogoc.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3891793663584095" target="freeweibo-mirror">SPAM 噴了！是真的！</a>
 </h2>
