@@ -120,19 +120,19 @@
 </h2>
 <p>SPAM //@大气PANGBO: //@-蓝色-心情: //@洛-欣: //@上海鱼鱼1://@天行健中国元素: 金援外交是时候结束了，别人都不愿意鸟你了，就别腆着热脸去贴冷屁股了好吗？要点脸，能要点脸不？//@许志彪律师: 你们太不给面子了，让我好不习惯啊。<br><br>RE: 【座无虚席】习大大出席联合国峰会画面，@人民日报  会怎么报道？<br><img src="http://ww3.sinaimg.cn/large/e0fff2a7gw1ewgdq0px6dj20hs0ckjsd.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3891632510148882" target="freeweibo-mirror">SPAM 以人民网为准：此次行程满满、马不停蹄，其所到之处受…</a>
 </h2>
 <p>SPAM 以人民网为准：此次行程满满、马不停蹄，其所到之处受到热烈欢迎。广大网民感同身受，纷纷感叹大洋彼岸“习旋风”劲刮。 //@壹索_youngsee: //@张晨初艺术空间://@贺江兵:买不来尊重。 //@袁国宝:[哈哈] //@琢磨先生:来的免除债务，教皇能做到吗？哼！<br><br>RE: 演讲是一门技术。<br><img src="http://ww4.sinaimg.cn/large/dd816182gw1ewgngmjzjlj20fb09875c.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3891632316877837" target="freeweibo-mirror">一直到天朝经济崩溃技术倒退为止 //@冈瓦纳:别信, 只会越…</a>
 </h2>
 <p>一直到天朝经济崩溃技术倒退为止 //@冈瓦纳:别信, 只会越来越严厉. 从上届开始, 只要一离开天朝, 头儿们的话就很开明, 一回来就变本加厉..//@河阳侯DRY是只林登万: 自由主义和中国特色社会主义的死斗，从80年代末到现在我都不care，但是封网我万分愤怒</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3891630547162974" target="freeweibo-mirror">SPAM 差别这么大？没想到！//@Fenng:不错…</a>
 </h2>
