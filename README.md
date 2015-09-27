@@ -32,6 +32,12 @@
 <p>
 	<small> ============== 4小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3891515451898804" target="freeweibo-mirror">我分享了@却道风景依然 的文章 http://t.cn/Ry…</a>
+</h2>
+<p>我分享了@却道风景依然 的文章 http://t.cn/RyoB7iI</p>
+<p>
+	<small> ============== 5小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3891491473049047" target="freeweibo-mirror">[衰]//@杨武陵:唉-------------------…</a>
 </h2>
 <p>[衰]//@杨武陵:唉---------------------！<br><br>RE: 【习近平开创了向国际倾诉中国的先河】9月22日习近平在西雅图说：上世纪60年代末，我才十几岁，插队到一个叫梁家河的小村庄当农民。那时候，我和乡亲们都住在土窑里、睡在土炕上，乡亲们生活十分贫困，经常是几个月吃不到一块肉。我了解乡亲们最需要什么……！但是，这个心愿在当时是很难实现的。<br><img src="http://ww2.sinaimg.cn/large/005KcKJygw1ewf9mvon8wj30dw0bgq3s.jpg"></p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3891379908249023" target="freeweibo-mirror">SPAM //@杨兴权律师: 多亏把贾灵敏老师关起来了！</a>
 </h2>
 <p>SPAM //@杨兴权律师: 多亏把贾灵敏老师关起来了！</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3891379765501989" target="freeweibo-mirror">SPAM 不会超过数小时，就会被永远枪毙（微溥）</a>
-</h2>
-<p>SPAM 不会超过数小时，就会被永远枪毙（微溥）</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
