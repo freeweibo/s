@@ -84,7 +84,7 @@
 </h2>
 <p>拿着钱到处撒到处装逼，却忘了自己是人均GDP只有七千多美元的穷逼国家//@孤雁苍寒3://@一切为了让儿子生活在正常国家:操你妈的共产党@周-道:转发微博<br><br>RE: 【操你妈！！！】习近平26日在联合国大会上宣布：①中国将设南南合作援助基金，首期提供20亿美元。②中国将继续增加对最不发达国家投资，力争2030年达120亿美元。③中国将免除最不发达国家到期未还政府间无息贷款债务。<br><img src="http://ww3.sinaimg.cn/large/006cGk9Rjw1ewguk2cg21j30fr0b1jsu.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3891696532311908" target="freeweibo-mirror">//@爱卿平身免礼吧: //@KELE02://@独语邪栏1…</a>
 </h2>
@@ -102,7 +102,7 @@
 </h2>
 <p>SPAM 不明白，这样的内部文件怎么会传到网络上热议，谁干滴，想必一定是内部人所为吧？<br><img src="http://ww1.sinaimg.cn/large/6309fc78gw1ewgyqj21sxj20gy0gvn04.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3891671265332518" target="freeweibo-mirror">SPAM 谁授权让你免除到期债务了？这么大的国事就一个人的意…</a>
 </h2>
@@ -114,7 +114,7 @@
 </h2>
 <p>据悉，国内那些整天痛骂美帝的同志们，纷纷见风使舵，准备向彭麻麻看齐，掀起一股学习英语的新高潮。 [笑cry]</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3891659085161165" target="freeweibo-mirror">//@建设三线二世: //@点灯百姓007: //@沙漠里的…</a>
 </h2>
