@@ -24,7 +24,7 @@
 </h2>
 <p>SPAM //@龙化石: //@转帖小王://@泉州de人://@宝鸡卧佛寺侯煜: //@蚂蚊搬掉泰山405932: //@老骥微言://@八桂直播: 信访开辟新途径。[酷]@鐵血桂軍- @屈子赋<br><br>RE: 越洋“告御状”就是不一样。[鼓掌][鼓掌][鼓掌]<br><img src="http://ww2.sinaimg.cn/large/6a83dd8ejw1ewg5h4gtq7j20gs0qotas.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3891585856849016" target="freeweibo-mirror">SPAM //@夜之沉风://@居安徽:你国屁民要遭殃。 /…</a>
 </h2>
@@ -48,7 +48,7 @@
 </h2>
 <p>SPAM 丢中国人脸的访问。<br><br>RE: 我分享了@却道风景依然 的文章 http://t.cn/RyoB7iI</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3891544916991638" target="freeweibo-mirror">这样的出勤率，该点名册伺候了！</a>
 </h2>
