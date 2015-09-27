@@ -114,7 +114,7 @@
 </h2>
 <p>SPAM 差别这么大？没想到！//@Fenng:不错…<br><br>RE: 演讲是一门技术。<br><img src="http://ww4.sinaimg.cn/large/dd816182gw1ewgngmjzjlj20fb09875c.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3891628609964780" target="freeweibo-mirror">美国免除巴基斯坦债务 http://t.cn/RyKy6zM…</a>
 </h2>
