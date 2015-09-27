@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3891593221946012" target="freeweibo-mirror">SPAM //@龙化石: //@转帖小王://@泉州de人:…</a>
+</h2>
+<p>SPAM //@龙化石: //@转帖小王://@泉州de人://@宝鸡卧佛寺侯煜: //@蚂蚊搬掉泰山405932: //@老骥微言://@八桂直播: 信访开辟新途径。[酷]@鐵血桂軍- @屈子赋<br><br>RE: 越洋“告御状”就是不一样。[鼓掌][鼓掌][鼓掌]<br><img src="http://ww2.sinaimg.cn/large/6a83dd8ejw1ewg5h4gtq7j20gs0qotas.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3891585856849016" target="freeweibo-mirror">SPAM //@夜之沉风://@居安徽:你国屁民要遭殃。 /…</a>
 </h2>
 <p>SPAM //@夜之沉风://@居安徽:你国屁民要遭殃。 //@寂寂--无名:调查一下，看都哪国没来，明天挨个送钱。<br><br>RE: 这样的出勤率，该点名册伺候了！<br><img src="http://ww3.sinaimg.cn/large/6cfd6289gw1ewgiusnsaej20hs0bumz1.jpg"></p>
@@ -66,7 +72,7 @@
 </h2>
 <p>[衰]//@杨武陵:唉---------------------！<br><br>RE: 【习近平开创了向国际倾诉中国的先河】9月22日习近平在西雅图说：上世纪60年代末，我才十几岁，插队到一个叫梁家河的小村庄当农民。那时候，我和乡亲们都住在土窑里、睡在土炕上，乡亲们生活十分贫困，经常是几个月吃不到一块肉。我了解乡亲们最需要什么……！但是，这个心愿在当时是很难实现的。<br><img src="http://ww2.sinaimg.cn/large/005KcKJygw1ewf9mvon8wj30dw0bgq3s.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3891486070159183" target="freeweibo-mirror">没出息！//@天煞穆珏: 六十年代末的美国日本人民也不见得天…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3891403869970386" target="freeweibo-mirror">到美国躺车底为征地拆迁上访，刷新了国人上访的新纪录……为此我…</a>
 </h2>
 <p>到美国躺车底为征地拆迁上访，刷新了国人上访的新纪录……为此我问过几位美国的华裔朋友，他们说现在中美关系紧张，这些上访行为除了给中国人添堵以外，美国人也只是看笑话，不会有任何意义。另外，这些教育程度不高的上访者可以举着英语牌子，能把国宾路线、时间搞清楚，没有一股力量支撑是不可能的。</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3891394303496826" target="freeweibo-mirror">//@愚人_止石: //@凉水洞主://@磕死了: 有朝一日…</a>
-</h2>
-<p>//@愚人_止石: //@凉水洞主://@磕死了: 有朝一日就会走上中国人的问题要有美国来解决了。//@黑龙江来去之间: 转发微博<br><br>RE: 真实的新闻都在外面。<br><img src="http://ww4.sinaimg.cn/large/005NmBuHgw1ewfxuk7y1uj30rz18gajh.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
