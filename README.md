@@ -20,6 +20,18 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3891637904029549" target="freeweibo-mirror">这些缺席的国家领导人对习主席真是大大不敬，大家说应该怎样处理…</a>
+</h2>
+<p>这些缺席的国家领导人对习主席真是大大不敬，大家说应该怎样处理？<br><img src="http://ww2.sinaimg.cn/large/4c148083jw1ewgtj0u1chj20c8085dh0.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3891637882948426" target="freeweibo-mirror">回复@酒逢老杜千杯少:大大是谁？我不认识//@酒逢老杜千杯少…</a>
+</h2>
+<p>回复@酒逢老杜千杯少:大大是谁？我不认识//@酒逢老杜千杯少:杜总~ 习大大这么做 以习大大的国际视野格局，肯定是事出有因吧，国内的情况习大大比誰都一清二楚。中国只要外援就一定有人说如上那些话。习大大这般是为了什么呢？为了建交，为了显示我国经济，为了显示大国风范，为了人道主义？~</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3891632510148882" target="freeweibo-mirror">SPAM 以人民网为准：此次行程满满、马不停蹄，其所到之处受…</a>
 </h2>
 <p>SPAM 以人民网为准：此次行程满满、马不停蹄，其所到之处受到热烈欢迎。广大网民感同身受，纷纷感叹大洋彼岸“习旋风”劲刮。 //@壹索_youngsee: //@张晨初艺术空间://@贺江兵:买不来尊重。 //@袁国宝:[哈哈] //@琢磨先生:来的免除债务，教皇能做到吗？哼！<br><br>RE: 演讲是一门技术。<br><img src="http://ww4.sinaimg.cn/large/dd816182gw1ewgngmjzjlj20fb09875c.jpg"></p>
@@ -90,7 +102,7 @@
 </h2>
 <p>SPAM 票房<br><br>RE: 演讲是一门技术。<br><img src="http://ww4.sinaimg.cn/large/dd816182gw1ewgngmjzjlj20fb09875c.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3891585856849016" target="freeweibo-mirror">SPAM //@夜之沉风://@居安徽:你国屁民要遭殃。 /…</a>
 </h2>
@@ -127,18 +139,6 @@
 <p>这样的出勤率，该点名册伺候了！<br><img src="http://ww3.sinaimg.cn/large/6cfd6289gw1ewgiusnsaej20hs0bumz1.jpg"></p>
 <p>
 	<small> ============== 7小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3891535744004532" target="freeweibo-mirror">只要能为美国人民谋利益，奥巴马随时准备为习总提鞋。//@大力…</a>
-</h2>
-<p>只要能为美国人民谋利益，奥巴马随时准备为习总提鞋。//@大力水手AAA:见利忘义的奥黑鬼[衰]//@顾猷: 当奥巴马在做这些的时候，他心里在想什么呢？ //@LifeTime:转发微博<br><br>RE: 【够朋友】奥巴马为了不让他看到抗议者，先是把拉法耶特广场关到11点，交涉后不得不开放，但又把白宫的北阳台遮蔽起来。白宫的主人做了所有他能做的，让客人感到心情愉快。<br><img src="http://ww4.sinaimg.cn/large/9baa2a12jw1ewfewhxo2ej20fm0kuaby.jpg"></p>
-<p>
-	<small> ============== 8小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3891515451898804" target="freeweibo-mirror">我分享了@却道风景依然 的文章 http://t.cn/Ry…</a>
-</h2>
-<p>我分享了@却道风景依然 的文章 http://t.cn/RyoB7iI</p>
-<p>
-	<small> ============== 9小时前</small>
 </p>
 <table>
     <tr>
