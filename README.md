@@ -108,7 +108,7 @@
 </h2>
 <p>//@围观中国--李长新: 请输入转发理由---外国人开会不守纪律，应该罚款<br><br>RE: 第一图，信仰比主义重要。第二图，主场围观多。第三图，是把联合国迁到中国的时候了。第四图，联合国搬迁之后。结论：新闻联播的假大空，本国人都不爱听，何况歪果仁？<br><img src="http://ww3.sinaimg.cn/large/4ea0dee9jw1ewgu97ztk0j20k00d6n00.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3891734284708021" target="freeweibo-mirror">//@沙漠里的曝光台: //@沈阳---雷凤春@张三条196…</a>
 </h2>
