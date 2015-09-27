@@ -36,7 +36,7 @@
 </h2>
 <p>我分享了@却道风景依然 的文章 http://t.cn/RyoB7iI</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3891491473049047" target="freeweibo-mirror">[衰]//@杨武陵:唉-------------------…</a>
 </h2>
