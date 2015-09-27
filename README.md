@@ -24,7 +24,7 @@
 </h2>
 <p>SPAM //@夜之沉风://@居安徽:你国屁民要遭殃。 //@寂寂--无名:调查一下，看都哪国没来，明天挨个送钱。<br><br>RE: 这样的出勤率，该点名册伺候了！<br><img src="http://ww3.sinaimg.cn/large/6cfd6289gw1ewgiusnsaej20hs0bumz1.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3891547953120316" target="freeweibo-mirror">SPAM 丢中国人脸的访问。</a>
 </h2>
