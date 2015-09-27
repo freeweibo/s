@@ -78,13 +78,13 @@
 </h2>
 <p>//@光远看经济:这话实在太尖锐，对推动中国进步其实无益。//@胡说金融:太尖锐啦[吃惊]</p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3891854761851865" target="freeweibo-mirror">西门主编对这段话有感触我很欣慰，但是请不要转嫁到《时代》头上…</a>
 </h2>
 <p>西门主编对这段话有感触我很欣慰，但是请不要转嫁到《时代》头上，原作者是我：http://t.cn/Ry9zczY%B</p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3891853331725577" target="freeweibo-mirror">我觉得这样评价“中国人”不妥，“中国人”是没有权力和资格禁脸…</a>
 </h2>
