@@ -24,7 +24,7 @@
 </h2>
 <p>在美国拦截习近平车队上访的访民，成功将材料递交给习的秘书，并和习的秘书合影。洋人都惊呆了，中国大陆人打官司怎么不找律师找主席？在洋人那边，总统他敢接你的状子他就得下岗！(网转)</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3891653578652980" target="freeweibo-mirror">//@老杜找乐儿: 中文标语上的字很漂亮</a>
 </h2>
@@ -90,7 +90,7 @@
 </h2>
 <p>美国免除巴基斯坦债务 http://t.cn/RyKy6zM 免阿富汗债务 http://t.cn/RyKy6zc 呼吁中国免除伊拉克债务http://t.cn/RyKy6zt 要求日本免除埃及债务 http://t.cn/RyKy6zI 右边,像你这样每天一睁眼就期盼能看到中国负面新闻并击节而歌的臭虫, ,真理解么?//@琢磨先生: 来的免除债务,教皇能做到吗？哼！<br><br>RE: 演讲是一门技术。<br><img src="http://ww4.sinaimg.cn/large/dd816182gw1ewgngmjzjlj20fb09875c.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3891623626472902" target="freeweibo-mirror">白区，就是五毛去不了的地方。 //@陶景洲:@联合国 也有责…</a>
 </h2>
@@ -132,7 +132,7 @@
 </h2>
 <p>伟人一到，帝国主义夹着尾巴逃跑了[哈哈]<br><img src="http://ww1.sinaimg.cn/large/b08fb95bgw1ewgoz41mxmj20c80epmz9.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3891593221946012" target="freeweibo-mirror">SPAM //@龙化石: //@转帖小王://@泉州de人:…</a>
 </h2>
