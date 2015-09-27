@@ -26,6 +26,12 @@
 <p>
 	<small> ============== 1小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3891652949376211" target="freeweibo-mirror">政权合法性问题。 //@律师徐巍:当年开篇第一页读到这句话，…</a>
+</h2>
+<p>政权合法性问题。 //@律师徐巍:当年开篇第一页读到这句话，真有醍醐灌顶的感悟。枪杆子里面出政权，不就是Publius所鄙视的机遇和强力吗？ //@陶景洲:书中也提出了“人类社会是否真正能够通过深思熟虑和自由选择来建立一个良好的政府”这样一个问题。</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3891637904029549" target="freeweibo-mirror">这些缺席的国家领导人对习主席真是大大不敬，大家说应该怎样处理…</a>
 </h2>
 <p>这些缺席的国家领导人对习主席真是大大不敬，大家说应该怎样处理？<br><img src="http://ww2.sinaimg.cn/large/4c148083jw1ewgtj0u1chj20c8085dh0.jpg"></p>
@@ -96,7 +102,7 @@
 </h2>
 <p>袁腾飞们想当汉奸都快想疯了//@尹国明: 袁腾飞们想要的就是让这段侮辱历史重现中国。<br><br>RE: 天安门前第一次现代阅兵见证了螨蜻政府的荒诞、无能和耻辱。1900年8月28日，八国联军在紫禁城阅兵，俄日英美法德意奥等3170名侵略军列队通过天安门，穿过皇宫，出神武门。这是对中国史无前例的严重侮辱。阅兵之后，各国军官重新回到皇宫，以参观为名公然疯狂抢劫，掀开了北京被大肆烧杀抢掠的大幕。<br><img src="http://ww3.sinaimg.cn/large/c029ec4cjw1ewg3co18ufj20fa0bhq4y.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3891616769621671" target="freeweibo-mirror">//@悠一说一:转发微博</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3891589233083729" target="freeweibo-mirror">SPAM 票房</a>
 </h2>
 <p>SPAM 票房<br><br>RE: 演讲是一门技术。<br><img src="http://ww4.sinaimg.cn/large/dd816182gw1ewgngmjzjlj20fb09875c.jpg"></p>
-<p>
-	<small> ============== 5小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3891585856849016" target="freeweibo-mirror">SPAM //@夜之沉风://@居安徽:你国屁民要遭殃。 /…</a>
-</h2>
-<p>SPAM //@夜之沉风://@居安徽:你国屁民要遭殃。 //@寂寂--无名:调查一下，看都哪国没来，明天挨个送钱。<br><br>RE: 这样的出勤率，该点名册伺候了！<br><img src="http://ww3.sinaimg.cn/large/6cfd6289gw1ewgiusnsaej20hs0bumz1.jpg"></p>
 <p>
 	<small> ============== 6小时前</small>
 </p>
