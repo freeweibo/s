@@ -24,11 +24,17 @@
 </h2>
 <p>//@红星闪闪YZH: //@李北方2:回复@好大二张弓:有这个话么[挖鼻]//@好大二张弓:伍修权将军联合国痛斥蒋廷黻 “我怀疑这个发言的人是不是中国人，一个连四万万七千五百万中国人民的语言都不会的人，怎么能代表中国人民”//@李北方2:关键是又说得那么差<br><br>RE: 大中秋的想骂娘了。堂堂一个国家的第一夫人，以“大使”身份，代表一个国家，却他妈的用英语演讲，难道我们的国语是英语？老江当年用英语，是因为外面有轮子叫嚣，这次又是为哪般？</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3891797258830206" target="freeweibo-mirror">SPAM 境外敌对势力太猖狂了！我抗议！[怒]</a>
 </h2>
 <p>SPAM 境外敌对势力太猖狂了！我抗议！[怒]<br><img src="http://ww2.sinaimg.cn/large/61c02bf2gw1ewhbudyqzxj20hs0vk76v.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3891793663584095" target="freeweibo-mirror">SPAM 噴了！是真的！</a>
+</h2>
+<p>SPAM 噴了！是真的！<br><img src="http://ww3.sinaimg.cn/large/5938d248gw1ewhbfmm0qgj20ku0ildhs.jpg"></p>
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
@@ -120,7 +126,7 @@
 </h2>
 <p>//@手机用户2661136510: 中国美国谁才为人民服务？//@围观中国--李长新: 中国人民出奇迹新创举，到国外揽中国领导车喊冤？！！！<br><br>RE: 到美国去上访！！！！！社会主义好,社会主义好!社会主义国家人民地位高,共产党好,共产党好!共产党是人民的好领导,说得到,做得到,全心全意为了人民立功劳！<br><img src="http://ww4.sinaimg.cn/large/8d5e6ddfjw1ewh4jffowdj20cs1kr7cs.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3891745509576117" target="freeweibo-mirror">SPAM 每逢佳节BASS亲[色]BASS最亲裸女群[鼓掌]…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3891744737397889" target="freeweibo-mirror">这事不但适度，而且谈不上腐败。今后追究拿着鸡毛搞处分的，可别…</a>
 </h2>
 <p>这事不但适度，而且谈不上腐败。今后追究拿着鸡毛搞处分的，可别手软。//@大鹏看天下:怪不得胡总编写了一篇社论，劝说老百姓要容忍“适度腐败”，原来如此。 //@平衡左中右:唉！满口大道理、满世界发社论的《环球时报》“单仁平”，原来是个顶风违纪、公款旅游的货色！<br><br>RE: 无组织无纪律，私自组织活动，公款报销费用。这样的人说自己有共产主义精神，是很难令人相信的。<br><img src="http://ww1.sinaimg.cn/large/791ae3d5jw1ewh3aqjfukj20qo0zkgpr.jpg"></p>
-<p>
-	<small> ============== 5小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3891744578164075" target="freeweibo-mirror">反正不是和养猪有关的会议。 //@四川养猪人_96901:现…</a>
-</h2>
-<p>反正不是和养猪有关的会议。 //@四川养猪人_96901:现在毕业典礼都拿到人民大会堂开了？俺在想像博主这种身份到大会堂参加的应该是啥会？</p>
 <p>
 	<small> ============== 5小时前</small>
 </p>
