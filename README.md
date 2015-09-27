@@ -30,7 +30,7 @@
 </h2>
 <p>//@LifeTime: 现在中国领导人几乎在所有国际议题上都有表达拿钱。[挖鼻] //@杨佩昌:哎！</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3891863792206441" target="freeweibo-mirror">//@和合邓润:西门扯淡 //@光远看经济:这话实在太尖锐，…</a>
 </h2>
@@ -90,7 +90,7 @@
 </h2>
 <p>这是哪里的媒体？</p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3891851587034042" target="freeweibo-mirror">哟，繁体字。  //@库雪明: //@阳光快乐天使a: //…</a>
 </h2>
