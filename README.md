@@ -36,7 +36,7 @@
 </h2>
 <p>SPAM 不明白，这样的内部文件怎么会传到网络上热议，谁干滴，想必一定是内部人所为吧？<br><img src="http://ww1.sinaimg.cn/large/6309fc78gw1ewgyqj21sxj20gy0gvn04.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3891671265332518" target="freeweibo-mirror">SPAM 谁授权让你免除到期债务了？这么大的国事就一个人的意…</a>
 </h2>
@@ -48,7 +48,7 @@
 </h2>
 <p>据悉，国内那些整天痛骂美帝的同志们，纷纷见风使舵，准备向彭麻麻看齐，掀起一股学习英语的新高潮。 [笑cry]</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3891659085161165" target="freeweibo-mirror">//@建设三线二世: //@点灯百姓007: //@沙漠里的…</a>
 </h2>
@@ -78,13 +78,13 @@
 </h2>
 <p>//@老杜找乐儿: 中文标语上的字很漂亮</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3891652949376211" target="freeweibo-mirror">政权合法性问题。 //@律师徐巍:当年开篇第一页读到这句话，…</a>
 </h2>
 <p>政权合法性问题。 //@律师徐巍:当年开篇第一页读到这句话，真有醍醐灌顶的感悟。枪杆子里面出政权，不就是Publius所鄙视的机遇和强力吗？ //@陶景洲:书中也提出了“人类社会是否真正能够通过深思熟虑和自由选择来建立一个良好的政府”这样一个问题。</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3891643927201590" target="freeweibo-mirror">//@苏渝:《求是》杂志撰文指出，党员不能信仰宗教，否则应劝…</a>
 </h2>
@@ -96,19 +96,19 @@
 </h2>
 <p>这些缺席的国家领导人对习主席真是大大不敬，大家说应该怎样处理？<br><img src="http://ww2.sinaimg.cn/large/4c148083jw1ewgtj0u1chj20c8085dh0.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3891637882948426" target="freeweibo-mirror">回复@酒逢老杜千杯少:大大是谁？我不认识//@酒逢老杜千杯少…</a>
 </h2>
 <p>回复@酒逢老杜千杯少:大大是谁？我不认识//@酒逢老杜千杯少:杜总~ 习大大这么做 以习大大的国际视野格局，肯定是事出有因吧，国内的情况习大大比誰都一清二楚。中国只要外援就一定有人说如上那些话。习大大这般是为了什么呢？为了建交，为了显示我国经济，为了显示大国风范，为了人道主义？~</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3891637841591242" target="freeweibo-mirror">回复@全唐人狂朝:結果呢，送了多少領土出去？//@全唐人狂朝…</a>
 </h2>
 <p>回复@全唐人狂朝:結果呢，送了多少領土出去？//@全唐人狂朝:珍宝岛反苏修大三线哪个不是对付苏联的？//@廖伟棠:是跪舔蘇俄，不死不休吧？</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3891636930673433" target="freeweibo-mirror">SPAM  //@秋日往事://@LEENIO: //@封神…</a>
 </h2>
