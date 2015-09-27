@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3891943232606709" target="freeweibo-mirror">SPAM 呵呵。杀你父母，夺你土地房产，还可以再卖给你70年…</a>
+</h2>
+<p>SPAM 呵呵。杀你父母，夺你土地房产，还可以再卖给你70年产权呢。要理解。 //@徐付群:访问也许是学习的开始。//@陈业文新大都:转发微博</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3891895606313821" target="freeweibo-mirror">发表了一篇转载博文《[转载]人民不再需要伟大领袖》http:…</a>
 </h2>
 <p>发表了一篇转载博文《[转载]人民不再需要伟大领袖》http://t.cn/Ry9LNp4<br><img src="http://ww2.sinaimg.cn/large/5408ee85jw1ewhn5bjx7oj20c50b13zm.jpg"></p>
@@ -84,7 +90,7 @@
 </h2>
 <p>我觉得这样评价“中国人”不妥，“中国人”是没有权力和资格禁脸谱的。谁有权禁就批评谁才对啊。</p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3891851746309565" target="freeweibo-mirror">这是哪里的媒体？</a>
 </h2>
@@ -133,12 +139,6 @@
 <p>《时代》周刊：“中国人好像从来就不懂得何为羞耻，他们禁止facebook在中国受到访问，却又西装革履、淡定自若的接待扎克伯格，假装什么都没有发生过。中国比世界上任何一个国家都希望描绘一个虚伪的仪式感，努力证明自己是一个正常国家，哪怕在所有人看来他们都是一个笑话。”——被这句话刺到了。</p>
 <p>
 	<small> ============== 7小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3891823707447886" target="freeweibo-mirror">//@郑维:党国机密，不可追问。另向王岐山书记致敬 //@沪…</a>
-</h2>
-<p>//@郑维:党国机密，不可追问。另向王岐山书记致敬 //@沪港小生:出來混，遲早要還的，黨員也不例外。</p>
-<p>
-	<small> ============== 8小时前</small>
 </p>
 <table>
     <tr>
