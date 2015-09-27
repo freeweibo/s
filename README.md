@@ -20,6 +20,18 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3891772788499273" target="freeweibo-mirror">SPAM 共党杂碎，连共党都嫌弃//@作家说:[doge]→…</a>
+</h2>
+<p>SPAM 共党杂碎，连共党都嫌弃//@作家说:[doge]→_→//@华--兴:撒尿正好看到此贴，让我手机报废一个。//@不要问我从哪里来2014:终于看到叼盘高手胡编的尊容，外表多龌龊内心就有多龌龊 //@明德尚行疾恶如仇:男的还是女的？[哈哈]</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3891768237960734" target="freeweibo-mirror">[挖鼻] //@日_落紫禁城:英文再好，也不过一个美帝小学生…</a>
+</h2>
+<p>[挖鼻] //@日_落紫禁城:英文再好，也不过一个美帝小学生！[吐]</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3891768238315822" target="freeweibo-mirror">SPAM 气起来就撒钱</a>
 </h2>
 <p>SPAM 气起来就撒钱<br><br>RE: 联合国大会是最散漫的地方。<br><img src="http://ww4.sinaimg.cn/large/9ddb72ebjw1ewgnsar51rj20hs0buq48.jpg"></p>
@@ -125,18 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3891730354828406" target="freeweibo-mirror">//@老关回来了: //@心援网-守护心灵和家庭:其实我想，…</a>
 </h2>
 <p>//@老关回来了: //@心援网-守护心灵和家庭:其实我想，作为中国人，谁都不想看到是这样的效果。关键是他以及他身边的谋士们真该反思。得道多助失道寡助。这就是普世价值。//@莫志谨: //@张佳珅0://@wyzxhp7://@看破红尘宝贝五: 毫无底线了， //@月半弯肆十捌世: //@茶道-高手: //@公民面包:<br><br>RE: 第一图，信仰比主义重要。第二图，主场围观多。第三图，是把联合国迁到中国的时候了。第四图，联合国搬迁之后。结论：新闻联播的假大空，本国人都不爱听，何况歪果仁？<br><img src="http://ww3.sinaimg.cn/large/4ea0dee9jw1ewgu97ztk0j20k00d6n00.jpg"></p>
-<p>
-	<small> ============== 4小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3891727943318688" target="freeweibo-mirror">当年美国诚心诚意希望国共轮流坐庄。//@张闳: 米帝祸害中国…</a>
-</h2>
-<p>当年美国诚心诚意希望国共轮流坐庄。//@张闳: 米帝祸害中国。</p>
-<p>
-	<small> ============== 4小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3891727654223084" target="freeweibo-mirror">//@张闳: 作为一个有着贾琏或者答尔丢夫内在性格和气质的人…</a>
-</h2>
-<p>//@张闳: 作为一个有着贾琏或者答尔丢夫内在性格和气质的人物，却硬要……</p>
 <p>
 	<small> ============== 4小时前</small>
 </p>
