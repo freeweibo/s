@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3891585856849016" target="freeweibo-mirror">SPAM //@夜之沉风://@居安徽:你国屁民要遭殃。 /…</a>
+</h2>
+<p>SPAM //@夜之沉风://@居安徽:你国屁民要遭殃。 //@寂寂--无名:调查一下，看都哪国没来，明天挨个送钱。<br><br>RE: 这样的出勤率，该点名册伺候了！<br><img src="http://ww3.sinaimg.cn/large/6cfd6289gw1ewgiusnsaej20hs0bumz1.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3891547953120316" target="freeweibo-mirror">SPAM 丢中国人脸的访问。</a>
 </h2>
 <p>SPAM 丢中国人脸的访问。<br><br>RE: 我分享了@却道风景依然 的文章 http://t.cn/RyoB7iI</p>
@@ -54,7 +60,7 @@
 </h2>
 <p>大豆，近一千三百万吨！//@健坤强德之声闻: 这事该有反转！//@清越微博1:转基因肉！[哈哈]//@风中的蒲公英云: 其实最主要想表达自中国跟美国混以后才吃上肉//@健坤强德之声闻:什么意思？//@清越微博1:看看家里头！//@健坤强德之声闻: 想看到全文或者全部视频，再下定论！//@清越微博1:丢脸！/<br><br>RE: 【习近平开创了向国际倾诉中国的先河】9月22日习近平在西雅图说：上世纪60年代末，我才十几岁，插队到一个叫梁家河的小村庄当农民。那时候，我和乡亲们都住在土窑里、睡在土炕上，乡亲们生活十分贫困，经常是几个月吃不到一块肉。我了解乡亲们最需要什么……！但是，这个心愿在当时是很难实现的。<br><img src="http://ww2.sinaimg.cn/large/005KcKJygw1ewf9mvon8wj30dw0bgq3s.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3891475416999421" target="freeweibo-mirror">转基因肉！[哈哈]//@风中的蒲公英云: 其实最主要想表达自…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3891380068173170" target="freeweibo-mirror">SPAM 你在cctv看100年也看不到的。</a>
 </h2>
 <p>SPAM 你在cctv看100年也看不到的。</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3891379908249023" target="freeweibo-mirror">SPAM //@杨兴权律师: 多亏把贾灵敏老师关起来了！</a>
-</h2>
-<p>SPAM //@杨兴权律师: 多亏把贾灵敏老师关起来了！</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
