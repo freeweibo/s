@@ -36,7 +36,7 @@
 </h2>
 <p>SPAM 差别这么大？没想到！//@Fenng:不错…<br><br>RE: 演讲是一门技术。<br><img src="http://ww4.sinaimg.cn/large/dd816182gw1ewgngmjzjlj20fb09875c.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3891628609964780" target="freeweibo-mirror">美国免除巴基斯坦债务 http://t.cn/RyKy6zM…</a>
 </h2>
@@ -66,7 +66,7 @@
 </h2>
 <p>肯定是送票工作没做好！不要紧，等回国以后，各级领导干部一组织就一群，优越感就回来了！[偷笑][嘻嘻]<br><br>RE: 演讲是一门技术。<br><img src="http://ww4.sinaimg.cn/large/dd816182gw1ewgngmjzjlj20fb09875c.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3891603162475770" target="freeweibo-mirror">@联合国 没安排群众听会补座，没安排人带头鼓掌吗？太不了解中…</a>
 </h2>
@@ -96,7 +96,13 @@
 </h2>
 <p>SPAM //@夜之沉风://@居安徽:你国屁民要遭殃。 //@寂寂--无名:调查一下，看都哪国没来，明天挨个送钱。<br><br>RE: 这样的出勤率，该点名册伺候了！<br><img src="http://ww3.sinaimg.cn/large/6cfd6289gw1ewgiusnsaej20hs0bumz1.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3891585034990648" target="freeweibo-mirror">演讲是一门技术。</a>
+</h2>
+<p>演讲是一门技术。<br><img src="http://ww4.sinaimg.cn/large/dd816182gw1ewgngmjzjlj20fb09875c.jpg"></p>
+<p>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3891582962615495" target="freeweibo-mirror">[哈哈]//@庐山瀑布01:借钱也没有下次！//@醉卧溪山品…</a>
 </h2>
@@ -133,12 +139,6 @@
 <p>我分享了@却道风景依然 的文章 http://t.cn/RyoB7iI</p>
 <p>
 	<small> ============== 9小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3891498116195113" target="freeweibo-mirror">[偷笑][偷笑][偷笑]</a>
-</h2>
-<p>[偷笑][偷笑][偷笑]<br><img src="http://ww4.sinaimg.cn/large/a68d6077jw1ewgdht24spj20qo0zk42t.jpg"></p>
-<p>
-	<small> ============== 10小时前</small>
 </p>
 <table>
     <tr>
