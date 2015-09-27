@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3891867776714708" target="freeweibo-mirror">//@LifeTime: 现在中国领导人几乎在所有国际议题上…</a>
+</h2>
+<p>//@LifeTime: 现在中国领导人几乎在所有国际议题上都有表达拿钱。[挖鼻] //@杨佩昌:哎！</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3891863792206441" target="freeweibo-mirror">//@和合邓润:西门扯淡 //@光远看经济:这话实在太尖锐，…</a>
 </h2>
 <p>//@和合邓润:西门扯淡 //@光远看经济:这话实在太尖锐，对推动中国进步其实无益。//@胡说金融:太尖锐啦[吃惊]</p>
@@ -30,13 +36,13 @@
 </h2>
 <p>不知如何评论！</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3891860608860428" target="freeweibo-mirror">不要脸的都道貌岸然。 //@罗伯特Hollywood: //…</a>
 </h2>
 <p>不要脸的都道貌岸然。 //@罗伯特Hollywood: //@洛兵:又不是你我墙掉的FB，时代周刊不敢点正主的名，就说中国人不知羞耻，这才是真正的不要脸加不知羞耻，值得你挨刺吗？</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3891858801301356" target="freeweibo-mirror">链接貌似只能手机打开： http://t.cn/Ry9zel…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3891822461647893" target="freeweibo-mirror">//@早社://@渝泰然处之3: //@台风小K://@读爱…</a>
 </h2>
 <p>//@早社://@渝泰然处之3: //@台风小K://@读爱微评12: 没有肉吃，记恨毛泽东，却迁怒薄熙来，一块非洲腊肉就把大哥送进了风波亭！</p>
-<p>
-	<small> ============== 5小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3891815490703224" target="freeweibo-mirror">//@沈向东大连:他是什么材料制成的？！[哈哈]//@纪昀:…</a>
-</h2>
-<p>//@沈向东大连:他是什么材料制成的？！[哈哈]//@纪昀:[哈哈]<br><br>RE: 胡编被处分一事尚未得到证实，网上已有人为环球拟好了社评《总编受处分彰显自我监督完备》、《内部处分轮不着敌对势力幸灾乐祸》、《要允许工作人员适度腐败》。PS：这是位几十年如一日，苦口婆心做说服教育工作的优秀童稚，一个高尚的人，一个纯粹的人，一个有益于人民的人，怎么会堕落受处分呢？<br><img src="http://ww4.sinaimg.cn/large/4c7c1ba8gw1ewh9eyv9k6j20go0m8gmt.jpg"></p>
 <p>
 	<small> ============== 5小时前</small>
 </p>
