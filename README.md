@@ -30,7 +30,7 @@
 </h2>
 <p>习近平：和平、发展、公平、正义、民主、自由是全人类的共同价值......http://t.cn/RyoTAv8 看今后谁敢批判普世价值？<br><img src="http://ww1.sinaimg.cn/large/656952ecjw1ewimh3hlc7j20gv0hxn4i.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3892201140771008" target="freeweibo-mirror">//@谠大大: 你懂的[笑哈哈]</a>
 </h2>
