@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3892170765864203" target="freeweibo-mirror">SPAM 开始表演了</a>
+</h2>
+<p>SPAM 开始表演了<br><img src="http://ww1.sinaimg.cn/large/7240da40jw1ewiiqudlvmj20hs0vk0wb.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3892150091479131" target="freeweibo-mirror">//@98年记: 这次说实话了。//@柔骨冰心: 真是丢人现…</a>
 </h2>
 <p>//@98年记: 这次说实话了。//@柔骨冰心: 真是丢人现眼。现在官媒体，水平怎如此低级？泱泱大国，官媒出来的东西竟然这样荒诞。那些优秀的资深媒体人，是有良知给禁言了？还是看多了黑幕或虚假信息又不能报道，干脆或避三舍？导致跳梁小丑不得已担纲了主演？//@山高路远N://@雷蒙6862: //@齐河律师:<br><br>RE: 环球告诉我们：1，原来中国这些年在国际上是在混的。2，是靠撒钱才能混的。这倒底是个什么报纸？[白眼]在黑谁呢？<br><img src="http://ww1.sinaimg.cn/large/6b804b51gw1ewibkuous5j20c80kj419.jpg"></p>
@@ -84,13 +90,13 @@
 </h2>
 <p>SPAM //@作家东海:太猖狂了[怒]<br><br>RE: 今天上午9点50分许，在安徽省天长市一公安局门口，一名男子开车撞飞一男一女，其中被撞男子被拖行了数十米。随后，开车男子又下车脚踹被撞男女。事发前后，公安局门口保安无动于衷。[怒]http://t.cn/Ry90hEY</p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3892073381695524" target="freeweibo-mirror">今天上午10时许，29岁女子秦某与38岁男子闵某坐出租在天长…</a>
 </h2>
 <p>今天上午10时许，29岁女子秦某与38岁男子闵某坐出租在天长市公安局北大门外下车，尾随的女子前夫张某驾车高速从身后撞向秦、闵两人，两人被撞飞落在公安局院内。闵某死亡，秦某正在抢救，嫌犯张某已被控制</p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3892067355122877" target="freeweibo-mirror">会被删吗//@有时右逝: 有点虎啊！ //@性感玉米:我勒个…</a>
 </h2>
@@ -114,7 +120,7 @@
 </h2>
 <p>泯灭人性。<br><br>RE: 今早发生在天长公安局门口的撞人事件。 http://t.cn/Ry9YBdD .</p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3892057783801312" target="freeweibo-mirror">今天上午9点50分许，在安徽省天长市一公安局门口，一名男子开…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3892054461509515" target="freeweibo-mirror">保安的工作丢了</a>
 </h2>
 <p>保安的工作丢了<br><br>RE: http://t.cn/Ry90hEY据网友了解：今天上午9点多，发生在安徽省天长市公安局门口发生的一幕，这是什么人？直接开车撞人[怒]</p>
-<p>
-	<small> ============== 10小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3892052548826477" target="freeweibo-mirror">一派胡言！I'm angry！ //@能靠点儿谱吗:赤裸裸的…</a>
-</h2>
-<p>一派胡言！I'm angry！ //@能靠点儿谱吗:赤裸裸的诋毁！大家都来看一看！学习一下如何提防这种将自己价值观强行要求别国的霸道行为！<br><br>RE: 外媒的报道，又是诋毁！我们不信，哼！ http://t.cn/Ry9qZFL .</p>
 <p>
 	<small> ============== 10小时前</small>
 </p>
