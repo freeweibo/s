@@ -20,6 +20,18 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3892203636402939" target="freeweibo-mirror">习近平：和平、发展、公平、正义、民主、自由是全人类的共同价值…</a>
+</h2>
+<p>习近平：和平、发展、公平、正义、民主、自由是全人类的共同价值......http://t.cn/RyoTAv8 看今后谁敢批判普世价值？<br><img src="http://ww1.sinaimg.cn/large/656952ecjw1ewimh3hlc7j20gv0hxn4i.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3892182521819757" target="freeweibo-mirror">SPAM 扫一扫，我们的公众微信号喔！[萌][微风][音乐]…</a>
+</h2>
+<p>SPAM 扫一扫，我们的公众微信号喔！[萌][微风][音乐][鲜花]<br><img src="http://ww2.sinaimg.cn/large/69583a0egw1ewik2zf070j205f05eweo.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3892182169315257" target="freeweibo-mirror">//@百善孝为大:回复@西边日出V:没和你妈做！//@西边日…</a>
 </h2>
 <p>//@百善孝为大:回复@西边日出V:没和你妈做！//@西边日出V:自己老公跟实习生在白宫做爱可耻！[汗][挖鼻]<br><br>RE: 【希拉莉炮轰习近平倡导妇权演讲：可耻】中国国家主席习近平27日于联合国就促进女权发表演说，更承诺向联合国妇女署捐款1000万美元，但因中国今年曾拘禁多名女权人士，美国前国务卿希拉莉于推特（Twitter）上炮轰习近平「可耻」。http://t.cn/Ry9dSVM<br><img src="http://ww4.sinaimg.cn/large/6298156bgw1ewi9cvnl8nj20d208i0ta.jpg"></p>
@@ -125,18 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3892063038669154" target="freeweibo-mirror">公安局门口发生如此惨剧竟然无人立即处置[吃惊][吃惊][吃惊…</a>
 </h2>
 <p>公安局门口发生如此惨剧竟然无人立即处置[吃惊][吃惊][吃惊][怒][怒][怒]<br><br>RE: http://t.cn/Ry90hEY据网友了解：今天上午9点多，发生在安徽省天长市公安局门口发生的一幕，这是什么人？直接开车撞人[怒]</p>
-<p>
-	<small> ============== 10小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3892058396210649" target="freeweibo-mirror">泯灭人性。</a>
-</h2>
-<p>泯灭人性。<br><br>RE: 今早发生在天长公安局门口的撞人事件。 http://t.cn/Ry9YBdD .</p>
-<p>
-	<small> ============== 11小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3892057783801312" target="freeweibo-mirror">今天上午9点50分许，在安徽省天长市一公安局门口，一名男子开…</a>
-</h2>
-<p>今天上午9点50分许，在安徽省天长市一公安局门口，一名男子开车撞飞一男一女，其中被撞男子被拖行了数十米。随后，开车男子又下车脚踹被撞男女。事发前后，公安局门口保安无动于衷。[怒]http://t.cn/Ry90hEY</p>
 <p>
 	<small> ============== 11小时前</small>
 </p>
