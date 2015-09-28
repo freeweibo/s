@@ -114,7 +114,7 @@
 </h2>
 <p>发表了一篇转载博文《[转载]人民不再需要伟大领袖》http://t.cn/Ry9LNp4<br><img src="http://ww2.sinaimg.cn/large/5408ee85jw1ewhn5bjx7oj20c50b13zm.jpg"></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3891867776714708" target="freeweibo-mirror">//@LifeTime: 现在中国领导人几乎在所有国际议题上…</a>
 </h2>
