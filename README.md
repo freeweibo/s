@@ -36,7 +36,7 @@
 </h2>
 <p>发表了一篇转载博文《[转载]人民不再需要伟大领袖》http://t.cn/Ry9LNp4<br><img src="http://ww2.sinaimg.cn/large/5408ee85jw1ewhn5bjx7oj20c50b13zm.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3891867776714708" target="freeweibo-mirror">//@LifeTime: 现在中国领导人几乎在所有国际议题上…</a>
 </h2>
@@ -114,13 +114,13 @@
 </h2>
 <p>那目光，不卑不亢、从容而坚毅，透露出对邪恶势力的无情的鄙视和对公道正义的义无反顾！//@潜龙跃渊_G: 我的眼里只有您薄熙来书记 //@深知你是梦046: //@村夫归尘10://@台风小K://@月光边境-3: 博主[赞]//@流冰苏: //@就爱酒://@黄河-太行://@故园风雨后1978:[伤心][心]<br><br>RE: 我说，我的眼里只有你…中秋佳节您是否有月饼和肉吃⋯？明天醒来，您是否有包子和鸭蛋吃…？<br><img src="http://ww2.sinaimg.cn/large/005tYKdjjw1ewhb9bzjuij3085064aad.jpg"></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3891849221413893" target="freeweibo-mirror">也是事实。 //@光远看经济:这话实在太尖锐，对推动中国进步…</a>
 </h2>
 <p>也是事实。 //@光远看经济:这话实在太尖锐，对推动中国进步其实无益。//@胡说金融:太尖锐啦[吃惊]</p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3891847312922778" target="freeweibo-mirror">这话实在太尖锐，对推动中国进步其实无益。//@胡说金融:太尖…</a>
 </h2>
