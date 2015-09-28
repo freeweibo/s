@@ -24,13 +24,13 @@
 </h2>
 <p>SPAM //@作家东海:太猖狂了[怒]<br><br>RE: 今天上午9点50分许，在安徽省天长市一公安局门口，一名男子开车撞飞一男一女，其中被撞男子被拖行了数十米。随后，开车男子又下车脚踹被撞男女。事发前后，公安局门口保安无动于衷。[怒]http://t.cn/Ry90hEY</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3892073381695524" target="freeweibo-mirror">今天上午10时许，29岁女子秦某与38岁男子闵某坐出租在天长…</a>
 </h2>
 <p>今天上午10时许，29岁女子秦某与38岁男子闵某坐出租在天长市公安局北大门外下车，尾随的女子前夫张某驾车高速从身后撞向秦、闵两人，两人被撞飞落在公安局院内。闵某死亡，秦某正在抢救，嫌犯张某已被控制</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3892067355122877" target="freeweibo-mirror">会被删吗//@有时右逝: 有点虎啊！ //@性感玉米:我勒个…</a>
 </h2>
@@ -38,11 +38,17 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3892063038669154" target="freeweibo-mirror">公安局门口发生如此惨剧竟然无人立即处置[吃惊][吃惊][吃惊…</a>
+</h2>
+<p>公安局门口发生如此惨剧竟然无人立即处置[吃惊][吃惊][吃惊][怒][怒][怒]<br><br>RE: http://t.cn/Ry90hEY据网友了解：今天上午9点多，发生在安徽省天长市公安局门口发生的一幕，这是什么人？直接开车撞人[怒]</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3892058396210649" target="freeweibo-mirror">泯灭人性。</a>
 </h2>
 <p>泯灭人性。<br><br>RE: 今早发生在天长公安局门口的撞人事件。 http://t.cn/Ry9YBdD .</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3892057783801312" target="freeweibo-mirror">今天上午9点50分许，在安徽省天长市一公安局门口，一名男子开…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3892037609177766" target="freeweibo-mirror">http://t.cn/Ry90hEY据网友了解：今天上午9…</a>
 </h2>
 <p>http://t.cn/Ry90hEY据网友了解：今天上午9点多，发生在安徽省天长市公安局门口发生的一幕，这是什么人？直接开车撞人[怒]</p>
-<p>
-	<small> ============== 4小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3892036840722027" target="freeweibo-mirror">唉，这多大的冤才会这样、、、？视频 http://t.cn/…</a>
-</h2>
-<p>唉，这多大的冤才会这样、、、？视频 http://t.cn/R2W6AlI http://t.cn/RyKDjdD</p>
 <p>
 	<small> ============== 4小时前</small>
 </p>
