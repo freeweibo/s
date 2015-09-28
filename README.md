@@ -38,6 +38,12 @@
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3892063475117315" target="freeweibo-mirror">SPAM 人類最後的希望了[生病] 多撐著點阿~~~~ (p…</a>
+</h2>
+<p>SPAM 人類最後的希望了[生病] 多撐著點阿~~~~ (pic from twitter)<br><img src="http://ww3.sinaimg.cn/large/8b8372c8gw1ewi6euiaqkj20go0goq4g.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3892063038669154" target="freeweibo-mirror">公安局门口发生如此惨剧竟然无人立即处置[吃惊][吃惊][吃惊…</a>
 </h2>
 <p>公安局门口发生如此惨剧竟然无人立即处置[吃惊][吃惊][吃惊][怒][怒][怒]<br><br>RE: http://t.cn/Ry90hEY据网友了解：今天上午9点多，发生在安徽省天长市公安局门口发生的一幕，这是什么人？直接开车撞人[怒]</p>
@@ -54,7 +60,7 @@
 </h2>
 <p>今天上午9点50分许，在安徽省天长市一公安局门口，一名男子开车撞飞一男一女，其中被撞男子被拖行了数十米。随后，开车男子又下车脚踹被撞男女。事发前后，公安局门口保安无动于衷。[怒]http://t.cn/Ry90hEY</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3892055241389815" target="freeweibo-mirror">//@周澄冤中生冤:真正的国际共产主义//@陶景洲:还有没有…</a>
 </h2>
@@ -114,13 +120,13 @@
 </h2>
 <p>怎么没被撞死？！//@通讯社微博:美国人故意安排的吧？ //@新生报记者:冤屈者跟随去访美[吃惊][伤心]@奉命归国微博 点评</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3892042003980570" target="freeweibo-mirror">今早发生在天长公安局门口的撞人事件。 http://t.cn…</a>
 </h2>
 <p>今早发生在天长公安局门口的撞人事件。 http://t.cn/Ry9YBdD .</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3892040620141924" target="freeweibo-mirror">//@秋日往事:凯子，打肿脸充胖子！//@一品九醉: //@…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3892040196251963" target="freeweibo-mirror">随便挥霍不是东西</a>
 </h2>
 <p>随便挥霍不是东西<br><br>RE: 【建议制定《对外援助拨款法》】刚看到人民日报批“中国免除外债是穷大方”，中国扶贫工作没耽搁——当然不应一概反对外援和免除外债，但中国是个法治国家，动用纳税人的巨额资金，规则和程序还是要的。应尽快制定《对外援助拨款法》，规定仅全国人大才有权决定外援和免除外债，全国人大常委会不得代劳<br><img src="http://ww1.sinaimg.cn/large/656952ecjw1ewhtg27be0j20gv0nb120.jpg"></p>
-<p>
-	<small> ============== 5小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3892037609177766" target="freeweibo-mirror">http://t.cn/Ry90hEY据网友了解：今天上午9…</a>
-</h2>
-<p>http://t.cn/Ry90hEY据网友了解：今天上午9点多，发生在安徽省天长市公安局门口发生的一幕，这是什么人？直接开车撞人[怒]</p>
 <p>
 	<small> ============== 5小时前</small>
 </p>
