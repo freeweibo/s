@@ -50,6 +50,12 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3892108618662962" target="freeweibo-mirror">环球告诉我们：1，原来中国这些年在国际上是在混的。2，是靠撒…</a>
+</h2>
+<p>环球告诉我们：1，原来中国这些年在国际上是在混的。2，是靠撒钱才能混的。这倒底是个什么报纸？[白眼]在黑谁呢？<br><img src="http://ww1.sinaimg.cn/large/6b804b51gw1ewibkuous5j20c80kj419.jpg"></p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3892073868382798" target="freeweibo-mirror">SPAM //@作家东海:太猖狂了[怒]</a>
 </h2>
 <p>SPAM //@作家东海:太猖狂了[怒]<br><br>RE: 今天上午9点50分许，在安徽省天长市一公安局门口，一名男子开车撞飞一男一女，其中被撞男子被拖行了数十米。随后，开车男子又下车脚踹被撞男女。事发前后，公安局门口保安无动于衷。[怒]http://t.cn/Ry90hEY</p>
@@ -66,7 +72,7 @@
 </h2>
 <p>会被删吗//@有时右逝: 有点虎啊！ //@性感玉米:我勒个大操啊！！！！！<br><br>RE: http://t.cn/Ry90hEY据网友了解：今天上午9点多，发生在安徽省天长市公安局门口发生的一幕，这是什么人？直接开车撞人[怒]</p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3892063475117315" target="freeweibo-mirror">SPAM 人類最後的希望了[生病] 多撐著點阿~~~~ (p…</a>
 </h2>
@@ -108,13 +114,13 @@
 </h2>
 <p>一派胡言！I'm angry！ //@能靠点儿谱吗:赤裸裸的诋毁！大家都来看一看！学习一下如何提防这种将自己价值观强行要求别国的霸道行为！<br><br>RE: 外媒的报道，又是诋毁！我们不信，哼！ http://t.cn/Ry9qZFL .</p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3892052494269065" target="freeweibo-mirror">“世界奶牛”当之无愧！//@老渔翁在路上: //@沈向东大连…</a>
 </h2>
 <p>“世界奶牛”当之无愧！//@老渔翁在路上: //@沈向东大连://@罗争eedoo://@哀斯寂寞://@秋日往事:凯子，打肿脸充胖子！//@一品九醉: //@独语邪栏10: //@chen迁迁5:[哈哈]吃便便的都在大呼过隐！ //@北京朝阳群众办事处主任:奶牛大便拉在国内，牛奶输出国外！[哈哈]/<br><br>RE: 新封号，世界奶牛！[哈哈][赞]<br><img src="http://ww4.sinaimg.cn/large/006dGKwngw1ewhyi2s5z0j30hs0owgng.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3892049491513399" target="freeweibo-mirror">撞前妻 病得不轻 拖出去毙了[doge][doge][dog…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3892046505064046" target="freeweibo-mirror">这些债务是社会抚养费还的吗？//@谢文: //@西门不暗:转…</a>
 </h2>
 <p>这些债务是社会抚养费还的吗？//@谢文: //@西门不暗:转发微博<br><br>RE: 在联大，习近平一句话免除了许多国家的债务，彭丽媛发言说让所有的孩子都接受教育是她的梦想。希望习近平在国内也说一句话，免除那些没有交上社会抚养费家庭的“债务”，这样一千三百万没有户口的孩子就可以上学了，彭丽媛的愿望就实现了。（转）</p>
-<p>
-	<small> ============== 8小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3892045787352258" target="freeweibo-mirror">分享视频：光天化日里的杀人事件，发生地那三个字好刺目：公安局…</a>
-</h2>
-<p>分享视频：光天化日里的杀人事件，发生地那三个字好刺目：公安局。 http://t.cn/Ry9CGIR</p>
 <p>
 	<small> ============== 8小时前</small>
 </p>
