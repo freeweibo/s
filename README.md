@@ -60,7 +60,7 @@
 </h2>
 <p>今天上午9点50分许，在安徽省天长市一公安局门口，一名男子开车撞飞一男一女，其中被撞男子被拖行了数十米。随后，开车男子又下车脚踹被撞男女。事发前后，公安局门口保安无动于衷。[怒]http://t.cn/Ry90hEY</p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3892055241389815" target="freeweibo-mirror">//@周澄冤中生冤:真正的国际共产主义//@陶景洲:还有没有…</a>
 </h2>
@@ -120,13 +120,13 @@
 </h2>
 <p>怎么没被撞死？！//@通讯社微博:美国人故意安排的吧？ //@新生报记者:冤屈者跟随去访美[吃惊][伤心]@奉命归国微博 点评</p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3892042003980570" target="freeweibo-mirror">今早发生在天长公安局门口的撞人事件。 http://t.cn…</a>
 </h2>
 <p>今早发生在天长公安局门口的撞人事件。 http://t.cn/Ry9YBdD .</p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3892040620141924" target="freeweibo-mirror">//@秋日往事:凯子，打肿脸充胖子！//@一品九醉: //@…</a>
 </h2>
