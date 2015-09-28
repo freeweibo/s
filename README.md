@@ -66,13 +66,13 @@
 </h2>
 <p>还真回应了。//@上官云开记者: 谁代表中国人民的发言权？ //@公民叶海燕:不要脸！</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3892138611389371" target="freeweibo-mirror">SPAM 【布丁脸书】习大大这次访美，还转门在faceboo…</a>
 </h2>
 <p>SPAM 【布丁脸书】习大大这次访美，还转门在facebook上了开了主页，虽然大陆根本上不去，但是还是有54万人给大大点了赞。。。那什么。。用得顺手的话，不如解禁了吧→_→<br><img src="http://ww4.sinaimg.cn/large/7dfb7830jw1ewhxwfrt22j20cd05sgmn.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3892135294409951" target="freeweibo-mirror">//@陈有西:下面引述具名是“环球网”，应该是该报的网站。/…</a>
 </h2>
@@ -84,7 +84,7 @@
 </h2>
 <p>环球告诉我们：1，原来中国这些年在国际上是在混的。2，是靠撒钱才能混的。这倒底是个什么报纸？[白眼]在黑谁呢？<br><img src="http://ww1.sinaimg.cn/large/6b804b51gw1ewibkuous5j20c80kj419.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3892073868382798" target="freeweibo-mirror">SPAM //@作家东海:太猖狂了[怒]</a>
 </h2>
@@ -108,7 +108,7 @@
 </h2>
 <p>SPAM 人類最後的希望了[生病] 多撐著點阿~~~~ (pic from twitter)<br><img src="http://ww3.sinaimg.cn/large/8b8372c8gw1ewi6euiaqkj20go0goq4g.jpg"></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3892063038669154" target="freeweibo-mirror">公安局门口发生如此惨剧竟然无人立即处置[吃惊][吃惊][吃惊…</a>
 </h2>
