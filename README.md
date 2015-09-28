@@ -54,7 +54,7 @@
 </h2>
 <p>SPAM [笑cry][笑cry]//@陈业文新大都:[哈哈]//@咖啡不忧伤: “混”字用得好，画皮画骨的功夫。原来，环球才是高级黑，[哈哈]以前误解了<br><br>RE: 环球告诉我们：1，原来中国这些年在国际上是在混的。2，是靠撒钱才能混的。这倒底是个什么报纸？[白眼]在黑谁呢？<br><img src="http://ww1.sinaimg.cn/large/6b804b51gw1ewibkuous5j20c80kj419.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3892140566131089" target="freeweibo-mirror">//@paingod:右边有侵权相关法律，你丫敢点进去看吗 …</a>
 </h2>
