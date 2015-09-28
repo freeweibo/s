@@ -114,7 +114,7 @@
 </h2>
 <p>SPAM //@新生报记者: 冤屈者跟随去访美[吃惊][伤心]@奉命归国微博 点评</p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3892042184957569" target="freeweibo-mirror">怎么没被撞死？！//@通讯社微博:美国人故意安排的吧？ //…</a>
 </h2>
