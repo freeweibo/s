@@ -84,7 +84,7 @@
 </h2>
 <p>SPAM [笑cry][笑cry]//@陈业文新大都:[哈哈]//@咖啡不忧伤: “混”字用得好，画皮画骨的功夫。原来，环球才是高级黑，[哈哈]以前误解了<br><br>RE: 环球告诉我们：1，原来中国这些年在国际上是在混的。2，是靠撒钱才能混的。这倒底是个什么报纸？[白眼]在黑谁呢？<br><img src="http://ww1.sinaimg.cn/large/6b804b51gw1ewibkuous5j20c80kj419.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3892140566131089" target="freeweibo-mirror">//@paingod:右边有侵权相关法律，你丫敢点进去看吗 …</a>
 </h2>
@@ -126,7 +126,7 @@
 </h2>
 <p>【希拉莉炮轰习近平倡导妇权演讲：可耻】中国国家主席习近平27日于联合国就促进女权发表演说，更承诺向联合国妇女署捐款1000万美元，但因中国今年曾拘禁多名女权人士，美国前国务卿希拉莉于推特（Twitter）上炮轰习近平「可耻」。http://t.cn/Ry9dSVM<br><img src="http://ww4.sinaimg.cn/large/6298156bgw1ewi9cvnl8nj20d208i0ta.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3892073868382798" target="freeweibo-mirror">SPAM //@作家东海:太猖狂了[怒]</a>
 </h2>
