@@ -30,7 +30,7 @@
 </h2>
 <p>再处分总编，叫你外交部都没法混了！//@荣剑2001:球报得了急性短暂性精神障碍症了？//@山高路远N://@雷蒙6862: 与屎报一起混，混到最后只有一个球！//@齐河律师:<br><br>RE: 环球告诉我们：1，原来中国这些年在国际上是在混的。2，是靠撒钱才能混的。这倒底是个什么报纸？[白眼]在黑谁呢？<br><img src="http://ww1.sinaimg.cn/large/6b804b51gw1ewibkuous5j20c80kj419.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3892146115895308" target="freeweibo-mirror">国际社会也是个江湖 难道以后说混得好就成街头混混了？民间语言…</a>
 </h2>
@@ -59,6 +59,12 @@
 	<a href="https://freeweibo.com/weibo/3892138938617504" target="freeweibo-mirror">还真回应了。//@上官云开记者: 谁代表中国人民的发言权？ …</a>
 </h2>
 <p>还真回应了。//@上官云开记者: 谁代表中国人民的发言权？ //@公民叶海燕:不要脸！</p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3892138611389371" target="freeweibo-mirror">SPAM 【布丁脸书】习大大这次访美，还转门在faceboo…</a>
+</h2>
+<p>SPAM 【布丁脸书】习大大这次访美，还转门在facebook上了开了主页，虽然大陆根本上不去，但是还是有54万人给大大点了赞。。。那什么。。用得顺手的话，不如解禁了吧→_→<br><img src="http://ww4.sinaimg.cn/large/7dfb7830jw1ewhxwfrt22j20cd05sgmn.jpg"></p>
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
@@ -114,7 +120,7 @@
 </h2>
 <p>今天上午9点50分许，在安徽省天长市一公安局门口，一名男子开车撞飞一男一女，其中被撞男子被拖行了数十米。随后，开车男子又下车脚踹被撞男女。事发前后，公安局门口保安无动于衷。[怒]http://t.cn/Ry90hEY</p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3892055241389815" target="freeweibo-mirror">//@周澄冤中生冤:真正的国际共产主义//@陶景洲:还有没有…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3892052548826477" target="freeweibo-mirror">一派胡言！I'm angry！ //@能靠点儿谱吗:赤裸裸的…</a>
 </h2>
 <p>一派胡言！I'm angry！ //@能靠点儿谱吗:赤裸裸的诋毁！大家都来看一看！学习一下如何提防这种将自己价值观强行要求别国的霸道行为！<br><br>RE: 外媒的报道，又是诋毁！我们不信，哼！ http://t.cn/Ry9qZFL .</p>
-<p>
-	<small> ============== 9小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3892052494269065" target="freeweibo-mirror">“世界奶牛”当之无愧！//@老渔翁在路上: //@沈向东大连…</a>
-</h2>
-<p>“世界奶牛”当之无愧！//@老渔翁在路上: //@沈向东大连://@罗争eedoo://@哀斯寂寞://@秋日往事:凯子，打肿脸充胖子！//@一品九醉: //@独语邪栏10: //@chen迁迁5:[哈哈]吃便便的都在大呼过隐！ //@北京朝阳群众办事处主任:奶牛大便拉在国内，牛奶输出国外！[哈哈]/<br><br>RE: 新封号，世界奶牛！[哈哈][赞]<br><img src="http://ww4.sinaimg.cn/large/006dGKwngw1ewhyi2s5z0j30hs0owgng.jpg"></p>
 <p>
 	<small> ============== 9小时前</small>
 </p>
