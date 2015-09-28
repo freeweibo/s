@@ -42,7 +42,7 @@
 </h2>
 <p>SPAM 人類最後的希望了[生病] 多撐著點阿~~~~ (pic from twitter)<br><img src="http://ww3.sinaimg.cn/large/8b8372c8gw1ewi6euiaqkj20go0goq4g.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3892063038669154" target="freeweibo-mirror">公安局门口发生如此惨剧竟然无人立即处置[吃惊][吃惊][吃惊…</a>
 </h2>
