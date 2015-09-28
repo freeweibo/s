@@ -66,13 +66,13 @@
 </h2>
 <p>链接貌似只能手机打开： http://t.cn/Ry9zelN //@阑夕:西门主编对这段话有感触我很欣慰，但是请不要转嫁到《时代》头上，原作者是我：http://t.cn/Ry9zczY%B</p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3891857996496754" target="freeweibo-mirror">//@谢文:转发微博</a>
 </h2>
 <p>//@谢文:转发微博</p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3891856825494574" target="freeweibo-mirror">//@愚民512: //@渔夫转播://@刘志强律师:这是哪…</a>
 </h2>
