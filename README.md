@@ -24,7 +24,7 @@
 </h2>
 <p>SPAM 呵呵。杀你父母，夺你土地房产，还可以再卖给你70年产权呢。要理解。 //@徐付群:访问也许是学习的开始。//@陈业文新大都:转发微博</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3891941559057795" target="freeweibo-mirror">SPAM  //@大美女凤凰秦风://@翁浩在思考:曾伟是曾…</a>
 </h2>
@@ -42,7 +42,7 @@
 </h2>
 <p>//@LifeTime: 现在中国领导人几乎在所有国际议题上都有表达拿钱。[挖鼻] //@杨佩昌:哎！</p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3891863792206441" target="freeweibo-mirror">//@和合邓润:西门扯淡 //@光远看经济:这话实在太尖锐，…</a>
 </h2>
@@ -102,7 +102,7 @@
 </h2>
 <p>这是哪里的媒体？</p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3891851587034042" target="freeweibo-mirror">哟，繁体字。  //@库雪明: //@阳光快乐天使a: //…</a>
 </h2>
