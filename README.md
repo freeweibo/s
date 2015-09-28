@@ -38,6 +38,12 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3892057783801312" target="freeweibo-mirror">今天上午9点50分许，在安徽省天长市一公安局门口，一名男子开…</a>
+</h2>
+<p>今天上午9点50分许，在安徽省天长市一公安局门口，一名男子开车撞飞一男一女，其中被撞男子被拖行了数十米。随后，开车男子又下车脚踹被撞男女。事发前后，公安局门口保安无动于衷。[怒]http://t.cn/Ry90hEY</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3892055241389815" target="freeweibo-mirror">//@周澄冤中生冤:真正的国际共产主义//@陶景洲:还有没有…</a>
 </h2>
 <p>//@周澄冤中生冤:真正的国际共产主义//@陶景洲:还有没有户口的孩子？还有这么多没有户口的孩子？[吃惊] //@谢文://@西门不暗:转发微博<br><br>RE: 在联大，习近平一句话免除了许多国家的债务，彭丽媛发言说让所有的孩子都接受教育是她的梦想。希望习近平在国内也说一句话，免除那些没有交上社会抚养费家庭的“债务”，这样一千三百万没有户口的孩子就可以上学了，彭丽媛的愿望就实现了。（转）</p>
@@ -98,11 +104,17 @@
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3892042003980570" target="freeweibo-mirror">今早发生在天长公安局门口的撞人事件。 http://t.cn…</a>
+</h2>
+<p>今早发生在天长公安局门口的撞人事件。 http://t.cn/Ry9YBdD .</p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3892040620141924" target="freeweibo-mirror">//@秋日往事:凯子，打肿脸充胖子！//@一品九醉: //@…</a>
 </h2>
 <p>//@秋日往事:凯子，打肿脸充胖子！//@一品九醉: //@独语邪栏10: //@chen迁迁5:[哈哈]吃便便的都在大呼过隐！ //@北京朝阳群众办事处主任:奶牛大便拉在国内，牛奶输出国外！[哈哈]//@贪官多11世: //@大气PANGBO://@小李孑有话说: [嘻嘻] //@医生朱峻永:唉[挖鼻<br><br>RE: 新封号，世界奶牛！[哈哈][赞]<br><img src="http://ww4.sinaimg.cn/large/006dGKwngw1ewhyi2s5z0j30hs0owgng.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3892040196251963" target="freeweibo-mirror">随便挥霍不是东西</a>
 </h2>
@@ -125,18 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3892031874987650" target="freeweibo-mirror">SPAM 后来，一个秘书接收了民众的信</a>
 </h2>
 <p>SPAM 后来，一个秘书接收了民众的信<br><br>RE: 车里的人肯定看到了http://t.cn/RyKDjdD</p>
-<p>
-	<small> ============== 4小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3892027941205715" target="freeweibo-mirror">SPAM //@果州橘子哥: 在美国不会[ok]不是在天朝/…</a>
-</h2>
-<p>SPAM //@果州橘子哥: 在美国不会[ok]不是在天朝//@WB-lion:万一被击毙了</p>
-<p>
-	<small> ============== 4小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3892026581863015" target="freeweibo-mirror">车里的人肯定看到了http://t.cn/RyKDjdD</a>
-</h2>
-<p>车里的人肯定看到了http://t.cn/RyKDjdD</p>
 <p>
 	<small> ============== 4小时前</small>
 </p>
