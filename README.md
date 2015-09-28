@@ -54,7 +54,7 @@
 </h2>
 <p>不知如何评论！</p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3891860608860428" target="freeweibo-mirror">不要脸的都道貌岸然。 //@罗伯特Hollywood: //…</a>
 </h2>
@@ -126,7 +126,7 @@
 </h2>
 <p>这话实在太尖锐，对推动中国进步其实无益。//@胡说金融:太尖锐啦[吃惊]</p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3891845089814006" target="freeweibo-mirror">太尖锐啦[吃惊]</a>
 </h2>
