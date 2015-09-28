@@ -54,13 +54,13 @@
 </h2>
 <p>不知如何评论！</p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3891860608860428" target="freeweibo-mirror">不要脸的都道貌岸然。 //@罗伯特Hollywood: //…</a>
 </h2>
 <p>不要脸的都道貌岸然。 //@罗伯特Hollywood: //@洛兵:又不是你我墙掉的FB，时代周刊不敢点正主的名，就说中国人不知羞耻，这才是真正的不要脸加不知羞耻，值得你挨刺吗？</p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3891858801301356" target="freeweibo-mirror">链接貌似只能手机打开： http://t.cn/Ry9zel…</a>
 </h2>
