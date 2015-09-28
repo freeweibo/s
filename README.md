@@ -120,7 +120,7 @@
 </h2>
 <p>环球告诉我们：1，原来中国这些年在国际上是在混的。2，是靠撒钱才能混的。这倒底是个什么报纸？[白眼]在黑谁呢？<br><img src="http://ww1.sinaimg.cn/large/6b804b51gw1ewibkuous5j20c80kj419.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3892089030619647" target="freeweibo-mirror">【希拉莉炮轰习近平倡导妇权演讲：可耻】中国国家主席习近平27…</a>
 </h2>
