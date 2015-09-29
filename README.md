@@ -30,7 +30,7 @@
 </h2>
 <p>SPAM  //@飘去漂来:[吃惊]说错了吗//@作家东海: 句句在理！[赞][话筒]<br><br>RE: 非常佩服这样的教师！西安某高校女教师无眠给了罗援将军一闷棍。 现被停课。 http://t.cn/R2W6iAD<br><img src="http://ww3.sinaimg.cn/large/97e3520dgw1ewj4jo1guyj20hs0l8jtt.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3892420296977585" target="freeweibo-mirror">SPAM [阴险]</a>
 </h2>
