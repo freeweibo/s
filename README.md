@@ -32,11 +32,17 @@
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3892459463857039" target="freeweibo-mirror">SPAM //@老罗的微博: 正能量就是精液！//@深南-大…</a>
+</h2>
+<p>SPAM //@老罗的微博: 正能量就是精液！//@深南-大盗: [哈哈]</p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3892428643623741" target="freeweibo-mirror">SPAM 这是个女禽兽！[怒]//@中国人民之3: 静静看着…</a>
 </h2>
 <p>SPAM 这是个女禽兽！[怒]//@中国人民之3: 静静看着你们……[困]//@玉兔-游击队:学校已经成为反共前沿[话筒]<br><br>RE: 非常佩服这样的教师！西安某高校女教师无眠给了罗援将军一闷棍。 现被停课。 http://t.cn/R2W6iAD<br><img src="http://ww3.sinaimg.cn/large/97e3520dgw1ewj4jo1guyj20hs0l8jtt.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3892427519546466" target="freeweibo-mirror">SPAM  //@飘去漂来:[吃惊]说错了吗//@作家东海:…</a>
 </h2>
@@ -61,6 +67,12 @@
 <p>如果有的学生有密集恐惧症，恐怕每天上楼都会处在不安当中。如果楼上的学生成绩没有明显好于一楼的学生，是不是可以反过来证明它的作用没有想像的那么大？[偷笑]好的教育不是往脑袋里灌水，而是设法点燃思想的火堆。现在，我很关心一件事：楼梯是有限的，你考虑过没有被印制出来的其它”知识“的感受吗</p>
 <p>
 	<small> ============== 7小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3892395600717294" target="freeweibo-mirror">[哈哈]@杨佩昌 ： 发明“正能量”这个词的人是山木培训的老…</a>
+</h2>
+<p>[哈哈]@杨佩昌 ： 发明“正能量”这个词的人是山木培训的老板宋山木！ 他奸污女学员的时候，最常说的一句话就是：“你现在身体里面充满了负能量，我给你注入一点正能量。” 所以，正能量就是精液。 整天嚷着需要正能量的人，说白了就俩字：欠操。<br><img src="http://ww2.sinaimg.cn/large/005M9C10jw1ewj8j0w8w8j30c80g2412.jpg"></p>
+<p>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3892392707024908" target="freeweibo-mirror">//@清华郭28于华: //@老豆不炒熟22: //@伟荣V…</a>
 </h2>
@@ -125,18 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3892202701223404" target="freeweibo-mirror">环球时报泄露国家机密：中国外交靠金钱在混</a>
 </h2>
 <p>环球时报泄露国家机密：中国外交靠金钱在混<br><img src="http://ww1.sinaimg.cn/large/b686ce1fgw1ewimedyetvj20c80kj0vh.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3892201140771008" target="freeweibo-mirror">//@谠大大: 你懂的[笑哈哈]</a>
-</h2>
-<p>//@谠大大: 你懂的[笑哈哈]<br><br>RE: 地方上有一个最混蛋的流氓，平时都骂警察混蛋，突然有一天说要增进警民友好关系，而且还跑到局长老婆的店里买了300条烟50瓶酒，不还价，这流氓一定是做了丧尽天良的事或正要干更坏的事。【转】<br><img src="http://ww3.sinaimg.cn/large/e8465feejw1ewik2j69i0j20gu0bkta1.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3892182521819757" target="freeweibo-mirror">SPAM 扫一扫，我们的公众微信号喔！[萌][微风][音乐]…</a>
-</h2>
-<p>SPAM 扫一扫，我们的公众微信号喔！[萌][微风][音乐][鲜花]<br><img src="http://ww2.sinaimg.cn/large/69583a0egw1ewik2zf070j205f05eweo.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
