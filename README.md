@@ -48,7 +48,7 @@
 </h2>
 <p>如果有的学生有密集恐惧症，恐怕每天上楼都会处在不安当中。如果楼上的学生成绩没有明显好于一楼的学生，是不是可以反过来证明它的作用没有想像的那么大？[偷笑]好的教育不是往脑袋里灌水，而是设法点燃思想的火堆。现在，我很关心一件事：楼梯是有限的，你考虑过没有被印制出来的其它”知识“的感受吗</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3892392707024908" target="freeweibo-mirror">//@清华郭28于华: //@老豆不炒熟22: //@伟荣V…</a>
 </h2>
@@ -96,7 +96,7 @@
 </h2>
 <p>SPAM 看了半宿剧，早餐了！<br><img src="http://ww4.sinaimg.cn/large/495710e0jw1ewivnsn0r6j20xc18gk6v.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3892204495601770" target="freeweibo-mirror">这是肯定，牠们是用对人民的恶去换取外界的漠视//@louis…</a>
 </h2>
