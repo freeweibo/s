@@ -24,43 +24,43 @@
 </h2>
 <p>//@律师王学明:[哈哈] //@北京杨博:悲剧的社会<br><br>RE: 【当代恶政三招】内政三招：维稳、独裁、搞特权！经济三招：卖地、印钞、挖资源！外交三招：抗议、装孙、猛砸钱！军队三招：吹牛、叠被、文工团！教育三招：改革、收费、造脑残！开会三招：举手、拍手、不发言！从政三招：贪污、受贿、养小三！微博三招：删帖、封号、报国安！（@演员孙海英）</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3892347223750296" target="freeweibo-mirror">SPAM 看样子这文章是真的打到公知的痛处了，他们必须群起进…</a>
 </h2>
 <p>SPAM 看样子这文章是真的打到公知的痛处了，他们必须群起进攻，不然傻逼粉丝们就会清醒了。//@薛定谔的Viviani:这不是机密，是人之常情。所谓天下攘攘为利而来，天下熙熙为利而动。[挖鼻]<br><br>RE: 环球时报泄露国家机密：中国外交靠金钱在混<br><img src="http://ww1.sinaimg.cn/large/b686ce1fgw1ewimedyetvj20c80kj0vh.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3892283336004046" target="freeweibo-mirror">SPAM 看了半宿剧，早餐了！</a>
 </h2>
 <p>SPAM 看了半宿剧，早餐了！<br><img src="http://ww4.sinaimg.cn/large/495710e0jw1ewivnsn0r6j20xc18gk6v.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3892204495601770" target="freeweibo-mirror">这是肯定，牠们是用对人民的恶去换取外界的漠视//@louis…</a>
 </h2>
 <p>这是肯定，牠们是用对人民的恶去换取外界的漠视//@louislao2014: 权利引领着他们走向自我毁灭，可承担恶果的是我们 //@前18://@谠大大: 你懂的[笑哈哈]<br><br>RE: 地方上有一个最混蛋的流氓，平时都骂警察混蛋，突然有一天说要增进警民友好关系，而且还跑到局长老婆的店里买了300条烟50瓶酒，不还价，这流氓一定是做了丧尽天良的事或正要干更坏的事。【转】<br><img src="http://ww3.sinaimg.cn/large/e8465feejw1ewik2j69i0j20gu0bkta1.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3892203636402939" target="freeweibo-mirror">习近平：和平、发展、公平、正义、民主、自由是全人类的共同价值…</a>
 </h2>
 <p>习近平：和平、发展、公平、正义、民主、自由是全人类的共同价值......http://t.cn/RyoTAv8 看今后谁敢批判普世价值？<br><img src="http://ww1.sinaimg.cn/large/656952ecjw1ewimh3hlc7j20gv0hxn4i.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3892202701223404" target="freeweibo-mirror">环球时报泄露国家机密：中国外交靠金钱在混</a>
 </h2>
 <p>环球时报泄露国家机密：中国外交靠金钱在混<br><img src="http://ww1.sinaimg.cn/large/b686ce1fgw1ewimedyetvj20c80kj0vh.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3892201140771008" target="freeweibo-mirror">//@谠大大: 你懂的[笑哈哈]</a>
 </h2>
 <p>//@谠大大: 你懂的[笑哈哈]<br><br>RE: 地方上有一个最混蛋的流氓，平时都骂警察混蛋，突然有一天说要增进警民友好关系，而且还跑到局长老婆的店里买了300条烟50瓶酒，不还价，这流氓一定是做了丧尽天良的事或正要干更坏的事。【转】<br><img src="http://ww3.sinaimg.cn/large/e8465feejw1ewik2j69i0j20gu0bkta1.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3892182521819757" target="freeweibo-mirror">SPAM 扫一扫，我们的公众微信号喔！[萌][微风][音乐]…</a>
 </h2>
@@ -83,6 +83,12 @@
 	<a href="https://freeweibo.com/weibo/3892170765864203" target="freeweibo-mirror">SPAM 开始表演了</a>
 </h2>
 <p>SPAM 开始表演了<br><img src="http://ww1.sinaimg.cn/large/7240da40jw1ewiiqudlvmj20hs0vk0wb.jpg"></p>
+<p>
+	<small> ============== 1天前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3892150821040779" target="freeweibo-mirror">【当代恶政三招】内政三招：维稳、独裁、搞特权！经济三招：卖地…</a>
+</h2>
+<p>【当代恶政三招】内政三招：维稳、独裁、搞特权！经济三招：卖地、印钞、挖资源！外交三招：抗议、装孙、猛砸钱！军队三招：吹牛、叠被、文工团！教育三招：改革、收费、造脑残！开会三招：举手、拍手、不发言！从政三招：贪污、受贿、养小三！微博三招：删帖、封号、报国安！（@演员孙海英）</p>
 <p>
 	<small> ============== 1天前</small>
 </p><h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3892138611389371" target="freeweibo-mirror">SPAM 【布丁脸书】习大大这次访美，还转门在faceboo…</a>
 </h2>
 <p>SPAM 【布丁脸书】习大大这次访美，还转门在facebook上了开了主页，虽然大陆根本上不去，但是还是有54万人给大大点了赞。。。那什么。。用得顺手的话，不如解禁了吧→_→<br><img src="http://ww4.sinaimg.cn/large/7dfb7830jw1ewhxwfrt22j20cd05sgmn.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3892135294409951" target="freeweibo-mirror">//@陈有西:下面引述具名是“环球网”，应该是该报的网站。/…</a>
-</h2>
-<p>//@陈有西:下面引述具名是“环球网”，应该是该报的网站。//@麦田：文章中也没有任何“混”的说法。这是搜狐的编辑在转载时，自己擅改标题。而且标题曲解原文，非常恶意，也不符合新闻原则。<br><br>RE: 环球告诉我们：1，原来中国这些年在国际上是在混的。2，是靠撒钱才能混的。这倒底是个什么报纸？[白眼]在黑谁呢？<br><img src="http://ww1.sinaimg.cn/large/6b804b51gw1ewibkuous5j20c80kj419.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
