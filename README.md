@@ -48,7 +48,7 @@
 </h2>
 <p>SPAM 昨天，最美的新娘！[玫瑰][玫瑰]<br><img src="http://ww3.sinaimg.cn/large/00644QS0jw1ewjjdqfcymj30qm0qogpp.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3892468351372325" target="freeweibo-mirror">SPAM 我正在申请微博认证，认证信息为“缇诺卡奇店长”。请…</a>
 </h2>
@@ -114,13 +114,13 @@
 </h2>
 <p>//@清华郭28于华: //@老豆不炒熟22: //@伟荣V实说: //@惊醒的家奴6: [话筒]//@新树老枝2015: //@松间明月28: [话筒]//@5的代言: //@山寨检控官在福建://@冷眼看天下2830478733: 转发微博<br><br>RE: 非常佩服这样的教师！西安某高校女教师无眠给了罗援将军一闷棍。 现被停课。 http://t.cn/R2W6iAD<br><img src="http://ww3.sinaimg.cn/large/97e3520dgw1ewj4jo1guyj20hs0l8jtt.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3892391725275340" target="freeweibo-mirror">SPAM *影*帝*赴中学，教授表演学！[哈哈][哈哈][哈…</a>
 </h2>
 <p>SPAM *影*帝*赴中学，教授表演学！[哈哈][哈哈][哈哈] http://t.cn/RyC3PXx @思想火炬@军报记者@紫光阁<br><img src="http://ww2.sinaimg.cn/large/006drcoEjw1ewj81yxfgpj30bm0fxmyh.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3892364466302124" target="freeweibo-mirror">//@律师王学明:[哈哈] //@北京杨博:悲剧的社会</a>
 </h2>
