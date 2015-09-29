@@ -26,6 +26,12 @@
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3892361484514886" target="freeweibo-mirror">//@雪山樱子2012://@张晨初艺术空间: [思考]//…</a>
+</h2>
+<p>//@雪山樱子2012://@张晨初艺术空间: [思考]//@随缘素位断云:[围观]意识形态斗争，其实就是词汇和词汇的斗争，它的功能就是对现实作歪曲和虚幻的表达。<br><br>RE: 意识形态斗争，其实就是词汇和词汇的斗争，比如社会主义和资本主义，公有制和私有制，看起来针锋相对，但在实际运用中，两者意思往往相反，社会主义成了权贵资本的护身符，而私有制通过各种形式转化为社会所有制。所以，马克思从来就认为，意识形态是个坏词汇，它的功能就是对现实作歪曲和虚幻的表达。</p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3892347223750296" target="freeweibo-mirror">SPAM 看样子这文章是真的打到公知的痛处了，他们必须群起进…</a>
 </h2>
 <p>SPAM 看样子这文章是真的打到公知的痛处了，他们必须群起进攻，不然傻逼粉丝们就会清醒了。//@薛定谔的Viviani:这不是机密，是人之常情。所谓天下攘攘为利而来，天下熙熙为利而动。[挖鼻]<br><br>RE: 环球时报泄露国家机密：中国外交靠金钱在混<br><img src="http://ww1.sinaimg.cn/large/b686ce1fgw1ewimedyetvj20c80kj0vh.jpg"></p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3892138938617504" target="freeweibo-mirror">还真回应了。//@上官云开记者: 谁代表中国人民的发言权？ …</a>
 </h2>
 <p>还真回应了。//@上官云开记者: 谁代表中国人民的发言权？ //@公民叶海燕:不要脸！</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3892138611389371" target="freeweibo-mirror">SPAM 【布丁脸书】习大大这次访美，还转门在faceboo…</a>
-</h2>
-<p>SPAM 【布丁脸书】习大大这次访美，还转门在facebook上了开了主页，虽然大陆根本上不去，但是还是有54万人给大大点了赞。。。那什么。。用得顺手的话，不如解禁了吧→_→<br><img src="http://ww4.sinaimg.cn/large/7dfb7830jw1ewhxwfrt22j20cd05sgmn.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
