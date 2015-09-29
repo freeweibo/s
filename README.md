@@ -24,7 +24,7 @@
 </h2>
 <p>SPAM 我正在申请微博认证，认证信息为“缇诺卡奇店长”。请@陈清雯stream @张诗晨ivy @小狼不孤单 @电商轩轩 @涅磐璇玑 @摩羯象象 转发此条微博帮我确认身份，多谢！！ http://t.cn/R718twx</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3892463519727187" target="freeweibo-mirror">SPAM [笑cry]看名字也要马</a>
 </h2>
