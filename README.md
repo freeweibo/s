@@ -24,7 +24,7 @@
 </h2>
 <p>SPAM 看了半宿剧，早餐了！<br><img src="http://ww4.sinaimg.cn/large/495710e0jw1ewivnsn0r6j20xc18gk6v.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3892204495601770" target="freeweibo-mirror">这是肯定，牠们是用对人民的恶去换取外界的漠视//@louis…</a>
 </h2>
@@ -66,7 +66,7 @@
 </h2>
 <p>SPAM 开始表演了<br><img src="http://ww1.sinaimg.cn/large/7240da40jw1ewiiqudlvmj20hs0vk0wb.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3892150091479131" target="freeweibo-mirror">//@98年记: 这次说实话了。//@柔骨冰心: 真是丢人现…</a>
 </h2>
