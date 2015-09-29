@@ -42,7 +42,7 @@
 </h2>
 <p>这是谁的错？<br><br>RE: 【美国媒体：中国人正在抛弃自己的祖国】许多有钱、有势、有才能的中国人纷纷移民欧美，通过境外生育改变孩子的国籍；这些中国人渴望民主自由、渴望享受欧美福利待遇，但他们采取的方法不是去改变自己的国家，而是采取大逃亡的形式，等于抛弃自己的祖国，不愿意为祖国的民主建设牺牲个人的利益。转<br><img src="http://ww2.sinaimg.cn/large/005QDR9djw1ewjjix7wuaj30c80hbq54.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3892560655779056" target="freeweibo-mirror">SPAM 最后一张图@微博小秘书 是怎么审核的？ </a>
 </h2>
@@ -108,7 +108,7 @@
 </h2>
 <p>SPAM //@老罗的微博: 正能量就是精液！//@深南-大盗: [哈哈]</p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3892431361573968" target="freeweibo-mirror">满嘴“习大大”“彭麻麻”的主都是贱货，你们这么四处认爹妈的贱…</a>
 </h2>
