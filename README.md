@@ -84,7 +84,7 @@
 </h2>
 <p>【美国媒体：中国人正在抛弃自己的祖国】许多有钱、有势、有才能的中国人纷纷移民欧美，通过境外生育改变孩子的国籍；这些中国人渴望民主自由、渴望享受欧美福利待遇，但他们采取的方法不是去改变自己的国家，而是采取大逃亡的形式，等于抛弃自己的祖国，不愿意为祖国的民主建设牺牲个人的利益。转<br><img src="http://ww2.sinaimg.cn/large/005QDR9djw1ewjjix7wuaj30c80hbq54.jpg"></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3892489809542419" target="freeweibo-mirror">SPAM 昨天，最美的新娘！[玫瑰][玫瑰]</a>
 </h2>
