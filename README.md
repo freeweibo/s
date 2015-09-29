@@ -90,7 +90,7 @@
 </h2>
 <p>SPAM 昨天，最美的新娘！[玫瑰][玫瑰]<br><img src="http://ww3.sinaimg.cn/large/00644QS0jw1ewjjdqfcymj30qm0qogpp.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3892468351372325" target="freeweibo-mirror">SPAM 我正在申请微博认证，认证信息为“缇诺卡奇店长”。请…</a>
 </h2>
