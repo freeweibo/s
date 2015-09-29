@@ -62,6 +62,12 @@
 <p>
 	<small> ============== 7小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3892431361573968" target="freeweibo-mirror">满嘴“习大大”“彭麻麻”的主都是贱货，你们这么四处认爹妈的贱…</a>
+</h2>
+<p>满嘴“习大大”“彭麻麻”的主都是贱货，你们这么四处认爹妈的贱嗖嗖样，你爹妈知道吗？!@联合国</p>
+<p>
+	<small> ============== 9小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3892428643623741" target="freeweibo-mirror">SPAM 这是个女禽兽！[怒]//@中国人民之3: 静静看着…</a>
 </h2>
 <p>SPAM 这是个女禽兽！[怒]//@中国人民之3: 静静看着你们……[困]//@玉兔-游击队:学校已经成为反共前沿[话筒]<br><br>RE: 非常佩服这样的教师！西安某高校女教师无眠给了罗援将军一闷棍。 现被停课。 http://t.cn/R2W6iAD<br><img src="http://ww3.sinaimg.cn/large/97e3520dgw1ewj4jo1guyj20hs0l8jtt.jpg"></p>
@@ -72,7 +78,7 @@
 </h2>
 <p>SPAM  //@飘去漂来:[吃惊]说错了吗//@作家东海: 句句在理！[赞][话筒]<br><br>RE: 非常佩服这样的教师！西安某高校女教师无眠给了罗援将军一闷棍。 现被停课。 http://t.cn/R2W6iAD<br><img src="http://ww3.sinaimg.cn/large/97e3520dgw1ewj4jo1guyj20hs0l8jtt.jpg"></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3892420296977585" target="freeweibo-mirror">SPAM [阴险]</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3892347223750296" target="freeweibo-mirror">SPAM 看样子这文章是真的打到公知的痛处了，他们必须群起进…</a>
 </h2>
 <p>SPAM 看样子这文章是真的打到公知的痛处了，他们必须群起进攻，不然傻逼粉丝们就会清醒了。//@薛定谔的Viviani:这不是机密，是人之常情。所谓天下攘攘为利而来，天下熙熙为利而动。[挖鼻]<br><br>RE: 环球时报泄露国家机密：中国外交靠金钱在混<br><img src="http://ww1.sinaimg.cn/large/b686ce1fgw1ewimedyetvj20c80kj0vh.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3892343582835529" target="freeweibo-mirror">意识形态斗争，其实就是词汇和词汇的斗争，比如社会主义和资本主…</a>
-</h2>
-<p>意识形态斗争，其实就是词汇和词汇的斗争，比如社会主义和资本主义，公有制和私有制，看起来针锋相对，但在实际运用中，两者意思往往相反，社会主义成了权贵资本的护身符，而私有制通过各种形式转化为社会所有制。所以，马克思从来就认为，意识形态是个坏词汇，它的功能就是对现实作歪曲和虚幻的表达。</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
