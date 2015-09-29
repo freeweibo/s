@@ -36,7 +36,7 @@
 </h2>
 <p>SPAM 看了半宿剧，早餐了！<br><img src="http://ww4.sinaimg.cn/large/495710e0jw1ewivnsn0r6j20xc18gk6v.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3892204495601770" target="freeweibo-mirror">这是肯定，牠们是用对人民的恶去换取外界的漠视//@louis…</a>
 </h2>
