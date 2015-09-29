@@ -36,7 +36,7 @@
 </h2>
 <p>SPAM *影*帝*赴中学，教授表演学！[哈哈][哈哈][哈哈] http://t.cn/RyC3PXx @思想火炬@军报记者@紫光阁<br><img src="http://ww2.sinaimg.cn/large/006drcoEjw1ewj81yxfgpj30bm0fxmyh.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3892364466302124" target="freeweibo-mirror">//@律师王学明:[哈哈] //@北京杨博:悲剧的社会</a>
 </h2>
@@ -48,13 +48,13 @@
 </h2>
 <p>//@雪山樱子2012://@张晨初艺术空间: [思考]//@随缘素位断云:[围观]意识形态斗争，其实就是词汇和词汇的斗争，它的功能就是对现实作歪曲和虚幻的表达。<br><br>RE: 意识形态斗争，其实就是词汇和词汇的斗争，比如社会主义和资本主义，公有制和私有制，看起来针锋相对，但在实际运用中，两者意思往往相反，社会主义成了权贵资本的护身符，而私有制通过各种形式转化为社会所有制。所以，马克思从来就认为，意识形态是个坏词汇，它的功能就是对现实作歪曲和虚幻的表达。</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3892347223750296" target="freeweibo-mirror">SPAM 看样子这文章是真的打到公知的痛处了，他们必须群起进…</a>
 </h2>
 <p>SPAM 看样子这文章是真的打到公知的痛处了，他们必须群起进攻，不然傻逼粉丝们就会清醒了。//@薛定谔的Viviani:这不是机密，是人之常情。所谓天下攘攘为利而来，天下熙熙为利而动。[挖鼻]<br><br>RE: 环球时报泄露国家机密：中国外交靠金钱在混<br><img src="http://ww1.sinaimg.cn/large/b686ce1fgw1ewimedyetvj20c80kj0vh.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3892343582835529" target="freeweibo-mirror">意识形态斗争，其实就是词汇和词汇的斗争，比如社会主义和资本主…</a>
 </h2>
