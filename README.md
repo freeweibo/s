@@ -38,11 +38,17 @@
 <p>
 	<small> ============== 4小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3892343582835529" target="freeweibo-mirror">意识形态斗争，其实就是词汇和词汇的斗争，比如社会主义和资本主…</a>
+</h2>
+<p>意识形态斗争，其实就是词汇和词汇的斗争，比如社会主义和资本主义，公有制和私有制，看起来针锋相对，但在实际运用中，两者意思往往相反，社会主义成了权贵资本的护身符，而私有制通过各种形式转化为社会所有制。所以，马克思从来就认为，意识形态是个坏词汇，它的功能就是对现实作歪曲和虚幻的表达。</p>
+<p>
+	<small> ============== 5小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3892283336004046" target="freeweibo-mirror">SPAM 看了半宿剧，早餐了！</a>
 </h2>
 <p>SPAM 看了半宿剧，早餐了！<br><img src="http://ww4.sinaimg.cn/large/495710e0jw1ewivnsn0r6j20xc18gk6v.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3892204495601770" target="freeweibo-mirror">这是肯定，牠们是用对人民的恶去换取外界的漠视//@louis…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3892140121717461" target="freeweibo-mirror">SPAM [哈哈]//@咖啡不忧伤: “混”字用得好，画皮画…</a>
 </h2>
 <p>SPAM [哈哈]//@咖啡不忧伤: “混”字用得好，画皮画骨的功夫。原来，环球才是高级黑，[哈哈]以前误解了<br><br>RE: 环球告诉我们：1，原来中国这些年在国际上是在混的。2，是靠撒钱才能混的。这倒底是个什么报纸？[白眼]在黑谁呢？<br><img src="http://ww1.sinaimg.cn/large/6b804b51gw1ewibkuous5j20c80kj419.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3892138938617504" target="freeweibo-mirror">还真回应了。//@上官云开记者: 谁代表中国人民的发言权？ …</a>
-</h2>
-<p>还真回应了。//@上官云开记者: 谁代表中国人民的发言权？ //@公民叶海燕:不要脸！</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
