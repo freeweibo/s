@@ -36,7 +36,7 @@
 </h2>
 <p>SPAM //@亮剑兄来了://@章于非: //@苍鹰视点:[赞啊]//@老妖再来5: [赞]</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3892489809542419" target="freeweibo-mirror">SPAM 昨天，最美的新娘！[玫瑰][玫瑰]</a>
 </h2>
