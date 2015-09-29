@@ -24,7 +24,7 @@
 </h2>
 <p>SPAM 看样子这文章是真的打到公知的痛处了，他们必须群起进攻，不然傻逼粉丝们就会清醒了。//@薛定谔的Viviani:这不是机密，是人之常情。所谓天下攘攘为利而来，天下熙熙为利而动。[挖鼻]<br><br>RE: 环球时报泄露国家机密：中国外交靠金钱在混<br><img src="http://ww1.sinaimg.cn/large/b686ce1fgw1ewimedyetvj20c80kj0vh.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3892283336004046" target="freeweibo-mirror">SPAM 看了半宿剧，早餐了！</a>
 </h2>
