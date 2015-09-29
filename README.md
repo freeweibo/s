@@ -26,6 +26,24 @@
 <p>
 	<small> ============== 1小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3892565961095527" target="freeweibo-mirror">//@李刚律师拆迁维权:这是谁的错？</a>
+</h2>
+<p>//@李刚律师拆迁维权:这是谁的错？<br><br>RE: 【美国媒体：中国人正在抛弃自己的祖国】许多有钱、有势、有才能的中国人纷纷移民欧美，通过境外生育改变孩子的国籍；这些中国人渴望民主自由、渴望享受欧美福利待遇，但他们采取的方法不是去改变自己的国家，而是采取大逃亡的形式，等于抛弃自己的祖国，不愿意为祖国的民主建设牺牲个人的利益。转<br><img src="http://ww2.sinaimg.cn/large/005QDR9djw1ewjjix7wuaj30c80hbq54.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3892565318935777" target="freeweibo-mirror">//@善良的书明: //@一网打尽1861: //@梦醒时分…</a>
+</h2>
+<p>//@善良的书明: //@一网打尽1861: //@梦醒时分9241:留不住也钱人 //@萧山维权者戴鸿://@坚持到底追求完美:转发微博<br><br>RE: 【美国媒体：中国人正在抛弃自己的祖国】许多有钱、有势、有才能的中国人纷纷移民欧美，通过境外生育改变孩子的国籍；这些中国人渴望民主自由、渴望享受欧美福利待遇，但他们采取的方法不是去改变自己的国家，而是采取大逃亡的形式，等于抛弃自己的祖国，不愿意为祖国的民主建设牺牲个人的利益。转<br><img src="http://ww2.sinaimg.cn/large/005QDR9djw1ewjjix7wuaj30c80hbq54.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3892564022848899" target="freeweibo-mirror">这是谁的错？</a>
+</h2>
+<p>这是谁的错？<br><br>RE: 【美国媒体：中国人正在抛弃自己的祖国】许多有钱、有势、有才能的中国人纷纷移民欧美，通过境外生育改变孩子的国籍；这些中国人渴望民主自由、渴望享受欧美福利待遇，但他们采取的方法不是去改变自己的国家，而是采取大逃亡的形式，等于抛弃自己的祖国，不愿意为祖国的民主建设牺牲个人的利益。转<br><img src="http://ww2.sinaimg.cn/large/005QDR9djw1ewjjix7wuaj30c80hbq54.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3892560655779056" target="freeweibo-mirror">SPAM 最后一张图@微博小秘书 是怎么审核的？ </a>
 </h2>
 <p>SPAM 最后一张图@微博小秘书 是怎么审核的？ </p>
@@ -119,24 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3892411011293260" target="freeweibo-mirror">如果有的学生有密集恐惧症，恐怕每天上楼都会处在不安当中。如果…</a>
 </h2>
 <p>如果有的学生有密集恐惧症，恐怕每天上楼都会处在不安当中。如果楼上的学生成绩没有明显好于一楼的学生，是不是可以反过来证明它的作用没有想像的那么大？[偷笑]好的教育不是往脑袋里灌水，而是设法点燃思想的火堆。现在，我很关心一件事：楼梯是有限的，你考虑过没有被印制出来的其它”知识“的感受吗</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3892395600717294" target="freeweibo-mirror">[哈哈]@杨佩昌 ： 发明“正能量”这个词的人是山木培训的老…</a>
-</h2>
-<p>[哈哈]@杨佩昌 ： 发明“正能量”这个词的人是山木培训的老板宋山木！ 他奸污女学员的时候，最常说的一句话就是：“你现在身体里面充满了负能量，我给你注入一点正能量。” 所以，正能量就是精液。 整天嚷着需要正能量的人，说白了就俩字：欠操。<br><img src="http://ww2.sinaimg.cn/large/005M9C10jw1ewj8j0w8w8j30c80g2412.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3892392707024908" target="freeweibo-mirror">//@清华郭28于华: //@老豆不炒熟22: //@伟荣V…</a>
-</h2>
-<p>//@清华郭28于华: //@老豆不炒熟22: //@伟荣V实说: //@惊醒的家奴6: [话筒]//@新树老枝2015: //@松间明月28: [话筒]//@5的代言: //@山寨检控官在福建://@冷眼看天下2830478733: 转发微博<br><br>RE: 非常佩服这样的教师！西安某高校女教师无眠给了罗援将军一闷棍。 现被停课。 http://t.cn/R2W6iAD<br><img src="http://ww3.sinaimg.cn/large/97e3520dgw1ewj4jo1guyj20hs0l8jtt.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3892391725275340" target="freeweibo-mirror">SPAM *影*帝*赴中学，教授表演学！[哈哈][哈哈][哈…</a>
-</h2>
-<p>SPAM *影*帝*赴中学，教授表演学！[哈哈][哈哈][哈哈] http://t.cn/RyC3PXx @思想火炬@军报记者@紫光阁<br><img src="http://ww2.sinaimg.cn/large/006drcoEjw1ewj81yxfgpj30bm0fxmyh.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
