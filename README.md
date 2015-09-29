@@ -54,7 +54,7 @@
 </h2>
 <p>环球时报泄露国家机密：中国外交靠金钱在混<br><img src="http://ww1.sinaimg.cn/large/b686ce1fgw1ewimedyetvj20c80kj0vh.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3892201140771008" target="freeweibo-mirror">//@谠大大: 你懂的[笑哈哈]</a>
 </h2>
