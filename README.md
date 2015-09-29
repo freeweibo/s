@@ -26,6 +26,18 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3892427519546466" target="freeweibo-mirror">SPAM  //@飘去漂来:[吃惊]说错了吗//@作家东海:…</a>
+</h2>
+<p>SPAM  //@飘去漂来:[吃惊]说错了吗//@作家东海: 句句在理！[赞][话筒]<br><br>RE: 非常佩服这样的教师！西安某高校女教师无眠给了罗援将军一闷棍。 现被停课。 http://t.cn/R2W6iAD<br><img src="http://ww3.sinaimg.cn/large/97e3520dgw1ewj4jo1guyj20hs0l8jtt.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3892420296977585" target="freeweibo-mirror">SPAM [阴险]</a>
+</h2>
+<p>SPAM [阴险]<br><br>RE: 非常佩服这样的教师！西安某高校女教师无眠给了罗援将军一闷棍。 现被停课。 http://t.cn/R2W6iAD<br><img src="http://ww3.sinaimg.cn/large/97e3520dgw1ewj4jo1guyj20hs0l8jtt.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3892417549652626" target="freeweibo-mirror">SPAM //@天高云淡T01://@白羽feixiang:…</a>
 </h2>
 <p>SPAM //@天高云淡T01://@白羽feixiang: //@天高云淡T01: 奥斯卡获奖作品现场直播——一个好人和两个女干贝戎的故事！[嘻嘻] http://t.cn/RyNPfMz</p>
@@ -125,18 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3892150821040779" target="freeweibo-mirror">【当代恶政三招】内政三招：维稳、独裁、搞特权！经济三招：卖地…</a>
 </h2>
 <p>【当代恶政三招】内政三招：维稳、独裁、搞特权！经济三招：卖地、印钞、挖资源！外交三招：抗议、装孙、猛砸钱！军队三招：吹牛、叠被、文工团！教育三招：改革、收费、造脑残！开会三招：举手、拍手、不发言！从政三招：贪污、受贿、养小三！微博三招：删帖、封号、报国安！（@演员孙海英）</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3892150091479131" target="freeweibo-mirror">//@98年记: 这次说实话了。//@柔骨冰心: 真是丢人现…</a>
-</h2>
-<p>//@98年记: 这次说实话了。//@柔骨冰心: 真是丢人现眼。现在官媒体，水平怎如此低级？泱泱大国，官媒出来的东西竟然这样荒诞。那些优秀的资深媒体人，是有良知给禁言了？还是看多了黑幕或虚假信息又不能报道，干脆或避三舍？导致跳梁小丑不得已担纲了主演？//@山高路远N://@雷蒙6862: //@齐河律师:<br><br>RE: 环球告诉我们：1，原来中国这些年在国际上是在混的。2，是靠撒钱才能混的。这倒底是个什么报纸？[白眼]在黑谁呢？<br><img src="http://ww1.sinaimg.cn/large/6b804b51gw1ewibkuous5j20c80kj419.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3892147822950142" target="freeweibo-mirror">再处分总编，叫你外交部都没法混了！//@荣剑2001:球报得…</a>
-</h2>
-<p>再处分总编，叫你外交部都没法混了！//@荣剑2001:球报得了急性短暂性精神障碍症了？//@山高路远N://@雷蒙6862: 与屎报一起混，混到最后只有一个球！//@齐河律师:<br><br>RE: 环球告诉我们：1，原来中国这些年在国际上是在混的。2，是靠撒钱才能混的。这倒底是个什么报纸？[白眼]在黑谁呢？<br><img src="http://ww1.sinaimg.cn/large/6b804b51gw1ewibkuous5j20c80kj419.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
