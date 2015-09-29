@@ -78,7 +78,7 @@
 </h2>
 <p>非常佩服这样的教师！西安某高校女教师无眠给了罗援将军一闷棍。 现被停课。 http://t.cn/R2W6iAD<br><img src="http://ww3.sinaimg.cn/large/97e3520dgw1ewj4jo1guyj20hs0l8jtt.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3892347223750296" target="freeweibo-mirror">SPAM 看样子这文章是真的打到公知的痛处了，他们必须群起进…</a>
 </h2>
