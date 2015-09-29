@@ -60,7 +60,7 @@
 </h2>
 <p>SPAM [笑cry]看名字也要马</p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3892459463857039" target="freeweibo-mirror">SPAM //@老罗的微博: 正能量就是精液！//@深南-大…</a>
 </h2>
@@ -108,7 +108,7 @@
 </h2>
 <p>[哈哈]@杨佩昌 ： 发明“正能量”这个词的人是山木培训的老板宋山木！ 他奸污女学员的时候，最常说的一句话就是：“你现在身体里面充满了负能量，我给你注入一点正能量。” 所以，正能量就是精液。 整天嚷着需要正能量的人，说白了就俩字：欠操。<br><img src="http://ww2.sinaimg.cn/large/005M9C10jw1ewj8j0w8w8j30c80g2412.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3892392707024908" target="freeweibo-mirror">//@清华郭28于华: //@老豆不炒熟22: //@伟荣V…</a>
 </h2>
