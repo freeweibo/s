@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3892823931239166" target="freeweibo-mirror">【说真话的都是汉奸美狗】[哈哈][哈哈]//@徐昕: 不容易…</a>
+</h2>
+<p>【说真话的都是汉奸美狗】[哈哈][哈哈]//@徐昕: 不容易，也要坚持说真话 //@大尸凶的漫画:难怪茅老是五毛们的眼中钉肉中刺<br><br>RE: 汇总某个人所发的微博，可以猜测他所追求的是什么。现在收买良心出价最高的是当权者。把自己卖给当权者，不但收益高，很安全，而且还能升官。说真话，揭露真相，不但没有任何收益，还要冒风险。正因为如此，所以我们这个社会里假话成风，百姓才会被洗脑；甚至抵制真话，辱骂说真话的人。</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3892803786247375" target="freeweibo-mirror">叶隐其实很傻，他根本不懂得历史发展和社会进步的内在逻辑，更没…</a>
 </h2>
 <p>叶隐其实很傻，他根本不懂得历史发展和社会进步的内在逻辑，更没有历史洞察力。/@飞过天空的树袋熊: 扫盲，打疫苗防病<br><br>RE: 迄今为止，共产党没干过一件好事。不服，就请举证，谢谢！</p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3892489809542419" target="freeweibo-mirror">SPAM 昨天，最美的新娘！[玫瑰][玫瑰]</a>
 </h2>
 <p>SPAM 昨天，最美的新娘！[玫瑰][玫瑰]<br><img src="http://ww3.sinaimg.cn/large/00644QS0jw1ewjjdqfcymj30qm0qogpp.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3892468351372325" target="freeweibo-mirror">SPAM 我正在申请微博认证，认证信息为“缇诺卡奇店长”。请…</a>
-</h2>
-<p>SPAM 我正在申请微博认证，认证信息为“缇诺卡奇店长”。请@陈清雯stream @张诗晨ivy @小狼不孤单 @电商轩轩 @涅磐璇玑 @摩羯象象 转发此条微博帮我确认身份，多谢！！ http://t.cn/R718twx</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
