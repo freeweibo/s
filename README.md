@@ -20,6 +20,18 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3892803786247375" target="freeweibo-mirror">叶隐其实很傻，他根本不懂得历史发展和社会进步的内在逻辑，更没…</a>
+</h2>
+<p>叶隐其实很傻，他根本不懂得历史发展和社会进步的内在逻辑，更没有历史洞察力。/@飞过天空的树袋熊: 扫盲，打疫苗防病<br><br>RE: 迄今为止，共产党没干过一件好事。不服，就请举证，谢谢！</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3892786723620705" target="freeweibo-mirror">【华尔街见闻】…总计买进1,318万吨美国大豆，总值约53亿…</a>
+</h2>
+<p>【华尔街见闻】…总计买进1,318万吨美国大豆，总值约53亿美元，这是史上在同一天内数量最多的大豆合约。【点评】百姓不出国门就能吃上纯正的美国货，这是天大的福分！感谢！[馋嘴]<br><br>RE: 【大大的大红包是炸药包】中国53亿美元从美国购进1318万吨转基因大豆，按当日汇率6.362/美元本次合同购进价格折合人民币是2.56元，国内大豆官方挂牌价2.44/公斤，比非转大豆还高0.12/公斤，而黑龙江大豆严重滞销，豆农叫苦连天。与其说习近平千里迢迢，不辞劳苦对国内来说买回来的就是一个炸药包。</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3892698584836989" target="freeweibo-mirror">李嘉诚跑了，大陆的企业家怎么跑？厂房设备，父老乡亲，几千名员…</a>
 </h2>
 <p>李嘉诚跑了，大陆的企业家怎么跑？厂房设备，父老乡亲，几千名员工，都抛下？其实，暴民不可怕，可怕的是暴民政府！</p>
@@ -125,18 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3892428643623741" target="freeweibo-mirror">SPAM 这是个女禽兽！[怒]//@中国人民之3: 静静看着…</a>
 </h2>
 <p>SPAM 这是个女禽兽！[怒]//@中国人民之3: 静静看着你们……[困]//@玉兔-游击队:学校已经成为反共前沿[话筒]<br><br>RE: 非常佩服这样的教师！西安某高校女教师无眠给了罗援将军一闷棍。 现被停课。 http://t.cn/R2W6iAD<br><img src="http://ww3.sinaimg.cn/large/97e3520dgw1ewj4jo1guyj20hs0l8jtt.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3892427519546466" target="freeweibo-mirror">SPAM  //@飘去漂来:[吃惊]说错了吗//@作家东海:…</a>
-</h2>
-<p>SPAM  //@飘去漂来:[吃惊]说错了吗//@作家东海: 句句在理！[赞][话筒]<br><br>RE: 非常佩服这样的教师！西安某高校女教师无眠给了罗援将军一闷棍。 现被停课。 http://t.cn/R2W6iAD<br><img src="http://ww3.sinaimg.cn/large/97e3520dgw1ewj4jo1guyj20hs0l8jtt.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3892420296977585" target="freeweibo-mirror">SPAM [阴险]</a>
-</h2>
-<p>SPAM [阴险]<br><br>RE: 非常佩服这样的教师！西安某高校女教师无眠给了罗援将军一闷棍。 现被停课。 http://t.cn/R2W6iAD<br><img src="http://ww3.sinaimg.cn/large/97e3520dgw1ewj4jo1guyj20hs0l8jtt.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
