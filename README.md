@@ -26,11 +26,17 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3892801299111423" target="freeweibo-mirror">//@北马南山:看不懂，瞎转。//@民间治堵人陈哲宏: //…</a>
+</h2>
+<p>//@北马南山:看不懂，瞎转。//@民间治堵人陈哲宏: //@深圳彭国永: //@华哥深圳://@博者文摘:转发微博<br><br>RE: 煤是他家挖的，电是她家发的，表是她家做的，线是她家拉的，价是她家定的，钱是他们家拿的……他家建立了最成功的中国模式：权贵资本主义！这种模式下的产生的大亨们没有一个失败者，而同时创业的民营企业家每年都尸横遍野。然后她建议“给每个公民建立道德档案，让人们知耻。<br><img src="http://ww2.sinaimg.cn/large/005UDqyhjw1ewidgnq0dvj306k0h6aat.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3892790465307176" target="freeweibo-mirror">【不受别国管制，受美国政府影响不？】伊朗大选骚乱期间，推特原…</a>
 </h2>
 <p>【不受别国管制，受美国政府影响不？】伊朗大选骚乱期间，推特原计划系统维护，但美国国务院官员以“推特对抗议者组织工作有重要作用”为由，要求推迟维护。随后推特宣布推迟维护。哈佛大学教授费里斯：“脸谱”在伊朗大选引发的骚乱中发挥了巨大作用。 http://t.cn/RLqQ9ze<br><br>RE: 纽约时间今天上午，Facebook 创始人在联合国大会发言：互联网接入是基本人权。<br><img src="http://ww1.sinaimg.cn/large/53436caejw1ewikbt1h7qj20g60asdhr.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3892786723620705" target="freeweibo-mirror">【华尔街见闻】…总计买进1,318万吨美国大豆，总值约53亿…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3892468351372325" target="freeweibo-mirror">SPAM 我正在申请微博认证，认证信息为“缇诺卡奇店长”。请…</a>
 </h2>
 <p>SPAM 我正在申请微博认证，认证信息为“缇诺卡奇店长”。请@陈清雯stream @张诗晨ivy @小狼不孤单 @电商轩轩 @涅磐璇玑 @摩羯象象 转发此条微博帮我确认身份，多谢！！ http://t.cn/R718twx</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3892463519727187" target="freeweibo-mirror">SPAM [笑cry]看名字也要马</a>
-</h2>
-<p>SPAM [笑cry]看名字也要马</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
