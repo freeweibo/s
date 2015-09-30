@@ -54,7 +54,7 @@
 </h2>
 <p>【不受别国管制，受美国政府影响不？】伊朗大选骚乱期间，推特原计划系统维护，但美国国务院官员以“推特对抗议者组织工作有重要作用”为由，要求推迟维护。随后推特宣布推迟维护。哈佛大学教授费里斯：“脸谱”在伊朗大选引发的骚乱中发挥了巨大作用。 http://t.cn/RLqQ9ze<br><br>RE: 纽约时间今天上午，Facebook 创始人在联合国大会发言：互联网接入是基本人权。<br><img src="http://ww1.sinaimg.cn/large/53436caejw1ewikbt1h7qj20g60asdhr.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3892786723620705" target="freeweibo-mirror">【华尔街见闻】…总计买进1,318万吨美国大豆，总值约53亿…</a>
 </h2>
