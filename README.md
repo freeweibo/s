@@ -96,13 +96,13 @@
 </h2>
 <p>#广西柳城爆炸#十三处爆炸地点。<br><br>RE: #广西柳城爆炸#【监狱、镇政府、汽车站......13处爆炸都包括哪里？】柳城县公安局通报称，柳城县范围内连续发生爆炸，目前，指挥中心接到报警13起，包括商贸城5栋、柳城监狱、大埔镇政府、世纪联华、柳城汽车站、柳城县中医院、畜牧局宿舍、疾控中心等13处公共场所。http://t.cn/Rypp2XG<br><img src="http://ww1.sinaimg.cn/large/60718250jw1ewkohqpw1jj20c80kgab7.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3892847889775690" target="freeweibo-mirror">#广西柳城爆炸#【监狱、镇政府、汽车站......13处爆炸…</a>
 </h2>
 <p>#广西柳城爆炸#【监狱、镇政府、汽车站......13处爆炸都包括哪里？】柳城县公安局通报称，柳城县范围内连续发生爆炸，目前，指挥中心接到报警13起，包括商贸城5栋、柳城监狱、大埔镇政府、世纪联华、柳城汽车站、柳城县中医院、畜牧局宿舍、疾控中心等13处公共场所。http://t.cn/Rypp2XG<br><img src="http://ww1.sinaimg.cn/large/60718250jw1ewkohqpw1jj20c80kgab7.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3892825361538383" target="freeweibo-mirror">这就是五毛眼中的大汉奸 //@大尸凶的漫画:难怪茅老是五毛们…</a>
 </h2>
