@@ -72,7 +72,7 @@
 </h2>
 <p>监狱、镇政府、汽车站......广西柳城连续发生爆炸......<br><img src="http://ww4.sinaimg.cn/large/6a3d7f8cjw1ewkq7xdl6mj20k00zkdv2.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3892858341533160" target="freeweibo-mirror">看到爆炸死人，任推墙很鸡冻。[弱] //@赵宇辰V:信口开河…</a>
 </h2>
@@ -138,7 +138,7 @@
 </h2>
 <p>#广西柳城爆炸#【监狱、镇政府、汽车站......13处爆炸都包括哪里？】柳城县公安局通报称，柳城县范围内连续发生爆炸，目前，指挥中心接到报警13起，包括商贸城5栋、柳城监狱、大埔镇政府、世纪联华、柳城汽车站、柳城县中医院、畜牧局宿舍、疾控中心等13处公共场所。http://t.cn/Rypp2XG<br><img src="http://ww1.sinaimg.cn/large/60718250jw1ewkohqpw1jj20c80kgab7.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p>
 <table>
     <tr>
