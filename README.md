@@ -60,13 +60,13 @@
 </h2>
 <p>#广西柳城爆炸#【广西柳城今早再爆炸 特警抵达现场】广西柳州柳城县今早爆炸现场已拉起警戒线，现场可看到特警车辆，武警和消防员均已抵达。http://t.cn/Ry0yUvD<br><img src="http://ww4.sinaimg.cn/large/60718250jw1ewlc5os98fj20c8096my9.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3893053872299344" target="freeweibo-mirror">SPAM //@春风_70545: 环球时报说的，中国外交不…</a>
 </h2>
 <p>SPAM //@春风_70545: 环球时报说的，中国外交不撒钱，就无法在世界上混！是最好的解释！ //@邓树林律师://@三教布衣AAA: [弱]//@律师姬来松:不散钱就无法在国家上混<br><br>RE: 美聯社指:【中國式的支票簿外交】<br><img src="http://ww3.sinaimg.cn/large/006ett1ajw1ewkvpd8rcyj30m80enq4j.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3893032821056869" target="freeweibo-mirror">【广西柳城17起爆炸已致7人遇难】“这一案件已排除暴恐案件的…</a>
 </h2>
@@ -90,7 +90,7 @@
 </h2>
 <p>美聯社指:【中國式的支票簿外交】<br><img src="http://ww3.sinaimg.cn/large/006ett1ajw1ewkvpd8rcyj30m80enq4j.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3892898464444054" target="freeweibo-mirror">//@司马明达: //@楊康令: //@政治论://@章文的…</a>
 </h2>
