@@ -78,7 +78,7 @@
 </h2>
 <p>请教@北京大学 :  既然贵校的祖国只有66岁，那么99年前，蔡元培先生在贵校当校长时，贵校属于哪一国？<br><img src="http://ww2.sinaimg.cn/large/749a72b0gw1ewleg8bud2j20p018ggr7.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3893071835681840" target="freeweibo-mirror">[转发]//@苏州朱永健: //@玉风: 警方居然用刑事案件…</a>
 </h2>
