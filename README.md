@@ -24,7 +24,7 @@
 </h2>
 <p>SPAM 网民上网的安全感下降？[哈哈][哈哈][哈哈]这样的逻辑只能砸政府的脸和形象。帮倒忙。<br><img src="http://ww2.sinaimg.cn/large/53bb846fgw1ewlgywzbx3j20hs0mzq6p.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3893086570156937" target="freeweibo-mirror">SPAM 明天上午和下午会在场馆不同的地方哦~大家看好签售时…</a>
 </h2>
@@ -102,13 +102,13 @@
 </h2>
 <p>昨天说人都抓获了，今天又爆炸，是昨天的炸弹快递没拆完吗？<br><br>RE: #广西柳城爆炸#【广西柳城今早再爆炸 特警抵达现场】广西柳州柳城县今早爆炸现场已拉起警戒线，现场可看到特警车辆，武警和消防员均已抵达。http://t.cn/Ry0yUvD<br><img src="http://ww4.sinaimg.cn/large/60718250jw1ewlc5os98fj20c8096my9.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3893065557118864" target="freeweibo-mirror">程益中：中国最大的糟粕，就是所谓的做人学问，中国人缺乏的是率…</a>
 </h2>
 <p>程益中：中国最大的糟粕，就是所谓的做人学问，中国人缺乏的是率真和纯粹。中国到处充斥着各式各样、似是而非的做人做官的学问、庸俗管理的学问，其祖师爷都是厚黑学和潜规则。从这些学问那里，我看到的都是争先恐后的、创造性的无耻。</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3893064533459456" target="freeweibo-mirror">【纠正一个常识错误：祖国不是66岁】新中国和“祖国”是两个概…</a>
 </h2>
