@@ -20,6 +20,18 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3893065939176684" target="freeweibo-mirror">昨天说人都抓获了，今天又爆炸，是昨天的炸弹快递没拆完吗？</a>
+</h2>
+<p>昨天说人都抓获了，今天又爆炸，是昨天的炸弹快递没拆完吗？<br><br>RE: #广西柳城爆炸#【广西柳城今早再爆炸 特警抵达现场】广西柳州柳城县今早爆炸现场已拉起警戒线，现场可看到特警车辆，武警和消防员均已抵达。http://t.cn/Ry0yUvD<br><img src="http://ww4.sinaimg.cn/large/60718250jw1ewlc5os98fj20c8096my9.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3893053872299344" target="freeweibo-mirror">SPAM //@春风_70545: 环球时报说的，中国外交不…</a>
+</h2>
+<p>SPAM //@春风_70545: 环球时报说的，中国外交不撒钱，就无法在世界上混！是最好的解释！ //@邓树林律师://@三教布衣AAA: [弱]//@律师姬来松:不散钱就无法在国家上混<br><br>RE: 美聯社指:【中國式的支票簿外交】<br><img src="http://ww3.sinaimg.cn/large/006ett1ajw1ewkvpd8rcyj30m80enq4j.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3893024700060958" target="freeweibo-mirror">//@布谷鸟咕咕叫:转发微博</a>
 </h2>
 <p>//@布谷鸟咕咕叫:转发微博<br><br>RE: 我在哪，哪里就是中国。为什么要到某一块土地上才叫中国？那土地上反而没有中国——余英时。我生本无乡，心安是归处——白居易<br><img src="http://ww4.sinaimg.cn/large/006ett1agw1ewkh8jh5mmj30gn0bbgov.jpg"></p>
@@ -36,7 +48,7 @@
 </h2>
 <p>//@司马明达: //@楊康令: //@政治论://@章文的文章:民主社会，办事就是麻烦[酷]<br><br>RE: 【美国援外及免除债务均须国会批准 总统受限】美国总统在对外援助金额、对象方面，并无决定权，更别提免除债务；民选机构美国国会拥有拨款权，对援助评议严格，往往耗时一年以上。美国民众通过他们的“人大代表”，避免在对外援助上行政权力滥用，援助不当。http://t.cn/RypYspA<br><img src="http://ww4.sinaimg.cn/large/7867052dgw1ewkread2mvj20b406hwez.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3892889363079583" target="freeweibo-mirror">广西柳城系列爆炸案，从目前得到的信息来看，绝不是包裹快递这么…</a>
 </h2>
@@ -125,18 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3892851626740036" target="freeweibo-mirror">[吃惊][围观] //@任志强:爆动了？ //@王冉:转发微…</a>
 </h2>
 <p>[吃惊][围观] //@任志强:爆动了？ //@王冉:转发微博<br><br>RE: #广西柳城爆炸#【监狱、镇政府、汽车站......13处爆炸都包括哪里？】柳城县公安局通报称，柳城县范围内连续发生爆炸，目前，指挥中心接到报警13起，包括商贸城5栋、柳城监狱、大埔镇政府、世纪联华、柳城汽车站、柳城县中医院、畜牧局宿舍、疾控中心等13处公共场所。http://t.cn/Rypp2XG<br><img src="http://ww1.sinaimg.cn/large/60718250jw1ewkohqpw1jj20c80kgab7.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3892851588604253" target="freeweibo-mirror">。。。 //@小眼昏花:我靠</a>
-</h2>
-<p>。。。 //@小眼昏花:我靠<br><br>RE: #广西柳城爆炸#【监狱、镇政府、汽车站......13处爆炸都包括哪里？】柳城县公安局通报称，柳城县范围内连续发生爆炸，目前，指挥中心接到报警13起，包括商贸城5栋、柳城监狱、大埔镇政府、世纪联华、柳城汽车站、柳城县中医院、畜牧局宿舍、疾控中心等13处公共场所。http://t.cn/Rypp2XG<br><img src="http://ww1.sinaimg.cn/large/60718250jw1ewkohqpw1jj20c80kgab7.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3892851370730867" target="freeweibo-mirror">我靠</a>
-</h2>
-<p>我靠<br><br>RE: #广西柳城爆炸#【监狱、镇政府、汽车站......13处爆炸都包括哪里？】柳城县公安局通报称，柳城县范围内连续发生爆炸，目前，指挥中心接到报警13起，包括商贸城5栋、柳城监狱、大埔镇政府、世纪联华、柳城汽车站、柳城县中医院、畜牧局宿舍、疾控中心等13处公共场所。http://t.cn/Rypp2XG<br><img src="http://ww1.sinaimg.cn/large/60718250jw1ewkohqpw1jj20c80kgab7.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
