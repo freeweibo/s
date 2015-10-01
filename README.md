@@ -32,6 +32,12 @@
 <p>
 	<small> ============== 1小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3893116169462069" target="freeweibo-mirror">这帮今天宣称“这国不是1949年10月1日才有的”的家伙，等…</a>
+</h2>
+<p>这帮今天宣称“这国不是1949年10月1日才有的”的家伙，等到10月10日又会跳出来喊“10月10日才是国庆日”的、@滨海闲人01@国旗-水方人思周816 //@风中的蒲公英云: //@滨海闲人01:可见当年反右没有一点错</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3893111623321781" target="freeweibo-mirror">//@回灯添酒: 标题口语化，很有特色。</a>
 </h2>
 <p>//@回灯添酒: 标题口语化，很有特色。<br><br>RE: 【辽宁历史上的今天】为庆祝伟大的中华人民共国成立19周年，从1968年10月1日起，全省居民每人每月的五两食用油降为三两，每人每月强制性节约一斤粮，以支援国家建设。广大辽宁人民欢欣鼓舞，奔走相告：这是毛主席革命路线的伟大胜利，是无产阶级文化大革命的丰硕成果！[耶][耶][耶]<br><img src="http://ww2.sinaimg.cn/large/4ec730ffgw1ewlbqe7ao8j20dw0b875r.jpg"></p>
@@ -84,7 +90,7 @@
 </h2>
 <p>SPAM 明天上午和下午会在场馆不同的地方哦~大家看好签售时间和地点啦~~[爱你]</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3893081717608836" target="freeweibo-mirror">说是国庆节，庆祝什么呢？庆祝国家两岸分离了？庆祝“枪杆子出政…</a>
 </h2>
@@ -120,23 +126,17 @@
 </h2>
 <p>[转发]//@苏州朱永健: //@玉风: 警方居然用刑事案件替代暴恐犯罪？！[疑问][围观]//@苏州朱永健://@罗亚蒙: #亚蒙看法#【广西柳城今早再爆炸[吃惊] 特警抵达现场】恐怖分子太猖狂了！！ http://t.cn/Ry0U4Fk</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3893071781117521" target="freeweibo-mirror">SPAM 专业洗脑66年，66年前没祖国？</a>
 </h2>
 <p>SPAM 专业洗脑66年，66年前没祖国？<br><br>RE: 今天又到了考验智商的时刻。提醒一下，祖国不只66岁。<br><img src="http://ww1.sinaimg.cn/large/4d21190fjw1ewlbnihijaj20p018gn7y.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3893071307333012" target="freeweibo-mirror">在众人欢度国庆之时，纠缠这个，既无聊又有点阴暗。</a>
 </h2>
 <p>在众人欢度国庆之时，纠缠这个，既无聊又有点阴暗。<br><br>RE: 【纠正一个常识错误：祖国不是66岁】新中国和“祖国”是两个概念。祖国66华诞，5千年文明在外星?矫情宣传不要落入历史虚无主义谬误。<br><img src="http://ww2.sinaimg.cn/large/6b804b51gw1ewlddwq4s4j20ez0qotch.jpg"></p>
-<p>
-	<small> ============== 4小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3893068358833680" target="freeweibo-mirror">什么来头[衰]</a>
-</h2>
-<p>什么来头[衰]<br><br>RE: #广西柳城爆炸#【广西柳城今早再爆炸 特警抵达现场】广西柳州柳城县今早爆炸现场已拉起警戒线，现场可看到特警车辆，武警和消防员均已抵达。http://t.cn/Ry0yUvD<br><img src="http://ww4.sinaimg.cn/large/60718250jw1ewlc5os98fj20c8096my9.jpg"></p>
 <p>
 	<small> ============== 5小时前</small>
 </p>
