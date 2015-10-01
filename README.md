@@ -26,6 +26,60 @@
 <p>
 	<small> ============== 1小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3893387046070239" target="freeweibo-mirror">正解！[赞][嘻嘻]</a>
+</h2>
+<p>正解！[赞][嘻嘻]</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3893384555352109" target="freeweibo-mirror">当初的“共同纲领”只是“挂羊头卖狗肉”的勾当//@老蔡时评:…</a>
+</h2>
+<p>当初的“共同纲领”只是“挂羊头卖狗肉”的勾当//@老蔡时评:老任说得很明白，说白了，就是贵党执政掌权66年了，而这个国家己存在了数千年之久。</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3893384127466698" target="freeweibo-mirror">实实在在搞共和制，中国就不会分裂至今。</a>
+</h2>
+<p>实实在在搞共和制，中国就不会分裂至今。</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3893378716170620" target="freeweibo-mirror">任总和一干公知们在为推翻中共政权做舆论准备。 //@健儿打打…</a>
+</h2>
+<p>任总和一干公知们在为推翻中共政权做舆论准备。 //@健儿打打://@闷猫XI: //@王健_经济金融科普:任总是提醒大家要正确区分政府和国家吗？[哈哈]</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3893376695028133" target="freeweibo-mirror">任总可以组建新党了</a>
+</h2>
+<p>任总可以组建新党了</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3893375491381773" target="freeweibo-mirror">普及常识！ //@老芋头:转发微博</a>
+</h2>
+<p>普及常识！ //@老芋头:转发微博</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3893375012764756" target="freeweibo-mirror">//@迟夙生律师://@王方Frank老师: 转发微博</a>
+</h2>
+<p>//@迟夙生律师://@王方Frank老师: 转发微博</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3893356008944255" target="freeweibo-mirror">//@老关回来了: //@马仙家: [围观]//@务虚时代2…</a>
+</h2>
+<p>//@老关回来了: //@马仙家: [围观]//@务虚时代2012: 逻辑严密的知识贴。[good]//@SY徐风:转发微博</p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3893327705393976" target="freeweibo-mirror">十月一日的这个节日，不是一个新中国成立的节日，而是一个新的中…</a>
+</h2>
+<p>十月一日的这个节日，不是一个新中国成立的节日，而是一个新的中央人民政府宣告成立的庆典。不是中国六十六岁了，而是中央人民政府六十六岁了！这个历史应让所有的年轻人知道，更应让所有人知道当初的“共同纲领”是建立这个中央政府的共识和基础。http://t.cn/RyO2ymX</p>
+<p>
+	<small> ============== 5小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3893279622291389" target="freeweibo-mirror">//@交易线trend://@中国心J: 转发微博</a>
 </h2>
 <p>//@交易线trend://@中国心J: 转发微博</p>
@@ -83,60 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3893197065221438" target="freeweibo-mirror">SPAM 嗯，简单点说，土豪BOSS@赵世诚 给大伙准备了i…</a>
 </h2>
 <p>SPAM 嗯，简单点说，土豪BOSS@赵世诚 给大伙准备了iphone 6S，晒照片就有机会得，嗯哼～</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3893194607189186" target="freeweibo-mirror">#985新闻#【1300万！今天中国有望创历史单日出行最高纪…</a>
-</h2>
-<p>#985新闻#【1300万！今天中国有望创历史单日出行最高纪录[威武]】今天是国庆假期第一天，铁路预计发送旅客1300万人次左右，比去年最高峰增长13％，创下历史单日最高纪录。国庆假日期间，全国铁路预计发送旅客超1亿人次。<br><img src="http://ww4.sinaimg.cn/large/67fe74afgw1ewlsbvyq8ej20c8084tae.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3893188626275492" target="freeweibo-mirror">SPAM [吐] //@通州府尹:这盛世，如你所怨。再扯蛋，…</a>
-</h2>
-<p>SPAM [吐] //@通州府尹:这盛世，如你所怨。再扯蛋，不给你们穷鬼办了！ //@无肉不欢911:知乎不错，有超越网易的趋势//@齐丹霞:使领馆是无非是共党衙门开到了海外，国内是什么嘴脸，国外自然也是一样，狗怎么会改得了吃屎的德性？</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3893187573586048" target="freeweibo-mirror">SPAM //@海爷海爷: //@西门不暗: 有进步，去年喊…</a>
-</h2>
-<p>SPAM //@海爷海爷: //@西门不暗: 有进步，去年喊祖国母亲，今年不喊。可能是发现自己比母亲年龄还大几十岁。</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3893172624893069" target="freeweibo-mirror">SPAM 蛀蟲還是太多。//@许老亖:共和國生日，古樹攔腰斷…</a>
-</h2>
-<p>SPAM 蛀蟲還是太多。//@许老亖:共和國生日，古樹攔腰斷，就在耄像前，你說啥征兆？</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3893170280550185" target="freeweibo-mirror">回复@披坚执锐的阿童木:有关系，你没有免费医疗，还是70年产…</a>
-</h2>
-<p>回复@披坚执锐的阿童木:有关系，你没有免费医疗，还是70年产权，你的一切都没有根基，连汽车第三者保险都没有根基。如果你免费医疗，就不会有反复碾压，外加地皮房子都是永久产权，你就是资本主义私有制，你就有资本生存。你是公有制，就活该失业。</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3893162844244946" target="freeweibo-mirror">//@徐昕:[思考] //@ahdw200105:孙中山，老…</a>
-</h2>
-<p>//@徐昕:[思考] //@ahdw200105:孙中山，老毛，爱国么？他们推翻了当时的旧政权。</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3893162685089188" target="freeweibo-mirror">四个国家有三个都知道了，那第四个其他国家是谁呢？前三个可是邪…</a>
-</h2>
-<p>四个国家有三个都知道了，那第四个其他国家是谁呢？前三个可是邪恶国家啊！</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3893159400914009" target="freeweibo-mirror">贺教授嘴上确实有骨气，只是还差点儿上首阳山不食周粟的志气//…</a>
-</h2>
-<p>贺教授嘴上确实有骨气，只是还差点儿上首阳山不食周粟的志气//@菁瓜: 齐国当年是东夷[挖鼻]//@色色又空空: //@Lionel-Luthor:很难说原博是吃错药了还是没吃药啊……//@南城巷陌:当时尚有周天子，何事纷纷说魏齐？//@谢明弦:祖上是外来人的话，人说不定姓高或者是刘哪 //@夜語菲://@Substantia:</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3893158679408581" target="freeweibo-mirror">祖国永在。改朝换代60年而已。那些说祖国66诞辰的人是被舆论…</a>
-</h2>
-<p>祖国永在。改朝换代60年而已。那些说祖国66诞辰的人是被舆论呼吁的没转过弯来。</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
