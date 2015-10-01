@@ -32,6 +32,18 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3893142543188283" target="freeweibo-mirror">最困难的时候7个月没吃肉，而且粮食也按基本定量吃，脚都浮肿了…</a>
+</h2>
+<p>最困难的时候7个月没吃肉，而且粮食也按基本定量吃，脚都浮肿了 //@雾隐新蜂:1.天天吃红烧肉是造谣；2.拿这种谣言搞污蔑的，属于小农意识泛滥//@無風即風: //@大锣锵锵:侬哪只狗眼乌子看到天天吃红烧肉了？ //@小歘歘同学:最困难的时候天天吃红烧肉怎么算？<br><br>RE: 李银桥的回忆里有一次毛泽东听说某干部在修建公共建设时顺道在旁边给自己修了一套房，老人家第二天就把该人抓到中南海，当着周总理和聂荣臻的面愤怒说到：我早说共产党进城后不要学李自成，人家老百姓要戳我们脊梁骨的！该干部惶恐地说一时糊涂，毛泽东再度无情说到：你这是明知故犯！拉出去枪毙！</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3893141197033459" target="freeweibo-mirror">//@回锅_肉: [嘻嘻]//@王怜花:转 //@钱中华:转…</a>
+</h2>
+<p>//@回锅_肉: [嘻嘻]//@王怜花:转 //@钱中华:转发微博</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3893138899058642" target="freeweibo-mirror">党国。不能因为老蒋用了几十年，咱们就不能接过来用了。//@贺…</a>
 </h2>
 <p>党国。不能因为老蒋用了几十年，咱们就不能接过来用了。//@贺海林: 楚国</p>
@@ -68,11 +80,17 @@
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3893122670591867" target="freeweibo-mirror">SPAM //@袁裕来律师:痛心呢。//@徐昕:关键是养条白…</a>
+</h2>
+<p>SPAM //@袁裕来律师:痛心呢。//@徐昕:关键是养条白眼狼还咬你 //@佬_牛: 关键在于这么多钱扔出去了，还不告诉主人纳税人。//@钱中华: 宁与友邦，不与家奴<br><br>RE: 【两条新闻放一起，说明了什么？】<br><img src="http://ww1.sinaimg.cn/large/41693645gw1ewlelfpusej20xb18g47e.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3893117482847859" target="freeweibo-mirror">SPAM //@徐xiaopang0531: //@王颖--…</a>
 </h2>
 <p>SPAM //@徐xiaopang0531: //@王颖--不折不扣: 部分民意的表达。</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3893116169462069" target="freeweibo-mirror">这帮今天宣称“这国不是1949年10月1日才有的”的家伙，等…</a>
 </h2>
@@ -119,24 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3893096154884875" target="freeweibo-mirror">SPAM 默默滴来帮好伙伴扩散下～</a>
 </h2>
 <p>SPAM 默默滴来帮好伙伴扩散下～</p>
-<p>
-	<small> ============== 5小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3893096057744589" target="freeweibo-mirror">SPAM 网民上网的安全感下降？[哈哈][哈哈][哈哈]这样…</a>
-</h2>
-<p>SPAM 网民上网的安全感下降？[哈哈][哈哈][哈哈]这样的逻辑只能砸政府的脸和形象。帮倒忙。<br><img src="http://ww2.sinaimg.cn/large/53bb846fgw1ewlgywzbx3j20hs0mzq6p.jpg"></p>
-<p>
-	<small> ============== 5小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3893087937911125" target="freeweibo-mirror">【冰火两重天】两条消息，两种命运：一条是，“中央级离休”老干…</a>
-</h2>
-<p>【冰火两重天】两条消息，两种命运：一条是，“中央级离休”老干部，“每人配备3～5名工作人员，每人每年公费开支70～600万元”；另一条是“中国农民的养老金提高到每年840元（每月70元）”。平等与公平离我们还有多远？</p>
-<p>
-	<small> ============== 5小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3893086570156937" target="freeweibo-mirror">SPAM 明天上午和下午会在场馆不同的地方哦~大家看好签售时…</a>
-</h2>
-<p>SPAM 明天上午和下午会在场馆不同的地方哦~大家看好签售时间和地点啦~~[爱你]</p>
 <p>
 	<small> ============== 5小时前</small>
 </p>
