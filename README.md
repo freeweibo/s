@@ -32,6 +32,12 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3893096154884875" target="freeweibo-mirror">SPAM 默默滴来帮好伙伴扩散下～</a>
+</h2>
+<p>SPAM 默默滴来帮好伙伴扩散下～</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3893096057744589" target="freeweibo-mirror">SPAM 网民上网的安全感下降？[哈哈][哈哈][哈哈]这样…</a>
 </h2>
 <p>SPAM 网民上网的安全感下降？[哈哈][哈哈][哈哈]这样的逻辑只能砸政府的脸和形象。帮倒忙。<br><img src="http://ww2.sinaimg.cn/large/53bb846fgw1ewlgywzbx3j20hs0mzq6p.jpg"></p>
@@ -48,7 +54,7 @@
 </h2>
 <p>SPAM 明天上午和下午会在场馆不同的地方哦~大家看好签售时间和地点啦~~[爱你]</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3893079687917558" target="freeweibo-mirror">脑残是被洗出来的还是天生的？[偷笑] //@荣剑2001:这…</a>
 </h2>
@@ -78,13 +84,19 @@
 </h2>
 <p>[转发]//@苏州朱永健: //@玉风: 警方居然用刑事案件替代暴恐犯罪？！[疑问][围观]//@苏州朱永健://@罗亚蒙: #亚蒙看法#【广西柳城今早再爆炸[吃惊] 特警抵达现场】恐怖分子太猖狂了！！ http://t.cn/Ry0U4Fk</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3893071781117521" target="freeweibo-mirror">SPAM 专业洗脑66年，66年前没祖国？</a>
+</h2>
+<p>SPAM 专业洗脑66年，66年前没祖国？<br><br>RE: 今天又到了考验智商的时刻。提醒一下，祖国不只66岁。<br><img src="http://ww1.sinaimg.cn/large/4d21190fjw1ewlbnihijaj20p018gn7y.jpg"></p>
+<p>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3893071307333012" target="freeweibo-mirror">在众人欢度国庆之时，纠缠这个，既无聊又有点阴暗。</a>
 </h2>
 <p>在众人欢度国庆之时，纠缠这个，既无聊又有点阴暗。<br><br>RE: 【纠正一个常识错误：祖国不是66岁】新中国和“祖国”是两个概念。祖国66华诞，5千年文明在外星?矫情宣传不要落入历史虚无主义谬误。<br><img src="http://ww2.sinaimg.cn/large/6b804b51gw1ewlddwq4s4j20ez0qotch.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3893068358833680" target="freeweibo-mirror">什么来头[衰]</a>
 </h2>
@@ -125,18 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3893065557118864" target="freeweibo-mirror">程益中：中国最大的糟粕，就是所谓的做人学问，中国人缺乏的是率…</a>
 </h2>
 <p>程益中：中国最大的糟粕，就是所谓的做人学问，中国人缺乏的是率真和纯粹。中国到处充斥着各式各样、似是而非的做人做官的学问、庸俗管理的学问，其祖师爷都是厚黑学和潜规则。从这些学问那里，我看到的都是争先恐后的、创造性的无耻。</p>
-<p>
-	<small> ============== 4小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3893064533459456" target="freeweibo-mirror">【纠正一个常识错误：祖国不是66岁】新中国和“祖国”是两个概…</a>
-</h2>
-<p>【纠正一个常识错误：祖国不是66岁】新中国和“祖国”是两个概念。祖国66华诞，5千年文明在外星?矫情宣传不要落入历史虚无主义谬误。<br><img src="http://ww2.sinaimg.cn/large/6b804b51gw1ewlddwq4s4j20ez0qotch.jpg"></p>
-<p>
-	<small> ============== 4小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3893056279390528" target="freeweibo-mirror">如果是针对无辜平民的，那就属于典型的恐怖主义，必须坚决、迅速…</a>
-</h2>
-<p>如果是针对无辜平民的，那就属于典型的恐怖主义，必须坚决、迅速的加以制止。<br><br>RE: #广西柳城爆炸#【广西柳城今早再爆炸 特警抵达现场】广西柳州柳城县今早爆炸现场已拉起警戒线，现场可看到特警车辆，武警和消防员均已抵达。http://t.cn/Ry0yUvD<br><img src="http://ww4.sinaimg.cn/large/60718250jw1ewlc5os98fj20c8096my9.jpg"></p>
 <p>
 	<small> ============== 4小时前</small>
 </p>
