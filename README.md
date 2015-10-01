@@ -24,17 +24,29 @@
 </h2>
 <p>脑残是被洗出来的还是天生的？[偷笑] //@荣剑2001:这种人都多了去，主要还是因为脑残 。//@陈有西:非常有意思。一些人已经数典忘祖。以为自己是天上掉下来的。祖宗都不要了。//@小小小衰哥：我也觉得这种较真真心没意思。<br><br>RE: 【纠正一个常识错误：祖国不是66岁】新中国和“祖国”是两个概念。祖国66华诞，5千年文明在外星?矫情宣传不要落入历史虚无主义谬误。<br><img src="http://ww2.sinaimg.cn/large/6b804b51gw1ewlddwq4s4j20ez0qotch.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3893079549737419" target="freeweibo-mirror">制造17起爆炸案，人民陷入恐慌，还不是「暴恐」啊？什么一般刑…</a>
 </h2>
 <p>制造17起爆炸案，人民陷入恐慌，还不是「暴恐」啊？什么一般刑事犯罪分子有这个能力啊？</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3893079188193257" target="freeweibo-mirror">SPAM 乱伦。</a>
+</h2>
+<p>SPAM 乱伦。<br><br>RE: 请教@北京大学 :  既然贵校的祖国只有66岁，那么99年前，蔡元培先生在贵校当校长时，贵校属于哪一国？<br><img src="http://ww2.sinaimg.cn/large/749a72b0gw1ewleg8bud2j20p018ggr7.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3893071835681840" target="freeweibo-mirror">[转发]//@苏州朱永健: //@玉风: 警方居然用刑事案件…</a>
 </h2>
 <p>[转发]//@苏州朱永健: //@玉风: 警方居然用刑事案件替代暴恐犯罪？！[疑问][围观]//@苏州朱永健://@罗亚蒙: #亚蒙看法#【广西柳城今早再爆炸[吃惊] 特警抵达现场】恐怖分子太猖狂了！！ http://t.cn/Ry0U4Fk</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3893071307333012" target="freeweibo-mirror">在众人欢度国庆之时，纠缠这个，既无聊又有点阴暗。</a>
+</h2>
+<p>在众人欢度国庆之时，纠缠这个，既无聊又有点阴暗。<br><br>RE: 【纠正一个常识错误：祖国不是66岁】新中国和“祖国”是两个概念。祖国66华诞，5千年文明在外星?矫情宣传不要落入历史虚无主义谬误。<br><img src="http://ww2.sinaimg.cn/large/6b804b51gw1ewlddwq4s4j20ez0qotch.jpg"></p>
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
@@ -125,18 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3892889363079583" target="freeweibo-mirror">广西柳城系列爆炸案，从目前得到的信息来看，绝不是包裹快递这么…</a>
 </h2>
 <p>广西柳城系列爆炸案，从目前得到的信息来看，绝不是包裹快递这么简单，能把半座五层楼房给炸塌，得是什么样的包裹？另外，根据这次爆炸的现场来看，官方公布的伤亡人数也少得可怜。真相大白的日子永远是令人期待的，但我们是不是能够等到那一天？<br><img src="http://ww3.sinaimg.cn/large/006duKlljw1ewkt9j1nx4j30gx0qogns.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3892885239958468" target="freeweibo-mirror">//@人民在线新媒体郭存根:都是小气鬼！[哈哈] //@浩正…</a>
-</h2>
-<p>//@人民在线新媒体郭存根:都是小气鬼！[哈哈] //@浩正刘臻:呵呵 //@绍兴师爷在北京:呵呵 //@灯月交辉:权力还不如天朝一个村长大！<br><br>RE: 【美国援外及免除债务均须国会批准 总统受限】美国总统在对外援助金额、对象方面，并无决定权，更别提免除债务；民选机构美国国会拥有拨款权，对援助评议严格，往往耗时一年以上。美国民众通过他们的“人大代表”，避免在对外援助上行政权力滥用，援助不当。http://t.cn/RypYspA<br><img src="http://ww4.sinaimg.cn/large/7867052dgw1ewkread2mvj20b406hwez.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3892878704845642" target="freeweibo-mirror">可以不做俄罗斯，但必须支持普京。 //@筑成世方:训练叙利亚…</a>
-</h2>
-<p>可以不做俄罗斯，但必须支持普京。 //@筑成世方:训练叙利亚反政府军的议案，就很快获准。[挖鼻]//@章文的文章:民主社会，办事就是麻烦[酷]<br><br>RE: 【美国援外及免除债务均须国会批准 总统受限】美国总统在对外援助金额、对象方面，并无决定权，更别提免除债务；民选机构美国国会拥有拨款权，对援助评议严格，往往耗时一年以上。美国民众通过他们的“人大代表”，避免在对外援助上行政权力滥用，援助不当。http://t.cn/RypYspA<br><img src="http://ww4.sinaimg.cn/large/7867052dgw1ewkread2mvj20b406hwez.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
