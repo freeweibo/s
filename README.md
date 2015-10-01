@@ -36,7 +36,7 @@
 </h2>
 <p>China有可以译成“其它”吗？[馋嘴]</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3893124776510886" target="freeweibo-mirror">太坏了。 //@邓相超:转发微博</a>
 </h2>
@@ -90,7 +90,7 @@
 </h2>
 <p>[挤眼]<br><br>RE: 有人觉得党委管活佛转世是笑话，其实藏传佛教自己转世的时候依靠一种“吹忠”的巫师作法指认，也很扯淡。乾隆五十八年和琳（和珅之弟）在掣签前塞一根空签进去，结果吹忠几次都指认那根空签，“智穷力竭”。据吹忠供认之前他们一直受贿串通。乾隆帝大怒，宣布以后不许吹忠作法指认。#没党委一样不灵#</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3893106476968245" target="freeweibo-mirror">SPAM [doge][doge]</a>
 </h2>
@@ -114,13 +114,13 @@
 </h2>
 <p>SPAM 默默滴来帮好伙伴扩散下～</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3893096057744589" target="freeweibo-mirror">SPAM 网民上网的安全感下降？[哈哈][哈哈][哈哈]这样…</a>
 </h2>
 <p>SPAM 网民上网的安全感下降？[哈哈][哈哈][哈哈]这样的逻辑只能砸政府的脸和形象。帮倒忙。<br><img src="http://ww2.sinaimg.cn/large/53bb846fgw1ewlgywzbx3j20hs0mzq6p.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3893087937911125" target="freeweibo-mirror">【冰火两重天】两条消息，两种命运：一条是，“中央级离休”老干…</a>
 </h2>
