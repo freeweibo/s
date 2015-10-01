@@ -26,6 +26,12 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3893087937911125" target="freeweibo-mirror">【冰火两重天】两条消息，两种命运：一条是，“中央级离休”老干…</a>
+</h2>
+<p>【冰火两重天】两条消息，两种命运：一条是，“中央级离休”老干部，“每人配备3～5名工作人员，每人每年公费开支70～600万元”；另一条是“中国农民的养老金提高到每年840元（每月70元）”。平等与公平离我们还有多远？</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3893086570156937" target="freeweibo-mirror">SPAM 明天上午和下午会在场馆不同的地方哦~大家看好签售时…</a>
 </h2>
 <p>SPAM 明天上午和下午会在场馆不同的地方哦~大家看好签售时间和地点啦~~[爱你]</p>
@@ -90,13 +96,13 @@
 </h2>
 <p>该认真处且认真。//@陈有西:非常有意思。一些人已经数典忘祖。以为自己是天上掉下来的。祖宗都不要了。//@小小小衰哥：我也觉得这种较真真心没意思。<br><br>RE: 【纠正一个常识错误：祖国不是66岁】新中国和“祖国”是两个概念。祖国66华诞，5千年文明在外星?矫情宣传不要落入历史虚无主义谬误。<br><img src="http://ww2.sinaimg.cn/large/6b804b51gw1ewlddwq4s4j20ez0qotch.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3893066903260086" target="freeweibo-mirror">回复@可可资讯:早就看穿了这副嘴脸！//@可可资讯:用计算器…</a>
 </h2>
 <p>回复@可可资讯:早就看穿了这副嘴脸！//@可可资讯:用计算器摁了一下，中国平均每个三口之家为习此次出行援外付款240元人民币。<br><br>RE: 美聯社指:【中國式的支票簿外交】<br><img src="http://ww3.sinaimg.cn/large/006ett1ajw1ewkvpd8rcyj30m80enq4j.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3893065939176684" target="freeweibo-mirror">昨天说人都抓获了，今天又爆炸，是昨天的炸弹快递没拆完吗？</a>
 </h2>
@@ -133,12 +139,6 @@
 <p>SPAM //@春风_70545: 环球时报说的，中国外交不撒钱，就无法在世界上混！是最好的解释！ //@邓树林律师://@三教布衣AAA: [弱]//@律师姬来松:不散钱就无法在国家上混<br><br>RE: 美聯社指:【中國式的支票簿外交】<br><img src="http://ww3.sinaimg.cn/large/006ett1ajw1ewkvpd8rcyj30m80enq4j.jpg"></p>
 <p>
 	<small> ============== 4小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3893032821056869" target="freeweibo-mirror">【广西柳城17起爆炸已致7人遇难】“这一案件已排除暴恐案件的…</a>
-</h2>
-<p>【广西柳城17起爆炸已致7人遇难】“这一案件已排除暴恐案件的可能性”？！-----这还不算暴恐案件？请问，什么才算暴恐案件？！暴恐案件究竟是如何界定的？ http://t.cn/RLNkCZi http://t.cn/RypeOtq</p>
-<p>
-	<small> ============== 6小时前</small>
 </p>
 <table>
     <tr>
