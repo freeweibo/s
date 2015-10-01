@@ -132,7 +132,7 @@
 </h2>
 <p>祖国永在。改朝换代60年而已。那些说祖国66诞辰的人是被舆论呼吁的没转过弯来。</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3893155277115947" target="freeweibo-mirror">SPAM //@铁哥日记718:[抓狂]cry]//@王亚军…</a>
 </h2>
