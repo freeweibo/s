@@ -48,7 +48,7 @@
 </h2>
 <p>【美国援外及免除债务均须国会批准 总统受限】美国总统在对外援助金额、对象方面，并无决定权，更别提免除债务；民选机构美国国会拥有拨款权，对援助评议严格，往往耗时一年以上。美国民众通过他们的“人大代表”，避免在对外援助上行政权力滥用，援助不当。http://t.cn/RypYspA<br><img src="http://ww4.sinaimg.cn/large/7867052dgw1ewkread2mvj20b406hwez.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3892870785983036" target="freeweibo-mirror">震惊。</a>
 </h2>
