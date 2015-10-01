@@ -20,6 +20,18 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3893172624893069" target="freeweibo-mirror">SPAM 蛀蟲還是太多。//@许老亖:共和國生日，古樹攔腰斷…</a>
+</h2>
+<p>SPAM 蛀蟲還是太多。//@许老亖:共和國生日，古樹攔腰斷，就在耄像前，你說啥征兆？</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3893170280550185" target="freeweibo-mirror">回复@披坚执锐的阿童木:有关系，你没有免费医疗，还是70年产…</a>
+</h2>
+<p>回复@披坚执锐的阿童木:有关系，你没有免费医疗，还是70年产权，你的一切都没有根基，连汽车第三者保险都没有根基。如果你免费医疗，就不会有反复碾压，外加地皮房子都是永久产权，你就是资本主义私有制，你就有资本生存。你是公有制，就活该失业。</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3893155277115947" target="freeweibo-mirror">SPAM //@铁哥日记718:[抓狂]cry]//@王亚军…</a>
 </h2>
 <p>SPAM //@铁哥日记718:[抓狂]cry]//@王亚军上海: 创于1898年的北大117岁了，但它祖宗66岁，为啥呢？因为→_→ http://t.cn/Ry0cTbq</p>
@@ -30,7 +42,7 @@
 </h2>
 <p>@贺卫方 的祖国是齐国？！[吃惊]3000年啊，这特么是千年王八成了精吗？！王八精进化成了大学教授？！北京动物园你们管不管啊</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3893145168930580" target="freeweibo-mirror">SPAM  //@山隅草民://@袁裕来律师: 鲁迅：其实当…</a>
 </h2>
@@ -108,7 +120,7 @@
 </h2>
 <p>这帮今天宣称“这国不是1949年10月1日才有的”的家伙，等到10月10日又会跳出来喊“10月10日才是国庆日”的、@滨海闲人01@国旗-水方人思周816 //@风中的蒲公英云: //@滨海闲人01:可见当年反右没有一点错</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3893114366284238" target="freeweibo-mirror">大跃进时期，社员小张捉到一只王八，高兴回到家里对老婆说：“我…</a>
 </h2>
@@ -125,18 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3893111065021344" target="freeweibo-mirror">[挤眼]</a>
 </h2>
 <p>[挤眼]<br><br>RE: 有人觉得党委管活佛转世是笑话，其实藏传佛教自己转世的时候依靠一种“吹忠”的巫师作法指认，也很扯淡。乾隆五十八年和琳（和珅之弟）在掣签前塞一根空签进去，结果吹忠几次都指认那根空签，“智穷力竭”。据吹忠供认之前他们一直受贿串通。乾隆帝大怒，宣布以后不许吹忠作法指认。#没党委一样不灵#</p>
-<p>
-	<small> ============== 5小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3893106476968245" target="freeweibo-mirror">SPAM [doge][doge]</a>
-</h2>
-<p>SPAM [doge][doge]<br><br>RE: 【年轻的小姨子】2015最新韩国 限.制.级， 尺 度你们都懂的[doge]关、注、并、私、信、【年轻】即可获取资 源！<br><img src="http://ww1.sinaimg.cn/large/e9cd8c7agw1ewlhfywadrj20bj0e8gmg.jpg"></p>
-<p>
-	<small> ============== 5小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3893105369770572" target="freeweibo-mirror">//@腾龙布雨: //@砀山人_在上海P: //@卡瓦又归来…</a>
-</h2>
-<p>//@腾龙布雨: //@砀山人_在上海P: //@卡瓦又归来:<br><br>RE: 说是国庆节，庆祝什么呢？庆祝国家两岸分离了？庆祝“枪杆子出政权”？庆祝几百万国土送了人？庆祝宪法成废纸国民无选票？庆祝到处地沟油、毒食品、 雾霾 、污水？庆祝 老无所依 、幼无保障、病无钱医？庆祝说谎成生存之道，真话成祸端罪行？庆祝我们有世界上最大的局域网？庆祝删贴抓人，寻性山颠？<br><img src="http://ww4.sinaimg.cn/large/005ZXmihjw1ewlfdco5naj30fk0f4djb.jpg"></p>
 <p>
 	<small> ============== 5小时前</small>
 </p>
