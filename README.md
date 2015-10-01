@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3893079549737419" target="freeweibo-mirror">制造17起爆炸案，人民陷入恐慌，还不是「暴恐」啊？什么一般刑…</a>
+</h2>
+<p>制造17起爆炸案，人民陷入恐慌，还不是「暴恐」啊？什么一般刑事犯罪分子有这个能力啊？</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3893071835681840" target="freeweibo-mirror">[转发]//@苏州朱永健: //@玉风: 警方居然用刑事案件…</a>
 </h2>
 <p>[转发]//@苏州朱永健: //@玉风: 警方居然用刑事案件替代暴恐犯罪？！[疑问][围观]//@苏州朱永健://@罗亚蒙: #亚蒙看法#【广西柳城今早再爆炸[吃惊] 特警抵达现场】恐怖分子太猖狂了！！ http://t.cn/Ry0U4Fk</p>
@@ -56,6 +62,18 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3893065557118864" target="freeweibo-mirror">程益中：中国最大的糟粕，就是所谓的做人学问，中国人缺乏的是率…</a>
+</h2>
+<p>程益中：中国最大的糟粕，就是所谓的做人学问，中国人缺乏的是率真和纯粹。中国到处充斥着各式各样、似是而非的做人做官的学问、庸俗管理的学问，其祖师爷都是厚黑学和潜规则。从这些学问那里，我看到的都是争先恐后的、创造性的无耻。</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3893056279390528" target="freeweibo-mirror">如果是针对无辜平民的，那就属于典型的恐怖主义，必须坚决、迅速…</a>
+</h2>
+<p>如果是针对无辜平民的，那就属于典型的恐怖主义，必须坚决、迅速的加以制止。<br><br>RE: #广西柳城爆炸#【广西柳城今早再爆炸 特警抵达现场】广西柳州柳城县今早爆炸现场已拉起警戒线，现场可看到特警车辆，武警和消防员均已抵达。http://t.cn/Ry0yUvD<br><img src="http://ww4.sinaimg.cn/large/60718250jw1ewlc5os98fj20c8096my9.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3893054563893955" target="freeweibo-mirror">#广西柳城爆炸#【广西柳城今早再爆炸 特警抵达现场】广西柳州…</a>
 </h2>
 <p>#广西柳城爆炸#【广西柳城今早再爆炸 特警抵达现场】广西柳州柳城县今早爆炸现场已拉起警戒线，现场可看到特警车辆，武警和消防员均已抵达。http://t.cn/Ry0yUvD<br><img src="http://ww4.sinaimg.cn/large/60718250jw1ewlc5os98fj20c8096my9.jpg"></p>
@@ -78,7 +96,7 @@
 </h2>
 <p>//@布谷鸟咕咕叫:转发微博<br><br>RE: 我在哪，哪里就是中国。为什么要到某一块土地上才叫中国？那土地上反而没有中国——余英时。我生本无乡，心安是归处——白居易<br><img src="http://ww4.sinaimg.cn/large/006ett1agw1ewkh8jh5mmj30gn0bbgov.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3893020800104698" target="freeweibo-mirror">SPAM 法X功表演的不错啊 //@演员孙海英:[怒]卑鄙！…</a>
 </h2>
@@ -119,24 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3892873138849080" target="freeweibo-mirror">【美国援外及免除债务均须国会批准 总统受限】美国总统在对外援…</a>
 </h2>
 <p>【美国援外及免除债务均须国会批准 总统受限】美国总统在对外援助金额、对象方面，并无决定权，更别提免除债务；民选机构美国国会拥有拨款权，对援助评议严格，往往耗时一年以上。美国民众通过他们的“人大代表”，避免在对外援助上行政权力滥用，援助不当。http://t.cn/RypYspA<br><img src="http://ww4.sinaimg.cn/large/7867052dgw1ewkread2mvj20b406hwez.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3892870785983036" target="freeweibo-mirror">震惊。</a>
-</h2>
-<p>震惊。<br><br>RE: #广西柳城爆炸#【监狱、镇政府、汽车站......13处爆炸都包括哪里？】柳城县公安局通报称，柳城县范围内连续发生爆炸，目前，指挥中心接到报警13起，包括商贸城5栋、柳城监狱、大埔镇政府、世纪联华、柳城汽车站、柳城县中医院、畜牧局宿舍、疾控中心等13处公共场所。http://t.cn/Rypp2XG<br><img src="http://ww1.sinaimg.cn/large/60718250jw1ewkohqpw1jj20c80kgab7.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3892870312658556" target="freeweibo-mirror">右边看→_→@柳州网警巡查执法: 在官方通报之前夸大事实、添…</a>
-</h2>
-<p>右边看→_→@柳州网警巡查执法: 在官方通报之前夸大事实、添油加醋，对事件加以猜测并发布的都是不实信息，望大家尽快删除类似信息，避免人为制造恐慌。事件进展我们会第一时间发布。 http://t.cn/RypY9pN //@任志强:爆动了？<br><br>RE: #广西柳城爆炸#【监狱、镇政府、汽车站......13处爆炸都包括哪里？】柳城县公安局通报称，柳城县范围内连续发生爆炸，目前，指挥中心接到报警13起，包括商贸城5栋、柳城监狱、大埔镇政府、世纪联华、柳城汽车站、柳城县中医院、畜牧局宿舍、疾控中心等13处公共场所。http://t.cn/Rypp2XG<br><img src="http://ww1.sinaimg.cn/large/60718250jw1ewkohqpw1jj20c80kgab7.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3892869330544590" target="freeweibo-mirror">原来还是连环爆炸，选择国庆前一天，动机必然不简单 //@卧山…</a>
-</h2>
-<p>原来还是连环爆炸，选择国庆前一天，动机必然不简单 //@卧山观闲云w: //@徐昕:李建军：广西这次连环爆炸，手法相当专业，如系同伙人或同一个所为(可能性很大，我向来很少相信巧合)，应该经过长期的策划和准备。整个社会危机四伏，越来越像一个巨大火药桶，很多国人却依然对此感觉麻木。<br><br>RE: 监狱、镇政府、汽车站......广西柳城连续发生爆炸......<br><img src="http://ww4.sinaimg.cn/large/6a3d7f8cjw1ewkq7xdl6mj20k00zkdv2.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
