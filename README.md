@@ -102,7 +102,7 @@
 </h2>
 <p>//@回锅_肉: [嘻嘻]//@王怜花:转 //@钱中华:转发微博</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3893138899058642" target="freeweibo-mirror">党国。不能因为老蒋用了几十年，咱们就不能接过来用了。//@贺…</a>
 </h2>
@@ -120,7 +120,7 @@
 </h2>
 <p>China有可以译成“其它”吗？[馋嘴]</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3893124776510886" target="freeweibo-mirror">太坏了。 //@邓相超:转发微博</a>
 </h2>
