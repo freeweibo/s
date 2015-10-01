@@ -108,7 +108,7 @@
 </h2>
 <p>贺教授嘴上确实有骨气，只是还差点儿上首阳山不食周粟的志气//@菁瓜: 齐国当年是东夷[挖鼻]//@色色又空空: //@Lionel-Luthor:很难说原博是吃错药了还是没吃药啊……//@南城巷陌:当时尚有周天子，何事纷纷说魏齐？//@谢明弦:祖上是外来人的话，人说不定姓高或者是刘哪 //@夜語菲://@Substantia:</p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3893158679408581" target="freeweibo-mirror">祖国永在。改朝换代60年而已。那些说祖国66诞辰的人是被舆论…</a>
 </h2>
@@ -132,13 +132,13 @@
 </h2>
 <p>SPAM  //@山隅草民://@袁裕来律师: 鲁迅：其实当奴隶不可怕，只要一直挣扎，总有挣脱的时候，就怕从当奴隶种找出美感来，那就真万劫不复了。这句话送给自干五们。<br><br>RE: 【两条新闻放一起，说明了什么？】<br><img src="http://ww1.sinaimg.cn/large/41693645gw1ewlelfpusej20xb18g47e.jpg"></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3893144280601878" target="freeweibo-mirror">图不错</a>
 </h2>
 <p>图不错</p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p>
 <table>
     <tr>
