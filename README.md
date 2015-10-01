@@ -24,7 +24,7 @@
 </h2>
 <p>SPAM [doge][doge]<br><br>RE: 【年轻的小姨子】2015最新韩国 限.制.级， 尺 度你们都懂的[doge]关、注、并、私、信、【年轻】即可获取资 源！<br><img src="http://ww1.sinaimg.cn/large/e9cd8c7agw1ewlhfywadrj20bj0e8gmg.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3893098289597535" target="freeweibo-mirror">SPAM #晓辉性元谈# 小阴唇是性高敏感区，切掉了会降低女…</a>
 </h2>
