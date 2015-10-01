@@ -30,7 +30,7 @@
 </h2>
 <p>[转发]//@苏州朱永健: //@玉风: 警方居然用刑事案件替代暴恐犯罪？！[疑问][围观]//@苏州朱永健://@罗亚蒙: #亚蒙看法#【广西柳城今早再爆炸[吃惊] 特警抵达现场】恐怖分子太猖狂了！！ http://t.cn/Ry0U4Fk</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3893068358833680" target="freeweibo-mirror">什么来头[衰]</a>
 </h2>
@@ -72,7 +72,7 @@
 </h2>
 <p>如果是针对无辜平民的，那就属于典型的恐怖主义，必须坚决、迅速的加以制止。<br><br>RE: #广西柳城爆炸#【广西柳城今早再爆炸 特警抵达现场】广西柳州柳城县今早爆炸现场已拉起警戒线，现场可看到特警车辆，武警和消防员均已抵达。http://t.cn/Ry0yUvD<br><img src="http://ww4.sinaimg.cn/large/60718250jw1ewlc5os98fj20c8096my9.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3893054563893955" target="freeweibo-mirror">#广西柳城爆炸#【广西柳城今早再爆炸 特警抵达现场】广西柳州…</a>
 </h2>
