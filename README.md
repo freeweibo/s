@@ -78,7 +78,7 @@
 </h2>
 <p>#985新闻#【1300万！今天中国有望创历史单日出行最高纪录[威武]】今天是国庆假期第一天，铁路预计发送旅客1300万人次左右，比去年最高峰增长13％，创下历史单日最高纪录。国庆假日期间，全国铁路预计发送旅客超1亿人次。<br><img src="http://ww4.sinaimg.cn/large/67fe74afgw1ewlsbvyq8ej20c8084tae.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3893188626275492" target="freeweibo-mirror">SPAM [吐] //@通州府尹:这盛世，如你所怨。再扯蛋，…</a>
 </h2>
