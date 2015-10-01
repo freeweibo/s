@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3893071835681840" target="freeweibo-mirror">[转发]//@苏州朱永健: //@玉风: 警方居然用刑事案件…</a>
+</h2>
+<p>[转发]//@苏州朱永健: //@玉风: 警方居然用刑事案件替代暴恐犯罪？！[疑问][围观]//@苏州朱永健://@罗亚蒙: #亚蒙看法#【广西柳城今早再爆炸[吃惊] 特警抵达现场】恐怖分子太猖狂了！！ http://t.cn/Ry0U4Fk</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3893065939176684" target="freeweibo-mirror">昨天说人都抓获了，今天又爆炸，是昨天的炸弹快递没拆完吗？</a>
 </h2>
 <p>昨天说人都抓获了，今天又爆炸，是昨天的炸弹快递没拆完吗？<br><br>RE: #广西柳城爆炸#【广西柳城今早再爆炸 特警抵达现场】广西柳州柳城县今早爆炸现场已拉起警戒线，现场可看到特警车辆，武警和消防员均已抵达。http://t.cn/Ry0yUvD<br><img src="http://ww4.sinaimg.cn/large/60718250jw1ewlc5os98fj20c8096my9.jpg"></p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3892854688104975" target="freeweibo-mirror">唉，公知。。。//@任志强:爆动了？ //@王冉:转发微博</a>
 </h2>
 <p>唉，公知。。。//@任志强:爆动了？ //@王冉:转发微博<br><br>RE: #广西柳城爆炸#【监狱、镇政府、汽车站......13处爆炸都包括哪里？】柳城县公安局通报称，柳城县范围内连续发生爆炸，目前，指挥中心接到报警13起，包括商贸城5栋、柳城监狱、大埔镇政府、世纪联华、柳城汽车站、柳城县中医院、畜牧局宿舍、疾控中心等13处公共场所。http://t.cn/Rypp2XG<br><img src="http://ww1.sinaimg.cn/large/60718250jw1ewkohqpw1jj20c80kgab7.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3892854018013916" target="freeweibo-mirror">右边是定时炸弹吧//@任志强:爆动了？ //@王冉:转发微博</a>
-</h2>
-<p>右边是定时炸弹吧//@任志强:爆动了？ //@王冉:转发微博<br><br>RE: #广西柳城爆炸#【监狱、镇政府、汽车站......13处爆炸都包括哪里？】柳城县公安局通报称，柳城县范围内连续发生爆炸，目前，指挥中心接到报警13起，包括商贸城5栋、柳城监狱、大埔镇政府、世纪联华、柳城汽车站、柳城县中医院、畜牧局宿舍、疾控中心等13处公共场所。http://t.cn/Rypp2XG<br><img src="http://ww1.sinaimg.cn/large/60718250jw1ewkohqpw1jj20c80kgab7.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
