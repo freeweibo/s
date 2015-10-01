@@ -20,6 +20,18 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3893096057744589" target="freeweibo-mirror">SPAM 网民上网的安全感下降？[哈哈][哈哈][哈哈]这样…</a>
+</h2>
+<p>SPAM 网民上网的安全感下降？[哈哈][哈哈][哈哈]这样的逻辑只能砸政府的脸和形象。帮倒忙。<br><img src="http://ww2.sinaimg.cn/large/53bb846fgw1ewlgywzbx3j20hs0mzq6p.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3893086570156937" target="freeweibo-mirror">SPAM 明天上午和下午会在场馆不同的地方哦~大家看好签售时…</a>
+</h2>
+<p>SPAM 明天上午和下午会在场馆不同的地方哦~大家看好签售时间和地点啦~~[爱你]</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3893079687917558" target="freeweibo-mirror">脑残是被洗出来的还是天生的？[偷笑] //@荣剑2001:这…</a>
 </h2>
 <p>脑残是被洗出来的还是天生的？[偷笑] //@荣剑2001:这种人都多了去，主要还是因为脑残 。//@陈有西:非常有意思。一些人已经数典忘祖。以为自己是天上掉下来的。祖宗都不要了。//@小小小衰哥：我也觉得这种较真真心没意思。<br><br>RE: 【纠正一个常识错误：祖国不是66岁】新中国和“祖国”是两个概念。祖国66华诞，5千年文明在外星?矫情宣传不要落入历史虚无主义谬误。<br><img src="http://ww2.sinaimg.cn/large/6b804b51gw1ewlddwq4s4j20ez0qotch.jpg"></p>
@@ -42,13 +54,13 @@
 </h2>
 <p>[转发]//@苏州朱永健: //@玉风: 警方居然用刑事案件替代暴恐犯罪？！[疑问][围观]//@苏州朱永健://@罗亚蒙: #亚蒙看法#【广西柳城今早再爆炸[吃惊] 特警抵达现场】恐怖分子太猖狂了！！ http://t.cn/Ry0U4Fk</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3893071307333012" target="freeweibo-mirror">在众人欢度国庆之时，纠缠这个，既无聊又有点阴暗。</a>
 </h2>
 <p>在众人欢度国庆之时，纠缠这个，既无聊又有点阴暗。<br><br>RE: 【纠正一个常识错误：祖国不是66岁】新中国和“祖国”是两个概念。祖国66华诞，5千年文明在外星?矫情宣传不要落入历史虚无主义谬误。<br><img src="http://ww2.sinaimg.cn/large/6b804b51gw1ewlddwq4s4j20ez0qotch.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3893068358833680" target="freeweibo-mirror">什么来头[衰]</a>
 </h2>
@@ -65,6 +77,12 @@
 	<a href="https://freeweibo.com/weibo/3893067255617540" target="freeweibo-mirror">//@十年砍柴: 这当然不是恐怖活动，是＂反社会泄愤型无特定…</a>
 </h2>
 <p>//@十年砍柴: 这当然不是恐怖活动，是＂反社会泄愤型无特定对象的高危害性刑事犯罪＂，就像不能把＂下岗＂说成＂失业＂。<br><br>RE: #广西柳城爆炸#【广西柳城今早再爆炸 特警抵达现场】广西柳州柳城县今早爆炸现场已拉起警戒线，现场可看到特警车辆，武警和消防员均已抵达。http://t.cn/Ry0yUvD<br><img src="http://ww4.sinaimg.cn/large/60718250jw1ewlc5os98fj20c8096my9.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3893067180049496" target="freeweibo-mirror">该认真处且认真。//@陈有西:非常有意思。一些人已经数典忘祖…</a>
+</h2>
+<p>该认真处且认真。//@陈有西:非常有意思。一些人已经数典忘祖。以为自己是天上掉下来的。祖宗都不要了。//@小小小衰哥：我也觉得这种较真真心没意思。<br><br>RE: 【纠正一个常识错误：祖国不是66岁】新中国和“祖国”是两个概念。祖国66华诞，5千年文明在外星?矫情宣传不要落入历史虚无主义谬误。<br><img src="http://ww2.sinaimg.cn/large/6b804b51gw1ewlddwq4s4j20ez0qotch.jpg"></p>
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
@@ -90,7 +108,7 @@
 </h2>
 <p>如果是针对无辜平民的，那就属于典型的恐怖主义，必须坚决、迅速的加以制止。<br><br>RE: #广西柳城爆炸#【广西柳城今早再爆炸 特警抵达现场】广西柳州柳城县今早爆炸现场已拉起警戒线，现场可看到特警车辆，武警和消防员均已抵达。http://t.cn/Ry0yUvD<br><img src="http://ww4.sinaimg.cn/large/60718250jw1ewlc5os98fj20c8096my9.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3893054563893955" target="freeweibo-mirror">#广西柳城爆炸#【广西柳城今早再爆炸 特警抵达现场】广西柳州…</a>
 </h2>
@@ -121,24 +139,6 @@
 <p>SPAM 法X功表演的不错啊 //@演员孙海英:[怒]卑鄙！换位思考：这样对待别人，有一天换了你？</p>
 <p>
 	<small> ============== 6小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3892910493857637" target="freeweibo-mirror">美聯社指:【中國式的支票簿外交】</a>
-</h2>
-<p>美聯社指:【中國式的支票簿外交】<br><img src="http://ww3.sinaimg.cn/large/006ett1ajw1ewkvpd8rcyj30m80enq4j.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3892898464444054" target="freeweibo-mirror">//@司马明达: //@楊康令: //@政治论://@章文的…</a>
-</h2>
-<p>//@司马明达: //@楊康令: //@政治论://@章文的文章:民主社会，办事就是麻烦[酷]<br><br>RE: 【美国援外及免除债务均须国会批准 总统受限】美国总统在对外援助金额、对象方面，并无决定权，更别提免除债务；民选机构美国国会拥有拨款权，对援助评议严格，往往耗时一年以上。美国民众通过他们的“人大代表”，避免在对外援助上行政权力滥用，援助不当。http://t.cn/RypYspA<br><img src="http://ww4.sinaimg.cn/large/7867052dgw1ewkread2mvj20b406hwez.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3892889363079583" target="freeweibo-mirror">广西柳城系列爆炸案，从目前得到的信息来看，绝不是包裹快递这么…</a>
-</h2>
-<p>广西柳城系列爆炸案，从目前得到的信息来看，绝不是包裹快递这么简单，能把半座五层楼房给炸塌，得是什么样的包裹？另外，根据这次爆炸的现场来看，官方公布的伤亡人数也少得可怜。真相大白的日子永远是令人期待的，但我们是不是能够等到那一天？<br><img src="http://ww3.sinaimg.cn/large/006duKlljw1ewkt9j1nx4j30gx0qogns.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
 </p>
 <table>
     <tr>
