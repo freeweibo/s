@@ -38,6 +38,12 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3893114366284238" target="freeweibo-mirror">大跃进时期，社员小张捉到一只王八，高兴回到家里对老婆说：“我…</a>
+</h2>
+<p>大跃进时期，社员小张捉到一只王八，高兴回到家里对老婆说：“我们有炸王八吃了！”“没有油。”“那就煮！”“锅都拿去炼铁了。”“烤王八！”“柴也一起拿去了。”小张气死了，走到河边把王八扔了回去。那王八得以活命，龟头伸出水面，激动地高呼：“毛主席万岁！” [哈哈]  祝假期玩得愉快！[嘻嘻]</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3893111623321781" target="freeweibo-mirror">//@回灯添酒: 标题口语化，很有特色。</a>
 </h2>
 <p>//@回灯添酒: 标题口语化，很有特色。<br><br>RE: 【辽宁历史上的今天】为庆祝伟大的中华人民共国成立19周年，从1968年10月1日起，全省居民每人每月的五两食用油降为三两，每人每月强制性节约一斤粮，以支援国家建设。广大辽宁人民欢欣鼓舞，奔走相告：这是毛主席革命路线的伟大胜利，是无产阶级文化大革命的丰硕成果！[耶][耶][耶]<br><img src="http://ww2.sinaimg.cn/large/4ec730ffgw1ewlbqe7ao8j20dw0b875r.jpg"></p>
@@ -54,7 +60,7 @@
 </h2>
 <p>SPAM [doge][doge]<br><br>RE: 【年轻的小姨子】2015最新韩国 限.制.级， 尺 度你们都懂的[doge]关、注、并、私、信、【年轻】即可获取资 源！<br><img src="http://ww1.sinaimg.cn/large/e9cd8c7agw1ewlhfywadrj20bj0e8gmg.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3893105369770572" target="freeweibo-mirror">//@腾龙布雨: //@砀山人_在上海P: //@卡瓦又归来…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3893071781117521" target="freeweibo-mirror">SPAM 专业洗脑66年，66年前没祖国？</a>
 </h2>
 <p>SPAM 专业洗脑66年，66年前没祖国？<br><br>RE: 今天又到了考验智商的时刻。提醒一下，祖国不只66岁。<br><img src="http://ww1.sinaimg.cn/large/4d21190fjw1ewlbnihijaj20p018gn7y.jpg"></p>
-<p>
-	<small> ============== 5小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3893071307333012" target="freeweibo-mirror">在众人欢度国庆之时，纠缠这个，既无聊又有点阴暗。</a>
-</h2>
-<p>在众人欢度国庆之时，纠缠这个，既无聊又有点阴暗。<br><br>RE: 【纠正一个常识错误：祖国不是66岁】新中国和“祖国”是两个概念。祖国66华诞，5千年文明在外星?矫情宣传不要落入历史虚无主义谬误。<br><img src="http://ww2.sinaimg.cn/large/6b804b51gw1ewlddwq4s4j20ez0qotch.jpg"></p>
 <p>
 	<small> ============== 5小时前</small>
 </p>
