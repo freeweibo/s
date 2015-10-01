@@ -54,7 +54,7 @@
 </h2>
 <p>昨天说人都抓获了，今天又爆炸，是昨天的炸弹快递没拆完吗？<br><br>RE: #广西柳城爆炸#【广西柳城今早再爆炸 特警抵达现场】广西柳州柳城县今早爆炸现场已拉起警戒线，现场可看到特警车辆，武警和消防员均已抵达。http://t.cn/Ry0yUvD<br><img src="http://ww4.sinaimg.cn/large/60718250jw1ewlc5os98fj20c8096my9.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3893054563893955" target="freeweibo-mirror">#广西柳城爆炸#【广西柳城今早再爆炸 特警抵达现场】广西柳州…</a>
 </h2>
