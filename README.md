@@ -30,7 +30,7 @@
 </h2>
 <p>SPAM 你的名字，我的心事。@金匠288</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3893263910509441" target="freeweibo-mirror">SPAM 先加！加完一个一个看！[doge]</a>
 </h2>
