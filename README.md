@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3893155277115947" target="freeweibo-mirror">SPAM //@铁哥日记718:[抓狂]cry]//@王亚军…</a>
+</h2>
+<p>SPAM //@铁哥日记718:[抓狂]cry]//@王亚军上海: 创于1898年的北大117岁了，但它祖宗66岁，为啥呢？因为→_→ http://t.cn/Ry0cTbq</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3893145168930580" target="freeweibo-mirror">SPAM  //@山隅草民://@袁裕来律师: 鲁迅：其实当…</a>
 </h2>
 <p>SPAM  //@山隅草民://@袁裕来律师: 鲁迅：其实当奴隶不可怕，只要一直挣扎，总有挣脱的时候，就怕从当奴隶种找出美感来，那就真万劫不复了。这句话送给自干五们。<br><br>RE: 【两条新闻放一起，说明了什么？】<br><img src="http://ww1.sinaimg.cn/large/41693645gw1ewlelfpusej20xb18g47e.jpg"></p>
@@ -72,7 +78,7 @@
 </h2>
 <p>这帮今天宣称“这国不是1949年10月1日才有的”的家伙，等到10月10日又会跳出来喊“10月10日才是国庆日”的、@滨海闲人01@国旗-水方人思周816 //@风中的蒲公英云: //@滨海闲人01:可见当年反右没有一点错</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3893114366284238" target="freeweibo-mirror">大跃进时期，社员小张捉到一只王八，高兴回到家里对老婆说：“我…</a>
 </h2>
@@ -133,12 +139,6 @@
 <p>SPAM 明天上午和下午会在场馆不同的地方哦~大家看好签售时间和地点啦~~[爱你]</p>
 <p>
 	<small> ============== 5小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3893081717608836" target="freeweibo-mirror">说是国庆节，庆祝什么呢？庆祝国家两岸分离了？庆祝“枪杆子出政…</a>
-</h2>
-<p>说是国庆节，庆祝什么呢？庆祝国家两岸分离了？庆祝“枪杆子出政权”？庆祝几百万国土送了人？庆祝宪法成废纸国民无选票？庆祝到处地沟油、毒食品、 雾霾 、污水？庆祝 老无所依 、幼无保障、病无钱医？庆祝说谎成生存之道，真话成祸端罪行？庆祝我们有世界上最大的局域网？庆祝删贴抓人，寻性山颠？<br><img src="http://ww4.sinaimg.cn/large/005ZXmihjw1ewlfdco5naj30fk0f4djb.jpg"></p>
-<p>
-	<small> ============== 6小时前</small>
 </p>
 <table>
     <tr>
