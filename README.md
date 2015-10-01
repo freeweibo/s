@@ -54,7 +54,7 @@
 </h2>
 <p>美聯社指:【中國式的支票簿外交】<br><img src="http://ww3.sinaimg.cn/large/006ett1ajw1ewkvpd8rcyj30m80enq4j.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3892898464444054" target="freeweibo-mirror">//@司马明达: //@楊康令: //@政治论://@章文的…</a>
 </h2>
