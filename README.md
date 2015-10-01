@@ -84,7 +84,7 @@
 </h2>
 <p>#985新闻#【1300万！今天中国有望创历史单日出行最高纪录[威武]】今天是国庆假期第一天，铁路预计发送旅客1300万人次左右，比去年最高峰增长13％，创下历史单日最高纪录。国庆假日期间，全国铁路预计发送旅客超1亿人次。<br><img src="http://ww4.sinaimg.cn/large/67fe74afgw1ewlsbvyq8ej20c8084tae.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3893188626275492" target="freeweibo-mirror">SPAM [吐] //@通州府尹:这盛世，如你所怨。再扯蛋，…</a>
 </h2>
@@ -96,7 +96,7 @@
 </h2>
 <p>SPAM //@海爷海爷: //@西门不暗: 有进步，去年喊祖国母亲，今年不喊。可能是发现自己比母亲年龄还大几十岁。</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3893172624893069" target="freeweibo-mirror">SPAM 蛀蟲還是太多。//@许老亖:共和國生日，古樹攔腰斷…</a>
 </h2>
