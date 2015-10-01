@@ -36,19 +36,19 @@
 </h2>
 <p>脑残是被洗出来的还是天生的？[偷笑] //@荣剑2001:这种人都多了去，主要还是因为脑残 。//@陈有西:非常有意思。一些人已经数典忘祖。以为自己是天上掉下来的。祖宗都不要了。//@小小小衰哥：我也觉得这种较真真心没意思。<br><br>RE: 【纠正一个常识错误：祖国不是66岁】新中国和“祖国”是两个概念。祖国66华诞，5千年文明在外星?矫情宣传不要落入历史虚无主义谬误。<br><img src="http://ww2.sinaimg.cn/large/6b804b51gw1ewlddwq4s4j20ez0qotch.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3893079549737419" target="freeweibo-mirror">制造17起爆炸案，人民陷入恐慌，还不是「暴恐」啊？什么一般刑…</a>
 </h2>
 <p>制造17起爆炸案，人民陷入恐慌，还不是「暴恐」啊？什么一般刑事犯罪分子有这个能力啊？</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3893079188193257" target="freeweibo-mirror">SPAM 乱伦。</a>
 </h2>
 <p>SPAM 乱伦。<br><br>RE: 请教@北京大学 :  既然贵校的祖国只有66岁，那么99年前，蔡元培先生在贵校当校长时，贵校属于哪一国？<br><img src="http://ww2.sinaimg.cn/large/749a72b0gw1ewleg8bud2j20p018ggr7.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3893073895808864" target="freeweibo-mirror">请教@北京大学 :  既然贵校的祖国只有66岁，那么99年前…</a>
 </h2>
@@ -114,7 +114,7 @@
 </h2>
 <p>【纠正一个常识错误：祖国不是66岁】新中国和“祖国”是两个概念。祖国66华诞，5千年文明在外星?矫情宣传不要落入历史虚无主义谬误。<br><img src="http://ww2.sinaimg.cn/large/6b804b51gw1ewlddwq4s4j20ez0qotch.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3893056279390528" target="freeweibo-mirror">如果是针对无辜平民的，那就属于典型的恐怖主义，必须坚决、迅速…</a>
 </h2>
