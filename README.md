@@ -38,6 +38,12 @@
 <p>
 	<small> ============== 12小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3892889363079583" target="freeweibo-mirror">广西柳城系列爆炸案，从目前得到的信息来看，绝不是包裹快递这么…</a>
+</h2>
+<p>广西柳城系列爆炸案，从目前得到的信息来看，绝不是包裹快递这么简单，能把半座五层楼房给炸塌，得是什么样的包裹？另外，根据这次爆炸的现场来看，官方公布的伤亡人数也少得可怜。真相大白的日子永远是令人期待的，但我们是不是能够等到那一天？<br><img src="http://ww3.sinaimg.cn/large/006duKlljw1ewkt9j1nx4j30gx0qogns.jpg"></p>
+<p>
+	<small> ============== 1天前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3892885239958468" target="freeweibo-mirror">//@人民在线新媒体郭存根:都是小气鬼！[哈哈] //@浩正…</a>
 </h2>
 <p>//@人民在线新媒体郭存根:都是小气鬼！[哈哈] //@浩正刘臻:呵呵 //@绍兴师爷在北京:呵呵 //@灯月交辉:权力还不如天朝一个村长大！<br><br>RE: 【美国援外及免除债务均须国会批准 总统受限】美国总统在对外援助金额、对象方面，并无决定权，更别提免除债务；民选机构美国国会拥有拨款权，对援助评议严格，往往耗时一年以上。美国民众通过他们的“人大代表”，避免在对外援助上行政权力滥用，援助不当。http://t.cn/RypYspA<br><img src="http://ww4.sinaimg.cn/large/7867052dgw1ewkread2mvj20b406hwez.jpg"></p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3892851370730867" target="freeweibo-mirror">我靠</a>
 </h2>
 <p>我靠<br><br>RE: #广西柳城爆炸#【监狱、镇政府、汽车站......13处爆炸都包括哪里？】柳城县公安局通报称，柳城县范围内连续发生爆炸，目前，指挥中心接到报警13起，包括商贸城5栋、柳城监狱、大埔镇政府、世纪联华、柳城汽车站、柳城县中医院、畜牧局宿舍、疾控中心等13处公共场所。http://t.cn/Rypp2XG<br><img src="http://ww1.sinaimg.cn/large/60718250jw1ewkohqpw1jj20c80kgab7.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3892851353806104" target="freeweibo-mirror">恐怖袭击？//@任志强:爆动了？ //@王冉:转发微博</a>
-</h2>
-<p>恐怖袭击？//@任志强:爆动了？ //@王冉:转发微博<br><br>RE: #广西柳城爆炸#【监狱、镇政府、汽车站......13处爆炸都包括哪里？】柳城县公安局通报称，柳城县范围内连续发生爆炸，目前，指挥中心接到报警13起，包括商贸城5栋、柳城监狱、大埔镇政府、世纪联华、柳城汽车站、柳城县中医院、畜牧局宿舍、疾控中心等13处公共场所。http://t.cn/Rypp2XG<br><img src="http://ww1.sinaimg.cn/large/60718250jw1ewkohqpw1jj20c80kgab7.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
