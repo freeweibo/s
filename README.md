@@ -78,19 +78,19 @@
 </h2>
 <p>什么来头[衰]<br><br>RE: #广西柳城爆炸#【广西柳城今早再爆炸 特警抵达现场】广西柳州柳城县今早爆炸现场已拉起警戒线，现场可看到特警车辆，武警和消防员均已抵达。http://t.cn/Ry0yUvD<br><img src="http://ww4.sinaimg.cn/large/60718250jw1ewlc5os98fj20c8096my9.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3893067750403324" target="freeweibo-mirror">[思考]官方还没定性呢，说不定今晚就定性是恐怖活动了。哦对今…</a>
 </h2>
 <p>[思考]官方还没定性呢，说不定今晚就定性是恐怖活动了。哦对今晚不行……//@喷嚏网铂程://@十年砍柴: 这当然不是恐怖活动，是＂反社会泄愤型无特定对象的高危害性刑事犯罪＂，就像不能把＂下岗＂说成＂失业＂。<br><br>RE: #广西柳城爆炸#【广西柳城今早再爆炸 特警抵达现场】广西柳州柳城县今早爆炸现场已拉起警戒线，现场可看到特警车辆，武警和消防员均已抵达。http://t.cn/Ry0yUvD<br><img src="http://ww4.sinaimg.cn/large/60718250jw1ewlc5os98fj20c8096my9.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3893067255617540" target="freeweibo-mirror">//@十年砍柴: 这当然不是恐怖活动，是＂反社会泄愤型无特定…</a>
 </h2>
 <p>//@十年砍柴: 这当然不是恐怖活动，是＂反社会泄愤型无特定对象的高危害性刑事犯罪＂，就像不能把＂下岗＂说成＂失业＂。<br><br>RE: #广西柳城爆炸#【广西柳城今早再爆炸 特警抵达现场】广西柳州柳城县今早爆炸现场已拉起警戒线，现场可看到特警车辆，武警和消防员均已抵达。http://t.cn/Ry0yUvD<br><img src="http://ww4.sinaimg.cn/large/60718250jw1ewlc5os98fj20c8096my9.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3893067180049496" target="freeweibo-mirror">该认真处且认真。//@陈有西:非常有意思。一些人已经数典忘祖…</a>
 </h2>
