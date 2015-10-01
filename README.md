@@ -48,7 +48,7 @@
 </h2>
 <p>回复@可可资讯:早就看穿了这副嘴脸！//@可可资讯:用计算器摁了一下，中国平均每个三口之家为习此次出行援外付款240元人民币。<br><br>RE: 美聯社指:【中國式的支票簿外交】<br><img src="http://ww3.sinaimg.cn/large/006ett1ajw1ewkvpd8rcyj30m80enq4j.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3893065939176684" target="freeweibo-mirror">昨天说人都抓获了，今天又爆炸，是昨天的炸弹快递没拆完吗？</a>
 </h2>
@@ -84,7 +84,7 @@
 </h2>
 <p>SPAM 法X功表演的不错啊 //@演员孙海英:[怒]卑鄙！换位思考：这样对待别人，有一天换了你？</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3892910493857637" target="freeweibo-mirror">美聯社指:【中國式的支票簿外交】</a>
 </h2>
