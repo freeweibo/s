@@ -20,17 +20,23 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3893126298908582" target="freeweibo-mirror">China有可以译成“其它”吗？[馋嘴]</a>
+</h2>
+<p>China有可以译成“其它”吗？[馋嘴]</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3893124776510886" target="freeweibo-mirror">太坏了。 //@邓相超:转发微博</a>
 </h2>
 <p>太坏了。 //@邓相超:转发微博<br><br>RE: 大跃进时期，社员小张捉到一只王八，高兴回到家里对老婆说：“我们有炸王八吃了！”“没有油。”“那就煮！”“锅都拿去炼铁了。”“烤王八！”“柴也一起拿去了。”小张气死了，走到河边把王八扔了回去。那王八得以活命，龟头伸出水面，激动地高呼：“毛主席万岁！” [哈哈]  祝假期玩得愉快！[嘻嘻]</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3893124679968771" target="freeweibo-mirror">看到傻逼不高兴我们就开心！//@只喝开水的老鬼:博主这么悲哀…</a>
 </h2>
 <p>看到傻逼不高兴我们就开心！//@只喝开水的老鬼:博主这么悲哀咋不死且？//@R中队-KsR:我想当欣慰//@FYJS-飞翔的猫:看到傻逼们今天不高兴我就高兴了</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3893116169462069" target="freeweibo-mirror">这帮今天宣称“这国不是1949年10月1日才有的”的家伙，等…</a>
 </h2>
@@ -108,19 +114,19 @@
 </h2>
 <p>脑残是被洗出来的还是天生的？[偷笑] //@荣剑2001:这种人都多了去，主要还是因为脑残 。//@陈有西:非常有意思。一些人已经数典忘祖。以为自己是天上掉下来的。祖宗都不要了。//@小小小衰哥：我也觉得这种较真真心没意思。<br><br>RE: 【纠正一个常识错误：祖国不是66岁】新中国和“祖国”是两个概念。祖国66华诞，5千年文明在外星?矫情宣传不要落入历史虚无主义谬误。<br><img src="http://ww2.sinaimg.cn/large/6b804b51gw1ewlddwq4s4j20ez0qotch.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3893079549737419" target="freeweibo-mirror">制造17起爆炸案，人民陷入恐慌，还不是「暴恐」啊？什么一般刑…</a>
 </h2>
 <p>制造17起爆炸案，人民陷入恐慌，还不是「暴恐」啊？什么一般刑事犯罪分子有这个能力啊？</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3893079188193257" target="freeweibo-mirror">SPAM 乱伦。</a>
 </h2>
 <p>SPAM 乱伦。<br><br>RE: 请教@北京大学 :  既然贵校的祖国只有66岁，那么99年前，蔡元培先生在贵校当校长时，贵校属于哪一国？<br><img src="http://ww2.sinaimg.cn/large/749a72b0gw1ewleg8bud2j20p018ggr7.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3893073895808864" target="freeweibo-mirror">请教@北京大学 :  既然贵校的祖国只有66岁，那么99年前…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3893071835681840" target="freeweibo-mirror">[转发]//@苏州朱永健: //@玉风: 警方居然用刑事案件…</a>
 </h2>
 <p>[转发]//@苏州朱永健: //@玉风: 警方居然用刑事案件替代暴恐犯罪？！[疑问][围观]//@苏州朱永健://@罗亚蒙: #亚蒙看法#【广西柳城今早再爆炸[吃惊] 特警抵达现场】恐怖分子太猖狂了！！ http://t.cn/Ry0U4Fk</p>
-<p>
-	<small> ============== 5小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3893071781117521" target="freeweibo-mirror">SPAM 专业洗脑66年，66年前没祖国？</a>
-</h2>
-<p>SPAM 专业洗脑66年，66年前没祖国？<br><br>RE: 今天又到了考验智商的时刻。提醒一下，祖国不只66岁。<br><img src="http://ww1.sinaimg.cn/large/4d21190fjw1ewlbnihijaj20p018gn7y.jpg"></p>
 <p>
 	<small> ============== 5小时前</small>
 </p>
