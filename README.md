@@ -24,7 +24,7 @@
 </h2>
 <p>//@布谷鸟咕咕叫:转发微博<br><br>RE: 我在哪，哪里就是中国。为什么要到某一块土地上才叫中国？那土地上反而没有中国——余英时。我生本无乡，心安是归处——白居易<br><img src="http://ww4.sinaimg.cn/large/006ett1agw1ewkh8jh5mmj30gn0bbgov.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3893020800104698" target="freeweibo-mirror">SPAM 法X功表演的不错啊 //@演员孙海英:[怒]卑鄙！…</a>
 </h2>
