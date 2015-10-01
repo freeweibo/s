@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3893138899058642" target="freeweibo-mirror">党国。不能因为老蒋用了几十年，咱们就不能接过来用了。//@贺…</a>
+</h2>
+<p>党国。不能因为老蒋用了几十年，咱们就不能接过来用了。//@贺海林: 楚国</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3893126298908582" target="freeweibo-mirror">China有可以译成“其它”吗？[馋嘴]</a>
 </h2>
 <p>China有可以译成“其它”吗？[馋嘴]</p>
@@ -44,11 +50,17 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3893122939535800" target="freeweibo-mirror">他們只是水平低吧？ //@想娶宋祖英:郭老师批评得太轻了，这…</a>
+</h2>
+<p>他們只是水平低吧？ //@想娶宋祖英:郭老师批评得太轻了，这些谎言制造机一边编造着《中国近代史》、《中国古代史》，一边又深情款款地吟诵：“祖國母親，在您66歲生日，我衷心祝愿您……”这是变相地宣称：“我们的祖国不是中国！”这叫什么嘴脸？这叫汉奸！这是什么行为？这是卖国！<br><br>RE: 早上醒來，收到同一個“慶賀祖國母親66歲生日”的公益微信，編這資料的怎麼還沒有一點長進？我早就說過，祖國與母親是兩個輩分的概念，不能亂“倫”，既然叫祖國，怎麼只有66歲，比我母親都小多了，不是開玩笑嗎？如果按照這個邏輯，你還好意思說台灣自古以來就是中國的領土，這不是自己打自己的嘴嗎？</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3893117482847859" target="freeweibo-mirror">SPAM //@徐xiaopang0531: //@王颖--…</a>
 </h2>
 <p>SPAM //@徐xiaopang0531: //@王颖--不折不扣: 部分民意的表达。</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3893116169462069" target="freeweibo-mirror">这帮今天宣称“这国不是1949年10月1日才有的”的家伙，等…</a>
 </h2>
@@ -114,7 +126,7 @@
 </h2>
 <p>SPAM 明天上午和下午会在场馆不同的地方哦~大家看好签售时间和地点啦~~[爱你]</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3893081717608836" target="freeweibo-mirror">说是国庆节，庆祝什么呢？庆祝国家两岸分离了？庆祝“枪杆子出政…</a>
 </h2>
@@ -125,18 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3893079687917558" target="freeweibo-mirror">脑残是被洗出来的还是天生的？[偷笑] //@荣剑2001:这…</a>
 </h2>
 <p>脑残是被洗出来的还是天生的？[偷笑] //@荣剑2001:这种人都多了去，主要还是因为脑残 。//@陈有西:非常有意思。一些人已经数典忘祖。以为自己是天上掉下来的。祖宗都不要了。//@小小小衰哥：我也觉得这种较真真心没意思。<br><br>RE: 【纠正一个常识错误：祖国不是66岁】新中国和“祖国”是两个概念。祖国66华诞，5千年文明在外星?矫情宣传不要落入历史虚无主义谬误。<br><img src="http://ww2.sinaimg.cn/large/6b804b51gw1ewlddwq4s4j20ez0qotch.jpg"></p>
-<p>
-	<small> ============== 5小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3893079549737419" target="freeweibo-mirror">制造17起爆炸案，人民陷入恐慌，还不是「暴恐」啊？什么一般刑…</a>
-</h2>
-<p>制造17起爆炸案，人民陷入恐慌，还不是「暴恐」啊？什么一般刑事犯罪分子有这个能力啊？</p>
-<p>
-	<small> ============== 5小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3893079188193257" target="freeweibo-mirror">SPAM 乱伦。</a>
-</h2>
-<p>SPAM 乱伦。<br><br>RE: 请教@北京大学 :  既然贵校的祖国只有66岁，那么99年前，蔡元培先生在贵校当校长时，贵校属于哪一国？<br><img src="http://ww2.sinaimg.cn/large/749a72b0gw1ewleg8bud2j20p018ggr7.jpg"></p>
 <p>
 	<small> ============== 5小时前</small>
 </p>
