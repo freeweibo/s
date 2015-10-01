@@ -102,7 +102,7 @@
 </h2>
 <p>【国】我的祖国可能是齐国，也许祖上本身就是外来人。无论如何，既然说祖国历史悠久，文明灿烂，那就绝对不是这个刚刚六十多年的国。事实不符，逻辑难通。古人知道朝廷如流水，故国河长在，但若用“本朝”的传统说法，又仿佛至今仍是个帝国。诚是大难！<br><img src="http://ww2.sinaimg.cn/large/48866320jw1ewllnhu5bzj20fx0m8tbf.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3893126298908582" target="freeweibo-mirror">China有可以译成“其它”吗？[馋嘴]</a>
 </h2>
