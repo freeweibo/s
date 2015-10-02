@@ -78,7 +78,7 @@
 </h2>
 <p>实实在在搞共和制，中国就不会分裂至今。</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3893380180663639" target="freeweibo-mirror">不用扣字眼。是新中国。新政权。 //@董洁林://@老芋头:…</a>
 </h2>
