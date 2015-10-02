@@ -20,6 +20,18 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3893456479318569" target="freeweibo-mirror">//@李思磐: //@雾锁China:据资料韦银勇是天津商业…</a>
+</h2>
+<p>//@李思磐: //@雾锁China:据资料韦银勇是天津商业大学的本科毕业生//@南蛮秦岭坐:回复@月光手帕伊莲娜:[衰] //@月光手帕伊莲娜:据说韦银勇是采石场炸药保管员，其报复动机疑因两年前他只因在网上失言，被当地警方送监一年。至于真相到底是什么看官方如何通报吧。<br><br>RE: 韦银勇:我杀人的时间快到了，是当地政府逼我这样做的。当我疯狂时，请记住当初你们是怎样把我当傻子耍的<br><img src="http://ww4.sinaimg.cn/large/0063wKyPjw1ewlx38y3guj30c80gc3z3.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3893454779753815" target="freeweibo-mirror">右边也是……//@梦晨伤: ……2013年啊……很明显政府将…</a>
+</h2>
+<p>右边也是……//@梦晨伤: ……2013年啊……很明显政府将大多数维稳力量都放在了新浪微博上……从而忽视了腾讯微博上这种只言片语……唉[蜡烛]为百姓，为明天[蜡烛]唔，自求多福。//@喷嚏网铂程: //@十年砍柴:当时警方以为他在吹牛吧？<br><br>RE: 韦银勇:我杀人的时间快到了，是当地政府逼我这样做的。当我疯狂时，请记住当初你们是怎样把我当傻子耍的<br><img src="http://ww4.sinaimg.cn/large/0063wKyPjw1ewlx38y3guj30c80gc3z3.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3893416645494746" target="freeweibo-mirror">//@戴圩://@河南渔歌子2008:求真相！//@青独狼_…</a>
 </h2>
 <p>//@戴圩://@河南渔歌子2008:求真相！//@青独狼_75910://@写小说手记: //@深圳王庆斌://@青独狼_75910: //@青岛周老川: 求真相。//@青独狼_75910:向英雄学习！！！//@青独狼_75910: 是个真正男人！不是不报！时候不到！时候已到………！[酷][鼓掌][鼓掌][鼓掌][good]//@半虹骑士: [吃惊]<br><br>RE: 【柳州爆炸</p>
@@ -42,13 +54,13 @@
 </h2>
 <p>王朝。 //@郑筠律师:党、政、国一体嘛。</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3893387046070239" target="freeweibo-mirror">正解！[赞][嘻嘻]</a>
 </h2>
 <p>正解！[赞][嘻嘻]</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3893386157538905" target="freeweibo-mirror">千年暗室，一灯即破。</a>
 </h2>
@@ -125,18 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3893375012764756" target="freeweibo-mirror">//@迟夙生律师://@王方Frank老师: 转发微博</a>
 </h2>
 <p>//@迟夙生律师://@王方Frank老师: 转发微博</p>
-<p>
-	<small> ============== 6小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3893374064967085" target="freeweibo-mirror">//@王方Frank老师: 转发微博</a>
-</h2>
-<p>//@王方Frank老师: 转发微博</p>
-<p>
-	<small> ============== 6小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3893373368613872" target="freeweibo-mirror">//@陶景洲:难道爆炸是谣言？ //@-孔智勇:网络没有死角…</a>
-</h2>
-<p>//@陶景洲:难道爆炸是谣言？ //@-孔智勇:网络没有死角！ //@SY徐风:→_→</p>
 <p>
 	<small> ============== 6小时前</small>
 </p>
