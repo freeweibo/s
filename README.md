@@ -48,7 +48,7 @@
 </h2>
 <p>SPAM 404<br><br>RE: 一个社会如果只能靠删除不同看法去维护统一思想的宣传，那就证明这个思想宣传已经到了弱不经风的程度了。</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3893598250170242" target="freeweibo-mirror">一个社会如果只能靠删除不同看法去维护统一思想的宣传，那就证明…</a>
 </h2>
@@ -60,7 +60,7 @@
 </h2>
 <p>SPAM →_→笑死我了//@大地飞鹰-10:大撒币你摊上事了！[哈哈]→_→ //@第一号大撒币:我去！<br><br>RE: 你摊上事了，摊上大事了！[哈哈]<br><img src="http://ww2.sinaimg.cn/large/006eEhN7jw1ewmx9vjav3j30ez0qo40p.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3893509968657170" target="freeweibo-mirror">一个值得思考的案例[思考]//@邱少言: [话筒]</a>
 </h2>
