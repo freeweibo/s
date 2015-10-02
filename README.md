@@ -30,7 +30,7 @@
 </h2>
 <p>一个社会如果只能靠删除不同看法去维护统一思想的宣传，那就证明这个思想宣传已经到了弱不经风的程度了。</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3893588645525011" target="freeweibo-mirror">SPAM →_→笑死我了//@大地飞鹰-10:大撒币你摊上事…</a>
 </h2>
@@ -66,7 +66,7 @@
 </h2>
 <p>SPAM http://t.cn/Ry0fozR<br><br>RE: 韦银勇:我杀人的时间快到了，是当地政府逼我这样做的。当我疯狂时，请记住当初你们是怎样把我当傻子耍的<br><img src="http://ww4.sinaimg.cn/large/0063wKyPjw1ewlx38y3guj30c80gc3z3.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3893459159506662" target="freeweibo-mirror">SPAM  //@欧豹马-yang://@荣剑2001: 是…</a>
 </h2>
@@ -90,13 +90,13 @@
 </h2>
 <p>右边也是……//@梦晨伤: ……2013年啊……很明显政府将大多数维稳力量都放在了新浪微博上……从而忽视了腾讯微博上这种只言片语……唉[蜡烛]为百姓，为明天[蜡烛]唔，自求多福。//@喷嚏网铂程: //@十年砍柴:当时警方以为他在吹牛吧？<br><br>RE: 韦银勇:我杀人的时间快到了，是当地政府逼我这样做的。当我疯狂时，请记住当初你们是怎样把我当傻子耍的<br><img src="http://ww4.sinaimg.cn/large/0063wKyPjw1ewlx38y3guj30c80gc3z3.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3893453929081790" target="freeweibo-mirror">SPAM //@荣剑2001:是这个人吗？//@何兵: //…</a>
 </h2>
 <p>SPAM //@荣剑2001:是这个人吗？//@何兵: //@看天下时报:[吃惊]<br><br>RE: 韦银勇:我杀人的时间快到了，是当地政府逼我这样做的。当我疯狂时，请记住当初你们是怎样把我当傻子耍的<br><img src="http://ww4.sinaimg.cn/large/0063wKyPjw1ewlx38y3guj30c80gc3z3.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3893451084743373" target="freeweibo-mirror">实时监控社交媒体 detect极端情绪应该是公共安全国家安全…</a>
 </h2>
