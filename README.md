@@ -48,7 +48,7 @@
 </h2>
 <p>SPAM http://t.cn/Ry0fozR<br><br>RE: 韦银勇:我杀人的时间快到了，是当地政府逼我这样做的。当我疯狂时，请记住当初你们是怎样把我当傻子耍的<br><img src="http://ww4.sinaimg.cn/large/0063wKyPjw1ewlx38y3guj30c80gc3z3.jpg"></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3893459159506662" target="freeweibo-mirror">SPAM  //@欧豹马-yang://@荣剑2001: 是…</a>
 </h2>
