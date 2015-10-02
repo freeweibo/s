@@ -32,6 +32,18 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3893385561752370" target="freeweibo-mirror">[赞] //@日天小巨人://@无畏高尔察克:实实在在搞共和…</a>
+</h2>
+<p>[赞] //@日天小巨人://@无畏高尔察克:实实在在搞共和制，中国就不会分裂至今。</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3893384642837156" target="freeweibo-mirror">//@童之伟:这其实是常识，但我国学术界没有坚持和回归常识的…</a>
+</h2>
+<p>//@童之伟:这其实是常识，但我国学术界没有坚持和回归常识的权利。例如，有些人士用“建政”（即建立政权）代替建国，提法确实更合逻辑更合事实，但所有正式出版物，都不敢也不许用。甚至用“建政”一词，已被视为另类人物的文字符号。</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3893384555352109" target="freeweibo-mirror">当初的“共同纲领”只是“挂羊头卖狗肉”的勾当//@老蔡时评:…</a>
 </h2>
 <p>当初的“共同纲领”只是“挂羊头卖狗肉”的勾当//@老蔡时评:老任说得很明白，说白了，就是贵党执政掌权66年了，而这个国家己存在了数千年之久。</p>
@@ -41,6 +53,18 @@
 	<a href="https://freeweibo.com/weibo/3893384127466698" target="freeweibo-mirror">实实在在搞共和制，中国就不会分裂至今。</a>
 </h2>
 <p>实实在在搞共和制，中国就不会分裂至今。</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3893380180663639" target="freeweibo-mirror">不用扣字眼。是新中国。新政权。 //@董洁林://@老芋头:…</a>
+</h2>
+<p>不用扣字眼。是新中国。新政权。 //@董洁林://@老芋头: 转发微博</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3893379089545209" target="freeweibo-mirror">毛主席说的很清楚：中华人民共和国中央人民政府成立了！</a>
+</h2>
+<p>毛主席说的很清楚：中华人民共和国中央人民政府成立了！</p>
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
@@ -56,6 +80,12 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3893376589693906" target="freeweibo-mirror">//@老芋头:转发微博</a>
+</h2>
+<p>//@老芋头:转发微博</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3893375491381773" target="freeweibo-mirror">普及常识！ //@老芋头:转发微博</a>
 </h2>
 <p>普及常识！ //@老芋头:转发微博</p>
@@ -67,6 +97,30 @@
 <p>//@迟夙生律师://@王方Frank老师: 转发微博</p>
 <p>
 	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3893374064967085" target="freeweibo-mirror">//@王方Frank老师: 转发微博</a>
+</h2>
+<p>//@王方Frank老师: 转发微博</p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3893373368613872" target="freeweibo-mirror">//@陶景洲:难道爆炸是谣言？ //@-孔智勇:网络没有死角…</a>
+</h2>
+<p>//@陶景洲:难道爆炸是谣言？ //@-孔智勇:网络没有死角！ //@SY徐风:→_→</p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3893364007057939" target="freeweibo-mirror">难道爆炸是谣言？ //@-孔智勇:网络没有死角！ //@SY…</a>
+</h2>
+<p>难道爆炸是谣言？ //@-孔智勇:网络没有死角！ //@SY徐风:→_→</p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3893359951215407" target="freeweibo-mirror">//@泰东山人: //@楚狂儿-:轉發微博</a>
+</h2>
+<p>//@泰东山人: //@楚狂儿-:轉發微博</p>
+<p>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3893356008944255" target="freeweibo-mirror">//@老关回来了: //@马仙家: [围观]//@务虚时代2…</a>
 </h2>
@@ -85,60 +139,6 @@
 <p>//@交易线trend://@中国心J: 转发微博</p>
 <p>
 	<small> ============== 9小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3893265252135040" target="freeweibo-mirror">SPAM 你的名字，我的心事。@金匠288</a>
-</h2>
-<p>SPAM 你的名字，我的心事。@金匠288</p>
-<p>
-	<small> ============== 10小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3893263910509441" target="freeweibo-mirror">SPAM 先加！加完一个一个看！[doge]</a>
-</h2>
-<p>SPAM 先加！加完一个一个看！[doge]</p>
-<p>
-	<small> ============== 10小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3893201691451660" target="freeweibo-mirror">SPAM //@愤怒的池中鱼又来: 金正恩他爹也是这么想的。…</a>
-</h2>
-<p>SPAM //@愤怒的池中鱼又来: 金正恩他爹也是这么想的。毛驴子也是这么做的。//@苫般密波啰://@徐利平律师:让这孩子接班，不是害了他吗?//@吴顾问1970:[弱]//@上官云开记者:[弱] //@肖铁:培养接班人。//@Dxp1866: 这就是特权者自说自话，自鸣得意。</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3893200919792042" target="freeweibo-mirror">//@心之所向8: [哈哈][哈哈][哈哈]//@演员孙海英…</a>
-</h2>
-<p>//@心之所向8: [哈哈][哈哈][哈哈]//@演员孙海英:我们为什么是鱼，朝鲜为什么是蛆？</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3893200383227310" target="freeweibo-mirror">//@心之所向8: //@心之所向8: 那些信仰共产主义的应…</a>
-</h2>
-<p>//@心之所向8: //@心之所向8: 那些信仰共产主义的应该划一片地自己去实验，不要拿全国人民做实验。共产主义生活就其实就是动物园的生活，你们可以拿自己不当人，但不能把全国人民不当人[怒]</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3893200316403521" target="freeweibo-mirror">//@心之所向8: 全他妈白读了[挖鼻]</a>
-</h2>
-<p>//@心之所向8: 全他妈白读了[挖鼻]</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3893200055698965" target="freeweibo-mirror">49年前的中共敢说自己不是汉奸吗？//@心之所向8: 汉奸的…</a>
-</h2>
-<p>49年前的中共敢说自己不是汉奸吗？//@心之所向8: 汉奸的定义是什么，如果按网络上的批评政府、指出错误、说政府不好、推翻政府、攻击政府、对政府有怨言、向往自由民主是汉奸，请问49年以前哪些人是汉奸？@任志强//@任志强:破四旧破没了。</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3893199607460813" target="freeweibo-mirror">回复@伤心客阿发5:[思考] //@伤心客阿发5:满人多尔衮…</a>
-</h2>
-<p>回复@伤心客阿发5:[思考] //@伤心客阿发5:满人多尔衮得大明崇祯老儿的江山实得于李闯贼之手，湘淫毛酋得民國全体华人之江山实得于侵华日酋之手，此毛酋免除日酋侵华战争赔款之真义耳。娘稀匹！</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3893197065221438" target="freeweibo-mirror">SPAM 嗯，简单点说，土豪BOSS@赵世诚 给大伙准备了i…</a>
-</h2>
-<p>SPAM 嗯，简单点说，土豪BOSS@赵世诚 给大伙准备了iphone 6S，晒照片就有机会得，嗯哼～</p>
-<p>
-	<small> ============== 1天前</small>
 </p>
 <table>
     <tr>
