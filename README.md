@@ -72,7 +72,7 @@
 </h2>
 <p>//@老关回来了: //@马仙家: [围观]//@务虚时代2012: 逻辑严密的知识贴。[good]//@SY徐风:转发微博</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3893327705393976" target="freeweibo-mirror">十月一日的这个节日，不是一个新中国成立的节日，而是一个新的中…</a>
 </h2>
@@ -90,7 +90,7 @@
 </h2>
 <p>SPAM 你的名字，我的心事。@金匠288</p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3893263910509441" target="freeweibo-mirror">SPAM 先加！加完一个一个看！[doge]</a>
 </h2>
