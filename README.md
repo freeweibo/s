@@ -60,7 +60,7 @@
 </h2>
 <p>SPAM 任兄是位好党员[赞]<br><br>RE: 一个社会如果只能靠删除不同看法去维护统一思想的宣传，那就证明这个思想宣传已经到了弱不经风的程度了。</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3893606656173002" target="freeweibo-mirror">优秀共产党员！</a>
 </h2>
