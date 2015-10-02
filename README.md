@@ -30,7 +30,7 @@
 </h2>
 <p>[围观]//@五行剑侠:笑翻了，阿拉伯哪个国家是中国领土了？这判的也太特么搞笑了</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3893387159507077" target="freeweibo-mirror">王朝。 //@郑筠律师:党、政、国一体嘛。</a>
 </h2>
@@ -104,6 +104,12 @@
 <p>
 	<small> ============== 4小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3893375712930290" target="freeweibo-mirror">【柳州爆炸</a>
+</h2>
+<p>【柳州爆炸</p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3893375491381773" target="freeweibo-mirror">普及常识！ //@老芋头:转发微博</a>
 </h2>
 <p>普及常识！ //@老芋头:转发微博</p>
@@ -133,12 +139,6 @@
 <p>难道爆炸是谣言？ //@-孔智勇:网络没有死角！ //@SY徐风:→_→</p>
 <p>
 	<small> ============== 4小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3893359951215407" target="freeweibo-mirror">//@泰东山人: //@楚狂儿-:轉發微博</a>
-</h2>
-<p>//@泰东山人: //@楚狂儿-:轉發微博</p>
-<p>
-	<small> ============== 5小时前</small>
 </p>
 <table>
     <tr>
