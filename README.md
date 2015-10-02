@@ -66,13 +66,13 @@
 </h2>
 <p>毛主席说的很清楚：中华人民共和国中央人民政府成立了！</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3893378716170620" target="freeweibo-mirror">任总和一干公知们在为推翻中共政权做舆论准备。 //@健儿打打…</a>
 </h2>
 <p>任总和一干公知们在为推翻中共政权做舆论准备。 //@健儿打打://@闷猫XI: //@王健_经济金融科普:任总是提醒大家要正确区分政府和国家吗？[哈哈]</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3893376695028133" target="freeweibo-mirror">任总可以组建新党了</a>
 </h2>
@@ -114,7 +114,7 @@
 </h2>
 <p>难道爆炸是谣言？ //@-孔智勇:网络没有死角！ //@SY徐风:→_→</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3893359951215407" target="freeweibo-mirror">//@泰东山人: //@楚狂儿-:轉發微博</a>
 </h2>
