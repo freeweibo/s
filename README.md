@@ -36,7 +36,7 @@
 </h2>
 <p>当初的“共同纲领”只是“挂羊头卖狗肉”的勾当//@老蔡时评:老任说得很明白，说白了，就是贵党执政掌权66年了，而这个国家己存在了数千年之久。</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3893384127466698" target="freeweibo-mirror">实实在在搞共和制，中国就不会分裂至今。</a>
 </h2>
@@ -84,7 +84,7 @@
 </h2>
 <p>//@交易线trend://@中国心J: 转发微博</p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3893265252135040" target="freeweibo-mirror">SPAM 你的名字，我的心事。@金匠288</a>
 </h2>
@@ -96,7 +96,7 @@
 </h2>
 <p>SPAM 先加！加完一个一个看！[doge]</p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3893201691451660" target="freeweibo-mirror">SPAM //@愤怒的池中鱼又来: 金正恩他爹也是这么想的。…</a>
 </h2>
