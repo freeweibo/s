@@ -120,13 +120,13 @@
 </h2>
 <p>//@王方Frank老师: 转发微博</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3893373368613872" target="freeweibo-mirror">//@陶景洲:难道爆炸是谣言？ //@-孔智勇:网络没有死角…</a>
 </h2>
 <p>//@陶景洲:难道爆炸是谣言？ //@-孔智勇:网络没有死角！ //@SY徐风:→_→</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3893364007057939" target="freeweibo-mirror">难道爆炸是谣言？ //@-孔智勇:网络没有死角！ //@SY…</a>
 </h2>
