@@ -26,11 +26,23 @@
 <p>
 	<small> ============== 1小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3893459159506662" target="freeweibo-mirror">SPAM  //@欧豹马-yang://@荣剑2001: 是…</a>
+</h2>
+<p>SPAM  //@欧豹马-yang://@荣剑2001: 是这个人吗？//@何兵: //@看天下时报:[吃惊]<br><br>RE: 韦银勇:我杀人的时间快到了，是当地政府逼我这样做的。当我疯狂时，请记住当初你们是怎样把我当傻子耍的<br><img src="http://ww4.sinaimg.cn/large/0063wKyPjw1ewlx38y3guj30c80gc3z3.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3893456479318569" target="freeweibo-mirror">//@李思磐: //@雾锁China:据资料韦银勇是天津商业…</a>
 </h2>
 <p>//@李思磐: //@雾锁China:据资料韦银勇是天津商业大学的本科毕业生//@南蛮秦岭坐:回复@月光手帕伊莲娜:[衰] //@月光手帕伊莲娜:据说韦银勇是采石场炸药保管员，其报复动机疑因两年前他只因在网上失言，被当地警方送监一年。至于真相到底是什么看官方如何通报吧。<br><br>RE: 韦银勇:我杀人的时间快到了，是当地政府逼我这样做的。当我疯狂时，请记住当初你们是怎样把我当傻子耍的<br><img src="http://ww4.sinaimg.cn/large/0063wKyPjw1ewlx38y3guj30c80gc3z3.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3893455845504095" target="freeweibo-mirror">怎么说也是个傻逼，不知道冤有头债有主………吗？</a>
+</h2>
+<p>怎么说也是个傻逼，不知道冤有头债有主………吗？<br><br>RE: 韦银勇:我杀人的时间快到了，是当地政府逼我这样做的。当我疯狂时，请记住当初你们是怎样把我当傻子耍的<br><img src="http://ww4.sinaimg.cn/large/0063wKyPjw1ewlx38y3guj30c80gc3z3.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3893454779753815" target="freeweibo-mirror">右边也是……//@梦晨伤: ……2013年啊……很明显政府将…</a>
 </h2>
@@ -43,6 +55,18 @@
 <p>SPAM //@荣剑2001:是这个人吗？//@何兵: //@看天下时报:[吃惊]<br><br>RE: 韦银勇:我杀人的时间快到了，是当地政府逼我这样做的。当我疯狂时，请记住当初你们是怎样把我当傻子耍的<br><img src="http://ww4.sinaimg.cn/large/0063wKyPjw1ewlx38y3guj30c80gc3z3.jpg"></p>
 <p>
 	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3893451084743373" target="freeweibo-mirror">实时监控社交媒体 detect极端情绪应该是公共安全国家安全…</a>
+</h2>
+<p>实时监控社交媒体 detect极端情绪应该是公共安全国家安全的一个重要题目 //@vieuxcheval:也是啊。所以甄别就特别重要。大数据分析或许帮得上忙？//@插一腿: 美国今天枪击杀了很多人那个家伙昨天也在网上警告了。这年头疯子太多，都当真怕是也顾不过来。//@vieuxcheval://@十年砍柴: 当时警方以为他在吹<br><br>RE: 韦银勇:我杀人的时间快到了，是当地政府逼我这样做的。当我疯狂时，请记住当初你们是怎样把我当傻子耍的<br><img src="http://ww4.sinaimg.cn/large/0063wKyPjw1ewlx38y3guj30c80gc3z3.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3893426547860569" target="freeweibo-mirror">…… //@云五:[挖鼻屎] //@开水族馆的生物男:求证/…</a>
+</h2>
+<p>…… //@云五:[挖鼻屎] //@开水族馆的生物男:求证//@无穷的探索:[吃惊] //@大圣统计:报道称，袭击发生在9日17日深夜至18日凌晨，首先遭到袭击的是一处派出所，5名警察被杀害。随后，这些袭击者穿上警服来到煤矿公司的员工宿舍，杀死了正在宿舍休息的40多名员工，据悉死者大多数是来自四川的民工。<br><br>RE: http://t.cn/R2FolLG媒体新疆一煤矿两周前曾遭暴袭50人死亡/a-18752659<br><img src="http://ww3.sinaimg.cn/large/6bf51574jw1ewltp3l89sj20jy0cudib.jpg"></p>
+<p>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3893416645494746" target="freeweibo-mirror">//@戴圩://@河南渔歌子2008:求真相！//@青独狼_…</a>
 </h2>
@@ -113,30 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3893379089545209" target="freeweibo-mirror">毛主席说的很清楚：中华人民共和国中央人民政府成立了！</a>
 </h2>
 <p>毛主席说的很清楚：中华人民共和国中央人民政府成立了！</p>
-<p>
-	<small> ============== 7小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3893378716170620" target="freeweibo-mirror">任总和一干公知们在为推翻中共政权做舆论准备。 //@健儿打打…</a>
-</h2>
-<p>任总和一干公知们在为推翻中共政权做舆论准备。 //@健儿打打://@闷猫XI: //@王健_经济金融科普:任总是提醒大家要正确区分政府和国家吗？[哈哈]</p>
-<p>
-	<small> ============== 7小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3893376695028133" target="freeweibo-mirror">任总可以组建新党了</a>
-</h2>
-<p>任总可以组建新党了</p>
-<p>
-	<small> ============== 7小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3893376589693906" target="freeweibo-mirror">//@老芋头:转发微博</a>
-</h2>
-<p>//@老芋头:转发微博</p>
-<p>
-	<small> ============== 7小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3893375712930290" target="freeweibo-mirror">【柳州爆炸</a>
-</h2>
-<p>【柳州爆炸</p>
 <p>
 	<small> ============== 7小时前</small>
 </p>
