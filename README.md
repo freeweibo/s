@@ -42,13 +42,13 @@
 </h2>
 <p>王朝。 //@郑筠律师:党、政、国一体嘛。</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3893387046070239" target="freeweibo-mirror">正解！[赞][嘻嘻]</a>
 </h2>
 <p>正解！[赞][嘻嘻]</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3893386157538905" target="freeweibo-mirror">千年暗室，一灯即破。</a>
 </h2>
