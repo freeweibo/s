@@ -50,6 +50,12 @@
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3893609230968910" target="freeweibo-mirror">【美国记者的疑惑】据说，有个美国记者在中国看完“雷锋事迹图片…</a>
+</h2>
+<p>【美国记者的疑惑】据说，有个美国记者在中国看完“雷锋事迹图片展”，问了组织者三个问题：1.当时条件艰苦，为什么雷锋会留下这么多照片？2. 雷锋照片中有很多是他做好事时候拍下的，难道他做好事时，身边还跟着一个摄影师？3. 你们说雷锋做好事从来不留名，那他这些事迹你们是怎么知道的？<br><img src="http://ww3.sinaimg.cn/large/5e7e9712gw1ewmwekeux8j207l06o0sx.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3893608245464253" target="freeweibo-mirror">SPAM 任兄是位好党员[赞]</a>
 </h2>
 <p>SPAM 任兄是位好党员[赞]<br><br>RE: 一个社会如果只能靠删除不同看法去维护统一思想的宣传，那就证明这个思想宣传已经到了弱不经风的程度了。</p>
@@ -90,13 +96,19 @@
 </h2>
 <p>//@谢流石: //@深山樵夫W://@张荣奎: [赞] //@Ditempatlain:Repost<br><br>RE: 有人受皇权的奴化教育太深，自己做了奴隶而不自知，总以为为国牺牲永远是对的。殊不知代表国家的那些政治家和外交家有自己的职业利益，他们也受皇权至上的奴化教育，做事并不以百姓的利益为首，甚至侵犯人民的根本利益。当有人指出这一点时，往往还被认为是汉奸、卖国贼，由此可以看出奴化教育的危害。</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3893588645525011" target="freeweibo-mirror">SPAM →_→笑死我了//@大地飞鹰-10:大撒币你摊上事…</a>
 </h2>
 <p>SPAM →_→笑死我了//@大地飞鹰-10:大撒币你摊上事了！[哈哈]→_→ //@第一号大撒币:我去！<br><br>RE: 你摊上事了，摊上大事了！[哈哈]<br><img src="http://ww2.sinaimg.cn/large/006eEhN7jw1ewmx9vjav3j30ez0qo40p.jpg"></p>
 <p>
 	<small> ============== 5小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3893537369981250" target="freeweibo-mirror">“在你被警察带走的那一刻，我突然间变成了文盲。我不得不开始‘…</a>
+</h2>
+<p>“在你被警察带走的那一刻，我突然间变成了文盲。我不得不开始‘睁眼看世界’，为自己‘扫盲’。”在给丈夫的一封信中，她这样写到。躲在丈夫身后、不问世事的孟群，就这样开始和国家机器周旋。|  江雪：《一个妻子的这一年》。补充一句：鄙人曾与江雪同事过，跟优秀之人同事，乃人生履历上的荣耀。<br><img src="http://ww1.sinaimg.cn/large/9de5d34bjw1ewmvo29t54j20k00zk0tz.jpg"></p>
+<p>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3893518969661497" target="freeweibo-mirror">有人受皇权的奴化教育太深，自己做了奴隶而不自知，总以为为国牺…</a>
 </h2>
@@ -120,23 +132,11 @@
 </h2>
 <p>【豆腐渣奖】//@走马微天下: [给力]//@田成之01:镣铐锁住了一个真正共产党人的身体，但锁不住他傲然正气，锁不住他共富思想，锁不住他人民情怀！从中，我们也能看到当下控局制冤者，是何等的猥琐、卑鄙、阴毒、智残和无耻无能。历史必将会证明一切！[泪]</p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3893474870952924" target="freeweibo-mirror">SPAM 在饭店上演活春宫[吃惊] 这，，，，，，[笑cry…</a>
 </h2>
 <p>SPAM 在饭店上演活春宫[吃惊] 这，，，，，，[笑cry]#http://t.cn/RyXSwE2</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3893462090920296" target="freeweibo-mirror">SPAM http://t.cn/Ry0fozR</a>
-</h2>
-<p>SPAM http://t.cn/Ry0fozR<br><br>RE: 韦银勇:我杀人的时间快到了，是当地政府逼我这样做的。当我疯狂时，请记住当初你们是怎样把我当傻子耍的<br><img src="http://ww4.sinaimg.cn/large/0063wKyPjw1ewlx38y3guj30c80gc3z3.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3893459159506662" target="freeweibo-mirror">SPAM  //@欧豹马-yang://@荣剑2001: 是…</a>
-</h2>
-<p>SPAM  //@欧豹马-yang://@荣剑2001: 是这个人吗？//@何兵: //@看天下时报:[吃惊]<br><br>RE: 韦银勇:我杀人的时间快到了，是当地政府逼我这样做的。当我疯狂时，请记住当初你们是怎样把我当傻子耍的<br><img src="http://ww4.sinaimg.cn/large/0063wKyPjw1ewlx38y3guj30c80gc3z3.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
