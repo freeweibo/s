@@ -24,7 +24,7 @@
 </h2>
 <p>@搬山不止: 批评的目的并不是摧毁，而是希望改进！<br><br>RE: 【美国记者的疑惑】据说，有个美国记者在中国看完“雷锋事迹图片展”，问了组织者三个问题：1.当时条件艰苦，为什么雷锋会留下这么多照片？2. 雷锋照片中有很多是他做好事时候拍下的，难道他做好事时，身边还跟着一个摄影师？3. 你们说雷锋做好事从来不留名，那他这些事迹你们是怎么知道的？<br><img src="http://ww3.sinaimg.cn/large/5e7e9712gw1ewmwekeux8j207l06o0sx.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3893624603147481" target="freeweibo-mirror">SPAM @惠多超划算</a>
 </h2>
@@ -84,7 +84,7 @@
 </h2>
 <p>SPAM 404<br><br>RE: 一个社会如果只能靠删除不同看法去维护统一思想的宣传，那就证明这个思想宣传已经到了弱不经风的程度了。</p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3893602788587183" target="freeweibo-mirror">SPAM →_→//@绝稷之尘：任叔，我们的政党进步了啊，以…</a>
 </h2>
@@ -108,7 +108,7 @@
 </h2>
 <p>SPAM →_→笑死我了//@大地飞鹰-10:大撒币你摊上事了！[哈哈]→_→ //@第一号大撒币:我去！<br><br>RE: 你摊上事了，摊上大事了！[哈哈]<br><img src="http://ww2.sinaimg.cn/large/006eEhN7jw1ewmx9vjav3j30ez0qo40p.jpg"></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3893537369981250" target="freeweibo-mirror">“在你被警察带走的那一刻，我突然间变成了文盲。我不得不开始‘…</a>
 </h2>
