@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3893616760197291" target="freeweibo-mirror">[给力]//@大藏布: 转发微博</a>
+</h2>
+<p>[给力]//@大藏布: 转发微博<br><br>RE: 一个社会如果只能靠删除不同看法去维护统一思想的宣传，那就证明这个思想宣传已经到了弱不经风的程度了。</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3893588645525011" target="freeweibo-mirror">SPAM →_→笑死我了//@大地飞鹰-10:大撒币你摊上事…</a>
 </h2>
 <p>SPAM →_→笑死我了//@大地飞鹰-10:大撒币你摊上事了！[哈哈]→_→ //@第一号大撒币:我去！<br><br>RE: 你摊上事了，摊上大事了！[哈哈]<br><img src="http://ww2.sinaimg.cn/large/006eEhN7jw1ewmx9vjav3j30ez0qo40p.jpg"></p>
@@ -72,7 +78,7 @@
 </h2>
 <p>怎么说也是个傻逼，不知道冤有头债有主………吗？<br><br>RE: 韦银勇:我杀人的时间快到了，是当地政府逼我这样做的。当我疯狂时，请记住当初你们是怎样把我当傻子耍的<br><img src="http://ww4.sinaimg.cn/large/0063wKyPjw1ewlx38y3guj30c80gc3z3.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3893454779753815" target="freeweibo-mirror">右边也是……//@梦晨伤: ……2013年啊……很明显政府将…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3893386157538905" target="freeweibo-mirror">千年暗室，一灯即破。</a>
 </h2>
 <p>千年暗室，一灯即破。</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3893385561752370" target="freeweibo-mirror">[赞] //@日天小巨人://@无畏高尔察克:实实在在搞共和…</a>
-</h2>
-<p>[赞] //@日天小巨人://@无畏高尔察克:实实在在搞共和制，中国就不会分裂至今。</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
