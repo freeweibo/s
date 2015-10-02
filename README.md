@@ -78,13 +78,13 @@
 </h2>
 <p>任总可以组建新党了</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3893376589693906" target="freeweibo-mirror">//@老芋头:转发微博</a>
 </h2>
 <p>//@老芋头:转发微博</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3893375491381773" target="freeweibo-mirror">普及常识！ //@老芋头:转发微博</a>
 </h2>
