@@ -78,7 +78,7 @@
 </h2>
 <p>实时监控社交媒体 detect极端情绪应该是公共安全国家安全的一个重要题目 //@vieuxcheval:也是啊。所以甄别就特别重要。大数据分析或许帮得上忙？//@插一腿: 美国今天枪击杀了很多人那个家伙昨天也在网上警告了。这年头疯子太多，都当真怕是也顾不过来。//@vieuxcheval://@十年砍柴: 当时警方以为他在吹<br><br>RE: 韦银勇:我杀人的时间快到了，是当地政府逼我这样做的。当我疯狂时，请记住当初你们是怎样把我当傻子耍的<br><img src="http://ww4.sinaimg.cn/large/0063wKyPjw1ewlx38y3guj30c80gc3z3.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3893426547860569" target="freeweibo-mirror">…… //@云五:[挖鼻屎] //@开水族馆的生物男:求证/…</a>
 </h2>
