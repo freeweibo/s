@@ -24,7 +24,7 @@
 </h2>
 <p>SPAM http://t.cn/Ry0fozR<br><br>RE: 韦银勇:我杀人的时间快到了，是当地政府逼我这样做的。当我疯狂时，请记住当初你们是怎样把我当傻子耍的<br><img src="http://ww4.sinaimg.cn/large/0063wKyPjw1ewlx38y3guj30c80gc3z3.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3893459159506662" target="freeweibo-mirror">SPAM  //@欧豹马-yang://@荣剑2001: 是…</a>
 </h2>
@@ -72,7 +72,7 @@
 </h2>
 <p>//@戴圩://@河南渔歌子2008:求真相！//@青独狼_75910://@写小说手记: //@深圳王庆斌://@青独狼_75910: //@青岛周老川: 求真相。//@青独狼_75910:向英雄学习！！！//@青独狼_75910: 是个真正男人！不是不报！时候不到！时候已到………！[酷][鼓掌][鼓掌][鼓掌][good]//@半虹骑士: [吃惊]<br><br>RE: 【柳州爆炸</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3893408651012465" target="freeweibo-mirror">//@陕西上官云清://@阿依土豪公主: //@学缠悟缠: …</a>
 </h2>
@@ -102,7 +102,7 @@
 </h2>
 <p>千年暗室，一灯即破。</p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3893385561752370" target="freeweibo-mirror">[赞] //@日天小巨人://@无畏高尔察克:实实在在搞共和…</a>
 </h2>
