@@ -72,13 +72,13 @@
 </h2>
 <p>优秀共产党员！<br><br>RE: 一个社会如果只能靠删除不同看法去维护统一思想的宣传，那就证明这个思想宣传已经到了弱不经风的程度了。</p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3893606547028652" target="freeweibo-mirror">SPAM 知足吧，只删除没杀头已是大大进步了。感恩吧！</a>
 </h2>
 <p>SPAM 知足吧，只删除没杀头已是大大进步了。感恩吧！<br><br>RE: 一个社会如果只能靠删除不同看法去维护统一思想的宣传，那就证明这个思想宣传已经到了弱不经风的程度了。</p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3893603355428508" target="freeweibo-mirror">SPAM 404</a>
 </h2>
