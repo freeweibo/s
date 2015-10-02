@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3893392993705272" target="freeweibo-mirror">[围观]//@五行剑侠:笑翻了，阿拉伯哪个国家是中国领土了？…</a>
+</h2>
+<p>[围观]//@五行剑侠:笑翻了，阿拉伯哪个国家是中国领土了？这判的也太特么搞笑了</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3893387159507077" target="freeweibo-mirror">王朝。 //@郑筠律师:党、政、国一体嘛。</a>
 </h2>
 <p>王朝。 //@郑筠律师:党、政、国一体嘛。</p>
@@ -60,7 +66,7 @@
 </h2>
 <p>不用扣字眼。是新中国。新政权。 //@董洁林://@老芋头: 转发微博</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3893379089545209" target="freeweibo-mirror">毛主席说的很清楚：中华人民共和国中央人民政府成立了！</a>
 </h2>
@@ -133,12 +139,6 @@
 <p>十月一日的这个节日，不是一个新中国成立的节日，而是一个新的中央人民政府宣告成立的庆典。不是中国六十六岁了，而是中央人民政府六十六岁了！这个历史应让所有的年轻人知道，更应让所有人知道当初的“共同纲领”是建立这个中央政府的共识和基础。http://t.cn/RyO2ymX</p>
 <p>
 	<small> ============== 6小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3893279622291389" target="freeweibo-mirror">//@交易线trend://@中国心J: 转发微博</a>
-</h2>
-<p>//@交易线trend://@中国心J: 转发微博</p>
-<p>
-	<small> ============== 9小时前</small>
 </p>
 <table>
     <tr>
