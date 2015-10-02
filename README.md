@@ -36,7 +36,7 @@
 </h2>
 <p>SPAM 任兄是位好党员[赞]<br><br>RE: 一个社会如果只能靠删除不同看法去维护统一思想的宣传，那就证明这个思想宣传已经到了弱不经风的程度了。</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3893606656173002" target="freeweibo-mirror">优秀共产党员！</a>
 </h2>
@@ -56,11 +56,23 @@
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3893602788587183" target="freeweibo-mirror">SPAM →_→//@绝稷之尘：任叔，我们的政党进步了啊，以…</a>
+</h2>
+<p>SPAM →_→//@绝稷之尘：任叔，我们的政党进步了啊，以前你这样的估计早就让带走批斗了，现在只删除你的微博。这是质的变化啊，要有信心！<br><br>RE: 一个社会如果只能靠删除不同看法去维护统一思想的宣传，那就证明这个思想宣传已经到了弱不经风的程度了。</p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3893598250170242" target="freeweibo-mirror">一个社会如果只能靠删除不同看法去维护统一思想的宣传，那就证明…</a>
 </h2>
 <p>一个社会如果只能靠删除不同看法去维护统一思想的宣传，那就证明这个思想宣传已经到了弱不经风的程度了。</p>
 <p>
 	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3893590185092839" target="freeweibo-mirror">//@谢流石: //@深山樵夫W://@张荣奎: [赞] /…</a>
+</h2>
+<p>//@谢流石: //@深山樵夫W://@张荣奎: [赞] //@Ditempatlain:Repost<br><br>RE: 有人受皇权的奴化教育太深，自己做了奴隶而不自知，总以为为国牺牲永远是对的。殊不知代表国家的那些政治家和外交家有自己的职业利益，他们也受皇权至上的奴化教育，做事并不以百姓的利益为首，甚至侵犯人民的根本利益。当有人指出这一点时，往往还被认为是汉奸、卖国贼，由此可以看出奴化教育的危害。</p>
+<p>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3893588645525011" target="freeweibo-mirror">SPAM →_→笑死我了//@大地飞鹰-10:大撒币你摊上事…</a>
 </h2>
@@ -125,18 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3893454779753815" target="freeweibo-mirror">右边也是……//@梦晨伤: ……2013年啊……很明显政府将…</a>
 </h2>
 <p>右边也是……//@梦晨伤: ……2013年啊……很明显政府将大多数维稳力量都放在了新浪微博上……从而忽视了腾讯微博上这种只言片语……唉[蜡烛]为百姓，为明天[蜡烛]唔，自求多福。//@喷嚏网铂程: //@十年砍柴:当时警方以为他在吹牛吧？<br><br>RE: 韦银勇:我杀人的时间快到了，是当地政府逼我这样做的。当我疯狂时，请记住当初你们是怎样把我当傻子耍的<br><img src="http://ww4.sinaimg.cn/large/0063wKyPjw1ewlx38y3guj30c80gc3z3.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3893453929081790" target="freeweibo-mirror">SPAM //@荣剑2001:是这个人吗？//@何兵: //…</a>
-</h2>
-<p>SPAM //@荣剑2001:是这个人吗？//@何兵: //@看天下时报:[吃惊]<br><br>RE: 韦银勇:我杀人的时间快到了，是当地政府逼我这样做的。当我疯狂时，请记住当初你们是怎样把我当傻子耍的<br><img src="http://ww4.sinaimg.cn/large/0063wKyPjw1ewlx38y3guj30c80gc3z3.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3893451084743373" target="freeweibo-mirror">实时监控社交媒体 detect极端情绪应该是公共安全国家安全…</a>
-</h2>
-<p>实时监控社交媒体 detect极端情绪应该是公共安全国家安全的一个重要题目 //@vieuxcheval:也是啊。所以甄别就特别重要。大数据分析或许帮得上忙？//@插一腿: 美国今天枪击杀了很多人那个家伙昨天也在网上警告了。这年头疯子太多，都当真怕是也顾不过来。//@vieuxcheval://@十年砍柴: 当时警方以为他在吹<br><br>RE: 韦银勇:我杀人的时间快到了，是当地政府逼我这样做的。当我疯狂时，请记住当初你们是怎样把我当傻子耍的<br><img src="http://ww4.sinaimg.cn/large/0063wKyPjw1ewlx38y3guj30c80gc3z3.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
