@@ -42,7 +42,7 @@
 </h2>
 <p>怎么说也是个傻逼，不知道冤有头债有主………吗？<br><br>RE: 韦银勇:我杀人的时间快到了，是当地政府逼我这样做的。当我疯狂时，请记住当初你们是怎样把我当傻子耍的<br><img src="http://ww4.sinaimg.cn/large/0063wKyPjw1ewlx38y3guj30c80gc3z3.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3893454779753815" target="freeweibo-mirror">右边也是……//@梦晨伤: ……2013年啊……很明显政府将…</a>
 </h2>
@@ -132,7 +132,7 @@
 </h2>
 <p>不用扣字眼。是新中国。新政权。 //@董洁林://@老芋头: 转发微博</p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3893379089545209" target="freeweibo-mirror">毛主席说的很清楚：中华人民共和国中央人民政府成立了！</a>
 </h2>
