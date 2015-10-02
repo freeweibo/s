@@ -42,7 +42,7 @@
 </h2>
 <p>实实在在搞共和制，中国就不会分裂至今。</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3893378716170620" target="freeweibo-mirror">任总和一干公知们在为推翻中共政权做舆论准备。 //@健儿打打…</a>
 </h2>
