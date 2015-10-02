@@ -84,7 +84,7 @@
 </h2>
 <p>不用扣字眼。是新中国。新政权。 //@董洁林://@老芋头: 转发微博</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3893379089545209" target="freeweibo-mirror">毛主席说的很清楚：中华人民共和国中央人民政府成立了！</a>
 </h2>
