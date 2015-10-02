@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3893484949462035" target="freeweibo-mirror">【豆腐渣奖】//@走马微天下: [给力]//@田成之01:镣…</a>
+</h2>
+<p>【豆腐渣奖】//@走马微天下: [给力]//@田成之01:镣铐锁住了一个真正共产党人的身体，但锁不住他傲然正气，锁不住他共富思想，锁不住他人民情怀！从中，我们也能看到当下控局制冤者，是何等的猥琐、卑鄙、阴毒、智残和无耻无能。历史必将会证明一切！[泪]</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3893462090920296" target="freeweibo-mirror">SPAM http://t.cn/Ry0fozR</a>
 </h2>
 <p>SPAM http://t.cn/Ry0fozR<br><br>RE: 韦银勇:我杀人的时间快到了，是当地政府逼我这样做的。当我疯狂时，请记住当初你们是怎样把我当傻子耍的<br><img src="http://ww4.sinaimg.cn/large/0063wKyPjw1ewlx38y3guj30c80gc3z3.jpg"></p>
@@ -36,7 +42,7 @@
 </h2>
 <p>//@李思磐: //@雾锁China:据资料韦银勇是天津商业大学的本科毕业生//@南蛮秦岭坐:回复@月光手帕伊莲娜:[衰] //@月光手帕伊莲娜:据说韦银勇是采石场炸药保管员，其报复动机疑因两年前他只因在网上失言，被当地警方送监一年。至于真相到底是什么看官方如何通报吧。<br><br>RE: 韦银勇:我杀人的时间快到了，是当地政府逼我这样做的。当我疯狂时，请记住当初你们是怎样把我当傻子耍的<br><img src="http://ww4.sinaimg.cn/large/0063wKyPjw1ewlx38y3guj30c80gc3z3.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3893455845504095" target="freeweibo-mirror">怎么说也是个傻逼，不知道冤有头债有主………吗？</a>
 </h2>
@@ -66,7 +72,7 @@
 </h2>
 <p>…… //@云五:[挖鼻屎] //@开水族馆的生物男:求证//@无穷的探索:[吃惊] //@大圣统计:报道称，袭击发生在9日17日深夜至18日凌晨，首先遭到袭击的是一处派出所，5名警察被杀害。随后，这些袭击者穿上警服来到煤矿公司的员工宿舍，杀死了正在宿舍休息的40多名员工，据悉死者大多数是来自四川的民工。<br><br>RE: http://t.cn/R2FolLG媒体新疆一煤矿两周前曾遭暴袭50人死亡/a-18752659<br><img src="http://ww3.sinaimg.cn/large/6bf51574jw1ewltp3l89sj20jy0cudib.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3893416645494746" target="freeweibo-mirror">//@戴圩://@河南渔歌子2008:求真相！//@青独狼_…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3893380180663639" target="freeweibo-mirror">不用扣字眼。是新中国。新政权。 //@董洁林://@老芋头:…</a>
 </h2>
 <p>不用扣字眼。是新中国。新政权。 //@董洁林://@老芋头: 转发微博</p>
-<p>
-	<small> ============== 9小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3893379089545209" target="freeweibo-mirror">毛主席说的很清楚：中华人民共和国中央人民政府成立了！</a>
-</h2>
-<p>毛主席说的很清楚：中华人民共和国中央人民政府成立了！</p>
 <p>
 	<small> ============== 9小时前</small>
 </p>
