@@ -66,19 +66,19 @@
 </h2>
 <p>依法治国何时才能实现！[心] //@别致大视野:自家子民有撒不见？相比之下，教皇大度的多！//@郁闷的东北虎:访民在美国做中国梦。<br><br>RE: 没有共同的诉求，却有着共同的愿望踏上激昂维权路，期盼着政府倾听民众的心声：依法治国，中国梦！ http://t.cn/RypeXkm .</p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3893606656173002" target="freeweibo-mirror">优秀共产党员！</a>
 </h2>
 <p>优秀共产党员！<br><br>RE: 一个社会如果只能靠删除不同看法去维护统一思想的宣传，那就证明这个思想宣传已经到了弱不经风的程度了。</p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3893606547028652" target="freeweibo-mirror">SPAM 知足吧，只删除没杀头已是大大进步了。感恩吧！</a>
 </h2>
 <p>SPAM 知足吧，只删除没杀头已是大大进步了。感恩吧！<br><br>RE: 一个社会如果只能靠删除不同看法去维护统一思想的宣传，那就证明这个思想宣传已经到了弱不经风的程度了。</p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3893603355428508" target="freeweibo-mirror">SPAM 404</a>
 </h2>
