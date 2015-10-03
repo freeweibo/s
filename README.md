@@ -60,7 +60,7 @@
 </h2>
 <p>SPAM 这不是近日的图，多年前的图了好么？长期看西西人体的表示路过<br><br>RE: 【活得像个段子】近日，网上“才女雅芬作画全过程”，美女画家展露在众目睽睽下，被“欣赏”，是让观众看画还是看人?用裸体来吸引人眼球，是艺术还是想一裸成名?<br><img src="http://ww4.sinaimg.cn/large/7b94883fjw1ewnzf84cxoj20dm0kf40h.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3893884554080425" target="freeweibo-mirror">【活得像个段子】近日，网上“才女雅芬作画全过程”，美女画家展…</a>
 </h2>
