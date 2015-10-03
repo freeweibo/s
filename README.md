@@ -78,7 +78,7 @@
 </h2>
 <p>发表了一篇转载博文《[转载]平反薄熙来，才能解乱局》http://t.cn/RyW3iwT</p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3893865902208471" target="freeweibo-mirror">SPAM 好像没贴预售链接。。一个天猫的：http://t.…</a>
 </h2>
@@ -108,7 +108,7 @@
 </h2>
 <p>我以前称他习大大，之后称他贵党习主席。现在，包总为嘛不来新浪开微博?<br><img src="http://ww2.sinaimg.cn/large/991f23b1gw1ewnrmbm744j20c80lqacl.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3893813913058529" target="freeweibo-mirror">报告政府！抓到一群违法翻墙去Facebook点赞的[抓狂]证…</a>
 </h2>
