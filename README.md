@@ -24,7 +24,7 @@
 </h2>
 <p>SPAM 正能量传给大家！@lanlan晶灵</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3893942401983206" target="freeweibo-mirror">[太开心]//@祁祁麟: 一群连衣食住行，拉屎放屁都要监督规…</a>
 </h2>
@@ -114,7 +114,7 @@
 </h2>
 <p>报告政府！抓到一群违法翻墙去Facebook点赞的[抓狂]证据确凿，还敢抵赖？<br><img src="http://ww1.sinaimg.cn/large/763fb12bjw1ewnrgh1ukfj20oz18gtgb.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3893811572824828" target="freeweibo-mirror">不会翻墙真是耽误事儿。@奥地利驻华使馆 ，你们赶紧把护照还给…</a>
 </h2>
