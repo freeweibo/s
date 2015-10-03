@@ -24,7 +24,7 @@
 </h2>
 <p>//@小桥流水li://@爱死911://@殷泽君: 转发微博<br><br>RE: 发表了一篇转载博文《[转载]平反薄熙来，才能解乱局》http://t.cn/RyW3iwT</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3893896876452213" target="freeweibo-mirror">王书记说，治标为治本争取时间，只能拭目以待。 //@钱中华:…</a>
 </h2>
