@@ -56,11 +56,17 @@
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3893981445991187" target="freeweibo-mirror">【大河有水小河满？】我们注意到这次访美演讲中又引用了“大河有…</a>
+</h2>
+<p>【大河有水小河满？】我们注意到这次访美演讲中又引用了“大河有水小河满“这句中国”谚语“。这句话原本是1956年全国“合作化”以后，在当时的环境下产生的。对于这句话，稍微有点常识就可以明白，应该是“小河有水大河满”！你可以看看祖国大地上的任何一条大河，哪一条不是小河的水流进了大河里？<br><img src="http://ww3.sinaimg.cn/large/562f4083jw1ewoaon1frlj20sg0fmjtg.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3893959288039955" target="freeweibo-mirror">//@深南-大盗:但知道是从哪里没的。</a>
 </h2>
 <p>//@深南-大盗:但知道是从哪里没的。<br><br>RE: 康有为的墓被掘、颅骨被放在一个翻斗车里游街示众；孔子墓被炸药炸开，骨骇示众后被焚毁；张之洞墓被掘，尚未腐烂的尸体被弃，任由顽童踢弄拨耍；被掘墓的还有舜帝、炎帝、岳飞、包拯、张居正、霍去病、王羲之、蒲松龄、丁汝昌.......我不知道中国人的道德是从哪来的、但知道是从哪里没的。——袁腾飞<br><img src="http://ww2.sinaimg.cn/large/47dc414bjw1ewo4032qs3j20bo09c74m.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3893950521919356" target="freeweibo-mirror">SPAM 正能量传给大家！@lanlan晶灵</a>
 </h2>
@@ -90,7 +96,7 @@
 </h2>
 <p>404 不存在網的大大粉絲在東南亞買的僵粉[doge][挖鼻] @好火药<br><img src="http://ww4.sinaimg.cn/large/ca69b570jw1ewo4n9ilkej20hs0ds771.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3893923246146325" target="freeweibo-mirror">康有为的墓被掘、颅骨被放在一个翻斗车里游街示众；孔子墓被炸药…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3893884293432215" target="freeweibo-mirror">我正在申请微博认证，认证信息为“淘宝全场特卖汇官方微博店长何…</a>
 </h2>
 <p>我正在申请微博认证，认证信息为“淘宝全场特卖汇官方微博店长何军”。请@电商轩轩 @她的文学笔记 转发此条微博帮我确认身份，多谢！！ http://t.cn/zOdcw5h</p>
-<p>
-	<small> ============== 9小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3893883530051424" target="freeweibo-mirror">发表了一篇转载博文《[转载]平反薄熙来，才能解乱局》http…</a>
-</h2>
-<p>发表了一篇转载博文《[转载]平反薄熙来，才能解乱局》http://t.cn/RyW3iwT</p>
 <p>
 	<small> ============== 9小时前</small>
 </p>
