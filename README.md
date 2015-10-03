@@ -26,6 +26,12 @@
 <p>
 	<small> ============== 1小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3894015424396811" target="freeweibo-mirror">天津大爆zha从官媒里消失了，但真相还是无从得知；...其实…</a>
+</h2>
+<p>天津大爆zha从官媒里消失了，但真相还是无从得知；...其实我就想问问：这书哪能买到？<br><img src="http://ww2.sinaimg.cn/large/0060nU4Mgw1ewoelnqfguj30ai0ejaap.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3894010307879935" target="freeweibo-mirror">[偷笑] //@廖睿:文革时，这应等同于收听敌台吧？[哈哈]</a>
 </h2>
 <p>[偷笑] //@廖睿:文革时，这应等同于收听敌台吧？[哈哈]<br><br>RE: 过去：公社以上干部才可以看《参考消息》，省部级以上干部才可以看《金瓶梅》，现在，常委以上才可以开脸书。<br><img src="http://ww4.sinaimg.cn/large/48729c31gw1ewnwxel8jgj208c073t8t.jpg"></p>
@@ -48,13 +54,13 @@
 </h2>
 <p>只要是人，就会有错的时候。关键问题是：没有人提出来！//@坎坷足迹: 为了证明自己的歪理，不惜篡改客观规律。 欺负我们这些没有看过水、没有见过河的……<br><br>RE: 【大河有水小河满？】我们注意到这次访美演讲中又引用了“大河有水小河满“这句中国”谚语“。这句话原本是1956年全国“合作化”以后，在当时的环境下产生的。对于这句话，稍微有点常识就可以明白，应该是“小河有水大河满”！你可以看看祖国大地上的任何一条大河，哪一条不是小河的水流进了大河里？<br><img src="http://ww3.sinaimg.cn/large/562f4083jw1ewoaon1frlj20sg0fmjtg.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3894005660052898" target="freeweibo-mirror">令计划刚刚公布了 财产，你们还想怎么样？？？太坏了你们！！！…</a>
 </h2>
 <p>令计划刚刚公布了 财产，你们还想怎么样？？？太坏了你们！！！//@私家野史: [哈哈]//@偃月刀之舞: //@楊康令: 嗯，请共青团中央的领导也公开财产吧。</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3894004577793526" target="freeweibo-mirror">SPAM “李嘉诚哪里跑!”</a>
 </h2>
@@ -102,13 +108,13 @@
 </h2>
 <p>这样的新闻，在黑谁呢？我想对李总理说，不怕狼一样的对手，就怕猪在给你打下手。<br><img src="http://ww4.sinaimg.cn/large/6cfd6289gw1ewobm66n98j20f00qo41f.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3893990052913916" target="freeweibo-mirror">这些场景即使在最初香港回归的日子不曾见过，如今却轮番上演，愈…</a>
 </h2>
 <p>这些场景即使在最初香港回归的日子不曾见过，如今却轮番上演，愈演愈烈。才18年，就要让香港山河一片红？<br><img src="http://ww3.sinaimg.cn/large/c57c1a49jw1ewoboq3osqj209c0gmq4f.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3893987288822320" target="freeweibo-mirror">SPAM ? //@凌高ZXJ:[哈哈][哈哈][哈哈] /…</a>
 </h2>
@@ -133,12 +139,6 @@
 <p>SPAM 正能量传给大家！@lanlan晶灵</p>
 <p>
 	<small> ============== 7小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3893942401983206" target="freeweibo-mirror">[太开心]//@祁祁麟: 一群连衣食住行，拉屎放屁都要监督规…</a>
-</h2>
-<p>[太开心]//@祁祁麟: 一群连衣食住行，拉屎放屁都要监督规范的货，居然是10亿人的主宰，笑话还是悲剧？</p>
-<p>
-	<small> ============== 8小时前</small>
 </p>
 <table>
     <tr>
