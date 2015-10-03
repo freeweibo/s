@@ -36,7 +36,7 @@
 </h2>
 <p>SPAM 《大话西游》明明是喜剧，再看的时候却有悲伤，台词还是那么经典，人生百年，谁不曾大闹天宫，谁不曾头上紧箍，谁不曾爱上层楼，谁不曾孤单上路。<br><img src="http://ww3.sinaimg.cn/large/7e2c0387jw1ewne7t28n0j20go097jsp.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3893776865230066" target="freeweibo-mirror">[生病]</a>
 </h2>
@@ -72,7 +72,7 @@
 </h2>
 <p>天津爆炸过去了，死亡人数？悲剧原因？责任承担？……真相呢？ 真的假的？[吃惊][吃惊][吃惊]<br><img src="http://ww1.sinaimg.cn/large/7a8590bdjw1ewnkdl3irmj20ai0f8dh1.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3893660795998189" target="freeweibo-mirror">才注意到:两天前被抓获，现在是被炸死。到底是抓了还是炸死了？</a>
 </h2>
