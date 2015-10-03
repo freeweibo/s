@@ -54,13 +54,13 @@
 </h2>
 <p>【活得像个段子】近日，网上“才女雅芬作画全过程”，美女画家展露在众目睽睽下，被“欣赏”，是让观众看画还是看人?用裸体来吸引人眼球，是艺术还是想一裸成名?<br><img src="http://ww4.sinaimg.cn/large/7b94883fjw1ewnzf84cxoj20dm0kf40h.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3893884293432215" target="freeweibo-mirror">我正在申请微博认证，认证信息为“淘宝全场特卖汇官方微博店长何…</a>
 </h2>
 <p>我正在申请微博认证，认证信息为“淘宝全场特卖汇官方微博店长何军”。请@电商轩轩 @她的文学笔记 转发此条微博帮我确认身份，多谢！！ http://t.cn/zOdcw5h</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3893883530051424" target="freeweibo-mirror">发表了一篇转载博文《[转载]平反薄熙来，才能解乱局》http…</a>
 </h2>
@@ -98,6 +98,12 @@
 <p>
 	<small> ============== 10小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3893813913058529" target="freeweibo-mirror">报告政府！抓到一群违法翻墙去Facebook点赞的[抓狂]证…</a>
+</h2>
+<p>报告政府！抓到一群违法翻墙去Facebook点赞的[抓狂]证据确凿，还敢抵赖？<br><img src="http://ww1.sinaimg.cn/large/763fb12bjw1ewnrgh1ukfj20oz18gtgb.jpg"></p>
+<p>
+	<small> ============== 10小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3893811572824828" target="freeweibo-mirror">不会翻墙真是耽误事儿。@奥地利驻华使馆 ，你们赶紧把护照还给…</a>
 </h2>
 <p>不会翻墙真是耽误事儿。@奥地利驻华使馆 ，你们赶紧把护照还给我，我要出国给习总推特账号点赞去。</p>
@@ -114,7 +120,7 @@
 </h2>
 <p>赶紧掰了吧，这头猪杀吃得了 //@琢儿他爹:哦，那用鲜血和生命凝结的牢不可破的友谊呢？<br><br>RE: 兄弟闹别扭——韩联社：朝鲜已邀部分非洲和南美国家领导人参加10月10日平壤庆党建70周年大阅兵，被视为朝鲜“亲密盟友”的中国却不在受邀名单之列。金正恩已指示要把10月的阅兵式办得比北京的规模还要大。早前有韩媒披露，金正恩曾提参加北京阅兵仪式上坐在习近平身边的“最高待遇”条件，被拒。[哈哈]</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3893784057813184" target="freeweibo-mirror">[吃惊]求谣言</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3893782560642482" target="freeweibo-mirror">SPAM 《大话西游》明明是喜剧，再看的时候却有悲伤，台词还…</a>
 </h2>
 <p>SPAM 《大话西游》明明是喜剧，再看的时候却有悲伤，台词还是那么经典，人生百年，谁不曾大闹天宫，谁不曾头上紧箍，谁不曾爱上层楼，谁不曾孤单上路。<br><img src="http://ww3.sinaimg.cn/large/7e2c0387jw1ewne7t28n0j20go097jsp.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3893776865230066" target="freeweibo-mirror">[生病]</a>
-</h2>
-<p>[生病]<br><br>RE: 天津爆炸过去了，死亡人数？悲剧原因？责任承担？……真相呢？ 真的假的？[吃惊][吃惊][吃惊]<br><img src="http://ww1.sinaimg.cn/large/7a8590bdjw1ewnkdl3irmj20ai0f8dh1.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
