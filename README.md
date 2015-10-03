@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3894038174841777" target="freeweibo-mirror">SPAM  //@书法一孔A://@石下顽草11世://@水…</a>
+</h2>
+<p>SPAM  //@书法一孔A://@石下顽草11世://@水木双刀_:[话筒][话筒][话筒]//@地瓜報社:谁有，卖我一本<br><br>RE: 天津大爆zha从官媒里消失了，但真相还是无从得知；...其实我就想问问：这书哪能买到？<br><img src="http://ww2.sinaimg.cn/large/0060nU4Mgw1ewoelnqfguj30ai0ejaap.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3894010307879935" target="freeweibo-mirror">[偷笑] //@廖睿:文革时，这应等同于收听敌台吧？[哈哈]</a>
 </h2>
 <p>[偷笑] //@廖睿:文革时，这应等同于收听敌台吧？[哈哈]<br><br>RE: 过去：公社以上干部才可以看《参考消息》，省部级以上干部才可以看《金瓶梅》，现在，常委以上才可以开脸书。<br><img src="http://ww4.sinaimg.cn/large/48729c31gw1ewnwxel8jgj208c073t8t.jpg"></p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3893942401983206" target="freeweibo-mirror">[太开心]//@祁祁麟: 一群连衣食住行，拉屎放屁都要监督规…</a>
 </h2>
 <p>[太开心]//@祁祁麟: 一群连衣食住行，拉屎放屁都要监督规范的货，居然是10亿人的主宰，笑话还是悲剧？</p>
-<p>
-	<small> ============== 7小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3893937581930355" target="freeweibo-mirror">[伤心] //@草民杜楠02:转发微博</a>
-</h2>
-<p>[伤心] //@草民杜楠02:转发微博<br><br>RE: #往事杂忆#张震老将军前段日子去世，方知其儿子女婿满门将军，红色基因杠杠滴。十多年前我曾和一位管文艺的红二餐叙，白白净净，文弱书生一枚。前两年一军中朋友聊起他，告我当上军种主官，授上将衔了。我听了吓一跳，脱口而出: 能打仗吗？朋友嘿嘿一笑: 操那么多心干嘛！我无言，不过还是为领导操心！</p>
 <p>
 	<small> ============== 7小时前</small>
 </p>
