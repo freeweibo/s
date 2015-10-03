@@ -80,6 +80,12 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3893990066096136" target="freeweibo-mirror">这样的新闻，在黑谁呢？我想对李总理说，不怕狼一样的对手，就怕…</a>
+</h2>
+<p>这样的新闻，在黑谁呢？我想对李总理说，不怕狼一样的对手，就怕猪在给你打下手。<br><img src="http://ww4.sinaimg.cn/large/6cfd6289gw1ewobm66n98j20f00qo41f.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3893987288822320" target="freeweibo-mirror">SPAM ? //@凌高ZXJ:[哈哈][哈哈][哈哈] /…</a>
 </h2>
 <p>SPAM ? //@凌高ZXJ:[哈哈][哈哈][哈哈] //@ark的关注:大大居然也深谙买粉之道？<br><br>RE: 404 不存在網的大大粉絲在東南亞買的僵粉[doge][挖鼻] @好火药<br><img src="http://ww4.sinaimg.cn/large/ca69b570jw1ewo4n9ilkej20hs0ds771.jpg"></p>
@@ -114,7 +120,7 @@
 </h2>
 <p>[伤心] //@草民杜楠02:转发微博<br><br>RE: #往事杂忆#张震老将军前段日子去世，方知其儿子女婿满门将军，红色基因杠杠滴。十多年前我曾和一位管文艺的红二餐叙，白白净净，文弱书生一枚。前两年一军中朋友聊起他，告我当上军种主官，授上将衔了。我听了吓一跳，脱口而出: 能打仗吗？朋友嘿嘿一笑: 操那么多心干嘛！我无言，不过还是为领导操心！</p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3893935132865144" target="freeweibo-mirror">天堂还是地狱？我相信敬爱的大个儿律师，已经见过了。向浦夫人致…</a>
 </h2>
@@ -133,12 +139,6 @@
 <p>康有为的墓被掘、颅骨被放在一个翻斗车里游街示众；孔子墓被炸药炸开，骨骇示众后被焚毁；张之洞墓被掘，尚未腐烂的尸体被弃，任由顽童踢弄拨耍；被掘墓的还有舜帝、炎帝、岳飞、包拯、张居正、霍去病、王羲之、蒲松龄、丁汝昌.......我不知道中国人的道德是从哪来的、但知道是从哪里没的。——袁腾飞<br><img src="http://ww2.sinaimg.cn/large/47dc414bjw1ewo4032qs3j20bo09c74m.jpg"></p>
 <p>
 	<small> ============== 7小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3893905566777858" target="freeweibo-mirror">//@徐昕:很想去给习主席点赞 //@早睡早起的老头://@…</a>
-</h2>
-<p>//@徐昕:很想去给习主席点赞 //@早睡早起的老头://@瓦良格号归来:[汗]//@彭园v:[哈哈]//@斯韦爵:[哈哈] //@纪昀:[哈哈]//@杜芝富:[哈哈] //@陆伟民律师:[哈哈] //@纯真wb:[哈哈] //@仍然-即管笑:[哈哈]//@地瓜報社:[哈哈]<br><br>RE: 报告政府！抓到一群违法翻墙去Facebook点赞的[抓狂]证据确凿，还敢抵赖？<br><img src="http://ww1.sinaimg.cn/large/763fb12bjw1ewnrgh1ukfj20oz18gtgb.jpg"></p>
-<p>
-	<small> ============== 9小时前</small>
 </p>
 <table>
     <tr>
