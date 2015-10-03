@@ -50,6 +50,12 @@
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3893883530051424" target="freeweibo-mirror">发表了一篇转载博文《[转载]平反薄熙来，才能解乱局》http…</a>
+</h2>
+<p>发表了一篇转载博文《[转载]平反薄熙来，才能解乱局》http://t.cn/RyW3iwT</p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3893865902208471" target="freeweibo-mirror">SPAM 好像没贴预售链接。。一个天猫的：http://t.…</a>
 </h2>
 <p>SPAM 好像没贴预售链接。。一个天猫的：http://t.cn/RyWE8VD 一个亚马逊的：http://t.cn/RySMFNk</p>
@@ -60,7 +66,7 @@
 </h2>
 <p>SPAM 大家好 请支持第一位 好听到耳朵怀孕 //@慕寒mio:[去旅行]</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3893826340834236" target="freeweibo-mirror">只许官家放火，不许百姓点灯。//@盛氏可以: 啥时候老百姓也…</a>
 </h2>
@@ -90,13 +96,13 @@
 </h2>
 <p>他是怎么翻墙的？</p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3893786348262761" target="freeweibo-mirror">赶紧掰了吧，这头猪杀吃得了 //@琢儿他爹:哦，那用鲜血和生…</a>
 </h2>
 <p>赶紧掰了吧，这头猪杀吃得了 //@琢儿他爹:哦，那用鲜血和生命凝结的牢不可破的友谊呢？<br><br>RE: 兄弟闹别扭——韩联社：朝鲜已邀部分非洲和南美国家领导人参加10月10日平壤庆党建70周年大阅兵，被视为朝鲜“亲密盟友”的中国却不在受邀名单之列。金正恩已指示要把10月的阅兵式办得比北京的规模还要大。早前有韩媒披露，金正恩曾提参加北京阅兵仪式上坐在习近平身边的“最高待遇”条件，被拒。[哈哈]</p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3893784057813184" target="freeweibo-mirror">[吃惊]求谣言</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3893775653193208" target="freeweibo-mirror">确实奇怪。[疑问]</a>
 </h2>
 <p>确实奇怪。[疑问]<br><br>RE: 才注意到:两天前被抓获，现在是被炸死。到底是抓了还是炸死了？<br><img src="http://ww2.sinaimg.cn/large/7cc9aaf1gw1ewn9v9h7z8j20c80idtab.jpg"></p>
-<p>
-	<small> ============== 10小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3893772628771550" target="freeweibo-mirror">[汗]</a>
-</h2>
-<p>[汗]<br><br>RE: 天津爆炸过去了，死亡人数？悲剧原因？责任承担？……真相呢？ 真的假的？[吃惊][吃惊][吃惊]<br><img src="http://ww1.sinaimg.cn/large/7a8590bdjw1ewnkdl3irmj20ai0f8dh1.jpg"></p>
 <p>
 	<small> ============== 10小时前</small>
 </p>
