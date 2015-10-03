@@ -90,7 +90,7 @@
 </h2>
 <p>SPAM 404<br><br>RE: 一个社会如果只能靠删除不同看法去维护统一思想的宣传，那就证明这个思想宣传已经到了弱不经风的程度了。</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3893602788587183" target="freeweibo-mirror">SPAM →_→//@绝稷之尘：任叔，我们的政党进步了啊，以…</a>
 </h2>
