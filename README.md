@@ -54,7 +54,25 @@
 </h2>
 <p>[伤心] //@草民杜楠02:转发微博<br><br>RE: #往事杂忆#张震老将军前段日子去世，方知其儿子女婿满门将军，红色基因杠杠滴。十多年前我曾和一位管文艺的红二餐叙，白白净净，文弱书生一枚。前两年一军中朋友聊起他，告我当上军种主官，授上将衔了。我听了吓一跳，脱口而出: 能打仗吗？朋友嘿嘿一笑: 操那么多心干嘛！我无言，不过还是为领导操心！</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3893935132865144" target="freeweibo-mirror">天堂还是地狱？我相信敬爱的大个儿律师，已经见过了。向浦夫人致…</a>
+</h2>
+<p>天堂还是地狱？我相信敬爱的大个儿律师，已经见过了。向浦夫人致敬。[good]<br><img src="http://ww2.sinaimg.cn/large/4f378a0fgw1ewo5b7htahj20c86441kx.jpg"></p>
+<p>
+	<small> ============== 6小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3893928920989649" target="freeweibo-mirror">404 不存在網的大大粉絲在東南亞買的僵粉[doge][挖鼻…</a>
+</h2>
+<p>404 不存在網的大大粉絲在東南亞買的僵粉[doge][挖鼻] @好火药<br><img src="http://ww4.sinaimg.cn/large/ca69b570jw1ewo4n9ilkej20hs0ds771.jpg"></p>
+<p>
+	<small> ============== 6小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3893923246146325" target="freeweibo-mirror">康有为的墓被掘、颅骨被放在一个翻斗车里游街示众；孔子墓被炸药…</a>
+</h2>
+<p>康有为的墓被掘、颅骨被放在一个翻斗车里游街示众；孔子墓被炸药炸开，骨骇示众后被焚毁；张之洞墓被掘，尚未腐烂的尸体被弃，任由顽童踢弄拨耍；被掘墓的还有舜帝、炎帝、岳飞、包拯、张居正、霍去病、王羲之、蒲松龄、丁汝昌.......我不知道中国人的道德是从哪来的、但知道是从哪里没的。——袁腾飞<br><img src="http://ww2.sinaimg.cn/large/47dc414bjw1ewo4032qs3j20bo09c74m.jpg"></p>
+<p>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3893905566777858" target="freeweibo-mirror">//@徐昕:很想去给习主席点赞 //@早睡早起的老头://@…</a>
 </h2>
@@ -108,7 +126,7 @@
 </h2>
 <p>SPAM 大家好 请支持第一位 好听到耳朵怀孕 //@慕寒mio:[去旅行]</p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3893826340834236" target="freeweibo-mirror">只许官家放火，不许百姓点灯。//@盛氏可以: 啥时候老百姓也…</a>
 </h2>
@@ -119,24 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3893821077302960" target="freeweibo-mirror">有浪了还要什么脸[挖鼻]</a>
 </h2>
 <p>有浪了还要什么脸[挖鼻]<br><br>RE: 我以前称他习大大，之后称他贵党习主席。现在，包总为嘛不来新浪开微博?<br><img src="http://ww2.sinaimg.cn/large/991f23b1gw1ewnrmbm744j20c80lqacl.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3893815335425620" target="freeweibo-mirror">我以前称他习大大，之后称他贵党习主席。现在，包总为嘛不来新浪…</a>
-</h2>
-<p>我以前称他习大大，之后称他贵党习主席。现在，包总为嘛不来新浪开微博?<br><img src="http://ww2.sinaimg.cn/large/991f23b1gw1ewnrmbm744j20c80lqacl.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3893813913058529" target="freeweibo-mirror">报告政府！抓到一群违法翻墙去Facebook点赞的[抓狂]证…</a>
-</h2>
-<p>报告政府！抓到一群违法翻墙去Facebook点赞的[抓狂]证据确凿，还敢抵赖？<br><img src="http://ww1.sinaimg.cn/large/763fb12bjw1ewnrgh1ukfj20oz18gtgb.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3893811572824828" target="freeweibo-mirror">不会翻墙真是耽误事儿。@奥地利驻华使馆 ，你们赶紧把护照还给…</a>
-</h2>
-<p>不会翻墙真是耽误事儿。@奥地利驻华使馆 ，你们赶紧把护照还给我，我要出国给习总推特账号点赞去。</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
