@@ -32,9 +32,27 @@
 <p>
 	<small> ============== 1小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3893776865230066" target="freeweibo-mirror">[生病]</a>
+</h2>
+<p>[生病]<br><br>RE: 天津爆炸过去了，死亡人数？悲剧原因？责任承担？……真相呢？ 真的假的？[吃惊][吃惊][吃惊]<br><img src="http://ww1.sinaimg.cn/large/7a8590bdjw1ewnkdl3irmj20ai0f8dh1.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3893776051467936" target="freeweibo-mirror">//@微笑类星体: 抓获以后，把他炸死了。[嘻嘻]//@淮安…</a>
+</h2>
+<p>//@微笑类星体: 抓获以后，把他炸死了。[嘻嘻]//@淮安王志龙: //@南通市陈二://@旺旺1658:？//@亲心港湾:转发微博<br><br>RE: 才注意到:两天前被抓获，现在是被炸死。到底是抓了还是炸死了？<br><img src="http://ww2.sinaimg.cn/large/7cc9aaf1gw1ewn9v9h7z8j20c80idtab.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3893775653193208" target="freeweibo-mirror">确实奇怪。[疑问]</a>
 </h2>
 <p>确实奇怪。[疑问]<br><br>RE: 才注意到:两天前被抓获，现在是被炸死。到底是抓了还是炸死了？<br><img src="http://ww2.sinaimg.cn/large/7cc9aaf1gw1ewn9v9h7z8j20c80idtab.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3893772628771550" target="freeweibo-mirror">[汗]</a>
+</h2>
+<p>[汗]<br><br>RE: 天津爆炸过去了，死亡人数？悲剧原因？责任承担？……真相呢？ 真的假的？[吃惊][吃惊][吃惊]<br><img src="http://ww1.sinaimg.cn/large/7a8590bdjw1ewnkdl3irmj20ai0f8dh1.jpg"></p>
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
@@ -48,7 +66,7 @@
 </h2>
 <p>才注意到:两天前被抓获，现在是被炸死。到底是抓了还是炸死了？<br><img src="http://ww2.sinaimg.cn/large/7cc9aaf1gw1ewn9v9h7z8j20c80idtab.jpg"></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3893634363707894" target="freeweibo-mirror">@搬山不止: 批评的目的并不是摧毁，而是希望改进！</a>
 </h2>
@@ -119,24 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3893602788587183" target="freeweibo-mirror">SPAM →_→//@绝稷之尘：任叔，我们的政党进步了啊，以…</a>
 </h2>
 <p>SPAM →_→//@绝稷之尘：任叔，我们的政党进步了啊，以前你这样的估计早就让带走批斗了，现在只删除你的微博。这是质的变化啊，要有信心！<br><br>RE: 一个社会如果只能靠删除不同看法去维护统一思想的宣传，那就证明这个思想宣传已经到了弱不经风的程度了。</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3893598250170242" target="freeweibo-mirror">一个社会如果只能靠删除不同看法去维护统一思想的宣传，那就证明…</a>
-</h2>
-<p>一个社会如果只能靠删除不同看法去维护统一思想的宣传，那就证明这个思想宣传已经到了弱不经风的程度了。</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3893590185092839" target="freeweibo-mirror">//@谢流石: //@深山樵夫W://@张荣奎: [赞] /…</a>
-</h2>
-<p>//@谢流石: //@深山樵夫W://@张荣奎: [赞] //@Ditempatlain:Repost<br><br>RE: 有人受皇权的奴化教育太深，自己做了奴隶而不自知，总以为为国牺牲永远是对的。殊不知代表国家的那些政治家和外交家有自己的职业利益，他们也受皇权至上的奴化教育，做事并不以百姓的利益为首，甚至侵犯人民的根本利益。当有人指出这一点时，往往还被认为是汉奸、卖国贼，由此可以看出奴化教育的危害。</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3893588645525011" target="freeweibo-mirror">SPAM →_→笑死我了//@大地飞鹰-10:大撒币你摊上事…</a>
-</h2>
-<p>SPAM →_→笑死我了//@大地飞鹰-10:大撒币你摊上事了！[哈哈]→_→ //@第一号大撒币:我去！<br><br>RE: 你摊上事了，摊上大事了！[哈哈]<br><img src="http://ww2.sinaimg.cn/large/006eEhN7jw1ewmx9vjav3j30ez0qo40p.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
