@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3893884293432215" target="freeweibo-mirror">我正在申请微博认证，认证信息为“淘宝全场特卖汇官方微博店长何…</a>
+</h2>
+<p>我正在申请微博认证，认证信息为“淘宝全场特卖汇官方微博店长何军”。请@电商轩轩 @她的文学笔记 转发此条微博帮我确认身份，多谢！！ http://t.cn/zOdcw5h</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3893865902208471" target="freeweibo-mirror">SPAM 好像没贴预售链接。。一个天猫的：http://t.…</a>
 </h2>
 <p>SPAM 好像没贴预售链接。。一个天猫的：http://t.cn/RyWE8VD 一个亚马逊的：http://t.cn/RySMFNk</p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3893634363707894" target="freeweibo-mirror">@搬山不止: 批评的目的并不是摧毁，而是希望改进！</a>
 </h2>
 <p>@搬山不止: 批评的目的并不是摧毁，而是希望改进！<br><br>RE: 【美国记者的疑惑】据说，有个美国记者在中国看完“雷锋事迹图片展”，问了组织者三个问题：1.当时条件艰苦，为什么雷锋会留下这么多照片？2. 雷锋照片中有很多是他做好事时候拍下的，难道他做好事时，身边还跟着一个摄影师？3. 你们说雷锋做好事从来不留名，那他这些事迹你们是怎么知道的？<br><img src="http://ww3.sinaimg.cn/large/5e7e9712gw1ewmwekeux8j207l06o0sx.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3893624603147481" target="freeweibo-mirror">SPAM @惠多超划算</a>
-</h2>
-<p>SPAM @惠多超划算</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
