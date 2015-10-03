@@ -30,7 +30,7 @@
 </h2>
 <p>[吃惊]求谣言<br><br>RE: 天津爆炸过去了，死亡人数？悲剧原因？责任承担？……真相呢？ 真的假的？[吃惊][吃惊][吃惊]<br><img src="http://ww1.sinaimg.cn/large/7a8590bdjw1ewnkdl3irmj20ai0f8dh1.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3893782560642482" target="freeweibo-mirror">SPAM 《大话西游》明明是喜剧，再看的时候却有悲伤，台词还…</a>
 </h2>
