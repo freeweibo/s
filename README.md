@@ -30,7 +30,7 @@
 </h2>
 <p>天津大爆zha从官媒里消失了，但真相还是无从得知；...其实我就想问问：这书哪能买到？<br><img src="http://ww2.sinaimg.cn/large/0060nU4Mgw1ewoelnqfguj30ai0ejaap.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3894010307879935" target="freeweibo-mirror">[偷笑] //@廖睿:文革时，这应等同于收听敌台吧？[哈哈]</a>
 </h2>
