@@ -20,6 +20,18 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3893784057813184" target="freeweibo-mirror">[吃惊]求谣言</a>
+</h2>
+<p>[吃惊]求谣言<br><br>RE: 天津爆炸过去了，死亡人数？悲剧原因？责任承担？……真相呢？ 真的假的？[吃惊][吃惊][吃惊]<br><img src="http://ww1.sinaimg.cn/large/7a8590bdjw1ewnkdl3irmj20ai0f8dh1.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3893782560642482" target="freeweibo-mirror">SPAM 《大话西游》明明是喜剧，再看的时候却有悲伤，台词还…</a>
+</h2>
+<p>SPAM 《大话西游》明明是喜剧，再看的时候却有悲伤，台词还是那么经典，人生百年，谁不曾大闹天宫，谁不曾头上紧箍，谁不曾爱上层楼，谁不曾孤单上路。<br><img src="http://ww3.sinaimg.cn/large/7e2c0387jw1ewne7t28n0j20go097jsp.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3893775653193208" target="freeweibo-mirror">确实奇怪。[疑问]</a>
 </h2>
 <p>确实奇怪。[疑问]<br><br>RE: 才注意到:两天前被抓获，现在是被炸死。到底是抓了还是炸死了？<br><img src="http://ww2.sinaimg.cn/large/7cc9aaf1gw1ewn9v9h7z8j20c80idtab.jpg"></p>
@@ -125,18 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3893588645525011" target="freeweibo-mirror">SPAM →_→笑死我了//@大地飞鹰-10:大撒币你摊上事…</a>
 </h2>
 <p>SPAM →_→笑死我了//@大地飞鹰-10:大撒币你摊上事了！[哈哈]→_→ //@第一号大撒币:我去！<br><br>RE: 你摊上事了，摊上大事了！[哈哈]<br><img src="http://ww2.sinaimg.cn/large/006eEhN7jw1ewmx9vjav3j30ez0qo40p.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3893537369981250" target="freeweibo-mirror">“在你被警察带走的那一刻，我突然间变成了文盲。我不得不开始‘…</a>
-</h2>
-<p>“在你被警察带走的那一刻，我突然间变成了文盲。我不得不开始‘睁眼看世界’，为自己‘扫盲’。”在给丈夫的一封信中，她这样写到。躲在丈夫身后、不问世事的孟群，就这样开始和国家机器周旋。|  江雪：《一个妻子的这一年》。补充一句：鄙人曾与江雪同事过，跟优秀之人同事，乃人生履历上的荣耀。<br><img src="http://ww1.sinaimg.cn/large/9de5d34bjw1ewmvo29t54j20k00zk0tz.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3893518969661497" target="freeweibo-mirror">有人受皇权的奴化教育太深，自己做了奴隶而不自知，总以为为国牺…</a>
-</h2>
-<p>有人受皇权的奴化教育太深，自己做了奴隶而不自知，总以为为国牺牲永远是对的。殊不知代表国家的那些政治家和外交家有自己的职业利益，他们也受皇权至上的奴化教育，做事并不以百姓的利益为首，甚至侵犯人民的根本利益。当有人指出这一点时，往往还被认为是汉奸、卖国贼，由此可以看出奴化教育的危害。</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
