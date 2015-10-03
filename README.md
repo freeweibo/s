@@ -20,11 +20,23 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3894001067662714" target="freeweibo-mirror">回复@轩轩闱阁:扯，下岗两千万，但三亿农民却获得了打工机会，…</a>
+</h2>
+<p>回复@轩轩闱阁:扯，下岗两千万，但三亿农民却获得了打工机会，成为工人阶级！国企工人和官员一样，是特权阶层，本来就应该打破 //@轩轩闱阁:回复@鲍迪克:哪此下岗的是怎样度日的！所以工人阶级都视邓氏是共产党的叛徒！[太开心][太开心]</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3893987288822320" target="freeweibo-mirror">SPAM ? //@凌高ZXJ:[哈哈][哈哈][哈哈] /…</a>
 </h2>
 <p>SPAM ? //@凌高ZXJ:[哈哈][哈哈][哈哈] //@ark的关注:大大居然也深谙买粉之道？<br><br>RE: 404 不存在網的大大粉絲在東南亞買的僵粉[doge][挖鼻] @好火药<br><img src="http://ww4.sinaimg.cn/large/ca69b570jw1ewo4n9ilkej20hs0ds771.jpg"></p>
 <p>
 	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3893959288039955" target="freeweibo-mirror">//@深南-大盗:但知道是从哪里没的。</a>
+</h2>
+<p>//@深南-大盗:但知道是从哪里没的。<br><br>RE: 康有为的墓被掘、颅骨被放在一个翻斗车里游街示众；孔子墓被炸药炸开，骨骇示众后被焚毁；张之洞墓被掘，尚未腐烂的尸体被弃，任由顽童踢弄拨耍；被掘墓的还有舜帝、炎帝、岳飞、包拯、张居正、霍去病、王羲之、蒲松龄、丁汝昌.......我不知道中国人的道德是从哪来的、但知道是从哪里没的。——袁腾飞<br><img src="http://ww2.sinaimg.cn/large/47dc414bjw1ewo4032qs3j20bo09c74m.jpg"></p>
+<p>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3893950521919356" target="freeweibo-mirror">SPAM 正能量传给大家！@lanlan晶灵</a>
 </h2>
@@ -54,7 +66,7 @@
 </h2>
 <p>//@小桥流水li://@爱死911://@殷泽君: 转发微博<br><br>RE: 发表了一篇转载博文《[转载]平反薄熙来，才能解乱局》http://t.cn/RyW3iwT</p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3893896876452213" target="freeweibo-mirror">王书记说，治标为治本争取时间，只能拭目以待。 //@钱中华:…</a>
 </h2>
@@ -125,18 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3893811572824828" target="freeweibo-mirror">不会翻墙真是耽误事儿。@奥地利驻华使馆 ，你们赶紧把护照还给…</a>
 </h2>
 <p>不会翻墙真是耽误事儿。@奥地利驻华使馆 ，你们赶紧把护照还给我，我要出国给习总推特账号点赞去。</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3893801049796460" target="freeweibo-mirror">他是怎么翻墙的？</a>
-</h2>
-<p>他是怎么翻墙的？</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3893786348262761" target="freeweibo-mirror">赶紧掰了吧，这头猪杀吃得了 //@琢儿他爹:哦，那用鲜血和生…</a>
-</h2>
-<p>赶紧掰了吧，这头猪杀吃得了 //@琢儿他爹:哦，那用鲜血和生命凝结的牢不可破的友谊呢？<br><br>RE: 兄弟闹别扭——韩联社：朝鲜已邀部分非洲和南美国家领导人参加10月10日平壤庆党建70周年大阅兵，被视为朝鲜“亲密盟友”的中国却不在受邀名单之列。金正恩已指示要把10月的阅兵式办得比北京的规模还要大。早前有韩媒披露，金正恩曾提参加北京阅兵仪式上坐在习近平身边的“最高待遇”条件，被拒。[哈哈]</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
