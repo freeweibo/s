@@ -42,7 +42,7 @@
 </h2>
 <p>//@徐昕:很想去给习主席点赞 //@早睡早起的老头://@瓦良格号归来:[汗]//@彭园v:[哈哈]//@斯韦爵:[哈哈] //@纪昀:[哈哈]//@杜芝富:[哈哈] //@陆伟民律师:[哈哈] //@纯真wb:[哈哈] //@仍然-即管笑:[哈哈]//@地瓜報社:[哈哈]<br><br>RE: 报告政府！抓到一群违法翻墙去Facebook点赞的[抓狂]证据确凿，还敢抵赖？<br><img src="http://ww1.sinaimg.cn/large/763fb12bjw1ewnrgh1ukfj20oz18gtgb.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3893901444058516" target="freeweibo-mirror">//@小桥流水li://@爱死911://@殷泽君: 转发微…</a>
 </h2>
@@ -108,7 +108,7 @@
 </h2>
 <p>我以前称他习大大，之后称他贵党习主席。现在，包总为嘛不来新浪开微博?<br><img src="http://ww2.sinaimg.cn/large/991f23b1gw1ewnrmbm744j20c80lqacl.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3893813913058529" target="freeweibo-mirror">报告政府！抓到一群违法翻墙去Facebook点赞的[抓狂]证…</a>
 </h2>
