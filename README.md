@@ -24,7 +24,7 @@
 </h2>
 <p>只许官家放火，不许百姓点灯。//@盛氏可以: 啥时候老百姓也能有FB。[挖鼻]</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3893821077302960" target="freeweibo-mirror">有浪了还要什么脸[挖鼻]</a>
 </h2>
@@ -42,7 +42,7 @@
 </h2>
 <p>不会翻墙真是耽误事儿。@奥地利驻华使馆 ，你们赶紧把护照还给我，我要出国给习总推特账号点赞去。</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3893801049796460" target="freeweibo-mirror">他是怎么翻墙的？</a>
 </h2>
