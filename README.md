@@ -26,6 +26,12 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3893896876452213" target="freeweibo-mirror">王书记说，治标为治本争取时间，只能拭目以待。 //@钱中华:…</a>
+</h2>
+<p>王书记说，治标为治本争取时间，只能拭目以待。 //@钱中华:腐败的根源是集权；如果不破除集权，反腐能治本？<br><br>RE: 《争鸣》10月号：9月13日，以中纪委为首的七个部门召集320多名高官子女进京开会，设置3关防止他们外逃。中纪委宣布反腐进入新阶段。由中办国办下达通知，召集在经济、金融领域担任管理层的高层官员官二代子女、已退休离休高官官二代子女，即刻进京参会，三批人共有320多名。珊珊和红红子女已被内控。</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3893887862974512" target="freeweibo-mirror">SPAM 这不是近日的图，多年前的图了好么？长期看西西人体的…</a>
 </h2>
 <p>SPAM 这不是近日的图，多年前的图了好么？长期看西西人体的表示路过<br><br>RE: 【活得像个段子】近日，网上“才女雅芬作画全过程”，美女画家展露在众目睽睽下，被“欣赏”，是让观众看画还是看人?用裸体来吸引人眼球，是艺术还是想一裸成名?<br><img src="http://ww4.sinaimg.cn/large/7b94883fjw1ewnzf84cxoj20dm0kf40h.jpg"></p>
@@ -60,7 +66,7 @@
 </h2>
 <p>只许官家放火，不许百姓点灯。//@盛氏可以: 啥时候老百姓也能有FB。[挖鼻]</p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3893821077302960" target="freeweibo-mirror">有浪了还要什么脸[挖鼻]</a>
 </h2>
@@ -78,7 +84,7 @@
 </h2>
 <p>不会翻墙真是耽误事儿。@奥地利驻华使馆 ，你们赶紧把护照还给我，我要出国给习总推特账号点赞去。</p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3893801049796460" target="freeweibo-mirror">他是怎么翻墙的？</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3893772628771550" target="freeweibo-mirror">[汗]</a>
 </h2>
 <p>[汗]<br><br>RE: 天津爆炸过去了，死亡人数？悲剧原因？责任承担？……真相呢？ 真的假的？[吃惊][吃惊][吃惊]<br><img src="http://ww1.sinaimg.cn/large/7a8590bdjw1ewnkdl3irmj20ai0f8dh1.jpg"></p>
-<p>
-	<small> ============== 10小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3893769789097225" target="freeweibo-mirror">习近平童鞋在facebook上开了主页，为何不在中国的微博与…</a>
-</h2>
-<p>习近平童鞋在facebook上开了主页，为何不在中国的微博与微信上也开呢？<br><img src="http://ww1.sinaimg.cn/large/62f8add8jw1ewnmdvrkqfj20tr0twjx4.jpg"></p>
 <p>
 	<small> ============== 10小时前</small>
 </p>
