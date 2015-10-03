@@ -36,13 +36,13 @@
 </h2>
 <p>只要是人，就会有错的时候。关键问题是：没有人提出来！//@坎坷足迹: 为了证明自己的歪理，不惜篡改客观规律。 欺负我们这些没有看过水、没有见过河的……<br><br>RE: 【大河有水小河满？】我们注意到这次访美演讲中又引用了“大河有水小河满“这句中国”谚语“。这句话原本是1956年全国“合作化”以后，在当时的环境下产生的。对于这句话，稍微有点常识就可以明白，应该是“小河有水大河满”！你可以看看祖国大地上的任何一条大河，哪一条不是小河的水流进了大河里？<br><img src="http://ww3.sinaimg.cn/large/562f4083jw1ewoaon1frlj20sg0fmjtg.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3894005660052898" target="freeweibo-mirror">令计划刚刚公布了 财产，你们还想怎么样？？？太坏了你们！！！…</a>
 </h2>
 <p>令计划刚刚公布了 财产，你们还想怎么样？？？太坏了你们！！！//@私家野史: [哈哈]//@偃月刀之舞: //@楊康令: 嗯，请共青团中央的领导也公开财产吧。</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3894004577793526" target="freeweibo-mirror">SPAM “李嘉诚哪里跑!”</a>
 </h2>
@@ -90,7 +90,13 @@
 </h2>
 <p>这样的新闻，在黑谁呢？我想对李总理说，不怕狼一样的对手，就怕猪在给你打下手。<br><img src="http://ww4.sinaimg.cn/large/6cfd6289gw1ewobm66n98j20f00qo41f.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3893990052913916" target="freeweibo-mirror">这些场景即使在最初香港回归的日子不曾见过，如今却轮番上演，愈…</a>
+</h2>
+<p>这些场景即使在最初香港回归的日子不曾见过，如今却轮番上演，愈演愈烈。才18年，就要让香港山河一片红？<br><img src="http://ww3.sinaimg.cn/large/c57c1a49jw1ewoboq3osqj209c0gmq4f.jpg"></p>
+<p>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3893987288822320" target="freeweibo-mirror">SPAM ? //@凌高ZXJ:[哈哈][哈哈][哈哈] /…</a>
 </h2>
@@ -133,12 +139,6 @@
 <p>天堂还是地狱？我相信敬爱的大个儿律师，已经见过了。向浦夫人致敬。[good]<br><img src="http://ww2.sinaimg.cn/large/4f378a0fgw1ewo5b7htahj20c86441kx.jpg"></p>
 <p>
 	<small> ============== 7小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3893928920989649" target="freeweibo-mirror">404 不存在網的大大粉絲在東南亞買的僵粉[doge][挖鼻…</a>
-</h2>
-<p>404 不存在網的大大粉絲在東南亞買的僵粉[doge][挖鼻] @好火药<br><img src="http://ww4.sinaimg.cn/large/ca69b570jw1ewo4n9ilkej20hs0ds771.jpg"></p>
-<p>
-	<small> ============== 8小时前</small>
 </p>
 <table>
     <tr>
