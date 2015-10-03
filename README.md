@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3893775653193208" target="freeweibo-mirror">确实奇怪。[疑问]</a>
+</h2>
+<p>确实奇怪。[疑问]<br><br>RE: 才注意到:两天前被抓获，现在是被炸死。到底是抓了还是炸死了？<br><img src="http://ww2.sinaimg.cn/large/7cc9aaf1gw1ewn9v9h7z8j20c80idtab.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3893769789097225" target="freeweibo-mirror">习近平童鞋在facebook上开了主页，为何不在中国的微博与…</a>
 </h2>
 <p>习近平童鞋在facebook上开了主页，为何不在中国的微博与微信上也开呢？<br><img src="http://ww1.sinaimg.cn/large/62f8add8jw1ewnmdvrkqfj20tr0twjx4.jpg"></p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3893509968657170" target="freeweibo-mirror">一个值得思考的案例[思考]//@邱少言: [话筒]</a>
 </h2>
 <p>一个值得思考的案例[思考]//@邱少言: [话筒]<br><br>RE: “等到哪一天我变得疯狂，请记得我单纯时曾被你们当傻子一样耍。”“我杀人的时间快到了，是当地政府让我走这条死路。”据网民“心飞翔之六六大顺”在腾讯微博发出截图，以上是广西刚发生爆炸嫌犯韦某于2013年用网名“无奈的眼神”在腾讯发出的微博。“求证。[话筒][围观]</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3893507775247230" target="freeweibo-mirror">“等到哪一天我变得疯狂，请记得我单纯时曾被你们当傻子一样耍。…</a>
-</h2>
-<p>“等到哪一天我变得疯狂，请记得我单纯时曾被你们当傻子一样耍。”“我杀人的时间快到了，是当地政府让我走这条死路。”据网民“心飞翔之六六大顺”在腾讯微博发出截图，以上是广西刚发生爆炸嫌犯韦某于2013年用网名“无奈的眼神”在腾讯发出的微博。“求证。[话筒][围观]</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
