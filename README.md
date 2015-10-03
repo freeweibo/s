@@ -24,7 +24,7 @@
 </h2>
 <p>确实奇怪。[疑问]<br><br>RE: 才注意到:两天前被抓获，现在是被炸死。到底是抓了还是炸死了？<br><img src="http://ww2.sinaimg.cn/large/7cc9aaf1gw1ewn9v9h7z8j20c80idtab.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3893769789097225" target="freeweibo-mirror">习近平童鞋在facebook上开了主页，为何不在中国的微博与…</a>
 </h2>
