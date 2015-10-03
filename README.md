@@ -96,7 +96,7 @@
 </h2>
 <p>只许官家放火，不许百姓点灯。//@盛氏可以: 啥时候老百姓也能有FB。[挖鼻]</p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3893821077302960" target="freeweibo-mirror">有浪了还要什么脸[挖鼻]</a>
 </h2>
