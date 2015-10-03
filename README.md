@@ -26,6 +26,12 @@
 <p>
 	<small> ============== 1小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3893905566777858" target="freeweibo-mirror">//@徐昕:很想去给习主席点赞 //@早睡早起的老头://@…</a>
+</h2>
+<p>//@徐昕:很想去给习主席点赞 //@早睡早起的老头://@瓦良格号归来:[汗]//@彭园v:[哈哈]//@斯韦爵:[哈哈] //@纪昀:[哈哈]//@杜芝富:[哈哈] //@陆伟民律师:[哈哈] //@纯真wb:[哈哈] //@仍然-即管笑:[哈哈]//@地瓜報社:[哈哈]<br><br>RE: 报告政府！抓到一群违法翻墙去Facebook点赞的[抓狂]证据确凿，还敢抵赖？<br><img src="http://ww1.sinaimg.cn/large/763fb12bjw1ewnrgh1ukfj20oz18gtgb.jpg"></p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3893901444058516" target="freeweibo-mirror">//@小桥流水li://@爱死911://@殷泽君: 转发微…</a>
 </h2>
 <p>//@小桥流水li://@爱死911://@殷泽君: 转发微博<br><br>RE: 发表了一篇转载博文《[转载]平反薄熙来，才能解乱局》http://t.cn/RyW3iwT</p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3893776865230066" target="freeweibo-mirror">[生病]</a>
 </h2>
 <p>[生病]<br><br>RE: 天津爆炸过去了，死亡人数？悲剧原因？责任承担？……真相呢？ 真的假的？[吃惊][吃惊][吃惊]<br><img src="http://ww1.sinaimg.cn/large/7a8590bdjw1ewnkdl3irmj20ai0f8dh1.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3893776051467936" target="freeweibo-mirror">//@微笑类星体: 抓获以后，把他炸死了。[嘻嘻]//@淮安…</a>
-</h2>
-<p>//@微笑类星体: 抓获以后，把他炸死了。[嘻嘻]//@淮安王志龙: //@南通市陈二://@旺旺1658:？//@亲心港湾:转发微博<br><br>RE: 才注意到:两天前被抓获，现在是被炸死。到底是抓了还是炸死了？<br><img src="http://ww2.sinaimg.cn/large/7cc9aaf1gw1ewn9v9h7z8j20c80idtab.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
