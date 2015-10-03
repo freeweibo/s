@@ -30,7 +30,7 @@
 </h2>
 <p>[太开心]//@祁祁麟: 一群连衣食住行，拉屎放屁都要监督规范的货，居然是10亿人的主宰，笑话还是悲剧？</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3893937581930355" target="freeweibo-mirror">[伤心] //@草民杜楠02:转发微博</a>
 </h2>
@@ -54,7 +54,7 @@
 </h2>
 <p>王书记说，治标为治本争取时间，只能拭目以待。 //@钱中华:腐败的根源是集权；如果不破除集权，反腐能治本？<br><br>RE: 《争鸣》10月号：9月13日，以中纪委为首的七个部门召集320多名高官子女进京开会，设置3关防止他们外逃。中纪委宣布反腐进入新阶段。由中办国办下达通知，召集在经济、金融领域担任管理层的高层官员官二代子女、已退休离休高官官二代子女，即刻进京参会，三批人共有320多名。珊珊和红红子女已被内控。</p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3893887862974512" target="freeweibo-mirror">SPAM 这不是近日的图，多年前的图了好么？长期看西西人体的…</a>
 </h2>
@@ -102,7 +102,7 @@
 </h2>
 <p>有浪了还要什么脸[挖鼻]<br><br>RE: 我以前称他习大大，之后称他贵党习主席。现在，包总为嘛不来新浪开微博?<br><img src="http://ww2.sinaimg.cn/large/991f23b1gw1ewnrmbm744j20c80lqacl.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3893815335425620" target="freeweibo-mirror">我以前称他习大大，之后称他贵党习主席。现在，包总为嘛不来新浪…</a>
 </h2>
@@ -114,7 +114,7 @@
 </h2>
 <p>报告政府！抓到一群违法翻墙去Facebook点赞的[抓狂]证据确凿，还敢抵赖？<br><img src="http://ww1.sinaimg.cn/large/763fb12bjw1ewnrgh1ukfj20oz18gtgb.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3893811572824828" target="freeweibo-mirror">不会翻墙真是耽误事儿。@奥地利驻华使馆 ，你们赶紧把护照还给…</a>
 </h2>
