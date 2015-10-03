@@ -24,7 +24,7 @@
 </h2>
 <p>SPAM 正能量传给大家！@lanlan晶灵</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3893942401983206" target="freeweibo-mirror">[太开心]//@祁祁麟: 一群连衣食住行，拉屎放屁都要监督规…</a>
 </h2>
@@ -102,7 +102,7 @@
 </h2>
 <p>有浪了还要什么脸[挖鼻]<br><br>RE: 我以前称他习大大，之后称他贵党习主席。现在，包总为嘛不来新浪开微博?<br><img src="http://ww2.sinaimg.cn/large/991f23b1gw1ewnrmbm744j20c80lqacl.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3893815335425620" target="freeweibo-mirror">我以前称他习大大，之后称他贵党习主席。现在，包总为嘛不来新浪…</a>
 </h2>
