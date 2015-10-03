@@ -20,11 +20,17 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3894010307879935" target="freeweibo-mirror">[偷笑] //@廖睿:文革时，这应等同于收听敌台吧？[哈哈]</a>
+</h2>
+<p>[偷笑] //@廖睿:文革时，这应等同于收听敌台吧？[哈哈]<br><br>RE: 过去：公社以上干部才可以看《参考消息》，省部级以上干部才可以看《金瓶梅》，现在，常委以上才可以开脸书。<br><img src="http://ww4.sinaimg.cn/large/48729c31gw1ewnwxel8jgj208c073t8t.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3894006687309977" target="freeweibo-mirror">大官有钱，小官跟着发财。这样解读就对了。//@周难的微博: …</a>
 </h2>
 <p>大官有钱，小官跟着发财。这样解读就对了。//@周难的微博: 财厚发财了，大家也跟着发财？//@彭幼生: 右二错了，全国有很多人都知道小河有水大河满，至少我知道。//@龙洞池: 就是这样一句违背常识的话，所有媒体、全国上下，居然没有人质疑！@于建嵘 @崔永元 @任志强 @王小山 @袁立<br><br>RE: 【大河有水小河满？】我们注意到这次访美演讲中又引用了“大河有水小河满“这句中国”谚语“。这句话原本是1956年全国“合作化”以后，在当时的环境下产生的。对于这句话，稍微有点常识就可以明白，应该是“小河有水大河满”！你可以看看祖国大地上的任何一条大河，哪一条不是小河的水流进了大河里？<br><img src="http://ww3.sinaimg.cn/large/562f4083jw1ewoaon1frlj20sg0fmjtg.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3894005761151077" target="freeweibo-mirror">只要是人，就会有错的时候。关键问题是：没有人提出来！//@坎…</a>
 </h2>
@@ -114,7 +120,7 @@
 </h2>
 <p>//@小桥流水li://@爱死911://@殷泽君: 转发微博<br><br>RE: 发表了一篇转载博文《[转载]平反薄熙来，才能解乱局》http://t.cn/RyW3iwT</p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3893896876452213" target="freeweibo-mirror">王书记说，治标为治本争取时间，只能拭目以待。 //@钱中华:…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3893884554080425" target="freeweibo-mirror">【活得像个段子】近日，网上“才女雅芬作画全过程”，美女画家展…</a>
 </h2>
 <p>【活得像个段子】近日，网上“才女雅芬作画全过程”，美女画家展露在众目睽睽下，被“欣赏”，是让观众看画还是看人?用裸体来吸引人眼球，是艺术还是想一裸成名?<br><img src="http://ww4.sinaimg.cn/large/7b94883fjw1ewnzf84cxoj20dm0kf40h.jpg"></p>
-<p>
-	<small> ============== 10小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3893884293432215" target="freeweibo-mirror">我正在申请微博认证，认证信息为“淘宝全场特卖汇官方微博店长何…</a>
-</h2>
-<p>我正在申请微博认证，认证信息为“淘宝全场特卖汇官方微博店长何军”。请@电商轩轩 @她的文学笔记 转发此条微博帮我确认身份，多谢！！ http://t.cn/zOdcw5h</p>
 <p>
 	<small> ============== 10小时前</small>
 </p>
