@@ -24,7 +24,7 @@
 </h2>
 <p>他是怎么翻墙的？</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3893784057813184" target="freeweibo-mirror">[吃惊]求谣言</a>
 </h2>
