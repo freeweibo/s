@@ -36,7 +36,7 @@
 </h2>
 <p>[偷笑] //@廖睿:文革时，这应等同于收听敌台吧？[哈哈]<br><br>RE: 过去：公社以上干部才可以看《参考消息》，省部级以上干部才可以看《金瓶梅》，现在，常委以上才可以开脸书。<br><img src="http://ww4.sinaimg.cn/large/48729c31gw1ewnwxel8jgj208c073t8t.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3894007153029484" target="freeweibo-mirror">SPAM [偷笑]//@李继锋:“李嘉诚哪里跑!”</a>
 </h2>
@@ -138,7 +138,7 @@
 </h2>
 <p>SPAM 正能量传给大家！@lanlan晶灵</p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p>
 <table>
     <tr>
