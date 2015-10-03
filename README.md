@@ -66,7 +66,7 @@
 </h2>
 <p>习近平童鞋在facebook上开了主页，为何不在中国的微博与微信上也开呢？<br><img src="http://ww1.sinaimg.cn/large/62f8add8jw1ewnmdvrkqfj20tr0twjx4.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3893752261492117" target="freeweibo-mirror">天津爆炸过去了，死亡人数？悲剧原因？责任承担？……真相呢？ …</a>
 </h2>
