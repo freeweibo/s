@@ -120,7 +120,7 @@
 </h2>
 <p>不会翻墙真是耽误事儿。@奥地利驻华使馆 ，你们赶紧把护照还给我，我要出国给习总推特账号点赞去。</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3893801049796460" target="freeweibo-mirror">他是怎么翻墙的？</a>
 </h2>
