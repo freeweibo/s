@@ -48,7 +48,7 @@
 </h2>
 <p>我以前称他习大大，之后称他贵党习主席。现在，包总为嘛不来新浪开微博?<br><img src="http://ww2.sinaimg.cn/large/991f23b1gw1ewnrmbm744j20c80lqacl.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3893811572824828" target="freeweibo-mirror">不会翻墙真是耽误事儿。@奥地利驻华使馆 ，你们赶紧把护照还给…</a>
 </h2>
@@ -114,7 +114,7 @@
 </h2>
 <p>习近平童鞋在facebook上开了主页，为何不在中国的微博与微信上也开呢？<br><img src="http://ww1.sinaimg.cn/large/62f8add8jw1ewnmdvrkqfj20tr0twjx4.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3893752261492117" target="freeweibo-mirror">天津爆炸过去了，死亡人数？悲剧原因？责任承担？……真相呢？ …</a>
 </h2>
