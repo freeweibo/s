@@ -66,13 +66,13 @@
 </h2>
 <p>兄弟闹别扭——韩联社：朝鲜已邀部分非洲和南美国家领导人参加10月10日平壤庆党建70周年大阅兵，被视为朝鲜“亲密盟友”的中国却不在受邀名单之列。金正恩已指示要把10月的阅兵式办得比北京的规模还要大。早前有韩媒披露，金正恩曾提参加北京阅兵仪式上坐在习近平身边的“最高待遇”条件，被拒。[哈哈]</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3893782560642482" target="freeweibo-mirror">SPAM 《大话西游》明明是喜剧，再看的时候却有悲伤，台词还…</a>
 </h2>
 <p>SPAM 《大话西游》明明是喜剧，再看的时候却有悲伤，台词还是那么经典，人生百年，谁不曾大闹天宫，谁不曾头上紧箍，谁不曾爱上层楼，谁不曾孤单上路。<br><img src="http://ww3.sinaimg.cn/large/7e2c0387jw1ewne7t28n0j20go097jsp.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3893776865230066" target="freeweibo-mirror">[生病]</a>
 </h2>
@@ -108,7 +108,7 @@
 </h2>
 <p>天津爆炸过去了，死亡人数？悲剧原因？责任承担？……真相呢？ 真的假的？[吃惊][吃惊][吃惊]<br><img src="http://ww1.sinaimg.cn/large/7a8590bdjw1ewnkdl3irmj20ai0f8dh1.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3893660795998189" target="freeweibo-mirror">才注意到:两天前被抓获，现在是被炸死。到底是抓了还是炸死了？</a>
 </h2>
