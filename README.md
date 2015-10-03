@@ -30,7 +30,7 @@
 </h2>
 <p>有浪了还要什么脸[挖鼻]<br><br>RE: 我以前称他习大大，之后称他贵党习主席。现在，包总为嘛不来新浪开微博?<br><img src="http://ww2.sinaimg.cn/large/991f23b1gw1ewnrmbm744j20c80lqacl.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3893815335425620" target="freeweibo-mirror">我以前称他习大大，之后称他贵党习主席。现在，包总为嘛不来新浪…</a>
 </h2>
@@ -78,19 +78,19 @@
 </h2>
 <p>[生病]<br><br>RE: 天津爆炸过去了，死亡人数？悲剧原因？责任承担？……真相呢？ 真的假的？[吃惊][吃惊][吃惊]<br><img src="http://ww1.sinaimg.cn/large/7a8590bdjw1ewnkdl3irmj20ai0f8dh1.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3893776051467936" target="freeweibo-mirror">//@微笑类星体: 抓获以后，把他炸死了。[嘻嘻]//@淮安…</a>
 </h2>
 <p>//@微笑类星体: 抓获以后，把他炸死了。[嘻嘻]//@淮安王志龙: //@南通市陈二://@旺旺1658:？//@亲心港湾:转发微博<br><br>RE: 才注意到:两天前被抓获，现在是被炸死。到底是抓了还是炸死了？<br><img src="http://ww2.sinaimg.cn/large/7cc9aaf1gw1ewn9v9h7z8j20c80idtab.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3893775653193208" target="freeweibo-mirror">确实奇怪。[疑问]</a>
 </h2>
 <p>确实奇怪。[疑问]<br><br>RE: 才注意到:两天前被抓获，现在是被炸死。到底是抓了还是炸死了？<br><img src="http://ww2.sinaimg.cn/large/7cc9aaf1gw1ewn9v9h7z8j20c80idtab.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3893772628771550" target="freeweibo-mirror">[汗]</a>
 </h2>
