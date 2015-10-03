@@ -36,7 +36,7 @@
 </h2>
 <p>我以前称他习大大，之后称他贵党习主席。现在，包总为嘛不来新浪开微博?<br><img src="http://ww2.sinaimg.cn/large/991f23b1gw1ewnrmbm744j20c80lqacl.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3893811572824828" target="freeweibo-mirror">不会翻墙真是耽误事儿。@奥地利驻华使馆 ，你们赶紧把护照还给…</a>
 </h2>
@@ -59,6 +59,12 @@
 	<a href="https://freeweibo.com/weibo/3893784057813184" target="freeweibo-mirror">[吃惊]求谣言</a>
 </h2>
 <p>[吃惊]求谣言<br><br>RE: 天津爆炸过去了，死亡人数？悲剧原因？责任承担？……真相呢？ 真的假的？[吃惊][吃惊][吃惊]<br><img src="http://ww1.sinaimg.cn/large/7a8590bdjw1ewnkdl3irmj20ai0f8dh1.jpg"></p>
+<p>
+	<small> ============== 5小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3893782925421039" target="freeweibo-mirror">兄弟闹别扭——韩联社：朝鲜已邀部分非洲和南美国家领导人参加1…</a>
+</h2>
+<p>兄弟闹别扭——韩联社：朝鲜已邀部分非洲和南美国家领导人参加10月10日平壤庆党建70周年大阅兵，被视为朝鲜“亲密盟友”的中国却不在受邀名单之列。金正恩已指示要把10月的阅兵式办得比北京的规模还要大。早前有韩媒披露，金正恩曾提参加北京阅兵仪式上坐在习近平身边的“最高待遇”条件，被拒。[哈哈]</p>
 <p>
 	<small> ============== 5小时前</small>
 </p><h2>
@@ -96,7 +102,7 @@
 </h2>
 <p>习近平童鞋在facebook上开了主页，为何不在中国的微博与微信上也开呢？<br><img src="http://ww1.sinaimg.cn/large/62f8add8jw1ewnmdvrkqfj20tr0twjx4.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3893752261492117" target="freeweibo-mirror">天津爆炸过去了，死亡人数？悲剧原因？责任承担？……真相呢？ …</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3893623487571378" target="freeweibo-mirror">[赞]//@中国经营报:转发微博</a>
 </h2>
 <p>[赞]//@中国经营报:转发微博<br><br>RE: 有人受皇权的奴化教育太深，自己做了奴隶而不自知，总以为为国牺牲永远是对的。殊不知代表国家的那些政治家和外交家有自己的职业利益，他们也受皇权至上的奴化教育，做事并不以百姓的利益为首，甚至侵犯人民的根本利益。当有人指出这一点时，往往还被认为是汉奸、卖国贼，由此可以看出奴化教育的危害。</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3893616760197291" target="freeweibo-mirror">[给力]//@大藏布: 转发微博</a>
-</h2>
-<p>[给力]//@大藏布: 转发微博<br><br>RE: 一个社会如果只能靠删除不同看法去维护统一思想的宣传，那就证明这个思想宣传已经到了弱不经风的程度了。</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
