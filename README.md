@@ -24,7 +24,7 @@
 </h2>
 <p>[吃惊]求谣言<br><br>RE: 天津爆炸过去了，死亡人数？悲剧原因？责任承担？……真相呢？ 真的假的？[吃惊][吃惊][吃惊]<br><img src="http://ww1.sinaimg.cn/large/7a8590bdjw1ewnkdl3irmj20ai0f8dh1.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3893782560642482" target="freeweibo-mirror">SPAM 《大话西游》明明是喜剧，再看的时候却有悲伤，台词还…</a>
 </h2>
@@ -61,6 +61,12 @@
 <p>习近平童鞋在facebook上开了主页，为何不在中国的微博与微信上也开呢？<br><img src="http://ww1.sinaimg.cn/large/62f8add8jw1ewnmdvrkqfj20tr0twjx4.jpg"></p>
 <p>
 	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3893752261492117" target="freeweibo-mirror">天津爆炸过去了，死亡人数？悲剧原因？责任承担？……真相呢？ …</a>
+</h2>
+<p>天津爆炸过去了，死亡人数？悲剧原因？责任承担？……真相呢？ 真的假的？[吃惊][吃惊][吃惊]<br><img src="http://ww1.sinaimg.cn/large/7a8590bdjw1ewnkdl3irmj20ai0f8dh1.jpg"></p>
+<p>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3893660795998189" target="freeweibo-mirror">才注意到:两天前被抓获，现在是被炸死。到底是抓了还是炸死了？</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3893603355428508" target="freeweibo-mirror">SPAM 404</a>
 </h2>
 <p>SPAM 404<br><br>RE: 一个社会如果只能靠删除不同看法去维护统一思想的宣传，那就证明这个思想宣传已经到了弱不经风的程度了。</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3893602788587183" target="freeweibo-mirror">SPAM →_→//@绝稷之尘：任叔，我们的政党进步了啊，以…</a>
-</h2>
-<p>SPAM →_→//@绝稷之尘：任叔，我们的政党进步了啊，以前你这样的估计早就让带走批斗了，现在只删除你的微博。这是质的变化啊，要有信心！<br><br>RE: 一个社会如果只能靠删除不同看法去维护统一思想的宣传，那就证明这个思想宣传已经到了弱不经风的程度了。</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
