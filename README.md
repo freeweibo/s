@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3893942401983206" target="freeweibo-mirror">[太开心]//@祁祁麟: 一群连衣食住行，拉屎放屁都要监督规…</a>
+</h2>
+<p>[太开心]//@祁祁麟: 一群连衣食住行，拉屎放屁都要监督规范的货，居然是10亿人的主宰，笑话还是悲剧？</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3893901444058516" target="freeweibo-mirror">//@小桥流水li://@爱死911://@殷泽君: 转发微…</a>
 </h2>
 <p>//@小桥流水li://@爱死911://@殷泽君: 转发微博<br><br>RE: 发表了一篇转载博文《[转载]平反薄熙来，才能解乱局》http://t.cn/RyW3iwT</p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3893776051467936" target="freeweibo-mirror">//@微笑类星体: 抓获以后，把他炸死了。[嘻嘻]//@淮安…</a>
 </h2>
 <p>//@微笑类星体: 抓获以后，把他炸死了。[嘻嘻]//@淮安王志龙: //@南通市陈二://@旺旺1658:？//@亲心港湾:转发微博<br><br>RE: 才注意到:两天前被抓获，现在是被炸死。到底是抓了还是炸死了？<br><img src="http://ww2.sinaimg.cn/large/7cc9aaf1gw1ewn9v9h7z8j20c80idtab.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3893775653193208" target="freeweibo-mirror">确实奇怪。[疑问]</a>
-</h2>
-<p>确实奇怪。[疑问]<br><br>RE: 才注意到:两天前被抓获，现在是被炸死。到底是抓了还是炸死了？<br><img src="http://ww2.sinaimg.cn/large/7cc9aaf1gw1ewn9v9h7z8j20c80idtab.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
