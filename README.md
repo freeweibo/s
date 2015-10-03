@@ -54,7 +54,7 @@
 </h2>
 <p>发表了一篇转载博文《[转载]平反薄熙来，才能解乱局》http://t.cn/RyW3iwT</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3893865902208471" target="freeweibo-mirror">SPAM 好像没贴预售链接。。一个天猫的：http://t.…</a>
 </h2>
