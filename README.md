@@ -60,7 +60,7 @@
 </h2>
 <p>[吃惊]求谣言<br><br>RE: 天津爆炸过去了，死亡人数？悲剧原因？责任承担？……真相呢？ 真的假的？[吃惊][吃惊][吃惊]<br><img src="http://ww1.sinaimg.cn/large/7a8590bdjw1ewnkdl3irmj20ai0f8dh1.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3893782925421039" target="freeweibo-mirror">兄弟闹别扭——韩联社：朝鲜已邀部分非洲和南美国家领导人参加1…</a>
 </h2>
