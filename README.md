@@ -30,7 +30,7 @@
 </h2>
 <p>SPAM [伤心] //@浩正刘臻:[泪] //@顾峰: //@徐昕:再看，还是流泪了 //@作业本:</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3894229212298660" target="freeweibo-mirror">SPAM  //@夜的第十四:#aiweiwei#</a>
 </h2>
