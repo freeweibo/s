@@ -32,6 +32,12 @@
 <p>
 	<small> ============== 1小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3894108202131675" target="freeweibo-mirror">同样是领土之争，我们对钓鱼岛寸土不让，但是对俄罗斯占领的几十…</a>
+</h2>
+<p>同样是领土之争，我们对钓鱼岛寸土不让，但是对俄罗斯占领的几十万甚至上百万倍领土却视而不见；同样是敏感的民族问题，我们对欧美领导与敏感的藏疆人士竭力反对，但对俄罗斯领导类似的接见却哑口无声。原因之一就在于中俄政权类型类似，所以什么领土问题，民族分离问题，比起维持政权，都不算问题。</p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3894038174841777" target="freeweibo-mirror">SPAM  //@书法一孔A://@石下顽草11世://@水…</a>
 </h2>
 <p>SPAM  //@书法一孔A://@石下顽草11世://@水木双刀_:[话筒][话筒][话筒]//@地瓜報社:谁有，卖我一本<br><br>RE: 天津大爆zha从官媒里消失了，但真相还是无从得知；...其实我就想问问：这书哪能买到？<br><img src="http://ww2.sinaimg.cn/large/0060nU4Mgw1ewoelnqfguj30ai0ejaap.jpg"></p>
@@ -66,13 +72,13 @@
 </h2>
 <p>只要是人，就会有错的时候。关键问题是：没有人提出来！//@坎坷足迹: 为了证明自己的歪理，不惜篡改客观规律。 欺负我们这些没有看过水、没有见过河的……<br><br>RE: 【大河有水小河满？】我们注意到这次访美演讲中又引用了“大河有水小河满“这句中国”谚语“。这句话原本是1956年全国“合作化”以后，在当时的环境下产生的。对于这句话，稍微有点常识就可以明白，应该是“小河有水大河满”！你可以看看祖国大地上的任何一条大河，哪一条不是小河的水流进了大河里？<br><img src="http://ww3.sinaimg.cn/large/562f4083jw1ewoaon1frlj20sg0fmjtg.jpg"></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3894005660052898" target="freeweibo-mirror">令计划刚刚公布了 财产，你们还想怎么样？？？太坏了你们！！！…</a>
 </h2>
 <p>令计划刚刚公布了 财产，你们还想怎么样？？？太坏了你们！！！//@私家野史: [哈哈]//@偃月刀之舞: //@楊康令: 嗯，请共青团中央的领导也公开财产吧。</p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3894004577793526" target="freeweibo-mirror">SPAM “李嘉诚哪里跑!”</a>
 </h2>
@@ -120,23 +126,17 @@
 </h2>
 <p>这样的新闻，在黑谁呢？我想对李总理说，不怕狼一样的对手，就怕猪在给你打下手。<br><img src="http://ww4.sinaimg.cn/large/6cfd6289gw1ewobm66n98j20f00qo41f.jpg"></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3893990052913916" target="freeweibo-mirror">这些场景即使在最初香港回归的日子不曾见过，如今却轮番上演，愈…</a>
 </h2>
 <p>这些场景即使在最初香港回归的日子不曾见过，如今却轮番上演，愈演愈烈。才18年，就要让香港山河一片红？<br><img src="http://ww3.sinaimg.cn/large/c57c1a49jw1ewoboq3osqj209c0gmq4f.jpg"></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3893987288822320" target="freeweibo-mirror">SPAM ? //@凌高ZXJ:[哈哈][哈哈][哈哈] /…</a>
 </h2>
 <p>SPAM ? //@凌高ZXJ:[哈哈][哈哈][哈哈] //@ark的关注:大大居然也深谙买粉之道？<br><br>RE: 404 不存在網的大大粉絲在東南亞買的僵粉[doge][挖鼻] @好火药<br><img src="http://ww4.sinaimg.cn/large/ca69b570jw1ewo4n9ilkej20hs0ds771.jpg"></p>
-<p>
-	<small> ============== 11小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3893981445991187" target="freeweibo-mirror">【大河有水小河满？】我们注意到这次访美演讲中又引用了“大河有…</a>
-</h2>
-<p>【大河有水小河满？】我们注意到这次访美演讲中又引用了“大河有水小河满“这句中国”谚语“。这句话原本是1956年全国“合作化”以后，在当时的环境下产生的。对于这句话，稍微有点常识就可以明白，应该是“小河有水大河满”！你可以看看祖国大地上的任何一条大河，哪一条不是小河的水流进了大河里？<br><img src="http://ww3.sinaimg.cn/large/562f4083jw1ewoaon1frlj20sg0fmjtg.jpg"></p>
 <p>
 	<small> ============== 11小时前</small>
 </p>
