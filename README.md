@@ -48,7 +48,7 @@
 </h2>
 <p>SPAM //@改革开放之大清: //@王亚军北京:[伤心] //@浩正刘臻:[泪] //@顾峰: //@徐昕:再看，还是流泪了 //@作业本: //@贺延光:[鲜花] //@叶匡政:[泪] //@贺江兵:[衰]<br><br>RE: 【可她心中還是苦。常常，想起他，她會哭起來。她會想起過去的生活，那時他們租住在北京城低矮的平房裏，他向鄰居家借了小推車，去買過冬的大白菜，兒子就坐在小推車上，笑聲迴響在小巷裏。】[泪] http://t.cn/RylP2Ok</p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3894271188889367" target="freeweibo-mirror">SPAM [伤心] //@浩正刘臻:[泪] //@顾峰: /…</a>
 </h2>
@@ -66,13 +66,13 @@
 </h2>
 <p>SPAM  //@夜的第十四:#aiweiwei#</p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3894228696896336" target="freeweibo-mirror">SPAM 泥人雕塑？还挺像。</a>
 </h2>
 <p>SPAM 泥人雕塑？还挺像。</p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3894155954806074" target="freeweibo-mirror">【可她心中還是苦。常常，想起他，她會哭起來。她會想起過去的生…</a>
 </h2>
