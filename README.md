@@ -24,7 +24,7 @@
 </h2>
 <p>SPAM 万事俱备，只欠万一！</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3894324717099506" target="freeweibo-mirror">SPAM //@不明假真相: //@王祖哲:[嘻嘻]//@崔…</a>
 </h2>
