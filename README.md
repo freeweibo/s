@@ -26,6 +26,12 @@
 <p>
 	<small> ============== 1小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3894129358017589" target="freeweibo-mirror">//@荣剑2001:转发微博</a>
+</h2>
+<p>//@荣剑2001:转发微博<br><br>RE: 同样是领土之争，我们对钓鱼岛寸土不让，但是对俄罗斯占领的几十万甚至上百万倍领土却视而不见；同样是敏感的民族问题，我们对欧美领导与敏感的藏疆人士竭力反对，但对俄罗斯领导类似的接见却哑口无声。原因之一就在于中俄政权类型类似，所以什么领土问题，民族分离问题，比起维持政权，都不算问题。</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3894038174841777" target="freeweibo-mirror">SPAM  //@书法一孔A://@石下顽草11世://@水…</a>
 </h2>
 <p>SPAM  //@书法一孔A://@石下顽草11世://@水木双刀_:[话筒][话筒][话筒]//@地瓜報社:谁有，卖我一本<br><br>RE: 天津大爆zha从官媒里消失了，但真相还是无从得知；...其实我就想问问：这书哪能买到？<br><img src="http://ww2.sinaimg.cn/large/0060nU4Mgw1ewoelnqfguj30ai0ejaap.jpg"></p>
@@ -36,7 +42,7 @@
 </h2>
 <p>天津大爆zha从官媒里消失了，但真相还是无从得知；...其实我就想问问：这书哪能买到？<br><img src="http://ww2.sinaimg.cn/large/0060nU4Mgw1ewoelnqfguj30ai0ejaap.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3894010307879935" target="freeweibo-mirror">[偷笑] //@廖睿:文革时，这应等同于收听敌台吧？[哈哈]</a>
 </h2>
@@ -133,12 +139,6 @@
 <p>【大河有水小河满？】我们注意到这次访美演讲中又引用了“大河有水小河满“这句中国”谚语“。这句话原本是1956年全国“合作化”以后，在当时的环境下产生的。对于这句话，稍微有点常识就可以明白，应该是“小河有水大河满”！你可以看看祖国大地上的任何一条大河，哪一条不是小河的水流进了大河里？<br><img src="http://ww3.sinaimg.cn/large/562f4083jw1ewoaon1frlj20sg0fmjtg.jpg"></p>
 <p>
 	<small> ============== 11小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3893959288039955" target="freeweibo-mirror">//@深南-大盗:但知道是从哪里没的。</a>
-</h2>
-<p>//@深南-大盗:但知道是从哪里没的。<br><br>RE: 康有为的墓被掘、颅骨被放在一个翻斗车里游街示众；孔子墓被炸药炸开，骨骇示众后被焚毁；张之洞墓被掘，尚未腐烂的尸体被弃，任由顽童踢弄拨耍；被掘墓的还有舜帝、炎帝、岳飞、包拯、张居正、霍去病、王羲之、蒲松龄、丁汝昌.......我不知道中国人的道德是从哪来的、但知道是从哪里没的。——袁腾飞<br><img src="http://ww2.sinaimg.cn/large/47dc414bjw1ewo4032qs3j20bo09c74m.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
 </p>
 <table>
     <tr>
