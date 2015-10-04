@@ -126,13 +126,13 @@
 </h2>
 <p>这样的新闻，在黑谁呢？我想对李总理说，不怕狼一样的对手，就怕猪在给你打下手。<br><img src="http://ww4.sinaimg.cn/large/6cfd6289gw1ewobm66n98j20f00qo41f.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3893990052913916" target="freeweibo-mirror">这些场景即使在最初香港回归的日子不曾见过，如今却轮番上演，愈…</a>
 </h2>
 <p>这些场景即使在最初香港回归的日子不曾见过，如今却轮番上演，愈演愈烈。才18年，就要让香港山河一片红？<br><img src="http://ww3.sinaimg.cn/large/c57c1a49jw1ewoboq3osqj209c0gmq4f.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3893987288822320" target="freeweibo-mirror">SPAM ? //@凌高ZXJ:[哈哈][哈哈][哈哈] /…</a>
 </h2>
