@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3894274104057452" target="freeweibo-mirror">SPAM //@改革开放之大清: //@王亚军北京:[伤心]…</a>
+</h2>
+<p>SPAM //@改革开放之大清: //@王亚军北京:[伤心] //@浩正刘臻:[泪] //@顾峰: //@徐昕:再看，还是流泪了 //@作业本: //@贺延光:[鲜花] //@叶匡政:[泪] //@贺江兵:[衰]<br><br>RE: 【可她心中還是苦。常常，想起他，她會哭起來。她會想起過去的生活，那時他們租住在北京城低矮的平房裏，他向鄰居家借了小推車，去買過冬的大白菜，兒子就坐在小推車上，笑聲迴響在小巷裏。】[泪] http://t.cn/RylP2Ok</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3894229212298660" target="freeweibo-mirror">SPAM  //@夜的第十四:#aiweiwei#</a>
 </h2>
 <p>SPAM  //@夜的第十四:#aiweiwei#</p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3894001067662714" target="freeweibo-mirror">回复@轩轩闱阁:扯，下岗两千万，但三亿农民却获得了打工机会，…</a>
 </h2>
 <p>回复@轩轩闱阁:扯，下岗两千万，但三亿农民却获得了打工机会，成为工人阶级！国企工人和官员一样，是特权阶层，本来就应该打破 //@轩轩闱阁:回复@鲍迪克:哪此下岗的是怎样度日的！所以工人阶级都视邓氏是共产党的叛徒！[太开心][太开心]</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3893990066096136" target="freeweibo-mirror">这样的新闻，在黑谁呢？我想对李总理说，不怕狼一样的对手，就怕…</a>
-</h2>
-<p>这样的新闻，在黑谁呢？我想对李总理说，不怕狼一样的对手，就怕猪在给你打下手。<br><img src="http://ww4.sinaimg.cn/large/6cfd6289gw1ewobm66n98j20f00qo41f.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
