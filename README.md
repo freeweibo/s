@@ -42,7 +42,7 @@
 </h2>
 <p>SPAM  //@书法一孔A://@石下顽草11世://@水木双刀_:[话筒][话筒][话筒]//@地瓜報社:谁有，卖我一本<br><br>RE: 天津大爆zha从官媒里消失了，但真相还是无从得知；...其实我就想问问：这书哪能买到？<br><img src="http://ww2.sinaimg.cn/large/0060nU4Mgw1ewoelnqfguj30ai0ejaap.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3894015424396811" target="freeweibo-mirror">天津大爆zha从官媒里消失了，但真相还是无从得知；...其实…</a>
 </h2>
