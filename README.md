@@ -66,13 +66,13 @@
 </h2>
 <p>SPAM  //@夜的第十四:#aiweiwei#</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3894228696896336" target="freeweibo-mirror">SPAM 泥人雕塑？还挺像。</a>
 </h2>
 <p>SPAM 泥人雕塑？还挺像。</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3894155954806074" target="freeweibo-mirror">【可她心中還是苦。常常，想起他，她會哭起來。她會想起過去的生…</a>
 </h2>
