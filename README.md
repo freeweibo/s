@@ -60,7 +60,7 @@
 </h2>
 <p>转，求证！[围观][话筒]@刘晓原律师: 艾未未回到北京，为工作室做装饰，在墙上插座中发现了这个玩艺。他说，不只这一个呢，卧室中也发现有，安装很专业。<br><img src="http://ww3.sinaimg.cn/large/005AbEVcjw1ewp3hnolyij30ci0m80ua.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3894229212298660" target="freeweibo-mirror">SPAM  //@夜的第十四:#aiweiwei#</a>
 </h2>
