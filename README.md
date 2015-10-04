@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3894229212298660" target="freeweibo-mirror">SPAM  //@夜的第十四:#aiweiwei#</a>
+</h2>
+<p>SPAM  //@夜的第十四:#aiweiwei#</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3894131480439165" target="freeweibo-mirror">为了转移本国人民对现政权的极度、并已至爆发临界点的不满，就必…</a>
 </h2>
 <p>为了转移本国人民对现政权的极度、并已至爆发临界点的不满，就必须从周边国寻找假想敌，煽动民众的民族主义情绪，以转移兴奋源。这是国际上专制政权共通的执政理念。卓有成效。<br><br>RE: 同样是领土之争，我们对钓鱼岛寸土不让，但是对俄罗斯占领的几十万甚至上百万倍领土却视而不见；同样是敏感的民族问题，我们对欧美领导与敏感的藏疆人士竭力反对，但对俄罗斯领导类似的接见却哑口无声。原因之一就在于中俄政权类型类似，所以什么领土问题，民族分离问题，比起维持政权，都不算问题。</p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3893990052913916" target="freeweibo-mirror">这些场景即使在最初香港回归的日子不曾见过，如今却轮番上演，愈…</a>
 </h2>
 <p>这些场景即使在最初香港回归的日子不曾见过，如今却轮番上演，愈演愈烈。才18年，就要让香港山河一片红？<br><img src="http://ww3.sinaimg.cn/large/c57c1a49jw1ewoboq3osqj209c0gmq4f.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3893987288822320" target="freeweibo-mirror">SPAM ? //@凌高ZXJ:[哈哈][哈哈][哈哈] /…</a>
-</h2>
-<p>SPAM ? //@凌高ZXJ:[哈哈][哈哈][哈哈] //@ark的关注:大大居然也深谙买粉之道？<br><br>RE: 404 不存在網的大大粉絲在東南亞買的僵粉[doge][挖鼻] @好火药<br><img src="http://ww4.sinaimg.cn/large/ca69b570jw1ewo4n9ilkej20hs0ds771.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
