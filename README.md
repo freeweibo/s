@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3894718804895474" target="freeweibo-mirror">邪教共党！//@广州区伯:只许州官杀人放火，不准百姓宰鸡点灯…</a>
+</h2>
+<p>邪教共党！//@广州区伯:只许州官杀人放火，不准百姓宰鸡点灯。特色！</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3894714938018207" target="freeweibo-mirror">SPAM //@楚之歌者: [拜拜]//@五哥放羊40: /…</a>
 </h2>
 <p>SPAM //@楚之歌者: [拜拜]//@五哥放羊40: //@爱卿平身免礼吧: //@无欲的崖:[偷笑][思考]//@凭栏观潮001:[思考]//@张佳珅0: [思考]<br><br>RE: 真的麼？[挖鼻]<br><img src="http://ww4.sinaimg.cn/large/6321c2b9gw1ewqk8bosm8j20f00qo41y.jpg"></p>
@@ -48,7 +54,7 @@
 </h2>
 <p>//@公民石皓伟: 权力有强奸一切的冲动。//@杜君立://@肖铁: 幸亏国际上还有个诺贝尔奖，不在中国政府控制的范围内。//@京都观潮: 在这国家，科学也官化了，科学头衔，演变为官衔。</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3894628572809995" target="freeweibo-mirror">SPAM //@安凡2011://@王修216: //@歷史…</a>
 </h2>
@@ -72,7 +78,7 @@
 </h2>
 <p>SPAM 别势利眼，情义无价！//@去V的刘建锋:老吴好文。<br><br>RE: 深度好文，分析的不错！<br><img src="http://ww3.sinaimg.cn/large/005AbEVcjw1ewq7zsnh5kj30hs4q0e81.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3894624864985392" target="freeweibo-mirror">暴露了带路们的真实态度，就是不希望中国繁荣富强，叙利亚化才是…</a>
 </h2>
@@ -96,7 +102,7 @@
 </h2>
 <p>是啊加入了让中国人民得到了民主自由损失可大呢！</p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3894607161022169" target="freeweibo-mirror">【美国人拥枪】的首要理由是：免受无论来自何方的压迫，包括他们…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3894589574101780" target="freeweibo-mirror">发表了博文+《转发：TPP达成，中国被动闭关锁国，彻底边缘化…</a>
 </h2>
 <p>发表了博文+《转发：TPP达成，中国被动闭关锁国，彻底边缘化--作者：止善若水》+-++http://t.cn/Ryj3u8K</p>
-<p>
-	<small> ============== 10小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3894584775674816" target="freeweibo-mirror">深度好文，分析的不错！</a>
-</h2>
-<p>深度好文，分析的不错！<br><img src="http://ww3.sinaimg.cn/large/005AbEVcjw1ewq7zsnh5kj30hs4q0e81.jpg"></p>
 <p>
 	<small> ============== 10小时前</small>
 </p>
