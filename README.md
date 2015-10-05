@@ -56,6 +56,12 @@
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3894565549274506" target="freeweibo-mirror">援力与你同在</a>
+</h2>
+<p>援力与你同在<br><img src="http://ww2.sinaimg.cn/large/891c9115jw1ewq5qdp60uj20lm4qq1kx.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3894554375321799" target="freeweibo-mirror">港媒《争鸣》5月号：在中共中央党校举办理论学习会，会上罕见出…</a>
 </h2>
 <p>港媒《争鸣》5月号：在中共中央党校举办理论学习会，会上罕见出现点名批判〝三个代表思想是空泛、形而上学〞，〝为资本家入党敞开大门，背叛党章，也违背践踏国家宪制〞等,甚至有更为激烈的指责〝三个代表〞是〝破坏党的组织架构〞等等。</p>
@@ -78,7 +84,7 @@
 </h2>
 <p>谁养活谁:英国首相卡梅伦说，是纳税人养活了我们政府;某国领导说，是我们政府解决了全国人民的吃饭问题。<br><img src="http://ww1.sinaimg.cn/large/58500250jw1ewq1cbq0a1j204g05vq2s.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3894523409554436" target="freeweibo-mirror">公安在对信预审时，已明确告知，他之所以被抓进来，实际上是因为…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3894274104057452" target="freeweibo-mirror">SPAM //@改革开放之大清: //@王亚军北京:[伤心]…</a>
 </h2>
 <p>SPAM //@改革开放之大清: //@王亚军北京:[伤心] //@浩正刘臻:[泪] //@顾峰: //@徐昕:再看，还是流泪了 //@作业本: //@贺延光:[鲜花] //@叶匡政:[泪] //@贺江兵:[衰]<br><br>RE: 【可她心中還是苦。常常，想起他，她會哭起來。她會想起過去的生活，那時他們租住在北京城低矮的平房裏，他向鄰居家借了小推車，去買過冬的大白菜，兒子就坐在小推車上，笑聲迴響在小巷裏。】[泪] http://t.cn/RylP2Ok</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3894271188889367" target="freeweibo-mirror">SPAM [伤心] //@浩正刘臻:[泪] //@顾峰: /…</a>
-</h2>
-<p>SPAM [伤心] //@浩正刘臻:[泪] //@顾峰: //@徐昕:再看，还是流泪了 //@作业本:</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
