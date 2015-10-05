@@ -108,7 +108,7 @@
 </h2>
 <p>文字狱！//@网络正义战士: //@一言知贤: 支持！//@ytdream69: //@寂静山林manwanyan://@冷眼之世界-3://@回头系岸Q: //@白帽青衫: //@华夏沧桑8://@还是南开老魏017:转发微博</p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3894589574101780" target="freeweibo-mirror">发表了博文+《转发：TPP达成，中国被动闭关锁国，彻底边缘化…</a>
 </h2>
@@ -120,7 +120,7 @@
 </h2>
 <p>深度好文，分析的不错！<br><img src="http://ww3.sinaimg.cn/large/005AbEVcjw1ewq7zsnh5kj30hs4q0e81.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3894580862651883" target="freeweibo-mirror">SPAM [思考]//@世界和平LOVE_and_PEACE…</a>
 </h2>
