@@ -60,7 +60,7 @@
 </h2>
 <p>高<br><br>RE: 全国工商联副主席、原中国民生银行董事长董文标以去日本参加国际金融会议为名，于9月26日上午从北京首都国际机场出境。<br><img src="http://ww4.sinaimg.cn/large/51c21d10gw1ewqh2ppxjqj20hs0a0q4g.jpg"></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3894699284298032" target="freeweibo-mirror">SPAM 长者已经看透了一切。[哈哈]</a>
 </h2>
@@ -84,7 +84,7 @@
 </h2>
 <p>SPAM 我觉得诺贝尔和平奖可以发给我，因为我是真的很热爱和平。<br><img src="http://ww4.sinaimg.cn/large/593f6eacgw1ewqi5zb5y5j20dc0hs0ue.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3894670658926831" target="freeweibo-mirror">//@公民石皓伟: 权力有强奸一切的冲动。//@杜君立://…</a>
 </h2>
