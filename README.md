@@ -126,13 +126,13 @@
 </h2>
 <p>【美国人拥枪】的首要理由是：免受无论来自何方的压迫，包括他们的政府(华盛顿语)。开国元勋杰弗逊说，比起坏人枪杀无辜百姓，让百姓持枪保卫公平正义，更具有正面意义。其实，"拥枪率"远低于美国的南美诸国，枪击案远大于美国，这从另一侧面说明美国的安定。而谈起中国的强拆，美国人却是特别不理解。<br><img src="http://ww3.sinaimg.cn/large/8fc101a3jw1ewqajie3ogj20m80aydh8.jpg"></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3894606468704512" target="freeweibo-mirror">我也试试旧照片行不行(๑•̀ㅂ•́)و✧</a>
 </h2>
 <p>我也试试旧照片行不行(๑•̀ㅂ•́)و✧</p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3894605524763223" target="freeweibo-mirror">SPAM ##吃遍赣州# 肚子饿了，选择吃下午茶，这里是好地…</a>
 </h2>
