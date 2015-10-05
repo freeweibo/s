@@ -26,6 +26,12 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3894536596065893" target="freeweibo-mirror">//@风一样的蜀黍: 还是我们厉害，政府养活了全国人民//@…</a>
+</h2>
+<p>//@风一样的蜀黍: 还是我们厉害，政府养活了全国人民//@崔小平律师: 转发微博</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3894526853051011" target="freeweibo-mirror">谁养活谁:英国首相卡梅伦说，是纳税人养活了我们政府;某国领导…</a>
 </h2>
 <p>谁养活谁:英国首相卡梅伦说，是纳税人养活了我们政府;某国领导说，是我们政府解决了全国人民的吃饭问题。<br><img src="http://ww1.sinaimg.cn/large/58500250jw1ewq1cbq0a1j204g05vq2s.jpg"></p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3894108202131675" target="freeweibo-mirror">同样是领土之争，我们对钓鱼岛寸土不让，但是对俄罗斯占领的几十…</a>
 </h2>
 <p>同样是领土之争，我们对钓鱼岛寸土不让，但是对俄罗斯占领的几十万甚至上百万倍领土却视而不见；同样是敏感的民族问题，我们对欧美领导与敏感的藏疆人士竭力反对，但对俄罗斯领导类似的接见却哑口无声。原因之一就在于中俄政权类型类似，所以什么领土问题，民族分离问题，比起维持政权，都不算问题。</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3894038174841777" target="freeweibo-mirror">SPAM  //@书法一孔A://@石下顽草11世://@水…</a>
-</h2>
-<p>SPAM  //@书法一孔A://@石下顽草11世://@水木双刀_:[话筒][话筒][话筒]//@地瓜報社:谁有，卖我一本<br><br>RE: 天津大爆zha从官媒里消失了，但真相还是无从得知；...其实我就想问问：这书哪能买到？<br><img src="http://ww2.sinaimg.cn/large/0060nU4Mgw1ewoelnqfguj30ai0ejaap.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
