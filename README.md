@@ -84,7 +84,7 @@
 </h2>
 <p>深度好文，分析的不错！<br><img src="http://ww3.sinaimg.cn/large/005AbEVcjw1ewq7zsnh5kj30hs4q0e81.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3894580862651883" target="freeweibo-mirror">SPAM [思考]//@世界和平LOVE_and_PEACE…</a>
 </h2>
@@ -138,7 +138,7 @@
 </h2>
 <p>#TPP即将开启世界经济新秩序#中国加入WTO时承诺： 2015年7月前 1.取消电信与通讯垄断 2.取消绝大部分关税保护 3.取消80%以上汽车关税 4.开放银行业 5.落实双休日与有偿加班 6.开放传媒与影音等几十条 但是现在，没有但是了，TPP拒绝无诚信的国家加入。</p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p>
 <table>
     <tr>
