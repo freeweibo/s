@@ -120,7 +120,7 @@
 </h2>
 <p>深度好文，分析的不错！<br><img src="http://ww3.sinaimg.cn/large/005AbEVcjw1ewq7zsnh5kj30hs4q0e81.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3894580862651883" target="freeweibo-mirror">SPAM [思考]//@世界和平LOVE_and_PEACE…</a>
 </h2>
