@@ -24,7 +24,7 @@
 </h2>
 <p>//@杨佩昌:中国面临两难选择，不加入会慢死，加入吧条件差得太远。//@柴禾://@光纤入户：TPP和欧美间的TIPP加起来接近全球8成的贸易量，不差人。看看这个被删微博你就知道为何要有TPP了------因为WTO对违约者没有惩罚机制。 http://t.cn/RyjGytu</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3894487724553787" target="freeweibo-mirror">SPAM 毛病</a>
 </h2>
