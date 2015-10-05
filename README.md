@@ -48,13 +48,13 @@
 </h2>
 <p>暴露了带路们的真实态度，就是不希望中国繁荣富强，叙利亚化才是自由民主 ？//@嘉善老顾:TPP让中国边缘化？太会扯了！//@老辣陈香:[弱]//@侯宁: 这是一篇洋狗写的文章！[弱] //@苏宁马越海:我坚信中国的崛起一定是势不可档的 但是道路会是曲折的 前途肯定是光明的。<br><br>RE: 发表了博文+《转发：TPP达成，中国被动闭关锁国，彻底边缘化--作者：止善若水》+-++http://t.cn/Ryj3u8K</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3894624618239635" target="freeweibo-mirror">SPAM  //@歷史钩沉://@深川胡骏: //@急煞人也…</a>
 </h2>
 <p>SPAM  //@歷史钩沉://@深川胡骏: //@急煞人也: //@50年矛苔: //@五哥放羊40:转发微博<br><br>RE: 深度好文，分析的不错！<br><img src="http://ww3.sinaimg.cn/large/005AbEVcjw1ewq7zsnh5kj30hs4q0e81.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3894620541077405" target="freeweibo-mirror">SPAM //@回灯添酒://@侯宁:这是一篇洋狗写的文章！…</a>
 </h2>
