@@ -42,7 +42,7 @@
 </h2>
 <p>SPAM 万事俱备，只欠万一！</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3894339581740759" target="freeweibo-mirror">山西从政府到公安领导统统应该问责！没有爱待的心，没有最起码道…</a>
 </h2>
