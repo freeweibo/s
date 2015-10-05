@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3894487724553787" target="freeweibo-mirror">SPAM 毛病</a>
+</h2>
+<p>SPAM 毛病</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3894359881527248" target="freeweibo-mirror">怎么回事？</a>
 </h2>
 <p>怎么回事？<br><br>RE: 山西从政府到公安领导统统应该问责！没有爱待的心，没有最起码道义和道德观，从这上看就不是什么好领导，他们只关心他们的乌纱帽可恨至极如此遭遇让人齿冷这就是值得我们卖命的单位吗？m.weibo.cn/1783721484/3894298754083262/weixin?wm=3333_2001&sourcetype=weixin&from=timeline&isappinstalled=0</p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3894005761151077" target="freeweibo-mirror">只要是人，就会有错的时候。关键问题是：没有人提出来！//@坎…</a>
 </h2>
 <p>只要是人，就会有错的时候。关键问题是：没有人提出来！//@坎坷足迹: 为了证明自己的歪理，不惜篡改客观规律。 欺负我们这些没有看过水、没有见过河的……<br><br>RE: 【大河有水小河满？】我们注意到这次访美演讲中又引用了“大河有水小河满“这句中国”谚语“。这句话原本是1956年全国“合作化”以后，在当时的环境下产生的。对于这句话，稍微有点常识就可以明白，应该是“小河有水大河满”！你可以看看祖国大地上的任何一条大河，哪一条不是小河的水流进了大河里？<br><img src="http://ww3.sinaimg.cn/large/562f4083jw1ewoaon1frlj20sg0fmjtg.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3894005660052898" target="freeweibo-mirror">令计划刚刚公布了 财产，你们还想怎么样？？？太坏了你们！！！…</a>
-</h2>
-<p>令计划刚刚公布了 财产，你们还想怎么样？？？太坏了你们！！！//@私家野史: [哈哈]//@偃月刀之舞: //@楊康令: 嗯，请共青团中央的领导也公开财产吧。</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
