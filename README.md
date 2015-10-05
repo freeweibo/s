@@ -60,7 +60,7 @@
 </h2>
 <p>高<br><br>RE: 全国工商联副主席、原中国民生银行董事长董文标以去日本参加国际金融会议为名，于9月26日上午从北京首都国际机场出境。<br><img src="http://ww4.sinaimg.cn/large/51c21d10gw1ewqh2ppxjqj20hs0a0q4g.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3894699284298032" target="freeweibo-mirror">SPAM 长者已经看透了一切。[哈哈]</a>
 </h2>
@@ -138,7 +138,7 @@
 </h2>
 <p>SPAM //@回灯添酒://@侯宁:这是一篇洋狗写的文章！[弱] //@苏宁马越海:我坚信中国的崛起一定是势不可档的 但是道路会是曲折的 前途肯定是光明的。<br><br>RE: 发表了博文+《转发：TPP达成，中国被动闭关锁国，彻底边缘化--作者：止善若水》+-++http://t.cn/Ryj3u8K</p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p>
 <table>
     <tr>
