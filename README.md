@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3894725142550277" target="freeweibo-mirror">SPAM 公布答案</a>
+</h2>
+<p>SPAM 公布答案</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3894719245073147" target="freeweibo-mirror">现在不能往美国跑了。阿姨吾爱嗷怕是要捡起来了。//@格物自资…</a>
 </h2>
 <p>现在不能往美国跑了。阿姨吾爱嗷怕是要捡起来了。//@格物自资: 党的重大损失，又一个党的高级干部背弃了共产主义接班人的待遇，竟然投奔太君了。<br><br>RE: 全国工商联副主席、原中国民生银行董事长董文标以去日本参加国际金融会议为名，于9月26日上午从北京首都国际机场出境。<br><img src="http://ww4.sinaimg.cn/large/51c21d10gw1ewqh2ppxjqj20hs0a0q4g.jpg"></p>
@@ -29,6 +35,12 @@
 	<a href="https://freeweibo.com/weibo/3894718804895474" target="freeweibo-mirror">邪教共党！//@广州区伯:只许州官杀人放火，不准百姓宰鸡点灯…</a>
 </h2>
 <p>邪教共党！//@广州区伯:只许州官杀人放火，不准百姓宰鸡点灯。特色！</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3894718729323148" target="freeweibo-mirror">世界在权贵眼中算个屌！</a>
+</h2>
+<p>世界在权贵眼中算个屌！</p>
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
@@ -72,7 +84,7 @@
 </h2>
 <p>//@公民石皓伟: 权力有强奸一切的冲动。//@杜君立://@肖铁: 幸亏国际上还有个诺贝尔奖，不在中国政府控制的范围内。//@京都观潮: 在这国家，科学也官化了，科学头衔，演变为官衔。</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3894663956401041" target="freeweibo-mirror">全国工商联副主席、原中国民生银行董事长董文标以去日本参加国际…</a>
 </h2>
@@ -102,7 +114,7 @@
 </h2>
 <p>SPAM 别势利眼，情义无价！//@去V的刘建锋:老吴好文。<br><br>RE: 深度好文，分析的不错！<br><img src="http://ww3.sinaimg.cn/large/005AbEVcjw1ewq7zsnh5kj30hs4q0e81.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3894624864985392" target="freeweibo-mirror">暴露了带路们的真实态度，就是不希望中国繁荣富强，叙利亚化才是…</a>
 </h2>
@@ -125,18 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3894610726003761" target="freeweibo-mirror">是啊加入了让中国人民得到了民主自由损失可大呢！</a>
 </h2>
 <p>是啊加入了让中国人民得到了民主自由损失可大呢！</p>
-<p>
-	<small> ============== 9小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3894607161022169" target="freeweibo-mirror">【美国人拥枪】的首要理由是：免受无论来自何方的压迫，包括他们…</a>
-</h2>
-<p>【美国人拥枪】的首要理由是：免受无论来自何方的压迫，包括他们的政府(华盛顿语)。开国元勋杰弗逊说，比起坏人枪杀无辜百姓，让百姓持枪保卫公平正义，更具有正面意义。其实，"拥枪率"远低于美国的南美诸国，枪击案远大于美国，这从另一侧面说明美国的安定。而谈起中国的强拆，美国人却是特别不理解。<br><img src="http://ww3.sinaimg.cn/large/8fc101a3jw1ewqajie3ogj20m80aydh8.jpg"></p>
-<p>
-	<small> ============== 10小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3894606468704512" target="freeweibo-mirror">我也试试旧照片行不行(๑•̀ㅂ•́)و✧</a>
-</h2>
-<p>我也试试旧照片行不行(๑•̀ㅂ•́)و✧</p>
 <p>
 	<small> ============== 10小时前</small>
 </p>
