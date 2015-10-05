@@ -24,7 +24,7 @@
 </h2>
 <p>SPAM 我觉得诺贝尔和平奖可以发给我，因为我是真的很热爱和平。<br><img src="http://ww4.sinaimg.cn/large/593f6eacgw1ewqi5zb5y5j20dc0hs0ue.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3894670658926831" target="freeweibo-mirror">//@公民石皓伟: 权力有强奸一切的冲动。//@杜君立://…</a>
 </h2>
@@ -36,7 +36,7 @@
 </h2>
 <p>SPAM //@安凡2011://@王修216: //@歷史钩沉://@深川胡骏: //@急煞人也: //@50年矛苔: //@五哥放羊40:转发微博<br><br>RE: 深度好文，分析的不错！<br><img src="http://ww3.sinaimg.cn/large/005AbEVcjw1ewq7zsnh5kj30hs4q0e81.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3894627519928511" target="freeweibo-mirror">SPAM [哈哈]//@涂鸦居士: //@去V的刘建锋: 老…</a>
 </h2>
