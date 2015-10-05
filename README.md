@@ -138,7 +138,7 @@
 </h2>
 <p>天津大爆zha从官媒里消失了，但真相还是无从得知；...其实我就想问问：这书哪能买到？<br><img src="http://ww2.sinaimg.cn/large/0060nU4Mgw1ewoelnqfguj30ai0ejaap.jpg"></p>
 <p>
-	<small> ============== 1天前</small>
+	<small> ============== 2天前</small>
 </p>
 <table>
     <tr>
