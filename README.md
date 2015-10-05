@@ -72,7 +72,7 @@
 </h2>
 <p>真的麼？[挖鼻]<br><img src="http://ww4.sinaimg.cn/large/6321c2b9gw1ewqk8bosm8j20f00qo41y.jpg"></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3894684168933405" target="freeweibo-mirror">醉猴的</a>
 </h2>
