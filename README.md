@@ -30,13 +30,19 @@
 </h2>
 <p>SPAM  //@歷史钩沉://@深川胡骏: //@急煞人也: //@50年矛苔: //@五哥放羊40:转发微博<br><br>RE: 深度好文，分析的不错！<br><img src="http://ww3.sinaimg.cn/large/005AbEVcjw1ewq7zsnh5kj30hs4q0e81.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3894610726003761" target="freeweibo-mirror">是啊加入了让中国人民得到了民主自由损失可大呢！</a>
 </h2>
 <p>是啊加入了让中国人民得到了民主自由损失可大呢！</p>
 <p>
 	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3894607161022169" target="freeweibo-mirror">【美国人拥枪】的首要理由是：免受无论来自何方的压迫，包括他们…</a>
+</h2>
+<p>【美国人拥枪】的首要理由是：免受无论来自何方的压迫，包括他们的政府(华盛顿语)。开国元勋杰弗逊说，比起坏人枪杀无辜百姓，让百姓持枪保卫公平正义，更具有正面意义。其实，"拥枪率"远低于美国的南美诸国，枪击案远大于美国，这从另一侧面说明美国的安定。而谈起中国的强拆，美国人却是特别不理解。<br><img src="http://ww3.sinaimg.cn/large/8fc101a3jw1ewqajie3ogj20m80aydh8.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3894606468704512" target="freeweibo-mirror">我也试试旧照片行不行(๑•̀ㅂ•́)و✧</a>
 </h2>
@@ -49,6 +55,12 @@
 <p>文字狱！//@网络正义战士: //@一言知贤: 支持！//@ytdream69: //@寂静山林manwanyan://@冷眼之世界-3://@回头系岸Q: //@白帽青衫: //@华夏沧桑8://@还是南开老魏017:转发微博</p>
 <p>
 	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3894584775674816" target="freeweibo-mirror">深度好文，分析的不错！</a>
+</h2>
+<p>深度好文，分析的不错！<br><img src="http://ww3.sinaimg.cn/large/005AbEVcjw1ewq7zsnh5kj30hs4q0e81.jpg"></p>
+<p>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3894580862651883" target="freeweibo-mirror">SPAM [思考]//@世界和平LOVE_and_PEACE…</a>
 </h2>
@@ -98,6 +110,12 @@
 <p>
 	<small> ============== 5小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3894555390439625" target="freeweibo-mirror">#TPP即将开启世界经济新秩序#中国加入WTO时承诺： 20…</a>
+</h2>
+<p>#TPP即将开启世界经济新秩序#中国加入WTO时承诺： 2015年7月前 1.取消电信与通讯垄断 2.取消绝大部分关税保护 3.取消80%以上汽车关税 4.开放银行业 5.落实双休日与有偿加班 6.开放传媒与影音等几十条 但是现在，没有但是了，TPP拒绝无诚信的国家加入。</p>
+<p>
+	<small> ============== 6小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3894554375321799" target="freeweibo-mirror">港媒《争鸣》5月号：在中共中央党校举办理论学习会，会上罕见出…</a>
 </h2>
 <p>港媒《争鸣》5月号：在中共中央党校举办理论学习会，会上罕见出现点名批判〝三个代表思想是空泛、形而上学〞，〝为资本家入党敞开大门，背叛党章，也违背践踏国家宪制〞等,甚至有更为激烈的指责〝三个代表〞是〝破坏党的组织架构〞等等。</p>
@@ -121,24 +139,6 @@
 <p>谁养活谁:英国首相卡梅伦说，是纳税人养活了我们政府;某国领导说，是我们政府解决了全国人民的吃饭问题。<br><img src="http://ww1.sinaimg.cn/large/58500250jw1ewq1cbq0a1j204g05vq2s.jpg"></p>
 <p>
 	<small> ============== 8小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3894523409554436" target="freeweibo-mirror">公安在对信预审时，已明确告知，他之所以被抓进来，实际上是因为…</a>
-</h2>
-<p>公安在对信预审时，已明确告知，他之所以被抓进来，实际上是因为他这几年的言论“太嚣张”，已经“危及到国家和政权的安全”。这个消息，从那里求证的？那个公安机关敢这样明确说？这都是心照不宣的事情，小心被扣上编造传播谣言的帽子。http://t.cn/RyjOmts</p>
-<p>
-	<small> ============== 8小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3894523232768780" target="freeweibo-mirror">//@国际时事军事评论员吴戈:这些标准没错。因集团私利而不愿…</a>
-</h2>
-<p>//@国际时事军事评论员吴戈:这些标准没错。因集团私利而不愿接受的国家一定会强化对抗，工具包括强化维护主权，反对干涉内政，借贫富悬殊批判私有化，发动体制内获利人群和民族主义仇外情绪造势，维护国企，强军，吻腚等价值。被孤立的局面本身也有助于渲染恶意，激发偏执。</p>
-<p>
-	<small> ============== 8小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3894509144735875" target="freeweibo-mirror">//@杨佩昌:中国面临两难选择，不加入会慢死，加入吧条件差得…</a>
-</h2>
-<p>//@杨佩昌:中国面临两难选择，不加入会慢死，加入吧条件差得太远。//@柴禾://@光纤入户：TPP和欧美间的TIPP加起来接近全球8成的贸易量，不差人。看看这个被删微博你就知道为何要有TPP了------因为WTO对违约者没有惩罚机制。 http://t.cn/RyjGytu</p>
-<p>
-	<small> ============== 9小时前</small>
 </p>
 <table>
     <tr>
