@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3894526853051011" target="freeweibo-mirror">谁养活谁:英国首相卡梅伦说，是纳税人养活了我们政府;某国领导…</a>
+</h2>
+<p>谁养活谁:英国首相卡梅伦说，是纳税人养活了我们政府;某国领导说，是我们政府解决了全国人民的吃饭问题。<br><img src="http://ww1.sinaimg.cn/large/58500250jw1ewq1cbq0a1j204g05vq2s.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3894523409554436" target="freeweibo-mirror">公安在对信预审时，已明确告知，他之所以被抓进来，实际上是因为…</a>
 </h2>
 <p>公安在对信预审时，已明确告知，他之所以被抓进来，实际上是因为他这几年的言论“太嚣张”，已经“危及到国家和政权的安全”。这个消息，从那里求证的？那个公安机关敢这样明确说？这都是心照不宣的事情，小心被扣上编造传播谣言的帽子。http://t.cn/RyjOmts</p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3894015424396811" target="freeweibo-mirror">天津大爆zha从官媒里消失了，但真相还是无从得知；...其实…</a>
 </h2>
 <p>天津大爆zha从官媒里消失了，但真相还是无从得知；...其实我就想问问：这书哪能买到？<br><img src="http://ww2.sinaimg.cn/large/0060nU4Mgw1ewoelnqfguj30ai0ejaap.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3894010307879935" target="freeweibo-mirror">[偷笑] //@廖睿:文革时，这应等同于收听敌台吧？[哈哈]</a>
-</h2>
-<p>[偷笑] //@廖睿:文革时，这应等同于收听敌台吧？[哈哈]<br><br>RE: 过去：公社以上干部才可以看《参考消息》，省部级以上干部才可以看《金瓶梅》，现在，常委以上才可以开脸书。<br><img src="http://ww4.sinaimg.cn/large/48729c31gw1ewnwxel8jgj208c073t8t.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
