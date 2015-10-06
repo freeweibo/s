@@ -72,7 +72,7 @@
 </h2>
 <p>SPAM 写的很到位！！//@IYALAN: //@张欧亚:？？？//@赵克罗: //@王祖哲:我看了。。//@李永强CN: @王祖哲</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3894888061678755" target="freeweibo-mirror">SPAM  //@王祖哲:我看了。。//@李永强CN: @王…</a>
 </h2>
