@@ -92,6 +92,12 @@
 <p>
 	<small> ============== 10小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3894749641869572" target="freeweibo-mirror">中共官员的财产一旦公开，官员们就得原形毕露。中国就成为人类有…</a>
+</h2>
+<p>中共官员的财产一旦公开，官员们就得原形毕露。中国就成为人类有史以来，世界上第一个“罪犯领导良民”的特色国家！【结语】中国特色就是一帮“罪犯领导良民，良民服从罪犯”的国家！</p>
+<p>
+	<small> ============== 1天前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3894732654729557" target="freeweibo-mirror">冯正虎出境后可能危害国家安全，这是北京市公安局的口头通知。我…</a>
 </h2>
 <p>冯正虎出境后可能危害国家安全，这是北京市公安局的口头通知。我下午在浦东机场被警察阻止出国。<br><img src="http://ww3.sinaimg.cn/large/006etkmfgw1ewqoz19ap8j3021021dfn.jpg"></p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3894718239109029" target="freeweibo-mirror">天天跟毛子搞一起，万劫不复//@何兵: //@张晨初艺术空间…</a>
 </h2>
 <p>天天跟毛子搞一起，万劫不复//@何兵: //@张晨初艺术空间:【奥巴马：美国不允许中国等国家来书写全球经济规则】12个泛太平洋国家就TPP协定达成基本协议后，美国总统奥巴马评论，TPP协定将给予美国工人应有的平等权利和机会，美国不允许中国等国家来书写全球经济的规则。http://t.cn/RyYq5Q6转</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3894714938018207" target="freeweibo-mirror">SPAM //@楚之歌者: [拜拜]//@五哥放羊40: /…</a>
-</h2>
-<p>SPAM //@楚之歌者: [拜拜]//@五哥放羊40: //@爱卿平身免礼吧: //@无欲的崖:[偷笑][思考]//@凭栏观潮001:[思考]//@张佳珅0: [思考]<br><br>RE: 真的麼？[挖鼻]<br><img src="http://ww4.sinaimg.cn/large/6321c2b9gw1ewqk8bosm8j20f00qo41y.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
