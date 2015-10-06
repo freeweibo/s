@@ -30,25 +30,25 @@
 </h2>
 <p>现在不能往美国跑了。阿姨吾爱嗷怕是要捡起来了。//@格物自资: 党的重大损失，又一个党的高级干部背弃了共产主义接班人的待遇，竟然投奔太君了。<br><br>RE: 全国工商联副主席、原中国民生银行董事长董文标以去日本参加国际金融会议为名，于9月26日上午从北京首都国际机场出境。<br><img src="http://ww4.sinaimg.cn/large/51c21d10gw1ewqh2ppxjqj20hs0a0q4g.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3894718804895474" target="freeweibo-mirror">邪教共党！//@广州区伯:只许州官杀人放火，不准百姓宰鸡点灯…</a>
 </h2>
 <p>邪教共党！//@广州区伯:只许州官杀人放火，不准百姓宰鸡点灯。特色！</p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3894718729323148" target="freeweibo-mirror">世界在权贵眼中算个屌！</a>
 </h2>
 <p>世界在权贵眼中算个屌！</p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3894718239109029" target="freeweibo-mirror">天天跟毛子搞一起，万劫不复//@何兵: //@张晨初艺术空间…</a>
 </h2>
 <p>天天跟毛子搞一起，万劫不复//@何兵: //@张晨初艺术空间:【奥巴马：美国不允许中国等国家来书写全球经济规则】12个泛太平洋国家就TPP协定达成基本协议后，美国总统奥巴马评论，TPP协定将给予美国工人应有的平等权利和机会，美国不允许中国等国家来书写全球经济的规则。http://t.cn/RyYq5Q6转</p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3894714938018207" target="freeweibo-mirror">SPAM //@楚之歌者: [拜拜]//@五哥放羊40: /…</a>
 </h2>
@@ -60,7 +60,7 @@
 </h2>
 <p>高<br><br>RE: 全国工商联副主席、原中国民生银行董事长董文标以去日本参加国际金融会议为名，于9月26日上午从北京首都国际机场出境。<br><img src="http://ww4.sinaimg.cn/large/51c21d10gw1ewqh2ppxjqj20hs0a0q4g.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3894699284298032" target="freeweibo-mirror">SPAM 长者已经看透了一切。[哈哈]</a>
 </h2>
