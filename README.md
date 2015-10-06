@@ -36,7 +36,7 @@
 </h2>
 <p>“我真的不知道……我并没有一台机器来测算身体里的氧气是不是足够。”面对外媒针对空气质量的提问，特松加无奈的说道。 // #我在看新闻# 《中网球员炮轰雾霾:以后不来了》 http://t.cn/RyYuO7K，相关专题 http://t.cn/RyYuB8U 来自@腾讯新闻客户端</p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3894923507867313" target="freeweibo-mirror">SPAM DSL分线盒？</a>
 </h2>
@@ -54,7 +54,7 @@
 </h2>
 <p>索马里海盗有句格言：“买面包只能吃一天，买把枪能吃一辈子。”——比这些海盗更流氓的是一个强盗说：“枪杆子里出政权。<br><img src="http://ww3.sinaimg.cn/large/0060nU4Mgw1ewr9j9bt1nj30cs0h1jrk.jpg"></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3894904767815579" target="freeweibo-mirror">SPAM 中国也可以发起另一个TPP[doge]</a>
 </h2>
