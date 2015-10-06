@@ -48,7 +48,7 @@
 </h2>
 <p>SPAM  //@王祖哲:我看了。。//@李永强CN: @王祖哲</p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3894883686901121" target="freeweibo-mirror">//@彭城金氏--1022: //@调侃几句儿: 太有才了 …</a>
 </h2>
@@ -85,6 +85,12 @@
 <p>终于有中国国籍的人获得诺贝尔科学奖了！叫人百感交集。有关方面不会“抗议”、不会说是西方的“意识形态偏见”了吧？对于中国权力者来说，诺贝尔奖是个“刺猬体”，对之垂涎三尺，可又不敢热烈拥抱；如果拥抱了，那怎么面对诺贝尔和平奖？那个获诺贝尔和平奖的老同学还在大墙里呢，已经7年了。</p>
 <p>
 	<small> ============== 10小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3894732654729557" target="freeweibo-mirror">冯正虎出境后可能危害国家安全，这是北京市公安局的口头通知。我…</a>
+</h2>
+<p>冯正虎出境后可能危害国家安全，这是北京市公安局的口头通知。我下午在浦东机场被警察阻止出国。<br><img src="http://ww3.sinaimg.cn/large/006etkmfgw1ewqoz19ap8j3021021dfn.jpg"></p>
+<p>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3894728527687287" target="freeweibo-mirror">艾未未说：他在家里发现窃听器了。扯淡呢吧，丫有什么好窃听的？…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3894710864889805" target="freeweibo-mirror">高</a>
 </h2>
 <p>高<br><br>RE: 全国工商联副主席、原中国民生银行董事长董文标以去日本参加国际金融会议为名，于9月26日上午从北京首都国际机场出境。<br><img src="http://ww4.sinaimg.cn/large/51c21d10gw1ewqh2ppxjqj20hs0a0q4g.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3894699284298032" target="freeweibo-mirror">SPAM 长者已经看透了一切。[哈哈]</a>
-</h2>
-<p>SPAM 长者已经看透了一切。[哈哈]<br><br>RE: 醉猴的<br><img src="http://ww4.sinaimg.cn/large/006a4vJWjw1ewqjehmqp1j30f10qoabn.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
