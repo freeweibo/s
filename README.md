@@ -60,7 +60,7 @@
 </h2>
 <p>SPAM 中国也可以发起另一个TPP[doge]</p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3894893673723917" target="freeweibo-mirror">SPAM 写的很到位！！//@IYALAN: //@张欧亚:…</a>
 </h2>
@@ -84,7 +84,7 @@
 </h2>
 <p>//@1俾1: //@杨月琴YQ:谁编的，太有才了。</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3894880432080688" target="freeweibo-mirror">//@杨月琴YQ: 谁编的，太有才了。</a>
 </h2>
