@@ -32,11 +32,17 @@
 <p>
 	<small> ============== 4小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3894921541101353" target="freeweibo-mirror">//@创造性的: //@泪洒博坛://@阳光赶走黑暗://@…</a>
+</h2>
+<p>//@创造性的: //@泪洒博坛://@阳光赶走黑暗://@泪洒博坛: //@沈向东大连://@杨宁远v:转发微博<br><br>RE: 中共官员的财产一旦公开，官员们就得原形毕露。中国就成为人类有史以来，世界上第一个“罪犯领导良民”的特色国家！【结语】中国特色就是一帮“罪犯领导良民，良民服从罪犯”的国家！</p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3894904767815579" target="freeweibo-mirror">SPAM 中国也可以发起另一个TPP[doge]</a>
 </h2>
 <p>SPAM 中国也可以发起另一个TPP[doge]</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3894893673723917" target="freeweibo-mirror">SPAM 写的很到位！！//@IYALAN: //@张欧亚:…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3894714938018207" target="freeweibo-mirror">SPAM //@楚之歌者: [拜拜]//@五哥放羊40: /…</a>
 </h2>
 <p>SPAM //@楚之歌者: [拜拜]//@五哥放羊40: //@爱卿平身免礼吧: //@无欲的崖:[偷笑][思考]//@凭栏观潮001:[思考]//@张佳珅0: [思考]<br><br>RE: 真的麼？[挖鼻]<br><img src="http://ww4.sinaimg.cn/large/6321c2b9gw1ewqk8bosm8j20f00qo41y.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3894710864889805" target="freeweibo-mirror">高</a>
-</h2>
-<p>高<br><br>RE: 全国工商联副主席、原中国民生银行董事长董文标以去日本参加国际金融会议为名，于9月26日上午从北京首都国际机场出境。<br><img src="http://ww4.sinaimg.cn/large/51c21d10gw1ewqh2ppxjqj20hs0a0q4g.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
