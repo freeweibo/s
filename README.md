@@ -66,7 +66,7 @@
 </h2>
 <p>SPAM 长者已经看透了一切。[哈哈]<br><br>RE: 醉猴的<br><img src="http://ww4.sinaimg.cn/large/006a4vJWjw1ewqjehmqp1j30f10qoabn.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3894691378272252" target="freeweibo-mirror">真的麼？[挖鼻]</a>
 </h2>
