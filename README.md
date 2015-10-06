@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3895021260133566" target="freeweibo-mirror">SPAM //@8度新闻: //@热血6132911: //…</a>
+</h2>
+<p>SPAM //@8度新闻: //@热血6132911: //@雄壮农副哥哥://@作家东海:背影<br><br>RE: 索马里海盗有句格言：“买面包只能吃一天，买把枪能吃一辈子。”——比这些海盗更流氓的是一个强盗说：“枪杆子里出政权。<br><img src="http://ww3.sinaimg.cn/large/0060nU4Mgw1ewr9j9bt1nj30cs0h1jrk.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3894999223880729" target="freeweibo-mirror">//@陈光武律师: //@法律小油灯: //@山高路远N:[…</a>
 </h2>
 <p>//@陈光武律师: //@法律小油灯: //@山高路远N:[疑问]//@怀仁和尚: 刘晓波！//@博者文摘:<br><br>RE: 去年莫言获得诺贝尔文学奖，舆论和民间纷纷跟风吹捧。今年屠呦呦获得医学奖，势必会火一段时间。可是别忘了，我们的和平奖获得者还在狱中！<br><img src="http://ww4.sinaimg.cn/large/005Qz0hYgw1ewqowvgh48j30b40dk0tc.jpg"></p>
@@ -66,7 +72,7 @@
 </h2>
 <p>//@彭城金氏--1022: //@调侃几句儿: 太有才了 //@杨月琴YQ: 谁编的，太有才了。</p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3894881917193842" target="freeweibo-mirror">//@1俾1: //@杨月琴YQ:谁编的，太有才了。</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3894719245073147" target="freeweibo-mirror">现在不能往美国跑了。阿姨吾爱嗷怕是要捡起来了。//@格物自资…</a>
 </h2>
 <p>现在不能往美国跑了。阿姨吾爱嗷怕是要捡起来了。//@格物自资: 党的重大损失，又一个党的高级干部背弃了共产主义接班人的待遇，竟然投奔太君了。<br><br>RE: 全国工商联副主席、原中国民生银行董事长董文标以去日本参加国际金融会议为名，于9月26日上午从北京首都国际机场出境。<br><img src="http://ww4.sinaimg.cn/large/51c21d10gw1ewqh2ppxjqj20hs0a0q4g.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3894718804895474" target="freeweibo-mirror">邪教共党！//@广州区伯:只许州官杀人放火，不准百姓宰鸡点灯…</a>
-</h2>
-<p>邪教共党！//@广州区伯:只许州官杀人放火，不准百姓宰鸡点灯。特色！</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
