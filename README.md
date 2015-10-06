@@ -44,6 +44,24 @@
 <p>
 	<small> ============== 4小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3894881917193842" target="freeweibo-mirror">//@1俾1: //@杨月琴YQ:谁编的，太有才了。</a>
+</h2>
+<p>//@1俾1: //@杨月琴YQ:谁编的，太有才了。</p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3894880432080688" target="freeweibo-mirror">//@杨月琴YQ: 谁编的，太有才了。</a>
+</h2>
+<p>//@杨月琴YQ: 谁编的，太有才了。</p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3894878121272761" target="freeweibo-mirror">领导领导你真坏，背着老婆谈恋爱；三妻四妾旧时代，如今不敢胡乱…</a>
+</h2>
+<p>领导领导你真坏，背着老婆谈恋爱；三妻四妾旧时代，如今不敢胡乱来；偷偷摸摸半公开，统一称谓叫二奶。领导领导你真坏，滋补营养随身带；虫草伟哥你最爱，买了套子也不戴； 不是做官就做爱，想多痛快多痛快。 领导领导你真坏，扫黄打非口朝外； 回到家里看黄带，...... http://t.cn/RyYjyag</p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3894871993626524" target="freeweibo-mirror">悲催的 //@勇勇--80后:转发微博</a>
 </h2>
 <p>悲催的 //@勇勇--80后:转发微博</p>
@@ -119,24 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3894670658926831" target="freeweibo-mirror">//@公民石皓伟: 权力有强奸一切的冲动。//@杜君立://…</a>
 </h2>
 <p>//@公民石皓伟: 权力有强奸一切的冲动。//@杜君立://@肖铁: 幸亏国际上还有个诺贝尔奖，不在中国政府控制的范围内。//@京都观潮: 在这国家，科学也官化了，科学头衔，演变为官衔。</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3894663956401041" target="freeweibo-mirror">全国工商联副主席、原中国民生银行董事长董文标以去日本参加国际…</a>
-</h2>
-<p>全国工商联副主席、原中国民生银行董事长董文标以去日本参加国际金融会议为名，于9月26日上午从北京首都国际机场出境。<br><img src="http://ww4.sinaimg.cn/large/51c21d10gw1ewqh2ppxjqj20hs0a0q4g.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3894628572809995" target="freeweibo-mirror">SPAM //@安凡2011://@王修216: //@歷史…</a>
-</h2>
-<p>SPAM //@安凡2011://@王修216: //@歷史钩沉://@深川胡骏: //@急煞人也: //@50年矛苔: //@五哥放羊40:转发微博<br><br>RE: 深度好文，分析的不错！<br><img src="http://ww3.sinaimg.cn/large/005AbEVcjw1ewq7zsnh5kj30hs4q0e81.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3894627519928511" target="freeweibo-mirror">SPAM [哈哈]//@涂鸦居士: //@去V的刘建锋: 老…</a>
-</h2>
-<p>SPAM [哈哈]//@涂鸦居士: //@去V的刘建锋: 老吴好文 //@swansu_yw: //@急煞人也: //@50年矛苔: //@五哥放羊40:转发微博<br><br>RE: 深度好文，分析的不错！<br><img src="http://ww3.sinaimg.cn/large/005AbEVcjw1ewq7zsnh5kj30hs4q0e81.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
