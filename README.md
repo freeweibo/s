@@ -66,7 +66,7 @@
 </h2>
 <p>SPAM 中国也可以发起另一个TPP[doge]</p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3894893673723917" target="freeweibo-mirror">SPAM 写的很到位！！//@IYALAN: //@张欧亚:…</a>
 </h2>
