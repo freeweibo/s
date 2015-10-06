@@ -48,7 +48,7 @@
 </h2>
 <p>SPAM //@8度新闻: //@热血6132911: //@雄壮农副哥哥://@作家东海:背影<br><br>RE: 索马里海盗有句格言：“买面包只能吃一天，买把枪能吃一辈子。”——比这些海盗更流氓的是一个强盗说：“枪杆子里出政权。<br><img src="http://ww3.sinaimg.cn/large/0060nU4Mgw1ewr9j9bt1nj30cs0h1jrk.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3894999223880729" target="freeweibo-mirror">//@陈光武律师: //@法律小油灯: //@山高路远N:[…</a>
 </h2>
