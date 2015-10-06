@@ -54,7 +54,7 @@
 </h2>
 <p>SPAM //@楚之歌者: [拜拜]//@五哥放羊40: //@爱卿平身免礼吧: //@无欲的崖:[偷笑][思考]//@凭栏观潮001:[思考]//@张佳珅0: [思考]<br><br>RE: 真的麼？[挖鼻]<br><img src="http://ww4.sinaimg.cn/large/6321c2b9gw1ewqk8bosm8j20f00qo41y.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3894710864889805" target="freeweibo-mirror">高</a>
 </h2>
