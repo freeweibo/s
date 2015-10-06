@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3895031205087341" target="freeweibo-mirror">#中国梦宪政梦#</a>
+</h2>
+<p>#中国梦宪政梦#<br><br>RE: TPP是把Google赶出国门，封锁网络，破坏世界游戏规则的苦果。刚刚有几个钱就以土豪土匪自居，到处横冲直闯，践踏世界游戏规则，与世界普适潮流背道而驰，更苦的果子还在后面。与人类共性作对一定失败，把民族个性丢失也绝难成功。二者都不具备，就是一败涂地！</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3895021260133566" target="freeweibo-mirror">SPAM //@8度新闻: //@热血6132911: //…</a>
 </h2>
 <p>SPAM //@8度新闻: //@热血6132911: //@雄壮农副哥哥://@作家东海:背影<br><br>RE: 索马里海盗有句格言：“买面包只能吃一天，买把枪能吃一辈子。”——比这些海盗更流氓的是一个强盗说：“枪杆子里出政权。<br><img src="http://ww3.sinaimg.cn/large/0060nU4Mgw1ewr9j9bt1nj30cs0h1jrk.jpg"></p>
@@ -48,7 +54,7 @@
 </h2>
 <p>//@创造性的: //@泪洒博坛://@阳光赶走黑暗://@泪洒博坛: //@沈向东大连://@杨宁远v:转发微博<br><br>RE: 中共官员的财产一旦公开，官员们就得原形毕露。中国就成为人类有史以来，世界上第一个“罪犯领导良民”的特色国家！【结语】中国特色就是一帮“罪犯领导良民，良民服从罪犯”的国家！</p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3894911655236986" target="freeweibo-mirror">索马里海盗有句格言：“买面包只能吃一天，买把枪能吃一辈子。”…</a>
 </h2>
@@ -78,7 +84,7 @@
 </h2>
 <p>//@彭城金氏--1022: //@调侃几句儿: 太有才了 //@杨月琴YQ: 谁编的，太有才了。</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3894881917193842" target="freeweibo-mirror">//@1俾1: //@杨月琴YQ:谁编的，太有才了。</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3894728527687287" target="freeweibo-mirror">艾未未说：他在家里发现窃听器了。扯淡呢吧，丫有什么好窃听的？…</a>
 </h2>
 <p>艾未未说：他在家里发现窃听器了。扯淡呢吧，丫有什么好窃听的？还有照片呢，专家看看这是窃听器吗？http://t.cn/RyYcEBV</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3894725142550277" target="freeweibo-mirror">SPAM 公布答案</a>
-</h2>
-<p>SPAM 公布答案</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
