@@ -42,7 +42,7 @@
 </h2>
 <p>SPAM  //@王祖哲:我看了。。//@李永强CN: @王祖哲</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3894883686901121" target="freeweibo-mirror">//@彭城金氏--1022: //@调侃几句儿: 太有才了 …</a>
 </h2>
@@ -79,6 +79,12 @@
 <p>终于有中国国籍的人获得诺贝尔科学奖了！叫人百感交集。有关方面不会“抗议”、不会说是西方的“意识形态偏见”了吧？对于中国权力者来说，诺贝尔奖是个“刺猬体”，对之垂涎三尺，可又不敢热烈拥抱；如果拥抱了，那怎么面对诺贝尔和平奖？那个获诺贝尔和平奖的老同学还在大墙里呢，已经7年了。</p>
 <p>
 	<small> ============== 8小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3894728527687287" target="freeweibo-mirror">艾未未说：他在家里发现窃听器了。扯淡呢吧，丫有什么好窃听的？…</a>
+</h2>
+<p>艾未未说：他在家里发现窃听器了。扯淡呢吧，丫有什么好窃听的？还有照片呢，专家看看这是窃听器吗？http://t.cn/RyYcEBV</p>
+<p>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3894725142550277" target="freeweibo-mirror">SPAM 公布答案</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3894691378272252" target="freeweibo-mirror">真的麼？[挖鼻]</a>
 </h2>
 <p>真的麼？[挖鼻]<br><img src="http://ww4.sinaimg.cn/large/6321c2b9gw1ewqk8bosm8j20f00qo41y.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3894684168933405" target="freeweibo-mirror">醉猴的</a>
-</h2>
-<p>醉猴的<br><img src="http://ww4.sinaimg.cn/large/006a4vJWjw1ewqjehmqp1j30f10qoabn.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
