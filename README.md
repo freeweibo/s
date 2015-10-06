@@ -54,7 +54,7 @@
 </h2>
 <p>//@陈光武律师: //@法律小油灯: //@山高路远N:[疑问]//@怀仁和尚: 刘晓波！//@博者文摘:<br><br>RE: 去年莫言获得诺贝尔文学奖，舆论和民间纷纷跟风吹捧。今年屠呦呦获得医学奖，势必会火一段时间。可是别忘了，我们的和平奖获得者还在狱中！<br><img src="http://ww4.sinaimg.cn/large/005Qz0hYgw1ewqowvgh48j30b40dk0tc.jpg"></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3894926243146616" target="freeweibo-mirror">“我真的不知道……我并没有一台机器来测算身体里的氧气是不是足…</a>
 </h2>
