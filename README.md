@@ -68,6 +68,12 @@
 <p>
 	<small> ============== 5小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3894842217844918" target="freeweibo-mirror">终于有中国国籍的人获得诺贝尔科学奖了！叫人百感交集。有关方面…</a>
+</h2>
+<p>终于有中国国籍的人获得诺贝尔科学奖了！叫人百感交集。有关方面不会“抗议”、不会说是西方的“意识形态偏见”了吧？对于中国权力者来说，诺贝尔奖是个“刺猬体”，对之垂涎三尺，可又不敢热烈拥抱；如果拥抱了，那怎么面对诺贝尔和平奖？那个获诺贝尔和平奖的老同学还在大墙里呢，已经7年了。</p>
+<p>
+	<small> ============== 7小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3894725142550277" target="freeweibo-mirror">SPAM 公布答案</a>
 </h2>
 <p>SPAM 公布答案</p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3894673607013354" target="freeweibo-mirror">SPAM 我觉得诺贝尔和平奖可以发给我，因为我是真的很热爱和…</a>
 </h2>
 <p>SPAM 我觉得诺贝尔和平奖可以发给我，因为我是真的很热爱和平。<br><img src="http://ww4.sinaimg.cn/large/593f6eacgw1ewqi5zb5y5j20dc0hs0ue.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3894670658926831" target="freeweibo-mirror">//@公民石皓伟: 权力有强奸一切的冲动。//@杜君立://…</a>
-</h2>
-<p>//@公民石皓伟: 权力有强奸一切的冲动。//@杜君立://@肖铁: 幸亏国际上还有个诺贝尔奖，不在中国政府控制的范围内。//@京都观潮: 在这国家，科学也官化了，科学头衔，演变为官衔。</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
