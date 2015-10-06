@@ -50,6 +50,12 @@
 <p>
 	<small> ============== 8小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3894911655236986" target="freeweibo-mirror">索马里海盗有句格言：“买面包只能吃一天，买把枪能吃一辈子。”…</a>
+</h2>
+<p>索马里海盗有句格言：“买面包只能吃一天，买把枪能吃一辈子。”——比这些海盗更流氓的是一个强盗说：“枪杆子里出政权。<br><img src="http://ww3.sinaimg.cn/large/0060nU4Mgw1ewr9j9bt1nj30cs0h1jrk.jpg"></p>
+<p>
+	<small> ============== 9小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3894904767815579" target="freeweibo-mirror">SPAM 中国也可以发起另一个TPP[doge]</a>
 </h2>
 <p>SPAM 中国也可以发起另一个TPP[doge]</p>
@@ -66,7 +72,7 @@
 </h2>
 <p>SPAM  //@王祖哲:我看了。。//@李永强CN: @王祖哲</p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3894883686901121" target="freeweibo-mirror">//@彭城金氏--1022: //@调侃几句儿: 太有才了 …</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3894725142550277" target="freeweibo-mirror">SPAM 公布答案</a>
 </h2>
 <p>SPAM 公布答案</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3894719245073147" target="freeweibo-mirror">现在不能往美国跑了。阿姨吾爱嗷怕是要捡起来了。//@格物自资…</a>
-</h2>
-<p>现在不能往美国跑了。阿姨吾爱嗷怕是要捡起来了。//@格物自资: 党的重大损失，又一个党的高级干部背弃了共产主义接班人的待遇，竟然投奔太君了。<br><br>RE: 全国工商联副主席、原中国民生银行董事长董文标以去日本参加国际金融会议为名，于9月26日上午从北京首都国际机场出境。<br><img src="http://ww4.sinaimg.cn/large/51c21d10gw1ewqh2ppxjqj20hs0a0q4g.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
