@@ -60,7 +60,7 @@
 </h2>
 <p>索马里海盗有句格言：“买面包只能吃一天，买把枪能吃一辈子。”——比这些海盗更流氓的是一个强盗说：“枪杆子里出政权。<br><img src="http://ww3.sinaimg.cn/large/0060nU4Mgw1ewr9j9bt1nj30cs0h1jrk.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3894904767815579" target="freeweibo-mirror">SPAM 中国也可以发起另一个TPP[doge]</a>
 </h2>
