@@ -36,7 +36,7 @@
 </h2>
 <p>//@陈光武律师: //@法律小油灯: //@山高路远N:[疑问]//@怀仁和尚: 刘晓波！//@博者文摘:<br><br>RE: 去年莫言获得诺贝尔文学奖，舆论和民间纷纷跟风吹捧。今年屠呦呦获得医学奖，势必会火一段时间。可是别忘了，我们的和平奖获得者还在狱中！<br><img src="http://ww4.sinaimg.cn/large/005Qz0hYgw1ewqowvgh48j30b40dk0tc.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3894926243146616" target="freeweibo-mirror">“我真的不知道……我并没有一台机器来测算身体里的氧气是不是足…</a>
 </h2>
@@ -48,7 +48,7 @@
 </h2>
 <p>SPAM DSL分线盒？<br><br>RE: 艾未未说：他在家里发现窃听器了。扯淡呢吧，丫有什么好窃听的？还有照片呢，专家看看这是窃听器吗？http://t.cn/RyYcEBV</p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3894921541101353" target="freeweibo-mirror">//@创造性的: //@泪洒博坛://@阳光赶走黑暗://@…</a>
 </h2>
@@ -72,7 +72,7 @@
 </h2>
 <p>SPAM 写的很到位！！//@IYALAN: //@张欧亚:？？？//@赵克罗: //@王祖哲:我看了。。//@李永强CN: @王祖哲</p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3894888061678755" target="freeweibo-mirror">SPAM  //@王祖哲:我看了。。//@李永强CN: @王…</a>
 </h2>
@@ -116,6 +116,12 @@
 <p>
 	<small> ============== 1天前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3894838292337072" target="freeweibo-mirror">TPP是把Google赶出国门，封锁网络，破坏世界游戏规则的…</a>
+</h2>
+<p>TPP是把Google赶出国门，封锁网络，破坏世界游戏规则的苦果。刚刚有几个钱就以土豪土匪自居，到处横冲直闯，践踏世界游戏规则，与世界普适潮流背道而驰，更苦的果子还在后面。与人类共性作对一定失败，把民族个性丢失也绝难成功。二者都不具备，就是一败涂地！</p>
+<p>
+	<small> ============== 1天前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3894749641869572" target="freeweibo-mirror">中共官员的财产一旦公开，官员们就得原形毕露。中国就成为人类有…</a>
 </h2>
 <p>中共官员的财产一旦公开，官员们就得原形毕露。中国就成为人类有史以来，世界上第一个“罪犯领导良民”的特色国家！【结语】中国特色就是一帮“罪犯领导良民，良民服从罪犯”的国家！</p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3894732088742546" target="freeweibo-mirror">去年莫言获得诺贝尔文学奖，舆论和民间纷纷跟风吹捧。今年屠呦呦…</a>
 </h2>
 <p>去年莫言获得诺贝尔文学奖，舆论和民间纷纷跟风吹捧。今年屠呦呦获得医学奖，势必会火一段时间。可是别忘了，我们的和平奖获得者还在狱中！<br><img src="http://ww4.sinaimg.cn/large/005Qz0hYgw1ewqowvgh48j30b40dk0tc.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3894728527687287" target="freeweibo-mirror">艾未未说：他在家里发现窃听器了。扯淡呢吧，丫有什么好窃听的？…</a>
-</h2>
-<p>艾未未说：他在家里发现窃听器了。扯淡呢吧，丫有什么好窃听的？还有照片呢，专家看看这是窃听器吗？http://t.cn/RyYcEBV</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
