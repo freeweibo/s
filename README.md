@@ -78,7 +78,7 @@
 </h2>
 <p>醉猴的<br><img src="http://ww4.sinaimg.cn/large/006a4vJWjw1ewqjehmqp1j30f10qoabn.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3894673607013354" target="freeweibo-mirror">SPAM 我觉得诺贝尔和平奖可以发给我，因为我是真的很热爱和…</a>
 </h2>
