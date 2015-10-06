@@ -24,7 +24,7 @@
 </h2>
 <p>SPAM 中国也可以发起另一个TPP[doge]</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3894871993626524" target="freeweibo-mirror">悲催的 //@勇勇--80后:转发微博</a>
 </h2>
