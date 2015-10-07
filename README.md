@@ -90,7 +90,7 @@
 </h2>
 <p>限制自由、镇压人民，完全是日德意法西斯的一脉真传，无论如何贴金绘彩，也没办法让吃过自由果实的人士，尝出一点民主的甜味的。——《新华日报》1944年3月5日<br><img src="http://ww1.sinaimg.cn/large/006erSCNgw1ewst3jkychj30cs09laba.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3895390695007229" target="freeweibo-mirror">李总理这话，前年就说过一次了，今天又说了一次。</a>
 </h2>
@@ -126,7 +126,7 @@
 </h2>
 <p>SPAM 刘晓波 - 百度百科 http://t.cn/RyTky5b</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3895289959721649" target="freeweibo-mirror">//@霜叶9S: [哈哈]//@决不-妥协: [哈哈] //…</a>
 </h2>
