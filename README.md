@@ -120,13 +120,13 @@
 </h2>
 <p>李总理这话，前年就说过一次了，今天又说了一次。<br><img src="http://ww2.sinaimg.cn/large/72ae17c5gw1ewssjhfto6j20ht0gct9n.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3895383341829037" target="freeweibo-mirror">从TPP达成协议这事上，中国要吸取两点教训：一是为自身的长远…</a>
 </h2>
 <p>从TPP达成协议这事上，中国要吸取两点教训：一是为自身的长远利益考虑，要遵守国际规则。切莫偷鸡摸狗行屑小之事，自绝于国际社会；二是对自身的国际定位要准确，“主导国际规则”这身份，洒银子是买不来的，得自身具有“登高一呼，应者云集”的道德感召力…… http://t.cn/RyHqwQE</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3895362412308873" target="freeweibo-mirror">SPAM 长假结束了，忧桑！啥都写不下去，又想刷地图册了。话…</a>
 </h2>
