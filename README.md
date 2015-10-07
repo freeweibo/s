@@ -30,7 +30,7 @@
 </h2>
 <p>SPAM 发表了一篇转载博文《[转载]贺卫方：朝廷如流水 故国河长在》http://t.cn/RyHiHVA</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3895430788145390" target="freeweibo-mirror"></a>
 </h2>
@@ -72,7 +72,7 @@
 </h2>
 <p>TPP是啥？@外交小灵通 如此回。<br><br>RE: 【何以如此】昨天《金融时报》头版报道TPP，其中直接引用奥巴马的话：“我们不能容许如中国这类国家订立全球经济的规则。”在中国领导人刚刚结束国事访问之时，美国总统居然对中国发出如此狠话，令人有些不明就里，不知道哪里出了问题了。<br><img src="http://ww3.sinaimg.cn/large/48866320jw1ewskq7ncoqj21kw23ux6p.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3895400337757567" target="freeweibo-mirror">中国政治舆论正陷入混乱期。</a>
 </h2>
@@ -89,6 +89,12 @@
 	<a href="https://freeweibo.com/weibo/3895395450749827" target="freeweibo-mirror">限制自由、镇压人民，完全是日德意法西斯的一脉真传，无论如何贴…</a>
 </h2>
 <p>限制自由、镇压人民，完全是日德意法西斯的一脉真传，无论如何贴金绘彩，也没办法让吃过自由果实的人士，尝出一点民主的甜味的。——《新华日报》1944年3月5日<br><img src="http://ww1.sinaimg.cn/large/006erSCNgw1ewst3jkychj30cs09laba.jpg"></p>
+<p>
+	<small> ============== 5小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3895390695007229" target="freeweibo-mirror">李总理这话，前年就说过一次了，今天又说了一次。</a>
+</h2>
+<p>李总理这话，前年就说过一次了，今天又说了一次。<br><img src="http://ww2.sinaimg.cn/large/72ae17c5gw1ewssjhfto6j20ht0gct9n.jpg"></p>
 <p>
 	<small> ============== 5小时前</small>
 </p><h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3895260931888898" target="freeweibo-mirror">SPAM 小小白居然住我们新家楼下！！！！！我要再去证实一下…</a>
 </h2>
 <p>SPAM 小小白居然住我们新家楼下！！！！！我要再去证实一下！！！ http://t.cn/RyCUuUn</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3895235375333031" target="freeweibo-mirror">SPAM 一个很赞的男装撘配徽博，快关注@男士搭配师</a>
-</h2>
-<p>SPAM 一个很赞的男装撘配徽博，快关注@男士搭配师</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
