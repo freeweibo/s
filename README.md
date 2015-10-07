@@ -132,7 +132,7 @@
 </h2>
 <p>SPAM 长假结束了，忧桑！啥都写不下去，又想刷地图册了。话说，明天路上，车少多了吧？[酷][去旅行]<br><img src="http://ww3.sinaimg.cn/large/495710e0jw1ewsp8t27r2j20fr0d640a.jpg"></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3895345391972327" target="freeweibo-mirror">SPAM //@金一宁: 北大最大牌的校友不应该是躺在天安门…</a>
 </h2>
