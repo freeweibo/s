@@ -90,7 +90,7 @@
 </h2>
 <p>//@托尼富:→_→[哈哈]//@台北县令: 重要的话说三遍[哈哈]<br><br>RE: 李总理这话，前年就说过一次了，今天又说了一次。<br><img src="http://ww2.sinaimg.cn/large/72ae17c5gw1ewssjhfto6j20ht0gct9n.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3895402342696262" target="freeweibo-mirror">TPP是啥？@外交小灵通 如此回。</a>
 </h2>
