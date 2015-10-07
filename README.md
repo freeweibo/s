@@ -120,7 +120,7 @@
 </h2>
 <p>李总理这话，前年就说过一次了，今天又说了一次。<br><img src="http://ww2.sinaimg.cn/large/72ae17c5gw1ewssjhfto6j20ht0gct9n.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3895383341829037" target="freeweibo-mirror">从TPP达成协议这事上，中国要吸取两点教训：一是为自身的长远…</a>
 </h2>
