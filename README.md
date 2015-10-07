@@ -26,6 +26,18 @@
 <p>
 	<small> ============== 1小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3895415340804380" target="freeweibo-mirror">确实，从邓以后，基本上废除了对党内不同路线者进行肉体迫害和精…</a>
+</h2>
+<p>确实，从邓以后，基本上废除了对党内不同路线者进行肉体迫害和精神羞辱的做法。</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3895409816484048" target="freeweibo-mirror">【谁不厚道？】当年华取代邓上去后就公开批邓，而且粉碎“四人帮…</a>
+</h2>
+<p>【谁不厚道？】当年华取代邓上去后就公开批邓，而且粉碎“四人帮”后继续公开批邓。反之，华下去后邓没有公开批华，而且保留其中央委员职务和生活待遇。在这种对比中，如果指责邓不厚道，那岂不是太不厚道了吗？<br><img src="http://ww3.sinaimg.cn/large/daa5b8bfjw1ewsuqaesqyj20i20dl0v2.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3895400337757567" target="freeweibo-mirror">中国政治舆论正陷入混乱期。</a>
 </h2>
 <p>中国政治舆论正陷入混乱期。</p>
@@ -54,7 +66,7 @@
 </h2>
 <p>//@霜叶9S: [哈哈]//@决不-妥协: [哈哈] //@星-辰-D37://@冷眼之世界-3: [哈哈]//@云韵天涯: [哈哈]//@土豆报社: [哈哈]</p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3895260931888898" target="freeweibo-mirror">SPAM 小小白居然住我们新家楼下！！！！！我要再去证实一下…</a>
 </h2>
@@ -125,18 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3894923507867313" target="freeweibo-mirror">SPAM DSL分线盒？</a>
 </h2>
 <p>SPAM DSL分线盒？<br><br>RE: 艾未未说：他在家里发现窃听器了。扯淡呢吧，丫有什么好窃听的？还有照片呢，专家看看这是窃听器吗？http://t.cn/RyYcEBV</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3894921541101353" target="freeweibo-mirror">//@创造性的: //@泪洒博坛://@阳光赶走黑暗://@…</a>
-</h2>
-<p>//@创造性的: //@泪洒博坛://@阳光赶走黑暗://@泪洒博坛: //@沈向东大连://@杨宁远v:转发微博<br><br>RE: 中共官员的财产一旦公开，官员们就得原形毕露。中国就成为人类有史以来，世界上第一个“罪犯领导良民”的特色国家！【结语】中国特色就是一帮“罪犯领导良民，良民服从罪犯”的国家！</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3894911655236986" target="freeweibo-mirror">索马里海盗有句格言：“买面包只能吃一天，买把枪能吃一辈子。”…</a>
-</h2>
-<p>索马里海盗有句格言：“买面包只能吃一天，买把枪能吃一辈子。”——比这些海盗更流氓的是一个强盗说：“枪杆子里出政权。<br><img src="http://ww3.sinaimg.cn/large/0060nU4Mgw1ewr9j9bt1nj30cs0h1jrk.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
