@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3895432985614053" target="freeweibo-mirror">就这样一点点让整个世界所鄙视 //@章文的文章:当年说得多好…</a>
+</h2>
+<p>就这样一点点让整个世界所鄙视 //@章文的文章:当年说得多好呀！<br><br>RE: 限制自由、镇压人民，完全是日德意法西斯的一脉真传，无论如何贴金绘彩，也没办法让吃过自由果实的人士，尝出一点民主的甜味的。——《新华日报》1944年3月5日<br><img src="http://ww1.sinaimg.cn/large/006erSCNgw1ewst3jkychj30cs09laba.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3895432586990329" target="freeweibo-mirror">SPAM 发表了一篇转载博文《[转载]贺卫方：朝廷如流水 故…</a>
 </h2>
 <p>SPAM 发表了一篇转载博文《[转载]贺卫方：朝廷如流水 故国河长在》http://t.cn/RyHiHVA</p>
@@ -96,7 +102,7 @@
 </h2>
 <p>//@霜叶9S: [哈哈]//@决不-妥协: [哈哈] //@星-辰-D37://@冷眼之世界-3: [哈哈]//@云韵天涯: [哈哈]//@土豆报社: [哈哈]</p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3895260931888898" target="freeweibo-mirror">SPAM 小小白居然住我们新家楼下！！！！！我要再去证实一下…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3895061538295211" target="freeweibo-mirror">【补发热门电影资源】昨天有人说没收到……补发最近10部热播影…</a>
 </h2>
 <p>【补发热门电影资源】昨天有人说没收到……补发最近10部热播影视大片：《九.层妖.塔》《港.囧》《解救.吾先生》《夏.洛特烦恼》《我的少女时代》《第三种爱情》《头脑.特工队》《蜀山战纪》《碟中谍5》《小黄人》……今晚23:11准时放高清电影资源，过时不候，转给你的好友一起看吧！[doge]<br><img src="http://ww4.sinaimg.cn/large/005ICMVKgw1ewrqq82q8uj30bw0godit.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3895031205087341" target="freeweibo-mirror">#中国梦宪政梦#</a>
-</h2>
-<p>#中国梦宪政梦#<br><br>RE: TPP是把Google赶出国门，封锁网络，破坏世界游戏规则的苦果。刚刚有几个钱就以土豪土匪自居，到处横冲直闯，践踏世界游戏规则，与世界普适潮流背道而驰，更苦的果子还在后面。与人类共性作对一定失败，把民族个性丢失也绝难成功。二者都不具备，就是一败涂地！</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
