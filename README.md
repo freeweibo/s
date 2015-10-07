@@ -24,7 +24,7 @@
 </h2>
 <p>中国政治舆论正陷入混乱期。</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3895362412308873" target="freeweibo-mirror">SPAM 长假结束了，忧桑！啥都写不下去，又想刷地图册了。话…</a>
 </h2>
