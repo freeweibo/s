@@ -36,7 +36,7 @@
 </h2>
 <p>SPAM 漂亮[好爱哦]</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3895066949124076" target="freeweibo-mirror">SPAM 转 //@神一般的回复:都想看！！[色][色][色…</a>
 </h2>
