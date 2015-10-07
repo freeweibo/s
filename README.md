@@ -86,11 +86,17 @@
 <p>
 	<small> ============== 4小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3895395450749827" target="freeweibo-mirror">限制自由、镇压人民，完全是日德意法西斯的一脉真传，无论如何贴…</a>
+</h2>
+<p>限制自由、镇压人民，完全是日德意法西斯的一脉真传，无论如何贴金绘彩，也没办法让吃过自由果实的人士，尝出一点民主的甜味的。——《新华日报》1944年3月5日<br><img src="http://ww1.sinaimg.cn/large/006erSCNgw1ewst3jkychj30cs09laba.jpg"></p>
+<p>
+	<small> ============== 5小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3895383341829037" target="freeweibo-mirror">从TPP达成协议这事上，中国要吸取两点教训：一是为自身的长远…</a>
 </h2>
 <p>从TPP达成协议这事上，中国要吸取两点教训：一是为自身的长远利益考虑，要遵守国际规则。切莫偷鸡摸狗行屑小之事，自绝于国际社会；二是对自身的国际定位要准确，“主导国际规则”这身份，洒银子是买不来的，得自身具有“登高一呼，应者云集”的道德感召力…… http://t.cn/RyHqwQE</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3895362412308873" target="freeweibo-mirror">SPAM 长假结束了，忧桑！啥都写不下去，又想刷地图册了。话…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3895230900009905" target="freeweibo-mirror">//@袁裕来律师: 我们满怀期待。//@远洋归航2：改革总是…</a>
 </h2>
 <p>//@袁裕来律师: 我们满怀期待。//@远洋归航2：改革总是走投无路时候的选择，这是一个很好的机会！<br><br>RE: 【TPP达成协议 中国历史变局将被启动】新协议成为有条件世界自由贸易的新规则，中国被排除在外，规模占全球4成的巨大经济圈将应运而生。是顺应世界自由贸易规则，对非市场经济的政治经济体制进行彻底改革，还是扭头回到1978年前的闭关锁国的国家主义经济体制，端看中国的选择。http://t.cn/RyYBl8L<br><img src="http://ww2.sinaimg.cn/large/41693645gw1ewrcomtz2vj20fa09l75x.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3895095524475605" target="freeweibo-mirror">SPAM 漂亮[好爱哦]</a>
-</h2>
-<p>SPAM 漂亮[好爱哦]</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
