@@ -24,7 +24,7 @@
 </h2>
 <p>就这样一点点让整个世界所鄙视 //@章文的文章:当年说得多好呀！<br><br>RE: 限制自由、镇压人民，完全是日德意法西斯的一脉真传，无论如何贴金绘彩，也没办法让吃过自由果实的人士，尝出一点民主的甜味的。——《新华日报》1944年3月5日<br><img src="http://ww1.sinaimg.cn/large/006erSCNgw1ewst3jkychj30cs09laba.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3895432586990329" target="freeweibo-mirror">SPAM 发表了一篇转载博文《[转载]贺卫方：朝廷如流水 故…</a>
 </h2>
@@ -126,13 +126,13 @@
 </h2>
 <p>SPAM 刘晓波 - 百度百科 http://t.cn/RyTky5b</p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3895289959721649" target="freeweibo-mirror">//@霜叶9S: [哈哈]//@决不-妥协: [哈哈] //…</a>
 </h2>
 <p>//@霜叶9S: [哈哈]//@决不-妥协: [哈哈] //@星-辰-D37://@冷眼之世界-3: [哈哈]//@云韵天涯: [哈哈]//@土豆报社: [哈哈]</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3895260931888898" target="freeweibo-mirror">SPAM 小小白居然住我们新家楼下！！！！！我要再去证实一下…</a>
 </h2>
