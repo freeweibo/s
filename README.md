@@ -36,7 +36,7 @@
 </h2>
 <p>就这样一点点让整个世界所鄙视 //@章文的文章:当年说得多好呀！<br><br>RE: 限制自由、镇压人民，完全是日德意法西斯的一脉真传，无论如何贴金绘彩，也没办法让吃过自由果实的人士，尝出一点民主的甜味的。——《新华日报》1944年3月5日<br><img src="http://ww1.sinaimg.cn/large/006erSCNgw1ewst3jkychj30cs09laba.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3895432586990329" target="freeweibo-mirror">SPAM 发表了一篇转载博文《[转载]贺卫方：朝廷如流水 故…</a>
 </h2>
