@@ -24,7 +24,7 @@
 </h2>
 <p>//@山高路远N://@俺也是被逼的: 其实是个好党员，我党为啥不宽容些呢<br><br>RE: 五年前的今天<br><img src="http://ww2.sinaimg.cn/large/857a392dgw1ewu00sw2qqj20go11q43c.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3895769213611603" target="freeweibo-mirror">五年前的今天</a>
 </h2>
