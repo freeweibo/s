@@ -24,13 +24,13 @@
 </h2>
 <p>据说中国好声音总冠军公布之前，插播了一条史上最贵广告：优信二手车，强暴性地反复“上上上上”上了整整一分钟。粗鄙化的中国，文盲式的文化，地痞化的修养。政治害我中华，呜呼哀哉。</p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3895445610363973" target="freeweibo-mirror">SPAM [吃惊][吃惊]少有不慎，极易造成群体事件发生！</a>
 </h2>
 <p>SPAM [吃惊][吃惊]少有不慎，极易造成群体事件发生！<br><br>RE: 这是什么情况？[衰](更多资讯，可以进我微博看) http://t.cn/RylHkh2</p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3895440200066615" target="freeweibo-mirror">SPAM 哪里？发生什么事了？</a>
 </h2>
