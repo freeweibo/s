@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3895790935918071" target="freeweibo-mirror">//@山高路远N://@俺也是被逼的: 其实是个好党员，我党…</a>
+</h2>
+<p>//@山高路远N://@俺也是被逼的: 其实是个好党员，我党为啥不宽容些呢<br><br>RE: 五年前的今天<br><img src="http://ww2.sinaimg.cn/large/857a392dgw1ewu00sw2qqj20go11q43c.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3895751907879898" target="freeweibo-mirror">在今天这个日子里，我们当祝贺一下五年前荣获和平奖的刘晓波。祈…</a>
 </h2>
 <p>在今天这个日子里，我们当祝贺一下五年前荣获和平奖的刘晓波。祈愿他在狱中身体健康！</p>
@@ -54,13 +60,13 @@
 </h2>
 <p>SPAM //@年轻的沙狐隆美尔: 好像有点意思<br><br>RE: 应景发张老图，祝黄晓明Baby新婚快乐。<br><img src="http://ww1.sinaimg.cn/large/7e948b4djw1ewtqj9qajtj20k50g6whl.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3895690239066488" target="freeweibo-mirror">成立国家、政府的目的是什么呢？应该是保障它所辖民众的幸福，而…</a>
 </h2>
 <p>成立国家、政府的目的是什么呢？应该是保障它所辖民众的幸福，而幸福的最重要的标准是自由、人权。没有自由、没有人的权利，就说不上是幸福。如果国家、政府不能保障人最起码的权利，那我们要国家、政府干什么呢？我们就没必要向国家纳税，来供养一个不保护人民权利的政府了。 //@周晓峰HRD:转发微博<br><br>RE: 我发表了新文章：从网上看到一篇谈“爱国”的文章，不知作者真实身份，但百分百赞同其文章观点：没有人权，宁可不要国家。让我们看看美国建国先贤们是怎样理解主权和人权的关系，以及怎样高瞻远瞩地保护人权。 http://t.cn/RyHnsQ7</p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3895686708149099" target="freeweibo-mirror">应景发张老图，祝黄晓明Baby新婚快乐。</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3895461029135782" target="freeweibo-mirror">据说中国好声音总冠军公布之前，插播了一条史上最贵广告：优信二…</a>
 </h2>
 <p>据说中国好声音总冠军公布之前，插播了一条史上最贵广告：优信二手车，强暴性地反复“上上上上”上了整整一分钟。粗鄙化的中国，文盲式的文化，地痞化的修养。政治害我中华，呜呼哀哉。</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3895445610363973" target="freeweibo-mirror">SPAM [吃惊][吃惊]少有不慎，极易造成群体事件发生！</a>
-</h2>
-<p>SPAM [吃惊][吃惊]少有不慎，极易造成群体事件发生！<br><br>RE: 这是什么情况？[衰](更多资讯，可以进我微博看) http://t.cn/RylHkh2</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
