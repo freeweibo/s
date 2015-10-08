@@ -48,7 +48,7 @@
 </h2>
 <p>SPAM 发表了一篇转载博文《[转载]贺卫方：朝廷如流水 故国河长在》http://t.cn/RyHiHVA</p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3895430788145390" target="freeweibo-mirror"></a>
 </h2>
