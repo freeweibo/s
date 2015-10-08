@@ -20,6 +20,18 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3895690318818700" target="freeweibo-mirror">SPAM //@年轻的沙狐隆美尔: 好像有点意思</a>
+</h2>
+<p>SPAM //@年轻的沙狐隆美尔: 好像有点意思<br><br>RE: 应景发张老图，祝黄晓明Baby新婚快乐。<br><img src="http://ww1.sinaimg.cn/large/7e948b4djw1ewtqj9qajtj20k50g6whl.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3895690239066488" target="freeweibo-mirror">成立国家、政府的目的是什么呢？应该是保障它所辖民众的幸福，而…</a>
+</h2>
+<p>成立国家、政府的目的是什么呢？应该是保障它所辖民众的幸福，而幸福的最重要的标准是自由、人权。没有自由、没有人的权利，就说不上是幸福。如果国家、政府不能保障人最起码的权利，那我们要国家、政府干什么呢？我们就没必要向国家纳税，来供养一个不保护人民权利的政府了。 //@周晓峰HRD:转发微博<br><br>RE: 我发表了新文章：从网上看到一篇谈“爱国”的文章，不知作者真实身份，但百分百赞同其文章观点：没有人权，宁可不要国家。让我们看看美国建国先贤们是怎样理解主权和人权的关系，以及怎样高瞻远瞩地保护人权。 http://t.cn/RyHnsQ7</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3895671041912032" target="freeweibo-mirror">SPAM 看到习大大的主角光环了……又找到了这个图。。。笑容…</a>
 </h2>
 <p>SPAM 看到习大大的主角光环了……又找到了这个图。。。笑容，步姿，连后面的景都一样。[笑cry][笑cry][笑cry]<br><img src="http://ww4.sinaimg.cn/large/9de9572bgw1ewtor0simsj20b40b4dgo.jpg"></p>
@@ -125,18 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3895415340804380" target="freeweibo-mirror">确实，从邓以后，基本上废除了对党内不同路线者进行肉体迫害和精…</a>
 </h2>
 <p>确实，从邓以后，基本上废除了对党内不同路线者进行肉体迫害和精神羞辱的做法。</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3895409816484048" target="freeweibo-mirror">【谁不厚道？】当年华取代邓上去后就公开批邓，而且粉碎“四人帮…</a>
-</h2>
-<p>【谁不厚道？】当年华取代邓上去后就公开批邓，而且粉碎“四人帮”后继续公开批邓。反之，华下去后邓没有公开批华，而且保留其中央委员职务和生活待遇。在这种对比中，如果指责邓不厚道，那岂不是太不厚道了吗？<br><img src="http://ww3.sinaimg.cn/large/daa5b8bfjw1ewsuqaesqyj20i20dl0v2.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3895405018837966" target="freeweibo-mirror">//@托尼富:→_→[哈哈]//@台北县令: 重要的话说三遍…</a>
-</h2>
-<p>//@托尼富:→_→[哈哈]//@台北县令: 重要的话说三遍[哈哈]<br><br>RE: 李总理这话，前年就说过一次了，今天又说了一次。<br><img src="http://ww2.sinaimg.cn/large/72ae17c5gw1ewssjhfto6j20ht0gct9n.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
