@@ -48,7 +48,7 @@
 </h2>
 <p>SPAM 发表了一篇转载博文《[转载]贺卫方：朝廷如流水 故国河长在》http://t.cn/RyHiHVA</p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3895430788145390" target="freeweibo-mirror"></a>
 </h2>
@@ -84,7 +84,7 @@
 </h2>
 <p>【谁不厚道？】当年华取代邓上去后就公开批邓，而且粉碎“四人帮”后继续公开批邓。反之，华下去后邓没有公开批华，而且保留其中央委员职务和生活待遇。在这种对比中，如果指责邓不厚道，那岂不是太不厚道了吗？<br><img src="http://ww3.sinaimg.cn/large/daa5b8bfjw1ewsuqaesqyj20i20dl0v2.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3895405018837966" target="freeweibo-mirror">//@托尼富:→_→[哈哈]//@台北县令: 重要的话说三遍…</a>
 </h2>
