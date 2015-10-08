@@ -54,19 +54,19 @@
 </h2>
 <p></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3895430590809367" target="freeweibo-mirror">这是什么情况？[衰](更多资讯，可以进我微博看) http:…</a>
 </h2>
 <p>这是什么情况？[衰](更多资讯，可以进我微博看) http://t.cn/RylHkh2</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3895430481886720" target="freeweibo-mirror">SPAM 为了追这个男人，天天累死累活的 自动转走吧。。。。…</a>
 </h2>
 <p>SPAM 为了追这个男人，天天累死累活的 自动转走吧。。。。。。<br><img src="http://ww4.sinaimg.cn/large/98c1610bjw1ewsrs15z1oj20c80c8750.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3895415735119166" target="freeweibo-mirror">//@陈茂来-: //@陈茂来-:敢于实名举报金融贪腐高官，…</a>
 </h2>
