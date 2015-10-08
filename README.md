@@ -60,7 +60,7 @@
 </h2>
 <p>SPAM 刺眼//@左右来了:哈哈哈哈<br><br>RE: 应景发张老图，祝黄晓明Baby新婚快乐。<br><img src="http://ww1.sinaimg.cn/large/7e948b4djw1ewtqj9qajtj20k50g6whl.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3895690318818700" target="freeweibo-mirror">SPAM //@年轻的沙狐隆美尔: 好像有点意思</a>
 </h2>
