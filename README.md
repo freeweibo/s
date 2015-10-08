@@ -102,7 +102,7 @@
 </h2>
 <p>中国政治舆论正陷入混乱期。</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3895400035788599" target="freeweibo-mirror">【比股市崩盘更可怕是TPP！】中国为什么被拒之门外，TPP许…</a>
 </h2>
