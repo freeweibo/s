@@ -36,7 +36,7 @@
 </h2>
 <p>SPAM 哪里？发生什么事了？<br><br>RE: 这是什么情况？[衰](更多资讯，可以进我微博看) http://t.cn/RylHkh2</p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3895432985614053" target="freeweibo-mirror">就这样一点点让整个世界所鄙视 //@章文的文章:当年说得多好…</a>
 </h2>
@@ -48,7 +48,7 @@
 </h2>
 <p>SPAM 发表了一篇转载博文《[转载]贺卫方：朝廷如流水 故国河长在》http://t.cn/RyHiHVA</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3895430788145390" target="freeweibo-mirror"></a>
 </h2>
