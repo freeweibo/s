@@ -42,7 +42,7 @@
 </h2>
 <p>可怕 //@萧山维权者戴鸿://@残疾农民工维权生涯:转发微博<br><br>RE: 不信的去百度一下<br><img src="http://ww1.sinaimg.cn/large/006f11n6gw1ewuun4h1puj30jc0ed78x.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3896126799356928" target="freeweibo-mirror">SPAM 今天（2015年10月9日）的投资者日记，已在戴斌…</a>
 </h2>
