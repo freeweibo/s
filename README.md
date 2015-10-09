@@ -36,7 +36,7 @@
 </h2>
 <p>SPAM 今天（2015年10月9日）的投资者日记，已在戴斌老师的微信公众号（daibin324）发布，请大家关注戴斌老师的微信公众号（daibin324）（下方有微信二维码）。微信文章链接：http://t.cn/Ry8NWO6<br><img src="http://ww1.sinaimg.cn/large/5394b03bgw1ewv53bx1pij20by0byaap.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3896090187147589" target="freeweibo-mirror">造神？还是高级黑？[挖鼻]//@健坤强德之声闻: //@W_…</a>
 </h2>
@@ -62,6 +62,12 @@
 <p>
 	<small> ============== 8小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3896035812471773" target="freeweibo-mirror">不信的去百度一下</a>
+</h2>
+<p>不信的去百度一下<br><img src="http://ww1.sinaimg.cn/large/006f11n6gw1ewuun4h1puj30jc0ed78x.jpg"></p>
+<p>
+	<small> ============== 10小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3896019110430011" target="freeweibo-mirror">【被亲姐下药算计，她不小心被一个陌生人毁了清白】楼主家里规定…</a>
 </h2>
 <p>【被亲姐下药算计，她不小心被一个陌生人毁了清白】楼主家里规定在继承家里财产之前，必须是雏儿，楼主一直守身如玉，可是姐姐为了抢夺家产居然联合楼主的追求者对楼主下药！楼主拼命逃跑，可惜最后还是被一个陌生人毁了清白……#九哥读物#<br><img src="http://ww4.sinaimg.cn/large/8e285f26gw1ewusimp75tj20c82qbk68.jpg"></p>
@@ -78,7 +84,7 @@
 </h2>
 <p>如此说来环球时报的立场是党的利益应该居于国家利益和民族利益之下、才是历史的正道啰！这话你们应该对共产党说去！</p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3895997669000061" target="freeweibo-mirror">[思考]谁是影响中国共产党领导人的“精神教父”？马列主义毛泽…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3895769213611603" target="freeweibo-mirror">五年前的今天</a>
 </h2>
 <p>五年前的今天<br><img src="http://ww2.sinaimg.cn/large/857a392dgw1ewu00sw2qqj20go11q43c.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3895751907879898" target="freeweibo-mirror">在今天这个日子里，我们当祝贺一下五年前荣获和平奖的刘晓波。祈…</a>
-</h2>
-<p>在今天这个日子里，我们当祝贺一下五年前荣获和平奖的刘晓波。祈愿他在狱中身体健康！</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
