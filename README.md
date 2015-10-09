@@ -30,7 +30,7 @@
 </h2>
 <p>可怕 //@萧山维权者戴鸿://@残疾农民工维权生涯:转发微博<br><br>RE: 不信的去百度一下<br><img src="http://ww1.sinaimg.cn/large/006f11n6gw1ewuun4h1puj30jc0ed78x.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3896126799356928" target="freeweibo-mirror">SPAM 今天（2015年10月9日）的投资者日记，已在戴斌…</a>
 </h2>
@@ -66,7 +66,7 @@
 </h2>
 <p>【被亲姐下药算计，她不小心被一个陌生人毁了清白】楼主家里规定在继承家里财产之前，必须是雏儿，楼主一直守身如玉，可是姐姐为了抢夺家产居然联合楼主的追求者对楼主下药！楼主拼命逃跑，可惜最后还是被一个陌生人毁了清白……#九哥读物#<br><img src="http://ww4.sinaimg.cn/large/8e285f26gw1ewusimp75tj20c82qbk68.jpg"></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3896013699777927" target="freeweibo-mirror">得不到诺奖的时候，说那是西方的政治工具，得到了就欢呼雀跃了；…</a>
 </h2>
