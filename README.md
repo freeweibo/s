@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3896126799356928" target="freeweibo-mirror">SPAM 今天（2015年10月9日）的投资者日记，已在戴斌…</a>
+</h2>
+<p>SPAM 今天（2015年10月9日）的投资者日记，已在戴斌老师的微信公众号（daibin324）发布，请大家关注戴斌老师的微信公众号（daibin324）（下方有微信二维码）。微信文章链接：http://t.cn/Ry8NWO6<br><img src="http://ww1.sinaimg.cn/large/5394b03bgw1ewv53bx1pij20by0byaap.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3896090187147589" target="freeweibo-mirror">造神？还是高级黑？[挖鼻]//@健坤强德之声闻: //@W_…</a>
 </h2>
 <p>造神？还是高级黑？[挖鼻]//@健坤强德之声闻: //@W_X_Z-63:转发微博</p>
@@ -36,7 +42,7 @@
 </h2>
 <p>这几十年，党没管党，党没管党员，管党管党员的人连他自己都没管住，怎么敢管别人呢？干部队伍怎能不腐败呢？<br><img src="http://ww1.sinaimg.cn/large/d81ffff5jw1ewuybstcxzj208w064751.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3896056041129738" target="freeweibo-mirror">[doge]//@财经网: 【小科普·获得英国永久居留权的几…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3895708874788836" target="freeweibo-mirror">[弱]【#转基因#日人民报能干净吗？】//@祖钟医: 衰//…</a>
 </h2>
 <p>[弱]【#转基因#日人民报能干净吗？】//@祖钟医: 衰//@丁壬寅：@学习粉丝团@丽媛粉丝团//@谁与居:“ 依惯例 ”？邓乒乓还好吗？//@浩正刘臻: 呵呵//@章文的文章: 震级9.0！<br><br>RE: 人民网总裁廖玒家抄出五千万元人民币现金，他供认是准备年底用来 “ 依惯例 ” 向领导 “ 表达意思 ”，以前曾经向仁民日报现任领导、中轩部高官 “ 表达过意思 ”。人民网副总裁陈智霞的邮箱中，发现大量她与现任仁民日报社长杨ZW之间态度暧昧的通信和留言，证实是情人。人民网副总编辑徐辉也被拘...<br><img src="http://ww4.sinaimg.cn/large/005Rld8bgw1ewtiwtmp4wj307e05a0sr.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3895702721342709" target="freeweibo-mirror">//@章文的文章:求证@人民日报 //@荣剑2001:消息靠…</a>
-</h2>
-<p>//@章文的文章:求证@人民日报 //@荣剑2001:消息靠谱吗？//@浩正刘臻:呵呵//@章文的文章: 震级9.0！<br><br>RE: 人民网总裁廖玒家抄出五千万元人民币现金，他供认是准备年底用来 “ 依惯例 ” 向领导 “ 表达意思 ”，以前曾经向仁民日报现任领导、中轩部高官 “ 表达过意思 ”。人民网副总裁陈智霞的邮箱中，发现大量她与现任仁民日报社长杨ZW之间态度暧昧的通信和留言，证实是情人。人民网副总编辑徐辉也被拘...<br><img src="http://ww4.sinaimg.cn/large/005Rld8bgw1ewtiwtmp4wj307e05a0sr.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
