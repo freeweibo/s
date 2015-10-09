@@ -24,7 +24,7 @@
 </h2>
 <p>//@DopeyTom: 谁是高级黑？//@哥们风太大: 这丫原来是高级黑[思考]//@涤烦子-:[哈哈]</p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3896181433958456" target="freeweibo-mirror">SPAM 【粤语交友平台】各位靓仔、靓女、单身噶、交友噶！！…</a>
 </h2>
