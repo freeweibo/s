@@ -36,7 +36,7 @@
 </h2>
 <p>SPAM 今天（2015年10月9日）的投资者日记，已在戴斌老师的微信公众号（daibin324）发布，请大家关注戴斌老师的微信公众号（daibin324）（下方有微信二维码）。微信文章链接：http://t.cn/Ry8NWO6<br><img src="http://ww1.sinaimg.cn/large/5394b03bgw1ewv53bx1pij20by0byaap.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3896090187147589" target="freeweibo-mirror">造神？还是高级黑？[挖鼻]//@健坤强德之声闻: //@W_…</a>
 </h2>
@@ -66,7 +66,7 @@
 </h2>
 <p>不信的去百度一下<br><img src="http://ww1.sinaimg.cn/large/006f11n6gw1ewuun4h1puj30jc0ed78x.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3896019110430011" target="freeweibo-mirror">【被亲姐下药算计，她不小心被一个陌生人毁了清白】楼主家里规定…</a>
 </h2>
