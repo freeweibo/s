@@ -24,7 +24,7 @@
 </h2>
 <p>//@DopeyTom: 谁是高级黑？//@哥们风太大: 这丫原来是高级黑[思考]//@涤烦子-:[哈哈]</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3896181433958456" target="freeweibo-mirror">SPAM 【粤语交友平台】各位靓仔、靓女、单身噶、交友噶！！…</a>
 </h2>
@@ -54,13 +54,13 @@
 </h2>
 <p>造神？还是高级黑？[挖鼻]//@健坤强德之声闻: //@W_X_Z-63:转发微博</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3896089856259955" target="freeweibo-mirror">//@兼容求是赏奇析疑:感觉确实是这样！</a>
 </h2>
 <p>//@兼容求是赏奇析疑:感觉确实是这样！</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3896067974053025" target="freeweibo-mirror">这几十年，党没管党，党没管党员，管党管党员的人连他自己都没管…</a>
 </h2>
