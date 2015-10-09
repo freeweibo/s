@@ -24,7 +24,7 @@
 </h2>
 <p>//@DopeyTom: 谁是高级黑？//@哥们风太大: 这丫原来是高级黑[思考]//@涤烦子-:[哈哈]</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3896181433958456" target="freeweibo-mirror">SPAM 【粤语交友平台】各位靓仔、靓女、单身噶、交友噶！！…</a>
 </h2>
@@ -66,7 +66,7 @@
 </h2>
 <p>这几十年，党没管党，党没管党员，管党管党员的人连他自己都没管住，怎么敢管别人呢？干部队伍怎能不腐败呢？<br><img src="http://ww1.sinaimg.cn/large/d81ffff5jw1ewuybstcxzj208w064751.jpg"></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3896056041129738" target="freeweibo-mirror">[doge]//@财经网: 【小科普·获得英国永久居留权的几…</a>
 </h2>
