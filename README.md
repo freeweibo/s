@@ -24,7 +24,7 @@
 </h2>
 <p>SPAM 今天（2015年10月9日）的投资者日记，已在戴斌老师的微信公众号（daibin324）发布，请大家关注戴斌老师的微信公众号（daibin324）（下方有微信二维码）。微信文章链接：http://t.cn/Ry8NWO6<br><img src="http://ww1.sinaimg.cn/large/5394b03bgw1ewv53bx1pij20by0byaap.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3896090187147589" target="freeweibo-mirror">造神？还是高级黑？[挖鼻]//@健坤强德之声闻: //@W_…</a>
 </h2>
@@ -66,7 +66,7 @@
 </h2>
 <p>如此说来环球时报的立场是党的利益应该居于国家利益和民族利益之下、才是历史的正道啰！这话你们应该对共产党说去！</p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3895997669000061" target="freeweibo-mirror">[思考]谁是影响中国共产党领导人的“精神教父”？马列主义毛泽…</a>
 </h2>
