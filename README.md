@@ -24,13 +24,13 @@
 </h2>
 <p>造神？还是高级黑？[挖鼻]//@健坤强德之声闻: //@W_X_Z-63:转发微博</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3896089856259955" target="freeweibo-mirror">//@兼容求是赏奇析疑:感觉确实是这样！</a>
 </h2>
 <p>//@兼容求是赏奇析疑:感觉确实是这样！</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3896067974053025" target="freeweibo-mirror">这几十年，党没管党，党没管党员，管党管党员的人连他自己都没管…</a>
 </h2>
