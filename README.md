@@ -26,6 +26,12 @@
 <p>
 	<small> ============== 1小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3896139872471722" target="freeweibo-mirror">可怕 //@萧山维权者戴鸿://@残疾农民工维权生涯:转发微…</a>
+</h2>
+<p>可怕 //@萧山维权者戴鸿://@残疾农民工维权生涯:转发微博<br><br>RE: 不信的去百度一下<br><img src="http://ww1.sinaimg.cn/large/006f11n6gw1ewuun4h1puj30jc0ed78x.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3896126799356928" target="freeweibo-mirror">SPAM 今天（2015年10月9日）的投资者日记，已在戴斌…</a>
 </h2>
 <p>SPAM 今天（2015年10月9日）的投资者日记，已在戴斌老师的微信公众号（daibin324）发布，请大家关注戴斌老师的微信公众号（daibin324）（下方有微信二维码）。微信文章链接：http://t.cn/Ry8NWO6<br><img src="http://ww1.sinaimg.cn/large/5394b03bgw1ewv53bx1pij20by0byaap.jpg"></p>
@@ -84,7 +90,7 @@
 </h2>
 <p>一位科学家和一群丽春院院士。#诺贝尔奖就是打脸专业户#<br><img src="http://ww1.sinaimg.cn/large/5d413e05gw1ewupltx8fhj20yi15447l.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3895949052695882" target="freeweibo-mirror">SPAM //@金陵薛冰:江山易改,本性难移.[偷笑] //…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3895751907879898" target="freeweibo-mirror">在今天这个日子里，我们当祝贺一下五年前荣获和平奖的刘晓波。祈…</a>
 </h2>
 <p>在今天这个日子里，我们当祝贺一下五年前荣获和平奖的刘晓波。祈愿他在狱中身体健康！</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3895712197083107" target="freeweibo-mirror">SPAM //@绽放的追求:土匪，横行霸道//@没事不加V:…</a>
-</h2>
-<p>SPAM //@绽放的追求:土匪，横行霸道//@没事不加V://@陶景洲:现实生活是段子的源泉。<br><br>RE: 【转】操你大爷的，你们让百姓改变，就称之为改革；百姓让你们改变，就变成了颠覆；你们抢夺百姓的财产，就称之为发展；百姓保护自己的财产，就是暴力抗法；你们全副武装上街，就称之为维稳；百姓上街散散步，就变成了敌对势力。你大爷的！天下哪有这样的道理？（推荐关注V信公众号：cqz246）</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
