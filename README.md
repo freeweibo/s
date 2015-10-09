@@ -30,7 +30,7 @@
 </h2>
 <p>SPAM 【粤语交友平台】各位靓仔、靓女、单身噶、交友噶！！通通出来啦！！求倾计、求解闷！！[心][心][来]<br><img src="http://ww3.sinaimg.cn/large/83b62366gw1ewvavaaneoj20c809haal.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3896160173879154" target="freeweibo-mirror">老顽童忘了薄熙来现象了？当下走资的特色党，内斗玩的天昏地暗，…</a>
 </h2>
@@ -54,13 +54,13 @@
 </h2>
 <p>造神？还是高级黑？[挖鼻]//@健坤强德之声闻: //@W_X_Z-63:转发微博</p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3896089856259955" target="freeweibo-mirror">//@兼容求是赏奇析疑:感觉确实是这样！</a>
 </h2>
 <p>//@兼容求是赏奇析疑:感觉确实是这样！</p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3896067974053025" target="freeweibo-mirror">这几十年，党没管党，党没管党员，管党管党员的人连他自己都没管…</a>
 </h2>
