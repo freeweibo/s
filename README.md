@@ -78,7 +78,7 @@
 </h2>
 <p>不信的去百度一下<br><img src="http://ww1.sinaimg.cn/large/006f11n6gw1ewuun4h1puj30jc0ed78x.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3896019110430011" target="freeweibo-mirror">【被亲姐下药算计，她不小心被一个陌生人毁了清白】楼主家里规定…</a>
 </h2>
