@@ -36,7 +36,7 @@
 </h2>
 <p>SPAM 今天（2015年10月9日）的投资者日记，已在戴斌老师的微信公众号（daibin324）发布，请大家关注戴斌老师的微信公众号（daibin324）（下方有微信二维码）。微信文章链接：http://t.cn/Ry8NWO6<br><img src="http://ww1.sinaimg.cn/large/5394b03bgw1ewv53bx1pij20by0byaap.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3896090187147589" target="freeweibo-mirror">造神？还是高级黑？[挖鼻]//@健坤强德之声闻: //@W_…</a>
 </h2>
@@ -66,7 +66,7 @@
 </h2>
 <p>不信的去百度一下<br><img src="http://ww1.sinaimg.cn/large/006f11n6gw1ewuun4h1puj30jc0ed78x.jpg"></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3896019110430011" target="freeweibo-mirror">【被亲姐下药算计，她不小心被一个陌生人毁了清白】楼主家里规定…</a>
 </h2>
@@ -78,7 +78,7 @@
 </h2>
 <p>得不到诺奖的时候，说那是西方的政治工具，得到了就欢呼雀跃了；没加入联合国的时候，说那是美帝国主义的傀儡，加入了就“世界人民万众一心”了；访美的时候，说中美友谊源远流长，离开了又说是西方反华势力了；用得着的时候说群众的眼睛是雪亮的，用不着了又说是不明真相的群众</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3896006192128076" target="freeweibo-mirror">如此说来环球时报的立场是党的利益应该居于国家利益和民族利益之…</a>
 </h2>
