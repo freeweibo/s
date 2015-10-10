@@ -48,7 +48,7 @@
 </h2>
 <p>SPAM 金正恩热情拥抱刘云山<br><img src="http://ww2.sinaimg.cn/large/656952ecjw1ewvqj5khyng20aq07g4qr.gif"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3896309763659098" target="freeweibo-mirror">SPAM //@学缠悟缠: //@章诒和://@谓贤: [鲜…</a>
 </h2>
