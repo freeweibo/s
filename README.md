@@ -48,7 +48,7 @@
 </h2>
 <p>SPAM 【独家】湖南企业以复垦名义西藏阿里非法采金 http://t.cn/Ry8jtdH<br><img src="http://ww4.sinaimg.cn/large/a99464b6jw1ewvswszd31j20go09ewfx.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3896331460345675" target="freeweibo-mirror">//@王双增的博客://@夏天1984666: 如果不喊万岁…</a>
 </h2>
@@ -66,7 +66,7 @@
 </h2>
 <p>武昌首义，推翻帝制，肇造共和。104周年！<br><img src="http://ww3.sinaimg.cn/large/617fc8a9jw1ewvr7rame1j20go0go763.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3896318625709920" target="freeweibo-mirror">SPAM 104岁了。。。</a>
 </h2>
