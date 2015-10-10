@@ -84,7 +84,7 @@
 </h2>
 <p>这个共青团山西晋城组织部长疯了？@共青团中央<br><img src="http://ww1.sinaimg.cn/large/006eRjtcjw1eww7a48uiwj30f00qowhw.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3896456124010404" target="freeweibo-mirror">新浪审查与朝鲜阅兵同样惊人吃惊，对了，直接主管大脑袋的活儿啊</a>
 </h2>
@@ -120,7 +120,7 @@
 </h2>
 <p>理论上是过渡，副总警监警衔，现任浙江省委副书记，政法委书记<br><br>RE: 快讯：王辉忠任福建省委副书记，代省长。</p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3896443200842016" target="freeweibo-mirror">纪念双十</a>
 </h2>
