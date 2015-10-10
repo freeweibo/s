@@ -66,7 +66,7 @@
 </h2>
 <p>怪不得内网消息外泄，怪不得公民信息被人肉，怪不得国信办三令五申互联网还是一副亚健康状态……网安的官微居然发这种明目张胆的推墙言论，真让人无法相信。体制婊们钻进体制内假公济私败坏政府和国家声誉，已经从精神上完全沦陷，不要指望他们守土卫国@平安本溪 @共青团中央 @辽宁共青团 @南芬网安<br><img src="http://ww2.sinaimg.cn/large/a47b0989jw1ewvxi8g1q2j20k70avdj2.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3896363270515896" target="freeweibo-mirror">[蛋糕]//@牛的海: 转发微博</a>
 </h2>
@@ -132,7 +132,7 @@
 </h2>
 <p>中國104歲了，祝你104歲生日快樂。#雙十國慶#<br><img src="http://ww2.sinaimg.cn/large/67e07352gw1ewvotfkwp8j20p018gn7k.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3896281136770127" target="freeweibo-mirror">慶祝中華民國建國104年，憲政民主普及兩岸。 http://…</a>
 </h2>
