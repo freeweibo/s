@@ -36,7 +36,7 @@
 </h2>
 <p>新浪审查与朝鲜阅兵同样惊人吃惊，对了，直接主管大脑袋的活儿啊</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3896455238975603" target="freeweibo-mirror">共青团晋城组织部长。//@厦门浪: 共青团晋城组织部长[偷笑…</a>
 </h2>
@@ -126,7 +126,7 @@
 </h2>
 <p>SPAM @窗外民声 @南方都市报 @中国西藏新闻网 @杜猛</p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3896334186952139" target="freeweibo-mirror">SPAM 【独家】湖南企业以复垦名义西藏阿里非法采金 htt…</a>
 </h2>
