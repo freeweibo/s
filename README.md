@@ -56,6 +56,12 @@
 <p>
 	<small> ============== 5小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3896298614755421" target="freeweibo-mirror">中國104歲了，祝你104歲生日快樂。#雙十國慶#</a>
+</h2>
+<p>中國104歲了，祝你104歲生日快樂。#雙十國慶#<br><img src="http://ww2.sinaimg.cn/large/67e07352gw1ewvotfkwp8j20p018gn7k.jpg"></p>
+<p>
+	<small> ============== 6小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3896281136770127" target="freeweibo-mirror">慶祝中華民國建國104年，憲政民主普及兩岸。 http://…</a>
 </h2>
 <p>慶祝中華民國建國104年，憲政民主普及兩岸。 http://t.cn/R2WJvly<br><img src="http://ww2.sinaimg.cn/large/5186d665jw1ewvmrwryfvj20hs0hsq61.jpg"></p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3896013699777927" target="freeweibo-mirror">得不到诺奖的时候，说那是西方的政治工具，得到了就欢呼雀跃了；…</a>
 </h2>
 <p>得不到诺奖的时候，说那是西方的政治工具，得到了就欢呼雀跃了；没加入联合国的时候，说那是美帝国主义的傀儡，加入了就“世界人民万众一心”了；访美的时候，说中美友谊源远流长，离开了又说是西方反华势力了；用得着的时候说群众的眼睛是雪亮的，用不着了又说是不明真相的群众</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3896006192128076" target="freeweibo-mirror">如此说来环球时报的立场是党的利益应该居于国家利益和民族利益之…</a>
-</h2>
-<p>如此说来环球时报的立场是党的利益应该居于国家利益和民族利益之下、才是历史的正道啰！这话你们应该对共产党说去！</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
