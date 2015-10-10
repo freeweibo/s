@@ -102,13 +102,13 @@
 </h2>
 <p>SPAM 哈哈哈哈//@希艺凌:目瞪口呆 //@希dictator: [衰]//@阿花花酱: 原来侧面是这样哈哈哈 //@辣条娘:哈哈哈哈侧面好微妙（。//@yuiko_变态假面: 侧面原来是这样的 //@我是香菜少女的香菜://@爱吃香菜的梓喵: 目瞪口呆 //@山田酱的非日常:哈哈哈有个猩猩趴在头上 //@MRNU不想接电话: hhh第一次看到这个角度</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3896453519105085" target="freeweibo-mirror">共青团晋城组织部长[偷笑]</a>
 </h2>
 <p>共青团晋城组织部长[偷笑]</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3896450175616452" target="freeweibo-mirror">[爱你][抓狂][挖鼻][爱你][wrefrttr陆毅]啪啪…</a>
 </h2>
