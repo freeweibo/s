@@ -32,6 +32,18 @@
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3896408983831535" target="freeweibo-mirror">刘的表情显露出心境//@杨锦麟:那誰，以前好像也站這個位子喔…</a>
+</h2>
+<p>刘的表情显露出心境//@杨锦麟:那誰，以前好像也站這個位子喔！ //@卓越兄:老刘待遇不错。</p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3896408669377048" target="freeweibo-mirror">【人事快讯：王辉忠拟任福建省代省长】王辉忠，男，汉族，195…</a>
+</h2>
+<p>【人事快讯：王辉忠拟任福建省代省长】王辉忠，男，汉族，1956年2月生，浙江义乌市人，1978年5月加入中国共产党，1978年7月参加工作，中央党校省部级干部在职研究生班政治学专业毕业，中央党校在职研究生学历。王辉忠现任浙江省委副书记、政法委书记，拟任福建省副省长、代理省长。<br><img src="http://ww1.sinaimg.cn/large/8c51a114gw1eww1gr8ge6j20c808qwf6.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3896406504846898" target="freeweibo-mirror">//@凌源黑暗之城: //@红卫少侠: //@砖头猛:[嘻嘻…</a>
 </h2>
 <p>//@凌源黑暗之城: //@红卫少侠: //@砖头猛:[嘻嘻]//@赤馬於歸: 回复@央媒新闻评论:仲勋之子不上位，恐怕他还会落井下石！//@央媒新闻评论:四朝元老，老奸巨滑，见风使舵，溜须拍马，内联外和，打击报复[挖鼻]//@赤馬於歸:这屁吹得有点大了！</p>
@@ -125,18 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3896160173879154" target="freeweibo-mirror">老顽童忘了薄熙来现象了？当下走资的特色党，内斗玩的天昏地暗，…</a>
 </h2>
 <p>老顽童忘了薄熙来现象了？当下走资的特色党，内斗玩的天昏地暗，尽失民心！//@怪才老顽童3: 转发微博</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3896139872471722" target="freeweibo-mirror">可怕 //@萧山维权者戴鸿://@残疾农民工维权生涯:转发微…</a>
-</h2>
-<p>可怕 //@萧山维权者戴鸿://@残疾农民工维权生涯:转发微博<br><br>RE: 不信的去百度一下<br><img src="http://ww1.sinaimg.cn/large/006f11n6gw1ewuun4h1puj30jc0ed78x.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3896126799356928" target="freeweibo-mirror">SPAM 今天（2015年10月9日）的投资者日记，已在戴斌…</a>
-</h2>
-<p>SPAM 今天（2015年10月9日）的投资者日记，已在戴斌老师的微信公众号（daibin324）发布，请大家关注戴斌老师的微信公众号（daibin324）（下方有微信二维码）。微信文章链接：http://t.cn/Ry8NWO6<br><img src="http://ww1.sinaimg.cn/large/5394b03bgw1ewv53bx1pij20by0byaap.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
