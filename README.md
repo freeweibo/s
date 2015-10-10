@@ -48,7 +48,7 @@
 </h2>
 <p>理论上是过渡，副总警监警衔，现任浙江省委副书记，政法委书记<br><br>RE: 快讯：王辉忠任福建省委副书记，代省长。</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3896443200842016" target="freeweibo-mirror">纪念双十</a>
 </h2>
@@ -62,11 +62,17 @@
 <p>
 	<small> ============== 4小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3896423101687202" target="freeweibo-mirror">快讯：王辉忠任福建省委副书记，代省长。</a>
+</h2>
+<p>快讯：王辉忠任福建省委副书记，代省长。</p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3896413484190913" target="freeweibo-mirror">一个位置。请勿联想！</a>
 </h2>
 <p>一个位置。请勿联想！<br><img src="http://ww1.sinaimg.cn/large/c57c1a49jw1eww20nme6zj20k00b4abd.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3896408983831535" target="freeweibo-mirror">刘的表情显露出心境//@杨锦麟:那誰，以前好像也站這個位子喔…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3896319418384668" target="freeweibo-mirror">武昌首义，推翻帝制，肇造共和。104周年！</a>
 </h2>
 <p>武昌首义，推翻帝制，肇造共和。104周年！<br><img src="http://ww3.sinaimg.cn/large/617fc8a9jw1ewvr7rame1j20go0go763.jpg"></p>
-<p>
-	<small> ============== 11小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3896318625709920" target="freeweibo-mirror">SPAM 104岁了。。。</a>
-</h2>
-<p>SPAM 104岁了。。。<br><br>RE: 中國104歲了，祝你104歲生日快樂。#雙十國慶#<br><img src="http://ww2.sinaimg.cn/large/67e07352gw1ewvotfkwp8j20p018gn7k.jpg"></p>
 <p>
 	<small> ============== 11小时前</small>
 </p>
