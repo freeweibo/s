@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3896424355475585" target="freeweibo-mirror">本溪市公安局南芬分局网安大队的官微，竟在网上称马克思主义是世…</a>
+</h2>
+<p>本溪市公安局南芬分局网安大队的官微，竟在网上称马克思主义是世界的糟粕、神朝的佳酿，实在令人不齿细思恐极。网络安全部门如此作为，恐怕中国网络永远不会安全，而美国等西方势力必然欢欣鼓舞坐享其成。<br><br>RE: 怪不得内网消息外泄，怪不得公民信息被人肉，怪不得国信办三令五申互联网还是一副亚健康状态……网安的官微居然发这种明目张胆的推墙言论，真让人无法相信。体制婊们钻进体制内假公济私败坏政府和国家声誉，已经从精神上完全沦陷，不要指望他们守土卫国@平安本溪 @共青团中央 @辽宁共青团 @南芬网安<br><img src="http://ww2.sinaimg.cn/large/a47b0989jw1ewvxi8g1q2j20k70avdj2.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3896413484190913" target="freeweibo-mirror">一个位置。请勿联想！</a>
 </h2>
 <p>一个位置。请勿联想！<br><img src="http://ww1.sinaimg.cn/large/c57c1a49jw1eww20nme6zj20k00b4abd.jpg"></p>
@@ -90,7 +96,7 @@
 </h2>
 <p>SPAM //@学缠悟缠: //@章诒和://@谓贤: [鲜花][鲜花]<br><br>RE: 慶祝中華民國建國104年，憲政民主普及兩岸。 http://t.cn/R2WJvly<br><img src="http://ww2.sinaimg.cn/large/5186d665jw1ewvmrwryfvj20hs0hsq61.jpg"></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3896298614755421" target="freeweibo-mirror">中國104歲了，祝你104歲生日快樂。#雙十國慶#</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3896126799356928" target="freeweibo-mirror">SPAM 今天（2015年10月9日）的投资者日记，已在戴斌…</a>
 </h2>
 <p>SPAM 今天（2015年10月9日）的投资者日记，已在戴斌老师的微信公众号（daibin324）发布，请大家关注戴斌老师的微信公众号（daibin324）（下方有微信二维码）。微信文章链接：http://t.cn/Ry8NWO6<br><img src="http://ww1.sinaimg.cn/large/5394b03bgw1ewv53bx1pij20by0byaap.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3896090187147589" target="freeweibo-mirror">造神？还是高级黑？[挖鼻]//@健坤强德之声闻: //@W_…</a>
-</h2>
-<p>造神？还是高级黑？[挖鼻]//@健坤强德之声闻: //@W_X_Z-63:转发微博</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
