@@ -26,6 +26,12 @@
 <p>
 	<small> ============== 1小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3896455238975603" target="freeweibo-mirror">共青团晋城组织部长。//@厦门浪: 共青团晋城组织部长[偷笑…</a>
+</h2>
+<p>共青团晋城组织部长。//@厦门浪: 共青团晋城组织部长[偷笑]</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3896443200842016" target="freeweibo-mirror">纪念双十</a>
 </h2>
 <p>纪念双十</p>
@@ -96,7 +102,7 @@
 </h2>
 <p>//@王双增的博客://@夏天1984666: 如果不喊万岁、不树毛像、不给林彪拉上去、普普通通的毛泽东一个人能将全国搞乱吗？ //@孟庆德:</p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3896321490354726" target="freeweibo-mirror">SPAM 再怎么摇尾乞怜对岸也给不了你一块骨头</a>
 </h2>
@@ -133,12 +139,6 @@
 <p>中國104歲了，祝你104歲生日快樂。#雙十國慶#<br><img src="http://ww2.sinaimg.cn/large/67e07352gw1ewvotfkwp8j20p018gn7k.jpg"></p>
 <p>
 	<small> ============== 12小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3896281136770127" target="freeweibo-mirror">慶祝中華民國建國104年，憲政民主普及兩岸。 http://…</a>
-</h2>
-<p>慶祝中華民國建國104年，憲政民主普及兩岸。 http://t.cn/R2WJvly<br><img src="http://ww2.sinaimg.cn/large/5186d665jw1ewvmrwryfvj20hs0hsq61.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
 </p>
 <table>
     <tr>
