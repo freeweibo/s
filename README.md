@@ -42,7 +42,7 @@
 </h2>
 <p>SPAM @窗外民声 @南方都市报 @中国西藏新闻网 @杜猛</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3896334186952139" target="freeweibo-mirror">SPAM 【独家】湖南企业以复垦名义西藏阿里非法采金 htt…</a>
 </h2>
