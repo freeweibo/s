@@ -84,7 +84,7 @@
 </h2>
 <p>SPAM //@学缠悟缠: //@章诒和://@谓贤: [鲜花][鲜花]<br><br>RE: 慶祝中華民國建國104年，憲政民主普及兩岸。 http://t.cn/R2WJvly<br><img src="http://ww2.sinaimg.cn/large/5186d665jw1ewvmrwryfvj20hs0hsq61.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3896298614755421" target="freeweibo-mirror">中國104歲了，祝你104歲生日快樂。#雙十國慶#</a>
 </h2>
