@@ -120,7 +120,7 @@
 </h2>
 <p>理论上是过渡，副总警监警衔，现任浙江省委副书记，政法委书记<br><br>RE: 快讯：王辉忠任福建省委副书记，代省长。</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3896443200842016" target="freeweibo-mirror">纪念双十</a>
 </h2>
