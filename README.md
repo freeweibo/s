@@ -24,7 +24,7 @@
 </h2>
 <p>//@王双增的博客://@夏天1984666: 如果不喊万岁、不树毛像、不给林彪拉上去、普普通通的毛泽东一个人能将全国搞乱吗？ //@孟庆德:</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3896321490354726" target="freeweibo-mirror">SPAM 再怎么摇尾乞怜对岸也给不了你一块骨头</a>
 </h2>
@@ -66,7 +66,7 @@
 </h2>
 <p>SPAM 【粤语交友平台】各位靓仔、靓女、单身噶、交友噶！！通通出来啦！！求倾计、求解闷！！[心][心][来]<br><img src="http://ww3.sinaimg.cn/large/83b62366gw1ewvavaaneoj20c809haal.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3896160173879154" target="freeweibo-mirror">老顽童忘了薄熙来现象了？当下走资的特色党，内斗玩的天昏地暗，…</a>
 </h2>
