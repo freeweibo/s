@@ -60,7 +60,7 @@
 </h2>
 <p>中國104歲了，祝你104歲生日快樂。#雙十國慶#<br><img src="http://ww2.sinaimg.cn/large/67e07352gw1ewvotfkwp8j20p018gn7k.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3896281136770127" target="freeweibo-mirror">慶祝中華民國建國104年，憲政民主普及兩岸。 http://…</a>
 </h2>
