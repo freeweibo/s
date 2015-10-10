@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3896470698940823" target="freeweibo-mirror">[偷笑] //@章文的文章:呵呵</a>
+</h2>
+<p>[偷笑] //@章文的文章:呵呵<br><br>RE: 北京大学无视教育部三番五令禁止西方价值观进入大学课堂的规定，公然在校内举办首届“世界马克思主义大会”，建立首座马克思大楼，以此传播西方马克思主义思想，对此，袁贵仁部长有何看法？</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3896456124010404" target="freeweibo-mirror">新浪审查与朝鲜阅兵同样惊人吃惊，对了，直接主管大脑袋的活儿啊</a>
 </h2>
 <p>新浪审查与朝鲜阅兵同样惊人吃惊，对了，直接主管大脑袋的活儿啊</p>
@@ -126,17 +132,11 @@
 </h2>
 <p>//@王双增的博客://@夏天1984666: 如果不喊万岁、不树毛像、不给林彪拉上去、普普通通的毛泽东一个人能将全国搞乱吗？ //@孟庆德:</p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3896321490354726" target="freeweibo-mirror">SPAM 再怎么摇尾乞怜对岸也给不了你一块骨头</a>
 </h2>
 <p>SPAM 再怎么摇尾乞怜对岸也给不了你一块骨头<br><br>RE: 武昌首义，推翻帝制，肇造共和。104周年！<br><img src="http://ww3.sinaimg.cn/large/617fc8a9jw1ewvr7rame1j20go0go763.jpg"></p>
-<p>
-	<small> ============== 11小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3896319418384668" target="freeweibo-mirror">武昌首义，推翻帝制，肇造共和。104周年！</a>
-</h2>
-<p>武昌首义，推翻帝制，肇造共和。104周年！<br><img src="http://ww3.sinaimg.cn/large/617fc8a9jw1ewvr7rame1j20go0go763.jpg"></p>
 <p>
 	<small> ============== 11小时前</small>
 </p>
