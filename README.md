@@ -26,6 +26,12 @@
 <p>
 	<small> ============== 4小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3896358199465854" target="freeweibo-mirror">【本博正在图片直播双十】。。。谁说国庆一定要有飞机、大炮？。…</a>
+</h2>
+<p>【本博正在图片直播双十】。。。谁说国庆一定要有飞机、大炮？。。。中华民国的国庆轻松、愉快！[嘻嘻]。。。这样的国庆~俺喜欢，您呢？。。。祝【中华民国104年】生日快乐！[蛋糕]。。。天佑台湾，天佑中华民族！[许愿]。。。明天本博将上传全场视频，敬请期待！。。。#101二#<br><img src="http://ww4.sinaimg.cn/large/005J5gIBgw1ewvvmtac28j30s90fu0ue.jpg"></p>
+<p>
+	<small> ============== 5小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3896350334837226" target="freeweibo-mirror">SPAM @窗外民声 @南方都市报 @中国西藏新闻网 @杜猛</a>
 </h2>
 <p>SPAM @窗外民声 @南方都市报 @中国西藏新闻网 @杜猛</p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3896067974053025" target="freeweibo-mirror">这几十年，党没管党，党没管党员，管党管党员的人连他自己都没管…</a>
 </h2>
 <p>这几十年，党没管党，党没管党员，管党管党员的人连他自己都没管住，怎么敢管别人呢？干部队伍怎能不腐败呢？<br><img src="http://ww1.sinaimg.cn/large/d81ffff5jw1ewuybstcxzj208w064751.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3896056041129738" target="freeweibo-mirror">[doge]//@财经网: 【小科普·获得英国永久居留权的几…</a>
-</h2>
-<p>[doge]//@财经网: 【小科普·获得英国永久居留权的几种常见途径】1、有钱（200万左右英镑投资移民，有时限），再换其他途径申请永居；2、在英国连续工作5年（5年连续签证）；3、和英国人结婚；4、英国连续住10年。嗯,question：which one?....</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
