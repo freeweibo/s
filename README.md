@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3896350334837226" target="freeweibo-mirror">SPAM @窗外民声 @南方都市报 @中国西藏新闻网 @杜猛</a>
+</h2>
+<p>SPAM @窗外民声 @南方都市报 @中国西藏新闻网 @杜猛</p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3896331460345675" target="freeweibo-mirror">//@王双增的博客://@夏天1984666: 如果不喊万岁…</a>
 </h2>
 <p>//@王双增的博客://@夏天1984666: 如果不喊万岁、不树毛像、不给林彪拉上去、普普通通的毛泽东一个人能将全国搞乱吗？ //@孟庆德:</p>
@@ -54,7 +60,7 @@
 </h2>
 <p>SPAM //@学缠悟缠: //@章诒和://@谓贤: [鲜花][鲜花]<br><br>RE: 慶祝中華民國建國104年，憲政民主普及兩岸。 http://t.cn/R2WJvly<br><img src="http://ww2.sinaimg.cn/large/5186d665jw1ewvmrwryfvj20hs0hsq61.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3896298614755421" target="freeweibo-mirror">中國104歲了，祝你104歲生日快樂。#雙十國慶#</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3896019110430011" target="freeweibo-mirror">【被亲姐下药算计，她不小心被一个陌生人毁了清白】楼主家里规定…</a>
 </h2>
 <p>【被亲姐下药算计，她不小心被一个陌生人毁了清白】楼主家里规定在继承家里财产之前，必须是雏儿，楼主一直守身如玉，可是姐姐为了抢夺家产居然联合楼主的追求者对楼主下药！楼主拼命逃跑，可惜最后还是被一个陌生人毁了清白……#九哥读物#<br><img src="http://ww4.sinaimg.cn/large/8e285f26gw1ewusimp75tj20c82qbk68.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3896013699777927" target="freeweibo-mirror">得不到诺奖的时候，说那是西方的政治工具，得到了就欢呼雀跃了；…</a>
-</h2>
-<p>得不到诺奖的时候，说那是西方的政治工具，得到了就欢呼雀跃了；没加入联合国的时候，说那是美帝国主义的傀儡，加入了就“世界人民万众一心”了；访美的时候，说中美友谊源远流长，离开了又说是西方反华势力了；用得着的时候说群众的眼睛是雪亮的，用不着了又说是不明真相的群众</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
