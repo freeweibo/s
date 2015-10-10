@@ -54,13 +54,13 @@
 </h2>
 <p>SPAM [吃惊]//@天下第一港:[吃惊]//@贺金云-://@公民苏克: //@蓝星虫No1:改行了，还是本行？//@乡校://@小道信息: 不是共青团，你们~~~~~~~~~~//@歷史钩沉: //@明夷道2: @丹佛叔叔d:这厮要火<br><br>RE: 这个共青团山西晋城组织部长疯了？@共青团中央<br><img src="http://ww1.sinaimg.cn/large/006eRjtcjw1eww7a48uiwj30f00qowhw.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3896473391128824" target="freeweibo-mirror">SPAM 我仿佛从来没有看过金三胖的侧面和后脑勺儿</a>
 </h2>
 <p>SPAM 我仿佛从来没有看过金三胖的侧面和后脑勺儿</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3896470698940823" target="freeweibo-mirror">[偷笑] //@章文的文章:呵呵</a>
 </h2>
