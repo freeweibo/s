@@ -26,6 +26,12 @@
 <p>
 	<small> ============== 1小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3896468311669126" target="freeweibo-mirror">//@文盲李世威:咋跟我撕逼的都没这才情？//@张小波:小文…</a>
+</h2>
+<p>//@文盲李世威:咋跟我撕逼的都没这才情？//@张小波:小文，我操得了，守得住，你深有体会。 //@章文的文章:小波挺精明，就是没操守。 //@张小波:章文挺机智，就是没思想。</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3896456124010404" target="freeweibo-mirror">新浪审查与朝鲜阅兵同样惊人吃惊，对了，直接主管大脑袋的活儿啊</a>
 </h2>
 <p>新浪审查与朝鲜阅兵同样惊人吃惊，对了，直接主管大脑袋的活儿啊</p>
@@ -42,7 +48,7 @@
 </h2>
 <p>共青团晋城组织部长[偷笑]</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3896450175616452" target="freeweibo-mirror">[爱你][抓狂][挖鼻][爱你][wrefrttr陆毅]啪啪…</a>
 </h2>
@@ -72,7 +78,7 @@
 </h2>
 <p>快讯：王辉忠任福建省委副书记，代省长。</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3896413484190913" target="freeweibo-mirror">一个位置。请勿联想！</a>
 </h2>
@@ -84,13 +90,13 @@
 </h2>
 <p>刘的表情显露出心境//@杨锦麟:那誰，以前好像也站這個位子喔！ //@卓越兄:老刘待遇不错。</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3896408669377048" target="freeweibo-mirror">【人事快讯：王辉忠拟任福建省代省长】王辉忠，男，汉族，195…</a>
 </h2>
 <p>【人事快讯：王辉忠拟任福建省代省长】王辉忠，男，汉族，1956年2月生，浙江义乌市人，1978年5月加入中国共产党，1978年7月参加工作，中央党校省部级干部在职研究生班政治学专业毕业，中央党校在职研究生学历。王辉忠现任浙江省委副书记、政法委书记，拟任福建省副省长、代理省长。<br><img src="http://ww1.sinaimg.cn/large/8c51a114gw1eww1gr8ge6j20c808qwf6.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3896406504846898" target="freeweibo-mirror">//@凌源黑暗之城: //@红卫少侠: //@砖头猛:[嘻嘻…</a>
 </h2>
@@ -108,7 +114,7 @@
 </h2>
 <p>[蛋糕]//@牛的海: 转发微博<br><br>RE: 【本博正在图片直播双十】。。。谁说国庆一定要有飞机、大炮？。。。中华民国的国庆轻松、愉快！[嘻嘻]。。。这样的国庆~俺喜欢，您呢？。。。祝【中华民国104年】生日快乐！[蛋糕]。。。天佑台湾，天佑中华民族！[许愿]。。。明天本博将上传全场视频，敬请期待！。。。#101二#<br><img src="http://ww4.sinaimg.cn/large/005J5gIBgw1ewvvmtac28j30s90fu0ue.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3896358199465854" target="freeweibo-mirror">【本博正在图片直播双十】。。。谁说国庆一定要有飞机、大炮？。…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3896331460345675" target="freeweibo-mirror">//@王双增的博客://@夏天1984666: 如果不喊万岁…</a>
 </h2>
 <p>//@王双增的博客://@夏天1984666: 如果不喊万岁、不树毛像、不给林彪拉上去、普普通通的毛泽东一个人能将全国搞乱吗？ //@孟庆德:</p>
-<p>
-	<small> ============== 11小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3896321490354726" target="freeweibo-mirror">SPAM 再怎么摇尾乞怜对岸也给不了你一块骨头</a>
-</h2>
-<p>SPAM 再怎么摇尾乞怜对岸也给不了你一块骨头<br><br>RE: 武昌首义，推翻帝制，肇造共和。104周年！<br><img src="http://ww3.sinaimg.cn/large/617fc8a9jw1ewvr7rame1j20go0go763.jpg"></p>
 <p>
 	<small> ============== 11小时前</small>
 </p>
