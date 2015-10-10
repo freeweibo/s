@@ -36,13 +36,13 @@
 </h2>
 <p>刘的表情显露出心境//@杨锦麟:那誰，以前好像也站這個位子喔！ //@卓越兄:老刘待遇不错。</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3896408669377048" target="freeweibo-mirror">【人事快讯：王辉忠拟任福建省代省长】王辉忠，男，汉族，195…</a>
 </h2>
 <p>【人事快讯：王辉忠拟任福建省代省长】王辉忠，男，汉族，1956年2月生，浙江义乌市人，1978年5月加入中国共产党，1978年7月参加工作，中央党校省部级干部在职研究生班政治学专业毕业，中央党校在职研究生学历。王辉忠现任浙江省委副书记、政法委书记，拟任福建省副省长、代理省长。<br><img src="http://ww1.sinaimg.cn/large/8c51a114gw1eww1gr8ge6j20c808qwf6.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3896406504846898" target="freeweibo-mirror">//@凌源黑暗之城: //@红卫少侠: //@砖头猛:[嘻嘻…</a>
 </h2>
@@ -60,7 +60,7 @@
 </h2>
 <p>[蛋糕]//@牛的海: 转发微博<br><br>RE: 【本博正在图片直播双十】。。。谁说国庆一定要有飞机、大炮？。。。中华民国的国庆轻松、愉快！[嘻嘻]。。。这样的国庆~俺喜欢，您呢？。。。祝【中华民国104年】生日快乐！[蛋糕]。。。天佑台湾，天佑中华民族！[许愿]。。。明天本博将上传全场视频，敬请期待！。。。#101二#<br><img src="http://ww4.sinaimg.cn/large/005J5gIBgw1ewvvmtac28j30s90fu0ue.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3896358199465854" target="freeweibo-mirror">【本博正在图片直播双十】。。。谁说国庆一定要有飞机、大炮？。…</a>
 </h2>
@@ -102,7 +102,7 @@
 </h2>
 <p>SPAM 104岁了。。。<br><br>RE: 中國104歲了，祝你104歲生日快樂。#雙十國慶#<br><img src="http://ww2.sinaimg.cn/large/67e07352gw1ewvotfkwp8j20p018gn7k.jpg"></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3896313466617299" target="freeweibo-mirror">SPAM 金正恩热情拥抱刘云山</a>
 </h2>
