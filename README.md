@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3896406504846898" target="freeweibo-mirror">//@凌源黑暗之城: //@红卫少侠: //@砖头猛:[嘻嘻…</a>
+</h2>
+<p>//@凌源黑暗之城: //@红卫少侠: //@砖头猛:[嘻嘻]//@赤馬於歸: 回复@央媒新闻评论:仲勋之子不上位，恐怕他还会落井下石！//@央媒新闻评论:四朝元老，老奸巨滑，见风使舵，溜须拍马，内联外和，打击报复[挖鼻]//@赤馬於歸:这屁吹得有点大了！</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3896363270515896" target="freeweibo-mirror">[蛋糕]//@牛的海: 转发微博</a>
 </h2>
 <p>[蛋糕]//@牛的海: 转发微博<br><br>RE: 【本博正在图片直播双十】。。。谁说国庆一定要有飞机、大炮？。。。中华民国的国庆轻松、愉快！[嘻嘻]。。。这样的国庆~俺喜欢，您呢？。。。祝【中华民国104年】生日快乐！[蛋糕]。。。天佑台湾，天佑中华民族！[许愿]。。。明天本博将上传全场视频，敬请期待！。。。#101二#<br><img src="http://ww4.sinaimg.cn/large/005J5gIBgw1ewvvmtac28j30s90fu0ue.jpg"></p>
@@ -48,7 +54,7 @@
 </h2>
 <p>//@王双增的博客://@夏天1984666: 如果不喊万岁、不树毛像、不给林彪拉上去、普普通通的毛泽东一个人能将全国搞乱吗？ //@孟庆德:</p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3896321490354726" target="freeweibo-mirror">SPAM 再怎么摇尾乞怜对岸也给不了你一块骨头</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3896089856259955" target="freeweibo-mirror">//@兼容求是赏奇析疑:感觉确实是这样！</a>
 </h2>
 <p>//@兼容求是赏奇析疑:感觉确实是这样！</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3896067974053025" target="freeweibo-mirror">这几十年，党没管党，党没管党员，管党管党员的人连他自己都没管…</a>
-</h2>
-<p>这几十年，党没管党，党没管党员，管党管党员的人连他自己都没管住，怎么敢管别人呢？干部队伍怎能不腐败呢？<br><img src="http://ww1.sinaimg.cn/large/d81ffff5jw1ewuybstcxzj208w064751.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
