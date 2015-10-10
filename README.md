@@ -24,7 +24,7 @@
 </h2>
 <p>//@王双增的博客://@夏天1984666: 如果不喊万岁、不树毛像、不给林彪拉上去、普普通通的毛泽东一个人能将全国搞乱吗？ //@孟庆德:</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3896321490354726" target="freeweibo-mirror">SPAM 再怎么摇尾乞怜对岸也给不了你一块骨头</a>
 </h2>
@@ -60,7 +60,7 @@
 </h2>
 <p>//@DopeyTom: 谁是高级黑？//@哥们风太大: 这丫原来是高级黑[思考]//@涤烦子-:[哈哈]</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3896181433958456" target="freeweibo-mirror">SPAM 【粤语交友平台】各位靓仔、靓女、单身噶、交友噶！！…</a>
 </h2>
