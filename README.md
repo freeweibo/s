@@ -36,7 +36,7 @@
 </h2>
 <p>慶祝中華民國建國104年，憲政民主普及兩岸。 http://t.cn/R2WJvly<br><img src="http://ww2.sinaimg.cn/large/5186d665jw1ewvmrwryfvj20hs0hsq61.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3896188484840196" target="freeweibo-mirror">//@DopeyTom: 谁是高级黑？//@哥们风太大: 这…</a>
 </h2>
@@ -54,7 +54,7 @@
 </h2>
 <p>老顽童忘了薄熙来现象了？当下走资的特色党，内斗玩的天昏地暗，尽失民心！//@怪才老顽童3: 转发微博</p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3896139872471722" target="freeweibo-mirror">可怕 //@萧山维权者戴鸿://@残疾农民工维权生涯:转发微…</a>
 </h2>
