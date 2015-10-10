@@ -30,7 +30,7 @@
 </h2>
 <p>[蛋糕]//@牛的海: 转发微博<br><br>RE: 【本博正在图片直播双十】。。。谁说国庆一定要有飞机、大炮？。。。中华民国的国庆轻松、愉快！[嘻嘻]。。。这样的国庆~俺喜欢，您呢？。。。祝【中华民国104年】生日快乐！[蛋糕]。。。天佑台湾，天佑中华民族！[许愿]。。。明天本博将上传全场视频，敬请期待！。。。#101二#<br><img src="http://ww4.sinaimg.cn/large/005J5gIBgw1ewvvmtac28j30s90fu0ue.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3896358199465854" target="freeweibo-mirror">【本博正在图片直播双十】。。。谁说国庆一定要有飞机、大炮？。…</a>
 </h2>
@@ -72,7 +72,7 @@
 </h2>
 <p>SPAM 104岁了。。。<br><br>RE: 中國104歲了，祝你104歲生日快樂。#雙十國慶#<br><img src="http://ww2.sinaimg.cn/large/67e07352gw1ewvotfkwp8j20p018gn7k.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3896313466617299" target="freeweibo-mirror">SPAM 金正恩热情拥抱刘云山</a>
 </h2>
