@@ -48,7 +48,7 @@
 </h2>
 <p>SPAM 我仿佛从来没有看过金三胖的侧面和后脑勺儿</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3896470698940823" target="freeweibo-mirror">[偷笑] //@章文的文章:呵呵</a>
 </h2>
@@ -114,7 +114,7 @@
 </h2>
 <p>纪念双十</p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3896424355475585" target="freeweibo-mirror">本溪市公安局南芬分局网安大队的官微，竟在网上称马克思主义是世…</a>
 </h2>
