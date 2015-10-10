@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3896363270515896" target="freeweibo-mirror">[蛋糕]//@牛的海: 转发微博</a>
+</h2>
+<p>[蛋糕]//@牛的海: 转发微博<br><br>RE: 【本博正在图片直播双十】。。。谁说国庆一定要有飞机、大炮？。。。中华民国的国庆轻松、愉快！[嘻嘻]。。。这样的国庆~俺喜欢，您呢？。。。祝【中华民国104年】生日快乐！[蛋糕]。。。天佑台湾，天佑中华民族！[许愿]。。。明天本博将上传全场视频，敬请期待！。。。#101二#<br><img src="http://ww4.sinaimg.cn/large/005J5gIBgw1ewvvmtac28j30s90fu0ue.jpg"></p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3896350334837226" target="freeweibo-mirror">SPAM @窗外民声 @南方都市报 @中国西藏新闻网 @杜猛</a>
 </h2>
 <p>SPAM @窗外民声 @南方都市报 @中国西藏新闻网 @杜猛</p>
@@ -66,7 +72,7 @@
 </h2>
 <p>SPAM //@学缠悟缠: //@章诒和://@谓贤: [鲜花][鲜花]<br><br>RE: 慶祝中華民國建國104年，憲政民主普及兩岸。 http://t.cn/R2WJvly<br><img src="http://ww2.sinaimg.cn/large/5186d665jw1ewvmrwryfvj20hs0hsq61.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3896298614755421" target="freeweibo-mirror">中國104歲了，祝你104歲生日快樂。#雙十國慶#</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3896056041129738" target="freeweibo-mirror">[doge]//@财经网: 【小科普·获得英国永久居留权的几…</a>
 </h2>
 <p>[doge]//@财经网: 【小科普·获得英国永久居留权的几种常见途径】1、有钱（200万左右英镑投资移民，有时限），再换其他途径申请永居；2、在英国连续工作5年（5年连续签证）；3、和英国人结婚；4、英国连续住10年。嗯,question：which one?....</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3896035812471773" target="freeweibo-mirror">不信的去百度一下</a>
-</h2>
-<p>不信的去百度一下<br><img src="http://ww1.sinaimg.cn/large/006f11n6gw1ewuun4h1puj30jc0ed78x.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
