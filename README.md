@@ -36,7 +36,7 @@
 </h2>
 <p>朝鲜劳动党建党65周年与70周年，中朝领导人一起阅兵。<br><img src="http://ww2.sinaimg.cn/large/4bdb1fa0jw1ewwb5eho7uj2096064glr.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3896500860146971" target="freeweibo-mirror">还有比这届政府更无耻的吗？</a>
 </h2>
