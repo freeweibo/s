@@ -38,6 +38,12 @@
 <p>
 	<small> ============== 4小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3896318625709920" target="freeweibo-mirror">SPAM 104岁了。。。</a>
+</h2>
+<p>SPAM 104岁了。。。<br><br>RE: 中國104歲了，祝你104歲生日快樂。#雙十國慶#<br><img src="http://ww2.sinaimg.cn/large/67e07352gw1ewvotfkwp8j20p018gn7k.jpg"></p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3896313466617299" target="freeweibo-mirror">SPAM 金正恩热情拥抱刘云山</a>
 </h2>
 <p>SPAM 金正恩热情拥抱刘云山<br><img src="http://ww2.sinaimg.cn/large/656952ecjw1ewvqj5khyng20aq07g4qr.gif"></p>
@@ -48,7 +54,7 @@
 </h2>
 <p>SPAM //@学缠悟缠: //@章诒和://@谓贤: [鲜花][鲜花]<br><br>RE: 慶祝中華民國建國104年，憲政民主普及兩岸。 http://t.cn/R2WJvly<br><img src="http://ww2.sinaimg.cn/large/5186d665jw1ewvmrwryfvj20hs0hsq61.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3896281136770127" target="freeweibo-mirror">慶祝中華民國建國104年，憲政民主普及兩岸。 http://…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3896006192128076" target="freeweibo-mirror">如此说来环球时报的立场是党的利益应该居于国家利益和民族利益之…</a>
 </h2>
 <p>如此说来环球时报的立场是党的利益应该居于国家利益和民族利益之下、才是历史的正道啰！这话你们应该对共产党说去！</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3895997669000061" target="freeweibo-mirror">[思考]谁是影响中国共产党领导人的“精神教父”？马列主义毛泽…</a>
-</h2>
-<p>[思考]谁是影响中国共产党领导人的“精神教父”？马列主义毛泽东思想还是杜润生？杜润生去世，媒体倾巢出动大搞“浮夸风”，新浪财经：杜润生：影响中国领导人的“精神教父！搜狐网：揭秘杜润生：系习近平和王岐山的“精神教父”，凤凰财经：“九号院的灵魂是杜润生，网易：中国农村改革之父杜润生。<br><img src="http://ww1.sinaimg.cn/large/be3a7defjw1ewuq7oy15uj203c023a9u.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
