@@ -42,7 +42,7 @@
 </h2>
 <p>SPAM 再怎么摇尾乞怜对岸也给不了你一块骨头<br><br>RE: 武昌首义，推翻帝制，肇造共和。104周年！<br><img src="http://ww3.sinaimg.cn/large/617fc8a9jw1ewvr7rame1j20go0go763.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3896319418384668" target="freeweibo-mirror">武昌首义，推翻帝制，肇造共和。104周年！</a>
 </h2>
