@@ -30,7 +30,7 @@
 </h2>
 <p>一个位置。请勿联想！<br><img src="http://ww1.sinaimg.cn/large/c57c1a49jw1eww20nme6zj20k00b4abd.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3896408983831535" target="freeweibo-mirror">刘的表情显露出心境//@杨锦麟:那誰，以前好像也站這個位子喔…</a>
 </h2>
