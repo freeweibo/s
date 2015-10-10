@@ -54,7 +54,7 @@
 </h2>
 <p>纪念双十</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3896424355475585" target="freeweibo-mirror">本溪市公安局南芬分局网安大队的官微，竟在网上称马克思主义是世…</a>
 </h2>
@@ -126,7 +126,7 @@
 </h2>
 <p>SPAM 再怎么摇尾乞怜对岸也给不了你一块骨头<br><br>RE: 武昌首义，推翻帝制，肇造共和。104周年！<br><img src="http://ww3.sinaimg.cn/large/617fc8a9jw1ewvr7rame1j20go0go763.jpg"></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3896319418384668" target="freeweibo-mirror">武昌首义，推翻帝制，肇造共和。104周年！</a>
 </h2>
