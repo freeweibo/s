@@ -54,7 +54,7 @@
 </h2>
 <p>SPAM 104岁了。。。<br><br>RE: 中國104歲了，祝你104歲生日快樂。#雙十國慶#<br><img src="http://ww2.sinaimg.cn/large/67e07352gw1ewvotfkwp8j20p018gn7k.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3896313466617299" target="freeweibo-mirror">SPAM 金正恩热情拥抱刘云山</a>
 </h2>
