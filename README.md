@@ -36,7 +36,7 @@
 </h2>
 <p>武昌首义，推翻帝制，肇造共和。104周年！<br><img src="http://ww3.sinaimg.cn/large/617fc8a9jw1ewvr7rame1j20go0go763.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3896313466617299" target="freeweibo-mirror">SPAM 金正恩热情拥抱刘云山</a>
 </h2>
