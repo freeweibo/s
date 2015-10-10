@@ -48,7 +48,7 @@
 </h2>
 <p>SPAM //@学缠悟缠: //@章诒和://@谓贤: [鲜花][鲜花]<br><br>RE: 慶祝中華民國建國104年，憲政民主普及兩岸。 http://t.cn/R2WJvly<br><img src="http://ww2.sinaimg.cn/large/5186d665jw1ewvmrwryfvj20hs0hsq61.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3896281136770127" target="freeweibo-mirror">慶祝中華民國建國104年，憲政民主普及兩岸。 http://…</a>
 </h2>
@@ -60,13 +60,13 @@
 </h2>
 <p>//@DopeyTom: 谁是高级黑？//@哥们风太大: 这丫原来是高级黑[思考]//@涤烦子-:[哈哈]</p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3896181433958456" target="freeweibo-mirror">SPAM 【粤语交友平台】各位靓仔、靓女、单身噶、交友噶！！…</a>
 </h2>
 <p>SPAM 【粤语交友平台】各位靓仔、靓女、单身噶、交友噶！！通通出来啦！！求倾计、求解闷！！[心][心][来]<br><img src="http://ww3.sinaimg.cn/large/83b62366gw1ewvavaaneoj20c809haal.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3896160173879154" target="freeweibo-mirror">老顽童忘了薄熙来现象了？当下走资的特色党，内斗玩的天昏地暗，…</a>
 </h2>
