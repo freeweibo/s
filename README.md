@@ -84,7 +84,7 @@
 </h2>
 <p>这个共青团山西晋城组织部长疯了？@共青团中央<br><img src="http://ww1.sinaimg.cn/large/006eRjtcjw1eww7a48uiwj30f00qowhw.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3896456124010404" target="freeweibo-mirror">新浪审查与朝鲜阅兵同样惊人吃惊，对了，直接主管大脑袋的活儿啊</a>
 </h2>
