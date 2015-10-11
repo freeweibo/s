@@ -54,13 +54,13 @@
 </h2>
 <p>【此公安局长，还会被提拔吗？】福建省晋江市公民陈进宾实名举报晋江市公安局陈文荣局长索贿(单位)三千万、巨额财产来源不明，泉州市检察院已依法受理。此前，泉州市组织部公示拟提拔陈文荣。那么，陈文荣局长还会提拔吗？我们拭目以待。<br><img src="http://ww3.sinaimg.cn/large/41693645gw1ewwzorw86cj20k00zk0tz.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3896653486376132" target="freeweibo-mirror">回复@SuperHeroSheep:【为什么习大大不管呢，不…</a>
 </h2>
 <p>回复@SuperHeroSheep:【为什么习大大不管呢，不是说要抓食品安全么？】他的谋士陈君石院屎早就说了：转基因不属于食品安全；老陈糊个马粪包骗老大，老大竟然好像是信了。 //@SuperHeroSheep:为什么习大大不管呢，不是说要抓食品安全么？</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3896522951303746" target="freeweibo-mirror">//@公民专注://@荷兰通讯: 冰山一角//@刘忠世: 极…</a>
 </h2>
