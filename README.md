@@ -48,7 +48,7 @@
 </h2>
 <p>SPAM 终于有人开教男人穿衣撘配的徽博拉~</p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3896871870929623" target="freeweibo-mirror">SPAM //@伯爵056://@水木双刀_://@书法一孔…</a>
 </h2>
