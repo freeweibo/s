@@ -26,6 +26,18 @@
 <p>
 	<small> ============== 1小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3896712768646816" target="freeweibo-mirror">大家预测一下:陈文荣局长，会获提拔吗？</a>
+</h2>
+<p>大家预测一下:陈文荣局长，会获提拔吗？<br><br>RE: 【此公安局长，还会被提拔吗？】福建省晋江市公民陈进宾实名举报晋江市公安局陈文荣局长索贿(单位)三千万、巨额财产来源不明，泉州市检察院已依法受理。此前，泉州市组织部公示拟提拔陈文荣。那么，陈文荣局长还会提拔吗？我们拭目以待。<br><img src="http://ww3.sinaimg.cn/large/41693645gw1ewwzorw86cj20k00zk0tz.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3896707337439230" target="freeweibo-mirror">【此公安局长，还会被提拔吗？】福建省晋江市公民陈进宾实名举报…</a>
+</h2>
+<p>【此公安局长，还会被提拔吗？】福建省晋江市公民陈进宾实名举报晋江市公安局陈文荣局长索贿(单位)三千万、巨额财产来源不明，泉州市检察院已依法受理。此前，泉州市组织部公示拟提拔陈文荣。那么，陈文荣局长还会提拔吗？我们拭目以待。<br><img src="http://ww3.sinaimg.cn/large/41693645gw1ewwzorw86cj20k00zk0tz.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3896653486376132" target="freeweibo-mirror">回复@SuperHeroSheep:【为什么习大大不管呢，不…</a>
 </h2>
 <p>回复@SuperHeroSheep:【为什么习大大不管呢，不是说要抓食品安全么？】他的谋士陈君石院屎早就说了：转基因不属于食品安全；老陈糊个马粪包骗老大，老大竟然好像是信了。 //@SuperHeroSheep:为什么习大大不管呢，不是说要抓食品安全么？</p>
@@ -125,18 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3896450175616452" target="freeweibo-mirror">[爱你][抓狂][挖鼻][爱你][wrefrttr陆毅]啪啪…</a>
 </h2>
 <p>[爱你][抓狂][挖鼻][爱你][wrefrttr陆毅]啪啪啪gif[微笑]网盘，40一位[织]撸[微笑]管不求同行，做爱[可爱]视[绿丝带]频不求有结果[威武]Ysa[神马]黄色[猪头][音乐]啪啪啪小视[音乐]频在我最美的av女优，云[微风][微风]盘[飞机]资[奥特曼]源种[鲜花]子，嫩模[陆毅]国产[色]自拍[爱你]偷拍ygs559612<br><img src="http://ww4.sinaimg.cn/large/a563e205gw1eww68aktepj20hr0qotb5.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3896444219785713" target="freeweibo-mirror">理论上是过渡，副总警监警衔，现任浙江省委副书记，政法委书记</a>
-</h2>
-<p>理论上是过渡，副总警监警衔，现任浙江省委副书记，政法委书记<br><br>RE: 快讯：王辉忠任福建省委副书记，代省长。</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3896443200842016" target="freeweibo-mirror">纪念双十</a>
-</h2>
-<p>纪念双十</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
