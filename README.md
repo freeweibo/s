@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3896747053442431" target="freeweibo-mirror">//@天下为公111l://@米超多1: //@太阳和月亮1…</a>
+</h2>
+<p>//@天下为公111l://@米超多1: //@太阳和月亮133://@红阳高升:汉奸//@秦岭山上一棵松:狗汉奸，狗杂种。<br><br>RE: 当美国遭遇百年未遇金融危机时，它利用“中美国”发起“救美国就是救中国，救欧洲就是救自己”的4万亿投资运动，把美欧资本主义从摇摇欲坠的大危机中解救出来。所以，美国不到两年破格连续五次给它颁发大奖。2010年美国评选拯救美国十大功臣，十个人中唯一的一个外国人，那就是瘟它。<br><img src="http://ww4.sinaimg.cn/large/01106953gw1ewwedp1b1hj208r06swet.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3896713511441168" target="freeweibo-mirror">//@袁裕来律师:大家预测一下:陈文荣局长，会获提拔吗？</a>
 </h2>
 <p>//@袁裕来律师:大家预测一下:陈文荣局长，会获提拔吗？<br><br>RE: 【此公安局长，还会被提拔吗？】福建省晋江市公民陈进宾实名举报晋江市公安局陈文荣局长索贿(单位)三千万、巨额财产来源不明，泉州市检察院已依法受理。此前，泉州市组织部公示拟提拔陈文荣。那么，陈文荣局长还会提拔吗？我们拭目以待。<br><img src="http://ww3.sinaimg.cn/large/41693645gw1ewwzorw86cj20k00zk0tz.jpg"></p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3896453519105085" target="freeweibo-mirror">共青团晋城组织部长[偷笑]</a>
 </h2>
 <p>共青团晋城组织部长[偷笑]</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3896453477137507" target="freeweibo-mirror">对于正在召开的世界马克思主义大会，某地方官方微博发出了如此神…</a>
-</h2>
-<p>对于正在召开的世界马克思主义大会，某地方官方微博发出了如此神评！共产主义理想信念教育的社会环境不容乐观啊[思考]<br><img src="http://ww2.sinaimg.cn/large/a758a778jw1eww6kkwckxj20zk0qon0i.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
