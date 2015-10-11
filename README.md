@@ -56,6 +56,12 @@
 <p>
 	<small> ============== 1天前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3896521127050489" target="freeweibo-mirror">当美国遭遇百年未遇金融危机时，它利用“中美国”发起“救美国就…</a>
+</h2>
+<p>当美国遭遇百年未遇金融危机时，它利用“中美国”发起“救美国就是救中国，救欧洲就是救自己”的4万亿投资运动，把美欧资本主义从摇摇欲坠的大危机中解救出来。所以，美国不到两年破格连续五次给它颁发大奖。2010年美国评选拯救美国十大功臣，十个人中唯一的一个外国人，那就是瘟它。<br><img src="http://ww4.sinaimg.cn/large/01106953gw1ewwedp1b1hj208r06swet.jpg"></p>
+<p>
+	<small> ============== 1天前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3896516529718990" target="freeweibo-mirror">SPAM //@孟庆明v:不想当皇帝的太子不是好太子！</a>
 </h2>
 <p>SPAM //@孟庆明v:不想当皇帝的太子不是好太子！<br><br>RE: 还有比这届政府更无耻的吗？<br><img src="http://ww2.sinaimg.cn/large/005O7F2fjw1ewwc0ulk65j30c807bt93.jpg"></p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3896453774845673" target="freeweibo-mirror">SPAM 哈哈哈哈//@希艺凌:目瞪口呆 //@希dicta…</a>
 </h2>
 <p>SPAM 哈哈哈哈//@希艺凌:目瞪口呆 //@希dictator: [衰]//@阿花花酱: 原来侧面是这样哈哈哈 //@辣条娘:哈哈哈哈侧面好微妙（。//@yuiko_变态假面: 侧面原来是这样的 //@我是香菜少女的香菜://@爱吃香菜的梓喵: 目瞪口呆 //@山田酱的非日常:哈哈哈有个猩猩趴在头上 //@MRNU不想接电话: hhh第一次看到这个角度</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3896453519105085" target="freeweibo-mirror">共青团晋城组织部长[偷笑]</a>
-</h2>
-<p>共青团晋城组织部长[偷笑]</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
