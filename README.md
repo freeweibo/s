@@ -30,7 +30,7 @@
 </h2>
 <p>SPAM //@孟庆明v:不想当皇帝的太子不是好太子！<br><br>RE: 还有比这届政府更无耻的吗？<br><img src="http://ww2.sinaimg.cn/large/005O7F2fjw1ewwc0ulk65j30c807bt93.jpg"></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3896509147667629" target="freeweibo-mirror">朝鲜劳动党建党65周年与70周年，中朝领导人一起阅兵。</a>
 </h2>
