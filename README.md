@@ -42,7 +42,7 @@
 </h2>
 <p>还有比这届政府更无耻的吗？<br><img src="http://ww2.sinaimg.cn/large/005O7F2fjw1ewwc0ulk65j30c807bt93.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3896487203261300" target="freeweibo-mirror">//@赵晓://@简直://@曾经小帅哥：真的假的？太恐怖了…</a>
 </h2>
