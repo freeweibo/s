@@ -26,6 +26,12 @@
 <p>
 	<small> ============== 1小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3896906209709202" target="freeweibo-mirror">整天反美抗日，为啥移民去美日？整天拥朝亲俄，为啥不移民去朝俄…</a>
+</h2>
+<p>整天反美抗日，为啥移民去美日？整天拥朝亲俄，为啥不移民去朝俄？你们的价值观就是婊子身后的贞洁牌坊！对，没错，梁山的【替天行道】也是贞洁牌坊！<br><img src="http://ww2.sinaimg.cn/large/763fb12bgw1ewxmlufx6nj20hs0fj401.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3896876296123261" target="freeweibo-mirror">SPAM 终于有人开教男人穿衣撘配的徽博拉~</a>
 </h2>
 <p>SPAM 终于有人开教男人穿衣撘配的徽博拉~</p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3896473391128824" target="freeweibo-mirror">SPAM 我仿佛从来没有看过金三胖的侧面和后脑勺儿</a>
 </h2>
 <p>SPAM 我仿佛从来没有看过金三胖的侧面和后脑勺儿</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3896470698940823" target="freeweibo-mirror">[偷笑] //@章文的文章:呵呵</a>
-</h2>
-<p>[偷笑] //@章文的文章:呵呵<br><br>RE: 北京大学无视教育部三番五令禁止西方价值观进入大学课堂的规定，公然在校内举办首届“世界马克思主义大会”，建立首座马克思大楼，以此传播西方马克思主义思想，对此，袁贵仁部长有何看法？</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
