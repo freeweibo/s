@@ -42,7 +42,7 @@
 </h2>
 <p>SPAM 留着噢，失眠的时候看！</p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3896876296123261" target="freeweibo-mirror">SPAM 终于有人开教男人穿衣撘配的徽博拉~</a>
 </h2>
@@ -132,7 +132,7 @@
 </h2>
 <p>还有比这届政府更无耻的吗？<br><img src="http://ww2.sinaimg.cn/large/005O7F2fjw1ewwc0ulk65j30c807bt93.jpg"></p>
 <p>
-	<small> ============== 1天前</small>
+	<small> ============== 2天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3896487203261300" target="freeweibo-mirror">//@赵晓://@简直://@曾经小帅哥：真的假的？太恐怖了…</a>
 </h2>
