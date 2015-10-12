@@ -26,6 +26,12 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3897199992241897" target="freeweibo-mirror">四川省委副书记李春城受贿4千万，造成国家损失5亿7千万，仅获…</a>
+</h2>
+<p>四川省委副书记李春城受贿4千万，造成国家损失5亿7千万，仅获刑13年，在这个国家当官，谁不贪谁他妈的傻逼！<br><img src="http://ww4.sinaimg.cn/large/006fnjurgw1ewykb8t4j2j30w00fsaeh.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3897152097217827" target="freeweibo-mirror">SPAM //@浩正刘臻:红米note2……//@雷澍诗文：…</a>
 </h2>
 <p>SPAM //@浩正刘臻:红米note2……//@雷澍诗文：美国本来就是一个应该不存在的国家。把印第安人几乎杀光了吧！强占了人家的土地。在世界上指手画脚。非要把西式民主原封不动地放在中国。我们的人也不应该出现大量的进口转基因大豆。等到损害了中国最大利益，恐怕才慌了神儿吧！老是给美国送大礼这就是一种错误</p>
@@ -36,7 +42,7 @@
 </h2>
 <p>无耻！//@二獾: [話筒] //@透史镜:@二獾//@封神祭十二叔: //@青山G妩媚:[话筒]//@七步閣3: //@仰天长叹再来://@文庙锦西河堤边V:[话筒]//@玳簋26: //@傘幕下的曉曉:转发微博<br><br>RE: 美国之音： 最新线索指向内蒙公安……<br><img src="http://ww4.sinaimg.cn/large/006ehUPIgw1ewy4d5yx53j30a04w8e81.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3897114247302468" target="freeweibo-mirror">SPAM 看你们这帮贱人咋举报！！！转发+关注送无码！！[纠…</a>
 </h2>
@@ -48,7 +54,7 @@
 </h2>
 <p>美国之音： 最新线索指向内蒙公安……<br><img src="http://ww4.sinaimg.cn/large/006ehUPIgw1ewy4d5yx53j30a04w8e81.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3897031539570242" target="freeweibo-mirror">//@向上游的鱼V:转发微博</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3896712768646816" target="freeweibo-mirror">大家预测一下:陈文荣局长，会获提拔吗？</a>
 </h2>
 <p>大家预测一下:陈文荣局长，会获提拔吗？<br><br>RE: 【此公安局长，还会被提拔吗？】福建省晋江市公民陈进宾实名举报晋江市公安局陈文荣局长索贿(单位)三千万、巨额财产来源不明，泉州市检察院已依法受理。此前，泉州市组织部公示拟提拔陈文荣。那么，陈文荣局长还会提拔吗？我们拭目以待。<br><img src="http://ww3.sinaimg.cn/large/41693645gw1ewwzorw86cj20k00zk0tz.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3896707337439230" target="freeweibo-mirror">【此公安局长，还会被提拔吗？】福建省晋江市公民陈进宾实名举报…</a>
-</h2>
-<p>【此公安局长，还会被提拔吗？】福建省晋江市公民陈进宾实名举报晋江市公安局陈文荣局长索贿(单位)三千万、巨额财产来源不明，泉州市检察院已依法受理。此前，泉州市组织部公示拟提拔陈文荣。那么，陈文荣局长还会提拔吗？我们拭目以待。<br><img src="http://ww3.sinaimg.cn/large/41693645gw1ewwzorw86cj20k00zk0tz.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
