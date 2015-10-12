@@ -32,6 +32,12 @@
 <p>
 	<small> ============== 4小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3897061030310311" target="freeweibo-mirror">美国之音： 最新线索指向内蒙公安……</a>
+</h2>
+<p>美国之音： 最新线索指向内蒙公安……<br><img src="http://ww4.sinaimg.cn/large/006ehUPIgw1ewy4d5yx53j30a04w8e81.jpg"></p>
+<p>
+	<small> ============== 8小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3897031539570242" target="freeweibo-mirror">//@向上游的鱼V:转发微博</a>
 </h2>
 <p>//@向上游的鱼V:转发微博<br><br>RE: 【中国继续追捕9月18日新疆袭击事件肇事者】新疆拜城县居民表示，至少有60人在铁热克镇附近一座煤矿9月18日遭袭时被刺死。新疆地方当局封锁了该地区，追捕肇事者的行动进入第四周。http://t.cn/Rynk8Ke<br><img src="http://ww3.sinaimg.cn/large/6538fd8cjw1ewy0mdmi45j209q05pgly.jpg"></p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3896522951303746" target="freeweibo-mirror">//@公民专注://@荷兰通讯: 冰山一角//@刘忠世: 极…</a>
 </h2>
 <p>//@公民专注://@荷兰通讯: 冰山一角//@刘忠世: 极度震惊！<br><br>RE: 【广东四会狱警刘烁实名举报副监狱长买卖人体器官】昨日，有网友爆料称广东四会副监狱长买卖人体器官，广东四会狱警刘烁因实名举报副监狱长买卖人体器官被打致双腿残废。肾脏每只35万元、心脏600万元、肝脏350万元、眼角膜每只14万元。可以确认的被摘除器官并谋杀的有16人。http://t.cn/RyQl7x0<br><img src="http://ww1.sinaimg.cn/large/6ca1d583gw1ewvfggv2czj20rr0djwgt.jpg"></p>
-<p>
-	<small> ============== 2天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3896521127050489" target="freeweibo-mirror">当美国遭遇百年未遇金融危机时，它利用“中美国”发起“救美国就…</a>
-</h2>
-<p>当美国遭遇百年未遇金融危机时，它利用“中美国”发起“救美国就是救中国，救欧洲就是救自己”的4万亿投资运动，把美欧资本主义从摇摇欲坠的大危机中解救出来。所以，美国不到两年破格连续五次给它颁发大奖。2010年美国评选拯救美国十大功臣，十个人中唯一的一个外国人，那就是瘟它。<br><img src="http://ww4.sinaimg.cn/large/01106953gw1ewwedp1b1hj208r06swet.jpg"></p>
 <p>
 	<small> ============== 2天前</small>
 </p>
