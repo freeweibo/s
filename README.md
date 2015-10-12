@@ -36,7 +36,7 @@
 </h2>
 <p>四川省委副书记李春城受贿4千万，造成国家损失5亿7千万，仅获刑13年，在这个国家当官，谁不贪谁他妈的傻逼！<br><img src="http://ww4.sinaimg.cn/large/006fnjurgw1ewykb8t4j2j30w00fsaeh.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3897152097217827" target="freeweibo-mirror">SPAM //@浩正刘臻:红米note2……//@雷澍诗文：…</a>
 </h2>
