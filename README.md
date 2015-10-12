@@ -36,7 +36,7 @@
 </h2>
 <p>SPAM 看你们这帮贱人咋举报！！！转发+关注送无码！！[纠结]<br><img src="http://ww1.sinaimg.cn/large/70665bffjw1ewyagbuysrj20xc18gdml.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3897061030310311" target="freeweibo-mirror">美国之音： 最新线索指向内蒙公安……</a>
 </h2>
