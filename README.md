@@ -26,6 +26,12 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3897028230350263" target="freeweibo-mirror">【中国继续追捕9月18日新疆袭击事件肇事者】新疆拜城县居民表…</a>
+</h2>
+<p>【中国继续追捕9月18日新疆袭击事件肇事者】新疆拜城县居民表示，至少有60人在铁热克镇附近一座煤矿9月18日遭袭时被刺死。新疆地方当局封锁了该地区，追捕肇事者的行动进入第四周。http://t.cn/Rynk8Ke<br><img src="http://ww3.sinaimg.cn/large/6538fd8cjw1ewy0mdmi45j209q05pgly.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3896909422900914" target="freeweibo-mirror">SPAM //@浩正刘臻:</a>
 </h2>
 <p>SPAM //@浩正刘臻:<br><br>RE: 整天反美抗日，为啥移民去美日？整天拥朝亲俄，为啥不移民去朝俄？你们的价值观就是婊子身后的贞洁牌坊！对，没错，梁山的【替天行道】也是贞洁牌坊！<br><img src="http://ww2.sinaimg.cn/large/763fb12bgw1ewxmlufx6nj20hs0fj401.jpg"></p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3896509147667629" target="freeweibo-mirror">朝鲜劳动党建党65周年与70周年，中朝领导人一起阅兵。</a>
 </h2>
 <p>朝鲜劳动党建党65周年与70周年，中朝领导人一起阅兵。<br><img src="http://ww2.sinaimg.cn/large/4bdb1fa0jw1ewwb5eho7uj2096064glr.jpg"></p>
-<p>
-	<small> ============== 2天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3896500860146971" target="freeweibo-mirror">还有比这届政府更无耻的吗？</a>
-</h2>
-<p>还有比这届政府更无耻的吗？<br><img src="http://ww2.sinaimg.cn/large/005O7F2fjw1ewwc0ulk65j30c807bt93.jpg"></p>
 <p>
 	<small> ============== 2天前</small>
 </p>
