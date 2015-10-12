@@ -24,7 +24,7 @@
 </h2>
 <p>SPAM //@浩正刘臻:<br><br>RE: 整天反美抗日，为啥移民去美日？整天拥朝亲俄，为啥不移民去朝俄？你们的价值观就是婊子身后的贞洁牌坊！对，没错，梁山的【替天行道】也是贞洁牌坊！<br><img src="http://ww2.sinaimg.cn/large/763fb12bgw1ewxmlufx6nj20hs0fj401.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3896906209709202" target="freeweibo-mirror">整天反美抗日，为啥移民去美日？整天拥朝亲俄，为啥不移民去朝俄…</a>
 </h2>
@@ -60,7 +60,7 @@
 </h2>
 <p>//@关洪导演: //@星火必燎原:打脸帖 //@石城公民://@崔小平律师: //@王亚林律师://@天月1988:转发微博</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3896792623774100" target="freeweibo-mirror">无论打着什么旗号，人大政协公检法全官参与的强拆都无法结出善果…</a>
 </h2>
