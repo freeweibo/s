@@ -54,7 +54,7 @@
 </h2>
 <p>美国之音： 最新线索指向内蒙公安……<br><img src="http://ww4.sinaimg.cn/large/006ehUPIgw1ewy4d5yx53j30a04w8e81.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3897031539570242" target="freeweibo-mirror">//@向上游的鱼V:转发微博</a>
 </h2>
