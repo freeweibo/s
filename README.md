@@ -24,7 +24,7 @@
 </h2>
 <p>//@卍轉播臺卍://@何三畏: 转发微博</p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3897210691858898" target="freeweibo-mirror">罚款五毛 //@V一骑绝尘V:转发微博</a>
 </h2>
@@ -36,7 +36,7 @@
 </h2>
 <p>四川省委副书记李春城受贿4千万，造成国家损失5亿7千万，仅获刑13年，在这个国家当官，谁不贪谁他妈的傻逼！<br><img src="http://ww4.sinaimg.cn/large/006fnjurgw1ewykb8t4j2j30w00fsaeh.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3897152097217827" target="freeweibo-mirror">SPAM //@浩正刘臻:红米note2……//@雷澍诗文：…</a>
 </h2>
