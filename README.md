@@ -42,7 +42,7 @@
 </h2>
 <p>整天反美抗日，为啥移民去美日？整天拥朝亲俄，为啥不移民去朝俄？你们的价值观就是婊子身后的贞洁牌坊！对，没错，梁山的【替天行道】也是贞洁牌坊！<br><img src="http://ww2.sinaimg.cn/large/763fb12bgw1ewxmlufx6nj20hs0fj401.jpg"></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3896902880193482" target="freeweibo-mirror">SPAM 超级重口味！！天啦鲁！没看的赶紧去看看吧！[生病]</a>
 </h2>
@@ -126,7 +126,7 @@
 </h2>
 <p>当美国遭遇百年未遇金融危机时，它利用“中美国”发起“救美国就是救中国，救欧洲就是救自己”的4万亿投资运动，把美欧资本主义从摇摇欲坠的大危机中解救出来。所以，美国不到两年破格连续五次给它颁发大奖。2010年美国评选拯救美国十大功臣，十个人中唯一的一个外国人，那就是瘟它。<br><img src="http://ww4.sinaimg.cn/large/01106953gw1ewwedp1b1hj208r06swet.jpg"></p>
 <p>
-	<small> ============== 1天前</small>
+	<small> ============== 2天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3896516529718990" target="freeweibo-mirror">SPAM //@孟庆明v:不想当皇帝的太子不是好太子！</a>
 </h2>
