@@ -30,7 +30,7 @@
 </h2>
 <p>//@向上游的鱼V:转发微博<br><br>RE: 【中国继续追捕9月18日新疆袭击事件肇事者】新疆拜城县居民表示，至少有60人在铁热克镇附近一座煤矿9月18日遭袭时被刺死。新疆地方当局封锁了该地区，追捕肇事者的行动进入第四周。http://t.cn/Rynk8Ke<br><img src="http://ww3.sinaimg.cn/large/6538fd8cjw1ewy0mdmi45j209q05pgly.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3897028230350263" target="freeweibo-mirror">【中国继续追捕9月18日新疆袭击事件肇事者】新疆拜城县居民表…</a>
 </h2>
