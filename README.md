@@ -48,7 +48,7 @@
 </h2>
 <p>SPAM 超级重口味！！天啦鲁！没看的赶紧去看看吧！[生病]</p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3896901156015992" target="freeweibo-mirror">SPAM 留着噢，失眠的时候看！</a>
 </h2>
