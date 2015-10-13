@@ -24,7 +24,7 @@
 </h2>
 <p>算这个账的，是个明白人。//@写字李华良: 转发微博</p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3897445567866576" target="freeweibo-mirror">历史已经证明，并且还将证明</a>
 </h2>
