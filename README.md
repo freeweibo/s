@@ -30,7 +30,7 @@
 </h2>
 <p>历史已经证明，并且还将证明<br><br>RE: 没有共产党就没有新中国” [吃惊][吃惊]http://t.cn/RyuvCCH @真话哥 @新闻娃 @陈光武律师 @盘子微谈 @广州区伯 @陈启宙 @陶景洲@happy热哥 @侯宁@观世音童@作家沙光@周泽律师@直击自媒体 @袁裕来律师 @看天下时报 @大鹏看天下@何天恩- @于建嵘 @杨建国@陈有西</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3897439209499597" target="freeweibo-mirror">大流氓还怕小流氓？ //@老猫阿贝:要是对咱也耍流氓呢？//…</a>
 </h2>
@@ -44,11 +44,17 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3897418774689702" target="freeweibo-mirror">没有共产党就没有新中国” [吃惊][吃惊]http://t.…</a>
+</h2>
+<p>没有共产党就没有新中国” [吃惊][吃惊]http://t.cn/RyuvCCH @真话哥 @新闻娃 @陈光武律师 @盘子微谈 @广州区伯 @陈启宙 @陶景洲@happy热哥 @侯宁@观世音童@作家沙光@周泽律师@直击自媒体 @袁裕来律师 @看天下时报 @大鹏看天下@何天恩- @于建嵘 @杨建国@陈有西</p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3897415234891971" target="freeweibo-mirror">[哈哈] //@老徐时评:谁带坏的？//@三侠五除二：周永康…</a>
 </h2>
 <p>[哈哈] //@老徐时评:谁带坏的？//@三侠五除二：周永康带坏的？呵呵，那周是谁带坏的呢？[挖鼻]</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3897414514075087" target="freeweibo-mirror">[哈哈]→_→ //@刘军宁:赞成留党察看，反对把坏人开除到…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3896909422900914" target="freeweibo-mirror">SPAM //@浩正刘臻:</a>
 </h2>
 <p>SPAM //@浩正刘臻:<br><br>RE: 整天反美抗日，为啥移民去美日？整天拥朝亲俄，为啥不移民去朝俄？你们的价值观就是婊子身后的贞洁牌坊！对，没错，梁山的【替天行道】也是贞洁牌坊！<br><img src="http://ww2.sinaimg.cn/large/763fb12bgw1ewxmlufx6nj20hs0fj401.jpg"></p>
-<p>
-	<small> ============== 2天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3896906209709202" target="freeweibo-mirror">整天反美抗日，为啥移民去美日？整天拥朝亲俄，为啥不移民去朝俄…</a>
-</h2>
-<p>整天反美抗日，为啥移民去美日？整天拥朝亲俄，为啥不移民去朝俄？你们的价值观就是婊子身后的贞洁牌坊！对，没错，梁山的【替天行道】也是贞洁牌坊！<br><img src="http://ww2.sinaimg.cn/large/763fb12bgw1ewxmlufx6nj20hs0fj401.jpg"></p>
 <p>
 	<small> ============== 2天前</small>
 </p>
