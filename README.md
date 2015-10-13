@@ -26,6 +26,24 @@
 <p>
 	<small> ============== 1小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3897445567866576" target="freeweibo-mirror">历史已经证明，并且还将证明</a>
+</h2>
+<p>历史已经证明，并且还将证明<br><br>RE: 没有共产党就没有新中国” [吃惊][吃惊]http://t.cn/RyuvCCH @真话哥 @新闻娃 @陈光武律师 @盘子微谈 @广州区伯 @陈启宙 @陶景洲@happy热哥 @侯宁@观世音童@作家沙光@周泽律师@直击自媒体 @袁裕来律师 @看天下时报 @大鹏看天下@何天恩- @于建嵘 @杨建国@陈有西</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3897439209499597" target="freeweibo-mirror">大流氓还怕小流氓？ //@老猫阿贝:要是对咱也耍流氓呢？//…</a>
+</h2>
+<p>大流氓还怕小流氓？ //@老猫阿贝:要是对咱也耍流氓呢？//@胡杨麟: 朝鲜是流氓又怎样？只要有益于中国国家利益，就是个流氓中国也要支持他，这是美国人的话，美国人以身作则教会了中国如何处理国际事务，朝鲜独裁专制贫穷僵化不守信用两面三刀---------那又如何？支持朝鲜符合中国利益，就得支持。</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3897433921087286" target="freeweibo-mirror">我们只希望活的有尊严！我们只希望免除生活中的恐惧！</a>
+</h2>
+<p>我们只希望活的有尊严！我们只希望免除生活中的恐惧！<br><br>RE: 没有共产党就没有新中国” [吃惊][吃惊]http://t.cn/RyuvCCH @真话哥 @新闻娃 @陈光武律师 @盘子微谈 @广州区伯 @陈启宙 @陶景洲@happy热哥 @侯宁@观世音童@作家沙光@周泽律师@直击自媒体 @袁裕来律师 @看天下时报 @大鹏看天下@何天恩- @于建嵘 @杨建国@陈有西</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3897415234891971" target="freeweibo-mirror">[哈哈] //@老徐时评:谁带坏的？//@三侠五除二：周永康…</a>
 </h2>
 <p>[哈哈] //@老徐时评:谁带坏的？//@三侠五除二：周永康带坏的？呵呵，那周是谁带坏的呢？[挖鼻]</p>
@@ -42,7 +60,7 @@
 </h2>
 <p>兲朝对外援助似乎上瘾，几百亿上千亿美金的援助甚或免除那些腌臜小国的债务，致使形成一个认识的误区，好像是我们为啥那么傻，真金白银并未买来真友谊。其实外援都是有条件的，他们要的是利益，出卖的是良知，和五毛有点类同。而我们要的就是他们在某些事情上支持我们，真正文明社会是不屑于要这钱的。<br><img src="http://ww4.sinaimg.cn/large/4659d332gw1ewz8sk9a4lj20j60edq5y.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3897394666128659" target="freeweibo-mirror">没有孙正才签发张启发转基因水稻安全证书的信息 //@孙恺钜:…</a>
 </h2>
@@ -119,24 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3896906209709202" target="freeweibo-mirror">整天反美抗日，为啥移民去美日？整天拥朝亲俄，为啥不移民去朝俄…</a>
 </h2>
 <p>整天反美抗日，为啥移民去美日？整天拥朝亲俄，为啥不移民去朝俄？你们的价值观就是婊子身后的贞洁牌坊！对，没错，梁山的【替天行道】也是贞洁牌坊！<br><img src="http://ww2.sinaimg.cn/large/763fb12bgw1ewxmlufx6nj20hs0fj401.jpg"></p>
-<p>
-	<small> ============== 2天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3896902880193482" target="freeweibo-mirror">SPAM 超级重口味！！天啦鲁！没看的赶紧去看看吧！[生病]</a>
-</h2>
-<p>SPAM 超级重口味！！天啦鲁！没看的赶紧去看看吧！[生病]</p>
-<p>
-	<small> ============== 2天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3896901156015992" target="freeweibo-mirror">SPAM 留着噢，失眠的时候看！</a>
-</h2>
-<p>SPAM 留着噢，失眠的时候看！</p>
-<p>
-	<small> ============== 2天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3896876296123261" target="freeweibo-mirror">SPAM 终于有人开教男人穿衣撘配的徽博拉~</a>
-</h2>
-<p>SPAM 终于有人开教男人穿衣撘配的徽博拉~</p>
 <p>
 	<small> ============== 2天前</small>
 </p>
