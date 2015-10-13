@@ -24,7 +24,7 @@
 </h2>
 <p>[哈哈] //@老徐时评:谁带坏的？//@三侠五除二：周永康带坏的？呵呵，那周是谁带坏的呢？[挖鼻]</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3897414514075087" target="freeweibo-mirror">[哈哈]→_→ //@刘军宁:赞成留党察看，反对把坏人开除到…</a>
 </h2>
@@ -108,7 +108,7 @@
 </h2>
 <p>SPAM //@浩正刘臻:<br><br>RE: 整天反美抗日，为啥移民去美日？整天拥朝亲俄，为啥不移民去朝俄？你们的价值观就是婊子身后的贞洁牌坊！对，没错，梁山的【替天行道】也是贞洁牌坊！<br><img src="http://ww2.sinaimg.cn/large/763fb12bgw1ewxmlufx6nj20hs0fj401.jpg"></p>
 <p>
-	<small> ============== 1天前</small>
+	<small> ============== 2天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3896906209709202" target="freeweibo-mirror">整天反美抗日，为啥移民去美日？整天拥朝亲俄，为啥不移民去朝俄…</a>
 </h2>
