@@ -66,7 +66,7 @@
 </h2>
 <p>兲朝对外援助似乎上瘾，几百亿上千亿美金的援助甚或免除那些腌臜小国的债务，致使形成一个认识的误区，好像是我们为啥那么傻，真金白银并未买来真友谊。其实外援都是有条件的，他们要的是利益，出卖的是良知，和五毛有点类同。而我们要的就是他们在某些事情上支持我们，真正文明社会是不屑于要这钱的。<br><img src="http://ww4.sinaimg.cn/large/4659d332gw1ewz8sk9a4lj20j60edq5y.jpg"></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3897394666128659" target="freeweibo-mirror">没有孙正才签发张启发转基因水稻安全证书的信息 //@孙恺钜:…</a>
 </h2>
@@ -132,7 +132,7 @@
 </h2>
 <p>【中国继续追捕9月18日新疆袭击事件肇事者】新疆拜城县居民表示，至少有60人在铁热克镇附近一座煤矿9月18日遭袭时被刺死。新疆地方当局封锁了该地区，追捕肇事者的行动进入第四周。http://t.cn/Rynk8Ke<br><img src="http://ww3.sinaimg.cn/large/6538fd8cjw1ewy0mdmi45j209q05pgly.jpg"></p>
 <p>
-	<small> ============== 1天前</small>
+	<small> ============== 2天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3896909422900914" target="freeweibo-mirror">SPAM //@浩正刘臻:</a>
 </h2>
