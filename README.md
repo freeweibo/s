@@ -90,7 +90,7 @@
 </h2>
 <p>罚款五毛 //@V一骑绝尘V:转发微博<br><br>RE: 四川省委副书记李春城受贿4千万，造成国家损失5亿7千万，仅获刑13年，在这个国家当官，谁不贪谁他妈的傻逼！<br><img src="http://ww4.sinaimg.cn/large/006fnjurgw1ewykb8t4j2j30w00fsaeh.jpg"></p>
 <p>
-	<small> ============== 2天前</small>
+	<small> ============== 3天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3897199992241897" target="freeweibo-mirror">四川省委副书记李春城受贿4千万，造成国家损失5亿7千万，仅获…</a>
 </h2>
