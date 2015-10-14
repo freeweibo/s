@@ -138,7 +138,7 @@
 </h2>
 <p>SPAM //@浩正刘臻:<br><br>RE: 整天反美抗日，为啥移民去美日？整天拥朝亲俄，为啥不移民去朝俄？你们的价值观就是婊子身后的贞洁牌坊！对，没错，梁山的【替天行道】也是贞洁牌坊！<br><img src="http://ww2.sinaimg.cn/large/763fb12bgw1ewxmlufx6nj20hs0fj401.jpg"></p>
 <p>
-	<small> ============== 2天前</small>
+	<small> ============== 3天前</small>
 </p>
 <table>
     <tr>
