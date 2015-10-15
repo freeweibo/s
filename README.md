@@ -24,13 +24,19 @@
 </h2>
 <p>//@林子lsj: 期待以民众为敌的广电开博挨骂∩_∩ //@传媒大观察:【动态】广电总局也可能即将开通微博，大家稍安勿躁[微笑]//@安心: 帮大家问了一下，报告已经到办公厅了，在等批复呢，好饭不怕等，大家稍安勿躁//@财经网: 期待广电总局也开一个，相信一定会是网友评论最火爆的官微，直接秒杀证监会微博</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3898324966477334" target="freeweibo-mirror">//@李不白的店: //@喷嚏网铂程: 转发微博</a>
 </h2>
 <p>//@李不白的店: //@喷嚏网铂程: 转发微博<br><br>RE: 贪腐是一种分配方式，反贪也是</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3898322903451804" target="freeweibo-mirror">SPAM [围观]需要的麻麻看过来~</a>
+</h2>
+<p>SPAM [围观]需要的麻麻看过来~</p>
+<p>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3898313755399660" target="freeweibo-mirror">下午，鲁小本带着他的老乡荷兰Stedelijk美术馆摄影策展…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3897855163182807" target="freeweibo-mirror">无言</a>
 </h2>
 <p>无言</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3897846002460014" target="freeweibo-mirror">一个不敢直视自己过往历史的民族，焉有光明的前途？//@茅于轼…</a>
-</h2>
-<p>一个不敢直视自己过往历史的民族，焉有光明的前途？//@茅于轼: //@用户魏巍: 必须彻底反思 //@袁国宝: //@赵克罗:人尊严尽失的黑暗年代，竟然不能否定，是何道理？ //@贾康:古训高悬：前事不忘后事之师，知史方能明智。<br><br>RE: 士可杀而不可辱！只有彻底反思文革，才能真正推动改革！@赵晓 @茅于轼 @任志强 @于建嵘 @贾康 @演员孙海英<br><img src="http://ww1.sinaimg.cn/large/709b1d0egw1ewzvgn2kqvj20go0c0q3i.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
