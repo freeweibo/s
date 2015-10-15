@@ -54,7 +54,7 @@
 </h2>
 <p>SPAM 《琅琊榜》那些你很可能根本不会注意的超良心细节！[good]太爱这剧了！<br><img src="http://ww4.sinaimg.cn/large/8d297649jw1ex1ne6iwnjg209h2gke83.gif"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3898163238693328" target="freeweibo-mirror">SPAM #昆明福利#【昆明福利活动】昆明省钱攻略❤@三九手…</a>
 </h2>
