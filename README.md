@@ -120,7 +120,7 @@
 </h2>
 <p>【谁造成了大规模警民冲突】10月10日上午，因广东阳春市海螺水泥厂内隐瞒私建垃圾焚烧厂，自由村上千名村民第3度聚集抗议，并与警察发生激烈打斗，造成多人受伤，多辆公务车被烧毁。微评：当地政府隐瞒附近村民偷建垃圾焚烧厂并投入试运行，其卑劣做法能不引发群情激愤吗？冲突视频http://t.cn/RynJuXX<br><img src="http://ww3.sinaimg.cn/large/db1747fcgw1ex0urzka3ij20c807cq3p.jpg"></p>
 <p>
-	<small> ============== 1天前</small>
+	<small> ============== 2天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3897902340150928" target="freeweibo-mirror">SPAM 毛家腊肉形象代言人？</a>
 </h2>
