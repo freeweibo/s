@@ -32,6 +32,12 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3898313755399660" target="freeweibo-mirror">下午，鲁小本带着他的老乡荷兰Stedelijk美术馆摄影策展…</a>
+</h2>
+<p>下午，鲁小本带着他的老乡荷兰Stedelijk美术馆摄影策展人Anne Ruygt来映画廊访问，并带来他和马丁帕尔一起策划编辑，《光圈》出版的大型画册《中国摄影书》……里面除了有很多“伟大的毛主席”之外，还有“伟大的蒋主席”……还有各种“天安门广场”……<br><img src="http://ww3.sinaimg.cn/large/70d85613jw1ex2498ktrcj218g0xcnfa.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3898298487893074" target="freeweibo-mirror">贪腐是一种分配方式，反贪也是</a>
 </h2>
 <p>贪腐是一种分配方式，反贪也是</p>
@@ -48,7 +54,7 @@
 </h2>
 <p>日本这招，太狠了吧！！！某国官府能破吗？？？如何破？？？某国歪叫部会墙裂抗议吗？？？ http://t.cn/RyBbuJD<br><img src="http://ww1.sinaimg.cn/large/006ficu0jw1ex1u84u21sj30e308kgma.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3898167458709622" target="freeweibo-mirror">SPAM 《琅琊榜》那些你很可能根本不会注意的超良心细节！[…</a>
 </h2>
@@ -133,12 +139,6 @@
 <p>一个不敢直视自己过往历史的民族，焉有光明的前途？//@茅于轼: //@用户魏巍: 必须彻底反思 //@袁国宝: //@赵克罗:人尊严尽失的黑暗年代，竟然不能否定，是何道理？ //@贾康:古训高悬：前事不忘后事之师，知史方能明智。<br><br>RE: 士可杀而不可辱！只有彻底反思文革，才能真正推动改革！@赵晓 @茅于轼 @任志强 @于建嵘 @贾康 @演员孙海英<br><img src="http://ww1.sinaimg.cn/large/709b1d0egw1ewzvgn2kqvj20go0c0q3i.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3897766201365207" target="freeweibo-mirror">噩梦…… //@章鱼哥R:《盒饭》 //@律师老周401:回…</a>
-</h2>
-<p>噩梦…… //@章鱼哥R:《盒饭》 //@律师老周401:回复@George蔡景钟:减税先得减支，减支必得减人//@George蔡景钟:@刘胜军改革 开的方子也是减税，大幅减税//@律师老周401://@凌虚铺子: 绝对不敢。故穿新鞋走老路！<br><br>RE: 据发改委网站消息，发改委13日批复成渝城际铁路等六项建设规划，总投资为2700亿元。9月发改委共批复铁路公路基建项目总投资8872.54亿元。仍旧在走滥发货币和投资拉动经济的老路。目前，天朝经济呈现典型的糖尿病人症状：渴，饿，拼命吃，但仍然面黄肌瘦。胰岛素剂量越来越大，一停，就要了老命！<br><img src="http://ww1.sinaimg.cn/large/005SvoAtgw1ex061vj6dwj30c80c8dhl.jpg"></p>
-<p>
-	<small> ============== 2天前</small>
 </p>
 <table>
     <tr>
