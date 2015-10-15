@@ -132,7 +132,7 @@
 </h2>
 <p>许多网友指正，这是甘孜州色达县，请问@四川公安 @四川发布 这是什么执法素质???//@Aima_gangri: 嗯 就怕流氓当警察 [弱]</p>
 <p>
-	<small> ============== 1天前</small>
+	<small> ============== 2天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3897867422657629" target="freeweibo-mirror">//@草民JYS02://@周难的微博: [围观]//@依法…</a>
 </h2>
