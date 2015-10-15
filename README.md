@@ -78,7 +78,7 @@
 </h2>
 <p>//@云中鹤138://@江南一老翁: 转发微博</p>
 <p>
-	<small> ============== 2天前</small>
+	<small> ============== 3天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3897222573628289" target="freeweibo-mirror">//@卍轉播臺卍://@何三畏: 转发微博</a>
 </h2>
