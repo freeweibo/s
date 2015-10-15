@@ -20,125 +20,125 @@
             </tr>
 </table>
 <h2>
-	<a href="https://freeweibo.com/weibo/3897448248202652" target="freeweibo-mirror">算这个账的，是个明白人。//@写字李华良: 转发微博</a>
+	<a href="https://freeweibo.com/weibo/3898230884148860" target="freeweibo-mirror">SPAM  //@雁塔小木屋4://@葫芦E散人://@東海…</a>
 </h2>
-<p>算这个账的，是个明白人。//@写字李华良: 转发微博</p>
+<p>SPAM  //@雁塔小木屋4://@葫芦E散人://@東海一鴻A:轉發微博<br><br>RE: 日本这招，太狠了吧！！！某国官府能破吗？？？如何破？？？某国歪叫部会墙裂抗议吗？？？ http://t.cn/RyBbuJD<br><img src="http://ww1.sinaimg.cn/large/006ficu0jw1ex1u84u21sj30e308kgma.jpg"></p>
+<p>
+	<small> ============== 6小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3898226874597097" target="freeweibo-mirror">日本这招，太狠了吧！！！某国官府能破吗？？？如何破？？？某国…</a>
+</h2>
+<p>日本这招，太狠了吧！！！某国官府能破吗？？？如何破？？？某国歪叫部会墙裂抗议吗？？？ http://t.cn/RyBbuJD<br><img src="http://ww1.sinaimg.cn/large/006ficu0jw1ex1u84u21sj30e308kgma.jpg"></p>
+<p>
+	<small> ============== 6小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3898167458709622" target="freeweibo-mirror">SPAM 《琅琊榜》那些你很可能根本不会注意的超良心细节！[…</a>
+</h2>
+<p>SPAM 《琅琊榜》那些你很可能根本不会注意的超良心细节！[good]太爱这剧了！<br><img src="http://ww4.sinaimg.cn/large/8d297649jw1ex1ne6iwnjg209h2gke83.gif"></p>
+<p>
+	<small> ============== 10小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3898163238693328" target="freeweibo-mirror">SPAM #昆明福利#【昆明福利活动】昆明省钱攻略❤@三九手…</a>
+</h2>
+<p>SPAM #昆明福利#【昆明福利活动】昆明省钱攻略❤@三九手机网 塘子巷店活动来袭！(活动时间10月15~20号)❤【重点】iPhone 6s只需￥4580就带走、iPhone 6只需￥3799❤活动期间所有人到店1元贴钢化膜❤【更重点】从即日起到20号，转发本微博并@3位好友 每天从转发里系统抽奖④位粉丝送【三九自拍杆】[礼物]<br><img src="http://ww2.sinaimg.cn/large/6a8bd5d1gw1ex1lbgps7rj20c80c83yu.jpg"></p>
+<p>
+	<small> ============== 10小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3898155160659016" target="freeweibo-mirror">SPAM //@守候者说://@华商天民: //@张红兵律师…</a>
+</h2>
+<p>SPAM //@守候者说://@华商天民: //@张红兵律师_gdj: //@没人待见de朝阳区群众: //@一网打尽1861: /@权贵治国7: /@第一经济学老姜: 已经丧失下蛋【盈利】能力的母鸡终于被按在了砧板上了。饥饿的公权力在毫不犹豫的享用最后的晚餐。民企不死绝，公权力不会停手</p>
+<p>
+	<small> ============== 11小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3898148143370147" target="freeweibo-mirror">SPAM 哈哈哈，讨硬，答应你下次连续聊三个通宵[doge]</a>
+</h2>
+<p>SPAM 哈哈哈，讨硬，答应你下次连续聊三个通宵[doge]</p>
+<p>
+	<small> ============== 11小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3897980694595124" target="freeweibo-mirror">对，这也就是文革的价值所在！ //@策划人蔡磊:其实也是文革…</a>
+</h2>
+<p>对，这也就是文革的价值所在！ //@策划人蔡磊:其实也是文革精神的延续。//@用心的关注:1、官倒和腐败是酿成八九运动的主因。2、在历史上看，这是一场被资产阶级窃取和诱导的革命运动。3、再次证明了一个真理：没有工人阶级参与和领导，精英们是没有能力领导中国革命的。 4、即便精英们可</p>
+<p>
+	<small> ============== 1天前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3897972397754814" target="freeweibo-mirror">这是哪一个国家啊？ //@布衣神相I: //@徐昕: //@…</a>
+</h2>
+<p>这是哪一个国家啊？ //@布衣神相I: //@徐昕: //@梦想6加1: //@何光伟: //@刘耘博士: //@于建嵘: 垃圾焚烧，特别是小城镇垃圾处理的事件，将是未来群体性冲突性事件的引爆点。</p>
+<p>
+	<small> ============== 1天前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3897965858674051" target="freeweibo-mirror">//@MBA张琪://@徐昕://@梦想6加1://@何光伟…</a>
+</h2>
+<p>//@MBA张琪://@徐昕://@梦想6加1://@何光伟://@刘耘博士://@于建嵘: 垃圾焚烧，特别是小城镇垃圾处理的事件，将是未来群体性冲突性事件的引爆点。</p>
+<p>
+	<small> ============== 1天前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3897941255229051" target="freeweibo-mirror">SPAM 城市养狗就是特色的产物，扰民、伤人.......应…</a>
+</h2>
+<p>SPAM 城市养狗就是特色的产物，扰民、伤人.......应该一律铲除。<br><br>RE: 今天下午，威宁县小学生放学回家的路上被疯狗咬伤，毁容惨不忍睹，真心觉得可怜！养狗的人们，试问你们尽到你们的责任了吗？这么小的孩子，谁之过？#毕节身边事#@毕节城事 @毕节头条<br><img src="http://ww2.sinaimg.cn/large/b8be7cd7gw1ewysx7xb0mj20hs0nqgne.jpg"></p>
+<p>
+	<small> ============== 1天前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3897919268428717" target="freeweibo-mirror">【谁造成了大规模警民冲突】10月10日上午，因广东阳春市海螺…</a>
+</h2>
+<p>【谁造成了大规模警民冲突】10月10日上午，因广东阳春市海螺水泥厂内隐瞒私建垃圾焚烧厂，自由村上千名村民第3度聚集抗议，并与警察发生激烈打斗，造成多人受伤，多辆公务车被烧毁。微评：当地政府隐瞒附近村民偷建垃圾焚烧厂并投入试运行，其卑劣做法能不引发群情激愤吗？冲突视频http://t.cn/RynJuXX<br><img src="http://ww3.sinaimg.cn/large/db1747fcgw1ex0urzka3ij20c807cq3p.jpg"></p>
+<p>
+	<small> ============== 1天前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3897902340150928" target="freeweibo-mirror">SPAM 毛家腊肉形象代言人？</a>
+</h2>
+<p>SPAM 毛家腊肉形象代言人？<br><img src="http://ww4.sinaimg.cn/large/92420a14jw1ex0t0ci741j20c808j0tr.jpg"></p>
+<p>
+	<small> ============== 1天前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3897901346936710" target="freeweibo-mirror">许多网友指正，这是甘孜州色达县，请问@四川公安 @四川发布 …</a>
+</h2>
+<p>许多网友指正，这是甘孜州色达县，请问@四川公安 @四川发布 这是什么执法素质???//@Aima_gangri: 嗯 就怕流氓当警察 [弱]</p>
+<p>
+	<small> ============== 1天前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3897867422657629" target="freeweibo-mirror">//@草民JYS02://@周难的微博: [围观]//@依法…</a>
+</h2>
+<p>//@草民JYS02://@周难的微博: [围观]//@依法治国的帅哥哥才是好锅锅: //@陈光武律师:转发微博<br><br>RE: 第十天了，万人同胞保卫家园战越来越严重，小镇以外媒体全封杀了，主要山路要道封锁了，希望万能的微博能赐给我们最后的希望，救救这沦陷的小镇，让法律公开审判这场抗争！@任志强 @广州区伯 @袁裕来律师 @迟夙生律师<br><img src="http://ww4.sinaimg.cn/large/66d093f2gw1ewzom9vpuij20fk0bo0to.jpg"></p>
+<p>
+	<small> ============== 1天前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3897855163182807" target="freeweibo-mirror">无言</a>
+</h2>
+<p>无言</p>
+<p>
+	<small> ============== 1天前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3897846002460014" target="freeweibo-mirror">一个不敢直视自己过往历史的民族，焉有光明的前途？//@茅于轼…</a>
+</h2>
+<p>一个不敢直视自己过往历史的民族，焉有光明的前途？//@茅于轼: //@用户魏巍: 必须彻底反思 //@袁国宝: //@赵克罗:人尊严尽失的黑暗年代，竟然不能否定，是何道理？ //@贾康:古训高悬：前事不忘后事之师，知史方能明智。<br><br>RE: 士可杀而不可辱！只有彻底反思文革，才能真正推动改革！@赵晓 @茅于轼 @任志强 @于建嵘 @贾康 @演员孙海英<br><img src="http://ww1.sinaimg.cn/large/709b1d0egw1ewzvgn2kqvj20go0c0q3i.jpg"></p>
+<p>
+	<small> ============== 1天前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3897766201365207" target="freeweibo-mirror">噩梦…… //@章鱼哥R:《盒饭》 //@律师老周401:回…</a>
+</h2>
+<p>噩梦…… //@章鱼哥R:《盒饭》 //@律师老周401:回复@George蔡景钟:减税先得减支，减支必得减人//@George蔡景钟:@刘胜军改革 开的方子也是减税，大幅减税//@律师老周401://@凌虚铺子: 绝对不敢。故穿新鞋走老路！<br><br>RE: 据发改委网站消息，发改委13日批复成渝城际铁路等六项建设规划，总投资为2700亿元。9月发改委共批复铁路公路基建项目总投资8872.54亿元。仍旧在走滥发货币和投资拉动经济的老路。目前，天朝经济呈现典型的糖尿病人症状：渴，饿，拼命吃，但仍然面黄肌瘦。胰岛素剂量越来越大，一停，就要了老命！<br><img src="http://ww1.sinaimg.cn/large/005SvoAtgw1ex061vj6dwj30c80c8dhl.jpg"></p>
 <p>
 	<small> ============== 2天前</small>
 </p><h2>
-	<a href="https://freeweibo.com/weibo/3897445567866576" target="freeweibo-mirror">历史已经证明，并且还将证明</a>
+	<a href="https://freeweibo.com/weibo/3897702587000282" target="freeweibo-mirror">据发改委网站消息，发改委13日批复成渝城际铁路等六项建设规划…</a>
 </h2>
-<p>历史已经证明，并且还将证明<br><br>RE: 没有共产党就没有新中国” [吃惊][吃惊]http://t.cn/RyuvCCH @真话哥 @新闻娃 @陈光武律师 @盘子微谈 @广州区伯 @陈启宙 @陶景洲@happy热哥 @侯宁@观世音童@作家沙光@周泽律师@直击自媒体 @袁裕来律师 @看天下时报 @大鹏看天下@何天恩- @于建嵘 @杨建国@陈有西</p>
+<p>据发改委网站消息，发改委13日批复成渝城际铁路等六项建设规划，总投资为2700亿元。9月发改委共批复铁路公路基建项目总投资8872.54亿元。仍旧在走滥发货币和投资拉动经济的老路。目前，天朝经济呈现典型的糖尿病人症状：渴，饿，拼命吃，但仍然面黄肌瘦。胰岛素剂量越来越大，一停，就要了老命！<br><img src="http://ww1.sinaimg.cn/large/005SvoAtgw1ex061vj6dwj30c80c8dhl.jpg"></p>
 <p>
 	<small> ============== 2天前</small>
 </p><h2>
-	<a href="https://freeweibo.com/weibo/3897439209499597" target="freeweibo-mirror">大流氓还怕小流氓？ //@老猫阿贝:要是对咱也耍流氓呢？//…</a>
+	<a href="https://freeweibo.com/weibo/3897644482662347" target="freeweibo-mirror">大连看不到？商业部看不到？？//@清越微博1: 瞎逼，重庆看…</a>
 </h2>
-<p>大流氓还怕小流氓？ //@老猫阿贝:要是对咱也耍流氓呢？//@胡杨麟: 朝鲜是流氓又怎样？只要有益于中国国家利益，就是个流氓中国也要支持他，这是美国人的话，美国人以身作则教会了中国如何处理国际事务，朝鲜独裁专制贫穷僵化不守信用两面三刀---------那又如何？支持朝鲜符合中国利益，就得支持。</p>
+<p>大连看不到？商业部看不到？？//@清越微博1: 瞎逼，重庆看不到？//@carmelin: 薄上台不会比包子好多少//@前18:如果你们不是薄的远亲近邻，还是希望你们看清楚牠的本质。我可能比你们都早滴关注并看好牠，我清楚滴记得第一个在网路上呼吁牠当总理的呼声是来自福建的一个ID。以前觉得牠是人民<br><br>RE: 俄媒：薄熙来能留在中国人的记忆中吗？<br><img src="http://ww3.sinaimg.cn/large/c3629be5jw1ewzuudmdgsj20dt0cfdh1.jpg"></p>
 <p>
 	<small> ============== 2天前</small>
 </p><h2>
-	<a href="https://freeweibo.com/weibo/3897433921087286" target="freeweibo-mirror">我们只希望活的有尊严！我们只希望免除生活中的恐惧！</a>
+	<a href="https://freeweibo.com/weibo/3897643971129537" target="freeweibo-mirror">瞎逼，重庆看不到？//@carmelin: 薄上台不会比包子…</a>
 </h2>
-<p>我们只希望活的有尊严！我们只希望免除生活中的恐惧！<br><br>RE: 没有共产党就没有新中国” [吃惊][吃惊]http://t.cn/RyuvCCH @真话哥 @新闻娃 @陈光武律师 @盘子微谈 @广州区伯 @陈启宙 @陶景洲@happy热哥 @侯宁@观世音童@作家沙光@周泽律师@直击自媒体 @袁裕来律师 @看天下时报 @大鹏看天下@何天恩- @于建嵘 @杨建国@陈有西</p>
+<p>瞎逼，重庆看不到？//@carmelin: 薄上台不会比包子好多少//@前18:如果你们不是薄的远亲近邻，还是希望你们看清楚牠的本质。我可能比你们都早滴关注并看好牠，我清楚滴记得第一个在网路上呼吁牠当总理的呼声是来自福建的一个ID。以前觉得牠是人民/@僊山@聿日12@梦已蹉跎A@熙营老孙2@多见多闻N2@少帅红星<br><br>RE: 俄媒：薄熙来能留在中国人的记忆中吗？<br><img src="http://ww3.sinaimg.cn/large/c3629be5jw1ewzuudmdgsj20dt0cfdh1.jpg"></p>
 <p>
 	<small> ============== 2天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3897418774689702" target="freeweibo-mirror">没有共产党就没有新中国” [吃惊][吃惊]http://t.…</a>
-</h2>
-<p>没有共产党就没有新中国” [吃惊][吃惊]http://t.cn/RyuvCCH @真话哥 @新闻娃 @陈光武律师 @盘子微谈 @广州区伯 @陈启宙 @陶景洲@happy热哥 @侯宁@观世音童@作家沙光@周泽律师@直击自媒体 @袁裕来律师 @看天下时报 @大鹏看天下@何天恩- @于建嵘 @杨建国@陈有西</p>
-<p>
-	<small> ============== 2天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3897415234891971" target="freeweibo-mirror">[哈哈] //@老徐时评:谁带坏的？//@三侠五除二：周永康…</a>
-</h2>
-<p>[哈哈] //@老徐时评:谁带坏的？//@三侠五除二：周永康带坏的？呵呵，那周是谁带坏的呢？[挖鼻]</p>
-<p>
-	<small> ============== 2天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3897414514075087" target="freeweibo-mirror">[哈哈]→_→ //@刘军宁:赞成留党察看，反对把坏人开除到…</a>
-</h2>
-<p>[哈哈]→_→ //@刘军宁:赞成留党察看，反对把坏人开除到群众队伍中来。</p>
-<p>
-	<small> ============== 2天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3897412848569867" target="freeweibo-mirror">兲朝对外援助似乎上瘾，几百亿上千亿美金的援助甚或免除那些腌臜…</a>
-</h2>
-<p>兲朝对外援助似乎上瘾，几百亿上千亿美金的援助甚或免除那些腌臜小国的债务，致使形成一个认识的误区，好像是我们为啥那么傻，真金白银并未买来真友谊。其实外援都是有条件的，他们要的是利益，出卖的是良知，和五毛有点类同。而我们要的就是他们在某些事情上支持我们，真正文明社会是不屑于要这钱的。<br><img src="http://ww4.sinaimg.cn/large/4659d332gw1ewz8sk9a4lj20j60edq5y.jpg"></p>
-<p>
-	<small> ============== 2天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3897394666128659" target="freeweibo-mirror">没有孙正才签发张启发转基因水稻安全证书的信息 //@孙恺钜:…</a>
-</h2>
-<p>没有孙正才签发张启发转基因水稻安全证书的信息 //@孙恺钜: 这是早预料到的事情，但政府到时候一定会有解套的方法，农业部某些人和黄大谎张启发之流才是真正绑上耻辱柱的，动向之一，孙在重庆坚决不容许转基因大米试吃，就是为了洗白自己，为自己上进铺路。/@杨长玉的微薄 @紫光阁@健康中国@共青团中央</p>
-<p>
-	<small> ============== 3天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3897393105903798" target="freeweibo-mirror">//@云中鹤138://@江南一老翁: 转发微博</a>
-</h2>
-<p>//@云中鹤138://@江南一老翁: 转发微博</p>
-<p>
-	<small> ============== 3天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3897222573628289" target="freeweibo-mirror">//@卍轉播臺卍://@何三畏: 转发微博</a>
-</h2>
-<p>//@卍轉播臺卍://@何三畏: 转发微博</p>
-<p>
-	<small> ============== 3天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3897210691858898" target="freeweibo-mirror">罚款五毛 //@V一骑绝尘V:转发微博</a>
-</h2>
-<p>罚款五毛 //@V一骑绝尘V:转发微博<br><br>RE: 四川省委副书记李春城受贿4千万，造成国家损失5亿7千万，仅获刑13年，在这个国家当官，谁不贪谁他妈的傻逼！<br><img src="http://ww4.sinaimg.cn/large/006fnjurgw1ewykb8t4j2j30w00fsaeh.jpg"></p>
-<p>
-	<small> ============== 3天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3897199992241897" target="freeweibo-mirror">四川省委副书记李春城受贿4千万，造成国家损失5亿7千万，仅获…</a>
-</h2>
-<p>四川省委副书记李春城受贿4千万，造成国家损失5亿7千万，仅获刑13年，在这个国家当官，谁不贪谁他妈的傻逼！<br><img src="http://ww4.sinaimg.cn/large/006fnjurgw1ewykb8t4j2j30w00fsaeh.jpg"></p>
-<p>
-	<small> ============== 3天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3897152097217827" target="freeweibo-mirror">SPAM //@浩正刘臻:红米note2……//@雷澍诗文：…</a>
-</h2>
-<p>SPAM //@浩正刘臻:红米note2……//@雷澍诗文：美国本来就是一个应该不存在的国家。把印第安人几乎杀光了吧！强占了人家的土地。在世界上指手画脚。非要把西式民主原封不动地放在中国。我们的人也不应该出现大量的进口转基因大豆。等到损害了中国最大利益，恐怕才慌了神儿吧！老是给美国送大礼这就是一种错误</p>
-<p>
-	<small> ============== 3天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3897151329436246" target="freeweibo-mirror">无耻！//@二獾: [話筒] //@透史镜:@二獾//@封神…</a>
-</h2>
-<p>无耻！//@二獾: [話筒] //@透史镜:@二獾//@封神祭十二叔: //@青山G妩媚:[话筒]//@七步閣3: //@仰天长叹再来://@文庙锦西河堤边V:[话筒]//@玳簋26: //@傘幕下的曉曉:转发微博<br><br>RE: 美国之音： 最新线索指向内蒙公安……<br><img src="http://ww4.sinaimg.cn/large/006ehUPIgw1ewy4d5yx53j30a04w8e81.jpg"></p>
-<p>
-	<small> ============== 3天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3897114247302468" target="freeweibo-mirror">SPAM 看你们这帮贱人咋举报！！！转发+关注送无码！！[纠…</a>
-</h2>
-<p>SPAM 看你们这帮贱人咋举报！！！转发+关注送无码！！[纠结]<br><img src="http://ww1.sinaimg.cn/large/70665bffjw1ewyagbuysrj20xc18gdml.jpg"></p>
-<p>
-	<small> ============== 3天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3897061030310311" target="freeweibo-mirror">美国之音： 最新线索指向内蒙公安……</a>
-</h2>
-<p>美国之音： 最新线索指向内蒙公安……<br><img src="http://ww4.sinaimg.cn/large/006ehUPIgw1ewy4d5yx53j30a04w8e81.jpg"></p>
-<p>
-	<small> ============== 3天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3897031539570242" target="freeweibo-mirror">//@向上游的鱼V:转发微博</a>
-</h2>
-<p>//@向上游的鱼V:转发微博<br><br>RE: 【中国继续追捕9月18日新疆袭击事件肇事者】新疆拜城县居民表示，至少有60人在铁热克镇附近一座煤矿9月18日遭袭时被刺死。新疆地方当局封锁了该地区，追捕肇事者的行动进入第四周。http://t.cn/Rynk8Ke<br><img src="http://ww3.sinaimg.cn/large/6538fd8cjw1ewy0mdmi45j209q05pgly.jpg"></p>
-<p>
-	<small> ============== 4天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3897028230350263" target="freeweibo-mirror">【中国继续追捕9月18日新疆袭击事件肇事者】新疆拜城县居民表…</a>
-</h2>
-<p>【中国继续追捕9月18日新疆袭击事件肇事者】新疆拜城县居民表示，至少有60人在铁热克镇附近一座煤矿9月18日遭袭时被刺死。新疆地方当局封锁了该地区，追捕肇事者的行动进入第四周。http://t.cn/Rynk8Ke<br><img src="http://ww3.sinaimg.cn/large/6538fd8cjw1ewy0mdmi45j209q05pgly.jpg"></p>
-<p>
-	<small> ============== 4天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3896909422900914" target="freeweibo-mirror">SPAM //@浩正刘臻:</a>
-</h2>
-<p>SPAM //@浩正刘臻:<br><br>RE: 整天反美抗日，为啥移民去美日？整天拥朝亲俄，为啥不移民去朝俄？你们的价值观就是婊子身后的贞洁牌坊！对，没错，梁山的【替天行道】也是贞洁牌坊！<br><img src="http://ww2.sinaimg.cn/large/763fb12bgw1ewxmlufx6nj20hs0fj401.jpg"></p>
-<p>
-	<small> ============== 4天前</small>
 </p>
 <table>
     <tr>
