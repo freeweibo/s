@@ -126,7 +126,7 @@
 </h2>
 <p>SPAM 毛家腊肉形象代言人？<br><img src="http://ww4.sinaimg.cn/large/92420a14jw1ex0t0ci741j20c808j0tr.jpg"></p>
 <p>
-	<small> ============== 1天前</small>
+	<small> ============== 2天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3897901346936710" target="freeweibo-mirror">许多网友指正，这是甘孜州色达县，请问@四川公安 @四川发布 …</a>
 </h2>
