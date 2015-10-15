@@ -42,7 +42,7 @@
 </h2>
 <p>SPAM #昆明福利#【昆明福利活动】昆明省钱攻略❤@三九手机网 塘子巷店活动来袭！(活动时间10月15~20号)❤【重点】iPhone 6s只需￥4580就带走、iPhone 6只需￥3799❤活动期间所有人到店1元贴钢化膜❤【更重点】从即日起到20号，转发本微博并@3位好友 每天从转发里系统抽奖④位粉丝送【三九自拍杆】[礼物]<br><img src="http://ww2.sinaimg.cn/large/6a8bd5d1gw1ex1lbgps7rj20c80c83yu.jpg"></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3898155160659016" target="freeweibo-mirror">SPAM //@守候者说://@华商天民: //@张红兵律师…</a>
 </h2>
@@ -54,7 +54,7 @@
 </h2>
 <p>SPAM 哈哈哈，讨硬，答应你下次连续聊三个通宵[doge]</p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3897980694595124" target="freeweibo-mirror">对，这也就是文革的价值所在！ //@策划人蔡磊:其实也是文革…</a>
 </h2>
