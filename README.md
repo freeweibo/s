@@ -24,7 +24,7 @@
 </h2>
 <p>SPAM //@天外微尘: [霹雳][霹雳]无法无天、杀无赦！！！//@眉中王: 我就不信如此凶残的歹徒能逃过天罗地网！扩散捉拿凶手[怒]<br><br>RE: 视频录下了整个杀人过程[怒][怒][怒]#神转评##人肉搜索#追查凶手[话筒] http://t.cn/RyrWlmP .</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3898699304389216" target="freeweibo-mirror">SPAM 光天化日，这也太狠毒了[怒] //@眉中王:我就不…</a>
 </h2>
@@ -96,7 +96,7 @@
 </h2>
 <p>汗</p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3898535764057994" target="freeweibo-mirror">【哈佛教授致信环时：我没说过中国梦会对人类发展作巨大贡献】哈…</a>
 </h2>
