@@ -42,7 +42,7 @@
 </h2>
 <p>現實證明，屏蔽紐約時報等反華媒體，是多麼英明的決策，方濱興是民族英雄。[赞]<br><img src="http://ww4.sinaimg.cn/large/65cc9274jw1ex27mgu87fj20hs5bckiy.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3898325109946415" target="freeweibo-mirror">//@林子lsj: 期待以民众为敌的广电开博挨骂∩_∩ //…</a>
 </h2>
@@ -120,7 +120,7 @@
 </h2>
 <p>这是哪一个国家啊？ //@布衣神相I: //@徐昕: //@梦想6加1: //@何光伟: //@刘耘博士: //@于建嵘: 垃圾焚烧，特别是小城镇垃圾处理的事件，将是未来群体性冲突性事件的引爆点。</p>
 <p>
-	<small> ============== 1天前</small>
+	<small> ============== 2天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3897965858674051" target="freeweibo-mirror">//@MBA张琪://@徐昕://@梦想6加1://@何光伟…</a>
 </h2>
