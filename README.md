@@ -24,7 +24,7 @@
 </h2>
 <p>“我惊奇地发现这里的人们有着美好的生活。” //@赵晓:[吃惊] //@王巍w:我们的翻译有力量！ //@荣剑2001:环球时报这回让歪果仁服了。//@赵克罗:转发微博<br><br>RE: 現實證明，屏蔽紐約時報等反華媒體，是多麼英明的決策，方濱興是民族英雄。[赞]<br><img src="http://ww4.sinaimg.cn/large/65cc9274jw1ex27mgu87fj20hs5bckiy.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3898469904877488" target="freeweibo-mirror">呵呵，应该感谢现在好歹有网络，这些造假新闻才瞒不住。//@麦…</a>
 </h2>
