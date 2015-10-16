@@ -20,6 +20,18 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3898613367499270" target="freeweibo-mirror">别译成马若德了，还是翻译成麦克法考尔吧。//@一杯半冰咖啡:…</a>
+</h2>
+<p>别译成马若德了，还是翻译成麦克法考尔吧。//@一杯半冰咖啡: 最近胡编状况不对<br><br>RE: 环球又傻逼了吧？哈佛大学历史和政治学教授马若德本周三致电邮给《环球时报》，称该报在报道本月在北京举行的世界马克思主义大会时，说他称赞“中国梦”会对人类发展作出巨大贡献，“完全是捏造的”。<br><img src="http://ww3.sinaimg.cn/large/7cc9aaf1gw1ex31123llcj20f00qotd0.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3898610657657760" target="freeweibo-mirror">谨慎建议:跨国。//@莫志谨://@皇城牧人: 用你的名是看…</a>
+</h2>
+<p>谨慎建议:跨国。//@莫志谨://@皇城牧人: 用你的名是看得起你，别不识抬举<br><br>RE: 【哈佛教授致信环时：我没说过中国梦会对人类发展作巨大贡献】哈佛大学历史和政治学教授马若德（Roderick MacFarquhar）本周三致电邮给《环球时报》，称该报在报道本月在北京举行的世界马克思主义大会时，说他称赞“中国梦”会对人类发展作出巨大贡献，“完全是捏造的”。http://t.cn/Ryrbcxa<br><img src="http://ww3.sinaimg.cn/large/9dcb59c7jw1ex2se9xw5rj20m80ecmz9.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3898481825105931" target="freeweibo-mirror">“我惊奇地发现这里的人们有着美好的生活。” //@赵晓:[吃…</a>
 </h2>
 <p>“我惊奇地发现这里的人们有着美好的生活。” //@赵晓:[吃惊] //@王巍w:我们的翻译有力量！ //@荣剑2001:环球时报这回让歪果仁服了。//@赵克罗:转发微博<br><br>RE: 現實證明，屏蔽紐約時報等反華媒體，是多麼英明的決策，方濱興是民族英雄。[赞]<br><img src="http://ww4.sinaimg.cn/large/65cc9274jw1ex27mgu87fj20hs5bckiy.jpg"></p>
@@ -30,7 +42,7 @@
 </h2>
 <p>呵呵，应该感谢现在好歹有网络，这些造假新闻才瞒不住。//@麦田捕手:反正都已臭名昭著//@谢文:拉小旗，作鼠皮 //@胡发云:编造国际谎言，强撑大国门面。//@忆梅下西舟://@DopeyTom: 让外国人唱赞歌是比较聪明的做法，毕竟穿帮的概率很小。搞笑的是当年《重庆日报》，竟然借吴祚来之口说"红歌是精神食粮<br><br>RE: 現實證明，屏蔽紐約時報等反華媒體，是多麼英明的決策，方濱興是民族英雄。[赞]<br><img src="http://ww4.sinaimg.cn/large/65cc9274jw1ex27mgu87fj20hs5bckiy.jpg"></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3898369556222655" target="freeweibo-mirror">s95822网[微风][微风]盘[飞机]资[奥特曼]源asa…</a>
 </h2>
@@ -125,18 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3897965858674051" target="freeweibo-mirror">//@MBA张琪://@徐昕://@梦想6加1://@何光伟…</a>
 </h2>
 <p>//@MBA张琪://@徐昕://@梦想6加1://@何光伟://@刘耘博士://@于建嵘: 垃圾焚烧，特别是小城镇垃圾处理的事件，将是未来群体性冲突性事件的引爆点。</p>
-<p>
-	<small> ============== 2天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3897941255229051" target="freeweibo-mirror">SPAM 城市养狗就是特色的产物，扰民、伤人.......应…</a>
-</h2>
-<p>SPAM 城市养狗就是特色的产物，扰民、伤人.......应该一律铲除。<br><br>RE: 今天下午，威宁县小学生放学回家的路上被疯狗咬伤，毁容惨不忍睹，真心觉得可怜！养狗的人们，试问你们尽到你们的责任了吗？这么小的孩子，谁之过？#毕节身边事#@毕节城事 @毕节头条<br><img src="http://ww2.sinaimg.cn/large/b8be7cd7gw1ewysx7xb0mj20hs0nqgne.jpg"></p>
-<p>
-	<small> ============== 2天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3897919268428717" target="freeweibo-mirror">【谁造成了大规模警民冲突】10月10日上午，因广东阳春市海螺…</a>
-</h2>
-<p>【谁造成了大规模警民冲突】10月10日上午，因广东阳春市海螺水泥厂内隐瞒私建垃圾焚烧厂，自由村上千名村民第3度聚集抗议，并与警察发生激烈打斗，造成多人受伤，多辆公务车被烧毁。微评：当地政府隐瞒附近村民偷建垃圾焚烧厂并投入试运行，其卑劣做法能不引发群情激愤吗？冲突视频http://t.cn/RynJuXX<br><img src="http://ww3.sinaimg.cn/large/db1747fcgw1ex0urzka3ij20c807cq3p.jpg"></p>
 <p>
 	<small> ============== 2天前</small>
 </p>
