@@ -54,7 +54,7 @@
 </h2>
 <p>贪腐是一种分配方式，反贪也是</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3898230884148860" target="freeweibo-mirror">SPAM  //@雁塔小木屋4://@葫芦E散人://@東海…</a>
 </h2>
