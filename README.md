@@ -30,7 +30,7 @@
 </h2>
 <p>这是推销浴室？ //@莱德赵克强:[弱]//@人民在线新媒体郭存根: [衰][衰] //@阳山花非花:[吃惊][吃惊]官方主导的活动怎能如此恶俗不堪的？？//@李不白的店:不扫黄啦？//@陶景洲: 唱红打黑展的变异。<br><br>RE: 重庆市把房展会变得了乳房展会，政府主导的活动搞得恶俗不堪！<br><img src="http://ww3.sinaimg.cn/large/44867feejw1ex33wqlc6tj20hs0e1wff.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3898625531271775" target="freeweibo-mirror">重庆市把房展会变得了乳房展会，政府主导的活动搞得恶俗不堪！</a>
 </h2>
@@ -78,7 +78,7 @@
 </h2>
 <p>【哈佛教授致信环时：我没说过中国梦会对人类发展作巨大贡献】哈佛大学历史和政治学教授马若德（Roderick MacFarquhar）本周三致电邮给《环球时报》，称该报在报道本月在北京举行的世界马克思主义大会时，说他称赞“中国梦”会对人类发展作出巨大贡献，“完全是捏造的”。http://t.cn/Ryrbcxa<br><img src="http://ww3.sinaimg.cn/large/9dcb59c7jw1ex2se9xw5rj20m80ecmz9.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3898481825105931" target="freeweibo-mirror">“我惊奇地发现这里的人们有着美好的生活。” //@赵晓:[吃…</a>
 </h2>
