@@ -36,11 +36,17 @@
 </h2>
 <p>这是推销浴室？ //@莱德赵克强:[弱]//@人民在线新媒体郭存根: [衰][衰] //@阳山花非花:[吃惊][吃惊]官方主导的活动怎能如此恶俗不堪的？？//@李不白的店:不扫黄啦？//@陶景洲: 唱红打黑展的变异。<br><br>RE: 重庆市把房展会变得了乳房展会，政府主导的活动搞得恶俗不堪！<br><img src="http://ww3.sinaimg.cn/large/44867feejw1ex33wqlc6tj20hs0e1wff.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3898625531271775" target="freeweibo-mirror">重庆市把房展会变得了乳房展会，政府主导的活动搞得恶俗不堪！</a>
 </h2>
 <p>重庆市把房展会变得了乳房展会，政府主导的活动搞得恶俗不堪！<br><img src="http://ww3.sinaimg.cn/large/44867feejw1ex33wqlc6tj20hs0e1wff.jpg"></p>
+<p>
+	<small> ============== 7小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3898625287815789" target="freeweibo-mirror">视频录下了整个杀人过程[怒][怒][怒]#神转评##人肉搜索…</a>
+</h2>
+<p>视频录下了整个杀人过程[怒][怒][怒]#神转评##人肉搜索#追查凶手[话筒] http://t.cn/RyrWlmP .</p>
 <p>
 	<small> ============== 7小时前</small>
 </p><h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3898313755399660" target="freeweibo-mirror">下午，鲁小本带着他的老乡荷兰Stedelijk美术馆摄影策展…</a>
 </h2>
 <p>下午，鲁小本带着他的老乡荷兰Stedelijk美术馆摄影策展人Anne Ruygt来映画廊访问，并带来他和马丁帕尔一起策划编辑，《光圈》出版的大型画册《中国摄影书》……里面除了有很多“伟大的毛主席”之外，还有“伟大的蒋主席”……还有各种“天安门广场”……<br><img src="http://ww3.sinaimg.cn/large/70d85613jw1ex2498ktrcj218g0xcnfa.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3898298487893074" target="freeweibo-mirror">贪腐是一种分配方式，反贪也是</a>
-</h2>
-<p>贪腐是一种分配方式，反贪也是</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
