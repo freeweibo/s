@@ -54,7 +54,7 @@
 </h2>
 <p>汗</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3898535764057994" target="freeweibo-mirror">【哈佛教授致信环时：我没说过中国梦会对人类发展作巨大贡献】哈…</a>
 </h2>
