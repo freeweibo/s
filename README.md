@@ -78,7 +78,7 @@
 </h2>
 <p>环球又傻逼了吧？哈佛大学历史和政治学教授马若德本周三致电邮给《环球时报》，称该报在报道本月在北京举行的世界马克思主义大会时，说他称赞“中国梦”会对人类发展作出巨大贡献，“完全是捏造的”。<br><img src="http://ww3.sinaimg.cn/large/7cc9aaf1gw1ex31123llcj20f00qotd0.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3898598519533299" target="freeweibo-mirror">环球屎报！！//@叶檀:</a>
 </h2>
@@ -90,7 +90,7 @@
 </h2>
 <p>[衰]//@刘耘博士: 一地鸡毛。//@柳絮095:告诉世人真相！[哈哈]<br><br>RE: 【哈佛教授致信环时：我没说过中国梦会对人类发展作巨大贡献】哈佛大学历史和政治学教授马若德（Roderick MacFarquhar）本周三致电邮给《环球时报》，称该报在报道本月在北京举行的世界马克思主义大会时，说他称赞“中国梦”会对人类发展作出巨大贡献，“完全是捏造的”。http://t.cn/Ryrbcxa<br><img src="http://ww3.sinaimg.cn/large/9dcb59c7jw1ex2se9xw5rj20m80ecmz9.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3898581725700540" target="freeweibo-mirror">汗</a>
 </h2>
