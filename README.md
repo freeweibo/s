@@ -38,6 +38,12 @@
 <p>
 	<small> ============== 9小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3898343040122230" target="freeweibo-mirror">現實證明，屏蔽紐約時報等反華媒體，是多麼英明的決策，方濱興是…</a>
+</h2>
+<p>現實證明，屏蔽紐約時報等反華媒體，是多麼英明的決策，方濱興是民族英雄。[赞]<br><img src="http://ww4.sinaimg.cn/large/65cc9274jw1ex27mgu87fj20hs5bckiy.jpg"></p>
+<p>
+	<small> ============== 11小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3898325109946415" target="freeweibo-mirror">//@林子lsj: 期待以民众为敌的广电开博挨骂∩_∩ //…</a>
 </h2>
 <p>//@林子lsj: 期待以民众为敌的广电开博挨骂∩_∩ //@传媒大观察:【动态】广电总局也可能即将开通微博，大家稍安勿躁[微笑]//@安心: 帮大家问了一下，报告已经到办公厅了，在等批复呢，好饭不怕等，大家稍安勿躁//@财经网: 期待广电总局也开一个，相信一定会是网友评论最火爆的官微，直接秒杀证监会微博</p>
@@ -120,7 +126,7 @@
 </h2>
 <p>//@MBA张琪://@徐昕://@梦想6加1://@何光伟://@刘耘博士://@于建嵘: 垃圾焚烧，特别是小城镇垃圾处理的事件，将是未来群体性冲突性事件的引爆点。</p>
 <p>
-	<small> ============== 1天前</small>
+	<small> ============== 2天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3897941255229051" target="freeweibo-mirror">SPAM 城市养狗就是特色的产物，扰民、伤人.......应…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3897919268428717" target="freeweibo-mirror">【谁造成了大规模警民冲突】10月10日上午，因广东阳春市海螺…</a>
 </h2>
 <p>【谁造成了大规模警民冲突】10月10日上午，因广东阳春市海螺水泥厂内隐瞒私建垃圾焚烧厂，自由村上千名村民第3度聚集抗议，并与警察发生激烈打斗，造成多人受伤，多辆公务车被烧毁。微评：当地政府隐瞒附近村民偷建垃圾焚烧厂并投入试运行，其卑劣做法能不引发群情激愤吗？冲突视频http://t.cn/RynJuXX<br><img src="http://ww3.sinaimg.cn/large/db1747fcgw1ex0urzka3ij20c807cq3p.jpg"></p>
-<p>
-	<small> ============== 2天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3897902340150928" target="freeweibo-mirror">SPAM 毛家腊肉形象代言人？</a>
-</h2>
-<p>SPAM 毛家腊肉形象代言人？<br><img src="http://ww4.sinaimg.cn/large/92420a14jw1ex0t0ci741j20c808j0tr.jpg"></p>
 <p>
 	<small> ============== 2天前</small>
 </p>
