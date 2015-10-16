@@ -114,7 +114,7 @@
 </h2>
 <p>SPAM 城市养狗就是特色的产物，扰民、伤人.......应该一律铲除。<br><br>RE: 今天下午，威宁县小学生放学回家的路上被疯狗咬伤，毁容惨不忍睹，真心觉得可怜！养狗的人们，试问你们尽到你们的责任了吗？这么小的孩子，谁之过？#毕节身边事#@毕节城事 @毕节头条<br><img src="http://ww2.sinaimg.cn/large/b8be7cd7gw1ewysx7xb0mj20hs0nqgne.jpg"></p>
 <p>
-	<small> ============== 1天前</small>
+	<small> ============== 2天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3897919268428717" target="freeweibo-mirror">【谁造成了大规模警民冲突】10月10日上午，因广东阳春市海螺…</a>
 </h2>
