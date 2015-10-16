@@ -30,7 +30,7 @@
 </h2>
 <p>谨慎建议:跨国。//@莫志谨://@皇城牧人: 用你的名是看得起你，别不识抬举<br><br>RE: 【哈佛教授致信环时：我没说过中国梦会对人类发展作巨大贡献】哈佛大学历史和政治学教授马若德（Roderick MacFarquhar）本周三致电邮给《环球时报》，称该报在报道本月在北京举行的世界马克思主义大会时，说他称赞“中国梦”会对人类发展作出巨大贡献，“完全是捏造的”。http://t.cn/Ryrbcxa<br><img src="http://ww3.sinaimg.cn/large/9dcb59c7jw1ex2se9xw5rj20m80ecmz9.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3898599241318886" target="freeweibo-mirror">环球又傻逼了吧？哈佛大学历史和政治学教授马若德本周三致电邮给…</a>
 </h2>
@@ -38,11 +38,17 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3898581725700540" target="freeweibo-mirror">汗</a>
+</h2>
+<p>汗</p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3898535764057994" target="freeweibo-mirror">【哈佛教授致信环时：我没说过中国梦会对人类发展作巨大贡献】哈…</a>
 </h2>
 <p>【哈佛教授致信环时：我没说过中国梦会对人类发展作巨大贡献】哈佛大学历史和政治学教授马若德（Roderick MacFarquhar）本周三致电邮给《环球时报》，称该报在报道本月在北京举行的世界马克思主义大会时，说他称赞“中国梦”会对人类发展作出巨大贡献，“完全是捏造的”。http://t.cn/Ryrbcxa<br><img src="http://ww3.sinaimg.cn/large/9dcb59c7jw1ex2se9xw5rj20m80ecmz9.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3898481825105931" target="freeweibo-mirror">“我惊奇地发现这里的人们有着美好的生活。” //@赵晓:[吃…</a>
 </h2>
@@ -133,12 +139,6 @@
 <p>SPAM 哈哈哈，讨硬，答应你下次连续聊三个通宵[doge]</p>
 <p>
 	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3897980694595124" target="freeweibo-mirror">对，这也就是文革的价值所在！ //@策划人蔡磊:其实也是文革…</a>
-</h2>
-<p>对，这也就是文革的价值所在！ //@策划人蔡磊:其实也是文革精神的延续。//@用心的关注:1、官倒和腐败是酿成八九运动的主因。2、在历史上看，这是一场被资产阶级窃取和诱导的革命运动。3、再次证明了一个真理：没有工人阶级参与和领导，精英们是没有能力领导中国革命的。 4、即便精英们可</p>
-<p>
-	<small> ============== 2天前</small>
 </p>
 <table>
     <tr>
