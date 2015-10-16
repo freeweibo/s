@@ -84,7 +84,7 @@
 </h2>
 <p>环球屎报！！//@叶檀:</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3898592198552315" target="freeweibo-mirror">[衰]//@刘耘博士: 一地鸡毛。//@柳絮095:告诉世人…</a>
 </h2>
