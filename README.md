@@ -26,6 +26,12 @@
 <p>
 	<small> ============== 1小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3898469904877488" target="freeweibo-mirror">呵呵，应该感谢现在好歹有网络，这些造假新闻才瞒不住。//@麦…</a>
+</h2>
+<p>呵呵，应该感谢现在好歹有网络，这些造假新闻才瞒不住。//@麦田捕手:反正都已臭名昭著//@谢文:拉小旗，作鼠皮 //@胡发云:编造国际谎言，强撑大国门面。//@忆梅下西舟://@DopeyTom: 让外国人唱赞歌是比较聪明的做法，毕竟穿帮的概率很小。搞笑的是当年《重庆日报》，竟然借吴祚来之口说"红歌是精神食粮<br><br>RE: 現實證明，屏蔽紐約時報等反華媒體，是多麼英明的決策，方濱興是民族英雄。[赞]<br><img src="http://ww4.sinaimg.cn/large/65cc9274jw1ex27mgu87fj20hs5bckiy.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3898369556222655" target="freeweibo-mirror">s95822网[微风][微风]盘[飞机]资[奥特曼]源asa…</a>
 </h2>
 <p>s95822网[微风][微风]盘[飞机]资[奥特曼]源asas甚至d[音乐]不求你爱我做爱gif，云盘[音乐]资源碰[绿丝带]到嫩模你。[神马]今天[囧][猪头]想放松U开心嗨[织]撸[微笑]管不求同行，做爱[可爱][可爱]视[绿丝带]频精彩不会停+微[心]s95822<br><img src="http://ww2.sinaimg.cn/large/63f6a8a3gw1ex2anzq128j20p018g40q.jpg"></p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3897902340150928" target="freeweibo-mirror">SPAM 毛家腊肉形象代言人？</a>
 </h2>
 <p>SPAM 毛家腊肉形象代言人？<br><img src="http://ww4.sinaimg.cn/large/92420a14jw1ex0t0ci741j20c808j0tr.jpg"></p>
-<p>
-	<small> ============== 2天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3897901346936710" target="freeweibo-mirror">许多网友指正，这是甘孜州色达县，请问@四川公安 @四川发布 …</a>
-</h2>
-<p>许多网友指正，这是甘孜州色达县，请问@四川公安 @四川发布 这是什么执法素质???//@Aima_gangri: 嗯 就怕流氓当警察 [弱]</p>
 <p>
 	<small> ============== 2天前</small>
 </p>
