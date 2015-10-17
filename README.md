@@ -90,7 +90,7 @@
 </h2>
 <p>如果一个记者的基本调查行为都涉及泄露国家机密罪，那么我对这国家真的真的失望透。</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3899033611348523" target="freeweibo-mirror">蠢货plus//@赵晓:一蠢再蠢。</a>
 </h2>
@@ -108,7 +108,7 @@
 </h2>
 <p>【@石扉客2014 ：南都刘伟案与社会结构的坍塌和重组】“传统的生态平衡已被彻底打破，新的行业秩序仍未有建立的迹象。未来相当一段时间内的中国媒体，没有任何谨慎乐观的可能。说百哀齐至，不算夸张。”<br><img src="http://ww4.sinaimg.cn/large/791ae3d5gw1ex4dzfmn0pj20c8138ael.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3899023313931062" target="freeweibo-mirror">SPAM //@灯火澜珊的世界: //@坚持到底追求完美:/…</a>
 </h2>
