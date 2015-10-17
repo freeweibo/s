@@ -36,7 +36,7 @@
 </h2>
 <p>回复@诸葛不亮0330:对，和刘胡兰一样，这些英雄的生产模式过于道德化，其真实性早已经被抽离，为了道德，不惜虚构剧情，没有困难制造困难也要上，想想都让人觉得“英雄”的灰暗。 //@诸葛不亮0330:吊诡之处还有:目击董死时之人，据说只有致顺义一人！再想想那个“不要相信河南人！”我是不是想多了？</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3898884298404330" target="freeweibo-mirror">楼主显然不符合腊包的猪蹄思想</a>
 </h2>
@@ -48,7 +48,7 @@
 </h2>
 <p>SPAM 王大姨雄文：没文化真可怕，假装有更可怕<br><img src="http://ww2.sinaimg.cn/large/61fcc2a9jw1ex3uqlo56jj20ez0qo41h.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3898856490192281" target="freeweibo-mirror">SPAM [挖鼻]哪壶开呀？</a>
 </h2>
