@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3898888820287217" target="freeweibo-mirror">张飞是民族英雄，周瑜是民族英雄，吕布也是民族英雄。魏蜀吴三个…</a>
+</h2>
+<p>张飞是民族英雄，周瑜是民族英雄，吕布也是民族英雄。魏蜀吴三个集团都是爱国集团，三国演义的战场，都搞成爱国主义教育基地——这可以算主旋律吧？//@蒋祖权评论: //@作家东海: //@笨笨an://@贺江兵:楼主显然不符合腊包的猪蹄思想</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3898888492493255" target="freeweibo-mirror">【普及常识】林肯，加里波第，卑斯麦，这些打赢内战，统一全国的…</a>
 </h2>
 <p>【普及常识】林肯，加里波第，卑斯麦，这些打赢内战，统一全国的人都被视为民族英雄。</p>
@@ -36,7 +42,7 @@
 </h2>
 <p>楼主显然不符合腊包的猪蹄思想</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3898857773931655" target="freeweibo-mirror">SPAM 王大姨雄文：没文化真可怕，假装有更可怕</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3898598519533299" target="freeweibo-mirror">环球屎报！！//@叶檀:</a>
 </h2>
 <p>环球屎报！！//@叶檀:</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3898592198552315" target="freeweibo-mirror">[衰]//@刘耘博士: 一地鸡毛。//@柳絮095:告诉世人…</a>
-</h2>
-<p>[衰]//@刘耘博士: 一地鸡毛。//@柳絮095:告诉世人真相！[哈哈]<br><br>RE: 【哈佛教授致信环时：我没说过中国梦会对人类发展作巨大贡献】哈佛大学历史和政治学教授马若德（Roderick MacFarquhar）本周三致电邮给《环球时报》，称该报在报道本月在北京举行的世界马克思主义大会时，说他称赞“中国梦”会对人类发展作出巨大贡献，“完全是捏造的”。http://t.cn/Ryrbcxa<br><img src="http://ww3.sinaimg.cn/large/9dcb59c7jw1ex2se9xw5rj20m80ecmz9.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
