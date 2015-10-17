@@ -96,7 +96,7 @@
 </h2>
 <p>砍得好[赞] //@作家岳南:[硬汉胡爸爸]//@虎符妞: 血腥。@一世永飘 //@时间的过客V: 转发微博<br><br>RE: 昨晚网传广州又发生了黑人强奸女大学生的案件，愤怒的人群中，有人挥刀砍下了此人的命根。<br><img src="http://ww4.sinaimg.cn/large/88d84fdagw1ex3wuil6t2j20ci0m8q4e.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3899025998946013" target="freeweibo-mirror">【@石扉客2014 ：南都刘伟案与社会结构的坍塌和重组】“传…</a>
 </h2>
