@@ -24,7 +24,7 @@
 </h2>
 <p>蠢货plus//@赵晓:一蠢再蠢。<br><br>RE: 中国駐英大使公开扬言，习访英期英方如提人權問題就是不尊重習近平 http://t.cn/RydMYWs 也不知道这位大使是拐弯骂习还是认真黑习，搞得好像习视人权如杀父仇人势不两立似的。<br><img src="http://ww3.sinaimg.cn/large/006e3cCJgw1ex43l1uq3mj30ho0hd75x.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3899030419054173" target="freeweibo-mirror">砍得好[赞] //@作家岳南:[硬汉胡爸爸]//@虎符妞: …</a>
 </h2>
@@ -60,19 +60,19 @@
 </h2>
 <p>连黑人都给予超国民待遇，怪不得人家不想回家了。<br><br>RE: 昨晚网传广州又发生了黑人强奸女大学生的案件，愤怒的人群中，有人挥刀砍下了此人的命根。<br><img src="http://ww4.sinaimg.cn/large/88d84fdagw1ex3wuil6t2j20ci0m8q4e.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3898987604088334" target="freeweibo-mirror">//@广闻博见V:无意发现这条微博被转500，不过，请放心。…</a>
 </h2>
 <p>//@广闻博见V:无意发现这条微博被转500，不过，请放心。无论股票或别的话题，我都是一样变态般苛刻严谨，文中引用的资料都是来自官媒，绝对真人真事，用词不偏不倚。看到这段我也笑了“然后，月黑风高的夜晚，全村人一起偷渡香港”。 是啊，在天朝，说一套，做一套，早已习以为常。漂亮的高调，谁信谁</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3898942984741444" target="freeweibo-mirror">SPAM ......</a>
 </h2>
 <p>SPAM ......<br><br>RE: ＂今年5月末6月初，周本顺到邢台衡水调研时，最后的见报稿发了近3500字。而习总七月份到吉林一个省调研时见报稿也才发了3000字，克强总理在9月在河南考察更是只发了1300字。。。＂----僭越天子仪仗，犯诛之罪。</p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3898941780962730" target="freeweibo-mirror">＂今年5月末6月初，周本顺到邢台衡水调研时，最后的见报稿发了…</a>
 </h2>
