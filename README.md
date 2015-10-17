@@ -24,7 +24,7 @@
 </h2>
 <p>【@石扉客2014 ：南都刘伟案与社会结构的坍塌和重组】“传统的生态平衡已被彻底打破，新的行业秩序仍未有建立的迹象。未来相当一段时间内的中国媒体，没有任何谨慎乐观的可能。说百哀齐至，不算夸张。”<br><img src="http://ww4.sinaimg.cn/large/791ae3d5gw1ex4dzfmn0pj20c8138ael.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3899019564937025" target="freeweibo-mirror">不知道说啥好，还是先确认新闻的真实性吧，我感觉大体应该是真的…</a>
 </h2>
@@ -66,7 +66,7 @@
 </h2>
 <p>//@kkk888666yyy: //@陈光武律师: //@麻毛雄: //@沈水闲人: 嗯，是得好好管一管了。//@何三畏: 大学生真得好好管一管了，你看他们在想什么嘛</p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3898902732223113" target="freeweibo-mirror">转发。崩塌之后怎么办？</a>
 </h2>
@@ -134,11 +134,11 @@
 <p>
 	<small> ============== 11小时前</small>
 </p><h2>
-	<a href="https://freeweibo.com/weibo/3898873808014589" target="freeweibo-mirror">掀开了记者被抓崭新的一页。//@二吼: //@伊曼努尔:知道…</a>
+	<a href="https://freeweibo.com/weibo/3898876123775866" target="freeweibo-mirror">昨晚网传广州又发生了黑人强奸女大学生的案件，愤怒的人群中，有…</a>
 </h2>
-<p>掀开了记者被抓崭新的一页。//@二吼: //@伊曼努尔:知道了不该知道的事就是罪，即便是别人故意泄露出来的，记者这个行业已经可以退出天朝了<br><br>RE: 南都刘伟因王林报道被抓，这是一个很坏的头。从现有信息来看，刘伟应是通过王林前妻得到了一些警方内线的报料。这对于记者来说，只是获得信息的手段。如果没有金钱来往，就是正当的。警方不能因为自己有人泄漏信息，就把板子当到记者头上。这个头一开，警方只要不满意报道的信息来源，都可以动手了。<br><img src="http://ww4.sinaimg.cn/large/53998985jw1ex3c5fvitzj20a70bdgoy.jpg"></p>
+<p>昨晚网传广州又发生了黑人强奸女大学生的案件，愤怒的人群中，有人挥刀砍下了此人的命根。<br><img src="http://ww4.sinaimg.cn/large/88d84fdagw1ex3wuil6t2j20ci0m8q4e.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 11小时前</small>
 </p>
 <table>
     <tr>
