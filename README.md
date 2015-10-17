@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3899033611348523" target="freeweibo-mirror">蠢货plus//@赵晓:一蠢再蠢。</a>
+</h2>
+<p>蠢货plus//@赵晓:一蠢再蠢。<br><br>RE: 中国駐英大使公开扬言，习访英期英方如提人權問題就是不尊重習近平 http://t.cn/RydMYWs 也不知道这位大使是拐弯骂习还是认真黑习，搞得好像习视人权如杀父仇人势不两立似的。<br><img src="http://ww3.sinaimg.cn/large/006e3cCJgw1ex43l1uq3mj30ho0hd75x.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3899025998946013" target="freeweibo-mirror">【@石扉客2014 ：南都刘伟案与社会结构的坍塌和重组】“传…</a>
 </h2>
 <p>【@石扉客2014 ：南都刘伟案与社会结构的坍塌和重组】“传统的生态平衡已被彻底打破，新的行业秩序仍未有建立的迹象。未来相当一段时间内的中国媒体，没有任何谨慎乐观的可能。说百哀齐至，不算夸张。”<br><img src="http://ww4.sinaimg.cn/large/791ae3d5gw1ex4dzfmn0pj20c8138ael.jpg"></p>
@@ -96,7 +102,7 @@
 </h2>
 <p>第十一卷 天灾 第七章 风雷激 4：659 解决路线问题必先解决组织问题。 黄海事件发生后，中共第四代领导核心胡柱国不露声色地使出杀手锏，导演了一出震动国内外的、在对敌作战策略上被称为“斩首...文字版>> http://t.cn/RydW2MP （新浪长微博>> http://t.cn/zOXAaic）<br><img src="http://ww1.sinaimg.cn/large/c88a0f70jw1ex3ymg63wcj20c83xu7wh.jpg"></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3898888820287217" target="freeweibo-mirror">张飞是民族英雄，周瑜是民族英雄，吕布也是民族英雄。魏蜀吴三个…</a>
 </h2>
@@ -132,13 +138,7 @@
 </h2>
 <p>南都刘伟案斯伟江律师观点<br><img src="http://ww3.sinaimg.cn/large/65d4f902gw1ex3wvz4hulj20p018ggr9.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3898876123775866" target="freeweibo-mirror">昨晚网传广州又发生了黑人强奸女大学生的案件，愤怒的人群中，有…</a>
-</h2>
-<p>昨晚网传广州又发生了黑人强奸女大学生的案件，愤怒的人群中，有人挥刀砍下了此人的命根。<br><img src="http://ww4.sinaimg.cn/large/88d84fdagw1ex3wuil6t2j20ci0m8q4e.jpg"></p>
-<p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p>
 <table>
     <tr>
