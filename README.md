@@ -44,6 +44,12 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3898891575192524" target="freeweibo-mirror">第十一卷 天灾 第七章 风雷激 4：659 解决路线问题必先…</a>
+</h2>
+<p>第十一卷 天灾 第七章 风雷激 4：659 解决路线问题必先解决组织问题。 黄海事件发生后，中共第四代领导核心胡柱国不露声色地使出杀手锏，导演了一出震动国内外的、在对敌作战策略上被称为“斩首...文字版>> http://t.cn/RydW2MP （新浪长微博>> http://t.cn/zOXAaic）<br><img src="http://ww1.sinaimg.cn/large/c88a0f70jw1ex3ymg63wcj20c83xu7wh.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3898888820287217" target="freeweibo-mirror">张飞是民族英雄，周瑜是民族英雄，吕布也是民族英雄。魏蜀吴三个…</a>
 </h2>
 <p>张飞是民族英雄，周瑜是民族英雄，吕布也是民族英雄。魏蜀吴三个集团都是爱国集团，三国演义的战场，都搞成爱国主义教育基地——这可以算主旋律吧？//@蒋祖权评论: //@作家东海: //@笨笨an://@贺江兵:楼主显然不符合腊包的猪蹄思想</p>
@@ -65,6 +71,12 @@
 	<a href="https://freeweibo.com/weibo/3898884298404330" target="freeweibo-mirror">楼主显然不符合腊包的猪蹄思想</a>
 </h2>
 <p>楼主显然不符合腊包的猪蹄思想</p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3898876534892226" target="freeweibo-mirror">南都刘伟案斯伟江律师观点</a>
+</h2>
+<p>南都刘伟案斯伟江律师观点<br><img src="http://ww3.sinaimg.cn/large/65d4f902gw1ex3wvz4hulj20p018ggr9.jpg"></p>
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
@@ -125,18 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3898698536605445" target="freeweibo-mirror">SPAM 我就不信如此凶残的歹徒能逃过天罗地网！扩散捉拿凶手…</a>
 </h2>
 <p>SPAM 我就不信如此凶残的歹徒能逃过天罗地网！扩散捉拿凶手[怒]<br><br>RE: 视频录下了整个杀人过程[怒][怒][怒]#神转评##人肉搜索#追查凶手[话筒] http://t.cn/RyrWlmP .</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3898696846519687" target="freeweibo-mirror">南都刘伟因王林报道被抓，这是一个很坏的头。从现有信息来看，刘…</a>
-</h2>
-<p>南都刘伟因王林报道被抓，这是一个很坏的头。从现有信息来看，刘伟应是通过王林前妻得到了一些警方内线的报料。这对于记者来说，只是获得信息的手段。如果没有金钱来往，就是正当的。警方不能因为自己有人泄漏信息，就把板子当到记者头上。这个头一开，警方只要不满意报道的信息来源，都可以动手了。<br><img src="http://ww4.sinaimg.cn/large/53998985jw1ex3c5fvitzj20a70bdgoy.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3898668170045000" target="freeweibo-mirror">看的真仔细 //@任志强:[吃惊]</a>
-</h2>
-<p>看的真仔细 //@任志强:[吃惊]<br><br>RE: 重庆市把房展会变得了乳房展会，政府主导的活动搞得恶俗不堪！<br><img src="http://ww3.sinaimg.cn/large/44867feejw1ex33wqlc6tj20hs0e1wff.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
