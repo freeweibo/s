@@ -48,7 +48,7 @@
 </h2>
 <p>//@古镇文礼://@陈光武律师://@麻毛雄: //@沈水闲人: 嗯，是得好好管一管了。//@何三畏: 大学生真得好好管一管了，你看他们在想什么嘛</p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3898920571237487" target="freeweibo-mirror">//@kkk888666yyy: //@陈光武律师: //@…</a>
 </h2>
@@ -138,7 +138,7 @@
 </h2>
 <p>SPAM [挖鼻]哪壶开呀？<br><br>RE: 駐英大使指提人權問題不尊重習近平 http://t.cn/RydMYWs<br><img src="http://ww3.sinaimg.cn/large/006ewAsrjw1ex3rmxolpwj30cs08rq37.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p>
 <table>
     <tr>
