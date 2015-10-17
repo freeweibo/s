@@ -54,7 +54,7 @@
 </h2>
 <p>SPAM [挖鼻]哪壶开呀？<br><br>RE: 駐英大使指提人權問題不尊重習近平 http://t.cn/RydMYWs<br><img src="http://ww3.sinaimg.cn/large/006ewAsrjw1ex3rmxolpwj30cs08rq37.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3898855248935329" target="freeweibo-mirror">SPAM 没文化真可怕，假装有更可怕----"语言学家根据受…</a>
 </h2>
