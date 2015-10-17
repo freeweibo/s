@@ -132,7 +132,7 @@
 </h2>
 <p>現實證明，屏蔽紐約時報等反華媒體，是多麼英明的決策，方濱興是民族英雄。[赞]<br><img src="http://ww4.sinaimg.cn/large/65cc9274jw1ex27mgu87fj20hs5bckiy.jpg"></p>
 <p>
-	<small> ============== 1天前</small>
+	<small> ============== 2天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3898325109946415" target="freeweibo-mirror">//@林子lsj: 期待以民众为敌的广电开博挨骂∩_∩ //…</a>
 </h2>
