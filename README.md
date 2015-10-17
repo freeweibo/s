@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3898942984741444" target="freeweibo-mirror">SPAM ......</a>
+</h2>
+<p>SPAM ......<br><br>RE: ＂今年5月末6月初，周本顺到邢台衡水调研时，最后的见报稿发了近3500字。而习总七月份到吉林一个省调研时见报稿也才发了3000字，克强总理在9月在河南考察更是只发了1300字。。。＂----僭越天子仪仗，犯诛之罪。</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3898923590397286" target="freeweibo-mirror">//@古镇文礼://@陈光武律师://@麻毛雄: //@沈水…</a>
 </h2>
 <p>//@古镇文礼://@陈光武律师://@麻毛雄: //@沈水闲人: 嗯，是得好好管一管了。//@何三畏: 大学生真得好好管一管了，你看他们在想什么嘛</p>
@@ -60,7 +66,7 @@
 </h2>
 <p>第十一卷 天灾 第七章 风雷激 4：659 解决路线问题必先解决组织问题。 黄海事件发生后，中共第四代领导核心胡柱国不露声色地使出杀手锏，导演了一出震动国内外的、在对敌作战策略上被称为“斩首...文字版>> http://t.cn/RydW2MP （新浪长微博>> http://t.cn/zOXAaic）<br><img src="http://ww1.sinaimg.cn/large/c88a0f70jw1ex3ymg63wcj20c83xu7wh.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3898888820287217" target="freeweibo-mirror">张飞是民族英雄，周瑜是民族英雄，吕布也是民族英雄。魏蜀吴三个…</a>
 </h2>
@@ -96,7 +102,7 @@
 </h2>
 <p>南都刘伟案斯伟江律师观点<br><img src="http://ww3.sinaimg.cn/large/65d4f902gw1ex3wvz4hulj20p018ggr9.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3898873808014589" target="freeweibo-mirror">掀开了记者被抓崭新的一页。//@二吼: //@伊曼努尔:知道…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3898855164855639" target="freeweibo-mirror">//@日天小巨人:右边帐号应声被销。 //@无畏高尔察克:比…</a>
 </h2>
 <p>//@日天小巨人:右边帐号应声被销。 //@无畏高尔察克:比较两岸人民享有的自由、公平、富裕、安全程度，是人家国民党赢了。</p>
-<p>
-	<small> ============== 7小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3898848587916953" target="freeweibo-mirror">//@孫文1915革命://@万家灯火65://@87090…</a>
-</h2>
-<p>//@孫文1915革命://@万家灯火65://@870908aaaaa: 转发微博<br><br>RE: 駐英大使指提人權問題不尊重習近平 http://t.cn/RydMYWs<br><img src="http://ww3.sinaimg.cn/large/006ewAsrjw1ex3rmxolpwj30cs08rq37.jpg"></p>
 <p>
 	<small> ============== 7小时前</small>
 </p>
