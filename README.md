@@ -138,7 +138,7 @@
 </h2>
 <p>第十一卷 天灾 第七章 风雷激 4：659 解决路线问题必先解决组织问题。 黄海事件发生后，中共第四代领导核心胡柱国不露声色地使出杀手锏，导演了一出震动国内外的、在对敌作战策略上被称为“斩首...文字版>> http://t.cn/RydW2MP （新浪长微博>> http://t.cn/zOXAaic）<br><img src="http://ww1.sinaimg.cn/large/c88a0f70jw1ex3ymg63wcj20c83xu7wh.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p>
 <table>
     <tr>
