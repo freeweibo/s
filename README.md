@@ -74,6 +74,12 @@
 <p>
 	<small> ============== 4小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3898855886166413" target="freeweibo-mirror">南方都市报社派刘伟再次赶赴萍乡……并刊发王林与他人签订的多份…</a>
+</h2>
+<p>南方都市报社派刘伟再次赶赴萍乡……并刊发王林与他人签订的多份承诺书……据新京报记者了解，这些承诺书，均为王林家人给刘伟独家提供——命案直接证据，应由掌握者交给办案警察，却第一时间出现在“采访记者”手中，南都和新京报颇引以为荣。主动侧身侦查阶段的命案，还津津乐道，这是法盲还是流氓？</p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3898855248935329" target="freeweibo-mirror">SPAM 没文化真可怕，假装有更可怕----"语言学家根据受…</a>
 </h2>
 <p>SPAM 没文化真可怕，假装有更可怕----"语言学家根据受到的启发总结出，文化就是凭记忆背出自己读过的书名的能力，文化程度的高低与能背诵出的书名的多少成正比，不难看出，中国已经是文化大国了，全世界都知道。" http://t.cn/RydaM0Q</p>
@@ -110,6 +116,12 @@
 <p>
 	<small> ============== 1天前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3898696846519687" target="freeweibo-mirror">南都刘伟因王林报道被抓，这是一个很坏的头。从现有信息来看，刘…</a>
+</h2>
+<p>南都刘伟因王林报道被抓，这是一个很坏的头。从现有信息来看，刘伟应是通过王林前妻得到了一些警方内线的报料。这对于记者来说，只是获得信息的手段。如果没有金钱来往，就是正当的。警方不能因为自己有人泄漏信息，就把板子当到记者头上。这个头一开，警方只要不满意报道的信息来源，都可以动手了。<br><img src="http://ww4.sinaimg.cn/large/53998985jw1ex3c5fvitzj20a70bdgoy.jpg"></p>
+<p>
+	<small> ============== 1天前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3898668170045000" target="freeweibo-mirror">看的真仔细 //@任志强:[吃惊]</a>
 </h2>
 <p>看的真仔细 //@任志强:[吃惊]<br><br>RE: 重庆市把房展会变得了乳房展会，政府主导的活动搞得恶俗不堪！<br><img src="http://ww3.sinaimg.cn/large/44867feejw1ex33wqlc6tj20hs0e1wff.jpg"></p>
@@ -125,18 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3898625531271775" target="freeweibo-mirror">重庆市把房展会变得了乳房展会，政府主导的活动搞得恶俗不堪！</a>
 </h2>
 <p>重庆市把房展会变得了乳房展会，政府主导的活动搞得恶俗不堪！<br><img src="http://ww3.sinaimg.cn/large/44867feejw1ex33wqlc6tj20hs0e1wff.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3898625287815789" target="freeweibo-mirror">视频录下了整个杀人过程[怒][怒][怒]#神转评##人肉搜索…</a>
-</h2>
-<p>视频录下了整个杀人过程[怒][怒][怒]#神转评##人肉搜索#追查凶手[话筒] http://t.cn/RyrWlmP .</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3898613367499270" target="freeweibo-mirror">别译成马若德了，还是翻译成麦克法考尔吧。//@一杯半冰咖啡:…</a>
-</h2>
-<p>别译成马若德了，还是翻译成麦克法考尔吧。//@一杯半冰咖啡: 最近胡编状况不对<br><br>RE: 环球又傻逼了吧？哈佛大学历史和政治学教授马若德本周三致电邮给《环球时报》，称该报在报道本月在北京举行的世界马克思主义大会时，说他称赞“中国梦”会对人类发展作出巨大贡献，“完全是捏造的”。<br><img src="http://ww3.sinaimg.cn/large/7cc9aaf1gw1ex31123llcj20f00qotd0.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
