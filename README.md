@@ -30,7 +30,7 @@
 </h2>
 <p>分享视频 http://t.cn/RyeIvC3 .</p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3899235805968270" target="freeweibo-mirror">哇 //@尔康是会呼吸的痛://@withk不忘初心:m桃花…</a>
 </h2>
@@ -66,7 +66,7 @@
 </h2>
 <p>中国最大的问题不是体质问题， 最大的问题应该是明明知道体制有问题；却从来没有想着要去改变它的中国人，又想拥有美国一样的民生福利， 却又不敢去争取自己的合法权益；又想拥有美国一样的民主制度；却又不敢为此而付出。这样的人配拥有明主自由吗？先别问什么时候才有选票，先问问自己有没有准备好？<br><img src="http://ww2.sinaimg.cn/large/006fH5qQgw1ex4z9yn983j308c08cglx.jpg"></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3899186448103120" target="freeweibo-mirror">中共的几代领导人，毛泽东最为邪恶，给中国人民带来的灾难，几百…</a>
 </h2>
