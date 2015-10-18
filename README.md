@@ -24,7 +24,7 @@
 </h2>
 <p>【试问谁还未觉醒，我为国人泪涕零】看@南方都市报 记者刘伟“非法获取国家秘密”被抓之后，除市民在为其呐喊外，试问你们有多少媒体、媒体人敢于为真相而发声？请记住！@南方都市报 记者刘伟的今天，有可能就是你们的明天。@王小葱在路上</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3899240994132748" target="freeweibo-mirror">分享视频 http://t.cn/RyeIvC3 .</a>
 </h2>
@@ -48,7 +48,7 @@
 </h2>
 <p>SPAM //@举报反腐: //@诗行者阿里://@阿的一丁: 口袋罪//@王利中国:转发微博<br><br>RE: #亚蒙看法#【南都记者刘伟采访王林案被拘】有多少人想不明白？[疑问]<br><img src="http://ww2.sinaimg.cn/large/681521d1jw1ex4w3orro5j20ku0pawid.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3899221646631999" target="freeweibo-mirror">南都记者刘伟因所谓涉嫌非法获取国家秘密被江西匪警绑架。记者职…</a>
 </h2>
@@ -78,7 +78,7 @@
 </h2>
 <p>#亚蒙看法#【南都记者刘伟采访王林案被拘】有多少人想不明白？[疑问]<br><img src="http://ww2.sinaimg.cn/large/681521d1jw1ex4w3orro5j20ku0pawid.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3899114422947446" target="freeweibo-mirror">江西警方牛逼，但再牛逼也不能瞎整。你们要么把#记者刘伟#关着…</a>
 </h2>
