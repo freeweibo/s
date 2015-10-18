@@ -42,7 +42,7 @@
 </h2>
 <p>SPAM //@举报反腐: //@诗行者阿里://@阿的一丁: 口袋罪//@王利中国:转发微博<br><br>RE: #亚蒙看法#【南都记者刘伟采访王林案被拘】有多少人想不明白？[疑问]<br><img src="http://ww2.sinaimg.cn/large/681521d1jw1ex4w3orro5j20ku0pawid.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3899219213264363" target="freeweibo-mirror">//@作家东海:奴才是建立不起民主社会的。 //@王亚军北京…</a>
 </h2>
@@ -66,7 +66,7 @@
 </h2>
 <p>#亚蒙看法#【南都记者刘伟采访王林案被拘】有多少人想不明白？[疑问]<br><img src="http://ww2.sinaimg.cn/large/681521d1jw1ex4w3orro5j20ku0pawid.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3899114422947446" target="freeweibo-mirror">江西警方牛逼，但再牛逼也不能瞎整。你们要么把#记者刘伟#关着…</a>
 </h2>
