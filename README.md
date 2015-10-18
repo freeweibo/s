@@ -42,7 +42,7 @@
 </h2>
 <p>分享视频 http://t.cn/RyeIvC3 .</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3899235805968270" target="freeweibo-mirror">哇 //@尔康是会呼吸的痛://@withk不忘初心:m桃花…</a>
 </h2>
