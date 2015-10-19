@@ -30,7 +30,7 @@
 </h2>
 <p>贴一下这个畜生。。应该山东的。。看他在微信加拿大华人群里是怎么说毛主席的。。人肉，转起来。。@杨昭友昆仑松魂 @七点钟001 @锤镰子弟 @摄政王爷有话说 @___阉宰汉奸公知___ @打倒-汉奸卖国贼 @戴旭粉丝团 @GD东江纵队 @海疆在线 @南街村de人 @西征网<br><img src="http://ww1.sinaimg.cn/large/ca0ff7d8gw1ex5l4cicv6j20p018g0yq.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3899385853186612" target="freeweibo-mirror">SPAM 英国国歌歌词第二段：“起来，主！让她（指女王）的敌…</a>
 </h2>
