@@ -42,7 +42,7 @@
 </h2>
 <p>凉凉的秋天 需要一些温暖的事 比如和喜欢的人一起窝在沙发上看喜欢的电视吃喜欢的零食<br><img src="http://ww3.sinaimg.cn/large/005Ekyeqgw1ex6lqfftv2g30a405kx6p.gif"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3899763373876161" target="freeweibo-mirror">好些同輩在八十年代最後那一年成為了異議者。我則在08。川震與…</a>
 </h2>
@@ -90,7 +90,7 @@
 </h2>
 <p>//@陆伟民律师: 后来张东荪因没投他一票被整得家破人亡。 //@北疆观点:后来呢？</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3899709279808379" target="freeweibo-mirror">@司马南 没有移居美国，只是在做关于美国的电视节目，《司马白…</a>
 </h2>
