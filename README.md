@@ -60,7 +60,7 @@
 </h2>
 <p>卧槽右边说的话我一眨眼看还以为是信仰了奢侈品牌伊夫圣罗兰呢。。。//@WiseUncleWu-金陵吃货仁波切: //@StellaZhang200:不论那个民族的人信了YSL都跟ISIS一路货色，包括汉族。<br><br>RE: 叙利亚东突儿童训练营，一群来自中国的小白帽在学习使用武器。2015年5月，国家反恐局表示：约300名中国籍极端分子在叙利亚参战。<br><img src="http://ww3.sinaimg.cn/large/bd2ea8bbgw1ex6lpnycxxj20g4092aar.jpg"></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3899988092378265" target="freeweibo-mirror">孙神棍造谣，上帝要严惩这样的坏人！[吐]//@五行山下不出来…</a>
 </h2>
