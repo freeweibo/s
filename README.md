@@ -36,13 +36,19 @@
 </h2>
 <p>整理了一下大家最近求的比较多的资源，含《寄生兽》《里番》《东京食尸鬼》《中二病也要谈恋爱》《魔法少女小圆》《进击的巨人》《死亡笔记》《只要你说你爱我》《浪客剑心》电影 。转 发这条微博并私 信回复@樱花少女 “合集32”就能收到全部资源哦。<br><img src="http://ww4.sinaimg.cn/large/005IRmh8gw1ex7msx7lclj30jq0cbdiu.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3900077091488454" target="freeweibo-mirror">SPAM 王林“大师”果然神功盖世，收买得了民警，指挥得了南…</a>
 </h2>
 <p>SPAM 王林“大师”果然神功盖世，收买得了民警，指挥得了南方报系。<br><img src="http://ww1.sinaimg.cn/large/005SN2w3jw1ex7qs0qhsej30jc0sgwgw.jpg"></p>
 <p>
 	<small> ============== 5小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3900059932219159" target="freeweibo-mirror">才买了美国300架大飞机，又免了穷兄弟几百亿债务，接着抛给英…</a>
+</h2>
+<p>才买了美国300架大飞机，又免了穷兄弟几百亿债务，接着抛给英国300亿英镑大单，同时，国内正紧锣密鼓落实延迟退休。这盛世，如你所愿！</p>
+<p>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3900058866772309" target="freeweibo-mirror">刚在美国买完300架飞机，就被美国为首的TPP组织，拒绝了！…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3899900254748772" target="freeweibo-mirror">谣传新疆某地煤矿矿工遭到恐怖势力袭击砍杀，有数十人遇害。俺就…</a>
 </h2>
 <p>谣传新疆某地煤矿矿工遭到恐怖势力袭击砍杀，有数十人遇害。俺就想问一下，此类消息为何在内地媒体上禁止登载，也禁止网络讨论。难道中国老百姓比恐怖分子还可怕？为何文轩衙门里的老爷们喜欢当鸵鸟呢？让老百姓知道这种惨案完全可以促进全民反暴恐，你们到底怕什么呢，毛主席的群众路线学过么。<br><img src="http://ww1.sinaimg.cn/large/53ae0b70jw1ex76geng8rj20ov0t713h.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3899897709259824" target="freeweibo-mirror">“树不要皮，必死无疑；垬不要脸，天下无敌”  。//@真妮花…</a>
-</h2>
-<p>“树不要皮，必死无疑；垬不要脸，天下无敌”  。//@真妮花的心:一個國家官員面對世界在關于本國人民的人權問題上絲毫沒有流露半點關心，這就是這個國家人民的悲哀！ //@LZ廖总:就是，厚顏無恥 //@真妮花的心:這個叫人不要臉天下無敵 //@jlijames:绝对是机智啊，不服不行，连BBC都无话可说了啊。</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
