@@ -30,7 +30,7 @@
 </h2>
 <p>整理了一下大家最近求的比较多的资源，含《寄生兽》《里番》《东京食尸鬼》《中二病也要谈恋爱》《魔法少女小圆》《进击的巨人》《死亡笔记》《只要你说你爱我》《浪客剑心》电影 。转 发这条微博并私 信回复@樱花少女 “合集32”就能收到全部资源哦。<br><img src="http://ww4.sinaimg.cn/large/005IRmh8gw1ex7msx7lclj30jq0cbdiu.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3900058866772309" target="freeweibo-mirror">刚在美国买完300架飞机，就被美国为首的TPP组织，拒绝了！…</a>
 </h2>
