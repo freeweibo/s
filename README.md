@@ -96,7 +96,7 @@
 </h2>
 <p>6名中央委员 落马前曾在《人民日报》或《求是》上写过啥？法制晚报记者统计发现，在已经落马的7位中央委员中，找到了6位曾经在《人民日报》或《求是》上发表过的文章，那他们都说过啥呢？ http://t.cn/Rys70De<br><img src="http://ww2.sinaimg.cn/large/7e035fcbjw1ex79t3xfp6j208c08cq3v.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3899924192164798" target="freeweibo-mirror">//@科罗廖夫:昆明火车站世人皆知，全国都抓紧了反暴恐预防，…</a>
 </h2>
