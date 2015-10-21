@@ -72,7 +72,7 @@
 </h2>
 <p>SPAM 我爱你（东东枪）塞北的雪（let it go let it go）！<br><br>RE: 大英《每日邮报》为你国音乐事业操碎心[拜拜]<br><img src="http://ww3.sinaimg.cn/large/005PJ6Ekgw1ex8qnawmdtj30ir0xcjvz.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3900406394744291" target="freeweibo-mirror">SPAM 这…</a>
 </h2>
@@ -132,7 +132,7 @@
 </h2>
 <p>//@徐昕:是否真实？会不会因此被判死？ //@荣剑2001://@Ming_the_Great_大明:问题是，当年那么多受“非法之治”的受迫者不见身处庙堂之上的奚氏夫妇为之鸣冤叫屈，或从制度上修正弊端，轮到自己再叫就太晚了，也不管用了。<br><br>RE: 最高法院原副院长奚晓明夫人鸣冤叫屈，直指“非法之治”。<br><img src="http://ww2.sinaimg.cn/large/0068SFEdjw1ex8g7654gwj30f00qowiq.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3900317567139911" target="freeweibo-mirror">//@杨子评://@荣剑2001: 在转！//@Ming_t…</a>
 </h2>
