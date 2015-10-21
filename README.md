@@ -30,7 +30,7 @@
 </h2>
 <p>铭则<br><img src="http://ww1.sinaimg.cn/large/006eYqkBgw1ex97rhvovtj30z10sc0ww.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3900529141282064" target="freeweibo-mirror">SPAM [哈哈]//@深圳小天: 博主开门，我是京东快递</a>
 </h2>
@@ -42,7 +42,7 @@
 </h2>
 <p>三十年前。 女：跟我去英国吧。 男：我去英国后做什么？你养我？  女：就算在便利店打工也可以的。 男 : 我不给鬼佬打工。 女：要去英国还不给鬼佬打工，难道你还想让女王请你吃饭？ 男：好啊，女王请我吃饭我就去。 三十年后，2015年10月20日 女人接到一个电话：明天女王请我吃饭，你来不来？<br><img src="http://ww3.sinaimg.cn/large/53873621jw1ex9637hhxgj20c808wabc.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3900521839051808" target="freeweibo-mirror">SPAM 霸气侧漏！//@我的大几把岁了: 现已加入豪华表情…</a>
 </h2>
