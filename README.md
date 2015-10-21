@@ -24,7 +24,7 @@
 </h2>
 <p>SPAM 谁喊“习大大”，就体谅谁。我们要热情怜悯，谦卑虚己，正直诚实关爱习近平健康成长。我们当这样接话：wuli近平宝宝不完美、缺点多、工作差，虽自称人民好儿女却对我们这些当爹妈的缺乏孝敬爱心，但我们还是愿意爱他。我们做家长的也不完美、有责任，希望看到他早日悔改归正。来，我们为他祷告，乖孙。<br><img src="http://ww3.sinaimg.cn/large/9535c634gw1ex80n4ngfoj20m10brmxv.jpg"></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3900130224626658" target="freeweibo-mirror">SPAM 如此盛世，亘古未有吧？//@屈子赋: 回复@Ali…</a>
 </h2>
