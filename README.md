@@ -78,7 +78,7 @@
 </h2>
 <p>大英《每日邮报》为你国音乐事业操碎心[拜拜]<br><img src="http://ww3.sinaimg.cn/large/005PJ6Ekgw1ex8qnawmdtj30ir0xcjvz.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3900379059959081" target="freeweibo-mirror">//@赫云仙: 请看：特色社会主义性质？一，挂羊头卖狗肉；二…</a>
 </h2>
@@ -126,7 +126,7 @@
 </h2>
 <p>//@律师王兴:反腐是不是政治斗争，有没有选择性反腐，不是一句否认就能解决的，要靠透明化法治化，要脱离帮规思维。此外，别傻逼式的把大家的建言定性为有些人借此信攻击党的反腐事业，为腐败分子张目。//@毛立新:法治不立，人人自危，概莫能外！反腐不能</p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3900303323359549" target="freeweibo-mirror">薄倒三年多了，薄的所谓刑事责任成为全世界的笑柄。薄的所谓非组…</a>
 </h2>
