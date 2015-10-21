@@ -60,7 +60,7 @@
 </h2>
 <p>SPAM [哈哈][哈哈][哈哈][哈哈] //@VintageMuse:我爱你（东东枪）塞北的雪（let it go let it go）！<br><br>RE: 大英《每日邮报》为你国音乐事业操碎心[拜拜]<br><img src="http://ww3.sinaimg.cn/large/005PJ6Ekgw1ex8qnawmdtj30ir0xcjvz.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3900416981186529" target="freeweibo-mirror">SPAM 摇滚巨星！//@VintageMuse: 我爱你（…</a>
 </h2>
@@ -78,7 +78,7 @@
 </h2>
 <p>SPAM 这…<br><img src="http://ww2.sinaimg.cn/large/7c1d7ba8gw1ex8slivag9j20hs0frgnr.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3900398924548192" target="freeweibo-mirror">SPAM 如果有一天....我悄然离去...请把我埋在...…</a>
 </h2>
