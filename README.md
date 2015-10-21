@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3900477009569006" target="freeweibo-mirror">SPAM #习大大英国行# 这两天正好习大大访英，于是外国网…</a>
+</h2>
+<p>SPAM #习大大英国行# 这两天正好习大大访英，于是外国网友也开始google起了我们天朝的老大，其中有一个被谷歌最多的问题就是"How tall is Xi Jinping?"习大大有多高？这个问题也引起了BBC记者的无限好奇。。。于是产生了下面的推理。。。为了知道我们老大的身高，你们也真的是拼了[笑cry]<br><img src="http://ww2.sinaimg.cn/large/63a2e07cgw1ex90ozijsij20c82ewaj3.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3900442981408005" target="freeweibo-mirror">对老百姓来讲，更是没什么。</a>
 </h2>
 <p>对老百姓来讲，更是没什么。<br><br>RE: 【16年前也是举国热烈欢迎，没有啥特殊的】1999年10月19日，江ceo抵英进行国事访问，这是中国国家元首首次访问英国，具有重要意义，原因你懂得。英国女王伊丽莎白二世为江ceo举行盛大欢迎仪式，热烈欢迎中国国家主席的来访。按照惯例，江泽民在访问期间下榻白金汉宫，同时也有盛大国宴，一样乘坐马车。<br><img src="http://ww3.sinaimg.cn/large/53ae0b70jw1ex8wpimlfmj20m80gzwjf.jpg"></p>
@@ -66,7 +72,7 @@
 </h2>
 <p>SPAM 摇滚巨星！//@VintageMuse: 我爱你（东东枪）塞北的雪（let it go let it go）！<br><br>RE: 大英《每日邮报》为你国音乐事业操碎心[拜拜]<br><img src="http://ww3.sinaimg.cn/large/005PJ6Ekgw1ex8qnawmdtj30ir0xcjvz.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3900414963756397" target="freeweibo-mirror">SPAM 我爱你（东东枪）塞北的雪（let it go le…</a>
 </h2>
@@ -126,17 +132,11 @@
 </h2>
 <p>SPAM 大英帝国居然在公共厕所门口接待我天朝老大，该当何罪？！（点图放大，看厕所标志）[吃惊][怒]<br><img src="http://ww4.sinaimg.cn/large/53bb846fgw1ex8k7zozcmj20jz0dlwfv.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3900332062642206" target="freeweibo-mirror">//@徐昕:是否真实？会不会因此被判死？ //@荣剑2001…</a>
 </h2>
 <p>//@徐昕:是否真实？会不会因此被判死？ //@荣剑2001://@Ming_the_Great_大明:问题是，当年那么多受“非法之治”的受迫者不见身处庙堂之上的奚氏夫妇为之鸣冤叫屈，或从制度上修正弊端，轮到自己再叫就太晚了，也不管用了。<br><br>RE: 最高法院原副院长奚晓明夫人鸣冤叫屈，直指“非法之治”。<br><img src="http://ww2.sinaimg.cn/large/0068SFEdjw1ex8g7654gwj30f00qowiq.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3900317567139911" target="freeweibo-mirror">//@杨子评://@荣剑2001: 在转！//@Ming_t…</a>
-</h2>
-<p>//@杨子评://@荣剑2001: 在转！//@Ming_the_Great_大明:问题是，当年那么多受“非法之治”的受迫者不见身处庙堂之上的奚氏夫妇为之鸣冤叫屈，或从制度上修正弊端，轮到自己再叫就太晚了，也不管用了。<br><br>RE: 最高法院原副院长奚晓明夫人鸣冤叫屈，直指“非法之治”。<br><img src="http://ww2.sinaimg.cn/large/0068SFEdjw1ex8g7654gwj30f00qowiq.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
