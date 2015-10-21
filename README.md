@@ -102,7 +102,7 @@
 </h2>
 <p>大英《每日邮报》为你国音乐事业操碎心[拜拜]<br><img src="http://ww3.sinaimg.cn/large/005PJ6Ekgw1ex8qnawmdtj30ir0xcjvz.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3900379059959081" target="freeweibo-mirror">//@赫云仙: 请看：特色社会主义性质？一，挂羊头卖狗肉；二…</a>
 </h2>
