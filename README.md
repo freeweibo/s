@@ -26,6 +26,12 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3900538443389816" target="freeweibo-mirror">铭则</a>
+</h2>
+<p>铭则<br><img src="http://ww1.sinaimg.cn/large/006eYqkBgw1ex97rhvovtj30z10sc0ww.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3900529141282064" target="freeweibo-mirror">SPAM [哈哈]//@深圳小天: 博主开门，我是京东快递</a>
 </h2>
 <p>SPAM [哈哈]//@深圳小天: 博主开门，我是京东快递<br><br>RE: 三十年前。 女：跟我去英国吧。 男：我去英国后做什么？你养我？  女：就算在便利店打工也可以的。 男 : 我不给鬼佬打工。 女：要去英国还不给鬼佬打工，难道你还想让女王请你吃饭？ 男：好啊，女王请我吃饭我就去。 三十年后，2015年10月20日 女人接到一个电话：明天女王请我吃饭，你来不来？<br><img src="http://ww3.sinaimg.cn/large/53873621jw1ex9637hhxgj20c808wabc.jpg"></p>
@@ -60,19 +66,19 @@
 </h2>
 <p>对老百姓来讲，更是没什么。<br><br>RE: 【16年前也是举国热烈欢迎，没有啥特殊的】1999年10月19日，江ceo抵英进行国事访问，这是中国国家元首首次访问英国，具有重要意义，原因你懂得。英国女王伊丽莎白二世为江ceo举行盛大欢迎仪式，热烈欢迎中国国家主席的来访。按照惯例，江泽民在访问期间下榻白金汉宫，同时也有盛大国宴，一样乘坐马车。<br><img src="http://ww3.sinaimg.cn/large/53ae0b70jw1ex8wpimlfmj20m80gzwjf.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3900442347662273" target="freeweibo-mirror">【16年前也是举国热烈欢迎，没有啥特殊的】1999年10月1…</a>
 </h2>
 <p>【16年前也是举国热烈欢迎，没有啥特殊的】1999年10月19日，江ceo抵英进行国事访问，这是中国国家元首首次访问英国，具有重要意义，原因你懂得。英国女王伊丽莎白二世为江ceo举行盛大欢迎仪式，热烈欢迎中国国家主席的来访。按照惯例，江泽民在访问期间下榻白金汉宫，同时也有盛大国宴，一样乘坐马车。<br><img src="http://ww3.sinaimg.cn/large/53ae0b70jw1ex8wpimlfmj20m80gzwjf.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3900442255980784" target="freeweibo-mirror">SPAM 剧组演员U盘遗失，海量私图首曝光！！OMG。。。尺…</a>
 </h2>
 <p>SPAM 剧组演员U盘遗失，海量私图首曝光！！OMG。。。尺度不小啊！！@高校创意总部官微</p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3900437713096850" target="freeweibo-mirror">还有那济南庭审时现场播放的那段视频，大家谈起来至今都感觉匪夷…</a>
 </h2>
@@ -84,7 +90,7 @@
 </h2>
 <p>SPAM 英国国家很穷！人民富有</p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3900423024756431" target="freeweibo-mirror">SPAM OMG！Rockstar！！//@VintageM…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3900390032210113" target="freeweibo-mirror">大英《每日邮报》为你国音乐事业操碎心[拜拜]</a>
 </h2>
 <p>大英《每日邮报》为你国音乐事业操碎心[拜拜]<br><img src="http://ww3.sinaimg.cn/large/005PJ6Ekgw1ex8qnawmdtj30ir0xcjvz.jpg"></p>
-<p>
-	<small> ============== 12小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3900379059959081" target="freeweibo-mirror">//@赫云仙: 请看：特色社会主义性质？一，挂羊头卖狗肉；二…</a>
-</h2>
-<p>//@赫云仙: 请看：特色社会主义性质？一，挂羊头卖狗肉；二，向美帝国主义搞无原则的妥协退让，搞和平共处；三，诋毁毛式社会主义，把社会主义说成垃圾，目的推行新自由主义，什么自由化什么市场化什么私有化；四，嘴里说为人民服务，实际收回了人民福利，把人民变成穷人。五，助长资产阶级自由化壮大<br><br>RE: 【权钱交易？权色交易？权贵资本主义？中国修正主义？特色社会主义？】<br><img src="http://ww2.sinaimg.cn/large/54611fd5jw1ex8npoyky6j20c86oxhdt.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
