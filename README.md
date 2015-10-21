@@ -108,19 +108,19 @@
 </h2>
 <p>//@赫云仙: 请看：特色社会主义性质？一，挂羊头卖狗肉；二，向美帝国主义搞无原则的妥协退让，搞和平共处；三，诋毁毛式社会主义，把社会主义说成垃圾，目的推行新自由主义，什么自由化什么市场化什么私有化；四，嘴里说为人民服务，实际收回了人民福利，把人民变成穷人。五，助长资产阶级自由化壮大<br><br>RE: 【权钱交易？权色交易？权贵资本主义？中国修正主义？特色社会主义？】<br><img src="http://ww2.sinaimg.cn/large/54611fd5jw1ex8npoyky6j20c86oxhdt.jpg"></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3900363893163150" target="freeweibo-mirror">【权钱交易？权色交易？权贵资本主义？中国修正主义？特色社会主…</a>
 </h2>
 <p>【权钱交易？权色交易？权贵资本主义？中国修正主义？特色社会主义？】<br><img src="http://ww2.sinaimg.cn/large/54611fd5jw1ex8npoyky6j20c86oxhdt.jpg"></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3900363579313477" target="freeweibo-mirror">SPAM 搞混了，李雪主或算rock团。 //@鹰隼N1A晏…</a>
 </h2>
 <p>SPAM 搞混了，李雪主或算rock团。 //@鹰隼N1A晏欢:崔健团队的？[偷笑]//@头发颇浓密: //@凯雷: soprano</p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3900335112669118" target="freeweibo-mirror">//@路更强1://@杨玉圣:就人品而论，与不厚妻书面作证相…</a>
 </h2>
