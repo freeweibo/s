@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3900379059959081" target="freeweibo-mirror">//@赫云仙: 请看：特色社会主义性质？一，挂羊头卖狗肉；二…</a>
+</h2>
+<p>//@赫云仙: 请看：特色社会主义性质？一，挂羊头卖狗肉；二，向美帝国主义搞无原则的妥协退让，搞和平共处；三，诋毁毛式社会主义，把社会主义说成垃圾，目的推行新自由主义，什么自由化什么市场化什么私有化；四，嘴里说为人民服务，实际收回了人民福利，把人民变成穷人。五，助长资产阶级自由化壮大<br><br>RE: 【权钱交易？权色交易？权贵资本主义？中国修正主义？特色社会主义？】<br><img src="http://ww2.sinaimg.cn/large/54611fd5jw1ex8npoyky6j20c86oxhdt.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3900363579313477" target="freeweibo-mirror">SPAM 搞混了，李雪主或算rock团。 //@鹰隼N1A晏…</a>
 </h2>
 <p>SPAM 搞混了，李雪主或算rock团。 //@鹰隼N1A晏欢:崔健团队的？[偷笑]//@头发颇浓密: //@凯雷: soprano</p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3900077091488454" target="freeweibo-mirror">SPAM 王林“大师”果然神功盖世，收买得了民警，指挥得了南…</a>
 </h2>
 <p>SPAM 王林“大师”果然神功盖世，收买得了民警，指挥得了南方报系。<br><img src="http://ww1.sinaimg.cn/large/005SN2w3jw1ex7qs0qhsej30jc0sgwgw.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3900059932219159" target="freeweibo-mirror">才买了美国300架大飞机，又免了穷兄弟几百亿债务，接着抛给英…</a>
-</h2>
-<p>才买了美国300架大飞机，又免了穷兄弟几百亿债务，接着抛给英国300亿英镑大单，同时，国内正紧锣密鼓落实延迟退休。这盛世，如你所愿！</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
