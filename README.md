@@ -114,7 +114,7 @@
 </h2>
 <p>SPAM 我爱你（东东枪）塞北的雪（let it go let it go）！<br><br>RE: 大英《每日邮报》为你国音乐事业操碎心[拜拜]<br><img src="http://ww3.sinaimg.cn/large/005PJ6Ekgw1ex8qnawmdtj30ir0xcjvz.jpg"></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3900406394744291" target="freeweibo-mirror">SPAM 这…</a>
 </h2>
@@ -132,7 +132,7 @@
 </h2>
 <p>彭丽媛被英媒描述成前摇滚歌手 @耳帝<br><img src="http://ww2.sinaimg.cn/large/4a51fd89gw1ex8qxq2wg0j20c80lqgms.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3900390032210113" target="freeweibo-mirror">大英《每日邮报》为你国音乐事业操碎心[拜拜]</a>
 </h2>
