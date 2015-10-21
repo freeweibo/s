@@ -30,7 +30,7 @@
 </h2>
 <p>三十年前。 女：跟我去英国吧。 男：我去英国后做什么？你养我？  女：就算在便利店打工也可以的。 男 : 我不给鬼佬打工。 女：要去英国还不给鬼佬打工，难道你还想让女王请你吃饭？ 男：好啊，女王请我吃饭我就去。 三十年后，2015年10月20日 女人接到一个电话：明天女王请我吃饭，你来不来？<br><img src="http://ww3.sinaimg.cn/large/53873621jw1ex9637hhxgj20c808wabc.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3900521839051808" target="freeweibo-mirror">SPAM 霸气侧漏！//@我的大几把岁了: 现已加入豪华表情…</a>
 </h2>
@@ -96,7 +96,7 @@
 </h2>
 <p>SPAM 摇滚巨星！//@VintageMuse: 我爱你（东东枪）塞北的雪（let it go let it go）！<br><br>RE: 大英《每日邮报》为你国音乐事业操碎心[拜拜]<br><img src="http://ww3.sinaimg.cn/large/005PJ6Ekgw1ex8qnawmdtj30ir0xcjvz.jpg"></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3900414963756397" target="freeweibo-mirror">SPAM 我爱你（东东枪）塞北的雪（let it go le…</a>
 </h2>
