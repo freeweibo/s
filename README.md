@@ -90,7 +90,7 @@
 </h2>
 <p>SPAM 英国国家很穷！人民富有</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3900423024756431" target="freeweibo-mirror">SPAM OMG！Rockstar！！//@VintageM…</a>
 </h2>
