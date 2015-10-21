@@ -30,19 +30,19 @@
 </h2>
 <p>//@赫云仙: 请看：特色社会主义性质？一，挂羊头卖狗肉；二，向美帝国主义搞无原则的妥协退让，搞和平共处；三，诋毁毛式社会主义，把社会主义说成垃圾，目的推行新自由主义，什么自由化什么市场化什么私有化；四，嘴里说为人民服务，实际收回了人民福利，把人民变成穷人。五，助长资产阶级自由化壮大<br><br>RE: 【权钱交易？权色交易？权贵资本主义？中国修正主义？特色社会主义？】<br><img src="http://ww2.sinaimg.cn/large/54611fd5jw1ex8npoyky6j20c86oxhdt.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3900363893163150" target="freeweibo-mirror">【权钱交易？权色交易？权贵资本主义？中国修正主义？特色社会主…</a>
 </h2>
 <p>【权钱交易？权色交易？权贵资本主义？中国修正主义？特色社会主义？】<br><img src="http://ww2.sinaimg.cn/large/54611fd5jw1ex8npoyky6j20c86oxhdt.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3900363579313477" target="freeweibo-mirror">SPAM 搞混了，李雪主或算rock团。 //@鹰隼N1A晏…</a>
 </h2>
 <p>SPAM 搞混了，李雪主或算rock团。 //@鹰隼N1A晏欢:崔健团队的？[偷笑]//@头发颇浓密: //@凯雷: soprano</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3900335112669118" target="freeweibo-mirror">//@路更强1://@杨玉圣:就人品而论，与不厚妻书面作证相…</a>
 </h2>
@@ -54,7 +54,7 @@
 </h2>
 <p>SPAM 大英帝国居然在公共厕所门口接待我天朝老大，该当何罪？！（点图放大，看厕所标志）[吃惊][怒]<br><img src="http://ww4.sinaimg.cn/large/53bb846fgw1ex8k7zozcmj20jz0dlwfv.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3900332062642206" target="freeweibo-mirror">//@徐昕:是否真实？会不会因此被判死？ //@荣剑2001…</a>
 </h2>
@@ -66,7 +66,7 @@
 </h2>
 <p>//@杨子评://@荣剑2001: 在转！//@Ming_the_Great_大明:问题是，当年那么多受“非法之治”的受迫者不见身处庙堂之上的奚氏夫妇为之鸣冤叫屈，或从制度上修正弊端，轮到自己再叫就太晚了，也不管用了。<br><br>RE: 最高法院原副院长奚晓明夫人鸣冤叫屈，直指“非法之治”。<br><img src="http://ww2.sinaimg.cn/large/0068SFEdjw1ex8g7654gwj30f00qowiq.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3900314169685444" target="freeweibo-mirror">//@律师王兴:反腐是不是政治斗争，有没有选择性反腐，不是一…</a>
 </h2>
@@ -78,19 +78,19 @@
 </h2>
 <p>SPAM 没提 鸦片战争[挖鼻]</p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3900303105545511" target="freeweibo-mirror">博主的战后条约磋商经验丰富啊！//@李继锋:转发微博</a>
 </h2>
 <p>博主的战后条约磋商经验丰富啊！//@李继锋:转发微博<br><br>RE: 英国佬不够意思啊，摆个破沙发，弄几个破门粘一块，挡在厕所门口，就敢接见从天朝上国前来视察的习大。宣战吧，我觉着《伦敦条约》里可以割让直布罗陀，海关交中方监管，在英华商享受治外法权。<br><img src="http://ww2.sinaimg.cn/large/53ae0b70jw1ex811h404hj20mk0g3wi9.jpg"></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3900303050985838" target="freeweibo-mirror">司法独立，已经到了火烧眉毛的时候了。</a>
 </h2>
 <p>司法独立，已经到了火烧眉毛的时候了。</p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3900298475337556" target="freeweibo-mirror">最高法院原副院长奚晓明夫人鸣冤叫屈，直指“非法之治”。</a>
 </h2>
