@@ -84,7 +84,7 @@
 </h2>
 <p>SPAM 如果有一天....我悄然离去...请把我埋在...这希望的田野上....<br><br>RE: 彭丽媛被英媒描述成前摇滚歌手 @耳帝<br><img src="http://ww2.sinaimg.cn/large/4a51fd89gw1ex8qxq2wg0j20c80lqgms.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3900391983052113" target="freeweibo-mirror">彭丽媛被英媒描述成前摇滚歌手 @耳帝</a>
 </h2>
