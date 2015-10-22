@@ -24,7 +24,7 @@
 </h2>
 <p>SPAM 别让化妆师跑了！<br><br>RE: 恁麻在英果出现了化妆事故<br><img src="http://ww1.sinaimg.cn/large/006eYqkBgw1ex9mitukkdj30d20ihjtb.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3900685534027459" target="freeweibo-mirror">//@文山娃:為黨操碎了心。[悲伤] http://t.cn…</a>
 </h2>
