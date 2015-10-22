@@ -126,7 +126,7 @@
 </h2>
 <p>【鲁迅说过：】做奴隶虽然不幸，但并不可怕，因为知道挣扎，毕竟还有挣脱的希望；若是从奴隶生活中寻出美来，赞叹、陶醉，就是万劫不复的奴才了！#微博时评#<br><img src="http://ww3.sinaimg.cn/large/42412704jw1ex9ly2gsg3j208s0cgwey.jpg"></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3900670090296257" target="freeweibo-mirror">呵呵 [good]</a>
 </h2>
