@@ -24,7 +24,7 @@
 </h2>
 <p>SPAM 维尼熊~[偷笑]<br><br>RE: [哈哈]</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3900634438605337" target="freeweibo-mirror">SPAM 父亲周年祭文；山川萧瑟，秋雨垂泪。牟氏祖赤帝祝融，…</a>
 </h2>
