@@ -66,7 +66,7 @@
 </h2>
 <p>还活着么？ //@就是衣山尽:原PO做大死……//@小江南009: [哈哈]//@周祯尧: 转发微博<br><br>RE: 我分享了@-红色猎隼- 的文章 http://t.cn/RUPxJih</p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3900722183942119" target="freeweibo-mirror">哈哈哈哈哈哈 //@触手蜀黍:哈哈哈哈 //@一蚊丁:右边说…</a>
 </h2>
@@ -90,7 +90,7 @@
 </h2>
 <p>化妝師完蛋了！<br><img src="http://ww1.sinaimg.cn/large/8856a58egw1ex9q43qg5cj20d20ihabn.jpg"></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3900688314538029" target="freeweibo-mirror">我分享了@-红色猎隼- 的文章 http://t.cn/RU…</a>
 </h2>
