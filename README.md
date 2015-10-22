@@ -48,7 +48,7 @@
 </h2>
 <p>SPAM 【人大教授包政：“有电无商”不是好电商！（值得深思）】新型电商，不应该是简单地圈顾客，而是把传统大叔中的赢家及其赢的道理或称经营范式，移植到互联网及其IT系统中去，用互联网的特点来玩赢家的范式。 http://t.cn/RU7nIuM</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3900865121759079" target="freeweibo-mirror">期待</a>
 </h2>
