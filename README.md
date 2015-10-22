@@ -26,6 +26,12 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3900825971545349" target="freeweibo-mirror">SPAM //@迷与悟-AvB:宁赠友邦,不予家奴——皇帝梦…</a>
+</h2>
+<p>SPAM //@迷与悟-AvB:宁赠友邦,不予家奴——皇帝梦。<br><br>RE: 中国有句俗语：“不知者不怪”！<br><img src="http://ww4.sinaimg.cn/large/e415f869gw1ex9rxu31bgj20du0a30tg.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3900810502910949" target="freeweibo-mirror">SPAM //@王亚东521:都怨胡德华，非说“他就没读过什…</a>
 </h2>
 <p>SPAM //@王亚东521:都怨胡德华，非说“他就没读过什么书！”[哈哈][哈哈][哈哈]<br><br>RE: 刚才看到一个新段子差点没把我笑死：全球最全的图书馆在哪儿？答案：陕北梁家河村大队借阅室！[笑cry][笑cry][笑cry]<br><img src="http://ww2.sinaimg.cn/large/75c66d3bjw1ex9zqh6pr5j20c809vmyi.jpg"></p>
@@ -78,7 +84,7 @@
 </h2>
 <p>安利朋友的我 和 被我安利下的朋友<br><img src="http://ww3.sinaimg.cn/large/7085f3c4jw1ex9rscuezkj20hs0bv0ui.jpg"></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3900715154231777" target="freeweibo-mirror">@中国日报 刚刚英国皇室推特账号发布了一条来自女王伊丽莎白的…</a>
 </h2>
@@ -102,7 +108,7 @@
 </h2>
 <p>SPAM 别让化妆师跑了！<br><br>RE: 恁麻在英果出现了化妆事故<br><img src="http://ww1.sinaimg.cn/large/006eYqkBgw1ex9mitukkdj30d20ihjtb.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3900685534027459" target="freeweibo-mirror">//@文山娃:為黨操碎了心。[悲伤] http://t.cn…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3900684066166760" target="freeweibo-mirror">这可不能追加处分：开除党籍。</a>
 </h2>
 <p>这可不能追加处分：开除党籍。<br><br>RE: 中共党史上最重大的一次“妄议大政方针”应该是遵义会议吧？毛找王稼祥私下妄议，会上公开反对党的既定路线和一把手。改开之初反对“两个凡是”其实也是“妄议”。<br><img src="http://ww1.sinaimg.cn/large/61fcc2a9jw1ex9mqalcpmj20fb0d3q4v.jpg"></p>
-<p>
-	<small> ============== 12小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3900682048064501" target="freeweibo-mirror">【鲁迅说过：】做奴隶虽然不幸，但并不可怕，因为知道挣扎，毕竟…</a>
-</h2>
-<p>【鲁迅说过：】做奴隶虽然不幸，但并不可怕，因为知道挣扎，毕竟还有挣脱的希望；若是从奴隶生活中寻出美来，赞叹、陶醉，就是万劫不复的奴才了！#微博时评#<br><img src="http://ww3.sinaimg.cn/large/42412704jw1ex9ly2gsg3j208s0cgwey.jpg"></p>
 <p>
 	<small> ============== 12小时前</small>
 </p>
