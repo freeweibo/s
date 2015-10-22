@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3900929499300652" target="freeweibo-mirror">习总太客气了，我们保证不妄议朝政。。//@徐战前: 习总客气…</a>
+</h2>
+<p>习总太客气了，我们保证不妄议朝政。。//@徐战前: 习总客气！所在国人民怎么发言？最大的发言权还是在你那里嘛。</p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3900916786650557" target="freeweibo-mirror">//@benben马甲://@蓦然回首时评微博:转发微博</a>
 </h2>
 <p>//@benben马甲://@蓦然回首时评微博:转发微博</p>
@@ -133,12 +139,6 @@
 <p>SPAM //@绍兴师爷在北京: 转发微博<br><br>RE: 【鲁迅说过：】做奴隶虽然不幸，但并不可怕，因为知道挣扎，毕竟还有挣脱的希望；若是从奴隶生活中寻出美来，赞叹、陶醉，就是万劫不复的奴才了！#微博时评#<br><img src="http://ww3.sinaimg.cn/large/42412704jw1ex9ly2gsg3j208s0cgwey.jpg"></p>
 <p>
 	<small> ============== 11小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3900796578067847" target="freeweibo-mirror">SPAM 你们猜对了几个？[偷笑][偷笑][偷笑]</a>
-</h2>
-<p>SPAM 你们猜对了几个？[偷笑][偷笑][偷笑]<br><img src="http://ww3.sinaimg.cn/large/756ed4dfgw1exa1dxqd6uj20ku11277i.jpg"></p>
-<p>
-	<small> ============== 12小时前</small>
 </p>
 <table>
     <tr>
