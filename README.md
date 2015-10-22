@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3900715154231777" target="freeweibo-mirror">@中国日报 刚刚英国皇室推特账号发布了一条来自女王伊丽莎白的…</a>
+</h2>
+<p>@中国日报 刚刚英国皇室推特账号发布了一条来自女王伊丽莎白的消息：”（习近平主席的来访）让我回忆起了三十年前菲利普亲王和我愉快的访华之旅。“ （中国日报 庹燕南）<br><img src="http://ww1.sinaimg.cn/large/55004ab7jw1ex9s2381jlj20c80c9q4e.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3900686246560257" target="freeweibo-mirror">SPAM 别让化妆师跑了！</a>
 </h2>
 <p>SPAM 别让化妆师跑了！<br><br>RE: 恁麻在英果出现了化妆事故<br><img src="http://ww1.sinaimg.cn/large/006eYqkBgw1ex9mitukkdj30d20ihjtb.jpg"></p>
@@ -78,7 +84,7 @@
 </h2>
 <p>SPAM 今日最佳段子: 伊丽莎白女王要听英国首相关于习近平访问的汇报[微笑][微笑][酷]，于是卡梅伦去见女王：----“老佛爷，洋人要来给我们修铁路。”[挤眼]</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3900646576752437" target="freeweibo-mirror">SPAM [嘻嘻][赞]</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3900477009569006" target="freeweibo-mirror">SPAM #习大大英国行# 这两天正好习大大访英，于是外国网…</a>
 </h2>
 <p>SPAM #习大大英国行# 这两天正好习大大访英，于是外国网友也开始google起了我们天朝的老大，其中有一个被谷歌最多的问题就是"How tall is Xi Jinping?"习大大有多高？这个问题也引起了BBC记者的无限好奇。。。于是产生了下面的推理。。。为了知道我们老大的身高，你们也真的是拼了[笑cry]<br><img src="http://ww2.sinaimg.cn/large/63a2e07cgw1ex90ozijsij20c82ewaj3.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3900456013229826" target="freeweibo-mirror">【欢迎习总来英】成千上万的支持者在林荫道（The Mall）…</a>
-</h2>
-<p>【欢迎习总来英】成千上万的支持者在林荫道（The Mall）上夹道欢迎习主席，把XX功、藏独等示威者淹没在了一片红海之中！</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
