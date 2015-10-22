@@ -38,6 +38,12 @@
 <p>
 	<small> ============== 1小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3900684066166760" target="freeweibo-mirror">这可不能追加处分：开除党籍。</a>
+</h2>
+<p>这可不能追加处分：开除党籍。<br><br>RE: 中共党史上最重大的一次“妄议大政方针”应该是遵义会议吧？毛找王稼祥私下妄议，会上公开反对党的既定路线和一把手。改开之初反对“两个凡是”其实也是“妄议”。<br><img src="http://ww1.sinaimg.cn/large/61fcc2a9jw1ex9mqalcpmj20fb0d3q4v.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3900669050155722" target="freeweibo-mirror">中共党史上最重大的一次“妄议大政方针”应该是遵义会议吧？毛找…</a>
 </h2>
 <p>中共党史上最重大的一次“妄议大政方针”应该是遵义会议吧？毛找王稼祥私下妄议，会上公开反对党的既定路线和一把手。改开之初反对“两个凡是”其实也是“妄议”。<br><img src="http://ww1.sinaimg.cn/large/61fcc2a9jw1ex9mqalcpmj20fb0d3q4v.jpg"></p>
@@ -48,7 +54,19 @@
 </h2>
 <p>SPAM 维尼熊~[偷笑]<br><br>RE: [哈哈]</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3900665136916736" target="freeweibo-mirror">SPAM 今日最佳段子: 伊丽莎白女王要听英国首相关于习近平…</a>
+</h2>
+<p>SPAM 今日最佳段子: 伊丽莎白女王要听英国首相关于习近平访问的汇报[微笑][微笑][酷]，于是卡梅伦去见女王：----“老佛爷，洋人要来给我们修铁路。”[挤眼]</p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3900646576752437" target="freeweibo-mirror">SPAM [嘻嘻][赞]</a>
+</h2>
+<p>SPAM [嘻嘻][赞]<br><br>RE: 【欢迎习总来英】成千上万的支持者在林荫道（The Mall）上夹道欢迎习主席，把XX功、藏独等示威者淹没在了一片红海之中！</p>
+<p>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3900634438605337" target="freeweibo-mirror">SPAM 父亲周年祭文；山川萧瑟，秋雨垂泪。牟氏祖赤帝祝融，…</a>
 </h2>
@@ -119,24 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3900437713096850" target="freeweibo-mirror">还有那济南庭审时现场播放的那段视频，大家谈起来至今都感觉匪夷…</a>
 </h2>
 <p>还有那济南庭审时现场播放的那段视频，大家谈起来至今都感觉匪夷所思！！[思考][疑问]//@麻辣聊斋-武侯坡18: 热门 雕远凸集团只会按照莫须有的路数办事，不会按章程出牌，不要幻想了<br><br>RE: 薄倒三年多了，薄的所谓刑事责任成为全世界的笑柄。薄的所谓非组织政治活动到现在讳莫如深！有证据，拿出来让大家看嘛！怕群众的看法跟你不一样？害怕群众，就不配做共产党的领导人，就不配做社会主义中国的领导人！</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3900427973952688" target="freeweibo-mirror">SPAM 英国国家很穷！人民富有</a>
-</h2>
-<p>SPAM 英国国家很穷！人民富有</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3900423024756431" target="freeweibo-mirror">SPAM OMG！Rockstar！！//@VintageM…</a>
-</h2>
-<p>SPAM OMG！Rockstar！！//@VintageMuse: 我爱你（东东枪）塞北的雪（let it go let it go）！<br><br>RE: 大英《每日邮报》为你国音乐事业操碎心[拜拜]<br><img src="http://ww3.sinaimg.cn/large/005PJ6Ekgw1ex8qnawmdtj30ir0xcjvz.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3900420843851536" target="freeweibo-mirror">SPAM [哈哈][哈哈][哈哈][哈哈] //@Vinta…</a>
-</h2>
-<p>SPAM [哈哈][哈哈][哈哈][哈哈] //@VintageMuse:我爱你（东东枪）塞北的雪（let it go let it go）！<br><br>RE: 大英《每日邮报》为你国音乐事业操碎心[拜拜]<br><img src="http://ww3.sinaimg.cn/large/005PJ6Ekgw1ex8qnawmdtj30ir0xcjvz.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
