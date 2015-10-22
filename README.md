@@ -32,6 +32,12 @@
 <p>
 	<small> ============== 1小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3900684417909234" target="freeweibo-mirror">回复@王武帝1978:口头讲的是民主，实际实行的是专制。 /…</a>
+</h2>
+<p>回复@王武帝1978:口头讲的是民主，实际实行的是专制。 //@王武帝1978:事实上，是这样，被人证之后上台，会疯狂的整别人，如此循环，更加疯狂。 //@文巛666-2:反对就成了妄议，等自己上台了，对反对派的打击更加严厉，即使人民遭受大灾难也不改初衷，你真以为你是大救星吗？<br><br>RE: 中共党史上最重大的一次“妄议大政方针”应该是遵义会议吧？毛找王稼祥私下妄议，会上公开反对党的既定路线和一把手。改开之初反对“两个凡是”其实也是“妄议”。<br><img src="http://ww1.sinaimg.cn/large/61fcc2a9jw1ex9mqalcpmj20fb0d3q4v.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3900669050155722" target="freeweibo-mirror">中共党史上最重大的一次“妄议大政方针”应该是遵义会议吧？毛找…</a>
 </h2>
 <p>中共党史上最重大的一次“妄议大政方针”应该是遵义会议吧？毛找王稼祥私下妄议，会上公开反对党的既定路线和一把手。改开之初反对“两个凡是”其实也是“妄议”。<br><img src="http://ww1.sinaimg.cn/large/61fcc2a9jw1ex9mqalcpmj20fb0d3q4v.jpg"></p>
@@ -66,7 +72,7 @@
 </h2>
 <p>SPAM [哈哈]//@深圳小天: 博主开门，我是京东快递<br><br>RE: 三十年前。 女：跟我去英国吧。 男：我去英国后做什么？你养我？  女：就算在便利店打工也可以的。 男 : 我不给鬼佬打工。 女：要去英国还不给鬼佬打工，难道你还想让女王请你吃饭？ 男：好啊，女王请我吃饭我就去。 三十年后，2015年10月20日 女人接到一个电话：明天女王请我吃饭，你来不来？<br><img src="http://ww3.sinaimg.cn/large/53873621jw1ex9637hhxgj20c808wabc.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3900523864768121" target="freeweibo-mirror">三十年前。 女：跟我去英国吧。 男：我去英国后做什么？你养我…</a>
 </h2>
@@ -78,7 +84,7 @@
 </h2>
 <p>SPAM 霸气侧漏！//@我的大几把岁了: 现已加入豪华表情包 o(^▽^)o //@辣条娘:颤抖的转发（。 //@黄濑濑濑濑:哈哈哈哈哈哈哈哈哈哈哈 转需！ //@陛下-这是今天的萌图:最后一张哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈 //@點到為止:哈哈哈哈哈，魔性<br><br>RE: 做了一组大大表情包。。。（纯属好玩，不是黑）转需[亲亲]<br><img src="http://ww3.sinaimg.cn/large/8edc8053gw1ex95irgr10j20sh0sgaej.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3900519091327637" target="freeweibo-mirror">做了一组大大表情包。。。（纯属好玩，不是黑）转需[亲亲]</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3900420843851536" target="freeweibo-mirror">SPAM [哈哈][哈哈][哈哈][哈哈] //@Vinta…</a>
 </h2>
 <p>SPAM [哈哈][哈哈][哈哈][哈哈] //@VintageMuse:我爱你（东东枪）塞北的雪（let it go let it go）！<br><br>RE: 大英《每日邮报》为你国音乐事业操碎心[拜拜]<br><img src="http://ww3.sinaimg.cn/large/005PJ6Ekgw1ex8qnawmdtj30ir0xcjvz.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3900416981186529" target="freeweibo-mirror">SPAM 摇滚巨星！//@VintageMuse: 我爱你（…</a>
-</h2>
-<p>SPAM 摇滚巨星！//@VintageMuse: 我爱你（东东枪）塞北的雪（let it go let it go）！<br><br>RE: 大英《每日邮报》为你国音乐事业操碎心[拜拜]<br><img src="http://ww3.sinaimg.cn/large/005PJ6Ekgw1ex8qnawmdtj30ir0xcjvz.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
