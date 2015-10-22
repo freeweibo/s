@@ -36,7 +36,7 @@
 </h2>
 <p>SPAM 庆生的<br><br>RE: 铭则<br><img src="http://ww1.sinaimg.cn/large/006eYqkBgw1ex97rhvovtj30z10sc0ww.jpg"></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3900538443389816" target="freeweibo-mirror">铭则</a>
 </h2>
