@@ -30,7 +30,7 @@
 </h2>
 <p>SPAM //@迷与悟-AvB:宁赠友邦,不予家奴——皇帝梦。<br><br>RE: 中国有句俗语：“不知者不怪”！<br><img src="http://ww4.sinaimg.cn/large/e415f869gw1ex9rxu31bgj20du0a30tg.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3900819583301954" target="freeweibo-mirror">SPAM //@曾家山-居士:幸福来得太突然了。</a>
 </h2>
@@ -44,6 +44,12 @@
 <p>
 	<small> ============== 4小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3900810263942637" target="freeweibo-mirror">今天报纸这大标题看着有点意思[偷笑]</a>
+</h2>
+<p>今天报纸这大标题看着有点意思[偷笑]<br><img src="http://ww4.sinaimg.cn/large/3cb04232jw1exa2zcz7emj218g0p045m.jpg"></p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3900805226250678" target="freeweibo-mirror">SPAM //@绍兴师爷在北京: 转发微博</a>
 </h2>
 <p>SPAM //@绍兴师爷在北京: 转发微博<br><br>RE: 【鲁迅说过：】做奴隶虽然不幸，但并不可怕，因为知道挣扎，毕竟还有挣脱的希望；若是从奴隶生活中寻出美来，赞叹、陶醉，就是万劫不复的奴才了！#微博时评#<br><img src="http://ww3.sinaimg.cn/large/42412704jw1ex9ly2gsg3j208s0cgwey.jpg"></p>
@@ -54,7 +60,7 @@
 </h2>
 <p>SPAM 你们猜对了几个？[偷笑][偷笑][偷笑]<br><img src="http://ww3.sinaimg.cn/large/756ed4dfgw1exa1dxqd6uj20ku11277i.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3900780291268012" target="freeweibo-mirror">SPAM #要快感，更需要安全感#天了噜，现在竟然能0佣金包…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3900685428789130" target="freeweibo-mirror">//@周泽律师:这可不能追加处分：开除党籍。</a>
 </h2>
 <p>//@周泽律师:这可不能追加处分：开除党籍。<br><br>RE: 中共党史上最重大的一次“妄议大政方针”应该是遵义会议吧？毛找王稼祥私下妄议，会上公开反对党的既定路线和一把手。改开之初反对“两个凡是”其实也是“妄议”。<br><img src="http://ww1.sinaimg.cn/large/61fcc2a9jw1ex9mqalcpmj20fb0d3q4v.jpg"></p>
-<p>
-	<small> ============== 12小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3900684858698557" target="freeweibo-mirror">SPAM #张根硕2015 JKS LIVE IN SHAN…</a>
-</h2>
-<p>SPAM #张根硕2015 JKS LIVE IN SHANGHAI#个人演唱会将于10月24日在上海国际体操中心举行，相信很多粉丝已经等不及了，还有3天，3天，赶紧调整一下激动的心情吧！<br><img src="http://ww4.sinaimg.cn/large/9a448e76jw1ex9nhw1sh2j20f00l70wk.jpg"></p>
 <p>
 	<small> ============== 12小时前</small>
 </p>
