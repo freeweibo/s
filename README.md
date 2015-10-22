@@ -102,19 +102,19 @@
 </h2>
 <p>SPAM #张根硕2015 JKS LIVE IN SHANGHAI#个人演唱会将于10月24日在上海国际体操中心举行，相信很多粉丝已经等不及了，还有3天，3天，赶紧调整一下激动的心情吧！<br><img src="http://ww4.sinaimg.cn/large/9a448e76jw1ex9nhw1sh2j20f00l70wk.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3900684417909234" target="freeweibo-mirror">回复@王武帝1978:口头讲的是民主，实际实行的是专制。 /…</a>
 </h2>
 <p>回复@王武帝1978:口头讲的是民主，实际实行的是专制。 //@王武帝1978:事实上，是这样，被人证之后上台，会疯狂的整别人，如此循环，更加疯狂。 //@文巛666-2:反对就成了妄议，等自己上台了，对反对派的打击更加严厉，即使人民遭受大灾难也不改初衷，你真以为你是大救星吗？<br><br>RE: 中共党史上最重大的一次“妄议大政方针”应该是遵义会议吧？毛找王稼祥私下妄议，会上公开反对党的既定路线和一把手。改开之初反对“两个凡是”其实也是“妄议”。<br><img src="http://ww1.sinaimg.cn/large/61fcc2a9jw1ex9mqalcpmj20fb0d3q4v.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3900684066166760" target="freeweibo-mirror">这可不能追加处分：开除党籍。</a>
 </h2>
 <p>这可不能追加处分：开除党籍。<br><br>RE: 中共党史上最重大的一次“妄议大政方针”应该是遵义会议吧？毛找王稼祥私下妄议，会上公开反对党的既定路线和一把手。改开之初反对“两个凡是”其实也是“妄议”。<br><img src="http://ww1.sinaimg.cn/large/61fcc2a9jw1ex9mqalcpmj20fb0d3q4v.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3900670090296257" target="freeweibo-mirror">呵呵 [good]</a>
 </h2>
@@ -126,7 +126,7 @@
 </h2>
 <p>中共党史上最重大的一次“妄议大政方针”应该是遵义会议吧？毛找王稼祥私下妄议，会上公开反对党的既定路线和一把手。改开之初反对“两个凡是”其实也是“妄议”。<br><img src="http://ww1.sinaimg.cn/large/61fcc2a9jw1ex9mqalcpmj20fb0d3q4v.jpg"></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3900666894309300" target="freeweibo-mirror">SPAM 维尼熊~[偷笑]</a>
 </h2>
