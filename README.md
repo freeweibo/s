@@ -30,7 +30,7 @@
 </h2>
 <p>//@benben马甲://@蓦然回首时评微博:转发微博</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3900908557679487" target="freeweibo-mirror">SPAM the economist和Time關於Xi的封面…</a>
 </h2>
@@ -114,7 +114,7 @@
 </h2>
 <p>SPAM //@迷与悟-AvB:宁赠友邦,不予家奴——皇帝梦。<br><br>RE: 中国有句俗语：“不知者不怪”！<br><img src="http://ww4.sinaimg.cn/large/e415f869gw1ex9rxu31bgj20du0a30tg.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3900819583301954" target="freeweibo-mirror">SPAM //@曾家山-居士:幸福来得太突然了。</a>
 </h2>
