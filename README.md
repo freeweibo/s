@@ -126,7 +126,7 @@
 </h2>
 <p>安利朋友的我 和 被我安利下的朋友<br><img src="http://ww3.sinaimg.cn/large/7085f3c4jw1ex9rscuezkj20hs0bv0ui.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3900715154231777" target="freeweibo-mirror">@中国日报 刚刚英国皇室推特账号发布了一条来自女王伊丽莎白的…</a>
 </h2>
