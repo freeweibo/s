@@ -72,7 +72,7 @@
 </h2>
 <p>SPAM 维尼熊~[偷笑]<br><br>RE: [哈哈]</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3900665136916736" target="freeweibo-mirror">SPAM 今日最佳段子: 伊丽莎白女王要听英国首相关于习近平…</a>
 </h2>
@@ -102,7 +102,7 @@
 </h2>
 <p>铭则<br><img src="http://ww1.sinaimg.cn/large/006eYqkBgw1ex97rhvovtj30z10sc0ww.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3900529141282064" target="freeweibo-mirror">SPAM [哈哈]//@深圳小天: 博主开门，我是京东快递</a>
 </h2>
