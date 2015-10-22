@@ -24,7 +24,7 @@
 </h2>
 <p>SPAM 中石油应该解散 //@陶景洲:[挤眼]//@孟彦弘：支持！比如像山西，半数省委常委入监，山西省党组即应解散[酷]<br><br>RE: 期待<br><img src="http://ww1.sinaimg.cn/large/41693645gw1exa9a5bty2j20j40pm0yn.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3900884116967955" target="freeweibo-mirror">SPAM  //@徐昕:坚决拥护 //@张晨初艺术空间: /…</a>
 </h2>
