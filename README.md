@@ -38,6 +38,12 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3900684858698557" target="freeweibo-mirror">SPAM #张根硕2015 JKS LIVE IN SHAN…</a>
+</h2>
+<p>SPAM #张根硕2015 JKS LIVE IN SHANGHAI#个人演唱会将于10月24日在上海国际体操中心举行，相信很多粉丝已经等不及了，还有3天，3天，赶紧调整一下激动的心情吧！<br><img src="http://ww4.sinaimg.cn/large/9a448e76jw1ex9nhw1sh2j20f00l70wk.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3900684417909234" target="freeweibo-mirror">回复@王武帝1978:口头讲的是民主，实际实行的是专制。 /…</a>
 </h2>
 <p>回复@王武帝1978:口头讲的是民主，实际实行的是专制。 //@王武帝1978:事实上，是这样，被人证之后上台，会疯狂的整别人，如此循环，更加疯狂。 //@文巛666-2:反对就成了妄议，等自己上台了，对反对派的打击更加严厉，即使人民遭受大灾难也不改初衷，你真以为你是大救星吗？<br><br>RE: 中共党史上最重大的一次“妄议大政方针”应该是遵义会议吧？毛找王稼祥私下妄议，会上公开反对党的既定路线和一把手。改开之初反对“两个凡是”其实也是“妄议”。<br><img src="http://ww1.sinaimg.cn/large/61fcc2a9jw1ex9mqalcpmj20fb0d3q4v.jpg"></p>
@@ -49,6 +55,12 @@
 <p>这可不能追加处分：开除党籍。<br><br>RE: 中共党史上最重大的一次“妄议大政方针”应该是遵义会议吧？毛找王稼祥私下妄议，会上公开反对党的既定路线和一把手。改开之初反对“两个凡是”其实也是“妄议”。<br><img src="http://ww1.sinaimg.cn/large/61fcc2a9jw1ex9mqalcpmj20fb0d3q4v.jpg"></p>
 <p>
 	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3900670090296257" target="freeweibo-mirror">呵呵 [good]</a>
+</h2>
+<p>呵呵 [good]<br><br>RE: 中共党史上最重大的一次“妄议大政方针”应该是遵义会议吧？毛找王稼祥私下妄议，会上公开反对党的既定路线和一把手。改开之初反对“两个凡是”其实也是“妄议”。<br><img src="http://ww1.sinaimg.cn/large/61fcc2a9jw1ex9mqalcpmj20fb0d3q4v.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3900669050155722" target="freeweibo-mirror">中共党史上最重大的一次“妄议大政方针”应该是遵义会议吧？毛找…</a>
 </h2>
@@ -90,7 +102,7 @@
 </h2>
 <p>铭则<br><img src="http://ww1.sinaimg.cn/large/006eYqkBgw1ex97rhvovtj30z10sc0ww.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3900529141282064" target="freeweibo-mirror">SPAM [哈哈]//@深圳小天: 博主开门，我是京东快递</a>
 </h2>
@@ -125,18 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3900456013229826" target="freeweibo-mirror">【欢迎习总来英】成千上万的支持者在林荫道（The Mall）…</a>
 </h2>
 <p>【欢迎习总来英】成千上万的支持者在林荫道（The Mall）上夹道欢迎习主席，把XX功、藏独等示威者淹没在了一片红海之中！</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3900442981408005" target="freeweibo-mirror">对老百姓来讲，更是没什么。</a>
-</h2>
-<p>对老百姓来讲，更是没什么。<br><br>RE: 【16年前也是举国热烈欢迎，没有啥特殊的】1999年10月19日，江ceo抵英进行国事访问，这是中国国家元首首次访问英国，具有重要意义，原因你懂得。英国女王伊丽莎白二世为江ceo举行盛大欢迎仪式，热烈欢迎中国国家主席的来访。按照惯例，江泽民在访问期间下榻白金汉宫，同时也有盛大国宴，一样乘坐马车。<br><img src="http://ww3.sinaimg.cn/large/53ae0b70jw1ex8wpimlfmj20m80gzwjf.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3900442347662273" target="freeweibo-mirror">【16年前也是举国热烈欢迎，没有啥特殊的】1999年10月1…</a>
-</h2>
-<p>【16年前也是举国热烈欢迎，没有啥特殊的】1999年10月19日，江ceo抵英进行国事访问，这是中国国家元首首次访问英国，具有重要意义，原因你懂得。英国女王伊丽莎白二世为江ceo举行盛大欢迎仪式，热烈欢迎中国国家主席的来访。按照惯例，江泽民在访问期间下榻白金汉宫，同时也有盛大国宴，一样乘坐马车。<br><img src="http://ww3.sinaimg.cn/large/53ae0b70jw1ex8wpimlfmj20m80gzwjf.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
