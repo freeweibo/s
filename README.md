@@ -54,7 +54,7 @@
 </h2>
 <p>还活着么？ //@就是衣山尽:原PO做大死……//@小江南009: [哈哈]//@周祯尧: 转发微博<br><br>RE: 我分享了@-红色猎隼- 的文章 http://t.cn/RUPxJih</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3900722183942119" target="freeweibo-mirror">哈哈哈哈哈哈 //@触手蜀黍:哈哈哈哈 //@一蚊丁:右边说…</a>
 </h2>
@@ -78,7 +78,7 @@
 </h2>
 <p>化妝師完蛋了！<br><img src="http://ww1.sinaimg.cn/large/8856a58egw1ex9q43qg5cj20d20ihabn.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3900688314538029" target="freeweibo-mirror">我分享了@-红色猎隼- 的文章 http://t.cn/RU…</a>
 </h2>
@@ -122,6 +122,12 @@
 <p>
 	<small> ============== 9小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3900682048064501" target="freeweibo-mirror">【鲁迅说过：】做奴隶虽然不幸，但并不可怕，因为知道挣扎，毕竟…</a>
+</h2>
+<p>【鲁迅说过：】做奴隶虽然不幸，但并不可怕，因为知道挣扎，毕竟还有挣脱的希望；若是从奴隶生活中寻出美来，赞叹、陶醉，就是万劫不复的奴才了！#微博时评#<br><img src="http://ww3.sinaimg.cn/large/42412704jw1ex9ly2gsg3j208s0cgwey.jpg"></p>
+<p>
+	<small> ============== 10小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3900670090296257" target="freeweibo-mirror">呵呵 [good]</a>
 </h2>
 <p>呵呵 [good]<br><br>RE: 中共党史上最重大的一次“妄议大政方针”应该是遵义会议吧？毛找王稼祥私下妄议，会上公开反对党的既定路线和一把手。改开之初反对“两个凡是”其实也是“妄议”。<br><img src="http://ww1.sinaimg.cn/large/61fcc2a9jw1ex9mqalcpmj20fb0d3q4v.jpg"></p>
@@ -133,12 +139,6 @@
 <p>中共党史上最重大的一次“妄议大政方针”应该是遵义会议吧？毛找王稼祥私下妄议，会上公开反对党的既定路线和一把手。改开之初反对“两个凡是”其实也是“妄议”。<br><img src="http://ww1.sinaimg.cn/large/61fcc2a9jw1ex9mqalcpmj20fb0d3q4v.jpg"></p>
 <p>
 	<small> ============== 10小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3900666894309300" target="freeweibo-mirror">SPAM 维尼熊~[偷笑]</a>
-</h2>
-<p>SPAM 维尼熊~[偷笑]<br><br>RE: [哈哈]</p>
-<p>
-	<small> ============== 11小时前</small>
 </p>
 <table>
     <tr>
