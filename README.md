@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3900780291268012" target="freeweibo-mirror">SPAM #要快感，更需要安全感#天了噜，现在竟然能0佣金包…</a>
+</h2>
+<p>SPAM #要快感，更需要安全感#天了噜，现在竟然能0佣金包养超级英雄为你打工！@阿里钱盾 表示，只要下载“阿里钱盾”APP就能召唤神盾局特工，让你“购”安全，10月22日-24日更有神秘彩蛋大派送！[doge]这位客官，先来挑一下人吧↓↓↓<br><img src="http://ww4.sinaimg.cn/large/5e0b3d25gw1ex9zizshlyg207p0ciagh.gif"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3900753191928801" target="freeweibo-mirror">[汗] //@张晨初艺术空间:右边别吓我！[汗]//@梦中缘…</a>
 </h2>
 <p>[汗] //@张晨初艺术空间:右边别吓我！[汗]//@梦中缘196388:是这个张教授画滴@张晨初艺术空间 [笑cry][笑cry][笑cry]//@美裙小鸟儿:不大可能吧[可爱] //@曾家山-居士:故意的？//@九龙河: 查查，脸上的白粉是哪家生产的，绝对三无。把厂长揪出来，弃市。//@我是风啊1888_80g: 谁干的？抓起来<br><br>RE: 化妝師完蛋了！<br><img src="http://ww1.sinaimg.cn/large/8856a58egw1ex9q43qg5cj20d20ihabn.jpg"></p>
@@ -126,19 +132,13 @@
 </h2>
 <p>SPAM 今日最佳段子: 伊丽莎白女王要听英国首相关于习近平访问的汇报[微笑][微笑][酷]，于是卡梅伦去见女王：----“老佛爷，洋人要来给我们修铁路。”[挤眼]</p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3900646576752437" target="freeweibo-mirror">SPAM [嘻嘻][赞]</a>
 </h2>
 <p>SPAM [嘻嘻][赞]<br><br>RE: 【欢迎习总来英】成千上万的支持者在林荫道（The Mall）上夹道欢迎习主席，把XX功、藏独等示威者淹没在了一片红海之中！</p>
 <p>
 	<small> ============== 10小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3900634438605337" target="freeweibo-mirror">SPAM 父亲周年祭文；山川萧瑟，秋雨垂泪。牟氏祖赤帝祝融，…</a>
-</h2>
-<p>SPAM 父亲周年祭文；山川萧瑟，秋雨垂泪。牟氏祖赤帝祝融，子孙在潍坊莱芜建立牟国，与鲁齐国三分山东。吾父生于1932年，勤奋读书，青年支教远赴黑龙江，完达山下，兴凯湖畔。忠厚传家，慈善仁义，半生奉献矿务局。于2014年10月23日晨北京心脏病突发仙逝，享年84岁。悲痛之至，转瞬一年。值此周年祭哀思慈父<br><img src="http://ww4.sinaimg.cn/large/4ab6d245jw1ex9is91bpfj209n0c3mxp.jpg"></p>
-<p>
-	<small> ============== 11小时前</small>
 </p>
 <table>
     <tr>
