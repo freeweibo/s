@@ -30,13 +30,13 @@
 </h2>
 <p>//@文山娃:為黨操碎了心。[悲伤] http://t.cn/RUh91KB  //@胡杨麟:又在胡扯，共产党员有责任有义务通过正常渠道正当手段对党提出自己的看法批评…现在所禁止的妄议是指私下制造舆论散播有害于党的政策的言论行为，拉帮结派党同伐异设立小团体小帮派，为此危害党的利益。<br><br>RE: 中共党史上最重大的一次“妄议大政方针”应该是遵义会议吧？毛找王稼祥私下妄议，会上公开反对党的既定路线和一把手。改开之初反对“两个凡是”其实也是“妄议”。<br><img src="http://ww1.sinaimg.cn/large/61fcc2a9jw1ex9mqalcpmj20fb0d3q4v.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3900685428789130" target="freeweibo-mirror">//@周泽律师:这可不能追加处分：开除党籍。</a>
 </h2>
 <p>//@周泽律师:这可不能追加处分：开除党籍。<br><br>RE: 中共党史上最重大的一次“妄议大政方针”应该是遵义会议吧？毛找王稼祥私下妄议，会上公开反对党的既定路线和一把手。改开之初反对“两个凡是”其实也是“妄议”。<br><img src="http://ww1.sinaimg.cn/large/61fcc2a9jw1ex9mqalcpmj20fb0d3q4v.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3900684858698557" target="freeweibo-mirror">SPAM #张根硕2015 JKS LIVE IN SHAN…</a>
 </h2>
@@ -60,7 +60,7 @@
 </h2>
 <p>呵呵 [good]<br><br>RE: 中共党史上最重大的一次“妄议大政方针”应该是遵义会议吧？毛找王稼祥私下妄议，会上公开反对党的既定路线和一把手。改开之初反对“两个凡是”其实也是“妄议”。<br><img src="http://ww1.sinaimg.cn/large/61fcc2a9jw1ex9mqalcpmj20fb0d3q4v.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3900669050155722" target="freeweibo-mirror">中共党史上最重大的一次“妄议大政方针”应该是遵义会议吧？毛找…</a>
 </h2>
