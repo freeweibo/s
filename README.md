@@ -78,7 +78,7 @@
 </h2>
 <p>我分享了@-红色猎隼- 的文章 http://t.cn/RUPxJih</p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3900686246560257" target="freeweibo-mirror">SPAM 别让化妆师跑了！</a>
 </h2>
