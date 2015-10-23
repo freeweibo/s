@@ -26,6 +26,12 @@
 <p>
 	<small> ============== 1小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3901106284945294" target="freeweibo-mirror">//@蓝星虫No1://@小佩的快乐时光:不要脸，//@徐昕…</a>
+</h2>
+<p>//@蓝星虫No1://@小佩的快乐时光:不要脸，//@徐昕:中国比英国更重视人权，至少五倍<br><br>RE: BBC的女记者问习一个很有意思的问题：为什么你认为英国民众应该高兴与这样的一个国家加强贸易往来？它不民主、不透明、对人权的态度令人深深不安。习总书记摘下耳机，回答的也挺有意思：1、中国重视人权；2、没有一个国家的人权是完美的；3、中国愿意和英国加强人权对话。<br><img src="http://ww2.sinaimg.cn/large/4ea0dee9jw1exauhuwjrsj20q10gygp3.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3901098005792536" target="freeweibo-mirror">SPAM [哈哈]//@燕山刀客A:我看这报纸的总编辑应该下…</a>
 </h2>
 <p>SPAM [哈哈]//@燕山刀客A:我看这报纸的总编辑应该下台了。</p>
@@ -36,7 +42,7 @@
 </h2>
 <p>SPAM 我看这报纸的总编辑应该下台了。</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3901083350828348" target="freeweibo-mirror">SPAM 是吗？</a>
 </h2>
@@ -108,7 +114,7 @@
 </h2>
 <p>SPAM 我见过最实在的一家电商，转给那些想开网-店，想自主创-业的朋友，不用进货，无库存风险，我们提供技术支持哦！也不用太多的时间和经验，一部智能手机或一台电脑就可以啦！非常适合个人创-业！我们快速为您提供开-店支持！成交量非常大。如果你感兴趣就加Q：2851868576</p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3901027436768357" target="freeweibo-mirror">禁止党内民主吗？党内都不能妄议，社会主义核心价值观怎样体现？…</a>
 </h2>
@@ -133,12 +139,6 @@
 <p>SPAM 新表情get //@使徒子:卧槽.... //@phantania:共勉<br><br>RE: 一个没忍住……与君共勉@易北<br><img src="http://ww1.sinaimg.cn/large/5855b225gw1exa6dxaakbj20dw09a3zy.jpg"></p>
 <p>
 	<small> ============== 8小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3900994142159073" target="freeweibo-mirror">这标题，岂止是妄议，简直就是忤逆[汗]</a>
-</h2>
-<p>这标题，岂止是妄议，简直就是忤逆[汗]<br><img src="http://ww3.sinaimg.cn/large/d3e9af42jw1exao3lvpv1j20m80cita5.jpg"></p>
-<p>
-	<small> ============== 9小时前</small>
 </p>
 <table>
     <tr>
