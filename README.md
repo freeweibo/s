@@ -36,7 +36,7 @@
 </h2>
 <p>SPAM the economist和Time關於Xi的封面，最後一張是未被time採用的封面（Tim O'Brien）<br><img src="http://ww4.sinaimg.cn/large/6e5beb41gw1exae4yl9z6j20b40emtaj.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3900890391918168" target="freeweibo-mirror">SPAM 中石油应该解散 //@陶景洲:[挤眼]//@孟彦弘…</a>
 </h2>
@@ -66,7 +66,7 @@
 </h2>
 <p>SPAM 【人大教授包政：“有电无商”不是好电商！（值得深思）】新型电商，不应该是简单地圈顾客，而是把传统大叔中的赢家及其赢的道理或称经营范式，移植到互联网及其IT系统中去，用互联网的特点来玩赢家的范式。 http://t.cn/RU7nIuM</p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3900877406890961" target="freeweibo-mirror">SPAM 薄熙来被带走时高喊：“我没罪！”      htt…</a>
 </h2>
