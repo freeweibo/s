@@ -66,19 +66,19 @@
 </h2>
 <p>//@宏鑫88: //@崖上尋芳草://@台北101二: [思考]。。。还是不予置评！//@jhw777: @台北101二 这位英国人蛮了解中国国情，对不？<br><br>RE: 分享视频 http://t.cn/RUZW2IJ .</p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3901260035976823" target="freeweibo-mirror">学习了。</a>
 </h2>
 <p>学习了。<br><img src="http://ww1.sinaimg.cn/large/62553213gw1exbimy703fj20yi08waet.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3901259994334729" target="freeweibo-mirror">SPAM 還是勸籲各位朋友，沒必要對一坨屎評頭論足。抬舉它了…</a>
 </h2>
 <p>SPAM 還是勸籲各位朋友，沒必要對一坨屎評頭論足。抬舉它了。//@山爪Y牆:第一屆在北京新聞大廈頒獎給連戰，孔慶東之流搞的湨奬，還有人栽贓到香港頭上[鄙视] http://t.cn/RUZTrc7<br><br>RE: 分享图片<br><img src="http://ww2.sinaimg.cn/large/65cfb01djw1ew5q9p93rfj20f00qodje.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3901251818910826" target="freeweibo-mirror">分享视频 http://t.cn/RUZW2IJ .</a>
 </h2>
@@ -138,7 +138,7 @@
 </h2>
 <p>SPAM 夹个5.6只应该可以吧 //@荷包蛋一块七:@沈虹杉 行吗[挖鼻]<br><br>RE: 【如果你的下乳不能夹住铅笔，你就没资格穿BRA】1971年美国美国乳房研究学家R·罗森博格博士提出「铅笔测试」，只有用下乳夹住铅笔后不掉落，才表示“已正式的成为女人，享有所有伴随的荣耀”，假如做不到，你就不需要穿BRA因为你根！本！没！发！育！好！(╯‵□′)╯︵┻━┻<br><img src="http://ww3.sinaimg.cn/large/7faa1697gw1exb0al047fj20by080ab2.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p>
 <table>
     <tr>
