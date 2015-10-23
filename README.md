@@ -90,7 +90,7 @@
 </h2>
 <p>SPAM 中石油应该解散 //@陶景洲:[挤眼]//@孟彦弘：支持！比如像山西，半数省委常委入监，山西省党组即应解散[酷]<br><br>RE: 期待<br><img src="http://ww1.sinaimg.cn/large/41693645gw1exa9a5bty2j20j40pm0yn.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3900884193332654" target="freeweibo-mirror">SPAM //@沈阳张晶: //@徐昕:坚决拥护 //@张晨…</a>
 </h2>
@@ -128,15 +128,15 @@
 <p>
 	<small> ============== 1天前</small>
 </p><h2>
-	<a href="https://freeweibo.com/weibo/3900855277179111" target="freeweibo-mirror">//@薛桂烨: //@五--在伏羲庙对视:这头猪快好了！ /…</a>
+	<a href="https://freeweibo.com/weibo/3900856438941872" target="freeweibo-mirror">邓时代是“不争论”，胡时代是“不折腾”。现在提出“不妄议”。…</a>
 </h2>
-<p>//@薛桂烨: //@五--在伏羲庙对视:这头猪快好了！ //@卢钩晓月2015: //@李昌隆:红二官二致富模式，空手套白狼，低价攫取国有资产，银行资金支持，扩张，上市，洗白，套取国有银行外汇。 //@孺子牛RR:[围观][思考]</p>
+<p>邓时代是“不争论”，胡时代是“不折腾”。现在提出“不妄议”。什么是妄议？其实，牛顿、达尔文、爱因斯坦当年哪个不是“妄议”？邓小平的“中国特色社会主义”理论也是对毛泽东思想的妄议。习仲勋先生当年说“保护不同意见者的一切权利，不受刑罚，也不受其他处分，这样才能让人畅所欲言……”</p>
 <p>
 	<small> ============== 1天前</small>
 </p><h2>
-	<a href="https://freeweibo.com/weibo/3900851414205219" target="freeweibo-mirror">SPAM [衰]真的？</a>
+	<a href="https://freeweibo.com/weibo/3900855277179111" target="freeweibo-mirror">//@薛桂烨: //@五--在伏羲庙对视:这头猪快好了！ /…</a>
 </h2>
-<p>SPAM [衰]真的？<br><img src="http://ww3.sinaimg.cn/large/60100c3cgw1exa7ovj2cpj20ch0m8goa.jpg"></p>
+<p>//@薛桂烨: //@五--在伏羲庙对视:这头猪快好了！ //@卢钩晓月2015: //@李昌隆:红二官二致富模式，空手套白狼，低价攫取国有资产，银行资金支持，扩张，上市，洗白，套取国有银行外汇。 //@孺子牛RR:[围观][思考]</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
