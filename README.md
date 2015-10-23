@@ -48,13 +48,13 @@
 </h2>
 <p>//@敬禹曰: 有宣传，没新闻。//@邵明波:这是主事者脑容量太低，还是我等百姓尚未开化？//@吴铭: 对资本主义国家的报道，适用相反的原则。<br><br>RE: 学习了。<br><img src="http://ww1.sinaimg.cn/large/62553213gw1exbimy703fj20yi08waet.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3901263836470312" target="freeweibo-mirror">这是主事者脑容量太低，还是我等百姓尚未开化？//@吴铭: 对…</a>
 </h2>
 <p>这是主事者脑容量太低，还是我等百姓尚未开化？//@吴铭: 对资本主义国家的报道，适用相反的原则。<br><br>RE: 学习了。<br><img src="http://ww1.sinaimg.cn/large/62553213gw1exbimy703fj20yi08waet.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3901263055675931" target="freeweibo-mirror">对资本主义国家的报道，适用相反的原则。</a>
 </h2>
