@@ -114,7 +114,7 @@
 </h2>
 <p>文革之风悄然泛起，明目张胆一言堂？<br><img src="http://ww3.sinaimg.cn/large/b686ce1fgw1exasvsqh5xj20hs0htacd.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3901033808036343" target="freeweibo-mirror">唉？少写了三斤挞嘛……恩，估计是喇嘛买的时候就缺斤短两～//…</a>
 </h2>
