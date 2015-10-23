@@ -36,7 +36,7 @@
 </h2>
 <p>//@萧山维权者戴鸿: //@承德刘松波://@林州老狗:转发微博</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3901171133436285" target="freeweibo-mirror">长期闭口不谈，当今知道1999年丰城事件的人恐怕不多了，年轻…</a>
 </h2>
@@ -114,7 +114,7 @@
 </h2>
 <p>英国单车男PK中国爱国青年http://t.cn/RUzprQE</p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3901089411880075" target="freeweibo-mirror">SPAM 我看这报纸的总编辑应该下台了。</a>
 </h2>
