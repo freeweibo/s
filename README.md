@@ -60,7 +60,7 @@
 </h2>
 <p>对资本主义国家的报道，适用相反的原则。<br><br>RE: 学习了。<br><img src="http://ww1.sinaimg.cn/large/62553213gw1exbimy703fj20yi08waet.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3901260783060972" target="freeweibo-mirror">//@宏鑫88: //@崖上尋芳草://@台北101二: […</a>
 </h2>
