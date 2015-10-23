@@ -120,7 +120,7 @@
 </h2>
 <p>達賴喇叭<br><img src="http://ww2.sinaimg.cn/large/a770158cgw1exagi8qz09j20qo0lttaw.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3900916786650557" target="freeweibo-mirror">//@benben马甲://@蓦然回首时评微博:转发微博</a>
 </h2>
