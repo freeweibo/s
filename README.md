@@ -38,6 +38,12 @@
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3901094348908318" target="freeweibo-mirror">英国单车男PK中国爱国青年http://t.cn/RUzpr…</a>
+</h2>
+<p>英国单车男PK中国爱国青年http://t.cn/RUzprQE</p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3901089411880075" target="freeweibo-mirror">SPAM 我看这报纸的总编辑应该下台了。</a>
 </h2>
 <p>SPAM 我看这报纸的总编辑应该下台了。</p>
@@ -78,7 +84,7 @@
 </h2>
 <p>没有人歧视维族，那是害怕，维族里的某些人和公知走得很近，人们都害怕。 //@洋溢天空: //@悠悠又见南山:维族要多从自身找问题，要反思，为什么不查别人专查你，维族对自己民族的害群之马都做了哪些反击？或者不是害群之马，是民族英雄是圣战士<br><br>RE: 我在08年暑假在京某酒店实习，培训时经理就曾说：见到新疆西藏的就说没房。次日经理查看身份证才发现我是维吾尔族，当天就被开除了，我北京同学却被留下来了。新疆人就算顺利入住也会被特殊检查，这是为了排查坏人，但是却寒了多少老百姓的心，值吗？望找到更好的办法！ http://t.cn/RU7cKc4 .</p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3901040011167888" target="freeweibo-mirror">//@北京杨博: 限制言论自由，新京报公开违宪？</a>
 </h2>
@@ -108,7 +114,7 @@
 </h2>
 <p>老了 眼花了 谁帮我看看 屏幕上是 达赖喇嘛 还是达赖喇叭？？<br><img src="http://ww3.sinaimg.cn/large/53b3bff5jw1exasjz64ynj20c307wmxq.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3901031555929653" target="freeweibo-mirror">喇叭在喇嘛手里，说明已经换完了。我比较关心那个哑巴拿着二斤挞…</a>
 </h2>
@@ -133,12 +139,6 @@
 <p>昨天“妄议”成了媒体的热词，报纸上的头版通栏大标题看起来的确令人惊心动魄，我作为非党人士，按理说不必操心人家党内的事情。但从大学起读党史，知道党史几乎就是一部不断妄议大政方针的历史，陈独秀、瞿秋白、李立三、王明的大政方针不就是被妄议掉的吗？！毛的继续革命理论不也是被妄议掉了吗？！<br><img src="http://ww3.sinaimg.cn/large/005XsazYjw1exaqol93bxj30nq0hsabp.jpg"></p>
 <p>
 	<small> ============== 8小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3901006414528800" target="freeweibo-mirror">【京东为何沦为假货避难所，还被国际商标联盟列入“恶名市场”？…</a>
-</h2>
-<p>【京东为何沦为假货避难所，还被国际商标联盟列入“恶名市场”？】国际商标联盟指出，京东因其假货、侵权商品和销售无授权商品等问题而恶名昭著，有很大比例的假货来自其第三方市场。而且，“根据一个非官方调查，由于阿里巴巴打击假货取得成效，一大批假货商已经向京东转移。”http://t.cn/RU7WZWp<br><img src="http://ww2.sinaimg.cn/large/872e8974gw1exapic9qghj20f609c0u3.jpg"></p>
-<p>
-	<small> ============== 9小时前</small>
 </p>
 <table>
     <tr>
