@@ -68,6 +68,12 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3901260035976823" target="freeweibo-mirror">学习了。</a>
+</h2>
+<p>学习了。<br><img src="http://ww1.sinaimg.cn/large/62553213gw1exbimy703fj20yi08waet.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3901259994334729" target="freeweibo-mirror">SPAM 還是勸籲各位朋友，沒必要對一坨屎評頭論足。抬舉它了…</a>
 </h2>
 <p>SPAM 還是勸籲各位朋友，沒必要對一坨屎評頭論足。抬舉它了。//@山爪Y牆:第一屆在北京新聞大廈頒獎給連戰，孔慶東之流搞的湨奬，還有人栽贓到香港頭上[鄙视] http://t.cn/RUZTrc7<br><br>RE: 分享图片<br><img src="http://ww2.sinaimg.cn/large/65cfb01djw1ew5q9p93rfj20f00qodje.jpg"></p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3901190893189374" target="freeweibo-mirror">//@章国锡: 告诉我们一个真理:从来没有白送的权利！//@…</a>
 </h2>
 <p>//@章国锡: 告诉我们一个真理:从来没有白送的权利！//@网络正义战士://@萧山维权者戴鸿: //@承德刘松波://@林州老狗:转发微博</p>
-<p>
-	<small> ============== 7小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3901184471385711" target="freeweibo-mirror">//@萧山维权者戴鸿: //@承德刘松波://@林州老狗:转…</a>
-</h2>
-<p>//@萧山维权者戴鸿: //@承德刘松波://@林州老狗:转发微博</p>
 <p>
 	<small> ============== 7小时前</small>
 </p>
