@@ -102,7 +102,7 @@
 </h2>
 <p>//@北京杨博: 限制言论自由，新京报公开违宪？<br><br>RE: 文革之风悄然泛起，明目张胆一言堂？<br><img src="http://ww3.sinaimg.cn/large/b686ce1fgw1exasvsqh5xj20hs0htacd.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3901037259863344" target="freeweibo-mirror">//@荣剑2001:陶律说得好！</a>
 </h2>
