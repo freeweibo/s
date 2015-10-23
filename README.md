@@ -72,7 +72,7 @@
 </h2>
 <p>//@章国锡: 告诉我们一个真理:从来没有白送的权利！//@网络正义战士://@萧山维权者戴鸿: //@承德刘松波://@林州老狗:转发微博</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3901184471385711" target="freeweibo-mirror">//@萧山维权者戴鸿: //@承德刘松波://@林州老狗:转…</a>
 </h2>
@@ -90,7 +90,7 @@
 </h2>
 <p>要不是几个老头子1976年妄议大政方针，搞了一下子，我们现在肯定在歌颂毛新宇。1992年，有个退休老党员北京呆不住，跑到南方妄议大政方针去了。。<br><img src="http://ww1.sinaimg.cn/large/6362d8eagw1exb77xoubxj20m80gowfn.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3901159150841213" target="freeweibo-mirror">[吃惊][吃惊][吃惊]//@张修林09: 取消农业税，一是…</a>
 </h2>
