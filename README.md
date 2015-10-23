@@ -20,11 +20,17 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3901171133436285" target="freeweibo-mirror">长期闭口不谈，当今知道1999年丰城事件的人恐怕不多了，年轻…</a>
+</h2>
+<p>长期闭口不谈，当今知道1999年丰城事件的人恐怕不多了，年轻人尤少。<br><br>RE: 镇长和干部被从二楼扔下，愤怒的农民当场在政府创了一个大坑将此二人活埋。派出所长和民警被当场打死，所长的尸体被吊在树上示众。从此以后中国取消农民一切税费！ http://t.cn/aBEtQ9<br><img src="http://ww1.sinaimg.cn/large/8c0fd53fjw1exatsm9ba0j208c05j74e.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3901129962141622" target="freeweibo-mirror">//@不变应万变369://@老了糊涂的赵宪君:背叛了毛泽东…</a>
 </h2>
 <p>//@不变应万变369://@老了糊涂的赵宪君:背叛了毛泽东思想的党派，得不到人民的拥护，只有死路一条！//@姬红: 蟹帝是谁？ 谁还在张牙舞爪横行霸道？[思考]<br><br>RE: 包帝开始整党了，蟹帝真是弱爆了[doge]刚开始我们都以为蟹帝在隐忍，有知止不殆的智慧，然后他一直“止”到卸任，于是我们才知道他是真没招[doge]</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3901128238556213" target="freeweibo-mirror">//@亮剑兄来了://@励志香港: 说的太他么帮了</a>
 </h2>
@@ -96,7 +102,7 @@
 </h2>
 <p>SPAM //@诗享家16:洋鬼子不知足，几百亿给早了？ [偷笑]//@加菲炮1314cat: //@牧野天涯3253:哪壶不开提哪壶[哈哈]/<br><br>RE: 事頭婆！<br><img src="http://ww4.sinaimg.cn/large/006eZyw6jw1ex9ygseanlj30k00lcjul.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3901049880049710" target="freeweibo-mirror">BBC的女记者问习一个很有意思的问题：为什么你认为英国民众应…</a>
 </h2>
@@ -114,7 +120,7 @@
 </h2>
 <p>//@北京杨博: 限制言论自由，新京报公开违宪？<br><br>RE: 文革之风悄然泛起，明目张胆一言堂？<br><img src="http://ww3.sinaimg.cn/large/b686ce1fgw1exasvsqh5xj20hs0htacd.jpg"></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3901037259863344" target="freeweibo-mirror">//@荣剑2001:陶律说得好！</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3901033808036343" target="freeweibo-mirror">唉？少写了三斤挞嘛……恩，估计是喇嘛买的时候就缺斤短两～//…</a>
 </h2>
 <p>唉？少写了三斤挞嘛……恩，估计是喇嘛买的时候就缺斤短两～//@恐龟驰骋:喇叭在喇嘛手里，说明已经换完了。我比较关心那个哑巴拿着二斤挞嘛跑去西藏干什么 ？感觉阴谋很大唉！！//@斯库里:这是真的和哑巴换了…… /@斯库里:这是真的和哑巴换了……<br><br>RE: 達賴喇叭<br><img src="http://ww2.sinaimg.cn/large/a770158cgw1exagi8qz09j20qo0lttaw.jpg"></p>
-<p>
-	<small> ============== 10小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3901033044354675" target="freeweibo-mirror">老了 眼花了 谁帮我看看 屏幕上是 达赖喇嘛 还是达赖喇叭？…</a>
-</h2>
-<p>老了 眼花了 谁帮我看看 屏幕上是 达赖喇嘛 还是达赖喇叭？？<br><img src="http://ww3.sinaimg.cn/large/53b3bff5jw1exasjz64ynj20c307wmxq.jpg"></p>
 <p>
 	<small> ============== 10小时前</small>
 </p>
