@@ -32,6 +32,12 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3901184471385711" target="freeweibo-mirror">//@萧山维权者戴鸿: //@承德刘松波://@林州老狗:转…</a>
+</h2>
+<p>//@萧山维权者戴鸿: //@承德刘松波://@林州老狗:转发微博</p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3901171133436285" target="freeweibo-mirror">长期闭口不谈，当今知道1999年丰城事件的人恐怕不多了，年轻…</a>
 </h2>
 <p>长期闭口不谈，当今知道1999年丰城事件的人恐怕不多了，年轻人尤少。<br><br>RE: 镇长和干部被从二楼扔下，愤怒的农民当场在政府创了一个大坑将此二人活埋。派出所长和民警被当场打死，所长的尸体被吊在树上示众。从此以后中国取消农民一切税费！ http://t.cn/aBEtQ9<br><img src="http://ww1.sinaimg.cn/large/8c0fd53fjw1exatsm9ba0j208c05j74e.jpg"></p>
@@ -43,6 +49,12 @@
 <p>[吃惊][吃惊][吃惊]//@张修林09: 取消农业税，一是因为农民抗重税抗得太厉害了，二是加入WTO经济发展以及卖地财政后，收农业税的成本已大于农业税本身。//@大浪再淘仨:哦，是吗，第一次听说<br><br>RE: 镇长和干部被从二楼扔下，愤怒的农民当场在政府创了一个大坑将此二人活埋。派出所长和民警被当场打死，所长的尸体被吊在树上示众。从此以后中国取消农民一切税费！ http://t.cn/aBEtQ9<br><img src="http://ww1.sinaimg.cn/large/8c0fd53fjw1exatsm9ba0j208c05j74e.jpg"></p>
 <p>
 	<small> ============== 4小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3901153190266916" target="freeweibo-mirror">【如果你的下乳不能夹住铅笔，你就没资格穿BRA】1971年美…</a>
+</h2>
+<p>【如果你的下乳不能夹住铅笔，你就没资格穿BRA】1971年美国美国乳房研究学家R·罗森博格博士提出「铅笔测试」，只有用下乳夹住铅笔后不掉落，才表示“已正式的成为女人，享有所有伴随的荣耀”，假如做不到，你就不需要穿BRA因为你根！本！没！发！育！好！(╯‵□′)╯︵┻━┻<br><img src="http://ww3.sinaimg.cn/large/7faa1697gw1exb0al047fj20by080ab2.jpg"></p>
+<p>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3901152762161608" target="freeweibo-mirror">//@敢于先天: 严惩凶手</a>
 </h2>
@@ -102,7 +114,7 @@
 </h2>
 <p>英国单车男PK中国爱国青年http://t.cn/RUzprQE</p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3901089411880075" target="freeweibo-mirror">SPAM 我看这报纸的总编辑应该下台了。</a>
 </h2>
@@ -127,18 +139,6 @@
 <p>SPAM 哈哈哈哈，媒体人的文化…<br><br>RE: 老了 眼花了 谁帮我看看 屏幕上是 达赖喇嘛 还是达赖喇叭？？<br><img src="http://ww3.sinaimg.cn/large/53b3bff5jw1exasjz64ynj20c307wmxq.jpg"></p>
 <p>
 	<small> ============== 10小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3901054225263975" target="freeweibo-mirror">SPAM //@诗享家16:洋鬼子不知足，几百亿给早了？ […</a>
-</h2>
-<p>SPAM //@诗享家16:洋鬼子不知足，几百亿给早了？ [偷笑]//@加菲炮1314cat: //@牧野天涯3253:哪壶不开提哪壶[哈哈]/<br><br>RE: 事頭婆！<br><img src="http://ww4.sinaimg.cn/large/006eZyw6jw1ex9ygseanlj30k00lcjul.jpg"></p>
-<p>
-	<small> ============== 11小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3901049880049710" target="freeweibo-mirror">BBC的女记者问习一个很有意思的问题：为什么你认为英国民众应…</a>
-</h2>
-<p>BBC的女记者问习一个很有意思的问题：为什么你认为英国民众应该高兴与这样的一个国家加强贸易往来？它不民主、不透明、对人权的态度令人深深不安。习总书记摘下耳机，回答的也挺有意思：1、中国重视人权；2、没有一个国家的人权是完美的；3、中国愿意和英国加强人权对话。<br><img src="http://ww2.sinaimg.cn/large/4ea0dee9jw1exauhuwjrsj20q10gygp3.jpg"></p>
-<p>
-	<small> ============== 11小时前</small>
 </p>
 <table>
     <tr>
