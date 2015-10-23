@@ -72,7 +72,7 @@
 </h2>
 <p>//@萧山维权者戴鸿: //@承德刘松波://@林州老狗:转发微博</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3901171133436285" target="freeweibo-mirror">长期闭口不谈，当今知道1999年丰城事件的人恐怕不多了，年轻…</a>
 </h2>
@@ -96,7 +96,7 @@
 </h2>
 <p>【如果你的下乳不能夹住铅笔，你就没资格穿BRA】1971年美国美国乳房研究学家R·罗森博格博士提出「铅笔测试」，只有用下乳夹住铅笔后不掉落，才表示“已正式的成为女人，享有所有伴随的荣耀”，假如做不到，你就不需要穿BRA因为你根！本！没！发！育！好！(╯‵□′)╯︵┻━┻<br><img src="http://ww3.sinaimg.cn/large/7faa1697gw1exb0al047fj20by080ab2.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3901152762161608" target="freeweibo-mirror">//@敢于先天: 严惩凶手</a>
 </h2>
