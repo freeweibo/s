@@ -84,7 +84,7 @@
 </h2>
 <p>长期闭口不谈，当今知道1999年丰城事件的人恐怕不多了，年轻人尤少。<br><br>RE: 镇长和干部被从二楼扔下，愤怒的农民当场在政府创了一个大坑将此二人活埋。派出所长和民警被当场打死，所长的尸体被吊在树上示众。从此以后中国取消农民一切税费！ http://t.cn/aBEtQ9<br><img src="http://ww1.sinaimg.cn/large/8c0fd53fjw1exatsm9ba0j208c05j74e.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3901161188455050" target="freeweibo-mirror">要不是几个老头子1976年妄议大政方针，搞了一下子，我们现在…</a>
 </h2>
