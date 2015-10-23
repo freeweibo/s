@@ -54,7 +54,7 @@
 </h2>
 <p>昨天“妄议”成了媒体的热词，报纸上的头版通栏大标题看起来的确令人惊心动魄，我作为非党人士，按理说不必操心人家党内的事情。但从大学起读党史，知道党史几乎就是一部不断妄议大政方针的历史，陈独秀、瞿秋白、李立三、王明的大政方针不就是被妄议掉的吗？！毛的继续革命理论不也是被妄议掉了吗？！<br><img src="http://ww3.sinaimg.cn/large/005XsazYjw1exaqol93bxj30nq0hsabp.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3901006414528800" target="freeweibo-mirror">【京东为何沦为假货避难所，还被国际商标联盟列入“恶名市场”？…</a>
 </h2>
@@ -66,7 +66,7 @@
 </h2>
 <p>SPAM 新表情get //@使徒子:卧槽.... //@phantania:共勉<br><br>RE: 一个没忍住……与君共勉@易北<br><img src="http://ww1.sinaimg.cn/large/5855b225gw1exa6dxaakbj20dw09a3zy.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3900929499300652" target="freeweibo-mirror">习总太客气了，我们保证不妄议朝政。。//@徐战前: 习总客气…</a>
 </h2>
@@ -90,7 +90,7 @@
 </h2>
 <p>SPAM 中石油应该解散 //@陶景洲:[挤眼]//@孟彦弘：支持！比如像山西，半数省委常委入监，山西省党组即应解散[酷]<br><br>RE: 期待<br><img src="http://ww1.sinaimg.cn/large/41693645gw1exa9a5bty2j20j40pm0yn.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3900884193332654" target="freeweibo-mirror">SPAM //@沈阳张晶: //@徐昕:坚决拥护 //@张晨…</a>
 </h2>
