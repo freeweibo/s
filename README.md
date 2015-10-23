@@ -126,7 +126,7 @@
 </h2>
 <p>[笑哈哈]只转，无需评。 //@新罗居士:转发微博<br><br>RE: 要不是几个老头子1976年妄议大政方针，搞了一下子，我们现在肯定在歌颂毛新宇。1992年，有个退休老党员北京呆不住，跑到南方妄议大政方针去了。。<br><img src="http://ww1.sinaimg.cn/large/6362d8eagw1exb77xoubxj20m80gowfn.jpg"></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3901210258221782" target="freeweibo-mirror">@葳蕤00望星空:@营口81岁被劳教@上海向华: 恳求公安部…</a>
 </h2>
