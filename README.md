@@ -78,7 +78,7 @@
 </h2>
 <p>英国单车男PK中国爱国青年http://t.cn/RUzprQE</p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3901089411880075" target="freeweibo-mirror">SPAM 我看这报纸的总编辑应该下台了。</a>
 </h2>
