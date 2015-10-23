@@ -108,7 +108,7 @@
 </h2>
 <p>//@蓝星虫No1://@小佩的快乐时光:不要脸，//@徐昕:中国比英国更重视人权，至少五倍<br><br>RE: BBC的女记者问习一个很有意思的问题：为什么你认为英国民众应该高兴与这样的一个国家加强贸易往来？它不民主、不透明、对人权的态度令人深深不安。习总书记摘下耳机，回答的也挺有意思：1、中国重视人权；2、没有一个国家的人权是完美的；3、中国愿意和英国加强人权对话。<br><img src="http://ww2.sinaimg.cn/large/4ea0dee9jw1exauhuwjrsj20q10gygp3.jpg"></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3901098005792536" target="freeweibo-mirror">SPAM [哈哈]//@燕山刀客A:我看这报纸的总编辑应该下…</a>
 </h2>
@@ -138,7 +138,7 @@
 </h2>
 <p>SPAM OPPO R7s广州品鉴会。 #OPPO拍照手机R7s# http://t.cn/RZLmA0q<br><img src="http://ww4.sinaimg.cn/large/851b9922gw1exaxf37550j21w01w01kx.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p>
 <table>
     <tr>
