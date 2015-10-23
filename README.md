@@ -120,7 +120,7 @@
 </h2>
 <p>SPAM 我看这报纸的总编辑应该下台了。</p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3901083350828348" target="freeweibo-mirror">SPAM 是吗？</a>
 </h2>
