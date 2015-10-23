@@ -48,7 +48,7 @@
 </h2>
 <p>[吃惊][吃惊][吃惊]//@张修林09: 取消农业税，一是因为农民抗重税抗得太厉害了，二是加入WTO经济发展以及卖地财政后，收农业税的成本已大于农业税本身。//@大浪再淘仨:哦，是吗，第一次听说<br><br>RE: 镇长和干部被从二楼扔下，愤怒的农民当场在政府创了一个大坑将此二人活埋。派出所长和民警被当场打死，所长的尸体被吊在树上示众。从此以后中国取消农民一切税费！ http://t.cn/aBEtQ9<br><img src="http://ww1.sinaimg.cn/large/8c0fd53fjw1exatsm9ba0j208c05j74e.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3901153190266916" target="freeweibo-mirror">【如果你的下乳不能夹住铅笔，你就没资格穿BRA】1971年美…</a>
 </h2>
@@ -66,7 +66,7 @@
 </h2>
 <p>[吃惊]#求证警员杀人分尸# 四川省宜宾市公安局一名警员因杀人分尸，已被擒获。有消息称，该警员向他人借了100多万元。债主催债，他就动了杀机，经谋划后对其下了手。</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3901129962141622" target="freeweibo-mirror">//@不变应万变369://@老了糊涂的赵宪君:背叛了毛泽东…</a>
 </h2>
@@ -78,7 +78,7 @@
 </h2>
 <p>//@亮剑兄来了://@励志香港: 说的太他么帮了</p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3901127802489597" target="freeweibo-mirror">SPAM </a>
 </h2>
@@ -108,7 +108,7 @@
 </h2>
 <p>SPAM [哈哈]//@燕山刀客A:我看这报纸的总编辑应该下台了。</p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3901094348908318" target="freeweibo-mirror">英国单车男PK中国爱国青年http://t.cn/RUzpr…</a>
 </h2>
@@ -126,7 +126,7 @@
 </h2>
 <p>SPAM 是吗？</p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3901075419504697" target="freeweibo-mirror">SPAM OPPO R7s广州品鉴会。 #OPPO拍照手机R…</a>
 </h2>
@@ -138,7 +138,7 @@
 </h2>
 <p>SPAM 哈哈哈哈，媒体人的文化…<br><br>RE: 老了 眼花了 谁帮我看看 屏幕上是 达赖喇嘛 还是达赖喇叭？？<br><img src="http://ww3.sinaimg.cn/large/53b3bff5jw1exasjz64ynj20c307wmxq.jpg"></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p>
 <table>
     <tr>
