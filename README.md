@@ -72,7 +72,7 @@
 </h2>
 <p>BBC的女记者问习一个很有意思的问题：为什么你认为英国民众应该高兴与这样的一个国家加强贸易往来？它不民主、不透明、对人权的态度令人深深不安。习总书记摘下耳机，回答的也挺有意思：1、中国重视人权；2、没有一个国家的人权是完美的；3、中国愿意和英国加强人权对话。<br><img src="http://ww2.sinaimg.cn/large/4ea0dee9jw1exauhuwjrsj20q10gygp3.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3901048198206198" target="freeweibo-mirror">没有人歧视维族，那是害怕，维族里的某些人和公知走得很近，人们…</a>
 </h2>
