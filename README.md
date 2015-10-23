@@ -30,13 +30,13 @@
 </h2>
 <p>//@亮剑兄来了://@励志香港: 说的太他么帮了</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3901127802489597" target="freeweibo-mirror">SPAM </a>
 </h2>
 <p>SPAM </p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3901122739880033" target="freeweibo-mirror">刚刚手癌删了，再发一次吧！简直毫无违和感哈哈哈哈哈哈哈</a>
 </h2>
@@ -60,13 +60,13 @@
 </h2>
 <p>SPAM [哈哈]//@燕山刀客A:我看这报纸的总编辑应该下台了。</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3901094348908318" target="freeweibo-mirror">英国单车男PK中国爱国青年http://t.cn/RUzpr…</a>
 </h2>
 <p>英国单车男PK中国爱国青年http://t.cn/RUzprQE</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3901089411880075" target="freeweibo-mirror">SPAM 我看这报纸的总编辑应该下台了。</a>
 </h2>
@@ -78,7 +78,7 @@
 </h2>
 <p>SPAM 是吗？</p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3901075419504697" target="freeweibo-mirror">SPAM OPPO R7s广州品鉴会。 #OPPO拍照手机R…</a>
 </h2>
@@ -90,7 +90,7 @@
 </h2>
 <p>SPAM 哈哈哈哈，媒体人的文化…<br><br>RE: 老了 眼花了 谁帮我看看 屏幕上是 达赖喇嘛 还是达赖喇叭？？<br><img src="http://ww3.sinaimg.cn/large/53b3bff5jw1exasjz64ynj20c307wmxq.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3901054225263975" target="freeweibo-mirror">SPAM //@诗享家16:洋鬼子不知足，几百亿给早了？ […</a>
 </h2>
@@ -102,7 +102,7 @@
 </h2>
 <p>BBC的女记者问习一个很有意思的问题：为什么你认为英国民众应该高兴与这样的一个国家加强贸易往来？它不民主、不透明、对人权的态度令人深深不安。习总书记摘下耳机，回答的也挺有意思：1、中国重视人权；2、没有一个国家的人权是完美的；3、中国愿意和英国加强人权对话。<br><img src="http://ww2.sinaimg.cn/large/4ea0dee9jw1exauhuwjrsj20q10gygp3.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3901048198206198" target="freeweibo-mirror">没有人歧视维族，那是害怕，维族里的某些人和公知走得很近，人们…</a>
 </h2>
@@ -120,19 +120,19 @@
 </h2>
 <p>//@荣剑2001:陶律说得好！<br><br>RE: 邓时代是“不争论”，胡时代是“不折腾”。现在提出“不妄议”。什么是妄议？其实，牛顿、达尔文、爱因斯坦当年哪个不是“妄议”？邓小平的“中国特色社会主义”理论也是对毛泽东思想的妄议。习仲勋先生当年说“保护不同意见者的一切权利，不受刑罚，也不受其他处分，这样才能让人畅所欲言……”</p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3901036496465510" target="freeweibo-mirror">文革之风悄然泛起，明目张胆一言堂？</a>
 </h2>
 <p>文革之风悄然泛起，明目张胆一言堂？<br><img src="http://ww3.sinaimg.cn/large/b686ce1fgw1exasvsqh5xj20hs0htacd.jpg"></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3901033808036343" target="freeweibo-mirror">唉？少写了三斤挞嘛……恩，估计是喇嘛买的时候就缺斤短两～//…</a>
 </h2>
 <p>唉？少写了三斤挞嘛……恩，估计是喇嘛买的时候就缺斤短两～//@恐龟驰骋:喇叭在喇嘛手里，说明已经换完了。我比较关心那个哑巴拿着二斤挞嘛跑去西藏干什么 ？感觉阴谋很大唉！！//@斯库里:这是真的和哑巴换了…… /@斯库里:这是真的和哑巴换了……<br><br>RE: 達賴喇叭<br><img src="http://ww2.sinaimg.cn/large/a770158cgw1exagi8qz09j20qo0lttaw.jpg"></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3901033044354675" target="freeweibo-mirror">老了 眼花了 谁帮我看看 屏幕上是 达赖喇嘛 还是达赖喇叭？…</a>
 </h2>
