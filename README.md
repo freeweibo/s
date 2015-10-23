@@ -26,6 +26,12 @@
 <p>
 	<small> ============== 1小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3901037259863344" target="freeweibo-mirror">//@荣剑2001:陶律说得好！</a>
+</h2>
+<p>//@荣剑2001:陶律说得好！<br><br>RE: 邓时代是“不争论”，胡时代是“不折腾”。现在提出“不妄议”。什么是妄议？其实，牛顿、达尔文、爱因斯坦当年哪个不是“妄议”？邓小平的“中国特色社会主义”理论也是对毛泽东思想的妄议。习仲勋先生当年说“保护不同意见者的一切权利，不受刑罚，也不受其他处分，这样才能让人畅所欲言……”</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3901029643271855" target="freeweibo-mirror">SPAM 我见过最实在的一家电商，转给那些想开网-店，想自主…</a>
 </h2>
 <p>SPAM 我见过最实在的一家电商，转给那些想开网-店，想自主创-业的朋友，不用进货，无库存风险，我们提供技术支持哦！也不用太多的时间和经验，一部智能手机或一台电脑就可以啦！非常适合个人创-业！我们快速为您提供开-店支持！成交量非常大。如果你感兴趣就加Q：2851868576</p>
@@ -48,7 +54,7 @@
 </h2>
 <p>【京东为何沦为假货避难所，还被国际商标联盟列入“恶名市场”？】国际商标联盟指出，京东因其假货、侵权商品和销售无授权商品等问题而恶名昭著，有很大比例的假货来自其第三方市场。而且，“根据一个非官方调查，由于阿里巴巴打击假货取得成效，一大批假货商已经向京东转移。”http://t.cn/RU7WZWp<br><img src="http://ww2.sinaimg.cn/large/872e8974gw1exapic9qghj20f609c0u3.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3901003982503255" target="freeweibo-mirror">SPAM 新表情get //@使徒子:卧槽.... //@p…</a>
 </h2>
@@ -102,7 +108,7 @@
 </h2>
 <p>SPAM 【人大教授包政：“有电无商”不是好电商！（值得深思）】新型电商，不应该是简单地圈顾客，而是把传统大叔中的赢家及其赢的道理或称经营范式，移植到互联网及其IT系统中去，用互联网的特点来玩赢家的范式。 http://t.cn/RU7nIuM</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3900877406890961" target="freeweibo-mirror">SPAM 薄熙来被带走时高喊：“我没罪！”      htt…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3900850793780200" target="freeweibo-mirror">SPAM 哈哈，花式撒水机</a>
 </h2>
 <p>SPAM 哈哈，花式撒水机<br><br>RE: SPAM 高难度花式撒尿，屌炸了[笑cry][笑cry]http://t.cn/RUhBT1H</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3900839921971860" target="freeweibo-mirror">一个没忍住……与君共勉@易北</a>
-</h2>
-<p>一个没忍住……与君共勉@易北<br><img src="http://ww1.sinaimg.cn/large/5855b225gw1exa6dxaakbj20dw09a3zy.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
