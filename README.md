@@ -24,7 +24,7 @@
 </h2>
 <p>长期闭口不谈，当今知道1999年丰城事件的人恐怕不多了，年轻人尤少。<br><br>RE: 镇长和干部被从二楼扔下，愤怒的农民当场在政府创了一个大坑将此二人活埋。派出所长和民警被当场打死，所长的尸体被吊在树上示众。从此以后中国取消农民一切税费！ http://t.cn/aBEtQ9<br><img src="http://ww1.sinaimg.cn/large/8c0fd53fjw1exatsm9ba0j208c05j74e.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3901159150841213" target="freeweibo-mirror">[吃惊][吃惊][吃惊]//@张修林09: 取消农业税，一是…</a>
 </h2>
@@ -114,7 +114,7 @@
 </h2>
 <p>BBC的女记者问习一个很有意思的问题：为什么你认为英国民众应该高兴与这样的一个国家加强贸易往来？它不民主、不透明、对人权的态度令人深深不安。习总书记摘下耳机，回答的也挺有意思：1、中国重视人权；2、没有一个国家的人权是完美的；3、中国愿意和英国加强人权对话。<br><img src="http://ww2.sinaimg.cn/large/4ea0dee9jw1exauhuwjrsj20q10gygp3.jpg"></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3901048198206198" target="freeweibo-mirror">没有人歧视维族，那是害怕，维族里的某些人和公知走得很近，人们…</a>
 </h2>
