@@ -62,6 +62,12 @@
 <p>
 	<small> ============== 4小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3901033044354675" target="freeweibo-mirror">老了 眼花了 谁帮我看看 屏幕上是 达赖喇嘛 还是达赖喇叭？…</a>
+</h2>
+<p>老了 眼花了 谁帮我看看 屏幕上是 达赖喇嘛 还是达赖喇叭？？<br><img src="http://ww3.sinaimg.cn/large/53b3bff5jw1exasjz64ynj20c307wmxq.jpg"></p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3901031555929653" target="freeweibo-mirror">喇叭在喇嘛手里，说明已经换完了。我比较关心那个哑巴拿着二斤挞…</a>
 </h2>
 <p>喇叭在喇嘛手里，说明已经换完了。我比较关心那个哑巴拿着二斤挞嘛跑去西藏干什么 ？感觉阴谋很大唉！！//@斯库里:这是真的和哑巴换了…… /@斯库里:这是真的和哑巴换了……<br><br>RE: 達賴喇叭<br><img src="http://ww2.sinaimg.cn/large/a770158cgw1exagi8qz09j20qo0lttaw.jpg"></p>
@@ -104,6 +110,12 @@
 <p>
 	<small> ============== 11小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3900928077468871" target="freeweibo-mirror">達賴喇叭</a>
+</h2>
+<p>達賴喇叭<br><img src="http://ww2.sinaimg.cn/large/a770158cgw1exagi8qz09j20qo0lttaw.jpg"></p>
+<p>
+	<small> ============== 11小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3900916786650557" target="freeweibo-mirror">//@benben马甲://@蓦然回首时评微博:转发微博</a>
 </h2>
 <p>//@benben马甲://@蓦然回首时评微博:转发微博</p>
@@ -125,18 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3900884193332654" target="freeweibo-mirror">SPAM //@沈阳张晶: //@徐昕:坚决拥护 //@张晨…</a>
 </h2>
 <p>SPAM //@沈阳张晶: //@徐昕:坚决拥护 //@张晨初艺术空间: //@松無止境: //@张庭源律师2：鼓掌通过[鼓掌]<br><br>RE: 期待<br><img src="http://ww1.sinaimg.cn/large/41693645gw1exa9a5bty2j20j40pm0yn.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3900884116967955" target="freeweibo-mirror">SPAM  //@徐昕:坚决拥护 //@张晨初艺术空间: /…</a>
-</h2>
-<p>SPAM  //@徐昕:坚决拥护 //@张晨初艺术空间: //@松無止境: //@张庭源律师2：鼓掌通过[鼓掌]<br><br>RE: 期待<br><img src="http://ww1.sinaimg.cn/large/41693645gw1exa9a5bty2j20j40pm0yn.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3900880929909402" target="freeweibo-mirror">SPAM 超赞！！</a>
-</h2>
-<p>SPAM 超赞！！</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
