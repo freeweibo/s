@@ -32,6 +32,18 @@
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3901152762161608" target="freeweibo-mirror">//@敢于先天: 严惩凶手</a>
+</h2>
+<p>//@敢于先天: 严惩凶手</p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3901142964606007" target="freeweibo-mirror">[吃惊]#求证警员杀人分尸# 四川省宜宾市公安局一名警员因杀…</a>
+</h2>
+<p>[吃惊]#求证警员杀人分尸# 四川省宜宾市公安局一名警员因杀人分尸，已被擒获。有消息称，该警员向他人借了100多万元。债主催债，他就动了杀机，经谋划后对其下了手。</p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3901129962141622" target="freeweibo-mirror">//@不变应万变369://@老了糊涂的赵宪君:背叛了毛泽东…</a>
 </h2>
 <p>//@不变应万变369://@老了糊涂的赵宪君:背叛了毛泽东思想的党派，得不到人民的拥护，只有死路一条！//@姬红: 蟹帝是谁？ 谁还在张牙舞爪横行霸道？[思考]<br><br>RE: 包帝开始整党了，蟹帝真是弱爆了[doge]刚开始我们都以为蟹帝在隐忍，有知止不殆的智慧，然后他一直“止”到卸任，于是我们才知道他是真没招[doge]</p>
@@ -48,7 +60,7 @@
 </h2>
 <p>SPAM </p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3901122739880033" target="freeweibo-mirror">刚刚手癌删了，再发一次吧！简直毫无违和感哈哈哈哈哈哈哈</a>
 </h2>
@@ -125,18 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3901043785687554" target="freeweibo-mirror">镇长和干部被从二楼扔下，愤怒的农民当场在政府创了一个大坑将此…</a>
 </h2>
 <p>镇长和干部被从二楼扔下，愤怒的农民当场在政府创了一个大坑将此二人活埋。派出所长和民警被当场打死，所长的尸体被吊在树上示众。从此以后中国取消农民一切税费！ http://t.cn/aBEtQ9<br><img src="http://ww1.sinaimg.cn/large/8c0fd53fjw1exatsm9ba0j208c05j74e.jpg"></p>
-<p>
-	<small> ============== 11小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3901040011167888" target="freeweibo-mirror">//@北京杨博: 限制言论自由，新京报公开违宪？</a>
-</h2>
-<p>//@北京杨博: 限制言论自由，新京报公开违宪？<br><br>RE: 文革之风悄然泛起，明目张胆一言堂？<br><img src="http://ww3.sinaimg.cn/large/b686ce1fgw1exasvsqh5xj20hs0htacd.jpg"></p>
-<p>
-	<small> ============== 11小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3901037259863344" target="freeweibo-mirror">//@荣剑2001:陶律说得好！</a>
-</h2>
-<p>//@荣剑2001:陶律说得好！<br><br>RE: 邓时代是“不争论”，胡时代是“不折腾”。现在提出“不妄议”。什么是妄议？其实，牛顿、达尔文、爱因斯坦当年哪个不是“妄议”？邓小平的“中国特色社会主义”理论也是对毛泽东思想的妄议。习仲勋先生当年说“保护不同意见者的一切权利，不受刑罚，也不受其他处分，这样才能让人畅所欲言……”</p>
 <p>
 	<small> ============== 11小时前</small>
 </p>
