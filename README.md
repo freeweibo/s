@@ -36,7 +36,7 @@
 </h2>
 <p>SPAM //@诗享家16:洋鬼子不知足，几百亿给早了？ [偷笑]//@加菲炮1314cat: //@牧野天涯3253:哪壶不开提哪壶[哈哈]/<br><br>RE: 事頭婆！<br><img src="http://ww4.sinaimg.cn/large/006eZyw6jw1ex9ygseanlj30k00lcjul.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3901048198206198" target="freeweibo-mirror">没有人歧视维族，那是害怕，维族里的某些人和公知走得很近，人们…</a>
 </h2>
