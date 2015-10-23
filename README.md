@@ -42,7 +42,7 @@
 </h2>
 <p>//@benben马甲://@蓦然回首时评微博:转发微博</p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3900908557679487" target="freeweibo-mirror">SPAM the economist和Time關於Xi的封面…</a>
 </h2>
