@@ -20,6 +20,18 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3901192880595110" target="freeweibo-mirror">SPAM 夹个5.6只应该可以吧 //@荷包蛋一块七:@沈虹…</a>
+</h2>
+<p>SPAM 夹个5.6只应该可以吧 //@荷包蛋一块七:@沈虹杉 行吗[挖鼻]<br><br>RE: 【如果你的下乳不能夹住铅笔，你就没资格穿BRA】1971年美国美国乳房研究学家R·罗森博格博士提出「铅笔测试」，只有用下乳夹住铅笔后不掉落，才表示“已正式的成为女人，享有所有伴随的荣耀”，假如做不到，你就不需要穿BRA因为你根！本！没！发！育！好！(╯‵□′)╯︵┻━┻<br><img src="http://ww3.sinaimg.cn/large/7faa1697gw1exb0al047fj20by080ab2.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3901190893189374" target="freeweibo-mirror">//@章国锡: 告诉我们一个真理:从来没有白送的权利！//@…</a>
+</h2>
+<p>//@章国锡: 告诉我们一个真理:从来没有白送的权利！//@网络正义战士://@萧山维权者戴鸿: //@承德刘松波://@林州老狗:转发微博</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3901171133436285" target="freeweibo-mirror">长期闭口不谈，当今知道1999年丰城事件的人恐怕不多了，年轻…</a>
 </h2>
 <p>长期闭口不谈，当今知道1999年丰城事件的人恐怕不多了，年轻人尤少。<br><br>RE: 镇长和干部被从二楼扔下，愤怒的农民当场在政府创了一个大坑将此二人活埋。派出所长和民警被当场打死，所长的尸体被吊在树上示众。从此以后中国取消农民一切税费！ http://t.cn/aBEtQ9<br><img src="http://ww1.sinaimg.cn/large/8c0fd53fjw1exatsm9ba0j208c05j74e.jpg"></p>
@@ -96,7 +108,7 @@
 </h2>
 <p>SPAM 我看这报纸的总编辑应该下台了。</p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3901083350828348" target="freeweibo-mirror">SPAM 是吗？</a>
 </h2>
@@ -125,18 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3901049880049710" target="freeweibo-mirror">BBC的女记者问习一个很有意思的问题：为什么你认为英国民众应…</a>
 </h2>
 <p>BBC的女记者问习一个很有意思的问题：为什么你认为英国民众应该高兴与这样的一个国家加强贸易往来？它不民主、不透明、对人权的态度令人深深不安。习总书记摘下耳机，回答的也挺有意思：1、中国重视人权；2、没有一个国家的人权是完美的；3、中国愿意和英国加强人权对话。<br><img src="http://ww2.sinaimg.cn/large/4ea0dee9jw1exauhuwjrsj20q10gygp3.jpg"></p>
-<p>
-	<small> ============== 11小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3901048198206198" target="freeweibo-mirror">没有人歧视维族，那是害怕，维族里的某些人和公知走得很近，人们…</a>
-</h2>
-<p>没有人歧视维族，那是害怕，维族里的某些人和公知走得很近，人们都害怕。 //@洋溢天空: //@悠悠又见南山:维族要多从自身找问题，要反思，为什么不查别人专查你，维族对自己民族的害群之马都做了哪些反击？或者不是害群之马，是民族英雄是圣战士<br><br>RE: 我在08年暑假在京某酒店实习，培训时经理就曾说：见到新疆西藏的就说没房。次日经理查看身份证才发现我是维吾尔族，当天就被开除了，我北京同学却被留下来了。新疆人就算顺利入住也会被特殊检查，这是为了排查坏人，但是却寒了多少老百姓的心，值吗？望找到更好的办法！ http://t.cn/RU7cKc4 .</p>
-<p>
-	<small> ============== 11小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3901043785687554" target="freeweibo-mirror">镇长和干部被从二楼扔下，愤怒的农民当场在政府创了一个大坑将此…</a>
-</h2>
-<p>镇长和干部被从二楼扔下，愤怒的农民当场在政府创了一个大坑将此二人活埋。派出所长和民警被当场打死，所长的尸体被吊在树上示众。从此以后中国取消农民一切税费！ http://t.cn/aBEtQ9<br><img src="http://ww1.sinaimg.cn/large/8c0fd53fjw1exatsm9ba0j208c05j74e.jpg"></p>
 <p>
 	<small> ============== 11小时前</small>
 </p>
