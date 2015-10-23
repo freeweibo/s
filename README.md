@@ -96,7 +96,7 @@
 </h2>
 <p>SPAM 哈哈，花式撒水机<br><br>RE: SPAM 高难度花式撒尿，屌炸了[笑cry][笑cry]http://t.cn/RUhBT1H</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3900836486474701" target="freeweibo-mirror">SPAM 高难度花式撒尿，屌炸了[笑cry][笑cry]ht…</a>
 </h2>
