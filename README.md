@@ -42,7 +42,7 @@
 </h2>
 <p>英国单车男PK中国爱国青年http://t.cn/RUzprQE</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3901089411880075" target="freeweibo-mirror">SPAM 我看这报纸的总编辑应该下台了。</a>
 </h2>
@@ -108,7 +108,7 @@
 </h2>
 <p>唉？少写了三斤挞嘛……恩，估计是喇嘛买的时候就缺斤短两～//@恐龟驰骋:喇叭在喇嘛手里，说明已经换完了。我比较关心那个哑巴拿着二斤挞嘛跑去西藏干什么 ？感觉阴谋很大唉！！//@斯库里:这是真的和哑巴换了…… /@斯库里:这是真的和哑巴换了……<br><br>RE: 達賴喇叭<br><img src="http://ww2.sinaimg.cn/large/a770158cgw1exagi8qz09j20qo0lttaw.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3901033044354675" target="freeweibo-mirror">老了 眼花了 谁帮我看看 屏幕上是 达赖喇嘛 还是达赖喇叭？…</a>
 </h2>
@@ -138,7 +138,7 @@
 </h2>
 <p>昨天“妄议”成了媒体的热词，报纸上的头版通栏大标题看起来的确令人惊心动魄，我作为非党人士，按理说不必操心人家党内的事情。但从大学起读党史，知道党史几乎就是一部不断妄议大政方针的历史，陈独秀、瞿秋白、李立三、王明的大政方针不就是被妄议掉的吗？！毛的继续革命理论不也是被妄议掉了吗？！<br><img src="http://ww3.sinaimg.cn/large/005XsazYjw1exaqol93bxj30nq0hsabp.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p>
 <table>
     <tr>
