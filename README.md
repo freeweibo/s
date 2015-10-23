@@ -24,7 +24,7 @@
 </h2>
 <p>//@不变应万变369://@老了糊涂的赵宪君:背叛了毛泽东思想的党派，得不到人民的拥护，只有死路一条！//@姬红: 蟹帝是谁？ 谁还在张牙舞爪横行霸道？[思考]<br><br>RE: 包帝开始整党了，蟹帝真是弱爆了[doge]刚开始我们都以为蟹帝在隐忍，有知止不殆的智慧，然后他一直“止”到卸任，于是我们才知道他是真没招[doge]</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3901128238556213" target="freeweibo-mirror">//@亮剑兄来了://@励志香港: 说的太他么帮了</a>
 </h2>
@@ -96,7 +96,7 @@
 </h2>
 <p>SPAM //@诗享家16:洋鬼子不知足，几百亿给早了？ [偷笑]//@加菲炮1314cat: //@牧野天涯3253:哪壶不开提哪壶[哈哈]/<br><br>RE: 事頭婆！<br><img src="http://ww4.sinaimg.cn/large/006eZyw6jw1ex9ygseanlj30k00lcjul.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3901049880049710" target="freeweibo-mirror">BBC的女记者问习一个很有意思的问题：为什么你认为英国民众应…</a>
 </h2>
