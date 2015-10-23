@@ -90,7 +90,7 @@
 </h2>
 <p>SPAM [衰]真的？<br><img src="http://ww3.sinaimg.cn/large/60100c3cgw1exa7ovj2cpj20ch0m8goa.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3900850793780200" target="freeweibo-mirror">SPAM 哈哈，花式撒水机</a>
 </h2>
