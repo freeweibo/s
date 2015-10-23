@@ -78,7 +78,7 @@
 </h2>
 <p>喇叭在喇嘛手里，说明已经换完了。我比较关心那个哑巴拿着二斤挞嘛跑去西藏干什么 ？感觉阴谋很大唉！！//@斯库里:这是真的和哑巴换了…… /@斯库里:这是真的和哑巴换了……<br><br>RE: 達賴喇叭<br><img src="http://ww2.sinaimg.cn/large/a770158cgw1exagi8qz09j20qo0lttaw.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3901029643271855" target="freeweibo-mirror">SPAM 我见过最实在的一家电商，转给那些想开网-店，想自主…</a>
 </h2>
