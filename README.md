@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3901106796718677" target="freeweibo-mirror">他们重视官权，不在乎人权。//@蓝星虫语://@艾群策微博:…</a>
+</h2>
+<p>他们重视官权，不在乎人权。//@蓝星虫语://@艾群策微博:抓我司股东一赵岩记者，再抓蒲志强、王宇、张凯律师一一我司法律顾问，人权…<br><br>RE: BBC的女记者问习一个很有意思的问题：为什么你认为英国民众应该高兴与这样的一个国家加强贸易往来？它不民主、不透明、对人权的态度令人深深不安。习总书记摘下耳机，回答的也挺有意思：1、中国重视人权；2、没有一个国家的人权是完美的；3、中国愿意和英国加强人权对话。<br><img src="http://ww2.sinaimg.cn/large/4ea0dee9jw1exauhuwjrsj20q10gygp3.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3901098005792536" target="freeweibo-mirror">SPAM [哈哈]//@燕山刀客A:我看这报纸的总编辑应该下…</a>
 </h2>
 <p>SPAM [哈哈]//@燕山刀客A:我看这报纸的总编辑应该下台了。</p>
@@ -108,7 +114,7 @@
 </h2>
 <p>禁止党内民主吗？党内都不能妄议，社会主义核心价值观怎样体现？是否把民主、自由等从价值观中拿掉？</p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3901019316112197" target="freeweibo-mirror">昨天“妄议”成了媒体的热词，报纸上的头版通栏大标题看起来的确…</a>
 </h2>
@@ -133,12 +139,6 @@
 <p>这标题，岂止是妄议，简直就是忤逆[汗]<br><img src="http://ww3.sinaimg.cn/large/d3e9af42jw1exao3lvpv1j20m80cita5.jpg"></p>
 <p>
 	<small> ============== 9小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3900929499300652" target="freeweibo-mirror">习总太客气了，我们保证不妄议朝政。。//@徐战前: 习总客气…</a>
-</h2>
-<p>习总太客气了，我们保证不妄议朝政。。//@徐战前: 习总客气！所在国人民怎么发言？最大的发言权还是在你那里嘛。</p>
-<p>
-	<small> ============== 1天前</small>
 </p>
 <table>
     <tr>
