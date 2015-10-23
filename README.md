@@ -72,7 +72,7 @@
 </h2>
 <p>SPAM 薄熙来被带走时高喊：“我没罪！”      http://t.cn/RU7nwCS<br><img src="http://ww2.sinaimg.cn/large/006fsUM3jw1exaaoyley6j30c81hgao3.jpg"></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3900865121759079" target="freeweibo-mirror">期待</a>
 </h2>
