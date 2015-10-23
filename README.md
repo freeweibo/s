@@ -20,6 +20,18 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3901270295175856" target="freeweibo-mirror">SPAM 赶紧看哦。</a>
+</h2>
+<p>SPAM 赶紧看哦。<br><br>RE: 分享视频 http://t.cn/RUZW2IJ .</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3901267476507678" target="freeweibo-mirror">//@猫胡子003://@未得糊涂://@宏鑫88: //@…</a>
+</h2>
+<p>//@猫胡子003://@未得糊涂://@宏鑫88: //@崖上尋芳草://@台北101二: [思考]。。。还是不予置评！//@jhw777: @台北101二 这位英国人蛮了解中国国情，对不？<br><br>RE: 分享视频 http://t.cn/RUZW2IJ .</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3901259994334729" target="freeweibo-mirror">SPAM 還是勸籲各位朋友，沒必要對一坨屎評頭論足。抬舉它了…</a>
 </h2>
 <p>SPAM 還是勸籲各位朋友，沒必要對一坨屎評頭論足。抬舉它了。//@山爪Y牆:第一屆在北京新聞大廈頒獎給連戰，孔慶東之流搞的湨奬，還有人栽贓到香港頭上[鄙视] http://t.cn/RUZTrc7<br><br>RE: 分享图片<br><img src="http://ww2.sinaimg.cn/large/65cfb01djw1ew5q9p93rfj20f00qodje.jpg"></p>
@@ -90,7 +102,7 @@
 </h2>
 <p>长期闭口不谈，当今知道1999年丰城事件的人恐怕不多了，年轻人尤少。<br><br>RE: 镇长和干部被从二楼扔下，愤怒的农民当场在政府创了一个大坑将此二人活埋。派出所长和民警被当场打死，所长的尸体被吊在树上示众。从此以后中国取消农民一切税费！ http://t.cn/aBEtQ9<br><img src="http://ww1.sinaimg.cn/large/8c0fd53fjw1exatsm9ba0j208c05j74e.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3901161188455050" target="freeweibo-mirror">要不是几个老头子1976年妄议大政方针，搞了一下子，我们现在…</a>
 </h2>
@@ -125,18 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3901129962141622" target="freeweibo-mirror">//@不变应万变369://@老了糊涂的赵宪君:背叛了毛泽东…</a>
 </h2>
 <p>//@不变应万变369://@老了糊涂的赵宪君:背叛了毛泽东思想的党派，得不到人民的拥护，只有死路一条！//@姬红: 蟹帝是谁？ 谁还在张牙舞爪横行霸道？[思考]<br><br>RE: 包帝开始整党了，蟹帝真是弱爆了[doge]刚开始我们都以为蟹帝在隐忍，有知止不殆的智慧，然后他一直“止”到卸任，于是我们才知道他是真没招[doge]</p>
-<p>
-	<small> ============== 10小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3901128238556213" target="freeweibo-mirror">//@亮剑兄来了://@励志香港: 说的太他么帮了</a>
-</h2>
-<p>//@亮剑兄来了://@励志香港: 说的太他么帮了</p>
-<p>
-	<small> ============== 10小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3901127802489597" target="freeweibo-mirror">SPAM </a>
-</h2>
-<p>SPAM </p>
 <p>
 	<small> ============== 10小时前</small>
 </p>
