@@ -26,6 +26,12 @@
 <p>
 	<small> ============== 1小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3901159150841213" target="freeweibo-mirror">[吃惊][吃惊][吃惊]//@张修林09: 取消农业税，一是…</a>
+</h2>
+<p>[吃惊][吃惊][吃惊]//@张修林09: 取消农业税，一是因为农民抗重税抗得太厉害了，二是加入WTO经济发展以及卖地财政后，收农业税的成本已大于农业税本身。//@大浪再淘仨:哦，是吗，第一次听说<br><br>RE: 镇长和干部被从二楼扔下，愤怒的农民当场在政府创了一个大坑将此二人活埋。派出所长和民警被当场打死，所长的尸体被吊在树上示众。从此以后中国取消农民一切税费！ http://t.cn/aBEtQ9<br><img src="http://ww1.sinaimg.cn/large/8c0fd53fjw1exatsm9ba0j208c05j74e.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3901129962141622" target="freeweibo-mirror">//@不变应万变369://@老了糊涂的赵宪君:背叛了毛泽东…</a>
 </h2>
 <p>//@不变应万变369://@老了糊涂的赵宪君:背叛了毛泽东思想的党派，得不到人民的拥护，只有死路一条！//@姬红: 蟹帝是谁？ 谁还在张牙舞爪横行霸道？[思考]<br><br>RE: 包帝开始整党了，蟹帝真是弱爆了[doge]刚开始我们都以为蟹帝在隐忍，有知止不殆的智慧，然后他一直“止”到卸任，于是我们才知道他是真没招[doge]</p>
@@ -78,7 +84,7 @@
 </h2>
 <p>SPAM 我看这报纸的总编辑应该下台了。</p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3901083350828348" target="freeweibo-mirror">SPAM 是吗？</a>
 </h2>
@@ -90,7 +96,7 @@
 </h2>
 <p>SPAM OPPO R7s广州品鉴会。 #OPPO拍照手机R7s# http://t.cn/RZLmA0q<br><img src="http://ww4.sinaimg.cn/large/851b9922gw1exaxf37550j21w01w01kx.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3901067987632984" target="freeweibo-mirror">SPAM 哈哈哈哈，媒体人的文化…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3901036496465510" target="freeweibo-mirror">文革之风悄然泛起，明目张胆一言堂？</a>
 </h2>
 <p>文革之风悄然泛起，明目张胆一言堂？<br><img src="http://ww3.sinaimg.cn/large/b686ce1fgw1exasvsqh5xj20hs0htacd.jpg"></p>
-<p>
-	<small> ============== 10小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3901033808036343" target="freeweibo-mirror">唉？少写了三斤挞嘛……恩，估计是喇嘛买的时候就缺斤短两～//…</a>
-</h2>
-<p>唉？少写了三斤挞嘛……恩，估计是喇嘛买的时候就缺斤短两～//@恐龟驰骋:喇叭在喇嘛手里，说明已经换完了。我比较关心那个哑巴拿着二斤挞嘛跑去西藏干什么 ？感觉阴谋很大唉！！//@斯库里:这是真的和哑巴换了…… /@斯库里:这是真的和哑巴换了……<br><br>RE: 達賴喇叭<br><img src="http://ww2.sinaimg.cn/large/a770158cgw1exagi8qz09j20qo0lttaw.jpg"></p>
 <p>
 	<small> ============== 10小时前</small>
 </p>
