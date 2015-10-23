@@ -48,7 +48,7 @@
 </h2>
 <p>禁止党内民主吗？党内都不能妄议，社会主义核心价值观怎样体现？是否把民主、自由等从价值观中拿掉？</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3901019316112197" target="freeweibo-mirror">昨天“妄议”成了媒体的热词，报纸上的头版通栏大标题看起来的确…</a>
 </h2>
@@ -96,13 +96,13 @@
 </h2>
 <p>SPAM //@沈阳张晶: //@徐昕:坚决拥护 //@张晨初艺术空间: //@松無止境: //@张庭源律师2：鼓掌通过[鼓掌]<br><br>RE: 期待<br><img src="http://ww1.sinaimg.cn/large/41693645gw1exa9a5bty2j20j40pm0yn.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3900884116967955" target="freeweibo-mirror">SPAM  //@徐昕:坚决拥护 //@张晨初艺术空间: /…</a>
 </h2>
 <p>SPAM  //@徐昕:坚决拥护 //@张晨初艺术空间: //@松無止境: //@张庭源律师2：鼓掌通过[鼓掌]<br><br>RE: 期待<br><img src="http://ww1.sinaimg.cn/large/41693645gw1exa9a5bty2j20j40pm0yn.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3900880929909402" target="freeweibo-mirror">SPAM 超赞！！</a>
 </h2>
