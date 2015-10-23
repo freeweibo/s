@@ -24,7 +24,7 @@
 </h2>
 <p>SPAM 哈哈哈哈，媒体人的文化…<br><br>RE: 老了 眼花了 谁帮我看看 屏幕上是 达赖喇嘛 还是达赖喇叭？？<br><img src="http://ww3.sinaimg.cn/large/53b3bff5jw1exasjz64ynj20c307wmxq.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3901054225263975" target="freeweibo-mirror">SPAM //@诗享家16:洋鬼子不知足，几百亿给早了？ […</a>
 </h2>
@@ -48,7 +48,7 @@
 </h2>
 <p>//@荣剑2001:陶律说得好！<br><br>RE: 邓时代是“不争论”，胡时代是“不折腾”。现在提出“不妄议”。什么是妄议？其实，牛顿、达尔文、爱因斯坦当年哪个不是“妄议”？邓小平的“中国特色社会主义”理论也是对毛泽东思想的妄议。习仲勋先生当年说“保护不同意见者的一切权利，不受刑罚，也不受其他处分，这样才能让人畅所欲言……”</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3901036496465510" target="freeweibo-mirror">文革之风悄然泛起，明目张胆一言堂？</a>
 </h2>
@@ -108,7 +108,7 @@
 </h2>
 <p>//@benben马甲://@蓦然回首时评微博:转发微博</p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3900908557679487" target="freeweibo-mirror">SPAM the economist和Time關於Xi的封面…</a>
 </h2>
