@@ -108,7 +108,7 @@
 </h2>
 <p>SPAM 超赞！！</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3900878119780434" target="freeweibo-mirror">SPAM 【人大教授包政：“有电无商”不是好电商！（值得深思…</a>
 </h2>
