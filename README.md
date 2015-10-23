@@ -24,7 +24,7 @@
 </h2>
 <p>SPAM 還是勸籲各位朋友，沒必要對一坨屎評頭論足。抬舉它了。//@山爪Y牆:第一屆在北京新聞大廈頒獎給連戰，孔慶東之流搞的湨奬，還有人栽贓到香港頭上[鄙视] http://t.cn/RUZTrc7<br><br>RE: 分享图片<br><img src="http://ww2.sinaimg.cn/large/65cfb01djw1ew5q9p93rfj20f00qodje.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3901239026503354" target="freeweibo-mirror">SPAM [吃惊]//@张国庆看天下: 央行马屁功夫世界一流…</a>
 </h2>
@@ -84,7 +84,7 @@
 </h2>
 <p>//@萧山维权者戴鸿: //@承德刘松波://@林州老狗:转发微博</p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3901171133436285" target="freeweibo-mirror">长期闭口不谈，当今知道1999年丰城事件的人恐怕不多了，年轻…</a>
 </h2>
