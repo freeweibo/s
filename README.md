@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3901445302277127" target="freeweibo-mirror">SPAM 如果孩子不爱爹妈，我就不要这个孩子！</a>
+</h2>
+<p>SPAM 如果孩子不爱爹妈，我就不要这个孩子！<br><br>RE: 说谎的本领，从娃娃抓起。<br><img src="http://ww4.sinaimg.cn/large/41693645gw1exc2mnppgzj20zk0zk79a.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3901442932352379" target="freeweibo-mirror">唉//@袁裕来律师:转发微博</a>
 </h2>
 <p>唉//@袁裕来律师:转发微博<br><br>RE: 【困难】总书记曾经说要容纳尖锐的批评意见，现在却又说不许妄议，我们无法辨别这两者之间的界限，唯一的选项只能是：啥也别说。<br><img src="http://ww1.sinaimg.cn/large/48866320jw1exbij5m6l9j20m80go76o.jpg"></p>
@@ -133,12 +139,6 @@
 <p>要历史地看问题，那个年代就是你死我活的，武器的批判为主。60年代灭异己也是不遗余力的，主席元帅一样灭。现在的人们善良多了，不免将过去往好了想。 //@十年砍柴:右边凭什么说高华的书是谣言。你作为毛的好孩子没听说“革命不是请客吃饭”么？ //@lygmstar:狗日的畜牲你造谣言放屁不得好死。！</p>
 <p>
 	<small> ============== 7小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3901357427440279" target="freeweibo-mirror">SPAM 发表了一篇转载博文《[转载]千疮百孔的中国农村》h…</a>
-</h2>
-<p>SPAM 发表了一篇转载博文《[转载]千疮百孔的中国农村》http://t.cn/RUwLa78</p>
-<p>
-	<small> ============== 8小时前</small>
 </p>
 <table>
     <tr>
