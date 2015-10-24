@@ -32,6 +32,12 @@
 <p>
 	<small> ============== 1小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3901379963737343" target="freeweibo-mirror">1、1949年中国共产党执政后，客观上要求派系政治制度化，以…</a>
+</h2>
+<p>1、1949年中国共产党执政后，客观上要求派系政治制度化，以容纳执政集团内部的施政分歧。实际上，从执政开始不久，在中国共产党内部（主要是上层），在经济社会政策上就开始出现系统性分歧。这种分歧在很大... http://t.cn/RUwqsRY</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3901372078127306" target="freeweibo-mirror">要容纳尖锐的批评意见，是习总自己说的；不让妄议中央，是中共中…</a>
 </h2>
 <p>要容纳尖锐的批评意见，是习总自己说的；不让妄议中央，是中共中央发布的《中国共产党纪律处分条例》的规定。根据个人服从组织、全党服从中央的原则，肯定是按条例规定来。记住：不得妄议！</p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3901263055675931" target="freeweibo-mirror">对资本主义国家的报道，适用相反的原则。</a>
 </h2>
 <p>对资本主义国家的报道，适用相反的原则。<br><br>RE: 学习了。<br><img src="http://ww1.sinaimg.cn/large/62553213gw1exbimy703fj20yi08waet.jpg"></p>
-<p>
-	<small> ============== 10小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3901260783060972" target="freeweibo-mirror">//@宏鑫88: //@崖上尋芳草://@台北101二: […</a>
-</h2>
-<p>//@宏鑫88: //@崖上尋芳草://@台北101二: [思考]。。。还是不予置评！//@jhw777: @台北101二 这位英国人蛮了解中国国情，对不？<br><br>RE: 分享视频 http://t.cn/RUZW2IJ .</p>
 <p>
 	<small> ============== 10小时前</small>
 </p>
