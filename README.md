@@ -30,7 +30,7 @@
 </h2>
 <p>//@edwards_l5: [笑cry]//@邱仦剛:右边够了 //@JN梁:还有林俊杰的江南 曹操 一千年以后等等//@谢泼德:我主持中央工作以来，收听了很多新加坡音乐作品，其中有孙燕姿的天黑黑遇见我要的幸福超快感年轻@娘歆:这回不能报书名了吧！你总不能说你恭读过老李的反共回忆录吧/@SgtPiggy:新加坡作家哪家强<br><br>RE: 据非正式消息，下月，中国国家主席习近平携夫人来访新加坡。 http://t.cn/8Fv0fJX<br><img src="http://ww3.sinaimg.cn/large/7d410493gw1excetw5u28j20hs0doq3z.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3901623170989399" target="freeweibo-mirror">SPAM 我喜欢招代理，但我不喜欢劝人做代理。我可以保证货的…</a>
 </h2>
