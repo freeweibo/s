@@ -102,7 +102,7 @@
 </h2>
 <p>【贺教授又在妄议中央】总书记曾经说要容纳尖锐的批评意见，现在却又说不许妄议，我们无法辨别这两者之间的界限，唯一的选项只能是：啥也别说。[话筒]<br><img src="http://ww1.sinaimg.cn/large/6b2e7e57jw1exbshc0om3j20hs0vk78b.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3901284396742681" target="freeweibo-mirror">这英语说得真好！分享视频：分享视频 http://t.cn/…</a>
 </h2>
@@ -114,7 +114,7 @@
 </h2>
 <p>SPAM 赶紧看哦。<br><br>RE: 分享视频 http://t.cn/RUZW2IJ .</p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3901269502209154" target="freeweibo-mirror">//@黎勇01://@许志彪律师: 自信哪里去了？大声喊“好…</a>
 </h2>
