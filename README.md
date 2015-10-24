@@ -98,6 +98,12 @@
 <p>
 	<small> ============== 5小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3901345838592416" target="freeweibo-mirror">【贺教授又在妄议中央】总书记曾经说要容纳尖锐的批评意见，现在…</a>
+</h2>
+<p>【贺教授又在妄议中央】总书记曾经说要容纳尖锐的批评意见，现在却又说不许妄议，我们无法辨别这两者之间的界限，唯一的选项只能是：啥也别说。[话筒]<br><img src="http://ww1.sinaimg.cn/large/6b2e7e57jw1exbshc0om3j20hs0vk78b.jpg"></p>
+<p>
+	<small> ============== 6小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3901284396742681" target="freeweibo-mirror">这英语说得真好！分享视频：分享视频 http://t.cn/…</a>
 </h2>
 <p>这英语说得真好！分享视频：分享视频 http://t.cn/RUZW2IJ</p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3901264687261063" target="freeweibo-mirror">//@敬禹曰: 有宣传，没新闻。//@邵明波:这是主事者脑容…</a>
 </h2>
 <p>//@敬禹曰: 有宣传，没新闻。//@邵明波:这是主事者脑容量太低，还是我等百姓尚未开化？//@吴铭: 对资本主义国家的报道，适用相反的原则。<br><br>RE: 学习了。<br><img src="http://ww1.sinaimg.cn/large/62553213gw1exbimy703fj20yi08waet.jpg"></p>
-<p>
-	<small> ============== 11小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3901263836470312" target="freeweibo-mirror">这是主事者脑容量太低，还是我等百姓尚未开化？//@吴铭: 对…</a>
-</h2>
-<p>这是主事者脑容量太低，还是我等百姓尚未开化？//@吴铭: 对资本主义国家的报道，适用相反的原则。<br><br>RE: 学习了。<br><img src="http://ww1.sinaimg.cn/large/62553213gw1exbimy703fj20yi08waet.jpg"></p>
 <p>
 	<small> ============== 11小时前</small>
 </p>
