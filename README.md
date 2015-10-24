@@ -32,11 +32,17 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3901607790370763" target="freeweibo-mirror">【最贵之尴尬演讲】英国下院议长约翰•伯考介绍习并表示：“希望…</a>
+</h2>
+<p>【最贵之尴尬演讲】英国下院议长约翰•伯考介绍习并表示：“希望中国成为不仅军事强大的国家，而且是给百姓福利待遇，给人民道德灵感的国家。英国欢迎中国的经济合作，但是希望经济果实由全体中国人民分享，而不希望经济果实由极少数政客亲属所垄断……”话音未落掌声雷动！那么多钱都堵不上人的嘴！转<br><img src="http://ww2.sinaimg.cn/large/006g4yq3jw1excmkqtlpfj30bo08agly.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3901599564762865" target="freeweibo-mirror">SPAM 看上去像是照镜子、洗洗澡... //@徐昕:不是二…</a>
 </h2>
 <p>SPAM 看上去像是照镜子、洗洗澡... //@徐昕:不是二奶反腐大会吧？//@西风瘦马飘: //@亮剑兄来了: //@王师北定FK: //@lianglun1996:[哈哈]//@wm_yu: 什么会？//@荣剑2001:开什么玩笑！//@张晨初艺术空间://@静静坐着思维也是旅行:什么地方？。。。太不协调了。。。[泪]<br><br>RE: 分享图片<br><img src="http://ww2.sinaimg.cn/large/65cfb01djw1ew5q9p93rfj20f00qodje.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3901581122421637" target="freeweibo-mirror">SPAM 下个月也许有机会去实地寻访一二//@殆知阁: //…</a>
 </h2>
@@ -49,6 +55,12 @@
 <p>好多台湾网友发现：爷爷家老房子的浴室墙砖上有这种羞羞的图案。难怪以前台湾的出生率比现在高...<br><img src="http://ww2.sinaimg.cn/large/bff7300fgw1excj0ojsavj20ey0k0gmg.jpg"></p>
 <p>
 	<small> ============== 5小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3901540454960229" target="freeweibo-mirror">据非正式消息，下月，中国国家主席习近平携夫人来访新加坡。 h…</a>
+</h2>
+<p>据非正式消息，下月，中国国家主席习近平携夫人来访新加坡。 http://t.cn/8Fv0fJX<br><img src="http://ww3.sinaimg.cn/large/7d410493gw1excetw5u28j20hs0doq3z.jpg"></p>
+<p>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3901465422237878" target="freeweibo-mirror">这个帖子迄今未被删除，算是奇迹！有的发这照片的ID，不是禁言…</a>
 </h2>
@@ -125,18 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3901403246058063" target="freeweibo-mirror">//@冰雨点点红:转发微博</a>
 </h2>
 <p>//@冰雨点点红:转发微博<br><br>RE: “民主恐惧症，是特权势力特有的病灶，怕民主也就是怕群众，历史是群众创造的，怕是没有用的！”——杜老，走好[蜡烛][蜡烛][蜡烛]<br><img src="http://ww2.sinaimg.cn/large/625ab309jw1exbb9w4abaj20dc08waas.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3901400301914551" target="freeweibo-mirror">//@网易Pegasus: 党外那叫引蛇出洞，党内要服从党魁…</a>
-</h2>
-<p>//@网易Pegasus: 党外那叫引蛇出洞，党内要服从党魁，这是学毛一点不矛盾//@西门吹糠: 转发微博<br><br>RE: 【困难】总书记曾经说要容纳尖锐的批评意见，现在却又说不许妄议，我们无法辨别这两者之间的界限，唯一的选项只能是：啥也别说。<br><img src="http://ww1.sinaimg.cn/large/48866320jw1exbij5m6l9j20m80go76o.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3901394622690842" target="freeweibo-mirror">//@鹿小靓://@活着是煎熬二网易: //@卡瓦又归来:</a>
-</h2>
-<p>//@鹿小靓://@活着是煎熬二网易: //@卡瓦又归来:</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
