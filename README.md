@@ -44,6 +44,12 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3901361957447435" target="freeweibo-mirror">要历史地看问题，那个年代就是你死我活的，武器的批判为主。60…</a>
+</h2>
+<p>要历史地看问题，那个年代就是你死我活的，武器的批判为主。60年代灭异己也是不遗余力的，主席元帅一样灭。现在的人们善良多了，不免将过去往好了想。 //@十年砍柴:右边凭什么说高华的书是谣言。你作为毛的好孩子没听说“革命不是请客吃饭”么？ //@lygmstar:狗日的畜牲你造谣言放屁不得好死。！</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3901357427440279" target="freeweibo-mirror">SPAM 发表了一篇转载博文《[转载]千疮百孔的中国农村》h…</a>
 </h2>
 <p>SPAM 发表了一篇转载博文《[转载]千疮百孔的中国农村》http://t.cn/RUwLa78</p>
@@ -96,7 +102,7 @@
 </h2>
 <p>对资本主义国家的报道，适用相反的原则。<br><br>RE: 学习了。<br><img src="http://ww1.sinaimg.cn/large/62553213gw1exbimy703fj20yi08waet.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3901260783060972" target="freeweibo-mirror">//@宏鑫88: //@崖上尋芳草://@台北101二: […</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3901238976585375" target="freeweibo-mirror">//@特许连锁李维华://@水兵李铭://@陈业文新大都:[…</a>
 </h2>
 <p>//@特许连锁李维华://@水兵李铭://@陈业文新大都:[笑哈哈]只转，无需评。 //@新罗居士:转发微博<br><br>RE: 要不是几个老头子1976年妄议大政方针，搞了一下子，我们现在肯定在歌颂毛新宇。1992年，有个退休老党员北京呆不住，跑到南方妄议大政方针去了。。<br><img src="http://ww1.sinaimg.cn/large/6362d8eagw1exb77xoubxj20m80gowfn.jpg"></p>
-<p>
-	<small> ============== 10小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3901238619778147" target="freeweibo-mirror">//@水兵李铭://@陈业文新大都:[笑哈哈]只转，无需评。…</a>
-</h2>
-<p>//@水兵李铭://@陈业文新大都:[笑哈哈]只转，无需评。 //@新罗居士:转发微博<br><br>RE: 要不是几个老头子1976年妄议大政方针，搞了一下子，我们现在肯定在歌颂毛新宇。1992年，有个退休老党员北京呆不住，跑到南方妄议大政方针去了。。<br><img src="http://ww1.sinaimg.cn/large/6362d8eagw1exb77xoubxj20m80gowfn.jpg"></p>
 <p>
 	<small> ============== 10小时前</small>
 </p>
