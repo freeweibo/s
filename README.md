@@ -32,6 +32,12 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3901384778640093" target="freeweibo-mirror">//@lianglun1996://@邱惊邦呔宁: 小平说啦…</a>
+</h2>
+<p>//@lianglun1996://@邱惊邦呔宁: 小平说啦不换思想就换人//@汶金让:在一个团队中，要团结，不要分裂，要给力，不要卸力，否则，走人！[心]//@百事泰徐新华:我想习书记的意思就好比在一个公司中，个别员工拿着公司的薪水，私下抱怨着公司的各种不是，出发点却不是要解决问题，只是为了报怨和谈资<br><br>RE: 【贺教授又在妄议中央】总书记曾经说要容纳尖锐的批评意见，现在却又说不许妄议，我们无法辨别这两者之间的界限，唯一的选项只能是：啥也别说。[话筒]<br><img src="http://ww1.sinaimg.cn/large/6b2e7e57jw1exbshc0om3j20hs0vk78b.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3901379963737343" target="freeweibo-mirror">1、1949年中国共产党执政后，客观上要求派系政治制度化，以…</a>
 </h2>
 <p>1、1949年中国共产党执政后，客观上要求派系政治制度化，以容纳执政集团内部的施政分歧。实际上，从执政开始不久，在中国共产党内部（主要是上层），在经济社会政策上就开始出现系统性分歧。这种分歧在很大... http://t.cn/RUwqsRY</p>
@@ -96,7 +102,7 @@
 </h2>
 <p>这英语说得真好！分享视频：分享视频 http://t.cn/RUZW2IJ</p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3901270295175856" target="freeweibo-mirror">SPAM 赶紧看哦。</a>
 </h2>
@@ -108,13 +114,13 @@
 </h2>
 <p>//@黎勇01://@许志彪律师: 自信哪里去了？大声喊“好五倍”！[哈哈][哈哈][哈哈]<br><br>RE: 分享视频 http://t.cn/RUZW2IJ .</p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3901269150116493" target="freeweibo-mirror">[感冒]//@阿珍你来真的阿：包子心里想的是曼联</a>
 </h2>
 <p>[感冒]//@阿珍你来真的阿：包子心里想的是曼联</p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3901267476507678" target="freeweibo-mirror">//@猫胡子003://@未得糊涂://@宏鑫88: //@…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3901263836470312" target="freeweibo-mirror">这是主事者脑容量太低，还是我等百姓尚未开化？//@吴铭: 对…</a>
 </h2>
 <p>这是主事者脑容量太低，还是我等百姓尚未开化？//@吴铭: 对资本主义国家的报道，适用相反的原则。<br><br>RE: 学习了。<br><img src="http://ww1.sinaimg.cn/large/62553213gw1exbimy703fj20yi08waet.jpg"></p>
-<p>
-	<small> ============== 11小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3901263055675931" target="freeweibo-mirror">对资本主义国家的报道，适用相反的原则。</a>
-</h2>
-<p>对资本主义国家的报道，适用相反的原则。<br><br>RE: 学习了。<br><img src="http://ww1.sinaimg.cn/large/62553213gw1exbimy703fj20yi08waet.jpg"></p>
 <p>
 	<small> ============== 11小时前</small>
 </p>
