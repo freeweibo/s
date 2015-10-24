@@ -72,7 +72,7 @@
 </h2>
 <p>说谎的本领，从娃娃抓起。<br><img src="http://ww4.sinaimg.cn/large/41693645gw1exc2mnppgzj20zk0zk79a.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3901424809103592" target="freeweibo-mirror">SPAM 谁干的？？？</a>
 </h2>
