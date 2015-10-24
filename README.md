@@ -30,7 +30,7 @@
 </h2>
 <p>SPAM [哈哈]  //@然后下面就没了:</p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3901451895663803" target="freeweibo-mirror">冯桑厉害//@多难未必兴邦2014: 二鬼子比较老逼 //@…</a>
 </h2>
@@ -96,7 +96,7 @@
 </h2>
 <p>//@冰雨点点红:转发微博<br><br>RE: “民主恐惧症，是特权势力特有的病灶，怕民主也就是怕群众，历史是群众创造的，怕是没有用的！”——杜老，走好[蜡烛][蜡烛][蜡烛]<br><img src="http://ww2.sinaimg.cn/large/625ab309jw1exbb9w4abaj20dc08waas.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3901400301914551" target="freeweibo-mirror">//@网易Pegasus: 党外那叫引蛇出洞，党内要服从党魁…</a>
 </h2>
@@ -108,7 +108,7 @@
 </h2>
 <p>//@鹿小靓://@活着是煎熬二网易: //@卡瓦又归来:</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3901393276977320" target="freeweibo-mirror">//@乐尚歌: //@任志强:历史传统！</a>
 </h2>
