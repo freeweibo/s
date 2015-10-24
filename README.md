@@ -72,7 +72,7 @@
 </h2>
 <p>//@冰雨点点红:转发微博<br><br>RE: “民主恐惧症，是特权势力特有的病灶，怕民主也就是怕群众，历史是群众创造的，怕是没有用的！”——杜老，走好[蜡烛][蜡烛][蜡烛]<br><img src="http://ww2.sinaimg.cn/large/625ab309jw1exbb9w4abaj20dc08waas.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3901400301914551" target="freeweibo-mirror">//@网易Pegasus: 党外那叫引蛇出洞，党内要服从党魁…</a>
 </h2>
@@ -108,7 +108,7 @@
 </h2>
 <p>要容纳尖锐的批评意见，是习总自己说的；不让妄议中央，是中共中央发布的《中国共产党纪律处分条例》的规定。根据个人服从组织、全党服从中央的原则，肯定是按条例规定来。记住：不得妄议！</p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3901369834695275" target="freeweibo-mirror">//@杨佩昌:按周孝正老师的说法，此人手上沾满了共产党人的鲜…</a>
 </h2>
