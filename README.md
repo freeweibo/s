@@ -36,7 +36,7 @@
 </h2>
 <p>SPAM 我喜欢招代理，但我不喜欢劝人做代理。我可以保证货的品质和优质的售后服务，跟对了团队就等于成功了一大半。想加入的扫微信[悠闲]<br><img src="http://ww2.sinaimg.cn/large/6f60361cgw1excoc8nnexj20e80e8gm7.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3901618174711224" target="freeweibo-mirror">[哈哈]大家的智商都在80以上吧！//@京都探花: “保护人…</a>
 </h2>
@@ -48,7 +48,7 @@
 </h2>
 <p>【最贵之尴尬演讲】英国下院议长约翰•伯考介绍习并表示：“希望中国成为不仅军事强大的国家，而且是给百姓福利待遇，给人民道德灵感的国家。英国欢迎中国的经济合作，但是希望经济果实由全体中国人民分享，而不希望经济果实由极少数政客亲属所垄断……”话音未落掌声雷动！那么多钱都堵不上人的嘴！转<br><img src="http://ww2.sinaimg.cn/large/006g4yq3jw1excmkqtlpfj30bo08agly.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3901599564762865" target="freeweibo-mirror">SPAM 看上去像是照镜子、洗洗澡... //@徐昕:不是二…</a>
 </h2>
