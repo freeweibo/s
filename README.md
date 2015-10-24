@@ -32,6 +32,18 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3901439401074160" target="freeweibo-mirror">SPAM //@立耳犬: [吃惊][怒]//@阿泷豫滴:孔夫…</a>
+</h2>
+<p>SPAM //@立耳犬: [吃惊][怒]//@阿泷豫滴:孔夫子何辜躺枪，遭此大辱？！ //@刘耘博士:沆瀣一气。<br><br>RE: 第六届孔子和平奖授予津布巴韦总统穆加贝，原以为这是谁恶搞的笑话，没当回事，谁知居然是真的。看看这些评委都是谁吧，主席叫谯达摩，看这名字，谁知道他的来历？是从哪个江湖出来的？再看看这几个教授，谁认识他们？还有一个孔子艺术家得主，谁听说过这人？真是世界奇葩多，中国妖孽盛。<br><img src="http://ww2.sinaimg.cn/large/005XsazYjw1exbb3eudafj30p018gwnc.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3901438343978360" target="freeweibo-mirror">//@运筹帷幄唯你: //@袁裕来律师: 转发微博</a>
+</h2>
+<p>//@运筹帷幄唯你: //@袁裕来律师: 转发微博<br><br>RE: 【困难】总书记曾经说要容纳尖锐的批评意见，现在却又说不许妄议，我们无法辨别这两者之间的界限，唯一的选项只能是：啥也别说。<br><img src="http://ww1.sinaimg.cn/large/48866320jw1exbij5m6l9j20m80go76o.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3901419466149471" target="freeweibo-mirror">批评是自言自语，妄议是议论！本质的区别。 //@作家崔成浩:…</a>
 </h2>
 <p>批评是自言自语，妄议是议论！本质的区别。 //@作家崔成浩:批评和妄议，到底怎么区别？<br><br>RE: 【困难】总书记曾经说要容纳尖锐的批评意见，现在却又说不许妄议，我们无法辨别这两者之间的界限，唯一的选项只能是：啥也别说。<br><img src="http://ww1.sinaimg.cn/large/48866320jw1exbij5m6l9j20m80go76o.jpg"></p>
@@ -41,6 +53,18 @@
 	<a href="https://freeweibo.com/weibo/3901410473044295" target="freeweibo-mirror">“妄议”新规，网上反映基本负面，认为是意识形态进一步收紧，对…</a>
 </h2>
 <p>“妄议”新规，网上反映基本负面，认为是意识形态进一步收紧，对思想自由进一步打压。我认为与提出发展21世纪中国的马克思主义一样，这是习近平改革意识形态的重大步骤，是为全面深化改革清除障碍特别是来自毛左的障碍而进行的顶层设计。是不是这样，我想时间会证明一切。如果我错了，我会公开承认。</p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3901403246058063" target="freeweibo-mirror">//@冰雨点点红:转发微博</a>
+</h2>
+<p>//@冰雨点点红:转发微博<br><br>RE: “民主恐惧症，是特权势力特有的病灶，怕民主也就是怕群众，历史是群众创造的，怕是没有用的！”——杜老，走好[蜡烛][蜡烛][蜡烛]<br><img src="http://ww2.sinaimg.cn/large/625ab309jw1exbb9w4abaj20dc08waas.jpg"></p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3901400301914551" target="freeweibo-mirror">//@网易Pegasus: 党外那叫引蛇出洞，党内要服从党魁…</a>
+</h2>
+<p>//@网易Pegasus: 党外那叫引蛇出洞，党内要服从党魁，这是学毛一点不矛盾//@西门吹糠: 转发微博<br><br>RE: 【困难】总书记曾经说要容纳尖锐的批评意见，现在却又说不许妄议，我们无法辨别这两者之间的界限，唯一的选项只能是：啥也别说。<br><img src="http://ww1.sinaimg.cn/large/48866320jw1exbij5m6l9j20m80go76o.jpg"></p>
 <p>
 	<small> ============== 4小时前</small>
 </p><h2>
@@ -84,7 +108,7 @@
 </h2>
 <p>【研讨恐慌症】某教授几天前邀我参加其组织的一个将于今日在某大学召开"法治研讨会"。我应了。昨下班回家,教授还来电问我出行方式,以便安排接待。不久,教授再次来电,说今天的会议学校不让开了!奇怪:莫非受了党纪惊吓?以后还有任何高校或其他党领导的机构敢提供场地组织人文社科讲座/论坛/研讨会吗?悬！<br><img src="http://ww4.sinaimg.cn/large/4bdb1fa0jw1exbv481288j20c80c90u5.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3901368156537882" target="freeweibo-mirror">图片评论 http://t.cn/RUw4XMY</a>
 </h2>
@@ -115,30 +139,6 @@
 <p>SPAM 发表了一篇转载博文《[转载]千疮百孔的中国农村》http://t.cn/RUwLa78</p>
 <p>
 	<small> ============== 7小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3901352688379214" target="freeweibo-mirror">1930年，毛在江西“肃AB团”，对红军大开杀戒，消灭异己。…</a>
-</h2>
-<p>1930年，毛在江西“肃AB团”，对红军大开杀戒，消灭异己。被打同志“皆体无完肤”，“手指折断，满身烧烂”；铁钉把手掌钉在桌子上，竹签刺入指甲。酷刑拷打之后，就是迅速“处置”（即枪决）。被捕同志妻子前往探监，正好自投罗网，被抓起来施以严刑，“烧阴户，用小刀割乳。”（红太阳是怎样升起的）<br><img src="http://ww4.sinaimg.cn/large/6187648agw1exbta0izmdj20hs0hstap.jpg"></p>
-<p>
-	<small> ============== 8小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3901345838592416" target="freeweibo-mirror">【贺教授又在妄议中央】总书记曾经说要容纳尖锐的批评意见，现在…</a>
-</h2>
-<p>【贺教授又在妄议中央】总书记曾经说要容纳尖锐的批评意见，现在却又说不许妄议，我们无法辨别这两者之间的界限，唯一的选项只能是：啥也别说。[话筒]<br><img src="http://ww1.sinaimg.cn/large/6b2e7e57jw1exbshc0om3j20hs0vk78b.jpg"></p>
-<p>
-	<small> ============== 8小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3901284396742681" target="freeweibo-mirror">这英语说得真好！分享视频：分享视频 http://t.cn/…</a>
-</h2>
-<p>这英语说得真好！分享视频：分享视频 http://t.cn/RUZW2IJ</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3901270295175856" target="freeweibo-mirror">SPAM 赶紧看哦。</a>
-</h2>
-<p>SPAM 赶紧看哦。<br><br>RE: 分享视频 http://t.cn/RUZW2IJ .</p>
-<p>
-	<small> ============== 1天前</small>
 </p>
 <table>
     <tr>
