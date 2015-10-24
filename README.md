@@ -26,6 +26,12 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3901576982461578" target="freeweibo-mirror">好多台湾网友发现：爷爷家老房子的浴室墙砖上有这种羞羞的图案。…</a>
+</h2>
+<p>好多台湾网友发现：爷爷家老房子的浴室墙砖上有这种羞羞的图案。难怪以前台湾的出生率比现在高...<br><img src="http://ww2.sinaimg.cn/large/bff7300fgw1excj0ojsavj20ey0k0gmg.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3901465422237878" target="freeweibo-mirror">这个帖子迄今未被删除，算是奇迹！有的发这照片的ID，不是禁言…</a>
 </h2>
 <p>这个帖子迄今未被删除，算是奇迹！有的发这照片的ID，不是禁言，就是销号。→_→//@泡酒1573：一群sb还要说的多直白才懂，冯教授的意思是这类转发境外报纸图片的贴要删除，特别是破坏领导形象的，这是符合我党新闻管制政策的，要骂翻墙出去骂吧。<br><br>RE: 台湾自由时报继续“毁人不倦”，这一次直接针对彭麻麻，头版头条：“脸妆失控浮白粉，彭麻麻变厉鬼！”把第一夫人形容成“厉鬼”，把主席演讲说成“集体打瞌睡”，哈哈，自由时报你就继续吧！自由时报老板林荣三，宏泰人寿是你的吗？你的大陆投资项目藏得太深了，你这只大白鲨我查起来费劲啊。<br><img src="http://ww2.sinaimg.cn/large/945fe7c9jw1exbwxd5r5tj20k00f0n05.jpg"></p>
@@ -78,7 +84,7 @@
 </h2>
 <p>说谎的本领，从娃娃抓起。<br><img src="http://ww4.sinaimg.cn/large/41693645gw1exc2mnppgzj20zk0zk79a.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3901424809103592" target="freeweibo-mirror">SPAM 谁干的？？？</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3901384778640093" target="freeweibo-mirror">//@lianglun1996://@邱惊邦呔宁: 小平说啦…</a>
 </h2>
 <p>//@lianglun1996://@邱惊邦呔宁: 小平说啦不换思想就换人//@汶金让:在一个团队中，要团结，不要分裂，要给力，不要卸力，否则，走人！[心]//@百事泰徐新华:我想习书记的意思就好比在一个公司中，个别员工拿着公司的薪水，私下抱怨着公司的各种不是，出发点却不是要解决问题，只是为了报怨和谈资<br><br>RE: 【贺教授又在妄议中央】总书记曾经说要容纳尖锐的批评意见，现在却又说不许妄议，我们无法辨别这两者之间的界限，唯一的选项只能是：啥也别说。[话筒]<br><img src="http://ww1.sinaimg.cn/large/6b2e7e57jw1exbshc0om3j20hs0vk78b.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3901379963737343" target="freeweibo-mirror">1、1949年中国共产党执政后，客观上要求派系政治制度化，以…</a>
-</h2>
-<p>1、1949年中国共产党执政后，客观上要求派系政治制度化，以容纳执政集团内部的施政分歧。实际上，从执政开始不久，在中国共产党内部（主要是上层），在经济社会政策上就开始出现系统性分歧。这种分歧在很大... http://t.cn/RUwqsRY</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
