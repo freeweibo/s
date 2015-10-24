@@ -26,6 +26,12 @@
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3901451895663803" target="freeweibo-mirror">冯桑厉害//@多难未必兴邦2014: 二鬼子比较老逼 //@…</a>
+</h2>
+<p>冯桑厉害//@多难未必兴邦2014: 二鬼子比较老逼 //@华夏-军团:冯二狗这么厉害？//@裸枪:嚣张？//@源远一流长: 霸气//@Kasrsenclave:冯桑好大的口气啊[挖鼻屎] ]//@徐付群://@复旦大学冯玮:黄安，你这是谴责自由时报？建议你把这帖子删除。既然你是“作家”，理由不需要我说明吧？<br><br>RE: 台湾自由时报继续“毁人不倦”，这一次直接针对彭麻麻，头版头条：“脸妆失控浮白粉，彭麻麻变厉鬼！”把第一夫人形容成“厉鬼”，把主席演讲说成“集体打瞌睡”，哈哈，自由时报你就继续吧！自由时报老板林荣三，宏泰人寿是你的吗？你的大陆投资项目藏得太深了，你这只大白鲨我查起来费劲啊。<br><img src="http://ww2.sinaimg.cn/large/945fe7c9jw1exbwxd5r5tj20k00f0n05.jpg"></p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3901445302277127" target="freeweibo-mirror">SPAM 如果孩子不爱爹妈，我就不要这个孩子！</a>
 </h2>
 <p>SPAM 如果孩子不爱爹妈，我就不要这个孩子！<br><br>RE: 说谎的本领，从娃娃抓起。<br><img src="http://ww4.sinaimg.cn/large/41693645gw1exc2mnppgzj20zk0zk79a.jpg"></p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3901368768851860" target="freeweibo-mirror">【研讨恐慌症】某教授几天前邀我参加其组织的一个将于今日在某大…</a>
 </h2>
 <p>【研讨恐慌症】某教授几天前邀我参加其组织的一个将于今日在某大学召开"法治研讨会"。我应了。昨下班回家,教授还来电问我出行方式,以便安排接待。不久,教授再次来电,说今天的会议学校不让开了!奇怪:莫非受了党纪惊吓?以后还有任何高校或其他党领导的机构敢提供场地组织人文社科讲座/论坛/研讨会吗?悬！<br><img src="http://ww4.sinaimg.cn/large/4bdb1fa0jw1exbv481288j20c80c90u5.jpg"></p>
-<p>
-	<small> ============== 9小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3901368156537882" target="freeweibo-mirror">图片评论 http://t.cn/RUw4XMY</a>
-</h2>
-<p>图片评论 http://t.cn/RUw4XMY</p>
 <p>
 	<small> ============== 10小时前</small>
 </p>
