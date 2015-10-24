@@ -54,7 +54,7 @@
 </h2>
 <p>//@运筹帷幄唯你: //@袁裕来律师: 转发微博<br><br>RE: 【困难】总书记曾经说要容纳尖锐的批评意见，现在却又说不许妄议，我们无法辨别这两者之间的界限，唯一的选项只能是：啥也别说。<br><img src="http://ww1.sinaimg.cn/large/48866320jw1exbij5m6l9j20m80go76o.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3901434129474540" target="freeweibo-mirror">说谎的本领，从娃娃抓起。</a>
 </h2>
@@ -102,7 +102,7 @@
 </h2>
 <p>//@乐尚歌: //@任志强:历史传统！<br><br>RE: 1、1949年中国共产党执政后，客观上要求派系政治制度化，以容纳执政集团内部的施政分歧。实际上，从执政开始不久，在中国共产党内部（主要是上层），在经济社会政策上就开始出现系统性分歧。这种分歧在很大... http://t.cn/RUwqsRY</p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3901384778640093" target="freeweibo-mirror">//@lianglun1996://@邱惊邦呔宁: 小平说啦…</a>
 </h2>
