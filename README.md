@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3901394622690842" target="freeweibo-mirror">//@鹿小靓://@活着是煎熬二网易: //@卡瓦又归来:</a>
+</h2>
+<p>//@鹿小靓://@活着是煎熬二网易: //@卡瓦又归来:</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3901369834695275" target="freeweibo-mirror">//@杨佩昌:按周孝正老师的说法，此人手上沾满了共产党人的鲜…</a>
 </h2>
 <p>//@杨佩昌:按周孝正老师的说法，此人手上沾满了共产党人的鲜血。</p>
@@ -30,7 +36,7 @@
 </h2>
 <p>图片评论 http://t.cn/RUw4XMY</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3901363329211633" target="freeweibo-mirror">右边沈工大的老师不知道举证责任在说人家著作是谣言的人？ //…</a>
 </h2>
@@ -60,7 +66,7 @@
 </h2>
 <p>1930年，毛在江西“肃AB团”，对红军大开杀戒，消灭异己。被打同志“皆体无完肤”，“手指折断，满身烧烂”；铁钉把手掌钉在桌子上，竹签刺入指甲。酷刑拷打之后，就是迅速“处置”（即枪决）。被捕同志妻子前往探监，正好自投罗网，被抓起来施以严刑，“烧阴户，用小刀割乳。”（红太阳是怎样升起的）<br><img src="http://ww4.sinaimg.cn/large/6187648agw1exbta0izmdj20hs0hstap.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3901270295175856" target="freeweibo-mirror">SPAM 赶紧看哦。</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3901239026503354" target="freeweibo-mirror">SPAM [吃惊]//@张国庆看天下: 央行马屁功夫世界一流…</a>
 </h2>
 <p>SPAM [吃惊]//@张国庆看天下: 央行马屁功夫世界一流[哈哈][哈哈][哈哈]<br><br>RE: 总理吃晚饭时，突然想起来一件事，问秘书:明天霜降吧？ 秘书听后默默拿出手机，按了小川的电话。。[笑cry]</p>
-<p>
-	<small> ============== 11小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3901238976585375" target="freeweibo-mirror">//@特许连锁李维华://@水兵李铭://@陈业文新大都:[…</a>
-</h2>
-<p>//@特许连锁李维华://@水兵李铭://@陈业文新大都:[笑哈哈]只转，无需评。 //@新罗居士:转发微博<br><br>RE: 要不是几个老头子1976年妄议大政方针，搞了一下子，我们现在肯定在歌颂毛新宇。1992年，有个退休老党员北京呆不住，跑到南方妄议大政方针去了。。<br><img src="http://ww1.sinaimg.cn/large/6362d8eagw1exb77xoubxj20m80gowfn.jpg"></p>
 <p>
 	<small> ============== 11小时前</small>
 </p>
