@@ -120,7 +120,7 @@
 </h2>
 <p>【研讨恐慌症】某教授几天前邀我参加其组织的一个将于今日在某大学召开"法治研讨会"。我应了。昨下班回家,教授还来电问我出行方式,以便安排接待。不久,教授再次来电,说今天的会议学校不让开了!奇怪:莫非受了党纪惊吓?以后还有任何高校或其他党领导的机构敢提供场地组织人文社科讲座/论坛/研讨会吗?悬！<br><img src="http://ww4.sinaimg.cn/large/4bdb1fa0jw1exbv481288j20c80c90u5.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3901368156537882" target="freeweibo-mirror">图片评论 http://t.cn/RUw4XMY</a>
 </h2>
