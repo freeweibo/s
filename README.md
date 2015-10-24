@@ -66,7 +66,7 @@
 </h2>
 <p>说谎的本领，从娃娃抓起。<br><img src="http://ww4.sinaimg.cn/large/41693645gw1exc2mnppgzj20zk0zk79a.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3901424809103592" target="freeweibo-mirror">SPAM 谁干的？？？</a>
 </h2>
@@ -78,7 +78,7 @@
 </h2>
 <p>批评是自言自语，妄议是议论！本质的区别。 //@作家崔成浩:批评和妄议，到底怎么区别？<br><br>RE: 【困难】总书记曾经说要容纳尖锐的批评意见，现在却又说不许妄议，我们无法辨别这两者之间的界限，唯一的选项只能是：啥也别说。<br><img src="http://ww1.sinaimg.cn/large/48866320jw1exbij5m6l9j20m80go76o.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3901410473044295" target="freeweibo-mirror">“妄议”新规，网上反映基本负面，认为是意识形态进一步收紧，对…</a>
 </h2>
@@ -110,6 +110,12 @@
 <p>
 	<small> ============== 8小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3901388251307674" target="freeweibo-mirror">台湾自由时报继续“毁人不倦”，这一次直接针对彭麻麻，头版头条…</a>
+</h2>
+<p>台湾自由时报继续“毁人不倦”，这一次直接针对彭麻麻，头版头条：“脸妆失控浮白粉，彭麻麻变厉鬼！”把第一夫人形容成“厉鬼”，把主席演讲说成“集体打瞌睡”，哈哈，自由时报你就继续吧！自由时报老板林荣三，宏泰人寿是你的吗？你的大陆投资项目藏得太深了，你这只大白鲨我查起来费劲啊。<br><img src="http://ww2.sinaimg.cn/large/945fe7c9jw1exbwxd5r5tj20k00f0n05.jpg"></p>
+<p>
+	<small> ============== 9小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3901384778640093" target="freeweibo-mirror">//@lianglun1996://@邱惊邦呔宁: 小平说啦…</a>
 </h2>
 <p>//@lianglun1996://@邱惊邦呔宁: 小平说啦不换思想就换人//@汶金让:在一个团队中，要团结，不要分裂，要给力，不要卸力，否则，走人！[心]//@百事泰徐新华:我想习书记的意思就好比在一个公司中，个别员工拿着公司的薪水，私下抱怨着公司的各种不是，出发点却不是要解决问题，只是为了报怨和谈资<br><br>RE: 【贺教授又在妄议中央】总书记曾经说要容纳尖锐的批评意见，现在却又说不许妄议，我们无法辨别这两者之间的界限，唯一的选项只能是：啥也别说。[话筒]<br><img src="http://ww1.sinaimg.cn/large/6b2e7e57jw1exbshc0om3j20hs0vk78b.jpg"></p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3901369834695275" target="freeweibo-mirror">//@杨佩昌:按周孝正老师的说法，此人手上沾满了共产党人的鲜…</a>
 </h2>
 <p>//@杨佩昌:按周孝正老师的说法，此人手上沾满了共产党人的鲜血。</p>
-<p>
-	<small> ============== 10小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3901368768851860" target="freeweibo-mirror">【研讨恐慌症】某教授几天前邀我参加其组织的一个将于今日在某大…</a>
-</h2>
-<p>【研讨恐慌症】某教授几天前邀我参加其组织的一个将于今日在某大学召开"法治研讨会"。我应了。昨下班回家,教授还来电问我出行方式,以便安排接待。不久,教授再次来电,说今天的会议学校不让开了!奇怪:莫非受了党纪惊吓?以后还有任何高校或其他党领导的机构敢提供场地组织人文社科讲座/论坛/研讨会吗?悬！<br><img src="http://ww4.sinaimg.cn/large/4bdb1fa0jw1exbv481288j20c80c90u5.jpg"></p>
 <p>
 	<small> ============== 10小时前</small>
 </p>
