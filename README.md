@@ -60,7 +60,7 @@
 </h2>
 <p>图片评论 http://t.cn/RUw4XMY</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3901363329211633" target="freeweibo-mirror">右边沈工大的老师不知道举证责任在说人家著作是谣言的人？ //…</a>
 </h2>
@@ -90,7 +90,7 @@
 </h2>
 <p>1930年，毛在江西“肃AB团”，对红军大开杀戒，消灭异己。被打同志“皆体无完肤”，“手指折断，满身烧烂”；铁钉把手掌钉在桌子上，竹签刺入指甲。酷刑拷打之后，就是迅速“处置”（即枪决）。被捕同志妻子前往探监，正好自投罗网，被抓起来施以严刑，“烧阴户，用小刀割乳。”（红太阳是怎样升起的）<br><img src="http://ww4.sinaimg.cn/large/6187648agw1exbta0izmdj20hs0hstap.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3901284396742681" target="freeweibo-mirror">这英语说得真好！分享视频：分享视频 http://t.cn/…</a>
 </h2>
