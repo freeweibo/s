@@ -48,7 +48,7 @@
 </h2>
 <p>唉//@袁裕来律师:转发微博<br><br>RE: 【困难】总书记曾经说要容纳尖锐的批评意见，现在却又说不许妄议，我们无法辨别这两者之间的界限，唯一的选项只能是：啥也别说。<br><img src="http://ww1.sinaimg.cn/large/48866320jw1exbij5m6l9j20m80go76o.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3901441041638229" target="freeweibo-mirror">也许均自作多情。//@乡居书简:毛左说，NO，是针对你们这些…</a>
 </h2>
