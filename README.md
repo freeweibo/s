@@ -56,6 +56,12 @@
 <p>
 	<small> ============== 4小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3901584163654287" target="freeweibo-mirror">习近平报书名，越来越有趣。BBC率先扒坟，采访习近平插队时同…</a>
+</h2>
+<p>习近平报书名，越来越有趣。BBC率先扒坟，采访习近平插队时同屋的农民，其表示习读的是毛选和报纸。淳朴的农民，哪里想到敌对势力的险恶用心？更有甚者，网友连大陆编译莎士比亚的时间表都翻出来了。这就是疯狂打压民意和拼命极权的后果，中共越打造习近平伟大形象，网友偏偏喜欢冷嘲热讽。</p>
+<p>
+	<small> ============== 5小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3901581122421637" target="freeweibo-mirror">SPAM 下个月也许有机会去实地寻访一二//@殆知阁: //…</a>
 </h2>
 <p>SPAM 下个月也许有机会去实地寻访一二//@殆知阁: //@小Mr五柳: ....................<br><br>RE: 好多台湾网友发现：爷爷家老房子的浴室墙砖上有这种羞羞的图案。难怪以前台湾的出生率比现在高...<br><img src="http://ww2.sinaimg.cn/large/bff7300fgw1excj0ojsavj20ey0k0gmg.jpg"></p>
@@ -66,7 +72,7 @@
 </h2>
 <p>好多台湾网友发现：爷爷家老房子的浴室墙砖上有这种羞羞的图案。难怪以前台湾的出生率比现在高...<br><img src="http://ww2.sinaimg.cn/large/bff7300fgw1excj0ojsavj20ey0k0gmg.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3901540454960229" target="freeweibo-mirror">据非正式消息，下月，中国国家主席习近平携夫人来访新加坡。 h…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3901424809103592" target="freeweibo-mirror">SPAM 谁干的？？？</a>
 </h2>
 <p>SPAM 谁干的？？？<br><img src="http://ww3.sinaimg.cn/large/820f43e8gw1exc1k5sdbcj20k00qowil.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3901419466149471" target="freeweibo-mirror">批评是自言自语，妄议是议论！本质的区别。 //@作家崔成浩:…</a>
-</h2>
-<p>批评是自言自语，妄议是议论！本质的区别。 //@作家崔成浩:批评和妄议，到底怎么区别？<br><br>RE: 【困难】总书记曾经说要容纳尖锐的批评意见，现在却又说不许妄议，我们无法辨别这两者之间的界限，唯一的选项只能是：啥也别说。<br><img src="http://ww1.sinaimg.cn/large/48866320jw1exbij5m6l9j20m80go76o.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
