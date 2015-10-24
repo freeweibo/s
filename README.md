@@ -36,7 +36,7 @@
 </h2>
 <p>SPAM 如果孩子不爱爹妈，我就不要这个孩子！<br><br>RE: 说谎的本领，从娃娃抓起。<br><img src="http://ww4.sinaimg.cn/large/41693645gw1exc2mnppgzj20zk0zk79a.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3901442932352379" target="freeweibo-mirror">唉//@袁裕来律师:转发微博</a>
 </h2>
@@ -96,7 +96,7 @@
 </h2>
 <p>//@网易Pegasus: 党外那叫引蛇出洞，党内要服从党魁，这是学毛一点不矛盾//@西门吹糠: 转发微博<br><br>RE: 【困难】总书记曾经说要容纳尖锐的批评意见，现在却又说不许妄议，我们无法辨别这两者之间的界限，唯一的选项只能是：啥也别说。<br><img src="http://ww1.sinaimg.cn/large/48866320jw1exbij5m6l9j20m80go76o.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3901394622690842" target="freeweibo-mirror">//@鹿小靓://@活着是煎熬二网易: //@卡瓦又归来:</a>
 </h2>
@@ -114,7 +114,7 @@
 </h2>
 <p>//@lianglun1996://@邱惊邦呔宁: 小平说啦不换思想就换人//@汶金让:在一个团队中，要团结，不要分裂，要给力，不要卸力，否则，走人！[心]//@百事泰徐新华:我想习书记的意思就好比在一个公司中，个别员工拿着公司的薪水，私下抱怨着公司的各种不是，出发点却不是要解决问题，只是为了报怨和谈资<br><br>RE: 【贺教授又在妄议中央】总书记曾经说要容纳尖锐的批评意见，现在却又说不许妄议，我们无法辨别这两者之间的界限，唯一的选项只能是：啥也别说。[话筒]<br><img src="http://ww1.sinaimg.cn/large/6b2e7e57jw1exbshc0om3j20hs0vk78b.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3901379963737343" target="freeweibo-mirror">1、1949年中国共产党执政后，客观上要求派系政治制度化，以…</a>
 </h2>
@@ -132,7 +132,7 @@
 </h2>
 <p>//@杨佩昌:按周孝正老师的说法，此人手上沾满了共产党人的鲜血。</p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3901368768851860" target="freeweibo-mirror">【研讨恐慌症】某教授几天前邀我参加其组织的一个将于今日在某大…</a>
 </h2>
