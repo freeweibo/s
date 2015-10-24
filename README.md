@@ -30,7 +30,7 @@
 </h2>
 <p>SPAM [哈哈]  //@然后下面就没了:</p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3901451895663803" target="freeweibo-mirror">冯桑厉害//@多难未必兴邦2014: 二鬼子比较老逼 //@…</a>
 </h2>
@@ -78,7 +78,7 @@
 </h2>
 <p>SPAM 谁干的？？？<br><img src="http://ww3.sinaimg.cn/large/820f43e8gw1exc1k5sdbcj20k00qowil.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3901419466149471" target="freeweibo-mirror">批评是自言自语，妄议是议论！本质的区别。 //@作家崔成浩:…</a>
 </h2>
