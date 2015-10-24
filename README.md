@@ -66,7 +66,7 @@
 </h2>
 <p>//@运筹帷幄唯你: //@袁裕来律师: 转发微博<br><br>RE: 【困难】总书记曾经说要容纳尖锐的批评意见，现在却又说不许妄议，我们无法辨别这两者之间的界限，唯一的选项只能是：啥也别说。<br><img src="http://ww1.sinaimg.cn/large/48866320jw1exbij5m6l9j20m80go76o.jpg"></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3901434129474540" target="freeweibo-mirror">说谎的本领，从娃娃抓起。</a>
 </h2>
@@ -102,7 +102,7 @@
 </h2>
 <p>//@网易Pegasus: 党外那叫引蛇出洞，党内要服从党魁，这是学毛一点不矛盾//@西门吹糠: 转发微博<br><br>RE: 【困难】总书记曾经说要容纳尖锐的批评意见，现在却又说不许妄议，我们无法辨别这两者之间的界限，唯一的选项只能是：啥也别说。<br><img src="http://ww1.sinaimg.cn/large/48866320jw1exbij5m6l9j20m80go76o.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3901394622690842" target="freeweibo-mirror">//@鹿小靓://@活着是煎熬二网易: //@卡瓦又归来:</a>
 </h2>
