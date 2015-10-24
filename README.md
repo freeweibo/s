@@ -50,6 +50,12 @@
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3901434129474540" target="freeweibo-mirror">说谎的本领，从娃娃抓起。</a>
+</h2>
+<p>说谎的本领，从娃娃抓起。<br><img src="http://ww4.sinaimg.cn/large/41693645gw1exc2mnppgzj20zk0zk79a.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3901419466149471" target="freeweibo-mirror">批评是自言自语，妄议是议论！本质的区别。 //@作家崔成浩:…</a>
 </h2>
 <p>批评是自言自语，妄议是议论！本质的区别。 //@作家崔成浩:批评和妄议，到底怎么区别？<br><br>RE: 【困难】总书记曾经说要容纳尖锐的批评意见，现在却又说不许妄议，我们无法辨别这两者之间的界限，唯一的选项只能是：啥也别说。<br><img src="http://ww1.sinaimg.cn/large/48866320jw1exbij5m6l9j20m80go76o.jpg"></p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3901363051894535" target="freeweibo-mirror">SPAM 毛主席一词用的准确</a>
 </h2>
 <p>SPAM 毛主席一词用的准确</p>
-<p>
-	<small> ============== 8小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3901361957447435" target="freeweibo-mirror">要历史地看问题，那个年代就是你死我活的，武器的批判为主。60…</a>
-</h2>
-<p>要历史地看问题，那个年代就是你死我活的，武器的批判为主。60年代灭异己也是不遗余力的，主席元帅一样灭。现在的人们善良多了，不免将过去往好了想。 //@十年砍柴:右边凭什么说高华的书是谣言。你作为毛的好孩子没听说“革命不是请客吃饭”么？ //@lygmstar:狗日的畜牲你造谣言放屁不得好死。！</p>
 <p>
 	<small> ============== 8小时前</small>
 </p>
