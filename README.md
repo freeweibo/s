@@ -26,11 +26,29 @@
 <p>
 	<small> ============== 1小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3901393276977320" target="freeweibo-mirror">//@乐尚歌: //@任志强:历史传统！</a>
+</h2>
+<p>//@乐尚歌: //@任志强:历史传统！<br><br>RE: 1、1949年中国共产党执政后，客观上要求派系政治制度化，以容纳执政集团内部的施政分歧。实际上，从执政开始不久，在中国共产党内部（主要是上层），在经济社会政策上就开始出现系统性分歧。这种分歧在很大... http://t.cn/RUwqsRY</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3901372078127306" target="freeweibo-mirror">要容纳尖锐的批评意见，是习总自己说的；不让妄议中央，是中共中…</a>
+</h2>
+<p>要容纳尖锐的批评意见，是习总自己说的；不让妄议中央，是中共中央发布的《中国共产党纪律处分条例》的规定。根据个人服从组织、全党服从中央的原则，肯定是按条例规定来。记住：不得妄议！</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3901369834695275" target="freeweibo-mirror">//@杨佩昌:按周孝正老师的说法，此人手上沾满了共产党人的鲜…</a>
 </h2>
 <p>//@杨佩昌:按周孝正老师的说法，此人手上沾满了共产党人的鲜血。</p>
 <p>
 	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3901368768851860" target="freeweibo-mirror">【研讨恐慌症】某教授几天前邀我参加其组织的一个将于今日在某大…</a>
+</h2>
+<p>【研讨恐慌症】某教授几天前邀我参加其组织的一个将于今日在某大学召开"法治研讨会"。我应了。昨下班回家,教授还来电问我出行方式,以便安排接待。不久,教授再次来电,说今天的会议学校不让开了!奇怪:莫非受了党纪惊吓?以后还有任何高校或其他党领导的机构敢提供场地组织人文社科讲座/论坛/研讨会吗?悬！<br><img src="http://ww4.sinaimg.cn/large/4bdb1fa0jw1exbv481288j20c80c90u5.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3901368156537882" target="freeweibo-mirror">图片评论 http://t.cn/RUw4XMY</a>
 </h2>
@@ -67,6 +85,12 @@
 <p>1930年，毛在江西“肃AB团”，对红军大开杀戒，消灭异己。被打同志“皆体无完肤”，“手指折断，满身烧烂”；铁钉把手掌钉在桌子上，竹签刺入指甲。酷刑拷打之后，就是迅速“处置”（即枪决）。被捕同志妻子前往探监，正好自投罗网，被抓起来施以严刑，“烧阴户，用小刀割乳。”（红太阳是怎样升起的）<br><img src="http://ww4.sinaimg.cn/large/6187648agw1exbta0izmdj20hs0hstap.jpg"></p>
 <p>
 	<small> ============== 4小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3901284396742681" target="freeweibo-mirror">这英语说得真好！分享视频：分享视频 http://t.cn/…</a>
+</h2>
+<p>这英语说得真好！分享视频：分享视频 http://t.cn/RUZW2IJ</p>
+<p>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3901270295175856" target="freeweibo-mirror">SPAM 赶紧看哦。</a>
 </h2>
@@ -108,37 +132,13 @@
 </h2>
 <p>对资本主义国家的报道，适用相反的原则。<br><br>RE: 学习了。<br><img src="http://ww1.sinaimg.cn/large/62553213gw1exbimy703fj20yi08waet.jpg"></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3901260783060972" target="freeweibo-mirror">//@宏鑫88: //@崖上尋芳草://@台北101二: […</a>
 </h2>
 <p>//@宏鑫88: //@崖上尋芳草://@台北101二: [思考]。。。还是不予置评！//@jhw777: @台北101二 这位英国人蛮了解中国国情，对不？<br><br>RE: 分享视频 http://t.cn/RUZW2IJ .</p>
 <p>
 	<small> ============== 10小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3901260035976823" target="freeweibo-mirror">学习了。</a>
-</h2>
-<p>学习了。<br><img src="http://ww1.sinaimg.cn/large/62553213gw1exbimy703fj20yi08waet.jpg"></p>
-<p>
-	<small> ============== 10小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3901259994334729" target="freeweibo-mirror">SPAM 還是勸籲各位朋友，沒必要對一坨屎評頭論足。抬舉它了…</a>
-</h2>
-<p>SPAM 還是勸籲各位朋友，沒必要對一坨屎評頭論足。抬舉它了。//@山爪Y牆:第一屆在北京新聞大廈頒獎給連戰，孔慶東之流搞的湨奬，還有人栽贓到香港頭上[鄙视] http://t.cn/RUZTrc7<br><br>RE: 分享图片<br><img src="http://ww2.sinaimg.cn/large/65cfb01djw1ew5q9p93rfj20f00qodje.jpg"></p>
-<p>
-	<small> ============== 10小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3901251818910826" target="freeweibo-mirror">分享视频 http://t.cn/RUZW2IJ .</a>
-</h2>
-<p>分享视频 http://t.cn/RUZW2IJ .</p>
-<p>
-	<small> ============== 10小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3901239026503354" target="freeweibo-mirror">SPAM [吃惊]//@张国庆看天下: 央行马屁功夫世界一流…</a>
-</h2>
-<p>SPAM [吃惊]//@张国庆看天下: 央行马屁功夫世界一流[哈哈][哈哈][哈哈]<br><br>RE: 总理吃晚饭时，突然想起来一件事，问秘书:明天霜降吧？ 秘书听后默默拿出手机，按了小川的电话。。[笑cry]</p>
-<p>
-	<small> ============== 11小时前</small>
 </p>
 <table>
     <tr>
