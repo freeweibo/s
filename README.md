@@ -78,7 +78,7 @@
 </h2>
 <p>据非正式消息，下月，中国国家主席习近平携夫人来访新加坡。 http://t.cn/8Fv0fJX<br><img src="http://ww3.sinaimg.cn/large/7d410493gw1excetw5u28j20hs0doq3z.jpg"></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3901465422237878" target="freeweibo-mirror">这个帖子迄今未被删除，算是奇迹！有的发这照片的ID，不是禁言…</a>
 </h2>
