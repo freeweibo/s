@@ -66,7 +66,7 @@
 </h2>
 <p>图片评论 http://t.cn/RUw4XMY</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3901363329211633" target="freeweibo-mirror">右边沈工大的老师不知道举证责任在说人家著作是谣言的人？ //…</a>
 </h2>
@@ -96,7 +96,7 @@
 </h2>
 <p>1930年，毛在江西“肃AB团”，对红军大开杀戒，消灭异己。被打同志“皆体无完肤”，“手指折断，满身烧烂”；铁钉把手掌钉在桌子上，竹签刺入指甲。酷刑拷打之后，就是迅速“处置”（即枪决）。被捕同志妻子前往探监，正好自投罗网，被抓起来施以严刑，“烧阴户，用小刀割乳。”（红太阳是怎样升起的）<br><img src="http://ww4.sinaimg.cn/large/6187648agw1exbta0izmdj20hs0hstap.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3901345838592416" target="freeweibo-mirror">【贺教授又在妄议中央】总书记曾经说要容纳尖锐的批评意见，现在…</a>
 </h2>
@@ -120,13 +120,13 @@
 </h2>
 <p>//@黎勇01://@许志彪律师: 自信哪里去了？大声喊“好五倍”！[哈哈][哈哈][哈哈]<br><br>RE: 分享视频 http://t.cn/RUZW2IJ .</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3901269150116493" target="freeweibo-mirror">[感冒]//@阿珍你来真的阿：包子心里想的是曼联</a>
 </h2>
 <p>[感冒]//@阿珍你来真的阿：包子心里想的是曼联</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3901267476507678" target="freeweibo-mirror">//@猫胡子003://@未得糊涂://@宏鑫88: //@…</a>
 </h2>
