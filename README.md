@@ -20,6 +20,18 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3901441041638229" target="freeweibo-mirror">也许均自作多情。//@乡居书简:毛左说，NO，是针对你们这些…</a>
+</h2>
+<p>也许均自作多情。//@乡居书简:毛左说，NO，是针对你们这些忧国忧民的公知的。<br><br>RE: “妄议”新规，网上反映基本负面，认为是意识形态进一步收紧，对思想自由进一步打压。我认为与提出发展21世纪中国的马克思主义一样，这是习近平改革意识形态的重大步骤，是为全面深化改革清除障碍特别是来自毛左的障碍而进行的顶层设计。是不是这样，我想时间会证明一切。如果我错了，我会公开承认。</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3901419466149471" target="freeweibo-mirror">批评是自言自语，妄议是议论！本质的区别。 //@作家崔成浩:…</a>
+</h2>
+<p>批评是自言自语，妄议是议论！本质的区别。 //@作家崔成浩:批评和妄议，到底怎么区别？<br><br>RE: 【困难】总书记曾经说要容纳尖锐的批评意见，现在却又说不许妄议，我们无法辨别这两者之间的界限，唯一的选项只能是：啥也别说。<br><img src="http://ww1.sinaimg.cn/large/48866320jw1exbij5m6l9j20m80go76o.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3901394622690842" target="freeweibo-mirror">//@鹿小靓://@活着是煎熬二网易: //@卡瓦又归来:</a>
 </h2>
 <p>//@鹿小靓://@活着是煎熬二网易: //@卡瓦又归来:</p>
@@ -102,7 +114,7 @@
 </h2>
 <p>【贺教授又在妄议中央】总书记曾经说要容纳尖锐的批评意见，现在却又说不许妄议，我们无法辨别这两者之间的界限，唯一的选项只能是：啥也别说。[话筒]<br><img src="http://ww1.sinaimg.cn/large/6b2e7e57jw1exbshc0om3j20hs0vk78b.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3901284396742681" target="freeweibo-mirror">这英语说得真好！分享视频：分享视频 http://t.cn/…</a>
 </h2>
@@ -125,18 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3901269150116493" target="freeweibo-mirror">[感冒]//@阿珍你来真的阿：包子心里想的是曼联</a>
 </h2>
 <p>[感冒]//@阿珍你来真的阿：包子心里想的是曼联</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3901267476507678" target="freeweibo-mirror">//@猫胡子003://@未得糊涂://@宏鑫88: //@…</a>
-</h2>
-<p>//@猫胡子003://@未得糊涂://@宏鑫88: //@崖上尋芳草://@台北101二: [思考]。。。还是不予置评！//@jhw777: @台北101二 这位英国人蛮了解中国国情，对不？<br><br>RE: 分享视频 http://t.cn/RUZW2IJ .</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3901264687261063" target="freeweibo-mirror">//@敬禹曰: 有宣传，没新闻。//@邵明波:这是主事者脑容…</a>
-</h2>
-<p>//@敬禹曰: 有宣传，没新闻。//@邵明波:这是主事者脑容量太低，还是我等百姓尚未开化？//@吴铭: 对资本主义国家的报道，适用相反的原则。<br><br>RE: 学习了。<br><img src="http://ww1.sinaimg.cn/large/62553213gw1exbimy703fj20yi08waet.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
