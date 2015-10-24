@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3901442932352379" target="freeweibo-mirror">唉//@袁裕来律师:转发微博</a>
+</h2>
+<p>唉//@袁裕来律师:转发微博<br><br>RE: 【困难】总书记曾经说要容纳尖锐的批评意见，现在却又说不许妄议，我们无法辨别这两者之间的界限，唯一的选项只能是：啥也别说。<br><img src="http://ww1.sinaimg.cn/large/48866320jw1exbij5m6l9j20m80go76o.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3901441041638229" target="freeweibo-mirror">也许均自作多情。//@乡居书简:毛左说，NO，是针对你们这些…</a>
 </h2>
 <p>也许均自作多情。//@乡居书简:毛左说，NO，是针对你们这些忧国忧民的公知的。<br><br>RE: “妄议”新规，网上反映基本负面，认为是意识形态进一步收紧，对思想自由进一步打压。我认为与提出发展21世纪中国的马克思主义一样，这是习近平改革意识形态的重大步骤，是为全面深化改革清除障碍特别是来自毛左的障碍而进行的顶层设计。是不是这样，我想时间会证明一切。如果我错了，我会公开承认。</p>
@@ -84,7 +90,7 @@
 </h2>
 <p>图片评论 http://t.cn/RUw4XMY</p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3901363329211633" target="freeweibo-mirror">右边沈工大的老师不知道举证责任在说人家著作是谣言的人？ //…</a>
 </h2>
@@ -114,7 +120,7 @@
 </h2>
 <p>1930年，毛在江西“肃AB团”，对红军大开杀戒，消灭异己。被打同志“皆体无完肤”，“手指折断，满身烧烂”；铁钉把手掌钉在桌子上，竹签刺入指甲。酷刑拷打之后，就是迅速“处置”（即枪决）。被捕同志妻子前往探监，正好自投罗网，被抓起来施以严刑，“烧阴户，用小刀割乳。”（红太阳是怎样升起的）<br><img src="http://ww4.sinaimg.cn/large/6187648agw1exbta0izmdj20hs0hstap.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3901345838592416" target="freeweibo-mirror">【贺教授又在妄议中央】总书记曾经说要容纳尖锐的批评意见，现在…</a>
 </h2>
@@ -126,17 +132,11 @@
 </h2>
 <p>这英语说得真好！分享视频：分享视频 http://t.cn/RUZW2IJ</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3901270295175856" target="freeweibo-mirror">SPAM 赶紧看哦。</a>
 </h2>
 <p>SPAM 赶紧看哦。<br><br>RE: 分享视频 http://t.cn/RUZW2IJ .</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3901269502209154" target="freeweibo-mirror">//@黎勇01://@许志彪律师: 自信哪里去了？大声喊“好…</a>
-</h2>
-<p>//@黎勇01://@许志彪律师: 自信哪里去了？大声喊“好五倍”！[哈哈][哈哈][哈哈]<br><br>RE: 分享视频 http://t.cn/RUZW2IJ .</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
