@@ -42,7 +42,7 @@
 </h2>
 <p>//@杨佩昌:按周孝正老师的说法，此人手上沾满了共产党人的鲜血。</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3901368768851860" target="freeweibo-mirror">【研讨恐慌症】某教授几天前邀我参加其组织的一个将于今日在某大…</a>
 </h2>
@@ -120,13 +120,13 @@
 </h2>
 <p>//@敬禹曰: 有宣传，没新闻。//@邵明波:这是主事者脑容量太低，还是我等百姓尚未开化？//@吴铭: 对资本主义国家的报道，适用相反的原则。<br><br>RE: 学习了。<br><img src="http://ww1.sinaimg.cn/large/62553213gw1exbimy703fj20yi08waet.jpg"></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3901263836470312" target="freeweibo-mirror">这是主事者脑容量太低，还是我等百姓尚未开化？//@吴铭: 对…</a>
 </h2>
 <p>这是主事者脑容量太低，还是我等百姓尚未开化？//@吴铭: 对资本主义国家的报道，适用相反的原则。<br><br>RE: 学习了。<br><img src="http://ww1.sinaimg.cn/large/62553213gw1exbimy703fj20yi08waet.jpg"></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3901263055675931" target="freeweibo-mirror">对资本主义国家的报道，适用相反的原则。</a>
 </h2>
