@@ -36,7 +36,7 @@
 </h2>
 <p>好多台湾网友发现：爷爷家老房子的浴室墙砖上有这种羞羞的图案。难怪以前台湾的出生率比现在高...<br><img src="http://ww2.sinaimg.cn/large/bff7300fgw1excj0ojsavj20ey0k0gmg.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3901465422237878" target="freeweibo-mirror">这个帖子迄今未被删除，算是奇迹！有的发这照片的ID，不是禁言…</a>
 </h2>
@@ -48,7 +48,7 @@
 </h2>
 <p>SPAM [哈哈]  //@然后下面就没了:</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3901451895663803" target="freeweibo-mirror">冯桑厉害//@多难未必兴邦2014: 二鬼子比较老逼 //@…</a>
 </h2>
