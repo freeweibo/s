@@ -30,7 +30,7 @@
 </h2>
 <p>SPAM [哈哈]  //@然后下面就没了:</p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3901451895663803" target="freeweibo-mirror">冯桑厉害//@多难未必兴邦2014: 二鬼子比较老逼 //@…</a>
 </h2>
@@ -96,7 +96,7 @@
 </h2>
 <p>//@冰雨点点红:转发微博<br><br>RE: “民主恐惧症，是特权势力特有的病灶，怕民主也就是怕群众，历史是群众创造的，怕是没有用的！”——杜老，走好[蜡烛][蜡烛][蜡烛]<br><img src="http://ww2.sinaimg.cn/large/625ab309jw1exbb9w4abaj20dc08waas.jpg"></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3901400301914551" target="freeweibo-mirror">//@网易Pegasus: 党外那叫引蛇出洞，党内要服从党魁…</a>
 </h2>
@@ -120,7 +120,7 @@
 </h2>
 <p>台湾自由时报继续“毁人不倦”，这一次直接针对彭麻麻，头版头条：“脸妆失控浮白粉，彭麻麻变厉鬼！”把第一夫人形容成“厉鬼”，把主席演讲说成“集体打瞌睡”，哈哈，自由时报你就继续吧！自由时报老板林荣三，宏泰人寿是你的吗？你的大陆投资项目藏得太深了，你这只大白鲨我查起来费劲啊。<br><img src="http://ww2.sinaimg.cn/large/945fe7c9jw1exbwxd5r5tj20k00f0n05.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3901384778640093" target="freeweibo-mirror">//@lianglun1996://@邱惊邦呔宁: 小平说啦…</a>
 </h2>
@@ -132,7 +132,7 @@
 </h2>
 <p>1、1949年中国共产党执政后，客观上要求派系政治制度化，以容纳执政集团内部的施政分歧。实际上，从执政开始不久，在中国共产党内部（主要是上层），在经济社会政策上就开始出现系统性分歧。这种分歧在很大... http://t.cn/RUwqsRY</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3901372078127306" target="freeweibo-mirror">要容纳尖锐的批评意见，是习总自己说的；不让妄议中央，是中共中…</a>
 </h2>
