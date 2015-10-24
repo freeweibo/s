@@ -42,7 +42,7 @@
 </h2>
 <p>SPAM 毛主席一词用的准确</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3901357427440279" target="freeweibo-mirror">SPAM 发表了一篇转载博文《[转载]千疮百孔的中国农村》h…</a>
 </h2>
