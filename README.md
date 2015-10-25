@@ -32,11 +32,17 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3901797246209205" target="freeweibo-mirror">【朝鲜战争的遐想】65年前的今天，志愿者入朝打响第一枪，这一…</a>
+</h2>
+<p>【朝鲜战争的遐想】65年前的今天，志愿者入朝打响第一枪，这一枪打出了三代世袭的金氏王朝，这一枪保住了只要逃离就能不挨饿的朝鲜，这一枪也造就了一个随时祸害东北的核武库，当然，有失必有得，这一枪使得中国失去成为世袭王国的可能，使得文革的惨剧不在台湾发生。<br><img src="http://ww3.sinaimg.cn/large/9154fba0gw1exd899le3nj20dw06rdg5.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3901772416628550" target="freeweibo-mirror">//@张佳珅0://@睡马99:没沙翁的书，也不和女性出去玩…</a>
 </h2>
 <p>//@张佳珅0://@睡马99:没沙翁的书，也不和女性出去玩，难怪会问啥士比呀//@aoliduo--:  http://t.cn/RU2fFbp //@书生药师:没有什么好书看[挖鼻] //@aoliduo--:[阴险] //@布衣-乱-弹://@木乃益:这个老农未能与党中央保持一致。[抓狂][抓狂]<br><br>RE: BBC妄议中央，泄露了关于莎士比亚的国家机密。建议中国媒体赶快采访当事农民，辟谣、重讲。（坐等被删）【秒拍视频 ：http://t.cn/RysB4Oh</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3901763528930095" target="freeweibo-mirror">//@阳春三月200103://@翟-玉章:在中国是官员养活…</a>
 </h2>
@@ -102,7 +108,7 @@
 </h2>
 <p>求什么，得什么，这是最幸福的事。</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3901739919435743" target="freeweibo-mirror">//@凌虚铺子:【垄断行业的“吸星大法”】移动、联通、电信垄…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3901733438474855" target="freeweibo-mirror">//@清华孙立平:同意//@子非鱼15年：贪官污吏固然要除，…</a>
 </h2>
 <p>//@清华孙立平:同意//@子非鱼15年：贪官污吏固然要除，这样的忠臣干吏多了，也绝非国家之幸！<br><br>RE: http://t.cn/RUA3UGf   信息量超大，自己研读。 http://t.cn/R2Wx079</p>
-<p>
-	<small> ============== 6小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3901732976937061" target="freeweibo-mirror">SPAM //@李佳佳Audrey:香港能成为伟大的城市，并…</a>
-</h2>
-<p>SPAM //@李佳佳Audrey:香港能成为伟大的城市，并不在于地理优势，而是因为拥有健全的行政架构和完善法治的社会。市民、企业能够充满活力地生活、工作、共享繁荣，无不依赖于此。法制、自由、民主、廉洁、多元文化、社会福利是港人心中深深的骄傲，<br><br>RE: 優越感。<br><img src="http://ww3.sinaimg.cn/large/006eMEuijw1exc3h2k8wyj30kk0ep428.jpg"></p>
 <p>
 	<small> ============== 6小时前</small>
 </p>
