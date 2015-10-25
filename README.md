@@ -24,7 +24,7 @@
 </h2>
 <p>SPAM 回复@海羽瞰阮ME艾塔:看起来很赞诶~~~//@海羽瞰阮ME艾塔:@押切YAKI @黄靖翔 [笑cry][笑cry]强迫症产物，第二版样衣了，不出意外征集结束前还会有第三版[笑cry]数码印花颜色继续实验调整。</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3901873939563974" target="freeweibo-mirror">[哈哈] //@然后下面就没了:</a>
 </h2>
