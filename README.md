@@ -32,6 +32,12 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3901800732559869" target="freeweibo-mirror">//@闵玉平:妄议朝史</a>
+</h2>
+<p>//@闵玉平:妄议朝史<br><br>RE: 【朝鲜战争的遐想】65年前的今天，志愿者入朝打响第一枪，这一枪打出了三代世袭的金氏王朝，这一枪保住了只要逃离就能不挨饿的朝鲜，这一枪也造就了一个随时祸害东北的核武库，当然，有失必有得，这一枪使得中国失去成为世袭王国的可能，使得文革的惨剧不在台湾发生。<br><img src="http://ww3.sinaimg.cn/large/9154fba0gw1exd899le3nj20dw06rdg5.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3901797246209205" target="freeweibo-mirror">【朝鲜战争的遐想】65年前的今天，志愿者入朝打响第一枪，这一…</a>
 </h2>
 <p>【朝鲜战争的遐想】65年前的今天，志愿者入朝打响第一枪，这一枪打出了三代世袭的金氏王朝，这一枪保住了只要逃离就能不挨饿的朝鲜，这一枪也造就了一个随时祸害东北的核武库，当然，有失必有得，这一枪使得中国失去成为世袭王国的可能，使得文革的惨剧不在台湾发生。<br><img src="http://ww3.sinaimg.cn/large/9154fba0gw1exd899le3nj20dw06rdg5.jpg"></p>
@@ -41,6 +47,12 @@
 	<a href="https://freeweibo.com/weibo/3901772416628550" target="freeweibo-mirror">//@张佳珅0://@睡马99:没沙翁的书，也不和女性出去玩…</a>
 </h2>
 <p>//@张佳珅0://@睡马99:没沙翁的书，也不和女性出去玩，难怪会问啥士比呀//@aoliduo--:  http://t.cn/RU2fFbp //@书生药师:没有什么好书看[挖鼻] //@aoliduo--:[阴险] //@布衣-乱-弹://@木乃益:这个老农未能与党中央保持一致。[抓狂][抓狂]<br><br>RE: BBC妄议中央，泄露了关于莎士比亚的国家机密。建议中国媒体赶快采访当事农民，辟谣、重讲。（坐等被删）【秒拍视频 ：http://t.cn/RysB4Oh</p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3901769010905286" target="freeweibo-mirror">看了一遍，感觉战战兢兢，都送钦差大臣进央企，可能腐败可以控制…</a>
+</h2>
+<p>看了一遍，感觉战战兢兢，都送钦差大臣进央企，可能腐败可以控制了，但是老大都战战兢兢的，企业如何搞活创新呢？ http://t.cn/RUA3UGf</p>
 <p>
 	<small> ============== 4小时前</small>
 </p><h2>
@@ -60,7 +72,7 @@
 </h2>
 <p>BBC妄议中央，泄露了关于莎士比亚的国家机密。建议中国媒体赶快采访当事农民，辟谣、重讲。（坐等被删）【秒拍视频 ：http://t.cn/RysB4Oh</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3901759044655351" target="freeweibo-mirror">中国梦呓。[笑cry]→_→//@太空行者2011:腐败需要…</a>
 </h2>
@@ -125,18 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3901738286850384" target="freeweibo-mirror">根本不把人命当回事，当然没有人性！ //@雷颐:转发微博</a>
 </h2>
 <p>根本不把人命当回事，当然没有人性！ //@雷颐:转发微博</p>
-<p>
-	<small> ============== 6小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3901735985133837" target="freeweibo-mirror">//@谓贤:很想知道「探索性错误」的原创是谁？</a>
-</h2>
-<p>//@谓贤:很想知道「探索性错误」的原创是谁？</p>
-<p>
-	<small> ============== 6小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3901735398007162" target="freeweibo-mirror">很想知道「探索性错误」的原创是谁？</a>
-</h2>
-<p>很想知道「探索性错误」的原创是谁？</p>
 <p>
 	<small> ============== 6小时前</small>
 </p>
