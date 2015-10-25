@@ -26,6 +26,12 @@
 <p>
 	<small> ============== 1小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3901763528930095" target="freeweibo-mirror">//@阳春三月200103://@翟-玉章:在中国是官员养活…</a>
+</h2>
+<p>//@阳春三月200103://@翟-玉章:在中国是官员养活了人民，在英国是人民养活了官员。。。中国人民的幸福和英国人民的不幸福，可谓一目了然！<br><br>RE: 英国公民活得很累。唉！<br><img src="http://ww2.sinaimg.cn/large/006dq7Qagw1exczyeznqmj30hs0oj40m.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3901759044655351" target="freeweibo-mirror">中国梦呓。[笑cry]→_→//@太空行者2011:腐败需要…</a>
 </h2>
 <p>中国梦呓。[笑cry]→_→//@太空行者2011:腐败需要根治，但是铲除腐败的根源和土壤更重要，体制出了问题，不仅仅是腐败，低效、形式主义、弄虚作假、个人崇拜……，要是马云当minister，任志强当secretary，王石当发改委主任，龙应台当宣传部长，A股说不定涨到1万点(梦语)</p>
@@ -108,7 +114,7 @@
 </h2>
 <p>//@edwards_l5: [笑cry]//@邱仦剛:右边够了 //@JN梁:还有林俊杰的江南 曹操 一千年以后等等//@谢泼德:我主持中央工作以来，收听了很多新加坡音乐作品，其中有孙燕姿的天黑黑遇见我要的幸福超快感年轻@娘歆:这回不能报书名了吧！你总不能说你恭读过老李的反共回忆录吧/@SgtPiggy:新加坡作家哪家强<br><br>RE: 据非正式消息，下月，中国国家主席习近平携夫人来访新加坡。 http://t.cn/8Fv0fJX<br><img src="http://ww3.sinaimg.cn/large/7d410493gw1excetw5u28j20hs0doq3z.jpg"></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3901623170989399" target="freeweibo-mirror">SPAM 我喜欢招代理，但我不喜欢劝人做代理。我可以保证货的…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3901599564762865" target="freeweibo-mirror">SPAM 看上去像是照镜子、洗洗澡... //@徐昕:不是二…</a>
 </h2>
 <p>SPAM 看上去像是照镜子、洗洗澡... //@徐昕:不是二奶反腐大会吧？//@西风瘦马飘: //@亮剑兄来了: //@王师北定FK: //@lianglun1996:[哈哈]//@wm_yu: 什么会？//@荣剑2001:开什么玩笑！//@张晨初艺术空间://@静静坐着思维也是旅行:什么地方？。。。太不协调了。。。[泪]<br><br>RE: 分享图片<br><img src="http://ww2.sinaimg.cn/large/65cfb01djw1ew5q9p93rfj20f00qodje.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3901584163654287" target="freeweibo-mirror">习近平报书名，越来越有趣。BBC率先扒坟，采访习近平插队时同…</a>
-</h2>
-<p>习近平报书名，越来越有趣。BBC率先扒坟，采访习近平插队时同屋的农民，其表示习读的是毛选和报纸。淳朴的农民，哪里想到敌对势力的险恶用心？更有甚者，网友连大陆编译莎士比亚的时间表都翻出来了。这就是疯狂打压民意和拼命极权的后果，中共越打造习近平伟大形象，网友偏偏喜欢冷嘲热讽。</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
