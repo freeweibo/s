@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3901804150645286" target="freeweibo-mirror">历史的偶然改变了几亿人的命运。朝战的唯一积极意义，你懂得。 …</a>
+</h2>
+<p>历史的偶然改变了几亿人的命运。朝战的唯一积极意义，你懂得。 //@闵玉平:妄议朝史<br><br>RE: 【朝鲜战争的遐想】65年前的今天，志愿者入朝打响第一枪，这一枪打出了三代世袭的金氏王朝，这一枪保住了只要逃离就能不挨饿的朝鲜，这一枪也造就了一个随时祸害东北的核武库，当然，有失必有得，这一枪使得中国失去成为世袭王国的可能，使得文革的惨剧不在台湾发生。<br><img src="http://ww3.sinaimg.cn/large/9154fba0gw1exd899le3nj20dw06rdg5.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3901772416628550" target="freeweibo-mirror">//@张佳珅0://@睡马99:没沙翁的书，也不和女性出去玩…</a>
 </h2>
 <p>//@张佳珅0://@睡马99:没沙翁的书，也不和女性出去玩，难怪会问啥士比呀//@aoliduo--:  http://t.cn/RU2fFbp //@书生药师:没有什么好书看[挖鼻] //@aoliduo--:[阴险] //@布衣-乱-弹://@木乃益:这个老农未能与党中央保持一致。[抓狂][抓狂]<br><br>RE: BBC妄议中央，泄露了关于莎士比亚的国家机密。建议中国媒体赶快采访当事农民，辟谣、重讲。（坐等被删）【秒拍视频 ：http://t.cn/RysB4Oh</p>
@@ -54,7 +60,7 @@
 </h2>
 <p>在人权面前，主权就是个屁。</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3901747862811850" target="freeweibo-mirror">应该是自费去的了。</a>
 </h2>
@@ -133,12 +139,6 @@
 <p>任大炮说“公有制不应该是在市场中占主导地位，而应该是在非市场中占主导，比如国防、教育、安全、法律、医疗、养老，环境保护等。”事实上，国企一直在与民争利，甚至把住房教育医疗当垄断生意来做。但截止九月末，国企负债总额居然已超77万亿元，P民要人均分摊欠款6万元…甚至连收费公路居然亏了钱？<br><img src="http://ww4.sinaimg.cn/large/005SvoAtgw1excyazb0dxj30cs0atta4.jpg"></p>
 <p>
 	<small> ============== 7小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3901647044199715" target="freeweibo-mirror">http://t.cn/RUA3UGf   信息量超大，自己…</a>
-</h2>
-<p>http://t.cn/RUA3UGf   信息量超大，自己研读。 http://t.cn/R2Wx079</p>
-<p>
-	<small> ============== 11小时前</small>
 </p>
 <table>
     <tr>
