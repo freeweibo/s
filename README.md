@@ -26,11 +26,17 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3901873658399654" target="freeweibo-mirror">//@作家岳南:贵国国民如见到皇帝或县太爷，不下跪磕头或要被…</a>
+</h2>
+<p>//@作家岳南:贵国国民如见到皇帝或县太爷，不下跪磕头或要被砍头。</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3901850484784175" target="freeweibo-mirror">绝无可能的如果。[笑cry] //@笨笨an:外面的世界很精…</a>
 </h2>
 <p>绝无可能的如果。[笑cry] //@笨笨an:外面的世界很精彩 //@谓贤:如果加上共产党执政，英国还有可能成为理想中的国家吗？</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3901849516014508" target="freeweibo-mirror">SPAM 发表了一篇转载博文《[转载]羊毛出在羊身上，这11…</a>
 </h2>
@@ -72,7 +78,7 @@
 </h2>
 <p>//@北京朱维民:安排临时演员、是前苏联发明、流行于所有共产国家的特殊技术、虽然屡屡被识破、但仍坚韧不拔地实践在外交场合。</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3901819220407271" target="freeweibo-mirror">英国绅士爱打猎、 现在已经到了狩猎季节。//@顶楼风大:后面…</a>
 </h2>
@@ -114,7 +120,7 @@
 </h2>
 <p>ISIS发布“坦克决”视频。@痴情命苦呀<br><img src="http://ww2.sinaimg.cn/large/71fa61e8gw1exd7i7trk0j20gn11a42h.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3901772416628550" target="freeweibo-mirror">//@张佳珅0://@睡马99:没沙翁的书，也不和女性出去玩…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3901763528930095" target="freeweibo-mirror">//@阳春三月200103://@翟-玉章:在中国是官员养活…</a>
 </h2>
 <p>//@阳春三月200103://@翟-玉章:在中国是官员养活了人民，在英国是人民养活了官员。。。中国人民的幸福和英国人民的不幸福，可谓一目了然！<br><br>RE: 英国公民活得很累。唉！<br><img src="http://ww2.sinaimg.cn/large/006dq7Qagw1exczyeznqmj30hs0oj40m.jpg"></p>
-<p>
-	<small> ============== 9小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3901762547240253" target="freeweibo-mirror">乱世用重典。先这么狠着劲整几年，再说。赞一个！//@邱霄凌:…</a>
-</h2>
-<p>乱世用重典。先这么狠着劲整几年，再说。赞一个！//@邱霄凌: 酷吏 //@清华孙立平:同意//@子非鱼15年：贪官污吏固然要除，这样的忠臣干吏多了，也绝非国家之幸！<br><br>RE: http://t.cn/RUA3UGf   信息量超大，自己研读。 http://t.cn/R2Wx079</p>
 <p>
 	<small> ============== 9小时前</small>
 </p>
