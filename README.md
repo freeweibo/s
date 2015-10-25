@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3901747862811850" target="freeweibo-mirror">应该是自费去的了。</a>
+</h2>
+<p>应该是自费去的了。<br><br>RE: 女子紧随习近平夫妇访英 网民怀疑是明泽http://t.cn/RU2GB5e</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3901742133157026" target="freeweibo-mirror">求什么，得什么，这是最幸福的事。</a>
 </h2>
 <p>求什么，得什么，这是最幸福的事。</p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3901442932352379" target="freeweibo-mirror">唉//@袁裕来律师:转发微博</a>
 </h2>
 <p>唉//@袁裕来律师:转发微博<br><br>RE: 【困难】总书记曾经说要容纳尖锐的批评意见，现在却又说不许妄议，我们无法辨别这两者之间的界限，唯一的选项只能是：啥也别说。<br><img src="http://ww1.sinaimg.cn/large/48866320jw1exbij5m6l9j20m80go76o.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3901441041638229" target="freeweibo-mirror">也许均自作多情。//@乡居书简:毛左说，NO，是针对你们这些…</a>
-</h2>
-<p>也许均自作多情。//@乡居书简:毛左说，NO，是针对你们这些忧国忧民的公知的。<br><br>RE: “妄议”新规，网上反映基本负面，认为是意识形态进一步收紧，对思想自由进一步打压。我认为与提出发展21世纪中国的马克思主义一样，这是习近平改革意识形态的重大步骤，是为全面深化改革清除障碍特别是来自毛左的障碍而进行的顶层设计。是不是这样，我想时间会证明一切。如果我错了，我会公开承认。</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
