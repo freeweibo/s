@@ -24,13 +24,13 @@
 </h2>
 <p>应该是自费去的了。<br><br>RE: 女子紧随习近平夫妇访英 网民怀疑是明泽http://t.cn/RU2GB5e</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3901747061474454" target="freeweibo-mirror">女子紧随习近平夫妇访英 网民怀疑是明泽http://t.cn…</a>
 </h2>
 <p>女子紧随习近平夫妇访英 网民怀疑是明泽http://t.cn/RU2GB5e</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3901744146656734" target="freeweibo-mirror">公有制变成了官有制。//@教育不是忽悠人:公有制其实是政府所…</a>
 </h2>
@@ -84,7 +84,7 @@
 </h2>
 <p>我就读过一本书叫《狼来了》。 //@美裙小鸟儿:真替那个被采访的农民担心，他闯大祸了。<br><br>RE: 习近平报书名，越来越有趣。BBC率先扒坟，采访习近平插队时同屋的农民，其表示习读的是毛选和报纸。淳朴的农民，哪里想到敌对势力的险恶用心？更有甚者，网友连大陆编译莎士比亚的时间表都翻出来了。这就是疯狂打压民意和拼命极权的后果，中共越打造习近平伟大形象，网友偏偏喜欢冷嘲热讽。</p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3901625376988301" target="freeweibo-mirror">//@edwards_l5: [笑cry]//@邱仦剛:右边…</a>
 </h2>
