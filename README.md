@@ -42,13 +42,13 @@
 </h2>
 <p>SPAM 啊啊啊//@荔枝杰:蛤//@radiorock: 噗//@传说中的炒饭HPD: 外交部要严正抗议！映射我国内政！<br><br>RE: ISIS发布“坦克决”视频。@痴情命苦呀<br><img src="http://ww2.sinaimg.cn/large/71fa61e8gw1exd7i7trk0j20gn11a42h.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3901832143369912" target="freeweibo-mirror">你国特警牛逼！//@王星WX://@战争史研究WHS: Th…</a>
 </h2>
 <p>你国特警牛逼！//@王星WX://@战争史研究WHS: This is not a drill. [doge]<br><br>RE: 特警演习的视频！[汗][汗][汗]http://t.cn/RUwIHkt</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3901825817776859" target="freeweibo-mirror">//@一只博: //@打狗仔_120: //@杰华三哥://…</a>
 </h2>
@@ -84,7 +84,7 @@
 </h2>
 <p>估计是他的助理在打理微博，他不会是这个水平和人品。 //@欲说还休的海角:陈律师，我把陈有西律师的原微博贴在你这里，是希望看你微博的人 不要被误导！原以为你大病一场，会有所顿悟。没想到一如既往的断章取义诋毁同行。做人，坦荡一点//@陈光武律师:：陈有西:党员干部越优秀、越能干，危害会越大？<br><br>RE: 我想听听@陈有西 老师的意见。 http://t.cn/RUA3UGf</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3901800732559869" target="freeweibo-mirror">//@闵玉平:妄议朝史</a>
 </h2>
@@ -101,6 +101,12 @@
 	<a href="https://freeweibo.com/weibo/3901797246209205" target="freeweibo-mirror">【朝鲜战争的遐想】65年前的今天，志愿者入朝打响第一枪，这一…</a>
 </h2>
 <p>【朝鲜战争的遐想】65年前的今天，志愿者入朝打响第一枪，这一枪打出了三代世袭的金氏王朝，这一枪保住了只要逃离就能不挨饿的朝鲜，这一枪也造就了一个随时祸害东北的核武库，当然，有失必有得，这一枪使得中国失去成为世袭王国的可能，使得文革的惨剧不在台湾发生。<br><img src="http://ww3.sinaimg.cn/large/9154fba0gw1exd899le3nj20dw06rdg5.jpg"></p>
+<p>
+	<small> ============== 6小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3901790057309884" target="freeweibo-mirror">ISIS发布“坦克决”视频。@痴情命苦呀</a>
+</h2>
+<p>ISIS发布“坦克决”视频。@痴情命苦呀<br><img src="http://ww2.sinaimg.cn/large/71fa61e8gw1exd7i7trk0j20gn11a42h.jpg"></p>
 <p>
 	<small> ============== 6小时前</small>
 </p><h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3901760609368264" target="freeweibo-mirror">BBC妄议中央，泄露了关于莎士比亚的国家机密。建议中国媒体赶…</a>
 </h2>
 <p>BBC妄议中央，泄露了关于莎士比亚的国家机密。建议中国媒体赶快采访当事农民，辟谣、重讲。（坐等被删）【秒拍视频 ：http://t.cn/RysB4Oh</p>
-<p>
-	<small> ============== 8小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3901759044655351" target="freeweibo-mirror">中国梦呓。[笑cry]→_→//@太空行者2011:腐败需要…</a>
-</h2>
-<p>中国梦呓。[笑cry]→_→//@太空行者2011:腐败需要根治，但是铲除腐败的根源和土壤更重要，体制出了问题，不仅仅是腐败，低效、形式主义、弄虚作假、个人崇拜……，要是马云当minister，任志强当secretary，王石当发改委主任，龙应台当宣传部长，A股说不定涨到1万点(梦语)</p>
 <p>
 	<small> ============== 8小时前</small>
 </p>
