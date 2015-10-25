@@ -66,7 +66,7 @@
 </h2>
 <p>前任领导人的外交秀<br><img src="http://ww2.sinaimg.cn/large/005y5v8jgw1exdod67sfzj30r80kfae1.jpg"></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3901894512273091" target="freeweibo-mirror">ISIS逮到一个敌人的坦克手，于是他们决定用坦克决，之后的样…</a>
 </h2>
