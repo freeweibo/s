@@ -24,7 +24,7 @@
 </h2>
 <p>SPAM 发表了一篇转载博文《[转载]羊毛出在羊身上，这110亿美元最终要有劳动者用血汗创造出来！》http://t.cn/RU2EG8V<br><img src="http://ww1.sinaimg.cn/large/5408ee85jw1exdec6eejwj20dq0i4jud.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3901843702819047" target="freeweibo-mirror">其实寻仙不错，虽然骨子里还是个山口山，但好歹跳出了整容时尚男…</a>
 </h2>
@@ -60,13 +60,13 @@
 </h2>
 <p>英国绅士爱打猎、 现在已经到了狩猎季节。//@顶楼风大:后面墙上还有枪呢啊//@北京朱维民:安排临时演员、是前苏联发明、流行于所有共产国家的特殊技术、虽然屡屡被识破、但仍坚韧不拔地实践在外交场合。</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3901804150645286" target="freeweibo-mirror">历史的偶然改变了几亿人的命运。朝战的唯一积极意义，你懂得。 …</a>
 </h2>
 <p>历史的偶然改变了几亿人的命运。朝战的唯一积极意义，你懂得。 //@闵玉平:妄议朝史<br><br>RE: 【朝鲜战争的遐想】65年前的今天，志愿者入朝打响第一枪，这一枪打出了三代世袭的金氏王朝，这一枪保住了只要逃离就能不挨饿的朝鲜，这一枪也造就了一个随时祸害东北的核武库，当然，有失必有得，这一枪使得中国失去成为世袭王国的可能，使得文革的惨剧不在台湾发生。<br><img src="http://ww3.sinaimg.cn/large/9154fba0gw1exd899le3nj20dw06rdg5.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3901802280005374" target="freeweibo-mirror">估计是他的助理在打理微博，他不会是这个水平和人品。 //@欲…</a>
 </h2>
@@ -126,13 +126,13 @@
 </h2>
 <p>中国梦呓。[笑cry]→_→//@太空行者2011:腐败需要根治，但是铲除腐败的根源和土壤更重要，体制出了问题，不仅仅是腐败，低效、形式主义、弄虚作假、个人崇拜……，要是马云当minister，任志强当secretary，王石当发改委主任，龙应台当宣传部长，A股说不定涨到1万点(梦语)</p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3901758331522502" target="freeweibo-mirror">SPAM 信息量很大！这个纪检组长很牛叉！</a>
 </h2>
 <p>SPAM 信息量很大！这个纪检组长很牛叉！<br><br>RE: 信息很多 http://t.cn/RUA3UGf</p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3901752845718381" target="freeweibo-mirror">在人权面前，主权就是个屁。</a>
 </h2>
