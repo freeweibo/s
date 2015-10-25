@@ -30,7 +30,7 @@
 </h2>
 <p>//@阳春三月200103://@翟-玉章:在中国是官员养活了人民，在英国是人民养活了官员。。。中国人民的幸福和英国人民的不幸福，可谓一目了然！<br><br>RE: 英国公民活得很累。唉！<br><img src="http://ww2.sinaimg.cn/large/006dq7Qagw1exczyeznqmj30hs0oj40m.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3901762547240253" target="freeweibo-mirror">乱世用重典。先这么狠着劲整几年，再说。赞一个！//@邱霄凌:…</a>
 </h2>
@@ -114,7 +114,7 @@
 </h2>
 <p>//@清华孙立平:同意//@子非鱼15年：贪官污吏固然要除，这样的忠臣干吏多了，也绝非国家之幸！<br><br>RE: http://t.cn/RUA3UGf   信息量超大，自己研读。 http://t.cn/R2Wx079</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3901732976937061" target="freeweibo-mirror">SPAM //@李佳佳Audrey:香港能成为伟大的城市，并…</a>
 </h2>
