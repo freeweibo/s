@@ -36,7 +36,7 @@
 </h2>
 <p>乱世用重典。先这么狠着劲整几年，再说。赞一个！//@邱霄凌: 酷吏 //@清华孙立平:同意//@子非鱼15年：贪官污吏固然要除，这样的忠臣干吏多了，也绝非国家之幸！<br><br>RE: http://t.cn/RUA3UGf   信息量超大，自己研读。 http://t.cn/R2Wx079</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3901760609368264" target="freeweibo-mirror">BBC妄议中央，泄露了关于莎士比亚的国家机密。建议中国媒体赶…</a>
 </h2>
@@ -60,13 +60,13 @@
 </h2>
 <p>应该是自费去的了。<br><br>RE: 女子紧随习近平夫妇访英 网民怀疑是明泽http://t.cn/RU2GB5e</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3901747061474454" target="freeweibo-mirror">女子紧随习近平夫妇访英 网民怀疑是明泽http://t.cn…</a>
 </h2>
 <p>女子紧随习近平夫妇访英 网民怀疑是明泽http://t.cn/RU2GB5e</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3901744146656734" target="freeweibo-mirror">公有制变成了官有制。//@教育不是忽悠人:公有制其实是政府所…</a>
 </h2>
@@ -120,7 +120,7 @@
 </h2>
 <p>SPAM //@李佳佳Audrey:香港能成为伟大的城市，并不在于地理优势，而是因为拥有健全的行政架构和完善法治的社会。市民、企业能够充满活力地生活、工作、共享繁荣，无不依赖于此。法制、自由、民主、廉洁、多元文化、社会福利是港人心中深深的骄傲，<br><br>RE: 優越感。<br><img src="http://ww3.sinaimg.cn/large/006eMEuijw1exc3h2k8wyj30kk0ep428.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3901724303608811" target="freeweibo-mirror">英国公民活得很累。唉！</a>
 </h2>
