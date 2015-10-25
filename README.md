@@ -24,7 +24,7 @@
 </h2>
 <p>绝无可能的如果。[笑cry] //@笨笨an:外面的世界很精彩 //@谓贤:如果加上共产党执政，英国还有可能成为理想中的国家吗？</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3901849516014508" target="freeweibo-mirror">SPAM 发表了一篇转载博文《[转载]羊毛出在羊身上，这11…</a>
 </h2>
@@ -66,7 +66,7 @@
 </h2>
 <p>//@北京朱维民:安排临时演员、是前苏联发明、流行于所有共产国家的特殊技术、虽然屡屡被识破、但仍坚韧不拔地实践在外交场合。</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3901819220407271" target="freeweibo-mirror">英国绅士爱打猎、 现在已经到了狩猎季节。//@顶楼风大:后面…</a>
 </h2>
@@ -108,7 +108,7 @@
 </h2>
 <p>ISIS发布“坦克决”视频。@痴情命苦呀<br><img src="http://ww2.sinaimg.cn/large/71fa61e8gw1exd7i7trk0j20gn11a42h.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3901772416628550" target="freeweibo-mirror">//@张佳珅0://@睡马99:没沙翁的书，也不和女性出去玩…</a>
 </h2>
@@ -138,7 +138,7 @@
 </h2>
 <p>BBC妄议中央，泄露了关于莎士比亚的国家机密。建议中国媒体赶快采访当事农民，辟谣、重讲。（坐等被删）【秒拍视频 ：http://t.cn/RysB4Oh</p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p>
 <table>
     <tr>
