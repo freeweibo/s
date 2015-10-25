@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3901759044655351" target="freeweibo-mirror">中国梦呓。[笑cry]→_→//@太空行者2011:腐败需要…</a>
+</h2>
+<p>中国梦呓。[笑cry]→_→//@太空行者2011:腐败需要根治，但是铲除腐败的根源和土壤更重要，体制出了问题，不仅仅是腐败，低效、形式主义、弄虚作假、个人崇拜……，要是马云当minister，任志强当secretary，王石当发改委主任，龙应台当宣传部长，A股说不定涨到1万点(梦语)</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3901747862811850" target="freeweibo-mirror">应该是自费去的了。</a>
 </h2>
 <p>应该是自费去的了。<br><br>RE: 女子紧随习近平夫妇访英 网民怀疑是明泽http://t.cn/RU2GB5e</p>
@@ -74,6 +80,12 @@
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3901732976937061" target="freeweibo-mirror">SPAM //@李佳佳Audrey:香港能成为伟大的城市，并…</a>
+</h2>
+<p>SPAM //@李佳佳Audrey:香港能成为伟大的城市，并不在于地理优势，而是因为拥有健全的行政架构和完善法治的社会。市民、企业能够充满活力地生活、工作、共享繁荣，无不依赖于此。法制、自由、民主、廉洁、多元文化、社会福利是港人心中深深的骄傲，<br><br>RE: 優越感。<br><img src="http://ww3.sinaimg.cn/large/006eMEuijw1exc3h2k8wyj30kk0ep428.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3901710508243990" target="freeweibo-mirror">任大炮说“公有制不应该是在市场中占主导地位，而应该是在非市场…</a>
 </h2>
 <p>任大炮说“公有制不应该是在市场中占主导地位，而应该是在非市场中占主导，比如国防、教育、安全、法律、医疗、养老，环境保护等。”事实上，国企一直在与民争利，甚至把住房教育医疗当垄断生意来做。但截止九月末，国企负债总额居然已超77万亿元，P民要人均分摊欠款6万元…甚至连收费公路居然亏了钱？<br><img src="http://ww4.sinaimg.cn/large/005SvoAtgw1excyazb0dxj30cs0atta4.jpg"></p>
@@ -125,18 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3901581122421637" target="freeweibo-mirror">SPAM 下个月也许有机会去实地寻访一二//@殆知阁: //…</a>
 </h2>
 <p>SPAM 下个月也许有机会去实地寻访一二//@殆知阁: //@小Mr五柳: ....................<br><br>RE: 好多台湾网友发现：爷爷家老房子的浴室墙砖上有这种羞羞的图案。难怪以前台湾的出生率比现在高...<br><img src="http://ww2.sinaimg.cn/large/bff7300fgw1excj0ojsavj20ey0k0gmg.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3901576982461578" target="freeweibo-mirror">好多台湾网友发现：爷爷家老房子的浴室墙砖上有这种羞羞的图案。…</a>
-</h2>
-<p>好多台湾网友发现：爷爷家老房子的浴室墙砖上有这种羞羞的图案。难怪以前台湾的出生率比现在高...<br><img src="http://ww2.sinaimg.cn/large/bff7300fgw1excj0ojsavj20ey0k0gmg.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3901543013645157" target="freeweibo-mirror">@叶檀 :大饥荒时代的几千万人命被说成探索性错误，这些人要补…</a>
-</h2>
-<p>@叶檀 :大饥荒时代的几千万人命被说成探索性错误，这些人要补的是良知、真诚，这些无知无耻者，应该到夹皮沟忏悔。 中国是不是设立一块实验地，一切回到50年代末，饿着他们，冻着他们，时刻让他们学语录，灵魂深处爆发革命，饿着肚子跳忠字舞。大家参观，以资鼓励。让他们求什么得到什么。</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
