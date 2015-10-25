@@ -90,7 +90,7 @@
 </h2>
 <p>根本不把人命当回事，当然没有人性！ //@雷颐:转发微博</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3901735985133837" target="freeweibo-mirror">//@谓贤:很想知道「探索性错误」的原创是谁？</a>
 </h2>
