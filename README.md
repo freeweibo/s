@@ -48,7 +48,7 @@
 </h2>
 <p>这应该成为中国人的新常态。<br><br>RE: 有选票的民众面对政治人物，就是如此淡定[酷]<br><img src="http://ww2.sinaimg.cn/large/7052cea7jw1exd7ygk6lkj20qo0gptcn.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3901873939563974" target="freeweibo-mirror">[哈哈] //@然后下面就没了:</a>
 </h2>
@@ -66,7 +66,7 @@
 </h2>
 <p>[挖鼻] //@袁裕来律师:敞国国民被唤醒奴性之前，见不到官位过高的人。//@沧海遇到桑田：敝国国民一见到官位过高的人，情不自禁的会油然产生一种下跪的冲动[偷笑]<br><br>RE: 有选票的民众面对政治人物，就是如此淡定[酷]<br><img src="http://ww2.sinaimg.cn/large/7052cea7jw1exd7ygk6lkj20qo0gptcn.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3901855182727662" target="freeweibo-mirror">程晓农：习近平并不完全了解他名单上人的真实情况，像普列汉诺夫…</a>
 </h2>
@@ -138,7 +138,7 @@
 </h2>
 <p>估计是他的助理在打理微博，他不会是这个水平和人品。 //@欲说还休的海角:陈律师，我把陈有西律师的原微博贴在你这里，是希望看你微博的人 不要被误导！原以为你大病一场，会有所顿悟。没想到一如既往的断章取义诋毁同行。做人，坦荡一点//@陈光武律师:：陈有西:党员干部越优秀、越能干，危害会越大？<br><br>RE: 我想听听@陈有西 老师的意见。 http://t.cn/RUA3UGf</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p>
 <table>
     <tr>
