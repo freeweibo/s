@@ -42,7 +42,7 @@
 </h2>
 <p>[吃惊] //@LT视界:[汗] //@美帝金融街:咱们这有挖机碾决绝！都蛮有创意，对恶魔们来说！<br><br>RE: ISIS发布“坦克决”视频。<br><img src="http://ww2.sinaimg.cn/large/006g5PEXgw1exd06pkh8oj30gm09c3zo.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3901948782900812" target="freeweibo-mirror">SPAM //@私家野史:[吃驚]//@战争史研究WHS: …</a>
 </h2>
@@ -54,7 +54,7 @@
 </h2>
 <p>[偷笑]//@纪昀: [黑线]<br><br>RE: 前任领导人的外交秀<br><img src="http://ww2.sinaimg.cn/large/005y5v8jgw1exdod67sfzj30r80kfae1.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3901936900470636" target="freeweibo-mirror">前任领导人的外交秀</a>
 </h2>
@@ -108,7 +108,7 @@
 </h2>
 <p>程晓农：习近平并不完全了解他名单上人的真实情况，像普列汉诺夫。习可能不知道他并不是文艺大家，而是马克思主义家。选择普列汉诺夫对习近平其实是政治不正确的，因为普列汉诺夫反对列宁，反对十月革命和布尔什维克。他正属于习近平批判的所谓吃饱了没事干的独立知识分子群体。</p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3901850484784175" target="freeweibo-mirror">绝无可能的如果。[笑cry] //@笨笨an:外面的世界很精…</a>
 </h2>
