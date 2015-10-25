@@ -78,13 +78,13 @@
 </h2>
 <p>[白眼]//@彭幼生: 普列汉诺夫美学文论《论艺术》是左翼文艺家所尊崇的，并不仅仅是马克思主义家。<br><br>RE: 程晓农：习近平并不完全了解他名单上人的真实情况，像普列汉诺夫。习可能不知道他并不是文艺大家，而是马克思主义家。选择普列汉诺夫对习近平其实是政治不正确的，因为普列汉诺夫反对列宁，反对十月革命和布尔什维克。他正属于习近平批判的所谓吃饱了没事干的独立知识分子群体。</p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3901886954723499" target="freeweibo-mirror">SPAM 回复@海羽瞰阮ME艾塔:看起来很赞诶~~~//@海…</a>
 </h2>
 <p>SPAM 回复@海羽瞰阮ME艾塔:看起来很赞诶~~~//@海羽瞰阮ME艾塔:@押切YAKI @黄靖翔 [笑cry][笑cry]强迫症产物，第二版样衣了，不出意外征集结束前还会有第三版[笑cry]数码印花颜色继续实验调整。</p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3901885297389147" target="freeweibo-mirror">这应该成为中国人的新常态。</a>
 </h2>
@@ -126,7 +126,7 @@
 </h2>
 <p>SPAM 发表了一篇转载博文《[转载]羊毛出在羊身上，这110亿美元最终要有劳动者用血汗创造出来！》http://t.cn/RU2EG8V<br><img src="http://ww1.sinaimg.cn/large/5408ee85jw1exdec6eejwj20dq0i4jud.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3901843702819047" target="freeweibo-mirror">其实寻仙不错，虽然骨子里还是个山口山，但好歹跳出了整容时尚男…</a>
 </h2>
