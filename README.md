@@ -96,13 +96,13 @@
 </h2>
 <p>[哈哈] //@然后下面就没了:</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3901873658399654" target="freeweibo-mirror">//@作家岳南:贵国国民如见到皇帝或县太爷，不下跪磕头或要被…</a>
 </h2>
 <p>//@作家岳南:贵国国民如见到皇帝或县太爷，不下跪磕头或要被砍头。</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3901869888176100" target="freeweibo-mirror">[挖鼻] //@袁裕来律师:敞国国民被唤醒奴性之前，见不到官…</a>
 </h2>
