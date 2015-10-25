@@ -132,7 +132,7 @@
 </h2>
 <p>任大炮说“公有制不应该是在市场中占主导地位，而应该是在非市场中占主导，比如国防、教育、安全、法律、医疗、养老，环境保护等。”事实上，国企一直在与民争利，甚至把住房教育医疗当垄断生意来做。但截止九月末，国企负债总额居然已超77万亿元，P民要人均分摊欠款6万元…甚至连收费公路居然亏了钱？<br><img src="http://ww4.sinaimg.cn/large/005SvoAtgw1excyazb0dxj30cs0atta4.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3901647044199715" target="freeweibo-mirror">http://t.cn/RUA3UGf   信息量超大，自己…</a>
 </h2>
