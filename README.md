@@ -102,7 +102,7 @@
 </h2>
 <p>//@谓贤:很想知道「探索性错误」的原创是谁？</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3901735398007162" target="freeweibo-mirror">很想知道「探索性错误」的原创是谁？</a>
 </h2>
