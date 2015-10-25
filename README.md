@@ -26,6 +26,12 @@
 <p>
 	<small> ============== 1小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3901802280005374" target="freeweibo-mirror">估计是他的助理在打理微博，他不会是这个水平和人品。 //@欲…</a>
+</h2>
+<p>估计是他的助理在打理微博，他不会是这个水平和人品。 //@欲说还休的海角:陈律师，我把陈有西律师的原微博贴在你这里，是希望看你微博的人 不要被误导！原以为你大病一场，会有所顿悟。没想到一如既往的断章取义诋毁同行。做人，坦荡一点//@陈光武律师:：陈有西:党员干部越优秀、越能干，危害会越大？<br><br>RE: 我想听听@陈有西 老师的意见。 http://t.cn/RUA3UGf</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3901772416628550" target="freeweibo-mirror">//@张佳珅0://@睡马99:没沙翁的书，也不和女性出去玩…</a>
 </h2>
 <p>//@张佳珅0://@睡马99:没沙翁的书，也不和女性出去玩，难怪会问啥士比呀//@aoliduo--:  http://t.cn/RU2fFbp //@书生药师:没有什么好书看[挖鼻] //@aoliduo--:[阴险] //@布衣-乱-弹://@木乃益:这个老农未能与党中央保持一致。[抓狂][抓狂]<br><br>RE: BBC妄议中央，泄露了关于莎士比亚的国家机密。建议中国媒体赶快采访当事农民，辟谣、重讲。（坐等被删）【秒拍视频 ：http://t.cn/RysB4Oh</p>
@@ -53,6 +59,12 @@
 	<a href="https://freeweibo.com/weibo/3901759044655351" target="freeweibo-mirror">中国梦呓。[笑cry]→_→//@太空行者2011:腐败需要…</a>
 </h2>
 <p>中国梦呓。[笑cry]→_→//@太空行者2011:腐败需要根治，但是铲除腐败的根源和土壤更重要，体制出了问题，不仅仅是腐败，低效、形式主义、弄虚作假、个人崇拜……，要是马云当minister，任志强当secretary，王石当发改委主任，龙应台当宣传部长，A股说不定涨到1万点(梦语)</p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3901758331522502" target="freeweibo-mirror">SPAM 信息量很大！这个纪检组长很牛叉！</a>
+</h2>
+<p>SPAM 信息量很大！这个纪检组长很牛叉！<br><br>RE: 信息很多 http://t.cn/RUA3UGf</p>
 <p>
 	<small> ============== 4小时前</small>
 </p><h2>
@@ -102,7 +114,7 @@
 </h2>
 <p>根本不把人命当回事，当然没有人性！ //@雷颐:转发微博</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3901735985133837" target="freeweibo-mirror">//@谓贤:很想知道「探索性错误」的原创是谁？</a>
 </h2>
@@ -127,18 +139,6 @@
 <p>SPAM //@李佳佳Audrey:香港能成为伟大的城市，并不在于地理优势，而是因为拥有健全的行政架构和完善法治的社会。市民、企业能够充满活力地生活、工作、共享繁荣，无不依赖于此。法制、自由、民主、廉洁、多元文化、社会福利是港人心中深深的骄傲，<br><br>RE: 優越感。<br><img src="http://ww3.sinaimg.cn/large/006eMEuijw1exc3h2k8wyj30kk0ep428.jpg"></p>
 <p>
 	<small> ============== 6小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3901724303608811" target="freeweibo-mirror">英国公民活得很累。唉！</a>
-</h2>
-<p>英国公民活得很累。唉！<br><img src="http://ww2.sinaimg.cn/large/006dq7Qagw1exczyeznqmj30hs0oj40m.jpg"></p>
-<p>
-	<small> ============== 6小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3901710508243990" target="freeweibo-mirror">任大炮说“公有制不应该是在市场中占主导地位，而应该是在非市场…</a>
-</h2>
-<p>任大炮说“公有制不应该是在市场中占主导地位，而应该是在非市场中占主导，比如国防、教育、安全、法律、医疗、养老，环境保护等。”事实上，国企一直在与民争利，甚至把住房教育医疗当垄断生意来做。但截止九月末，国企负债总额居然已超77万亿元，P民要人均分摊欠款6万元…甚至连收费公路居然亏了钱？<br><img src="http://ww4.sinaimg.cn/large/005SvoAtgw1excyazb0dxj30cs0atta4.jpg"></p>
-<p>
-	<small> ============== 7小时前</small>
 </p>
 <table>
     <tr>
