@@ -48,7 +48,13 @@
 </h2>
 <p>前任领导人的外交秀<br><img src="http://ww2.sinaimg.cn/large/005y5v8jgw1exdod67sfzj30r80kfae1.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3901894512273091" target="freeweibo-mirror">ISIS逮到一个敌人的坦克手，于是他们决定用坦克决，之后的样…</a>
+</h2>
+<p>ISIS逮到一个敌人的坦克手，于是他们决定用坦克决，之后的样子我就不发了。<br><img src="http://ww3.sinaimg.cn/large/7a347ce5jw1exdji5gt55g206m03kb29.gif"></p>
+<p>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3901887155933722" target="freeweibo-mirror">[白眼]//@彭幼生: 普列汉诺夫美学文论《论艺术》是左翼文…</a>
 </h2>
@@ -114,13 +120,13 @@
 </h2>
 <p>SPAM 啊啊啊//@荔枝杰:蛤//@radiorock: 噗//@传说中的炒饭HPD: 外交部要严正抗议！映射我国内政！<br><br>RE: ISIS发布“坦克决”视频。@痴情命苦呀<br><img src="http://ww2.sinaimg.cn/large/71fa61e8gw1exd7i7trk0j20gn11a42h.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3901832143369912" target="freeweibo-mirror">你国特警牛逼！//@王星WX://@战争史研究WHS: Th…</a>
 </h2>
 <p>你国特警牛逼！//@王星WX://@战争史研究WHS: This is not a drill. [doge]<br><br>RE: 特警演习的视频！[汗][汗][汗]http://t.cn/RUwIHkt</p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3901825817776859" target="freeweibo-mirror">//@一只博: //@打狗仔_120: //@杰华三哥://…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3901822693055068" target="freeweibo-mirror">//@porton: //@北京朱维民: 英国绅士爱打猎、 …</a>
 </h2>
 <p>//@porton: //@北京朱维民: 英国绅士爱打猎、 现在已经到了狩猎季节。//@顶楼风大:后面墙上还有枪呢啊//@北京朱维民:安排临时演员、是前苏联发明、流行于所有共产国家的特殊技术、虽然屡屡被识破、但仍坚韧不拔地实践在外交场合。</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3901820126359533" target="freeweibo-mirror">//@北京朱维民:安排临时演员、是前苏联发明、流行于所有共产…</a>
-</h2>
-<p>//@北京朱维民:安排临时演员、是前苏联发明、流行于所有共产国家的特殊技术、虽然屡屡被识破、但仍坚韧不拔地实践在外交场合。</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
