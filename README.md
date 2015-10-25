@@ -36,7 +36,7 @@
 </h2>
 <p>对头 //@王甫律师:直呼其名?[吃惊]</p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3901964997778648" target="freeweibo-mirror">直呼其名?[吃惊]</a>
 </h2>
@@ -90,7 +90,7 @@
 </h2>
 <p>这应该成为中国人的新常态。<br><br>RE: 有选票的民众面对政治人物，就是如此淡定[酷]<br><img src="http://ww2.sinaimg.cn/large/7052cea7jw1exd7ygk6lkj20qo0gptcn.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3901873939563974" target="freeweibo-mirror">[哈哈] //@然后下面就没了:</a>
 </h2>
