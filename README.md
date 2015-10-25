@@ -30,7 +30,13 @@
 </h2>
 <p>//@阳春三月200103://@翟-玉章:在中国是官员养活了人民，在英国是人民养活了官员。。。中国人民的幸福和英国人民的不幸福，可谓一目了然！<br><br>RE: 英国公民活得很累。唉！<br><img src="http://ww2.sinaimg.cn/large/006dq7Qagw1exczyeznqmj30hs0oj40m.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3901760609368264" target="freeweibo-mirror">BBC妄议中央，泄露了关于莎士比亚的国家机密。建议中国媒体赶…</a>
+</h2>
+<p>BBC妄议中央，泄露了关于莎士比亚的国家机密。建议中国媒体赶快采访当事农民，辟谣、重讲。（坐等被删）【秒拍视频 ：http://t.cn/RysB4Oh</p>
+<p>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3901759044655351" target="freeweibo-mirror">中国梦呓。[笑cry]→_→//@太空行者2011:腐败需要…</a>
 </h2>
@@ -133,12 +139,6 @@
 <p>【最贵之尴尬演讲】英国下院议长约翰•伯考介绍习并表示：“希望中国成为不仅军事强大的国家，而且是给百姓福利待遇，给人民道德灵感的国家。英国欢迎中国的经济合作，但是希望经济果实由全体中国人民分享，而不希望经济果实由极少数政客亲属所垄断……”话音未落掌声雷动！那么多钱都堵不上人的嘴！转<br><img src="http://ww2.sinaimg.cn/large/006g4yq3jw1excmkqtlpfj30bo08agly.jpg"></p>
 <p>
 	<small> ============== 12小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3901599564762865" target="freeweibo-mirror">SPAM 看上去像是照镜子、洗洗澡... //@徐昕:不是二…</a>
-</h2>
-<p>SPAM 看上去像是照镜子、洗洗澡... //@徐昕:不是二奶反腐大会吧？//@西风瘦马飘: //@亮剑兄来了: //@王师北定FK: //@lianglun1996:[哈哈]//@wm_yu: 什么会？//@荣剑2001:开什么玩笑！//@张晨初艺术空间://@静静坐着思维也是旅行:什么地方？。。。太不协调了。。。[泪]<br><br>RE: 分享图片<br><img src="http://ww2.sinaimg.cn/large/65cfb01djw1ew5q9p93rfj20f00qodje.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
 </p>
 <table>
     <tr>
