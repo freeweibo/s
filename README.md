@@ -32,6 +32,12 @@
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3901885297389147" target="freeweibo-mirror">这应该成为中国人的新常态。</a>
+</h2>
+<p>这应该成为中国人的新常态。<br><br>RE: 有选票的民众面对政治人物，就是如此淡定[酷]<br><img src="http://ww2.sinaimg.cn/large/7052cea7jw1exd7ygk6lkj20qo0gptcn.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3901873939563974" target="freeweibo-mirror">[哈哈] //@然后下面就没了:</a>
 </h2>
 <p>[哈哈] //@然后下面就没了:</p>
@@ -41,6 +47,12 @@
 	<a href="https://freeweibo.com/weibo/3901873658399654" target="freeweibo-mirror">//@作家岳南:贵国国民如见到皇帝或县太爷，不下跪磕头或要被…</a>
 </h2>
 <p>//@作家岳南:贵国国民如见到皇帝或县太爷，不下跪磕头或要被砍头。</p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3901869888176100" target="freeweibo-mirror">[挖鼻] //@袁裕来律师:敞国国民被唤醒奴性之前，见不到官…</a>
+</h2>
+<p>[挖鼻] //@袁裕来律师:敞国国民被唤醒奴性之前，见不到官位过高的人。//@沧海遇到桑田：敝国国民一见到官位过高的人，情不自禁的会油然产生一种下跪的冲动[偷笑]<br><br>RE: 有选票的民众面对政治人物，就是如此淡定[酷]<br><img src="http://ww2.sinaimg.cn/large/7052cea7jw1exd7ygk6lkj20qo0gptcn.jpg"></p>
 <p>
 	<small> ============== 4小时前</small>
 </p><h2>
@@ -120,25 +132,13 @@
 </h2>
 <p>这都是那些不怀好意、别有用心的外媒，想要抹黑中国体制制度的谣言。我坚定不移地相信中国共产党那严格的批评和自我批评和党的廉政建设的组织纪律，党员们都有着廉洁而又崇高的共产主义思想道德品质，有着随时为党和人民牺牲一切的大无畏革命精神。<br><br>RE: 外媒报道称，谷俊山腐败金额多达280多亿，徐才厚、郭伯雄涉及腐败金额都在百亿以上。环球社评却称：军队腐败的漏洞虽然出了，但解放军的内部制度仍不失全国最严。如果连全国最严的制度个人都可以贪上百亿，其它制度就可想而知了。</p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3901797246209205" target="freeweibo-mirror">【朝鲜战争的遐想】65年前的今天，志愿者入朝打响第一枪，这一…</a>
 </h2>
 <p>【朝鲜战争的遐想】65年前的今天，志愿者入朝打响第一枪，这一枪打出了三代世袭的金氏王朝，这一枪保住了只要逃离就能不挨饿的朝鲜，这一枪也造就了一个随时祸害东北的核武库，当然，有失必有得，这一枪使得中国失去成为世袭王国的可能，使得文革的惨剧不在台湾发生。<br><img src="http://ww3.sinaimg.cn/large/9154fba0gw1exd899le3nj20dw06rdg5.jpg"></p>
 <p>
 	<small> ============== 9小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3901790057309884" target="freeweibo-mirror">ISIS发布“坦克决”视频。@痴情命苦呀</a>
-</h2>
-<p>ISIS发布“坦克决”视频。@痴情命苦呀<br><img src="http://ww2.sinaimg.cn/large/71fa61e8gw1exd7i7trk0j20gn11a42h.jpg"></p>
-<p>
-	<small> ============== 9小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3901772416628550" target="freeweibo-mirror">//@张佳珅0://@睡马99:没沙翁的书，也不和女性出去玩…</a>
-</h2>
-<p>//@张佳珅0://@睡马99:没沙翁的书，也不和女性出去玩，难怪会问啥士比呀//@aoliduo--:  http://t.cn/RU2fFbp //@书生药师:没有什么好书看[挖鼻] //@aoliduo--:[阴险] //@布衣-乱-弹://@木乃益:这个老农未能与党中央保持一致。[抓狂][抓狂]<br><br>RE: BBC妄议中央，泄露了关于莎士比亚的国家机密。建议中国媒体赶快采访当事农民，辟谣、重讲。（坐等被删）【秒拍视频 ：http://t.cn/RysB4Oh</p>
-<p>
-	<small> ============== 10小时前</small>
 </p>
 <table>
     <tr>
