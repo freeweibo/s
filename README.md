@@ -84,7 +84,7 @@
 </h2>
 <p>这应该成为中国人的新常态。<br><br>RE: 有选票的民众面对政治人物，就是如此淡定[酷]<br><img src="http://ww2.sinaimg.cn/large/7052cea7jw1exd7ygk6lkj20qo0gptcn.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3901873939563974" target="freeweibo-mirror">[哈哈] //@然后下面就没了:</a>
 </h2>
@@ -102,7 +102,7 @@
 </h2>
 <p>[挖鼻] //@袁裕来律师:敞国国民被唤醒奴性之前，见不到官位过高的人。//@沧海遇到桑田：敝国国民一见到官位过高的人，情不自禁的会油然产生一种下跪的冲动[偷笑]<br><br>RE: 有选票的民众面对政治人物，就是如此淡定[酷]<br><img src="http://ww2.sinaimg.cn/large/7052cea7jw1exd7ygk6lkj20qo0gptcn.jpg"></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3901855182727662" target="freeweibo-mirror">程晓农：习近平并不完全了解他名单上人的真实情况，像普列汉诺夫…</a>
 </h2>
@@ -132,13 +132,13 @@
 </h2>
 <p>SPAM 啊啊啊//@荔枝杰:蛤//@radiorock: 噗//@传说中的炒饭HPD: 外交部要严正抗议！映射我国内政！<br><br>RE: ISIS发布“坦克决”视频。@痴情命苦呀<br><img src="http://ww2.sinaimg.cn/large/71fa61e8gw1exd7i7trk0j20gn11a42h.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3901832143369912" target="freeweibo-mirror">你国特警牛逼！//@王星WX://@战争史研究WHS: Th…</a>
 </h2>
 <p>你国特警牛逼！//@王星WX://@战争史研究WHS: This is not a drill. [doge]<br><br>RE: 特警演习的视频！[汗][汗][汗]http://t.cn/RUwIHkt</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p>
 <table>
     <tr>
