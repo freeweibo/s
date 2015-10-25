@@ -36,7 +36,7 @@
 </h2>
 <p>这应该成为中国人的新常态。<br><br>RE: 有选票的民众面对政治人物，就是如此淡定[酷]<br><img src="http://ww2.sinaimg.cn/large/7052cea7jw1exd7ygk6lkj20qo0gptcn.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3901873939563974" target="freeweibo-mirror">[哈哈] //@然后下面就没了:</a>
 </h2>
@@ -54,7 +54,7 @@
 </h2>
 <p>[挖鼻] //@袁裕来律师:敞国国民被唤醒奴性之前，见不到官位过高的人。//@沧海遇到桑田：敝国国民一见到官位过高的人，情不自禁的会油然产生一种下跪的冲动[偷笑]<br><br>RE: 有选票的民众面对政治人物，就是如此淡定[酷]<br><img src="http://ww2.sinaimg.cn/large/7052cea7jw1exd7ygk6lkj20qo0gptcn.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3901855182727662" target="freeweibo-mirror">程晓农：习近平并不完全了解他名单上人的真实情况，像普列汉诺夫…</a>
 </h2>
