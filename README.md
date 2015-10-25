@@ -54,7 +54,7 @@
 </h2>
 <p>在人权面前，主权就是个屁。</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3901747862811850" target="freeweibo-mirror">应该是自费去的了。</a>
 </h2>
@@ -138,7 +138,7 @@
 </h2>
 <p>http://t.cn/RUA3UGf   信息量超大，自己研读。 http://t.cn/R2Wx079</p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p>
 <table>
     <tr>
