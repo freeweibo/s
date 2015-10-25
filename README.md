@@ -30,7 +30,7 @@
 </h2>
 <p>前任领导人的外交秀<br><img src="http://ww2.sinaimg.cn/large/005y5v8jgw1exdod67sfzj30r80kfae1.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3901887155933722" target="freeweibo-mirror">[白眼]//@彭幼生: 普列汉诺夫美学文论《论艺术》是左翼文…</a>
 </h2>
