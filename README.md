@@ -26,6 +26,18 @@
 <p>
 	<small> ============== 1小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3901744146656734" target="freeweibo-mirror">公有制变成了官有制。//@教育不是忽悠人:公有制其实是政府所…</a>
+</h2>
+<p>公有制变成了官有制。//@教育不是忽悠人:公有制其实是政府所有制，但国企始终解决不了低效、浪费的问题，国企加大垄断程度，整体经济已经岌岌可危。//@京都探花:民企亏了，做不下去了，关门；国企央企亏了，谁在给它输血？<br><br>RE: 任大炮说“公有制不应该是在市场中占主导地位，而应该是在非市场中占主导，比如国防、教育、安全、法律、医疗、养老，环境保护等。”事实上，国企一直在与民争利，甚至把住房教育医疗当垄断生意来做。但截止九月末，国企负债总额居然已超77万亿元，P民要人均分摊欠款6万元…甚至连收费公路居然亏了钱？<br><img src="http://ww4.sinaimg.cn/large/005SvoAtgw1excyazb0dxj30cs0atta4.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3901743693369496" target="freeweibo-mirror">//@雷颐:转发微博</a>
+</h2>
+<p>//@雷颐:转发微博</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3901742133157026" target="freeweibo-mirror">求什么，得什么，这是最幸福的事。</a>
 </h2>
 <p>求什么，得什么，这是最幸福的事。</p>
@@ -37,6 +49,24 @@
 <p>//@凌虚铺子:【垄断行业的“吸星大法”】移动、联通、电信垄断通讯，中国电话费高；“三桶油”垄断石油供给，中国油价高；地方政府垄断城市土地供应，中国房价高；政府垄断收费公路，中国过路费高；国有银行垄断银行贷款，中国民间利率高…垄断行业以占全国8%的员工，却获得了全国工资总额的55%...<br><br>RE: 任大炮说“公有制不应该是在市场中占主导地位，而应该是在非市场中占主导，比如国防、教育、安全、法律、医疗、养老，环境保护等。”事实上，国企一直在与民争利，甚至把住房教育医疗当垄断生意来做。但截止九月末，国企负债总额居然已超77万亿元，P民要人均分摊欠款6万元…甚至连收费公路居然亏了钱？<br><img src="http://ww4.sinaimg.cn/large/005SvoAtgw1excyazb0dxj30cs0atta4.jpg"></p>
 <p>
 	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3901738286850384" target="freeweibo-mirror">根本不把人命当回事，当然没有人性！ //@雷颐:转发微博</a>
+</h2>
+<p>根本不把人命当回事，当然没有人性！ //@雷颐:转发微博</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3901735985133837" target="freeweibo-mirror">//@谓贤:很想知道「探索性错误」的原创是谁？</a>
+</h2>
+<p>//@谓贤:很想知道「探索性错误」的原创是谁？</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3901735398007162" target="freeweibo-mirror">很想知道「探索性错误」的原创是谁？</a>
+</h2>
+<p>很想知道「探索性错误」的原创是谁？</p>
+<p>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3901710508243990" target="freeweibo-mirror">任大炮说“公有制不应该是在市场中占主导地位，而应该是在非市场…</a>
 </h2>
@@ -66,7 +96,7 @@
 </h2>
 <p>[哈哈]大家的智商都在80以上吧！//@京都探花: “保护人权，没有最好，只有更好。”习近平说，“人权问题上，最大的发言权，还是所在国人民”。<br><br>RE: 【最贵之尴尬演讲】英国下院议长约翰•伯考介绍习并表示：“希望中国成为不仅军事强大的国家，而且是给百姓福利待遇，给人民道德灵感的国家。英国欢迎中国的经济合作，但是希望经济果实由全体中国人民分享，而不希望经济果实由极少数政客亲属所垄断……”话音未落掌声雷动！那么多钱都堵不上人的嘴！转<br><img src="http://ww2.sinaimg.cn/large/006g4yq3jw1excmkqtlpfj30bo08agly.jpg"></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3901607790370763" target="freeweibo-mirror">【最贵之尴尬演讲】英国下院议长约翰•伯考介绍习并表示：“希望…</a>
 </h2>
@@ -107,36 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3901540454960229" target="freeweibo-mirror">据非正式消息，下月，中国国家主席习近平携夫人来访新加坡。 h…</a>
 </h2>
 <p>据非正式消息，下月，中国国家主席习近平携夫人来访新加坡。 http://t.cn/8Fv0fJX<br><img src="http://ww3.sinaimg.cn/large/7d410493gw1excetw5u28j20hs0doq3z.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3901465422237878" target="freeweibo-mirror">这个帖子迄今未被删除，算是奇迹！有的发这照片的ID，不是禁言…</a>
-</h2>
-<p>这个帖子迄今未被删除，算是奇迹！有的发这照片的ID，不是禁言，就是销号。→_→//@泡酒1573：一群sb还要说的多直白才懂，冯教授的意思是这类转发境外报纸图片的贴要删除，特别是破坏领导形象的，这是符合我党新闻管制政策的，要骂翻墙出去骂吧。<br><br>RE: 台湾自由时报继续“毁人不倦”，这一次直接针对彭麻麻，头版头条：“脸妆失控浮白粉，彭麻麻变厉鬼！”把第一夫人形容成“厉鬼”，把主席演讲说成“集体打瞌睡”，哈哈，自由时报你就继续吧！自由时报老板林荣三，宏泰人寿是你的吗？你的大陆投资项目藏得太深了，你这只大白鲨我查起来费劲啊。<br><img src="http://ww2.sinaimg.cn/large/945fe7c9jw1exbwxd5r5tj20k00f0n05.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3901463731987370" target="freeweibo-mirror">SPAM [哈哈]  //@然后下面就没了:</a>
-</h2>
-<p>SPAM [哈哈]  //@然后下面就没了:</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3901451895663803" target="freeweibo-mirror">冯桑厉害//@多难未必兴邦2014: 二鬼子比较老逼 //@…</a>
-</h2>
-<p>冯桑厉害//@多难未必兴邦2014: 二鬼子比较老逼 //@华夏-军团:冯二狗这么厉害？//@裸枪:嚣张？//@源远一流长: 霸气//@Kasrsenclave:冯桑好大的口气啊[挖鼻屎] ]//@徐付群://@复旦大学冯玮:黄安，你这是谴责自由时报？建议你把这帖子删除。既然你是“作家”，理由不需要我说明吧？<br><br>RE: 台湾自由时报继续“毁人不倦”，这一次直接针对彭麻麻，头版头条：“脸妆失控浮白粉，彭麻麻变厉鬼！”把第一夫人形容成“厉鬼”，把主席演讲说成“集体打瞌睡”，哈哈，自由时报你就继续吧！自由时报老板林荣三，宏泰人寿是你的吗？你的大陆投资项目藏得太深了，你这只大白鲨我查起来费劲啊。<br><img src="http://ww2.sinaimg.cn/large/945fe7c9jw1exbwxd5r5tj20k00f0n05.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3901445302277127" target="freeweibo-mirror">SPAM 如果孩子不爱爹妈，我就不要这个孩子！</a>
-</h2>
-<p>SPAM 如果孩子不爱爹妈，我就不要这个孩子！<br><br>RE: 说谎的本领，从娃娃抓起。<br><img src="http://ww4.sinaimg.cn/large/41693645gw1exc2mnppgzj20zk0zk79a.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3901442932352379" target="freeweibo-mirror">唉//@袁裕来律师:转发微博</a>
-</h2>
-<p>唉//@袁裕来律师:转发微博<br><br>RE: 【困难】总书记曾经说要容纳尖锐的批评意见，现在却又说不许妄议，我们无法辨别这两者之间的界限，唯一的选项只能是：啥也别说。<br><img src="http://ww1.sinaimg.cn/large/48866320jw1exbij5m6l9j20m80go76o.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
