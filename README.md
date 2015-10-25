@@ -36,7 +36,7 @@
 </h2>
 <p>对头 //@王甫律师:直呼其名?[吃惊]</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3901964997778648" target="freeweibo-mirror">直呼其名?[吃惊]</a>
 </h2>
@@ -66,7 +66,7 @@
 </h2>
 <p>前任领导人的外交秀<br><img src="http://ww2.sinaimg.cn/large/005y5v8jgw1exdod67sfzj30r80kfae1.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3901894512273091" target="freeweibo-mirror">ISIS逮到一个敌人的坦克手，于是他们决定用坦克决，之后的样…</a>
 </h2>
