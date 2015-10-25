@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3901822693055068" target="freeweibo-mirror">//@porton: //@北京朱维民: 英国绅士爱打猎、 …</a>
+</h2>
+<p>//@porton: //@北京朱维民: 英国绅士爱打猎、 现在已经到了狩猎季节。//@顶楼风大:后面墙上还有枪呢啊//@北京朱维民:安排临时演员、是前苏联发明、流行于所有共产国家的特殊技术、虽然屡屡被识破、但仍坚韧不拔地实践在外交场合。</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3901804150645286" target="freeweibo-mirror">历史的偶然改变了几亿人的命运。朝战的唯一积极意义，你懂得。 …</a>
 </h2>
 <p>历史的偶然改变了几亿人的命运。朝战的唯一积极意义，你懂得。 //@闵玉平:妄议朝史<br><br>RE: 【朝鲜战争的遐想】65年前的今天，志愿者入朝打响第一枪，这一枪打出了三代世袭的金氏王朝，这一枪保住了只要逃离就能不挨饿的朝鲜，这一枪也造就了一个随时祸害东北的核武库，当然，有失必有得，这一枪使得中国失去成为世袭王国的可能，使得文革的惨剧不在台湾发生。<br><img src="http://ww3.sinaimg.cn/large/9154fba0gw1exd899le3nj20dw06rdg5.jpg"></p>
@@ -42,7 +48,7 @@
 </h2>
 <p>【朝鲜战争的遐想】65年前的今天，志愿者入朝打响第一枪，这一枪打出了三代世袭的金氏王朝，这一枪保住了只要逃离就能不挨饿的朝鲜，这一枪也造就了一个随时祸害东北的核武库，当然，有失必有得，这一枪使得中国失去成为世袭王国的可能，使得文革的惨剧不在台湾发生。<br><img src="http://ww3.sinaimg.cn/large/9154fba0gw1exd899le3nj20dw06rdg5.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3901772416628550" target="freeweibo-mirror">//@张佳珅0://@睡马99:没沙翁的书，也不和女性出去玩…</a>
 </h2>
@@ -90,7 +96,7 @@
 </h2>
 <p>在人权面前，主权就是个屁。</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3901747862811850" target="freeweibo-mirror">应该是自费去的了。</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3901739444816455" target="freeweibo-mirror">我想听听@陈有西 老师的意见。 http://t.cn/RU…</a>
 </h2>
 <p>我想听听@陈有西 老师的意见。 http://t.cn/RUA3UGf</p>
-<p>
-	<small> ============== 6小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3901738286850384" target="freeweibo-mirror">根本不把人命当回事，当然没有人性！ //@雷颐:转发微博</a>
-</h2>
-<p>根本不把人命当回事，当然没有人性！ //@雷颐:转发微博</p>
 <p>
 	<small> ============== 6小时前</small>
 </p>
