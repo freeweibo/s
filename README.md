@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3901742133157026" target="freeweibo-mirror">求什么，得什么，这是最幸福的事。</a>
+</h2>
+<p>求什么，得什么，这是最幸福的事。</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3901626681512697" target="freeweibo-mirror">我就读过一本书叫《狼来了》。 //@美裙小鸟儿:真替那个被采…</a>
 </h2>
 <p>我就读过一本书叫《狼来了》。 //@美裙小鸟儿:真替那个被采访的农民担心，他闯大祸了。<br><br>RE: 习近平报书名，越来越有趣。BBC率先扒坟，采访习近平插队时同屋的农民，其表示习读的是毛选和报纸。淳朴的农民，哪里想到敌对势力的险恶用心？更有甚者，网友连大陆编译莎士比亚的时间表都翻出来了。这就是疯狂打压民意和拼命极权的后果，中共越打造习近平伟大形象，网友偏偏喜欢冷嘲热讽。</p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3901434129474540" target="freeweibo-mirror">说谎的本领，从娃娃抓起。</a>
 </h2>
 <p>说谎的本领，从娃娃抓起。<br><img src="http://ww4.sinaimg.cn/large/41693645gw1exc2mnppgzj20zk0zk79a.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3901424809103592" target="freeweibo-mirror">SPAM 谁干的？？？</a>
-</h2>
-<p>SPAM 谁干的？？？<br><img src="http://ww3.sinaimg.cn/large/820f43e8gw1exc1k5sdbcj20k00qowil.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
