@@ -32,6 +32,12 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3901762547240253" target="freeweibo-mirror">乱世用重典。先这么狠着劲整几年，再说。赞一个！//@邱霄凌:…</a>
+</h2>
+<p>乱世用重典。先这么狠着劲整几年，再说。赞一个！//@邱霄凌: 酷吏 //@清华孙立平:同意//@子非鱼15年：贪官污吏固然要除，这样的忠臣干吏多了，也绝非国家之幸！<br><br>RE: http://t.cn/RUA3UGf   信息量超大，自己研读。 http://t.cn/R2Wx079</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3901760609368264" target="freeweibo-mirror">BBC妄议中央，泄露了关于莎士比亚的国家机密。建议中国媒体赶…</a>
 </h2>
 <p>BBC妄议中央，泄露了关于莎士比亚的国家机密。建议中国媒体赶快采访当事农民，辟谣、重讲。（坐等被删）【秒拍视频 ：http://t.cn/RysB4Oh</p>
@@ -90,7 +96,7 @@
 </h2>
 <p>//@谓贤:很想知道「探索性错误」的原创是谁？</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3901735398007162" target="freeweibo-mirror">很想知道「探索性错误」的原创是谁？</a>
 </h2>
@@ -98,9 +104,21 @@
 <p>
 	<small> ============== 4小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3901733438474855" target="freeweibo-mirror">//@清华孙立平:同意//@子非鱼15年：贪官污吏固然要除，…</a>
+</h2>
+<p>//@清华孙立平:同意//@子非鱼15年：贪官污吏固然要除，这样的忠臣干吏多了，也绝非国家之幸！<br><br>RE: http://t.cn/RUA3UGf   信息量超大，自己研读。 http://t.cn/R2Wx079</p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3901732976937061" target="freeweibo-mirror">SPAM //@李佳佳Audrey:香港能成为伟大的城市，并…</a>
 </h2>
 <p>SPAM //@李佳佳Audrey:香港能成为伟大的城市，并不在于地理优势，而是因为拥有健全的行政架构和完善法治的社会。市民、企业能够充满活力地生活、工作、共享繁荣，无不依赖于此。法制、自由、民主、廉洁、多元文化、社会福利是港人心中深深的骄傲，<br><br>RE: 優越感。<br><img src="http://ww3.sinaimg.cn/large/006eMEuijw1exc3h2k8wyj30kk0ep428.jpg"></p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3901724303608811" target="freeweibo-mirror">英国公民活得很累。唉！</a>
+</h2>
+<p>英国公民活得很累。唉！<br><img src="http://ww2.sinaimg.cn/large/006dq7Qagw1exczyeznqmj30hs0oj40m.jpg"></p>
 <p>
 	<small> ============== 4小时前</small>
 </p><h2>
@@ -121,24 +139,6 @@
 <p>//@edwards_l5: [笑cry]//@邱仦剛:右边够了 //@JN梁:还有林俊杰的江南 曹操 一千年以后等等//@谢泼德:我主持中央工作以来，收听了很多新加坡音乐作品，其中有孙燕姿的天黑黑遇见我要的幸福超快感年轻@娘歆:这回不能报书名了吧！你总不能说你恭读过老李的反共回忆录吧/@SgtPiggy:新加坡作家哪家强<br><br>RE: 据非正式消息，下月，中国国家主席习近平携夫人来访新加坡。 http://t.cn/8Fv0fJX<br><img src="http://ww3.sinaimg.cn/large/7d410493gw1excetw5u28j20hs0doq3z.jpg"></p>
 <p>
 	<small> ============== 11小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3901623170989399" target="freeweibo-mirror">SPAM 我喜欢招代理，但我不喜欢劝人做代理。我可以保证货的…</a>
-</h2>
-<p>SPAM 我喜欢招代理，但我不喜欢劝人做代理。我可以保证货的品质和优质的售后服务，跟对了团队就等于成功了一大半。想加入的扫微信[悠闲]<br><img src="http://ww2.sinaimg.cn/large/6f60361cgw1excoc8nnexj20e80e8gm7.jpg"></p>
-<p>
-	<small> ============== 11小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3901618174711224" target="freeweibo-mirror">[哈哈]大家的智商都在80以上吧！//@京都探花: “保护人…</a>
-</h2>
-<p>[哈哈]大家的智商都在80以上吧！//@京都探花: “保护人权，没有最好，只有更好。”习近平说，“人权问题上，最大的发言权，还是所在国人民”。<br><br>RE: 【最贵之尴尬演讲】英国下院议长约翰•伯考介绍习并表示：“希望中国成为不仅军事强大的国家，而且是给百姓福利待遇，给人民道德灵感的国家。英国欢迎中国的经济合作，但是希望经济果实由全体中国人民分享，而不希望经济果实由极少数政客亲属所垄断……”话音未落掌声雷动！那么多钱都堵不上人的嘴！转<br><img src="http://ww2.sinaimg.cn/large/006g4yq3jw1excmkqtlpfj30bo08agly.jpg"></p>
-<p>
-	<small> ============== 11小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3901607790370763" target="freeweibo-mirror">【最贵之尴尬演讲】英国下院议长约翰•伯考介绍习并表示：“希望…</a>
-</h2>
-<p>【最贵之尴尬演讲】英国下院议长约翰•伯考介绍习并表示：“希望中国成为不仅军事强大的国家，而且是给百姓福利待遇，给人民道德灵感的国家。英国欢迎中国的经济合作，但是希望经济果实由全体中国人民分享，而不希望经济果实由极少数政客亲属所垄断……”话音未落掌声雷动！那么多钱都堵不上人的嘴！转<br><img src="http://ww2.sinaimg.cn/large/006g4yq3jw1excmkqtlpfj30bo08agly.jpg"></p>
-<p>
-	<small> ============== 12小时前</small>
 </p>
 <table>
     <tr>
