@@ -26,6 +26,18 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3901964997778648" target="freeweibo-mirror">直呼其名?[吃惊]</a>
+</h2>
+<p>直呼其名?[吃惊]</p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3901948782900812" target="freeweibo-mirror">SPAM //@私家野史:[吃驚]//@战争史研究WHS: …</a>
+</h2>
+<p>SPAM //@私家野史:[吃驚]//@战争史研究WHS: http://t.cn/Rhau7k3 @环球时报：“该组织兴起后，能够在伊叙两国迅速攻城略地，如果没有一点合理性成分，肯定说不过去……西方媒体一味渲染该组织残杀俘虏的极端性一面……伊斯兰国到底是十恶不赦的恐怖组织，还是当前中东政治发展的必然产物，仍很难定论”<br><br>RE: ISIS逮到一个敌人的坦克手，于是他们决定用坦克决，之后的样子我就不发了。<br><img src="http://ww3.sinaimg.cn/large/7a347ce5jw1exdji5gt55g206m03kb29.gif"></p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3901946551652985" target="freeweibo-mirror">[偷笑]//@纪昀: [黑线]</a>
 </h2>
 <p>[偷笑]//@纪昀: [黑线]<br><br>RE: 前任领导人的外交秀<br><img src="http://ww2.sinaimg.cn/large/005y5v8jgw1exdod67sfzj30r80kfae1.jpg"></p>
@@ -125,18 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3901820126359533" target="freeweibo-mirror">//@北京朱维民:安排临时演员、是前苏联发明、流行于所有共产…</a>
 </h2>
 <p>//@北京朱维民:安排临时演员、是前苏联发明、流行于所有共产国家的特殊技术、虽然屡屡被识破、但仍坚韧不拔地实践在外交场合。</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3901819220407271" target="freeweibo-mirror">英国绅士爱打猎、 现在已经到了狩猎季节。//@顶楼风大:后面…</a>
-</h2>
-<p>英国绅士爱打猎、 现在已经到了狩猎季节。//@顶楼风大:后面墙上还有枪呢啊//@北京朱维民:安排临时演员、是前苏联发明、流行于所有共产国家的特殊技术、虽然屡屡被识破、但仍坚韧不拔地实践在外交场合。</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3901804150645286" target="freeweibo-mirror">历史的偶然改变了几亿人的命运。朝战的唯一积极意义，你懂得。 …</a>
-</h2>
-<p>历史的偶然改变了几亿人的命运。朝战的唯一积极意义，你懂得。 //@闵玉平:妄议朝史<br><br>RE: 【朝鲜战争的遐想】65年前的今天，志愿者入朝打响第一枪，这一枪打出了三代世袭的金氏王朝，这一枪保住了只要逃离就能不挨饿的朝鲜，这一枪也造就了一个随时祸害东北的核武库，当然，有失必有得，这一枪使得中国失去成为世袭王国的可能，使得文革的惨剧不在台湾发生。<br><img src="http://ww3.sinaimg.cn/large/9154fba0gw1exd899le3nj20dw06rdg5.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
