@@ -54,7 +54,7 @@
 </h2>
 <p>SPAM //@私家野史:[吃驚]//@战争史研究WHS: http://t.cn/Rhau7k3 @环球时报：“该组织兴起后，能够在伊叙两国迅速攻城略地，如果没有一点合理性成分，肯定说不过去……西方媒体一味渲染该组织残杀俘虏的极端性一面……伊斯兰国到底是十恶不赦的恐怖组织，还是当前中东政治发展的必然产物，仍很难定论”<br><br>RE: ISIS逮到一个敌人的坦克手，于是他们决定用坦克决，之后的样子我就不发了。<br><img src="http://ww3.sinaimg.cn/large/7a347ce5jw1exdji5gt55g206m03kb29.gif"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3901946551652985" target="freeweibo-mirror">[偷笑]//@纪昀: [黑线]</a>
 </h2>
