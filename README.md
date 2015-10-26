@@ -108,7 +108,7 @@
 </h2>
 <p>街頭辯論（倫敦）。去了水印。<br><img src="http://ww1.sinaimg.cn/large/65cc9274jw1exee44t2agj20vk0hsgoi.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3902146762202288" target="freeweibo-mirror">SPAM 表弟这样描述，真的好吗？</a>
 </h2>
