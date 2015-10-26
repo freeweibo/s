@@ -24,7 +24,7 @@
 </h2>
 <p>//@大财神令: 杀得好[好棒]//@百花香帅:#五星传票#善恶有报，时候一到，报应不爽，大虾风范[耶]@泉城街坊 @正义中国星 @魁星闪烁 @大财神令 @欢乐军歌</p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3902301372861388" target="freeweibo-mirror">SPAM 4000亿又养了“白眼狼”！ //@总输记2012…</a>
 </h2>
@@ -90,7 +90,7 @@
 </h2>
 <p>SPAM //@老关回来了: //@蒋祖权评论://@陈茂来-: //@常州杨洪波://@北马南山:完整版。<br><br>RE: 央视新闻只说了前半部分，没说后半部分。<br><img src="http://ww1.sinaimg.cn/large/ca9d0ce0gw1exeipfb0dij20hs115dkv.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3902209660128992" target="freeweibo-mirror">SPAM 【今年"双11"天猫宣称进口产品预售量超过100万…</a>
 </h2>
