@@ -24,7 +24,7 @@
 </h2>
 <p>SPAM 4000亿又养了“白眼狼”！ //@总输记2012://@拆仇迁恨://@尘尘尘满天:包子挂两泡泪:拿钱时乃们不是酱说的[怒骂] //@时光-今日之风雨:比较窝火！[瞧瞧]//@时光v之翼:叹无妙计安天下，赔了金钱又折兵！[挖鼻]</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3902300521282392" target="freeweibo-mirror">SPAM [围观]//@毛利人阿翔: 此大爷级的小偷，警察蜀…</a>
 </h2>
@@ -38,11 +38,17 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3902292359404720" target="freeweibo-mirror">一个傻叉也来抬杠 外国打老婆中国法律管不着。//@青光楚辞:…</a>
+</h2>
+<p>一个傻叉也来抬杠 外国打老婆中国法律管不着。//@青光楚辞:什么蠢材说这话，如果能随便打老婆，新中国搞啥妇女解放，还三八妇女节，好像美国人发明的吧？/@不沉默的大多数:说句不好听的，阿拉伯土豪 非洲酋长就是在家打老婆，他们当地法律不管，外国的法律就是管不着。这个简单的道理，大家都懂吧<br><br>RE: 街頭辯論（倫敦）。去了水印。<br><img src="http://ww1.sinaimg.cn/large/65cc9274jw1exee44t2agj20vk0hsgoi.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3902271182412688" target="freeweibo-mirror">SPAM P90？ //@土豆泥波切:太尼玛残忍了！//@派…</a>
 </h2>
 <p>SPAM P90？ //@土豆泥波切:太尼玛残忍了！//@派大星inside: 疼哭了[笑cry] //@山海1990:@派大星inside 城会玩[doge]//@壮士来一发嘛:卧槽 //@眸黑:听着就好疼 //@曝猛:卧槽！[吃惊]</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3902250726238852" target="freeweibo-mirror">SPAM  //@青峰一页:@国家林业局 @猫科动物人人网 …</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3901961722081739" target="freeweibo-mirror">[吃惊] //@LT视界:[汗] //@美帝金融街:咱们这有…</a>
 </h2>
 <p>[吃惊] //@LT视界:[汗] //@美帝金融街:咱们这有挖机碾决绝！都蛮有创意，对恶魔们来说！<br><br>RE: ISIS发布“坦克决”视频。<br><img src="http://ww2.sinaimg.cn/large/006g5PEXgw1exd06pkh8oj30gm09c3zo.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3901948782900812" target="freeweibo-mirror">SPAM //@私家野史:[吃驚]//@战争史研究WHS: …</a>
-</h2>
-<p>SPAM //@私家野史:[吃驚]//@战争史研究WHS: http://t.cn/Rhau7k3 @环球时报：“该组织兴起后，能够在伊叙两国迅速攻城略地，如果没有一点合理性成分，肯定说不过去……西方媒体一味渲染该组织残杀俘虏的极端性一面……伊斯兰国到底是十恶不赦的恐怖组织，还是当前中东政治发展的必然产物，仍很难定论”<br><br>RE: ISIS逮到一个敌人的坦克手，于是他们决定用坦克决，之后的样子我就不发了。<br><img src="http://ww3.sinaimg.cn/large/7a347ce5jw1exdji5gt55g206m03kb29.gif"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
