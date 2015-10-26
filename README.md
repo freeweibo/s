@@ -50,9 +50,27 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3902290732228144" target="freeweibo-mirror">在东方犯贱会挨揍，在西方犯贱有自由，就这点区别吧 哪个更文明…</a>
+</h2>
+<p>在东方犯贱会挨揍，在西方犯贱有自由，就这点区别吧 哪个更文明进步？难怪贱人要带路[哈哈] //@青光楚辞:右边这个比方打得好，你是不是觉得自己不会成为挨揍的那个？不代表别人也犯贱！//@不沉默的大多数: 说句不好听的，阿拉伯土豪 非洲酋长就是在家打老婆，他们当地法律不管，外国的法律就是管不着。<br><br>RE: 街頭辯論（倫敦）。去了水印。<br><img src="http://ww1.sinaimg.cn/large/65cc9274jw1exee44t2agj20vk0hsgoi.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3902285312849110" target="freeweibo-mirror">说句不好听的，阿拉伯土豪 非洲酋长就是在家打老婆，他们当地法…</a>
+</h2>
+<p>说句不好听的，阿拉伯土豪 非洲酋长就是在家打老婆，他们当地法律不管，外国的法律就是管不着。这个简单的道理，大家都懂吧<br><br>RE: 街頭辯論（倫敦）。去了水印。<br><img src="http://ww1.sinaimg.cn/large/65cc9274jw1exee44t2agj20vk0hsgoi.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3902271182412688" target="freeweibo-mirror">SPAM P90？ //@土豆泥波切:太尼玛残忍了！//@派…</a>
 </h2>
 <p>SPAM P90？ //@土豆泥波切:太尼玛残忍了！//@派大星inside: 疼哭了[笑cry] //@山海1990:@派大星inside 城会玩[doge]//@壮士来一发嘛:卧槽 //@眸黑:听着就好疼 //@曝猛:卧槽！[吃惊]</p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3902266328804291" target="freeweibo-mirror">咱就支持苏格兰独立，同时打击藏独僵独毫不手软，不好吗？英国容…</a>
+</h2>
+<p>咱就支持苏格兰独立，同时打击藏独僵独毫不手软，不好吗？英国容忍苏独那是他们的事，我们又不会干预，就像我们打击藏独，你们也别插嘴，不可以吗？[哈哈]相互不尊重对方立场，挺好嘛//@黑板报22: 最右这么爱党？ //@文山娃:侯聚森很有發言權。 //@腊梅989898:当自己人嘲笑爱国青年的时候！[疑问]<br><br>RE: 街頭辯論（倫敦）。去了水印。<br><img src="http://ww1.sinaimg.cn/large/65cc9274jw1exee44t2agj20vk0hsgoi.jpg"></p>
 <p>
 	<small> ============== 4小时前</small>
 </p><h2>
@@ -119,24 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3901972685598167" target="freeweibo-mirror">SPAM //@苫般密波啰: 最好成为共识//@睿欣:太牛了…</a>
 </h2>
 <p>SPAM //@苫般密波啰: 最好成为共识//@睿欣:太牛了//@花样://@苫般密波啰: 呵呵！//@天色蓝蓝色天://@兰州温军:说的很对。 //@A-青花:转发微博</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3901971046552412" target="freeweibo-mirror">317国道维修工人在昌都丁青县境内非法捕杀国家一级保护动物麝…</a>
-</h2>
-<p>317国道维修工人在昌都丁青县境内非法捕杀国家一级保护动物麝香鹿等[怒][怒][怒][怒]@青藏高原生态保护网 @青海湖边的索南 @大藏布 @Lobsangkunchok @德格qingqing @藏ENDEAR @藏娃晓柳Sean @danny-sunny-sunflower @绿色-西农 @来自林芝的长寿仙女  http://t.cn/RULcGn1</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3901967976190839" target="freeweibo-mirror">对头 //@王甫律师:直呼其名?[吃惊]</a>
-</h2>
-<p>对头 //@王甫律师:直呼其名?[吃惊]</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3901964997778648" target="freeweibo-mirror">直呼其名?[吃惊]</a>
-</h2>
-<p>直呼其名?[吃惊]</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
