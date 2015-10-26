@@ -26,6 +26,12 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3902146120047310" target="freeweibo-mirror">就说纽时画的人真的很丑[笑cry]</a>
+</h2>
+<p>就说纽时画的人真的很丑[笑cry]<br><img src="http://ww3.sinaimg.cn/large/ab7f5cccgw1exece5qha6j20sg0j8wki.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3902099747975333" target="freeweibo-mirror">//@荣剑2001://@山高路远N:党内意见不同时常发生/…</a>
 </h2>
 <p>//@荣剑2001://@山高路远N:党内意见不同时常发生//@明月照谁家：还有彭德怀妄议大跃进，刘少奇妄议七分人祸，邓小平妄议以阶级斗争为纲//@徐昕://@袁裕来律师://@末世过客：毛四处妄议才有了遵义会议。<br><br>RE: 【我党历史上的四大妄议】1）农村包围城市是对“中心城市起义”的妄议；2）改革开放是对文革的妄议；3）社会主义市场经济是对计划经济的妄议；4）法治是对“共产党领导下的人治”的妄议。记住这些妄议，记住这些妄议的人，正是他们冒着生命危险，为国为民妄议。我们更当想一下，为什么要让好人担风险？</p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3901850484784175" target="freeweibo-mirror">绝无可能的如果。[笑cry] //@笨笨an:外面的世界很精…</a>
 </h2>
 <p>绝无可能的如果。[笑cry] //@笨笨an:外面的世界很精彩 //@谓贤:如果加上共产党执政，英国还有可能成为理想中的国家吗？</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3901849516014508" target="freeweibo-mirror">SPAM 发表了一篇转载博文《[转载]羊毛出在羊身上，这11…</a>
-</h2>
-<p>SPAM 发表了一篇转载博文《[转载]羊毛出在羊身上，这110亿美元最终要有劳动者用血汗创造出来！》http://t.cn/RU2EG8V<br><img src="http://ww1.sinaimg.cn/large/5408ee85jw1exdec6eejwj20dq0i4jud.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
