@@ -24,7 +24,7 @@
 </h2>
 <p>漂亮 //@罗老湿-CasterCrew:转发微博<br><br>RE: 自豪｜彭麻麻又去英国办了场个人时装秀<br><img src="http://ww1.sinaimg.cn/large/65b52e49gw1exdel8q3j5g20c81lue81.gif"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3902146762202288" target="freeweibo-mirror">SPAM 表弟这样描述，真的好吗？</a>
 </h2>
