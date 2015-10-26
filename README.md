@@ -36,7 +36,7 @@
 </h2>
 <p>SPAM [围观]//@毛利人阿翔: 此大爷级的小偷，警察蜀黍都不带抓的，照片都这么清楚的还逍遥法外。@梅新育</p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3902298919364802" target="freeweibo-mirror">回复@程老师709:嗯 很多自由主义者都是缺家教，要么先天缺…</a>
 </h2>
@@ -66,7 +66,7 @@
 </h2>
 <p>说句不好听的，阿拉伯土豪 非洲酋长就是在家打老婆，他们当地法律不管，外国的法律就是管不着。这个简单的道理，大家都懂吧<br><br>RE: 街頭辯論（倫敦）。去了水印。<br><img src="http://ww1.sinaimg.cn/large/65cc9274jw1exee44t2agj20vk0hsgoi.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3902271182412688" target="freeweibo-mirror">SPAM P90？ //@土豆泥波切:太尼玛残忍了！//@派…</a>
 </h2>
