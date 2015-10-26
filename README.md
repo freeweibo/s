@@ -42,7 +42,7 @@
 </h2>
 <p>SPAM 回复@程老师709:各国有各国的规矩，对分裂势力该教训就教训，外人闭嘴，这个世界就相安无事。欧洲小清新接受难民，无权要求别国一样做？西方学会了尊重他人，咱可欣然接受其招待，脑子坏了还想来当老师，你丫配吗？[哈哈]<br><br>RE: 街頭辯論（倫敦）。去了水印。<br><img src="http://ww1.sinaimg.cn/large/65cc9274jw1exee44t2agj20vk0hsgoi.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3902292359404720" target="freeweibo-mirror">一个傻叉也来抬杠 外国打老婆中国法律管不着。//@青光楚辞:…</a>
 </h2>
@@ -72,13 +72,13 @@
 </h2>
 <p>咱就支持苏格兰独立，同时打击藏独僵独毫不手软，不好吗？英国容忍苏独那是他们的事，我们又不会干预，就像我们打击藏独，你们也别插嘴，不可以吗？[哈哈]相互不尊重对方立场，挺好嘛//@黑板报22: 最右这么爱党？ //@文山娃:侯聚森很有發言權。 //@腊梅989898:当自己人嘲笑爱国青年的时候！[疑问]<br><br>RE: 街頭辯論（倫敦）。去了水印。<br><img src="http://ww1.sinaimg.cn/large/65cc9274jw1exee44t2agj20vk0hsgoi.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3902250726238852" target="freeweibo-mirror">SPAM  //@青峰一页:@国家林业局 @猫科动物人人网 …</a>
 </h2>
 <p>SPAM  //@青峰一页:@国家林业局 @猫科动物人人网 @开水族馆的生物男 @南京守望者联盟 @二宝-杨毅<br><br>RE: 317国道维修工人在昌都丁青县境内非法捕杀国家一级保护动物麝香鹿等[怒][怒][怒][怒]@青藏高原生态保护网 @青海湖边的索南 @大藏布 @Lobsangkunchok @德格qingqing @藏ENDEAR @藏娃晓柳Sean @danny-sunny-sunflower @绿色-西农 @来自林芝的长寿仙女  http://t.cn/RULcGn1</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3902237023733328" target="freeweibo-mirror">SPAM //@老关回来了: //@蒋祖权评论://@陈茂来…</a>
 </h2>
