@@ -30,7 +30,7 @@
 </h2>
 <p>SPAM //@苫般密波啰: 最好成为共识//@睿欣:太牛了//@花样://@苫般密波啰: 呵呵！//@天色蓝蓝色天://@兰州温军:说的很对。 //@A-青花:转发微博</p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3901967976190839" target="freeweibo-mirror">对头 //@王甫律师:直呼其名?[吃惊]</a>
 </h2>
@@ -42,7 +42,7 @@
 </h2>
 <p>直呼其名?[吃惊]</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3901961722081739" target="freeweibo-mirror">[吃惊] //@LT视界:[汗] //@美帝金融街:咱们这有…</a>
 </h2>
