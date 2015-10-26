@@ -48,7 +48,7 @@
 </h2>
 <p>[吃惊] //@LT视界:[汗] //@美帝金融街:咱们这有挖机碾决绝！都蛮有创意，对恶魔们来说！<br><br>RE: ISIS发布“坦克决”视频。<br><img src="http://ww2.sinaimg.cn/large/006g5PEXgw1exd06pkh8oj30gm09c3zo.jpg"></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3901948782900812" target="freeweibo-mirror">SPAM //@私家野史:[吃驚]//@战争史研究WHS: …</a>
 </h2>
@@ -60,7 +60,7 @@
 </h2>
 <p>[偷笑]//@纪昀: [黑线]<br><br>RE: 前任领导人的外交秀<br><img src="http://ww2.sinaimg.cn/large/005y5v8jgw1exdod67sfzj30r80kfae1.jpg"></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3901936900470636" target="freeweibo-mirror">前任领导人的外交秀</a>
 </h2>
