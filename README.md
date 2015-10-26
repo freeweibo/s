@@ -32,6 +32,12 @@
 <p>
 	<small> ============== 4小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3902201409327774" target="freeweibo-mirror">央视新闻只说了前半部分，没说后半部分。</a>
+</h2>
+<p>央视新闻只说了前半部分，没说后半部分。<br><img src="http://ww1.sinaimg.cn/large/ca9d0ce0gw1exeipfb0dij20hs115dkv.jpg"></p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3902171915634008" target="freeweibo-mirror">漂亮 //@罗老湿-CasterCrew:转发微博</a>
 </h2>
 <p>漂亮 //@罗老湿-CasterCrew:转发微博<br><br>RE: 自豪｜彭麻麻又去英国办了场个人时装秀<br><img src="http://ww1.sinaimg.cn/large/65b52e49gw1exdel8q3j5g20c81lue81.gif"></p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3901885297389147" target="freeweibo-mirror">这应该成为中国人的新常态。</a>
 </h2>
 <p>这应该成为中国人的新常态。<br><br>RE: 有选票的民众面对政治人物，就是如此淡定[酷]<br><img src="http://ww2.sinaimg.cn/large/7052cea7jw1exd7ygk6lkj20qo0gptcn.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3901873939563974" target="freeweibo-mirror">[哈哈] //@然后下面就没了:</a>
-</h2>
-<p>[哈哈] //@然后下面就没了:</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
