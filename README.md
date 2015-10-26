@@ -38,6 +38,12 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3902296171232683" target="freeweibo-mirror">SPAM 回复@程老师709:各国有各国的规矩，对分裂势力该…</a>
+</h2>
+<p>SPAM 回复@程老师709:各国有各国的规矩，对分裂势力该教训就教训，外人闭嘴，这个世界就相安无事。欧洲小清新接受难民，无权要求别国一样做？西方学会了尊重他人，咱可欣然接受其招待，脑子坏了还想来当老师，你丫配吗？[哈哈]<br><br>RE: 街頭辯論（倫敦）。去了水印。<br><img src="http://ww1.sinaimg.cn/large/65cc9274jw1exee44t2agj20vk0hsgoi.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3902292359404720" target="freeweibo-mirror">一个傻叉也来抬杠 外国打老婆中国法律管不着。//@青光楚辞:…</a>
 </h2>
 <p>一个傻叉也来抬杠 外国打老婆中国法律管不着。//@青光楚辞:什么蠢材说这话，如果能随便打老婆，新中国搞啥妇女解放，还三八妇女节，好像美国人发明的吧？/@不沉默的大多数:说句不好听的，阿拉伯土豪 非洲酋长就是在家打老婆，他们当地法律不管，外国的法律就是管不着。这个简单的道理，大家都懂吧<br><br>RE: 街頭辯論（倫敦）。去了水印。<br><img src="http://ww1.sinaimg.cn/large/65cc9274jw1exee44t2agj20vk0hsgoi.jpg"></p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3901964997778648" target="freeweibo-mirror">直呼其名?[吃惊]</a>
 </h2>
 <p>直呼其名?[吃惊]</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3901961722081739" target="freeweibo-mirror">[吃惊] //@LT视界:[汗] //@美帝金融街:咱们这有…</a>
-</h2>
-<p>[吃惊] //@LT视界:[汗] //@美帝金融街:咱们这有挖机碾决绝！都蛮有创意，对恶魔们来说！<br><br>RE: ISIS发布“坦克决”视频。<br><img src="http://ww2.sinaimg.cn/large/006g5PEXgw1exd06pkh8oj30gm09c3zo.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
