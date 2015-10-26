@@ -24,7 +24,7 @@
 </h2>
 <p>SPAM P90？ //@土豆泥波切:太尼玛残忍了！//@派大星inside: 疼哭了[笑cry] //@山海1990:@派大星inside 城会玩[doge]//@壮士来一发嘛:卧槽 //@眸黑:听着就好疼 //@曝猛:卧槽！[吃惊]</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3902250726238852" target="freeweibo-mirror">SPAM  //@青峰一页:@国家林业局 @猫科动物人人网 …</a>
 </h2>
