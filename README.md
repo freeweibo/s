@@ -48,7 +48,7 @@
 </h2>
 <p>一个傻叉也来抬杠 外国打老婆中国法律管不着。//@青光楚辞:什么蠢材说这话，如果能随便打老婆，新中国搞啥妇女解放，还三八妇女节，好像美国人发明的吧？/@不沉默的大多数:说句不好听的，阿拉伯土豪 非洲酋长就是在家打老婆，他们当地法律不管，外国的法律就是管不着。这个简单的道理，大家都懂吧<br><br>RE: 街頭辯論（倫敦）。去了水印。<br><img src="http://ww1.sinaimg.cn/large/65cc9274jw1exee44t2agj20vk0hsgoi.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3902290732228144" target="freeweibo-mirror">在东方犯贱会挨揍，在西方犯贱有自由，就这点区别吧 哪个更文明…</a>
 </h2>
@@ -96,13 +96,13 @@
 </h2>
 <p>央视新闻只说了前半部分，没说后半部分。<br><img src="http://ww1.sinaimg.cn/large/ca9d0ce0gw1exeipfb0dij20hs115dkv.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3902171915634008" target="freeweibo-mirror">漂亮 //@罗老湿-CasterCrew:转发微博</a>
 </h2>
 <p>漂亮 //@罗老湿-CasterCrew:转发微博<br><br>RE: 自豪｜彭麻麻又去英国办了场个人时装秀<br><img src="http://ww1.sinaimg.cn/large/65b52e49gw1exdel8q3j5g20c81lue81.gif"></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3902161299262729" target="freeweibo-mirror">街頭辯論（倫敦）。去了水印。</a>
 </h2>
