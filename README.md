@@ -30,7 +30,13 @@
 </h2>
 <p>SPAM [围观]//@毛利人阿翔: 此大爷级的小偷，警察蜀黍都不带抓的，照片都这么清楚的还逍遥法外。@梅新育</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3902298919364802" target="freeweibo-mirror">回复@程老师709:嗯 很多自由主义者都是缺家教，要么先天缺…</a>
+</h2>
+<p>回复@程老师709:嗯 很多自由主义者都是缺家教，要么先天缺爹，要么童年不幸，社会压抑自卑所以逆反，是一种心里疾病。正经幸福家的孩子，少有那么看不起自己的。看看现在那么多单亲家庭 同性恋夫妻 私生子，你们自由派大有可为啊[哈哈]//@程老师709:回复@不沉默的大多数:您家教不错啊！</p>
+<p>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3902271182412688" target="freeweibo-mirror">SPAM P90？ //@土豆泥波切:太尼玛残忍了！//@派…</a>
 </h2>
@@ -54,7 +60,7 @@
 </h2>
 <p>SPAM 【今年"双11"天猫宣称进口产品预售量超过100万件】其他电商的参战情况也显示，进口消费着实火爆，不论是美国的坚果、德国的饼干、澳洲的龙虾还是韩国的化妆品，任何一项都可能成为爆品。但热闹背后也暴露出全球购的“双刃剑”属性：一是本土产品遭遇巨大挑战，二是海外产品也可能“水土不服”。<br><img src="http://ww2.sinaimg.cn/large/928aba1egw1exejp74am0j20jj09kwh4.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3902201409327774" target="freeweibo-mirror">央视新闻只说了前半部分，没说后半部分。</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3901948782900812" target="freeweibo-mirror">SPAM //@私家野史:[吃驚]//@战争史研究WHS: …</a>
 </h2>
 <p>SPAM //@私家野史:[吃驚]//@战争史研究WHS: http://t.cn/Rhau7k3 @环球时报：“该组织兴起后，能够在伊叙两国迅速攻城略地，如果没有一点合理性成分，肯定说不过去……西方媒体一味渲染该组织残杀俘虏的极端性一面……伊斯兰国到底是十恶不赦的恐怖组织，还是当前中东政治发展的必然产物，仍很难定论”<br><br>RE: ISIS逮到一个敌人的坦克手，于是他们决定用坦克决，之后的样子我就不发了。<br><img src="http://ww3.sinaimg.cn/large/7a347ce5jw1exdji5gt55g206m03kb29.gif"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3901946551652985" target="freeweibo-mirror">[偷笑]//@纪昀: [黑线]</a>
-</h2>
-<p>[偷笑]//@纪昀: [黑线]<br><br>RE: 前任领导人的外交秀<br><img src="http://ww2.sinaimg.cn/large/005y5v8jgw1exdod67sfzj30r80kfae1.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
