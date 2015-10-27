@@ -66,7 +66,7 @@
 </h2>
 <p>//@章诒和: 落款咋能写上“夫妇”？妄议了//@昕静自然好: 关注三农//@朱孝顶律师: //@隋彭生民商法://@律师文摘: //@许身健: 关注土地者无愧归土<br><br>RE: [农会]杜润生活了102岁，真是高寿了。作为中国农村改革之父，他最关心农会。86年曾向邓小平建议恢复农民协会，使农民有自己的代言人。邓大人说先看三年，若大家都同意我就批准。不过政治风波一来，这事就被放下了。今年10月23日杜老追悼会上，有幅挽联还提起这件事：农地农协两遗恨  民主民权更问谁。<br><img src="http://ww4.sinaimg.cn/large/bdb2fab9jw1exfengb9ydj20ay0geab4.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3902689807000338" target="freeweibo-mirror">SPAM 手头的某个单子让我有一种给客人做包夜大宝剑结果客人…</a>
 </h2>
@@ -84,13 +84,13 @@
 </h2>
 <p>#线上电影少女#水下也能这样玩儿？还是韩国情侣会玩儿[阴险][阴险] http://t.cn/RUbcg0S</p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3902624040025910" target="freeweibo-mirror">Evian semitemos! Elpmis oot! G…</a>
 </h2>
 <p>Evian semitemos! Elpmis oot! Gnuoy oot!<br><br>RE: 历史上的今天:2000年10月27日晚，长者与时任香港特首进行会面，并与前来采访的香港记者进行了五分钟亲切友好的交谈。幽默而委婉的表达出对董先生的支持。这一段交谈是我国最高领导人最为著名的与记者的对话。其中不少经典语句时至今日 仍为人民群众所津津乐道，不少群众甚至可以逐字背诵这一段对话<br><img src="http://ww3.sinaimg.cn/large/62d5ef0agw1exfk3yz1l0j20ns0bqgnx.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3902595753779107" target="freeweibo-mirror">【奥巴马怒了？】据多名美国政府相关人士透露，奥巴马在私人晚宴…</a>
 </h2>
