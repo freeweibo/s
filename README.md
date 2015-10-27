@@ -60,7 +60,7 @@
 </h2>
 <p>祝贺杨继绳先生。<br><img src="http://ww1.sinaimg.cn/large/6362d8eajw1exexrtloy2j20ri3ictyk.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3902304794962555" target="freeweibo-mirror">//@大财神令: 杀得好[好棒]//@百花香帅:#五星传票#…</a>
 </h2>
