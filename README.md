@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3902705330141921" target="freeweibo-mirror">打个啥？从红军时代我们就有十六字作战方针，第一句就是“敌进我…</a>
+</h2>
+<p>打个啥？从红军时代我们就有十六字作战方针，第一句就是“敌进我退”嘛！<br><br>RE: 【奥巴马怒了？】据多名美国政府相关人士透露，奥巴马在私人晚宴上用了很长时间来游说中国停止建设军事设施。但习近平根本不买账，软硬不吃。据称，晚宴结束后愤怒的奥巴马指示亲信立刻联络美国太平洋司令部司令哈里·哈里斯，并下达了这样的通知“允许在南海作战”……http://t.cn/RU43RgY<br><img src="http://ww4.sinaimg.cn/large/93b5c4bbjw1exfs1g2t2zj204c03caa0.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3902693128953982" target="freeweibo-mirror">//@章诒和: 落款咋能写上“夫妇”？妄议了//@昕静自然好…</a>
 </h2>
 <p>//@章诒和: 落款咋能写上“夫妇”？妄议了//@昕静自然好: 关注三农//@朱孝顶律师: //@隋彭生民商法://@律师文摘: //@许身健: 关注土地者无愧归土<br><br>RE: [农会]杜润生活了102岁，真是高寿了。作为中国农村改革之父，他最关心农会。86年曾向邓小平建议恢复农民协会，使农民有自己的代言人。邓大人说先看三年，若大家都同意我就批准。不过政治风波一来，这事就被放下了。今年10月23日杜老追悼会上，有幅挽联还提起这件事：农地农协两遗恨  民主民权更问谁。<br><img src="http://ww4.sinaimg.cn/large/bdb2fab9jw1exfengb9ydj20ay0geab4.jpg"></p>
@@ -54,7 +60,7 @@
 </h2>
 <p>不会吧？//@坐环岛_看风景:我大抗议部终于上班了。 //@萌大水:终于等来了口交部的抗议[doge][doge]</p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3902558991191512" target="freeweibo-mirror">新华社饱读中外名著，学问大！[赞]//@太极李秉衍: 新华社…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3902479571372739" target="freeweibo-mirror">发表文章 http://t.cn/RU4KHlg</a>
 </h2>
 <p>发表文章 http://t.cn/RU4KHlg</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3902479151947164" target="freeweibo-mirror">[农会]杜润生活了102岁，真是高寿了。作为中国农村改革之父…</a>
-</h2>
-<p>[农会]杜润生活了102岁，真是高寿了。作为中国农村改革之父，他最关心农会。86年曾向邓小平建议恢复农民协会，使农民有自己的代言人。邓大人说先看三年，若大家都同意我就批准。不过政治风波一来，这事就被放下了。今年10月23日杜老追悼会上，有幅挽联还提起这件事：农地农协两遗恨  民主民权更问谁。<br><img src="http://ww4.sinaimg.cn/large/bdb2fab9jw1exfengb9ydj20ay0geab4.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
