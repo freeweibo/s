@@ -54,7 +54,7 @@
 </h2>
 <p>习近平刚在美国撒完钱，美国就把舰船利炮开进了中国的领海，“新型大国关系”尽是如此的滑稽可笑。拿中国人民的巨额血汗钱，买了几千万顿的美国转基因大豆，却还是满足不了美国的欲望。说明洋奴哲学、爬行主义是自取其辱，与同与国百害而无一利。“以利相交，利尽则散；唯以心相交，方能成其久远。”<br><img src="http://ww4.sinaimg.cn/large/c3629be5jw1exfmqjz7jkj20go09wgmn.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3902530679565262" target="freeweibo-mirror">普及一下：一九七六年中国共产党已亡。之后挂羊头卖狗肉的是邓小…</a>
 </h2>
@@ -84,7 +84,7 @@
 </h2>
 <p>［向杨老致敬。杨继绳获2015年史迪格.拉森奖。中国作家兼记者杨继绳多年来一直致力于找出1958年-1961年大饥荒背景，时有3600万人死亡。评审团主席说，“大饥荒是中国最大集体创伤之一。杨获奖是因为他以极大新闻勇气挖掘和告知真相”。  杨继绳冒着巨大政治风险，经持续多年深入调查写出了《墓碑》。］<br><img src="http://ww3.sinaimg.cn/large/4ca10d99jw1exffst5zwgj20zk0no40m.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3902487482347158" target="freeweibo-mirror">【中共十八届五中全会开幕 军委和政治局或有变动】为期四天的中…</a>
 </h2>
@@ -102,13 +102,13 @@
 </h2>
 <p>SPAM //@袁裕来律师:杨继绳先生[good]<br><br>RE: 祝贺杨继绳先生。<br><img src="http://ww1.sinaimg.cn/large/6362d8eajw1exexrtloy2j20ri3ictyk.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3902482104772470" target="freeweibo-mirror">//@Merlot杜樱://@类猫007: 解封历史档案，减…</a>
 </h2>
 <p>//@Merlot杜樱://@类猫007: 解封历史档案，减少无谓纷争 //@陶景洲:50年前的历史还不解密？ //@况秀猛:祝贺杨继绳先生。过去50多年了，应该能正视历史。 //@孔子的邻居: 是不是他家死的就它一个了[疑问] //@陆亚明:祝贺，致敬！[心]<br><br>RE: 祝贺杨继绳先生。<br><img src="http://ww1.sinaimg.cn/large/6362d8eajw1exexrtloy2j20ri3ictyk.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3902480741911090" target="freeweibo-mirror">SPAM //@律师姬来松:[good]//@我是德赛://…</a>
 </h2>
