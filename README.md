@@ -24,7 +24,7 @@
 </h2>
 <p>Evian semitemos! Elpmis oot! Gnuoy oot!<br><br>RE: 历史上的今天:2000年10月27日晚，长者与时任香港特首进行会面，并与前来采访的香港记者进行了五分钟亲切友好的交谈。幽默而委婉的表达出对董先生的支持。这一段交谈是我国最高领导人最为著名的与记者的对话。其中不少经典语句时至今日 仍为人民群众所津津乐道，不少群众甚至可以逐字背诵这一段对话<br><img src="http://ww3.sinaimg.cn/large/62d5ef0agw1exfk3yz1l0j20ns0bqgnx.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3902567111220612" target="freeweibo-mirror">//@平常草民: 中国裸官这么多，妻儿都在美国，怎么能让中国…</a>
 </h2>
@@ -114,7 +114,7 @@
 </h2>
 <p>SPAM //@律师姬来松:[good]//@我是德赛://@光融：铭记过去的苦难，是为了追求我族的新生，向记录苦难的勇气致敬，向被历史逆流淹没的众多冤魂表达哀思。如果一个民族无视曾经发生的悲剧，那么这个民族的未来一定让人深深不安，这一点历史早已证明。<br><br>RE: 祝贺杨继绳先生。<br><img src="http://ww1.sinaimg.cn/large/6362d8eajw1exexrtloy2j20ri3ictyk.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3902479571372739" target="freeweibo-mirror">发表文章 http://t.cn/RU4KHlg</a>
 </h2>
