@@ -24,7 +24,7 @@
 </h2>
 <p>Evian semitemos! Elpmis oot! Gnuoy oot!<br><br>RE: 历史上的今天:2000年10月27日晚，长者与时任香港特首进行会面，并与前来采访的香港记者进行了五分钟亲切友好的交谈。幽默而委婉的表达出对董先生的支持。这一段交谈是我国最高领导人最为著名的与记者的对话。其中不少经典语句时至今日 仍为人民群众所津津乐道，不少群众甚至可以逐字背诵这一段对话<br><img src="http://ww3.sinaimg.cn/large/62d5ef0agw1exfk3yz1l0j20ns0bqgnx.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3902567111220612" target="freeweibo-mirror">//@平常草民: 中国裸官这么多，妻儿都在美国，怎么能让中国…</a>
 </h2>
