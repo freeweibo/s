@@ -114,7 +114,7 @@
 </h2>
 <p>SPAM //@律师姬来松:[good]//@我是德赛://@光融：铭记过去的苦难，是为了追求我族的新生，向记录苦难的勇气致敬，向被历史逆流淹没的众多冤魂表达哀思。如果一个民族无视曾经发生的悲剧，那么这个民族的未来一定让人深深不安，这一点历史早已证明。<br><br>RE: 祝贺杨继绳先生。<br><img src="http://ww1.sinaimg.cn/large/6362d8eajw1exexrtloy2j20ri3ictyk.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3902479571372739" target="freeweibo-mirror">发表文章 http://t.cn/RU4KHlg</a>
 </h2>
@@ -126,7 +126,7 @@
 </h2>
 <p>//@殆知阁: //@空如上人: [哈哈]//@月隐寒霜:唉。實在人啊。 //@西丰客人在1984:还是俺们农民实在，不装逼。[哈哈]<br><br>RE: 【妄议】:庆丰大帝在不列颠背了一堆历史名著书名，没想到，他们太较真了，居然真去问，洋大人记者去问，圣上当年坐在他家土炕上都读什么书啊。房东想了想，毛主席语录和报纸。 记者说不是吧，有很多外国书吧，您没注意看？房东说，我就坐他旁边卷烟呢，就是读毛主席语录啊。。[哈哈][哈哈][哈哈]<br><img src="http://ww1.sinaimg.cn/large/67c53c97jw1exepx33554j20dj07n74h.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3902465806257460" target="freeweibo-mirror">祝贺！ //@简直:[赞] //@Newsfeed: //@…</a>
 </h2>
