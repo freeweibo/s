@@ -30,7 +30,7 @@
 </h2>
 <p>//@阿里-席学刚://@法治路由器: 转发微博<br><br>RE: 【奥巴马怒了？】据多名美国政府相关人士透露，奥巴马在私人晚宴上用了很长时间来游说中国停止建设军事设施。但习近平根本不买账，软硬不吃。据称，晚宴结束后愤怒的奥巴马指示亲信立刻联络美国太平洋司令部司令哈里·哈里斯，并下达了这样的通知“允许在南海作战”……http://t.cn/RU43RgY<br><img src="http://ww4.sinaimg.cn/large/93b5c4bbjw1exfs1g2t2zj204c03caa0.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3902699986878923" target="freeweibo-mirror">//@法治路由器: 转发微博</a>
 </h2>
@@ -54,13 +54,19 @@
 </h2>
 <p>SPAM 一件好的内衣 穿的是效果 换的是心情[心] 单品from@Domoore天使小屋Bra<br><img src="http://ww2.sinaimg.cn/large/a7caf992gw1exbg4pw1cij20k00k00uy.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3902624040025910" target="freeweibo-mirror">Evian semitemos! Elpmis oot! G…</a>
 </h2>
 <p>Evian semitemos! Elpmis oot! Gnuoy oot!<br><br>RE: 历史上的今天:2000年10月27日晚，长者与时任香港特首进行会面，并与前来采访的香港记者进行了五分钟亲切友好的交谈。幽默而委婉的表达出对董先生的支持。这一段交谈是我国最高领导人最为著名的与记者的对话。其中不少经典语句时至今日 仍为人民群众所津津乐道，不少群众甚至可以逐字背诵这一段对话<br><img src="http://ww3.sinaimg.cn/large/62d5ef0agw1exfk3yz1l0j20ns0bqgnx.jpg"></p>
 <p>
 	<small> ============== 7小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3902595753779107" target="freeweibo-mirror">【奥巴马怒了？】据多名美国政府相关人士透露，奥巴马在私人晚宴…</a>
+</h2>
+<p>【奥巴马怒了？】据多名美国政府相关人士透露，奥巴马在私人晚宴上用了很长时间来游说中国停止建设军事设施。但习近平根本不买账，软硬不吃。据称，晚宴结束后愤怒的奥巴马指示亲信立刻联络美国太平洋司令部司令哈里·哈里斯，并下达了这样的通知“允许在南海作战”……http://t.cn/RU43RgY<br><img src="http://ww4.sinaimg.cn/large/93b5c4bbjw1exfs1g2t2zj204c03caa0.jpg"></p>
+<p>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3902567111220612" target="freeweibo-mirror">//@平常草民: 中国裸官这么多，妻儿都在美国，怎么能让中国…</a>
 </h2>
@@ -90,7 +96,7 @@
 </h2>
 <p>习近平刚在美国撒完钱，美国就把舰船利炮开进了中国的领海，“新型大国关系”尽是如此的滑稽可笑。拿中国人民的巨额血汗钱，买了几千万顿的美国转基因大豆，却还是满足不了美国的欲望。说明洋奴哲学、爬行主义是自取其辱，与同与国百害而无一利。“以利相交，利尽则散；唯以心相交，方能成其久远。”<br><img src="http://ww4.sinaimg.cn/large/c3629be5jw1exfmqjz7jkj20go09wgmn.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3902530679565262" target="freeweibo-mirror">普及一下：一九七六年中国共产党已亡。之后挂羊头卖狗肉的是邓小…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3902484500537743" target="freeweibo-mirror">1953年春夏之交，毛泽东交给高岗一个绝密任务：命他亲自去查…</a>
 </h2>
 <p>1953年春夏之交，毛泽东交给高岗一个绝密任务：命他亲自去查阅东北的敌伪档案，了解二十年代刘少奇在奉天（沈阳）被捕后的表现。毛将如此绝密的事情交由高岗处理，可见对高之信任非同一般。意外的是，不到一年，毛借助高反对刘而变为联手刘废黜高。不过可以看到，毛有心倒刘并非始于＂文化大革命＂。<br><img src="http://ww3.sinaimg.cn/large/c57c1a49jw1exff9bs9vrj208c0b4mxp.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3902482356921740" target="freeweibo-mirror">SPAM //@袁裕来律师:杨继绳先生[good]</a>
-</h2>
-<p>SPAM //@袁裕来律师:杨继绳先生[good]<br><br>RE: 祝贺杨继绳先生。<br><img src="http://ww1.sinaimg.cn/large/6362d8eajw1exexrtloy2j20ri3ictyk.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
