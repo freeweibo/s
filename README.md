@@ -24,7 +24,7 @@
 </h2>
 <p>Evian semitemos! Elpmis oot! Gnuoy oot!<br><br>RE: 历史上的今天:2000年10月27日晚，长者与时任香港特首进行会面，并与前来采访的香港记者进行了五分钟亲切友好的交谈。幽默而委婉的表达出对董先生的支持。这一段交谈是我国最高领导人最为著名的与记者的对话。其中不少经典语句时至今日 仍为人民群众所津津乐道，不少群众甚至可以逐字背诵这一段对话<br><img src="http://ww3.sinaimg.cn/large/62d5ef0agw1exfk3yz1l0j20ns0bqgnx.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3902567111220612" target="freeweibo-mirror">//@平常草民: 中国裸官这么多，妻儿都在美国，怎么能让中国…</a>
 </h2>
@@ -120,13 +120,13 @@
 </h2>
 <p>//@殆知阁: //@空如上人: [哈哈]//@月隐寒霜:唉。實在人啊。 //@西丰客人在1984:还是俺们农民实在，不装逼。[哈哈]<br><br>RE: 【妄议】:庆丰大帝在不列颠背了一堆历史名著书名，没想到，他们太较真了，居然真去问，洋大人记者去问，圣上当年坐在他家土炕上都读什么书啊。房东想了想，毛主席语录和报纸。 记者说不是吧，有很多外国书吧，您没注意看？房东说，我就坐他旁边卷烟呢，就是读毛主席语录啊。。[哈哈][哈哈][哈哈]<br><img src="http://ww1.sinaimg.cn/large/67c53c97jw1exepx33554j20dj07n74h.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3902465806257460" target="freeweibo-mirror">祝贺！ //@简直:[赞] //@Newsfeed: //@…</a>
 </h2>
 <p>祝贺！ //@简直:[赞] //@Newsfeed: //@任志强:[赞] //@雷颐://@普法三十年-: 祝贺！//@我是小圣微博: //@郝劲松:挖掘历史真相并填写空白的勇者！<br><br>RE: 祝贺杨继绳先生。<br><img src="http://ww1.sinaimg.cn/large/6362d8eajw1exexrtloy2j20ri3ictyk.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3902459501786589" target="freeweibo-mirror">//@广州区伯:这的确可算是中国的一大景观！//@崔永元:老…</a>
 </h2>
