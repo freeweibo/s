@@ -30,7 +30,7 @@
 </h2>
 <p>//@朱学东: 转发微博<br><br>RE: ［向杨老致敬。杨继绳获2015年史迪格.拉森奖。中国作家兼记者杨继绳多年来一直致力于找出1958年-1961年大饥荒背景，时有3600万人死亡。评审团主席说，“大饥荒是中国最大集体创伤之一。杨获奖是因为他以极大新闻勇气挖掘和告知真相”。  杨继绳冒着巨大政治风险，经持续多年深入调查写出了《墓碑》。］<br><img src="http://ww3.sinaimg.cn/large/4ca10d99jw1exffst5zwgj20zk0no40m.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3902492989856166" target="freeweibo-mirror">关于高与刘、周、邓还有幕后的毛，推荐你本书《半截墓碑下的往事…</a>
 </h2>
@@ -71,6 +71,12 @@
 	<a href="https://freeweibo.com/weibo/3902480741911090" target="freeweibo-mirror">SPAM //@律师姬来松:[good]//@我是德赛://…</a>
 </h2>
 <p>SPAM //@律师姬来松:[good]//@我是德赛://@光融：铭记过去的苦难，是为了追求我族的新生，向记录苦难的勇气致敬，向被历史逆流淹没的众多冤魂表达哀思。如果一个民族无视曾经发生的悲剧，那么这个民族的未来一定让人深深不安，这一点历史早已证明。<br><br>RE: 祝贺杨继绳先生。<br><img src="http://ww1.sinaimg.cn/large/6362d8eajw1exexrtloy2j20ri3ictyk.jpg"></p>
+<p>
+	<small> ============== 5小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3902479571372739" target="freeweibo-mirror">发表文章 http://t.cn/RU4KHlg</a>
+</h2>
+<p>发表文章 http://t.cn/RU4KHlg</p>
 <p>
 	<small> ============== 5小时前</small>
 </p><h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3902292359404720" target="freeweibo-mirror">一个傻叉也来抬杠 外国打老婆中国法律管不着。//@青光楚辞:…</a>
 </h2>
 <p>一个傻叉也来抬杠 外国打老婆中国法律管不着。//@青光楚辞:什么蠢材说这话，如果能随便打老婆，新中国搞啥妇女解放，还三八妇女节，好像美国人发明的吧？/@不沉默的大多数:说句不好听的，阿拉伯土豪 非洲酋长就是在家打老婆，他们当地法律不管，外国的法律就是管不着。这个简单的道理，大家都懂吧<br><br>RE: 街頭辯論（倫敦）。去了水印。<br><img src="http://ww1.sinaimg.cn/large/65cc9274jw1exee44t2agj20vk0hsgoi.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3902290732228144" target="freeweibo-mirror">在东方犯贱会挨揍，在西方犯贱有自由，就这点区别吧 哪个更文明…</a>
-</h2>
-<p>在东方犯贱会挨揍，在西方犯贱有自由，就这点区别吧 哪个更文明进步？难怪贱人要带路[哈哈] //@青光楚辞:右边这个比方打得好，你是不是觉得自己不会成为挨揍的那个？不代表别人也犯贱！//@不沉默的大多数: 说句不好听的，阿拉伯土豪 非洲酋长就是在家打老婆，他们当地法律不管，外国的法律就是管不着。<br><br>RE: 街頭辯論（倫敦）。去了水印。<br><img src="http://ww1.sinaimg.cn/large/65cc9274jw1exee44t2agj20vk0hsgoi.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
