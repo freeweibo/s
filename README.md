@@ -102,7 +102,7 @@
 </h2>
 <p>发表文章 http://t.cn/RU4KHlg</p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3902472970442904" target="freeweibo-mirror">//@殆知阁: //@空如上人: [哈哈]//@月隐寒霜:唉…</a>
 </h2>
