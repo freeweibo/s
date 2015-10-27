@@ -48,7 +48,7 @@
 </h2>
 <p>//@法治路由器: 转发微博<br><br>RE: 【奥巴马怒了？】据多名美国政府相关人士透露，奥巴马在私人晚宴上用了很长时间来游说中国停止建设军事设施。但习近平根本不买账，软硬不吃。据称，晚宴结束后愤怒的奥巴马指示亲信立刻联络美国太平洋司令部司令哈里·哈里斯，并下达了这样的通知“允许在南海作战”……http://t.cn/RU43RgY<br><img src="http://ww4.sinaimg.cn/large/93b5c4bbjw1exfs1g2t2zj204c03caa0.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3902696966973148" target="freeweibo-mirror">太君这是给哪家文学网站写的穿越小说啊？</a>
 </h2>
@@ -78,7 +78,7 @@
 </h2>
 <p>Evian semitemos! Elpmis oot! Gnuoy oot!<br><br>RE: 历史上的今天:2000年10月27日晚，长者与时任香港特首进行会面，并与前来采访的香港记者进行了五分钟亲切友好的交谈。幽默而委婉的表达出对董先生的支持。这一段交谈是我国最高领导人最为著名的与记者的对话。其中不少经典语句时至今日 仍为人民群众所津津乐道，不少群众甚至可以逐字背诵这一段对话<br><img src="http://ww3.sinaimg.cn/large/62d5ef0agw1exfk3yz1l0j20ns0bqgnx.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3902595753779107" target="freeweibo-mirror">【奥巴马怒了？】据多名美国政府相关人士透露，奥巴马在私人晚宴…</a>
 </h2>
