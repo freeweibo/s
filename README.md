@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3902624040025910" target="freeweibo-mirror">Evian semitemos! Elpmis oot! G…</a>
+</h2>
+<p>Evian semitemos! Elpmis oot! Gnuoy oot!<br><br>RE: 历史上的今天:2000年10月27日晚，长者与时任香港特首进行会面，并与前来采访的香港记者进行了五分钟亲切友好的交谈。幽默而委婉的表达出对董先生的支持。这一段交谈是我国最高领导人最为著名的与记者的对话。其中不少经典语句时至今日 仍为人民群众所津津乐道，不少群众甚至可以逐字背诵这一段对话<br><img src="http://ww3.sinaimg.cn/large/62d5ef0agw1exfk3yz1l0j20ns0bqgnx.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3902567111220612" target="freeweibo-mirror">//@平常草民: 中国裸官这么多，妻儿都在美国，怎么能让中国…</a>
 </h2>
 <p>//@平常草民: 中国裸官这么多，妻儿都在美国，怎么能让中国硬得起来？//@赤馬於歸:轉發微博<br><br>RE: 习近平刚在美国撒完钱，美国就把舰船利炮开进了中国的领海，“新型大国关系”尽是如此的滑稽可笑。拿中国人民的巨额血汗钱，买了几千万顿的美国转基因大豆，却还是满足不了美国的欲望。说明洋奴哲学、爬行主义是自取其辱，与同与国百害而无一利。“以利相交，利尽则散；唯以心相交，方能成其久远。”<br><img src="http://ww4.sinaimg.cn/large/c3629be5jw1exfmqjz7jkj20go09wgmn.jpg"></p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3902332188627476" target="freeweibo-mirror">祝贺杨继绳先生。</a>
 </h2>
 <p>祝贺杨继绳先生。<br><img src="http://ww1.sinaimg.cn/large/6362d8eajw1exexrtloy2j20ri3ictyk.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3902304794962555" target="freeweibo-mirror">//@大财神令: 杀得好[好棒]//@百花香帅:#五星传票#…</a>
-</h2>
-<p>//@大财神令: 杀得好[好棒]//@百花香帅:#五星传票#善恶有报，时候一到，报应不爽，大虾风范[耶]@泉城街坊 @正义中国星 @魁星闪烁 @大财神令 @欢乐军歌</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
