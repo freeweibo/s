@@ -30,13 +30,13 @@
 </h2>
 <p>//@迟夙生律师: //@白发萧萧小律师://@朝苟巴子: 企业合并没提党的领导，也被训。92%的第三方贸代，可见国企腐败很严重呀。<br><br>RE: 中远集团新任纪检组长火啦：他的内部讲话前几天曝光，今天又上了英国《金融时报》的封面，对他的讲话的报道比美国军舰南海活动还显著。<br><img src="http://ww2.sinaimg.cn/large/9ddb72ebgw1exgj93dxr4j20c87zwqv5.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3902851069349390" target="freeweibo-mirror">[哈哈]//@徐幸起: //@苏州郎心铁: 党天下。 //@…</a>
 </h2>
 <p>[哈哈]//@徐幸起: //@苏州郎心铁: 党天下。 //@垂直的风:[闭嘴] //@袁裕来律师:纪委该不该服从党委是个问题：不服从，会乱套；服从，则无法反腐。<br><br>RE: 中远集团新任纪检组长火啦：他的内部讲话前几天曝光，今天又上了英国《金融时报》的封面，对他的讲话的报道比美国军舰南海活动还显著。<br><img src="http://ww2.sinaimg.cn/large/9ddb72ebgw1exgj93dxr4j20c87zwqv5.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3902849304423215" target="freeweibo-mirror">//@苏州郎心铁: 党天下。 //@垂直的风:[闭嘴] //…</a>
 </h2>
