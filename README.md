@@ -72,11 +72,17 @@
 </h2>
 <p>SPAM //@常州姚宝华家属: //@常州杨洪波://@乡校: 的确成绩不小。tpp晒了你，侵入南海臊了你。 //@隆裕太后: //@纪昀: //@常州杨洪波: 撒下几百亿美元大单，茶杯的余温还未散尽，人家的手却已打到脸上。<br><br>RE: 新闻要对比着看<br><img src="http://ww4.sinaimg.cn/large/c5d90a82gw1exgkl19u74j20h60jb0wu.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3902939317941954" target="freeweibo-mirror">【日本明确表示支持美军南海行动】日本内阁官房长官菅义伟在今上…</a>
 </h2>
 <p>【日本明确表示支持美军南海行动】日本内阁官房长官菅义伟在今上午的记者会见中表示，日本政府支持美国派军舰赴南海的中国岛礁12海里海域内巡航。他还表示：“在南海实施大规模的填埋作业并构筑设施，这种改变现状并导致紧张局势的单方面行动，是国际社会共同担忧的问题。” http://t.cn/RUqPi56<br><img src="http://ww4.sinaimg.cn/large/6298156bgw1exgvhmp1vjj21kw14ojyx.jpg"></p>
+<p>
+	<small> ============== 7小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3902937162567025" target="freeweibo-mirror">【美舰进“12海里”，中国怎么办？】中国社科院薛力：中美两国…</a>
+</h2>
+<p>【美舰进“12海里”，中国怎么办？】中国社科院薛力：中美两国没有在南中国海开战的意愿，也有能力管控危机以避免大规模冲突。美国此次进入“12海里”的行动显然经过精心设计，对此需做多层次辨析。http://t.cn/RUqvQO2<br><img src="http://ww1.sinaimg.cn/large/6538fd8cjw1exgv93y6uwj20gi09c0u5.jpg"></p>
 <p>
 	<small> ============== 7小时前</small>
 </p><h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3902847823880740" target="freeweibo-mirror">凤毛一根?</a>
 </h2>
 <p>凤毛一根?<br><br>RE: 中远集团新任纪检组长火啦：他的内部讲话前几天曝光，今天又上了英国《金融时报》的封面，对他的讲话的报道比美国军舰南海活动还显著。<br><img src="http://ww2.sinaimg.cn/large/9ddb72ebgw1exgj93dxr4j20c87zwqv5.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3902846451665059" target="freeweibo-mirror">SPAM 宝华姐给你们一点人生的经验[doge]</a>
-</h2>
-<p>SPAM 宝华姐给你们一点人生的经验[doge]<br><br>RE: 看你們這樣熱 情，我一句話都不説也不好 十五年前，你們年紀還小， 問來問去的問題都是too simple, sometimes naive 長大了，要好好進修自己 識唔識得呀！<br><img src="http://ww3.sinaimg.cn/large/6e240b98jw1exgjv7daiwj20go0go3zb.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
