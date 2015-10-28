@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3903056036815898" target="freeweibo-mirror">博主深刻，这帮子老革命家背叛革命，搞家天下封建特权，罪莫大焉…</a>
+</h2>
+<p>博主深刻，这帮子老革命家背叛革命，搞家天下封建特权，罪莫大焉！//@方无码: 万、李和革命家根本不沾边//@今日缚住苍龙: 有时候用不光彩的手段去实现高尚的目标也是不错的选择！//@策划人蔡磊: 走社会主义道路，实现其理想，实现宪法第一条，就是对毛泽东最好的怀念<br><br>RE: 曾经有一个笑话，说的是如果毛泽东从水晶棺里站了起来，全国的贪官们都会主动到检察院报到。其实，如果毛泽东真的从水晶棺里走出来，最害怕的是那些曾经无限忠诚，同时又颠倒黑白的“无产阶级老革命家们”。<br><img src="http://ww2.sinaimg.cn/large/54611fd5jw1exh5zj8pw9j20ca0c80tw.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3903000169283572" target="freeweibo-mirror">访美屁都没有带回来，最失败的案例。对话没问题，比如警告 美国…</a>
 </h2>
 <p>访美屁都没有带回来，最失败的案例。对话没问题，比如警告 美国是想挑起战争吗？如果再度闯入中国领海，将无法保证不发生不测事件，美国乐见吧？</p>
@@ -102,7 +108,7 @@
 </h2>
 <p>【BBC纪录片《Xi factor》】习近平访问英国当天，BBC就发布了这部二十多分钟的纪录片，试图告诉英国人——习是一个怎样的人？虽然篇幅不长，但是从习的小时候开始，到后来插队，从政的一步步经历讲的很全；甚至去了他曾住过的窑洞，访谈了他的前同事。@阿尔法小分队 http://t.cn/RUbTHtW<br><img src="http://ww2.sinaimg.cn/large/83fae389jw1exgqy69r87j20z20jjtee.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3902864604472256" target="freeweibo-mirror">@陈里 是好同志，删了吧！多挖挖推墙砸锅大公知…… //@汶…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3902849304423215" target="freeweibo-mirror">//@苏州郎心铁: 党天下。 //@垂直的风:[闭嘴] //…</a>
 </h2>
 <p>//@苏州郎心铁: 党天下。 //@垂直的风:[闭嘴] //@袁裕来律师:纪委该不该服从党委是个问题：不服从，会乱套；服从，则无法反腐。<br><br>RE: 中远集团新任纪检组长火啦：他的内部讲话前几天曝光，今天又上了英国《金融时报》的封面，对他的讲话的报道比美国军舰南海活动还显著。<br><img src="http://ww2.sinaimg.cn/large/9ddb72ebgw1exgj93dxr4j20c87zwqv5.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3902847823880740" target="freeweibo-mirror">凤毛一根?</a>
-</h2>
-<p>凤毛一根?<br><br>RE: 中远集团新任纪检组长火啦：他的内部讲话前几天曝光，今天又上了英国《金融时报》的封面，对他的讲话的报道比美国军舰南海活动还显著。<br><img src="http://ww2.sinaimg.cn/large/9ddb72ebgw1exgj93dxr4j20c87zwqv5.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
