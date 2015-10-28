@@ -120,7 +120,7 @@
 </h2>
 <p>SPAM 一件好的内衣 穿的是效果 换的是心情[心] 单品from@Domoore天使小屋Bra<br><img src="http://ww2.sinaimg.cn/large/a7caf992gw1exbg4pw1cij20k00k00uy.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3902646849522859" target="freeweibo-mirror">#线上电影少女#水下也能这样玩儿？还是韩国情侣会玩儿[阴险]…</a>
 </h2>
