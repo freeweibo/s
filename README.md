@@ -20,11 +20,17 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3902971122853969" target="freeweibo-mirror">→_→//@国旗-水方人思周816: 一个老兵的话：兵熊熊一…</a>
+</h2>
+<p>→_→//@国旗-水方人思周816: 一个老兵的话：兵熊熊一个，帅熊熊一窝。家里的威势靠家长，国家威望靠军队，军队听命于中央，中央软弱，部队观望！<br><br>RE: 兵也阅了，实力也展示了，人心也振奋了，外国人也震慑了，美国也去了，美元也送了，该做的我们都做了，但是，为什么美国的舰艇咋还是进入12海里以内呢？估计这是高层百思不得其解的吧！外媒：美军将再派航母驶近南海岛礁|美国军舰进入南海|南沙群岛_新浪新闻 http://t.cn/RUGzABW<br><img src="http://ww2.sinaimg.cn/large/c1b36be3gw1exgx3tduevj20sg0q9dll.jpg"></p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3902946997585168" target="freeweibo-mirror">SPAM 3434.34三思三思再三思</a>
 </h2>
 <p>SPAM 3434.34三思三思再三思</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3902941104525780" target="freeweibo-mirror">SPAM //@常州姚宝华家属: //@常州杨洪波://@乡…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3902832727760787" target="freeweibo-mirror">中远集团新任纪检组长火啦：他的内部讲话前几天曝光，今天又上了…</a>
 </h2>
 <p>中远集团新任纪检组长火啦：他的内部讲话前几天曝光，今天又上了英国《金融时报》的封面，对他的讲话的报道比美国军舰南海活动还显著。<br><img src="http://ww2.sinaimg.cn/large/9ddb72ebgw1exgj93dxr4j20c87zwqv5.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3902822367991993" target="freeweibo-mirror">//@演员孙海英:转发微博</a>
-</h2>
-<p>//@演员孙海英:转发微博</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
