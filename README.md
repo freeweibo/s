@@ -126,7 +126,7 @@
 </h2>
 <p>【美舰进“12海里”，中国怎么办？】中国社科院薛力：中美两国没有在南中国海开战的意愿，也有能力管控危机以避免大规模冲突。美国此次进入“12海里”的行动显然经过精心设计，对此需做多层次辨析。http://t.cn/RUqvQO2<br><img src="http://ww1.sinaimg.cn/large/6538fd8cjw1exgv93y6uwj20gi09c0u5.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3902924629054872" target="freeweibo-mirror">//@鲁迅民族魂:主要是武大们太蛋定了//@踏雪全是脚印冉:…</a>
 </h2>
