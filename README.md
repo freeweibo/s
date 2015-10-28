@@ -54,7 +54,7 @@
 </h2>
 <p>【BBC纪录片《Xi factor》】习近平访问英国当天，BBC就发布了这部二十多分钟的纪录片，试图告诉英国人——习是一个怎样的人？虽然篇幅不长，但是从习的小时候开始，到后来插队，从政的一步步经历讲的很全；甚至去了他曾住过的窑洞，访谈了他的前同事。@阿尔法小分队 http://t.cn/RUbTHtW<br><img src="http://ww2.sinaimg.cn/large/83fae389jw1exgqy69r87j20z20jjtee.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3902864604472256" target="freeweibo-mirror">@陈里 是好同志，删了吧！多挖挖推墙砸锅大公知…… //@汶…</a>
 </h2>
@@ -90,7 +90,7 @@
 </h2>
 <p>凤毛一根?<br><br>RE: 中远集团新任纪检组长火啦：他的内部讲话前几天曝光，今天又上了英国《金融时报》的封面，对他的讲话的报道比美国军舰南海活动还显著。<br><img src="http://ww2.sinaimg.cn/large/9ddb72ebgw1exgj93dxr4j20c87zwqv5.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3902846451665059" target="freeweibo-mirror">SPAM 宝华姐给你们一点人生的经验[doge]</a>
 </h2>
