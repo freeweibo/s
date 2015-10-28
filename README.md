@@ -48,7 +48,7 @@
 </h2>
 <p>凤毛一根?<br><br>RE: 中远集团新任纪检组长火啦：他的内部讲话前几天曝光，今天又上了英国《金融时报》的封面，对他的讲话的报道比美国军舰南海活动还显著。<br><img src="http://ww2.sinaimg.cn/large/9ddb72ebgw1exgj93dxr4j20c87zwqv5.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3902846451665059" target="freeweibo-mirror">SPAM 宝华姐给你们一点人生的经验[doge]</a>
 </h2>
@@ -59,6 +59,12 @@
 	<a href="https://freeweibo.com/weibo/3902846065540516" target="freeweibo-mirror">//@海宁草根微评论:转发微博</a>
 </h2>
 <p>//@海宁草根微评论:转发微博</p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3902840273570995" target="freeweibo-mirror">与老嫖客老骗子勾肩搭背的，还奢谈什么“网络名人社会责任”，真…</a>
+</h2>
+<p>与老嫖客老骗子勾肩搭背的，还奢谈什么“网络名人社会责任”，真是黑白颠倒、让人笑掉大牙！//@老李随想:图片评论： http://t.cn/RUGvlvN<br><br>RE: 第一波文章三小时内全网清空与两小时内全网推广有什么区别？没有任何区别。足以说明对网络传播渠道的掌控力之强。只是，抹黑维尼、抹黑我党造谣搞历史虚无主义的帖子都清理的没这么干净，为了个人就可以有这么大的能量……这喉舌，在谁手里？公权，是这么用的么？群众路线没走好，形式主义又抬头咯。<br><img src="http://ww2.sinaimg.cn/large/62c63551gw1exg5zn6r17j20k00zk41b.jpg"></p>
 <p>
 	<small> ============== 4小时前</small>
 </p><h2>
@@ -78,7 +84,7 @@
 </h2>
 <p>中远集团新任纪检组长火啦：他的内部讲话前几天曝光，今天又上了英国《金融时报》的封面，对他的讲话的报道比美国军舰南海活动还显著。<br><img src="http://ww2.sinaimg.cn/large/9ddb72ebgw1exgj93dxr4j20c87zwqv5.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3902822367991993" target="freeweibo-mirror">//@演员孙海英:转发微博</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3902699986878923" target="freeweibo-mirror">//@法治路由器: 转发微博</a>
 </h2>
 <p>//@法治路由器: 转发微博<br><br>RE: 【奥巴马怒了？】据多名美国政府相关人士透露，奥巴马在私人晚宴上用了很长时间来游说中国停止建设军事设施。但习近平根本不买账，软硬不吃。据称，晚宴结束后愤怒的奥巴马指示亲信立刻联络美国太平洋司令部司令哈里·哈里斯，并下达了这样的通知“允许在南海作战”……http://t.cn/RU43RgY<br><img src="http://ww4.sinaimg.cn/large/93b5c4bbjw1exfs1g2t2zj204c03caa0.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3902696966973148" target="freeweibo-mirror">太君这是给哪家文学网站写的穿越小说啊？</a>
-</h2>
-<p>太君这是给哪家文学网站写的穿越小说啊？<br><br>RE: 【奥巴马怒了？】据多名美国政府相关人士透露，奥巴马在私人晚宴上用了很长时间来游说中国停止建设军事设施。但习近平根本不买账，软硬不吃。据称，晚宴结束后愤怒的奥巴马指示亲信立刻联络美国太平洋司令部司令哈里·哈里斯，并下达了这样的通知“允许在南海作战”……http://t.cn/RU43RgY<br><img src="http://ww4.sinaimg.cn/large/93b5c4bbjw1exfs1g2t2zj204c03caa0.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
