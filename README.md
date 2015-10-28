@@ -48,7 +48,13 @@
 </h2>
 <p>SPAM 宝华姐给你们一点人生的经验[doge]<br><br>RE: 看你們這樣熱 情，我一句話都不説也不好 十五年前，你們年紀還小， 問來問去的問題都是too simple, sometimes naive 長大了，要好好進修自己 識唔識得呀！<br><img src="http://ww3.sinaimg.cn/large/6e240b98jw1exgjv7daiwj20go0go3zb.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3902838213709803" target="freeweibo-mirror">看你們這樣熱 情，我一句話都不説也不好 十五年前，你們年紀還…</a>
+</h2>
+<p>看你們這樣熱 情，我一句話都不説也不好 十五年前，你們年紀還小， 問來問去的問題都是too simple, sometimes naive 長大了，要好好進修自己 識唔識得呀！<br><img src="http://ww3.sinaimg.cn/large/6e240b98jw1exgjv7daiwj20go0go3zb.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3902832727760787" target="freeweibo-mirror">中远集团新任纪检组长火啦：他的内部讲话前几天曝光，今天又上了…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3902624040025910" target="freeweibo-mirror">Evian semitemos! Elpmis oot! G…</a>
 </h2>
 <p>Evian semitemos! Elpmis oot! Gnuoy oot!<br><br>RE: 历史上的今天:2000年10月27日晚，长者与时任香港特首进行会面，并与前来采访的香港记者进行了五分钟亲切友好的交谈。幽默而委婉的表达出对董先生的支持。这一段交谈是我国最高领导人最为著名的与记者的对话。其中不少经典语句时至今日 仍为人民群众所津津乐道，不少群众甚至可以逐字背诵这一段对话<br><img src="http://ww3.sinaimg.cn/large/62d5ef0agw1exfk3yz1l0j20ns0bqgnx.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3902595753779107" target="freeweibo-mirror">【奥巴马怒了？】据多名美国政府相关人士透露，奥巴马在私人晚宴…</a>
-</h2>
-<p>【奥巴马怒了？】据多名美国政府相关人士透露，奥巴马在私人晚宴上用了很长时间来游说中国停止建设军事设施。但习近平根本不买账，软硬不吃。据称，晚宴结束后愤怒的奥巴马指示亲信立刻联络美国太平洋司令部司令哈里·哈里斯，并下达了这样的通知“允许在南海作战”……http://t.cn/RU43RgY<br><img src="http://ww4.sinaimg.cn/large/93b5c4bbjw1exfs1g2t2zj204c03caa0.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
