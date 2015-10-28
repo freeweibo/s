@@ -24,13 +24,37 @@
 </h2>
 <p>访美屁都没有带回来，最失败的案例。对话没问题，比如警告 美国是想挑起战争吗？如果再度闯入中国领海，将无法保证不发生不测事件，美国乐见吧？</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3902992182526536" target="freeweibo-mirror">去做美国跟班是毫无前途的，死路一条。邓后来不也和老美翻脸了，…</a>
+</h2>
+<p>去做美国跟班是毫无前途的，死路一条。邓后来不也和老美翻脸了，叶利钦也是，亲自选择了普京。<br><br>RE: 兵也阅了，实力也展示了，人心也振奋了，外国人也震慑了，美国也去了，美元也送了，该做的我们都做了，但是，为什么美国的舰艇咋还是进入12海里以内呢？估计这是高层百思不得其解的吧！外媒：美军将再派航母驶近南海岛礁|美国军舰进入南海|南沙群岛_新浪新闻 http://t.cn/RUGzABW<br><img src="http://ww2.sinaimg.cn/large/c1b36be3gw1exgx3tduevj20sg0q9dll.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3902986201448960" target="freeweibo-mirror">//@寒江钓雪8: //@陕西公民2015://@深圳王庆斌…</a>
+</h2>
+<p>//@寒江钓雪8: //@陕西公民2015://@深圳王庆斌:操 就tmd窝里横!//@当代包公: 就知道耍门槛猴，搞百姓一套一套的，被鬼子欺负了不敢吭声。<br><br>RE: 【沉默+调动=最大威慑】美帝军舰27日蛮闯我国南海岛礁12海里，世界舆论一片哗然。我国相关部门嘴未张开，世界人民都知道要说的内容----已经被规范化、格式化了几十年的老调.....微评：美帝羞辱他国是霸权本性。下次面对类似挑衅，干脆保持沉默，起码能给美帝造成揣测的困扰，而困扰就是最有效的威慑。<br><img src="http://ww4.sinaimg.cn/large/db1747fcgw1exgy4j8kkij20kg0bcjt7.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3902978991661566" target="freeweibo-mirror">//@FT中文网:薛力：美国从1979年开始实行“航行自由行…</a>
+</h2>
+<p>//@FT中文网:薛力：美国从1979年开始实行“航行自由行动”，当美国认为某国海洋政策违背了航行自由原则时，即派出军舰或飞机进行测试性航行或飞越，以确认自己主张的航行自由权没有受到影响。到目前为止，美国的测试性航行与飞越还没有受到实质性的挑战。韩国、澳大利亚等盟国除了忍耐也没有更好的办法<br><br>RE: 【美舰进“12海里”，中国怎么办？】中国社科院薛力：中美两国没有在南中国海开战的意愿，也有能力管控危机以避免大规模冲突。美国此次进入“12海里”的行动显然经过精心设计，对此需做多层次辨析。http://t.cn/RUqvQO2<br><img src="http://ww1.sinaimg.cn/large/6538fd8cjw1exgv93y6uwj20gi09c0u5.jpg"></p>
+<p>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3902971122853969" target="freeweibo-mirror">→_→//@国旗-水方人思周816: 一个老兵的话：兵熊熊一…</a>
 </h2>
 <p>→_→//@国旗-水方人思周816: 一个老兵的话：兵熊熊一个，帅熊熊一窝。家里的威势靠家长，国家威望靠军队，军队听命于中央，中央软弱，部队观望！<br><br>RE: 兵也阅了，实力也展示了，人心也振奋了，外国人也震慑了，美国也去了，美元也送了，该做的我们都做了，但是，为什么美国的舰艇咋还是进入12海里以内呢？估计这是高层百思不得其解的吧！外媒：美军将再派航母驶近南海岛礁|美国军舰进入南海|南沙群岛_新浪新闻 http://t.cn/RUGzABW<br><img src="http://ww2.sinaimg.cn/large/c1b36be3gw1exgx3tduevj20sg0q9dll.jpg"></p>
 <p>
 	<small> ============== 4小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3902962290598721" target="freeweibo-mirror">【沉默+调动=最大威慑】美帝军舰27日蛮闯我国南海岛礁12海…</a>
+</h2>
+<p>【沉默+调动=最大威慑】美帝军舰27日蛮闯我国南海岛礁12海里，世界舆论一片哗然。我国相关部门嘴未张开，世界人民都知道要说的内容----已经被规范化、格式化了几十年的老调.....微评：美帝羞辱他国是霸权本性。下次面对类似挑衅，干脆保持沉默，起码能给美帝造成揣测的困扰，而困扰就是最有效的威慑。<br><img src="http://ww4.sinaimg.cn/large/db1747fcgw1exgy4j8kkij20kg0bcjt7.jpg"></p>
+<p>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3902955218651078" target="freeweibo-mirror">兵也阅了，实力也展示了，人心也振奋了，外国人也震慑了，美国也…</a>
 </h2>
@@ -54,13 +78,13 @@
 </h2>
 <p>【日本明确表示支持美军南海行动】日本内阁官房长官菅义伟在今上午的记者会见中表示，日本政府支持美国派军舰赴南海的中国岛礁12海里海域内巡航。他还表示：“在南海实施大规模的填埋作业并构筑设施，这种改变现状并导致紧张局势的单方面行动，是国际社会共同担忧的问题。” http://t.cn/RUqPi56<br><img src="http://ww4.sinaimg.cn/large/6298156bgw1exgvhmp1vjj21kw14ojyx.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3902924629054872" target="freeweibo-mirror">//@鲁迅民族魂:主要是武大们太蛋定了//@踏雪全是脚印冉:…</a>
 </h2>
 <p>//@鲁迅民族魂:主要是武大们太蛋定了//@踏雪全是脚印冉:是否武大有隐私被西门庆拿住七寸所以腿软手软连嘴也硬不起来<br><br>RE: 【武大郎记者发布会】自从娘子被霸占以来，我一直密切关注事态的进展。众所周知，潘金莲自古以来就是我的老婆，我对金莲拥有无可争议的主权。希望西门先生认清形势，不要做破坏武西双方世代友好的事情，尽快无条件释放我家金莲，搁置争议，共同开发。即使在进入“十二厘米”的领域，我也决不会诉诸醋意<br><img src="http://ww1.sinaimg.cn/large/006deVnMgw1exgmk29rraj306p064aa1.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3902908321961355" target="freeweibo-mirror">[拍照][拍照] //@陈晶晶C://@大圣统计:转发微博</a>
 </h2>
@@ -113,30 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3902846451665059" target="freeweibo-mirror">SPAM 宝华姐给你们一点人生的经验[doge]</a>
 </h2>
 <p>SPAM 宝华姐给你们一点人生的经验[doge]<br><br>RE: 看你們這樣熱 情，我一句話都不説也不好 十五年前，你們年紀還小， 問來問去的問題都是too simple, sometimes naive 長大了，要好好進修自己 識唔識得呀！<br><img src="http://ww3.sinaimg.cn/large/6e240b98jw1exgjv7daiwj20go0go3zb.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3902846065540516" target="freeweibo-mirror">//@海宁草根微评论:转发微博</a>
-</h2>
-<p>//@海宁草根微评论:转发微博</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3902844803991228" target="freeweibo-mirror">新闻要对比着看</a>
-</h2>
-<p>新闻要对比着看<br><img src="http://ww4.sinaimg.cn/large/c5d90a82gw1exgkl19u74j20h60jb0wu.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3902840273570995" target="freeweibo-mirror">与老嫖客老骗子勾肩搭背的，还奢谈什么“网络名人社会责任”，真…</a>
-</h2>
-<p>与老嫖客老骗子勾肩搭背的，还奢谈什么“网络名人社会责任”，真是黑白颠倒、让人笑掉大牙！//@老李随想:图片评论： http://t.cn/RUGvlvN<br><br>RE: 第一波文章三小时内全网清空与两小时内全网推广有什么区别？没有任何区别。足以说明对网络传播渠道的掌控力之强。只是，抹黑维尼、抹黑我党造谣搞历史虚无主义的帖子都清理的没这么干净，为了个人就可以有这么大的能量……这喉舌，在谁手里？公权，是这么用的么？群众路线没走好，形式主义又抬头咯。<br><img src="http://ww2.sinaimg.cn/large/62c63551gw1exg5zn6r17j20k00zk41b.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3902838213709803" target="freeweibo-mirror">看你們這樣熱 情，我一句話都不説也不好 十五年前，你們年紀還…</a>
-</h2>
-<p>看你們這樣熱 情，我一句話都不説也不好 十五年前，你們年紀還小， 問來問去的問題都是too simple, sometimes naive 長大了，要好好進修自己 識唔識得呀！<br><img src="http://ww3.sinaimg.cn/large/6e240b98jw1exgjv7daiwj20go0go3zb.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
