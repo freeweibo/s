@@ -96,7 +96,7 @@
 </h2>
 <p>[拍照][拍照] //@陈晶晶C://@大圣统计:转发微博<br><br>RE: 【BBC纪录片《Xi factor》】习近平访问英国当天，BBC就发布了这部二十多分钟的纪录片，试图告诉英国人——习是一个怎样的人？虽然篇幅不长，但是从习的小时候开始，到后来插队，从政的一步步经历讲的很全；甚至去了他曾住过的窑洞，访谈了他的前同事。@阿尔法小分队 http://t.cn/RUbTHtW<br><img src="http://ww2.sinaimg.cn/large/83fae389jw1exgqy69r87j20z20jjtee.jpg"></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3902899727649865" target="freeweibo-mirror">【BBC纪录片《Xi factor》】习近平访问英国当天，B…</a>
 </h2>
