@@ -32,6 +32,12 @@
 <p>
 	<small> ============== 6小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3902861668747095" target="freeweibo-mirror">【武大郎记者发布会】自从娘子被霸占以来，我一直密切关注事态的…</a>
+</h2>
+<p>【武大郎记者发布会】自从娘子被霸占以来，我一直密切关注事态的进展。众所周知，潘金莲自古以来就是我的老婆，我对金莲拥有无可争议的主权。希望西门先生认清形势，不要做破坏武西双方世代友好的事情，尽快无条件释放我家金莲，搁置争议，共同开发。即使在进入“十二厘米”的领域，我也决不会诉诸醋意<br><img src="http://ww1.sinaimg.cn/large/006deVnMgw1exgmk29rraj306p064aa1.jpg"></p>
+<p>
+	<small> ============== 7小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3902851619026202" target="freeweibo-mirror">//@迟夙生律师: //@白发萧萧小律师://@朝苟巴子: …</a>
 </h2>
 <p>//@迟夙生律师: //@白发萧萧小律师://@朝苟巴子: 企业合并没提党的领导，也被训。92%的第三方贸代，可见国企腐败很严重呀。<br><br>RE: 中远集团新任纪检组长火啦：他的内部讲话前几天曝光，今天又上了英国《金融时报》的封面，对他的讲话的报道比美国军舰南海活动还显著。<br><img src="http://ww2.sinaimg.cn/large/9ddb72ebgw1exgj93dxr4j20c87zwqv5.jpg"></p>
@@ -60,13 +66,13 @@
 </h2>
 <p>SPAM 宝华姐给你们一点人生的经验[doge]<br><br>RE: 看你們這樣熱 情，我一句話都不説也不好 十五年前，你們年紀還小， 問來問去的問題都是too simple, sometimes naive 長大了，要好好進修自己 識唔識得呀！<br><img src="http://ww3.sinaimg.cn/large/6e240b98jw1exgjv7daiwj20go0go3zb.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3902846065540516" target="freeweibo-mirror">//@海宁草根微评论:转发微博</a>
 </h2>
 <p>//@海宁草根微评论:转发微博</p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3902840273570995" target="freeweibo-mirror">与老嫖客老骗子勾肩搭背的，还奢谈什么“网络名人社会责任”，真…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3902705330141921" target="freeweibo-mirror">打个啥？从红军时代我们就有十六字作战方针，第一句就是“敌进我…</a>
 </h2>
 <p>打个啥？从红军时代我们就有十六字作战方针，第一句就是“敌进我退”嘛！<br><br>RE: 【奥巴马怒了？】据多名美国政府相关人士透露，奥巴马在私人晚宴上用了很长时间来游说中国停止建设军事设施。但习近平根本不买账，软硬不吃。据称，晚宴结束后愤怒的奥巴马指示亲信立刻联络美国太平洋司令部司令哈里·哈里斯，并下达了这样的通知“允许在南海作战”……http://t.cn/RU43RgY<br><img src="http://ww4.sinaimg.cn/large/93b5c4bbjw1exfs1g2t2zj204c03caa0.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3902701086133530" target="freeweibo-mirror">//@阿里-席学刚://@法治路由器: 转发微博</a>
-</h2>
-<p>//@阿里-席学刚://@法治路由器: 转发微博<br><br>RE: 【奥巴马怒了？】据多名美国政府相关人士透露，奥巴马在私人晚宴上用了很长时间来游说中国停止建设军事设施。但习近平根本不买账，软硬不吃。据称，晚宴结束后愤怒的奥巴马指示亲信立刻联络美国太平洋司令部司令哈里·哈里斯，并下达了这样的通知“允许在南海作战”……http://t.cn/RU43RgY<br><img src="http://ww4.sinaimg.cn/large/93b5c4bbjw1exfs1g2t2zj204c03caa0.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
