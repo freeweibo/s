@@ -108,7 +108,7 @@
 </h2>
 <p>新闻要对比着看<br><img src="http://ww4.sinaimg.cn/large/c5d90a82gw1exgkl19u74j20h60jb0wu.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3902840273570995" target="freeweibo-mirror">与老嫖客老骗子勾肩搭背的，还奢谈什么“网络名人社会责任”，真…</a>
 </h2>
