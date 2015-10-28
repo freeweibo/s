@@ -54,7 +54,7 @@
 </h2>
 <p>【BBC纪录片《Xi factor》】习近平访问英国当天，BBC就发布了这部二十多分钟的纪录片，试图告诉英国人——习是一个怎样的人？虽然篇幅不长，但是从习的小时候开始，到后来插队，从政的一步步经历讲的很全；甚至去了他曾住过的窑洞，访谈了他的前同事。@阿尔法小分队 http://t.cn/RUbTHtW<br><img src="http://ww2.sinaimg.cn/large/83fae389jw1exgqy69r87j20z20jjtee.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3902864604472256" target="freeweibo-mirror">@陈里 是好同志，删了吧！多挖挖推墙砸锅大公知…… //@汶…</a>
 </h2>
@@ -114,7 +114,7 @@
 </h2>
 <p>与老嫖客老骗子勾肩搭背的，还奢谈什么“网络名人社会责任”，真是黑白颠倒、让人笑掉大牙！//@老李随想:图片评论： http://t.cn/RUGvlvN<br><br>RE: 第一波文章三小时内全网清空与两小时内全网推广有什么区别？没有任何区别。足以说明对网络传播渠道的掌控力之强。只是，抹黑维尼、抹黑我党造谣搞历史虚无主义的帖子都清理的没这么干净，为了个人就可以有这么大的能量……这喉舌，在谁手里？公权，是这么用的么？群众路线没走好，形式主义又抬头咯。<br><img src="http://ww2.sinaimg.cn/large/62c63551gw1exg5zn6r17j20k00zk41b.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3902838213709803" target="freeweibo-mirror">看你們這樣熱 情，我一句話都不説也不好 十五年前，你們年紀還…</a>
 </h2>
@@ -132,7 +132,7 @@
 </h2>
 <p>中远集团新任纪检组长火啦：他的内部讲话前几天曝光，今天又上了英国《金融时报》的封面，对他的讲话的报道比美国军舰南海活动还显著。<br><img src="http://ww2.sinaimg.cn/large/9ddb72ebgw1exgj93dxr4j20c87zwqv5.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3902822367991993" target="freeweibo-mirror">//@演员孙海英:转发微博</a>
 </h2>
