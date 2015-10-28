@@ -30,7 +30,7 @@
 </h2>
 <p>去做美国跟班是毫无前途的，死路一条。邓后来不也和老美翻脸了，叶利钦也是，亲自选择了普京。<br><br>RE: 兵也阅了，实力也展示了，人心也振奋了，外国人也震慑了，美国也去了，美元也送了，该做的我们都做了，但是，为什么美国的舰艇咋还是进入12海里以内呢？估计这是高层百思不得其解的吧！外媒：美军将再派航母驶近南海岛礁|美国军舰进入南海|南沙群岛_新浪新闻 http://t.cn/RUGzABW<br><img src="http://ww2.sinaimg.cn/large/c1b36be3gw1exgx3tduevj20sg0q9dll.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3902986201448960" target="freeweibo-mirror">//@寒江钓雪8: //@陕西公民2015://@深圳王庆斌…</a>
 </h2>
@@ -54,7 +54,7 @@
 </h2>
 <p>【沉默+调动=最大威慑】美帝军舰27日蛮闯我国南海岛礁12海里，世界舆论一片哗然。我国相关部门嘴未张开，世界人民都知道要说的内容----已经被规范化、格式化了几十年的老调.....微评：美帝羞辱他国是霸权本性。下次面对类似挑衅，干脆保持沉默，起码能给美帝造成揣测的困扰，而困扰就是最有效的威慑。<br><img src="http://ww4.sinaimg.cn/large/db1747fcgw1exgy4j8kkij20kg0bcjt7.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3902955218651078" target="freeweibo-mirror">兵也阅了，实力也展示了，人心也振奋了，外国人也震慑了，美国也…</a>
 </h2>
@@ -66,7 +66,7 @@
 </h2>
 <p>SPAM 3434.34三思三思再三思</p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3902941104525780" target="freeweibo-mirror">SPAM //@常州姚宝华家属: //@常州杨洪波://@乡…</a>
 </h2>
