@@ -50,6 +50,12 @@
 <p>
 	<small> ============== 1小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3902832727760787" target="freeweibo-mirror">中远集团新任纪检组长火啦：他的内部讲话前几天曝光，今天又上了…</a>
+</h2>
+<p>中远集团新任纪检组长火啦：他的内部讲话前几天曝光，今天又上了英国《金融时报》的封面，对他的讲话的报道比美国军舰南海活动还显著。<br><img src="http://ww2.sinaimg.cn/large/9ddb72ebgw1exgj93dxr4j20c87zwqv5.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3902822367991993" target="freeweibo-mirror">//@演员孙海英:转发微博</a>
 </h2>
 <p>//@演员孙海英:转发微博</p>
@@ -102,7 +108,7 @@
 </h2>
 <p>//@章诒和: 落款咋能写上“夫妇”？妄议了//@昕静自然好: 关注三农//@朱孝顶律师: //@隋彭生民商法://@律师文摘: //@许身健: 关注土地者无愧归土<br><br>RE: [农会]杜润生活了102岁，真是高寿了。作为中国农村改革之父，他最关心农会。86年曾向邓小平建议恢复农民协会，使农民有自己的代言人。邓大人说先看三年，若大家都同意我就批准。不过政治风波一来，这事就被放下了。今年10月23日杜老追悼会上，有幅挽联还提起这件事：农地农协两遗恨  民主民权更问谁。<br><img src="http://ww4.sinaimg.cn/large/bdb2fab9jw1exfengb9ydj20ay0geab4.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3902689807000338" target="freeweibo-mirror">SPAM 手头的某个单子让我有一种给客人做包夜大宝剑结果客人…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3902595753779107" target="freeweibo-mirror">【奥巴马怒了？】据多名美国政府相关人士透露，奥巴马在私人晚宴…</a>
 </h2>
 <p>【奥巴马怒了？】据多名美国政府相关人士透露，奥巴马在私人晚宴上用了很长时间来游说中国停止建设军事设施。但习近平根本不买账，软硬不吃。据称，晚宴结束后愤怒的奥巴马指示亲信立刻联络美国太平洋司令部司令哈里·哈里斯，并下达了这样的通知“允许在南海作战”……http://t.cn/RU43RgY<br><img src="http://ww4.sinaimg.cn/large/93b5c4bbjw1exfs1g2t2zj204c03caa0.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3902567111220612" target="freeweibo-mirror">//@平常草民: 中国裸官这么多，妻儿都在美国，怎么能让中国…</a>
-</h2>
-<p>//@平常草民: 中国裸官这么多，妻儿都在美国，怎么能让中国硬得起来？//@赤馬於歸:轉發微博<br><br>RE: 习近平刚在美国撒完钱，美国就把舰船利炮开进了中国的领海，“新型大国关系”尽是如此的滑稽可笑。拿中国人民的巨额血汗钱，买了几千万顿的美国转基因大豆，却还是满足不了美国的欲望。说明洋奴哲学、爬行主义是自取其辱，与同与国百害而无一利。“以利相交，利尽则散；唯以心相交，方能成其久远。”<br><img src="http://ww4.sinaimg.cn/large/c3629be5jw1exfmqjz7jkj20go09wgmn.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
