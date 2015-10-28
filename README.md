@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3903000169283572" target="freeweibo-mirror">访美屁都没有带回来，最失败的案例。对话没问题，比如警告 美国…</a>
+</h2>
+<p>访美屁都没有带回来，最失败的案例。对话没问题，比如警告 美国是想挑起战争吗？如果再度闯入中国领海，将无法保证不发生不测事件，美国乐见吧？</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3902971122853969" target="freeweibo-mirror">→_→//@国旗-水方人思周816: 一个老兵的话：兵熊熊一…</a>
 </h2>
 <p>→_→//@国旗-水方人思周816: 一个老兵的话：兵熊熊一个，帅熊熊一窝。家里的威势靠家长，国家威望靠军队，军队听命于中央，中央软弱，部队观望！<br><br>RE: 兵也阅了，实力也展示了，人心也振奋了，外国人也震慑了，美国也去了，美元也送了，该做的我们都做了，但是，为什么美国的舰艇咋还是进入12海里以内呢？估计这是高层百思不得其解的吧！外媒：美军将再派航母驶近南海岛礁|美国军舰进入南海|南沙群岛_新浪新闻 http://t.cn/RUGzABW<br><img src="http://ww2.sinaimg.cn/large/c1b36be3gw1exgx3tduevj20sg0q9dll.jpg"></p>
@@ -60,7 +66,7 @@
 </h2>
 <p>[拍照][拍照] //@陈晶晶C://@大圣统计:转发微博<br><br>RE: 【BBC纪录片《Xi factor》】习近平访问英国当天，BBC就发布了这部二十多分钟的纪录片，试图告诉英国人——习是一个怎样的人？虽然篇幅不长，但是从习的小时候开始，到后来插队，从政的一步步经历讲的很全；甚至去了他曾住过的窑洞，访谈了他的前同事。@阿尔法小分队 http://t.cn/RUbTHtW<br><img src="http://ww2.sinaimg.cn/large/83fae389jw1exgqy69r87j20z20jjtee.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3902899727649865" target="freeweibo-mirror">【BBC纪录片《Xi factor》】习近平访问英国当天，B…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3902838213709803" target="freeweibo-mirror">看你們這樣熱 情，我一句話都不説也不好 十五年前，你們年紀還…</a>
 </h2>
 <p>看你們這樣熱 情，我一句話都不説也不好 十五年前，你們年紀還小， 問來問去的問題都是too simple, sometimes naive 長大了，要好好進修自己 識唔識得呀！<br><img src="http://ww3.sinaimg.cn/large/6e240b98jw1exgjv7daiwj20go0go3zb.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3902837236758469" target="freeweibo-mirror">SPAM 包子，啪啪啪，啪啪啪</a>
-</h2>
-<p>SPAM 包子，啪啪啪，啪啪啪</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
