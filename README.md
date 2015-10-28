@@ -20,6 +20,18 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3903059866363065" target="freeweibo-mirror">@Helens中国 应该是正常年轻人去聚会不正常中年人去开会…</a>
+</h2>
+<p>@Helens中国 应该是正常年轻人去聚会不正常中年人去开会的地方吧，断好句了么[嘻嘻]？</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3903058960626356" target="freeweibo-mirror">//@冯延强律师:我国的最高司法机关和最高立法机关，竟然堕落…</a>
+</h2>
+<p>//@冯延强律师:我国的最高司法机关和最高立法机关，竟然堕落到这般程度？<br><br>RE: 【传：最高法副院长举报人大副委员长与9女乱搞】港媒《动向》10月号披露，奚晓明被“双规”期间，已举报原上司王胜俊贪腐敛财、好色、渎职等违纪违法活动。其中在王生日、晋升日，送给王现金11次290万元；大连、青岛、天津、珠海、无锡住宅六幢；推荐、物色9名女子供王寻欢作乐。http://t.cn/RUG02kX<br><img src="http://ww2.sinaimg.cn/large/005XJEbTgw1exgma7097gj30i20djjs0.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3903056036815898" target="freeweibo-mirror">博主深刻，这帮子老革命家背叛革命，搞家天下封建特权，罪莫大焉…</a>
 </h2>
 <p>博主深刻，这帮子老革命家背叛革命，搞家天下封建特权，罪莫大焉！//@方无码: 万、李和革命家根本不沾边//@今日缚住苍龙: 有时候用不光彩的手段去实现高尚的目标也是不错的选择！//@策划人蔡磊: 走社会主义道路，实现其理想，实现宪法第一条，就是对毛泽东最好的怀念<br><br>RE: 曾经有一个笑话，说的是如果毛泽东从水晶棺里站了起来，全国的贪官们都会主动到检察院报到。其实，如果毛泽东真的从水晶棺里走出来，最害怕的是那些曾经无限忠诚，同时又颠倒黑白的“无产阶级老革命家们”。<br><img src="http://ww2.sinaimg.cn/large/54611fd5jw1exh5zj8pw9j20ca0c80tw.jpg"></p>
@@ -120,23 +132,11 @@
 </h2>
 <p>[拍照][拍照] //@陈晶晶C://@大圣统计:转发微博<br><br>RE: 【BBC纪录片《Xi factor》】习近平访问英国当天，BBC就发布了这部二十多分钟的纪录片，试图告诉英国人——习是一个怎样的人？虽然篇幅不长，但是从习的小时候开始，到后来插队，从政的一步步经历讲的很全；甚至去了他曾住过的窑洞，访谈了他的前同事。@阿尔法小分队 http://t.cn/RUbTHtW<br><img src="http://ww2.sinaimg.cn/large/83fae389jw1exgqy69r87j20z20jjtee.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3902899727649865" target="freeweibo-mirror">【BBC纪录片《Xi factor》】习近平访问英国当天，B…</a>
 </h2>
 <p>【BBC纪录片《Xi factor》】习近平访问英国当天，BBC就发布了这部二十多分钟的纪录片，试图告诉英国人——习是一个怎样的人？虽然篇幅不长，但是从习的小时候开始，到后来插队，从政的一步步经历讲的很全；甚至去了他曾住过的窑洞，访谈了他的前同事。@阿尔法小分队 http://t.cn/RUbTHtW<br><img src="http://ww2.sinaimg.cn/large/83fae389jw1exgqy69r87j20z20jjtee.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3902864604472256" target="freeweibo-mirror">@陈里 是好同志，删了吧！多挖挖推墙砸锅大公知…… //@汶…</a>
-</h2>
-<p>@陈里 是好同志，删了吧！多挖挖推墙砸锅大公知…… //@汶金让:别这么无聊，这有什么，博友之间的正常交往！[心] //@东海老鲵:站位有问题啊！被人要挟？还是。。。。。 //@东尹V: 党庆没声，建军没字，反法不言，国庆终于说句话了[哈哈] //@快递哥0903:下手够狠[哈哈] //@东尹V<br><br>RE: 陈里主任，我是真的被你吓到了！[挖鼻]<br><img src="http://ww4.sinaimg.cn/large/e215ddf6jw1exg6p2uc1oj20f00qomyj.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3902861668747095" target="freeweibo-mirror">【武大郎记者发布会】自从娘子被霸占以来，我一直密切关注事态的…</a>
-</h2>
-<p>【武大郎记者发布会】自从娘子被霸占以来，我一直密切关注事态的进展。众所周知，潘金莲自古以来就是我的老婆，我对金莲拥有无可争议的主权。希望西门先生认清形势，不要做破坏武西双方世代友好的事情，尽快无条件释放我家金莲，搁置争议，共同开发。即使在进入“十二厘米”的领域，我也决不会诉诸醋意<br><img src="http://ww1.sinaimg.cn/large/006deVnMgw1exgmk29rraj306p064aa1.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
