@@ -92,6 +92,12 @@
 <p>
 	<small> ============== 8小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3902844803991228" target="freeweibo-mirror">新闻要对比着看</a>
+</h2>
+<p>新闻要对比着看<br><img src="http://ww4.sinaimg.cn/large/c5d90a82gw1exgkl19u74j20h60jb0wu.jpg"></p>
+<p>
+	<small> ============== 8小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3902840273570995" target="freeweibo-mirror">与老嫖客老骗子勾肩搭背的，还奢谈什么“网络名人社会责任”，真…</a>
 </h2>
 <p>与老嫖客老骗子勾肩搭背的，还奢谈什么“网络名人社会责任”，真是黑白颠倒、让人笑掉大牙！//@老李随想:图片评论： http://t.cn/RUGvlvN<br><br>RE: 第一波文章三小时内全网清空与两小时内全网推广有什么区别？没有任何区别。足以说明对网络传播渠道的掌控力之强。只是，抹黑维尼、抹黑我党造谣搞历史虚无主义的帖子都清理的没这么干净，为了个人就可以有这么大的能量……这喉舌，在谁手里？公权，是这么用的么？群众路线没走好，形式主义又抬头咯。<br><img src="http://ww2.sinaimg.cn/large/62c63551gw1exg5zn6r17j20k00zk41b.jpg"></p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3902718051093906" target="freeweibo-mirror">SPAM 传说中的水震！[哆啦A梦微笑][哆啦A梦微笑]</a>
 </h2>
 <p>SPAM 传说中的水震！[哆啦A梦微笑][哆啦A梦微笑]<br><br>RE: #线上电影少女#水下也能这样玩儿？还是韩国情侣会玩儿[阴险][阴险] http://t.cn/RUbcg0S</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3902717409611247" target="freeweibo-mirror">第一波文章三小时内全网清空与两小时内全网推广有什么区别？没有…</a>
-</h2>
-<p>第一波文章三小时内全网清空与两小时内全网推广有什么区别？没有任何区别。足以说明对网络传播渠道的掌控力之强。只是，抹黑维尼、抹黑我党造谣搞历史虚无主义的帖子都清理的没这么干净，为了个人就可以有这么大的能量……这喉舌，在谁手里？公权，是这么用的么？群众路线没走好，形式主义又抬头咯。<br><img src="http://ww2.sinaimg.cn/large/62c63551gw1exg5zn6r17j20k00zk41b.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
