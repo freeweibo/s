@@ -54,7 +54,7 @@
 </h2>
 <p>【武大郎记者发布会】自从娘子被霸占以来，我一直密切关注事态的进展。众所周知，潘金莲自古以来就是我的老婆，我对金莲拥有无可争议的主权。希望西门先生认清形势，不要做破坏武西双方世代友好的事情，尽快无条件释放我家金莲，搁置争议，共同开发。即使在进入“十二厘米”的领域，我也决不会诉诸醋意<br><img src="http://ww1.sinaimg.cn/large/006deVnMgw1exgmk29rraj306p064aa1.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3902851619026202" target="freeweibo-mirror">//@迟夙生律师: //@白发萧萧小律师://@朝苟巴子: …</a>
 </h2>
@@ -84,13 +84,13 @@
 </h2>
 <p>SPAM 宝华姐给你们一点人生的经验[doge]<br><br>RE: 看你們這樣熱 情，我一句話都不説也不好 十五年前，你們年紀還小， 問來問去的問題都是too simple, sometimes naive 長大了，要好好進修自己 識唔識得呀！<br><img src="http://ww3.sinaimg.cn/large/6e240b98jw1exgjv7daiwj20go0go3zb.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3902846065540516" target="freeweibo-mirror">//@海宁草根微评论:转发微博</a>
 </h2>
 <p>//@海宁草根微评论:转发微博</p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3902844803991228" target="freeweibo-mirror">新闻要对比着看</a>
 </h2>
