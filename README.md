@@ -72,7 +72,7 @@
 </h2>
 <p>产经新闻转发共同社消息，28日午后，北京市朝阳区一名60岁左右男子在美国驻华大使馆前举牌示威并持扩音器喊话，抗议美军侵犯中国南海，要求炮击美军驱逐舰。该男子随即被警方带走。@囧纳森III<br><img src="http://ww1.sinaimg.cn/large/0066m1Gwjw1exhwv5eicsj30c80l1jtk.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3903257183495074" target="freeweibo-mirror">SPAM 中枪了…[doge]</a>
 </h2>
@@ -102,7 +102,7 @@
 </h2>
 <p>【为总理违法点赞？】媒体赞扬李克强总理英语水平高,称其多次直接用英语与老外交谈、发表演讲。http://t.cn/RUyrZs5 外国领导人与我国领导人交谈、在中国发表演讲,有用普通话的吗?总理与外国领导人交谈、发表演讲,应该算工作吧?《通用语言文字法》可是要求国家工作人员以普通话为工作语言噢！</p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3903228708219065" target="freeweibo-mirror">//@刘-晓原律师:采取法律行动，从申请政府信息公开再到提起…</a>
 </h2>
