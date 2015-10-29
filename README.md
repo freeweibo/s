@@ -56,6 +56,12 @@
 <p>
 	<small> ============== 4小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3903400586427256" target="freeweibo-mirror">SPAM 可能么//@深南-大盗: [赞]</a>
+</h2>
+<p>SPAM 可能么//@深南-大盗: [赞]<br><br>RE: 中国最主要的问题不是放开二胎，而是要放开二党。<br><img src="http://ww2.sinaimg.cn/large/8f5a4a73jw1exiboj4w7cj204g03iwei.jpg"></p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3903400258896235" target="freeweibo-mirror">上半年为国接盘，股亏；下半年为国生娃，肾亏。70后的痛：你在…</a>
 </h2>
 <p>上半年为国接盘，股亏；下半年为国生娃，肾亏。70后的痛：你在硬时，政策比你硬；政策软时，你比政策软……说来说去，还是党指挥枪。</p>
@@ -133,12 +139,6 @@
 <p>【妄议国政，速速拿下】大家表给领导添麻烦了好吧。<br><img src="http://ww2.sinaimg.cn/large/53ae0b70jw1exhyyx01kkj20c80hgtd5.jpg"></p>
 <p>
 	<small> ============== 12小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3903270814499503" target="freeweibo-mirror">【中国奇葩】政府组织学校15岁学生统一着装统一指挥去强拆，工…</a>
-</h2>
-<p>【中国奇葩】政府组织学校15岁学生统一着装统一指挥去强拆，工钱100元，学生被打成重伤后政府推卸责任……</p>
-<p>
-	<small> ============== 1天前</small>
 </p>
 <table>
     <tr>
