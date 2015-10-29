@@ -24,7 +24,7 @@
 </h2>
 <p>SPAM //@lianglun1996://@jerry是律师: //@swansu_yw: //@楚天遥的微博://@燕山老狼: 打人不打脸，揭人不揭短。<br><br>RE: 中国最主要的问题不是放开二胎，而是要放开二党。<br><img src="http://ww2.sinaimg.cn/large/8f5a4a73jw1exiboj4w7cj204g03iwei.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3903434153412445" target="freeweibo-mirror">通过国际法院解决问题不失为一个好办法，中国有在不通过法院的情…</a>
 </h2>
@@ -120,7 +120,7 @@
 </h2>
 <p>位卑最好别忧国。不知排签证队的人少些没。//@十年砍柴: 我还以为被美国海军陆战队带走了。<br><br>RE: 产经新闻转发共同社消息，28日午后，北京市朝阳区一名60岁左右男子在美国驻华大使馆前举牌示威并持扩音器喊话，抗议美军侵犯中国南海，要求炮击美军驱逐舰。该男子随即被警方带走。@囧纳森III<br><img src="http://ww1.sinaimg.cn/large/0066m1Gwjw1exhwv5eicsj30c80l1jtk.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3903287814201796" target="freeweibo-mirror">SPAM 领导自有破敌妙计，何劳布衣妄加议论。</a>
 </h2>
