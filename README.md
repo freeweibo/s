@@ -48,7 +48,7 @@
 </h2>
 <p>【妄议国政，速速拿下】大家表给领导添麻烦了好吧。<br><img src="http://ww2.sinaimg.cn/large/53ae0b70jw1exhyyx01kkj20c80hgtd5.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3903264670463243" target="freeweibo-mirror">产经新闻转发共同社消息，28日午后，北京市朝阳区一名60岁左…</a>
 </h2>
