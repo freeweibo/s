@@ -84,7 +84,7 @@
 </h2>
 <p>中国最主要的问题不是放开二胎，而是要放开二党。<br><img src="http://ww2.sinaimg.cn/large/8f5a4a73jw1exiboj4w7cj204g03iwei.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3903362489309108" target="freeweibo-mirror">【宜将趁勇追穷寇，不可沽名学霸王】为时三十多年的独生子女政策…</a>
 </h2>
