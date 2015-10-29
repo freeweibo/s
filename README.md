@@ -54,7 +54,7 @@
 </h2>
 <p>SPAM 《hou 宫 ·帝 wang 之 妾》剧情可从配图中了解，关. 注 .并私 . 信 输.入【后宫】便可获取下载地址！速速收走吧，不定期和.谐！<br><img src="http://ww1.sinaimg.cn/large/006bS1FJgw1exh5rp7bxgj30bo0gota4.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3903022750777680" target="freeweibo-mirror">//@覌棋不语: //@Z路上之慎言笃行: //@冷夜烈猫:…</a>
 </h2>
