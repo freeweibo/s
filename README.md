@@ -48,7 +48,7 @@
 </h2>
 <p>曾经有一个笑话，说的是如果毛泽东从水晶棺里站了起来，全国的贪官们都会主动到检察院报到。其实，如果毛泽东真的从水晶棺里走出来，最害怕的是那些曾经无限忠诚，同时又颠倒黑白的“无产阶级老革命家们”。<br><img src="http://ww2.sinaimg.cn/large/54611fd5jw1exh5zj8pw9j20ca0c80tw.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3903029361210546" target="freeweibo-mirror">SPAM 《hou 宫 ·帝 wang 之 妾》剧情可从配图…</a>
 </h2>
