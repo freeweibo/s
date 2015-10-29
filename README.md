@@ -36,7 +36,7 @@
 </h2>
 <p>【妄议国政，速速拿下】大家表给领导添麻烦了好吧。<br><img src="http://ww2.sinaimg.cn/large/53ae0b70jw1exhyyx01kkj20c80hgtd5.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3903257183495074" target="freeweibo-mirror">SPAM 中枪了…[doge]</a>
 </h2>
