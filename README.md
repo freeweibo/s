@@ -108,13 +108,13 @@
 </h2>
 <p>SPAM 领导自有破敌妙计，何劳布衣妄加议论。<br><br>RE: 【妄议国政，速速拿下】大家表给领导添麻烦了好吧。<br><img src="http://ww2.sinaimg.cn/large/53ae0b70jw1exhyyx01kkj20c80hgtd5.jpg"></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3903287407551411" target="freeweibo-mirror">不答应管用吗，党卫军又不敢打。清政府再无能，北洋水师都能全军…</a>
 </h2>
 <p>不答应管用吗，党卫军又不敢打。清政府再无能，北洋水师都能全军覆没以殉国家，南海舰队殉一个试试//@阿德1968-微力量: 人民不答应？管用吗？//@饮水居士: 人民不答应的事可多了，比如延迟退休，但管用吗？</p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3903283518963265" target="freeweibo-mirror">【妄议国政，速速拿下】大家表给领导添麻烦了好吧。</a>
 </h2>
@@ -132,7 +132,7 @@
 </h2>
 <p>产经新闻转发共同社消息，28日午后，北京市朝阳区一名60岁左右男子在美国驻华大使馆前举牌示威并持扩音器喊话，抗议美军侵犯中国南海，要求炮击美军驱逐舰。该男子随即被警方带走。@囧纳森III<br><img src="http://ww1.sinaimg.cn/large/0066m1Gwjw1exhwv5eicsj30c80l1jtk.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3903257183495074" target="freeweibo-mirror">SPAM 中枪了…[doge]</a>
 </h2>
