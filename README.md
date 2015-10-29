@@ -96,13 +96,13 @@
 </h2>
 <p>SPAM 领导自有破敌妙计，何劳布衣妄加议论。<br><br>RE: 【妄议国政，速速拿下】大家表给领导添麻烦了好吧。<br><img src="http://ww2.sinaimg.cn/large/53ae0b70jw1exhyyx01kkj20c80hgtd5.jpg"></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3903287407551411" target="freeweibo-mirror">不答应管用吗，党卫军又不敢打。清政府再无能，北洋水师都能全军…</a>
 </h2>
 <p>不答应管用吗，党卫军又不敢打。清政府再无能，北洋水师都能全军覆没以殉国家，南海舰队殉一个试试//@阿德1968-微力量: 人民不答应？管用吗？//@饮水居士: 人民不答应的事可多了，比如延迟退休，但管用吗？</p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3903283518963265" target="freeweibo-mirror">【妄议国政，速速拿下】大家表给领导添麻烦了好吧。</a>
 </h2>
@@ -126,7 +126,7 @@
 </h2>
 <p>SPAM 中枪了…[doge]</p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3903245926185839" target="freeweibo-mirror">[衰][衰][衰]</a>
 </h2>
