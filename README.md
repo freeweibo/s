@@ -62,6 +62,12 @@
 <p>
 	<small> ============== 5小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3903270814499503" target="freeweibo-mirror">【中国奇葩】政府组织学校15岁学生统一着装统一指挥去强拆，工…</a>
+</h2>
+<p>【中国奇葩】政府组织学校15岁学生统一着装统一指挥去强拆，工钱100元，学生被打成重伤后政府推卸责任……</p>
+<p>
+	<small> ============== 6小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3903264670463243" target="freeweibo-mirror">产经新闻转发共同社消息，28日午后，北京市朝阳区一名60岁左…</a>
 </h2>
 <p>产经新闻转发共同社消息，28日午后，北京市朝阳区一名60岁左右男子在美国驻华大使馆前举牌示威并持扩音器喊话，抗议美军侵犯中国南海，要求炮击美军驱逐舰。该男子随即被警方带走。@囧纳森III<br><img src="http://ww1.sinaimg.cn/large/0066m1Gwjw1exhwv5eicsj30c80l1jtk.jpg"></p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3903059866363065" target="freeweibo-mirror">@Helens中国 应该是正常年轻人去聚会不正常中年人去开会…</a>
 </h2>
 <p>@Helens中国 应该是正常年轻人去聚会不正常中年人去开会的地方吧，断好句了么[嘻嘻]？</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3903058960626356" target="freeweibo-mirror">//@冯延强律师:我国的最高司法机关和最高立法机关，竟然堕落…</a>
-</h2>
-<p>//@冯延强律师:我国的最高司法机关和最高立法机关，竟然堕落到这般程度？<br><br>RE: 【传：最高法副院长举报人大副委员长与9女乱搞】港媒《动向》10月号披露，奚晓明被“双规”期间，已举报原上司王胜俊贪腐敛财、好色、渎职等违纪违法活动。其中在王生日、晋升日，送给王现金11次290万元；大连、青岛、天津、珠海、无锡住宅六幢；推荐、物色9名女子供王寻欢作乐。http://t.cn/RUG02kX<br><img src="http://ww2.sinaimg.cn/large/005XJEbTgw1exgma7097gj30i20djjs0.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
