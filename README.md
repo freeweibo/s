@@ -84,7 +84,7 @@
 </h2>
 <p>中国最主要的问题不是放开二胎，而是要放开二党。<br><img src="http://ww2.sinaimg.cn/large/8f5a4a73jw1exiboj4w7cj204g03iwei.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3903362489309108" target="freeweibo-mirror">【宜将趁勇追穷寇，不可沽名学霸王】为时三十多年的独生子女政策…</a>
 </h2>
@@ -126,13 +126,13 @@
 </h2>
 <p>SPAM 领导自有破敌妙计，何劳布衣妄加议论。<br><br>RE: 【妄议国政，速速拿下】大家表给领导添麻烦了好吧。<br><img src="http://ww2.sinaimg.cn/large/53ae0b70jw1exhyyx01kkj20c80hgtd5.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3903287407551411" target="freeweibo-mirror">不答应管用吗，党卫军又不敢打。清政府再无能，北洋水师都能全军…</a>
 </h2>
 <p>不答应管用吗，党卫军又不敢打。清政府再无能，北洋水师都能全军覆没以殉国家，南海舰队殉一个试试//@阿德1968-微力量: 人民不答应？管用吗？//@饮水居士: 人民不答应的事可多了，比如延迟退休，但管用吗？</p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3903283518963265" target="freeweibo-mirror">【妄议国政，速速拿下】大家表给领导添麻烦了好吧。</a>
 </h2>
