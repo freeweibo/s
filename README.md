@@ -26,9 +26,21 @@
 <p>
 	<small> ============== 1小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3903402075040020" target="freeweibo-mirror">//@胡媛: 转发微博</a>
+</h2>
+<p>//@胡媛: 转发微博<br><br>RE: 上半年为国接盘，股亏；下半年为国生娃，肾亏。70后的痛：你在硬时，政策比你硬；政策软时，你比政策软……说来说去，还是党指挥枪。</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3903400258896235" target="freeweibo-mirror">上半年为国接盘，股亏；下半年为国生娃，肾亏。70后的痛：你在…</a>
 </h2>
 <p>上半年为国接盘，股亏；下半年为国生娃，肾亏。70后的痛：你在硬时，政策比你硬；政策软时，你比政策软……说来说去，还是党指挥枪。</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3903399319380242" target="freeweibo-mirror">政府为什么要全面放开二孩政策？</a>
+</h2>
+<p>政府为什么要全面放开二孩政策？<br><img src="http://ww2.sinaimg.cn/large/6248f01bjw1exicboowdqj20ic0k6wgw.jpg"></p>
 <p>
 	<small> ============== 1小时前</small>
 </p><h2>
@@ -125,18 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3903206029819987" target="freeweibo-mirror">有网友问我孩子办护照之事是否已经解决，我说没有任何消息。网友…</a>
 </h2>
 <p>有网友问我孩子办护照之事是否已经解决，我说没有任何消息。网友质问我，为何不采取法律行动？我解释道，儿子已经成年，采取法律行动要由他作决定。但我想，不论是信访反映，还是法律行动，在时间上都来不及了，留学申请已经受到影响。</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3903181093959126" target="freeweibo-mirror">SPAM //@禅达酒馆儿:一群乡下人，20亿就问责？你让三…</a>
-</h2>
-<p>SPAM //@禅达酒馆儿:一群乡下人，20亿就问责？你让三峡怎么办？<br><br>RE: 邓亚萍旧事重提，针对败光20亿发声说，公道自在人心。这个败家的娘们，做即刻搜索20亿的投资是她自己说的，要打败谷歌和百度也是她自己说的。搜索引擎倒是做成了，可用户几乎为零。输入“良心”，显示不存在；输入“早稻亩产”，显示一万斤;谁敢用？国家20亿打了水漂，可她官照当，酒照喝，牛照吹！<br><img src="http://ww4.sinaimg.cn/large/005SvoAtgw1exhli2ce5yj30c809gwfi.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3903179190011578" target="freeweibo-mirror">SPAM //@惆怅僧:你这样说就不对了，连哈巴狗都不如才对…</a>
-</h2>
-<p>SPAM //@惆怅僧:你这样说就不对了，连哈巴狗都不如才对吧。//@愤怒的牛蝇:花钱买朋友，人家还不理睬，中国政府就一个贱。对外中国政府总是像只哈巴狗，对内总是像希特勒。</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
