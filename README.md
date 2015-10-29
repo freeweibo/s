@@ -38,6 +38,12 @@
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3903287407551411" target="freeweibo-mirror">不答应管用吗，党卫军又不敢打。清政府再无能，北洋水师都能全军…</a>
+</h2>
+<p>不答应管用吗，党卫军又不敢打。清政府再无能，北洋水师都能全军覆没以殉国家，南海舰队殉一个试试//@阿德1968-微力量: 人民不答应？管用吗？//@饮水居士: 人民不答应的事可多了，比如延迟退休，但管用吗？</p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3903283518963265" target="freeweibo-mirror">【妄议国政，速速拿下】大家表给领导添麻烦了好吧。</a>
 </h2>
 <p>【妄议国政，速速拿下】大家表给领导添麻烦了好吧。<br><img src="http://ww2.sinaimg.cn/large/53ae0b70jw1exhyyx01kkj20c80hgtd5.jpg"></p>
@@ -102,7 +108,7 @@
 </h2>
 <p>SPAM //@惆怅僧:你这样说就不对了，连哈巴狗都不如才对吧。//@愤怒的牛蝇:花钱买朋友，人家还不理睬，中国政府就一个贱。对外中国政府总是像只哈巴狗，对内总是像希特勒。</p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3903166032934311" target="freeweibo-mirror">邓亚萍旧事重提，针对败光20亿发声说，公道自在人心。这个败家…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3903047921341245" target="freeweibo-mirror">SPAM 多次开团大获好评的陶瓷刀和砧板又来啦！这次还应麻麻…</a>
 </h2>
 <p>SPAM 多次开团大获好评的陶瓷刀和砧板又来啦！这次还应麻麻要求，新增了单把菜单团，可以按需购买哦！[挤眼]</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3903030783615510" target="freeweibo-mirror">曾经有一个笑话，说的是如果毛泽东从水晶棺里站了起来，全国的贪…</a>
-</h2>
-<p>曾经有一个笑话，说的是如果毛泽东从水晶棺里站了起来，全国的贪官们都会主动到检察院报到。其实，如果毛泽东真的从水晶棺里走出来，最害怕的是那些曾经无限忠诚，同时又颠倒黑白的“无产阶级老革命家们”。<br><img src="http://ww2.sinaimg.cn/large/54611fd5jw1exh5zj8pw9j20ca0c80tw.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
