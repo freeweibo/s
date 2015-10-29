@@ -102,7 +102,7 @@
 </h2>
 <p>[话筒]快讯：默克尔敦促中国在国际法院解决南中国海争端 ～[笑cry]<br><img src="http://ww2.sinaimg.cn/large/ab7f5cccgw1exi53e4o9nj20sf0k8jtd.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3903324518956287" target="freeweibo-mirror">SPAM #一加手机x#来了</a>
 </h2>
@@ -138,7 +138,7 @@
 </h2>
 <p>【妄议国政，速速拿下】大家表给领导添麻烦了好吧。<br><img src="http://ww2.sinaimg.cn/large/53ae0b70jw1exhyyx01kkj20c80hgtd5.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p>
 <table>
     <tr>
