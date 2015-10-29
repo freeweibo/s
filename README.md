@@ -42,7 +42,7 @@
 </h2>
 <p>@Helens中国 应该是正常年轻人去聚会不正常中年人去开会的地方吧，断好句了么[嘻嘻]？</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3903058960626356" target="freeweibo-mirror">//@冯延强律师:我国的最高司法机关和最高立法机关，竟然堕落…</a>
 </h2>
