@@ -24,7 +24,7 @@
 </h2>
 <p>SPAM 大爷：很抱歉，你的爱国行为，不符合国家标准。<br><img src="http://ww3.sinaimg.cn/large/41693645gw1exi07ht772j20go0bcjs2.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3903287814201796" target="freeweibo-mirror">SPAM 领导自有破敌妙计，何劳布衣妄加议论。</a>
 </h2>
