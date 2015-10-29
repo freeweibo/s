@@ -32,6 +32,12 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3903206029819987" target="freeweibo-mirror">有网友问我孩子办护照之事是否已经解决，我说没有任何消息。网友…</a>
+</h2>
+<p>有网友问我孩子办护照之事是否已经解决，我说没有任何消息。网友质问我，为何不采取法律行动？我解释道，儿子已经成年，采取法律行动要由他作决定。但我想，不论是信访反映，还是法律行动，在时间上都来不及了，留学申请已经受到影响。</p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3903181093959126" target="freeweibo-mirror">SPAM //@禅达酒馆儿:一群乡下人，20亿就问责？你让三…</a>
 </h2>
 <p>SPAM //@禅达酒馆儿:一群乡下人，20亿就问责？你让三峡怎么办？<br><br>RE: 邓亚萍旧事重提，针对败光20亿发声说，公道自在人心。这个败家的娘们，做即刻搜索20亿的投资是她自己说的，要打败谷歌和百度也是她自己说的。搜索引擎倒是做成了，可用户几乎为零。输入“良心”，显示不存在；输入“早稻亩产”，显示一万斤;谁敢用？国家20亿打了水漂，可她官照当，酒照喝，牛照吹！<br><img src="http://ww4.sinaimg.cn/large/005SvoAtgw1exhli2ce5yj30c809gwfi.jpg"></p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3902955218651078" target="freeweibo-mirror">兵也阅了，实力也展示了，人心也振奋了，外国人也震慑了，美国也…</a>
 </h2>
 <p>兵也阅了，实力也展示了，人心也振奋了，外国人也震慑了，美国也去了，美元也送了，该做的我们都做了，但是，为什么美国的舰艇咋还是进入12海里以内呢？估计这是高层百思不得其解的吧！外媒：美军将再派航母驶近南海岛礁|美国军舰进入南海|南沙群岛_新浪新闻 http://t.cn/RUGzABW<br><img src="http://ww2.sinaimg.cn/large/c1b36be3gw1exgx3tduevj20sg0q9dll.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3902946997585168" target="freeweibo-mirror">SPAM 3434.34三思三思再三思</a>
-</h2>
-<p>SPAM 3434.34三思三思再三思</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
