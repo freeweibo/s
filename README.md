@@ -24,7 +24,7 @@
 </h2>
 <p>SPAM 大爷：很抱歉，你的爱国行为，不符合国家标准。<br><img src="http://ww3.sinaimg.cn/large/41693645gw1exi07ht772j20go0bcjs2.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3903289512551396" target="freeweibo-mirror">位卑最好别忧国。不知排签证队的人少些没。//@十年砍柴: 我…</a>
 </h2>
