@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3903287814201796" target="freeweibo-mirror">SPAM 领导自有破敌妙计，何劳布衣妄加议论。</a>
+</h2>
+<p>SPAM 领导自有破敌妙计，何劳布衣妄加议论。<br><br>RE: 【妄议国政，速速拿下】大家表给领导添麻烦了好吧。<br><img src="http://ww2.sinaimg.cn/large/53ae0b70jw1exhyyx01kkj20c80hgtd5.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3903257183495074" target="freeweibo-mirror">SPAM 中枪了…[doge]</a>
 </h2>
 <p>SPAM 中枪了…[doge]</p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3902978991661566" target="freeweibo-mirror">//@FT中文网:薛力：美国从1979年开始实行“航行自由行…</a>
 </h2>
 <p>//@FT中文网:薛力：美国从1979年开始实行“航行自由行动”，当美国认为某国海洋政策违背了航行自由原则时，即派出军舰或飞机进行测试性航行或飞越，以确认自己主张的航行自由权没有受到影响。到目前为止，美国的测试性航行与飞越还没有受到实质性的挑战。韩国、澳大利亚等盟国除了忍耐也没有更好的办法<br><br>RE: 【美舰进“12海里”，中国怎么办？】中国社科院薛力：中美两国没有在南中国海开战的意愿，也有能力管控危机以避免大规模冲突。美国此次进入“12海里”的行动显然经过精心设计，对此需做多层次辨析。http://t.cn/RUqvQO2<br><img src="http://ww1.sinaimg.cn/large/6538fd8cjw1exgv93y6uwj20gi09c0u5.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3902971122853969" target="freeweibo-mirror">→_→//@国旗-水方人思周816: 一个老兵的话：兵熊熊一…</a>
-</h2>
-<p>→_→//@国旗-水方人思周816: 一个老兵的话：兵熊熊一个，帅熊熊一窝。家里的威势靠家长，国家威望靠军队，军队听命于中央，中央软弱，部队观望！<br><br>RE: 兵也阅了，实力也展示了，人心也振奋了，外国人也震慑了，美国也去了，美元也送了，该做的我们都做了，但是，为什么美国的舰艇咋还是进入12海里以内呢？估计这是高层百思不得其解的吧！外媒：美军将再派航母驶近南海岛礁|美国军舰进入南海|南沙群岛_新浪新闻 http://t.cn/RUGzABW<br><img src="http://ww2.sinaimg.cn/large/c1b36be3gw1exgx3tduevj20sg0q9dll.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
