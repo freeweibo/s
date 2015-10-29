@@ -66,13 +66,13 @@
 </h2>
 <p>上半年为国接盘，股亏；下半年为国生娃，肾亏。70后的痛：你在硬时，政策比你硬；政策软时，你比政策软……说来说去，还是党指挥枪。</p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3903399319380242" target="freeweibo-mirror">政府为什么要全面放开二孩政策？</a>
 </h2>
 <p>政府为什么要全面放开二孩政策？<br><img src="http://ww2.sinaimg.cn/large/6248f01bjw1exicboowdqj20ic0k6wgw.jpg"></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3903395482205252" target="freeweibo-mirror">太晚了。</a>
 </h2>
@@ -90,7 +90,7 @@
 </h2>
 <p>【宜将趁勇追穷寇，不可沽名学霸王】为时三十多年的独生子女政策宣告结束！中国从1978年开始试行独生子女政策，1980年全面实行独生子女政策，这项吞灭了一亿多婴儿的恶政终于被推进了历史的垃圾堆。为生命欢呼，为历史欢呼！独生子女政策已经退出历史舞台，停止计划生育还会远吗？</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3903344844373058" target="freeweibo-mirror">连孩子都利用，没救了[挖鼻] //@微博趋势://@战争史研…</a>
 </h2>
