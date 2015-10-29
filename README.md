@@ -60,13 +60,13 @@
 </h2>
 <p>上半年为国接盘，股亏；下半年为国生娃，肾亏。70后的痛：你在硬时，政策比你硬；政策软时，你比政策软……说来说去，还是党指挥枪。</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3903399319380242" target="freeweibo-mirror">政府为什么要全面放开二孩政策？</a>
 </h2>
 <p>政府为什么要全面放开二孩政策？<br><img src="http://ww2.sinaimg.cn/large/6248f01bjw1exicboowdqj20ic0k6wgw.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3903395482205252" target="freeweibo-mirror">太晚了。</a>
 </h2>
@@ -96,13 +96,13 @@
 </h2>
 <p>SPAM #一加手机x#来了<br><img src="http://ww3.sinaimg.cn/large/851b9922jw1exi3odfl3zj22271j07k1.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3903294269032130" target="freeweibo-mirror">SPAM 大爷：很抱歉，你的爱国行为，不符合国家标准。</a>
 </h2>
 <p>SPAM 大爷：很抱歉，你的爱国行为，不符合国家标准。<br><img src="http://ww3.sinaimg.cn/large/41693645gw1exi07ht772j20go0bcjs2.jpg"></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3903289512551396" target="freeweibo-mirror">位卑最好别忧国。不知排签证队的人少些没。//@十年砍柴: 我…</a>
 </h2>
@@ -132,7 +132,7 @@
 </h2>
 <p>【中国奇葩】政府组织学校15岁学生统一着装统一指挥去强拆，工钱100元，学生被打成重伤后政府推卸责任……</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3903264670463243" target="freeweibo-mirror">产经新闻转发共同社消息，28日午后，北京市朝阳区一名60岁左…</a>
 </h2>
