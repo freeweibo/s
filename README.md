@@ -66,13 +66,13 @@
 </h2>
 <p>上半年为国接盘，股亏；下半年为国生娃，肾亏。70后的痛：你在硬时，政策比你硬；政策软时，你比政策软……说来说去，还是党指挥枪。</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3903399319380242" target="freeweibo-mirror">政府为什么要全面放开二孩政策？</a>
 </h2>
 <p>政府为什么要全面放开二孩政策？<br><img src="http://ww2.sinaimg.cn/large/6248f01bjw1exicboowdqj20ic0k6wgw.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3903395482205252" target="freeweibo-mirror">太晚了。</a>
 </h2>
