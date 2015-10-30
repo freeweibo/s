@@ -32,6 +32,12 @@
 <p>
 	<small> ============== 1小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3903682334342148" target="freeweibo-mirror">有兴趣的可以搜搜九十年代初山东的曾昭起和“百日无孩运动”。另…</a>
+</h2>
+<p>有兴趣的可以搜搜九十年代初山东的曾昭起和“百日无孩运动”。另，这位曾昭起（父亲是全国劳模曾广福）后来成为山东省关心下一代工作委员会副主任 http://t.cn/RZf71ei #谁说我党缺乏幽默感#[doge] http://t.cn/RUcHNrg http://t.cn/zY8Chmr<br><br>RE: #全面二胎#下面这些内容均来自网易微博网友亲述的计生政策背后的故事。这些微博都非常有价值，可称得上是珍贵史料。http://t.cn/RUcVsHe<br><img src="http://ww2.sinaimg.cn/large/75521c95jw1exizp978ldj20jg6fdkjl.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3903660704635779" target="freeweibo-mirror">我觉得这证明对拆架事件体制内有不同声音，且很可能即将公开化。…</a>
 </h2>
 <p>我觉得这证明对拆架事件体制内有不同声音，且很可能即将公开化。 //@闻郁居士:初步判断：浙江官员在张凯律师案子上陷入困局，并寻找出路。温州公安在张凯律师身上无计可施（在无搜捕证下突袭张凯律师北京住宅，以期有“罪证”收获——狗急跳墙）。夏宝龙如果想在政治上止血，当务之急就是释放张凯律师<br><br>RE: 删了重发<br><img src="http://ww4.sinaimg.cn/large/728e6175jw1exi6tvbk13j20qo0zkgp5.jpg"></p>
@@ -67,6 +73,12 @@
 <p>//@老饕加鈾:[哈哈] //@深川胡骏: //@东郭文奴://@王林的微博客: //@避言套: [哈哈]都是战略考量//@人淡如菊---1028: [偷笑]//@狂人春梦日记2015: //@榆木根V:[哈哈]一个维稳、另一个被维稳对象//@一只博://@王二叔书房:</p>
 <p>
 	<small> ============== 6小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3903603246577519" target="freeweibo-mirror">#全面二胎#下面这些内容均来自网易微博网友亲述的计生政策背后…</a>
+</h2>
+<p>#全面二胎#下面这些内容均来自网易微博网友亲述的计生政策背后的故事。这些微博都非常有价值，可称得上是珍贵史料。http://t.cn/RUcVsHe<br><img src="http://ww2.sinaimg.cn/large/75521c95jw1exizp978ldj20jg6fdkjl.jpg"></p>
+<p>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3903569898204963" target="freeweibo-mirror">转：据说，广大领导干部纷纷反映，在中国特色社会主义体制下，至…</a>
 </h2>
@@ -125,18 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3903400586427256" target="freeweibo-mirror">SPAM 可能么//@深南-大盗: [赞]</a>
 </h2>
 <p>SPAM 可能么//@深南-大盗: [赞]<br><br>RE: 中国最主要的问题不是放开二胎，而是要放开二党。<br><img src="http://ww2.sinaimg.cn/large/8f5a4a73jw1exiboj4w7cj204g03iwei.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3903400258896235" target="freeweibo-mirror">上半年为国接盘，股亏；下半年为国生娃，肾亏。70后的痛：你在…</a>
-</h2>
-<p>上半年为国接盘，股亏；下半年为国生娃，肾亏。70后的痛：你在硬时，政策比你硬；政策软时，你比政策软……说来说去，还是党指挥枪。</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3903399319380242" target="freeweibo-mirror">政府为什么要全面放开二孩政策？</a>
-</h2>
-<p>政府为什么要全面放开二孩政策？<br><img src="http://ww2.sinaimg.cn/large/6248f01bjw1exicboowdqj20ic0k6wgw.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
