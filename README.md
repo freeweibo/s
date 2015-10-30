@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3903690693624428" target="freeweibo-mirror">SPAM //@陈军--价值投资者：计生与文革同为民族浩劫</a>
+</h2>
+<p>SPAM //@陈军--价值投资者：计生与文革同为民族浩劫<br><br>RE: #全面二胎#下面这些内容均来自网易微博网友亲述的计生政策背后的故事。这些微博都非常有价值，可称得上是珍贵史料。http://t.cn/RUcVsHe<br><img src="http://ww2.sinaimg.cn/large/75521c95jw1exizp978ldj20jg6fdkjl.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3903660704635779" target="freeweibo-mirror">我觉得这证明对拆架事件体制内有不同声音，且很可能即将公开化。…</a>
 </h2>
 <p>我觉得这证明对拆架事件体制内有不同声音，且很可能即将公开化。 //@闻郁居士:初步判断：浙江官员在张凯律师案子上陷入困局，并寻找出路。温州公安在张凯律师身上无计可施（在无搜捕证下突袭张凯律师北京住宅，以期有“罪证”收获——狗急跳墙）。夏宝龙如果想在政治上止血，当务之急就是释放张凯律师<br><br>RE: 删了重发<br><img src="http://ww4.sinaimg.cn/large/728e6175jw1exi6tvbk13j20qo0zkgp5.jpg"></p>
@@ -42,7 +48,7 @@
 </h2>
 <p>[哈哈][哈哈]话不要说辣么透么//@卡廷森林_jt7:生两娃的理由</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3903614554698592" target="freeweibo-mirror">//@老饕加鈾:[哈哈] //@深川胡骏: //@东郭文奴:…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3903393665750656" target="freeweibo-mirror">中国最主要的问题不是放开二胎，而是要放开二党。</a>
 </h2>
 <p>中国最主要的问题不是放开二胎，而是要放开二党。<br><img src="http://ww2.sinaimg.cn/large/8f5a4a73jw1exiboj4w7cj204g03iwei.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3903362489309108" target="freeweibo-mirror">【宜将趁勇追穷寇，不可沽名学霸王】为时三十多年的独生子女政策…</a>
-</h2>
-<p>【宜将趁勇追穷寇，不可沽名学霸王】为时三十多年的独生子女政策宣告结束！中国从1978年开始试行独生子女政策，1980年全面实行独生子女政策，这项吞灭了一亿多婴儿的恶政终于被推进了历史的垃圾堆。为生命欢呼，为历史欢呼！独生子女政策已经退出历史舞台，停止计划生育还会远吗？</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
