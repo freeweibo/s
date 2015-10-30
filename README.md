@@ -38,6 +38,12 @@
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3903659701846050" target="freeweibo-mirror">这是一个根据战争场景编辑的视频.....和平真的不仅一句口号…</a>
+</h2>
+<p>这是一个根据战争场景编辑的视频.....和平真的不仅一句口号，霸权主义何日才能休止......[吃惊][吃惊] @90后 http://t.cn/RUUbomD</p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3903648805367375" target="freeweibo-mirror">迟早政府宣传部门会后悔，发现把@雷希颖 这样居心叵测包藏祸心…</a>
 </h2>
 <p>迟早政府宣传部门会后悔，发现把@雷希颖 这样居心叵测包藏祸心的推出来是个错误<br><br>RE: 我靠，妈的，我实在忍不住了[吐][吐][吐]<br><img src="http://ww1.sinaimg.cn/large/80571fbfgw1exivjuopkdj20p05ny4qp.jpg"></p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3903399319380242" target="freeweibo-mirror">政府为什么要全面放开二孩政策？</a>
 </h2>
 <p>政府为什么要全面放开二孩政策？<br><img src="http://ww2.sinaimg.cn/large/6248f01bjw1exicboowdqj20ic0k6wgw.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3903395482205252" target="freeweibo-mirror">太晚了。</a>
-</h2>
-<p>太晚了。<br><br>RE: 【宜将趁勇追穷寇，不可沽名学霸王】为时三十多年的独生子女政策宣告结束！中国从1978年开始试行独生子女政策，1980年全面实行独生子女政策，这项吞灭了一亿多婴儿的恶政终于被推进了历史的垃圾堆。为生命欢呼，为历史欢呼！独生子女政策已经退出历史舞台，停止计划生育还会远吗？</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
