@@ -26,6 +26,12 @@
 <p>
 	<small> ============== 1小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3903686545371900" target="freeweibo-mirror">转</a>
+</h2>
+<p>转<br><br>RE: 这是一个根据战争场景编辑的视频.....和平真的不仅一句口号，霸权主义何日才能休止......[吃惊][吃惊] @90后 http://t.cn/RUUbomD</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3903660704635779" target="freeweibo-mirror">我觉得这证明对拆架事件体制内有不同声音，且很可能即将公开化。…</a>
 </h2>
 <p>我觉得这证明对拆架事件体制内有不同声音，且很可能即将公开化。 //@闻郁居士:初步判断：浙江官员在张凯律师案子上陷入困局，并寻找出路。温州公安在张凯律师身上无计可施（在无搜捕证下突袭张凯律师北京住宅，以期有“罪证”收获——狗急跳墙）。夏宝龙如果想在政治上止血，当务之急就是释放张凯律师<br><br>RE: 删了重发<br><img src="http://ww4.sinaimg.cn/large/728e6175jw1exi6tvbk13j20qo0zkgp5.jpg"></p>
@@ -36,7 +42,7 @@
 </h2>
 <p>迟早政府宣传部门会后悔，发现把@雷希颖 这样居心叵测包藏祸心的推出来是个错误<br><br>RE: 我靠，妈的，我实在忍不住了[吐][吐][吐]<br><img src="http://ww1.sinaimg.cn/large/80571fbfgw1exivjuopkdj20p05ny4qp.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3903630916712185" target="freeweibo-mirror">SPAM 南方公园S19E06。。。。。。这剧药丸。。。</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3903395482205252" target="freeweibo-mirror">太晚了。</a>
 </h2>
 <p>太晚了。<br><br>RE: 【宜将趁勇追穷寇，不可沽名学霸王】为时三十多年的独生子女政策宣告结束！中国从1978年开始试行独生子女政策，1980年全面实行独生子女政策，这项吞灭了一亿多婴儿的恶政终于被推进了历史的垃圾堆。为生命欢呼，为历史欢呼！独生子女政策已经退出历史舞台，停止计划生育还会远吗？</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3903393665750656" target="freeweibo-mirror">中国最主要的问题不是放开二胎，而是要放开二党。</a>
-</h2>
-<p>中国最主要的问题不是放开二胎，而是要放开二党。<br><img src="http://ww2.sinaimg.cn/large/8f5a4a73jw1exiboj4w7cj204g03iwei.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
