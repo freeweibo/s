@@ -60,13 +60,13 @@
 </h2>
 <p>強制引產就是反人類的暴行。 //@战争史研究WHS:有兴趣的可以搜搜九十年代初山东的曾昭起和“百日无孩运动”。另，这位曾昭起（父亲是全国劳模曾广福）后来成为山东省关心下一代工作委员会副主任 http://t.cn/RZf71ei #谁说我党缺乏幽默感#[doge] http://t.cn/RUcHNrg http://t.cn/zY8Chmr<br><br>RE: #全面二胎#下面这些内容均来自网易微博网友亲述的计生政策背后的故事。这些微博都非常有价值，可称得上是珍贵史料。http://t.cn/RUcVsHe<br><img src="http://ww2.sinaimg.cn/large/75521c95jw1exizp978ldj20jg6fdkjl.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3903682334342148" target="freeweibo-mirror">有兴趣的可以搜搜九十年代初山东的曾昭起和“百日无孩运动”。另…</a>
 </h2>
 <p>有兴趣的可以搜搜九十年代初山东的曾昭起和“百日无孩运动”。另，这位曾昭起（父亲是全国劳模曾广福）后来成为山东省关心下一代工作委员会副主任 http://t.cn/RZf71ei #谁说我党缺乏幽默感#[doge] http://t.cn/RUcHNrg http://t.cn/zY8Chmr<br><br>RE: #全面二胎#下面这些内容均来自网易微博网友亲述的计生政策背后的故事。这些微博都非常有价值，可称得上是珍贵史料。http://t.cn/RUcVsHe<br><img src="http://ww2.sinaimg.cn/large/75521c95jw1exizp978ldj20jg6fdkjl.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3903660704635779" target="freeweibo-mirror">我觉得这证明对拆架事件体制内有不同声音，且很可能即将公开化。…</a>
 </h2>
@@ -102,7 +102,7 @@
 </h2>
 <p>//@老饕加鈾:[哈哈] //@深川胡骏: //@东郭文奴://@王林的微博客: //@避言套: [哈哈]都是战略考量//@人淡如菊---1028: [偷笑]//@狂人春梦日记2015: //@榆木根V:[哈哈]一个维稳、另一个被维稳对象//@一只博://@王二叔书房:</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3903603246577519" target="freeweibo-mirror">#全面二胎#下面这些内容均来自网易微博网友亲述的计生政策背后…</a>
 </h2>
