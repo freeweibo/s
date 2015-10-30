@@ -54,7 +54,7 @@
 </h2>
 <p>SPAM //@陈军--价值投资者：计生与文革同为民族浩劫<br><br>RE: #全面二胎#下面这些内容均来自网易微博网友亲述的计生政策背后的故事。这些微博都非常有价值，可称得上是珍贵史料。http://t.cn/RUcVsHe<br><img src="http://ww2.sinaimg.cn/large/75521c95jw1exizp978ldj20jg6fdkjl.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3903686545371900" target="freeweibo-mirror">转</a>
 </h2>
