@@ -26,6 +26,18 @@
 <p>
 	<small> ============== 1小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3903614554698592" target="freeweibo-mirror">//@老饕加鈾:[哈哈] //@深川胡骏: //@东郭文奴:…</a>
+</h2>
+<p>//@老饕加鈾:[哈哈] //@深川胡骏: //@东郭文奴://@王林的微博客: //@避言套: [哈哈]都是战略考量//@人淡如菊---1028: [偷笑]//@狂人春梦日记2015: //@榆木根V:[哈哈]一个维稳、另一个被维稳对象//@一只博://@王二叔书房:</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3903569898204963" target="freeweibo-mirror">转：据说，广大领导干部纷纷反映，在中国特色社会主义体制下，至…</a>
+</h2>
+<p>转：据说，广大领导干部纷纷反映，在中国特色社会主义体制下，至少应该允许生两个孩子，一个从政，一个经商。中央从谏如流，准了。干部们还替老百姓考虑：广大人民群众至少应生两个娃，一个做工，一个当兵。中央亦准了。</p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3903553292603312" target="freeweibo-mirror">SPAM #郑州身边事# 【“河南最美女教师”被围观 都是制…</a>
 </h2>
 <p>SPAM #郑州身边事# 【“河南最美女教师”被围观 都是制服惹的祸】@河南警察学院 新来英语老师据说还是海龟博士哦清纯可人，酷似韩雪。这位美女是河南警察学院2015级侦查系的英语老师，今年刚入职。@河南警察学院 的同学纷纷表示要组队回去重修英语，[笑cry]网友:都是制服诱惑！！<br><img src="http://ww1.sinaimg.cn/large/9665d551jw1exitxci0b4j20go0dlgm6.jpg"></p>
@@ -125,18 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3903294269032130" target="freeweibo-mirror">SPAM 大爷：很抱歉，你的爱国行为，不符合国家标准。</a>
 </h2>
 <p>SPAM 大爷：很抱歉，你的爱国行为，不符合国家标准。<br><img src="http://ww3.sinaimg.cn/large/41693645gw1exi07ht772j20go0bcjs2.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3903289512551396" target="freeweibo-mirror">位卑最好别忧国。不知排签证队的人少些没。//@十年砍柴: 我…</a>
-</h2>
-<p>位卑最好别忧国。不知排签证队的人少些没。//@十年砍柴: 我还以为被美国海军陆战队带走了。<br><br>RE: 产经新闻转发共同社消息，28日午后，北京市朝阳区一名60岁左右男子在美国驻华大使馆前举牌示威并持扩音器喊话，抗议美军侵犯中国南海，要求炮击美军驱逐舰。该男子随即被警方带走。@囧纳森III<br><img src="http://ww1.sinaimg.cn/large/0066m1Gwjw1exhwv5eicsj30c80l1jtk.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3903287814201796" target="freeweibo-mirror">SPAM 领导自有破敌妙计，何劳布衣妄加议论。</a>
-</h2>
-<p>SPAM 领导自有破敌妙计，何劳布衣妄加议论。<br><br>RE: 【妄议国政，速速拿下】大家表给领导添麻烦了好吧。<br><img src="http://ww2.sinaimg.cn/large/53ae0b70jw1exhyyx01kkj20c80hgtd5.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
