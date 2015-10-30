@@ -24,7 +24,7 @@
 </h2>
 <p>SPAM 更新了，继续</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3903789872283584" target="freeweibo-mirror">SPAM 我我我！</a>
 </h2>
@@ -36,7 +36,7 @@
 </h2>
 <p>SPAM 蟹肉上席百味淡，更何况有好酒相陪。果然是鲜甜蟹肉与拥有馥郁花果香的轩尼诗VSOP最般配～</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3903755747334714" target="freeweibo-mirror">SPAM 最大优惠和特卖要来咯！！二次元专场！！</a>
 </h2>
