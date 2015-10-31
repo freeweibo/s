@@ -54,7 +54,7 @@
 </h2>
 <p>#微博辟谣# 【看权威媒体如何造谣 以及造谣后的嘴脸】图1华商报道“货车翻村民捡柿子回家”；图2人民网转载“货车翻村民哄抢柿子”；图3网友辟谣；图4新浪陕西辟谣。问题是：人民网就TM看不见，不删除不说明不道歉，好像这事压根就不存在，什么嘴脸？@点子正 @千钧客 @花千芳 http://t.cn/R713o6u<br><img src="http://ww3.sinaimg.cn/large/6462b685gw1exkep8ym4fj20yi1pcqv5.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3904047788277306" target="freeweibo-mirror">//@赤馬於歸: //@小汤的老爸: 回想百年前那场革命，划…</a>
 </h2>
