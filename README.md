@@ -26,6 +26,12 @@
 <p>
 	<small> ============== 1小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3904140214254554" target="freeweibo-mirror">邪恶//@垂直的风:难怪媒体对薄督的重庆唱红不再冷嘲热讽！ …</a>
+</h2>
+<p>邪恶//@垂直的风:难怪媒体对薄督的重庆唱红不再冷嘲热讽！ //@知书子: //@金陵薛冰:[围观][围观][围观][围观] //@上海陈子善:红卫兵也堂而皇之出来了，呵呵。[思考] //@刘耘博士:回复@David_Godson:校长没疯，他很清楚当局者的喜好。 //@David_Godson:[吃惊][吃惊][吃惊]校长疯了？！！<br><br>RE: 《苏州日报》日前报导，在苏州姑苏区举行的“美丽中国梦属于我们”主题教育活动中，金阊新城实验小学学生扮演潘冬子、王二小、草原英雄小姐妹、文革红卫兵等人物，伴随“革命音乐”，展示各个时期“少年英雄的形象”。【文革从未远去】 http://t.cn/RUVsaCQ<br><img src="http://ww3.sinaimg.cn/large/be8f8847gw1exkcyw1s7uj20hs0aq40u.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3904088011497669" target="freeweibo-mirror">来一大哄[顶]</a>
 </h2>
 <p>来一大哄[顶]<br><br>RE: #微博辟谣# 【看权威媒体如何造谣 以及造谣后的嘴脸】图1华商报道“货车翻村民捡柿子回家”；图2人民网转载“货车翻村民哄抢柿子”；图3网友辟谣；图4新浪陕西辟谣。问题是：人民网就TM看不见，不删除不说明不道歉，好像这事压根就不存在，什么嘴脸？@点子正 @千钧客 @花千芳 http://t.cn/R713o6u<br><img src="http://ww3.sinaimg.cn/large/6462b685gw1exkep8ym4fj20yi1pcqv5.jpg"></p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3903742519179916" target="freeweibo-mirror">SPAM 【适合宝宝吃的九种小饼干以及司康汇总】这些烘培食谱…</a>
 </h2>
 <p>SPAM 【适合宝宝吃的九种小饼干以及司康汇总】这些烘培食谱都简单易做，初学烘培的妈妈也可以驾驭哦~</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3903690693624428" target="freeweibo-mirror">SPAM //@陈军--价值投资者：计生与文革同为民族浩劫</a>
-</h2>
-<p>SPAM //@陈军--价值投资者：计生与文革同为民族浩劫<br><br>RE: #全面二胎#下面这些内容均来自网易微博网友亲述的计生政策背后的故事。这些微博都非常有价值，可称得上是珍贵史料。http://t.cn/RUcVsHe<br><img src="http://ww2.sinaimg.cn/large/75521c95jw1exizp978ldj20jg6fdkjl.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
