@@ -24,7 +24,7 @@
 </h2>
 <p>SPAM [色][色][色][色][色][色]<br><br>RE: #女主播时间#这酸爽，够高潮！http://t.cn/RUcI8LP</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3904173089070782" target="freeweibo-mirror">#女主播时间#这酸爽，够高潮！http://t.cn/RUc…</a>
 </h2>
@@ -72,7 +72,7 @@
 </h2>
 <p>说得好，看新闻自己长个脑子，现在的媒体已经彻底沦丧，缺乏正义和良知，满脑子炒//@乐在风语中：现在的媒体呵呵哒，以后看新闻大家长点心，别被媒体利用了！<br><br>RE: #微博辟谣# 【看权威媒体如何造谣 以及造谣后的嘴脸】图1华商报道“货车翻村民捡柿子回家”；图2人民网转载“货车翻村民哄抢柿子”；图3网友辟谣；图4新浪陕西辟谣。问题是：人民网就TM看不见，不删除不说明不道歉，好像这事压根就不存在，什么嘴脸？@点子正 @千钧客 @花千芳 http://t.cn/R713o6u<br><img src="http://ww3.sinaimg.cn/large/6462b685gw1exkep8ym4fj20yi1pcqv5.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3904070362747836" target="freeweibo-mirror">→_→ //@李愚懵:公知媒体不放过任何打击民族自信的机会/…</a>
 </h2>
