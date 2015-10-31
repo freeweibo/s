@@ -24,7 +24,7 @@
 </h2>
 <p>SPAM 更新了，继续</p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3903789872283584" target="freeweibo-mirror">SPAM 我我我！</a>
 </h2>
