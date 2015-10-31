@@ -78,7 +78,7 @@
 </h2>
 <p>《苏州日报》日前报导，在苏州姑苏区举行的“美丽中国梦属于我们”主题教育活动中，金阊新城实验小学学生扮演潘冬子、王二小、草原英雄小姐妹、文革红卫兵等人物，伴随“革命音乐”，展示各个时期“少年英雄的形象”。【文革从未远去】 http://t.cn/RUVsaCQ<br><img src="http://ww3.sinaimg.cn/large/be8f8847gw1exkcyw1s7uj20hs0aq40u.jpg"></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3903999654619048" target="freeweibo-mirror">//@另类无敌:向血性军人致敬！@御史中丞赵://@来自星醒…</a>
 </h2>
