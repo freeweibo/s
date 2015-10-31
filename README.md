@@ -60,7 +60,7 @@
 </h2>
 <p>中国新增20个罪名，强制穿戴极端主义服饰入罪 [doge]<br><img src="http://ww3.sinaimg.cn/large/947145fejw1exkkoz86i3j20ij0hsjul.jpg"></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3904088011497669" target="freeweibo-mirror">来一大哄[顶]</a>
 </h2>
