@@ -30,7 +30,13 @@
 </h2>
 <p>不是什么马屁都能拍的，小心马惊了<br><br>RE: 万达集团董事长王健林星期四在哈佛大学主讲“公开课”，回应了有关问题。但是，财新这篇报道王健林赞扬“治国严，治家更严”的文章几个小时后就从财新网上被撤下。<br><img src="http://ww2.sinaimg.cn/large/51c21d10gw1exk20kb1a4j20fa0bgjsr.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3903936693765743" target="freeweibo-mirror">万达集团董事长王健林星期四在哈佛大学主讲“公开课”，回应了有…</a>
+</h2>
+<p>万达集团董事长王健林星期四在哈佛大学主讲“公开课”，回应了有关问题。但是，财新这篇报道王健林赞扬“治国严，治家更严”的文章几个小时后就从财新网上被撤下。<br><img src="http://ww2.sinaimg.cn/large/51c21d10gw1exk20kb1a4j20fa0bgjsr.jpg"></p>
+<p>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3903791545662499" target="freeweibo-mirror">SPAM 更新了，继续</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3903614554698592" target="freeweibo-mirror">//@老饕加鈾:[哈哈] //@深川胡骏: //@东郭文奴:…</a>
 </h2>
 <p>//@老饕加鈾:[哈哈] //@深川胡骏: //@东郭文奴://@王林的微博客: //@避言套: [哈哈]都是战略考量//@人淡如菊---1028: [偷笑]//@狂人春梦日记2015: //@榆木根V:[哈哈]一个维稳、另一个被维稳对象//@一只博://@王二叔书房:</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3903603246577519" target="freeweibo-mirror">#全面二胎#下面这些内容均来自网易微博网友亲述的计生政策背后…</a>
-</h2>
-<p>#全面二胎#下面这些内容均来自网易微博网友亲述的计生政策背后的故事。这些微博都非常有价值，可称得上是珍贵史料。http://t.cn/RUcVsHe<br><img src="http://ww2.sinaimg.cn/large/75521c95jw1exizp978ldj20jg6fdkjl.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
