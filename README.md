@@ -42,7 +42,7 @@
 </h2>
 <p>来一大哄[顶]<br><br>RE: #微博辟谣# 【看权威媒体如何造谣 以及造谣后的嘴脸】图1华商报道“货车翻村民捡柿子回家”；图2人民网转载“货车翻村民哄抢柿子”；图3网友辟谣；图4新浪陕西辟谣。问题是：人民网就TM看不见，不删除不说明不道歉，好像这事压根就不存在，什么嘴脸？@点子正 @千钧客 @花千芳 http://t.cn/R713o6u<br><img src="http://ww3.sinaimg.cn/large/6462b685gw1exkep8ym4fj20yi1pcqv5.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3904075906930612" target="freeweibo-mirror">说得好，看新闻自己长个脑子，现在的媒体已经彻底沦丧，缺乏正义…</a>
 </h2>
