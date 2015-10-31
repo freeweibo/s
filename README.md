@@ -72,7 +72,7 @@
 </h2>
 <p>【计生慘案】田明建，毕业于西安陆军学院，北京卫戍三师中尉。94年9月，怀孕7个月的妻子被强制堕胎致一尸两命。20日在枪杀四名团级干部后劫车直奔中南海，与6千军警在建国门激战，死数十人。田剩一颗子弹时自尽。其单手换弹夹绝技在美国特种部队仍被膜拜。如此惨案，计生政策未曾丝毫反省与纠错。<br><img src="http://ww3.sinaimg.cn/large/006fi3wPgw1exk0s9uojdj307w0afaaf.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3903791545662499" target="freeweibo-mirror">SPAM 更新了，继续</a>
 </h2>
