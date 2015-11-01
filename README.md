@@ -78,7 +78,7 @@
 </h2>
 <p>腾讯嘛，任其折腾，上蹿下跳⋯⋯最终</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3904262511323826" target="freeweibo-mirror">SPAM 腾讯不会糊涂到如此地步，也许网页是伪造的。</a>
 </h2>
