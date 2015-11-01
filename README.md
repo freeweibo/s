@@ -30,7 +30,7 @@
 </h2>
 <p>SPAM 腾讯不会糊涂到如此地步，也许网页是伪造的。<br><br>RE: 腾讯这是什么节奏？[怒]该查封了！[怒][话筒][话筒][话筒][话筒][话筒]<br><img src="http://ww1.sinaimg.cn/large/0065lrTljw1exl228mgv2j30c80bqq4g.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3904261153341015" target="freeweibo-mirror">我倒是张看看共产党会怎么处理//@A涧边幽草A://@千歧浪…</a>
 </h2>
