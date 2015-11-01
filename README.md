@@ -42,7 +42,7 @@
 </h2>
 <p>SPAM 这种做法很不地道！很不光磊落！十分龌龊！[弱]//@黄照旋:配图是p的。http://t.cn/RUV4hZc<br><br>RE: 中国新增20个罪名，强制穿戴极端主义服饰入罪！(腾讯小编配图好亮哦![阴险])<br><img src="http://ww4.sinaimg.cn/large/422323bfjw1exkurmfi2oj20ij0fq40s.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3904365645543849" target="freeweibo-mirror">SPAM //@Fischer-Dai:转转更健康</a>
 </h2>
