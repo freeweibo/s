@@ -108,7 +108,7 @@
 </h2>
 <p>SPAM //@小众菜园: “黄祸论”的更新版本。<br><br>RE: “中国式病毒＂，敌对势力的说辞，负能量<br><img src="http://ww4.sinaimg.cn/large/606528bfjw1exldepdlwpj20hs6bo7wh.jpg"></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3904349619383307" target="freeweibo-mirror">“中国式病毒＂，敌对势力的说辞，负能量</a>
 </h2>
