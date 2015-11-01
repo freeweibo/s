@@ -120,7 +120,7 @@
 </h2>
 <p>SPAM //@Fischer-Dai:转转更健康<br><br>RE: 音乐界也有点斗争<br><img src="http://ww2.sinaimg.cn/large/6d0b6b33gw1exlcxt5umfj20c871mki0.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3904363896663981" target="freeweibo-mirror">一个讼师说：最强大的国力不是枪炮利剑，而是自由的思想，只有自…</a>
 </h2>
