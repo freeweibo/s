@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3904515784686199" target="freeweibo-mirror">//@回红朝://@左手db: 转发微博</a>
+</h2>
+<p>//@回红朝://@左手db: 转发微博<br><br>RE: #战争迎来和平#战争是残酷的，打仗会死人的，但是，有些事只有通过战争才能解决，就像日本侵略中国，你不打行吗？当战火烧到家门口，你还保持冷静，那不是扯淡吗？当别人把你裤子脱掉强奸你，这時候你还冷静吗？如果你还有一点人格，都会反抗的。那些以经济建设为借口而惧怕战争的人，都是怕死鬼！<br><img src="http://ww3.sinaimg.cn/large/af362785jw1exl682xtf1j208u064q34.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3904467000587283" target="freeweibo-mirror">能说说你恐惧啥吗？</a>
 </h2>
 <p>能说说你恐惧啥吗？<br><br>RE: 中国几乎一夜之间新增20项罪名， 删除1项嫖宿幼女罪，却换来诸如拒不履行信息网络安全管理义务罪，非法利用信息网络罪，帮助信息网络犯罪活动罪，扰乱国家机关工作秩序罪，组织、资助非法聚集罪，编造、故意传播虚假信息罪，泄露不应公开的案件信息罪，披露、报道不应公开的案件信息罪等，令人恐怖。</p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3904349619383307" target="freeweibo-mirror">“中国式病毒＂，敌对势力的说辞，负能量</a>
 </h2>
 <p>“中国式病毒＂，敌对势力的说辞，负能量<br><img src="http://ww4.sinaimg.cn/large/606528bfjw1exldepdlwpj20hs6bo7wh.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3904345060343423" target="freeweibo-mirror">音乐界也有点斗争</a>
-</h2>
-<p>音乐界也有点斗争<br><img src="http://ww2.sinaimg.cn/large/6d0b6b33gw1exlcxt5umfj20c871mki0.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
