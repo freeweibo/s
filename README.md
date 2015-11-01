@@ -24,7 +24,7 @@
 </h2>
 <p>能说说你恐惧啥吗？<br><br>RE: 中国几乎一夜之间新增20项罪名， 删除1项嫖宿幼女罪，却换来诸如拒不履行信息网络安全管理义务罪，非法利用信息网络罪，帮助信息网络犯罪活动罪，扰乱国家机关工作秩序罪，组织、资助非法聚集罪，编造、故意传播虚假信息罪，泄露不应公开的案件信息罪，披露、报道不应公开的案件信息罪等，令人恐怖。</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3904459127994941" target="freeweibo-mirror">法治社会走向完善</a>
 </h2>
@@ -126,7 +126,7 @@
 </h2>
 <p>SPAM //@小众菜园: “黄祸论”的更新版本。<br><br>RE: “中国式病毒＂，敌对势力的说辞，负能量<br><img src="http://ww4.sinaimg.cn/large/606528bfjw1exldepdlwpj20hs6bo7wh.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3904349619383307" target="freeweibo-mirror">“中国式病毒＂，敌对势力的说辞，负能量</a>
 </h2>
