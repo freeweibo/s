@@ -48,7 +48,7 @@
 </h2>
 <p>SPAM //@小众菜园: “黄祸论”的更新版本。<br><br>RE: “中国式病毒＂，敌对势力的说辞，负能量<br><img src="http://ww4.sinaimg.cn/large/606528bfjw1exldepdlwpj20hs6bo7wh.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3904349619383307" target="freeweibo-mirror">“中国式病毒＂，敌对势力的说辞，负能量</a>
 </h2>
@@ -72,7 +72,7 @@
 </h2>
 <p>SPAM 腾讯不会糊涂到如此地步，也许网页是伪造的。<br><br>RE: 腾讯这是什么节奏？[怒]该查封了！[怒][话筒][话筒][话筒][话筒][话筒]<br><img src="http://ww1.sinaimg.cn/large/0065lrTljw1exl228mgv2j30c80bqq4g.jpg"></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3904261153341015" target="freeweibo-mirror">我倒是张看看共产党会怎么处理//@A涧边幽草A://@千歧浪…</a>
 </h2>
