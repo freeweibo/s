@@ -36,7 +36,7 @@
 </h2>
 <p>SPAM  //@急煞人也: 执行没有任何借口，周总管干得不错。[衰] //@DopeyTom:三个袖章代表三派？//@禅房听雪: ？//@无悔今生1995: 这是他人生的真实写照 //@文革老照片1966: 一下带了三个袖章，难得一见。<br><br>RE: 【那年那月】周恩来臂戴三箍，在北京工体力劝造反派实行革命大联合！这显然是为了表示一种公平，这和他当年给沈阳三大派定位相似：辽宁三大派都是革命派！<br><img src="http://ww2.sinaimg.cn/large/4ec730ffgw1exlmruoqz9j20cu0eojsu.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3904467000587283" target="freeweibo-mirror">能说说你恐惧啥吗？</a>
 </h2>
