@@ -86,6 +86,18 @@
 <p>
 	<small> ============== 8小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3904363896663981" target="freeweibo-mirror">一个讼师说：最强大的国力不是枪炮利剑，而是自由的思想，只有自…</a>
+</h2>
+<p>一个讼师说：最强大的国力不是枪炮利剑，而是自由的思想，只有自由的思想，才能涌现出无穷的创造力。<br><img src="http://ww1.sinaimg.cn/large/9154fba0gw1exlf3nx6hhj20go0m6go1.jpg"></p>
+<p>
+	<small> ============== 8小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3904362612556526" target="freeweibo-mirror">笑话一则】男人：老婆因强拆喝农药了。医生说：吐出来就行了。男…</a>
+</h2>
+<p>笑话一则】男人：老婆因强拆喝农药了。医生说：吐出来就行了。男：办法都用完了，不吐。医生靠近昏迷中的妇女的耳朵说：利为民所谋（女有点反应），情为民所系（女有点抽搐），立党为公（女发出恶心的声音），执政为民（女捂住嘴巴），以人为本（女翻了个身全部吐出来了）。男人感激万分：是党救的啊！</p>
+<p>
+	<small> ============== 8小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3904354060505505" target="freeweibo-mirror">SPAM //@小众菜园: “黄祸论”的更新版本。</a>
 </h2>
 <p>SPAM //@小众菜园: “黄祸论”的更新版本。<br><br>RE: “中国式病毒＂，敌对势力的说辞，负能量<br><img src="http://ww4.sinaimg.cn/large/606528bfjw1exldepdlwpj20hs6bo7wh.jpg"></p>
@@ -102,7 +114,7 @@
 </h2>
 <p>音乐界也有点斗争<br><img src="http://ww2.sinaimg.cn/large/6d0b6b33gw1exlcxt5umfj20c871mki0.jpg"></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3904340169294023" target="freeweibo-mirror">测试帖。看看还会不会有人说：难道不同意你的人就是五毛吗？</a>
 </h2>
@@ -125,18 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3904261153341015" target="freeweibo-mirror">我倒是张看看共产党会怎么处理//@A涧边幽草A://@千歧浪…</a>
 </h2>
 <p>我倒是张看看共产党会怎么处理//@A涧边幽草A://@千歧浪:汉奸梅体。//@华夏-执著://@老柚子先生://@一泓清泉e: //@陆锡鑫: 原本是明确指向极端宗教势力的，配了图倒把自己的极端思想全暴露了。<br><br>RE: 腾讯新闻的这条新闻配图注定要火一把！它的意思一是让孩子们穿上红军服装，接受革命历史和爱国主义教育属于犯罪。二是红军军装是恐怖主义、极端主义服饰，意图否定红军的历史功绩。其根本目的就是丑化共产党及其领导的人民军队，进而颠覆共和国。腾讯既然浮出水面公开叫嚣，那么看你如何走下去火起来！<br><img src="http://ww4.sinaimg.cn/large/a7902ee4jw1exkse248jxj20c80bqabf.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3904258015283921" target="freeweibo-mirror">[吃惊]//@笑岔气了:转发微博</a>
-</h2>
-<p>[吃惊]//@笑岔气了:转发微博<br><br>RE: 腾讯新闻的这条新闻配图注定要火一把！它的意思一是让孩子们穿上红军服装，接受革命历史和爱国主义教育属于犯罪。二是红军军装是恐怖主义、极端主义服饰，意图否定红军的历史功绩。其根本目的就是丑化共产党及其领导的人民军队，进而颠覆共和国。腾讯既然浮出水面公开叫嚣，那么看你如何走下去火起来！<br><img src="http://ww4.sinaimg.cn/large/a7902ee4jw1exkse248jxj20c80bqabf.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3904256861614169" target="freeweibo-mirror">汉奸梅体。//@华夏-执著://@老柚子先生://@一泓清泉…</a>
-</h2>
-<p>汉奸梅体。//@华夏-执著://@老柚子先生://@一泓清泉e: //@陆锡鑫: 原本是明确指向极端宗教势力的，配了图倒把自己的极端思想全暴露了。<br><br>RE: 腾讯新闻的这条新闻配图注定要火一把！它的意思一是让孩子们穿上红军服装，接受革命历史和爱国主义教育属于犯罪。二是红军军装是恐怖主义、极端主义服饰，意图否定红军的历史功绩。其根本目的就是丑化共产党及其领导的人民军队，进而颠覆共和国。腾讯既然浮出水面公开叫嚣，那么看你如何走下去火起来！<br><img src="http://ww4.sinaimg.cn/large/a7902ee4jw1exkse248jxj20c80bqabf.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
