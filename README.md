@@ -84,7 +84,7 @@
 </h2>
 <p>【那年那月】周恩来臂戴三箍，在北京工体力劝造反派实行革命大联合！这显然是为了表示一种公平，这和他当年给沈阳三大派定位相似：辽宁三大派都是革命派！<br><img src="http://ww2.sinaimg.cn/large/4ec730ffgw1exlmruoqz9j20cu0eojsu.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3904428127563113" target="freeweibo-mirror">//@运交华盖2013: //@广州湾在线://@纪昀:转发…</a>
 </h2>
