@@ -114,7 +114,7 @@
 </h2>
 <p>“中国式病毒＂，敌对势力的说辞，负能量<br><img src="http://ww4.sinaimg.cn/large/606528bfjw1exldepdlwpj20hs6bo7wh.jpg"></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3904345060343423" target="freeweibo-mirror">音乐界也有点斗争</a>
 </h2>
