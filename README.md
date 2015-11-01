@@ -24,7 +24,7 @@
 </h2>
 <p>SPAM //@袁莉wsj: //@安普若-外号安校长:回复@天下大冏:赞！//@天下大冏:我作为其中一员也参加过本地的五毛培训会，不过因为当时我推说家里电脑坏了还有工作太忙，从未发过五毛贴，算是对得起自己的良心！<br><br>RE: 测试帖。看看还会不会有人说：难道不同意你的人就是五毛吗？<br><img src="http://ww3.sinaimg.cn/large/51c21d10gw1exlccdrjtzj20hw0bwgmw.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3904381063813117" target="freeweibo-mirror">SPAM 以羞辱广告的方式打广告，还是蛮值得点赞滴 黑的姿势…</a>
 </h2>
@@ -36,7 +36,7 @@
 </h2>
 <p>SPAM →_→投一票//@LifeTime: 投你一票。→_→//@红海一粟易水寒：如果我坐当包子的位置，首先说话得小心，不是什么话都能讲的，第一否定文革，第二设立政治特区走体制改革的道路，第三重视教育，第四重视人权，给国际社会一个明确的信号，像他这样胡搞，早晚完蛋，坐等2023年<br><br>RE: 包治下，中国债务占GDP的比例直线上升。<br><img src="http://ww2.sinaimg.cn/large/dd816182gw1exkqvwwc59j20sg0e8q4k.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3904370858908253" target="freeweibo-mirror">SPAM 这种做法很不地道！很不光磊落！十分龌龊！[弱]//…</a>
 </h2>
