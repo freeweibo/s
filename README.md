@@ -66,7 +66,7 @@
 </h2>
 <p>音乐界也有点斗争<br><img src="http://ww2.sinaimg.cn/large/6d0b6b33gw1exlcxt5umfj20c871mki0.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3904340169294023" target="freeweibo-mirror">测试帖。看看还会不会有人说：难道不同意你的人就是五毛吗？</a>
 </h2>
