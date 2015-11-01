@@ -24,7 +24,7 @@
 </h2>
 <p>//@回红朝://@左手db: 转发微博<br><br>RE: #战争迎来和平#战争是残酷的，打仗会死人的，但是，有些事只有通过战争才能解决，就像日本侵略中国，你不打行吗？当战火烧到家门口，你还保持冷静，那不是扯淡吗？当别人把你裤子脱掉强奸你，这時候你还冷静吗？如果你还有一点人格，都会反抗的。那些以经济建设为借口而惧怕战争的人，都是怕死鬼！<br><img src="http://ww3.sinaimg.cn/large/af362785jw1exl682xtf1j208u064q34.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3904499997750757" target="freeweibo-mirror">→_→ //@姬红:腾讯无法无天了！//@游侠Xiaopen…</a>
 </h2>
@@ -108,7 +108,7 @@
 </h2>
 <p>SPAM →_→投一票//@LifeTime: 投你一票。→_→//@红海一粟易水寒：如果我坐当包子的位置，首先说话得小心，不是什么话都能讲的，第一否定文革，第二设立政治特区走体制改革的道路，第三重视教育，第四重视人权，给国际社会一个明确的信号，像他这样胡搞，早晚完蛋，坐等2023年<br><br>RE: 包治下，中国债务占GDP的比例直线上升。<br><img src="http://ww2.sinaimg.cn/large/dd816182gw1exkqvwwc59j20sg0e8q4k.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3904370858908253" target="freeweibo-mirror">SPAM 这种做法很不地道！很不光磊落！十分龌龊！[弱]//…</a>
 </h2>
