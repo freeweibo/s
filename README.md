@@ -24,11 +24,17 @@
 </h2>
 <p>SPAM →_→投一票//@LifeTime: 投你一票。→_→//@红海一粟易水寒：如果我坐当包子的位置，首先说话得小心，不是什么话都能讲的，第一否定文革，第二设立政治特区走体制改革的道路，第三重视教育，第四重视人权，给国际社会一个明确的信号，像他这样胡搞，早晚完蛋，坐等2023年<br><br>RE: 包治下，中国债务占GDP的比例直线上升。<br><img src="http://ww2.sinaimg.cn/large/dd816182gw1exkqvwwc59j20sg0e8q4k.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3904370858908253" target="freeweibo-mirror">SPAM 这种做法很不地道！很不光磊落！十分龌龊！[弱]//…</a>
 </h2>
 <p>SPAM 这种做法很不地道！很不光磊落！十分龌龊！[弱]//@黄照旋:配图是p的。http://t.cn/RUV4hZc<br><br>RE: 中国新增20个罪名，强制穿戴极端主义服饰入罪！(腾讯小编配图好亮哦![阴险])<br><img src="http://ww4.sinaimg.cn/large/422323bfjw1exkurmfi2oj20ij0fq40s.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3904365645543849" target="freeweibo-mirror">SPAM //@Fischer-Dai:转转更健康</a>
+</h2>
+<p>SPAM //@Fischer-Dai:转转更健康<br><br>RE: 音乐界也有点斗争<br><img src="http://ww2.sinaimg.cn/large/6d0b6b33gw1exlcxt5umfj20c871mki0.jpg"></p>
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
@@ -66,7 +72,7 @@
 </h2>
 <p>//@红岛渔民:腾讯说的对，支持！<br><br>RE: 腾讯新闻的这条新闻配图注定要火一把！它的意思一是让孩子们穿上红军服装，接受革命历史和爱国主义教育属于犯罪。二是红军军装是恐怖主义、极端主义服饰，意图否定红军的历史功绩。其根本目的就是丑化共产党及其领导的人民军队，进而颠覆共和国。腾讯既然浮出水面公开叫嚣，那么看你如何走下去火起来！<br><img src="http://ww4.sinaimg.cn/large/a7902ee4jw1exkse248jxj20c80bqabf.jpg"></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3904250117261238" target="freeweibo-mirror">//@南街村de人://@小朋友家族族长: 社会主义中国的法…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3904088011497669" target="freeweibo-mirror">来一大哄[顶]</a>
 </h2>
 <p>来一大哄[顶]<br><br>RE: #微博辟谣# 【看权威媒体如何造谣 以及造谣后的嘴脸】图1华商报道“货车翻村民捡柿子回家”；图2人民网转载“货车翻村民哄抢柿子”；图3网友辟谣；图4新浪陕西辟谣。问题是：人民网就TM看不见，不删除不说明不道歉，好像这事压根就不存在，什么嘴脸？@点子正 @千钧客 @花千芳 http://t.cn/R713o6u<br><img src="http://ww3.sinaimg.cn/large/6462b685gw1exkep8ym4fj20yi1pcqv5.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3904075906930612" target="freeweibo-mirror">说得好，看新闻自己长个脑子，现在的媒体已经彻底沦丧，缺乏正义…</a>
-</h2>
-<p>说得好，看新闻自己长个脑子，现在的媒体已经彻底沦丧，缺乏正义和良知，满脑子炒//@乐在风语中：现在的媒体呵呵哒，以后看新闻大家长点心，别被媒体利用了！<br><br>RE: #微博辟谣# 【看权威媒体如何造谣 以及造谣后的嘴脸】图1华商报道“货车翻村民捡柿子回家”；图2人民网转载“货车翻村民哄抢柿子”；图3网友辟谣；图4新浪陕西辟谣。问题是：人民网就TM看不见，不删除不说明不道歉，好像这事压根就不存在，什么嘴脸？@点子正 @千钧客 @花千芳 http://t.cn/R713o6u<br><img src="http://ww3.sinaimg.cn/large/6462b685gw1exkep8ym4fj20yi1pcqv5.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
