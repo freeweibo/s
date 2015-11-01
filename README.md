@@ -90,7 +90,7 @@
 </h2>
 <p>SPAM 去年拍的，生日快乐<br><img src="http://ww2.sinaimg.cn/large/69aa9008gw1exkrr9ebllj21jk1jkn7e.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3904149420451437" target="freeweibo-mirror">//@天圆地方3511E:[哈哈] //@又来金好多://@…</a>
 </h2>
