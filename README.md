@@ -48,7 +48,7 @@
 </h2>
 <p>汉奸梅体。//@华夏-执著://@老柚子先生://@一泓清泉e: //@陆锡鑫: 原本是明确指向极端宗教势力的，配了图倒把自己的极端思想全暴露了。<br><br>RE: 腾讯新闻的这条新闻配图注定要火一把！它的意思一是让孩子们穿上红军服装，接受革命历史和爱国主义教育属于犯罪。二是红军军装是恐怖主义、极端主义服饰，意图否定红军的历史功绩。其根本目的就是丑化共产党及其领导的人民军队，进而颠覆共和国。腾讯既然浮出水面公开叫嚣，那么看你如何走下去火起来！<br><img src="http://ww4.sinaimg.cn/large/a7902ee4jw1exkse248jxj20c80bqabf.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3904251480388093" target="freeweibo-mirror">//@红岛渔民:腾讯说的对，支持！</a>
 </h2>
@@ -72,7 +72,7 @@
 </h2>
 <p>SPAM [色][色][色][色][色][色]<br><br>RE: #女主播时间#这酸爽，够高潮！http://t.cn/RUcI8LP</p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3904173089070782" target="freeweibo-mirror">#女主播时间#这酸爽，够高潮！http://t.cn/RUc…</a>
 </h2>
@@ -84,7 +84,7 @@
 </h2>
 <p>腾讯新闻的这条新闻配图注定要火一把！它的意思一是让孩子们穿上红军服装，接受革命历史和爱国主义教育属于犯罪。二是红军军装是恐怖主义、极端主义服饰，意图否定红军的历史功绩。其根本目的就是丑化共产党及其领导的人民军队，进而颠覆共和国。腾讯既然浮出水面公开叫嚣，那么看你如何走下去火起来！<br><img src="http://ww4.sinaimg.cn/large/a7902ee4jw1exkse248jxj20c80bqabf.jpg"></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3904160552527289" target="freeweibo-mirror">SPAM 去年拍的，生日快乐</a>
 </h2>
