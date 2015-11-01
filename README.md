@@ -30,7 +30,7 @@
 </h2>
 <p>SPAM 以羞辱广告的方式打广告，还是蛮值得点赞滴 黑的姿势比较独特 →_→ //@-Asiky-:图中「正常的社交应用」叫念，已入驻两个月，感觉良好<br><br>RE: 微博一路走好。[拜拜]<br><img src="http://ww4.sinaimg.cn/large/6240504fgw1exkeca6mdqj20rs61qb29.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3904372621070391" target="freeweibo-mirror">SPAM →_→投一票//@LifeTime: 投你一票。→…</a>
 </h2>
@@ -48,7 +48,7 @@
 </h2>
 <p>SPAM //@Fischer-Dai:转转更健康<br><br>RE: 音乐界也有点斗争<br><img src="http://ww2.sinaimg.cn/large/6d0b6b33gw1exlcxt5umfj20c871mki0.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3904354060505505" target="freeweibo-mirror">SPAM //@小众菜园: “黄祸论”的更新版本。</a>
 </h2>
