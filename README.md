@@ -66,7 +66,7 @@
 </h2>
 <p>音乐界也有点斗争<br><img src="http://ww2.sinaimg.cn/large/6d0b6b33gw1exlcxt5umfj20c871mki0.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3904265162130291" target="freeweibo-mirror">腾讯嘛，任其折腾，上蹿下跳⋯⋯最终</a>
 </h2>
