@@ -54,7 +54,7 @@
 </h2>
 <p>SPAM 技术流//@熊分裂-S:[酷]<br><br>RE: 标准的女上位清晰动图，可以当教学动图用。神功练成之日，就是男人精尽人亡之时？<br><img src="http://ww4.sinaimg.cn/large/0060voyfgw1exmvi9hazwg30dw0ay4qp.gif"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3904851803314936" target="freeweibo-mirror">@白云天师的头像:贪官要嫖,财主要拐,法贼要钱!于是嫖要无罪…</a>
 </h2>
@@ -96,7 +96,7 @@
 </h2>
 <p>连王健林都成敏感信息了，看来传言都是真的…<br><img src="http://ww4.sinaimg.cn/large/6df1f75cgw1exmnx5e8pij20ku112wfa.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3904742038433000" target="freeweibo-mirror">《洞灵小志》一书号称民国聊斋，是近代白话小说史上最后的志怪，…</a>
 </h2>
