@@ -66,7 +66,7 @@
 </h2>
 <p>标准的女上位清晰动图，可以当教学动图用。神功练成之日，就是男人精尽人亡之时？<br><img src="http://ww4.sinaimg.cn/large/0060voyfgw1exmvi9hazwg30dw0ay4qp.gif"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3904814104824558" target="freeweibo-mirror">SPAM 之前发布的话题是“你买过哪些坑爹货________…</a>
 </h2>
