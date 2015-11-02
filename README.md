@@ -42,13 +42,13 @@
 </h2>
 <p>@安妮莲心3: //刺杀私改贼!捍卫全民医权和产权！@烧伤超人阿宝:中国的医改看似杂乱无章,其实脉络很清晰:不惜代价的搞垮公立医院!不惜代价的扶持莆田系为代表的私立医院!所有的改革方案几乎都是特意为莆田系起草的!一闷棍接一闷棍!棍棍打在公立医院的致命处!<br><br>RE: 全国人大罪恶地取消组织卖淫罪的死刑！导致10名少女遭强暴在青海卖淫！最小12岁写接客笔记！社会主义国家人大能这样立法吗？张德江委员长及人大中的私改贼，应给国人一个回复！ http://t.cn/RUIIEgu<br><img src="http://ww4.sinaimg.cn/large/5487a01cjw1exlrs2jc73j20fa0jdwf3.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3904855468421252" target="freeweibo-mirror">@红色-8341: //凤凰网:中日两国恢复东海油气田会谈!…</a>
 </h2>
 <p>@红色-8341: //凤凰网:中日两国恢复东海油气田会谈!---如果真要这样,中方外交官严重违反了日本领土只限于四大岛的玻茨坦公告和中日联合声明!谁都无权把中日边界划定在冲绳海沟!如果中日举行领土会谈,就必须谈:执行二战法律!琉球回归!琉人治人!高度自治! http://t.cn/RUxxozF<br><br>RE: 全国人大罪恶地取消组织卖淫罪的死刑！导致10名少女遭强暴在青海卖淫！最小12岁写接客笔记！社会主义国家人大能这样立法吗？张德江委员长及人大中的私改贼，应给国人一个回复！ http://t.cn/RUIIEgu<br><img src="http://ww4.sinaimg.cn/large/5487a01cjw1exlrs2jc73j20fa0jdwf3.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3904852587700390" target="freeweibo-mirror">SPAM 技术流//@熊分裂-S:[酷]</a>
 </h2>
@@ -102,7 +102,7 @@
 </h2>
 <p>《洞灵小志》一书号称民国聊斋，是近代白话小说史上最后的志怪，读起来就像在书场里听老先生讲京城鬼宅一样好玩。这部书只在民国时期刊行过，2010年重新排版发行，印量不大，但中国图书网居然有存货（重点来了）——3折！http://t.cn/RUMgwmV 喜欢的赶紧下手。@中国图书网官方微博<br><img src="http://ww1.sinaimg.cn/large/4d18d1b1jw1exmmh0lnt9j20go0o2jvb.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3904701336600638" target="freeweibo-mirror">【明星 画报】 11月2日韩国服装品牌 #unionbay#…</a>
 </h2>
