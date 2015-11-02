@@ -24,7 +24,7 @@
 </h2>
 <p>《洞灵小志》一书号称民国聊斋，是近代白话小说史上最后的志怪，读起来就像在书场里听老先生讲京城鬼宅一样好玩。这部书只在民国时期刊行过，2010年重新排版发行，印量不大，但中国图书网居然有存货（重点来了）——3折！http://t.cn/RUMgwmV 喜欢的赶紧下手。@中国图书网官方微博<br><img src="http://ww1.sinaimg.cn/large/4d18d1b1jw1exmmh0lnt9j20go0o2jvb.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3904701336600638" target="freeweibo-mirror">【明星 画报】 11月2日韩国服装品牌 #unionbay#…</a>
 </h2>
