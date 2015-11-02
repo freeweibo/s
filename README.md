@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3904856736093393" target="freeweibo-mirror">@美丽心灵vv:@白云天师的头像:贪官要嫖,财主要拐,法贼要…</a>
+</h2>
+<p>@美丽心灵vv:@白云天师的头像:贪官要嫖,财主要拐,法贼要钱!于是嫖要无罪!拐就不死![哈哈]!回复@diyxzt:看看人大政协那帮或生物上或饲料上60%左右都是中外结合体的人,能立出什么为屁民的法来?它们立的都是为保护它们自己的!<br><br>RE: 全国人大罪恶地取消组织卖淫罪的死刑！导致10名少女遭强暴在青海卖淫！最小12岁写接客笔记！社会主义国家人大能这样立法吗？张德江委员长及人大中的私改贼，应给国人一个回复！ http://t.cn/RUIIEgu<br><img src="http://ww4.sinaimg.cn/large/5487a01cjw1exlrs2jc73j20fa0jdwf3.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3904814104824558" target="freeweibo-mirror">SPAM 之前发布的话题是“你买过哪些坑爹货________…</a>
 </h2>
 <p>SPAM 之前发布的话题是“你买过哪些坑爹货___________”想问大家是被坑的多惨，记忆这么刻骨铭心，一片乌云夹着笑点duang的一下过来了，看的我哈哈哈哈哈哈哈大笑停不下来！！！#11月只有11天#要想不被坑，享受品质网购，还得看这里，真快好赞，买买买！ http://t.cn/RUcOe4V<br><img src="http://ww1.sinaimg.cn/large/6628711bgw1exmut4ogvej20c80p0wgn.jpg"></p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3904428127563113" target="freeweibo-mirror">//@运交华盖2013: //@广州湾在线://@纪昀:转发…</a>
 </h2>
 <p>//@运交华盖2013: //@广州湾在线://@纪昀:转发微博<br><br>RE: 一个讼师说：最强大的国力不是枪炮利剑，而是自由的思想，只有自由的思想，才能涌现出无穷的创造力。<br><img src="http://ww1.sinaimg.cn/large/9154fba0gw1exlf3nx6hhj20go0m6go1.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3904427624511755" target="freeweibo-mirror">毕节市八寨小学体育教师猥亵学前班幼女。10月29日该校五年级…</a>
-</h2>
-<p>毕节市八寨小学体育教师猥亵学前班幼女。10月29日该校五年级某班学生因遭体罚而道出五年前旧事：该班至少有两名女生在学前班时曾遭此教师猥亵。此獠因怕事情曝光对该班学生进行威胁，造成巨大恐慌。当天下午该教师被警察传唤但未拘捕，也没有人向学生调查取证。 日前曝光此事的当地资讯微博已被封号。</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
