@@ -24,7 +24,7 @@
 </h2>
 <p>SPAM 不要再作朝廷鹰犬了，走出那扇door，深呼吸</p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3904856736093393" target="freeweibo-mirror">@美丽心灵vv:@白云天师的头像:贪官要嫖,财主要拐,法贼要…</a>
 </h2>
