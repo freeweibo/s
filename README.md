@@ -30,7 +30,7 @@
 </h2>
 <p>SPAM 亲@天猫 ，你在哪？@京东 满世界找你呐......<br><img src="http://ww1.sinaimg.cn/large/5e0b3d25gw1exnrzunrgcj20sq0j4gqx.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3905070523315160" target="freeweibo-mirror">SPAM 数据显示，这可能是年度最强歌单。。。[doge]/…</a>
 </h2>
