@@ -48,7 +48,7 @@
 </h2>
 <p>真回文革，中国人会比叙利亚人还惨。叙利亚人少，欧洲还可以讨论如何接收，中国人只能占领西伯利亚了。<br><img src="http://ww3.sinaimg.cn/large/59405d86jw1exnrb9zatcj20k00damyz.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3905070523315160" target="freeweibo-mirror">SPAM 数据显示，这可能是年度最强歌单。。。[doge]/…</a>
 </h2>
