@@ -66,7 +66,7 @@
 </h2>
 <p>[喵喵] //@机智的兵长:[喵喵]<br><br>RE: 「心污，则世界污。」看完后你觉得自己污吗？[doge]#啪啪夜话#<br><img src="http://ww2.sinaimg.cn/large/672c0d86jw1exnuwvsh8hj20fs0gn3zv.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3905199602993475" target="freeweibo-mirror">「心污，则世界污。」看完后你觉得自己污吗？[doge]#啪啪…</a>
 </h2>
