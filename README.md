@@ -78,7 +78,7 @@
 </h2>
 <p>SPAM 11月19日去看#我的少女时代#！你们到时别光顾着舔屏，人家口碑辣么好，一定有很多理由不能错过！</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3905193856895563" target="freeweibo-mirror">SPAM 11月19日上映的#我的少女时代#绝对靠谱好看青春…</a>
 </h2>
@@ -120,7 +120,7 @@
 </h2>
 <p>真回文革，中国人会比叙利亚人还惨。叙利亚人少，欧洲还可以讨论如何接收，中国人只能占领西伯利亚了。<br><img src="http://ww3.sinaimg.cn/large/59405d86jw1exnrb9zatcj20k00damyz.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3905070523315160" target="freeweibo-mirror">SPAM 数据显示，这可能是年度最强歌单。。。[doge]/…</a>
 </h2>
