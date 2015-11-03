@@ -62,6 +62,12 @@
 <p>
 	<small> ============== 1天前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3904854050868252" target="freeweibo-mirror">【被删重发】秋白写给教育部的公开信</a>
+</h2>
+<p>【被删重发】秋白写给教育部的公开信<br><img src="http://ww1.sinaimg.cn/large/50de1733gw1exmzdhinh3j20ku1120ye.jpg"></p>
+<p>
+	<small> ============== 1天前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3904852587700390" target="freeweibo-mirror">SPAM 技术流//@熊分裂-S:[酷]</a>
 </h2>
 <p>SPAM 技术流//@熊分裂-S:[酷]<br><br>RE: 标准的女上位清晰动图，可以当教学动图用。神功练成之日，就是男人精尽人亡之时？<br><img src="http://ww4.sinaimg.cn/large/0060voyfgw1exmvi9hazwg30dw0ay4qp.gif"></p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3904499997750757" target="freeweibo-mirror">→_→ //@姬红:腾讯无法无天了！//@游侠Xiaopen…</a>
 </h2>
 <p>→_→ //@姬红:腾讯无法无天了！//@游侠Xiaopeng: 怪不得腾讯一直不敢出来辟谣和说明真相，并且通过水军造谣说原图被PS，向质疑的网友泼污水！//@羊羽子的美好生活: 腾讯的原配图就是这些小红军，后来才改的，我开始就看到了。</p>
-<p>
-	<small> ============== 2天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3904497648472513" target="freeweibo-mirror">SPAM  //@急煞人也: 执行没有任何借口，周总管干得不…</a>
-</h2>
-<p>SPAM  //@急煞人也: 执行没有任何借口，周总管干得不错。[衰] //@DopeyTom:三个袖章代表三派？//@禅房听雪: ？//@无悔今生1995: 这是他人生的真实写照 //@文革老照片1966: 一下带了三个袖章，难得一见。<br><br>RE: 【那年那月】周恩来臂戴三箍，在北京工体力劝造反派实行革命大联合！这显然是为了表示一种公平，这和他当年给沈阳三大派定位相似：辽宁三大派都是革命派！<br><img src="http://ww2.sinaimg.cn/large/4ec730ffgw1exlmruoqz9j20cu0eojsu.jpg"></p>
 <p>
 	<small> ============== 2天前</small>
 </p>
