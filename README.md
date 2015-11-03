@@ -24,11 +24,17 @@
 </h2>
 <p>SPAM 突然就冒出了第三季，先马了//@使徒子: 居然出第三季了…… //@林熊猫: 感人至深。 //@子墨_布拉德皮蛋:好感人的清朝爱情故事[doge]</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3905107282252202" target="freeweibo-mirror">SPAM 亲@天猫 ，你在哪？@京东 满世界找你呐.....…</a>
 </h2>
 <p>SPAM 亲@天猫 ，你在哪？@京东 满世界找你呐......<br><img src="http://ww1.sinaimg.cn/large/5e0b3d25gw1exnrzunrgcj20sq0j4gqx.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3905107105962567" target="freeweibo-mirror">SPAM 继28日采用 #周氏股市心理学# 之“宽幅震荡..…</a>
+</h2>
+<p>SPAM 继28日采用 #周氏股市心理学# 之“宽幅震荡......”后，昨日中午给订阅的朋友再次发了私信，提防MACD死叉.......几个交易日下来，大盘温柔的割了100多点了<br><img src="http://ww4.sinaimg.cn/large/5ef5c0aejw1exnsftiibij20g005z0t7.jpg"></p>
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3904770215161799" target="freeweibo-mirror">消协组织有权约谈夸大宣传企业！//@余杭区消保委315: 1…</a>
 </h2>
 <p>消协组织有权约谈夸大宣传企业！//@余杭区消保委315: 11月1日起，这些新规正式实施！[话筒]</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3904754335808362" target="freeweibo-mirror">连王健林都成敏感信息了，看来传言都是真的…</a>
-</h2>
-<p>连王健林都成敏感信息了，看来传言都是真的…<br><img src="http://ww4.sinaimg.cn/large/6df1f75cgw1exmnx5e8pij20ku112wfa.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
