@@ -66,7 +66,13 @@
 </h2>
 <p>SPAM 11月19日上映的#我的少女时代#绝对靠谱好看青春片、那些一起丑过的日子、超真实的青春回忆、带感的主题曲*￥%最重要的是还有个让你春心萌动的男主角？广大少女们，你们又有新男人可以睡了！好看的电影要一直推荐，不止三遍！<br><img src="http://ww2.sinaimg.cn/large/b8b73ba1gw1exo2anchelj20dw0i8n04.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3905138194506835" target="freeweibo-mirror">【美军太平洋司令在北大致辞：美将继续在南海行动 不要感到惊讶…</a>
+</h2>
+<p>【美军太平洋司令在北大致辞：美将继续在南海行动 不要感到惊讶】正在访问中国的美国太平洋司令部司令哈里斯在北京大学斯坦福中心发表致辞，称美国在南海地区会在国际法所允许的“一切地方”采取行动。他还表示，中方基于“九段线”等对南海提出主权主张的行为是“站不住脚”的。http://t.cn/RUJlVBU<br><img src="http://ww2.sinaimg.cn/large/61e04755jw1exnw1a4j36j20b40godgt.jpg"></p>
+<p>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3905131022338735" target="freeweibo-mirror">//@广州湾在线://@何葆国://@李晁: //@袁裕来律…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3904856736093393" target="freeweibo-mirror">@美丽心灵vv:@白云天师的头像:贪官要嫖,财主要拐,法贼要…</a>
 </h2>
 <p>@美丽心灵vv:@白云天师的头像:贪官要嫖,财主要拐,法贼要钱!于是嫖要无罪!拐就不死![哈哈]!回复@diyxzt:看看人大政协那帮或生物上或饲料上60%左右都是中外结合体的人,能立出什么为屁民的法来?它们立的都是为保护它们自己的!<br><br>RE: 全国人大罪恶地取消组织卖淫罪的死刑！导致10名少女遭强暴在青海卖淫！最小12岁写接客笔记！社会主义国家人大能这样立法吗？张德江委员长及人大中的私改贼，应给国人一个回复！ http://t.cn/RUIIEgu<br><img src="http://ww4.sinaimg.cn/large/5487a01cjw1exlrs2jc73j20fa0jdwf3.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3904856630582623" target="freeweibo-mirror">@文刀看今朝:@白云天师的头像:贪官要嫖,财主要拐,法贼要钱…</a>
-</h2>
-<p>@文刀看今朝:@白云天师的头像:贪官要嫖,财主要拐,法贼要钱!于是嫖要无罪!拐就不死![哈哈]!回复@diyxzt:看看人大政协那帮或生物上或饲料上60%左右都是中外结合体的人,能立出什么为屁民的法来?它们立的都是为保护它们自己的!<br><br>RE: 全国人大罪恶地取消组织卖淫罪的死刑！导致10名少女遭强暴在青海卖淫！最小12岁写接客笔记！社会主义国家人大能这样立法吗？张德江委员长及人大中的私改贼，应给国人一个回复！ http://t.cn/RUIIEgu<br><img src="http://ww4.sinaimg.cn/large/5487a01cjw1exlrs2jc73j20fa0jdwf3.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
