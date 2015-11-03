@@ -90,7 +90,7 @@
 </h2>
 <p>【美军太平洋司令在北大致辞：美将继续在南海行动 不要感到惊讶】正在访问中国的美国太平洋司令部司令哈里斯在北京大学斯坦福中心发表致辞，称美国在南海地区会在国际法所允许的“一切地方”采取行动。他还表示，中方基于“九段线”等对南海提出主权主张的行为是“站不住脚”的。http://t.cn/RUJlVBU<br><img src="http://ww2.sinaimg.cn/large/61e04755jw1exnw1a4j36j20b40godgt.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3905131022338735" target="freeweibo-mirror">//@广州湾在线://@何葆国://@李晁: //@袁裕来律…</a>
 </h2>
