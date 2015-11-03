@@ -24,7 +24,7 @@
 </h2>
 <p>宅基地制度改革的基本思路是：在保障农户依法取得的宅基地用益物权基础上，改革完善农村宅基地制度，探索农民住房保障新机制，对农民住房财产权作出明确界定，探索宅基地有偿使用制度和自愿有偿退出机制，----这制度不算好， http://t.cn/RUJv8sL<br><img src="http://ww2.sinaimg.cn/large/4972ec39jw1exniutfq9lj20m80c4gp6.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3904869679110588" target="freeweibo-mirror">SPAM 不要再作朝廷鹰犬了，走出那扇door，深呼吸</a>
 </h2>
