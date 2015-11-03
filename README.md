@@ -96,7 +96,7 @@
 </h2>
 <p>//@广州湾在线://@何葆国://@李晁: //@袁裕来律师: 人类社会之惨烈莫过于文革。//@何兵:前天和人讨论同样问题。<br><br>RE: 真回文革，中国人会比叙利亚人还惨。叙利亚人少，欧洲还可以讨论如何接收，中国人只能占领西伯利亚了。<br><img src="http://ww3.sinaimg.cn/large/59405d86jw1exnrb9zatcj20k00damyz.jpg"></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3905111120654862" target="freeweibo-mirror">SPAM 突然就冒出了第三季，先马了//@使徒子: 居然出第…</a>
 </h2>
