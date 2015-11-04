@@ -90,13 +90,13 @@
 </h2>
 <p>果不其然，习马会还未登场，台湾便各种高潮。。。。不失其一贯尿性呀。。。<br><img src="http://ww2.sinaimg.cn/large/affeb77bgw1exozanuccdj20fh0qowfl.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3905479585133295" target="freeweibo-mirror">SPAM 哈哈 //@图宾根木匠:翻了正房的牌子，小三急眼了…</a>
 </h2>
 <p>SPAM 哈哈 //@图宾根木匠:翻了正房的牌子，小三急眼了。<br><br>RE: #习马会# 【针对习马会 民进党发“五项声明、七大质疑”】民进党发言人郑运鹏发表一份七大质疑的五项声明：“会面的性质是什么？”“目的是什么？”“为何非得如此急迫，要在这个时间点？”“与中方洽谈的过程为何？”“会谈的形式与安排是什么？”“马将要说些什么、做些什么？”http://t.cn/RUiQETU<br><img src="http://ww4.sinaimg.cn/large/6298156bgw1exoqfk6h41j208c0bq74u.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3905471331361583" target="freeweibo-mirror">中国领导人空缺，大陆领导人和台湾领导人对等？美国表示认可。</a>
 </h2>
@@ -108,13 +108,13 @@
 </h2>
 <p>【高级黑：活不见人，死不见尸】广州市公民张六毛，2015年8月15日因“寻衅滋事”被羁押于广州市天河区看守所，其间律师会见而不能。11月4日，亲属突然接到看守所电话，称张六毛已去世火化，让去领骨灰。详情真如第二图所说吗？<br><img src="http://ww4.sinaimg.cn/large/d4050bc4jw1exoxjys2z7j20hs0nqgmu.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3905464129994563" target="freeweibo-mirror">你这是反讽吗？[偷笑]</a>
 </h2>
 <p>你这是反讽吗？[偷笑]</p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3905442176532505" target="freeweibo-mirror">回复@徐德军律师:欢迎宋祖英自己来挑战，[哈哈]//@徐德军…</a>
 </h2>
