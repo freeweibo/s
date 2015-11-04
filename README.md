@@ -44,6 +44,12 @@
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3905508266080599" target="freeweibo-mirror">#习马会# 截图1来自BBC，其报道置“台”于“中”前，领导…</a>
+</h2>
+<p>#习马会# 截图1来自BBC，其报道置“台”于“中”前，领导人照片选取上抑“中”扬“台”，报道方式源自意识形态上的对立，国人早习惯了。只是该国前脚刚盛情接待访问，后脚便冷面獠牙，一热一冷叫人不适。截图3来自CNN，照片所示场面应已料到，让盼望统一之人心寒，更可怕的是示威者无白发而皆青壮。<br><img src="http://ww4.sinaimg.cn/large/895fc831jw1exp21t05slj20hs0vkgp6.jpg"></p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3905498325315497" target="freeweibo-mirror">SPAM 书单列得这么快，奋起直追也追不上了。 //@郑维:…</a>
 </h2>
 <p>SPAM 书单列得这么快，奋起直追也追不上了。 //@郑维:回覆@灰羽裂:妄议中央，该当何罪…… //@灰羽裂:《澎湖湾》分几种唱法？[嘻嘻][嘻嘻][嘻嘻]<br><br>RE: #狮城书单#<br><img src="http://ww1.sinaimg.cn/large/6d0b6b33gw1exoqain39kj20g407tq43.jpg"></p>
@@ -55,6 +61,12 @@
 <p>SPAM #不洗头毁所有#当你已经二十岁了，你应该学会做一个爱惜自己的人，学会保养，保养你的脸，你的牙齿，你的皮肤，你的头发，而不是等眼角爬出了皱纹，才在照片里发现自己是一个没有过青春的人。http://t.cn/RU6wTwX</p>
 <p>
 	<small> ============== 5小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3905480046921260" target="freeweibo-mirror">果不其然，习马会还未登场，台湾便各种高潮。。。。不失其一贯尿…</a>
+</h2>
+<p>果不其然，习马会还未登场，台湾便各种高潮。。。。不失其一贯尿性呀。。。<br><img src="http://ww2.sinaimg.cn/large/affeb77bgw1exozanuccdj20fh0qowfl.jpg"></p>
+<p>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3905479585133295" target="freeweibo-mirror">SPAM 哈哈 //@图宾根木匠:翻了正房的牌子，小三急眼了…</a>
 </h2>
@@ -126,19 +138,7 @@
 </h2>
 <p>#狮城书单#<br><img src="http://ww1.sinaimg.cn/large/6d0b6b33gw1exoqain39kj20g407tq43.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3905246197339153" target="freeweibo-mirror">毛那时砸锅炼钢铁，小木船，去不了那么远的岛礁，更没本事造人工…</a>
-</h2>
-<p>毛那时砸锅炼钢铁，小木船，去不了那么远的岛礁，更没本事造人工岛。//@鹰飞鱼潜V:如果是面对毛主席，这孙子们还敢这样嚣张吗..... //@新宾老狼:转发微博<br><br>RE: 【美军太平洋司令在北大致辞：美将继续在南海行动 不要感到惊讶】正在访问中国的美国太平洋司令部司令哈里斯在北京大学斯坦福中心发表致辞，称美国在南海地区会在国际法所允许的“一切地方”采取行动。他还表示，中方基于“九段线”等对南海提出主权主张的行为是“站不住脚”的。http://t.cn/RUJlVBU<br><img src="http://ww2.sinaimg.cn/large/61e04755jw1exnw1a4j36j20b40godgt.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3905241264958660" target="freeweibo-mirror">这个日本傻逼！中国人忘不了你！</a>
-</h2>
-<p>这个日本傻逼！中国人忘不了你！<br><br>RE: 【美军太平洋司令在北大致辞：美将继续在南海行动 不要感到惊讶】正在访问中国的美国太平洋司令部司令哈里斯在北京大学斯坦福中心发表致辞，称美国在南海地区会在国际法所允许的“一切地方”采取行动。他还表示，中方基于“九段线”等对南海提出主权主张的行为是“站不住脚”的。http://t.cn/RUJlVBU<br><img src="http://ww2.sinaimg.cn/large/61e04755jw1exnw1a4j36j20b40godgt.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
+	<small> ============== 12小时前</small>
 </p>
 <table>
     <tr>
