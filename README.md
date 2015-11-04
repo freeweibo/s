@@ -78,7 +78,7 @@
 </h2>
 <p>SPAM 11月19日去看#我的少女时代#！你们到时别光顾着舔屏，人家口碑辣么好，一定有很多理由不能错过！</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3905193856895563" target="freeweibo-mirror">SPAM 11月19日上映的#我的少女时代#绝对靠谱好看青春…</a>
 </h2>
