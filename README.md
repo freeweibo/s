@@ -26,6 +26,24 @@
 <p>
 	<small> ============== 1小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3905440926348389" target="freeweibo-mirror">彭丽媛现在是教授，将军，早就不干演员了。 //@晨晓同学:彭…</a>
+</h2>
+<p>彭丽媛现在是教授，将军，早就不干演员了。 //@晨晓同学:彭丽媛。<br><br>RE: #亚蒙社会观察#【央视台长：明年春晚不用有道德瑕疵的演员】[哈哈][哈哈][哈哈]#微博时评团# 打个小赌儿，谁要能在中国找到一个没有道德瑕疵的演员，我在北京请他吃一顿大餐！[馋嘴][馋嘴]<br><img src="http://ww3.sinaimg.cn/large/681521d1jw1exouikb504j20ku112tdm.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3905440624624240" target="freeweibo-mirror">【明确一下：我说的是职业演员】业余演员不算，[哈哈] //@…</a>
+</h2>
+<p>【明确一下：我说的是职业演员】业余演员不算，[哈哈] //@我住七零四:少儿节目的演员呀！肯定没啥<br><br>RE: #亚蒙社会观察#【央视台长：明年春晚不用有道德瑕疵的演员】[哈哈][哈哈][哈哈]#微博时评团# 打个小赌儿，谁要能在中国找到一个没有道德瑕疵的演员，我在北京请他吃一顿大餐！[馋嘴][馋嘴]<br><img src="http://ww3.sinaimg.cn/large/681521d1jw1exouikb504j20ku112tdm.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3905440003604838" target="freeweibo-mirror">回复@这里是刘琪:谁敢来挑战？[哈哈][哈哈]//@这里是刘…</a>
+</h2>
+<p>回复@这里是刘琪:谁敢来挑战？[哈哈][哈哈]//@这里是刘琪:哥你太抠门了，分明是不想请嘛<br><br>RE: #亚蒙社会观察#【央视台长：明年春晚不用有道德瑕疵的演员】[哈哈][哈哈][哈哈]#微博时评团# 打个小赌儿，谁要能在中国找到一个没有道德瑕疵的演员，我在北京请他吃一顿大餐！[馋嘴][馋嘴]<br><img src="http://ww3.sinaimg.cn/large/681521d1jw1exouikb504j20ku112tdm.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3905246197339153" target="freeweibo-mirror">毛那时砸锅炼钢铁，小木船，去不了那么远的岛礁，更没本事造人工…</a>
 </h2>
 <p>毛那时砸锅炼钢铁，小木船，去不了那么远的岛礁，更没本事造人工岛。//@鹰飞鱼潜V:如果是面对毛主席，这孙子们还敢这样嚣张吗..... //@新宾老狼:转发微博<br><br>RE: 【美军太平洋司令在北大致辞：美将继续在南海行动 不要感到惊讶】正在访问中国的美国太平洋司令部司令哈里斯在北京大学斯坦福中心发表致辞，称美国在南海地区会在国际法所允许的“一切地方”采取行动。他还表示，中方基于“九段线”等对南海提出主权主张的行为是“站不住脚”的。http://t.cn/RUJlVBU<br><img src="http://ww2.sinaimg.cn/large/61e04755jw1exnw1a4j36j20b40godgt.jpg"></p>
@@ -119,24 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3905107105962567" target="freeweibo-mirror">SPAM 继28日采用 #周氏股市心理学# 之“宽幅震荡..…</a>
 </h2>
 <p>SPAM 继28日采用 #周氏股市心理学# 之“宽幅震荡......”后，昨日中午给订阅的朋友再次发了私信，提防MACD死叉.......几个交易日下来，大盘温柔的割了100多点了<br><img src="http://ww4.sinaimg.cn/large/5ef5c0aejw1exnsftiibij20g005z0t7.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3905097341708767" target="freeweibo-mirror">真回文革，中国人会比叙利亚人还惨。叙利亚人少，欧洲还可以讨论…</a>
-</h2>
-<p>真回文革，中国人会比叙利亚人还惨。叙利亚人少，欧洲还可以讨论如何接收，中国人只能占领西伯利亚了。<br><img src="http://ww3.sinaimg.cn/large/59405d86jw1exnrb9zatcj20k00damyz.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3905070523315160" target="freeweibo-mirror">SPAM 数据显示，这可能是年度最强歌单。。。[doge]/…</a>
-</h2>
-<p>SPAM 数据显示，这可能是年度最强歌单。。。[doge]//@战争史研究WHS: 纯服[笑cry][笑cry]//@忠义双全袁宫保: 服//@电脑算命:笑死//@phunter_lau:转发续一秒//@大卫库克: 够续一年了 //@JohnKennedy:超长待续 //@不作死就不会死-:哈哈哈://@闷声小发财1987: 吼啊 //@国美的华莱士:续了1秒！<br><br>RE: 分享一个神一样的歌单 先续为敬 http://t.cn/RUMWTN7<br><img src="http://ww2.sinaimg.cn/large/8d0bac78jw1exmfbr9ipnj20hs3kln45.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3905070254610865" target="freeweibo-mirror">SPAM tyjyt柳暗花明又一村，[开心]百[偷乐]度[挖…</a>
-</h2>
-<p>SPAM tyjyt柳暗花明又一村，[开心]百[偷乐]度[挖鼻]云[晕]盘[色]资[挖鼻]源，三[歪果仁夏克立]级[鲜花]电影有时候必A需V女[偷乐] 优 日本综艺节目 黄色#性与爱的那点事儿#.同乐[江南style]需要就ghg<br><img src="http://ww4.sinaimg.cn/large/005AG9Rxgw1exno85zzldj30c80lqmxt.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
