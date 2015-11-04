@@ -54,7 +54,7 @@
 </h2>
 <p>#亚蒙社会观察#【央视台长：明年春晚不用有道德瑕疵的演员】[哈哈][哈哈][哈哈]#微博时评团# 打个小赌儿，谁要能在中国找到一个没有道德瑕疵的演员，我在北京请他吃一顿大餐！[馋嘴][馋嘴]<br><img src="http://ww3.sinaimg.cn/large/681521d1jw1exouikb504j20ku112tdm.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3905246197339153" target="freeweibo-mirror">毛那时砸锅炼钢铁，小木船，去不了那么远的岛礁，更没本事造人工…</a>
 </h2>
