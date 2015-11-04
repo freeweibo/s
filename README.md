@@ -54,7 +54,7 @@
 </h2>
 <p>【朱立伦：习马会是两岸关系历史重要一步】朱立伦今天表示，7日登场的“习马会”是两岸历史上非常重要的一步，希望两岸关系在“九二共识”基础上有所进展，进一步合作双赢。他还指出，对于民进党全面出动用攻击、辱骂方式面对两岸关系进展表示遗憾。<br><br>RE: 果不其然，习马会还未登场，台湾便各种高潮。。。。不失其一贯尿性呀。。。<br><img src="http://ww2.sinaimg.cn/large/affeb77bgw1exozanuccdj20fh0qowfl.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3905526553676856" target="freeweibo-mirror">//@手机用户2259597831: [草泥马]//@刀纹身…</a>
 </h2>
@@ -84,7 +84,7 @@
 </h2>
 <p>SPAM 书单列得这么快，奋起直追也追不上了。 //@郑维:回覆@灰羽裂:妄议中央，该当何罪…… //@灰羽裂:《澎湖湾》分几种唱法？[嘻嘻][嘻嘻][嘻嘻]<br><br>RE: #狮城书单#<br><img src="http://ww1.sinaimg.cn/large/6d0b6b33gw1exoqain39kj20g407tq43.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3905496056478999" target="freeweibo-mirror">SPAM #不洗头毁所有#当你已经二十岁了，你应该学会做一个…</a>
 </h2>
