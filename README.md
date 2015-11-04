@@ -44,6 +44,12 @@
 <p>
 	<small> ============== 1小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3905439018194392" target="freeweibo-mirror">#亚蒙社会观察#【央视台长：明年春晚不用有道德瑕疵的演员】[…</a>
+</h2>
+<p>#亚蒙社会观察#【央视台长：明年春晚不用有道德瑕疵的演员】[哈哈][哈哈][哈哈]#微博时评团# 打个小赌儿，谁要能在中国找到一个没有道德瑕疵的演员，我在北京请他吃一顿大餐！[馋嘴][馋嘴]<br><img src="http://ww3.sinaimg.cn/large/681521d1jw1exouikb504j20ku112tdm.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3905246197339153" target="freeweibo-mirror">毛那时砸锅炼钢铁，小木船，去不了那么远的岛礁，更没本事造人工…</a>
 </h2>
 <p>毛那时砸锅炼钢铁，小木船，去不了那么远的岛礁，更没本事造人工岛。//@鹰飞鱼潜V:如果是面对毛主席，这孙子们还敢这样嚣张吗..... //@新宾老狼:转发微博<br><br>RE: 【美军太平洋司令在北大致辞：美将继续在南海行动 不要感到惊讶】正在访问中国的美国太平洋司令部司令哈里斯在北京大学斯坦福中心发表致辞，称美国在南海地区会在国际法所允许的“一切地方”采取行动。他还表示，中方基于“九段线”等对南海提出主权主张的行为是“站不住脚”的。http://t.cn/RUJlVBU<br><img src="http://ww2.sinaimg.cn/large/61e04755jw1exnw1a4j36j20b40godgt.jpg"></p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3905107282252202" target="freeweibo-mirror">SPAM 亲@天猫 ，你在哪？@京东 满世界找你呐.....…</a>
 </h2>
 <p>SPAM 亲@天猫 ，你在哪？@京东 满世界找你呐......<br><img src="http://ww1.sinaimg.cn/large/5e0b3d25gw1exnrzunrgcj20sq0j4gqx.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3905107105962567" target="freeweibo-mirror">SPAM 继28日采用 #周氏股市心理学# 之“宽幅震荡..…</a>
-</h2>
-<p>SPAM 继28日采用 #周氏股市心理学# 之“宽幅震荡......”后，昨日中午给订阅的朋友再次发了私信，提防MACD死叉.......几个交易日下来，大盘温柔的割了100多点了<br><img src="http://ww4.sinaimg.cn/large/5ef5c0aejw1exnsftiibij20g005z0t7.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
