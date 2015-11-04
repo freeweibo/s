@@ -114,13 +114,13 @@
 </h2>
 <p>【高级黑：活不见人，死不见尸】广州市公民张六毛，2015年8月15日因“寻衅滋事”被羁押于广州市天河区看守所，其间律师会见而不能。11月4日，亲属突然接到看守所电话，称张六毛已去世火化，让去领骨灰。详情真如第二图所说吗？<br><img src="http://ww4.sinaimg.cn/large/d4050bc4jw1exoxjys2z7j20hs0nqgmu.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3905464129994563" target="freeweibo-mirror">你这是反讽吗？[偷笑]</a>
 </h2>
 <p>你这是反讽吗？[偷笑]</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3905442176532505" target="freeweibo-mirror">回复@徐德军律师:欢迎宋祖英自己来挑战，[哈哈]//@徐德军…</a>
 </h2>
