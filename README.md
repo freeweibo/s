@@ -36,19 +36,19 @@
 </h2>
 <p>影响不了选情，改写不了格局，对历史可以交代一下:都努力过了。<br><br>RE: #习马会# 截图1来自BBC，其报道置“台”于“中”前，领导人照片选取上抑“中”扬“台”，报道方式源自意识形态上的对立，国人早习惯了。只是该国前脚刚盛情接待访问，后脚便冷面獠牙，一热一冷叫人不适。截图3来自CNN，照片所示场面应已料到，让盼望统一之人心寒，更可怕的是示威者无白发而皆青壮。<br><img src="http://ww4.sinaimg.cn/large/895fc831jw1exp21t05slj20hs0vkgp6.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3905523608900873" target="freeweibo-mirror">SPAM 抢下，看看运气哈！</a>
 </h2>
 <p>SPAM 抢下，看看运气哈！</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3905508266080599" target="freeweibo-mirror">#习马会# 截图1来自BBC，其报道置“台”于“中”前，领导…</a>
 </h2>
 <p>#习马会# 截图1来自BBC，其报道置“台”于“中”前，领导人照片选取上抑“中”扬“台”，报道方式源自意识形态上的对立，国人早习惯了。只是该国前脚刚盛情接待访问，后脚便冷面獠牙，一热一冷叫人不适。截图3来自CNN，照片所示场面应已料到，让盼望统一之人心寒，更可怕的是示威者无白发而皆青壮。<br><img src="http://ww4.sinaimg.cn/large/895fc831jw1exp21t05slj20hs0vkgp6.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3905498325315497" target="freeweibo-mirror">SPAM 书单列得这么快，奋起直追也追不上了。 //@郑维:…</a>
 </h2>
@@ -132,7 +132,7 @@
 </h2>
 <p>#习马会# 【针对习马会 民进党发“五项声明、七大质疑”】民进党发言人郑运鹏发表一份七大质疑的五项声明：“会面的性质是什么？”“目的是什么？”“为何非得如此急迫，要在这个时间点？”“与中方洽谈的过程为何？”“会谈的形式与安排是什么？”“马将要说些什么、做些什么？”http://t.cn/RUiQETU<br><img src="http://ww4.sinaimg.cn/large/6298156bgw1exoqfk6h41j208c0bq74u.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3905401680194443" target="freeweibo-mirror">#狮城书单#</a>
 </h2>
