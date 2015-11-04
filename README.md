@@ -42,7 +42,7 @@
 </h2>
 <p>SPAM 呐，双十一就是在忙这个！！来我这领钱吧！！</p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3905536963220306" target="freeweibo-mirror">SPAM @最高人民法院 的周强院长，你真的读过法学院吗？我…</a>
 </h2>
@@ -108,7 +108,7 @@
 </h2>
 <p>中国领导人空缺，大陆领导人和台湾领导人对等？美国表示认可。</p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3905464863158795" target="freeweibo-mirror">【高级黑：活不见人，死不见尸】广州市公民张六毛，2015年8…</a>
 </h2>
