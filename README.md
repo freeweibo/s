@@ -44,6 +44,12 @@
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3905536963220306" target="freeweibo-mirror">SPAM @最高人民法院 的周强院长，你真的读过法学院吗？我…</a>
+</h2>
+<p>SPAM @最高人民法院 的周强院长，你真的读过法学院吗？我看真的不像。<br><img src="http://ww2.sinaimg.cn/large/90fdc5e9jw1exp5sfml1pj20hs0cotb7.jpg"></p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3905528227148884" target="freeweibo-mirror">【朱立伦：习马会是两岸关系历史重要一步】朱立伦今天表示，7日…</a>
 </h2>
 <p>【朱立伦：习马会是两岸关系历史重要一步】朱立伦今天表示，7日登场的“习马会”是两岸历史上非常重要的一步，希望两岸关系在“九二共识”基础上有所进展，进一步合作双赢。他还指出，对于民进党全面出动用攻击、辱骂方式面对两岸关系进展表示遗憾。<br><br>RE: 果不其然，习马会还未登场，台湾便各种高潮。。。。不失其一贯尿性呀。。。<br><img src="http://ww2.sinaimg.cn/large/affeb77bgw1exozanuccdj20fh0qowfl.jpg"></p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3905440624624240" target="freeweibo-mirror">【明确一下：我说的是职业演员】业余演员不算，[哈哈] //@…</a>
 </h2>
 <p>【明确一下：我说的是职业演员】业余演员不算，[哈哈] //@我住七零四:少儿节目的演员呀！肯定没啥<br><br>RE: #亚蒙社会观察#【央视台长：明年春晚不用有道德瑕疵的演员】[哈哈][哈哈][哈哈]#微博时评团# 打个小赌儿，谁要能在中国找到一个没有道德瑕疵的演员，我在北京请他吃一顿大餐！[馋嘴][馋嘴]<br><img src="http://ww3.sinaimg.cn/large/681521d1jw1exouikb504j20ku112tdm.jpg"></p>
-<p>
-	<small> ============== 10小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3905440151155495" target="freeweibo-mirror">新加坡谈论主题？？ //@纪昀://@陈茂来-:历史潮流，浩…</a>
-</h2>
-<p>新加坡谈论主题？？ //@纪昀://@陈茂来-:历史潮流，浩浩荡荡，顺之者昌，逆之者亡。得民心者得天下！//@演员孙海英:去年的他。</p>
 <p>
 	<small> ============== 10小时前</small>
 </p>
