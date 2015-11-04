@@ -60,7 +60,7 @@
 </h2>
 <p>SPAM 全新高尔夫GTI终于要上市啦！</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3905201758650693" target="freeweibo-mirror">[喵喵] //@机智的兵长:[喵喵]</a>
 </h2>
