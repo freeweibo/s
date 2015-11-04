@@ -26,6 +26,18 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3905528227148884" target="freeweibo-mirror">【朱立伦：习马会是两岸关系历史重要一步】朱立伦今天表示，7日…</a>
+</h2>
+<p>【朱立伦：习马会是两岸关系历史重要一步】朱立伦今天表示，7日登场的“习马会”是两岸历史上非常重要的一步，希望两岸关系在“九二共识”基础上有所进展，进一步合作双赢。他还指出，对于民进党全面出动用攻击、辱骂方式面对两岸关系进展表示遗憾。<br><br>RE: 果不其然，习马会还未登场，台湾便各种高潮。。。。不失其一贯尿性呀。。。<br><img src="http://ww2.sinaimg.cn/large/affeb77bgw1exozanuccdj20fh0qowfl.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3905523894093071" target="freeweibo-mirror">影响不了选情，改写不了格局，对历史可以交代一下:都努力过了。</a>
+</h2>
+<p>影响不了选情，改写不了格局，对历史可以交代一下:都努力过了。<br><br>RE: #习马会# 截图1来自BBC，其报道置“台”于“中”前，领导人照片选取上抑“中”扬“台”，报道方式源自意识形态上的对立，国人早习惯了。只是该国前脚刚盛情接待访问，后脚便冷面獠牙，一热一冷叫人不适。截图3来自CNN，照片所示场面应已料到，让盼望统一之人心寒，更可怕的是示威者无白发而皆青壮。<br><img src="http://ww4.sinaimg.cn/large/895fc831jw1exp21t05slj20hs0vkgp6.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3905523608900873" target="freeweibo-mirror">SPAM 抢下，看看运气哈！</a>
 </h2>
 <p>SPAM 抢下，看看运气哈！</p>
@@ -125,18 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3905241264958660" target="freeweibo-mirror">这个日本傻逼！中国人忘不了你！</a>
 </h2>
 <p>这个日本傻逼！中国人忘不了你！<br><br>RE: 【美军太平洋司令在北大致辞：美将继续在南海行动 不要感到惊讶】正在访问中国的美国太平洋司令部司令哈里斯在北京大学斯坦福中心发表致辞，称美国在南海地区会在国际法所允许的“一切地方”采取行动。他还表示，中方基于“九段线”等对南海提出主权主张的行为是“站不住脚”的。http://t.cn/RUJlVBU<br><img src="http://ww2.sinaimg.cn/large/61e04755jw1exnw1a4j36j20b40godgt.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3905229299266745" target="freeweibo-mirror">好嚣张，已气晕 //@员外_:唯望尊央冷静处之，牢牢扭住经济…</a>
-</h2>
-<p>好嚣张，已气晕 //@员外_:唯望尊央冷静处之，牢牢扭住经济建设不放 //@草根光头强:啥时候硬起来？ //@凌濛初刻: 报告司令，美帝攻陷北大[泪] //@侯宁:必须誤炸美国军舰了！[阴险] //@但斌: //@金钱论语邓良平: //@鹰飞鱼潜V:如果是面对毛主席，这孙子们还敢这样嚣张吗..... //@新宾老狼:转发微博<br><br>RE: 【美军太平洋司令在北大致辞：美将继续在南海行动 不要感到惊讶】正在访问中国的美国太平洋司令部司令哈里斯在北京大学斯坦福中心发表致辞，称美国在南海地区会在国际法所允许的“一切地方”采取行动。他还表示，中方基于“九段线”等对南海提出主权主张的行为是“站不住脚”的。http://t.cn/RUJlVBU<br><img src="http://ww2.sinaimg.cn/large/61e04755jw1exnw1a4j36j20b40godgt.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3905223678049993" target="freeweibo-mirror">SPAM 夜间福利！抽我！！</a>
-</h2>
-<p>SPAM 夜间福利！抽我！！</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
