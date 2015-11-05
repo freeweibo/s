@@ -42,7 +42,7 @@
 </h2>
 <p>【蔡英文：如果当选不排除“习蔡会 蔡英文今天受访时表示，在选举仅剩的两个多月，进行“习蔡会”可能性不高；若明年1月16日当选后，在相关条件完成下不排除。蔡英文表示，两岸互动或交流，甚至领导人会面，台湾社会正面看待，不会反对。<br><img src="http://ww4.sinaimg.cn/large/562bc1d7jw1exqcir1nw5j20dw0an0tu.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3905830916756439" target="freeweibo-mirror">SPAM 把妹也是需要技能的[微笑]各位还要过节的单身狗们，…</a>
 </h2>
