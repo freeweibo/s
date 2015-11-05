@@ -24,7 +24,7 @@
 </h2>
 <p>全都疯了[笑cry] //@法骑周刊:如此美妙，照亮我们永琪的未来 http://t.cn/RUaPQHq</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3905931932886394" target="freeweibo-mirror">SPAM 在一天疲劳的工作以后，很多时候都会拒绝伴侣提出的性…</a>
 </h2>
