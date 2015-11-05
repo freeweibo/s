@@ -120,7 +120,7 @@
 </h2>
 <p>SPAM 书单列得这么快，奋起直追也追不上了。 //@郑维:回覆@灰羽裂:妄议中央，该当何罪…… //@灰羽裂:《澎湖湾》分几种唱法？[嘻嘻][嘻嘻][嘻嘻]<br><br>RE: #狮城书单#<br><img src="http://ww1.sinaimg.cn/large/6d0b6b33gw1exoqain39kj20g407tq43.jpg"></p>
 <p>
-	<small> ============== 1天前</small>
+	<small> ============== 2天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3905496056478999" target="freeweibo-mirror">SPAM #不洗头毁所有#当你已经二十岁了，你应该学会做一个…</a>
 </h2>
