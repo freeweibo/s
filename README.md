@@ -42,7 +42,7 @@
 </h2>
 <p>SPAM 回复@ThomasChen:陸委會沒有公佈民調詳細內容。根據《蘋果日報》民調，有38.81%的民眾對馬習會持正面看法，認為「支持兩人會面，有助於兩岸關係」，而選擇「不支持，認為馬總統即將卸任，應由下任總統處理兩岸事宜」的民眾超過半數，約佔%53.10。<br><br>RE: 馬習會只為馬的個人虛榮 童振源 兩岸領導人見面是歷史大事，卻發生在馬英九總統即將下台前半年、新總統即將出爐前二個多月，毫無正當性與必要性。馬習會成為馬總統追求個人歷史虛榮定位的一場秀，卻配合大陸政治操作九二共識與一個中國原則，干涉台灣選舉與脅迫新政府。 http://t.cn/RU6d97E</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3906092176451728" target="freeweibo-mirror">SPAM 回复@ThomasChen:如果是一般時期，馬總統…</a>
 </h2>
@@ -54,19 +54,19 @@
 </h2>
 <p>SPAM 想要轻松瘦的菇凉看过来[来]</p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3905988190819030" target="freeweibo-mirror">150万就不还了，这四块七拿去坐车，别说我没给你面子。</a>
 </h2>
 <p>150万就不还了，这四块七拿去坐车，别说我没给你面子。</p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3905987473373718" target="freeweibo-mirror">全都疯了[笑cry] //@法骑周刊:如此美妙，照亮我们永琪…</a>
 </h2>
 <p>全都疯了[笑cry] //@法骑周刊:如此美妙，照亮我们永琪的未来 http://t.cn/RUaPQHq</p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3905977470247685" target="freeweibo-mirror">阳光下的身体[害羞]@麻艘小妮子 @造型师刘珊 @修图师王腾</a>
 </h2>
