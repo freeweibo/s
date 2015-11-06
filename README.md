@@ -24,7 +24,7 @@
 </h2>
 <p>SPAM 听说“盐”值女神跟转发更配哦！</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3906294169697667" target="freeweibo-mirror">//@章诒和: 文革50年//@章诒和: 历史常常惊人的相似…</a>
 </h2>
