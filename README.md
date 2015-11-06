@@ -30,7 +30,7 @@
 </h2>
 <p>666666666666666</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3906098598021803" target="freeweibo-mirror">SPAM @胖久了就不想瘦了</a>
 </h2>
@@ -48,7 +48,7 @@
 </h2>
 <p>SPAM 回复@ThomasChen:如果是一般時期，馬總統可以自己決定。但他民意支持度如此低，絶大部分民眾不信任他，再二個月便有新民意產生的新總統，而且他自稱馬習會不為個人，是為台灣下一代，希望為未來政府鋪路。如果是這樣，他可以完全不顧朝野總統候選人？他可以在出發前三天才告訴國會？<br><br>RE: 馬習會只為馬的個人虛榮 童振源 兩岸領導人見面是歷史大事，卻發生在馬英九總統即將下台前半年、新總統即將出爐前二個多月，毫無正當性與必要性。馬習會成為馬總統追求個人歷史虛榮定位的一場秀，卻配合大陸政治操作九二共識與一個中國原則，干涉台灣選舉與脅迫新政府。 http://t.cn/RU6d97E</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3906033125019750" target="freeweibo-mirror">SPAM 想要轻松瘦的菇凉看过来[来]</a>
 </h2>
@@ -71,6 +71,12 @@
 	<a href="https://freeweibo.com/weibo/3905977470247685" target="freeweibo-mirror">阳光下的身体[害羞]@麻艘小妮子 @造型师刘珊 @修图师王腾</a>
 </h2>
 <p>阳光下的身体[害羞]@麻艘小妮子 @造型师刘珊 @修图师王腾<br><img src="http://ww1.sinaimg.cn/large/6071f87bjw1exqkeh2zccj20tm18gwqw.jpg"></p>
+<p>
+	<small> ============== 1天前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3905957765300677" target="freeweibo-mirror">完美的搭配[笑cry][笑cry][笑cry]@PS3保罗 …</a>
+</h2>
+<p>完美的搭配[笑cry][笑cry][笑cry]@PS3保罗 @陈震同学 @Cuty-G可奇奇 @Top-Cars @新浪汽车<br><img src="http://ww4.sinaimg.cn/large/a1d521f9jw1exqi0201m3j20ko0knalb.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p><h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3905528227148884" target="freeweibo-mirror">【朱立伦：习马会是两岸关系历史重要一步】朱立伦今天表示，7日…</a>
 </h2>
 <p>【朱立伦：习马会是两岸关系历史重要一步】朱立伦今天表示，7日登场的“习马会”是两岸历史上非常重要的一步，希望两岸关系在“九二共识”基础上有所进展，进一步合作双赢。他还指出，对于民进党全面出动用攻击、辱骂方式面对两岸关系进展表示遗憾。<br><br>RE: 果不其然，习马会还未登场，台湾便各种高潮。。。。不失其一贯尿性呀。。。<br><img src="http://ww2.sinaimg.cn/large/affeb77bgw1exozanuccdj20fh0qowfl.jpg"></p>
-<p>
-	<small> ============== 2天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3905526553676856" target="freeweibo-mirror">//@手机用户2259597831: [草泥马]//@刀纹身…</a>
-</h2>
-<p>//@手机用户2259597831: [草泥马]//@刀纹身纹绣工作室: 纳粹不过如此//@法律人童朝平:【真的不能再冷漠。冷漠，就是罪恶的帮凶！】此种肉体消灭模式，谁都可以成为一堆骨灰！//@济南舒向新: //@愤怒天使在达州: 不用的法律审判，直接消灭？//@睡狮惊梦://@紫仲廷: //@Docter-李: [话筒][围观][围观]<br><br>RE: 【高级黑：活不见人，死不见尸】广州市公民张六毛，2015年8月15日因“寻衅滋事”被羁押于广州市天河区看守所，其间律师会见而不能。11月4日，亲属突然接到看守所电话，称张六毛已去世火化，让去领骨灰。详情真如第二图所说吗？<br><img src="http://ww4.sinaimg.cn/large/d4050bc4jw1exoxjys2z7j20hs0nqgmu.jpg"></p>
 <p>
 	<small> ============== 2天前</small>
 </p>
