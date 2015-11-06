@@ -42,7 +42,7 @@
 </h2>
 <p>SPAM 听说“盐”值女神跟转发更配哦！</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3906330664160970" target="freeweibo-mirror">SPAM 没睡的赶紧关注了</a>
 </h2>
