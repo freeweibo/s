@@ -24,7 +24,7 @@
 </h2>
 <p>SPAM 想脱单不容易，正确使用五块钱话费的使用方法。</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3906164712273216" target="freeweibo-mirror">SPAM  #304续写琅琊榜# 请大家多多担待！！会继续努…</a>
 </h2>
@@ -78,7 +78,7 @@
 </h2>
 <p>SPAM 中国驻越南大使馆门前<br><img src="http://ww1.sinaimg.cn/large/97c2f5fdjw1exqz8geoodj20zk0qotf1.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3906098598021803" target="freeweibo-mirror">SPAM @胖久了就不想瘦了</a>
 </h2>
