@@ -36,7 +36,7 @@
 </h2>
 <p>//@雁塔小木屋4: //@灰色的伞: //@wyzxhp9://@转帖小王: //@诈和老头不38: //@铁帅涅槃1://@睡马99:转发微博<br><br>RE: 九八年印尼事件，日本公然违反国际二战条约派遣军队强行进入印尼，用军用c130运回了日本侨民，中国在印尼至少有三千万人，美国为了营救中国华人，死伤了120多名美国军务人员，新加坡一天二十四小时全面接待中国侨胞，无偿提供住宿饮食，而它们没有出动一兵一卒，只说了一句不干涉他国内政了之<br><img src="http://ww2.sinaimg.cn/large/005xL6bbgw1exrlixzin9j30dc0a4wg5.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3906335378288056" target="freeweibo-mirror">SPAM 听说“盐”值女神跟转发更配哦！</a>
 </h2>
@@ -66,7 +66,7 @@
 </h2>
 <p>//@章诒和: 文革50年//@章诒和: 历史常常惊人的相似。明年是文革60年，不胜感慨。//@谓贤: 怎么都忘了新中国的第一夫人江青同志？//@老关回来了:不知为何，我想起一个成语：黔驴技穷//@陈业文新大都: 请勿联想。[挖鼻]//@Ming_the_Great_大明: http://t.cn/RUSSDyf<br><br>RE: 听闻新版「白毛女」(舞台剧)，将于11月6日至12月17日在全国开展为期一个多月的巡回演出，彭丽媛任艺术指导，心有不安。不管新版旧版，总是难脱其成名于＂文革＂时典型样板戏「白毛女」之胎。再者，＂文革＂期间，又是谁让谁担纲文化指导，上演样板戏？如此暗忖，委实后怕。<br><img src="http://ww2.sinaimg.cn/large/c57c1a49jw1exr8a9t6sbj20r80i5dip.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3906292521094057" target="freeweibo-mirror">照这么说上一辈小时候文革动乱读书无用被送去上山下乡耗费十年青…</a>
 </h2>
@@ -91,6 +91,12 @@
 <p>SPAM 想脱单不容易，正确使用五块钱话费的使用方法。</p>
 <p>
 	<small> ============== 10小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3906201139644199" target="freeweibo-mirror">抓进看守所，然后通知家属领骨灰，张六毛在看守所死亡事件对于中…</a>
+</h2>
+<p>抓进看守所，然后通知家属领骨灰，张六毛在看守所死亡事件对于中国的任何人来说都不能不重视，即使你是看守。</p>
+<p>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3906185558145721" target="freeweibo-mirror">听闻新版「白毛女」(舞台剧)，将于11月6日至12月17日在…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3906145657378176" target="freeweibo-mirror">无锡日报的编辑可以回家过记者节了</a>
 </h2>
 <p>无锡日报的编辑可以回家过记者节了<br><img src="http://ww4.sinaimg.cn/large/629ea2b7jw1exr3qqd2qvj20k00qowi6.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3906136803232021" target="freeweibo-mirror">SPAM 今天的@无锡日报 习近平变成习近年[怒]，我看该报…</a>
-</h2>
-<p>SPAM 今天的@无锡日报 习近平变成习近年[怒]，我看该报主编要被“炮决”。。。<br><img src="http://ww4.sinaimg.cn/large/a84cb08ejw1exr2opi55ej20c00f4tbk.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
