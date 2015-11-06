@@ -50,6 +50,12 @@
 <p>
 	<small> ============== 9小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3906185558145721" target="freeweibo-mirror">听闻新版「白毛女」(舞台剧)，将于11月6日至12月17日在…</a>
+</h2>
+<p>听闻新版「白毛女」(舞台剧)，将于11月6日至12月17日在全国开展为期一个多月的巡回演出，彭丽媛任艺术指导，心有不安。不管新版旧版，总是难脱其成名于＂文革＂时典型样板戏「白毛女」之胎。再者，＂文革＂期间，又是谁让谁担纲文化指导，上演样板戏？如此暗忖，委实后怕。<br><img src="http://ww2.sinaimg.cn/large/c57c1a49jw1exr8a9t6sbj20r80i5dip.jpg"></p>
+<p>
+	<small> ============== 11小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3906181237689403" target="freeweibo-mirror">在习近平与越南领导人会谈的会议厅里，挂有越南党和国家的开创者…</a>
 </h2>
 <p>在习近平与越南领导人会谈的会议厅里，挂有越南党和国家的开创者胡志明塑像。塑像高高悬挂在会议大厅正中的墙壁上，被鲜花和绿草簇拥着，显得庄重和至高无上。看得出有良心知感恩的越南人对自己开国领袖的尊敬与爱戴。在中国，开国领袖、老百姓心中的大救星毛主席，咋就不能得到他的继任者如此尊崇呢？<br><img src="http://ww3.sinaimg.cn/large/b6ddfe6djw1exr7tvkf9vj20p00hamzz.jpg"></p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3906033125019750" target="freeweibo-mirror">SPAM 想要轻松瘦的菇凉看过来[来]</a>
 </h2>
 <p>SPAM 想要轻松瘦的菇凉看过来[来]</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3905988190819030" target="freeweibo-mirror">150万就不还了，这四块七拿去坐车，别说我没给你面子。</a>
-</h2>
-<p>150万就不还了，这四块七拿去坐车，别说我没给你面子。</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
