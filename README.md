@@ -78,7 +78,7 @@
 </h2>
 <p>SPAM @胖久了就不想瘦了<br><br>RE: 阳光下的身体[害羞]@麻艘小妮子 @造型师刘珊 @修图师王腾<br><img src="http://ww1.sinaimg.cn/large/6071f87bjw1exqkeh2zccj20tm18gwqw.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3906093803509918" target="freeweibo-mirror">SPAM 回复@ThomasChen:陸委會沒有公佈民調詳細…</a>
 </h2>
