@@ -36,7 +36,7 @@
 </h2>
 <p>SPAM 想脱单不容易，正确使用五块钱话费的使用方法。</p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3906181237689403" target="freeweibo-mirror">在习近平与越南领导人会谈的会议厅里，挂有越南党和国家的开创者…</a>
 </h2>
@@ -78,7 +78,7 @@
 </h2>
 <p>SPAM 今天的@无锡日报 习近平变成习近年[怒]，我看该报主编要被“炮决”。。。<br><img src="http://ww4.sinaimg.cn/large/a84cb08ejw1exr2opi55ej20c00f4tbk.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3906121762817970" target="freeweibo-mirror">毛毛什么情况……[疑问]</a>
 </h2>
