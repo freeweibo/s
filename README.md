@@ -20,11 +20,17 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3906121762817970" target="freeweibo-mirror">毛毛什么情况……[疑问]</a>
+</h2>
+<p>毛毛什么情况……[疑问]<br><br>RE: 完美的搭配[笑cry][笑cry][笑cry]@PS3保罗 @陈震同学 @Cuty-G可奇奇 @Top-Cars @新浪汽车<br><img src="http://ww4.sinaimg.cn/large/a1d521f9jw1exqi0201m3j20ko0knalb.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3906108043138022" target="freeweibo-mirror">666666666666666</a>
 </h2>
 <p>666666666666666</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3906098598021803" target="freeweibo-mirror">SPAM @胖久了就不想瘦了</a>
 </h2>
@@ -42,7 +48,7 @@
 </h2>
 <p>SPAM 回复@ThomasChen:如果是一般時期，馬總統可以自己決定。但他民意支持度如此低，絶大部分民眾不信任他，再二個月便有新民意產生的新總統，而且他自稱馬習會不為個人，是為台灣下一代，希望為未來政府鋪路。如果是這樣，他可以完全不顧朝野總統候選人？他可以在出發前三天才告訴國會？<br><br>RE: 馬習會只為馬的個人虛榮 童振源 兩岸領導人見面是歷史大事，卻發生在馬英九總統即將下台前半年、新總統即將出爐前二個多月，毫無正當性與必要性。馬習會成為馬總統追求個人歷史虛榮定位的一場秀，卻配合大陸政治操作九二共識與一個中國原則，干涉台灣選舉與脅迫新政府。 http://t.cn/RU6d97E</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3906033125019750" target="freeweibo-mirror">SPAM 想要轻松瘦的菇凉看过来[来]</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3905526553676856" target="freeweibo-mirror">//@手机用户2259597831: [草泥马]//@刀纹身…</a>
 </h2>
 <p>//@手机用户2259597831: [草泥马]//@刀纹身纹绣工作室: 纳粹不过如此//@法律人童朝平:【真的不能再冷漠。冷漠，就是罪恶的帮凶！】此种肉体消灭模式，谁都可以成为一堆骨灰！//@济南舒向新: //@愤怒天使在达州: 不用的法律审判，直接消灭？//@睡狮惊梦://@紫仲廷: //@Docter-李: [话筒][围观][围观]<br><br>RE: 【高级黑：活不见人，死不见尸】广州市公民张六毛，2015年8月15日因“寻衅滋事”被羁押于广州市天河区看守所，其间律师会见而不能。11月4日，亲属突然接到看守所电话，称张六毛已去世火化，让去领骨灰。详情真如第二图所说吗？<br><img src="http://ww4.sinaimg.cn/large/d4050bc4jw1exoxjys2z7j20hs0nqgmu.jpg"></p>
-<p>
-	<small> ============== 2天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3905523894093071" target="freeweibo-mirror">影响不了选情，改写不了格局，对历史可以交代一下:都努力过了。</a>
-</h2>
-<p>影响不了选情，改写不了格局，对历史可以交代一下:都努力过了。<br><br>RE: #习马会# 截图1来自BBC，其报道置“台”于“中”前，领导人照片选取上抑“中”扬“台”，报道方式源自意识形态上的对立，国人早习惯了。只是该国前脚刚盛情接待访问，后脚便冷面獠牙，一热一冷叫人不适。截图3来自CNN，照片所示场面应已料到，让盼望统一之人心寒，更可怕的是示威者无白发而皆青壮。<br><img src="http://ww4.sinaimg.cn/large/895fc831jw1exp21t05slj20hs0vkgp6.jpg"></p>
 <p>
 	<small> ============== 2天前</small>
 </p>
