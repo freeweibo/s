@@ -24,7 +24,7 @@
 </h2>
 <p>SPAM 是吗？！[哈哈]<br><br>RE: 无锡日报的编辑可以回家过记者节了<br><img src="http://ww4.sinaimg.cn/large/629ea2b7jw1exr3qqd2qvj20k00qowi6.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3906136803232021" target="freeweibo-mirror">SPAM 今天的@无锡日报 习近平变成习近年[怒]，我看该报…</a>
 </h2>
