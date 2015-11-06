@@ -20,6 +20,18 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3906348112240606" target="freeweibo-mirror">好办法！一烧了事！一了百了！//@杨宁远v:回复@兴奋的罗老…</a>
+</h2>
+<p>好办法！一烧了事！一了百了！//@杨宁远v:回复@兴奋的罗老师:活人进去，骨灰出来。实在是恐怖！//@兴奋的罗老师:太恐怖了，文明社会发生这样的事情简直是令人感到耻辱，法律呢？审判呢？就算是十恶不赦的人也需要公开审判吧，直接烧成灰？这是什么做法？//@阿依土豪公主: //@茶话九州: //@老菜头2011:<br><br>RE: 抓进看守所，然后通知家属领骨灰，张六毛在看守所死亡事件对于中国的任何人来说都不能不重视，即使你是看守。</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3906343079331021" target="freeweibo-mirror">//@兴奋的罗老师: //@天明再会C: //@一见穿心a:…</a>
+</h2>
+<p>//@兴奋的罗老师: //@天明再会C: //@一见穿心a:它们//@深度NN播报: //@一片月在呼吸v:它们//@三龙和风:对内外的都一视同仁。<br><br>RE: 九八年印尼事件，日本公然违反国际二战条约派遣军队强行进入印尼，用军用c130运回了日本侨民，中国在印尼至少有三千万人，美国为了营救中国华人，死伤了120多名美国军务人员，新加坡一天二十四小时全面接待中国侨胞，无偿提供住宿饮食，而它们没有出动一兵一卒，只说了一句不干涉他国内政了之<br><img src="http://ww2.sinaimg.cn/large/005xL6bbgw1exrlixzin9j30dc0a4wg5.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3906338951879574" target="freeweibo-mirror">//@雁塔小木屋4: //@灰色的伞: //@wyzxhp9…</a>
 </h2>
 <p>//@雁塔小木屋4: //@灰色的伞: //@wyzxhp9://@转帖小王: //@诈和老头不38: //@铁帅涅槃1://@睡马99:转发微博<br><br>RE: 九八年印尼事件，日本公然违反国际二战条约派遣军队强行进入印尼，用军用c130运回了日本侨民，中国在印尼至少有三千万人，美国为了营救中国华人，死伤了120多名美国军务人员，新加坡一天二十四小时全面接待中国侨胞，无偿提供住宿饮食，而它们没有出动一兵一卒，只说了一句不干涉他国内政了之<br><img src="http://ww2.sinaimg.cn/large/005xL6bbgw1exrlixzin9j30dc0a4wg5.jpg"></p>
@@ -30,7 +42,7 @@
 </h2>
 <p>SPAM 听说“盐”值女神跟转发更配哦！</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3906330664160970" target="freeweibo-mirror">SPAM 没睡的赶紧关注了</a>
 </h2>
@@ -125,18 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3906136803232021" target="freeweibo-mirror">SPAM 今天的@无锡日报 习近平变成习近年[怒]，我看该报…</a>
 </h2>
 <p>SPAM 今天的@无锡日报 习近平变成习近年[怒]，我看该报主编要被“炮决”。。。<br><img src="http://ww4.sinaimg.cn/large/a84cb08ejw1exr2opi55ej20c00f4tbk.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3906121762817970" target="freeweibo-mirror">毛毛什么情况……[疑问]</a>
-</h2>
-<p>毛毛什么情况……[疑问]<br><br>RE: 完美的搭配[笑cry][笑cry][笑cry]@PS3保罗 @陈震同学 @Cuty-G可奇奇 @Top-Cars @新浪汽车<br><img src="http://ww4.sinaimg.cn/large/a1d521f9jw1exqi0201m3j20ko0knalb.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3906108043138022" target="freeweibo-mirror">666666666666666</a>
-</h2>
-<p>666666666666666</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
