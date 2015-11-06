@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3906292521094057" target="freeweibo-mirror">照这么说上一辈小时候文革动乱读书无用被送去上山下乡耗费十年青…</a>
+</h2>
+<p>照这么说上一辈小时候文革动乱读书无用被送去上山下乡耗费十年青春回来发现还得读书，招不容易找个铁饭碗拉钩说好保障一辈子结果人到中年变成社会累赘下岗工人，生个崽学费涨了房价涨了一辈子积蓄也就给儿女供个房，末了国家说养老不能靠政府，岂不是更惨。然后上上代还要惨日本人的飞机在头上丢炸弹</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3906267212901739" target="freeweibo-mirror">//@鱼儿在冲浪://@阳光女人V18: 出门被打脸，家门被…</a>
 </h2>
 <p>//@鱼儿在冲浪://@阳光女人V18: 出门被打脸，家门被指鼻，为了黄梁梦，破鼓万人碰。 //@执着的飞奔:他们自认为都比毛主席能//@阳光女人V18:不换思想就换人，不反毛能让上大位吗？唱红的被莫须有就是实例。 //@岩礁58: //@村夫归尘10人间正道是良心86: 必须恢复毛主席开国领袖应有的神圣地位@正义-东<br><br>RE: 在习近平与越南领导人会谈的会议厅里，挂有越南党和国家的开创者胡志明塑像。塑像高高悬挂在会议大厅正中的墙壁上，被鲜花和绿草簇拥着，显得庄重和至高无上。看得出有良心知感恩的越南人对自己开国领袖的尊敬与爱戴。在中国，开国领袖、老百姓心中的大救星毛主席，咋就不能得到他的继任者如此尊崇呢？<br><img src="http://ww3.sinaimg.cn/large/b6ddfe6djw1exr7tvkf9vj20p00hamzz.jpg"></p>
@@ -54,7 +60,7 @@
 </h2>
 <p>【“习近平”写成“习近年”】11月6日江苏《无锡日报》头版将中共中央总书记、国家主席“习近平”名字错写为“习近年”。其电子版已将出错的“年”字改为“平”字。而印发的纸质报纸却带着重大错误无法逆转地流入了各订阅单位和寻常百姓家。《无锡日报》是中共无锡市委机关报，创刊于1949年8月1日。<br><img src="http://ww3.sinaimg.cn/large/791ae3d5jw1exr5eit7odj20go0ciwgp.jpg"></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3906153609751625" target="freeweibo-mirror">SPAM [哆啦A梦微笑]小編，大校，妳們還想不想吃這碗飯了…</a>
 </h2>
@@ -72,7 +78,7 @@
 </h2>
 <p>无锡日报的编辑可以回家过记者节了<br><img src="http://ww4.sinaimg.cn/large/629ea2b7jw1exr3qqd2qvj20k00qowi6.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3906136803232021" target="freeweibo-mirror">SPAM 今天的@无锡日报 习近平变成习近年[怒]，我看该报…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3905987473373718" target="freeweibo-mirror">全都疯了[笑cry] //@法骑周刊:如此美妙，照亮我们永琪…</a>
 </h2>
 <p>全都疯了[笑cry] //@法骑周刊:如此美妙，照亮我们永琪的未来 http://t.cn/RUaPQHq</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3905977470247685" target="freeweibo-mirror">阳光下的身体[害羞]@麻艘小妮子 @造型师刘珊 @修图师王腾</a>
-</h2>
-<p>阳光下的身体[害羞]@麻艘小妮子 @造型师刘珊 @修图师王腾<br><img src="http://ww1.sinaimg.cn/large/6071f87bjw1exqkeh2zccj20tm18gwqw.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
