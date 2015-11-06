@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3906267212901739" target="freeweibo-mirror">//@鱼儿在冲浪://@阳光女人V18: 出门被打脸，家门被…</a>
+</h2>
+<p>//@鱼儿在冲浪://@阳光女人V18: 出门被打脸，家门被指鼻，为了黄梁梦，破鼓万人碰。 //@执着的飞奔:他们自认为都比毛主席能//@阳光女人V18:不换思想就换人，不反毛能让上大位吗？唱红的被莫须有就是实例。 //@岩礁58: //@村夫归尘10人间正道是良心86: 必须恢复毛主席开国领袖应有的神圣地位@正义-东<br><br>RE: 在习近平与越南领导人会谈的会议厅里，挂有越南党和国家的开创者胡志明塑像。塑像高高悬挂在会议大厅正中的墙壁上，被鲜花和绿草簇拥着，显得庄重和至高无上。看得出有良心知感恩的越南人对自己开国领袖的尊敬与爱戴。在中国，开国领袖、老百姓心中的大救星毛主席，咋就不能得到他的继任者如此尊崇呢？<br><img src="http://ww3.sinaimg.cn/large/b6ddfe6djw1exr7tvkf9vj20p00hamzz.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3906218931891625" target="freeweibo-mirror">SPAM 想脱单不容易，正确使用五块钱话费的使用方法。</a>
 </h2>
 <p>SPAM 想脱单不容易，正确使用五块钱话费的使用方法。</p>
@@ -36,7 +42,7 @@
 </h2>
 <p>【“习近平”写成“习近年”】11月6日江苏《无锡日报》头版将中共中央总书记、国家主席“习近平”名字错写为“习近年”。其电子版已将出错的“年”字改为“平”字。而印发的纸质报纸却带着重大错误无法逆转地流入了各订阅单位和寻常百姓家。《无锡日报》是中共无锡市委机关报，创刊于1949年8月1日。<br><img src="http://ww3.sinaimg.cn/large/791ae3d5jw1exr5eit7odj20go0ciwgp.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3906153609751625" target="freeweibo-mirror">SPAM [哆啦A梦微笑]小編，大校，妳們還想不想吃這碗飯了…</a>
 </h2>
@@ -54,7 +60,7 @@
 </h2>
 <p>无锡日报的编辑可以回家过记者节了<br><img src="http://ww4.sinaimg.cn/large/629ea2b7jw1exr3qqd2qvj20k00qowi6.jpg"></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3906136803232021" target="freeweibo-mirror">SPAM 今天的@无锡日报 习近平变成习近年[怒]，我看该报…</a>
 </h2>
@@ -72,7 +78,7 @@
 </h2>
 <p>666666666666666</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3906106445078584" target="freeweibo-mirror">SPAM 中国驻越南大使馆门前</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3905931932886394" target="freeweibo-mirror">SPAM 在一天疲劳的工作以后，很多时候都会拒绝伴侣提出的性…</a>
 </h2>
 <p>SPAM 在一天疲劳的工作以后，很多时候都会拒绝伴侣提出的性邀请，不过，英国性心理研究人员发现，性爱有助于人体身体机能的恢复，能够有效地缓解压力和疲劳。已经拒绝不仅影响两人之间的感情，也不利于自身身体的释放，容易产生更大的心理压力。所以为了释放压力，不如今晚...<br><img src="http://ww1.sinaimg.cn/large/8f24420cgw1exq9upteppj20960brq4a.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3905924361793652" target="freeweibo-mirror">【蔡英文：如果当选不排除“习蔡会 蔡英文今天受访时表示，在选…</a>
-</h2>
-<p>【蔡英文：如果当选不排除“习蔡会 蔡英文今天受访时表示，在选举仅剩的两个多月，进行“习蔡会”可能性不高；若明年1月16日当选后，在相关条件完成下不排除。蔡英文表示，两岸互动或交流，甚至领导人会面，台湾社会正面看待，不会反对。<br><img src="http://ww4.sinaimg.cn/large/562bc1d7jw1exqcir1nw5j20dw0an0tu.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
