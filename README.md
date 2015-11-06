@@ -24,7 +24,13 @@
 </h2>
 <p>//@鱼儿在冲浪://@阳光女人V18: 出门被打脸，家门被指鼻，为了黄梁梦，破鼓万人碰。 //@执着的飞奔:他们自认为都比毛主席能//@阳光女人V18:不换思想就换人，不反毛能让上大位吗？唱红的被莫须有就是实例。 //@岩礁58: //@村夫归尘10人间正道是良心86: 必须恢复毛主席开国领袖应有的神圣地位@正义-东<br><br>RE: 在习近平与越南领导人会谈的会议厅里，挂有越南党和国家的开创者胡志明塑像。塑像高高悬挂在会议大厅正中的墙壁上，被鲜花和绿草簇拥着，显得庄重和至高无上。看得出有良心知感恩的越南人对自己开国领袖的尊敬与爱戴。在中国，开国领袖、老百姓心中的大救星毛主席，咋就不能得到他的继任者如此尊崇呢？<br><img src="http://ww3.sinaimg.cn/large/b6ddfe6djw1exr7tvkf9vj20p00hamzz.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3906262435506870" target="freeweibo-mirror">SPAM 这个活动太适合我了！现在就要去报名！！选我！你们说…</a>
+</h2>
+<p>SPAM 这个活动太适合我了！现在就要去报名！！选我！你们说要真选上去巴黎，我该去老佛爷带点什么，觉得什么最适合我呢？请在评论中推荐。</p>
+<p>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3906218931891625" target="freeweibo-mirror">SPAM 想脱单不容易，正确使用五块钱话费的使用方法。</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3905957765300677" target="freeweibo-mirror">完美的搭配[笑cry][笑cry][笑cry]@PS3保罗 …</a>
 </h2>
 <p>完美的搭配[笑cry][笑cry][笑cry]@PS3保罗 @陈震同学 @Cuty-G可奇奇 @Top-Cars @新浪汽车<br><img src="http://ww4.sinaimg.cn/large/a1d521f9jw1exqi0201m3j20ko0knalb.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3905931932886394" target="freeweibo-mirror">SPAM 在一天疲劳的工作以后，很多时候都会拒绝伴侣提出的性…</a>
-</h2>
-<p>SPAM 在一天疲劳的工作以后，很多时候都会拒绝伴侣提出的性邀请，不过，英国性心理研究人员发现，性爱有助于人体身体机能的恢复，能够有效地缓解压力和疲劳。已经拒绝不仅影响两人之间的感情，也不利于自身身体的释放，容易产生更大的心理压力。所以为了释放压力，不如今晚...<br><img src="http://ww1.sinaimg.cn/large/8f24420cgw1exq9upteppj20960brq4a.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
