@@ -72,7 +72,7 @@
 </h2>
 <p>SPAM 是吗？！[哈哈]<br><br>RE: 无锡日报的编辑可以回家过记者节了<br><img src="http://ww4.sinaimg.cn/large/629ea2b7jw1exr3qqd2qvj20k00qowi6.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3906145657378176" target="freeweibo-mirror">无锡日报的编辑可以回家过记者节了</a>
 </h2>
