@@ -42,7 +42,7 @@
 </h2>
 <p>在习近平与越南领导人会谈的会议厅里，挂有越南党和国家的开创者胡志明塑像。塑像高高悬挂在会议大厅正中的墙壁上，被鲜花和绿草簇拥着，显得庄重和至高无上。看得出有良心知感恩的越南人对自己开国领袖的尊敬与爱戴。在中国，开国领袖、老百姓心中的大救星毛主席，咋就不能得到他的继任者如此尊崇呢？<br><img src="http://ww3.sinaimg.cn/large/b6ddfe6djw1exr7tvkf9vj20p00hamzz.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3906164712273216" target="freeweibo-mirror">SPAM  #304续写琅琊榜# 请大家多多担待！！会继续努…</a>
 </h2>
@@ -78,13 +78,13 @@
 </h2>
 <p>SPAM 今天的@无锡日报 习近平变成习近年[怒]，我看该报主编要被“炮决”。。。<br><img src="http://ww4.sinaimg.cn/large/a84cb08ejw1exr2opi55ej20c00f4tbk.jpg"></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3906121762817970" target="freeweibo-mirror">毛毛什么情况……[疑问]</a>
 </h2>
 <p>毛毛什么情况……[疑问]<br><br>RE: 完美的搭配[笑cry][笑cry][笑cry]@PS3保罗 @陈震同学 @Cuty-G可奇奇 @Top-Cars @新浪汽车<br><img src="http://ww4.sinaimg.cn/large/a1d521f9jw1exqi0201m3j20ko0knalb.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3906108043138022" target="freeweibo-mirror">666666666666666</a>
 </h2>
