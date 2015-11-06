@@ -96,7 +96,7 @@
 </h2>
 <p>SPAM 想要轻松瘦的菇凉看过来[来]</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3905988190819030" target="freeweibo-mirror">150万就不还了，这四块七拿去坐车，别说我没给你面子。</a>
 </h2>
