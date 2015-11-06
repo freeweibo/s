@@ -38,6 +38,12 @@
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3906321298259727" target="freeweibo-mirror">没睡的可以加V 訢 :ztww666 这里有新闻和电视看不见…</a>
+</h2>
+<p>没睡的可以加V 訢 :ztww666 这里有新闻和电视看不见的报道！</p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3906300503498223" target="freeweibo-mirror">九八年印尼事件，日本公然违反国际二战条约派遣军队强行进入印尼…</a>
 </h2>
 <p>九八年印尼事件，日本公然违反国际二战条约派遣军队强行进入印尼，用军用c130运回了日本侨民，中国在印尼至少有三千万人，美国为了营救中国华人，死伤了120多名美国军务人员，新加坡一天二十四小时全面接待中国侨胞，无偿提供住宿饮食，而它们没有出动一兵一卒，只说了一句不干涉他国内政了之<br><img src="http://ww2.sinaimg.cn/large/005xL6bbgw1exrlixzin9j30dc0a4wg5.jpg"></p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3906108043138022" target="freeweibo-mirror">666666666666666</a>
 </h2>
 <p>666666666666666</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3906106445078584" target="freeweibo-mirror">SPAM 中国驻越南大使馆门前</a>
-</h2>
-<p>SPAM 中国驻越南大使馆门前<br><img src="http://ww1.sinaimg.cn/large/97c2f5fdjw1exqz8geoodj20zk0qotf1.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
