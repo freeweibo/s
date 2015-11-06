@@ -24,7 +24,7 @@
 </h2>
 <p>毛毛什么情况……[疑问]<br><br>RE: 完美的搭配[笑cry][笑cry][笑cry]@PS3保罗 @陈震同学 @Cuty-G可奇奇 @Top-Cars @新浪汽车<br><img src="http://ww4.sinaimg.cn/large/a1d521f9jw1exqi0201m3j20ko0knalb.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3906108043138022" target="freeweibo-mirror">666666666666666</a>
 </h2>
@@ -72,7 +72,7 @@
 </h2>
 <p>阳光下的身体[害羞]@麻艘小妮子 @造型师刘珊 @修图师王腾<br><img src="http://ww1.sinaimg.cn/large/6071f87bjw1exqkeh2zccj20tm18gwqw.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3905931932886394" target="freeweibo-mirror">SPAM 在一天疲劳的工作以后，很多时候都会拒绝伴侣提出的性…</a>
 </h2>
