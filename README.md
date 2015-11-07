@@ -20,6 +20,48 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3906632167993412" target="freeweibo-mirror">SPAM  //@胡戈:现在的台湾人已经忘了CCP的厉害了，…</a>
+</h2>
+<p>SPAM  //@胡戈:现在的台湾人已经忘了CCP的厉害了，界这个机会让他们感受一下<br><br>RE: 分享图片<br><img src="http://ww1.sinaimg.cn/large/65cfb01djw1exslmi0p4xj20f00qowhg.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3906631919813981" target="freeweibo-mirror">SPAM 现在的台湾人已经忘了CCP的厉害了，界这个机会让他…</a>
+</h2>
+<p>SPAM 现在的台湾人已经忘了CCP的厉害了，界这个机会让他们感受一下<br><br>RE: 分享图片<br><img src="http://ww1.sinaimg.cn/large/65cfb01djw1exslmi0p4xj20f00qowhg.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3906631643008822" target="freeweibo-mirror">SPAM  //@王亚军北京:小编这智商也是负分//@谁家横…</a>
+</h2>
+<p>SPAM  //@王亚军北京:小编这智商也是负分//@谁家横笛DR: 论智商的重要性。</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3906630355575038" target="freeweibo-mirror">SPAM //@张周斌律师://@律师王兴:已经删掉了，担心…</a>
+</h2>
+<p>SPAM //@张周斌律师://@律师王兴:已经删掉了，担心小编的命运，未必有他们主编那么幸运 //@崔小平律师://@高中政治教师陈勇:万恶的截图</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3906605391091723" target="freeweibo-mirror">//@我是-花姐:[衰][挖鼻]//@陈业文新大都: 这不是…</a>
+</h2>
+<p>//@我是-花姐:[衰][挖鼻]//@陈业文新大都: 这不是小小央视这个喉舌能拍板决定的吧？ //@陈强微博:请CCTV给个解释<br><br>RE: 央视直播两岸最高领导人会面，居然在习近平发表完讲话之后，将直播镜头生生切断，不让大陆民众亲耳听到马英九的讲话。两岸的最高层都已经打破了最大的枷锁和框架，迈出了值得载入史册的一刻，央视的直播思维至少落后了10年。两岸最高领导层释放的最大诚意和信任，会因为央视的直播不当而遭受诟病。</p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3906603529490369" target="freeweibo-mirror">这不是小小央视这个喉舌能拍板决定的吧？ //@陈强微博:请C…</a>
+</h2>
+<p>这不是小小央视这个喉舌能拍板决定的吧？ //@陈强微博:请CCTV给个解释<br><br>RE: 央视直播两岸最高领导人会面，居然在习近平发表完讲话之后，将直播镜头生生切断，不让大陆民众亲耳听到马英九的讲话。两岸的最高层都已经打破了最大的枷锁和框架，迈出了值得载入史册的一刻，央视的直播思维至少落后了10年。两岸最高领导层释放的最大诚意和信任，会因为央视的直播不当而遭受诟病。</p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3906597031725551" target="freeweibo-mirror">SPAM “也是”，神来之笔！</a>
+</h2>
+<p>SPAM “也是”，神来之笔！<br><img src="http://ww1.sinaimg.cn/large/53e2b340gw1exsjkyvuj4j20p018ggsk.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3906591118052646" target="freeweibo-mirror">以为“省长讲话就可以省了”，小聪明误事～现在刷屏的是谁的讲话…</a>
 </h2>
 <p>以为“省长讲话就可以省了”，小聪明误事～现在刷屏的是谁的讲话？笨死。//@Helm:记者会结束现场一片骂声。//@郑维:回复@船摇荡:唉！这种历史时刻，这个决定真差劲。//@船摇荡:新一中各表:一个中国，两种直播。<br><br>RE: 央视不播马讲话，结果15分钟内马讲话刷满各种社交媒体，习讲话倒是没人贴了。其实习马会前，双方的公开讲话肯定都交过底，能见面就都不会给对方难看，央视不播马的讲话，实在是缺乏信心。拜托！庙堂衮衮诸公对传播规律有点认识好不好……</p>
@@ -78,7 +120,7 @@
 </h2>
 <p>央视不播马讲话，结果15分钟内马讲话刷满各种社交媒体，习讲话倒是没人贴了。其实习马会前，双方的公开讲话肯定都交过底，能见面就都不会给对方难看，央视不播马的讲话，实在是缺乏信心。拜托！庙堂衮衮诸公对传播规律有点认识好不好……</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3906575691234291" target="freeweibo-mirror">载入史册之文献，谁也屏蔽不了的。</a>
 </h2>
@@ -97,48 +139,6 @@
 <p>SPAM 马英九致辞全文。<br><br>RE: 「為天地立心，為生民立命，為往聖繼絕學，為萬世開太平」『马英九致辞全文』http://t.cn/RUKgZKp</p>
 <p>
 	<small> ============== 5小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3906572340103040" target="freeweibo-mirror">马英九：今天，我與習近平先生分別以臺灣與大陸領導人的身分，穿…</a>
-</h2>
-<p>马英九：今天，我與習近平先生分別以臺灣與大陸領導人的身分，穿越66年的時空，伸手相握，握著兩岸的過去與未來，也握著中華民族振興的希望，深具歷史意義。全文请戳→_→  http://t.cn/RUKdquG</p>
-<p>
-	<small> ============== 5小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3906572185107538" target="freeweibo-mirror">讲话很好，无敏感词。[哈哈] http://t.cn/RUK…</a>
-</h2>
-<p>讲话很好，无敏感词。[哈哈] http://t.cn/RUKdb0V</p>
-<p>
-	<small> ============== 5小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3906570552892133" target="freeweibo-mirror">「為天地立心，為生民立命，為往聖繼絕學，為萬世開太平」『马英…</a>
-</h2>
-<p>「為天地立心，為生民立命，為往聖繼絕學，為萬世開太平」『马英九致辞全文』http://t.cn/RUKgZKp</p>
-<p>
-	<small> ============== 5小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3906562303716843" target="freeweibo-mirror">看央视直播，历史一刻变成了历史半刻。</a>
-</h2>
-<p>看央视直播，历史一刻变成了历史半刻。</p>
-<p>
-	<small> ============== 5小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3906529113210779" target="freeweibo-mirror">//@沙漠里的曝光台: //@招远快乐小羊: //@半瓶酒4…</a>
-</h2>
-<p>//@沙漠里的曝光台: //@招远快乐小羊: //@半瓶酒4-网易: //@撕碎夜: 另有，要动作避免误伤同类？//@二子他爹2006: 想表达共产党是杀人凶手 //@撕碎夜://@有雨天自凉60世: //@正义记者2015-10: //@hehuanlinzhao:转发微博</p>
-<p>
-	<small> ============== 8小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3906505592394571" target="freeweibo-mirror">@金陵谈</a>
-</h2>
-<p>@金陵谈<br><br>RE: 「反騽陣線」在總統府前的抗議。訴求重點在於反對黑箱作業的馬習會、反對缺乏人民共識、缺乏國會監督的兩岸協議。自去年「318太陽花學運」以來，馬英九的兩岸政策遭到強烈的抵制，導致國民黨的總統及立委選舉情勢陷入苦戰。<br><img src="http://ww4.sinaimg.cn/large/5186d665gw1exs7x1qnicj21kw148jzv.jpg"></p>
-<p>
-	<small> ============== 9小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3906502672278910" target="freeweibo-mirror">SPAM //@郑声乱雅乐: 金教授又开狂暴模式虐小弯弯了。…</a>
-</h2>
-<p>SPAM //@郑声乱雅乐: 金教授又开狂暴模式虐小弯弯了。//@艳艳-丫丫:嘿嘿，地动山摇式//@峰lawyer:主持人不停的冷笑“嗯呵”、嘛素质<br><br>RE: 在台湾政论节目《有话好说》中，主持人借前“陆委会”副主委林中斌之言说习马会是因“南海局势让北京很有急迫感”，金灿荣听后呵呵一笑说：“以为南海问题突出，大陆有求于台湾，这个完全错的啊，大陆在南海问题上是不指望台湾的。”http://t.cn/RUSrEaS</p>
-<p>
-	<small> ============== 9小时前</small>
 </p>
 <table>
     <tr>
