@@ -96,7 +96,7 @@
 </h2>
 <p>SPAM [哈哈]//@王少磊:→_→//@谁家横笛DR: 论智商的重要性。</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3906607769068708" target="freeweibo-mirror">SPAM 大陆这边行文以白话为主，古文点睛。台湾那边酸文连篇…</a>
 </h2>
