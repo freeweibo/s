@@ -24,7 +24,7 @@
 </h2>
 <p>SPAM 转一下吧，多年以前看过雪村的《成都今夜将我遗弃》，《天堂向左，深圳向右》，最让我印象深刻的是《原谅我红尘颠倒》，文笔老练，情真意切，大俗大雅。后来有一同事和他共事过，以前好像是做过化妆品行业，特能喷。 //@LifeTime:</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3906703562824330" target="freeweibo-mirror">SPAM 香港割让了，所以才有回归。两岸是分裂了，只能统一，…</a>
 </h2>
@@ -36,7 +36,7 @@
 </h2>
 <p>SPAM  //@沪港小生:[围观]<br><br>RE: 看完#习马会# 蔡英文如是说：<br><img src="http://ww2.sinaimg.cn/large/6d0b6b33gw1exsqucqn3hj20oz18gakd.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3906699968554243" target="freeweibo-mirror">SPAM  //@2885542665_856:这话得跟二千…</a>
 </h2>
