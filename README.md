@@ -84,13 +84,13 @@
 </h2>
 <p>马英九：今天，我與習近平先生分別以臺灣與大陸領導人的身分，穿越66年的時空，伸手相握，握著兩岸的過去與未來，也握著中華民族振興的希望，深具歷史意義。全文请戳→_→  http://t.cn/RUKdquG</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3906572185107538" target="freeweibo-mirror">讲话很好，无敏感词。[哈哈] http://t.cn/RUK…</a>
 </h2>
 <p>讲话很好，无敏感词。[哈哈] http://t.cn/RUKdb0V</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3906570552892133" target="freeweibo-mirror">「為天地立心，為生民立命，為往聖繼絕學，為萬世開太平」『马英…</a>
 </h2>
@@ -120,7 +120,7 @@
 </h2>
 <p>「反騽陣線」在總統府前的抗議。訴求重點在於反對黑箱作業的馬習會、反對缺乏人民共識、缺乏國會監督的兩岸協議。自去年「318太陽花學運」以來，馬英九的兩岸政策遭到強烈的抵制，導致國民黨的總統及立委選舉情勢陷入苦戰。<br><img src="http://ww4.sinaimg.cn/large/5186d665gw1exs7x1qnicj21kw148jzv.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3906489355934216" target="freeweibo-mirror">SPAM 【转发送手机】简单粗暴直接来，以#360奇酷手机#…</a>
 </h2>
