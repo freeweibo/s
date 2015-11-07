@@ -38,6 +38,12 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3906651138354869" target="freeweibo-mirror">今晚满屏都是“多么伟大…”、“70年重现…”、“改写历史…”…</a>
+</h2>
+<p>今晚满屏都是“多么伟大…”、“70年重现…”、“改写历史…”云云的矫情话，其实小崔想说的是70年前他们谈完以后就打起来了好么。[挖鼻][挖鼻][挖鼻]<br><img src="http://ww4.sinaimg.cn/large/9e2074a7gw1exspp5e2rfj20gr0bfaaw.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3906645647901115" target="freeweibo-mirror">SPAM //@深圳彭国永: [疑问]//@王亚军北京: 妄…</a>
 </h2>
 <p>SPAM //@深圳彭国永: [疑问]//@王亚军北京: 妄议台湾估计没事儿吧？<br><br>RE: 两岸会统一吗？我觉得是有可能的。统一的最重要的条件就是大陆实现宪政，这样，台湾人才不会心有疑虑。</p>
@@ -60,19 +66,19 @@
 </h2>
 <p>SPAM  //@胡戈:现在的台湾人已经忘了CCP的厉害了，界这个机会让他们感受一下<br><br>RE: 分享图片<br><img src="http://ww1.sinaimg.cn/large/65cfb01djw1exslmi0p4xj20f00qowhg.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3906631919813981" target="freeweibo-mirror">SPAM 现在的台湾人已经忘了CCP的厉害了，界这个机会让他…</a>
 </h2>
 <p>SPAM 现在的台湾人已经忘了CCP的厉害了，界这个机会让他们感受一下<br><br>RE: 分享图片<br><img src="http://ww1.sinaimg.cn/large/65cfb01djw1exslmi0p4xj20f00qowhg.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3906631643008822" target="freeweibo-mirror">SPAM  //@王亚军北京:小编这智商也是负分//@谁家横…</a>
 </h2>
 <p>SPAM  //@王亚军北京:小编这智商也是负分//@谁家横笛DR: 论智商的重要性。</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3906630355575038" target="freeweibo-mirror">SPAM //@张周斌律师://@律师王兴:已经删掉了，担心…</a>
 </h2>
@@ -114,7 +120,7 @@
 </h2>
 <p>习马会如期登场，迟来总比不来好。习致辞凸显其个人自信大气，马阴柔，略显格局不足。马致辞内容实在毫无敏感之处，中断其致辞直播则愚蠢至极，在世人面前把自身短板尽数暴露。真正应了那句话:不怕神一样的对手，就怕猪一样的队友。至于队友何以成猪一样，就要自己反思了！<br><img src="http://ww3.sinaimg.cn/large/be8f8847gw1exsk77oq4tj20dw0bw0tc.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3906597031725551" target="freeweibo-mirror">SPAM “也是”，神来之笔！</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3906590601811543" target="freeweibo-mirror">重播已经比直播差好多好多。//@没昵有称:央视此刻正在重播马…</a>
 </h2>
 <p>重播已经比直播差好多好多。//@没昵有称:央视此刻正在重播马英九的讲话。此刻。现在！<br><br>RE: 央视不播马讲话，结果15分钟内马讲话刷满各种社交媒体，习讲话倒是没人贴了。其实习马会前，双方的公开讲话肯定都交过底，能见面就都不会给对方难看，央视不播马的讲话，实在是缺乏信心。拜托！庙堂衮衮诸公对传播规律有点认识好不好……</p>
-<p>
-	<small> ============== 7小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3906590073628400" target="freeweibo-mirror">从习马会的发言来看，马英九的发言稿似乎更有文采，或许这和他们…</a>
-</h2>
-<p>从习马会的发言来看，马英九的发言稿似乎更有文采，或许这和他们保持传统文化更多、竞选中不断历练有关吧！</p>
 <p>
 	<small> ============== 7小时前</small>
 </p>
