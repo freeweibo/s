@@ -126,19 +126,19 @@
 </h2>
 <p>SPAM  //@胡戈:现在的台湾人已经忘了CCP的厉害了，界这个机会让他们感受一下<br><br>RE: 分享图片<br><img src="http://ww1.sinaimg.cn/large/65cfb01djw1exslmi0p4xj20f00qowhg.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3906631919813981" target="freeweibo-mirror">SPAM 现在的台湾人已经忘了CCP的厉害了，界这个机会让他…</a>
 </h2>
 <p>SPAM 现在的台湾人已经忘了CCP的厉害了，界这个机会让他们感受一下<br><br>RE: 分享图片<br><img src="http://ww1.sinaimg.cn/large/65cfb01djw1exslmi0p4xj20f00qowhg.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3906631643008822" target="freeweibo-mirror">SPAM  //@王亚军北京:小编这智商也是负分//@谁家横…</a>
 </h2>
 <p>SPAM  //@王亚军北京:小编这智商也是负分//@谁家横笛DR: 论智商的重要性。</p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p>
 <table>
     <tr>
