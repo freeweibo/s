@@ -60,7 +60,7 @@
 </h2>
 <p>小秘书手一挥，下架。//@北极熊号://@但斌: //@差等生:小心被小秘书删[笑cry]<br><br>RE: 毛爷爷手一挥，下乡……邓爷爷手一挥，下海……江爷爷手一挥，下岗……习大大手一挥，下崽 [偷笑][偷笑][偷笑]<br><img src="http://ww1.sinaimg.cn/large/4396c094jw1exsj01d903j20hs0nxdi0.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3906666686644900" target="freeweibo-mirror">SPAM 我忘了…… //@盘子微谈:[哈哈]//@顾峰: …</a>
 </h2>
@@ -102,7 +102,7 @@
 </h2>
 <p>SPAM 正是一字之妙，尽得风流[赞]</p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3906632167993412" target="freeweibo-mirror">SPAM  //@胡戈:现在的台湾人已经忘了CCP的厉害了，…</a>
 </h2>
