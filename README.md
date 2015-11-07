@@ -62,6 +62,18 @@
 <p>
 	<small> ============== 4小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3906678431103875" target="freeweibo-mirror">回复@谢轶群:我相信蔡是一为称职的民主教师，但她并不见得会是…</a>
+</h2>
+<p>回复@谢轶群:我相信蔡是一为称职的民主教师，但她并不见得会是一位能够驾驭复杂局面、给全体台湾人民带来福祉和祥和的政治家。 //@谢轶群:她讲得很深刻呀 //@郑州范强:成熟的民主体制下，大党之间可以相互杯葛，制衡纠偏优化治理，但很少有完全否定对方撕裂社会的。为蔡英文担忧。[汗]<br><br>RE: 蔡英文facebook<br><img src="http://ww1.sinaimg.cn/large/c1d2c5a4jw1exspm1xalkj20dk0jrwjc.jpg"></p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3906672189544025" target="freeweibo-mirror">成熟的民主体制下，大党之间可以相互杯葛，制衡纠偏优化治理，但…</a>
+</h2>
+<p>成熟的民主体制下，大党之间可以相互杯葛，制衡纠偏优化治理，但很少有完全否定对方撕裂社会的。为蔡英文担忧。[汗]//@乔乔是个小魔怪她爸也萌萌哒<br><br>RE: 蔡英文facebook<br><img src="http://ww1.sinaimg.cn/large/c1d2c5a4jw1exspm1xalkj20dk0jrwjc.jpg"></p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3906666686644900" target="freeweibo-mirror">SPAM 我忘了…… //@盘子微谈:[哈哈]//@顾峰: …</a>
 </h2>
 <p>SPAM 我忘了…… //@盘子微谈:[哈哈]//@顾峰: [哈哈] //@迟夙生律师: //@陶赟-法国:[哈哈] //@黔山鹰:基本上是这个样子！<br><br>RE: 今晚满屏都是“多么伟大…”、“70年重现…”、“改写历史…”云云的矫情话，其实小崔想说的是70年前他们谈完以后就打起来了好么。[挖鼻][挖鼻][挖鼻]<br><img src="http://ww4.sinaimg.cn/large/9e2074a7gw1exspp5e2rfj20gr0bfaaw.jpg"></p>
@@ -125,18 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3906631643008822" target="freeweibo-mirror">SPAM  //@王亚军北京:小编这智商也是负分//@谁家横…</a>
 </h2>
 <p>SPAM  //@王亚军北京:小编这智商也是负分//@谁家横笛DR: 论智商的重要性。</p>
-<p>
-	<small> ============== 7小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3906630355575038" target="freeweibo-mirror">SPAM //@张周斌律师://@律师王兴:已经删掉了，担心…</a>
-</h2>
-<p>SPAM //@张周斌律师://@律师王兴:已经删掉了，担心小编的命运，未必有他们主编那么幸运 //@崔小平律师://@高中政治教师陈勇:万恶的截图</p>
-<p>
-	<small> ============== 7小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3906624995968922" target="freeweibo-mirror">两岸会统一吗？我觉得是有可能的。统一的最重要的条件就是大陆实…</a>
-</h2>
-<p>两岸会统一吗？我觉得是有可能的。统一的最重要的条件就是大陆实现宪政，这样，台湾人才不会心有疑虑。</p>
 <p>
 	<small> ============== 7小时前</small>
 </p>
