@@ -66,13 +66,13 @@
 </h2>
 <p>小秘书手一挥，下架。//@北极熊号://@但斌: //@差等生:小心被小秘书删[笑cry]<br><br>RE: 毛爷爷手一挥，下乡……邓爷爷手一挥，下海……江爷爷手一挥，下岗……习大大手一挥，下崽 [偷笑][偷笑][偷笑]<br><img src="http://ww1.sinaimg.cn/large/4396c094jw1exsj01d903j20hs0nxdi0.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3906678431103875" target="freeweibo-mirror">回复@谢轶群:我相信蔡是一为称职的民主教师，但她并不见得会是…</a>
 </h2>
 <p>回复@谢轶群:我相信蔡是一为称职的民主教师，但她并不见得会是一位能够驾驭复杂局面、给全体台湾人民带来福祉和祥和的政治家。 //@谢轶群:她讲得很深刻呀 //@郑州范强:成熟的民主体制下，大党之间可以相互杯葛，制衡纠偏优化治理，但很少有完全否定对方撕裂社会的。为蔡英文担忧。[汗]<br><br>RE: 蔡英文facebook<br><img src="http://ww1.sinaimg.cn/large/c1d2c5a4jw1exspm1xalkj20dk0jrwjc.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3906672189544025" target="freeweibo-mirror">成熟的民主体制下，大党之间可以相互杯葛，制衡纠偏优化治理，但…</a>
 </h2>
@@ -126,7 +126,7 @@
 </h2>
 <p>SPAM 正是一字之妙，尽得风流[赞]</p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3906632167993412" target="freeweibo-mirror">SPAM  //@胡戈:现在的台湾人已经忘了CCP的厉害了，…</a>
 </h2>
