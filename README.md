@@ -60,7 +60,7 @@
 </h2>
 <p>SPAM “也是”，神来之笔！<br><img src="http://ww1.sinaimg.cn/large/53e2b340gw1exsjkyvuj4j20p018ggsk.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3906591118052646" target="freeweibo-mirror">以为“省长讲话就可以省了”，小聪明误事～现在刷屏的是谁的讲话…</a>
 </h2>
