@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3906694578573986" target="freeweibo-mirror">[围观]//@整合之道刘鸿雁:[ok][赞]</a>
+</h2>
+<p>[围观]//@整合之道刘鸿雁:[ok][赞]<br><br>RE: 央视直播习马会，生生把历史一刻变成了历史半刻 [哈哈]</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3906688224495406" target="freeweibo-mirror">这边重唱白毛女，那边开了习马会。三生三世的历史，怎受得“教训…</a>
 </h2>
 <p>这边重唱白毛女，那边开了习马会。三生三世的历史，怎受得“教训”两字？</p>
@@ -41,6 +47,12 @@
 	<a href="https://freeweibo.com/weibo/3906666443607639" target="freeweibo-mirror">SPAM 满满的正能量[good]</a>
 </h2>
 <p>SPAM 满满的正能量[good]<br><br>RE: 今晚满屏都是“多么伟大…”、“70年重现…”、“改写历史…”云云的矫情话，其实小崔想说的是70年前他们谈完以后就打起来了好么。[挖鼻][挖鼻][挖鼻]<br><img src="http://ww4.sinaimg.cn/large/9e2074a7gw1exspp5e2rfj20gr0bfaaw.jpg"></p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3906660249073189" target="freeweibo-mirror">看完#习马会# 蔡英文如是说：</a>
+</h2>
+<p>看完#习马会# 蔡英文如是说：<br><img src="http://ww2.sinaimg.cn/large/6d0b6b33gw1exsqucqn3hj20oz18gakd.jpg"></p>
 <p>
 	<small> ============== 4小时前</small>
 </p><h2>
@@ -108,7 +120,7 @@
 </h2>
 <p>SPAM 大陆这边行文以白话为主，古文点睛。台湾那边酸文连篇，纯属古董，倒是符合文人的口味，毕竟玩弄文字他们擅长啊。//@天一阁园丁:很有意思，台湾那边批评马英九犯老毛病：喜欢列数字，而赞赏习的人性化发言甚至嗓音。没想到公知们却舔上了//@西西福厮:文人就指着这点事儿活着了。//@心开天籁x<br><br>RE: 从习马会的发言来看，马英九的发言稿似乎更有文采，或许这和他们保持传统文化更多、竞选中不断历练有关吧！</p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3906605391091723" target="freeweibo-mirror">//@我是-花姐:[衰][挖鼻]//@陈业文新大都: 这不是…</a>
 </h2>
@@ -127,18 +139,6 @@
 <p>习马会如期登场，迟来总比不来好。习致辞凸显其个人自信大气，马阴柔，略显格局不足。马致辞内容实在毫无敏感之处，中断其致辞直播则愚蠢至极，在世人面前把自身短板尽数暴露。真正应了那句话:不怕神一样的对手，就怕猪一样的队友。至于队友何以成猪一样，就要自己反思了！<br><img src="http://ww3.sinaimg.cn/large/be8f8847gw1exsk77oq4tj20dw0bw0tc.jpg"></p>
 <p>
 	<small> ============== 8小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3906597031725551" target="freeweibo-mirror">SPAM “也是”，神来之笔！</a>
-</h2>
-<p>SPAM “也是”，神来之笔！<br><img src="http://ww1.sinaimg.cn/large/53e2b340gw1exsjkyvuj4j20p018ggsk.jpg"></p>
-<p>
-	<small> ============== 8小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3906592086476470" target="freeweibo-mirror">毛爷爷手一挥，下乡……邓爷爷手一挥，下海……江爷爷手一挥，下…</a>
-</h2>
-<p>毛爷爷手一挥，下乡……邓爷爷手一挥，下海……江爷爷手一挥，下岗……习大大手一挥，下崽 [偷笑][偷笑][偷笑]<br><img src="http://ww1.sinaimg.cn/large/4396c094jw1exsj01d903j20hs0nxdi0.jpg"></p>
-<p>
-	<small> ============== 9小时前</small>
 </p>
 <table>
     <tr>
