@@ -42,7 +42,7 @@
 </h2>
 <p>发表了博文+《马英九的致辞央视为什么不同步直播？》+-++http://t.cn/RUKs9JI</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3906585724088375" target="freeweibo-mirror">文宣领域保守僵化愚蠢的思维和行为模式，要再延续几时？[哼]/…</a>
 </h2>
@@ -90,13 +90,13 @@
 </h2>
 <p>SPAM 為天地立心，為生民立命。<br><br>RE: 讲话很好，无敏感词。[哈哈] http://t.cn/RUKdb0V</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3906573182712241" target="freeweibo-mirror">SPAM 马英九致辞全文。</a>
 </h2>
 <p>SPAM 马英九致辞全文。<br><br>RE: 「為天地立心，為生民立命，為往聖繼絕學，為萬世開太平」『马英九致辞全文』http://t.cn/RUKgZKp</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3906572340103040" target="freeweibo-mirror">马英九：今天，我與習近平先生分別以臺灣與大陸領導人的身分，穿…</a>
 </h2>
