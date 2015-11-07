@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3906633748649139" target="freeweibo-mirror">SPAM 正是一字之妙，尽得风流[赞]</a>
+</h2>
+<p>SPAM 正是一字之妙，尽得风流[赞]</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3906632167993412" target="freeweibo-mirror">SPAM  //@胡戈:现在的台湾人已经忘了CCP的厉害了，…</a>
 </h2>
 <p>SPAM  //@胡戈:现在的台湾人已经忘了CCP的厉害了，界这个机会让他们感受一下<br><br>RE: 分享图片<br><img src="http://ww1.sinaimg.cn/large/65cfb01djw1exslmi0p4xj20f00qowhg.jpg"></p>
@@ -43,6 +49,12 @@
 <p>SPAM //@张周斌律师://@律师王兴:已经删掉了，担心小编的命运，未必有他们主编那么幸运 //@崔小平律师://@高中政治教师陈勇:万恶的截图</p>
 <p>
 	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3906619634916674" target="freeweibo-mirror">SPAM [哈哈]//@王少磊:→_→//@谁家横笛DR: …</a>
+</h2>
+<p>SPAM [哈哈]//@王少磊:→_→//@谁家横笛DR: 论智商的重要性。</p>
+<p>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3906605391091723" target="freeweibo-mirror">//@我是-花姐:[衰][挖鼻]//@陈业文新大都: 这不是…</a>
 </h2>
@@ -125,18 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3906575691234291" target="freeweibo-mirror">载入史册之文献，谁也屏蔽不了的。</a>
 </h2>
 <p>载入史册之文献，谁也屏蔽不了的。</p>
-<p>
-	<small> ============== 5小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3906573681961784" target="freeweibo-mirror">SPAM 為天地立心，為生民立命。</a>
-</h2>
-<p>SPAM 為天地立心，為生民立命。<br><br>RE: 讲话很好，无敏感词。[哈哈] http://t.cn/RUKdb0V</p>
-<p>
-	<small> ============== 5小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3906573182712241" target="freeweibo-mirror">SPAM 马英九致辞全文。</a>
-</h2>
-<p>SPAM 马英九致辞全文。<br><br>RE: 「為天地立心，為生民立命，為往聖繼絕學，為萬世開太平」『马英九致辞全文』http://t.cn/RUKgZKp</p>
 <p>
 	<small> ============== 5小时前</small>
 </p>
