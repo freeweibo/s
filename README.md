@@ -110,6 +110,12 @@
 <p>
 	<small> ============== 1天前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3906197109266404" target="freeweibo-mirror">#习马会# 明天习马会正式登场，马英九已经准备好八坛妈祖老酒…</a>
+</h2>
+<p>#习马会# 明天习马会正式登场，马英九已经准备好八坛妈祖老酒送给习近平，建议习近平回赠一批茅台。按照规划，双方将闭门密谈20分钟。这二十分钟如果谈的好，习近平和马英九，就是明年诺贝尔和平奖最有力的竞争者。期待！</p>
+<p>
+	<small> ============== 1天前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3906185558145721" target="freeweibo-mirror">听闻新版「白毛女」(舞台剧)，将于11月6日至12月17日在…</a>
 </h2>
 <p>听闻新版「白毛女」(舞台剧)，将于11月6日至12月17日在全国开展为期一个多月的巡回演出，彭丽媛任艺术指导，心有不安。不管新版旧版，总是难脱其成名于＂文革＂时典型样板戏「白毛女」之胎。再者，＂文革＂期间，又是谁让谁担纲文化指导，上演样板戏？如此暗忖，委实后怕。<br><img src="http://ww2.sinaimg.cn/large/c57c1a49jw1exr8a9t6sbj20r80i5dip.jpg"></p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3906160274774474" target="freeweibo-mirror">【“习近平”写成“习近年”】11月6日江苏《无锡日报》头版将…</a>
 </h2>
 <p>【“习近平”写成“习近年”】11月6日江苏《无锡日报》头版将中共中央总书记、国家主席“习近平”名字错写为“习近年”。其电子版已将出错的“年”字改为“平”字。而印发的纸质报纸却带着重大错误无法逆转地流入了各订阅单位和寻常百姓家。《无锡日报》是中共无锡市委机关报，创刊于1949年8月1日。<br><img src="http://ww3.sinaimg.cn/large/791ae3d5jw1exr5eit7odj20go0ciwgp.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3906153609751625" target="freeweibo-mirror">SPAM [哆啦A梦微笑]小編，大校，妳們還想不想吃這碗飯了…</a>
-</h2>
-<p>SPAM [哆啦A梦微笑]小編，大校，妳們還想不想吃這碗飯了?。。。<br><img src="http://ww4.sinaimg.cn/large/6923d678jw1exr4nm9togj20m80go0vx.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
