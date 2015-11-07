@@ -132,7 +132,7 @@
 </h2>
 <p>毛爷爷手一挥，下乡……邓爷爷手一挥，下海……江爷爷手一挥，下岗……习大大手一挥，下崽 [偷笑][偷笑][偷笑]<br><img src="http://ww1.sinaimg.cn/large/4396c094jw1exsj01d903j20hs0nxdi0.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3906591118052646" target="freeweibo-mirror">以为“省长讲话就可以省了”，小聪明误事～现在刷屏的是谁的讲话…</a>
 </h2>
