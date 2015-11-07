@@ -42,7 +42,7 @@
 </h2>
 <p>习总这次把和平意愿展示给全球了，下一步，蔡女若上台搞台独，就必须承担腥风血雨的责任了。//@忠浪:蔡女过份的任性凭感觉，没有政治人物的气量。//@诸子百家之一:台湾人民若真选择蔡当“总统”，被她带往台独路，两岸离爆发战争就不远了。//@月隐寒霜：蔡女士蠻激進，實際這樣給台灣未來帶來的變數<br><br>RE: 蔡英文facebook<br><img src="http://ww1.sinaimg.cn/large/c1d2c5a4jw1exspm1xalkj20dk0jrwjc.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3906694578573986" target="freeweibo-mirror">[围观]//@整合之道刘鸿雁:[ok][赞]</a>
 </h2>
@@ -78,13 +78,13 @@
 </h2>
 <p>SPAM 我忘了…… //@盘子微谈:[哈哈]//@顾峰: [哈哈] //@迟夙生律师: //@陶赟-法国:[哈哈] //@黔山鹰:基本上是这个样子！<br><br>RE: 今晚满屏都是“多么伟大…”、“70年重现…”、“改写历史…”云云的矫情话，其实小崔想说的是70年前他们谈完以后就打起来了好么。[挖鼻][挖鼻][挖鼻]<br><img src="http://ww4.sinaimg.cn/large/9e2074a7gw1exspp5e2rfj20gr0bfaaw.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3906666443607639" target="freeweibo-mirror">SPAM 满满的正能量[good]</a>
 </h2>
 <p>SPAM 满满的正能量[good]<br><br>RE: 今晚满屏都是“多么伟大…”、“70年重现…”、“改写历史…”云云的矫情话，其实小崔想说的是70年前他们谈完以后就打起来了好么。[挖鼻][挖鼻][挖鼻]<br><img src="http://ww4.sinaimg.cn/large/9e2074a7gw1exspp5e2rfj20gr0bfaaw.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3906660249073189" target="freeweibo-mirror">看完#习马会# 蔡英文如是说：</a>
 </h2>
@@ -96,7 +96,7 @@
 </h2>
 <p>今晚满屏都是“多么伟大…”、“70年重现…”、“改写历史…”云云的矫情话，其实小崔想说的是70年前他们谈完以后就打起来了好么。[挖鼻][挖鼻][挖鼻]<br><img src="http://ww4.sinaimg.cn/large/9e2074a7gw1exspp5e2rfj20gr0bfaaw.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3906649540763114" target="freeweibo-mirror">蔡英文facebook</a>
 </h2>
@@ -114,7 +114,7 @@
 </h2>
 <p>SPAM  //@上海村妇:马的整个讲话如行云流水。//@湖湘粤: “为生民立命，为万世开太平”用得好//@上海村妇: 马的文化蕴味强，他话语之间強调了平等。大陆的文胆缺乏文学性，也许唐诗宋词读少了[馋嘴]//@东方一朔牟德鸿:唐宋文章VS明清八股。//@曹宪仁:回复@微雨思曦:自身功夫硬！<br><br>RE: 从习马会的发言来看，马英九的发言稿似乎更有文采，或许这和他们保持传统文化更多、竞选中不断历练有关吧！</p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3906633748649139" target="freeweibo-mirror">SPAM 正是一字之妙，尽得风流[赞]</a>
 </h2>
