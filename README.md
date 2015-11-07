@@ -108,7 +108,7 @@
 </h2>
 <p>两岸会统一吗？我觉得是有可能的。统一的最重要的条件就是大陆实现宪政，这样，台湾人才不会心有疑虑。</p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3906619634916674" target="freeweibo-mirror">SPAM [哈哈]//@王少磊:→_→//@谁家横笛DR: …</a>
 </h2>
