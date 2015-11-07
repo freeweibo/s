@@ -20,6 +20,18 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3906505592394571" target="freeweibo-mirror">@金陵谈</a>
+</h2>
+<p>@金陵谈<br><br>RE: 「反騽陣線」在總統府前的抗議。訴求重點在於反對黑箱作業的馬習會、反對缺乏人民共識、缺乏國會監督的兩岸協議。自去年「318太陽花學運」以來，馬英九的兩岸政策遭到強烈的抵制，導致國民黨的總統及立委選舉情勢陷入苦戰。<br><img src="http://ww4.sinaimg.cn/large/5186d665gw1exs7x1qnicj21kw148jzv.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3906502672278910" target="freeweibo-mirror">SPAM //@郑声乱雅乐: 金教授又开狂暴模式虐小弯弯了。…</a>
+</h2>
+<p>SPAM //@郑声乱雅乐: 金教授又开狂暴模式虐小弯弯了。//@艳艳-丫丫:嘿嘿，地动山摇式//@峰lawyer:主持人不停的冷笑“嗯呵”、嘛素质<br><br>RE: 在台湾政论节目《有话好说》中，主持人借前“陆委会”副主委林中斌之言说习马会是因“南海局势让北京很有急迫感”，金灿荣听后呵呵一笑说：“以为南海问题突出，大陆有求于台湾，这个完全错的啊，大陆在南海问题上是不指望台湾的。”http://t.cn/RUSrEaS</p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3906489355934216" target="freeweibo-mirror">SPAM 【转发送手机】简单粗暴直接来，以#360奇酷手机#…</a>
 </h2>
 <p>SPAM 【转发送手机】简单粗暴直接来，以#360奇酷手机#为话题转评本微博，将在11.13日从我的粉丝中抽出一位获得千元金属旗舰不二之选，双卡双待双微信双摄像头的@360奇酷手机 一部。本次活动已备案，放心转起！[来][来][来]#手机菌福利#<br><img src="http://ww4.sinaimg.cn/large/851b9922gw1exs74tualsj20u01arq8a.jpg"></p>
@@ -125,18 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3906181237689403" target="freeweibo-mirror">在习近平与越南领导人会谈的会议厅里，挂有越南党和国家的开创者…</a>
 </h2>
 <p>在习近平与越南领导人会谈的会议厅里，挂有越南党和国家的开创者胡志明塑像。塑像高高悬挂在会议大厅正中的墙壁上，被鲜花和绿草簇拥着，显得庄重和至高无上。看得出有良心知感恩的越南人对自己开国领袖的尊敬与爱戴。在中国，开国领袖、老百姓心中的大救星毛主席，咋就不能得到他的继任者如此尊崇呢？<br><img src="http://ww3.sinaimg.cn/large/b6ddfe6djw1exr7tvkf9vj20p00hamzz.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3906164712273216" target="freeweibo-mirror">SPAM  #304续写琅琊榜# 请大家多多担待！！会继续努…</a>
-</h2>
-<p>SPAM  #304续写琅琊榜# 请大家多多担待！！会继续努力！</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3906160274774474" target="freeweibo-mirror">【“习近平”写成“习近年”】11月6日江苏《无锡日报》头版将…</a>
-</h2>
-<p>【“习近平”写成“习近年”】11月6日江苏《无锡日报》头版将中共中央总书记、国家主席“习近平”名字错写为“习近年”。其电子版已将出错的“年”字改为“平”字。而印发的纸质报纸却带着重大错误无法逆转地流入了各订阅单位和寻常百姓家。《无锡日报》是中共无锡市委机关报，创刊于1949年8月1日。<br><img src="http://ww3.sinaimg.cn/large/791ae3d5jw1exr5eit7odj20go0ciwgp.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
