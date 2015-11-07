@@ -72,7 +72,7 @@
 </h2>
 <p>成熟的民主体制下，大党之间可以相互杯葛，制衡纠偏优化治理，但很少有完全否定对方撕裂社会的。为蔡英文担忧。[汗]//@乔乔是个小魔怪她爸也萌萌哒<br><br>RE: 蔡英文facebook<br><img src="http://ww1.sinaimg.cn/large/c1d2c5a4jw1exspm1xalkj20dk0jrwjc.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3906666686644900" target="freeweibo-mirror">SPAM 我忘了…… //@盘子微谈:[哈哈]//@顾峰: …</a>
 </h2>
