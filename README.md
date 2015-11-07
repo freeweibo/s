@@ -96,7 +96,7 @@
 </h2>
 <p>看完#习马会# 蔡英文如是说：<br><img src="http://ww2.sinaimg.cn/large/6d0b6b33gw1exsqucqn3hj20oz18gakd.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3906651138354869" target="freeweibo-mirror">今晚满屏都是“多么伟大…”、“70年重现…”、“改写历史…”…</a>
 </h2>
