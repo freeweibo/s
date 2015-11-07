@@ -32,6 +32,12 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3906576454508000" target="freeweibo-mirror">央视不播马讲话，结果15分钟内马讲话刷满各种社交媒体，习讲话…</a>
+</h2>
+<p>央视不播马讲话，结果15分钟内马讲话刷满各种社交媒体，习讲话倒是没人贴了。其实习马会前，双方的公开讲话肯定都交过底，能见面就都不会给对方难看，央视不播马的讲话，实在是缺乏信心。拜托！庙堂衮衮诸公对传播规律有点认识好不好……</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3906575691234291" target="freeweibo-mirror">载入史册之文献，谁也屏蔽不了的。</a>
 </h2>
 <p>载入史册之文献，谁也屏蔽不了的。</p>
@@ -72,7 +78,7 @@
 </h2>
 <p>@金陵谈<br><br>RE: 「反騽陣線」在總統府前的抗議。訴求重點在於反對黑箱作業的馬習會、反對缺乏人民共識、缺乏國會監督的兩岸協議。自去年「318太陽花學運」以來，馬英九的兩岸政策遭到強烈的抵制，導致國民黨的總統及立委選舉情勢陷入苦戰。<br><img src="http://ww4.sinaimg.cn/large/5186d665gw1exs7x1qnicj21kw148jzv.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3906502672278910" target="freeweibo-mirror">SPAM //@郑声乱雅乐: 金教授又开狂暴模式虐小弯弯了。…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3906335378288056" target="freeweibo-mirror">SPAM 听说“盐”值女神跟转发更配哦！</a>
 </h2>
 <p>SPAM 听说“盐”值女神跟转发更配哦！</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3906330664160970" target="freeweibo-mirror">SPAM 没睡的赶紧关注了</a>
-</h2>
-<p>SPAM 没睡的赶紧关注了<br><br>RE: 没睡的可以加V 訢 :ztww666 这里有新闻和电视看不见的报道！</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
