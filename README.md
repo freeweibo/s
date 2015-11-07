@@ -26,9 +26,21 @@
 <p>
 	<small> ============== 1小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3906579495365354" target="freeweibo-mirror">SPAM 老大的讲话还是需要多放一些墨水。</a>
+</h2>
+<p>SPAM 老大的讲话还是需要多放一些墨水。<br><br>RE: 说句犯忌讳的话啊。老大在对外、尤其是对海外、港台地区华人演讲时的讲稿，最好是让徐晋如、陶短房这种水平的人来写，文辞会古雅得多。</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3906575691234291" target="freeweibo-mirror">载入史册之文献，谁也屏蔽不了的。</a>
 </h2>
 <p>载入史册之文献，谁也屏蔽不了的。</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3906573681961784" target="freeweibo-mirror">SPAM 為天地立心，為生民立命。</a>
+</h2>
+<p>SPAM 為天地立心，為生民立命。<br><br>RE: 讲话很好，无敏感词。[哈哈] http://t.cn/RUKdb0V</p>
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
@@ -66,7 +78,7 @@
 </h2>
 <p>SPAM //@郑声乱雅乐: 金教授又开狂暴模式虐小弯弯了。//@艳艳-丫丫:嘿嘿，地动山摇式//@峰lawyer:主持人不停的冷笑“嗯呵”、嘛素质<br><br>RE: 在台湾政论节目《有话好说》中，主持人借前“陆委会”副主委林中斌之言说习马会是因“南海局势让北京很有急迫感”，金灿荣听后呵呵一笑说：“以为南海问题突出，大陆有求于台湾，这个完全错的啊，大陆在南海问题上是不指望台湾的。”http://t.cn/RUSrEaS</p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3906496352090885" target="freeweibo-mirror">「反騽陣線」在總統府前的抗議。訴求重點在於反對黑箱作業的馬習…</a>
 </h2>
@@ -125,18 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3906330664160970" target="freeweibo-mirror">SPAM 没睡的赶紧关注了</a>
 </h2>
 <p>SPAM 没睡的赶紧关注了<br><br>RE: 没睡的可以加V 訢 :ztww666 这里有新闻和电视看不见的报道！</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3906321298259727" target="freeweibo-mirror">没睡的可以加V 訢 :ztww666 这里有新闻和电视看不见…</a>
-</h2>
-<p>没睡的可以加V 訢 :ztww666 这里有新闻和电视看不见的报道！</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3906300503498223" target="freeweibo-mirror">九八年印尼事件，日本公然违反国际二战条约派遣军队强行进入印尼…</a>
-</h2>
-<p>九八年印尼事件，日本公然违反国际二战条约派遣军队强行进入印尼，用军用c130运回了日本侨民，中国在印尼至少有三千万人，美国为了营救中国华人，死伤了120多名美国军务人员，新加坡一天二十四小时全面接待中国侨胞，无偿提供住宿饮食，而它们没有出动一兵一卒，只说了一句不干涉他国内政了之<br><img src="http://ww2.sinaimg.cn/large/005xL6bbgw1exrlixzin9j30dc0a4wg5.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
