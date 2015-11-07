@@ -24,7 +24,7 @@
 </h2>
 <p>SPAM 【转发送手机】简单粗暴直接来，以#360奇酷手机#为话题转评本微博，将在11.13日从我的粉丝中抽出一位获得千元金属旗舰不二之选，双卡双待双微信双摄像头的@360奇酷手机 一部。本次活动已备案，放心转起！[来][来][来]#手机菌福利#<br><img src="http://ww4.sinaimg.cn/large/851b9922gw1exs74tualsj20u01arq8a.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3906348112240606" target="freeweibo-mirror">好办法！一烧了事！一了百了！//@杨宁远v:回复@兴奋的罗老…</a>
 </h2>
