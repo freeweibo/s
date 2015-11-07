@@ -48,13 +48,13 @@
 </h2>
 <p>SPAM 【转发送手机】简单粗暴直接来，以#360奇酷手机#为话题转评本微博，将在11.13日从我的粉丝中抽出一位获得千元金属旗舰不二之选，双卡双待双微信双摄像头的@360奇酷手机 一部。本次活动已备案，放心转起！[来][来][来]#手机菌福利#<br><img src="http://ww4.sinaimg.cn/large/851b9922gw1exs74tualsj20u01arq8a.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3906489100414690" target="freeweibo-mirror">【別以為躲到新加坡就沒事！王雲祥4人出國抗議#馬習會# 】「…</a>
 </h2>
 <p>【別以為躲到新加坡就沒事！王雲祥4人出國抗議#馬習會# 】「馬英九先生我來了！你以為躲到新加坡就沒事了嗎？」民主鬥陣王雲祥及臺左維新吳濬彥、夢由藝文工作室楊尚恩、羅宜4人7日上午飛到新加坡，抗議馬英九違背民意、毫無代表台灣人民之正當性。#ETtoday新聞雲#報導：http://t.cn/RUKSACF (mandy)<br><img src="http://ww1.sinaimg.cn/large/8b987560gw1exs62027inj20go09e75y.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3906485346581145" target="freeweibo-mirror">SPAM //@博联社马晓霖:【诺奖得否】#习马会#绝对值得…</a>
 </h2>
