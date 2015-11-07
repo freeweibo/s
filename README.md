@@ -36,7 +36,7 @@
 </h2>
 <p>「反騽陣線」在總統府前的抗議。訴求重點在於反對黑箱作業的馬習會、反對缺乏人民共識、缺乏國會監督的兩岸協議。自去年「318太陽花學運」以來，馬英九的兩岸政策遭到強烈的抵制，導致國民黨的總統及立委選舉情勢陷入苦戰。<br><img src="http://ww4.sinaimg.cn/large/5186d665gw1exs7x1qnicj21kw148jzv.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3906489355934216" target="freeweibo-mirror">SPAM 【转发送手机】简单粗暴直接来，以#360奇酷手机#…</a>
 </h2>
