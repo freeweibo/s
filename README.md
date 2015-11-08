@@ -72,7 +72,7 @@
 </h2>
 <p>[赞][赞][赞] //@深南-大盗:转发微博<br><br>RE: 目测，此帖挺不过今晚！看到的，先下载吧！[作揖][话筒]<br><img src="http://ww4.sinaimg.cn/large/55147e04gw1extoq6czayj20gu0m8t9w.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3906979888594716" target="freeweibo-mirror">SPAM “天若有情天亦老，冯导给我留张票”“嫦娥应悔偷灵药…</a>
 </h2>
