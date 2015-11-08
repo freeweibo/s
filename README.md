@@ -72,7 +72,7 @@
 </h2>
 <p>央视太没有自信啦！<br><img src="http://ww2.sinaimg.cn/large/9ddb72ebgw1extdgu7k6lj218g12jh9b.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3906835528659231" target="freeweibo-mirror">中共的发布会只有国台办张志军一人出席，而台湾却由马总统率领七…</a>
 </h2>
