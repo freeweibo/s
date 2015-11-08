@@ -26,6 +26,12 @@
 <p>
 	<small> ============== 1小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3906951345439761" target="freeweibo-mirror">打江山的后代</a>
+</h2>
+<p>打江山的后代<br><img src="http://ww1.sinaimg.cn/large/3e518583jw1exto9csnsgj20hs0vkte5.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3906940713119884" target="freeweibo-mirror">完了！此人怕是跟我们不是一条心的了。邓小平是反对毛泽东的。</a>
 </h2>
 <p>完了！此人怕是跟我们不是一条心的了。邓小平是反对毛泽东的。<br><br>RE: 昂山素季：要像“邓小平那样”治理缅甸。因为昂山素季，位于仰光的民盟总部成为了世界瞩目的中心。根据缅甸法律，昂山素季本人无法成为总统，因为她已逝的丈夫和两个儿子都有外国国籍。但昂山素季已经表明了自己的态度，无论如何，她都要领导这个国家。她的地位“将高于总统”。http://t.cn/RU9iHhz</p>
@@ -48,7 +54,7 @@
 </h2>
 <p>马英九面对记者一桩桩细细道来，就像走了一趟亲戚，回来把打听到的事情向大家交代清楚。谈到台湾人民关心的导弹问题，马英九：他说了，那不是针对我们的。——感觉全场松了一口气。哈哈。<br><br>RE: 中共的发布会只有国台办张志军一人出席，而台湾却由马总统率领七名官员亲自出席。中共的电视直播卡断了马英九的致辞。而台湾媒体绝无一家剪掉习近平的讲话。所以，台湾海峡隔绝的不是两岸人民，而是一群奴才和一群主人。<br><img src="http://ww2.sinaimg.cn/large/bfee7d06gw1extayc6leuj20g40iuabo.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3906924455929653" target="freeweibo-mirror">咳，你高兴就好[兔子]//@法治路由器: //@黑夜狐踪:不…</a>
 </h2>
@@ -72,7 +78,7 @@
 </h2>
 <p>台湾同胞们见笑了，你们不知道，我们别说看个沟，现在脖子看全都不容易了。//@魏晓军:什么时候自信过？//@李俊晓:[偷笑]//@干卫东律师: 责任在老马，讲话稿不送审，不掐你掐谁？//@纪昀:转发微博<br><br>RE: 央视太没有自信啦！<br><img src="http://ww2.sinaimg.cn/large/9ddb72ebgw1extdgu7k6lj218g12jh9b.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3906913659950005" target="freeweibo-mirror">人到中年了，还没见过选票，中国大陆何时能大选啊？[泪]</a>
 </h2>
@@ -84,7 +90,7 @@
 </h2>
 <p>【昂山素季：要像“邓小平那样”治理缅甸】民盟发言人说：每个人都会变老，昂山素季也是，但是她仍然思维非常敏捷，她也强烈地渴望在缅甸实现民主，我相信她能治理好这个国家。我们都希望缅甸成为一个民主的、和平的国家，权力能够和平交接，人们都希望变革，所以我们必须改变。http://t.cn/RU96Jcd<br><img src="http://ww4.sinaimg.cn/large/625ab309jw1extbvti147j20fa0kd75f.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3906883892647399" target="freeweibo-mirror">SPAM 不知道你们有没有把配图里的文字看完，这也是我们MV…</a>
 </h2>
@@ -132,13 +138,7 @@
 </h2>
 <p>【转发送手机】#360奇酷手机#来来来……不废话，直接来！只要转发本条微博就有机会获得千元金属指纹旗舰的@360奇酷手机 一台。11月14日开奖。@微博抽奖平台 #手机菌福利#<br><img src="http://ww1.sinaimg.cn/large/851b9922gw1ext85xyhwhj20u01arq8a.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3906746218983797" target="freeweibo-mirror">SPAM 转一下吧，多年以前看过雪村的《成都今夜将我遗弃》，…</a>
-</h2>
-<p>SPAM 转一下吧，多年以前看过雪村的《成都今夜将我遗弃》，《天堂向左，深圳向右》，最让我印象深刻的是《原谅我红尘颠倒》，文笔老练，情真意切，大俗大雅。后来有一同事和他共事过，以前好像是做过化妆品行业，特能喷。 //@LifeTime:</p>
-<p>
-	<small> ============== 1天前</small>
+	<small> ============== 12小时前</small>
 </p>
 <table>
     <tr>
