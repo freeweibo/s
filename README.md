@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3907081758985093" target="freeweibo-mirror">//@迷与悟-AwB:民族和解，总比对抗好。自由民主宪政已较…</a>
+</h2>
+<p>//@迷与悟-AwB:民族和解，总比对抗好。自由民主宪政已较成熟的台湾同胞，还会投降或屈服独裁专制的野蛮？？大陆人大可放心，台湾绝不会跟大陆逆行的。 //@尼尼的秋:<br><br>RE: 握什麼手呀？還80秒呢！你以為在談情說愛呀！人家上千顆導彈對著你，你還笑開了懷。人怎麼可以無恥下作到這種程度呢？！今天是中華民國最恥辱的一天！這一天中華民國正式向對岸的專制政權投降！別再跟我們談两岸對等，如果你敢部署一千個導彈對準中共，我就信你；否則鬼才相信你們說的對等的鬼話！转<br><img src="http://ww2.sinaimg.cn/large/006ey4zvgw1extgrwm849j30gd0ea0w7.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3907020409401726" target="freeweibo-mirror">SPAM LG新旗舰V10，在安卓阵营中算是很有创新突破的设…</a>
 </h2>
 <p>SPAM LG新旗舰V10，在安卓阵营中算是很有创新突破的设计，两侧边框使用了不锈钢设计，超耐摔。V10主屏幕采用5.7英寸2K屏，在主屏上方还有一条“长长”辅屏，分辨率为160x1040，两个屏幕可以分开显示不同的内容。而前置镜头采用了两个摄像头，可以实现120度广角自拍。<br><img src="http://ww1.sinaimg.cn/large/851b9922gw1extw30mwmfj214e0nqtco.jpg"></p>
@@ -96,13 +102,13 @@
 </h2>
 <p>咳，你高兴就好[兔子]//@法治路由器: //@黑夜狐踪:不是一个发展水平，一个是邪说控制下的封建专制，一个是民选，国之不幸，为叹息！<br><br>RE: 中共的发布会只有国台办张志军一人出席，而台湾却由马总统率领七名官员亲自出席。中共的电视直播卡断了马英九的致辞。而台湾媒体绝无一家剪掉习近平的讲话。所以，台湾海峡隔绝的不是两岸人民，而是一群奴才和一群主人。<br><img src="http://ww2.sinaimg.cn/large/bfee7d06gw1extayc6leuj20g40iuabo.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3906923776218631" target="freeweibo-mirror">//@黑夜狐踪:不是一个发展水平，一个是邪说控制下的封建专制…</a>
 </h2>
 <p>//@黑夜狐踪:不是一个发展水平，一个是邪说控制下的封建专制，一个是民选，国之不幸，为叹息！<br><br>RE: 中共的发布会只有国台办张志军一人出席，而台湾却由马总统率领七名官员亲自出席。中共的电视直播卡断了马英九的致辞。而台湾媒体绝无一家剪掉习近平的讲话。所以，台湾海峡隔绝的不是两岸人民，而是一群奴才和一群主人。<br><img src="http://ww2.sinaimg.cn/large/bfee7d06gw1extayc6leuj20g40iuabo.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3906920609709177" target="freeweibo-mirror">//@敬亭山闲人:她别狂，有本事到大陆来闹闹试试。不被寻衅滋…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3906883892647399" target="freeweibo-mirror">SPAM 不知道你们有没有把配图里的文字看完，这也是我们MV…</a>
 </h2>
 <p>SPAM 不知道你们有没有把配图里的文字看完，这也是我们MV里所表达的~</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3906881506741157" target="freeweibo-mirror">#习马会#【视频：台湾名嘴周玉蔻闹场抗议】中国大陆国台办主任…</a>
-</h2>
-<p>#习马会#【视频：台湾名嘴周玉蔻闹场抗议】中国大陆国台办主任张志军昨代表习近平发表记者会时，遭台湾名嘴周玉蔻高声闹场抗议。张志军准备离席时，周玉蔻大声问道：“你们说的‘一中原则’是不是‘一中各表’？”她还批评主办方在点名提问时设定对象，怒呛“新闻自由在哪里啊？”http://t.cn/RUChAKf<br><img src="http://ww4.sinaimg.cn/large/6298156bgw1extg92kpl6j20d40hgwfd.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
