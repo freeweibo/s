@@ -30,7 +30,7 @@
 </h2>
 <p>SPAM 香港割让了，所以才有回归。两岸是分裂了，只能统一，不存在谁回归谁。//@郑维:回复@忒么贱兮兮:你乐观了//@忒么贱兮兮:今晚看了 海峡两岸纪事 只希望我有生之年 能看到台湾回归 几代领导人的努力 几代人的一生的遗憾 看完真觉得有些心酸<br><br>RE: 看完#习马会# 蔡英文如是说：<br><img src="http://ww2.sinaimg.cn/large/6d0b6b33gw1exsqucqn3hj20oz18gakd.jpg"></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3906701662855579" target="freeweibo-mirror">SPAM  //@沪港小生:[围观]</a>
 </h2>
@@ -60,7 +60,7 @@
 </h2>
 <p>这边重唱白毛女，那边开了习马会。三生三世的历史，怎受得“教训”两字？</p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3906678632335324" target="freeweibo-mirror">小秘书手一挥，下架。//@北极熊号://@但斌: //@差等…</a>
 </h2>
@@ -84,13 +84,13 @@
 </h2>
 <p>SPAM 我忘了…… //@盘子微谈:[哈哈]//@顾峰: [哈哈] //@迟夙生律师: //@陶赟-法国:[哈哈] //@黔山鹰:基本上是这个样子！<br><br>RE: 今晚满屏都是“多么伟大…”、“70年重现…”、“改写历史…”云云的矫情话，其实小崔想说的是70年前他们谈完以后就打起来了好么。[挖鼻][挖鼻][挖鼻]<br><img src="http://ww4.sinaimg.cn/large/9e2074a7gw1exspp5e2rfj20gr0bfaaw.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3906666443607639" target="freeweibo-mirror">SPAM 满满的正能量[good]</a>
 </h2>
 <p>SPAM 满满的正能量[good]<br><br>RE: 今晚满屏都是“多么伟大…”、“70年重现…”、“改写历史…”云云的矫情话，其实小崔想说的是70年前他们谈完以后就打起来了好么。[挖鼻][挖鼻][挖鼻]<br><img src="http://ww4.sinaimg.cn/large/9e2074a7gw1exspp5e2rfj20gr0bfaaw.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3906660249073189" target="freeweibo-mirror">看完#习马会# 蔡英文如是说：</a>
 </h2>
