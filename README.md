@@ -68,6 +68,12 @@
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3906900812656142" target="freeweibo-mirror">【昂山素季：要像“邓小平那样”治理缅甸】民盟发言人说：每个人…</a>
+</h2>
+<p>【昂山素季：要像“邓小平那样”治理缅甸】民盟发言人说：每个人都会变老，昂山素季也是，但是她仍然思维非常敏捷，她也强烈地渴望在缅甸实现民主，我相信她能治理好这个国家。我们都希望缅甸成为一个民主的、和平的国家，权力能够和平交接，人们都希望变革，所以我们必须改变。http://t.cn/RU96Jcd<br><img src="http://ww4.sinaimg.cn/large/625ab309jw1extbvti147j20fa0kd75f.jpg"></p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3906883892647399" target="freeweibo-mirror">SPAM 不知道你们有没有把配图里的文字看完，这也是我们MV…</a>
 </h2>
 <p>SPAM 不知道你们有没有把配图里的文字看完，这也是我们MV里所表达的~</p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3906701662855579" target="freeweibo-mirror">SPAM  //@沪港小生:[围观]</a>
 </h2>
 <p>SPAM  //@沪港小生:[围观]<br><br>RE: 看完#习马会# 蔡英文如是说：<br><img src="http://ww2.sinaimg.cn/large/6d0b6b33gw1exsqucqn3hj20oz18gakd.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3906699968554243" target="freeweibo-mirror">SPAM  //@2885542665_856:这话得跟二千…</a>
-</h2>
-<p>SPAM  //@2885542665_856:这话得跟二千三百万台湾人说，选票在人家手里。要不开放两岸直选，大陆人都不投她的票？//@韩迪deaham:希望民进党不要选举获胜，还是摆脱不了“逢中必反”。<br><br>RE: 蔡英文facebook<br><img src="http://ww1.sinaimg.cn/large/c1d2c5a4jw1exspm1xalkj20dk0jrwjc.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
