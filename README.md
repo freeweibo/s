@@ -42,7 +42,7 @@
 </h2>
 <p>SPAM LG新旗舰V10，在安卓阵营中算是很有创新突破的设计，两侧边框使用了不锈钢设计，超耐摔。V10主屏幕采用5.7英寸2K屏，在主屏上方还有一条“长长”辅屏，分辨率为160x1040，两个屏幕可以分开显示不同的内容。而前置镜头采用了两个摄像头，可以实现120度广角自拍。<br><img src="http://ww1.sinaimg.cn/large/851b9922gw1extw30mwmfj214e0nqtco.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3907013257734689" target="freeweibo-mirror">//@红岛渔民:此微博不宜公开</a>
 </h2>
