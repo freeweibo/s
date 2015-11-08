@@ -30,7 +30,7 @@
 </h2>
 <p>//@红岛渔民:此微博不宜公开<br><br>RE: 目测，此帖挺不过今晚！看到的，先下载吧！[作揖][话筒]<br><img src="http://ww4.sinaimg.cn/large/55147e04gw1extoq6czayj20gu0m8t9w.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3907003762390133" target="freeweibo-mirror">//@野靖春9: 转发微博</a>
 </h2>
@@ -126,7 +126,7 @@
 </h2>
 <p>【昂山素季：要像“邓小平那样”治理缅甸】民盟发言人说：每个人都会变老，昂山素季也是，但是她仍然思维非常敏捷，她也强烈地渴望在缅甸实现民主，我相信她能治理好这个国家。我们都希望缅甸成为一个民主的、和平的国家，权力能够和平交接，人们都希望变革，所以我们必须改变。http://t.cn/RU96Jcd<br><img src="http://ww4.sinaimg.cn/large/625ab309jw1extbvti147j20fa0kd75f.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3906883892647399" target="freeweibo-mirror">SPAM 不知道你们有没有把配图里的文字看完，这也是我们MV…</a>
 </h2>
