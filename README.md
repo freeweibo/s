@@ -60,7 +60,7 @@
 </h2>
 <p>习总这次把和平意愿展示给全球了，下一步，蔡女若上台搞台独，就必须承担腥风血雨的责任了。//@忠浪:蔡女过份的任性凭感觉，没有政治人物的气量。//@诸子百家之一:台湾人民若真选择蔡当“总统”，被她带往台独路，两岸离爆发战争就不远了。//@月隐寒霜：蔡女士蠻激進，實際這樣給台灣未來帶來的變數<br><br>RE: 蔡英文facebook<br><img src="http://ww1.sinaimg.cn/large/c1d2c5a4jw1exspm1xalkj20dk0jrwjc.jpg"></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3906694578573986" target="freeweibo-mirror">[围观]//@整合之道刘鸿雁:[ok][赞]</a>
 </h2>
