@@ -36,7 +36,7 @@
 </h2>
 <p>SPAM 转一下吧，多年以前看过雪村的《成都今夜将我遗弃》，《天堂向左，深圳向右》，最让我印象深刻的是《原谅我红尘颠倒》，文笔老练，情真意切，大俗大雅。后来有一同事和他共事过，以前好像是做过化妆品行业，特能喷。 //@LifeTime:</p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3906703562824330" target="freeweibo-mirror">SPAM 香港割让了，所以才有回归。两岸是分裂了，只能统一，…</a>
 </h2>
@@ -48,7 +48,7 @@
 </h2>
 <p>SPAM  //@沪港小生:[围观]<br><br>RE: 看完#习马会# 蔡英文如是说：<br><img src="http://ww2.sinaimg.cn/large/6d0b6b33gw1exsqucqn3hj20oz18gakd.jpg"></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3906699968554243" target="freeweibo-mirror">SPAM  //@2885542665_856:这话得跟二千…</a>
 </h2>
@@ -78,13 +78,13 @@
 </h2>
 <p>小秘书手一挥，下架。//@北极熊号://@但斌: //@差等生:小心被小秘书删[笑cry]<br><br>RE: 毛爷爷手一挥，下乡……邓爷爷手一挥，下海……江爷爷手一挥，下岗……习大大手一挥，下崽 [偷笑][偷笑][偷笑]<br><img src="http://ww1.sinaimg.cn/large/4396c094jw1exsj01d903j20hs0nxdi0.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3906678431103875" target="freeweibo-mirror">回复@谢轶群:我相信蔡是一为称职的民主教师，但她并不见得会是…</a>
 </h2>
 <p>回复@谢轶群:我相信蔡是一为称职的民主教师，但她并不见得会是一位能够驾驭复杂局面、给全体台湾人民带来福祉和祥和的政治家。 //@谢轶群:她讲得很深刻呀 //@郑州范强:成熟的民主体制下，大党之间可以相互杯葛，制衡纠偏优化治理，但很少有完全否定对方撕裂社会的。为蔡英文担忧。[汗]<br><br>RE: 蔡英文facebook<br><img src="http://ww1.sinaimg.cn/large/c1d2c5a4jw1exspm1xalkj20dk0jrwjc.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3906672189544025" target="freeweibo-mirror">成熟的民主体制下，大党之间可以相互杯葛，制衡纠偏优化治理，但…</a>
 </h2>
