@@ -42,7 +42,7 @@
 </h2>
 <p>SPAM 香港割让了，所以才有回归。两岸是分裂了，只能统一，不存在谁回归谁。//@郑维:回复@忒么贱兮兮:你乐观了//@忒么贱兮兮:今晚看了 海峡两岸纪事 只希望我有生之年 能看到台湾回归 几代领导人的努力 几代人的一生的遗憾 看完真觉得有些心酸<br><br>RE: 看完#习马会# 蔡英文如是说：<br><img src="http://ww2.sinaimg.cn/large/6d0b6b33gw1exsqucqn3hj20oz18gakd.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3906701662855579" target="freeweibo-mirror">SPAM  //@沪港小生:[围观]</a>
 </h2>
@@ -60,7 +60,7 @@
 </h2>
 <p>习总这次把和平意愿展示给全球了，下一步，蔡女若上台搞台独，就必须承担腥风血雨的责任了。//@忠浪:蔡女过份的任性凭感觉，没有政治人物的气量。//@诸子百家之一:台湾人民若真选择蔡当“总统”，被她带往台独路，两岸离爆发战争就不远了。//@月隐寒霜：蔡女士蠻激進，實際這樣給台灣未來帶來的變數<br><br>RE: 蔡英文facebook<br><img src="http://ww1.sinaimg.cn/large/c1d2c5a4jw1exspm1xalkj20dk0jrwjc.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3906694578573986" target="freeweibo-mirror">[围观]//@整合之道刘鸿雁:[ok][赞]</a>
 </h2>
