@@ -38,6 +38,12 @@
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3906979888594716" target="freeweibo-mirror">SPAM “天若有情天亦老，冯导给我留张票”“嫦娥应悔偷灵药…</a>
+</h2>
+<p>SPAM “天若有情天亦老，冯导给我留张票”“嫦娥应悔偷灵药，冯导给我留张票”“我自横刀向天笑，冯导给我留张票”……</p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3906976700282786" target="freeweibo-mirror">//@战争史研究WHS:然而考虑到老东西们基本全都上六十了，…</a>
 </h2>
 <p>//@战争史研究WHS:然而考虑到老东西们基本全都上六十了，所以倒不十分可怕。可怕的是前些年二十几岁的林立果式“超天才”险些在西红市重新降世 http://t.cn/RUCQghU老东西们不过是把文革初期闹“联动”时的红色血统论重新温习一遍，回顾血色青春罢了。跟红歌广场舞什么的是一个性质<br><br>RE: 打江山的后代<br><img src="http://ww1.sinaimg.cn/large/3e518583jw1exto9csnsgj20hs0vkte5.jpg"></p>
@@ -48,7 +54,7 @@
 </h2>
 <p>目测，此帖挺不过今晚！看到的，先下载吧！[作揖][话筒]<br><img src="http://ww4.sinaimg.cn/large/55147e04gw1extoq6czayj20gu0m8t9w.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3906951345439761" target="freeweibo-mirror">打江山的后代</a>
 </h2>
@@ -60,7 +66,7 @@
 </h2>
 <p>完了！此人怕是跟我们不是一条心的了。邓小平是反对毛泽东的。<br><br>RE: 昂山素季：要像“邓小平那样”治理缅甸。因为昂山素季，位于仰光的民盟总部成为了世界瞩目的中心。根据缅甸法律，昂山素季本人无法成为总统，因为她已逝的丈夫和两个儿子都有外国国籍。但昂山素季已经表明了自己的态度，无论如何，她都要领导这个国家。她的地位“将高于总统”。http://t.cn/RU9iHhz</p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3906937290495395" target="freeweibo-mirror">完了！此人恐怕跟我们不是一心了————【昂山素季：要像“邓小…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3906860140282629" target="freeweibo-mirror">SPAM  #手机菌福利#终于正常了，来吧</a>
 </h2>
 <p>SPAM  #手机菌福利#终于正常了，来吧<br><br>RE: 【转发送手机】#360奇酷手机#来来来……不废话，直接来！只要转发本条微博就有机会获得千元金属指纹旗舰的@360奇酷手机 一台。11月14日开奖。@微博抽奖平台 #手机菌福利#<br><img src="http://ww1.sinaimg.cn/large/851b9922gw1ext85xyhwhj20u01arq8a.jpg"></p>
-<p>
-	<small> ============== 12小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3906857242305671" target="freeweibo-mirror">央视太没有自信啦！</a>
-</h2>
-<p>央视太没有自信啦！<br><img src="http://ww2.sinaimg.cn/large/9ddb72ebgw1extdgu7k6lj218g12jh9b.jpg"></p>
 <p>
 	<small> ============== 12小时前</small>
 </p>
