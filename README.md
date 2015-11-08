@@ -26,6 +26,18 @@
 <p>
 	<small> ============== 1小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3907074427271536" target="freeweibo-mirror">//@越来越恨蒋中正: //@親愛精誠CBI://@清风柳树…</a>
+</h2>
+<p>//@越来越恨蒋中正: //@親愛精誠CBI://@清风柳树林:这就是民主与独裁的最好诠释，表面看这些年人民好像什么都有了，实则缺少最根本的被尊重和知情权。//@親愛精誠CBI:转发微博</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3907037408560389" target="freeweibo-mirror">//@邓相超: //@鲲鹏展翅qd: //@zideng12…</a>
+</h2>
+<p>//@邓相超: //@鲲鹏展翅qd: //@zideng121y://@积极的天不怕:毛是独裁者不假，但他和他的那个党已经被神化，分不开了！为了党能继续执政，只能把毛和四人帮分开！这是中国人甚至外国人都明白的事//@手机用户1949827151://@六股河的风:@毛派必胜16@XXLSH2014F</p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3907020409401726" target="freeweibo-mirror">SPAM LG新旗舰V10，在安卓阵营中算是很有创新突破的设…</a>
 </h2>
 <p>SPAM LG新旗舰V10，在安卓阵营中算是很有创新突破的设计，两侧边框使用了不锈钢设计，超耐摔。V10主屏幕采用5.7英寸2K屏，在主屏上方还有一条“长长”辅屏，分辨率为160x1040，两个屏幕可以分开显示不同的内容。而前置镜头采用了两个摄像头，可以实现120度广角自拍。<br><img src="http://ww1.sinaimg.cn/large/851b9922gw1extw30mwmfj214e0nqtco.jpg"></p>
@@ -66,7 +78,7 @@
 </h2>
 <p>目测，此帖挺不过今晚！看到的，先下载吧！[作揖][话筒]<br><img src="http://ww4.sinaimg.cn/large/55147e04gw1extoq6czayj20gu0m8t9w.jpg"></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3906951345439761" target="freeweibo-mirror">打江山的后代</a>
 </h2>
@@ -78,7 +90,7 @@
 </h2>
 <p>完了！此人怕是跟我们不是一条心的了。邓小平是反对毛泽东的。<br><br>RE: 昂山素季：要像“邓小平那样”治理缅甸。因为昂山素季，位于仰光的民盟总部成为了世界瞩目的中心。根据缅甸法律，昂山素季本人无法成为总统，因为她已逝的丈夫和两个儿子都有外国国籍。但昂山素季已经表明了自己的态度，无论如何，她都要领导这个国家。她的地位“将高于总统”。http://t.cn/RU9iHhz</p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3906937290495395" target="freeweibo-mirror">完了！此人恐怕跟我们不是一心了————【昂山素季：要像“邓小…</a>
 </h2>
@@ -125,18 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3906913659950005" target="freeweibo-mirror">人到中年了，还没见过选票，中国大陆何时能大选啊？[泪]</a>
 </h2>
 <p>人到中年了，还没见过选票，中国大陆何时能大选啊？[泪]<br><br>RE: 【昂山素季：要像“邓小平那样”治理缅甸】民盟发言人说：每个人都会变老，昂山素季也是，但是她仍然思维非常敏捷，她也强烈地渴望在缅甸实现民主，我相信她能治理好这个国家。我们都希望缅甸成为一个民主的、和平的国家，权力能够和平交接，人们都希望变革，所以我们必须改变。http://t.cn/RU96Jcd<br><img src="http://ww4.sinaimg.cn/large/625ab309jw1extbvti147j20fa0kd75f.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3906900812656142" target="freeweibo-mirror">【昂山素季：要像“邓小平那样”治理缅甸】民盟发言人说：每个人…</a>
-</h2>
-<p>【昂山素季：要像“邓小平那样”治理缅甸】民盟发言人说：每个人都会变老，昂山素季也是，但是她仍然思维非常敏捷，她也强烈地渴望在缅甸实现民主，我相信她能治理好这个国家。我们都希望缅甸成为一个民主的、和平的国家，权力能够和平交接，人们都希望变革，所以我们必须改变。http://t.cn/RU96Jcd<br><img src="http://ww4.sinaimg.cn/large/625ab309jw1extbvti147j20fa0kd75f.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3906883892647399" target="freeweibo-mirror">SPAM 不知道你们有没有把配图里的文字看完，这也是我们MV…</a>
-</h2>
-<p>SPAM 不知道你们有没有把配图里的文字看完，这也是我们MV里所表达的~</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
