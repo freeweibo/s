@@ -42,7 +42,7 @@
 </h2>
 <p>SPAM 香港割让了，所以才有回归。两岸是分裂了，只能统一，不存在谁回归谁。//@郑维:回复@忒么贱兮兮:你乐观了//@忒么贱兮兮:今晚看了 海峡两岸纪事 只希望我有生之年 能看到台湾回归 几代领导人的努力 几代人的一生的遗憾 看完真觉得有些心酸<br><br>RE: 看完#习马会# 蔡英文如是说：<br><img src="http://ww2.sinaimg.cn/large/6d0b6b33gw1exsqucqn3hj20oz18gakd.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3906701662855579" target="freeweibo-mirror">SPAM  //@沪港小生:[围观]</a>
 </h2>
