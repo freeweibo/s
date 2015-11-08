@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3907020409401726" target="freeweibo-mirror">SPAM LG新旗舰V10，在安卓阵营中算是很有创新突破的设…</a>
+</h2>
+<p>SPAM LG新旗舰V10，在安卓阵营中算是很有创新突破的设计，两侧边框使用了不锈钢设计，超耐摔。V10主屏幕采用5.7英寸2K屏，在主屏上方还有一条“长长”辅屏，分辨率为160x1040，两个屏幕可以分开显示不同的内容。而前置镜头采用了两个摄像头，可以实现120度广角自拍。<br><img src="http://ww1.sinaimg.cn/large/851b9922gw1extw30mwmfj214e0nqtco.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3907013257734689" target="freeweibo-mirror">//@红岛渔民:此微博不宜公开</a>
 </h2>
 <p>//@红岛渔民:此微博不宜公开<br><br>RE: 目测，此帖挺不过今晚！看到的，先下载吧！[作揖][话筒]<br><img src="http://ww4.sinaimg.cn/large/55147e04gw1extoq6czayj20gu0m8t9w.jpg"></p>
@@ -90,13 +96,13 @@
 </h2>
 <p>咳，你高兴就好[兔子]//@法治路由器: //@黑夜狐踪:不是一个发展水平，一个是邪说控制下的封建专制，一个是民选，国之不幸，为叹息！<br><br>RE: 中共的发布会只有国台办张志军一人出席，而台湾却由马总统率领七名官员亲自出席。中共的电视直播卡断了马英九的致辞。而台湾媒体绝无一家剪掉习近平的讲话。所以，台湾海峡隔绝的不是两岸人民，而是一群奴才和一群主人。<br><img src="http://ww2.sinaimg.cn/large/bfee7d06gw1extayc6leuj20g40iuabo.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3906923776218631" target="freeweibo-mirror">//@黑夜狐踪:不是一个发展水平，一个是邪说控制下的封建专制…</a>
 </h2>
 <p>//@黑夜狐踪:不是一个发展水平，一个是邪说控制下的封建专制，一个是民选，国之不幸，为叹息！<br><br>RE: 中共的发布会只有国台办张志军一人出席，而台湾却由马总统率领七名官员亲自出席。中共的电视直播卡断了马英九的致辞。而台湾媒体绝无一家剪掉习近平的讲话。所以，台湾海峡隔绝的不是两岸人民，而是一群奴才和一群主人。<br><img src="http://ww2.sinaimg.cn/large/bfee7d06gw1extayc6leuj20g40iuabo.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3906920609709177" target="freeweibo-mirror">//@敬亭山闲人:她别狂，有本事到大陆来闹闹试试。不被寻衅滋…</a>
 </h2>
@@ -133,12 +139,6 @@
 <p>#习马会#【视频：台湾名嘴周玉蔻闹场抗议】中国大陆国台办主任张志军昨代表习近平发表记者会时，遭台湾名嘴周玉蔻高声闹场抗议。张志军准备离席时，周玉蔻大声问道：“你们说的‘一中原则’是不是‘一中各表’？”她还批评主办方在点名提问时设定对象，怒呛“新闻自由在哪里啊？”http://t.cn/RUChAKf<br><img src="http://ww4.sinaimg.cn/large/6298156bgw1extg92kpl6j20d40hgwfd.jpg"></p>
 <p>
 	<small> ============== 11小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3906860140282629" target="freeweibo-mirror">SPAM  #手机菌福利#终于正常了，来吧</a>
-</h2>
-<p>SPAM  #手机菌福利#终于正常了，来吧<br><br>RE: 【转发送手机】#360奇酷手机#来来来……不废话，直接来！只要转发本条微博就有机会获得千元金属指纹旗舰的@360奇酷手机 一台。11月14日开奖。@微博抽奖平台 #手机菌福利#<br><img src="http://ww1.sinaimg.cn/large/851b9922gw1ext85xyhwhj20u01arq8a.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
 </p>
 <table>
     <tr>
