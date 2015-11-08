@@ -54,7 +54,7 @@
 </h2>
 <p>//@野靖春9: 转发微博<br><br>RE: 目测，此帖挺不过今晚！看到的，先下载吧！[作揖][话筒]<br><img src="http://ww4.sinaimg.cn/large/55147e04gw1extoq6czayj20gu0m8t9w.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3906993028752024" target="freeweibo-mirror">[赞][赞][赞] //@深南-大盗:转发微博</a>
 </h2>
@@ -126,7 +126,7 @@
 </h2>
 <p>//@敬亭山闲人:她别狂，有本事到大陆来闹闹试试。不被寻衅滋事，起码扰乱治安！<br><br>RE: #习马会#【视频：台湾名嘴周玉蔻闹场抗议】中国大陆国台办主任张志军昨代表习近平发表记者会时，遭台湾名嘴周玉蔻高声闹场抗议。张志军准备离席时，周玉蔻大声问道：“你们说的‘一中原则’是不是‘一中各表’？”她还批评主办方在点名提问时设定对象，怒呛“新闻自由在哪里啊？”http://t.cn/RUChAKf<br><img src="http://ww4.sinaimg.cn/large/6298156bgw1extg92kpl6j20d40hgwfd.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3906914922130286" target="freeweibo-mirror">台湾同胞们见笑了，你们不知道，我们别说看个沟，现在脖子看全都…</a>
 </h2>
