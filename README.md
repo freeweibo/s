@@ -24,7 +24,7 @@
 </h2>
 <p>SPAM LG新旗舰V10，在安卓阵营中算是很有创新突破的设计，两侧边框使用了不锈钢设计，超耐摔。V10主屏幕采用5.7英寸2K屏，在主屏上方还有一条“长长”辅屏，分辨率为160x1040，两个屏幕可以分开显示不同的内容。而前置镜头采用了两个摄像头，可以实现120度广角自拍。<br><img src="http://ww1.sinaimg.cn/large/851b9922gw1extw30mwmfj214e0nqtco.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3907013257734689" target="freeweibo-mirror">//@红岛渔民:此微博不宜公开</a>
 </h2>
@@ -120,7 +120,7 @@
 </h2>
 <p>人到中年了，还没见过选票，中国大陆何时能大选啊？[泪]<br><br>RE: 【昂山素季：要像“邓小平那样”治理缅甸】民盟发言人说：每个人都会变老，昂山素季也是，但是她仍然思维非常敏捷，她也强烈地渴望在缅甸实现民主，我相信她能治理好这个国家。我们都希望缅甸成为一个民主的、和平的国家，权力能够和平交接，人们都希望变革，所以我们必须改变。http://t.cn/RU96Jcd<br><img src="http://ww4.sinaimg.cn/large/625ab309jw1extbvti147j20fa0kd75f.jpg"></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3906900812656142" target="freeweibo-mirror">【昂山素季：要像“邓小平那样”治理缅甸】民盟发言人说：每个人…</a>
 </h2>
@@ -132,7 +132,7 @@
 </h2>
 <p>SPAM 不知道你们有没有把配图里的文字看完，这也是我们MV里所表达的~</p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3906881506741157" target="freeweibo-mirror">#习马会#【视频：台湾名嘴周玉蔻闹场抗议】中国大陆国台办主任…</a>
 </h2>
