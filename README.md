@@ -90,7 +90,7 @@
 </h2>
 <p>#习马会#【视频：台湾名嘴周玉蔻闹场抗议】中国大陆国台办主任张志军昨代表习近平发表记者会时，遭台湾名嘴周玉蔻高声闹场抗议。张志军准备离席时，周玉蔻大声问道：“你们说的‘一中原则’是不是‘一中各表’？”她还批评主办方在点名提问时设定对象，怒呛“新闻自由在哪里啊？”http://t.cn/RUChAKf<br><img src="http://ww4.sinaimg.cn/large/6298156bgw1extg92kpl6j20d40hgwfd.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3906860140282629" target="freeweibo-mirror">SPAM  #手机菌福利#终于正常了，来吧</a>
 </h2>
@@ -108,7 +108,7 @@
 </h2>
 <p>中共的发布会只有国台办张志军一人出席，而台湾却由马总统率领七名官员亲自出席。中共的电视直播卡断了马英九的致辞。而台湾媒体绝无一家剪掉习近平的讲话。所以，台湾海峡隔绝的不是两岸人民，而是一群奴才和一群主人。<br><img src="http://ww2.sinaimg.cn/large/bfee7d06gw1extayc6leuj20g40iuabo.jpg"></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3906829928956702" target="freeweibo-mirror">哪怕被打成阿奇那，塞思黑，我毕竟是爱新觉罗的子孙//@The…</a>
 </h2>
