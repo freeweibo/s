@@ -26,6 +26,12 @@
 <p>
 	<small> ============== 1小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3906829144920149" target="freeweibo-mirror">//@老酒葫芦007://@上尉BD7MTJ:13亿国民脚下…</a>
+</h2>
+<p>//@老酒葫芦007://@上尉BD7MTJ:13亿国民脚下的土地是抗日战争中死去的先烈们”用头颅鲜血赢来“的吧。 //@bg7oye转世://@冰城壹梦:[挖鼻]<br><br>RE: 高岗儿子高燕生自称”骨子里流着红色的血“，虽未入党但永远都是党员，对党有“砸断了骨头连着筋的感情“，并说：13亿国民脚下的土地是他父辈”用头颅鲜血赢来“的。这意思是告诉我们：他和薄习一样，是天然的、永远的房东，而我们不过是一群临时租客。不知你听后什么感觉，反正我觉得有点恐怖。<br><img src="http://ww2.sinaimg.cn/large/005Wujregw1exr7kyh26vj30go0bumz7.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3906746218983797" target="freeweibo-mirror">SPAM 转一下吧，多年以前看过雪村的《成都今夜将我遗弃》，…</a>
 </h2>
 <p>SPAM 转一下吧，多年以前看过雪村的《成都今夜将我遗弃》，《天堂向左，深圳向右》，最让我印象深刻的是《原谅我红尘颠倒》，文笔老练，情真意切，大俗大雅。后来有一同事和他共事过，以前好像是做过化妆品行业，特能喷。 //@LifeTime:</p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3906633748649139" target="freeweibo-mirror">SPAM 正是一字之妙，尽得风流[赞]</a>
 </h2>
 <p>SPAM 正是一字之妙，尽得风流[赞]</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3906632167993412" target="freeweibo-mirror">SPAM  //@胡戈:现在的台湾人已经忘了CCP的厉害了，…</a>
-</h2>
-<p>SPAM  //@胡戈:现在的台湾人已经忘了CCP的厉害了，界这个机会让他们感受一下<br><br>RE: 分享图片<br><img src="http://ww1.sinaimg.cn/large/65cfb01djw1exslmi0p4xj20f00qowhg.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
