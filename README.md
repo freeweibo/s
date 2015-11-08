@@ -30,7 +30,7 @@
 </h2>
 <p>//@野靖春9: 转发微博<br><br>RE: 目测，此帖挺不过今晚！看到的，先下载吧！[作揖][话筒]<br><img src="http://ww4.sinaimg.cn/large/55147e04gw1extoq6czayj20gu0m8t9w.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3906993028752024" target="freeweibo-mirror">[赞][赞][赞] //@深南-大盗:转发微博</a>
 </h2>
@@ -138,7 +138,7 @@
 </h2>
 <p>SPAM  #手机菌福利#终于正常了，来吧<br><br>RE: 【转发送手机】#360奇酷手机#来来来……不废话，直接来！只要转发本条微博就有机会获得千元金属指纹旗舰的@360奇酷手机 一台。11月14日开奖。@微博抽奖平台 #手机菌福利#<br><img src="http://ww1.sinaimg.cn/large/851b9922gw1ext85xyhwhj20u01arq8a.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p>
 <table>
     <tr>
