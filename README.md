@@ -54,7 +54,7 @@
 </h2>
 <p>[围观]//@整合之道刘鸿雁:[ok][赞]<br><br>RE: 央视直播习马会，生生把历史一刻变成了历史半刻 [哈哈]</p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3906688224495406" target="freeweibo-mirror">这边重唱白毛女，那边开了习马会。三生三世的历史，怎受得“教训…</a>
 </h2>
@@ -108,7 +108,7 @@
 </h2>
 <p>蔡英文facebook<br><img src="http://ww1.sinaimg.cn/large/c1d2c5a4jw1exspm1xalkj20dk0jrwjc.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3906645647901115" target="freeweibo-mirror">SPAM //@深圳彭国永: [疑问]//@王亚军北京: 妄…</a>
 </h2>
