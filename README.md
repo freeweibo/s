@@ -30,7 +30,7 @@
 </h2>
 <p>//@老酒葫芦007://@上尉BD7MTJ:13亿国民脚下的土地是抗日战争中死去的先烈们”用头颅鲜血赢来“的吧。 //@bg7oye转世://@冰城壹梦:[挖鼻]<br><br>RE: 高岗儿子高燕生自称”骨子里流着红色的血“，虽未入党但永远都是党员，对党有“砸断了骨头连着筋的感情“，并说：13亿国民脚下的土地是他父辈”用头颅鲜血赢来“的。这意思是告诉我们：他和薄习一样，是天然的、永远的房东，而我们不过是一群临时租客。不知你听后什么感觉，反正我觉得有点恐怖。<br><img src="http://ww2.sinaimg.cn/large/005Wujregw1exr7kyh26vj30go0bumz7.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3906746218983797" target="freeweibo-mirror">SPAM 转一下吧，多年以前看过雪村的《成都今夜将我遗弃》，…</a>
 </h2>
@@ -54,7 +54,7 @@
 </h2>
 <p>SPAM  //@2885542665_856:这话得跟二千三百万台湾人说，选票在人家手里。要不开放两岸直选，大陆人都不投她的票？//@韩迪deaham:希望民进党不要选举获胜，还是摆脱不了“逢中必反”。<br><br>RE: 蔡英文facebook<br><img src="http://ww1.sinaimg.cn/large/c1d2c5a4jw1exspm1xalkj20dk0jrwjc.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3906696218613639" target="freeweibo-mirror">习总这次把和平意愿展示给全球了，下一步，蔡女若上台搞台独，就…</a>
 </h2>
