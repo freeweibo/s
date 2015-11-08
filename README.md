@@ -24,7 +24,7 @@
 </h2>
 <p>马英九面对记者一桩桩细细道来，就像走了一趟亲戚，回来把打听到的事情向大家交代清楚。谈到台湾人民关心的导弹问题，马英九：他说了，那不是针对我们的。——感觉全场松了一口气。哈哈。<br><br>RE: 中共的发布会只有国台办张志军一人出席，而台湾却由马总统率领七名官员亲自出席。中共的电视直播卡断了马英九的致辞。而台湾媒体绝无一家剪掉习近平的讲话。所以，台湾海峡隔绝的不是两岸人民，而是一群奴才和一群主人。<br><img src="http://ww2.sinaimg.cn/large/bfee7d06gw1extayc6leuj20g40iuabo.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3906924455929653" target="freeweibo-mirror">咳，你高兴就好[兔子]//@法治路由器: //@黑夜狐踪:不…</a>
 </h2>
@@ -48,7 +48,7 @@
 </h2>
 <p>台湾同胞们见笑了，你们不知道，我们别说看个沟，现在脖子看全都不容易了。//@魏晓军:什么时候自信过？//@李俊晓:[偷笑]//@干卫东律师: 责任在老马，讲话稿不送审，不掐你掐谁？//@纪昀:转发微博<br><br>RE: 央视太没有自信啦！<br><img src="http://ww2.sinaimg.cn/large/9ddb72ebgw1extdgu7k6lj218g12jh9b.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3906883892647399" target="freeweibo-mirror">SPAM 不知道你们有没有把配图里的文字看完，这也是我们MV…</a>
 </h2>
@@ -65,6 +65,12 @@
 	<a href="https://freeweibo.com/weibo/3906860140282629" target="freeweibo-mirror">SPAM  #手机菌福利#终于正常了，来吧</a>
 </h2>
 <p>SPAM  #手机菌福利#终于正常了，来吧<br><br>RE: 【转发送手机】#360奇酷手机#来来来……不废话，直接来！只要转发本条微博就有机会获得千元金属指纹旗舰的@360奇酷手机 一台。11月14日开奖。@微博抽奖平台 #手机菌福利#<br><img src="http://ww1.sinaimg.cn/large/851b9922gw1ext85xyhwhj20u01arq8a.jpg"></p>
+<p>
+	<small> ============== 6小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3906857242305671" target="freeweibo-mirror">央视太没有自信啦！</a>
+</h2>
+<p>央视太没有自信啦！<br><img src="http://ww2.sinaimg.cn/large/9ddb72ebgw1extdgu7k6lj218g12jh9b.jpg"></p>
 <p>
 	<small> ============== 6小时前</small>
 </p><h2>
@@ -90,7 +96,7 @@
 </h2>
 <p>【转发送手机】#360奇酷手机#来来来……不废话，直接来！只要转发本条微博就有机会获得千元金属指纹旗舰的@360奇酷手机 一台。11月14日开奖。@微博抽奖平台 #手机菌福利#<br><img src="http://ww1.sinaimg.cn/large/851b9922gw1ext85xyhwhj20u01arq8a.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3906746218983797" target="freeweibo-mirror">SPAM 转一下吧，多年以前看过雪村的《成都今夜将我遗弃》，…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3906688224495406" target="freeweibo-mirror">这边重唱白毛女，那边开了习马会。三生三世的历史，怎受得“教训…</a>
 </h2>
 <p>这边重唱白毛女，那边开了习马会。三生三世的历史，怎受得“教训”两字？</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3906678632335324" target="freeweibo-mirror">小秘书手一挥，下架。//@北极熊号://@但斌: //@差等…</a>
-</h2>
-<p>小秘书手一挥，下架。//@北极熊号://@但斌: //@差等生:小心被小秘书删[笑cry]<br><br>RE: 毛爷爷手一挥，下乡……邓爷爷手一挥，下海……江爷爷手一挥，下岗……习大大手一挥，下崽 [偷笑][偷笑][偷笑]<br><img src="http://ww1.sinaimg.cn/large/4396c094jw1exsj01d903j20hs0nxdi0.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
