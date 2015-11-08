@@ -66,7 +66,7 @@
 </h2>
 <p>[围观]//@整合之道刘鸿雁:[ok][赞]<br><br>RE: 央视直播习马会，生生把历史一刻变成了历史半刻 [哈哈]</p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3906688224495406" target="freeweibo-mirror">这边重唱白毛女，那边开了习马会。三生三世的历史，怎受得“教训…</a>
 </h2>
@@ -90,7 +90,7 @@
 </h2>
 <p>成熟的民主体制下，大党之间可以相互杯葛，制衡纠偏优化治理，但很少有完全否定对方撕裂社会的。为蔡英文担忧。[汗]//@乔乔是个小魔怪她爸也萌萌哒<br><br>RE: 蔡英文facebook<br><img src="http://ww1.sinaimg.cn/large/c1d2c5a4jw1exspm1xalkj20dk0jrwjc.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3906666686644900" target="freeweibo-mirror">SPAM 我忘了…… //@盘子微谈:[哈哈]//@顾峰: …</a>
 </h2>
