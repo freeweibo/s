@@ -30,13 +30,13 @@
 </h2>
 <p>完了！此人恐怕跟我们不是一心了————【昂山素季：要像“邓小平那样”治理缅甸————缅甸将迎来历史性的大选】 http://t.cn/RU991bG<br><img src="http://ww3.sinaimg.cn/large/7fd6e271jw1extmntaxahj20dj0aa0v1.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3906936296703863" target="freeweibo-mirror">昂山素季：要像“邓小平那样”治理缅甸。因为昂山素季，位于仰光…</a>
 </h2>
 <p>昂山素季：要像“邓小平那样”治理缅甸。因为昂山素季，位于仰光的民盟总部成为了世界瞩目的中心。根据缅甸法律，昂山素季本人无法成为总统，因为她已逝的丈夫和两个儿子都有外国国籍。但昂山素季已经表明了自己的态度，无论如何，她都要领导这个国家。她的地位“将高于总统”。http://t.cn/RU9iHhz</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3906930868864081" target="freeweibo-mirror">马英九面对记者一桩桩细细道来，就像走了一趟亲戚，回来把打听到…</a>
 </h2>
