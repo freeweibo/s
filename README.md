@@ -42,7 +42,7 @@
 </h2>
 <p>//@越来越恨蒋中正: //@親愛精誠CBI://@清风柳树林:这就是民主与独裁的最好诠释，表面看这些年人民好像什么都有了，实则缺少最根本的被尊重和知情权。//@親愛精誠CBI:转发微博</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3907037408560389" target="freeweibo-mirror">//@邓相超: //@鲲鹏展翅qd: //@zideng12…</a>
 </h2>
@@ -60,7 +60,7 @@
 </h2>
 <p>//@红岛渔民:此微博不宜公开<br><br>RE: 目测，此帖挺不过今晚！看到的，先下载吧！[作揖][话筒]<br><img src="http://ww4.sinaimg.cn/large/55147e04gw1extoq6czayj20gu0m8t9w.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3907003762390133" target="freeweibo-mirror">//@野靖春9: 转发微博</a>
 </h2>
@@ -120,7 +120,7 @@
 </h2>
 <p>马英九面对记者一桩桩细细道来，就像走了一趟亲戚，回来把打听到的事情向大家交代清楚。谈到台湾人民关心的导弹问题，马英九：他说了，那不是针对我们的。——感觉全场松了一口气。哈哈。<br><br>RE: 中共的发布会只有国台办张志军一人出席，而台湾却由马总统率领七名官员亲自出席。中共的电视直播卡断了马英九的致辞。而台湾媒体绝无一家剪掉习近平的讲话。所以，台湾海峡隔绝的不是两岸人民，而是一群奴才和一群主人。<br><img src="http://ww2.sinaimg.cn/large/bfee7d06gw1extayc6leuj20g40iuabo.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3906924455929653" target="freeweibo-mirror">咳，你高兴就好[兔子]//@法治路由器: //@黑夜狐踪:不…</a>
 </h2>
