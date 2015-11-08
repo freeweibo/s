@@ -20,6 +20,36 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3906930868864081" target="freeweibo-mirror">马英九面对记者一桩桩细细道来，就像走了一趟亲戚，回来把打听到…</a>
+</h2>
+<p>马英九面对记者一桩桩细细道来，就像走了一趟亲戚，回来把打听到的事情向大家交代清楚。谈到台湾人民关心的导弹问题，马英九：他说了，那不是针对我们的。——感觉全场松了一口气。哈哈。<br><br>RE: 中共的发布会只有国台办张志军一人出席，而台湾却由马总统率领七名官员亲自出席。中共的电视直播卡断了马英九的致辞。而台湾媒体绝无一家剪掉习近平的讲话。所以，台湾海峡隔绝的不是两岸人民，而是一群奴才和一群主人。<br><img src="http://ww2.sinaimg.cn/large/bfee7d06gw1extayc6leuj20g40iuabo.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3906924455929653" target="freeweibo-mirror">咳，你高兴就好[兔子]//@法治路由器: //@黑夜狐踪:不…</a>
+</h2>
+<p>咳，你高兴就好[兔子]//@法治路由器: //@黑夜狐踪:不是一个发展水平，一个是邪说控制下的封建专制，一个是民选，国之不幸，为叹息！<br><br>RE: 中共的发布会只有国台办张志军一人出席，而台湾却由马总统率领七名官员亲自出席。中共的电视直播卡断了马英九的致辞。而台湾媒体绝无一家剪掉习近平的讲话。所以，台湾海峡隔绝的不是两岸人民，而是一群奴才和一群主人。<br><img src="http://ww2.sinaimg.cn/large/bfee7d06gw1extayc6leuj20g40iuabo.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3906923776218631" target="freeweibo-mirror">//@黑夜狐踪:不是一个发展水平，一个是邪说控制下的封建专制…</a>
+</h2>
+<p>//@黑夜狐踪:不是一个发展水平，一个是邪说控制下的封建专制，一个是民选，国之不幸，为叹息！<br><br>RE: 中共的发布会只有国台办张志军一人出席，而台湾却由马总统率领七名官员亲自出席。中共的电视直播卡断了马英九的致辞。而台湾媒体绝无一家剪掉习近平的讲话。所以，台湾海峡隔绝的不是两岸人民，而是一群奴才和一群主人。<br><img src="http://ww2.sinaimg.cn/large/bfee7d06gw1extayc6leuj20g40iuabo.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3906920609709177" target="freeweibo-mirror">//@敬亭山闲人:她别狂，有本事到大陆来闹闹试试。不被寻衅滋…</a>
+</h2>
+<p>//@敬亭山闲人:她别狂，有本事到大陆来闹闹试试。不被寻衅滋事，起码扰乱治安！<br><br>RE: #习马会#【视频：台湾名嘴周玉蔻闹场抗议】中国大陆国台办主任张志军昨代表习近平发表记者会时，遭台湾名嘴周玉蔻高声闹场抗议。张志军准备离席时，周玉蔻大声问道：“你们说的‘一中原则’是不是‘一中各表’？”她还批评主办方在点名提问时设定对象，怒呛“新闻自由在哪里啊？”http://t.cn/RUChAKf<br><img src="http://ww4.sinaimg.cn/large/6298156bgw1extg92kpl6j20d40hgwfd.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3906914922130286" target="freeweibo-mirror">台湾同胞们见笑了，你们不知道，我们别说看个沟，现在脖子看全都…</a>
+</h2>
+<p>台湾同胞们见笑了，你们不知道，我们别说看个沟，现在脖子看全都不容易了。//@魏晓军:什么时候自信过？//@李俊晓:[偷笑]//@干卫东律师: 责任在老马，讲话稿不送审，不掐你掐谁？//@纪昀:转发微博<br><br>RE: 央视太没有自信啦！<br><img src="http://ww2.sinaimg.cn/large/9ddb72ebgw1extdgu7k6lj218g12jh9b.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3906883892647399" target="freeweibo-mirror">SPAM 不知道你们有没有把配图里的文字看完，这也是我们MV…</a>
 </h2>
 <p>SPAM 不知道你们有没有把配图里的文字看完，这也是我们MV里所表达的~</p>
@@ -107,36 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3906672189544025" target="freeweibo-mirror">成熟的民主体制下，大党之间可以相互杯葛，制衡纠偏优化治理，但…</a>
 </h2>
 <p>成熟的民主体制下，大党之间可以相互杯葛，制衡纠偏优化治理，但很少有完全否定对方撕裂社会的。为蔡英文担忧。[汗]//@乔乔是个小魔怪她爸也萌萌哒<br><br>RE: 蔡英文facebook<br><img src="http://ww1.sinaimg.cn/large/c1d2c5a4jw1exspm1xalkj20dk0jrwjc.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3906666686644900" target="freeweibo-mirror">SPAM 我忘了…… //@盘子微谈:[哈哈]//@顾峰: …</a>
-</h2>
-<p>SPAM 我忘了…… //@盘子微谈:[哈哈]//@顾峰: [哈哈] //@迟夙生律师: //@陶赟-法国:[哈哈] //@黔山鹰:基本上是这个样子！<br><br>RE: 今晚满屏都是“多么伟大…”、“70年重现…”、“改写历史…”云云的矫情话，其实小崔想说的是70年前他们谈完以后就打起来了好么。[挖鼻][挖鼻][挖鼻]<br><img src="http://ww4.sinaimg.cn/large/9e2074a7gw1exspp5e2rfj20gr0bfaaw.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3906666443607639" target="freeweibo-mirror">SPAM 满满的正能量[good]</a>
-</h2>
-<p>SPAM 满满的正能量[good]<br><br>RE: 今晚满屏都是“多么伟大…”、“70年重现…”、“改写历史…”云云的矫情话，其实小崔想说的是70年前他们谈完以后就打起来了好么。[挖鼻][挖鼻][挖鼻]<br><img src="http://ww4.sinaimg.cn/large/9e2074a7gw1exspp5e2rfj20gr0bfaaw.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3906660249073189" target="freeweibo-mirror">看完#习马会# 蔡英文如是说：</a>
-</h2>
-<p>看完#习马会# 蔡英文如是说：<br><img src="http://ww2.sinaimg.cn/large/6d0b6b33gw1exsqucqn3hj20oz18gakd.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3906651138354869" target="freeweibo-mirror">今晚满屏都是“多么伟大…”、“70年重现…”、“改写历史…”…</a>
-</h2>
-<p>今晚满屏都是“多么伟大…”、“70年重现…”、“改写历史…”云云的矫情话，其实小崔想说的是70年前他们谈完以后就打起来了好么。[挖鼻][挖鼻][挖鼻]<br><img src="http://ww4.sinaimg.cn/large/9e2074a7gw1exspp5e2rfj20gr0bfaaw.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3906649540763114" target="freeweibo-mirror">蔡英文facebook</a>
-</h2>
-<p>蔡英文facebook<br><img src="http://ww1.sinaimg.cn/large/c1d2c5a4jw1exspm1xalkj20dk0jrwjc.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
