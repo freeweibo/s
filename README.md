@@ -24,7 +24,7 @@
 </h2>
 <p>//@战争史研究WHS:然而考虑到老东西们基本全都上六十了，所以倒不十分可怕。可怕的是前些年二十几岁的林立果式“超天才”险些在西红市重新降世 http://t.cn/RUCQghU老东西们不过是把文革初期闹“联动”时的红色血统论重新温习一遍，回顾血色青春罢了。跟红歌广场舞什么的是一个性质<br><br>RE: 打江山的后代<br><img src="http://ww1.sinaimg.cn/large/3e518583jw1exto9csnsgj20hs0vkte5.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3906951345439761" target="freeweibo-mirror">打江山的后代</a>
 </h2>
