@@ -20,6 +20,24 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3907013257734689" target="freeweibo-mirror">//@红岛渔民:此微博不宜公开</a>
+</h2>
+<p>//@红岛渔民:此微博不宜公开<br><br>RE: 目测，此帖挺不过今晚！看到的，先下载吧！[作揖][话筒]<br><img src="http://ww4.sinaimg.cn/large/55147e04gw1extoq6czayj20gu0m8t9w.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3907003762390133" target="freeweibo-mirror">//@野靖春9: 转发微博</a>
+</h2>
+<p>//@野靖春9: 转发微博<br><br>RE: 目测，此帖挺不过今晚！看到的，先下载吧！[作揖][话筒]<br><img src="http://ww4.sinaimg.cn/large/55147e04gw1extoq6czayj20gu0m8t9w.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3906993028752024" target="freeweibo-mirror">[赞][赞][赞] //@深南-大盗:转发微博</a>
+</h2>
+<p>[赞][赞][赞] //@深南-大盗:转发微博<br><br>RE: 目测，此帖挺不过今晚！看到的，先下载吧！[作揖][话筒]<br><img src="http://ww4.sinaimg.cn/large/55147e04gw1extoq6czayj20gu0m8t9w.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3906976700282786" target="freeweibo-mirror">//@战争史研究WHS:然而考虑到老东西们基本全都上六十了，…</a>
 </h2>
 <p>//@战争史研究WHS:然而考虑到老东西们基本全都上六十了，所以倒不十分可怕。可怕的是前些年二十几岁的林立果式“超天才”险些在西红市重新降世 http://t.cn/RUCQghU老东西们不过是把文革初期闹“联动”时的红色血统论重新温习一遍，回顾血色青春罢了。跟红歌广场舞什么的是一个性质<br><br>RE: 打江山的后代<br><img src="http://ww1.sinaimg.cn/large/3e518583jw1exto9csnsgj20hs0vkte5.jpg"></p>
@@ -114,29 +132,11 @@
 </h2>
 <p>央视太没有自信啦！<br><img src="http://ww2.sinaimg.cn/large/9ddb72ebgw1extdgu7k6lj218g12jh9b.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3906835528659231" target="freeweibo-mirror">中共的发布会只有国台办张志军一人出席，而台湾却由马总统率领七…</a>
 </h2>
 <p>中共的发布会只有国台办张志军一人出席，而台湾却由马总统率领七名官员亲自出席。中共的电视直播卡断了马英九的致辞。而台湾媒体绝无一家剪掉习近平的讲话。所以，台湾海峡隔绝的不是两岸人民，而是一群奴才和一群主人。<br><img src="http://ww2.sinaimg.cn/large/bfee7d06gw1extayc6leuj20g40iuabo.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3906829928956702" target="freeweibo-mirror">哪怕被打成阿奇那，塞思黑，我毕竟是爱新觉罗的子孙//@The…</a>
-</h2>
-<p>哪怕被打成阿奇那，塞思黑，我毕竟是爱新觉罗的子孙//@Thefourthwave: //@简直: 大家在使用一个名词时要注意对一下表。所以这位老同志看似表忠心实则要股份。//@徐幸起:[晕] //@宁清平律师: 江山是天下人的江山，怎么属于某些人的了？<br><br>RE: 高岗儿子高燕生自称”骨子里流着红色的血“，虽未入党但永远都是党员，对党有“砸断了骨头连着筋的感情“，并说：13亿国民脚下的土地是他父辈”用头颅鲜血赢来“的。这意思是告诉我们：他和薄习一样，是天然的、永远的房东，而我们不过是一群临时租客。不知你听后什么感觉，反正我觉得有点恐怖。<br><img src="http://ww2.sinaimg.cn/large/005Wujregw1exr7kyh26vj30go0bumz7.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3906829144920149" target="freeweibo-mirror">//@老酒葫芦007://@上尉BD7MTJ:13亿国民脚下…</a>
-</h2>
-<p>//@老酒葫芦007://@上尉BD7MTJ:13亿国民脚下的土地是抗日战争中死去的先烈们”用头颅鲜血赢来“的吧。 //@bg7oye转世://@冰城壹梦:[挖鼻]<br><br>RE: 高岗儿子高燕生自称”骨子里流着红色的血“，虽未入党但永远都是党员，对党有“砸断了骨头连着筋的感情“，并说：13亿国民脚下的土地是他父辈”用头颅鲜血赢来“的。这意思是告诉我们：他和薄习一样，是天然的、永远的房东，而我们不过是一群临时租客。不知你听后什么感觉，反正我觉得有点恐怖。<br><img src="http://ww2.sinaimg.cn/large/005Wujregw1exr7kyh26vj30go0bumz7.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3906824262791554" target="freeweibo-mirror">【转发送手机】#360奇酷手机#来来来……不废话，直接来！只…</a>
-</h2>
-<p>【转发送手机】#360奇酷手机#来来来……不废话，直接来！只要转发本条微博就有机会获得千元金属指纹旗舰的@360奇酷手机 一台。11月14日开奖。@微博抽奖平台 #手机菌福利#<br><img src="http://ww1.sinaimg.cn/large/851b9922gw1ext85xyhwhj20u01arq8a.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
