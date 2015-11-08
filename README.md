@@ -30,7 +30,7 @@
 </h2>
 <p>如果大陆人均收入高于台湾，就会统一。大陆经济总量高于台湾，台独就不能成功。目前，大陆经济总量高于台湾，人均收入低于台湾，所以，既无法独立，也无法统一。至于自由民主，假设生活在一个独裁政权下的收入比生活在一个民主国家里收入多50%，你会如何选择？我当然也喜欢自由，可远没有收入重要。</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3907074951740487" target="freeweibo-mirror">SPAM 习马会：“看上去很美”              …</a>
 </h2>
@@ -66,7 +66,7 @@
 </h2>
 <p>//@野靖春9: 转发微博<br><br>RE: 目测，此帖挺不过今晚！看到的，先下载吧！[作揖][话筒]<br><img src="http://ww4.sinaimg.cn/large/55147e04gw1extoq6czayj20gu0m8t9w.jpg"></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3906993028752024" target="freeweibo-mirror">[赞][赞][赞] //@深南-大盗:转发微博</a>
 </h2>
