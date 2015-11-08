@@ -96,7 +96,7 @@
 </h2>
 <p>打江山的后代<br><img src="http://ww1.sinaimg.cn/large/3e518583jw1exto9csnsgj20hs0vkte5.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3906940713119884" target="freeweibo-mirror">完了！此人怕是跟我们不是一条心的了。邓小平是反对毛泽东的。</a>
 </h2>
