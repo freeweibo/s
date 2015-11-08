@@ -24,7 +24,7 @@
 </h2>
 <p>完了！此人怕是跟我们不是一条心的了。邓小平是反对毛泽东的。<br><br>RE: 昂山素季：要像“邓小平那样”治理缅甸。因为昂山素季，位于仰光的民盟总部成为了世界瞩目的中心。根据缅甸法律，昂山素季本人无法成为总统，因为她已逝的丈夫和两个儿子都有外国国籍。但昂山素季已经表明了自己的态度，无论如何，她都要领导这个国家。她的地位“将高于总统”。http://t.cn/RU9iHhz</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3906937290495395" target="freeweibo-mirror">完了！此人恐怕跟我们不是一心了————【昂山素季：要像“邓小…</a>
 </h2>
@@ -59,6 +59,12 @@
 	<a href="https://freeweibo.com/weibo/3906914922130286" target="freeweibo-mirror">台湾同胞们见笑了，你们不知道，我们别说看个沟，现在脖子看全都…</a>
 </h2>
 <p>台湾同胞们见笑了，你们不知道，我们别说看个沟，现在脖子看全都不容易了。//@魏晓军:什么时候自信过？//@李俊晓:[偷笑]//@干卫东律师: 责任在老马，讲话稿不送审，不掐你掐谁？//@纪昀:转发微博<br><br>RE: 央视太没有自信啦！<br><img src="http://ww2.sinaimg.cn/large/9ddb72ebgw1extdgu7k6lj218g12jh9b.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3906913659950005" target="freeweibo-mirror">人到中年了，还没见过选票，中国大陆何时能大选啊？[泪]</a>
+</h2>
+<p>人到中年了，还没见过选票，中国大陆何时能大选啊？[泪]<br><br>RE: 【昂山素季：要像“邓小平那样”治理缅甸】民盟发言人说：每个人都会变老，昂山素季也是，但是她仍然思维非常敏捷，她也强烈地渴望在缅甸实现民主，我相信她能治理好这个国家。我们都希望缅甸成为一个民主的、和平的国家，权力能够和平交接，人们都希望变革，所以我们必须改变。http://t.cn/RU96Jcd<br><img src="http://ww4.sinaimg.cn/large/625ab309jw1extbvti147j20fa0kd75f.jpg"></p>
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3906699968554243" target="freeweibo-mirror">SPAM  //@2885542665_856:这话得跟二千…</a>
 </h2>
 <p>SPAM  //@2885542665_856:这话得跟二千三百万台湾人说，选票在人家手里。要不开放两岸直选，大陆人都不投她的票？//@韩迪deaham:希望民进党不要选举获胜，还是摆脱不了“逢中必反”。<br><br>RE: 蔡英文facebook<br><img src="http://ww1.sinaimg.cn/large/c1d2c5a4jw1exspm1xalkj20dk0jrwjc.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3906696218613639" target="freeweibo-mirror">习总这次把和平意愿展示给全球了，下一步，蔡女若上台搞台独，就…</a>
-</h2>
-<p>习总这次把和平意愿展示给全球了，下一步，蔡女若上台搞台独，就必须承担腥风血雨的责任了。//@忠浪:蔡女过份的任性凭感觉，没有政治人物的气量。//@诸子百家之一:台湾人民若真选择蔡当“总统”，被她带往台独路，两岸离爆发战争就不远了。//@月隐寒霜：蔡女士蠻激進，實際這樣給台灣未來帶來的變數<br><br>RE: 蔡英文facebook<br><img src="http://ww1.sinaimg.cn/large/c1d2c5a4jw1exspm1xalkj20dk0jrwjc.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
