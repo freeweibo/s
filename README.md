@@ -26,6 +26,18 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3907079184571256" target="freeweibo-mirror">如果大陆人均收入高于台湾，就会统一。大陆经济总量高于台湾，台…</a>
+</h2>
+<p>如果大陆人均收入高于台湾，就会统一。大陆经济总量高于台湾，台独就不能成功。目前，大陆经济总量高于台湾，人均收入低于台湾，所以，既无法独立，也无法统一。至于自由民主，假设生活在一个独裁政权下的收入比生活在一个民主国家里收入多50%，你会如何选择？我当然也喜欢自由，可远没有收入重要。</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3907074951740487" target="freeweibo-mirror">SPAM 习马会：“看上去很美”              …</a>
+</h2>
+<p>SPAM 习马会：“看上去很美”                                                王青雷...（使用@金果长微博 分享）<br><img src="http://ww2.sinaimg.cn/large/4006922cjw1exu2gzcjwcj20c81olwsw.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3907074427271536" target="freeweibo-mirror">//@越来越恨蒋中正: //@親愛精誠CBI://@清风柳树…</a>
 </h2>
 <p>//@越来越恨蒋中正: //@親愛精誠CBI://@清风柳树林:这就是民主与独裁的最好诠释，表面看这些年人民好像什么都有了，实则缺少最根本的被尊重和知情权。//@親愛精誠CBI:转发微博</p>
@@ -60,7 +72,7 @@
 </h2>
 <p>[赞][赞][赞] //@深南-大盗:转发微博<br><br>RE: 目测，此帖挺不过今晚！看到的，先下载吧！[作揖][话筒]<br><img src="http://ww4.sinaimg.cn/large/55147e04gw1extoq6czayj20gu0m8t9w.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3906979888594716" target="freeweibo-mirror">SPAM “天若有情天亦老，冯导给我留张票”“嫦娥应悔偷灵药…</a>
 </h2>
@@ -125,18 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3906920609709177" target="freeweibo-mirror">//@敬亭山闲人:她别狂，有本事到大陆来闹闹试试。不被寻衅滋…</a>
 </h2>
 <p>//@敬亭山闲人:她别狂，有本事到大陆来闹闹试试。不被寻衅滋事，起码扰乱治安！<br><br>RE: #习马会#【视频：台湾名嘴周玉蔻闹场抗议】中国大陆国台办主任张志军昨代表习近平发表记者会时，遭台湾名嘴周玉蔻高声闹场抗议。张志军准备离席时，周玉蔻大声问道：“你们说的‘一中原则’是不是‘一中各表’？”她还批评主办方在点名提问时设定对象，怒呛“新闻自由在哪里啊？”http://t.cn/RUChAKf<br><img src="http://ww4.sinaimg.cn/large/6298156bgw1extg92kpl6j20d40hgwfd.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3906914922130286" target="freeweibo-mirror">台湾同胞们见笑了，你们不知道，我们别说看个沟，现在脖子看全都…</a>
-</h2>
-<p>台湾同胞们见笑了，你们不知道，我们别说看个沟，现在脖子看全都不容易了。//@魏晓军:什么时候自信过？//@李俊晓:[偷笑]//@干卫东律师: 责任在老马，讲话稿不送审，不掐你掐谁？//@纪昀:转发微博<br><br>RE: 央视太没有自信啦！<br><img src="http://ww2.sinaimg.cn/large/9ddb72ebgw1extdgu7k6lj218g12jh9b.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3906913659950005" target="freeweibo-mirror">人到中年了，还没见过选票，中国大陆何时能大选啊？[泪]</a>
-</h2>
-<p>人到中年了，还没见过选票，中国大陆何时能大选啊？[泪]<br><br>RE: 【昂山素季：要像“邓小平那样”治理缅甸】民盟发言人说：每个人都会变老，昂山素季也是，但是她仍然思维非常敏捷，她也强烈地渴望在缅甸实现民主，我相信她能治理好这个国家。我们都希望缅甸成为一个民主的、和平的国家，权力能够和平交接，人们都希望变革，所以我们必须改变。http://t.cn/RU96Jcd<br><img src="http://ww4.sinaimg.cn/large/625ab309jw1extbvti147j20fa0kd75f.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
