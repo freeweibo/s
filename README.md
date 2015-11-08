@@ -20,6 +20,18 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3906940713119884" target="freeweibo-mirror">完了！此人怕是跟我们不是一条心的了。邓小平是反对毛泽东的。</a>
+</h2>
+<p>完了！此人怕是跟我们不是一条心的了。邓小平是反对毛泽东的。<br><br>RE: 昂山素季：要像“邓小平那样”治理缅甸。因为昂山素季，位于仰光的民盟总部成为了世界瞩目的中心。根据缅甸法律，昂山素季本人无法成为总统，因为她已逝的丈夫和两个儿子都有外国国籍。但昂山素季已经表明了自己的态度，无论如何，她都要领导这个国家。她的地位“将高于总统”。http://t.cn/RU9iHhz</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3906937290495395" target="freeweibo-mirror">完了！此人恐怕跟我们不是一心了————【昂山素季：要像“邓小…</a>
+</h2>
+<p>完了！此人恐怕跟我们不是一心了————【昂山素季：要像“邓小平那样”治理缅甸————缅甸将迎来历史性的大选】 http://t.cn/RU991bG<br><img src="http://ww3.sinaimg.cn/large/7fd6e271jw1extmntaxahj20dj0aa0v1.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3906930868864081" target="freeweibo-mirror">马英九面对记者一桩桩细细道来，就像走了一趟亲戚，回来把打听到…</a>
 </h2>
 <p>马英九面对记者一桩桩细细道来，就像走了一趟亲戚，回来把打听到的事情向大家交代清楚。谈到台湾人民关心的导弹问题，马英九：他说了，那不是针对我们的。——感觉全场松了一口气。哈哈。<br><br>RE: 中共的发布会只有国台办张志军一人出席，而台湾却由马总统率领七名官员亲自出席。中共的电视直播卡断了马英九的致辞。而台湾媒体绝无一家剪掉习近平的讲话。所以，台湾海峡隔绝的不是两岸人民，而是一群奴才和一群主人。<br><img src="http://ww2.sinaimg.cn/large/bfee7d06gw1extayc6leuj20g40iuabo.jpg"></p>
@@ -30,13 +42,13 @@
 </h2>
 <p>咳，你高兴就好[兔子]//@法治路由器: //@黑夜狐踪:不是一个发展水平，一个是邪说控制下的封建专制，一个是民选，国之不幸，为叹息！<br><br>RE: 中共的发布会只有国台办张志军一人出席，而台湾却由马总统率领七名官员亲自出席。中共的电视直播卡断了马英九的致辞。而台湾媒体绝无一家剪掉习近平的讲话。所以，台湾海峡隔绝的不是两岸人民，而是一群奴才和一群主人。<br><img src="http://ww2.sinaimg.cn/large/bfee7d06gw1extayc6leuj20g40iuabo.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3906923776218631" target="freeweibo-mirror">//@黑夜狐踪:不是一个发展水平，一个是邪说控制下的封建专制…</a>
 </h2>
 <p>//@黑夜狐踪:不是一个发展水平，一个是邪说控制下的封建专制，一个是民选，国之不幸，为叹息！<br><br>RE: 中共的发布会只有国台办张志军一人出席，而台湾却由马总统率领七名官员亲自出席。中共的电视直播卡断了马英九的致辞。而台湾媒体绝无一家剪掉习近平的讲话。所以，台湾海峡隔绝的不是两岸人民，而是一群奴才和一群主人。<br><img src="http://ww2.sinaimg.cn/large/bfee7d06gw1extayc6leuj20g40iuabo.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3906920609709177" target="freeweibo-mirror">//@敬亭山闲人:她别狂，有本事到大陆来闹闹试试。不被寻衅滋…</a>
 </h2>
@@ -125,18 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3906696218613639" target="freeweibo-mirror">习总这次把和平意愿展示给全球了，下一步，蔡女若上台搞台独，就…</a>
 </h2>
 <p>习总这次把和平意愿展示给全球了，下一步，蔡女若上台搞台独，就必须承担腥风血雨的责任了。//@忠浪:蔡女过份的任性凭感觉，没有政治人物的气量。//@诸子百家之一:台湾人民若真选择蔡当“总统”，被她带往台独路，两岸离爆发战争就不远了。//@月隐寒霜：蔡女士蠻激進，實際這樣給台灣未來帶來的變數<br><br>RE: 蔡英文facebook<br><img src="http://ww1.sinaimg.cn/large/c1d2c5a4jw1exspm1xalkj20dk0jrwjc.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3906694578573986" target="freeweibo-mirror">[围观]//@整合之道刘鸿雁:[ok][赞]</a>
-</h2>
-<p>[围观]//@整合之道刘鸿雁:[ok][赞]<br><br>RE: 央视直播习马会，生生把历史一刻变成了历史半刻 [哈哈]</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3906688224495406" target="freeweibo-mirror">这边重唱白毛女，那边开了习马会。三生三世的历史，怎受得“教训…</a>
-</h2>
-<p>这边重唱白毛女，那边开了习马会。三生三世的历史，怎受得“教训”两字？</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
