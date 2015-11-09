@@ -36,7 +36,7 @@
 </h2>
 <p>SPAM //@另类无敌:转发扩散，共同关注！ //@性情中人_jzq:关注！[话筒]//@人权无国界C:[话筒][话筒] //@涉-美256://@封神祭十四叔: 保重。//@婉风飞絮:[围观]//@紫荆女侠19:秀才保重。<br><br>RE: 秀才江湖： 今天9号请关注下我的安全！想了一夜，我还是跟他们回去吧！今天，为了不让我参于张六毛的围观，老家浙江的“熊猫”会到广州，来接我回老家。我想，逃是逃不掉的，衙役如果想找你。如果躲，就要关机、不上网，对我来说，不上网很痛苦。算了，跟他们走吧！但愿不会关我，到长兴就放我回家。</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3907244368763896" target="freeweibo-mirror">嗯，我得抓紧问问博主，等下博主可能被销号了！[色][阴险]/…</a>
 </h2>
@@ -71,6 +71,12 @@
 	<a href="https://freeweibo.com/weibo/3907223472187739" target="freeweibo-mirror">这次“习马会”，中央电视台把直播变成剪播，引起公众的质疑乃至…</a>
 </h2>
 <p>这次“习马会”，中央电视台把直播变成剪播，引起公众的质疑乃至愤怒。对此，作为纳税人供养的国家媒体，央视完全有必要也有责任给公众一个令人信服的解释。</p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3907220993236973" target="freeweibo-mirror">SPAM Say this,do that。//@我才是叙拉…</a>
+</h2>
+<p>SPAM Say this,do that。//@我才是叙拉古的诱惑:厦门大学义和团及其水军证明了厦门大学不值得进 //@步搖的爹:会在校门口被义和团车裂的吧？[哈哈]</p>
 <p>
 	<small> ============== 4小时前</small>
 </p><h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3907003762390133" target="freeweibo-mirror">//@野靖春9: 转发微博</a>
 </h2>
 <p>//@野靖春9: 转发微博<br><br>RE: 目测，此帖挺不过今晚！看到的，先下载吧！[作揖][话筒]<br><img src="http://ww4.sinaimg.cn/large/55147e04gw1extoq6czayj20gu0m8t9w.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3906993028752024" target="freeweibo-mirror">[赞][赞][赞] //@深南-大盗:转发微博</a>
-</h2>
-<p>[赞][赞][赞] //@深南-大盗:转发微博<br><br>RE: 目测，此帖挺不过今晚！看到的，先下载吧！[作揖][话筒]<br><img src="http://ww4.sinaimg.cn/large/55147e04gw1extoq6czayj20gu0m8t9w.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
