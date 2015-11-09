@@ -24,7 +24,7 @@
 </h2>
 <p>SPAM 新鲜玩法玩出真感情~[太开心]</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3907254954556367" target="freeweibo-mirror">SPAM [求关注][求关注][求关注]</a>
 </h2>
