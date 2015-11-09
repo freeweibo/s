@@ -42,7 +42,7 @@
 </h2>
 <p>SPAM [求关注][求关注][求关注]</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3907248977669448" target="freeweibo-mirror">SPAM //@另类无敌:转发扩散，共同关注！ //@性情中…</a>
 </h2>
@@ -66,7 +66,7 @@
 </h2>
 <p>//@鲁振旺: 拿投资人的钱的项目，因为有增长需求，所以死亡率要大的多，拿自己的钱创业，都是血汗钱，也未必追求高速度，以活着为基础，所以死亡率要低一些</p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3907234574449647" target="freeweibo-mirror">SPAM 不要用肮脏的眼光看，这是世界上最纯净的海滩：未成年…</a>
 </h2>
