@@ -20,6 +20,18 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3907378376398741" target="freeweibo-mirror">SPAM //@美模部: 转发微博</a>
+</h2>
+<p>SPAM //@美模部: 转发微博</p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3907378355226472" target="freeweibo-mirror">SPAM good//@美模部: 转发微博</a>
+</h2>
+<p>SPAM good//@美模部: 转发微博</p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3907318770786477" target="freeweibo-mirror">SPAM #福利# 【智能母婴安全秤】免费送，每天送出600…</a>
 </h2>
 <p>SPAM #福利# 【智能母婴安全秤】免费送，每天送出600台，中奖机会好大[给力] ，已经有孕妈收到啦，快转给身边的孕妈吧~[偷笑]</p>
@@ -125,18 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3907081758985093" target="freeweibo-mirror">//@迷与悟-AwB:民族和解，总比对抗好。自由民主宪政已较…</a>
 </h2>
 <p>//@迷与悟-AwB:民族和解，总比对抗好。自由民主宪政已较成熟的台湾同胞，还会投降或屈服独裁专制的野蛮？？大陆人大可放心，台湾绝不会跟大陆逆行的。 //@尼尼的秋:<br><br>RE: 握什麼手呀？還80秒呢！你以為在談情說愛呀！人家上千顆導彈對著你，你還笑開了懷。人怎麼可以無恥下作到這種程度呢？！今天是中華民國最恥辱的一天！這一天中華民國正式向對岸的專制政權投降！別再跟我們談两岸對等，如果你敢部署一千個導彈對準中共，我就信你；否則鬼才相信你們說的對等的鬼話！转<br><img src="http://ww2.sinaimg.cn/large/006ey4zvgw1extgrwm849j30gd0ea0w7.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3907079184571256" target="freeweibo-mirror">如果大陆人均收入高于台湾，就会统一。大陆经济总量高于台湾，台…</a>
-</h2>
-<p>如果大陆人均收入高于台湾，就会统一。大陆经济总量高于台湾，台独就不能成功。目前，大陆经济总量高于台湾，人均收入低于台湾，所以，既无法独立，也无法统一。至于自由民主，假设生活在一个独裁政权下的收入比生活在一个民主国家里收入多50%，你会如何选择？我当然也喜欢自由，可远没有收入重要。</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3907074951740487" target="freeweibo-mirror">SPAM 习马会：“看上去很美”              …</a>
-</h2>
-<p>SPAM 习马会：“看上去很美”                                                王青雷...（使用@金果长微博 分享）<br><img src="http://ww2.sinaimg.cn/large/4006922cjw1exu2gzcjwcj20c81olwsw.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
