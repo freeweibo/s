@@ -62,6 +62,12 @@
 <p>
 	<small> ============== 4小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3907186729891920" target="freeweibo-mirror">秀才江湖： 今天9号请关注下我的安全！想了一夜，我还是跟他们…</a>
+</h2>
+<p>秀才江湖： 今天9号请关注下我的安全！想了一夜，我还是跟他们回去吧！今天，为了不让我参于张六毛的围观，老家浙江的“熊猫”会到广州，来接我回老家。我想，逃是逃不掉的，衙役如果想找你。如果躲，就要关机、不上网，对我来说，不上网很痛苦。算了，跟他们走吧！但愿不会关我，到长兴就放我回家。</p>
+<p>
+	<small> ============== 6小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3907081758985093" target="freeweibo-mirror">//@迷与悟-AwB:民族和解，总比对抗好。自由民主宪政已较…</a>
 </h2>
 <p>//@迷与悟-AwB:民族和解，总比对抗好。自由民主宪政已较成熟的台湾同胞，还会投降或屈服独裁专制的野蛮？？大陆人大可放心，台湾绝不会跟大陆逆行的。 //@尼尼的秋:<br><br>RE: 握什麼手呀？還80秒呢！你以為在談情說愛呀！人家上千顆導彈對著你，你還笑開了懷。人怎麼可以無恥下作到這種程度呢？！今天是中華民國最恥辱的一天！這一天中華民國正式向對岸的專制政權投降！別再跟我們談两岸對等，如果你敢部署一千個導彈對準中共，我就信你；否則鬼才相信你們說的對等的鬼話！转<br><img src="http://ww2.sinaimg.cn/large/006ey4zvgw1extgrwm849j30gd0ea0w7.jpg"></p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3906955469250591" target="freeweibo-mirror">目测，此帖挺不过今晚！看到的，先下载吧！[作揖][话筒]</a>
 </h2>
 <p>目测，此帖挺不过今晚！看到的，先下载吧！[作揖][话筒]<br><img src="http://ww4.sinaimg.cn/large/55147e04gw1extoq6czayj20gu0m8t9w.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3906951345439761" target="freeweibo-mirror">打江山的后代</a>
-</h2>
-<p>打江山的后代<br><img src="http://ww1.sinaimg.cn/large/3e518583jw1exto9csnsgj20hs0vkte5.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
