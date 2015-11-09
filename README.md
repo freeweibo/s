@@ -42,7 +42,7 @@
 </h2>
 <p>//@越来越恨蒋中正: //@親愛精誠CBI://@清风柳树林:这就是民主与独裁的最好诠释，表面看这些年人民好像什么都有了，实则缺少最根本的被尊重和知情权。//@親愛精誠CBI:转发微博</p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3907037408560389" target="freeweibo-mirror">//@邓相超: //@鲲鹏展翅qd: //@zideng12…</a>
 </h2>
@@ -60,7 +60,7 @@
 </h2>
 <p>//@红岛渔民:此微博不宜公开<br><br>RE: 目测，此帖挺不过今晚！看到的，先下载吧！[作揖][话筒]<br><img src="http://ww4.sinaimg.cn/large/55147e04gw1extoq6czayj20gu0m8t9w.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3907003762390133" target="freeweibo-mirror">//@野靖春9: 转发微博</a>
 </h2>
