@@ -84,7 +84,7 @@
 </h2>
 <p>【昂山素季代表的民盟称赢得缅甸大选近70%选票】一定是境外势力的暗箱操作，缅甸不配拥有民主。缅甸的所谓民主更多是西方民主，不是缅甸特色民主。要问民主哪家强？白头山上金大王！<br><img src="http://ww3.sinaimg.cn/large/63e10c60gw1exut291js2j20ck08c0ta.jpg"></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3907292271051877" target="freeweibo-mirror">SPAM 在干什么？</a>
 </h2>
