@@ -24,7 +24,13 @@
 </h2>
 <p>SPAM 新鲜玩法玩出真感情~[太开心]</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3907254954556367" target="freeweibo-mirror">SPAM [求关注][求关注][求关注]</a>
+</h2>
+<p>SPAM [求关注][求关注][求关注]</p>
+<p>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3907248977669448" target="freeweibo-mirror">SPAM //@另类无敌:转发扩散，共同关注！ //@性情中…</a>
 </h2>
@@ -43,6 +49,12 @@
 <p>SPAM 你就是在私密处长出一片树叶，我也要等到秋天来临的时候... //@静娅_:标题古怪，作者一不小心“露点”了。看到人体想到性是肮脏，露体不会想到性最纯洁？这么古怪的逻辑怎么绕出来的？//@雨成L:老外的家伙也不是传说的那么大， //@木尔:系统自动转发//@张晨初艺术空间: //@lhw6:<br><br>RE: 我分享了@背后一束光 的文章 http://t.cn/RUNJHW3[赞]</p>
 <p>
 	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3907240634945362" target="freeweibo-mirror">//@鲁振旺: 拿投资人的钱的项目，因为有增长需求，所以死亡…</a>
+</h2>
+<p>//@鲁振旺: 拿投资人的钱的项目，因为有增长需求，所以死亡率要大的多，拿自己的钱创业，都是血汗钱，也未必追求高速度，以活着为基础，所以死亡率要低一些</p>
+<p>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3907234574449647" target="freeweibo-mirror">SPAM 不要用肮脏的眼光看，这是世界上最纯净的海滩：未成年…</a>
 </h2>
@@ -125,18 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3906993028752024" target="freeweibo-mirror">[赞][赞][赞] //@深南-大盗:转发微博</a>
 </h2>
 <p>[赞][赞][赞] //@深南-大盗:转发微博<br><br>RE: 目测，此帖挺不过今晚！看到的，先下载吧！[作揖][话筒]<br><img src="http://ww4.sinaimg.cn/large/55147e04gw1extoq6czayj20gu0m8t9w.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3906979888594716" target="freeweibo-mirror">SPAM “天若有情天亦老，冯导给我留张票”“嫦娥应悔偷灵药…</a>
-</h2>
-<p>SPAM “天若有情天亦老，冯导给我留张票”“嫦娥应悔偷灵药，冯导给我留张票”“我自横刀向天笑，冯导给我留张票”……</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3906976700282786" target="freeweibo-mirror">//@战争史研究WHS:然而考虑到老东西们基本全都上六十了，…</a>
-</h2>
-<p>//@战争史研究WHS:然而考虑到老东西们基本全都上六十了，所以倒不十分可怕。可怕的是前些年二十几岁的林立果式“超天才”险些在西红市重新降世 http://t.cn/RUCQghU老东西们不过是把文革初期闹“联动”时的红色血统论重新温习一遍，回顾血色青春罢了。跟红歌广场舞什么的是一个性质<br><br>RE: 打江山的后代<br><img src="http://ww1.sinaimg.cn/large/3e518583jw1exto9csnsgj20hs0vkte5.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
