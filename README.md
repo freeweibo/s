@@ -24,7 +24,7 @@
 </h2>
 <p>SPAM 其实古代人也很会玩[doge]<br><br>RE: #线上电影少女# 感受一下古人是如何“洞房花烛夜”的[笑cry][笑cry][笑cry]http://t.cn/RUC0qPH</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3907378376398741" target="freeweibo-mirror">SPAM //@美模部: 转发微博</a>
 </h2>
@@ -72,7 +72,7 @@
 </h2>
 <p>SPAM 新鲜玩法玩出真感情~[太开心]</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3907254954556367" target="freeweibo-mirror">SPAM [求关注][求关注][求关注]</a>
 </h2>
