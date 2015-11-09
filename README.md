@@ -72,7 +72,7 @@
 </h2>
 <p>这次“习马会”，中央电视台把直播变成剪播，引起公众的质疑乃至愤怒。对此，作为纳税人供养的国家媒体，央视完全有必要也有责任给公众一个令人信服的解释。</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3907220993236973" target="freeweibo-mirror">SPAM Say this,do that。//@我才是叙拉…</a>
 </h2>
