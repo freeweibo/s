@@ -36,7 +36,7 @@
 </h2>
 <p>SPAM 习马会：“看上去很美”                                                王青雷...（使用@金果长微博 分享）<br><img src="http://ww2.sinaimg.cn/large/4006922cjw1exu2gzcjwcj20c81olwsw.jpg"></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3907074427271536" target="freeweibo-mirror">//@越来越恨蒋中正: //@親愛精誠CBI://@清风柳树…</a>
 </h2>
@@ -48,7 +48,7 @@
 </h2>
 <p>//@邓相超: //@鲲鹏展翅qd: //@zideng121y://@积极的天不怕:毛是独裁者不假，但他和他的那个党已经被神化，分不开了！为了党能继续执政，只能把毛和四人帮分开！这是中国人甚至外国人都明白的事//@手机用户1949827151://@六股河的风:@毛派必胜16@XXLSH2014F</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3907020409401726" target="freeweibo-mirror">SPAM LG新旗舰V10，在安卓阵营中算是很有创新突破的设…</a>
 </h2>
