@@ -30,7 +30,7 @@
 </h2>
 <p>SPAM 小清新[鼓掌]</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3907422928114938" target="freeweibo-mirror">我发表了新文章：广州警方打击制售假成效显著 广州市公安局新闻…</a>
 </h2>
