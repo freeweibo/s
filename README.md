@@ -24,7 +24,7 @@
 </h2>
 <p>//@曹国洪微谈: //@醒龙智:回复@歌尽风2011:谢谢！<br><br>RE: 据新加坡《海峡时报》报导与计算，习近平的谈话大约3分多钟，而马英九却达到7分钟。在马英九谈话到5分44秒时，习近平开始喝着茶，还有轻微咳嗽，但随后中国警卫就开始赶记者。而台湾警卫则跳出来，表示让记者留在现场，让记者把马英九的谈话听完再离开。<br><img src="http://ww3.sinaimg.cn/large/006gZf13gw1exuhporzoij30c808aaae.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3907433066175256" target="freeweibo-mirror">SPAM 小清新[鼓掌]</a>
 </h2>
@@ -36,7 +36,7 @@
 </h2>
 <p>我发表了新文章：广州警方打击制售假成效显著 广州市公安局新闻办公室今天（11月9日）向媒体通报，2015年初，广州警方根据上级机关的工作部署... http://t.cn/RUpGxXX</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3907416683230450" target="freeweibo-mirror">#200捐# 这是要问罪习大大的前任吗？@首都网警 请关注 …</a>
 </h2>
