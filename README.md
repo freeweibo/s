@@ -54,7 +54,7 @@
 </h2>
 <p>出兵！ //@陈岳峰-mobdom:不能容忍<br><br>RE: #天下#【外媒：IS分子一次枪杀200名儿童】中东也门一名反IS的活跃分子在网上公开一段令人震惊的影片，显示逊尼派极端组织IS进行一次冷血大屠杀，一次枪毙了两百人，遇难者全都是小孩。这些小孩被勒令一字排开，伏在泥地上，枪手近距离开火。详见：http://t.cn/RU0Rajs<br><img src="http://ww2.sinaimg.cn/large/60718250jw1exw88u8gudj20fa092mxf.jpg"></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3907754202263567" target="freeweibo-mirror">右边→_→福山：为何“阿拉伯之春”以来，阿拉伯世界局势反而一…</a>
 </h2>
