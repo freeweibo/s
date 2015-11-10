@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3907566193178306" target="freeweibo-mirror">//@曹国洪微谈: //@醒龙智:回复@歌尽风2011:谢谢…</a>
+</h2>
+<p>//@曹国洪微谈: //@醒龙智:回复@歌尽风2011:谢谢！<br><br>RE: 据新加坡《海峡时报》报导与计算，习近平的谈话大约3分多钟，而马英九却达到7分钟。在马英九谈话到5分44秒时，习近平开始喝着茶，还有轻微咳嗽，但随后中国警卫就开始赶记者。而台湾警卫则跳出来，表示让记者留在现场，让记者把马英九的谈话听完再离开。<br><img src="http://ww3.sinaimg.cn/large/006gZf13gw1exuhporzoij30c808aaae.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3907433066175256" target="freeweibo-mirror">SPAM 小清新[鼓掌]</a>
 </h2>
 <p>SPAM 小清新[鼓掌]</p>
@@ -30,7 +36,7 @@
 </h2>
 <p>我发表了新文章：广州警方打击制售假成效显著 广州市公安局新闻办公室今天（11月9日）向媒体通报，2015年初，广州警方根据上级机关的工作部署... http://t.cn/RUpGxXX</p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3907416683230450" target="freeweibo-mirror">#200捐# 这是要问罪习大大的前任吗？@首都网警 请关注 …</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3907234574449647" target="freeweibo-mirror">SPAM 不要用肮脏的眼光看，这是世界上最纯净的海滩：未成年…</a>
 </h2>
 <p>SPAM 不要用肮脏的眼光看，这是世界上最纯净的海滩：未成年禁止入内！<br><br>RE: 我分享了@背后一束光 的文章 http://t.cn/RUNJHW3[赞]</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3907231466457071" target="freeweibo-mirror">//@简艾儿--Jane:对吧？不信打板儿试试。。[嘻嘻]/…</a>
-</h2>
-<p>//@简艾儿--Jane:对吧？不信打板儿试试。。[嘻嘻]//@王灵明言说: [哈哈][哈哈][哈哈]//@简艾儿--Jane: 嗯。。很有快板的赶脚！[偷笑]<br><br>RE: 文革春风吹满地，国母再导样板戏。喜儿重拾汉阳造，大春又闹分田地。前朝地痞斗地主，本朝地主刮地皮。莫道今上恤民意，且看国际大撒币。若云当朝反腐急，请君笑看信访局。喜儿重生纪兰举，大春再世才厚题。老戏新唱迎圣意，勿当平民有议席。世事轮回一甲子，江山依旧啜血啼。（抄来的）<br><img src="http://ww3.sinaimg.cn/large/e3d8b8c3gw1exuk3k9fx3j20d209raaz.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
