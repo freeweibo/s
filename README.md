@@ -26,6 +26,24 @@
 <p>
 	<small> ============== 1小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3907755792507607" target="freeweibo-mirror">出兵！ //@陈岳峰-mobdom:不能容忍</a>
+</h2>
+<p>出兵！ //@陈岳峰-mobdom:不能容忍<br><br>RE: #天下#【外媒：IS分子一次枪杀200名儿童】中东也门一名反IS的活跃分子在网上公开一段令人震惊的影片，显示逊尼派极端组织IS进行一次冷血大屠杀，一次枪毙了两百人，遇难者全都是小孩。这些小孩被勒令一字排开，伏在泥地上，枪手近距离开火。详见：http://t.cn/RU0Rajs<br><img src="http://ww2.sinaimg.cn/large/60718250jw1exw88u8gudj20fa092mxf.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3907754202263567" target="freeweibo-mirror">右边→_→福山：为何“阿拉伯之春”以来，阿拉伯世界局势反而一…</a>
+</h2>
+<p>右边→_→福山：为何“阿拉伯之春”以来，阿拉伯世界局势反而一直恶化？埃及出现新的独裁，利比亚、也门和叙利亚呈无政府状态，以至出现了IS。http://t.cn/RAwaFHs //@大学狗:支那猪忘了大概不是你国反对联合国制裁is？<br><br>RE: 【外媒：IS蒙面武装分子一次性枪杀200名儿童】据外媒报道，中东也门一名反IS的人士在网上公开了一段令人震惊的影片，显示极端组织IS进行了一次冷血的大屠杀行动：一次性枪杀200名儿童。在片段中，大批小孩子被勒令一字排开，伏在泥地上，脸部朝下，场面残忍。http://t.cn/RU04ssz<br><img src="http://ww3.sinaimg.cn/large/61e04755gw1exw150m4u6j20dw089jrl.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3907744857659763" target="freeweibo-mirror">【外媒：IS蒙面武装分子一次性枪杀200名儿童】据外媒报道，…</a>
+</h2>
+<p>【外媒：IS蒙面武装分子一次性枪杀200名儿童】据外媒报道，中东也门一名反IS的人士在网上公开了一段令人震惊的影片，显示极端组织IS进行了一次冷血的大屠杀行动：一次性枪杀200名儿童。在片段中，大批小孩子被勒令一字排开，伏在泥地上，脸部朝下，场面残忍。http://t.cn/RU04ssz[怒][怒][怒]<br><img src="http://ww1.sinaimg.cn/large/6a3d7f8cjw1exw7ekvvn8j20c8079jrk.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3907716063628817" target="freeweibo-mirror">SPAM 我是来赞模特的[爱你]</a>
 </h2>
 <p>SPAM 我是来赞模特的[爱你]</p>
@@ -119,24 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3907318770786477" target="freeweibo-mirror">SPAM #福利# 【智能母婴安全秤】免费送，每天送出600…</a>
 </h2>
 <p>SPAM #福利# 【智能母婴安全秤】免费送，每天送出600台，中奖机会好大[给力] ，已经有孕妈收到啦，快转给身边的孕妈吧~[偷笑]</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3907314627329383" target="freeweibo-mirror">//@千歧浪://@红菱燕1://@国际专家点评: 四人帮无…</a>
-</h2>
-<p>//@千歧浪://@红菱燕1://@国际专家点评: 四人帮无罪。//@红菱燕1://@河北沙代: 转发微博<br><br>RE: 江青一身正气，两袖清风，构成了对邓小平贪腐家族的致命威胁。不杀江青的确不足以解平贪官之忧。我们要搞改革开放，官场必须复辟到解放前那样。邓小平昼夜难眠“留着江青，等于断绝大家的财路”所以江青必须死，不仅生命，荣誉也要死。只是他忘记了，江青生命可以由他决定，江青的荣誉却由历史决定。<br><img src="http://ww3.sinaimg.cn/large/005AQ7zfjw1exsnt590qsj308x0643yk.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3907312601263822" target="freeweibo-mirror">//@巴楚渔樵: //@金陵酒徒仓氏: 金太阳万岁，大金王朝…</a>
-</h2>
-<p>//@巴楚渔樵: //@金陵酒徒仓氏: 金太阳万岁，大金王朝万岁[阴险] //@木尔:2014年11月14日，缅甸仰光，美国总统奥巴马与缅甸反对派领导人昂山素季举行会晤，并拥抱亲吻昂山素季。顺便高喊一句：金太阳万岁！万岁！万万岁！！！[笑cry]//@作家金槿姬: 你家才“大王”呢！[怒]<br><br>RE: 【昂山素季代表的民盟称赢得缅甸大选近70%选票】一定是境外势力的暗箱操作，缅甸不配拥有民主。缅甸的所谓民主更多是西方民主，不是缅甸特色民主。要问民主哪家强？白头山上金大王！<br><img src="http://ww3.sinaimg.cn/large/63e10c60gw1exut291js2j20ck08c0ta.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3907306523746336" target="freeweibo-mirror">【昂山素季代表的民盟称赢得缅甸大选近70%选票】一定是境外势…</a>
-</h2>
-<p>【昂山素季代表的民盟称赢得缅甸大选近70%选票】一定是境外势力的暗箱操作，缅甸不配拥有民主。缅甸的所谓民主更多是西方民主，不是缅甸特色民主。要问民主哪家强？白头山上金大王！<br><img src="http://ww3.sinaimg.cn/large/63e10c60gw1exut291js2j20ck08c0ta.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
