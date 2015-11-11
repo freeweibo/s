@@ -66,7 +66,7 @@
 </h2>
 <p>【外媒：IS蒙面武装分子一次性枪杀200名儿童】http://t.cn/RU04ssz人们对IS深恶痛绝，但却对产生IS以及无数恐怖分子的那个“背景”却不敢触及、讳莫如深，这是因为人类还没有真正的战胜邪恶，还生活在恐惧之中！<br><img src="http://ww4.sinaimg.cn/large/a0900c40jw1exw9nvss25j20c806s3yp.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3907755792507607" target="freeweibo-mirror">出兵！ //@陈岳峰-mobdom:不能容忍</a>
 </h2>
