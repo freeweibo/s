@@ -20,6 +20,18 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3908093161020408" target="freeweibo-mirror">这就是信奉真主、安拉干的事？</a>
+</h2>
+<p>这就是信奉真主、安拉干的事？</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3908088647830760" target="freeweibo-mirror">【IS蒙面武装分子一次性枪杀200名儿童】据外媒报道，中东也…</a>
+</h2>
+<p>【IS蒙面武装分子一次性枪杀200名儿童】据外媒报道，中东也门一名反IS的人士在网上公开了一段令人震惊的影片，显示极端组织IS进行了一次冷血的大屠杀行动：一次性枪杀200名儿童。在片段中，大批小孩子被勒令一字排开，伏在泥地上，脸部朝下，场面残忍。http://t.cn/RU04ssz<br><img src="http://ww4.sinaimg.cn/large/657e68d0jw1exxavriv4sj20c8079jrm.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3908068271957227" target="freeweibo-mirror">SPAM 无公害无农药的纯绿色苹果[威武]</a>
 </h2>
 <p>SPAM 无公害无农药的纯绿色苹果[威武]</p>
@@ -125,18 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3907921320781807" target="freeweibo-mirror">@李方平律师 ：【民主，不存在决定意义上的素质论】在缅甸独裁…</a>
 </h2>
 <p>@李方平律师 ：【民主，不存在决定意义上的素质论】在缅甸独裁政权放开一点点口子，缅甸人民就能进行和平、有序、竞争性的选举。从他们排队投票的表情就能看到他们会心的微笑。 缅甸人素质比我们高？其实众所周知，缅甸的人均财富、中产阶级、识字率、交通通讯都远逊于中国。 习总，不要这么看我？<br><img src="http://ww1.sinaimg.cn/large/5fbb35a2gw1exwrjn1gu2j20hs0bbgnp.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3907917138566146" target="freeweibo-mirror">SPAM →_→ //@王强_99:→_→//@天佑干女儿微…</a>
-</h2>
-<p>SPAM →_→ //@王强_99:→_→//@天佑干女儿微博:[泪]→_→ //@财经女作家:→_→ //@翁浩在思考:在我短短的一生里，百年一遇的洪水见过10次，千年一遇的地震见过2次，唯独四年一遇的全民大选还没遇见过。[泪]</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3907913644673408" target="freeweibo-mirror">【世界观】中国像大象，可悲在于把周围小国当盲人，其实自己色盲…</a>
-</h2>
-<p>【世界观】中国像大象，可悲在于把周围小国当盲人，其实自己色盲！缅甸从即日起废除针对所有本地出版部门的审查制度，昂山素季在这方面起到了不可磨灭的作用，她说：如果不解决民主，不解除极权对群体的控制，人的同情心就会丧失殆尽，人性愈来愈恶。长期在极权威控下人的向善心就会丧失殆尽！……哼！<br><img src="http://ww4.sinaimg.cn/large/7b94883fjw1exwqosl5r4j20dc09zq3g.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
