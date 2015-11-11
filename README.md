@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3908068271957227" target="freeweibo-mirror">SPAM 无公害无农药的纯绿色苹果[威武]</a>
+</h2>
+<p>SPAM 无公害无农药的纯绿色苹果[威武]</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3908052551546910" target="freeweibo-mirror">SPAM 全程看着同事拍摄的。嗯哼，小伙子姑娘们很辛苦呢。</a>
 </h2>
 <p>SPAM 全程看着同事拍摄的。嗯哼，小伙子姑娘们很辛苦呢。</p>
@@ -48,7 +54,7 @@
 </h2>
 <p>//@吃斋的猫2011: 您有读懂中文的能力吗？ //@南飘浮云:这就是支持独裁的理由？//@吃斋的猫2011: 希望靠一次选举就改变未来，不是小清新就是大忽悠。曾常驻某国，上届政府贪腐，囿于民主只好等五年再选，五年后反对党上台，新政府倒是不贪但也不干事无能无为，只能再等五年。<br><br>RE: 【从微信朋友“行者”那里借来下述评论】这张脸上溢满了对民主缅甸未来的幸福憧憬…这双饱含晶莹泪光的双眼则透着对她投出的选票如愿以偿的感激。。今天使她与吴登盛和昂山素季一起登上了脸书头榜！<br><img src="http://ww4.sinaimg.cn/large/48866320jw1exvjp3orunj20fj0fagmx.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3908016275038901" target="freeweibo-mirror">[NO]老黄太黄了。</a>
 </h2>
@@ -120,7 +126,7 @@
 </h2>
 <p>【世界观】中国像大象，可悲在于把周围小国当盲人，其实自己色盲！缅甸从即日起废除针对所有本地出版部门的审查制度，昂山素季在这方面起到了不可磨灭的作用，她说：如果不解决民主，不解除极权对群体的控制，人的同情心就会丧失殆尽，人性愈来愈恶。长期在极权威控下人的向善心就会丧失殆尽！……哼！<br><img src="http://ww4.sinaimg.cn/large/7b94883fjw1exwqosl5r4j20dc09zq3g.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3907789678643165" target="freeweibo-mirror">SPAM 告别单身找女巫！[爱你]</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3907789275019820" target="freeweibo-mirror">SPAM 求脱单，求脱单，求脱单！！！[抓狂]</a>
 </h2>
 <p>SPAM 求脱单，求脱单，求脱单！！！[抓狂]</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3907782098915976" target="freeweibo-mirror">[酷][话筒]//@率乐妮再来:所以俺搬运过来，只是视频不能…</a>
-</h2>
-<p>[酷][话筒]//@率乐妮再来:所以俺搬运过来，只是视频不能通过审核，要翻墙出去看//@老衲偷腥: 这个在电视新闻里面是看不到的</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
