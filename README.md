@@ -24,7 +24,7 @@
 </h2>
 <p>致敬杨继绳先生，中国因为有了他，新闻记者这个职业才算有了值得尊敬的标准。<br><br>RE: 杨继绳瑞典获奖致辞： 评委会给《墓碑》授奖,体现了评委会的人道关怀。在我结束讲话的时候,让我们一起为 3600 万饿死的农民默哀!(全体起立,默哀五秒钟)。我为此表示衷心地感谢!这是对中国饿殍远离万里的默哀,是迟到五十多年的默哀, 人道关怀超越了时间,超越了国界...<br><img src="http://ww2.sinaimg.cn/large/63493c15jw1exx2me00xpj208c05jt8w.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3908127181077746" target="freeweibo-mirror">//@孟彦弘: //@李佳佳Audrey:刚刚在微信看了杨先…</a>
 </h2>
@@ -84,7 +84,7 @@
 </h2>
 <p>SPAM 无公害无农药的纯绿色苹果[威武]</p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3908058319058856" target="freeweibo-mirror">ahhhhhhhhhhh, somebody tell me…</a>
 </h2>
@@ -108,7 +108,7 @@
 </h2>
 <p>SPAM 全程看着同事拍摄的。嗯哼，小伙子姑娘们很辛苦呢。</p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3908050412426658" target="freeweibo-mirror">[怒][怒][蜡烛][蜡烛] //@侯宁:[蜡烛][怒]//…</a>
 </h2>
