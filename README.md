@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3907921945799081" target="freeweibo-mirror">#缅甸大选#共同缔造奇迹：3300万选民，80%的投票率，9…</a>
+</h2>
+<p>#缅甸大选#共同缔造奇迹：3300万选民，80%的投票率，91个党派、4000多国际记者、4.6万个投票站、6000多候选人、1000名国际观察员、近1万国内观察员。</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3907789678643165" target="freeweibo-mirror">SPAM 告别单身找女巫！[爱你]</a>
 </h2>
 <p>SPAM 告别单身找女巫！[爱你]</p>
@@ -60,7 +66,7 @@
 </h2>
 <p>右边→_→福山：为何“阿拉伯之春”以来，阿拉伯世界局势反而一直恶化？埃及出现新的独裁，利比亚、也门和叙利亚呈无政府状态，以至出现了IS。http://t.cn/RAwaFHs //@大学狗:支那猪忘了大概不是你国反对联合国制裁is？<br><br>RE: 【外媒：IS蒙面武装分子一次性枪杀200名儿童】据外媒报道，中东也门一名反IS的人士在网上公开了一段令人震惊的影片，显示极端组织IS进行了一次冷血的大屠杀行动：一次性枪杀200名儿童。在片段中，大批小孩子被勒令一字排开，伏在泥地上，脸部朝下，场面残忍。http://t.cn/RU04ssz<br><img src="http://ww3.sinaimg.cn/large/61e04755gw1exw150m4u6j20dw089jrl.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3907752512460367" target="freeweibo-mirror">#天下#【外媒：IS分子一次枪杀200名儿童】中东也门一名反…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3907433066175256" target="freeweibo-mirror">SPAM 小清新[鼓掌]</a>
 </h2>
 <p>SPAM 小清新[鼓掌]</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3907422928114938" target="freeweibo-mirror">我发表了新文章：广州警方打击制售假成效显著 广州市公安局新闻…</a>
-</h2>
-<p>我发表了新文章：广州警方打击制售假成效显著 广州市公安局新闻办公室今天（11月9日）向媒体通报，2015年初，广州警方根据上级机关的工作部署... http://t.cn/RUpGxXX</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
