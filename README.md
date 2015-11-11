@@ -72,7 +72,7 @@
 </h2>
 <p>【世界观】中国像大象，可悲在于把周围小国当盲人，其实自己色盲！缅甸从即日起废除针对所有本地出版部门的审查制度，昂山素季在这方面起到了不可磨灭的作用，她说：如果不解决民主，不解除极权对群体的控制，人的同情心就会丧失殆尽，人性愈来愈恶。长期在极权威控下人的向善心就会丧失殆尽！……哼！<br><img src="http://ww4.sinaimg.cn/large/7b94883fjw1exwqosl5r4j20dc09zq3g.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3907789678643165" target="freeweibo-mirror">SPAM 告别单身找女巫！[爱你]</a>
 </h2>
