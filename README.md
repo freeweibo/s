@@ -138,7 +138,7 @@
 </h2>
 <p>「韩国电影《深情触摸》片段」想看全片？so easy#合肥生活#<br><img src="http://ww4.sinaimg.cn/large/7f5ae563jw1exx42gud0ag207f046k6w.gif"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p>
 <table>
     <tr>
