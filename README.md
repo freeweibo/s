@@ -60,7 +60,7 @@
 </h2>
 <p>@李方平律师 ：【民主，不存在决定意义上的素质论】在缅甸独裁政权放开一点点口子，缅甸人民就能进行和平、有序、竞争性的选举。从他们排队投票的表情就能看到他们会心的微笑。 缅甸人素质比我们高？其实众所周知，缅甸的人均财富、中产阶级、识字率、交通通讯都远逊于中国。 习总，不要这么看我？<br><img src="http://ww1.sinaimg.cn/large/5fbb35a2gw1exwrjn1gu2j20hs0bbgnp.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3907917138566146" target="freeweibo-mirror">SPAM →_→ //@王强_99:→_→//@天佑干女儿微…</a>
 </h2>
