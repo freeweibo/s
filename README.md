@@ -132,7 +132,7 @@
 </h2>
 <p>「韩国电影《深情触摸》片段」想看全片？so easy#合肥生活#<br><img src="http://ww4.sinaimg.cn/large/7f5ae563jw1exx42gud0ag207f046k6w.gif"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3908019454749923" target="freeweibo-mirror">//@吃斋的猫2011: 您有读懂中文的能力吗？ //@南飘…</a>
 </h2>
