@@ -26,6 +26,18 @@
 <p>
 	<small> ============== 1小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3907921320781807" target="freeweibo-mirror">@李方平律师 ：【民主，不存在决定意义上的素质论】在缅甸独裁…</a>
+</h2>
+<p>@李方平律师 ：【民主，不存在决定意义上的素质论】在缅甸独裁政权放开一点点口子，缅甸人民就能进行和平、有序、竞争性的选举。从他们排队投票的表情就能看到他们会心的微笑。 缅甸人素质比我们高？其实众所周知，缅甸的人均财富、中产阶级、识字率、交通通讯都远逊于中国。 习总，不要这么看我？<br><img src="http://ww1.sinaimg.cn/large/5fbb35a2gw1exwrjn1gu2j20hs0bbgnp.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3907917138566146" target="freeweibo-mirror">SPAM →_→ //@王强_99:→_→//@天佑干女儿微…</a>
+</h2>
+<p>SPAM →_→ //@王强_99:→_→//@天佑干女儿微博:[泪]→_→ //@财经女作家:→_→ //@翁浩在思考:在我短短的一生里，百年一遇的洪水见过10次，千年一遇的地震见过2次，唯独四年一遇的全民大选还没遇见过。[泪]</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3907789678643165" target="freeweibo-mirror">SPAM 告别单身找女巫！[爱你]</a>
 </h2>
 <p>SPAM 告别单身找女巫！[爱你]</p>
@@ -60,7 +72,7 @@
 </h2>
 <p>出兵！ //@陈岳峰-mobdom:不能容忍<br><br>RE: #天下#【外媒：IS分子一次枪杀200名儿童】中东也门一名反IS的活跃分子在网上公开一段令人震惊的影片，显示逊尼派极端组织IS进行一次冷血大屠杀，一次枪毙了两百人，遇难者全都是小孩。这些小孩被勒令一字排开，伏在泥地上，枪手近距离开火。详见：http://t.cn/RU0Rajs<br><img src="http://ww2.sinaimg.cn/large/60718250jw1exw88u8gudj20fa092mxf.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3907754202263567" target="freeweibo-mirror">右边→_→福山：为何“阿拉伯之春”以来，阿拉伯世界局势反而一…</a>
 </h2>
@@ -125,18 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3907598246175358" target="freeweibo-mirror">狗厨的鬼佬，一堆RPG都是一人一狗，比如剧情特别傻逼的神鬼2…</a>
 </h2>
 <p>狗厨的鬼佬，一堆RPG都是一人一狗，比如剧情特别傻逼的神鬼2，通关后会给你三个选择，复活被杀死的家人、复活被杀死的村民、复活你的狗，然后果断选择了狗…//@果子狸爬大树: 老头老太因克雷这个任务我没玩到啊～～～太酷拉～～～</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3907566193178306" target="freeweibo-mirror">//@曹国洪微谈: //@醒龙智:回复@歌尽风2011:谢谢…</a>
-</h2>
-<p>//@曹国洪微谈: //@醒龙智:回复@歌尽风2011:谢谢！<br><br>RE: 据新加坡《海峡时报》报导与计算，习近平的谈话大约3分多钟，而马英九却达到7分钟。在马英九谈话到5分44秒时，习近平开始喝着茶，还有轻微咳嗽，但随后中国警卫就开始赶记者。而台湾警卫则跳出来，表示让记者留在现场，让记者把马英九的谈话听完再离开。<br><img src="http://ww3.sinaimg.cn/large/006gZf13gw1exuhporzoij30c808aaae.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3907433066175256" target="freeweibo-mirror">SPAM 小清新[鼓掌]</a>
-</h2>
-<p>SPAM 小清新[鼓掌]</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
