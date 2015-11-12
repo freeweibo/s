@@ -48,7 +48,7 @@
 </h2>
 <p>这就是信奉真主、安拉干的事？</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3908088647830760" target="freeweibo-mirror">【IS蒙面武装分子一次性枪杀200名儿童】据外媒报道，中东也…</a>
 </h2>
