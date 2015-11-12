@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3908396824400571" target="freeweibo-mirror">技穷，恐怖小说也编不出这样的情节//@芥末冰糕: 毛骨悚然/…</a>
+</h2>
+<p>技穷，恐怖小说也编不出这样的情节//@芥末冰糕: 毛骨悚然//@文----雨: 太恐怖了。山西那地，从上到下的领导撸得差不多，还真不是偶然的。 //@林水妖: 真是毛骨悚然人间地狱。</p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3908391308847428" target="freeweibo-mirror">SPAM 我觉得鱼总这个号也不会活太久[笑cry]//@杀生…</a>
 </h2>
 <p>SPAM 我觉得鱼总这个号也不会活太久[笑cry]//@杀生地藏:快来举报//@风魔无下限: 吓得我都忘了关注了//@小鱼-A4台风: 日子不好混啊！</p>
@@ -92,6 +98,12 @@
 <p>
 	<small> ============== 1天前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3908091278006634" target="freeweibo-mirror">[蜡烛]“我心疼哥哥，特地买了一把新刀，一刀一刀的把他身上的…</a>
+</h2>
+<p>[蜡烛]“我心疼哥哥，特地买了一把新刀，一刀一刀的把他身上的肉割了”。两鬓斑白的王福（化名）沙哑地说。王福52岁的哥哥山西小煤窑遇难，矿主为瞒报：“全尸别想出省，只能带死人骨架”“小侄子才17，我不想让他见到，矿主把哥哥尸体拉到一个小屋，哪知道孩子在窗外一直在看，两个月了，一句话不说。<br><img src="http://ww2.sinaimg.cn/large/65c38c30jw1exxb6xx8r4j20c80vkn11.jpg"></p>
+<p>
+	<small> ============== 1天前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3908088647830760" target="freeweibo-mirror">【IS蒙面武装分子一次性枪杀200名儿童】据外媒报道，中东也…</a>
 </h2>
 <p>【IS蒙面武装分子一次性枪杀200名儿童】据外媒报道，中东也门一名反IS的人士在网上公开了一段令人震惊的影片，显示极端组织IS进行了一次冷血的大屠杀行动：一次性枪杀200名儿童。在片段中，大批小孩子被勒令一字排开，伏在泥地上，脸部朝下，场面残忍。http://t.cn/RU04ssz<br><img src="http://ww4.sinaimg.cn/large/657e68d0jw1exxavriv4sj20c8079jrm.jpg"></p>
@@ -125,18 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3908068271957227" target="freeweibo-mirror">SPAM 无公害无农药的纯绿色苹果[威武]</a>
 </h2>
 <p>SPAM 无公害无农药的纯绿色苹果[威武]</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3908058319058856" target="freeweibo-mirror">ahhhhhhhhhhh, somebody tell me…</a>
-</h2>
-<p>ahhhhhhhhhhh, somebody tell me WHY, does it have to do be like this, they're just kids[泪][泪][泪]//@理性的乌托邦:意识形态上跟美国作对的都是朋友。//@-驕枝玉葉-: [怒][怒]//@染红珠峰：记住那两个投反对票的流氓！<br><br>RE: 【视频来了】据外媒报道，中东也门一名反IS的人士在网上公开了一段令人震惊的影片：极端组织IS进行了一次冷血的大屠杀行动——一次性枪杀200名儿童。在片段中，大批小孩子被勒令一字排开，伏在泥地上，脸部朝下，场面比较残忍。http://t.cn/RUOipk0</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3908057752561123" target="freeweibo-mirror">SPAM 最近这几天最好都别惹股侠，状态火的似火！不光看大盘…</a>
-</h2>
-<p>SPAM 最近这几天最好都别惹股侠，状态火的似火！不光看大盘犹如神助，实盘操作也是挡不住的手热，三天抓了5个板（其中一个太平洋是盘中涨停），这么火的状态，就看股侠微博吧，都别没事找事的。[酷]</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
