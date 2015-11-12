@@ -54,7 +54,7 @@
 </h2>
 <p>SPAM 【欣赏】江青演唱《白毛女》中“北风吹”歌曲片断，仅28秒！ http://t.cn/RUWFF3d</p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3908396824400571" target="freeweibo-mirror">技穷，恐怖小说也编不出这样的情节//@芥末冰糕: 毛骨悚然/…</a>
 </h2>
