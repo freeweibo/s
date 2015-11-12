@@ -54,7 +54,7 @@
 </h2>
 <p>【IS蒙面武装分子一次性枪杀200名儿童】据外媒报道，中东也门一名反IS的人士在网上公开了一段令人震惊的影片，显示极端组织IS进行了一次冷血的大屠杀行动：一次性枪杀200名儿童。在片段中，大批小孩子被勒令一字排开，伏在泥地上，脸部朝下，场面残忍。http://t.cn/RU04ssz<br><img src="http://ww4.sinaimg.cn/large/657e68d0jw1exxavriv4sj20c8079jrm.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3908080943178527" target="freeweibo-mirror">SPAM 这帮孙子！[怒][怒][怒]</a>
 </h2>
