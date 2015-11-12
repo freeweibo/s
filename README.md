@@ -36,7 +36,7 @@
 </h2>
 <p>SPAM 视疲劳是一种常见的疾病，但是并不受人重视。在办公室生活中，大家可能会感到近距离工作不能持久、眼睛疼痛、视物模糊等问题，这其实很有可能就是视疲劳了，视疲劳可能会引起其他眼部疾病。如果保护眼睛，缓解视疲劳，请戳大图。<br><img src="http://ww4.sinaimg.cn/large/4947e3dagw1exy7jtd1gnj20bz1u7n6a.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3908367733070531" target="freeweibo-mirror">SPAM 来~！ 先试试水看看……[doge][doge]</a>
 </h2>
