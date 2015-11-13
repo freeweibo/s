@@ -48,7 +48,7 @@
 </h2>
 <p>组团贪污受贿 //@饶国平:贪污和受贿部[偷笑]</p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3908731387760328" target="freeweibo-mirror">SPAM 「韩国电影《深情触摸》片段」想看全片？so eas…</a>
 </h2>
@@ -72,7 +72,7 @@
 </h2>
 <p>《三亚日报》报道称，设立“贪污和受贿部”，这是什么部门？ http://t.cn/RUl8rxJ<br><img src="http://ww1.sinaimg.cn/large/67f74814jw1exz4rx2m54j20c80fv75d.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3908641637730703" target="freeweibo-mirror">//@马方泰山:转发微博</a>
 </h2>
