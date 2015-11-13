@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3908641637730703" target="freeweibo-mirror">//@马方泰山:转发微博</a>
+</h2>
+<p>//@马方泰山:转发微博<br><br>RE: 【立冬后的造句】FT中文网专栏作家老愚：从宣布调查、审判到入狱服刑，官员一直得到特别照顾，级别与待遇成正比，与民众犯罪分别明显。http://t.cn/RUlNNnH<br><img src="http://ww4.sinaimg.cn/large/6538fd8cjw1exz0qt7lhjg20200203yb.gif"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3908514575233160" target="freeweibo-mirror">SPAM 战神Z6-SL7D1性价比的确不错</a>
 </h2>
 <p>SPAM 战神Z6-SL7D1性价比的确不错</p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3908093161020408" target="freeweibo-mirror">这就是信奉真主、安拉干的事？</a>
 </h2>
 <p>这就是信奉真主、安拉干的事？</p>
-<p>
-	<small> ============== 2天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3908091278006634" target="freeweibo-mirror">[蜡烛]“我心疼哥哥，特地买了一把新刀，一刀一刀的把他身上的…</a>
-</h2>
-<p>[蜡烛]“我心疼哥哥，特地买了一把新刀，一刀一刀的把他身上的肉割了”。两鬓斑白的王福（化名）沙哑地说。王福52岁的哥哥山西小煤窑遇难，矿主为瞒报：“全尸别想出省，只能带死人骨架”“小侄子才17，我不想让他见到，矿主把哥哥尸体拉到一个小屋，哪知道孩子在窗外一直在看，两个月了，一句话不说。<br><img src="http://ww2.sinaimg.cn/large/65c38c30jw1exxb6xx8r4j20c80vkn11.jpg"></p>
 <p>
 	<small> ============== 2天前</small>
 </p>
