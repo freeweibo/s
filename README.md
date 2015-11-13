@@ -132,7 +132,7 @@
 </h2>
 <p>这就是信奉真主、安拉干的事？</p>
 <p>
-	<small> ============== 1天前</small>
+	<small> ============== 2天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3908091278006634" target="freeweibo-mirror">[蜡烛]“我心疼哥哥，特地买了一把新刀，一刀一刀的把他身上的…</a>
 </h2>
