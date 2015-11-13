@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3908800689771148" target="freeweibo-mirror">//@老吉他08860:你只要一提【妄议】，就等于是妄议了！</a>
+</h2>
+<p>//@老吉他08860:你只要一提【妄议】，就等于是妄议了！<br><br>RE: 【参加第二届大梅沙中国创新论坛】一条表示“我服，我不妄议”的微博也被删，任志强那条也不见了。确实不敢妄议，明天我讲司法民主与陪审制，决不跑题。 不敢妄议现实，那就说说神话吧。窗外，海风吹拂，海浪拍岸，正是闲扯的时候。http://t.cn/RUjcYN3<br><img src="http://ww2.sinaimg.cn/large/656952ecgw1exziud1efgj20c80gb3ze.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3908799930323330" target="freeweibo-mirror">SPAM 七年了。//@诗人刀哥:回复@李军林导演:还要四年…</a>
 </h2>
 <p>SPAM 七年了。//@诗人刀哥:回复@李军林导演:还要四年啊？//@李军林导演:四年后，刘先生就出来了。<br><br>RE: 新京报：关押刘晓波的辽宁锦州监狱副监狱长在家自缢身亡。<br><img src="http://ww3.sinaimg.cn/large/55758575jw1exz1ppo0jgj20ku112teh.jpg"></p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3908396824400571" target="freeweibo-mirror">技穷，恐怖小说也编不出这样的情节//@芥末冰糕: 毛骨悚然/…</a>
 </h2>
 <p>技穷，恐怖小说也编不出这样的情节//@芥末冰糕: 毛骨悚然//@文----雨: 太恐怖了。山西那地，从上到下的领导撸得差不多，还真不是偶然的。 //@林水妖: 真是毛骨悚然人间地狱。</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3908391308847428" target="freeweibo-mirror">SPAM 我觉得鱼总这个号也不会活太久[笑cry]//@杀生…</a>
-</h2>
-<p>SPAM 我觉得鱼总这个号也不会活太久[笑cry]//@杀生地藏:快来举报//@风魔无下限: 吓得我都忘了关注了//@小鱼-A4台风: 日子不好混啊！</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
