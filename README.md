@@ -72,7 +72,7 @@
 </h2>
 <p>《三亚日报》报道称，设立“贪污和受贿部”，这是什么部门？ http://t.cn/RUl8rxJ<br><img src="http://ww1.sinaimg.cn/large/67f74814jw1exz4rx2m54j20c80fv75d.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3908641637730703" target="freeweibo-mirror">//@马方泰山:转发微博</a>
 </h2>
