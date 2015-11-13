@@ -20,6 +20,18 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3908841420782606" target="freeweibo-mirror">有些人醒悟不过来啊！</a>
+</h2>
+<p>有些人醒悟不过来啊！<br><br>RE: 【 没有民主法治，他们的命运不如普通人】1、国家主席刘少奇；2、国家主席夫人王光美；3、政治局委员，北京市委书记彭真；4彭德怀元帅；5、国务院副总理薄一波；6、总长罗瑞卿跳楼自杀，摔断腿后被用箩筐抬入会场；7、中宣部长陆定一；8、东北局第一书记宋任穷；9、你知道的。http://t.cn/RUjA1x6<br><img src="http://ww2.sinaimg.cn/large/be8f8847gw1exzesxnsigj20go0bo75g.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3908802656930667" target="freeweibo-mirror">薄熙来之“弥天大罪”，不外就是：1、为人民服务罪；2、共同富…</a>
+</h2>
+<p>薄熙来之“弥天大罪”，不外就是：1、为人民服务罪；2、共同富裕罪；3、唱红打黑罪；4、改革探索罪；5、信仰坚定 罪；6、德才兼备罪；7、群众路线罪；8、廉洁奉公罪；9、公平正义罪；10、真共产党人罪！</p>
+<p>
+	<small> ============== 5小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3908800689771148" target="freeweibo-mirror">//@老吉他08860:你只要一提【妄议】，就等于是妄议了！</a>
 </h2>
 <p>//@老吉他08860:你只要一提【妄议】，就等于是妄议了！<br><br>RE: 【参加第二届大梅沙中国创新论坛】一条表示“我服，我不妄议”的微博也被删，任志强那条也不见了。确实不敢妄议，明天我讲司法民主与陪审制，决不跑题。 不敢妄议现实，那就说说神话吧。窗外，海风吹拂，海浪拍岸，正是闲扯的时候。http://t.cn/RUjcYN3<br><img src="http://ww2.sinaimg.cn/large/656952ecgw1exziud1efgj20c80gb3ze.jpg"></p>
@@ -125,18 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3908497869135117" target="freeweibo-mirror">SPAM 刚才有人问我是不是不太在意物质生活，我回答：你才不…</a>
 </h2>
 <p>SPAM 刚才有人问我是不是不太在意物质生活，我回答：你才不在意物质生活，你全家都不在意物质生活。</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3908436456754945" target="freeweibo-mirror">施主，看脉象是月经不调啊！</a>
-</h2>
-<p>施主，看脉象是月经不调啊！<br><img src="http://ww1.sinaimg.cn/large/90e6a6ddgw1exyeu1czufj20c807vmxy.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3908432690168401" target="freeweibo-mirror">SPAM 【欣赏】江青演唱《白毛女》中“北风吹”歌曲片断，仅…</a>
-</h2>
-<p>SPAM 【欣赏】江青演唱《白毛女》中“北风吹”歌曲片断，仅28秒！ http://t.cn/RUWFF3d</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
