@@ -30,7 +30,7 @@
 </h2>
 <p>SPAM 「韩国电影《深情触摸》片段」想看全片？so easy#长春生活#<br><img src="http://ww1.sinaimg.cn/large/006gDilBjw1exzcp6h7m5g307f046k6w.gif"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3908724726632159" target="freeweibo-mirror">支持，我们官网也是一直在用七牛的云存储！[good]</a>
 </h2>
