@@ -78,7 +78,7 @@
 </h2>
 <p>支持，我们官网也是一直在用七牛的云存储！[good]</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3908689242732724" target="freeweibo-mirror">SPAM 风靡全网，手机像长在了手上，根本停不下来(๑¯ω¯…</a>
 </h2>
