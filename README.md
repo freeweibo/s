@@ -54,7 +54,7 @@
 </h2>
 <p>【参加第二届大梅沙中国创新论坛】一条表示“我服，我不妄议”的微博也被删，任志强那条也不见了。确实不敢妄议，明天我讲司法民主与陪审制，决不跑题。 不敢妄议现实，那就说说神话吧。窗外，海风吹拂，海浪拍岸，正是闲扯的时候。http://t.cn/RUjcYN3<br><img src="http://ww2.sinaimg.cn/large/656952ecgw1exziud1efgj20c80gb3ze.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3908749637184430" target="freeweibo-mirror">【 没有民主法治，他们的命运不如普通人】1、国家主席刘少奇；…</a>
 </h2>
