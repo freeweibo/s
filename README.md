@@ -38,6 +38,12 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3908784898778476" target="freeweibo-mirror">【参加第二届大梅沙中国创新论坛】一条表示“我服，我不妄议”的…</a>
+</h2>
+<p>【参加第二届大梅沙中国创新论坛】一条表示“我服，我不妄议”的微博也被删，任志强那条也不见了。确实不敢妄议，明天我讲司法民主与陪审制，决不跑题。 不敢妄议现实，那就说说神话吧。窗外，海风吹拂，海浪拍岸，正是闲扯的时候。http://t.cn/RUjcYN3<br><img src="http://ww2.sinaimg.cn/large/656952ecgw1exziud1efgj20c80gb3ze.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3908744968519346" target="freeweibo-mirror">组团贪污受贿 //@饶国平:贪污和受贿部[偷笑]</a>
 </h2>
 <p>组团贪污受贿 //@饶国平:贪污和受贿部[偷笑]</p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3908432690168401" target="freeweibo-mirror">SPAM 【欣赏】江青演唱《白毛女》中“北风吹”歌曲片断，仅…</a>
 </h2>
 <p>SPAM 【欣赏】江青演唱《白毛女》中“北风吹”歌曲片断，仅28秒！ http://t.cn/RUWFF3d</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3908396824400571" target="freeweibo-mirror">技穷，恐怖小说也编不出这样的情节//@芥末冰糕: 毛骨悚然/…</a>
-</h2>
-<p>技穷，恐怖小说也编不出这样的情节//@芥末冰糕: 毛骨悚然//@文----雨: 太恐怖了。山西那地，从上到下的领导撸得差不多，还真不是偶然的。 //@林水妖: 真是毛骨悚然人间地狱。</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
