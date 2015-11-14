@@ -38,6 +38,12 @@
 <p>
 	<small> ============== 4小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3909074636426776" target="freeweibo-mirror">神评 //@谓贤:正常社会要养党？//@杨子评:转发微博</a>
+</h2>
+<p>神评 //@谓贤:正常社会要养党？//@杨子评:转发微博<br><br>RE: 环球时报说是因为人们把正常社会里用来养两三个孩子的钱用来养一个孩子了，所以才会嚷嚷“养不起”，还说这才是畸形的教育。网友神回复：人们把正常社会里用来养两三个党的钱用来养一个党了，所以才会民不聊生，这才是畸形的国家。<br><img src="http://ww3.sinaimg.cn/large/c6477a12gw1exzmuvqkezj20h809ujt6.jpg"></p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3909071368974422" target="freeweibo-mirror">赞同最右。//@心儿吃浪分店: 最右→_→//@五月花号在幂…</a>
 </h2>
 <p>赞同最右。//@心儿吃浪分店: 最右→_→//@五月花号在幂王星://@野火苍茫: //@先行水:[生病][汗]→_→//@管荣君同志:董存瑞//@先行水: 有自爆的吗？//@管荣君同志:当年马列猖獗的时候，一点都不慢性，比ISIS还性急。你去问下46年在山东的暴力土改和内战拉锯时期对待有产者的处决方式，就知道了。<br><br>RE: 恐怖主义的恐怖在你不接受他的信仰就得接受他的毁灭。IS是急性的，马列是慢性的。</p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3908662294975692" target="freeweibo-mirror">《三亚日报》报道称，设立“贪污和受贿部”，这是什么部门？ h…</a>
 </h2>
 <p>《三亚日报》报道称，设立“贪污和受贿部”，这是什么部门？ http://t.cn/RUl8rxJ<br><img src="http://ww1.sinaimg.cn/large/67f74814jw1exz4rx2m54j20c80fv75d.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3908641637730703" target="freeweibo-mirror">//@马方泰山:转发微博</a>
-</h2>
-<p>//@马方泰山:转发微博<br><br>RE: 【立冬后的造句】FT中文网专栏作家老愚：从宣布调查、审判到入狱服刑，官员一直得到特别照顾，级别与待遇成正比，与民众犯罪分别明显。http://t.cn/RUlNNnH<br><img src="http://ww4.sinaimg.cn/large/6538fd8cjw1exz0qt7lhjg20200203yb.gif"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
