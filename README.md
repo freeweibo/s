@@ -26,6 +26,12 @@
 <p>
 	<small> ============== 1小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3909234272209770" target="freeweibo-mirror">//@安普若-外号安校长:这是给五毛宣传手册上明确规定的，就…</a>
+</h2>
+<p>//@安普若-外号安校长:这是给五毛宣传手册上明确规定的，就是把所有民众的情绪都引向美国。可是最近听说，因为宣传经费的原因大部分五毛已经不付钱了，他们都回家种地或者在监狱里糊火柴盒呢。难道这个是自干五？ //@简直: //@无_花:宣传部立功了//@喷嚏网铂程:转发微博</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3909170006763306" target="freeweibo-mirror">#解读巴黎恐怖袭击#//@早睡早起的老头://@斯韦爵: /…</a>
 </h2>
 <p>#解读巴黎恐怖袭击#//@早睡早起的老头://@斯韦爵: //@海子cn3:2014年6月，IS宣布建国，将新疆纳入版图。<br><br>RE: 该单位被网友戏称为isis住天朝宣传部<br><img src="http://ww1.sinaimg.cn/large/52038d40gw1ey0gpovfzkj20f90lx40k.jpg"></p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3908800689771148" target="freeweibo-mirror">//@老吉他08860:你只要一提【妄议】，就等于是妄议了！</a>
 </h2>
 <p>//@老吉他08860:你只要一提【妄议】，就等于是妄议了！<br><br>RE: 【参加第二届大梅沙中国创新论坛】一条表示“我服，我不妄议”的微博也被删，任志强那条也不见了。确实不敢妄议，明天我讲司法民主与陪审制，决不跑题。 不敢妄议现实，那就说说神话吧。窗外，海风吹拂，海浪拍岸，正是闲扯的时候。http://t.cn/RUjcYN3<br><img src="http://ww2.sinaimg.cn/large/656952ecgw1exziud1efgj20c80gb3ze.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3908799930323330" target="freeweibo-mirror">SPAM 七年了。//@诗人刀哥:回复@李军林导演:还要四年…</a>
-</h2>
-<p>SPAM 七年了。//@诗人刀哥:回复@李军林导演:还要四年啊？//@李军林导演:四年后，刘先生就出来了。<br><br>RE: 新京报：关押刘晓波的辽宁锦州监狱副监狱长在家自缢身亡。<br><img src="http://ww3.sinaimg.cn/large/55758575jw1exz1ppo0jgj20ku112teh.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
