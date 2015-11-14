@@ -36,13 +36,13 @@
 </h2>
 <p>#解读巴黎恐怖袭击#//@早睡早起的老头://@斯韦爵: //@海子cn3:2014年6月，IS宣布建国，将新疆纳入版图。<br><br>RE: 该单位被网友戏称为isis住天朝宣传部<br><img src="http://ww1.sinaimg.cn/large/52038d40gw1ey0gpovfzkj20f90lx40k.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3909154509139225" target="freeweibo-mirror">你想怎样？</a>
 </h2>
 <p>你想怎样？<br><br>RE: 一个恐怖分子确实不能代表穆斯林。可是全世界的恐怖分子全部都是穆斯林，这还不能代表穆斯林？是不是要把其他的信仰全部屠光，才会承认其实穆斯林就是恐怖分子呢？</p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3909150176509294" target="freeweibo-mirror">一个恐怖分子确实不能代表穆斯林。可是全世界的恐怖分子全部都是…</a>
 </h2>
