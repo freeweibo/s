@@ -24,13 +24,13 @@
 </h2>
 <p>#解读巴黎恐怖袭击#//@早睡早起的老头://@斯韦爵: //@海子cn3:2014年6月，IS宣布建国，将新疆纳入版图。<br><br>RE: 该单位被网友戏称为isis住天朝宣传部<br><img src="http://ww1.sinaimg.cn/large/52038d40gw1ey0gpovfzkj20f90lx40k.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3909154509139225" target="freeweibo-mirror">你想怎样？</a>
 </h2>
 <p>你想怎样？<br><br>RE: 一个恐怖分子确实不能代表穆斯林。可是全世界的恐怖分子全部都是穆斯林，这还不能代表穆斯林？是不是要把其他的信仰全部屠光，才会承认其实穆斯林就是恐怖分子呢？</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3909150176509294" target="freeweibo-mirror">一个恐怖分子确实不能代表穆斯林。可是全世界的恐怖分子全部都是…</a>
 </h2>
@@ -54,7 +54,7 @@
 </h2>
 <p>鞑靼屎报存在的最大乐趣就是秀这个野蛮畜类的智力底线[熊猫]//@强哥打酱油2: //@玉雪精灵: [挖鼻] //@美国大学网://@LT视界: 环球时报逻辑简单粗暴：中国所有社会问题都是民众“错误”思想导致的。[挖鼻]<br><br>RE: 环球时报说是因为人们把正常社会里用来养两三个孩子的钱用来养一个孩子了，所以才会嚷嚷“养不起”，还说这才是畸形的教育。网友神回复：人们把正常社会里用来养两三个党的钱用来养一个党了，所以才会民不聊生，这才是畸形的国家。<br><img src="http://ww3.sinaimg.cn/large/c6477a12gw1exzmuvqkezj20h809ujt6.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3909081502816798" target="freeweibo-mirror">//@迟夙生律师: //@天地律师:这孙子也被销号了！[哈哈…</a>
 </h2>
@@ -66,13 +66,13 @@
 </h2>
 <p>该单位被网友戏称为isis住天朝宣传部<br><img src="http://ww1.sinaimg.cn/large/52038d40gw1ey0gpovfzkj20f90lx40k.jpg"></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3909079682389256" target="freeweibo-mirror">【点评巴黎恐怖袭击之后】著名爱国主义教育普及专家，优秀道德模…</a>
 </h2>
 <p>【点评巴黎恐怖袭击之后】著名爱国主义教育普及专家，优秀道德模范，党和人民的好孙子。@杨三材 失联了！[吃惊]<br><img src="http://ww4.sinaimg.cn/large/0068kcoQgw1ey0gj9c4faj30yi1pc4ba.jpg"></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3909074636426776" target="freeweibo-mirror">神评 //@谓贤:正常社会要养党？//@杨子评:转发微博</a>
 </h2>
@@ -90,7 +90,7 @@
 </h2>
 <p>11月13日，中国新疆警方，历经五十六天追击，对暴恐分子发动总攻，取得重大战果！你们用鲜血与生命，谱写了一曲可歌可泣的战地之歌，铸就了那警帽上那闪闪发光的金色盾牌！致敬，向伟大的新疆战友们！礼赞，向奋战在共和国反分裂斗争一线的伟大战友们!<br><img src="http://ww1.sinaimg.cn/large/c82d5068gw1ey0c43xn0ij20ds0nymye.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3909012795903108" target="freeweibo-mirror">恐怖主义的恐怖在你不接受他的信仰就得接受他的毁灭。IS是急性…</a>
 </h2>
