@@ -26,6 +26,12 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3909123701253486" target="freeweibo-mirror">马赛克好评！点赞！</a>
+</h2>
+<p>马赛克好评！点赞！</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3909109994502115" target="freeweibo-mirror">鞑靼屎报存在的最大乐趣就是秀这个野蛮畜类的智力底线[熊猫]/…</a>
 </h2>
 <p>鞑靼屎报存在的最大乐趣就是秀这个野蛮畜类的智力底线[熊猫]//@强哥打酱油2: //@玉雪精灵: [挖鼻] //@美国大学网://@LT视界: 环球时报逻辑简单粗暴：中国所有社会问题都是民众“错误”思想导致的。[挖鼻]<br><br>RE: 环球时报说是因为人们把正常社会里用来养两三个孩子的钱用来养一个孩子了，所以才会嚷嚷“养不起”，还说这才是畸形的教育。网友神回复：人们把正常社会里用来养两三个党的钱用来养一个党了，所以才会民不聊生，这才是畸形的国家。<br><img src="http://ww3.sinaimg.cn/large/c6477a12gw1exzmuvqkezj20h809ujt6.jpg"></p>
@@ -55,6 +61,12 @@
 <p>赞同最右。//@心儿吃浪分店: 最右→_→//@五月花号在幂王星://@野火苍茫: //@先行水:[生病][汗]→_→//@管荣君同志:董存瑞//@先行水: 有自爆的吗？//@管荣君同志:当年马列猖獗的时候，一点都不慢性，比ISIS还性急。你去问下46年在山东的暴力土改和内战拉锯时期对待有产者的处决方式，就知道了。<br><br>RE: 恐怖主义的恐怖在你不接受他的信仰就得接受他的毁灭。IS是急性的，马列是慢性的。</p>
 <p>
 	<small> ============== 5小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3909041421586766" target="freeweibo-mirror">11月13日，中国新疆警方，历经五十六天追击，对暴恐分子发动…</a>
+</h2>
+<p>11月13日，中国新疆警方，历经五十六天追击，对暴恐分子发动总攻，取得重大战果！你们用鲜血与生命，谱写了一曲可歌可泣的战地之歌，铸就了那警帽上那闪闪发光的金色盾牌！致敬，向伟大的新疆战友们！礼赞，向奋战在共和国反分裂斗争一线的伟大战友们!<br><img src="http://ww1.sinaimg.cn/large/c82d5068gw1ey0c43xn0ij20ds0nymye.jpg"></p>
+<p>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3909012795903108" target="freeweibo-mirror">恐怖主义的恐怖在你不接受他的信仰就得接受他的毁灭。IS是急性…</a>
 </h2>
@@ -125,18 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3908731387760328" target="freeweibo-mirror">SPAM 「韩国电影《深情触摸》片段」想看全片？so eas…</a>
 </h2>
 <p>SPAM 「韩国电影《深情触摸》片段」想看全片？so easy#长春生活#<br><img src="http://ww1.sinaimg.cn/large/006gDilBjw1exzcp6h7m5g307f046k6w.gif"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3908724726632159" target="freeweibo-mirror">支持，我们官网也是一直在用七牛的云存储！[good]</a>
-</h2>
-<p>支持，我们官网也是一直在用七牛的云存储！[good]</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3908689242732724" target="freeweibo-mirror">SPAM 风靡全网，手机像长在了手上，根本停不下来(๑¯ω¯…</a>
-</h2>
-<p>SPAM 风靡全网，手机像长在了手上，根本停不下来(๑¯ω¯๑)</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
