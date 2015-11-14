@@ -30,7 +30,13 @@
 </h2>
 <p>//@迟夙生律师: //@天地律师:这孙子也被销号了！[哈哈]<br><br>RE: 【点评巴黎恐怖袭击之后】著名爱国主义教育普及专家，优秀道德模范，党和人民的好孙子。@杨三材 失联了！[吃惊]<br><img src="http://ww4.sinaimg.cn/large/0068kcoQgw1ey0gj9c4faj30yi1pc4ba.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3909079682389256" target="freeweibo-mirror">【点评巴黎恐怖袭击之后】著名爱国主义教育普及专家，优秀道德模…</a>
+</h2>
+<p>【点评巴黎恐怖袭击之后】著名爱国主义教育普及专家，优秀道德模范，党和人民的好孙子。@杨三材 失联了！[吃惊]<br><img src="http://ww4.sinaimg.cn/large/0068kcoQgw1ey0gj9c4faj30yi1pc4ba.jpg"></p>
+<p>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3909071368974422" target="freeweibo-mirror">赞同最右。//@心儿吃浪分店: 最右→_→//@五月花号在幂…</a>
 </h2>
@@ -53,6 +59,12 @@
 	<a href="https://freeweibo.com/weibo/3908841420782606" target="freeweibo-mirror">有些人醒悟不过来啊！</a>
 </h2>
 <p>有些人醒悟不过来啊！<br><br>RE: 【 没有民主法治，他们的命运不如普通人】1、国家主席刘少奇；2、国家主席夫人王光美；3、政治局委员，北京市委书记彭真；4彭德怀元帅；5、国务院副总理薄一波；6、总长罗瑞卿跳楼自杀，摔断腿后被用箩筐抬入会场；7、中宣部长陆定一；8、东北局第一书记宋任穷；9、你知道的。http://t.cn/RUjA1x6<br><img src="http://ww2.sinaimg.cn/large/be8f8847gw1exzesxnsigj20go0bo75g.jpg"></p>
+<p>
+	<small> ============== 1天前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3908819748445055" target="freeweibo-mirror">环球时报说是因为人们把正常社会里用来养两三个孩子的钱用来养一…</a>
+</h2>
+<p>环球时报说是因为人们把正常社会里用来养两三个孩子的钱用来养一个孩子了，所以才会嚷嚷“养不起”，还说这才是畸形的教育。网友神回复：人们把正常社会里用来养两三个党的钱用来养一个党了，所以才会民不聊生，这才是畸形的国家。<br><img src="http://ww3.sinaimg.cn/large/c6477a12gw1exzmuvqkezj20h809ujt6.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p><h2>
@@ -125,18 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3908641637730703" target="freeweibo-mirror">//@马方泰山:转发微博</a>
 </h2>
 <p>//@马方泰山:转发微博<br><br>RE: 【立冬后的造句】FT中文网专栏作家老愚：从宣布调查、审判到入狱服刑，官员一直得到特别照顾，级别与待遇成正比，与民众犯罪分别明显。http://t.cn/RUlNNnH<br><img src="http://ww4.sinaimg.cn/large/6538fd8cjw1exz0qt7lhjg20200203yb.gif"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3908636642064374" target="freeweibo-mirror">新京报：关押刘晓波的辽宁锦州监狱副监狱长在家自缢身亡。</a>
-</h2>
-<p>新京报：关押刘晓波的辽宁锦州监狱副监狱长在家自缢身亡。<br><img src="http://ww3.sinaimg.cn/large/55758575jw1exz1ppo0jgj20ku112teh.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3908635312765372" target="freeweibo-mirror">SPAM 确实真的很棒呀，太给力了，大家快来看一下，分享。</a>
-</h2>
-<p>SPAM 确实真的很棒呀，太给力了，大家快来看一下，分享。<br><br>RE: 澳门美高梅官网www.46138.com遵照赌场专业严谨的流程，以清晰、高准度的直播画面提供百家乐、德州扑克、温州牌九、轮盘或骰宝等多款热门产品，保证玩家在线浏览的是最实时且公平的投注实况，在任何地点都能体验如亲临赌场般的刺激愉快感官享受。<br><img src="http://ww1.sinaimg.cn/large/006acoR7gw1exynw4leaeg30d005kahe.gif"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
