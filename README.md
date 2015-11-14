@@ -24,7 +24,7 @@
 </h2>
 <p>#解读巴黎恐怖袭击#//@早睡早起的老头://@斯韦爵: //@海子cn3:2014年6月，IS宣布建国，将新疆纳入版图。<br><br>RE: 该单位被网友戏称为isis住天朝宣传部<br><img src="http://ww1.sinaimg.cn/large/52038d40gw1ey0gpovfzkj20f90lx40k.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3909127636512853" target="freeweibo-mirror">对比一下，幸福，感谢。//@府天的微博: [good]//@…</a>
 </h2>
@@ -42,7 +42,7 @@
 </h2>
 <p>鞑靼屎报存在的最大乐趣就是秀这个野蛮畜类的智力底线[熊猫]//@强哥打酱油2: //@玉雪精灵: [挖鼻] //@美国大学网://@LT视界: 环球时报逻辑简单粗暴：中国所有社会问题都是民众“错误”思想导致的。[挖鼻]<br><br>RE: 环球时报说是因为人们把正常社会里用来养两三个孩子的钱用来养一个孩子了，所以才会嚷嚷“养不起”，还说这才是畸形的教育。网友神回复：人们把正常社会里用来养两三个党的钱用来养一个党了，所以才会民不聊生，这才是畸形的国家。<br><img src="http://ww3.sinaimg.cn/large/c6477a12gw1exzmuvqkezj20h809ujt6.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3909081502816798" target="freeweibo-mirror">//@迟夙生律师: //@天地律师:这孙子也被销号了！[哈哈…</a>
 </h2>
@@ -50,11 +50,17 @@
 <p>
 	<small> ============== 7小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3909079749285443" target="freeweibo-mirror">该单位被网友戏称为isis住天朝宣传部</a>
+</h2>
+<p>该单位被网友戏称为isis住天朝宣传部<br><img src="http://ww1.sinaimg.cn/large/52038d40gw1ey0gpovfzkj20f90lx40k.jpg"></p>
+<p>
+	<small> ============== 8小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3909079682389256" target="freeweibo-mirror">【点评巴黎恐怖袭击之后】著名爱国主义教育普及专家，优秀道德模…</a>
 </h2>
 <p>【点评巴黎恐怖袭击之后】著名爱国主义教育普及专家，优秀道德模范，党和人民的好孙子。@杨三材 失联了！[吃惊]<br><img src="http://ww4.sinaimg.cn/large/0068kcoQgw1ey0gj9c4faj30yi1pc4ba.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3909074636426776" target="freeweibo-mirror">神评 //@谓贤:正常社会要养党？//@杨子评:转发微博</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3908749637184430" target="freeweibo-mirror">【 没有民主法治，他们的命运不如普通人】1、国家主席刘少奇；…</a>
 </h2>
 <p>【 没有民主法治，他们的命运不如普通人】1、国家主席刘少奇；2、国家主席夫人王光美；3、政治局委员，北京市委书记彭真；4彭德怀元帅；5、国务院副总理薄一波；6、总长罗瑞卿跳楼自杀，摔断腿后被用箩筐抬入会场；7、中宣部长陆定一；8、东北局第一书记宋任穷；9、你知道的。http://t.cn/RUjA1x6<br><img src="http://ww2.sinaimg.cn/large/be8f8847gw1exzesxnsigj20go0bo75g.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3908744968519346" target="freeweibo-mirror">组团贪污受贿 //@饶国平:贪污和受贿部[偷笑]</a>
-</h2>
-<p>组团贪污受贿 //@饶国平:贪污和受贿部[偷笑]</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
