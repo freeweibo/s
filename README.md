@@ -26,6 +26,12 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3909154509139225" target="freeweibo-mirror">你想怎样？</a>
+</h2>
+<p>你想怎样？<br><br>RE: 一个恐怖分子确实不能代表穆斯林。可是全世界的恐怖分子全部都是穆斯林，这还不能代表穆斯林？是不是要把其他的信仰全部屠光，才会承认其实穆斯林就是恐怖分子呢？</p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3909127636512853" target="freeweibo-mirror">对比一下，幸福，感谢。//@府天的微博: [good]//@…</a>
 </h2>
 <p>对比一下，幸福，感谢。//@府天的微博: [good]//@笑笑努力抽苗: 致敬//@菁瓜:致敬//@丞_素乌冬绝配咖喱:致敬//@RainWong02: //@ChAosdEm9N://@工口光环://@万智锦鲤型石秋瞳改二: //@凛冬冥: 这条要转，致敬//@不止之雨://@风小餮tie:中国不是没有危险，只是危险被一些人挡在了远离我们的地方。</p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3908784898778476" target="freeweibo-mirror">【参加第二届大梅沙中国创新论坛】一条表示“我服，我不妄议”的…</a>
 </h2>
 <p>【参加第二届大梅沙中国创新论坛】一条表示“我服，我不妄议”的微博也被删，任志强那条也不见了。确实不敢妄议，明天我讲司法民主与陪审制，决不跑题。 不敢妄议现实，那就说说神话吧。窗外，海风吹拂，海浪拍岸，正是闲扯的时候。http://t.cn/RUjcYN3<br><img src="http://ww2.sinaimg.cn/large/656952ecgw1exziud1efgj20c80gb3ze.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3908749637184430" target="freeweibo-mirror">【 没有民主法治，他们的命运不如普通人】1、国家主席刘少奇；…</a>
-</h2>
-<p>【 没有民主法治，他们的命运不如普通人】1、国家主席刘少奇；2、国家主席夫人王光美；3、政治局委员，北京市委书记彭真；4彭德怀元帅；5、国务院副总理薄一波；6、总长罗瑞卿跳楼自杀，摔断腿后被用箩筐抬入会场；7、中宣部长陆定一；8、东北局第一书记宋任穷；9、你知道的。http://t.cn/RUjA1x6<br><img src="http://ww2.sinaimg.cn/large/be8f8847gw1exzesxnsigj20go0bo75g.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
