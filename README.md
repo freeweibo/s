@@ -48,7 +48,7 @@
 </h2>
 <p>一个恐怖分子确实不能代表穆斯林。可是全世界的恐怖分子全部都是穆斯林，这还不能代表穆斯林？是不是要把其他的信仰全部屠光，才会承认其实穆斯林就是恐怖分子呢？</p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3909127636512853" target="freeweibo-mirror">对比一下，幸福，感谢。//@府天的微博: [good]//@…</a>
 </h2>
@@ -72,7 +72,7 @@
 </h2>
 <p>//@迟夙生律师: //@天地律师:这孙子也被销号了！[哈哈]<br><br>RE: 【点评巴黎恐怖袭击之后】著名爱国主义教育普及专家，优秀道德模范，党和人民的好孙子。@杨三材 失联了！[吃惊]<br><img src="http://ww4.sinaimg.cn/large/0068kcoQgw1ey0gj9c4faj30yi1pc4ba.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3909079749285443" target="freeweibo-mirror">该单位被网友戏称为isis住天朝宣传部</a>
 </h2>
