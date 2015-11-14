@@ -30,7 +30,7 @@
 </h2>
 <p>有些人醒悟不过来啊！<br><br>RE: 【 没有民主法治，他们的命运不如普通人】1、国家主席刘少奇；2、国家主席夫人王光美；3、政治局委员，北京市委书记彭真；4彭德怀元帅；5、国务院副总理薄一波；6、总长罗瑞卿跳楼自杀，摔断腿后被用箩筐抬入会场；7、中宣部长陆定一；8、东北局第一书记宋任穷；9、你知道的。http://t.cn/RUjA1x6<br><img src="http://ww2.sinaimg.cn/large/be8f8847gw1exzesxnsigj20go0bo75g.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3908802656930667" target="freeweibo-mirror">薄熙来之“弥天大罪”，不外就是：1、为人民服务罪；2、共同富…</a>
 </h2>
