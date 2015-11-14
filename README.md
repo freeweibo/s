@@ -36,7 +36,7 @@
 </h2>
 <p>#解读巴黎恐怖袭击#//@早睡早起的老头://@斯韦爵: //@海子cn3:2014年6月，IS宣布建国，将新疆纳入版图。<br><br>RE: 该单位被网友戏称为isis住天朝宣传部<br><img src="http://ww1.sinaimg.cn/large/52038d40gw1ey0gpovfzkj20f90lx40k.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3909154509139225" target="freeweibo-mirror">你想怎样？</a>
 </h2>
@@ -138,7 +138,7 @@
 </h2>
 <p>//@老吉他08860:你只要一提【妄议】，就等于是妄议了！<br><br>RE: 【参加第二届大梅沙中国创新论坛】一条表示“我服，我不妄议”的微博也被删，任志强那条也不见了。确实不敢妄议，明天我讲司法民主与陪审制，决不跑题。 不敢妄议现实，那就说说神话吧。窗外，海风吹拂，海浪拍岸，正是闲扯的时候。http://t.cn/RUjcYN3<br><img src="http://ww2.sinaimg.cn/large/656952ecgw1exziud1efgj20c80gb3ze.jpg"></p>
 <p>
-	<small> ============== 1天前</small>
+	<small> ============== 2天前</small>
 </p>
 <table>
     <tr>
