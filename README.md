@@ -32,6 +32,12 @@
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3909150176509294" target="freeweibo-mirror">一个恐怖分子确实不能代表穆斯林。可是全世界的恐怖分子全部都是…</a>
+</h2>
+<p>一个恐怖分子确实不能代表穆斯林。可是全世界的恐怖分子全部都是穆斯林，这还不能代表穆斯林？是不是要把其他的信仰全部屠光，才会承认其实穆斯林就是恐怖分子呢？</p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3909127636512853" target="freeweibo-mirror">对比一下，幸福，感谢。//@府天的微博: [good]//@…</a>
 </h2>
 <p>对比一下，幸福，感谢。//@府天的微博: [good]//@笑笑努力抽苗: 致敬//@菁瓜:致敬//@丞_素乌冬绝配咖喱:致敬//@RainWong02: //@ChAosdEm9N://@工口光环://@万智锦鲤型石秋瞳改二: //@凛冬冥: 这条要转，致敬//@不止之雨://@风小餮tie:中国不是没有危险，只是危险被一些人挡在了远离我们的地方。</p>
@@ -72,7 +78,7 @@
 </h2>
 <p>神评 //@谓贤:正常社会要养党？//@杨子评:转发微博<br><br>RE: 环球时报说是因为人们把正常社会里用来养两三个孩子的钱用来养一个孩子了，所以才会嚷嚷“养不起”，还说这才是畸形的教育。网友神回复：人们把正常社会里用来养两三个党的钱用来养一个党了，所以才会民不聊生，这才是畸形的国家。<br><img src="http://ww3.sinaimg.cn/large/c6477a12gw1exzmuvqkezj20h809ujt6.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3909071368974422" target="freeweibo-mirror">赞同最右。//@心儿吃浪分店: 最右→_→//@五月花号在幂…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3908799762676663" target="freeweibo-mirror">SPAM 回复@李军林导演:还要四年啊？//@李军林导演:四…</a>
 </h2>
 <p>SPAM 回复@李军林导演:还要四年啊？//@李军林导演:四年后，刘先生就出来了。<br><br>RE: 新京报：关押刘晓波的辽宁锦州监狱副监狱长在家自缢身亡。<br><img src="http://ww3.sinaimg.cn/large/55758575jw1exz1ppo0jgj20ku112teh.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3908784898778476" target="freeweibo-mirror">【参加第二届大梅沙中国创新论坛】一条表示“我服，我不妄议”的…</a>
-</h2>
-<p>【参加第二届大梅沙中国创新论坛】一条表示“我服，我不妄议”的微博也被删，任志强那条也不见了。确实不敢妄议，明天我讲司法民主与陪审制，决不跑题。 不敢妄议现实，那就说说神话吧。窗外，海风吹拂，海浪拍岸，正是闲扯的时候。http://t.cn/RUjcYN3<br><img src="http://ww2.sinaimg.cn/large/656952ecgw1exziud1efgj20c80gb3ze.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
