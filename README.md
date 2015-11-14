@@ -24,7 +24,7 @@
 </h2>
 <p>河北人上次掩护了一个三鹿，这次又掩护卓达。牛吹大了也有不能破的时候，我看你2万亿的产值怎么作出来。<br><img src="http://ww3.sinaimg.cn/large/6362d8eagw1exzrhyxhsdj20zk0qotgh.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3908841420782606" target="freeweibo-mirror">有些人醒悟不过来啊！</a>
 </h2>
