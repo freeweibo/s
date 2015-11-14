@@ -42,7 +42,7 @@
 </h2>
 <p>对比一下，幸福，感谢。//@府天的微博: [good]//@笑笑努力抽苗: 致敬//@菁瓜:致敬//@丞_素乌冬绝配咖喱:致敬//@RainWong02: //@ChAosdEm9N://@工口光环://@万智锦鲤型石秋瞳改二: //@凛冬冥: 这条要转，致敬//@不止之雨://@风小餮tie:中国不是没有危险，只是危险被一些人挡在了远离我们的地方。</p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3909123701253486" target="freeweibo-mirror">马赛克好评！点赞！</a>
 </h2>
@@ -60,7 +60,7 @@
 </h2>
 <p>//@迟夙生律师: //@天地律师:这孙子也被销号了！[哈哈]<br><br>RE: 【点评巴黎恐怖袭击之后】著名爱国主义教育普及专家，优秀道德模范，党和人民的好孙子。@杨三材 失联了！[吃惊]<br><img src="http://ww4.sinaimg.cn/large/0068kcoQgw1ey0gj9c4faj30yi1pc4ba.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3909079749285443" target="freeweibo-mirror">该单位被网友戏称为isis住天朝宣传部</a>
 </h2>
@@ -78,7 +78,7 @@
 </h2>
 <p>神评 //@谓贤:正常社会要养党？//@杨子评:转发微博<br><br>RE: 环球时报说是因为人们把正常社会里用来养两三个孩子的钱用来养一个孩子了，所以才会嚷嚷“养不起”，还说这才是畸形的教育。网友神回复：人们把正常社会里用来养两三个党的钱用来养一个党了，所以才会民不聊生，这才是畸形的国家。<br><img src="http://ww3.sinaimg.cn/large/c6477a12gw1exzmuvqkezj20h809ujt6.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3909071368974422" target="freeweibo-mirror">赞同最右。//@心儿吃浪分店: 最右→_→//@五月花号在幂…</a>
 </h2>
