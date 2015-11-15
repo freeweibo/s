@@ -72,7 +72,7 @@
 </h2>
 <p>//@隔壁女校校霸: //@凯yan_: 这样给你们又推又骂还不如走vip爸爸真是实力气炸[微笑]</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3909449226290980" target="freeweibo-mirror">@首都机场 您好，打扰了，首先对于今天大量粉丝送机给你们增加…</a>
 </h2>
