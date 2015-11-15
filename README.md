@@ -36,7 +36,7 @@
 </h2>
 <p>ISIS中国分会 //@深南-大盗:[吃惊][疑问]<br><br>RE: 香港铜锣湾书店全体职员失踪。目前警务处已经得到铜锣湾书店老板家人和职员家人的报警信息，据悉他们均是香港公民。该书店是中国香港地标性的自由主义书店，以出售民主思想和研究热点政治问题的的图书为主。据新任美国独立中文笔会会长贝岭表示：这与该书店准备出版一位国家领导人的个人情史传记有关。<br><img src="http://ww4.sinaimg.cn/large/7df1a921gw1ey1euoar39j20kb0dbwi3.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3909551457557836" target="freeweibo-mirror">(づ￣ 3￣)づ么么哒</a>
 </h2>
@@ -54,7 +54,7 @@
 </h2>
 <p>脑子有屎，就送博主一程@TBK文化 //@流浪的蛤蟆: 博主居然是北京TBK唱片文化有限公司 签约歌手、艺人//@九条miyaku: 什么傻逼公司敢要这种傻逼？脑子被ISIS强奸了吧？？<br><br>RE: 想了很久(ㅎ‸ㅎ) 我还是支持isis:: ೖ(⑅σ̑ᴗσ̑)ೖ ::酷炫。想想都热血ฅ(⌯͒•̩̩̩́ ˑ̫ •̩̩̩̀⌯͒)ฅ<br><img src="http://ww4.sinaimg.cn/large/d7566a87gw1ey10l2h2k1j207q0dwab5.jpg"></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3909472143826056" target="freeweibo-mirror">无知当个性 //@四包叔叔:真是了不起 //@顾扯淡:签约歌…</a>
 </h2>
