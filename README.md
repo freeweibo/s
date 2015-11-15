@@ -26,6 +26,12 @@
 <p>
 	<small> ============== 4小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3909427733844429" target="freeweibo-mirror">路透社今日报道：中国媒体利用巴黎事件煽动国内情绪。引用世维会…</a>
+</h2>
+<p>路透社今日报道：中国媒体利用巴黎事件煽动国内情绪。引用世维会发言“中国正对反抗其压迫的维吾尔人开火，并称是恐怖分子，这是中国的特殊政治需要。”路透社：人权组织和众多专家一直怀疑中国说法，他们依据分裂组织人员的说法称，“新疆的暴力事件原因是中国政府对宗教和文化的控制引发了众怒。”<br><img src="http://ww4.sinaimg.cn/large/0063zBg5jw1ey1ko3uw2wj30go0b0ta5.jpg"></p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3909408922387700" target="freeweibo-mirror">中国又是最大输家。不知博主对奥朗德先走怎么看?//@跃檀溪:…</a>
 </h2>
 <p>中国又是最大输家。不知博主对奥朗德先走怎么看?//@跃檀溪:石工贼，砸国党，离开体制什么都不是。 //@美保公://@俞氏青蛙:西北反恐壮士闻此心寒，保国安宁之功，竟被如此娱乐嘲讽，抗震救灾岂非国家行为，有些大V，不思与国俱兴，竟黑国家以赚资本，多行不义必自毙，子姑待之。</p>
@@ -72,7 +78,7 @@
 </h2>
 <p>赛艇<br><br>RE: 就说辐射4里这个活了几百年的中国舰长有点眼熟……_(:з」∠)_<br><img src="http://ww3.sinaimg.cn/large/e4ff1178gw1ey10fkm2pdj20fj0badgy.jpg"></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3909251447955421" target="freeweibo-mirror">就说辐射4里这个活了几百年的中国舰长有点眼熟……_(:з」∠…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3909081502816798" target="freeweibo-mirror">//@迟夙生律师: //@天地律师:这孙子也被销号了！[哈哈…</a>
 </h2>
 <p>//@迟夙生律师: //@天地律师:这孙子也被销号了！[哈哈]<br><br>RE: 【点评巴黎恐怖袭击之后】著名爱国主义教育普及专家，优秀道德模范，党和人民的好孙子。@杨三材 失联了！[吃惊]<br><img src="http://ww4.sinaimg.cn/large/0068kcoQgw1ey0gj9c4faj30yi1pc4ba.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3909079749285443" target="freeweibo-mirror">该单位被网友戏称为isis住天朝宣传部</a>
-</h2>
-<p>该单位被网友戏称为isis住天朝宣传部<br><img src="http://ww1.sinaimg.cn/large/52038d40gw1ey0gpovfzkj20f90lx40k.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
