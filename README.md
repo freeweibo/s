@@ -32,6 +32,12 @@
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3909372247865718" target="freeweibo-mirror">对于暴恐分子必须依法打击；还要清除极端主义思潮，包括宗教极端…</a>
+</h2>
+<p>对于暴恐分子必须依法打击；还要清除极端主义思潮，包括宗教极端主义，还有打着拥毛旗号的政治极端主义。一个时期以来，毛左猖狂挑动民粹，唯恐天下不乱。其中文丑朱继东竟然为印度毛派武装集团张目，混混则跟帖”枪杆子里面出政权“。此人摇身一变，现以意识形态卫道士面目出现，简直匪夷所思！</p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3909344494306171" target="freeweibo-mirror">赛艇</a>
 </h2>
 <p>赛艇<br><br>RE: 就说辐射4里这个活了几百年的中国舰长有点眼熟……_(:з」∠)_<br><img src="http://ww3.sinaimg.cn/large/e4ff1178gw1ey10fkm2pdj20fj0badgy.jpg"></p>
@@ -133,12 +139,6 @@
 <p>恐怖主义的恐怖在你不接受他的信仰就得接受他的毁灭。IS是急性的，马列是慢性的。</p>
 <p>
 	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3908861398063806" target="freeweibo-mirror">河北人上次掩护了一个三鹿，这次又掩护卓达。牛吹大了也有不能破…</a>
-</h2>
-<p>河北人上次掩护了一个三鹿，这次又掩护卓达。牛吹大了也有不能破的时候，我看你2万亿的产值怎么作出来。<br><img src="http://ww3.sinaimg.cn/large/6362d8eagw1exzrhyxhsdj20zk0qotgh.jpg"></p>
-<p>
-	<small> ============== 2天前</small>
 </p>
 <table>
     <tr>
