@@ -24,7 +24,7 @@
 </h2>
 <p>那些恨美国的人，通常只是看过美剧、好莱坞大片和洋毛片，接触过不少美国汽车，见过他大大跟美国奥黑握手，除此以外，没机会啥其他接触。//@大藏布:转发微博</p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3909234272209770" target="freeweibo-mirror">//@安普若-外号安校长:这是给五毛宣传手册上明确规定的，就…</a>
 </h2>
@@ -36,7 +36,7 @@
 </h2>
 <p>#解读巴黎恐怖袭击#//@早睡早起的老头://@斯韦爵: //@海子cn3:2014年6月，IS宣布建国，将新疆纳入版图。<br><br>RE: 该单位被网友戏称为isis住天朝宣传部<br><img src="http://ww1.sinaimg.cn/large/52038d40gw1ey0gpovfzkj20f90lx40k.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3909154509139225" target="freeweibo-mirror">你想怎样？</a>
 </h2>
