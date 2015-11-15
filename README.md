@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3909395546873882" target="freeweibo-mirror">SPAM [哈哈]//@翁涛amh: [哈哈]//@草民杜楠…</a>
+</h2>
+<p>SPAM [哈哈]//@翁涛amh: [哈哈]//@草民杜楠04: [哈哈][good]<br><br>RE: 七十年代中学毕业后，国人脑袋都装满了如下内容：李鸿章丧权辱国，义和团保家卫国，蒋介石只会摘桃子，地主个个是周扒皮，旧社会暗无天日。有人评价这种人就是一个中国傻逼的标准配置。你要是跟他说：你特么多看几本书，动点脑子再说话。他立马眼珠一翻：你也是汉奸！转！</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3909344494306171" target="freeweibo-mirror">赛艇</a>
 </h2>
 <p>赛艇<br><br>RE: 就说辐射4里这个活了几百年的中国舰长有点眼熟……_(:з」∠)_<br><img src="http://ww3.sinaimg.cn/large/e4ff1178gw1ey10fkm2pdj20fj0badgy.jpg"></p>
@@ -42,7 +48,7 @@
 </h2>
 <p>//@安普若-外号安校长:这是给五毛宣传手册上明确规定的，就是把所有民众的情绪都引向美国。可是最近听说，因为宣传经费的原因大部分五毛已经不付钱了，他们都回家种地或者在监狱里糊火柴盒呢。难道这个是自干五？ //@简直: //@无_花:宣传部立功了//@喷嚏网铂程:转发微博</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3909170006763306" target="freeweibo-mirror">#解读巴黎恐怖袭击#//@早睡早起的老头://@斯韦爵: /…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3908841420782606" target="freeweibo-mirror">有些人醒悟不过来啊！</a>
 </h2>
 <p>有些人醒悟不过来啊！<br><br>RE: 【 没有民主法治，他们的命运不如普通人】1、国家主席刘少奇；2、国家主席夫人王光美；3、政治局委员，北京市委书记彭真；4彭德怀元帅；5、国务院副总理薄一波；6、总长罗瑞卿跳楼自杀，摔断腿后被用箩筐抬入会场；7、中宣部长陆定一；8、东北局第一书记宋任穷；9、你知道的。http://t.cn/RUjA1x6<br><img src="http://ww2.sinaimg.cn/large/be8f8847gw1exzesxnsigj20go0bo75g.jpg"></p>
-<p>
-	<small> ============== 2天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3908819748445055" target="freeweibo-mirror">环球时报说是因为人们把正常社会里用来养两三个孩子的钱用来养一…</a>
-</h2>
-<p>环球时报说是因为人们把正常社会里用来养两三个孩子的钱用来养一个孩子了，所以才会嚷嚷“养不起”，还说这才是畸形的教育。网友神回复：人们把正常社会里用来养两三个党的钱用来养一个党了，所以才会民不聊生，这才是畸形的国家。<br><img src="http://ww3.sinaimg.cn/large/c6477a12gw1exzmuvqkezj20h809ujt6.jpg"></p>
 <p>
 	<small> ============== 2天前</small>
 </p>
