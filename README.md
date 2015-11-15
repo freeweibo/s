@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3909404653086625" target="freeweibo-mirror">//@博物致知: //@吴真微博:nhk跟踪了很久//@bi…</a>
+</h2>
+<p>//@博物致知: //@吴真微博:nhk跟踪了很久//@bintles:在线视频被删，现上传NHK纪录片《追踪“伊斯兰国”》、PBS纪录片《“伊斯兰国”的崛起》和《逃离“伊斯兰国”》。链接: http://t.cn/RUTyztI 密码: 2ciq<br><br>RE: 【三部揭露极端恐怖组织“伊斯兰国”（ISIS）的纪录片】1.《追踪“伊斯兰国”》http://t.cn/RUYaXBO 2.《“伊斯兰国”的崛起》http://t.cn/R2CPsGj 3.《“伊拉克和黎凡特伊斯兰国”特别报道》http://t.cn/RUYaXB0<br><img src="http://ww4.sinaimg.cn/large/7297d7d5jw1ey0dfrh86bj20zk0k0gm7.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3909395546873882" target="freeweibo-mirror">SPAM [哈哈]//@翁涛amh: [哈哈]//@草民杜楠…</a>
 </h2>
 <p>SPAM [哈哈]//@翁涛amh: [哈哈]//@草民杜楠04: [哈哈][good]<br><br>RE: 七十年代中学毕业后，国人脑袋都装满了如下内容：李鸿章丧权辱国，义和团保家卫国，蒋介石只会摘桃子，地主个个是周扒皮，旧社会暗无天日。有人评价这种人就是一个中国傻逼的标准配置。你要是跟他说：你特么多看几本书，动点脑子再说话。他立马眼珠一翻：你也是汉奸！转！</p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3908861398063806" target="freeweibo-mirror">河北人上次掩护了一个三鹿，这次又掩护卓达。牛吹大了也有不能破…</a>
 </h2>
 <p>河北人上次掩护了一个三鹿，这次又掩护卓达。牛吹大了也有不能破的时候，我看你2万亿的产值怎么作出来。<br><img src="http://ww3.sinaimg.cn/large/6362d8eagw1exzrhyxhsdj20zk0qotgh.jpg"></p>
-<p>
-	<small> ============== 2天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3908841420782606" target="freeweibo-mirror">有些人醒悟不过来啊！</a>
-</h2>
-<p>有些人醒悟不过来啊！<br><br>RE: 【 没有民主法治，他们的命运不如普通人】1、国家主席刘少奇；2、国家主席夫人王光美；3、政治局委员，北京市委书记彭真；4彭德怀元帅；5、国务院副总理薄一波；6、总长罗瑞卿跳楼自杀，摔断腿后被用箩筐抬入会场；7、中宣部长陆定一；8、东北局第一书记宋任穷；9、你知道的。http://t.cn/RUjA1x6<br><img src="http://ww2.sinaimg.cn/large/be8f8847gw1exzesxnsigj20go0bo75g.jpg"></p>
 <p>
 	<small> ============== 2天前</small>
 </p>
