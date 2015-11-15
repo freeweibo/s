@@ -60,13 +60,13 @@
 </h2>
 <p>[good][good][good]//@筑成世方:转发微博</p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3909407060028636" target="freeweibo-mirror">//@俞氏青蛙:西北反恐壮士闻此心寒，保国安宁之功，竟被如此…</a>
 </h2>
 <p>//@俞氏青蛙:西北反恐壮士闻此心寒，保国安宁之功，竟被如此娱乐嘲讽，抗震救灾岂非国家行为，有些大V，不思与国俱兴，竟黑国家以赚资本，多行不义必自毙，子姑待之。</p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3909404653086625" target="freeweibo-mirror">//@博物致知: //@吴真微博:nhk跟踪了很久//@bi…</a>
 </h2>
@@ -97,6 +97,12 @@
 <p>赛艇<br><br>RE: 就说辐射4里这个活了几百年的中国舰长有点眼熟……_(:з」∠)_<br><img src="http://ww3.sinaimg.cn/large/e4ff1178gw1ey10fkm2pdj20fj0badgy.jpg"></p>
 <p>
 	<small> ============== 12小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3909253083815922" target="freeweibo-mirror">想了很久(ㅎ‸ㅎ) 我还是支持isis:: ೖ(⑅σ̑ᴗσ̑…</a>
+</h2>
+<p>想了很久(ㅎ‸ㅎ) 我还是支持isis:: ೖ(⑅σ̑ᴗσ̑)ೖ ::酷炫。想想都热血ฅ(⌯͒•̩̩̩́ ˑ̫ •̩̩̩̀⌯͒)ฅ<br><img src="http://ww4.sinaimg.cn/large/d7566a87gw1ey10l2h2k1j207q0dwab5.jpg"></p>
+<p>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3909251447955421" target="freeweibo-mirror">就说辐射4里这个活了几百年的中国舰长有点眼熟……_(:з」∠…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3909150176509294" target="freeweibo-mirror">一个恐怖分子确实不能代表穆斯林。可是全世界的恐怖分子全部都是…</a>
 </h2>
 <p>一个恐怖分子确实不能代表穆斯林。可是全世界的恐怖分子全部都是穆斯林，这还不能代表穆斯林？是不是要把其他的信仰全部屠光，才会承认其实穆斯林就是恐怖分子呢？</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3909127636512853" target="freeweibo-mirror">对比一下，幸福，感谢。//@府天的微博: [good]//@…</a>
-</h2>
-<p>对比一下，幸福，感谢。//@府天的微博: [good]//@笑笑努力抽苗: 致敬//@菁瓜:致敬//@丞_素乌冬绝配咖喱:致敬//@RainWong02: //@ChAosdEm9N://@工口光环://@万智锦鲤型石秋瞳改二: //@凛冬冥: 这条要转，致敬//@不止之雨://@风小餮tie:中国不是没有危险，只是危险被一些人挡在了远离我们的地方。</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
