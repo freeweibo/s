@@ -20,6 +20,24 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3909408922387700" target="freeweibo-mirror">中国又是最大输家。不知博主对奥朗德先走怎么看?//@跃檀溪:…</a>
+</h2>
+<p>中国又是最大输家。不知博主对奥朗德先走怎么看?//@跃檀溪:石工贼，砸国党，离开体制什么都不是。 //@美保公://@俞氏青蛙:西北反恐壮士闻此心寒，保国安宁之功，竟被如此娱乐嘲讽，抗震救灾岂非国家行为，有些大V，不思与国俱兴，竟黑国家以赚资本，多行不义必自毙，子姑待之。</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3909407131383668" target="freeweibo-mirror">[good][good][good]//@筑成世方:转发微博</a>
+</h2>
+<p>[good][good][good]//@筑成世方:转发微博</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3909407060028636" target="freeweibo-mirror">//@俞氏青蛙:西北反恐壮士闻此心寒，保国安宁之功，竟被如此…</a>
+</h2>
+<p>//@俞氏青蛙:西北反恐壮士闻此心寒，保国安宁之功，竟被如此娱乐嘲讽，抗震救灾岂非国家行为，有些大V，不思与国俱兴，竟黑国家以赚资本，多行不义必自毙，子姑待之。</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3909404653086625" target="freeweibo-mirror">//@博物致知: //@吴真微博:nhk跟踪了很久//@bi…</a>
 </h2>
 <p>//@博物致知: //@吴真微博:nhk跟踪了很久//@bintles:在线视频被删，现上传NHK纪录片《追踪“伊斯兰国”》、PBS纪录片《“伊斯兰国”的崛起》和《逃离“伊斯兰国”》。链接: http://t.cn/RUTyztI 密码: 2ciq<br><br>RE: 【三部揭露极端恐怖组织“伊斯兰国”（ISIS）的纪录片】1.《追踪“伊斯兰国”》http://t.cn/RUYaXBO 2.《“伊斯兰国”的崛起》http://t.cn/R2CPsGj 3.《“伊拉克和黎凡特伊斯兰国”特别报道》http://t.cn/RUYaXB0<br><img src="http://ww4.sinaimg.cn/large/7297d7d5jw1ey0dfrh86bj20zk0k0gm7.jpg"></p>
@@ -37,6 +55,12 @@
 <p>对于暴恐分子必须依法打击；还要清除极端主义思潮，包括宗教极端主义，还有打着拥毛旗号的政治极端主义。一个时期以来，毛左猖狂挑动民粹，唯恐天下不乱。其中文丑朱继东竟然为印度毛派武装集团张目，混混则跟帖”枪杆子里面出政权“。此人摇身一变，现以意识形态卫道士面目出现，简直匪夷所思！</p>
 <p>
 	<small> ============== 4小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3909366514151452" target="freeweibo-mirror">转：网友建议法国应对危机宝典： 1、奥朗德第一时间发出指示，…</a>
+</h2>
+<p>转：网友建议法国应对危机宝典： 1、奥朗德第一时间发出指示，要全力救治伤员。 2、给媒体发通知，切勿自采稿件，发法新社通稿。 3、抓一批造谣网民，社交网站删帖、销号，封杀一切负面信息，以免影响社会稳定。 4、官方表态，伤亡者家属目前情绪稳定。 5、市民排队点蜡烛高呼：巴黎不哭，多难兴邦。<br><img src="http://ww3.sinaimg.cn/large/4fcb878ajw1ey1di3ohh7j21w02ioqv5.jpg"></p>
+<p>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3909344494306171" target="freeweibo-mirror">赛艇</a>
 </h2>
@@ -113,30 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3909079682389256" target="freeweibo-mirror">【点评巴黎恐怖袭击之后】著名爱国主义教育普及专家，优秀道德模…</a>
 </h2>
 <p>【点评巴黎恐怖袭击之后】著名爱国主义教育普及专家，优秀道德模范，党和人民的好孙子。@杨三材 失联了！[吃惊]<br><img src="http://ww4.sinaimg.cn/large/0068kcoQgw1ey0gj9c4faj30yi1pc4ba.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3909074636426776" target="freeweibo-mirror">神评 //@谓贤:正常社会要养党？//@杨子评:转发微博</a>
-</h2>
-<p>神评 //@谓贤:正常社会要养党？//@杨子评:转发微博<br><br>RE: 环球时报说是因为人们把正常社会里用来养两三个孩子的钱用来养一个孩子了，所以才会嚷嚷“养不起”，还说这才是畸形的教育。网友神回复：人们把正常社会里用来养两三个党的钱用来养一个党了，所以才会民不聊生，这才是畸形的国家。<br><img src="http://ww3.sinaimg.cn/large/c6477a12gw1exzmuvqkezj20h809ujt6.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3909071368974422" target="freeweibo-mirror">赞同最右。//@心儿吃浪分店: 最右→_→//@五月花号在幂…</a>
-</h2>
-<p>赞同最右。//@心儿吃浪分店: 最右→_→//@五月花号在幂王星://@野火苍茫: //@先行水:[生病][汗]→_→//@管荣君同志:董存瑞//@先行水: 有自爆的吗？//@管荣君同志:当年马列猖獗的时候，一点都不慢性，比ISIS还性急。你去问下46年在山东的暴力土改和内战拉锯时期对待有产者的处决方式，就知道了。<br><br>RE: 恐怖主义的恐怖在你不接受他的信仰就得接受他的毁灭。IS是急性的，马列是慢性的。</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3909041421586766" target="freeweibo-mirror">11月13日，中国新疆警方，历经五十六天追击，对暴恐分子发动…</a>
-</h2>
-<p>11月13日，中国新疆警方，历经五十六天追击，对暴恐分子发动总攻，取得重大战果！你们用鲜血与生命，谱写了一曲可歌可泣的战地之歌，铸就了那警帽上那闪闪发光的金色盾牌！致敬，向伟大的新疆战友们！礼赞，向奋战在共和国反分裂斗争一线的伟大战友们!<br><img src="http://ww1.sinaimg.cn/large/c82d5068gw1ey0c43xn0ij20ds0nymye.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3909012795903108" target="freeweibo-mirror">恐怖主义的恐怖在你不接受他的信仰就得接受他的毁灭。IS是急性…</a>
-</h2>
-<p>恐怖主义的恐怖在你不接受他的信仰就得接受他的毁灭。IS是急性的，马列是慢性的。</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
