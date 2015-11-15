@@ -42,7 +42,7 @@
 </h2>
 <p>//@博物致知: //@吴真微博:nhk跟踪了很久//@bintles:在线视频被删，现上传NHK纪录片《追踪“伊斯兰国”》、PBS纪录片《“伊斯兰国”的崛起》和《逃离“伊斯兰国”》。链接: http://t.cn/RUTyztI 密码: 2ciq<br><br>RE: 【三部揭露极端恐怖组织“伊斯兰国”（ISIS）的纪录片】1.《追踪“伊斯兰国”》http://t.cn/RUYaXBO 2.《“伊斯兰国”的崛起》http://t.cn/R2CPsGj 3.《“伊拉克和黎凡特伊斯兰国”特别报道》http://t.cn/RUYaXB0<br><img src="http://ww4.sinaimg.cn/large/7297d7d5jw1ey0dfrh86bj20zk0k0gm7.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3909395546873882" target="freeweibo-mirror">SPAM [哈哈]//@翁涛amh: [哈哈]//@草民杜楠…</a>
 </h2>
