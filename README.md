@@ -26,6 +26,12 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3909251447955421" target="freeweibo-mirror">就说辐射4里这个活了几百年的中国舰长有点眼熟……_(:з」∠…</a>
+</h2>
+<p>就说辐射4里这个活了几百年的中国舰长有点眼熟……_(:з」∠)_<br><img src="http://ww3.sinaimg.cn/large/e4ff1178gw1ey10fkm2pdj20fj0badgy.jpg"></p>
+<p>
+	<small> ============== 8小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3909238029897027" target="freeweibo-mirror">那些恨美国的人，通常只是看过美剧、好莱坞大片和洋毛片，接触过…</a>
 </h2>
 <p>那些恨美国的人，通常只是看过美剧、好莱坞大片和洋毛片，接触过不少美国汽车，见过他大大跟美国奥黑握手，除此以外，没机会啥其他接触。//@大藏布:转发微博</p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3908819748445055" target="freeweibo-mirror">环球时报说是因为人们把正常社会里用来养两三个孩子的钱用来养一…</a>
 </h2>
 <p>环球时报说是因为人们把正常社会里用来养两三个孩子的钱用来养一个孩子了，所以才会嚷嚷“养不起”，还说这才是畸形的教育。网友神回复：人们把正常社会里用来养两三个党的钱用来养一个党了，所以才会民不聊生，这才是畸形的国家。<br><img src="http://ww3.sinaimg.cn/large/c6477a12gw1exzmuvqkezj20h809ujt6.jpg"></p>
-<p>
-	<small> ============== 2天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3908802656930667" target="freeweibo-mirror">薄熙来之“弥天大罪”，不外就是：1、为人民服务罪；2、共同富…</a>
-</h2>
-<p>薄熙来之“弥天大罪”，不外就是：1、为人民服务罪；2、共同富裕罪；3、唱红打黑罪；4、改革探索罪；5、信仰坚定 罪；6、德才兼备罪；7、群众路线罪；8、廉洁奉公罪；9、公平正义罪；10、真共产党人罪！</p>
 <p>
 	<small> ============== 2天前</small>
 </p>
