@@ -32,6 +32,12 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3909564464776868" target="freeweibo-mirror">ISIS中国分会 //@深南-大盗:[吃惊][疑问]</a>
+</h2>
+<p>ISIS中国分会 //@深南-大盗:[吃惊][疑问]<br><br>RE: 香港铜锣湾书店全体职员失踪。目前警务处已经得到铜锣湾书店老板家人和职员家人的报警信息，据悉他们均是香港公民。该书店是中国香港地标性的自由主义书店，以出售民主思想和研究热点政治问题的的图书为主。据新任美国独立中文笔会会长贝岭表示：这与该书店准备出版一位国家领导人的个人情史传记有关。<br><img src="http://ww4.sinaimg.cn/large/7df1a921gw1ey1euoar39j20kb0dbwi3.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3909551457557836" target="freeweibo-mirror">(づ￣ 3￣)づ么么哒</a>
 </h2>
 <p>(づ￣ 3￣)づ么么哒</p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3909344494306171" target="freeweibo-mirror">赛艇</a>
 </h2>
 <p>赛艇<br><br>RE: 就说辐射4里这个活了几百年的中国舰长有点眼熟……_(:з」∠)_<br><img src="http://ww3.sinaimg.cn/large/e4ff1178gw1ey10fkm2pdj20fj0badgy.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3909253083815922" target="freeweibo-mirror">想了很久(ㅎ‸ㅎ) 我还是支持isis:: ೖ(⑅σ̑ᴗσ̑…</a>
-</h2>
-<p>想了很久(ㅎ‸ㅎ) 我还是支持isis:: ೖ(⑅σ̑ᴗσ̑)ೖ ::酷炫。想想都热血ฅ(⌯͒•̩̩̩́ ˑ̫ •̩̩̩̀⌯͒)ฅ<br><img src="http://ww4.sinaimg.cn/large/d7566a87gw1ey10l2h2k1j207q0dwab5.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
