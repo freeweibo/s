@@ -24,7 +24,7 @@
 </h2>
 <p>脑子有屎，就送博主一程@TBK文化 //@流浪的蛤蟆: 博主居然是北京TBK唱片文化有限公司 签约歌手、艺人//@九条miyaku: 什么傻逼公司敢要这种傻逼？脑子被ISIS强奸了吧？？<br><br>RE: 想了很久(ㅎ‸ㅎ) 我还是支持isis:: ೖ(⑅σ̑ᴗσ̑)ೖ ::酷炫。想想都热血ฅ(⌯͒•̩̩̩́ ˑ̫ •̩̩̩̀⌯͒)ฅ<br><img src="http://ww4.sinaimg.cn/large/d7566a87gw1ey10l2h2k1j207q0dwab5.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3909472143826056" target="freeweibo-mirror">无知当个性 //@四包叔叔:真是了不起 //@顾扯淡:签约歌…</a>
 </h2>
@@ -66,7 +66,7 @@
 </h2>
 <p>路透社今日报道：中国媒体利用巴黎事件煽动国内情绪。引用世维会发言“中国正对反抗其压迫的维吾尔人开火，并称是恐怖分子，这是中国的特殊政治需要。”路透社：人权组织和众多专家一直怀疑中国说法，他们依据分裂组织人员的说法称，“新疆的暴力事件原因是中国政府对宗教和文化的控制引发了众怒。”<br><img src="http://ww4.sinaimg.cn/large/0063zBg5jw1ey1ko3uw2wj30go0b0ta5.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3909408922387700" target="freeweibo-mirror">中国又是最大输家。不知博主对奥朗德先走怎么看?//@跃檀溪:…</a>
 </h2>
