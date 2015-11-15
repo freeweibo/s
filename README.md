@@ -60,7 +60,7 @@
 </h2>
 <p>转：网友建议法国应对危机宝典： 1、奥朗德第一时间发出指示，要全力救治伤员。 2、给媒体发通知，切勿自采稿件，发法新社通稿。 3、抓一批造谣网民，社交网站删帖、销号，封杀一切负面信息，以免影响社会稳定。 4、官方表态，伤亡者家属目前情绪稳定。 5、市民排队点蜡烛高呼：巴黎不哭，多难兴邦。<br><img src="http://ww3.sinaimg.cn/large/4fcb878ajw1ey1di3ohh7j21w02ioqv5.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3909344494306171" target="freeweibo-mirror">赛艇</a>
 </h2>
