@@ -36,7 +36,7 @@
 </h2>
 <p>就说辐射4里这个活了几百年的中国舰长有点眼熟……_(:з」∠)_<br><img src="http://ww3.sinaimg.cn/large/e4ff1178gw1ey10fkm2pdj20fj0badgy.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3909238029897027" target="freeweibo-mirror">那些恨美国的人，通常只是看过美剧、好莱坞大片和洋毛片，接触过…</a>
 </h2>
