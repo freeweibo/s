@@ -30,7 +30,7 @@
 </h2>
 <p>无知当个性 //@四包叔叔:真是了不起 //@顾扯淡:签约歌手[doge] //@流浪的蛤蟆:博主居然是北京TBK唱片文化有限公司 签约歌手、艺人//@九条miyaku: 什么傻逼公司敢要这种傻逼？脑子被ISIS强奸了吧？？<br><br>RE: 想了很久(ㅎ‸ㅎ) 我还是支持isis:: ೖ(⑅σ̑ᴗσ̑)ೖ ::酷炫。想想都热血ฅ(⌯͒•̩̩̩́ ˑ̫ •̩̩̩̀⌯͒)ฅ<br><img src="http://ww4.sinaimg.cn/large/d7566a87gw1ey10l2h2k1j207q0dwab5.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3909468557085317" target="freeweibo-mirror">签约歌手[doge] //@流浪的蛤蟆:博主居然是北京TBK…</a>
 </h2>
@@ -42,7 +42,7 @@
 </h2>
 <p>//@隔壁女校校霸: //@凯yan_: 这样给你们又推又骂还不如走vip爸爸真是实力气炸[微笑]</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3909449226290980" target="freeweibo-mirror">@首都机场 您好，打扰了，首先对于今天大量粉丝送机给你们增加…</a>
 </h2>
@@ -108,7 +108,7 @@
 </h2>
 <p>转：网友建议法国应对危机宝典： 1、奥朗德第一时间发出指示，要全力救治伤员。 2、给媒体发通知，切勿自采稿件，发法新社通稿。 3、抓一批造谣网民，社交网站删帖、销号，封杀一切负面信息，以免影响社会稳定。 4、官方表态，伤亡者家属目前情绪稳定。 5、市民排队点蜡烛高呼：巴黎不哭，多难兴邦。<br><img src="http://ww3.sinaimg.cn/large/4fcb878ajw1ey1di3ohh7j21w02ioqv5.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3909344494306171" target="freeweibo-mirror">赛艇</a>
 </h2>
