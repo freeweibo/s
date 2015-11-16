@@ -132,7 +132,7 @@
 </h2>
 <p>签约歌手[doge] //@流浪的蛤蟆:博主居然是北京TBK唱片文化有限公司 签约歌手、艺人//@九条miyaku: 什么傻逼公司敢要这种傻逼？脑子被ISIS强奸了吧？？<br><br>RE: 想了很久(ㅎ‸ㅎ) 我还是支持isis:: ೖ(⑅σ̑ᴗσ̑)ೖ ::酷炫。想想都热血ฅ(⌯͒•̩̩̩́ ˑ̫ •̩̩̩̀⌯͒)ฅ<br><img src="http://ww4.sinaimg.cn/large/d7566a87gw1ey10l2h2k1j207q0dwab5.jpg"></p>
 <p>
-	<small> ============== 1天前</small>
+	<small> ============== 2天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3909457509875986" target="freeweibo-mirror">//@隔壁女校校霸: //@凯yan_: 这样给你们又推又骂…</a>
 </h2>
