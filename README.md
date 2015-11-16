@@ -26,6 +26,12 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3909741649043416" target="freeweibo-mirror">支持 //@谓贤:向德国学习，建议人大立法，凡否认大饥荒和文…</a>
+</h2>
+<p>支持 //@谓贤:向德国学习，建议人大立法，凡否认大饥荒和文革的人，都应该获刑！<br><br>RE: 中国也可以将否认三年大饥荒饿死人、否认文革动乱性质的人，判处有期徒刑？这些人己经越多言论自由的边界。 http://t.cn/z8ATh9d<br><img src="http://ww2.sinaimg.cn/large/467a6223gw1ey2kdeopwpj20xc18gaoz.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3909573590930585" target="freeweibo-mirror">SPAM 谢谢！[笑cry][笑cry][笑cry][赞]自…</a>
 </h2>
 <p>SPAM 谢谢！[笑cry][笑cry][笑cry][赞]自干五可以一起去占领美国的阵地。//@首都在线:→_→//@杀妻名将张灵甫:开通FACEBOOK实用教程[good][good][good]//@椒江叶Sir: 实用帖子，转需。[话筒]//@菉葭苍苍:转需[话筒]//@岗拉梅朵言:学习了。谢谢茶老板。<br><br>RE: 【如何上脸书和推特】关注就是力量，围观改变美国！可是，很多网友不知道怎么上老美的微博。在这个时候，威武的茶哥就出现了。今天我给大家带来的是一个上洋微博的#悬壶微教程#。想围观美国的小伙伴们，走起！<br><img src="http://ww2.sinaimg.cn/large/83324302gw1ey1rd2bya6j20l47yhhdt.jpg"></p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3909395546873882" target="freeweibo-mirror">SPAM [哈哈]//@翁涛amh: [哈哈]//@草民杜楠…</a>
 </h2>
 <p>SPAM [哈哈]//@翁涛amh: [哈哈]//@草民杜楠04: [哈哈][good]<br><br>RE: 七十年代中学毕业后，国人脑袋都装满了如下内容：李鸿章丧权辱国，义和团保家卫国，蒋介石只会摘桃子，地主个个是周扒皮，旧社会暗无天日。有人评价这种人就是一个中国傻逼的标准配置。你要是跟他说：你特么多看几本书，动点脑子再说话。他立马眼珠一翻：你也是汉奸！转！</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3909376950120835" target="freeweibo-mirror">香港铜锣湾书店全体职员失踪。目前警务处已经得到铜锣湾书店老板…</a>
-</h2>
-<p>香港铜锣湾书店全体职员失踪。目前警务处已经得到铜锣湾书店老板家人和职员家人的报警信息，据悉他们均是香港公民。该书店是中国香港地标性的自由主义书店，以出售民主思想和研究热点政治问题的的图书为主。据新任美国独立中文笔会会长贝岭表示：这与该书店准备出版一位国家领导人的个人情史传记有关。<br><img src="http://ww4.sinaimg.cn/large/7df1a921gw1ey1euoar39j20kb0dbwi3.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
