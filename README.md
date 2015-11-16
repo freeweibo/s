@@ -36,7 +36,7 @@
 </h2>
 <p>中国也可以将否认三年大饥荒饿死人、否认文革动乱性质的人，判处有期徒刑？这些人己经越多言论自由的边界。 http://t.cn/z8ATh9d<br><img src="http://ww2.sinaimg.cn/large/467a6223gw1ey2kdeopwpj20xc18gaoz.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3909730218798091" target="freeweibo-mirror">ISIS组织所规划的“伊斯兰国”的终极版图中包括xinjia…</a>
 </h2>
