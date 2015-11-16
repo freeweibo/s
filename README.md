@@ -38,6 +38,12 @@
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3909730218798091" target="freeweibo-mirror">ISIS组织所规划的“伊斯兰国”的终极版图中包括xinjia…</a>
+</h2>
+<p>ISIS组织所规划的“伊斯兰国”的终极版图中包括xinjiang。ISIS领导人在“建国宣言”中说：“在中国、印度、巴勒斯坦、索马里，穆斯林的权利都被强行剥夺…安拉在上，我们要复仇！”他们罗列的“复仇”名单，中国被排在了第一位。 『中国如何应对ISIS_中国论文网』http://t.cn/R7a2Ox1</p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3909573590930585" target="freeweibo-mirror">SPAM 谢谢！[笑cry][笑cry][笑cry][赞]自…</a>
 </h2>
 <p>SPAM 谢谢！[笑cry][笑cry][笑cry][赞]自干五可以一起去占领美国的阵地。//@首都在线:→_→//@杀妻名将张灵甫:开通FACEBOOK实用教程[good][good][good]//@椒江叶Sir: 实用帖子，转需。[话筒]//@菉葭苍苍:转需[话筒]//@岗拉梅朵言:学习了。谢谢茶老板。<br><br>RE: 【如何上脸书和推特】关注就是力量，围观改变美国！可是，很多网友不知道怎么上老美的微博。在这个时候，威武的茶哥就出现了。今天我给大家带来的是一个上洋微博的#悬壶微教程#。想围观美国的小伙伴们，走起！<br><img src="http://ww2.sinaimg.cn/large/83324302gw1ey1rd2bya6j20l47yhhdt.jpg"></p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3909407060028636" target="freeweibo-mirror">//@俞氏青蛙:西北反恐壮士闻此心寒，保国安宁之功，竟被如此…</a>
 </h2>
 <p>//@俞氏青蛙:西北反恐壮士闻此心寒，保国安宁之功，竟被如此娱乐嘲讽，抗震救灾岂非国家行为，有些大V，不思与国俱兴，竟黑国家以赚资本，多行不义必自毙，子姑待之。</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3909404653086625" target="freeweibo-mirror">//@博物致知: //@吴真微博:nhk跟踪了很久//@bi…</a>
-</h2>
-<p>//@博物致知: //@吴真微博:nhk跟踪了很久//@bintles:在线视频被删，现上传NHK纪录片《追踪“伊斯兰国”》、PBS纪录片《“伊斯兰国”的崛起》和《逃离“伊斯兰国”》。链接: http://t.cn/RUTyztI 密码: 2ciq<br><br>RE: 【三部揭露极端恐怖组织“伊斯兰国”（ISIS）的纪录片】1.《追踪“伊斯兰国”》http://t.cn/RUYaXBO 2.《“伊斯兰国”的崛起》http://t.cn/R2CPsGj 3.《“伊拉克和黎凡特伊斯兰国”特别报道》http://t.cn/RUYaXB0<br><img src="http://ww4.sinaimg.cn/large/7297d7d5jw1ey0dfrh86bj20zk0k0gm7.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
