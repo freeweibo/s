@@ -24,7 +24,7 @@
 </h2>
 <p>//@鹰隼N1A晏欢: [鼓掌]//@谓贤:向德国学习，建议人大立法，凡否认大饥荒和文革的人，都应该获刑！<br><br>RE: 中国也可以将否认三年大饥荒饿死人、否认文革动乱性质的人，判处有期徒刑？这些人己经越多言论自由的边界。 http://t.cn/z8ATh9d<br><img src="http://ww2.sinaimg.cn/large/467a6223gw1ey2kdeopwpj20xc18gaoz.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3909741649043416" target="freeweibo-mirror">支持 //@谓贤:向德国学习，建议人大立法，凡否认大饥荒和文…</a>
 </h2>
