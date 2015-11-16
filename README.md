@@ -36,7 +36,7 @@
 </h2>
 <p>新片速递《我s证人》完整版在线观看！ 时间较长，先马后看！更多电影资源，欢迎关..注@我的电影圈 http://t.cn/RUTeYKK</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3909744328564039" target="freeweibo-mirror">//@鹰隼N1A晏欢: [鼓掌]//@谓贤:向德国学习，建议…</a>
 </h2>
