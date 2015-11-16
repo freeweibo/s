@@ -26,6 +26,12 @@
 <p>
 	<small> ============== 4小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3909775002086272" target="freeweibo-mirror">新片速递《我s证人》完整版在线观看！ 时间较长，先马后看！更…</a>
+</h2>
+<p>新片速递《我s证人》完整版在线观看！ 时间较长，先马后看！更多电影资源，欢迎关..注@我的电影圈 http://t.cn/RUTeYKK</p>
+<p>
+	<small> ============== 8小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3909744328564039" target="freeweibo-mirror">//@鹰隼N1A晏欢: [鼓掌]//@谓贤:向德国学习，建议…</a>
 </h2>
 <p>//@鹰隼N1A晏欢: [鼓掌]//@谓贤:向德国学习，建议人大立法，凡否认大饥荒和文革的人，都应该获刑！<br><br>RE: 中国也可以将否认三年大饥荒饿死人、否认文革动乱性质的人，判处有期徒刑？这些人己经越多言论自由的边界。 http://t.cn/z8ATh9d<br><img src="http://ww2.sinaimg.cn/large/467a6223gw1ey2kdeopwpj20xc18gaoz.jpg"></p>
@@ -42,13 +48,13 @@
 </h2>
 <p>中国也可以将否认三年大饥荒饿死人、否认文革动乱性质的人，判处有期徒刑？这些人己经越多言论自由的边界。 http://t.cn/z8ATh9d<br><img src="http://ww2.sinaimg.cn/large/467a6223gw1ey2kdeopwpj20xc18gaoz.jpg"></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3909738423087045" target="freeweibo-mirror">女优：excuse me？？？？？</a>
 </h2>
 <p>女优：excuse me？？？？？<br><img src="http://ww1.sinaimg.cn/large/005yPznogw1ey2kcpmtavg30b4071b29.gif"></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3909730218798091" target="freeweibo-mirror">ISIS组织所规划的“伊斯兰国”的终极版图中包括xinjia…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3909427733844429" target="freeweibo-mirror">路透社今日报道：中国媒体利用巴黎事件煽动国内情绪。引用世维会…</a>
 </h2>
 <p>路透社今日报道：中国媒体利用巴黎事件煽动国内情绪。引用世维会发言“中国正对反抗其压迫的维吾尔人开火，并称是恐怖分子，这是中国的特殊政治需要。”路透社：人权组织和众多专家一直怀疑中国说法，他们依据分裂组织人员的说法称，“新疆的暴力事件原因是中国政府对宗教和文化的控制引发了众怒。”<br><img src="http://ww4.sinaimg.cn/large/0063zBg5jw1ey1ko3uw2wj30go0b0ta5.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3909408922387700" target="freeweibo-mirror">中国又是最大输家。不知博主对奥朗德先走怎么看?//@跃檀溪:…</a>
-</h2>
-<p>中国又是最大输家。不知博主对奥朗德先走怎么看?//@跃檀溪:石工贼，砸国党，离开体制什么都不是。 //@美保公://@俞氏青蛙:西北反恐壮士闻此心寒，保国安宁之功，竟被如此娱乐嘲讽，抗震救灾岂非国家行为，有些大V，不思与国俱兴，竟黑国家以赚资本，多行不义必自毙，子姑待之。</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
