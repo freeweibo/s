@@ -42,7 +42,7 @@
 </h2>
 <p>ISIS组织所规划的“伊斯兰国”的终极版图中包括xinjiang。ISIS领导人在“建国宣言”中说：“在中国、印度、巴勒斯坦、索马里，穆斯林的权利都被强行剥夺…安拉在上，我们要复仇！”他们罗列的“复仇”名单，中国被排在了第一位。 『中国如何应对ISIS_中国论文网』http://t.cn/R7a2Ox1</p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3909573590930585" target="freeweibo-mirror">SPAM 谢谢！[笑cry][笑cry][笑cry][赞]自…</a>
 </h2>
