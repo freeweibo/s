@@ -36,7 +36,7 @@
 </h2>
 <p>SPAM 想知道今天收到快递的你期望值与实际值相差多大！别怕，给你几个收到快递的你用得到的App！</p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3909841066460489" target="freeweibo-mirror">#美国强盗逻辑#美国到中国南海耀武扬威，到家门口挑战中国人民…</a>
 </h2>
@@ -114,7 +114,7 @@
 </h2>
 <p>【如何上脸书和推特】关注就是力量，围观改变美国！可是，很多网友不知道怎么上老美的微博。在这个时候，威武的茶哥就出现了。今天我给大家带来的是一个上洋微博的#悬壶微教程#。想围观美国的小伙伴们，走起！<br><img src="http://ww2.sinaimg.cn/large/83324302gw1ey1rd2bya6j20l47yhhdt.jpg"></p>
 <p>
-	<small> ============== 1天前</small>
+	<small> ============== 2天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3909473905577765" target="freeweibo-mirror">脑子有屎，就送博主一程@TBK文化 //@流浪的蛤蟆: 博主…</a>
 </h2>
