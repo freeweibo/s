@@ -42,7 +42,7 @@
 </h2>
 <p>环球时报社评：国际特赦组织日前发布的《茫无尽头》人权报告，谴责中国警方对近年遭到临时拘押的律师施以酷刑。联合国禁止酷刑委员会将于本月晚些时候在日内瓦开会，审查中国在遵守相关联合国公约方面的纪录。<br><img src="http://ww2.sinaimg.cn/large/6a267a4bgw1ey35v418pvj20ri4oi4qp.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3909926054966820" target="freeweibo-mirror">SPAM 有点肉……#一日一绘# 姿势参考照片</a>
 </h2>
