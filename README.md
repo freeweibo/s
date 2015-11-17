@@ -122,6 +122,12 @@
 <p>
 	<small> ============== 1天前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3909891926134970" target="freeweibo-mirror">12日人民日报头版文章《重庆 五大功能区域开拓发展新空间》。…</a>
+</h2>
+<p>12日人民日报头版文章《重庆 五大功能区域开拓发展新空间》。当然成绩是孙政才任职重庆两年多取得的，与前任无关。<br><img src="http://ww4.sinaimg.cn/large/0066NdFtjw1ey31zuhlecj30bc0bijtv.jpg"></p>
+<p>
+	<small> ============== 1天前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3909878172971703" target="freeweibo-mirror">【这就是大学教授的水平？！】[吃惊][囧][弱]</a>
 </h2>
 <p>【这就是大学教授的水平？！】[吃惊][囧][弱]<br><img src="http://ww1.sinaimg.cn/large/6b2e7e57jw1ey30eye6kxj20hs0vk78f.jpg"></p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3909841066460489" target="freeweibo-mirror">#美国强盗逻辑#美国到中国南海耀武扬威，到家门口挑战中国人民…</a>
 </h2>
 <p>#美国强盗逻辑#美国到中国南海耀武扬威，到家门口挑战中国人民的底线，却倒打一耙说中国在南海挑战美国。说句实的，中国未用上万只装甲渔船列队“迎接”你们的航母就算便宜你们了，以渔船让你寸步难行，揭穿你的侵略行径。另：你们的航母不去波斯湾打击ISIS，跑中国海来干什么！</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3909775002086272" target="freeweibo-mirror">新片速递《我s证人》完整版在线观看！ 时间较长，先马后看！更…</a>
-</h2>
-<p>新片速递《我s证人》完整版在线观看！ 时间较长，先马后看！更多电影资源，欢迎关..注@我的电影圈 http://t.cn/RUTeYKK</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
