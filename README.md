@@ -42,7 +42,7 @@
 </h2>
 <p>//@李铁军: 爱吃吃，不吃滚。//@开水族馆的生物男: 都是官方给惯出来的</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3910117617099442" target="freeweibo-mirror">恐怖份子是全人类的敌人！胆小慎点! http://t.cn/…</a>
 </h2>
