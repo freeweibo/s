@@ -114,7 +114,7 @@
 </h2>
 <p>(づ￣ 3￣)づ么么哒</p>
 <p>
-	<small> ============== 1天前</small>
+	<small> ============== 2天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3909486156747022" target="freeweibo-mirror">【如何上脸书和推特】关注就是力量，围观改变美国！可是，很多网…</a>
 </h2>
