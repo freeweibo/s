@@ -114,13 +114,13 @@
 </h2>
 <p>恐怖份子是全人类的敌人！胆小慎点! http://t.cn/RURrldv</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3910117143296522" target="freeweibo-mirror">我想[吐][吐][吐][吐][吐][吐]，这个国家都成他家的…</a>
 </h2>
 <p>我想[吐][吐][吐][吐][吐][吐]，这个国家都成他家的了！</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3910105903008076" target="freeweibo-mirror">SPAM //@韋郁-:[蜡烛][蜡烛][蜡烛]//@烟与雾…</a>
 </h2>
