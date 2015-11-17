@@ -38,6 +38,12 @@
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3910117617099442" target="freeweibo-mirror">恐怖份子是全人类的敌人！胆小慎点! http://t.cn/…</a>
+</h2>
+<p>恐怖份子是全人类的敌人！胆小慎点! http://t.cn/RURrldv</p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3910117143296522" target="freeweibo-mirror">我想[吐][吐][吐][吐][吐][吐]，这个国家都成他家的…</a>
 </h2>
 <p>我想[吐][吐][吐][吐][吐][吐]，这个国家都成他家的了！</p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3909741649043416" target="freeweibo-mirror">支持 //@谓贤:向德国学习，建议人大立法，凡否认大饥荒和文…</a>
 </h2>
 <p>支持 //@谓贤:向德国学习，建议人大立法，凡否认大饥荒和文革的人，都应该获刑！<br><br>RE: 中国也可以将否认三年大饥荒饿死人、否认文革动乱性质的人，判处有期徒刑？这些人己经越多言论自由的边界。 http://t.cn/z8ATh9d<br><img src="http://ww2.sinaimg.cn/large/467a6223gw1ey2kdeopwpj20xc18gaoz.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3909738511398665" target="freeweibo-mirror">中国也可以将否认三年大饥荒饿死人、否认文革动乱性质的人，判处…</a>
-</h2>
-<p>中国也可以将否认三年大饥荒饿死人、否认文革动乱性质的人，判处有期徒刑？这些人己经越多言论自由的边界。 http://t.cn/z8ATh9d<br><img src="http://ww2.sinaimg.cn/large/467a6223gw1ey2kdeopwpj20xc18gaoz.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
