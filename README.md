@@ -36,13 +36,13 @@
 </h2>
 <p>五毛狗们怎么说... //@微天下:IS在其官方杂志上公布了杀死中国以及挪威人质的消息。路透社报道称，IS曾宣称“出售”这两名人质。<br><br>RE: 【快讯】美联社报道，IS声称杀死了中国和挪威人质。（新浪）</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3910692648286853" target="freeweibo-mirror">[衰]//@赞歌静好：5毛已经彻底占领微博了</a>
 </h2>
 <p>[衰]//@赞歌静好：5毛已经彻底占领微博了<br><br>RE: 针对IS宣布杀死中国人质，一些热门评论。<br><img src="http://ww4.sinaimg.cn/large/61e04755jw1ey5kp8hr6oj20k30njtck.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3910691842931823" target="freeweibo-mirror">//@陈强微博:中国也该出兵了！lS是全人类的公敌</a>
 </h2>
