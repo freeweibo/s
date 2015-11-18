@@ -24,7 +24,7 @@
 </h2>
 <p>SPAM 如此好福利，怎么能错过呢~[羞嗒嗒][羞嗒嗒]</p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3910464549586313" target="freeweibo-mirror">如右，所以无所谓啊，行政区队进去几日游也不错，这个应该不用中…</a>
 </h2>
@@ -48,7 +48,7 @@
 </h2>
 <p>大雷真男人！[耶]<br><br>RE: 我不懂政治，我只知道我是个中国人，我很骄傲我是个中国人，我爱我的祖国！我跟那些普普通通的中国人一样有着一颗赤红的心！感谢你们一直以来对中国队的支持！我知道在电视前也有很多球迷在陪着中国队，虽然没有赢下比赛，但我想对你们说，有你们我感到自豪！谢谢！对于这张图片...CNMD<br><img src="http://ww1.sinaimg.cn/large/6a717273jw1ey4eheuep5j20x30k6gth.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3910315798802270" target="freeweibo-mirror">我不懂政治，我只知道我是个中国人，我很骄傲我是个中国人，我爱…</a>
 </h2>
