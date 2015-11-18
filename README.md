@@ -24,7 +24,7 @@
 </h2>
 <p>//@袁莉wsj:[泪][泪][泪] //@财经网:【9月旧闻·外交部：已初步核实IS公布人质信息 系中国公民】外交部称，经初步核实，极端组织IS公布的人质信息，与1名在海外失踪的中国公民特质相符，目前中方已开展相关工作。中方重申，坚决反对任何针对无辜平民的暴力行为。http://t.cn/RyG7lBt</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3910684817212153" target="freeweibo-mirror">转发微博 http://t.cn/RUnjRxm</a>
 </h2>
@@ -41,6 +41,12 @@
 	<a href="https://freeweibo.com/weibo/3910682535265755" target="freeweibo-mirror">呵呵，经费依然很充足嘛</a>
 </h2>
 <p>呵呵，经费依然很充足嘛<br><br>RE: 针对IS宣布杀死中国人质，一些热门评论。<br><img src="http://ww4.sinaimg.cn/large/61e04755jw1ey5kp8hr6oj20k30njtck.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3910682087517168" target="freeweibo-mirror">针对IS宣布杀死中国人质，一些热门评论。</a>
+</h2>
+<p>针对IS宣布杀死中国人质，一些热门评论。<br><img src="http://ww4.sinaimg.cn/large/61e04755jw1ey5kp8hr6oj20k30njtck.jpg"></p>
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
@@ -78,7 +84,13 @@
 </h2>
 <p>美联社报道，IS声称杀死了中国和挪威人质。<br><br>RE: 【快讯】美联社报道，IS声称杀死了中国和挪威人质。（新浪）</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3910669222995235" target="freeweibo-mirror">【快讯】美联社报道，IS声称杀死了中国和挪威人质。（新浪）</a>
+</h2>
+<p>【快讯】美联社报道，IS声称杀死了中国和挪威人质。（新浪）</p>
+<p>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3910664164460056" target="freeweibo-mirror">SPAM //@白发萧萧小律师:转发微博</a>
 </h2>
@@ -125,18 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3910611253600904" target="freeweibo-mirror">SPAM 白天没怎么上过微博，不知道为啥编剧和作者掐起来了。…</a>
 </h2>
 <p>SPAM 白天没怎么上过微博，不知道为啥编剧和作者掐起来了。现如今，只要有才华，谁又能埋没了谁呢？能在互联网上杀出重围的原创作者，大多人都没有捷径，凭借的是持之以恒和才华。古人云，三十年河东三十年河西，现如今，许是三年河东三年河西了，莫欺少年穷，有些人终将长成参天大树。</p>
-<p>
-	<small> ============== 6小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3910605700053144" target="freeweibo-mirror">SPAM 美男情侣穿婚纱照来面试。Darry Ring武汉大…</a>
-</h2>
-<p>SPAM 美男情侣穿婚纱照来面试。Darry Ring武汉大学专场招聘会上一个名为“浪漫体验师”的岗位，年薪数十万，仅限情侣报名。该职位吸引来不少恩爱情侣，并在现场秀恩爱。其中有一对特别的恋人在拍婚纱照之余赶来面试，并问招聘方：“对同性恋怎么看？”他们说真爱不分性别，已确定对方是一生唯一真爱。<br><img src="http://ww1.sinaimg.cn/large/8eda1a63jw1ey5by3z5epj20rs0iigse.jpg"></p>
-<p>
-	<small> ============== 7小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3910603058023889" target="freeweibo-mirror">SPAM 十万年薪招浪漫体验师，只限情侣急哭女博士。Darr…</a>
-</h2>
-<p>SPAM 十万年薪招浪漫体验师，只限情侣急哭女博士。DarryRing（DR真爱戒指）武汉大学专场招聘会，一个名为“浪漫体验师”的岗位，只限情侣，年薪十万，工作时间有弹性，工作内容吃喝玩乐谈恋爱。现场不少同学为了证明自己比别人会谈恋爱，用力过猛，虐哭一位单身女博士。她说“从未尝过爱情的味道“<br><img src="http://ww1.sinaimg.cn/large/6f86dff2gw1ey5bk9u19gj20rs0iidjj.jpg"></p>
 <p>
 	<small> ============== 7小时前</small>
 </p>
