@@ -36,7 +36,7 @@
 </h2>
 <p>我们爱祖国！ 爱所有的球迷！[good][good][拳頭][給力]⚽️ @王大雷<br><br>RE: 我不懂政治，我只知道我是个中国人，我很骄傲我是个中国人，我爱我的祖国！我跟那些普普通通的中国人一样有着一颗赤红的心！感谢你们一直以来对中国队的支持！我知道在电视前也有很多球迷在陪着中国队，虽然没有赢下比赛，但我想对你们说，有你们我感到自豪！谢谢！对于这张图片...CNMD<br><img src="http://ww1.sinaimg.cn/large/6a717273jw1ey4eheuep5j20x30k6gth.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3910447092348897" target="freeweibo-mirror">大雷真男人！[耶]</a>
 </h2>
