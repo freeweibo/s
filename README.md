@@ -42,7 +42,7 @@
 </h2>
 <p>「韩国电影《深情触摸》片段」想看全片？so easy#北京生活#<br><img src="http://ww4.sinaimg.cn/large/006gDip7gw1ey4vhslexwg307f046k6w.gif"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3910453362978383" target="freeweibo-mirror">我们爱祖国！ 爱所有的球迷！[good][good][拳頭]…</a>
 </h2>
