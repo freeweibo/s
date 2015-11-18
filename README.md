@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3910702710693715" target="freeweibo-mirror">[蜡烛]//@张晨初艺术空间:[蜡烛]//@蛋疼的李帅帅44…</a>
+</h2>
+<p>[蜡烛]//@张晨初艺术空间:[蜡烛]//@蛋疼的李帅帅44524: //@诗浓岚舍: //@唔侬无季: //@B天乐B: //@慈溪非法强拆受害者:[蜡烛][泪]//@迟夙生律师: //@黄照旋:你对恐怖分子仁慈，他是不会领情的。同胞之死，情何以堪？[泪][伤心][蜡烛][蜡烛][蜡烛]<br><br>RE: 【IS宣称已经杀死中国人质】路透社报道，IS在其最新一期官方杂志上公布了杀死中国及挪威人质的消息，IS曾宣称“出售”这两名人质。据此前报道，IS曾在今年9月在官方杂志上公布了两名人质的照片，注明“待售”，其中中国人质名为Fan Jinghui，50岁，是来自北京的自由顾问，另一位人质来自挪威。（新浪）<br><img src="http://ww4.sinaimg.cn/large/70e11e0fjw1ey5k1jwknnj20ed0nqgnt.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3910692837493350" target="freeweibo-mirror">五毛狗们怎么说... //@微天下:IS在其官方杂志上公布了…</a>
 </h2>
 <p>五毛狗们怎么说... //@微天下:IS在其官方杂志上公布了杀死中国以及挪威人质的消息。路透社报道称，IS曾宣称“出售”这两名人质。<br><br>RE: 【快讯】美联社报道，IS声称杀死了中国和挪威人质。（新浪）</p>
@@ -114,13 +120,13 @@
 </h2>
 <p>博主被五毛盯上了。<br><br>RE: 针对IS宣布杀死中国人质，一些热门评论。<br><img src="http://ww4.sinaimg.cn/large/61e04755jw1ey5kp8hr6oj20k30njtck.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3910683378380841" target="freeweibo-mirror">五毛及时完成任务 //@小党:常说的犯我强汉虽远必诛呢</a>
 </h2>
 <p>五毛及时完成任务 //@小党:常说的犯我强汉虽远必诛呢<br><br>RE: 针对IS宣布杀死中国人质，一些热门评论。<br><img src="http://ww4.sinaimg.cn/large/61e04755jw1ey5kp8hr6oj20k30njtck.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3910683009287044" target="freeweibo-mirror">//@茹常在-小F: //@Vista看天下:转发微博</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3910682686967816" target="freeweibo-mirror">常说的犯我强汉虽远必诛呢</a>
 </h2>
 <p>常说的犯我强汉虽远必诛呢<br><br>RE: 针对IS宣布杀死中国人质，一些热门评论。<br><img src="http://ww4.sinaimg.cn/large/61e04755jw1ey5kp8hr6oj20k30njtck.jpg"></p>
-<p>
-	<small> ============== 3小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3910682535265755" target="freeweibo-mirror">呵呵，经费依然很充足嘛</a>
-</h2>
-<p>呵呵，经费依然很充足嘛<br><br>RE: 针对IS宣布杀死中国人质，一些热门评论。<br><img src="http://ww4.sinaimg.cn/large/61e04755jw1ey5kp8hr6oj20k30njtck.jpg"></p>
 <p>
 	<small> ============== 3小时前</small>
 </p>
