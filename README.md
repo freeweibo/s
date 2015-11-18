@@ -26,6 +26,12 @@
 <p>
 	<small> ============== 1小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3910701963729562" target="freeweibo-mirror">实在无话可说了。//@土家野夫: 万恶。//@我是半耳人: …</a>
+</h2>
+<p>实在无话可说了。//@土家野夫: 万恶。//@我是半耳人: 反对票不会因为一个屁民而停止，屁民死不死的，与投票基本无关！ 真是悲催啊！//@张庭源律师2: 想起了在联合国的反对票。<br><br>RE: 【IS宣称已经杀死中国人质】路透社报道，IS在其最新一期官方杂志上公布了杀死中国及挪威人质的消息，IS曾宣称“出售”这两名人质。据此前报道，IS曾在今年9月在官方杂志上公布了两名人质的照片，注明“待售”，其中中国人质名为Fan Jinghui，50岁，是来自北京的自由顾问，另一位人质来自挪威。（新浪）<br><img src="http://ww4.sinaimg.cn/large/70e11e0fjw1ey5k1jwknnj20ed0nqgnt.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3910692837493350" target="freeweibo-mirror">五毛狗们怎么说... //@微天下:IS在其官方杂志上公布了…</a>
 </h2>
 <p>五毛狗们怎么说... //@微天下:IS在其官方杂志上公布了杀死中国以及挪威人质的消息。路透社报道称，IS曾宣称“出售”这两名人质。<br><br>RE: 【快讯】美联社报道，IS声称杀死了中国和挪威人质。（新浪）</p>
@@ -35,6 +41,12 @@
 	<a href="https://freeweibo.com/weibo/3910692648286853" target="freeweibo-mirror">[衰]//@赞歌静好：5毛已经彻底占领微博了</a>
 </h2>
 <p>[衰]//@赞歌静好：5毛已经彻底占领微博了<br><br>RE: 针对IS宣布杀死中国人质，一些热门评论。<br><img src="http://ww4.sinaimg.cn/large/61e04755jw1ey5kp8hr6oj20k30njtck.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3910691842931823" target="freeweibo-mirror">//@陈强微博:中国也该出兵了！lS是全人类的公敌</a>
+</h2>
+<p>//@陈强微博:中国也该出兵了！lS是全人类的公敌<br><br>RE: 【新闻人物：Fan Jinghui】IS曾在其官方网络杂志上公布照片，宣称“出售”两名人质，其中一名是中国人Fan Jinghui。有消息称，这名中国人住在北京，系一名自由职业者，他曾在电台节目中与白岩松对话，称“享受不安全的生活”，“追求漂泊”。IS今日声称，Fan Jinghui和另一名挪威人质已被杀。（新浪）<br><img src="http://ww2.sinaimg.cn/large/70e11e0fjw1ey5kahi6s0j20eo0mwwh5.jpg"></p>
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
@@ -108,35 +120,23 @@
 </h2>
 <p>转发微博 http://t.cn/RUnjRxm<br><br>RE: 【快讯】美联社报道，IS声称杀死了中国和挪威人质。（新浪）</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3910684695500534" target="freeweibo-mirror">ISIS的死期快到了！//@假装在纽约: 转发微博</a>
+</h2>
+<p>ISIS的死期快到了！//@假装在纽约: 转发微博<br><br>RE: 【IS宣称已经杀死中国人质】路透社报道，IS在其最新一期官方杂志上公布了杀死中国及挪威人质的消息，IS曾宣称“出售”这两名人质。据此前报道，IS曾在今年9月在官方杂志上公布了两名人质的照片，注明“待售”，其中中国人质名为Fan Jinghui，50岁，是来自北京的自由顾问，另一位人质来自挪威。（新浪）<br><img src="http://ww4.sinaimg.cn/large/70e11e0fjw1ey5k1jwknnj20ed0nqgnt.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3910684590570882" target="freeweibo-mirror">#这盛世，如你所愿。# 每个人都会得到跟他德性相匹配的结局。</a>
 </h2>
 <p>#这盛世，如你所愿。# 每个人都会得到跟他德性相匹配的结局。<br><br>RE: 针对IS宣布杀死中国人质，一些热门评论。<br><img src="http://ww4.sinaimg.cn/large/61e04755jw1ey5kp8hr6oj20k30njtck.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3910683722914939" target="freeweibo-mirror">博主被五毛盯上了。</a>
-</h2>
-<p>博主被五毛盯上了。<br><br>RE: 针对IS宣布杀死中国人质，一些热门评论。<br><img src="http://ww4.sinaimg.cn/large/61e04755jw1ey5kp8hr6oj20k30njtck.jpg"></p>
-<p>
 	<small> ============== 3小时前</small>
 </p><h2>
-	<a href="https://freeweibo.com/weibo/3910683378380841" target="freeweibo-mirror">五毛及时完成任务 //@小党:常说的犯我强汉虽远必诛呢</a>
+	<a href="https://freeweibo.com/weibo/3910684393559053" target="freeweibo-mirror">//@假装在纽约: 转发微博</a>
 </h2>
-<p>五毛及时完成任务 //@小党:常说的犯我强汉虽远必诛呢<br><br>RE: 针对IS宣布杀死中国人质，一些热门评论。<br><img src="http://ww4.sinaimg.cn/large/61e04755jw1ey5kp8hr6oj20k30njtck.jpg"></p>
-<p>
-	<small> ============== 3小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3910683009287044" target="freeweibo-mirror">//@茹常在-小F: //@Vista看天下:转发微博</a>
-</h2>
-<p>//@茹常在-小F: //@Vista看天下:转发微博<br><br>RE: 【快讯】美联社报道，IS声称杀死了中国和挪威人质。（新浪）</p>
-<p>
-	<small> ============== 3小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3910682686967816" target="freeweibo-mirror">常说的犯我强汉虽远必诛呢</a>
-</h2>
-<p>常说的犯我强汉虽远必诛呢<br><br>RE: 针对IS宣布杀死中国人质，一些热门评论。<br><img src="http://ww4.sinaimg.cn/large/61e04755jw1ey5kp8hr6oj20k30njtck.jpg"></p>
+<p>//@假装在纽约: 转发微博<br><br>RE: 【IS宣称已经杀死中国人质】路透社报道，IS在其最新一期官方杂志上公布了杀死中国及挪威人质的消息，IS曾宣称“出售”这两名人质。据此前报道，IS曾在今年9月在官方杂志上公布了两名人质的照片，注明“待售”，其中中国人质名为Fan Jinghui，50岁，是来自北京的自由顾问，另一位人质来自挪威。（新浪）<br><img src="http://ww4.sinaimg.cn/large/70e11e0fjw1ey5k1jwknnj20ed0nqgnt.jpg"></p>
 <p>
 	<small> ============== 3小时前</small>
 </p>
