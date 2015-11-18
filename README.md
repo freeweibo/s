@@ -24,7 +24,73 @@
 </h2>
 <p>五毛狗们怎么说... //@微天下:IS在其官方杂志上公布了杀死中国以及挪威人质的消息。路透社报道称，IS曾宣称“出售”这两名人质。<br><br>RE: 【快讯】美联社报道，IS声称杀死了中国和挪威人质。（新浪）</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3910692648286853" target="freeweibo-mirror">[衰]//@赞歌静好：5毛已经彻底占领微博了</a>
+</h2>
+<p>[衰]//@赞歌静好：5毛已经彻底占领微博了<br><br>RE: 针对IS宣布杀死中国人质，一些热门评论。<br><img src="http://ww4.sinaimg.cn/large/61e04755jw1ey5kp8hr6oj20k30njtck.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3910691247518762" target="freeweibo-mirror">中国也该出兵了！lS是全人类的公敌</a>
+</h2>
+<p>中国也该出兵了！lS是全人类的公敌<br><br>RE: 【新闻人物：Fan Jinghui】IS曾在其官方网络杂志上公布照片，宣称“出售”两名人质，其中一名是中国人Fan Jinghui。有消息称，这名中国人住在北京，系一名自由职业者，他曾在电台节目中与白岩松对话，称“享受不安全的生活”，“追求漂泊”。IS今日声称，Fan Jinghui和另一名挪威人质已被杀。（新浪）<br><img src="http://ww2.sinaimg.cn/large/70e11e0fjw1ey5kahi6s0j20eo0mwwh5.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3910690823942973" target="freeweibo-mirror">在这个过程中，我想知道中国政府做了什么？</a>
+</h2>
+<p>在这个过程中，我想知道中国政府做了什么？<br><br>RE: 【新闻人物：Fan Jinghui】IS曾在其官方网络杂志上公布照片，宣称“出售”两名人质，其中一名是中国人Fan Jinghui。有消息称，这名中国人住在北京，系一名自由职业者，他曾在电台节目中与白岩松对话，称“享受不安全的生活”，“追求漂泊”。IS今日声称，Fan Jinghui和另一名挪威人质已被杀。（新浪）<br><img src="http://ww2.sinaimg.cn/large/70e11e0fjw1ey5kahi6s0j20eo0mwwh5.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3910690467049858" target="freeweibo-mirror">//@中国新闻网:【Fan Jinghui】媒体曾查证，这名…</a>
+</h2>
+<p>//@中国新闻网:【Fan Jinghui】媒体曾查证，这名中国籍人质正是北京市石景山区苹果园南路某小区居民樊京辉。央视著名主持人白岩松曾在2001年采访过樊京辉。 （法晚） http://t.cn/RUnj7rq<br><br>RE: 【IS宣布杀害中国和挪威人质】据美联社报道，极端组织IS宣布已经杀害了中国和挪威人质。两个月前IS曾发布关于这两人信息索要赎金。 http://t.cn/RyhKnzA<br><img src="http://ww1.sinaimg.cn/large/6a5ce645jw1ey5jvqccp9j20fa09tt9a.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3910690030901403" target="freeweibo-mirror">网络也需要维稳的。 //@盘子微谈:贵网已被重点照顾[微笑]</a>
+</h2>
+<p>网络也需要维稳的。 //@盘子微谈:贵网已被重点照顾[微笑]<br><br>RE: 针对IS宣布杀死中国人质，一些热门评论。<br><img src="http://ww4.sinaimg.cn/large/61e04755jw1ey5kp8hr6oj20k30njtck.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3910688180937101" target="freeweibo-mirror">一位同胞被害，看评论里一些人却在忙着否认这是中国人[蜡烛]</a>
+</h2>
+<p>一位同胞被害，看评论里一些人却在忙着否认这是中国人[蜡烛]<br><br>RE: 【新闻人物：Fan Jinghui】IS曾在其官方网络杂志上公布照片，宣称“出售”两名人质，其中一名是中国人Fan Jinghui。有消息称，这名中国人住在北京，系一名自由职业者，他曾在电台节目中与白岩松对话，称“享受不安全的生活”，“追求漂泊”。IS今日声称，Fan Jinghui和另一名挪威人质已被杀。（新浪）<br><img src="http://ww2.sinaimg.cn/large/70e11e0fjw1ey5kahi6s0j20eo0mwwh5.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3910688156136599" target="freeweibo-mirror">//@张晨初艺术空间:[蜡烛]//@蛋疼的李帅帅44524:…</a>
+</h2>
+<p>//@张晨初艺术空间:[蜡烛]//@蛋疼的李帅帅44524: //@诗浓岚舍: //@唔侬无季: //@B天乐B: //@慈溪非法强拆受害者:[蜡烛][泪]//@迟夙生律师: //@黄照旋:你对恐怖分子仁慈，他是不会领情的。同胞之死，情何以堪？[泪][伤心][蜡烛][蜡烛][蜡烛]<br><br>RE: 【IS宣称已经杀死中国人质】路透社报道，IS在其最新一期官方杂志上公布了杀死中国及挪威人质的消息，IS曾宣称“出售”这两名人质。据此前报道，IS曾在今年9月在官方杂志上公布了两名人质的照片，注明“待售”，其中中国人质名为Fan Jinghui，50岁，是来自北京的自由顾问，另一位人质来自挪威。（新浪）<br><img src="http://ww4.sinaimg.cn/large/70e11e0fjw1ey5k1jwknnj20ed0nqgnt.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3910687015186071" target="freeweibo-mirror">这回再不出兵没法向国人交代了！</a>
+</h2>
+<p>这回再不出兵没法向国人交代了！<br><br>RE: 【快讯】美联社报道，IS声称杀死了中国和挪威人质。（新浪）</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3910686726154557" target="freeweibo-mirror">傻逼太多了。 //@谷正中:管子，快打击米国去吧 //@楚越…</a>
+</h2>
+<p>傻逼太多了。 //@谷正中:管子，快打击米国去吧 //@楚越管子:你中国想置身中东战乱市外，米国就指使ＩＳ绑架你中国鬼的人质。其实ＩＳ都是米国的道具，真正的幕后黑手就是米国政府。<br><br>RE: 针对IS宣布杀死中国人质，一些热门评论。<br><img src="http://ww4.sinaimg.cn/large/61e04755jw1ey5kp8hr6oj20k30njtck.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3910686516051749" target="freeweibo-mirror">[蜡烛]//@蛋疼的李帅帅44524: //@诗浓岚舍: /…</a>
+</h2>
+<p>[蜡烛]//@蛋疼的李帅帅44524: //@诗浓岚舍: //@唔侬无季: //@B天乐B: //@慈溪非法强拆受害者:[蜡烛][泪]//@迟夙生律师: //@黄照旋:你对恐怖分子仁慈，他是不会领情的。同胞之死，情何以堪？[泪][伤心][蜡烛][蜡烛][蜡烛]<br><br>RE: 【IS宣称已经杀死中国人质】路透社报道，IS在其最新一期官方杂志上公布了杀死中国及挪威人质的消息，IS曾宣称“出售”这两名人质。据此前报道，IS曾在今年9月在官方杂志上公布了两名人质的照片，注明“待售”，其中中国人质名为Fan Jinghui，50岁，是来自北京的自由顾问，另一位人质来自挪威。（新浪）<br><img src="http://ww4.sinaimg.cn/large/70e11e0fjw1ey5k1jwknnj20ed0nqgnt.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3910685979132648" target="freeweibo-mirror">最右问的好 //@不作死就不会死-:啧啧//@董and斌:为…</a>
+</h2>
+<p>最右问的好 //@不作死就不会死-:啧啧//@董and斌:为什么要给他们打马赛克？？<br><br>RE: 针对IS宣布杀死中国人质，一些热门评论。<br><img src="http://ww4.sinaimg.cn/large/61e04755jw1ey5kp8hr6oj20k30njtck.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3910685878243734" target="freeweibo-mirror">//@袁莉wsj:[泪][泪][泪] //@财经网:【9月旧…</a>
 </h2>
@@ -35,6 +101,12 @@
 	<a href="https://freeweibo.com/weibo/3910684817212153" target="freeweibo-mirror">转发微博 http://t.cn/RUnjRxm</a>
 </h2>
 <p>转发微博 http://t.cn/RUnjRxm<br><br>RE: 【快讯】美联社报道，IS声称杀死了中国和挪威人质。（新浪）</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3910684590570882" target="freeweibo-mirror">#这盛世，如你所愿。# 每个人都会得到跟他德性相匹配的结局。</a>
+</h2>
+<p>#这盛世，如你所愿。# 每个人都会得到跟他德性相匹配的结局。<br><br>RE: 针对IS宣布杀死中国人质，一些热门评论。<br><img src="http://ww4.sinaimg.cn/large/61e04755jw1ey5kp8hr6oj20k30njtck.jpg"></p>
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
@@ -67,78 +139,6 @@
 <p>【IS声称杀死中国及挪威人质 发布炸毁俄客机炸弹照片】在周三（11月18日）最新发布的英文组织刊物Dabiq中，伊斯兰国组织宣称杀死了一名中国人质和一名挪威人质，还公布了自称是用来在埃及炸毁俄罗斯客机的炸弹的照片。http://t.cn/RUnlFwg<br><img src="http://ww3.sinaimg.cn/large/9dcb59c7gw1ey5khfa3cbj20m80tqgqh.jpg"></p>
 <p>
 	<small> ============== 2小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3910677217156824" target="freeweibo-mirror">话说这位北京开广告公司的前教师是怎么被绑票的？</a>
-</h2>
-<p>话说这位北京开广告公司的前教师是怎么被绑票的？<br><br>RE: 【IS宣布已杀害中国和挪威人质】据美联社报道，极端组织IS宣布已经杀害了中国和挪威人质。两个月前IS曾发布关于这两人信息索要赎金。 http://t.cn/RyhCnA4<br><img src="http://ww4.sinaimg.cn/large/61e04755jw1ey5jqhpk5sj20fa09t3z0.jpg"></p>
-<p>
-	<small> ============== 2小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3910676889849153" target="freeweibo-mirror">//@准公民沙之白://@边城酒家:转发微博</a>
-</h2>
-<p>//@准公民沙之白://@边城酒家:转发微博<br><br>RE: 【IS宣布已杀害中国和挪威人质】据美联社报道，极端组织IS宣布已经杀害了中国和挪威人质。两个月前IS曾发布关于这两人信息索要赎金。 http://t.cn/RyhCnA4<br><img src="http://ww4.sinaimg.cn/large/61e04755jw1ey5jqhpk5sj20fa09t3z0.jpg"></p>
-<p>
-	<small> ============== 3小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3910674902049972" target="freeweibo-mirror">[蜡烛] //@微天下:IS在其官方杂志上公布了杀死中国以及…</a>
-</h2>
-<p>[蜡烛] //@微天下:IS在其官方杂志上公布了杀死中国以及挪威人质的消息。路透社报道称，IS曾宣称“出售”这两名人质。<br><br>RE: 【快讯】美联社报道，IS声称杀死了中国和挪威人质。（新浪）</p>
-<p>
-	<small> ============== 3小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3910674222209155" target="freeweibo-mirror">强烈谴责！[怒骂][怒骂][怒骂]</a>
-</h2>
-<p>强烈谴责！[怒骂][怒骂][怒骂]<br><br>RE: 【快讯】美联社报道，IS声称杀死了中国和挪威人质。（新浪）</p>
-<p>
-	<small> ============== 3小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3910673320724438" target="freeweibo-mirror">【IS宣布已杀害中国和挪威人质】据美联社报道，极端组织IS宣…</a>
-</h2>
-<p>【IS宣布已杀害中国和挪威人质】据美联社报道，极端组织IS宣布已经杀害了中国和挪威人质。两个月前IS曾发布关于这两人信息索要赎金。 http://t.cn/RyhCnA4<br><img src="http://ww4.sinaimg.cn/large/61e04755jw1ey5jqhpk5sj20fa09t3z0.jpg"></p>
-<p>
-	<small> ============== 3小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3910670981000127" target="freeweibo-mirror">美联社报道，IS声称杀死了中国和挪威人质。</a>
-</h2>
-<p>美联社报道，IS声称杀死了中国和挪威人质。<br><br>RE: 【快讯】美联社报道，IS声称杀死了中国和挪威人质。（新浪）</p>
-<p>
-	<small> ============== 3小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3910669222995235" target="freeweibo-mirror">【快讯】美联社报道，IS声称杀死了中国和挪威人质。（新浪）</a>
-</h2>
-<p>【快讯】美联社报道，IS声称杀死了中国和挪威人质。（新浪）</p>
-<p>
-	<small> ============== 3小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3910664164460056" target="freeweibo-mirror">SPAM //@白发萧萧小律师:转发微博</a>
-</h2>
-<p>SPAM //@白发萧萧小律师:转发微博<br><br>RE: #浦案再延期# @徐利平律师 @刘二狗蛋 @律师张颖 @台北101二 @xiaoxuehui47 @朱孝顶律师 @作家东海@知青记者2 @谓贤 @王甫律师 @周泽律师 @清华郭于31华 @崔小平律师 @律师文摘 @武僧中尉 @何兵 @何三畏 @青石律师 @贺卫方@于建嵘 @我是半耳人 @斯律斯律 http://t.cn/RUnJBZa<br><img src="http://ww3.sinaimg.cn/large/006fuFftgw1ey5cn22x2tj30m80srq4e.jpg"></p>
-<p>
-	<small> ============== 3小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3910661258244669" target="freeweibo-mirror">SPAM  //@三俗大哥://@崔小平律师: //@王甫律…</a>
-</h2>
-<p>SPAM  //@三俗大哥://@崔小平律师: //@王甫律师://@于建嵘:拖得越久，越无法向世人交代。放人，向当事人认错、赔偿，才是正道。<br><br>RE: #浦案再延期# @徐利平律师 @刘二狗蛋 @律师张颖 @台北101二 @xiaoxuehui47 @朱孝顶律师 @作家东海@知青记者2 @谓贤 @王甫律师 @周泽律师 @清华郭于31华 @崔小平律师 @律师文摘 @武僧中尉 @何兵 @何三畏 @青石律师 @贺卫方@于建嵘 @我是半耳人 @斯律斯律 http://t.cn/RUnJBZa<br><img src="http://ww3.sinaimg.cn/large/006fuFftgw1ey5cn22x2tj30m80srq4e.jpg"></p>
-<p>
-	<small> ============== 4小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3910659190410449" target="freeweibo-mirror">SPAM 帅哥！天生力质！//@追唐-如东李忠:手有选票投给…</a>
-</h2>
-<p>SPAM 帅哥！天生力质！//@追唐-如东李忠:手有选票投给大个子//@一个在外经商的中国女人://@实名举报人陈春薷:流氓！//@律师王兴: //@于建嵘:拖得越久，越无法向世人交代。放人，向当事人认错、赔偿，才是正道。<br><br>RE: #浦案再延期# @徐利平律师 @刘二狗蛋 @律师张颖 @台北101二 @xiaoxuehui47 @朱孝顶律师 @作家东海@知青记者2 @谓贤 @王甫律师 @周泽律师 @清华郭于31华 @崔小平律师 @律师文摘 @武僧中尉 @何兵 @何三畏 @青石律师 @贺卫方@于建嵘 @我是半耳人 @斯律斯律 http://t.cn/RUnJBZa<br><img src="http://ww3.sinaimg.cn/large/006fuFftgw1ey5cn22x2tj30m80srq4e.jpg"></p>
-<p>
-	<small> ============== 4小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3910659076676477" target="freeweibo-mirror">SPAM 应该有个交代吧！ //@肖芳华律师://@律师文摘…</a>
-</h2>
-<p>SPAM 应该有个交代吧！ //@肖芳华律师://@律师文摘: 严正抗议！ //@mxm1001://@刘二狗蛋: //@不明真相的爷们:法律在他们手里就是这样任意地拿来“玩”的？//@于建嵘:拖得越久，越无法向世人交代。放人，向当事人认错、赔偿，才是正道。<br><br>RE: #浦案再延期# @徐利平律师 @刘二狗蛋 @律师张颖 @台北101二 @xiaoxuehui47 @朱孝顶律师 @作家东海@知青记者2 @谓贤 @王甫律师 @周泽律师 @清华郭于31华 @崔小平律师 @律师文摘 @武僧中尉 @何兵 @何三畏 @青石律师 @贺卫方@于建嵘 @我是半耳人 @斯律斯律 http://t.cn/RUnJBZa<br><img src="http://ww3.sinaimg.cn/large/006fuFftgw1ey5cn22x2tj30m80srq4e.jpg"></p>
-<p>
-	<small> ============== 4小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3910652873779445" target="freeweibo-mirror">SPAM 认错？难啦！宇宙真理何错之有？//@于建嵘:拖得越…</a>
-</h2>
-<p>SPAM 认错？难啦！宇宙真理何错之有？//@于建嵘:拖得越久，越无法向世人交代。放人，向当事人认错、赔偿，才是正道。<br><br>RE: #浦案再延期# @徐利平律师 @刘二狗蛋 @律师张颖 @台北101二 @xiaoxuehui47 @朱孝顶律师 @作家东海@知青记者2 @谓贤 @王甫律师 @周泽律师 @清华郭于31华 @崔小平律师 @律师文摘 @武僧中尉 @何兵 @何三畏 @青石律师 @贺卫方@于建嵘 @我是半耳人 @斯律斯律 http://t.cn/RUnJBZa<br><img src="http://ww3.sinaimg.cn/large/006fuFftgw1ey5cn22x2tj30m80srq4e.jpg"></p>
-<p>
-	<small> ============== 4小时前</small>
 </p>
 <table>
     <tr>
