@@ -26,6 +26,60 @@
 <p>
 	<small> ============== 1小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3910684817212153" target="freeweibo-mirror">转发微博 http://t.cn/RUnjRxm</a>
+</h2>
+<p>转发微博 http://t.cn/RUnjRxm<br><br>RE: 【快讯】美联社报道，IS声称杀死了中国和挪威人质。（新浪）</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3910683009287044" target="freeweibo-mirror">//@茹常在-小F: //@Vista看天下:转发微博</a>
+</h2>
+<p>//@茹常在-小F: //@Vista看天下:转发微博<br><br>RE: 【快讯】美联社报道，IS声称杀死了中国和挪威人质。（新浪）</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3910682535265755" target="freeweibo-mirror">呵呵，经费依然很充足嘛</a>
+</h2>
+<p>呵呵，经费依然很充足嘛<br><br>RE: 针对IS宣布杀死中国人质，一些热门评论。<br><img src="http://ww4.sinaimg.cn/large/61e04755jw1ey5kp8hr6oj20k30njtck.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3910681445015277" target="freeweibo-mirror">预测一下洪磊的发言：中方暂时还没有得到相关信息，尚不能确定该…</a>
+</h2>
+<p>预测一下洪磊的发言：中方暂时还没有得到相关信息，尚不能确定该消息的真实性。中方致力于和平解决叙利亚危机的方向不会改变，同时将加紧和有关方的合作，严厉打击极端恐怖组织，中方一直保持对恐怖组织零容忍的态度不会动摇。。<br><br>RE: 【快讯】美联社报道，IS声称杀死了中国和挪威人质。（新浪）</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3910677217156824" target="freeweibo-mirror">话说这位北京开广告公司的前教师是怎么被绑票的？</a>
+</h2>
+<p>话说这位北京开广告公司的前教师是怎么被绑票的？<br><br>RE: 【IS宣布已杀害中国和挪威人质】据美联社报道，极端组织IS宣布已经杀害了中国和挪威人质。两个月前IS曾发布关于这两人信息索要赎金。 http://t.cn/RyhCnA4<br><img src="http://ww4.sinaimg.cn/large/61e04755jw1ey5jqhpk5sj20fa09t3z0.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3910676889849153" target="freeweibo-mirror">//@准公民沙之白://@边城酒家:转发微博</a>
+</h2>
+<p>//@准公民沙之白://@边城酒家:转发微博<br><br>RE: 【IS宣布已杀害中国和挪威人质】据美联社报道，极端组织IS宣布已经杀害了中国和挪威人质。两个月前IS曾发布关于这两人信息索要赎金。 http://t.cn/RyhCnA4<br><img src="http://ww4.sinaimg.cn/large/61e04755jw1ey5jqhpk5sj20fa09t3z0.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3910674902049972" target="freeweibo-mirror">[蜡烛] //@微天下:IS在其官方杂志上公布了杀死中国以及…</a>
+</h2>
+<p>[蜡烛] //@微天下:IS在其官方杂志上公布了杀死中国以及挪威人质的消息。路透社报道称，IS曾宣称“出售”这两名人质。<br><br>RE: 【快讯】美联社报道，IS声称杀死了中国和挪威人质。（新浪）</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3910674222209155" target="freeweibo-mirror">强烈谴责！[怒骂][怒骂][怒骂]</a>
+</h2>
+<p>强烈谴责！[怒骂][怒骂][怒骂]<br><br>RE: 【快讯】美联社报道，IS声称杀死了中国和挪威人质。（新浪）</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3910670981000127" target="freeweibo-mirror">美联社报道，IS声称杀死了中国和挪威人质。</a>
+</h2>
+<p>美联社报道，IS声称杀死了中国和挪威人质。<br><br>RE: 【快讯】美联社报道，IS声称杀死了中国和挪威人质。（新浪）</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3910664164460056" target="freeweibo-mirror">SPAM //@白发萧萧小律师:转发微博</a>
 </h2>
 <p>SPAM //@白发萧萧小律师:转发微博<br><br>RE: #浦案再延期# @徐利平律师 @刘二狗蛋 @律师张颖 @台北101二 @xiaoxuehui47 @朱孝顶律师 @作家东海@知青记者2 @谓贤 @王甫律师 @周泽律师 @清华郭于31华 @崔小平律师 @律师文摘 @武僧中尉 @何兵 @何三畏 @青石律师 @贺卫方@于建嵘 @我是半耳人 @斯律斯律 http://t.cn/RUnJBZa<br><img src="http://ww3.sinaimg.cn/large/006fuFftgw1ey5cn22x2tj30m80srq4e.jpg"></p>
@@ -85,60 +139,6 @@
 <p>SPAM 十万年薪招浪漫体验师，只限情侣急哭女博士。DarryRing（DR真爱戒指）武汉大学专场招聘会，一个名为“浪漫体验师”的岗位，只限情侣，年薪十万，工作时间有弹性，工作内容吃喝玩乐谈恋爱。现场不少同学为了证明自己比别人会谈恋爱，用力过猛，虐哭一位单身女博士。她说“从未尝过爱情的味道“<br><img src="http://ww1.sinaimg.cn/large/6f86dff2gw1ey5bk9u19gj20rs0iidjj.jpg"></p>
 <p>
 	<small> ============== 7小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3910531029026625" target="freeweibo-mirror">SPAM 如此好福利，怎么能错过呢~[羞嗒嗒][羞嗒嗒]</a>
-</h2>
-<p>SPAM 如此好福利，怎么能错过呢~[羞嗒嗒][羞嗒嗒]</p>
-<p>
-	<small> ============== 12小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3910464549586313" target="freeweibo-mirror">如右，所以无所谓啊，行政区队进去几日游也不错，这个应该不用中…</a>
-</h2>
-<p>如右，所以无所谓啊，行政区队进去几日游也不错，这个应该不用中央财政支持了吧//@AriseLYuri:HongKong is not China[拜拜]Its just a part of China[拜拜]<br><br>RE: 我不懂政治，我只知道我是个中国人，我很骄傲我是个中国人，我爱我的祖国！我跟那些普普通通的中国人一样有着一颗赤红的心！感谢你们一直以来对中国队的支持！我知道在电视前也有很多球迷在陪着中国队，虽然没有赢下比赛，但我想对你们说，有你们我感到自豪！谢谢！对于这张图片...CNMD<br><img src="http://ww1.sinaimg.cn/large/6a717273jw1ey4eheuep5j20x30k6gth.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3910462582168901" target="freeweibo-mirror">「韩国电影《深情触摸》片段」想看全片？so easy#北京生…</a>
-</h2>
-<p>「韩国电影《深情触摸》片段」想看全片？so easy#北京生活#<br><img src="http://ww4.sinaimg.cn/large/006gDip7gw1ey4vhslexwg307f046k6w.gif"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3910453362978383" target="freeweibo-mirror">我们爱祖国！ 爱所有的球迷！[good][good][拳頭]…</a>
-</h2>
-<p>我们爱祖国！ 爱所有的球迷！[good][good][拳頭][給力]⚽️ @王大雷<br><br>RE: 我不懂政治，我只知道我是个中国人，我很骄傲我是个中国人，我爱我的祖国！我跟那些普普通通的中国人一样有着一颗赤红的心！感谢你们一直以来对中国队的支持！我知道在电视前也有很多球迷在陪着中国队，虽然没有赢下比赛，但我想对你们说，有你们我感到自豪！谢谢！对于这张图片...CNMD<br><img src="http://ww1.sinaimg.cn/large/6a717273jw1ey4eheuep5j20x30k6gth.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3910447092348897" target="freeweibo-mirror">大雷真男人！[耶]</a>
-</h2>
-<p>大雷真男人！[耶]<br><br>RE: 我不懂政治，我只知道我是个中国人，我很骄傲我是个中国人，我爱我的祖国！我跟那些普普通通的中国人一样有着一颗赤红的心！感谢你们一直以来对中国队的支持！我知道在电视前也有很多球迷在陪着中国队，虽然没有赢下比赛，但我想对你们说，有你们我感到自豪！谢谢！对于这张图片...CNMD<br><img src="http://ww1.sinaimg.cn/large/6a717273jw1ey4eheuep5j20x30k6gth.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3910315798802270" target="freeweibo-mirror">我不懂政治，我只知道我是个中国人，我很骄傲我是个中国人，我爱…</a>
-</h2>
-<p>我不懂政治，我只知道我是个中国人，我很骄傲我是个中国人，我爱我的祖国！我跟那些普普通通的中国人一样有着一颗赤红的心！感谢你们一直以来对中国队的支持！我知道在电视前也有很多球迷在陪着中国队，虽然没有赢下比赛，但我想对你们说，有你们我感到自豪！谢谢！对于这张图片...CNMD<br><img src="http://ww1.sinaimg.cn/large/6a717273jw1ey4eheuep5j20x30k6gth.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3910308340740943" target="freeweibo-mirror">SPAM 困了#一日一绘# 姿势参考照片</a>
-</h2>
-<p>SPAM 困了#一日一绘# 姿势参考照片<br><img src="http://ww2.sinaimg.cn/large/54453accjw1ey4dtk0yuoj20yi18gdwi.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3910299797305269" target="freeweibo-mirror">今天发生两起律师权益事件，一起温州开完庭公安抓律师，一起福州…</a>
-</h2>
-<p>今天发生两起律师权益事件，一起温州开完庭公安抓律师，一起福州律师立案不成反被抓。<br><br>RE: 【六旬女律师被福州鼓楼法院拘留15天】因为邹丽惠律师办理了一个所谓“邪教”的案件，认为卓建伟法官侵害名誉，邹律师诉至法院。孰料鼓楼法院拒不接收起诉文书，交涉过程中法警限制人身自由，随后法院宣布拘留15天。<br><img src="http://ww2.sinaimg.cn/large/6a80bfcdjw1ey424rsukyj20ek0eu74r.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3910244566247469" target="freeweibo-mirror">//@邱震海: //@邱震海:外媒：中国实际有3万吨有大量不…</a>
-</h2>
-<p>//@邱震海: //@邱震海:外媒：中国实际有3万吨有大量不为人知的金库（据知名金融博客Zerohedge）11月12纽交所金库的黄金出库量接近21吨（约合685652金衡盎司），如此规模的黄金被制作成纯度达999的精致金条存放在金库中。香港一天流出的黄金比整个摩根大通所拥有的黄金库存还多 http://t.cn/zRlDPTP<br><br>RE: 【揭秘】2009年有数百亿人民币被注入到北京的四大媒体机构——新华社、中央电视台、中国国际广播电台和《中国日报》，为其全球扩张提供资金。揭秘中国国际广播电台如何悄悄通过支持广播电台、换取对报道的编辑控制权——清除任何对中国不利的东西——的方式渗入美国的广播频道的。http://t.cn/RURBX63</p>
-<p>
-	<small> ============== 1天前</small>
 </p>
 <table>
     <tr>
