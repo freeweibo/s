@@ -126,19 +126,19 @@
 </h2>
 <p>//@茹常在-小F: //@Vista看天下:转发微博<br><br>RE: 【快讯】美联社报道，IS声称杀死了中国和挪威人质。（新浪）</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3910682686967816" target="freeweibo-mirror">常说的犯我强汉虽远必诛呢</a>
 </h2>
 <p>常说的犯我强汉虽远必诛呢<br><br>RE: 针对IS宣布杀死中国人质，一些热门评论。<br><img src="http://ww4.sinaimg.cn/large/61e04755jw1ey5kp8hr6oj20k30njtck.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3910682535265755" target="freeweibo-mirror">呵呵，经费依然很充足嘛</a>
 </h2>
 <p>呵呵，经费依然很充足嘛<br><br>RE: 针对IS宣布杀死中国人质，一些热门评论。<br><img src="http://ww4.sinaimg.cn/large/61e04755jw1ey5kp8hr6oj20k30njtck.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p>
 <table>
     <tr>
