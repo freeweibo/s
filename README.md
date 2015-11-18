@@ -30,7 +30,7 @@
 </h2>
 <p>如右，所以无所谓啊，行政区队进去几日游也不错，这个应该不用中央财政支持了吧//@AriseLYuri:HongKong is not China[拜拜]Its just a part of China[拜拜]<br><br>RE: 我不懂政治，我只知道我是个中国人，我很骄傲我是个中国人，我爱我的祖国！我跟那些普普通通的中国人一样有着一颗赤红的心！感谢你们一直以来对中国队的支持！我知道在电视前也有很多球迷在陪着中国队，虽然没有赢下比赛，但我想对你们说，有你们我感到自豪！谢谢！对于这张图片...CNMD<br><img src="http://ww1.sinaimg.cn/large/6a717273jw1ey4eheuep5j20x30k6gth.jpg"></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3910462582168901" target="freeweibo-mirror">「韩国电影《深情触摸》片段」想看全片？so easy#北京生…</a>
 </h2>
