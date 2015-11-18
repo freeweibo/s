@@ -66,19 +66,19 @@
 </h2>
 <p>在这个过程中，我想知道中国政府做了什么？<br><br>RE: 【新闻人物：Fan Jinghui】IS曾在其官方网络杂志上公布照片，宣称“出售”两名人质，其中一名是中国人Fan Jinghui。有消息称，这名中国人住在北京，系一名自由职业者，他曾在电台节目中与白岩松对话，称“享受不安全的生活”，“追求漂泊”。IS今日声称，Fan Jinghui和另一名挪威人质已被杀。（新浪）<br><img src="http://ww2.sinaimg.cn/large/70e11e0fjw1ey5kahi6s0j20eo0mwwh5.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3910690467049858" target="freeweibo-mirror">//@中国新闻网:【Fan Jinghui】媒体曾查证，这名…</a>
 </h2>
 <p>//@中国新闻网:【Fan Jinghui】媒体曾查证，这名中国籍人质正是北京市石景山区苹果园南路某小区居民樊京辉。央视著名主持人白岩松曾在2001年采访过樊京辉。 （法晚） http://t.cn/RUnj7rq<br><br>RE: 【IS宣布杀害中国和挪威人质】据美联社报道，极端组织IS宣布已经杀害了中国和挪威人质。两个月前IS曾发布关于这两人信息索要赎金。 http://t.cn/RyhKnzA<br><img src="http://ww1.sinaimg.cn/large/6a5ce645jw1ey5jvqccp9j20fa09tt9a.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3910690030901403" target="freeweibo-mirror">网络也需要维稳的。 //@盘子微谈:贵网已被重点照顾[微笑]</a>
 </h2>
 <p>网络也需要维稳的。 //@盘子微谈:贵网已被重点照顾[微笑]<br><br>RE: 针对IS宣布杀死中国人质，一些热门评论。<br><img src="http://ww4.sinaimg.cn/large/61e04755jw1ey5kp8hr6oj20k30njtck.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3910688180937101" target="freeweibo-mirror">一位同胞被害，看评论里一些人却在忙着否认这是中国人[蜡烛]</a>
 </h2>
