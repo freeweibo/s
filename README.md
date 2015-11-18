@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3910692837493350" target="freeweibo-mirror">五毛狗们怎么说... //@微天下:IS在其官方杂志上公布了…</a>
+</h2>
+<p>五毛狗们怎么说... //@微天下:IS在其官方杂志上公布了杀死中国以及挪威人质的消息。路透社报道称，IS曾宣称“出售”这两名人质。<br><br>RE: 【快讯】美联社报道，IS声称杀死了中国和挪威人质。（新浪）</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3910685878243734" target="freeweibo-mirror">//@袁莉wsj:[泪][泪][泪] //@财经网:【9月旧…</a>
 </h2>
 <p>//@袁莉wsj:[泪][泪][泪] //@财经网:【9月旧闻·外交部：已初步核实IS公布人质信息 系中国公民】外交部称，经初步核实，极端组织IS公布的人质信息，与1名在海外失踪的中国公民特质相符，目前中方已开展相关工作。中方重申，坚决反对任何针对无辜平民的暴力行为。http://t.cn/RyG7lBt</p>
@@ -72,7 +78,7 @@
 </h2>
 <p>//@准公民沙之白://@边城酒家:转发微博<br><br>RE: 【IS宣布已杀害中国和挪威人质】据美联社报道，极端组织IS宣布已经杀害了中国和挪威人质。两个月前IS曾发布关于这两人信息索要赎金。 http://t.cn/RyhCnA4<br><img src="http://ww4.sinaimg.cn/large/61e04755jw1ey5jqhpk5sj20fa09t3z0.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3910674902049972" target="freeweibo-mirror">[蜡烛] //@微天下:IS在其官方杂志上公布了杀死中国以及…</a>
 </h2>
@@ -114,7 +120,7 @@
 </h2>
 <p>SPAM  //@三俗大哥://@崔小平律师: //@王甫律师://@于建嵘:拖得越久，越无法向世人交代。放人，向当事人认错、赔偿，才是正道。<br><br>RE: #浦案再延期# @徐利平律师 @刘二狗蛋 @律师张颖 @台北101二 @xiaoxuehui47 @朱孝顶律师 @作家东海@知青记者2 @谓贤 @王甫律师 @周泽律师 @清华郭于31华 @崔小平律师 @律师文摘 @武僧中尉 @何兵 @何三畏 @青石律师 @贺卫方@于建嵘 @我是半耳人 @斯律斯律 http://t.cn/RUnJBZa<br><img src="http://ww3.sinaimg.cn/large/006fuFftgw1ey5cn22x2tj30m80srq4e.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3910659190410449" target="freeweibo-mirror">SPAM 帅哥！天生力质！//@追唐-如东李忠:手有选票投给…</a>
 </h2>
@@ -133,12 +139,6 @@
 <p>SPAM 认错？难啦！宇宙真理何错之有？//@于建嵘:拖得越久，越无法向世人交代。放人，向当事人认错、赔偿，才是正道。<br><br>RE: #浦案再延期# @徐利平律师 @刘二狗蛋 @律师张颖 @台北101二 @xiaoxuehui47 @朱孝顶律师 @作家东海@知青记者2 @谓贤 @王甫律师 @周泽律师 @清华郭于31华 @崔小平律师 @律师文摘 @武僧中尉 @何兵 @何三畏 @青石律师 @贺卫方@于建嵘 @我是半耳人 @斯律斯律 http://t.cn/RUnJBZa<br><img src="http://ww3.sinaimg.cn/large/006fuFftgw1ey5cn22x2tj30m80srq4e.jpg"></p>
 <p>
 	<small> ============== 4小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3910612340228871" target="freeweibo-mirror">香港《南华早报》周三援引中国公安部文件称，中国警方消灭了17…</a>
-</h2>
-<p>香港《南华早报》周三援引中国公安部文件称，中国警方消灭了17名两个月前袭击新疆煤矿的罪犯。 http://t.cn/RUnJDzj<br><img src="http://ww1.sinaimg.cn/large/820887e2gw1ey5cq3wnq8j20rs0f1jtm.jpg"></p>
-<p>
-	<small> ============== 7小时前</small>
 </p>
 <table>
     <tr>
