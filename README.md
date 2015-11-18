@@ -24,7 +24,7 @@
 </h2>
 <p>香港《南华早报》周三援引中国公安部文件称，中国警方消灭了17名两个月前袭击新疆煤矿的罪犯。 http://t.cn/RUnJDzj<br><img src="http://ww1.sinaimg.cn/large/820887e2gw1ey5cq3wnq8j20rs0f1jtm.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3910611253600904" target="freeweibo-mirror">SPAM 白天没怎么上过微博，不知道为啥编剧和作者掐起来了。…</a>
 </h2>
