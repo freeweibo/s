@@ -36,7 +36,7 @@
 </h2>
 <p>实在无话可说了。//@土家野夫: 万恶。//@我是半耳人: 反对票不会因为一个屁民而停止，屁民死不死的，与投票基本无关！ 真是悲催啊！//@张庭源律师2: 想起了在联合国的反对票。<br><br>RE: 【IS宣称已经杀死中国人质】路透社报道，IS在其最新一期官方杂志上公布了杀死中国及挪威人质的消息，IS曾宣称“出售”这两名人质。据此前报道，IS曾在今年9月在官方杂志上公布了两名人质的照片，注明“待售”，其中中国人质名为Fan Jinghui，50岁，是来自北京的自由顾问，另一位人质来自挪威。（新浪）<br><img src="http://ww4.sinaimg.cn/large/70e11e0fjw1ey5k1jwknnj20ed0nqgnt.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3910692837493350" target="freeweibo-mirror">五毛狗们怎么说... //@微天下:IS在其官方杂志上公布了…</a>
 </h2>
@@ -96,31 +96,31 @@
 </h2>
 <p>这回再不出兵没法向国人交代了！<br><br>RE: 【快讯】美联社报道，IS声称杀死了中国和挪威人质。（新浪）</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3910686726154557" target="freeweibo-mirror">傻逼太多了。 //@谷正中:管子，快打击米国去吧 //@楚越…</a>
 </h2>
 <p>傻逼太多了。 //@谷正中:管子，快打击米国去吧 //@楚越管子:你中国想置身中东战乱市外，米国就指使ＩＳ绑架你中国鬼的人质。其实ＩＳ都是米国的道具，真正的幕后黑手就是米国政府。<br><br>RE: 针对IS宣布杀死中国人质，一些热门评论。<br><img src="http://ww4.sinaimg.cn/large/61e04755jw1ey5kp8hr6oj20k30njtck.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3910686516051749" target="freeweibo-mirror">[蜡烛]//@蛋疼的李帅帅44524: //@诗浓岚舍: /…</a>
 </h2>
 <p>[蜡烛]//@蛋疼的李帅帅44524: //@诗浓岚舍: //@唔侬无季: //@B天乐B: //@慈溪非法强拆受害者:[蜡烛][泪]//@迟夙生律师: //@黄照旋:你对恐怖分子仁慈，他是不会领情的。同胞之死，情何以堪？[泪][伤心][蜡烛][蜡烛][蜡烛]<br><br>RE: 【IS宣称已经杀死中国人质】路透社报道，IS在其最新一期官方杂志上公布了杀死中国及挪威人质的消息，IS曾宣称“出售”这两名人质。据此前报道，IS曾在今年9月在官方杂志上公布了两名人质的照片，注明“待售”，其中中国人质名为Fan Jinghui，50岁，是来自北京的自由顾问，另一位人质来自挪威。（新浪）<br><img src="http://ww4.sinaimg.cn/large/70e11e0fjw1ey5k1jwknnj20ed0nqgnt.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3910685979132648" target="freeweibo-mirror">最右问的好 //@不作死就不会死-:啧啧//@董and斌:为…</a>
 </h2>
 <p>最右问的好 //@不作死就不会死-:啧啧//@董and斌:为什么要给他们打马赛克？？<br><br>RE: 针对IS宣布杀死中国人质，一些热门评论。<br><img src="http://ww4.sinaimg.cn/large/61e04755jw1ey5kp8hr6oj20k30njtck.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3910685878243734" target="freeweibo-mirror">//@袁莉wsj:[泪][泪][泪] //@财经网:【9月旧…</a>
 </h2>
 <p>//@袁莉wsj:[泪][泪][泪] //@财经网:【9月旧闻·外交部：已初步核实IS公布人质信息 系中国公民】外交部称，经初步核实，极端组织IS公布的人质信息，与1名在海外失踪的中国公民特质相符，目前中方已开展相关工作。中方重申，坚决反对任何针对无辜平民的暴力行为。http://t.cn/RyG7lBt</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3910684817212153" target="freeweibo-mirror">转发微博 http://t.cn/RUnjRxm</a>
 </h2>
