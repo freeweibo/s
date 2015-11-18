@@ -126,19 +126,19 @@
 </h2>
 <p>转发微博 http://t.cn/RUnjRxm<br><br>RE: 【快讯】美联社报道，IS声称杀死了中国和挪威人质。（新浪）</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3910684695500534" target="freeweibo-mirror">ISIS的死期快到了！//@假装在纽约: 转发微博</a>
 </h2>
 <p>ISIS的死期快到了！//@假装在纽约: 转发微博<br><br>RE: 【IS宣称已经杀死中国人质】路透社报道，IS在其最新一期官方杂志上公布了杀死中国及挪威人质的消息，IS曾宣称“出售”这两名人质。据此前报道，IS曾在今年9月在官方杂志上公布了两名人质的照片，注明“待售”，其中中国人质名为Fan Jinghui，50岁，是来自北京的自由顾问，另一位人质来自挪威。（新浪）<br><img src="http://ww4.sinaimg.cn/large/70e11e0fjw1ey5k1jwknnj20ed0nqgnt.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3910684590570882" target="freeweibo-mirror">#这盛世，如你所愿。# 每个人都会得到跟他德性相匹配的结局。</a>
 </h2>
 <p>#这盛世，如你所愿。# 每个人都会得到跟他德性相匹配的结局。<br><br>RE: 针对IS宣布杀死中国人质，一些热门评论。<br><img src="http://ww4.sinaimg.cn/large/61e04755jw1ey5kp8hr6oj20k30njtck.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p>
 <table>
     <tr>
