@@ -24,7 +24,7 @@
 </h2>
 <p>说到垂帘执政慈禧是小平的老师</p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3911034659945646" target="freeweibo-mirror">//@小童鞋_1009:这条微博有200多个在骂的，有几十个…</a>
 </h2>
@@ -78,7 +78,7 @@
 </h2>
 <p>SPAM 长腿美男穿婚纱面试惹争议。一生只送一人的Darry Ring（DR戒指）武汉招聘会，年薪二十万招“浪漫体验师”，限情侣，旨在引领爱情生活方式。其中一对正在校园拍婚纱照的长腿美男问招聘方说：他们可以报名吗。他们说一辈子只爱这一次，管他是美娇娘还是男儿身。<br><img src="http://ww3.sinaimg.cn/large/a180de74jw1ey6i0j4v4uj20rs0ii7az.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3910960563980371" target="freeweibo-mirror">SPAM //@315消费观察:姓杨的，你的良心被狗吃了，被…</a>
 </h2>
