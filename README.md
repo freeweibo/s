@@ -38,6 +38,12 @@
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3910956788893711" target="freeweibo-mirror">SPAM 最早转青岛天价虾事件官微被停  http://t.…</a>
+</h2>
+<p>SPAM 最早转青岛天价虾事件官微被停  http://t.cn/RUm4TEs<br><img src="http://ww3.sinaimg.cn/large/758c3e58jw1ey6gal6juvj20lc0sgwhm.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3910952309610235" target="freeweibo-mirror">SPAM 姓杨的，你的良心被狗吃了，被杀死的几十个矿工冤魂将…</a>
 </h2>
 <p>SPAM 姓杨的，你的良心被狗吃了，被杀死的几十个矿工冤魂将追索你全家的狗命</p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3910690030901403" target="freeweibo-mirror">网络也需要维稳的。 //@盘子微谈:贵网已被重点照顾[微笑]</a>
 </h2>
 <p>网络也需要维稳的。 //@盘子微谈:贵网已被重点照顾[微笑]<br><br>RE: 针对IS宣布杀死中国人质，一些热门评论。<br><img src="http://ww4.sinaimg.cn/large/61e04755jw1ey5kp8hr6oj20k30njtck.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3910688180937101" target="freeweibo-mirror">一位同胞被害，看评论里一些人却在忙着否认这是中国人[蜡烛]</a>
-</h2>
-<p>一位同胞被害，看评论里一些人却在忙着否认这是中国人[蜡烛]<br><br>RE: 【新闻人物：Fan Jinghui】IS曾在其官方网络杂志上公布照片，宣称“出售”两名人质，其中一名是中国人Fan Jinghui。有消息称，这名中国人住在北京，系一名自由职业者，他曾在电台节目中与白岩松对话，称“享受不安全的生活”，“追求漂泊”。IS今日声称，Fan Jinghui和另一名挪威人质已被杀。（新浪）<br><img src="http://ww2.sinaimg.cn/large/70e11e0fjw1ey5kahi6s0j20eo0mwwh5.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
