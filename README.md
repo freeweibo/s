@@ -54,13 +54,13 @@
 </h2>
 <p>//@陈强微博:中国也该出兵了！lS是全人类的公敌<br><br>RE: 【新闻人物：Fan Jinghui】IS曾在其官方网络杂志上公布照片，宣称“出售”两名人质，其中一名是中国人Fan Jinghui。有消息称，这名中国人住在北京，系一名自由职业者，他曾在电台节目中与白岩松对话，称“享受不安全的生活”，“追求漂泊”。IS今日声称，Fan Jinghui和另一名挪威人质已被杀。（新浪）<br><img src="http://ww2.sinaimg.cn/large/70e11e0fjw1ey5kahi6s0j20eo0mwwh5.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3910691247518762" target="freeweibo-mirror">中国也该出兵了！lS是全人类的公敌</a>
 </h2>
 <p>中国也该出兵了！lS是全人类的公敌<br><br>RE: 【新闻人物：Fan Jinghui】IS曾在其官方网络杂志上公布照片，宣称“出售”两名人质，其中一名是中国人Fan Jinghui。有消息称，这名中国人住在北京，系一名自由职业者，他曾在电台节目中与白岩松对话，称“享受不安全的生活”，“追求漂泊”。IS今日声称，Fan Jinghui和另一名挪威人质已被杀。（新浪）<br><img src="http://ww2.sinaimg.cn/large/70e11e0fjw1ey5kahi6s0j20eo0mwwh5.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3910690823942973" target="freeweibo-mirror">在这个过程中，我想知道中国政府做了什么？</a>
 </h2>
