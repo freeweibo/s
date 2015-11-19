@@ -102,7 +102,7 @@
 </h2>
 <p>SPAM //@礼江美鱼: //@破布扯了://@茜俪: //@chen迁迁8: //@人散芦葫G://@正义谢文飞-王默:[话筒]//@魔鬼如你I:舍我其谁的感觉。[伤心]//@逆风S而行: 悲壮的一幕！[伤心]<br><br>RE: 向反暴政英雄谢文飞、王墨致敬！[赞]✊[话筒][围观]<br><img src="http://ww1.sinaimg.cn/large/006f9AIGgw1ey67nk7l7vj30hb0ezq4b.jpg"></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3910948932574589" target="freeweibo-mirror">#阴谋#邓小平知道上台后，想到要否定毛泽东不是那么容易，必须…</a>
 </h2>
