@@ -42,7 +42,7 @@
 </h2>
 <p>SPAM //@315消费观察:姓杨的，你的良心被狗吃了，被杀死的几十个矿工冤魂将追索你全家的狗命</p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3910956788893711" target="freeweibo-mirror">SPAM 最早转青岛天价虾事件官微被停  http://t.…</a>
 </h2>
@@ -61,6 +61,12 @@
 <p>SPAM //@礼江美鱼: //@破布扯了://@茜俪: //@chen迁迁8: //@人散芦葫G://@正义谢文飞-王默:[话筒]//@魔鬼如你I:舍我其谁的感觉。[伤心]//@逆风S而行: 悲壮的一幕！[伤心]<br><br>RE: 向反暴政英雄谢文飞、王墨致敬！[赞]✊[话筒][围观]<br><img src="http://ww1.sinaimg.cn/large/006f9AIGgw1ey67nk7l7vj30hb0ezq4b.jpg"></p>
 <p>
 	<small> ============== 7小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3910930645341372" target="freeweibo-mirror">衡成 ：SIS杀了俄罗斯人，普京用巡航导弹伺候；ISIS杀了…</a>
+</h2>
+<p>衡成 ：SIS杀了俄罗斯人，普京用巡航导弹伺候；ISIS杀了法国人，奥朗德派核动力航母去伺候；现在，ISIS杀了中国人了，外交部表示“深感震惊！”可是他们强拆的时候对付老百姓比俄国人、法国人还威猛啊！</p>
+<p>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3910882075269596" target="freeweibo-mirror">向反暴政英雄谢文飞、王墨致敬！[赞]✊[话筒][围观]</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3910690823942973" target="freeweibo-mirror">在这个过程中，我想知道中国政府做了什么？</a>
 </h2>
 <p>在这个过程中，我想知道中国政府做了什么？<br><br>RE: 【新闻人物：Fan Jinghui】IS曾在其官方网络杂志上公布照片，宣称“出售”两名人质，其中一名是中国人Fan Jinghui。有消息称，这名中国人住在北京，系一名自由职业者，他曾在电台节目中与白岩松对话，称“享受不安全的生活”，“追求漂泊”。IS今日声称，Fan Jinghui和另一名挪威人质已被杀。（新浪）<br><img src="http://ww2.sinaimg.cn/large/70e11e0fjw1ey5kahi6s0j20eo0mwwh5.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3910690467049858" target="freeweibo-mirror">//@中国新闻网:【Fan Jinghui】媒体曾查证，这名…</a>
-</h2>
-<p>//@中国新闻网:【Fan Jinghui】媒体曾查证，这名中国籍人质正是北京市石景山区苹果园南路某小区居民樊京辉。央视著名主持人白岩松曾在2001年采访过樊京辉。 （法晚） http://t.cn/RUnj7rq<br><br>RE: 【IS宣布杀害中国和挪威人质】据美联社报道，极端组织IS宣布已经杀害了中国和挪威人质。两个月前IS曾发布关于这两人信息索要赎金。 http://t.cn/RyhKnzA<br><img src="http://ww1.sinaimg.cn/large/6a5ce645jw1ey5jvqccp9j20fa09tt9a.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
