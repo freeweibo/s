@@ -24,7 +24,7 @@
 </h2>
 <p>SPAM #你是我一生的依偎#我勒个去，简直壕无人性！@ivvi时尚手机<br><img src="http://ww2.sinaimg.cn/large/6628711bgw1ey65qh35b8j20go0m8tas.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3910848345062159" target="freeweibo-mirror">//@演员孙海英: [怒] //@徐昕:【外交部确认中国公民…</a>
 </h2>
