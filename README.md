@@ -24,7 +24,7 @@
 </h2>
 <p>说到垂帘执政慈禧是小平的老师</p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3911034659945646" target="freeweibo-mirror">//@小童鞋_1009:这条微博有200多个在骂的，有几十个…</a>
 </h2>
@@ -90,7 +90,7 @@
 </h2>
 <p>SPAM 最早转青岛天价虾事件官微被停  http://t.cn/RUm4TEs<br><img src="http://ww3.sinaimg.cn/large/758c3e58jw1ey6gal6juvj20lc0sgwhm.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3910952309610235" target="freeweibo-mirror">SPAM 姓杨的，你的良心被狗吃了，被杀死的几十个矿工冤魂将…</a>
 </h2>
