@@ -20,9 +20,21 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3910952309610235" target="freeweibo-mirror">SPAM 姓杨的，你的良心被狗吃了，被杀死的几十个矿工冤魂将…</a>
+</h2>
+<p>SPAM 姓杨的，你的良心被狗吃了，被杀死的几十个矿工冤魂将追索你全家的狗命</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3910873237745166" target="freeweibo-mirror">SPAM #你是我一生的依偎#我勒个去，简直壕无人性！@iv…</a>
 </h2>
 <p>SPAM #你是我一生的依偎#我勒个去，简直壕无人性！@ivvi时尚手机<br><img src="http://ww2.sinaimg.cn/large/6628711bgw1ey65qh35b8j20go0m8tas.jpg"></p>
+<p>
+	<small> ============== 7小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3910866967533900" target="freeweibo-mirror">追捕南疆煤矿暴袭嫌犯 军警击毙17人包括7名妇孺 | 联合早…</a>
+</h2>
+<p>追捕南疆煤矿暴袭嫌犯 军警击毙17人包括7名妇孺 | 联合早报网 http://t.cn/RUmviro<br><img src="http://ww4.sinaimg.cn/large/5937c055jw1ey65z8jmfpj206m02kglh.jpg"></p>
 <p>
 	<small> ============== 7小时前</small>
 </p><h2>
@@ -125,18 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3910685979132648" target="freeweibo-mirror">最右问的好 //@不作死就不会死-:啧啧//@董and斌:为…</a>
 </h2>
 <p>最右问的好 //@不作死就不会死-:啧啧//@董and斌:为什么要给他们打马赛克？？<br><br>RE: 针对IS宣布杀死中国人质，一些热门评论。<br><img src="http://ww4.sinaimg.cn/large/61e04755jw1ey5kp8hr6oj20k30njtck.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3910685878243734" target="freeweibo-mirror">//@袁莉wsj:[泪][泪][泪] //@财经网:【9月旧…</a>
-</h2>
-<p>//@袁莉wsj:[泪][泪][泪] //@财经网:【9月旧闻·外交部：已初步核实IS公布人质信息 系中国公民】外交部称，经初步核实，极端组织IS公布的人质信息，与1名在海外失踪的中国公民特质相符，目前中方已开展相关工作。中方重申，坚决反对任何针对无辜平民的暴力行为。http://t.cn/RyG7lBt</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3910684817212153" target="freeweibo-mirror">转发微博 http://t.cn/RUnjRxm</a>
-</h2>
-<p>转发微博 http://t.cn/RUnjRxm<br><br>RE: 【快讯】美联社报道，IS声称杀死了中国和挪威人质。（新浪）</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
