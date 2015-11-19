@@ -72,7 +72,7 @@
 </h2>
 <p>追捕南疆煤矿暴袭嫌犯 军警击毙17人包括7名妇孺 | 联合早报网 http://t.cn/RUmviro<br><img src="http://ww4.sinaimg.cn/large/5937c055jw1ey65z8jmfpj206m02kglh.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3910848345062159" target="freeweibo-mirror">//@演员孙海英: [怒] //@徐昕:【外交部确认中国公民…</a>
 </h2>
