@@ -26,6 +26,18 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3911033863045561" target="freeweibo-mirror">[握手] //@ChrisZ67:小童，我支持你！耶！！！[…</a>
+</h2>
+<p>[握手] //@ChrisZ67:小童，我支持你！耶！！！[心][耶]//@小童鞋_1009: 这条微博有200多个在骂的，有几十个叫嚣我上前线的，但是看见有九百多个点赞，还是很欣慰！说明明是非的还是多啊！为你们鼓掌！<br><br>RE: 衡成 ：SIS杀了俄罗斯人，普京用巡航导弹伺候；ISIS杀了法国人，奥朗德派核动力航母去伺候；现在，ISIS杀了中国人了，外交部表示“深感震惊！”可是他们强拆的时候对付老百姓比俄国人、法国人还威猛啊！</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3911033305564719" target="freeweibo-mirror">这条微博有200多个在骂的，有几十个叫嚣我上前线的，但是看见…</a>
+</h2>
+<p>这条微博有200多个在骂的，有几十个叫嚣我上前线的，但是看见有九百多个点赞，还是很欣慰！说明明是非的还是多啊！为你们鼓掌！<br><br>RE: 衡成 ：SIS杀了俄罗斯人，普京用巡航导弹伺候；ISIS杀了法国人，奥朗德派核动力航母去伺候；现在，ISIS杀了中国人了，外交部表示“深感震惊！”可是他们强拆的时候对付老百姓比俄国人、法国人还威猛啊！</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3910973796765817" target="freeweibo-mirror">SPAM //@説叁道肆S: //@茉莉芬芳茶清香:续命一秒…</a>
 </h2>
 <p>SPAM //@説叁道肆S: //@茉莉芬芳茶清香:续命一秒//@英台姑娘:相传刘拒绝某人的"爱"之后，有人掘地三尺非要查倒她，有位相熟的警官非常不理解，悄悄问她，刘姐，你到底得罪哪位大人了？</p>
@@ -125,18 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3910691842931823" target="freeweibo-mirror">//@陈强微博:中国也该出兵了！lS是全人类的公敌</a>
 </h2>
 <p>//@陈强微博:中国也该出兵了！lS是全人类的公敌<br><br>RE: 【新闻人物：Fan Jinghui】IS曾在其官方网络杂志上公布照片，宣称“出售”两名人质，其中一名是中国人Fan Jinghui。有消息称，这名中国人住在北京，系一名自由职业者，他曾在电台节目中与白岩松对话，称“享受不安全的生活”，“追求漂泊”。IS今日声称，Fan Jinghui和另一名挪威人质已被杀。（新浪）<br><img src="http://ww2.sinaimg.cn/large/70e11e0fjw1ey5kahi6s0j20eo0mwwh5.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3910691247518762" target="freeweibo-mirror">中国也该出兵了！lS是全人类的公敌</a>
-</h2>
-<p>中国也该出兵了！lS是全人类的公敌<br><br>RE: 【新闻人物：Fan Jinghui】IS曾在其官方网络杂志上公布照片，宣称“出售”两名人质，其中一名是中国人Fan Jinghui。有消息称，这名中国人住在北京，系一名自由职业者，他曾在电台节目中与白岩松对话，称“享受不安全的生活”，“追求漂泊”。IS今日声称，Fan Jinghui和另一名挪威人质已被杀。（新浪）<br><img src="http://ww2.sinaimg.cn/large/70e11e0fjw1ey5kahi6s0j20eo0mwwh5.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3910690823942973" target="freeweibo-mirror">在这个过程中，我想知道中国政府做了什么？</a>
-</h2>
-<p>在这个过程中，我想知道中国政府做了什么？<br><br>RE: 【新闻人物：Fan Jinghui】IS曾在其官方网络杂志上公布照片，宣称“出售”两名人质，其中一名是中国人Fan Jinghui。有消息称，这名中国人住在北京，系一名自由职业者，他曾在电台节目中与白岩松对话，称“享受不安全的生活”，“追求漂泊”。IS今日声称，Fan Jinghui和另一名挪威人质已被杀。（新浪）<br><img src="http://ww2.sinaimg.cn/large/70e11e0fjw1ey5kahi6s0j20eo0mwwh5.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
