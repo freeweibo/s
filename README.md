@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3911034659945646" target="freeweibo-mirror">//@小童鞋_1009:这条微博有200多个在骂的，有几十个…</a>
+</h2>
+<p>//@小童鞋_1009:这条微博有200多个在骂的，有几十个叫嚣我上前线的，但是看见有九百多个点赞，还是很欣慰！说明明是非的还是多啊！为你们鼓掌！<br><br>RE: 衡成 ：SIS杀了俄罗斯人，普京用巡航导弹伺候；ISIS杀了法国人，奥朗德派核动力航母去伺候；现在，ISIS杀了中国人了，外交部表示“深感震惊！”可是他们强拆的时候对付老百姓比俄国人、法国人还威猛啊！</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3910973796765817" target="freeweibo-mirror">SPAM //@説叁道肆S: //@茉莉芬芳茶清香:续命一秒…</a>
 </h2>
 <p>SPAM //@説叁道肆S: //@茉莉芬芳茶清香:续命一秒//@英台姑娘:相传刘拒绝某人的"爱"之后，有人掘地三尺非要查倒她，有位相熟的警官非常不理解，悄悄问她，刘姐，你到底得罪哪位大人了？</p>
@@ -66,7 +72,7 @@
 </h2>
 <p>SPAM #你是我一生的依偎#我勒个去，简直壕无人性！@ivvi时尚手机<br><img src="http://ww2.sinaimg.cn/large/6628711bgw1ey65qh35b8j20go0m8tas.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3910866967533900" target="freeweibo-mirror">追捕南疆煤矿暴袭嫌犯 军警击毙17人包括7名妇孺 | 联合早…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3910690467049858" target="freeweibo-mirror">//@中国新闻网:【Fan Jinghui】媒体曾查证，这名…</a>
 </h2>
 <p>//@中国新闻网:【Fan Jinghui】媒体曾查证，这名中国籍人质正是北京市石景山区苹果园南路某小区居民樊京辉。央视著名主持人白岩松曾在2001年采访过樊京辉。 （法晚） http://t.cn/RUnj7rq<br><br>RE: 【IS宣布杀害中国和挪威人质】据美联社报道，极端组织IS宣布已经杀害了中国和挪威人质。两个月前IS曾发布关于这两人信息索要赎金。 http://t.cn/RyhKnzA<br><img src="http://ww1.sinaimg.cn/large/6a5ce645jw1ey5jvqccp9j20fa09tt9a.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3910690030901403" target="freeweibo-mirror">网络也需要维稳的。 //@盘子微谈:贵网已被重点照顾[微笑]</a>
-</h2>
-<p>网络也需要维稳的。 //@盘子微谈:贵网已被重点照顾[微笑]<br><br>RE: 针对IS宣布杀死中国人质，一些热门评论。<br><img src="http://ww4.sinaimg.cn/large/61e04755jw1ey5kp8hr6oj20k30njtck.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
