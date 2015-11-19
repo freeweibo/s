@@ -42,7 +42,7 @@
 </h2>
 <p>SPAM 姓杨的，你的良心被狗吃了，被杀死的几十个矿工冤魂将追索你全家的狗命</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3910950526428931" target="freeweibo-mirror">SPAM //@礼江美鱼: //@破布扯了://@茜俪: /…</a>
 </h2>
