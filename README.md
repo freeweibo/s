@@ -30,7 +30,7 @@
 </h2>
 <p>【外媒：ISIS宣称杀害了中国人质】美联社突发消息，ISIS宣称他们杀害了挪威和中国人质！<br><img src="http://ww4.sinaimg.cn/large/63136032jw1ey5nq6dakvj20fa09tgmf.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3910702710693715" target="freeweibo-mirror">[蜡烛]//@张晨初艺术空间:[蜡烛]//@蛋疼的李帅帅44…</a>
 </h2>
