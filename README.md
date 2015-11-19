@@ -50,6 +50,12 @@
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3910882075269596" target="freeweibo-mirror">向反暴政英雄谢文飞、王墨致敬！[赞]✊[话筒][围观]</a>
+</h2>
+<p>向反暴政英雄谢文飞、王墨致敬！[赞]✊[话筒][围观]<br><img src="http://ww1.sinaimg.cn/large/006f9AIGgw1ey67nk7l7vj30hb0ezq4b.jpg"></p>
+<p>
+	<small> ============== 8小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3910873237745166" target="freeweibo-mirror">SPAM #你是我一生的依偎#我勒个去，简直壕无人性！@iv…</a>
 </h2>
 <p>SPAM #你是我一生的依偎#我勒个去，简直壕无人性！@ivvi时尚手机<br><img src="http://ww2.sinaimg.cn/large/6628711bgw1ey65qh35b8j20go0m8tas.jpg"></p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3910688180937101" target="freeweibo-mirror">一位同胞被害，看评论里一些人却在忙着否认这是中国人[蜡烛]</a>
 </h2>
 <p>一位同胞被害，看评论里一些人却在忙着否认这是中国人[蜡烛]<br><br>RE: 【新闻人物：Fan Jinghui】IS曾在其官方网络杂志上公布照片，宣称“出售”两名人质，其中一名是中国人Fan Jinghui。有消息称，这名中国人住在北京，系一名自由职业者，他曾在电台节目中与白岩松对话，称“享受不安全的生活”，“追求漂泊”。IS今日声称，Fan Jinghui和另一名挪威人质已被杀。（新浪）<br><img src="http://ww2.sinaimg.cn/large/70e11e0fjw1ey5kahi6s0j20eo0mwwh5.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3910688156136599" target="freeweibo-mirror">//@张晨初艺术空间:[蜡烛]//@蛋疼的李帅帅44524:…</a>
-</h2>
-<p>//@张晨初艺术空间:[蜡烛]//@蛋疼的李帅帅44524: //@诗浓岚舍: //@唔侬无季: //@B天乐B: //@慈溪非法强拆受害者:[蜡烛][泪]//@迟夙生律师: //@黄照旋:你对恐怖分子仁慈，他是不会领情的。同胞之死，情何以堪？[泪][伤心][蜡烛][蜡烛][蜡烛]<br><br>RE: 【IS宣称已经杀死中国人质】路透社报道，IS在其最新一期官方杂志上公布了杀死中国及挪威人质的消息，IS曾宣称“出售”这两名人质。据此前报道，IS曾在今年9月在官方杂志上公布了两名人质的照片，注明“待售”，其中中国人质名为Fan Jinghui，50岁，是来自北京的自由顾问，另一位人质来自挪威。（新浪）<br><img src="http://ww4.sinaimg.cn/large/70e11e0fjw1ey5k1jwknnj20ed0nqgnt.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
