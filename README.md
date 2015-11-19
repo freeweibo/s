@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3910848345062159" target="freeweibo-mirror">//@演员孙海英: [怒] //@徐昕:【外交部确认中国公民…</a>
+</h2>
+<p>//@演员孙海英: [怒] //@徐昕:【外交部确认中国公民被IS残忍杀害，“一定要将犯罪分子绳之以法”】外交部发言人洪磊称，中国公民樊京辉被“伊斯兰国”极端组织绑架并残忍杀害。我们谨向遇害者表示哀悼，向遇害者家属表示深切慰问…中国政府对这一泯灭人性的暴行予以强烈谴责，一定要将犯罪分子绳之以法<br><br>RE: IS组织宣布杀害1名中国人质[怒][蜡烛]<br><img src="http://ww4.sinaimg.cn/large/656952ecjw1ey5kbqz6vuj20p018gten.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3910708049517953" target="freeweibo-mirror">【外媒：ISIS宣称杀害了中国人质】美联社突发消息，ISIS…</a>
 </h2>
 <p>【外媒：ISIS宣称杀害了中国人质】美联社突发消息，ISIS宣称他们杀害了挪威和中国人质！<br><img src="http://ww4.sinaimg.cn/large/63136032jw1ey5nq6dakvj20fa09tgmf.jpg"></p>
@@ -54,13 +60,13 @@
 </h2>
 <p>//@陈强微博:中国也该出兵了！lS是全人类的公敌<br><br>RE: 【新闻人物：Fan Jinghui】IS曾在其官方网络杂志上公布照片，宣称“出售”两名人质，其中一名是中国人Fan Jinghui。有消息称，这名中国人住在北京，系一名自由职业者，他曾在电台节目中与白岩松对话，称“享受不安全的生活”，“追求漂泊”。IS今日声称，Fan Jinghui和另一名挪威人质已被杀。（新浪）<br><img src="http://ww2.sinaimg.cn/large/70e11e0fjw1ey5kahi6s0j20eo0mwwh5.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3910691247518762" target="freeweibo-mirror">中国也该出兵了！lS是全人类的公敌</a>
 </h2>
 <p>中国也该出兵了！lS是全人类的公敌<br><br>RE: 【新闻人物：Fan Jinghui】IS曾在其官方网络杂志上公布照片，宣称“出售”两名人质，其中一名是中国人Fan Jinghui。有消息称，这名中国人住在北京，系一名自由职业者，他曾在电台节目中与白岩松对话，称“享受不安全的生活”，“追求漂泊”。IS今日声称，Fan Jinghui和另一名挪威人质已被杀。（新浪）<br><img src="http://ww2.sinaimg.cn/large/70e11e0fjw1ey5kahi6s0j20eo0mwwh5.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3910690823942973" target="freeweibo-mirror">在这个过程中，我想知道中国政府做了什么？</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3910684695500534" target="freeweibo-mirror">ISIS的死期快到了！//@假装在纽约: 转发微博</a>
 </h2>
 <p>ISIS的死期快到了！//@假装在纽约: 转发微博<br><br>RE: 【IS宣称已经杀死中国人质】路透社报道，IS在其最新一期官方杂志上公布了杀死中国及挪威人质的消息，IS曾宣称“出售”这两名人质。据此前报道，IS曾在今年9月在官方杂志上公布了两名人质的照片，注明“待售”，其中中国人质名为Fan Jinghui，50岁，是来自北京的自由顾问，另一位人质来自挪威。（新浪）<br><img src="http://ww4.sinaimg.cn/large/70e11e0fjw1ey5k1jwknnj20ed0nqgnt.jpg"></p>
-<p>
-	<small> ============== 12小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3910684590570882" target="freeweibo-mirror">#这盛世，如你所愿。# 每个人都会得到跟他德性相匹配的结局。</a>
-</h2>
-<p>#这盛世，如你所愿。# 每个人都会得到跟他德性相匹配的结局。<br><br>RE: 针对IS宣布杀死中国人质，一些热门评论。<br><img src="http://ww4.sinaimg.cn/large/61e04755jw1ey5kp8hr6oj20k30njtck.jpg"></p>
 <p>
 	<small> ============== 12小时前</small>
 </p>
