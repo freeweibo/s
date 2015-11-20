@@ -78,7 +78,7 @@
 </h2>
 <p>SPAM 马建国 //@乳不贫何以平天下:只是因为在人群中多看了你一眼 //@机智达人:小s笑不出来//@小5啊: 世界很大，还是遇到了你 //@新东方烹饪学校校花:记者你好，有快递 //@然后下面就没了:所以呢？ //@黄濑濑濑濑:有点眼熟<br><br>RE: 嗯嗯，所以呢？<br><img src="http://ww2.sinaimg.cn/large/005E9Ryxgw1ey7ir8t6ypj30c809z3zq.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3911315149625533" target="freeweibo-mirror">嗯嗯，所以呢？</a>
 </h2>
@@ -114,7 +114,7 @@
 </h2>
 <p>SPAM 呵呵 //@文山娃:呵呵。//@君子--若兰：这个人一看比恐怖分子还恐怖，和姓浦的一样都不是好人<br><br>RE: 著名學者們，亦包括認證警界人士，已經在樊京輝是骨幹異議分子和敘利亞自由軍顧問的“事實”基礎上，商議反恐的大政方針了。<br><img src="http://ww4.sinaimg.cn/large/65cc9274jw1ey7e1loffpj20hk0ejdhs.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3911263098833915" target="freeweibo-mirror">是的，王功权还想当总统呢！//@林岳芳: 王功权，就是那个跟…</a>
 </h2>
