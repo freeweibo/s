@@ -54,13 +54,13 @@
 </h2>
 <p>这个归#王岐山#同志管吧？//@央媒新闻评论: @公安部刑侦局 [笑哈哈][嘻嘻][哈哈]<br><br>RE: 【举报温家宝违纪】据@美国驻华大使馆 秘电第10条披露，有谍报线人向美国驻华大使馆密报，温家宝绕开国务院官方渠道【私下会见】#转基因奸商#，私人决定力推致癌#转基因#毒作物上市！我分享了@往事919 的文章 http://t.cn/RUmjSQT</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3911259851961891" target="freeweibo-mirror">英法几千公民在IS多少年了，它们出事，从来不会“虽远必诛”！…</a>
 </h2>
 <p>英法几千公民在IS多少年了，它们出事，从来不会“虽远必诛”！巴黎出事了，第二天就开战机送导弹去了！右边滴明白？[酷]//@死鬼乔风: 虽远比诛看来只是句玩笑话，大家当真了！//@王小山:政府有能力拯救任何一个公民，但不包括坏人？//@幸福的Bobo花园：就是说不是政府不救，而是这人太坏不能救？<br><br>RE: 著名學者們，亦包括認證警界人士，已經在樊京輝是骨幹異議分子和敘利亞自由軍顧問的“事實”基礎上，商議反恐的大政方針了。<br><img src="http://ww4.sinaimg.cn/large/65cc9274jw1ey7e1loffpj20hk0ejdhs.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3911251467599280" target="freeweibo-mirror">著名學者們，亦包括認證警界人士，已經在樊京輝是骨幹異議分子和…</a>
 </h2>
@@ -78,7 +78,7 @@
 </h2>
 <p>//@缅甸东子:J10A?//@国际试飞员徐勇凌:6000小时定律打破了，担心//@星夜问天://@斯文的土匪---: J10A0610?[哆啦A梦吃惊] //@Ambrosial-特仑苏:没事就好，06批的，应该是CX的棍子//@meirenjiao的围脖:飞飞安然无事，藕的心也就放下了。[泪流满面]<br><br>RE: 安吉鄣吴（临近广德东亭）军机坠毁，飞行员成功跳伞。现场图<br><img src="http://ww3.sinaimg.cn/large/0068ZOmWjw1ey6gt6or6sj30qo0zktpk.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3911040477659877" target="freeweibo-mirror">说到垂帘执政慈禧是小平的老师</a>
 </h2>
@@ -128,15 +128,15 @@
 <p>
 	<small> ============== 1天前</small>
 </p><h2>
-	<a href="https://freeweibo.com/weibo/3910973796765817" target="freeweibo-mirror">SPAM //@説叁道肆S: //@茉莉芬芳茶清香:续命一秒…</a>
+	<a href="https://freeweibo.com/weibo/3911020890719771" target="freeweibo-mirror">@千钧客：虽然他和他的伙伴们一直敌视和反对共产党政权，致力于…</a>
 </h2>
-<p>SPAM //@説叁道肆S: //@茉莉芬芳茶清香:续命一秒//@英台姑娘:相传刘拒绝某人的"爱"之后，有人掘地三尺非要查倒她，有位相熟的警官非常不理解，悄悄问她，刘姐，你到底得罪哪位大人了？</p>
+<p>@千钧客：虽然他和他的伙伴们一直敌视和反对共产党政权，致力于所谓民运活动，但共产党政权不会抛弃他，毕竟他还是中国人。希望此事能让那些民主滋事分子渐醒，强大的中国才是你坚实的后盾，没有了祖国，你什么都不是。<br><img src="http://ww1.sinaimg.cn/large/b6ddfe6djw1ey6nnm9bq1j20dw0e6q4p.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p><h2>
-	<a href="https://freeweibo.com/weibo/3910972659619241" target="freeweibo-mirror">SPAM 长腿美男穿婚纱面试惹争议。一生只送一人的Darry…</a>
+	<a href="https://freeweibo.com/weibo/3910973796765817" target="freeweibo-mirror">SPAM //@説叁道肆S: //@茉莉芬芳茶清香:续命一秒…</a>
 </h2>
-<p>SPAM 长腿美男穿婚纱面试惹争议。一生只送一人的Darry Ring（DR戒指）武汉招聘会，年薪二十万招“浪漫体验师”，限情侣，旨在引领爱情生活方式。其中一对正在校园拍婚纱照的长腿美男问招聘方说：他们可以报名吗。他们说一辈子只爱这一次，管他是美娇娘还是男儿身。<br><img src="http://ww3.sinaimg.cn/large/a180de74jw1ey6i0j4v4uj20rs0ii7az.jpg"></p>
+<p>SPAM //@説叁道肆S: //@茉莉芬芳茶清香:续命一秒//@英台姑娘:相传刘拒绝某人的"爱"之后，有人掘地三尺非要查倒她，有位相熟的警官非常不理解，悄悄问她，刘姐，你到底得罪哪位大人了？</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
