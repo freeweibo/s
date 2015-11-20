@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3911169448282473" target="freeweibo-mirror">//@缅甸东子:J10A?//@国际试飞员徐勇凌:6000小…</a>
+</h2>
+<p>//@缅甸东子:J10A?//@国际试飞员徐勇凌:6000小时定律打破了，担心//@星夜问天://@斯文的土匪---: J10A0610?[哆啦A梦吃惊] //@Ambrosial-特仑苏:没事就好，06批的，应该是CX的棍子//@meirenjiao的围脖:飞飞安然无事，藕的心也就放下了。[泪流满面]<br><br>RE: 安吉鄣吴（临近广德东亭）军机坠毁，飞行员成功跳伞。现场图<br><img src="http://ww3.sinaimg.cn/large/0068ZOmWjw1ey6gt6or6sj30qo0zktpk.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3911040477659877" target="freeweibo-mirror">说到垂帘执政慈禧是小平的老师</a>
 </h2>
 <p>说到垂帘执政慈禧是小平的老师</p>
@@ -54,7 +60,7 @@
 </h2>
 <p>回复@逗比的怪兽:您大义凛然斗同胞，攘外必先斗内！ //@逗比的怪兽:为我中华 不累[doge]<br><br>RE: 衡成 ：SIS杀了俄罗斯人，普京用巡航导弹伺候；ISIS杀了法国人，奥朗德派核动力航母去伺候；现在，ISIS杀了中国人了，外交部表示“深感震惊！”可是他们强拆的时候对付老百姓比俄国人、法国人还威猛啊！</p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3911030269231110" target="freeweibo-mirror">回复@嘻茜葱:嗯嗯，我吃人民公社饭还把人民公社给反了 //@…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3910866967533900" target="freeweibo-mirror">追捕南疆煤矿暴袭嫌犯 军警击毙17人包括7名妇孺 | 联合早…</a>
 </h2>
 <p>追捕南疆煤矿暴袭嫌犯 军警击毙17人包括7名妇孺 | 联合早报网 http://t.cn/RUmviro<br><img src="http://ww4.sinaimg.cn/large/5937c055jw1ey65z8jmfpj206m02kglh.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3910848345062159" target="freeweibo-mirror">//@演员孙海英: [怒] //@徐昕:【外交部确认中国公民…</a>
-</h2>
-<p>//@演员孙海英: [怒] //@徐昕:【外交部确认中国公民被IS残忍杀害，“一定要将犯罪分子绳之以法”】外交部发言人洪磊称，中国公民樊京辉被“伊斯兰国”极端组织绑架并残忍杀害。我们谨向遇害者表示哀悼，向遇害者家属表示深切慰问…中国政府对这一泯灭人性的暴行予以强烈谴责，一定要将犯罪分子绳之以法<br><br>RE: IS组织宣布杀害1名中国人质[怒][蜡烛]<br><img src="http://ww4.sinaimg.cn/large/656952ecjw1ey5kbqz6vuj20p018gten.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
