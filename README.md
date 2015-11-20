@@ -42,13 +42,13 @@
 </h2>
 <p>嗯嗯，所以呢？<br><img src="http://ww2.sinaimg.cn/large/005E9Ryxgw1ey7ir8t6ypj30c809z3zq.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3911315053089069" target="freeweibo-mirror">中国改革是小平开创并确保其正确方向，中国发展模式是九十年代以…</a>
 </h2>
 <p>中国改革是小平开创并确保其正确方向，中国发展模式是九十年代以后成型壮大的，改革难道是向后看，去怀旧历史？没什么真本事真出息又自以为是的才会这么干[哈哈]<br><br>RE: #微闻天下#【中国为何大规模纪念胡耀邦？】中国人民大学教授张鸣受访时指出，由于胡过世后，不像赵那样地位受到否定，因此当局为胡耀邦举行百年诞辰纪念大会不足为奇。他认为，当局大规模纪念胡耀邦有两个作用：给自由派安慰，同时强调要进行改革。http://t.cn/RUmNRH5（早报网）<br><img src="http://ww4.sinaimg.cn/large/70239234jw1ey75ft7xboj20ci0b6js8.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3911314462043786" target="freeweibo-mirror">SPAM 暖冬个屁。。冷冷的雨夹雪在脸上胡乱的拍[草泥马][…</a>
 </h2>
