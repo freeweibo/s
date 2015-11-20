@@ -26,6 +26,30 @@
 <p>
 	<small> ============== 1小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3911268790939846" target="freeweibo-mirror">SPAM //@郑维: 呵呵 //@文山娃:呵呵。//@君子…</a>
+</h2>
+<p>SPAM //@郑维: 呵呵 //@文山娃:呵呵。//@君子--若兰：这个人一看比恐怖分子还恐怖，和姓浦的一样都不是好人<br><br>RE: 著名學者們，亦包括認證警界人士，已經在樊京輝是骨幹異議分子和敘利亞自由軍顧問的“事實”基礎上，商議反恐的大政方針了。<br><img src="http://ww4.sinaimg.cn/large/65cc9274jw1ey7e1loffpj20hk0ejdhs.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3911261760850836" target="freeweibo-mirror">这是一帮什么样的人？难道就是传说中的汉奸？ //@周铁东本人…</a>
+</h2>
+<p>这是一帮什么样的人？难道就是传说中的汉奸？ //@周铁东本人:杂碎眼里除了立场连生命都没有，纯粹的行尸走肉。 //@假行僧老巩:王功权已辟谣，这帮杂碎会删帖道歉吗？[草泥马]//@王小山: 政府有能力拯救任何一个公民，但不包括坏人？//@文山娃:個別專家的看法吧。//@幸福的Bobo花园：就是说不是政府不救<br><br>RE: 著名學者們，亦包括認證警界人士，已經在樊京輝是骨幹異議分子和敘利亞自由軍顧問的“事實”基礎上，商議反恐的大政方針了。<br><img src="http://ww4.sinaimg.cn/large/65cc9274jw1ey7e1loffpj20hk0ejdhs.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3911260469450471" target="freeweibo-mirror">这个归#王岐山#同志管吧？//@央媒新闻评论: @公安部刑侦…</a>
+</h2>
+<p>这个归#王岐山#同志管吧？//@央媒新闻评论: @公安部刑侦局 [笑哈哈][嘻嘻][哈哈]<br><br>RE: 【举报温家宝违纪】据@美国驻华大使馆 秘电第10条披露，有谍报线人向美国驻华大使馆密报，温家宝绕开国务院官方渠道【私下会见】#转基因奸商#，私人决定力推致癌#转基因#毒作物上市！我分享了@往事919 的文章 http://t.cn/RUmjSQT</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3911259851961891" target="freeweibo-mirror">英法几千公民在IS多少年了，它们出事，从来不会“虽远必诛”！…</a>
+</h2>
+<p>英法几千公民在IS多少年了，它们出事，从来不会“虽远必诛”！巴黎出事了，第二天就开战机送导弹去了！右边滴明白？[酷]//@死鬼乔风: 虽远比诛看来只是句玩笑话，大家当真了！//@王小山:政府有能力拯救任何一个公民，但不包括坏人？//@幸福的Bobo花园：就是说不是政府不救，而是这人太坏不能救？<br><br>RE: 著名學者們，亦包括認證警界人士，已經在樊京輝是骨幹異議分子和敘利亞自由軍顧問的“事實”基礎上，商議反恐的大政方針了。<br><img src="http://ww4.sinaimg.cn/large/65cc9274jw1ey7e1loffpj20hk0ejdhs.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3911169448282473" target="freeweibo-mirror">//@缅甸东子:J10A?//@国际试飞员徐勇凌:6000小…</a>
 </h2>
 <p>//@缅甸东子:J10A?//@国际试飞员徐勇凌:6000小时定律打破了，担心//@星夜问天://@斯文的土匪---: J10A0610?[哆啦A梦吃惊] //@Ambrosial-特仑苏:没事就好，06批的，应该是CX的棍子//@meirenjiao的围脖:飞飞安然无事，藕的心也就放下了。[泪流满面]<br><br>RE: 安吉鄣吴（临近广德东亭）军机坠毁，飞行员成功跳伞。现场图<br><img src="http://ww3.sinaimg.cn/large/0068ZOmWjw1ey6gt6or6sj30qo0zktpk.jpg"></p>
@@ -113,30 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3910952309610235" target="freeweibo-mirror">SPAM 姓杨的，你的良心被狗吃了，被杀死的几十个矿工冤魂将…</a>
 </h2>
 <p>SPAM 姓杨的，你的良心被狗吃了，被杀死的几十个矿工冤魂将追索你全家的狗命</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3910950526428931" target="freeweibo-mirror">SPAM //@礼江美鱼: //@破布扯了://@茜俪: /…</a>
-</h2>
-<p>SPAM //@礼江美鱼: //@破布扯了://@茜俪: //@chen迁迁8: //@人散芦葫G://@正义谢文飞-王默:[话筒]//@魔鬼如你I:舍我其谁的感觉。[伤心]//@逆风S而行: 悲壮的一幕！[伤心]<br><br>RE: 向反暴政英雄谢文飞、王墨致敬！[赞]✊[话筒][围观]<br><img src="http://ww1.sinaimg.cn/large/006f9AIGgw1ey67nk7l7vj30hb0ezq4b.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3910948932574589" target="freeweibo-mirror">#阴谋#邓小平知道上台后，想到要否定毛泽东不是那么容易，必须…</a>
-</h2>
-<p>#阴谋#邓小平知道上台后，想到要否定毛泽东不是那么容易，必须找一个打手，将来当替罪羊、挡箭牌，但这个人的形象不能比自己高大，思想上混乱，嘴没有把门的，敢于胡喷，并且很好掌控，可以随时让他卷铺盖，于是就找到了一个人，他就是胡某！明天是他生日。</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3910930645341372" target="freeweibo-mirror">衡成 ：SIS杀了俄罗斯人，普京用巡航导弹伺候；ISIS杀了…</a>
-</h2>
-<p>衡成 ：SIS杀了俄罗斯人，普京用巡航导弹伺候；ISIS杀了法国人，奥朗德派核动力航母去伺候；现在，ISIS杀了中国人了，外交部表示“深感震惊！”可是他们强拆的时候对付老百姓比俄国人、法国人还威猛啊！</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3910882075269596" target="freeweibo-mirror">向反暴政英雄谢文飞、王墨致敬！[赞]✊[话筒][围观]</a>
-</h2>
-<p>向反暴政英雄谢文飞、王墨致敬！[赞]✊[话筒][围观]<br><img src="http://ww1.sinaimg.cn/large/006f9AIGgw1ey67nk7l7vj30hb0ezq4b.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
