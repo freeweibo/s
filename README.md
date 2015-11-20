@@ -138,7 +138,7 @@
 </h2>
 <p>著名學者們，亦包括認證警界人士，已經在樊京輝是骨幹異議分子和敘利亞自由軍顧問的“事實”基礎上，商議反恐的大政方針了。<br><img src="http://ww4.sinaimg.cn/large/65cc9274jw1ey7e1loffpj20hk0ejdhs.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p>
 <table>
     <tr>
