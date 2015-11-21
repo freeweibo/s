@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3911781132810161" target="freeweibo-mirror">//@广州湾在线://@深圳王庆斌:[话筒][围观]//@兴…</a>
+</h2>
+<p>//@广州湾在线://@深圳王庆斌:[话筒][围观]//@兴奋的罗老师: 转发微博<br><br>RE: 我分享了@郑州方言004 的文章 http://t.cn/RUujiW7</p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3911720189578136" target="freeweibo-mirror">SPAM 一直纠结买不到好蜂蜜的朋友去他家看看吧，他薇薄还有…</a>
 </h2>
 <p>SPAM 一直纠结买不到好蜂蜜的朋友去他家看看吧，他薇薄还有很多关于蜂蜜的介绍，很真诚的一个农村小伙子[good]</p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3911315149625533" target="freeweibo-mirror">嗯嗯，所以呢？</a>
 </h2>
 <p>嗯嗯，所以呢？<br><img src="http://ww2.sinaimg.cn/large/005E9Ryxgw1ey7ir8t6ypj30c809z3zq.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3911315053089069" target="freeweibo-mirror">中国改革是小平开创并确保其正确方向，中国发展模式是九十年代以…</a>
-</h2>
-<p>中国改革是小平开创并确保其正确方向，中国发展模式是九十年代以后成型壮大的，改革难道是向后看，去怀旧历史？没什么真本事真出息又自以为是的才会这么干[哈哈]<br><br>RE: #微闻天下#【中国为何大规模纪念胡耀邦？】中国人民大学教授张鸣受访时指出，由于胡过世后，不像赵那样地位受到否定，因此当局为胡耀邦举行百年诞辰纪念大会不足为奇。他认为，当局大规模纪念胡耀邦有两个作用：给自由派安慰，同时强调要进行改革。http://t.cn/RUmNRH5（早报网）<br><img src="http://ww4.sinaimg.cn/large/70239234jw1ey75ft7xboj20ci0b6js8.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
