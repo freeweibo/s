@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3911620901877345" target="freeweibo-mirror">密切关注事情的发展！</a>
+</h2>
+<p>密切关注事情的发展！<br><br>RE: 【紧急关注南通单利华】2015年11月20日下午两点左右，@南通单利华6 被公安当面宣读拘留通知后带走，后被抄家，给家属刑事拘留通知书，罪名“寻衅滋事”。单利华因拆迁维权，见义勇为，近期养病在家做微商，公安怎么连个生病的弱女子都不放过？@曹胡萍 @无锡王建芬 @苏州常熟徐文石 http://t.cn/R2dLJ0r<br><img src="http://ww3.sinaimg.cn/large/005vIwalgw1ey7nocoz5pj30qo0zkq6i.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3911515511493497" target="freeweibo-mirror">持续关注。 //@于晓非微博: //@法治路由器: //@五…</a>
 </h2>
 <p>持续关注。 //@于晓非微博: //@法治路由器: //@五哥放羊40:纪念谁不重要，放人才重要。<br><br>RE: 【高瑜案二审】据说：定于11月24曰上午九点在北京市高级人民法院不公开开庭审理。外界预期当局会维持原判。高今年4月被以泄密罪一审判处有期徒刑7年。<br><img src="http://ww2.sinaimg.cn/large/006eFFGsjw1ey7uocb2j2j30oo0hdadv.jpg"></p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3911267653449957" target="freeweibo-mirror">SPAM 呵呵 //@文山娃:呵呵。//@君子--若兰：这个…</a>
 </h2>
 <p>SPAM 呵呵 //@文山娃:呵呵。//@君子--若兰：这个人一看比恐怖分子还恐怖，和姓浦的一样都不是好人<br><br>RE: 著名學者們，亦包括認證警界人士，已經在樊京輝是骨幹異議分子和敘利亞自由軍顧問的“事實”基礎上，商議反恐的大政方針了。<br><img src="http://ww4.sinaimg.cn/large/65cc9274jw1ey7e1loffpj20hk0ejdhs.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3911263098833915" target="freeweibo-mirror">是的，王功权还想当总统呢！//@林岳芳: 王功权，就是那个跟…</a>
-</h2>
-<p>是的，王功权还想当总统呢！//@林岳芳: 王功权，就是那个跟小三玩私奔的男人？//@司马平邦: 又涉及到王功权。//@张清同志: 被处死的是王功权的秘书 这个人是去给恐怖组织自由军当顾问的 被另一个恐怖组织俘虏 要钱赎人 王功权不给。 //@章穆人:在中国带不了路就跑叙利亚给自由军带路去啦。<br><br>RE: @千钧客：虽然他和他的伙伴们一直敌视和反对共产党政权，致力于所谓民运活动，但共产党政权不会抛弃他，毕竟他还是中国人。希望此事能让那些民主滋事分子渐醒，强大的中国才是你坚实的后盾，没有了祖国，你什么都不是。<br><img src="http://ww1.sinaimg.cn/large/b6ddfe6djw1ey6nnm9bq1j20dw0e6q4p.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
