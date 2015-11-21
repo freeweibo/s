@@ -24,7 +24,7 @@
 </h2>
 <p>//@广州湾在线://@深圳王庆斌:[话筒][围观]//@兴奋的罗老师: 转发微博<br><br>RE: 我分享了@郑州方言004 的文章 http://t.cn/RUujiW7</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3911768277021612" target="freeweibo-mirror">SPAM 发表了博文《女儿口述：胡耀邦生命中的最后7天（组图…</a>
 </h2>
@@ -42,7 +42,7 @@
 </h2>
 <p>SPAM 一直纠结买不到好蜂蜜的朋友去他家看看吧，他薇薄还有很多关于蜂蜜的介绍，很真诚的一个农村小伙子[good]</p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3911643735558063" target="freeweibo-mirror">邓把胡拉上台，是利用胡放“炮”，放的差不多了，又把胡赶下去。…</a>
 </h2>
