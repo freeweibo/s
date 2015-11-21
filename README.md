@@ -48,7 +48,7 @@
 </h2>
 <p>【高瑜案二审】据说：定于11月24曰上午九点在北京市高级人民法院不公开开庭审理。外界预期当局会维持原判。高今年4月被以泄密罪一审判处有期徒刑7年。<br><img src="http://ww2.sinaimg.cn/large/006eFFGsjw1ey7uocb2j2j30oo0hdadv.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3911395332263570" target="freeweibo-mirror">//@池鱼听琴: 虽然这观点如狗屁一般，但对这五毛的勇气要赞…</a>
 </h2>
