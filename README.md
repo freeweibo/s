@@ -30,7 +30,7 @@
 </h2>
 <p>//@广州湾在线://@深圳王庆斌:[话筒][围观]//@兴奋的罗老师: 转发微博<br><br>RE: 我分享了@郑州方言004 的文章 http://t.cn/RUujiW7</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3911768277021612" target="freeweibo-mirror">SPAM 发表了博文《女儿口述：胡耀邦生命中的最后7天（组图…</a>
 </h2>
