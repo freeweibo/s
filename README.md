@@ -42,7 +42,7 @@
 </h2>
 <p>我分享了@郑州方言004 的文章 http://t.cn/RUujiW7</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3911720189578136" target="freeweibo-mirror">SPAM 一直纠结买不到好蜂蜜的朋友去他家看看吧，他薇薄还有…</a>
 </h2>
@@ -78,7 +78,7 @@
 </h2>
 <p>//@赤县李卫民:不提别人的错误也行，但是为什么老揪着毛主席的“错误”不放？我就不明白了，这种提法对共产党的执政合法性到底有什么好处？不讲“错误”应该不难做到。</p>
 <p>
-	<small> ============== 1天前</small>
+	<small> ============== 2天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3911397630892273" target="freeweibo-mirror">请教@微博小秘书 这位是不是典型的“妄议中央”？//@喷嚏网…</a>
 </h2>
