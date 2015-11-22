@@ -96,7 +96,7 @@
 </h2>
 <p>SPAM 一个超级好用的专业种草微博，持家又爱美的小公主一定要关 注她@种草囤货达人</p>
 <p>
-	<small> ============== 1天前</small>
+	<small> ============== 2天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3911382229305102" target="freeweibo-mirror">//@赤馬於歸:中国共产党可能要在胡耀邦这个死人的身上栽跟头…</a>
 </h2>
