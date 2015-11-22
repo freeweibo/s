@@ -108,7 +108,7 @@
 </h2>
 <p>十九岁的她如双鱼座的你，那些写诗的姑娘总会离去。<br><img src="http://ww1.sinaimg.cn/large/6f97f656gw1ey7s9hghzbj218g18gk3u.jpg"></p>
 <p>
-	<small> ============== 1天前</small>
+	<small> ============== 2天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3911364315607340" target="freeweibo-mirror">外靠奥巴马，内靠忽悠邦[哈哈]</a>
 </h2>
