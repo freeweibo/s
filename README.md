@@ -114,7 +114,7 @@
 </h2>
 <p>外靠奥巴马，内靠忽悠邦[哈哈]</p>
 <p>
-	<small> ============== 1天前</small>
+	<small> ============== 2天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3911355377221230" target="freeweibo-mirror">SPAM 接到这个视频拍摄任务只有三天来完成，所以只好一天准…</a>
 </h2>
