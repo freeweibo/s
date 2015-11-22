@@ -26,6 +26,24 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3912139179295914" target="freeweibo-mirror">SPAM 啪啪啪</a>
+</h2>
+<p>SPAM 啪啪啪</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3912139049699833" target="freeweibo-mirror">SPAM 好！我要！</a>
+</h2>
+<p>SPAM 好！我要！<br><br>RE: 玩个游戏吧~帮我转发~明天选几位给你看无码哒~<br><img src="http://ww4.sinaimg.cn/large/0060Jfhjjw1eya5xdvc0pj30xc18g10t.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3912135618821246" target="freeweibo-mirror">邓小平，你真的很无耻；特色分子们更无耻！ http://t.…</a>
+</h2>
+<p>邓小平，你真的很无耻；特色分子们更无耻！ http://t.cn/RUuYm6t</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3912133735645594" target="freeweibo-mirror">SPAM 之前有哪些资-源被he谐的？小伙伴们在评论里留言吧…</a>
 </h2>
 <p>SPAM 之前有哪些资-源被he谐的？小伙伴们在评论里留言吧，我找时间补发<br><br>RE: 【jpacg_love】动漫控，今日更新资-源：和爸爸kiss、纤细的爱情、狂野情人、拥抱春天的罗曼史、没有钱，【详细资-源列表】及【获-取-方法】请看图九！<br><img src="http://ww3.sinaimg.cn/large/822f7258gw1eya0u1rc0sj20hs0dc3ys.jpg"></p>
@@ -119,24 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3911515511493497" target="freeweibo-mirror">持续关注。 //@于晓非微博: //@法治路由器: //@五…</a>
 </h2>
 <p>持续关注。 //@于晓非微博: //@法治路由器: //@五哥放羊40:纪念谁不重要，放人才重要。<br><br>RE: 【高瑜案二审】据说：定于11月24曰上午九点在北京市高级人民法院不公开开庭审理。外界预期当局会维持原判。高今年4月被以泄密罪一审判处有期徒刑7年。<br><img src="http://ww2.sinaimg.cn/large/006eFFGsjw1ey7uocb2j2j30oo0hdadv.jpg"></p>
-<p>
-	<small> ============== 2天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3911471203326528" target="freeweibo-mirror">//@东进的-理想:[哈哈]舒畅极了！//@人间正道是良心8…</a>
-</h2>
-<p>//@东进的-理想:[哈哈]舒畅极了！//@人间正道是良心86:最给力视频！[酷]//@楼兰断梦8: //@阳光女人V18:老百姓上街为啥只喊毛主席万岁为啥不喊邓大大、胡大大、习大大万岁呢？向白猫黑猫致敬！向满妹爹致敬！向平衡木专家致敬！新政把人民逼上梁山，逼上街头。威武！ //@交易线coffee:</p>
-<p>
-	<small> ============== 2天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3911405025414721" target="freeweibo-mirror">//@赤县李卫民:不提别人的错误也行，但是为什么老揪着毛主席…</a>
-</h2>
-<p>//@赤县李卫民:不提别人的错误也行，但是为什么老揪着毛主席的“错误”不放？我就不明白了，这种提法对共产党的执政合法性到底有什么好处？不讲“错误”应该不难做到。</p>
-<p>
-	<small> ============== 2天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3911397630892273" target="freeweibo-mirror">请教@微博小秘书 这位是不是典型的“妄议中央”？//@喷嚏网…</a>
-</h2>
-<p>请教@微博小秘书 这位是不是典型的“妄议中央”？//@喷嚏网铂程: //@池鱼听琴: 虽然这观点如狗屁一般，但对这五毛的勇气要赞一个。不同的声音嘛。//@春雨淅沥_zxl:变异物种 //@北京老妪:林子大了什么鸟都有[白眼]//@老学究灯总: 博主，我是真不相信胡耀邦得罪过你。<br><br>RE: 胡%邦已成为反共势力的一面旗帜，被砸锅党捧为精神教父。对他的纪念一定要慎之又慎，如果说胡有什么贡献，就是他提供的反面经验能提醒我们不要再犯类似错误。如果纪念他，也应突出分析他为什么老犯错误。一个人犯错不难，难的是一错再错。中国要不走邪路，就要清算他的错误在党内的残留影响。</p>
 <p>
 	<small> ============== 2天前</small>
 </p>
