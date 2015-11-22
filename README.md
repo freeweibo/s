@@ -30,7 +30,7 @@
 </h2>
 <p>SPAM 中央隆重纪念胡耀邦，传达什么信号？http://t.cn/RUu8jZZ<br><img src="http://ww2.sinaimg.cn/large/44de9a03gw1ey9duknotzj20e80aqjs1.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3911781132810161" target="freeweibo-mirror">//@广州湾在线://@深圳王庆斌:[话筒][围观]//@兴…</a>
 </h2>
