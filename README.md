@@ -30,7 +30,7 @@
 </h2>
 <p>SPAM 发表了博文《女儿口述：胡耀邦生命中的最后7天（组图）》1989年3月下旬，父亲从南宁返京参加六届人大五次会议。许多人都知道了他在湖南生病的事，而且注意到他很消瘦——因得知一些本已脱贫的地区近期又有吃不http://t.cn/RUuurwq<br><img src="http://ww4.sinaimg.cn/large/4ac5b19fjw1ey91hq0g0sj20dw0igjrw.jpg"></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3911767891316267" target="freeweibo-mirror">我分享了@郑州方言004 的文章 http://t.cn/R…</a>
 </h2>
