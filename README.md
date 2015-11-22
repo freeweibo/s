@@ -30,7 +30,7 @@
 </h2>
 <p>//@广州湾在线://@深圳王庆斌:[话筒][围观]//@兴奋的罗老师: 转发微博<br><br>RE: 我分享了@郑州方言004 的文章 http://t.cn/RUujiW7</p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3911768277021612" target="freeweibo-mirror">SPAM 发表了博文《女儿口述：胡耀邦生命中的最后7天（组图…</a>
 </h2>
@@ -90,7 +90,7 @@
 </h2>
 <p>【高瑜案二审】据说：定于11月24曰上午九点在北京市高级人民法院不公开开庭审理。外界预期当局会维持原判。高今年4月被以泄密罪一审判处有期徒刑7年。<br><img src="http://ww2.sinaimg.cn/large/006eFFGsjw1ey7uocb2j2j30oo0hdadv.jpg"></p>
 <p>
-	<small> ============== 1天前</small>
+	<small> ============== 2天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3911395332263570" target="freeweibo-mirror">//@池鱼听琴: 虽然这观点如狗屁一般，但对这五毛的勇气要赞…</a>
 </h2>
