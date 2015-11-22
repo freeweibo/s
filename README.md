@@ -66,7 +66,7 @@
 </h2>
 <p>SPAM 中国功夫果真博大精深？！！…三观已毁 [拜拜] http://t.cn/RUNH3mA</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3912008837340641" target="freeweibo-mirror">很赞同这评价：胡直到生命的最后一天，都是一个真诚的马克思主义…</a>
 </h2>
