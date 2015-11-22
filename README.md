@@ -36,7 +36,7 @@
 </h2>
 <p>我分享了@郑州方言004 的文章 http://t.cn/RUujiW7</p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3911720189578136" target="freeweibo-mirror">SPAM 一直纠结买不到好蜂蜜的朋友去他家看看吧，他薇薄还有…</a>
 </h2>
@@ -102,7 +102,7 @@
 </h2>
 <p>//@赤馬於歸:中国共产党可能要在胡耀邦这个死人的身上栽跟头。</p>
 <p>
-	<small> ============== 1天前</small>
+	<small> ============== 2天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3911375111696977" target="freeweibo-mirror">十九岁的她如双鱼座的你，那些写诗的姑娘总会离去。</a>
 </h2>
