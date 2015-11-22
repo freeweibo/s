@@ -36,7 +36,7 @@
 </h2>
 <p>SPAM 啪啪啪</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3912139049699833" target="freeweibo-mirror">SPAM 好！我要！</a>
 </h2>
