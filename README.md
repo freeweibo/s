@@ -44,6 +44,12 @@
 <p>
 	<small> ============== 6小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3911935961670292" target="freeweibo-mirror">【“非典型领导人”胡耀邦】胡耀邦在中纪委会议上进一步抨击文革…</a>
+</h2>
+<p>【“非典型领导人”胡耀邦】胡耀邦在中纪委会议上进一步抨击文革期间“农奴主、法西斯”现象的两大特征：“一是个人崇拜登峰造极，达到荒谬绝伦的地步。党内出现了大大小小的救世主，大大小小的奴隶。……二是‘有权就有一切’，一些人拿了权到处做坏事” http://t.cn/RU3h0pQ</p>
+<p>
+	<small> ============== 6小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3911876042146144" target="freeweibo-mirror">SPAM 中央隆重纪念胡耀邦，传达什么信号？http://t…</a>
 </h2>
 <p>SPAM 中央隆重纪念胡耀邦，传达什么信号？http://t.cn/RUu8jZZ<br><img src="http://ww2.sinaimg.cn/large/44de9a03gw1ey9duknotzj20e80aqjs1.jpg"></p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3911382229305102" target="freeweibo-mirror">//@赤馬於歸:中国共产党可能要在胡耀邦这个死人的身上栽跟头…</a>
 </h2>
 <p>//@赤馬於歸:中国共产党可能要在胡耀邦这个死人的身上栽跟头。</p>
-<p>
-	<small> ============== 2天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3911375111696977" target="freeweibo-mirror">十九岁的她如双鱼座的你，那些写诗的姑娘总会离去。</a>
-</h2>
-<p>十九岁的她如双鱼座的你，那些写诗的姑娘总会离去。<br><img src="http://ww1.sinaimg.cn/large/6f97f656gw1ey7s9hghzbj218g18gk3u.jpg"></p>
 <p>
 	<small> ============== 2天前</small>
 </p>
