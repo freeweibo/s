@@ -24,7 +24,13 @@
 </h2>
 <p>一个纪录片竟然把一个历史人物抹掉了 //@斯人黄鹤:扬胡而抑赵，天下之矛盾莫过于此。//@应天澜: //@三滴小水珠: 真不知谁是历史虚无主义。//@陶景洲:不可思议啊！ //@孔先生v:图一是正在播出的纪录片《胡耀邦》镜头中的报纸。图二据说是当年同一天的报纸。<br><br>RE: 额～ 都什么年代了，好难懂。。。<br><img src="http://ww4.sinaimg.cn/large/006hcYGKgw1eya54lux1rj30k00e4abl.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3912237754235959" target="freeweibo-mirror">SPAM 编导手法，也太拙劣了些。[哈哈]//@北京厨子新号…</a>
+</h2>
+<p>SPAM 编导手法，也太拙劣了些。[哈哈]//@北京厨子新号: [笑cry][笑cry] //@郑克强: 好多人在“求科普”：为什么会少一个人？这个小动作没搞好，欲盖弥彰了。//@张欧亚:？//@陶景洲:不可思议啊！ //@孔先生v:图一是正在播出的纪录片《胡耀邦》镜头中的报纸。图二据说是当年同一天的报纸。<br><br>RE: 额～ 都什么年代了，好难懂。。。<br><img src="http://ww4.sinaimg.cn/large/006hcYGKgw1eya54lux1rj30k00e4abl.jpg"></p>
+<p>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3912230523745691" target="freeweibo-mirror">SPAM 别有用心是啥意思？真不懂！//@蘑菇与雲://@徐…</a>
 </h2>
@@ -66,7 +72,7 @@
 </h2>
 <p>SPAM 之前有哪些资-源被he谐的？小伙伴们在评论里留言吧，我找时间补发<br><br>RE: 【jpacg_love】动漫控，今日更新资-源：和爸爸kiss、纤细的爱情、狂野情人、拥抱春天的罗曼史、没有钱，【详细资-源列表】及【获-取-方法】请看图九！<br><img src="http://ww3.sinaimg.cn/large/822f7258gw1eya0u1rc0sj20hs0dc3ys.jpg"></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3912113397117089" target="freeweibo-mirror">额～ 都什么年代了，好难懂。。。</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3911768277021612" target="freeweibo-mirror">SPAM 发表了博文《女儿口述：胡耀邦生命中的最后7天（组图…</a>
 </h2>
 <p>SPAM 发表了博文《女儿口述：胡耀邦生命中的最后7天（组图）》1989年3月下旬，父亲从南宁返京参加六届人大五次会议。许多人都知道了他在湖南生病的事，而且注意到他很消瘦——因得知一些本已脱贫的地区近期又有吃不http://t.cn/RUuurwq<br><img src="http://ww4.sinaimg.cn/large/4ac5b19fjw1ey91hq0g0sj20dw0igjrw.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3911767891316267" target="freeweibo-mirror">我分享了@郑州方言004 的文章 http://t.cn/R…</a>
-</h2>
-<p>我分享了@郑州方言004 的文章 http://t.cn/RUujiW7</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
