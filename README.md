@@ -78,7 +78,7 @@
 </h2>
 <p>这里面有乾坤[思考]<br><br>RE: 【央视胡耀邦纪录片 《人民日报》头版报道遭篡改】央视纪录片中出现了一份《人民日报》，头版标题是“胡耀邦任总书记邓小平任军委主席”，但时任中央政治局常委的赵紫阳的头像，被李先念的头像取代。李先念的头像原本是放在报纸对折线下的第二排领导人头像中的。http://t.cn/RU3QcQd<br><img src="http://ww3.sinaimg.cn/large/9dcb59c7jw1eyaqrjm3tbj20rs126jvm.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3912327097655706" target="freeweibo-mirror">→_→ //@孔先生v:→_→ //@李彤律师:→_→ //…</a>
 </h2>
@@ -96,7 +96,7 @@
 </h2>
 <p>【央视胡耀邦纪录片 《人民日报》头版报道遭篡改】央视纪录片中出现了一份《人民日报》，头版标题是“胡耀邦任总书记邓小平任军委主席”，但时任中央政治局常委的赵紫阳的头像，被李先念的头像取代。李先念的头像原本是放在报纸对折线下的第二排领导人头像中的。http://t.cn/RU3QcQd<br><img src="http://ww3.sinaimg.cn/large/9dcb59c7jw1eyaqrjm3tbj20rs126jvm.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3912309074565618" target="freeweibo-mirror">【毛伟人枪决了15万中华民族的良心】1968年4月27日上海…</a>
 </h2>
@@ -132,7 +132,7 @@
 </h2>
 <p>SPAM 哎 //@北京厨子新号:[笑cry][笑cry] //@郑克强: 好多人在“求科普”：为什么会少一个人？这个小动作没搞好，欲盖弥彰了。//@张欧亚:？//@陶景洲:不可思议啊！ //@孔先生v:图一是正在播出的纪录片《胡耀邦》镜头中的报纸。图二据说是当年同一天的报纸。<br><br>RE: 额～ 都什么年代了，好难懂。。。<br><img src="http://ww4.sinaimg.cn/large/006hcYGKgw1eya54lux1rj30k00e4abl.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3912237754235959" target="freeweibo-mirror">SPAM 编导手法，也太拙劣了些。[哈哈]//@北京厨子新号…</a>
 </h2>
