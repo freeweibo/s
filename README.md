@@ -42,7 +42,7 @@
 </h2>
 <p>SPAM 可爱到窒息！抽我好吗！没抽到我也会去买！太可爱啦！</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3912399536956605" target="freeweibo-mirror">SPAM 小清新[兔子]</a>
 </h2>
@@ -108,7 +108,7 @@
 </h2>
 <p>→_→ //@孔先生v:→_→ //@李彤律师:→_→ //@管荣君同志: 篡改历史是我们的一贯作风。<br><br>RE: 【央视胡耀邦纪录片 《人民日报》头版报道遭篡改】央视纪录片中出现了一份《人民日报》，头版标题是“胡耀邦任总书记邓小平任军委主席”，但时任中央政治局常委的赵紫阳的头像，被李先念的头像取代。李先念的头像原本是放在报纸对折线下的第二排领导人头像中的。http://t.cn/RU3QcQd<br><img src="http://ww3.sinaimg.cn/large/9dcb59c7jw1eyaqrjm3tbj20rs126jvm.jpg"></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3912320381741237" target="freeweibo-mirror">不尊重历史，不实事求是，自信何在？</a>
 </h2>
