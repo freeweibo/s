@@ -78,7 +78,7 @@
 </h2>
 <p>邓小平，你真的很无耻；特色分子们更无耻！ http://t.cn/RUuYm6t</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3912133735645594" target="freeweibo-mirror">SPAM 之前有哪些资-源被he谐的？小伙伴们在评论里留言吧…</a>
 </h2>
