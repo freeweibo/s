@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3912402884017224" target="freeweibo-mirror">SPAM 可爱到窒息！抽我好吗！没抽到我也会去买！太可爱啦！</a>
+</h2>
+<p>SPAM 可爱到窒息！抽我好吗！没抽到我也会去买！太可爱啦！</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3912383841843746" target="freeweibo-mirror">千古罪人，空前绝后！ //@刘耘博士://@章诒和:亲身经历…</a>
 </h2>
 <p>千古罪人，空前绝后！ //@刘耘博士://@章诒和:亲身经历这个红色恐怖。<br><br>RE: 【毛伟人枪决了15万中华民族的良心】1968年4月27日上海交响乐团指挥陆洪恩等6人判处死刑立即执行，拉开了屠杀思想犯、言论犯的序幕。两天后林昭被枪决，次年五一又集中枪决51人作为祭奠五一。至1970年“一打三反”运动，全国由政府宣判被枪决的思想犯、言论犯逾15万人，其中包括遇罗克、王佩英等。转</p>
@@ -114,7 +120,7 @@
 </h2>
 <p>一个纪录片竟然把一个历史人物抹掉了 //@斯人黄鹤:扬胡而抑赵，天下之矛盾莫过于此。//@应天澜: //@三滴小水珠: 真不知谁是历史虚无主义。//@陶景洲:不可思议啊！ //@孔先生v:图一是正在播出的纪录片《胡耀邦》镜头中的报纸。图二据说是当年同一天的报纸。<br><br>RE: 额～ 都什么年代了，好难懂。。。<br><img src="http://ww4.sinaimg.cn/large/006hcYGKgw1eya54lux1rj30k00e4abl.jpg"></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3912250760583150" target="freeweibo-mirror">SPAM 哎 //@北京厨子新号:[笑cry][笑cry] …</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3912230523745691" target="freeweibo-mirror">SPAM 别有用心是啥意思？真不懂！//@蘑菇与雲://@徐…</a>
 </h2>
 <p>SPAM 别有用心是啥意思？真不懂！//@蘑菇与雲://@徐付群:→_→//@亦品仙:孔先生v发此贴说“好难懂”，明显说的不是真话，而是别有用心。<br><br>RE: 额～ 都什么年代了，好难懂。。。<br><img src="http://ww4.sinaimg.cn/large/006hcYGKgw1eya54lux1rj30k00e4abl.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3912152257325069" target="freeweibo-mirror">//@回红朝:[哈哈]//@PMKL亀昌哥:伪造历史的水平，…</a>
-</h2>
-<p>//@回红朝:[哈哈]//@PMKL亀昌哥:伪造历史的水平，远远超过了提炼地沟油的本领。//@碧水中庭: 转发微博</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
