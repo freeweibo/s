@@ -48,7 +48,7 @@
 </h2>
 <p>邓小平，你真的很无耻；特色分子们更无耻！ http://t.cn/RUuYm6t</p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3912133735645594" target="freeweibo-mirror">SPAM 之前有哪些资-源被he谐的？小伙伴们在评论里留言吧…</a>
 </h2>
@@ -126,7 +126,7 @@
 </h2>
 <p>SPAM 一直纠结买不到好蜂蜜的朋友去他家看看吧，他薇薄还有很多关于蜂蜜的介绍，很真诚的一个农村小伙子[good]</p>
 <p>
-	<small> ============== 1天前</small>
+	<small> ============== 2天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3911643735558063" target="freeweibo-mirror">邓把胡拉上台，是利用胡放“炮”，放的差不多了，又把胡赶下去。…</a>
 </h2>
