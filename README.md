@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3912340367746588" target="freeweibo-mirror">[微笑]</a>
+</h2>
+<p>[微笑]<br><br>RE: 【央视胡耀邦纪录片 《人民日报》头版报道遭篡改】央视纪录片中出现了一份《人民日报》，头版标题是“胡耀邦任总书记邓小平任军委主席”，但时任中央政治局常委的赵紫阳的头像，被李先念的头像取代。李先念的头像原本是放在报纸对折线下的第二排领导人头像中的。http://t.cn/RU3QcQd<br><img src="http://ww3.sinaimg.cn/large/9dcb59c7jw1eyaqrjm3tbj20rs126jvm.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3912339310679223" target="freeweibo-mirror">这还是纪录片吗？真实性在哪里？//@民间治堵人陈哲宏: 这就…</a>
 </h2>
 <p>这还是纪录片吗？真实性在哪里？//@民间治堵人陈哲宏: 这就是实事求是吗？ //@老徐时评:习大大号召学习胡耀邦的实事求是精神，这样做是实事求是吗？[思考]<br><br>RE: 【央视胡耀邦纪录片 《人民日报》头版报道遭篡改】央视纪录片中出现了一份《人民日报》，头版标题是“胡耀邦任总书记邓小平任军委主席”，但时任中央政治局常委的赵紫阳的头像，被李先念的头像取代。李先念的头像原本是放在报纸对折线下的第二排领导人头像中的。http://t.cn/RU3QcQd<br><img src="http://ww3.sinaimg.cn/large/9dcb59c7jw1eyaqrjm3tbj20rs126jvm.jpg"></p>
@@ -90,7 +96,7 @@
 </h2>
 <p>一个纪录片竟然把一个历史人物抹掉了 //@斯人黄鹤:扬胡而抑赵，天下之矛盾莫过于此。//@应天澜: //@三滴小水珠: 真不知谁是历史虚无主义。//@陶景洲:不可思议啊！ //@孔先生v:图一是正在播出的纪录片《胡耀邦》镜头中的报纸。图二据说是当年同一天的报纸。<br><br>RE: 额～ 都什么年代了，好难懂。。。<br><img src="http://ww4.sinaimg.cn/large/006hcYGKgw1eya54lux1rj30k00e4abl.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3912250760583150" target="freeweibo-mirror">SPAM 哎 //@北京厨子新号:[笑cry][笑cry] …</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3912139049699833" target="freeweibo-mirror">SPAM 好！我要！</a>
 </h2>
 <p>SPAM 好！我要！<br><br>RE: 玩个游戏吧~帮我转发~明天选几位给你看无码哒~<br><img src="http://ww4.sinaimg.cn/large/0060Jfhjjw1eya5xdvc0pj30xc18g10t.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3912135618821246" target="freeweibo-mirror">邓小平，你真的很无耻；特色分子们更无耻！ http://t.…</a>
-</h2>
-<p>邓小平，你真的很无耻；特色分子们更无耻！ http://t.cn/RUuYm6t</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
