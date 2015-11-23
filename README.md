@@ -26,6 +26,12 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3912445259340600" target="freeweibo-mirror">当今时代，外部再强，中国不会亡！若某一天中国烽烟再起、四分五…</a>
+</h2>
+<p>当今时代，外部再强，中国不会亡！若某一天中国烽烟再起、四分五裂、民不聊生，正如“西式民主”的利比亚、伊拉克、叙利亚一样，贺卫方及其图中的炮灰小屁孩“功”不可没！</p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3912445070291909" target="freeweibo-mirror">SPAM 成人片，伤害了谁？</a>
 </h2>
 <p>SPAM 成人片，伤害了谁？<br><br>RE: SPAM 成人片，伤害了谁？</p>
@@ -90,7 +96,7 @@
 </h2>
 <p>习大大号召学习胡耀邦的实事求是精神，这样做是实事求是吗？[思考]<br><br>RE: 【央视胡耀邦纪录片 《人民日报》头版报道遭篡改】央视纪录片中出现了一份《人民日报》，头版标题是“胡耀邦任总书记邓小平任军委主席”，但时任中央政治局常委的赵紫阳的头像，被李先念的头像取代。李先念的头像原本是放在报纸对折线下的第二排领导人头像中的。http://t.cn/RU3QcQd<br><img src="http://ww3.sinaimg.cn/large/9dcb59c7jw1eyaqrjm3tbj20rs126jvm.jpg"></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3912333082972404" target="freeweibo-mirror">这里面有乾坤[思考]</a>
 </h2>
@@ -114,7 +120,7 @@
 </h2>
 <p>不尊重历史，不实事求是，自信何在？<br><br>RE: 【央视胡耀邦纪录片 《人民日报》头版报道遭篡改】央视纪录片中出现了一份《人民日报》，头版标题是“胡耀邦任总书记邓小平任军委主席”，但时任中央政治局常委的赵紫阳的头像，被李先念的头像取代。李先念的头像原本是放在报纸对折线下的第二排领导人头像中的。http://t.cn/RU3QcQd<br><img src="http://ww3.sinaimg.cn/large/9dcb59c7jw1eyaqrjm3tbj20rs126jvm.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3912318079364944" target="freeweibo-mirror">【央视胡耀邦纪录片 《人民日报》头版报道遭篡改】央视纪录片中…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3912300644082738" target="freeweibo-mirror">SPAM [哆啦A梦吃惊] //@本体是手机会搓火球的艾洛菌…</a>
 </h2>
 <p>SPAM [哆啦A梦吃惊] //@本体是手机会搓火球的艾洛菌:+1s //@无尽飞翼0:续1秒//@小米_大叔: @无尽飞翼0 //@空条崇诺:… //@真樹梨祖:你们堆的这个雪人啊 //@神崎_H_尤:[笑cry]//@天野夜: 膜//@Akira于爷: 笑死//@发光型可乐:[笑cry]//@种渣-急降下爆撃:膜//@野良犬P:续//@PrinceC_: 哈哈哈哈哈哈哈哈<br><br>RE: 雪蛤<br><img src="http://ww3.sinaimg.cn/large/4a60915cgw1eya6amrj8pj20qo0zktc1.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3912297376283262" target="freeweibo-mirror">扯淡，如果把胡与邓的政治分歧拍出来就是打胡的脸了，这样好吗，…</a>
-</h2>
-<p>扯淡，如果把胡与邓的政治分歧拍出来就是打胡的脸了，这样好吗，在政治上胡和邓差距大了，根本不是一个层次的，胡与赵也不是什么搭档，各有各的分管领域，赵对胡也没什么好印象，赵在回忆录中对胡到处乱讲话很有腹诽，那时赵已是被软禁状态，说的都是真心话，反倒是赵对邓一直存有愧疚之心。</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
