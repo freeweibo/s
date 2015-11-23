@@ -30,11 +30,23 @@
 </h2>
 <p>...//@Acyric-Running: //@蔡斯图:这么搞太恶心了，还有什么脸让日本人正视历史。 //@石扉客2014:马云老师需要加大收购步伐啊。<br><br>RE: 【央视胡耀邦纪录片 《人民日报》头版报道遭篡改】央视纪录片中出现了一份《人民日报》，头版标题是“胡耀邦任总书记邓小平任军委主席”，但时任中央政治局常委的赵紫阳的头像，被李先念的头像取代。李先念的头像原本是放在报纸对折线下的第二排领导人头像中的。http://t.cn/RU3QcQd<br><img src="http://ww3.sinaimg.cn/large/9dcb59c7jw1eyaqrjm3tbj20rs126jvm.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3912336928635922" target="freeweibo-mirror">这就是实事求是吗？ //@老徐时评:习大大号召学习胡耀邦的实…</a>
 </h2>
 <p>这就是实事求是吗？ //@老徐时评:习大大号召学习胡耀邦的实事求是精神，这样做是实事求是吗？[思考]<br><br>RE: 【央视胡耀邦纪录片 《人民日报》头版报道遭篡改】央视纪录片中出现了一份《人民日报》，头版标题是“胡耀邦任总书记邓小平任军委主席”，但时任中央政治局常委的赵紫阳的头像，被李先念的头像取代。李先念的头像原本是放在报纸对折线下的第二排领导人头像中的。http://t.cn/RU3QcQd<br><img src="http://ww3.sinaimg.cn/large/9dcb59c7jw1eyaqrjm3tbj20rs126jvm.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3912336638966508" target="freeweibo-mirror">习大大号召学习胡耀邦的实事求是精神，这样做是实事求是吗？[思…</a>
+</h2>
+<p>习大大号召学习胡耀邦的实事求是精神，这样做是实事求是吗？[思考]<br><br>RE: 【央视胡耀邦纪录片 《人民日报》头版报道遭篡改】央视纪录片中出现了一份《人民日报》，头版标题是“胡耀邦任总书记邓小平任军委主席”，但时任中央政治局常委的赵紫阳的头像，被李先念的头像取代。李先念的头像原本是放在报纸对折线下的第二排领导人头像中的。http://t.cn/RU3QcQd<br><img src="http://ww3.sinaimg.cn/large/9dcb59c7jw1eyaqrjm3tbj20rs126jvm.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3912333082972404" target="freeweibo-mirror">这里面有乾坤[思考]</a>
+</h2>
+<p>这里面有乾坤[思考]<br><br>RE: 【央视胡耀邦纪录片 《人民日报》头版报道遭篡改】央视纪录片中出现了一份《人民日报》，头版标题是“胡耀邦任总书记邓小平任军委主席”，但时任中央政治局常委的赵紫阳的头像，被李先念的头像取代。李先念的头像原本是放在报纸对折线下的第二排领导人头像中的。http://t.cn/RU3QcQd<br><img src="http://ww3.sinaimg.cn/large/9dcb59c7jw1eyaqrjm3tbj20rs126jvm.jpg"></p>
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
@@ -55,6 +67,12 @@
 <p>【央视胡耀邦纪录片 《人民日报》头版报道遭篡改】央视纪录片中出现了一份《人民日报》，头版标题是“胡耀邦任总书记邓小平任军委主席”，但时任中央政治局常委的赵紫阳的头像，被李先念的头像取代。李先念的头像原本是放在报纸对折线下的第二排领导人头像中的。http://t.cn/RU3QcQd<br><img src="http://ww3.sinaimg.cn/large/9dcb59c7jw1eyaqrjm3tbj20rs126jvm.jpg"></p>
 <p>
 	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3912300644082738" target="freeweibo-mirror">SPAM [哆啦A梦吃惊] //@本体是手机会搓火球的艾洛菌…</a>
+</h2>
+<p>SPAM [哆啦A梦吃惊] //@本体是手机会搓火球的艾洛菌:+1s //@无尽飞翼0:续1秒//@小米_大叔: @无尽飞翼0 //@空条崇诺:… //@真樹梨祖:你们堆的这个雪人啊 //@神崎_H_尤:[笑cry]//@天野夜: 膜//@Akira于爷: 笑死//@发光型可乐:[笑cry]//@种渣-急降下爆撃:膜//@野良犬P:续//@PrinceC_: 哈哈哈哈哈哈哈哈<br><br>RE: 雪蛤<br><img src="http://ww3.sinaimg.cn/large/4a60915cgw1eya6amrj8pj20qo0zktc1.jpg"></p>
+<p>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3912297376283262" target="freeweibo-mirror">扯淡，如果把胡与邓的政治分歧拍出来就是打胡的脸了，这样好吗，…</a>
 </h2>
@@ -119,24 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3912135618821246" target="freeweibo-mirror">邓小平，你真的很无耻；特色分子们更无耻！ http://t.…</a>
 </h2>
 <p>邓小平，你真的很无耻；特色分子们更无耻！ http://t.cn/RUuYm6t</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3912133735645594" target="freeweibo-mirror">SPAM 之前有哪些资-源被he谐的？小伙伴们在评论里留言吧…</a>
-</h2>
-<p>SPAM 之前有哪些资-源被he谐的？小伙伴们在评论里留言吧，我找时间补发<br><br>RE: 【jpacg_love】动漫控，今日更新资-源：和爸爸kiss、纤细的爱情、狂野情人、拥抱春天的罗曼史、没有钱，【详细资-源列表】及【获-取-方法】请看图九！<br><img src="http://ww3.sinaimg.cn/large/822f7258gw1eya0u1rc0sj20hs0dc3ys.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3912113397117089" target="freeweibo-mirror">额～ 都什么年代了，好难懂。。。</a>
-</h2>
-<p>额～ 都什么年代了，好难懂。。。<br><img src="http://ww4.sinaimg.cn/large/006hcYGKgw1eya54lux1rj30k00e4abl.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3912076810847246" target="freeweibo-mirror">【jpacg_love】动漫控，今日更新资-源：和爸爸kis…</a>
-</h2>
-<p>【jpacg_love】动漫控，今日更新资-源：和爸爸kiss、纤细的爱情、狂野情人、拥抱春天的罗曼史、没有钱，【详细资-源列表】及【获-取-方法】请看图九！<br><img src="http://ww3.sinaimg.cn/large/822f7258gw1eya0u1rc0sj20hs0dc3ys.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
