@@ -32,6 +32,12 @@
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3912461448743456" target="freeweibo-mirror">#中国政府网#建议取消信访部门与政法委，信访局是地方政府的挡…</a>
+</h2>
+<p>#中国政府网#建议取消信访部门与政法委，信访局是地方政府的挡箭牌，如果信访真想帮民群解决实际问题请地方二位主官兼任局长。政法委是制造冤案错案的起源点，同时政法委与依法法律相违背。</p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3912447914004610" target="freeweibo-mirror">SPAM //@孔先生v: //@清华郭于31华:[话筒][…</a>
 </h2>
 <p>SPAM //@孔先生v: //@清华郭于31华:[话筒][钟]//@没事不加V: //@丘微博士://@鬼小叉K：//@公民在维权w: //@决不做奴隶5://@任我霄十一郎://@燕歌一别://@五哥放羊40://@爱卿身平免礼: [话筒]<br><br>RE: 三次延后，明天开庭复审。[话筒][围观]<br><img src="http://ww4.sinaimg.cn/large/006dqvefgw1eyb03eyifej30go0rs775.jpg"></p>
@@ -42,13 +48,13 @@
 </h2>
 <p>当今时代，外部再强，中国不会亡！若某一天中国烽烟再起、四分五裂、民不聊生，正如“西式民主”的利比亚、伊拉克、叙利亚一样，贺卫方及其图中的炮灰小屁孩“功”不可没！</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3912445070291909" target="freeweibo-mirror">SPAM 成人片，伤害了谁？</a>
 </h2>
 <p>SPAM 成人片，伤害了谁？<br><br>RE: SPAM 成人片，伤害了谁？</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3912427361801004" target="freeweibo-mirror">//@我是伏起: //@云中鹤138: //@hehuanl…</a>
 </h2>
@@ -84,13 +90,13 @@
 </h2>
 <p>[微笑]<br><br>RE: 【央视胡耀邦纪录片 《人民日报》头版报道遭篡改】央视纪录片中出现了一份《人民日报》，头版标题是“胡耀邦任总书记邓小平任军委主席”，但时任中央政治局常委的赵紫阳的头像，被李先念的头像取代。李先念的头像原本是放在报纸对折线下的第二排领导人头像中的。http://t.cn/RU3QcQd<br><img src="http://ww3.sinaimg.cn/large/9dcb59c7jw1eyaqrjm3tbj20rs126jvm.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3912339310679223" target="freeweibo-mirror">这还是纪录片吗？真实性在哪里？//@民间治堵人陈哲宏: 这就…</a>
 </h2>
 <p>这还是纪录片吗？真实性在哪里？//@民间治堵人陈哲宏: 这就是实事求是吗？ //@老徐时评:习大大号召学习胡耀邦的实事求是精神，这样做是实事求是吗？[思考]<br><br>RE: 【央视胡耀邦纪录片 《人民日报》头版报道遭篡改】央视纪录片中出现了一份《人民日报》，头版标题是“胡耀邦任总书记邓小平任军委主席”，但时任中央政治局常委的赵紫阳的头像，被李先念的头像取代。李先念的头像原本是放在报纸对折线下的第二排领导人头像中的。http://t.cn/RU3QcQd<br><img src="http://ww3.sinaimg.cn/large/9dcb59c7jw1eyaqrjm3tbj20rs126jvm.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3912338375267781" target="freeweibo-mirror">...//@Acyric-Running: //@蔡斯图:这…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3912320381741237" target="freeweibo-mirror">不尊重历史，不实事求是，自信何在？</a>
 </h2>
 <p>不尊重历史，不实事求是，自信何在？<br><br>RE: 【央视胡耀邦纪录片 《人民日报》头版报道遭篡改】央视纪录片中出现了一份《人民日报》，头版标题是“胡耀邦任总书记邓小平任军委主席”，但时任中央政治局常委的赵紫阳的头像，被李先念的头像取代。李先念的头像原本是放在报纸对折线下的第二排领导人头像中的。http://t.cn/RU3QcQd<br><img src="http://ww3.sinaimg.cn/large/9dcb59c7jw1eyaqrjm3tbj20rs126jvm.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3912318079364944" target="freeweibo-mirror">【央视胡耀邦纪录片 《人民日报》头版报道遭篡改】央视纪录片中…</a>
-</h2>
-<p>【央视胡耀邦纪录片 《人民日报》头版报道遭篡改】央视纪录片中出现了一份《人民日报》，头版标题是“胡耀邦任总书记邓小平任军委主席”，但时任中央政治局常委的赵紫阳的头像，被李先念的头像取代。李先念的头像原本是放在报纸对折线下的第二排领导人头像中的。http://t.cn/RU3QcQd<br><img src="http://ww3.sinaimg.cn/large/9dcb59c7jw1eyaqrjm3tbj20rs126jvm.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
