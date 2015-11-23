@@ -36,7 +36,7 @@
 </h2>
 <p>#中国政府网#建议取消信访部门与政法委，信访局是地方政府的挡箭牌，如果信访真想帮民群解决实际问题请地方二位主官兼任局长。政法委是制造冤案错案的起源点，同时政法委与依法法律相违背。</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3912447914004610" target="freeweibo-mirror">SPAM //@孔先生v: //@清华郭于31华:[话筒][…</a>
 </h2>
@@ -80,6 +80,12 @@
 <p>
 	<small> ============== 9小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3912383044544581" target="freeweibo-mirror">三次延后，明天开庭复审。[话筒][围观]</a>
+</h2>
+<p>三次延后，明天开庭复审。[话筒][围观]<br><img src="http://ww4.sinaimg.cn/large/006dqvefgw1eyb03eyifej30go0rs775.jpg"></p>
+<p>
+	<small> ============== 9小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3912373745822502" target="freeweibo-mirror">//@笨笨an:他们自己就是？//@谓贤:虽然很恐怖，但那年…</a>
 </h2>
 <p>//@笨笨an:他们自己就是？//@谓贤:虽然很恐怖，但那年代还没有恐怖主义或恐怖分子这类新名词。<br><br>RE: 【毛伟人枪决了15万中华民族的良心】1968年4月27日上海交响乐团指挥陆洪恩等6人判处死刑立即执行，拉开了屠杀思想犯、言论犯的序幕。两天后林昭被枪决，次年五一又集中枪决51人作为祭奠五一。至1970年“一打三反”运动，全国由政府宣判被枪决的思想犯、言论犯逾15万人，其中包括遇罗克、王佩英等。转</p>
@@ -120,7 +126,7 @@
 </h2>
 <p>这里面有乾坤[思考]<br><br>RE: 【央视胡耀邦纪录片 《人民日报》头版报道遭篡改】央视纪录片中出现了一份《人民日报》，头版标题是“胡耀邦任总书记邓小平任军委主席”，但时任中央政治局常委的赵紫阳的头像，被李先念的头像取代。李先念的头像原本是放在报纸对折线下的第二排领导人头像中的。http://t.cn/RU3QcQd<br><img src="http://ww3.sinaimg.cn/large/9dcb59c7jw1eyaqrjm3tbj20rs126jvm.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3912330616032976" target="freeweibo-mirror">被再次“依法”延长三个月审期，您已经被不明不白关押了18个月…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3912327097655706" target="freeweibo-mirror">→_→ //@孔先生v:→_→ //@李彤律师:→_→ //…</a>
 </h2>
 <p>→_→ //@孔先生v:→_→ //@李彤律师:→_→ //@管荣君同志: 篡改历史是我们的一贯作风。<br><br>RE: 【央视胡耀邦纪录片 《人民日报》头版报道遭篡改】央视纪录片中出现了一份《人民日报》，头版标题是“胡耀邦任总书记邓小平任军委主席”，但时任中央政治局常委的赵紫阳的头像，被李先念的头像取代。李先念的头像原本是放在报纸对折线下的第二排领导人头像中的。http://t.cn/RU3QcQd<br><img src="http://ww3.sinaimg.cn/large/9dcb59c7jw1eyaqrjm3tbj20rs126jvm.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3912320381741237" target="freeweibo-mirror">不尊重历史，不实事求是，自信何在？</a>
-</h2>
-<p>不尊重历史，不实事求是，自信何在？<br><br>RE: 【央视胡耀邦纪录片 《人民日报》头版报道遭篡改】央视纪录片中出现了一份《人民日报》，头版标题是“胡耀邦任总书记邓小平任军委主席”，但时任中央政治局常委的赵紫阳的头像，被李先念的头像取代。李先念的头像原本是放在报纸对折线下的第二排领导人头像中的。http://t.cn/RU3QcQd<br><img src="http://ww3.sinaimg.cn/large/9dcb59c7jw1eyaqrjm3tbj20rs126jvm.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
