@@ -48,7 +48,7 @@
 </h2>
 <p>习大大号召学习胡耀邦的实事求是精神，这样做是实事求是吗？[思考]<br><br>RE: 【央视胡耀邦纪录片 《人民日报》头版报道遭篡改】央视纪录片中出现了一份《人民日报》，头版标题是“胡耀邦任总书记邓小平任军委主席”，但时任中央政治局常委的赵紫阳的头像，被李先念的头像取代。李先念的头像原本是放在报纸对折线下的第二排领导人头像中的。http://t.cn/RU3QcQd<br><img src="http://ww3.sinaimg.cn/large/9dcb59c7jw1eyaqrjm3tbj20rs126jvm.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3912333082972404" target="freeweibo-mirror">这里面有乾坤[思考]</a>
 </h2>
@@ -66,7 +66,7 @@
 </h2>
 <p>不尊重历史，不实事求是，自信何在？<br><br>RE: 【央视胡耀邦纪录片 《人民日报》头版报道遭篡改】央视纪录片中出现了一份《人民日报》，头版标题是“胡耀邦任总书记邓小平任军委主席”，但时任中央政治局常委的赵紫阳的头像，被李先念的头像取代。李先念的头像原本是放在报纸对折线下的第二排领导人头像中的。http://t.cn/RU3QcQd<br><img src="http://ww3.sinaimg.cn/large/9dcb59c7jw1eyaqrjm3tbj20rs126jvm.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3912318079364944" target="freeweibo-mirror">【央视胡耀邦纪录片 《人民日报》头版报道遭篡改】央视纪录片中…</a>
 </h2>
@@ -114,7 +114,7 @@
 </h2>
 <p>SPAM 别有用心是啥意思？真不懂！//@蘑菇与雲://@徐付群:→_→//@亦品仙:孔先生v发此贴说“好难懂”，明显说的不是真话，而是别有用心。<br><br>RE: 额～ 都什么年代了，好难懂。。。<br><img src="http://ww4.sinaimg.cn/large/006hcYGKgw1eya54lux1rj30k00e4abl.jpg"></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3912152257325069" target="freeweibo-mirror">//@回红朝:[哈哈]//@PMKL亀昌哥:伪造历史的水平，…</a>
 </h2>
