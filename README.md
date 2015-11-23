@@ -48,7 +48,7 @@
 </h2>
 <p>SPAM 编导手法，也太拙劣了些。[哈哈]//@北京厨子新号: [笑cry][笑cry] //@郑克强: 好多人在“求科普”：为什么会少一个人？这个小动作没搞好，欲盖弥彰了。//@张欧亚:？//@陶景洲:不可思议啊！ //@孔先生v:图一是正在播出的纪录片《胡耀邦》镜头中的报纸。图二据说是当年同一天的报纸。<br><br>RE: 额～ 都什么年代了，好难懂。。。<br><img src="http://ww4.sinaimg.cn/large/006hcYGKgw1eya54lux1rj30k00e4abl.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3912230523745691" target="freeweibo-mirror">SPAM 别有用心是啥意思？真不懂！//@蘑菇与雲://@徐…</a>
 </h2>
