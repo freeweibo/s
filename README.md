@@ -24,7 +24,7 @@
 </h2>
 <p>SPAM 好想次[色]//@Ms_琴晓陈: 哇好想吃//@一个文艺霏: 我要我要//@pinky-xie: 我坐不稳了//@ObiueeS1: 炒鸡！相吃！！！吃//@3猪是的念来过倒3: 我靠！买！//@粒一沙: 啊[色][色]好想吃！[泪][泪]</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3912445070291909" target="freeweibo-mirror">SPAM 成人片，伤害了谁？</a>
 </h2>
