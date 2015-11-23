@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3912339310679223" target="freeweibo-mirror">这还是纪录片吗？真实性在哪里？//@民间治堵人陈哲宏: 这就…</a>
+</h2>
+<p>这还是纪录片吗？真实性在哪里？//@民间治堵人陈哲宏: 这就是实事求是吗？ //@老徐时评:习大大号召学习胡耀邦的实事求是精神，这样做是实事求是吗？[思考]<br><br>RE: 【央视胡耀邦纪录片 《人民日报》头版报道遭篡改】央视纪录片中出现了一份《人民日报》，头版标题是“胡耀邦任总书记邓小平任军委主席”，但时任中央政治局常委的赵紫阳的头像，被李先念的头像取代。李先念的头像原本是放在报纸对折线下的第二排领导人头像中的。http://t.cn/RU3QcQd<br><img src="http://ww3.sinaimg.cn/large/9dcb59c7jw1eyaqrjm3tbj20rs126jvm.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3912338375267781" target="freeweibo-mirror">...//@Acyric-Running: //@蔡斯图:这…</a>
 </h2>
 <p>...//@Acyric-Running: //@蔡斯图:这么搞太恶心了，还有什么脸让日本人正视历史。 //@石扉客2014:马云老师需要加大收购步伐啊。<br><br>RE: 【央视胡耀邦纪录片 《人民日报》头版报道遭篡改】央视纪录片中出现了一份《人民日报》，头版标题是“胡耀邦任总书记邓小平任军委主席”，但时任中央政治局常委的赵紫阳的头像，被李先念的头像取代。李先念的头像原本是放在报纸对折线下的第二排领导人头像中的。http://t.cn/RU3QcQd<br><img src="http://ww3.sinaimg.cn/large/9dcb59c7jw1eyaqrjm3tbj20rs126jvm.jpg"></p>
@@ -30,7 +36,7 @@
 </h2>
 <p>这就是实事求是吗？ //@老徐时评:习大大号召学习胡耀邦的实事求是精神，这样做是实事求是吗？[思考]<br><br>RE: 【央视胡耀邦纪录片 《人民日报》头版报道遭篡改】央视纪录片中出现了一份《人民日报》，头版标题是“胡耀邦任总书记邓小平任军委主席”，但时任中央政治局常委的赵紫阳的头像，被李先念的头像取代。李先念的头像原本是放在报纸对折线下的第二排领导人头像中的。http://t.cn/RU3QcQd<br><img src="http://ww3.sinaimg.cn/large/9dcb59c7jw1eyaqrjm3tbj20rs126jvm.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3912327097655706" target="freeweibo-mirror">→_→ //@孔先生v:→_→ //@李彤律师:→_→ //…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3912076810847246" target="freeweibo-mirror">【jpacg_love】动漫控，今日更新资-源：和爸爸kis…</a>
 </h2>
 <p>【jpacg_love】动漫控，今日更新资-源：和爸爸kiss、纤细的爱情、狂野情人、拥抱春天的罗曼史、没有钱，【详细资-源列表】及【获-取-方法】请看图九！<br><img src="http://ww3.sinaimg.cn/large/822f7258gw1eya0u1rc0sj20hs0dc3ys.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3912061689834994" target="freeweibo-mirror">SPAM 中国功夫果真博大精深？！！…三观已毁 [拜拜] h…</a>
-</h2>
-<p>SPAM 中国功夫果真博大精深？！！…三观已毁 [拜拜] http://t.cn/RUNH3mA</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
