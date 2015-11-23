@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3912297376283262" target="freeweibo-mirror">扯淡，如果把胡与邓的政治分歧拍出来就是打胡的脸了，这样好吗，…</a>
+</h2>
+<p>扯淡，如果把胡与邓的政治分歧拍出来就是打胡的脸了，这样好吗，在政治上胡和邓差距大了，根本不是一个层次的，胡与赵也不是什么搭档，各有各的分管领域，赵对胡也没什么好印象，赵在回忆录中对胡到处乱讲话很有腹诽，那时赵已是被软禁状态，说的都是真心话，反倒是赵对邓一直存有愧疚之心。</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3912281768974116" target="freeweibo-mirror">【倘若美团与阿里真的开撕，团购将进入三国鼎立时代】在新格局的…</a>
 </h2>
 <p>【倘若美团与阿里真的开撕，团购将进入三国鼎立时代】在新格局的争夺中，口碑其实已经率先出招，选择了“两手都要抓，两手都要硬”的道路。那么接下来，倒向腾讯环又拥有巨大流量优势的新美大和具备先行优势的百度糯米将如何接招？拭目以待。http://t.cn/RUuV1w4<br><img src="http://ww1.sinaimg.cn/large/928aba1egw1eyah2b34i3j20j60atjti.jpg"></p>
@@ -30,7 +36,7 @@
 </h2>
 <p>一个纪录片竟然把一个历史人物抹掉了 //@斯人黄鹤:扬胡而抑赵，天下之矛盾莫过于此。//@应天澜: //@三滴小水珠: 真不知谁是历史虚无主义。//@陶景洲:不可思议啊！ //@孔先生v:图一是正在播出的纪录片《胡耀邦》镜头中的报纸。图二据说是当年同一天的报纸。<br><br>RE: 额～ 都什么年代了，好难懂。。。<br><img src="http://ww4.sinaimg.cn/large/006hcYGKgw1eya54lux1rj30k00e4abl.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3912250760583150" target="freeweibo-mirror">SPAM 哎 //@北京厨子新号:[笑cry][笑cry] …</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3911935961670292" target="freeweibo-mirror">【“非典型领导人”胡耀邦】胡耀邦在中纪委会议上进一步抨击文革…</a>
 </h2>
 <p>【“非典型领导人”胡耀邦】胡耀邦在中纪委会议上进一步抨击文革期间“农奴主、法西斯”现象的两大特征：“一是个人崇拜登峰造极，达到荒谬绝伦的地步。党内出现了大大小小的救世主，大大小小的奴隶。……二是‘有权就有一切’，一些人拿了权到处做坏事” http://t.cn/RU3h0pQ</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3911876042146144" target="freeweibo-mirror">SPAM 中央隆重纪念胡耀邦，传达什么信号？http://t…</a>
-</h2>
-<p>SPAM 中央隆重纪念胡耀邦，传达什么信号？http://t.cn/RUu8jZZ<br><img src="http://ww2.sinaimg.cn/large/44de9a03gw1ey9duknotzj20e80aqjs1.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
