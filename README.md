@@ -60,7 +60,7 @@
 </h2>
 <p>【jpacg_love】动漫控，今日更新资-源：和爸爸kiss、纤细的爱情、狂野情人、拥抱春天的罗曼史、没有钱，【详细资-源列表】及【获-取-方法】请看图九！<br><img src="http://ww3.sinaimg.cn/large/822f7258gw1eya0u1rc0sj20hs0dc3ys.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3912061689834994" target="freeweibo-mirror">SPAM 中国功夫果真博大精深？！！…三观已毁 [拜拜] h…</a>
 </h2>
