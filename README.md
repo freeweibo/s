@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3912383841843746" target="freeweibo-mirror">千古罪人，空前绝后！ //@刘耘博士://@章诒和:亲身经历…</a>
+</h2>
+<p>千古罪人，空前绝后！ //@刘耘博士://@章诒和:亲身经历这个红色恐怖。<br><br>RE: 【毛伟人枪决了15万中华民族的良心】1968年4月27日上海交响乐团指挥陆洪恩等6人判处死刑立即执行，拉开了屠杀思想犯、言论犯的序幕。两天后林昭被枪决，次年五一又集中枪决51人作为祭奠五一。至1970年“一打三反”运动，全国由政府宣判被枪决的思想犯、言论犯逾15万人，其中包括遇罗克、王佩英等。转</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3912340367746588" target="freeweibo-mirror">[微笑]</a>
 </h2>
 <p>[微笑]<br><br>RE: 【央视胡耀邦纪录片 《人民日报》头版报道遭篡改】央视纪录片中出现了一份《人民日报》，头版标题是“胡耀邦任总书记邓小平任军委主席”，但时任中央政治局常委的赵紫阳的头像，被李先念的头像取代。李先念的头像原本是放在报纸对折线下的第二排领导人头像中的。http://t.cn/RU3QcQd<br><img src="http://ww3.sinaimg.cn/large/9dcb59c7jw1eyaqrjm3tbj20rs126jvm.jpg"></p>
@@ -42,7 +48,7 @@
 </h2>
 <p>这就是实事求是吗？ //@老徐时评:习大大号召学习胡耀邦的实事求是精神，这样做是实事求是吗？[思考]<br><br>RE: 【央视胡耀邦纪录片 《人民日报》头版报道遭篡改】央视纪录片中出现了一份《人民日报》，头版标题是“胡耀邦任总书记邓小平任军委主席”，但时任中央政治局常委的赵紫阳的头像，被李先念的头像取代。李先念的头像原本是放在报纸对折线下的第二排领导人头像中的。http://t.cn/RU3QcQd<br><img src="http://ww3.sinaimg.cn/large/9dcb59c7jw1eyaqrjm3tbj20rs126jvm.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3912336638966508" target="freeweibo-mirror">习大大号召学习胡耀邦的实事求是精神，这样做是实事求是吗？[思…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3912139179295914" target="freeweibo-mirror">SPAM 啪啪啪</a>
 </h2>
 <p>SPAM 啪啪啪</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3912139049699833" target="freeweibo-mirror">SPAM 好！我要！</a>
-</h2>
-<p>SPAM 好！我要！<br><br>RE: 玩个游戏吧~帮我转发~明天选几位给你看无码哒~<br><img src="http://ww4.sinaimg.cn/large/0060Jfhjjw1eya5xdvc0pj30xc18g10t.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
