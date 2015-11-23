@@ -30,7 +30,7 @@
 </h2>
 <p>SPAM 好想次[色]//@Ms_琴晓陈: 哇好想吃//@一个文艺霏: 我要我要//@pinky-xie: 我坐不稳了//@ObiueeS1: 炒鸡！相吃！！！吃//@3猪是的念来过倒3: 我靠！买！//@粒一沙: 啊[色][色]好想吃！[泪][泪]</p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3912461448743456" target="freeweibo-mirror">#中国政府网#建议取消信访部门与政法委，信访局是地方政府的挡…</a>
 </h2>
@@ -84,7 +84,7 @@
 </h2>
 <p>三次延后，明天开庭复审。[话筒][围观]<br><img src="http://ww4.sinaimg.cn/large/006dqvefgw1eyb03eyifej30go0rs775.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3912373745822502" target="freeweibo-mirror">//@笨笨an:他们自己就是？//@谓贤:虽然很恐怖，但那年…</a>
 </h2>
