@@ -96,7 +96,7 @@
 </h2>
 <p>一个纪录片竟然把一个历史人物抹掉了 //@斯人黄鹤:扬胡而抑赵，天下之矛盾莫过于此。//@应天澜: //@三滴小水珠: 真不知谁是历史虚无主义。//@陶景洲:不可思议啊！ //@孔先生v:图一是正在播出的纪录片《胡耀邦》镜头中的报纸。图二据说是当年同一天的报纸。<br><br>RE: 额～ 都什么年代了，好难懂。。。<br><img src="http://ww4.sinaimg.cn/large/006hcYGKgw1eya54lux1rj30k00e4abl.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3912250760583150" target="freeweibo-mirror">SPAM 哎 //@北京厨子新号:[笑cry][笑cry] …</a>
 </h2>
