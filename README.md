@@ -68,6 +68,12 @@
 <p>
 	<small> ============== 1天前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3912404549111078" target="freeweibo-mirror">【经典】鲁迅回乡发现一切都变了：闰土房子被强拆，闰家大儿子上…</a>
+</h2>
+<p>【经典】鲁迅回乡发现一切都变了：闰土房子被强拆，闰家大儿子上课时死于地震，老二喝三鹿结石了，老三打疫苗残了。阿Q因土地征用多次上访被精神病。孔乙己研究生毕业失业在家去酒店买醉被保安打残了。祥林嫂丈夫去山西挖煤丢了命，儿子在幼儿园校车事故死亡。鲁迅怒发微博，被删帖封号了<br><img src="http://ww4.sinaimg.cn/large/680d8f00gw1eyb2kezw1zj208c0cb3zc.jpg"></p>
+<p>
+	<small> ============== 1天前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3912402884017224" target="freeweibo-mirror">SPAM 可爱到窒息！抽我好吗！没抽到我也会去买！太可爱啦！</a>
 </h2>
 <p>SPAM 可爱到窒息！抽我好吗！没抽到我也会去买！太可爱啦！</p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3912333082972404" target="freeweibo-mirror">这里面有乾坤[思考]</a>
 </h2>
 <p>这里面有乾坤[思考]<br><br>RE: 【央视胡耀邦纪录片 《人民日报》头版报道遭篡改】央视纪录片中出现了一份《人民日报》，头版标题是“胡耀邦任总书记邓小平任军委主席”，但时任中央政治局常委的赵紫阳的头像，被李先念的头像取代。李先念的头像原本是放在报纸对折线下的第二排领导人头像中的。http://t.cn/RU3QcQd<br><img src="http://ww3.sinaimg.cn/large/9dcb59c7jw1eyaqrjm3tbj20rs126jvm.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3912330616032976" target="freeweibo-mirror">被再次“依法”延长三个月审期，您已经被不明不白关押了18个月…</a>
-</h2>
-<p>被再次“依法”延长三个月审期，您已经被不明不白关押了18个月多，延长三月审期到期日是2016年2月18日，农历正月初十一春节期间，情人节后第四天。时间横跨三年还拿不出一个像样的证据来定罪，全世界人民都知道：您是无辜的！@肖雪慧49 @清华郭于31华 @任建宇405 @何三畏  @记者陈宝成 @彭洪同学<br><img src="http://ww2.sinaimg.cn/large/006fKeYhjw1eyatzbe8t1j30hs0nldhc.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
