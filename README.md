@@ -24,7 +24,13 @@
 </h2>
 <p>//@阮小三: //@生人刻刻3: //@任恒营://@刘耘博士: 愚人者自愚。//@沈向东东北:因此可扩散！可晾晒！可揭露！→_→//@于建嵘:实际上，这种明显篡改历史的做法，最为可悲可怜可耻。<br><br>RE: 央视纪录片《胡耀邦》，为什么要回避赵紫阳先生曾经是“十一大中常委”的事实？赵公的伟大，不亚于胡公，贬低紫阳，太过猖狂！（注：第一图是正版，第二、三图是纪录片篡改过的山寨版。信息来源：@SCMP_南華早報 ）@于建嵘<br><img src="http://ww3.sinaimg.cn/large/6a83dd8ejw1eybb27wqbej20k00rhgoc.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3912680475894871" target="freeweibo-mirror">除非我们的法律是两套版本！！就是颁布出来的是一套，实际操作的…</a>
+</h2>
+<p>除非我们的法律是两套版本！！就是颁布出来的是一套，实际操作的是另一套。如果政府正式公开向我们承认，中国法律就是两套版本，我绝对会闭口无言——谁叫我们生在新中国，长在红旗下呢？ http://t.cn/RU5d3XG</p>
+<p>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3912673588671490" target="freeweibo-mirror">不敢直面庙堂，撕咬民间寻友，晒这俩脑袋被夹坏了的弱智//@作…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3912402884017224" target="freeweibo-mirror">SPAM 可爱到窒息！抽我好吗！没抽到我也会去买！太可爱啦！</a>
 </h2>
 <p>SPAM 可爱到窒息！抽我好吗！没抽到我也会去买！太可爱啦！</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3912399536956605" target="freeweibo-mirror">SPAM 小清新[兔子]</a>
-</h2>
-<p>SPAM 小清新[兔子]</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
