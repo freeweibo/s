@@ -36,7 +36,7 @@
 </h2>
 <p>【高瑜律师：11月26日宣判】高瑜代表律师尚宝军表示，法院通知他，会在星期四上午对案件二审宣判。此前，高瑜被判犯“为境外非法提供国家秘密罪”入狱7年。在今天的聆讯中，高瑜对自己进行了辩护，并回答了来自法官和律师的提问。<br><img src="http://ww3.sinaimg.cn/large/9dcb59c7gw1eyc210aptjj20di08eaal.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3912701673676293" target="freeweibo-mirror">//@阮小三: //@生人刻刻3: //@任恒营://@刘耘…</a>
 </h2>
