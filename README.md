@@ -30,13 +30,25 @@
 </h2>
 <p>//@任志强:坏习惯总改不了？ //@清华孙立平:篡改历史的就是历史虚无主义吧？<br><br>RE: 大凡有点历史意识的人，应该都厌恶历史虚无主义。什么是历史虚无主义？无非就是蓄意篡改历史事实，把曾经发生过的事情说成没发生过，把没发生过的事情说成发生过。《开国大典》油画曾几经修改，应该算是历史虚无主义的代表作。改开三十余年了，对历史的态度总应该有点进步吧？为何还要重犯过去的错误？<br><img src="http://ww1.sinaimg.cn/large/005XsazYjw1eyczm2bwi8j30pv0zkgph.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3913068310408757" target="freeweibo-mirror">SPAM 可惜啦</a>
 </h2>
 <p>SPAM 可惜啦<br><br>RE: 正在画的一个漫画，迟点会在网上连载，这些都不会有，我删了。<br><img src="http://ww4.sinaimg.cn/large/4e710e51gw1eyd6p5fjd8j20p00xctla.jpg"></p>
 <p>
 	<small> ============== 4小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3913067723375214" target="freeweibo-mirror">正在画的一个漫画，迟点会在网上连载，这些都不会有，我删了。</a>
+</h2>
+<p>正在画的一个漫画，迟点会在网上连载，这些都不会有，我删了。<br><img src="http://ww4.sinaimg.cn/large/4e710e51gw1eyd6p5fjd8j20p00xctla.jpg"></p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3913035284041084" target="freeweibo-mirror">大凡有点历史意识的人，应该都厌恶历史虚无主义。什么是历史虚无…</a>
+</h2>
+<p>大凡有点历史意识的人，应该都厌恶历史虚无主义。什么是历史虚无主义？无非就是蓄意篡改历史事实，把曾经发生过的事情说成没发生过，把没发生过的事情说成发生过。《开国大典》油画曾几经修改，应该算是历史虚无主义的代表作。改开三十余年了，对历史的态度总应该有点进步吧？为何还要重犯过去的错误？<br><img src="http://ww1.sinaimg.cn/large/005XsazYjw1eyczm2bwi8j30pv0zkgph.jpg"></p>
+<p>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3913018741823437" target="freeweibo-mirror">SPAM 希望得个奖</a>
 </h2>
@@ -125,18 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3912632094802557" target="freeweibo-mirror">看了新闻才知道中国居然有1300万黑户，也就是没有户口的人。…</a>
 </h2>
 <p>看了新闻才知道中国居然有1300万黑户，也就是没有户口的人。我知道有这种事，但这个数字还是让我震惊了。户口在中国有多重要大家都知道，没有户口升学就业都困难重重。我几乎不敢相信自己的国家里有数目如此庞大这类人群。这叫做什么？这是人为制造的“中国贱民”，而且他们并无过错，错在生于此处。</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3912625270556106" target="freeweibo-mirror">//@曦曦雨EG://@胡曰社:转发微博</a>
-</h2>
-<p>//@曦曦雨EG://@胡曰社:转发微博<br><br>RE: 【穿内裤“反党”案今在深圳中院宣判】在深工伤受害者杨明玉煽动颠覆国家政权案羁押近两年半、开庭19个月后11月24日宣判。最可笑罪状是杨穿条内裤称“为了包着党的尊严，特来到深圳市委门口前抗议，如果共产党不要脸，我把底裤也脱下来”，照片被外媒刊登。杨此前还因辱骂公安被控妨害公务劳教一年。<br><img src="http://ww1.sinaimg.cn/large/6a80bfcdjw1eybf65j5glj20zk0qo0wt.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3912617502255020" target="freeweibo-mirror">SPAM 哭笑不得！[衰] //@风青杨V://@LUCY若…</a>
-</h2>
-<p>SPAM 哭笑不得！[衰] //@风青杨V://@LUCY若水: 嘎 //@虎叔-:卧槽 //@绍兴师爷在北京:[哈哈] //@陈茂来-:[哈哈] //@迟夙生律师:[哈哈] //@新洋白涝:[哈哈]//@不一百X:[哈哈]//@杜芝富:[哈哈]//@逸事拾遗: [哈哈]//@演员孙海英:[哈哈]<br><br>RE: 【经典】鲁迅回乡发现一切都变了：闰土房子被强拆，闰家大儿子上课时死于地震，老二喝三鹿结石了，老三打疫苗残了。阿Q因土地征用多次上访被精神病。孔乙己研究生毕业失业在家去酒店买醉被保安打残了。祥林嫂丈夫去山西挖煤丢了命，儿子在幼儿园校车事故死亡。鲁迅怒发微博，被删帖封号了<br><img src="http://ww4.sinaimg.cn/large/680d8f00gw1eyb2kezw1zj208c0cb3zc.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
