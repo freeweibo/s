@@ -114,7 +114,7 @@
 </h2>
 <p>央视纪录片《胡耀邦》，为什么要回避赵紫阳先生曾经是“十一大中常委”的事实？赵公的伟大，不亚于胡公，贬低紫阳，太过猖狂！（注：第一图是正版，第二、三图是纪录片篡改过的山寨版。信息来源：@SCMP_南華早報 ）@于建嵘<br><img src="http://ww3.sinaimg.cn/large/6a83dd8ejw1eybb27wqbej20k00rhgoc.jpg"></p>
 <p>
-	<small> ============== 1天前</small>
+	<small> ============== 2天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3912465919935404" target="freeweibo-mirror">SPAM 好想次[色]//@Ms_琴晓陈: 哇好想吃//@一…</a>
 </h2>
