@@ -54,7 +54,7 @@
 </h2>
 <p>//@任志强:坏习惯总改不了？ //@清华孙立平:篡改历史的就是历史虚无主义吧？<br><br>RE: 大凡有点历史意识的人，应该都厌恶历史虚无主义。什么是历史虚无主义？无非就是蓄意篡改历史事实，把曾经发生过的事情说成没发生过，把没发生过的事情说成发生过。《开国大典》油画曾几经修改，应该算是历史虚无主义的代表作。改开三十余年了，对历史的态度总应该有点进步吧？为何还要重犯过去的错误？<br><img src="http://ww1.sinaimg.cn/large/005XsazYjw1eyczm2bwi8j30pv0zkgph.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3913068310408757" target="freeweibo-mirror">SPAM 可惜啦</a>
 </h2>
@@ -120,7 +120,7 @@
 </h2>
 <p>【高瑜律师：11月26日宣判】高瑜代表律师尚宝军表示，法院通知他，会在星期四上午对案件二审宣判。此前，高瑜被判犯“为境外非法提供国家秘密罪”入狱7年。在今天的聆讯中，高瑜对自己进行了辩护，并回答了来自法官和律师的提问。<br><img src="http://ww3.sinaimg.cn/large/9dcb59c7gw1eyc210aptjj20di08eaal.jpg"></p>
 <p>
-	<small> ============== 1天前</small>
+	<small> ============== 2天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3912701673676293" target="freeweibo-mirror">//@阮小三: //@生人刻刻3: //@任恒营://@刘耘…</a>
 </h2>
