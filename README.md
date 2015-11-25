@@ -36,7 +36,7 @@
 </h2>
 <p>SPAM 可惜啦<br><br>RE: 正在画的一个漫画，迟点会在网上连载，这些都不会有，我删了。<br><img src="http://ww4.sinaimg.cn/large/4e710e51gw1eyd6p5fjd8j20p00xctla.jpg"></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3913067723375214" target="freeweibo-mirror">正在画的一个漫画，迟点会在网上连载，这些都不会有，我删了。</a>
 </h2>
