@@ -48,7 +48,7 @@
 </h2>
 <p>大凡有点历史意识的人，应该都厌恶历史虚无主义。什么是历史虚无主义？无非就是蓄意篡改历史事实，把曾经发生过的事情说成没发生过，把没发生过的事情说成发生过。《开国大典》油画曾几经修改，应该算是历史虚无主义的代表作。改开三十余年了，对历史的态度总应该有点进步吧？为何还要重犯过去的错误？<br><img src="http://ww1.sinaimg.cn/large/005XsazYjw1eyczm2bwi8j30pv0zkgph.jpg"></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3913018741823437" target="freeweibo-mirror">SPAM 希望得个奖</a>
 </h2>
@@ -60,7 +60,7 @@
 </h2>
 <p>农村小伙子家里的好蜂蜜找不到销路，喜欢蜂蜜的朋友可以看下，帮转[赞]</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3913011187823790" target="freeweibo-mirror">SPAM 【宝宝厨房检查完全清单】mark//@伦敦的猪在香…</a>
 </h2>
