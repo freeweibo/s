@@ -32,6 +32,12 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3912998613157022" target="freeweibo-mirror">SPAM 中国正能量[话筒]</a>
+</h2>
+<p>SPAM 中国正能量[话筒]</p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3912981035845973" target="freeweibo-mirror">SPAM Gorf! Gorf! Gorf! //@三俗师:…</a>
 </h2>
 <p>SPAM Gorf! Gorf! Gorf! //@三俗师:[作揖] //@全麦面包V5:轉發微博<br><br>RE: 蛤乎日常……[蜡烛][蜡烛][蜡烛]<br><img src="http://ww4.sinaimg.cn/large/0068Rpdsgw1eyb59opd0ej30ku112wmv.jpg"></p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3912465919935404" target="freeweibo-mirror">SPAM 好想次[色]//@Ms_琴晓陈: 哇好想吃//@一…</a>
 </h2>
 <p>SPAM 好想次[色]//@Ms_琴晓陈: 哇好想吃//@一个文艺霏: 我要我要//@pinky-xie: 我坐不稳了//@ObiueeS1: 炒鸡！相吃！！！吃//@3猪是的念来过倒3: 我靠！买！//@粒一沙: 啊[色][色]好想吃！[泪][泪]</p>
-<p>
-	<small> ============== 2天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3912461448743456" target="freeweibo-mirror">#中国政府网#建议取消信访部门与政法委，信访局是地方政府的挡…</a>
-</h2>
-<p>#中国政府网#建议取消信访部门与政法委，信访局是地方政府的挡箭牌，如果信访真想帮民群解决实际问题请地方二位主官兼任局长。政法委是制造冤案错案的起源点，同时政法委与依法法律相违背。</p>
 <p>
 	<small> ============== 2天前</small>
 </p>
