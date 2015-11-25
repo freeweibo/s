@@ -42,7 +42,7 @@
 </h2>
 <p>正在画的一个漫画，迟点会在网上连载，这些都不会有，我删了。<br><img src="http://ww4.sinaimg.cn/large/4e710e51gw1eyd6p5fjd8j20p00xctla.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3913035284041084" target="freeweibo-mirror">大凡有点历史意识的人，应该都厌恶历史虚无主义。什么是历史虚无…</a>
 </h2>
@@ -72,7 +72,7 @@
 </h2>
 <p>SPAM 中国正能量[话筒]</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3912981035845973" target="freeweibo-mirror">SPAM Gorf! Gorf! Gorf! //@三俗师:…</a>
 </h2>
