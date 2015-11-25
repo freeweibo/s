@@ -42,7 +42,7 @@
 </h2>
 <p>公道自在人心的实证——转发一条微博帖子，竟然被再转发1168次。<br><img src="http://ww4.sinaimg.cn/large/73d07b5ejw1eydajn2xlnj20fq0fegml.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3913079228652010" target="freeweibo-mirror">依稀记得有人说过适当的虚构让历史更美好的吧 //@repor…</a>
 </h2>
