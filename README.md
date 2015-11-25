@@ -36,7 +36,7 @@
 </h2>
 <p>【看，列宁掉地上了】列宁和斯大林的雕像曾经遍及苏联各地，以至于有笑话说：街上根本不用安路灯，让各位斯大林手里举个灯泡就可以了。当苏联已成往事，那些神圣不可侵犯的领袖宝相又都遭遇了些什么？作者：李日飞、@张小榛想做录音师 http://t.cn/RUBmu9I</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3913101600236986" target="freeweibo-mirror">公道自在人心的实证——转发一条微博帖子，竟然被再转发1168…</a>
 </h2>
@@ -66,7 +66,7 @@
 </h2>
 <p>正在画的一个漫画，迟点会在网上连载，这些都不会有，我删了。<br><img src="http://ww4.sinaimg.cn/large/4e710e51gw1eyd6p5fjd8j20p00xctla.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3913035284041084" target="freeweibo-mirror">大凡有点历史意识的人，应该都厌恶历史虚无主义。什么是历史虚无…</a>
 </h2>
