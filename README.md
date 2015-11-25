@@ -72,7 +72,7 @@
 </h2>
 <p>SPAM 中国正能量[话筒]</p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3912981035845973" target="freeweibo-mirror">SPAM Gorf! Gorf! Gorf! //@三俗师:…</a>
 </h2>
