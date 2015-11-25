@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3913079228652010" target="freeweibo-mirror">依稀记得有人说过适当的虚构让历史更美好的吧 //@repor…</a>
+</h2>
+<p>依稀记得有人说过适当的虚构让历史更美好的吧 //@reporter记者刘虎:真的还需要这么干？//@任志强:坏习惯总改不了？ //@清华孙立平:篡改历史的就是历史虚无主义吧？<br><br>RE: 大凡有点历史意识的人，应该都厌恶历史虚无主义。什么是历史虚无主义？无非就是蓄意篡改历史事实，把曾经发生过的事情说成没发生过，把没发生过的事情说成发生过。《开国大典》油画曾几经修改，应该算是历史虚无主义的代表作。改开三十余年了，对历史的态度总应该有点进步吧？为何还要重犯过去的错误？<br><img src="http://ww1.sinaimg.cn/large/005XsazYjw1eyczm2bwi8j30pv0zkgph.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3913018741823437" target="freeweibo-mirror">SPAM 希望得个奖</a>
 </h2>
 <p>SPAM 希望得个奖</p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3912486153901132" target="freeweibo-mirror">//@翟富贵2://@椰风52612: //@迟夙生律师: …</a>
 </h2>
 <p>//@翟富贵2://@椰风52612: //@迟夙生律师: //@大唐朗月915：终于有了明智的思想了，早日实现啊，伙伴们转起来！[good][good][good][good][good]//@办公室秘书: 转发微博<br><br>RE: #中国政府网#建议取消信访部门与政法委，信访局是地方政府的挡箭牌，如果信访真想帮民群解决实际问题请地方二位主官兼任局长。政法委是制造冤案错案的起源点，同时政法委与依法法律相违背。</p>
-<p>
-	<small> ============== 2天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3912480264624363" target="freeweibo-mirror">央视纪录片《胡耀邦》，为什么要回避赵紫阳先生曾经是“十一大中…</a>
-</h2>
-<p>央视纪录片《胡耀邦》，为什么要回避赵紫阳先生曾经是“十一大中常委”的事实？赵公的伟大，不亚于胡公，贬低紫阳，太过猖狂！（注：第一图是正版，第二、三图是纪录片篡改过的山寨版。信息来源：@SCMP_南華早報 ）@于建嵘<br><img src="http://ww3.sinaimg.cn/large/6a83dd8ejw1eybb27wqbej20k00rhgoc.jpg"></p>
 <p>
 	<small> ============== 2天前</small>
 </p>
