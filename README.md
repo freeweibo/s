@@ -36,7 +36,7 @@
 </h2>
 <p>七旬老记者高瑜泄密案（中央管控意识形态文件）终审改判有期徒刑五年，剥夺政治权利一年。<br><img src="http://ww3.sinaimg.cn/large/6a80bfcdjw1eye55vj0a5j208c04p0sp.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3913361114366371" target="freeweibo-mirror">【高瑜案二审今宣判 法院外再布警】北京市高级人民法院今天将开…</a>
 </h2>
@@ -48,13 +48,13 @@
 </h2>
 <p>//@吴显庆教授: http://t.cn/RUBummH //@南洋客NJ: 中宣部工作严重失误！为啥不将这份报纸在全国范围内全部销毁？[吃惊]//@王建国: //@吴显庆教授: 实事求是包括尊重和如实介绍历史事实。 http://t.cn/RUBYPuf //@乾山云: 第四位领导人还是禁词。。<br><br>RE: 公道自在人心的实证——转发一条微博帖子，竟然被再转发1168次。<br><img src="http://ww4.sinaimg.cn/large/73d07b5ejw1eydajn2xlnj20fq0fegml.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3913208912370245" target="freeweibo-mirror">//@赣B_自油博报: //@若可因心: //@东河-猎鹰倚…</a>
 </h2>
 <p>//@赣B_自油博报: //@若可因心: //@东河-猎鹰倚天屠龙://@老饕加鈾: //@戎崎裕rongqiyu://@索家小新: 笑话就笑一个吧，反正笑的人那么多，多大家一个不多呀//@Andy-_-Yeung4: //@乌托国民15:转发微博</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3913202746358895" target="freeweibo-mirror">【看，列宁掉地上了】列宁和斯大林的雕像曾经遍及苏联各地，以至…</a>
 </h2>
@@ -132,7 +132,7 @@
 </h2>
 <p>这段视频记录了被土耳其击中的苏-24战机空中坠落，飞行员在跳伞过程中如何被叙利亚境内反政府叛军乱枪扫射，以及尸体如何被喊着“真主万岁”的所谓“温和反对派”武装分子戏耍侮辱。该视频是反对派武装公布的。这对于骄傲的俄罗斯人和普京来说，真是一种莫大的羞辱…… http://t.cn/RUB77Hx .</p>
 <p>
-	<small> ============== 1天前</small>
+	<small> ============== 2天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3912814299351171" target="freeweibo-mirror">SPAM [爱你][爱你][爱你]</a>
 </h2>
