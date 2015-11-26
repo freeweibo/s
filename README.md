@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3913374011813856" target="freeweibo-mirror">SPAM //@少女花影: 卐卐卐卐卐卐卐△▽○□◆♀☽☜×…</a>
+</h2>
+<p>SPAM //@少女花影: 卐卐卐卐卐卐卐△▽○□◆♀☽☜×◑‥•×☜卐//@猪川猫二饼的小黑屋: 除了脏话，还有啥可说的？<br><br>RE: 高瑜案二審宣判。<br><img src="http://ww2.sinaimg.cn/large/65cc9274gw1eye5hvk3bij20hs0vkgpo.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3913217107244922" target="freeweibo-mirror">//@吴显庆教授: http://t.cn/RUBummH …</a>
 </h2>
 <p>//@吴显庆教授: http://t.cn/RUBummH //@南洋客NJ: 中宣部工作严重失误！为啥不将这份报纸在全国范围内全部销毁？[吃惊]//@王建国: //@吴显庆教授: 实事求是包括尊重和如实介绍历史事实。 http://t.cn/RUBYPuf //@乾山云: 第四位领导人还是禁词。。<br><br>RE: 公道自在人心的实证——转发一条微博帖子，竟然被再转发1168次。<br><img src="http://ww4.sinaimg.cn/large/73d07b5ejw1eydajn2xlnj20fq0fegml.jpg"></p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3912680475894871" target="freeweibo-mirror">除非我们的法律是两套版本！！就是颁布出来的是一套，实际操作的…</a>
 </h2>
 <p>除非我们的法律是两套版本！！就是颁布出来的是一套，实际操作的是另一套。如果政府正式公开向我们承认，中国法律就是两套版本，我绝对会闭口无言——谁叫我们生在新中国，长在红旗下呢？ http://t.cn/RU5d3XG</p>
-<p>
-	<small> ============== 2天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3912673588671490" target="freeweibo-mirror">不敢直面庙堂，撕咬民间寻友，晒这俩脑袋被夹坏了的弱智//@作…</a>
-</h2>
-<p>不敢直面庙堂，撕咬民间寻友，晒这俩脑袋被夹坏了的弱智//@作家岳南: 回复@魏力在北京://@魏力在北京:这话太对了。这帮退休的党卫军们，确实应该去夹边沟看看。。。 //@作家岳南:三年饿死了三千万人，拿着谁的钱在制造军火？保的是谁家的江山？红二代？官二代？最该去的是夹边沟而不是什么所谓的马兰</p>
 <p>
 	<small> ============== 2天前</small>
 </p>
