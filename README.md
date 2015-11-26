@@ -48,7 +48,7 @@
 </h2>
 <p>【高瑜案二审今宣判 法院外再布警】北京市高级人民法院今天将开庭，宣布高瑜被控向境外非法提供国家秘密罪一案二审判决。二审庭审之后，她的律师曾表示，有改轻判的可能。今天早上，法院外停泊了多辆警车，公安人员从近8时开始，封锁法院外围道路。http://t.cn/RUrPvxj<br><img src="http://ww2.sinaimg.cn/large/9dcb59c7jw1eye4fdxmt1j20m80eagot.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3913217107244922" target="freeweibo-mirror">//@吴显庆教授: http://t.cn/RUBummH …</a>
 </h2>
