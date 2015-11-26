@@ -32,6 +32,18 @@
 <p>
 	<small> ============== 4小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3913526852706021" target="freeweibo-mirror">老谣言了，这谣言第一次出现的时候苍老师还是处女呢，传教士夫妇…</a>
+</h2>
+<p>老谣言了，这谣言第一次出现的时候苍老师还是处女呢，传教士夫妇不是被绑票，是因间谍罪被处决，他们死的时候方志敏根本就不在旌德，此事与方志敏毫无关系，方志敏被抓后国民党根本不敢公开审判，他是被秘密处决的，国民党政府根本就没有因传教士的事去判决过任何人，因为他们也不在乎。<br><br>RE: 【方志敏被国民政府处决真相】1934年12月，方志敏部绑架了美国传教士师达能和史文明夫妇，要求巨额赎金二万元美金，二人拒绝，2天后被砍头。此恶行引起全国和世界强烈谴责！次年1月，方战败被俘，民国政府以谋杀师达能夫妇罪判其死刑，同年8月执行。方狱中写下：“我们信仰的主义，乃是宇宙的真理！”<br><img src="http://ww1.sinaimg.cn/large/0065YaaAjw1eydjxl4550j30c88abhdu.jpg"></p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3913505893381663" target="freeweibo-mirror">看到蒼蒼白髮的高瑜記者，不寒而栗，心頭特別難受[泪][泪][…</a>
+</h2>
+<p>看到蒼蒼白髮的高瑜記者，不寒而栗，心頭特別難受[泪][泪][泪]高牆之內還有多少綠林好漢！！！<br><img src="http://ww1.sinaimg.cn/large/e441729bgw1eyekzezb36j20f00qojtp.jpg"></p>
+<p>
+	<small> ============== 6小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3913489670600300" target="freeweibo-mirror">SPAM #把雾化带回家#最常见的照顾宝宝的五大错误方式，宝…</a>
 </h2>
 <p>SPAM #把雾化带回家#最常见的照顾宝宝的五大错误方式，宝妈们，你中招了吗？<br><img src="http://ww2.sinaimg.cn/large/9c900017gw1eyej2iergjj20c8313kj9.jpg"></p>
@@ -127,18 +139,6 @@
 <p>正在画的一个漫画，迟点会在网上连载，这些都不会有，我删了。<br><img src="http://ww4.sinaimg.cn/large/4e710e51gw1eyd6p5fjd8j20p00xctla.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3913035284041084" target="freeweibo-mirror">大凡有点历史意识的人，应该都厌恶历史虚无主义。什么是历史虚无…</a>
-</h2>
-<p>大凡有点历史意识的人，应该都厌恶历史虚无主义。什么是历史虚无主义？无非就是蓄意篡改历史事实，把曾经发生过的事情说成没发生过，把没发生过的事情说成发生过。《开国大典》油画曾几经修改，应该算是历史虚无主义的代表作。改开三十余年了，对历史的态度总应该有点进步吧？为何还要重犯过去的错误？<br><img src="http://ww1.sinaimg.cn/large/005XsazYjw1eyczm2bwi8j30pv0zkgph.jpg"></p>
-<p>
-	<small> ============== 2天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3913018741823437" target="freeweibo-mirror">SPAM 希望得个奖</a>
-</h2>
-<p>SPAM 希望得个奖</p>
-<p>
-	<small> ============== 2天前</small>
 </p>
 <table>
     <tr>
