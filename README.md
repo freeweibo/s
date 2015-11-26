@@ -26,6 +26,18 @@
 <p>
 	<small> ============== 1小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3913371692341211" target="freeweibo-mirror">//@猪川猫二饼的小黑屋: 【警车封锁法院外围道路】 【庭外…</a>
+</h2>
+<p>//@猪川猫二饼的小黑屋: 【警车封锁法院外围道路】 【庭外没有人晓得，法庭内究竟是谁在审判谁，以及凭什么对一个年逾七旬的老人，非法拘禁好几年。这些都是兲槽这个王八槽子里的国家机密】//@SCMP_南華早報: 【高瑜案二审改判有期徒刑5年】法官宣布，高瑜改判有期徒刑5年，较一审少2年。<br><br>RE: 【高瑜案二审今宣判 法院外再布警】北京市高级人民法院今天将开庭，宣布高瑜被控向境外非法提供国家秘密罪一案二审判决。二审庭审之后，她的律师曾表示，有改轻判的可能。今天早上，法院外停泊了多辆警车，公安人员从近8时开始，封锁法院外围道路。http://t.cn/RUrPvxj<br><img src="http://ww2.sinaimg.cn/large/9dcb59c7jw1eye4fdxmt1j20m80eagot.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3913367775840755" target="freeweibo-mirror">七旬老记者高瑜泄密案（中央管控意识形态文件）终审改判有期徒刑…</a>
+</h2>
+<p>七旬老记者高瑜泄密案（中央管控意识形态文件）终审改判有期徒刑五年，剥夺政治权利一年。<br><img src="http://ww3.sinaimg.cn/large/6a80bfcdjw1eye55vj0a5j208c04p0sp.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3913217107244922" target="freeweibo-mirror">//@吴显庆教授: http://t.cn/RUBummH …</a>
 </h2>
 <p>//@吴显庆教授: http://t.cn/RUBummH //@南洋客NJ: 中宣部工作严重失误！为啥不将这份报纸在全国范围内全部销毁？[吃惊]//@王建国: //@吴显庆教授: 实事求是包括尊重和如实介绍历史事实。 http://t.cn/RUBYPuf //@乾山云: 第四位领导人还是禁词。。<br><br>RE: 公道自在人心的实证——转发一条微博帖子，竟然被再转发1168次。<br><img src="http://ww4.sinaimg.cn/large/73d07b5ejw1eydajn2xlnj20fq0fegml.jpg"></p>
@@ -125,18 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3912713329961841" target="freeweibo-mirror">【高瑜律师：11月26日宣判】高瑜代表律师尚宝军表示，法院通…</a>
 </h2>
 <p>【高瑜律师：11月26日宣判】高瑜代表律师尚宝军表示，法院通知他，会在星期四上午对案件二审宣判。此前，高瑜被判犯“为境外非法提供国家秘密罪”入狱7年。在今天的聆讯中，高瑜对自己进行了辩护，并回答了来自法官和律师的提问。<br><img src="http://ww3.sinaimg.cn/large/9dcb59c7gw1eyc210aptjj20di08eaal.jpg"></p>
-<p>
-	<small> ============== 2天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3912701673676293" target="freeweibo-mirror">//@阮小三: //@生人刻刻3: //@任恒营://@刘耘…</a>
-</h2>
-<p>//@阮小三: //@生人刻刻3: //@任恒营://@刘耘博士: 愚人者自愚。//@沈向东东北:因此可扩散！可晾晒！可揭露！→_→//@于建嵘:实际上，这种明显篡改历史的做法，最为可悲可怜可耻。<br><br>RE: 央视纪录片《胡耀邦》，为什么要回避赵紫阳先生曾经是“十一大中常委”的事实？赵公的伟大，不亚于胡公，贬低紫阳，太过猖狂！（注：第一图是正版，第二、三图是纪录片篡改过的山寨版。信息来源：@SCMP_南華早報 ）@于建嵘<br><img src="http://ww3.sinaimg.cn/large/6a83dd8ejw1eybb27wqbej20k00rhgoc.jpg"></p>
-<p>
-	<small> ============== 2天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3912680475894871" target="freeweibo-mirror">除非我们的法律是两套版本！！就是颁布出来的是一套，实际操作的…</a>
-</h2>
-<p>除非我们的法律是两套版本！！就是颁布出来的是一套，实际操作的是另一套。如果政府正式公开向我们承认，中国法律就是两套版本，我绝对会闭口无言——谁叫我们生在新中国，长在红旗下呢？ http://t.cn/RU5d3XG</p>
 <p>
 	<small> ============== 2天前</small>
 </p>
