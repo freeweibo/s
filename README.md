@@ -24,7 +24,7 @@
 </h2>
 <p>#成都爆炸#全城听到巨响，来报一下坐标，你在哪里？听到爆炸声没？</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3913423903833292" target="freeweibo-mirror">SPAM No zuo No die</a>
 </h2>
