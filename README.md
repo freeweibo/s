@@ -54,7 +54,7 @@
 </h2>
 <p>//@吴显庆教授: http://t.cn/RUBummH //@南洋客NJ: 中宣部工作严重失误！为啥不将这份报纸在全国范围内全部销毁？[吃惊]//@王建国: //@吴显庆教授: 实事求是包括尊重和如实介绍历史事实。 http://t.cn/RUBYPuf //@乾山云: 第四位领导人还是禁词。。<br><br>RE: 公道自在人心的实证——转发一条微博帖子，竟然被再转发1168次。<br><img src="http://ww4.sinaimg.cn/large/73d07b5ejw1eydajn2xlnj20fq0fegml.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3913208912370245" target="freeweibo-mirror">//@赣B_自油博报: //@若可因心: //@东河-猎鹰倚…</a>
 </h2>
