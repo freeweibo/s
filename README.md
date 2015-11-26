@@ -42,7 +42,7 @@
 </h2>
 <p>SPAM //@少女花影: 卐卐卐卐卐卐卐△▽○□◆♀☽☜×◑‥•×☜卐//@猪川猫二饼的小黑屋: 除了脏话，还有啥可说的？<br><br>RE: 高瑜案二審宣判。<br><img src="http://ww2.sinaimg.cn/large/65cc9274gw1eye5hvk3bij20hs0vkgpo.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3913371692341211" target="freeweibo-mirror">//@猪川猫二饼的小黑屋: 【警车封锁法院外围道路】 【庭外…</a>
 </h2>
