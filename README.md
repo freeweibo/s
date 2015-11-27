@@ -30,7 +30,7 @@
 </h2>
 <p>韩国的卫生间还是蛮干净的，这要是在国内，卫生间都被各种小广告占满了吧……[喵喵]剧情看图不动点大GET方式看图五[抓狂]<br><img src="http://ww2.sinaimg.cn/large/006b4LjVgw1eyfctov5a9g309c07s7wj.gif"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3913743476401525" target="freeweibo-mirror">澄清转[话筒]</a>
 </h2>
@@ -54,13 +54,13 @@
 </h2>
 <p>文革后期批小道消息，那些小道消息就是邓矬逼及其它“有心”的玩意弄出来的，现在升级成境外发布转内销。//@坚持追寻正义2://@评水论茶://@梅铮星:转发微博<br><br>RE: 政治谎言背后的罪恶阴谋田忠国中国有没有政治谎言？我们的回答是，自邓小平上台，政治谎言满天飞。那么，邓小平制造了哪些政治谎言呢？第一大政治谎言，莫过于“毛泽东同志犯了严重错误”。第二大政治谎言，... http://t.cn/RUrYCrk</p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3913662332771644" target="freeweibo-mirror">SPAM 友友早安吉祥，周未愉快[微风][微风][微风][鲜…</a>
 </h2>
 <p>SPAM 友友早安吉祥，周未愉快[微风][微风][微风][鲜花][鲜花][鲜花][握手][握手][握手][鲜花][鲜花][鲜花][微风][微风][微风][心]<br><br>RE: 「韩国电影《深情触摸》片段」想看全片？so easy#武汉生活#<br><img src="http://ww2.sinaimg.cn/large/006gDiumgw1eyex61mxh0g309w05knpd.gif"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3913660839961156" target="freeweibo-mirror">刘二狗蛋：70高龄女记者高瑜 因泄露"七不讲", 一审被判7…</a>
 </h2>
