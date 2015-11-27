@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3913846714337036" target="freeweibo-mirror">SPAM 德艺双馨苍老师签约龙珠直播平台，明天14：00宅男…</a>
+</h2>
+<p>SPAM 德艺双馨苍老师签约龙珠直播平台，明天14：00宅男女神全新节目“做你一日女友”，毕竟是一代人的青春，我会记得看。<br><img src="http://ww1.sinaimg.cn/large/6f59401ajw1eyfo72toxoj20gc2b0nbd.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3913827962010818" target="freeweibo-mirror">全世界人民都知道！</a>
 </h2>
 <p>全世界人民都知道！<br><br>RE: 被再次“依法”延长三个月审期，您已经被不明不白关押了18个月多，延长三月审期到期日是2016年2月18日，农历正月初十一春节期间，情人节后第四天。时间横跨三年还拿不出一个像样的证据来定罪，全世界人民都知道：您是无辜的！@肖雪慧49 @清华郭于31华 @任建宇405 @何三畏  @记者陈宝成 @彭洪同学<br><img src="http://ww1.sinaimg.cn/large/006fKeYhjw1eyeuxnu2owj30hs0nldhc.jpg"></p>
@@ -60,7 +66,7 @@
 </h2>
 <p>【加国世姐在港被拒登机赴三亚：对自己的管治没信心吗？】曾公开批评中国人权状况的世界小姐加拿大赛区冠军林耶凡（Anastasia Lin），昨日被拒绝在香港机场登上前往海南三亚的飞机，海南官员告知其“不符合落地签证的资格”。她则反问中国政府是否对管治没有信心。http://t.cn/RUrDCLY<br><img src="http://ww3.sinaimg.cn/large/9dcb59c7jw1eyfdxdurwoj20by2l2txj.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3913753466291522" target="freeweibo-mirror">韩国的卫生间还是蛮干净的，这要是在国内，卫生间都被各种小广告…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3913526852706021" target="freeweibo-mirror">老谣言了，这谣言第一次出现的时候苍老师还是处女呢，传教士夫妇…</a>
 </h2>
 <p>老谣言了，这谣言第一次出现的时候苍老师还是处女呢，传教士夫妇不是被绑票，是因间谍罪被处决，他们死的时候方志敏根本就不在旌德，此事与方志敏毫无关系，方志敏被抓后国民党根本不敢公开审判，他是被秘密处决的，国民党政府根本就没有因传教士的事去判决过任何人，因为他们也不在乎。<br><br>RE: 【方志敏被国民政府处决真相】1934年12月，方志敏部绑架了美国传教士师达能和史文明夫妇，要求巨额赎金二万元美金，二人拒绝，2天后被砍头。此恶行引起全国和世界强烈谴责！次年1月，方战败被俘，民国政府以谋杀师达能夫妇罪判其死刑，同年8月执行。方狱中写下：“我们信仰的主义，乃是宇宙的真理！”<br><img src="http://ww1.sinaimg.cn/large/0065YaaAjw1eydjxl4550j30c88abhdu.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3913505893381663" target="freeweibo-mirror">看到蒼蒼白髮的高瑜記者，不寒而栗，心頭特別難受[泪][泪][…</a>
-</h2>
-<p>看到蒼蒼白髮的高瑜記者，不寒而栗，心頭特別難受[泪][泪][泪]高牆之內還有多少綠林好漢！！！<br><img src="http://ww1.sinaimg.cn/large/e441729bgw1eyekzezb36j20f00qojtp.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
