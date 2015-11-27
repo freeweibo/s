@@ -36,7 +36,13 @@
 </h2>
 <p>「韩国电影《深情触摸》片段」想看全片？so easy#武汉生活#<br><img src="http://ww2.sinaimg.cn/large/006gDiumgw1eyex61mxh0g309w05knpd.gif"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3913588055597738" target="freeweibo-mirror">政治谎言背后的罪恶阴谋田忠国中国有没有政治谎言？我们的回答是…</a>
+</h2>
+<p>政治谎言背后的罪恶阴谋田忠国中国有没有政治谎言？我们的回答是，自邓小平上台，政治谎言满天飞。那么，邓小平制造了哪些政治谎言呢？第一大政治谎言，莫过于“毛泽东同志犯了严重错误”。第二大政治谎言，... http://t.cn/RUrYCrk</p>
+<p>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3913571413262652" target="freeweibo-mirror">SPAM 祝福高瑜！//@山高路远N://@爱-花之-人：回…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3913101600236986" target="freeweibo-mirror">公道自在人心的实证——转发一条微博帖子，竟然被再转发1168…</a>
 </h2>
 <p>公道自在人心的实证——转发一条微博帖子，竟然被再转发1168次。<br><img src="http://ww4.sinaimg.cn/large/73d07b5ejw1eydajn2xlnj20fq0fegml.jpg"></p>
-<p>
-	<small> ============== 2天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3913079228652010" target="freeweibo-mirror">依稀记得有人说过适当的虚构让历史更美好的吧 //@repor…</a>
-</h2>
-<p>依稀记得有人说过适当的虚构让历史更美好的吧 //@reporter记者刘虎:真的还需要这么干？//@任志强:坏习惯总改不了？ //@清华孙立平:篡改历史的就是历史虚无主义吧？<br><br>RE: 大凡有点历史意识的人，应该都厌恶历史虚无主义。什么是历史虚无主义？无非就是蓄意篡改历史事实，把曾经发生过的事情说成没发生过，把没发生过的事情说成发生过。《开国大典》油画曾几经修改，应该算是历史虚无主义的代表作。改开三十余年了，对历史的态度总应该有点进步吧？为何还要重犯过去的错误？<br><img src="http://ww1.sinaimg.cn/large/005XsazYjw1eyczm2bwi8j30pv0zkgph.jpg"></p>
 <p>
 	<small> ============== 2天前</small>
 </p>
