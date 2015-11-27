@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3913938922435111" target="freeweibo-mirror">SPAM 关注微博！每天更新！</a>
+</h2>
+<p>SPAM 关注微博！每天更新！<br><br>RE: 围新：weem888 男-6⃣0⃣-女免 防丢@魔异灵军帅http://t.cn/RUd4Uoj</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3913924153814751" target="freeweibo-mirror">//@兔子老愚: 悲哀！//@刘井夺: //@江雪_故乡: …</a>
 </h2>
 <p>//@兔子老愚: 悲哀！//@刘井夺: //@江雪_故乡: //@刘伟伟是:转发微博<br><br>RE: 今天上午，广州中院开庭审理郭飞雄案，宣判前，法官悍然撕下依法治国伪装，违反控审分离原则，揽下本该检察院干的脏话，当庭追加寻衅滋事罪，已被关押两年多，从未放过风，饱受摧残的郭飞雄被判刑六年。以下是郭的最后陈述。<br><img src="http://ww4.sinaimg.cn/large/006hPgQfjw1eyfhcr0js8j30c81ljqdg.jpg"></p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3913714421660384" target="freeweibo-mirror">//@蒋祖权评论://@斯韦爵: //@海子cn3://@索…</a>
 </h2>
 <p>//@蒋祖权评论://@斯韦爵: //@海子cn3://@索家小新: 泄露“国家机密罪”，还有企图颠覆“国家政权罪”，看来这个国家太脆弱了呀！<br><br>RE: 刘二狗蛋：70高龄女记者高瑜 因泄露"七不讲", 一审被判7年，二审改判五年。 七个不讲充分彰显了这个政权的不要脸本质。所谓“七不讲”： 1,不能讲普世价值。 2,不能讲民主宪政。 3,不能讲司法独立。 4,不能讲多党竞争。 5,不能讲新闻自由。 6,不能讲红色集团的历史错误。 7,不能讲纳税人的权力。<br><img src="http://ww1.sinaimg.cn/large/005AYMpwjw1eyf2ulr8e5j305k05idfv.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3913704905062191" target="freeweibo-mirror">//@寒山风:[疑问]</a>
-</h2>
-<p>//@寒山风:[疑问]<br><br>RE: 刘二狗蛋：70高龄女记者高瑜 因泄露"七不讲", 一审被判7年，二审改判五年。 七个不讲充分彰显了这个政权的不要脸本质。所谓“七不讲”： 1,不能讲普世价值。 2,不能讲民主宪政。 3,不能讲司法独立。 4,不能讲多党竞争。 5,不能讲新闻自由。 6,不能讲红色集团的历史错误。 7,不能讲纳税人的权力。<br><img src="http://ww1.sinaimg.cn/large/005AYMpwjw1eyf2ulr8e5j305k05idfv.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
