@@ -90,7 +90,7 @@
 </h2>
 <p>澄清转[话筒]</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3913714421660384" target="freeweibo-mirror">//@蒋祖权评论://@斯韦爵: //@海子cn3://@索…</a>
 </h2>
