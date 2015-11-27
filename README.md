@@ -68,6 +68,12 @@
 <p>
 	<small> ============== 8小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3913834131590253" target="freeweibo-mirror">围新：weem888 男-6⃣0⃣-女免 防丢@魔异灵军帅h…</a>
+</h2>
+<p>围新：weem888 男-6⃣0⃣-女免 防丢@魔异灵军帅http://t.cn/RUd4Uoj</p>
+<p>
+	<small> ============== 9小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3913833808651771" target="freeweibo-mirror">友人觉得上午重炒桑兰旧案，下午点爆毛宁吸毒，多半是为对冲郭案…</a>
 </h2>
 <p>友人觉得上午重炒桑兰旧案，下午点爆毛宁吸毒，多半是为对冲郭案。我倒觉得用不着这么深谋远虑。时世大变，已经没几个人知道郭案，也没几个人关心郭案了。三十年间事，伤心到盖棺。<br><img src="http://ww2.sinaimg.cn/large/a5658013gw1eyfmprbfoxj20xc18gttt.jpg"></p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3913743476401525" target="freeweibo-mirror">澄清转[话筒]</a>
 </h2>
 <p>澄清转[话筒]</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3913714421660384" target="freeweibo-mirror">//@蒋祖权评论://@斯韦爵: //@海子cn3://@索…</a>
-</h2>
-<p>//@蒋祖权评论://@斯韦爵: //@海子cn3://@索家小新: 泄露“国家机密罪”，还有企图颠覆“国家政权罪”，看来这个国家太脆弱了呀！<br><br>RE: 刘二狗蛋：70高龄女记者高瑜 因泄露"七不讲", 一审被判7年，二审改判五年。 七个不讲充分彰显了这个政权的不要脸本质。所谓“七不讲”： 1,不能讲普世价值。 2,不能讲民主宪政。 3,不能讲司法独立。 4,不能讲多党竞争。 5,不能讲新闻自由。 6,不能讲红色集团的历史错误。 7,不能讲纳税人的权力。<br><img src="http://ww1.sinaimg.cn/large/005AYMpwjw1eyf2ulr8e5j305k05idfv.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
