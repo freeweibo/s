@@ -38,6 +38,12 @@
 <p>
 	<small> ============== 5小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3913833808651771" target="freeweibo-mirror">友人觉得上午重炒桑兰旧案，下午点爆毛宁吸毒，多半是为对冲郭案…</a>
+</h2>
+<p>友人觉得上午重炒桑兰旧案，下午点爆毛宁吸毒，多半是为对冲郭案。我倒觉得用不着这么深谋远虑。时世大变，已经没几个人知道郭案，也没几个人关心郭案了。三十年间事，伤心到盖棺。<br><img src="http://ww2.sinaimg.cn/large/a5658013gw1eyfmprbfoxj20xc18gttt.jpg"></p>
+<p>
+	<small> ============== 6小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3913827962010818" target="freeweibo-mirror">全世界人民都知道！</a>
 </h2>
 <p>全世界人民都知道！<br><br>RE: 被再次“依法”延长三个月审期，您已经被不明不白关押了18个月多，延长三月审期到期日是2016年2月18日，农历正月初十一春节期间，情人节后第四天。时间横跨三年还拿不出一个像样的证据来定罪，全世界人民都知道：您是无辜的！@肖雪慧49 @清华郭于31华 @任建宇405 @何三畏  @记者陈宝成 @彭洪同学<br><img src="http://ww1.sinaimg.cn/large/006fKeYhjw1eyeuxnu2owj30hs0nldhc.jpg"></p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3913588055597738" target="freeweibo-mirror">政治谎言背后的罪恶阴谋田忠国中国有没有政治谎言？我们的回答是…</a>
 </h2>
 <p>政治谎言背后的罪恶阴谋田忠国中国有没有政治谎言？我们的回答是，自邓小平上台，政治谎言满天飞。那么，邓小平制造了哪些政治谎言呢？第一大政治谎言，莫过于“毛泽东同志犯了严重错误”。第二大政治谎言，... http://t.cn/RUrYCrk</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3913571413262652" target="freeweibo-mirror">SPAM 祝福高瑜！//@山高路远N://@爱-花之-人：回…</a>
-</h2>
-<p>SPAM 祝福高瑜！//@山高路远N://@爱-花之-人：回家就好//@路更强1:羞辱高阿姨的，都是吃人血馒头的//@xiaoxuehui47:羞辱高瑜者，该死！//@幸运杨梓:高先生可望出来了 http://t.cn/RUrijpp http://t.cn/RUr9mEe//@ 律师文摘:致敬高瑜先生！<br><br>RE: 看到蒼蒼白髮的高瑜記者，不寒而栗，心頭特別難受[泪][泪][泪]高牆之內還有多少綠林好漢！！！<br><img src="http://ww1.sinaimg.cn/large/e441729bgw1eyekzezb36j20f00qojtp.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
