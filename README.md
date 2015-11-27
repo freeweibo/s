@@ -30,7 +30,7 @@
 </h2>
 <p>唉！<br><br>RE: 友人觉得上午重炒桑兰旧案，下午点爆毛宁吸毒，多半是为对冲郭案。我倒觉得用不着这么深谋远虑。时世大变，已经没几个人知道郭案，也没几个人关心郭案了。三十年间事，伤心到盖棺。<br><img src="http://ww2.sinaimg.cn/large/a5658013gw1eyfmprbfoxj20xc18gttt.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3913846714337036" target="freeweibo-mirror">SPAM 德艺双馨苍老师签约龙珠直播平台，明天14：00宅男…</a>
 </h2>
