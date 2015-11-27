@@ -24,7 +24,7 @@
 </h2>
 <p>SPAM 德艺双馨苍老师签约龙珠直播平台，明天14：00宅男女神全新节目“做你一日女友”，毕竟是一代人的青春，我会记得看。<br><img src="http://ww1.sinaimg.cn/large/6f59401ajw1eyfo72toxoj20gc2b0nbd.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3913827962010818" target="freeweibo-mirror">全世界人民都知道！</a>
 </h2>
@@ -66,7 +66,7 @@
 </h2>
 <p>【加国世姐在港被拒登机赴三亚：对自己的管治没信心吗？】曾公开批评中国人权状况的世界小姐加拿大赛区冠军林耶凡（Anastasia Lin），昨日被拒绝在香港机场登上前往海南三亚的飞机，海南官员告知其“不符合落地签证的资格”。她则反问中国政府是否对管治没有信心。http://t.cn/RUrDCLY<br><img src="http://ww3.sinaimg.cn/large/9dcb59c7jw1eyfdxdurwoj20by2l2txj.jpg"></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3913753466291522" target="freeweibo-mirror">韩国的卫生间还是蛮干净的，这要是在国内，卫生间都被各种小广告…</a>
 </h2>
