@@ -50,11 +50,17 @@
 <p>
 	<small> ============== 4小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3913887746926178" target="freeweibo-mirror">//@孤独的背影-1: //@李方平律师://@王连军律师:…</a>
+</h2>
+<p>//@孤独的背影-1: //@李方平律师://@王连军律师://@陈光武律师:饱受摧残的郭飞雄被判刑六年。<br><br>RE: 今天上午，广州中院开庭审理郭飞雄案，宣判前，法官悍然撕下依法治国伪装，违反控审分离原则，揽下本该检察院干的脏话，当庭追加寻衅滋事罪，已被关押两年多，从未放过风，饱受摧残的郭飞雄被判刑六年。以下是郭的最后陈述。<br><img src="http://ww4.sinaimg.cn/large/006hPgQfjw1eyfhcr0js8j30c81ljqdg.jpg"></p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3913846714337036" target="freeweibo-mirror">SPAM 德艺双馨苍老师签约龙珠直播平台，明天14：00宅男…</a>
 </h2>
 <p>SPAM 德艺双馨苍老师签约龙珠直播平台，明天14：00宅男女神全新节目“做你一日女友”，毕竟是一代人的青春，我会记得看。<br><img src="http://ww1.sinaimg.cn/large/6f59401ajw1eyfo72toxoj20gc2b0nbd.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3913833808651771" target="freeweibo-mirror">友人觉得上午重炒桑兰旧案，下午点爆毛宁吸毒，多半是为对冲郭案…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3913704905062191" target="freeweibo-mirror">//@寒山风:[疑问]</a>
 </h2>
 <p>//@寒山风:[疑问]<br><br>RE: 刘二狗蛋：70高龄女记者高瑜 因泄露"七不讲", 一审被判7年，二审改判五年。 七个不讲充分彰显了这个政权的不要脸本质。所谓“七不讲”： 1,不能讲普世价值。 2,不能讲民主宪政。 3,不能讲司法独立。 4,不能讲多党竞争。 5,不能讲新闻自由。 6,不能讲红色集团的历史错误。 7,不能讲纳税人的权力。<br><img src="http://ww1.sinaimg.cn/large/005AYMpwjw1eyf2ulr8e5j305k05idfv.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3913692066451848" target="freeweibo-mirror">文革后期批小道消息，那些小道消息就是邓矬逼及其它“有心”的玩…</a>
-</h2>
-<p>文革后期批小道消息，那些小道消息就是邓矬逼及其它“有心”的玩意弄出来的，现在升级成境外发布转内销。//@坚持追寻正义2://@评水论茶://@梅铮星:转发微博<br><br>RE: 政治谎言背后的罪恶阴谋田忠国中国有没有政治谎言？我们的回答是，自邓小平上台，政治谎言满天飞。那么，邓小平制造了哪些政治谎言呢？第一大政治谎言，莫过于“毛泽东同志犯了严重错误”。第二大政治谎言，... http://t.cn/RUrYCrk</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
