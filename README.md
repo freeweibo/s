@@ -24,7 +24,7 @@
 </h2>
 <p>SPAM [偷笑][笑哈哈] //@技能大叔://@智障妹纸: 绝了[喵喵]</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3913890146417764" target="freeweibo-mirror">唉！</a>
 </h2>
