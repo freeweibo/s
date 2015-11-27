@@ -54,7 +54,7 @@
 </h2>
 <p>菜狗狗<br><br>RE: 友人觉得上午重炒桑兰旧案，下午点爆毛宁吸毒，多半是为对冲郭案。我倒觉得用不着这么深谋远虑。时世大变，已经没几个人知道郭案，也没几个人关心郭案了。三十年间事，伤心到盖棺。<br><img src="http://ww2.sinaimg.cn/large/a5658013gw1eyfmprbfoxj20xc18gttt.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3913887746926178" target="freeweibo-mirror">//@孤独的背影-1: //@李方平律师://@王连军律师:…</a>
 </h2>
@@ -84,7 +84,7 @@
 </h2>
 <p>全世界人民都知道！<br><br>RE: 被再次“依法”延长三个月审期，您已经被不明不白关押了18个月多，延长三月审期到期日是2016年2月18日，农历正月初十一春节期间，情人节后第四天。时间横跨三年还拿不出一个像样的证据来定罪，全世界人民都知道：您是无辜的！@肖雪慧49 @清华郭于31华 @任建宇405 @何三畏  @记者陈宝成 @彭洪同学<br><img src="http://ww1.sinaimg.cn/large/006fKeYhjw1eyeuxnu2owj30hs0nldhc.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3913804221740474" target="freeweibo-mirror">SPAM 果然是一个靠谱滴逗逼，这年头，遇到这样滴店主，就嫁…</a>
 </h2>
