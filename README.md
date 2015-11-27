@@ -54,7 +54,7 @@
 </h2>
 <p>SPAM [笑cry][笑cry]<br><br>RE: 韩国的卫生间还是蛮干净的，这要是在国内，卫生间都被各种小广告占满了吧……[喵喵]剧情看图不动点大GET方式看图五[抓狂]<br><img src="http://ww2.sinaimg.cn/large/006b4LjVgw1eyfctov5a9g309c07s7wj.gif"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3913757288034405" target="freeweibo-mirror">【加国世姐在港被拒登机赴三亚：对自己的管治没信心吗？】曾公开…</a>
 </h2>
@@ -72,7 +72,7 @@
 </h2>
 <p>澄清转[话筒]</p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3913714421660384" target="freeweibo-mirror">//@蒋祖权评论://@斯韦爵: //@海子cn3://@索…</a>
 </h2>
