@@ -30,7 +30,7 @@
 </h2>
 <p>SPAM [偷笑][笑哈哈] //@技能大叔://@智障妹纸: 绝了[喵喵]</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3913897834706378" target="freeweibo-mirror">#把雾化带回家#最常见的照顾宝宝的五大错误方式，宝妈们，你中…</a>
 </h2>
@@ -73,6 +73,12 @@
 <p>SPAM 果然是一个靠谱滴逗逼，这年头，遇到这样滴店主，就嫁了吧！！！[微笑]</p>
 <p>
 	<small> ============== 9小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3913787935181851" target="freeweibo-mirror">今天上午，广州中院开庭审理郭飞雄案，宣判前，法官悍然撕下依法…</a>
+</h2>
+<p>今天上午，广州中院开庭审理郭飞雄案，宣判前，法官悍然撕下依法治国伪装，违反控审分离原则，揽下本该检察院干的脏话，当庭追加寻衅滋事罪，已被关押两年多，从未放过风，饱受摧残的郭飞雄被判刑六年。以下是郭的最后陈述。<br><img src="http://ww4.sinaimg.cn/large/006hPgQfjw1eyfhcr0js8j30c81ljqdg.jpg"></p>
+<p>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3913779681271965" target="freeweibo-mirror">女人这辈子要么就管住下面的嘴，要么就管住上面的嘴，否则…就和…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3913692066451848" target="freeweibo-mirror">文革后期批小道消息，那些小道消息就是邓矬逼及其它“有心”的玩…</a>
 </h2>
 <p>文革后期批小道消息，那些小道消息就是邓矬逼及其它“有心”的玩意弄出来的，现在升级成境外发布转内销。//@坚持追寻正义2://@评水论茶://@梅铮星:转发微博<br><br>RE: 政治谎言背后的罪恶阴谋田忠国中国有没有政治谎言？我们的回答是，自邓小平上台，政治谎言满天飞。那么，邓小平制造了哪些政治谎言呢？第一大政治谎言，莫过于“毛泽东同志犯了严重错误”。第二大政治谎言，... http://t.cn/RUrYCrk</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3913662332771644" target="freeweibo-mirror">SPAM 友友早安吉祥，周未愉快[微风][微风][微风][鲜…</a>
-</h2>
-<p>SPAM 友友早安吉祥，周未愉快[微风][微风][微风][鲜花][鲜花][鲜花][握手][握手][握手][鲜花][鲜花][鲜花][微风][微风][微风][心]<br><br>RE: 「韩国电影《深情触摸》片段」想看全片？so easy#武汉生活#<br><img src="http://ww2.sinaimg.cn/large/006gDiumgw1eyex61mxh0g309w05knpd.gif"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
