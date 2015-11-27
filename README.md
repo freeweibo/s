@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3913902745978324" target="freeweibo-mirror">SPAM [偷笑][笑哈哈] //@技能大叔://@智障妹纸…</a>
+</h2>
+<p>SPAM [偷笑][笑哈哈] //@技能大叔://@智障妹纸: 绝了[喵喵]</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3913846714337036" target="freeweibo-mirror">SPAM 德艺双馨苍老师签约龙珠直播平台，明天14：00宅男…</a>
 </h2>
 <p>SPAM 德艺双馨苍老师签约龙珠直播平台，明天14：00宅男女神全新节目“做你一日女友”，毕竟是一代人的青春，我会记得看。<br><img src="http://ww1.sinaimg.cn/large/6f59401ajw1eyfo72toxoj20gc2b0nbd.jpg"></p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3913534775506610" target="freeweibo-mirror">「便纵有千种姿势，更与何人啪！？」get√ #啪啪夜话#</a>
 </h2>
 <p>「便纵有千种姿势，更与何人啪！？」get√ #啪啪夜话#<br><img src="http://ww1.sinaimg.cn/large/672c0d86jw1eyeky046otg20c80w3jsh.gif"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3913526852706021" target="freeweibo-mirror">老谣言了，这谣言第一次出现的时候苍老师还是处女呢，传教士夫妇…</a>
-</h2>
-<p>老谣言了，这谣言第一次出现的时候苍老师还是处女呢，传教士夫妇不是被绑票，是因间谍罪被处决，他们死的时候方志敏根本就不在旌德，此事与方志敏毫无关系，方志敏被抓后国民党根本不敢公开审判，他是被秘密处决的，国民党政府根本就没有因传教士的事去判决过任何人，因为他们也不在乎。<br><br>RE: 【方志敏被国民政府处决真相】1934年12月，方志敏部绑架了美国传教士师达能和史文明夫妇，要求巨额赎金二万元美金，二人拒绝，2天后被砍头。此恶行引起全国和世界强烈谴责！次年1月，方战败被俘，民国政府以谋杀师达能夫妇罪判其死刑，同年8月执行。方狱中写下：“我们信仰的主义，乃是宇宙的真理！”<br><img src="http://ww1.sinaimg.cn/large/0065YaaAjw1eydjxl4550j30c88abhdu.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
