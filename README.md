@@ -30,7 +30,19 @@
 </h2>
 <p>女人这辈子要么就管住下面的嘴，要么就管住上面的嘴，否则…就和钱无缘 //@天祥宋瑞:不能放民主婊、人权婊、太阳花婊到大陆卖淫<br><br>RE: 【加国世姐在港被拒登机赴三亚：对自己的管治没信心吗？】曾公开批评中国人权状况的世界小姐加拿大赛区冠军林耶凡（Anastasia Lin），昨日被拒绝在香港机场登上前往海南三亚的飞机，海南官员告知其“不符合落地签证的资格”。她则反问中国政府是否对管治没有信心。http://t.cn/RUrDCLY<br><img src="http://ww3.sinaimg.cn/large/9dcb59c7jw1eyfdxdurwoj20by2l2txj.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3913779316317978" target="freeweibo-mirror">//@逆风蝴蝶://@烹肘:若有人带刀带枪上飞机被拒绝，是不…</a>
+</h2>
+<p>//@逆风蝴蝶://@烹肘:若有人带刀带枪上飞机被拒绝，是不是也要质疑全世界都对管治没信心？？如此不安分的找事的，拦下就说明对了。//@三思柯南:哈哈哈，南华早报真逗，为啥在倒数第5段才说出她是轮子的人，南华早报是否对读者没有信心？<br><br>RE: 【加国世姐在港被拒登机赴三亚：对自己的管治没信心吗？】曾公开批评中国人权状况的世界小姐加拿大赛区冠军林耶凡（Anastasia Lin），昨日被拒绝在香港机场登上前往海南三亚的飞机，海南官员告知其“不符合落地签证的资格”。她则反问中国政府是否对管治没有信心。http://t.cn/RUrDCLY<br><img src="http://ww3.sinaimg.cn/large/9dcb59c7jw1eyfdxdurwoj20by2l2txj.jpg"></p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3913768566218469" target="freeweibo-mirror">这次来有点闯关的意思。此前在多伦多地区许多亲中的华人社团已经…</a>
+</h2>
+<p>这次来有点闯关的意思。此前在多伦多地区许多亲中的华人社团已经不邀请她参加活动了。//@猫头鹰快艇: 半年前伊斯兰人权斗士在欧洲也“相安无事”。不过我更好奇为啥世界小姐会选出大饼脸来//@陶短房:相安无事……您是没见过大清早丽晶广场的大某元大妈怎么把别家免费报全部塞进垃圾桶的干劲吧<br><br>RE: 【加国世姐在港被拒登机赴三亚：对自己的管治没信心吗？】曾公开批评中国人权状况的世界小姐加拿大赛区冠军林耶凡（Anastasia Lin），昨日被拒绝在香港机场登上前往海南三亚的飞机，海南官员告知其“不符合落地签证的资格”。她则反问中国政府是否对管治没有信心。http://t.cn/RUrDCLY<br><img src="http://ww3.sinaimg.cn/large/9dcb59c7jw1eyfdxdurwoj20by2l2txj.jpg"></p>
+<p>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3913758340127787" target="freeweibo-mirror">SPAM [笑cry][笑cry]</a>
 </h2>
@@ -125,18 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3913489670600300" target="freeweibo-mirror">SPAM #把雾化带回家#最常见的照顾宝宝的五大错误方式，宝…</a>
 </h2>
 <p>SPAM #把雾化带回家#最常见的照顾宝宝的五大错误方式，宝妈们，你中招了吗？<br><img src="http://ww2.sinaimg.cn/large/9c900017gw1eyej2iergjj20c8313kj9.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3913425329157600" target="freeweibo-mirror">#成都爆炸#全城听到巨响，来报一下坐标，你在哪里？听到爆炸声…</a>
-</h2>
-<p>#成都爆炸#全城听到巨响，来报一下坐标，你在哪里？听到爆炸声没？</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3913423903833292" target="freeweibo-mirror">SPAM No zuo No die</a>
-</h2>
-<p>SPAM No zuo No die<br><br>RE: ISIS、意思意思！發生在深圳龍崗的事！<br><img src="http://ww4.sinaimg.cn/large/5937c055jw1eye7bxarkmj20er0hsn0k.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
