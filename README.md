@@ -26,6 +26,12 @@
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3913611505851508" target="freeweibo-mirror">「韩国电影《深情触摸》片段」想看全片？so easy#武汉生…</a>
+</h2>
+<p>「韩国电影《深情触摸》片段」想看全片？so easy#武汉生活#<br><img src="http://ww2.sinaimg.cn/large/006gDiumgw1eyex61mxh0g309w05knpd.gif"></p>
+<p>
+	<small> ============== 7小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3913571413262652" target="freeweibo-mirror">SPAM 祝福高瑜！//@山高路远N://@爱-花之-人：回…</a>
 </h2>
 <p>SPAM 祝福高瑜！//@山高路远N://@爱-花之-人：回家就好//@路更强1:羞辱高阿姨的，都是吃人血馒头的//@xiaoxuehui47:羞辱高瑜者，该死！//@幸运杨梓:高先生可望出来了 http://t.cn/RUrijpp http://t.cn/RUr9mEe//@ 律师文摘:致敬高瑜先生！<br><br>RE: 看到蒼蒼白髮的高瑜記者，不寒而栗，心頭特別難受[泪][泪][泪]高牆之內還有多少綠林好漢！！！<br><img src="http://ww1.sinaimg.cn/large/e441729bgw1eyekzezb36j20f00qojtp.jpg"></p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3913076400907334" target="freeweibo-mirror">//@任志强:坏习惯总改不了？ //@清华孙立平:篡改历史的…</a>
 </h2>
 <p>//@任志强:坏习惯总改不了？ //@清华孙立平:篡改历史的就是历史虚无主义吧？<br><br>RE: 大凡有点历史意识的人，应该都厌恶历史虚无主义。什么是历史虚无主义？无非就是蓄意篡改历史事实，把曾经发生过的事情说成没发生过，把没发生过的事情说成发生过。《开国大典》油画曾几经修改，应该算是历史虚无主义的代表作。改开三十余年了，对历史的态度总应该有点进步吧？为何还要重犯过去的错误？<br><img src="http://ww1.sinaimg.cn/large/005XsazYjw1eyczm2bwi8j30pv0zkgph.jpg"></p>
-<p>
-	<small> ============== 2天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3913068310408757" target="freeweibo-mirror">SPAM 可惜啦</a>
-</h2>
-<p>SPAM 可惜啦<br><br>RE: 正在画的一个漫画，迟点会在网上连载，这些都不会有，我删了。<br><img src="http://ww4.sinaimg.cn/large/4e710e51gw1eyd6p5fjd8j20p00xctla.jpg"></p>
 <p>
 	<small> ============== 2天前</small>
 </p>
