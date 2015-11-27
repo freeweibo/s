@@ -66,7 +66,7 @@
 </h2>
 <p>SPAM 德艺双馨苍老师签约龙珠直播平台，明天14：00宅男女神全新节目“做你一日女友”，毕竟是一代人的青春，我会记得看。<br><img src="http://ww1.sinaimg.cn/large/6f59401ajw1eyfo72toxoj20gc2b0nbd.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3913834131590253" target="freeweibo-mirror">围新：weem888 男-6⃣0⃣-女免 防丢@魔异灵军帅h…</a>
 </h2>
