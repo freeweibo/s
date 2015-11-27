@@ -26,6 +26,12 @@
 <p>
 	<small> ============== 1小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3913890146417764" target="freeweibo-mirror">唉！</a>
+</h2>
+<p>唉！<br><br>RE: 友人觉得上午重炒桑兰旧案，下午点爆毛宁吸毒，多半是为对冲郭案。我倒觉得用不着这么深谋远虑。时世大变，已经没几个人知道郭案，也没几个人关心郭案了。三十年间事，伤心到盖棺。<br><img src="http://ww2.sinaimg.cn/large/a5658013gw1eyfmprbfoxj20xc18gttt.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3913846714337036" target="freeweibo-mirror">SPAM 德艺双馨苍老师签约龙珠直播平台，明天14：00宅男…</a>
 </h2>
 <p>SPAM 德艺双馨苍老师签约龙珠直播平台，明天14：00宅男女神全新节目“做你一日女友”，毕竟是一代人的青春，我会记得看。<br><img src="http://ww1.sinaimg.cn/large/6f59401ajw1eyfo72toxoj20gc2b0nbd.jpg"></p>
@@ -48,13 +54,13 @@
 </h2>
 <p>女人这辈子要么就管住下面的嘴，要么就管住上面的嘴，否则…就和钱无缘 //@天祥宋瑞:不能放民主婊、人权婊、太阳花婊到大陆卖淫<br><br>RE: 【加国世姐在港被拒登机赴三亚：对自己的管治没信心吗？】曾公开批评中国人权状况的世界小姐加拿大赛区冠军林耶凡（Anastasia Lin），昨日被拒绝在香港机场登上前往海南三亚的飞机，海南官员告知其“不符合落地签证的资格”。她则反问中国政府是否对管治没有信心。http://t.cn/RUrDCLY<br><img src="http://ww3.sinaimg.cn/large/9dcb59c7jw1eyfdxdurwoj20by2l2txj.jpg"></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3913779316317978" target="freeweibo-mirror">//@逆风蝴蝶://@烹肘:若有人带刀带枪上飞机被拒绝，是不…</a>
 </h2>
 <p>//@逆风蝴蝶://@烹肘:若有人带刀带枪上飞机被拒绝，是不是也要质疑全世界都对管治没信心？？如此不安分的找事的，拦下就说明对了。//@三思柯南:哈哈哈，南华早报真逗，为啥在倒数第5段才说出她是轮子的人，南华早报是否对读者没有信心？<br><br>RE: 【加国世姐在港被拒登机赴三亚：对自己的管治没信心吗？】曾公开批评中国人权状况的世界小姐加拿大赛区冠军林耶凡（Anastasia Lin），昨日被拒绝在香港机场登上前往海南三亚的飞机，海南官员告知其“不符合落地签证的资格”。她则反问中国政府是否对管治没有信心。http://t.cn/RUrDCLY<br><img src="http://ww3.sinaimg.cn/large/9dcb59c7jw1eyfdxdurwoj20by2l2txj.jpg"></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3913768566218469" target="freeweibo-mirror">这次来有点闯关的意思。此前在多伦多地区许多亲中的华人社团已经…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3913571413262652" target="freeweibo-mirror">SPAM 祝福高瑜！//@山高路远N://@爱-花之-人：回…</a>
 </h2>
 <p>SPAM 祝福高瑜！//@山高路远N://@爱-花之-人：回家就好//@路更强1:羞辱高阿姨的，都是吃人血馒头的//@xiaoxuehui47:羞辱高瑜者，该死！//@幸运杨梓:高先生可望出来了 http://t.cn/RUrijpp http://t.cn/RUr9mEe//@ 律师文摘:致敬高瑜先生！<br><br>RE: 看到蒼蒼白髮的高瑜記者，不寒而栗，心頭特別難受[泪][泪][泪]高牆之內還有多少綠林好漢！！！<br><img src="http://ww1.sinaimg.cn/large/e441729bgw1eyekzezb36j20f00qojtp.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3913534775506610" target="freeweibo-mirror">「便纵有千种姿势，更与何人啪！？」get√ #啪啪夜话#</a>
-</h2>
-<p>「便纵有千种姿势，更与何人啪！？」get√ #啪啪夜话#<br><img src="http://ww1.sinaimg.cn/large/672c0d86jw1eyeky046otg20c80w3jsh.gif"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
