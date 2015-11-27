@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3913743476401525" target="freeweibo-mirror">澄清转[话筒]</a>
+</h2>
+<p>澄清转[话筒]</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3913714421660384" target="freeweibo-mirror">//@蒋祖权评论://@斯韦爵: //@海子cn3://@索…</a>
 </h2>
 <p>//@蒋祖权评论://@斯韦爵: //@海子cn3://@索家小新: 泄露“国家机密罪”，还有企图颠覆“国家政权罪”，看来这个国家太脆弱了呀！<br><br>RE: 刘二狗蛋：70高龄女记者高瑜 因泄露"七不讲", 一审被判7年，二审改判五年。 七个不讲充分彰显了这个政权的不要脸本质。所谓“七不讲”： 1,不能讲普世价值。 2,不能讲民主宪政。 3,不能讲司法独立。 4,不能讲多党竞争。 5,不能讲新闻自由。 6,不能讲红色集团的历史错误。 7,不能讲纳税人的权力。<br><img src="http://ww1.sinaimg.cn/large/005AYMpwjw1eyf2ulr8e5j305k05idfv.jpg"></p>
@@ -133,12 +139,6 @@
 <p>【高瑜案二审今宣判 法院外再布警】北京市高级人民法院今天将开庭，宣布高瑜被控向境外非法提供国家秘密罪一案二审判决。二审庭审之后，她的律师曾表示，有改轻判的可能。今天早上，法院外停泊了多辆警车，公安人员从近8时开始，封锁法院外围道路。http://t.cn/RUrPvxj<br><img src="http://ww2.sinaimg.cn/large/9dcb59c7jw1eye4fdxmt1j20m80eagot.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3913217107244922" target="freeweibo-mirror">//@吴显庆教授: http://t.cn/RUBummH …</a>
-</h2>
-<p>//@吴显庆教授: http://t.cn/RUBummH //@南洋客NJ: 中宣部工作严重失误！为啥不将这份报纸在全国范围内全部销毁？[吃惊]//@王建国: //@吴显庆教授: 实事求是包括尊重和如实介绍历史事实。 http://t.cn/RUBYPuf //@乾山云: 第四位领导人还是禁词。。<br><br>RE: 公道自在人心的实证——转发一条微博帖子，竟然被再转发1168次。<br><img src="http://ww4.sinaimg.cn/large/73d07b5ejw1eydajn2xlnj20fq0fegml.jpg"></p>
-<p>
-	<small> ============== 2天前</small>
 </p>
 <table>
     <tr>
