@@ -38,6 +38,12 @@
 <p>
 	<small> ============== 5小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3913660839961156" target="freeweibo-mirror">刘二狗蛋：70高龄女记者高瑜 因泄露"七不讲", 一审被判7…</a>
+</h2>
+<p>刘二狗蛋：70高龄女记者高瑜 因泄露"七不讲", 一审被判7年，二审改判五年。 七个不讲充分彰显了这个政权的不要脸本质。所谓“七不讲”： 1,不能讲普世价值。 2,不能讲民主宪政。 3,不能讲司法独立。 4,不能讲多党竞争。 5,不能讲新闻自由。 6,不能讲红色集团的历史错误。 7,不能讲纳税人的权力。<br><img src="http://ww1.sinaimg.cn/large/005AYMpwjw1eyf2ulr8e5j305k05idfv.jpg"></p>
+<p>
+	<small> ============== 5小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3913611505851508" target="freeweibo-mirror">「韩国电影《深情触摸》片段」想看全片？so easy#武汉生…</a>
 </h2>
 <p>「韩国电影《深情触摸》片段」想看全片？so easy#武汉生活#<br><img src="http://ww2.sinaimg.cn/large/006gDiumgw1eyex61mxh0g309w05knpd.gif"></p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3913208912370245" target="freeweibo-mirror">//@赣B_自油博报: //@若可因心: //@东河-猎鹰倚…</a>
 </h2>
 <p>//@赣B_自油博报: //@若可因心: //@东河-猎鹰倚天屠龙://@老饕加鈾: //@戎崎裕rongqiyu://@索家小新: 笑话就笑一个吧，反正笑的人那么多，多大家一个不多呀//@Andy-_-Yeung4: //@乌托国民15:转发微博</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3913202746358895" target="freeweibo-mirror">【看，列宁掉地上了】列宁和斯大林的雕像曾经遍及苏联各地，以至…</a>
-</h2>
-<p>【看，列宁掉地上了】列宁和斯大林的雕像曾经遍及苏联各地，以至于有笑话说：街上根本不用安路灯，让各位斯大林手里举个灯泡就可以了。当苏联已成往事，那些神圣不可侵犯的领袖宝相又都遭遇了些什么？作者：李日飞、@张小榛想做录音师 http://t.cn/RUBmu9I</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
