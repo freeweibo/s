@@ -90,7 +90,7 @@
 </h2>
 <p>今天上午，广州中院开庭审理郭飞雄案，宣判前，法官悍然撕下依法治国伪装，违反控审分离原则，揽下本该检察院干的脏话，当庭追加寻衅滋事罪，已被关押两年多，从未放过风，饱受摧残的郭飞雄被判刑六年。以下是郭的最后陈述。<br><img src="http://ww4.sinaimg.cn/large/006hPgQfjw1eyfhcr0js8j30c81ljqdg.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3913779681271965" target="freeweibo-mirror">女人这辈子要么就管住下面的嘴，要么就管住上面的嘴，否则…就和…</a>
 </h2>
