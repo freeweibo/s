@@ -96,7 +96,7 @@
 </h2>
 <p>SPAM 友友早安吉祥，周未愉快[微风][微风][微风][鲜花][鲜花][鲜花][握手][握手][握手][鲜花][鲜花][鲜花][微风][微风][微风][心]<br><br>RE: 「韩国电影《深情触摸》片段」想看全片？so easy#武汉生活#<br><img src="http://ww2.sinaimg.cn/large/006gDiumgw1eyex61mxh0g309w05knpd.gif"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3913660839961156" target="freeweibo-mirror">刘二狗蛋：70高龄女记者高瑜 因泄露"七不讲", 一审被判7…</a>
 </h2>
