@@ -30,13 +30,13 @@
 </h2>
 <p>文革后期批小道消息，那些小道消息就是邓矬逼及其它“有心”的玩意弄出来的，现在升级成境外发布转内销。//@坚持追寻正义2://@评水论茶://@梅铮星:转发微博<br><br>RE: 政治谎言背后的罪恶阴谋田忠国中国有没有政治谎言？我们的回答是，自邓小平上台，政治谎言满天飞。那么，邓小平制造了哪些政治谎言呢？第一大政治谎言，莫过于“毛泽东同志犯了严重错误”。第二大政治谎言，... http://t.cn/RUrYCrk</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3913662332771644" target="freeweibo-mirror">SPAM 友友早安吉祥，周未愉快[微风][微风][微风][鲜…</a>
 </h2>
 <p>SPAM 友友早安吉祥，周未愉快[微风][微风][微风][鲜花][鲜花][鲜花][握手][握手][握手][鲜花][鲜花][鲜花][微风][微风][微风][心]<br><br>RE: 「韩国电影《深情触摸》片段」想看全片？so easy#武汉生活#<br><img src="http://ww2.sinaimg.cn/large/006gDiumgw1eyex61mxh0g309w05knpd.gif"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3913611505851508" target="freeweibo-mirror">「韩国电影《深情触摸》片段」想看全片？so easy#武汉生…</a>
 </h2>
@@ -54,7 +54,7 @@
 </h2>
 <p>SPAM 祝福高瑜！//@山高路远N://@爱-花之-人：回家就好//@路更强1:羞辱高阿姨的，都是吃人血馒头的//@xiaoxuehui47:羞辱高瑜者，该死！//@幸运杨梓:高先生可望出来了 http://t.cn/RUrijpp http://t.cn/RUr9mEe//@ 律师文摘:致敬高瑜先生！<br><br>RE: 看到蒼蒼白髮的高瑜記者，不寒而栗，心頭特別難受[泪][泪][泪]高牆之內還有多少綠林好漢！！！<br><img src="http://ww1.sinaimg.cn/large/e441729bgw1eyekzezb36j20f00qojtp.jpg"></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3913534775506610" target="freeweibo-mirror">「便纵有千种姿势，更与何人啪！？」get√ #啪啪夜话#</a>
 </h2>
