@@ -20,11 +20,17 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3914111446194412" target="freeweibo-mirror">蒋的政治对手即使输了，大不了下野，逍遥自在无官一身轻，等待再…</a>
+</h2>
+<p>蒋的政治对手即使输了，大不了下野，逍遥自在无官一身轻，等待再次重返政坛，如中原大战后的冯玉祥阎锡山；差一点的如张学良孙立人，也不过是退出政界被衣食无忧的软禁；蒋从没将党内不同政见者从肉体上消灭或投进监狱。毛的政治对手就没有这么幸运了，一旦输了轻则声败名裂，重则百般批斗折磨惨死！<br><img src="http://ww3.sinaimg.cn/large/006gXXpBgw1eygilmte6nj30hs0hs755.jpg"></p>
+<p>
+	<small> ============== 7小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3914072812708188" target="freeweibo-mirror">【中国官媒：军方首次证实解放军将分四大战区】中国官媒和军方学…</a>
 </h2>
 <p>【中国官媒：军方首次证实解放军将分四大战区】中国官媒和军方学者首度证实有关解放军七大军区可能改成四个战区的传言。国防大学教授公方彬大校说，七大军区可能改成方向性战区，“如东、西、南、北。”也有军事学者分析，这轮军改后，解放军四总部有可能要“改名换姓”。http://t.cn/RUdOvLy<br><img src="http://ww4.sinaimg.cn/large/6298156bgw1eyge5ux70tj21kw16h7cy.jpg"></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3913938922435111" target="freeweibo-mirror">SPAM 关注微博！每天更新！</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3913757288034405" target="freeweibo-mirror">【加国世姐在港被拒登机赴三亚：对自己的管治没信心吗？】曾公开…</a>
 </h2>
 <p>【加国世姐在港被拒登机赴三亚：对自己的管治没信心吗？】曾公开批评中国人权状况的世界小姐加拿大赛区冠军林耶凡（Anastasia Lin），昨日被拒绝在香港机场登上前往海南三亚的飞机，海南官员告知其“不符合落地签证的资格”。她则反问中国政府是否对管治没有信心。http://t.cn/RUrDCLY<br><img src="http://ww3.sinaimg.cn/large/9dcb59c7jw1eyfdxdurwoj20by2l2txj.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3913753466291522" target="freeweibo-mirror">韩国的卫生间还是蛮干净的，这要是在国内，卫生间都被各种小广告…</a>
-</h2>
-<p>韩国的卫生间还是蛮干净的，这要是在国内，卫生间都被各种小广告占满了吧……[喵喵]剧情看图不动点大GET方式看图五[抓狂]<br><img src="http://ww2.sinaimg.cn/large/006b4LjVgw1eyfctov5a9g309c07s7wj.gif"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
