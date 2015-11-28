@@ -30,7 +30,7 @@
 </h2>
 <p>SPAM 关注微博！每天更新！<br><br>RE: 围新：weem888 男-6⃣0⃣-女免 防丢@魔异灵军帅http://t.cn/RUd4Uoj</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3913924153814751" target="freeweibo-mirror">//@兔子老愚: 悲哀！//@刘井夺: //@江雪_故乡: …</a>
 </h2>
