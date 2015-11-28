@@ -20,11 +20,23 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3914271497084966" target="freeweibo-mirror">SPAM //@早社: //@乱零飞21://@shbh13…</a>
+</h2>
+<p>SPAM //@早社: //@乱零飞21://@shbh131: //@猫公子不会不吃鱼: [握手][握手][握手]//@双鱼妹儿62: 坚持挺薄！[爱你][爱你][爱你][爱你] //@坚持追寻正义2://@高高不太高://@静夜之笋悄悄长7: //@渝连思念9:[心][心][心][心][心][心]//@猫公子不会不吃鱼:[心][心][心]@双鱼妹儿62</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3914208263523232" target="freeweibo-mirror">【局长之子逼人吃屎的背后】这是一段不久前在网上疯传的校园暴力…</a>
+</h2>
+<p>【局长之子逼人吃屎的背后】这是一段不久前在网上疯传的校园暴力视频，但据今日网曝，在厕所暴打并逼其同学吃屎的，正是河南兰考县教育局长的儿子......微评：子过父责，千古真理。 一个连自己的孩子都教育不好的教育局长，怎么可能搞好一方教育工作？子恶当罚，其父该否被查？http://t.cn/RUoi52b</p>
+<p>
+	<small> ============== 5小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3914111446194412" target="freeweibo-mirror">蒋的政治对手即使输了，大不了下野，逍遥自在无官一身轻，等待再…</a>
 </h2>
 <p>蒋的政治对手即使输了，大不了下野，逍遥自在无官一身轻，等待再次重返政坛，如中原大战后的冯玉祥阎锡山；差一点的如张学良孙立人，也不过是退出政界被衣食无忧的软禁；蒋从没将党内不同政见者从肉体上消灭或投进监狱。毛的政治对手就没有这么幸运了，一旦输了轻则声败名裂，重则百般批斗折磨惨死！<br><img src="http://ww3.sinaimg.cn/large/006gXXpBgw1eygilmte6nj30hs0hs755.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3914072812708188" target="freeweibo-mirror">【中国官媒：军方首次证实解放军将分四大战区】中国官媒和军方学…</a>
 </h2>
@@ -125,18 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3913768566218469" target="freeweibo-mirror">这次来有点闯关的意思。此前在多伦多地区许多亲中的华人社团已经…</a>
 </h2>
 <p>这次来有点闯关的意思。此前在多伦多地区许多亲中的华人社团已经不邀请她参加活动了。//@猫头鹰快艇: 半年前伊斯兰人权斗士在欧洲也“相安无事”。不过我更好奇为啥世界小姐会选出大饼脸来//@陶短房:相安无事……您是没见过大清早丽晶广场的大某元大妈怎么把别家免费报全部塞进垃圾桶的干劲吧<br><br>RE: 【加国世姐在港被拒登机赴三亚：对自己的管治没信心吗？】曾公开批评中国人权状况的世界小姐加拿大赛区冠军林耶凡（Anastasia Lin），昨日被拒绝在香港机场登上前往海南三亚的飞机，海南官员告知其“不符合落地签证的资格”。她则反问中国政府是否对管治没有信心。http://t.cn/RUrDCLY<br><img src="http://ww3.sinaimg.cn/large/9dcb59c7jw1eyfdxdurwoj20by2l2txj.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3913758340127787" target="freeweibo-mirror">SPAM [笑cry][笑cry]</a>
-</h2>
-<p>SPAM [笑cry][笑cry]<br><br>RE: 韩国的卫生间还是蛮干净的，这要是在国内，卫生间都被各种小广告占满了吧……[喵喵]剧情看图不动点大GET方式看图五[抓狂]<br><img src="http://ww2.sinaimg.cn/large/006b4LjVgw1eyfctov5a9g309c07s7wj.gif"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3913757288034405" target="freeweibo-mirror">【加国世姐在港被拒登机赴三亚：对自己的管治没信心吗？】曾公开…</a>
-</h2>
-<p>【加国世姐在港被拒登机赴三亚：对自己的管治没信心吗？】曾公开批评中国人权状况的世界小姐加拿大赛区冠军林耶凡（Anastasia Lin），昨日被拒绝在香港机场登上前往海南三亚的飞机，海南官员告知其“不符合落地签证的资格”。她则反问中国政府是否对管治没有信心。http://t.cn/RUrDCLY<br><img src="http://ww3.sinaimg.cn/large/9dcb59c7jw1eyfdxdurwoj20by2l2txj.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
