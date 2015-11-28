@@ -30,7 +30,7 @@
 </h2>
 <p>【中国官媒：军方首次证实解放军将分四大战区】中国官媒和军方学者首度证实有关解放军七大军区可能改成四个战区的传言。国防大学教授公方彬大校说，七大军区可能改成方向性战区，“如东、西、南、北。”也有军事学者分析，这轮军改后，解放军四总部有可能要“改名换姓”。http://t.cn/RUdOvLy<br><img src="http://ww4.sinaimg.cn/large/6298156bgw1eyge5ux70tj21kw16h7cy.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3913938922435111" target="freeweibo-mirror">SPAM 关注微博！每天更新！</a>
 </h2>
