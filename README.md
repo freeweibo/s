@@ -36,11 +36,17 @@
 </h2>
 <p>SPAM 到后来才发现，最时尚的单品应该是长腿。 想瘦的，找她。[心] @美人邦_Suellen</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3914271497084966" target="freeweibo-mirror">SPAM //@早社: //@乱零飞21://@shbh13…</a>
 </h2>
 <p>SPAM //@早社: //@乱零飞21://@shbh131: //@猫公子不会不吃鱼: [握手][握手][握手]//@双鱼妹儿62: 坚持挺薄！[爱你][爱你][爱你][爱你] //@坚持追寻正义2://@高高不太高://@静夜之笋悄悄长7: //@渝连思念9:[心][心][心][心][心][心]//@猫公子不会不吃鱼:[心][心][心]@双鱼妹儿62</p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3914270184067854" target="freeweibo-mirror">王墨案覃律师接受台湾中央广播电台采访报道 http://t.…</a>
+</h2>
+<p>王墨案覃律师接受台湾中央广播电台采访报道 http://t.cn/RUgz1x3 .</p>
 <p>
 	<small> ============== 4小时前</small>
 </p><h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3913804221740474" target="freeweibo-mirror">SPAM 果然是一个靠谱滴逗逼，这年头，遇到这样滴店主，就嫁…</a>
 </h2>
 <p>SPAM 果然是一个靠谱滴逗逼，这年头，遇到这样滴店主，就嫁了吧！！！[微笑]</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3913787935181851" target="freeweibo-mirror">今天上午，广州中院开庭审理郭飞雄案，宣判前，法官悍然撕下依法…</a>
-</h2>
-<p>今天上午，广州中院开庭审理郭飞雄案，宣判前，法官悍然撕下依法治国伪装，违反控审分离原则，揽下本该检察院干的脏话，当庭追加寻衅滋事罪，已被关押两年多，从未放过风，饱受摧残的郭飞雄被判刑六年。以下是郭的最后陈述。<br><img src="http://ww4.sinaimg.cn/large/006hPgQfjw1eyfhcr0js8j30c81ljqdg.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
