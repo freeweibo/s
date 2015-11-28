@@ -120,7 +120,7 @@
 </h2>
 <p>围新：weem888 男-6⃣0⃣-女免 防丢@魔异灵军帅http://t.cn/RUd4Uoj</p>
 <p>
-	<small> ============== 1天前</small>
+	<small> ============== 2天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3913833808651771" target="freeweibo-mirror">友人觉得上午重炒桑兰旧案，下午点爆毛宁吸毒，多半是为对冲郭案…</a>
 </h2>
