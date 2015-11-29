@@ -30,7 +30,7 @@
 </h2>
 <p>在全世界都鄙视的眼光中，这只肮脏的手代表着13亿人。<br><img src="http://ww2.sinaimg.cn/large/006gdLj6jw1eyhe8cpbqrj30dw093taz.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3914301566176982" target="freeweibo-mirror">//@正义刘远东-谢文飞-王默-张圣雨://@迷与悟-AxB…</a>
 </h2>
