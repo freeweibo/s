@@ -24,7 +24,7 @@
 </h2>
 <p>//@余承冬微博: //@张重实律师://@干卫东律师://@太平金黄鱼:咔//@律师老周401:转发微博<br><br>RE: 在全世界都鄙视的眼光中，这只肮脏的手代表着13亿人。<br><img src="http://ww2.sinaimg.cn/large/006gdLj6jw1eyhe8cpbqrj30dw093taz.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3914387062881197" target="freeweibo-mirror">在全世界都鄙视的眼光中，这只肮脏的手代表着13亿人。</a>
 </h2>
