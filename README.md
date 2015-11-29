@@ -96,7 +96,7 @@
 </h2>
 <p>唉！<br><br>RE: 友人觉得上午重炒桑兰旧案，下午点爆毛宁吸毒，多半是为对冲郭案。我倒觉得用不着这么深谋远虑。时世大变，已经没几个人知道郭案，也没几个人关心郭案了。三十年间事，伤心到盖棺。<br><img src="http://ww2.sinaimg.cn/large/a5658013gw1eyfmprbfoxj20xc18gttt.jpg"></p>
 <p>
-	<small> ============== 1天前</small>
+	<small> ============== 2天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3913888498266480" target="freeweibo-mirror">菜狗狗</a>
 </h2>
