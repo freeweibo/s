@@ -78,7 +78,7 @@
 </h2>
 <p>//@兔子老愚: 悲哀！//@刘井夺: //@江雪_故乡: //@刘伟伟是:转发微博<br><br>RE: 今天上午，广州中院开庭审理郭飞雄案，宣判前，法官悍然撕下依法治国伪装，违反控审分离原则，揽下本该检察院干的脏话，当庭追加寻衅滋事罪，已被关押两年多，从未放过风，饱受摧残的郭飞雄被判刑六年。以下是郭的最后陈述。<br><img src="http://ww4.sinaimg.cn/large/006hPgQfjw1eyfhcr0js8j30c81ljqdg.jpg"></p>
 <p>
-	<small> ============== 1天前</small>
+	<small> ============== 2天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3913902745978324" target="freeweibo-mirror">SPAM [偷笑][笑哈哈] //@技能大叔://@智障妹纸…</a>
 </h2>
