@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3914530780048447" target="freeweibo-mirror">嗯，惨遭共党迫害的他仅仅只活了95岁！他是起义官兵，工厂退休…</a>
+</h2>
+<p>嗯，惨遭共党迫害的他仅仅只活了95岁！他是起义官兵，工厂退休有工资。有7个子女，在本地的就有5个。曾建议他去敬老院，但他不肯去。保姆罗玉明说，他“喜欢睡在地上，身体旋转。”//@周鸿祎:看到这种新闻真让人心酸又愤怒，先别说抗战老兵用命保卫国家</p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3914491709986437" target="freeweibo-mirror">//@余承冬微博: //@张重实律师://@干卫东律师://…</a>
 </h2>
 <p>//@余承冬微博: //@张重实律师://@干卫东律师://@太平金黄鱼:咔//@律师老周401:转发微博<br><br>RE: 在全世界都鄙视的眼光中，这只肮脏的手代表着13亿人。<br><img src="http://ww2.sinaimg.cn/large/006gdLj6jw1eyhe8cpbqrj30dw093taz.jpg"></p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3913834131590253" target="freeweibo-mirror">围新：weem888 男-6⃣0⃣-女免 防丢@魔异灵军帅h…</a>
 </h2>
 <p>围新：weem888 男-6⃣0⃣-女免 防丢@魔异灵军帅http://t.cn/RUd4Uoj</p>
-<p>
-	<small> ============== 2天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3913833808651771" target="freeweibo-mirror">友人觉得上午重炒桑兰旧案，下午点爆毛宁吸毒，多半是为对冲郭案…</a>
-</h2>
-<p>友人觉得上午重炒桑兰旧案，下午点爆毛宁吸毒，多半是为对冲郭案。我倒觉得用不着这么深谋远虑。时世大变，已经没几个人知道郭案，也没几个人关心郭案了。三十年间事，伤心到盖棺。<br><img src="http://ww2.sinaimg.cn/large/a5658013gw1eyfmprbfoxj20xc18gttt.jpg"></p>
 <p>
 	<small> ============== 2天前</small>
 </p>
