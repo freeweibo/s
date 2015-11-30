@@ -48,7 +48,7 @@
 </h2>
 <p>转：群言出版社给秦晖老师出了本「走出帝制」，结果社长被有关部门约谈了，罪名是＂煽动颠覆政权＂；社长回来赶紧组织人出本「走回帝制」压压惊，结果又被约谈了，这次的罪名是＂泄露国家机密＂------[哈哈]<br><img src="http://ww1.sinaimg.cn/large/c57c1a49jw1eyi7wfncxzj206o0a0t97.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3914640926746051" target="freeweibo-mirror">一个中国，决不让步，内战分裂，和平期待，一国两制，幸福道路！…</a>
 </h2>
