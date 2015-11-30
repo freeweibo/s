@@ -42,7 +42,7 @@
 </h2>
 <p>SPAM [怒骂] //@高软软-:污炸[拜拜][拜拜][拜拜][拜拜][拜拜]<br><br>RE: 哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈<br><img src="http://ww1.sinaimg.cn/large/a92ae8f4gw1eyj6mp36m3j20dw0a0wft.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3914944313174623" target="freeweibo-mirror">我有一种不祥的预感——纱织</a>
 </h2>
