@@ -48,7 +48,7 @@
 </h2>
 <p>SPAM 加入潮 .流一族~</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3914990928736665" target="freeweibo-mirror">SPAM [哈哈]//@糖饼er刁馋: [衰]//@五岳散人…</a>
 </h2>
@@ -108,7 +108,7 @@
 </h2>
 <p>SPAM 京东当当啥的都没了，淘宝上买了本，粗略翻翻没发现啥敏感词啊[衰]<br><br>RE: 秦晖《走出帝制》遭下架，看看刘瑜的书评《巨轮调头的时刻》  http://t.cn/RUdBT6q</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3914797067880887" target="freeweibo-mirror">SPAM http://t.cn/RUgDFoB</a>
 </h2>
