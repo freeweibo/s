@@ -24,7 +24,7 @@
 </h2>
 <p>SPAM 天气冷了，别忘了它 [可愛]<br><img src="http://ww1.sinaimg.cn/large/5d738637gw1eyiat9ne1zj20g00m8q62.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3914640926746051" target="freeweibo-mirror">一个中国，决不让步，内战分裂，和平期待，一国两制，幸福道路！…</a>
 </h2>
