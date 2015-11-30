@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3914794266114343" target="freeweibo-mirror">//@司马平邦:转发微博</a>
+</h2>
+<p>//@司马平邦:转发微博<br><br>RE: 【邓小平下放江西，每日茅台解忧】1973年10月19日，复出后的邓小平访问韶山，接待人员为上什么档次的酒伤脑筋，最后征求邓小平本人意见。邓小平想都没想就答道：“喝茅台吧，我只喝茅台。”随后邓小平又对省里的一位领导说：“我下放江西时，情况那么糟，茅台也从未断过呢。”http://t.cn/RUgE3w4<br><img src="http://ww1.sinaimg.cn/large/774a7b6dgw1eyi790ccwoj20c80a5js9.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3914792823275857" target="freeweibo-mirror">//@纪昀: //@上官雲雨晴: 这如何是好[哈哈]</a>
 </h2>
 <p>//@纪昀: //@上官雲雨晴: 这如何是好[哈哈]<br><br>RE: 转：群言出版社给秦晖老师出了本「走出帝制」，结果社长被有关部门约谈了，罪名是＂煽动颠覆政权＂；社长回来赶紧组织人出本「走回帝制」压压惊，结果又被约谈了，这次的罪名是＂泄露国家机密＂------[哈哈]<br><img src="http://ww1.sinaimg.cn/large/c57c1a49jw1eyi7wfncxzj206o0a0t97.jpg"></p>
@@ -30,7 +36,7 @@
 </h2>
 <p>SPAM 天气冷了，别忘了它 [可愛]<br><img src="http://ww1.sinaimg.cn/large/5d738637gw1eyiat9ne1zj20g00m8q62.jpg"></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3914645322121987" target="freeweibo-mirror">转：群言出版社给秦晖老师出了本「走出帝制」，结果社长被有关部…</a>
 </h2>
@@ -90,7 +96,7 @@
 </h2>
 <p>王墨案覃律师接受台湾中央广播电台采访报道 http://t.cn/RUgz1x3 .</p>
 <p>
-	<small> ============== 1天前</small>
+	<small> ============== 2天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3914208263523232" target="freeweibo-mirror">【局长之子逼人吃屎的背后】这是一段不久前在网上疯传的校园暴力…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3913897834706378" target="freeweibo-mirror">#把雾化带回家#最常见的照顾宝宝的五大错误方式，宝妈们，你中…</a>
 </h2>
 <p>#把雾化带回家#最常见的照顾宝宝的五大错误方式，宝妈们，你中招了吗？ 这边有礼→_→ http://t.cn/RUd5kJa<br><img src="http://ww1.sinaimg.cn/large/9c900017gw1eyfu1xck4gj20c831343p.jpg"></p>
-<p>
-	<small> ============== 3天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3913890146417764" target="freeweibo-mirror">唉！</a>
-</h2>
-<p>唉！<br><br>RE: 友人觉得上午重炒桑兰旧案，下午点爆毛宁吸毒，多半是为对冲郭案。我倒觉得用不着这么深谋远虑。时世大变，已经没几个人知道郭案，也没几个人关心郭案了。三十年间事，伤心到盖棺。<br><img src="http://ww2.sinaimg.cn/large/a5658013gw1eyfmprbfoxj20xc18gttt.jpg"></p>
 <p>
 	<small> ============== 3天前</small>
 </p>
