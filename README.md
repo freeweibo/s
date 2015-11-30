@@ -24,7 +24,7 @@
 </h2>
 <p>SPAM http://t.cn/RUgDFoB</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3914794266114343" target="freeweibo-mirror">//@司马平邦:转发微博</a>
 </h2>
