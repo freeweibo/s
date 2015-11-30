@@ -24,7 +24,7 @@
 </h2>
 <p>SPAM 京东当当啥的都没了，淘宝上买了本，粗略翻翻没发现啥敏感词啊[衰]<br><br>RE: 秦晖《走出帝制》遭下架，看看刘瑜的书评《巨轮调头的时刻》  http://t.cn/RUdBT6q</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3914797067880887" target="freeweibo-mirror">SPAM http://t.cn/RUgDFoB</a>
 </h2>
