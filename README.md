@@ -42,7 +42,7 @@
 </h2>
 <p>SPAM 天气冷了，别忘了它 [可愛]<br><img src="http://ww1.sinaimg.cn/large/5d738637gw1eyiat9ne1zj20g00m8q62.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3914645322121987" target="freeweibo-mirror">转：群言出版社给秦晖老师出了本「走出帝制」，结果社长被有关部…</a>
 </h2>
