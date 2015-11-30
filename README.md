@@ -26,6 +26,12 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3914953020933714" target="freeweibo-mirror">SPAM [怒骂] //@高软软-:污炸[拜拜][拜拜][拜…</a>
+</h2>
+<p>SPAM [怒骂] //@高软软-:污炸[拜拜][拜拜][拜拜][拜拜][拜拜]<br><br>RE: 哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈<br><img src="http://ww1.sinaimg.cn/large/a92ae8f4gw1eyj6mp36m3j20dw0a0wft.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3914944313174623" target="freeweibo-mirror">我有一种不祥的预感——纱织</a>
 </h2>
 <p>我有一种不祥的预感——纱织<br><img src="http://ww2.sinaimg.cn/large/623e1d29jw1eyj68bxmj9j20f00qogon.jpg"></p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3914208263523232" target="freeweibo-mirror">【局长之子逼人吃屎的背后】这是一段不久前在网上疯传的校园暴力…</a>
 </h2>
 <p>【局长之子逼人吃屎的背后】这是一段不久前在网上疯传的校园暴力视频，但据今日网曝，在厕所暴打并逼其同学吃屎的，正是河南兰考县教育局长的儿子......微评：子过父责，千古真理。 一个连自己的孩子都教育不好的教育局长，怎么可能搞好一方教育工作？子恶当罚，其父该否被查？http://t.cn/RUoi52b</p>
-<p>
-	<small> ============== 2天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3914111446194412" target="freeweibo-mirror">蒋的政治对手即使输了，大不了下野，逍遥自在无官一身轻，等待再…</a>
-</h2>
-<p>蒋的政治对手即使输了，大不了下野，逍遥自在无官一身轻，等待再次重返政坛，如中原大战后的冯玉祥阎锡山；差一点的如张学良孙立人，也不过是退出政界被衣食无忧的软禁；蒋从没将党内不同政见者从肉体上消灭或投进监狱。毛的政治对手就没有这么幸运了，一旦输了轻则声败名裂，重则百般批斗折磨惨死！<br><img src="http://ww3.sinaimg.cn/large/006gXXpBgw1eygilmte6nj30hs0hs755.jpg"></p>
 <p>
 	<small> ============== 2天前</small>
 </p>
