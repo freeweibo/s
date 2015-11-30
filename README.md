@@ -60,7 +60,7 @@
 </h2>
 <p>SPAM [哈哈][哈哈][哈哈]堪忧啊<br><img src="http://ww4.sinaimg.cn/large/006gjCFkgw1eyj7gsdkndj309m04nwem.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3914953020933714" target="freeweibo-mirror">SPAM [怒骂] //@高软软-:污炸[拜拜][拜拜][拜…</a>
 </h2>
