@@ -24,7 +24,7 @@
 </h2>
 <p>SPAM 加入潮 .流一族~</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3914990928736665" target="freeweibo-mirror">SPAM [哈哈]//@糖饼er刁馋: [衰]//@五岳散人…</a>
 </h2>
@@ -42,7 +42,7 @@
 </h2>
 <p>王市长啥时退休？//@张国庆看天下:军令状[沙尘暴][沙尘暴][沙尘暴]</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3914977632756612" target="freeweibo-mirror">【2014年北京市长王安顺曾向国务院立治霾"生死状"：治不好…</a>
 </h2>
