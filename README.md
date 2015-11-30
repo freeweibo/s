@@ -36,7 +36,7 @@
 </h2>
 <p>//@纪昀: //@上官雲雨晴: 这如何是好[哈哈]<br><br>RE: 转：群言出版社给秦晖老师出了本「走出帝制」，结果社长被有关部门约谈了，罪名是＂煽动颠覆政权＂；社长回来赶紧组织人出本「走回帝制」压压惊，结果又被约谈了，这次的罪名是＂泄露国家机密＂------[哈哈]<br><img src="http://ww1.sinaimg.cn/large/c57c1a49jw1eyi7wfncxzj206o0a0t97.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3914670651996550" target="freeweibo-mirror">SPAM 天气冷了，别忘了它 [可愛]</a>
 </h2>
