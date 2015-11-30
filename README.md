@@ -30,7 +30,7 @@
 </h2>
 <p>//@司马平邦:转发微博<br><br>RE: 【邓小平下放江西，每日茅台解忧】1973年10月19日，复出后的邓小平访问韶山，接待人员为上什么档次的酒伤脑筋，最后征求邓小平本人意见。邓小平想都没想就答道：“喝茅台吧，我只喝茅台。”随后邓小平又对省里的一位领导说：“我下放江西时，情况那么糟，茅台也从未断过呢。”http://t.cn/RUgE3w4<br><img src="http://ww1.sinaimg.cn/large/774a7b6dgw1eyi790ccwoj20c80a5js9.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3914792823275857" target="freeweibo-mirror">//@纪昀: //@上官雲雨晴: 这如何是好[哈哈]</a>
 </h2>
@@ -96,7 +96,7 @@
 </h2>
 <p>SPAM 到后来才发现，最时尚的单品应该是长腿。 想瘦的，找她。[心] @美人邦_Suellen</p>
 <p>
-	<small> ============== 1天前</small>
+	<small> ============== 2天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3914271497084966" target="freeweibo-mirror">SPAM //@早社: //@乱零飞21://@shbh13…</a>
 </h2>
