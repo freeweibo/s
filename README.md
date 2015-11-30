@@ -36,7 +36,13 @@
 </h2>
 <p>[笑哈哈][群体围观]//@小鸡啄米米米: 围观扔鞋[笑哈哈] //@裸枪:[笑哈哈]//@老左识途:沪团要是请曹林去，小心我当天现场扔鞋。大家也可以去扔鞋，扔袜子，扔裤衩。<br><br>RE: 据悉，@中青报曹林 将于12月8—9日空降上海，为上海的团干部授课指点网络舆论引导。请问@青春上海，前段时间中办发的相关文件，就是这样学习贯彻的？ 请问@共青团中央 团上海市委搞这种培训邀请曹林，你们知道吗？通过@廉洁上海  问问你的上级，曹林的言论你们知道么？你们是怎么落实责任制的？<br><img src="http://ww4.sinaimg.cn/large/0060e84Mjw1eyj95jys46j30g80bwmy9.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3915030854359747" target="freeweibo-mirror">http://t.cn/RUR1kUk 跟紧@简单行b 防走…</a>
+</h2>
+<p>http://t.cn/RUR1kUk 跟紧@简单行b 防走丢</p>
+<p>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3915008230922378" target="freeweibo-mirror">SPAM 加入潮 .流一族~</a>
 </h2>
@@ -96,7 +102,7 @@
 </h2>
 <p>我有一种不祥的预感——纱织<br><img src="http://ww2.sinaimg.cn/large/623e1d29jw1eyj68bxmj9j20f00qogon.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3914895089100299" target="freeweibo-mirror">SPAM 京东当当啥的都没了，淘宝上买了本，粗略翻翻没发现啥…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3914645322121987" target="freeweibo-mirror">转：群言出版社给秦晖老师出了本「走出帝制」，结果社长被有关部…</a>
 </h2>
 <p>转：群言出版社给秦晖老师出了本「走出帝制」，结果社长被有关部门约谈了，罪名是＂煽动颠覆政权＂；社长回来赶紧组织人出本「走回帝制」压压惊，结果又被约谈了，这次的罪名是＂泄露国家机密＂------[哈哈]<br><img src="http://ww1.sinaimg.cn/large/c57c1a49jw1eyi7wfncxzj206o0a0t97.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3914640926746051" target="freeweibo-mirror">一个中国，决不让步，内战分裂，和平期待，一国两制，幸福道路！…</a>
-</h2>
-<p>一个中国，决不让步，内战分裂，和平期待，一国两制，幸福道路！阻止统一，独立建国，无限拖延，武统解放，留岛去人，全国民意，解放台湾岛，统一全中国！<br><br>RE: 翻牆看到的是仇恨，就去吧！嫌兩岸，中共喊血洗武統還不夠。不知道，臺灣究竟為何，逢中必反，因為中共把持中國，引導你們思想，進行大一統，強制合理，造成此情緒。隨著國民黨，利用陸配身份吵議題。在台灣，所有東南亞外配委屈不少，若刻意「放大中國與台灣，彼此仇恨」看到心中醜陋了嗎？[怒]</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
