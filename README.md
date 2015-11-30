@@ -26,6 +26,12 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3914944313174623" target="freeweibo-mirror">我有一种不祥的预感——纱织</a>
+</h2>
+<p>我有一种不祥的预感——纱织<br><img src="http://ww2.sinaimg.cn/large/623e1d29jw1eyj68bxmj9j20f00qogon.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3914895089100299" target="freeweibo-mirror">SPAM 京东当当啥的都没了，淘宝上买了本，粗略翻翻没发现啥…</a>
 </h2>
 <p>SPAM 京东当当啥的都没了，淘宝上买了本，粗略翻翻没发现啥敏感词啊[衰]<br><br>RE: 秦晖《走出帝制》遭下架，看看刘瑜的书评《巨轮调头的时刻》  http://t.cn/RUdBT6q</p>
@@ -133,12 +139,6 @@
 <p>蒋的政治对手即使输了，大不了下野，逍遥自在无官一身轻，等待再次重返政坛，如中原大战后的冯玉祥阎锡山；差一点的如张学良孙立人，也不过是退出政界被衣食无忧的软禁；蒋从没将党内不同政见者从肉体上消灭或投进监狱。毛的政治对手就没有这么幸运了，一旦输了轻则声败名裂，重则百般批斗折磨惨死！<br><img src="http://ww3.sinaimg.cn/large/006gXXpBgw1eygilmte6nj30hs0hs755.jpg"></p>
 <p>
 	<small> ============== 2天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3914072812708188" target="freeweibo-mirror">【中国官媒：军方首次证实解放军将分四大战区】中国官媒和军方学…</a>
-</h2>
-<p>【中国官媒：军方首次证实解放军将分四大战区】中国官媒和军方学者首度证实有关解放军七大军区可能改成四个战区的传言。国防大学教授公方彬大校说，七大军区可能改成方向性战区，“如东、西、南、北。”也有军事学者分析，这轮军改后，解放军四总部有可能要“改名换姓”。http://t.cn/RUdOvLy<br><img src="http://ww4.sinaimg.cn/large/6298156bgw1eyge5ux70tj21kw16h7cy.jpg"></p>
-<p>
-	<small> ============== 3天前</small>
 </p>
 <table>
     <tr>
