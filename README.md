@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3914792823275857" target="freeweibo-mirror">//@纪昀: //@上官雲雨晴: 这如何是好[哈哈]</a>
+</h2>
+<p>//@纪昀: //@上官雲雨晴: 这如何是好[哈哈]<br><br>RE: 转：群言出版社给秦晖老师出了本「走出帝制」，结果社长被有关部门约谈了，罪名是＂煽动颠覆政权＂；社长回来赶紧组织人出本「走回帝制」压压惊，结果又被约谈了，这次的罪名是＂泄露国家机密＂------[哈哈]<br><img src="http://ww1.sinaimg.cn/large/c57c1a49jw1eyi7wfncxzj206o0a0t97.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3914670651996550" target="freeweibo-mirror">SPAM 天气冷了，别忘了它 [可愛]</a>
 </h2>
 <p>SPAM 天气冷了，别忘了它 [可愛]<br><img src="http://ww1.sinaimg.cn/large/5d738637gw1eyiat9ne1zj20g00m8q62.jpg"></p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3913888498266480" target="freeweibo-mirror">菜狗狗</a>
 </h2>
 <p>菜狗狗<br><br>RE: 友人觉得上午重炒桑兰旧案，下午点爆毛宁吸毒，多半是为对冲郭案。我倒觉得用不着这么深谋远虑。时世大变，已经没几个人知道郭案，也没几个人关心郭案了。三十年间事，伤心到盖棺。<br><img src="http://ww2.sinaimg.cn/large/a5658013gw1eyfmprbfoxj20xc18gttt.jpg"></p>
-<p>
-	<small> ============== 3天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3913887746926178" target="freeweibo-mirror">//@孤独的背影-1: //@李方平律师://@王连军律师:…</a>
-</h2>
-<p>//@孤独的背影-1: //@李方平律师://@王连军律师://@陈光武律师:饱受摧残的郭飞雄被判刑六年。<br><br>RE: 今天上午，广州中院开庭审理郭飞雄案，宣判前，法官悍然撕下依法治国伪装，违反控审分离原则，揽下本该检察院干的脏话，当庭追加寻衅滋事罪，已被关押两年多，从未放过风，饱受摧残的郭飞雄被判刑六年。以下是郭的最后陈述。<br><img src="http://ww4.sinaimg.cn/large/006hPgQfjw1eyfhcr0js8j30c81ljqdg.jpg"></p>
 <p>
 	<small> ============== 3天前</small>
 </p>
