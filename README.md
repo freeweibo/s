@@ -96,7 +96,7 @@
 </h2>
 <p>呵呵。//@施力勤: //@刘咚咚:因为他们不肯认错 //@DJ文硕: 转发微博<br><br>RE: 我到今天依然想不通，《穹顶之下》如此温和、建设性地调查报道为何网上搜不到了？<br><img src="http://ww2.sinaimg.cn/large/59812064jw1eyjgnsxmwtj20c80gb74v.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3915167064288145" target="freeweibo-mirror">补充一点，当时的法官批准他们刑场婚礼并拍照留念。//@北马南…</a>
 </h2>
@@ -108,7 +108,7 @@
 </h2>
 <p>SPAM 转： 一位大爷说: 俺是个粗人，对人对事都很宽容。男的嫖个娼女的偷个汉，都看得云淡风轻。但那个“大大”“麻麻”的称呼，俺实在不可忍。那从骨子里散发出的浓浓奴性，是没有灵魂的狂热，没有思想的谟拜；是对权力的谄媚，对亲情的作贱。良民们，你可以尽情享受被强奸的快感，但不要亳无羞耻地叫床！<br><img src="http://ww1.sinaimg.cn/large/d291e344jw1eyjqso3xhcj20fs0qogoh.jpg"></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3915047581350929" target="freeweibo-mirror">鄙视时装模特，彭丽媛学学江青，到大寨劳动去！//@东蒙布衣:…</a>
 </h2>
