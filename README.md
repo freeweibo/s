@@ -30,7 +30,7 @@
 </h2>
 <p>补充一点，当时的法官批准他们刑场婚礼并拍照留念。//@北马南山: //@上海老哥: [吃惊][吃惊]<br><br>RE: 【刑场上的婚礼真相】广州起义失败后，工人纠察队总队长周文雍携情妇陈铁军不顾市民生命财产的安全竟然四处放火，欲将广州付之一炬。后来幸亏军队及时制止，但人员，财产损失仍然巨大，仅总工会一处就烧死普通工人一百多人。国民政府非常震怒，于1928年2月6日.以故意杀人罪判处两犯死刑，立即执行。<br><img src="http://ww2.sinaimg.cn/large/af476d29gw1eyi1zv5kqnj208c0d7t9c.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3915047581350929" target="freeweibo-mirror">鄙视时装模特，彭丽媛学学江青，到大寨劳动去！//@东蒙布衣:…</a>
 </h2>
@@ -54,13 +54,13 @@
 </h2>
 <p>http://t.cn/RUR1kUk 跟紧@简单行b 防走丢</p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3915008230922378" target="freeweibo-mirror">SPAM 加入潮 .流一族~</a>
 </h2>
 <p>SPAM 加入潮 .流一族~</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3914990928736665" target="freeweibo-mirror">SPAM [哈哈]//@糖饼er刁馋: [衰]//@五岳散人…</a>
 </h2>
