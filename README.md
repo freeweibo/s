@@ -90,13 +90,13 @@
 </h2>
 <p>[笑哈哈][群体围观]//@小鸡啄米米米: 围观扔鞋[笑哈哈] //@裸枪:[笑哈哈]//@老左识途:沪团要是请曹林去，小心我当天现场扔鞋。大家也可以去扔鞋，扔袜子，扔裤衩。<br><br>RE: 据悉，@中青报曹林 将于12月8—9日空降上海，为上海的团干部授课指点网络舆论引导。请问@青春上海，前段时间中办发的相关文件，就是这样学习贯彻的？ 请问@共青团中央 团上海市委搞这种培训邀请曹林，你们知道吗？通过@廉洁上海  问问你的上级，曹林的言论你们知道么？你们是怎么落实责任制的？<br><img src="http://ww4.sinaimg.cn/large/0060e84Mjw1eyj95jys46j30g80bwmy9.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3915034960429608" target="freeweibo-mirror">我到今天依然想不通，《穹顶之下》如此温和、建设性地调查报道为…</a>
 </h2>
 <p>我到今天依然想不通，《穹顶之下》如此温和、建设性地调查报道为何网上搜不到了？<br><img src="http://ww2.sinaimg.cn/large/59812064jw1eyjgnsxmwtj20c80gb74v.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3915030854359747" target="freeweibo-mirror">http://t.cn/RUR1kUk 跟紧@简单行b 防走…</a>
 </h2>
