@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3915193278751955" target="freeweibo-mirror">[酷]【]暗无天日，胡锦涛﹑温家宝﹑王沪宁的GTP〝科学发展…</a>
+</h2>
+<p>[酷]【]暗无天日，胡锦涛﹑温家宝﹑王沪宁的GTP〝科学发展观〞是元凶，必须追责】//@克勤在线: 天空就是大地的镜子，有什么样的人间，就有什么样的天空。@常州杨洪波://@荣剑2001: 天空就是大地的镜子。有什么样的人间就有什么样的天空。此时我心中只有恨，希望有质询有调研有应对甚至追查纠元凶。<br><br>RE: 这回雾霾之下，整个中国北方地区基本沦陷，网上议论以调侃居多，人们大概也只有以戏虐的方式来表达对雾霾的无奈。中国式发展的红利绝非为全体国民公平享有，但其种下的恶果几乎让每一个国民都品尝到了。该有所反思了，我重申这样的看法：没有制度约束、法律约束和道德约束的发展，无异于是人类的灾难。</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3915179178061529" target="freeweibo-mirror">//@晏耀斌:同问并再次致敬柴静！</a>
 </h2>
 <p>//@晏耀斌:同问并再次致敬柴静！<br><br>RE: 我到今天依然想不通，《穹顶之下》如此温和、建设性地调查报道为何网上搜不到了？<br><img src="http://ww2.sinaimg.cn/large/59812064jw1eyjgnsxmwtj20c80gb74v.jpg"></p>
@@ -48,7 +54,7 @@
 </h2>
 <p>呵呵。//@施力勤: //@刘咚咚:因为他们不肯认错 //@DJ文硕: 转发微博<br><br>RE: 我到今天依然想不通，《穹顶之下》如此温和、建设性地调查报道为何网上搜不到了？<br><img src="http://ww2.sinaimg.cn/large/59812064jw1eyjgnsxmwtj20c80gb74v.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3915167064288145" target="freeweibo-mirror">补充一点，当时的法官批准他们刑场婚礼并拍照留念。//@北马南…</a>
 </h2>
@@ -60,13 +66,13 @@
 </h2>
 <p>SPAM 转： 一位大爷说: 俺是个粗人，对人对事都很宽容。男的嫖个娼女的偷个汉，都看得云淡风轻。但那个“大大”“麻麻”的称呼，俺实在不可忍。那从骨子里散发出的浓浓奴性，是没有灵魂的狂热，没有思想的谟拜；是对权力的谄媚，对亲情的作贱。良民们，你可以尽情享受被强奸的快感，但不要亳无羞耻地叫床！<br><img src="http://ww1.sinaimg.cn/large/d291e344jw1eyjqso3xhcj20fs0qogoh.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3915047581350929" target="freeweibo-mirror">鄙视时装模特，彭丽媛学学江青，到大寨劳动去！//@东蒙布衣:…</a>
 </h2>
 <p>鄙视时装模特，彭丽媛学学江青，到大寨劳动去！//@东蒙布衣: //@梅铮星:[哈哈] //@谁也不记得2015:显你衣服多 ！[鄙视]</p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3915045686207197" target="freeweibo-mirror">SPAM 专注本微博 每天更新！[亲亲][亲亲]</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3914956376302116" target="freeweibo-mirror">SPAM 2018年1月1号（反正还在深冬季节）是兑现日？/…</a>
 </h2>
 <p>SPAM 2018年1月1号（反正还在深冬季节）是兑现日？//@牧羊人102: 这是理政不是打仗，这种心态又是急功近利，盲目自信！记住他今天说的话！[嘻嘻] //@沙漠渔夫809://@不知道起个什么名字难:[哈哈]<br><br>RE: 我有一种不祥的预感——纱织<br><img src="http://ww2.sinaimg.cn/large/623e1d29jw1eyj68bxmj9j20f00qogon.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3914954891086783" target="freeweibo-mirror">SPAM [哈哈][哈哈][哈哈]堪忧啊</a>
-</h2>
-<p>SPAM [哈哈][哈哈][哈哈]堪忧啊<br><img src="http://ww4.sinaimg.cn/large/006gjCFkgw1eyj7gsdkndj309m04nwem.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
