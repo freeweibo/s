@@ -30,7 +30,7 @@
 </h2>
 <p>SPAM #中国大妈也是低头族#现如今，黄金市场起伏不定，中国大妈却依旧保持着曾经10天横扫华尔街金市300吨时的风采，在手机端APP平台之上疯狂抢购黄金。这次中国大妈能否再次创造抢金奇迹，元芳，你怎么看？<br><img src="http://ww1.sinaimg.cn/large/87335fe1gw1eyk78n3x7yj208608daaa.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3915254318376384" target="freeweibo-mirror">SPAM 普疯子//@胡言乱语123456789: 嗯，就是…</a>
 </h2>
@@ -102,7 +102,7 @@
 </h2>
 <p>想不通。 //@李风光微博:转发微博<br><br>RE: 我到今天依然想不通，《穹顶之下》如此温和、建设性地调查报道为何网上搜不到了？<br><img src="http://ww2.sinaimg.cn/large/59812064jw1eyjgnsxmwtj20c80gb74v.jpg"></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3915173985209108" target="freeweibo-mirror">这回雾霾之下，整个中国北方地区基本沦陷，网上议论以调侃居多，…</a>
 </h2>
