@@ -30,7 +30,7 @@
 </h2>
 <p>SPAM 专注本微博 每天更新！[亲亲][亲亲]<br><br>RE: http://t.cn/RUR1kUk 跟紧@简单行b 防走丢</p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3915035069547083" target="freeweibo-mirror">[笑哈哈][群体围观]//@小鸡啄米米米: 围观扔鞋[笑哈哈…</a>
 </h2>
@@ -72,7 +72,7 @@
 </h2>
 <p>【2014年北京市长王安顺曾向国务院立治霾"生死状"：治不好“提头来见”】今日，北京雾霾“爆表”。2014年1月18日的北京人代会分组讨论中，旁听的北京市长王安顺透露，自己向国务院立治霾“生死状”在2017年前实现空气污染治理目标，国务院领导说了句既是玩笑也是句分量很重的话——“提头来见”。<br><img src="http://ww2.sinaimg.cn/large/d9f431e3jw1eyja2x5pwlj20eq0gztau.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3914970460812128" target="freeweibo-mirror">据悉，@中青报曹林 将于12月8—9日空降上海，为上海的团干…</a>
 </h2>
