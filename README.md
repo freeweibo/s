@@ -24,7 +24,7 @@
 </h2>
 <p>当年他画《蓝龙》抓了个奶读者就奔走相告，现在回头看真算不了什么……//@ZXX老想星游记: 小畑健老师堕落了啊…… //@少年JUMP吧:无码版 http://t.cn/RUDaOlW<br><br>RE: #大场鸫#X#小畑健#《铂金终局》 第2话 情报：http://t.cn/RUDfMPc [吃惊]<br><img src="http://ww2.sinaimg.cn/large/735bcd72gw1eykdrvisazj208c0b4wft.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3915378646401155" target="freeweibo-mirror">SPAM [给力] 特别关注 @菊花坐 http://t.c…</a>
 </h2>
