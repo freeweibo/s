@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3915179178061529" target="freeweibo-mirror">//@晏耀斌:同问并再次致敬柴静！</a>
+</h2>
+<p>//@晏耀斌:同问并再次致敬柴静！<br><br>RE: 我到今天依然想不通，《穹顶之下》如此温和、建设性地调查报道为何网上搜不到了？<br><img src="http://ww2.sinaimg.cn/large/59812064jw1eyjgnsxmwtj20c80gb74v.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3915177735210634" target="freeweibo-mirror">SPAM [哈哈]//@刘军宁: [话筒]"从骨子里散发出的…</a>
 </h2>
 <p>SPAM [哈哈]//@刘军宁: [话筒]"从骨子里散发出的浓浓奴性，是没有灵魂的狂热，没有思想的谟拜；是对权力的谄媚，对亲情的作贱。" //@向克: //@倚松罗汉:[哈哈] //@雁塔小木屋4: //@李念奴是我</p>
@@ -30,7 +36,7 @@
 </h2>
 <p>想不通。 //@李风光微博:转发微博<br><br>RE: 我到今天依然想不通，《穹顶之下》如此温和、建设性地调查报道为何网上搜不到了？<br><img src="http://ww2.sinaimg.cn/large/59812064jw1eyjgnsxmwtj20c80gb74v.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3915169422308239" target="freeweibo-mirror">2009年9月14日，他俩被评为100位为新中国成立作出突出…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3914954891086783" target="freeweibo-mirror">SPAM [哈哈][哈哈][哈哈]堪忧啊</a>
 </h2>
 <p>SPAM [哈哈][哈哈][哈哈]堪忧啊<br><img src="http://ww4.sinaimg.cn/large/006gjCFkgw1eyj7gsdkndj309m04nwem.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3914953020933714" target="freeweibo-mirror">SPAM [怒骂] //@高软软-:污炸[拜拜][拜拜][拜…</a>
-</h2>
-<p>SPAM [怒骂] //@高软软-:污炸[拜拜][拜拜][拜拜][拜拜][拜拜]<br><br>RE: 哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈<br><img src="http://ww1.sinaimg.cn/large/a92ae8f4gw1eyj6mp36m3j20dw0a0wft.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
