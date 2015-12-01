@@ -30,7 +30,7 @@
 </h2>
 <p>//@梅君门:少数利益瓜分者 ，留下了一个满目苍夷的土地，暗无天日的雾霾。<br><br>RE: 这回雾霾之下，整个中国北方地区基本沦陷，网上议论以调侃居多，人们大概也只有以戏虐的方式来表达对雾霾的无奈。中国式发展的红利绝非为全体国民公平享有，但其种下的恶果几乎让每一个国民都品尝到了。该有所反思了，我重申这样的看法：没有制度约束、法律约束和道德约束的发展，无异于是人类的灾难。</p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3915193752555485" target="freeweibo-mirror">晒智商→_→//@西西里柠檬1981：现在天天骂人的愤青可真…</a>
 </h2>
@@ -60,13 +60,13 @@
 </h2>
 <p>SPAM 何时能解决我们雾霾滴问题呢<br><br>RE: 热烈祝贺世界气候大会召开，现在我的周围。 http://t.cn/R2W60NO<br><img src="http://ww4.sinaimg.cn/large/73570bbdjw1eyjx8xnxzbj20a00dc0tu.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3915179354349568" target="freeweibo-mirror">热烈祝贺世界气候大会召开，现在我的周围。 http://t.…</a>
 </h2>
 <p>热烈祝贺世界气候大会召开，现在我的周围。 http://t.cn/R2W60NO<br><img src="http://ww4.sinaimg.cn/large/73570bbdjw1eyjx8xnxzbj20a00dc0tu.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3915179178061529" target="freeweibo-mirror">//@晏耀斌:同问并再次致敬柴静！</a>
 </h2>
