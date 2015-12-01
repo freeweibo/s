@@ -42,7 +42,7 @@
 </h2>
 <p>#大场鸫#X#小畑健#《铂金终局》 第2话 情报：http://t.cn/RUDfMPc [吃惊]<br><img src="http://ww2.sinaimg.cn/large/735bcd72gw1eykdrvisazj208c0b4wft.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3915319170868510" target="freeweibo-mirror">SPAM 你还说你不是色情博主？？我才不会收藏呢//@团子熊…</a>
 </h2>
