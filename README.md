@@ -54,7 +54,7 @@
 </h2>
 <p>#瞭望阅读# 两张图片，大家自己看吧。@崔永元 @袁弘 @老徐时评 @于建嵘 @光远看经济 @哑巴 @爱逗 @黄峻新浪官方博客 @记者张琳<br><img src="http://ww1.sinaimg.cn/large/678207a7gw1eyk542nkddj20f00qowh8.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3915241366389032" target="freeweibo-mirror">土耳其人道主义机构在伊德利卜市的慈善面包房被俄战机摧毁，这个…</a>
 </h2>
