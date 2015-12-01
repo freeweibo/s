@@ -114,7 +114,7 @@
 </h2>
 <p>呵呵。//@施力勤: //@刘咚咚:因为他们不肯认错 //@DJ文硕: 转发微博<br><br>RE: 我到今天依然想不通，《穹顶之下》如此温和、建设性地调查报道为何网上搜不到了？<br><img src="http://ww2.sinaimg.cn/large/59812064jw1eyjgnsxmwtj20c80gb74v.jpg"></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3915167064288145" target="freeweibo-mirror">补充一点，当时的法官批准他们刑场婚礼并拍照留念。//@北马南…</a>
 </h2>
