@@ -30,7 +30,7 @@
 </h2>
 <p>SPAM [给力] 特别关注 @菊花坐 http://t.cn/RUeEp1R</p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3915371435796042" target="freeweibo-mirror">SPAM 你懂的。@思想哥 @袁弘 @愛的真妮花  //@山…</a>
 </h2>
