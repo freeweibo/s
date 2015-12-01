@@ -24,7 +24,7 @@
 </h2>
 <p>SPAM 你还说你不是色情博主？？我才不会收藏呢//@团子熊por: [doge][doge][doge]大写的买 //@乳不贫何以平天下:不得了，色情博主要转型了[嘻嘻]</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3915269724595013" target="freeweibo-mirror">SPAM 【全国28省区市失独者代表第二次进京聚集国家计生委…</a>
 </h2>
@@ -108,7 +108,7 @@
 </h2>
 <p>想不通。 //@李风光微博:转发微博<br><br>RE: 我到今天依然想不通，《穹顶之下》如此温和、建设性地调查报道为何网上搜不到了？<br><img src="http://ww2.sinaimg.cn/large/59812064jw1eyjgnsxmwtj20c80gb74v.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3915173985209108" target="freeweibo-mirror">这回雾霾之下，整个中国北方地区基本沦陷，网上议论以调侃居多，…</a>
 </h2>
