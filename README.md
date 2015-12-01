@@ -84,13 +84,13 @@
 </h2>
 <p>SPAM 何时能解决我们雾霾滴问题呢<br><br>RE: 热烈祝贺世界气候大会召开，现在我的周围。 http://t.cn/R2W60NO<br><img src="http://ww4.sinaimg.cn/large/73570bbdjw1eyjx8xnxzbj20a00dc0tu.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3915179354349568" target="freeweibo-mirror">热烈祝贺世界气候大会召开，现在我的周围。 http://t.…</a>
 </h2>
 <p>热烈祝贺世界气候大会召开，现在我的周围。 http://t.cn/R2W60NO<br><img src="http://ww4.sinaimg.cn/large/73570bbdjw1eyjx8xnxzbj20a00dc0tu.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3915179178061529" target="freeweibo-mirror">//@晏耀斌:同问并再次致敬柴静！</a>
 </h2>
