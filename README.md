@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3915526579620778" target="freeweibo-mirror">我也很佩服以胡总编为首的某些评论员，总可以用“中国特色”去为…</a>
+</h2>
+<p>我也很佩服以胡总编为首的某些评论员，总可以用“中国特色”去为政府失职或政体缺陷而辩护！//@评论员陈方:有些人我还是很佩服的，不论是雾霾还是井盖，都可以联系到政治制度问题。<br><br>RE: 我发表了新文章：当年英国伦敦和美国洛杉矶的雾霾问题，就是民众不停地抗议、媒体不停地报道、非政府组织不停地施压，才终于缓解并获得根治。所以民主真不是说着玩的，没有选票，没有新闻自由，没有公民运动，雾霾就真的无治 http://t.cn/RUDMkMX</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3915392038995445" target="freeweibo-mirror">当年他画《蓝龙》抓了个奶读者就奔走相告，现在回头看真算不了什…</a>
 </h2>
 <p>当年他画《蓝龙》抓了个奶读者就奔走相告，现在回头看真算不了什么……//@ZXX老想星游记: 小畑健老师堕落了啊…… //@少年JUMP吧:无码版 http://t.cn/RUDaOlW<br><br>RE: #大场鸫#X#小畑健#《铂金终局》 第2话 情报：http://t.cn/RUDfMPc [吃惊]<br><img src="http://ww2.sinaimg.cn/large/735bcd72gw1eykdrvisazj208c0b4wft.jpg"></p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3915177735210634" target="freeweibo-mirror">SPAM [哈哈]//@刘军宁: [话筒]"从骨子里散发出的…</a>
 </h2>
 <p>SPAM [哈哈]//@刘军宁: [话筒]"从骨子里散发出的浓浓奴性，是没有灵魂的狂热，没有思想的谟拜；是对权力的谄媚，对亲情的作贱。" //@向克: //@倚松罗汉:[哈哈] //@雁塔小木屋4: //@李念奴是我</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3915176019660896" target="freeweibo-mirror">想不通。 //@李风光微博:转发微博</a>
-</h2>
-<p>想不通。 //@李风光微博:转发微博<br><br>RE: 我到今天依然想不通，《穹顶之下》如此温和、建设性地调查报道为何网上搜不到了？<br><img src="http://ww2.sinaimg.cn/large/59812064jw1eyjgnsxmwtj20c80gb74v.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
