@@ -30,7 +30,7 @@
 </h2>
 <p>当年他画《蓝龙》抓了个奶读者就奔走相告，现在回头看真算不了什么……//@ZXX老想星游记: 小畑健老师堕落了啊…… //@少年JUMP吧:无码版 http://t.cn/RUDaOlW<br><br>RE: #大场鸫#X#小畑健#《铂金终局》 第2话 情报：http://t.cn/RUDfMPc [吃惊]<br><img src="http://ww2.sinaimg.cn/large/735bcd72gw1eykdrvisazj208c0b4wft.jpg"></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3915378646401155" target="freeweibo-mirror">SPAM [给力] 特别关注 @菊花坐 http://t.c…</a>
 </h2>
@@ -43,6 +43,12 @@
 <p>SPAM 你懂的。@思想哥 @袁弘 @愛的真妮花  //@山野逍客:这货在工作的决策上是不是经常开玩笑啊[囧]//@记者张琳:我已经失语了…<br><br>RE: #瞭望阅读# 两张图片，大家自己看吧。@崔永元 @袁弘 @老徐时评 @于建嵘 @光远看经济 @哑巴 @爱逗 @黄峻新浪官方博客 @记者张琳<br><img src="http://ww1.sinaimg.cn/large/678207a7gw1eyk542nkddj20f00qowh8.jpg"></p>
 <p>
 	<small> ============== 12小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3915340965118281" target="freeweibo-mirror">我发表了新文章：当年英国伦敦和美国洛杉矶的雾霾问题，就是民众…</a>
+</h2>
+<p>我发表了新文章：当年英国伦敦和美国洛杉矶的雾霾问题，就是民众不停地抗议、媒体不停地报道、非政府组织不停地施压，才终于缓解并获得根治。所以民主真不是说着玩的，没有选票，没有新闻自由，没有公民运动，雾霾就真的无治 http://t.cn/RUDMkMX</p>
+<p>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3915323331496053" target="freeweibo-mirror">#大场鸫#X#小畑健#《铂金终局》 第2话 情报：http:…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3915179178061529" target="freeweibo-mirror">//@晏耀斌:同问并再次致敬柴静！</a>
 </h2>
 <p>//@晏耀斌:同问并再次致敬柴静！<br><br>RE: 我到今天依然想不通，《穹顶之下》如此温和、建设性地调查报道为何网上搜不到了？<br><img src="http://ww2.sinaimg.cn/large/59812064jw1eyjgnsxmwtj20c80gb74v.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3915177735210634" target="freeweibo-mirror">SPAM [哈哈]//@刘军宁: [话筒]"从骨子里散发出的…</a>
-</h2>
-<p>SPAM [哈哈]//@刘军宁: [话筒]"从骨子里散发出的浓浓奴性，是没有灵魂的狂热，没有思想的谟拜；是对权力的谄媚，对亲情的作贱。" //@向克: //@倚松罗汉:[哈哈] //@雁塔小木屋4: //@李念奴是我</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
