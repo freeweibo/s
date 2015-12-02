@@ -26,6 +26,12 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3915525166266555" target="freeweibo-mirror">[doge][doge]</a>
+</h2>
+<p>[doge][doge]<br><br>RE: 北京治理雾霾，看来还得靠“吹”....[doge]<br><img src="http://ww1.sinaimg.cn/large/75b1a75fgw1eyl0urpgavj20jj0bht9s.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3915392038995445" target="freeweibo-mirror">当年他画《蓝龙》抓了个奶读者就奔走相告，现在回头看真算不了什…</a>
 </h2>
 <p>当年他画《蓝龙》抓了个奶读者就奔走相告，现在回头看真算不了什么……//@ZXX老想星游记: 小畑健老师堕落了啊…… //@少年JUMP吧:无码版 http://t.cn/RUDaOlW<br><br>RE: #大场鸫#X#小畑健#《铂金终局》 第2话 情报：http://t.cn/RUDfMPc [吃惊]<br><img src="http://ww2.sinaimg.cn/large/735bcd72gw1eykdrvisazj208c0b4wft.jpg"></p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3915179354349568" target="freeweibo-mirror">热烈祝贺世界气候大会召开，现在我的周围。 http://t.…</a>
 </h2>
 <p>热烈祝贺世界气候大会召开，现在我的周围。 http://t.cn/R2W60NO<br><img src="http://ww4.sinaimg.cn/large/73570bbdjw1eyjx8xnxzbj20a00dc0tu.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3915179178061529" target="freeweibo-mirror">//@晏耀斌:同问并再次致敬柴静！</a>
-</h2>
-<p>//@晏耀斌:同问并再次致敬柴静！<br><br>RE: 我到今天依然想不通，《穹顶之下》如此温和、建设性地调查报道为何网上搜不到了？<br><img src="http://ww2.sinaimg.cn/large/59812064jw1eyjgnsxmwtj20c80gb74v.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
