@@ -24,7 +24,7 @@
 </h2>
 <p>SPAM 【荣耀 6 Plus 3天9场1599 元起】见过降价的，没见过像荣耀 6 Plus 这么降价的：双十一之后每周二最高降500，现在又加入荣耀购物嘉年华限时抢购行列， 12月1日至3日，每天10：08、16：00、20：00三个时间段，荣耀 6 Plus标准版仅1599元，高配版1799元，这个价位段估计没有比这更实惠的了。<br><img src="http://ww2.sinaimg.cn/large/98c1610bjw1eylfmpq1ykj215o0yigwr.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3915639083229078" target="freeweibo-mirror">不知道美国是不是有联邦信访局，国民警卫队是否负责截访。 //…</a>
 </h2>
