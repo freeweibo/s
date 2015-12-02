@@ -60,7 +60,7 @@
 </h2>
 <p>SPAM 看完原文再看最右的链接 //@霍建华的宝贝:哈哈哈哈哈→http://weibo.com/2474489062/D6p5HcMlN</p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3915601657720958" target="freeweibo-mirror">SPAM //@侯宁:修女晚上搭神父的车回家。途中，神父竟然…</a>
 </h2>
