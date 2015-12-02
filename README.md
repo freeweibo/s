@@ -36,13 +36,13 @@
 </h2>
 <p>SPAM [给力] 特别关注 @菊花坐 http://t.cn/RUeEp1R</p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3915371435796042" target="freeweibo-mirror">SPAM 你懂的。@思想哥 @袁弘 @愛的真妮花  //@山…</a>
 </h2>
 <p>SPAM 你懂的。@思想哥 @袁弘 @愛的真妮花  //@山野逍客:这货在工作的决策上是不是经常开玩笑啊[囧]//@记者张琳:我已经失语了…<br><br>RE: #瞭望阅读# 两张图片，大家自己看吧。@崔永元 @袁弘 @老徐时评 @于建嵘 @光远看经济 @哑巴 @爱逗 @黄峻新浪官方博客 @记者张琳<br><img src="http://ww1.sinaimg.cn/large/678207a7gw1eyk542nkddj20f00qowh8.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3915340965118281" target="freeweibo-mirror">我发表了新文章：当年英国伦敦和美国洛杉矶的雾霾问题，就是民众…</a>
 </h2>
