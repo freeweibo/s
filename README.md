@@ -54,7 +54,7 @@
 </h2>
 <p>SPAM 鹿胎膏传承百年 调理卵巢 营养子宫 补气益血 做健康女人</p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3915698457511174" target="freeweibo-mirror">SPAM [话筒][话筒][话筒] //@刺猬大毛:不管从维…</a>
 </h2>
@@ -122,6 +122,12 @@
 <p>
 	<small> ============== 1天前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3915529540300961" target="freeweibo-mirror">将不要脸进行到底！http://t.cn/R22VOu1</a>
+</h2>
+<p>将不要脸进行到底！http://t.cn/R22VOu1<br><img src="http://ww3.sinaimg.cn/large/e7287079gw1eyl1gor9e3j20fn0kg76w.jpg"></p>
+<p>
+	<small> ============== 1天前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3915526579620778" target="freeweibo-mirror">我也很佩服以胡总编为首的某些评论员，总可以用“中国特色”去为…</a>
 </h2>
 <p>我也很佩服以胡总编为首的某些评论员，总可以用“中国特色”去为政府失职或政体缺陷而辩护！//@评论员陈方:有些人我还是很佩服的，不论是雾霾还是井盖，都可以联系到政治制度问题。<br><br>RE: 我发表了新文章：当年英国伦敦和美国洛杉矶的雾霾问题，就是民众不停地抗议、媒体不停地报道、非政府组织不停地施压，才终于缓解并获得根治。所以民主真不是说着玩的，没有选票，没有新闻自由，没有公民运动，雾霾就真的无治 http://t.cn/RUDMkMX</p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3915525166266555" target="freeweibo-mirror">[doge][doge]</a>
 </h2>
 <p>[doge][doge]<br><br>RE: 北京治理雾霾，看来还得靠“吹”....[doge]<br><img src="http://ww1.sinaimg.cn/large/75b1a75fgw1eyl0urpgavj20jj0bht9s.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3915524389576956" target="freeweibo-mirror">北京治理雾霾，看来还得靠“吹”....[doge]</a>
-</h2>
-<p>北京治理雾霾，看来还得靠“吹”....[doge]<br><img src="http://ww1.sinaimg.cn/large/75b1a75fgw1eyl0urpgavj20jj0bht9s.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
