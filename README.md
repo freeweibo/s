@@ -84,7 +84,7 @@
 </h2>
 <p>今天，南方系哭声一片，南方人物周刊的主编、号称南方系灵魂的徐列辞职了！这位倍受西方赏识、被誉为反抗体制枷锁斗士的媒体人，终于接到了西方的橄榄枝，要去他向往的自由民主的美国了！据说这本杂志封面曾经是中国的风向标！<br><img src="http://ww1.sinaimg.cn/large/c1cb0d8cgw1eyled2tcnqj204q06o74c.jpg"></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3915639083229078" target="freeweibo-mirror">不知道美国是不是有联邦信访局，国民警卫队是否负责截访。 //…</a>
 </h2>
