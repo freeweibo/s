@@ -26,11 +26,17 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3915748579486724" target="freeweibo-mirror">丫到美国就该老实点了，要还跟在中国似的，美国专政可比中国厉害…</a>
+</h2>
+<p>丫到美国就该老实点了，要还跟在中国似的，美国专政可比中国厉害 //@林岳芳:南方系哭了，那今晚无数无数的网友该笑了！[哈哈][哈哈][哈哈]</p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3915707303263196" target="freeweibo-mirror">SPAM 鹿胎膏传承百年 调理卵巢 营养子宫 补气益血 做健…</a>
 </h2>
 <p>SPAM 鹿胎膏传承百年 调理卵巢 营养子宫 补气益血 做健康女人</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3915698457511174" target="freeweibo-mirror">SPAM [话筒][话筒][话筒] //@刺猬大毛:不管从维…</a>
 </h2>
@@ -55,6 +61,12 @@
 <p>SPAM 【荣耀 6 Plus 3天9场1599 元起】见过降价的，没见过像荣耀 6 Plus 这么降价的：双十一之后每周二最高降500，现在又加入荣耀购物嘉年华限时抢购行列， 12月1日至3日，每天10：08、16：00、20：00三个时间段，荣耀 6 Plus标准版仅1599元，高配版1799元，这个价位段估计没有比这更实惠的了。<br><img src="http://ww2.sinaimg.cn/large/98c1610bjw1eylfmpq1ykj215o0yigwr.jpg"></p>
 <p>
 	<small> ============== 9小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3915645584736639" target="freeweibo-mirror">今天，南方系哭声一片，南方人物周刊的主编、号称南方系灵魂的徐…</a>
+</h2>
+<p>今天，南方系哭声一片，南方人物周刊的主编、号称南方系灵魂的徐列辞职了！这位倍受西方赏识、被誉为反抗体制枷锁斗士的媒体人，终于接到了西方的橄榄枝，要去他向往的自由民主的美国了！据说这本杂志封面曾经是中国的风向标！<br><img src="http://ww1.sinaimg.cn/large/c1cb0d8cgw1eyled2tcnqj204q06o74c.jpg"></p>
+<p>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3915639083229078" target="freeweibo-mirror">不知道美国是不是有联邦信访局，国民警卫队是否负责截访。 //…</a>
 </h2>
@@ -125,18 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3915373122117829" target="freeweibo-mirror">领导将手放在女秘书腿上不想移开。女秘书说：看过《邓选》第二卷…</a>
 </h2>
 <p>领导将手放在女秘书腿上不想移开。女秘书说：看过《邓选》第二卷第361页第11行吗？领导羞愧地把手拿开，回家一看，该页写着：胆子再大一些</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3915371435796042" target="freeweibo-mirror">SPAM 你懂的。@思想哥 @袁弘 @愛的真妮花  //@山…</a>
-</h2>
-<p>SPAM 你懂的。@思想哥 @袁弘 @愛的真妮花  //@山野逍客:这货在工作的决策上是不是经常开玩笑啊[囧]//@记者张琳:我已经失语了…<br><br>RE: #瞭望阅读# 两张图片，大家自己看吧。@崔永元 @袁弘 @老徐时评 @于建嵘 @光远看经济 @哑巴 @爱逗 @黄峻新浪官方博客 @记者张琳<br><img src="http://ww1.sinaimg.cn/large/678207a7gw1eyk542nkddj20f00qowh8.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3915340965118281" target="freeweibo-mirror">我发表了新文章：当年英国伦敦和美国洛杉矶的雾霾问题，就是民众…</a>
-</h2>
-<p>我发表了新文章：当年英国伦敦和美国洛杉矶的雾霾问题，就是民众不停地抗议、媒体不停地报道、非政府组织不停地施压，才终于缓解并获得根治。所以民主真不是说着玩的，没有选票，没有新闻自由，没有公民运动，雾霾就真的无治 http://t.cn/RUDMkMX</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
