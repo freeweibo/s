@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3915539497596787" target="freeweibo-mirror">//@作家金槿姬:环球反了。。。</a>
+</h2>
+<p>//@作家金槿姬:环球反了。。。<br><br>RE: 北京治理雾霾，看来还得靠“吹”....[doge]<br><img src="http://ww1.sinaimg.cn/large/75b1a75fgw1eyl0urpgavj20jj0bht9s.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3915526579620778" target="freeweibo-mirror">我也很佩服以胡总编为首的某些评论员，总可以用“中国特色”去为…</a>
 </h2>
 <p>我也很佩服以胡总编为首的某些评论员，总可以用“中国特色”去为政府失职或政体缺陷而辩护！//@评论员陈方:有些人我还是很佩服的，不论是雾霾还是井盖，都可以联系到政治制度问题。<br><br>RE: 我发表了新文章：当年英国伦敦和美国洛杉矶的雾霾问题，就是民众不停地抗议、媒体不停地报道、非政府组织不停地施压，才终于缓解并获得根治。所以民主真不是说着玩的，没有选票，没有新闻自由，没有公民运动，雾霾就真的无治 http://t.cn/RUDMkMX</p>
@@ -30,13 +36,13 @@
 </h2>
 <p>[doge][doge]<br><br>RE: 北京治理雾霾，看来还得靠“吹”....[doge]<br><img src="http://ww1.sinaimg.cn/large/75b1a75fgw1eyl0urpgavj20jj0bht9s.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3915524389576956" target="freeweibo-mirror">北京治理雾霾，看来还得靠“吹”....[doge]</a>
 </h2>
 <p>北京治理雾霾，看来还得靠“吹”....[doge]<br><img src="http://ww1.sinaimg.cn/large/75b1a75fgw1eyl0urpgavj20jj0bht9s.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3915392038995445" target="freeweibo-mirror">当年他画《蓝龙》抓了个奶读者就奔走相告，现在回头看真算不了什…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3915180700469235" target="freeweibo-mirror">上海共青团，难道隶属于三青团？[吃惊][吃惊][吃惊] //…</a>
 </h2>
 <p>上海共青团，难道隶属于三青团？[吃惊][吃惊][吃惊] //@胡杨麟:这特么不是黄鼠狼给鸡讲课吗，政府里盛产傻逼，源源不断，无穷尽矣。 //@秦师名粤: 又见瞎眼组织者！<br><br>RE: 惊悉，中青报曹林将于12月8—9日来沪为团干部授课指点网络舆论引导。敬请@青春上海  证实！如果是真，我只能认为你们之前不知曹林是何许人。但你们现在看到其这些言论（见截图）后，还会坚持邀请他吗？建议你们请教@共青团中央 该不该邀请他？要么你们干脆来问我？或者我作为旁听者与他一起聊此话题？<br><img src="http://ww3.sinaimg.cn/large/811168e6jw1eyjbox1i41j20f00qo0v0.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3915179513095286" target="freeweibo-mirror">SPAM 何时能解决我们雾霾滴问题呢</a>
-</h2>
-<p>SPAM 何时能解决我们雾霾滴问题呢<br><br>RE: 热烈祝贺世界气候大会召开，现在我的周围。 http://t.cn/R2W60NO<br><img src="http://ww4.sinaimg.cn/large/73570bbdjw1eyjx8xnxzbj20a00dc0tu.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
