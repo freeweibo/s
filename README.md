@@ -54,19 +54,19 @@
 </h2>
 <p>SPAM 侯爷[good]//@侯宁:修女晚上搭神父的车回家。途中，神父竟然把手搭在了修女的大腿上！修女质问神父“你记得圣经上第129条说的是什么吗？”神父听后，脸红的把手拿开了。回到家，神父急忙打开圣经129条，上面写着“再深入一点你会得到莫大的快乐！”神父大呼“上帝啊，业务不熟害死人呐[喵喵]<br><br>RE: 领导将手放在女秘书腿上不想移开。女秘书说：看过《邓选》第二卷第361页第11行吗？领导羞愧地把手拿开，回家一看，该页写着：胆子再大一些</p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3915584401721988" target="freeweibo-mirror">SPAM 记忆中小时候，家里的厨房总是大人们手忙脚乱的地方，…</a>
 </h2>
 <p>SPAM 记忆中小时候，家里的厨房总是大人们手忙脚乱的地方，隔着好远都能闻到油烟味儿，现在有了@博世家电 这些多姿多彩的厨房套装，厨房再也不是乱七八糟的油烟聚集地了，做饭变成了乐趣和享受，突然好想在这样充满艺术气息的地方给自己做顿饭，犒劳一下自己啊[嘻嘻]<br><img src="http://ww4.sinaimg.cn/large/52ee3085jw1eyl7rigbg5j20m80evta6.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3915539497596787" target="freeweibo-mirror">//@作家金槿姬:环球反了。。。</a>
 </h2>
 <p>//@作家金槿姬:环球反了。。。<br><br>RE: 北京治理雾霾，看来还得靠“吹”....[doge]<br><img src="http://ww1.sinaimg.cn/large/75b1a75fgw1eyl0urpgavj20jj0bht9s.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3915526579620778" target="freeweibo-mirror">我也很佩服以胡总编为首的某些评论员，总可以用“中国特色”去为…</a>
 </h2>
