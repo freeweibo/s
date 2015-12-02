@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3915756515051748" target="freeweibo-mirror">家乡今之福彩欺诈，一点不为怪，记忆何其相似。20多年前，邻乡…</a>
+</h2>
+<p>家乡今之福彩欺诈，一点不为怪，记忆何其相似。20多年前，邻乡一民政干部跑到我集镇上，用虚夸大奖名额、奖票不入箱之法，诓骗老百姓购买奖票，和今天之法如出一辙。虽后来被发现，但那时百姓相对要善良得多，只集镇上几个胆子大点之人骂几句而已。如此无耻之伎俩竟然还能大行之，已无底线。@武宁发布<br><img src="http://ww4.sinaimg.cn/large/9ec2ab87gw1eylr8c927vj20c808igm5.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3915707303263196" target="freeweibo-mirror">SPAM 鹿胎膏传承百年 调理卵巢 营养子宫 补气益血 做健…</a>
 </h2>
 <p>SPAM 鹿胎膏传承百年 调理卵巢 营养子宫 补气益血 做健康女人</p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3915340965118281" target="freeweibo-mirror">我发表了新文章：当年英国伦敦和美国洛杉矶的雾霾问题，就是民众…</a>
 </h2>
 <p>我发表了新文章：当年英国伦敦和美国洛杉矶的雾霾问题，就是民众不停地抗议、媒体不停地报道、非政府组织不停地施压，才终于缓解并获得根治。所以民主真不是说着玩的，没有选票，没有新闻自由，没有公民运动，雾霾就真的无治 http://t.cn/RUDMkMX</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3915323331496053" target="freeweibo-mirror">#大场鸫#X#小畑健#《铂金终局》 第2话 情报：http:…</a>
-</h2>
-<p>#大场鸫#X#小畑健#《铂金终局》 第2话 情报：http://t.cn/RUDfMPc [吃惊]<br><img src="http://ww2.sinaimg.cn/large/735bcd72gw1eykdrvisazj208c0b4wft.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
