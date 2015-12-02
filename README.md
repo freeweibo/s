@@ -24,7 +24,7 @@
 </h2>
 <p>//@作家金槿姬:环球反了。。。<br><br>RE: 北京治理雾霾，看来还得靠“吹”....[doge]<br><img src="http://ww1.sinaimg.cn/large/75b1a75fgw1eyl0urpgavj20jj0bht9s.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3915526579620778" target="freeweibo-mirror">我也很佩服以胡总编为首的某些评论员，总可以用“中国特色”去为…</a>
 </h2>
@@ -36,13 +36,13 @@
 </h2>
 <p>[doge][doge]<br><br>RE: 北京治理雾霾，看来还得靠“吹”....[doge]<br><img src="http://ww1.sinaimg.cn/large/75b1a75fgw1eyl0urpgavj20jj0bht9s.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3915524389576956" target="freeweibo-mirror">北京治理雾霾，看来还得靠“吹”....[doge]</a>
 </h2>
 <p>北京治理雾霾，看来还得靠“吹”....[doge]<br><img src="http://ww1.sinaimg.cn/large/75b1a75fgw1eyl0urpgavj20jj0bht9s.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3915392038995445" target="freeweibo-mirror">当年他画《蓝龙》抓了个奶读者就奔走相告，现在回头看真算不了什…</a>
 </h2>
