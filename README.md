@@ -30,7 +30,7 @@
 </h2>
 <p>据说中共开国大将罗瑞卿之子罗宇给他老弟习近平写了一封公开信！<br><img src="http://ww2.sinaimg.cn/large/006iwwxDjw1eymratfc2tj30db3ojwyc.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3916051219281569" target="freeweibo-mirror">[笑cry]抄作业//@任志强:这玩笑开大了！[哈哈] //…</a>
 </h2>
