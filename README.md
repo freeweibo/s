@@ -48,7 +48,7 @@
 </h2>
 <p>SPAM 你好，你的快递到了[蜡烛][蜡烛][蜡烛]</p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3915985037417356" target="freeweibo-mirror">SPAM 这两则新闻的编辑[蜡烛]</a>
 </h2>
