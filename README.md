@@ -30,7 +30,7 @@
 </h2>
 <p>SPAM 呵呵</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3916129979932604" target="freeweibo-mirror">SPAM 请以艺术的眼光、纯洁的灵魂去看去感受。晚安</a>
 </h2>
@@ -132,7 +132,7 @@
 </h2>
 <p>开国大将之子给习的建议<br><img src="http://ww3.sinaimg.cn/large/006eQVAOjw1eymnpxadvij30db3oje81.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3916012736481710" target="freeweibo-mirror">是为了追求押韵么？[蜡烛][蜡烛]//@鹤舞千阳:[doge…</a>
 </h2>
