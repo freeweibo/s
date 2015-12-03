@@ -30,7 +30,7 @@
 </h2>
 <p>是为了追求押韵么？[蜡烛][蜡烛]//@鹤舞千阳:[doge] http://t.cn/RUkYepS<br><br>RE: 我赌五毛这个浏览器做不久了<br><img src="http://ww4.sinaimg.cn/large/ab202c7bgw1eylvfnzoihj20e20p0767.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3915994051028440" target="freeweibo-mirror">收拾好细软跑路吧[蜡烛] //@M大王叫我来巡山:我又要感谢…</a>
 </h2>
