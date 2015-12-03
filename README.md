@@ -36,7 +36,7 @@
 </h2>
 <p>SPAM 12位超模性感登上法国男性杂志《Lui》12月、1月跨年合刊封面。这个阵容、这个完美Body完全跪倒。模特： Amber Valletta，Anja Rubik，Carolyn Murphy，Daria Strokous，Edita Vilkeviciute，Isabeli Fontana，Jourdan Dunn，Lara Stone，Malgosia Bela，Mariacarla Boscono，Natasha Poly， Toni Garrn<br><img src="http://ww3.sinaimg.cn/large/69402d88jw1eymt95gx2nj215o1hgan8.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3916086065801893" target="freeweibo-mirror">//@山高路远N://@黄照旋://@佬_牛: 说家事那段很…</a>
 </h2>
@@ -90,7 +90,7 @@
 </h2>
 <p>陈一新说：温州是我的故乡，是我政治成长的沃土，是我为之倾注心血和汗水的地方。</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3915952246942351" target="freeweibo-mirror">新华社给奥巴马“改名”，全国N个报社照转照发，跟着来了个国际…</a>
 </h2>
