@@ -114,13 +114,13 @@
 </h2>
 <p>全球最大的两个货币，由于一项并不存在太多悬念的政策发布，瞬间波动近3%，反映出汹涌的全球热钱已经何等猖獗，你让全球生产贸易企业作何感想？何去何从？！问题的根源再明显不过了，必须让作恶的流动性付出惨重代价！唯一的路径就是全面去泡沫，经济大萧条！三五年过山车，准备好安全带吧！！！</p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3916067929367385" target="freeweibo-mirror">据说中共开国大将罗瑞卿之子罗宇给他老弟习近平写了一封公开信！</a>
 </h2>
 <p>据说中共开国大将罗瑞卿之子罗宇给他老弟习近平写了一封公开信！<br><img src="http://ww2.sinaimg.cn/large/006iwwxDjw1eymratfc2tj30db3ojwyc.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3916051219281569" target="freeweibo-mirror">[笑cry]抄作业//@任志强:这玩笑开大了！[哈哈] //…</a>
 </h2>
