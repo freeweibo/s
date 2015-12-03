@@ -48,13 +48,13 @@
 </h2>
 <p>SPAM 不提头，辞职也中[弱] //@50年矛苔:[弱]//@南开老魏028: [弱]//@觉悟回头V: [弱] //@悟雾无:[弱] //@光明归来V:[弱] //@觉-悟-:[弱] //@姵尔琳:[弱] //@雨里雾i:死不要脸。[弱] //@姵尔艾琳:[弱] //@仞千锋:只是个笑话儿，还是那种让人鄙视的笑话儿！[弱]//@铁帅涅槃1:无耻[弱]<br><br>RE: 将不要脸进行到底！http://t.cn/R22VOu1<br><img src="http://ww3.sinaimg.cn/large/e7287079gw1eyl1gor9e3j20fn0kg76w.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3915777553950463" target="freeweibo-mirror">SPAM //@50年矛苔:[弱]//@南开老魏028: […</a>
 </h2>
 <p>SPAM //@50年矛苔:[弱]//@南开老魏028: [弱]//@觉悟回头V: [弱] //@悟雾无:[弱] //@光明归来V:[弱] //@觉-悟-:[弱] //@姵尔琳:[弱] //@雨里雾i:死不要脸。[弱] //@姵尔艾琳:[弱] //@仞千锋:只是个笑话儿，还是那种让人鄙视的笑话儿！[弱]//@铁帅涅槃1:无耻[弱]<br><br>RE: 将不要脸进行到底！http://t.cn/R22VOu1<br><img src="http://ww3.sinaimg.cn/large/e7287079gw1eyl1gor9e3j20fn0kg76w.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3915768921590808" target="freeweibo-mirror">SPAM [弱]//@南开老魏028: [弱]//@觉悟回头…</a>
 </h2>
