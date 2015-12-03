@@ -48,7 +48,7 @@
 </h2>
 <p>SPAM 这两则新闻的编辑[蜡烛]<br><img src="http://ww3.sinaimg.cn/large/7085f3c4jw1eymhrwz7l3j20hs0dn3zf.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3915979350569448" target="freeweibo-mirror">SPAM 果 然 是一个靠 谱 滴 逗 逼，这 年 头，遇 …</a>
 </h2>
