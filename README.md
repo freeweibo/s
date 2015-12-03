@@ -26,6 +26,12 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3916067929367385" target="freeweibo-mirror">据说中共开国大将罗瑞卿之子罗宇给他老弟习近平写了一封公开信！</a>
+</h2>
+<p>据说中共开国大将罗瑞卿之子罗宇给他老弟习近平写了一封公开信！<br><img src="http://ww2.sinaimg.cn/large/006iwwxDjw1eymratfc2tj30db3ojwyc.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3916051219281569" target="freeweibo-mirror">[笑cry]抄作业//@任志强:这玩笑开大了！[哈哈] //…</a>
 </h2>
 <p>[笑cry]抄作业//@任志强:这玩笑开大了！[哈哈] //@土家野夫://@刘耘博士: //@陳紹斌一一人在旅途: 新时代皇帝的新衣<br><br>RE: 新华社给奥巴马“改名”，全国N个报社照转照发，跟着来了个国际玩笑。这当然是宣传通稿制度的杰作，但通稿制不是新鲜玩意儿，何以这次闹出如此大笑话？当局者只能从近年来的所作所为找原因。不许妄议只允许一个声音的高压生态里，必然是道路以目。坐看皇帝光屁股裸奔而不点破，是发泄不满的有效方式。<br><img src="http://ww3.sinaimg.cn/large/be8f8847gw1eyme0icq1gj20bm0m8mz3.jpg"></p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3915748579486724" target="freeweibo-mirror">丫到美国就该老实点了，要还跟在中国似的，美国专政可比中国厉害…</a>
 </h2>
 <p>丫到美国就该老实点了，要还跟在中国似的，美国专政可比中国厉害 //@林岳芳:南方系哭了，那今晚无数无数的网友该笑了！[哈哈][哈哈][哈哈]</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3915707303263196" target="freeweibo-mirror">SPAM 鹿胎膏传承百年 调理卵巢 营养子宫 补气益血 做健…</a>
-</h2>
-<p>SPAM 鹿胎膏传承百年 调理卵巢 营养子宫 补气益血 做健康女人</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
