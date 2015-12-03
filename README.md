@@ -24,7 +24,7 @@
 </h2>
 <p>是为了追求押韵么？[蜡烛][蜡烛]//@鹤舞千阳:[doge] http://t.cn/RUkYepS<br><br>RE: 我赌五毛这个浏览器做不久了<br><img src="http://ww4.sinaimg.cn/large/ab202c7bgw1eylvfnzoihj20e20p0767.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3915994051028440" target="freeweibo-mirror">收拾好细软跑路吧[蜡烛] //@M大王叫我来巡山:我又要感谢…</a>
 </h2>
@@ -84,7 +84,7 @@
 </h2>
 <p>【谴责：民工讨薪遭暴行】12月2日，黑龙江鸡西市警民起冲突，几名讨薪民工遭到众警殴打。警方回应：讨薪民工聚众冲击政府机关，阻塞交通，辱骂殴打现场民警......微评：视频中看不到警方回应内容的画面，却看到了众警殴打民工的暴力画面。睁眼瞎编鬼话，你TMD累不累？[怒][怒][怒]http://t.cn/RUDB9HV</p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3915777687779177" target="freeweibo-mirror">SPAM 不提头，辞职也中[弱] //@50年矛苔:[弱]/…</a>
 </h2>
