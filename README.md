@@ -38,6 +38,12 @@
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3915876421674237" target="freeweibo-mirror">【谴责：民工讨薪遭暴行】12月2日，黑龙江鸡西市警民起冲突，…</a>
+</h2>
+<p>【谴责：民工讨薪遭暴行】12月2日，黑龙江鸡西市警民起冲突，几名讨薪民工遭到众警殴打。警方回应：讨薪民工聚众冲击政府机关，阻塞交通，辱骂殴打现场民警......微评：视频中看不到警方回应内容的画面，却看到了众警殴打民工的暴力画面。睁眼瞎编鬼话，你TMD累不累？[怒][怒][怒]http://t.cn/RUDB9HV</p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3915777687779177" target="freeweibo-mirror">SPAM 不提头，辞职也中[弱] //@50年矛苔:[弱]/…</a>
 </h2>
 <p>SPAM 不提头，辞职也中[弱] //@50年矛苔:[弱]//@南开老魏028: [弱]//@觉悟回头V: [弱] //@悟雾无:[弱] //@光明归来V:[弱] //@觉-悟-:[弱] //@姵尔琳:[弱] //@雨里雾i:死不要脸。[弱] //@姵尔艾琳:[弱] //@仞千锋:只是个笑话儿，还是那种让人鄙视的笑话儿！[弱]//@铁帅涅槃1:无耻[弱]<br><br>RE: 将不要脸进行到底！http://t.cn/R22VOu1<br><img src="http://ww3.sinaimg.cn/large/e7287079gw1eyl1gor9e3j20fn0kg76w.jpg"></p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3915584401721988" target="freeweibo-mirror">SPAM 记忆中小时候，家里的厨房总是大人们手忙脚乱的地方，…</a>
 </h2>
 <p>SPAM 记忆中小时候，家里的厨房总是大人们手忙脚乱的地方，隔着好远都能闻到油烟味儿，现在有了@博世家电 这些多姿多彩的厨房套装，厨房再也不是乱七八糟的油烟聚集地了，做饭变成了乐趣和享受，突然好想在这样充满艺术气息的地方给自己做顿饭，犒劳一下自己啊[嘻嘻]<br><img src="http://ww4.sinaimg.cn/large/52ee3085jw1eyl7rigbg5j20m80evta6.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3915539497596787" target="freeweibo-mirror">//@作家金槿姬:环球反了。。。</a>
-</h2>
-<p>//@作家金槿姬:环球反了。。。<br><br>RE: 北京治理雾霾，看来还得靠“吹”....[doge]<br><img src="http://ww1.sinaimg.cn/large/75b1a75fgw1eyl0urpgavj20jj0bht9s.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
