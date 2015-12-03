@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3916086065801893" target="freeweibo-mirror">//@山高路远N://@黄照旋://@佬_牛: 说家事那段很…</a>
+</h2>
+<p>//@山高路远N://@黄照旋://@佬_牛: 说家事那段很真切，论政事就犯糊了，还念念不忘给自己平反。//@思马南的叔: //@狐哥归来://@曹先生2012Y: //@大地飞鹰之庆丰草包: 何以见得？ //@孟庆明v:假的！ //@孔智勇35:终于看到全文了，真的假的？<br><br>RE: 据说中共开国大将罗瑞卿之子罗宇给他老弟习近平写了一封公开信！<br><img src="http://ww2.sinaimg.cn/large/006iwwxDjw1eymratfc2tj30db3ojwyc.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3916051219281569" target="freeweibo-mirror">[笑cry]抄作业//@任志强:这玩笑开大了！[哈哈] //…</a>
 </h2>
 <p>[笑cry]抄作业//@任志强:这玩笑开大了！[哈哈] //@土家野夫://@刘耘博士: //@陳紹斌一一人在旅途: 新时代皇帝的新衣<br><br>RE: 新华社给奥巴马“改名”，全国N个报社照转照发，跟着来了个国际玩笑。这当然是宣传通稿制度的杰作，但通稿制不是新鲜玩意儿，何以这次闹出如此大笑话？当局者只能从近年来的所作所为找原因。不许妄议只允许一个声音的高压生态里，必然是道路以目。坐看皇帝光屁股裸奔而不点破，是发泄不满的有效方式。<br><img src="http://ww3.sinaimg.cn/large/be8f8847gw1eyme0icq1gj20bm0m8mz3.jpg"></p>
@@ -48,7 +54,7 @@
 </h2>
 <p>SPAM 这两则新闻的编辑[蜡烛]<br><img src="http://ww3.sinaimg.cn/large/7085f3c4jw1eymhrwz7l3j20hs0dn3zf.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3915979350569448" target="freeweibo-mirror">SPAM 果 然 是一个靠 谱 滴 逗 逼，这 年 头，遇 …</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3915707303263196" target="freeweibo-mirror">SPAM 鹿胎膏传承百年 调理卵巢 营养子宫 补气益血 做健…</a>
 </h2>
 <p>SPAM 鹿胎膏传承百年 调理卵巢 营养子宫 补气益血 做健康女人</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3915698457511174" target="freeweibo-mirror">SPAM [话筒][话筒][话筒] //@刺猬大毛:不管从维…</a>
-</h2>
-<p>SPAM [话筒][话筒][话筒] //@刺猬大毛:不管从维护自身利益出发，还是从佩服@王志安 的勇气出发，这个都必须转一下。这件事关系到在北京生活的每一个人的生命安全。<br><br>RE: #999急救门# 我专门申请了一个关于999的话题。请各位在发帖时加上#999急救门# ，大家有仇报仇，有怨诉怨。一起来改变这个在首都北京的罪恶体制。</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
