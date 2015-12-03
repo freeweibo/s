@@ -42,7 +42,7 @@
 </h2>
 <p>是为了追求押韵么？[蜡烛][蜡烛]//@鹤舞千阳:[doge] http://t.cn/RUkYepS<br><br>RE: 我赌五毛这个浏览器做不久了<br><img src="http://ww4.sinaimg.cn/large/ab202c7bgw1eylvfnzoihj20e20p0767.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3915994051028440" target="freeweibo-mirror">收拾好细软跑路吧[蜡烛] //@M大王叫我来巡山:我又要感谢…</a>
 </h2>
@@ -78,7 +78,7 @@
 </h2>
 <p>新华社给奥巴马“改名”，全国N个报社照转照发，跟着来了个国际玩笑。这当然是宣传通稿制度的杰作，但通稿制不是新鲜玩意儿，何以这次闹出如此大笑话？当局者只能从近年来的所作所为找原因。不许妄议只允许一个声音的高压生态里，必然是道路以目。坐看皇帝光屁股裸奔而不点破，是发泄不满的有效方式。<br><img src="http://ww3.sinaimg.cn/large/be8f8847gw1eyme0icq1gj20bm0m8mz3.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3915930315016927" target="freeweibo-mirror">SPAM 曾经我经常嫌弃凤骂凤，等到我失去凤的时候才后悔莫及…</a>
 </h2>
