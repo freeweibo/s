@@ -108,7 +108,7 @@
 </h2>
 <p>SPAM 这两则新闻的编辑[蜡烛]<br><img src="http://ww3.sinaimg.cn/large/7085f3c4jw1eymhrwz7l3j20hs0dn3zf.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3915982223314151" target="freeweibo-mirror">你支吃的那什么玩意，简陋程度从炊具种类上就能看得出来。发达国…</a>
 </h2>
