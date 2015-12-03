@@ -54,7 +54,7 @@
 </h2>
 <p>收拾好细软跑路吧[蜡烛] //@M大王叫我来巡山:我又要感谢你们曾来过了=。=。。世界不美好吗？为什么要作死。。//@李铁根: 一路走好！//@英足总: [蜡烛]//@张奶霞:哈哈哈哈哈右边活着不好吗//@鹤舞千阳:[doge] http://t.cn/RUkYepS<br><br>RE: 我赌五毛这个浏览器做不久了<br><img src="http://ww4.sinaimg.cn/large/ab202c7bgw1eylvfnzoihj20e20p0767.jpg"></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3915986770043933" target="freeweibo-mirror">SPAM 你好，你的快递到了[蜡烛][蜡烛][蜡烛]</a>
 </h2>
@@ -72,7 +72,7 @@
 </h2>
 <p>SPAM 果 然 是一个靠 谱 滴 逗 逼，这 年 头，遇 到 这 样 滴 店 主，就 嫁 了吧！！！</p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3915966327170015" target="freeweibo-mirror">陈一新说：温州是我的故乡，是我政治成长的沃土，是我为之倾注心…</a>
 </h2>
