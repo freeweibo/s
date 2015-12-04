@@ -30,7 +30,7 @@
 </h2>
 <p>全民互害。<br><br>RE: ——文革开启了中国大陆的全民互害模式。——文革之后，互害模式进入到整个社会的各行各业。——五十年中国，从文革的［政治互害模式］升级到后来的［经济互害模式］，只要根源还在，危害就会继续存在。 http://t.cn/RUFmgSR</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3916423212637477" target="freeweibo-mirror">——文革开启了中国大陆的全民互害模式。——文革之后，互害模式…</a>
 </h2>
@@ -114,7 +114,7 @@
 </h2>
 <p>现在骗子真是越来越多了，都号称自己的创始人如何如何有钱，给慈善机构捐了多少钱。最近有个叫扎克伯格的，到处说他要捐400多亿美金。还好我去搜了一下，结果发现连他们公司网站都是非法的，根本就打不开！[黑线]<br><img src="http://ww4.sinaimg.cn/large/6d0b6b33gw1eyngd91e0uj20fi09w3zu.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3916273052663620" target="freeweibo-mirror">SPAM [笑cry]好硬//@团子熊por:哈哈哈 //@…</a>
 </h2>
