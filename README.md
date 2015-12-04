@@ -68,6 +68,12 @@
 <p>
 	<small> ============== 5小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3916264466654336" target="freeweibo-mirror">今天是国家宪法日。窃以为，“依法治国”的核心是政党、政府、国…</a>
+</h2>
+<p>今天是国家宪法日。窃以为，“依法治国”的核心是政党、政府、国民都必须守法。而不是只要求国民守法，政党、政府、特权阶层都是法外之地。所以，依法治国的前提和关键是，依法治党，依法治政府，依法治官员。而不仅仅是依法治民。试问，若政府不守法，官员不守法，凭什么叫民众守法？<br><img src="http://ww4.sinaimg.cn/large/005SvoAtgw1eyndv0eirbj30go0d9abx.jpg"></p>
+<p>
+	<small> ============== 5小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3916138649869503" target="freeweibo-mirror">SPAM 感觉同右，给摄影师差评。把人体拍成了躯壳，她的灵魂…</a>
 </h2>
 <p>SPAM 感觉同右，给摄影师差评。把人体拍成了躯壳，她的灵魂——性感呢？//@中一在线: 抄@八量先生 @王弘晖 参考！ //@海宁钱塘江:身体一级棒！但在东方眼中少了柔和和温润，所以可以欣赏，没有感觉！<br><br>RE: 主打性感火辣的法国时尚刊Lui Magazine再出大招，岁末年初的12月／1月跨年合刊邀来12位顶级超模裸身出镜拍摄了12款封面，安公子,泡泡莉,Jourdan,呆呆Daria,Mariacarla,芳芳等都有出镜～～～总的来说就是一群有颜有腿有胸有腰有腹肌的魔鬼肉体些！！！[钟][钟][钟]碎觉<br><img src="http://ww1.sinaimg.cn/large/4a966cefgw1eymwetea52j20la0rsgs6.jpg"></p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3916095418869069" target="freeweibo-mirror">SPAM wow～</a>
 </h2>
 <p>SPAM wow～<br><br>RE: SPAM 12位超模性感登上法国男性杂志《Lui》12月、1月跨年合刊封面。这个阵容、这个完美Body完全跪倒。模特： Amber Valletta，Anja Rubik，Carolyn Murphy，Daria Strokous，Edita Vilkeviciute，Isabeli Fontana，Jourdan Dunn，Lara Stone，Malgosia Bela，Mariacarla Boscono，Natasha Poly， Toni Garrn<br><img src="http://ww3.sinaimg.cn/large/69402d88jw1eymt95gx2nj215o1hgan8.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3916094748574966" target="freeweibo-mirror">SPAM 12位超模性感登上法国男性杂志《Lui》12月、1…</a>
-</h2>
-<p>SPAM 12位超模性感登上法国男性杂志《Lui》12月、1月跨年合刊封面。这个阵容、这个完美Body完全跪倒。模特： Amber Valletta，Anja Rubik，Carolyn Murphy，Daria Strokous，Edita Vilkeviciute，Isabeli Fontana，Jourdan Dunn，Lara Stone，Malgosia Bela，Mariacarla Boscono，Natasha Poly， Toni Garrn<br><img src="http://ww3.sinaimg.cn/large/69402d88jw1eymt95gx2nj215o1hgan8.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
