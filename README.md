@@ -24,7 +24,7 @@
 </h2>
 <p>//@谓贤:宪法日注脚//@Ming_the_Great_大明://@律师文摘:“高记”名瑜，“名律”姓浦。<br><br>RE: 【宪法日拜访江平先生】宪法日阳光明媚，与@贺卫方@话家国君 一起拜访年届八五的@江平教授 。江先生谈起了@李庄 案、高/瑜案和浦大个儿案，并为我们背诵了几日前写给张思之大律师米寿的打油诗：“又逢雾霾暗遮日，高记名律两折时。人权似有却无有，大地高声唤思之。”<br><img src="http://ww4.sinaimg.cn/large/5eda9153jw1eynpa0co2fj20zk0qo0vy.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3916429247748016" target="freeweibo-mirror">全民互害。</a>
 </h2>
@@ -72,7 +72,7 @@
 </h2>
 <p>SPAM twitter上，5毛操作失誤，忘記将括弧内的内容删除，一並轉發出來。[哈哈][酷]微評：這智商，基本已告别網評員隊伍啦。[笑cry][拜拜]<br><img src="http://ww1.sinaimg.cn/large/b01cb15bgw1eynim0044mj20dq096q4a.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3916301006925484" target="freeweibo-mirror">SPAM //@永不言败_胡钢:扩散求真相[思考]#正义呐喊…</a>
 </h2>
