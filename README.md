@@ -30,13 +30,13 @@
 </h2>
 <p>回复@POCKETWOLF:[哈哈]//@POCKETWOLF:他还给网站起个不三不四的名字叫 脸书， 太三俗了！还不叫麻衣神相呗，我们几千年前就有了<br><br>RE: 现在骗子真是越来越多了，都号称自己的创始人如何如何有钱，给慈善机构捐了多少钱。最近有个叫扎克伯格的，到处说他要捐400多亿美金。还好我去搜了一下，结果发现连他们公司网站都是非法的，根本就打不开！[黑线]<br><img src="http://ww4.sinaimg.cn/large/6d0b6b33gw1eyngd91e0uj20fi09w3zu.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3916294539376007" target="freeweibo-mirror">SPAM 回复@哨楼坡:因为他捐的数目是真TM大。//@哨楼…</a>
 </h2>
 <p>SPAM 回复@哨楼坡:因为他捐的数目是真TM大。//@哨楼坡:请教郑Sir：为何报道的焦点都集中在他捐多少上面？<br><br>RE: 现在骗子真是越来越多了，都号称自己的创始人如何如何有钱，给慈善机构捐了多少钱。最近有个叫扎克伯格的，到处说他要捐400多亿美金。还好我去搜了一下，结果发现连他们公司网站都是非法的，根本就打不开！[黑线]<br><img src="http://ww4.sinaimg.cn/large/6d0b6b33gw1eyngd91e0uj20fi09w3zu.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3916273052663620" target="freeweibo-mirror">SPAM [笑cry]好硬//@团子熊por:哈哈哈 //@…</a>
 </h2>
