@@ -54,13 +54,13 @@
 </h2>
 <p>回复@POCKETWOLF:[哈哈]//@POCKETWOLF:他还给网站起个不三不四的名字叫 脸书， 太三俗了！还不叫麻衣神相呗，我们几千年前就有了<br><br>RE: 现在骗子真是越来越多了，都号称自己的创始人如何如何有钱，给慈善机构捐了多少钱。最近有个叫扎克伯格的，到处说他要捐400多亿美金。还好我去搜了一下，结果发现连他们公司网站都是非法的，根本就打不开！[黑线]<br><img src="http://ww4.sinaimg.cn/large/6d0b6b33gw1eyngd91e0uj20fi09w3zu.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3916294539376007" target="freeweibo-mirror">SPAM 回复@哨楼坡:因为他捐的数目是真TM大。//@哨楼…</a>
 </h2>
 <p>SPAM 回复@哨楼坡:因为他捐的数目是真TM大。//@哨楼坡:请教郑Sir：为何报道的焦点都集中在他捐多少上面？<br><br>RE: 现在骗子真是越来越多了，都号称自己的创始人如何如何有钱，给慈善机构捐了多少钱。最近有个叫扎克伯格的，到处说他要捐400多亿美金。还好我去搜了一下，结果发现连他们公司网站都是非法的，根本就打不开！[黑线]<br><img src="http://ww4.sinaimg.cn/large/6d0b6b33gw1eyngd91e0uj20fi09w3zu.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3916290223324512" target="freeweibo-mirror">#吐槽曝料##蚌埠百大门口打人事件#真够狠！吓死宝宝了！[吃…</a>
 </h2>
@@ -90,7 +90,7 @@
 </h2>
 <p>今天是国家宪法日。窃以为，“依法治国”的核心是政党、政府、国民都必须守法。而不是只要求国民守法，政党、政府、特权阶层都是法外之地。所以，依法治国的前提和关键是，依法治党，依法治政府，依法治官员。而不仅仅是依法治民。试问，若政府不守法，官员不守法，凭什么叫民众守法？<br><img src="http://ww4.sinaimg.cn/large/005SvoAtgw1eyndv0eirbj30go0d9abx.jpg"></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3916138649869503" target="freeweibo-mirror">SPAM 感觉同右，给摄影师差评。把人体拍成了躯壳，她的灵魂…</a>
 </h2>
