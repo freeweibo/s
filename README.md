@@ -48,7 +48,7 @@
 </h2>
 <p>SPAM 一声叹息！<br><br>RE: 勞資不玩了。<br><img src="http://ww3.sinaimg.cn/large/5937c055jw1eynq3h70tcj20jz0zkqai.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3916370959877840" target="freeweibo-mirror">勞資不玩了。</a>
 </h2>
@@ -102,7 +102,7 @@
 </h2>
 <p>#吐槽曝料##蚌埠百大门口打人事件#真够狠！吓死宝宝了！[吃惊]  请@蚌埠公安在线 关注！ http://t.cn/RUFa5n6 .</p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3916286263883071" target="freeweibo-mirror">现在骗子真是越来越多了，都号称自己的创始人如何如何有钱，给慈…</a>
 </h2>
