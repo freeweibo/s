@@ -72,7 +72,7 @@
 </h2>
 <p>SPAM 一声叹息！<br><br>RE: 勞資不玩了。<br><img src="http://ww3.sinaimg.cn/large/5937c055jw1eynq3h70tcj20jz0zkqai.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3916370959877840" target="freeweibo-mirror">勞資不玩了。</a>
 </h2>
