@@ -96,7 +96,7 @@
 </h2>
 <p>今天是国家宪法日。窃以为，“依法治国”的核心是政党、政府、国民都必须守法。而不是只要求国民守法，政党、政府、特权阶层都是法外之地。所以，依法治国的前提和关键是，依法治党，依法治政府，依法治官员。而不仅仅是依法治民。试问，若政府不守法，官员不守法，凭什么叫民众守法？<br><img src="http://ww4.sinaimg.cn/large/005SvoAtgw1eyndv0eirbj30go0d9abx.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3916138649869503" target="freeweibo-mirror">SPAM 感觉同右，给摄影师差评。把人体拍成了躯壳，她的灵魂…</a>
 </h2>
