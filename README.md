@@ -60,7 +60,7 @@
 </h2>
 <p>——文革开启了中国大陆的全民互害模式。——文革之后，互害模式进入到整个社会的各行各业。——五十年中国，从文革的［政治互害模式］升级到后来的［经济互害模式］，只要根源还在，危害就会继续存在。 http://t.cn/RUFmgSR</p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3916405193957388" target="freeweibo-mirror">SPAM 人人车办公室随拍ing</a>
 </h2>
