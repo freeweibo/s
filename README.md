@@ -66,7 +66,7 @@
 </h2>
 <p>[笑cry]//@为常识而奋斗2: 转发微博</p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3916306467977016" target="freeweibo-mirror">SPAM twitter上，5毛操作失誤，忘記将括弧内的内容…</a>
 </h2>
