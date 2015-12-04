@@ -48,7 +48,7 @@
 </h2>
 <p>SPAM 一声叹息！<br><br>RE: 勞資不玩了。<br><img src="http://ww3.sinaimg.cn/large/5937c055jw1eynq3h70tcj20jz0zkqai.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3916370959877840" target="freeweibo-mirror">勞資不玩了。</a>
 </h2>
@@ -60,7 +60,7 @@
 </h2>
 <p>【宪法日拜访江平先生】宪法日阳光明媚，与@贺卫方@话家国君 一起拜访年届八五的@江平教授 。江先生谈起了@李庄 案、高/瑜案和浦大个儿案，并为我们背诵了几日前写给张思之大律师米寿的打油诗：“又逢雾霾暗遮日，高记名律两折时。人权似有却无有，大地高声唤思之。”<br><img src="http://ww4.sinaimg.cn/large/5eda9153jw1eynpa0co2fj20zk0qo0vy.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3916330639674020" target="freeweibo-mirror">[笑cry]//@为常识而奋斗2: 转发微博</a>
 </h2>
