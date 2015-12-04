@@ -30,7 +30,7 @@
 </h2>
 <p>鬼王丹！(知道这个梗的得是十五年以上网友)<br><br>RE: 常会有中国的网友，他们都是向往台湾的民主生活。。。知道图4那男的谁么?<br><img src="http://ww3.sinaimg.cn/large/c37c67cbgw1eyo0s4qt68j20k00azwf0.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3916464845627155" target="freeweibo-mirror">常会有中国的网友，他们都是向往台湾的民主生活。。。知道图4那…</a>
 </h2>
@@ -66,7 +66,7 @@
 </h2>
 <p>SPAM 人人车办公室随拍ing<br><img src="http://ww1.sinaimg.cn/large/640b215bjw1eynu13ddibj20m80etadi.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3916379994335748" target="freeweibo-mirror">SPAM 一声叹息！</a>
 </h2>
