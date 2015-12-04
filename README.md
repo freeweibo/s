@@ -42,7 +42,7 @@
 </h2>
 <p>一年一度法制段子大赛吗！哈哈哈 //@关爱智障儿童成长:哈哈哈哈哈哈哈哈哈 //@江南大野花:同学，你进错考场了，政治考试在隔壁，这里是鸡汤考场 //@眼睛长在屁股上:自己选择的主义跪着也要发展 //@M大王叫我来巡山:</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3916434385883041" target="freeweibo-mirror">//@谓贤:宪法日注脚//@Ming_the_Great_大…</a>
 </h2>
@@ -78,7 +78,7 @@
 </h2>
 <p>勞資不玩了。<br><img src="http://ww3.sinaimg.cn/large/5937c055jw1eynq3h70tcj20jz0zkqai.jpg"></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3916364605033391" target="freeweibo-mirror">【宪法日拜访江平先生】宪法日阳光明媚，与@贺卫方@话家国君 …</a>
 </h2>
