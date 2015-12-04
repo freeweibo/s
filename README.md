@@ -84,7 +84,7 @@
 </h2>
 <p>SPAM #买车的那些事儿# 滴滴1元试驾？突然知道怎么省 钱了，每天上学上班是不是可以约个试驾顺便省了打车费呢[嘻嘻]<br><img src="http://ww3.sinaimg.cn/large/8eda1a63jw1eynhk5d24zj20ku72t4qp.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3916295475526428" target="freeweibo-mirror">回复@绝望的生鱼片1234:俺这种下岗新闻工人裸捐也没几毛/…</a>
 </h2>
@@ -108,7 +108,7 @@
 </h2>
 <p>#吐槽曝料##蚌埠百大门口打人事件#真够狠！吓死宝宝了！[吃惊]  请@蚌埠公安在线 关注！ http://t.cn/RUFa5n6 .</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3916286263883071" target="freeweibo-mirror">现在骗子真是越来越多了，都号称自己的创始人如何如何有钱，给慈…</a>
 </h2>
