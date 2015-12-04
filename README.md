@@ -20,6 +20,18 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3916466526916444" target="freeweibo-mirror">回复@夏商周尧舜禹:最早的搜索引擎对人名处理不好，搜索“王丹…</a>
+</h2>
+<p>回复@夏商周尧舜禹:最早的搜索引擎对人名处理不好，搜索“王丹”的结果是一堆关于“鬼王丹”的武侠小说，那东西大概是某种吃了增长功力的丹药。//@夏商周尧舜禹:不懂求解释//@西西福厮:鬼王丹！(知道这个梗的得是十五年以上网友)<br><br>RE: 常会有中国的网友，他们都是向往台湾的民主生活。。。知道图4那男的谁么?<br><img src="http://ww3.sinaimg.cn/large/c37c67cbgw1eyo0s4qt68j20k00azwf0.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3916465436885426" target="freeweibo-mirror">鬼王丹！(知道这个梗的得是十五年以上网友)</a>
+</h2>
+<p>鬼王丹！(知道这个梗的得是十五年以上网友)<br><br>RE: 常会有中国的网友，他们都是向往台湾的民主生活。。。知道图4那男的谁么?<br><img src="http://ww3.sinaimg.cn/large/c37c67cbgw1eyo0s4qt68j20k00azwf0.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3916461719989300" target="freeweibo-mirror">一年一度法制段子大赛吗！哈哈哈 //@关爱智障儿童成长:哈哈…</a>
 </h2>
 <p>一年一度法制段子大赛吗！哈哈哈 //@关爱智障儿童成长:哈哈哈哈哈哈哈哈哈 //@江南大野花:同学，你进错考场了，政治考试在隔壁，这里是鸡汤考场 //@眼睛长在屁股上:自己选择的主义跪着也要发展 //@M大王叫我来巡山:</p>
@@ -36,7 +48,7 @@
 </h2>
 <p>全民互害。<br><br>RE: ——文革开启了中国大陆的全民互害模式。——文革之后，互害模式进入到整个社会的各行各业。——五十年中国，从文革的［政治互害模式］升级到后来的［经济互害模式］，只要根源还在，危害就会继续存在。 http://t.cn/RUFmgSR</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3916423212637477" target="freeweibo-mirror">——文革开启了中国大陆的全民互害模式。——文革之后，互害模式…</a>
 </h2>
@@ -72,7 +84,7 @@
 </h2>
 <p>[笑cry]//@为常识而奋斗2: 转发微博</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3916306467977016" target="freeweibo-mirror">SPAM twitter上，5毛操作失誤，忘記将括弧内的内容…</a>
 </h2>
@@ -125,18 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3916273052663620" target="freeweibo-mirror">SPAM [笑cry]好硬//@团子熊por:哈哈哈 //@…</a>
 </h2>
 <p>SPAM [笑cry]好硬//@团子熊por:哈哈哈 //@眠免:糟糕，脑补无限循环播放。。。。</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3916270418777800" target="freeweibo-mirror">SPAM 哈哈哈哈哈哈哈什么鬼</a>
-</h2>
-<p>SPAM 哈哈哈哈哈哈哈什么鬼</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3916264466654336" target="freeweibo-mirror">今天是国家宪法日。窃以为，“依法治国”的核心是政党、政府、国…</a>
-</h2>
-<p>今天是国家宪法日。窃以为，“依法治国”的核心是政党、政府、国民都必须守法。而不是只要求国民守法，政党、政府、特权阶层都是法外之地。所以，依法治国的前提和关键是，依法治党，依法治政府，依法治官员。而不仅仅是依法治民。试问，若政府不守法，官员不守法，凭什么叫民众守法？<br><img src="http://ww4.sinaimg.cn/large/005SvoAtgw1eyndv0eirbj30go0d9abx.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
