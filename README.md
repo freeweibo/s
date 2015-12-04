@@ -36,7 +36,7 @@
 </h2>
 <p>回复@绝望的生鱼片1234:俺这种下岗新闻工人裸捐也没几毛//@绝望的生鱼片1234:郑sir 你啥时候裸捐呢？//@郑维:回复@POCKETWOLF:[哈哈]//@POCKETWOLF:他还给网站起个不三不四的名字叫 脸书， 太三俗了！还不叫麻衣神相呗，我们几千年前就有了<br><br>RE: 现在骗子真是越来越多了，都号称自己的创始人如何如何有钱，给慈善机构捐了多少钱。最近有个叫扎克伯格的，到处说他要捐400多亿美金。还好我去搜了一下，结果发现连他们公司网站都是非法的，根本就打不开！[黑线]<br><img src="http://ww4.sinaimg.cn/large/6d0b6b33gw1eyngd91e0uj20fi09w3zu.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3916294799957515" target="freeweibo-mirror">回复@POCKETWOLF:[哈哈]//@POCKETWOL…</a>
 </h2>
