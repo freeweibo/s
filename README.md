@@ -20,6 +20,24 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3916295475526428" target="freeweibo-mirror">回复@绝望的生鱼片1234:俺这种下岗新闻工人裸捐也没几毛/…</a>
+</h2>
+<p>回复@绝望的生鱼片1234:俺这种下岗新闻工人裸捐也没几毛//@绝望的生鱼片1234:郑sir 你啥时候裸捐呢？//@郑维:回复@POCKETWOLF:[哈哈]//@POCKETWOLF:他还给网站起个不三不四的名字叫 脸书， 太三俗了！还不叫麻衣神相呗，我们几千年前就有了<br><br>RE: 现在骗子真是越来越多了，都号称自己的创始人如何如何有钱，给慈善机构捐了多少钱。最近有个叫扎克伯格的，到处说他要捐400多亿美金。还好我去搜了一下，结果发现连他们公司网站都是非法的，根本就打不开！[黑线]<br><img src="http://ww4.sinaimg.cn/large/6d0b6b33gw1eyngd91e0uj20fi09w3zu.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3916294799957515" target="freeweibo-mirror">回复@POCKETWOLF:[哈哈]//@POCKETWOL…</a>
+</h2>
+<p>回复@POCKETWOLF:[哈哈]//@POCKETWOLF:他还给网站起个不三不四的名字叫 脸书， 太三俗了！还不叫麻衣神相呗，我们几千年前就有了<br><br>RE: 现在骗子真是越来越多了，都号称自己的创始人如何如何有钱，给慈善机构捐了多少钱。最近有个叫扎克伯格的，到处说他要捐400多亿美金。还好我去搜了一下，结果发现连他们公司网站都是非法的，根本就打不开！[黑线]<br><img src="http://ww4.sinaimg.cn/large/6d0b6b33gw1eyngd91e0uj20fi09w3zu.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3916294539376007" target="freeweibo-mirror">SPAM 回复@哨楼坡:因为他捐的数目是真TM大。//@哨楼…</a>
+</h2>
+<p>SPAM 回复@哨楼坡:因为他捐的数目是真TM大。//@哨楼坡:请教郑Sir：为何报道的焦点都集中在他捐多少上面？<br><br>RE: 现在骗子真是越来越多了，都号称自己的创始人如何如何有钱，给慈善机构捐了多少钱。最近有个叫扎克伯格的，到处说他要捐400多亿美金。还好我去搜了一下，结果发现连他们公司网站都是非法的，根本就打不开！[黑线]<br><img src="http://ww4.sinaimg.cn/large/6d0b6b33gw1eyngd91e0uj20fi09w3zu.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3916273052663620" target="freeweibo-mirror">SPAM [笑cry]好硬//@团子熊por:哈哈哈 //@…</a>
 </h2>
 <p>SPAM [笑cry]好硬//@团子熊por:哈哈哈 //@眠免:糟糕，脑补无限循环播放。。。。</p>
@@ -42,7 +60,7 @@
 </h2>
 <p>SPAM 呵呵</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3916129979932604" target="freeweibo-mirror">SPAM 请以艺术的眼光、纯洁的灵魂去看去感受。晚安</a>
 </h2>
@@ -119,24 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3916086065801893" target="freeweibo-mirror">//@山高路远N://@黄照旋://@佬_牛: 说家事那段很…</a>
 </h2>
 <p>//@山高路远N://@黄照旋://@佬_牛: 说家事那段很真切，论政事就犯糊了，还念念不忘给自己平反。//@思马南的叔: //@狐哥归来://@曹先生2012Y: //@大地飞鹰之庆丰草包: 何以见得？ //@孟庆明v:假的！ //@孔智勇35:终于看到全文了，真的假的？<br><br>RE: 据说中共开国大将罗瑞卿之子罗宇给他老弟习近平写了一封公开信！<br><img src="http://ww2.sinaimg.cn/large/006iwwxDjw1eymratfc2tj30db3ojwyc.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3916083792414764" target="freeweibo-mirror">全球最大的两个货币，由于一项并不存在太多悬念的政策发布，瞬间…</a>
-</h2>
-<p>全球最大的两个货币，由于一项并不存在太多悬念的政策发布，瞬间波动近3%，反映出汹涌的全球热钱已经何等猖獗，你让全球生产贸易企业作何感想？何去何从？！问题的根源再明显不过了，必须让作恶的流动性付出惨重代价！唯一的路径就是全面去泡沫，经济大萧条！三五年过山车，准备好安全带吧！！！</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3916067929367385" target="freeweibo-mirror">据说中共开国大将罗瑞卿之子罗宇给他老弟习近平写了一封公开信！</a>
-</h2>
-<p>据说中共开国大将罗瑞卿之子罗宇给他老弟习近平写了一封公开信！<br><img src="http://ww2.sinaimg.cn/large/006iwwxDjw1eymratfc2tj30db3ojwyc.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3916051219281569" target="freeweibo-mirror">[笑cry]抄作业//@任志强:这玩笑开大了！[哈哈] //…</a>
-</h2>
-<p>[笑cry]抄作业//@任志强:这玩笑开大了！[哈哈] //@土家野夫://@刘耘博士: //@陳紹斌一一人在旅途: 新时代皇帝的新衣<br><br>RE: 新华社给奥巴马“改名”，全国N个报社照转照发，跟着来了个国际玩笑。这当然是宣传通稿制度的杰作，但通稿制不是新鲜玩意儿，何以这次闹出如此大笑话？当局者只能从近年来的所作所为找原因。不许妄议只允许一个声音的高压生态里，必然是道路以目。坐看皇帝光屁股裸奔而不点破，是发泄不满的有效方式。<br><img src="http://ww3.sinaimg.cn/large/be8f8847gw1eyme0icq1gj20bm0m8mz3.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
