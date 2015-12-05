@@ -24,7 +24,7 @@
 </h2>
 <p>SPAM 【荣耀决战最后50小时】流木嘛？恩？这个名字似乎是有那么一点点的耳熟，怎么会呢，好奇怪的哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈！@杭州304 #全职高手#COS集《百炼荣耀》全网独家预定！（总是被屏蔽也是苦恼，换个方式试一下，地址在图片里哈！或者去304官博看一下哦！）<br><img src="http://ww2.sinaimg.cn/large/68ea6920jw1eyp43jvfk8j20tt15px1e.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3916783985787097" target="freeweibo-mirror">SPAM 笑疯了！ //@SSer_木子田可:[笑cry][…</a>
 </h2>
