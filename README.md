@@ -38,6 +38,12 @@
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3916639865138030" target="freeweibo-mirror">马云夫妇正式皈依。@陈坤 [玫瑰][玫瑰][玫瑰]随喜皈依功…</a>
+</h2>
+<p>马云夫妇正式皈依。@陈坤 [玫瑰][玫瑰][玫瑰]随喜皈依功德<br><img src="http://ww4.sinaimg.cn/large/641da7c2jw1eyokzdtcjxj20cn0hsmz6.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3916636584964194" target="freeweibo-mirror">//@我要法网:一年浪费人民数十亿的报纸的作用就是制造让人类…</a>
 </h2>
 <p>//@我要法网:一年浪费人民数十亿的报纸的作用就是制造让人类笑话的所谓宣传新闻啊，可悲可笑可怜可耻可恨可绝！<br><br>RE: 【这是真的吗？】总觉得有点儿像是在“挖坑”。让我不避“妄议”之嫌，说一句：是该警惕新闻宣传中的“个人崇拜”的时候了。<br><img src="http://ww3.sinaimg.cn/large/48866320jw1eyohmcdd7nj20fa0kdtbv.jpg"></p>
@@ -90,13 +96,13 @@
 </h2>
 <p>马老师 皈依佛门了。随喜赞叹。</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3916630117150236" target="freeweibo-mirror">SPAM 一而再的出错[怒]，还是这种政治敏感问题，必须追责…</a>
 </h2>
 <p>SPAM 一而再的出错[怒]，还是这种政治敏感问题，必须追责！<br><br>RE: 新華社</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3916626208350494" target="freeweibo-mirror">SPAM 老大太忙了，喉舌不够用了。#微言传播#</a>
 </h2>
@@ -126,19 +132,13 @@
 </h2>
 <p>SPAM …………//@激光月饼大魔王: ……//@张七公子HBU:一个通稿的发布，比关老爷千里独行五关六将环节都多，这都能出错？<br><br>RE: 一种大型悲剧....................<br><img src="http://ww1.sinaimg.cn/large/3c3b3458gw1eyo1dq1tnsj208i05pmya.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3916615467014944" target="freeweibo-mirror">SPAM 艺术[吃惊][吃惊] //@龙行天下A龙哥:我看行…</a>
 </h2>
 <p>SPAM 艺术[吃惊][吃惊] //@龙行天下A龙哥:我看行 //@大学生讲坛:目测此女子能火！[good]<br><br>RE: 【我勒个去，女子裸体作画】近日，网上流传一组名为“才女雅芬作画全过程”的照片，照片中的美女画家，全裸身子作画，引起网友围观。自己的身体，展露在众目睽睽下，被“欣赏”，是让观众看画还是看人?用裸体来吸引人眼球，是艺术还是想一裸成名?http://t.cn/RUs4czv @大学生讲坛<br><img src="http://ww4.sinaimg.cn/large/54fc4ea7gw1eyohr9icm2j20dw0kvq4m.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3916615139233578" target="freeweibo-mirror">领袖固然重要，但不要忘记了团队，忘记了民众。</a>
-</h2>
-<p>领袖固然重要，但不要忘记了团队，忘记了民众。<br><br>RE: 【这是真的吗？】总觉得有点儿像是在“挖坑”。让我不避“妄议”之嫌，说一句：是该警惕新闻宣传中的“个人崇拜”的时候了。<br><img src="http://ww3.sinaimg.cn/large/48866320jw1eyohmcdd7nj20fa0kdtbv.jpg"></p>
-<p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p>
 <table>
     <tr>
