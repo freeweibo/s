@@ -48,7 +48,7 @@
 </h2>
 <p>SPAM 不是 PS的？//@朱庄虹007: 过失亦是间接故意。//@不沉默的大多数: 连续性笔误？<br><br>RE: 花样作死又出新高度<br><img src="http://ww4.sinaimg.cn/large/5db2d058jw1eyor6u0nsyj20ch0m8tau.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3916698971310478" target="freeweibo-mirror">SPAM 连续性笔误？</a>
 </h2>
@@ -66,7 +66,7 @@
 </h2>
 <p>福山：中国实际上还是一种封建王朝的运行模式。中国现在擅长的事情也是中国过去250年所擅长的，那就是官僚集团、快速决策、大量投资（基础设施）。但是，政府的合法性危机事实上在日益加重。合法性都押在经济上，但经济也在严重滑坡。还在玩马列主义的意识形态，但对合法性全无帮助，因为没人相信。<br><img src="http://ww3.sinaimg.cn/large/c57c1a49jw1eyoqhsohmwj20b408c0tc.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3916659717008113" target="freeweibo-mirror">SPAM @加措活佛-慈爱基金：马老师 皈依佛门了。随喜赞叹…</a>
 </h2>
@@ -84,7 +84,7 @@
 </h2>
 <p>SPAM 很多君子看后义愤填膺，但内心都想上她！语言上很坚决，但身体却很诚实！@隆裕太后<br><br>RE: 【我勒个去，女子裸体作画】近日，网上流传一组名为“才女雅芬作画全过程”的照片，照片中的美女画家，全裸身子作画，引起网友围观。自己的身体，展露在众目睽睽下，被“欣赏”，是让观众看画还是看人?用裸体来吸引人眼球，是艺术还是想一裸成名?http://t.cn/RUs4czv @大学生讲坛<br><img src="http://ww4.sinaimg.cn/large/54fc4ea7gw1eyohr9icm2j20dw0kvq4m.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3916640640727586" target="freeweibo-mirror">SPAM 近日马云先生在大宝法王足下领受皈依，如其发心和观想…</a>
 </h2>
