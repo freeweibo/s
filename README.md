@@ -20,6 +20,18 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3916720143765836" target="freeweibo-mirror">是忠言逆耳还是肆意妄议？ //@牛宝宝max:@清华孙立平 …</a>
+</h2>
+<p>是忠言逆耳还是肆意妄议？ //@牛宝宝max:@清华孙立平 @张鸣 @陶景洲 @Ming_the_Great_大明 @王周生<br><br>RE: 福山：中国实际上还是一种封建王朝的运行模式。中国现在擅长的事情也是中国过去250年所擅长的，那就是官僚集团、快速决策、大量投资（基础设施）。但是，政府的合法性危机事实上在日益加重。合法性都押在经济上，但经济也在严重滑坡。还在玩马列主义的意识形态，但对合法性全无帮助，因为没人相信。<br><img src="http://ww3.sinaimg.cn/large/c57c1a49jw1eyoqhsohmwj20b408c0tc.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3916719792087866" target="freeweibo-mirror">合法性能押宝？//@常州杨洪波://@饮水居士:建政70年以…</a>
+</h2>
+<p>合法性能押宝？//@常州杨洪波://@饮水居士:建政70年以来第二次严重的社会危机。<br><br>RE: 福山：中国实际上还是一种封建王朝的运行模式。中国现在擅长的事情也是中国过去250年所擅长的，那就是官僚集团、快速决策、大量投资（基础设施）。但是，政府的合法性危机事实上在日益加重。合法性都押在经济上，但经济也在严重滑坡。还在玩马列主义的意识形态，但对合法性全无帮助，因为没人相信。<br><img src="http://ww3.sinaimg.cn/large/c57c1a49jw1eyoqhsohmwj20b408c0tc.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3916659717008113" target="freeweibo-mirror">SPAM @加措活佛-慈爱基金：马老师 皈依佛门了。随喜赞叹…</a>
 </h2>
 <p>SPAM @加措活佛-慈爱基金：马老师 皈依佛门了。随喜赞叹。<br><img src="http://ww4.sinaimg.cn/large/928aba1egw1eyon8z50sjj20k00zkaf9.jpg"></p>
@@ -30,7 +42,7 @@
 </h2>
 <p>转发 //@LifeTime:马老师还皈依过李道长、王林大师。[doge]//@中国之声郭燕:转发微博<br><br>RE: 马老师 皈依佛门了。随喜赞叹。</p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3916642495434877" target="freeweibo-mirror">SPAM 很多君子看后义愤填膺，但内心都想上她！语言上很坚决…</a>
 </h2>
@@ -125,18 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3916621959647468" target="freeweibo-mirror">SPAM [赞]//@逐渐成熟不断成熟:顶</a>
 </h2>
 <p>SPAM [赞]//@逐渐成熟不断成熟:顶<br><br>RE: 【这是真的吗？】总觉得有点儿像是在“挖坑”。让我不避“妄议”之嫌，说一句：是该警惕新闻宣传中的“个人崇拜”的时候了。<br><img src="http://ww3.sinaimg.cn/large/48866320jw1eyohmcdd7nj20fa0kdtbv.jpg"></p>
-<p>
-	<small> ============== 8小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3916620105686651" target="freeweibo-mirror">SPAM 转发收藏</a>
-</h2>
-<p>SPAM 转发收藏<br><br>RE: 【这是真的吗？】总觉得有点儿像是在“挖坑”。让我不避“妄议”之嫌，说一句：是该警惕新闻宣传中的“个人崇拜”的时候了。<br><img src="http://ww3.sinaimg.cn/large/48866320jw1eyohmcdd7nj20fa0kdtbv.jpg"></p>
-<p>
-	<small> ============== 8小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3916619027343610" target="freeweibo-mirror">SPAM 有年头没看人日了,肿么还是50年前的样子.[伤心]…</a>
-</h2>
-<p>SPAM 有年头没看人日了,肿么还是50年前的样子.[伤心]大大这不累毁了。[NO]<br><br>RE: 今天的人民日报@于建嵘<br><img src="http://ww3.sinaimg.cn/large/92388349jw1eyo0srcuozj20f00qoq54.jpg"></p>
 <p>
 	<small> ============== 8小时前</small>
 </p>
