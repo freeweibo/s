@@ -24,7 +24,7 @@
 </h2>
 <p>SPAM @加措活佛-慈爱基金：马老师 皈依佛门了。随喜赞叹。<br><img src="http://ww4.sinaimg.cn/large/928aba1egw1eyon8z50sjj20k00zkaf9.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3916642616415420" target="freeweibo-mirror">转发 //@LifeTime:马老师还皈依过李道长、王林大师…</a>
 </h2>
