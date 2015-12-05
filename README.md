@@ -30,7 +30,7 @@
 </h2>
 <p>SPAM 为了荣耀！</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3916720143765836" target="freeweibo-mirror">是忠言逆耳还是肆意妄议？ //@牛宝宝max:@清华孙立平 …</a>
 </h2>
@@ -72,7 +72,7 @@
 </h2>
 <p>花样作死又出新高度<br><img src="http://ww4.sinaimg.cn/large/5db2d058jw1eyor6u0nsyj20ch0m8tau.jpg"></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3916687822539491" target="freeweibo-mirror">福山：中国实际上还是一种封建王朝的运行模式。中国现在擅长的事…</a>
 </h2>
