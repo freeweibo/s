@@ -72,7 +72,7 @@
 </h2>
 <p>SPAM 一而再的出错[怒]，还是这种政治敏感问题，必须追责！<br><br>RE: 新華社</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3916626208350494" target="freeweibo-mirror">SPAM 老大太忙了，喉舌不够用了。#微言传播#</a>
 </h2>
@@ -102,7 +102,7 @@
 </h2>
 <p>领袖固然重要，但不要忘记了团队，忘记了民众。<br><br>RE: 【这是真的吗？】总觉得有点儿像是在“挖坑”。让我不避“妄议”之嫌，说一句：是该警惕新闻宣传中的“个人崇拜”的时候了。<br><img src="http://ww3.sinaimg.cn/large/48866320jw1eyohmcdd7nj20fa0kdtbv.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3916613629363678" target="freeweibo-mirror">【中国投600亿美元支持非洲】中国将在未来三年里拨款600亿…</a>
 </h2>
@@ -113,6 +113,12 @@
 	<a href="https://freeweibo.com/weibo/3916610873675796" target="freeweibo-mirror">【这是真的吗？】总觉得有点儿像是在“挖坑”。让我不避“妄议”…</a>
 </h2>
 <p>【这是真的吗？】总觉得有点儿像是在“挖坑”。让我不避“妄议”之嫌，说一句：是该警惕新闻宣传中的“个人崇拜”的时候了。<br><img src="http://ww3.sinaimg.cn/large/48866320jw1eyohmcdd7nj20fa0kdtbv.jpg"></p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3916610735750110" target="freeweibo-mirror">真的吗？如果是，应想想宪法的精神，想想党章的规定，要留些空间…</a>
+</h2>
+<p>真的吗？如果是，应想想宪法的精神，想想党章的规定，要留些空间给同僚、他人和社会。<br><img src="http://ww4.sinaimg.cn/large/6d8baa34gw1eyohjgrkh2j20fa0kdtaq.jpg"></p>
 <p>
 	<small> ============== 4小时前</small>
 </p><h2>
@@ -128,17 +134,11 @@
 <p>
 	<small> ============== 4小时前</small>
 </p><h2>
-	<a href="https://freeweibo.com/weibo/3916490769931342" target="freeweibo-mirror">#记者那点事# 新華社新聞通稿出現嚴重失誤！</a>
+	<a href="https://freeweibo.com/weibo/3916597523743835" target="freeweibo-mirror">张显扬：胡耀邦是如何反对个人崇拜的-共识网／胡引《史记》说：…</a>
 </h2>
-<p>#记者那点事# 新華社新聞通稿出現嚴重失誤！<br><img src="http://ww2.sinaimg.cn/large/5938d248jw1eyo3v2glhnj20dd0h6dhy.jpg"></p>
+<p>张显扬：胡耀邦是如何反对个人崇拜的-共识网／胡引《史记》说：“秦俗多忌讳之禁，忠言未卒于口，而身为戮没矣！故使天下之士，倾耳而听，重足而立，钳口而不言，是以三主失道。忠言不敢谏，智士不敢谋，天下已乱，奸不上闻，岂不哀哉！” http://t.cn/RUsyKdf<br><img src="http://ww3.sinaimg.cn/large/6b804b51gw1eyog4185xqj20dc0hsgp4.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3916466526916444" target="freeweibo-mirror">回复@夏商周尧舜禹:最早的搜索引擎对人名处理不好，搜索“王丹…</a>
-</h2>
-<p>回复@夏商周尧舜禹:最早的搜索引擎对人名处理不好，搜索“王丹”的结果是一堆关于“鬼王丹”的武侠小说，那东西大概是某种吃了增长功力的丹药。//@夏商周尧舜禹:不懂求解释//@西西福厮:鬼王丹！(知道这个梗的得是十五年以上网友)<br><br>RE: 常会有中国的网友，他们都是向往台湾的民主生活。。。知道图4那男的谁么?<br><img src="http://ww3.sinaimg.cn/large/c37c67cbgw1eyo0s4qt68j20k00azwf0.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
+	<small> ============== 5小时前</small>
 </p>
 <table>
     <tr>
