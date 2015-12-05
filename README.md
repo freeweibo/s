@@ -84,7 +84,7 @@
 </h2>
 <p>转发 //@LifeTime:马老师还皈依过李道长、王林大师。[doge]//@中国之声郭燕:转发微博<br><br>RE: 马老师 皈依佛门了。随喜赞叹。</p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3916642495434877" target="freeweibo-mirror">SPAM 很多君子看后义愤填膺，但内心都想上她！语言上很坚决…</a>
 </h2>
@@ -120,7 +120,7 @@
 </h2>
 <p>SPAM 传播链观察，通稿现在果然都已经自动抓取了。。。<br><br>RE: #记者那点事# 新華社新聞通稿出現嚴重失誤！<br><img src="http://ww2.sinaimg.cn/large/5938d248jw1eyo3v2glhnj20dd0h6dhy.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3916634286624035" target="freeweibo-mirror">SPAM 习本人看到会真的很受用吗？</a>
 </h2>
