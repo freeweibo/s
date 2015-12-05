@@ -90,7 +90,7 @@
 </h2>
 <p>SPAM 很多君子看后义愤填膺，但内心都想上她！语言上很坚决，但身体却很诚实！@隆裕太后<br><br>RE: 【我勒个去，女子裸体作画】近日，网上流传一组名为“才女雅芬作画全过程”的照片，照片中的美女画家，全裸身子作画，引起网友围观。自己的身体，展露在众目睽睽下，被“欣赏”，是让观众看画还是看人?用裸体来吸引人眼球，是艺术还是想一裸成名?http://t.cn/RUs4czv @大学生讲坛<br><img src="http://ww4.sinaimg.cn/large/54fc4ea7gw1eyohr9icm2j20dw0kvq4m.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3916640640727586" target="freeweibo-mirror">SPAM 近日马云先生在大宝法王足下领受皈依，如其发心和观想…</a>
 </h2>
