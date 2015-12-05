@@ -96,13 +96,13 @@
 </h2>
 <p>SPAM 无语！//@于建嵘:认真学习，好好收藏。<br><br>RE: 今天的人民日报@于建嵘<br><img src="http://ww3.sinaimg.cn/large/92388349jw1eyo0srcuozj20f00qoq54.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3916631698641610" target="freeweibo-mirror">//@夏榆的海景房:CCTV的新闻联播也是这做法，天天这么搞…</a>
 </h2>
 <p>//@夏榆的海景房:CCTV的新闻联播也是这做法，天天这么搞。很奇怪政治局的常委或委员们就没有人觉得这做法很没智力水准么？国家交给这些人管理可真让人不放心。很为中国之国运忧心。//@谢文: 这是现代史最丑陋，最无望，最无厘头的一次了。//@Ming_the_Great_大明: [话筒]<br><br>RE: 【这是真的吗？】总觉得有点儿像是在“挖坑”。让我不避“妄议”之嫌，说一句：是该警惕新闻宣传中的“个人崇拜”的时候了。<br><img src="http://ww3.sinaimg.cn/large/48866320jw1eyohmcdd7nj20fa0kdtbv.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3916630457122966" target="freeweibo-mirror">马老师 皈依佛门了。随喜赞叹。</a>
 </h2>
