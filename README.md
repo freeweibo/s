@@ -38,6 +38,42 @@
 <p>
 	<small> ============== 1小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3916634106115158" target="freeweibo-mirror">SPAM  //@章文的文章: //@虎叔-:[生病]</a>
+</h2>
+<p>SPAM  //@章文的文章: //@虎叔-:[生病]<br><br>RE: 【这是真的吗？】总觉得有点儿像是在“挖坑”。让我不避“妄议”之嫌，说一句：是该警惕新闻宣传中的“个人崇拜”的时候了。<br><img src="http://ww3.sinaimg.cn/large/48866320jw1eyohmcdd7nj20fa0kdtbv.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3916633020537012" target="freeweibo-mirror">SPAM  //@虎叔-:[生病]</a>
+</h2>
+<p>SPAM  //@虎叔-:[生病]<br><br>RE: 【这是真的吗？】总觉得有点儿像是在“挖坑”。让我不避“妄议”之嫌，说一句：是该警惕新闻宣传中的“个人崇拜”的时候了。<br><img src="http://ww3.sinaimg.cn/large/48866320jw1eyohmcdd7nj20fa0kdtbv.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3916632147544664" target="freeweibo-mirror">SPAM 无语！//@于建嵘:认真学习，好好收藏。</a>
+</h2>
+<p>SPAM 无语！//@于建嵘:认真学习，好好收藏。<br><br>RE: 今天的人民日报@于建嵘<br><img src="http://ww3.sinaimg.cn/large/92388349jw1eyo0srcuozj20f00qoq54.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3916631698641610" target="freeweibo-mirror">//@夏榆的海景房:CCTV的新闻联播也是这做法，天天这么搞…</a>
+</h2>
+<p>//@夏榆的海景房:CCTV的新闻联播也是这做法，天天这么搞。很奇怪政治局的常委或委员们就没有人觉得这做法很没智力水准么？国家交给这些人管理可真让人不放心。很为中国之国运忧心。//@谢文: 这是现代史最丑陋，最无望，最无厘头的一次了。//@Ming_the_Great_大明: [话筒]<br><br>RE: 【这是真的吗？】总觉得有点儿像是在“挖坑”。让我不避“妄议”之嫌，说一句：是该警惕新闻宣传中的“个人崇拜”的时候了。<br><img src="http://ww3.sinaimg.cn/large/48866320jw1eyohmcdd7nj20fa0kdtbv.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3916620105686651" target="freeweibo-mirror">SPAM 转发收藏</a>
+</h2>
+<p>SPAM 转发收藏<br><br>RE: 【这是真的吗？】总觉得有点儿像是在“挖坑”。让我不避“妄议”之嫌，说一句：是该警惕新闻宣传中的“个人崇拜”的时候了。<br><img src="http://ww3.sinaimg.cn/large/48866320jw1eyohmcdd7nj20fa0kdtbv.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3916610873675796" target="freeweibo-mirror">【这是真的吗？】总觉得有点儿像是在“挖坑”。让我不避“妄议”…</a>
+</h2>
+<p>【这是真的吗？】总觉得有点儿像是在“挖坑”。让我不避“妄议”之嫌，说一句：是该警惕新闻宣传中的“个人崇拜”的时候了。<br><img src="http://ww3.sinaimg.cn/large/48866320jw1eyohmcdd7nj20fa0kdtbv.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3916466526916444" target="freeweibo-mirror">回复@夏商周尧舜禹:最早的搜索引擎对人名处理不好，搜索“王丹…</a>
 </h2>
 <p>回复@夏商周尧舜禹:最早的搜索引擎对人名处理不好，搜索“王丹”的结果是一堆关于“鬼王丹”的武侠小说，那东西大概是某种吃了增长功力的丹药。//@夏商周尧舜禹:不懂求解释//@西西福厮:鬼王丹！(知道这个梗的得是十五年以上网友)<br><br>RE: 常会有中国的网友，他们都是向往台湾的民主生活。。。知道图4那男的谁么?<br><img src="http://ww3.sinaimg.cn/large/c37c67cbgw1eyo0s4qt68j20k00azwf0.jpg"></p>
@@ -101,42 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3916364605033391" target="freeweibo-mirror">【宪法日拜访江平先生】宪法日阳光明媚，与@贺卫方@话家国君 …</a>
 </h2>
 <p>【宪法日拜访江平先生】宪法日阳光明媚，与@贺卫方@话家国君 一起拜访年届八五的@江平教授 。江先生谈起了@李庄 案、高/瑜案和浦大个儿案，并为我们背诵了几日前写给张思之大律师米寿的打油诗：“又逢雾霾暗遮日，高记名律两折时。人权似有却无有，大地高声唤思之。”<br><img src="http://ww4.sinaimg.cn/large/5eda9153jw1eynpa0co2fj20zk0qo0vy.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3916330639674020" target="freeweibo-mirror">[笑cry]//@为常识而奋斗2: 转发微博</a>
-</h2>
-<p>[笑cry]//@为常识而奋斗2: 转发微博</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3916306467977016" target="freeweibo-mirror">SPAM twitter上，5毛操作失誤，忘記将括弧内的内容…</a>
-</h2>
-<p>SPAM twitter上，5毛操作失誤，忘記将括弧内的内容删除，一並轉發出來。[哈哈][酷]微評：這智商，基本已告别網評員隊伍啦。[笑cry][拜拜]<br><img src="http://ww1.sinaimg.cn/large/b01cb15bgw1eynim0044mj20dq096q4a.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3916301006925484" target="freeweibo-mirror">SPAM //@永不言败_胡钢:扩散求真相[思考]#正义呐喊…</a>
-</h2>
-<p>SPAM //@永不言败_胡钢:扩散求真相[思考]#正义呐喊#<br><br>RE: #吐槽曝料##蚌埠百大门口打人事件#真够狠！吓死宝宝了！[吃惊]  请@蚌埠公安在线 关注！ http://t.cn/RUFa5n6 .</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3916296641379988" target="freeweibo-mirror">SPAM #买车的那些事儿# 滴滴1元试驾？突然知道怎么省 …</a>
-</h2>
-<p>SPAM #买车的那些事儿# 滴滴1元试驾？突然知道怎么省 钱了，每天上学上班是不是可以约个试驾顺便省了打车费呢[嘻嘻]<br><img src="http://ww3.sinaimg.cn/large/8eda1a63jw1eynhk5d24zj20ku72t4qp.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3916295475526428" target="freeweibo-mirror">回复@绝望的生鱼片1234:俺这种下岗新闻工人裸捐也没几毛/…</a>
-</h2>
-<p>回复@绝望的生鱼片1234:俺这种下岗新闻工人裸捐也没几毛//@绝望的生鱼片1234:郑sir 你啥时候裸捐呢？//@郑维:回复@POCKETWOLF:[哈哈]//@POCKETWOLF:他还给网站起个不三不四的名字叫 脸书， 太三俗了！还不叫麻衣神相呗，我们几千年前就有了<br><br>RE: 现在骗子真是越来越多了，都号称自己的创始人如何如何有钱，给慈善机构捐了多少钱。最近有个叫扎克伯格的，到处说他要捐400多亿美金。还好我去搜了一下，结果发现连他们公司网站都是非法的，根本就打不开！[黑线]<br><img src="http://ww4.sinaimg.cn/large/6d0b6b33gw1eyngd91e0uj20fi09w3zu.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3916294799957515" target="freeweibo-mirror">回复@POCKETWOLF:[哈哈]//@POCKETWOL…</a>
-</h2>
-<p>回复@POCKETWOLF:[哈哈]//@POCKETWOLF:他还给网站起个不三不四的名字叫 脸书， 太三俗了！还不叫麻衣神相呗，我们几千年前就有了<br><br>RE: 现在骗子真是越来越多了，都号称自己的创始人如何如何有钱，给慈善机构捐了多少钱。最近有个叫扎克伯格的，到处说他要捐400多亿美金。还好我去搜了一下，结果发现连他们公司网站都是非法的，根本就打不开！[黑线]<br><img src="http://ww4.sinaimg.cn/large/6d0b6b33gw1eyngd91e0uj20fi09w3zu.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
