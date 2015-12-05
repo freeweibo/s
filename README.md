@@ -30,7 +30,7 @@
 </h2>
 <p>鬼王丹！(知道这个梗的得是十五年以上网友)<br><br>RE: 常会有中国的网友，他们都是向往台湾的民主生活。。。知道图4那男的谁么?<br><img src="http://ww3.sinaimg.cn/large/c37c67cbgw1eyo0s4qt68j20k00azwf0.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3916464845627155" target="freeweibo-mirror">常会有中国的网友，他们都是向往台湾的民主生活。。。知道图4那…</a>
 </h2>
