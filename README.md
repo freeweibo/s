@@ -30,7 +30,7 @@
 </h2>
 <p>SPAM 传播链观察，通稿现在果然都已经自动抓取了。。。<br><br>RE: #记者那点事# 新華社新聞通稿出現嚴重失誤！<br><img src="http://ww2.sinaimg.cn/large/5938d248jw1eyo3v2glhnj20dd0h6dhy.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3916634286624035" target="freeweibo-mirror">SPAM 习本人看到会真的很受用吗？</a>
 </h2>
@@ -41,6 +41,12 @@
 	<a href="https://freeweibo.com/weibo/3916634106115158" target="freeweibo-mirror">SPAM  //@章文的文章: //@虎叔-:[生病]</a>
 </h2>
 <p>SPAM  //@章文的文章: //@虎叔-:[生病]<br><br>RE: 【这是真的吗？】总觉得有点儿像是在“挖坑”。让我不避“妄议”之嫌，说一句：是该警惕新闻宣传中的“个人崇拜”的时候了。<br><img src="http://ww3.sinaimg.cn/large/48866320jw1eyohmcdd7nj20fa0kdtbv.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3916633556709587" target="freeweibo-mirror">//@常州姚宝华家属: //@大案:转发微博</a>
+</h2>
+<p>//@常州姚宝华家属: //@大案:转发微博<br><br>RE: 【这是真的吗？】总觉得有点儿像是在“挖坑”。让我不避“妄议”之嫌，说一句：是该警惕新闻宣传中的“个人崇拜”的时候了。<br><img src="http://ww3.sinaimg.cn/large/48866320jw1eyohmcdd7nj20fa0kdtbv.jpg"></p>
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
@@ -62,15 +68,45 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3916626208350494" target="freeweibo-mirror">SPAM 老大太忙了，喉舌不够用了。#微言传播#</a>
+</h2>
+<p>SPAM 老大太忙了，喉舌不够用了。#微言传播#<br><br>RE: 云山是不是用力过猛了？[话筒]<br><img src="http://ww3.sinaimg.cn/large/418feff3jw1eyo1zj0aeuj20e20isad0.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3916621959647468" target="freeweibo-mirror">SPAM [赞]//@逐渐成熟不断成熟:顶</a>
+</h2>
+<p>SPAM [赞]//@逐渐成熟不断成熟:顶<br><br>RE: 【这是真的吗？】总觉得有点儿像是在“挖坑”。让我不避“妄议”之嫌，说一句：是该警惕新闻宣传中的“个人崇拜”的时候了。<br><img src="http://ww3.sinaimg.cn/large/48866320jw1eyohmcdd7nj20fa0kdtbv.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3916620105686651" target="freeweibo-mirror">SPAM 转发收藏</a>
 </h2>
 <p>SPAM 转发收藏<br><br>RE: 【这是真的吗？】总觉得有点儿像是在“挖坑”。让我不避“妄议”之嫌，说一句：是该警惕新闻宣传中的“个人崇拜”的时候了。<br><img src="http://ww3.sinaimg.cn/large/48866320jw1eyohmcdd7nj20fa0kdtbv.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3916619027343610" target="freeweibo-mirror">SPAM 有年头没看人日了,肿么还是50年前的样子.[伤心]…</a>
+</h2>
+<p>SPAM 有年头没看人日了,肿么还是50年前的样子.[伤心]大大这不累毁了。[NO]<br><br>RE: 今天的人民日报@于建嵘<br><img src="http://ww3.sinaimg.cn/large/92388349jw1eyo0srcuozj20f00qoq54.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3916615139233578" target="freeweibo-mirror">领袖固然重要，但不要忘记了团队，忘记了民众。</a>
+</h2>
+<p>领袖固然重要，但不要忘记了团队，忘记了民众。<br><br>RE: 【这是真的吗？】总觉得有点儿像是在“挖坑”。让我不避“妄议”之嫌，说一句：是该警惕新闻宣传中的“个人崇拜”的时候了。<br><img src="http://ww3.sinaimg.cn/large/48866320jw1eyohmcdd7nj20fa0kdtbv.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3916610873675796" target="freeweibo-mirror">【这是真的吗？】总觉得有点儿像是在“挖坑”。让我不避“妄议”…</a>
 </h2>
 <p>【这是真的吗？】总觉得有点儿像是在“挖坑”。让我不避“妄议”之嫌，说一句：是该警惕新闻宣传中的“个人崇拜”的时候了。<br><img src="http://ww3.sinaimg.cn/large/48866320jw1eyohmcdd7nj20fa0kdtbv.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3916608537866962" target="freeweibo-mirror">极致。 //@陈有西:身边的人，一定要告知他、提醒他。这是非…</a>
+</h2>
+<p>极致。 //@陈有西:身边的人，一定要告知他、提醒他。这是非常危险的倾向。宣传口在害人。//@权歌A：可能是别有用心，架上烘之。世事难料，<br><br>RE: 张显扬：胡耀邦是如何反对个人崇拜的-共识网／胡引《史记》说：“秦俗多忌讳之禁，忠言未卒于口，而身为戮没矣！故使天下之士，倾耳而听，重足而立，钳口而不言，是以三主失道。忠言不敢谏，智士不敢谋，天下已乱，奸不上闻，岂不哀哉！” http://t.cn/RUsyKdf<br><img src="http://ww3.sinaimg.cn/large/6b804b51gw1eyog4185xqj20dc0hsgp4.jpg"></p>
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
@@ -101,42 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3916464089987071" target="freeweibo-mirror">今天的人民日报@于建嵘</a>
 </h2>
 <p>今天的人民日报@于建嵘<br><img src="http://ww3.sinaimg.cn/large/92388349jw1eyo0srcuozj20f00qoq54.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3916461719989300" target="freeweibo-mirror">一年一度法制段子大赛吗！哈哈哈 //@关爱智障儿童成长:哈哈…</a>
-</h2>
-<p>一年一度法制段子大赛吗！哈哈哈 //@关爱智障儿童成长:哈哈哈哈哈哈哈哈哈 //@江南大野花:同学，你进错考场了，政治考试在隔壁，这里是鸡汤考场 //@眼睛长在屁股上:自己选择的主义跪着也要发展 //@M大王叫我来巡山:</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3916434385883041" target="freeweibo-mirror">//@谓贤:宪法日注脚//@Ming_the_Great_大…</a>
-</h2>
-<p>//@谓贤:宪法日注脚//@Ming_the_Great_大明://@律师文摘:“高记”名瑜，“名律”姓浦。<br><br>RE: 【宪法日拜访江平先生】宪法日阳光明媚，与@贺卫方@话家国君 一起拜访年届八五的@江平教授 。江先生谈起了@李庄 案、高/瑜案和浦大个儿案，并为我们背诵了几日前写给张思之大律师米寿的打油诗：“又逢雾霾暗遮日，高记名律两折时。人权似有却无有，大地高声唤思之。”<br><img src="http://ww4.sinaimg.cn/large/5eda9153jw1eynpa0co2fj20zk0qo0vy.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3916429247748016" target="freeweibo-mirror">全民互害。</a>
-</h2>
-<p>全民互害。<br><br>RE: ——文革开启了中国大陆的全民互害模式。——文革之后，互害模式进入到整个社会的各行各业。——五十年中国，从文革的［政治互害模式］升级到后来的［经济互害模式］，只要根源还在，危害就会继续存在。 http://t.cn/RUFmgSR</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3916423212637477" target="freeweibo-mirror">——文革开启了中国大陆的全民互害模式。——文革之后，互害模式…</a>
-</h2>
-<p>——文革开启了中国大陆的全民互害模式。——文革之后，互害模式进入到整个社会的各行各业。——五十年中国，从文革的［政治互害模式］升级到后来的［经济互害模式］，只要根源还在，危害就会继续存在。 http://t.cn/RUFmgSR</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3916405193957388" target="freeweibo-mirror">SPAM 人人车办公室随拍ing</a>
-</h2>
-<p>SPAM 人人车办公室随拍ing<br><img src="http://ww1.sinaimg.cn/large/640b215bjw1eynu13ddibj20m80etadi.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3916379994335748" target="freeweibo-mirror">SPAM 一声叹息！</a>
-</h2>
-<p>SPAM 一声叹息！<br><br>RE: 勞資不玩了。<br><img src="http://ww3.sinaimg.cn/large/5937c055jw1eynq3h70tcj20jz0zkqai.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
