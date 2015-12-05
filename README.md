@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3916783712570154" target="freeweibo-mirror">SPAM 为了荣耀！</a>
+</h2>
+<p>SPAM 为了荣耀！</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3916720143765836" target="freeweibo-mirror">是忠言逆耳还是肆意妄议？ //@牛宝宝max:@清华孙立平 …</a>
 </h2>
 <p>是忠言逆耳还是肆意妄议？ //@牛宝宝max:@清华孙立平 @张鸣 @陶景洲 @Ming_the_Great_大明 @王周生<br><br>RE: 福山：中国实际上还是一种封建王朝的运行模式。中国现在擅长的事情也是中国过去250年所擅长的，那就是官僚集团、快速决策、大量投资（基础设施）。但是，政府的合法性危机事实上在日益加重。合法性都押在经济上，但经济也在严重滑坡。还在玩马列主义的意识形态，但对合法性全无帮助，因为没人相信。<br><img src="http://ww3.sinaimg.cn/large/c57c1a49jw1eyoqhsohmwj20b408c0tc.jpg"></p>
@@ -90,7 +96,7 @@
 </h2>
 <p>SPAM 近日马云先生在大宝法王足下领受皈依，如其发心和观想得当，至此他将获得皈依的戒体和功德，愿吉祥。<br><br>RE: 马云夫妇正式皈依。@陈坤 [玫瑰][玫瑰][玫瑰]随喜皈依功德<br><img src="http://ww4.sinaimg.cn/large/641da7c2jw1eyokzdtcjxj20cn0hsmz6.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3916639881665736" target="freeweibo-mirror">SPAM [蜡烛][蜡烛][蜡烛]//@然后下面就没了: […</a>
 </h2>
@@ -132,13 +138,7 @@
 </h2>
 <p>//@常州姚宝华家属: //@大案:转发微博<br><br>RE: 【这是真的吗？】总觉得有点儿像是在“挖坑”。让我不避“妄议”之嫌，说一句：是该警惕新闻宣传中的“个人崇拜”的时候了。<br><img src="http://ww3.sinaimg.cn/large/48866320jw1eyohmcdd7nj20fa0kdtbv.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3916633020537012" target="freeweibo-mirror">SPAM  //@虎叔-:[生病]</a>
-</h2>
-<p>SPAM  //@虎叔-:[生病]<br><br>RE: 【这是真的吗？】总觉得有点儿像是在“挖坑”。让我不避“妄议”之嫌，说一句：是该警惕新闻宣传中的“个人崇拜”的时候了。<br><img src="http://ww3.sinaimg.cn/large/48866320jw1eyohmcdd7nj20fa0kdtbv.jpg"></p>
-<p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p>
 <table>
     <tr>
