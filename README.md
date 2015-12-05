@@ -54,7 +54,7 @@
 </h2>
 <p>SPAM 连续性笔误？<br><br>RE: 花样作死又出新高度<br><img src="http://ww4.sinaimg.cn/large/5db2d058jw1eyor6u0nsyj20ch0m8tau.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3916693878898951" target="freeweibo-mirror">花样作死又出新高度</a>
 </h2>
