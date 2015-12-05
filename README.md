@@ -108,7 +108,7 @@
 </h2>
 <p>//@我要法网:一年浪费人民数十亿的报纸的作用就是制造让人类笑话的所谓宣传新闻啊，可悲可笑可怜可耻可恨可绝！<br><br>RE: 【这是真的吗？】总觉得有点儿像是在“挖坑”。让我不避“妄议”之嫌，说一句：是该警惕新闻宣传中的“个人崇拜”的时候了。<br><img src="http://ww3.sinaimg.cn/large/48866320jw1eyohmcdd7nj20fa0kdtbv.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3916636169454890" target="freeweibo-mirror">SPAM 传播链观察，通稿现在果然都已经自动抓取了。。。</a>
 </h2>
