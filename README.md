@@ -54,13 +54,13 @@
 </h2>
 <p>SPAM 无语！//@于建嵘:认真学习，好好收藏。<br><br>RE: 今天的人民日报@于建嵘<br><img src="http://ww3.sinaimg.cn/large/92388349jw1eyo0srcuozj20f00qoq54.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3916631698641610" target="freeweibo-mirror">//@夏榆的海景房:CCTV的新闻联播也是这做法，天天这么搞…</a>
 </h2>
 <p>//@夏榆的海景房:CCTV的新闻联播也是这做法，天天这么搞。很奇怪政治局的常委或委员们就没有人觉得这做法很没智力水准么？国家交给这些人管理可真让人不放心。很为中国之国运忧心。//@谢文: 这是现代史最丑陋，最无望，最无厘头的一次了。//@Ming_the_Great_大明: [话筒]<br><br>RE: 【这是真的吗？】总觉得有点儿像是在“挖坑”。让我不避“妄议”之嫌，说一句：是该警惕新闻宣传中的“个人崇拜”的时候了。<br><img src="http://ww3.sinaimg.cn/large/48866320jw1eyohmcdd7nj20fa0kdtbv.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3916620105686651" target="freeweibo-mirror">SPAM 转发收藏</a>
 </h2>
@@ -73,6 +73,12 @@
 <p>【这是真的吗？】总觉得有点儿像是在“挖坑”。让我不避“妄议”之嫌，说一句：是该警惕新闻宣传中的“个人崇拜”的时候了。<br><img src="http://ww3.sinaimg.cn/large/48866320jw1eyohmcdd7nj20fa0kdtbv.jpg"></p>
 <p>
 	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3916490769931342" target="freeweibo-mirror">#记者那点事# 新華社新聞通稿出現嚴重失誤！</a>
+</h2>
+<p>#记者那点事# 新華社新聞通稿出現嚴重失誤！<br><img src="http://ww2.sinaimg.cn/large/5938d248jw1eyo3v2glhnj20dd0h6dhy.jpg"></p>
+<p>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3916466526916444" target="freeweibo-mirror">回复@夏商周尧舜禹:最早的搜索引擎对人名处理不好，搜索“王丹…</a>
 </h2>
@@ -89,6 +95,12 @@
 	<a href="https://freeweibo.com/weibo/3916464845627155" target="freeweibo-mirror">常会有中国的网友，他们都是向往台湾的民主生活。。。知道图4那…</a>
 </h2>
 <p>常会有中国的网友，他们都是向往台湾的民主生活。。。知道图4那男的谁么?<br><img src="http://ww3.sinaimg.cn/large/c37c67cbgw1eyo0s4qt68j20k00azwf0.jpg"></p>
+<p>
+	<small> ============== 1天前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3916464089987071" target="freeweibo-mirror">今天的人民日报@于建嵘</a>
+</h2>
+<p>今天的人民日报@于建嵘<br><img src="http://ww3.sinaimg.cn/large/92388349jw1eyo0srcuozj20f00qoq54.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p><h2>
@@ -125,18 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3916379994335748" target="freeweibo-mirror">SPAM 一声叹息！</a>
 </h2>
 <p>SPAM 一声叹息！<br><br>RE: 勞資不玩了。<br><img src="http://ww3.sinaimg.cn/large/5937c055jw1eynq3h70tcj20jz0zkqai.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3916370959877840" target="freeweibo-mirror">勞資不玩了。</a>
-</h2>
-<p>勞資不玩了。<br><img src="http://ww3.sinaimg.cn/large/5937c055jw1eynq3h70tcj20jz0zkqai.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3916364605033391" target="freeweibo-mirror">【宪法日拜访江平先生】宪法日阳光明媚，与@贺卫方@话家国君 …</a>
-</h2>
-<p>【宪法日拜访江平先生】宪法日阳光明媚，与@贺卫方@话家国君 一起拜访年届八五的@江平教授 。江先生谈起了@李庄 案、高/瑜案和浦大个儿案，并为我们背诵了几日前写给张思之大律师米寿的打油诗：“又逢雾霾暗遮日，高记名律两折时。人权似有却无有，大地高声唤思之。”<br><img src="http://ww4.sinaimg.cn/large/5eda9153jw1eynpa0co2fj20zk0qo0vy.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
