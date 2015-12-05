@@ -36,7 +36,7 @@
 </h2>
 <p>常会有中国的网友，他们都是向往台湾的民主生活。。。知道图4那男的谁么?<br><img src="http://ww3.sinaimg.cn/large/c37c67cbgw1eyo0s4qt68j20k00azwf0.jpg"></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3916461719989300" target="freeweibo-mirror">一年一度法制段子大赛吗！哈哈哈 //@关爱智障儿童成长:哈哈…</a>
 </h2>
