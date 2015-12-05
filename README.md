@@ -114,7 +114,7 @@
 </h2>
 <p>SPAM 传播链观察，通稿现在果然都已经自动抓取了。。。<br><br>RE: #记者那点事# 新華社新聞通稿出現嚴重失誤！<br><img src="http://ww2.sinaimg.cn/large/5938d248jw1eyo3v2glhnj20dd0h6dhy.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3916634286624035" target="freeweibo-mirror">SPAM 习本人看到会真的很受用吗？</a>
 </h2>
