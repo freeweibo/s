@@ -120,13 +120,13 @@
 </h2>
 <p>马老师 皈依佛门了。随喜赞叹。</p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3916630117150236" target="freeweibo-mirror">SPAM 一而再的出错[怒]，还是这种政治敏感问题，必须追责…</a>
 </h2>
 <p>SPAM 一而再的出错[怒]，还是这种政治敏感问题，必须追责！<br><br>RE: 新華社</p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3916626208350494" target="freeweibo-mirror">SPAM 老大太忙了，喉舌不够用了。#微言传播#</a>
 </h2>
