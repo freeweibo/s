@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3916659717008113" target="freeweibo-mirror">SPAM @加措活佛-慈爱基金：马老师 皈依佛门了。随喜赞叹…</a>
+</h2>
+<p>SPAM @加措活佛-慈爱基金：马老师 皈依佛门了。随喜赞叹。<br><img src="http://ww4.sinaimg.cn/large/928aba1egw1eyon8z50sjj20k00zkaf9.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3916642616415420" target="freeweibo-mirror">转发 //@LifeTime:马老师还皈依过李道长、王林大师…</a>
 </h2>
 <p>转发 //@LifeTime:马老师还皈依过李道长、王林大师。[doge]//@中国之声郭燕:转发微博<br><br>RE: 马老师 皈依佛门了。随喜赞叹。</p>
@@ -29,6 +35,12 @@
 	<a href="https://freeweibo.com/weibo/3916642495434877" target="freeweibo-mirror">SPAM 很多君子看后义愤填膺，但内心都想上她！语言上很坚决…</a>
 </h2>
 <p>SPAM 很多君子看后义愤填膺，但内心都想上她！语言上很坚决，但身体却很诚实！@隆裕太后<br><br>RE: 【我勒个去，女子裸体作画】近日，网上流传一组名为“才女雅芬作画全过程”的照片，照片中的美女画家，全裸身子作画，引起网友围观。自己的身体，展露在众目睽睽下，被“欣赏”，是让观众看画还是看人?用裸体来吸引人眼球，是艺术还是想一裸成名?http://t.cn/RUs4czv @大学生讲坛<br><img src="http://ww4.sinaimg.cn/large/54fc4ea7gw1eyohr9icm2j20dw0kvq4m.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3916640640727586" target="freeweibo-mirror">SPAM 近日马云先生在大宝法王足下领受皈依，如其发心和观想…</a>
+</h2>
+<p>SPAM 近日马云先生在大宝法王足下领受皈依，如其发心和观想得当，至此他将获得皈依的戒体和功德，愿吉祥。<br><br>RE: 马云夫妇正式皈依。@陈坤 [玫瑰][玫瑰][玫瑰]随喜皈依功德<br><img src="http://ww4.sinaimg.cn/large/641da7c2jw1eyokzdtcjxj20cn0hsmz6.jpg"></p>
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
@@ -60,13 +72,13 @@
 </h2>
 <p>SPAM 习本人看到会真的很受用吗？<br><br>RE: 【这是真的吗？】总觉得有点儿像是在“挖坑”。让我不避“妄议”之嫌，说一句：是该警惕新闻宣传中的“个人崇拜”的时候了。<br><img src="http://ww3.sinaimg.cn/large/48866320jw1eyohmcdd7nj20fa0kdtbv.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3916634106115158" target="freeweibo-mirror">SPAM  //@章文的文章: //@虎叔-:[生病]</a>
 </h2>
 <p>SPAM  //@章文的文章: //@虎叔-:[生病]<br><br>RE: 【这是真的吗？】总觉得有点儿像是在“挖坑”。让我不避“妄议”之嫌，说一句：是该警惕新闻宣传中的“个人崇拜”的时候了。<br><img src="http://ww3.sinaimg.cn/large/48866320jw1eyohmcdd7nj20fa0kdtbv.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3916633556709587" target="freeweibo-mirror">//@常州姚宝华家属: //@大案:转发微博</a>
 </h2>
@@ -125,18 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3916619027343610" target="freeweibo-mirror">SPAM 有年头没看人日了,肿么还是50年前的样子.[伤心]…</a>
 </h2>
 <p>SPAM 有年头没看人日了,肿么还是50年前的样子.[伤心]大大这不累毁了。[NO]<br><br>RE: 今天的人民日报@于建嵘<br><img src="http://ww3.sinaimg.cn/large/92388349jw1eyo0srcuozj20f00qoq54.jpg"></p>
-<p>
-	<small> ============== 4小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3916615684769572" target="freeweibo-mirror">SPAM …………//@激光月饼大魔王: ……//@张七公子…</a>
-</h2>
-<p>SPAM …………//@激光月饼大魔王: ……//@张七公子HBU:一个通稿的发布，比关老爷千里独行五关六将环节都多，这都能出错？<br><br>RE: 一种大型悲剧....................<br><img src="http://ww1.sinaimg.cn/large/3c3b3458gw1eyo1dq1tnsj208i05pmya.jpg"></p>
-<p>
-	<small> ============== 5小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3916615467014944" target="freeweibo-mirror">SPAM 艺术[吃惊][吃惊] //@龙行天下A龙哥:我看行…</a>
-</h2>
-<p>SPAM 艺术[吃惊][吃惊] //@龙行天下A龙哥:我看行 //@大学生讲坛:目测此女子能火！[good]<br><br>RE: 【我勒个去，女子裸体作画】近日，网上流传一组名为“才女雅芬作画全过程”的照片，照片中的美女画家，全裸身子作画，引起网友围观。自己的身体，展露在众目睽睽下，被“欣赏”，是让观众看画还是看人?用裸体来吸引人眼球，是艺术还是想一裸成名?http://t.cn/RUs4czv @大学生讲坛<br><img src="http://ww4.sinaimg.cn/large/54fc4ea7gw1eyohr9icm2j20dw0kvq4m.jpg"></p>
 <p>
 	<small> ============== 5小时前</small>
 </p>
