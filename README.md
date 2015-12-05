@@ -96,13 +96,13 @@
 </h2>
 <p>SPAM [蜡烛][蜡烛][蜡烛]//@然后下面就没了: [蜡烛]//@谷大白话: 美国的福克斯新闻干过更狠的→ http://t.cn/RUsGKJZ<br><br>RE: 一种大型悲剧....................<br><img src="http://ww1.sinaimg.cn/large/3c3b3458gw1eyo1dq1tnsj208i05pmya.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3916639865138030" target="freeweibo-mirror">马云夫妇正式皈依。@陈坤 [玫瑰][玫瑰][玫瑰]随喜皈依功…</a>
 </h2>
 <p>马云夫妇正式皈依。@陈坤 [玫瑰][玫瑰][玫瑰]随喜皈依功德<br><img src="http://ww4.sinaimg.cn/large/641da7c2jw1eyokzdtcjxj20cn0hsmz6.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3916636584964194" target="freeweibo-mirror">//@我要法网:一年浪费人民数十亿的报纸的作用就是制造让人类…</a>
 </h2>
