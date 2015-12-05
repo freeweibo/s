@@ -42,7 +42,7 @@
 </h2>
 <p>SPAM 近日马云先生在大宝法王足下领受皈依，如其发心和观想得当，至此他将获得皈依的戒体和功德，愿吉祥。<br><br>RE: 马云夫妇正式皈依。@陈坤 [玫瑰][玫瑰][玫瑰]随喜皈依功德<br><img src="http://ww4.sinaimg.cn/large/641da7c2jw1eyokzdtcjxj20cn0hsmz6.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3916639881665736" target="freeweibo-mirror">SPAM [蜡烛][蜡烛][蜡烛]//@然后下面就没了: […</a>
 </h2>
