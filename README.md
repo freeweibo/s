@@ -54,7 +54,7 @@
 </h2>
 <p>SPAM //@谭世平:[偷笑]//@朱庄虹007: 过失亦是间接故意。//@不沉默的大多数: 连续性笔误？<br><br>RE: 花样作死又出新高度<br><img src="http://ww4.sinaimg.cn/large/5db2d058jw1eyor6u0nsyj20ch0m8tau.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3916704817854555" target="freeweibo-mirror">SPAM [偷笑]//@朱庄虹007: 过失亦是间接故意。/…</a>
 </h2>
