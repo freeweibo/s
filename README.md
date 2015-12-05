@@ -108,7 +108,7 @@
 </h2>
 <p>【中国投600亿美元支持非洲】中国将在未来三年里拨款600亿美元支持非洲的发展，进一步深化北京在非洲大陆的影响力。//@LifeTime:高层那么多精英，没有一个人觉得是倒退吗？<br><br>RE: 真的吗？如果是，应想想宪法的精神，想想党章的规定，要留些空间给同僚、他人和社会。<br><img src="http://ww4.sinaimg.cn/large/6d8baa34gw1eyohjgrkh2j20fa0kdtaq.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3916610873675796" target="freeweibo-mirror">【这是真的吗？】总觉得有点儿像是在“挖坑”。让我不避“妄议”…</a>
 </h2>
