@@ -72,7 +72,7 @@
 </h2>
 <p>SPAM 老大太忙了，喉舌不够用了。#微言传播#<br><br>RE: 云山是不是用力过猛了？[话筒]<br><img src="http://ww3.sinaimg.cn/large/418feff3jw1eyo1zj0aeuj20e20isad0.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3916621959647468" target="freeweibo-mirror">SPAM [赞]//@逐渐成熟不断成熟:顶</a>
 </h2>
@@ -102,7 +102,7 @@
 </h2>
 <p>【这是真的吗？】总觉得有点儿像是在“挖坑”。让我不避“妄议”之嫌，说一句：是该警惕新闻宣传中的“个人崇拜”的时候了。<br><img src="http://ww3.sinaimg.cn/large/48866320jw1eyohmcdd7nj20fa0kdtbv.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3916608537866962" target="freeweibo-mirror">极致。 //@陈有西:身边的人，一定要告知他、提醒他。这是非…</a>
 </h2>
