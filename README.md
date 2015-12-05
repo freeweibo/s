@@ -86,6 +86,12 @@
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3916630457122966" target="freeweibo-mirror">马老师 皈依佛门了。随喜赞叹。</a>
+</h2>
+<p>马老师 皈依佛门了。随喜赞叹。</p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3916630117150236" target="freeweibo-mirror">SPAM 一而再的出错[怒]，还是这种政治敏感问题，必须追责…</a>
 </h2>
 <p>SPAM 一而再的出错[怒]，还是这种政治敏感问题，必须追责！<br><br>RE: 新華社</p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3916615139233578" target="freeweibo-mirror">领袖固然重要，但不要忘记了团队，忘记了民众。</a>
 </h2>
 <p>领袖固然重要，但不要忘记了团队，忘记了民众。<br><br>RE: 【这是真的吗？】总觉得有点儿像是在“挖坑”。让我不避“妄议”之嫌，说一句：是该警惕新闻宣传中的“个人崇拜”的时候了。<br><img src="http://ww3.sinaimg.cn/large/48866320jw1eyohmcdd7nj20fa0kdtbv.jpg"></p>
-<p>
-	<small> ============== 4小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3916613629363678" target="freeweibo-mirror">【中国投600亿美元支持非洲】中国将在未来三年里拨款600亿…</a>
-</h2>
-<p>【中国投600亿美元支持非洲】中国将在未来三年里拨款600亿美元支持非洲的发展，进一步深化北京在非洲大陆的影响力。//@LifeTime:高层那么多精英，没有一个人觉得是倒退吗？<br><br>RE: 真的吗？如果是，应想想宪法的精神，想想党章的规定，要留些空间给同僚、他人和社会。<br><img src="http://ww4.sinaimg.cn/large/6d8baa34gw1eyohjgrkh2j20fa0kdtaq.jpg"></p>
 <p>
 	<small> ============== 4小时前</small>
 </p>
