@@ -30,13 +30,13 @@
 </h2>
 <p>是忠言逆耳还是肆意妄议？ //@牛宝宝max:@清华孙立平 @张鸣 @陶景洲 @Ming_the_Great_大明 @王周生<br><br>RE: 福山：中国实际上还是一种封建王朝的运行模式。中国现在擅长的事情也是中国过去250年所擅长的，那就是官僚集团、快速决策、大量投资（基础设施）。但是，政府的合法性危机事实上在日益加重。合法性都押在经济上，但经济也在严重滑坡。还在玩马列主义的意识形态，但对合法性全无帮助，因为没人相信。<br><img src="http://ww3.sinaimg.cn/large/c57c1a49jw1eyoqhsohmwj20b408c0tc.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3916719792087866" target="freeweibo-mirror">合法性能押宝？//@常州杨洪波://@饮水居士:建政70年以…</a>
 </h2>
 <p>合法性能押宝？//@常州杨洪波://@饮水居士:建政70年以来第二次严重的社会危机。<br><br>RE: 福山：中国实际上还是一种封建王朝的运行模式。中国现在擅长的事情也是中国过去250年所擅长的，那就是官僚集团、快速决策、大量投资（基础设施）。但是，政府的合法性危机事实上在日益加重。合法性都押在经济上，但经济也在严重滑坡。还在玩马列主义的意识形态，但对合法性全无帮助，因为没人相信。<br><img src="http://ww3.sinaimg.cn/large/c57c1a49jw1eyoqhsohmwj20b408c0tc.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3916706990941386" target="freeweibo-mirror">SPAM //@谭世平:[偷笑]//@朱庄虹007: 过失亦…</a>
 </h2>
@@ -48,7 +48,7 @@
 </h2>
 <p>SPAM [偷笑]//@朱庄虹007: 过失亦是间接故意。//@不沉默的大多数: 连续性笔误？<br><br>RE: 花样作死又出新高度<br><img src="http://ww4.sinaimg.cn/large/5db2d058jw1eyor6u0nsyj20ch0m8tau.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3916702419514267" target="freeweibo-mirror">SPAM 不是 PS的？//@朱庄虹007: 过失亦是间接故…</a>
 </h2>
@@ -78,7 +78,7 @@
 </h2>
 <p>SPAM @加措活佛-慈爱基金：马老师 皈依佛门了。随喜赞叹。<br><img src="http://ww4.sinaimg.cn/large/928aba1egw1eyon8z50sjj20k00zkaf9.jpg"></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3916642616415420" target="freeweibo-mirror">转发 //@LifeTime:马老师还皈依过李道长、王林大师…</a>
 </h2>
@@ -114,7 +114,7 @@
 </h2>
 <p>//@我要法网:一年浪费人民数十亿的报纸的作用就是制造让人类笑话的所谓宣传新闻啊，可悲可笑可怜可耻可恨可绝！<br><br>RE: 【这是真的吗？】总觉得有点儿像是在“挖坑”。让我不避“妄议”之嫌，说一句：是该警惕新闻宣传中的“个人崇拜”的时候了。<br><img src="http://ww3.sinaimg.cn/large/48866320jw1eyohmcdd7nj20fa0kdtbv.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3916636169454890" target="freeweibo-mirror">SPAM 传播链观察，通稿现在果然都已经自动抓取了。。。</a>
 </h2>
