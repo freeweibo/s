@@ -72,7 +72,7 @@
 </h2>
 <p>前实德董事长徐明狱中去世，年仅44，明年9月本将刑满。。。。。。。。。带走了多少秘密？<br><img src="http://ww4.sinaimg.cn/large/656952ecjw1eypvbdzztkj20u01hcdzv.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3917018065408724" target="freeweibo-mirror">我这么手贱，大家给我送饭哪！#社会主义新画风#[拜拜][拜拜…</a>
 </h2>
