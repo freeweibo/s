@@ -60,7 +60,7 @@
 </h2>
 <p>徐明，莫名其妙走了！薄友真为薄公担心！团结起来吧，全国的薄友们！ http://t.cn/R2d2Ssj<br><img src="http://ww4.sinaimg.cn/large/006fnXodjw1eyq6uhq6imj30if0gdq3r.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3917141314971491" target="freeweibo-mirror">人都死了到现在也不知道何时到底判了几年，“按计划”明年出狱……</a>
 </h2>
