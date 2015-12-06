@@ -120,7 +120,7 @@
 </h2>
 <p>【怦 然. 星 动】影院最新电影资源更新 转。发。并。私。信。关键词【5252】 即可获得资源，和谐前快来收<br><img src="http://ww4.sinaimg.cn/large/ba4957f5gw1eypr6hrt8gj20bx0goabn.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3916807359966308" target="freeweibo-mirror">SPAM 【荣耀决战最后50小时】流木嘛？恩？这个名字似乎是…</a>
 </h2>
