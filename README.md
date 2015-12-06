@@ -44,6 +44,12 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3917059077156592" target="freeweibo-mirror">【“好人”徐明去世，终年44岁】徐明在@济南中院 的“您是一…</a>
+</h2>
+<p>【“好人”徐明去世，终年44岁】徐明在@济南中院 的“您是一个好官”。这句话十有八九被认为是一句阿谀奉承，溜须拍马的话，然而当时这句话的背景是出自一位身陷囵囤，自身都难保而被威逼利诱的"证人"的内心话、是一位被权贵视为"罪大恶极"的"罪犯"充满敬意和敬佩的话、也是众亿有良知人的心里话…<br><img src="http://ww1.sinaimg.cn/large/005KcKJygw1eypx3pyziaj30hk0b30t9.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3917048125749360" target="freeweibo-mirror">【再有钱，没有权，狗屁都不是！】一个首富何时抓不知道；羁押哪…</a>
 </h2>
 <p>【再有钱，没有权，狗屁都不是！】一个首富何时抓不知道；羁押哪里不知道；有无律师不知道；涉嫌罪名不知道；哪家法院审判不知道；判处轻重不知道；是否上诉不知道；哪个监狱服刑不知道；何时死不知道。<br><img src="http://ww2.sinaimg.cn/large/6a80bfcdjw1eypvu2atadj20m80ck75u.jpg"></p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3916687822539491" target="freeweibo-mirror">福山：中国实际上还是一种封建王朝的运行模式。中国现在擅长的事…</a>
 </h2>
 <p>福山：中国实际上还是一种封建王朝的运行模式。中国现在擅长的事情也是中国过去250年所擅长的，那就是官僚集团、快速决策、大量投资（基础设施）。但是，政府的合法性危机事实上在日益加重。合法性都押在经济上，但经济也在严重滑坡。还在玩马列主义的意识形态，但对合法性全无帮助，因为没人相信。<br><img src="http://ww3.sinaimg.cn/large/c57c1a49jw1eyoqhsohmwj20b408c0tc.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3916659717008113" target="freeweibo-mirror">SPAM @加措活佛-慈爱基金：马老师 皈依佛门了。随喜赞叹…</a>
-</h2>
-<p>SPAM @加措活佛-慈爱基金：马老师 皈依佛门了。随喜赞叹。<br><img src="http://ww4.sinaimg.cn/large/928aba1egw1eyon8z50sjj20k00zkaf9.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
