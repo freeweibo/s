@@ -30,7 +30,7 @@
 </h2>
 <p>SPAM  //@小个大头胡子6688://@红星闪闪的林生: //@BLOGs_CHOICE://@聿日13: //@田成之V:转世战友，请大伙儿速粉！[作揖][互粉][给力][话筒][话筒]<br><br>RE: 徐明，莫名其妙走了！薄友真为薄公担心！团结起来吧，全国的薄友们！ http://t.cn/R2d2Ssj<br><img src="http://ww4.sinaimg.cn/large/006fnXodjw1eyq6uhq6imj30if0gdq3r.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3917162227939719" target="freeweibo-mirror">SPAM 每一款app都有着良好的设计，单看设计就应该推荐的…</a>
 </h2>
@@ -114,7 +114,7 @@
 </h2>
 <p>【“好人”徐明去世，终年44岁】徐明在@济南中院 的“您是一个好官”。这句话十有八九被认为是一句阿谀奉承，溜须拍马的话，然而当时这句话的背景是出自一位身陷囵囤，自身都难保而被威逼利诱的"证人"的内心话、是一位被权贵视为"罪大恶极"的"罪犯"充满敬意和敬佩的话、也是众亿有良知人的心里话…<br><img src="http://ww1.sinaimg.cn/large/005KcKJygw1eypx3pyziaj30hk0b30t9.jpg"></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3917048423932516" target="freeweibo-mirror">【老照片·徐明和他的朋友圈】徐明于12月4日在狱中因心肌梗塞…</a>
 </h2>
