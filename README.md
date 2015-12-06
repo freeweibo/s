@@ -36,7 +36,7 @@
 </h2>
 <p>按计划死亡？</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3917109169831713" target="freeweibo-mirror">//@湘江滴水://@陈业文新大都:兰总如此说，耐人寻味………</a>
 </h2>
