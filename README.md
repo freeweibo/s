@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3917200396462892" target="freeweibo-mirror">诺奖除了屠呦呦，其他的都是带有明显的调料味儿。</a>
+</h2>
+<p>诺奖除了屠呦呦，其他的都是带有明显的调料味儿。<br><br>RE: 刘晓波获得诺贝尔和平奖，莫言获诺贝尔文学奖，周小川获世界最佳行长，杨继绳获史迪格·拉森奖，韩寒、柴静、茅于轼获全球百大思想者，艾未未获2015年“年度良心大使奖”……这一连串名单证明，只要黑中国、黑毛泽东，就可以获奖，也证明，西方国家最注重意识形态和阶级斗争！@共青团中央</p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3917183190721606" target="freeweibo-mirror">这条微博没删，充分说明中国人民有言论自由//@马伯庸:已经打…</a>
 </h2>
 <p>这条微博没删，充分说明中国人民有言论自由//@马伯庸:已经打不开了。朝廷为了老百姓的精神健康真是操（四声）碎了心呐。<br><br>RE: 如何评价维基百科被全站封锁？ （分享自 @知乎 ）http://t.cn/RUsVaOo<br><img src="http://ww1.sinaimg.cn/large/537e7cfdgw1eypodb6qqsj20p018gdp4.jpg"></p>
@@ -78,7 +84,7 @@
 </h2>
 <p>//@湘江滴水://@陈业文新大都:兰总如此说，耐人寻味…… //@刘二狗蛋:转发微博<br><br>RE: 我在狱中曾多次被置于死地，二次下达巜病危通知书》，差点就"因病去世"!【前实德俱乐部董事长徐明因病去世 终年44岁】 http://t.cn/R4v26GR</p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3917085560247783" target="freeweibo-mirror">SPAM 你喜吃什么？我给你送。。。</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3917048125749360" target="freeweibo-mirror">【再有钱，没有权，狗屁都不是！】一个首富何时抓不知道；羁押哪…</a>
 </h2>
 <p>【再有钱，没有权，狗屁都不是！】一个首富何时抓不知道；羁押哪里不知道；有无律师不知道；涉嫌罪名不知道；哪家法院审判不知道；判处轻重不知道；是否上诉不知道；哪个监狱服刑不知道；何时死不知道。<br><img src="http://ww2.sinaimg.cn/large/6a80bfcdjw1eypvu2atadj20m80ck75u.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3917043268846887" target="freeweibo-mirror">前实德董事长徐明狱中去世，年仅44，明年9月本将刑满。。。。…</a>
-</h2>
-<p>前实德董事长徐明狱中去世，年仅44，明年9月本将刑满。。。。。。。。。带走了多少秘密？<br><img src="http://ww4.sinaimg.cn/large/656952ecjw1eypvbdzztkj20u01hcdzv.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
