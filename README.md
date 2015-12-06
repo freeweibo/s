@@ -30,7 +30,13 @@
 </h2>
 <p>SPAM 看不懂，嘛意思？[思考][思考]<br><br>RE: 我在狱中曾多次被置于死地，二次下达巜病危通知书》，差点就"因病去世"!【前实德俱乐部董事长徐明因病去世 终年44岁】 http://t.cn/R4v26GR</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3917143949611981" target="freeweibo-mirror">徐明，莫名其妙走了！薄友真为薄公担心！团结起来吧，全国的薄友…</a>
+</h2>
+<p>徐明，莫名其妙走了！薄友真为薄公担心！团结起来吧，全国的薄友们！ http://t.cn/R2d2Ssj<br><img src="http://ww4.sinaimg.cn/large/006fnXodjw1eyq6uhq6imj30if0gdq3r.jpg"></p>
+<p>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3917133387482688" target="freeweibo-mirror">http://t.cn/R4v27Av明年9月，徐明将刑满释…</a>
 </h2>
@@ -92,6 +98,12 @@
 <p>
 	<small> ============== 9小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3917048423932516" target="freeweibo-mirror">【老照片·徐明和他的朋友圈】徐明于12月4日在狱中因心肌梗塞…</a>
+</h2>
+<p>【老照片·徐明和他的朋友圈】徐明于12月4日在狱中因心肌梗塞去世，年44岁。他可能是70后一代商业成功者中，最早成为高光人物的。1999年，徐明开始从王健林手中接过如日中天的大连足球队时，年仅28岁。但当时圈内人都知道，他对足球没什么兴趣，甚至此前从未看过这支球队的比赛。<br><img src="http://ww2.sinaimg.cn/large/61e04755jw1eypvwk8ks1j20fa09njsc.jpg"></p>
+<p>
+	<small> ============== 10小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3917048125749360" target="freeweibo-mirror">【再有钱，没有权，狗屁都不是！】一个首富何时抓不知道；羁押哪…</a>
 </h2>
 <p>【再有钱，没有权，狗屁都不是！】一个首富何时抓不知道；羁押哪里不知道；有无律师不知道；涉嫌罪名不知道；哪家法院审判不知道；判处轻重不知道；是否上诉不知道；哪个监狱服刑不知道；何时死不知道。<br><img src="http://ww2.sinaimg.cn/large/6a80bfcdjw1eypvu2atadj20m80ck75u.jpg"></p>
@@ -101,6 +113,12 @@
 	<a href="https://freeweibo.com/weibo/3917043268846887" target="freeweibo-mirror">前实德董事长徐明狱中去世，年仅44，明年9月本将刑满。。。。…</a>
 </h2>
 <p>前实德董事长徐明狱中去世，年仅44，明年9月本将刑满。。。。。。。。。带走了多少秘密？<br><img src="http://ww4.sinaimg.cn/large/656952ecjw1eypvbdzztkj20u01hcdzv.jpg"></p>
+<p>
+	<small> ============== 10小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3917041473771394" target="freeweibo-mirror">#热点#【前实德董事长徐明狱中去世 明年9月将刑满释放】19…</a>
+</h2>
+<p>#热点#【前实德董事长徐明狱中去世 明年9月将刑满释放】1992年，徐明创建大连实德集团。1999年，实德成为大连万达俱乐部赞助商。2000年，徐明从王健林手中接过球队，实德一鼓作气实现甲A三连冠。2012年3月，徐明涉嫌经济案件被控制，后获刑入狱。按计划，明年9月徐明将刑满释放。http://t.cn/R4vAQ59<br><img src="http://ww2.sinaimg.cn/large/60718250jw1eypv3bk59mj20dw09o3z0.jpg"></p>
 <p>
 	<small> ============== 10小时前</small>
 </p><h2>
@@ -119,24 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3917014643414594" target="freeweibo-mirror">SPAM 马了看</a>
 </h2>
 <p>SPAM 马了看<br><br>RE: 【怦 然. 星 动】影院最新电影资源更新 转。发。并。私。信。关键词【5252】 即可获得资源，和谐前快来收<br><img src="http://ww4.sinaimg.cn/large/ba4957f5gw1eypr6hrt8gj20bx0goabn.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3917007680599232" target="freeweibo-mirror">【怦 然. 星 动】影院最新电影资源更新 转。发。并。私。信…</a>
-</h2>
-<p>【怦 然. 星 动】影院最新电影资源更新 转。发。并。私。信。关键词【5252】 即可获得资源，和谐前快来收<br><img src="http://ww4.sinaimg.cn/large/ba4957f5gw1eypr6hrt8gj20bx0goabn.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3916807359966308" target="freeweibo-mirror">SPAM 【荣耀决战最后50小时】流木嘛？恩？这个名字似乎是…</a>
-</h2>
-<p>SPAM 【荣耀决战最后50小时】流木嘛？恩？这个名字似乎是有那么一点点的耳熟，怎么会呢，好奇怪的哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈！@杭州304 #全职高手#COS集《百炼荣耀》全网独家预定！（总是被屏蔽也是苦恼，换个方式试一下，地址在图片里哈！或者去304官博看一下哦！）<br><img src="http://ww2.sinaimg.cn/large/68ea6920jw1eyp43jvfk8j20tt15px1e.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3916783985787097" target="freeweibo-mirror">SPAM 笑疯了！ //@SSer_木子田可:[笑cry][…</a>
-</h2>
-<p>SPAM 笑疯了！ //@SSer_木子田可:[笑cry][笑cry] //@英国报姐:厉害了//@我的朋友是个呆B:彻底玩坏[拜拜] //@有时右逝:哈哈哈！ //@柳三便:哈哈哈哈哈哈哈 //@小5啊:哈哈哈哈哈哈哈笑劈叉 //@追风少年刘全有:笑死<br><br>RE: 整整一天了。。我满脑子还都是这样的画风。。出不去了。[笑cry][笑cry][笑cry]<br><img src="http://ww3.sinaimg.cn/large/6687c4cbgw1eyo298wfg0j20c009pt9s.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
