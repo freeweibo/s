@@ -66,7 +66,7 @@
 </h2>
 <p>http://t.cn/R4v27Av明年9月，徐明将刑满释放，但是前天却突然死于狱中。人们还记得他在公审时被薄质问时的窘态，以及关键证物法国别墅已被易手。徐明暴毙，令人不由想起其他污点证人，可还安好？<br><img src="http://ww2.sinaimg.cn/large/80f9a1a7gw1eyq5np48csj209q07c0sx.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3917122599790096" target="freeweibo-mirror">按计划死亡？</a>
 </h2>
@@ -138,7 +138,7 @@
 </h2>
 <p>前实德董事长徐明狱中去世，年仅44，明年9月本将刑满。。。。。。。。。带走了多少秘密？<br><img src="http://ww4.sinaimg.cn/large/656952ecjw1eypvbdzztkj20u01hcdzv.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p>
 <table>
     <tr>
