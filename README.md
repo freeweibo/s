@@ -24,7 +24,7 @@
 </h2>
 <p>SPAM 看不懂，嘛意思？[思考][思考]<br><br>RE: 我在狱中曾多次被置于死地，二次下达巜病危通知书》，差点就"因病去世"!【前实德俱乐部董事长徐明因病去世 终年44岁】 http://t.cn/R4v26GR</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3917133387482688" target="freeweibo-mirror">http://t.cn/R4v27Av明年9月，徐明将刑满释…</a>
 </h2>
