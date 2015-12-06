@@ -60,7 +60,7 @@
 </h2>
 <p>人都死了到现在也不知道何时到底判了几年，“按计划”明年出狱……<br><br>RE: #热点#【前实德董事长徐明狱中去世 明年9月将刑满释放】1992年，徐明创建大连实德集团。1999年，实德成为大连万达俱乐部赞助商。2000年，徐明从王健林手中接过球队，实德一鼓作气实现甲A三连冠。2012年3月，徐明涉嫌经济案件被控制，后获刑入狱。按计划，明年9月徐明将刑满释放。http://t.cn/R4vAQ59<br><img src="http://ww2.sinaimg.cn/large/60718250jw1eypv3bk59mj20dw09o3z0.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3917133387482688" target="freeweibo-mirror">http://t.cn/R4v27Av明年9月，徐明将刑满释…</a>
 </h2>
@@ -102,13 +102,13 @@
 </h2>
 <p>//@徐昕:@王甫律师:何时抓不知道；羁押哪里不知道；有无律师不知道；涉嫌罪名不知道；哪家法院审判不知道；判处轻重不知道；是否上诉不知道；哪个监狱服刑不知道；何时死不知道<br><br>RE: 前实德董事长徐明狱中去世，年仅44，明年9月本将刑满。。。。。。。。。带走了多少秘密？<br><img src="http://ww4.sinaimg.cn/large/656952ecjw1eypvbdzztkj20u01hcdzv.jpg"></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3917066182422058" target="freeweibo-mirror">@王甫律师:何时抓不知道；羁押哪里不知道；有无律师不知道；涉…</a>
 </h2>
 <p>@王甫律师:何时抓不知道；羁押哪里不知道；有无律师不知道；涉嫌罪名不知道；哪家法院审判不知道；判处轻重不知道；是否上诉不知道；哪个监狱服刑不知道；何时死不知道<br><br>RE: 前实德董事长徐明狱中去世，年仅44，明年9月本将刑满。。。。。。。。。带走了多少秘密？<br><img src="http://ww4.sinaimg.cn/large/656952ecjw1eypvbdzztkj20u01hcdzv.jpg"></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3917063615358115" target="freeweibo-mirror">//@有雨天自凉60世:[思考]“权力寻租”制度体制机制下，…</a>
 </h2>
@@ -138,7 +138,7 @@
 </h2>
 <p>前实德董事长徐明狱中去世，年仅44，明年9月本将刑满。。。。。。。。。带走了多少秘密？<br><img src="http://ww4.sinaimg.cn/large/656952ecjw1eypvbdzztkj20u01hcdzv.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p>
 <table>
     <tr>
