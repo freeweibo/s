@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3917145232180460" target="freeweibo-mirror">SPAM 看不懂，嘛意思？[思考][思考]</a>
+</h2>
+<p>SPAM 看不懂，嘛意思？[思考][思考]<br><br>RE: 我在狱中曾多次被置于死地，二次下达巜病危通知书》，差点就"因病去世"!【前实德俱乐部董事长徐明因病去世 终年44岁】 http://t.cn/R4v26GR</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3917133387482688" target="freeweibo-mirror">http://t.cn/R4v27Av明年9月，徐明将刑满释…</a>
 </h2>
 <p>http://t.cn/R4v27Av明年9月，徐明将刑满释放，但是前天却突然死于狱中。人们还记得他在公审时被薄质问时的窘态，以及关键证物法国别墅已被易手。徐明暴毙，令人不由想起其他污点证人，可还安好？<br><img src="http://ww2.sinaimg.cn/large/80f9a1a7gw1eyq5np48csj209q07c0sx.jpg"></p>
@@ -31,6 +37,12 @@
 <p>按计划死亡？</p>
 <p>
 	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3917109169831713" target="freeweibo-mirror">//@湘江滴水://@陈业文新大都:兰总如此说，耐人寻味………</a>
+</h2>
+<p>//@湘江滴水://@陈业文新大都:兰总如此说，耐人寻味…… //@刘二狗蛋:转发微博<br><br>RE: 我在狱中曾多次被置于死地，二次下达巜病危通知书》，差点就"因病去世"!【前实德俱乐部董事长徐明因病去世 终年44岁】 http://t.cn/R4v26GR</p>
+<p>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3917085560247783" target="freeweibo-mirror">SPAM 你喜吃什么？我给你送。。。</a>
 </h2>
@@ -125,18 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3916783712570154" target="freeweibo-mirror">SPAM 为了荣耀！</a>
 </h2>
 <p>SPAM 为了荣耀！</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3916720143765836" target="freeweibo-mirror">是忠言逆耳还是肆意妄议？ //@牛宝宝max:@清华孙立平 …</a>
-</h2>
-<p>是忠言逆耳还是肆意妄议？ //@牛宝宝max:@清华孙立平 @张鸣 @陶景洲 @Ming_the_Great_大明 @王周生<br><br>RE: 福山：中国实际上还是一种封建王朝的运行模式。中国现在擅长的事情也是中国过去250年所擅长的，那就是官僚集团、快速决策、大量投资（基础设施）。但是，政府的合法性危机事实上在日益加重。合法性都押在经济上，但经济也在严重滑坡。还在玩马列主义的意识形态，但对合法性全无帮助，因为没人相信。<br><img src="http://ww3.sinaimg.cn/large/c57c1a49jw1eyoqhsohmwj20b408c0tc.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3916719792087866" target="freeweibo-mirror">合法性能押宝？//@常州杨洪波://@饮水居士:建政70年以…</a>
-</h2>
-<p>合法性能押宝？//@常州杨洪波://@饮水居士:建政70年以来第二次严重的社会危机。<br><br>RE: 福山：中国实际上还是一种封建王朝的运行模式。中国现在擅长的事情也是中国过去250年所擅长的，那就是官僚集团、快速决策、大量投资（基础设施）。但是，政府的合法性危机事实上在日益加重。合法性都押在经济上，但经济也在严重滑坡。还在玩马列主义的意识形态，但对合法性全无帮助，因为没人相信。<br><img src="http://ww3.sinaimg.cn/large/c57c1a49jw1eyoqhsohmwj20b408c0tc.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
