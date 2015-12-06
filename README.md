@@ -54,7 +54,7 @@
 </h2>
 <p>SPAM 看不懂，嘛意思？[思考][思考]<br><br>RE: 我在狱中曾多次被置于死地，二次下达巜病危通知书》，差点就"因病去世"!【前实德俱乐部董事长徐明因病去世 终年44岁】 http://t.cn/R4v26GR</p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3917143949611981" target="freeweibo-mirror">徐明，莫名其妙走了！薄友真为薄公担心！团结起来吧，全国的薄友…</a>
 </h2>
@@ -78,7 +78,7 @@
 </h2>
 <p>按计划死亡？</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3917109169831713" target="freeweibo-mirror">//@湘江滴水://@陈业文新大都:兰总如此说，耐人寻味………</a>
 </h2>
