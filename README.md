@@ -66,13 +66,13 @@
 </h2>
 <p>人都死了到现在也不知道何时到底判了几年，“按计划”明年出狱……<br><br>RE: #热点#【前实德董事长徐明狱中去世 明年9月将刑满释放】1992年，徐明创建大连实德集团。1999年，实德成为大连万达俱乐部赞助商。2000年，徐明从王健林手中接过球队，实德一鼓作气实现甲A三连冠。2012年3月，徐明涉嫌经济案件被控制，后获刑入狱。按计划，明年9月徐明将刑满释放。http://t.cn/R4vAQ59<br><img src="http://ww2.sinaimg.cn/large/60718250jw1eypv3bk59mj20dw09o3z0.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3917133387482688" target="freeweibo-mirror">http://t.cn/R4v27Av明年9月，徐明将刑满释…</a>
 </h2>
 <p>http://t.cn/R4v27Av明年9月，徐明将刑满释放，但是前天却突然死于狱中。人们还记得他在公审时被薄质问时的窘态，以及关键证物法国别墅已被易手。徐明暴毙，令人不由想起其他污点证人，可还安好？<br><img src="http://ww2.sinaimg.cn/large/80f9a1a7gw1eyq5np48csj209q07c0sx.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3917122599790096" target="freeweibo-mirror">按计划死亡？</a>
 </h2>
