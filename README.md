@@ -20,17 +20,23 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3917068732358988" target="freeweibo-mirror">//@永远是龙的传人2012: //@敏悟空间://@蓦然回…</a>
+</h2>
+<p>//@永远是龙的传人2012: //@敏悟空间://@蓦然回首时评微博: //@特种兵花魂鸟梦: 转发微博<br><br>RE: 【“好人”徐明去世，终年44岁】徐明在@济南中院 的“您是一个好官”。这句话十有八九被认为是一句阿谀奉承，溜须拍马的话，然而当时这句话的背景是出自一位身陷囵囤，自身都难保而被威逼利诱的"证人"的内心话、是一位被权贵视为"罪大恶极"的"罪犯"充满敬意和敬佩的话、也是众亿有良知人的心里话…<br><img src="http://ww1.sinaimg.cn/large/005KcKJygw1eypx3pyziaj30hk0b30t9.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3917066271003104" target="freeweibo-mirror">//@徐昕:@王甫律师:何时抓不知道；羁押哪里不知道；有无律…</a>
 </h2>
 <p>//@徐昕:@王甫律师:何时抓不知道；羁押哪里不知道；有无律师不知道；涉嫌罪名不知道；哪家法院审判不知道；判处轻重不知道；是否上诉不知道；哪个监狱服刑不知道；何时死不知道<br><br>RE: 前实德董事长徐明狱中去世，年仅44，明年9月本将刑满。。。。。。。。。带走了多少秘密？<br><img src="http://ww4.sinaimg.cn/large/656952ecjw1eypvbdzztkj20u01hcdzv.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3917066182422058" target="freeweibo-mirror">@王甫律师:何时抓不知道；羁押哪里不知道；有无律师不知道；涉…</a>
 </h2>
 <p>@王甫律师:何时抓不知道；羁押哪里不知道；有无律师不知道；涉嫌罪名不知道；哪家法院审判不知道；判处轻重不知道；是否上诉不知道；哪个监狱服刑不知道；何时死不知道<br><br>RE: 前实德董事长徐明狱中去世，年仅44，明年9月本将刑满。。。。。。。。。带走了多少秘密？<br><img src="http://ww4.sinaimg.cn/large/656952ecjw1eypvbdzztkj20u01hcdzv.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3917063615358115" target="freeweibo-mirror">//@有雨天自凉60世:[思考]“权力寻租”制度体制机制下，…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3916659717008113" target="freeweibo-mirror">SPAM @加措活佛-慈爱基金：马老师 皈依佛门了。随喜赞叹…</a>
 </h2>
 <p>SPAM @加措活佛-慈爱基金：马老师 皈依佛门了。随喜赞叹。<br><img src="http://ww4.sinaimg.cn/large/928aba1egw1eyon8z50sjj20k00zkaf9.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3916642616415420" target="freeweibo-mirror">转发 //@LifeTime:马老师还皈依过李道长、王林大师…</a>
-</h2>
-<p>转发 //@LifeTime:马老师还皈依过李道长、王林大师。[doge]//@中国之声郭燕:转发微博<br><br>RE: 马老师 皈依佛门了。随喜赞叹。</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
