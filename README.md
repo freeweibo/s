@@ -42,7 +42,7 @@
 </h2>
 <p>//@湘江滴水://@陈业文新大都:兰总如此说，耐人寻味…… //@刘二狗蛋:转发微博<br><br>RE: 我在狱中曾多次被置于死地，二次下达巜病危通知书》，差点就"因病去世"!【前实德俱乐部董事长徐明因病去世 终年44岁】 http://t.cn/R4v26GR</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3917085560247783" target="freeweibo-mirror">SPAM 你喜吃什么？我给你送。。。</a>
 </h2>
@@ -78,7 +78,7 @@
 </h2>
 <p>//@有雨天自凉60世:[思考]“权力寻租”制度体制机制下，商人几几乎个个不清白，但情非所愿也是有的..还是古人说得好：豺狼当道，安问狐狸.. //@卓索图乌梁海:政治附属品，宫斗牺牲品。胜，居庙堂之位；败，引高墙之祸！一句话，皆不是东西！<br><br>RE: 【再有钱，没有权，狗屁都不是！】一个首富何时抓不知道；羁押哪里不知道；有无律师不知道；涉嫌罪名不知道；哪家法院审判不知道；判处轻重不知道；是否上诉不知道；哪个监狱服刑不知道；何时死不知道。<br><img src="http://ww2.sinaimg.cn/large/6a80bfcdjw1eypvu2atadj20m80ck75u.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3917059077156592" target="freeweibo-mirror">【“好人”徐明去世，终年44岁】徐明在@济南中院 的“您是一…</a>
 </h2>
@@ -90,7 +90,7 @@
 </h2>
 <p>【再有钱，没有权，狗屁都不是！】一个首富何时抓不知道；羁押哪里不知道；有无律师不知道；涉嫌罪名不知道；哪家法院审判不知道；判处轻重不知道；是否上诉不知道；哪个监狱服刑不知道；何时死不知道。<br><img src="http://ww2.sinaimg.cn/large/6a80bfcdjw1eypvu2atadj20m80ck75u.jpg"></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3917043268846887" target="freeweibo-mirror">前实德董事长徐明狱中去世，年仅44，明年9月本将刑满。。。。…</a>
 </h2>
@@ -108,7 +108,7 @@
 </h2>
 <p>我这么手贱，大家给我送饭哪！#社会主义新画风#[拜拜][拜拜][拜拜]<br><img src="http://ww2.sinaimg.cn/large/a86913a5gw1eypscis335j20c80bwwga.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3917014643414594" target="freeweibo-mirror">SPAM 马了看</a>
 </h2>
