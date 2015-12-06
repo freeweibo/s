@@ -30,7 +30,7 @@
 </h2>
 <p>这条微博没删，充分说明中国人民有言论自由//@马伯庸:已经打不开了。朝廷为了老百姓的精神健康真是操（四声）碎了心呐。<br><br>RE: 如何评价维基百科被全站封锁？ （分享自 @知乎 ）http://t.cn/RUsVaOo<br><img src="http://ww1.sinaimg.cn/large/537e7cfdgw1eypodb6qqsj20p018gdp4.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3917181341177466" target="freeweibo-mirror">//@拍死该死的蚊子: //@沧海一杯歌悠扬: //@锁定-…</a>
 </h2>
