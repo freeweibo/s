@@ -24,7 +24,7 @@
 </h2>
 <p>这条微博没删，充分说明中国人民有言论自由//@马伯庸:已经打不开了。朝廷为了老百姓的精神健康真是操（四声）碎了心呐。<br><br>RE: 如何评价维基百科被全站封锁？ （分享自 @知乎 ）http://t.cn/RUsVaOo<br><img src="http://ww1.sinaimg.cn/large/537e7cfdgw1eypodb6qqsj20p018gdp4.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3917180867228120" target="freeweibo-mirror">SPAM  //@小个大头胡子6688://@红星闪闪的林生…</a>
 </h2>
@@ -66,7 +66,7 @@
 </h2>
 <p>按计划死亡？</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3917109169831713" target="freeweibo-mirror">//@湘江滴水://@陈业文新大都:兰总如此说，耐人寻味………</a>
 </h2>
