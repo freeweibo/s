@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3917466494863821" target="freeweibo-mirror">【网传恐怖分子要在山西“搞事”省公安厅已抓获4人】据中国青年…</a>
+</h2>
+<p>【网传恐怖分子要在山西“搞事”省公安厅已抓获4人】据中国青年网，近日网上热传一份太原铁路公安处的紧急通知，称有4名伊吉拉特人员预谋在山西搞恐怖袭击。山西省公安厅反恐支队确认，4名恐怖分子已被抓获。伊吉拉特又称“迁徙圣战组织”，是中国官方定义的活跃于中国新疆的维吾尔族伊斯兰激进组织。<br><img src="http://ww1.sinaimg.cn/large/9dcb59c7jw1eyr7x7pubbj20e906uaax.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3917454096918601" target="freeweibo-mirror">[围观] //@达沃儒:快看右边脑残！/@jw1568：伊斯…</a>
 </h2>
 <p>[围观] //@达沃儒:快看右边脑残！/@jw1568：伊斯兰教很多人比华人善良很多，往往很多华人勾结外族欺骗欺负自己华族人，在大街上如果有车祸什么的，一般都是伊斯兰教人去帮忙那些人，华人到是很少帮忙别人，所以说不能说人家伊斯兰教不好，如果说坏人，还是华人比较多。</p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3917133387482688" target="freeweibo-mirror">http://t.cn/R4v27Av明年9月，徐明将刑满释…</a>
 </h2>
 <p>http://t.cn/R4v27Av明年9月，徐明将刑满释放，但是前天却突然死于狱中。人们还记得他在公审时被薄质问时的窘态，以及关键证物法国别墅已被易手。徐明暴毙，令人不由想起其他污点证人，可还安好？<br><img src="http://ww2.sinaimg.cn/large/80f9a1a7gw1eyq5np48csj209q07c0sx.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3917122599790096" target="freeweibo-mirror">按计划死亡？</a>
-</h2>
-<p>按计划死亡？</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
