@@ -48,7 +48,7 @@
 </h2>
 <p>SPAM //@LifeTime:奥马巴。[偷乐] http://t.cn/R4P9jZI</p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3917544396069296" target="freeweibo-mirror">SPAM 因“辞职门”处罚4记者成为国际新闻，威武。[推荐]</a>
 </h2>
@@ -78,7 +78,7 @@
 </h2>
 <p>SPAM #科技带来无与伦比的艺术#被衔尾蛇激发出的凯库勒苯环结构，从《海底两万里》走出的潜水艇……曾经的梦想都变成了鲜活的今天，明天又会发生怎样奇妙的化学反应？少年们约吗？</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3917466494863821" target="freeweibo-mirror">【网传恐怖分子要在山西“搞事”省公安厅已抓获4人】据中国青年…</a>
 </h2>
