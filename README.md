@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3917412795816535" target="freeweibo-mirror">[酷]//@刘忠世: 知道的太多。//@半两簃主人: 徐暴死…</a>
+</h2>
+<p>[酷]//@刘忠世: 知道的太多。//@半两簃主人: 徐暴死，是为了保护谁呢？//@童之伟: 徐明死得蹊跷，海内外议论甚多，应该查明真相并向社会公开。<br><br>RE: 【水有多深？】他行贿对象、政治局委员薄的审判可以微博直播，而只是一介商人的他，案件的整个过程却如此全封闭，不可思议。昨天我发的相关微博也被手起刀落地直接删除（不是屏蔽），愈发令人生疑，徐明背后还有谁？呼吁公开徐的治疗档案！<br><img src="http://ww2.sinaimg.cn/large/48866320jw1eyqswmoaelj20ku112td8.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3917407997015973" target="freeweibo-mirror">//@邵明波: 仅从司法程序看，徐明远比一名前政局委员、地方…</a>
 </h2>
 <p>//@邵明波: 仅从司法程序看，徐明远比一名前政局委员、地方大员来得神秘，也显得重要多了。<br><br>RE: 【水有多深？】他行贿对象、政治局委员薄的审判可以微博直播，而只是一介商人的他，案件的整个过程却如此全封闭，不可思议。昨天我发的相关微博也被手起刀落地直接删除（不是屏蔽），愈发令人生疑，徐明背后还有谁？呼吁公开徐的治疗档案！<br><img src="http://ww2.sinaimg.cn/large/48866320jw1eyqswmoaelj20ku112td8.jpg"></p>
@@ -48,7 +54,7 @@
 </h2>
 <p>【兼听】2015年1月23日，@司马南 当着中国使领馆官员、数百现场观众、各大媒体记者之面回应：“我没有办过移民，也不打算移民，我家人也没有移民。”http://t.cn/RZ8UwAx //@徐昕:尚无充分证据证实，待司马屁谣。//@袁腾飞: 夹失忆了，记不起来了。[哈哈]<br><br>RE: 知情人透露司马南家人的移民手续由徐明操办，可它对徐明的去世一言不发，好像没这回事一样。<br><img src="http://ww3.sinaimg.cn/large/005Hu4eFgw1eyq88ml138j30ku06nq3z.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3917337860346099" target="freeweibo-mirror">【水有多深？】他行贿对象、政治局委员薄的审判可以微博直播，而…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3917085560247783" target="freeweibo-mirror">SPAM 你喜吃什么？我给你送。。。</a>
 </h2>
 <p>SPAM 你喜吃什么？我给你送。。。<br><br>RE: 我这么手贱，大家给我送饭哪！#社会主义新画风#[拜拜][拜拜][拜拜]<br><img src="http://ww2.sinaimg.cn/large/a86913a5gw1eypscis335j20c80bwwga.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3917083366988118" target="freeweibo-mirror">SPAM 冒死转发 //@南迦巴瓦的晨曦:缓则！ //@老牌…</a>
-</h2>
-<p>SPAM 冒死转发 //@南迦巴瓦的晨曦:缓则！ //@老牌机器猫Felix:来人哪！ //@亻造天堂: [哈哈] //@一只年糕菌: 哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈吃顿好的哈哈哈哈哈哈哈哈哈 //@翻云可铲二屎:[笑cry] //@穆寒:马【。 //@陆桃花: 哈哈哈哈哈 //@焱奤: 原PO开门，社区送温暖<br><br>RE: 我这么手贱，大家给我送饭哪！#社会主义新画风#[拜拜][拜拜][拜拜]<br><img src="http://ww2.sinaimg.cn/large/a86913a5gw1eypscis335j20c80bwwga.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
