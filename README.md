@@ -24,7 +24,7 @@
 </h2>
 <p>SPAM //@LifeTime: 奥马巴。[偷乐] http://t.cn/R4P9jZI</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3917545830441700" target="freeweibo-mirror">SPAM //@LifeTime:奥马巴。[偷乐] http…</a>
 </h2>
@@ -78,13 +78,13 @@
 </h2>
 <p>SPAM ～果然是一个靠谱滴逗逼，这年头，遇到这样滴店主，就嫁了吧！！！</p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3917412795816535" target="freeweibo-mirror">[酷]//@刘忠世: 知道的太多。//@半两簃主人: 徐暴死…</a>
 </h2>
 <p>[酷]//@刘忠世: 知道的太多。//@半两簃主人: 徐暴死，是为了保护谁呢？//@童之伟: 徐明死得蹊跷，海内外议论甚多，应该查明真相并向社会公开。<br><br>RE: 【水有多深？】他行贿对象、政治局委员薄的审判可以微博直播，而只是一介商人的他，案件的整个过程却如此全封闭，不可思议。昨天我发的相关微博也被手起刀落地直接删除（不是屏蔽），愈发令人生疑，徐明背后还有谁？呼吁公开徐的治疗档案！<br><img src="http://ww2.sinaimg.cn/large/48866320jw1eyqswmoaelj20ku112td8.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3917407997015973" target="freeweibo-mirror">//@邵明波: 仅从司法程序看，徐明远比一名前政局委员、地方…</a>
 </h2>
@@ -96,7 +96,7 @@
 </h2>
 <p>//@wm_yu: //@DopeyTom: [生病]//@慎独不易:[偷笑]//@hehuanlinzhao://@上海老顽童吴德余: 别呼了，再不识时务乱呼，你也要得心梗了。<br><br>RE: 【水有多深？】他行贿对象、政治局委员薄的审判可以微博直播，而只是一介商人的他，案件的整个过程却如此全封闭，不可思议。昨天我发的相关微博也被手起刀落地直接删除（不是屏蔽），愈发令人生疑，徐明背后还有谁？呼吁公开徐的治疗档案！<br><img src="http://ww2.sinaimg.cn/large/48866320jw1eyqswmoaelj20ku112td8.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3917403500990010" target="freeweibo-mirror">//@刘耘博士://@LifeTime:推算官方反应：1）一…</a>
 </h2>
