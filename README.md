@@ -42,7 +42,7 @@
 </h2>
 <p>SPAM  //@小个大头胡子6688://@红星闪闪的林生: //@BLOGs_CHOICE://@聿日13: //@田成之V:转世战友，请大伙儿速粉！[作揖][互粉][给力][话筒][话筒]<br><br>RE: 徐明，莫名其妙走了！薄友真为薄公担心！团结起来吧，全国的薄友们！ http://t.cn/R2d2Ssj<br><img src="http://ww4.sinaimg.cn/large/006fnXodjw1eyq6uhq6imj30if0gdq3r.jpg"></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3917162227939719" target="freeweibo-mirror">SPAM 每一款app都有着良好的设计，单看设计就应该推荐的…</a>
 </h2>
