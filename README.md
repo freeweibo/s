@@ -24,7 +24,7 @@
 </h2>
 <p>【网传恐怖分子要在山西“搞事”省公安厅已抓获4人】据中国青年网，近日网上热传一份太原铁路公安处的紧急通知，称有4名伊吉拉特人员预谋在山西搞恐怖袭击。山西省公安厅反恐支队确认，4名恐怖分子已被抓获。伊吉拉特又称“迁徙圣战组织”，是中国官方定义的活跃于中国新疆的维吾尔族伊斯兰激进组织。<br><img src="http://ww1.sinaimg.cn/large/9dcb59c7jw1eyr7x7pubbj20e906uaax.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3917454096918601" target="freeweibo-mirror">[围观] //@达沃儒:快看右边脑残！/@jw1568：伊斯…</a>
 </h2>
@@ -54,7 +54,7 @@
 </h2>
 <p>//@wm_yu: //@DopeyTom: [生病]//@慎独不易:[偷笑]//@hehuanlinzhao://@上海老顽童吴德余: 别呼了，再不识时务乱呼，你也要得心梗了。<br><br>RE: 【水有多深？】他行贿对象、政治局委员薄的审判可以微博直播，而只是一介商人的他，案件的整个过程却如此全封闭，不可思议。昨天我发的相关微博也被手起刀落地直接删除（不是屏蔽），愈发令人生疑，徐明背后还有谁？呼吁公开徐的治疗档案！<br><img src="http://ww2.sinaimg.cn/large/48866320jw1eyqswmoaelj20ku112td8.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3917403500990010" target="freeweibo-mirror">//@刘耘博士://@LifeTime:推算官方反应：1）一…</a>
 </h2>
