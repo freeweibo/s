@@ -62,6 +62,12 @@
 <p>
 	<small> ============== 1天前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3917158616450049" target="freeweibo-mirror">大妈讲述男女正确约 炮步骤[doge]一看就是过来人[笑cr…</a>
+</h2>
+<p>大妈讲述男女正确约 炮步骤[doge]一看就是过来人[笑cry]http://t.cn/R4vislh</p>
+<p>
+	<small> ============== 1天前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3917145232180460" target="freeweibo-mirror">SPAM 看不懂，嘛意思？[思考][思考]</a>
 </h2>
 <p>SPAM 看不懂，嘛意思？[思考][思考]<br><br>RE: 我在狱中曾多次被置于死地，二次下达巜病危通知书》，差点就"因病去世"!【前实德俱乐部董事长徐明因病去世 终年44岁】 http://t.cn/R4v26GR</p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3917063615358115" target="freeweibo-mirror">//@有雨天自凉60世:[思考]“权力寻租”制度体制机制下，…</a>
 </h2>
 <p>//@有雨天自凉60世:[思考]“权力寻租”制度体制机制下，商人几几乎个个不清白，但情非所愿也是有的..还是古人说得好：豺狼当道，安问狐狸.. //@卓索图乌梁海:政治附属品，宫斗牺牲品。胜，居庙堂之位；败，引高墙之祸！一句话，皆不是东西！<br><br>RE: 【再有钱，没有权，狗屁都不是！】一个首富何时抓不知道；羁押哪里不知道；有无律师不知道；涉嫌罪名不知道；哪家法院审判不知道；判处轻重不知道；是否上诉不知道；哪个监狱服刑不知道；何时死不知道。<br><img src="http://ww2.sinaimg.cn/large/6a80bfcdjw1eypvu2atadj20m80ck75u.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3917059077156592" target="freeweibo-mirror">【“好人”徐明去世，终年44岁】徐明在@济南中院 的“您是一…</a>
-</h2>
-<p>【“好人”徐明去世，终年44岁】徐明在@济南中院 的“您是一个好官”。这句话十有八九被认为是一句阿谀奉承，溜须拍马的话，然而当时这句话的背景是出自一位身陷囵囤，自身都难保而被威逼利诱的"证人"的内心话、是一位被权贵视为"罪大恶极"的"罪犯"充满敬意和敬佩的话、也是众亿有良知人的心里话…<br><img src="http://ww1.sinaimg.cn/large/005KcKJygw1eypx3pyziaj30hk0b30t9.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
