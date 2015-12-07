@@ -42,7 +42,7 @@
 </h2>
 <p>SPAM //@LifeTime: 奥马巴。[偷乐] http://t.cn/R4P9jZI</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3917545830441700" target="freeweibo-mirror">SPAM //@LifeTime:奥马巴。[偷乐] http…</a>
 </h2>
@@ -84,7 +84,7 @@
 </h2>
 <p>【网传恐怖分子要在山西“搞事”省公安厅已抓获4人】据中国青年网，近日网上热传一份太原铁路公安处的紧急通知，称有4名伊吉拉特人员预谋在山西搞恐怖袭击。山西省公安厅反恐支队确认，4名恐怖分子已被抓获。伊吉拉特又称“迁徙圣战组织”，是中国官方定义的活跃于中国新疆的维吾尔族伊斯兰激进组织。<br><img src="http://ww1.sinaimg.cn/large/9dcb59c7jw1eyr7x7pubbj20e906uaax.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3917454096918601" target="freeweibo-mirror">[围观] //@达沃儒:快看右边脑残！/@jw1568：伊斯…</a>
 </h2>
