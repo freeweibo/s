@@ -54,7 +54,7 @@
 </h2>
 <p>【水有多深？】他行贿对象、政治局委员薄的审判可以微博直播，而只是一介商人的他，案件的整个过程却如此全封闭，不可思议。昨天我发的相关微博也被手起刀落地直接删除（不是屏蔽），愈发令人生疑，徐明背后还有谁？呼吁公开徐的治疗档案！<br><img src="http://ww2.sinaimg.cn/large/48866320jw1eyqswmoaelj20ku112td8.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3917200396462892" target="freeweibo-mirror">诺奖除了屠呦呦，其他的都是带有明显的调料味儿。</a>
 </h2>
