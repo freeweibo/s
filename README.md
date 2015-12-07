@@ -30,7 +30,7 @@
 </h2>
 <p>SPAM //@LifeTime: 奥马巴。[偷乐] http://t.cn/R4P9jZI</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3917545830441700" target="freeweibo-mirror">SPAM //@LifeTime:奥马巴。[偷乐] http…</a>
 </h2>
@@ -84,7 +84,7 @@
 </h2>
 <p>SPAM ～果然是一个靠谱滴逗逼，这年头，遇到这样滴店主，就嫁了吧！！！</p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3917412795816535" target="freeweibo-mirror">[酷]//@刘忠世: 知道的太多。//@半两簃主人: 徐暴死…</a>
 </h2>
