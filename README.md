@@ -30,7 +30,7 @@
 </h2>
 <p>这条微博没删，充分说明中国人民有言论自由//@马伯庸:已经打不开了。朝廷为了老百姓的精神健康真是操（四声）碎了心呐。<br><br>RE: 如何评价维基百科被全站封锁？ （分享自 @知乎 ）http://t.cn/RUsVaOo<br><img src="http://ww1.sinaimg.cn/large/537e7cfdgw1eypodb6qqsj20p018gdp4.jpg"></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3917181341177466" target="freeweibo-mirror">//@拍死该死的蚊子: //@沧海一杯歌悠扬: //@锁定-…</a>
 </h2>
@@ -54,7 +54,7 @@
 </h2>
 <p>SPAM 看不懂，嘛意思？[思考][思考]<br><br>RE: 我在狱中曾多次被置于死地，二次下达巜病危通知书》，差点就"因病去世"!【前实德俱乐部董事长徐明因病去世 终年44岁】 http://t.cn/R4v26GR</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3917143949611981" target="freeweibo-mirror">徐明，莫名其妙走了！薄友真为薄公担心！团结起来吧，全国的薄友…</a>
 </h2>
