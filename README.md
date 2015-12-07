@@ -72,7 +72,7 @@
 </h2>
 <p>SPAM 这大妈太专业了。[嘻嘻][嘻嘻][嘻嘻]<br><br>RE: 大妈讲述男女正确约 炮步骤[doge]一看就是过来人[笑cry]http://t.cn/R4vislh</p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3917339194450621" target="freeweibo-mirror">【兼听】2015年1月23日，@司马南 当着中国使领馆官员、…</a>
 </h2>
