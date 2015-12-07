@@ -20,6 +20,24 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3917407997015973" target="freeweibo-mirror">//@邵明波: 仅从司法程序看，徐明远比一名前政局委员、地方…</a>
+</h2>
+<p>//@邵明波: 仅从司法程序看，徐明远比一名前政局委员、地方大员来得神秘，也显得重要多了。<br><br>RE: 【水有多深？】他行贿对象、政治局委员薄的审判可以微博直播，而只是一介商人的他，案件的整个过程却如此全封闭，不可思议。昨天我发的相关微博也被手起刀落地直接删除（不是屏蔽），愈发令人生疑，徐明背后还有谁？呼吁公开徐的治疗档案！<br><img src="http://ww2.sinaimg.cn/large/48866320jw1eyqswmoaelj20ku112td8.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3917405523276904" target="freeweibo-mirror">//@wm_yu: //@DopeyTom: [生病]//@…</a>
+</h2>
+<p>//@wm_yu: //@DopeyTom: [生病]//@慎独不易:[偷笑]//@hehuanlinzhao://@上海老顽童吴德余: 别呼了，再不识时务乱呼，你也要得心梗了。<br><br>RE: 【水有多深？】他行贿对象、政治局委员薄的审判可以微博直播，而只是一介商人的他，案件的整个过程却如此全封闭，不可思议。昨天我发的相关微博也被手起刀落地直接删除（不是屏蔽），愈发令人生疑，徐明背后还有谁？呼吁公开徐的治疗档案！<br><img src="http://ww2.sinaimg.cn/large/48866320jw1eyqswmoaelj20ku112td8.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3917403500990010" target="freeweibo-mirror">//@刘耘博士://@LifeTime:推算官方反应：1）一…</a>
+</h2>
+<p>//@刘耘博士://@LifeTime:推算官方反应：1）一定会回应。2）会从“医学”角度谈猝死。3）审判详情继续“保密”。4）猛批质疑者。<br><br>RE: 【水有多深？】他行贿对象、政治局委员薄的审判可以微博直播，而只是一介商人的他，案件的整个过程却如此全封闭，不可思议。昨天我发的相关微博也被手起刀落地直接删除（不是屏蔽），愈发令人生疑，徐明背后还有谁？呼吁公开徐的治疗档案！<br><img src="http://ww2.sinaimg.cn/large/48866320jw1eyqswmoaelj20ku112td8.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3917355396369436" target="freeweibo-mirror">SPAM 这大妈太专业了。[嘻嘻][嘻嘻][嘻嘻]</a>
 </h2>
 <p>SPAM 这大妈太专业了。[嘻嘻][嘻嘻][嘻嘻]<br><br>RE: 大妈讲述男女正确约 炮步骤[doge]一看就是过来人[笑cry]http://t.cn/R4vislh</p>
@@ -119,24 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3917068732358988" target="freeweibo-mirror">//@永远是龙的传人2012: //@敏悟空间://@蓦然回…</a>
 </h2>
 <p>//@永远是龙的传人2012: //@敏悟空间://@蓦然回首时评微博: //@特种兵花魂鸟梦: 转发微博<br><br>RE: 【“好人”徐明去世，终年44岁】徐明在@济南中院 的“您是一个好官”。这句话十有八九被认为是一句阿谀奉承，溜须拍马的话，然而当时这句话的背景是出自一位身陷囵囤，自身都难保而被威逼利诱的"证人"的内心话、是一位被权贵视为"罪大恶极"的"罪犯"充满敬意和敬佩的话、也是众亿有良知人的心里话…<br><img src="http://ww1.sinaimg.cn/large/005KcKJygw1eypx3pyziaj30hk0b30t9.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3917066271003104" target="freeweibo-mirror">//@徐昕:@王甫律师:何时抓不知道；羁押哪里不知道；有无律…</a>
-</h2>
-<p>//@徐昕:@王甫律师:何时抓不知道；羁押哪里不知道；有无律师不知道；涉嫌罪名不知道；哪家法院审判不知道；判处轻重不知道；是否上诉不知道；哪个监狱服刑不知道；何时死不知道<br><br>RE: 前实德董事长徐明狱中去世，年仅44，明年9月本将刑满。。。。。。。。。带走了多少秘密？<br><img src="http://ww4.sinaimg.cn/large/656952ecjw1eypvbdzztkj20u01hcdzv.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3917066182422058" target="freeweibo-mirror">@王甫律师:何时抓不知道；羁押哪里不知道；有无律师不知道；涉…</a>
-</h2>
-<p>@王甫律师:何时抓不知道；羁押哪里不知道；有无律师不知道；涉嫌罪名不知道；哪家法院审判不知道；判处轻重不知道；是否上诉不知道；哪个监狱服刑不知道；何时死不知道<br><br>RE: 前实德董事长徐明狱中去世，年仅44，明年9月本将刑满。。。。。。。。。带走了多少秘密？<br><img src="http://ww4.sinaimg.cn/large/656952ecjw1eypvbdzztkj20u01hcdzv.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3917063615358115" target="freeweibo-mirror">//@有雨天自凉60世:[思考]“权力寻租”制度体制机制下，…</a>
-</h2>
-<p>//@有雨天自凉60世:[思考]“权力寻租”制度体制机制下，商人几几乎个个不清白，但情非所愿也是有的..还是古人说得好：豺狼当道，安问狐狸.. //@卓索图乌梁海:政治附属品，宫斗牺牲品。胜，居庙堂之位；败，引高墙之祸！一句话，皆不是东西！<br><br>RE: 【再有钱，没有权，狗屁都不是！】一个首富何时抓不知道；羁押哪里不知道；有无律师不知道；涉嫌罪名不知道；哪家法院审判不知道；判处轻重不知道；是否上诉不知道；哪个监狱服刑不知道；何时死不知道。<br><img src="http://ww2.sinaimg.cn/large/6a80bfcdjw1eypvu2atadj20m80ck75u.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
