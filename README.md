@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3917355396369436" target="freeweibo-mirror">SPAM 这大妈太专业了。[嘻嘻][嘻嘻][嘻嘻]</a>
+</h2>
+<p>SPAM 这大妈太专业了。[嘻嘻][嘻嘻][嘻嘻]<br><br>RE: 大妈讲述男女正确约 炮步骤[doge]一看就是过来人[笑cry]http://t.cn/R4vislh</p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3917339194450621" target="freeweibo-mirror">【兼听】2015年1月23日，@司马南 当着中国使领馆官员、…</a>
 </h2>
 <p>【兼听】2015年1月23日，@司马南 当着中国使领馆官员、数百现场观众、各大媒体记者之面回应：“我没有办过移民，也不打算移民，我家人也没有移民。”http://t.cn/RZ8UwAx //@徐昕:尚无充分证据证实，待司马屁谣。//@袁腾飞: 夹失忆了，记不起来了。[哈哈]<br><br>RE: 知情人透露司马南家人的移民手续由徐明操办，可它对徐明的去世一言不发，好像没这回事一样。<br><img src="http://ww3.sinaimg.cn/large/005Hu4eFgw1eyq88ml138j30ku06nq3z.jpg"></p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3917059077156592" target="freeweibo-mirror">【“好人”徐明去世，终年44岁】徐明在@济南中院 的“您是一…</a>
 </h2>
 <p>【“好人”徐明去世，终年44岁】徐明在@济南中院 的“您是一个好官”。这句话十有八九被认为是一句阿谀奉承，溜须拍马的话，然而当时这句话的背景是出自一位身陷囵囤，自身都难保而被威逼利诱的"证人"的内心话、是一位被权贵视为"罪大恶极"的"罪犯"充满敬意和敬佩的话、也是众亿有良知人的心里话…<br><img src="http://ww1.sinaimg.cn/large/005KcKJygw1eypx3pyziaj30hk0b30t9.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3917048423932516" target="freeweibo-mirror">【老照片·徐明和他的朋友圈】徐明于12月4日在狱中因心肌梗塞…</a>
-</h2>
-<p>【老照片·徐明和他的朋友圈】徐明于12月4日在狱中因心肌梗塞去世，年44岁。他可能是70后一代商业成功者中，最早成为高光人物的。1999年，徐明开始从王健林手中接过如日中天的大连足球队时，年仅28岁。但当时圈内人都知道，他对足球没什么兴趣，甚至此前从未看过这支球队的比赛。<br><img src="http://ww2.sinaimg.cn/large/61e04755jw1eypvwk8ks1j20fa09njsc.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
