@@ -48,7 +48,7 @@
 </h2>
 <p>SPAM //@LifeTime:奥马巴。[偷乐] http://t.cn/R4P9jZI</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3917544396069296" target="freeweibo-mirror">SPAM 因“辞职门”处罚4记者成为国际新闻，威武。[推荐]</a>
 </h2>
