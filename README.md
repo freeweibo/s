@@ -36,7 +36,7 @@
 </h2>
 <p>//@wm_yu: //@DopeyTom: [生病]//@慎独不易:[偷笑]//@hehuanlinzhao://@上海老顽童吴德余: 别呼了，再不识时务乱呼，你也要得心梗了。<br><br>RE: 【水有多深？】他行贿对象、政治局委员薄的审判可以微博直播，而只是一介商人的他，案件的整个过程却如此全封闭，不可思议。昨天我发的相关微博也被手起刀落地直接删除（不是屏蔽），愈发令人生疑，徐明背后还有谁？呼吁公开徐的治疗档案！<br><img src="http://ww2.sinaimg.cn/large/48866320jw1eyqswmoaelj20ku112td8.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3917403500990010" target="freeweibo-mirror">//@刘耘博士://@LifeTime:推算官方反应：1）一…</a>
 </h2>
