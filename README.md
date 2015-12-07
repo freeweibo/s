@@ -72,7 +72,7 @@
 </h2>
 <p>SPAM 进口有机果泥肉泥，健康又方便，推荐给宝妈[心]</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3917477753208609" target="freeweibo-mirror">SPAM #科技带来无与伦比的艺术#被衔尾蛇激发出的凯库勒苯…</a>
 </h2>
