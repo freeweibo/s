@@ -36,7 +36,7 @@
 </h2>
 <p>//@拍死该死的蚊子: //@沧海一杯歌悠扬: //@锁定---坚强: 有人怕他揭露真相，所以他死了！证明乱臣贼子依旧当道//@我思泽东A: 对徐明印象很深刻，因为他在庭审时说过这么一句话，是条汉子。他说：“从我的角度讲，我很尊重、敬重薄熙来。”<br><br>RE: #热点#【前实德董事长徐明狱中去世 明年9月将刑满释放】1992年，徐明创建大连实德集团。1999年，实德成为大连万达俱乐部赞助商。2000年，徐明从王健林手中接过球队，实德一鼓作气实现甲A三连冠。2012年3月，徐明涉嫌经济案件被控制，后获刑入狱。按计划，明年9月徐明将刑满释放。http://t.cn/R4vAQ59<br><img src="http://ww2.sinaimg.cn/large/60718250jw1eypv3bk59mj20dw09o3z0.jpg"></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3917180867228120" target="freeweibo-mirror">SPAM  //@小个大头胡子6688://@红星闪闪的林生…</a>
 </h2>
@@ -60,7 +60,7 @@
 </h2>
 <p>徐明，莫名其妙走了！薄友真为薄公担心！团结起来吧，全国的薄友们！ http://t.cn/R2d2Ssj<br><img src="http://ww4.sinaimg.cn/large/006fnXodjw1eyq6uhq6imj30if0gdq3r.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3917141314971491" target="freeweibo-mirror">人都死了到现在也不知道何时到底判了几年，“按计划”明年出狱……</a>
 </h2>
