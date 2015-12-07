@@ -24,7 +24,7 @@
 </h2>
 <p>//@邵明波: 仅从司法程序看，徐明远比一名前政局委员、地方大员来得神秘，也显得重要多了。<br><br>RE: 【水有多深？】他行贿对象、政治局委员薄的审判可以微博直播，而只是一介商人的他，案件的整个过程却如此全封闭，不可思议。昨天我发的相关微博也被手起刀落地直接删除（不是屏蔽），愈发令人生疑，徐明背后还有谁？呼吁公开徐的治疗档案！<br><img src="http://ww2.sinaimg.cn/large/48866320jw1eyqswmoaelj20ku112td8.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3917405523276904" target="freeweibo-mirror">//@wm_yu: //@DopeyTom: [生病]//@…</a>
 </h2>
