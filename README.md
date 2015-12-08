@@ -42,7 +42,7 @@
 </h2>
 <p>SPAM 媒体啊，还是要提高自己的知识水平 http://t.cn/RUnX4k8</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3917596761858019" target="freeweibo-mirror">[围观]//@科罗廖夫: 回复@重度吃醋患者:有这事，海尔冰…</a>
 </h2>
