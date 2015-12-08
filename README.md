@@ -66,7 +66,7 @@
 </h2>
 <p>SPAM 阅过即焚 http://t.cn/R4hPNSP</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3917763402063885" target="freeweibo-mirror">长者自己说过“一个略显可笑的领导人要比一个骄傲自大、不近人情…</a>
 </h2>
