@@ -42,7 +42,7 @@
 </h2>
 <p>SPAM //@LifeTime: 奥马巴。[偷乐] http://t.cn/R4P9jZI</p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3917545830441700" target="freeweibo-mirror">SPAM //@LifeTime:奥马巴。[偷乐] http…</a>
 </h2>
