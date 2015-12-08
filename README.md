@@ -48,13 +48,13 @@
 </h2>
 <p>SPAM  //@王亚军上海:关注中</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3917793646634697" target="freeweibo-mirror">SPAM 一次又一次的烈火炼就成的精钢脊梁//@章文的文章:…</a>
 </h2>
 <p>SPAM 一次又一次的烈火炼就成的精钢脊梁//@章文的文章:他是钢，时间会证明！//@Drum节奏之都：向以卵击石的河北唐山人致敬[威武]</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3917788978652949" target="freeweibo-mirror">//@清华郭于31华:[话筒]//@埃玛Emma: 浦律师（…</a>
 </h2>
