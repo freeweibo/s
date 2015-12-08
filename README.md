@@ -42,7 +42,7 @@
 </h2>
 <p>台湾综艺节目是这样恶搞习马会的(@facebook见闻)http://t.cn/R4hbzqD</p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3917835728161959" target="freeweibo-mirror">老浦被迫害，还是因其长期坚持理想，拒绝遗忘。将那一代反对派彻…</a>
 </h2>
