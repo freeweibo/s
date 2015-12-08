@@ -20,6 +20,24 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3917763402063885" target="freeweibo-mirror">长者自己说过“一个略显可笑的领导人要比一个骄傲自大、不近人情…</a>
+</h2>
+<p>长者自己说过“一个略显可笑的领导人要比一个骄傲自大、不近人情、自以为是的领导人好得多。” //@草重六日:其实长者挺可爱的啊 比较有性格 //@勾魂电眼李明博: 温习一下长者的言谈 //@马达MOTOR:转发微博</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3917761564641977" target="freeweibo-mirror">温习一下长者的言谈 //@马达MOTOR:转发微博</a>
+</h2>
+<p>温习一下长者的言谈 //@马达MOTOR:转发微博</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3917759333231850" target="freeweibo-mirror">SPAM 媒体啊，还是要提高自己的知识水平 http://t…</a>
+</h2>
+<p>SPAM 媒体啊，还是要提高自己的知识水平 http://t.cn/RUnX4k8</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3917596761858019" target="freeweibo-mirror">[围观]//@科罗廖夫: 回复@重度吃醋患者:有这事，海尔冰…</a>
 </h2>
 <p>[围观]//@科罗廖夫: 回复@重度吃醋患者:有这事，海尔冰箱威力无比//@重度吃醋患者:几年前，中国制造的小冰箱被日本水兵偷偷带上船，结果自燃了，引起全舰大火，直接导致八八舰队核心白根号提前退役，现在中国制造的劣质耐火砖使得俄罗斯卖给印度的航母在试航时，8个锅炉一口气烧掉7个</p>
@@ -119,24 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3917403500990010" target="freeweibo-mirror">//@刘耘博士://@LifeTime:推算官方反应：1）一…</a>
 </h2>
 <p>//@刘耘博士://@LifeTime:推算官方反应：1）一定会回应。2）会从“医学”角度谈猝死。3）审判详情继续“保密”。4）猛批质疑者。<br><br>RE: 【水有多深？】他行贿对象、政治局委员薄的审判可以微博直播，而只是一介商人的他，案件的整个过程却如此全封闭，不可思议。昨天我发的相关微博也被手起刀落地直接删除（不是屏蔽），愈发令人生疑，徐明背后还有谁？呼吁公开徐的治疗档案！<br><img src="http://ww2.sinaimg.cn/large/48866320jw1eyqswmoaelj20ku112td8.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3917355396369436" target="freeweibo-mirror">SPAM 这大妈太专业了。[嘻嘻][嘻嘻][嘻嘻]</a>
-</h2>
-<p>SPAM 这大妈太专业了。[嘻嘻][嘻嘻][嘻嘻]<br><br>RE: 大妈讲述男女正确约 炮步骤[doge]一看就是过来人[笑cry]http://t.cn/R4vislh</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3917339194450621" target="freeweibo-mirror">【兼听】2015年1月23日，@司马南 当着中国使领馆官员、…</a>
-</h2>
-<p>【兼听】2015年1月23日，@司马南 当着中国使领馆官员、数百现场观众、各大媒体记者之面回应：“我没有办过移民，也不打算移民，我家人也没有移民。”http://t.cn/RZ8UwAx //@徐昕:尚无充分证据证实，待司马屁谣。//@袁腾飞: 夹失忆了，记不起来了。[哈哈]<br><br>RE: 知情人透露司马南家人的移民手续由徐明操办，可它对徐明的去世一言不发，好像没这回事一样。<br><img src="http://ww3.sinaimg.cn/large/005Hu4eFgw1eyq88ml138j30ku06nq3z.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3917337860346099" target="freeweibo-mirror">【水有多深？】他行贿对象、政治局委员薄的审判可以微博直播，而…</a>
-</h2>
-<p>【水有多深？】他行贿对象、政治局委员薄的审判可以微博直播，而只是一介商人的他，案件的整个过程却如此全封闭，不可思议。昨天我发的相关微博也被手起刀落地直接删除（不是屏蔽），愈发令人生疑，徐明背后还有谁？呼吁公开徐的治疗档案！<br><img src="http://ww2.sinaimg.cn/large/48866320jw1eyqswmoaelj20ku112td8.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
