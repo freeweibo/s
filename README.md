@@ -30,13 +30,13 @@
 </h2>
 <p>SPAM  //@王亚军上海:关注中</p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3917793646634697" target="freeweibo-mirror">SPAM 一次又一次的烈火炼就成的精钢脊梁//@章文的文章:…</a>
 </h2>
 <p>SPAM 一次又一次的烈火炼就成的精钢脊梁//@章文的文章:他是钢，时间会证明！//@Drum节奏之都：向以卵击石的河北唐山人致敬[威武]</p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3917788978652949" target="freeweibo-mirror">//@清华郭于31华:[话筒]//@埃玛Emma: 浦律师（…</a>
 </h2>
@@ -54,7 +54,7 @@
 </h2>
 <p>长者自己说过“一个略显可笑的领导人要比一个骄傲自大、不近人情、自以为是的领导人好得多。” //@草重六日:其实长者挺可爱的啊 比较有性格 //@勾魂电眼李明博: 温习一下长者的言谈 //@马达MOTOR:转发微博</p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3917761564641977" target="freeweibo-mirror">温习一下长者的言谈 //@马达MOTOR:转发微博</a>
 </h2>
