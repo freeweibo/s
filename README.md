@@ -36,7 +36,7 @@
 </h2>
 <p>SPAM 恶俗，吃野生动物，蛮夷啊<br><br>RE: 台湾综艺节目是这样恶搞习马会的(@facebook见闻)http://t.cn/R4hbzqD</p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3917865633684465" target="freeweibo-mirror">台湾综艺节目是这样恶搞习马会的(@facebook见闻)ht…</a>
 </h2>
