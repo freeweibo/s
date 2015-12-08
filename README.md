@@ -78,7 +78,7 @@
 </h2>
 <p>温习一下长者的言谈 //@马达MOTOR:转发微博</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3917759333231850" target="freeweibo-mirror">SPAM 媒体啊，还是要提高自己的知识水平 http://t…</a>
 </h2>
