@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3917772024959759" target="freeweibo-mirror">SPAM 阅过即焚 http://t.cn/R4hPNSP</a>
+</h2>
+<p>SPAM 阅过即焚 http://t.cn/R4hPNSP</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3917763402063885" target="freeweibo-mirror">长者自己说过“一个略显可笑的领导人要比一个骄傲自大、不近人情…</a>
 </h2>
 <p>长者自己说过“一个略显可笑的领导人要比一个骄傲自大、不近人情、自以为是的领导人好得多。” //@草重六日:其实长者挺可爱的啊 比较有性格 //@勾魂电眼李明博: 温习一下长者的言谈 //@马达MOTOR:转发微博</p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3917405523276904" target="freeweibo-mirror">//@wm_yu: //@DopeyTom: [生病]//@…</a>
 </h2>
 <p>//@wm_yu: //@DopeyTom: [生病]//@慎独不易:[偷笑]//@hehuanlinzhao://@上海老顽童吴德余: 别呼了，再不识时务乱呼，你也要得心梗了。<br><br>RE: 【水有多深？】他行贿对象、政治局委员薄的审判可以微博直播，而只是一介商人的他，案件的整个过程却如此全封闭，不可思议。昨天我发的相关微博也被手起刀落地直接删除（不是屏蔽），愈发令人生疑，徐明背后还有谁？呼吁公开徐的治疗档案！<br><img src="http://ww2.sinaimg.cn/large/48866320jw1eyqswmoaelj20ku112td8.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3917403500990010" target="freeweibo-mirror">//@刘耘博士://@LifeTime:推算官方反应：1）一…</a>
-</h2>
-<p>//@刘耘博士://@LifeTime:推算官方反应：1）一定会回应。2）会从“医学”角度谈猝死。3）审判详情继续“保密”。4）猛批质疑者。<br><br>RE: 【水有多深？】他行贿对象、政治局委员薄的审判可以微博直播，而只是一介商人的他，案件的整个过程却如此全封闭，不可思议。昨天我发的相关微博也被手起刀落地直接删除（不是屏蔽），愈发令人生疑，徐明背后还有谁？呼吁公开徐的治疗档案！<br><img src="http://ww2.sinaimg.cn/large/48866320jw1eyqswmoaelj20ku112td8.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
