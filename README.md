@@ -30,7 +30,7 @@
 </h2>
 <p>SPAM 呵呵。//@文山娃:呵呵。//@常恒HK: “辦案人員既要完成任務又不想承擔罵名的心態也昭然若揭”</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3918171410748497" target="freeweibo-mirror">//@假装回洛阳:转发微博</a>
 </h2>
@@ -54,7 +54,7 @@
 </h2>
 <p>谢谢！//@云卷云舒19671120：欢迎来到重庆！</p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3918024274663980" target="freeweibo-mirror">//@梅花桔中人再来://@管荣君同志:有没有妖怪并不重要，…</a>
 </h2>
