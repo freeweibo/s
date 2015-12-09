@@ -90,7 +90,7 @@
 </h2>
 <p>SPAM 陪伴是最长情的告白，愿有人陪你欢闹，愿此人陪你终老。圣诞，新年，春节，想要什么样的礼物告诉我， 这样的礼物世界上就不会再有第二个。专属于你，你们的美丽幸福小物。 卡地亚，奢华洛世奇，宝格丽这些的高仿品，与品牌专柜款式同步。纯银定制等<br><img src="http://ww4.sinaimg.cn/large/a793cf8ajw1eythj33lgkj20fk0kqmy9.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3918176369126822" target="freeweibo-mirror">前女友[偷笑][哈哈][哈哈][哈哈]</a>
 </h2>
@@ -114,7 +114,7 @@
 </h2>
 <p>SPAM 『浦案与中国司法不可承受之重』 via 端傳媒 http://t.cn/R47PdSB<br><img src="http://ww1.sinaimg.cn/large/65cc9274jw1eytgm26c4zj20go4ljh32.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3918162574118987" target="freeweibo-mirror">好棒！//@大咕咕咕鸡_25: 必须转一下了，去年已经看透这…</a>
 </h2>
