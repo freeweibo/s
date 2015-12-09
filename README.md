@@ -36,7 +36,7 @@
 </h2>
 <p>谢谢！//@云卷云舒19671120：欢迎来到重庆！</p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3918024274663980" target="freeweibo-mirror">//@梅花桔中人再来://@管荣君同志:有没有妖怪并不重要，…</a>
 </h2>
