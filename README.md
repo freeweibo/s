@@ -102,7 +102,7 @@
 </h2>
 <p>SPAM 呵呵。//@文山娃:呵呵。//@常恒HK: “辦案人員既要完成任務又不想承擔罵名的心態也昭然若揭”</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3918171410748497" target="freeweibo-mirror">//@假装回洛阳:转发微博</a>
 </h2>
