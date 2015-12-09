@@ -30,7 +30,7 @@
 </h2>
 <p>//@谢苏明014: 转发微博</p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3918177056426728" target="freeweibo-mirror">SPAM 陪伴是最长情的告白，愿有人陪你欢闹，愿此人陪你终老…</a>
 </h2>
