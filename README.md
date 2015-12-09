@@ -78,7 +78,7 @@
 </h2>
 <p>绝望的人多了，希望就有了！<br><br>RE: 经一年多调查，浦律没有嫖娼，他夫人放心了。律所账本很干净，合伙人放心了。罪证只有七条微博，公众放心了。接下来，爱怎么判就怎么判，哪怕法官当庭追加一条强奸母牛罪，也没人敢说啥。浦律多坐一天牢，就多一些人绝望。绝望的人多了，希望就有了。<br><img src="http://ww2.sinaimg.cn/large/006eTa3Ljw1eyt7kj9e5nj30ac09174x.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3918180764299910" target="freeweibo-mirror">//@谢苏明014: 转发微博</a>
 </h2>
