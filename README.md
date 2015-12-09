@@ -138,7 +138,7 @@
 </h2>
 <p>SPAM 因“辞职门”处罚4记者成为国际新闻，威武。[推荐]<br><img src="http://ww2.sinaimg.cn/large/006g7d2Qgw1eyrgudumlsj30uy18g7cq.jpg"></p>
 <p>
-	<small> ============== 1天前</small>
+	<small> ============== 2天前</small>
 </p>
 <table>
     <tr>
