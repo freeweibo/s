@@ -42,7 +42,7 @@
 </h2>
 <p>理性维权。 //@周李城:武汉刚刚出事啦！</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3918277459326993" target="freeweibo-mirror">#万象#【武汉一垃圾站选址遭居民强烈反对】近日，武汉市黄陂区…</a>
 </h2>
@@ -132,13 +132,13 @@
 </h2>
 <p>SPAM 《ToLOVEるダークネス2nd》 BD第4卷发售···<br><img src="http://ww1.sinaimg.cn/large/706dedafgw1eyte8ag8pyj20dw0dwgnp.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3918147541173666" target="freeweibo-mirror">//@绍兴师爷在北京:问得好！</a>
 </h2>
 <p>//@绍兴师爷在北京:问得好！</p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p>
 <table>
     <tr>
