@@ -30,7 +30,7 @@
 </h2>
 <p>//@梅花桔中人再来://@管荣君同志:有没有妖怪并不重要，重要的是妖怪是哪伙的。//@原始的仁: 换座山，上面不还是妖怪？//@管荣君同志:该来的，一定会来的，这是不以人们的意志为转移的，是国际的大气候与国内的小气候决定的——邓小平//@besim_xr7: //@北京的齐爷:[赞]<br><br>RE: 快讯：刘X山。（完）</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3917983698998751" target="freeweibo-mirror">快讯：刘X山。（完）</a>
 </h2>
@@ -132,7 +132,7 @@
 </h2>
 <p>SPAM //@LifeTime: 奥马巴。[偷乐] http://t.cn/R4P9jZI</p>
 <p>
-	<small> ============== 1天前</small>
+	<small> ============== 2天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3917545830441700" target="freeweibo-mirror">SPAM //@LifeTime:奥马巴。[偷乐] http…</a>
 </h2>
