@@ -96,7 +96,7 @@
 </h2>
 <p>前女友[偷笑][哈哈][哈哈][哈哈]<br><img src="http://ww1.sinaimg.cn/large/005S8aJUgw1eythfxibu6j30c80hgq45.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3918175110644605" target="freeweibo-mirror">SPAM 呵呵。//@文山娃:呵呵。//@常恒HK: “辦案…</a>
 </h2>
