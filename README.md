@@ -30,7 +30,7 @@
 </h2>
 <p>//@v珍妮191:救世主，解放全人类<br><br>RE: 【几千亿几千亿地向国外撒钱，自己的孩子上不起学，贷款都不给】科力的经历特别坎坷，他考过两次大学，第一次是在2000年，他以非常好的成绩考入了合肥工业大学，但是助学贷款很难申请，学费是家里和亲戚、朋友以及村里的人给他凑的，有了学费但是没有生活费，每天食不果腹。 http://t.cn/R4Pxw2W<br><img src="http://ww4.sinaimg.cn/large/006gY9PCjw1eyt4r342l5j306b064glp.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3918440437906592" target="freeweibo-mirror">SPAM 一直在纠结买不到好蜂蜜的朋友去他家看看吧，农村人不…</a>
 </h2>
