@@ -48,7 +48,7 @@
 </h2>
 <p>#万象#【武汉一垃圾站选址遭居民强烈反对】近日，武汉市黄陂区盘龙城美景天城等两个小区居民称，小区后墙几百米外要修建一座垃圾转运站。担心健康受影响，小区居民坚决反对。据当地网友今晚发布图片显示，现场警民发生冲突，有警车被推翻。详见：http://t.cn/R47VE11<br><img src="http://ww4.sinaimg.cn/large/60718250jw1eytsyvnh11j20c8096wfz.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3918276155087275" target="freeweibo-mirror">SPAM  //@深夜一只猫:胡锡进主张审理浦案可以任性，被…</a>
 </h2>
