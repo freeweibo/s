@@ -48,7 +48,7 @@
 </h2>
 <p>SPAM //@张晓舟:和国宝打交道是每个公民的基本生存技能，但能否真的掌握这个技能，谁知道。</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3918638379446508" target="freeweibo-mirror">SPAM Repost</a>
 </h2>
@@ -72,7 +72,7 @@
 </h2>
 <p>SPAM 开庭在即！</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3918590028271651" target="freeweibo-mirror">SPAM 等我列个清单</a>
 </h2>
