@@ -66,7 +66,7 @@
 </h2>
 <p>SPAM [doge][doge][doge] //@是喵头:强奸中学女生然后给几百块钱“助学金”，被赞良心慈善家//@贤莹定中: 杀人犯碎尸烹煮后加了一把调料香飘十里被赞有品味//@洋葱日报社: 男大学生强奸室友后帮其穿好裤子并整理床铺，被赞暖男。//@东土大唐三俗和尚: 小偷偷完东西临走帮主人关灯，被赞节约型人才<br><br>RE: 老公打老婆打断7根肋骨，及时送医院被赞有爱心。<br><img src="http://ww2.sinaimg.cn/large/61fdb50fjw1eyt6yo6i1xj20go0m876n.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3918255712575933" target="freeweibo-mirror">SPAM 赚了自己拿进，赔了找政府闹事。 //@辟谣与真相:…</a>
 </h2>
