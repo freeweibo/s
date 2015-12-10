@@ -66,7 +66,7 @@
 </h2>
 <p>SPAM Repost</p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3918634239638740" target="freeweibo-mirror">SPAM [黑线]//@月湖无人区: 转发微博</a>
 </h2>
