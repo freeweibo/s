@@ -30,7 +30,7 @@
 </h2>
 <p>//@大树终不倒: “邓完人”</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3918981896971150" target="freeweibo-mirror">对江泽民的处罚不变。//@Maddy: 简称为：鸡。//@黑…</a>
 </h2>
@@ -72,7 +72,7 @@
 </h2>
 <p>何兵：浦案将撕裂亿万人对自由和法治的向往！<br><img src="http://ww3.sinaimg.cn/large/006fKeYhjw1eyvtz6tt33j30aj0qowhc.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3918891660659168" target="freeweibo-mirror">SPAM //@满足你的感觉:#大学城约p群#  //@小清…</a>
 </h2>
