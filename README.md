@@ -78,7 +78,7 @@
 </h2>
 <p>SPAM 信息量不小。 //@徐昕://@贾樟柯:转。//@罗昌平:“那以后，每次看到有快递给我打电话我感到紧张。我的心里有坚固的东西被击破，碎片至今没有打扫干净。”</p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3918624752372415" target="freeweibo-mirror">SPAM 开庭在即！</a>
 </h2>
@@ -90,7 +90,7 @@
 </h2>
 <p>SPAM [赞]//@澳特快: @RCFans遥控迷 @陈震同学 @韩路- @闫闯_汽车之家 @汽车之家</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3918610844010117" target="freeweibo-mirror">//@FUBO7351: //@反腐史记: [给力]//@龙…</a>
 </h2>
