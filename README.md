@@ -30,7 +30,7 @@
 </h2>
 <p>SPAM 非常执着和坚持的一位养蜂小哥，正能量，支持</p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3918802460679801" target="freeweibo-mirror">我参与了@北京人发布 发起的投票 【北京市民对于居住证积分落…</a>
 </h2>
