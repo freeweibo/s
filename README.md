@@ -60,7 +60,7 @@
 </h2>
 <p>SPAM 谁说一个人的异国留学总是充满眼泪与辛酸啊，现在让所有的眼泪辛酸都狗带去吧！<br><img src="http://ww2.sinaimg.cn/large/8eda1a63jw1eyupb8ted8j21kwcjckjm.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3918806671522630" target="freeweibo-mirror">SPAM 非常执着和坚持的一位养蜂小哥，正能量，支持</a>
 </h2>
