@@ -108,7 +108,7 @@
 </h2>
 <p>SPAM //@满足你的感觉:#大学城约p群#  //@小清新偷你家米://@你的手强壮没: //@消遣纯属娱乐://@某种口味: @天然呆的恩哈哈1<br><br>RE: http://t.cn/RUNmA3q 跟紧@啪啪一姐 天天更新号</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3918826896634217" target="freeweibo-mirror">SPAM 谁说一个人的异国留学总是充满眼泪与辛酸啊，现在让所…</a>
 </h2>
