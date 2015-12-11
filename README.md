@@ -54,7 +54,7 @@
 </h2>
 <p>一个不敢让人民评论的伪政府迟早灭亡[话筒][话筒][话筒][话筒][怒][怒][怒][吐][吐][吐]</p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3918981896971150" target="freeweibo-mirror">对江泽民的处罚不变。//@Maddy: 简称为：鸡。//@黑…</a>
 </h2>
@@ -96,7 +96,7 @@
 </h2>
 <p>SPAM [汗][汗][汗][汗][汗][汗][汗][汗][哈哈]<br><img src="http://ww1.sinaimg.cn/large/78f5e5e3gw1eyvug42q79j20gz0o7tad.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3918912351246761" target="freeweibo-mirror">何兵：浦案将撕裂亿万人对自由和法治的向往！</a>
 </h2>
