@@ -20,11 +20,23 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3919006748805865" target="freeweibo-mirror">SPAM 生活总是这样，不能叫人处处都满意。但我们还要热情地…</a>
+</h2>
+<p>SPAM 生活总是这样，不能叫人处处都满意。但我们还要热情地活下去。人活一生，值得爱的东西很多，不要因为一个不满意，就灰心。—— 路遥《平凡的世界》<br><img src="http://ww2.sinaimg.cn/large/8ed2396dgw1eyw4thhby3j20c80dhdgs.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3919003027913084" target="freeweibo-mirror">//@大树终不倒: “邓完人”</a>
 </h2>
 <p>//@大树终不倒: “邓完人”</p>
 <p>
 	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3918981896971150" target="freeweibo-mirror">对江泽民的处罚不变。//@Maddy: 简称为：鸡。//@黑…</a>
+</h2>
+<p>对江泽民的处罚不变。//@Maddy: 简称为：鸡。//@黑之契约者: 转发微博</p>
+<p>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3918958904516148" target="freeweibo-mirror">SPAM 隔壁間有很多作家喜歡的隆記菜販。。和麻油雞、咖喱等…</a>
 </h2>
@@ -125,18 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3918796274348074" target="freeweibo-mirror">【浦案初步研究结论】昨天和今天，我在图书馆，化两天时间，从法…</a>
 </h2>
 <p>【浦案初步研究结论】昨天和今天，我在图书馆，化两天时间，从法律技术角度，详细研究浦志强律师所涉两罪。初步结论:法律上，他确实无罪。详细论证文章，还要四五天才能写出。我这位朋友，平时在江湖上行走，为朋友两肋插刀。我写这篇文章，让他感觉不孤单。</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3918651524554151" target="freeweibo-mirror">SPAM  //@王小山:烤羊啊，等我通知。//@王小峰_带…</a>
-</h2>
-<p>SPAM  //@王小山:烤羊啊，等我通知。//@王小峰_带三个表: 有啥好吃的？//@王小山:来来来，都来。//@李军林导演: 我假装没听见 //@煎饼大师:凑堆儿吃[偷笑]//@周铁东本人:我听见了//@王小山:下周。//@煎饼大师: 王老师，您可是有身份的人，啥时候吃烤羊[色]//@王小山:<br><br>RE: 致敬湖南的朋友！[good]<br><img src="http://ww2.sinaimg.cn/large/006eJCSZjw1eyulr3cxluj30zk0qojwp.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3918648408107799" target="freeweibo-mirror">SPAM 烤羊啊，等我通知。//@王小峰_带三个表: 有啥好…</a>
-</h2>
-<p>SPAM 烤羊啊，等我通知。//@王小峰_带三个表: 有啥好吃的？//@王小山:来来来，都来。//@李军林导演: 我假装没听见 //@煎饼大师:凑堆儿吃[偷笑]//@周铁东本人:我听见了//@王小山:下周。//@煎饼大师: 王老师，您可是有身份的人，啥时候吃烤羊[色]//@王小山:<br><br>RE: 致敬湖南的朋友！[good]<br><img src="http://ww2.sinaimg.cn/large/006eJCSZjw1eyulr3cxluj30zk0qojwp.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
