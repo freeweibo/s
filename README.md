@@ -84,7 +84,7 @@
 </h2>
 <p>SPAM 同意，请转近平同志过目。</p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3918916495438128" target="freeweibo-mirror">SPAM [汗][汗][汗][汗][汗][汗][汗][汗][…</a>
 </h2>
