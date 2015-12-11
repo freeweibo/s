@@ -48,7 +48,7 @@
 </h2>
 <p>//@大树终不倒: “邓完人”</p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3918999794133693" target="freeweibo-mirror">一个不敢让人民评论的伪政府迟早灭亡[话筒][话筒][话筒][…</a>
 </h2>
