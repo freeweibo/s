@@ -90,7 +90,7 @@
 </h2>
 <p>SPAM 求仁得仁。<br><br>RE: 【拭目以待】<br><img src="http://ww3.sinaimg.cn/large/7440a4d9gw1eyvur97s22j20aj0qodhr.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3919245500928756" target="freeweibo-mirror">中国给非洲送去600亿美元，非洲人眼里的中国人却是这样子 h…</a>
 </h2>
