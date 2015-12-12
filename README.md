@@ -30,7 +30,7 @@
 </h2>
 <p>SPAM 看不了现场的，来段网络的[哼]<br><br>RE: 牡丹峰乐团劲舞，看完随时受不了。[爱你]  http://t.cn/R4ZcWgn</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3919353504061564" target="freeweibo-mirror">//@只谈风月猫: //@大脸撑在小胸:刚看新闻调查了，99…</a>
 </h2>
@@ -108,7 +108,7 @@
 </h2>
 <p>分裂国家的人不一定罪大恶极，残害人民的人才是真正罪大恶极。自古以来国家分裂过几百次，有的是历史的倒退、有的是进步。对历史人物评价要看他对人民做了什么，而不是对国家做了什么。</p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3919275087275256" target="freeweibo-mirror">中国人民站起来是1945年实现的。八年艰苦抗战赢得胜利，中国…</a>
 </h2>
@@ -126,7 +126,7 @@
 </h2>
 <p>SPAM 求仁得仁。<br><br>RE: 【拭目以待】<br><img src="http://ww3.sinaimg.cn/large/7440a4d9gw1eyvur97s22j20aj0qodhr.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3919245500928756" target="freeweibo-mirror">中国给非洲送去600亿美元，非洲人眼里的中国人却是这样子 h…</a>
 </h2>
