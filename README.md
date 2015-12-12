@@ -36,13 +36,13 @@
 </h2>
 <p>//@只谈风月猫: //@大脸撑在小胸:刚看新闻调查了，999急救的节目被毙了。<br><br>RE: 我已经竭尽全力，问心无愧。这一切都将成为历史，谁都逃避不了良心的审判。<br><img src="http://ww3.sinaimg.cn/large/63909ae7jw1eyx0l63gl2j20xc18gwo3.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3919353373914461" target="freeweibo-mirror">SPAM 啊！这空虚的世界，甚至产生不了一点，有趣的愚蠢。-…</a>
 </h2>
 <p>SPAM 啊！这空虚的世界，甚至产生不了一点，有趣的愚蠢。---奥涅金<br><br>RE: 我已经竭尽全力，问心无愧。这一切都将成为历史，谁都逃避不了良心的审判。<br><img src="http://ww3.sinaimg.cn/large/63909ae7jw1eyx0l63gl2j20xc18gwo3.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3919352825196113" target="freeweibo-mirror">SPAM 嗯，有感觉啊</a>
 </h2>
