@@ -30,7 +30,7 @@
 </h2>
 <p>这两真的是平分秋色。//@钟老汉: 转发微博</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3919328195395926" target="freeweibo-mirror">祸害//@曹菡艾:【中国人什么都吃 - 非洲人总会问：“听说…</a>
 </h2>
@@ -126,7 +126,7 @@
 </h2>
 <p>//@我爱我家鑫蕊://@何光伟:转发微博<br><br>RE: 旁听申请。<br><img src="http://ww1.sinaimg.cn/large/867a7319jw1eywjac57eyj20hs2bgh1l.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3919198667913419" target="freeweibo-mirror">往深了说，一个敢把拖拉机开到大街上的专政政权，还有什么做不出…</a>
 </h2>
