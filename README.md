@@ -30,7 +30,7 @@
 </h2>
 <p>SPAM 求仁得仁。<br><br>RE: 【拭目以待】<br><img src="http://ww3.sinaimg.cn/large/7440a4d9gw1eyvur97s22j20aj0qodhr.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3919226412206836" target="freeweibo-mirror">SPAM 买买买！~！~~~！~~~~！//@猫少zoe: …</a>
 </h2>
@@ -66,7 +66,7 @@
 </h2>
 <p>往深了说，一个敢把拖拉机开到大街上的专政政权，还有什么做不出来的？判个区区老浦，或者又放了，多大个事？想像中的法治进程竟然会因这样一个审判就中断，甚至“倒退30年”，那只能说明，第一，这个法治进程其实并不存在，第二，说这话的人该去检查一下精神状况了。</p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3919197178621206" target="freeweibo-mirror">借助雨农的视频，露一下现实的股侠吧，本想低调的。[害羞]</a>
 </h2>
