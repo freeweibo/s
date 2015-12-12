@@ -42,7 +42,7 @@
 </h2>
 <p>SPAM 生活总是这样，不能叫人处处都满意。但我们还要热情地活下去。人活一生，值得爱的东西很多，不要因为一个不满意，就灰心。—— 路遥《平凡的世界》<br><img src="http://ww2.sinaimg.cn/large/8ed2396dgw1eyw4thhby3j20c80dhdgs.jpg"></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3919004135881866" target="freeweibo-mirror">一白衣男子对一女士头部连砍数刀后逃离现场，手段惨不忍睹！#中…</a>
 </h2>
