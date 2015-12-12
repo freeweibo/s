@@ -20,6 +20,24 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3919331056177614" target="freeweibo-mirror">这两真的是平分秋色。//@钟老汉: 转发微博</a>
+</h2>
+<p>这两真的是平分秋色。//@钟老汉: 转发微博</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3919328195395926" target="freeweibo-mirror">祸害//@曹菡艾:【中国人什么都吃 - 非洲人总会问：“听说…</a>
+</h2>
+<p>祸害//@曹菡艾:【中国人什么都吃 - 非洲人总会问：“听说你们中国人吃狗、吃猴子？”在非洲某国，一家中国建筑公司偷吃了一只狗，当地黑工知道后集体罢工，表示抗议。还有一家建筑公司，刚来时附近水库里好多野鸭子，这家公司把这个水库当作养鸭场，天天来抓鸭子吃，没几个月，鸭子就被吃光了。】[衰]<br><br>RE: 中国给非洲送去600亿美元，非洲人眼里的中国人却是这样子 http://t.cn/R4ZiZ5a</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3919326279080632" target="freeweibo-mirror">//@古丰微博://@浪花朵朵的马甲:赞同</a>
+</h2>
+<p>//@古丰微博://@浪花朵朵的马甲:赞同<br><br>RE: 分裂国家的人不一定罪大恶极，残害人民的人才是真正罪大恶极。自古以来国家分裂过几百次，有的是历史的倒退、有的是进步。对历史人物评价要看他对人民做了什么，而不是对国家做了什么。</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3919262182039684" target="freeweibo-mirror">SPAM ， //@上海鱼鱼1://@澜潮哥: //@冷俊1…</a>
 </h2>
 <p>SPAM ， //@上海鱼鱼1://@澜潮哥: //@冷俊123: //@上海翁广宗://@宪政是敏感词: //@徐昕://@谭人玮: 转发<br><br>RE: 【拭目以待】<br><img src="http://ww3.sinaimg.cn/large/7440a4d9gw1eyvur97s22j20aj0qodhr.jpg"></p>
@@ -42,7 +60,7 @@
 </h2>
 <p>重情重义的重庆人。 //@法治路由器://@我爱我家鑫蕊://@何光伟:转发微博<br><br>RE: 旁听申请。<br><img src="http://ww1.sinaimg.cn/large/867a7319jw1eywjac57eyj20hs2bgh1l.jpg"></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3919212168358020" target="freeweibo-mirror">//@活捉死老鼠:依恶法治国</a>
 </h2>
@@ -119,24 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3919003027913084" target="freeweibo-mirror">//@大树终不倒: “邓完人”</a>
 </h2>
 <p>//@大树终不倒: “邓完人”</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3918999794133693" target="freeweibo-mirror">一个不敢让人民评论的伪政府迟早灭亡[话筒][话筒][话筒][…</a>
-</h2>
-<p>一个不敢让人民评论的伪政府迟早灭亡[话筒][话筒][话筒][话筒][怒][怒][怒][吐][吐][吐]</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3918981896971150" target="freeweibo-mirror">对江泽民的处罚不变。//@Maddy: 简称为：鸡。//@黑…</a>
-</h2>
-<p>对江泽民的处罚不变。//@Maddy: 简称为：鸡。//@黑之契约者: 转发微博</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3918977526626904" target="freeweibo-mirror">#郑州身边事# 【郑州雾霾锁城 家长组队护送学生上学】近日，…</a>
-</h2>
-<p>#郑州身边事# 【郑州雾霾锁城 家长组队护送学生上学】近日，郑州再现严重雾霾污染，早晨街头能见度仅20米远，交通高峰期的路上给上学的孩子制造着危险。河南省郑州市秦岭路一所小学门外，许多家长自告奋勇在学校附近组成“浓雾护送队”，保护上学途中的孩子。看到这个消息，你的心情是____?<br><img src="http://ww1.sinaimg.cn/large/9665d551jw1eyw1gfm29ej20xc0ml0v9.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
