@@ -72,7 +72,7 @@
 </h2>
 <p>中国人民站起来是1945年实现的。八年艰苦抗战赢得胜利，中国成为联合国的发起国，安理会的常任理事国，收复了东三省和台湾，取消了外国在华租界。毛泽东1949年站在天安门上只是打赢了内战，引进了马列主义，别的什么也没改变。</p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3919262182039684" target="freeweibo-mirror">SPAM ， //@上海鱼鱼1://@澜潮哥: //@冷俊1…</a>
 </h2>
@@ -90,7 +90,7 @@
 </h2>
 <p>中国给非洲送去600亿美元，非洲人眼里的中国人却是这样子 http://t.cn/R4ZiZ5a</p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3919226412206836" target="freeweibo-mirror">SPAM 买买买！~！~~~！~~~~！//@猫少zoe: …</a>
 </h2>
@@ -102,7 +102,7 @@
 </h2>
 <p>重情重义的重庆人。 //@法治路由器://@我爱我家鑫蕊://@何光伟:转发微博<br><br>RE: 旁听申请。<br><img src="http://ww1.sinaimg.cn/large/867a7319jw1eywjac57eyj20hs2bgh1l.jpg"></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3919212168358020" target="freeweibo-mirror">//@活捉死老鼠:依恶法治国</a>
 </h2>
