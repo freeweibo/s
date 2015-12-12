@@ -24,7 +24,7 @@
 </h2>
 <p>借助雨农的视频，露一下现实的股侠吧，本想低调的。[害羞]</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3919106148976651" target="freeweibo-mirror">冯仑：徐明的羞处。有一位民营企业大佬曾经说过：在官的眼里，我…</a>
 </h2>
