@@ -42,7 +42,7 @@
 </h2>
 <p>重情重义的重庆人。 //@法治路由器://@我爱我家鑫蕊://@何光伟:转发微博<br><br>RE: 旁听申请。<br><img src="http://ww1.sinaimg.cn/large/867a7319jw1eywjac57eyj20hs2bgh1l.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3919212168358020" target="freeweibo-mirror">//@活捉死老鼠:依恶法治国</a>
 </h2>
