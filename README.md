@@ -32,6 +32,12 @@
 <p>
 	<small> ============== 10小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3919374102532434" target="freeweibo-mirror">来时满面春风，走时神情凝重！朝鲜牡丹峰乐团的演出忽然取消，官…</a>
+</h2>
+<p>来时满面春风，走时神情凝重！朝鲜牡丹峰乐团的演出忽然取消，官媒说因工作层面沟通衔接原因。我导演的话剧曾在国家大剧院首演，也曾在平壤欣赏过朝鲜国家歌剧院的演出，两边的专业水平都堪称一流，不应出工作问题。但我相信，不管发生什么，中朝人民的友谊就像阿里郎情歌代代传唱，鸭绿江水永不干涸！<br><img src="http://ww4.sinaimg.cn/large/7394ef87jw1eyxayz7r4sj20go0b4tay.jpg"></p>
+<p>
+	<small> ============== 10小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3919357824016762" target="freeweibo-mirror">SPAM 看不了现场的，来段网络的[哼]</a>
 </h2>
 <p>SPAM 看不了现场的，来段网络的[哼]<br><br>RE: 牡丹峰乐团劲舞，看完随时受不了。[爱你]  http://t.cn/R4ZcWgn</p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3919259228884791" target="freeweibo-mirror">SPAM 求仁得仁。</a>
 </h2>
 <p>SPAM 求仁得仁。<br><br>RE: 【拭目以待】<br><img src="http://ww3.sinaimg.cn/large/7440a4d9gw1eyvur97s22j20aj0qodhr.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3919245500928756" target="freeweibo-mirror">中国给非洲送去600亿美元，非洲人眼里的中国人却是这样子 h…</a>
-</h2>
-<p>中国给非洲送去600亿美元，非洲人眼里的中国人却是这样子 http://t.cn/R4ZiZ5a</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
