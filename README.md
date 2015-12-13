@@ -36,7 +36,7 @@
 </h2>
 <p>SPAM 浦是我的朋友，明天开庭，必须说几句<br><img src="http://ww1.sinaimg.cn/large/656952ecgw1eyyb0yhb2rj20hm14k0wi.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3919686616167601" target="freeweibo-mirror">转 //@何辉新:培根的这段话，跟某次习主席讲话时的一段意思…</a>
 </h2>
