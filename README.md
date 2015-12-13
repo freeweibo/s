@@ -24,7 +24,7 @@
 </h2>
 <p>新华社公布朝鲜牡丹峰乐团演出取消原因 http://t.cn/R4ZHUNU （分享自@凤凰新闻客户端）这个东西很难相处。</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3919504981328085" target="freeweibo-mirror">在这些女孩身上寄托太多自己的愿望，没有必要。不过就是漂亮女孩…</a>
 </h2>
@@ -48,7 +48,7 @@
 </h2>
 <p>来时满面春风，走时神情凝重！朝鲜牡丹峰乐团的演出忽然取消，官媒说因工作层面沟通衔接原因。我导演的话剧曾在国家大剧院首演，也曾在平壤欣赏过朝鲜国家歌剧院的演出，两边的专业水平都堪称一流，不应出工作问题。但我相信，不管发生什么，中朝人民的友谊就像阿里郎情歌代代传唱，鸭绿江水永不干涸！<br><img src="http://ww4.sinaimg.cn/large/7394ef87jw1eyxayz7r4sj20go0b4tay.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3919357824016762" target="freeweibo-mirror">SPAM 看不了现场的，来段网络的[哼]</a>
 </h2>
