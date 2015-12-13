@@ -42,7 +42,7 @@
 </h2>
 <p>SPAM 看不了现场的，来段网络的[哼]<br><br>RE: 牡丹峰乐团劲舞，看完随时受不了。[爱你]  http://t.cn/R4ZcWgn</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3919353504061564" target="freeweibo-mirror">//@只谈风月猫: //@大脸撑在小胸:刚看新闻调查了，99…</a>
 </h2>
