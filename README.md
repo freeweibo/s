@@ -30,7 +30,7 @@
 </h2>
 <p>SPAM [哈哈][哈哈][哈哈][哈哈]//@景山公园51区:[蜡烛]<br><br>RE: 日本历史课本已经帮定好了<br><img src="http://ww2.sinaimg.cn/large/9da4d829jw1eyy6719u4ej20g50gygnu.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3919690373547946" target="freeweibo-mirror">//@陈光武律师: //@程福如律师: 转发微博</a>
 </h2>
@@ -138,7 +138,7 @@
 </h2>
 <p>依宪治国了，宪法第35条规定了言论自由<br><br>RE: 为哈儿说几句，既因私人交情，更因公民责任<br><img src="http://ww2.sinaimg.cn/large/6a3d7f8cjw1eyy3ea4503j20hm14kdjn.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p>
 <table>
     <tr>
