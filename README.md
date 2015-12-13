@@ -26,6 +26,18 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3919504981328085" target="freeweibo-mirror">在这些女孩身上寄托太多自己的愿望，没有必要。不过就是漂亮女孩…</a>
+</h2>
+<p>在这些女孩身上寄托太多自己的愿望，没有必要。不过就是漂亮女孩的演出而已。 //@不沉默的大多数:人民真心喜欢轻松的文艺和自然的美女，对玩心机的政治真心不待见，都变成历史剧那样，谁活得了？<br><br>RE: 来时满面春风，走时神情凝重！朝鲜牡丹峰乐团的演出忽然取消，官媒说因工作层面沟通衔接原因。我导演的话剧曾在国家大剧院首演，也曾在平壤欣赏过朝鲜国家歌剧院的演出，两边的专业水平都堪称一流，不应出工作问题。但我相信，不管发生什么，中朝人民的友谊就像阿里郎情歌代代传唱，鸭绿江水永不干涸！<br><img src="http://ww4.sinaimg.cn/large/7394ef87jw1eyxayz7r4sj20go0b4tay.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3919473893297564" target="freeweibo-mirror">[doge] //@来去之间:[拜拜]//@老沉: //@林…</a>
+</h2>
+<p>[doge] //@来去之间:[拜拜]//@老沉: //@林建楊:太突然，异常啊…//@白城以北: 官方正式通报#朝鲜乐团蛮洋气#<br><br>RE: 亲爱的观众朋友：原定举行的朝鲜功勋国家合唱团和牡丹峰乐团演出因故取消。由此给您带来不便，我们深表歉意，感谢您对国家大剧院的理解和支持。http://t.cn/R4ZCE18<br><img src="http://ww4.sinaimg.cn/large/65d3a35fjw1eyx2jv1czgj20ku0a03zn.jpg"></p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3919374551224906" target="freeweibo-mirror">999[闭嘴]封杀，嗯，记住，上了999的车，死亡率比120…</a>
 </h2>
 <p>999[闭嘴]封杀，嗯，记住，上了999的车，死亡率比120高四倍哦//@泽之老万:[怒] //@詹涓june://@大脸撑在小胸: 刚看新闻调查了，999急救的节目被毙了。<br><br>RE: 我已经竭尽全力，问心无愧。这一切都将成为历史，谁都逃避不了良心的审判。<br><img src="http://ww3.sinaimg.cn/large/63909ae7jw1eyx0l63gl2j20xc18gwo3.jpg"></p>
@@ -125,18 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3919275087275256" target="freeweibo-mirror">中国人民站起来是1945年实现的。八年艰苦抗战赢得胜利，中国…</a>
 </h2>
 <p>中国人民站起来是1945年实现的。八年艰苦抗战赢得胜利，中国成为联合国的发起国，安理会的常任理事国，收复了东三省和台湾，取消了外国在华租界。毛泽东1949年站在天安门上只是打赢了内战，引进了马列主义，别的什么也没改变。</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3919262182039684" target="freeweibo-mirror">SPAM ， //@上海鱼鱼1://@澜潮哥: //@冷俊1…</a>
-</h2>
-<p>SPAM ， //@上海鱼鱼1://@澜潮哥: //@冷俊123: //@上海翁广宗://@宪政是敏感词: //@徐昕://@谭人玮: 转发<br><br>RE: 【拭目以待】<br><img src="http://ww3.sinaimg.cn/large/7440a4d9gw1eyvur97s22j20aj0qodhr.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3919259228884791" target="freeweibo-mirror">SPAM 求仁得仁。</a>
-</h2>
-<p>SPAM 求仁得仁。<br><br>RE: 【拭目以待】<br><img src="http://ww3.sinaimg.cn/large/7440a4d9gw1eyvur97s22j20aj0qodhr.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
