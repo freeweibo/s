@@ -30,7 +30,7 @@
 </h2>
 <p>SPAM 浦是我的朋友，明天开庭，必须说几句<br><img src="http://ww1.sinaimg.cn/large/656952ecgw1eyyb0yhb2rj20hm14k0wi.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3919686616167601" target="freeweibo-mirror">转 //@何辉新:培根的这段话，跟某次习主席讲话时的一段意思…</a>
 </h2>
@@ -138,7 +138,7 @@
 </h2>
 <p>这是一个艰难的问题。中国有几千年的流氓政治传统，其手段已经博大精深鬼神难测，凭几个鸡巴毛愤青有个屌用。只能象戈尔巴乔夫学习，加入它们，迎合它们，然后干掉它们。[酷]<br><br>RE: 【一代人】前排中的兰衣眼镜，隋牧青律师。后排大个，老浦律师。如今二人都身陷囹圄，见证了这个时代。<br><img src="http://ww1.sinaimg.cn/large/0068SFEdgw1eyxzhso50xj30m80gogn1.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p>
 <table>
     <tr>
