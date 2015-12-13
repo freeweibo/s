@@ -90,7 +90,7 @@
 </h2>
 <p>【一代人】前排中的兰衣眼镜，隋牧青律师。后排大个，老浦律师。如今二人都身陷囹圄，见证了这个时代。<br><img src="http://ww1.sinaimg.cn/large/0068SFEdgw1eyxzhso50xj30m80gogn1.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3919575831554504" target="freeweibo-mirror">这样的煽动民族歧视的账号，应该被销号。言论自由，不是无禁区的…</a>
 </h2>
