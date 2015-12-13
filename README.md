@@ -48,13 +48,13 @@
 </h2>
 <p>依宪治国了，宪法第35条规定了言论自由<br><br>RE: 为哈儿说几句，既因私人交情，更因公民责任<br><img src="http://ww2.sinaimg.cn/large/6a3d7f8cjw1eyy3ea4503j20hm14kdjn.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3919621859673805" target="freeweibo-mirror">为哈儿说几句，既因私人交情，更因公民责任</a>
 </h2>
 <p>为哈儿说几句，既因私人交情，更因公民责任<br><img src="http://ww2.sinaimg.cn/large/6a3d7f8cjw1eyy3ea4503j20hm14kdjn.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3919614973260389" target="freeweibo-mirror">其实已经有人在这样做了。因此，大变革的时代即将到来。//@风…</a>
 </h2>
