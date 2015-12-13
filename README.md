@@ -60,7 +60,7 @@
 </h2>
 <p>其实已经有人在这样做了。因此，大变革的时代即将到来。//@风车战士: 这是一个艰难的问题。中国有几千年的流氓政治传统，其手段已经博大精深鬼神难测，凭几个鸡巴毛愤青有个屌用。只能象戈尔巴乔夫学习，加入它们，迎合它们，然后干掉它们。[酷]<br><br>RE: 【一代人】前排中的兰衣眼镜，隋牧青律师。后排大个，老浦律师。如今二人都身陷囹圄，见证了这个时代。<br><img src="http://ww1.sinaimg.cn/large/0068SFEdgw1eyxzhso50xj30m80gogn1.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3919612615505249" target="freeweibo-mirror">这是一个艰难的问题。中国有几千年的流氓政治传统，其手段已经博…</a>
 </h2>
@@ -108,13 +108,13 @@
 </h2>
 <p>朱维群和阿来是我们党对藏工作最杰出的领导者和灵魂人物，消灭落后的藏族文化，消灭落后的藏文藏语、消灭落后的藏传佛教，让无产阶级革命的光芒照耀在青藏高原上，让青藏高原上的人民享受到共产主义社会物质极大丰富，经济极度繁荣，精神极度文明的现代富裕生活。<br><img src="http://ww1.sinaimg.cn/large/0068m1Tljw1eyxvojz6skj308m06474d.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3919509532058772" target="freeweibo-mirror">新华社公布朝鲜牡丹峰乐团演出取消原因 http://t.cn…</a>
 </h2>
 <p>新华社公布朝鲜牡丹峰乐团演出取消原因 http://t.cn/R4ZHUNU （分享自@凤凰新闻客户端）这个东西很难相处。</p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3919504981328085" target="freeweibo-mirror">在这些女孩身上寄托太多自己的愿望，没有必要。不过就是漂亮女孩…</a>
 </h2>
