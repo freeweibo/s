@@ -60,7 +60,7 @@
 </h2>
 <p>我已经竭尽全力，问心无愧。这一切都将成为历史，谁都逃避不了良心的审判。<br><img src="http://ww3.sinaimg.cn/large/63909ae7jw1eyx0l63gl2j20xc18gwo3.jpg"></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3919331056177614" target="freeweibo-mirror">这两真的是平分秋色。//@钟老汉: 转发微博</a>
 </h2>
