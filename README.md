@@ -38,9 +38,27 @@
 <p>
 	<small> ============== 1小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3919621859673805" target="freeweibo-mirror">为哈儿说几句，既因私人交情，更因公民责任</a>
+</h2>
+<p>为哈儿说几句，既因私人交情，更因公民责任<br><img src="http://ww2.sinaimg.cn/large/6a3d7f8cjw1eyy3ea4503j20hm14kdjn.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3919614973260389" target="freeweibo-mirror">其实已经有人在这样做了。因此，大变革的时代即将到来。//@风…</a>
 </h2>
 <p>其实已经有人在这样做了。因此，大变革的时代即将到来。//@风车战士: 这是一个艰难的问题。中国有几千年的流氓政治传统，其手段已经博大精深鬼神难测，凭几个鸡巴毛愤青有个屌用。只能象戈尔巴乔夫学习，加入它们，迎合它们，然后干掉它们。[酷]<br><br>RE: 【一代人】前排中的兰衣眼镜，隋牧青律师。后排大个，老浦律师。如今二人都身陷囹圄，见证了这个时代。<br><img src="http://ww1.sinaimg.cn/large/0068SFEdgw1eyxzhso50xj30m80gogn1.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3919612615505249" target="freeweibo-mirror">这是一个艰难的问题。中国有几千年的流氓政治传统，其手段已经博…</a>
+</h2>
+<p>这是一个艰难的问题。中国有几千年的流氓政治传统，其手段已经博大精深鬼神难测，凭几个鸡巴毛愤青有个屌用。只能象戈尔巴乔夫学习，加入它们，迎合它们，然后干掉它们。[酷]<br><br>RE: 【一代人】前排中的兰衣眼镜，隋牧青律师。后排大个，老浦律师。如今二人都身陷囹圄，见证了这个时代。<br><img src="http://ww1.sinaimg.cn/large/0068SFEdgw1eyxzhso50xj30m80gogn1.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3919612485392692" target="freeweibo-mirror">SPAM 法官、检察官或许会感到无奈，但无论你有多无奈，公众…</a>
+</h2>
+<p>SPAM 法官、检察官或许会感到无奈，但无论你有多无奈，公众都只知道你在作无稽之诉，枉法之判。追逐正义的人们，看到的敌人首先是你们！ http://t.cn/R4wLbXs</p>
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
@@ -48,7 +66,7 @@
 </h2>
 <p>【一代人】前排中的兰衣眼镜，隋牧青律师。后排大个，老浦律师。如今二人都身陷囹圄，见证了这个时代。<br><img src="http://ww1.sinaimg.cn/large/0068SFEdgw1eyxzhso50xj30m80gogn1.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3919575831554504" target="freeweibo-mirror">这样的煽动民族歧视的账号，应该被销号。言论自由，不是无禁区的…</a>
 </h2>
@@ -119,24 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3919352825196113" target="freeweibo-mirror">SPAM 嗯，有感觉啊</a>
 </h2>
 <p>SPAM 嗯，有感觉啊<br><br>RE: 牡丹峰乐团劲舞，看完随时受不了。[爱你]  http://t.cn/R4ZcWgn</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3919343891004132" target="freeweibo-mirror">//@大脸撑在小胸:刚看新闻调查了，999急救的节目被毙了。</a>
-</h2>
-<p>//@大脸撑在小胸:刚看新闻调查了，999急救的节目被毙了。<br><br>RE: 我已经竭尽全力，问心无愧。这一切都将成为历史，谁都逃避不了良心的审判。<br><img src="http://ww3.sinaimg.cn/large/63909ae7jw1eyx0l63gl2j20xc18gwo3.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3919339545617407" target="freeweibo-mirror">我已经竭尽全力，问心无愧。这一切都将成为历史，谁都逃避不了良…</a>
-</h2>
-<p>我已经竭尽全力，问心无愧。这一切都将成为历史，谁都逃避不了良心的审判。<br><img src="http://ww3.sinaimg.cn/large/63909ae7jw1eyx0l63gl2j20xc18gwo3.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3919331056177614" target="freeweibo-mirror">这两真的是平分秋色。//@钟老汉: 转发微博</a>
-</h2>
-<p>这两真的是平分秋色。//@钟老汉: 转发微博</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
