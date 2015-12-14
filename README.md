@@ -60,7 +60,7 @@
 </h2>
 <p>[赞]//@周保松: //@谓贤:威武不屈，富贵不淫，贫贱不移，此之谓大律师也。<br><br>RE: @石讷shine：你像公牛一样健硕，如婴孩一般纯真。你有火的热烈，风的酣畅，冰的劲削。当法的头颅低垂，你将衰弱的正义扶起，低沉的吼声撞击死去的黎明。呵，汉子，即便弱水倒流，我也不会失去信心，因为，我的心依然雀跃，并且坚信有你！<br><img src="http://ww3.sinaimg.cn/large/71e168dajw1eyyzfffxmtj20c806wmy2.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3919905973696696" target="freeweibo-mirror">[good]//@律师文摘:民意 • 心声。 //@红岛渔民…</a>
 </h2>
@@ -110,6 +110,12 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3919901938869766" target="freeweibo-mirror">二中院。。便衣更瘋狂</a>
+</h2>
+<p>二中院。。便衣更瘋狂<br><img src="http://ww1.sinaimg.cn/large/006eTai4gw1eyyzm7tmxlj30nt0hsq48.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3919901909485608" target="freeweibo-mirror">//@章诒和:文革中我在看守所看押1年半，同牢的葡萄牙女间谍…</a>
 </h2>
 <p>//@章诒和:文革中我在看守所看押1年半，同牢的葡萄牙女间谍看押9年多。司空见惯了！//@任志强: 确实是个问题！我无罪被关押一年多。不改这种法律，下一个被关的可能就是你！ //@刘军宁:[钟]“不改变这种法律规定，中国每一个公民的人身权利都可以随时被侵犯。”<br><br>RE: 网上一片关注今天北京公开审理的浦律师案。除了案件本身值得关注，更重要的是中国《刑事诉讼法》的一个大漏洞：审前长期羁押制度。任何嫌疑和轻微违法，侦查机关不经审判，可以先关上一两年再说。不改变这种法律规定，中国每一个公民的人身权利都可以随时被侵犯。<br><img src="http://ww1.sinaimg.cn/large/6b804b51jw1eyyv58g4ydj218g0xc7hd.jpg"></p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3919897505057889" target="freeweibo-mirror">七条微博……这是不是文革之后第一次门槛这么低的以言治罪？其实…</a>
 </h2>
 <p>七条微博……这是不是文革之后第一次门槛这么低的以言治罪？其实这么做，反应出来更大的问题其实不是邪恶，而是智商和缺乏廉耻。</p>
-<p>
-	<small> ============== 2小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3919896637006809" target="freeweibo-mirror">好一幅“依法治国”的场景！//@中殷: 转发微博</a>
-</h2>
-<p>好一幅“依法治国”的场景！//@中殷: 转发微博<br><br>RE: 二中院。孙东生被便衣推倒。<br><img src="http://ww4.sinaimg.cn/large/006eTai4gw1eyyxdhlnwaj30zk0k0q8r.jpg"></p>
 <p>
 	<small> ============== 2小时前</small>
 </p>
