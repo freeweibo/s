@@ -36,7 +36,7 @@
 </h2>
 <p>//@广州湾在线://@冷眼花开:转发微博<br><br>RE: 超级专案组干了几百天，翻了个底朝天，就是几条微博，没有其他事，人很干净。我认为还是不判为好，判了不得民心，搞不好还要得鸽子奖，把人推到反面，制造敌人，给西方以题材。这不符党的统战政策，不符合党的利益。<br><img src="http://ww3.sinaimg.cn/large/5f1a8b1fgw1eyz3bflkigj20hs0n140q.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3919965533349727" target="freeweibo-mirror">//@李以亮://@艾先: //@随处春山: //@亦乎2哥…</a>
 </h2>
@@ -53,6 +53,12 @@
 	<a href="https://freeweibo.com/weibo/3919962349860049" target="freeweibo-mirror">SPAM 拭目以待</a>
 </h2>
 <p>SPAM 拭目以待<br><br>RE: 今天没有宣判<br><img src="http://ww4.sinaimg.cn/large/56067e2ejw1eyz6haz0zdj20c80lqmzp.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3919961674554536" target="freeweibo-mirror">今天没有宣判</a>
+</h2>
+<p>今天没有宣判<br><img src="http://ww4.sinaimg.cn/large/56067e2ejw1eyz6haz0zdj20c80lqmzp.jpg"></p>
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
@@ -90,25 +96,25 @@
 </h2>
 <p>平安！ //@陈业文新大都:正其谊而不谋其利，明其道而不计其攻。义人们的苦难，乃是通往平安的道路。佩服斯律的文笔。[赞] //@陈光武律师: //@崔小平律师: //@法律案例-文史典故:转发微博<br><br>RE: 斯伟江：苦难之路通向平安！<br><img src="http://ww1.sinaimg.cn/large/857a392dgw1eyz3vcir4mj20hs5iu4np.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3919951121765644" target="freeweibo-mirror">SPAM 谁?//@笨大树的世界:[good]//@王周生:…</a>
 </h2>
 <p>SPAM 谁?//@笨大树的世界:[good]//@王周生:没有认罪！<br><br>RE: 【现状】精神状态很好，身体状态也不错，瘦了很多，头发花白。思维敏捷，语言锋利，跟以前一样。最后陈述不长，没有认罪。择期宣判。</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3919950865347174" target="freeweibo-mirror">正其谊而不谋其利，明其道而不计其攻。义人们的苦难，乃是通往平…</a>
 </h2>
 <p>正其谊而不谋其利，明其道而不计其攻。义人们的苦难，乃是通往平安的道路。佩服斯律的文笔。[赞] //@陈光武律师: //@崔小平律师: //@法律案例-文史典故:转发微博<br><br>RE: 斯伟江：苦难之路通向平安！<br><img src="http://ww1.sinaimg.cn/large/857a392dgw1eyz3vcir4mj20hs5iu4np.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3919950777119279" target="freeweibo-mirror">SPAM //@读好WB: 转发微博</a>
 </h2>
 <p>SPAM //@读好WB: 转发微博<br><br>RE: 【现状】精神状态很好，身体状态也不错，瘦了很多，头发花白。思维敏捷，语言锋利，跟以前一样。最后陈述不长，没有认罪。择期宣判。</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3919948839631295" target="freeweibo-mirror">SPAM  //@随州小民:上班时间不能带手机，吃饭时间专门…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3919947358792342" target="freeweibo-mirror">//@崔小平律师: //@法律案例-文史典故:转发微博</a>
 </h2>
 <p>//@崔小平律师: //@法律案例-文史典故:转发微博<br><br>RE: 斯伟江：苦难之路通向平安！<br><img src="http://ww1.sinaimg.cn/large/857a392dgw1eyz3vcir4mj20hs5iu4np.jpg"></p>
-<p>
-	<small> ============== 3小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3919946733673855" target="freeweibo-mirror">//@水2度:转发微博</a>
-</h2>
-<p>//@水2度:转发微博<br><br>RE: 全文<br><img src="http://ww2.sinaimg.cn/large/006gDxu8jw1eyz4oopdxyj30hs6d8b29.jpg"></p>
 <p>
 	<small> ============== 3小时前</small>
 </p>
