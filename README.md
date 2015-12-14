@@ -84,7 +84,7 @@
 </h2>
 <p>SPAM //@南京东方之石://@灰色的伞://@宽客老魏:千万别心肌梗塞。 //@郑维:迟早得招，不如趁早</p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3919723525760210" target="freeweibo-mirror">//@徐昕://@中国安帮网总编王杰: //@美石使者://…</a>
 </h2>
@@ -126,7 +126,7 @@
 </h2>
 <p>转 //@何辉新:培根的这段话，跟某次习主席讲话时的一段意思差不多。</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3919683981669172" target="freeweibo-mirror">//@法庭观察者:转发微博</a>
 </h2>
