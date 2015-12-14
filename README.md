@@ -48,7 +48,7 @@
 </h2>
 <p>SPAM 转铁木：毒氣瀰漫，防毒面具，人群擁擠，神色凝重，話筒相機，枯木蕭瑟，警察老外。末法時代的素描。<br><img src="http://ww3.sinaimg.cn/large/537f4ef3gw1eyz0lq3flcj20zk0jzadj.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3919908356341453" target="freeweibo-mirror">//@周保松: //@谓贤:威武不屈，富贵不淫，贫贱不移，此…</a>
 </h2>
