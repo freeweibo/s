@@ -132,7 +132,7 @@
 </h2>
 <p>//@法庭观察者:转发微博</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3919683705545232" target="freeweibo-mirror">//@曾颖眼中的世界:转发微博</a>
 </h2>
