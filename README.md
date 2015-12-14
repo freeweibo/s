@@ -66,7 +66,7 @@
 </h2>
 <p>SPAM  //@袁莉wsj:龙应台说<br><br>RE: 分享图片<br><img src="http://ww1.sinaimg.cn/large/76f5824fjw1eyyrn8s89gj20jz0zkwjc.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3919852089408416" target="freeweibo-mirror">SPAM 宁鸣而死，不默而生，发！</a>
 </h2>
