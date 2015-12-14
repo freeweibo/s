@@ -102,7 +102,7 @@
 </h2>
 <p>因为大家都是居民不是公民！ //@于建嵘:为啥？很明确，因为我国宪法规定言论自由是公民的基本权利。<br><br>RE: 不能评论、不能转发。为啥？@于建嵘 @章文的文章 @老--靠<br><img src="http://ww2.sinaimg.cn/large/ad23714bgw1eyz6tbje56j20f00qodji.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3920059477114813" target="freeweibo-mirror">【勇者斗恶龙】</a>
 </h2>
@@ -132,7 +132,7 @@
 </h2>
 <p>//@记者钱莽墩: //@金陵酒徒仓氏:转发微博<br><br>RE: 浙江乌镇今天进驻军队，外加特警等警种一共在乌镇的维稳人员上难以计数，整个乌镇的居民才1万，坦克都已经进入乌镇了！一个互联网大会搞成了这样，够奇葩的！<br><img src="http://ww3.sinaimg.cn/large/45936b73gw1eyzbeqld64j20b6061dg7.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3920034554262451" target="freeweibo-mirror">//@戴刚米: //@通城风雨: //@苏州常熟徐文石: /…</a>
 </h2>
