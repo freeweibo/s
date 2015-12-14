@@ -48,7 +48,7 @@
 </h2>
 <p>//@2可器: //@徐文致://@王藝彬時評: //@咪润:[围观][围观]//@是我的永远是我的777: //@咪润:宪法只是针对百姓！//@远离55:看看惡政是如何法治的。//@宋朝诗人黄庭坚后人黄美娟: 转发微博<br><br>RE: 舉世矚目！<br><img src="http://ww1.sinaimg.cn/large/006gDkPugw1eyyznw0sm7j30fo0k3whx.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3920087846996645" target="freeweibo-mirror">这里是乌镇。</a>
 </h2>
@@ -132,7 +132,7 @@
 </h2>
 <p>五毛们也太不敬业了，带着序号就发出来了。建议有关部门扣发这个月全月工资！<br><img src="http://ww2.sinaimg.cn/large/7dfed0bcgw1eyzfk9d3a3j20k00zkn07.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3920037091710252" target="freeweibo-mirror">//@记者钱莽墩: //@金陵酒徒仓氏:转发微博</a>
 </h2>
