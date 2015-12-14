@@ -42,7 +42,7 @@
 </h2>
 <p>//@李以亮://@艾先: //@随处春山: //@亦乎2哥: //@笑逐顏開: //@网忆天涯://@wangyuli51073: [good][good][good]//@lubianguanfeng://@湘水草根: //@邢树宏律师://@郑筠律师: //@何俊明律师:转发微博<br><br>RE: 【致敬】一位年近九十高龄（1927年11月生）的张思之律师今天出庭为浦辩护，依法履行辩护人职责，真的令人感动。向张思之律师致敬！<br><img src="http://ww2.sinaimg.cn/large/a189a05cgw1eyyxiztymdj20qo0zk7a9.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3919962743311722" target="freeweibo-mirror">致敬！ //@崔小平律师://@Lawyer-Tianyua…</a>
 </h2>
