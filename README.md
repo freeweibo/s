@@ -114,7 +114,7 @@
 </h2>
 <p>@石讷shine：你像公牛一样健硕，如婴孩一般纯真。你有火的热烈，风的酣畅，冰的劲削。当法的头颅低垂，你将衰弱的正义扶起，低沉的吼声撞击死去的黎明。呵，汉子，即便弱水倒流，我也不会失去信心，因为，我的心依然雀跃，并且坚信有你！<br><img src="http://ww3.sinaimg.cn/large/71e168dajw1eyyzfffxmtj20c806wmy2.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3919902672451222" target="freeweibo-mirror">希望不是政治判案，检控也能禁得起历史拷问，别两三年后就全都被…</a>
 </h2>
