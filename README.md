@@ -54,7 +54,7 @@
 </h2>
 <p>SPAM  //@随州小民:上班时间不能带手机，吃饭时间专门跑到宿舍关注这位英雄的事儿！<br><br>RE: 朋友们请记住这一天。法庭上审理的是时代的良心。<br><img src="http://ww3.sinaimg.cn/large/6362d8eagw1eyyx2m73xij20k00zkgqq.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3919946733673855" target="freeweibo-mirror">//@水2度:转发微博</a>
 </h2>
@@ -90,7 +90,7 @@
 </h2>
 <p>//@胡淑芬:好细节。//@杨晓春: 转发微博</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3919932875866265" target="freeweibo-mirror">民心、民意不可违。</a>
 </h2>
