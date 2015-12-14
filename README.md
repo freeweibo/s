@@ -44,6 +44,12 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3920059477114813" target="freeweibo-mirror">【勇者斗恶龙】</a>
+</h2>
+<p>【勇者斗恶龙】<br><img src="http://ww4.sinaimg.cn/large/53ae0b70jw1eyzhpza3rjj20mp0oj0yr.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3920047087373111" target="freeweibo-mirror">到底谁审判谁[思考] http://t.cn/R4A5DaK…</a>
 </h2>
 <p>到底谁审判谁[思考] http://t.cn/R4A5DaK .</p>
@@ -66,19 +72,19 @@
 </h2>
 <p>//@戴刚米: //@通城风雨: //@苏州常熟徐文石: //@剑气如虹客: //@于建嵘: 为啥？很明确，因为我国宪法规定言论自由是公民的基本权利。<br><br>RE: 不能评论、不能转发。为啥？@于建嵘 @章文的文章 @老--靠<br><img src="http://ww2.sinaimg.cn/large/ad23714bgw1eyz6tbje56j20f00qodji.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3920033740965573" target="freeweibo-mirror">//@50年矛苔: //@CZ一粒粟: //@戴刚米://@…</a>
 </h2>
 <p>//@50年矛苔: //@CZ一粒粟: //@戴刚米://@薄伽梵歌65: 转发微博<br><br>RE: 哈儿，国家待遇！龙应台，海峡隔不断的声音。<br><img src="http://ww4.sinaimg.cn/large/006iSYgSgw1eyz3je03g4j30qo0zkted.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3920004602679475" target="freeweibo-mirror">浙江乌镇今天进驻军队，外加特警等警种一共在乌镇的维稳人员上难…</a>
 </h2>
 <p>浙江乌镇今天进驻军队，外加特警等警种一共在乌镇的维稳人员上难以计数，整个乌镇的居民才1万，坦克都已经进入乌镇了！一个互联网大会搞成了这样，够奇葩的！<br><img src="http://ww3.sinaimg.cn/large/45936b73gw1eyzbeqld64j20b6061dg7.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3920000110673929" target="freeweibo-mirror">//@LostPrawn_失魂虾: //@李唐的围脖: 转发…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3919978652246014" target="freeweibo-mirror">@李小萌 在汶川地震直播现场突然暴哭的情景，直到现在我还依然…</a>
 </h2>
 <p>@李小萌 在汶川地震直播现场突然暴哭的情景，直到现在我还依然历历在目！<br><br>RE: 好吧，我也从个众。我被谣言中伤的时候，曾想过诉诸法律途径。经人介绍和他通了仅有的一次话，态度平和，语重心长，全然站在我的立场出发，建议我静待事情自行平息，不必介怀。没有一点怀疑、调侃、窥探、怂恿。素昧平生，我很感激他。不管是一叶障目，还是一叶知秋，我希望他能够等到公正公平的结果。</p>
-<p>
-	<small> ============== 8小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3919974357703420" target="freeweibo-mirror">[赞]//@滨海絮语: //@我是闻正兵: 这个时候敢说话的…</a>
-</h2>
-<p>[赞]//@滨海絮语: //@我是闻正兵: 这个时候敢说话的体制内媒体人，不多。//@杨学林律师: 加了关注。<br><br>RE: 好吧，我也从个众。我被谣言中伤的时候，曾想过诉诸法律途径。经人介绍和他通了仅有的一次话，态度平和，语重心长，全然站在我的立场出发，建议我静待事情自行平息，不必介怀。没有一点怀疑、调侃、窥探、怂恿。素昧平生，我很感激他。不管是一叶障目，还是一叶知秋，我希望他能够等到公正公平的结果。</p>
 <p>
 	<small> ============== 8小时前</small>
 </p>
