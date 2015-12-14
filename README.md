@@ -20,6 +20,24 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3919905667928561" target="freeweibo-mirror">SPAM 法庭早已经没有独立审判的能力了，何况这个案子更多的…</a>
+</h2>
+<p>SPAM 法庭早已经没有独立审判的能力了，何况这个案子更多的具有政治性特征。<br><br>RE: 北京二中院门口现场。<br><img src="http://ww1.sinaimg.cn/large/9154fba0gw1eyyyxg3hbpj20zk0k0425.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3919904740417678" target="freeweibo-mirror">SPAM //@上海老哥: //@三俗大哥://@郝劲松: …</a>
+</h2>
+<p>SPAM //@上海老哥: //@三俗大哥://@郝劲松: 里面在审判，外面也在审判<br><br>RE: 北京二中院门口现场。<br><img src="http://ww1.sinaimg.cn/large/9154fba0gw1eyyyxg3hbpj20zk0k0425.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3919904610298336" target="freeweibo-mirror">//@谓贤: 威武不屈，富贵不淫，贫贱不移，此之谓大律师也。</a>
+</h2>
+<p>//@谓贤: 威武不屈，富贵不淫，贫贱不移，此之谓大律师也。<br><br>RE: @石讷shine：你像公牛一样健硕，如婴孩一般纯真。你有火的热烈，风的酣畅，冰的劲削。当法的头颅低垂，你将衰弱的正义扶起，低沉的吼声撞击死去的黎明。呵，汉子，即便弱水倒流，我也不会失去信心，因为，我的心依然雀跃，并且坚信有你！<br><img src="http://ww3.sinaimg.cn/large/71e168dajw1eyyzfffxmtj20c806wmy2.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3919897505057889" target="freeweibo-mirror">七条微博……这是不是文革之后第一次门槛这么低的以言治罪？其实…</a>
 </h2>
 <p>七条微博……这是不是文革之后第一次门槛这么低的以言治罪？其实这么做，反应出来更大的问题其实不是邪恶，而是智商和缺乏廉耻。</p>
@@ -84,19 +102,19 @@
 </h2>
 <p>//@王甫律师:转发微博<br><br>RE: 【不积跬步，无以至千里】这是近几天研究成果，请大家指正。依法治国，是律师们一份份辩词，学者们一篇篇文章，人民一声声呐喊，政治家一次次决择，尤其是法官们一张张判决，累积而成的。作为律师，他做到了。作为学者，我需要努力。法官们，看你们的了。 http://t.cn/R4wWbNC</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3919879968792294" target="freeweibo-mirror">SPAM //@reporter记者刘虎: 世纪大审判的规模…</a>
 </h2>
 <p>SPAM //@reporter记者刘虎: 世纪大审判的规模？//@老衲猛男888:如果他有罪，天朝就意味着是一个巨大的监狱。<br><br>RE: 好大阵仗，真自信！<br><img src="http://ww4.sinaimg.cn/large/e7fe4924gw1eyyvz2l5t3j20qo0zkgpz.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3919879948400310" target="freeweibo-mirror">他们在这里旁听 http://t.cn/R4wlUPV .</a>
 </h2>
 <p>他们在这里旁听 http://t.cn/R4wlUPV .<br><img src="http://ww3.sinaimg.cn/large/ea664d14jw1eyyx38zttqj20hs0dc410.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3919878060248344" target="freeweibo-mirror">//@六朝逸民: //@盛氏可以: 轉發微博</a>
 </h2>
@@ -119,24 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3919877583134413" target="freeweibo-mirror">反之亦然</a>
 </h2>
 <p>反之亦然<br><img src="http://ww1.sinaimg.cn/large/6200b57bjw1eyywtrget5j20qo0g0gov.jpg"></p>
-<p>
-	<small> ============== 3小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3919877398461130" target="freeweibo-mirror">法律上他们也是明白的，良心有没有就不知道了//@記録者陳寳成…</a>
-</h2>
-<p>法律上他们也是明白的，良心有没有就不知道了//@記録者陳寳成:我们中国政法大学何兵教授的文章，不知道今天的所谓审判者作何感想？<br><br>RE: 【不积跬步，无以至千里】这是近几天研究成果，请大家指正。依法治国，是律师们一份份辩词，学者们一篇篇文章，人民一声声呐喊，政治家一次次决择，尤其是法官们一张张判决，累积而成的。作为律师，他做到了。作为学者，我需要努力。法官们，看你们的了。 http://t.cn/R4wWbNC</p>
-<p>
-	<small> ============== 3小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3919875900292489" target="freeweibo-mirror">法律学者的研究</a>
-</h2>
-<p>法律学者的研究<br><br>RE: 【不积跬步，无以至千里】这是近几天研究成果，请大家指正。依法治国，是律师们一份份辩词，学者们一篇篇文章，人民一声声呐喊，政治家一次次决择，尤其是法官们一张张判决，累积而成的。作为律师，他做到了。作为学者，我需要努力。法官们，看你们的了。 http://t.cn/R4wWbNC</p>
-<p>
-	<small> ============== 3小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3919873731890216" target="freeweibo-mirror">【不积跬步，无以至千里】这是近几天研究成果，请大家指正。依法…</a>
-</h2>
-<p>【不积跬步，无以至千里】这是近几天研究成果，请大家指正。依法治国，是律师们一份份辩词，学者们一篇篇文章，人民一声声呐喊，政治家一次次决择，尤其是法官们一张张判决，累积而成的。作为律师，他做到了。作为学者，我需要努力。法官们，看你们的了。 http://t.cn/R4wWbNC</p>
 <p>
 	<small> ============== 3小时前</small>
 </p>
