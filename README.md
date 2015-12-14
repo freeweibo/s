@@ -96,13 +96,25 @@
 </h2>
 <p>如果因为发了几条微博就被定罪，那么每个微博使用者都有罪，每个人都应该被抓进去。文革时，有人因为在墙壁上随便写了几句牢骚之语，就被杀头。这算是最早期的“微博之罪”吧。所以，等待判决结果，然后就能下结论，这个国家从文革到现在，到底有没有一点点文明的改进。</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3919925653283713" target="freeweibo-mirror">浦案的童义，是让更多的中国百姓，原先不知道、不关心中国《刑事…</a>
 </h2>
 <p>浦案的童义，是让更多的中国百姓，原先不知道、不关心中国《刑事诉讼法》这个巨大漏洞的人，开始明晰地、残酷地看到了。下一步，推动这一几十年沉疴的改变，彻底纠正未经审判就长期关人的侦查制度，改革取保候审制度的呼声和力量，都会空前强大。[威武][拳头]<br><img src="http://ww4.sinaimg.cn/large/6b804b51jw1eyz268kq8rj20oz18gdk9.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3919924948847937" target="freeweibo-mirror">//@作家金槿姬: 说的很漂亮…</a>
+</h2>
+<p>//@作家金槿姬: 说的很漂亮…</p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3919924692604625" target="freeweibo-mirror">//@莱德赵克强: //@八桂直播:龙应台，一位有良知的学者…</a>
+</h2>
+<p>//@莱德赵克强: //@八桂直播:龙应台，一位有良知的学者！[赞]@莱德赵克强 @微闻哥 @涂政律师<br><br>RE: 万恶的资本主义国度里的龙应台，忍不住了。<br><img src="http://ww3.sinaimg.cn/large/6f47298bgw1eyz1ydsk6hj20jz0zkq7e.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3919923665595675" target="freeweibo-mirror">SPAM  //@王涉律师://@LifeTime: [do…</a>
 </h2>
@@ -125,18 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3919919282718413" target="freeweibo-mirror">//@杨晓春: 转发微博</a>
 </h2>
 <p>//@杨晓春: 转发微博</p>
-<p>
-	<small> ============== 3小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3919918858487994" target="freeweibo-mirror">妹子你在做什么    喜欢就关注 @内涵又刺激   http…</a>
-</h2>
-<p>妹子你在做什么    喜欢就关注 @内涵又刺激   http://t.cn/RUUQ5Vx</p>
-<p>
-	<small> ============== 3小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3919918758223418" target="freeweibo-mirror">浦案造成的影响恐怕超出了官府的预估,原本想吓唬一下屁民让大家…</a>
-</h2>
-<p>浦案造成的影响恐怕超出了官府的预估,原本想吓唬一下屁民让大家闭嘴,结果却引来巨大反弹.虽然结局已注定,必定被判刑,但新boss就此跟内外反革命摊牌,让改良派彻底失去幻想,失去所有偏右势力的支持,这代价也是很大的!高明的领导懂得如何平衡左中右势力,让每一派都觉得有希望.金三式的蛮勇并非高明之举</p>
 <p>
 	<small> ============== 3小时前</small>
 </p>
