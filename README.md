@@ -24,7 +24,13 @@
 </h2>
 <p>//@记者钱莽墩: //@金陵酒徒仓氏:转发微博<br><br>RE: 浙江乌镇今天进驻军队，外加特警等警种一共在乌镇的维稳人员上难以计数，整个乌镇的居民才1万，坦克都已经进入乌镇了！一个互联网大会搞成了这样，够奇葩的！<br><img src="http://ww3.sinaimg.cn/large/45936b73gw1eyzbeqld64j20b6061dg7.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3920004602679475" target="freeweibo-mirror">浙江乌镇今天进驻军队，外加特警等警种一共在乌镇的维稳人员上难…</a>
+</h2>
+<p>浙江乌镇今天进驻军队，外加特警等警种一共在乌镇的维稳人员上难以计数，整个乌镇的居民才1万，坦克都已经进入乌镇了！一个互联网大会搞成了这样，够奇葩的！<br><img src="http://ww3.sinaimg.cn/large/45936b73gw1eyzbeqld64j20b6061dg7.jpg"></p>
+<p>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3920000110673929" target="freeweibo-mirror">//@LostPrawn_失魂虾: //@李唐的围脖: 转发…</a>
 </h2>
@@ -42,7 +48,7 @@
 </h2>
 <p>SPAM //@金身弗里曼:本朝不信邪，專治各種不服。<br><br>RE: 未认罪，择期判。<br><img src="http://ww3.sinaimg.cn/large/65cfb01djw1eyz5qpw7etj20hsa6du0x.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3919985577866011" target="freeweibo-mirror">必死之人,成了无期 //@吴顾问1970: //@野马曹天:</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3919963595019822" target="freeweibo-mirror">小萌我们也爱你！ //@六指老汉:关键的时候支持一下，仗义！</a>
 </h2>
 <p>小萌我们也爱你！ //@六指老汉:关键的时候支持一下，仗义！<br><br>RE: 好吧，我也从个众。我被谣言中伤的时候，曾想过诉诸法律途径。经人介绍和他通了仅有的一次话，态度平和，语重心长，全然站在我的立场出发，建议我静待事情自行平息，不必介怀。没有一点怀疑、调侃、窥探、怂恿。素昧平生，我很感激他。不管是一叶障目，还是一叶知秋，我希望他能够等到公正公平的结果。</p>
-<p>
-	<small> ============== 6小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3919962743311722" target="freeweibo-mirror">致敬！ //@崔小平律师://@Lawyer-Tianyua…</a>
-</h2>
-<p>致敬！ //@崔小平律师://@Lawyer-Tianyuan:转发微博<br><br>RE: 【致敬】一位年近九十高龄（1927年11月生）的张思之律师今天出庭为浦辩护，依法履行辩护人职责，真的令人感动。向张思之律师致敬！<br><img src="http://ww2.sinaimg.cn/large/a189a05cgw1eyyxiztymdj20qo0zk7a9.jpg"></p>
 <p>
 	<small> ============== 6小时前</small>
 </p>
