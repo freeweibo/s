@@ -20,6 +20,24 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3919967525501884" target="freeweibo-mirror">辩护人的辩护人。</a>
+</h2>
+<p>辩护人的辩护人。<br><br>RE: 【致敬】一位年近九十高龄（1927年11月生）的张思之律师今天出庭为浦辩护，依法履行辩护人职责，真的令人感动。向张思之律师致敬！<br><img src="http://ww2.sinaimg.cn/large/a189a05cgw1eyyxiztymdj20qo0zk7a9.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3919965533349727" target="freeweibo-mirror">//@李以亮://@艾先: //@随处春山: //@亦乎2哥…</a>
+</h2>
+<p>//@李以亮://@艾先: //@随处春山: //@亦乎2哥: //@笑逐顏開: //@网忆天涯://@wangyuli51073: [good][good][good]//@lubianguanfeng://@湘水草根: //@邢树宏律师://@郑筠律师: //@何俊明律师:转发微博<br><br>RE: 【致敬】一位年近九十高龄（1927年11月生）的张思之律师今天出庭为浦辩护，依法履行辩护人职责，真的令人感动。向张思之律师致敬！<br><img src="http://ww2.sinaimg.cn/large/a189a05cgw1eyyxiztymdj20qo0zk7a9.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3919960419950102" target="freeweibo-mirror">SPAM 查了这么久，家里电脑都搬走了，材料搜刮一大堆，恐怕…</a>
+</h2>
+<p>SPAM 查了这么久，家里电脑都搬走了，材料搜刮一大堆，恐怕中央电视台的直播机器都架好了，灯都已经打上了吧。<br><br>RE: 不認罪<br><img src="http://ww2.sinaimg.cn/large/64ff12efjw1eyz5hw30euj20f00qogp1.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3919953939417410" target="freeweibo-mirror">//@扬州角马画室张_莉_珊:[吃惊]//@施力勤: [衰]…</a>
 </h2>
 <p>//@扬州角马画室张_莉_珊:[吃惊]//@施力勤: [衰] //@南方人物周刊:@JR-MO 如果你觉得你不安全，12.16-18来桐乡乌镇吧，全国精英干警都在这里！<br><br>RE: 乌镇今天进驻两个师，外加特警等警种一共在乌镇的维稳人员4万多人，整个乌镇的居民才1万，坦克都已经进入乌镇了<br><img src="http://ww1.sinaimg.cn/large/78054170gw1eyx29d8s1oj20hs0nqdir.jpg"></p>
@@ -119,24 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3919935354971146" target="freeweibo-mirror">//@咖啡叶子爱评论: 转发微博</a>
 </h2>
 <p>//@咖啡叶子爱评论: 转发微博<br><br>RE: 如果因为发了几条微博就被定罪，那么每个微博使用者都有罪，每个人都应该被抓进去。文革时，有人因为在墙壁上随便写了几句牢骚之语，就被杀头。这算是最早期的“微博之罪”吧。所以，等待判决结果，然后就能下结论，这个国家从文革到现在，到底有没有一点点文明的改进。</p>
-<p>
-	<small> ============== 3小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3919935035979465" target="freeweibo-mirror">同问。 //@张鸿: //@喷嚏网铂程:转发微博</a>
-</h2>
-<p>同问。 //@张鸿: //@喷嚏网铂程:转发微博<br><br>RE: 如果因为发了几条微博就被定罪，那么每个微博使用者都有罪，每个人都应该被抓进去。文革时，有人因为在墙壁上随便写了几句牢骚之语，就被杀头。这算是最早期的“微博之罪”吧。所以，等待判决结果，然后就能下结论，这个国家从文革到现在，到底有没有一点点文明的改进。</p>
-<p>
-	<small> ============== 3小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3919934470230984" target="freeweibo-mirror">//@老衲法号萌愚://@切歌廚: //@姑苏小桥:。</a>
-</h2>
-<p>//@老衲法号萌愚://@切歌廚: //@姑苏小桥:。<br><br>RE: 浦是一个几无破绽的人，以至于众人得以鸣不平。而仲有基于相似逻辑而被陷害者，却因在其他方面有破绽，而致使陷害被罩上了依法处理（其他方面破绽）的外套。正确的事情，本应谁说都是正确的，而沦落到非需要找一个私德公理都不亏的人才能做代表的境地，正说明正确已被压制至深。</p>
-<p>
-	<small> ============== 3小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3919933664696570" target="freeweibo-mirror">//@胡淑芬:好细节。//@杨晓春: 转发微博</a>
-</h2>
-<p>//@胡淑芬:好细节。//@杨晓春: 转发微博</p>
 <p>
 	<small> ============== 3小时前</small>
 </p>
