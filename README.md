@@ -60,19 +60,19 @@
 </h2>
 <p>帮转500 //@邵明波:演场戏，很贵的。<br><br>RE: 【浙江乌镇用枪和坦克迎接第二届世界网络大会的召开】 只有1万人口的乌镇，居然进驻两个师，外加特警等警种一共在乌镇的维稳人员4万多人！军队，坦克都进入了乌镇，这是世界互联网大会？还是准备发动世界大战？<br><img src="http://ww4.sinaimg.cn/large/0061hDb9jw1eyzjzznf1zj30c80gftaf.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3920086979259605" target="freeweibo-mirror">演场戏，很贵的。</a>
 </h2>
 <p>演场戏，很贵的。<br><br>RE: 【浙江乌镇用枪和坦克迎接第二届世界网络大会的召开】 只有1万人口的乌镇，居然进驻两个师，外加特警等警种一共在乌镇的维稳人员4万多人！军队，坦克都进入了乌镇，这是世界互联网大会？还是准备发动世界大战？<br><img src="http://ww4.sinaimg.cn/large/0061hDb9jw1eyzjzznf1zj30c80gftaf.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3920086957646610" target="freeweibo-mirror">SPAM 不知道谷歌何时重返中国，也不清楚fb何时来中国跟微…</a>
 </h2>
 <p>SPAM 不知道谷歌何时重返中国，也不清楚fb何时来中国跟微信、微博扳扳手腕。。。。。。</p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3920084852461816" target="freeweibo-mirror">//@天使牧羊人coolboy://@薄伽梵歌65://@戴…</a>
 </h2>
@@ -126,7 +126,7 @@
 </h2>
 <p>【第一次跑步去机场】上合组织峰会。去郑州机场封路，只得徒步，走了20分钟被警察拦住：行人不得通行，必须坐机场大巴，于是折返寻大巴。等了好久，说没有大巴，行人可以步行了。一路狂奔半小时到机场，飞机已飞走。只得改签继续等待。开会可以理解，但不应如此扰民，否则期盼天下无会！幸好今天没下雪<br><img src="http://ww3.sinaimg.cn/large/709b1d0ejw1eyzflv70mzj20k00d6tau.jpg"></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3920040917370157" target="freeweibo-mirror">五毛们也太不敬业了，带着序号就发出来了。建议有关部门扣发这个…</a>
 </h2>
