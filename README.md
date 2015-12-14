@@ -60,7 +60,7 @@
 </h2>
 <p>//@倩烨归来:转发微博<br><br>RE: 七条微博……这是不是文革之后第一次门槛这么低的以言治罪？其实这么做，反应出来更大的问题其实不是邪恶，而是智商和缺乏廉耻。</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3919897505057889" target="freeweibo-mirror">七条微博……这是不是文革之后第一次门槛这么低的以言治罪？其实…</a>
 </h2>
@@ -102,13 +102,13 @@
 </h2>
 <p>我正式宣判你们有罪：文革有罪，大饥荒有罪，计生有罪，制造留守儿童有罪，迫害异议人士有罪……<br><br>RE: 反之亦然<br><img src="http://ww1.sinaimg.cn/large/6200b57bjw1eyywtrget5j20qo0g0gov.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3919885631767347" target="freeweibo-mirror">//@南大景凯旋:他的人品罕有其匹//@袁莉wsj: 大个子…</a>
 </h2>
 <p>//@南大景凯旋:他的人品罕有其匹//@袁莉wsj: 大个子做过太多这样的以及更加救急的事情，所以今天微博微信满屏都是他//@杨大利_Dali_Yang:转发微博<br><br>RE: 这个清晨，想起大个子。<br><img src="http://ww4.sinaimg.cn/large/61e3e875gw1eyyvw52e64j20yi1pcdsc.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3919883844779902" target="freeweibo-mirror">SPAM 为众人抱火者，不可使他冻毙于风雪！为自由开路者，不…</a>
 </h2>
