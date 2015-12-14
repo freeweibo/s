@@ -38,6 +38,24 @@
 <p>
 	<small> ============== 1小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3919902672451222" target="freeweibo-mirror">希望不是政治判案，检控也能禁得起历史拷问，别两三年后就全都被…</a>
+</h2>
+<p>希望不是政治判案，检控也能禁得起历史拷问，别两三年后就全都被推翻。以言治罪的后果之恶劣，远远大于普通的错判误判。<br><br>RE: 七条微博……这是不是文革之后第一次门槛这么低的以言治罪？其实这么做，反应出来更大的问题其实不是邪恶，而是智商和缺乏廉耻。</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3919901909485608" target="freeweibo-mirror">//@章诒和:文革中我在看守所看押1年半，同牢的葡萄牙女间谍…</a>
+</h2>
+<p>//@章诒和:文革中我在看守所看押1年半，同牢的葡萄牙女间谍看押9年多。司空见惯了！//@任志强: 确实是个问题！我无罪被关押一年多。不改这种法律，下一个被关的可能就是你！ //@刘军宁:[钟]“不改变这种法律规定，中国每一个公民的人身权利都可以随时被侵犯。”<br><br>RE: 网上一片关注今天北京公开审理的浦律师案。除了案件本身值得关注，更重要的是中国《刑事诉讼法》的一个大漏洞：审前长期羁押制度。任何嫌疑和轻微违法，侦查机关不经审判，可以先关上一两年再说。不改变这种法律规定，中国每一个公民的人身权利都可以随时被侵犯。<br><img src="http://ww1.sinaimg.cn/large/6b804b51jw1eyyv58g4ydj218g0xc7hd.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3919901108304628" target="freeweibo-mirror">//@倩烨归来:转发微博</a>
+</h2>
+<p>//@倩烨归来:转发微博<br><br>RE: 七条微博……这是不是文革之后第一次门槛这么低的以言治罪？其实这么做，反应出来更大的问题其实不是邪恶，而是智商和缺乏廉耻。</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3919897505057889" target="freeweibo-mirror">七条微博……这是不是文革之后第一次门槛这么低的以言治罪？其实…</a>
 </h2>
 <p>七条微博……这是不是文革之后第一次门槛这么低的以言治罪？其实这么做，反应出来更大的问题其实不是邪恶，而是智商和缺乏廉耻。</p>
@@ -49,6 +67,18 @@
 <p>好一幅“依法治国”的场景！//@中殷: 转发微博<br><br>RE: 二中院。孙东生被便衣推倒。<br><img src="http://ww4.sinaimg.cn/large/006eTai4gw1eyyxdhlnwaj30zk0k0q8r.jpg"></p>
 <p>
 	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3919894695195194" target="freeweibo-mirror">[话筒]//@任志强: 确实是个问题！我无罪被关押一年多。不…</a>
+</h2>
+<p>[话筒]//@任志强: 确实是个问题！我无罪被关押一年多。不改这种法律，下一个被关的可能就是你！ //@刘军宁:[钟]“不改变这种法律规定，中国每一个公民的人身权利都可以随时被侵犯。”<br><br>RE: 网上一片关注今天北京公开审理的浦律师案。除了案件本身值得关注，更重要的是中国《刑事诉讼法》的一个大漏洞：审前长期羁押制度。任何嫌疑和轻微违法，侦查机关不经审判，可以先关上一两年再说。不改变这种法律规定，中国每一个公民的人身权利都可以随时被侵犯。<br><img src="http://ww1.sinaimg.cn/large/6b804b51jw1eyyv58g4ydj218g0xc7hd.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3919892878747029" target="freeweibo-mirror">法制中国，中国法制！</a>
+</h2>
+<p>法制中国，中国法制！<br><br>RE: 网上一片关注今天北京公开审理的浦律师案。除了案件本身值得关注，更重要的是中国《刑事诉讼法》的一个大漏洞：审前长期羁押制度。任何嫌疑和轻微违法，侦查机关不经审判，可以先关上一两年再说。不改变这种法律规定，中国每一个公民的人身权利都可以随时被侵犯。<br><img src="http://ww1.sinaimg.cn/large/6b804b51jw1eyyv58g4ydj218g0xc7hd.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3919886617618642" target="freeweibo-mirror">//@吴钩: //@南大景凯旋:他的人品罕有其匹//@袁莉w…</a>
 </h2>
@@ -96,47 +126,17 @@
 </h2>
 <p>SPAM  //@郝劲松://@reporter记者刘虎: 世纪大审判的规模？//@老衲猛男888:如果他有罪，天朝就意味着是一个巨大的监狱。<br><br>RE: 好大阵仗，真自信！<br><img src="http://ww4.sinaimg.cn/large/e7fe4924gw1eyyvz2l5t3j20qo0zkgpz.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3919880678241742" target="freeweibo-mirror">转自朋友圈。今天，北京二中院门口。虽然记者进不了法庭，但无数…</a>
+</h2>
+<p>转自朋友圈。今天，北京二中院门口。虽然记者进不了法庭，但无数双眼睛在看着这场审判。<br><img src="http://ww1.sinaimg.cn/large/59515586jw1eyyx59f96rj20qo0zkn2v.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3919880120247162" target="freeweibo-mirror">//@王甫律师:转发微博</a>
 </h2>
 <p>//@王甫律师:转发微博<br><br>RE: 【不积跬步，无以至千里】这是近几天研究成果，请大家指正。依法治国，是律师们一份份辩词，学者们一篇篇文章，人民一声声呐喊，政治家一次次决择，尤其是法官们一张张判决，累积而成的。作为律师，他做到了。作为学者，我需要努力。法官们，看你们的了。 http://t.cn/R4wWbNC</p>
-<p>
-	<small> ============== 3小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3919879968792294" target="freeweibo-mirror">SPAM //@reporter记者刘虎: 世纪大审判的规模…</a>
-</h2>
-<p>SPAM //@reporter记者刘虎: 世纪大审判的规模？//@老衲猛男888:如果他有罪，天朝就意味着是一个巨大的监狱。<br><br>RE: 好大阵仗，真自信！<br><img src="http://ww4.sinaimg.cn/large/e7fe4924gw1eyyvz2l5t3j20qo0zkgpz.jpg"></p>
-<p>
-	<small> ============== 3小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3919879948400310" target="freeweibo-mirror">他们在这里旁听 http://t.cn/R4wlUPV .</a>
-</h2>
-<p>他们在这里旁听 http://t.cn/R4wlUPV .<br><img src="http://ww3.sinaimg.cn/large/ea664d14jw1eyyx38zttqj20hs0dc410.jpg"></p>
-<p>
-	<small> ============== 3小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3919878060248344" target="freeweibo-mirror">//@六朝逸民: //@盛氏可以: 轉發微博</a>
-</h2>
-<p>//@六朝逸民: //@盛氏可以: 轉發微博<br><br>RE: 【不积跬步，无以至千里】这是近几天研究成果，请大家指正。依法治国，是律师们一份份辩词，学者们一篇篇文章，人民一声声呐喊，政治家一次次决择，尤其是法官们一张张判决，累积而成的。作为律师，他做到了。作为学者，我需要努力。法官们，看你们的了。 http://t.cn/R4wWbNC</p>
-<p>
-	<small> ============== 3小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3919877775616840" target="freeweibo-mirror">//@北京厨子新号: 回复@conger003:我那套煽动性…</a>
-</h2>
-<p>//@北京厨子新号: 回复@conger003:我那套煽动性太强。不宜。//@conger003:把你那套逼逼一下。//@北京厨子新号:瞎逼逼。资产阶级那一套。 //@馨95928://@王小山://@阿臧臧:转发微博<br><br>RE: 分享图片<br><img src="http://ww1.sinaimg.cn/large/76f5824fjw1eyyrn8s89gj20jz0zkwjc.jpg"></p>
-<p>
-	<small> ============== 3小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3919877737349236" target="freeweibo-mirror">“如果发出声音是危险的，那就保持沉默 如果自觉无力发光，那就…</a>
-</h2>
-<p>“如果发出声音是危险的，那就保持沉默 如果自觉无力发光，那就别去照亮别人  但是，不要习惯了黑暗就为黑暗辩护 不要为自己的苟且而得意洋洋 不要嘲讽那些比自己更勇敢、更有热量的人们。 可以卑微如尘土，不可扭曲如蛆虫” 一一曼德拉<br><br>RE: 【不积跬步，无以至千里】这是近几天研究成果，请大家指正。依法治国，是律师们一份份辩词，学者们一篇篇文章，人民一声声呐喊，政治家一次次决择，尤其是法官们一张张判决，累积而成的。作为律师，他做到了。作为学者，我需要努力。法官们，看你们的了。 http://t.cn/R4wWbNC</p>
-<p>
-	<small> ============== 3小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3919877583134413" target="freeweibo-mirror">反之亦然</a>
-</h2>
-<p>反之亦然<br><img src="http://ww1.sinaimg.cn/large/6200b57bjw1eyywtrget5j20qo0g0gov.jpg"></p>
 <p>
 	<small> ============== 3小时前</small>
 </p>
