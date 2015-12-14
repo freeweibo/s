@@ -20,6 +20,18 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3919978766152589" target="freeweibo-mirror">SPAM //@崔小平律师: //@谢文:巧合的时间。//@…</a>
+</h2>
+<p>SPAM //@崔小平律师: //@谢文:巧合的时间。//@陶景洲: 不能老是走不出“冤案-平反-新冤案-再平反-再冤案”的邪路啊！<br><br>RE: 今天所有达官显要的减刑加在一起都没有另外一场普通公民的庭审重要。持续关注。</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3919978652246014" target="freeweibo-mirror">@李小萌 在汶川地震直播现场突然暴哭的情景，直到现在我还依然…</a>
+</h2>
+<p>@李小萌 在汶川地震直播现场突然暴哭的情景，直到现在我还依然历历在目！<br><br>RE: 好吧，我也从个众。我被谣言中伤的时候，曾想过诉诸法律途径。经人介绍和他通了仅有的一次话，态度平和，语重心长，全然站在我的立场出发，建议我静待事情自行平息，不必介怀。没有一点怀疑、调侃、窥探、怂恿。素昧平生，我很感激他。不管是一叶障目，还是一叶知秋，我希望他能够等到公正公平的结果。</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3919968851010286" target="freeweibo-mirror"></a>
 </h2>
 <p></p>
@@ -125,18 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3919948156496814" target="freeweibo-mirror">不是防谁，主要是给自己壮胆。谎言已经不管用了，目前也只剩下暴…</a>
 </h2>
 <p>不是防谁，主要是给自己壮胆。谎言已经不管用了，目前也只剩下暴力了[偷笑]//@g小象牙z: 防谁呢？ //@Ming_the_Great_大明:[衰]//@-农妇:[草泥马]//@杜君立:坦克下的互联网[草泥马]<br><br>RE: 乌镇今天进驻两个师，外加特警等警种一共在乌镇的维稳人员4万多人，整个乌镇的居民才1万，坦克都已经进入乌镇了<br><img src="http://ww1.sinaimg.cn/large/78054170gw1eyx29d8s1oj20hs0nqdir.jpg"></p>
-<p>
-	<small> ============== 3小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3919947653055824" target="freeweibo-mirror">SPAM [嘻嘻] //@ConnieTse: //@天地律…</a>
-</h2>
-<p>SPAM [嘻嘻] //@ConnieTse: //@天地律师:世界互联网大会！[ok]<br><br>RE: 乌镇今天进驻两个师，外加特警等警种一共在乌镇的维稳人员4万多人，整个乌镇的居民才1万，坦克都已经进入乌镇了<br><img src="http://ww1.sinaimg.cn/large/78054170gw1eyx29d8s1oj20hs0nqdir.jpg"></p>
-<p>
-	<small> ============== 3小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3919947358792342" target="freeweibo-mirror">//@崔小平律师: //@法律案例-文史典故:转发微博</a>
-</h2>
-<p>//@崔小平律师: //@法律案例-文史典故:转发微博<br><br>RE: 斯伟江：苦难之路通向平安！<br><img src="http://ww1.sinaimg.cn/large/857a392dgw1eyz3vcir4mj20hs5iu4np.jpg"></p>
 <p>
 	<small> ============== 3小时前</small>
 </p>
