@@ -80,6 +80,12 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3919926357712424" target="freeweibo-mirror">如果因为发了几条微博就被定罪，那么每个微博使用者都有罪，每个…</a>
+</h2>
+<p>如果因为发了几条微博就被定罪，那么每个微博使用者都有罪，每个人都应该被抓进去。文革时，有人因为在墙壁上随便写了几句牢骚之语，就被杀头。这算是最早期的“微博之罪”吧。所以，等待判决结果，然后就能下结论，这个国家从文革到现在，到底有没有一点点文明的改进。</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3919925653283713" target="freeweibo-mirror">浦案的童义，是让更多的中国百姓，原先不知道、不关心中国《刑事…</a>
 </h2>
 <p>浦案的童义，是让更多的中国百姓，原先不知道、不关心中国《刑事诉讼法》这个巨大漏洞的人，开始明晰地、残酷地看到了。下一步，推动这一几十年沉疴的改变，彻底纠正未经审判就长期关人的侦查制度，改革取保候审制度的呼声和力量，都会空前强大。[威武][拳头]<br><img src="http://ww4.sinaimg.cn/large/6b804b51jw1eyz268kq8rj20oz18gdk9.jpg"></p>
@@ -96,7 +102,7 @@
 </h2>
 <p>//@吴苏媚://@杨晓春: 转发微博</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3919919865533281" target="freeweibo-mirror">SPAM //@逗比微博搞笑:转发微博</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3919912953554296" target="freeweibo-mirror">一面之缘，一句暖心话，一位偶像级大哥。[心] //@清华孙立…</a>
 </h2>
 <p>一面之缘，一句暖心话，一位偶像级大哥。[心] //@清华孙立平:转发微博</p>
-<p>
-	<small> ============== 3小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3919912550414701" target="freeweibo-mirror">最终的审判，是历史的审判。正义虽不在当下，但我们等得到。</a>
-</h2>
-<p>最终的审判，是历史的审判。正义虽不在当下，但我们等得到。<br><img src="http://ww2.sinaimg.cn/large/53bd81b0jw1eyz0t3iw3kj20gl0gkwgr.jpg"></p>
 <p>
 	<small> ============== 3小时前</small>
 </p>
