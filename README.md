@@ -24,7 +24,7 @@
 </h2>
 <p>//@吴钩: //@南大景凯旋:他的人品罕有其匹//@袁莉wsj: 大个子做过太多这样的以及更加救急的事情，所以今天微博微信满屏都是他//@杨大利_Dali_Yang:转发微博<br><br>RE: 这个清晨，想起大个子。<br><img src="http://ww4.sinaimg.cn/large/61e3e875gw1eyyvw52e64j20yi1pcdsc.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3919885891448604" target="freeweibo-mirror">我正式宣判你们有罪：文革有罪，大饥荒有罪，计生有罪，制造留守…</a>
 </h2>
