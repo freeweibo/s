@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3919979592306555" target="freeweibo-mirror">这段话客观描述，不煽情</a>
+</h2>
+<p>这段话客观描述，不煽情<br><br>RE: 好吧，我也从个众。我被谣言中伤的时候，曾想过诉诸法律途径。经人介绍和他通了仅有的一次话，态度平和，语重心长，全然站在我的立场出发，建议我静待事情自行平息，不必介怀。没有一点怀疑、调侃、窥探、怂恿。素昧平生，我很感激他。不管是一叶障目，还是一叶知秋，我希望他能够等到公正公平的结果。</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3919978766152589" target="freeweibo-mirror">SPAM //@崔小平律师: //@谢文:巧合的时间。//@…</a>
 </h2>
 <p>SPAM //@崔小平律师: //@谢文:巧合的时间。//@陶景洲: 不能老是走不出“冤案-平反-新冤案-再平反-再冤案”的邪路啊！<br><br>RE: 今天所有达官显要的减刑加在一起都没有另外一场普通公民的庭审重要。持续关注。</p>
@@ -90,19 +96,19 @@
 </h2>
 <p>致敬！ //@崔小平律师://@Lawyer-Tianyuan:转发微博<br><br>RE: 【致敬】一位年近九十高龄（1927年11月生）的张思之律师今天出庭为浦辩护，依法履行辩护人职责，真的令人感动。向张思之律师致敬！<br><img src="http://ww2.sinaimg.cn/large/a189a05cgw1eyyxiztymdj20qo0zk7a9.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3919962735176361" target="freeweibo-mirror">今天所有达官显要的减刑加在一起都没有另外一场普通公民的庭审重…</a>
 </h2>
 <p>今天所有达官显要的减刑加在一起都没有另外一场普通公民的庭审重要。持续关注。</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3919962349860049" target="freeweibo-mirror">SPAM 拭目以待</a>
 </h2>
 <p>SPAM 拭目以待<br><br>RE: 今天没有宣判<br><img src="http://ww4.sinaimg.cn/large/56067e2ejw1eyz6haz0zdj20c80lqmzp.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3919961674554536" target="freeweibo-mirror">今天没有宣判</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3919953050324216" target="freeweibo-mirror">不認罪</a>
 </h2>
 <p>不認罪<br><img src="http://ww2.sinaimg.cn/large/64ff12efjw1eyz5hw30euj20f00qogp1.jpg"></p>
-<p>
-	<small> ============== 3小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3919952761075166" target="freeweibo-mirror">拖延不判，不肯放人，絕對是壞消息[弱]</a>
-</h2>
-<p>拖延不判，不肯放人，絕對是壞消息[弱]<br><br>RE: 世界媒体关心的，不是哈儿大个子，关心的是中国的法制进程！今天美国、欧盟代表都在现场发表声明。<br><img src="http://ww1.sinaimg.cn/large/aa5cad32gw1eyz1w9g323j20sg0ka781.jpg"></p>
 <p>
 	<small> ============== 3小时前</small>
 </p>
