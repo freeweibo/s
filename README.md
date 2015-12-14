@@ -60,7 +60,7 @@
 </h2>
 <p>//@李唐的围脖: 转发微博<br><br>RE: 未认罪，择期判。<br><img src="http://ww3.sinaimg.cn/large/65cfb01djw1eyz5qpw7etj20hsa6du0x.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3919991466555378" target="freeweibo-mirror">SPAM //@金身弗里曼:本朝不信邪，專治各種不服。</a>
 </h2>
@@ -78,13 +78,13 @@
 </h2>
 <p>我不喜欢大个子，一点都不喜欢，甚至还觉得他法律水平很差，一点也不专业，我只是觉得他无罪。</p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3919979592306555" target="freeweibo-mirror">这段话客观描述，不煽情</a>
 </h2>
 <p>这段话客观描述，不煽情<br><br>RE: 好吧，我也从个众。我被谣言中伤的时候，曾想过诉诸法律途径。经人介绍和他通了仅有的一次话，态度平和，语重心长，全然站在我的立场出发，建议我静待事情自行平息，不必介怀。没有一点怀疑、调侃、窥探、怂恿。素昧平生，我很感激他。不管是一叶障目，还是一叶知秋，我希望他能够等到公正公平的结果。</p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3919978874936897" target="freeweibo-mirror">//@Shun_Cheung: //@爪爪滅不了:[汗] /…</a>
 </h2>
