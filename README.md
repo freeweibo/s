@@ -114,7 +114,7 @@
 </h2>
 <p>【勇者斗恶龙】<br><img src="http://ww4.sinaimg.cn/large/53ae0b70jw1eyzhpza3rjj20mp0oj0yr.jpg"></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3920047087373111" target="freeweibo-mirror">到底谁审判谁[思考] http://t.cn/R4A5DaK…</a>
 </h2>
@@ -138,7 +138,7 @@
 </h2>
 <p>//@记者钱莽墩: //@金陵酒徒仓氏:转发微博<br><br>RE: 浙江乌镇今天进驻军队，外加特警等警种一共在乌镇的维稳人员上难以计数，整个乌镇的居民才1万，坦克都已经进入乌镇了！一个互联网大会搞成了这样，够奇葩的！<br><img src="http://ww3.sinaimg.cn/large/45936b73gw1eyzbeqld64j20b6061dg7.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p>
 <table>
     <tr>
