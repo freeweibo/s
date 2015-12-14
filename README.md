@@ -20,6 +20,18 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3920087402176252" target="freeweibo-mirror">帮转500 //@邵明波:演场戏，很贵的。</a>
+</h2>
+<p>帮转500 //@邵明波:演场戏，很贵的。<br><br>RE: 【浙江乌镇用枪和坦克迎接第二届世界网络大会的召开】 只有1万人口的乌镇，居然进驻两个师，外加特警等警种一共在乌镇的维稳人员4万多人！军队，坦克都进入了乌镇，这是世界互联网大会？还是准备发动世界大战？<br><img src="http://ww4.sinaimg.cn/large/0061hDb9jw1eyzjzznf1zj30c80gftaf.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3920086979259605" target="freeweibo-mirror">演场戏，很贵的。</a>
+</h2>
+<p>演场戏，很贵的。<br><br>RE: 【浙江乌镇用枪和坦克迎接第二届世界网络大会的召开】 只有1万人口的乌镇，居然进驻两个师，外加特警等警种一共在乌镇的维稳人员4万多人！军队，坦克都进入了乌镇，这是世界互联网大会？还是准备发动世界大战？<br><img src="http://ww4.sinaimg.cn/large/0061hDb9jw1eyzjzznf1zj30c80gftaf.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3920073616521236" target="freeweibo-mirror">SPAM 乌镇风情，街上最多的是警察，一些女警很漂亮，有制服…</a>
 </h2>
 <p>SPAM 乌镇风情，街上最多的是警察，一些女警很漂亮，有制服大衣遮盖不住的时髦，大概还是警校学生。<br><img src="http://ww1.sinaimg.cn/large/4847721egw1eyzjccsq1bj218g0p0jy2.jpg"></p>
@@ -125,18 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3919978874936897" target="freeweibo-mirror">//@Shun_Cheung: //@爪爪滅不了:[汗] /…</a>
 </h2>
 <p>//@Shun_Cheung: //@爪爪滅不了:[汗] //@斯大文Stephen_L2:今天@文三娃 转世了吗？ 转了！！！//@徐潜川: 文三娃新号<br><br>RE: 今天我在新浪微博的最後一個賬號@文傘娃 被銷了，不過是發了幾張二中院的現場圖。不要再跟我說這是不得已而為之。就是忙不迭的主動審查，主動作惡，一間在大陸比谷歌、推特、臉書加起來影響還大的互聯網傳媒巨頭，活得如此卑微、猥瑣，Glory on me，Shame on you.</p>
-<p>
-	<small> ============== 8小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3919978766152589" target="freeweibo-mirror">SPAM //@崔小平律师: //@谢文:巧合的时间。//@…</a>
-</h2>
-<p>SPAM //@崔小平律师: //@谢文:巧合的时间。//@陶景洲: 不能老是走不出“冤案-平反-新冤案-再平反-再冤案”的邪路啊！<br><br>RE: 今天所有达官显要的减刑加在一起都没有另外一场普通公民的庭审重要。持续关注。</p>
-<p>
-	<small> ============== 8小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3919978652246014" target="freeweibo-mirror">@李小萌 在汶川地震直播现场突然暴哭的情景，直到现在我还依然…</a>
-</h2>
-<p>@李小萌 在汶川地震直播现场突然暴哭的情景，直到现在我还依然历历在目！<br><br>RE: 好吧，我也从个众。我被谣言中伤的时候，曾想过诉诸法律途径。经人介绍和他通了仅有的一次话，态度平和，语重心长，全然站在我的立场出发，建议我静待事情自行平息，不必介怀。没有一点怀疑、调侃、窥探、怂恿。素昧平生，我很感激他。不管是一叶障目，还是一叶知秋，我希望他能够等到公正公平的结果。</p>
 <p>
 	<small> ============== 8小时前</small>
 </p>
