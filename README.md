@@ -38,15 +38,51 @@
 <p>
 	<small> ============== 1小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3919910519966435" target="freeweibo-mirror">SPAM 转铁木：毒氣瀰漫，防毒面具，人群擁擠，神色凝重，話…</a>
+</h2>
+<p>SPAM 转铁木：毒氣瀰漫，防毒面具，人群擁擠，神色凝重，話筒相機，枯木蕭瑟，警察老外。末法時代的素描。<br><img src="http://ww3.sinaimg.cn/large/537f4ef3gw1eyz0lq3flcj20zk0jzadj.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3919908356341453" target="freeweibo-mirror">//@周保松: //@谓贤:威武不屈，富贵不淫，贫贱不移，此…</a>
+</h2>
+<p>//@周保松: //@谓贤:威武不屈，富贵不淫，贫贱不移，此之谓大律师也。<br><br>RE: @石讷shine：你像公牛一样健硕，如婴孩一般纯真。你有火的热烈，风的酣畅，冰的劲削。当法的头颅低垂，你将衰弱的正义扶起，低沉的吼声撞击死去的黎明。呵，汉子，即便弱水倒流，我也不会失去信心，因为，我的心依然雀跃，并且坚信有你！<br><img src="http://ww3.sinaimg.cn/large/71e168dajw1eyyzfffxmtj20c806wmy2.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3919906984185370" target="freeweibo-mirror">[赞]//@周保松: //@谓贤:威武不屈，富贵不淫，贫贱不…</a>
+</h2>
+<p>[赞]//@周保松: //@谓贤:威武不屈，富贵不淫，贫贱不移，此之谓大律师也。<br><br>RE: @石讷shine：你像公牛一样健硕，如婴孩一般纯真。你有火的热烈，风的酣畅，冰的劲削。当法的头颅低垂，你将衰弱的正义扶起，低沉的吼声撞击死去的黎明。呵，汉子，即便弱水倒流，我也不会失去信心，因为，我的心依然雀跃，并且坚信有你！<br><img src="http://ww3.sinaimg.cn/large/71e168dajw1eyyzfffxmtj20c806wmy2.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3919905973696696" target="freeweibo-mirror">[good]//@律师文摘:民意 • 心声。 //@红岛渔民…</a>
+</h2>
+<p>[good]//@律师文摘:民意 • 心声。 //@红岛渔民:转发微博<br><br>RE: 北京二中院门口现场。<br><img src="http://ww1.sinaimg.cn/large/9154fba0gw1eyyyxg3hbpj20zk0k0425.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3919905667928561" target="freeweibo-mirror">SPAM 法庭早已经没有独立审判的能力了，何况这个案子更多的…</a>
 </h2>
 <p>SPAM 法庭早已经没有独立审判的能力了，何况这个案子更多的具有政治性特征。<br><br>RE: 北京二中院门口现场。<br><img src="http://ww1.sinaimg.cn/large/9154fba0gw1eyyyxg3hbpj20zk0k0425.jpg"></p>
 <p>
 	<small> ============== 1小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3919905516435043" target="freeweibo-mirror">SPAM //@李不白的店: //@LUCY若水: 转发微博</a>
+</h2>
+<p>SPAM //@李不白的店: //@LUCY若水: 转发微博<br><br>RE: “岩石再坚硬也是死的，鸡蛋再脆弱也是有生命的。石头最终会化为沙土，而鸡蛋孕育的生命总有一天会飞越石头。”——《辩护人》【今天，2015年12月14日，我们是为自己的言论之自由关注他的被审判！】<br><img src="http://ww2.sinaimg.cn/large/0068SFEdjw1eyys3arh42j30f90m8781.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3919904740417678" target="freeweibo-mirror">SPAM //@上海老哥: //@三俗大哥://@郝劲松: …</a>
 </h2>
 <p>SPAM //@上海老哥: //@三俗大哥://@郝劲松: 里面在审判，外面也在审判<br><br>RE: 北京二中院门口现场。<br><img src="http://ww1.sinaimg.cn/large/9154fba0gw1eyyyxg3hbpj20zk0k0425.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3919904728508049" target="freeweibo-mirror">//@谓贤:威武不屈，富贵不淫，贫贱不移，此之谓大律师也。</a>
+</h2>
+<p>//@谓贤:威武不屈，富贵不淫，贫贱不移，此之谓大律师也。<br><br>RE: @石讷shine：你像公牛一样健硕，如婴孩一般纯真。你有火的热烈，风的酣畅，冰的劲削。当法的头颅低垂，你将衰弱的正义扶起，低沉的吼声撞击死去的黎明。呵，汉子，即便弱水倒流，我也不会失去信心，因为，我的心依然雀跃，并且坚信有你！<br><img src="http://ww3.sinaimg.cn/large/71e168dajw1eyyzfffxmtj20c806wmy2.jpg"></p>
 <p>
 	<small> ============== 1小时前</small>
 </p><h2>
@@ -60,7 +96,7 @@
 </h2>
 <p>@石讷shine：你像公牛一样健硕，如婴孩一般纯真。你有火的热烈，风的酣畅，冰的劲削。当法的头颅低垂，你将衰弱的正义扶起，低沉的吼声撞击死去的黎明。呵，汉子，即便弱水倒流，我也不会失去信心，因为，我的心依然雀跃，并且坚信有你！<br><img src="http://ww3.sinaimg.cn/large/71e168dajw1eyyzfffxmtj20c806wmy2.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3919902672451222" target="freeweibo-mirror">希望不是政治判案，检控也能禁得起历史拷问，别两三年后就全都被…</a>
 </h2>
@@ -80,6 +116,12 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3919899552140183" target="freeweibo-mirror">//@胡发云://@老夫乃布衣:[衰]//@章诒和: 文革中…</a>
+</h2>
+<p>//@胡发云://@老夫乃布衣:[衰]//@章诒和: 文革中我在看守所看押1年半，同牢的葡萄牙女间谍看押9年多。司空见惯了！//@任志强: 确实是个问题！我无罪被关押一年多。不改这种法律，下一个被关的可能就是你！ //@刘军宁:[钟]“不改变这种法律规定，中国每一个公民的人身权利都可以随时被侵犯。”<br><br>RE: 网上一片关注今天北京公开审理的浦律师案。除了案件本身值得关注，更重要的是中国《刑事诉讼法》的一个大漏洞：审前长期羁押制度。任何嫌疑和轻微违法，侦查机关不经审判，可以先关上一两年再说。不改变这种法律规定，中国每一个公民的人身权利都可以随时被侵犯。<br><img src="http://ww1.sinaimg.cn/large/6b804b51jw1eyyv58g4ydj218g0xc7hd.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3919897505057889" target="freeweibo-mirror">七条微博……这是不是文革之后第一次门槛这么低的以言治罪？其实…</a>
 </h2>
 <p>七条微博……这是不是文革之后第一次门槛这么低的以言治罪？其实这么做，反应出来更大的问题其实不是邪恶，而是智商和缺乏廉耻。</p>
@@ -92,53 +134,11 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
-	<a href="https://freeweibo.com/weibo/3919894695195194" target="freeweibo-mirror">[话筒]//@任志强: 确实是个问题！我无罪被关押一年多。不…</a>
+	<a href="https://freeweibo.com/weibo/3919895849060914" target="freeweibo-mirror">//@任志强:确实是个问题！我无罪被关押一年多。不改这种法律…</a>
 </h2>
-<p>[话筒]//@任志强: 确实是个问题！我无罪被关押一年多。不改这种法律，下一个被关的可能就是你！ //@刘军宁:[钟]“不改变这种法律规定，中国每一个公民的人身权利都可以随时被侵犯。”<br><br>RE: 网上一片关注今天北京公开审理的浦律师案。除了案件本身值得关注，更重要的是中国《刑事诉讼法》的一个大漏洞：审前长期羁押制度。任何嫌疑和轻微违法，侦查机关不经审判，可以先关上一两年再说。不改变这种法律规定，中国每一个公民的人身权利都可以随时被侵犯。<br><img src="http://ww1.sinaimg.cn/large/6b804b51jw1eyyv58g4ydj218g0xc7hd.jpg"></p>
+<p>//@任志强:确实是个问题！我无罪被关押一年多。不改这种法律，下一个被关的可能就是你！//@刘军宁:[钟]“不改变这种法律规定，中国每一个公民的人身权利都可以随时被侵犯。”<br><br>RE: 网上一片关注今天北京公开审理的浦律师案。除了案件本身值得关注，更重要的是中国《刑事诉讼法》的一个大漏洞：审前长期羁押制度。任何嫌疑和轻微违法，侦查机关不经审判，可以先关上一两年再说。不改变这种法律规定，中国每一个公民的人身权利都可以随时被侵犯。<br><img src="http://ww1.sinaimg.cn/large/6b804b51jw1eyyv58g4ydj218g0xc7hd.jpg"></p>
 <p>
 	<small> ============== 2小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3919892878747029" target="freeweibo-mirror">法制中国，中国法制！</a>
-</h2>
-<p>法制中国，中国法制！<br><br>RE: 网上一片关注今天北京公开审理的浦律师案。除了案件本身值得关注，更重要的是中国《刑事诉讼法》的一个大漏洞：审前长期羁押制度。任何嫌疑和轻微违法，侦查机关不经审判，可以先关上一两年再说。不改变这种法律规定，中国每一个公民的人身权利都可以随时被侵犯。<br><img src="http://ww1.sinaimg.cn/large/6b804b51jw1eyyv58g4ydj218g0xc7hd.jpg"></p>
-<p>
-	<small> ============== 2小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3919886617618642" target="freeweibo-mirror">//@吴钩: //@南大景凯旋:他的人品罕有其匹//@袁莉w…</a>
-</h2>
-<p>//@吴钩: //@南大景凯旋:他的人品罕有其匹//@袁莉wsj: 大个子做过太多这样的以及更加救急的事情，所以今天微博微信满屏都是他//@杨大利_Dali_Yang:转发微博<br><br>RE: 这个清晨，想起大个子。<br><img src="http://ww4.sinaimg.cn/large/61e3e875gw1eyyvw52e64j20yi1pcdsc.jpg"></p>
-<p>
-	<small> ============== 3小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3919886549626728" target="freeweibo-mirror">SPAM //@抽蜂来了:在中国的精英阶层里，被查了一年半却…</a>
-</h2>
-<p>SPAM //@抽蜂来了:在中国的精英阶层里，被查了一年半却查不出什么问题来的人能有几个，我支持干净的人<br><br>RE: 若有一个正直的人不自由，那么这个国家，不过是一所大一点的监狱。。。#Judgement Day#<br><img src="http://ww1.sinaimg.cn/large/5922f142jw1eyyux4ldlhj20hs0kvjsj.jpg"></p>
-<p>
-	<small> ============== 3小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3919885891448604" target="freeweibo-mirror">我正式宣判你们有罪：文革有罪，大饥荒有罪，计生有罪，制造留守…</a>
-</h2>
-<p>我正式宣判你们有罪：文革有罪，大饥荒有罪，计生有罪，制造留守儿童有罪，迫害异议人士有罪……<br><br>RE: 反之亦然<br><img src="http://ww1.sinaimg.cn/large/6200b57bjw1eyywtrget5j20qo0g0gov.jpg"></p>
-<p>
-	<small> ============== 3小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3919885631767347" target="freeweibo-mirror">//@南大景凯旋:他的人品罕有其匹//@袁莉wsj: 大个子…</a>
-</h2>
-<p>//@南大景凯旋:他的人品罕有其匹//@袁莉wsj: 大个子做过太多这样的以及更加救急的事情，所以今天微博微信满屏都是他//@杨大利_Dali_Yang:转发微博<br><br>RE: 这个清晨，想起大个子。<br><img src="http://ww4.sinaimg.cn/large/61e3e875gw1eyyvw52e64j20yi1pcdsc.jpg"></p>
-<p>
-	<small> ============== 3小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3919883844779902" target="freeweibo-mirror">SPAM 为众人抱火者，不可使他冻毙于风雪！为自由开路者，不…</a>
-</h2>
-<p>SPAM 为众人抱火者，不可使他冻毙于风雪！为自由开路者，不可使他困顿于荆棘！<br><img src="http://ww2.sinaimg.cn/large/3f79a379jw1eyyxjti035j20dq0hs0vv.jpg"></p>
-<p>
-	<small> ============== 3小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3919883379608573" target="freeweibo-mirror">SPAM 方庄//@邵明波:我在微博“旁听”！</a>
-</h2>
-<p>SPAM 方庄//@邵明波:我在微博“旁听”！<br><br>RE: 他们在这里旁听 http://t.cn/R4wlUPV .<br><img src="http://ww3.sinaimg.cn/large/ea664d14jw1eyyx38zttqj20hs0dc410.jpg"></p>
-<p>
-	<small> ============== 3小时前</small>
 </p>
 <table>
     <tr>
