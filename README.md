@@ -30,19 +30,19 @@
 </h2>
 <p>最终的审判，是历史的审判。正义虽不在当下，但我们等得到。<br><img src="http://ww2.sinaimg.cn/large/53bd81b0jw1eyz0t3iw3kj20gl0gkwgr.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3919912534053492" target="freeweibo-mirror">//@記録者陳寳成:今天又该怎么说？</a>
 </h2>
 <p>//@記録者陳寳成:今天又该怎么说？</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3919911883552455" target="freeweibo-mirror">//@LVLVLVLV花生大少:转发微博</a>
 </h2>
 <p>//@LVLVLVLV花生大少:转发微博<br><br>RE: 二中院。。便衣更瘋狂<br><img src="http://ww1.sinaimg.cn/large/006eTai4gw1eyyzm7tmxlj30nt0hsq48.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3919910519966435" target="freeweibo-mirror">SPAM 转铁木：毒氣瀰漫，防毒面具，人群擁擠，神色凝重，話…</a>
 </h2>
