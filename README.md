@@ -126,7 +126,7 @@
 </h2>
 <p>SPAM 走了，带走一缕雾霾～<br><br>RE: 当天下午4:50，王家瑞表情僵硬出现在酒店大厅，拒绝了记者们的采访，搭车匆匆离开。北韩驻华大使池在龙也相继离开。还留在酒店的北韩负责人和男子合唱团在下午8点左右前往北京站，搭火车返国。<br><img src="http://ww3.sinaimg.cn/large/51c21d10gw1ez004l6dr6j20gw0c30tk.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3920220031233394" target="freeweibo-mirror">当天下午4:50，王家瑞表情僵硬出现在酒店大厅，拒绝了记者们…</a>
 </h2>
