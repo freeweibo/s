@@ -96,7 +96,7 @@
 </h2>
 <p>【官媒批官员治霾靠说狠话】由于北京市长王安顺去年曾发表过治不好霾将“提头来见”的言论，加上北京近期多次遭雾霾困扰，分析认为《人民日报》这篇文章或是在暗批王安顺。另外，石油系统出身的王安顺曾是中共前政治局常委周的部下，这次又因治霾不力遭批，其仕途或将受到影响。 http://t.cn/R4ACdNi<br><img src="http://ww3.sinaimg.cn/large/6298156bgw1ez01k4c2cdj20go0cbq3c.jpg"></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3920222102980829" target="freeweibo-mirror">SPAM 走了，带走一缕雾霾～</a>
 </h2>
