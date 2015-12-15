@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3920344295657112" target="freeweibo-mirror">//@逆风蝴蝶: 让律师说话，天不会塌；不让律师说话，天一定…</a>
+</h2>
+<p>//@逆风蝴蝶: 让律师说话，天不会塌；不让律师说话，天一定塌。 //@钟如田://@少年二师兄：全网搜不到大个子的名字，这是要秘密搞了<br><br>RE: 【浦案开庭审理未宣判】中国维权律师浦案，昨天在北京市第二中级法院开庭审理，未当庭宣判。浦最后陈述时称，若有些微博用词有些尖刻、粗鲁，伤害到他人，他愿意表示歉意。但他不承认有‘煽动民族仇恨’和‘寻衅滋事’的目的，出于对法律的信仰，他相信法院能够公正判决。 http://t.cn/R4AClWg<br><img src="http://ww4.sinaimg.cn/large/6298156bgw1ez05oz6fbxj20go0b5dgp.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3920271247101413" target="freeweibo-mirror">回复@海明评说:有意为之？ //@海明评说:乌镇，乌有之乡。…</a>
 </h2>
 <p>回复@海明评说:有意为之？ //@海明评说:乌镇，乌有之乡。互联网大会在这边召开，名字耐人寻味。 //@邵明波:祝贺世界互联网大会在中国隆重召开！<br><br>RE: 世界已是互联网的世界，你却还在疯狂地删帖、屏蔽、禁言、销号，还在死抱陈规旧俗，抵御现代政治文明。说什么＂互联互通、共享共治，共建网络空间命运共同体＂，不过二十年，互联的是思维，互通的是观念，共享的是技术，共治的是一切人类文明成果。但是，你还是恐惧，因为制度而恐惧，因为权力而恐惧！<br><img src="http://ww1.sinaimg.cn/large/c57c1a49jw1ez02rq8klnj20fa088jsr.jpg"></p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3920084852461816" target="freeweibo-mirror">//@天使牧羊人coolboy://@薄伽梵歌65://@戴…</a>
 </h2>
 <p>//@天使牧羊人coolboy://@薄伽梵歌65://@戴刚米://@践行者Harry: //@南山灯火_1c8: //@kkk888666yyy://@齐河律师: 转发微博<br><br>RE: 舉世矚目！<br><img src="http://ww1.sinaimg.cn/large/006gDkPugw1eyyznw0sm7j30fo0k3whx.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3920079298812316" target="freeweibo-mirror">【浙江乌镇用枪和坦克迎接第二届世界网络大会的召开】 只有1万…</a>
-</h2>
-<p>【浙江乌镇用枪和坦克迎接第二届世界网络大会的召开】 只有1万人口的乌镇，居然进驻两个师，外加特警等警种一共在乌镇的维稳人员4万多人！军队，坦克都进入了乌镇，这是世界互联网大会？还是准备发动世界大战？<br><img src="http://ww4.sinaimg.cn/large/0061hDb9jw1eyzjzznf1zj30c80gftaf.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
