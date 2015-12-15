@@ -54,7 +54,7 @@
 </h2>
 <p>绝对不可能，必须保护倒数第一名。<br><br>RE: 今天起即将中断对朝鲜的石油供给。并在中朝边境增派2,000兵力。</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3920099956636827" target="freeweibo-mirror">SPAM [思考]//@西子丹67:[偷笑][话筒]</a>
 </h2>
