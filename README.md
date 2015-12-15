@@ -60,7 +60,7 @@
 </h2>
 <p>国际油价跌破40美元，你们的油价不接轨了。理由是尾气是雾霾重要成因，抑制石油消费，改善空气质量。我不明白，夏天也是那么多车，怎么没有雾霾？如果说雾霾因为车太多造成，美国的车更多，日本的车密度更大，他们怎么就没那么多雾霾？冬季取暖烧低质煤，再用高油价来治雾霾，这是我听过最好笑的笑话。<br><img src="http://ww3.sinaimg.cn/large/a8ef5277jw1ez0kd6ey5ij20yi0vbgop.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3920389946432959" target="freeweibo-mirror">据说国外土豪无聊时候就是这样玩的...http://t.cn…</a>
 </h2>
@@ -90,7 +90,7 @@
 </h2>
 <p>快要回家了！<br><br>RE: 【浦案开庭审理未宣判】中国维权律师浦案，昨天在北京市第二中级法院开庭审理，未当庭宣判。浦最后陈述时称，若有些微博用词有些尖刻、粗鲁，伤害到他人，他愿意表示歉意。但他不承认有‘煽动民族仇恨’和‘寻衅滋事’的目的，出于对法律的信仰，他相信法院能够公正判决。 http://t.cn/R4AClWg<br><img src="http://ww4.sinaimg.cn/large/6298156bgw1ez05oz6fbxj20go0b5dgp.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3920347478401375" target="freeweibo-mirror">//@张鹤慈:浦案不是没可能轻判或保外就医，真是浦的朋友，就…</a>
 </h2>
