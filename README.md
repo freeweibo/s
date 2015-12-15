@@ -54,7 +54,7 @@
 </h2>
 <p>呵呵了~这么多干爹出来。。死磕看来应该重判了。。猪队友啊<br><img src="http://ww3.sinaimg.cn/large/c37c67cbgw1eyzlsofhnej20dv0b60ur.jpg"></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3920093635722732" target="freeweibo-mirror">//@2可器: //@徐文致://@王藝彬時評: //@咪润…</a>
 </h2>
@@ -102,7 +102,7 @@
 </h2>
 <p>SPAM 乌镇风情，街上最多的是警察，一些女警很漂亮，有制服大衣遮盖不住的时髦，大概还是警校学生。<br><img src="http://ww1.sinaimg.cn/large/4847721egw1eyzjccsq1bj218g0p0jy2.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3920071024274613" target="freeweibo-mirror">SPAM //@提刀探花在缅北:→_→ //@四两拨干片V:…</a>
 </h2>
