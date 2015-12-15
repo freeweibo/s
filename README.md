@@ -60,7 +60,7 @@
 </h2>
 <p>国际油价跌破40美元，你们的油价不接轨了。理由是尾气是雾霾重要成因，抑制石油消费，改善空气质量。我不明白，夏天也是那么多车，怎么没有雾霾？如果说雾霾因为车太多造成，美国的车更多，日本的车密度更大，他们怎么就没那么多雾霾？冬季取暖烧低质煤，再用高油价来治雾霾，这是我听过最好笑的笑话。<br><img src="http://ww3.sinaimg.cn/large/a8ef5277jw1ez0kd6ey5ij20yi0vbgop.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3920389946432959" target="freeweibo-mirror">据说国外土豪无聊时候就是这样玩的...http://t.cn…</a>
 </h2>
