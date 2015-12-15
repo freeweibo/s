@@ -72,7 +72,7 @@
 </h2>
 <p>SPAM 那么高的配置都给你了，你还要怎么样？这是要上天么？<br><br>RE: 已到小米之家维权，不给解决誓不罢休@雷军 @小米公司 @公民大李@林斌_Bin@张剑慧@硬件学堂@王海 http://t.cn/R4Z818x<br><img src="http://ww1.sinaimg.cn/large/d3118cefgw1ez0dlw6z8jj20xc18g468.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3920358824216516" target="freeweibo-mirror">SPAM //@山高路远N: //@中中4世://@见雨听风…</a>
 </h2>
