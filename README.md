@@ -30,7 +30,7 @@
 </h2>
 <p>SPAM 走了，带走一缕雾霾～<br><br>RE: 当天下午4:50，王家瑞表情僵硬出现在酒店大厅，拒绝了记者们的采访，搭车匆匆离开。北韩驻华大使池在龙也相继离开。还留在酒店的北韩负责人和男子合唱团在下午8点左右前往北京站，搭火车返国。<br><img src="http://ww3.sinaimg.cn/large/51c21d10gw1ez004l6dr6j20gw0c30tk.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3920212174832580" target="freeweibo-mirror">当初告诉你雾霾PM2.5的是你祖爷爷吗？</a>
 </h2>
@@ -48,7 +48,7 @@
 </h2>
 <p>绝对不可能，必须保护倒数第一名。<br><br>RE: 今天起即将中断对朝鲜的石油供给。并在中朝边境增派2,000兵力。</p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3920099956636827" target="freeweibo-mirror">SPAM [思考]//@西子丹67:[偷笑][话筒]</a>
 </h2>
@@ -72,7 +72,7 @@
 </h2>
 <p>//@2可器: //@徐文致://@王藝彬時評: //@咪润:[围观][围观]//@是我的永远是我的777: //@咪润:宪法只是针对百姓！//@远离55:看看惡政是如何法治的。//@宋朝诗人黄庭坚后人黄美娟: 转发微博<br><br>RE: 舉世矚目！<br><img src="http://ww1.sinaimg.cn/large/006gDkPugw1eyyznw0sm7j30fo0k3whx.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3920087846996645" target="freeweibo-mirror">这里是乌镇。</a>
 </h2>
