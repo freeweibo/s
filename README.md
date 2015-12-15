@@ -78,7 +78,7 @@
 </h2>
 <p>请看这些丑恶的嘴脸 //@敏奇微博:转发微博<br><br>RE: 据说国宝暴露了身份之后是会丢掉饭碗的，或者隐身改行，真的假的？<br><img src="http://ww1.sinaimg.cn/large/7a8590bdjw1ez0b77flngj20df0hsgnd.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3920338611872616" target="freeweibo-mirror">SPAM 那天，遇到这样一个病人。 我告诉他，通过检查，发现…</a>
 </h2>
