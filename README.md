@@ -66,7 +66,7 @@
 </h2>
 <p>据说国外土豪无聊时候就是这样玩的...http://t.cn/R47w7Oz</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3920360750017009" target="freeweibo-mirror">SPAM 那么高的配置都给你了，你还要怎么样？这是要上天么？</a>
 </h2>
