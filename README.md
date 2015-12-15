@@ -66,7 +66,7 @@
 </h2>
 <p>当天下午4:50，王家瑞表情僵硬出现在酒店大厅，拒绝了记者们的采访，搭车匆匆离开。北韩驻华大使池在龙也相继离开。还留在酒店的北韩负责人和男子合唱团在下午8点左右前往北京站，搭火车返国。<br><img src="http://ww3.sinaimg.cn/large/51c21d10gw1ez004l6dr6j20gw0c30tk.jpg"></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3920212174832580" target="freeweibo-mirror">当初告诉你雾霾PM2.5的是你祖爷爷吗？</a>
 </h2>
