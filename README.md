@@ -66,7 +66,7 @@
 </h2>
 <p>【浦案开庭审理未宣判】中国维权律师浦案，昨天在北京市第二中级法院开庭审理，未当庭宣判。浦最后陈述时称，若有些微博用词有些尖刻、粗鲁，伤害到他人，他愿意表示歉意。但他不承认有‘煽动民族仇恨’和‘寻衅滋事’的目的，出于对法律的信仰，他相信法院能够公正判决。 http://t.cn/R4AClWg<br><img src="http://ww4.sinaimg.cn/large/6298156bgw1ez05oz6fbxj20go0b5dgp.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3920271247101413" target="freeweibo-mirror">回复@海明评说:有意为之？ //@海明评说:乌镇，乌有之乡。…</a>
 </h2>
