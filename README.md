@@ -60,7 +60,7 @@
 </h2>
 <p>SPAM [思考]//@西子丹67:[偷笑][话筒]<br><br>RE: 同样是毒杀，判决的差距咋这么大呢？<br><img src="http://ww4.sinaimg.cn/large/42cbfacfjw1eyzbsgke04j20c80aht9e.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3920098677418694" target="freeweibo-mirror">SPAM 感觉不太靠谱[挖鼻]//@整合之道刘鸿雁:[挖鼻]</a>
 </h2>
