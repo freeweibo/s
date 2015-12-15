@@ -90,7 +90,7 @@
 </h2>
 <p>//@天使牧羊人coolboy://@薄伽梵歌65://@戴刚米://@践行者Harry: //@南山灯火_1c8: //@kkk888666yyy://@齐河律师: 转发微博<br><br>RE: 舉世矚目！<br><img src="http://ww1.sinaimg.cn/large/006gDkPugw1eyyznw0sm7j30fo0k3whx.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3920079298812316" target="freeweibo-mirror">【浙江乌镇用枪和坦克迎接第二届世界网络大会的召开】 只有1万…</a>
 </h2>
