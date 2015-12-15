@@ -114,7 +114,7 @@
 </h2>
 <p>【勇者斗恶龙】<br><img src="http://ww4.sinaimg.cn/large/53ae0b70jw1eyzhpza3rjj20mp0oj0yr.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3920047087373111" target="freeweibo-mirror">到底谁审判谁[思考] http://t.cn/R4A5DaK…</a>
 </h2>
