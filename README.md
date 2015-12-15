@@ -54,7 +54,7 @@
 </h2>
 <p>呵呵了~这么多干爹出来。。死磕看来应该重判了。。猪队友啊<br><img src="http://ww3.sinaimg.cn/large/c37c67cbgw1eyzlsofhnej20dv0b60ur.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3920093635722732" target="freeweibo-mirror">//@2可器: //@徐文致://@王藝彬時評: //@咪润…</a>
 </h2>
@@ -66,7 +66,7 @@
 </h2>
 <p>这里是乌镇。<br><br>RE: 【浙江乌镇用枪和坦克迎接第二届世界网络大会的召开】 只有1万人口的乌镇，居然进驻两个师，外加特警等警种一共在乌镇的维稳人员4万多人！军队，坦克都进入了乌镇，这是世界互联网大会？还是准备发动世界大战？<br><img src="http://ww4.sinaimg.cn/large/0061hDb9jw1eyzjzznf1zj30c80gftaf.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3920087402176252" target="freeweibo-mirror">帮转500 //@邵明波:演场戏，很贵的。</a>
 </h2>
