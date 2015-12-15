@@ -126,7 +126,7 @@
 </h2>
 <p>SPAM 那天，遇到这样一个病人。 我告诉他，通过检查，发现他有胃炎。他眼神复杂地看了我一会儿，仿佛是我得了什么不可思议的病，然后说道…… http://t.cn/R4Admhf</p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3920333037689822" target="freeweibo-mirror">百名华侨是指中国的？</a>
 </h2>
