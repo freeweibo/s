@@ -60,7 +60,7 @@
 </h2>
 <p>//@2可器: //@徐文致://@王藝彬時評: //@咪润:[围观][围观]//@是我的永远是我的777: //@咪润:宪法只是针对百姓！//@远离55:看看惡政是如何法治的。//@宋朝诗人黄庭坚后人黄美娟: 转发微博<br><br>RE: 舉世矚目！<br><img src="http://ww1.sinaimg.cn/large/006gDkPugw1eyyznw0sm7j30fo0k3whx.jpg"></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3920087846996645" target="freeweibo-mirror">这里是乌镇。</a>
 </h2>
@@ -108,7 +108,7 @@
 </h2>
 <p>SPAM //@提刀探花在缅北:→_→ //@四两拨干片V:→_→//@水门冤案尼克松:→_→//@科罗廖夫:→_→ //@俄罗斯电商:中国对俄罗斯说：你有盾牌你先上。于是就成了今天这样了。。。<br><br>RE: 【勇者斗恶龙】<br><img src="http://ww4.sinaimg.cn/large/53ae0b70jw1eyzhpza3rjj20mp0oj0yr.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3920069870313550" target="freeweibo-mirror">这是在哪个帖子下面的？//@急煞人也: 拍案惊奇！[晕] /…</a>
 </h2>
