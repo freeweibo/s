@@ -60,7 +60,7 @@
 </h2>
 <p>//@张鹤慈:浦案不是没可能轻判或保外就医，真是浦的朋友，就知道他的态度并且配合他：他不认罪但认错。就是他并不想死磕。一些人非把他弄到祭坛上用火考。</p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3920346816328671" target="freeweibo-mirror">简称什么？ //@立场旁观12:他不是国宝，太上皇的国子监。…</a>
 </h2>
@@ -102,13 +102,13 @@
 </h2>
 <p>百名华侨是指中国的？<br><br>RE: 【脱北者网站：朝鲜逮捕百名华侨 中国大使被跟踪】由脱北者经营的“每日朝鲜”（Daily NK）引述消息人士称，朝鲜当局以间谍罪名逮捕了大约100名华侨，被拘人士正在接受朝鲜国家安全保卫部的问话。中国驻朝鲜大使据报也被跟踪调查。Via 南华早报 http://t.cn/R4AnMIc<br><img src="http://ww4.sinaimg.cn/large/4b8bd145jw1ez0amxxt18j20go0bpjta.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3920332567893453" target="freeweibo-mirror">【脱北者网站：朝鲜逮捕百名华侨 中国大使被跟踪】由脱北者经营…</a>
 </h2>
 <p>【脱北者网站：朝鲜逮捕百名华侨 中国大使被跟踪】由脱北者经营的“每日朝鲜”（Daily NK）引述消息人士称，朝鲜当局以间谍罪名逮捕了大约100名华侨，被拘人士正在接受朝鲜国家安全保卫部的问话。中国驻朝鲜大使据报也被跟踪调查。Via 南华早报 http://t.cn/R4AnMIc<br><img src="http://ww4.sinaimg.cn/large/4b8bd145jw1ez0amxxt18j20go0bpjta.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3920316743152245" target="freeweibo-mirror">据说国宝暴露了身份之后是会丢掉饭碗的，或者隐身改行，真的假的…</a>
 </h2>
