@@ -108,13 +108,13 @@
 </h2>
 <p>因为大家都是居民不是公民！ //@于建嵘:为啥？很明确，因为我国宪法规定言论自由是公民的基本权利。<br><br>RE: 不能评论、不能转发。为啥？@于建嵘 @章文的文章 @老--靠<br><img src="http://ww2.sinaimg.cn/large/ad23714bgw1eyz6tbje56j20f00qodji.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3920059477114813" target="freeweibo-mirror">【勇者斗恶龙】</a>
 </h2>
 <p>【勇者斗恶龙】<br><img src="http://ww4.sinaimg.cn/large/53ae0b70jw1eyzhpza3rjj20mp0oj0yr.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3920047087373111" target="freeweibo-mirror">到底谁审判谁[思考] http://t.cn/R4A5DaK…</a>
 </h2>
