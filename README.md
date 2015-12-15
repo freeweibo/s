@@ -78,7 +78,7 @@
 </h2>
 <p>SPAM //@山高路远N: //@中中4世://@见雨听风N://@陆伟民律师:简称什么？//@立场旁观12:他不是国宝，太上皇的国子监//@沉默的羊和狼://@敏奇微博:<br><br>RE: 据说国宝暴露了身份之后是会丢掉饭碗的，或者隐身改行，真的假的？<br><img src="http://ww1.sinaimg.cn/large/7a8590bdjw1ez0b77flngj20df0hsgnd.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3920351316463402" target="freeweibo-mirror">SPAM 常识之微博，请转不评。谢谢！</a>
 </h2>
