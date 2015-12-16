@@ -92,6 +92,12 @@
 <p>
 	<small> ============== 1天前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3920380483810771" target="freeweibo-mirror">英国外交部国务大臣施维尔：“对浦律师的审判让我很不安，对遵守…</a>
+</h2>
+<p>英国外交部国务大臣施维尔：“对浦律师的审判让我很不安，对遵守法律程序进行和平观察的外交官和记者们所遭受的粗暴对待让我很震惊。”</p>
+<p>
+	<small> ============== 1天前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3920360750017009" target="freeweibo-mirror">SPAM 那么高的配置都给你了，你还要怎么样？这是要上天么？</a>
 </h2>
 <p>SPAM 那么高的配置都给你了，你还要怎么样？这是要上天么？<br><br>RE: 已到小米之家维权，不给解决誓不罢休@雷军 @小米公司 @公民大李@林斌_Bin@张剑慧@硬件学堂@王海 http://t.cn/R4Z818x<br><img src="http://ww1.sinaimg.cn/large/d3118cefgw1ez0dlw6z8jj20xc18g468.jpg"></p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3920345620380552" target="freeweibo-mirror">已到小米之家维权，不给解决誓不罢休@雷军 @小米公司 @公民…</a>
 </h2>
 <p>已到小米之家维权，不给解决誓不罢休@雷军 @小米公司 @公民大李@林斌_Bin@张剑慧@硬件学堂@王海 http://t.cn/R4Z818x<br><img src="http://ww1.sinaimg.cn/large/d3118cefgw1ez0dlw6z8jj20xc18g468.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3920344534336127" target="freeweibo-mirror">对此事不敢多言，怕因言获罪。但我总感觉到这天的庭审，同样是在…</a>
-</h2>
-<p>对此事不敢多言，怕因言获罪。但我总感觉到这天的庭审，同样是在审判着我们每一个人的良知。//@观者WWW://@朱孝顶律师: 转发微博<br><br>RE: 【浦案开庭审理未宣判】中国维权律师浦案，昨天在北京市第二中级法院开庭审理，未当庭宣判。浦最后陈述时称，若有些微博用词有些尖刻、粗鲁，伤害到他人，他愿意表示歉意。但他不承认有‘煽动民族仇恨’和‘寻衅滋事’的目的，出于对法律的信仰，他相信法院能够公正判决。 http://t.cn/R4AClWg<br><img src="http://ww4.sinaimg.cn/large/6298156bgw1ez05oz6fbxj20go0b5dgp.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
