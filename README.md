@@ -42,13 +42,13 @@
 </h2>
 <p>来自@何兵<br><img src="http://ww2.sinaimg.cn/large/62bd1eafjw1ez1rknxmpej20riju47wj.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3920756327553328" target="freeweibo-mirror">SPAM //@陆伟民律师: 咱们的大会不要美帝参加[哈哈]</a>
 </h2>
 <p>SPAM //@陆伟民律师: 咱们的大会不要美帝参加[哈哈]<br><br>RE: 世界忽怜网大会，美帝居然没资格参加！[哈哈]</p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3920754339176758" target="freeweibo-mirror">SPAM 呵呵 //@文闪娃:[哈哈] //@西韩租客:“咀…</a>
 </h2>
@@ -72,7 +72,7 @@
 </h2>
 <p>世界忽怜网大会，美帝居然没资格参加！[哈哈]</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3920685598611753" target="freeweibo-mirror">【习近平提出全球互联网变革四原则】</a>
 </h2>
