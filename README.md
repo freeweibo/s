@@ -24,7 +24,7 @@
 </h2>
 <p>一个强盗惯犯，有什么资格谈人权，对其他国家的审判指手画脚。有多远滚多远。//@xzww2012:说不如做：①英国先支持苏格兰北爱尔兰独立民主，②归还从中国圆明园抢去的财宝。③为前些日子伦敦民主运动上了政府黑名单的英国公民平反！<br><br>RE: 英国外交部国务大臣施维尔：“对浦律师的审判让我很不安，对遵守法律程序进行和平观察的外交官和记者们所遭受的粗暴对待让我很震惊。”</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3920638646983879" target="freeweibo-mirror">SPAM 【直通乌镇 习近平：凡益之道，与时偕行】</a>
 </h2>
@@ -54,7 +54,7 @@
 </h2>
 <p>SPAM 幽默<br><br>RE: 以前不知道Facebook在哪里，是一本什么书，原来就在中国的乌镇。中国现在要建网络强国了。<br><img src="http://ww4.sinaimg.cn/large/005XsazYjw1ez19m2qvd1j30ch0m8tad.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3920619294626374" target="freeweibo-mirror">SPAM  //@何葆国:我国极富娱乐精神//@侯虹斌: 非…</a>
 </h2>
