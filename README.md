@@ -50,6 +50,12 @@
 <p>
 	<small> ============== 1天前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3920418525956236" target="freeweibo-mirror">没有转发键，只好截图！</a>
+</h2>
+<p>没有转发键，只好截图！<br><img src="http://ww3.sinaimg.cn/large/006j4qi9jw1ez0myjx26uj30f00qojuf.jpg"></p>
+<p>
+	<small> ============== 1天前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3920415610673186" target="freeweibo-mirror">今天收到了一盒神奇的东西[偷笑]想来一口#星球大战牛奶#，唤…</a>
 </h2>
 <p>今天收到了一盒神奇的东西[偷笑]想来一口#星球大战牛奶#，唤醒你的原力？戳这里 http://t.cn/R4zTGoH<br><img src="http://ww3.sinaimg.cn/large/68160971jw1ez0mlv41hyj20m80go0vb.jpg"></p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3920340780073327" target="freeweibo-mirror">请看这些丑恶的嘴脸 //@敏奇微博:转发微博</a>
 </h2>
 <p>请看这些丑恶的嘴脸 //@敏奇微博:转发微博<br><br>RE: 据说国宝暴露了身份之后是会丢掉饭碗的，或者隐身改行，真的假的？<br><img src="http://ww1.sinaimg.cn/large/7a8590bdjw1ez0b77flngj20df0hsgnd.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3920338611872616" target="freeweibo-mirror">SPAM 那天，遇到这样一个病人。 我告诉他，通过检查，发现…</a>
-</h2>
-<p>SPAM 那天，遇到这样一个病人。 我告诉他，通过检查，发现他有胃炎。他眼神复杂地看了我一会儿，仿佛是我得了什么不可思议的病，然后说道…… http://t.cn/R4Admhf</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
