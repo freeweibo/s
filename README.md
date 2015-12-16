@@ -42,7 +42,7 @@
 </h2>
 <p>SPAM 呵呵 //@文闪娃:[哈哈] //@西韩租客:“咀嚼被边缘化的孤独”之后，南華早报便感受到了祖国的温暖。//@文闪娃: 理虧心虛吧？//@流浪____：南华已经删了[汗]<br><br>RE: 雄視天下的環球時報 [good] Vs 不識抬舉的南華早報。[弱]<br><img src="http://ww4.sinaimg.cn/large/006k3GOWjw1ez1gwqc9rcj30hs0vkgqa.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3920751851429712" target="freeweibo-mirror">SPAM 互联网大会可不是局域网大会。</a>
 </h2>
@@ -96,7 +96,7 @@
 </h2>
 <p>浦案律师的最后陈词</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3920638646983879" target="freeweibo-mirror">SPAM 【直通乌镇 习近平：凡益之道，与时偕行】</a>
 </h2>
