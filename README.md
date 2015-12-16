@@ -24,7 +24,7 @@
 </h2>
 <p>SPAM 幽默<br><br>RE: 以前不知道Facebook在哪里，是一本什么书，原来就在中国的乌镇。中国现在要建网络强国了。<br><img src="http://ww4.sinaimg.cn/large/005XsazYjw1ez19m2qvd1j30ch0m8tad.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3920619294626374" target="freeweibo-mirror">SPAM  //@何葆国:我国极富娱乐精神//@侯虹斌: 非…</a>
 </h2>
