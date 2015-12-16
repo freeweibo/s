@@ -24,7 +24,7 @@
 </h2>
 <p>SPAM //@敏奇微博: //@围博戏剧协会主-席://@礼江美鱼: //@济世安民2016://@表志W历阳光的祖宗:[鲜花][微风]//@燕歌一别://@三教_布衣://@礼江美鱼://@独狼血恨:[话筒][话筒][话筒] //@原创作者V:别再沉默//@三少爷的微笑Y: [话筒][话筒]//@福建孙涛:[话筒][话筒]<br><br>RE: 没有转发键，只好截图！<br><img src="http://ww3.sinaimg.cn/large/006j4qi9jw1ez0myjx26uj30f00qojuf.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3920480299467813" target="freeweibo-mirror">SPAM [来][来]</a>
 </h2>
