@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3920638646983879" target="freeweibo-mirror">SPAM 【直通乌镇 习近平：凡益之道，与时偕行】</a>
+</h2>
+<p>SPAM 【直通乌镇 习近平：凡益之道，与时偕行】<br><br>RE: #互联网大会#【直通乌镇 习近平：凡益之道，与时偕行】习近平指出，互联网虽然无形，但运用互联网的人们都是有形的，互联网是人类的共同家园。让这个家园更美丽、更干净、更安全，是国际社会的共同责任。让我们携起手来，共同推动网络空间互联互通、共享共治、为开创人类发展更加美好的未来助力！<br><img src="http://ww2.sinaimg.cn/large/9e5389bbjw1ez1c72ccv3j21kw0w077f.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3920620389406810" target="freeweibo-mirror">SPAM 幽默</a>
 </h2>
 <p>SPAM 幽默<br><br>RE: 以前不知道Facebook在哪里，是一本什么书，原来就在中国的乌镇。中国现在要建网络强国了。<br><img src="http://ww4.sinaimg.cn/large/005XsazYjw1ez19m2qvd1j30ch0m8tad.jpg"></p>
@@ -30,7 +36,7 @@
 </h2>
 <p>SPAM  //@何葆国:我国极富娱乐精神//@侯虹斌: 非死不可和推特、油管、谷歌都上不了的地方，世界的各大网站很多都上不了的地方，还是开“互联网屏蔽大会”比较好//@玉吅: 也是醉了 //@兔子老愚:在一个阉割互联网精神的国度开互联网大会，真有脸。</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3920618606944975" target="freeweibo-mirror">老张又胡扯了，自由是有限度的，行驶自由的时候不能损害国家和其…</a>
 </h2>
@@ -42,7 +48,7 @@
 </h2>
 <p>台大教授颜元叔:“当西方人对你翘起拇指叫好时，你已是一个不折不扣的卖国贼！”：http://t.cn/RvUPFxA 在“一个竞争白热化的世界，就是要建设，要成就”，讲求“个人。。”，“必然蚁群四散，永远建不成任何东西”！警惕“自由民主”口号被用来“制造我们的内在矛盾，让我们自己互相抵消”。<br><br>RE: 英国外交部国务大臣施维尔：“对浦律师的审判让我很不安，对遵守法律程序进行和平观察的外交官和记者们所遭受的粗暴对待让我很震惊。”</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3920586944345650" target="freeweibo-mirror">SPAM //@敏奇微博: //@围博戏剧协会主-席://@…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3920358824216516" target="freeweibo-mirror">SPAM //@山高路远N: //@中中4世://@见雨听风…</a>
 </h2>
 <p>SPAM //@山高路远N: //@中中4世://@见雨听风N://@陆伟民律师:简称什么？//@立场旁观12:他不是国宝，太上皇的国子监//@沉默的羊和狼://@敏奇微博:<br><br>RE: 据说国宝暴露了身份之后是会丢掉饭碗的，或者隐身改行，真的假的？<br><img src="http://ww1.sinaimg.cn/large/7a8590bdjw1ez0b77flngj20df0hsgnd.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3920351316463402" target="freeweibo-mirror">SPAM 常识之微博，请转不评。谢谢！</a>
-</h2>
-<p>SPAM 常识之微博，请转不评。谢谢！<br><br>RE: 岳西翠兰，乃产于安徽大别山名茶。如此常识之微博，请转不评。谢谢！<br><img src="http://ww4.sinaimg.cn/large/005Htocfjw1eyy78uu6ncj30lb1qce81.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
