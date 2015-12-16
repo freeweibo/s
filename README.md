@@ -20,6 +20,18 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3920620389406810" target="freeweibo-mirror">SPAM 幽默</a>
+</h2>
+<p>SPAM 幽默<br><br>RE: 以前不知道Facebook在哪里，是一本什么书，原来就在中国的乌镇。中国现在要建网络强国了。<br><img src="http://ww4.sinaimg.cn/large/005XsazYjw1ez19m2qvd1j30ch0m8tad.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3920619294626374" target="freeweibo-mirror">SPAM  //@何葆国:我国极富娱乐精神//@侯虹斌: 非…</a>
+</h2>
+<p>SPAM  //@何葆国:我国极富娱乐精神//@侯虹斌: 非死不可和推特、油管、谷歌都上不了的地方，世界的各大网站很多都上不了的地方，还是开“互联网屏蔽大会”比较好//@玉吅: 也是醉了 //@兔子老愚:在一个阉割互联网精神的国度开互联网大会，真有脸。</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3920589075405225" target="freeweibo-mirror">台大教授颜元叔:“当西方人对你翘起拇指叫好时，你已是一个不折…</a>
 </h2>
 <p>台大教授颜元叔:“当西方人对你翘起拇指叫好时，你已是一个不折不扣的卖国贼！”：http://t.cn/RvUPFxA 在“一个竞争白热化的世界，就是要建设，要成就”，讲求“个人。。”，“必然蚁群四散，永远建不成任何东西”！警惕“自由民主”口号被用来“制造我们的内在矛盾，让我们自己互相抵消”。<br><br>RE: 英国外交部国务大臣施维尔：“对浦律师的审判让我很不安，对遵守法律程序进行和平观察的外交官和记者们所遭受的粗暴对待让我很震惊。”</p>
@@ -125,18 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3920347478401375" target="freeweibo-mirror">//@张鹤慈:浦案不是没可能轻判或保外就医，真是浦的朋友，就…</a>
 </h2>
 <p>//@张鹤慈:浦案不是没可能轻判或保外就医，真是浦的朋友，就知道他的态度并且配合他：他不认罪但认错。就是他并不想死磕。一些人非把他弄到祭坛上用火考。</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3920346816328671" target="freeweibo-mirror">简称什么？ //@立场旁观12:他不是国宝，太上皇的国子监。…</a>
-</h2>
-<p>简称什么？ //@立场旁观12:他不是国宝，太上皇的国子监。简称： //@沉默的羊和狼: //@敏奇微博: 转发微博<br><br>RE: 据说国宝暴露了身份之后是会丢掉饭碗的，或者隐身改行，真的假的？<br><img src="http://ww1.sinaimg.cn/large/7a8590bdjw1ez0b77flngj20df0hsgnd.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3920345620380552" target="freeweibo-mirror">已到小米之家维权，不给解决誓不罢休@雷军 @小米公司 @公民…</a>
-</h2>
-<p>已到小米之家维权，不给解决誓不罢休@雷军 @小米公司 @公民大李@林斌_Bin@张剑慧@硬件学堂@王海 http://t.cn/R4Z818x<br><img src="http://ww1.sinaimg.cn/large/d3118cefgw1ez0dlw6z8jj20xc18g468.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
