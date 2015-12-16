@@ -60,7 +60,7 @@
 </h2>
 <p>SPAM 互联网大会可不是局域网大会。</p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3920736022166675" target="freeweibo-mirror">什么奴才语言！//@石头猪子:这是什么辩护词？法庭上讲这番话…</a>
 </h2>
