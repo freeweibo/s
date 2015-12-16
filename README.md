@@ -42,7 +42,7 @@
 </h2>
 <p>世界忽怜网大会，美帝居然没资格参加！[哈哈]</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3920685598611753" target="freeweibo-mirror">【习近平提出全球互联网变革四原则】</a>
 </h2>
