@@ -36,7 +36,7 @@
 </h2>
 <p>SPAM //@陆伟民律师: 咱们的大会不要美帝参加[哈哈]<br><br>RE: 世界忽怜网大会，美帝居然没资格参加！[哈哈]</p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3920754339176758" target="freeweibo-mirror">SPAM 呵呵 //@文闪娃:[哈哈] //@西韩租客:“咀…</a>
 </h2>
