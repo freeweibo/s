@@ -84,7 +84,7 @@
 </h2>
 <p>雄視天下的環球時報 [good] Vs 不識抬舉的南華早報。[弱]<br><img src="http://ww4.sinaimg.cn/large/006k3GOWjw1ez1gwqc9rcj30hs0vkgqa.jpg"></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3920676597778531" target="freeweibo-mirror">#世界互联网大会#【习近平提出全球互联网变革四原则】习近平表…</a>
 </h2>
