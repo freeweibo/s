@@ -32,6 +32,12 @@
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3920676597778531" target="freeweibo-mirror">#世界互联网大会#【习近平提出全球互联网变革四原则】习近平表…</a>
+</h2>
+<p>#世界互联网大会#【习近平提出全球互联网变革四原则】习近平表示，世界范围内侵害个人隐私、侵犯知识产权、网络犯罪等时有发生，网络监听、网络攻击、网络恐怖主义活动等成为全球公害。推进全球互联网治理体系的变革，应坚持四原则：①尊重网络主权②维护和平安全③促进开放合作④构建良好秩序。<br><img src="http://ww2.sinaimg.cn/large/61e6c012gw1ez1gl33nbgj20kp0fhmyw.jpg"></p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3920638646983879" target="freeweibo-mirror">SPAM 【直通乌镇 习近平：凡益之道，与时偕行】</a>
 </h2>
 <p>SPAM 【直通乌镇 习近平：凡益之道，与时偕行】<br><br>RE: #互联网大会#【直通乌镇 习近平：凡益之道，与时偕行】习近平指出，互联网虽然无形，但运用互联网的人们都是有形的，互联网是人类的共同家园。让这个家园更美丽、更干净、更安全，是国际社会的共同责任。让我们携起手来，共同推动网络空间互联互通、共享共治、为开创人类发展更加美好的未来助力！<br><img src="http://ww2.sinaimg.cn/large/9e5389bbjw1ez1c72ccv3j21kw0w077f.jpg"></p>
@@ -48,13 +54,13 @@
 </h2>
 <p>是老百姓能受惠的经济就好<br><br>RE: #世界互联网大会#习近平：当前，世界经济复苏艰难曲折，中国经济也面临着一定下行压力。解决这些问题，关键在于坚持创新驱动发展，开拓发展新境界。中国正在实施“互联网+”行动计划，推进“数字中国”建设，发展分享经济，支持基于互联网的各类创新，提高发展质量和效益。直播：http://t.cn/R4zwwiq<br><img src="http://ww1.sinaimg.cn/large/61e89b74jw1ez1beu3knyj20j50e0tb0.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3920631445426835" target="freeweibo-mirror">#世界互联网大会#习近平：当前，世界经济复苏艰难曲折，中国经…</a>
 </h2>
 <p>#世界互联网大会#习近平：当前，世界经济复苏艰难曲折，中国经济也面临着一定下行压力。解决这些问题，关键在于坚持创新驱动发展，开拓发展新境界。中国正在实施“互联网+”行动计划，推进“数字中国”建设，发展分享经济，支持基于互联网的各类创新，提高发展质量和效益。直播：http://t.cn/R4zwwiq<br><img src="http://ww1.sinaimg.cn/large/61e89b74jw1ez1beu3knyj20j50e0tb0.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3920620389406810" target="freeweibo-mirror">SPAM 幽默</a>
 </h2>
@@ -84,7 +90,7 @@
 </h2>
 <p>SPAM //@敏奇微博: //@围博戏剧协会主-席://@礼江美鱼: //@济世安民2016://@表志W历阳光的祖宗:[鲜花][微风]//@燕歌一别://@三教_布衣://@礼江美鱼://@独狼血恨:[话筒][话筒][话筒] //@原创作者V:别再沉默//@三少爷的微笑Y: [话筒][话筒]//@福建孙涛:[话筒][话筒]<br><br>RE: 没有转发键，只好截图！<br><img src="http://ww3.sinaimg.cn/large/006j4qi9jw1ez0myjx26uj30f00qojuf.jpg"></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3920586008769868" target="freeweibo-mirror">互联网大会都开了两届了，微博还是半死不活的。互联网的精神是自…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3920415610673186" target="freeweibo-mirror">今天收到了一盒神奇的东西[偷笑]想来一口#星球大战牛奶#，唤…</a>
 </h2>
 <p>今天收到了一盒神奇的东西[偷笑]想来一口#星球大战牛奶#，唤醒你的原力？戳这里 http://t.cn/R4zTGoH<br><img src="http://ww3.sinaimg.cn/large/68160971jw1ez0mlv41hyj20m80go0vb.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3920415250389935" target="freeweibo-mirror">朝鲜人民有什么资格干涉我国内政？你说！</a>
-</h2>
-<p>朝鲜人民有什么资格干涉我国内政？你说！<br><br>RE: 国际油价跌破40美元，你们的油价不接轨了。理由是尾气是雾霾重要成因，抑制石油消费，改善空气质量。我不明白，夏天也是那么多车，怎么没有雾霾？如果说雾霾因为车太多造成，美国的车更多，日本的车密度更大，他们怎么就没那么多雾霾？冬季取暖烧低质煤，再用高油价来治雾霾，这是我听过最好笑的笑话。<br><img src="http://ww3.sinaimg.cn/large/a8ef5277jw1ez0kd6ey5ij20yi0vbgop.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
