@@ -54,7 +54,7 @@
 </h2>
 <p>我靠 怎么小日本什么都知道<br><img src="http://ww3.sinaimg.cn/large/006i3WKDjw1ez2ot884gdj30jz0sxdix.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3921051618411068" target="freeweibo-mirror">在局域网内开互联网大会，告诫互联网要尊重局域网规则。//@徐…</a>
 </h2>
