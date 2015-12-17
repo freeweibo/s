@@ -32,6 +32,12 @@
 <p>
 	<small> ============== 1小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3920981221009259" target="freeweibo-mirror">[衰]//@江荣生: 没有监督，酷刑免不了 //@况秀猛:支…</a>
+</h2>
+<p>[衰]//@江荣生: 没有监督，酷刑免不了 //@况秀猛:支持 //@赵克罗:当事人称受刑讯逼供，而中国政府宣称没有酷刑，我觉得应该成立相对独立的由各界包括外媒组成第三方小组进行调查，以还中国公安司法的清白嘛，大家说如何？<br><br>RE: 【中国82岁作家铁流指称警方酷刑折磨】<br><img src="http://ww2.sinaimg.cn/large/00650DlOjw1ez1teca7d9j30c63a7kjl.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3920964746132767" target="freeweibo-mirror">//@二子他爹2006:转发微博</a>
 </h2>
 <p>//@二子他爹2006:转发微博<br><br>RE: 抓了之后再找证据，一个罪名不成立，就换一个再找。反正总会找一个罪名给你定罪，证明我抓人的正确性。在此期间，不经审判，长期羁押。我不懂法律，但也知道，这样做，绝对违法法治精神。</p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3920679394654749" target="freeweibo-mirror">雄視天下的環球時報 [good] Vs 不識抬舉的南華早報。…</a>
 </h2>
 <p>雄視天下的環球時報 [good] Vs 不識抬舉的南華早報。[弱]<br><img src="http://ww4.sinaimg.cn/large/006k3GOWjw1ez1gwqc9rcj30hs0vkgqa.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3920676597778531" target="freeweibo-mirror">#世界互联网大会#【习近平提出全球互联网变革四原则】习近平表…</a>
-</h2>
-<p>#世界互联网大会#【习近平提出全球互联网变革四原则】习近平表示，世界范围内侵害个人隐私、侵犯知识产权、网络犯罪等时有发生，网络监听、网络攻击、网络恐怖主义活动等成为全球公害。推进全球互联网治理体系的变革，应坚持四原则：①尊重网络主权②维护和平安全③促进开放合作④构建良好秩序。<br><img src="http://ww2.sinaimg.cn/large/61e6c012gw1ez1gl33nbgj20kp0fhmyw.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
