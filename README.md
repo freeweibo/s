@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3921278752284158" target="freeweibo-mirror">我是懦夫，我转发//@马上的仟毛:中国人权状况的进步，90%…</a>
+</h2>
+<p>我是懦夫，我转发//@马上的仟毛:中国人权状况的进步，90%的功劳来自美欧澳日等文明世界的NGO、议会、政府、媒体对中共施加的压力；9%来自正在牢里或正在通向牢房路上的勇士们和义人们；1%来自我们懦夫的转发。</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3921175824409224" target="freeweibo-mirror">//@江苏男律师:政治不自信的表现 ----------- …</a>
 </h2>
 <p>//@江苏男律师:政治不自信的表现 ----------- 根源是倒行逆施，见不得人，所以动用警察对旁听者动粗。<br><br>RE: 【英国批评中国粗暴对待英外交官和记者】英国外交官和记者在试图旁听和报道中国知名维权律师浦志强在北京受审时遭到粗暴推搡，英国方面就此罕见地批评了中国当局。http://t.cn/R4LpSf8<br><img src="http://ww3.sinaimg.cn/large/6538fd8cjw1ez2ubfucusj20go09ewf2.jpg"></p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3920963403770371" target="freeweibo-mirror">此分析靠谱！</a>
 </h2>
 <p>此分析靠谱！<br><img src="http://ww1.sinaimg.cn/large/c6477a12gw1ez2djd88hhj20hs0fxq58.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3920962708026070" target="freeweibo-mirror">乌镇特设可 FQ的上网账号：中国正在乌镇举行第二届世界互联网…</a>
-</h2>
-<p>乌镇特设可 FQ的上网账号：中国正在乌镇举行第二届世界互联网大会。到大会采访的媒体将会收到一部X米手机和一套特殊的上网用户名和密码。以该账户登录专用无线网络，可以自由访问被屏蔽的境外社交和新闻网站，包括Facebook和Twitter。(@Solidot)<br><img src="http://ww4.sinaimg.cn/large/6106a4f0gw1ez2dgcaj6mj20hs0dcmzh.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
