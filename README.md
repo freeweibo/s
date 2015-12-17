@@ -60,7 +60,7 @@
 </h2>
 <p>求证？</p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3920990758800067" target="freeweibo-mirror">“我就是喜欢看你们不得不翻墙但又不得不和我一起建设有中国特色…</a>
 </h2>
@@ -84,7 +84,7 @@
 </h2>
 <p>SPAM #家驹周一见#永远的兄弟情义，永远的海阔天空！[爱你]<br><img src="http://ww2.sinaimg.cn/large/6f59401ajw1ez2fxln8sbj20gj0fp75d.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3920983662383564" target="freeweibo-mirror">//@陈业文新大都:[衰]//@江荣生: 没有监督，酷刑免不…</a>
 </h2>
