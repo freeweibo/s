@@ -90,7 +90,7 @@
 </h2>
 <p>此分析靠谱！<br><img src="http://ww1.sinaimg.cn/large/c6477a12gw1ez2djd88hhj20hs0fxq58.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3920959805395793" target="freeweibo-mirror">在法律面前人人平等，就是周永康那样的国家领导人犯法也一样要受…</a>
 </h2>
