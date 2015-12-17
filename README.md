@@ -30,7 +30,7 @@
 </h2>
 <p>SPAM //@寂寂--无名: [吃惊]<br><br>RE: 我靠 怎么小日本什么都知道<br><img src="http://ww3.sinaimg.cn/large/006i3WKDjw1ez2ot884gdj30jz0sxdix.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3921109504604931" target="freeweibo-mirror">【英国批评中国粗暴对待英外交官和记者】英国外交官和记者在试图…</a>
 </h2>
