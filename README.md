@@ -24,7 +24,7 @@
 </h2>
 <p>SPAM //@寂寂--无名: [吃惊]<br><br>RE: 我靠 怎么小日本什么都知道<br><img src="http://ww3.sinaimg.cn/large/006i3WKDjw1ez2ot884gdj30jz0sxdix.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3921087261569250" target="freeweibo-mirror">//@陈业文新大都://@老邱微博士: 沿街住户窗门都通知要…</a>
 </h2>
