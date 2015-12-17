@@ -54,7 +54,7 @@
 </h2>
 <p>我靠 怎么小日本什么都知道<br><img src="http://ww3.sinaimg.cn/large/006i3WKDjw1ez2ot884gdj30jz0sxdix.jpg"></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3921051618411068" target="freeweibo-mirror">在局域网内开互联网大会，告诫互联网要尊重局域网规则。//@徐…</a>
 </h2>
@@ -66,7 +66,7 @@
 </h2>
 <p>[哈哈]//@琢儿他爹: 介尼玛寺嘛四儿啊！//@熊妈go: //@静娅_:世界互联网大会，集体翻墙！SO壮观！[哈哈]//@王健_经济金融科普: 这个太讽刺了[汗]<br><br>RE: 乌镇特设可 FQ的上网账号：中国正在乌镇举行第二届世界互联网大会。到大会采访的媒体将会收到一部X米手机和一套特殊的上网用户名和密码。以该账户登录专用无线网络，可以自由访问被屏蔽的境外社交和新闻网站，包括Facebook和Twitter。(@Solidot)<br><img src="http://ww4.sinaimg.cn/large/6106a4f0gw1ez2dgcaj6mj20hs0dcmzh.jpg"></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3921016324049943" target="freeweibo-mirror">【乌镇世界互联网大会 上网出现“不通”尴尬】第二届世界互联网…</a>
 </h2>
