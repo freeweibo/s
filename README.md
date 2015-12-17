@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3921051618411068" target="freeweibo-mirror">在局域网内开互联网大会，告诫互联网要尊重局域网规则。//@徐…</a>
+</h2>
+<p>在局域网内开互联网大会，告诫互联网要尊重局域网规则。//@徐昕: //@章诒和/@谢文:在景区客栈下榻的境外记者分一张专属上网卡，连接无线网后输入账户名密码，可不用翻墙上外网，直接打开面簿、谷歌、Gmail等，且网速很快。在景区外酒店住宿的记者和嘉宾，不翻墙还是打不开上述在中国境内被屏蔽的网站</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3920994806601974" target="freeweibo-mirror">SPAM  //@章江论坛: //@张岩:姨，马云呢？ //…</a>
 </h2>
 <p>SPAM  //@章江论坛: //@张岩:姨，马云呢？ //@来去之间:→_→  //@曹国伟:在听了若干年后终于吃到了丁丁养的猪，俺鸡冻了半天！<br><br>RE: 晚上的乌镇互联网峰会。大家品尝了丁磊自己养的猪肉，螃蟹，绍兴黄酒。马化腾最能喝最能劝酒。张磊和张朝阳@搜狐charles 大谈养身之道。@曹国伟 揭密他当年如何错失雅虎（杨致远）[笑哈哈] @梁建章-关注人口问题 @张亚勤 #世界互联网大会#<br><img src="http://ww3.sinaimg.cn/large/005PSGs1jw1ez1ykb6hetj344g2bie84.jpg"></p>
@@ -42,7 +48,7 @@
 </h2>
 <p>即使这几天在乌镇，中国人也是在墙内的，只有海外来宾才有免于翻墙的特权，每个海外来宾送一个小米手机，上面有一个账户和密码，可以畅游墙外。<br><img src="http://ww4.sinaimg.cn/large/0062Xwthjw1ez2gkzpzmhj30b406vgln.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3920986967357904" target="freeweibo-mirror">SPAM 姨，马云呢？ //@来去之间:→_→  //@曹国…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3920772240098818" target="freeweibo-mirror">来自@何兵</a>
 </h2>
 <p>来自@何兵<br><img src="http://ww2.sinaimg.cn/large/62bd1eafjw1ez1rknxmpej20riju47wj.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3920756327553328" target="freeweibo-mirror">SPAM //@陆伟民律师: 咱们的大会不要美帝参加[哈哈]</a>
-</h2>
-<p>SPAM //@陆伟民律师: 咱们的大会不要美帝参加[哈哈]<br><br>RE: 世界忽怜网大会，美帝居然没资格参加！[哈哈]</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
