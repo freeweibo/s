@@ -42,7 +42,7 @@
 </h2>
 <p>即使这几天在乌镇，中国人也是在墙内的，只有海外来宾才有免于翻墙的特权，每个海外来宾送一个小米手机，上面有一个账户和密码，可以畅游墙外。<br><img src="http://ww4.sinaimg.cn/large/0062Xwthjw1ez2gkzpzmhj30b406vgln.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3920986967357904" target="freeweibo-mirror">SPAM 姨，马云呢？ //@来去之间:→_→  //@曹国…</a>
 </h2>
