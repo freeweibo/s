@@ -72,7 +72,7 @@
 </h2>
 <p>即使这几天在乌镇，中国人也是在墙内的，只有海外来宾才有免于翻墙的特权，每个海外来宾送一个小米手机，上面有一个账户和密码，可以畅游墙外。<br><img src="http://ww4.sinaimg.cn/large/0062Xwthjw1ez2gkzpzmhj30b406vgln.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3920986967357904" target="freeweibo-mirror">SPAM 姨，马云呢？ //@来去之间:→_→  //@曹国…</a>
 </h2>
@@ -96,7 +96,7 @@
 </h2>
 <p>[衰]//@江荣生: 没有监督，酷刑免不了 //@况秀猛:支持 //@赵克罗:当事人称受刑讯逼供，而中国政府宣称没有酷刑，我觉得应该成立相对独立的由各界包括外媒组成第三方小组进行调查，以还中国公安司法的清白嘛，大家说如何？<br><br>RE: 【中国82岁作家铁流指称警方酷刑折磨】<br><img src="http://ww2.sinaimg.cn/large/00650DlOjw1ez1teca7d9j30c63a7kjl.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3920964746132767" target="freeweibo-mirror">//@二子他爹2006:转发微博</a>
 </h2>
