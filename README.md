@@ -74,6 +74,12 @@
 <p>
 	<small> ============== 5小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3920963403770371" target="freeweibo-mirror">此分析靠谱！</a>
+</h2>
+<p>此分析靠谱！<br><img src="http://ww1.sinaimg.cn/large/c6477a12gw1ez2djd88hhj20hs0fxq58.jpg"></p>
+<p>
+	<small> ============== 5小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3920959805395793" target="freeweibo-mirror">在法律面前人人平等，就是周永康那样的国家领导人犯法也一样要受…</a>
 </h2>
 <p>在法律面前人人平等，就是周永康那样的国家领导人犯法也一样要受到法律惩罚，律师犯法与民同罪，浦志强有没有罪，有决定权的是法院，而不是张教授，尤其是不懂法律的张教授，尤其是不懂法律还信口雌黄的张教授。浦志强的羁押时间符合法律规定，没有任何可指责之处。<br><br>RE: 抓了之后再找证据，一个罪名不成立，就换一个再找。反正总会找一个罪名给你定罪，证明我抓人的正确性。在此期间，不经审判，长期羁押。我不懂法律，但也知道，这样做，绝对违法法治精神。</p>
@@ -95,6 +101,12 @@
 	<a href="https://freeweibo.com/weibo/3920834530315524" target="freeweibo-mirror">晚上的乌镇互联网峰会。大家品尝了丁磊自己养的猪肉，螃蟹，绍兴…</a>
 </h2>
 <p>晚上的乌镇互联网峰会。大家品尝了丁磊自己养的猪肉，螃蟹，绍兴黄酒。马化腾最能喝最能劝酒。张磊和张朝阳@搜狐charles 大谈养身之道。@曹国伟 揭密他当年如何错失雅虎（杨致远）[笑哈哈] @梁建章-关注人口问题 @张亚勤 #世界互联网大会#<br><img src="http://ww3.sinaimg.cn/large/005PSGs1jw1ez1ykb6hetj344g2bie84.jpg"></p>
+<p>
+	<small> ============== 1天前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3920823654012406" target="freeweibo-mirror">封锁网络，切断信息，是对知情权践踏，对互联网的亵渎，对科学知…</a>
+</h2>
+<p>封锁网络，切断信息，是对知情权践踏，对互联网的亵渎，对科学知识的废弃。</p>
 <p>
 	<small> ============== 1天前</small>
 </p><h2>
@@ -125,18 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3920756327553328" target="freeweibo-mirror">SPAM //@陆伟民律师: 咱们的大会不要美帝参加[哈哈]</a>
 </h2>
 <p>SPAM //@陆伟民律师: 咱们的大会不要美帝参加[哈哈]<br><br>RE: 世界忽怜网大会，美帝居然没资格参加！[哈哈]</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3920754339176758" target="freeweibo-mirror">SPAM 呵呵 //@文闪娃:[哈哈] //@西韩租客:“咀…</a>
-</h2>
-<p>SPAM 呵呵 //@文闪娃:[哈哈] //@西韩租客:“咀嚼被边缘化的孤独”之后，南華早报便感受到了祖国的温暖。//@文闪娃: 理虧心虛吧？//@流浪____：南华已经删了[汗]<br><br>RE: 雄視天下的環球時報 [good] Vs 不識抬舉的南華早報。[弱]<br><img src="http://ww4.sinaimg.cn/large/006k3GOWjw1ez1gwqc9rcj30hs0vkgqa.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3920751851429712" target="freeweibo-mirror">SPAM 互联网大会可不是局域网大会。</a>
-</h2>
-<p>SPAM 互联网大会可不是局域网大会。</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
