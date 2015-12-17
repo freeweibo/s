@@ -42,13 +42,13 @@
 </h2>
 <p>[哈哈]//@琢儿他爹: 介尼玛寺嘛四儿啊！//@熊妈go: //@静娅_:世界互联网大会，集体翻墙！SO壮观！[哈哈]//@王健_经济金融科普: 这个太讽刺了[汗]<br><br>RE: 乌镇特设可 FQ的上网账号：中国正在乌镇举行第二届世界互联网大会。到大会采访的媒体将会收到一部X米手机和一套特殊的上网用户名和密码。以该账户登录专用无线网络，可以自由访问被屏蔽的境外社交和新闻网站，包括Facebook和Twitter。(@Solidot)<br><img src="http://ww4.sinaimg.cn/large/6106a4f0gw1ez2dgcaj6mj20hs0dcmzh.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3921016324049943" target="freeweibo-mirror">【乌镇世界互联网大会 上网出现“不通”尴尬】第二届世界互联网…</a>
 </h2>
 <p>【乌镇世界互联网大会 上网出现“不通”尴尬】第二届世界互联网大会（WIC）昨天在浙江乌镇开幕，中国领导人出行一般“不封路”和马云“让天下没有难做生意”的承诺，都在粉墙黛瓦的江南水乡乌镇，遭遇现实空间的“不通”尴尬。http://t.cn/R4LLhN5</p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3920994806601974" target="freeweibo-mirror">SPAM  //@章江论坛: //@张岩:姨，马云呢？ //…</a>
 </h2>
@@ -108,13 +108,13 @@
 </h2>
 <p>此分析靠谱！<br><img src="http://ww1.sinaimg.cn/large/c6477a12gw1ez2djd88hhj20hs0fxq58.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3920962708026070" target="freeweibo-mirror">乌镇特设可 FQ的上网账号：中国正在乌镇举行第二届世界互联网…</a>
 </h2>
 <p>乌镇特设可 FQ的上网账号：中国正在乌镇举行第二届世界互联网大会。到大会采访的媒体将会收到一部X米手机和一套特殊的上网用户名和密码。以该账户登录专用无线网络，可以自由访问被屏蔽的境外社交和新闻网站，包括Facebook和Twitter。(@Solidot)<br><img src="http://ww4.sinaimg.cn/large/6106a4f0gw1ez2dgcaj6mj20hs0dcmzh.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3920959805395793" target="freeweibo-mirror">在法律面前人人平等，就是周永康那样的国家领导人犯法也一样要受…</a>
 </h2>
