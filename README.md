@@ -42,7 +42,7 @@
 </h2>
 <p>SPAM //@胡杨麟:浦志强去过日本4次，除了一次正好靖国神社闭馆外，去了靖国神社3次，一般旅游者会这样么。2014年2月14日浦志强在东京大学讲演，看过他的讲稿后（@司马南 微博上有）感觉这人决不是简单维权行政诉讼那样简单。<br><br>RE: 据说谷歌正在疯狂删除这张照片，被删前速看！<br><img src="http://ww4.sinaimg.cn/large/005WsXuHgw1ez2o5cxplfj30c80gdwgk.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3921323959331205" target="freeweibo-mirror">SPAM 浦志强去过日本4次，除了一次正好靖国神社闭馆外，去…</a>
 </h2>
