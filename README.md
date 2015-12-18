@@ -42,7 +42,7 @@
 </h2>
 <p>SPAM 不错哟[good]</p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3921427096701791" target="freeweibo-mirror">1214开庭，彻头彻尾的秘密审判！</a>
 </h2>
