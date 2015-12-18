@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3921332263527262" target="freeweibo-mirror">SPAM 立此为证</a>
+</h2>
+<p>SPAM 立此为证<br><br>RE: 据说谷歌正在疯狂删除这张照片，被删前速看！<br><img src="http://ww4.sinaimg.cn/large/005WsXuHgw1ez2o5cxplfj30c80gdwgk.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3921297304385659" target="freeweibo-mirror">//@Ming_the_Great_大明:愚蠢和谎言之中</a>
 </h2>
 <p>//@Ming_the_Great_大明:愚蠢和谎言之中<br><br>RE: 上海雾霾的根子不在上海，北京雾霾的源头也不在北京，这是小孩子都知道的简浅道理，可上海市政府居然要收上海企业的治霾费，有用吗！北京的市长大人更是发毒誓治理不了提头来见。这些现象其实都反映出公共治理的水平相当落后，官员们看问题想问题的水平很低下。整天让这些人管着，宛如沐浴在愚蠢之中。</p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3920984274725488" target="freeweibo-mirror">SPAM #家驹周一见#永远的兄弟情义，永远的海阔天空！[爱…</a>
 </h2>
 <p>SPAM #家驹周一见#永远的兄弟情义，永远的海阔天空！[爱你]<br><img src="http://ww2.sinaimg.cn/large/6f59401ajw1ez2fxln8sbj20gj0fp75d.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3920983662383564" target="freeweibo-mirror">//@陈业文新大都:[衰]//@江荣生: 没有监督，酷刑免不…</a>
-</h2>
-<p>//@陈业文新大都:[衰]//@江荣生: 没有监督，酷刑免不了 //@况秀猛:支持 //@赵克罗:当事人称受刑讯逼供，而中国政府宣称没有酷刑，我觉得应该成立相对独立的由各界包括外媒组成第三方小组进行调查，以还中国公安司法的清白嘛，大家说如何？<br><br>RE: 【中国82岁作家铁流指称警方酷刑折磨】<br><img src="http://ww2.sinaimg.cn/large/00650DlOjw1ez1teca7d9j30c63a7kjl.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
