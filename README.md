@@ -36,7 +36,7 @@
 </h2>
 <p>SPAM 不错哟[good]</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3921406566169424" target="freeweibo-mirror">SPAM 以为是乌克兰进驻。[汗]</a>
 </h2>
