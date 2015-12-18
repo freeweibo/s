@@ -30,7 +30,13 @@
 </h2>
 <p>SPAM //@胡杨麟:浦志强去过日本4次，除了一次正好靖国神社闭馆外，去了靖国神社3次，一般旅游者会这样么。2014年2月14日浦志强在东京大学讲演，看过他的讲稿后（@司马南 微博上有）感觉这人决不是简单维权行政诉讼那样简单。<br><br>RE: 据说谷歌正在疯狂删除这张照片，被删前速看！<br><img src="http://ww4.sinaimg.cn/large/005WsXuHgw1ez2o5cxplfj30c80gdwgk.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3921323959331205" target="freeweibo-mirror">SPAM 浦志强去过日本4次，除了一次正好靖国神社闭馆外，去…</a>
+</h2>
+<p>SPAM 浦志强去过日本4次，除了一次正好靖国神社闭馆外，去了靖国神社3次，一般旅游者会这样么。2014年2月14日浦志强在东京大学讲演，看过他的讲稿后（@司马南 微博上有）感觉这人决不是简单维权行政诉讼那样简单。<br><br>RE: 据说谷歌正在疯狂删除这张照片，被删前速看！<br><img src="http://ww4.sinaimg.cn/large/005WsXuHgw1ez2o5cxplfj30c80gdwgk.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3921297304385659" target="freeweibo-mirror">//@Ming_the_Great_大明:愚蠢和谎言之中</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3920990758800067" target="freeweibo-mirror">“我就是喜欢看你们不得不翻墙但又不得不和我一起建设有中国特色…</a>
 </h2>
 <p>“我就是喜欢看你们不得不翻墙但又不得不和我一起建设有中国特色社会主义的样子。”//@明海老墨: 这样的互联网大会太逗了</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3920989916247177" target="freeweibo-mirror">即使这几天在乌镇，中国人也是在墙内的，只有海外来宾才有免于翻…</a>
-</h2>
-<p>即使这几天在乌镇，中国人也是在墙内的，只有海外来宾才有免于翻墙的特权，每个海外来宾送一个小米手机，上面有一个账户和密码，可以畅游墙外。<br><img src="http://ww4.sinaimg.cn/large/0062Xwthjw1ez2gkzpzmhj30b406vgln.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
