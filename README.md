@@ -36,7 +36,7 @@
 </h2>
 <p>SPAM 以为是乌克兰进驻。[汗]<br><br>RE: 乌镇进驻两个师部队，外加公安特警等，四万军警布放。图一、持枪特警守衞出入乌镇公路口。图二、四名巡逻的大妈（以前叫“小脚侦缉队”，现在叫“红袖章巡逻队”）守候在一名写稿的记者后。<br><img src="http://ww4.sinaimg.cn/large/51c21d10gw1ez3rqizi8ej20hs0buwfq.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3921400563465878" target="freeweibo-mirror">乌镇进驻两个师部队，外加公安特警等，四万军警布放。图一、持枪…</a>
 </h2>
@@ -72,7 +72,7 @@
 </h2>
 <p>SPAM 浦志强去过日本4次，除了一次正好靖国神社闭馆外，去了靖国神社3次，一般旅游者会这样么。2014年2月14日浦志强在东京大学讲演，看过他的讲稿后（@司马南 微博上有）感觉这人决不是简单维权行政诉讼那样简单。<br><br>RE: 据说谷歌正在疯狂删除这张照片，被删前速看！<br><img src="http://ww4.sinaimg.cn/large/005WsXuHgw1ez2o5cxplfj30c80gdwgk.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3921297304385659" target="freeweibo-mirror">//@Ming_the_Great_大明:愚蠢和谎言之中</a>
 </h2>
