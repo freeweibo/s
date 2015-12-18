@@ -20,11 +20,17 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3921491114871479" target="freeweibo-mirror">//@冯师长:[衰]</a>
+</h2>
+<p>//@冯师长:[衰]<br><br>RE: 网友总结今年最冷的两个笑话：1，局域网国家还开世界互联网大会。2，雾霾产生了新的经济学科叫做雾霾经济。</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3921470448968969" target="freeweibo-mirror">SPAM //@守望者的晨星09://@蛋疼的李帅帅4452…</a>
 </h2>
 <p>SPAM //@守望者的晨星09://@蛋疼的李帅帅44524: //@HK-阿祖:將 internet (international network)改為『中國境內互聯網』目的是把大陸網民限制在一個指定局域，不得與外界接觸！//@五哥放羊40:铁丝网。<br><br>RE: 【问】这以后上外国网站需要办理签证么？[笑cry]<br><img src="http://ww3.sinaimg.cn/large/005PPibGjw1ez2rlrsx6vj30ku1127a7.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3921463020732466" target="freeweibo-mirror">SPAM 不错哟[good]</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3921061571369574" target="freeweibo-mirror">我靠 怎么小日本什么都知道</a>
 </h2>
 <p>我靠 怎么小日本什么都知道<br><img src="http://ww3.sinaimg.cn/large/006i3WKDjw1ez2ot884gdj30jz0sxdix.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3921055804929848" target="freeweibo-mirror">据说谷歌正在疯狂删除这张照片，被删前速看！</a>
-</h2>
-<p>据说谷歌正在疯狂删除这张照片，被删前速看！<br><img src="http://ww4.sinaimg.cn/large/005WsXuHgw1ez2o5cxplfj30c80gdwgk.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
