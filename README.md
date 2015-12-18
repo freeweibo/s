@@ -24,7 +24,7 @@
 </h2>
 <p>//@冯师长:[衰]<br><br>RE: 网友总结今年最冷的两个笑话：1，局域网国家还开世界互联网大会。2，雾霾产生了新的经济学科叫做雾霾经济。</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3921470448968969" target="freeweibo-mirror">SPAM //@守望者的晨星09://@蛋疼的李帅帅4452…</a>
 </h2>
@@ -48,7 +48,7 @@
 </h2>
 <p>乌镇进驻两个师部队，外加公安特警等，四万军警布放。图一、持枪特警守衞出入乌镇公路口。图二、四名巡逻的大妈（以前叫“小脚侦缉队”，现在叫“红袖章巡逻队”）守候在一名写稿的记者后。<br><img src="http://ww4.sinaimg.cn/large/51c21d10gw1ez3rqizi8ej20hs0buwfq.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3921338777784216" target="freeweibo-mirror">SPAM 发这条微博的时间是：2014年4月14日//@本来…</a>
 </h2>
@@ -66,7 +66,7 @@
 </h2>
 <p>SPAM 立此为证<br><br>RE: 据说谷歌正在疯狂删除这张照片，被删前速看！<br><img src="http://ww4.sinaimg.cn/large/005WsXuHgw1ez2o5cxplfj30c80gdwgk.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3921330946518499" target="freeweibo-mirror">SPAM //@胡杨麟:浦志强去过日本4次，除了一次正好靖国…</a>
 </h2>
