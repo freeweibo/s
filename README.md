@@ -24,13 +24,13 @@
 </h2>
 <p>//@冯师长:[衰]<br><br>RE: 网友总结今年最冷的两个笑话：1，局域网国家还开世界互联网大会。2，雾霾产生了新的经济学科叫做雾霾经济。</p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3921484097255809" target="freeweibo-mirror">SPAM 法治国家！法治社会！[吐][吐]//@川杨河彪彪:…</a>
 </h2>
 <p>SPAM 法治国家！法治社会！[吐][吐]//@川杨河彪彪: //@JtBaSgu: //@中华宪政梦难圆://@少康006://@傅强家园18: 这两天看到海内外不少评论，相信公道自在人心！<br><br>RE: 1214开庭，彻头彻尾的秘密审判！<br><img src="http://ww2.sinaimg.cn/large/006jkHRljw1ez3usion5sj30gm0g9dhi.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3921470448968969" target="freeweibo-mirror">SPAM //@守望者的晨星09://@蛋疼的李帅帅4452…</a>
 </h2>
