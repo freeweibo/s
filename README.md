@@ -30,19 +30,19 @@
 </h2>
 <p>//@Ming_the_Great_大明:愚蠢和谎言之中<br><br>RE: 上海雾霾的根子不在上海，北京雾霾的源头也不在北京，这是小孩子都知道的简浅道理，可上海市政府居然要收上海企业的治霾费，有用吗！北京的市长大人更是发毒誓治理不了提头来见。这些现象其实都反映出公共治理的水平相当落后，官员们看问题想问题的水平很低下。整天让这些人管着，宛如沐浴在愚蠢之中。</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3921297098992210" target="freeweibo-mirror">所有治理，一招：收费！ //@齐河律师://@朱玉华律师:/…</a>
 </h2>
 <p>所有治理，一招：收费！ //@齐河律师://@朱玉华律师://@律师老周401:转发微博<br><br>RE: 上海雾霾的根子不在上海，北京雾霾的源头也不在北京，这是小孩子都知道的简浅道理，可上海市政府居然要收上海企业的治霾费，有用吗！北京的市长大人更是发毒誓治理不了提头来见。这些现象其实都反映出公共治理的水平相当落后，官员们看问题想问题的水平很低下。整天让这些人管着，宛如沐浴在愚蠢之中。</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3921282342764201" target="freeweibo-mirror">上海雾霾的根子不在上海，北京雾霾的源头也不在北京，这是小孩子…</a>
 </h2>
 <p>上海雾霾的根子不在上海，北京雾霾的源头也不在北京，这是小孩子都知道的简浅道理，可上海市政府居然要收上海企业的治霾费，有用吗！北京的市长大人更是发毒誓治理不了提头来见。这些现象其实都反映出公共治理的水平相当落后，官员们看问题想问题的水平很低下。整天让这些人管着，宛如沐浴在愚蠢之中。</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3921278752284158" target="freeweibo-mirror">我是懦夫，我转发//@马上的仟毛:中国人权状况的进步，90%…</a>
 </h2>
@@ -83,6 +83,12 @@
 	<a href="https://freeweibo.com/weibo/3921061571369574" target="freeweibo-mirror">我靠 怎么小日本什么都知道</a>
 </h2>
 <p>我靠 怎么小日本什么都知道<br><img src="http://ww3.sinaimg.cn/large/006i3WKDjw1ez2ot884gdj30jz0sxdix.jpg"></p>
+<p>
+	<small> ============== 1天前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3921055804929848" target="freeweibo-mirror">据说谷歌正在疯狂删除这张照片，被删前速看！</a>
+</h2>
+<p>据说谷歌正在疯狂删除这张照片，被删前速看！<br><img src="http://ww4.sinaimg.cn/large/005WsXuHgw1ez2o5cxplfj30c80gdwgk.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p><h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3920986967357904" target="freeweibo-mirror">SPAM 姨，马云呢？ //@来去之间:→_→  //@曹国…</a>
 </h2>
 <p>SPAM 姨，马云呢？ //@来去之间:→_→  //@曹国伟:在听了若干年后终于吃到了丁丁养的猪，俺鸡冻了半天！<br><br>RE: 晚上的乌镇互联网峰会。大家品尝了丁磊自己养的猪肉，螃蟹，绍兴黄酒。马化腾最能喝最能劝酒。张磊和张朝阳@搜狐charles 大谈养身之道。@曹国伟 揭密他当年如何错失雅虎（杨致远）[笑哈哈] @梁建章-关注人口问题 @张亚勤 #世界互联网大会#<br><img src="http://ww3.sinaimg.cn/large/005PSGs1jw1ez1ykb6hetj344g2bie84.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3920984274725488" target="freeweibo-mirror">SPAM #家驹周一见#永远的兄弟情义，永远的海阔天空！[爱…</a>
-</h2>
-<p>SPAM #家驹周一见#永远的兄弟情义，永远的海阔天空！[爱你]<br><img src="http://ww2.sinaimg.cn/large/6f59401ajw1ez2fxln8sbj20gj0fp75d.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
