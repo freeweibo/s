@@ -36,7 +36,7 @@
 </h2>
 <p>SPAM 立此为证<br><br>RE: 据说谷歌正在疯狂删除这张照片，被删前速看！<br><img src="http://ww4.sinaimg.cn/large/005WsXuHgw1ez2o5cxplfj30c80gdwgk.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3921330946518499" target="freeweibo-mirror">SPAM //@胡杨麟:浦志强去过日本4次，除了一次正好靖国…</a>
 </h2>
