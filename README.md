@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3921338777784216" target="freeweibo-mirror">SPAM 发这条微博的时间是：2014年4月14日//@本来…</a>
+</h2>
+<p>SPAM 发这条微博的时间是：2014年4月14日//@本来我心: //@邱仦剛: 2015年12月14日</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3921332263527262" target="freeweibo-mirror">SPAM 立此为证</a>
 </h2>
 <p>SPAM 立此为证<br><br>RE: 据说谷歌正在疯狂删除这张照片，被删前速看！<br><img src="http://ww4.sinaimg.cn/large/005WsXuHgw1ez2o5cxplfj30c80gdwgk.jpg"></p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3920991703084580" target="freeweibo-mirror">求证？</a>
 </h2>
 <p>求证？</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3920990758800067" target="freeweibo-mirror">“我就是喜欢看你们不得不翻墙但又不得不和我一起建设有中国特色…</a>
-</h2>
-<p>“我就是喜欢看你们不得不翻墙但又不得不和我一起建设有中国特色社会主义的样子。”//@明海老墨: 这样的互联网大会太逗了</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
