@@ -30,7 +30,7 @@
 </h2>
 <p>SPAM 法治国家！法治社会！[吐][吐]//@川杨河彪彪: //@JtBaSgu: //@中华宪政梦难圆://@少康006://@傅强家园18: 这两天看到海内外不少评论，相信公道自在人心！<br><br>RE: 1214开庭，彻头彻尾的秘密审判！<br><img src="http://ww2.sinaimg.cn/large/006jkHRljw1ez3usion5sj30gm0g9dhi.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3921470448968969" target="freeweibo-mirror">SPAM //@守望者的晨星09://@蛋疼的李帅帅4452…</a>
 </h2>
@@ -60,7 +60,7 @@
 </h2>
 <p>乌镇进驻两个师部队，外加公安特警等，四万军警布放。图一、持枪特警守衞出入乌镇公路口。图二、四名巡逻的大妈（以前叫“小脚侦缉队”，现在叫“红袖章巡逻队”）守候在一名写稿的记者后。<br><img src="http://ww4.sinaimg.cn/large/51c21d10gw1ez3rqizi8ej20hs0buwfq.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3921338777784216" target="freeweibo-mirror">SPAM 发这条微博的时间是：2014年4月14日//@本来…</a>
 </h2>
