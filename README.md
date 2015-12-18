@@ -36,7 +36,7 @@
 </h2>
 <p>SPAM //@守望者的晨星09://@蛋疼的李帅帅44524: //@HK-阿祖:將 internet (international network)改為『中國境內互聯網』目的是把大陸網民限制在一個指定局域，不得與外界接觸！//@五哥放羊40:铁丝网。<br><br>RE: 【问】这以后上外国网站需要办理签证么？[笑cry]<br><img src="http://ww3.sinaimg.cn/large/005PPibGjw1ez2rlrsx6vj30ku1127a7.jpg"></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3921463020732466" target="freeweibo-mirror">SPAM 不错哟[good]</a>
 </h2>
