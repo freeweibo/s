@@ -72,7 +72,7 @@
 </h2>
 <p>SPAM 原来假蜂蜜对人体有这么大伤害</p>
 <p>
-	<small> ============== 1天前</small>
+	<small> ============== 2天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3921332263527262" target="freeweibo-mirror">SPAM 立此为证</a>
 </h2>
