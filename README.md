@@ -60,7 +60,7 @@
 </h2>
 <p>乌镇进驻两个师部队，外加公安特警等，四万军警布放。图一、持枪特警守衞出入乌镇公路口。图二、四名巡逻的大妈（以前叫“小脚侦缉队”，现在叫“红袖章巡逻队”）守候在一名写稿的记者后。<br><img src="http://ww4.sinaimg.cn/large/51c21d10gw1ez3rqizi8ej20hs0buwfq.jpg"></p>
 <p>
-	<small> ============== 1天前</small>
+	<small> ============== 2天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3921338777784216" target="freeweibo-mirror">SPAM 发这条微博的时间是：2014年4月14日//@本来…</a>
 </h2>
