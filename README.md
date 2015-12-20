@@ -30,7 +30,7 @@
 </h2>
 <p>还有一个流氓国家//@南山小观音:其他国家好酷</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3922209212568537" target="freeweibo-mirror">//@何葆国://@谓贤: 既然是「永远不会」的，那就只能「…</a>
 </h2>
