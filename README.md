@@ -36,7 +36,7 @@
 </h2>
 <p>这口号喊得整整齐齐的，收益归国家还是归政府了？[汗] //@梦醒马赛港:智商税[哈哈][哈哈]</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3922048365424292" target="freeweibo-mirror">[笑cry]//@来去之间:无语了～//@梁斌penny:邪…</a>
 </h2>
