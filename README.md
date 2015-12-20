@@ -66,7 +66,7 @@
 </h2>
 <p>还有一个流氓国家//@南山小观音:其他国家好酷</p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3922224018561363" target="freeweibo-mirror">【“为人民服务”】油价不降是为了环保，烟草涨价是为了烟民健康…</a>
 </h2>
