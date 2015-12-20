@@ -24,7 +24,7 @@
 </h2>
 <p>某国一直认为那些人都是该死的！ //@老蔡乱评:转发微博<br><br>RE: 历时6年、听取6000多名幸存者及家属证言后，加拿大真相与和解委员会日前公布对百年寄宿教育摧残土著儿童的最终调查报告。总理特鲁多含泪道歉并发表声明，＂作为一个政府也作为一个国家，为这一政策造成巨大伤害恳求全国土著人民的宽恕。＂但某国至今未为建政六十余年来历次政治运动所造成的灾难道歉！<br><img src="http://ww4.sinaimg.cn/large/c57c1a49jw1ez69uybruhj20dw0afaak.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3922262753770289" target="freeweibo-mirror">回复@风雨中2010: 没问题。第一，你实名。第二，我怎么骂…</a>
 </h2>
@@ -114,13 +114,13 @@
 </h2>
 <p>SPAM 呵呵，越来越狗血了，哈哈。看看哪位大大级的狗被咬出来！[doge][挖鼻][笑cry]<br><br>RE: #民调时间#【万科战宝能，他们背后有“赵家人”？】万科宝能控制权争夺战激战正酣，却意外火了 “赵家人”，一篇文章称王石赴港向赵家人求援，网友解释“赵家人”为既得利益者，最早出自鲁迅《阿Q正传》，万科宝能之争背后存在赵家人吗？ http://t.cn/R4U0AdY 戳链接参与调查：http://t.cn/R4UHGZo<br><img src="http://ww4.sinaimg.cn/large/60718250jw1ez640i0fawj20dv0aogm8.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3922139319442321" target="freeweibo-mirror">SPAM 赵家人不是赵姨娘家的人吗？//@北京厨子新号:王石…</a>
 </h2>
 <p>SPAM 赵家人不是赵姨娘家的人吗？//@北京厨子新号:王石就是赵家人。。。。<br><br>RE: #民调时间#【万科战宝能，他们背后有“赵家人”？】万科宝能控制权争夺战激战正酣，却意外火了 “赵家人”，一篇文章称王石赴港向赵家人求援，网友解释“赵家人”为既得利益者，最早出自鲁迅《阿Q正传》，万科宝能之争背后存在赵家人吗？ http://t.cn/R4U0AdY 戳链接参与调查：http://t.cn/R4UHGZo<br><img src="http://ww4.sinaimg.cn/large/60718250jw1ez640i0fawj20dv0aogm8.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3922134507842343" target="freeweibo-mirror">#民调时间#【万科战宝能，他们背后有“赵家人”？】万科宝能控…</a>
 </h2>
