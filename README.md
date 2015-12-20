@@ -84,7 +84,7 @@
 </h2>
 <p>【点赞威尔斯】维基创办人吉米.威尔斯上周四在乌镇互联网大会上，首次向中方当面提出维基百科被禁一事，但双方未达成任何共识。当媒体采访威尔斯询问维基百科会不会为了在中国保持稳定运营而隐藏一些敏感信息时，他回应称“永远不会”。<br><img src="http://ww1.sinaimg.cn/large/c5d90a82jw1ez6bzielyxj20dw0a1mxi.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3922191383096312" target="freeweibo-mirror">//@潜龙跃渊_G:师兄27美姨没事，当然导师儿媳一个姨就更…</a>
 </h2>
