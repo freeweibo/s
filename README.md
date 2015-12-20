@@ -32,6 +32,12 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3922134507842343" target="freeweibo-mirror">#民调时间#【万科战宝能，他们背后有“赵家人”？】万科宝能控…</a>
+</h2>
+<p>#民调时间#【万科战宝能，他们背后有“赵家人”？】万科宝能控制权争夺战激战正酣，却意外火了 “赵家人”，一篇文章称王石赴港向赵家人求援，网友解释“赵家人”为既得利益者，最早出自鲁迅《阿Q正传》，万科宝能之争背后存在赵家人吗？ http://t.cn/R4U0AdY 戳链接参与调查：http://t.cn/R4UHGZo<br><img src="http://ww4.sinaimg.cn/large/60718250jw1ez640i0fawj20dv0aogm8.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3922131341936884" target="freeweibo-mirror">//@段贵发: 万岁！万岁万万岁！</a>
 </h2>
 <p>//@段贵发: 万岁！万岁万万岁！<br><br>RE: ＂一句顶一万句＂、＂我们相信毛主席要相信到迷信的程度，我们服从毛主席要服从到盲从的程度＂这样赤裸裸的＂名言＂不会再有了。不过，思维逻辑、宦官政治依旧。近日，某人字里行间一口一声某主席、某主席演讲体现＂全球视野＂、＂人类社会发展重大思想贡献＂、＂里程碑＂、＂载入史册＂的话堂而皇之。<br><img src="http://ww3.sinaimg.cn/large/c57c1a49jw1ez62kqhk5ej20go0b4myj.jpg"></p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3921844153081284" target="freeweibo-mirror">应辨真伪，勿让企业吃亏。</a>
 </h2>
 <p>应辨真伪，勿让企业吃亏。</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3921843469999743" target="freeweibo-mirror">//@朱广阳://@兔子老愚: 共产主义国家领导人有口福//…</a>
-</h2>
-<p>//@朱广阳://@兔子老愚: 共产主义国家领导人有口福//@容若风流: 你们呀，总喜欢搞些大新闻[酷][吃惊][哈哈][话筒][话筒][话筒][围观][围观][围观]//@私家野史:茅台酒营销史资料</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
