@@ -84,7 +84,7 @@
 </h2>
 <p>这口号喊得整整齐齐的，收益归国家还是归政府了？[汗] //@梦醒马赛港:智商税[哈哈][哈哈]</p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3922048365424292" target="freeweibo-mirror">[笑cry]//@来去之间:无语了～//@梁斌penny:邪…</a>
 </h2>
@@ -96,13 +96,13 @@
 </h2>
 <p>靠。 //@鲁振旺:力图拉群众绑架政府，其实一开始就是骗子</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3922044481292642" target="freeweibo-mirror">SPAM 万众创新喽'～～～ //@嗷嗷叫的李二锅:。 //…</a>
 </h2>
 <p>SPAM 万众创新喽'～～～ //@嗷嗷叫的李二锅:。 //@Murica_Reimu:[笑cry]//@政经广辞苑: 哈哈哈哈 //@伸展平铺的懒猫:[笑cry]//@叉烧烧烧包: 党徒信经//@神曦Laplace:[阴险]强烈推荐，开大音箱//@八月辗鞑靼: 哈哈哈这帮傻逼操的//@Raginghugo:哈哈哈哈你支魔幻得一塌糊涂 //@tuban亮！ //@草原雪域08:[嘻嘻]</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3922043160091278" target="freeweibo-mirror">邪了～ //@刘春:这些老人家～ //@来去之间:无语了～/…</a>
 </h2>
