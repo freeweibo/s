@@ -26,6 +26,12 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3922121983963660" target="freeweibo-mirror">＂一句顶一万句＂、＂我们相信毛主席要相信到迷信的程度，我们服…</a>
+</h2>
+<p>＂一句顶一万句＂、＂我们相信毛主席要相信到迷信的程度，我们服从毛主席要服从到盲从的程度＂这样赤裸裸的＂名言＂不会再有了。不过，思维逻辑、宦官政治依旧。近日，某人字里行间一口一声某主席、某主席演讲体现＂全球视野＂、＂人类社会发展重大思想贡献＂、＂里程碑＂、＂载入史册＂的话堂而皇之。<br><img src="http://ww3.sinaimg.cn/large/c57c1a49jw1ez62kqhk5ej20go0b4myj.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3922065167989367" target="freeweibo-mirror">SPAM //@性感玉米: 哈哈哈哈哈哈哈//@凹凸蛮丈:用…</a>
 </h2>
 <p>SPAM //@性感玉米: 哈哈哈哈哈哈哈//@凹凸蛮丈:用我党最擅长的方式绑架我党，腊肉泉下有知，定会后悔文革时期把各项技能倾囊相授于这群人[笑cry][笑cry][笑cry]</p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3921841401670740" target="freeweibo-mirror">//@李翔196811://@清英雅韵:[哈哈] //@六六…</a>
 </h2>
 <p>//@李翔196811://@清英雅韵:[哈哈] //@六六:[嘻嘻]是骗子吗？//@荣剑2001:按过去的惯例认真办好。//@谢文:珍贵文物 //@简直:[哈哈]//@haitaode:这张纸上的学问好大。</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3921819620969524" target="freeweibo-mirror">茅台酒营销史资料</a>
-</h2>
-<p>茅台酒营销史资料</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
