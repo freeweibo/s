@@ -26,6 +26,12 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3922226422026747" target="freeweibo-mirror">还有一个流氓国家//@南山小观音:其他国家好酷</a>
+</h2>
+<p>还有一个流氓国家//@南山小观音:其他国家好酷</p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3922209212568537" target="freeweibo-mirror">//@何葆国://@谓贤: 既然是「永远不会」的，那就只能「…</a>
 </h2>
 <p>//@何葆国://@谓贤: 既然是「永远不会」的，那就只能「鸡犬之声相闻，老死不相往来」了。<br><br>RE: 【点赞威尔斯】维基创办人吉米.威尔斯上周四在乌镇互联网大会上，首次向中方当面提出维基百科被禁一事，但双方未达成任何共识。当媒体采访威尔斯询问维基百科会不会为了在中国保持稳定运营而隐藏一些敏感信息时，他回应称“永远不会”。<br><img src="http://ww1.sinaimg.cn/large/c5d90a82jw1ez6bzielyxj20dw0a1mxi.jpg"></p>
@@ -84,7 +90,7 @@
 </h2>
 <p>＂一句顶一万句＂、＂我们相信毛主席要相信到迷信的程度，我们服从毛主席要服从到盲从的程度＂这样赤裸裸的＂名言＂不会再有了。不过，思维逻辑、宦官政治依旧。近日，某人字里行间一口一声某主席、某主席演讲体现＂全球视野＂、＂人类社会发展重大思想贡献＂、＂里程碑＂、＂载入史册＂的话堂而皇之。<br><img src="http://ww3.sinaimg.cn/large/c57c1a49jw1ez62kqhk5ej20go0b4myj.jpg"></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3922065167989367" target="freeweibo-mirror">SPAM //@性感玉米: 哈哈哈哈哈哈哈//@凹凸蛮丈:用…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3922041684248682" target="freeweibo-mirror">力图拉群众绑架政府，其实一开始就是骗子</a>
 </h2>
 <p>力图拉群众绑架政府，其实一开始就是骗子</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3921913904410489" target="freeweibo-mirror">这确定不是那个什么爷//@小貝的真妮花:是誰呀？ //@为伯…</a>
-</h2>
-<p>这确定不是那个什么爷//@小貝的真妮花:是誰呀？ //@为伯头01: //@keviny11:转发微博<br><br>RE: 这个是真的吗？[嘻嘻]@且兰国主 @-云爷- @长得帅不如跑的快 @小貝的真妮花 @防务君 @梅鹤楼主<br><img src="http://ww3.sinaimg.cn/large/0061I194gw1ez5b1ih3w5j30e20k0goc.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
