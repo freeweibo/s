@@ -24,7 +24,7 @@
 </h2>
 <p>//@尤素的电线杆子: 转发微博<br><br>RE: 劉曉原律師:据悉，明天上午十点，浦志强案件在北京二中法院6号法庭宣判！<br><img src="http://ww4.sinaimg.cn/large/6a80bfcdjw1ez7dw1dqphj20f90m840t.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3922533781284855" target="freeweibo-mirror">劉曉原律師:据悉，明天上午十点，浦志强案件在北京二中法院6号…</a>
 </h2>
@@ -42,7 +42,7 @@
 </h2>
 <p>可悲的一元化國家，可憐的被洗腦的愚民。知道為什麼在台灣就算深藍支持統一但也反對被專制獨裁統一嗎？台灣人大多數支持獨立不僅僅是因為意識形態，如果和這樣的國家，這樣的人民統一，我大膽的說一句，台灣人寧願跳海！</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3922392839629201" target="freeweibo-mirror">上下水平高度一致的流氓 //@公务员张敏宴://@富敏荣律师…</a>
 </h2>
