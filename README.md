@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3922558812463485" target="freeweibo-mirror">呵呵，若判他无罪，你们当然“信仰法律”；若判他有罪，你们还会…</a>
+</h2>
+<p>呵呵，若判他无罪，你们当然“信仰法律”；若判他有罪，你们还会说“信仰法律”吗？不会变脸吧？<br><br>RE: PU案：明天上午十点二中院6号法庭宣判！我们依然信仰法律！@肖52雪慧 @清华郭于32华 @何三畏 @法治路由器 @徐利平律师<br><img src="http://ww3.sinaimg.cn/large/006gT68mgw1ez7ellzjeaj30m80srqbg.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3922556673268845" target="freeweibo-mirror">回复@沈涛:公知都恨中华文化，只认洋爹的，他们不知道冬至，只…</a>
 </h2>
 <p>回复@沈涛:公知都恨中华文化，只认洋爹的，他们不知道冬至，只知道剩蛋 //@沈涛:崇洋媚外！明天明明是冬至 //@胡杨麟:希望多判几年，就算是给公知的圣诞礼物了。[嘻嘻]<br><br>RE: PU案：明天上午十点二中院6号法庭宣判！我们依然信仰法律！@肖52雪慧 @清华郭于32华 @何三畏 @法治路由器 @徐利平律师<br><img src="http://ww3.sinaimg.cn/large/006gT68mgw1ez7ellzjeaj30m80srqbg.jpg"></p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3922259615775209" target="freeweibo-mirror">//@朱令是谁: //@活在一个神奇的土地上://@自民pa…</a>
 </h2>
 <p>//@朱令是谁: //@活在一个神奇的土地上://@自民party丁力: //@我脑子里养小魚:[doge] //@陈茂来-: //@梦到哪里了:呵呵//@西风瘦马飘://@一个人的孤寂1974: 转发微博</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3922259162679497" target="freeweibo-mirror">有人挑战，说某人敢不敢在微博上骂奥巴马。既然挑战吗就拿出点诚…</a>
-</h2>
-<p>有人挑战，说某人敢不敢在微博上骂奥巴马。既然挑战吗就拿出点诚意。如果我骂了，您出10万人民币（这本身就是我广告的最低价），钱我一分不要，捐给希望工程。如果您同意请回复我。咱们找律师签协议。每人打10万到律师托管账户上，如果我没骂。我把我的钱捐出去，如果我骂了，您把您钱捐出去，如何？<br><img src="http://ww3.sinaimg.cn/large/51c21d10gw1ez6ico5x2rj20go0l50u7.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
