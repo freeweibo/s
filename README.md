@@ -114,7 +114,7 @@
 </h2>
 <p>希望多判几年，就算是给公知的圣诞礼物了。[嘻嘻]<br><br>RE: PU案：明天上午十点二中院6号法庭宣判！我们依然信仰法律！@肖52雪慧 @清华郭于32华 @何三畏 @法治路由器 @徐利平律师<br><img src="http://ww3.sinaimg.cn/large/006gT68mgw1ez7ellzjeaj30m80srqbg.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3922550490634839" target="freeweibo-mirror">大个子，12月22日上午十点二中院6号法庭宣判</a>
 </h2>
