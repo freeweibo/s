@@ -24,7 +24,7 @@
 </h2>
 <p>SPAM  //@赞美诗6201:[围观]//@时光隧道XMGF://@公民武志刚D19:写的好！[good]克服工具，勇敢前行！<br><br>RE: 【浦案研究】杨支柱教授、吴鹏彬律师关于浦志强案的评论，写得不是一般的好。推荐阅读！<br><img src="http://ww3.sinaimg.cn/large/0064M62ijw1ez7gdxktstj30c81bl13a.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3922558812463485" target="freeweibo-mirror">呵呵，若判他无罪，你们当然“信仰法律”；若判他有罪，你们还会…</a>
 </h2>
