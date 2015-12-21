@@ -48,7 +48,7 @@
 </h2>
 <p>难！ //@总是清华郭于-华:一同祈祷[心][心]//@前18: //@鹰隼N1A晏欢: //@深夜一只猫: 转发微博<br><br>RE: 我祈祷明天能平安回来。<br><img src="http://ww4.sinaimg.cn/large/e7eeff1dgw1ez7duog4woj20hs0mcgmr.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3922540092725190" target="freeweibo-mirror">PU案：明天上午十点二中院6号法庭宣判！我们依然信仰法律！@…</a>
 </h2>
@@ -78,7 +78,7 @@
 </h2>
 <p>欢迎跳海[鼓掌] //@-逆光飞行-:博主回来了呀，欢迎欢迎，this way!sir!<br><br>RE: 可悲的一元化國家，可憐的被洗腦的愚民。知道為什麼在台灣就算深藍支持統一但也反對被專制獨裁統一嗎？台灣人大多數支持獨立不僅僅是因為意識形態，如果和這樣的國家，這樣的人民統一，我大膽的說一句，台灣人寧願跳海！</p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3922474221689152" target="freeweibo-mirror">可悲的一元化國家，可憐的被洗腦的愚民。知道為什麼在台灣就算深…</a>
 </h2>
