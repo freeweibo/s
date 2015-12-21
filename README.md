@@ -108,7 +108,7 @@
 </h2>
 <p>【浦案研究】杨支柱教授、吴鹏彬律师关于浦志强案的评论，写得不是一般的好。推荐阅读！<br><img src="http://ww3.sinaimg.cn/large/0064M62ijw1ez7gdxktstj30c81bl13a.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3922554576107724" target="freeweibo-mirror">希望多判几年，就算是给公知的圣诞礼物了。[嘻嘻]</a>
 </h2>
