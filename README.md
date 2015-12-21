@@ -24,7 +24,7 @@
 </h2>
 <p>//@-星i辰-D52:[心]//@大地飞鹰仁波切-:[心]<br><br>RE: 明天上午十点，在北京市二中法院6号法庭宣判！期待他平安归来！<br><img src="http://ww2.sinaimg.cn/large/006j4sHKjw1ez7edw6z0gj30fa0a73zc.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3922540529872881" target="freeweibo-mirror">难！ //@总是清华郭于-华:一同祈祷[心][心]//@前1…</a>
 </h2>
