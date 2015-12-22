@@ -60,7 +60,7 @@
 </h2>
 <p>冬至，入九第一天。今夜是一年中最长的黑夜。冬天来了，春天还会远吗？<br><img src="http://ww3.sinaimg.cn/large/74ab24d1jw1ez88h4cjr3j20j00qjgo7.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3922794851122708" target="freeweibo-mirror">【人祸背后的耻辱】当记忆的时针还在上海外滩踩踏、东方之星沉船…</a>
 </h2>
@@ -84,7 +84,7 @@
 </h2>
 <p>SPAM 【为P算命】判3缓5，准否？</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3922783224938184" target="freeweibo-mirror">[话筒][话筒][话筒]</a>
 </h2>
