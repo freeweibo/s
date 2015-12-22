@@ -114,7 +114,7 @@
 </h2>
 <p>西方敌对势力捏造的吧？<br><img src="http://ww1.sinaimg.cn/large/be8f8847gw1ez8lfn51p1j20dv0m8jt0.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3922911427760229" target="freeweibo-mirror">欲加之罪 何患无辞！ //@徐德军律师:搞不懂。 //@于建…</a>
 </h2>
