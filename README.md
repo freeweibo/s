@@ -66,7 +66,7 @@
 </h2>
 <p>//@崔小平律师://@IB林立人://@江扬大道://@行者-大卫: //@法治路由器://@又来金好多://@北京的齐爷:转发微博<br><br>RE: 分享图片<br><img src="http://ww4.sinaimg.cn/large/006ePeGWgw1ez7jxqvda7j30f00qotao.jpg"></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3922634746350130" target="freeweibo-mirror">//@江扬大道://@行者-大卫: //@法治路由器://@…</a>
 </h2>
@@ -84,7 +84,7 @@
 </h2>
 <p>据云：明天大个子的案件要宣判。我想凡是关注国家法治的人无不对这起案件的最终判决投来关注的目光。如何裁判，固然是法院的事，但一个向往法治、尊重民主的国度，倘容不下几句虽然尖刻，但不无道理的话，我们的主事们有何颜面面对世界最大广场上所伫立的华表？有何面目面对立诽谤木求其过的尧舜先祖？<br><img src="http://ww2.sinaimg.cn/large/65f82df7jw1ez7oeh4acxj209h0atmxm.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3922621470723816" target="freeweibo-mirror">//@又来金好多://@北京的齐爷:转发微博</a>
 </h2>
