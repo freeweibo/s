@@ -54,7 +54,7 @@
 </h2>
 <p>SPAM  //@徐昕:救人更重要，作秀等庆功时吧<br><br>RE: 深圳，求求你们快救人，不要作秀<br><img src="http://ww4.sinaimg.cn/large/6a3d7f8cjw1ez8jn4et96j20c80agdh4.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3922895434790956" target="freeweibo-mirror">SPAM 无耻！ //@公民列宁:哈哈，镜！ //@老贫头陈…</a>
 </h2>
