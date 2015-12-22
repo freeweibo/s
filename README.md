@@ -30,7 +30,7 @@
 </h2>
 <p>SPAM 原来你是我最想留住的幸运。</p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3922639628239345" target="freeweibo-mirror">//@崔小平律师://@IB林立人://@江扬大道://@行…</a>
 </h2>
@@ -84,7 +84,7 @@
 </h2>
 <p>SPAM 本人歐陽譁詺，華新報首席記者，手上20案與劉輝有關，請公開對話！@药都清风 @中青报曹林 @中国青年报 @中国经营报 @南方都市报 @安徽省人民政府发布 @安徽卫视 @安徽发布 @安徽国土 @安徽检察 @亳州发布 @亳州国土 @亳州经济开发区 @记者焦永锋 @财经网 @财新网 @CCTV焦点访谈 @参考消息  @东方早报<br><br>RE: http://t.cn/R44yP20  劉輝這樣要逼死多少亳州群眾？？？@药都清风 @中青报曹林 @中国青年报 @中国经营报 @南方都市报 @安徽省人民政府发布 @安徽卫视 @安徽发布 @安徽国土 @安徽检察 @亳州发布 @亳州国土 @亳州经济开发区 @记者焦永锋 @财经网 @财新网 @CCTV焦点访谈 @参考消息  @东方早报<br><img src="http://ww3.sinaimg.cn/large/97c6dd8egw1ez6y0ah3jbj20hs0jqdh1.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3922584326150707" target="freeweibo-mirror">SPAM 歐陽譁詺在此誠邀劉輝對話！@曹国伟 @曹劼 @陈昌…</a>
 </h2>
@@ -110,6 +110,12 @@
 <p>
 	<small> ============== 1天前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3922556434232867" target="freeweibo-mirror">再强调，明天要判的不是一个人，是一个庞大的群体！</a>
+</h2>
+<p>再强调，明天要判的不是一个人，是一个庞大的群体！<br><img src="http://ww2.sinaimg.cn/large/006j41gpgw1ez7ghtekitj30hs0vkadq.jpg"></p>
+<p>
+	<small> ============== 1天前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3922555515265781" target="freeweibo-mirror">【浦案研究】杨支柱教授、吴鹏彬律师关于浦志强案的评论，写得不…</a>
 </h2>
 <p>【浦案研究】杨支柱教授、吴鹏彬律师关于浦志强案的评论，写得不是一般的好。推荐阅读！<br><img src="http://ww3.sinaimg.cn/large/0064M62ijw1ez7gdxktstj30c81bl13a.jpg"></p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3922543218229864" target="freeweibo-mirror">在去年最后一天上海踩踏事件后满屏蜡烛；长江翻船后还是满屏蜡烛…</a>
 </h2>
 <p>在去年最后一天上海踩踏事件后满屏蜡烛；长江翻船后还是满屏蜡烛；天津爆炸后蜡烛开始减少，到了深圳这次人为滑坡后，更多的愤怒、问责取代了蜡烛们。在一次一次的人祸中，我们在用别人的生命寻找这个社会里公民的成熟。</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3922541833432521" target="freeweibo-mirror">//@-星i辰-D52:[心]//@大地飞鹰仁波切-:[心]</a>
-</h2>
-<p>//@-星i辰-D52:[心]//@大地飞鹰仁波切-:[心]<br><br>RE: 明天上午十点，在北京市二中法院6号法庭宣判！期待他平安归来！<br><img src="http://ww2.sinaimg.cn/large/006j4sHKjw1ez7edw6z0gj30fa0a73zc.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
