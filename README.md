@@ -24,13 +24,13 @@
 </h2>
 <p>→_→→_→→_→//@HK_CC_BEST:北京雾霾洞悉了一切[哈哈]博主本来就是逼格样。//@老李随想:看天气 //@胡杨麟:公知又搞笑了[哈哈]，要是有6个小时的寒风北京的雾霾早就散了，何至于现在还是重度污染的天气，这又不知道是在什么时间在哪里哭错哪个坟头了[偷笑]<br><br>RE: 在寒风中坚守了至少六个小时却没能接到老浦，宝成在回家路上不能自已，嚎啕大哭。这兄弟是个真性情中人，所哭不但为老浦，也为他所曾经信仰的法律之死。<br><img src="http://ww1.sinaimg.cn/large/005LpGr4jw1ez8kiimcq9j30zk0zkadg.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3922993682478565" target="freeweibo-mirror">//@邓志国: //@GrowEasy: 哦，那就更贴切了。…</a>
 </h2>
 <p>//@邓志国: //@GrowEasy: 哦，那就更贴切了。//@心中的小象:不是律师，是记者//@GrowEasy: 这是那个为了给自己家多拿拆迁补偿，绑架工程车驾驶员要烧死人家的律师吗？<br><br>RE: 在寒风中坚守了至少六个小时却没能接到老浦，宝成在回家路上不能自已，嚎啕大哭。这兄弟是个真性情中人，所哭不但为老浦，也为他所曾经信仰的法律之死。<br><img src="http://ww1.sinaimg.cn/large/005LpGr4jw1ez8kiimcq9j30zk0zkadg.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3922991992178372" target="freeweibo-mirror">回复@愛鼬_咕唧:一个社会各尽其责，各尽本分，动辄把任何职业…</a>
 </h2>
