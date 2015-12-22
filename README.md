@@ -78,7 +78,7 @@
 </h2>
 <p>10点钟到了，相信即便今天最是长夜，也遮不住总要迈向天明。案事的转发一律被停，只是欲掩更羞的一种表白。</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3922784868582819" target="freeweibo-mirror">SPAM 【为P算命】判3缓5，准否？</a>
 </h2>
