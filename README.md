@@ -30,7 +30,7 @@
 </h2>
 <p>SPAM //@男海岸: //@高度先生://@文山娃:警車開道。 http://t.cn/R4boRL0 //@文山娃:這輛。 http://t.cn/R4bSiYq //@文山娃: http://t.cn/R4bSJXM //@文山娃:載著浦律的車剛離開看守所。 via 陳寶成<br><br>RE: 已有朋友等在看守所外了。<br><img src="http://ww4.sinaimg.cn/large/65cc9274jw1ez8hpgmifij20qo0zkwh6.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3922904745977503" target="freeweibo-mirror"></a>
 </h2>
@@ -72,7 +72,7 @@
 </h2>
 <p>SPAM 无耻的记载实物，收好了，将来可进博物馆<br><br>RE: 捡到张纸，上边又是“阵地”，又是“参战人员”的，感觉非常可疑，大家鉴别一下。<br><img src="http://ww4.sinaimg.cn/large/4ce32014jw1ez8imcbspzj20c80jmwg0.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3922888832702341" target="freeweibo-mirror">捡到张纸，上边又是“阵地”，又是“参战人员”的，感觉非常可疑…</a>
 </h2>
