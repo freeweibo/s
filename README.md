@@ -42,7 +42,7 @@
 </h2>
 <p>SPAM 昨晚竟然梦到最近大热的某案宣判：当事人无罪，当庭释放。———我被自己震惊了。</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3922766862407919" target="freeweibo-mirror">//@假行僧老巩:意义不大。三线城市没戏。</a>
 </h2>
@@ -78,7 +78,7 @@
 </h2>
 <p>SPAM //@般若观: //@郭靖55://@永远是龙的传人2012://@孤烟暮蝉:咦，第三张和第六张里边的是贺卫方吗？//@裸枪: [围观]//@老左识途: 国人唾弃这样的汉奸以及为汉奸叫好的公知。</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3922737213472474" target="freeweibo-mirror">对中国命运甚为关切的人，今天都应拭目以待一项宣判，这不仅是对…</a>
 </h2>
@@ -90,7 +90,7 @@
 </h2>
 <p>//@梧桐之城: //@六安自媒体:/@山高路远N: //@践行者Harry://@陈业文新大都://@见雨听风N://@埃玛Emma 一个文字都敏感的国家会有复兴？一个鼠标都能摇塌的国家会有伟大？一个说话都能判刑的国家会有法律？一个举国都是跪拜的国家会有未来？一个连领导都不敢公开财产的国家还配谈梦想？<br><br>RE: 再强调，明天要判的不是一个人，是一个庞大的群体！<br><img src="http://ww2.sinaimg.cn/large/006j41gpgw1ez7ghtekitj30hs0vkadq.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3922656577695686" target="freeweibo-mirror">SPAM 原来你是我最想留住的幸运。</a>
 </h2>
@@ -108,7 +108,7 @@
 </h2>
 <p>//@江扬大道://@行者-大卫: //@法治路由器://@又来金好多://@北京的齐爷:转发微博<br><br>RE: 分享图片<br><img src="http://ww4.sinaimg.cn/large/006ePeGWgw1ez7jxqvda7j30f00qotao.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3922629599651422" target="freeweibo-mirror">SPAM 可爱[转发]</a>
 </h2>
