@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3922855315986790" target="freeweibo-mirror">SPAM 说好要依法治国的，说好要有错就纠的。为什么到具体案…</a>
+</h2>
+<p>SPAM 说好要依法治国的，说好要有错就纠的。为什么到具体案件就有法不依，有错不纠呢？！</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3922851184591171" target="freeweibo-mirror">//@深夜一只猫: 转发微博</a>
 </h2>
 <p>//@深夜一只猫: 转发微博<br><br>RE: 友評哈案：不算最坏结果，但开了个最恶劣的先例。</p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3922765188460275" target="freeweibo-mirror">安全的成本，没有办法的事情//@凡夫李然:你们啊，没在新疆待…</a>
 </h2>
 <p>安全的成本，没有办法的事情//@凡夫李然:你们啊，没在新疆待过，体会不了，南疆不管维汉被要求拿出手机内存卡检查的感觉确实不舒服//@AC文革余孽侯东渐:呵呵//@五行剑侠:确实，成本是个大问题 //@神秘岛的塞勒斯:案件手套使用率高，磨损率严重。化纤手套容易产生静电。羊皮太软，牛皮太贵。<br><br>RE: 库尔班江说造成安检的原因（暴恐）无法阻止，但可以阻止结果（安检）。手段是拍照录音录像，利用新疆43个民族被安检的怨气，利用自身示范效应鼓励挑刺安检。<br><img src="http://ww2.sinaimg.cn/large/0068ruHajw1ez7nkrqt4fj30k00zkwk7.jpg"></p>
-<p>
-	<small> ============== 7小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3922759870569607" target="freeweibo-mirror">SPAM //@路更强1:静候佳音，念念雪莱</a>
-</h2>
-<p>SPAM //@路更强1:静候佳音，念念雪莱<br><br>RE: 今天是今年最黑暗的一天，无论从气象学还是从政治学的含义上。按提前三天通知的正常程序，应选在24号圣诞节前夜，却选了冬至。如果想判无罪，应该选圣诞节前夜，给世人一个圣诞礼物。选冬至，就预示有罪判决，不管是实刑严判还是缓刑放人。<br><img src="http://ww4.sinaimg.cn/large/85834ee6jw1ez82ny0f21j20k00k0dho.jpg"></p>
 <p>
 	<small> ============== 7小时前</small>
 </p>
