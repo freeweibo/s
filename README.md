@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3922873548341325" target="freeweibo-mirror">哈案。確有喊殺喊誅的聲音，不過是“漢奸”議題觸發的U型鎖情結…</a>
+</h2>
+<p>哈案。確有喊殺喊誅的聲音，不過是“漢奸”議題觸發的U型鎖情結。近兩年了，檢方對公安的百般推諉，法院裝模作樣的判三緩三，陸媒在通稿之外塞進他的“光輝履歷”，幾乎一致選用他最帥氣的照片，無聲的支持，和抗議。這就是所謂對忠義良人的愛，這才是所謂的世道人心。</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3922865692699899" target="freeweibo-mirror">//@徐昕: 评论还没删</a>
 </h2>
 <p>//@徐昕: 评论还没删<br><br>RE: 【人民日报：浦志强案一审宣判 处有期徒刑三年缓刑三年】据央视，今天上午，北京市第二中级人民法院依法对浦志强涉嫌煽动民族仇恨罪、寻衅滋事罪一案公开宣判。依法对其两罪并罚，执行有期徒刑三年，缓刑三年。</p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3922808121683261" target="freeweibo-mirror">友評哈案：不算最坏结果，但开了个最恶劣的先例。</a>
 </h2>
 <p>友評哈案：不算最坏结果，但开了个最恶劣的先例。</p>
-<p>
-	<small> ============== 6小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3922805060169850" target="freeweibo-mirror">//@毕明雄:转发微博</a>
-</h2>
-<p>//@毕明雄:转发微博<br><br>RE: 【义士与罪人】将义士判成罪人者乃真正罪人。<br><img src="http://ww3.sinaimg.cn/large/48866320jw1ez88vrgbk4j20ku112te0.jpg"></p>
 <p>
 	<small> ============== 6小时前</small>
 </p>
