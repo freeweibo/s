@@ -36,13 +36,13 @@
 </h2>
 <p></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3922904456225462" target="freeweibo-mirror">辩护律师已经辟谣了。//@于建嵘: 央视曾有个好同志，代表亚…</a>
 </h2>
 <p>辩护律师已经辟谣了。//@于建嵘: 央视曾有个好同志，代表亚洲。<br><br>RE: http://t.cn/R4bIbQO 一切以央视为准！据谣传，原定浦2年缓3年，因网络压力，惹怒龙颜，皇口谕，追加一年，统一报道伏法认罪，三年软禁，随时开刷，以敬效优！北避无齿下流做作，一旦做实掉销律师照，再也不能帮他人维权了，可谓用心险恶！@迟夙生律师 @于建嵘 @富敏荣律师 @袁裕来律师 @甘元春律师<br><img src="http://ww4.sinaimg.cn/large/55147e04gw1ez8chs9jwnj20m80go765.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3922902791001702" target="freeweibo-mirror">SPAM 不是说有求救的手机电话吗？//@徐昕:救人更重要，…</a>
 </h2>
@@ -53,6 +53,12 @@
 	<a href="https://freeweibo.com/weibo/3922901700746253" target="freeweibo-mirror">SPAM  //@徐昕:救人更重要，作秀等庆功时吧</a>
 </h2>
 <p>SPAM  //@徐昕:救人更重要，作秀等庆功时吧<br><br>RE: 深圳，求求你们快救人，不要作秀<br><img src="http://ww4.sinaimg.cn/large/6a3d7f8cjw1ez8jn4et96j20c80agdh4.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3922897309527026" target="freeweibo-mirror">深圳，求求你们快救人，不要作秀</a>
+</h2>
+<p>深圳，求求你们快救人，不要作秀<br><img src="http://ww4.sinaimg.cn/large/6a3d7f8cjw1ez8jn4et96j20c80agdh4.jpg"></p>
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
@@ -72,7 +78,7 @@
 </h2>
 <p>捡到张纸，上边又是“阵地”，又是“参战人员”的，感觉非常可疑，大家鉴别一下。<br><img src="http://ww4.sinaimg.cn/large/4ce32014jw1ez8imcbspzj20c80jmwg0.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3922888396186600" target="freeweibo-mirror">SPAM [挖鼻]//@悠野V: 先给钱行不？[嘻嘻]//@…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3922857291395002" target="freeweibo-mirror">e租宝投资人今日在南京国际金融中心门前维权→_→</a>
 </h2>
 <p>e租宝投资人今日在南京国际金融中心门前维权→_→<br><img src="http://ww1.sinaimg.cn/large/7155c7d5gw1ez8eyx1r40j20g40c3q4x.jpg"></p>
-<p>
-	<small> ============== 5小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3922855970760026" target="freeweibo-mirror">//@陈茂来-: //@鱼家俏妞:此案辩护律师说一审判决………</a>
-</h2>
-<p>//@陈茂来-: //@鱼家俏妞:此案辩护律师说一审判决…… [思考]//@-简Jane--://@可可ghh: //@晚云起20: 浦夫人致电友人，已办完手续，准备带大个子回家 ... http://t.cn/R4bMAyg //@王林的微博客: //@微言木子5: //@四面贤歌://@木兰花慢慢4: 真相在这里！官媒造谣可耻！<br><br>RE: 辩护律师尚宝军说浦一审判决<br><img src="http://ww4.sinaimg.cn/large/0067q8dWjw1ez8ckq7060j30hr1rbdnm.jpg"></p>
 <p>
 	<small> ============== 5小时前</small>
 </p>
