@@ -36,7 +36,7 @@
 </h2>
 <p>回复@愛鼬_咕唧:一个社会各尽其责，各尽本分，动辄把任何职业份内之事无限道德拔高，无非是社会不成熟，个人心智不成熟。//@愛鼬_咕唧:回复@水穿石林:人家都连续工作了40多个小时了你还想怎么样，你行你上啊，要求别人的高度为什么老要比自己高一大截</p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3922991195324688" target="freeweibo-mirror">SPAM 回复@Smart豪:不入党就不尽责救援了吗？//@…</a>
 </h2>
@@ -84,7 +84,7 @@
 </h2>
 <p>SPAM 我仔细看了一遍，太无耻太无聊了。<br><br>RE: 西方敌对势力捏造的吧？<br><img src="http://ww1.sinaimg.cn/large/be8f8847gw1ez8lfn51p1j20dv0m8jt0.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3922934420383302" target="freeweibo-mirror">SPAM //@专业起哄:这位发图的同志还好吗？</a>
 </h2>
