@@ -60,7 +60,7 @@
 </h2>
 <p>SPAM 原来你是我最想留住的幸运。</p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3922639628239345" target="freeweibo-mirror">//@崔小平律师://@IB林立人://@江扬大道://@行…</a>
 </h2>
@@ -96,7 +96,7 @@
 </h2>
 <p>库尔班江说造成安检的原因（暴恐）无法阻止，但可以阻止结果（安检）。手段是拍照录音录像，利用新疆43个民族被安检的怨气，利用自身示范效应鼓励挑刺安检。<br><img src="http://ww2.sinaimg.cn/large/0068ruHajw1ez7nkrqt4fj30k00zkwk7.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3922616353563284" target="freeweibo-mirror">//@鱼儿时评: //@妄议有罪://@泪洒博坛://@李念…</a>
 </h2>
