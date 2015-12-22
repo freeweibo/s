@@ -60,7 +60,7 @@
 </h2>
 <p>SPAM 4个啊，都报道了，这些战士第一时间到场，连续奋战40多小时，救出4人，疏散200余人，火线入党仪式不到两分钟，还是在他们退下来休息的时候，没有排练，一点没耽误救灾，你还想知道什么？</p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3922986245166131" target="freeweibo-mirror">看天气 //@胡杨麟:公知又搞笑了[哈哈]，要是有6个小时的…</a>
 </h2>
@@ -90,13 +90,13 @@
 </h2>
 <p>SPAM //@专业起哄:这位发图的同志还好吗？<br><br>RE: 西方敌对势力捏造的吧？<br><img src="http://ww1.sinaimg.cn/large/be8f8847gw1ez8lfn51p1j20dv0m8jt0.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3922934278464193" target="freeweibo-mirror">SPAM  //@刚刚路过03: //@野书生D://@庐山…</a>
 </h2>
 <p>SPAM  //@刚刚路过03: //@野书生D://@庐山瀑布01: //@东河-猎鹰倚天屠龙:哈哈！我说每每有事腾讯和今日头条的评论都一边倒，整齐划一，原来是主阵地。//@三俗大哥:[吃惊][吃惊][吃惊][吃惊]<br><br>RE: 西方敌对势力捏造的吧？<br><img src="http://ww1.sinaimg.cn/large/be8f8847gw1ez8lfn51p1j20dv0m8jt0.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3922916662174711" target="freeweibo-mirror">第一瘦身成功，第二这样的有罪判决一定是未来的荣耀，第三律师越…</a>
 </h2>
