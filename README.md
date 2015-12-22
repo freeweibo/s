@@ -42,7 +42,7 @@
 </h2>
 <p>SPAM 【为P算命】判3缓5，准否？</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3922783224938184" target="freeweibo-mirror">[话筒][话筒][话筒]</a>
 </h2>
