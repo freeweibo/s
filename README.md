@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3922766514554300" target="freeweibo-mirror">中国乃至人类社会为暴恐付出的代价真的太大太大，承担成本的人群…</a>
+</h2>
+<p>中国乃至人类社会为暴恐付出的代价真的太大太大，承担成本的人群辛劳工作尚且无法养育二胎，暴恐群体坐吃纳税人创造的财富拼命制造更多的暴恐份子，这种扭曲的局面不可能长久维持//@AC文革余孽侯东渐:安全的成本，没有办法的事情//@凡夫李然:你们啊，没在新疆待过，体会不了，南疆不管维汉被要求拿出手<br><br>RE: 库尔班江说造成安检的原因（暴恐）无法阻止，但可以阻止结果（安检）。手段是拍照录音录像，利用新疆43个民族被安检的怨气，利用自身示范效应鼓励挑刺安检。<br><img src="http://ww2.sinaimg.cn/large/0068ruHajw1ez7nkrqt4fj30k00zkwk7.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3922759870569607" target="freeweibo-mirror">SPAM //@路更强1:静候佳音，念念雪莱</a>
 </h2>
 <p>SPAM //@路更强1:静候佳音，念念雪莱<br><br>RE: 今天是今年最黑暗的一天，无论从气象学还是从政治学的含义上。按提前三天通知的正常程序，应选在24号圣诞节前夜，却选了冬至。如果想判无罪，应该选圣诞节前夜，给世人一个圣诞礼物。选冬至，就预示有罪判决，不管是实刑严判还是缓刑放人。<br><img src="http://ww4.sinaimg.cn/large/85834ee6jw1ez82ny0f21j20k00k0dho.jpg"></p>
@@ -36,13 +42,13 @@
 </h2>
 <p>SPAM //@般若观: //@郭靖55://@永远是龙的传人2012://@孤烟暮蝉:咦，第三张和第六张里边的是贺卫方吗？//@裸枪: [围观]//@老左识途: 国人唾弃这样的汉奸以及为汉奸叫好的公知。</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3922717784885207" target="freeweibo-mirror">//@梧桐之城: //@六安自媒体:/@山高路远N: //@…</a>
 </h2>
 <p>//@梧桐之城: //@六安自媒体:/@山高路远N: //@践行者Harry://@陈业文新大都://@见雨听风N://@埃玛Emma 一个文字都敏感的国家会有复兴？一个鼠标都能摇塌的国家会有伟大？一个说话都能判刑的国家会有法律？一个举国都是跪拜的国家会有未来？一个连领导都不敢公开财产的国家还配谈梦想？<br><br>RE: 再强调，明天要判的不是一个人，是一个庞大的群体！<br><img src="http://ww2.sinaimg.cn/large/006j41gpgw1ez7ghtekitj30hs0vkadq.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3922656577695686" target="freeweibo-mirror">SPAM 原来你是我最想留住的幸运。</a>
 </h2>
@@ -90,7 +96,7 @@
 </h2>
 <p>如此怎能依法治国？狗娘养的国际玩笑嘛！ //@李佳佳Audrey: //@鄢烈山:“狗娘养的”骂人符合中国的主流价值观？这是对中国的侮辱！中国是流氓国家吗？前几天听德国留学生老雷说，骂人sb肯定会输官司，虽然不会坐牢，肯定会赔钱。<br><br>RE: 【司法奇葩】海淀法院太能耐!竟能认定一篇文章作者及编辑的用心!竟能认定什么是人民的共同历史记忆,什么是历史虚无主义,什么是公众的民族及历史情感!竟能认定“狗娘养的”这种言论“符合我国社会的主流价值观”!骂人“狗娘养的”,未超过批评的必要限度?！ http://t.cn/R44RvAP</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3922589313917613" target="freeweibo-mirror">SPAM  //@赞美诗6201:[围观]//@时光隧道XM…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3922556434232867" target="freeweibo-mirror">再强调，明天要判的不是一个人，是一个庞大的群体！</a>
 </h2>
 <p>再强调，明天要判的不是一个人，是一个庞大的群体！<br><img src="http://ww2.sinaimg.cn/large/006j41gpgw1ez7ghtekitj30hs0vkadq.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3922555515265781" target="freeweibo-mirror">【浦案研究】杨支柱教授、吴鹏彬律师关于浦志强案的评论，写得不…</a>
-</h2>
-<p>【浦案研究】杨支柱教授、吴鹏彬律师关于浦志强案的评论，写得不是一般的好。推荐阅读！<br><img src="http://ww3.sinaimg.cn/large/0064M62ijw1ez7gdxktstj30c81bl13a.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
