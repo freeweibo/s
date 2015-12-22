@@ -90,7 +90,7 @@
 </h2>
 <p>//@又来金好多://@北京的齐爷:转发微博<br><br>RE: 分享图片<br><img src="http://ww4.sinaimg.cn/large/006ePeGWgw1ez7jxqvda7j30f00qotao.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3922618421775332" target="freeweibo-mirror">库尔班江说造成安检的原因（暴恐）无法阻止，但可以阻止结果（安…</a>
 </h2>
