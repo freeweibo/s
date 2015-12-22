@@ -26,6 +26,12 @@
 <p>
 	<small> ============== 1小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3922765188460275" target="freeweibo-mirror">安全的成本，没有办法的事情//@凡夫李然:你们啊，没在新疆待…</a>
+</h2>
+<p>安全的成本，没有办法的事情//@凡夫李然:你们啊，没在新疆待过，体会不了，南疆不管维汉被要求拿出手机内存卡检查的感觉确实不舒服//@AC文革余孽侯东渐:呵呵//@五行剑侠:确实，成本是个大问题 //@神秘岛的塞勒斯:案件手套使用率高，磨损率严重。化纤手套容易产生静电。羊皮太软，牛皮太贵。<br><br>RE: 库尔班江说造成安检的原因（暴恐）无法阻止，但可以阻止结果（安检）。手段是拍照录音录像，利用新疆43个民族被安检的怨气，利用自身示范效应鼓励挑刺安检。<br><img src="http://ww2.sinaimg.cn/large/0068ruHajw1ez7nkrqt4fj30k00zkwk7.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3922759870569607" target="freeweibo-mirror">SPAM //@路更强1:静候佳音，念念雪莱</a>
 </h2>
 <p>SPAM //@路更强1:静候佳音，念念雪莱<br><br>RE: 今天是今年最黑暗的一天，无论从气象学还是从政治学的含义上。按提前三天通知的正常程序，应选在24号圣诞节前夜，却选了冬至。如果想判无罪，应该选圣诞节前夜，给世人一个圣诞礼物。选冬至，就预示有罪判决，不管是实刑严判还是缓刑放人。<br><img src="http://ww4.sinaimg.cn/large/85834ee6jw1ez82ny0f21j20k00k0dho.jpg"></p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3922556673268845" target="freeweibo-mirror">回复@沈涛:公知都恨中华文化，只认洋爹的，他们不知道冬至，只…</a>
 </h2>
 <p>回复@沈涛:公知都恨中华文化，只认洋爹的，他们不知道冬至，只知道剩蛋 //@沈涛:崇洋媚外！明天明明是冬至 //@胡杨麟:希望多判几年，就算是给公知的圣诞礼物了。[嘻嘻]<br><br>RE: PU案：明天上午十点二中院6号法庭宣判！我们依然信仰法律！@肖52雪慧 @清华郭于32华 @何三畏 @法治路由器 @徐利平律师<br><img src="http://ww3.sinaimg.cn/large/006gT68mgw1ez7ellzjeaj30m80srqbg.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3922556434232867" target="freeweibo-mirror">再强调，明天要判的不是一个人，是一个庞大的群体！</a>
-</h2>
-<p>再强调，明天要判的不是一个人，是一个庞大的群体！<br><img src="http://ww2.sinaimg.cn/large/006j41gpgw1ez7ghtekitj30hs0vkadq.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
