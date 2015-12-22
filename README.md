@@ -48,7 +48,7 @@
 </h2>
 <p>SPAM 不是说有求救的手机电话吗？//@徐昕:救人更重要，作秀等庆功时吧<br><br>RE: 深圳，求求你们快救人，不要作秀<br><img src="http://ww4.sinaimg.cn/large/6a3d7f8cjw1ez8jn4et96j20c80agdh4.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3922901700746253" target="freeweibo-mirror">SPAM  //@徐昕:救人更重要，作秀等庆功时吧</a>
 </h2>
@@ -78,11 +78,17 @@
 </h2>
 <p>SPAM [挖鼻]//@悠野V: 先给钱行不？[嘻嘻]//@私家野史: 遵命！<br><br>RE: 通知<br><img src="http://ww3.sinaimg.cn/large/006koWphgw1ez8hixdy0ej30af0gq762.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3922882872741568" target="freeweibo-mirror">浦志强案子，三个自信的铁证！</a>
 </h2>
 <p>浦志强案子，三个自信的铁证！<br><img src="http://ww4.sinaimg.cn/large/0064M62ijw1ez8hzi9bxij30m60zkwlb.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3922880490312802" target="freeweibo-mirror">已有朋友等在看守所外了。</a>
+</h2>
+<p>已有朋友等在看守所外了。<br><img src="http://ww4.sinaimg.cn/large/65cc9274jw1ez8hpgmifij20qo0zkwh6.jpg"></p>
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
@@ -108,7 +114,7 @@
 </h2>
 <p>哈案。確有喊殺喊誅的聲音，不過是“漢奸”議題觸發的U型鎖情結。近兩年了，檢方對公安的百般推諉，法院裝模作樣的判三緩三，陸媒在通稿之外塞進他的“光輝履歷”，幾乎一致選用他最帥氣的照片，無聲的支持，和抗議。這就是所謂對忠義良人的愛，這才是所謂的世道人心。</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3922865692699899" target="freeweibo-mirror">//@徐昕: 评论还没删</a>
 </h2>
@@ -126,17 +132,11 @@
 </h2>
 <p>e租宝投资人今日在南京国际金融中心门前维权→_→<br><img src="http://ww1.sinaimg.cn/large/7155c7d5gw1ez8eyx1r40j20g40c3q4x.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3922855970760026" target="freeweibo-mirror">//@陈茂来-: //@鱼家俏妞:此案辩护律师说一审判决………</a>
 </h2>
 <p>//@陈茂来-: //@鱼家俏妞:此案辩护律师说一审判决…… [思考]//@-简Jane--://@可可ghh: //@晚云起20: 浦夫人致电友人，已办完手续，准备带大个子回家 ... http://t.cn/R4bMAyg //@王林的微博客: //@微言木子5: //@四面贤歌://@木兰花慢慢4: 真相在这里！官媒造谣可耻！<br><br>RE: 辩护律师尚宝军说浦一审判决<br><img src="http://ww4.sinaimg.cn/large/0067q8dWjw1ez8ckq7060j30hr1rbdnm.jpg"></p>
-<p>
-	<small> ============== 5小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3922855315986790" target="freeweibo-mirror">SPAM 说好要依法治国的，说好要有错就纠的。为什么到具体案…</a>
-</h2>
-<p>SPAM 说好要依法治国的，说好要有错就纠的。为什么到具体案件就有法不依，有错不纠呢？！</p>
 <p>
 	<small> ============== 5小时前</small>
 </p>
