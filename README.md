@@ -66,7 +66,7 @@
 </h2>
 <p>SPAM 还记得那个完爆蓝翔的鬼畜吗？又来了第二季了……[bed凌乱] http://t.cn/R4GGzgA</p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3923230794386368" target="freeweibo-mirror">【废墟下救出一只活鸡】据@广东消防，今天12点10分，在大约…</a>
 </h2>
