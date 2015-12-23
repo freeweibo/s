@@ -24,7 +24,7 @@
 </h2>
 <p>SPAM  //@坚挺的肌肉:系统自动转发[拜拜]<br><br>RE: SPAM http://t.cn/R4GCYeM 系统自动分享[拜拜]</p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3923343486805461" target="freeweibo-mirror">SPAM http://t.cn/R4GCYeM 系统自动分…</a>
 </h2>
