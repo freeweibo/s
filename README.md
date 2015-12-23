@@ -60,7 +60,7 @@
 </h2>
 <p>北京红色预警解除，四天限行罚款超1100万。且不说所谓的限行管不管用，为什么政府面对问题，不去反思自己管理，不寻找深层次原因和解决办法，每次总是先拿普通人开刀，不是限购限行就是罚款收费。雾霾问题首先是管理不力和治理无方，不能永远让百姓为你的失职去买单！#宝叔酷评# http://t.cn/zQbcXzX<br><img src="http://ww4.sinaimg.cn/large/4765f127jw1ez9fpvux1lj23402c0u0x.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3923166701135855" target="freeweibo-mirror">//@哒哒哒言希://@soledreo: 难怪打“ 相信党…</a>
 </h2>
