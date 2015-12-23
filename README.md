@@ -48,7 +48,7 @@
 </h2>
 <p>现在这会梁振英正向总理述职，不知道会不会给深港通一个准信。但，去年是这样坐的，两张沙发一茶几并列（如左图）；今年是这样坐的（如右图），这是特首17次述职的首次变化，也是紫光阁首次在会见场合放上了会议桌。<br><img src="http://ww2.sinaimg.cn/large/7c1d7ba8gw1ez9nlw4wobj20qo0s0tcd.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3923243582724614" target="freeweibo-mirror">SPAM 还记得那个完爆蓝翔的鬼畜吗？又来了第二季了……[b…</a>
 </h2>
@@ -60,7 +60,7 @@
 </h2>
 <p>【废墟下救出一只活鸡】据@广东消防，今天12点10分，在大约6米的建筑废墟下，深圳光明区消防队救出了一只活鸡。杨队长介绍：他们早上6点在此处搜救破拆，期间监测到水泥下方有活物移动，便立即搜救，没想到救出的是一只鸡。杨队长表示，这只鸡以后要在消防队里养着，因为它代表着希望。<br><img src="http://ww3.sinaimg.cn/large/75b1a75fjw1ez9ly07zpqj20c80gb0te.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3923225417168383" target="freeweibo-mirror">年终了，总得解决奖金的事儿。//@A股老牛: 问题没解决，创…</a>
 </h2>
