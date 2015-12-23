@@ -30,7 +30,7 @@
 </h2>
 <p>座席伦理：左是主宾关系，右是主从关系。鉴定完毕。[嘻嘻]//@永璞: 转发微博<br><br>RE: 现在这会梁振英正向总理述职，不知道会不会给深港通一个准信。但，去年是这样坐的，两张沙发一茶几并列（如左图）；今年是这样坐的（如右图），这是特首17次述职的首次变化，也是紫光阁首次在会见场合放上了会议桌。<br><img src="http://ww2.sinaimg.cn/large/7c1d7ba8gw1ez9nlw4wobj20qo0s0tcd.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3923255880254277" target="freeweibo-mirror">SPAM 逢凶化吉！ //@Deep张波:在古代，</a>
 </h2>
