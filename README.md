@@ -60,7 +60,7 @@
 </h2>
 <p>SPAM 4个啊，都报道了，这些战士第一时间到场，连续奋战40多小时，救出4人，疏散200余人，火线入党仪式不到两分钟，还是在他们退下来休息的时候，没有排练，一点没耽误救灾，你还想知道什么？</p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3922986245166131" target="freeweibo-mirror">看天气 //@胡杨麟:公知又搞笑了[哈哈]，要是有6个小时的…</a>
 </h2>
@@ -78,7 +78,7 @@
 </h2>
 <p>SPAM //@实名举报人陈春薷: 这、这、这........还带这么玩儿滴？[吃惊]<br><br>RE: 重要通知，领狗粮了。<br><img src="http://ww3.sinaimg.cn/large/005LpGr4jw1ez8i1x6sgpj30af0gq3zp.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3922940271793273" target="freeweibo-mirror">SPAM 我仔细看了一遍，太无耻太无聊了。</a>
 </h2>
