@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3923247542435988" target="freeweibo-mirror">//@春晓1983: //@自22由不再言论: //@额角头…</a>
+</h2>
+<p>//@春晓1983: //@自22由不再言论: //@额角头碰: //@埋己无土地://@南开老魏029://@秀才江湖湖: 谈历史安全，继续谈历史：罗贯中是元末民初人，吴三桂是明末清初人，我呢？<br><br>RE: 评论新闻事件，容易吃文字狱，经常有人因言获罪，还是讨论历史比较安全，为了安全，那我就讨论历史：冬天来了，春天还会远吗？秦朝指鹿为马、疯狂钳制言论了，秦朝灭亡还会远吗？隋炀帝奢侈无度、疯狂撒钱了，隋朝灭亡还会远吗？清朝抗拒民主、任意抓捕异见人士了，清朝灭亡还会远吗？</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3923225417168383" target="freeweibo-mirror">年终了，总得解决奖金的事儿。//@A股老牛: 问题没解决，创…</a>
 </h2>
 <p>年终了，总得解决奖金的事儿。//@A股老牛: 问题没解决，创收有一套！<br><br>RE: 【 北京四天单双号罚款1100万是错上加错 】 因雾霾红色预警北京单双号限行导致巨额罚款。这涉及三个问题：1、雾霾形成的主因是政府还是民众？政府不反思却霸道限行罚款，公理何在？2、限行有何法律依据，是否侵犯了公民财产权？3、单双号信息是否让公众充分了解？很多人都不知道单双号限行究竟怎么限！<br><img src="http://ww1.sinaimg.cn/large/4cfc228cgw1ez9eevry2dj20da07gaa0.jpg"></p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3922940271793273" target="freeweibo-mirror">SPAM 我仔细看了一遍，太无耻太无聊了。</a>
 </h2>
 <p>SPAM 我仔细看了一遍，太无耻太无聊了。<br><br>RE: 西方敌对势力捏造的吧？<br><img src="http://ww1.sinaimg.cn/large/be8f8847gw1ez8lfn51p1j20dv0m8jt0.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3922934420383302" target="freeweibo-mirror">SPAM //@专业起哄:这位发图的同志还好吗？</a>
-</h2>
-<p>SPAM //@专业起哄:这位发图的同志还好吗？<br><br>RE: 西方敌对势力捏造的吧？<br><img src="http://ww1.sinaimg.cn/large/be8f8847gw1ez8lfn51p1j20dv0m8jt0.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
