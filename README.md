@@ -32,6 +32,12 @@
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3923243582724614" target="freeweibo-mirror">SPAM 还记得那个完爆蓝翔的鬼畜吗？又来了第二季了……[b…</a>
+</h2>
+<p>SPAM 还记得那个完爆蓝翔的鬼畜吗？又来了第二季了……[bed凌乱] http://t.cn/R4GGzgA</p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3923230794386368" target="freeweibo-mirror">【废墟下救出一只活鸡】据@广东消防，今天12点10分，在大约…</a>
 </h2>
 <p>【废墟下救出一只活鸡】据@广东消防，今天12点10分，在大约6米的建筑废墟下，深圳光明区消防队救出了一只活鸡。杨队长介绍：他们早上6点在此处搜救破拆，期间监测到水泥下方有活物移动，便立即搜救，没想到救出的是一只鸡。杨队长表示，这只鸡以后要在消防队里养着，因为它代表着希望。<br><img src="http://ww3.sinaimg.cn/large/75b1a75fjw1ez9ly07zpqj20c80gb0te.jpg"></p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3922986245166131" target="freeweibo-mirror">看天气 //@胡杨麟:公知又搞笑了[哈哈]，要是有6个小时的…</a>
 </h2>
 <p>看天气 //@胡杨麟:公知又搞笑了[哈哈]，要是有6个小时的寒风北京的雾霾早就散了，何至于现在还是重度污染的天气，这又不知道是在什么时间在哪里哭错哪个坟头了[偷笑]<br><br>RE: 在寒风中坚守了至少六个小时却没能接到老浦，宝成在回家路上不能自已，嚎啕大哭。这兄弟是个真性情中人，所哭不但为老浦，也为他所曾经信仰的法律之死。<br><img src="http://ww1.sinaimg.cn/large/005LpGr4jw1ez8kiimcq9j30zk0zkadg.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3922984198685105" target="freeweibo-mirror">公知又搞笑了[哈哈]，要是有6个小时的寒风北京的雾霾早就散了…</a>
-</h2>
-<p>公知又搞笑了[哈哈]，要是有6个小时的寒风北京的雾霾早就散了，何至于现在还是重度污染的天气，这又不知道是在什么时间在哪里哭错哪个坟头了[偷笑]<br><br>RE: 在寒风中坚守了至少六个小时却没能接到老浦，宝成在回家路上不能自已，嚎啕大哭。这兄弟是个真性情中人，所哭不但为老浦，也为他所曾经信仰的法律之死。<br><img src="http://ww1.sinaimg.cn/large/005LpGr4jw1ez8kiimcq9j30zk0zkadg.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
