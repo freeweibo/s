@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3923502271045939" target="freeweibo-mirror">[偷笑] //@刘力博士://@鹰隼N1A晏欢:[弱]//@…</a>
+</h2>
+<p>[偷笑] //@刘力博士://@鹰隼N1A晏欢:[弱]//@李军林导演:一个堂堂的权力机构，用纳税人的钱毫无忌惮地雇用水军弄虚作假地冒充网民来假装民意，这也是醉了，会成为历史的笑话。 //@北望川: 水军也是军啊//@李军林导演:曹操面对赤壁感慨：得水军能得天下啊！[哈哈]<br><br>RE: 胡锡进终于发声了。只是友军配合不当，有的忘了去掉统一提供的帖子前的序号，有的就直接复制粘贴。<br><img src="http://ww4.sinaimg.cn/large/4ea0dee9jw1ez9id680u7j20zk0qetfm.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3923351996911201" target="freeweibo-mirror">SPAM  //@坚挺的肌肉:系统自动转发[拜拜]</a>
 </h2>
 <p>SPAM  //@坚挺的肌肉:系统自动转发[拜拜]<br><br>RE: SPAM http://t.cn/R4GCYeM 系统自动分享[拜拜]</p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3922993682478565" target="freeweibo-mirror">//@邓志国: //@GrowEasy: 哦，那就更贴切了。…</a>
 </h2>
 <p>//@邓志国: //@GrowEasy: 哦，那就更贴切了。//@心中的小象:不是律师，是记者//@GrowEasy: 这是那个为了给自己家多拿拆迁补偿，绑架工程车驾驶员要烧死人家的律师吗？<br><br>RE: 在寒风中坚守了至少六个小时却没能接到老浦，宝成在回家路上不能自已，嚎啕大哭。这兄弟是个真性情中人，所哭不但为老浦，也为他所曾经信仰的法律之死。<br><img src="http://ww1.sinaimg.cn/large/005LpGr4jw1ez8kiimcq9j30zk0zkadg.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3922991992178372" target="freeweibo-mirror">回复@愛鼬_咕唧:一个社会各尽其责，各尽本分，动辄把任何职业…</a>
-</h2>
-<p>回复@愛鼬_咕唧:一个社会各尽其责，各尽本分，动辄把任何职业份内之事无限道德拔高，无非是社会不成熟，个人心智不成熟。//@愛鼬_咕唧:回复@水穿石林:人家都连续工作了40多个小时了你还想怎么样，你行你上啊，要求别人的高度为什么老要比自己高一大截</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
