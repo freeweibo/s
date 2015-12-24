@@ -24,7 +24,7 @@
 </h2>
 <p>[偷笑] //@刘力博士://@鹰隼N1A晏欢:[弱]//@李军林导演:一个堂堂的权力机构，用纳税人的钱毫无忌惮地雇用水军弄虚作假地冒充网民来假装民意，这也是醉了，会成为历史的笑话。 //@北望川: 水军也是军啊//@李军林导演:曹操面对赤壁感慨：得水军能得天下啊！[哈哈]<br><br>RE: 胡锡进终于发声了。只是友军配合不当，有的忘了去掉统一提供的帖子前的序号，有的就直接复制粘贴。<br><img src="http://ww4.sinaimg.cn/large/4ea0dee9jw1ez9id680u7j20zk0qetfm.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3923351996911201" target="freeweibo-mirror">SPAM  //@坚挺的肌肉:系统自动转发[拜拜]</a>
 </h2>
@@ -36,7 +36,7 @@
 </h2>
 <p>SPAM http://t.cn/R4GCYeM 系统自动分享[拜拜]</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3923317482112861" target="freeweibo-mirror">一个曾经的改革开放的前沿地带，动辄以境外势力、境外组织罪加于…</a>
 </h2>
@@ -92,6 +92,12 @@
 <p>
 	<small> ============== 1天前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3923199647774200" target="freeweibo-mirror">胡锡进终于发声了。只是友军配合不当，有的忘了去掉统一提供的帖…</a>
+</h2>
+<p>胡锡进终于发声了。只是友军配合不当，有的忘了去掉统一提供的帖子前的序号，有的就直接复制粘贴。<br><img src="http://ww4.sinaimg.cn/large/4ea0dee9jw1ez9id680u7j20zk0qetfm.jpg"></p>
+<p>
+	<small> ============== 1天前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3923180316100073" target="freeweibo-mirror">//@杨佩昌:[good]//@范剑平:[赞]</a>
 </h2>
 <p>//@杨佩昌:[good]//@范剑平:[赞]<br><br>RE: 北京红色预警解除，四天限行罚款超1100万。且不说所谓的限行管不管用，为什么政府面对问题，不去反思自己管理，不寻找深层次原因和解决办法，每次总是先拿普通人开刀，不是限购限行就是罚款收费。雾霾问题首先是管理不力和治理无方，不能永远让百姓为你的失职去买单！#宝叔酷评# http://t.cn/zQbcXzX<br><img src="http://ww4.sinaimg.cn/large/4765f127jw1ez9fpvux1lj23402c0u0x.jpg"></p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3922994088614448" target="freeweibo-mirror">→_→→_→→_→//@HK_CC_BEST:北京雾霾洞悉了…</a>
 </h2>
 <p>→_→→_→→_→//@HK_CC_BEST:北京雾霾洞悉了一切[哈哈]博主本来就是逼格样。//@老李随想:看天气 //@胡杨麟:公知又搞笑了[哈哈]，要是有6个小时的寒风北京的雾霾早就散了，何至于现在还是重度污染的天气，这又不知道是在什么时间在哪里哭错哪个坟头了[偷笑]<br><br>RE: 在寒风中坚守了至少六个小时却没能接到老浦，宝成在回家路上不能自已，嚎啕大哭。这兄弟是个真性情中人，所哭不但为老浦，也为他所曾经信仰的法律之死。<br><img src="http://ww1.sinaimg.cn/large/005LpGr4jw1ez8kiimcq9j30zk0zkadg.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3922993682478565" target="freeweibo-mirror">//@邓志国: //@GrowEasy: 哦，那就更贴切了。…</a>
-</h2>
-<p>//@邓志国: //@GrowEasy: 哦，那就更贴切了。//@心中的小象:不是律师，是记者//@GrowEasy: 这是那个为了给自己家多拿拆迁补偿，绑架工程车驾驶员要烧死人家的律师吗？<br><br>RE: 在寒风中坚守了至少六个小时却没能接到老浦，宝成在回家路上不能自已，嚎啕大哭。这兄弟是个真性情中人，所哭不但为老浦，也为他所曾经信仰的法律之死。<br><img src="http://ww1.sinaimg.cn/large/005LpGr4jw1ez8kiimcq9j30zk0zkadg.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
