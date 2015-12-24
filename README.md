@@ -72,13 +72,13 @@
 </h2>
 <p>考验朝阳群众的时候到了！<br><br>RE: 【美驻华使馆：圣诞节北京三里屯或有针对西方人威胁】24日，美国大使馆官网发布通知，称“收到信息，在圣诞节期间北京三里屯地区可能发生针对西方人威胁事件,已提醒美国公民保持警戒。” 美驻华使馆工作人员对新浪国际称，今早接收到该安全预警，但“所知道的信息也只有这么多”。http://t.cn/R4GgTo3<br><img src="http://ww1.sinaimg.cn/large/60718250jw1ezan74g9goj20fa0bb0tk.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3923558147778051" target="freeweibo-mirror">SPAM 一个新生网红正在冉冉升起！</a>
 </h2>
 <p>SPAM 一个新生网红正在冉冉升起！</p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3923555554887902" target="freeweibo-mirror">【美驻华使馆：圣诞节北京三里屯或有针对西方人威胁】24日，美…</a>
 </h2>
