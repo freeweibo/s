@@ -54,7 +54,7 @@
 </h2>
 <p>【京东金融拟A轮融资50-60亿元，或2017年登陆A股战新板】12月24日，21世纪经济报道记者从知情人士处获悉，京东金融正计划引入A轮融资，融资额为50-60亿元，并优先选择A股上市。知情人士透露，京东金融拟2017年于A股战略新兴板上市；若无法满足A股上市条件，不排除赴海外上市可能。http://t.cn/R4GdK0d<br><img src="http://ww4.sinaimg.cn/large/928aba1egw1ezam3f3jq7j205k05k3ys.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3923543903295325" target="freeweibo-mirror">//@包老茂:毛泽东逝世之后，中国人民曾经对邓小平的改革开放…</a>
 </h2>
