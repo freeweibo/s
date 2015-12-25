@@ -30,7 +30,7 @@
 </h2>
 <p>SPAM 重发行了吧。<br><img src="http://ww2.sinaimg.cn/large/62318f9dgw1ezb7qwbf0kj20go0nawhi.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3923658202600788" target="freeweibo-mirror">//@迟夙生律师: //@黄山王劲松: 我老家是皖北的,记得…</a>
 </h2>
