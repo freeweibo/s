@@ -36,7 +36,7 @@
 </h2>
 <p>我的年度汉字：霾。未来十年怕都不用换了。什么“治不好雾霾提头来见”？！骗人的鬼笑话！<br><img src="http://ww2.sinaimg.cn/large/59812064jw1ezb9y6101hj20qo0zktap.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3923744118672721" target="freeweibo-mirror">SPAM Merry Christmas</a>
 </h2>
