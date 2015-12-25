@@ -24,7 +24,7 @@
 </h2>
 <p>SPAM Merry Christmas<br><img src="http://ww4.sinaimg.cn/large/8879c603jw1ezb8wctz4mj20hs0ok0vw.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3923734115399443" target="freeweibo-mirror">SPAM 重发行了吧。</a>
 </h2>
