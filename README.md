@@ -56,6 +56,12 @@
 <p>
 	<small> ============== 5小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3923907528956064" target="freeweibo-mirror">【厦大副教授：尊重热爱毛是这个国家黑心的永久添加剂】日前，厦…</a>
+</h2>
+<p>【厦大副教授：尊重热爱毛是这个国家黑心的永久添加剂】日前，厦门大学公共管理学院副教授雷艳红在其朋友圈发表言论，要求持异见者将自己拉黑。此前，教育部、厦门大学曾先后密集表态严抓高校意识形态工作。请问，@微言教育 ，@厦门大学 对此言论有何看法？<br><img src="http://ww1.sinaimg.cn/large/005AX0pcgw1ezbqwsrpyij30jh0hsmyq.jpg"></p>
+<p>
+	<small> ============== 7小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3923893087883206" target="freeweibo-mirror">年度汉字：霾！ //@赵普: 爆表的霾情下，走在北京的大街上…</a>
 </h2>
 <p>年度汉字：霾！ //@赵普: 爆表的霾情下，走在北京的大街上，相当多的人依然不戴口罩，豪迈地吞吐重霾。比霾更糟心的是同胞的麻木！//@赵普:不折不扣的灾难！<br><br>RE: 我的年度汉字：霾。未来十年怕都不用换了。什么“治不好雾霾提头来见”？！骗人的鬼笑话！<br><img src="http://ww2.sinaimg.cn/large/59812064jw1ezb9y6101hj20qo0zktap.jpg"></p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3923562727049439" target="freeweibo-mirror">这样一闹腾，今儿三里屯和工体酒吧生意都被搅黄了。磨了一年的刀…</a>
 </h2>
 <p>这样一闹腾，今儿三里屯和工体酒吧生意都被搅黄了。磨了一年的刀，发现猪都被吓跑了。。。看来帝国主义亡我之心不死啊！<br><img src="http://ww2.sinaimg.cn/large/6933cac7jw1ezao1u9c4mj20ku0rstf1.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3923558243339490" target="freeweibo-mirror">考验朝阳群众的时候到了！</a>
-</h2>
-<p>考验朝阳群众的时候到了！<br><br>RE: 【美驻华使馆：圣诞节北京三里屯或有针对西方人威胁】24日，美国大使馆官网发布通知，称“收到信息，在圣诞节期间北京三里屯地区可能发生针对西方人威胁事件,已提醒美国公民保持警戒。” 美驻华使馆工作人员对新浪国际称，今早接收到该安全预警，但“所知道的信息也只有这么多”。http://t.cn/R4GgTo3<br><img src="http://ww1.sinaimg.cn/large/60718250jw1ezan74g9goj20fa0bb0tk.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
