@@ -30,7 +30,7 @@
 </h2>
 <p>SPAM //@赵普: ！！！</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3923945092637042" target="freeweibo-mirror">SPAM #刘亦菲# 這是充滿爱的節日，茜茜，圣诞快樂！Me…</a>
 </h2>
