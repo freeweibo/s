@@ -30,13 +30,13 @@
 </h2>
 <p>？//@地瓜熊老六:厦大党委何在？？？？<br><br>RE: 【厦大副教授：尊重热爱毛是这个国家黑心的永久添加剂】日前，厦门大学公共管理学院副教授雷艳红在其朋友圈发表言论，要求持异见者将自己拉黑。此前，教育部、厦门大学曾先后密集表态严抓高校意识形态工作。请问，@微言教育 ，@厦门大学 对此言论有何看法？<br><img src="http://ww1.sinaimg.cn/large/005AX0pcgw1ezbqwsrpyij30jh0hsmyq.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3923988788636103" target="freeweibo-mirror">SPAM 网易新闻的标题果然与众不同，比如首页的雾霾专题，这…</a>
 </h2>
 <p>SPAM 网易新闻的标题果然与众不同，比如首页的雾霾专题，这些标题都让人开始怀疑人生，尤其是最后一个：各地"霾味"不同。近3成受访者对雾霾满意。。。怎么会满意呢？点开标题看，实际上内容完全不是如此。<br><img src="http://ww4.sinaimg.cn/large/471ef432jw1ezc0wq76oaj20gb04hmxw.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3923985127649048" target="freeweibo-mirror">SPAM //@赵普: ！！！</a>
 </h2>
