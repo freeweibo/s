@@ -32,6 +32,12 @@
 <p>
 	<small> ============== 4小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3923754192907886" target="freeweibo-mirror">我的年度汉字：霾。未来十年怕都不用换了。什么“治不好雾霾提头…</a>
+</h2>
+<p>我的年度汉字：霾。未来十年怕都不用换了。什么“治不好雾霾提头来见”？！骗人的鬼笑话！<br><img src="http://ww2.sinaimg.cn/large/59812064jw1ezb9y6101hj20qo0zktap.jpg"></p>
+<p>
+	<small> ============== 12小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3923744118672721" target="freeweibo-mirror">SPAM Merry Christmas</a>
 </h2>
 <p>SPAM Merry Christmas<br><img src="http://ww4.sinaimg.cn/large/8879c603jw1ezb8wctz4mj20hs0ok0vw.jpg"></p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3923511905412045" target="freeweibo-mirror">【江平:当今中国最大的隐患】现体制下，从国家整体上看，没有任…</a>
 </h2>
 <p>【江平:当今中国最大的隐患】现体制下，从国家整体上看，没有任何国家的力量可以阻止国家元首做任何事。从局部上看，没有任何地方力量可以阻止地方一把手做任何事。从微观上看，没有任何出自政府部门的力量可以阻止该部门一把手做任何事。所以，在中国发生任何事都不奇怪，这是当今中国的最大隐患。</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3923502271045939" target="freeweibo-mirror">[偷笑] //@刘力博士://@鹰隼N1A晏欢:[弱]//@…</a>
-</h2>
-<p>[偷笑] //@刘力博士://@鹰隼N1A晏欢:[弱]//@李军林导演:一个堂堂的权力机构，用纳税人的钱毫无忌惮地雇用水军弄虚作假地冒充网民来假装民意，这也是醉了，会成为历史的笑话。 //@北望川: 水军也是军啊//@李军林导演:曹操面对赤壁感慨：得水军能得天下啊！[哈哈]<br><br>RE: 胡锡进终于发声了。只是友军配合不当，有的忘了去掉统一提供的帖子前的序号，有的就直接复制粘贴。<br><img src="http://ww4.sinaimg.cn/large/4ea0dee9jw1ez9id680u7j20zk0qetfm.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
