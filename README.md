@@ -66,13 +66,13 @@
 </h2>
 <p>微信是个圈，不能随便钻，要玩花和草，不能谈现在，实在忍不住，就搞古代人，研究无禁区，宣传有纪律。[蠟燭]<br><br>RE: 【厦大副教授：尊重热爱毛是这个国家黑心的永久添加剂】日前，厦门大学公共管理学院副教授雷艳红在其朋友圈发表言论，要求持异见者将自己拉黑。此前，教育部、厦门大学曾先后密集表态严抓高校意识形态工作。请问，@微言教育 ，@厦门大学 对此言论有何看法？<br><img src="http://ww1.sinaimg.cn/large/005AX0pcgw1ezbqwsrpyij30jh0hsmyq.jpg"></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3923945092637042" target="freeweibo-mirror">SPAM #刘亦菲# 這是充滿爱的節日，茜茜，圣诞快樂！Me…</a>
 </h2>
 <p>SPAM #刘亦菲# 這是充滿爱的節日，茜茜，圣诞快樂！Merry Xmas !<br><br>RE: 从粉丝到如今成为花蜜系列形象大使，过程中我收获了很多不一样的经历和体验。除了状态更加完美，更获得了内心的无限正能量，变得愈发从容和自信。圣诞礼物超好用~超喜欢~也祝大家圣诞快乐，越来越美丽~<br><img src="http://ww1.sinaimg.cn/large/c260f7abjw1ezbvbcfppwj20by0hsabx.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3923941699367098" target="freeweibo-mirror">SPAM 吃土喝风的味道还不错。//@夜辰一: 如果有一个愿…</a>
 </h2>
