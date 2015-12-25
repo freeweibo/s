@@ -44,6 +44,12 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3923982561033098" target="freeweibo-mirror">微信是个圈，不能随便钻，要玩花和草，不能谈现在，实在忍不住，…</a>
+</h2>
+<p>微信是个圈，不能随便钻，要玩花和草，不能谈现在，实在忍不住，就搞古代人，研究无禁区，宣传有纪律。[蠟燭]<br><br>RE: 【厦大副教授：尊重热爱毛是这个国家黑心的永久添加剂】日前，厦门大学公共管理学院副教授雷艳红在其朋友圈发表言论，要求持异见者将自己拉黑。此前，教育部、厦门大学曾先后密集表态严抓高校意识形态工作。请问，@微言教育 ，@厦门大学 对此言论有何看法？<br><img src="http://ww1.sinaimg.cn/large/005AX0pcgw1ezbqwsrpyij30jh0hsmyq.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3923945092637042" target="freeweibo-mirror">SPAM #刘亦菲# 這是充滿爱的節日，茜茜，圣诞快樂！Me…</a>
 </h2>
 <p>SPAM #刘亦菲# 這是充滿爱的節日，茜茜，圣诞快樂！Merry Xmas !<br><br>RE: 从粉丝到如今成为花蜜系列形象大使，过程中我收获了很多不一样的经历和体验。除了状态更加完美，更获得了内心的无限正能量，变得愈发从容和自信。圣诞礼物超好用~超喜欢~也祝大家圣诞快乐，越来越美丽~<br><img src="http://ww1.sinaimg.cn/large/c260f7abjw1ezbvbcfppwj20by0hsabx.jpg"></p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3923566158504973" target="freeweibo-mirror">美国大使馆在美国人基本不玩的中国的社交媒体平台上发布在中国首…</a>
 </h2>
 <p>美国大使馆在美国人基本不玩的中国的社交媒体平台上发布在中国首都北京核心娱乐区域的针对美国人的袭击预警。这其中的奥秘你们琢磨去吧。</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3923562727049439" target="freeweibo-mirror">这样一闹腾，今儿三里屯和工体酒吧生意都被搅黄了。磨了一年的刀…</a>
-</h2>
-<p>这样一闹腾，今儿三里屯和工体酒吧生意都被搅黄了。磨了一年的刀，发现猪都被吓跑了。。。看来帝国主义亡我之心不死啊！<br><img src="http://ww2.sinaimg.cn/large/6933cac7jw1ezao1u9c4mj20ku0rstf1.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
