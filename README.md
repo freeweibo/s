@@ -26,6 +26,12 @@
 <p>
 	<small> ============== 1小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3923989338049841" target="freeweibo-mirror">？//@地瓜熊老六:厦大党委何在？？？？</a>
+</h2>
+<p>？//@地瓜熊老六:厦大党委何在？？？？<br><br>RE: 【厦大副教授：尊重热爱毛是这个国家黑心的永久添加剂】日前，厦门大学公共管理学院副教授雷艳红在其朋友圈发表言论，要求持异见者将自己拉黑。此前，教育部、厦门大学曾先后密集表态严抓高校意识形态工作。请问，@微言教育 ，@厦门大学 对此言论有何看法？<br><img src="http://ww1.sinaimg.cn/large/005AX0pcgw1ezbqwsrpyij30jh0hsmyq.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3923988788636103" target="freeweibo-mirror">SPAM 网易新闻的标题果然与众不同，比如首页的雾霾专题，这…</a>
 </h2>
 <p>SPAM 网易新闻的标题果然与众不同，比如首页的雾霾专题，这些标题都让人开始怀疑人生，尤其是最后一个：各地"霾味"不同。近3成受访者对雾霾满意。。。怎么会满意呢？点开标题看，实际上内容完全不是如此。<br><img src="http://ww4.sinaimg.cn/large/471ef432jw1ezc0wq76oaj20gb04hmxw.jpg"></p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3923558243339490" target="freeweibo-mirror">考验朝阳群众的时候到了！</a>
 </h2>
 <p>考验朝阳群众的时候到了！<br><br>RE: 【美驻华使馆：圣诞节北京三里屯或有针对西方人威胁】24日，美国大使馆官网发布通知，称“收到信息，在圣诞节期间北京三里屯地区可能发生针对西方人威胁事件,已提醒美国公民保持警戒。” 美驻华使馆工作人员对新浪国际称，今早接收到该安全预警，但“所知道的信息也只有这么多”。http://t.cn/R4GgTo3<br><img src="http://ww1.sinaimg.cn/large/60718250jw1ezan74g9goj20fa0bb0tk.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3923558147778051" target="freeweibo-mirror">SPAM 一个新生网红正在冉冉升起！</a>
-</h2>
-<p>SPAM 一个新生网红正在冉冉升起！</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
