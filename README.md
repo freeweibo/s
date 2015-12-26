@@ -102,7 +102,7 @@
 </h2>
 <p>为什么？<br><br>RE: 前领导人为何不能出国旅行？是不愿意自费还是禁止？[汗]<br><img src="http://ww1.sinaimg.cn/large/dd816182gw1ezc9tmer8zj20yi0vwaez.jpg"></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3924082929701704" target="freeweibo-mirror">意淫女性是最下作龌龊的表现，有理说理，无论持什么观点。侮辱女…</a>
 </h2>
