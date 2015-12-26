@@ -24,7 +24,7 @@
 </h2>
 <p>那是一个人人以穷为荣，年轻人全是脑残粉，文物被砸抢，法律被践踏，没有人敢有钱，没有人敢致富，没有人敢批评，没有人敢改变的时代。那时人们都在默默的等待……等到他老人家去世那一天……终于可以动手拯救这个国家了。</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3924398723247635" target="freeweibo-mirror">SPAM 教你鉴别蜂蜜哦，很实用的</a>
 </h2>
@@ -42,7 +42,7 @@
 </h2>
 <p>SPAM 求背景音乐。 http://t.cn/R4th2l1</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3924377517083533" target="freeweibo-mirror">//@82年矿泉水1994:文革余孽啊！这些人不觉醒，中国怎…</a>
 </h2>
