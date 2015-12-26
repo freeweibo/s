@@ -36,7 +36,7 @@
 </h2>
 <p>这就是昨天媒体报道的普宁新闻被扭曲的事实真相，现在只有香港媒体才敢真实报道！求大家还云落子民一个清白，还云落子民一个绿色家园，关注普宁云落，云落子民需要大家的救助，求好心人转发扩散！<br><img src="http://ww2.sinaimg.cn/large/0067YNEdgw1ezcxw3hsy4j30f00qojvn.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3924271460417374" target="freeweibo-mirror">//@凌虚铺子: 死马夹头这夯货，纯属是自己吃饭，忽悠他人吃…</a>
 </h2>
