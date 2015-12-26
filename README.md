@@ -90,7 +90,7 @@
 </h2>
 <p>SPAM //@云散-月明2013: [偷笑]//@何时会天明16:[哈哈]//@星V辰iD54: [哈哈]<br><br>RE: 毛粉脑残，过来拜拜你毛爷爷！[来]@王宝强<br><img src="http://ww4.sinaimg.cn/large/006jET1rgw1ezd3a6zdpwj30qo3m2qjw.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3924336982943191" target="freeweibo-mirror">「韩国电影《深情触摸》片段」想看全片？so easy#重庆生…</a>
 </h2>
@@ -126,7 +126,7 @@
 </h2>
 <p>求真相！！ 网友发来的现场视频集锦，点击可看：http://t.cn/R45qwMn http://t.cn/R45u72N http://t.cn/R4qbozq @神一样的觉醒</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3924279806608160" target="freeweibo-mirror">这就是昨天媒体报道的普宁新闻被扭曲的事实真相，现在只有香港媒…</a>
 </h2>
