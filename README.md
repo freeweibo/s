@@ -38,6 +38,12 @@
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3924253739546805" target="freeweibo-mirror">SPAM 觉悟票第一次见，还1959年的，干什么用的？</a>
+</h2>
+<p>SPAM 觉悟票第一次见，还1959年的，干什么用的？<br><br>RE: 今天是毛泽东生辰，夹头又在叽叽歪歪颂毛以骗毛粉。作为一个多元社会，你可以颂毛，也可以颂耶稣，颂安拉，颂佛祖，但必须出自内心，否则就是伪君子，就是亵渎神明。夹头若真心崇毛，就必须把京城豪宅拿出来共产；必须让老婆儿子从美帝那里滚回来。否则，就让他去领觉悟票，让他儿子去领粪票！<br><img src="http://ww3.sinaimg.cn/large/005SvoAtgw1ezcsor67exj30b805x0ty.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3924252833147102" target="freeweibo-mirror">#旅行十年#  //@Ringo王小生: //@堀江龍徹:/…</a>
 </h2>
 <p>#旅行十年#  //@Ringo王小生: //@堀江龍徹://@瞅日赏菊:转发微博</p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3923941699367098" target="freeweibo-mirror">SPAM 吃土喝风的味道还不错。//@夜辰一: 如果有一个愿…</a>
 </h2>
 <p>SPAM 吃土喝风的味道还不错。//@夜辰一: 如果有一个愿望：是把以前玩过的的游戏氪的金都还给我多好～</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3923907528956064" target="freeweibo-mirror">【厦大副教授：尊重热爱毛是这个国家黑心的永久添加剂】日前，厦…</a>
-</h2>
-<p>【厦大副教授：尊重热爱毛是这个国家黑心的永久添加剂】日前，厦门大学公共管理学院副教授雷艳红在其朋友圈发表言论，要求持异见者将自己拉黑。此前，教育部、厦门大学曾先后密集表态严抓高校意识形态工作。请问，@微言教育 ，@厦门大学 对此言论有何看法？<br><img src="http://ww1.sinaimg.cn/large/005AX0pcgw1ezbqwsrpyij30jh0hsmyq.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
