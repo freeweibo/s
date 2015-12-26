@@ -36,7 +36,7 @@
 </h2>
 <p>SPAM //@云散-月明2013: [偷笑]//@何时会天明16:[哈哈]//@星V辰iD54: [哈哈]<br><br>RE: 毛粉脑残，过来拜拜你毛爷爷！[来]@王宝强<br><img src="http://ww4.sinaimg.cn/large/006jET1rgw1ezd3a6zdpwj30qo3m2qjw.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3924336982943191" target="freeweibo-mirror">「韩国电影《深情触摸》片段」想看全片？so easy#重庆生…</a>
 </h2>
@@ -49,6 +49,12 @@
 <p>毛粉脑残，过来拜拜你毛爷爷！[来]@王宝强<br><img src="http://ww4.sinaimg.cn/large/006jET1rgw1ezd3a6zdpwj30qo3m2qjw.jpg"></p>
 <p>
 	<small> ============== 6小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3924306142493120" target="freeweibo-mirror">毛粉煽动攻击某报社。</a>
+</h2>
+<p>毛粉煽动攻击某报社。<br><img src="http://ww3.sinaimg.cn/large/0068SFEdjw1ezd1g0tvwtj30qo0k4wgd.jpg"></p>
+<p>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3924293542736712" target="freeweibo-mirror">。。。//@喷嚏网铂程: 转发微博</a>
 </h2>
@@ -66,7 +72,7 @@
 </h2>
 <p>这就是昨天媒体报道的普宁新闻被扭曲的事实真相，现在只有香港媒体才敢真实报道！求大家还云落子民一个清白，还云落子民一个绿色家园，关注普宁云落，云落子民需要大家的救助，求好心人转发扩散！<br><img src="http://ww2.sinaimg.cn/large/0067YNEdgw1ezcxw3hsy4j30f00qojvn.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3924271460417374" target="freeweibo-mirror">//@凌虚铺子: 死马夹头这夯货，纯属是自己吃饭，忽悠他人吃…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3924197640358273" target="freeweibo-mirror">为什么？</a>
 </h2>
 <p>为什么？<br><br>RE: 前领导人为何不能出国旅行？是不愿意自费还是禁止？[汗]<br><img src="http://ww1.sinaimg.cn/large/dd816182gw1ezc9tmer8zj20yi0vwaez.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3924082929701704" target="freeweibo-mirror">意淫女性是最下作龌龊的表现，有理说理，无论持什么观点。侮辱女…</a>
-</h2>
-<p>意淫女性是最下作龌龊的表现，有理说理，无论持什么观点。侮辱女性的渣它们可能忘了自己也是女人生的，它们意淫的物件它们妈它们老婆都有。//@麦田守望翁2: 有辱斯文！ //@文山娃:於中華傳統文化，這些位男性學者們繼承得最好的，恐怕就是“金蓮文化”——面對女性比拼把玩色情文字的技巧，視為雅。<br><br>RE: 【上流文人 下流表達 】 老左識途：共青團網絡智庫專家 戴旭：團中央網絡智庫專家 點子正：團中央網絡智庫專家 郭松民：前《國企》雜誌研究部主任 椒江葉Sir：浙江最美警察候選人 老辣陳香：台州市委宣傳部幹部 孤煙暮蟬：惠州公務員 郝連勃勃大王：《百家講壇》主講 蔡小心：紅二代（註：核心）<br><img src="http://ww3.sinaimg.cn/large/65cc9274jw1ezc9stbidfj20hs0vkn09.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
