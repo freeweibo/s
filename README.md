@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3924339856301513" target="freeweibo-mirror">SPAM //@云散-月明2013: [偷笑]//@何时会天…</a>
+</h2>
+<p>SPAM //@云散-月明2013: [偷笑]//@何时会天明16:[哈哈]//@星V辰iD54: [哈哈]<br><br>RE: 毛粉脑残，过来拜拜你毛爷爷！[来]@王宝强<br><img src="http://ww4.sinaimg.cn/large/006jET1rgw1ezd3a6zdpwj30qo3m2qjw.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3924336982943191" target="freeweibo-mirror">「韩国电影《深情触摸》片段」想看全片？so easy#重庆生…</a>
 </h2>
 <p>「韩国电影《深情触摸》片段」想看全片？so easy#重庆生活#<br><img src="http://ww4.sinaimg.cn/large/6fccccdfgw1ezd4z65ejyg207f046k6w.gif"></p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3923990026177274" target="freeweibo-mirror">//@戴旭网络义勇军壹师: 作为一个公共政策研究学者,其思想…</a>
 </h2>
 <p>//@戴旭网络义勇军壹师: 作为一个公共政策研究学者,其思想严重背离党的指导思想,对中国共产党所坚持的毛泽东思想恶意诋毁,这样的人有什么资格在大学任教,有这样的教授,难道想教育出什么样的未来接班人？@教育部@教育微言 难道这就是你们提倡的高等学校思想意识形态工作的成果吗？你们难道就不该承担责<br><br>RE: 【厦大副教授：尊重热爱毛是这个国家黑心的永久添加剂】日前，厦门大学公共管理学院副教授雷艳红在其朋友圈发表言论，要求持异见者将自己拉黑。此前，教育部、厦门大学曾先后密集表态严抓高校意识形态工作。请问，@微言教育 ，@厦门大学 对此言论有何看法？<br><img src="http://ww1.sinaimg.cn/large/005AX0pcgw1ezbqwsrpyij30jh0hsmyq.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3923989338049841" target="freeweibo-mirror">？//@地瓜熊老六:厦大党委何在？？？？</a>
-</h2>
-<p>？//@地瓜熊老六:厦大党委何在？？？？<br><br>RE: 【厦大副教授：尊重热爱毛是这个国家黑心的永久添加剂】日前，厦门大学公共管理学院副教授雷艳红在其朋友圈发表言论，要求持异见者将自己拉黑。此前，教育部、厦门大学曾先后密集表态严抓高校意识形态工作。请问，@微言教育 ，@厦门大学 对此言论有何看法？<br><img src="http://ww1.sinaimg.cn/large/005AX0pcgw1ezbqwsrpyij30jh0hsmyq.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
