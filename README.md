@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3924344634139018" target="freeweibo-mirror">SPAM //@快乐老龙龙: //@邓树林律师: //@浔阳…</a>
+</h2>
+<p>SPAM //@快乐老龙龙: //@邓树林律师: //@浔阳女高音: //@沥泉枪挑:[笑cry][笑cry]//@浩瀚小河流:[笑cry][笑cry]<br><br>RE: 毛粉脑残，过来拜拜你毛爷爷！[来]@王宝强<br><img src="http://ww4.sinaimg.cn/large/006jET1rgw1ezd3a6zdpwj30qo3m2qjw.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3924339856301513" target="freeweibo-mirror">SPAM //@云散-月明2013: [偷笑]//@何时会天…</a>
 </h2>
 <p>SPAM //@云散-月明2013: [偷笑]//@何时会天明16:[哈哈]//@星V辰iD54: [哈哈]<br><br>RE: 毛粉脑残，过来拜拜你毛爷爷！[来]@王宝强<br><img src="http://ww4.sinaimg.cn/large/006jET1rgw1ezd3a6zdpwj30qo3m2qjw.jpg"></p>
@@ -72,7 +78,7 @@
 </h2>
 <p>SPAM 文物//@范剑平:觉悟票第一次见，还1959年的，干什么用的？<br><br>RE: 今天是毛泽东生辰，夹头又在叽叽歪歪颂毛以骗毛粉。作为一个多元社会，你可以颂毛，也可以颂耶稣，颂安拉，颂佛祖，但必须出自内心，否则就是伪君子，就是亵渎神明。夹头若真心崇毛，就必须把京城豪宅拿出来共产；必须让老婆儿子从美帝那里滚回来。否则，就让他去领觉悟票，让他儿子去领粪票！<br><img src="http://ww3.sinaimg.cn/large/005SvoAtgw1ezcsor67exj30b805x0ty.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3924254510652197" target="freeweibo-mirror">罄竹难书。//@宪政是敏感词: //@鄢烈山:回复@圣手50…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3924080589770156" target="freeweibo-mirror">噗，又是互联网+了。 //@文山娃:不衝突。 //@蒲子里的…</a>
 </h2>
 <p>噗，又是互联网+了。 //@文山娃:不衝突。 //@蒲子里的二流子:三娃老师，组织放你回来是考虑到你在东圣节研究上的杰出造诣，爱国人士性学，咱过完东圣节再聊好吗？ //@文山娃:於中華傳統文化，這些位男性學者們繼承得最好的，恐怕就是“金蓮文化”——面對女性比拼把玩色情文字的技巧，視為雅。<br><br>RE: 【上流文人 下流表達 】 老左識途：共青團網絡智庫專家 戴旭：團中央網絡智庫專家 點子正：團中央網絡智庫專家 郭松民：前《國企》雜誌研究部主任 椒江葉Sir：浙江最美警察候選人 老辣陳香：台州市委宣傳部幹部 孤煙暮蟬：惠州公務員 郝連勃勃大王：《百家講壇》主講 蔡小心：紅二代（註：核心）<br><img src="http://ww3.sinaimg.cn/large/65cc9274jw1ezc9stbidfj20hs0vkn09.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3924075799502083" target="freeweibo-mirror">【上流文人 下流表達 】 老左識途：共青團網絡智庫專家 戴旭…</a>
-</h2>
-<p>【上流文人 下流表達 】 老左識途：共青團網絡智庫專家 戴旭：團中央網絡智庫專家 點子正：團中央網絡智庫專家 郭松民：前《國企》雜誌研究部主任 椒江葉Sir：浙江最美警察候選人 老辣陳香：台州市委宣傳部幹部 孤煙暮蟬：惠州公務員 郝連勃勃大王：《百家講壇》主講 蔡小心：紅二代（註：核心）<br><img src="http://ww3.sinaimg.cn/large/65cc9274jw1ezc9stbidfj20hs0vkn09.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
