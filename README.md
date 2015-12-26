@@ -24,13 +24,19 @@
 </h2>
 <p>罄竹难书。//@宪政是敏感词: //@鄢烈山:回复@圣手5019689288:那是虐恋互虐性爱图片呀。有人不是有受虐癖吗？//@圣手5019689288:后面二图是什么意思？<br><br>RE: 【记住这个日子干什么？】昨天是圣诞节，是独裁者齐奥赛斯库被毙的日子，是红色帝俄苏联解体的日子。今天是公安局给我定的生日，也是毛泽东的生日。微信朋友圈有人罗列了毛建国到死去干的好事，如二图所示，大部分我有亲历。他不死我肯定与大学无缘。 http://t.cn/R2WJKr0<br><img src="http://ww1.sinaimg.cn/large/467a6223gw1ezcsol3nfsj20f00qojut.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3924252833147102" target="freeweibo-mirror">#旅行十年#  //@Ringo王小生: //@堀江龍徹:/…</a>
 </h2>
 <p>#旅行十年#  //@Ringo王小生: //@堀江龍徹://@瞅日赏菊:转发微博</p>
 <p>
 	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3924231374543813" target="freeweibo-mirror">【记住这个日子干什么？】昨天是圣诞节，是独裁者齐奥赛斯库被毙…</a>
+</h2>
+<p>【记住这个日子干什么？】昨天是圣诞节，是独裁者齐奥赛斯库被毙的日子，是红色帝俄苏联解体的日子。今天是公安局给我定的生日，也是毛泽东的生日。微信朋友圈有人罗列了毛建国到死去干的好事，如二图所示，大部分我有亲历。他不死我肯定与大学无缘。 http://t.cn/R2WJKr0<br><img src="http://ww1.sinaimg.cn/large/467a6223gw1ezcsol3nfsj20f00qojut.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3924197640358273" target="freeweibo-mirror">为什么？</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3923734115399443" target="freeweibo-mirror">SPAM 重发行了吧。</a>
 </h2>
 <p>SPAM 重发行了吧。<br><img src="http://ww2.sinaimg.cn/large/62318f9dgw1ezb7qwbf0kj20go0nawhi.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3923658202600788" target="freeweibo-mirror">//@迟夙生律师: //@黄山王劲松: 我老家是皖北的,记得…</a>
-</h2>
-<p>//@迟夙生律师: //@黄山王劲松: 我老家是皖北的,记得我爷爷曾对我说,60年,村里一天饿死了18口人。 //@茨冈女郎:万里说：“人民公社化后发生的三年困难时期，到处浮肿病，饿死人。据了解，光安徽省的所谓非正常死亡人口就三四百万。冰冻三尺，非一日之寒，过去左了那么多年，几乎把农民的积极性打击</p>
 <p>
 	<small> ============== 2天前</small>
 </p>
