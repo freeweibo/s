@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3924293542736712" target="freeweibo-mirror">。。。//@喷嚏网铂程: 转发微博</a>
+</h2>
+<p>。。。//@喷嚏网铂程: 转发微博<br><br>RE: 今天这个日子，应该给我打钱，我买风扇把霾都吹到腊肉堂去。<br><img src="http://ww2.sinaimg.cn/large/61ff26d3jw1ezcx8enb46j20zk0qhtb1.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3924271460417374" target="freeweibo-mirror">//@凌虚铺子: 死马夹头这夯货，纯属是自己吃饭，忽悠他人吃…</a>
 </h2>
 <p>//@凌虚铺子: 死马夹头这夯货，纯属是自己吃饭，忽悠他人吃屎角色。闹“薄党”他挺薄；闹“康党”他挺康，谁闹挺谁，挺谁谁死。看看网友是怎么夸他的：“一撮鸡毛顶上冲，站在墙头吹大风。东风吹来毛则西，西风吹来毛则东。夹头伸舌马臀前，忽左忽右探风源。南面开枪司马北，北面开枪司马南。”<br><br>RE: 今天是毛泽东生辰，夹头又在叽叽歪歪颂毛以骗毛粉。作为一个多元社会，你可以颂毛，也可以颂耶稣，颂安拉，颂佛祖，但必须出自内心，否则就是伪君子，就是亵渎神明。夹头若真心崇毛，就必须把京城豪宅拿出来共产；必须让老婆儿子从美帝那里滚回来。否则，就让他去领觉悟票，让他儿子去领粪票！<br><img src="http://ww3.sinaimg.cn/large/005SvoAtgw1ezcsor67exj30b805x0ty.jpg"></p>
@@ -36,7 +42,7 @@
 </h2>
 <p>SPAM 文物//@范剑平:觉悟票第一次见，还1959年的，干什么用的？<br><br>RE: 今天是毛泽东生辰，夹头又在叽叽歪歪颂毛以骗毛粉。作为一个多元社会，你可以颂毛，也可以颂耶稣，颂安拉，颂佛祖，但必须出自内心，否则就是伪君子，就是亵渎神明。夹头若真心崇毛，就必须把京城豪宅拿出来共产；必须让老婆儿子从美帝那里滚回来。否则，就让他去领觉悟票，让他儿子去领粪票！<br><img src="http://ww3.sinaimg.cn/large/005SvoAtgw1ezcsor67exj30b805x0ty.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3924254510652197" target="freeweibo-mirror">罄竹难书。//@宪政是敏感词: //@鄢烈山:回复@圣手50…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3923982561033098" target="freeweibo-mirror">微信是个圈，不能随便钻，要玩花和草，不能谈现在，实在忍不住，…</a>
 </h2>
 <p>微信是个圈，不能随便钻，要玩花和草，不能谈现在，实在忍不住，就搞古代人，研究无禁区，宣传有纪律。[蠟燭]<br><br>RE: 【厦大副教授：尊重热爱毛是这个国家黑心的永久添加剂】日前，厦门大学公共管理学院副教授雷艳红在其朋友圈发表言论，要求持异见者将自己拉黑。此前，教育部、厦门大学曾先后密集表态严抓高校意识形态工作。请问，@微言教育 ，@厦门大学 对此言论有何看法？<br><img src="http://ww1.sinaimg.cn/large/005AX0pcgw1ezbqwsrpyij30jh0hsmyq.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3923945092637042" target="freeweibo-mirror">SPAM #刘亦菲# 這是充滿爱的節日，茜茜，圣诞快樂！Me…</a>
-</h2>
-<p>SPAM #刘亦菲# 這是充滿爱的節日，茜茜，圣诞快樂！Merry Xmas !<br><br>RE: 从粉丝到如今成为花蜜系列形象大使，过程中我收获了很多不一样的经历和体验。除了状态更加完美，更获得了内心的无限正能量，变得愈发从容和自信。圣诞礼物超好用~超喜欢~也祝大家圣诞快乐，越来越美丽~<br><img src="http://ww1.sinaimg.cn/large/c260f7abjw1ezbvbcfppwj20by0hsabx.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
