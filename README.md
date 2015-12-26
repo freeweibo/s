@@ -30,7 +30,7 @@
 </h2>
 <p>SPAM 求背景音乐。 http://t.cn/R4th2l1</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3924377517083533" target="freeweibo-mirror">//@82年矿泉水1994:文革余孽啊！这些人不觉醒，中国怎…</a>
 </h2>
@@ -65,6 +65,12 @@
 	<a href="https://freeweibo.com/weibo/3924306142493120" target="freeweibo-mirror">毛粉煽动攻击某报社。</a>
 </h2>
 <p>毛粉煽动攻击某报社。<br><img src="http://ww3.sinaimg.cn/large/0068SFEdjw1ezd1g0tvwtj30qo0k4wgd.jpg"></p>
+<p>
+	<small> ============== 7小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3924303462050456" target="freeweibo-mirror">陳丹青说过這段話：“這是個弱智民族，必然會有更深重的災難。你…</a>
+</h2>
+<p>陳丹青说过這段話：“這是個弱智民族，必然會有更深重的災難。你看都討論些什麼：文革這麼反人類的暴行，還在爭論正不正確；還在討論民主與專製誰好誰壞；餓死幾千萬人，還在為毛好毛壞爭得面紅耳赤。這些都是常識，象分辯食物與屎一樣容易。同這樣一群腦殘二逼生活在一個時代，真他媽悲哀！”～轉<br><img src="http://ww3.sinaimg.cn/large/006fR8jqgw1ezd10fr3lfj30ik2ls7ez.jpg"></p>
 <p>
 	<small> ============== 7小时前</small>
 </p><h2>
@@ -114,13 +120,13 @@
 </h2>
 <p>SPAM 觉悟票第一次见，还1959年的，干什么用的？<br><br>RE: 今天是毛泽东生辰，夹头又在叽叽歪歪颂毛以骗毛粉。作为一个多元社会，你可以颂毛，也可以颂耶稣，颂安拉，颂佛祖，但必须出自内心，否则就是伪君子，就是亵渎神明。夹头若真心崇毛，就必须把京城豪宅拿出来共产；必须让老婆儿子从美帝那里滚回来。否则，就让他去领觉悟票，让他儿子去领粪票！<br><img src="http://ww3.sinaimg.cn/large/005SvoAtgw1ezcsor67exj30b805x0ty.jpg"></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3924252833147102" target="freeweibo-mirror">#旅行十年#  //@Ringo王小生: //@堀江龍徹:/…</a>
 </h2>
 <p>#旅行十年#  //@Ringo王小生: //@堀江龍徹://@瞅日赏菊:转发微博</p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3924239343878246" target="freeweibo-mirror">//@驼背的明天: //@陶景洲:右边的建议有合理性。//@…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3924232805076244" target="freeweibo-mirror">今天是毛泽东生辰，夹头又在叽叽歪歪颂毛以骗毛粉。作为一个多元…</a>
 </h2>
 <p>今天是毛泽东生辰，夹头又在叽叽歪歪颂毛以骗毛粉。作为一个多元社会，你可以颂毛，也可以颂耶稣，颂安拉，颂佛祖，但必须出自内心，否则就是伪君子，就是亵渎神明。夹头若真心崇毛，就必须把京城豪宅拿出来共产；必须让老婆儿子从美帝那里滚回来。否则，就让他去领觉悟票，让他儿子去领粪票！<br><img src="http://ww3.sinaimg.cn/large/005SvoAtgw1ezcsor67exj30b805x0ty.jpg"></p>
-<p>
-	<small> ============== 12小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3924231374543813" target="freeweibo-mirror">【记住这个日子干什么？】昨天是圣诞节，是独裁者齐奥赛斯库被毙…</a>
-</h2>
-<p>【记住这个日子干什么？】昨天是圣诞节，是独裁者齐奥赛斯库被毙的日子，是红色帝俄苏联解体的日子。今天是公安局给我定的生日，也是毛泽东的生日。微信朋友圈有人罗列了毛建国到死去干的好事，如二图所示，大部分我有亲历。他不死我肯定与大学无缘。 http://t.cn/R2WJKr0<br><img src="http://ww1.sinaimg.cn/large/467a6223gw1ezcsol3nfsj20f00qojut.jpg"></p>
 <p>
 	<small> ============== 12小时前</small>
 </p>
