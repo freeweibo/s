@@ -36,7 +36,7 @@
 </h2>
 <p>求真相！！ 网友发来的现场视频集锦，点击可看：http://t.cn/R45qwMn http://t.cn/R45u72N http://t.cn/R4qbozq @神一样的觉醒</p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3924279806608160" target="freeweibo-mirror">这就是昨天媒体报道的普宁新闻被扭曲的事实真相，现在只有香港媒…</a>
 </h2>
