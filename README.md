@@ -24,7 +24,7 @@
 </h2>
 <p>//@司马南: 看党委书记校长的态度了！若干大学领导喜欢扮演开明绅士. //@清风斯然:既然她公开了对这个共和国缔造者的刻骨仇恨，既然她具有这个共和国国立大学教授的公职身份，那么就请她离开，没有公职身份她爱骂不骂，我们不管。这事厦大校方没个说法没完！<br><br>RE: 今天是2015年的12月25日，明天是毛主席诞辰122周年纪念日。 言论自由的中国网络让人大开眼界，我们有幸又认识一位厦门大学在职副教授，毕业于东京大学经济学部和北京大学政府管理学院的政治学博士。此人个性倔强且所指明确。<br><img src="http://ww2.sinaimg.cn/large/4b4e0e98jw1ezcaj5rur1j20jh0hsjsz.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3924449034482848" target="freeweibo-mirror">人民公社收了农民土地禁了私产毁了劳动积极性，大跃进虚报产量放…</a>
 </h2>
@@ -108,7 +108,7 @@
 </h2>
 <p>SPAM //@快乐老龙龙: //@邓树林律师: //@浔阳女高音: //@沥泉枪挑:[笑cry][笑cry]//@浩瀚小河流:[笑cry][笑cry]<br><br>RE: 毛粉脑残，过来拜拜你毛爷爷！[来]@王宝强<br><img src="http://ww4.sinaimg.cn/large/006jET1rgw1ezd3a6zdpwj30qo3m2qjw.jpg"></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3924339856301513" target="freeweibo-mirror">SPAM //@云散-月明2013: [偷笑]//@何时会天…</a>
 </h2>
