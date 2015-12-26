@@ -24,13 +24,19 @@
 </h2>
 <p>SPAM //@云散-月明2013: [偷笑]//@何时会天明16:[哈哈]//@星V辰iD54: [哈哈]<br><br>RE: 毛粉脑残，过来拜拜你毛爷爷！[来]@王宝强<br><img src="http://ww4.sinaimg.cn/large/006jET1rgw1ezd3a6zdpwj30qo3m2qjw.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3924336982943191" target="freeweibo-mirror">「韩国电影《深情触摸》片段」想看全片？so easy#重庆生…</a>
 </h2>
 <p>「韩国电影《深情触摸》片段」想看全片？so easy#重庆生活#<br><img src="http://ww4.sinaimg.cn/large/6fccccdfgw1ezd4z65ejyg207f046k6w.gif"></p>
 <p>
 	<small> ============== 4小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3924322139279376" target="freeweibo-mirror">毛粉脑残，过来拜拜你毛爷爷！[来]@王宝强</a>
+</h2>
+<p>毛粉脑残，过来拜拜你毛爷爷！[来]@王宝强<br><img src="http://ww4.sinaimg.cn/large/006jET1rgw1ezd3a6zdpwj30qo3m2qjw.jpg"></p>
+<p>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3924293542736712" target="freeweibo-mirror">。。。//@喷嚏网铂程: 转发微博</a>
 </h2>
@@ -48,7 +54,7 @@
 </h2>
 <p>这就是昨天媒体报道的普宁新闻被扭曲的事实真相，现在只有香港媒体才敢真实报道！求大家还云落子民一个清白，还云落子民一个绿色家园，关注普宁云落，云落子民需要大家的救助，求好心人转发扩散！<br><img src="http://ww2.sinaimg.cn/large/0067YNEdgw1ezcxw3hsy4j30f00qojvn.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3924271460417374" target="freeweibo-mirror">//@凌虚铺子: 死马夹头这夯货，纯属是自己吃饭，忽悠他人吃…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3924075799502083" target="freeweibo-mirror">【上流文人 下流表達 】 老左識途：共青團網絡智庫專家 戴旭…</a>
 </h2>
 <p>【上流文人 下流表達 】 老左識途：共青團網絡智庫專家 戴旭：團中央網絡智庫專家 點子正：團中央網絡智庫專家 郭松民：前《國企》雜誌研究部主任 椒江葉Sir：浙江最美警察候選人 老辣陳香：台州市委宣傳部幹部 孤煙暮蟬：惠州公務員 郝連勃勃大王：《百家講壇》主講 蔡小心：紅二代（註：核心）<br><img src="http://ww3.sinaimg.cn/large/65cc9274jw1ezc9stbidfj20hs0vkn09.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3923990026177274" target="freeweibo-mirror">//@戴旭网络义勇军壹师: 作为一个公共政策研究学者,其思想…</a>
-</h2>
-<p>//@戴旭网络义勇军壹师: 作为一个公共政策研究学者,其思想严重背离党的指导思想,对中国共产党所坚持的毛泽东思想恶意诋毁,这样的人有什么资格在大学任教,有这样的教授,难道想教育出什么样的未来接班人？@教育部@教育微言 难道这就是你们提倡的高等学校思想意识形态工作的成果吗？你们难道就不该承担责<br><br>RE: 【厦大副教授：尊重热爱毛是这个国家黑心的永久添加剂】日前，厦门大学公共管理学院副教授雷艳红在其朋友圈发表言论，要求持异见者将自己拉黑。此前，教育部、厦门大学曾先后密集表态严抓高校意识形态工作。请问，@微言教育 ，@厦门大学 对此言论有何看法？<br><img src="http://ww1.sinaimg.cn/large/005AX0pcgw1ezbqwsrpyij30jh0hsmyq.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
