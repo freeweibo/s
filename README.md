@@ -72,7 +72,7 @@
 </h2>
 <p>SPAM  [鼓掌]</p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3924403894636752" target="freeweibo-mirror">那是一个人人以穷为荣，年轻人全是脑残粉，文物被砸抢，法律被践…</a>
 </h2>
