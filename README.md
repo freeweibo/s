@@ -32,6 +32,12 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3924443921247652" target="freeweibo-mirror">SPAM 她的博文全都是宝啊！！（见下图），女孩子看了她的挖…</a>
+</h2>
+<p>SPAM 她的博文全都是宝啊！！（见下图），女孩子看了她的挖宝，会爱上这个薄主，大家都去观zhu@少女爱挖宝</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3924443174732432" target="freeweibo-mirror">资本家恨毛主席，这就对了！忘恩负义是中国资产阶级的本质！//…</a>
 </h2>
 <p>资本家恨毛主席，这就对了！忘恩负义是中国资产阶级的本质！//@沧海逸僧: //@中国公知精神病总院:又逮住一只，山东坤和实业股份有限公司董事长吴慧军，别让其跑了！[怒] O花石頭e //@东都藏古:@中国公知精神病总院<br><br>RE: 今天出生了个人类历史上最臭名昭著的恶棍。它对人类文明的破坏程度超过任何其他恶棍。</p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3924293542736712" target="freeweibo-mirror">。。。//@喷嚏网铂程: 转发微博</a>
 </h2>
 <p>。。。//@喷嚏网铂程: 转发微博<br><br>RE: 今天这个日子，应该给我打钱，我买风扇把霾都吹到腊肉堂去。<br><img src="http://ww2.sinaimg.cn/large/61ff26d3jw1ezcx8enb46j20zk0qhtb1.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3924287435581164" target="freeweibo-mirror">求真相！！ 网友发来的现场视频集锦，点击可看：http://…</a>
-</h2>
-<p>求真相！！ 网友发来的现场视频集锦，点击可看：http://t.cn/R45qwMn http://t.cn/R45u72N http://t.cn/R4qbozq @神一样的觉醒</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
