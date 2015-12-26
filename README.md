@@ -26,6 +26,18 @@
 <p>
 	<small> ============== 4小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3924287435581164" target="freeweibo-mirror">求真相！！ 网友发来的现场视频集锦，点击可看：http://…</a>
+</h2>
+<p>求真相！！ 网友发来的现场视频集锦，点击可看：http://t.cn/R45qwMn http://t.cn/R45u72N http://t.cn/R4qbozq @神一样的觉醒</p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3924279806608160" target="freeweibo-mirror">这就是昨天媒体报道的普宁新闻被扭曲的事实真相，现在只有香港媒…</a>
+</h2>
+<p>这就是昨天媒体报道的普宁新闻被扭曲的事实真相，现在只有香港媒体才敢真实报道！求大家还云落子民一个清白，还云落子民一个绿色家园，关注普宁云落，云落子民需要大家的救助，求好心人转发扩散！<br><img src="http://ww2.sinaimg.cn/large/0067YNEdgw1ezcxw3hsy4j30f00qojvn.jpg"></p>
+<p>
+	<small> ============== 5小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3924271460417374" target="freeweibo-mirror">//@凌虚铺子: 死马夹头这夯货，纯属是自己吃饭，忽悠他人吃…</a>
 </h2>
 <p>//@凌虚铺子: 死马夹头这夯货，纯属是自己吃饭，忽悠他人吃屎角色。闹“薄党”他挺薄；闹“康党”他挺康，谁闹挺谁，挺谁谁死。看看网友是怎么夸他的：“一撮鸡毛顶上冲，站在墙头吹大风。东风吹来毛则西，西风吹来毛则东。夹头伸舌马臀前，忽左忽右探风源。南面开枪司马北，北面开枪司马南。”<br><br>RE: 今天是毛泽东生辰，夹头又在叽叽歪歪颂毛以骗毛粉。作为一个多元社会，你可以颂毛，也可以颂耶稣，颂安拉，颂佛祖，但必须出自内心，否则就是伪君子，就是亵渎神明。夹头若真心崇毛，就必须把京城豪宅拿出来共产；必须让老婆儿子从美帝那里滚回来。否则，就让他去领觉悟票，让他儿子去领粪票！<br><img src="http://ww3.sinaimg.cn/large/005SvoAtgw1ezcsor67exj30b805x0ty.jpg"></p>
@@ -42,7 +54,7 @@
 </h2>
 <p>SPAM 文物//@范剑平:觉悟票第一次见，还1959年的，干什么用的？<br><br>RE: 今天是毛泽东生辰，夹头又在叽叽歪歪颂毛以骗毛粉。作为一个多元社会，你可以颂毛，也可以颂耶稣，颂安拉，颂佛祖，但必须出自内心，否则就是伪君子，就是亵渎神明。夹头若真心崇毛，就必须把京城豪宅拿出来共产；必须让老婆儿子从美帝那里滚回来。否则，就让他去领觉悟票，让他儿子去领粪票！<br><img src="http://ww3.sinaimg.cn/large/005SvoAtgw1ezcsor67exj30b805x0ty.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3924254510652197" target="freeweibo-mirror">罄竹难书。//@宪政是敏感词: //@鄢烈山:回复@圣手50…</a>
 </h2>
@@ -125,18 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3923988788636103" target="freeweibo-mirror">SPAM 网易新闻的标题果然与众不同，比如首页的雾霾专题，这…</a>
 </h2>
 <p>SPAM 网易新闻的标题果然与众不同，比如首页的雾霾专题，这些标题都让人开始怀疑人生，尤其是最后一个：各地"霾味"不同。近3成受访者对雾霾满意。。。怎么会满意呢？点开标题看，实际上内容完全不是如此。<br><img src="http://ww4.sinaimg.cn/large/471ef432jw1ezc0wq76oaj20gb04hmxw.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3923985127649048" target="freeweibo-mirror">SPAM //@赵普: ！！！</a>
-</h2>
-<p>SPAM //@赵普: ！！！</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3923982561033098" target="freeweibo-mirror">微信是个圈，不能随便钻，要玩花和草，不能谈现在，实在忍不住，…</a>
-</h2>
-<p>微信是个圈，不能随便钻，要玩花和草，不能谈现在，实在忍不住，就搞古代人，研究无禁区，宣传有纪律。[蠟燭]<br><br>RE: 【厦大副教授：尊重热爱毛是这个国家黑心的永久添加剂】日前，厦门大学公共管理学院副教授雷艳红在其朋友圈发表言论，要求持异见者将自己拉黑。此前，教育部、厦门大学曾先后密集表态严抓高校意识形态工作。请问，@微言教育 ，@厦门大学 对此言论有何看法？<br><img src="http://ww1.sinaimg.cn/large/005AX0pcgw1ezbqwsrpyij30jh0hsmyq.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
