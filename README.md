@@ -60,7 +60,7 @@
 </h2>
 <p>毛粉脑残，过来拜拜你毛爷爷！[来]@王宝强<br><img src="http://ww4.sinaimg.cn/large/006jET1rgw1ezd3a6zdpwj30qo3m2qjw.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3924306142493120" target="freeweibo-mirror">毛粉煽动攻击某报社。</a>
 </h2>
@@ -132,7 +132,7 @@
 </h2>
 <p>//@驼背的明天: //@陶景洲:右边的建议有合理性。//@我站在宇宙的边际上：无耻之徒！明明是渣土堆土，硬要说山体，这下打脸了，建议提说这词的应当造谣处理</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3924232805076244" target="freeweibo-mirror">今天是毛泽东生辰，夹头又在叽叽歪歪颂毛以骗毛粉。作为一个多元…</a>
 </h2>
