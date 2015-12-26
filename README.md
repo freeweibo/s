@@ -54,7 +54,7 @@
 </h2>
 <p>SPAM //@快乐老龙龙: //@邓树林律师: //@浔阳女高音: //@沥泉枪挑:[笑cry][笑cry]//@浩瀚小河流:[笑cry][笑cry]<br><br>RE: 毛粉脑残，过来拜拜你毛爷爷！[来]@王宝强<br><img src="http://ww4.sinaimg.cn/large/006jET1rgw1ezd3a6zdpwj30qo3m2qjw.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3924339856301513" target="freeweibo-mirror">SPAM //@云散-月明2013: [偷笑]//@何时会天…</a>
 </h2>
@@ -114,7 +114,7 @@
 </h2>
 <p>今天这个日子，应该给我打钱，我买风扇把霾都吹到腊肉堂去。<br><img src="http://ww2.sinaimg.cn/large/61ff26d3jw1ezcx8enb46j20zk0qhtb1.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3924266103580388" target="freeweibo-mirror">SPAM 文物//@范剑平:觉悟票第一次见，还1959年的，…</a>
 </h2>
