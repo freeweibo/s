@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3924393485273973" target="freeweibo-mirror">//@想说真话1939://@大手印1: //@枫林秋色20…</a>
+</h2>
+<p>//@想说真话1939://@大手印1: //@枫林秋色2008: //@归来的老枪:今天是湖南腊肉节，不能不转相关的好贴[赞]//@加B菲炮1314Cat: //@公民IvyandJs://@不要问我从哪里来2014: 转发微博<br><br>RE: 陳丹青说过這段話：“這是個弱智民族，必然會有更深重的災難。你看都討論些什麼：文革這麼反人類的暴行，還在爭論正不正確；還在討論民主與專製誰好誰壞；餓死幾千萬人，還在為毛好毛壞爭得面紅耳赤。這些都是常識，象分辯食物與屎一樣容易。同這樣一群腦殘二逼生活在一個時代，真他媽悲哀！”～轉<br><img src="http://ww3.sinaimg.cn/large/006fR8jqgw1ezd10fr3lfj30ik2ls7ez.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3924377517083533" target="freeweibo-mirror">//@82年矿泉水1994:文革余孽啊！这些人不觉醒，中国怎…</a>
 </h2>
 <p>//@82年矿泉水1994:文革余孽啊！这些人不觉醒，中国怎么发展！<br><br>RE: 毛粉煽动攻击某报社。<br><img src="http://ww3.sinaimg.cn/large/0068SFEdjw1ezd1g0tvwtj30qo0k4wgd.jpg"></p>
@@ -90,7 +96,7 @@
 </h2>
 <p>SPAM 文物//@范剑平:觉悟票第一次见，还1959年的，干什么用的？<br><br>RE: 今天是毛泽东生辰，夹头又在叽叽歪歪颂毛以骗毛粉。作为一个多元社会，你可以颂毛，也可以颂耶稣，颂安拉，颂佛祖，但必须出自内心，否则就是伪君子，就是亵渎神明。夹头若真心崇毛，就必须把京城豪宅拿出来共产；必须让老婆儿子从美帝那里滚回来。否则，就让他去领觉悟票，让他儿子去领粪票！<br><img src="http://ww3.sinaimg.cn/large/005SvoAtgw1ezcsor67exj30b805x0ty.jpg"></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3924254510652197" target="freeweibo-mirror">罄竹难书。//@宪政是敏感词: //@鄢烈山:回复@圣手50…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3924215395206925" target="freeweibo-mirror">SPAM 等了那么多天，深圳滑坡终于被定性为安全事故。 深圳…</a>
 </h2>
 <p>SPAM 等了那么多天，深圳滑坡终于被定性为安全事故。 深圳那山本来就不是自然的山峰，非要说是“山体滑坡”，连安全事故都要朝着自然地质灾害的方向去靠。公信力怎么建立？http://t.cn/R4593Qj<br><img src="http://ww2.sinaimg.cn/large/9ddb72ebjw1ezcr0md0bnj20hs0bywgc.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3924197640358273" target="freeweibo-mirror">为什么？</a>
-</h2>
-<p>为什么？<br><br>RE: 前领导人为何不能出国旅行？是不愿意自费还是禁止？[汗]<br><img src="http://ww1.sinaimg.cn/large/dd816182gw1ezc9tmer8zj20yi0vwaez.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
