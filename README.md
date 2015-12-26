@@ -24,7 +24,7 @@
 </h2>
 <p>SPAM //@快乐老龙龙: //@邓树林律师: //@浔阳女高音: //@沥泉枪挑:[笑cry][笑cry]//@浩瀚小河流:[笑cry][笑cry]<br><br>RE: 毛粉脑残，过来拜拜你毛爷爷！[来]@王宝强<br><img src="http://ww4.sinaimg.cn/large/006jET1rgw1ezd3a6zdpwj30qo3m2qjw.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3924339856301513" target="freeweibo-mirror">SPAM //@云散-月明2013: [偷笑]//@何时会天…</a>
 </h2>
@@ -72,7 +72,7 @@
 </h2>
 <p>今天这个日子，应该给我打钱，我买风扇把霾都吹到腊肉堂去。<br><img src="http://ww2.sinaimg.cn/large/61ff26d3jw1ezcx8enb46j20zk0qhtb1.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3924266103580388" target="freeweibo-mirror">SPAM 文物//@范剑平:觉悟票第一次见，还1959年的，…</a>
 </h2>
@@ -84,7 +84,7 @@
 </h2>
 <p>罄竹难书。//@宪政是敏感词: //@鄢烈山:回复@圣手5019689288:那是虐恋互虐性爱图片呀。有人不是有受虐癖吗？//@圣手5019689288:后面二图是什么意思？<br><br>RE: 【记住这个日子干什么？】昨天是圣诞节，是独裁者齐奥赛斯库被毙的日子，是红色帝俄苏联解体的日子。今天是公安局给我定的生日，也是毛泽东的生日。微信朋友圈有人罗列了毛建国到死去干的好事，如二图所示，大部分我有亲历。他不死我肯定与大学无缘。 http://t.cn/R2WJKr0<br><img src="http://ww1.sinaimg.cn/large/467a6223gw1ezcsol3nfsj20f00qojut.jpg"></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3924253739546805" target="freeweibo-mirror">SPAM 觉悟票第一次见，还1959年的，干什么用的？</a>
 </h2>
@@ -102,7 +102,7 @@
 </h2>
 <p>//@驼背的明天: //@陶景洲:右边的建议有合理性。//@我站在宇宙的边际上：无耻之徒！明明是渣土堆土，硬要说山体，这下打脸了，建议提说这词的应当造谣处理</p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3924232805076244" target="freeweibo-mirror">今天是毛泽东生辰，夹头又在叽叽歪歪颂毛以骗毛粉。作为一个多元…</a>
 </h2>
