@@ -96,7 +96,7 @@
 </h2>
 <p>SPAM 等了那么多天，深圳滑坡终于被定性为安全事故。 深圳那山本来就不是自然的山峰，非要说是“山体滑坡”，连安全事故都要朝着自然地质灾害的方向去靠。公信力怎么建立？http://t.cn/R4593Qj<br><img src="http://ww2.sinaimg.cn/large/9ddb72ebjw1ezcr0md0bnj20hs0bywgc.jpg"></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3924197640358273" target="freeweibo-mirror">为什么？</a>
 </h2>
