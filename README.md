@@ -66,7 +66,7 @@
 </h2>
 <p>「韩国电影《深情触摸》片段」想看全片？so easy#重庆生活#<br><img src="http://ww4.sinaimg.cn/large/6fccccdfgw1ezd4z65ejyg207f046k6w.gif"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3924322139279376" target="freeweibo-mirror">毛粉脑残，过来拜拜你毛爷爷！[来]@王宝强</a>
 </h2>
@@ -78,7 +78,7 @@
 </h2>
 <p>毛粉煽动攻击某报社。<br><img src="http://ww3.sinaimg.cn/large/0068SFEdjw1ezd1g0tvwtj30qo0k4wgd.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3924303462050456" target="freeweibo-mirror">陳丹青说过這段話：“這是個弱智民族，必然會有更深重的災難。你…</a>
 </h2>
@@ -132,13 +132,13 @@
 </h2>
 <p>SPAM 觉悟票第一次见，还1959年的，干什么用的？<br><br>RE: 今天是毛泽东生辰，夹头又在叽叽歪歪颂毛以骗毛粉。作为一个多元社会，你可以颂毛，也可以颂耶稣，颂安拉，颂佛祖，但必须出自内心，否则就是伪君子，就是亵渎神明。夹头若真心崇毛，就必须把京城豪宅拿出来共产；必须让老婆儿子从美帝那里滚回来。否则，就让他去领觉悟票，让他儿子去领粪票！<br><img src="http://ww3.sinaimg.cn/large/005SvoAtgw1ezcsor67exj30b805x0ty.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3924252833147102" target="freeweibo-mirror">#旅行十年#  //@Ringo王小生: //@堀江龍徹:/…</a>
 </h2>
 <p>#旅行十年#  //@Ringo王小生: //@堀江龍徹://@瞅日赏菊:转发微博</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p>
 <table>
     <tr>
