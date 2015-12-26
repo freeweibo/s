@@ -66,7 +66,7 @@
 </h2>
 <p>SPAM //@快乐老龙龙: //@邓树林律师: //@浔阳女高音: //@沥泉枪挑:[笑cry][笑cry]//@浩瀚小河流:[笑cry][笑cry]<br><br>RE: 毛粉脑残，过来拜拜你毛爷爷！[来]@王宝强<br><img src="http://ww4.sinaimg.cn/large/006jET1rgw1ezd3a6zdpwj30qo3m2qjw.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3924339856301513" target="freeweibo-mirror">SPAM //@云散-月明2013: [偷笑]//@何时会天…</a>
 </h2>
