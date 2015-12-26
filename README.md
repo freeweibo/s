@@ -90,13 +90,13 @@
 </h2>
 <p>SPAM 觉悟票第一次见，还1959年的，干什么用的？<br><br>RE: 今天是毛泽东生辰，夹头又在叽叽歪歪颂毛以骗毛粉。作为一个多元社会，你可以颂毛，也可以颂耶稣，颂安拉，颂佛祖，但必须出自内心，否则就是伪君子，就是亵渎神明。夹头若真心崇毛，就必须把京城豪宅拿出来共产；必须让老婆儿子从美帝那里滚回来。否则，就让他去领觉悟票，让他儿子去领粪票！<br><img src="http://ww3.sinaimg.cn/large/005SvoAtgw1ezcsor67exj30b805x0ty.jpg"></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3924252833147102" target="freeweibo-mirror">#旅行十年#  //@Ringo王小生: //@堀江龍徹:/…</a>
 </h2>
 <p>#旅行十年#  //@Ringo王小生: //@堀江龍徹://@瞅日赏菊:转发微博</p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3924239343878246" target="freeweibo-mirror">//@驼背的明天: //@陶景洲:右边的建议有合理性。//@…</a>
 </h2>
@@ -120,7 +120,7 @@
 </h2>
 <p>SPAM 等了那么多天，深圳滑坡终于被定性为安全事故。 深圳那山本来就不是自然的山峰，非要说是“山体滑坡”，连安全事故都要朝着自然地质灾害的方向去靠。公信力怎么建立？http://t.cn/R4593Qj<br><img src="http://ww2.sinaimg.cn/large/9ddb72ebjw1ezcr0md0bnj20hs0bywgc.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3924197640358273" target="freeweibo-mirror">为什么？</a>
 </h2>
