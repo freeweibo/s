@@ -36,7 +36,7 @@
 </h2>
 <p>//@想说真话1939://@大手印1: //@枫林秋色2008: //@归来的老枪:今天是湖南腊肉节，不能不转相关的好贴[赞]//@加B菲炮1314Cat: //@公民IvyandJs://@不要问我从哪里来2014: 转发微博<br><br>RE: 陳丹青说过這段話：“這是個弱智民族，必然會有更深重的災難。你看都討論些什麼：文革這麼反人類的暴行，還在爭論正不正確；還在討論民主與專製誰好誰壞；餓死幾千萬人，還在為毛好毛壞爭得面紅耳赤。這些都是常識，象分辯食物與屎一樣容易。同這樣一群腦殘二逼生活在一個時代，真他媽悲哀！”～轉<br><img src="http://ww3.sinaimg.cn/large/006fR8jqgw1ezd10fr3lfj30ik2ls7ez.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3924388989051290" target="freeweibo-mirror">SPAM 求背景音乐。 http://t.cn/R4th2l…</a>
 </h2>
@@ -48,7 +48,7 @@
 </h2>
 <p>//@82年矿泉水1994:文革余孽啊！这些人不觉醒，中国怎么发展！<br><br>RE: 毛粉煽动攻击某报社。<br><img src="http://ww3.sinaimg.cn/large/0068SFEdjw1ezd1g0tvwtj30qo0k4wgd.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3924344634139018" target="freeweibo-mirror">SPAM //@快乐老龙龙: //@邓树林律师: //@浔阳…</a>
 </h2>
@@ -96,7 +96,7 @@
 </h2>
 <p>求真相！！ 网友发来的现场视频集锦，点击可看：http://t.cn/R45qwMn http://t.cn/R45u72N http://t.cn/R4qbozq @神一样的觉醒</p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3924279806608160" target="freeweibo-mirror">这就是昨天媒体报道的普宁新闻被扭曲的事实真相，现在只有香港媒…</a>
 </h2>
