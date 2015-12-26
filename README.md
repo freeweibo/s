@@ -42,25 +42,25 @@
 </h2>
 <p>SPAM 她的博文全都是宝啊！！（见下图），女孩子看了她的挖宝，会爱上这个薄主，大家都去观zhu@少女爱挖宝</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3924443174732432" target="freeweibo-mirror">资本家恨毛主席，这就对了！忘恩负义是中国资产阶级的本质！//…</a>
 </h2>
 <p>资本家恨毛主席，这就对了！忘恩负义是中国资产阶级的本质！//@沧海逸僧: //@中国公知精神病总院:又逮住一只，山东坤和实业股份有限公司董事长吴慧军，别让其跑了！[怒] O花石頭e //@东都藏古:@中国公知精神病总院<br><br>RE: 今天出生了个人类历史上最臭名昭著的恶棍。它对人类文明的破坏程度超过任何其他恶棍。</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3924442876917701" target="freeweibo-mirror">@人民网舆情监测室 //@花石頭e:今天出生了个恶魔。</a>
 </h2>
 <p>@人民网舆情监测室 //@花石頭e:今天出生了个恶魔。</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3924442742568524" target="freeweibo-mirror">@公安部打四黑除四害 侮辱领袖的人，为什么不管？@微博小秘书…</a>
 </h2>
 <p>@公安部打四黑除四害 侮辱领袖的人，为什么不管？@微博小秘书 新浪是啥性质？<br><br>RE: 今天出生了个人类历史上最臭名昭著的恶棍。它对人类文明的破坏程度超过任何其他恶棍。</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3924442238955730" target="freeweibo-mirror">不是不报，时辰未到！//@中国公知精神病总院:又逮住一只，山…</a>
 </h2>
@@ -108,7 +108,7 @@
 </h2>
 <p>SPAM //@快乐老龙龙: //@邓树林律师: //@浔阳女高音: //@沥泉枪挑:[笑cry][笑cry]//@浩瀚小河流:[笑cry][笑cry]<br><br>RE: 毛粉脑残，过来拜拜你毛爷爷！[来]@王宝强<br><img src="http://ww4.sinaimg.cn/large/006jET1rgw1ezd3a6zdpwj30qo3m2qjw.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3924339856301513" target="freeweibo-mirror">SPAM //@云散-月明2013: [偷笑]//@何时会天…</a>
 </h2>
