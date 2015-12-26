@@ -30,7 +30,7 @@
 </h2>
 <p>#旅行十年#  //@Ringo王小生: //@堀江龍徹://@瞅日赏菊:转发微博</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3924239343878246" target="freeweibo-mirror">//@驼背的明天: //@陶景洲:右边的建议有合理性。//@…</a>
 </h2>
