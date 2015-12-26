@@ -42,7 +42,7 @@
 </h2>
 <p>「韩国电影《深情触摸》片段」想看全片？so easy#重庆生活#<br><img src="http://ww4.sinaimg.cn/large/6fccccdfgw1ezd4z65ejyg207f046k6w.gif"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3924322139279376" target="freeweibo-mirror">毛粉脑残，过来拜拜你毛爷爷！[来]@王宝强</a>
 </h2>
