@@ -54,7 +54,7 @@
 </h2>
 <p>SPAM 文物//@范剑平:觉悟票第一次见，还1959年的，干什么用的？<br><br>RE: 今天是毛泽东生辰，夹头又在叽叽歪歪颂毛以骗毛粉。作为一个多元社会，你可以颂毛，也可以颂耶稣，颂安拉，颂佛祖，但必须出自内心，否则就是伪君子，就是亵渎神明。夹头若真心崇毛，就必须把京城豪宅拿出来共产；必须让老婆儿子从美帝那里滚回来。否则，就让他去领觉悟票，让他儿子去领粪票！<br><img src="http://ww3.sinaimg.cn/large/005SvoAtgw1ezcsor67exj30b805x0ty.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3924254510652197" target="freeweibo-mirror">罄竹难书。//@宪政是敏感词: //@鄢烈山:回复@圣手50…</a>
 </h2>
@@ -102,7 +102,7 @@
 </h2>
 <p>为什么？<br><br>RE: 前领导人为何不能出国旅行？是不愿意自费还是禁止？[汗]<br><img src="http://ww1.sinaimg.cn/large/dd816182gw1ezc9tmer8zj20yi0vwaez.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3924082929701704" target="freeweibo-mirror">意淫女性是最下作龌龊的表现，有理说理，无论持什么观点。侮辱女…</a>
 </h2>
