@@ -44,6 +44,12 @@
 <p>
 	<small> ============== 4小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3924232805076244" target="freeweibo-mirror">今天是毛泽东生辰，夹头又在叽叽歪歪颂毛以骗毛粉。作为一个多元…</a>
+</h2>
+<p>今天是毛泽东生辰，夹头又在叽叽歪歪颂毛以骗毛粉。作为一个多元社会，你可以颂毛，也可以颂耶稣，颂安拉，颂佛祖，但必须出自内心，否则就是伪君子，就是亵渎神明。夹头若真心崇毛，就必须把京城豪宅拿出来共产；必须让老婆儿子从美帝那里滚回来。否则，就让他去领觉悟票，让他儿子去领粪票！<br><img src="http://ww3.sinaimg.cn/large/005SvoAtgw1ezcsor67exj30b805x0ty.jpg"></p>
+<p>
+	<small> ============== 5小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3924231374543813" target="freeweibo-mirror">【记住这个日子干什么？】昨天是圣诞节，是独裁者齐奥赛斯库被毙…</a>
 </h2>
 <p>【记住这个日子干什么？】昨天是圣诞节，是独裁者齐奥赛斯库被毙的日子，是红色帝俄苏联解体的日子。今天是公安局给我定的生日，也是毛泽东的生日。微信朋友圈有人罗列了毛建国到死去干的好事，如二图所示，大部分我有亲历。他不死我肯定与大学无缘。 http://t.cn/R2WJKr0<br><img src="http://ww1.sinaimg.cn/large/467a6223gw1ezcsol3nfsj20f00qojut.jpg"></p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3923893087883206" target="freeweibo-mirror">年度汉字：霾！ //@赵普: 爆表的霾情下，走在北京的大街上…</a>
 </h2>
 <p>年度汉字：霾！ //@赵普: 爆表的霾情下，走在北京的大街上，相当多的人依然不戴口罩，豪迈地吞吐重霾。比霾更糟心的是同胞的麻木！//@赵普:不折不扣的灾难！<br><br>RE: 我的年度汉字：霾。未来十年怕都不用换了。什么“治不好雾霾提头来见”？！骗人的鬼笑话！<br><img src="http://ww2.sinaimg.cn/large/59812064jw1ezb9y6101hj20qo0zktap.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3923868304014346" target="freeweibo-mirror">提头来见！ //@赵普: 爆表的霾情下，走在北京的大街上，相…</a>
-</h2>
-<p>提头来见！ //@赵普: 爆表的霾情下，走在北京的大街上，相当多的人依然不戴口罩，豪迈地吞吐重霾。比霾更糟心的是同胞的麻木！//@赵普:不折不扣的灾难！<br><br>RE: 我的年度汉字：霾。未来十年怕都不用换了。什么“治不好雾霾提头来见”？！骗人的鬼笑话！<br><img src="http://ww2.sinaimg.cn/large/59812064jw1ezb9y6101hj20qo0zktap.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
