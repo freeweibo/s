@@ -102,7 +102,7 @@
 </h2>
 <p>//@82年矿泉水1994:文革余孽啊！这些人不觉醒，中国怎么发展！<br><br>RE: 毛粉煽动攻击某报社。<br><img src="http://ww3.sinaimg.cn/large/0068SFEdjw1ezd1g0tvwtj30qo0k4wgd.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3924344634139018" target="freeweibo-mirror">SPAM //@快乐老龙龙: //@邓树林律师: //@浔阳…</a>
 </h2>
