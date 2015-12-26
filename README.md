@@ -36,7 +36,7 @@
 </h2>
 <p>【记住这个日子干什么？】昨天是圣诞节，是独裁者齐奥赛斯库被毙的日子，是红色帝俄苏联解体的日子。今天是公安局给我定的生日，也是毛泽东的生日。微信朋友圈有人罗列了毛建国到死去干的好事，如二图所示，大部分我有亲历。他不死我肯定与大学无缘。 http://t.cn/R2WJKr0<br><img src="http://ww1.sinaimg.cn/large/467a6223gw1ezcsol3nfsj20f00qojut.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3924197640358273" target="freeweibo-mirror">为什么？</a>
 </h2>
