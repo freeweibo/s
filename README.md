@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3924591497446154" target="freeweibo-mirror">这也似乎是个现实 //@乐观的梵高:你只要看看身边的人，除了…</a>
+</h2>
+<p>这也似乎是个现实 //@乐观的梵高:你只要看看身边的人，除了政治人物，越穷的地方越推崇毛，越穷的人越崇拜毛<br><br>RE: 楼下大爷说：中国粉粹了万恶的文化大革命，刚走上改革奔小康的道路，岂料这几年房价狂涨，物价飞涨，医疗要命，教育不公，贫富悬殊，在这五座大山的压迫下，把一大部分人逼得跪倒在毛主席雕像下乞求打土豪分田地，这也是个不争的事实！</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3924563580593793" target="freeweibo-mirror">//@中原雄鹰168:许多监狱都接活， 这个估计是上访户被判…</a>
 </h2>
 <p>//@中原雄鹰168:许多监狱都接活， 这个估计是上访户被判刑！[酷]</p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3924322139279376" target="freeweibo-mirror">毛粉脑残，过来拜拜你毛爷爷！[来]@王宝强</a>
 </h2>
 <p>毛粉脑残，过来拜拜你毛爷爷！[来]@王宝强<br><img src="http://ww4.sinaimg.cn/large/006jET1rgw1ezd3a6zdpwj30qo3m2qjw.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3924306142493120" target="freeweibo-mirror">毛粉煽动攻击某报社。</a>
-</h2>
-<p>毛粉煽动攻击某报社。<br><img src="http://ww3.sinaimg.cn/large/0068SFEdjw1ezd1g0tvwtj30qo0k4wgd.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
