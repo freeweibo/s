@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3924563580593793" target="freeweibo-mirror">//@中原雄鹰168:许多监狱都接活， 这个估计是上访户被判…</a>
+</h2>
+<p>//@中原雄鹰168:许多监狱都接活， 这个估计是上访户被判刑！[酷]</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3924451298956098" target="freeweibo-mirror">//@司马南: 看党委书记校长的态度了！若干大学领导喜欢扮演…</a>
 </h2>
 <p>//@司马南: 看党委书记校长的态度了！若干大学领导喜欢扮演开明绅士. //@清风斯然:既然她公开了对这个共和国缔造者的刻骨仇恨，既然她具有这个共和国国立大学教授的公职身份，那么就请她离开，没有公职身份她爱骂不骂，我们不管。这事厦大校方没个说法没完！<br><br>RE: 今天是2015年的12月25日，明天是毛主席诞辰122周年纪念日。 言论自由的中国网络让人大开眼界，我们有幸又认识一位厦门大学在职副教授，毕业于东京大学经济学部和北京大学政府管理学院的政治学博士。此人个性倔强且所指明确。<br><img src="http://ww2.sinaimg.cn/large/4b4e0e98jw1ezcaj5rur1j20jh0hsjsz.jpg"></p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3924306142493120" target="freeweibo-mirror">毛粉煽动攻击某报社。</a>
 </h2>
 <p>毛粉煽动攻击某报社。<br><img src="http://ww3.sinaimg.cn/large/0068SFEdjw1ezd1g0tvwtj30qo0k4wgd.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3924303462050456" target="freeweibo-mirror">陳丹青说过這段話：“這是個弱智民族，必然會有更深重的災難。你…</a>
-</h2>
-<p>陳丹青说过這段話：“這是個弱智民族，必然會有更深重的災難。你看都討論些什麼：文革這麼反人類的暴行，還在爭論正不正確；還在討論民主與專製誰好誰壞；餓死幾千萬人，還在為毛好毛壞爭得面紅耳赤。這些都是常識，象分辯食物與屎一樣容易。同這樣一群腦殘二逼生活在一個時代，真他媽悲哀！”～轉<br><img src="http://ww3.sinaimg.cn/large/006fR8jqgw1ezd10fr3lfj30ik2ls7ez.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
