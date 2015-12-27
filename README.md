@@ -66,7 +66,7 @@
 </h2>
 <p>指望这帮老混蛋，中华何言复兴？ //@彭园v:转发微博<br><br>RE: 微信上看到一图，不能不转，现在老坏人不少，原来是红卫兵老了，是不是这些人再老一些，不能动弹了，中国就有点希望了？<br><img src="http://ww2.sinaimg.cn/large/005XsazYjw1eze1d84orqj30hn0qoju9.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3924648452024408" target="freeweibo-mirror">《老雷》126- 对中国有害 http://t.cn/R4t…</a>
 </h2>
