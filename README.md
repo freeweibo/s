@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3924596639747177" target="freeweibo-mirror">[弱][弱] //@周李城:深圳山体滑坡属安全事故，不属于自…</a>
+</h2>
+<p>[弱][弱] //@周李城:深圳山体滑坡属安全事故，不属于自然灾害。#中国微力量#呼吁@中国政府网 对涉及到的有关责任部门领导追责通报！<br><br>RE: 发生了这么大的灾难事故，就道个歉，鞠个躬！ http://t.cn/R45WI5h</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3924591497446154" target="freeweibo-mirror">这也似乎是个现实 //@乐观的梵高:你只要看看身边的人，除了…</a>
 </h2>
 <p>这也似乎是个现实 //@乐观的梵高:你只要看看身边的人，除了政治人物，越穷的地方越推崇毛，越穷的人越崇拜毛<br><br>RE: 楼下大爷说：中国粉粹了万恶的文化大革命，刚走上改革奔小康的道路，岂料这几年房价狂涨，物价飞涨，医疗要命，教育不公，贫富悬殊，在这五座大山的压迫下，把一大部分人逼得跪倒在毛主席雕像下乞求打土豪分田地，这也是个不争的事实！</p>
@@ -84,7 +90,7 @@
 </h2>
 <p>楼下大爷说：中国粉粹了万恶的文化大革命，刚走上改革奔小康的道路，岂料这几年房价狂涨，物价飞涨，医疗要命，教育不公，贫富悬殊，在这五座大山的压迫下，把一大部分人逼得跪倒在毛主席雕像下乞求打土豪分田地，这也是个不争的事实！</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3924421552687640" target="freeweibo-mirror">SPAM  [鼓掌]</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3924339856301513" target="freeweibo-mirror">SPAM //@云散-月明2013: [偷笑]//@何时会天…</a>
 </h2>
 <p>SPAM //@云散-月明2013: [偷笑]//@何时会天明16:[哈哈]//@星V辰iD54: [哈哈]<br><br>RE: 毛粉脑残，过来拜拜你毛爷爷！[来]@王宝强<br><img src="http://ww4.sinaimg.cn/large/006jET1rgw1ezd3a6zdpwj30qo3m2qjw.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3924336982943191" target="freeweibo-mirror">「韩国电影《深情触摸》片段」想看全片？so easy#重庆生…</a>
-</h2>
-<p>「韩国电影《深情触摸》片段」想看全片？so easy#重庆生活#<br><img src="http://ww4.sinaimg.cn/large/6fccccdfgw1ezd4z65ejyg207f046k6w.gif"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
