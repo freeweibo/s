@@ -42,7 +42,7 @@
 </h2>
 <p>SPAM 无聊解闷，吃喝玩乐，习惯养成，文艺装逼都给你承包了。//@mm神回复:无聊解闷，吃喝玩乐，习惯养成，文艺装逼都给你承包了。</p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3924443921247652" target="freeweibo-mirror">SPAM 她的博文全都是宝啊！！（见下图），女孩子看了她的挖…</a>
 </h2>
@@ -78,7 +78,7 @@
 </h2>
 <p>SPAM  [鼓掌]</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3924403894636752" target="freeweibo-mirror">那是一个人人以穷为荣，年轻人全是脑残粉，文物被砸抢，法律被践…</a>
 </h2>
