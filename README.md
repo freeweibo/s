@@ -20,11 +20,17 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3924645965381838" target="freeweibo-mirror">SPAM //@陈光武律师: 敌对势力又在造谣？ //@邓树…</a>
+</h2>
+<p>SPAM //@陈光武律师: 敌对势力又在造谣？ //@邓树林律师: //@英国小天使: [衰]</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3924612775440854" target="freeweibo-mirror">呼吁立法维护毛泽东尊严！ //@侠骨柔情的杨华:转发微博</a>
 </h2>
 <p>呼吁立法维护毛泽东尊严！ //@侠骨柔情的杨华:转发微博<br><br>RE: #去他娘的言论自由#【允许人骂毛主席，允许攻击热爱毛主席的人，却容不下拥护毛主席的言论！@王宝强 】言论自由呢？媒体打压爱国力量，纵容美分党污蔑开国领袖，践踏言论自由！你们妄想阻止人民拥护毛主席，看看韶山和天安门纪念堂吧！网络反毛分子只是一群害虫而已！ @赵克罗 @章文的文章 @杨名跨<br><img src="http://ww1.sinaimg.cn/large/5f29926cgw1ezdz4o91roj20p018g48p.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3924603724157571" target="freeweibo-mirror">饿了 //@想念是Mario:哈哈 //@哗咔哗咔o球O:@…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3924440859511913" target="freeweibo-mirror">发生了这么大的灾难事故，就道个歉，鞠个躬！ http://t…</a>
 </h2>
 <p>发生了这么大的灾难事故，就道个歉，鞠个躬！ http://t.cn/R45WI5h</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3924421552687640" target="freeweibo-mirror">SPAM  [鼓掌]</a>
-</h2>
-<p>SPAM  [鼓掌]</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
