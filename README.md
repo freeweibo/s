@@ -110,6 +110,12 @@
 <p>
 	<small> ============== 1天前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3924400380051622" target="freeweibo-mirror">“在莫斯科时，毛对我说：第三次世界大战可以在中国打，待我们将…</a>
+</h2>
+<p>“在莫斯科时，毛对我说：第三次世界大战可以在中国打，待我们将美军引入纵深后，请苏联同志向我们投掷原子弹，这可一举全歼美军主力。这样做中国可能会牺牲掉三分之二以上的人 口，但换来一个世界大同还是值得的！ ———当时我真替中国人捏了一把汗 ！” ——《赫鲁晓夫回忆录》<br><img src="http://ww2.sinaimg.cn/large/57b1a819jw1ezdc9oc10uj20cs0mq74y.jpg"></p>
+<p>
+	<small> ============== 1天前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3924398723247635" target="freeweibo-mirror">SPAM 教你鉴别蜂蜜哦，很实用的</a>
 </h2>
 <p>SPAM 教你鉴别蜂蜜哦，很实用的</p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3924377517083533" target="freeweibo-mirror">//@82年矿泉水1994:文革余孽啊！这些人不觉醒，中国怎…</a>
 </h2>
 <p>//@82年矿泉水1994:文革余孽啊！这些人不觉醒，中国怎么发展！<br><br>RE: 毛粉煽动攻击某报社。<br><img src="http://ww3.sinaimg.cn/large/0068SFEdjw1ezd1g0tvwtj30qo0k4wgd.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3924344634139018" target="freeweibo-mirror">SPAM //@快乐老龙龙: //@邓树林律师: //@浔阳…</a>
-</h2>
-<p>SPAM //@快乐老龙龙: //@邓树林律师: //@浔阳女高音: //@沥泉枪挑:[笑cry][笑cry]//@浩瀚小河流:[笑cry][笑cry]<br><br>RE: 毛粉脑残，过来拜拜你毛爷爷！[来]@王宝强<br><img src="http://ww4.sinaimg.cn/large/006jET1rgw1ezd3a6zdpwj30qo3m2qjw.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
