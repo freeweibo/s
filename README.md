@@ -120,7 +120,7 @@
 </h2>
 <p>《老雷》126- 对中国有害 http://t.cn/R4tO8nt .</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3924645965381838" target="freeweibo-mirror">SPAM //@陈光武律师: 敌对势力又在造谣？ //@邓树…</a>
 </h2>
