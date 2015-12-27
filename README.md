@@ -108,7 +108,7 @@
 </h2>
 <p>//@陈业文新大都:指望这帮老混蛋，中华何言复兴？ //@彭园v:转发微博<br><br>RE: 微信上看到一图，不能不转，现在老坏人不少，原来是红卫兵老了，是不是这些人再老一些，不能动弹了，中国就有点希望了？<br><img src="http://ww2.sinaimg.cn/large/005XsazYjw1eze1d84orqj30hn0qoju9.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3924655205525321" target="freeweibo-mirror">指望这帮老混蛋，中华何言复兴？ //@彭园v:转发微博</a>
 </h2>
