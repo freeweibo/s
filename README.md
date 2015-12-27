@@ -48,7 +48,7 @@
 </h2>
 <p>求证@CCTV  @央视新闻  @央视春晚  请你们回应!  请各位朋友高度关注!  打散!  [话筒][话筒][话筒] http://t.cn/R4t8n7F</p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3924729871911842" target="freeweibo-mirror">明明是微博老总送终身会员才有那么多转发的[微笑][兔子][挖…</a>
 </h2>
@@ -84,7 +84,7 @@
 </h2>
 <p>//@急煞人也:为什么一个外国人都能明白的道理，而一些国人却至死不悟呢？悲哀！[生病] //@--梧桐细雨--:转发微博<br><br>RE: 《老雷》126- 对中国有害 http://t.cn/R4tO8nt .</p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3924663669597249" target="freeweibo-mirror">SPAM  //@周铁东本人:→_→//@扭矩max：没错，…</a>
 </h2>
