@@ -54,7 +54,7 @@
 </h2>
 <p>#习大大发微博#<br><br>RE: 前天下午微博“军报记者”账号上，发出了如下一条微博，到今天中午已经获得了345741条的天量转发：这条微博之所以有如此之高的转发量，不是因为它“刊载”了习近平主席的一段问候语，而是这段问候语本身据说... http://t.cn/R4tE4xl</p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3924714818860608" target="freeweibo-mirror">SPAM 说到有功有过……是不是一个人救了七个人，又杀了三个…</a>
 </h2>
@@ -114,7 +114,7 @@
 </h2>
 <p>指望这帮老混蛋，中华何言复兴？ //@彭园v:转发微博<br><br>RE: 微信上看到一图，不能不转，现在老坏人不少，原来是红卫兵老了，是不是这些人再老一些，不能动弹了，中国就有点希望了？<br><img src="http://ww2.sinaimg.cn/large/005XsazYjw1eze1d84orqj30hn0qoju9.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3924648452024408" target="freeweibo-mirror">《老雷》126- 对中国有害 http://t.cn/R4t…</a>
 </h2>
