@@ -108,7 +108,7 @@
 </h2>
 <p>微信上看到一图，不能不转，现在老坏人不少，原来是红卫兵老了，是不是这些人再老一些，不能动弹了，中国就有点希望了？<br><img src="http://ww2.sinaimg.cn/large/005XsazYjw1eze1d84orqj30hn0qoju9.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3924612775440854" target="freeweibo-mirror">呼吁立法维护毛泽东尊严！ //@侠骨柔情的杨华:转发微博</a>
 </h2>
