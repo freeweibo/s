@@ -24,7 +24,7 @@
 </h2>
 <p>SPAM 说到有功有过……是不是一个人救了七个人，又杀了三个人，就可以做个减法，杀人的的事就算了呢。更不用说六国不是秦始皇统一的，长城也不是他修的，他只是有权力驱动无数民众去做这些事罢了。而掌握无上权力者一旦犯错，对国家的毁坏是可怕的。</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3924689825354461" target="freeweibo-mirror">SPAM 爱健身的妹子最漂亮[亲亲]恭喜您获得 @全球健身中…</a>
 </h2>
@@ -72,7 +72,7 @@
 </h2>
 <p>指望这帮老混蛋，中华何言复兴？ //@彭园v:转发微博<br><br>RE: 微信上看到一图，不能不转，现在老坏人不少，原来是红卫兵老了，是不是这些人再老一些，不能动弹了，中国就有点希望了？<br><img src="http://ww2.sinaimg.cn/large/005XsazYjw1eze1d84orqj30hn0qoju9.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3924648452024408" target="freeweibo-mirror">《老雷》126- 对中国有害 http://t.cn/R4t…</a>
 </h2>
