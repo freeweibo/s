@@ -80,6 +80,12 @@
 <p>
 	<small> ============== 12小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3924440926169233" target="freeweibo-mirror">楼下大爷说：中国粉粹了万恶的文化大革命，刚走上改革奔小康的道…</a>
+</h2>
+<p>楼下大爷说：中国粉粹了万恶的文化大革命，刚走上改革奔小康的道路，岂料这几年房价狂涨，物价飞涨，医疗要命，教育不公，贫富悬殊，在这五座大山的压迫下，把一大部分人逼得跪倒在毛主席雕像下乞求打土豪分田地，这也是个不争的事实！</p>
+<p>
+	<small> ============== 12小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3924421552687640" target="freeweibo-mirror">SPAM  [鼓掌]</a>
 </h2>
 <p>SPAM  [鼓掌]</p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3924336982943191" target="freeweibo-mirror">「韩国电影《深情触摸》片段」想看全片？so easy#重庆生…</a>
 </h2>
 <p>「韩国电影《深情触摸》片段」想看全片？so easy#重庆生活#<br><img src="http://ww4.sinaimg.cn/large/6fccccdfgw1ezd4z65ejyg207f046k6w.gif"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3924322139279376" target="freeweibo-mirror">毛粉脑残，过来拜拜你毛爷爷！[来]@王宝强</a>
-</h2>
-<p>毛粉脑残，过来拜拜你毛爷爷！[来]@王宝强<br><img src="http://ww4.sinaimg.cn/large/006jET1rgw1ezd3a6zdpwj30qo3m2qjw.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
