@@ -32,6 +32,12 @@
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3924601014787941" target="freeweibo-mirror">#去他娘的言论自由#【允许人骂毛主席，允许攻击热爱毛主席的人…</a>
+</h2>
+<p>#去他娘的言论自由#【允许人骂毛主席，允许攻击热爱毛主席的人，却容不下拥护毛主席的言论！@王宝强 】言论自由呢？媒体打压爱国力量，纵容美分党污蔑开国领袖，践踏言论自由！你们妄想阻止人民拥护毛主席，看看韶山和天安门纪念堂吧！网络反毛分子只是一群害虫而已！ @赵克罗 @章文的文章 @杨名跨<br><img src="http://ww1.sinaimg.cn/large/5f29926cgw1ezdz4o91roj20p018g48p.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3924596639747177" target="freeweibo-mirror">[弱][弱] //@周李城:深圳山体滑坡属安全事故，不属于自…</a>
 </h2>
 <p>[弱][弱] //@周李城:深圳山体滑坡属安全事故，不属于自然灾害。#中国微力量#呼吁@中国政府网 对涉及到的有关责任部门领导追责通报！<br><br>RE: 发生了这么大的灾难事故，就道个歉，鞠个躬！ http://t.cn/R45WI5h</p>
@@ -54,7 +60,13 @@
 </h2>
 <p>SPAM 我觉得不能我一个人看，该给你们分享一下[doge]<br><br>RE: 听完，我居然咽了咽口水....哈哈哈哈哈  雾霾杀！http://t.cn/R4qsney</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3924576277035527" target="freeweibo-mirror">听完，我居然咽了咽口水....哈哈哈哈哈  雾霾杀！http…</a>
+</h2>
+<p>听完，我居然咽了咽口水....哈哈哈哈哈  雾霾杀！http://t.cn/R4qsney</p>
+<p>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3924563580593793" target="freeweibo-mirror">//@中原雄鹰168:许多监狱都接活， 这个估计是上访户被判…</a>
 </h2>
@@ -125,18 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3924421552687640" target="freeweibo-mirror">SPAM  [鼓掌]</a>
 </h2>
 <p>SPAM  [鼓掌]</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3924403894636752" target="freeweibo-mirror">那是一个人人以穷为荣，年轻人全是脑残粉，文物被砸抢，法律被践…</a>
-</h2>
-<p>那是一个人人以穷为荣，年轻人全是脑残粉，文物被砸抢，法律被践踏，没有人敢有钱，没有人敢致富，没有人敢批评，没有人敢改变的时代。那时人们都在默默的等待……等到他老人家去世那一天……终于可以动手拯救这个国家了。</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3924400380051622" target="freeweibo-mirror">“在莫斯科时，毛对我说：第三次世界大战可以在中国打，待我们将…</a>
-</h2>
-<p>“在莫斯科时，毛对我说：第三次世界大战可以在中国打，待我们将美军引入纵深后，请苏联同志向我们投掷原子弹，这可一举全歼美军主力。这样做中国可能会牺牲掉三分之二以上的人 口，但换来一个世界大同还是值得的！ ———当时我真替中国人捏了一把汗 ！” ——《赫鲁晓夫回忆录》<br><img src="http://ww2.sinaimg.cn/large/57b1a819jw1ezdc9oc10uj20cs0mq74y.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
