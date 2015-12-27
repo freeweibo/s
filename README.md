@@ -78,7 +78,13 @@
 </h2>
 <p>结果呢？1912年到1949年，37年人口增长1.3亿。毛执政27年人口增长3.9亿。并打下了今天发展的基础，看诺贝尔经济学奖得主的说法：http://t.cn/z8fFHGg 且人均预期寿命60年至71年大幅提高赶上韩国，一直到1976年都超过韩国，更别说印度。 http://t.cn/R4t0UDp //@演员孙海英:还有文革武斗！<br><br>RE: 【毛执政的27年】刚看了个帖子却不能转，下了其中的图片，并去除其判断性文字，作为史料存下，不会被删吧？<br><img src="http://ww1.sinaimg.cn/large/482ec579gw1ezdinz71w0j20c81ajn2k.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3924619419207511" target="freeweibo-mirror">微信上看到一图，不能不转，现在老坏人不少，原来是红卫兵老了，…</a>
+</h2>
+<p>微信上看到一图，不能不转，现在老坏人不少，原来是红卫兵老了，是不是这些人再老一些，不能动弹了，中国就有点希望了？<br><img src="http://ww2.sinaimg.cn/large/005XsazYjw1eze1d84orqj30hn0qoju9.jpg"></p>
+<p>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3924612775440854" target="freeweibo-mirror">呼吁立法维护毛泽东尊严！ //@侠骨柔情的杨华:转发微博</a>
 </h2>
@@ -133,12 +139,6 @@
 <p>//@中原雄鹰168:许多监狱都接活， 这个估计是上访户被判刑！[酷]</p>
 <p>
 	<small> ============== 8小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3924456197593858" target="freeweibo-mirror">【毛执政的27年】刚看了个帖子却不能转，下了其中的图片，并去…</a>
-</h2>
-<p>【毛执政的27年】刚看了个帖子却不能转，下了其中的图片，并去除其判断性文字，作为史料存下，不会被删吧？<br><img src="http://ww1.sinaimg.cn/large/482ec579gw1ezdinz71w0j20c81ajn2k.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
 </p>
 <table>
     <tr>
