@@ -126,7 +126,7 @@
 </h2>
 <p>SPAM //@陈光武律师: 敌对势力又在造谣？ //@邓树林律师: //@英国小天使: [衰]</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3924644782034936" target="freeweibo-mirror">中国成功的关键是土地改革。耶鲁大学历史学教授Jonathan…</a>
 </h2>
