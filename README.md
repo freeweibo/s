@@ -48,7 +48,7 @@
 </h2>
 <p>求证@CCTV  @央视新闻  @央视春晚  请你们回应!  请各位朋友高度关注!  打散!  [话筒][话筒][话筒] http://t.cn/R4t8n7F</p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3924729871911842" target="freeweibo-mirror">明明是微博老总送终身会员才有那么多转发的[微笑][兔子][挖…</a>
 </h2>
