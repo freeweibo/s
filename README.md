@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3925051302370711" target="freeweibo-mirror">接下去国民更加聪明，文化程度更高，思想将会慢慢的更多独立话！…</a>
+</h2>
+<p>接下去国民更加聪明，文化程度更高，思想将会慢慢的更多独立话！[哈哈] //@北疆观点://@作家沙光:先公布个人财产更能服众。//@陶景洲:或者先解决食品安全问题…… //@何兵:请他先解决雾霾问题。<br><br>RE: 肺腑之言；权力一天比一天小。。。http://t.cn/R4cPKfQ</p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3925049851630912" target="freeweibo-mirror">SPAM 大盘下跌，股票被套，找个小乐子，低调晒傻逼30分钟…</a>
 </h2>
 <p>SPAM 大盘下跌，股票被套，找个小乐子，低调晒傻逼30分钟[嘻嘻]【上证3650之上卖成空仓】踏空了-120点[哈哈]。<br><img src="http://ww3.sinaimg.cn/large/5ef5c0aejw1ezfeuxf78yj20jz02n74j.jpg"></p>
@@ -42,7 +48,7 @@
 </h2>
 <p>REYERUR波波日韩电影，夫妻交友[爱你][生病][帅]黄色小视频秒拍，是精神的文明，做ai视频一直是很好但，115资源种子努力，就像拖拉机爬山坡那样轰轰烈烈djiv的gif[爱你][爱你]做ai动态图GIF好想被DFSGER5Y<br><img src="http://ww4.sinaimg.cn/large/92196d14gw1ezf4j9gtnfj209b0cs74y.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3924927126517319" target="freeweibo-mirror">//@shishi1600:看看。//@克石: 转发微博</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3924660708698820" target="freeweibo-mirror">SPAM [思考]//@侯会微博: ？ //@小岳快长: /…</a>
 </h2>
 <p>SPAM [思考]//@侯会微博: ？ //@小岳快长: //@皇帝未死:杨开慧、李一纯、贺子珍、江青、 吴莉莉、冯风鸣、章含之、丁玲、俞珊、上官云珠 、陈慧敏、李云露、张善兰、孙维世、唐闻生、夏菊丽、言慧珠、谢静宜、姚淑贤、吴旭君、邱桂荣 、刘凤英、王爱梅、白玉莲、杨丽清、俞雅菊、胡敏贞、董若英、岳美缇、<br><br>RE: 【毛执政的27年】刚看了个帖子却不能转，下了其中的图片，并去除其判断性文字，作为史料存下，不会被删吧？<br><img src="http://ww1.sinaimg.cn/large/482ec579gw1ezdinz71w0j20c81ajn2k.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3924659655768715" target="freeweibo-mirror">在微博搜毛泽东，开心的笑了。祝这个国家早日回到伟大的毛泽东时…</a>
-</h2>
-<p>在微博搜毛泽东，开心的笑了。祝这个国家早日回到伟大的毛泽东时代。我咋那么喜闻乐见呢？哈韩哈日亲美的还有那帮明星偶像资本家臭老九们你们有种别跑。</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
