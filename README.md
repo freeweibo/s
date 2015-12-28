@@ -30,7 +30,7 @@
 </h2>
 <p>SPAM [哈哈][哈哈][哈哈]神最右 →_→//@素朴儿:[哈哈] //@老玉米农场主:→_→ //@钢铁侠:放大了看看，回车键上面四个大字是啥？[嘻嘻]→_→ http://t.cn/R4cBc71<br><br>RE: 原来那条微博是这样发出去的啊[哈哈]<br><img src="http://ww1.sinaimg.cn/large/76716e15jw1ezf1hyupd8g205k04k7wh.gif"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3925089617574028" target="freeweibo-mirror">@聂隐娘出山秘闻:反暴执主义第一书记、OGV和平基金总裁李明…</a>
 </h2>
@@ -48,7 +48,7 @@
 </h2>
 <p>接下去国民更加聪明，文化程度更高，思想将会慢慢的更多独立话！[哈哈] //@北疆观点://@作家沙光:先公布个人财产更能服众。//@陶景洲:或者先解决食品安全问题…… //@何兵:请他先解决雾霾问题。<br><br>RE: 肺腑之言；权力一天比一天小。。。http://t.cn/R4cPKfQ</p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3925049851630912" target="freeweibo-mirror">SPAM 大盘下跌，股票被套，找个小乐子，低调晒傻逼30分钟…</a>
 </h2>
