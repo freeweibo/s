@@ -30,7 +30,13 @@
 </h2>
 <p>//@米鱼米虾://@朱令是谁: //@后余万凯:转发微博<br><br>RE: 【今天是刘博士晓波先生六十岁生日】遥祝身陷囫囵已七年的刘先生生日快乐，致敬刘霞女士（刘霞已被非法软禁五年有余）。刘先生是2010年诺贝尔和平奖得主，零8宪章发起人，独立中文笔会名誉主席。<br><img src="http://ww3.sinaimg.cn/large/006df1KYgw1ezf8ekh04qj30fy0m80u4.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3924993643586934" target="freeweibo-mirror">【今天是刘博士晓波先生六十岁生日】遥祝身陷囫囵已七年的刘先生…</a>
+</h2>
+<p>【今天是刘博士晓波先生六十岁生日】遥祝身陷囫囵已七年的刘先生生日快乐，致敬刘霞女士（刘霞已被非法软禁五年有余）。刘先生是2010年诺贝尔和平奖得主，零8宪章发起人，独立中文笔会名誉主席。<br><img src="http://ww3.sinaimg.cn/large/006df1KYgw1ezf8ekh04qj30fy0m80u4.jpg"></p>
+<p>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3924959971339471" target="freeweibo-mirror">REYERUR波波日韩电影，夫妻交友[爱你][生病][帅]黄…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3924659655768715" target="freeweibo-mirror">在微博搜毛泽东，开心的笑了。祝这个国家早日回到伟大的毛泽东时…</a>
 </h2>
 <p>在微博搜毛泽东，开心的笑了。祝这个国家早日回到伟大的毛泽东时代。我咋那么喜闻乐见呢？哈韩哈日亲美的还有那帮明星偶像资本家臭老九们你们有种别跑。</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3924656941454187" target="freeweibo-mirror">//@陈业文新大都:指望这帮老混蛋，中华何言复兴？ //@彭…</a>
-</h2>
-<p>//@陈业文新大都:指望这帮老混蛋，中华何言复兴？ //@彭园v:转发微博<br><br>RE: 微信上看到一图，不能不转，现在老坏人不少，原来是红卫兵老了，是不是这些人再老一些，不能动弹了，中国就有点希望了？<br><img src="http://ww2.sinaimg.cn/large/005XsazYjw1eze1d84orqj30hn0qoju9.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
