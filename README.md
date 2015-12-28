@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3924927126517319" target="freeweibo-mirror">//@shishi1600:看看。//@克石: 转发微博</a>
+</h2>
+<p>//@shishi1600:看看。//@克石: 转发微博<br><br>RE: 毛选里还有这话？？？[哈哈]开眼了<br><img src="http://ww1.sinaimg.cn/large/7fe61c39gw1eze247iglaj208x08yt92.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3924819785537215" target="freeweibo-mirror">REYERUR波波日韩电影，夫妻交友[爱你][落叶][帅]黄…</a>
 </h2>
 <p>REYERUR波波日韩电影，夫妻交友[爱你][落叶][帅]黄色小视频秒拍，是精神的文明，做ai视频一直是很好但，115资源种子努力，就像拖拉机爬山坡那样轰轰烈烈djiv的gif[爱你][爱你]做ai动态图GIF好想被DFSGER5Y<br><img src="http://ww4.sinaimg.cn/large/92196d14gw1ezeofnuqmuj20c80lq764.jpg"></p>
@@ -36,7 +42,7 @@
 </h2>
 <p>//@老牛玄德:基本不可能，如果上的话，大家真要闭嘴了，不然真会被吊死在路灯上//@烦恼是毒: //@问沉1:除非央视领导脑子进水了？ //@柳下隐者:操特么，这是谁人之天下？！[怒]//@新-军刀-: 这是与习主席唱对台戏？这里是中国！[话筒][话筒][话筒]@美保公 @安拉的泪痕  @白露秋枫 @雾隐新峰 @问沉1<br><br>RE: 求证@CCTV  @央视新闻  @央视春晚  请你们回应!  请各位朋友高度关注!  打散!  [话筒][话筒][话筒] http://t.cn/R4t8n7F</p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3924772906107511" target="freeweibo-mirror">[吃惊] //@新-军刀-:这是与习主席唱对台戏？[话筒]这…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3924645965381838" target="freeweibo-mirror">SPAM //@陈光武律师: 敌对势力又在造谣？ //@邓树…</a>
 </h2>
 <p>SPAM //@陈光武律师: 敌对势力又在造谣？ //@邓树林律师: //@英国小天使: [衰]</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3924644782034936" target="freeweibo-mirror">中国成功的关键是土地改革。耶鲁大学历史学教授Jonathan…</a>
-</h2>
-<p>中国成功的关键是土地改革。耶鲁大学历史学教授Jonathan 发现，中国南部和中部农业区有40%的土地从地主手中没收，然后重新分配出去，大约有60%的农民得到了好处 http://t.cn/z8fFHGg 没运动与斗争，仍维持旧中国由地主资本家垄断资源的格局，能养活或许包括你父母在内的那几亿人？//@秦能补拙磊落光明:<br><br>RE: 【毛执政的27年】刚看了个帖子却不能转，下了其中的图片，并去除其判断性文字，作为史料存下，不会被删吧？<br><img src="http://ww1.sinaimg.cn/large/482ec579gw1ezdinz71w0j20c81ajn2k.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
