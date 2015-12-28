@@ -96,7 +96,7 @@
 </h2>
 <p>虽然局长自杀于事无补，但我认为他却是一个敢于担责的男人，比那些冠冕堂皇推卸责任的强得多。【深圳光明新区（滑坡事发地）原城管局长坠楼身亡(图)】12月27日21时，公安机关接报称，在深圳市南山区某小区有人坠楼。接报后，警方立即赶往现场。排除他杀者... http://t.cn/R4cxtic（分享自 @凤凰网）<br><img src="http://ww3.sinaimg.cn/large/b9b69db3jw1ezfoe3424cj20go09zq42.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3925129366619566" target="freeweibo-mirror">二战后的日本比刚见过的新中国惨？哈哈哈哈！原po也就这智商了…</a>
 </h2>
