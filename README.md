@@ -120,7 +120,7 @@
 </h2>
 <p>據說是陳云同志說的：建黨有份，建國有功，治國無能，文革有罪。</p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3925096110195955" target="freeweibo-mirror">SPAM [哈哈][哈哈][哈哈]神最右 →_→//@素朴儿…</a>
 </h2>
