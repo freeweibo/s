@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3925096110195955" target="freeweibo-mirror">SPAM [哈哈][哈哈][哈哈]神最右 →_→//@素朴儿…</a>
+</h2>
+<p>SPAM [哈哈][哈哈][哈哈]神最右 →_→//@素朴儿:[哈哈] //@老玉米农场主:→_→ //@钢铁侠:放大了看看，回车键上面四个大字是啥？[嘻嘻]→_→ http://t.cn/R4cBc71<br><br>RE: 原来那条微博是这样发出去的啊[哈哈]<br><img src="http://ww1.sinaimg.cn/large/76716e15jw1ezf1hyupd8g205k04k7wh.gif"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3925051302370711" target="freeweibo-mirror">接下去国民更加聪明，文化程度更高，思想将会慢慢的更多独立话！…</a>
 </h2>
 <p>接下去国民更加聪明，文化程度更高，思想将会慢慢的更多独立话！[哈哈] //@北疆观点://@作家沙光:先公布个人财产更能服众。//@陶景洲:或者先解决食品安全问题…… //@何兵:请他先解决雾霾问题。<br><br>RE: 肺腑之言；权力一天比一天小。。。http://t.cn/R4cPKfQ</p>
@@ -30,7 +36,7 @@
 </h2>
 <p>SPAM 大盘下跌，股票被套，找个小乐子，低调晒傻逼30分钟[嘻嘻]【上证3650之上卖成空仓】踏空了-120点[哈哈]。<br><img src="http://ww3.sinaimg.cn/large/5ef5c0aejw1ezfeuxf78yj20jz02n74j.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3925015730954794" target="freeweibo-mirror">//@米鱼米虾://@朱令是谁: //@后余万凯:转发微博</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3924663669597249" target="freeweibo-mirror">SPAM  //@周铁东本人:→_→//@扭矩max：没错，…</a>
 </h2>
 <p>SPAM  //@周铁东本人:→_→//@扭矩max：没错，他就是这么个东西，你当崇拜毛的人不知道？他们完全清楚。中国人骨子里只有一个暴君一个奴才，所以才会崇拜暴君，同时对于不做奴才的其他人以暴君的手段对待。这是一个不值得救赎的民族。所以对于中国人，就应该剥削他，压迫他，不这样中国人就不舒服。<br><br>RE: 【毛执政的27年】刚看了个帖子却不能转，下了其中的图片，并去除其判断性文字，作为史料存下，不会被删吧？<br><img src="http://ww1.sinaimg.cn/large/482ec579gw1ezdinz71w0j20c81ajn2k.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3924661010101097" target="freeweibo-mirror">//@石城公民://@陆伟民律师: 这种孳子要着干嘛？任何社…</a>
-</h2>
-<p>//@石城公民://@陆伟民律师: 这种孳子要着干嘛？任何社会里父母子女永远是最亲近的人。 //@青灯冷月-:毛粉挂在嘴边最多的一句话就是：“爹亲娘亲都不如毛主席亲”<br><br>RE: 昨天看到最搞笑的一句话：没有毛主席哪来今天的幸福生活？说这话的不怕几千万饿死的阴魂到你家？不怕几十万逃港的难民敲你头？就说当年工人阶级重镇的上海，每年也只能吃一次鱼鸭，买什么都凭票，居住困难的比比皆是，以至于有的结婚子女和父母蜗居一室，中间用塑料布遮挡一下。<br><img src="http://ww1.sinaimg.cn/large/9154fba0gw1eze060t9qfj20d709fab1.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
