@@ -26,6 +26,18 @@
 <p>
 	<small> ============== 1小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3925169938396516" target="freeweibo-mirror">造谣一时爽全家火葬场。//@风中的蒲公英云: 博主你也好歹披…</a>
+</h2>
+<p>造谣一时爽全家火葬场。//@风中的蒲公英云: 博主你也好歹披张人皮，干吗不说你自己的话，据说能算数吗？有种写在陈云文集里[吐][吐]//@天下为公111l:挂!//@柷敔666: 造谣死全家//@湘微笑6: //@谷大道: 再问一声：老杨，干吗这么卖劲造谣啊，是不是不造谣你全家会死绝？[疑问]<br><br>RE: 據說是陳云同志說的：建黨有份，建國有功，治國無能，文革有罪。</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3925169456387779" target="freeweibo-mirror">軍人當好意識形態領域鬥爭的生力軍，並非始於今日，四十九年前，…</a>
+</h2>
+<p>軍人當好意識形態領域鬥爭的生力軍，並非始於今日，四十九年前，中宣部被打成「閻王殿」，部長陸定一被關進秦城監獄之後，各地媒體幾乎都被軍管，或者可以理解他不滿意這個領域沒有生力軍？ [嘻嘻]//@龙兄:要解放军报“当好意识形态领域斗争的生力军”，看来军人既要掌握枪杆子，又要掌握笔杆子。</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3925167682273834" target="freeweibo-mirror">SPAM  //@记者钱莽墩:话在理 //@四川罗天:嗯，也…</a>
 </h2>
 <p>SPAM  //@记者钱莽墩:话在理 //@四川罗天:嗯，也许是真的～</p>
@@ -53,6 +65,18 @@
 	<a href="https://freeweibo.com/weibo/3925165471685384" target="freeweibo-mirror">陈云从没说过这种话！请看陈云女儿的辟谣——陈云女儿公开辟谣：…</a>
 </h2>
 <p>陈云从没说过这种话！请看陈云女儿的辟谣——陈云女儿公开辟谣：我父亲从没说过毛主席治国无能、文革有罪http://t.cn/zTTSdJI</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3925161969311328" target="freeweibo-mirror">老杨每到关键时点总是辣么亢奋</a>
+</h2>
+<p>老杨每到关键时点总是辣么亢奋<br><br>RE: 據說是陳云同志說的：建黨有份，建國有功，治國無能，文革有罪。</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3925161755797163" target="freeweibo-mirror">你说呢？</a>
+</h2>
+<p>你说呢？<br><br>RE: 虽然局长自杀于事无补，但我认为他却是一个敢于担责的男人，比那些冠冕堂皇推卸责任的强得多。【深圳光明新区（滑坡事发地）原城管局长坠楼身亡(图)】12月27日21时，公安机关接报称，在深圳市南山区某小区有人坠楼。接报后，警方立即赶往现场。排除他杀者... http://t.cn/R4cxtic（分享自 @凤凰网）<br><img src="http://ww3.sinaimg.cn/large/b9b69db3jw1ezfoe3424cj20go09zq42.jpg"></p>
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
@@ -115,30 +139,6 @@
 <p>SPAM 大盘下跌，股票被套，找个小乐子，低调晒傻逼30分钟[嘻嘻]【上证3650之上卖成空仓】踏空了-120点[哈哈]。<br><img src="http://ww3.sinaimg.cn/large/5ef5c0aejw1ezfeuxf78yj20jz02n74j.jpg"></p>
 <p>
 	<small> ============== 10小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3925015730954794" target="freeweibo-mirror">//@米鱼米虾://@朱令是谁: //@后余万凯:转发微博</a>
-</h2>
-<p>//@米鱼米虾://@朱令是谁: //@后余万凯:转发微博<br><br>RE: 【今天是刘博士晓波先生六十岁生日】遥祝身陷囫囵已七年的刘先生生日快乐，致敬刘霞女士（刘霞已被非法软禁五年有余）。刘先生是2010年诺贝尔和平奖得主，零8宪章发起人，独立中文笔会名誉主席。<br><img src="http://ww3.sinaimg.cn/large/006df1KYgw1ezf8ekh04qj30fy0m80u4.jpg"></p>
-<p>
-	<small> ============== 12小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3924993643586934" target="freeweibo-mirror">【今天是刘博士晓波先生六十岁生日】遥祝身陷囫囵已七年的刘先生…</a>
-</h2>
-<p>【今天是刘博士晓波先生六十岁生日】遥祝身陷囫囵已七年的刘先生生日快乐，致敬刘霞女士（刘霞已被非法软禁五年有余）。刘先生是2010年诺贝尔和平奖得主，零8宪章发起人，独立中文笔会名誉主席。<br><img src="http://ww3.sinaimg.cn/large/006df1KYgw1ezf8ekh04qj30fy0m80u4.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3924959971339471" target="freeweibo-mirror">REYERUR波波日韩电影，夫妻交友[爱你][生病][帅]黄…</a>
-</h2>
-<p>REYERUR波波日韩电影，夫妻交友[爱你][生病][帅]黄色小视频秒拍，是精神的文明，做ai视频一直是很好但，115资源种子努力，就像拖拉机爬山坡那样轰轰烈烈djiv的gif[爱你][爱你]做ai动态图GIF好想被DFSGER5Y<br><img src="http://ww4.sinaimg.cn/large/92196d14gw1ezf4j9gtnfj209b0cs74y.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3924934121916699" target="freeweibo-mirror">原来那条微博是这样发出去的啊[哈哈]</a>
-</h2>
-<p>原来那条微博是这样发出去的啊[哈哈]<br><img src="http://ww1.sinaimg.cn/large/76716e15jw1ezf1hyupd8g205k04k7wh.gif"></p>
-<p>
-	<small> ============== 1天前</small>
 </p>
 <table>
     <tr>
