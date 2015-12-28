@@ -42,7 +42,7 @@
 </h2>
 <p>【今天是刘博士晓波先生六十岁生日】遥祝身陷囫囵已七年的刘先生生日快乐，致敬刘霞女士（刘霞已被非法软禁五年有余）。刘先生是2010年诺贝尔和平奖得主，零8宪章发起人，独立中文笔会名誉主席。<br><img src="http://ww3.sinaimg.cn/large/006df1KYgw1ezf8ekh04qj30fy0m80u4.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3924959971339471" target="freeweibo-mirror">REYERUR波波日韩电影，夫妻交友[爱你][生病][帅]黄…</a>
 </h2>
