@@ -32,11 +32,47 @@
 <p>
 	<small> ============== 1小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3925167509809776" target="freeweibo-mirror">SPAM //@刘文华律师: //@记者钱莽墩:话在理 //…</a>
+</h2>
+<p>SPAM //@刘文华律师: //@记者钱莽墩:话在理 //@四川罗天:嗯，也许是真的～</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3925167035870787" target="freeweibo-mirror">抽反毛狗的脸！——陈云女儿公开辟谣：我父亲从没说过毛主席治国…</a>
+</h2>
+<p>抽反毛狗的脸！——陈云女儿公开辟谣：我父亲从没说过毛主席治国无能、文革有罪http://t.cn/zTTSdJI //@赵克罗: “建党有份，建国有功，治国无能，文革有罪”！</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3925165471685384" target="freeweibo-mirror">陈云从没说过这种话！请看陈云女儿的辟谣——陈云女儿公开辟谣：…</a>
+</h2>
+<p>陈云从没说过这种话！请看陈云女儿的辟谣——陈云女儿公开辟谣：我父亲从没说过毛主席治国无能、文革有罪http://t.cn/zTTSdJI</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3925152955416632" target="freeweibo-mirror">SPAM  //@陈业文新大都:真假不知，评价较靠谱。 //…</a>
+</h2>
+<p>SPAM  //@陈业文新大都:真假不知，评价较靠谱。 //@ICO刘开明: //@邓相超://@私家野史: /@桃坞闲人:</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3925144164857381" target="freeweibo-mirror">//@驱蚊好睡眠: //@红星微评:杨不但反毛，还理解台独分…</a>
 </h2>
 <p>//@驱蚊好睡眠: //@红星微评:杨不但反毛，还理解台独分子。有一次他主持《走进大中华》栏目 采访到了一名皇民，是个老太太，她情绪激动并把皇军说的非常好，杨静静地听她诉说完。然后说，我们要理解老人家<br><br>RE: #一张照片再见2015#扮演偉大領袖毛主席，據說是所有內地影視明星的中國夢，馮小剛就免了吧，但王寶強還有點希望。<br><img src="http://ww1.sinaimg.cn/large/5937c055jw1ezevc5k3gvj20fv0m8q4d.jpg"></p>
 <p>
 	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3925129366619566" target="freeweibo-mirror">二战后的日本比刚见过的新中国惨？哈哈哈哈！原po也就这智商了…</a>
+</h2>
+<p>二战后的日本比刚见过的新中国惨？哈哈哈哈！原po也就这智商了。//@纵横-邪月: 真个p。那帮人对毛的敬畏之心，乃至情感的复杂，从各种会议记载就能看出来。谁敢在那个时候谈什么无能、有罪？最后罪责都得让四人帮去担当。别忘了两个凡是和实践是检验真理的唯一标准是怎么出现的，传谣言前要有脑子。</p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3925126611247557" target="freeweibo-mirror">SPAM 也許是真的。</a>
+</h2>
+<p>SPAM 也許是真的。<br><img src="http://ww1.sinaimg.cn/large/5937c055jw1ezfno5lofej20xc18g44u.jpg"></p>
+<p>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3925119015086288" target="freeweibo-mirror">Hvhjfygtyjgj日韩电影，夫妻交友[馋嘴]黄色小视频…</a>
 </h2>
@@ -54,7 +90,7 @@
 </h2>
 <p>@聂隐娘出山秘闻:反暴执主义第一书记、OGV和平基金总裁李明亮宣布中国死磕派律师获得2015年度OGV和平奖！颁奖词：中国人民世世代代都要牢记这些年暴力执法、暴力拆迁、刑讯逼供、冤假错案的马克思主义黑暗时期。中国和世界就需要死磕到底、明察秋毫、较真事实真相的精神！呼吁中国释放良心<br><br>RE: 【关注围观/旁听浦志强案刑拘或失联者】  刑拘者7人:           1.渠红霞 山西籍北京家 2.王素娥 辽宁 3.张占 河北石家庄 4.冉崇碧 重庆 5.李美青 北京 6.文仁贵  四川 7.盛兰福 辽宁大连  失联者2人: 1.陈文昌 2.孙秀琴   截至2015年12月28日10:00<br><img src="http://ww3.sinaimg.cn/large/006gT68mgw1ezffe0m6rfj30qo0f0420.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3925054473649840" target="freeweibo-mirror">【关注围观/旁听浦志强案刑拘或失联者】  刑拘者7人:   …</a>
 </h2>
@@ -101,42 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3924927126517319" target="freeweibo-mirror">//@shishi1600:看看。//@克石: 转发微博</a>
 </h2>
 <p>//@shishi1600:看看。//@克石: 转发微博<br><br>RE: 毛选里还有这话？？？[哈哈]开眼了<br><img src="http://ww1.sinaimg.cn/large/7fe61c39gw1eze247iglaj208x08yt92.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3924880275482223" target="freeweibo-mirror">#一张照片再见2015#扮演偉大領袖毛主席，據說是所有內地影…</a>
-</h2>
-<p>#一张照片再见2015#扮演偉大領袖毛主席，據說是所有內地影視明星的中國夢，馮小剛就免了吧，但王寶強還有點希望。<br><img src="http://ww1.sinaimg.cn/large/5937c055jw1ezevc5k3gvj20fv0m8q4d.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3924819785537215" target="freeweibo-mirror">REYERUR波波日韩电影，夫妻交友[爱你][落叶][帅]黄…</a>
-</h2>
-<p>REYERUR波波日韩电影，夫妻交友[爱你][落叶][帅]黄色小视频秒拍，是精神的文明，做ai视频一直是很好但，115资源种子努力，就像拖拉机爬山坡那样轰轰烈烈djiv的gif[爱你][爱你]做ai动态图GIF好想被DFSGER5Y<br><img src="http://ww4.sinaimg.cn/large/92196d14gw1ezeofnuqmuj20c80lq764.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3924795143565514" target="freeweibo-mirror">肺腑之言；权力一天比一天小。。。http://t.cn/R4…</a>
-</h2>
-<p>肺腑之言；权力一天比一天小。。。http://t.cn/R4cPKfQ</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3924780157598422" target="freeweibo-mirror">放风试探[疑问][疑问][疑问]//@白露秋枫:不可能。//…</a>
-</h2>
-<p>放风试探[疑问][疑问][疑问]//@白露秋枫:不可能。//@淡雅-韵味:不信//@梧桐寨主: 不信 //@问沉1:不信！ //@依依的1985:[怒]//@柳下隐者:操特么，这是谁人之天下？！[怒]<br><br>RE: 求证@CCTV  @央视新闻  @央视春晚  请你们回应!  请各位朋友高度关注!  打散!  [话筒][话筒][话筒] http://t.cn/R4t8n7F</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3924779855499908" target="freeweibo-mirror">//@老牛玄德:基本不可能，如果上的话，大家真要闭嘴了，不然…</a>
-</h2>
-<p>//@老牛玄德:基本不可能，如果上的话，大家真要闭嘴了，不然真会被吊死在路灯上//@烦恼是毒: //@问沉1:除非央视领导脑子进水了？ //@柳下隐者:操特么，这是谁人之天下？！[怒]//@新-军刀-: 这是与习主席唱对台戏？这里是中国！[话筒][话筒][话筒]@美保公 @安拉的泪痕  @白露秋枫 @雾隐新峰 @问沉1<br><br>RE: 求证@CCTV  @央视新闻  @央视春晚  请你们回应!  请各位朋友高度关注!  打散!  [话筒][话筒][话筒] http://t.cn/R4t8n7F</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3924772906107511" target="freeweibo-mirror">[吃惊] //@新-军刀-:这是与习主席唱对台戏？[话筒]这…</a>
-</h2>
-<p>[吃惊] //@新-军刀-:这是与习主席唱对台戏？[话筒]这里是中国！[话筒][话筒][话筒]<br><br>RE: 求证@CCTV  @央视新闻  @央视春晚  请你们回应!  请各位朋友高度关注!  打散!  [话筒][话筒][话筒] http://t.cn/R4t8n7F</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
