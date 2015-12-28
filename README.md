@@ -66,7 +66,7 @@
 </h2>
 <p>陈云从没说过这种话！请看陈云女儿的辟谣——陈云女儿公开辟谣：我父亲从没说过毛主席治国无能、文革有罪http://t.cn/zTTSdJI</p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3925161969311328" target="freeweibo-mirror">老杨每到关键时点总是辣么亢奋</a>
 </h2>
