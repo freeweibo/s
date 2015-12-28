@@ -110,6 +110,12 @@
 <p>
 	<small> ============== 5小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3925115001727910" target="freeweibo-mirror">據說是陳云同志說的：建黨有份，建國有功，治國無能，文革有罪。</a>
+</h2>
+<p>據說是陳云同志說的：建黨有份，建國有功，治國無能，文革有罪。</p>
+<p>
+	<small> ============== 6小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3925096110195955" target="freeweibo-mirror">SPAM [哈哈][哈哈][哈哈]神最右 →_→//@素朴儿…</a>
 </h2>
 <p>SPAM [哈哈][哈哈][哈哈]神最右 →_→//@素朴儿:[哈哈] //@老玉米农场主:→_→ //@钢铁侠:放大了看看，回车键上面四个大字是啥？[嘻嘻]→_→ http://t.cn/R4cBc71<br><br>RE: 原来那条微博是这样发出去的啊[哈哈]<br><img src="http://ww1.sinaimg.cn/large/76716e15jw1ezf1hyupd8g205k04k7wh.gif"></p>
@@ -126,17 +132,11 @@
 </h2>
 <p>【关注围观/旁听浦志强案刑拘或失联者】  刑拘者7人:           1.渠红霞 山西籍北京家 2.王素娥 辽宁 3.张占 河北石家庄 4.冉崇碧 重庆 5.李美青 北京 6.文仁贵  四川 7.盛兰福 辽宁大连  失联者2人: 1.陈文昌 2.孙秀琴   截至2015年12月28日10:00<br><img src="http://ww3.sinaimg.cn/large/006gT68mgw1ezffe0m6rfj30qo0f0420.jpg"></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3925051302370711" target="freeweibo-mirror">接下去国民更加聪明，文化程度更高，思想将会慢慢的更多独立话！…</a>
 </h2>
 <p>接下去国民更加聪明，文化程度更高，思想将会慢慢的更多独立话！[哈哈] //@北疆观点://@作家沙光:先公布个人财产更能服众。//@陶景洲:或者先解决食品安全问题…… //@何兵:请他先解决雾霾问题。<br><br>RE: 肺腑之言；权力一天比一天小。。。http://t.cn/R4cPKfQ</p>
-<p>
-	<small> ============== 10小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3925049851630912" target="freeweibo-mirror">SPAM 大盘下跌，股票被套，找个小乐子，低调晒傻逼30分钟…</a>
-</h2>
-<p>SPAM 大盘下跌，股票被套，找个小乐子，低调晒傻逼30分钟[嘻嘻]【上证3650之上卖成空仓】踏空了-120点[哈哈]。<br><img src="http://ww3.sinaimg.cn/large/5ef5c0aejw1ezfeuxf78yj20jz02n74j.jpg"></p>
 <p>
 	<small> ============== 10小时前</small>
 </p>
