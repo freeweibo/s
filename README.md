@@ -56,6 +56,12 @@
 <p>
 	<small> ============== 12小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3924934121916699" target="freeweibo-mirror">原来那条微博是这样发出去的啊[哈哈]</a>
+</h2>
+<p>原来那条微博是这样发出去的啊[哈哈]<br><img src="http://ww1.sinaimg.cn/large/76716e15jw1ezf1hyupd8g205k04k7wh.gif"></p>
+<p>
+	<small> ============== 1天前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3924927126517319" target="freeweibo-mirror">//@shishi1600:看看。//@克石: 转发微博</a>
 </h2>
 <p>//@shishi1600:看看。//@克石: 转发微博<br><br>RE: 毛选里还有这话？？？[哈哈]开眼了<br><img src="http://ww1.sinaimg.cn/large/7fe61c39gw1eze247iglaj208x08yt92.jpg"></p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3924676265344196" target="freeweibo-mirror">//@急煞人也:为什么一个外国人都能明白的道理，而一些国人却…</a>
 </h2>
 <p>//@急煞人也:为什么一个外国人都能明白的道理，而一些国人却至死不悟呢？悲哀！[生病] //@--梧桐细雨--:转发微博<br><br>RE: 《老雷》126- 对中国有害 http://t.cn/R4tO8nt .</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3924663669597249" target="freeweibo-mirror">SPAM  //@周铁东本人:→_→//@扭矩max：没错，…</a>
-</h2>
-<p>SPAM  //@周铁东本人:→_→//@扭矩max：没错，他就是这么个东西，你当崇拜毛的人不知道？他们完全清楚。中国人骨子里只有一个暴君一个奴才，所以才会崇拜暴君，同时对于不做奴才的其他人以暴君的手段对待。这是一个不值得救赎的民族。所以对于中国人，就应该剥削他，压迫他，不这样中国人就不舒服。<br><br>RE: 【毛执政的27年】刚看了个帖子却不能转，下了其中的图片，并去除其判断性文字，作为史料存下，不会被删吧？<br><img src="http://ww1.sinaimg.cn/large/482ec579gw1ezdinz71w0j20c81ajn2k.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
