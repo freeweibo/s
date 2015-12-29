@@ -24,7 +24,7 @@
 </h2>
 <p>//@迷茫半生hh: 共党的话有人信?它们能活到5年后吗</p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3925489435482694" target="freeweibo-mirror">还有5年耍流氓期？</a>
 </h2>
