@@ -24,7 +24,7 @@
 </h2>
 <p>//@王小山://@李军林导演: 一个时代的正义，站在100年后来看，他是一个留名青史的人。</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3925177970296022" target="freeweibo-mirror">12月28日，60歲，某博士先生……</a>
 </h2>
@@ -78,7 +78,7 @@
 </h2>
 <p>陈云从没说过这种话！请看陈云女儿的辟谣——陈云女儿公开辟谣：我父亲从没说过毛主席治国无能、文革有罪http://t.cn/zTTSdJI</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3925161969311328" target="freeweibo-mirror">老杨每到关键时点总是辣么亢奋</a>
 </h2>
