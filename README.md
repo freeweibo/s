@@ -24,7 +24,7 @@
 </h2>
 <p>//@任志强:确实！</p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3925413711274166" target="freeweibo-mirror">真的是良心被狗吃了 //@任志强:回复@社媒云靖:真的？//…</a>
 </h2>
