@@ -20,6 +20,18 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3925494074120429" target="freeweibo-mirror">//@迷茫半生hh: 共党的话有人信?它们能活到5年后吗</a>
+</h2>
+<p>//@迷茫半生hh: 共党的话有人信?它们能活到5年后吗</p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3925489435482694" target="freeweibo-mirror">还有5年耍流氓期？</a>
+</h2>
+<p>还有5年耍流氓期？<br><img src="http://ww1.sinaimg.cn/large/7cc9aaf1gw1ezgtc40rxyj20m80fnq4s.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3925417532138687" target="freeweibo-mirror">//@任志强:确实！</a>
 </h2>
 <p>//@任志强:确实！</p>
@@ -125,18 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3925144164857381" target="freeweibo-mirror">//@驱蚊好睡眠: //@红星微评:杨不但反毛，还理解台独分…</a>
 </h2>
 <p>//@驱蚊好睡眠: //@红星微评:杨不但反毛，还理解台独分子。有一次他主持《走进大中华》栏目 采访到了一名皇民，是个老太太，她情绪激动并把皇军说的非常好，杨静静地听她诉说完。然后说，我们要理解老人家<br><br>RE: #一张照片再见2015#扮演偉大領袖毛主席，據說是所有內地影視明星的中國夢，馮小剛就免了吧，但王寶強還有點希望。<br><img src="http://ww1.sinaimg.cn/large/5937c055jw1ezevc5k3gvj20fv0m8q4d.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3925132840467479" target="freeweibo-mirror">虽然局长自杀于事无补，但我认为他却是一个敢于担责的男人，比那…</a>
-</h2>
-<p>虽然局长自杀于事无补，但我认为他却是一个敢于担责的男人，比那些冠冕堂皇推卸责任的强得多。【深圳光明新区（滑坡事发地）原城管局长坠楼身亡(图)】12月27日21时，公安机关接报称，在深圳市南山区某小区有人坠楼。接报后，警方立即赶往现场。排除他杀者... http://t.cn/R4cxtic（分享自 @凤凰网）<br><img src="http://ww3.sinaimg.cn/large/b9b69db3jw1ezfoe3424cj20go09zq42.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3925129366619566" target="freeweibo-mirror">二战后的日本比刚见过的新中国惨？哈哈哈哈！原po也就这智商了…</a>
-</h2>
-<p>二战后的日本比刚见过的新中国惨？哈哈哈哈！原po也就这智商了。//@纵横-邪月: 真个p。那帮人对毛的敬畏之心，乃至情感的复杂，从各种会议记载就能看出来。谁敢在那个时候谈什么无能、有罪？最后罪责都得让四人帮去担当。别忘了两个凡是和实践是检验真理的唯一标准是怎么出现的，传谣言前要有脑子。</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
