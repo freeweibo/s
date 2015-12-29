@@ -30,7 +30,7 @@
 </h2>
 <p>还有5年耍流氓期？<br><img src="http://ww1.sinaimg.cn/large/7cc9aaf1gw1ezgtc40rxyj20m80fnq4s.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3925417532138687" target="freeweibo-mirror">//@任志强:确实！</a>
 </h2>
