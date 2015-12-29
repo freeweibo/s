@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3925417532138687" target="freeweibo-mirror">//@任志强:确实！</a>
+</h2>
+<p>//@任志强:确实！</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3925263501326150" target="freeweibo-mirror">//@王小山://@李军林导演: 一个时代的正义，站在100…</a>
 </h2>
 <p>//@王小山://@李军林导演: 一个时代的正义，站在100年后来看，他是一个留名青史的人。</p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3925115001727910" target="freeweibo-mirror">據說是陳云同志說的：建黨有份，建國有功，治國無能，文革有罪。</a>
 </h2>
 <p>據說是陳云同志說的：建黨有份，建國有功，治國無能，文革有罪。</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3925096110195955" target="freeweibo-mirror">SPAM [哈哈][哈哈][哈哈]神最右 →_→//@素朴儿…</a>
-</h2>
-<p>SPAM [哈哈][哈哈][哈哈]神最右 →_→//@素朴儿:[哈哈] //@老玉米农场主:→_→ //@钢铁侠:放大了看看，回车键上面四个大字是啥？[嘻嘻]→_→ http://t.cn/R4cBc71<br><br>RE: 原来那条微博是这样发出去的啊[哈哈]<br><img src="http://ww1.sinaimg.cn/large/76716e15jw1ezf1hyupd8g205k04k7wh.gif"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
