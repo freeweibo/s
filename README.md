@@ -120,7 +120,7 @@
 </h2>
 <p>SPAM 也許是真的。<br><img src="http://ww1.sinaimg.cn/large/5937c055jw1ezfno5lofej20xc18g44u.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3925119015086288" target="freeweibo-mirror">Hvhjfygtyjgj日韩电影，夫妻交友[馋嘴]黄色小视频…</a>
 </h2>
