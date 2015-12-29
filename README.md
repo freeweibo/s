@@ -24,7 +24,7 @@
 </h2>
 <p>//@任志强:确实！</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3925263501326150" target="freeweibo-mirror">//@王小山://@李军林导演: 一个时代的正义，站在100…</a>
 </h2>
