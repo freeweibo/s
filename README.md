@@ -36,7 +36,7 @@
 </h2>
 <p>SPAM 有人说，别看指数，我满仓买的股都涨停了！去去去，你是高手行了吗？</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3925705933448383" target="freeweibo-mirror">//@-蓝色-心情://@星V辰iD54: //@西之首掌:…</a>
 </h2>
