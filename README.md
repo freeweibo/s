@@ -90,7 +90,7 @@
 </h2>
 <p>SPAM 严肃一点，道歉呢。</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3925780792959605" target="freeweibo-mirror">SPAM [震惊]//@演员孙海英:[哈哈]太不厚道了！</a>
 </h2>
