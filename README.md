@@ -66,7 +66,7 @@
 </h2>
 <p>//@-蓝色-心情://@星V辰iD54: //@西之首掌://@阳光绅士v:毛比希特勒厉害[good]，害的全是自已人，且十倍于希特勒！</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3925666506463548" target="freeweibo-mirror">SPAM 回复@F-T-Y-路漫漫:据说没有//@F-T-Y…</a>
 </h2>
