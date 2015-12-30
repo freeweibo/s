@@ -42,7 +42,7 @@
 </h2>
 <p>SPAM 回复@F-T-Y-路漫漫:据说没有//@F-T-Y-路漫漫:到底有没有开枪打学生？如有就是血债。@私家野史 谁能拿点实料出来！</p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3925494074120429" target="freeweibo-mirror">//@迷茫半生hh: 共党的话有人信?它们能活到5年后吗</a>
 </h2>
