@@ -30,7 +30,7 @@
 </h2>
 <p>高丽国的太阳在宇宙系是排上号的，“东方红”的太阳才是宇宙最大的太阳。“天安门上太阳升”的新太阳已经升起，还是请你们司令官快块称臣吧！ //@作家金槿姬:拥护金正恩元帅，成为首任民选伟人！<br><br>RE: 这个我也支持！[拳头][拳头][拳头]<br><img src="http://ww3.sinaimg.cn/large/6a83dd8ejw1ezhks4naguj20qo0f1dil.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3925877320914754" target="freeweibo-mirror">SPAM //@网络正义战士: [怒]//@上善惹水000:…</a>
 </h2>
@@ -96,7 +96,7 @@
 </h2>
 <p>SPAM 较量|出狱了 请大家见证我的罪——刘虎申请国家赔偿的遭遇。此前转发的长微博被删了，再转微信公号文。 http://t.cn/R4fl4mR</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3925732302254343" target="freeweibo-mirror">SPAM 有人说，别看指数，我满仓买的股都涨停了！去去去，你…</a>
 </h2>
