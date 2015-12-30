@@ -72,7 +72,7 @@
 </h2>
 <p>12月28日，60歲，某博士先生……<br><img src="http://ww3.sinaimg.cn/large/006hwV4zgw1ezftknmizfj30dr096gmx.jpg"></p>
 <p>
-	<small> ============== 1天前</small>
+	<small> ============== 2天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3925174959279963" target="freeweibo-mirror">[弱] //@北方北大营:全家火葬场。//@西征网: 恶意造…</a>
 </h2>
