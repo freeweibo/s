@@ -24,7 +24,7 @@
 </h2>
 <p>SPAM 严肃一点，道歉呢。</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3925766905729398" target="freeweibo-mirror">SPAM 较量|出狱了 请大家见证我的罪——刘虎申请国家赔偿…</a>
 </h2>
