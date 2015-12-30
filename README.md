@@ -66,13 +66,19 @@
 </h2>
 <p>SPAM 较量|出狱了 请大家见证我的罪——刘虎申请国家赔偿的遭遇。此前转发的长微博被删了，再转微信公号文。 http://t.cn/R4fl4mR</p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3925732302254343" target="freeweibo-mirror">SPAM 有人说，别看指数，我满仓买的股都涨停了！去去去，你…</a>
 </h2>
 <p>SPAM 有人说，别看指数，我满仓买的股都涨停了！去去去，你是高手行了吗？</p>
 <p>
 	<small> ============== 12小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3925728368193184" target="freeweibo-mirror">这个我也支持！[拳头][拳头][拳头]</a>
+</h2>
+<p>这个我也支持！[拳头][拳头][拳头]<br><img src="http://ww3.sinaimg.cn/large/6a83dd8ejw1ezhks4naguj20qo0f1dil.jpg"></p>
+<p>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3925705933448383" target="freeweibo-mirror">//@-蓝色-心情://@星V辰iD54: //@西之首掌:…</a>
 </h2>
@@ -83,6 +89,12 @@
 	<a href="https://freeweibo.com/weibo/3925666506463548" target="freeweibo-mirror">SPAM 回复@F-T-Y-路漫漫:据说没有//@F-T-Y…</a>
 </h2>
 <p>SPAM 回复@F-T-Y-路漫漫:据说没有//@F-T-Y-路漫漫:到底有没有开枪打学生？如有就是血债。@私家野史 谁能拿点实料出来！</p>
+<p>
+	<small> ============== 1天前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3925630590459836" target="freeweibo-mirror">“政治局的同志按照党中央的要求，”“政治局的成员要向中央看齐…</a>
+</h2>
+<p>“政治局的同志按照党中央的要求，”“政治局的成员要向中央看齐”这类新闻联播里播放的话语，估计很多人听了都蒙圈了：政治局都不是中央，那中央是什么？但通过这些用语可以参透当今政治的特质，那就是现代版的皇权政治。古代偶有挟天子而令诸侯，实际上毛确定了现代皇权的新模式，即挟中央而令诸官。</p>
 <p>
 	<small> ============== 1天前</small>
 </p><h2>
@@ -125,18 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3925263501326150" target="freeweibo-mirror">//@王小山://@李军林导演: 一个时代的正义，站在100…</a>
 </h2>
 <p>//@王小山://@李军林导演: 一个时代的正义，站在100年后来看，他是一个留名青史的人。</p>
-<p>
-	<small> ============== 2天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3925177970296022" target="freeweibo-mirror">12月28日，60歲，某博士先生……</a>
-</h2>
-<p>12月28日，60歲，某博士先生……<br><img src="http://ww3.sinaimg.cn/large/006hwV4zgw1ezftknmizfj30dr096gmx.jpg"></p>
-<p>
-	<small> ============== 2天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3925174959279963" target="freeweibo-mirror">[弱] //@北方北大营:全家火葬场。//@西征网: 恶意造…</a>
-</h2>
-<p>[弱] //@北方北大营:全家火葬场。//@西征网: 恶意造谣，终身污点，人品恶劣！[弱]//@先生鬼谷子:靠传播谣言中伤他人的杨锦麟，定会不得好死。真相大家自己戳最右→_→「陈云长女陈伟力公开辟谣 父亲从未对毛主席不敬(图)」 http://t.cn/R4cF09Y<br><br>RE: 據說是陳云同志說的：建黨有份，建國有功，治國無能，文革有罪。</p>
 <p>
 	<small> ============== 2天前</small>
 </p>
