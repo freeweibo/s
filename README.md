@@ -38,6 +38,18 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3926286638394251" target="freeweibo-mirror">SPAM 新年快乐！香蕉万岁！</a>
+</h2>
+<p>SPAM 新年快乐！香蕉万岁！<br><img src="http://ww1.sinaimg.cn/large/65b076a2gw1ezjcvwl0ugj20qq0hsq4z.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3926280762332810" target="freeweibo-mirror">//@晓雨闻铃:回复@扛着棒子逛街:懒得骂你，是你自己滚蛋还…</a>
+</h2>
+<p>//@晓雨闻铃:回复@扛着棒子逛街:懒得骂你，是你自己滚蛋还是等俺拉黑你？ //@扛着棒子逛街:38军？光有个名，一点军人的原则都没有，军人的天择是什么：无条件服从。连这点都做不到，谈什么军人 //@晓雨闻铃:难言之隐一裁了之？ //@六国虹: //@廖红波A:[思考] //@duxl5656: //@广州湾在线: //@雷公旗:<br><br>RE: 【军改第一刀 6の戒严部队 27军被裁】这一只是历史悠久的部队，前身是华东野战军第9纵，许世友任司令；后改编为第27军，军长聂凤智，参加攻佔上海战斗。1950年后入朝鲜参加韩战，击溃美军「北极熊团」。近年最为人熟悉的，则是在1987年参加对越南的老山战役，及1989年参与北京6の的戒严行动。<br><img src="http://ww1.sinaimg.cn/large/006eicf2gw1ezixfskdp3j30hs0dbgmx.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3926280607055165" target="freeweibo-mirror">这大过节的 建议博主下去和你的仇家大鸣大放大辩论，我们在主席…</a>
 </h2>
 <p>这大过节的 建议博主下去和你的仇家大鸣大放大辩论，我们在主席创建的共和国幸福地享受跨年[蛋糕][咖啡][冰棍][手套]</p>
@@ -125,18 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3926017170754894" target="freeweibo-mirror">SPAM //@淮州府尹:感谢美帝，让某有关国家还有个约束。</a>
 </h2>
 <p>SPAM //@淮州府尹:感谢美帝，让某有关国家还有个约束。<br><br>RE: 网传令完成出卖了中国[抓狂][抓狂] http://t.cn/R4I6xtz<br><img src="http://ww3.sinaimg.cn/large/006kgA2pjw1ezibm54gtdj30f00qoq8a.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3925962033092691" target="freeweibo-mirror">网传令完成出卖了中国[抓狂][抓狂] http://t.cn…</a>
-</h2>
-<p>网传令完成出卖了中国[抓狂][抓狂] http://t.cn/R4I6xtz<br><img src="http://ww3.sinaimg.cn/large/006kgA2pjw1ezibm54gtdj30f00qoq8a.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3925916885446313" target="freeweibo-mirror">作者把這幅漫畫的主題寫成了三個字：倒車鍵。寓意深長哦。希望歷…</a>
-</h2>
-<p>作者把這幅漫畫的主題寫成了三個字：倒車鍵。寓意深長哦。希望歷史不會開倒車，歷史肯定開不了倒車，即使真的開了倒車，相信也走不遠。<br><img src="http://ww4.sinaimg.cn/large/5937c055jw1ezi6ee5veqj20fr0m8mzx.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
