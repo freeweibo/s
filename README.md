@@ -24,7 +24,7 @@
 </h2>
 <p>SPAM //@光头凡子新号:一下蹦出这么多狗来咬老杨。这个万恶的奴才国家。<br><br>RE: 作者把這幅漫畫的主題寫成了三個字：倒車鍵。寓意深長哦。希望歷史不會開倒車，歷史肯定開不了倒車，即使真的開了倒車，相信也走不遠。<br><img src="http://ww4.sinaimg.cn/large/5937c055jw1ezi6ee5veqj20fr0m8mzx.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3925916885446313" target="freeweibo-mirror">作者把這幅漫畫的主題寫成了三個字：倒車鍵。寓意深長哦。希望歷…</a>
 </h2>
