@@ -60,7 +60,7 @@
 </h2>
 <p>@刘虎：【求罪得罪】昨天我发布了去北京市检察院第三分院申请国家赔偿一事的前后经过。我犯有申请国家赔偿之罪，请大家见证。刚才我就接到了原认定我“不符合公诉条件不予起诉”的东城区检察院的房贺检察官的来电。他口头宣布经市检提起纠错，我如今变成了“罪行轻微不起诉”，相关决定会书面送达。<br><img src="http://ww1.sinaimg.cn/large/4231a8dbgw1eziv70yv3aj20cu3417o5.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3926100876896295" target="freeweibo-mirror">SPAM 作死</a>
 </h2>
