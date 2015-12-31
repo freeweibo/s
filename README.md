@@ -30,7 +30,7 @@
 </h2>
 <p>【浦志强案：党治，而非法治】纽约大学法学院教授孔杰荣：浦志强案是中国司法现实的最新例证——虽然一般性的立法和司法政策层面出现了一些进步，但在实践中，政治犯仍面临着不公的审判。http://t.cn/R4M59uB<br><img src="http://ww1.sinaimg.cn/large/6538fd8cjw1ezix0wubv8j20go09ewf2.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3926147328493045" target="freeweibo-mirror">经东城区人民检察院审查并两次退回补充侦查的刘虎案，在东城区检…</a>
 </h2>
@@ -78,7 +78,7 @@
 </h2>
 <p>SPAM //@光头凡子新号:一下蹦出这么多狗来咬老杨。这个万恶的奴才国家。<br><br>RE: 作者把這幅漫畫的主題寫成了三個字：倒車鍵。寓意深長哦。希望歷史不會開倒車，歷史肯定開不了倒車，即使真的開了倒車，相信也走不遠。<br><img src="http://ww4.sinaimg.cn/large/5937c055jw1ezi6ee5veqj20fr0m8mzx.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3926017170754894" target="freeweibo-mirror">SPAM //@淮州府尹:感谢美帝，让某有关国家还有个约束。</a>
 </h2>
