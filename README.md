@@ -36,7 +36,7 @@
 </h2>
 <p>【浦志强案：党治，而非法治】纽约大学法学院教授孔杰荣：浦志强案是中国司法现实的最新例证——虽然一般性的立法和司法政策层面出现了一些进步，但在实践中，政治犯仍面临着不公的审判。http://t.cn/R4M59uB<br><img src="http://ww1.sinaimg.cn/large/6538fd8cjw1ezix0wubv8j20go09ewf2.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3926147328493045" target="freeweibo-mirror">经东城区人民检察院审查并两次退回补充侦查的刘虎案，在东城区检…</a>
 </h2>
@@ -84,7 +84,7 @@
 </h2>
 <p>SPAM 元旦国庆建军节儿童节愚人节劳动节 统统没有轻松愉快 自由自在的感觉 ..........所以我到底为什么要把账单日设在1号<br><img src="http://ww1.sinaimg.cn/large/8cf82964gw1ezilp2yzkwj203302y0sn.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3926019926548369" target="freeweibo-mirror">SPAM //@光头凡子新号:一下蹦出这么多狗来咬老杨。这个…</a>
 </h2>
