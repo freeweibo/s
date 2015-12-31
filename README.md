@@ -78,7 +78,7 @@
 </h2>
 <p>端传媒:周的秘密情感世界 摘要<br><img src="http://ww1.sinaimg.cn/large/61b94ae3jw1ezimfpu8i9j20f07ps7wh.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3926049953955707" target="freeweibo-mirror">SPAM 元旦国庆建军节儿童节愚人节劳动节 统统没有轻松愉快…</a>
 </h2>
