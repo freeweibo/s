@@ -74,6 +74,12 @@
 <p>
 	<small> ============== 11小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3926152407871739" target="freeweibo-mirror">【军改第一刀 6の戒严部队 27军被裁】这一只是历史悠久的部…</a>
+</h2>
+<p>【军改第一刀 6の戒严部队 27军被裁】这一只是历史悠久的部队，前身是华东野战军第9纵，许世友任司令；后改编为第27军，军长聂凤智，参加攻佔上海战斗。1950年后入朝鲜参加韩战，击溃美军「北极熊团」。近年最为人熟悉的，则是在1987年参加对越南的老山战役，及1989年参与北京6の的戒严行动。<br><img src="http://ww1.sinaimg.cn/large/006eicf2gw1ezixfskdp3j30hs0dbgmx.jpg"></p>
+<p>
+	<small> ============== 12小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3926148385816362" target="freeweibo-mirror">【浦志强案：党治，而非法治】纽约大学法学院教授孔杰荣：浦志强…</a>
 </h2>
 <p>【浦志强案：党治，而非法治】纽约大学法学院教授孔杰荣：浦志强案是中国司法现实的最新例证——虽然一般性的立法和司法政策层面出现了一些进步，但在实践中，政治犯仍面临着不公的审判。http://t.cn/R4M59uB<br><img src="http://ww1.sinaimg.cn/large/6538fd8cjw1ezix0wubv8j20go09ewf2.jpg"></p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3926019926548369" target="freeweibo-mirror">SPAM //@光头凡子新号:一下蹦出这么多狗来咬老杨。这个…</a>
 </h2>
 <p>SPAM //@光头凡子新号:一下蹦出这么多狗来咬老杨。这个万恶的奴才国家。<br><br>RE: 作者把這幅漫畫的主題寫成了三個字：倒車鍵。寓意深長哦。希望歷史不會開倒車，歷史肯定開不了倒車，即使真的開了倒車，相信也走不遠。<br><img src="http://ww4.sinaimg.cn/large/5937c055jw1ezi6ee5veqj20fr0m8mzx.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3926017170754894" target="freeweibo-mirror">SPAM //@淮州府尹:感谢美帝，让某有关国家还有个约束。</a>
-</h2>
-<p>SPAM //@淮州府尹:感谢美帝，让某有关国家还有个约束。<br><br>RE: 网传令完成出卖了中国[抓狂][抓狂] http://t.cn/R4I6xtz<br><img src="http://ww3.sinaimg.cn/large/006kgA2pjw1ezibm54gtdj30f00qoq8a.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
