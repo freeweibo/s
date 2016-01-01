@@ -48,7 +48,7 @@
 </h2>
 <p>[哈哈]这技术这版本 //@啸啸愤蹄://@求实杂志V://@雁塔小木屋4://@LoveTrust哩: //@我是个种田的乡下人: [笑cry] //@一个老人日记_87695:小西子，你火了。//@郑州风雨无阻垃圾清运有限公司: //@晨花蜜蜂和钓者://@一个老人日记_87695:转发微博<br><br>RE: 马上中华民国105年，一起祝福祖国繁荣昌盛！以后还请多多关照！一起为中华大地上唯一的一块净土祷告！愿天佑中华民国！ http://t.cn/R2Wxpfe<br><img src="http://ww2.sinaimg.cn/large/006cJD1Sgw1ezj5dtbsqhj30dw06w0t0.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3926300777518135" target="freeweibo-mirror">//@戴和平律师:天下不识君，冰心在玉壶？//@笨笨an: …</a>
 </h2>
