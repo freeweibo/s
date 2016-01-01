@@ -48,7 +48,7 @@
 </h2>
 <p>//@会民他大爷://@红色延安K:转发微博<br><br>RE: 【一直在模仿，从未被超越】 刁杂在生活会上点名薄公，告诫大家要注意生活作风，真是不知羞耻，论廉洁，你不如人家、论能力，你不如人家、论人品，你不如人家、论威信、论德性、论思想、政绩……论什么你都不如人家，真不要脸！你唯一比他玩的高的是阴谋！杂z<br><img src="http://ww4.sinaimg.cn/large/006itvjlgw1eziqhrvzymj30c80ilwft.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3926357983604619" target="freeweibo-mirror">[哈哈]这技术这版本 //@啸啸愤蹄://@求实杂志V://…</a>
 </h2>
