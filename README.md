@@ -30,7 +30,7 @@
 </h2>
 <p>//@蒋祖权评论://@乡村骑士: //@郝劲松:仍需努力<br><br>RE: 中国人权律师团新年献词，让人热血沸腾的文字 http://t.cn/R4xAnx1<br><img src="http://ww3.sinaimg.cn/large/a9c7e7a9gw1ezjaqwjt6nj20k0gykkjm.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3926429467267868" target="freeweibo-mirror">[偷笑]//@特威克尔说:卧槽强烈推进啊强烈推荐啊！！！琅琊…</a>
 </h2>
