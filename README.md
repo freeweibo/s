@@ -24,7 +24,7 @@
 </h2>
 <p>//@bjbj125: //@趙家人吶: 「我就不信趙家那一套。」——胡適早就看穿「趙家人」//@网易文翰:转发微博</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3926633403081871" target="freeweibo-mirror">SPAM 机车少女。</a>
 </h2>
