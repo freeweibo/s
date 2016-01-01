@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3926567162309184" target="freeweibo-mirror">回复@似水流年-成都:你就是这样看待别人的理想信念的？没有理…</a>
+</h2>
+<p>回复@似水流年-成都:你就是这样看待别人的理想信念的？没有理想的人真可怜！ //@似水流年-成都:神经病<br><br>RE: 我不相信中国共产党的党中央会走资本主义道路，所以走资本主义道路的所谓党中央，我决不与其看齐，绝不同流合污。我是毛主席缔造并领导的消灭私有制并对资产阶级全面专政的中国共产党党员，一切背叛中国革命的行为都是我反对的！走资本主义道路的所谓党中央，是资产阶级政党，不是中国共产党，是假共！</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3926509880647018" target="freeweibo-mirror">//@爷们正义记者: //@珠海小漁女:挖好穴了？//@一界…</a>
 </h2>
 <p>//@爷们正义记者: //@珠海小漁女:挖好穴了？//@一界草医:转发微博</p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3926267873175714" target="freeweibo-mirror">中国人权律师团新年献词，让人热血沸腾的文字 http://t…</a>
 </h2>
 <p>中国人权律师团新年献词，让人热血沸腾的文字 http://t.cn/R4xAnx1<br><img src="http://ww3.sinaimg.cn/large/a9c7e7a9gw1ezjaqwjt6nj20k0gykkjm.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3926257886168784" target="freeweibo-mirror">帮扩！顺便说下喜欢你们的穿搭[害羞]</a>
-</h2>
-<p>帮扩！顺便说下喜欢你们的穿搭[害羞]</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
