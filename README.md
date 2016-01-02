@@ -96,13 +96,13 @@
 </h2>
 <p>香港铜锣湾禁书书店相关人等全部消失<br><img src="http://ww4.sinaimg.cn/large/61b94ae3jw1ezlajl9yi0j20fs6ehx66.jpg"></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3926892694611765" target="freeweibo-mirror">这个笑话我给110分，10分属于附加分。</a>
 </h2>
 <p>这个笑话我给110分，10分属于附加分。<br><img src="http://ww1.sinaimg.cn/large/a90c3530gw1ezlai9zhulj20f00qomzk.jpg"></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3926883206699312" target="freeweibo-mirror">SPAM  http://t.cn/R4i4pFb //@杭…</a>
 </h2>
@@ -126,7 +126,7 @@
 </h2>
 <p>SPAM 哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈 //@谷大白话:那 仪 物！ //@三俗师:这个蛤膜的给满分了 //@培根吐司猪肉蛋:别以为我们看不懂hhhhhhh<br><br>RE: 这个笑话我根本没有看懂！<br><img src="http://ww2.sinaimg.cn/large/006cxPuGgw1ezl74vfxdxj30u01hcjvs.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3926876965354873" target="freeweibo-mirror">SPAM [喵喵]//@谷大白话: 那 仪 物！ //@三俗…</a>
 </h2>
