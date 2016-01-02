@@ -132,7 +132,7 @@
 </h2>
 <p>SPAM [喵喵]//@谷大白话: 那 仪 物！ //@三俗师:这个蛤膜的给满分了 //@培根吐司猪肉蛋:别以为我们看不懂hhhhhhh<br><br>RE: 这个笑话我根本没有看懂！<br><img src="http://ww2.sinaimg.cn/large/006cxPuGgw1ezl74vfxdxj30u01hcjvs.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3926864587962654" target="freeweibo-mirror">SPAM 坏了，股侠发现财经界已经不给股侠排名了，给归类到文…</a>
 </h2>
