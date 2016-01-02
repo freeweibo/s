@@ -54,11 +54,17 @@
 </h2>
 <p>图片评论 呵呵 http://t.cn/R4i5Gy8</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3926897601314578" target="freeweibo-mirror">【银川日报：银川市区28个派出所统一安装阿拉伯语指示路牌】转…</a>
 </h2>
 <p>【银川日报：银川市区28个派出所统一安装阿拉伯语指示路牌】转载自@陇右良家子 的微博。想问一下，阿拉伯语算啥玩意，是哪个少数民族的语言。上面那英语也不好吧，你们呢银川是个殖民地嘛。<br><img src="http://ww3.sinaimg.cn/large/53ae0b70jw1ezlb2iwlgkj20ax0gojtq.jpg"></p>
+<p>
+	<small> ============== 6小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3926893176633915" target="freeweibo-mirror">香港铜锣湾禁书书店相关人等全部消失</a>
+</h2>
+<p>香港铜锣湾禁书书店相关人等全部消失<br><img src="http://ww4.sinaimg.cn/large/61b94ae3jw1ezlajl9yi0j20fs6ehx66.jpg"></p>
 <p>
 	<small> ============== 6小时前</small>
 </p><h2>
@@ -114,7 +120,7 @@
 </h2>
 <p>当年，即便是攻陷了日本法西斯本土，也不能如此沦丧人性啊。<br><br>RE: 龙应台在《大江大海1949》写道：1945年日本兵败退出东北，苏联红军以胜利者身份进城，在东北抢劫百姓财物，烧毁民宅，滥杀无辜，强奸妇女，女性均无奈剃光头穿男装才敢上街。所谓的救赎者完全是恐怖分子，而第一时间在长春沈阳竖起的纪念碑上却刻着“苏军烈士永垂不朽”，落款是“长春市各界人士”。</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3926791464889633" target="freeweibo-mirror">看实录，法庭连举证举在庭上都做不到。 //@陈有西:李庄案是…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3926718605180416" target="freeweibo-mirror">一魚兩吃，就是這麼回事！</a>
 </h2>
 <p>一魚兩吃，就是這麼回事！<br><br>RE: 转：每天都有贪官被抓消息，都能听到贪官贪了多少亿，这本来是很丢人的事，可有人竟然不以为耻反以为荣，说“这反映了党中央反腐的巨大决心”，“显示了优越性”。呸！如果你家天天能打出很多苍蝇，而我家一只苍蝇都看不到，难道你家比我家卫生？你家明明是个滋生苍蝇的粪坑，却自比花园，你太恶心了！<br><img src="http://ww2.sinaimg.cn/large/53bd81b0jw1ezjy2zpsxrj20k70hsmyo.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3926650645423864" target="freeweibo-mirror">//@bjbj125: //@趙家人吶: 「我就不信趙家那一…</a>
-</h2>
-<p>//@bjbj125: //@趙家人吶: 「我就不信趙家那一套。」——胡適早就看穿「趙家人」//@网易文翰:转发微博</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
