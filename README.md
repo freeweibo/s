@@ -54,7 +54,7 @@
 </h2>
 <p>《最高法：贪污受贿亿元一般判死缓》- @财经网 -最高人民法院日前出台了《关于重大贪污受贿犯罪案件量刑意见》提出对重大贪污、受贿犯罪案件裁量决定刑罚，“要严格控制慎用死刑，一般不判处死刑立即执行”，其中，“贪污、受贿数额一亿元以上的，一般判处死刑缓期二年执行”。 http://t.cn/R4ixGAU</p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3926925032075058" target="freeweibo-mirror">SPAM 分享 @张杰 @Karen莫文蔚 http://t…</a>
 </h2>
@@ -96,13 +96,13 @@
 </h2>
 <p>香港铜锣湾禁书书店相关人等全部消失<br><img src="http://ww4.sinaimg.cn/large/61b94ae3jw1ezlajl9yi0j20fs6ehx66.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3926892694611765" target="freeweibo-mirror">这个笑话我给110分，10分属于附加分。</a>
 </h2>
 <p>这个笑话我给110分，10分属于附加分。<br><img src="http://ww1.sinaimg.cn/large/a90c3530gw1ezlai9zhulj20f00qomzk.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3926883206699312" target="freeweibo-mirror">SPAM  http://t.cn/R4i4pFb //@杭…</a>
 </h2>
