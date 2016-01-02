@@ -24,7 +24,7 @@
 </h2>
 <p>张衡哭了 //@赵老希:转发微博</p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3926964584519677" target="freeweibo-mirror">//@简阅:这条法律实在看不懂。//@王辰th: 法律不代表…</a>
 </h2>
@@ -84,7 +84,7 @@
 </h2>
 <p>图片评论 呵呵 http://t.cn/R4i5Gy8</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3926897601314578" target="freeweibo-mirror">【银川日报：银川市区28个派出所统一安装阿拉伯语指示路牌】转…</a>
 </h2>
