@@ -120,7 +120,7 @@
 </h2>
 <p>SPAM 哈哈，博大精深。 //@胥柏波:卧槽。。 //@丹青丹青王:卧槽。，，(/"≡ _ ≡)/~┴┴ //@谷大白话:那 仪 物！ //@三俗师:这个蛤膜的给满分了 //@培根吐司猪肉蛋:别以为我们看不懂hhhhhhh<br><br>RE: 这个笑话我根本没有看懂！<br><img src="http://ww2.sinaimg.cn/large/006cxPuGgw1ezl74vfxdxj30u01hcjvs.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3926877519303648" target="freeweibo-mirror">SPAM 哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈 //@谷大白…</a>
 </h2>
