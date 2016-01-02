@@ -26,6 +26,12 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3926914693757279" target="freeweibo-mirror">SPAM //@小狗ta爸: //@浩正刘臻:最右可以入刑了…</a>
+</h2>
+<p>SPAM //@小狗ta爸: //@浩正刘臻:最右可以入刑了，法盲！//@李佳佳Audrey: 我现在在广州中环广场，等着你，别怂 //@小爷铭哥:本来是准备强奸PO主的，但既然这么说，我觉得奸杀更合适点<br><br>RE: “我将罚现场每一个人缴纳50美分。原因是，在我们居住的城市，竟然有一个老太太要因为孙子挨饿而去偷窃面包。”一个人为钱犯罪，这个人有罪;一个人为面包犯罪，这个社会有罪；一个人为尊严犯罪，世人都有罪。 http://t.cn/R4J9vcB</p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3926904605806495" target="freeweibo-mirror">图片评论 呵呵 http://t.cn/R4i5Gy8</a>
 </h2>
 <p>图片评论 呵呵 http://t.cn/R4i5Gy8</p>
@@ -54,7 +60,7 @@
 </h2>
 <p>SPAM 哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈 //@谷大白话:那 仪 物！ //@三俗师:这个蛤膜的给满分了 //@培根吐司猪肉蛋:别以为我们看不懂hhhhhhh<br><br>RE: 这个笑话我根本没有看懂！<br><img src="http://ww2.sinaimg.cn/large/006cxPuGgw1ezl74vfxdxj30u01hcjvs.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3926876965354873" target="freeweibo-mirror">SPAM [喵喵]//@谷大白话: 那 仪 物！ //@三俗…</a>
 </h2>
@@ -72,7 +78,7 @@
 </h2>
 <p>这个笑话我根本没有看懂！<br><img src="http://ww2.sinaimg.cn/large/006cxPuGgw1ezl74vfxdxj30u01hcjvs.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3926809479240067" target="freeweibo-mirror">那是你不懂历史。沙俄占的领土不等于苏联占的，蒋介石用外蒙换回…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3926564171882605" target="freeweibo-mirror">[威武][给力][赞]</a>
 </h2>
 <p>[威武][给力][赞]<br><br>RE: 我不相信中国共产党的党中央会走资本主义道路，所以走资本主义道路的所谓党中央，我决不与其看齐，绝不同流合污。我是毛主席缔造并领导的消灭私有制并对资产阶级全面专政的中国共产党党员，一切背叛中国革命的行为都是我反对的！走资本主义道路的所谓党中央，是资产阶级政党，不是中国共产党，是假共！</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3926509880647018" target="freeweibo-mirror">//@爷们正义记者: //@珠海小漁女:挖好穴了？//@一界…</a>
-</h2>
-<p>//@爷们正义记者: //@珠海小漁女:挖好穴了？//@一界草医:转发微博</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
