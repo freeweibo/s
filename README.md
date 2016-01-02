@@ -54,7 +54,7 @@
 </h2>
 <p>SPAM 哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈 //@谷大白话:那 仪 物！ //@三俗师:这个蛤膜的给满分了 //@培根吐司猪肉蛋:别以为我们看不懂hhhhhhh<br><br>RE: 这个笑话我根本没有看懂！<br><img src="http://ww2.sinaimg.cn/large/006cxPuGgw1ezl74vfxdxj30u01hcjvs.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3926876965354873" target="freeweibo-mirror">SPAM [喵喵]//@谷大白话: 那 仪 物！ //@三俗…</a>
 </h2>
@@ -72,7 +72,7 @@
 </h2>
 <p>这个笑话我根本没有看懂！<br><img src="http://ww2.sinaimg.cn/large/006cxPuGgw1ezl74vfxdxj30u01hcjvs.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3926809479240067" target="freeweibo-mirror">那是你不懂历史。沙俄占的领土不等于苏联占的，蒋介石用外蒙换回…</a>
 </h2>
