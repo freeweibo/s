@@ -66,7 +66,7 @@
 </h2>
 <p>台湾同胞怎么看？ //@章诒和:不意外：想抓你，抓你。想禁你，禁你。<br><br>RE: 香港铜锣湾禁书书店相关人等全部消失<br><img src="http://ww4.sinaimg.cn/large/61b94ae3jw1ezlajl9yi0j20fs6ehx66.jpg"></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3926914693757279" target="freeweibo-mirror">SPAM //@小狗ta爸: //@浩正刘臻:最右可以入刑了…</a>
 </h2>
