@@ -24,7 +24,7 @@
 </h2>
 <p>看实录，法庭连举证举在庭上都做不到。 //@陈有西:李庄案是检验最高法院、重庆市委有没有回到实事求是路线上来的一个标志。一切宣传口号都没有用。六年现实，乱象丛生。//@h88888888888888888：值得反思的是．．至今不能洗冤，当时配合薄王制造一系列冤案的那些人也无一公开悔过。说明权力依然至上。</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3926718605180416" target="freeweibo-mirror">一魚兩吃，就是這麼回事！</a>
 </h2>
@@ -42,7 +42,7 @@
 </h2>
 <p>SPAM 机车少女。<br><img src="http://ww4.sinaimg.cn/large/6e84a15ejw1ezkgpyo4zcj20zk0nqq8r.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3926567162309184" target="freeweibo-mirror">回复@似水流年-成都:你就是这样看待别人的理想信念的？没有理…</a>
 </h2>
