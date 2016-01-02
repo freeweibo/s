@@ -48,7 +48,7 @@
 </h2>
 <p>有法可依有法必依！ //@寒江钓雪8://@陈光武律师:《关于重大贪污受贿犯罪案件量刑意见》：贪污、受贿一亿元以上一般判死缓 //@律师文摘: //@临沂老徐: 这是在鼓励贪官们放开手脚大干的节操吗？？？ //@深夜走过长安街001:骂得好！ //@黑子哥不白: 我操你妈逼，这不是鼓励贪官吗？</p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3926946310058337" target="freeweibo-mirror">《最高法：贪污受贿亿元一般判死缓》- @财经网 -最高人民法…</a>
 </h2>
@@ -108,7 +108,7 @@
 </h2>
 <p>SPAM  http://t.cn/R4i4pFb //@杭之冯玥均建国后成精: 哈哈哈哈哈哈<br><br>RE: 这个笑话我根本没有看懂！<br><img src="http://ww2.sinaimg.cn/large/006cxPuGgw1ezl74vfxdxj30u01hcjvs.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3926881541799794" target="freeweibo-mirror">SPAM 哈哈哈哈哈哈</a>
 </h2>
