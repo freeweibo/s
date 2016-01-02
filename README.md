@@ -54,7 +54,7 @@
 </h2>
 <p>SPAM 分享 @张杰 @Karen莫文蔚 http://t.cn/Ryh6ecv</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3926918682078898" target="freeweibo-mirror">台湾同胞怎么看？ //@章诒和:不意外：想抓你，抓你。想禁你…</a>
 </h2>
@@ -72,7 +72,7 @@
 </h2>
 <p>这是为了反恐报警方便吧。说实话，咱们反恐怖，不应该扩大化反对穆斯林，也不该反阿拉伯，叙利亚伊拉克的政府军也是阿拉伯穆斯林，萨达姆卡扎菲也是。<br><br>RE: 【银川日报：银川市区28个派出所统一安装阿拉伯语指示路牌】转载自@陇右良家子 的微博。想问一下，阿拉伯语算啥玩意，是哪个少数民族的语言。上面那英语也不好吧，你们呢银川是个殖民地嘛。<br><img src="http://ww3.sinaimg.cn/large/53ae0b70jw1ezlb2iwlgkj20ax0gojtq.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3926904605806495" target="freeweibo-mirror">图片评论 呵呵 http://t.cn/R4i5Gy8</a>
 </h2>
@@ -108,7 +108,7 @@
 </h2>
 <p>SPAM 哈哈，博大精深。 //@胥柏波:卧槽。。 //@丹青丹青王:卧槽。，，(/"≡ _ ≡)/~┴┴ //@谷大白话:那 仪 物！ //@三俗师:这个蛤膜的给满分了 //@培根吐司猪肉蛋:别以为我们看不懂hhhhhhh<br><br>RE: 这个笑话我根本没有看懂！<br><img src="http://ww2.sinaimg.cn/large/006cxPuGgw1ezl74vfxdxj30u01hcjvs.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3926877519303648" target="freeweibo-mirror">SPAM 哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈 //@谷大白…</a>
 </h2>
@@ -126,7 +126,7 @@
 </h2>
 <p>SPAM 坏了，股侠发现财经界已经不给股侠排名了，给归类到文艺界了[doge][疑问]</p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3926863359931087" target="freeweibo-mirror">这个笑话我根本没有看懂！</a>
 </h2>
