@@ -138,7 +138,7 @@
 </h2>
 <p>SPAM 新年快乐！香蕉万岁！<br><img src="http://ww1.sinaimg.cn/large/65b076a2gw1ezjcvwl0ugj20qq0hsq4z.jpg"></p>
 <p>
-	<small> ============== 1天前</small>
+	<small> ============== 2天前</small>
 </p>
 <table>
     <tr>
