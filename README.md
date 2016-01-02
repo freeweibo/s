@@ -32,17 +32,23 @@
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3926736708522833" target="freeweibo-mirror">龙应台在《大江大海1949》写道：1945年日本兵败退出东北…</a>
+</h2>
+<p>龙应台在《大江大海1949》写道：1945年日本兵败退出东北，苏联红军以胜利者身份进城，在东北抢劫百姓财物，烧毁民宅，滥杀无辜，强奸妇女，女性均无奈剃光头穿男装才敢上街。所谓的救赎者完全是恐怖分子，而第一时间在长春沈阳竖起的纪念碑上却刻着“苏军烈士永垂不朽”，落款是“长春市各界人士”。</p>
+<p>
+	<small> ============== 6小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3926718605180416" target="freeweibo-mirror">一魚兩吃，就是這麼回事！</a>
 </h2>
 <p>一魚兩吃，就是這麼回事！<br><br>RE: 转：每天都有贪官被抓消息，都能听到贪官贪了多少亿，这本来是很丢人的事，可有人竟然不以为耻反以为荣，说“这反映了党中央反腐的巨大决心”，“显示了优越性”。呸！如果你家天天能打出很多苍蝇，而我家一只苍蝇都看不到，难道你家比我家卫生？你家明明是个滋生苍蝇的粪坑，却自比花园，你太恶心了！<br><img src="http://ww2.sinaimg.cn/large/53bd81b0jw1ezjy2zpsxrj20k70hsmyo.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3926650645423864" target="freeweibo-mirror">//@bjbj125: //@趙家人吶: 「我就不信趙家那一…</a>
 </h2>
 <p>//@bjbj125: //@趙家人吶: 「我就不信趙家那一套。」——胡適早就看穿「趙家人」//@网易文翰:转发微博</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3926633403081871" target="freeweibo-mirror">SPAM 机车少女。</a>
 </h2>
@@ -133,12 +139,6 @@
 <p>//@一只博://@五哥放羊40: //@未得糊涂: //@潘叔自强: @luckwds @兰园日记2 新年好 //@笨笨an:什么信号？//@晓雨闻铃:难言之隐一裁了之？//@汉水古君:番号，连同罪恶一并抹去。</p>
 <p>
 	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3926286638394251" target="freeweibo-mirror">SPAM 新年快乐！香蕉万岁！</a>
-</h2>
-<p>SPAM 新年快乐！香蕉万岁！<br><img src="http://ww1.sinaimg.cn/large/65b076a2gw1ezjcvwl0ugj20qq0hsq4z.jpg"></p>
-<p>
-	<small> ============== 2天前</small>
 </p>
 <table>
     <tr>
