@@ -60,7 +60,7 @@
 </h2>
 <p>【银川日报：银川市区28个派出所统一安装阿拉伯语指示路牌】转载自@陇右良家子 的微博。想问一下，阿拉伯语算啥玩意，是哪个少数民族的语言。上面那英语也不好吧，你们呢银川是个殖民地嘛。<br><img src="http://ww3.sinaimg.cn/large/53ae0b70jw1ezlb2iwlgkj20ax0gojtq.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3926893176633915" target="freeweibo-mirror">香港铜锣湾禁书书店相关人等全部消失</a>
 </h2>
@@ -78,7 +78,7 @@
 </h2>
 <p>SPAM 哈哈哈哈哈哈<br><br>RE: 这个笑话我根本没有看懂！<br><img src="http://ww2.sinaimg.cn/large/006cxPuGgw1ezl74vfxdxj30u01hcjvs.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3926879256297697" target="freeweibo-mirror">SPAM 哈哈，博大精深。 //@胥柏波:卧槽。。 //@丹…</a>
 </h2>
