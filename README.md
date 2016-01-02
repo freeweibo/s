@@ -60,7 +60,7 @@
 </h2>
 <p>SPAM 分享 @张杰 @Karen莫文蔚 http://t.cn/Ryh6ecv</p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3926918682078898" target="freeweibo-mirror">台湾同胞怎么看？ //@章诒和:不意外：想抓你，抓你。想禁你…</a>
 </h2>
