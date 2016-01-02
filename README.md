@@ -66,7 +66,7 @@
 </h2>
 <p>香港铜锣湾禁书书店相关人等全部消失<br><img src="http://ww4.sinaimg.cn/large/61b94ae3jw1ezlajl9yi0j20fs6ehx66.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3926883206699312" target="freeweibo-mirror">SPAM  http://t.cn/R4i4pFb //@杭…</a>
 </h2>
@@ -108,7 +108,7 @@
 </h2>
 <p>这个笑话我根本没有看懂！<br><img src="http://ww2.sinaimg.cn/large/006cxPuGgw1ezl74vfxdxj30u01hcjvs.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3926809479240067" target="freeweibo-mirror">那是你不懂历史。沙俄占的领土不等于苏联占的，蒋介石用外蒙换回…</a>
 </h2>
