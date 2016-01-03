@@ -24,7 +24,7 @@
 </h2>
 <p>SPAM //@地产人范乐勇: 历史照进现实 //@刘力博士://@律师文摘:同一批种子，同一个梦想！//@当律师的陈刚: //@亮剑兄来了:[哈哈][哈哈][哈哈]//@DopeyTom: 同一个姓？//@云上的五花肉:[哈哈][哈哈][哈哈]</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3927253010188829" target="freeweibo-mirror">SPAM //@兔子老愚: 他们控制一切。//@锡林郭勒草原…</a>
 </h2>
@@ -72,7 +72,7 @@
 </h2>
 <p>【真理部】精赵、贵赵、赵家人、赵王、你国、你党等<br><img src="http://ww3.sinaimg.cn/large/45ed7dbbgw1ezm7kz1fwfj20jk0dadmn.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3927167605488379" target="freeweibo-mirror">转【五个凡是】：凡是稀里糊涂回答的，定是民生话题；凡是口气强…</a>
 </h2>
