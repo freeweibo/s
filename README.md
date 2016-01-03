@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3927152841726399" target="freeweibo-mirror">//@礼江美鱼: //@自民party丁力://@唔侬无季:…</a>
+</h2>
+<p>//@礼江美鱼: //@自民party丁力://@唔侬无季:[赞] //@任志强:[赞] //@王巍w: //@何兵: //@演员孙海英:学习了！[赞]<br><br>RE: 马克思在他生活的年代（19世纪）就参与了争取言论自由出版自由的斗争，有专论批判普鲁士的书报检查制度。时间之轮已经转到21世纪，中国人民还在争取这个权利，尽管我们的主流意识形态是马克思主义，我们的宪法中也早就有了言论自由和出版自由的条款。李银河公众号已推送：审查制度的要害是害怕真相。</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3926972973259130" target="freeweibo-mirror">张衡哭了 //@赵老希:转发微博</a>
 </h2>
 <p>张衡哭了 //@赵老希:转发微博</p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3926876965354873" target="freeweibo-mirror">SPAM [喵喵]//@谷大白话: 那 仪 物！ //@三俗…</a>
 </h2>
 <p>SPAM [喵喵]//@谷大白话: 那 仪 物！ //@三俗师:这个蛤膜的给满分了 //@培根吐司猪肉蛋:别以为我们看不懂hhhhhhh<br><br>RE: 这个笑话我根本没有看懂！<br><img src="http://ww2.sinaimg.cn/large/006cxPuGgw1ezl74vfxdxj30u01hcjvs.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3926864587962654" target="freeweibo-mirror">SPAM 坏了，股侠发现财经界已经不给股侠排名了，给归类到文…</a>
-</h2>
-<p>SPAM 坏了，股侠发现财经界已经不给股侠排名了，给归类到文艺界了[doge][疑问]</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
