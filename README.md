@@ -66,7 +66,7 @@
 </h2>
 <p>SPAM 这，我给100分！<br><br>RE: #不按常规秀#一个大写的霸气！！！！！！！ http://t.cn/R4iIyW5 .</p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3927180708520360" target="freeweibo-mirror">【真理部】精赵、贵赵、赵家人、赵王、你国、你党等</a>
 </h2>
