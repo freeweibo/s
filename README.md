@@ -48,7 +48,7 @@
 </h2>
 <p>[衰]//@禁言too: 公开党史//@50年矛苔:谣言一一遥遥领先的预言。//@宁做负心人1981：什么该问？什么不该问？</p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3927291224959105" target="freeweibo-mirror">//@朝野观察: [哈哈]//@东风落云Q: //@章文的文…</a>
 </h2>
@@ -114,13 +114,13 @@
 </h2>
 <p>【网军同志们起床备战了】铜锣湾政治禁书店员失踪，引起国际黑客组织Anonymous关注。他们最新在youtube挂出的视频声称要对中共网站进行攻击。<br><img src="http://ww2.sinaimg.cn/large/6d0b6b33gw1ezmf2kn271j20qo1bgn7l.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3927246231921883" target="freeweibo-mirror">SPAM //@京都探花:[good]//@浔阳女高音://…</a>
 </h2>
 <p>SPAM //@京都探花:[good]//@浔阳女高音://@sy漁夫:[话筒][喵喵][围观]//@神勇无敌大酱军://@爱卿礼身: //@霜叶14s-://@北疆观点://@天涯玖洲:第一次看到"五个凡是"？<br><br>RE: 转【五个凡是】：凡是稀里糊涂回答的，定是民生话题；凡是口气强硬回答的，定是围稳话题；凡是底气不足回答的，定是外交话题；凡是闪烁其词回答的，定是政改话题；凡是装聋作哑不回答的，定是三公消费和官员财产公开话题。 http://t.cn/R2Wiqld<br><img src="http://ww4.sinaimg.cn/large/55147e04gw1ezm62q2tnlj20d10fbmym.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3927215118646514" target="freeweibo-mirror">【 冗员正压垮中国财政 】 一方面税赋压力沉重，一方面财政捉…</a>
 </h2>
