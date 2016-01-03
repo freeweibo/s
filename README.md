@@ -54,13 +54,19 @@
 </h2>
 <p>【网军同志们起床备战了】铜锣湾政治禁书店员失踪，引起国际黑客组织Anonymous关注。他们最新在youtube挂出的视频声称要对中共网站进行攻击。<br><img src="http://ww2.sinaimg.cn/large/6d0b6b33gw1ezmf2kn271j20qo1bgn7l.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3927206361347269" target="freeweibo-mirror">SPAM 这，我给100分！</a>
 </h2>
 <p>SPAM 这，我给100分！<br><br>RE: #不按常规秀#一个大写的霸气！！！！！！！ http://t.cn/R4iIyW5 .</p>
 <p>
 	<small> ============== 5小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3927180708520360" target="freeweibo-mirror">【真理部】精赵、贵赵、赵家人、赵王、你国、你党等</a>
+</h2>
+<p>【真理部】精赵、贵赵、赵家人、赵王、你国、你党等<br><img src="http://ww3.sinaimg.cn/large/45ed7dbbgw1ezm7kz1fwfj20jk0dadmn.jpg"></p>
+<p>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3927158071993323" target="freeweibo-mirror">这就是和谐社会了。</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3926914693757279" target="freeweibo-mirror">SPAM //@小狗ta爸: //@浩正刘臻:最右可以入刑了…</a>
 </h2>
 <p>SPAM //@小狗ta爸: //@浩正刘臻:最右可以入刑了，法盲！//@李佳佳Audrey: 我现在在广州中环广场，等着你，别怂 //@小爷铭哥:本来是准备强奸PO主的，但既然这么说，我觉得奸杀更合适点<br><br>RE: “我将罚现场每一个人缴纳50美分。原因是，在我们居住的城市，竟然有一个老太太要因为孙子挨饿而去偷窃面包。”一个人为钱犯罪，这个人有罪;一个人为面包犯罪，这个社会有罪；一个人为尊严犯罪，世人都有罪。 http://t.cn/R4J9vcB</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3926909727962856" target="freeweibo-mirror">这是为了反恐报警方便吧。说实话，咱们反恐怖，不应该扩大化反对…</a>
-</h2>
-<p>这是为了反恐报警方便吧。说实话，咱们反恐怖，不应该扩大化反对穆斯林，也不该反阿拉伯，叙利亚伊拉克的政府军也是阿拉伯穆斯林，萨达姆卡扎菲也是。<br><br>RE: 【银川日报：银川市区28个派出所统一安装阿拉伯语指示路牌】转载自@陇右良家子 的微博。想问一下，阿拉伯语算啥玩意，是哪个少数民族的语言。上面那英语也不好吧，你们呢银川是个殖民地嘛。<br><img src="http://ww3.sinaimg.cn/large/53ae0b70jw1ezlb2iwlgkj20ax0gojtq.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
