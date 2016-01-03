@@ -86,6 +86,12 @@
 <p>
 	<small> ============== 1天前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3926908913335048" target="freeweibo-mirror">马克思在他生活的年代（19世纪）就参与了争取言论自由出版自由…</a>
+</h2>
+<p>马克思在他生活的年代（19世纪）就参与了争取言论自由出版自由的斗争，有专论批判普鲁士的书报检查制度。时间之轮已经转到21世纪，中国人民还在争取这个权利，尽管我们的主流意识形态是马克思主义，我们的宪法中也早就有了言论自由和出版自由的条款。李银河公众号已推送：审查制度的要害是害怕真相。</p>
+<p>
+	<small> ============== 1天前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3926904605806495" target="freeweibo-mirror">图片评论 呵呵 http://t.cn/R4i5Gy8</a>
 </h2>
 <p>图片评论 呵呵 http://t.cn/R4i5Gy8</p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3926877519303648" target="freeweibo-mirror">SPAM 哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈 //@谷大白…</a>
 </h2>
 <p>SPAM 哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈 //@谷大白话:那 仪 物！ //@三俗师:这个蛤膜的给满分了 //@培根吐司猪肉蛋:别以为我们看不懂hhhhhhh<br><br>RE: 这个笑话我根本没有看懂！<br><img src="http://ww2.sinaimg.cn/large/006cxPuGgw1ezl74vfxdxj30u01hcjvs.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3926876965354873" target="freeweibo-mirror">SPAM [喵喵]//@谷大白话: 那 仪 物！ //@三俗…</a>
-</h2>
-<p>SPAM [喵喵]//@谷大白话: 那 仪 物！ //@三俗师:这个蛤膜的给满分了 //@培根吐司猪肉蛋:别以为我们看不懂hhhhhhh<br><br>RE: 这个笑话我根本没有看懂！<br><img src="http://ww2.sinaimg.cn/large/006cxPuGgw1ezl74vfxdxj30u01hcjvs.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
