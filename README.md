@@ -48,7 +48,7 @@
 </h2>
 <p>回复@番茄蛋羹:恩恩，搬了板凳看大戏//@番茄蛋羹:来啊，战略支援部队等着祭旗呢<br><br>RE: 【网军同志们起床备战了】铜锣湾政治禁书店员失踪，引起国际黑客组织Anonymous关注。他们最新在youtube挂出的视频声称要对中共网站进行攻击。<br><img src="http://ww2.sinaimg.cn/large/6d0b6b33gw1ezmf2kn271j20qo1bgn7l.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3927246458806216" target="freeweibo-mirror">【网军同志们起床备战了】铜锣湾政治禁书店员失踪，引起国际黑客…</a>
 </h2>
@@ -84,7 +84,7 @@
 </h2>
 <p>这就是和谐社会了。<br><img src="http://ww3.sinaimg.cn/large/005GNQQQgw1ezm4zgvq9fj30go0go0ts.jpg"></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3927152841726399" target="freeweibo-mirror">//@礼江美鱼: //@自民party丁力://@唔侬无季:…</a>
 </h2>
