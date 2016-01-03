@@ -30,7 +30,7 @@
 </h2>
 <p>SPAM //@兔子老愚: 他们控制一切。//@锡林郭勒草原: [话筒]//@真妮花的蠔愛:[围观][围观][围观][围观][围观]<br><br>RE: 【真理部】精赵、贵赵、赵家人、赵王、你国、你党等<br><img src="http://ww3.sinaimg.cn/large/45ed7dbbgw1ezm7kz1fwfj20jk0dadmn.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3927249877560534" target="freeweibo-mirror">在香港卖几本官场小说，值得抓人毁店吗？你们的自信呢？</a>
 </h2>
