@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3927326762757400" target="freeweibo-mirror">可以不要走資派的党委书记。信奉毛泽东思想的党委书记，校长，系…</a>
+</h2>
+<p>可以不要走資派的党委书记。信奉毛泽东思想的党委书记，校长，系主任，政治指导员，应该配备齐全。不称职者立即罢免。这样才不会闹出卖国，汉奸，贪污，受贿，命案，通奸，………[笑哈哈][笑哈哈][笑哈哈][笑哈哈][笑哈哈][笑哈哈][笑哈哈][笑哈哈][笑哈哈][笑哈哈][笑哈哈][笑哈哈][笑哈哈][笑哈哈]<br><br>RE: 分享图片<br><img src="http://ww2.sinaimg.cn/large/e810de89jw1ezmgzpazt8j20hs0p50vo.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3927310203815876" target="freeweibo-mirror">日侵之处的繁荣……当年，满洲国可是全亚洲经济第一。长春原本就…</a>
 </h2>
 <p>日侵之处的繁荣……当年，满洲国可是全亚洲经济第一。长春原本就是个屯子，经日本人手蜕变至今，现在的台湾也是，日据时的遗迹一点都没破。德占的青岛和大连市容那块也真真的闪瞎眼。俄占的哈尔滨，上海的多国租界，经年建筑伫立不倒。当然，延安和临沂，苏北、井冈山，厄……也是装载着记忆。</p>
@@ -102,7 +108,7 @@
 </h2>
 <p>回复@番茄蛋羹:恩恩，搬了板凳看大戏//@番茄蛋羹:来啊，战略支援部队等着祭旗呢<br><br>RE: 【网军同志们起床备战了】铜锣湾政治禁书店员失踪，引起国际黑客组织Anonymous关注。他们最新在youtube挂出的视频声称要对中共网站进行攻击。<br><img src="http://ww2.sinaimg.cn/large/6d0b6b33gw1ezmf2kn271j20qo1bgn7l.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3927246458806216" target="freeweibo-mirror">【网军同志们起床备战了】铜锣湾政治禁书店员失踪，引起国际黑客…</a>
 </h2>
@@ -133,12 +139,6 @@
 <p>【真理部】精赵、贵赵、赵家人、赵王、你国、你党等<br><img src="http://ww3.sinaimg.cn/large/45ed7dbbgw1ezm7kz1fwfj20jk0dadmn.jpg"></p>
 <p>
 	<small> ============== 11小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3927167605488379" target="freeweibo-mirror">转【五个凡是】：凡是稀里糊涂回答的，定是民生话题；凡是口气强…</a>
-</h2>
-<p>转【五个凡是】：凡是稀里糊涂回答的，定是民生话题；凡是口气强硬回答的，定是围稳话题；凡是底气不足回答的，定是外交话题；凡是闪烁其词回答的，定是政改话题；凡是装聋作哑不回答的，定是三公消费和官员财产公开话题。 http://t.cn/R2Wiqld<br><img src="http://ww4.sinaimg.cn/large/55147e04gw1ezm62q2tnlj20d10fbmym.jpg"></p>
-<p>
-	<small> ============== 12小时前</small>
 </p>
 <table>
     <tr>
