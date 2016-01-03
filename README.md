@@ -44,6 +44,12 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3927246458806216" target="freeweibo-mirror">【网军同志们起床备战了】铜锣湾政治禁书店员失踪，引起国际黑客…</a>
+</h2>
+<p>【网军同志们起床备战了】铜锣湾政治禁书店员失踪，引起国际黑客组织Anonymous关注。他们最新在youtube挂出的视频声称要对中共网站进行攻击。<br><img src="http://ww2.sinaimg.cn/large/6d0b6b33gw1ezmf2kn271j20qo1bgn7l.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3927206361347269" target="freeweibo-mirror">SPAM 这，我给100分！</a>
 </h2>
 <p>SPAM 这，我给100分！<br><br>RE: #不按常规秀#一个大写的霸气！！！！！！！ http://t.cn/R4iIyW5 .</p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3926908913335048" target="freeweibo-mirror">马克思在他生活的年代（19世纪）就参与了争取言论自由出版自由…</a>
 </h2>
 <p>马克思在他生活的年代（19世纪）就参与了争取言论自由出版自由的斗争，有专论批判普鲁士的书报检查制度。时间之轮已经转到21世纪，中国人民还在争取这个权利，尽管我们的主流意识形态是马克思主义，我们的宪法中也早就有了言论自由和出版自由的条款。李银河公众号已推送：审查制度的要害是害怕真相。</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3926904605806495" target="freeweibo-mirror">图片评论 呵呵 http://t.cn/R4i5Gy8</a>
-</h2>
-<p>图片评论 呵呵 http://t.cn/R4i5Gy8</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
