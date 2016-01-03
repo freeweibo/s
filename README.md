@@ -60,13 +60,13 @@
 </h2>
 <p>【网军同志们起床备战了】铜锣湾政治禁书店员失踪，引起国际黑客组织Anonymous关注。他们最新在youtube挂出的视频声称要对中共网站进行攻击。<br><img src="http://ww2.sinaimg.cn/large/6d0b6b33gw1ezmf2kn271j20qo1bgn7l.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3927246231921883" target="freeweibo-mirror">SPAM //@京都探花:[good]//@浔阳女高音://…</a>
 </h2>
 <p>SPAM //@京都探花:[good]//@浔阳女高音://@sy漁夫:[话筒][喵喵][围观]//@神勇无敌大酱军://@爱卿礼身: //@霜叶14s-://@北疆观点://@天涯玖洲:第一次看到"五个凡是"？<br><br>RE: 转【五个凡是】：凡是稀里糊涂回答的，定是民生话题；凡是口气强硬回答的，定是围稳话题；凡是底气不足回答的，定是外交话题；凡是闪烁其词回答的，定是政改话题；凡是装聋作哑不回答的，定是三公消费和官员财产公开话题。 http://t.cn/R2Wiqld<br><img src="http://ww4.sinaimg.cn/large/55147e04gw1ezm62q2tnlj20d10fbmym.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3927206361347269" target="freeweibo-mirror">SPAM 这，我给100分！</a>
 </h2>
