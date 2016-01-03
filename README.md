@@ -30,19 +30,31 @@
 </h2>
 <p>在香港卖几本官场小说，值得抓人毁店吗？你们的自信呢？<br><br>RE: 【网军同志们起床备战了】铜锣湾政治禁书店员失踪，引起国际黑客组织Anonymous关注。他们最新在youtube挂出的视频声称要对中共网站进行攻击。<br><img src="http://ww2.sinaimg.cn/large/6d0b6b33gw1ezmf2kn271j20qo1bgn7l.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3927249424435752" target="freeweibo-mirror">回复@XaViBEN:我看了Anonymous的youtub…</a>
 </h2>
 <p>回复@XaViBEN:我看了Anonymous的youtube视频，是真的。不要问我YouTube是什么。//@XaViBEN:是不是苹果日报搞出来的假新闻[挖鼻][挖鼻]<br><br>RE: 【网军同志们起床备战了】铜锣湾政治禁书店员失踪，引起国际黑客组织Anonymous关注。他们最新在youtube挂出的视频声称要对中共网站进行攻击。<br><img src="http://ww2.sinaimg.cn/large/6d0b6b33gw1ezmf2kn271j20qo1bgn7l.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3927248296245794" target="freeweibo-mirror">回复@番茄蛋羹:恩恩，搬了板凳看大戏//@番茄蛋羹:来啊，战…</a>
+</h2>
+<p>回复@番茄蛋羹:恩恩，搬了板凳看大戏//@番茄蛋羹:来啊，战略支援部队等着祭旗呢<br><br>RE: 【网军同志们起床备战了】铜锣湾政治禁书店员失踪，引起国际黑客组织Anonymous关注。他们最新在youtube挂出的视频声称要对中共网站进行攻击。<br><img src="http://ww2.sinaimg.cn/large/6d0b6b33gw1ezmf2kn271j20qo1bgn7l.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3927206361347269" target="freeweibo-mirror">SPAM 这，我给100分！</a>
 </h2>
 <p>SPAM 这，我给100分！<br><br>RE: #不按常规秀#一个大写的霸气！！！！！！！ http://t.cn/R4iIyW5 .</p>
 <p>
 	<small> ============== 4小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3927158071993323" target="freeweibo-mirror">这就是和谐社会了。</a>
+</h2>
+<p>这就是和谐社会了。<br><img src="http://ww3.sinaimg.cn/large/005GNQQQgw1ezm4zgvq9fj30go0go0ts.jpg"></p>
+<p>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3927152841726399" target="freeweibo-mirror">//@礼江美鱼: //@自民party丁力://@唔侬无季:…</a>
 </h2>
@@ -125,18 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3926904605806495" target="freeweibo-mirror">图片评论 呵呵 http://t.cn/R4i5Gy8</a>
 </h2>
 <p>图片评论 呵呵 http://t.cn/R4i5Gy8</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3926897601314578" target="freeweibo-mirror">【银川日报：银川市区28个派出所统一安装阿拉伯语指示路牌】转…</a>
-</h2>
-<p>【银川日报：银川市区28个派出所统一安装阿拉伯语指示路牌】转载自@陇右良家子 的微博。想问一下，阿拉伯语算啥玩意，是哪个少数民族的语言。上面那英语也不好吧，你们呢银川是个殖民地嘛。<br><img src="http://ww3.sinaimg.cn/large/53ae0b70jw1ezlb2iwlgkj20ax0gojtq.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3926893176633915" target="freeweibo-mirror">香港铜锣湾禁书书店相关人等全部消失</a>
-</h2>
-<p>香港铜锣湾禁书书店相关人等全部消失<br><img src="http://ww4.sinaimg.cn/large/61b94ae3jw1ezlajl9yi0j20fs6ehx66.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
