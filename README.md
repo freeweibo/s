@@ -24,7 +24,7 @@
 </h2>
 <p>可以不要走資派的党委书记。信奉毛泽东思想的党委书记，校长，系主任，政治指导员，应该配备齐全。不称职者立即罢免。这样才不会闹出卖国，汉奸，贪污，受贿，命案，通奸，………[笑哈哈][笑哈哈][笑哈哈][笑哈哈][笑哈哈][笑哈哈][笑哈哈][笑哈哈][笑哈哈][笑哈哈][笑哈哈][笑哈哈][笑哈哈][笑哈哈]<br><br>RE: 分享图片<br><img src="http://ww2.sinaimg.cn/large/e810de89jw1ezmgzpazt8j20hs0p50vo.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3927310203815876" target="freeweibo-mirror">日侵之处的繁荣……当年，满洲国可是全亚洲经济第一。长春原本就…</a>
 </h2>
@@ -132,7 +132,7 @@
 </h2>
 <p>SPAM 这，我给100分！<br><br>RE: #不按常规秀#一个大写的霸气！！！！！！！ http://t.cn/R4iIyW5 .</p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3927180708520360" target="freeweibo-mirror">【真理部】精赵、贵赵、赵家人、赵王、你国、你党等</a>
 </h2>
