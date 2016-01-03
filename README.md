@@ -48,11 +48,17 @@
 </h2>
 <p>回复@番茄蛋羹:恩恩，搬了板凳看大戏//@番茄蛋羹:来啊，战略支援部队等着祭旗呢<br><br>RE: 【网军同志们起床备战了】铜锣湾政治禁书店员失踪，引起国际黑客组织Anonymous关注。他们最新在youtube挂出的视频声称要对中共网站进行攻击。<br><img src="http://ww2.sinaimg.cn/large/6d0b6b33gw1ezmf2kn271j20qo1bgn7l.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3927246458806216" target="freeweibo-mirror">【网军同志们起床备战了】铜锣湾政治禁书店员失踪，引起国际黑客…</a>
 </h2>
 <p>【网军同志们起床备战了】铜锣湾政治禁书店员失踪，引起国际黑客组织Anonymous关注。他们最新在youtube挂出的视频声称要对中共网站进行攻击。<br><img src="http://ww2.sinaimg.cn/large/6d0b6b33gw1ezmf2kn271j20qo1bgn7l.jpg"></p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3927246231921883" target="freeweibo-mirror">SPAM //@京都探花:[good]//@浔阳女高音://…</a>
+</h2>
+<p>SPAM //@京都探花:[good]//@浔阳女高音://@sy漁夫:[话筒][喵喵][围观]//@神勇无敌大酱军://@爱卿礼身: //@霜叶14s-://@北疆观点://@天涯玖洲:第一次看到"五个凡是"？<br><br>RE: 转【五个凡是】：凡是稀里糊涂回答的，定是民生话题；凡是口气强硬回答的，定是围稳话题；凡是底气不足回答的，定是外交话题；凡是闪烁其词回答的，定是政改话题；凡是装聋作哑不回答的，定是三公消费和官员财产公开话题。 http://t.cn/R2Wiqld<br><img src="http://ww4.sinaimg.cn/large/55147e04gw1ezm62q2tnlj20d10fbmym.jpg"></p>
 <p>
 	<small> ============== 4小时前</small>
 </p><h2>
@@ -72,7 +78,7 @@
 </h2>
 <p>这就是和谐社会了。<br><img src="http://ww3.sinaimg.cn/large/005GNQQQgw1ezm4zgvq9fj30go0go0ts.jpg"></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3927152841726399" target="freeweibo-mirror">//@礼江美鱼: //@自民party丁力://@唔侬无季:…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3926918682078898" target="freeweibo-mirror">台湾同胞怎么看？ //@章诒和:不意外：想抓你，抓你。想禁你…</a>
 </h2>
 <p>台湾同胞怎么看？ //@章诒和:不意外：想抓你，抓你。想禁你，禁你。<br><br>RE: 香港铜锣湾禁书书店相关人等全部消失<br><img src="http://ww4.sinaimg.cn/large/61b94ae3jw1ezlajl9yi0j20fs6ehx66.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3926914693757279" target="freeweibo-mirror">SPAM //@小狗ta爸: //@浩正刘臻:最右可以入刑了…</a>
-</h2>
-<p>SPAM //@小狗ta爸: //@浩正刘臻:最右可以入刑了，法盲！//@李佳佳Audrey: 我现在在广州中环广场，等着你，别怂 //@小爷铭哥:本来是准备强奸PO主的，但既然这么说，我觉得奸杀更合适点<br><br>RE: “我将罚现场每一个人缴纳50美分。原因是，在我们居住的城市，竟然有一个老太太要因为孙子挨饿而去偷窃面包。”一个人为钱犯罪，这个人有罪;一个人为面包犯罪，这个社会有罪；一个人为尊严犯罪，世人都有罪。 http://t.cn/R4J9vcB</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
