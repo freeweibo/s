@@ -66,7 +66,7 @@
 </h2>
 <p>//@冷眼风云0001:这帮人不叫“冗员”。没有他们，掌声能这么热烈？情绪能这么安定么？//@东南西北都亮: //@北疆观点:行政改革是个什么涵义？<br><br>RE: 【 冗员正压垮中国财政 】 一方面税赋压力沉重，一方面财政捉襟见肘。政府的功能是降低社会成本而不是相反。冗员导致冗政，权力越位、错位、寻租和傲慢必然激化社会矛盾。大量在职和离职干部浪费了巨额财政和医疗资源，财政支出畸形化状况一直无法矫正。如果政治改革不能启动，那就必须启动行政改革。<br><img src="http://ww1.sinaimg.cn/large/4cfc228cgw1ezmbjc61zpj20b4084dgq.jpg"></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3927270739821829" target="freeweibo-mirror">//@金牛想一想://@章诒和://@荣剑2001: 谁能给…</a>
 </h2>
@@ -96,13 +96,13 @@
 </h2>
 <p>在香港卖几本官场小说，值得抓人毁店吗？你们的自信呢？<br><br>RE: 【网军同志们起床备战了】铜锣湾政治禁书店员失踪，引起国际黑客组织Anonymous关注。他们最新在youtube挂出的视频声称要对中共网站进行攻击。<br><img src="http://ww2.sinaimg.cn/large/6d0b6b33gw1ezmf2kn271j20qo1bgn7l.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3927249424435752" target="freeweibo-mirror">回复@XaViBEN:我看了Anonymous的youtub…</a>
 </h2>
 <p>回复@XaViBEN:我看了Anonymous的youtube视频，是真的。不要问我YouTube是什么。//@XaViBEN:是不是苹果日报搞出来的假新闻[挖鼻][挖鼻]<br><br>RE: 【网军同志们起床备战了】铜锣湾政治禁书店员失踪，引起国际黑客组织Anonymous关注。他们最新在youtube挂出的视频声称要对中共网站进行攻击。<br><img src="http://ww2.sinaimg.cn/large/6d0b6b33gw1ezmf2kn271j20qo1bgn7l.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3927248296245794" target="freeweibo-mirror">回复@番茄蛋羹:恩恩，搬了板凳看大戏//@番茄蛋羹:来啊，战…</a>
 </h2>
