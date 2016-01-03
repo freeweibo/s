@@ -74,6 +74,12 @@
 <p>
 	<small> ============== 8小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3927167605488379" target="freeweibo-mirror">转【五个凡是】：凡是稀里糊涂回答的，定是民生话题；凡是口气强…</a>
+</h2>
+<p>转【五个凡是】：凡是稀里糊涂回答的，定是民生话题；凡是口气强硬回答的，定是围稳话题；凡是底气不足回答的，定是外交话题；凡是闪烁其词回答的，定是政改话题；凡是装聋作哑不回答的，定是三公消费和官员财产公开话题。 http://t.cn/R2Wiqld<br><img src="http://ww4.sinaimg.cn/large/55147e04gw1ezm62q2tnlj20d10fbmym.jpg"></p>
+<p>
+	<small> ============== 9小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3927158071993323" target="freeweibo-mirror">这就是和谐社会了。</a>
 </h2>
 <p>这就是和谐社会了。<br><img src="http://ww3.sinaimg.cn/large/005GNQQQgw1ezm4zgvq9fj30go0go0ts.jpg"></p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3926925032075058" target="freeweibo-mirror">SPAM 分享 @张杰 @Karen莫文蔚 http://t…</a>
 </h2>
 <p>SPAM 分享 @张杰 @Karen莫文蔚 http://t.cn/Ryh6ecv</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3926918682078898" target="freeweibo-mirror">台湾同胞怎么看？ //@章诒和:不意外：想抓你，抓你。想禁你…</a>
-</h2>
-<p>台湾同胞怎么看？ //@章诒和:不意外：想抓你，抓你。想禁你，禁你。<br><br>RE: 香港铜锣湾禁书书店相关人等全部消失<br><img src="http://ww4.sinaimg.cn/large/61b94ae3jw1ezlajl9yi0j20fs6ehx66.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
