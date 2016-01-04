@@ -42,7 +42,7 @@
 </h2>
 <p>对于铜锣湾一间书店负责人怀疑失踪事件，行政长官梁振英表示他和特区政府高度关注，申明根据「一国两制」安排和《基本法》规定，只有香港执法人员有权在港执法。http://t.cn/R4X7XFK<br><img src="http://ww4.sinaimg.cn/large/9154fba0gw1eznko5jkt4j20hr0adgmc.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3927604878449534" target="freeweibo-mirror">【【铜锣湾书店失踪案】特首：内地人员在港执法违基本法 李太：…</a>
 </h2>
