@@ -30,7 +30,7 @@
 </h2>
 <p>从相关报道来看，五个失踪人应该都活着。//@礁石海水: 一连失踪好几个相关联的人，恐怖还是斩首行动？<br><br>RE: 对于铜锣湾一间书店负责人怀疑失踪事件，行政长官梁振英表示他和特区政府高度关注，申明根据「一国两制」安排和《基本法》规定，只有香港执法人员有权在港执法。http://t.cn/R4X7XFK<br><img src="http://ww4.sinaimg.cn/large/9154fba0gw1eznko5jkt4j20hr0adgmc.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3927608146106959" target="freeweibo-mirror">对于铜锣湾一间书店负责人怀疑失踪事件，行政长官梁振英表示他和…</a>
 </h2>
@@ -72,7 +72,7 @@
 </h2>
 <p>//@演员孙海英:一年前去法国尼斯，当地人告诉我：尼斯沿海风景最好的地方，都被俄国有钱人买去了！</p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3927505263658735" target="freeweibo-mirror">//@屌丝的极品前女友://@爱Baby的你1314://@…</a>
 </h2>
