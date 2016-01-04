@@ -60,7 +60,7 @@
 </h2>
 <p>不明白这条为毛0阅读？[喵喵]<br><img src="http://ww3.sinaimg.cn/large/006j4UEhgw1ezndw33vl2j30hs0vkzo9.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3927543947986184" target="freeweibo-mirror">什么意思？赵家就是将镰刀斧头赶走的意思？那赵家岂不成了反革命…</a>
 </h2>
