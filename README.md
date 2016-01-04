@@ -30,7 +30,7 @@
 </h2>
 <p>//@阿子: //@谢文:转发微博<br><br>RE: 【【铜锣湾书店失踪案】特首：内地人员在港执法违基本法 李太：唯有信一国两制】对于梁振英未有清楚交代李波失踪是否与内地公安有关，以及他是否被内地执法人员带到内地等问题，李波太太表示，现在唯有相信特区政府、警方及一国两制。 http://t.cn/R46noOV<br><img src="http://ww3.sinaimg.cn/large/9dcb59c7jw1eznkasq81oj20m80eutck.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3927617588048205" target="freeweibo-mirror">从相关报道来看，五个失踪人应该都活着。//@礁石海水: 一连…</a>
 </h2>
