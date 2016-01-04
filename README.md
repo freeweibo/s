@@ -30,7 +30,7 @@
 </h2>
 <p>什么意思？赵家就是将镰刀斧头赶走的意思？那赵家岂不成了反革命？//@钱中华: 转发微博<br><br>RE: 微信上看到的<br><img src="http://ww1.sinaimg.cn/large/3e518583jw1ezmqqihgmsj20b90bpaan.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3927528014563323" target="freeweibo-mirror">//@演员孙海英:一年前去法国尼斯，当地人告诉我：尼斯沿海风…</a>
 </h2>
