@@ -30,7 +30,13 @@
 </h2>
 <p>党的决议说照顾生活，没说让通奸//@清水芙蓉1919: 原来我党通奸是有传统的呀！[偷笑][嘻嘻][哈哈]//@爱新觉罗载勋:回复@王细牛2563233471:我们说的是“照顾毛泽东同志的生活”不参与政治活动，不在国家政府机构任职。毛泽东上苏联照说第一夫人该带，就没带她嘛！ //@王细牛2563233471:一生都属于通奸？</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3927549119855980" target="freeweibo-mirror">不明白这条为毛0阅读？[喵喵]</a>
+</h2>
+<p>不明白这条为毛0阅读？[喵喵]<br><img src="http://ww3.sinaimg.cn/large/006j4UEhgw1ezndw33vl2j30hs0vkzo9.jpg"></p>
+<p>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3927543947986184" target="freeweibo-mirror">什么意思？赵家就是将镰刀斧头赶走的意思？那赵家岂不成了反革命…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3927253010188829" target="freeweibo-mirror">SPAM //@兔子老愚: 他们控制一切。//@锡林郭勒草原…</a>
 </h2>
 <p>SPAM //@兔子老愚: 他们控制一切。//@锡林郭勒草原: [话筒]//@真妮花的蠔愛:[围观][围观][围观][围观][围观]<br><br>RE: 【真理部】精赵、贵赵、赵家人、赵王、你国、你党等<br><img src="http://ww3.sinaimg.cn/large/45ed7dbbgw1ezm7kz1fwfj20jk0dadmn.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3927249877560534" target="freeweibo-mirror">在香港卖几本官场小说，值得抓人毁店吗？你们的自信呢？</a>
-</h2>
-<p>在香港卖几本官场小说，值得抓人毁店吗？你们的自信呢？<br><br>RE: 【网军同志们起床备战了】铜锣湾政治禁书店员失踪，引起国际黑客组织Anonymous关注。他们最新在youtube挂出的视频声称要对中共网站进行攻击。<br><img src="http://ww2.sinaimg.cn/large/6d0b6b33gw1ezmf2kn271j20qo1bgn7l.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
