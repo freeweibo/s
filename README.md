@@ -36,7 +36,7 @@
 </h2>
 <p>从相关报道来看，五个失踪人应该都活着。//@礁石海水: 一连失踪好几个相关联的人，恐怖还是斩首行动？<br><br>RE: 对于铜锣湾一间书店负责人怀疑失踪事件，行政长官梁振英表示他和特区政府高度关注，申明根据「一国两制」安排和《基本法》规定，只有香港执法人员有权在港执法。http://t.cn/R4X7XFK<br><img src="http://ww4.sinaimg.cn/large/9154fba0gw1eznko5jkt4j20hr0adgmc.jpg"></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3927608146106959" target="freeweibo-mirror">对于铜锣湾一间书店负责人怀疑失踪事件，行政长官梁振英表示他和…</a>
 </h2>
