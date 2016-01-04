@@ -30,7 +30,7 @@
 </h2>
 <p>从相关报道来看，五个失踪人应该都活着。//@礁石海水: 一连失踪好几个相关联的人，恐怖还是斩首行动？<br><br>RE: 对于铜锣湾一间书店负责人怀疑失踪事件，行政长官梁振英表示他和特区政府高度关注，申明根据「一国两制」安排和《基本法》规定，只有香港执法人员有权在港执法。http://t.cn/R4X7XFK<br><img src="http://ww4.sinaimg.cn/large/9154fba0gw1eznko5jkt4j20hr0adgmc.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3927608146106959" target="freeweibo-mirror">对于铜锣湾一间书店负责人怀疑失踪事件，行政长官梁振英表示他和…</a>
 </h2>
@@ -72,7 +72,7 @@
 </h2>
 <p>//@演员孙海英:一年前去法国尼斯，当地人告诉我：尼斯沿海风景最好的地方，都被俄国有钱人买去了！</p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3927505263658735" target="freeweibo-mirror">//@屌丝的极品前女友://@爱Baby的你1314://@…</a>
 </h2>
@@ -89,6 +89,12 @@
 	<a href="https://freeweibo.com/weibo/3927347566558430" target="freeweibo-mirror">微信上看到的</a>
 </h2>
 <p>微信上看到的<br><img src="http://ww1.sinaimg.cn/large/3e518583jw1ezmqqihgmsj20b90bpaan.jpg"></p>
+<p>
+	<small> ============== 1天前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3927337873757713" target="freeweibo-mirror">Hans Weishaeupl的#摄影# 活的罪恶。</a>
+</h2>
+<p>Hans Weishaeupl的#摄影# 活的罪恶。<br><img src="http://ww4.sinaimg.cn/large/6142e05cgw1ezmpm7sk07j20f50jwwid.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p><h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3927274829244652" target="freeweibo-mirror">//@韩志国:政府未公布过行政成本数据。据新华网，从1986…</a>
 </h2>
 <p>//@韩志国:政府未公布过行政成本数据。据新华网，从1986到2005年我国人均负担年度行政管理费由20.5元到498元，增长23倍，而同期人均GDP增长14.6倍，人均财政收入和支出增长12.3和12.7倍。人均行政费用增速明显快于人均GDP和财政收支增速。<br><br>RE: 【 冗员正压垮中国财政 】 一方面税赋压力沉重，一方面财政捉襟见肘。政府的功能是降低社会成本而不是相反。冗员导致冗政，权力越位、错位、寻租和傲慢必然激化社会矛盾。大量在职和离职干部浪费了巨额财政和医疗资源，财政支出畸形化状况一直无法矫正。如果政治改革不能启动，那就必须启动行政改革。<br><img src="http://ww1.sinaimg.cn/large/4cfc228cgw1ezmbjc61zpj20b4084dgq.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3927271662006809" target="freeweibo-mirror">//@冷眼风云0001:这帮人不叫“冗员”。没有他们，掌声能…</a>
-</h2>
-<p>//@冷眼风云0001:这帮人不叫“冗员”。没有他们，掌声能这么热烈？情绪能这么安定么？//@东南西北都亮: //@北疆观点:行政改革是个什么涵义？<br><br>RE: 【 冗员正压垮中国财政 】 一方面税赋压力沉重，一方面财政捉襟见肘。政府的功能是降低社会成本而不是相反。冗员导致冗政，权力越位、错位、寻租和傲慢必然激化社会矛盾。大量在职和离职干部浪费了巨额财政和医疗资源，财政支出畸形化状况一直无法矫正。如果政治改革不能启动，那就必须启动行政改革。<br><img src="http://ww1.sinaimg.cn/large/4cfc228cgw1ezmbjc61zpj20b4084dgq.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
