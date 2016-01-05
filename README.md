@@ -78,7 +78,7 @@
 </h2>
 <p>目前来看，是报复社会的刑事案件，嫌疑人汉族～<br><img src="http://ww2.sinaimg.cn/large/c0bf0696jw1ezoj0h3bwaj20qo0zkjvv.jpg"></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3927897758492309" target="freeweibo-mirror">今天看到一封公开信。写给赵家的。</a>
 </h2>
