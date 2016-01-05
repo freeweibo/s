@@ -24,7 +24,7 @@
 </h2>
 <p>让方鲁迅来教育那个用脸打别人手的坏蛋什么叫变态歧视。<br><br>RE: #汉中身边事#【愤怒！切糕党手扇汉中青年耳光[怒]】昨天1月3日，汉中西乡120门口，卖切糕的给了买切糕小伙一个“亲密接触”，此视频在朋友圈传的很火，只听“啪”的一声，手上到脸上去了。[伤心]（汉中大事件）<br><img src="http://ww1.sinaimg.cn/large/dcf6b0b5gw1eznv8e8hduj20dw08wmyp.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3927950728188443" target="freeweibo-mirror">冤有头 ，债有主，万万不可伤害无辜！//@萧含:[疑问][疑…</a>
 </h2>
@@ -42,7 +42,7 @@
 </h2>
 <p>再添一把火//@般若观:[吃惊] //@carlvinson金牛:李艹白色恐怖能量大<br><br>RE: 接受美国培训洗脑、支持西藏独立、同情新疆分裂势力、诋毁中国政府、诋毁中国领导人、支持民yun垃圾。这些事以下截图说得清清楚楚的，这个李佳佳还有她不敢做的？组织材料举报，人人有责！<br><img src="http://ww3.sinaimg.cn/large/8dd872eejw1eznunjtqhnj20gx0i6myo.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3927930487317334" target="freeweibo-mirror">[吃惊] //@carlvinson金牛:李艹白色恐怖能量大</a>
 </h2>
