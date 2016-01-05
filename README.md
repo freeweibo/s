@@ -26,6 +26,12 @@
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3928048547742512" target="freeweibo-mirror">#拍案#【五问公交纵火案：马永平们为何拉无辜民众“陪葬”？】…</a>
+</h2>
+<p>#拍案#【五问公交纵火案：马永平们为何拉无辜民众“陪葬”？】案发10个多小时，银川公交大火案疑犯马永平被抓，他承认报复社会、蓄意纵火。《新闻极客》盘点近10年来的公交纵火案发现，作案者的年龄、身份、经历虽然不同，但他们的人生轨迹、作案动机又或多或少有些相似…http://t.cn/R4aVBbV<br><img src="http://ww2.sinaimg.cn/large/60718250jw1ezoz8na5kpg208o06c7ju.gif"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3927963071985262" target="freeweibo-mirror">让方鲁迅来教育那个用脸打别人手的坏蛋什么叫变态歧视。</a>
 </h2>
 <p>让方鲁迅来教育那个用脸打别人手的坏蛋什么叫变态歧视。<br><br>RE: #汉中身边事#【愤怒！切糕党手扇汉中青年耳光[怒]】昨天1月3日，汉中西乡120门口，卖切糕的给了买切糕小伙一个“亲密接触”，此视频在朋友圈传的很火，只听“啪”的一声，手上到脸上去了。[伤心]（汉中大事件）<br><img src="http://ww1.sinaimg.cn/large/dcf6b0b5gw1eznv8e8hduj20dw08wmyp.jpg"></p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3927825700188489" target="freeweibo-mirror">发小也来凑热闹说民主，烦死人了！</a>
 </h2>
 <p>发小也来凑热闹说民主，烦死人了！</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3927824635030939" target="freeweibo-mirror">SPAM [嘻嘻][good]//@中华文化研究:很真诚</a>
-</h2>
-<p>SPAM [嘻嘻][good]//@中华文化研究:很真诚</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
