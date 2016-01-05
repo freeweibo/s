@@ -36,7 +36,7 @@
 </h2>
 <p>//@LifeTime: //@通信王峰:转发微博<br><br>RE: 讀報：銅鑼灣書局怎么了。<br><img src="http://ww1.sinaimg.cn/large/8856a58egw1ezo35mhkolj20jg0sxqbr.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3927829034952644" target="freeweibo-mirror">SPAM  //@LifeTime: //@顾猷: //@蔚…</a>
 </h2>
