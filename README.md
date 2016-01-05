@@ -30,7 +30,7 @@
 </h2>
 <p>马上会有人说，一定是社会把它逼到这个田地的<br><br>RE: #拍案#【五问公交纵火案：马永平们为何拉无辜民众“陪葬”？】案发10个多小时，银川公交大火案疑犯马永平被抓，他承认报复社会、蓄意纵火。《新闻极客》盘点近10年来的公交纵火案发现，作案者的年龄、身份、经历虽然不同，但他们的人生轨迹、作案动机又或多或少有些相似…http://t.cn/R4aVBbV<br><img src="http://ww2.sinaimg.cn/large/60718250jw1ezoz8na5kpg208o06c7ju.gif"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3928048547742512" target="freeweibo-mirror">#拍案#【五问公交纵火案：马永平们为何拉无辜民众“陪葬”？】…</a>
 </h2>
@@ -54,7 +54,7 @@
 </h2>
 <p>对无辜者下毒手是可耻的。社会环境是冷漠的。相关部门是有罪的。</p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3927932156280890" target="freeweibo-mirror">再添一把火//@般若观:[吃惊] //@carlvinson…</a>
 </h2>
@@ -66,13 +66,13 @@
 </h2>
 <p>[吃惊] //@carlvinson金牛:李艹白色恐怖能量大<br><br>RE: 接受美国培训洗脑、支持西藏独立、同情新疆分裂势力、诋毁中国政府、诋毁中国领导人、支持民yun垃圾。这些事以下截图说得清清楚楚的，这个李佳佳还有她不敢做的？组织材料举报，人人有责！<br><img src="http://ww3.sinaimg.cn/large/8dd872eejw1eznunjtqhnj20gx0i6myo.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3927930302552157" target="freeweibo-mirror">//@carlvinson金牛:李艹白色恐怖能量大</a>
 </h2>
 <p>//@carlvinson金牛:李艹白色恐怖能量大<br><br>RE: 接受美国培训洗脑、支持西藏独立、同情新疆分裂势力、诋毁中国政府、诋毁中国领导人、支持民yun垃圾。这些事以下截图说得清清楚楚的，这个李佳佳还有她不敢做的？组织材料举报，人人有责！<br><img src="http://ww3.sinaimg.cn/large/8dd872eejw1eznunjtqhnj20gx0i6myo.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3927923851373299" target="freeweibo-mirror">SPAM //@海腚: //@鲁壁藏书: 阎王不嫌鬼瘦//@…</a>
 </h2>
