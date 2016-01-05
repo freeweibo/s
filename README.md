@@ -54,7 +54,7 @@
 </h2>
 <p>对无辜者下毒手是可耻的。社会环境是冷漠的。相关部门是有罪的。</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3927932156280890" target="freeweibo-mirror">再添一把火//@般若观:[吃惊] //@carlvinson…</a>
 </h2>
