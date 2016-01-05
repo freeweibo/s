@@ -30,7 +30,7 @@
 </h2>
 <p>发小也来凑热闹说民主，烦死人了！</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3927824190551109" target="freeweibo-mirror">SPAM 值得一读。//@赵广启程: //@逆风蝴蝶:罗家人…</a>
 </h2>
