@@ -24,7 +24,7 @@
 </h2>
 <p>[赞]//@阎显庭:建议：因为嫌疑人失去自由处在严重不对等的地位，司法机关必须对嫌疑人全程录像录音，限制司法人员刑讯逼供等行为，保护嫌疑人人身安全和权利，并负责保密以维护嫌疑人人格和个人隐私。司法机关对于有关刑讯逼供以及嫌疑人伤亡事件，负责举证以自证清白。</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3927861029735591" target="freeweibo-mirror">共产党真的要完了。//@薛定谔的Viviani:MD，连书同…</a>
 </h2>
@@ -42,7 +42,7 @@
 </h2>
 <p>//@LifeTime: //@通信王峰:转发微博<br><br>RE: 讀報：銅鑼灣書局怎么了。<br><img src="http://ww1.sinaimg.cn/large/8856a58egw1ezo35mhkolj20jg0sxqbr.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3927829034952644" target="freeweibo-mirror">SPAM  //@LifeTime: //@顾猷: //@蔚…</a>
 </h2>
