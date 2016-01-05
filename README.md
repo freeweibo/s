@@ -96,7 +96,7 @@
 </h2>
 <p>共产党真的要完了。//@薛定谔的Viviani:MD，连书同文都要胡来么。//@宽容公正麦卡锡:真主党党委亚克西[挖鼻]//@胡马胡风:糜费公帑，这报纸直接送清真造纸厂化浆//@胡总马甲:一带一路是个框，什么东西都能装，色兰，什么亚克西啊，什么亚克西？[哆啦A梦吃惊]</p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3927848911697973" target="freeweibo-mirror">SPAM 有个阴谋观点，就是暴跌后，给养老金今年入市提供安全…</a>
 </h2>
@@ -108,7 +108,7 @@
 </h2>
 <p>//@LifeTime: //@通信王峰:转发微博<br><br>RE: 讀報：銅鑼灣書局怎么了。<br><img src="http://ww1.sinaimg.cn/large/8856a58egw1ezo35mhkolj20jg0sxqbr.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3927829034952644" target="freeweibo-mirror">SPAM  //@LifeTime: //@顾猷: //@蔚…</a>
 </h2>
