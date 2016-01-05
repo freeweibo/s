@@ -26,11 +26,23 @@
 <p>
 	<small> ============== 1小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3927930487317334" target="freeweibo-mirror">[吃惊] //@carlvinson金牛:李艹白色恐怖能量大</a>
+</h2>
+<p>[吃惊] //@carlvinson金牛:李艹白色恐怖能量大<br><br>RE: 接受美国培训洗脑、支持西藏独立、同情新疆分裂势力、诋毁中国政府、诋毁中国领导人、支持民yun垃圾。这些事以下截图说得清清楚楚的，这个李佳佳还有她不敢做的？组织材料举报，人人有责！<br><img src="http://ww3.sinaimg.cn/large/8dd872eejw1eznunjtqhnj20gx0i6myo.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3927930302552157" target="freeweibo-mirror">//@carlvinson金牛:李艹白色恐怖能量大</a>
+</h2>
+<p>//@carlvinson金牛:李艹白色恐怖能量大<br><br>RE: 接受美国培训洗脑、支持西藏独立、同情新疆分裂势力、诋毁中国政府、诋毁中国领导人、支持民yun垃圾。这些事以下截图说得清清楚楚的，这个李佳佳还有她不敢做的？组织材料举报，人人有责！<br><img src="http://ww3.sinaimg.cn/large/8dd872eejw1eznunjtqhnj20gx0i6myo.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3927914167105097" target="freeweibo-mirror">SPAM 对此类报复社会的暴徒，决不同情！[怒]</a>
 </h2>
 <p>SPAM 对此类报复社会的暴徒，决不同情！[怒]<br><br>RE: 目前来看，是报复社会的刑事案件，嫌疑人汉族～<br><img src="http://ww2.sinaimg.cn/large/c0bf0696jw1ezoj0h3bwaj20qo0zkjvv.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3927907296802999" target="freeweibo-mirror">目前来看，是报复社会的刑事案件，嫌疑人汉族～</a>
 </h2>
@@ -42,7 +54,7 @@
 </h2>
 <p>[赞]//@阎显庭:建议：因为嫌疑人失去自由处在严重不对等的地位，司法机关必须对嫌疑人全程录像录音，限制司法人员刑讯逼供等行为，保护嫌疑人人身安全和权利，并负责保密以维护嫌疑人人格和个人隐私。司法机关对于有关刑讯逼供以及嫌疑人伤亡事件，负责举证以自证清白。</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3927861029735591" target="freeweibo-mirror">共产党真的要完了。//@薛定谔的Viviani:MD，连书同…</a>
 </h2>
@@ -60,7 +72,7 @@
 </h2>
 <p>//@LifeTime: //@通信王峰:转发微博<br><br>RE: 讀報：銅鑼灣書局怎么了。<br><img src="http://ww1.sinaimg.cn/large/8856a58egw1ezo35mhkolj20jg0sxqbr.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3927829034952644" target="freeweibo-mirror">SPAM  //@LifeTime: //@顾猷: //@蔚…</a>
 </h2>
@@ -125,18 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3927620779501090" target="freeweibo-mirror">//@阿子: //@谢文:转发微博</a>
 </h2>
 <p>//@阿子: //@谢文:转发微博<br><br>RE: 【【铜锣湾书店失踪案】特首：内地人员在港执法违基本法 李太：唯有信一国两制】对于梁振英未有清楚交代李波失踪是否与内地公安有关，以及他是否被内地执法人员带到内地等问题，李波太太表示，现在唯有相信特区政府、警方及一国两制。 http://t.cn/R46noOV<br><img src="http://ww3.sinaimg.cn/large/9dcb59c7jw1eznkasq81oj20m80eutck.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3927617588048205" target="freeweibo-mirror">从相关报道来看，五个失踪人应该都活着。//@礁石海水: 一连…</a>
-</h2>
-<p>从相关报道来看，五个失踪人应该都活着。//@礁石海水: 一连失踪好几个相关联的人，恐怖还是斩首行动？<br><br>RE: 对于铜锣湾一间书店负责人怀疑失踪事件，行政长官梁振英表示他和特区政府高度关注，申明根据「一国两制」安排和《基本法》规定，只有香港执法人员有权在港执法。http://t.cn/R4X7XFK<br><img src="http://ww4.sinaimg.cn/large/9154fba0gw1eznko5jkt4j20hr0adgmc.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3927608146106959" target="freeweibo-mirror">对于铜锣湾一间书店负责人怀疑失踪事件，行政长官梁振英表示他和…</a>
-</h2>
-<p>对于铜锣湾一间书店负责人怀疑失踪事件，行政长官梁振英表示他和特区政府高度关注，申明根据「一国两制」安排和《基本法》规定，只有香港执法人员有权在港执法。http://t.cn/R4X7XFK<br><img src="http://ww4.sinaimg.cn/large/9154fba0gw1eznko5jkt4j20hr0adgmc.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
