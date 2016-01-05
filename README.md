@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3927837930829845" target="freeweibo-mirror">//@LifeTime: //@通信王峰:转发微博</a>
+</h2>
+<p>//@LifeTime: //@通信王峰:转发微博<br><br>RE: 讀報：銅鑼灣書局怎么了。<br><img src="http://ww1.sinaimg.cn/large/8856a58egw1ezo35mhkolj20jg0sxqbr.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3927828502645023" target="freeweibo-mirror">想起一件事，罗瑞卿去德国治文革遗留的腿病，不慎心脏病突发病逝…</a>
 </h2>
 <p>想起一件事，罗瑞卿去德国治文革遗留的腿病，不慎心脏病突发病逝。胡耀邦深深遗憾，没有罗做坚强后盾，胡和他的政改都结束了。 //@光老顽童:所以要么赵家，要么罗家。想当个开明的刘家终究还是舍不得赵家身份。 //@孟恕华_2015:您这句说得更清楚 //@光老顽童:只要被赵家除名，就会看得清楚。</p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3927347566558430" target="freeweibo-mirror">微信上看到的</a>
 </h2>
 <p>微信上看到的<br><img src="http://ww1.sinaimg.cn/large/3e518583jw1ezmqqihgmsj20b90bpaan.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3927337873757713" target="freeweibo-mirror">Hans Weishaeupl的#摄影# 活的罪恶。</a>
-</h2>
-<p>Hans Weishaeupl的#摄影# 活的罪恶。<br><img src="http://ww4.sinaimg.cn/large/6142e05cgw1ezmpm7sk07j20f50jwwid.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
