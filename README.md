@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3927861029735591" target="freeweibo-mirror">共产党真的要完了。//@薛定谔的Viviani:MD，连书同…</a>
+</h2>
+<p>共产党真的要完了。//@薛定谔的Viviani:MD，连书同文都要胡来么。//@宽容公正麦卡锡:真主党党委亚克西[挖鼻]//@胡马胡风:糜费公帑，这报纸直接送清真造纸厂化浆//@胡总马甲:一带一路是个框，什么东西都能装，色兰，什么亚克西啊，什么亚克西？[哆啦A梦吃惊]</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3927848911697973" target="freeweibo-mirror">SPAM 有个阴谋观点，就是暴跌后，给养老金今年入市提供安全…</a>
 </h2>
 <p>SPAM 有个阴谋观点，就是暴跌后，给养老金今年入市提供安全建仓点！这个只是臆想，如果管理层放任下跌，基本就是国家意志和目的了！小白鼠们做好被实验的准备，留口气就行了！</p>
@@ -36,7 +42,7 @@
 </h2>
 <p>SPAM  //@LifeTime: //@顾猷: //@蔚蓝1916ROC:</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3927828502645023" target="freeweibo-mirror">想起一件事，罗瑞卿去德国治文革遗留的腿病，不慎心脏病突发病逝…</a>
 </h2>
@@ -84,7 +90,7 @@
 </h2>
 <p>讀報：銅鑼灣書局怎么了。<br><img src="http://ww1.sinaimg.cn/large/8856a58egw1ezo35mhkolj20jg0sxqbr.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3927628299540080" target="freeweibo-mirror">SPAM 围观了围观了，求无码套图</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3927569076138860" target="freeweibo-mirror">党的决议说照顾生活，没说让通奸//@清水芙蓉1919: 原来…</a>
 </h2>
 <p>党的决议说照顾生活，没说让通奸//@清水芙蓉1919: 原来我党通奸是有传统的呀！[偷笑][嘻嘻][哈哈]//@爱新觉罗载勋:回复@王细牛2563233471:我们说的是“照顾毛泽东同志的生活”不参与政治活动，不在国家政府机构任职。毛泽东上苏联照说第一夫人该带，就没带她嘛！ //@王细牛2563233471:一生都属于通奸？</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3927549119855980" target="freeweibo-mirror">不明白这条为毛0阅读？[喵喵]</a>
-</h2>
-<p>不明白这条为毛0阅读？[喵喵]<br><img src="http://ww3.sinaimg.cn/large/006j4UEhgw1ezndw33vl2j30hs0vkzo9.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
