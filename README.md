@@ -66,13 +66,13 @@
 </h2>
 <p>SPAM [嘻嘻][good]//@中华文化研究:很真诚</p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3927824190551109" target="freeweibo-mirror">SPAM 值得一读。//@赵广启程: //@逆风蝴蝶:罗家人…</a>
 </h2>
 <p>SPAM 值得一读。//@赵广启程: //@逆风蝴蝶:罗家人竟然看这么清楚。 //@光老顽童:从第一封信就一直相信真是他本人的。</p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3927822223508535" target="freeweibo-mirror">该人为另一种头脑封闭，远不如习李等当权派。 //@举世秦晋:…</a>
 </h2>
