@@ -30,7 +30,7 @@
 </h2>
 <p>冤有头 ，债有主，万万不可伤害无辜！//@萧含:[疑问][疑问]</p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3927945762426456" target="freeweibo-mirror">对无辜者下毒手是可耻的。社会环境是冷漠的。相关部门是有罪的。</a>
 </h2>
@@ -84,7 +84,7 @@
 </h2>
 <p>今天看到一封公开信。写给赵家的。<br><img src="http://ww3.sinaimg.cn/large/54756473gw1ezohxelf2qj20qo43fe81.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3927868121620577" target="freeweibo-mirror">[赞]//@阎显庭:建议：因为嫌疑人失去自由处在严重不对等的…</a>
 </h2>
