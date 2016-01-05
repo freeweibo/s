@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3928063358252614" target="freeweibo-mirror">立即枪毙！[怒][怒] //@剑气如虹客:转发微博</a>
+</h2>
+<p>立即枪毙！[怒][怒] //@剑气如虹客:转发微博<br><br>RE: #拍案#【五问公交纵火案：马永平们为何拉无辜民众“陪葬”？】案发10个多小时，银川公交大火案疑犯马永平被抓，他承认报复社会、蓄意纵火。《新闻极客》盘点近10年来的公交纵火案发现，作案者的年龄、身份、经历虽然不同，但他们的人生轨迹、作案动机又或多或少有些相似…http://t.cn/R4aVBbV<br><img src="http://ww2.sinaimg.cn/large/60718250jw1ezoz8na5kpg208o06c7ju.gif"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3928050787693801" target="freeweibo-mirror">马上会有人说，一定是社会把它逼到这个田地的</a>
 </h2>
 <p>马上会有人说，一定是社会把它逼到这个田地的<br><br>RE: #拍案#【五问公交纵火案：马永平们为何拉无辜民众“陪葬”？】案发10个多小时，银川公交大火案疑犯马永平被抓，他承认报复社会、蓄意纵火。《新闻极客》盘点近10年来的公交纵火案发现，作案者的年龄、身份、经历虽然不同，但他们的人生轨迹、作案动机又或多或少有些相似…http://t.cn/R4aVBbV<br><img src="http://ww2.sinaimg.cn/large/60718250jw1ezoz8na5kpg208o06c7ju.gif"></p>
@@ -84,7 +90,7 @@
 </h2>
 <p>SPAM 对此类报复社会的暴徒，决不同情！[怒]<br><br>RE: 目前来看，是报复社会的刑事案件，嫌疑人汉族～<br><img src="http://ww2.sinaimg.cn/large/c0bf0696jw1ezoj0h3bwaj20qo0zkjvv.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3927907296802999" target="freeweibo-mirror">目前来看，是报复社会的刑事案件，嫌疑人汉族～</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3927828502645023" target="freeweibo-mirror">想起一件事，罗瑞卿去德国治文革遗留的腿病，不慎心脏病突发病逝…</a>
 </h2>
 <p>想起一件事，罗瑞卿去德国治文革遗留的腿病，不慎心脏病突发病逝。胡耀邦深深遗憾，没有罗做坚强后盾，胡和他的政改都结束了。 //@光老顽童:所以要么赵家，要么罗家。想当个开明的刘家终究还是舍不得赵家身份。 //@孟恕华_2015:您这句说得更清楚 //@光老顽童:只要被赵家除名，就会看得清楚。</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3927825700188489" target="freeweibo-mirror">发小也来凑热闹说民主，烦死人了！</a>
-</h2>
-<p>发小也来凑热闹说民主，烦死人了！</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
