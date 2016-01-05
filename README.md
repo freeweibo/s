@@ -24,7 +24,7 @@
 </h2>
 <p>再添一把火//@般若观:[吃惊] //@carlvinson金牛:李艹白色恐怖能量大<br><br>RE: 接受美国培训洗脑、支持西藏独立、同情新疆分裂势力、诋毁中国政府、诋毁中国领导人、支持民yun垃圾。这些事以下截图说得清清楚楚的，这个李佳佳还有她不敢做的？组织材料举报，人人有责！<br><img src="http://ww3.sinaimg.cn/large/8dd872eejw1eznunjtqhnj20gx0i6myo.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3927930487317334" target="freeweibo-mirror">[吃惊] //@carlvinson金牛:李艹白色恐怖能量大</a>
 </h2>
@@ -61,6 +61,12 @@
 <p>目前来看，是报复社会的刑事案件，嫌疑人汉族～<br><img src="http://ww2.sinaimg.cn/large/c0bf0696jw1ezoj0h3bwaj20qo0zkjvv.jpg"></p>
 <p>
 	<small> ============== 5小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3927897758492309" target="freeweibo-mirror">今天看到一封公开信。写给赵家的。</a>
+</h2>
+<p>今天看到一封公开信。写给赵家的。<br><img src="http://ww3.sinaimg.cn/large/54756473gw1ezohxelf2qj20qo43fe81.jpg"></p>
+<p>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3927868121620577" target="freeweibo-mirror">[赞]//@阎显庭:建议：因为嫌疑人失去自由处在严重不对等的…</a>
 </h2>
@@ -133,12 +139,6 @@
 <p>//@法医Z:系统自动转发的//@蔚蓝1916ROC:罗家子女大概是'高级红二'群体中最叛逆者，他们的回忆录对现今的party是完全敌视态度，罗女儿不仅谴责讽刺毛和其他共干也谴责她爹紧跟毛，倒霉咎由自取。据高文谦习爹因支持胡又反对动武挨邓训斥后赌气常住深圳，托称精神病长年不朝，此文则称是被邓软禁深圳。</p>
 <p>
 	<small> ============== 11小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3927769090196839" target="freeweibo-mirror">讀報：銅鑼灣書局怎么了。</a>
-</h2>
-<p>讀報：銅鑼灣書局怎么了。<br><img src="http://ww1.sinaimg.cn/large/8856a58egw1ezo35mhkolj20jg0sxqbr.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
 </p>
 <table>
     <tr>
