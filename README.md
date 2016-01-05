@@ -60,7 +60,7 @@
 </h2>
 <p>SPAM //@海腚: //@鲁壁藏书: 阎王不嫌鬼瘦//@qbl2011: //@能扯多远就多远: 同问赵家帐房楼部长。<br><br>RE: 今天看到一封公开信。写给赵家的。<br><img src="http://ww3.sinaimg.cn/large/54756473gw1ezohxelf2qj20qo43fe81.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3927918927804874" target="freeweibo-mirror">心肠坏了</a>
 </h2>
@@ -102,7 +102,7 @@
 </h2>
 <p>SPAM 有个阴谋观点，就是暴跌后，给养老金今年入市提供安全建仓点！这个只是臆想，如果管理层放任下跌，基本就是国家意志和目的了！小白鼠们做好被实验的准备，留口气就行了！</p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3927837930829845" target="freeweibo-mirror">//@LifeTime: //@通信王峰:转发微博</a>
 </h2>
