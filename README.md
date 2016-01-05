@@ -30,7 +30,7 @@
 </h2>
 <p>SPAM  //@LifeTime: //@顾猷: //@蔚蓝1916ROC:</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3927828502645023" target="freeweibo-mirror">想起一件事，罗瑞卿去德国治文革遗留的腿病，不慎心脏病突发病逝…</a>
 </h2>
@@ -78,7 +78,7 @@
 </h2>
 <p>讀報：銅鑼灣書局怎么了。<br><img src="http://ww1.sinaimg.cn/large/8856a58egw1ezo35mhkolj20jg0sxqbr.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3927628299540080" target="freeweibo-mirror">SPAM 围观了围观了，求无码套图</a>
 </h2>
