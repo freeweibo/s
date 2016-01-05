@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3927932156280890" target="freeweibo-mirror">再添一把火//@般若观:[吃惊] //@carlvinson…</a>
+</h2>
+<p>再添一把火//@般若观:[吃惊] //@carlvinson金牛:李艹白色恐怖能量大<br><br>RE: 接受美国培训洗脑、支持西藏独立、同情新疆分裂势力、诋毁中国政府、诋毁中国领导人、支持民yun垃圾。这些事以下截图说得清清楚楚的，这个李佳佳还有她不敢做的？组织材料举报，人人有责！<br><img src="http://ww3.sinaimg.cn/large/8dd872eejw1eznunjtqhnj20gx0i6myo.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3927914167105097" target="freeweibo-mirror">SPAM 对此类报复社会的暴徒，决不同情！[怒]</a>
 </h2>
 <p>SPAM 对此类报复社会的暴徒，决不同情！[怒]<br><br>RE: 目前来看，是报复社会的刑事案件，嫌疑人汉族～<br><img src="http://ww2.sinaimg.cn/large/c0bf0696jw1ezoj0h3bwaj20qo0zkjvv.jpg"></p>
@@ -90,7 +96,7 @@
 </h2>
 <p>该人为另一种头脑封闭，远不如习李等当权派。 //@举世秦晋:太幼稚 //@蔚蓝1916ROC:罗家子女大概是'高级红二'群体中最叛逆者，他们的回忆录对现今的party是完全敌视态度，罗女儿不仅谴责讽刺毛和其他共干也谴责她爹紧跟毛，倒霉咎由自取。此文很有趣的一点是关于鹿死后的习爹，据高文谦习爹因支持胡又</p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3927817085534401" target="freeweibo-mirror">SPAM //@LifeTime: //@顾猷: //@蔚蓝…</a>
 </h2>
@@ -108,7 +114,7 @@
 </h2>
 <p>讀報：銅鑼灣書局怎么了。<br><img src="http://ww1.sinaimg.cn/large/8856a58egw1ezo35mhkolj20jg0sxqbr.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3927628299540080" target="freeweibo-mirror">SPAM 围观了围观了，求无码套图</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3927608146106959" target="freeweibo-mirror">对于铜锣湾一间书店负责人怀疑失踪事件，行政长官梁振英表示他和…</a>
 </h2>
 <p>对于铜锣湾一间书店负责人怀疑失踪事件，行政长官梁振英表示他和特区政府高度关注，申明根据「一国两制」安排和《基本法》规定，只有香港执法人员有权在港执法。http://t.cn/R4X7XFK<br><img src="http://ww4.sinaimg.cn/large/9154fba0gw1eznko5jkt4j20hr0adgmc.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3927604878449534" target="freeweibo-mirror">【【铜锣湾书店失踪案】特首：内地人员在港执法违基本法 李太：…</a>
-</h2>
-<p>【【铜锣湾书店失踪案】特首：内地人员在港执法违基本法 李太：唯有信一国两制】对于梁振英未有清楚交代李波失踪是否与内地公安有关，以及他是否被内地执法人员带到内地等问题，李波太太表示，现在唯有相信特区政府、警方及一国两制。 http://t.cn/R46noOV<br><img src="http://ww3.sinaimg.cn/large/9dcb59c7jw1eznkasq81oj20m80eutck.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
