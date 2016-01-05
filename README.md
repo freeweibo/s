@@ -24,7 +24,7 @@
 </h2>
 <p>再添一把火//@般若观:[吃惊] //@carlvinson金牛:李艹白色恐怖能量大<br><br>RE: 接受美国培训洗脑、支持西藏独立、同情新疆分裂势力、诋毁中国政府、诋毁中国领导人、支持民yun垃圾。这些事以下截图说得清清楚楚的，这个李佳佳还有她不敢做的？组织材料举报，人人有责！<br><img src="http://ww3.sinaimg.cn/large/8dd872eejw1eznunjtqhnj20gx0i6myo.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3927930487317334" target="freeweibo-mirror">[吃惊] //@carlvinson金牛:李艹白色恐怖能量大</a>
 </h2>
