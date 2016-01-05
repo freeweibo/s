@@ -60,7 +60,7 @@
 </h2>
 <p>SPAM //@海腚: //@鲁壁藏书: 阎王不嫌鬼瘦//@qbl2011: //@能扯多远就多远: 同问赵家帐房楼部长。<br><br>RE: 今天看到一封公开信。写给赵家的。<br><img src="http://ww3.sinaimg.cn/large/54756473gw1ezohxelf2qj20qo43fe81.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3927918927804874" target="freeweibo-mirror">心肠坏了</a>
 </h2>
