@@ -78,7 +78,7 @@
 </h2>
 <p>一些蠢才，哪有一个干点正事的。。<br><br>RE: 关于李佳佳利用“三个阵地”进行宣传的举报 致：广东省国家安全厅、广东省网信办、广东省省委宣传部、广东广播电视台纪委<br><img src="http://ww3.sinaimg.cn/large/c857e634gw1ezprtzhe28j20c8cbz7wi.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3928332380427052" target="freeweibo-mirror">【新决定阻断国家赔偿路 刘虎不服提出申诉】检方将“无罪不起诉…</a>
 </h2>
