@@ -24,7 +24,7 @@
 </h2>
 <p>【陆客游台爱买“禁书” 书商：4年半需求至少增五倍】台湾诚品书店的一名王姓工作人员表示：“与中国政治人物，包括习近平、毛泽东、赵紫阳等，有关的书籍，是最受大陆游客欢迎的。”该工作人员表示，大陆游客常常要找的书包括毛泽东情史、赵紫阳的秘密日记、中国十大权势家族等。http://t.cn/R4a3Wzy<br><img src="http://ww4.sinaimg.cn/large/9dcb59c7jw1ezph0z0isrj20c81idaiz.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3928201551717950" target="freeweibo-mirror">为什么？ //@木然Blog: //@律师文摘: //@清醒…</a>
 </h2>
@@ -42,7 +42,7 @@
 </h2>
 <p>立即枪毙！[怒][怒] //@剑气如虹客:转发微博<br><br>RE: #拍案#【五问公交纵火案：马永平们为何拉无辜民众“陪葬”？】案发10个多小时，银川公交大火案疑犯马永平被抓，他承认报复社会、蓄意纵火。《新闻极客》盘点近10年来的公交纵火案发现，作案者的年龄、身份、经历虽然不同，但他们的人生轨迹、作案动机又或多或少有些相似…http://t.cn/R4aVBbV<br><img src="http://ww2.sinaimg.cn/large/60718250jw1ezoz8na5kpg208o06c7ju.gif"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3928050787693801" target="freeweibo-mirror">马上会有人说，一定是社会把它逼到这个田地的</a>
 </h2>
