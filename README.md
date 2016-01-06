@@ -30,7 +30,7 @@
 </h2>
 <p>//@瓦西里高傲男:赵家主子战斗过的地方，你也赶碰？<br><br>RE: 難怪李嘉誠跑路⋯⋯<br><img src="http://ww3.sinaimg.cn/large/006gWfE8jw1ezoz2roxgmj30rs0lface.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3928235152470403" target="freeweibo-mirror">---哎，冤有头债有主，不要乱咬人，谁欠你钱你就弄谁不就完了…</a>
 </h2>
@@ -78,7 +78,7 @@
 </h2>
 <p>嗯哼//@土家野夫:呵呵//@演员孙海英: 小胡的心声！//@龍川-啸: 会走上不归路的是你赵家，不是国家，请别不要脸的绑架国家。这国家曾经无数动荡，结果亡的都是赵家，国家依旧在！</p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3928158598126472" target="freeweibo-mirror">【纵火嫌犯马永平的最后一个月：事发前五天家人已报警】 5日一…</a>
 </h2>
