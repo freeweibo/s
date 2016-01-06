@@ -68,6 +68,12 @@
 <p>
 	<small> ============== 7小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3928158598126472" target="freeweibo-mirror">【纵火嫌犯马永平的最后一个月：事发前五天家人已报警】 5日一…</a>
+</h2>
+<p>【纵火嫌犯马永平的最后一个月：事发前五天家人已报警】 5日一早，马永平的债主被喊去领钱，马永平的父亲制止了发钱的行为:昨天为何不给钱，昨天要是给了钱，今天能救多少人。301公交车已烧得只剩骨架。   http://t.cn/R4a8ou3<br><img src="http://ww3.sinaimg.cn/large/791ae3d5jw1ezpbw7mfr9j20mi12gdlk.jpg"></p>
+<p>
+	<small> ============== 10小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3928100129520680" target="freeweibo-mirror">#新浪独家#【从自焚到焚人：银川公交纵火嫌犯马永平的最后一个…</a>
 </h2>
 <p>#新浪独家#【从自焚到焚人：银川公交纵火嫌犯马永平的最后一个月】马永平上过大学，到日本研修过，为了30万的工程款，一个月内先以威胁自焚讨债被拘10天，在2015年的最后一天留下绝笔信拎着两个包离家，5天后，在公交车上点燃了两桶汽油，带走了17条无辜生命。http://t.cn/R4aYRlK （新浪新闻出品）<br><img src="http://ww3.sinaimg.cn/large/60718250jw1ezp55qm8jrj206e0b40st.jpg"></p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3927930302552157" target="freeweibo-mirror">//@carlvinson金牛:李艹白色恐怖能量大</a>
 </h2>
 <p>//@carlvinson金牛:李艹白色恐怖能量大<br><br>RE: 接受美国培训洗脑、支持西藏独立、同情新疆分裂势力、诋毁中国政府、诋毁中国领导人、支持民yun垃圾。这些事以下截图说得清清楚楚的，这个李佳佳还有她不敢做的？组织材料举报，人人有责！<br><img src="http://ww3.sinaimg.cn/large/8dd872eejw1eznunjtqhnj20gx0i6myo.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3927923851373299" target="freeweibo-mirror">SPAM //@海腚: //@鲁壁藏书: 阎王不嫌鬼瘦//@…</a>
-</h2>
-<p>SPAM //@海腚: //@鲁壁藏书: 阎王不嫌鬼瘦//@qbl2011: //@能扯多远就多远: 同问赵家帐房楼部长。<br><br>RE: 今天看到一封公开信。写给赵家的。<br><img src="http://ww3.sinaimg.cn/large/54756473gw1ezohxelf2qj20qo43fe81.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
