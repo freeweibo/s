@@ -78,7 +78,7 @@
 </h2>
 <p>【看新闻学英语】sarcastic,  Zhao family member, Zhao in spirit, Lu Xun, The True Story of Ah Q<br><img src="http://ww2.sinaimg.cn/large/6aa09e8fjw1ezptli5zvkj20yi1laq8y.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3928308381201622" target="freeweibo-mirror">//@战争史研究WHS: 不冤不乐嘛。 //@囧纳森III:…</a>
 </h2>
