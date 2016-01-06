@@ -50,6 +50,12 @@
 <p>
 	<small> ============== 11小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3927964691394592" target="freeweibo-mirror">【中国为什么要拒绝西方模式？】因为西方模式会剥夺掉他们的特权…</a>
+</h2>
+<p>【中国为什么要拒绝西方模式？】因为西方模式会剥夺掉他们的特权和利益。1.新闻自由，他们不敢照搬，因为害怕人民监督。2.官员财产公开，他们不敢照搬，因为害怕腐败曝光。3.官员选举产生，他们不敢照搬，因为害怕人民不选他。4司法独立，他们更不敢照搬，因为他们深知自已的罪孽，害怕被审判！</p>
+<p>
+	<small> ============== 1天前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3927963071985262" target="freeweibo-mirror">让方鲁迅来教育那个用脸打别人手的坏蛋什么叫变态歧视。</a>
 </h2>
 <p>让方鲁迅来教育那个用脸打别人手的坏蛋什么叫变态歧视。<br><br>RE: #汉中身边事#【愤怒！切糕党手扇汉中青年耳光[怒]】昨天1月3日，汉中西乡120门口，卖切糕的给了买切糕小伙一个“亲密接触”，此视频在朋友圈传的很火，只听“啪”的一声，手上到脸上去了。[伤心]（汉中大事件）<br><img src="http://ww1.sinaimg.cn/large/dcf6b0b5gw1eznv8e8hduj20dw08wmyp.jpg"></p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3927848911697973" target="freeweibo-mirror">SPAM 有个阴谋观点，就是暴跌后，给养老金今年入市提供安全…</a>
 </h2>
 <p>SPAM 有个阴谋观点，就是暴跌后，给养老金今年入市提供安全建仓点！这个只是臆想，如果管理层放任下跌，基本就是国家意志和目的了！小白鼠们做好被实验的准备，留口气就行了！</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3927837930829845" target="freeweibo-mirror">//@LifeTime: //@通信王峰:转发微博</a>
-</h2>
-<p>//@LifeTime: //@通信王峰:转发微博<br><br>RE: 讀報：銅鑼灣書局怎么了。<br><img src="http://ww1.sinaimg.cn/large/8856a58egw1ezo35mhkolj20jg0sxqbr.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
