@@ -30,7 +30,7 @@
 </h2>
 <p>---哎，冤有头债有主，不要乱咬人，谁欠你钱你就弄谁不就完了，干嘛这样伤及无辜，机枪枪毙一天。<br><br>RE: #新浪独家#【从自焚到焚人：银川公交纵火嫌犯马永平的最后一个月】马永平上过大学，到日本研修过，为了30万的工程款，一个月内先以威胁自焚讨债被拘10天，在2015年的最后一天留下绝笔信拎着两个包离家，5天后，在公交车上点燃了两桶汽油，带走了17条无辜生命。http://t.cn/R4aYRlK （新浪新闻出品）<br><img src="http://ww3.sinaimg.cn/large/60718250jw1ezp55qm8jrj206e0b40st.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3928232472617627" target="freeweibo-mirror">//@胡杨麟: 1、马永平是正常的经济纠纷。2、人家已经给他…</a>
 </h2>
@@ -78,7 +78,7 @@
 </h2>
 <p>【纵火嫌犯马永平的最后一个月：事发前五天家人已报警】 5日一早，马永平的债主被喊去领钱，马永平的父亲制止了发钱的行为:昨天为何不给钱，昨天要是给了钱，今天能救多少人。301公交车已烧得只剩骨架。   http://t.cn/R4a8ou3<br><img src="http://ww3.sinaimg.cn/large/791ae3d5jw1ezpbw7mfr9j20mi12gdlk.jpg"></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3928100129520680" target="freeweibo-mirror">#新浪独家#【从自焚到焚人：银川公交纵火嫌犯马永平的最后一个…</a>
 </h2>
@@ -101,6 +101,12 @@
 	<a href="https://freeweibo.com/weibo/3928048547742512" target="freeweibo-mirror">#拍案#【五问公交纵火案：马永平们为何拉无辜民众“陪葬”？】…</a>
 </h2>
 <p>#拍案#【五问公交纵火案：马永平们为何拉无辜民众“陪葬”？】案发10个多小时，银川公交大火案疑犯马永平被抓，他承认报复社会、蓄意纵火。《新闻极客》盘点近10年来的公交纵火案发现，作案者的年龄、身份、经历虽然不同，但他们的人生轨迹、作案动机又或多或少有些相似…http://t.cn/R4aVBbV<br><img src="http://ww2.sinaimg.cn/large/60718250jw1ezoz8na5kpg208o06c7ju.gif"></p>
+<p>
+	<small> ============== 1天前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3928046992024147" target="freeweibo-mirror">難怪李嘉誠跑路⋯⋯</a>
+</h2>
+<p>難怪李嘉誠跑路⋯⋯<br><img src="http://ww3.sinaimg.cn/large/006gWfE8jw1ezoz2roxgmj30rs0lface.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p><h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3927932156280890" target="freeweibo-mirror">再添一把火//@般若观:[吃惊] //@carlvinson…</a>
 </h2>
 <p>再添一把火//@般若观:[吃惊] //@carlvinson金牛:李艹白色恐怖能量大<br><br>RE: 接受美国培训洗脑、支持西藏独立、同情新疆分裂势力、诋毁中国政府、诋毁中国领导人、支持民yun垃圾。这些事以下截图说得清清楚楚的，这个李佳佳还有她不敢做的？组织材料举报，人人有责！<br><img src="http://ww3.sinaimg.cn/large/8dd872eejw1eznunjtqhnj20gx0i6myo.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3927930487317334" target="freeweibo-mirror">[吃惊] //@carlvinson金牛:李艹白色恐怖能量大</a>
-</h2>
-<p>[吃惊] //@carlvinson金牛:李艹白色恐怖能量大<br><br>RE: 接受美国培训洗脑、支持西藏独立、同情新疆分裂势力、诋毁中国政府、诋毁中国领导人、支持民yun垃圾。这些事以下截图说得清清楚楚的，这个李佳佳还有她不敢做的？组织材料举报，人人有责！<br><img src="http://ww3.sinaimg.cn/large/8dd872eejw1eznunjtqhnj20gx0i6myo.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
