@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3928314165046844" target="freeweibo-mirror">【看新闻学英语】sarcastic,  Zhao famil…</a>
+</h2>
+<p>【看新闻学英语】sarcastic,  Zhao family member, Zhao in spirit, Lu Xun, The True Story of Ah Q<br><img src="http://ww2.sinaimg.cn/large/6aa09e8fjw1ezptli5zvkj20yi1laq8y.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3928308381201622" target="freeweibo-mirror">//@战争史研究WHS: 不冤不乐嘛。 //@囧纳森III:…</a>
 </h2>
 <p>//@战争史研究WHS: 不冤不乐嘛。 //@囧纳森III: 人家的小弟又是开基地又是驻军，关系好的还能顶住毛熊的压力部署个BMD啥的，经济军事各种合作互利。你国牺牲几十万子弟三十年发展机会换来的这个人见人嫌的“小弟”不但三天两头伸手要钱杀边民，每隔三四年还在你家门口点核炮仗玩儿...</p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3928046992024147" target="freeweibo-mirror">難怪李嘉誠跑路⋯⋯</a>
 </h2>
 <p>難怪李嘉誠跑路⋯⋯<br><img src="http://ww3.sinaimg.cn/large/006gWfE8jw1ezoz2roxgmj30rs0lface.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3927964691394592" target="freeweibo-mirror">【中国为什么要拒绝西方模式？】因为西方模式会剥夺掉他们的特权…</a>
-</h2>
-<p>【中国为什么要拒绝西方模式？】因为西方模式会剥夺掉他们的特权和利益。1.新闻自由，他们不敢照搬，因为害怕人民监督。2.官员财产公开，他们不敢照搬，因为害怕腐败曝光。3.官员选举产生，他们不敢照搬，因为害怕人民不选他。4司法独立，他们更不敢照搬，因为他们深知自已的罪孽，害怕被审判！</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
