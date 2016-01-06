@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3928285731627743" target="freeweibo-mirror">//@瓦西里高傲男:赵家主子战斗过的地方，你也赶碰？</a>
+</h2>
+<p>//@瓦西里高傲男:赵家主子战斗过的地方，你也赶碰？<br><br>RE: 難怪李嘉誠跑路⋯⋯<br><img src="http://ww3.sinaimg.cn/large/006gWfE8jw1ezoz2roxgmj30rs0lface.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3928235152470403" target="freeweibo-mirror">---哎，冤有头债有主，不要乱咬人，谁欠你钱你就弄谁不就完了…</a>
 </h2>
 <p>---哎，冤有头债有主，不要乱咬人，谁欠你钱你就弄谁不就完了，干嘛这样伤及无辜，机枪枪毙一天。<br><br>RE: #新浪独家#【从自焚到焚人：银川公交纵火嫌犯马永平的最后一个月】马永平上过大学，到日本研修过，为了30万的工程款，一个月内先以威胁自焚讨债被拘10天，在2015年的最后一天留下绝笔信拎着两个包离家，5天后，在公交车上点燃了两桶汽油，带走了17条无辜生命。http://t.cn/R4aYRlK （新浪新闻出品）<br><img src="http://ww3.sinaimg.cn/large/60718250jw1ezp55qm8jrj206e0b40st.jpg"></p>
@@ -42,7 +48,7 @@
 </h2>
 <p>【陆客游台爱买“禁书” 书商：4年半需求至少增五倍】台湾诚品书店的一名王姓工作人员表示：“与中国政治人物，包括习近平、毛泽东、赵紫阳等，有关的书籍，是最受大陆游客欢迎的。”该工作人员表示，大陆游客常常要找的书包括毛泽东情史、赵紫阳的秘密日记、中国十大权势家族等。http://t.cn/R4a3Wzy<br><img src="http://ww4.sinaimg.cn/large/9dcb59c7jw1ezph0z0isrj20c81idaiz.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3928208389048498" target="freeweibo-mirror">和跳楼事件一样，极左思维，要国家为一切风险兜底。//@南迦巴…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3927930487317334" target="freeweibo-mirror">[吃惊] //@carlvinson金牛:李艹白色恐怖能量大</a>
 </h2>
 <p>[吃惊] //@carlvinson金牛:李艹白色恐怖能量大<br><br>RE: 接受美国培训洗脑、支持西藏独立、同情新疆分裂势力、诋毁中国政府、诋毁中国领导人、支持民yun垃圾。这些事以下截图说得清清楚楚的，这个李佳佳还有她不敢做的？组织材料举报，人人有责！<br><img src="http://ww3.sinaimg.cn/large/8dd872eejw1eznunjtqhnj20gx0i6myo.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3927930302552157" target="freeweibo-mirror">//@carlvinson金牛:李艹白色恐怖能量大</a>
-</h2>
-<p>//@carlvinson金牛:李艹白色恐怖能量大<br><br>RE: 接受美国培训洗脑、支持西藏独立、同情新疆分裂势力、诋毁中国政府、诋毁中国领导人、支持民yun垃圾。这些事以下截图说得清清楚楚的，这个李佳佳还有她不敢做的？组织材料举报，人人有责！<br><img src="http://ww3.sinaimg.cn/large/8dd872eejw1eznunjtqhnj20gx0i6myo.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
