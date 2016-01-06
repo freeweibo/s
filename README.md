@@ -72,7 +72,7 @@
 </h2>
 <p>扭腰时报是这么介绍鲁迅的著名中篇小说的。阿Q来自贫困的农村家庭，他欺负那些比自己弱小的人，同时又讨好那些轻视他的权贵。在富裕的地主家庭X家，少爷中了秀才。阿Q跟着欢庆时，X老爷却一个嘴巴抽去：“呸！你也配姓X？”<br><img src="http://ww3.sinaimg.cn/large/51c21d10gw1ezpwi2wdv3j20gn06vjrs.jpg"></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3928333366148113" target="freeweibo-mirror">一些蠢才，哪有一个干点正事的。。</a>
 </h2>
