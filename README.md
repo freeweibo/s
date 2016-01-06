@@ -42,7 +42,7 @@
 </h2>
 <p>新华社海口１月６日电（记者刘奕湛、赵颖全）２０１６年１月６日，中国政府征用的两架民航客机先后从海口美兰机场起飞，经过近２小时的飞行于１０时２１分、１０时４６分平稳降落南沙永暑礁新建机场并于当日下午返回海口，试飞成功。<br><img src="http://ww2.sinaimg.cn/large/a9619b9egw1ezq4079y8yj20c80enwf5.jpg"></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3928400231749852" target="freeweibo-mirror">回复@我我我wowowo我:真是神评论，我怎么没想到有熔断机…</a>
 </h2>
