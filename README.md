@@ -60,7 +60,7 @@
 </h2>
 <p>SPAM //@王轶庶://@比尔比尼刘：现在知道为什么鲁迅的文章会退出课本了，哈！<br><br>RE: 扭腰时报是这么介绍鲁迅的著名中篇小说的。阿Q来自贫困的农村家庭，他欺负那些比自己弱小的人，同时又讨好那些轻视他的权贵。在富裕的地主家庭X家，少爷中了秀才。阿Q跟着欢庆时，X老爷却一个嘴巴抽去：“呸！你也配姓X？”<br><img src="http://ww3.sinaimg.cn/large/51c21d10gw1ezpwi2wdv3j20gn06vjrs.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3928346813660588" target="freeweibo-mirror">希望知情者实名举报。//@V闪闪: →_→输了//@进击的熊…</a>
 </h2>
