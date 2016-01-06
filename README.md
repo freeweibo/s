@@ -72,7 +72,7 @@
 </h2>
 <p>【陆客游台爱买“禁书” 书商：4年半需求至少增五倍】台湾诚品书店的一名王姓工作人员表示：“与中国政治人物，包括习近平、毛泽东、赵紫阳等，有关的书籍，是最受大陆游客欢迎的。”该工作人员表示，大陆游客常常要找的书包括毛泽东情史、赵紫阳的秘密日记、中国十大权势家族等。http://t.cn/R4a3Wzy<br><img src="http://ww4.sinaimg.cn/large/9dcb59c7jw1ezph0z0isrj20c81idaiz.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3928208389048498" target="freeweibo-mirror">和跳楼事件一样，极左思维，要国家为一切风险兜底。//@南迦巴…</a>
 </h2>
