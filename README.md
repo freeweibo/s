@@ -30,7 +30,7 @@
 </h2>
 <p>SPAM //@王轶庶://@比尔比尼刘：现在知道为什么鲁迅的文章会退出课本了，哈！<br><br>RE: 扭腰时报是这么介绍鲁迅的著名中篇小说的。阿Q来自贫困的农村家庭，他欺负那些比自己弱小的人，同时又讨好那些轻视他的权贵。在富裕的地主家庭X家，少爷中了秀才。阿Q跟着欢庆时，X老爷却一个嘴巴抽去：“呸！你也配姓X？”<br><img src="http://ww3.sinaimg.cn/large/51c21d10gw1ezpwi2wdv3j20gn06vjrs.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3928346813660588" target="freeweibo-mirror">希望知情者实名举报。//@V闪闪: →_→输了//@进击的熊…</a>
 </h2>
@@ -96,7 +96,7 @@
 </h2>
 <p>SPAM //@小貝的真妮花:地震？ //@菜根评:平時不喜歡罵人，可是趙家這幫傻逼養的這個狗雜碎這是要把大半個中國搭進去啊！跟他們真是倒了邪霉了！</p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3928287057039700" target="freeweibo-mirror">SPAM 下载玩了，感觉还不错啊~~~画面很好。</a>
 </h2>
