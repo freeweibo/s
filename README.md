@@ -56,6 +56,12 @@
 <p>
 	<small> ============== 4小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3928100129520680" target="freeweibo-mirror">#新浪独家#【从自焚到焚人：银川公交纵火嫌犯马永平的最后一个…</a>
+</h2>
+<p>#新浪独家#【从自焚到焚人：银川公交纵火嫌犯马永平的最后一个月】马永平上过大学，到日本研修过，为了30万的工程款，一个月内先以威胁自焚讨债被拘10天，在2015年的最后一天留下绝笔信拎着两个包离家，5天后，在公交车上点燃了两桶汽油，带走了17条无辜生命。http://t.cn/R4aYRlK （新浪新闻出品）<br><img src="http://ww3.sinaimg.cn/large/60718250jw1ezp55qm8jrj206e0b40st.jpg"></p>
+<p>
+	<small> ============== 11小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3928063358252614" target="freeweibo-mirror">立即枪毙！[怒][怒] //@剑气如虹客:转发微博</a>
 </h2>
 <p>立即枪毙！[怒][怒] //@剑气如虹客:转发微博<br><br>RE: #拍案#【五问公交纵火案：马永平们为何拉无辜民众“陪葬”？】案发10个多小时，银川公交大火案疑犯马永平被抓，他承认报复社会、蓄意纵火。《新闻极客》盘点近10年来的公交纵火案发现，作案者的年龄、身份、经历虽然不同，但他们的人生轨迹、作案动机又或多或少有些相似…http://t.cn/R4aVBbV<br><img src="http://ww2.sinaimg.cn/large/60718250jw1ezoz8na5kpg208o06c7ju.gif"></p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3927914167105097" target="freeweibo-mirror">SPAM 对此类报复社会的暴徒，决不同情！[怒]</a>
 </h2>
 <p>SPAM 对此类报复社会的暴徒，决不同情！[怒]<br><br>RE: 目前来看，是报复社会的刑事案件，嫌疑人汉族～<br><img src="http://ww2.sinaimg.cn/large/c0bf0696jw1ezoj0h3bwaj20qo0zkjvv.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3927907296802999" target="freeweibo-mirror">目前来看，是报复社会的刑事案件，嫌疑人汉族～</a>
-</h2>
-<p>目前来看，是报复社会的刑事案件，嫌疑人汉族～<br><img src="http://ww2.sinaimg.cn/large/c0bf0696jw1ezoj0h3bwaj20qo0zkjvv.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
