@@ -60,25 +60,37 @@
 </h2>
 <p>//@震旦王://@龚凯杰:[月亮][月亮][笑哈哈][笑哈哈] //@佣金宝:[衰]！！ //@曹山石:今日国务院紧急会议上本人提出辞职，目前已不主持工作。周末宣布。<br><br>RE: 经典重温：肖钢自称数学差最初无意学金融，这辈子只做对这一件事情——选对了老婆。<br><img src="http://ww4.sinaimg.cn/large/7c1d7ba8gw1ezqqsctn2bj20i40580th.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3928803639882993" target="freeweibo-mirror">也就是说，肖同志在走出电梯的前一刻，抓紧着放了个奇臭无比的屁…</a>
 </h2>
 <p>也就是说，肖同志在走出电梯的前一刻，抓紧着放了个奇臭无比的屁……//@来去之间: [汗] //@曹山石:今日国务院紧急会议上本人提出辞职，目前已不主持工作。周末宣布。<br><br>RE: 经典重温：肖钢自称数学差最初无意学金融，这辈子只做对这一件事情——选对了老婆。<br><img src="http://ww4.sinaimg.cn/large/7c1d7ba8gw1ezqqsctn2bj20i40580th.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3928803569261563" target="freeweibo-mirror">//@12345小卒:三次股灾水平够高[弱]//@潘益兵:其…</a>
 </h2>
 <p>//@12345小卒:三次股灾水平够高[弱]//@潘益兵:其实早该辞职了，一般的人都羞愧死了。 //@侯宁:其实，除了股事，肖主席是幸福的! //@karryxu:不送！ //@吕健中:拜拜[拜拜] //@向小田:右边 //@曹山石:今日国务院紧急会议上本人提出辞职，目前已不主持工作。周末宣布。<br><br>RE: 经典重温：肖钢自称数学差最初无意学金融，这辈子只做对这一件事情——选对了老婆。<br><img src="http://ww4.sinaimg.cn/large/7c1d7ba8gw1ezqqsctn2bj20i40580th.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3928803392496571" target="freeweibo-mirror">他还要创造一个记录，上瘾了吧？ //@曹山石:今日国务院紧急…</a>
+</h2>
+<p>他还要创造一个记录，上瘾了吧？ //@曹山石:今日国务院紧急会议上本人提出辞职，目前已不主持工作。周末宣布。<br><br>RE: 经典重温：肖钢自称数学差最初无意学金融，这辈子只做对这一件事情——选对了老婆。<br><img src="http://ww4.sinaimg.cn/large/7c1d7ba8gw1ezqqsctn2bj20i40580th.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3928802977516883" target="freeweibo-mirror">@W振东 作了什么法力了？好神啊 //@小浪:[汗] //@…</a>
 </h2>
 <p>@W振东 作了什么法力了？好神啊 //@小浪:[汗] //@来去之间:[汗] //@曹山石:今日国务院紧急会议上本人提出辞职，目前已不主持工作。周末宣布。<br><br>RE: 经典重温：肖钢自称数学差最初无意学金融，这辈子只做对这一件事情——选对了老婆。<br><img src="http://ww4.sinaimg.cn/large/7c1d7ba8gw1ezqqsctn2bj20i40580th.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3928802327101715" target="freeweibo-mirror">[汗] //@来去之间:[汗] //@曹山石:今日国务院紧急…</a>
+</h2>
+<p>[汗] //@来去之间:[汗] //@曹山石:今日国务院紧急会议上本人提出辞职，目前已不主持工作。周末宣布。<br><br>RE: 经典重温：肖钢自称数学差最初无意学金融，这辈子只做对这一件事情——选对了老婆。<br><img src="http://ww4.sinaimg.cn/large/7c1d7ba8gw1ezqqsctn2bj20i40580th.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3928802319501946" target="freeweibo-mirror">//@记者站网:[吃惊] //@曹山石:今日国务院紧急会议上…</a>
 </h2>
@@ -98,45 +110,33 @@
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3928801035235764" target="freeweibo-mirror">这算大利好 //@曹山石:今日国务院紧急会议上本人提出辞职，…</a>
+</h2>
+<p>这算大利好 //@曹山石:今日国务院紧急会议上本人提出辞职，目前已不主持工作。周末宣布。<br><br>RE: 经典重温：肖钢自称数学差最初无意学金融，这辈子只做对这一件事情——选对了老婆。<br><img src="http://ww4.sinaimg.cn/large/7c1d7ba8gw1ezqqsctn2bj20i40580th.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3928800397967985" target="freeweibo-mirror">→_→ //@曹山石:今日国务院紧急会议上本人提出辞职，目前…</a>
+</h2>
+<p>→_→ //@曹山石:今日国务院紧急会议上本人提出辞职，目前已不主持工作。周末宣布。<br><br>RE: 经典重温：肖钢自称数学差最初无意学金融，这辈子只做对这一件事情——选对了老婆。<br><img src="http://ww4.sinaimg.cn/large/7c1d7ba8gw1ezqqsctn2bj20i40580th.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3928798761984815" target="freeweibo-mirror">历史上也留下了一笔[拜拜] //@侯宁:其实，除了股事，肖主…</a>
+</h2>
+<p>历史上也留下了一笔[拜拜] //@侯宁:其实，除了股事，肖主席是幸福的!//@karryxu:不送！//@林奇看盘:</p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3928798066222290" target="freeweibo-mirror">就这么静悄悄的走了[汗][汗][汗][思考] //@侯宁:其…</a>
 </h2>
 <p>就这么静悄悄的走了[汗][汗][汗][思考] //@侯宁:其实，除了股事，肖主席是幸福的!//@karryxu:不送！//@林奇看盘:</p>
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
-	<a href="https://freeweibo.com/weibo/3928796027596392" target="freeweibo-mirror">他这辈子做对的第二件事：辞职！ 辞职就行了？[吃惊]蒸发的钱…</a>
+	<a href="https://freeweibo.com/weibo/3928798002954218" target="freeweibo-mirror">惨淡收场 //@猫财经: //@张大云在广州:好歹保住了头发…</a>
 </h2>
-<p>他这辈子做对的第二件事：辞职！ 辞职就行了？[吃惊]蒸发的钱找谁要？//@曹山石:今日国务院紧急会议上本人提出辞职，目前已不主持工作。周末宣布。<br><br>RE: 经典重温：肖钢自称数学差最初无意学金融，这辈子只做对这一件事情——选对了老婆。<br><img src="http://ww4.sinaimg.cn/large/7c1d7ba8gw1ezqqsctn2bj20i40580th.jpg"></p>
-<p>
-	<small> ============== 3小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3928795356093820" target="freeweibo-mirror">[doge] //@曹山石:今日国务院紧急会议上本人提出辞职…</a>
-</h2>
-<p>[doge] //@曹山石:今日国务院紧急会议上本人提出辞职，目前已不主持工作。周末宣布。<br><br>RE: 经典重温：肖钢自称数学差最初无意学金融，这辈子只做对这一件事情——选对了老婆。<br><img src="http://ww4.sinaimg.cn/large/7c1d7ba8gw1ezqqsctn2bj20i40580th.jpg"></p>
-<p>
-	<small> ============== 3小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3928794337334692" target="freeweibo-mirror">SPAM //@守望曙光2: 一针见血</a>
-</h2>
-<p>SPAM //@守望曙光2: 一针见血<br><br>RE: 玩币归赵 ！</p>
-<p>
-	<small> ============== 3小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3928794027233492" target="freeweibo-mirror">肖钢辞职 //@曹山石:今日国务院紧急会议上本人提出辞职，目…</a>
-</h2>
-<p>肖钢辞职 //@曹山石:今日国务院紧急会议上本人提出辞职，目前已不主持工作。周末宣布。<br><br>RE: 经典重温：肖钢自称数学差最初无意学金融，这辈子只做对这一件事情——选对了老婆。<br><img src="http://ww4.sinaimg.cn/large/7c1d7ba8gw1ezqqsctn2bj20i40580th.jpg"></p>
-<p>
-	<small> ============== 3小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3928792441571085" target="freeweibo-mirror">//@黑牛城道长6:吼吼//@津南花農A:操！//@三岔河口…</a>
-</h2>
-<p>//@黑牛城道长6:吼吼//@津南花農A:操！//@三岔河口我的家:难道是真的？那也太无耻了。//@滨海一网民:转发微博<br><br>RE: 居然是这样？<br><img src="http://ww2.sinaimg.cn/large/4679d351jw1ezrbhuv3bbj20hs0ju418.jpg"></p>
-<p>
-	<small> ============== 3小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3928791883957359" target="freeweibo-mirror">SPAM 为位救赵；玩币归赵；赵钱损你；阉割赵舞 //@杜子…</a>
-</h2>
-<p>SPAM 为位救赵；玩币归赵；赵钱损你；阉割赵舞 //@杜子建:围危救赵<br><br>RE: 玩币归赵 ！</p>
+<p>惨淡收场 //@猫财经: //@张大云在广州:好歹保住了头发 //@曹山石:今日国务院紧急会议上本人提出辞职，目前已不主持工作。周末宣布。<br><br>RE: 经典重温：肖钢自称数学差最初无意学金融，这辈子只做对这一件事情——选对了老婆。<br><img src="http://ww4.sinaimg.cn/large/7c1d7ba8gw1ezqqsctn2bj20i40580th.jpg"></p>
 <p>
 	<small> ============== 3小时前</small>
 </p>
