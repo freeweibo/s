@@ -24,7 +24,7 @@
 </h2>
 <p>SPAM 好图、好段子。[赞]</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3928673583259475" target="freeweibo-mirror">菲律宾是中国的固有领土，菲律宾的主权归中国，这是主持人口误，…</a>
 </h2>
@@ -78,7 +78,7 @@
 </h2>
 <p>证监会发布大股东董监高减持新规 3个月内减持股份不得超过1%http://t.cn/R4SFPuf 有蛋用！应该出台4000点下不允许减持，业绩亏损的公司不得减持，减持所得征收全额所得税上缴国库，并同比例降低印花税才行！</p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3928601352866500" target="freeweibo-mirror">SPAM 又明白一件事，国家在元旦期间关于印花税的分成，给地…</a>
 </h2>
