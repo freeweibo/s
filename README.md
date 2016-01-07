@@ -26,6 +26,66 @@
 <p>
 	<small> ============== 1小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3928791623647141" target="freeweibo-mirror">怪不得微博上总有一些没有底线的五毛！ //@佬_牛://@風…</a>
+</h2>
+<p>怪不得微博上总有一些没有底线的五毛！ //@佬_牛://@風馳雲動D: 可以减刑？//@陈茂来-:云南省第三女子监狱？[吃惊]//@当律师的陈刚:为了尽快“自由”做啥都行的一类特殊喉舌<br><br>RE: 居然是这样？<br><img src="http://ww2.sinaimg.cn/large/4679d351jw1ezrbhuv3bbj20hs0ju418.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3928790915100618" target="freeweibo-mirror">SPAM //@我的律师: //@隋彭生民商法: //@李律…</a>
+</h2>
+<p>SPAM //@我的律师: //@隋彭生民商法: //@李律师136: [吃惊]<br><br>RE: 居然是这样？<br><img src="http://ww2.sinaimg.cn/large/4679d351jw1ezrbhuv3bbj20hs0ju418.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3928790285581049" target="freeweibo-mirror">【监狱里也有“网络评论员学习班”】在微博上常遇这种怪现象，帖…</a>
+</h2>
+<p>【监狱里也有“网络评论员学习班”】在微博上常遇这种怪现象，帖子发出，30分钟之内会有一批博友蜂拥而至，他们不会讲道理批评，只是异口同声地谩骂，朋友告诉我，这就是政府的网络评论员，他们每评论一条都有适当的报酬。万万没想到监狱里也有这种组织。<br><br>RE: 居然是这样？<br><img src="http://ww2.sinaimg.cn/large/4679d351jw1ezrbhuv3bbj20hs0ju418.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3928789577089912" target="freeweibo-mirror">SPAM 云南省第三女子监狱？[吃惊]//@当律师的陈刚:为…</a>
+</h2>
+<p>SPAM 云南省第三女子监狱？[吃惊]//@当律师的陈刚:为了尽快“自由”做啥都行的一类特殊喉舌<br><br>RE: 居然是这样？<br><img src="http://ww2.sinaimg.cn/large/4679d351jw1ezrbhuv3bbj20hs0ju418.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3928788922582277" target="freeweibo-mirror">SPAM //@前腐后继日月无光: //@章于非058:高人…</a>
+</h2>
+<p>SPAM //@前腐后继日月无光: //@章于非058:高人[贊] //@澳门日报社:[赞] //@虎叔-:[拜拜] //@劳丽诗:[哼]<br><br>RE: 玩币归赵 ！</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3928788704910718" target="freeweibo-mirror">//@深夜走过长安街001:[吃惊]//@燕山老狼: 五毛大…</a>
+</h2>
+<p>//@深夜走过长安街001:[吃惊]//@燕山老狼: 五毛大本营，怪不得个个都是脏口。 //@喻海文:五毛就是这样炼成的<br><br>RE: 居然是这样？<br><img src="http://ww2.sinaimg.cn/large/4679d351jw1ezrbhuv3bbj20hs0ju418.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3928786262889758" target="freeweibo-mirror">"来自监第三女子监狱各党支部的50多名通讯员网络评论员参加了…</a>
+</h2>
+<p>"来自监第三女子监狱各党支部的50多名通讯员网络评论员参加了培训...要多挖掘基层警察职工的亮点...提高自己的写作水平,促进监狱宣传工作"@平安北京 这次不是转发。是直接造谣了吧?还护犊子呢?<br><br>RE: 居然是这样？<br><img src="http://ww2.sinaimg.cn/large/4679d351jw1ezrbhuv3bbj20hs0ju418.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3928784757167426" target="freeweibo-mirror">SPAM 无敌战队 //@崔小平律师:盛世？法治？睡觉做梦吧…</a>
+</h2>
+<p>SPAM 无敌战队 //@崔小平律师:盛世？法治？睡觉做梦吧。//@孫海峯:[生病]<br><br>RE: 居然是这样？<br><img src="http://ww2.sinaimg.cn/large/4679d351jw1ezrbhuv3bbj20hs0ju418.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3928784052879416" target="freeweibo-mirror">SPAM //@崔小平律师: 盛世？法治？睡觉做梦吧。//@…</a>
+</h2>
+<p>SPAM //@崔小平律师: 盛世？法治？睡觉做梦吧。//@孫海峯:[生病]<br><br>RE: 居然是这样？<br><img src="http://ww2.sinaimg.cn/large/4679d351jw1ezrbhuv3bbj20hs0ju418.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3928783436009592" target="freeweibo-mirror">醉了//@高春辉:转发微博</a>
+</h2>
+<p>醉了//@高春辉:转发微博<br><br>RE: 居然是这样？<br><img src="http://ww2.sinaimg.cn/large/4679d351jw1ezrbhuv3bbj20hs0ju418.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3928724631948401" target="freeweibo-mirror">SPAM //@活捉死老鼠: //@莫之许最后号: 党国真是…</a>
 </h2>
 <p>SPAM //@活捉死老鼠: //@莫之许最后号: 党国真是日新月异，以前还是手机定位，转眼都腕带了，米国都是放脚踝，以存体面，这个是直接示众了。。。//@活捉死老鼠: @联合国人权高专办<br><br>RE: 浦律师被免费送戴一款“高、精、尖”的缓刑手表，据说带着洗澡也没问题。不仅能定位，或许能录音，唯一麻烦就是进洞房可能也摘不下，总之一切悠着点！<br><img src="http://ww2.sinaimg.cn/large/6a80bfcdjw1ezqzyd3fcrj20fd0qowfk.jpg"></p>
@@ -79,66 +139,6 @@
 <p>SPAM 老师：同学们，今天我们讲特色逻辑学：可以做空，但不能恶意做空；可以维权，但不能恶意维权；可以上x访，但不能恶意上x访；可以辩护，但不能恶意辩护…” 小明：“老师, 那恶意不恶意谁说了算呢？” 老师：“你这是恶意提问, 粗去！”转！@盘子微谈 @北疆观点<br><img src="http://ww3.sinaimg.cn/large/006kgA2pjw1ezqvi0yk0zj30hs0hswg1.jpg"></p>
 <p>
 	<small> ============== 11小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3928641329166252" target="freeweibo-mirror">[哈哈]//@一只学屌: 午餐给女主持加个鸡腿 //@极品榜…</a>
-</h2>
-<p>[哈哈]//@一只学屌: 午餐给女主持加个鸡腿 //@极品榜:男主持已懵逼 //@鞭鞭于白水:好奇男主持怎么接的话 //@M大王叫我来巡山:男主持表情[笑cry]。听着听着感觉不对。//@来去之间:哈哈哈</p>
-<p>
-	<small> ============== 11小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3928638027958267" target="freeweibo-mirror">SPAM 但是他们掳去的是我的肉体，你依然保管我内心的灵魂/…</a>
-</h2>
-<p>SPAM 但是他们掳去的是我的肉体，你依然保管我内心的灵魂//@李铁根:我离开了太久了，母亲！//@来去之间:哈哈哈 //@白城以北:[笑cry][笑cry][笑cry]</p>
-<p>
-	<small> ============== 11小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3928609938600817" target="freeweibo-mirror">证监会发布大股东董监高减持新规 3个月内减持股份不得超过1%…</a>
-</h2>
-<p>证监会发布大股东董监高减持新规 3个月内减持股份不得超过1%http://t.cn/R4SFPuf 有蛋用！应该出台4000点下不允许减持，业绩亏损的公司不得减持，减持所得征收全额所得税上缴国库，并同比例降低印花税才行！</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3928601352866500" target="freeweibo-mirror">SPAM 又明白一件事，国家在元旦期间关于印花税的分成，给地…</a>
-</h2>
-<p>SPAM 又明白一件事，国家在元旦期间关于印花税的分成，给地方的份额取消，全归中央。现在想明白了，原来考虑熔断减少交易时间和成交量了，印花税缩水，也不能影响中央财政。</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3928548455141959" target="freeweibo-mirror">#微感动#【愿山中生生不息[心]】上世纪 80 年代，四川九…</a>
-</h2>
-<p>#微感动#【愿山中生生不息[心]】上世纪 80 年代，四川九顶山因盗猎猖獗动物几乎绝迹，不忍环境遭破坏他组织反盗猎队。巡山一次两星期，啃干粮喝雪水，20年拆掉近10万盗猎钢丝圈...他说只愿后代能见山中生灵！经他保护一些绝迹动物重露面！65岁羌族农民余家华善良守护山中生灵[赞]http://t.cn/R4SnNoX<br><img src="http://ww2.sinaimg.cn/large/9e5389bbjw1ezq82zirvej20m80esad8.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3928452522451648" target="freeweibo-mirror">正义必胜，赵家必胜… //@胡淑芬://@刘毅: 凡标有“人…</a>
-</h2>
-<p>正义必胜，赵家必胜… //@胡淑芬://@刘毅: 凡标有“人民”二字的，只要换为“赵家”二字，一切便都清晰。“为赵家服务”“赵家公仆”“赵家法院”“赵家日报”“赵家万岁”，“赵家银行”“赵家警察”“一切权力属于赵家”“没有赵家的军队就没有赵家的一切”“我是中国赵家的儿子”“中国赵家的老//</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3928450932850848" target="freeweibo-mirror">//@刘毅: 凡标有“人民”二字的，只要换为“赵家”二字，一…</a>
-</h2>
-<p>//@刘毅: 凡标有“人民”二字的，只要换为“赵家”二字，一切便都清晰。“为赵家服务”“赵家公仆”“赵家法院”“赵家日报”“赵家万岁”，“赵家银行”“赵家警察”“一切权力属于赵家”“没有赵家的军队就没有赵家的一切”“我是中国赵家的儿子”“中国赵家的老//@艹长老105: http://t.cn/R4SY4Bf</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3928412269558583" target="freeweibo-mirror">SPAM 阿扁出访途中，是737去太平岛的吧？[耶][嘻嘻]…</a>
-</h2>
-<p>SPAM 阿扁出访途中，是737去太平岛的吧？[耶][嘻嘻]//@听风灌雨:两架都是737/320这个级别的，用来运货运人是够了。但是如果机场不能起降777/340之类远程宽体客机，永暑礁机场就不能为过往的国际航班提供备降场了，还得拓宽跑道啊！<br><br>RE: 新华社海口１月６日电（记者刘奕湛、赵颖全）２０１６年１月６日，中国政府征用的两架民航客机先后从海口美兰机场起飞，经过近２小时的飞行于１０时２１分、１０时４６分平稳降落南沙永暑礁新建机场并于当日下午返回海口，试飞成功。<br><img src="http://ww2.sinaimg.cn/large/a9619b9egw1ezq4079y8yj20c80enwf5.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3928403382437030" target="freeweibo-mirror">新华社海口１月６日电（记者刘奕湛、赵颖全）２０１６年１月６日…</a>
-</h2>
-<p>新华社海口１月６日电（记者刘奕湛、赵颖全）２０１６年１月６日，中国政府征用的两架民航客机先后从海口美兰机场起飞，经过近２小时的飞行于１０时２１分、１０时４６分平稳降落南沙永暑礁新建机场并于当日下午返回海口，试飞成功。<br><img src="http://ww2.sinaimg.cn/large/a9619b9egw1ezq4079y8yj20c80enwf5.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3928400231749852" target="freeweibo-mirror">回复@我我我wowowo我:真是神评论，我怎么没想到有熔断机…</a>
-</h2>
-<p>回复@我我我wowowo我:真是神评论，我怎么没想到有熔断机制后费煤呢？煤炭涨幅第一有合理解释了[doge] //@我我我wowowo我:可能熔断要很多煤来烧[喵喵][喵喵][喵喵][喵喵]。</p>
-<p>
-	<small> ============== 1天前</small>
 </p>
 <table>
     <tr>
