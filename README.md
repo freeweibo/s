@@ -24,7 +24,7 @@
 </h2>
 <p>SPAM //@守望曙光2: 一针见血<br><br>RE: 玩币归赵 ！</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3928791623647141" target="freeweibo-mirror">怪不得微博上总有一些没有底线的五毛！ //@佬_牛://@風…</a>
 </h2>
@@ -120,7 +120,7 @@
 </h2>
 <p>菲律宾是中国的固有领土，菲律宾的主权归中国，这是主持人口误，也是一个新闻大台不该出现的错误，而且是严重的外事错误，央视主持人这个问题上比较low！</p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3928670642732128" target="freeweibo-mirror">//@朱令是谁:靠</a>
 </h2>
