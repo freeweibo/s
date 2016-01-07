@@ -24,13 +24,13 @@
 </h2>
 <p>//@和讯网股票:关注。//@曹山石: 今日国务院紧急会议上本人提出辞职，目前已不主持工作。周末宣布。<br><br>RE: 经典重温：肖钢自称数学差最初无意学金融，这辈子只做对这一件事情——选对了老婆。<br><img src="http://ww4.sinaimg.cn/large/7c1d7ba8gw1ezqqsctn2bj20i40580th.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3928811332275464" target="freeweibo-mirror">//@人在股市十八年: //@官小睿:[衰] //@曹山石:…</a>
 </h2>
 <p>//@人在股市十八年: //@官小睿:[衰] //@曹山石:今日国务院紧急会议上本人提出辞职，目前已不主持工作。周末宣布。<br><br>RE: 经典重温：肖钢自称数学差最初无意学金融，这辈子只做对这一件事情——选对了老婆。<br><img src="http://ww4.sinaimg.cn/large/7c1d7ba8gw1ezqqsctn2bj20i40580th.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3928809336259651" target="freeweibo-mirror">极其猥琐。//@徐晋如:一个屁轰掉了6.6万亿。//@战争史…</a>
 </h2>
