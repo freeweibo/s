@@ -30,7 +30,7 @@
 </h2>
 <p>#微感动#【愿山中生生不息[心]】上世纪 80 年代，四川九顶山因盗猎猖獗动物几乎绝迹，不忍环境遭破坏他组织反盗猎队。巡山一次两星期，啃干粮喝雪水，20年拆掉近10万盗猎钢丝圈...他说只愿后代能见山中生灵！经他保护一些绝迹动物重露面！65岁羌族农民余家华善良守护山中生灵[赞]http://t.cn/R4SnNoX<br><img src="http://ww2.sinaimg.cn/large/9e5389bbjw1ezq82zirvej20m80esad8.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3928452522451648" target="freeweibo-mirror">正义必胜，赵家必胜… //@胡淑芬://@刘毅: 凡标有“人…</a>
 </h2>
