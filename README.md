@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3928609938600817" target="freeweibo-mirror">证监会发布大股东董监高减持新规 3个月内减持股份不得超过1%…</a>
+</h2>
+<p>证监会发布大股东董监高减持新规 3个月内减持股份不得超过1%http://t.cn/R4SFPuf 有蛋用！应该出台4000点下不允许减持，业绩亏损的公司不得减持，减持所得征收全额所得税上缴国库，并同比例降低印花税才行！</p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3928601352866500" target="freeweibo-mirror">SPAM 又明白一件事，国家在元旦期间关于印花税的分成，给地…</a>
 </h2>
 <p>SPAM 又明白一件事，国家在元旦期间关于印花税的分成，给地方的份额取消，全归中央。现在想明白了，原来考虑熔断减少交易时间和成交量了，印花税缩水，也不能影响中央财政。</p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3928297404601039" target="freeweibo-mirror">关于李佳佳利用“三个阵地”进行宣传的举报 致：广东省国家安全…</a>
 </h2>
 <p>关于李佳佳利用“三个阵地”进行宣传的举报 致：广东省国家安全厅、广东省网信办、广东省省委宣传部、广东广播电视台纪委<br><img src="http://ww3.sinaimg.cn/large/c857e634gw1ezprtzhe28j20c8cbz7wi.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3928295080881516" target="freeweibo-mirror">SPAM //@小貝的真妮花:地震？ //@菜根评:平時不喜…</a>
-</h2>
-<p>SPAM //@小貝的真妮花:地震？ //@菜根评:平時不喜歡罵人，可是趙家這幫傻逼養的這個狗雜碎這是要把大半個中國搭進去啊！跟他們真是倒了邪霉了！</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
