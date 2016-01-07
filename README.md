@@ -30,7 +30,7 @@
 </h2>
 <p>//@朱令是谁:靠<br><br>RE: 【敏感词？】”赵家人“——根据相关法律法规和政策，部分搜索结果未予显示。[哈哈][哈哈][哈哈]<br><img src="http://ww3.sinaimg.cn/large/5cf7ad65jw1ezqssrasedj20f00603yt.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3928664389246303" target="freeweibo-mirror">SPAM //@杨玉圣:NB的CCTV//@扯蛋居士: //…</a>
 </h2>
