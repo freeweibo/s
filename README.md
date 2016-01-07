@@ -54,7 +54,7 @@
 </h2>
 <p>中国官场，除了需要清除贪官之外，还需要大量清除傻逼和饭桶。[酷]<br><br>RE: 经典重温：肖钢自称数学差最初无意学金融，这辈子只做对这一件事情——选对了老婆。<br><img src="http://ww4.sinaimg.cn/large/7c1d7ba8gw1ezqqsctn2bj20i40580th.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3928803829295215" target="freeweibo-mirror">//@震旦王://@龚凯杰:[月亮][月亮][笑哈哈][笑哈…</a>
 </h2>
