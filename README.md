@@ -108,19 +108,19 @@
 </h2>
 <p>其实早该辞职了，一般的人都羞愧死了。 //@侯宁:其实，除了股事，肖主席是幸福的! //@karryxu:不送！ //@林奇看盘:</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3928801035235764" target="freeweibo-mirror">这算大利好 //@曹山石:今日国务院紧急会议上本人提出辞职，…</a>
 </h2>
 <p>这算大利好 //@曹山石:今日国务院紧急会议上本人提出辞职，目前已不主持工作。周末宣布。<br><br>RE: 经典重温：肖钢自称数学差最初无意学金融，这辈子只做对这一件事情——选对了老婆。<br><img src="http://ww4.sinaimg.cn/large/7c1d7ba8gw1ezqqsctn2bj20i40580th.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3928800397967985" target="freeweibo-mirror">→_→ //@曹山石:今日国务院紧急会议上本人提出辞职，目前…</a>
 </h2>
 <p>→_→ //@曹山石:今日国务院紧急会议上本人提出辞职，目前已不主持工作。周末宣布。<br><br>RE: 经典重温：肖钢自称数学差最初无意学金融，这辈子只做对这一件事情——选对了老婆。<br><img src="http://ww4.sinaimg.cn/large/7c1d7ba8gw1ezqqsctn2bj20i40580th.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3928798761984815" target="freeweibo-mirror">历史上也留下了一笔[拜拜] //@侯宁:其实，除了股事，肖主…</a>
 </h2>
