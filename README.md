@@ -72,7 +72,7 @@
 </h2>
 <p>//@深夜走过长安街001:[吃惊]//@燕山老狼: 五毛大本营，怪不得个个都是脏口。 //@喻海文:五毛就是这样炼成的<br><br>RE: 居然是这样？<br><img src="http://ww2.sinaimg.cn/large/4679d351jw1ezrbhuv3bbj20hs0ju418.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3928787349700584" target="freeweibo-mirror">SPAM [拜拜] //@劳丽诗:[哼]</a>
 </h2>
