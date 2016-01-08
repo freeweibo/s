@@ -54,7 +54,7 @@
 </h2>
 <p>极其猥琐。//@徐晋如:一个屁轰掉了6.6万亿。//@战争史研究WHS:也就是说，肖同志在走出电梯的前一刻，抓紧着放了个奇臭无比的屁……//@来去之间: [汗] //@曹山石:今日国务院紧急会议上本人提出辞职，目前已不主持工作。周末宣布。<br><br>RE: 经典重温：肖钢自称数学差最初无意学金融，这辈子只做对这一件事情——选对了老婆。<br><img src="http://ww4.sinaimg.cn/large/7c1d7ba8gw1ezqqsctn2bj20i40580th.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3928807650484387" target="freeweibo-mirror">//@地瓜老汉:[嘻嘻]……[围观][话筒]//@曹山石:今…</a>
 </h2>
@@ -108,19 +108,19 @@
 </h2>
 <p>[汗] //@来去之间:[汗] //@曹山石:今日国务院紧急会议上本人提出辞职，目前已不主持工作。周末宣布。<br><br>RE: 经典重温：肖钢自称数学差最初无意学金融，这辈子只做对这一件事情——选对了老婆。<br><img src="http://ww4.sinaimg.cn/large/7c1d7ba8gw1ezqqsctn2bj20i40580th.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3928802319501946" target="freeweibo-mirror">//@记者站网:[吃惊] //@曹山石:今日国务院紧急会议上…</a>
 </h2>
 <p>//@记者站网:[吃惊] //@曹山石:今日国务院紧急会议上本人提出辞职，目前已不主持工作。周末宣布。<br><br>RE: 经典重温：肖钢自称数学差最初无意学金融，这辈子只做对这一件事情——选对了老婆。<br><img src="http://ww4.sinaimg.cn/large/7c1d7ba8gw1ezqqsctn2bj20i40580th.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3928802013210392" target="freeweibo-mirror">嗯，已确认！//@曹山石:今日国务院紧急会议上本人提出辞职，…</a>
 </h2>
 <p>嗯，已确认！//@曹山石:今日国务院紧急会议上本人提出辞职，目前已不主持工作。周末宣布。<br><br>RE: 经典重温：肖钢自称数学差最初无意学金融，这辈子只做对这一件事情——选对了老婆。<br><img src="http://ww4.sinaimg.cn/large/7c1d7ba8gw1ezqqsctn2bj20i40580th.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3928801341957217" target="freeweibo-mirror">其实早该辞职了，一般的人都羞愧死了。 //@侯宁:其实，除了…</a>
 </h2>
