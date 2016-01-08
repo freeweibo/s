@@ -44,6 +44,12 @@
 <p>
 	<small> ============== 4小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3929086575088728" target="freeweibo-mirror">宁夏上上下下的傻逼们，都在忙着舔驴叫屁眼、推动阿拉伯语成为官…</a>
+</h2>
+<p>宁夏上上下下的傻逼们，都在忙着舔驴叫屁眼、推动阿拉伯语成为官方语言吧？你们辛苦了。<br><img src="http://ww1.sinaimg.cn/large/7a8bd141jw1ezsagcqlrtj20mu1447e5.jpg"></p>
+<p>
+	<small> ============== 7小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3929059715646099" target="freeweibo-mirror">他主持了40年代新华日报的自由宪政社论，并非政治矇昧。有人说…</a>
 </h2>
 <p>他主持了40年代新华日报的自由宪政社论，并非政治矇昧。有人说他是理想主义者加实力派，果真如此，在毛几度倒行逆施时，他当匡正错乱，逼退毛甚至废黜毛，以实现理想。但实际上他理政27年，毛的每次错乱他都是急先锋，饿死五千万，杀死斗死上千万，人民生活在极度贫困和恐惧中。请问他哪点值得纪念？<br><img src="http://ww2.sinaimg.cn/large/005RyiWxjw1ezs7dw0zm8j308a0ajt9b.jpg"></p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3928811332275464" target="freeweibo-mirror">//@人在股市十八年: //@官小睿:[衰] //@曹山石:…</a>
 </h2>
 <p>//@人在股市十八年: //@官小睿:[衰] //@曹山石:今日国务院紧急会议上本人提出辞职，目前已不主持工作。周末宣布。<br><br>RE: 经典重温：肖钢自称数学差最初无意学金融，这辈子只做对这一件事情——选对了老婆。<br><img src="http://ww4.sinaimg.cn/large/7c1d7ba8gw1ezqqsctn2bj20i40580th.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3928809336259651" target="freeweibo-mirror">极其猥琐。//@徐晋如:一个屁轰掉了6.6万亿。//@战争史…</a>
-</h2>
-<p>极其猥琐。//@徐晋如:一个屁轰掉了6.6万亿。//@战争史研究WHS:也就是说，肖同志在走出电梯的前一刻，抓紧着放了个奇臭无比的屁……//@来去之间: [汗] //@曹山石:今日国务院紧急会议上本人提出辞职，目前已不主持工作。周末宣布。<br><br>RE: 经典重温：肖钢自称数学差最初无意学金融，这辈子只做对这一件事情——选对了老婆。<br><img src="http://ww4.sinaimg.cn/large/7c1d7ba8gw1ezqqsctn2bj20i40580th.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
