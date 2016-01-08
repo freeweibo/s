@@ -66,7 +66,7 @@
 </h2>
 <p>宁夏上上下下的傻逼们，都在忙着舔驴叫屁眼、推动阿拉伯语成为官方语言吧？你们辛苦了。<br><img src="http://ww1.sinaimg.cn/large/7a8bd141jw1ezsagcqlrtj20mu1447e5.jpg"></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3929059715646099" target="freeweibo-mirror">他主持了40年代新华日报的自由宪政社论，并非政治矇昧。有人说…</a>
 </h2>
