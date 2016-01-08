@@ -26,6 +26,12 @@
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3929151498985746" target="freeweibo-mirror">SPAM 链接中的文章说，2011年沙特最高宗教会议的Sal…</a>
+</h2>
+<p>SPAM 链接中的文章说，2011年沙特最高宗教会议的Salih bin Fawzan也援引古兰经65:4，拒绝为女性设定最低婚龄。近几年沙特王族和富人流行去约旦和黎巴嫩购买9岁到14岁的叙利亚难民女童，带回沙特奸污，均价200美元一个。玩腻了之后就将其送给其他男性。<br><br>RE: http://t.cn/R4Kdzc7 沙特的大穆夫提（教法解说官）Sheikh Abdulaziz否决了沙特司法部提议的15岁最低婚龄限制，裁定女性无论多年幼都可嫁给男人，甚至在摇篮里（in the cradle）也可以。沙特有8岁女童在新婚之夜被奸死，还有10岁女童嫁给80岁丈夫。<br><img src="http://ww3.sinaimg.cn/large/a68d6077jw1ezshp7tsz5j20go0e2gn0.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3929140921511804" target="freeweibo-mirror">//@高军:警方应该有人出来担责 //@刘世坚:两次报警，都…</a>
 </h2>
 <p>//@高军:警方应该有人出来担责 //@刘世坚:两次报警，都未能引起重视，需要追责。 //@真金无畏:本来可以避免悲剧发生？？[蜡烛]//@glareyl://@悠悠又见南山://@游园惊易:土鳖只有死了人才是大事才会重视，否则就是跪舔绿大爷和洋大人，为人民服务就是笑话<br><br>RE: 宁夏上上下下的傻逼们，都在忙着舔驴叫屁眼、推动阿拉伯语成为官方语言吧？你们辛苦了。<br><img src="http://ww1.sinaimg.cn/large/7a8bd141jw1ezsagcqlrtj20mu1447e5.jpg"></p>
@@ -78,7 +84,7 @@
 </h2>
 <p>中宣部下发通知，做好贴春联工作。<br><img src="http://ww3.sinaimg.cn/large/7061c249gw1ezs4wx1eryj20i60hjdkv.jpg"></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3929035614256545" target="freeweibo-mirror">//@路见不平的家001://@爷们正义记者: //@陈家碧…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3928935219981717" target="freeweibo-mirror">妄议……[阴险][阴险]//@早报网:胡孙两人被外界视为中共…</a>
 </h2>
 <p>妄议……[阴险][阴险]//@早报网:胡孙两人被外界视为中共第六代掌军人物，也是总书记和总理接班人的热门人选。这一轮从政绩上看，重庆显得比广东好些，在一定程度上要归功于重庆市长黄奇帆，如果孙黄真如传闻中赴京任职，“那边（重庆）动一下，这边（广东）就会有压力”。</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3928811487553033" target="freeweibo-mirror">//@和讯网股票:关注。//@曹山石: 今日国务院紧急会议上…</a>
-</h2>
-<p>//@和讯网股票:关注。//@曹山石: 今日国务院紧急会议上本人提出辞职，目前已不主持工作。周末宣布。<br><br>RE: 经典重温：肖钢自称数学差最初无意学金融，这辈子只做对这一件事情——选对了老婆。<br><img src="http://ww4.sinaimg.cn/large/7c1d7ba8gw1ezqqsctn2bj20i40580th.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
