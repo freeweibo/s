@@ -38,6 +38,12 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3929059715646099" target="freeweibo-mirror">他主持了40年代新华日报的自由宪政社论，并非政治矇昧。有人说…</a>
+</h2>
+<p>他主持了40年代新华日报的自由宪政社论，并非政治矇昧。有人说他是理想主义者加实力派，果真如此，在毛几度倒行逆施时，他当匡正错乱，逼退毛甚至废黜毛，以实现理想。但实际上他理政27年，毛的每次错乱他都是急先锋，饿死五千万，杀死斗死上千万，人民生活在极度贫困和恐惧中。请问他哪点值得纪念？<br><img src="http://ww2.sinaimg.cn/large/005RyiWxjw1ezs7dw0zm8j308a0ajt9b.jpg"></p>
+<p>
+	<small> ============== 6小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3929052567657267" target="freeweibo-mirror">SPAM  //@宝宝用品跟我买:开团中，英国进口原料，【手…</a>
 </h2>
 <p>SPAM  //@宝宝用品跟我买:开团中，英国进口原料，【手工无盐有机宝宝彩色蔬菜面条小面片】适合面片适合6-8个月不会咀嚼的小宝宝，入水非常好煮，1分多钟就能熟透。150g,团价21.2元，拍下备注辅食团，改价后付款。（与其他团品一起拍下满99包邮除偏）http://t.cn/R4KbyQz</p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3928807650484387" target="freeweibo-mirror">//@地瓜老汉:[嘻嘻]……[围观][话筒]//@曹山石:今…</a>
 </h2>
 <p>//@地瓜老汉:[嘻嘻]……[围观][话筒]//@曹山石:今日国务院紧急会议上本人提出辞职，目前已不主持工作。周末宣布。<br><br>RE: 经典重温：肖钢自称数学差最初无意学金融，这辈子只做对这一件事情——选对了老婆。<br><img src="http://ww4.sinaimg.cn/large/7c1d7ba8gw1ezqqsctn2bj20i40580th.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3928805649258933" target="freeweibo-mirror">拜拜 //@吕健中:拜拜[拜拜] //@向小田:右边 //@…</a>
-</h2>
-<p>拜拜 //@吕健中:拜拜[拜拜] //@向小田:右边 //@曹山石:今日国务院紧急会议上本人提出辞职，目前已不主持工作。周末宣布。<br><br>RE: 经典重温：肖钢自称数学差最初无意学金融，这辈子只做对这一件事情——选对了老婆。<br><img src="http://ww4.sinaimg.cn/large/7c1d7ba8gw1ezqqsctn2bj20i40580th.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
