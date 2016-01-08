@@ -36,7 +36,7 @@
 </h2>
 <p>http://t.cn/R4Kdzc7 沙特的大穆夫提（教法解说官）Sheikh Abdulaziz否决了沙特司法部提议的15岁最低婚龄限制，裁定女性无论多年幼都可嫁给男人，甚至在摇篮里（in the cradle）也可以。沙特有8岁女童在新婚之夜被奸死，还有10岁女童嫁给80岁丈夫。<br><img src="http://ww3.sinaimg.cn/large/a68d6077jw1ezshp7tsz5j20go0e2gn0.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3929140921511804" target="freeweibo-mirror">//@高军:警方应该有人出来担责 //@刘世坚:两次报警，都…</a>
 </h2>
@@ -72,7 +72,7 @@
 </h2>
 <p>他主持了40年代新华日报的自由宪政社论，并非政治矇昧。有人说他是理想主义者加实力派，果真如此，在毛几度倒行逆施时，他当匡正错乱，逼退毛甚至废黜毛，以实现理想。但实际上他理政27年，毛的每次错乱他都是急先锋，饿死五千万，杀死斗死上千万，人民生活在极度贫困和恐惧中。请问他哪点值得纪念？<br><img src="http://ww2.sinaimg.cn/large/005RyiWxjw1ezs7dw0zm8j308a0ajt9b.jpg"></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3929052567657267" target="freeweibo-mirror">SPAM  //@宝宝用品跟我买:开团中，英国进口原料，【手…</a>
 </h2>
