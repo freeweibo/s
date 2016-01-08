@@ -66,7 +66,7 @@
 </h2>
 <p>宁夏上上下下的傻逼们，都在忙着舔驴叫屁眼、推动阿拉伯语成为官方语言吧？你们辛苦了。<br><img src="http://ww1.sinaimg.cn/large/7a8bd141jw1ezsagcqlrtj20mu1447e5.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3929059715646099" target="freeweibo-mirror">他主持了40年代新华日报的自由宪政社论，并非政治矇昧。有人说…</a>
 </h2>
@@ -84,7 +84,7 @@
 </h2>
 <p>SPAM //@蓝鲸财经记者工作平台: [最右]//@可米中子：上联：去年你融我融大家融融到破产。下联：今年小熔大熔连续熔熔到停盘。横批：其乐融熔.”<br><br>RE: 中宣部下发通知，做好贴春联工作。<br><img src="http://ww3.sinaimg.cn/large/7061c249gw1ezs4wx1eryj20i60hjdkv.jpg"></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3929038424816848" target="freeweibo-mirror">中宣部下发通知，做好贴春联工作。</a>
 </h2>
