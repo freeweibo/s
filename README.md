@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3928972557695037" target="freeweibo-mirror">SPAM 回复@有用而无用: 不为我的文采点赞，还来讽刺挖苦…</a>
+</h2>
+<p>SPAM 回复@有用而无用: 不为我的文采点赞，还来讽刺挖苦，你不会是蔡依林旁边的舞男吧[嘻嘻] //@有用而无用:处女座的周总略有点闷骚哦[拜拜]</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3928951619119365" target="freeweibo-mirror">SPAM //@朴抱一: 还有一句，俄国人不管做什么，也都要…</a>
 </h2>
 <p>SPAM //@朴抱一: 还有一句，俄国人不管做什么，也都要在中俄友好的大局去理解。。//@石扉客2014: 精准 //@文山娃:[哈哈]<br><br>RE: 千万篇环球时报政论，其实只有两句话：1.「党国这么做，一定有它的道理。有时党国看起来没道理，但其实还是很有道理。」。2.「西方这么做，一定有它的阴谋。有时西方看起来没阴谋，但其实还是很有阴谋。」围绕这两句话，结合时事扩写呗。@胡锡进 http://t.cn/R4amVCX</p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3928801035235764" target="freeweibo-mirror">这算大利好 //@曹山石:今日国务院紧急会议上本人提出辞职，…</a>
 </h2>
 <p>这算大利好 //@曹山石:今日国务院紧急会议上本人提出辞职，目前已不主持工作。周末宣布。<br><br>RE: 经典重温：肖钢自称数学差最初无意学金融，这辈子只做对这一件事情——选对了老婆。<br><img src="http://ww4.sinaimg.cn/large/7c1d7ba8gw1ezqqsctn2bj20i40580th.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3928800397967985" target="freeweibo-mirror">→_→ //@曹山石:今日国务院紧急会议上本人提出辞职，目前…</a>
-</h2>
-<p>→_→ //@曹山石:今日国务院紧急会议上本人提出辞职，目前已不主持工作。周末宣布。<br><br>RE: 经典重温：肖钢自称数学差最初无意学金融，这辈子只做对这一件事情——选对了老婆。<br><img src="http://ww4.sinaimg.cn/large/7c1d7ba8gw1ezqqsctn2bj20i40580th.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
