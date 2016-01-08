@@ -24,7 +24,7 @@
 </h2>
 <p>http://t.cn/R4KgKYy 搜了一下CNN的报道，这位大穆夫提在2009年的时候还保守一些，说一个10岁到12岁的女童可以出嫁，“那些认为（新娘）太年轻的看法是错的，对她（新娘）不公平”。他是在拒绝宣布一桩47岁男人娶8岁女童的婚姻无效时说这番话的<br><br>RE: http://t.cn/R4Kdzc7 沙特的大穆夫提（教法解说官）Sheikh Abdulaziz否决了沙特司法部提议的15岁最低婚龄限制，裁定女性无论多年幼都可嫁给男人，甚至在摇篮里（in the cradle）也可以。沙特有8岁女童在新婚之夜被奸死，还有10岁女童嫁给80岁丈夫。<br><img src="http://ww3.sinaimg.cn/large/a68d6077jw1ezshp7tsz5j20go0e2gn0.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3929151498985746" target="freeweibo-mirror">SPAM 链接中的文章说，2011年沙特最高宗教会议的Sal…</a>
 </h2>
