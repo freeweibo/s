@@ -72,7 +72,7 @@
 </h2>
 <p>@William 昨晚去舒向新律师家，舒律师夫人去蔡瑛律师处未回，舒律师的女儿在家。···于新永、张继伟也相继过来看望舒律师家人。我们等舒律师夫人（刘秀芹）回来后了解了舒律师在看守所的情况。看守所对舒向新的验伤报告如下：眼部、头部多处外伤，有脑积水、脑萎缩、脑梗塞症状。——曝光邪恶转起来！<br><img src="http://ww4.sinaimg.cn/large/8832d4d7gw1ezrvgtov46j20ci0m8jrw.jpg"></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3928951619119365" target="freeweibo-mirror">SPAM //@朴抱一: 还有一句，俄国人不管做什么，也都要…</a>
 </h2>
