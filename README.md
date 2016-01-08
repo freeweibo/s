@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3929157945371009" target="freeweibo-mirror">http://t.cn/R4KgKYy 搜了一下CNN的报道…</a>
+</h2>
+<p>http://t.cn/R4KgKYy 搜了一下CNN的报道，这位大穆夫提在2009年的时候还保守一些，说一个10岁到12岁的女童可以出嫁，“那些认为（新娘）太年轻的看法是错的，对她（新娘）不公平”。他是在拒绝宣布一桩47岁男人娶8岁女童的婚姻无效时说这番话的<br><br>RE: http://t.cn/R4Kdzc7 沙特的大穆夫提（教法解说官）Sheikh Abdulaziz否决了沙特司法部提议的15岁最低婚龄限制，裁定女性无论多年幼都可嫁给男人，甚至在摇篮里（in the cradle）也可以。沙特有8岁女童在新婚之夜被奸死，还有10岁女童嫁给80岁丈夫。<br><img src="http://ww3.sinaimg.cn/large/a68d6077jw1ezshp7tsz5j20go0e2gn0.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3929140921511804" target="freeweibo-mirror">//@高军:警方应该有人出来担责 //@刘世坚:两次报警，都…</a>
 </h2>
 <p>//@高军:警方应该有人出来担责 //@刘世坚:两次报警，都未能引起重视，需要追责。 //@真金无畏:本来可以避免悲剧发生？？[蜡烛]//@glareyl://@悠悠又见南山://@游园惊易:土鳖只有死了人才是大事才会重视，否则就是跪舔绿大爷和洋大人，为人民服务就是笑话<br><br>RE: 宁夏上上下下的傻逼们，都在忙着舔驴叫屁眼、推动阿拉伯语成为官方语言吧？你们辛苦了。<br><img src="http://ww1.sinaimg.cn/large/7a8bd141jw1ezsagcqlrtj20mu1447e5.jpg"></p>
@@ -60,7 +66,7 @@
 </h2>
 <p>SPAM  //@宝宝用品跟我买:开团中，英国进口原料，【手工无盐有机宝宝彩色蔬菜面条小面片】适合面片适合6-8个月不会咀嚼的小宝宝，入水非常好煮，1分多钟就能熟透。150g,团价21.2元，拍下备注辅食团，改价后付款。（与其他团品一起拍下满99包邮除偏）http://t.cn/R4KbyQz</p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3929041189462310" target="freeweibo-mirror">SPAM //@蓝鲸财经记者工作平台: [最右]//@可米中…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3928811487553033" target="freeweibo-mirror">//@和讯网股票:关注。//@曹山石: 今日国务院紧急会议上…</a>
 </h2>
 <p>//@和讯网股票:关注。//@曹山石: 今日国务院紧急会议上本人提出辞职，目前已不主持工作。周末宣布。<br><br>RE: 经典重温：肖钢自称数学差最初无意学金融，这辈子只做对这一件事情——选对了老婆。<br><img src="http://ww4.sinaimg.cn/large/7c1d7ba8gw1ezqqsctn2bj20i40580th.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3928811332275464" target="freeweibo-mirror">//@人在股市十八年: //@官小睿:[衰] //@曹山石:…</a>
-</h2>
-<p>//@人在股市十八年: //@官小睿:[衰] //@曹山石:今日国务院紧急会议上本人提出辞职，目前已不主持工作。周末宣布。<br><br>RE: 经典重温：肖钢自称数学差最初无意学金融，这辈子只做对这一件事情——选对了老婆。<br><img src="http://ww4.sinaimg.cn/large/7c1d7ba8gw1ezqqsctn2bj20i40580th.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
