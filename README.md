@@ -24,7 +24,7 @@
 </h2>
 <p>SPAM @芭莎艺术 ！</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3929157945371009" target="freeweibo-mirror">http://t.cn/R4KgKYy 搜了一下CNN的报道…</a>
 </h2>
