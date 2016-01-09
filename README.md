@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3929332814264701" target="freeweibo-mirror">SPAM @芭莎艺术 ！</a>
+</h2>
+<p>SPAM @芭莎艺术 ！</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3929157945371009" target="freeweibo-mirror">http://t.cn/R4KgKYy 搜了一下CNN的报道…</a>
 </h2>
 <p>http://t.cn/R4KgKYy 搜了一下CNN的报道，这位大穆夫提在2009年的时候还保守一些，说一个10岁到12岁的女童可以出嫁，“那些认为（新娘）太年轻的看法是错的，对她（新娘）不公平”。他是在拒绝宣布一桩47岁男人娶8岁女童的婚姻无效时说这番话的<br><br>RE: http://t.cn/R4Kdzc7 沙特的大穆夫提（教法解说官）Sheikh Abdulaziz否决了沙特司法部提议的15岁最低婚龄限制，裁定女性无论多年幼都可嫁给男人，甚至在摇篮里（in the cradle）也可以。沙特有8岁女童在新婚之夜被奸死，还有10岁女童嫁给80岁丈夫。<br><img src="http://ww3.sinaimg.cn/large/a68d6077jw1ezshp7tsz5j20go0e2gn0.jpg"></p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3928951619119365" target="freeweibo-mirror">SPAM //@朴抱一: 还有一句，俄国人不管做什么，也都要…</a>
 </h2>
 <p>SPAM //@朴抱一: 还有一句，俄国人不管做什么，也都要在中俄友好的大局去理解。。//@石扉客2014: 精准 //@文山娃:[哈哈]<br><br>RE: 千万篇环球时报政论，其实只有两句话：1.「党国这么做，一定有它的道理。有时党国看起来没道理，但其实还是很有道理。」。2.「西方这么做，一定有它的阴谋。有时西方看起来没阴谋，但其实还是很有阴谋。」围绕这两句话，结合时事扩写呗。@胡锡进 http://t.cn/R4amVCX</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3928951057476601" target="freeweibo-mirror">SPAM 还有一句，俄国人不管做什么，也都要在中俄友好的大局…</a>
-</h2>
-<p>SPAM 还有一句，俄国人不管做什么，也都要在中俄友好的大局去理解。。//@石扉客2014: 精准 //@文山娃:[哈哈]<br><br>RE: 千万篇环球时报政论，其实只有两句话：1.「党国这么做，一定有它的道理。有时党国看起来没道理，但其实还是很有道理。」。2.「西方这么做，一定有它的阴谋。有时西方看起来没阴谋，但其实还是很有阴谋。」围绕这两句话，结合时事扩写呗。@胡锡进 http://t.cn/R4amVCX</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
