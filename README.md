@@ -126,7 +126,7 @@
 </h2>
 <p>SPAM //@蓝鲸财经记者工作平台: [最右]//@可米中子：上联：去年你融我融大家融融到破产。下联：今年小熔大熔连续熔熔到停盘。横批：其乐融熔.”<br><br>RE: 中宣部下发通知，做好贴春联工作。<br><img src="http://ww3.sinaimg.cn/large/7061c249gw1ezs4wx1eryj20i60hjdkv.jpg"></p>
 <p>
-	<small> ============== 1天前</small>
+	<small> ============== 2天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3929038424816848" target="freeweibo-mirror">中宣部下发通知，做好贴春联工作。</a>
 </h2>
