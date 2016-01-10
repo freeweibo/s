@@ -54,7 +54,7 @@
 </h2>
 <p>SPAM [思考] //@南方的街头:东方之珠，中国的明珠！[拳头][拳头][拳头]<br><br>RE: 声援！<br><img src="http://ww4.sinaimg.cn/large/c03bf6d0gw1ezuf6v5h3gj20zk0qotel.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3929777675210972" target="freeweibo-mirror">SPAM ……SB系列还是就印在鞋舌上得了……这么大写加粗的…</a>
 </h2>
@@ -84,7 +84,7 @@
 </h2>
 <p>香港人堅持抗爭，一點燭光帶動全國天亮<br><img src="http://ww4.sinaimg.cn/large/006ebMUyjw1ezuelqxbhzj30p018g45u.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3929746737646410" target="freeweibo-mirror">//@贺卫方:【为什么是一只鸡？反戈一鸡？】//@演员孙海英…</a>
 </h2>
