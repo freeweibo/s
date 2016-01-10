@@ -24,7 +24,7 @@
 </h2>
 <p>虽然个别律师的行为让公民无比心寒，但是当前的大环境下，暂且丢掉个人恩怨，为有作为的律师呼吁义不容辞！王秋实已失联24小时，我们共同关注。<br><br>RE: 【紧急关注：王秋石律师失联！】刘薇律师信息：（截至1月9日23：54分）王秋实律师（王全璋律师的辩护人）在京失联超过12小时。<br><img src="http://ww1.sinaimg.cn/large/6a80bfcdjw1eztovuzei7j20m80cijsd.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3929746737646410" target="freeweibo-mirror">//@贺卫方:【为什么是一只鸡？反戈一鸡？】//@演员孙海英…</a>
 </h2>
@@ -86,6 +86,12 @@
 <p>
 	<small> ============== 1天前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3929525564411335" target="freeweibo-mirror">【紧急关注：王秋石律师失联！】刘薇律师信息：（截至1月9日2…</a>
+</h2>
+<p>【紧急关注：王秋石律师失联！】刘薇律师信息：（截至1月9日23：54分）王秋实律师（王全璋律师的辩护人）在京失联超过12小时。<br><img src="http://ww1.sinaimg.cn/large/6a80bfcdjw1eztovuzei7j20m80cijsd.jpg"></p>
+<p>
+	<small> ============== 1天前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3929476985409286" target="freeweibo-mirror">【向@山东公安 报警，这次不止“约架”！】原“纳吧”团伙在“…</a>
 </h2>
 <p>【向@山东公安 报警，这次不止“约架”！】原“纳吧”团伙在“北冰洋战争吧”发布大量政治反动及人肉搜索。今日该吧内有帐号发布消息，策划一起暴力“砍人”事件，要对方“两个指头”，“5000元跑路”。此团伙疑似通过公安内部户籍系统获取潜在受害人全家信息！“文登7.22”再现！@公安部打四黑除四害<br><img src="http://ww4.sinaimg.cn/large/005AX0pcgw1eztil87p5kj30qj0ig429.jpg"></p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3929157945371009" target="freeweibo-mirror">http://t.cn/R4KgKYy 搜了一下CNN的报道…</a>
 </h2>
 <p>http://t.cn/R4KgKYy 搜了一下CNN的报道，这位大穆夫提在2009年的时候还保守一些，说一个10岁到12岁的女童可以出嫁，“那些认为（新娘）太年轻的看法是错的，对她（新娘）不公平”。他是在拒绝宣布一桩47岁男人娶8岁女童的婚姻无效时说这番话的<br><br>RE: http://t.cn/R4Kdzc7 沙特的大穆夫提（教法解说官）Sheikh Abdulaziz否决了沙特司法部提议的15岁最低婚龄限制，裁定女性无论多年幼都可嫁给男人，甚至在摇篮里（in the cradle）也可以。沙特有8岁女童在新婚之夜被奸死，还有10岁女童嫁给80岁丈夫。<br><img src="http://ww3.sinaimg.cn/large/a68d6077jw1ezshp7tsz5j20go0e2gn0.jpg"></p>
-<p>
-	<small> ============== 2天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3929151498985746" target="freeweibo-mirror">SPAM 链接中的文章说，2011年沙特最高宗教会议的Sal…</a>
-</h2>
-<p>SPAM 链接中的文章说，2011年沙特最高宗教会议的Salih bin Fawzan也援引古兰经65:4，拒绝为女性设定最低婚龄。近几年沙特王族和富人流行去约旦和黎巴嫩购买9岁到14岁的叙利亚难民女童，带回沙特奸污，均价200美元一个。玩腻了之后就将其送给其他男性。<br><br>RE: http://t.cn/R4Kdzc7 沙特的大穆夫提（教法解说官）Sheikh Abdulaziz否决了沙特司法部提议的15岁最低婚龄限制，裁定女性无论多年幼都可嫁给男人，甚至在摇篮里（in the cradle）也可以。沙特有8岁女童在新婚之夜被奸死，还有10岁女童嫁给80岁丈夫。<br><img src="http://ww3.sinaimg.cn/large/a68d6077jw1ezshp7tsz5j20go0e2gn0.jpg"></p>
 <p>
 	<small> ============== 2天前</small>
 </p>
