@@ -72,7 +72,7 @@
 </h2>
 <p>虽然个别律师的行为让公民无比心寒，但是当前的大环境下，暂且丢掉个人恩怨，为有作为的律师呼吁义不容辞！王秋实已失联24小时，我们共同关注。<br><br>RE: 【紧急关注：王秋石律师失联！】刘薇律师信息：（截至1月9日23：54分）王秋实律师（王全璋律师的辩护人）在京失联超过12小时。<br><img src="http://ww1.sinaimg.cn/large/6a80bfcdjw1eztovuzei7j20m80cijsd.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3929754732520157" target="freeweibo-mirror">声援！</a>
 </h2>
@@ -126,7 +126,7 @@
 </h2>
 <p>在国家信访局附近，和很多访民在一起，他们都上网，也关心别人的维权，有的还和我在一个微信群<br><img src="http://ww3.sinaimg.cn/large/006lnxmkgw1ezu84cupdmj30zk0qoail.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3929667570581863" target="freeweibo-mirror">//@东海老鲵:有这样的公安，您作为商人，敢去投资么？公安，…</a>
 </h2>
