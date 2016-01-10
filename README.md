@@ -84,7 +84,7 @@
 </h2>
 <p>SPAM 链接中的文章说，2011年沙特最高宗教会议的Salih bin Fawzan也援引古兰经65:4，拒绝为女性设定最低婚龄。近几年沙特王族和富人流行去约旦和黎巴嫩购买9岁到14岁的叙利亚难民女童，带回沙特奸污，均价200美元一个。玩腻了之后就将其送给其他男性。<br><br>RE: http://t.cn/R4Kdzc7 沙特的大穆夫提（教法解说官）Sheikh Abdulaziz否决了沙特司法部提议的15岁最低婚龄限制，裁定女性无论多年幼都可嫁给男人，甚至在摇篮里（in the cradle）也可以。沙特有8岁女童在新婚之夜被奸死，还有10岁女童嫁给80岁丈夫。<br><img src="http://ww3.sinaimg.cn/large/a68d6077jw1ezshp7tsz5j20go0e2gn0.jpg"></p>
 <p>
-	<small> ============== 1天前</small>
+	<small> ============== 2天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3929150370357639" target="freeweibo-mirror">http://t.cn/R4Kdzc7 沙特的大穆夫提（教法…</a>
 </h2>
