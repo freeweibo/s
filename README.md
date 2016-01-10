@@ -38,6 +38,12 @@
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3929754732520157" target="freeweibo-mirror">声援！</a>
+</h2>
+<p>声援！<br><img src="http://ww4.sinaimg.cn/large/c03bf6d0gw1ezuf6v5h3gj20zk0qotel.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3929746737646410" target="freeweibo-mirror">//@贺卫方:【为什么是一只鸡？反戈一鸡？】//@演员孙海英…</a>
 </h2>
 <p>//@贺卫方:【为什么是一只鸡？反戈一鸡？】//@演员孙海英: 反戈一功，给你一只鸡！//@贺卫方: 【哪壶不开提哪壶】这个徐昕，专戳老鹤的痛处，俺本来心里已经醋意盎然了，你还把这个隐痛给揭露出来，造成二次伤害，叔可忍，婶不可忍！赶快备好茅台，给俺负酒请罪！//@徐昕: 老鹤你这是吃醋的感觉嘛</p>
@@ -78,7 +84,7 @@
 </h2>
 <p>在国家信访局附近，和很多访民在一起，他们都上网，也关心别人的维权，有的还和我在一个微信群<br><img src="http://ww3.sinaimg.cn/large/006lnxmkgw1ezu84cupdmj30zk0qoail.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3929667570581863" target="freeweibo-mirror">//@东海老鲵:有这样的公安，您作为商人，敢去投资么？公安，…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3929382785876522" target="freeweibo-mirror">穿上大家都是屯里的潮人 //@妖妖小精:一个大写的耐克</a>
 </h2>
 <p>穿上大家都是屯里的潮人 //@妖妖小精:一个大写的耐克</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3929362477081859" target="freeweibo-mirror">SPAM ？？？？？ //@蛋花花花子:哈哈哈哈哈哈哈哈哈哈…</a>
-</h2>
-<p>SPAM ？？？？？ //@蛋花花花子:哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈 //@然后下面就没了:设计师都在想什么，好好设计不行吗[微笑]</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
