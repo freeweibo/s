@@ -36,7 +36,7 @@
 </h2>
 <p>SPAM 啊！我是来拉低中奖率的！求中[爱你][爱你]</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3929694862793147" target="freeweibo-mirror">SPAM //@aoliduo---: [赞]</a>
 </h2>
