@@ -30,7 +30,7 @@
 </h2>
 <p>SPAM [偷笑][偷笑]</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3929875305695108" target="freeweibo-mirror">台独也好，港独也好，务必证据充分，铁案如山。只是有嫌疑的，可…</a>
 </h2>
@@ -108,7 +108,7 @@
 </h2>
 <p>//@楚天遥的微博: //@上海老哥: 转发微博<br><br>RE: 香港人堅持抗爭，一點燭光帶動全國天亮<br><img src="http://ww4.sinaimg.cn/large/006ebMUyjw1ezuelqxbhzj30p018g45u.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3929819085646126" target="freeweibo-mirror">SPAM 个中信息量极大。</a>
 </h2>
@@ -120,7 +120,7 @@
 </h2>
 <p>SPAM //@与非YUFEI://@呆板的鱼：港人要自己争取权利，我们帮不了你们了。<br><br>RE: 捍卫香港的自由，就是拯救奴隶的命运，同抗争，共命运！[酷][话筒][话筒][话筒]<br><img src="http://ww3.sinaimg.cn/large/006jET6jgw1ezuhi2ouxrj30qo0hs0ve.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3929787804081106" target="freeweibo-mirror">SPAM //@招远快乐小羊: //@梧桐树影影婆娑: //…</a>
 </h2>
