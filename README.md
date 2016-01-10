@@ -66,7 +66,7 @@
 </h2>
 <p>捍卫香港的自由，就是拯救奴隶的命运，同抗争，共命运！[酷][话筒][话筒][话筒]<br><img src="http://ww3.sinaimg.cn/large/006jET6jgw1ezuhi2ouxrj30qo0hs0ve.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3929761032045552" target="freeweibo-mirror">虽然个别律师的行为让公民无比心寒，但是当前的大环境下，暂且丢…</a>
 </h2>
