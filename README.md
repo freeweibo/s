@@ -66,7 +66,7 @@
 </h2>
 <p>正面是这样的</p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3929858926957445" target="freeweibo-mirror">网信办直接办，何须法院？</a>
 </h2>
@@ -120,7 +120,7 @@
 </h2>
 <p>SPAM //@与非YUFEI://@呆板的鱼：港人要自己争取权利，我们帮不了你们了。<br><br>RE: 捍卫香港的自由，就是拯救奴隶的命运，同抗争，共命运！[酷][话筒][话筒][话筒]<br><img src="http://ww3.sinaimg.cn/large/006jET6jgw1ezuhi2ouxrj30qo0hs0ve.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3929787804081106" target="freeweibo-mirror">SPAM //@招远快乐小羊: //@梧桐树影影婆娑: //…</a>
 </h2>
