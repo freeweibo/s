@@ -72,11 +72,17 @@
 </h2>
 <p>虽然个别律师的行为让公民无比心寒，但是当前的大环境下，暂且丢掉个人恩怨，为有作为的律师呼吁义不容辞！王秋实已失联24小时，我们共同关注。<br><br>RE: 【紧急关注：王秋石律师失联！】刘薇律师信息：（截至1月9日23：54分）王秋实律师（王全璋律师的辩护人）在京失联超过12小时。<br><img src="http://ww1.sinaimg.cn/large/6a80bfcdjw1eztovuzei7j20m80cijsd.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3929754732520157" target="freeweibo-mirror">声援！</a>
 </h2>
 <p>声援！<br><img src="http://ww4.sinaimg.cn/large/c03bf6d0gw1ezuf6v5h3gj20zk0qotel.jpg"></p>
+<p>
+	<small> ============== 6小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3929749754204439" target="freeweibo-mirror">香港人堅持抗爭，一點燭光帶動全國天亮</a>
+</h2>
+<p>香港人堅持抗爭，一點燭光帶動全國天亮<br><img src="http://ww4.sinaimg.cn/large/006ebMUyjw1ezuelqxbhzj30p018g45u.jpg"></p>
 <p>
 	<small> ============== 6小时前</small>
 </p><h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3929659542083329" target="freeweibo-mirror">老浦现在终于承认，这滦县第一猛男，众望所归属于傅政华副部长。</a>
 </h2>
 <p>老浦现在终于承认，这滦县第一猛男，众望所归属于傅政华副部长。</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3929533655063054" target="freeweibo-mirror">2007年，王欣第二次创业，搭上P2P技术快车，开发了快播。…</a>
-</h2>
-<p>2007年，王欣第二次创业，搭上P2P技术快车，开发了快播。赵家人向来对新技术反应滞后，当他们发现点播技术难以管控时，快播已发展了3亿用户，造成税收流失，宣传阵地失守，于是以涉黄之名搞垮了快播。准确地说，封杀了点播技术。他们惧怕任何危及政权的事，怕得要死。</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
