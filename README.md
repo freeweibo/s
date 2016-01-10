@@ -48,7 +48,7 @@
 </h2>
 <p>SPAM 高能的啪妹纸漫画，来自于 @啪妹纸漫画<br><img src="http://ww3.sinaimg.cn/large/8eda1a63jw1ezudis2rqvj20i20b43yx.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3929779247942468" target="freeweibo-mirror">SPAM [思考] //@南方的街头:东方之珠，中国的明珠！…</a>
 </h2>
@@ -120,7 +120,7 @@
 </h2>
 <p>SPAM //@aoliduo---: [赞]<br><br>RE: 在国家信访局附近，和很多访民在一起，他们都上网，也关心别人的维权，有的还和我在一个微信群<br><img src="http://ww3.sinaimg.cn/large/006lnxmkgw1ezu84cupdmj30zk0qoail.jpg"></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3929693025348496" target="freeweibo-mirror">在国家信访局附近，和很多访民在一起，他们都上网，也关心别人的…</a>
 </h2>
