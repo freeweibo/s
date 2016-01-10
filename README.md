@@ -32,6 +32,12 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3929693025348496" target="freeweibo-mirror">在国家信访局附近，和很多访民在一起，他们都上网，也关心别人的…</a>
+</h2>
+<p>在国家信访局附近，和很多访民在一起，他们都上网，也关心别人的维权，有的还和我在一个微信群<br><img src="http://ww3.sinaimg.cn/large/006lnxmkgw1ezu84cupdmj30zk0qoail.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3929667570581863" target="freeweibo-mirror">//@东海老鲵:有这样的公安，您作为商人，敢去投资么？公安，…</a>
 </h2>
 <p>//@东海老鲵:有这样的公安，您作为商人，敢去投资么？公安，丢的不是一家的脸，是整个山东人民的脸，破坏了一个地方的形象！就如天价大虾丢的不仅仅是旅游的脸一个道理！</p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3929086575088728" target="freeweibo-mirror">宁夏上上下下的傻逼们，都在忙着舔驴叫屁眼、推动阿拉伯语成为官…</a>
 </h2>
 <p>宁夏上上下下的傻逼们，都在忙着舔驴叫屁眼、推动阿拉伯语成为官方语言吧？你们辛苦了。<br><img src="http://ww1.sinaimg.cn/large/7a8bd141jw1ezsagcqlrtj20mu1447e5.jpg"></p>
-<p>
-	<small> ============== 2天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3929059715646099" target="freeweibo-mirror">他主持了40年代新华日报的自由宪政社论，并非政治矇昧。有人说…</a>
-</h2>
-<p>他主持了40年代新华日报的自由宪政社论，并非政治矇昧。有人说他是理想主义者加实力派，果真如此，在毛几度倒行逆施时，他当匡正错乱，逼退毛甚至废黜毛，以实现理想。但实际上他理政27年，毛的每次错乱他都是急先锋，饿死五千万，杀死斗死上千万，人民生活在极度贫困和恐惧中。请问他哪点值得纪念？<br><img src="http://ww2.sinaimg.cn/large/005RyiWxjw1ezs7dw0zm8j308a0ajt9b.jpg"></p>
 <p>
 	<small> ============== 2天前</small>
 </p>
