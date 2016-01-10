@@ -102,7 +102,7 @@
 </h2>
 <p>捍卫香港的自由，就是拯救奴隶的命运，同抗争，共命运！[酷][话筒][话筒][话筒]<br><img src="http://ww3.sinaimg.cn/large/006jET6jgw1ezuhi2ouxrj30qo0hs0ve.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3929772654457676" target="freeweibo-mirror">【国家网信办：所有网站都应对传播内容承担法律责任】国家网信办…</a>
 </h2>
