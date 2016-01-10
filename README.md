@@ -30,7 +30,7 @@
 </h2>
 <p>SPAM //@与非YUFEI://@呆板的鱼：港人要自己争取权利，我们帮不了你们了。<br><br>RE: 捍卫香港的自由，就是拯救奴隶的命运，同抗争，共命运！[酷][话筒][话筒][话筒]<br><img src="http://ww3.sinaimg.cn/large/006jET6jgw1ezuhi2ouxrj30qo0hs0ve.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3929786110282161" target="freeweibo-mirror">SPAM 高能的啪妹纸漫画，来自于 @啪妹纸漫画</a>
 </h2>
