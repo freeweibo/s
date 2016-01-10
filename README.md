@@ -126,7 +126,7 @@
 </h2>
 <p>SPAM //@招远快乐小羊: //@梧桐树影影婆娑: //@刘二狗蛋: //@hehuanlinzhao://@南方的街头: 自由！[拳头][拳头][拳头]<br><br>RE: 捍卫香港的自由，就是拯救奴隶的命运，同抗争，共命运！[酷][话筒][话筒][话筒]<br><img src="http://ww3.sinaimg.cn/large/006jET6jgw1ezuhi2ouxrj30qo0hs0ve.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3929786110282161" target="freeweibo-mirror">SPAM 高能的啪妹纸漫画，来自于 @啪妹纸漫画</a>
 </h2>
@@ -138,7 +138,7 @@
 </h2>
 <p>SPAM [思考] //@南方的街头:东方之珠，中国的明珠！[拳头][拳头][拳头]<br><br>RE: 声援！<br><img src="http://ww4.sinaimg.cn/large/c03bf6d0gw1ezuf6v5h3gj20zk0qotel.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p>
 <table>
     <tr>
