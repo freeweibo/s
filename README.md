@@ -42,7 +42,7 @@
 </h2>
 <p>SPAM //@大藏布:找谁呢？<br><br>RE: 分享图片： 謝謝勇敢站出來加入尋人隊伍的每一個香港人！<br><img src="http://ww2.sinaimg.cn/large/006m0MhGgw1ezuqovn1wkj30qo0hs413.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3929871518292369" target="freeweibo-mirror">SPAM [围观]//@大藏布: 找谁呢？</a>
 </h2>
@@ -90,7 +90,7 @@
 </h2>
 <p>//@不沉默的大多数:很多网站得通宵加班自净，有些老板该做噩梦了。<br><br>RE: #现在插播#【国家网信办发言人就“快播”案发表谈话：所有网站都应对传播内容承担法律责任】国家互联网信息办公室发言人姜军1月10日就“快播”案发表谈话称，坚决支持对“快播”涉黄案进行依法查处。他指出，所有利用网络技术开展服务的网站，都应对其传播的内容承担法律责任。（详见长微博 记者马闯）<br><img src="http://ww3.sinaimg.cn/large/654ced53jw1ezugx95ak4j20c81sn10d.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3929841747008912" target="freeweibo-mirror">很多网站得通宵加班自净，有些老板该做噩梦了。</a>
 </h2>
