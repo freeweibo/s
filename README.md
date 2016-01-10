@@ -30,7 +30,7 @@
 </h2>
 <p>SPAM [偷笑][偷笑]</p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3929875305695108" target="freeweibo-mirror">台独也好，港独也好，务必证据充分，铁案如山。只是有嫌疑的，可…</a>
 </h2>
@@ -108,7 +108,7 @@
 </h2>
 <p>//@楚天遥的微博: //@上海老哥: 转发微博<br><br>RE: 香港人堅持抗爭，一點燭光帶動全國天亮<br><img src="http://ww4.sinaimg.cn/large/006ebMUyjw1ezuelqxbhzj30p018g45u.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3929819085646126" target="freeweibo-mirror">SPAM 个中信息量极大。</a>
 </h2>
