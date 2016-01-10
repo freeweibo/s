@@ -56,6 +56,12 @@
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3929855726830374" target="freeweibo-mirror">//@一颗流星1999://@天蝎心语:@BTV特别关注 @…</a>
+</h2>
+<p>//@一颗流星1999://@天蝎心语:@BTV特别关注 @BTV都市晚高峰 @BTV生活 //@西钓鱼台w: 转发微博<br><br>RE: “台独之光”周子瑜已经兵临城下，到达首都北京了！台独媒体正打我脸，狂贺空降中国成功！@北京电视台 原先你们可能不知道，但你们可以沿用央视处理王喜的方法：知道，不会请；请了，不会用；用了，不会录；录了，不会播。安徽卫视已经知道了，跟我联系过了，为了我们“强国玻璃心”，老衲跟你拼了。<br><img src="http://ww3.sinaimg.cn/large/945fe7c9jw1ezu8gur66sj20dj0du43o.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3929855332285896" target="freeweibo-mirror">分享图片： 謝謝勇敢站出來加入尋人隊伍的每一個香港人！</a>
 </h2>
 <p>分享图片： 謝謝勇敢站出來加入尋人隊伍的每一個香港人！<br><img src="http://ww2.sinaimg.cn/large/006m0MhGgw1ezuqovn1wkj30qo0hs413.jpg"></p>
@@ -108,7 +114,7 @@
 </h2>
 <p>SPAM 高能的啪妹纸漫画，来自于 @啪妹纸漫画<br><img src="http://ww3.sinaimg.cn/large/8eda1a63jw1ezudis2rqvj20i20b43yx.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3929779247942468" target="freeweibo-mirror">SPAM [思考] //@南方的街头:东方之珠，中国的明珠！…</a>
 </h2>
@@ -133,12 +139,6 @@
 <p>【国家网信办：所有网站都应对传播内容承担法律责任】国家网信办发言人姜军10日就“快播”案发表谈话称，坚决支持对“快播”涉黄案依法查处。他指出，所有利用网络技术开展服务的网站，都应对其传播内容承担法律责任。近期“快播”案公审，希望网民在发表言论时坚守底线，支持司法机关依法办案。(张洋)<br><img src="http://ww2.sinaimg.cn/large/a716fd45jw1ezuh9k48xmj20c8101jzs.jpg"></p>
 <p>
 	<small> ============== 8小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3929769681143409" target="freeweibo-mirror">#现在插播#【国家网信办发言人就“快播”案发表谈话：所有网站…</a>
-</h2>
-<p>#现在插播#【国家网信办发言人就“快播”案发表谈话：所有网站都应对传播内容承担法律责任】国家互联网信息办公室发言人姜军1月10日就“快播”案发表谈话称，坚决支持对“快播”涉黄案进行依法查处。他指出，所有利用网络技术开展服务的网站，都应对其传播的内容承担法律责任。（详见长微博 记者马闯）<br><img src="http://ww3.sinaimg.cn/large/654ced53jw1ezugx95ak4j20c81sn10d.jpg"></p>
-<p>
-	<small> ============== 9小时前</small>
 </p>
 <table>
     <tr>
