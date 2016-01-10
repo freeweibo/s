@@ -50,6 +50,12 @@
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3929861955319083" target="freeweibo-mirror">正面是这样的</a>
+</h2>
+<p>正面是这样的</p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3929858926957445" target="freeweibo-mirror">网信办直接办，何须法院？</a>
 </h2>
 <p>网信办直接办，何须法院？<br><br>RE: 【国家网信办：所有网站都应对传播内容承担法律责任】国家网信办发言人姜军10日就“快播”案发表谈话称，坚决支持对“快播”涉黄案依法查处。他指出，所有利用网络技术开展服务的网站，都应对其传播内容承担法律责任。近期“快播”案公审，希望网民在发表言论时坚守底线，支持司法机关依法办案。(张洋)<br><img src="http://ww2.sinaimg.cn/large/a716fd45jw1ezuh9k48xmj20c8101jzs.jpg"></p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3929774726872355" target="freeweibo-mirror">捍卫香港的自由，就是拯救奴隶的命运，同抗争，共命运！[酷][…</a>
 </h2>
 <p>捍卫香港的自由，就是拯救奴隶的命运，同抗争，共命运！[酷][话筒][话筒][话筒]<br><img src="http://ww3.sinaimg.cn/large/006jET6jgw1ezuhi2ouxrj30qo0hs0ve.jpg"></p>
-<p>
-	<small> ============== 9小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3929772654457676" target="freeweibo-mirror">【国家网信办：所有网站都应对传播内容承担法律责任】国家网信办…</a>
-</h2>
-<p>【国家网信办：所有网站都应对传播内容承担法律责任】国家网信办发言人姜军10日就“快播”案发表谈话称，坚决支持对“快播”涉黄案依法查处。他指出，所有利用网络技术开展服务的网站，都应对其传播内容承担法律责任。近期“快播”案公审，希望网民在发表言论时坚守底线，支持司法机关依法办案。(张洋)<br><img src="http://ww2.sinaimg.cn/large/a716fd45jw1ezuh9k48xmj20c8101jzs.jpg"></p>
 <p>
 	<small> ============== 9小时前</small>
 </p>
