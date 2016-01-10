@@ -42,7 +42,13 @@
 </h2>
 <p>网信办直接办，何须法院？<br><br>RE: 【国家网信办：所有网站都应对传播内容承担法律责任】国家网信办发言人姜军10日就“快播”案发表谈话称，坚决支持对“快播”涉黄案依法查处。他指出，所有利用网络技术开展服务的网站，都应对其传播内容承担法律责任。近期“快播”案公审，希望网民在发表言论时坚守底线，支持司法机关依法办案。(张洋)<br><img src="http://ww2.sinaimg.cn/large/a716fd45jw1ezuh9k48xmj20c8101jzs.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3929855332285896" target="freeweibo-mirror">分享图片： 謝謝勇敢站出來加入尋人隊伍的每一個香港人！</a>
+</h2>
+<p>分享图片： 謝謝勇敢站出來加入尋人隊伍的每一個香港人！<br><img src="http://ww2.sinaimg.cn/large/006m0MhGgw1ezuqovn1wkj30qo0hs413.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3929843102435387" target="freeweibo-mirror">//@不沉默的大多数:很多网站得通宵加班自净，有些老板该做噩…</a>
 </h2>
@@ -133,12 +139,6 @@
 <p>声援！<br><img src="http://ww4.sinaimg.cn/large/c03bf6d0gw1ezuf6v5h3gj20zk0qotel.jpg"></p>
 <p>
 	<small> ============== 9小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3929749754204439" target="freeweibo-mirror">香港人堅持抗爭，一點燭光帶動全國天亮</a>
-</h2>
-<p>香港人堅持抗爭，一點燭光帶動全國天亮<br><img src="http://ww4.sinaimg.cn/large/006ebMUyjw1ezuelqxbhzj30p018g45u.jpg"></p>
-<p>
-	<small> ============== 10小时前</small>
 </p>
 <table>
     <tr>
