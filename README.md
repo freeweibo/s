@@ -78,7 +78,7 @@
 </h2>
 <p>声援！<br><img src="http://ww4.sinaimg.cn/large/c03bf6d0gw1ezuf6v5h3gj20zk0qotel.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3929749754204439" target="freeweibo-mirror">香港人堅持抗爭，一點燭光帶動全國天亮</a>
 </h2>
@@ -108,7 +108,7 @@
 </h2>
 <p>SPAM 啊！我是来拉低中奖率的！求中[爱你][爱你]</p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3929696959666034" target="freeweibo-mirror">【夸张】从报道内容中看，基本上都是春风拂面，回避尖锐问题，诸…</a>
 </h2>
