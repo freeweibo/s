@@ -48,7 +48,7 @@
 </h2>
 <p>SPAM 啊！我是来拉低中奖率的！求中[爱你][爱你]</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3929696959666034" target="freeweibo-mirror">【夸张】从报道内容中看，基本上都是春风拂面，回避尖锐问题，诸…</a>
 </h2>
