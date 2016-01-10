@@ -80,6 +80,12 @@
 <p>
 	<small> ============== 7小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3929772654457676" target="freeweibo-mirror">【国家网信办：所有网站都应对传播内容承担法律责任】国家网信办…</a>
+</h2>
+<p>【国家网信办：所有网站都应对传播内容承担法律责任】国家网信办发言人姜军10日就“快播”案发表谈话称，坚决支持对“快播”涉黄案依法查处。他指出，所有利用网络技术开展服务的网站，都应对其传播内容承担法律责任。近期“快播”案公审，希望网民在发表言论时坚守底线，支持司法机关依法办案。(张洋)<br><img src="http://ww2.sinaimg.cn/large/a716fd45jw1ezuh9k48xmj20c8101jzs.jpg"></p>
+<p>
+	<small> ============== 7小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3929761032045552" target="freeweibo-mirror">虽然个别律师的行为让公民无比心寒，但是当前的大环境下，暂且丢…</a>
 </h2>
 <p>虽然个别律师的行为让公民无比心寒，但是当前的大环境下，暂且丢掉个人恩怨，为有作为的律师呼吁义不容辞！王秋实已失联24小时，我们共同关注。<br><br>RE: 【紧急关注：王秋石律师失联！】刘薇律师信息：（截至1月9日23：54分）王秋实律师（王全璋律师的辩护人）在京失联超过12小时。<br><img src="http://ww1.sinaimg.cn/large/6a80bfcdjw1eztovuzei7j20m80cijsd.jpg"></p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3929694862793147" target="freeweibo-mirror">SPAM //@aoliduo---: [赞]</a>
 </h2>
 <p>SPAM //@aoliduo---: [赞]<br><br>RE: 在国家信访局附近，和很多访民在一起，他们都上网，也关心别人的维权，有的还和我在一个微信群<br><img src="http://ww3.sinaimg.cn/large/006lnxmkgw1ezu84cupdmj30zk0qoail.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3929693025348496" target="freeweibo-mirror">在国家信访局附近，和很多访民在一起，他们都上网，也关心别人的…</a>
-</h2>
-<p>在国家信访局附近，和很多访民在一起，他们都上网，也关心别人的维权，有的还和我在一个微信群<br><img src="http://ww3.sinaimg.cn/large/006lnxmkgw1ezu84cupdmj30zk0qoail.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
