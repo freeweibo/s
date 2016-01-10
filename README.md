@@ -32,6 +32,12 @@
 <p>
 	<small> ============== 1小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3929870792483797" target="freeweibo-mirror">SPAM [圍觀][圍觀][圍觀] //@大藏布:找谁呢？</a>
+</h2>
+<p>SPAM [圍觀][圍觀][圍觀] //@大藏布:找谁呢？<br><br>RE: 分享图片： 謝謝勇敢站出來加入尋人隊伍的每一個香港人！<br><img src="http://ww2.sinaimg.cn/large/006m0MhGgw1ezuqovn1wkj30qo0hs413.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3929858926957445" target="freeweibo-mirror">网信办直接办，何须法院？</a>
 </h2>
 <p>网信办直接办，何须法院？<br><br>RE: 【国家网信办：所有网站都应对传播内容承担法律责任】国家网信办发言人姜军10日就“快播”案发表谈话称，坚决支持对“快播”涉黄案依法查处。他指出，所有利用网络技术开展服务的网站，都应对其传播内容承担法律责任。近期“快播”案公审，希望网民在发表言论时坚守底线，支持司法机关依法办案。(张洋)<br><img src="http://ww2.sinaimg.cn/large/a716fd45jw1ezuh9k48xmj20c8101jzs.jpg"></p>
@@ -60,7 +66,7 @@
 </h2>
 <p>//@楚天遥的微博: //@上海老哥: 转发微博<br><br>RE: 香港人堅持抗爭，一點燭光帶動全國天亮<br><img src="http://ww4.sinaimg.cn/large/006ebMUyjw1ezuelqxbhzj30p018g45u.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3929819085646126" target="freeweibo-mirror">SPAM 个中信息量极大。</a>
 </h2>
@@ -72,7 +78,7 @@
 </h2>
 <p>SPAM //@与非YUFEI://@呆板的鱼：港人要自己争取权利，我们帮不了你们了。<br><br>RE: 捍卫香港的自由，就是拯救奴隶的命运，同抗争，共命运！[酷][话筒][话筒][话筒]<br><img src="http://ww3.sinaimg.cn/large/006jET6jgw1ezuhi2ouxrj30qo0hs0ve.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3929787804081106" target="freeweibo-mirror">SPAM //@招远快乐小羊: //@梧桐树影影婆娑: //…</a>
 </h2>
@@ -133,12 +139,6 @@
 <p>香港人堅持抗爭，一點燭光帶動全國天亮<br><img src="http://ww4.sinaimg.cn/large/006ebMUyjw1ezuelqxbhzj30p018g45u.jpg"></p>
 <p>
 	<small> ============== 9小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3929746737646410" target="freeweibo-mirror">//@贺卫方:【为什么是一只鸡？反戈一鸡？】//@演员孙海英…</a>
-</h2>
-<p>//@贺卫方:【为什么是一只鸡？反戈一鸡？】//@演员孙海英: 反戈一功，给你一只鸡！//@贺卫方: 【哪壶不开提哪壶】这个徐昕，专戳老鹤的痛处，俺本来心里已经醋意盎然了，你还把这个隐痛给揭露出来，造成二次伤害，叔可忍，婶不可忍！赶快备好茅台，给俺负酒请罪！//@徐昕: 老鹤你这是吃醋的感觉嘛</p>
-<p>
-	<small> ============== 10小时前</small>
 </p>
 <table>
     <tr>
