@@ -26,6 +26,12 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3929712265445938" target="freeweibo-mirror">SPAM @天水三千 @扶苏公子丶 我已放入购物车。我觉得我…</a>
+</h2>
+<p>SPAM @天水三千 @扶苏公子丶 我已放入购物车。我觉得我基本不会中[泪] //@天水寻:啊！我是来拉低中奖率的！求中[爱你][爱你]</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3929694862793147" target="freeweibo-mirror">SPAM //@aoliduo---: [赞]</a>
 </h2>
 <p>SPAM //@aoliduo---: [赞]<br><br>RE: 在国家信访局附近，和很多访民在一起，他们都上网，也关心别人的维权，有的还和我在一个微信群<br><img src="http://ww3.sinaimg.cn/large/006lnxmkgw1ezu84cupdmj30zk0qoail.jpg"></p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3929123405342085" target="freeweibo-mirror">尽管他不能称为坏人，但是当了二十几年总理，国力疲惫，民生几断…</a>
 </h2>
 <p>尽管他不能称为坏人，但是当了二十几年总理，国力疲惫，民生几断，朝中丧乱，黎庶泪干，南境乱乱，北境耽耽，下不能救民于水火，上不能致君以明判。就这还能称是好总理？文革后查看史料有人评论周：中国没他文革会更惨，但有他文革时间才这么长。个人觉得这评论比较公平。<br><br>RE: 衡量一国总理优秀与否的标准是什么？百姓富足，人民安康，国家平稳向上？而综观周一朝“百姓流离，人民饥谨，国家动乱”。试问：他算什么好总理？老周撒手人寰时，中国社会的政治、经济、民生在长期的浩劫和无休止的阶级斗争中，已经到了濒临崩溃的边缘。 一家公司都快破产了，公司总经理还吹个屁啊？</p>
-<p>
-	<small> ============== 2天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3929086575088728" target="freeweibo-mirror">宁夏上上下下的傻逼们，都在忙着舔驴叫屁眼、推动阿拉伯语成为官…</a>
-</h2>
-<p>宁夏上上下下的傻逼们，都在忙着舔驴叫屁眼、推动阿拉伯语成为官方语言吧？你们辛苦了。<br><img src="http://ww1.sinaimg.cn/large/7a8bd141jw1ezsagcqlrtj20mu1447e5.jpg"></p>
 <p>
 	<small> ============== 2天前</small>
 </p>
