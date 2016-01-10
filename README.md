@@ -66,7 +66,7 @@
 </h2>
 <p>正面是这样的</p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3929858926957445" target="freeweibo-mirror">网信办直接办，何须法院？</a>
 </h2>
@@ -108,7 +108,7 @@
 </h2>
 <p>//@楚天遥的微博: //@上海老哥: 转发微博<br><br>RE: 香港人堅持抗爭，一點燭光帶動全國天亮<br><img src="http://ww4.sinaimg.cn/large/006ebMUyjw1ezuelqxbhzj30p018g45u.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3929819085646126" target="freeweibo-mirror">SPAM 个中信息量极大。</a>
 </h2>
