@@ -24,7 +24,7 @@
 </h2>
 <p>SPAM [思考] //@南方的街头:东方之珠，中国的明珠！[拳头][拳头][拳头]<br><br>RE: 声援！<br><img src="http://ww4.sinaimg.cn/large/c03bf6d0gw1ezuf6v5h3gj20zk0qotel.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3929777675210972" target="freeweibo-mirror">SPAM ……SB系列还是就印在鞋舌上得了……这么大写加粗的…</a>
 </h2>
