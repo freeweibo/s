@@ -24,7 +24,7 @@
 </h2>
 <p>SPAM 果然是一个靠谱滴逗逼！新年期间竟然有送试吃体验活动.</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3929998089685843" target="freeweibo-mirror">//@冰城壹梦: [嘻嘻][good]</a>
 </h2>
