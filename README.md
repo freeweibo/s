@@ -30,7 +30,7 @@
 </h2>
 <p>SPAM [钟]//@太平金黄鱼: 无产阶级欢迎你们。[阴险]//@神最爱你:嗯 //@泪洒博坛://@笑傲江湖之愈挫愈勇: 做好准备吧！<br><br>RE: 从种种迹象来看，镰刀斧头帮抢劫民众的力度将进一步加大，尔等屁民做好勒断腰的思想准备吧！</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3930105694733927" target="freeweibo-mirror">SPAM 果然是一个靠谱滴逗逼！新年期间竟然有送试吃体验活动…</a>
 </h2>
@@ -66,7 +66,7 @@
 </h2>
 <p>SPAM [吃惊] //@这个冬季特别冷:谣言<br><br>RE: 谣言！<br><img src="http://ww2.sinaimg.cn/large/006lmu7Tgw1ezufkri73uj30c90l3wfd.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3929965949194465" target="freeweibo-mirror">某些人嘲讽我们，说我们不怕打仗，却怕南朝鲜的广播。请问有什么…</a>
 </h2>
