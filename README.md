@@ -24,7 +24,7 @@
 </h2>
 <p>//@冰城壹梦: [嘻嘻][good]<br><br>RE: 某些人嘲讽我们，说我们不怕打仗，却怕南朝鲜的广播。请问有什么资格嘲笑我们？某国不但害怕打仗，还害怕香港媒体、台湾媒体、美国媒体、Google、Twitter、Facebook…我们嘲笑他们了吗？从来没有，我们都懒的笑。<br><img src="http://ww4.sinaimg.cn/large/005Jtd1Ajw1ezv3gimi0wj30mn0gw423.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3929991266394356" target="freeweibo-mirror">SPAM [吃惊] //@这个冬季特别冷:谣言</a>
 </h2>
@@ -72,7 +72,7 @@
 </h2>
 <p>SPAM [圍觀][圍觀][圍觀] //@大藏布:找谁呢？<br><br>RE: 分享图片： 謝謝勇敢站出來加入尋人隊伍的每一個香港人！<br><img src="http://ww2.sinaimg.cn/large/006m0MhGgw1ezuqovn1wkj30qo0hs413.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3929863985244748" target="freeweibo-mirror">SPAM 男友力max，我陷入循环出不来了！//@为了部落的…</a>
 </h2>
