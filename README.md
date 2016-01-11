@@ -48,7 +48,7 @@
 </h2>
 <p>SPAM [偷笑][偷笑]</p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3929875305695108" target="freeweibo-mirror">台独也好，港独也好，务必证据充分，铁案如山。只是有嫌疑的，可…</a>
 </h2>
@@ -84,7 +84,7 @@
 </h2>
 <p>正面是这样的</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3929858926957445" target="freeweibo-mirror">网信办直接办，何须法院？</a>
 </h2>
