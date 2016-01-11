@@ -66,7 +66,7 @@
 </h2>
 <p>SPAM [围观]//@大藏布: 找谁呢？<br><br>RE: 分享图片： 謝謝勇敢站出來加入尋人隊伍的每一個香港人！<br><img src="http://ww2.sinaimg.cn/large/006m0MhGgw1ezuqovn1wkj30qo0hs413.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3929870792483797" target="freeweibo-mirror">SPAM [圍觀][圍觀][圍觀] //@大藏布:找谁呢？</a>
 </h2>
@@ -78,7 +78,7 @@
 </h2>
 <p>SPAM 男友力max，我陷入循环出不来了！//@为了部落的农药:来，大家准备我们再飞一次：他！亲！背！了！<br><br>RE: 正面是这样的</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3929861955319083" target="freeweibo-mirror">正面是这样的</a>
 </h2>
