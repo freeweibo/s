@@ -32,6 +32,12 @@
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3929965949194465" target="freeweibo-mirror">某些人嘲讽我们，说我们不怕打仗，却怕南朝鲜的广播。请问有什么…</a>
+</h2>
+<p>某些人嘲讽我们，说我们不怕打仗，却怕南朝鲜的广播。请问有什么资格嘲笑我们？某国不但害怕打仗，还害怕香港媒体、台湾媒体、美国媒体、Google、Twitter、Facebook…我们嘲笑他们了吗？从来没有，我们都懒的笑。<br><img src="http://ww4.sinaimg.cn/large/005Jtd1Ajw1ezv3gimi0wj30mn0gw423.jpg"></p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3929885250208386" target="freeweibo-mirror">SPAM 发表了博文《在爱你中，我找到了真正的自己》作者介绍…</a>
 </h2>
 <p>SPAM 发表了博文《在爱你中，我找到了真正的自己》作者介绍|海百合职业灵疗师，光之塔罗创始人，多家媒体星座塔罗专栏作者，十二星座运势，水晶能量开运，国际宇宙能健康协会授权中班老师微信公众号个人微信号海百合水晶http://t.cn/R4Cu90B<br><img src="http://ww2.sinaimg.cn/large/462ec5f4jw1ezuu74wu7uj202n02mweb.jpg"></p>
@@ -84,7 +90,7 @@
 </h2>
 <p>网信办直接办，何须法院？<br><br>RE: 【国家网信办：所有网站都应对传播内容承担法律责任】国家网信办发言人姜军10日就“快播”案发表谈话称，坚决支持对“快播”涉黄案依法查处。他指出，所有利用网络技术开展服务的网站，都应对其传播内容承担法律责任。近期“快播”案公审，希望网民在发表言论时坚守底线，支持司法机关依法办案。(张洋)<br><img src="http://ww2.sinaimg.cn/large/a716fd45jw1ezuh9k48xmj20c8101jzs.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3929855726830374" target="freeweibo-mirror">//@一颗流星1999://@天蝎心语:@BTV特别关注 @…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3929808628854251" target="freeweibo-mirror">SPAM //@与非YUFEI://@呆板的鱼：港人要自己争…</a>
 </h2>
 <p>SPAM //@与非YUFEI://@呆板的鱼：港人要自己争取权利，我们帮不了你们了。<br><br>RE: 捍卫香港的自由，就是拯救奴隶的命运，同抗争，共命运！[酷][话筒][话筒][话筒]<br><img src="http://ww3.sinaimg.cn/large/006jET6jgw1ezuhi2ouxrj30qo0hs0ve.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3929787804081106" target="freeweibo-mirror">SPAM //@招远快乐小羊: //@梧桐树影影婆娑: //…</a>
-</h2>
-<p>SPAM //@招远快乐小羊: //@梧桐树影影婆娑: //@刘二狗蛋: //@hehuanlinzhao://@南方的街头: 自由！[拳头][拳头][拳头]<br><br>RE: 捍卫香港的自由，就是拯救奴隶的命运，同抗争，共命运！[酷][话筒][话筒][话筒]<br><img src="http://ww3.sinaimg.cn/large/006jET6jgw1ezuhi2ouxrj30qo0hs0ve.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
