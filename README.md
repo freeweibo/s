@@ -36,7 +36,7 @@
 </h2>
 <p>某些人嘲讽我们，说我们不怕打仗，却怕南朝鲜的广播。请问有什么资格嘲笑我们？某国不但害怕打仗，还害怕香港媒体、台湾媒体、美国媒体、Google、Twitter、Facebook…我们嘲笑他们了吗？从来没有，我们都懒的笑。<br><img src="http://ww4.sinaimg.cn/large/005Jtd1Ajw1ezv3gimi0wj30mn0gw423.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3929885250208386" target="freeweibo-mirror">SPAM 发表了博文《在爱你中，我找到了真正的自己》作者介绍…</a>
 </h2>
@@ -54,7 +54,7 @@
 </h2>
 <p>台独也好，港独也好，务必证据充分，铁案如山。只是有嫌疑的，可要求官方对本人进行面对面询问并及时发布，免得误伤//@老究: 转发微博<br><br>RE: “台独之光”周子瑜已经兵临城下，到达首都北京了！台独媒体正打我脸，狂贺空降中国成功！@北京电视台 原先你们可能不知道，但你们可以沿用央视处理王喜的方法：知道，不会请；请了，不会用；用了，不会录；录了，不会播。安徽卫视已经知道了，跟我联系过了，为了我们“强国玻璃心”，老衲跟你拼了。<br><img src="http://ww3.sinaimg.cn/large/945fe7c9jw1ezu8gur66sj20dj0du43o.jpg"></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3929872483472178" target="freeweibo-mirror">SPAM //@大藏布:找谁呢？</a>
 </h2>
