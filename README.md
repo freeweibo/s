@@ -48,7 +48,7 @@
 </h2>
 <p>我拥护一个中国原则 //@龙猫吃了:@周子逾 你怎么看？ //@无敌饼干姐: 华为棒棒哒。</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3930102187957279" target="freeweibo-mirror">从种种迹象来看，镰刀斧头帮抢劫民众的力度将进一步加大，尔等屁…</a>
 </h2>
@@ -66,13 +66,13 @@
 </h2>
 <p>//@冰城壹梦: [嘻嘻][good]<br><br>RE: 某些人嘲讽我们，说我们不怕打仗，却怕南朝鲜的广播。请问有什么资格嘲笑我们？某国不但害怕打仗，还害怕香港媒体、台湾媒体、美国媒体、Google、Twitter、Facebook…我们嘲笑他们了吗？从来没有，我们都懒的笑。<br><img src="http://ww4.sinaimg.cn/large/005Jtd1Ajw1ezv3gimi0wj30mn0gw423.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3929991266394356" target="freeweibo-mirror">SPAM [吃惊] //@这个冬季特别冷:谣言</a>
 </h2>
 <p>SPAM [吃惊] //@这个冬季特别冷:谣言<br><br>RE: 谣言！<br><img src="http://ww2.sinaimg.cn/large/006lmu7Tgw1ezufkri73uj30c90l3wfd.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3929965949194465" target="freeweibo-mirror">某些人嘲讽我们，说我们不怕打仗，却怕南朝鲜的广播。请问有什么…</a>
 </h2>
