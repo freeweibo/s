@@ -24,7 +24,7 @@
 </h2>
 <p>//@冰城壹梦: [嘻嘻][good]<br><br>RE: 某些人嘲讽我们，说我们不怕打仗，却怕南朝鲜的广播。请问有什么资格嘲笑我们？某国不但害怕打仗，还害怕香港媒体、台湾媒体、美国媒体、Google、Twitter、Facebook…我们嘲笑他们了吗？从来没有，我们都懒的笑。<br><img src="http://ww4.sinaimg.cn/large/005Jtd1Ajw1ezv3gimi0wj30mn0gw423.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3929991266394356" target="freeweibo-mirror">SPAM [吃惊] //@这个冬季特别冷:谣言</a>
 </h2>
@@ -42,7 +42,7 @@
 </h2>
 <p>SPAM 发表了博文《在爱你中，我找到了真正的自己》作者介绍|海百合职业灵疗师，光之塔罗创始人，多家媒体星座塔罗专栏作者，十二星座运势，水晶能量开运，国际宇宙能健康协会授权中班老师微信公众号个人微信号海百合水晶http://t.cn/R4Cu90B<br><img src="http://ww2.sinaimg.cn/large/462ec5f4jw1ezuu74wu7uj202n02mweb.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3929884395347582" target="freeweibo-mirror">SPAM [偷笑][偷笑]</a>
 </h2>
