@@ -24,7 +24,7 @@
 </h2>
 <p>//@冰城壹梦: [嘻嘻][good]<br><br>RE: 某些人嘲讽我们，说我们不怕打仗，却怕南朝鲜的广播。请问有什么资格嘲笑我们？某国不但害怕打仗，还害怕香港媒体、台湾媒体、美国媒体、Google、Twitter、Facebook…我们嘲笑他们了吗？从来没有，我们都懒的笑。<br><img src="http://ww4.sinaimg.cn/large/005Jtd1Ajw1ezv3gimi0wj30mn0gw423.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3929991266394356" target="freeweibo-mirror">SPAM [吃惊] //@这个冬季特别冷:谣言</a>
 </h2>
