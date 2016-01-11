@@ -30,7 +30,7 @@
 </h2>
 <p>//@吴顾问1970: //@远离55://@tk_1954115: 和赵家人讲理是不可能的。 //@世俗的苦行僧: //@决不做奴隶6: //@权贵治国c: //@青白湾湾: 转发微博</p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3930251035764838" target="freeweibo-mirror">//@周泽律师:网上好多人在说赵家如何如何，其实考拉也是赵家…</a>
 </h2>
@@ -102,7 +102,7 @@
 </h2>
 <p>SPAM 今天，90后美女考拉，被逮捕，罪名颠覆国家政权，羁押于天津一看。<br><img src="http://ww4.sinaimg.cn/large/6d5213afjw1ezvsr2fb9nj20qk0qk77c.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3930181661911430" target="freeweibo-mirror">SPAM 签名戒有点酷，是不是明星都要学会签名，我去练练，等…</a>
 </h2>
