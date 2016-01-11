@@ -102,7 +102,7 @@
 </h2>
 <p>SPAM 签名戒有点酷，是不是明星都要学会签名，我去练练，等着。[色]</p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3930158597200145" target="freeweibo-mirror">从快播案公诉人的嘴里诞生出惊世名言：明知那么多问题，为什么不…</a>
 </h2>
