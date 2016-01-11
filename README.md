@@ -36,7 +36,7 @@
 </h2>
 <p>SPAM [吃惊] //@这个冬季特别冷:谣言<br><br>RE: 谣言！<br><img src="http://ww2.sinaimg.cn/large/006lmu7Tgw1ezufkri73uj30c90l3wfd.jpg"></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3929965949194465" target="freeweibo-mirror">某些人嘲讽我们，说我们不怕打仗，却怕南朝鲜的广播。请问有什么…</a>
 </h2>
