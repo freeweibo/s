@@ -60,7 +60,7 @@
 </h2>
 <p>SPAM //@大藏布:找谁呢？<br><br>RE: 分享图片： 謝謝勇敢站出來加入尋人隊伍的每一個香港人！<br><img src="http://ww2.sinaimg.cn/large/006m0MhGgw1ezuqovn1wkj30qo0hs413.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3929871518292369" target="freeweibo-mirror">SPAM [围观]//@大藏布: 找谁呢？</a>
 </h2>
