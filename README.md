@@ -20,11 +20,17 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3930416769542157" target="freeweibo-mirror">你这位仁兄能力了得，把共和国吓得够呛：各种自信遗撒一地。[哈…</a>
+</h2>
+<p>你这位仁兄能力了得，把共和国吓得够呛：各种自信遗撒一地。[哈哈]//@叶匡政: 想念世锋兄！[泪] //@爱吐槽的酱油君:一个动不动就会被颠覆的政权，一个频频对自己国民下手的政权。。。[草泥马]//@张鸣:一下子出了这么多颠覆国家的人，听起来真的吓一跳。<br><br>RE: 转自劉曉原：今天，锋锐所主任周世锋亲属收到逮捕通知书，周世锋因涉嫌颠覆国家政权罪，1月8日被天津市公安局逮捕，羁押在天津市第一看守所。<br><img src="http://ww4.sinaimg.cn/large/489ab6b0jw1ezwhx0hxjfj20g40933z2.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3930396276185611" target="freeweibo-mirror">多洞就是正义</a>
 </h2>
 <p>多洞就是正义<br><br>RE: 先扔一把刀迷惑武警，喊完安拉乎阿克巴就扔斧子伤人，然后，暴恐分子就没有然后了。这种视频不但不应该删，而且应该多放，震慑宵小！恐怖分子没有生存空间，人民才能安心生活！http://t.cn/R4Ne5Eh</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3930385395824091" target="freeweibo-mirror">//@张鸣://@周泽律师: 回复@眾人皆醉:嗯，这样做网评…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3930222304505974" target="freeweibo-mirror">失踪数月的考拉被宣布逮捕，涉嫌颠覆国家政权罪。见过这个漂亮的…</a>
 </h2>
 <p>失踪数月的考拉被宣布逮捕，涉嫌颠覆国家政权罪。见过这个漂亮的小女孩，她是一位律师朋友的助理，关心公益。没想到啊，没想到，这样样一个阳光美少女，竟然有这么大的野心！这是办案机关在给年轻人指明发展方向吗？<br><img src="http://ww1.sinaimg.cn/large/4bdb1fa0jw1ezvwujzapmj20hs0nqt9t.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3930204475020374" target="freeweibo-mirror">SPAM 错，乐事不是可乐么！(ღ˘⌣˘ღ)</a>
-</h2>
-<p>SPAM 错，乐事不是可乐么！(ღ˘⌣˘ღ)</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
