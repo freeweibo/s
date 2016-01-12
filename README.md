@@ -60,7 +60,7 @@
 </h2>
 <p>//@孔智勇39: 历史之鉴。//@湘江冷雨: 一部血泪史。//@蒋祖权评论: 不会重蹈覆辙，但能变异升级，因为根源还在。<br><br>RE: 文革歷史就是一部殺人史、整人史、喪心病狂的迫害史。面對千百萬亡魂，面對數以億計被迫害、精神心灵遭受痛苦折磨的民眾，無人能給文革翻案。文革回潮絕不可能得逞。中華民族如果不能從文革災難吸取教訓，如果重蹈文革覆辙，將萬劫不復。<br><img src="http://ww2.sinaimg.cn/large/006jDQJ3jw1ezwn95omfsj30bo08cab9.jpg"></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3930473648138207" target="freeweibo-mirror">//@孔智勇39:历史之鉴。//@湘江冷雨: 一部血泪史。/…</a>
 </h2>
@@ -108,7 +108,7 @@
 </h2>
 <p>被犯罪 //@谢佑平:转发微博<br><br>RE: 【考拉案】失踪半年才宣布逮捕，立法权失守，司法权更失守。公民任意被犯罪时代到来。<br><img src="http://ww3.sinaimg.cn/large/6b804b51gw1ezwf4ql4upj20ku0wwjt3.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3930442765520029" target="freeweibo-mirror">//@一网打尽1861://@qbl2011://@珠海半夏…</a>
 </h2>
