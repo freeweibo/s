@@ -54,7 +54,7 @@
 </h2>
 <p>//@孔智勇39:历史之鉴。//@湘江冷雨: 一部血泪史。//@蒋祖权评论: 不会重蹈覆辙，但能变异升级，因为根源还在。<br><br>RE: 文革歷史就是一部殺人史、整人史、喪心病狂的迫害史。面對千百萬亡魂，面對數以億計被迫害、精神心灵遭受痛苦折磨的民眾，無人能給文革翻案。文革回潮絕不可能得逞。中華民族如果不能從文革災難吸取教訓，如果重蹈文革覆辙，將萬劫不復。<br><img src="http://ww2.sinaimg.cn/large/006jDQJ3jw1ezwn95omfsj30bo08cab9.jpg"></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3930466450746663" target="freeweibo-mirror">即使消息都是真的，这个影响也不好吧？帖子为何没删呢？[疑问]…</a>
 </h2>
@@ -102,7 +102,7 @@
 </h2>
 <p>//@一网打尽1861://@qbl2011://@珠海半夏: //@戎戎85日记: //@天明再会E://@曹先生2012Y://@狂人春梦日记2015: //@婉风夜雨:转发微博<br><br>RE: 三年前我說「你國」連圓珠筆的「筆尖滾珠」都製造不出來，是日本的，有人說我造謠，「趙家老爺」現在自己承認了……<br><img src="http://ww4.sinaimg.cn/large/006jDPFLgw1ezwl1jv2daj30ku112jui.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3930441868655090" target="freeweibo-mirror">颠覆国家政权？是哪部电视剧？放在后宫里面，还真有这个可能！</a>
 </h2>
@@ -114,19 +114,19 @@
 </h2>
 <p>//@SY群众:贪官都颠覆不了，还能颠覆国家？<br><br>RE: 【考拉案】失踪半年才宣布逮捕，立法权失守，司法权更失守。公民任意被犯罪时代到来。<br><img src="http://ww3.sinaimg.cn/large/6b804b51gw1ezwf4ql4upj20ku0wwjt3.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3930435735835090" target="freeweibo-mirror">要建立法治国家，就不能让刑事诉讼法成一纸空文，最起码的律师会…</a>
 </h2>
 <p>要建立法治国家，就不能让刑事诉讼法成一纸空文，最起码的律师会见权利总得保障。<br><br>RE: 【考拉案】失踪半年才宣布逮捕，立法权失守，司法权更失守。公民任意被犯罪时代到来。<br><img src="http://ww3.sinaimg.cn/large/6b804b51gw1ezwf4ql4upj20ku0wwjt3.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3930435236788613" target="freeweibo-mirror">颠覆国家政权的美女</a>
 </h2>
 <p>颠覆国家政权的美女<br><br>RE: 【考拉案】失踪半年才宣布逮捕，立法权失守，司法权更失守。公民任意被犯罪时代到来。<br><img src="http://ww3.sinaimg.cn/large/6b804b51gw1ezwf4ql4upj20ku0wwjt3.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3930434691597517" target="freeweibo-mirror">老陈我一直奇怪你的律师证是不是偷来的，赵威是“指定居所监视居…</a>
 </h2>
