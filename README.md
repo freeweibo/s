@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3930396276185611" target="freeweibo-mirror">多洞就是正义</a>
+</h2>
+<p>多洞就是正义<br><br>RE: 先扔一把刀迷惑武警，喊完安拉乎阿克巴就扔斧子伤人，然后，暴恐分子就没有然后了。这种视频不但不应该删，而且应该多放，震慑宵小！恐怖分子没有生存空间，人民才能安心生活！http://t.cn/R4Ne5Eh</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3930351686903662" target="freeweibo-mirror">SPAM 赵家人不自信鸟！[哈哈]//@京都探花: 说是就是…</a>
 </h2>
 <p>SPAM 赵家人不自信鸟！[哈哈]//@京都探花: 说是就是吧[挖鼻]</p>
@@ -36,7 +42,7 @@
 </h2>
 <p>学叙利亚温和反对派，那依法处理不是依法治国吗？</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3930253988897824" target="freeweibo-mirror">//@吴顾问1970: //@远离55://@tk_1954…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3930181661911430" target="freeweibo-mirror">SPAM 签名戒有点酷，是不是明星都要学会签名，我去练练，等…</a>
 </h2>
 <p>SPAM 签名戒有点酷，是不是明星都要学会签名，我去练练，等着。[色]</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3930158597200145" target="freeweibo-mirror">从快播案公诉人的嘴里诞生出惊世名言：明知那么多问题，为什么不…</a>
-</h2>
-<p>从快播案公诉人的嘴里诞生出惊世名言：明知那么多问题，为什么不转型？尼玛，一语点破了目前中国面临着最大的问题。@上海老顽童吴德余 @暮雪烟寒 [笑cry]<br><img src="http://ww2.sinaimg.cn/large/006kyBEqgw1ezvpl9g6wcj30c80dqq49.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
