@@ -60,7 +60,7 @@
 </h2>
 <p>没睡的可以加V 信：lsxzs9 这里有大陆不让播的新闻和消息！</p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3930238088009362" target="freeweibo-mirror">SPAM 动辄失踪，这是什么世道？[吃惊]</a>
 </h2>
@@ -96,7 +96,7 @@
 </h2>
 <p>失踪数月的考拉被逮捕，涉嫌颠覆国家政权罪，不知这样花季的少女实施了哪些危害国家政权的行为<br><img src="http://ww4.sinaimg.cn/large/6edbc162gw1ezvt5verhyj20qk0qk0zk.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3930186301302913" target="freeweibo-mirror">SPAM 今天，90后美女考拉，被逮捕，罪名颠覆国家政权，羁…</a>
 </h2>
