@@ -72,7 +72,7 @@
 </h2>
 <p>SPAM 赵家人不自信鸟！[哈哈]//@京都探花: 说是就是吧[挖鼻]</p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3930346464567041" target="freeweibo-mirror">SPAM 只能说这个相信自己的刀斧快过武警子弹的暴恐分子是看…</a>
 </h2>
