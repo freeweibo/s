@@ -30,7 +30,7 @@
 </h2>
 <p>SPAM [偷乐][偷乐]</p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3930600354100553" target="freeweibo-mirror">SPAM [doge]//@特急演员:鉴定肇事司机患急性短暂…</a>
 </h2>
