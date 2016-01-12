@@ -72,7 +72,7 @@
 </h2>
 <p>//@笨笨an://@陈有西:不是说年轻就可姑息，按中国刑事责任年龄，她都够格了。我是说政治性犯罪，犯罪主体应有特别严格的限定，不能将一般的不满、异见，同坚定推翻政府的犯罪混为一谈，扩大犯罪外延，将一般不满人群，都推向敌对面。<br><br>RE: 【考拉案】失踪半年才宣布逮捕，立法权失守，司法权更失守。公民任意被犯罪时代到来。<br><img src="http://ww3.sinaimg.cn/large/6b804b51gw1ezwf4ql4upj20ku0wwjt3.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3930451750448072" target="freeweibo-mirror">文革歷史就是一部殺人史、整人史、喪心病狂的迫害史。面對千百萬…</a>
 </h2>
@@ -96,7 +96,7 @@
 </h2>
 <p>颠覆国家政权？是哪部电视剧？放在后宫里面，还真有这个可能！<br><br>RE: 【考拉案】失踪半年才宣布逮捕，立法权失守，司法权更失守。公民任意被犯罪时代到来。<br><img src="http://ww3.sinaimg.cn/large/6b804b51gw1ezwf4ql4upj20ku0wwjt3.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3930435975152318" target="freeweibo-mirror">//@SY群众:贪官都颠覆不了，还能颠覆国家？</a>
 </h2>
