@@ -30,7 +30,7 @@
 </h2>
 <p>SPAM 只能说这个相信自己的刀斧快过武警子弹的暴恐分子是看动作片看多了。<br><br>RE: 卧槽。。要看的快点看 http://t.cn/R4Ne5Eh .</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3930343973591615" target="freeweibo-mirror">学叙利亚温和反对派，那依法处理不是依法治国吗？</a>
 </h2>
