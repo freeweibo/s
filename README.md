@@ -24,7 +24,7 @@
 </h2>
 <p>SPAM 赵家人不自信鸟！[哈哈]//@京都探花: 说是就是吧[挖鼻]</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3930346464567041" target="freeweibo-mirror">SPAM 只能说这个相信自己的刀斧快过武警子弹的暴恐分子是看…</a>
 </h2>
@@ -54,13 +54,13 @@
 </h2>
 <p>网上好多人在说赵家如何如何，其实考拉也是赵家人，本名赵威。</p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3930246010654430" target="freeweibo-mirror">//@灰太郎的星期天:赵家人很恐慌</a>
 </h2>
 <p>//@灰太郎的星期天:赵家人很恐慌</p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3930242961515791" target="freeweibo-mirror">没睡的可以加V 信：lsxzs9 这里有大陆不让播的新闻和消…</a>
 </h2>
