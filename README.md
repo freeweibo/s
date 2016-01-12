@@ -24,7 +24,7 @@
 </h2>
 <p>//@一网打尽1861://@qbl2011://@珠海半夏: //@戎戎85日记: //@天明再会E://@曹先生2012Y://@狂人春梦日记2015: //@婉风夜雨:转发微博<br><br>RE: 三年前我說「你國」連圓珠筆的「筆尖滾珠」都製造不出來，是日本的，有人說我造謠，「趙家老爺」現在自己承認了……<br><img src="http://ww4.sinaimg.cn/large/006jDPFLgw1ezwl1jv2daj30ku112jui.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3930417939855437" target="freeweibo-mirror">原来真有地下党啊！ //@陈业文新大都:你这位仁兄能力了得，…</a>
 </h2>
@@ -90,7 +90,7 @@
 </h2>
 <p>SPAM 赵家人不自信鸟！[哈哈]//@京都探花: 说是就是吧[挖鼻]</p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3930346464567041" target="freeweibo-mirror">SPAM 只能说这个相信自己的刀斧快过武警子弹的暴恐分子是看…</a>
 </h2>
