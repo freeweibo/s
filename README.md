@@ -54,7 +54,7 @@
 </h2>
 <p>2016年1月11日，三名律师被以涉嫌煽动颠覆国家政权罪遭逮捕。三个人有什么能力颠覆一个几百万军队的国家？难道真的是纸老虎？<br><img src="http://ww2.sinaimg.cn/large/006cYaQ6jw1ezw05wmtnbj30e80e874x.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3930249483617031" target="freeweibo-mirror">//@梁振亚南方:一个姑娘，没力没气，没有权没势、没枪没炮、…</a>
 </h2>
@@ -78,7 +78,7 @@
 </h2>
 <p>没睡的可以加V 信：lsxzs9 这里有大陆不让播的新闻和消息！</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3930238088009362" target="freeweibo-mirror">SPAM 动辄失踪，这是什么世道？[吃惊]</a>
 </h2>
