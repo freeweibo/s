@@ -24,7 +24,7 @@
 </h2>
 <p>SPAM [doge]//@特急演员:鉴定肇事司机患急性短暂性精神障碍 @南昌发布 @南昌公安  @江西发布 @江西公安<br><br>RE: "南昌一辆英菲尼迪连撞八人驾车肇事逃逸，酒驾还是毒驾？ [怒骂][怒骂][怒骂][怒骂]http://t.cn/R4pD6co（使用#秒拍#录制）</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3930594658800923" target="freeweibo-mirror">SPAM //@倾听真实声音://@劲爆新资讯:转发微博</a>
 </h2>
@@ -42,7 +42,7 @@
 </h2>
 <p>SPAM get！下了慢慢看~</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3930550743846243" target="freeweibo-mirror">//@可是无业刘民: //@小飞侠0311号:转发微博</a>
 </h2>
@@ -102,7 +102,7 @@
 </h2>
 <p>//@笨笨an://@陈有西:不是说年轻就可姑息，按中国刑事责任年龄，她都够格了。我是说政治性犯罪，犯罪主体应有特别严格的限定，不能将一般的不满、异见，同坚定推翻政府的犯罪混为一谈，扩大犯罪外延，将一般不满人群，都推向敌对面。<br><br>RE: 【考拉案】失踪半年才宣布逮捕，立法权失守，司法权更失守。公民任意被犯罪时代到来。<br><img src="http://ww3.sinaimg.cn/large/6b804b51gw1ezwf4ql4upj20ku0wwjt3.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3930451750448072" target="freeweibo-mirror">文革歷史就是一部殺人史、整人史、喪心病狂的迫害史。面對千百萬…</a>
 </h2>
