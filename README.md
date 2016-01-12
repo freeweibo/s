@@ -26,6 +26,12 @@
 <p>
 	<small> ============== 1小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3930405273510143" target="freeweibo-mirror">转自劉曉原：今天，锋锐所主任周世锋亲属收到逮捕通知书，周世锋…</a>
+</h2>
+<p>转自劉曉原：今天，锋锐所主任周世锋亲属收到逮捕通知书，周世锋因涉嫌颠覆国家政权罪，1月8日被天津市公安局逮捕，羁押在天津市第一看守所。<br><img src="http://ww4.sinaimg.cn/large/489ab6b0jw1ezwhx0hxjfj20g40933z2.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3930396276185611" target="freeweibo-mirror">多洞就是正义</a>
 </h2>
 <p>多洞就是正义<br><br>RE: 先扔一把刀迷惑武警，喊完安拉乎阿克巴就扔斧子伤人，然后，暴恐分子就没有然后了。这种视频不但不应该删，而且应该多放，震慑宵小！恐怖分子没有生存空间，人民才能安心生活！http://t.cn/R4Ne5Eh</p>
@@ -36,7 +42,7 @@
 </h2>
 <p>//@张鸣://@周泽律师: 回复@眾人皆醉:嗯，这样做网评挺好，可能给司法行政部门施压，促使他们给律师施压，别对同行的遭遇发声。 //@眾人皆醉:都是律师在发声，是不是他们上级有指示，他们在完成任务？[怒]<br><br>RE: 失踪数月的考拉被宣布逮捕，涉嫌颠覆国家政权罪。见过这个漂亮的小女孩，她是一位律师朋友的助理，关心公益。没想到啊，没想到，这样样一个阳光美少女，竟然有这么大的野心！这是办案机关在给年轻人指明发展方向吗？<br><img src="http://ww1.sinaimg.cn/large/4bdb1fa0jw1ezvwujzapmj20hs0nqt9t.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3930379620233054" target="freeweibo-mirror">//@假装不是律师: //@张鸣://@周泽律师: 回复@眾…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3930222749794101" target="freeweibo-mirror">//@这个冬季特别冷:如此弱女子居然能够颠覆一个政权，这政权…</a>
 </h2>
 <p>//@这个冬季特别冷:如此弱女子居然能够颠覆一个政权，这政权，呵呵。<br><br>RE: 失踪数月的考拉被逮捕，涉嫌颠覆国家政权罪，不知这样花季的少女实施了哪些危害国家政权的行为<br><img src="http://ww4.sinaimg.cn/large/6edbc162gw1ezvt5verhyj20qk0qk0zk.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3930222304505974" target="freeweibo-mirror">失踪数月的考拉被宣布逮捕，涉嫌颠覆国家政权罪。见过这个漂亮的…</a>
-</h2>
-<p>失踪数月的考拉被宣布逮捕，涉嫌颠覆国家政权罪。见过这个漂亮的小女孩，她是一位律师朋友的助理，关心公益。没想到啊，没想到，这样样一个阳光美少女，竟然有这么大的野心！这是办案机关在给年轻人指明发展方向吗？<br><img src="http://ww1.sinaimg.cn/large/4bdb1fa0jw1ezvwujzapmj20hs0nqt9t.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
