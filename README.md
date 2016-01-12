@@ -102,7 +102,7 @@
 </h2>
 <p>//@这个冬季特别冷:如此弱女子居然能够颠覆一个政权，这政权，呵呵。<br><br>RE: 失踪数月的考拉被逮捕，涉嫌颠覆国家政权罪，不知这样花季的少女实施了哪些危害国家政权的行为<br><img src="http://ww4.sinaimg.cn/large/6edbc162gw1ezvt5verhyj20qk0qk0zk.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3930204475020374" target="freeweibo-mirror">SPAM 错，乐事不是可乐么！(ღ˘⌣˘ღ)</a>
 </h2>
