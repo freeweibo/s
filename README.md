@@ -36,7 +36,7 @@
 </h2>
 <p>SPAM [doge]//@特急演员:鉴定肇事司机患急性短暂性精神障碍 @南昌发布 @南昌公安  @江西发布 @江西公安<br><br>RE: "南昌一辆英菲尼迪连撞八人驾车肇事逃逸，酒驾还是毒驾？ [怒骂][怒骂][怒骂][怒骂]http://t.cn/R4pD6co（使用#秒拍#录制）</p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3930594658800923" target="freeweibo-mirror">SPAM //@倾听真实声音://@劲爆新资讯:转发微博</a>
 </h2>
@@ -54,7 +54,7 @@
 </h2>
 <p>SPAM get！下了慢慢看~</p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3930550743846243" target="freeweibo-mirror">//@可是无业刘民: //@小飞侠0311号:转发微博</a>
 </h2>
