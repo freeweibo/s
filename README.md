@@ -72,7 +72,7 @@
 </h2>
 <p>SPAM 你这是盼她着死啊！你和她多大仇？追求她被当众抽了嘴巴？还是准备拿她做人血馒头卖给华老栓？<br><br>RE: 滿清滅亡前，對一個女人下了毒手，就是殺了秋瑾……<br><img src="http://ww4.sinaimg.cn/large/006jDPFLgw1ezvwzwe209j30bl0m8dh7.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3930484897624758" target="freeweibo-mirror">//@孔智勇39: 历史之鉴。//@湘江冷雨: 一部血泪史。…</a>
 </h2>
