@@ -36,7 +36,7 @@
 </h2>
 <p>"南昌一辆英菲尼迪连撞八人驾车肇事逃逸，酒驾还是毒驾？ [怒骂][怒骂][怒骂][怒骂]http://t.cn/R4pD6co（使用#秒拍#录制）</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3930569824264344" target="freeweibo-mirror">SPAM get！下了慢慢看~</a>
 </h2>
@@ -84,7 +84,7 @@
 </h2>
 <p>//@胡少尉://@砀山人_在上海W: //@戎戎85日记://@大力水手AAA:转发微博<br><br>RE: 才知道原來咱們大大的家族只剩他一個人還是中國籍了，哈哈～好棒噠</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3930458985355501" target="freeweibo-mirror">//@陈有西: 你忘了刑法总则的基本原则，行为犯更强调主观恶…</a>
 </h2>
