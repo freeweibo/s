@@ -84,7 +84,7 @@
 </h2>
 <p>SPAM 动辄失踪，这是什么世道？[吃惊]<br><br>RE: 【紧急关注：八零后王秋实律师失联44小时！】 因前两位辩护律师受压，被迫退出王全璋律师的辩护而临危受命的王秋实律师自上周六中午已经持续失联44小时，今天王律师父母将来京寻子。王律师事先为自己委托的两位辩护律师今明两天开始展开找寻和辩护工作。<br><img src="http://ww3.sinaimg.cn/large/9c307177jw1ezv9re6nd3j20qo0zkacs.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3930236922427480" target="freeweibo-mirror">SPAM 国家很脆弱，颠覆不费劲？是这个意思吗？//@易天:…</a>
 </h2>
