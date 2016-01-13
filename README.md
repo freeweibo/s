@@ -30,7 +30,13 @@
 </h2>
 <p>//@智谷的吴扬文:这件事让人整个不好了 //@我是半耳人://@苏州郎心铁: w //@我是半耳人://@2可器: //@ICO刘开明: //</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3930624681836457" target="freeweibo-mirror">蔡英文转发后，这个年轻人火了</a>
+</h2>
+<p>蔡英文转发后，这个年轻人火了<br><img src="http://ww1.sinaimg.cn/large/b13e6360gw1ezx71r5l4wj20kl0x143j.jpg"></p>
+<p>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3930621191192728" target="freeweibo-mirror">//@心砚微语:欠我们一个“再见”了，等你没商量！//@梦已…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3930451750448072" target="freeweibo-mirror">文革歷史就是一部殺人史、整人史、喪心病狂的迫害史。面對千百萬…</a>
 </h2>
 <p>文革歷史就是一部殺人史、整人史、喪心病狂的迫害史。面對千百萬亡魂，面對數以億計被迫害、精神心灵遭受痛苦折磨的民眾，無人能給文革翻案。文革回潮絕不可能得逞。中華民族如果不能從文革災難吸取教訓，如果重蹈文革覆辙，將萬劫不復。<br><img src="http://ww2.sinaimg.cn/large/006jDQJ3jw1ezwn95omfsj30bo08cab9.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3930447233214768" target="freeweibo-mirror">被犯罪 //@谢佑平:转发微博</a>
-</h2>
-<p>被犯罪 //@谢佑平:转发微博<br><br>RE: 【考拉案】失踪半年才宣布逮捕，立法权失守，司法权更失守。公民任意被犯罪时代到来。<br><img src="http://ww3.sinaimg.cn/large/6b804b51gw1ezwf4ql4upj20ku0wwjt3.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
