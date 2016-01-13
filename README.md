@@ -54,7 +54,7 @@
 </h2>
 <p>//@心砚微语:欠我们一个“再见”了，等你没商量！//@梦已蹉跎07:挺薄到底！永不言弃！[心][拳头][话筒]</p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3930613315269525" target="freeweibo-mirror">SPAM [偷乐][偷乐]</a>
 </h2>
