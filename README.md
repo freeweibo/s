@@ -24,7 +24,7 @@
 </h2>
 <p>//@cywz1: //@可可-cm10:转发微博<br><br>RE: 华裔美国姑娘写给习近平主席的信，快人快语，口無遮拦，读之爽口……<br><img src="http://ww4.sinaimg.cn/large/8dc61b1bjw1ezxwat9ktwj20ic27mwqa.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3930877035641327" target="freeweibo-mirror">SPAM 谁说只有36计和宫心计，还有电商喊斗计。下面年货节…</a>
 </h2>
