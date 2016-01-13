@@ -42,7 +42,7 @@
 </h2>
 <p>华裔美国姑娘写给习近平主席的信，快人快语，口無遮拦，读之爽口……<br><img src="http://ww4.sinaimg.cn/large/8dc61b1bjw1ezxwat9ktwj20ic27mwqa.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3930840847871958" target="freeweibo-mirror">SPAM 【新华社：携程在手，说走为什么走不了？】携程网必须…</a>
 </h2>
