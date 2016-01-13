@@ -20,6 +20,18 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3930762837004563" target="freeweibo-mirror">SPAM 到南大不算卧底[阴险]//@起点-贪狼独坐:南京大…</a>
+</h2>
+<p>SPAM 到南大不算卧底[阴险]//@起点-贪狼独坐:南京大学是不是要看看？//@两袖清风陈阿扁: 踏马的，我怎么立刻就联想到那些在公共场所偷拍裸露照的....//@基建狂魔大土鳖: 大北京防卫漏洞。 //@铁军祥哥:发现了能定罪吗？说是南京大学的，可靠不？ http://t.cn/R40bF0J //@贺兰山下有根葱: 在南京读大学哦<br><br>RE: 蔡英文转发后，这个年轻人火了<br><img src="http://ww1.sinaimg.cn/large/b13e6360gw1ezx71r5l4wj20kl0x143j.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3930752196356925" target="freeweibo-mirror">SPAM #周氏股市心理学# 语录：历史为什么总是惊人的相似…</a>
+</h2>
+<p>SPAM #周氏股市心理学# 语录：历史为什么总是惊人的相似，因为参与历史的股民内心如一。历史规律：上证周线极少出现4连阴，本周目前依然是阴线。结论：即使周三开始不反弹，下周必然反弹，这里止损不符合历史规律[话筒]</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3930751940858677" target="freeweibo-mirror">SPAM @平安北京@首都网警 看看第四张图。</a>
 </h2>
 <p>SPAM @平安北京@首都网警 看看第四张图。<br><br>RE: 蔡英文转发后，这个年轻人火了<br><img src="http://ww1.sinaimg.cn/large/b13e6360gw1ezx71r5l4wj20kl0x143j.jpg"></p>
@@ -125,18 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3930458871990194" target="freeweibo-mirror">小姑娘，大本事啊！//@作家刘小海: 这小姑娘怎么了，真能颠…</a>
 </h2>
 <p>小姑娘，大本事啊！//@作家刘小海: 这小姑娘怎么了，真能颠覆国家？<br><br>RE: 【考拉案】失踪半年才宣布逮捕，立法权失守，司法权更失守。公民任意被犯罪时代到来。<br><img src="http://ww3.sinaimg.cn/large/6b804b51gw1ezwf4ql4upj20ku0wwjt3.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3930456402014934" target="freeweibo-mirror">//@笨笨an://@陈有西:不是说年轻就可姑息，按中国刑事…</a>
-</h2>
-<p>//@笨笨an://@陈有西:不是说年轻就可姑息，按中国刑事责任年龄，她都够格了。我是说政治性犯罪，犯罪主体应有特别严格的限定，不能将一般的不满、异见，同坚定推翻政府的犯罪混为一谈，扩大犯罪外延，将一般不满人群，都推向敌对面。<br><br>RE: 【考拉案】失踪半年才宣布逮捕，立法权失守，司法权更失守。公民任意被犯罪时代到来。<br><img src="http://ww3.sinaimg.cn/large/6b804b51gw1ezwf4ql4upj20ku0wwjt3.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3930451750448072" target="freeweibo-mirror">文革歷史就是一部殺人史、整人史、喪心病狂的迫害史。面對千百萬…</a>
-</h2>
-<p>文革歷史就是一部殺人史、整人史、喪心病狂的迫害史。面對千百萬亡魂，面對數以億計被迫害、精神心灵遭受痛苦折磨的民眾，無人能給文革翻案。文革回潮絕不可能得逞。中華民族如果不能從文革災難吸取教訓，如果重蹈文革覆辙，將萬劫不復。<br><img src="http://ww2.sinaimg.cn/large/006jDQJ3jw1ezwn95omfsj30bo08cab9.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
