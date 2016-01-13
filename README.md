@@ -24,7 +24,7 @@
 </h2>
 <p>SPAM 好吧，手机打开试了一下，验了一下居然序列号是真的，但我总觉得现在造假技术。。。不管了，给我爹用了。。。</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3930929531369671" target="freeweibo-mirror">换汇需要现金吗？华尔街的小编写软文用猪脑吗？另外知不知道在中…</a>
 </h2>
@@ -54,7 +54,7 @@
 </h2>
 <p>SPAM 给你们看一个可能产自华强北的爱疯6S。这也太特么不敬业了。<br><img src="http://ww4.sinaimg.cn/large/62209e25jw1ezy44ac1yzj20qo0zkjza.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3930902314873268" target="freeweibo-mirror">//@cywz1: //@可可-cm10:转发微博</a>
 </h2>
