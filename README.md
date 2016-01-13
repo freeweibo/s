@@ -48,7 +48,7 @@
 </h2>
 <p>//@cywz1: //@可可-cm10:转发微博<br><br>RE: 华裔美国姑娘写给习近平主席的信，快人快语，口無遮拦，读之爽口……<br><img src="http://ww4.sinaimg.cn/large/8dc61b1bjw1ezxwat9ktwj20ic27mwqa.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3930894199396199" target="freeweibo-mirror">[吃惊]//@辟谣与真相:现在的秘书长由国务委员杨晶兼任。国…</a>
 </h2>
