@@ -38,6 +38,12 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3930914041685575" target="freeweibo-mirror">【中国民众争相购汇导致美元现金短缺】- 在过去几周人民币大跌…</a>
+</h2>
+<p>【中国民众争相购汇导致美元现金短缺】- 在过去几周人民币大跌的情况下，中国民众一直忙着将手中的人民币兑换成美元，导致中国内地一些银行出现现金短缺的局面。http://t.cn/R40Xp87</p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3930902314873268" target="freeweibo-mirror">//@cywz1: //@可可-cm10:转发微博</a>
 </h2>
 <p>//@cywz1: //@可可-cm10:转发微博<br><br>RE: 华裔美国姑娘写给习近平主席的信，快人快语，口無遮拦，读之爽口……<br><img src="http://ww4.sinaimg.cn/large/8dc61b1bjw1ezxwat9ktwj20ic27mwqa.jpg"></p>
@@ -72,7 +78,7 @@
 </h2>
 <p>快讯：中国将任命新的国务院秘书长，重庆市长黄奇帆是取代杨晶担任国务院秘书长的最热门人选--消息人士</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3930877035641327" target="freeweibo-mirror">SPAM 谁说只有36计和宫心计，还有电商喊斗计。下面年货节…</a>
 </h2>
@@ -102,7 +108,7 @@
 </h2>
 <p>SPAM 【新华社：携程在手，说走为什么走不了？】携程网必须按照合同约定出具机票并保证机票真实有效，一旦出现问题携程网必须承担相应责任。机票代理商与消费者之间实际上不存在合同关系，如果涉及机票代理商的问题，需要由携程网去追究其责任。http://t.cn/R405p39<br><img src="http://ww1.sinaimg.cn/large/928aba1egw1ezxvy2fdkej20fa0cndh5.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3930835121619845" target="freeweibo-mirror">SPAM #春晚# [doge] //@艳华:貌似#2016…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3930762837004563" target="freeweibo-mirror">SPAM 到南大不算卧底[阴险]//@起点-贪狼独坐:南京大…</a>
 </h2>
 <p>SPAM 到南大不算卧底[阴险]//@起点-贪狼独坐:南京大学是不是要看看？//@两袖清风陈阿扁: 踏马的，我怎么立刻就联想到那些在公共场所偷拍裸露照的....//@基建狂魔大土鳖: 大北京防卫漏洞。 //@铁军祥哥:发现了能定罪吗？说是南京大学的，可靠不？ http://t.cn/R40bF0J //@贺兰山下有根葱: 在南京读大学哦<br><br>RE: 蔡英文转发后，这个年轻人火了<br><img src="http://ww1.sinaimg.cn/large/b13e6360gw1ezx71r5l4wj20kl0x143j.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3930752196356925" target="freeweibo-mirror">SPAM #周氏股市心理学# 语录：历史为什么总是惊人的相似…</a>
-</h2>
-<p>SPAM #周氏股市心理学# 语录：历史为什么总是惊人的相似，因为参与历史的股民内心如一。历史规律：上证周线极少出现4连阴，本周目前依然是阴线。结论：即使周三开始不反弹，下周必然反弹，这里止损不符合历史规律[话筒]</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
