@@ -20,6 +20,18 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3930972141183044" target="freeweibo-mirror">张清同志确实反党。党不是说毛泽东晚年犯有严重错误吗？张清同志…</a>
+</h2>
+<p>张清同志确实反党。党不是说毛泽东晚年犯有严重错误吗？张清同志是党员吗？党呢，党呢，我要举报张清妄议！//@东风落云Q: @张清同志 你居然把毛泽东比作猴子，你是何居心，对此反动，立即拉出去打死[怒骂]//@校长修车: //@陈-建新:“国母”一事，更不好处理，容易乱辈。<br><br>RE: 估计事情是这样的，给毛以“国父”称号肯定不妥，因为有孙中山在前，一个国两个父，貌似国母会表示不好处理。于是，有人说毛应该叫“东圣”，那么问题来了，西圣耶稣东圣毛？有点不伦不类。这样，终于有人想出来了，干脆，尊毛为“大圣”。大圣啊大圣，洪福齐天呢。（图文有关。） http://t.cn/RyhTRs6<br><img src="http://ww3.sinaimg.cn/large/59405d86jw1ezy65jxuxqj20qo1beaj3.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3930966559359641" target="freeweibo-mirror">“国母”一事，更不好处理，容易乱辈。//@做有道德的记者: …</a>
+</h2>
+<p>“国母”一事，更不好处理，容易乱辈。//@做有道德的记者: //@锦衣袂:这帮五毛，把毛当只猴子，是何居心？ //@王小山:有人提议万圣，但容易联想到鬼，让人一下想起他治下那么多冤魂，似乎不妥。//@方晓翎:我觉得“万圣”不错，很形象。<br><br>RE: 估计事情是这样的，给毛以“国父”称号肯定不妥，因为有孙中山在前，一个国两个父，貌似国母会表示不好处理。于是，有人说毛应该叫“东圣”，那么问题来了，西圣耶稣东圣毛？有点不伦不类。这样，终于有人想出来了，干脆，尊毛为“大圣”。大圣啊大圣，洪福齐天呢。（图文有关。） http://t.cn/RyhTRs6<br><img src="http://ww3.sinaimg.cn/large/59405d86jw1ezy65jxuxqj20qo1beaj3.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3930942043085320" target="freeweibo-mirror">SPAM 好吧，手机打开试了一下，验了一下居然序列号是真的，…</a>
 </h2>
 <p>SPAM 好吧，手机打开试了一下，验了一下居然序列号是真的，但我总觉得现在造假技术。。。不管了，给我爹用了。。。</p>
@@ -60,7 +72,7 @@
 </h2>
 <p>//@cywz1: //@可可-cm10:转发微博<br><br>RE: 华裔美国姑娘写给习近平主席的信，快人快语，口無遮拦，读之爽口……<br><img src="http://ww4.sinaimg.cn/large/8dc61b1bjw1ezxwat9ktwj20ic27mwqa.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3930894199396199" target="freeweibo-mirror">[吃惊]//@辟谣与真相:现在的秘书长由国务委员杨晶兼任。国…</a>
 </h2>
@@ -127,18 +139,6 @@
 <p>SPAM #春晚# [doge] //@艳华:貌似#2016春晚#节目单[挖鼻]<br><br>RE: 2016春晚第一次联排节目单，怎么感觉除了TFBOYS、李易峰、王凯、胡歌，基本没啥可看性……<br><img src="http://ww4.sinaimg.cn/large/6decce9fjw1ezxt095i9tj20fm0kuaat.jpg"></p>
 <p>
 	<small> ============== 10小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3930815635596397" target="freeweibo-mirror">2016春晚第一次联排节目单，怎么感觉除了TFBOYS、李易…</a>
-</h2>
-<p>2016春晚第一次联排节目单，怎么感觉除了TFBOYS、李易峰、王凯、胡歌，基本没啥可看性……<br><img src="http://ww4.sinaimg.cn/large/6decce9fjw1ezxt095i9tj20fm0kuaat.jpg"></p>
-<p>
-	<small> ============== 11小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3930805753791725" target="freeweibo-mirror">SPAM 颜料都掉了啊，很早以前还看过蓝精灵的//@哪个少女…</a>
-</h2>
-<p>SPAM 颜料都掉了啊，很早以前还看过蓝精灵的//@哪个少女不怀春: 我想问问有中文字幕么？[笑cry] //@段小鱼的平凡人生: 其实我觉得女优太可怜了，一把年纪还要这样cosplay。。。<br><br>RE: 说的是一群男人抓野生河童的故事，河童爱吃小黄瓜，男人们没带~于是用肉黄瓜抓河童【羞】【捂脸】 「NAZE-06」长微博发不了~自己下载看吧~@克羅迪厄斯三世 你最爱的熟女<br><img src="http://ww2.sinaimg.cn/large/8a9ffbe0gw1ezxrll7rqtj20go0ba0wr.jpg"></p>
-<p>
-	<small> ============== 12小时前</small>
 </p>
 <table>
     <tr>
