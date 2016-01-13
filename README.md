@@ -60,7 +60,7 @@
 </h2>
 <p>SPAM get！下了慢慢看~</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3930550743846243" target="freeweibo-mirror">//@可是无业刘民: //@小飞侠0311号:转发微博</a>
 </h2>
