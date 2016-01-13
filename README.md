@@ -126,13 +126,13 @@
 </h2>
 <p>黄奇帆将出任国务委员兼国务院秘书长，接替李克强处理对金融决策和经济日常工作。对还有一年就到点退休的黄来说，这算是临危受命，是中央和习对李克强工作的投出的不信任票。未来国务院的日常经济和金融工作，将由黄主持。但是他将面对一个巨大的烂摊子，会大幅收紧严管并去杠杆。</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3930912322295449" target="freeweibo-mirror">SPAM 给你们看一个可能产自华强北的爱疯6S。这也太特么不…</a>
 </h2>
 <p>SPAM 给你们看一个可能产自华强北的爱疯6S。这也太特么不敬业了。<br><img src="http://ww4.sinaimg.cn/large/62209e25jw1ezy44ac1yzj20qo0zkjza.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3930902314873268" target="freeweibo-mirror">//@cywz1: //@可可-cm10:转发微博</a>
 </h2>
