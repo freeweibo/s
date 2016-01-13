@@ -24,7 +24,7 @@
 </h2>
 <p>SPAM 【新华社：携程在手，说走为什么走不了？】携程网必须按照合同约定出具机票并保证机票真实有效，一旦出现问题携程网必须承担相应责任。机票代理商与消费者之间实际上不存在合同关系，如果涉及机票代理商的问题，需要由携程网去追究其责任。http://t.cn/R405p39<br><img src="http://ww1.sinaimg.cn/large/928aba1egw1ezxvy2fdkej20fa0cndh5.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3930805753791725" target="freeweibo-mirror">SPAM 颜料都掉了啊，很早以前还看过蓝精灵的//@哪个少女…</a>
 </h2>
