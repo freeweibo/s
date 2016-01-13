@@ -84,13 +84,13 @@
 </h2>
 <p>SPAM #周氏股市心理学# 语录：历史为什么总是惊人的相似，因为参与历史的股民内心如一。历史规律：上证周线极少出现4连阴，本周目前依然是阴线。结论：即使周三开始不反弹，下周必然反弹，这里止损不符合历史规律[话筒]</p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3930751940858677" target="freeweibo-mirror">SPAM @平安北京@首都网警 看看第四张图。</a>
 </h2>
 <p>SPAM @平安北京@首都网警 看看第四张图。<br><br>RE: 蔡英文转发后，这个年轻人火了<br><img src="http://ww1.sinaimg.cn/large/b13e6360gw1ezx71r5l4wj20kl0x143j.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3930717677375475" target="freeweibo-mirror">//@智谷的吴扬文:这件事让人整个不好了 //@我是半耳人:…</a>
 </h2>
