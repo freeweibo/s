@@ -138,7 +138,7 @@
 </h2>
 <p>//@cywz1: //@可可-cm10:转发微博<br><br>RE: 华裔美国姑娘写给习近平主席的信，快人快语，口無遮拦，读之爽口……<br><img src="http://ww4.sinaimg.cn/large/8dc61b1bjw1ezxwat9ktwj20ic27mwqa.jpg"></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p>
 <table>
     <tr>
