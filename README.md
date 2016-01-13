@@ -54,7 +54,7 @@
 </h2>
 <p>"南昌一辆英菲尼迪连撞八人驾车肇事逃逸，酒驾还是毒驾？ [怒骂][怒骂][怒骂][怒骂]http://t.cn/R4pD6co（使用#秒拍#录制）</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3930569824264344" target="freeweibo-mirror">SPAM get！下了慢慢看~</a>
 </h2>
