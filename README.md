@@ -42,7 +42,7 @@
 </h2>
 <p>2016春晚第一次联排节目单，怎么感觉除了TFBOYS、李易峰、王凯、胡歌，基本没啥可看性……<br><img src="http://ww4.sinaimg.cn/large/6decce9fjw1ezxt095i9tj20fm0kuaat.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3930805753791725" target="freeweibo-mirror">SPAM 颜料都掉了啊，很早以前还看过蓝精灵的//@哪个少女…</a>
 </h2>
@@ -78,7 +78,7 @@
 </h2>
 <p>//@智谷的吴扬文:这件事让人整个不好了 //@我是半耳人://@苏州郎心铁: w //@我是半耳人://@2可器: //@ICO刘开明: //</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3930624681836457" target="freeweibo-mirror">蔡英文转发后，这个年轻人火了</a>
 </h2>
