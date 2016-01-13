@@ -96,7 +96,7 @@
 </h2>
 <p>估计事情是这样的，给毛以“国父”称号肯定不妥，因为有孙中山在前，一个国两个父，貌似国母会表示不好处理。于是，有人说毛应该叫“东圣”，那么问题来了，西圣耶稣东圣毛？有点不伦不类。这样，终于有人想出来了，干脆，尊毛为“大圣”。大圣啊大圣，洪福齐天呢。（图文有关。） http://t.cn/RyhTRs6<br><img src="http://ww3.sinaimg.cn/large/59405d86jw1ezy65jxuxqj20qo1beaj3.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3930929531369671" target="freeweibo-mirror">换汇需要现金吗？华尔街的小编写软文用猪脑吗？另外知不知道在中…</a>
 </h2>
