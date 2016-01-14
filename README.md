@@ -80,6 +80,12 @@
 <p>
 	<small> ============== 1天前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3930967356422120" target="freeweibo-mirror">转：十五年前，美国和中国，两个搜索引擎公司几乎同时起步，十五…</a>
+</h2>
+<p>转：十五年前，美国和中国，两个搜索引擎公司几乎同时起步，十五年后，一个在研究量子计算机的可行性，另一个在研究如何帮人卖假药。<br><img src="http://ww3.sinaimg.cn/large/c6477a12gw1ezyah59gsrj208d08awem.jpg"></p>
+<p>
+	<small> ============== 1天前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3930966559359641" target="freeweibo-mirror">“国母”一事，更不好处理，容易乱辈。//@做有道德的记者: …</a>
 </h2>
 <p>“国母”一事，更不好处理，容易乱辈。//@做有道德的记者: //@锦衣袂:这帮五毛，把毛当只猴子，是何居心？ //@王小山:有人提议万圣，但容易联想到鬼，让人一下想起他治下那么多冤魂，似乎不妥。//@方晓翎:我觉得“万圣”不错，很形象。<br><br>RE: 估计事情是这样的，给毛以“国父”称号肯定不妥，因为有孙中山在前，一个国两个父，貌似国母会表示不好处理。于是，有人说毛应该叫“东圣”，那么问题来了，西圣耶稣东圣毛？有点不伦不类。这样，终于有人想出来了，干脆，尊毛为“大圣”。大圣啊大圣，洪福齐天呢。（图文有关。） http://t.cn/RyhTRs6<br><img src="http://ww3.sinaimg.cn/large/59405d86jw1ezy65jxuxqj20qo1beaj3.jpg"></p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3930923123111085" target="freeweibo-mirror">楊去天津？ //@蓝鲸财经记者工作平台:[围观]//@财联社…</a>
 </h2>
 <p>楊去天津？ //@蓝鲸财经记者工作平台:[围观]//@财联社APP: [围观]<br><br>RE: 快讯：中国将任命新的国务院秘书长，重庆市长黄奇帆是取代杨晶担任国务院秘书长的最热门人选--消息人士</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3930918945344414" target="freeweibo-mirror">《嗨，山巅的姑娘》</a>
-</h2>
-<p>《嗨，山巅的姑娘》<br><img src="http://ww2.sinaimg.cn/large/867a7319jw1ezy4wghq84j20hs1tmgqf.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
