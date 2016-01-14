@@ -54,13 +54,13 @@
 </h2>
 <p>//@清华孙立平:美国的新硬件时代已来临 http://t.cn/R4JEItS //@韩志国: ＋互联网与互联网＋差距不大吗？这个大家可以讨论一下，因为这涉及国家战略。</p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3931143206159621" target="freeweibo-mirror">SPAM //@Hermestylee:李彦宏 职业：专业医…</a>
 </h2>
 <p>SPAM //@Hermestylee:李彦宏 职业：专业医托+假药贩子！！！  李彦宏 职业：专业医托+假药贩子！！！  李彦宏 职业：专业医托+假药贩子！！！  李彦宏 职业：专业医托+假药贩子！！！<br><br>RE: 转：十五年前，美国和中国，两个搜索引擎公司几乎同时起步，十五年后，一个在研究量子计算机的可行性，另一个在研究如何帮人卖假药。<br><img src="http://ww3.sinaimg.cn/large/c6477a12gw1ezyah59gsrj208d08awem.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3931137321687058" target="freeweibo-mirror">唉。。。</a>
 </h2>
