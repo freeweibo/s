@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3931319987382780" target="freeweibo-mirror">SPAM 啥？这个人是黄安？//@麻瓜扫把01：爱国小粉红和…</a>
+</h2>
+<p>SPAM 啥？这个人是黄安？//@麻瓜扫把01：爱国小粉红和我一起喊黄安滚出大陆<br><br>RE: 台湾人瞎话张口就来啊，为了收视率和所谓的笑点居然各种辱华。。。http://t.cn/R4OEmWe</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3931240955114825" target="freeweibo-mirror">黑人大姐房子着火后自带rap效果的采访视频已经被大神做出混音…</a>
 </h2>
 <p>黑人大姐房子着火后自带rap效果的采访视频已经被大神做出混音版本，大姐收拾一下可以出道了 http://t.cn/R40YV2w</p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3930942043085320" target="freeweibo-mirror">SPAM 好吧，手机打开试了一下，验了一下居然序列号是真的，…</a>
 </h2>
 <p>SPAM 好吧，手机打开试了一下，验了一下居然序列号是真的，但我总觉得现在造假技术。。。不管了，给我爹用了。。。</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3930937718475044" target="freeweibo-mirror">有款待区伯？不会吧！//@霸气的北京小妞20126: 我敢断…</a>
-</h2>
-<p>有款待区伯？不会吧！//@霸气的北京小妞20126: 我敢断言:如果下次区伯被嫖娼,一定是广州军方出资赞助![哈哈][哈哈][哈哈][哈哈]</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
