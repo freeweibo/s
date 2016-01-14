@@ -30,7 +30,7 @@
 </h2>
 <p>台湾人瞎话张口就来啊，为了收视率和所谓的笑点居然各种辱华。。。http://t.cn/R4OEmWe</p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3931240955114825" target="freeweibo-mirror">黑人大姐房子着火后自带rap效果的采访视频已经被大神做出混音…</a>
 </h2>
