@@ -48,7 +48,7 @@
 </h2>
 <p>//@亚龙淸浪:这个很容易理解！！！就拿北朝鲜来说，它特别害怕的不是高科技的武器，而是南朝鲜的高音喇叭！！！绝对虚弱的表现！！！<br><br>RE: 昨天刚刚说了在这种时候稳定人心最重要，政府要给人定心丸，马上就把几个人按颠覆国家罪给抓了。我就不明白了，赤手空拳的，怎么个颠覆法？</p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3931143605071602" target="freeweibo-mirror">//@清华孙立平:美国的新硬件时代已来临 http://t.…</a>
 </h2>
@@ -66,7 +66,7 @@
 </h2>
 <p>唉。。。<br><br>RE: 如果生命没有正义的尊严和法律的公平！:那么生命的意义是什么？生命安全变成正义的屈膝、法律的 卑微，以此换来人生的余生，这样的余生除了梦魇和心霾还能有什么？我叫王怀前，中华人民共和国 ...(发自@微博桌面 http://t.cn/zjj9IWH）<br><img src="http://ww1.sinaimg.cn/large/0067xTMUjw1ezwxw0rc5tj30c82yfhdt.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3930980815370100" target="freeweibo-mirror">SPAM 完全看不懂[doge]</a>
 </h2>
