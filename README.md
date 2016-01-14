@@ -116,6 +116,12 @@
 <p>
 	<small> ============== 1天前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3930918945344414" target="freeweibo-mirror">《嗨，山巅的姑娘》</a>
+</h2>
+<p>《嗨，山巅的姑娘》<br><img src="http://ww2.sinaimg.cn/large/867a7319jw1ezy4wghq84j20hs1tmgqf.jpg"></p>
+<p>
+	<small> ============== 1天前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3930914041685575" target="freeweibo-mirror">【中国民众争相购汇导致美元现金短缺】- 在过去几周人民币大跌…</a>
 </h2>
 <p>【中国民众争相购汇导致美元现金短缺】- 在过去几周人民币大跌的情况下，中国民众一直忙着将手中的人民币兑换成美元，导致中国内地一些银行出现现金短缺的局面。http://t.cn/R40Xp87</p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3930912322295449" target="freeweibo-mirror">SPAM 给你们看一个可能产自华强北的爱疯6S。这也太特么不…</a>
 </h2>
 <p>SPAM 给你们看一个可能产自华强北的爱疯6S。这也太特么不敬业了。<br><img src="http://ww4.sinaimg.cn/large/62209e25jw1ezy44ac1yzj20qo0zkjza.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3930902314873268" target="freeweibo-mirror">//@cywz1: //@可可-cm10:转发微博</a>
-</h2>
-<p>//@cywz1: //@可可-cm10:转发微博<br><br>RE: 华裔美国姑娘写给习近平主席的信，快人快语，口無遮拦，读之爽口……<br><img src="http://ww4.sinaimg.cn/large/8dc61b1bjw1ezxwat9ktwj20ic27mwqa.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
