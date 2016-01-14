@@ -24,7 +24,7 @@
 </h2>
 <p>唉。。。<br><br>RE: 如果生命没有正义的尊严和法律的公平！:那么生命的意义是什么？生命安全变成正义的屈膝、法律的 卑微，以此换来人生的余生，这样的余生除了梦魇和心霾还能有什么？我叫王怀前，中华人民共和国 ...(发自@微博桌面 http://t.cn/zjj9IWH）<br><img src="http://ww1.sinaimg.cn/large/0067xTMUjw1ezwxw0rc5tj30c82yfhdt.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3930980815370100" target="freeweibo-mirror">SPAM 完全看不懂[doge]</a>
 </h2>
