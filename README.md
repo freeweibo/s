@@ -24,7 +24,7 @@
 </h2>
 <p>SPAM 啥？这个人是黄安？//@麻瓜扫把01：爱国小粉红和我一起喊黄安滚出大陆<br><br>RE: 台湾人瞎话张口就来啊，为了收视率和所谓的笑点居然各种辱华。。。http://t.cn/R4OEmWe</p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3931316548533614" target="freeweibo-mirror">台湾人瞎话张口就来啊，为了收视率和所谓的笑点居然各种辱华。。…</a>
 </h2>
