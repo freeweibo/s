@@ -30,7 +30,7 @@
 </h2>
 <p>//@产业人:删帖没用，照样播放！//@精进的一: 视而不见？转发让他火//@石子教授:央视科教频道删帖了，不知咋回事情？[围观]<br><br>RE: #请不要玷污观众视听#央视科教频道于今日连续播出中央民族大学教授赵士林《评说战国策》。 央视是什么地方？竟然容得如此满嘴喷秽的教授贩卖私货！昔日 @中央民族大学 曾曰：立德树人，师德为先。以赵士林之四大无耻：欺师、灭祖、渎职、谄媚，何以能在大学讲坛和CCTV都如鱼得水？@央视新闻 @微言教育<br><img src="http://ww2.sinaimg.cn/large/ebc1fa9ajw1ezzw1pb8e9j20gk04zaaa.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3931619238983931" target="freeweibo-mirror">SPAM 拍成电影吧 http://t.cn/R4WBXzf</a>
 </h2>
