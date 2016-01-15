@@ -24,7 +24,7 @@
 </h2>
 <p>[哈哈]//@ECO中文网:→_→//@加西亚三世:这样子这图就很正面了。歌颂大大勇斗西方帝国主义恶龙。[赞] //@ECO中文网:被发现了//@范奈斯:封面中的龙并不是中国龙，而是化妆成中国龙的西方龙，中国龙并没有翅膀[偷笑]<br><br>RE: 【某报最新一期封面】一切尽在掌握[xkl转圈]<br><img src="http://ww4.sinaimg.cn/large/62b31d36gw1ezztv3iyb2j20b40em76d.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3931459271984811" target="freeweibo-mirror">SPAM //@陆振华:帝国主义太坏啦</a>
 </h2>
