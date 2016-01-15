@@ -36,7 +36,7 @@
 </h2>
 <p>【某报最新一期封面】一切尽在掌握[xkl转圈]<br><img src="http://ww4.sinaimg.cn/large/62b31d36gw1ezztv3iyb2j20b40em76d.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3931319987382780" target="freeweibo-mirror">SPAM 啥？这个人是黄安？//@麻瓜扫把01：爱国小粉红和…</a>
 </h2>
