@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3931688498976699" target="freeweibo-mirror">//@产业人:删帖没用，照样播放！//@精进的一: 视而不见…</a>
+</h2>
+<p>//@产业人:删帖没用，照样播放！//@精进的一: 视而不见？转发让他火//@石子教授:央视科教频道删帖了，不知咋回事情？[围观]<br><br>RE: #请不要玷污观众视听#央视科教频道于今日连续播出中央民族大学教授赵士林《评说战国策》。 央视是什么地方？竟然容得如此满嘴喷秽的教授贩卖私货！昔日 @中央民族大学 曾曰：立德树人，师德为先。以赵士林之四大无耻：欺师、灭祖、渎职、谄媚，何以能在大学讲坛和CCTV都如鱼得水？@央视新闻 @微言教育<br><img src="http://ww2.sinaimg.cn/large/ebc1fa9ajw1ezzw1pb8e9j20gk04zaaa.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3931619238983931" target="freeweibo-mirror">SPAM 拍成电影吧 http://t.cn/R4WBXzf</a>
 </h2>
 <p>SPAM 拍成电影吧 http://t.cn/R4WBXzf</p>
@@ -36,7 +42,7 @@
 </h2>
 <p>[衰][衰][衰][衰]紫光阁！！卧槽 。。<br><br>RE: 【国家面前无“爱豆”】日前，有个艺人在国外娱乐节目里发表不负责任的言论，内容背离了一名中国人的良知。从颜值上看，她是偶像，有着众多粉丝。只是事情的发展，意料之外又情理之中：网友一边倒地批评这位“偶像”的不爱国行为，“国家面前无‘爱豆’”，这句话成为大家对她拒绝的根本理由！[给力]<br><img src="http://ww4.sinaimg.cn/large/005Y2yg1jw1ezzz9hx2zrj30hc4tse7u.jpg"></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3931563987178346" target="freeweibo-mirror">SPAM #随思问道# 发出减仓奥特迅的微博是10:02，价…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3931143605071602" target="freeweibo-mirror">//@清华孙立平:美国的新硬件时代已来临 http://t.…</a>
 </h2>
 <p>//@清华孙立平:美国的新硬件时代已来临 http://t.cn/R4JEItS //@韩志国: ＋互联网与互联网＋差距不大吗？这个大家可以讨论一下，因为这涉及国家战略。</p>
-<p>
-	<small> ============== 2天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3931143206159621" target="freeweibo-mirror">SPAM //@Hermestylee:李彦宏 职业：专业医…</a>
-</h2>
-<p>SPAM //@Hermestylee:李彦宏 职业：专业医托+假药贩子！！！  李彦宏 职业：专业医托+假药贩子！！！  李彦宏 职业：专业医托+假药贩子！！！  李彦宏 职业：专业医托+假药贩子！！！<br><br>RE: 转：十五年前，美国和中国，两个搜索引擎公司几乎同时起步，十五年后，一个在研究量子计算机的可行性，另一个在研究如何帮人卖假药。<br><img src="http://ww3.sinaimg.cn/large/c6477a12gw1ezyah59gsrj208d08awem.jpg"></p>
 <p>
 	<small> ============== 2天前</small>
 </p>
