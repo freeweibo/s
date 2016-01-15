@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3931459271984811" target="freeweibo-mirror">SPAM //@陆振华:帝国主义太坏啦</a>
+</h2>
+<p>SPAM //@陆振华:帝国主义太坏啦<br><br>RE: 【某报最新一期封面】一切尽在掌握[xkl转圈]<br><img src="http://ww4.sinaimg.cn/large/62b31d36gw1ezztv3iyb2j20b40em76d.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3931319987382780" target="freeweibo-mirror">SPAM 啥？这个人是黄安？//@麻瓜扫把01：爱国小粉红和…</a>
 </h2>
 <p>SPAM 啥？这个人是黄安？//@麻瓜扫把01：爱国小粉红和我一起喊黄安滚出大陆<br><br>RE: 台湾人瞎话张口就来啊，为了收视率和所谓的笑点居然各种辱华。。。http://t.cn/R4OEmWe</p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3930966559359641" target="freeweibo-mirror">“国母”一事，更不好处理，容易乱辈。//@做有道德的记者: …</a>
 </h2>
 <p>“国母”一事，更不好处理，容易乱辈。//@做有道德的记者: //@锦衣袂:这帮五毛，把毛当只猴子，是何居心？ //@王小山:有人提议万圣，但容易联想到鬼，让人一下想起他治下那么多冤魂，似乎不妥。//@方晓翎:我觉得“万圣”不错，很形象。<br><br>RE: 估计事情是这样的，给毛以“国父”称号肯定不妥，因为有孙中山在前，一个国两个父，貌似国母会表示不好处理。于是，有人说毛应该叫“东圣”，那么问题来了，西圣耶稣东圣毛？有点不伦不类。这样，终于有人想出来了，干脆，尊毛为“大圣”。大圣啊大圣，洪福齐天呢。（图文有关。） http://t.cn/RyhTRs6<br><img src="http://ww3.sinaimg.cn/large/59405d86jw1ezy65jxuxqj20qo1beaj3.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3930944333595147" target="freeweibo-mirror">[good] //@广州区伯:有款待区伯？不会吧！//@霸气…</a>
-</h2>
-<p>[good] //@广州区伯:有款待区伯？不会吧！//@霸气的北京小妞20126: 我敢断言:如果下次区伯被嫖娼,一定是广州军方出资赞助![哈哈][哈哈][哈哈][哈哈]</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
