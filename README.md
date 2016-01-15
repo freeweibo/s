@@ -120,7 +120,7 @@
 </h2>
 <p>SPAM 完全看不懂[doge]<br><br>RE: 深夜福利到来了，静静的看完睡觉哦~~记得静音哦~！http://t.cn/R4Nng0z</p>
 <p>
-	<small> ============== 1天前</small>
+	<small> ============== 2天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3930973286443270" target="freeweibo-mirror">//@民间治堵人陈哲宏: //@黄文革延边://@迟夙生律师…</a>
 </h2>
