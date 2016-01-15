@@ -42,7 +42,7 @@
 </h2>
 <p>SPAM //@陆振华:帝国主义太坏啦<br><br>RE: 【某报最新一期封面】一切尽在掌握[xkl转圈]<br><img src="http://ww4.sinaimg.cn/large/62b31d36gw1ezztv3iyb2j20b40em76d.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3931449667161506" target="freeweibo-mirror">【某报最新一期封面】一切尽在掌握[xkl转圈]</a>
 </h2>
