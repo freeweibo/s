@@ -36,7 +36,7 @@
 </h2>
 <p>SPAM 拍成电影吧 http://t.cn/R4WBXzf</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3931582744276668" target="freeweibo-mirror">李总经理负主责//@湘潭老赵://@柷敔666://@太公无…</a>
 </h2>
