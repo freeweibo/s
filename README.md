@@ -36,7 +36,7 @@
 </h2>
 <p>SPAM 拍成电影吧 http://t.cn/R4WBXzf</p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3931582744276668" target="freeweibo-mirror">李总经理负主责//@湘潭老赵://@柷敔666://@太公无…</a>
 </h2>
@@ -48,7 +48,7 @@
 </h2>
 <p>[衰][衰][衰][衰]紫光阁！！卧槽 。。<br><br>RE: 【国家面前无“爱豆”】日前，有个艺人在国外娱乐节目里发表不负责任的言论，内容背离了一名中国人的良知。从颜值上看，她是偶像，有着众多粉丝。只是事情的发展，意料之外又情理之中：网友一边倒地批评这位“偶像”的不爱国行为，“国家面前无‘爱豆’”，这句话成为大家对她拒绝的根本理由！[给力]<br><img src="http://ww4.sinaimg.cn/large/005Y2yg1jw1ezzz9hx2zrj30hc4tse7u.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3931563987178346" target="freeweibo-mirror">SPAM #随思问道# 发出减仓奥特迅的微博是10:02，价…</a>
 </h2>
