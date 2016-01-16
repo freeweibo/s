@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3931907261987469" target="freeweibo-mirror">SPAM //@虎叔-:一个执政党没有办法让民众满意，就应该…</a>
+</h2>
+<p>SPAM //@虎叔-:一个执政党没有办法让民众满意，就应该下台反省。<br><br>RE: 今天台湾选举，我希望蔡女士赢。一个执政党没有办法让民众满意，就应该下台反省。因为，权力，就象春药。当执政者离开权力的神坛，也许才会发现自己的无能，才能真正反省自己的过错。通过选举失去权力，总比被枪杆子逼下台要好。<br><img src="http://ww2.sinaimg.cn/large/6cefc1a7jw1f012d359hjj20qo0zkdnm.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3931879826521211" target="freeweibo-mirror">NO，浙江诸暨师爷//@耍钉耙的哈迪斯: 上海人棒棒哒！//…</a>
 </h2>
 <p>NO，浙江诸暨师爷//@耍钉耙的哈迪斯: 上海人棒棒哒！//@孙云康律师:看黄“奇才”的啦<br><br>RE: 【消息人士：黄奇帆将上调中央 主管金融】消息人士称：“让黄奇帆监管中国的金融市场的任命是习主席钦定的。黄奇帆对中国的金融系统和实体经济都有深刻的认识。”http://t.cn/R4ls7xG<br><img src="http://ww2.sinaimg.cn/large/9dcb59c7jw1f00nf4ywx4j20di08egmi.jpg"></p>
@@ -72,7 +78,7 @@
 </h2>
 <p>新浪好心塞，又不敢删<br><br>RE: #新浪删台独话题# 图一：国外注册新浪时，把台湾单独作为一个国家，香港和澳门后面都有中国，只有台湾没有！图二：新浪屏蔽我国党刊微博并删台独评论！图三：新浪高管 @鄭偉柏 在国际社交网站公然支持台独！现在严重怀疑新浪有台独倾向，并被台独分子控制！希望国家对新浪进行严肃调查！@央视新闻<br><img src="http://ww4.sinaimg.cn/large/b8f8adfbjw1f00gb4j2ggj20k00f0q44.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3931822402084075" target="freeweibo-mirror">【逼迫周子渝道歉的人，这次成了傻逼！】台湾大选前夕，傻逼五毛…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3931513240281312" target="freeweibo-mirror">【国家面前无“爱豆”】日前，有个艺人在国外娱乐节目里发表不负…</a>
 </h2>
 <p>【国家面前无“爱豆”】日前，有个艺人在国外娱乐节目里发表不负责任的言论，内容背离了一名中国人的良知。从颜值上看，她是偶像，有着众多粉丝。只是事情的发展，意料之外又情理之中：网友一边倒地批评这位“偶像”的不爱国行为，“国家面前无‘爱豆’”，这句话成为大家对她拒绝的根本理由！[给力]<br><img src="http://ww4.sinaimg.cn/large/005Y2yg1jw1ezzz9hx2zrj30hc4tse7u.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3931482080480923" target="freeweibo-mirror">【反毛的贫困】因为从理论和实践两个方面都无法战胜毛泽东，剩下…</a>
-</h2>
-<p>【反毛的贫困】因为从理论和实践两个方面都无法战胜毛泽东，剩下的唯一武器就是谣言了。</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
