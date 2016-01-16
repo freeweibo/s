@@ -38,6 +38,12 @@
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3932045187719294" target="freeweibo-mirror">SPAM 小時候，我們嘲笑gcd的大會，永遠是成功的大會。現…</a>
+</h2>
+<p>SPAM 小時候，我們嘲笑gcd的大會，永遠是成功的大會。現在，我們讚美台灣的選舉，永遠是民主的勝利。</p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3932035716735657" target="freeweibo-mirror">//@北马南山://@谷凯:图片上的话真好。</a>
 </h2>
 <p>//@北马南山://@谷凯:图片上的话真好。<br><br>RE: 【民主的胜利】蔡英文说：全体台湾人民 好！我说过要把所有人的泪水变笑脸，我们实现了。感谢两位竞争对手，胜利永远是台湾的民主制度<br><img src="http://ww2.sinaimg.cn/large/48866320jw1f01nrgfn4yj20go0jjdi6.jpg"></p>
@@ -96,7 +102,7 @@
 </h2>
 <p>SPAM 同样，选前就知道了！[哈哈]<br><br>RE: 蔡英文率先冲过百万！<br><img src="http://ww1.sinaimg.cn/large/63909ae7jw1f01g17w259j20oz18gag1.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3931965340421481" target="freeweibo-mirror">SPAM 选举改在腊月。这腊月里的杀猪菜，不就是杀猪成菜么？</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3931962257303115" target="freeweibo-mirror">SPAM 蔡英文大幅領先！！！</a>
 </h2>
 <p>SPAM 蔡英文大幅領先！！！<br><br>RE: 差距过百万！<br><img src="http://ww3.sinaimg.cn/large/63909ae7jw1f01gmfliozj20v91jltjw.jpg"></p>
-<p>
-	<small> ============== 9小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3931961686727879" target="freeweibo-mirror">SPAM 环球说了：这次对阵“台独”大陆网友完胜http:/…</a>
-</h2>
-<p>SPAM 环球说了：这次对阵“台独”大陆网友完胜http://t.cn/R4lHTN8我们都应该笑才对[哈哈][哈哈][哈哈]。//@何兵: 黄安笑了。<br><br>RE: 蔡英文率先冲过百万！<br><img src="http://ww1.sinaimg.cn/large/63909ae7jw1f01g17w259j20oz18gag1.jpg"></p>
 <p>
 	<small> ============== 9小时前</small>
 </p>
