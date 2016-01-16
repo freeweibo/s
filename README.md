@@ -90,25 +90,25 @@
 </h2>
 <p>台灣立委參選人 ئۆركەش دۆلەت 向媒體陳述他所期望輔佐蔡英文上台後修改中華民國憲法，以達到台灣獨立建國的理念。 http://t.cn/R4jSPvZ .</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3931957816105661" target="freeweibo-mirror">国民党，你们丫愧对祖先[弱]</a>
 </h2>
 <p>国民党，你们丫愧对祖先[弱]</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3931957803512377" target="freeweibo-mirror">SPAM  //@魏寒枫:坐等开票</a>
 </h2>
 <p>SPAM  //@魏寒枫:坐等开票<br><br>RE: 台湾大选已无悬念？NO ! ［开票直播：只愿选票差距小点再小点，不要把台湾推得太远］ @安德烈胡，@Dalson， @楠叔在輔大  今晚7点汇聚OPEN开腔，直播开票情况，分析县市票选结果及两岸关系。点击  http://t.cn/R4SyzC2，赶紧占座吧！<br><img src="http://ww2.sinaimg.cn/large/0067377Mjw1f0142vwz6uj30ku0zyjx9.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3931957375409397" target="freeweibo-mirror">SPAM 赵家都在准备贺电了都不一定呢！[黑线][黑线][黑…</a>
 </h2>
 <p>SPAM 赵家都在准备贺电了都不一定呢！[黑线][黑线][黑线] //@吉胡阿莎://@何万敏:台湾人民自己的选择//@兔子老愚:奴隶为自由民操碎了心 //@郑维:回复@神之境界V:这句话在陈水扁上台时候听过//@神之境界V:3年后台湾人会为今天的选举后悔百年！<br><br>RE: #台湾选举# 开票半小时，立场偏绿的民视报票，蔡英文31万了，后头两个人加起来才26万多……<br><img src="http://ww4.sinaimg.cn/large/6d0b6b33gw1f01fa4c3puj21bg0qok1e.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3931956183707824" target="freeweibo-mirror">蔡英文率先冲过百万！</a>
 </h2>
