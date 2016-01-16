@@ -20,11 +20,17 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3932067392024593" target="freeweibo-mirror">想喝酒从来都能找到理由。国民党现在后悔了，早知道当初抗战完就…</a>
+</h2>
+<p>想喝酒从来都能找到理由。国民党现在后悔了，早知道当初抗战完就坚决要投票选举，就算选输了，可没改旗易帜，过几年还可能翻盘，也不用内战死那么多人最后被赶出家门。</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3932049183935949" target="freeweibo-mirror">SPAM [怒]//@水门冤案尼克松: [围观]//@拍砖不…</a>
 </h2>
 <p>SPAM [怒]//@水门冤案尼克松: [围观]//@拍砖不降杜光亭:渣浪//@震旦王://@AC文革余孽侯东渐: 渣浪//@远方的海军蓝:试试//@DS老朋友-vorwerk://@猫小喵滴兔子:据说转了会被删掉 //@霸气帅气呆头鹅://@一只蠹鱼: //@湘微笑6://@唐巴马: [吃惊]//@源远一流长: //@吹牛不在行:试试//@古火拉兹:试试<br><br>RE: 这个已经转不了了～[doge]<br><img src="http://ww4.sinaimg.cn/large/8789d40agw1f01gh75myej20qo1be7da.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3932035716735657" target="freeweibo-mirror">//@北马南山://@谷凯:图片上的话真好。</a>
 </h2>
@@ -36,7 +42,7 @@
 </h2>
 <p>这风格的口号民国第一次大选就有了——选举袁总统，砍单儿变五筒//@王冲: 这事你去吧！</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3932031166027334" target="freeweibo-mirror">//@张宏杰: 和周总理当年一样机智。[嘻嘻]//@周小平同…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3931961296894085" target="freeweibo-mirror">差距过百万！</a>
 </h2>
 <p>差距过百万！<br><img src="http://ww3.sinaimg.cn/large/63909ae7jw1f01gmfliozj20v91jltjw.jpg"></p>
-<p>
-	<small> ============== 8小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3931960043086648" target="freeweibo-mirror">这个已经转不了了～[doge]</a>
-</h2>
-<p>这个已经转不了了～[doge]<br><img src="http://ww4.sinaimg.cn/large/8789d40agw1f01gh75myej20qo1be7da.jpg"></p>
 <p>
 	<small> ============== 8小时前</small>
 </p>
