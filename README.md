@@ -138,7 +138,7 @@
 </h2>
 <p>蔡英文率先冲过百万！<br><img src="http://ww1.sinaimg.cn/large/63909ae7jw1f01g17w259j20oz18gag1.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p>
 <table>
     <tr>
