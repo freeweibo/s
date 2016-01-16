@@ -20,17 +20,29 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3931958931452503" target="freeweibo-mirror">SPAM [怒][怒][怒]</a>
+</h2>
+<p>SPAM [怒][怒][怒]<br><br>RE: 台灣立委參選人 ئۆركەش دۆلەت 向媒體陳述他所期望輔佐蔡英文上台後修改中華民國憲法，以達到台灣獨立建國的理念。 http://t.cn/R4jSPvZ .</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3931952509400749" target="freeweibo-mirror">SPAM 【在线问，问到删】打算给电视安几个直播软件，求问下…</a>
+</h2>
+<p>SPAM 【在线问，问到删】打算给电视安几个直播软件，求问下除了土豆优酷爱奇艺AB站外，还有哪些软件动画比较多，画质比较好的？要APK的</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3931938127142155" target="freeweibo-mirror">原来，我们穷得只剩下钱了？但他们就是输给钱了。</a>
 </h2>
 <p>原来，我们穷得只剩下钱了？但他们就是输给钱了。<br><br>RE: #周子瑜道歉#也不知道微博屏蔽周子瑜花了多少钱，反正搜了搜基本搜不出信息了。另外，求证一下，这个图片是真的周子瑜发的吗？这出闹剧从开始都是no zuo no die的节奏，现在还在继续吗？要说为了钱而道歉，那也是JYP和周子瑜自己为了钱而道歉，是不是道歉别人也不会多一毛钱。<br><img src="http://ww2.sinaimg.cn/large/4d661393gw1f01drdl6a8j20c8050dgb.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3931937855081180" target="freeweibo-mirror">这……坚决无法原谅！</a>
 </h2>
 <p>这……坚决无法原谅！<br><br>RE: #周子瑜道歉#也不知道微博屏蔽周子瑜花了多少钱，反正搜了搜基本搜不出信息了。另外，求证一下，这个图片是真的周子瑜发的吗？这出闹剧从开始都是no zuo no die的节奏，现在还在继续吗？要说为了钱而道歉，那也是JYP和周子瑜自己为了钱而道歉，是不是道歉别人也不会多一毛钱。<br><img src="http://ww2.sinaimg.cn/large/4d661393gw1f01drdl6a8j20c8050dgb.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3931936630230626" target="freeweibo-mirror">#周子瑜道歉#也不知道微博屏蔽周子瑜花了多少钱，反正搜了搜基…</a>
 </h2>
@@ -42,7 +54,7 @@
 </h2>
 <p>SPAM //@虎叔-:一个执政党没有办法让民众满意，就应该下台反省。<br><br>RE: 今天台湾选举，我希望蔡女士赢。一个执政党没有办法让民众满意，就应该下台反省。因为，权力，就象春药。当执政者离开权力的神坛，也许才会发现自己的无能，才能真正反省自己的过错。通过选举失去权力，总比被枪杆子逼下台要好。<br><img src="http://ww2.sinaimg.cn/large/6cefc1a7jw1f012d359hjj20qo0zkdnm.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3931906573782919" target="freeweibo-mirror">只可怜国民党两种滋味都尝过了，这样的党，放眼全球也是独此一家…</a>
 </h2>
@@ -102,7 +114,7 @@
 </h2>
 <p>有助于武力统一那也是有益的。//@为今天而活:黄安的做法，到底是有助于和平统一，还是撕裂族群，煽动仇恨？？//@不沉默的大多数:国民党的败选是马英九的遗祸，和大陆毛关系？//@诗人郑祥琥:国家要尽快表态:理解周子渝，理解台湾！<br><br>RE: 【逼迫周子渝道歉的人，这次成了傻逼！】台湾大选前夕，傻逼五毛，傻逼电视台逼一个见风使舵的女艺人道歉。然后导致国民党全面崩盘，今天晚上选举结果就会出来，估计国民党立法委员过不了三分之一。台湾要修宪了。这件事彻底搞糟了！用五毛，就是这个后果！晚上看着吧！</p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3931858461114232" target="freeweibo-mirror">国民党的败选是马英九的遗祸，和大陆毛关系？//@诗人郑祥琥:…</a>
 </h2>
@@ -125,18 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3931839406269845" target="freeweibo-mirror">6//@Evaaaaaaaaaa-:有意思//@哦是这样啊O…</a>
 </h2>
 <p>6//@Evaaaaaaaaaa-:有意思//@哦是这样啊OwO://@电竞妲己他媳妇儿:有趣 //@爱荡荡真是太好了:不得了了。。//@金赫奎的腿毛:绝了[good] //@电竞威震天:精彩 //@ScreamUrname:...？ //@月刊少女凉薄菌w://@一濑宇溪wukeiyi_olo:@央视新闻 新浪这是要上天啊<br><br>RE: #新浪删台独话题# 图一：国外注册新浪时，把台湾单独作为一个国家，香港和澳门后面都有中国，只有台湾没有！图二：新浪屏蔽我国党刊微博并删台独评论！图三：新浪高管 @鄭偉柏 在国际社交网站公然支持台独！现在严重怀疑新浪有台独倾向，并被台独分子控制！希望国家对新浪进行严肃调查！@央视新闻<br><img src="http://ww4.sinaimg.cn/large/b8f8adfbjw1f00gb4j2ggj20k00f0q44.jpg"></p>
-<p>
-	<small> ============== 9小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3931837992347800" target="freeweibo-mirror">今天台湾选举，我希望蔡女士赢。一个执政党没有办法让民众满意，…</a>
-</h2>
-<p>今天台湾选举，我希望蔡女士赢。一个执政党没有办法让民众满意，就应该下台反省。因为，权力，就象春药。当执政者离开权力的神坛，也许才会发现自己的无能，才能真正反省自己的过错。通过选举失去权力，总比被枪杆子逼下台要好。<br><img src="http://ww2.sinaimg.cn/large/6cefc1a7jw1f012d359hjj20qo0zkdnm.jpg"></p>
-<p>
-	<small> ============== 9小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3931835190626521" target="freeweibo-mirror">【消息人士：黄奇帆将上调中央 主管金融】消息人士称：“让黄奇…</a>
-</h2>
-<p>【消息人士：黄奇帆将上调中央 主管金融】消息人士称：“让黄奇帆监管中国的金融市场的任命是习主席钦定的。黄奇帆对中国的金融系统和实体经济都有深刻的认识。”http://t.cn/R4ls7xG<br><img src="http://ww2.sinaimg.cn/large/9dcb59c7jw1f00nf4ywx4j20di08egmi.jpg"></p>
 <p>
 	<small> ============== 9小时前</small>
 </p>
