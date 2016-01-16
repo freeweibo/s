@@ -44,6 +44,12 @@
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3932041126803055" target="freeweibo-mirror">台湾“民主”各种撕逼，经济停滞、百姓收入20年不涨，可人家戒…</a>
+</h2>
+<p>台湾“民主”各种撕逼，经济停滞、百姓收入20年不涨，可人家戒严38年期间成亚洲小龙，有底子挥霍。若尚未完全解决温饱的大陆也这么撕，会不会分裂内战崩溃？建国时基本国情最可比的印度，搞西式民主比台湾早的多，中国公知为何死死不提？http://t.cn/R4jY4i4<br><br>RE: 【民主的胜利】蔡英文说：全体台湾人民 好！我说过要把所有人的泪水变笑脸，我们实现了。感谢两位竞争对手，胜利永远是台湾的民主制度<br><img src="http://ww2.sinaimg.cn/large/48866320jw1f01nrgfn4yj20go0jjdi6.jpg"></p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3932035716735657" target="freeweibo-mirror">//@北马南山://@谷凯:图片上的话真好。</a>
 </h2>
 <p>//@北马南山://@谷凯:图片上的话真好。<br><br>RE: 【民主的胜利】蔡英文说：全体台湾人民 好！我说过要把所有人的泪水变笑脸，我们实现了。感谢两位竞争对手，胜利永远是台湾的民主制度<br><img src="http://ww2.sinaimg.cn/large/48866320jw1f01nrgfn4yj20go0jjdi6.jpg"></p>
@@ -59,6 +65,12 @@
 	<a href="https://freeweibo.com/weibo/3932031166027334" target="freeweibo-mirror">//@张宏杰: 和周总理当年一样机智。[嘻嘻]//@周小平同…</a>
 </h2>
 <p>//@张宏杰: 和周总理当年一样机智。[嘻嘻]//@周小平同志:中国的省政府换届一般都不可能上中央一套的新闻联播，别太想当然。[嘻嘻][嘻嘻][嘻嘻]<br><br>RE: 我在看大陸的新聞聯播，說真的，我有些擔心了。對於本次台灣大選，大陸官方集體失聲。今天的新聞聯播主要內容是亞投行，習總印度旅遊年賀詞，習總賀白俄羅斯衛星發射成功，巴東扶貧扶得好，某國人質126人獲救。官方媒體對台灣隻字未提。各種秀國力，秀繁榮，秀外交。對台灣大選冷漠得要命。想幹什麼。</p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3932030888447849" target="freeweibo-mirror">又卖春药忽悠脑残！1、2006年时，西式民主国家数量占国家总…</a>
+</h2>
+<p>又卖春药忽悠脑残！1、2006年时，西式民主国家数量占国家总数60%，尔后开始衰退。所谓“普世”纯扯蛋：http://t.cn/RALirEh 2、透明国际：清廉榜前30和后30名绝大多数都搞西方民主。全球70亿人，约16亿即23%生活在比中国更清廉国家地区；3、台湾“民主”二十年，结果：http://t.cn/R4jY4i4 //@北村:<br><br>RE: 【民主的胜利】蔡英文说：全体台湾人民 好！我说过要把所有人的泪水变笑脸，我们实现了。感谢两位竞争对手，胜利永远是台湾的民主制度<br><img src="http://ww2.sinaimg.cn/large/48866320jw1f01nrgfn4yj20go0jjdi6.jpg"></p>
 <p>
 	<small> ============== 4小时前</small>
 </p><h2>
@@ -96,7 +108,7 @@
 </h2>
 <p>SPAM 呵呵，阵仗不小。<br><br>RE: 不停為"邪教妖孽"開绿灯的香港政府所為何？今天又要為"牠们"封路阻碍交通及行人行驶道路权利！沉默善良的市民已都忍無可忍地步了！ http://t.cn/R2Wizqe<br><img src="http://ww2.sinaimg.cn/large/ddfaee8fjw1f01gvhm8goj20qo0k0440.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3931967135144111" target="freeweibo-mirror">SPAM 同样，选前就知道了！[哈哈]</a>
 </h2>
@@ -125,18 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3931962614377222" target="freeweibo-mirror">SPAM //@彭园v://@中華保釣號:距离已经拉开！//…</a>
 </h2>
 <p>SPAM //@彭园v://@中華保釣號:距离已经拉开！//@何兵: 黄安笑了。<br><br>RE: 蔡英文率先冲过百万！<br><img src="http://ww1.sinaimg.cn/large/63909ae7jw1f01g17w259j20oz18gag1.jpg"></p>
-<p>
-	<small> ============== 9小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3931962286506616" target="freeweibo-mirror">蔡英文冲过三百万。</a>
-</h2>
-<p>蔡英文冲过三百万。<br><img src="http://ww3.sinaimg.cn/large/63909ae7jw1f01gqhrro2j20ez0qodih.jpg"></p>
-<p>
-	<small> ============== 9小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3931962257303115" target="freeweibo-mirror">SPAM 蔡英文大幅領先！！！</a>
-</h2>
-<p>SPAM 蔡英文大幅領先！！！<br><br>RE: 差距过百万！<br><img src="http://ww3.sinaimg.cn/large/63909ae7jw1f01gmfliozj20v91jltjw.jpg"></p>
 <p>
 	<small> ============== 9小时前</small>
 </p>
