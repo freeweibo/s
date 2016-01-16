@@ -50,6 +50,12 @@
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3932023457050548" target="freeweibo-mirror">【民主的胜利】蔡英文说：全体台湾人民 好！我说过要把所有人的…</a>
+</h2>
+<p>【民主的胜利】蔡英文说：全体台湾人民 好！我说过要把所有人的泪水变笑脸，我们实现了。感谢两位竞争对手，胜利永远是台湾的民主制度<br><img src="http://ww2.sinaimg.cn/large/48866320jw1f01nrgfn4yj20go0jjdi6.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3932023255508180" target="freeweibo-mirror">SPAM 必备工具 //@宝宝用品跟我买:工具团最后一晚，年…</a>
 </h2>
 <p>SPAM 必备工具 //@宝宝用品跟我买:工具团最后一晚，年前需要置办辅食工具的麻麻留意了。</p>
@@ -120,23 +126,17 @@
 </h2>
 <p>SPAM 环球说了：这次对阵“台独”大陆网友完胜http://t.cn/R4lHTN8我们都应该笑才对[哈哈][哈哈][哈哈]。//@何兵: 黄安笑了。<br><br>RE: 蔡英文率先冲过百万！<br><img src="http://ww1.sinaimg.cn/large/63909ae7jw1f01g17w259j20oz18gag1.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3931961296894085" target="freeweibo-mirror">差距过百万！</a>
 </h2>
 <p>差距过百万！<br><img src="http://ww3.sinaimg.cn/large/63909ae7jw1f01gmfliozj20v91jltjw.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3931960043086648" target="freeweibo-mirror">这个已经转不了了～[doge]</a>
 </h2>
 <p>这个已经转不了了～[doge]<br><img src="http://ww4.sinaimg.cn/large/8789d40agw1f01gh75myej20qo1be7da.jpg"></p>
-<p>
-	<small> ============== 8小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3931958931452503" target="freeweibo-mirror">SPAM [怒][怒][怒]</a>
-</h2>
-<p>SPAM [怒][怒][怒]<br><br>RE: 台灣立委參選人 ئۆركەش دۆلەت 向媒體陳述他所期望輔佐蔡英文上台後修改中華民國憲法，以達到台灣獨立建國的理念。 http://t.cn/R4jSPvZ .</p>
 <p>
 	<small> ============== 8小时前</small>
 </p>
