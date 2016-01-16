@@ -80,6 +80,12 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3931949763055613" target="freeweibo-mirror">#台湾选举# 开票半小时，立场偏绿的民视报票，蔡英文31万了…</a>
+</h2>
+<p>#台湾选举# 开票半小时，立场偏绿的民视报票，蔡英文31万了，后头两个人加起来才26万多……<br><img src="http://ww4.sinaimg.cn/large/6d0b6b33gw1f01fa4c3puj21bg0qok1e.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3931938127142155" target="freeweibo-mirror">原来，我们穷得只剩下钱了？但他们就是输给钱了。</a>
 </h2>
 <p>原来，我们穷得只剩下钱了？但他们就是输给钱了。<br><br>RE: #周子瑜道歉#也不知道微博屏蔽周子瑜花了多少钱，反正搜了搜基本搜不出信息了。另外，求证一下，这个图片是真的周子瑜发的吗？这出闹剧从开始都是no zuo no die的节奏，现在还在继续吗？要说为了钱而道歉，那也是JYP和周子瑜自己为了钱而道歉，是不是道歉别人也不会多一毛钱。<br><img src="http://ww2.sinaimg.cn/large/4d661393gw1f01drdl6a8j20c8050dgb.jpg"></p>
@@ -114,7 +120,7 @@
 </h2>
 <p>SPAM 人民同意出政权。<br><br>RE: 今天台湾选举，我希望蔡女士赢。一个执政党没有办法让民众满意，就应该下台反省。因为，权力，就象春药。当执政者离开权力的神坛，也许才会发现自己的无能，才能真正反省自己的过错。通过选举失去权力，总比被枪杆子逼下台要好。<br><img src="http://ww2.sinaimg.cn/large/6cefc1a7jw1f012d359hjj20qo0zkdnm.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3931890799049607" target="freeweibo-mirror">//@流小曲: [给力]</a>
 </h2>
@@ -126,17 +132,11 @@
 </h2>
 <p>政治到最后也得为利息低头，换个人上去也变不了天[挖鼻]//@海定则波宁833:更优质的人赴台，是指解放军吗[偷笑]<br><br>RE: 【单厚之：明天过后的台湾】再过几小时就投票了。闭上眼睛，想象一下明天过后的样子。国民党倒了，台湾变好了。核四拆了、核一、二如期除役，电价没有涨，百工百业发达。陆客少了些，阿里山、日月潭不必人挤人了，但台湾的观光业依旧发达，更优质的观光客愿意来了...http://t.cn/R4lVSkK<br><img src="http://ww2.sinaimg.cn/large/c8c20f10gw1f00cznts2yj20nc08cgms.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3931886810287062" target="freeweibo-mirror">通过公开选举执政良性更替对社会破坏力最小！[赞]</a>
 </h2>
 <p>通过公开选举执政良性更替对社会破坏力最小！[赞]<br><br>RE: 今天台湾选举，我希望蔡女士赢。一个执政党没有办法让民众满意，就应该下台反省。因为，权力，就象春药。当执政者离开权力的神坛，也许才会发现自己的无能，才能真正反省自己的过错。通过选举失去权力，总比被枪杆子逼下台要好。<br><img src="http://ww2.sinaimg.cn/large/6cefc1a7jw1f012d359hjj20qo0zkdnm.jpg"></p>
-<p>
-	<small> ============== 7小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3931886449773270" target="freeweibo-mirror">【台湾“民主”、“反省”二十年】2014年与台湾首选省市长、…</a>
-</h2>
-<p>【台湾“民主”、“反省”二十年】2014年与台湾首选省市长、议员的1994年相比，马来西亚人均GDP增长2.9倍，韩国2.85倍，新加坡2.6倍，泰国2.2倍，台湾1.86倍。→_→ http://t.cn/R4jbhNq<br><br>RE: 今天台湾选举，我希望蔡女士赢。一个执政党没有办法让民众满意，就应该下台反省。因为，权力，就象春药。当执政者离开权力的神坛，也许才会发现自己的无能，才能真正反省自己的过错。通过选举失去权力，总比被枪杆子逼下台要好。<br><img src="http://ww2.sinaimg.cn/large/6cefc1a7jw1f012d359hjj20qo0zkdnm.jpg"></p>
 <p>
 	<small> ============== 7小时前</small>
 </p>
