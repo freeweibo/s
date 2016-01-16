@@ -24,7 +24,7 @@
 </h2>
 <p>SPAM 呵呵，阵仗不小。<br><br>RE: 不停為"邪教妖孽"開绿灯的香港政府所為何？今天又要為"牠们"封路阻碍交通及行人行驶道路权利！沉默善良的市民已都忍無可忍地步了！ http://t.cn/R2Wizqe<br><img src="http://ww2.sinaimg.cn/large/ddfaee8fjw1f01gvhm8goj20qo0k0440.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3931967135144111" target="freeweibo-mirror">SPAM 同样，选前就知道了！[哈哈]</a>
 </h2>
@@ -132,7 +132,7 @@
 </h2>
 <p>SPAM 【在线问，问到删】打算给电视安几个直播软件，求问下除了土豆优酷爱奇艺AB站外，还有哪些软件动画比较多，画质比较好的？要APK的</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3931949763055613" target="freeweibo-mirror">#台湾选举# 开票半小时，立场偏绿的民视报票，蔡英文31万了…</a>
 </h2>
