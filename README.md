@@ -24,7 +24,7 @@
 </h2>
 <p>SPAM 同样，选前就知道了！[哈哈]<br><br>RE: 蔡英文率先冲过百万！<br><img src="http://ww1.sinaimg.cn/large/63909ae7jw1f01g17w259j20oz18gag1.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3931965340421481" target="freeweibo-mirror">SPAM 选举改在腊月。这腊月里的杀猪菜，不就是杀猪成菜么？</a>
 </h2>
@@ -35,6 +35,12 @@
 	<a href="https://freeweibo.com/weibo/3931963448236284" target="freeweibo-mirror">SPAM 必勝！</a>
 </h2>
 <p>SPAM 必勝！<br><br>RE: 蔡英文冲过三百万。<br><img src="http://ww3.sinaimg.cn/large/63909ae7jw1f01gqhrro2j20ez0qodih.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3931962614377222" target="freeweibo-mirror">SPAM //@彭园v://@中華保釣號:距离已经拉开！//…</a>
+</h2>
+<p>SPAM //@彭园v://@中華保釣號:距离已经拉开！//@何兵: 黄安笑了。<br><br>RE: 蔡英文率先冲过百万！<br><img src="http://ww1.sinaimg.cn/large/63909ae7jw1f01g17w259j20oz18gag1.jpg"></p>
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
@@ -120,7 +126,7 @@
 </h2>
 <p>#周子瑜道歉#也不知道微博屏蔽周子瑜花了多少钱，反正搜了搜基本搜不出信息了。另外，求证一下，这个图片是真的周子瑜发的吗？这出闹剧从开始都是no zuo no die的节奏，现在还在继续吗？要说为了钱而道歉，那也是JYP和周子瑜自己为了钱而道歉，是不是道歉别人也不会多一毛钱。<br><img src="http://ww2.sinaimg.cn/large/4d661393gw1f01drdl6a8j20c8050dgb.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3931907261987469" target="freeweibo-mirror">SPAM //@虎叔-:一个执政党没有办法让民众满意，就应该…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3931906573782919" target="freeweibo-mirror">只可怜国民党两种滋味都尝过了，这样的党，放眼全球也是独此一家…</a>
 </h2>
 <p>只可怜国民党两种滋味都尝过了，这样的党，放眼全球也是独此一家别无分店啊～//@刘毅: //@朴抱一: 人民同意出政权。<br><br>RE: 今天台湾选举，我希望蔡女士赢。一个执政党没有办法让民众满意，就应该下台反省。因为，权力，就象春药。当执政者离开权力的神坛，也许才会发现自己的无能，才能真正反省自己的过错。通过选举失去权力，总比被枪杆子逼下台要好。<br><img src="http://ww2.sinaimg.cn/large/6cefc1a7jw1f012d359hjj20qo0zkdnm.jpg"></p>
-<p>
-	<small> ============== 5小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3931903298256204" target="freeweibo-mirror">SPAM 人民同意出政权。</a>
-</h2>
-<p>SPAM 人民同意出政权。<br><br>RE: 今天台湾选举，我希望蔡女士赢。一个执政党没有办法让民众满意，就应该下台反省。因为，权力，就象春药。当执政者离开权力的神坛，也许才会发现自己的无能，才能真正反省自己的过错。通过选举失去权力，总比被枪杆子逼下台要好。<br><img src="http://ww2.sinaimg.cn/large/6cefc1a7jw1f012d359hjj20qo0zkdnm.jpg"></p>
 <p>
 	<small> ============== 6小时前</small>
 </p>
