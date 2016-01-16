@@ -102,13 +102,13 @@
 </h2>
 <p>SPAM 差距看来最后会大于200万票。<br><img src="http://ww4.sinaimg.cn/large/63909ae7jw1f01frztrtuj20oz18g43n.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3931953935520751" target="freeweibo-mirror">就是！</a>
 </h2>
 <p>就是！<br><br>RE: 湾湾搞个投票又引得某些人屁话连连。投票怎么啦？不就是大陆每个村子都在干的事吗？湾湾如今不就是个大点的村子吗？蒋经国之后的湾湾，邓小平之后的大陆，到昨天周子瑜道歉，说明：湾湾明显趴下了，大陆真站起来了。听见米国人说啥了？米国四个前防长合起来说：老夫要与大陆合作，湾湾小屁孩不要添乱！</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3931952509400749" target="freeweibo-mirror">SPAM 【在线问，问到删】打算给电视安几个直播软件，求问下…</a>
 </h2>
