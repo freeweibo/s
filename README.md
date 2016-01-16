@@ -78,7 +78,7 @@
 </h2>
 <p>SPAM 呵呵，阵仗不小。<br><br>RE: 不停為"邪教妖孽"開绿灯的香港政府所為何？今天又要為"牠们"封路阻碍交通及行人行驶道路权利！沉默善良的市民已都忍無可忍地步了！ http://t.cn/R2Wizqe<br><img src="http://ww2.sinaimg.cn/large/ddfaee8fjw1f01gvhm8goj20qo0k0440.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3931967135144111" target="freeweibo-mirror">SPAM 同样，选前就知道了！[哈哈]</a>
 </h2>
