@@ -72,7 +72,7 @@
 </h2>
 <p>SPAM #转发有奖#</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3931865473698365" target="freeweibo-mirror">孙立平：中国在世界上越来越富有了，并一直倡导“共同富裕”，缩…</a>
 </h2>
