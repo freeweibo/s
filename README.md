@@ -36,7 +36,7 @@
 </h2>
 <p>SPAM 必勝！<br><br>RE: 蔡英文冲过三百万。<br><img src="http://ww3.sinaimg.cn/large/63909ae7jw1f01gqhrro2j20ez0qodih.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3931962257303115" target="freeweibo-mirror">SPAM 蔡英文大幅領先！！！</a>
 </h2>
@@ -59,6 +59,18 @@
 	<a href="https://freeweibo.com/weibo/3931958360702332" target="freeweibo-mirror">台灣立委參選人 ئۆركەش دۆلەت 向媒體陳述他所期望…</a>
 </h2>
 <p>台灣立委參選人 ئۆركەش دۆلەت 向媒體陳述他所期望輔佐蔡英文上台後修改中華民國憲法，以達到台灣獨立建國的理念。 http://t.cn/R4jSPvZ .</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3931957803512377" target="freeweibo-mirror">SPAM  //@魏寒枫:坐等开票</a>
+</h2>
+<p>SPAM  //@魏寒枫:坐等开票<br><br>RE: 台湾大选已无悬念？NO ! ［开票直播：只愿选票差距小点再小点，不要把台湾推得太远］ @安德烈胡，@Dalson， @楠叔在輔大  今晚7点汇聚OPEN开腔，直播开票情况，分析县市票选结果及两岸关系。点击  http://t.cn/R4SyzC2，赶紧占座吧！<br><img src="http://ww2.sinaimg.cn/large/0067377Mjw1f0142vwz6uj30ku0zyjx9.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3931957375409397" target="freeweibo-mirror">SPAM 赵家都在准备贺电了都不一定呢！[黑线][黑线][黑…</a>
+</h2>
+<p>SPAM 赵家都在准备贺电了都不一定呢！[黑线][黑线][黑线] //@吉胡阿莎://@何万敏:台湾人民自己的选择//@兔子老愚:奴隶为自由民操碎了心 //@郑维:回复@神之境界V:这句话在陈水扁上台时候听过//@神之境界V:3年后台湾人会为今天的选举后悔百年！<br><br>RE: #台湾选举# 开票半小时，立场偏绿的民视报票，蔡英文31万了，后头两个人加起来才26万多……<br><img src="http://ww4.sinaimg.cn/large/6d0b6b33gw1f01fa4c3puj21bg0qok1e.jpg"></p>
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
@@ -120,23 +132,11 @@
 </h2>
 <p>通过公开选举执政良性更替对社会破坏力最小！[赞]<br><br>RE: 今天台湾选举，我希望蔡女士赢。一个执政党没有办法让民众满意，就应该下台反省。因为，权力，就象春药。当执政者离开权力的神坛，也许才会发现自己的无能，才能真正反省自己的过错。通过选举失去权力，总比被枪杆子逼下台要好。<br><img src="http://ww2.sinaimg.cn/large/6cefc1a7jw1f012d359hjj20qo0zkdnm.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3931886449773270" target="freeweibo-mirror">【台湾“民主”、“反省”二十年】2014年与台湾首选省市长、…</a>
 </h2>
 <p>【台湾“民主”、“反省”二十年】2014年与台湾首选省市长、议员的1994年相比，马来西亚人均GDP增长2.9倍，韩国2.85倍，新加坡2.6倍，泰国2.2倍，台湾1.86倍。→_→ http://t.cn/R4jbhNq<br><br>RE: 今天台湾选举，我希望蔡女士赢。一个执政党没有办法让民众满意，就应该下台反省。因为，权力，就象春药。当执政者离开权力的神坛，也许才会发现自己的无能，才能真正反省自己的过错。通过选举失去权力，总比被枪杆子逼下台要好。<br><img src="http://ww2.sinaimg.cn/large/6cefc1a7jw1f012d359hjj20qo0zkdnm.jpg"></p>
-<p>
-	<small> ============== 7小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3931879826521211" target="freeweibo-mirror">NO，浙江诸暨师爷//@耍钉耙的哈迪斯: 上海人棒棒哒！//…</a>
-</h2>
-<p>NO，浙江诸暨师爷//@耍钉耙的哈迪斯: 上海人棒棒哒！//@孙云康律师:看黄“奇才”的啦<br><br>RE: 【消息人士：黄奇帆将上调中央 主管金融】消息人士称：“让黄奇帆监管中国的金融市场的任命是习主席钦定的。黄奇帆对中国的金融系统和实体经济都有深刻的认识。”http://t.cn/R4ls7xG<br><img src="http://ww2.sinaimg.cn/large/9dcb59c7jw1f00nf4ywx4j20di08egmi.jpg"></p>
-<p>
-	<small> ============== 7小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3931878190690030" target="freeweibo-mirror">SPAM #转发有奖#</a>
-</h2>
-<p>SPAM #转发有奖#</p>
 <p>
 	<small> ============== 7小时前</small>
 </p>
