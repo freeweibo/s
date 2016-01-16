@@ -36,7 +36,7 @@
 </h2>
 <p>SPAM 选举改在腊月。这腊月里的杀猪菜，不就是杀猪成菜么？<br><br>RE: 蔡英文率先冲过百万！<br><img src="http://ww1.sinaimg.cn/large/63909ae7jw1f01g17w259j20oz18gag1.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3931963519627701" target="freeweibo-mirror">不停為"邪教妖孽"開绿灯的香港政府所為何？今天又要為"牠们"…</a>
 </h2>
@@ -138,7 +138,7 @@
 </h2>
 <p>#台湾选举# 开票半小时，立场偏绿的民视报票，蔡英文31万了，后头两个人加起来才26万多……<br><img src="http://ww4.sinaimg.cn/large/6d0b6b33gw1f01fa4c3puj21bg0qok1e.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p>
 <table>
     <tr>
