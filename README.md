@@ -114,7 +114,7 @@
 </h2>
 <p>蔡英文率先冲过百万！<br><img src="http://ww1.sinaimg.cn/large/63909ae7jw1f01g17w259j20oz18gag1.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3931953982050388" target="freeweibo-mirror">SPAM 差距看来最后会大于200万票。</a>
 </h2>
