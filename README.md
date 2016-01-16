@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3932031166027334" target="freeweibo-mirror">//@张宏杰: 和周总理当年一样机智。[嘻嘻]//@周小平同…</a>
+</h2>
+<p>//@张宏杰: 和周总理当年一样机智。[嘻嘻]//@周小平同志:中国的省政府换届一般都不可能上中央一套的新闻联播，别太想当然。[嘻嘻][嘻嘻][嘻嘻]<br><br>RE: 我在看大陸的新聞聯播，說真的，我有些擔心了。對於本次台灣大選，大陸官方集體失聲。今天的新聞聯播主要內容是亞投行，習總印度旅遊年賀詞，習總賀白俄羅斯衛星發射成功，巴東扶貧扶得好，某國人質126人獲救。官方媒體對台灣隻字未提。各種秀國力，秀繁榮，秀外交。對台灣大選冷漠得要命。想幹什麼。</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3931982725842423" target="freeweibo-mirror">SPAM 呵呵，阵仗不小。</a>
 </h2>
 <p>SPAM 呵呵，阵仗不小。<br><br>RE: 不停為"邪教妖孽"開绿灯的香港政府所為何？今天又要為"牠们"封路阻碍交通及行人行驶道路权利！沉默善良的市民已都忍無可忍地步了！ http://t.cn/R2Wizqe<br><img src="http://ww2.sinaimg.cn/large/ddfaee8fjw1f01gvhm8goj20qo0k0440.jpg"></p>
@@ -84,7 +90,7 @@
 </h2>
 <p>SPAM [怒][怒][怒]<br><br>RE: 台灣立委參選人 ئۆركەش دۆلەت 向媒體陳述他所期望輔佐蔡英文上台後修改中華民國憲法，以達到台灣獨立建國的理念。 http://t.cn/R4jSPvZ .</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3931958360702332" target="freeweibo-mirror">台灣立委參選人 ئۆركەش دۆلەت 向媒體陳述他所期望…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3931952509400749" target="freeweibo-mirror">SPAM 【在线问，问到删】打算给电视安几个直播软件，求问下…</a>
 </h2>
 <p>SPAM 【在线问，问到删】打算给电视安几个直播软件，求问下除了土豆优酷爱奇艺AB站外，还有哪些软件动画比较多，画质比较好的？要APK的</p>
-<p>
-	<small> ============== 6小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3931949763055613" target="freeweibo-mirror">#台湾选举# 开票半小时，立场偏绿的民视报票，蔡英文31万了…</a>
-</h2>
-<p>#台湾选举# 开票半小时，立场偏绿的民视报票，蔡英文31万了，后头两个人加起来才26万多……<br><img src="http://ww4.sinaimg.cn/large/6d0b6b33gw1f01fa4c3puj21bg0qok1e.jpg"></p>
 <p>
 	<small> ============== 6小时前</small>
 </p>
