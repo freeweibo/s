@@ -20,11 +20,23 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3932035011406471" target="freeweibo-mirror">这风格的口号民国第一次大选就有了——选举袁总统，砍单儿变五筒…</a>
+</h2>
+<p>这风格的口号民国第一次大选就有了——选举袁总统，砍单儿变五筒//@王冲: 这事你去吧！</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3932031166027334" target="freeweibo-mirror">//@张宏杰: 和周总理当年一样机智。[嘻嘻]//@周小平同…</a>
 </h2>
 <p>//@张宏杰: 和周总理当年一样机智。[嘻嘻]//@周小平同志:中国的省政府换届一般都不可能上中央一套的新闻联播，别太想当然。[嘻嘻][嘻嘻][嘻嘻]<br><br>RE: 我在看大陸的新聞聯播，說真的，我有些擔心了。對於本次台灣大選，大陸官方集體失聲。今天的新聞聯播主要內容是亞投行，習總印度旅遊年賀詞，習總賀白俄羅斯衛星發射成功，巴東扶貧扶得好，某國人質126人獲救。官方媒體對台灣隻字未提。各種秀國力，秀繁榮，秀外交。對台灣大選冷漠得要命。想幹什麼。</p>
 <p>
 	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3932023255508180" target="freeweibo-mirror">SPAM 必备工具 //@宝宝用品跟我买:工具团最后一晚，年…</a>
+</h2>
+<p>SPAM 必备工具 //@宝宝用品跟我买:工具团最后一晚，年前需要置办辅食工具的麻麻留意了。</p>
+<p>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3931995627365509" target="freeweibo-mirror">我在看大陸的新聞聯播，說真的，我有些擔心了。對於本次台灣大選…</a>
 </h2>
@@ -42,7 +54,7 @@
 </h2>
 <p>SPAM 同样，选前就知道了！[哈哈]<br><br>RE: 蔡英文率先冲过百万！<br><img src="http://ww1.sinaimg.cn/large/63909ae7jw1f01g17w259j20oz18gag1.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3931965340421481" target="freeweibo-mirror">SPAM 选举改在腊月。这腊月里的杀猪菜，不就是杀猪成菜么？</a>
 </h2>
@@ -125,18 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3931956183707824" target="freeweibo-mirror">蔡英文率先冲过百万！</a>
 </h2>
 <p>蔡英文率先冲过百万！<br><img src="http://ww1.sinaimg.cn/large/63909ae7jw1f01g17w259j20oz18gag1.jpg"></p>
-<p>
-	<small> ============== 6小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3931953982050388" target="freeweibo-mirror">SPAM 差距看来最后会大于200万票。</a>
-</h2>
-<p>SPAM 差距看来最后会大于200万票。<br><img src="http://ww4.sinaimg.cn/large/63909ae7jw1f01frztrtuj20oz18g43n.jpg"></p>
-<p>
-	<small> ============== 6小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3931953935520751" target="freeweibo-mirror">就是！</a>
-</h2>
-<p>就是！<br><br>RE: 湾湾搞个投票又引得某些人屁话连连。投票怎么啦？不就是大陆每个村子都在干的事吗？湾湾如今不就是个大点的村子吗？蒋经国之后的湾湾，邓小平之后的大陆，到昨天周子瑜道歉，说明：湾湾明显趴下了，大陆真站起来了。听见米国人说啥了？米国四个前防长合起来说：老夫要与大陆合作，湾湾小屁孩不要添乱！</p>
 <p>
 	<small> ============== 6小时前</small>
 </p>
