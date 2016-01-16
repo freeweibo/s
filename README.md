@@ -72,7 +72,7 @@
 </h2>
 <p>SPAM [怒][怒][怒]<br><br>RE: 台灣立委參選人 ئۆركەش دۆلەت 向媒體陳述他所期望輔佐蔡英文上台後修改中華民國憲法，以達到台灣獨立建國的理念。 http://t.cn/R4jSPvZ .</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3931958360702332" target="freeweibo-mirror">台灣立委參選人 ئۆركەش دۆلەت 向媒體陳述他所期望…</a>
 </h2>
