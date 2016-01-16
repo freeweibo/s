@@ -98,11 +98,17 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3931953982050388" target="freeweibo-mirror">SPAM 差距看来最后会大于200万票。</a>
+</h2>
+<p>SPAM 差距看来最后会大于200万票。<br><img src="http://ww4.sinaimg.cn/large/63909ae7jw1f01frztrtuj20oz18g43n.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3931952509400749" target="freeweibo-mirror">SPAM 【在线问，问到删】打算给电视安几个直播软件，求问下…</a>
 </h2>
 <p>SPAM 【在线问，问到删】打算给电视安几个直播软件，求问下除了土豆优酷爱奇艺AB站外，还有哪些软件动画比较多，画质比较好的？要APK的</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3931949763055613" target="freeweibo-mirror">#台湾选举# 开票半小时，立场偏绿的民视报票，蔡英文31万了…</a>
 </h2>
@@ -110,35 +116,29 @@
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3931947124118040" target="freeweibo-mirror">SPAM 一点悬念都没用的选举，怎么还会有人关心呢</a>
+</h2>
+<p>SPAM 一点悬念都没用的选举，怎么还会有人关心呢<br><br>RE: 差距拉大。<br><img src="http://ww3.sinaimg.cn/large/63909ae7jw1f01ez114zej20oz18gq8r.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3931938127142155" target="freeweibo-mirror">原来，我们穷得只剩下钱了？但他们就是输给钱了。</a>
 </h2>
 <p>原来，我们穷得只剩下钱了？但他们就是输给钱了。<br><br>RE: #周子瑜道歉#也不知道微博屏蔽周子瑜花了多少钱，反正搜了搜基本搜不出信息了。另外，求证一下，这个图片是真的周子瑜发的吗？这出闹剧从开始都是no zuo no die的节奏，现在还在继续吗？要说为了钱而道歉，那也是JYP和周子瑜自己为了钱而道歉，是不是道歉别人也不会多一毛钱。<br><img src="http://ww2.sinaimg.cn/large/4d661393gw1f01drdl6a8j20c8050dgb.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3931937855081180" target="freeweibo-mirror">这……坚决无法原谅！</a>
 </h2>
 <p>这……坚决无法原谅！<br><br>RE: #周子瑜道歉#也不知道微博屏蔽周子瑜花了多少钱，反正搜了搜基本搜不出信息了。另外，求证一下，这个图片是真的周子瑜发的吗？这出闹剧从开始都是no zuo no die的节奏，现在还在继续吗？要说为了钱而道歉，那也是JYP和周子瑜自己为了钱而道歉，是不是道歉别人也不会多一毛钱。<br><img src="http://ww2.sinaimg.cn/large/4d661393gw1f01drdl6a8j20c8050dgb.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3931936630230626" target="freeweibo-mirror">#周子瑜道歉#也不知道微博屏蔽周子瑜花了多少钱，反正搜了搜基…</a>
 </h2>
 <p>#周子瑜道歉#也不知道微博屏蔽周子瑜花了多少钱，反正搜了搜基本搜不出信息了。另外，求证一下，这个图片是真的周子瑜发的吗？这出闹剧从开始都是no zuo no die的节奏，现在还在继续吗？要说为了钱而道歉，那也是JYP和周子瑜自己为了钱而道歉，是不是道歉别人也不会多一毛钱。<br><img src="http://ww2.sinaimg.cn/large/4d661393gw1f01drdl6a8j20c8050dgb.jpg"></p>
 <p>
 	<small> ============== 4小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3931907261987469" target="freeweibo-mirror">SPAM //@虎叔-:一个执政党没有办法让民众满意，就应该…</a>
-</h2>
-<p>SPAM //@虎叔-:一个执政党没有办法让民众满意，就应该下台反省。<br><br>RE: 今天台湾选举，我希望蔡女士赢。一个执政党没有办法让民众满意，就应该下台反省。因为，权力，就象春药。当执政者离开权力的神坛，也许才会发现自己的无能，才能真正反省自己的过错。通过选举失去权力，总比被枪杆子逼下台要好。<br><img src="http://ww2.sinaimg.cn/large/6cefc1a7jw1f012d359hjj20qo0zkdnm.jpg"></p>
-<p>
-	<small> ============== 5小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3931906573782919" target="freeweibo-mirror">只可怜国民党两种滋味都尝过了，这样的党，放眼全球也是独此一家…</a>
-</h2>
-<p>只可怜国民党两种滋味都尝过了，这样的党，放眼全球也是独此一家别无分店啊～//@刘毅: //@朴抱一: 人民同意出政权。<br><br>RE: 今天台湾选举，我希望蔡女士赢。一个执政党没有办法让民众满意，就应该下台反省。因为，权力，就象春药。当执政者离开权力的神坛，也许才会发现自己的无能，才能真正反省自己的过错。通过选举失去权力，总比被枪杆子逼下台要好。<br><img src="http://ww2.sinaimg.cn/large/6cefc1a7jw1f012d359hjj20qo0zkdnm.jpg"></p>
-<p>
-	<small> ============== 6小时前</small>
 </p>
 <table>
     <tr>
