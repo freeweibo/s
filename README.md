@@ -72,11 +72,17 @@
 </h2>
 <p>SPAM [怒][怒][怒]<br><br>RE: 台灣立委參選人 ئۆركەش دۆلەت 向媒體陳述他所期望輔佐蔡英文上台後修改中華民國憲法，以達到台灣獨立建國的理念。 http://t.cn/R4jSPvZ .</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3931958360702332" target="freeweibo-mirror">台灣立委參選人 ئۆركەش دۆلەت 向媒體陳述他所期望…</a>
 </h2>
 <p>台灣立委參選人 ئۆركەش دۆلەت 向媒體陳述他所期望輔佐蔡英文上台後修改中華民國憲法，以達到台灣獨立建國的理念。 http://t.cn/R4jSPvZ .</p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3931957816105661" target="freeweibo-mirror">国民党，你们丫愧对祖先[弱]</a>
+</h2>
+<p>国民党，你们丫愧对祖先[弱]</p>
 <p>
 	<small> ============== 4小时前</small>
 </p><h2>
@@ -133,12 +139,6 @@
 <p>差距拉大。<br><img src="http://ww3.sinaimg.cn/large/63909ae7jw1f01ez114zej20oz18gq8r.jpg"></p>
 <p>
 	<small> ============== 4小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3931938127142155" target="freeweibo-mirror">原来，我们穷得只剩下钱了？但他们就是输给钱了。</a>
-</h2>
-<p>原来，我们穷得只剩下钱了？但他们就是输给钱了。<br><br>RE: #周子瑜道歉#也不知道微博屏蔽周子瑜花了多少钱，反正搜了搜基本搜不出信息了。另外，求证一下，这个图片是真的周子瑜发的吗？这出闹剧从开始都是no zuo no die的节奏，现在还在继续吗？要说为了钱而道歉，那也是JYP和周子瑜自己为了钱而道歉，是不是道歉别人也不会多一毛钱。<br><img src="http://ww2.sinaimg.cn/large/4d661393gw1f01drdl6a8j20c8050dgb.jpg"></p>
-<p>
-	<small> ============== 5小时前</small>
 </p>
 <table>
     <tr>
