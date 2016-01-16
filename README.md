@@ -48,25 +48,25 @@
 </h2>
 <p>不停為"邪教妖孽"開绿灯的香港政府所為何？今天又要為"牠们"封路阻碍交通及行人行驶道路权利！沉默善良的市民已都忍無可忍地步了！ http://t.cn/R2Wizqe<br><img src="http://ww2.sinaimg.cn/large/ddfaee8fjw1f01gvhm8goj20qo0k0440.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3931963448236284" target="freeweibo-mirror">SPAM 必勝！</a>
 </h2>
 <p>SPAM 必勝！<br><br>RE: 蔡英文冲过三百万。<br><img src="http://ww3.sinaimg.cn/large/63909ae7jw1f01gqhrro2j20ez0qodih.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3931962614377222" target="freeweibo-mirror">SPAM //@彭园v://@中華保釣號:距离已经拉开！//…</a>
 </h2>
 <p>SPAM //@彭园v://@中華保釣號:距离已经拉开！//@何兵: 黄安笑了。<br><br>RE: 蔡英文率先冲过百万！<br><img src="http://ww1.sinaimg.cn/large/63909ae7jw1f01g17w259j20oz18gag1.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3931962286506616" target="freeweibo-mirror">蔡英文冲过三百万。</a>
 </h2>
 <p>蔡英文冲过三百万。<br><img src="http://ww3.sinaimg.cn/large/63909ae7jw1f01gqhrro2j20ez0qodih.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3931962257303115" target="freeweibo-mirror">SPAM 蔡英文大幅領先！！！</a>
 </h2>
