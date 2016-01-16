@@ -24,13 +24,19 @@
 </h2>
 <p>SPAM [怒]//@水门冤案尼克松: [围观]//@拍砖不降杜光亭:渣浪//@震旦王://@AC文革余孽侯东渐: 渣浪//@远方的海军蓝:试试//@DS老朋友-vorwerk://@猫小喵滴兔子:据说转了会被删掉 //@霸气帅气呆头鹅://@一只蠹鱼: //@湘微笑6://@唐巴马: [吃惊]//@源远一流长: //@吹牛不在行:试试//@古火拉兹:试试<br><br>RE: 这个已经转不了了～[doge]<br><img src="http://ww4.sinaimg.cn/large/8789d40agw1f01gh75myej20qo1be7da.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3932035716735657" target="freeweibo-mirror">//@北马南山://@谷凯:图片上的话真好。</a>
+</h2>
+<p>//@北马南山://@谷凯:图片上的话真好。<br><br>RE: 【民主的胜利】蔡英文说：全体台湾人民 好！我说过要把所有人的泪水变笑脸，我们实现了。感谢两位竞争对手，胜利永远是台湾的民主制度<br><img src="http://ww2.sinaimg.cn/large/48866320jw1f01nrgfn4yj20go0jjdi6.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3932035011406471" target="freeweibo-mirror">这风格的口号民国第一次大选就有了——选举袁总统，砍单儿变五筒…</a>
 </h2>
 <p>这风格的口号民国第一次大选就有了——选举袁总统，砍单儿变五筒//@王冲: 这事你去吧！</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3932031166027334" target="freeweibo-mirror">//@张宏杰: 和周总理当年一样机智。[嘻嘻]//@周小平同…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3931958931452503" target="freeweibo-mirror">SPAM [怒][怒][怒]</a>
 </h2>
 <p>SPAM [怒][怒][怒]<br><br>RE: 台灣立委參選人 ئۆركەش دۆلەت 向媒體陳述他所期望輔佐蔡英文上台後修改中華民國憲法，以達到台灣獨立建國的理念。 http://t.cn/R4jSPvZ .</p>
-<p>
-	<small> ============== 7小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3931958360702332" target="freeweibo-mirror">台灣立委參選人 ئۆركەش دۆلەت 向媒體陳述他所期望…</a>
-</h2>
-<p>台灣立委參選人 ئۆركەش دۆلەت 向媒體陳述他所期望輔佐蔡英文上台後修改中華民國憲法，以達到台灣獨立建國的理念。 http://t.cn/R4jSPvZ .</p>
 <p>
 	<small> ============== 8小时前</small>
 </p>
