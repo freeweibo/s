@@ -60,7 +60,7 @@
 </h2>
 <p>//@北马南山://@谷凯:图片上的话真好。<br><br>RE: 【民主的胜利】蔡英文说：全体台湾人民 好！我说过要把所有人的泪水变笑脸，我们实现了。感谢两位竞争对手，胜利永远是台湾的民主制度<br><img src="http://ww2.sinaimg.cn/large/48866320jw1f01nrgfn4yj20go0jjdi6.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3932035011406471" target="freeweibo-mirror">这风格的口号民国第一次大选就有了——选举袁总统，砍单儿变五筒…</a>
 </h2>
