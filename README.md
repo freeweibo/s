@@ -30,11 +30,17 @@
 </h2>
 <p>SPAM 选举改在腊月。这腊月里的杀猪菜，不就是杀猪成菜么？<br><br>RE: 蔡英文率先冲过百万！<br><img src="http://ww1.sinaimg.cn/large/63909ae7jw1f01g17w259j20oz18gag1.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3931963448236284" target="freeweibo-mirror">SPAM 必勝！</a>
 </h2>
 <p>SPAM 必勝！<br><br>RE: 蔡英文冲过三百万。<br><img src="http://ww3.sinaimg.cn/large/63909ae7jw1f01gqhrro2j20ez0qodih.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3931962286506616" target="freeweibo-mirror">蔡英文冲过三百万。</a>
+</h2>
+<p>蔡英文冲过三百万。<br><img src="http://ww3.sinaimg.cn/large/63909ae7jw1f01gqhrro2j20ez0qodih.jpg"></p>
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
@@ -47,6 +53,12 @@
 	<a href="https://freeweibo.com/weibo/3931961686727879" target="freeweibo-mirror">SPAM 环球说了：这次对阵“台独”大陆网友完胜http:/…</a>
 </h2>
 <p>SPAM 环球说了：这次对阵“台独”大陆网友完胜http://t.cn/R4lHTN8我们都应该笑才对[哈哈][哈哈][哈哈]。//@何兵: 黄安笑了。<br><br>RE: 蔡英文率先冲过百万！<br><img src="http://ww1.sinaimg.cn/large/63909ae7jw1f01g17w259j20oz18gag1.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3931961296894085" target="freeweibo-mirror">差距过百万！</a>
+</h2>
+<p>差距过百万！<br><img src="http://ww3.sinaimg.cn/large/63909ae7jw1f01gmfliozj20v91jltjw.jpg"></p>
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
@@ -74,6 +86,12 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3931956183707824" target="freeweibo-mirror">蔡英文率先冲过百万！</a>
+</h2>
+<p>蔡英文率先冲过百万！<br><img src="http://ww1.sinaimg.cn/large/63909ae7jw1f01g17w259j20oz18gag1.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3931952509400749" target="freeweibo-mirror">SPAM 【在线问，问到删】打算给电视安几个直播软件，求问下…</a>
 </h2>
 <p>SPAM 【在线问，问到删】打算给电视安几个直播软件，求问下除了土豆优酷爱奇艺AB站外，还有哪些软件动画比较多，画质比较好的？要APK的</p>
@@ -84,7 +102,7 @@
 </h2>
 <p>#台湾选举# 开票半小时，立场偏绿的民视报票，蔡英文31万了，后头两个人加起来才26万多……<br><img src="http://ww4.sinaimg.cn/large/6d0b6b33gw1f01fa4c3puj21bg0qok1e.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3931938127142155" target="freeweibo-mirror">原来，我们穷得只剩下钱了？但他们就是输给钱了。</a>
 </h2>
@@ -121,24 +139,6 @@
 <p>SPAM 人民同意出政权。<br><br>RE: 今天台湾选举，我希望蔡女士赢。一个执政党没有办法让民众满意，就应该下台反省。因为，权力，就象春药。当执政者离开权力的神坛，也许才会发现自己的无能，才能真正反省自己的过错。通过选举失去权力，总比被枪杆子逼下台要好。<br><img src="http://ww2.sinaimg.cn/large/6cefc1a7jw1f012d359hjj20qo0zkdnm.jpg"></p>
 <p>
 	<small> ============== 6小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3931890799049607" target="freeweibo-mirror">//@流小曲: [给力]</a>
-</h2>
-<p>//@流小曲: [给力]<br><br>RE: 孙立平：中国在世界上越来越富有了，并一直倡导“共同富裕”，缩小贫富差距，但为什么社会不平等和贫富差距反而扩大了呢?我认为，一个其中的原因，就是掌握公权力的人及其相关的人，直接参与社会财富的分配。 http://t.cn/R4jAn3l</p>
-<p>
-	<small> ============== 6小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3931888584008719" target="freeweibo-mirror">政治到最后也得为利息低头，换个人上去也变不了天[挖鼻]//@…</a>
-</h2>
-<p>政治到最后也得为利息低头，换个人上去也变不了天[挖鼻]//@海定则波宁833:更优质的人赴台，是指解放军吗[偷笑]<br><br>RE: 【单厚之：明天过后的台湾】再过几小时就投票了。闭上眼睛，想象一下明天过后的样子。国民党倒了，台湾变好了。核四拆了、核一、二如期除役，电价没有涨，百工百业发达。陆客少了些，阿里山、日月潭不必人挤人了，但台湾的观光业依旧发达，更优质的观光客愿意来了...http://t.cn/R4lVSkK<br><img src="http://ww2.sinaimg.cn/large/c8c20f10gw1f00cznts2yj20nc08cgms.jpg"></p>
-<p>
-	<small> ============== 7小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3931886810287062" target="freeweibo-mirror">通过公开选举执政良性更替对社会破坏力最小！[赞]</a>
-</h2>
-<p>通过公开选举执政良性更替对社会破坏力最小！[赞]<br><br>RE: 今天台湾选举，我希望蔡女士赢。一个执政党没有办法让民众满意，就应该下台反省。因为，权力，就象春药。当执政者离开权力的神坛，也许才会发现自己的无能，才能真正反省自己的过错。通过选举失去权力，总比被枪杆子逼下台要好。<br><img src="http://ww2.sinaimg.cn/large/6cefc1a7jw1f012d359hjj20qo0zkdnm.jpg"></p>
-<p>
-	<small> ============== 7小时前</small>
 </p>
 <table>
     <tr>
