@@ -90,13 +90,13 @@
 </h2>
 <p>【民主的胜利】蔡英文说：全体台湾人民 好！我说过要把所有人的泪水变笑脸，我们实现了。感谢两位竞争对手，胜利永远是台湾的民主制度<br><img src="http://ww2.sinaimg.cn/large/48866320jw1f01nrgfn4yj20go0jjdi6.jpg"></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3932023255508180" target="freeweibo-mirror">SPAM 必备工具 //@宝宝用品跟我买:工具团最后一晚，年…</a>
 </h2>
 <p>SPAM 必备工具 //@宝宝用品跟我买:工具团最后一晚，年前需要置办辅食工具的麻麻留意了。</p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3932014937569820" target="freeweibo-mirror">当个省长上个毛新闻联播啊，地方台放放就好啦 //@周小平同志…</a>
 </h2>
