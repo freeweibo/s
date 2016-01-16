@@ -36,19 +36,19 @@
 </h2>
 <p>SPAM 必勝！<br><br>RE: 蔡英文冲过三百万。<br><img src="http://ww3.sinaimg.cn/large/63909ae7jw1f01gqhrro2j20ez0qodih.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3931962614377222" target="freeweibo-mirror">SPAM //@彭园v://@中華保釣號:距离已经拉开！//…</a>
 </h2>
 <p>SPAM //@彭园v://@中華保釣號:距离已经拉开！//@何兵: 黄安笑了。<br><br>RE: 蔡英文率先冲过百万！<br><img src="http://ww1.sinaimg.cn/large/63909ae7jw1f01g17w259j20oz18gag1.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3931962286506616" target="freeweibo-mirror">蔡英文冲过三百万。</a>
 </h2>
 <p>蔡英文冲过三百万。<br><img src="http://ww3.sinaimg.cn/large/63909ae7jw1f01gqhrro2j20ez0qodih.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3931962257303115" target="freeweibo-mirror">SPAM 蔡英文大幅領先！！！</a>
 </h2>
