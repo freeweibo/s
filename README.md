@@ -54,19 +54,19 @@
 </h2>
 <p>SPAM 蔡英文大幅領先！！！<br><br>RE: 差距过百万！<br><img src="http://ww3.sinaimg.cn/large/63909ae7jw1f01gmfliozj20v91jltjw.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3931961686727879" target="freeweibo-mirror">SPAM 环球说了：这次对阵“台独”大陆网友完胜http:/…</a>
 </h2>
 <p>SPAM 环球说了：这次对阵“台独”大陆网友完胜http://t.cn/R4lHTN8我们都应该笑才对[哈哈][哈哈][哈哈]。//@何兵: 黄安笑了。<br><br>RE: 蔡英文率先冲过百万！<br><img src="http://ww1.sinaimg.cn/large/63909ae7jw1f01g17w259j20oz18gag1.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3931961296894085" target="freeweibo-mirror">差距过百万！</a>
 </h2>
 <p>差距过百万！<br><img src="http://ww3.sinaimg.cn/large/63909ae7jw1f01gmfliozj20v91jltjw.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3931958931452503" target="freeweibo-mirror">SPAM [怒][怒][怒]</a>
 </h2>
@@ -132,13 +132,13 @@
 </h2>
 <p>SPAM 一点悬念都没用的选举，怎么还会有人关心呢<br><br>RE: 差距拉大。<br><img src="http://ww3.sinaimg.cn/large/63909ae7jw1f01ez114zej20oz18gq8r.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3931946918419843" target="freeweibo-mirror">差距拉大。</a>
 </h2>
 <p>差距拉大。<br><img src="http://ww3.sinaimg.cn/large/63909ae7jw1f01ez114zej20oz18gq8r.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p>
 <table>
     <tr>
