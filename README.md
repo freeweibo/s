@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3932049183935949" target="freeweibo-mirror">SPAM [怒]//@水门冤案尼克松: [围观]//@拍砖不…</a>
+</h2>
+<p>SPAM [怒]//@水门冤案尼克松: [围观]//@拍砖不降杜光亭:渣浪//@震旦王://@AC文革余孽侯东渐: 渣浪//@远方的海军蓝:试试//@DS老朋友-vorwerk://@猫小喵滴兔子:据说转了会被删掉 //@霸气帅气呆头鹅://@一只蠹鱼: //@湘微笑6://@唐巴马: [吃惊]//@源远一流长: //@吹牛不在行:试试//@古火拉兹:试试<br><br>RE: 这个已经转不了了～[doge]<br><img src="http://ww4.sinaimg.cn/large/8789d40agw1f01gh75myej20qo1be7da.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3932035011406471" target="freeweibo-mirror">这风格的口号民国第一次大选就有了——选举袁总统，砍单儿变五筒…</a>
 </h2>
 <p>这风格的口号民国第一次大选就有了——选举袁总统，砍单儿变五筒//@王冲: 这事你去吧！</p>
@@ -66,7 +72,7 @@
 </h2>
 <p>SPAM 同样，选前就知道了！[哈哈]<br><br>RE: 蔡英文率先冲过百万！<br><img src="http://ww1.sinaimg.cn/large/63909ae7jw1f01g17w259j20oz18gag1.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3931965340421481" target="freeweibo-mirror">SPAM 选举改在腊月。这腊月里的杀猪菜，不就是杀猪成菜么？</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3931957816105661" target="freeweibo-mirror">国民党，你们丫愧对祖先[弱]</a>
 </h2>
 <p>国民党，你们丫愧对祖先[弱]</p>
-<p>
-	<small> ============== 7小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3931957803512377" target="freeweibo-mirror">SPAM  //@魏寒枫:坐等开票</a>
-</h2>
-<p>SPAM  //@魏寒枫:坐等开票<br><br>RE: 台湾大选已无悬念？NO ! ［开票直播：只愿选票差距小点再小点，不要把台湾推得太远］ @安德烈胡，@Dalson， @楠叔在輔大  今晚7点汇聚OPEN开腔，直播开票情况，分析县市票选结果及两岸关系。点击  http://t.cn/R4SyzC2，赶紧占座吧！<br><img src="http://ww2.sinaimg.cn/large/0067377Mjw1f0142vwz6uj30ku0zyjx9.jpg"></p>
 <p>
 	<small> ============== 7小时前</small>
 </p>
