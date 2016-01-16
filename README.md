@@ -26,6 +26,12 @@
 <p>
 	<small> ============== 1小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3931906573782919" target="freeweibo-mirror">只可怜国民党两种滋味都尝过了，这样的党，放眼全球也是独此一家…</a>
+</h2>
+<p>只可怜国民党两种滋味都尝过了，这样的党，放眼全球也是独此一家别无分店啊～//@刘毅: //@朴抱一: 人民同意出政权。<br><br>RE: 今天台湾选举，我希望蔡女士赢。一个执政党没有办法让民众满意，就应该下台反省。因为，权力，就象春药。当执政者离开权力的神坛，也许才会发现自己的无能，才能真正反省自己的过错。通过选举失去权力，总比被枪杆子逼下台要好。<br><img src="http://ww2.sinaimg.cn/large/6cefc1a7jw1f012d359hjj20qo0zkdnm.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3931903298256204" target="freeweibo-mirror">SPAM 人民同意出政权。</a>
 </h2>
 <p>SPAM 人民同意出政权。<br><br>RE: 今天台湾选举，我希望蔡女士赢。一个执政党没有办法让民众满意，就应该下台反省。因为，权力，就象春药。当执政者离开权力的神坛，也许才会发现自己的无能，才能真正反省自己的过错。通过选举失去权力，总比被枪杆子逼下台要好。<br><img src="http://ww2.sinaimg.cn/large/6cefc1a7jw1f012d359hjj20qo0zkdnm.jpg"></p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3931619238983931" target="freeweibo-mirror">SPAM 拍成电影吧 http://t.cn/R4WBXzf</a>
 </h2>
 <p>SPAM 拍成电影吧 http://t.cn/R4WBXzf</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3931582744276668" target="freeweibo-mirror">李总经理负主责//@湘潭老赵://@柷敔666://@太公无…</a>
-</h2>
-<p>李总经理负主责//@湘潭老赵://@柷敔666://@太公无钩121: 一个内外勾结洗劫中华民族的集团。@思想火炬 @军报记者 //@蒂罗尔的天空C:习李执政年间，发生了...//@裤衩-掉了:肖刚只是个打工的！应该状告告习近平、李克强！[哈哈]//@JoeJohn:某监管部门的门口自从设立公安设施之后，就太平多了，很少出现拉</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
