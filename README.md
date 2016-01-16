@@ -126,7 +126,7 @@
 </h2>
 <p>SPAM 选举改在腊月。这腊月里的杀猪菜，不就是杀猪成菜么？<br><br>RE: 蔡英文率先冲过百万！<br><img src="http://ww1.sinaimg.cn/large/63909ae7jw1f01g17w259j20oz18gag1.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3931963519627701" target="freeweibo-mirror">不停為"邪教妖孽"開绿灯的香港政府所為何？今天又要為"牠们"…</a>
 </h2>
