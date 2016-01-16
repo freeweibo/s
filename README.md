@@ -24,7 +24,7 @@
 </h2>
 <p>NO，浙江诸暨师爷//@耍钉耙的哈迪斯: 上海人棒棒哒！//@孙云康律师:看黄“奇才”的啦<br><br>RE: 【消息人士：黄奇帆将上调中央 主管金融】消息人士称：“让黄奇帆监管中国的金融市场的任命是习主席钦定的。黄奇帆对中国的金融系统和实体经济都有深刻的认识。”http://t.cn/R4ls7xG<br><img src="http://ww2.sinaimg.cn/large/9dcb59c7jw1f00nf4ywx4j20di08egmi.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3931862685174116" target="freeweibo-mirror">有助于武力统一那也是有益的。//@为今天而活:黄安的做法，到…</a>
 </h2>
