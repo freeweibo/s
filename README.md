@@ -32,6 +32,24 @@
 <p>
 	<small> ============== 1小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3931963448236284" target="freeweibo-mirror">SPAM 必勝！</a>
+</h2>
+<p>SPAM 必勝！<br><br>RE: 蔡英文冲过三百万。<br><img src="http://ww3.sinaimg.cn/large/63909ae7jw1f01gqhrro2j20ez0qodih.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3931962257303115" target="freeweibo-mirror">SPAM 蔡英文大幅領先！！！</a>
+</h2>
+<p>SPAM 蔡英文大幅領先！！！<br><br>RE: 差距过百万！<br><img src="http://ww3.sinaimg.cn/large/63909ae7jw1f01gmfliozj20v91jltjw.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3931961686727879" target="freeweibo-mirror">SPAM 环球说了：这次对阵“台独”大陆网友完胜http:/…</a>
+</h2>
+<p>SPAM 环球说了：这次对阵“台独”大陆网友完胜http://t.cn/R4lHTN8我们都应该笑才对[哈哈][哈哈][哈哈]。//@何兵: 黄安笑了。<br><br>RE: 蔡英文率先冲过百万！<br><img src="http://ww1.sinaimg.cn/large/63909ae7jw1f01g17w259j20oz18gag1.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3931958931452503" target="freeweibo-mirror">SPAM [怒][怒][怒]</a>
 </h2>
 <p>SPAM [怒][怒][怒]<br><br>RE: 台灣立委參選人 ئۆركەش دۆلەت 向媒體陳述他所期望輔佐蔡英文上台後修改中華民國憲法，以達到台灣獨立建國的理念。 http://t.cn/R4jSPvZ .</p>
@@ -108,7 +126,7 @@
 </h2>
 <p>【台湾“民主”、“反省”二十年】2014年与台湾首选省市长、议员的1994年相比，马来西亚人均GDP增长2.9倍，韩国2.85倍，新加坡2.6倍，泰国2.2倍，台湾1.86倍。→_→ http://t.cn/R4jbhNq<br><br>RE: 今天台湾选举，我希望蔡女士赢。一个执政党没有办法让民众满意，就应该下台反省。因为，权力，就象春药。当执政者离开权力的神坛，也许才会发现自己的无能，才能真正反省自己的过错。通过选举失去权力，总比被枪杆子逼下台要好。<br><img src="http://ww2.sinaimg.cn/large/6cefc1a7jw1f012d359hjj20qo0zkdnm.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3931879826521211" target="freeweibo-mirror">NO，浙江诸暨师爷//@耍钉耙的哈迪斯: 上海人棒棒哒！//…</a>
 </h2>
@@ -121,24 +139,6 @@
 <p>SPAM #转发有奖#</p>
 <p>
 	<small> ============== 7小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3931865473698365" target="freeweibo-mirror">孙立平：中国在世界上越来越富有了，并一直倡导“共同富裕”，缩…</a>
-</h2>
-<p>孙立平：中国在世界上越来越富有了，并一直倡导“共同富裕”，缩小贫富差距，但为什么社会不平等和贫富差距反而扩大了呢?我认为，一个其中的原因，就是掌握公权力的人及其相关的人，直接参与社会财富的分配。 http://t.cn/R4jAn3l</p>
-<p>
-	<small> ============== 8小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3931862685174116" target="freeweibo-mirror">有助于武力统一那也是有益的。//@为今天而活:黄安的做法，到…</a>
-</h2>
-<p>有助于武力统一那也是有益的。//@为今天而活:黄安的做法，到底是有助于和平统一，还是撕裂族群，煽动仇恨？？//@不沉默的大多数:国民党的败选是马英九的遗祸，和大陆毛关系？//@诗人郑祥琥:国家要尽快表态:理解周子渝，理解台湾！<br><br>RE: 【逼迫周子渝道歉的人，这次成了傻逼！】台湾大选前夕，傻逼五毛，傻逼电视台逼一个见风使舵的女艺人道歉。然后导致国民党全面崩盘，今天晚上选举结果就会出来，估计国民党立法委员过不了三分之一。台湾要修宪了。这件事彻底搞糟了！用五毛，就是这个后果！晚上看着吧！</p>
-<p>
-	<small> ============== 8小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3931858461114232" target="freeweibo-mirror">国民党的败选是马英九的遗祸，和大陆毛关系？//@诗人郑祥琥:…</a>
-</h2>
-<p>国民党的败选是马英九的遗祸，和大陆毛关系？//@诗人郑祥琥:国家要尽快表态:理解周子渝，理解台湾！//@诗人郑祥琥:【事态紧急！】国台办一定要赶快支持一下周子渝，要不然今晚之后，国民党就会变成一个小党！今晚当选的国民党立法委员有可能超不过20个。完蛋了！[衰]<br><br>RE: 【逼迫周子渝道歉的人，这次成了傻逼！】台湾大选前夕，傻逼五毛，傻逼电视台逼一个见风使舵的女艺人道歉。然后导致国民党全面崩盘，今天晚上选举结果就会出来，估计国民党立法委员过不了三分之一。台湾要修宪了。这件事彻底搞糟了！用五毛，就是这个后果！晚上看着吧！</p>
-<p>
-	<small> ============== 8小时前</small>
 </p>
 <table>
     <tr>
