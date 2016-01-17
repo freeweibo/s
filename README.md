@@ -120,7 +120,7 @@
 </h2>
 <p>SPAM //@清风飘逸噻:汗！<br><br>RE: 全民医保没钱，贫困学生没钱，这TMD有钱[怒][怒][怒][怒][怒]<br><img src="http://ww1.sinaimg.cn/large/006iuEYfjw1f023q34jl2j30go0hr76k.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3932190146138747" target="freeweibo-mirror">[衰]//@北京厨子新号:[生病]</a>
 </h2>
