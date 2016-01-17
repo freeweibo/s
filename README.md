@@ -32,11 +32,17 @@
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3932267800392425" target="freeweibo-mirror">应该让厨子管管，反正也这样了[悲伤] //@北京厨子新号:黄…</a>
+</h2>
+<p>应该让厨子管管，反正也这样了[悲伤] //@北京厨子新号:黄是奇才。未必不专业 //@张洲:希望党组织慎重，黄先生原本是上海焦化厂焦炉车间工人，其履历中也从未涉及金融，金融乃国之大器，一发而牵国运，是不是可以考虑专业精英，哪怕让黄先生去做个副总理呢…[泪]我股市的钱已经赔的差不多了。<br><br>RE: 【消息人士：黄奇帆将上调中央 主管金融】接近中国金融监管当局的一名消息人士透露，重庆市长黄奇帆已被国家主席习近平选定，负责整理中国陷入混乱的金融市场，这一决定将对目前的政策走向带来“重大”影响。via南早中文<br><img src="http://ww1.sinaimg.cn/large/4b8bd145jw1f027m8pfl4j20di08e0tk.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3932261470349579" target="freeweibo-mirror">SPAM 长者挺可爱！</a>
 </h2>
 <p>SPAM 长者挺可爱！<br><br>RE: 身经百战见得多了！ http://t.cn/R4lnRHI .</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3932259121823564" target="freeweibo-mirror">当下来说是不二人选。</a>
 </h2>
@@ -114,7 +120,7 @@
 </h2>
 <p>SPAM 党说过这话！做到了！但下边政府说了做不到，听了不算！<br><br>RE: 蔡英文的演讲 http://t.cn/R4jY17V .</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3932067392024593" target="freeweibo-mirror">想喝酒从来都能找到理由。国民党现在后悔了，早知道当初抗战完就…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3932056536539102" target="freeweibo-mirror">民主是无敌的，每4年胜利一次，并且在乌克兰伊拉克阿富汗利比亚…</a>
 </h2>
 <p>民主是无敌的，每4年胜利一次，并且在乌克兰伊拉克阿富汗利比亚一次又一次获得胜利，还在菲律宾海地利比里亚等国家保持了100多年的胜利。<br><br>RE: SPAM 小時候，我們嘲笑gcd的大會，永遠是成功的大會。現在，我們讚美台灣的選舉，永遠是民主的勝利。</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3932049183935949" target="freeweibo-mirror">SPAM [怒]//@水门冤案尼克松: [围观]//@拍砖不…</a>
-</h2>
-<p>SPAM [怒]//@水门冤案尼克松: [围观]//@拍砖不降杜光亭:渣浪//@震旦王://@AC文革余孽侯东渐: 渣浪//@远方的海军蓝:试试//@DS老朋友-vorwerk://@猫小喵滴兔子:据说转了会被删掉 //@霸气帅气呆头鹅://@一只蠹鱼: //@湘微笑6://@唐巴马: [吃惊]//@源远一流长: //@吹牛不在行:试试//@古火拉兹:试试<br><br>RE: 这个已经转不了了～[doge]<br><img src="http://ww4.sinaimg.cn/large/8789d40agw1f01gh75myej20qo1be7da.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
