@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3932190146138747" target="freeweibo-mirror">[衰]//@北京厨子新号:[生病]</a>
+</h2>
+<p>[衰]//@北京厨子新号:[生病]<br><br>RE: “趙家人”（简体“赵家人”）在微信已经遭到屏蔽，不信可以一试。这应该是当局有史以来最哑口无言又最惶恐忌惮的一个指代词，以至于不惜冒犯天下赵姓人而出此下策，作出无差别屏蔽。<br><img src="http://ww4.sinaimg.cn/large/53c73a7bgw1f01p9h74mwj20lr0hs3z1.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3932153517593557" target="freeweibo-mirror">SPAM //@水兵李铭: //@Vfghjhdsdhjkj…</a>
 </h2>
 <p>SPAM //@水兵李铭: //@Vfghjhdsdhjkjdseyuuh://@猫胡子003://@50年矛苔://@-蓝色-心情: //@湖景龍魂66://@竞选执政彰显人类文明进步正能量://@人类价值观不分东西方:为什么我们没有选票？<br><br>RE: 为什么一定要选票？！有选票，你才是大爷，没选票，你连孙子都不是！[思考][思考][思考]<br><img src="http://ww4.sinaimg.cn/large/006eWteqgw1f014p6t1g1j30k00zkteo.jpg"></p>
@@ -36,7 +42,7 @@
 </h2>
 <p>SPAM 党说过这话！做到了！但下边政府说了做不到，听了不算！<br><br>RE: 蔡英文的演讲 http://t.cn/R4jY17V .</p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3932067392024593" target="freeweibo-mirror">想喝酒从来都能找到理由。国民党现在后悔了，早知道当初抗战完就…</a>
 </h2>
@@ -60,7 +66,7 @@
 </h2>
 <p>SPAM [怒]//@水门冤案尼克松: [围观]//@拍砖不降杜光亭:渣浪//@震旦王://@AC文革余孽侯东渐: 渣浪//@远方的海军蓝:试试//@DS老朋友-vorwerk://@猫小喵滴兔子:据说转了会被删掉 //@霸气帅气呆头鹅://@一只蠹鱼: //@湘微笑6://@唐巴马: [吃惊]//@源远一流长: //@吹牛不在行:试试//@古火拉兹:试试<br><br>RE: 这个已经转不了了～[doge]<br><img src="http://ww4.sinaimg.cn/large/8789d40agw1f01gh75myej20qo1be7da.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3932045187719294" target="freeweibo-mirror">SPAM 小時候，我們嘲笑gcd的大會，永遠是成功的大會。現…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3931995627365509" target="freeweibo-mirror">我在看大陸的新聞聯播，說真的，我有些擔心了。對於本次台灣大選…</a>
 </h2>
 <p>我在看大陸的新聞聯播，說真的，我有些擔心了。對於本次台灣大選，大陸官方集體失聲。今天的新聞聯播主要內容是亞投行，習總印度旅遊年賀詞，習總賀白俄羅斯衛星發射成功，巴東扶貧扶得好，某國人質126人獲救。官方媒體對台灣隻字未提。各種秀國力，秀繁榮，秀外交。對台灣大選冷漠得要命。想幹什麼。</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3931982725842423" target="freeweibo-mirror">SPAM 呵呵，阵仗不小。</a>
-</h2>
-<p>SPAM 呵呵，阵仗不小。<br><br>RE: 不停為"邪教妖孽"開绿灯的香港政府所為何？今天又要為"牠们"封路阻碍交通及行人行驶道路权利！沉默善良的市民已都忍無可忍地步了！ http://t.cn/R2Wizqe<br><img src="http://ww2.sinaimg.cn/large/ddfaee8fjw1f01gvhm8goj20qo0k0440.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
