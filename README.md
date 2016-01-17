@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3932153517593557" target="freeweibo-mirror">SPAM //@水兵李铭: //@Vfghjhdsdhjkj…</a>
+</h2>
+<p>SPAM //@水兵李铭: //@Vfghjhdsdhjkjdseyuuh://@猫胡子003://@50年矛苔://@-蓝色-心情: //@湖景龍魂66://@竞选执政彰显人类文明进步正能量://@人类价值观不分东西方:为什么我们没有选票？<br><br>RE: 为什么一定要选票？！有选票，你才是大爷，没选票，你连孙子都不是！[思考][思考][思考]<br><img src="http://ww4.sinaimg.cn/large/006eWteqgw1f014p6t1g1j30k00zkteo.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3932152498097429" target="freeweibo-mirror">SPAM //@Vfghjhdsdhjkjdseyuuh:/…</a>
 </h2>
 <p>SPAM //@Vfghjhdsdhjkjdseyuuh://@猫胡子003://@50年矛苔://@-蓝色-心情: //@湖景龍魂66://@竞选执政彰显人类文明进步正能量://@人类价值观不分东西方:为什么我们没有选票？<br><br>RE: 为什么一定要选票？！有选票，你才是大爷，没选票，你连孙子都不是！[思考][思考][思考]<br><img src="http://ww4.sinaimg.cn/large/006eWteqgw1f014p6t1g1j30k00zkteo.jpg"></p>
@@ -30,7 +36,7 @@
 </h2>
 <p>SPAM 党说过这话！做到了！但下边政府说了做不到，听了不算！<br><br>RE: 蔡英文的演讲 http://t.cn/R4jY17V .</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3932067392024593" target="freeweibo-mirror">想喝酒从来都能找到理由。国民党现在后悔了，早知道当初抗战完就…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3931982725842423" target="freeweibo-mirror">SPAM 呵呵，阵仗不小。</a>
 </h2>
 <p>SPAM 呵呵，阵仗不小。<br><br>RE: 不停為"邪教妖孽"開绿灯的香港政府所為何？今天又要為"牠们"封路阻碍交通及行人行驶道路权利！沉默善良的市民已都忍無可忍地步了！ http://t.cn/R2Wizqe<br><img src="http://ww2.sinaimg.cn/large/ddfaee8fjw1f01gvhm8goj20qo0k0440.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3931967135144111" target="freeweibo-mirror">SPAM 同样，选前就知道了！[哈哈]</a>
-</h2>
-<p>SPAM 同样，选前就知道了！[哈哈]<br><br>RE: 蔡英文率先冲过百万！<br><img src="http://ww1.sinaimg.cn/large/63909ae7jw1f01g17w259j20oz18gag1.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
