@@ -30,7 +30,7 @@
 </h2>
 <p>其实，当某一天我们发现有超越我们文明水平的外星民族的时候，再回过头来看历史，就会发现国与国的概念其实是很幼稚的～</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3932153517593557" target="freeweibo-mirror">SPAM //@水兵李铭: //@Vfghjhdsdhjkj…</a>
 </h2>
