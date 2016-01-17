@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3932315816009329" target="freeweibo-mirror">SPAM //@笑-看风云://@淡紫色de冰冰: [哈哈]…</a>
+</h2>
+<p>SPAM //@笑-看风云://@淡紫色de冰冰: [哈哈] //@青山H妩媚:[笑cry]//@chen迁迁13: [哈哈] //@白水壹君:[哈哈][哈哈]//@三哥带表吃包子D: [哈哈][哈哈][哈哈] //@懒得洗澡的鱼789://@超大齿猛蚁:[偷笑]<br><br>RE: 这个牛！<br><img src="http://ww4.sinaimg.cn/large/006lfXh0gw1f01ooqra8fj30fk0lhmys.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3932271264372898" target="freeweibo-mirror">可惜了如果长者的所有讲话都不是新闻播报而是直播就好了。一定是…</a>
 </h2>
 <p>可惜了如果长者的所有讲话都不是新闻播报而是直播就好了。一定是一笔大众语言的大财富啊。//@邵明波: →→//@行我不素: 不晓得看了多少遍//@陈军--价值投资者:经典//@周凯莉:长者挺可爱！<br><br>RE: 身经百战见得多了！ http://t.cn/R4lnRHI .</p>
@@ -72,7 +78,7 @@
 </h2>
 <p>救世主？<br><br>RE: 【消息人士：黄奇帆将上调中央 主管金融】接近中国金融监管当局的一名消息人士透露，重庆市长黄奇帆已被国家主席习近平选定，负责整理中国陷入混乱的金融市场，这一决定将对目前的政策走向带来“重大”影响。via南早中文<br><img src="http://ww1.sinaimg.cn/large/4b8bd145jw1f027m8pfl4j20di08e0tk.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3932240532249171" target="freeweibo-mirror">【消息人士：黄奇帆将上调中央 主管金融】接近中国金融监管当局…</a>
 </h2>
@@ -114,7 +120,7 @@
 </h2>
 <p>全民医保没钱，贫困学生没钱，这TMD有钱[怒][怒][怒][怒][怒]<br><img src="http://ww1.sinaimg.cn/large/006iuEYfjw1f023q34jl2j30go0hr76k.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3932153517593557" target="freeweibo-mirror">SPAM //@水兵李铭: //@Vfghjhdsdhjkj…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3932132537653917" target="freeweibo-mirror">SPAM 党说过这话！做到了！但下边政府说了做不到，听了不算…</a>
 </h2>
 <p>SPAM 党说过这话！做到了！但下边政府说了做不到，听了不算！<br><br>RE: 蔡英文的演讲 http://t.cn/R4jY17V .</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3932067392024593" target="freeweibo-mirror">想喝酒从来都能找到理由。国民党现在后悔了，早知道当初抗战完就…</a>
-</h2>
-<p>想喝酒从来都能找到理由。国民党现在后悔了，早知道当初抗战完就坚决要投票选举，就算选输了，可没改旗易帜，过几年还可能翻盘，也不用内战死那么多人最后被赶出家门。</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
