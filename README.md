@@ -30,7 +30,7 @@
 </h2>
 <p>//@弹古论斤: //@李拥军13849726049://://@弹古论斤: //@蓝冰_Lambda:转发微博</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3932315816009329" target="freeweibo-mirror">SPAM //@笑-看风云://@淡紫色de冰冰: [哈哈]…</a>
 </h2>
@@ -108,13 +108,13 @@
 </h2>
 <p>其实我还蛮“欣赏”她的，总比那什么16岁女星一边道歉说我爱人民币，一边扭头在FB上说心如刀绞好得多233//@爱卿乃深得朕意: 还有这事[挖鼻] //@柒_墨:为了右边的八卦我还得转 //@炭啪嗒:这就是那个出兔几胶带，发黑大陆游客图文，最后被大陆团购集体抵制的小姑娘嘛，当时不是被大陆大户集体退货懵逼了<br><br>RE: 很喜欢的那只兔子的作者昨天在FB上发的图。我什么也不想说[拜拜][拜拜][拜拜]<br><img src="http://ww3.sinaimg.cn/large/0063YFxvgw1f01qjvg980j30ku112775.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3932227383102026" target="freeweibo-mirror">属窜天猴？[微笑]</a>
 </h2>
 <p>属窜天猴？[微笑]<br><br>RE: 蔡英文当选台湾地区领导人，2小时得到600万台湾人民支持，一个小时前她在Facebook发表声明，感谢台湾选民的支持，争取在未来任职的四年内为台湾晋升先进国家而奋斗。。。。。<br><img src="http://ww2.sinaimg.cn/large/95c31c6ejw1f01p8ydwkrj20yi1pcb29.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3932222639372694" target="freeweibo-mirror">SPAM //@清风飘逸噻:汗！</a>
 </h2>
