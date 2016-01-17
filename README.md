@@ -48,7 +48,7 @@
 </h2>
 <p>属窜天猴？[微笑]<br><br>RE: 蔡英文当选台湾地区领导人，2小时得到600万台湾人民支持，一个小时前她在Facebook发表声明，感谢台湾选民的支持，争取在未来任职的四年内为台湾晋升先进国家而奋斗。。。。。<br><img src="http://ww2.sinaimg.cn/large/95c31c6ejw1f01p8ydwkrj20yi1pcb29.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3932222639372694" target="freeweibo-mirror">SPAM //@清风飘逸噻:汗！</a>
 </h2>
