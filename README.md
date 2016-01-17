@@ -66,7 +66,7 @@
 </h2>
 <p>SPAM 小時候，我們嘲笑gcd的大會，永遠是成功的大會。現在，我們讚美台灣的選舉，永遠是民主的勝利。</p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3932041126803055" target="freeweibo-mirror">台湾“民主”各种撕逼，经济停滞、百姓收入20年不涨，可人家戒…</a>
 </h2>
@@ -120,7 +120,7 @@
 </h2>
 <p>蔡英文的演讲 http://t.cn/R4jY17V .</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3932014937569820" target="freeweibo-mirror">当个省长上个毛新闻联播啊，地方台放放就好啦 //@周小平同志…</a>
 </h2>
