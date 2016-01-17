@@ -36,7 +36,19 @@
 </h2>
 <p>SPAM 长者挺可爱！<br><br>RE: 身经百战见得多了！ http://t.cn/R4lnRHI .</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3932256466637682" target="freeweibo-mirror">互联网金融乱了，尤其P2P，证券市场也乱了，看好黄市长</a>
+</h2>
+<p>互联网金融乱了，尤其P2P，证券市场也乱了，看好黄市长<br><br>RE: 【消息人士：黄奇帆将上调中央 主管金融】接近中国金融监管当局的一名消息人士透露，重庆市长黄奇帆已被国家主席习近平选定，负责整理中国陷入混乱的金融市场，这一决定将对目前的政策走向带来“重大”影响。via南早中文<br><img src="http://ww1.sinaimg.cn/large/4b8bd145jw1f027m8pfl4j20di08e0tk.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3932255921493975" target="freeweibo-mirror">蛇鼠一窝！ //@袁国宝:[阴险] //@侯宁:[思考]//…</a>
+</h2>
+<p>蛇鼠一窝！ //@袁国宝:[阴险] //@侯宁:[思考]//@老徐时评: //@点你重穴:应该比肖钢强。习大大走出一招好棋，整治混乱金融市场，更重要顺乎了投资者心愿和预期。//@李蒙不蒙你:凤凰周刊都发布了，可见已经呼之欲出。<br><br>RE: 【消息人士：黄奇帆将上调中央 主管金融】接近中国金融监管当局的一名消息人士透露，重庆市长黄奇帆已被国家主席习近平选定，负责整理中国陷入混乱的金融市场，这一决定将对目前的政策走向带来“重大”影响。via南早中文<br><img src="http://ww1.sinaimg.cn/large/4b8bd145jw1f027m8pfl4j20di08e0tk.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3932234644007790" target="freeweibo-mirror">其实我还蛮“欣赏”她的，总比那什么16岁女星一边道歉说我爱人…</a>
 </h2>
@@ -125,18 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3932045187719294" target="freeweibo-mirror">SPAM 小時候，我們嘲笑gcd的大會，永遠是成功的大會。現…</a>
 </h2>
 <p>SPAM 小時候，我們嘲笑gcd的大會，永遠是成功的大會。現在，我們讚美台灣的選舉，永遠是民主的勝利。</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3932041126803055" target="freeweibo-mirror">台湾“民主”各种撕逼，经济停滞、百姓收入20年不涨，可人家戒…</a>
-</h2>
-<p>台湾“民主”各种撕逼，经济停滞、百姓收入20年不涨，可人家戒严38年期间成亚洲小龙，有底子挥霍。若尚未完全解决温饱的大陆也这么撕，会不会分裂内战崩溃？建国时基本国情最可比的印度，搞西式民主比台湾早的多，中国公知为何死死不提？http://t.cn/R4jY4i4<br><br>RE: 【民主的胜利】蔡英文说：全体台湾人民 好！我说过要把所有人的泪水变笑脸，我们实现了。感谢两位竞争对手，胜利永远是台湾的民主制度<br><img src="http://ww2.sinaimg.cn/large/48866320jw1f01nrgfn4yj20go0jjdi6.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3932036652278662" target="freeweibo-mirror">“趙家人”（简体“赵家人”）在微信已经遭到屏蔽，不信可以一试…</a>
-</h2>
-<p>“趙家人”（简体“赵家人”）在微信已经遭到屏蔽，不信可以一试。这应该是当局有史以来最哑口无言又最惶恐忌惮的一个指代词，以至于不惜冒犯天下赵姓人而出此下策，作出无差别屏蔽。<br><img src="http://ww4.sinaimg.cn/large/53c73a7bgw1f01p9h74mwj20lr0hs3z1.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
