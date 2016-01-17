@@ -30,7 +30,7 @@
 </h2>
 <p>SPAM 一部座驾，一种人生。匠心之选，#时代所向#</p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3932356291337359" target="freeweibo-mirror">[怒][吐]//@郭明义爱心团队邵永涛: //@孙润书法:/…</a>
 </h2>
