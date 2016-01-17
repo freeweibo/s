@@ -48,7 +48,7 @@
 </h2>
 <p>SPAM //@清风飘逸噻:汗！<br><br>RE: 全民医保没钱，贫困学生没钱，这TMD有钱[怒][怒][怒][怒][怒]<br><img src="http://ww1.sinaimg.cn/large/006iuEYfjw1f023q34jl2j30go0hr76k.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3932190146138747" target="freeweibo-mirror">[衰]//@北京厨子新号:[生病]</a>
 </h2>
@@ -59,6 +59,12 @@
 	<a href="https://freeweibo.com/weibo/3932174094492074" target="freeweibo-mirror">其实，当某一天我们发现有超越我们文明水平的外星民族的时候，再…</a>
 </h2>
 <p>其实，当某一天我们发现有超越我们文明水平的外星民族的时候，再回过头来看历史，就会发现国与国的概念其实是很幼稚的～</p>
+<p>
+	<small> ============== 8小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3932162820429871" target="freeweibo-mirror">全民医保没钱，贫困学生没钱，这TMD有钱[怒][怒][怒][…</a>
+</h2>
+<p>全民医保没钱，贫困学生没钱，这TMD有钱[怒][怒][怒][怒][怒]<br><img src="http://ww1.sinaimg.cn/large/006iuEYfjw1f023q34jl2j30go0hr76k.jpg"></p>
 <p>
 	<small> ============== 8小时前</small>
 </p><h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3932035716735657" target="freeweibo-mirror">//@北马南山://@谷凯:图片上的话真好。</a>
 </h2>
 <p>//@北马南山://@谷凯:图片上的话真好。<br><br>RE: 【民主的胜利】蔡英文说：全体台湾人民 好！我说过要把所有人的泪水变笑脸，我们实现了。感谢两位竞争对手，胜利永远是台湾的民主制度<br><img src="http://ww2.sinaimg.cn/large/48866320jw1f01nrgfn4yj20go0jjdi6.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3932035011406471" target="freeweibo-mirror">这风格的口号民国第一次大选就有了——选举袁总统，砍单儿变五筒…</a>
-</h2>
-<p>这风格的口号民国第一次大选就有了——选举袁总统，砍单儿变五筒//@王冲: 这事你去吧！</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
