@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3932271264372898" target="freeweibo-mirror">可惜了如果长者的所有讲话都不是新闻播报而是直播就好了。一定是…</a>
+</h2>
+<p>可惜了如果长者的所有讲话都不是新闻播报而是直播就好了。一定是一笔大众语言的大财富啊。//@邵明波: →→//@行我不素: 不晓得看了多少遍//@陈军--价值投资者:经典//@周凯莉:长者挺可爱！<br><br>RE: 身经百战见得多了！ http://t.cn/R4lnRHI .</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3932269662592032" target="freeweibo-mirror">SPAM →→//@行我不素: 不晓得看了多少遍//@陈军-…</a>
 </h2>
 <p>SPAM →→//@行我不素: 不晓得看了多少遍//@陈军--价值投资者:经典//@周凯莉:长者挺可爱！<br><br>RE: 身经百战见得多了！ http://t.cn/R4lnRHI .</p>
@@ -66,7 +72,7 @@
 </h2>
 <p>全民医保没钱，贫困学生没钱，这TMD有钱[怒][怒][怒][怒][怒]<br><img src="http://ww1.sinaimg.cn/large/006iuEYfjw1f023q34jl2j30go0hr76k.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3932153517593557" target="freeweibo-mirror">SPAM //@水兵李铭: //@Vfghjhdsdhjkj…</a>
 </h2>
@@ -84,7 +90,7 @@
 </h2>
 <p>SPAM 党说过这话！做到了！但下边政府说了做不到，听了不算！<br><br>RE: 蔡英文的演讲 http://t.cn/R4jY17V .</p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3932067392024593" target="freeweibo-mirror">想喝酒从来都能找到理由。国民党现在后悔了，早知道当初抗战完就…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3932036652278662" target="freeweibo-mirror">“趙家人”（简体“赵家人”）在微信已经遭到屏蔽，不信可以一试…</a>
 </h2>
 <p>“趙家人”（简体“赵家人”）在微信已经遭到屏蔽，不信可以一试。这应该是当局有史以来最哑口无言又最惶恐忌惮的一个指代词，以至于不惜冒犯天下赵姓人而出此下策，作出无差别屏蔽。<br><img src="http://ww4.sinaimg.cn/large/53c73a7bgw1f01p9h74mwj20lr0hs3z1.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3932035716735657" target="freeweibo-mirror">//@北马南山://@谷凯:图片上的话真好。</a>
-</h2>
-<p>//@北马南山://@谷凯:图片上的话真好。<br><br>RE: 【民主的胜利】蔡英文说：全体台湾人民 好！我说过要把所有人的泪水变笑脸，我们实现了。感谢两位竞争对手，胜利永远是台湾的民主制度<br><img src="http://ww2.sinaimg.cn/large/48866320jw1f01nrgfn4yj20go0jjdi6.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
