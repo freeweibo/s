@@ -24,7 +24,7 @@
 </h2>
 <p>SPAM 选择一辆车，选择以与时代同步的姿态，接受这个时代挑剔的眼光。#时代所向#</p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3932405628832400" target="freeweibo-mirror">SPAM 一部座驾，一种人生。匠心之选，#时代所向#</a>
 </h2>
