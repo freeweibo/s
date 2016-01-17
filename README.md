@@ -26,6 +26,12 @@
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3932132537653917" target="freeweibo-mirror">SPAM 党说过这话！做到了！但下边政府说了做不到，听了不算…</a>
+</h2>
+<p>SPAM 党说过这话！做到了！但下边政府说了做不到，听了不算！<br><br>RE: 蔡英文的演讲 http://t.cn/R4jY17V .</p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3932067392024593" target="freeweibo-mirror">想喝酒从来都能找到理由。国民党现在后悔了，早知道当初抗战完就…</a>
 </h2>
 <p>想喝酒从来都能找到理由。国民党现在后悔了，早知道当初抗战完就坚决要投票选举，就算选输了，可没改旗易帜，过几年还可能翻盘，也不用内战死那么多人最后被赶出家门。</p>
@@ -36,7 +42,7 @@
 </h2>
 <p>你想的太美了，大陆会放弃一党专政，搞多党竞选吗？如果那样有多少人将不在有特权？//@老芋头: 只要蔡英文不搞台独，中央政府就要支持她，让她带领台湾前进。台湾是中国的一部分，台湾人民是是中国人民的一部分，蔡英文不就是“台湾特别行政区”的行政长官嘛！有小平同志那样的胸怀就足够了。</p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3932056536539102" target="freeweibo-mirror">民主是无敌的，每4年胜利一次，并且在乌克兰伊拉克阿富汗利比亚…</a>
 </h2>
@@ -48,7 +54,7 @@
 </h2>
 <p>SPAM [怒]//@水门冤案尼克松: [围观]//@拍砖不降杜光亭:渣浪//@震旦王://@AC文革余孽侯东渐: 渣浪//@远方的海军蓝:试试//@DS老朋友-vorwerk://@猫小喵滴兔子:据说转了会被删掉 //@霸气帅气呆头鹅://@一只蠹鱼: //@湘微笑6://@唐巴马: [吃惊]//@源远一流长: //@吹牛不在行:试试//@古火拉兹:试试<br><br>RE: 这个已经转不了了～[doge]<br><img src="http://ww4.sinaimg.cn/large/8789d40agw1f01gh75myej20qo1be7da.jpg"></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3932045187719294" target="freeweibo-mirror">SPAM 小時候，我們嘲笑gcd的大會，永遠是成功的大會。現…</a>
 </h2>
@@ -72,7 +78,7 @@
 </h2>
 <p>这风格的口号民国第一次大选就有了——选举袁总统，砍单儿变五筒//@王冲: 这事你去吧！</p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3932031166027334" target="freeweibo-mirror">//@张宏杰: 和周总理当年一样机智。[嘻嘻]//@周小平同…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3931965340421481" target="freeweibo-mirror">SPAM 选举改在腊月。这腊月里的杀猪菜，不就是杀猪成菜么？</a>
 </h2>
 <p>SPAM 选举改在腊月。这腊月里的杀猪菜，不就是杀猪成菜么？<br><br>RE: 蔡英文率先冲过百万！<br><img src="http://ww1.sinaimg.cn/large/63909ae7jw1f01g17w259j20oz18gag1.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3931963519627701" target="freeweibo-mirror">不停為"邪教妖孽"開绿灯的香港政府所為何？今天又要為"牠们"…</a>
-</h2>
-<p>不停為"邪教妖孽"開绿灯的香港政府所為何？今天又要為"牠们"封路阻碍交通及行人行驶道路权利！沉默善良的市民已都忍無可忍地步了！ http://t.cn/R2Wizqe<br><img src="http://ww2.sinaimg.cn/large/ddfaee8fjw1f01gvhm8goj20qo0k0440.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
