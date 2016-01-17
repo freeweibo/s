@@ -110,6 +110,12 @@
 <p>
 	<small> ============== 12小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3932021413403185" target="freeweibo-mirror">蔡英文的演讲 http://t.cn/R4jY17V .</a>
+</h2>
+<p>蔡英文的演讲 http://t.cn/R4jY17V .</p>
+<p>
+	<small> ============== 12小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3932014937569820" target="freeweibo-mirror">当个省长上个毛新闻联播啊，地方台放放就好啦 //@周小平同志…</a>
 </h2>
 <p>当个省长上个毛新闻联播啊，地方台放放就好啦 //@周小平同志:中国的省政府换届一般都不可能上中央一套的新闻联播，别太想当然。[嘻嘻][嘻嘻][嘻嘻]<br><br>RE: 我在看大陸的新聞聯播，說真的，我有些擔心了。對於本次台灣大選，大陸官方集體失聲。今天的新聞聯播主要內容是亞投行，習總印度旅遊年賀詞，習總賀白俄羅斯衛星發射成功，巴東扶貧扶得好，某國人質126人獲救。官方媒體對台灣隻字未提。各種秀國力，秀繁榮，秀外交。對台灣大選冷漠得要命。想幹什麼。</p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3931967135144111" target="freeweibo-mirror">SPAM 同样，选前就知道了！[哈哈]</a>
 </h2>
 <p>SPAM 同样，选前就知道了！[哈哈]<br><br>RE: 蔡英文率先冲过百万！<br><img src="http://ww1.sinaimg.cn/large/63909ae7jw1f01g17w259j20oz18gag1.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3931965340421481" target="freeweibo-mirror">SPAM 选举改在腊月。这腊月里的杀猪菜，不就是杀猪成菜么？</a>
-</h2>
-<p>SPAM 选举改在腊月。这腊月里的杀猪菜，不就是杀猪成菜么？<br><br>RE: 蔡英文率先冲过百万！<br><img src="http://ww1.sinaimg.cn/large/63909ae7jw1f01g17w259j20oz18gag1.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
