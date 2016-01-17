@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3932227383102026" target="freeweibo-mirror">属窜天猴？[微笑]</a>
+</h2>
+<p>属窜天猴？[微笑]<br><br>RE: 蔡英文当选台湾地区领导人，2小时得到600万台湾人民支持，一个小时前她在Facebook发表声明，感谢台湾选民的支持，争取在未来任职的四年内为台湾晋升先进国家而奋斗。。。。。<br><img src="http://ww2.sinaimg.cn/large/95c31c6ejw1f01p8ydwkrj20yi1pcb29.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3932190146138747" target="freeweibo-mirror">[衰]//@北京厨子新号:[生病]</a>
 </h2>
 <p>[衰]//@北京厨子新号:[生病]<br><br>RE: “趙家人”（简体“赵家人”）在微信已经遭到屏蔽，不信可以一试。这应该是当局有史以来最哑口无言又最惶恐忌惮的一个指代词，以至于不惜冒犯天下赵姓人而出此下策，作出无差别屏蔽。<br><img src="http://ww4.sinaimg.cn/large/53c73a7bgw1f01p9h74mwj20lr0hs3z1.jpg"></p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3932023255508180" target="freeweibo-mirror">SPAM 必备工具 //@宝宝用品跟我买:工具团最后一晚，年…</a>
 </h2>
 <p>SPAM 必备工具 //@宝宝用品跟我买:工具团最后一晚，年前需要置办辅食工具的麻麻留意了。</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3932021413403185" target="freeweibo-mirror">蔡英文的演讲 http://t.cn/R4jY17V .</a>
-</h2>
-<p>蔡英文的演讲 http://t.cn/R4jY17V .</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
