@@ -48,7 +48,7 @@
 </h2>
 <p>SPAM //@水兵李铭: //@Vfghjhdsdhjkjdseyuuh://@猫胡子003://@50年矛苔://@-蓝色-心情: //@湖景龍魂66://@竞选执政彰显人类文明进步正能量://@人类价值观不分东西方:为什么我们没有选票？<br><br>RE: 为什么一定要选票？！有选票，你才是大爷，没选票，你连孙子都不是！[思考][思考][思考]<br><img src="http://ww4.sinaimg.cn/large/006eWteqgw1f014p6t1g1j30k00zkteo.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3932152498097429" target="freeweibo-mirror">SPAM //@Vfghjhdsdhjkjdseyuuh:/…</a>
 </h2>
@@ -83,6 +83,12 @@
 	<a href="https://freeweibo.com/weibo/3932049183935949" target="freeweibo-mirror">SPAM [怒]//@水门冤案尼克松: [围观]//@拍砖不…</a>
 </h2>
 <p>SPAM [怒]//@水门冤案尼克松: [围观]//@拍砖不降杜光亭:渣浪//@震旦王://@AC文革余孽侯东渐: 渣浪//@远方的海军蓝:试试//@DS老朋友-vorwerk://@猫小喵滴兔子:据说转了会被删掉 //@霸气帅气呆头鹅://@一只蠹鱼: //@湘微笑6://@唐巴马: [吃惊]//@源远一流长: //@吹牛不在行:试试//@古火拉兹:试试<br><br>RE: 这个已经转不了了～[doge]<br><img src="http://ww4.sinaimg.cn/large/8789d40agw1f01gh75myej20qo1be7da.jpg"></p>
+<p>
+	<small> ============== 1天前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3932047871492278" target="freeweibo-mirror">很喜欢的那只兔子的作者昨天在FB上发的图。我什么也不想说[拜…</a>
+</h2>
+<p>很喜欢的那只兔子的作者昨天在FB上发的图。我什么也不想说[拜拜][拜拜][拜拜]<br><img src="http://ww3.sinaimg.cn/large/0063YFxvgw1f01qjvg980j30ku112775.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p><h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3932025851817119" target="freeweibo-mirror">为毛不看中央4？CCTV4每天那个一条新闻播N遍和谈话节目反…</a>
 </h2>
 <p>为毛不看中央4？CCTV4每天那个一条新闻播N遍和谈话节目反复强调的风格跟台湾媒体非常相似。//@-玄衣朱裳-: 最右好有道理⋯⋯ //@神田优姬要当实力东吹:央4欢迎你哈哈哈哈哈   //@圣小绿座:你太把自己当回事儿了…我们省委有变动就在省级电视台说一声。一般省委被抓了才会报道下。<br><br>RE: 我在看大陸的新聞聯播，說真的，我有些擔心了。對於本次台灣大選，大陸官方集體失聲。今天的新聞聯播主要內容是亞投行，習總印度旅遊年賀詞，習總賀白俄羅斯衛星發射成功，巴東扶貧扶得好，某國人質126人獲救。官方媒體對台灣隻字未提。各種秀國力，秀繁榮，秀外交。對台灣大選冷漠得要命。想幹什麼。</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3932023457050548" target="freeweibo-mirror">【民主的胜利】蔡英文说：全体台湾人民 好！我说过要把所有人的…</a>
-</h2>
-<p>【民主的胜利】蔡英文说：全体台湾人民 好！我说过要把所有人的泪水变笑脸，我们实现了。感谢两位竞争对手，胜利永远是台湾的民主制度<br><img src="http://ww2.sinaimg.cn/large/48866320jw1f01nrgfn4yj20go0jjdi6.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
