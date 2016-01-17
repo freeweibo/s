@@ -102,7 +102,7 @@
 </h2>
 <p>[衰]//@北京厨子新号:[生病]<br><br>RE: “趙家人”（简体“赵家人”）在微信已经遭到屏蔽，不信可以一试。这应该是当局有史以来最哑口无言又最惶恐忌惮的一个指代词，以至于不惜冒犯天下赵姓人而出此下策，作出无差别屏蔽。<br><img src="http://ww4.sinaimg.cn/large/53c73a7bgw1f01p9h74mwj20lr0hs3z1.jpg"></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3932174094492074" target="freeweibo-mirror">其实，当某一天我们发现有超越我们文明水平的外星民族的时候，再…</a>
 </h2>
@@ -120,13 +120,13 @@
 </h2>
 <p>SPAM //@水兵李铭: //@Vfghjhdsdhjkjdseyuuh://@猫胡子003://@50年矛苔://@-蓝色-心情: //@湖景龍魂66://@竞选执政彰显人类文明进步正能量://@人类价值观不分东西方:为什么我们没有选票？<br><br>RE: 为什么一定要选票？！有选票，你才是大爷，没选票，你连孙子都不是！[思考][思考][思考]<br><img src="http://ww4.sinaimg.cn/large/006eWteqgw1f014p6t1g1j30k00zkteo.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3932152498097429" target="freeweibo-mirror">SPAM //@Vfghjhdsdhjkjdseyuuh:/…</a>
 </h2>
 <p>SPAM //@Vfghjhdsdhjkjdseyuuh://@猫胡子003://@50年矛苔://@-蓝色-心情: //@湖景龍魂66://@竞选执政彰显人类文明进步正能量://@人类价值观不分东西方:为什么我们没有选票？<br><br>RE: 为什么一定要选票？！有选票，你才是大爷，没选票，你连孙子都不是！[思考][思考][思考]<br><img src="http://ww4.sinaimg.cn/large/006eWteqgw1f014p6t1g1j30k00zkteo.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3932132537653917" target="freeweibo-mirror">SPAM 党说过这话！做到了！但下边政府说了做不到，听了不算…</a>
 </h2>
