@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3932152498097429" target="freeweibo-mirror">SPAM //@Vfghjhdsdhjkjdseyuuh:/…</a>
+</h2>
+<p>SPAM //@Vfghjhdsdhjkjdseyuuh://@猫胡子003://@50年矛苔://@-蓝色-心情: //@湖景龍魂66://@竞选执政彰显人类文明进步正能量://@人类价值观不分东西方:为什么我们没有选票？<br><br>RE: 为什么一定要选票？！有选票，你才是大爷，没选票，你连孙子都不是！[思考][思考][思考]<br><img src="http://ww4.sinaimg.cn/large/006eWteqgw1f014p6t1g1j30k00zkteo.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3932067392024593" target="freeweibo-mirror">想喝酒从来都能找到理由。国民党现在后悔了，早知道当初抗战完就…</a>
 </h2>
 <p>想喝酒从来都能找到理由。国民党现在后悔了，早知道当初抗战完就坚决要投票选举，就算选输了，可没改旗易帜，过几年还可能翻盘，也不用内战死那么多人最后被赶出家门。</p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3931963519627701" target="freeweibo-mirror">不停為"邪教妖孽"開绿灯的香港政府所為何？今天又要為"牠们"…</a>
 </h2>
 <p>不停為"邪教妖孽"開绿灯的香港政府所為何？今天又要為"牠们"封路阻碍交通及行人行驶道路权利！沉默善良的市民已都忍無可忍地步了！ http://t.cn/R2Wizqe<br><img src="http://ww2.sinaimg.cn/large/ddfaee8fjw1f01gvhm8goj20qo0k0440.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3931963448236284" target="freeweibo-mirror">SPAM 必勝！</a>
-</h2>
-<p>SPAM 必勝！<br><br>RE: 蔡英文冲过三百万。<br><img src="http://ww3.sinaimg.cn/large/63909ae7jw1f01gqhrro2j20ez0qodih.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
