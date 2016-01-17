@@ -36,7 +36,7 @@
 </h2>
 <p>SPAM 党说过这话！做到了！但下边政府说了做不到，听了不算！<br><br>RE: 蔡英文的演讲 http://t.cn/R4jY17V .</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3932067392024593" target="freeweibo-mirror">想喝酒从来都能找到理由。国民党现在后悔了，早知道当初抗战完就…</a>
 </h2>
@@ -84,7 +84,7 @@
 </h2>
 <p>这风格的口号民国第一次大选就有了——选举袁总统，砍单儿变五筒//@王冲: 这事你去吧！</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3932031166027334" target="freeweibo-mirror">//@张宏杰: 和周总理当年一样机智。[嘻嘻]//@周小平同…</a>
 </h2>
