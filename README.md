@@ -72,7 +72,7 @@
 </h2>
 <p>当下来说是不二人选。<br><br>RE: 【消息人士：黄奇帆将上调中央 主管金融】接近中国金融监管当局的一名消息人士透露，重庆市长黄奇帆已被国家主席习近平选定，负责整理中国陷入混乱的金融市场，这一决定将对目前的政策走向带来“重大”影响。via南早中文<br><img src="http://ww1.sinaimg.cn/large/4b8bd145jw1f027m8pfl4j20di08e0tk.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3932256466637682" target="freeweibo-mirror">互联网金融乱了，尤其P2P，证券市场也乱了，看好黄市长</a>
 </h2>
@@ -120,7 +120,7 @@
 </h2>
 <p>[衰]//@北京厨子新号:[生病]<br><br>RE: “趙家人”（简体“赵家人”）在微信已经遭到屏蔽，不信可以一试。这应该是当局有史以来最哑口无言又最惶恐忌惮的一个指代词，以至于不惜冒犯天下赵姓人而出此下策，作出无差别屏蔽。<br><img src="http://ww4.sinaimg.cn/large/53c73a7bgw1f01p9h74mwj20lr0hs3z1.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3932174094492074" target="freeweibo-mirror">其实，当某一天我们发现有超越我们文明水平的外星民族的时候，再…</a>
 </h2>
