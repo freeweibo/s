@@ -30,7 +30,7 @@
 </h2>
 <p>SPAM //@水兵李铭: //@Vfghjhdsdhjkjdseyuuh://@猫胡子003://@50年矛苔://@-蓝色-心情: //@湖景龍魂66://@竞选执政彰显人类文明进步正能量://@人类价值观不分东西方:为什么我们没有选票？<br><br>RE: 为什么一定要选票？！有选票，你才是大爷，没选票，你连孙子都不是！[思考][思考][思考]<br><img src="http://ww4.sinaimg.cn/large/006eWteqgw1f014p6t1g1j30k00zkteo.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3932152498097429" target="freeweibo-mirror">SPAM //@Vfghjhdsdhjkjdseyuuh:/…</a>
 </h2>
@@ -60,7 +60,7 @@
 </h2>
 <p>民主是无敌的，每4年胜利一次，并且在乌克兰伊拉克阿富汗利比亚一次又一次获得胜利，还在菲律宾海地利比里亚等国家保持了100多年的胜利。<br><br>RE: SPAM 小時候，我們嘲笑gcd的大會，永遠是成功的大會。現在，我們讚美台灣的選舉，永遠是民主的勝利。</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3932049183935949" target="freeweibo-mirror">SPAM [怒]//@水门冤案尼克松: [围观]//@拍砖不…</a>
 </h2>
