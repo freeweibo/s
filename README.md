@@ -50,11 +50,17 @@
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3932240532249171" target="freeweibo-mirror">【消息人士：黄奇帆将上调中央 主管金融】接近中国金融监管当局…</a>
+</h2>
+<p>【消息人士：黄奇帆将上调中央 主管金融】接近中国金融监管当局的一名消息人士透露，重庆市长黄奇帆已被国家主席习近平选定，负责整理中国陷入混乱的金融市场，这一决定将对目前的政策走向带来“重大”影响。via南早中文<br><img src="http://ww1.sinaimg.cn/large/4b8bd145jw1f027m8pfl4j20di08e0tk.jpg"></p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3932234644007790" target="freeweibo-mirror">其实我还蛮“欣赏”她的，总比那什么16岁女星一边道歉说我爱人…</a>
 </h2>
 <p>其实我还蛮“欣赏”她的，总比那什么16岁女星一边道歉说我爱人民币，一边扭头在FB上说心如刀绞好得多233//@爱卿乃深得朕意: 还有这事[挖鼻] //@柒_墨:为了右边的八卦我还得转 //@炭啪嗒:这就是那个出兔几胶带，发黑大陆游客图文，最后被大陆团购集体抵制的小姑娘嘛，当时不是被大陆大户集体退货懵逼了<br><br>RE: 很喜欢的那只兔子的作者昨天在FB上发的图。我什么也不想说[拜拜][拜拜][拜拜]<br><img src="http://ww3.sinaimg.cn/large/0063YFxvgw1f01qjvg980j30ku112775.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3932227383102026" target="freeweibo-mirror">属窜天猴？[微笑]</a>
 </h2>
@@ -78,7 +84,7 @@
 </h2>
 <p>其实，当某一天我们发现有超越我们文明水平的外星民族的时候，再回过头来看历史，就会发现国与国的概念其实是很幼稚的～</p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3932162820429871" target="freeweibo-mirror">全民医保没钱，贫困学生没钱，这TMD有钱[怒][怒][怒][…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3932047871492278" target="freeweibo-mirror">很喜欢的那只兔子的作者昨天在FB上发的图。我什么也不想说[拜…</a>
 </h2>
 <p>很喜欢的那只兔子的作者昨天在FB上发的图。我什么也不想说[拜拜][拜拜][拜拜]<br><img src="http://ww3.sinaimg.cn/large/0063YFxvgw1f01qjvg980j30ku112775.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3932045187719294" target="freeweibo-mirror">SPAM 小時候，我們嘲笑gcd的大會，永遠是成功的大會。現…</a>
-</h2>
-<p>SPAM 小時候，我們嘲笑gcd的大會，永遠是成功的大會。現在，我們讚美台灣的選舉，永遠是民主的勝利。</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
