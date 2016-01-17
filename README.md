@@ -36,7 +36,7 @@
 </h2>
 <p>[衰]//@北京厨子新号:[生病]<br><br>RE: “趙家人”（简体“赵家人”）在微信已经遭到屏蔽，不信可以一试。这应该是当局有史以来最哑口无言又最惶恐忌惮的一个指代词，以至于不惜冒犯天下赵姓人而出此下策，作出无差别屏蔽。<br><img src="http://ww4.sinaimg.cn/large/53c73a7bgw1f01p9h74mwj20lr0hs3z1.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3932174094492074" target="freeweibo-mirror">其实，当某一天我们发现有超越我们文明水平的外星民族的时候，再…</a>
 </h2>
