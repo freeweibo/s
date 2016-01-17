@@ -26,6 +26,12 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3932286787124260" target="freeweibo-mirror">@鲁振旺: 1、所有供应商资源、品控标准和采购价都会开放给所…</a>
+</h2>
+<p>@鲁振旺: 1、所有供应商资源、品控标准和采购价都会开放给所有旺农汇微商；2、抢鲜购店不会卖；3、有投资人沟通融资事宜，是我的个人选择问题，不会融资重启，谢谢信任；4、所有供应商，我们会负责，一是微商会开放，二是有开淘宝、微博电商的，我会持续关注传播；5、有安慰、取经和痛心的，我心领了！</p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3932271264372898" target="freeweibo-mirror">可惜了如果长者的所有讲话都不是新闻播报而是直播就好了。一定是…</a>
 </h2>
 <p>可惜了如果长者的所有讲话都不是新闻播报而是直播就好了。一定是一笔大众语言的大财富啊。//@邵明波: →→//@行我不素: 不晓得看了多少遍//@陈军--价值投资者:经典//@周凯莉:长者挺可爱！<br><br>RE: 身经百战见得多了！ http://t.cn/R4lnRHI .</p>
@@ -54,7 +60,7 @@
 </h2>
 <p>SPAM 长者挺可爱！<br><br>RE: 身经百战见得多了！ http://t.cn/R4lnRHI .</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3932259121823564" target="freeweibo-mirror">当下来说是不二人选。</a>
 </h2>
@@ -120,7 +126,7 @@
 </h2>
 <p>全民医保没钱，贫困学生没钱，这TMD有钱[怒][怒][怒][怒][怒]<br><img src="http://ww1.sinaimg.cn/large/006iuEYfjw1f023q34jl2j30go0hr76k.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3932153517593557" target="freeweibo-mirror">SPAM //@水兵李铭: //@Vfghjhdsdhjkj…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3932152498097429" target="freeweibo-mirror">SPAM //@Vfghjhdsdhjkjdseyuuh:/…</a>
 </h2>
 <p>SPAM //@Vfghjhdsdhjkjdseyuuh://@猫胡子003://@50年矛苔://@-蓝色-心情: //@湖景龍魂66://@竞选执政彰显人类文明进步正能量://@人类价值观不分东西方:为什么我们没有选票？<br><br>RE: 为什么一定要选票？！有选票，你才是大爷，没选票，你连孙子都不是！[思考][思考][思考]<br><img src="http://ww4.sinaimg.cn/large/006eWteqgw1f014p6t1g1j30k00zkteo.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3932132537653917" target="freeweibo-mirror">SPAM 党说过这话！做到了！但下边政府说了做不到，听了不算…</a>
-</h2>
-<p>SPAM 党说过这话！做到了！但下边政府说了做不到，听了不算！<br><br>RE: 蔡英文的演讲 http://t.cn/R4jY17V .</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
