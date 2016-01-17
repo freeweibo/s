@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3932234644007790" target="freeweibo-mirror">其实我还蛮“欣赏”她的，总比那什么16岁女星一边道歉说我爱人…</a>
+</h2>
+<p>其实我还蛮“欣赏”她的，总比那什么16岁女星一边道歉说我爱人民币，一边扭头在FB上说心如刀绞好得多233//@爱卿乃深得朕意: 还有这事[挖鼻] //@柒_墨:为了右边的八卦我还得转 //@炭啪嗒:这就是那个出兔几胶带，发黑大陆游客图文，最后被大陆团购集体抵制的小姑娘嘛，当时不是被大陆大户集体退货懵逼了<br><br>RE: 很喜欢的那只兔子的作者昨天在FB上发的图。我什么也不想说[拜拜][拜拜][拜拜]<br><img src="http://ww3.sinaimg.cn/large/0063YFxvgw1f01qjvg980j30ku112775.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3932227383102026" target="freeweibo-mirror">属窜天猴？[微笑]</a>
 </h2>
 <p>属窜天猴？[微笑]<br><br>RE: 蔡英文当选台湾地区领导人，2小时得到600万台湾人民支持，一个小时前她在Facebook发表声明，感谢台湾选民的支持，争取在未来任职的四年内为台湾晋升先进国家而奋斗。。。。。<br><img src="http://ww2.sinaimg.cn/large/95c31c6ejw1f01p8ydwkrj20yi1pcb29.jpg"></p>
@@ -54,7 +60,7 @@
 </h2>
 <p>SPAM 党说过这话！做到了！但下边政府说了做不到，听了不算！<br><br>RE: 蔡英文的演讲 http://t.cn/R4jY17V .</p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3932067392024593" target="freeweibo-mirror">想喝酒从来都能找到理由。国民党现在后悔了，早知道当初抗战完就…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3932023457050548" target="freeweibo-mirror">【民主的胜利】蔡英文说：全体台湾人民 好！我说过要把所有人的…</a>
 </h2>
 <p>【民主的胜利】蔡英文说：全体台湾人民 好！我说过要把所有人的泪水变笑脸，我们实现了。感谢两位竞争对手，胜利永远是台湾的民主制度<br><img src="http://ww2.sinaimg.cn/large/48866320jw1f01nrgfn4yj20go0jjdi6.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3932023255508180" target="freeweibo-mirror">SPAM 必备工具 //@宝宝用品跟我买:工具团最后一晚，年…</a>
-</h2>
-<p>SPAM 必备工具 //@宝宝用品跟我买:工具团最后一晚，年前需要置办辅食工具的麻麻留意了。</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
