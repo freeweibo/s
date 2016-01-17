@@ -30,7 +30,7 @@
 </h2>
 <p>SPAM →→//@行我不素: 不晓得看了多少遍//@陈军--价值投资者:经典//@周凯莉:长者挺可爱！<br><br>RE: 身经百战见得多了！ http://t.cn/R4lnRHI .</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3932261470349579" target="freeweibo-mirror">SPAM 长者挺可爱！</a>
 </h2>
