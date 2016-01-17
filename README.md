@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3932356291337359" target="freeweibo-mirror">[怒][吐]//@郭明义爱心团队邵永涛: //@孙润书法:/…</a>
+</h2>
+<p>[怒][吐]//@郭明义爱心团队邵永涛: //@孙润书法://@赤耳丹朵: 中国应该坚定宠养这个仇视中国东西吗？//@枫零头:→_→//@DL南山樵夫：长期潜伏做委员，一贯与人民为敌，时不时捅咕小波澜，刘桂娟不是好东西。<br><br>RE: 特色政协委员刘桂娟阴阳怪气庆贺蔡英文当选台湾“总统”，如此分裂祖国的言论居然出自大陆政协委员之口，这怎么说都是一个国际笑话吧！<br><img src="http://ww2.sinaimg.cn/large/e2f8bccdgw1f01r6il5m7j20k00j0403.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3932339799213504" target="freeweibo-mirror">//@弹古论斤: //@李拥军13849726049://:…</a>
 </h2>
 <p>//@弹古论斤: //@李拥军13849726049://://@弹古论斤: //@蓝冰_Lambda:转发微博</p>
@@ -66,7 +72,7 @@
 </h2>
 <p>SPAM 长者挺可爱！<br><br>RE: 身经百战见得多了！ http://t.cn/R4lnRHI .</p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3932259121823564" target="freeweibo-mirror">当下来说是不二人选。</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3932162820429871" target="freeweibo-mirror">全民医保没钱，贫困学生没钱，这TMD有钱[怒][怒][怒][…</a>
 </h2>
 <p>全民医保没钱，贫困学生没钱，这TMD有钱[怒][怒][怒][怒][怒]<br><img src="http://ww1.sinaimg.cn/large/006iuEYfjw1f023q34jl2j30go0hr76k.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3932153517593557" target="freeweibo-mirror">SPAM //@水兵李铭: //@Vfghjhdsdhjkj…</a>
-</h2>
-<p>SPAM //@水兵李铭: //@Vfghjhdsdhjkjdseyuuh://@猫胡子003://@50年矛苔://@-蓝色-心情: //@湖景龍魂66://@竞选执政彰显人类文明进步正能量://@人类价值观不分东西方:为什么我们没有选票？<br><br>RE: 为什么一定要选票？！有选票，你才是大爷，没选票，你连孙子都不是！[思考][思考][思考]<br><img src="http://ww4.sinaimg.cn/large/006eWteqgw1f014p6t1g1j30k00zkteo.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
