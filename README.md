@@ -20,11 +20,17 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3932637531490972" target="freeweibo-mirror">【周小平，请您道歉】微博著名大V任志强发了一条“刚从台湾回国…</a>
+</h2>
+<p>【周小平，请您道歉】微博著名大V任志强发了一条“刚从台湾回国”的微博，被著名爱国学者司马南郑重警告：“台湾是中国不可分割的一部分！”，任总立马道歉；非著名博主探花，在此把司先生的警告转送爱国大V周小平：“从台湾回来，不是回国。台湾是中国不可分割的一部分！”请道歉！<br><img src="http://ww1.sinaimg.cn/large/005Lo1JQjw1f03m5j8d6jj30c80lr40k.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3932618187890256" target="freeweibo-mirror">//@阿些和:转发微博</a>
 </h2>
 <p>//@阿些和:转发微博<br><br>RE: #观点#【实事求是解决李波「失踪」事件】是什么人干的呢？笔者认为有两种可能：一是某些邀功心切的官员，为了讨好中央领导人而自把自为。另一种可能性是，铜锣湾书店出售的书披露了内地官场某些人的问题，这些人想让出版社封口，但又不想暴露自己http://t.cn/R4TyRR5<br><img src="http://ww2.sinaimg.cn/large/9dcb59c7jw1f03cqkaxm9j20c82imtqj.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3932597308421244" target="freeweibo-mirror">SPAM //@黑童话集: 这段太精彩了~[doge]</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3932256466637682" target="freeweibo-mirror">互联网金融乱了，尤其P2P，证券市场也乱了，看好黄市长</a>
 </h2>
 <p>互联网金融乱了，尤其P2P，证券市场也乱了，看好黄市长<br><br>RE: 【消息人士：黄奇帆将上调中央 主管金融】接近中国金融监管当局的一名消息人士透露，重庆市长黄奇帆已被国家主席习近平选定，负责整理中国陷入混乱的金融市场，这一决定将对目前的政策走向带来“重大”影响。via南早中文<br><img src="http://ww1.sinaimg.cn/large/4b8bd145jw1f027m8pfl4j20di08e0tk.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3932255921493975" target="freeweibo-mirror">蛇鼠一窝！ //@袁国宝:[阴险] //@侯宁:[思考]//…</a>
-</h2>
-<p>蛇鼠一窝！ //@袁国宝:[阴险] //@侯宁:[思考]//@老徐时评: //@点你重穴:应该比肖钢强。习大大走出一招好棋，整治混乱金融市场，更重要顺乎了投资者心愿和预期。//@李蒙不蒙你:凤凰周刊都发布了，可见已经呼之欲出。<br><br>RE: 【消息人士：黄奇帆将上调中央 主管金融】接近中国金融监管当局的一名消息人士透露，重庆市长黄奇帆已被国家主席习近平选定，负责整理中国陷入混乱的金融市场，这一决定将对目前的政策走向带来“重大”影响。via南早中文<br><img src="http://ww1.sinaimg.cn/large/4b8bd145jw1f027m8pfl4j20di08e0tk.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
