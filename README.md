@@ -36,7 +36,7 @@
 </h2>
 <p>【国际化才能规范化】…加入SDR的中国，已经不能闭门造车了，政策市终将退出历史舞台，从而回归股市的本质。中国股市是系统性、基础制度性的问题，谁不改变这个底盘，结果都一样！而改革需要付出代价，改革牛只能在熊底起步[围观]//@西伯利亚:来评一下！快讯：中国证监会主席肖钢已提出辞职…消息人士<br><img src="http://ww4.sinaimg.cn/large/67b5fd87jw1f03uo1tlnzj20c807lwfv.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3932706008168824" target="freeweibo-mirror">SPAM 前几天我就说，真的没有其他什么利好了，只能靠肖刚辞…</a>
 </h2>
@@ -72,7 +72,7 @@
 </h2>
 <p>正常跑活的司机都不让跑，直接看车碰瓷，某些司机脸都不要了@奏耐天津 @天津交警 http://t.cn/R4T1pbF .</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3932640455717039" target="freeweibo-mirror">据说天津爆炸案的处理结果已经再次上报中央。前面报过一次，被中…</a>
 </h2>
