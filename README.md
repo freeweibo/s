@@ -24,7 +24,7 @@
 </h2>
 <p>SPAM #肖钢辞职#最新消息：肖钢已提出辞职。股民们已经张灯结彩庆祝，愿肖钢安心上路，不送！<br><img src="http://ww4.sinaimg.cn/large/4a41c420jw1f03x5n4k56j20jz0zkgok.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3932723019941078" target="freeweibo-mirror">//@安普若-外号安校长:也说点现实的，这次被处理的某人，我…</a>
 </h2>
@@ -36,7 +36,7 @@
 </h2>
 <p>【路透社：中国证监会主席肖钢提出辞职】路透香港1月18日 消息人士称，中国证监会主席肖钢已提出辞职，外界认为由于他的管理不善，致使沪深两市自2015年6月达到高点以来市值蒸发逾5万亿美元。<br><img src="http://ww1.sinaimg.cn/large/535d248djw1f03u7qwa9pj2088064mx5.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3932713846962049" target="freeweibo-mirror">SPAM 怎么做到的。。 //@式波明日香:日本JK完全就是…</a>
 </h2>
@@ -78,13 +78,13 @@
 </h2>
 <p>请输入转发理由不知道真假，如果是真的，可是一个大利好<br><br>RE: 路透今晚快讯：中国证监会主席肖钢已提出辞职--消息人士。补充两点：1、这条微博我自己没删，包括经典重温那条；2、老同志批评说，人事变动提早爆出来会延缓变动，甚至生变。所以一切，以国务院公告为准。<br><img src="http://ww3.sinaimg.cn/large/7c1d7ba8gw1f03t0uhm09j20hs0vkdjz.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3932702396470554" target="freeweibo-mirror">同问。//@小木匠爱茶:不是刚刚被任命为扶贫小组组长吗？</a>
 </h2>
 <p>同问。//@小木匠爱茶:不是刚刚被任命为扶贫小组组长吗？<br><br>RE: 【路透社微博称，证监会主席肖钢提出辞职】1月18日，据路透社中文微博援引消息人士称，中国证监会主席肖钢已提出辞职。大兵简评：这个消息是否属实，还有待证实，好在这时候出现此消息也扰乱不了股市，期待中国股市好起来。大家拭目以待吧，不要听信谣言哦。<br><img src="http://ww2.sinaimg.cn/large/4d353f02jw1f03tfky5p7j20be02xaa5.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3932702094890738" target="freeweibo-mirror">#名博评论# 【外媒：中国证监会主席肖钢已提出辞职】据路透引…</a>
 </h2>
