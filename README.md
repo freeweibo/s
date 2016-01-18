@@ -36,7 +36,7 @@
 </h2>
 <p>我早就说了 乱邦的政策完全错误。 //@陈词不达意:不多啊，才百多号人 //@中科大胡不归: 乱邦的理想世界<br><br>RE: 新疆的暴恐有多严重，大家看一下，这只是一个县近三年涉暴恐人员的通缉令<br><img src="http://ww1.sinaimg.cn/large/74609fc5jw1f03gtjrp8dj20g60aw0uu.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3932618187890256" target="freeweibo-mirror">//@阿些和:转发微博</a>
 </h2>
@@ -48,7 +48,7 @@
 </h2>
 <p>SPAM //@黑童话集: 这段太精彩了~[doge]</p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3932589888818042" target="freeweibo-mirror">新疆的暴恐有多严重，大家看一下，这只是一个县近三年涉暴恐人员…</a>
 </h2>
