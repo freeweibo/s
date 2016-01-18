@@ -26,6 +26,18 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3932779915954925" target="freeweibo-mirror">现在这些外媒的中文网，到底是什么运营状态？是相关的中国合伙人…</a>
+</h2>
+<p>现在这些外媒的中文网，到底是什么运营状态？是相关的中国合伙人承包了吗？//@王星WX:路透的微博是@路透中文网Reuters ，而非截图中账号。路透微博目前的状态是被封，暂未被清空销号。<br><br>RE: 证监会辟谣之后，路透的微博逝世。 http://t.cn/RyhSdLi<br><img src="http://ww1.sinaimg.cn/large/558acfe8jw1f03yl9asqfj20ku112gpx.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3932779240540304" target="freeweibo-mirror">政坛不倒翁。</a>
+</h2>
+<p>政坛不倒翁。<br><br>RE: 【黄市长】最近关于重庆黄市长将高升的传说很多。我曾看过黄的演讲视频，其雄辩和专业令人印象不错。不过，薄在重庆风生水起的时候，黄也是党政主要领导人，参与重大决策。前总理温曾明确要求重庆现任市委和市政府必须反思，从王立军事件吸取教训，不知道黄市长对黑打等诸多恶行是否反思？<br><img src="http://ww3.sinaimg.cn/large/48866320gw1f04248h0xfj20go0bp3zc.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3932778720137214" target="freeweibo-mirror">貌似最先爆料黄市长要高升的@路透中文网Reuters 刚才已…</a>
 </h2>
 <p>貌似最先爆料黄市长要高升的@路透中文网Reuters 刚才已经被销号了。[微笑]<br><br>RE: 【黄市长】最近关于重庆黄市长将高升的传说很多。我曾看过黄的演讲视频，其雄辩和专业令人印象不错。不过，薄在重庆风生水起的时候，黄也是党政主要领导人，参与重大决策。前总理温曾明确要求重庆现任市委和市政府必须反思，从王立军事件吸取教训，不知道黄市长对黑打等诸多恶行是否反思？<br><img src="http://ww3.sinaimg.cn/large/48866320gw1f04248h0xfj20go0bp3zc.jpg"></p>
@@ -72,7 +84,7 @@
 </h2>
 <p>说肖刚辞职的@路透中文网Reuters 被党双规了。帐号已封，动作真快，可比股市狂跌时的反应快多了。让你造谣[嘻嘻][嘻嘻][嘻嘻]<br><img src="http://ww4.sinaimg.cn/large/bfd26dfdjw1f03zdlaxl4j20sd0grq6a.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3932746449474797" target="freeweibo-mirror">SPAM @Dreammoon梦月潘_ @桌 @文心ee  …</a>
 </h2>
@@ -125,18 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3932713846962049" target="freeweibo-mirror">SPAM 怎么做到的。。 //@式波明日香:日本JK完全就是…</a>
 </h2>
 <p>SPAM 怎么做到的。。 //@式波明日香:日本JK完全就是战斗怪！以前看过一个报道说因为妈妈们从小大腿不怕严寒所以儿子们遗传到强健下盘，所以日本足球崛起了233 //@豆包_SAN值过低: http://t.cn/R4HzK1j //@工口组组长://@丧病喵_CA_馒头://@SaitoSouta_洬太:下雪了，真好❄</p>
-<p>
-	<small> ============== 6小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3932711720749032" target="freeweibo-mirror">【国际化才能规范化】…加入SDR的中国，已经不能闭门造车了，…</a>
-</h2>
-<p>【国际化才能规范化】…加入SDR的中国，已经不能闭门造车了，政策市终将退出历史舞台，从而回归股市的本质。中国股市是系统性、基础制度性的问题，谁不改变这个底盘，结果都一样！而改革需要付出代价，改革牛只能在熊底起步[围观]//@西伯利亚:来评一下！快讯：中国证监会主席肖钢已提出辞职…消息人士<br><img src="http://ww4.sinaimg.cn/large/67b5fd87jw1f03uo1tlnzj20c807lwfv.jpg"></p>
-<p>
-	<small> ============== 6小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3932707854114115" target="freeweibo-mirror">这么重大的事件，居然要引用“外媒”的消息！内媒都是聋哑人？</a>
-</h2>
-<p>这么重大的事件，居然要引用“外媒”的消息！内媒都是聋哑人？<br><br>RE: 紧急突发！外媒称中国证监会主席肖钢已提出辞职！<br><img src="http://ww3.sinaimg.cn/large/699b9ddcgw1f03tuwivvlj20i20bmn1l.jpg"></p>
 <p>
 	<small> ============== 6小时前</small>
 </p>
