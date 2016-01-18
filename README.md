@@ -42,7 +42,7 @@
 </h2>
 <p>SPAM 一部座驾，一种人生。匠心之选，#时代所向#</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3932376440385591" target="freeweibo-mirror">我从@秒拍 分享了一个视频-谁是傻子，谁是另类。 （分享自 …</a>
 </h2>
