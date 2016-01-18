@@ -72,7 +72,7 @@
 </h2>
 <p>蒙古就是这么丢的嘛！看图，《总统蒋公言论思想总集》223页。//@朝闻夕死足矣:老蒋真的本意搞过这个？[吃惊][吃惊][吃惊]卧槽毁三观啊。真的假的？<br><br>RE: 【达赖向蔡英文发贺电】常凯申《告西藏同胞书》1959年3月26日—— 我现在更郑重声明：西藏未来的政治制度与政治地位，一俟摧毁匪伪政权之后，西藏人民能自由表示其意志之时，我政府当本民族自决的原则，达成你们的愿望。——两毒一直勾勾搭搭，莫非对所谓“摧毁中共后同意西藏自决独立”，还有点奢望？<br><img src="http://ww1.sinaimg.cn/large/6d88e352gw1f0412cxdayj20c82kx7ed.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3932768729762594" target="freeweibo-mirror">//@章国锡: 请问安拉，这是你所愿？//@鱼丸尤面: @N…</a>
 </h2>
@@ -96,13 +96,13 @@
 </h2>
 <p>SPAM 我发的都是正经图呢。黄图只是色彩显示不准。//@刘路军先生: 你以后小心点[挖鼻]别发黄图 //@谭世平:哈。双规了/<br><br>RE: 说肖刚辞职的@路透中文网Reuters 被党双规了。帐号已封，动作真快，可比股市狂跌时的反应快多了。让你造谣[嘻嘻][嘻嘻][嘻嘻]<br><img src="http://ww4.sinaimg.cn/large/bfd26dfdjw1f03zdlaxl4j20sd0grq6a.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3932753814866449" target="freeweibo-mirror">SPAM 哈。双规了/</a>
 </h2>
 <p>SPAM 哈。双规了/<br><br>RE: 说肖刚辞职的@路透中文网Reuters 被党双规了。帐号已封，动作真快，可比股市狂跌时的反应快多了。让你造谣[嘻嘻][嘻嘻][嘻嘻]<br><img src="http://ww4.sinaimg.cn/large/bfd26dfdjw1f03zdlaxl4j20sd0grq6a.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3932751524782012" target="freeweibo-mirror">说肖刚辞职的@路透中文网Reuters 被党双规了。帐号已封…</a>
 </h2>
