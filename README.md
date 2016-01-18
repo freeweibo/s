@@ -66,7 +66,7 @@
 </h2>
 <p>【黄市长】最近关于重庆黄市长将高升的传说很多。我曾看过黄的演讲视频，其雄辩和专业令人印象不错。不过，薄在重庆风生水起的时候，黄也是党政主要领导人，参与重大决策。前总理温曾明确要求重庆现任市委和市政府必须反思，从王立军事件吸取教训，不知道黄市长对黑打等诸多恶行是否反思？<br><img src="http://ww3.sinaimg.cn/large/48866320gw1f04248h0xfj20go0bp3zc.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3932769321268899" target="freeweibo-mirror">蒙古就是这么丢的嘛！看图，《总统蒋公言论思想总集》223页。…</a>
 </h2>
@@ -126,7 +126,7 @@
 </h2>
 <p>SPAM 哈哈哈 湾湾泥闷说句话啊[笑cry]<br><br>RE: 由林更新引发的两岸#FB表情包大战# ，大陆完胜！黄子韬恐成最大赢家[笑cry]<br><img src="http://ww3.sinaimg.cn/large/a5c01df7gw1f03jqzvtcqj20ku3jmqj0.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3932744612963685" target="freeweibo-mirror">证监会辟谣之后，路透的微博逝世。 http://t.cn/R…</a>
 </h2>
