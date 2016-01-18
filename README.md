@@ -44,6 +44,12 @@
 <p>
 	<small> ============== 12小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3932376440385591" target="freeweibo-mirror">我从@秒拍 分享了一个视频-谁是傻子，谁是另类。 （分享自 …</a>
+</h2>
+<p>我从@秒拍 分享了一个视频-谁是傻子，谁是另类。 （分享自 @秒拍） http://t.cn/R4Y8IJf</p>
+<p>
+	<small> ============== 1天前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3932356291337359" target="freeweibo-mirror">[怒][吐]//@郭明义爱心团队邵永涛: //@孙润书法:/…</a>
 </h2>
 <p>[怒][吐]//@郭明义爱心团队邵永涛: //@孙润书法://@赤耳丹朵: 中国应该坚定宠养这个仇视中国东西吗？//@枫零头:→_→//@DL南山樵夫：长期潜伏做委员，一贯与人民为敌，时不时捅咕小波澜，刘桂娟不是好东西。<br><br>RE: 特色政协委员刘桂娟阴阳怪气庆贺蔡英文当选台湾“总统”，如此分裂祖国的言论居然出自大陆政协委员之口，这怎么说都是一个国际笑话吧！<br><img src="http://ww2.sinaimg.cn/large/e2f8bccdgw1f01r6il5m7j20k00j0403.jpg"></p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3932234644007790" target="freeweibo-mirror">其实我还蛮“欣赏”她的，总比那什么16岁女星一边道歉说我爱人…</a>
 </h2>
 <p>其实我还蛮“欣赏”她的，总比那什么16岁女星一边道歉说我爱人民币，一边扭头在FB上说心如刀绞好得多233//@爱卿乃深得朕意: 还有这事[挖鼻] //@柒_墨:为了右边的八卦我还得转 //@炭啪嗒:这就是那个出兔几胶带，发黑大陆游客图文，最后被大陆团购集体抵制的小姑娘嘛，当时不是被大陆大户集体退货懵逼了<br><br>RE: 很喜欢的那只兔子的作者昨天在FB上发的图。我什么也不想说[拜拜][拜拜][拜拜]<br><img src="http://ww3.sinaimg.cn/large/0063YFxvgw1f01qjvg980j30ku112775.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3932227383102026" target="freeweibo-mirror">属窜天猴？[微笑]</a>
-</h2>
-<p>属窜天猴？[微笑]<br><br>RE: 蔡英文当选台湾地区领导人，2小时得到600万台湾人民支持，一个小时前她在Facebook发表声明，感谢台湾选民的支持，争取在未来任职的四年内为台湾晋升先进国家而奋斗。。。。。<br><img src="http://ww2.sinaimg.cn/large/95c31c6ejw1f01p8ydwkrj20yi1pcb29.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
