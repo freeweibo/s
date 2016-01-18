@@ -24,13 +24,43 @@
 </h2>
 <p>//@安普若-外号安校长:也说点现实的，这次被处理的某人，我是看着他一路爬上去的。为了能爬到现在这个位置他真的是用了无数的心机和努力，刚上任没多久就出了这个事故，他背黑锅，仕途到此为止。当然了，这人也不是什么好人。如果查，也一样进去。<br><br>RE: 据说天津爆炸案的处理结果已经再次上报中央。前面报过一次，被中央驳回，认为过轻。这次报了100多人，市一级官员二人。春节前可能会批下来。看老百姓们满意不满意了。</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3932713846962049" target="freeweibo-mirror">SPAM 怎么做到的。。 //@式波明日香:日本JK完全就是…</a>
 </h2>
 <p>SPAM 怎么做到的。。 //@式波明日香:日本JK完全就是战斗怪！以前看过一个报道说因为妈妈们从小大腿不怕严寒所以儿子们遗传到强健下盘，所以日本足球崛起了233 //@豆包_SAN值过低: http://t.cn/R4HzK1j //@工口组组长://@丧病喵_CA_馒头://@SaitoSouta_洬太:下雪了，真好❄</p>
 <p>
 	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3932711720749032" target="freeweibo-mirror">【国际化才能规范化】…加入SDR的中国，已经不能闭门造车了，…</a>
+</h2>
+<p>【国际化才能规范化】…加入SDR的中国，已经不能闭门造车了，政策市终将退出历史舞台，从而回归股市的本质。中国股市是系统性、基础制度性的问题，谁不改变这个底盘，结果都一样！而改革需要付出代价，改革牛只能在熊底起步[围观]//@西伯利亚:来评一下！快讯：中国证监会主席肖钢已提出辞职…消息人士<br><img src="http://ww4.sinaimg.cn/large/67b5fd87jw1f03uo1tlnzj20c807lwfv.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3932706008168824" target="freeweibo-mirror">SPAM 前几天我就说，真的没有其他什么利好了，只能靠肖刚辞…</a>
+</h2>
+<p>SPAM 前几天我就说，真的没有其他什么利好了，只能靠肖刚辞职了//【路透：证监会主席肖钢已提出辞职】  http://t.cn/R4HPY1C</p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3932699427554443" target="freeweibo-mirror">路透：中国证监会主席肖钢已提出辞职 http://t.cn/…</a>
+</h2>
+<p>路透：中国证监会主席肖钢已提出辞职 http://t.cn/R4HhVfI （分享自@凤凰新闻客户端）<br><img src="http://ww3.sinaimg.cn/large/4bf876a7jw1f03tegsvomj20be02x0so.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3932698160330093" target="freeweibo-mirror">→_→//@来去之间: →_→ //@刘彬:神评论→_→//…</a>
+</h2>
+<p>→_→//@来去之间: →_→ //@刘彬:神评论→_→//@热带雨琳: 央妈变亲妈？ //@访善先生:刘鹤兼任中财办主任、央行行长、财长和证监会主席。<br><br>RE: 快讯：中国证监会主席肖钢已提出辞职--消息人士</p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3932694993617025" target="freeweibo-mirror">我列个去</a>
+</h2>
+<p>我列个去<br><br>RE: 快讯：中国证监会主席肖钢已提出辞职--消息人士</p>
+<p>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3932691323874721" target="freeweibo-mirror">SPAM //@浪嘚利哥浪: 哈哈 又衍生出新行业了//@萧…</a>
 </h2>
@@ -107,36 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3932405628832400" target="freeweibo-mirror">SPAM 一部座驾，一种人生。匠心之选，#时代所向#</a>
 </h2>
 <p>SPAM 一部座驾，一种人生。匠心之选，#时代所向#</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3932376440385591" target="freeweibo-mirror">我从@秒拍 分享了一个视频-谁是傻子，谁是另类。 （分享自 …</a>
-</h2>
-<p>我从@秒拍 分享了一个视频-谁是傻子，谁是另类。 （分享自 @秒拍） http://t.cn/R4Y8IJf</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3932356291337359" target="freeweibo-mirror">[怒][吐]//@郭明义爱心团队邵永涛: //@孙润书法:/…</a>
-</h2>
-<p>[怒][吐]//@郭明义爱心团队邵永涛: //@孙润书法://@赤耳丹朵: 中国应该坚定宠养这个仇视中国东西吗？//@枫零头:→_→//@DL南山樵夫：长期潜伏做委员，一贯与人民为敌，时不时捅咕小波澜，刘桂娟不是好东西。<br><br>RE: 特色政协委员刘桂娟阴阳怪气庆贺蔡英文当选台湾“总统”，如此分裂祖国的言论居然出自大陆政协委员之口，这怎么说都是一个国际笑话吧！<br><img src="http://ww2.sinaimg.cn/large/e2f8bccdgw1f01r6il5m7j20k00j0403.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3932339799213504" target="freeweibo-mirror">//@弹古论斤: //@李拥军13849726049://:…</a>
-</h2>
-<p>//@弹古论斤: //@李拥军13849726049://://@弹古论斤: //@蓝冰_Lambda:转发微博</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3932315816009329" target="freeweibo-mirror">SPAM //@笑-看风云://@淡紫色de冰冰: [哈哈]…</a>
-</h2>
-<p>SPAM //@笑-看风云://@淡紫色de冰冰: [哈哈] //@青山H妩媚:[笑cry]//@chen迁迁13: [哈哈] //@白水壹君:[哈哈][哈哈]//@三哥带表吃包子D: [哈哈][哈哈][哈哈] //@懒得洗澡的鱼789://@超大齿猛蚁:[偷笑]<br><br>RE: 这个牛！<br><img src="http://ww4.sinaimg.cn/large/006lfXh0gw1f01ooqra8fj30fk0lhmys.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3932286787124260" target="freeweibo-mirror">@鲁振旺: 1、所有供应商资源、品控标准和采购价都会开放给所…</a>
-</h2>
-<p>@鲁振旺: 1、所有供应商资源、品控标准和采购价都会开放给所有旺农汇微商；2、抢鲜购店不会卖；3、有投资人沟通融资事宜，是我的个人选择问题，不会融资重启，谢谢信任；4、所有供应商，我们会负责，一是微商会开放，二是有开淘宝、微博电商的，我会持续关注传播；5、有安慰、取经和痛心的，我心领了！</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
