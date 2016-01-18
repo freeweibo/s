@@ -42,7 +42,7 @@
 </h2>
 <p>SPAM //@黑童话集: 这段太精彩了~[doge]</p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3932589888818042" target="freeweibo-mirror">新疆的暴恐有多严重，大家看一下，这只是一个县近三年涉暴恐人员…</a>
 </h2>
