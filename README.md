@@ -30,13 +30,13 @@
 </h2>
 <p>现在这些外媒的中文网，到底是什么运营状态？是相关的中国合伙人承包了吗？//@王星WX:路透的微博是@路透中文网Reuters ，而非截图中账号。路透微博目前的状态是被封，暂未被清空销号。<br><br>RE: 证监会辟谣之后，路透的微博逝世。 http://t.cn/RyhSdLi<br><img src="http://ww1.sinaimg.cn/large/558acfe8jw1f03yl9asqfj20ku112gpx.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3932779240540304" target="freeweibo-mirror">政坛不倒翁。</a>
 </h2>
 <p>政坛不倒翁。<br><br>RE: 【黄市长】最近关于重庆黄市长将高升的传说很多。我曾看过黄的演讲视频，其雄辩和专业令人印象不错。不过，薄在重庆风生水起的时候，黄也是党政主要领导人，参与重大决策。前总理温曾明确要求重庆现任市委和市政府必须反思，从王立军事件吸取教训，不知道黄市长对黑打等诸多恶行是否反思？<br><img src="http://ww3.sinaimg.cn/large/48866320gw1f04248h0xfj20go0bp3zc.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3932778720137214" target="freeweibo-mirror">貌似最先爆料黄市长要高升的@路透中文网Reuters 刚才已…</a>
 </h2>
