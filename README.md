@@ -24,13 +24,13 @@
 </h2>
 <p>SPAM 我发的都是正经图呢。黄图只是色彩显示不准。//@刘路军先生: 你以后小心点[挖鼻]别发黄图 //@谭世平:哈。双规了/<br><br>RE: 说肖刚辞职的@路透中文网Reuters 被党双规了。帐号已封，动作真快，可比股市狂跌时的反应快多了。让你造谣[嘻嘻][嘻嘻][嘻嘻]<br><img src="http://ww4.sinaimg.cn/large/bfd26dfdjw1f03zdlaxl4j20sd0grq6a.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3932753814866449" target="freeweibo-mirror">SPAM 哈。双规了/</a>
 </h2>
 <p>SPAM 哈。双规了/<br><br>RE: 说肖刚辞职的@路透中文网Reuters 被党双规了。帐号已封，动作真快，可比股市狂跌时的反应快多了。让你造谣[嘻嘻][嘻嘻][嘻嘻]<br><img src="http://ww4.sinaimg.cn/large/bfd26dfdjw1f03zdlaxl4j20sd0grq6a.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3932751524782012" target="freeweibo-mirror">说肖刚辞职的@路透中文网Reuters 被党双规了。帐号已封…</a>
 </h2>
