@@ -42,7 +42,7 @@
 </h2>
 <p>在敌占区能活下来，是党和娱乐界的宝贵资源，重用！<br><br>RE: 【黄市长】最近关于重庆黄市长将高升的传说很多。我曾看过黄的演讲视频，其雄辩和专业令人印象不错。不过，薄在重庆风生水起的时候，黄也是党政主要领导人，参与重大决策。前总理温曾明确要求重庆现任市委和市政府必须反思，从王立军事件吸取教训，不知道黄市长对黑打等诸多恶行是否反思？<br><img src="http://ww3.sinaimg.cn/large/48866320gw1f04248h0xfj20go0bp3zc.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3932758273611044" target="freeweibo-mirror">SPAM 手机屏幕前竖起中指[怒]//@福建孙涛:[衰]//…</a>
 </h2>
@@ -72,7 +72,13 @@
 </h2>
 <p>SPAM @Dreammoon梦月潘_ @桌 @文心ee  笑死我了，大陆表情包赢咯<br><br>RE: 由林更新引发的两岸#FB表情包大战# ，大陆完胜！黄子韬恐成最大赢家[笑cry]<br><img src="http://ww3.sinaimg.cn/large/a5c01df7gw1f03jqzvtcqj20ku3jmqj0.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3932746432583853" target="freeweibo-mirror">网上流出一段视频，据说是某地下讲经点因为学生背不出古兰经毒打…</a>
+</h2>
+<p>网上流出一段视频，据说是某地下讲经点因为学生背不出古兰经毒打学生。#中国微力量# 请@公安部刑侦局 关注！请@广州区伯 @真话哥 @happy热哥 @盘子微谈 帮忙扩散求真相！ http://t.cn/R4H2Qe2</p>
+<p>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3932745346124507" target="freeweibo-mirror">SPAM 哈哈哈 湾湾泥闷说句话啊[笑cry]</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3932706008168824" target="freeweibo-mirror">SPAM 前几天我就说，真的没有其他什么利好了，只能靠肖刚辞…</a>
 </h2>
 <p>SPAM 前几天我就说，真的没有其他什么利好了，只能靠肖刚辞职了//【路透：证监会主席肖钢已提出辞职】  http://t.cn/R4HPY1C</p>
-<p>
-	<small> ============== 6小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3932704850231470" target="freeweibo-mirror">SPAM 哈哈。//@浙江洪燕华: 除非章婷接班。</a>
-</h2>
-<p>SPAM 哈哈。//@浙江洪燕华: 除非章婷接班。<br><br>RE: 肖老板终于还是辞了，其实他任内上证指数走势和“上浮零”任内的上证指数走势，几乎一样。都经历了低迷徘徊——牛市暴涨——熊市暴跌——超跌反弹——二次探底这一整个周期。只不过尚老板用了9年（2002-2011），肖老板只用了2年半（2013.3-今），<br><img src="http://ww4.sinaimg.cn/large/8d354b32jw1f03tf36n7gj20c60dptas.jpg"></p>
 <p>
 	<small> ============== 6小时前</small>
 </p>
