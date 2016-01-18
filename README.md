@@ -20,6 +20,24 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3932780809383831" target="freeweibo-mirror">//@陈光武律师:[嘻嘻][嘻嘻]哪壶不开提哪壶......</a>
+</h2>
+<p>//@陈光武律师:[嘻嘻][嘻嘻]哪壶不开提哪壶......<br><br>RE: 【黄市长】最近关于重庆黄市长将高升的传说很多。我曾看过黄的演讲视频，其雄辩和专业令人印象不错。不过，薄在重庆风生水起的时候，黄也是党政主要领导人，参与重大决策。前总理温曾明确要求重庆现任市委和市政府必须反思，从王立军事件吸取教训，不知道黄市长对黑打等诸多恶行是否反思？<br><img src="http://ww3.sinaimg.cn/large/48866320gw1f04248h0xfj20go0bp3zc.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3932778720137214" target="freeweibo-mirror">貌似最先爆料黄市长要高升的@路透中文网Reuters 刚才已…</a>
+</h2>
+<p>貌似最先爆料黄市长要高升的@路透中文网Reuters 刚才已经被销号了。[微笑]<br><br>RE: 【黄市长】最近关于重庆黄市长将高升的传说很多。我曾看过黄的演讲视频，其雄辩和专业令人印象不错。不过，薄在重庆风生水起的时候，黄也是党政主要领导人，参与重大决策。前总理温曾明确要求重庆现任市委和市政府必须反思，从王立军事件吸取教训，不知道黄市长对黑打等诸多恶行是否反思？<br><img src="http://ww3.sinaimg.cn/large/48866320gw1f04248h0xfj20go0bp3zc.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3932778431522826" target="freeweibo-mirror">劣币驱逐良币，越坏官升到越高</a>
+</h2>
+<p>劣币驱逐良币，越坏官升到越高<br><br>RE: 【黄市长】最近关于重庆黄市长将高升的传说很多。我曾看过黄的演讲视频，其雄辩和专业令人印象不错。不过，薄在重庆风生水起的时候，黄也是党政主要领导人，参与重大决策。前总理温曾明确要求重庆现任市委和市政府必须反思，从王立军事件吸取教训，不知道黄市长对黑打等诸多恶行是否反思？<br><img src="http://ww3.sinaimg.cn/large/48866320gw1f04248h0xfj20go0bp3zc.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3932754691066558" target="freeweibo-mirror">SPAM 我发的都是正经图呢。黄图只是色彩显示不准。//@刘…</a>
 </h2>
 <p>SPAM 我发的都是正经图呢。黄图只是色彩显示不准。//@刘路军先生: 你以后小心点[挖鼻]别发黄图 //@谭世平:哈。双规了/<br><br>RE: 说肖刚辞职的@路透中文网Reuters 被党双规了。帐号已封，动作真快，可比股市狂跌时的反应快多了。让你造谣[嘻嘻][嘻嘻][嘻嘻]<br><img src="http://ww4.sinaimg.cn/large/bfd26dfdjw1f03zdlaxl4j20sd0grq6a.jpg"></p>
@@ -84,7 +102,7 @@
 </h2>
 <p>SPAM 怎么做到的。。 //@式波明日香:日本JK完全就是战斗怪！以前看过一个报道说因为妈妈们从小大腿不怕严寒所以儿子们遗传到强健下盘，所以日本足球崛起了233 //@豆包_SAN值过低: http://t.cn/R4HzK1j //@工口组组长://@丧病喵_CA_馒头://@SaitoSouta_洬太:下雪了，真好❄</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3932711720749032" target="freeweibo-mirror">【国际化才能规范化】…加入SDR的中国，已经不能闭门造车了，…</a>
 </h2>
@@ -119,24 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3932702862267750" target="freeweibo-mirror">请输入转发理由不知道真假，如果是真的，可是一个大利好</a>
 </h2>
 <p>请输入转发理由不知道真假，如果是真的，可是一个大利好<br><br>RE: 路透今晚快讯：中国证监会主席肖钢已提出辞职--消息人士。补充两点：1、这条微博我自己没删，包括经典重温那条；2、老同志批评说，人事变动提早爆出来会延缓变动，甚至生变。所以一切，以国务院公告为准。<br><img src="http://ww3.sinaimg.cn/large/7c1d7ba8gw1f03t0uhm09j20hs0vkdjz.jpg"></p>
-<p>
-	<small> ============== 6小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3932702396470554" target="freeweibo-mirror">同问。//@小木匠爱茶:不是刚刚被任命为扶贫小组组长吗？</a>
-</h2>
-<p>同问。//@小木匠爱茶:不是刚刚被任命为扶贫小组组长吗？<br><br>RE: 【路透社微博称，证监会主席肖钢提出辞职】1月18日，据路透社中文微博援引消息人士称，中国证监会主席肖钢已提出辞职。大兵简评：这个消息是否属实，还有待证实，好在这时候出现此消息也扰乱不了股市，期待中国股市好起来。大家拭目以待吧，不要听信谣言哦。<br><img src="http://ww2.sinaimg.cn/large/4d353f02jw1f03tfky5p7j20be02xaa5.jpg"></p>
-<p>
-	<small> ============== 6小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3932702094890738" target="freeweibo-mirror">#名博评论# 【外媒：中国证监会主席肖钢已提出辞职】据路透引…</a>
-</h2>
-<p>#名博评论# 【外媒：中国证监会主席肖钢已提出辞职】据路透引述消息人士称，中国证监会主席肖钢已提出辞职。http://t.cn/R4HPyL0[伤心]@肖仲华本人 @看今天微博</p>
-<p>
-	<small> ============== 6小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3932701918882559" target="freeweibo-mirror">#瞭望阅读# 【外媒：中国证监会主席肖钢已提出辞职】据路透引…</a>
-</h2>
-<p>#瞭望阅读# 【外媒：中国证监会主席肖钢已提出辞职】据路透引述消息人士称，中国证监会主席肖钢已提出辞职。http://t.cn/R4HPyL0<br><br>RE: #名博评论# 周一（1月18日）据路透社中文微博援引消息人士称，中国证监会主席肖钢已提出辞职。@李大霄 @侯宁 @光远看经济 @王祖哲<br><img src="http://ww3.sinaimg.cn/large/678207a7gw1f03ti077c4j205k05kglk.jpg"></p>
 <p>
 	<small> ============== 6小时前</small>
 </p>
