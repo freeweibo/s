@@ -24,7 +24,7 @@
 </h2>
 <p>【周小平，请您道歉】微博著名大V任志强发了一条“刚从台湾回国”的微博，被著名爱国学者司马南郑重警告：“台湾是中国不可分割的一部分！”，任总立马道歉；非著名博主探花，在此把司先生的警告转送爱国大V周小平：“从台湾回来，不是回国。台湾是中国不可分割的一部分！”请道歉！<br><img src="http://ww1.sinaimg.cn/large/005Lo1JQjw1f03m5j8d6jj30c80lr40k.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3932627956874320" target="freeweibo-mirror">我早就说了 乱邦的政策完全错误。 //@陈词不达意:不多啊，…</a>
 </h2>
@@ -54,7 +54,7 @@
 </h2>
 <p>#观点#【实事求是解决李波「失踪」事件】是什么人干的呢？笔者认为有两种可能：一是某些邀功心切的官员，为了讨好中央领导人而自把自为。另一种可能性是，铜锣湾书店出售的书披露了内地官场某些人的问题，这些人想让出版社封口，但又不想暴露自己http://t.cn/R4TyRR5<br><img src="http://ww2.sinaimg.cn/large/9dcb59c7jw1f03cqkaxm9j20c82imtqj.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3932557378485293" target="freeweibo-mirror">我不信//@牧马南山2015: @环球时报 @任志强  //…</a>
 </h2>
