@@ -132,7 +132,7 @@
 </h2>
 <p>证监会辟谣之后，路透的微博逝世。 http://t.cn/RyhSdLi<br><img src="http://ww1.sinaimg.cn/large/558acfe8jw1f03yl9asqfj20ku112gpx.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3932733237317451" target="freeweibo-mirror">[笑cry] //@丽宝是个小透明啊:好想看直播[doge]…</a>
 </h2>
