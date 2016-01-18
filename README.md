@@ -66,7 +66,7 @@
 </h2>
 <p>SPAM 平时叫你多攒点表情你不听 //@张魏然:哈哈哈哈哈哈哈哈哈<br><br>RE: 由林更新引发的两岸#FB表情包大战# ，大陆完胜！黄子韬恐成最大赢家[笑cry]<br><img src="http://ww3.sinaimg.cn/large/a5c01df7gw1f03jqzvtcqj20ku3jmqj0.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3932723019941078" target="freeweibo-mirror">//@安普若-外号安校长:也说点现实的，这次被处理的某人，我…</a>
 </h2>
