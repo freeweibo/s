@@ -26,6 +26,12 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3932627956874320" target="freeweibo-mirror">我早就说了 乱邦的政策完全错误。 //@陈词不达意:不多啊，…</a>
+</h2>
+<p>我早就说了 乱邦的政策完全错误。 //@陈词不达意:不多啊，才百多号人 //@中科大胡不归: 乱邦的理想世界<br><br>RE: 新疆的暴恐有多严重，大家看一下，这只是一个县近三年涉暴恐人员的通缉令<br><img src="http://ww1.sinaimg.cn/large/74609fc5jw1f03gtjrp8dj20g60aw0uu.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3932618187890256" target="freeweibo-mirror">//@阿些和:转发微博</a>
 </h2>
 <p>//@阿些和:转发微博<br><br>RE: #观点#【实事求是解决李波「失踪」事件】是什么人干的呢？笔者认为有两种可能：一是某些邀功心切的官员，为了讨好中央领导人而自把自为。另一种可能性是，铜锣湾书店出售的书披露了内地官场某些人的问题，这些人想让出版社封口，但又不想暴露自己http://t.cn/R4TyRR5<br><img src="http://ww2.sinaimg.cn/large/9dcb59c7jw1f03cqkaxm9j20c82imtqj.jpg"></p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3932259121823564" target="freeweibo-mirror">当下来说是不二人选。</a>
 </h2>
 <p>当下来说是不二人选。<br><br>RE: 【消息人士：黄奇帆将上调中央 主管金融】接近中国金融监管当局的一名消息人士透露，重庆市长黄奇帆已被国家主席习近平选定，负责整理中国陷入混乱的金融市场，这一决定将对目前的政策走向带来“重大”影响。via南早中文<br><img src="http://ww1.sinaimg.cn/large/4b8bd145jw1f027m8pfl4j20di08e0tk.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3932256466637682" target="freeweibo-mirror">互联网金融乱了，尤其P2P，证券市场也乱了，看好黄市长</a>
-</h2>
-<p>互联网金融乱了，尤其P2P，证券市场也乱了，看好黄市长<br><br>RE: 【消息人士：黄奇帆将上调中央 主管金融】接近中国金融监管当局的一名消息人士透露，重庆市长黄奇帆已被国家主席习近平选定，负责整理中国陷入混乱的金融市场，这一决定将对目前的政策走向带来“重大”影响。via南早中文<br><img src="http://ww1.sinaimg.cn/large/4b8bd145jw1f027m8pfl4j20di08e0tk.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
