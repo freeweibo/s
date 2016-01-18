@@ -36,7 +36,7 @@
 </h2>
 <p>//@阿些和:转发微博<br><br>RE: #观点#【实事求是解决李波「失踪」事件】是什么人干的呢？笔者认为有两种可能：一是某些邀功心切的官员，为了讨好中央领导人而自把自为。另一种可能性是，铜锣湾书店出售的书披露了内地官场某些人的问题，这些人想让出版社封口，但又不想暴露自己http://t.cn/R4TyRR5<br><img src="http://ww2.sinaimg.cn/large/9dcb59c7jw1f03cqkaxm9j20c82imtqj.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3932597308421244" target="freeweibo-mirror">SPAM //@黑童话集: 这段太精彩了~[doge]</a>
 </h2>
