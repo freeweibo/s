@@ -56,15 +56,75 @@
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3932704850231470" target="freeweibo-mirror">SPAM 哈哈。//@浙江洪燕华: 除非章婷接班。</a>
+</h2>
+<p>SPAM 哈哈。//@浙江洪燕华: 除非章婷接班。<br><br>RE: 肖老板终于还是辞了，其实他任内上证指数走势和“上浮零”任内的上证指数走势，几乎一样。都经历了低迷徘徊——牛市暴涨——熊市暴跌——超跌反弹——二次探底这一整个周期。只不过尚老板用了9年（2002-2011），肖老板只用了2年半（2013.3-今），<br><img src="http://ww4.sinaimg.cn/large/8d354b32jw1f03tf36n7gj20c60dptas.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3932703651192001" target="freeweibo-mirror">SPAM 我们的损失怎么说？ 请把帐户还原到2015年1月1…</a>
+</h2>
+<p>SPAM 我们的损失怎么说？ 请把帐户还原到2015年1月1日再走！<br><br>RE: 路透：中国证监会主席肖钢已提出辞职。应该先问问股民都同意不？<br><img src="http://ww3.sinaimg.cn/large/59fbea0ajw1f03swmjfmyj20eo0apjrt.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3932702862267750" target="freeweibo-mirror">请输入转发理由不知道真假，如果是真的，可是一个大利好</a>
+</h2>
+<p>请输入转发理由不知道真假，如果是真的，可是一个大利好<br><br>RE: 路透今晚快讯：中国证监会主席肖钢已提出辞职--消息人士。补充两点：1、这条微博我自己没删，包括经典重温那条；2、老同志批评说，人事变动提早爆出来会延缓变动，甚至生变。所以一切，以国务院公告为准。<br><img src="http://ww3.sinaimg.cn/large/7c1d7ba8gw1f03t0uhm09j20hs0vkdjz.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3932702396470554" target="freeweibo-mirror">同问。//@小木匠爱茶:不是刚刚被任命为扶贫小组组长吗？</a>
+</h2>
+<p>同问。//@小木匠爱茶:不是刚刚被任命为扶贫小组组长吗？<br><br>RE: 【路透社微博称，证监会主席肖钢提出辞职】1月18日，据路透社中文微博援引消息人士称，中国证监会主席肖钢已提出辞职。大兵简评：这个消息是否属实，还有待证实，好在这时候出现此消息也扰乱不了股市，期待中国股市好起来。大家拭目以待吧，不要听信谣言哦。<br><img src="http://ww2.sinaimg.cn/large/4d353f02jw1f03tfky5p7j20be02xaa5.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3932702094890738" target="freeweibo-mirror">#名博评论# 【外媒：中国证监会主席肖钢已提出辞职】据路透引…</a>
+</h2>
+<p>#名博评论# 【外媒：中国证监会主席肖钢已提出辞职】据路透引述消息人士称，中国证监会主席肖钢已提出辞职。http://t.cn/R4HPyL0[伤心]@肖仲华本人 @看今天微博</p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3932701918882559" target="freeweibo-mirror">#瞭望阅读# 【外媒：中国证监会主席肖钢已提出辞职】据路透引…</a>
+</h2>
+<p>#瞭望阅读# 【外媒：中国证监会主席肖钢已提出辞职】据路透引述消息人士称，中国证监会主席肖钢已提出辞职。http://t.cn/R4HPyL0<br><br>RE: #名博评论# 周一（1月18日）据路透社中文微博援引消息人士称，中国证监会主席肖钢已提出辞职。@李大霄 @侯宁 @光远看经济 @王祖哲<br><img src="http://ww3.sinaimg.cn/large/678207a7gw1f03ti077c4j205k05kglk.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3932699427554443" target="freeweibo-mirror">路透：中国证监会主席肖钢已提出辞职 http://t.cn/…</a>
 </h2>
 <p>路透：中国证监会主席肖钢已提出辞职 http://t.cn/R4HhVfI （分享自@凤凰新闻客户端）<br><img src="http://ww3.sinaimg.cn/large/4bf876a7jw1f03tegsvomj20be02x0so.jpg"></p>
 <p>
 	<small> ============== 4小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3932698957726721" target="freeweibo-mirror">【独家：中国证监会主席肖钢提出辞职--消息】消息人士称，中国…</a>
+</h2>
+<p>【独家：中国证监会主席肖钢提出辞职--消息】消息人士称，中国证监会主席肖钢已提出辞职，外界认为由于他的管理不善，致使沪深两市自2015年6月达到高点以来市值蒸发逾5万亿美元。目前尚不清楚肖钢请辞是否已获得中央政府同意。 http://t.cn/R4HPDwy</p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3932698713931730" target="freeweibo-mirror">SPAM 走好。//@叶檀: 一切都好。不是英雄，也不坏，火…</a>
+</h2>
+<p>SPAM 走好。//@叶檀: 一切都好。不是英雄，也不坏，火山口上被烤焦。<br><br>RE: 中国证监会主席肖钢已提出辞职（路透）http://t.cn/R4HPTXI<br><img src="http://ww2.sinaimg.cn/large/62a6f5c1gw1f03t1jykf3j208c06odg9.jpg"></p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3932698160330093" target="freeweibo-mirror">→_→//@来去之间: →_→ //@刘彬:神评论→_→//…</a>
 </h2>
 <p>→_→//@来去之间: →_→ //@刘彬:神评论→_→//@热带雨琳: 央妈变亲妈？ //@访善先生:刘鹤兼任中财办主任、央行行长、财长和证监会主席。<br><br>RE: 快讯：中国证监会主席肖钢已提出辞职--消息人士</p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3932697930454129" target="freeweibo-mirror">替主受罪，，算忠臣，可能会另有任用。。</a>
+</h2>
+<p>替主受罪，，算忠臣，可能会另有任用。。<br><br>RE: 快讯：中国证监会主席肖钢已提出辞职--消息人士</p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3932696738281031" target="freeweibo-mirror">SPAM 据路透社说，肖刚已经提出辞职申请。</a>
+</h2>
+<p>SPAM 据路透社说，肖刚已经提出辞职申请。</p>
 <p>
 	<small> ============== 4小时前</small>
 </p><h2>
@@ -79,66 +139,6 @@
 <p>SPAM //@浪嘚利哥浪: 哈哈 又衍生出新行业了//@萧罱:这实在太臭不要脸了 //@奏耐天津:狗烂儿！@平安天津<br><br>RE: 正常跑活的司机都不让跑，直接看车碰瓷，某些司机脸都不要了@奏耐天津 @天津交警 http://t.cn/R4T1pbF .</p>
 <p>
 	<small> ============== 4小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3932666544486933" target="freeweibo-mirror">正常跑活的司机都不让跑，直接看车碰瓷，某些司机脸都不要了@奏…</a>
-</h2>
-<p>正常跑活的司机都不让跑，直接看车碰瓷，某些司机脸都不要了@奏耐天津 @天津交警 http://t.cn/R4T1pbF .</p>
-<p>
-	<small> ============== 6小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3932640455717039" target="freeweibo-mirror">据说天津爆炸案的处理结果已经再次上报中央。前面报过一次，被中…</a>
-</h2>
-<p>据说天津爆炸案的处理结果已经再次上报中央。前面报过一次，被中央驳回，认为过轻。这次报了100多人，市一级官员二人。春节前可能会批下来。看老百姓们满意不满意了。</p>
-<p>
-	<small> ============== 7小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3932637531490972" target="freeweibo-mirror">【周小平，请您道歉】微博著名大V任志强发了一条“刚从台湾回国…</a>
-</h2>
-<p>【周小平，请您道歉】微博著名大V任志强发了一条“刚从台湾回国”的微博，被著名爱国学者司马南郑重警告：“台湾是中国不可分割的一部分！”，任总立马道歉；非著名博主探花，在此把司先生的警告转送爱国大V周小平：“从台湾回来，不是回国。台湾是中国不可分割的一部分！”请道歉！<br><img src="http://ww1.sinaimg.cn/large/005Lo1JQjw1f03m5j8d6jj30c80lr40k.jpg"></p>
-<p>
-	<small> ============== 8小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3932627956874320" target="freeweibo-mirror">我早就说了 乱邦的政策完全错误。 //@陈词不达意:不多啊，…</a>
-</h2>
-<p>我早就说了 乱邦的政策完全错误。 //@陈词不达意:不多啊，才百多号人 //@中科大胡不归: 乱邦的理想世界<br><br>RE: 新疆的暴恐有多严重，大家看一下，这只是一个县近三年涉暴恐人员的通缉令<br><img src="http://ww1.sinaimg.cn/large/74609fc5jw1f03gtjrp8dj20g60aw0uu.jpg"></p>
-<p>
-	<small> ============== 8小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3932618187890256" target="freeweibo-mirror">//@阿些和:转发微博</a>
-</h2>
-<p>//@阿些和:转发微博<br><br>RE: #观点#【实事求是解决李波「失踪」事件】是什么人干的呢？笔者认为有两种可能：一是某些邀功心切的官员，为了讨好中央领导人而自把自为。另一种可能性是，铜锣湾书店出售的书披露了内地官场某些人的问题，这些人想让出版社封口，但又不想暴露自己http://t.cn/R4TyRR5<br><img src="http://ww2.sinaimg.cn/large/9dcb59c7jw1f03cqkaxm9j20c82imtqj.jpg"></p>
-<p>
-	<small> ============== 9小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3932597308421244" target="freeweibo-mirror">SPAM //@黑童话集: 这段太精彩了~[doge]</a>
-</h2>
-<p>SPAM //@黑童话集: 这段太精彩了~[doge]</p>
-<p>
-	<small> ============== 10小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3932589888818042" target="freeweibo-mirror">新疆的暴恐有多严重，大家看一下，这只是一个县近三年涉暴恐人员…</a>
-</h2>
-<p>新疆的暴恐有多严重，大家看一下，这只是一个县近三年涉暴恐人员的通缉令<br><img src="http://ww1.sinaimg.cn/large/74609fc5jw1f03gtjrp8dj20g60aw0uu.jpg"></p>
-<p>
-	<small> ============== 11小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3932562474579896" target="freeweibo-mirror">#观点#【实事求是解决李波「失踪」事件】是什么人干的呢？笔者…</a>
-</h2>
-<p>#观点#【实事求是解决李波「失踪」事件】是什么人干的呢？笔者认为有两种可能：一是某些邀功心切的官员，为了讨好中央领导人而自把自为。另一种可能性是，铜锣湾书店出售的书披露了内地官场某些人的问题，这些人想让出版社封口，但又不想暴露自己http://t.cn/R4TyRR5<br><img src="http://ww2.sinaimg.cn/large/9dcb59c7jw1f03cqkaxm9j20c82imtqj.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3932557378485293" target="freeweibo-mirror">我不信//@牧马南山2015: @环球时报 @任志强  //…</a>
-</h2>
-<p>我不信//@牧马南山2015: @环球时报 @任志强  //@作家金槿姬:美帝又造谣。哼！[哼]<br><br>RE: 我从@秒拍 分享了一个视频-谁是傻子，谁是另类。 （分享自 @秒拍） http://t.cn/R4Y8IJf</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3932555407160798" target="freeweibo-mirror">一九二二年一月出版的《戏剧》第二卷第一号，陈大悲创作独幕剧《…</a>
-</h2>
-<p>一九二二年一月出版的《戏剧》第二卷第一号，陈大悲创作独幕剧《爱国贼》//@丹青客: 不但不读书。//@王不见王_StannyCC: ……现在团宣部的人……都不读书的么……</p>
-<p>
-	<small> ============== 1天前</small>
 </p>
 <table>
     <tr>
