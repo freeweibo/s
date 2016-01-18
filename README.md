@@ -114,7 +114,7 @@
 </h2>
 <p>#名博评论# 周一（1月18日）据路透社中文微博援引消息人士称，中国证监会主席肖钢已提出辞职。@李大霄 @侯宁 @光远看经济 @王祖哲<br><img src="http://ww3.sinaimg.cn/large/678207a7gw1f03ti077c4j205k05kglk.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3932699590482963" target="freeweibo-mirror">肖老板终于还是辞了，其实他任内上证指数走势和“上浮零”任内的…</a>
 </h2>
