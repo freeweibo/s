@@ -102,7 +102,7 @@
 </h2>
 <p>SPAM 我们的损失怎么说？ 请把帐户还原到2015年1月1日再走！<br><br>RE: 路透：中国证监会主席肖钢已提出辞职。应该先问问股民都同意不？<br><img src="http://ww3.sinaimg.cn/large/59fbea0ajw1f03swmjfmyj20eo0apjrt.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3932702862267750" target="freeweibo-mirror">请输入转发理由不知道真假，如果是真的，可是一个大利好</a>
 </h2>
