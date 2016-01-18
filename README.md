@@ -30,7 +30,7 @@
 </h2>
 <p>我早就说了 乱邦的政策完全错误。 //@陈词不达意:不多啊，才百多号人 //@中科大胡不归: 乱邦的理想世界<br><br>RE: 新疆的暴恐有多严重，大家看一下，这只是一个县近三年涉暴恐人员的通缉令<br><img src="http://ww1.sinaimg.cn/large/74609fc5jw1f03gtjrp8dj20g60aw0uu.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3932618187890256" target="freeweibo-mirror">//@阿些和:转发微博</a>
 </h2>
@@ -41,6 +41,12 @@
 	<a href="https://freeweibo.com/weibo/3932597308421244" target="freeweibo-mirror">SPAM //@黑童话集: 这段太精彩了~[doge]</a>
 </h2>
 <p>SPAM //@黑童话集: 这段太精彩了~[doge]</p>
+<p>
+	<small> ============== 5小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3932589888818042" target="freeweibo-mirror">新疆的暴恐有多严重，大家看一下，这只是一个县近三年涉暴恐人员…</a>
+</h2>
+<p>新疆的暴恐有多严重，大家看一下，这只是一个县近三年涉暴恐人员的通缉令<br><img src="http://ww1.sinaimg.cn/large/74609fc5jw1f03gtjrp8dj20g60aw0uu.jpg"></p>
 <p>
 	<small> ============== 5小时前</small>
 </p><h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3932261470349579" target="freeweibo-mirror">SPAM 长者挺可爱！</a>
 </h2>
 <p>SPAM 长者挺可爱！<br><br>RE: 身经百战见得多了！ http://t.cn/R4lnRHI .</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3932259121823564" target="freeweibo-mirror">当下来说是不二人选。</a>
-</h2>
-<p>当下来说是不二人选。<br><br>RE: 【消息人士：黄奇帆将上调中央 主管金融】接近中国金融监管当局的一名消息人士透露，重庆市长黄奇帆已被国家主席习近平选定，负责整理中国陷入混乱的金融市场，这一决定将对目前的政策走向带来“重大”影响。via南早中文<br><img src="http://ww1.sinaimg.cn/large/4b8bd145jw1f027m8pfl4j20di08e0tk.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
