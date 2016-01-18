@@ -36,7 +36,7 @@
 </h2>
 <p>说肖刚辞职的@路透中文网Reuters 被党双规了。帐号已封，动作真快，可比股市狂跌时的反应快多了。让你造谣[嘻嘻][嘻嘻][嘻嘻]<br><img src="http://ww4.sinaimg.cn/large/bfd26dfdjw1f03zdlaxl4j20sd0grq6a.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3932746449474797" target="freeweibo-mirror">SPAM @Dreammoon梦月潘_ @桌 @文心ee  …</a>
 </h2>
@@ -49,6 +49,12 @@
 <p>SPAM 哈哈哈 湾湾泥闷说句话啊[笑cry]<br><br>RE: 由林更新引发的两岸#FB表情包大战# ，大陆完胜！黄子韬恐成最大赢家[笑cry]<br><img src="http://ww3.sinaimg.cn/large/a5c01df7gw1f03jqzvtcqj20ku3jmqj0.jpg"></p>
 <p>
 	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3932733237317451" target="freeweibo-mirror">[笑cry] //@丽宝是个小透明啊:好想看直播[doge]…</a>
+</h2>
+<p>[笑cry] //@丽宝是个小透明啊:好想看直播[doge]//@阿琪琪琪琪琪儿: 转发微博<br><br>RE: 由林更新引发的两岸#FB表情包大战# ，大陆完胜！黄子韬恐成最大赢家[笑cry]<br><img src="http://ww3.sinaimg.cn/large/a5c01df7gw1f03jqzvtcqj20ku3jmqj0.jpg"></p>
+<p>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3932732675610941" target="freeweibo-mirror">SPAM #肖钢辞职#最新消息：肖钢已提出辞职。股民们已经张…</a>
 </h2>
@@ -90,7 +96,7 @@
 </h2>
 <p>SPAM 前几天我就说，真的没有其他什么利好了，只能靠肖刚辞职了//【路透：证监会主席肖钢已提出辞职】  http://t.cn/R4HPY1C</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3932704850231470" target="freeweibo-mirror">SPAM 哈哈。//@浙江洪燕华: 除非章婷接班。</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3932701784082914" target="freeweibo-mirror">SPAM 此谣言这几天猖狂得狠，还有黄奇帆的谣言。//@任志…</a>
 </h2>
 <p>SPAM 此谣言这几天猖狂得狠，还有黄奇帆的谣言。//@任志强: 谣言？ //@叶檀:一切都好。不是英雄，也不坏，火山口上被烤焦。<br><br>RE: 中国证监会主席肖钢已提出辞职（路透）http://t.cn/R4HPTXI<br><img src="http://ww2.sinaimg.cn/large/62a6f5c1gw1f03t1jykf3j208c06odg9.jpg"></p>
-<p>
-	<small> ============== 6小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3932701423305878" target="freeweibo-mirror">【路透社微博称，证监会主席肖钢提出辞职】1月18日，据路透社…</a>
-</h2>
-<p>【路透社微博称，证监会主席肖钢提出辞职】1月18日，据路透社中文微博援引消息人士称，中国证监会主席肖钢已提出辞职。大兵简评：这个消息是否属实，还有待证实，好在这时候出现此消息也扰乱不了股市，期待中国股市好起来。大家拭目以待吧，不要听信谣言哦。<br><img src="http://ww2.sinaimg.cn/large/4d353f02jw1f03tfky5p7j20be02xaa5.jpg"></p>
 <p>
 	<small> ============== 6小时前</small>
 </p>
