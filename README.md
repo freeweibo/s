@@ -30,13 +30,13 @@
 </h2>
 <p>貌似最先爆料黄市长要高升的@路透中文网Reuters 刚才已经被销号了。[微笑]<br><br>RE: 【黄市长】最近关于重庆黄市长将高升的传说很多。我曾看过黄的演讲视频，其雄辩和专业令人印象不错。不过，薄在重庆风生水起的时候，黄也是党政主要领导人，参与重大决策。前总理温曾明确要求重庆现任市委和市政府必须反思，从王立军事件吸取教训，不知道黄市长对黑打等诸多恶行是否反思？<br><img src="http://ww3.sinaimg.cn/large/48866320gw1f04248h0xfj20go0bp3zc.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3932778431522826" target="freeweibo-mirror">劣币驱逐良币，越坏官升到越高</a>
 </h2>
 <p>劣币驱逐良币，越坏官升到越高<br><br>RE: 【黄市长】最近关于重庆黄市长将高升的传说很多。我曾看过黄的演讲视频，其雄辩和专业令人印象不错。不过，薄在重庆风生水起的时候，黄也是党政主要领导人，参与重大决策。前总理温曾明确要求重庆现任市委和市政府必须反思，从王立军事件吸取教训，不知道黄市长对黑打等诸多恶行是否反思？<br><img src="http://ww3.sinaimg.cn/large/48866320gw1f04248h0xfj20go0bp3zc.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3932776832852509" target="freeweibo-mirror">在敌占区能活下来，是党和娱乐界的宝贵资源，重用！</a>
 </h2>
@@ -90,13 +90,13 @@
 </h2>
 <p>[笑cry] //@丽宝是个小透明啊:好想看直播[doge]//@阿琪琪琪琪琪儿: 转发微博<br><br>RE: 由林更新引发的两岸#FB表情包大战# ，大陆完胜！黄子韬恐成最大赢家[笑cry]<br><img src="http://ww3.sinaimg.cn/large/a5c01df7gw1f03jqzvtcqj20ku3jmqj0.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3932732675610941" target="freeweibo-mirror">SPAM #肖钢辞职#最新消息：肖钢已提出辞职。股民们已经张…</a>
 </h2>
 <p>SPAM #肖钢辞职#最新消息：肖钢已提出辞职。股民们已经张灯结彩庆祝，愿肖钢安心上路，不送！<br><img src="http://ww4.sinaimg.cn/large/4a41c420jw1f03x5n4k56j20jz0zkgok.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3932725675186080" target="freeweibo-mirror">SPAM 平时叫你多攒点表情你不听 //@张魏然:哈哈哈哈哈…</a>
 </h2>
@@ -114,7 +114,7 @@
 </h2>
 <p>【路透社：中国证监会主席肖钢提出辞职】路透香港1月18日 消息人士称，中国证监会主席肖钢已提出辞职，外界认为由于他的管理不善，致使沪深两市自2015年6月达到高点以来市值蒸发逾5万亿美元。<br><img src="http://ww1.sinaimg.cn/large/535d248djw1f03u7qwa9pj2088064mx5.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3932713846962049" target="freeweibo-mirror">SPAM 怎么做到的。。 //@式波明日香:日本JK完全就是…</a>
 </h2>
