@@ -60,7 +60,7 @@
 </h2>
 <p>我列个去<br><br>RE: 快讯：中国证监会主席肖钢已提出辞职--消息人士</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3932691323874721" target="freeweibo-mirror">SPAM //@浪嘚利哥浪: 哈哈 又衍生出新行业了//@萧…</a>
 </h2>
@@ -108,7 +108,7 @@
 </h2>
 <p>新疆的暴恐有多严重，大家看一下，这只是一个县近三年涉暴恐人员的通缉令<br><img src="http://ww1.sinaimg.cn/large/74609fc5jw1f03gtjrp8dj20g60aw0uu.jpg"></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3932562474579896" target="freeweibo-mirror">#观点#【实事求是解决李波「失踪」事件】是什么人干的呢？笔者…</a>
 </h2>
