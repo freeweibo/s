@@ -108,7 +108,7 @@
 </h2>
 <p>说肖刚辞职的@路透中文网Reuters 被党双规了。帐号已封，动作真快，可比股市狂跌时的反应快多了。让你造谣[嘻嘻][嘻嘻][嘻嘻]<br><img src="http://ww4.sinaimg.cn/large/bfd26dfdjw1f03zdlaxl4j20sd0grq6a.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3932746449474797" target="freeweibo-mirror">SPAM @Dreammoon梦月潘_ @桌 @文心ee  …</a>
 </h2>
