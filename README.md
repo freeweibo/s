@@ -32,6 +32,24 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3932751524782012" target="freeweibo-mirror">说肖刚辞职的@路透中文网Reuters 被党双规了。帐号已封…</a>
+</h2>
+<p>说肖刚辞职的@路透中文网Reuters 被党双规了。帐号已封，动作真快，可比股市狂跌时的反应快多了。让你造谣[嘻嘻][嘻嘻][嘻嘻]<br><img src="http://ww4.sinaimg.cn/large/bfd26dfdjw1f03zdlaxl4j20sd0grq6a.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3932746449474797" target="freeweibo-mirror">SPAM @Dreammoon梦月潘_ @桌 @文心ee  …</a>
+</h2>
+<p>SPAM @Dreammoon梦月潘_ @桌 @文心ee  笑死我了，大陆表情包赢咯<br><br>RE: 由林更新引发的两岸#FB表情包大战# ，大陆完胜！黄子韬恐成最大赢家[笑cry]<br><img src="http://ww3.sinaimg.cn/large/a5c01df7gw1f03jqzvtcqj20ku3jmqj0.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3932745346124507" target="freeweibo-mirror">SPAM 哈哈哈 湾湾泥闷说句话啊[笑cry]</a>
+</h2>
+<p>SPAM 哈哈哈 湾湾泥闷说句话啊[笑cry]<br><br>RE: 由林更新引发的两岸#FB表情包大战# ，大陆完胜！黄子韬恐成最大赢家[笑cry]<br><img src="http://ww3.sinaimg.cn/large/a5c01df7gw1f03jqzvtcqj20ku3jmqj0.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3932732675610941" target="freeweibo-mirror">SPAM #肖钢辞职#最新消息：肖钢已提出辞职。股民们已经张…</a>
 </h2>
 <p>SPAM #肖钢辞职#最新消息：肖钢已提出辞职。股民们已经张灯结彩庆祝，愿肖钢安心上路，不送！<br><img src="http://ww4.sinaimg.cn/large/4a41c420jw1f03x5n4k56j20jz0zkgok.jpg"></p>
@@ -121,24 +139,6 @@
 <p>【路透社微博称，证监会主席肖钢提出辞职】1月18日，据路透社中文微博援引消息人士称，中国证监会主席肖钢已提出辞职。大兵简评：这个消息是否属实，还有待证实，好在这时候出现此消息也扰乱不了股市，期待中国股市好起来。大家拭目以待吧，不要听信谣言哦。<br><img src="http://ww2.sinaimg.cn/large/4d353f02jw1f03tfky5p7j20be02xaa5.jpg"></p>
 <p>
 	<small> ============== 5小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3932700287551676" target="freeweibo-mirror">#名博评论# 周一（1月18日）据路透社中文微博援引消息人士…</a>
-</h2>
-<p>#名博评论# 周一（1月18日）据路透社中文微博援引消息人士称，中国证监会主席肖钢已提出辞职。@李大霄 @侯宁 @光远看经济 @王祖哲<br><img src="http://ww3.sinaimg.cn/large/678207a7gw1f03ti077c4j205k05kglk.jpg"></p>
-<p>
-	<small> ============== 5小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3932699590482963" target="freeweibo-mirror">肖老板终于还是辞了，其实他任内上证指数走势和“上浮零”任内的…</a>
-</h2>
-<p>肖老板终于还是辞了，其实他任内上证指数走势和“上浮零”任内的上证指数走势，几乎一样。都经历了低迷徘徊——牛市暴涨——熊市暴跌——超跌反弹——二次探底这一整个周期。只不过尚老板用了9年（2002-2011），肖老板只用了2年半（2013.3-今），<br><img src="http://ww4.sinaimg.cn/large/8d354b32jw1f03tf36n7gj20c60dptas.jpg"></p>
-<p>
-	<small> ============== 6小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3932699427554443" target="freeweibo-mirror">路透：中国证监会主席肖钢已提出辞职 http://t.cn/…</a>
-</h2>
-<p>路透：中国证监会主席肖钢已提出辞职 http://t.cn/R4HhVfI （分享自@凤凰新闻客户端）<br><img src="http://ww3.sinaimg.cn/large/4bf876a7jw1f03tegsvomj20be02x0so.jpg"></p>
-<p>
-	<small> ============== 6小时前</small>
 </p>
 <table>
     <tr>
