@@ -90,7 +90,7 @@
 </h2>
 <p>SPAM 手机屏幕前竖起中指[怒]//@福建孙涛:[衰]//@先水皮北喂://@稳普高清摄像机S:邪教！//@三水四会: [哆啦A梦吃惊][哆啦A梦吃惊][怒][怒]//@咪润:[围观][围观][怒]//@盘子微谈:看看吧，这就是伊斯兰！[怒]//@证据哥:[怒骂]<br><br>RE: 网上流出一段视频，据说是某地下讲经点因为学生背不出古兰经毒打学生。#中国微力量# 请@公安部刑侦局 关注！请@广州区伯 @真话哥 @happy热哥 @盘子微谈 帮忙扩散求真相！ http://t.cn/R4H2Qe2</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3932754691066558" target="freeweibo-mirror">SPAM 我发的都是正经图呢。黄图只是色彩显示不准。//@刘…</a>
 </h2>
@@ -128,15 +128,15 @@
 <p>
 	<small> ============== 4小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3932744612963685" target="freeweibo-mirror">证监会辟谣之后，路透的微博逝世。 http://t.cn/R…</a>
+</h2>
+<p>证监会辟谣之后，路透的微博逝世。 http://t.cn/RyhSdLi<br><img src="http://ww1.sinaimg.cn/large/558acfe8jw1f03yl9asqfj20ku112gpx.jpg"></p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3932733237317451" target="freeweibo-mirror">[笑cry] //@丽宝是个小透明啊:好想看直播[doge]…</a>
 </h2>
 <p>[笑cry] //@丽宝是个小透明啊:好想看直播[doge]//@阿琪琪琪琪琪儿: 转发微博<br><br>RE: 由林更新引发的两岸#FB表情包大战# ，大陆完胜！黄子韬恐成最大赢家[笑cry]<br><img src="http://ww3.sinaimg.cn/large/a5c01df7gw1f03jqzvtcqj20ku3jmqj0.jpg"></p>
-<p>
-	<small> ============== 5小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3932732675610941" target="freeweibo-mirror">SPAM #肖钢辞职#最新消息：肖钢已提出辞职。股民们已经张…</a>
-</h2>
-<p>SPAM #肖钢辞职#最新消息：肖钢已提出辞职。股民们已经张灯结彩庆祝，愿肖钢安心上路，不送！<br><img src="http://ww4.sinaimg.cn/large/4a41c420jw1f03x5n4k56j20jz0zkgok.jpg"></p>
 <p>
 	<small> ============== 5小时前</small>
 </p>
