@@ -20,6 +20,18 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3933106665184396" target="freeweibo-mirror">SPAM 【12家生鲜电商果蔬农残检测合格率97.6%】对这…</a>
+</h2>
+<p>SPAM 【12家生鲜电商果蔬农残检测合格率97.6%】对这一体验和检测环节得到的402份数据样本梳理显示，91%的生鲜电商能按承诺时间送达，平均冷链配送温度为-5℃；97.6%的样品农残检测合格，重金属100%合格；最快退款时间3小时，最慢为24小时。 http://t.cn/R4HWIte<br><img src="http://ww1.sinaimg.cn/large/928aba1egw1f05463to2oj20b408c0tg.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3933103531753408" target="freeweibo-mirror">SPAM 谢正义~~~~~~~~~~</a>
+</h2>
+<p>SPAM 谢正义~~~~~~~~~~<br><img src="http://ww4.sinaimg.cn/large/8f1bd71bgw1f053rava9zj20pq0q543c.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3933099572547626" target="freeweibo-mirror">SPAM 随便逛了圈。徽章胶带书签本子明信片都很好看。就是杯…</a>
 </h2>
 <p>SPAM 随便逛了圈。徽章胶带书签本子明信片都很好看。就是杯子都猴贵啊！ http://t.cn/R4Q5rRm //@二次元种草机: 回复@奈落_小姐要来盘小松子么:卧槽看到啦！！！为什么要伤害我的钱包[怒骂][怒骂][怒骂][怒骂]  http://t.cn/R4Qq4OI</p>
@@ -66,7 +78,7 @@
 </h2>
 <p>SPAM //@崔小平律师://@李继锋://@杭州郭堂战律师: //@余治明律师: //@罗昌平://@薛蛮子:<br><br>RE: 希特勒模式和斯大林模式的区别是：“前者由刽子手自己颂扬刽子手，而后者更富于悲剧性，竟由受害者来颂扬刽子手。前者从未想过要解放所有的人，而仅仅想解放某些人而征服其他人。后者就其最深刻的原则而言，旨在解放所有的人，但要暂时地奴役他们所有的人。”（加缪《反抗者》）</p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3933002922988407" target="freeweibo-mirror">//@谓贤:按规矩用人，使中央放心。</a>
 </h2>
@@ -125,18 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3932779915954925" target="freeweibo-mirror">现在这些外媒的中文网，到底是什么运营状态？是相关的中国合伙人…</a>
 </h2>
 <p>现在这些外媒的中文网，到底是什么运营状态？是相关的中国合伙人承包了吗？//@王星WX:路透的微博是@路透中文网Reuters ，而非截图中账号。路透微博目前的状态是被封，暂未被清空销号。<br><br>RE: 证监会辟谣之后，路透的微博逝世。 http://t.cn/RyhSdLi<br><img src="http://ww1.sinaimg.cn/large/558acfe8jw1f03yl9asqfj20ku112gpx.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3932779240540304" target="freeweibo-mirror">政坛不倒翁。</a>
-</h2>
-<p>政坛不倒翁。<br><br>RE: 【黄市长】最近关于重庆黄市长将高升的传说很多。我曾看过黄的演讲视频，其雄辩和专业令人印象不错。不过，薄在重庆风生水起的时候，黄也是党政主要领导人，参与重大决策。前总理温曾明确要求重庆现任市委和市政府必须反思，从王立军事件吸取教训，不知道黄市长对黑打等诸多恶行是否反思？<br><img src="http://ww3.sinaimg.cn/large/48866320gw1f04248h0xfj20go0bp3zc.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3932778720137214" target="freeweibo-mirror">貌似最先爆料黄市长要高升的@路透中文网Reuters 刚才已…</a>
-</h2>
-<p>貌似最先爆料黄市长要高升的@路透中文网Reuters 刚才已经被销号了。[微笑]<br><br>RE: 【黄市长】最近关于重庆黄市长将高升的传说很多。我曾看过黄的演讲视频，其雄辩和专业令人印象不错。不过，薄在重庆风生水起的时候，黄也是党政主要领导人，参与重大决策。前总理温曾明确要求重庆现任市委和市政府必须反思，从王立军事件吸取教训，不知道黄市长对黑打等诸多恶行是否反思？<br><img src="http://ww3.sinaimg.cn/large/48866320gw1f04248h0xfj20go0bp3zc.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
