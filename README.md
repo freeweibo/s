@@ -20,6 +20,18 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3933002922988407" target="freeweibo-mirror">//@谓贤:按规矩用人，使中央放心。</a>
+</h2>
+<p>//@谓贤:按规矩用人，使中央放心。<br><br>RE: 近日关于重庆黄市长将高升的说法很多，@贺卫方 教授在他的微博上回忆称曾看过黄的演讲视频，留下了＂雄辩和专业＂印象。本人1995年夏于哈尔滨全国体制会议上与黄有过一面之缘，与贺教授印象一样。不过，贺教授问的好：薄黄同为党政主要领导人，不知黄市长对黑打诸多恶行是否反思？这一问，结果被删了。<br><img src="http://ww1.sinaimg.cn/large/c57c1a49jw1f04p7ioo5xj20qe0ho77q.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3932996006493239" target="freeweibo-mirror">SPAM 这么好的事，别说我没告诉你[酷]</a>
+</h2>
+<p>SPAM 这么好的事，别说我没告诉你[酷]<br><br>RE: #好想你枣去荷#小时候，每逢过年，就满怀开心；可如今，每到年底，却负荷累累。看看这8张图，哪张最戳中你痛处？即日起到1月25日，转发+以“去你的，____”结尾，吐槽你的压力+@3人，将抽5人送“去荷减压神器”—好想你即食去核枣新年礼盒！被催婚的@芈月征婚的小贾 ，你也来一起吐槽、去荷减压吧！<br><img src="http://ww4.sinaimg.cn/large/63b09f89jw1f03v6ejq62j20ku0ysn1l.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3932960933762024" target="freeweibo-mirror">虽远必自首...//@嘟嘟美女: 纯粹是觉得最右[哇哈哈]/…</a>
 </h2>
 <p>虽远必自首...//@嘟嘟美女: 纯粹是觉得最右[哇哈哈]//@傅强家园16:这是一个奇异的怪事，涉事一方避而不发声，有关神奇的媒体却不时的能拿到声明，难道大家不觉得诡异吗？//@单身穷哥之聿仁2:他的罪名还没落实好？//@小欣的家园06:犯强包者，虽远必自首！<br><br>RE: 香港警方确认李波在内地<br><img src="http://ww2.sinaimg.cn/large/6d0b6b33gw1f04f0pqw52j20qo1bg79l.jpg"></p>
@@ -30,7 +42,7 @@
 </h2>
 <p>香港警方确认李波在内地<br><img src="http://ww2.sinaimg.cn/large/6d0b6b33gw1f04f0pqw52j20qo1bg79l.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3932780809383831" target="freeweibo-mirror">//@陈光武律师:[嘻嘻][嘻嘻]哪壶不开提哪壶......</a>
 </h2>
@@ -125,18 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3932746449474797" target="freeweibo-mirror">SPAM @Dreammoon梦月潘_ @桌 @文心ee  …</a>
 </h2>
 <p>SPAM @Dreammoon梦月潘_ @桌 @文心ee  笑死我了，大陆表情包赢咯<br><br>RE: 由林更新引发的两岸#FB表情包大战# ，大陆完胜！黄子韬恐成最大赢家[笑cry]<br><img src="http://ww3.sinaimg.cn/large/a5c01df7gw1f03jqzvtcqj20ku3jmqj0.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3932746432583853" target="freeweibo-mirror">网上流出一段视频，据说是某地下讲经点因为学生背不出古兰经毒打…</a>
-</h2>
-<p>网上流出一段视频，据说是某地下讲经点因为学生背不出古兰经毒打学生。#中国微力量# 请@公安部刑侦局 关注！请@广州区伯 @真话哥 @happy热哥 @盘子微谈 帮忙扩散求真相！ http://t.cn/R4H2Qe2</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3932745346124507" target="freeweibo-mirror">SPAM 哈哈哈 湾湾泥闷说句话啊[笑cry]</a>
-</h2>
-<p>SPAM 哈哈哈 湾湾泥闷说句话啊[笑cry]<br><br>RE: 由林更新引发的两岸#FB表情包大战# ，大陆完胜！黄子韬恐成最大赢家[笑cry]<br><img src="http://ww3.sinaimg.cn/large/a5c01df7gw1f03jqzvtcqj20ku3jmqj0.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
