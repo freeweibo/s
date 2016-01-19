@@ -42,7 +42,7 @@
 </h2>
 <p>虽远必自首...//@嘟嘟美女: 纯粹是觉得最右[哇哈哈]//@傅强家园16:这是一个奇异的怪事，涉事一方避而不发声，有关神奇的媒体却不时的能拿到声明，难道大家不觉得诡异吗？//@单身穷哥之聿仁2:他的罪名还没落实好？//@小欣的家园06:犯强包者，虽远必自首！<br><br>RE: 香港警方确认李波在内地<br><img src="http://ww2.sinaimg.cn/large/6d0b6b33gw1f04f0pqw52j20qo1bg79l.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3932887734475381" target="freeweibo-mirror">香港警方确认李波在内地</a>
 </h2>
@@ -116,6 +116,12 @@
 <p>
 	<small> ============== 1天前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3932761355964659" target="freeweibo-mirror">路透中文网办事处现状</a>
+</h2>
+<p>路透中文网办事处现状<br><img src="http://ww4.sinaimg.cn/large/a316360dgw1f040ii7fsng205w03a15x.gif"></p>
+<p>
+	<small> ============== 1天前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3932758273611044" target="freeweibo-mirror">SPAM 手机屏幕前竖起中指[怒]//@福建孙涛:[衰]//…</a>
 </h2>
 <p>SPAM 手机屏幕前竖起中指[怒]//@福建孙涛:[衰]//@先水皮北喂://@稳普高清摄像机S:邪教！//@三水四会: [哆啦A梦吃惊][哆啦A梦吃惊][怒][怒]//@咪润:[围观][围观][怒]//@盘子微谈:看看吧，这就是伊斯兰！[怒]//@证据哥:[怒骂]<br><br>RE: 网上流出一段视频，据说是某地下讲经点因为学生背不出古兰经毒打学生。#中国微力量# 请@公安部刑侦局 关注！请@广州区伯 @真话哥 @happy热哥 @盘子微谈 帮忙扩散求真相！ http://t.cn/R4H2Qe2</p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3932753814866449" target="freeweibo-mirror">SPAM 哈。双规了/</a>
 </h2>
 <p>SPAM 哈。双规了/<br><br>RE: 说肖刚辞职的@路透中文网Reuters 被党双规了。帐号已封，动作真快，可比股市狂跌时的反应快多了。让你造谣[嘻嘻][嘻嘻][嘻嘻]<br><img src="http://ww4.sinaimg.cn/large/bfd26dfdjw1f03zdlaxl4j20sd0grq6a.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3932751524782012" target="freeweibo-mirror">说肖刚辞职的@路透中文网Reuters 被党双规了。帐号已封…</a>
-</h2>
-<p>说肖刚辞职的@路透中文网Reuters 被党双规了。帐号已封，动作真快，可比股市狂跌时的反应快多了。让你造谣[嘻嘻][嘻嘻][嘻嘻]<br><img src="http://ww4.sinaimg.cn/large/bfd26dfdjw1f03zdlaxl4j20sd0grq6a.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
