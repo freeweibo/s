@@ -54,7 +54,7 @@
 </h2>
 <p>黄市长纵横捭阖、协调各方的能力及水平，直逼周总理，恐是又一个守纪律、讲规矩的公务员典范……[偷笑]//@弈者亦弈:恐怕狗改不了……</p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3933135970567028" target="freeweibo-mirror">//@軍魂-IV://@余鑫2018: 反思了的，鱼儿离得开…</a>
 </h2>
@@ -108,7 +108,7 @@
 </h2>
 <p>//@余承冬微博:[good]//@陈光武律师:[赞]<br><br>RE: 【致敬杨学林律师】杨学林律师：李和平的辩护团队如果还需要人手，我作为他的老朋友报名参加。微评：明知山有虎，偏向虎山行！（李和平肖像画）<br><img src="http://ww4.sinaimg.cn/large/6a80bfcdjw1f04u86vk73j20hs0i9dgv.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3933033834571895" target="freeweibo-mirror">//@黎津平老师: 当过委员长和总理的人还专门挂个勋章。汪某…</a>
 </h2>
