@@ -20,6 +20,18 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3933135970567028" target="freeweibo-mirror">//@軍魂-IV://@余鑫2018: 反思了的，鱼儿离得开…</a>
+</h2>
+<p>//@軍魂-IV://@余鑫2018: 反思了的，鱼儿离得开水，瓜儿离不开秧。</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3933133025925495" target="freeweibo-mirror">【市长】最近关于重庆黄市长将高升的传说很多。我曾看过黄的演讲…</a>
+</h2>
+<p>【市长】最近关于重庆黄市长将高升的传说很多。我曾看过黄的演讲视频，其雄辩和专业令人印象不错。不过，重庆在薄风生水起的时候，黄也是党政主要领导人，参与重大决策。前总理温曾明确要求重庆现任市委和市政府须反思，从王立军事件中吸取教训，不知黄市长对黑打等诸多恶行是否反思？</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3933106665184396" target="freeweibo-mirror">SPAM 【12家生鲜电商果蔬农残检测合格率97.6%】对这…</a>
 </h2>
 <p>SPAM 【12家生鲜电商果蔬农残检测合格率97.6%】对这一体验和检测环节得到的402份数据样本梳理显示，91%的生鲜电商能按承诺时间送达，平均冷链配送温度为-5℃；97.6%的样品农残检测合格，重金属100%合格；最快退款时间3小时，最慢为24小时。 http://t.cn/R4HWIte<br><img src="http://ww1.sinaimg.cn/large/928aba1egw1f05463to2oj20b408c0tg.jpg"></p>
@@ -78,13 +90,13 @@
 </h2>
 <p>SPAM //@崔小平律师://@李继锋://@杭州郭堂战律师: //@余治明律师: //@罗昌平://@薛蛮子:<br><br>RE: 希特勒模式和斯大林模式的区别是：“前者由刽子手自己颂扬刽子手，而后者更富于悲剧性，竟由受害者来颂扬刽子手。前者从未想过要解放所有的人，而仅仅想解放某些人而征服其他人。后者就其最深刻的原则而言，旨在解放所有的人，但要暂时地奴役他们所有的人。”（加缪《反抗者》）</p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3933002922988407" target="freeweibo-mirror">//@谓贤:按规矩用人，使中央放心。</a>
 </h2>
 <p>//@谓贤:按规矩用人，使中央放心。<br><br>RE: 近日关于重庆黄市长将高升的说法很多，@贺卫方 教授在他的微博上回忆称曾看过黄的演讲视频，留下了＂雄辩和专业＂印象。本人1995年夏于哈尔滨全国体制会议上与黄有过一面之缘，与贺教授印象一样。不过，贺教授问的好：薄黄同为党政主要领导人，不知黄市长对黑打诸多恶行是否反思？这一问，结果被删了。<br><img src="http://ww1.sinaimg.cn/large/c57c1a49jw1f04p7ioo5xj20qe0ho77q.jpg"></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3932996006493239" target="freeweibo-mirror">SPAM 这么好的事，别说我没告诉你[酷]</a>
 </h2>
@@ -125,18 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3932887734475381" target="freeweibo-mirror">香港警方确认李波在内地</a>
 </h2>
 <p>香港警方确认李波在内地<br><img src="http://ww2.sinaimg.cn/large/6d0b6b33gw1f04f0pqw52j20qo1bg79l.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3932780809383831" target="freeweibo-mirror">//@陈光武律师:[嘻嘻][嘻嘻]哪壶不开提哪壶......</a>
-</h2>
-<p>//@陈光武律师:[嘻嘻][嘻嘻]哪壶不开提哪壶......<br><br>RE: 【黄市长】最近关于重庆黄市长将高升的传说很多。我曾看过黄的演讲视频，其雄辩和专业令人印象不错。不过，薄在重庆风生水起的时候，黄也是党政主要领导人，参与重大决策。前总理温曾明确要求重庆现任市委和市政府必须反思，从王立军事件吸取教训，不知道黄市长对黑打等诸多恶行是否反思？<br><img src="http://ww3.sinaimg.cn/large/48866320gw1f04248h0xfj20go0bp3zc.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3932779915954925" target="freeweibo-mirror">现在这些外媒的中文网，到底是什么运营状态？是相关的中国合伙人…</a>
-</h2>
-<p>现在这些外媒的中文网，到底是什么运营状态？是相关的中国合伙人承包了吗？//@王星WX:路透的微博是@路透中文网Reuters ，而非截图中账号。路透微博目前的状态是被封，暂未被清空销号。<br><br>RE: 证监会辟谣之后，路透的微博逝世。 http://t.cn/RyhSdLi<br><img src="http://ww1.sinaimg.cn/large/558acfe8jw1f03yl9asqfj20ku112gpx.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
