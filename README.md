@@ -42,7 +42,7 @@
 </h2>
 <p>【市长】最近关于重庆黄市长将高升的传说很多。我曾看过黄的演讲视频，其雄辩和专业令人印象不错。不过，重庆在薄风生水起的时候，黄也是党政主要领导人，参与重大决策。前总理温曾明确要求重庆现任市委和市政府须反思，从王立军事件中吸取教训，不知黄市长对黑打等诸多恶行是否反思？</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3933106665184396" target="freeweibo-mirror">SPAM 【12家生鲜电商果蔬农残检测合格率97.6%】对这…</a>
 </h2>
@@ -54,7 +54,7 @@
 </h2>
 <p>SPAM 谢正义~~~~~~~~~~<br><img src="http://ww4.sinaimg.cn/large/8f1bd71bgw1f053rava9zj20pq0q543c.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3933099572547626" target="freeweibo-mirror">SPAM 随便逛了圈。徽章胶带书签本子明信片都很好看。就是杯…</a>
 </h2>
@@ -78,7 +78,7 @@
 </h2>
 <p>//@余承冬微博:[good]//@陈光武律师:[赞]<br><br>RE: 【致敬杨学林律师】杨学林律师：李和平的辩护团队如果还需要人手，我作为他的老朋友报名参加。微评：明知山有虎，偏向虎山行！（李和平肖像画）<br><img src="http://ww4.sinaimg.cn/large/6a80bfcdjw1f04u86vk73j20hs0i9dgv.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3933033834571895" target="freeweibo-mirror">//@黎津平老师: 当过委员长和总理的人还专门挂个勋章。汪某…</a>
 </h2>
