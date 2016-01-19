@@ -54,13 +54,13 @@
 </h2>
 <p>他现在就是个老逗逼：一会儿说要停止转世；一会儿说活着就要转世，搞“在生转世”；一会儿又说要由他指定转世，“自选后继”；还说要在国外转世，或转世为“金发美女”，或转世为蜜蜂……//@人畜无害Lovett:哈 我就问达赖你的转世灵童在哪呢 不回布达拉宫观湖你从哪定你转世方位<br><br>RE: 【达赖向蔡英文发贺电】常凯申《告西藏同胞书》1959年3月26日—— 我现在更郑重声明：西藏未来的政治制度与政治地位，一俟摧毁匪伪政权之后，西藏人民能自由表示其意志之时，我政府当本民族自决的原则，达成你们的愿望。——两毒一直勾勾搭搭，莫非对所谓“摧毁中共后同意西藏自决独立”，还有点奢望？<br><img src="http://ww1.sinaimg.cn/large/6d88e352gw1f0412cxdayj20c82kx7ed.jpg"></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3932776832852509" target="freeweibo-mirror">在敌占区能活下来，是党和娱乐界的宝贵资源，重用！</a>
 </h2>
 <p>在敌占区能活下来，是党和娱乐界的宝贵资源，重用！<br><br>RE: 【黄市长】最近关于重庆黄市长将高升的传说很多。我曾看过黄的演讲视频，其雄辩和专业令人印象不错。不过，薄在重庆风生水起的时候，黄也是党政主要领导人，参与重大决策。前总理温曾明确要求重庆现任市委和市政府必须反思，从王立军事件吸取教训，不知道黄市长对黑打等诸多恶行是否反思？<br><img src="http://ww3.sinaimg.cn/large/48866320gw1f04248h0xfj20go0bp3zc.jpg"></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3932775800960334" target="freeweibo-mirror">【黄市长】最近关于重庆黄市长将高升的传说很多。我曾看过黄的演…</a>
 </h2>
@@ -96,13 +96,13 @@
 </h2>
 <p>SPAM 我发的都是正经图呢。黄图只是色彩显示不准。//@刘路军先生: 你以后小心点[挖鼻]别发黄图 //@谭世平:哈。双规了/<br><br>RE: 说肖刚辞职的@路透中文网Reuters 被党双规了。帐号已封，动作真快，可比股市狂跌时的反应快多了。让你造谣[嘻嘻][嘻嘻][嘻嘻]<br><img src="http://ww4.sinaimg.cn/large/bfd26dfdjw1f03zdlaxl4j20sd0grq6a.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3932753814866449" target="freeweibo-mirror">SPAM 哈。双规了/</a>
 </h2>
 <p>SPAM 哈。双规了/<br><br>RE: 说肖刚辞职的@路透中文网Reuters 被党双规了。帐号已封，动作真快，可比股市狂跌时的反应快多了。让你造谣[嘻嘻][嘻嘻][嘻嘻]<br><img src="http://ww4.sinaimg.cn/large/bfd26dfdjw1f03zdlaxl4j20sd0grq6a.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3932751524782012" target="freeweibo-mirror">说肖刚辞职的@路透中文网Reuters 被党双规了。帐号已封…</a>
 </h2>
