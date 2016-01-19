@@ -26,6 +26,12 @@
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3932887734475381" target="freeweibo-mirror">香港警方确认李波在内地</a>
+</h2>
+<p>香港警方确认李波在内地<br><img src="http://ww2.sinaimg.cn/large/6d0b6b33gw1f04f0pqw52j20qo1bg79l.jpg"></p>
+<p>
+	<small> ============== 8小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3932780809383831" target="freeweibo-mirror">//@陈光武律师:[嘻嘻][嘻嘻]哪壶不开提哪壶......</a>
 </h2>
 <p>//@陈光武律师:[嘻嘻][嘻嘻]哪壶不开提哪壶......<br><br>RE: 【黄市长】最近关于重庆黄市长将高升的传说很多。我曾看过黄的演讲视频，其雄辩和专业令人印象不错。不过，薄在重庆风生水起的时候，黄也是党政主要领导人，参与重大决策。前总理温曾明确要求重庆现任市委和市政府必须反思，从王立军事件吸取教训，不知道黄市长对黑打等诸多恶行是否反思？<br><img src="http://ww3.sinaimg.cn/large/48866320gw1f04248h0xfj20go0bp3zc.jpg"></p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3932745346124507" target="freeweibo-mirror">SPAM 哈哈哈 湾湾泥闷说句话啊[笑cry]</a>
 </h2>
 <p>SPAM 哈哈哈 湾湾泥闷说句话啊[笑cry]<br><br>RE: 由林更新引发的两岸#FB表情包大战# ，大陆完胜！黄子韬恐成最大赢家[笑cry]<br><img src="http://ww3.sinaimg.cn/large/a5c01df7gw1f03jqzvtcqj20ku3jmqj0.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3932744612963685" target="freeweibo-mirror">证监会辟谣之后，路透的微博逝世。 http://t.cn/R…</a>
-</h2>
-<p>证监会辟谣之后，路透的微博逝世。 http://t.cn/RyhSdLi<br><img src="http://ww1.sinaimg.cn/large/558acfe8jw1f03yl9asqfj20ku112gpx.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
