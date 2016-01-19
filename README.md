@@ -78,7 +78,7 @@
 </h2>
 <p>SPAM 【12家生鲜电商果蔬农残检测合格率97.6%】对这一体验和检测环节得到的402份数据样本梳理显示，91%的生鲜电商能按承诺时间送达，平均冷链配送温度为-5℃；97.6%的样品农残检测合格，重金属100%合格；最快退款时间3小时，最慢为24小时。 http://t.cn/R4HWIte<br><img src="http://ww1.sinaimg.cn/large/928aba1egw1f05463to2oj20b408c0tg.jpg"></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3933103531753408" target="freeweibo-mirror">SPAM 谢正义~~~~~~~~~~</a>
 </h2>
