@@ -36,7 +36,7 @@
 </h2>
 <p>【法律界的白求恩】只能新华社的独家报道称：瑞典人彼得和王全璋律师合作成立 “中国维权紧急援助组”。一个瑞典人海外筹款不远万里来到中国，给弱势者提供法律援助，这不就是法律界的白求恩嘛！ 我翻墙看了这家法援网站，救助的大多是访民。我想凡得到他们法援的，都不会载去烧巴士、压小孩子吧？<br><img src="http://ww1.sinaimg.cn/large/6a80bfcdjw1f0575skchnj20m80wkgp3.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3933133025925495" target="freeweibo-mirror">【市长】最近关于重庆黄市长将高升的传说很多。我曾看过黄的演讲…</a>
 </h2>
@@ -54,7 +54,7 @@
 </h2>
 <p>SPAM 谢正义~~~~~~~~~~<br><img src="http://ww4.sinaimg.cn/large/8f1bd71bgw1f053rava9zj20pq0q543c.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3933099572547626" target="freeweibo-mirror">SPAM 随便逛了圈。徽章胶带书签本子明信片都很好看。就是杯…</a>
 </h2>
@@ -66,13 +66,13 @@
 </h2>
 <p>//@余承冬微博: [good]//@陈光武律师:[赞]<br><br>RE: 【致敬杨学林律师】杨学林律师：李和平的辩护团队如果还需要人手，我作为他的老朋友报名参加。微评：明知山有虎，偏向虎山行！（李和平肖像画）<br><img src="http://ww4.sinaimg.cn/large/6a80bfcdjw1f04u86vk73j20hs0i9dgv.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3933058862265606" target="freeweibo-mirror">SPAM #0123功夫熊猫3提前看# get！《功夫熊猫》…</a>
 </h2>
 <p>SPAM #0123功夫熊猫3提前看# get！《功夫熊猫》系列电影都保持极高水准，《功夫熊猫3》提前点映看起来！迫不及待了已经</p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3933057843137025" target="freeweibo-mirror">//@余承冬微博:[good]//@陈光武律师:[赞]</a>
 </h2>
