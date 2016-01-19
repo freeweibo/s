@@ -36,7 +36,7 @@
 </h2>
 <p>//@余承冬微博:[good]//@陈光武律师:[赞]<br><br>RE: 【致敬杨学林律师】杨学林律师：李和平的辩护团队如果还需要人手，我作为他的老朋友报名参加。微评：明知山有虎，偏向虎山行！（李和平肖像画）<br><img src="http://ww4.sinaimg.cn/large/6a80bfcdjw1f04u86vk73j20hs0i9dgv.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3933033834571895" target="freeweibo-mirror">//@黎津平老师: 当过委员长和总理的人还专门挂个勋章。汪某…</a>
 </h2>
