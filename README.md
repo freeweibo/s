@@ -42,13 +42,13 @@
 </h2>
 <p>//@余承冬微博: [good]//@陈光武律师:[赞]<br><br>RE: 【致敬杨学林律师】杨学林律师：李和平的辩护团队如果还需要人手，我作为他的老朋友报名参加。微评：明知山有虎，偏向虎山行！（李和平肖像画）<br><img src="http://ww4.sinaimg.cn/large/6a80bfcdjw1f04u86vk73j20hs0i9dgv.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3933058862265606" target="freeweibo-mirror">SPAM #0123功夫熊猫3提前看# get！《功夫熊猫》…</a>
 </h2>
 <p>SPAM #0123功夫熊猫3提前看# get！《功夫熊猫》系列电影都保持极高水准，《功夫熊猫3》提前点映看起来！迫不及待了已经</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3933057843137025" target="freeweibo-mirror">//@余承冬微博:[good]//@陈光武律师:[赞]</a>
 </h2>
@@ -108,7 +108,7 @@
 </h2>
 <p>虽远必自首...//@嘟嘟美女: 纯粹是觉得最右[哇哈哈]//@傅强家园16:这是一个奇异的怪事，涉事一方避而不发声，有关神奇的媒体却不时的能拿到声明，难道大家不觉得诡异吗？//@单身穷哥之聿仁2:他的罪名还没落实好？//@小欣的家园06:犯强包者，虽远必自首！<br><br>RE: 香港警方确认李波在内地<br><img src="http://ww2.sinaimg.cn/large/6d0b6b33gw1f04f0pqw52j20qo1bg79l.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3932952599595108" target="freeweibo-mirror">希特勒模式和斯大林模式的区别是：“前者由刽子手自己颂扬刽子手…</a>
 </h2>
