@@ -24,13 +24,13 @@
 </h2>
 <p>//@余承冬微博: [good]//@陈光武律师:[赞]<br><br>RE: 【致敬杨学林律师】杨学林律师：李和平的辩护团队如果还需要人手，我作为他的老朋友报名参加。微评：明知山有虎，偏向虎山行！（李和平肖像画）<br><img src="http://ww4.sinaimg.cn/large/6a80bfcdjw1f04u86vk73j20hs0i9dgv.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3933058862265606" target="freeweibo-mirror">SPAM #0123功夫熊猫3提前看# get！《功夫熊猫》…</a>
 </h2>
 <p>SPAM #0123功夫熊猫3提前看# get！《功夫熊猫》系列电影都保持极高水准，《功夫熊猫3》提前点映看起来！迫不及待了已经</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3933057843137025" target="freeweibo-mirror">//@余承冬微博:[good]//@陈光武律师:[赞]</a>
 </h2>
@@ -102,7 +102,7 @@
 </h2>
 <p>先帝爷留下的烂摊子，第二代治理者的办法是头疼医头，脚疼医脚，虽然去不了病根儿，但起码能减轻症状，让你自以为治好了。第三代是头疼医脸，脚疼也医脸，对他们来说，治不治好不要紧，面子最重要。这一代就邪乎了，头疼堵嘴，脚疼也堵嘴，只要不喊出来疼，就算没病。</p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3932887734475381" target="freeweibo-mirror">香港警方确认李波在内地</a>
 </h2>
