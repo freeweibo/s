@@ -138,7 +138,7 @@
 </h2>
 <p>[笑cry] //@丽宝是个小透明啊:好想看直播[doge]//@阿琪琪琪琪琪儿: 转发微博<br><br>RE: 由林更新引发的两岸#FB表情包大战# ，大陆完胜！黄子韬恐成最大赢家[笑cry]<br><img src="http://ww3.sinaimg.cn/large/a5c01df7gw1f03jqzvtcqj20ku3jmqj0.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p>
 <table>
     <tr>
