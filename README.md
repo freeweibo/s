@@ -72,7 +72,7 @@
 </h2>
 <p>我大团系第一次明火执仗的出来当流氓头子了，这是有历史纪念意义的一件大事，足以写进史书了，早早垄断了未来人类社会学的研究对象！爱国者不粉团中央就不是真爱国者！<br><img src="http://ww2.sinaimg.cn/large/d60724d4jw1f069imgcr5j20ci0m8dh2.jpg"></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3933456050262397" target="freeweibo-mirror">【心如刀割，怎堪回首？】肖杰，中国*人民大学新闻系86级学生…</a>
 </h2>
