@@ -72,7 +72,7 @@
 </h2>
 <p>SPAM </p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3933304258788644" target="freeweibo-mirror">//@AC浮生问道://@水门冤案尼克松:没错儿～//@博阿…</a>
 </h2>
@@ -90,7 +90,7 @@
 </h2>
 <p>环球时报是一张经常喜欢出来圆谎的报纸，虽然谎圆得乱七八糟，顾头顾不了屁股，但比起那些撒谎撒得理直气壮的媒体，还是要好一点。能给大家提供一点娱乐。</p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3933257630838751" target="freeweibo-mirror">SPAM //@爱新觉罗载勋：周恩来对尼克松说：什么时候解决…</a>
 </h2>
