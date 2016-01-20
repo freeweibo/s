@@ -24,7 +24,7 @@
 </h2>
 <p>SPAM 【一则八卦】昨天po了一组地铁标志的图，有同学好奇为什么深圳地铁和香港地铁的logo这么相似，其实呢，当初出方案的时候已经准备采用著名设计师陈绍华先生的设计，后来某领导看到了香港地铁的logo，觉得好，于是就有了今天的样子~~<br><img src="http://ww4.sinaimg.cn/large/648ac377gw1f0620zz4jqj20da08f3z8.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3933383480079861" target="freeweibo-mirror">SPAM 来，投个票。每天10票哦 //@李宇春打榜投票: …</a>
 </h2>
@@ -78,7 +78,7 @@
 </h2>
 <p>SPAM </p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3933304258788644" target="freeweibo-mirror">//@AC浮生问道://@水门冤案尼克松:没错儿～//@博阿…</a>
 </h2>
