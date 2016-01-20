@@ -26,6 +26,12 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3933311350993253" target="freeweibo-mirror">SPAM </a>
+</h2>
+<p>SPAM </p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3933304258788644" target="freeweibo-mirror">//@AC浮生问道://@水门冤案尼克松:没错儿～//@博阿…</a>
 </h2>
 <p>//@AC浮生问道://@水门冤案尼克松:没错儿～//@博阿尔内:你说得很到位。我来简化一下：这些人不是眼睛瞎了、脑门堵了，而是良心黑了！//@明月出怀<br><br>RE: 这个国家的宣传被一群根本不懂年轻人的老怂货控制着，他们只会窝里横，只会用最愚蠢的删除去应对一切自己不懂的舆情，只会舔领导菊花，却从来不懂真正的宣传。所以，他们不仅搞不定港台，也搞不定自己的年轻人。by@耿直的MT （作者删了这条，我觉得说得不错，所以自己重发一遍）</p>
@@ -42,7 +48,7 @@
 </h2>
 <p>SPAM //@爱新觉罗载勋：周恩来对尼克松说：什么时候解决台湾问题，用什么方式解决台湾问题，这是中国的内政，我们不能承诺不以武力解决台湾问题，这个不能写到上海公报里面去，这算是一个基本的态度。<br><br>RE: 一定解放台湾，实现祖国统一！<br><img src="http://ww1.sinaimg.cn/large/621d03b7jw1f051pn3nbcj20jo13rn1z.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3933160322388477" target="freeweibo-mirror">以和平為名，卻非生在和平之世，因不平之鳴，而遭致不平之厄運。…</a>
 </h2>
@@ -54,7 +60,7 @@
 </h2>
 <p>SPAM 回复@小生给你举个栗子:我还要写一篇生育之后遗弃心态的文章，从留守儿童说起 //@小生给你举个栗子:[挖鼻]被盗号了么<br><br>RE: 罗丹说：女人过了16岁就老了。这是少女情怀意义上的衰老。45岁以后，更年期，来了。这是生物学意义的衰老。生命要延续，女人要生孩。啥时生孩好？以前十七八，现在，四十才起意。最佳生育年龄是23到30岁。... http://t.cn/R4Q9G3t</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3933154521454097" target="freeweibo-mirror">SPAM 维基百科15岁，所以，特地在文中留了我查到的维基百…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3933091133034991" target="freeweibo-mirror">一定解放台湾，实现祖国统一！</a>
 </h2>
 <p>一定解放台湾，实现祖国统一！<br><img src="http://ww1.sinaimg.cn/large/621d03b7jw1f051pn3nbcj20jo13rn1z.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3933059017129332" target="freeweibo-mirror">//@余承冬微博: [good]//@陈光武律师:[赞]</a>
-</h2>
-<p>//@余承冬微博: [good]//@陈光武律师:[赞]<br><br>RE: 【致敬杨学林律师】杨学林律师：李和平的辩护团队如果还需要人手，我作为他的老朋友报名参加。微评：明知山有虎，偏向虎山行！（李和平肖像画）<br><img src="http://ww4.sinaimg.cn/large/6a80bfcdjw1f04u86vk73j20hs0i9dgv.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
