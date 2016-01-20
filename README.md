@@ -66,7 +66,7 @@
 </h2>
 <p>真以为在FB上乱说没人能看到？谢谢网友@HY蕾蕾蕾 的截图<br><img src="http://ww1.sinaimg.cn/large/5db2d058gw1f06a1oi9oaj20qo0qotcc.jpg"></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3933466737279805" target="freeweibo-mirror">我大团系第一次明火执仗的出来当流氓头子了，这是有历史纪念意义…</a>
 </h2>
@@ -78,7 +78,7 @@
 </h2>
 <p>【心如刀割，怎堪回首？】肖杰，中国*人民大学新闻系86级学生。胡* 耀* 邦逝世后，他是长跪在人*民*大*会*堂前学生之一。8     *9年6月5日他已购得回成*都的火车票，下午2点10分行至南池子南口，因拍照被戒*   严*部*队的子弹从后背穿过前胸，众多民众用平板车将其送到公* 安医院抢救，2点55分死亡。<br><img src="http://ww3.sinaimg.cn/large/006cY543gw1f0687p24kuj304304kjrc.jpg"></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3933402505859123" target="freeweibo-mirror">SPAM 【一则八卦】昨天po了一组地铁标志的图，有同学好奇…</a>
 </h2>
