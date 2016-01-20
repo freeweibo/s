@@ -30,7 +30,7 @@
 </h2>
 <p>以和平為名，卻非生在和平之世，因不平之鳴，而遭致不平之厄運。兄弟，望你平安！ http://t.cn/R2WJvly<br><img src="http://ww4.sinaimg.cn/large/5186d665jw1f05aa8rfoyj20hs0a074t.jpg"></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3933159374525492" target="freeweibo-mirror">SPAM 回复@小生给你举个栗子:我还要写一篇生育之后遗弃心…</a>
 </h2>
