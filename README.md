@@ -42,7 +42,7 @@
 </h2>
 <p>真以为在FB上乱说没人能看到？谢谢网友@HY蕾蕾蕾 的截图<br><img src="http://ww1.sinaimg.cn/large/5db2d058gw1f06a1oi9oaj20qo0qotcc.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3933402505859123" target="freeweibo-mirror">SPAM 【一则八卦】昨天po了一组地铁标志的图，有同学好奇…</a>
 </h2>
@@ -72,7 +72,7 @@
 </h2>
 <p>SPAM [哆啦A梦吃惊]MIKE隋模仿互联网大佬 ，心痛三位，一下子都被玩坏了</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3933352153569395" target="freeweibo-mirror">长期以来，伊朗一直对民众执行互联网禁令和限制，这也导致伊朗网…</a>
 </h2>
