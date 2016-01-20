@@ -26,6 +26,12 @@
 <p>
 	<small> ============== 1小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3933257630838751" target="freeweibo-mirror">SPAM //@爱新觉罗载勋：周恩来对尼克松说：什么时候解决…</a>
+</h2>
+<p>SPAM //@爱新觉罗载勋：周恩来对尼克松说：什么时候解决台湾问题，用什么方式解决台湾问题，这是中国的内政，我们不能承诺不以武力解决台湾问题，这个不能写到上海公报里面去，这算是一个基本的态度。<br><br>RE: 一定解放台湾，实现祖国统一！<br><img src="http://ww1.sinaimg.cn/large/621d03b7jw1f051pn3nbcj20jo13rn1z.jpg"></p>
+<p>
+	<small> ============== 5小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3933160322388477" target="freeweibo-mirror">以和平為名，卻非生在和平之世，因不平之鳴，而遭致不平之厄運。…</a>
 </h2>
 <p>以和平為名，卻非生在和平之世，因不平之鳴，而遭致不平之厄運。兄弟，望你平安！ http://t.cn/R2WJvly<br><img src="http://ww4.sinaimg.cn/large/5186d665jw1f05aa8rfoyj20hs0a074t.jpg"></p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3933033834571895" target="freeweibo-mirror">//@黎津平老师: 当过委员长和总理的人还专门挂个勋章。汪某…</a>
 </h2>
 <p>//@黎津平老师: 当过委员长和总理的人还专门挂个勋章。汪某兴也爱干这事。</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3933020219843084" target="freeweibo-mirror">【致敬杨学林律师】杨学林律师：李和平的辩护团队如果还需要人手…</a>
-</h2>
-<p>【致敬杨学林律师】杨学林律师：李和平的辩护团队如果还需要人手，我作为他的老朋友报名参加。微评：明知山有虎，偏向虎山行！（李和平肖像画）<br><img src="http://ww4.sinaimg.cn/large/6a80bfcdjw1f04u86vk73j20hs0i9dgv.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
