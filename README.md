@@ -54,7 +54,7 @@
 </h2>
 <p>长期以来，伊朗一直对民众执行互联网禁令和限制，这也导致伊朗网民无法登陆Twitter、YouTube或是Facebook等社交网站或视频网站。不过伊朗网民日前惊异的发现，他们已经能够使用YouTube和Twitter等网站的服务，伊朗已经悄然取消Twitter和YouTube网站限制。<br><img src="http://ww3.sinaimg.cn/large/59183920gw1f05wd5ua9ej20h80armyi.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3933329961167770" target="freeweibo-mirror">SPAM 【叔叔总是要和我嘿嘿嘿，我快受不了怎么办？】我虽然…</a>
 </h2>
