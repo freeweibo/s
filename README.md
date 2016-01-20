@@ -54,7 +54,7 @@
 </h2>
 <p>黄市长纵横捭阖、协调各方的能力及水平，直逼周总理，恐是又一个守纪律、讲规矩的公务员典范……[偷笑]//@弈者亦弈:恐怕狗改不了……</p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3933135970567028" target="freeweibo-mirror">//@軍魂-IV://@余鑫2018: 反思了的，鱼儿离得开…</a>
 </h2>
@@ -84,7 +84,7 @@
 </h2>
 <p>SPAM 谢正义~~~~~~~~~~<br><img src="http://ww4.sinaimg.cn/large/8f1bd71bgw1f053rava9zj20pq0q543c.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3933099572547626" target="freeweibo-mirror">SPAM 随便逛了圈。徽章胶带书签本子明信片都很好看。就是杯…</a>
 </h2>
