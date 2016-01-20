@@ -54,7 +54,7 @@
 </h2>
 <p>长期以来，伊朗一直对民众执行互联网禁令和限制，这也导致伊朗网民无法登陆Twitter、YouTube或是Facebook等社交网站或视频网站。不过伊朗网民日前惊异的发现，他们已经能够使用YouTube和Twitter等网站的服务，伊朗已经悄然取消Twitter和YouTube网站限制。<br><img src="http://ww3.sinaimg.cn/large/59183920gw1f05wd5ua9ej20h80armyi.jpg"></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3933329961167770" target="freeweibo-mirror">SPAM 【叔叔总是要和我嘿嘿嘿，我快受不了怎么办？】我虽然…</a>
 </h2>
@@ -66,7 +66,7 @@
 </h2>
 <p>造谣，无论是李鹏还是政府都从来没有这样说过，中国一直是火力发电为主，怎么可能三峡提供全国2/3的电，8分一度电？博主你上辈子是穷死的吧，造谣造的如此白痴也真挺难为你的。@老头子快乐<br><br>RE: 李鵬總理1994年12月14日在三峽工程開工典禮上講話：＂三峽電站建成後，可以提供全國2/3的用電，居民用電降到8分錢一度。＂<br><img src="http://ww2.sinaimg.cn/large/006cWmg1gw1f051bwgykaj30ci0bngnz.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3933313062251220" target="freeweibo-mirror">SPAM 能给大家提供一点娱乐，这一点也很重要</a>
 </h2>
