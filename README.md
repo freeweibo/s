@@ -30,7 +30,7 @@
 </h2>
 <p>SPAM 来，投个票。每天10票哦 //@李宇春打榜投票: #李宇春# 投票时间为1月17日-24日，每人每天10票，大家一起来为春春投票吧！还有机会抽奖哦~[hold住][hold住][hold住]</p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3933370163494326" target="freeweibo-mirror">SPAM [哆啦A梦吃惊]心痛三位，一下子都被玩坏了</a>
 </h2>
