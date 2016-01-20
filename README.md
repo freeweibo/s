@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3933315083830116" target="freeweibo-mirror">造谣，无论是李鹏还是政府都从来没有这样说过，中国一直是火力发…</a>
+</h2>
+<p>造谣，无论是李鹏还是政府都从来没有这样说过，中国一直是火力发电为主，怎么可能三峡提供全国2/3的电，8分一度电？博主你上辈子是穷死的吧，造谣造的如此白痴也真挺难为你的。@老头子快乐<br><br>RE: 李鵬總理1994年12月14日在三峽工程開工典禮上講話：＂三峽電站建成後，可以提供全國2/3的用電，居民用電降到8分錢一度。＂<br><img src="http://ww2.sinaimg.cn/large/006cWmg1gw1f051bwgykaj30ci0bngnz.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3933313062251220" target="freeweibo-mirror">SPAM 能给大家提供一点娱乐，这一点也很重要</a>
 </h2>
 <p>SPAM 能给大家提供一点娱乐，这一点也很重要<br><br>RE: 环球时报是一张经常喜欢出来圆谎的报纸，虽然谎圆得乱七八糟，顾头顾不了屁股，但比起那些撒谎撒得理直气壮的媒体，还是要好一点。能给大家提供一点娱乐。</p>
@@ -48,7 +54,7 @@
 </h2>
 <p>SPAM //@爱新觉罗载勋：周恩来对尼克松说：什么时候解决台湾问题，用什么方式解决台湾问题，这是中国的内政，我们不能承诺不以武力解决台湾问题，这个不能写到上海公报里面去，这算是一个基本的态度。<br><br>RE: 一定解放台湾，实现祖国统一！<br><img src="http://ww1.sinaimg.cn/large/621d03b7jw1f051pn3nbcj20jo13rn1z.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3933160322388477" target="freeweibo-mirror">以和平為名，卻非生在和平之世，因不平之鳴，而遭致不平之厄運。…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3933099572547626" target="freeweibo-mirror">SPAM 随便逛了圈。徽章胶带书签本子明信片都很好看。就是杯…</a>
 </h2>
 <p>SPAM 随便逛了圈。徽章胶带书签本子明信片都很好看。就是杯子都猴贵啊！ http://t.cn/R4Q5rRm //@二次元种草机: 回复@奈落_小姐要来盘小松子么:卧槽看到啦！！！为什么要伤害我的钱包[怒骂][怒骂][怒骂][怒骂]  http://t.cn/R4Qq4OI</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3933091133034991" target="freeweibo-mirror">一定解放台湾，实现祖国统一！</a>
-</h2>
-<p>一定解放台湾，实现祖国统一！<br><img src="http://ww1.sinaimg.cn/large/621d03b7jw1f051pn3nbcj20jo13rn1z.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
