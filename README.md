@@ -44,6 +44,12 @@
 <p>
 	<small> ============== 4小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3933294766561939" target="freeweibo-mirror">李鵬總理1994年12月14日在三峽工程開工典禮上講話：＂三…</a>
+</h2>
+<p>李鵬總理1994年12月14日在三峽工程開工典禮上講話：＂三峽電站建成後，可以提供全國2/3的用電，居民用電降到8分錢一度。＂<br><img src="http://ww2.sinaimg.cn/large/006cWmg1gw1f051bwgykaj30ci0bngnz.jpg"></p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3933266233028157" target="freeweibo-mirror">环球时报是一张经常喜欢出来圆谎的报纸，虽然谎圆得乱七八糟，顾…</a>
 </h2>
 <p>环球时报是一张经常喜欢出来圆谎的报纸，虽然谎圆得乱七八糟，顾头顾不了屁股，但比起那些撒谎撒得理直气壮的媒体，还是要好一点。能给大家提供一点娱乐。</p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3933103531753408" target="freeweibo-mirror">SPAM 谢正义~~~~~~~~~~</a>
 </h2>
 <p>SPAM 谢正义~~~~~~~~~~<br><img src="http://ww4.sinaimg.cn/large/8f1bd71bgw1f053rava9zj20pq0q543c.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3933099572547626" target="freeweibo-mirror">SPAM 随便逛了圈。徽章胶带书签本子明信片都很好看。就是杯…</a>
-</h2>
-<p>SPAM 随便逛了圈。徽章胶带书签本子明信片都很好看。就是杯子都猴贵啊！ http://t.cn/R4Q5rRm //@二次元种草机: 回复@奈落_小姐要来盘小松子么:卧槽看到啦！！！为什么要伤害我的钱包[怒骂][怒骂][怒骂][怒骂]  http://t.cn/R4Qq4OI</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
