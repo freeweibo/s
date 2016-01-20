@@ -24,7 +24,7 @@
 </h2>
 <p>SPAM [哆啦A梦吃惊]心痛三位，一下子都被玩坏了</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3933358306550021" target="freeweibo-mirror">SPAM [哆啦A梦吃惊]MIKE隋模仿互联网大佬 ，心痛三…</a>
 </h2>
@@ -66,7 +66,7 @@
 </h2>
 <p>李鵬總理1994年12月14日在三峽工程開工典禮上講話：＂三峽電站建成後，可以提供全國2/3的用電，居民用電降到8分錢一度。＂<br><img src="http://ww2.sinaimg.cn/large/006cWmg1gw1f051bwgykaj30ci0bngnz.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3933266233028157" target="freeweibo-mirror">环球时报是一张经常喜欢出来圆谎的报纸，虽然谎圆得乱七八糟，顾…</a>
 </h2>
