@@ -60,7 +60,7 @@
 </h2>
 <p>造谣，无论是李鹏还是政府都从来没有这样说过，中国一直是火力发电为主，怎么可能三峡提供全国2/3的电，8分一度电？博主你上辈子是穷死的吧，造谣造的如此白痴也真挺难为你的。@老头子快乐<br><br>RE: 李鵬總理1994年12月14日在三峽工程開工典禮上講話：＂三峽電站建成後，可以提供全國2/3的用電，居民用電降到8分錢一度。＂<br><img src="http://ww2.sinaimg.cn/large/006cWmg1gw1f051bwgykaj30ci0bngnz.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3933313062251220" target="freeweibo-mirror">SPAM 能给大家提供一点娱乐，这一点也很重要</a>
 </h2>
