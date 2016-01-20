@@ -26,6 +26,12 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3933361531268214" target="freeweibo-mirror">现在还封锁的国家就剩3个， 朝鲜，古巴，和其他国家[挖鼻]</a>
+</h2>
+<p>现在还封锁的国家就剩3个， 朝鲜，古巴，和其他国家[挖鼻]<br><br>RE: 长期以来，伊朗一直对民众执行互联网禁令和限制，这也导致伊朗网民无法登陆Twitter、YouTube或是Facebook等社交网站或视频网站。不过伊朗网民日前惊异的发现，他们已经能够使用YouTube和Twitter等网站的服务，伊朗已经悄然取消Twitter和YouTube网站限制。<br><img src="http://ww3.sinaimg.cn/large/59183920gw1f05wd5ua9ej20h80armyi.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3933358306550021" target="freeweibo-mirror">SPAM [哆啦A梦吃惊]MIKE隋模仿互联网大佬 ，心痛三…</a>
 </h2>
 <p>SPAM [哆啦A梦吃惊]MIKE隋模仿互联网大佬 ，心痛三位，一下子都被玩坏了</p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3933133973812340" target="freeweibo-mirror">【法律界的白求恩】只能新华社的独家报道称：瑞典人彼得和王全璋…</a>
 </h2>
 <p>【法律界的白求恩】只能新华社的独家报道称：瑞典人彼得和王全璋律师合作成立 “中国维权紧急援助组”。一个瑞典人海外筹款不远万里来到中国，给弱势者提供法律援助，这不就是法律界的白求恩嘛！ 我翻墙看了这家法援网站，救助的大多是访民。我想凡得到他们法援的，都不会载去烧巴士、压小孩子吧？<br><img src="http://ww1.sinaimg.cn/large/6a80bfcdjw1f0575skchnj20m80wkgp3.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3933133025925495" target="freeweibo-mirror">【市长】最近关于重庆黄市长将高升的传说很多。我曾看过黄的演讲…</a>
-</h2>
-<p>【市长】最近关于重庆黄市长将高升的传说很多。我曾看过黄的演讲视频，其雄辩和专业令人印象不错。不过，重庆在薄风生水起的时候，黄也是党政主要领导人，参与重大决策。前总理温曾明确要求重庆现任市委和市政府须反思，从王立军事件中吸取教训，不知黄市长对黑打等诸多恶行是否反思？</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
