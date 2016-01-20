@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3933383480079861" target="freeweibo-mirror">SPAM 来，投个票。每天10票哦 //@李宇春打榜投票: …</a>
+</h2>
+<p>SPAM 来，投个票。每天10票哦 //@李宇春打榜投票: #李宇春# 投票时间为1月17日-24日，每人每天10票，大家一起来为春春投票吧！还有机会抽奖哦~[hold住][hold住][hold住]</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3933370163494326" target="freeweibo-mirror">SPAM [哆啦A梦吃惊]心痛三位，一下子都被玩坏了</a>
 </h2>
 <p>SPAM [哆啦A梦吃惊]心痛三位，一下子都被玩坏了</p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3933140156203445" target="freeweibo-mirror">黄市长纵横捭阖、协调各方的能力及水平，直逼周总理，恐是又一个…</a>
 </h2>
 <p>黄市长纵横捭阖、协调各方的能力及水平，直逼周总理，恐是又一个守纪律、讲规矩的公务员典范……[偷笑]//@弈者亦弈:恐怕狗改不了……</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3933135970567028" target="freeweibo-mirror">//@軍魂-IV://@余鑫2018: 反思了的，鱼儿离得开…</a>
-</h2>
-<p>//@軍魂-IV://@余鑫2018: 反思了的，鱼儿离得开水，瓜儿离不开秧。</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
