@@ -78,7 +78,7 @@
 </h2>
 <p>SPAM </p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3933304258788644" target="freeweibo-mirror">//@AC浮生问道://@水门冤案尼克松:没错儿～//@博阿…</a>
 </h2>
