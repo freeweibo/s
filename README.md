@@ -24,7 +24,7 @@
 </h2>
 <p>故意推墙gfw？也是一种解释[笑cry] //@文山娃:不敢苟同。但GFW工程比较豆腐渣，倒是验证了。//@gjjlawyer：其实你们都不懂共青团中央的良苦用心，他们是借攻击台独的机会企图摧毁GFW。给中国网民造福。</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3933514817288566" target="freeweibo-mirror">偷袭？//@陆亚明:无耻！[怒]</a>
 </h2>
