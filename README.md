@@ -36,7 +36,7 @@
 </h2>
 <p>SPAM [哆啦A梦吃惊]心痛三位，一下子都被玩坏了</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3933361531268214" target="freeweibo-mirror">现在还封锁的国家就剩3个， 朝鲜，古巴，和其他国家[挖鼻]</a>
 </h2>
@@ -90,7 +90,7 @@
 </h2>
 <p>李鵬總理1994年12月14日在三峽工程開工典禮上講話：＂三峽電站建成後，可以提供全國2/3的用電，居民用電降到8分錢一度。＂<br><img src="http://ww2.sinaimg.cn/large/006cWmg1gw1f051bwgykaj30ci0bngnz.jpg"></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3933266233028157" target="freeweibo-mirror">环球时报是一张经常喜欢出来圆谎的报纸，虽然谎圆得乱七八糟，顾…</a>
 </h2>
