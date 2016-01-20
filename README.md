@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3933402505859123" target="freeweibo-mirror">SPAM 【一则八卦】昨天po了一组地铁标志的图，有同学好奇…</a>
+</h2>
+<p>SPAM 【一则八卦】昨天po了一组地铁标志的图，有同学好奇为什么深圳地铁和香港地铁的logo这么相似，其实呢，当初出方案的时候已经准备采用著名设计师陈绍华先生的设计，后来某领导看到了香港地铁的logo，觉得好，于是就有了今天的样子~~<br><img src="http://ww4.sinaimg.cn/large/648ac377gw1f0620zz4jqj20da08f3z8.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3933383480079861" target="freeweibo-mirror">SPAM 来，投个票。每天10票哦 //@李宇春打榜投票: …</a>
 </h2>
 <p>SPAM 来，投个票。每天10票哦 //@李宇春打榜投票: #李宇春# 投票时间为1月17日-24日，每人每天10票，大家一起来为春春投票吧！还有机会抽奖哦~[hold住][hold住][hold住]</p>
@@ -30,7 +36,7 @@
 </h2>
 <p>SPAM [哆啦A梦吃惊]心痛三位，一下子都被玩坏了</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3933361531268214" target="freeweibo-mirror">现在还封锁的国家就剩3个， 朝鲜，古巴，和其他国家[挖鼻]</a>
 </h2>
@@ -84,7 +90,7 @@
 </h2>
 <p>李鵬總理1994年12月14日在三峽工程開工典禮上講話：＂三峽電站建成後，可以提供全國2/3的用電，居民用電降到8分錢一度。＂<br><img src="http://ww2.sinaimg.cn/large/006cWmg1gw1f051bwgykaj30ci0bngnz.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3933266233028157" target="freeweibo-mirror">环球时报是一张经常喜欢出来圆谎的报纸，虽然谎圆得乱七八糟，顾…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3933150755276371" target="freeweibo-mirror">罗丹说：女人过了16岁就老了。这是少女情怀意义上的衰老。45…</a>
 </h2>
 <p>罗丹说：女人过了16岁就老了。这是少女情怀意义上的衰老。45岁以后，更年期，来了。这是生物学意义的衰老。生命要延续，女人要生孩。啥时生孩好？以前十七八，现在，四十才起意。最佳生育年龄是23到30岁。... http://t.cn/R4Q9G3t</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3933140156203445" target="freeweibo-mirror">黄市长纵横捭阖、协调各方的能力及水平，直逼周总理，恐是又一个…</a>
-</h2>
-<p>黄市长纵横捭阖、协调各方的能力及水平，直逼周总理，恐是又一个守纪律、讲规矩的公务员典范……[偷笑]//@弈者亦弈:恐怕狗改不了……</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
