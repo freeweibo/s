@@ -54,7 +54,7 @@
 </h2>
 <p>真的爱国者首先尊重国家法律！使用翻墙软件登陆境外网站的行为首先就践踏了国家的法律！<br><br>RE: 近日数万大陆五毛狗翻墙进了蔡英文facebook主页喷粪，蔡英文在周三回应表示非常欢迎大陆网友对民主感兴趣！大陆五毛狗的跟帖大多是民进党台独滚出台湾。其中一个超级内涵的评论：“大陆五毛辛苦了！用翻墙这种不自由的方式去反对自由！真难得！自由的土地不会重回奴役；走出监狱的人不会重回监狱”～转<br><img src="http://ww4.sinaimg.cn/large/005XIhFggw1f04ntkan1mj30hs0hs77a.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3933608005789901" target="freeweibo-mirror">//@彭园v://@新建伯翁:退位清帝被逐出紫禁城后，太监痛…</a>
 </h2>
@@ -83,6 +83,12 @@
 	<a href="https://freeweibo.com/weibo/3933555816080170" target="freeweibo-mirror">SPAM 说起应聘，我应聘失败还被人拿出实习生的图，大致就是…</a>
 </h2>
 <p>SPAM 说起应聘，我应聘失败还被人拿出实习生的图，大致就是“实习生都比你强”的意思，虽然是比我强…还有面试作品画太烂被人到处说，遇到不会画的面试交白卷逃走，画的很辛苦对方看一眼都觉得丑（确实丑），因为不会说话被老板面试请回的，收了稿不理我的，想太多都没法活了… http://t.cn/R48N3hJ</p>
+<p>
+	<small> ============== 1天前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3933548186729890" target="freeweibo-mirror">#FB表情包大战##帝吧fb出征# 发现一组萌萌的图片</a>
+</h2>
+<p>#FB表情包大战##帝吧fb出征# 发现一组萌萌的图片<br><img src="http://ww1.sinaimg.cn/large/81e742b3gw1f06ivdmg1rj20fk0bodhc.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p><h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3933456050262397" target="freeweibo-mirror">【心如刀割，怎堪回首？】肖杰，中国*人民大学新闻系86级学生…</a>
 </h2>
 <p>【心如刀割，怎堪回首？】肖杰，中国*人民大学新闻系86级学生。胡* 耀* 邦逝世后，他是长跪在人*民*大*会*堂前学生之一。8     *9年6月5日他已购得回成*都的火车票，下午2点10分行至南池子南口，因拍照被戒*   严*部*队的子弹从后背穿过前胸，众多民众用平板车将其送到公* 安医院抢救，2点55分死亡。<br><img src="http://ww3.sinaimg.cn/large/006cY543gw1f0687p24kuj304304kjrc.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3933402505859123" target="freeweibo-mirror">SPAM 【一则八卦】昨天po了一组地铁标志的图，有同学好奇…</a>
-</h2>
-<p>SPAM 【一则八卦】昨天po了一组地铁标志的图，有同学好奇为什么深圳地铁和香港地铁的logo这么相似，其实呢，当初出方案的时候已经准备采用著名设计师陈绍华先生的设计，后来某领导看到了香港地铁的logo，觉得好，于是就有了今天的样子~~<br><img src="http://ww4.sinaimg.cn/large/648ac377gw1f0620zz4jqj20da08f3z8.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
