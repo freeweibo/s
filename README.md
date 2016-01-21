@@ -54,17 +54,23 @@
 </h2>
 <p>SPAM 装逼装得不伦不类，纯脑残嘛//@莹莹依水: 坐等删帖//@如皋老猫:【阴毒澎湃，有种别删】感谢这样的奸媒让广大爱国青年更清楚地看懂看清公知和南方系们的丑恶嘴脸。<br><br>RE: 【青春的遗书：发动自杀式袭击的日本特攻队员，究竟怎么想？】http://t.cn/RbQvzeL（分享自@澎湃新闻）#我读澎湃#<br><img src="http://ww2.sinaimg.cn/large/005vnhZYjw1f07hq4mjp0j30q518gn5f.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3933869306815092" target="freeweibo-mirror">应该抓//@孙警官说事: 扰乱公共秩序，抓起来了没?//@施…</a>
 </h2>
 <p>应该抓//@孙警官说事: 扰乱公共秩序，抓起来了没?//@施怀基:这次，我必须帮警官转发！<br><br>RE: 原来是CCTV的记者，佩服[作揖][作揖][作揖]你虽然怕冷，但是你很火 http://t.cn/R4RyYH1</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3933864999436957" target="freeweibo-mirror">SPAM 这次，我必须帮警官转发！</a>
 </h2>
 <p>SPAM 这次，我必须帮警官转发！<br><br>RE: 原来是CCTV的记者，佩服[作揖][作揖][作揖]你虽然怕冷，但是你很火 http://t.cn/R4RyYH1</p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3933862561894287" target="freeweibo-mirror">这不是冷，这是傻啊！//@夏河:刚才我转发的已被删除…如果这…</a>
+</h2>
+<p>这不是冷，这是傻啊！//@夏河:刚才我转发的已被删除…如果这条回头也不幸被删…请大家记住这个视频里很冷的央视记者叫@王大年年<br><br>RE: CCAV记者就是牛逼啊，咋上不了天呢[挖鼻]http://t.cn/RbHmblK</p>
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3933843901726637" target="freeweibo-mirror">我冷哥[汗]。转发送温暖[酷]。//@胡杨麟:央视五频道王华…</a>
 </h2>
 <p>我冷哥[汗]。转发送温暖[酷]。//@胡杨麟:央视五频道王华年。//@回家7饭_终日小钱钱:殃视哪个贫盗的？叫啥名字？[嘻嘻][酷]//@胡杨麟:这是央视记者王XX，果然牛逼，更牛逼的是，此视频被全网封杀删除，王法？央视就是王法！<br><br>RE: 你冷，我冷，大家都冷。这个“记者”太牛逼！说到底是特权思想、跋扈习惯在作怪。 http://t.cn/RbHnsee .</p>
-<p>
-	<small> ============== 4小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3933842802503985" target="freeweibo-mirror">#亚蒙社会观察# CCTV中央电视台记者过机场安检如此嚣张？…</a>
-</h2>
-<p>#亚蒙社会观察# CCTV中央电视台记者过机场安检如此嚣张？[白眼] http://t.cn/RbHnRgB .</p>
 <p>
 	<small> ============== 4小时前</small>
 </p>
