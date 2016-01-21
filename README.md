@@ -116,6 +116,12 @@
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3933837580932764" target="freeweibo-mirror">[嘘]</a>
+</h2>
+<p>[嘘]<br><br>RE: 视频被“公关”了，但有截图。这位戴着CCTV媒体记者牌子的把冬运会安检当儿戏？配合服从安检是每个公民的义务，记者身份没有给你免检的特权！一副咄咄逼人的态度可见个人素质和最基本的职业素养堪忧，@央视新闻 @央视体育 @CCTV5体育新闻 你们确定他不是给央视媒体拆台的吧？<br><img src="http://ww3.sinaimg.cn/large/6b948f49gw1f07cuo81vqj20ku112wgn.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3933836943492929" target="freeweibo-mirror">SPAM 脱了能死？[微笑]</a>
 </h2>
 <p>SPAM 脱了能死？[微笑]<br><br>RE: 【配合安检工作，真的很难吗？】CCTV这位记者大哥，你冷，你火了！据@拍客老李http://t.cn/RbHE4ot</p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3933835483966596" target="freeweibo-mirror">分享视频 http://t.cn/RbH1ONi .</a>
 </h2>
 <p>分享视频 http://t.cn/RbH1ONi .<br><img src="http://ww2.sinaimg.cn/large/62cff825jw1f07fu60j85j20yi1pc4qp.jpg"></p>
-<p>
-	<small> ============== 3小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3933834909216033" target="freeweibo-mirror">SPAM 据说是央视记者，果然牛逼</a>
-</h2>
-<p>SPAM 据说是央视记者，果然牛逼<br><br>RE: 你冷，我冷，大家都冷。这个“记者”太牛逼！说到底是特权思想、跋扈习惯在作怪。 http://t.cn/RbHnsee .</p>
 <p>
 	<small> ============== 3小时前</small>
 </p>
