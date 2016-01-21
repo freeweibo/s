@@ -42,7 +42,7 @@
 </h2>
 <p>举报：环球时报在煽动翻墙！</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3933849715162793" target="freeweibo-mirror">SPAM //@张老惰:谁呀?</a>
 </h2>
@@ -138,7 +138,7 @@
 </h2>
 <p>分享视频 http://t.cn/RbH1ONi .<br><img src="http://ww2.sinaimg.cn/large/62cff825jw1f07fu60j85j20yi1pc4qp.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p>
 <table>
     <tr>
