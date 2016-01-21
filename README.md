@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3933658844976955" target="freeweibo-mirror">[笑cry][笑cry][笑cry]//@陈业文新大都: […</a>
+</h2>
+<p>[笑cry][笑cry][笑cry]//@陈业文新大都: [哈哈][哈哈][哈哈] 五毛水军的翻墙之路！ //@金融评论员:[哈哈][哈哈][哈哈] //@李不白的店:[笑cry][笑cry][笑cry]<br><br>RE: “同志们！跟我一起去攻占敌军的桥头堡！”“太好了！我们怎么开始？”“第一步，我们首先攻破我军的防线。。。”</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3933609435877364" target="freeweibo-mirror">真的爱国者首先尊重国家法律！使用翻墙软件登陆境外网站的行为首…</a>
 </h2>
 <p>真的爱国者首先尊重国家法律！使用翻墙软件登陆境外网站的行为首先就践踏了国家的法律！<br><br>RE: 近日数万大陆五毛狗翻墙进了蔡英文facebook主页喷粪，蔡英文在周三回应表示非常欢迎大陆网友对民主感兴趣！大陆五毛狗的跟帖大多是民进党台独滚出台湾。其中一个超级内涵的评论：“大陆五毛辛苦了！用翻墙这种不自由的方式去反对自由！真难得！自由的土地不会重回奴役；走出监狱的人不会重回监狱”～转<br><img src="http://ww4.sinaimg.cn/large/005XIhFggw1f04ntkan1mj30hs0hs77a.jpg"></p>
@@ -66,7 +72,7 @@
 </h2>
 <p>偷袭？//@陆亚明:无耻！[怒]<br><br>RE: 我大团系第一次明火执仗的出来当流氓头子了，这是有历史纪念意义的一件大事，足以写进史书了，早早垄断了未来人类社会学的研究对象！爱国者不粉团中央就不是真爱国者！<br><img src="http://ww2.sinaimg.cn/large/d60724d4jw1f069imgcr5j20ci0m8dh2.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3933498731633090" target="freeweibo-mirror">//@巫一观://@章鱼小笑: //@时光隧道XMGF:还有…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3933352153569395" target="freeweibo-mirror">长期以来，伊朗一直对民众执行互联网禁令和限制，这也导致伊朗网…</a>
 </h2>
 <p>长期以来，伊朗一直对民众执行互联网禁令和限制，这也导致伊朗网民无法登陆Twitter、YouTube或是Facebook等社交网站或视频网站。不过伊朗网民日前惊异的发现，他们已经能够使用YouTube和Twitter等网站的服务，伊朗已经悄然取消Twitter和YouTube网站限制。<br><img src="http://ww3.sinaimg.cn/large/59183920gw1f05wd5ua9ej20h80armyi.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3933329961167770" target="freeweibo-mirror">SPAM 【叔叔总是要和我嘿嘿嘿，我快受不了怎么办？】我虽然…</a>
-</h2>
-<p>SPAM 【叔叔总是要和我嘿嘿嘿，我快受不了怎么办？】我虽然才十四岁，可我还未成年呢，但叔叔每晚要的太多，虽然不是十次郎，却一次一整晚！我哪能受得了？我好怕，不知道怎么办，求姐姐们看完支个招！#我的闲暇时光#阅读原文可以在评论里找到原文链接!<br><img src="http://ww1.sinaimg.cn/large/e4bfd450jw1f05s5m5avbj20c82rwaxx.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
