@@ -36,7 +36,7 @@
 </h2>
 <p>呵呵，前@新京报 记者，称周恩来总理为“一个老奴”。。//@吉四六: 那要看羞辱的谁。羞辱一个老奴，关我屁事。</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3933658844976955" target="freeweibo-mirror">[笑cry][笑cry][笑cry]//@陈业文新大都: […</a>
 </h2>
