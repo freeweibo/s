@@ -24,7 +24,7 @@
 </h2>
 <p>真的爱国者首先尊重国家法律！使用翻墙软件登陆境外网站的行为首先就践踏了国家的法律！<br><br>RE: 近日数万大陆五毛狗翻墙进了蔡英文facebook主页喷粪，蔡英文在周三回应表示非常欢迎大陆网友对民主感兴趣！大陆五毛狗的跟帖大多是民进党台独滚出台湾。其中一个超级内涵的评论：“大陆五毛辛苦了！用翻墙这种不自由的方式去反对自由！真难得！自由的土地不会重回奴役；走出监狱的人不会重回监狱”～转<br><img src="http://ww4.sinaimg.cn/large/005XIhFggw1f04ntkan1mj30hs0hs77a.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3933608005789901" target="freeweibo-mirror">//@彭园v://@新建伯翁:退位清帝被逐出紫禁城后，太监痛…</a>
 </h2>
@@ -90,7 +90,7 @@
 </h2>
 <p>我大团系第一次明火执仗的出来当流氓头子了，这是有历史纪念意义的一件大事，足以写进史书了，早早垄断了未来人类社会学的研究对象！爱国者不粉团中央就不是真爱国者！<br><img src="http://ww2.sinaimg.cn/large/d60724d4jw1f069imgcr5j20ci0m8dh2.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3933456050262397" target="freeweibo-mirror">【心如刀割，怎堪回首？】肖杰，中国*人民大学新闻系86级学生…</a>
 </h2>
