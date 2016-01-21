@@ -36,7 +36,7 @@
 </h2>
 <p>SPAM 素质！！！在哪里！！！！！<br><br>RE: CCTV某记者在新疆冬运会某场地统一安检时拒绝配合 http://t.cn/RbHnRgB .</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3933803133505941" target="freeweibo-mirror">//@草根设计师-CAD:@新华视点 @央视新闻 @央视新闻…</a>
 </h2>
