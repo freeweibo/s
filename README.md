@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3933677354952019" target="freeweibo-mirror">[思考]//@vv赛sai_: 呵呵 再说言论不自由就是打自…</a>
+</h2>
+<p>[思考]//@vv赛sai_: 呵呵 再说言论不自由就是打自己的脸//@辟谣与真相:呵呵，前@新京报 记者，称周恩来总理为“一个老奴”。。//@吉四六: 那要看羞辱的谁。羞辱一个老奴，关我屁事。</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3933658844976955" target="freeweibo-mirror">[笑cry][笑cry][笑cry]//@陈业文新大都: […</a>
 </h2>
 <p>[笑cry][笑cry][笑cry]//@陈业文新大都: [哈哈][哈哈][哈哈] 五毛水军的翻墙之路！ //@金融评论员:[哈哈][哈哈][哈哈] //@李不白的店:[笑cry][笑cry][笑cry]<br><br>RE: “同志们！跟我一起去攻占敌军的桥头堡！”“太好了！我们怎么开始？”“第一步，我们首先攻破我军的防线。。。”</p>
@@ -30,7 +36,7 @@
 </h2>
 <p>[哈哈][哈哈][哈哈]//@陈业文新大都:[哈哈][哈哈][哈哈] 五毛水军的翻墙之路！ //@金融评论员:[哈哈][哈哈][哈哈] //@李不白的店:[笑cry][笑cry][笑cry]<br><br>RE: “同志们！跟我一起去攻占敌军的桥头堡！”“太好了！我们怎么开始？”“第一步，我们首先攻破我军的防线。。。”</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3933609435877364" target="freeweibo-mirror">真的爱国者首先尊重国家法律！使用翻墙软件登陆境外网站的行为首…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3933370163494326" target="freeweibo-mirror">SPAM [哆啦A梦吃惊]心痛三位，一下子都被玩坏了</a>
 </h2>
 <p>SPAM [哆啦A梦吃惊]心痛三位，一下子都被玩坏了</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3933361531268214" target="freeweibo-mirror">现在还封锁的国家就剩3个， 朝鲜，古巴，和其他国家[挖鼻]</a>
-</h2>
-<p>现在还封锁的国家就剩3个， 朝鲜，古巴，和其他国家[挖鼻]<br><br>RE: 长期以来，伊朗一直对民众执行互联网禁令和限制，这也导致伊朗网民无法登陆Twitter、YouTube或是Facebook等社交网站或视频网站。不过伊朗网民日前惊异的发现，他们已经能够使用YouTube和Twitter等网站的服务，伊朗已经悄然取消Twitter和YouTube网站限制。<br><img src="http://ww3.sinaimg.cn/large/59183920gw1f05wd5ua9ej20h80armyi.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
