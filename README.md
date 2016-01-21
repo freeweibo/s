@@ -48,7 +48,7 @@
 </h2>
 <p>呵呵，这就是王大年？[围观] //@孙警官说事:扰乱公共秩序，抓起来了没?//@施怀基:这次，我必须帮警官转发！<br><br>RE: 原来是CCTV的记者，佩服[作揖][作揖][作揖]你虽然怕冷，但是你很火 http://t.cn/R4RyYH1</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3933869776380720" target="freeweibo-mirror">SPAM 装逼装得不伦不类，纯脑残嘛//@莹莹依水: 坐等删…</a>
 </h2>
@@ -78,13 +78,13 @@
 </h2>
 <p>我还以为是王堂堂。//@红嘴乌鸦:转发微博<br><br>RE: 你冷，我冷，大家都冷。这个“记者”太牛逼！说到底是特权思想、跋扈习惯在作怪。 http://t.cn/RbHnsee .</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3933855415158038" target="freeweibo-mirror">【青春的遗书：发动自杀式袭击的日本特攻队员，究竟怎么想？】h…</a>
 </h2>
 <p>【青春的遗书：发动自杀式袭击的日本特攻队员，究竟怎么想？】http://t.cn/RbQvzeL（分享自@澎湃新闻）#我读澎湃#<br><img src="http://ww2.sinaimg.cn/large/005vnhZYjw1f07hq4mjp0j30q518gn5f.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3933851744845064" target="freeweibo-mirror">SPAM //@娇娥C://@杨锦麟:這「國家級媒體」從業人…</a>
 </h2>
