@@ -26,6 +26,12 @@
 <p>
 	<small> ============== 1小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3933842802503985" target="freeweibo-mirror">#亚蒙社会观察# CCTV中央电视台记者过机场安检如此嚣张？…</a>
+</h2>
+<p>#亚蒙社会观察# CCTV中央电视台记者过机场安检如此嚣张？[白眼] http://t.cn/RbHnRgB .</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3933840689086996" target="freeweibo-mirror">SPAM 这位叫王华年的朋友，您可能第一次来新疆进行摄像活动…</a>
 </h2>
 <p>SPAM 这位叫王华年的朋友，您可能第一次来新疆进行摄像活动，真的很对不起，这几天持续低温让你不小心成为网红怕冷哥。安检的时候我们的人对你解释不够详细实在不好意思，在这里我专门给您说一声：这叫安检不叫过家家。最后，新疆街头有很多提供冬装的地方，您可以过去排队领取，请笑纳。<br><img src="http://ww3.sinaimg.cn/large/a37ec3f1gw1f07ggbe2vrj209l0e074n.jpg"></p>
@@ -37,6 +43,12 @@
 <p>SPAM 素质！！！在哪里！！！！！<br><br>RE: CCTV某记者在新疆冬运会某场地统一安检时拒绝配合 http://t.cn/RbHnRgB .</p>
 <p>
 	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3933813665149801" target="freeweibo-mirror">CCTV某记者在新疆冬运会某场地统一安检时拒绝配合 http…</a>
+</h2>
+<p>CCTV某记者在新疆冬运会某场地统一安检时拒绝配合 http://t.cn/RbHnRgB .</p>
+<p>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3933803133505941" target="freeweibo-mirror">//@草根设计师-CAD:@新华视点 @央视新闻 @央视新闻…</a>
 </h2>
@@ -60,13 +72,13 @@
 </h2>
 <p>SPAM 这是在新疆，敢不配合安检的 除了爆恐份子就是傻叉！ //@莹莹依水:丑肥猪<br><br>RE: CCTV这位记者大哥，你冷，你火了 http://t.cn/RbHE4ot</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3933800264394214" target="freeweibo-mirror">SPAM 我想看他吃馍馍菜</a>
 </h2>
 <p>SPAM 我想看他吃馍馍菜</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3933797982337614" target="freeweibo-mirror">SPAM 哟，记者好牛逼哦～～～ //@无敌饼干姐:配合工作…</a>
 </h2>
@@ -78,7 +90,7 @@
 </h2>
 <p>CCTV这位记者大哥，你冷，你火了 http://t.cn/RbHE4ot</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3933782945730606" target="freeweibo-mirror">SPAM 啊！太穷了！年根儿终于接到广告了，虽然很硬，大家凑…</a>
 </h2>
@@ -125,18 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3933609435877364" target="freeweibo-mirror">真的爱国者首先尊重国家法律！使用翻墙软件登陆境外网站的行为首…</a>
 </h2>
 <p>真的爱国者首先尊重国家法律！使用翻墙软件登陆境外网站的行为首先就践踏了国家的法律！<br><br>RE: 近日数万大陆五毛狗翻墙进了蔡英文facebook主页喷粪，蔡英文在周三回应表示非常欢迎大陆网友对民主感兴趣！大陆五毛狗的跟帖大多是民进党台独滚出台湾。其中一个超级内涵的评论：“大陆五毛辛苦了！用翻墙这种不自由的方式去反对自由！真难得！自由的土地不会重回奴役；走出监狱的人不会重回监狱”～转<br><img src="http://ww4.sinaimg.cn/large/005XIhFggw1f04ntkan1mj30hs0hs77a.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3933608005789901" target="freeweibo-mirror">//@彭园v://@新建伯翁:退位清帝被逐出紫禁城后，太监痛…</a>
-</h2>
-<p>//@彭园v://@新建伯翁:退位清帝被逐出紫禁城后，太监痛哭。人民问他：“你自由了，不用当奴才作太监了，还哭什么？”太监说：“我自个愿意当奴才，没有了皇帝我一个太监什么活？”行人怒说：“你不有手脚吗，为什么要靠生殖器才能活命？”<br><br>RE: 近日数万大陆五毛狗翻墙进了蔡英文facebook主页喷粪，蔡英文在周三回应表示非常欢迎大陆网友对民主感兴趣！大陆五毛狗的跟帖大多是民进党台独滚出台湾。其中一个超级内涵的评论：“大陆五毛辛苦了！用翻墙这种不自由的方式去反对自由！真难得！自由的土地不会重回奴役；走出监狱的人不会重回监狱”～转<br><img src="http://ww4.sinaimg.cn/large/005XIhFggw1f04ntkan1mj30hs0hs77a.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3933605967428964" target="freeweibo-mirror">//@新建伯翁:退位清帝被逐出紫禁城后，太监痛哭。人民问他：…</a>
-</h2>
-<p>//@新建伯翁:退位清帝被逐出紫禁城后，太监痛哭。人民问他：“你自由了，不用当奴才作太监了，还哭什么？”太监说：“我自个愿意当奴才，没有了皇帝我一个太监什么活？”行人怒说：“你不有手脚吗，为什么要靠生殖器才能活命？”<br><br>RE: 近日数万大陆五毛狗翻墙进了蔡英文facebook主页喷粪，蔡英文在周三回应表示非常欢迎大陆网友对民主感兴趣！大陆五毛狗的跟帖大多是民进党台独滚出台湾。其中一个超级内涵的评论：“大陆五毛辛苦了！用翻墙这种不自由的方式去反对自由！真难得！自由的土地不会重回奴役；走出监狱的人不会重回监狱”～转<br><img src="http://ww4.sinaimg.cn/large/005XIhFggw1f04ntkan1mj30hs0hs77a.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
