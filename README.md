@@ -20,6 +20,24 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3933803133505941" target="freeweibo-mirror">//@草根设计师-CAD:@新华视点 @央视新闻 @央视新闻…</a>
+</h2>
+<p>//@草根设计师-CAD:@新华视点 @央视新闻 @央视新闻调查 这哪家的“媒体记者” ？//@CD华夏本尊:央视真特么的应该好好的清理一下了  尽出傻逼和脑残//@无敌饼干姐: 配合工作这么难么？<br><br>RE: CCTV这位记者大哥，你冷，你火了 http://t.cn/RbHE4ot</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3933803015942119" target="freeweibo-mirror">采访十三冬的CCTV记者在新疆机场安检环节的表演，令人失望。…</a>
+</h2>
+<p>采访十三冬的CCTV记者在新疆机场安检环节的表演，令人失望。不光是新疆地区，全国各地安检都是要脱外套的。他的表现抹黑了整个记者群体。<br><br>RE: CCTV这位记者大哥，你冷，你火了 http://t.cn/RbHE4ot</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3933802328463638" target="freeweibo-mirror">SPAM [喵喵]//@静姐姐的静:呵呵哒 //@无敌饼干姐…</a>
+</h2>
+<p>SPAM [喵喵]//@静姐姐的静:呵呵哒 //@无敌饼干姐:配合工作这么难么？<br><br>RE: CCTV这位记者大哥，你冷，你火了 http://t.cn/RbHE4ot</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3933800570113290" target="freeweibo-mirror">SPAM 这是在新疆，敢不配合安检的 除了爆恐份子就是傻叉！…</a>
 </h2>
 <p>SPAM 这是在新疆，敢不配合安检的 除了爆恐份子就是傻叉！ //@莹莹依水:丑肥猪<br><br>RE: CCTV这位记者大哥，你冷，你火了 http://t.cn/RbHE4ot</p>
@@ -119,24 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3933548186729890" target="freeweibo-mirror">#FB表情包大战##帝吧fb出征# 发现一组萌萌的图片</a>
 </h2>
 <p>#FB表情包大战##帝吧fb出征# 发现一组萌萌的图片<br><img src="http://ww1.sinaimg.cn/large/81e742b3gw1f06ivdmg1rj20fk0bodhc.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3933515143589408" target="freeweibo-mirror">故意推墙gfw？也是一种解释[笑cry] //@文山娃:不敢…</a>
-</h2>
-<p>故意推墙gfw？也是一种解释[笑cry] //@文山娃:不敢苟同。但GFW工程比较豆腐渣，倒是验证了。//@gjjlawyer：其实你们都不懂共青团中央的良苦用心，他们是借攻击台独的机会企图摧毁GFW。给中国网民造福。</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3933514817288566" target="freeweibo-mirror">偷袭？//@陆亚明:无耻！[怒]</a>
-</h2>
-<p>偷袭？//@陆亚明:无耻！[怒]<br><br>RE: 我大团系第一次明火执仗的出来当流氓头子了，这是有历史纪念意义的一件大事，足以写进史书了，早早垄断了未来人类社会学的研究对象！爱国者不粉团中央就不是真爱国者！<br><img src="http://ww2.sinaimg.cn/large/d60724d4jw1f069imgcr5j20ci0m8dh2.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3933500376043986" target="freeweibo-mirror">“同志们！跟我一起去攻占敌军的桥头堡！”“太好了！我们怎么开…</a>
-</h2>
-<p>“同志们！跟我一起去攻占敌军的桥头堡！”“太好了！我们怎么开始？”“第一步，我们首先攻破我军的防线。。。”</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
