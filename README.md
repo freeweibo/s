@@ -66,7 +66,7 @@
 </h2>
 <p>SPAM 这次，我必须帮警官转发！<br><br>RE: 原来是CCTV的记者，佩服[作揖][作揖][作揖]你虽然怕冷，但是你很火 http://t.cn/R4RyYH1</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3933862561894287" target="freeweibo-mirror">这不是冷，这是傻啊！//@夏河:刚才我转发的已被删除…如果这…</a>
 </h2>
@@ -96,13 +96,13 @@
 </h2>
 <p>举报：环球时报在煽动翻墙！</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3933850294035961" target="freeweibo-mirror">挂的牌子还真是CCTV的媒体记者，脑残 //@潘明先生://…</a>
 </h2>
 <p>挂的牌子还真是CCTV的媒体记者，脑残 //@潘明先生://@O-Mei欧美:@CCTV5体育新闻 的。 //@蓝凌39:[怒][怒]//@潘明先生:央视必须给个说法，这厮平常一定跋扈惯了！是谁惯的他这一身臭毛病？！[怒][怒]<br><br>RE: 听说这是央视记者@CCTV焦点访谈  是吗？ http://t.cn/RbHnsee</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3933849715162793" target="freeweibo-mirror">SPAM //@张老惰:谁呀?</a>
 </h2>
