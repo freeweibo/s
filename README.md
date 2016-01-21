@@ -24,19 +24,19 @@
 </h2>
 <p>SPAM 这是在新疆，敢不配合安检的 除了爆恐份子就是傻叉！ //@莹莹依水:丑肥猪<br><br>RE: CCTV这位记者大哥，你冷，你火了 http://t.cn/RbHE4ot</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3933800264394214" target="freeweibo-mirror">SPAM 我想看他吃馍馍菜</a>
 </h2>
 <p>SPAM 我想看他吃馍馍菜</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3933784678426893" target="freeweibo-mirror">CCTV这位记者大哥，你冷，你火了 http://t.cn/…</a>
 </h2>
 <p>CCTV这位记者大哥，你冷，你火了 http://t.cn/RbHE4ot</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3933782945730606" target="freeweibo-mirror">SPAM 啊！太穷了！年根儿终于接到广告了，虽然很硬，大家凑…</a>
 </h2>
