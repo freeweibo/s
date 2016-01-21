@@ -56,6 +56,12 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3933845424130679" target="freeweibo-mirror">我只发图，不说话。@王大年年 http://t.cn/RbH…</a>
+</h2>
+<p>我只发图，不说话。@王大年年 http://t.cn/RbHD4jw<br><br>RE: http://t.cn/RbHnpm6 我冷？就这么个视频，封什么封啊！大家都看看呗，群众监督都不给监督啦？看看，评评，可以照照镜子，正衣冠，红红脸，出出汗！可以改正，允许改正。<br><img src="http://ww3.sinaimg.cn/large/79594e60gw1f07emn60guj20y212r0xi.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3933845361706415" target="freeweibo-mirror">SPAM 在新疆安檢需要脫掉外套，鞋子和皮帶。這種人還當記者…</a>
 </h2>
 <p>SPAM 在新疆安檢需要脫掉外套，鞋子和皮帶。這種人還當記者？！！！！！@央视新闻  //@清草三菜:怕冷噢<br><br>RE: 现在时间20时12分，看看我的微博能活多长时间 http://t.cn/RbHmblK .</p>
@@ -96,7 +102,7 @@
 </h2>
 <p>这是央视记者王XX，果然牛逼，更牛逼的是，此视频被全网封杀删除，王法？央视就是王法！<br><br>RE: 你冷，我冷，大家都冷。这个“记者”太牛逼！说到底是特权思想、跋扈习惯在作怪。 http://t.cn/RbHnsee .</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3933836943492929" target="freeweibo-mirror">SPAM 脱了能死？[微笑]</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3933828521460828" target="freeweibo-mirror">//@娇娥C:原来是央视的//@新疆美食发现:我只想知道，如…</a>
 </h2>
 <p>//@娇娥C:原来是央视的//@新疆美食发现:我只想知道，如果看过视频你想说句什么话呢？这个视频我手机有但也不能发原创，肯定被河蟹被删，我也只能转个公家的，尽我一份心！<br><br>RE: 【配合安检工作，真的很难吗？】CCTV这位记者大哥，你冷，你火了！据@拍客老李http://t.cn/RbHE4ot</p>
-<p>
-	<small> ============== 3小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3933826994485782" target="freeweibo-mirror">SPAM 素质！！！在哪里！！！！！</a>
-</h2>
-<p>SPAM 素质！！！在哪里！！！！！<br><br>RE: CCTV某记者在新疆冬运会某场地统一安检时拒绝配合 http://t.cn/RbHnRgB .</p>
 <p>
 	<small> ============== 3小时前</small>
 </p>
