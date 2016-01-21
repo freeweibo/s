@@ -48,7 +48,7 @@
 </h2>
 <p>这种人就当成恐怖分子直接收拾了不行吗？//@新疆王海珍:今天在一个群里也看到了这位～很牛的样子～ //@杨锦麟:就讓他火一把。 //@ELNUR-IBRAHIM:</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3933845877739224" target="freeweibo-mirror">SPAM 目測不是機場，是去參加冬運會…所以應該圈@央视体育…</a>
 </h2>
