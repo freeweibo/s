@@ -60,7 +60,7 @@
 </h2>
 <p>SPAM 其实2010年就有朋友很诚恳的找我谈心，和我说“你画技真的不行，太完蛋了，真是朋友才这么和你说，画成这样没法混了，只有脑洞还将就，你还是转行做策划吧” 我当时不相信，我觉得我画的还是有那么一些好的，还是比较牛逼的，然后我还辞职去画本子卖，卖不掉…………然后找了风魔来画，卖得很好[挖鼻]</p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3933555816080170" target="freeweibo-mirror">SPAM 说起应聘，我应聘失败还被人拿出实习生的图，大致就是…</a>
 </h2>
@@ -77,6 +77,12 @@
 	<a href="https://freeweibo.com/weibo/3933514817288566" target="freeweibo-mirror">偷袭？//@陆亚明:无耻！[怒]</a>
 </h2>
 <p>偷袭？//@陆亚明:无耻！[怒]<br><br>RE: 我大团系第一次明火执仗的出来当流氓头子了，这是有历史纪念意义的一件大事，足以写进史书了，早早垄断了未来人类社会学的研究对象！爱国者不粉团中央就不是真爱国者！<br><img src="http://ww2.sinaimg.cn/large/d60724d4jw1f069imgcr5j20ci0m8dh2.jpg"></p>
+<p>
+	<small> ============== 1天前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3933500376043986" target="freeweibo-mirror">“同志们！跟我一起去攻占敌军的桥头堡！”“太好了！我们怎么开…</a>
+</h2>
+<p>“同志们！跟我一起去攻占敌军的桥头堡！”“太好了！我们怎么开始？”“第一步，我们首先攻破我军的防线。。。”</p>
 <p>
 	<small> ============== 1天前</small>
 </p><h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3933361531268214" target="freeweibo-mirror">现在还封锁的国家就剩3个， 朝鲜，古巴，和其他国家[挖鼻]</a>
 </h2>
 <p>现在还封锁的国家就剩3个， 朝鲜，古巴，和其他国家[挖鼻]<br><br>RE: 长期以来，伊朗一直对民众执行互联网禁令和限制，这也导致伊朗网民无法登陆Twitter、YouTube或是Facebook等社交网站或视频网站。不过伊朗网民日前惊异的发现，他们已经能够使用YouTube和Twitter等网站的服务，伊朗已经悄然取消Twitter和YouTube网站限制。<br><img src="http://ww3.sinaimg.cn/large/59183920gw1f05wd5ua9ej20h80armyi.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3933358306550021" target="freeweibo-mirror">SPAM [哆啦A梦吃惊]MIKE隋模仿互联网大佬 ，心痛三…</a>
-</h2>
-<p>SPAM [哆啦A梦吃惊]MIKE隋模仿互联网大佬 ，心痛三位，一下子都被玩坏了</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
