@@ -84,7 +84,7 @@
 </h2>
 <p>真以为在FB上乱说没人能看到？谢谢网友@HY蕾蕾蕾 的截图<br><img src="http://ww1.sinaimg.cn/large/5db2d058gw1f06a1oi9oaj20qo0qotcc.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3933466737279805" target="freeweibo-mirror">我大团系第一次明火执仗的出来当流氓头子了，这是有历史纪念意义…</a>
 </h2>
