@@ -24,19 +24,19 @@
 </h2>
 <p>//@草根设计师-CAD:@新华视点 @央视新闻 @央视新闻调查 这哪家的“媒体记者” ？//@CD华夏本尊:央视真特么的应该好好的清理一下了  尽出傻逼和脑残//@无敌饼干姐: 配合工作这么难么？<br><br>RE: CCTV这位记者大哥，你冷，你火了 http://t.cn/RbHE4ot</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3933803015942119" target="freeweibo-mirror">采访十三冬的CCTV记者在新疆机场安检环节的表演，令人失望。…</a>
 </h2>
 <p>采访十三冬的CCTV记者在新疆机场安检环节的表演，令人失望。不光是新疆地区，全国各地安检都是要脱外套的。他的表现抹黑了整个记者群体。<br><br>RE: CCTV这位记者大哥，你冷，你火了 http://t.cn/RbHE4ot</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3933802328463638" target="freeweibo-mirror">SPAM [喵喵]//@静姐姐的静:呵呵哒 //@无敌饼干姐…</a>
 </h2>
 <p>SPAM [喵喵]//@静姐姐的静:呵呵哒 //@无敌饼干姐:配合工作这么难么？<br><br>RE: CCTV这位记者大哥，你冷，你火了 http://t.cn/RbHE4ot</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3933800570113290" target="freeweibo-mirror">SPAM 这是在新疆，敢不配合安检的 除了爆恐份子就是傻叉！…</a>
 </h2>
@@ -96,7 +96,7 @@
 </h2>
 <p>[笑cry][笑cry][笑cry]//@陈业文新大都: [哈哈][哈哈][哈哈] 五毛水军的翻墙之路！ //@金融评论员:[哈哈][哈哈][哈哈] //@李不白的店:[笑cry][笑cry][笑cry]<br><br>RE: “同志们！跟我一起去攻占敌军的桥头堡！”“太好了！我们怎么开始？”“第一步，我们首先攻破我军的防线。。。”</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3933658153272229" target="freeweibo-mirror">[哈哈][哈哈][哈哈]//@陈业文新大都:[哈哈][哈哈]…</a>
 </h2>
