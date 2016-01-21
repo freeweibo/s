@@ -72,7 +72,7 @@
 </h2>
 <p>这不是冷，这是傻啊！//@夏河:刚才我转发的已被删除…如果这条回头也不幸被删…请大家记住这个视频里很冷的央视记者叫@王大年年<br><br>RE: CCAV记者就是牛逼啊，咋上不了天呢[挖鼻]http://t.cn/RbHmblK</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3933855788787459" target="freeweibo-mirror">我还以为是王堂堂。//@红嘴乌鸦:转发微博</a>
 </h2>
