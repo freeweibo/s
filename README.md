@@ -42,7 +42,7 @@
 </h2>
 <p>SPAM 跋扈 //@性感玉米:官方回复临时工妥妥的…<br><br>RE: #央视记者好冷#@王大年年 你现在可火了，不冷了吧[doge] http://t.cn/RbHsA3m .</p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3933877074373379" target="freeweibo-mirror">牛逼帮你红[挖鼻] //@狼-勿开心:目测会红//@中和老頭…</a>
 </h2>
