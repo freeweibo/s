@@ -48,7 +48,7 @@
 </h2>
 <p>SPAM 你丫冷…你丫冷…[鄙视][鄙视][鄙视]<br><br>RE: CCAV记者就是牛逼啊，咋上不了天呢[挖鼻]http://t.cn/RbHmblK</p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3933872192257910" target="freeweibo-mirror">//@方圆_100:呵呵，这就是王大年？[围观] //@孙警…</a>
 </h2>
@@ -78,7 +78,7 @@
 </h2>
 <p>SPAM 这次，我必须帮警官转发！<br><br>RE: 原来是CCTV的记者，佩服[作揖][作揖][作揖]你虽然怕冷，但是你很火 http://t.cn/R4RyYH1</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3933862561894287" target="freeweibo-mirror">这不是冷，这是傻啊！//@夏河:刚才我转发的已被删除…如果这…</a>
 </h2>
