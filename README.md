@@ -48,7 +48,7 @@
 </h2>
 <p>没有引用上诉人上诉意见并批驳，没有阐述和反驳辩护人辩护意见的历史判决—郭飞雄案二审判决维持原判！本案法官广州中院伦铭健，陈少波，杨毅。第六幅图就是我现在的心情。<br><img src="http://ww4.sinaimg.cn/large/0064M62igw1f08as2nwr0j30qo0zk79l.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3934097984152109" target="freeweibo-mirror">回复@CC开发网:看那个人的道歉微博。//@CC开发网:到底…</a>
 </h2>
@@ -114,7 +114,7 @@
 </h2>
 <p>SPAM 跋扈 //@性感玉米:官方回复临时工妥妥的…<br><br>RE: #央视记者好冷#@王大年年 你现在可火了，不冷了吧[doge] http://t.cn/RbHsA3m .</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3933877074373379" target="freeweibo-mirror">牛逼帮你红[挖鼻] //@狼-勿开心:目测会红//@中和老頭…</a>
 </h2>
