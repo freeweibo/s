@@ -84,19 +84,19 @@
 </h2>
 <p>这不是冷，这是傻啊！//@夏河:刚才我转发的已被删除…如果这条回头也不幸被删…请大家记住这个视频里很冷的央视记者叫@王大年年<br><br>RE: CCAV记者就是牛逼啊，咋上不了天呢[挖鼻]http://t.cn/RbHmblK</p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3933855788787459" target="freeweibo-mirror">我还以为是王堂堂。//@红嘴乌鸦:转发微博</a>
 </h2>
 <p>我还以为是王堂堂。//@红嘴乌鸦:转发微博<br><br>RE: 你冷，我冷，大家都冷。这个“记者”太牛逼！说到底是特权思想、跋扈习惯在作怪。 http://t.cn/RbHnsee .</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3933855415158038" target="freeweibo-mirror">【青春的遗书：发动自杀式袭击的日本特攻队员，究竟怎么想？】h…</a>
 </h2>
 <p>【青春的遗书：发动自杀式袭击的日本特攻队员，究竟怎么想？】http://t.cn/RbQvzeL（分享自@澎湃新闻）#我读澎湃#<br><img src="http://ww2.sinaimg.cn/large/005vnhZYjw1f07hq4mjp0j30q518gn5f.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3933851744845064" target="freeweibo-mirror">SPAM //@娇娥C://@杨锦麟:這「國家級媒體」從業人…</a>
 </h2>
