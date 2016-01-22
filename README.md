@@ -24,7 +24,7 @@
 </h2>
 <p>SPAM #随思问道# 150928 http://t.cn/RyvtKvG</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3934024832057467" target="freeweibo-mirror">SPAM 我天，#有钱任性#~~答应我，以后酱紫的酒宴一定要…</a>
 </h2>
