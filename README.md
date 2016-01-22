@@ -126,7 +126,7 @@
 </h2>
 <p>上海自治運動，滬人治滬，吴地自治。內部殖民主義。上海人遭受中國的壓榨與暴政：财富掠夺，人才掠夺，文化灭绝，强制迁出，人口灭绝，外人涌入，无自主权，政治迫害，名誉诋毁。从不抗争，不会改变。<br><img src="http://ww1.sinaimg.cn/large/67d1c1c2gw1f08dpqsdvxj20p018gjyx.jpg"></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3934124698182083" target="freeweibo-mirror">历史总是惊人地相似！从大清的义和团到如今的翻墙小红粉们，两者…</a>
 </h2>
