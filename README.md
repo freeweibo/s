@@ -42,7 +42,7 @@
 </h2>
 <p>那爷叔混PCHOME时候 还叫宽带上网 侬只枪毙具好正常点伐？//@葉遊歡:一副翻墙吃相还混入kds没被人识破，高人哈 //@Merengues大董:[哈哈]//@船人-老姚: 拿爷叔混KDS额 混拿妈妈额贴吧 侬着小浮尸 乱毛长齐了伐 ？//@葉遊歡:侬只贴吧翻墙老将转战回来，余怒未消哈哈哈<br><br>RE: 上海自治運動，滬人治滬，吴地自治。內部殖民主義。上海人遭受中國的壓榨與暴政：财富掠夺，人才掠夺，文化灭绝，强制迁出，人口灭绝，外人涌入，无自主权，政治迫害，名誉诋毁。从不抗争，不会改变。<br><img src="http://ww1.sinaimg.cn/large/67d1c1c2gw1f08dpqsdvxj20p018gjyx.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3934235003974677" target="freeweibo-mirror">回复@猫头鹰快艇:LOSER在什么时代都是LOSER//@猫…</a>
 </h2>
@@ -132,7 +132,7 @@
 </h2>
 <p>历史总是惊人地相似！从大清的义和团到如今的翻墙小红粉们，两者的对比让人无言以对……<br><img src="http://ww2.sinaimg.cn/large/c5d90a82gw1f08d396sfyj208c79bawc.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3934123498881197" target="freeweibo-mirror">SPAM #电影过年好#这么魔性这么洗脑，表示电脑看死机了-…</a>
 </h2>
