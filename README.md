@@ -72,7 +72,7 @@
 </h2>
 <p>[衰]//@北京厨子新号:[笑cry]//@陆亚明: 转发微博<br><br>RE: 历史总是惊人地相似！从大清的义和团到如今的翻墙小红粉们，两者的对比让人无言以对……<br><img src="http://ww2.sinaimg.cn/large/c5d90a82gw1f08d396sfyj208c79bawc.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3934169304350111" target="freeweibo-mirror">蛇精病附身，全国陪着疯子玩，吓得全球提心吊胆！去年811，今…</a>
 </h2>
@@ -84,7 +84,7 @@
 </h2>
 <p>回复@王大国中庸:英尺度比较大。 //@王大国中庸:新闻自由了?这都没人删，看来小编要下岗了 //@谭世平:[白眼] //@山人好人: //@阳光_微言_博语:[NO][NO] //@老杜微评: //@深圳王庆斌:[怒]</p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3934149692249843" target="freeweibo-mirror">SPAM [白眼]//@山人好人: //@阳光_微言_博语:…</a>
 </h2>
@@ -103,6 +103,12 @@
 <p>很多年了，羡慕会翻墙的人，听他们眉飞色舞的讲那墙外的事情。我绝不翻墙，一来乡下老头笨手笨脚的，二来官府修的墙不是让你随便翻的。除非，把那墙拆了，老汉我就甩手甩脚的走出去耍一盘。<br><img src="http://ww4.sinaimg.cn/large/63eb5b8dgw1f08f8obudgj20b407gq3q.jpg"></p>
 <p>
 	<small> ============== 8小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3934130482114128" target="freeweibo-mirror">上海自治運動，滬人治滬，吴地自治。內部殖民主義。上海人遭受中…</a>
+</h2>
+<p>上海自治運動，滬人治滬，吴地自治。內部殖民主義。上海人遭受中國的壓榨與暴政：财富掠夺，人才掠夺，文化灭绝，强制迁出，人口灭绝，外人涌入，无自主权，政治迫害，名誉诋毁。从不抗争，不会改变。<br><img src="http://ww1.sinaimg.cn/large/67d1c1c2gw1f08dpqsdvxj20p018gjyx.jpg"></p>
+<p>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3934124698182083" target="freeweibo-mirror">历史总是惊人地相似！从大清的义和团到如今的翻墙小红粉们，两者…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3934112961973440" target="freeweibo-mirror">//@朱德泉: 对这样的记者要宽容[笑cry]他冷，直接让他…</a>
 </h2>
 <p>//@朱德泉: 对这样的记者要宽容[笑cry]他冷，直接让他回家别再上班了，不是更宽容吗？<br><br>RE: #我冷# 央视记者就是牛逼，不但网上到处屏蔽和删除相关视频及发言，还把手伸向了安检工作。作为国家媒体你们能不知道新疆反恐工作的严峻？干的漂亮，央视你们是恐怖分子的帮凶？或者你们就是恐怖分子？安检以后得对你们特权放行，信不信恐怖分子以后人手一张央视记者采访证？央视记者面子大于别人的命<br><img src="http://ww2.sinaimg.cn/large/76102133jw1f07zi3orpzj20k00ph41f.jpg"></p>
-<p>
-	<small> ============== 10小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3934109266904351" target="freeweibo-mirror">SPAM 本案法官广州中院伦铭健，陈少波，杨毅</a>
-</h2>
-<p>SPAM 本案法官广州中院伦铭健，陈少波，杨毅<br><br>RE: 没有引用上诉人上诉意见并批驳，没有阐述和反驳辩护人辩护意见的历史判决—郭飞雄案二审判决维持原判！本案法官广州中院伦铭健，陈少波，杨毅。第六幅图就是我现在的心情。<br><img src="http://ww4.sinaimg.cn/large/0064M62igw1f08as2nwr0j30qo0zk79l.jpg"></p>
 <p>
 	<small> ============== 10小时前</small>
 </p>
