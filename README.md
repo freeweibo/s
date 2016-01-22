@@ -24,7 +24,7 @@
 </h2>
 <p>SPAM 我天，#有钱任性#~~答应我，以后酱紫的酒宴一定要叫我[太开心]http://t.cn/RbQfwwm</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3933991658751528" target="freeweibo-mirror">SPAM 跋扈 //@性感玉米:官方回复临时工妥妥的…</a>
 </h2>
