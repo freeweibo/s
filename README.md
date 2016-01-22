@@ -36,7 +36,7 @@
 </h2>
 <p>呦 侬只刚早西活到现在绝对是奇迹 撸色～//@葉遊歡:侬介大岁数还混得象翻墙小将，侬好正常眼伐？//@船人-老姚:那爷叔混PCHOME时候 还叫宽带上网 侬只枪毙具好正常点伐？ //@Merengues大董:[哈哈]//@船人-老姚: 拿爷叔混KDS额 混拿妈妈额贴吧 侬着小浮尸 乱毛长齐了伐 ？<br><br>RE: 上海自治運動，滬人治滬，吴地自治。內部殖民主義。上海人遭受中國的壓榨與暴政：财富掠夺，人才掠夺，文化灭绝，强制迁出，人口灭绝，外人涌入，无自主权，政治迫害，名誉诋毁。从不抗争，不会改变。<br><img src="http://ww1.sinaimg.cn/large/67d1c1c2gw1f08dpqsdvxj20p018gjyx.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3934237624939016" target="freeweibo-mirror">那爷叔混PCHOME时候 还叫宽带上网 侬只枪毙具好正常点伐…</a>
 </h2>
@@ -66,7 +66,7 @@
 </h2>
 <p>SPAM [笑cry]//@战术狂郑三炮:太欢乐了！//@Cheka-机枪天使:爱国小粉红连死都不怕还怕冷？？？只要死的是别人就好[笑cry][笑cry][笑cry]<br><br>RE: 事情是这样的，有个台独分子假装爱国青年发了这样的内容，企图怂恿大家上街游行制造内乱，他万万没想到那天是寒潮到来最冷的一天，评论笑死我了[笑cry][笑cry][笑cry]<br><img src="http://ww3.sinaimg.cn/large/6cfd5b02gw1f088sxkcqfj20d80ac0tp.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3934203508587693" target="freeweibo-mirror">SPAM //@杜芝富://@徐xiaopang0531: …</a>
 </h2>
@@ -108,7 +108,7 @@
 </h2>
 <p>SPAM [白眼]//@山人好人: //@阳光_微言_博语:[NO][NO]//@老杜微评: //@深圳王庆斌:[怒]</p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3934148093323871" target="freeweibo-mirror">不可能三角又变得想以汇率为重心了，汇率现在又想消除预期了，那…</a>
 </h2>
