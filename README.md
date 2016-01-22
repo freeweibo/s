@@ -60,7 +60,7 @@
 </h2>
 <p>说你白痴算是抬举你 脖子上顶的夜壶的家伙 //@葉遊歡:右边也是翻墙转战fb的爱国人士伐，开口即白痴[震惊]//@船人-老姚:中国只有在大一统的时候才最为强盛 白痴//@葉遊歡:自秦以降，分裂与统一历时各有千年，何以统一为正，分裂为反？//<br><br>RE: 上海自治運動，滬人治滬，吴地自治。內部殖民主義。上海人遭受中國的壓榨與暴政：财富掠夺，人才掠夺，文化灭绝，强制迁出，人口灭绝，外人涌入，无自主权，政治迫害，名誉诋毁。从不抗争，不会改变。<br><img src="http://ww1.sinaimg.cn/large/67d1c1c2gw1f08dpqsdvxj20p018gjyx.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3934210118983984" target="freeweibo-mirror">SPAM [笑cry]//@战术狂郑三炮:太欢乐了！//@C…</a>
 </h2>
@@ -132,7 +132,7 @@
 </h2>
 <p>历史总是惊人地相似！从大清的义和团到如今的翻墙小红粉们，两者的对比让人无言以对……<br><img src="http://ww2.sinaimg.cn/large/c5d90a82gw1f08d396sfyj208c79bawc.jpg"></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3934123498881197" target="freeweibo-mirror">SPAM #电影过年好#这么魔性这么洗脑，表示电脑看死机了-…</a>
 </h2>
