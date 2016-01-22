@@ -54,7 +54,7 @@
 </h2>
 <p>拿爷叔混KDS额 混拿妈妈额贴吧 侬着小浮尸 乱毛长齐了伐 ？//@葉遊歡:侬只贴吧翻墙老将转战回来，余怒未消哈哈哈//@船人-老姚:说你白痴算是抬举你 脖子上顶的夜壶的家伙 //@葉遊歡:右边也是翻墙转战fb的爱国人士伐，开口即白痴[震惊]//@船人-老姚:中国只有在大一统的时候才最为强盛 白痴<br><br>RE: 上海自治運動，滬人治滬，吴地自治。內部殖民主義。上海人遭受中國的壓榨與暴政：财富掠夺，人才掠夺，文化灭绝，强制迁出，人口灭绝，外人涌入，无自主权，政治迫害，名誉诋毁。从不抗争，不会改变。<br><img src="http://ww1.sinaimg.cn/large/67d1c1c2gw1f08dpqsdvxj20p018gjyx.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3934229908293545" target="freeweibo-mirror">说你白痴算是抬举你 脖子上顶的夜壶的家伙 //@葉遊歡:右边…</a>
 </h2>
@@ -72,7 +72,7 @@
 </h2>
 <p>SPAM //@杜芝富://@徐xiaopang0531: //@孔智勇40: //@twitor: //@湘潭勇哥: //@绝对集团: //@平凡的沙石: 爱国贼对着全世界文明，露出丑陋的下体，毫无廉耻。<br><br>RE: 热腾腾的新图<br><img src="http://ww4.sinaimg.cn/large/006dLzDfgw1f08h2ahde6j30lo0ezq65.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3934189688935789" target="freeweibo-mirror">同右边，右边滴右边都装逼！[哈哈]//@地瓜老汉: 又装逼，…</a>
 </h2>
@@ -120,7 +120,7 @@
 </h2>
 <p>很多年了，羡慕会翻墙的人，听他们眉飞色舞的讲那墙外的事情。我绝不翻墙，一来乡下老头笨手笨脚的，二来官府修的墙不是让你随便翻的。除非，把那墙拆了，老汉我就甩手甩脚的走出去耍一盘。<br><img src="http://ww4.sinaimg.cn/large/63eb5b8dgw1f08f8obudgj20b407gq3q.jpg"></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3934130482114128" target="freeweibo-mirror">上海自治運動，滬人治滬，吴地自治。內部殖民主義。上海人遭受中…</a>
 </h2>
