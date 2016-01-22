@@ -84,7 +84,7 @@
 </h2>
 <p>[衰]//@北京厨子新号:[笑cry]//@陆亚明: 转发微博<br><br>RE: 历史总是惊人地相似！从大清的义和团到如今的翻墙小红粉们，两者的对比让人无言以对……<br><img src="http://ww2.sinaimg.cn/large/c5d90a82gw1f08d396sfyj208c79bawc.jpg"></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3934169304350111" target="freeweibo-mirror">蛇精病附身，全国陪着疯子玩，吓得全球提心吊胆！去年811，今…</a>
 </h2>
