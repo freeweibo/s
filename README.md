@@ -24,7 +24,7 @@
 </h2>
 <p>SPAM #电影过年好#这么魔性这么洗脑，表示电脑看死机了- -</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3934097984152109" target="freeweibo-mirror">回复@CC开发网:看那个人的道歉微博。//@CC开发网:到底…</a>
 </h2>
@@ -66,7 +66,7 @@
 </h2>
 <p>SPAM #随思问道# 150928 http://t.cn/RyvtKvG</p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3934024832057467" target="freeweibo-mirror">SPAM 我天，#有钱任性#~~答应我，以后酱紫的酒宴一定要…</a>
 </h2>
