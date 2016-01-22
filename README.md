@@ -36,13 +36,13 @@
 </h2>
 <p>牛逼帮你红[挖鼻] //@狼-勿开心:目测会红//@中和老頭: @央视新闻 你丢不丢脸！中央级媒体的员工就这么牛逼吗？ 他是@王大年年 吗？<br><br>RE: CCAV记者就是牛逼啊，咋上不了天呢[挖鼻]http://t.cn/RbHmblK</p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3933876311307632" target="freeweibo-mirror">//@zhyaga: //@水6度:转发微博</a>
 </h2>
 <p>//@zhyaga: //@水6度:转发微博<br><br>RE: 香港书店事件余波未了：《前哨》员工曾被带走问话（1）<br><img src="http://ww3.sinaimg.cn/large/006mTwAlgw1f073yeaoytj30k00zk7b9.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3933872733494499" target="freeweibo-mirror">SPAM 你丫冷…你丫冷…[鄙视][鄙视][鄙视]</a>
 </h2>
@@ -66,13 +66,13 @@
 </h2>
 <p>SPAM 装逼装得不伦不类，纯脑残嘛//@莹莹依水: 坐等删帖//@如皋老猫:【阴毒澎湃，有种别删】感谢这样的奸媒让广大爱国青年更清楚地看懂看清公知和南方系们的丑恶嘴脸。<br><br>RE: 【青春的遗书：发动自杀式袭击的日本特攻队员，究竟怎么想？】http://t.cn/RbQvzeL（分享自@澎湃新闻）#我读澎湃#<br><img src="http://ww2.sinaimg.cn/large/005vnhZYjw1f07hq4mjp0j30q518gn5f.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3933869306815092" target="freeweibo-mirror">应该抓//@孙警官说事: 扰乱公共秩序，抓起来了没?//@施…</a>
 </h2>
 <p>应该抓//@孙警官说事: 扰乱公共秩序，抓起来了没?//@施怀基:这次，我必须帮警官转发！<br><br>RE: 原来是CCTV的记者，佩服[作揖][作揖][作揖]你虽然怕冷，但是你很火 http://t.cn/R4RyYH1</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3933864999436957" target="freeweibo-mirror">SPAM 这次，我必须帮警官转发！</a>
 </h2>
