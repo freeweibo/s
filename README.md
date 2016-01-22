@@ -38,6 +38,12 @@
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3934104741143488" target="freeweibo-mirror">没有引用上诉人上诉意见并批驳，没有阐述和反驳辩护人辩护意见的…</a>
+</h2>
+<p>没有引用上诉人上诉意见并批驳，没有阐述和反驳辩护人辩护意见的历史判决—郭飞雄案二审判决维持原判！本案法官广州中院伦铭健，陈少波，杨毅。第六幅图就是我现在的心情。<br><img src="http://ww4.sinaimg.cn/large/0064M62igw1f08as2nwr0j30qo0zk79l.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3934097984152109" target="freeweibo-mirror">回复@CC开发网:看那个人的道歉微博。//@CC开发网:到底…</a>
 </h2>
 <p>回复@CC开发网:看那个人的道歉微博。//@CC开发网:到底是机场安检还是冬运场馆安检啊？怎么好多版本。//@高春辉:回复@我付账:请把以上的话转给当事人看，我认为比较妥当。<br><br>RE: 好牛X！！！央视CCTV5摄影记者王华年，坐飞机过安检为难年轻工作人员全过程被曝光。不但口出狂言自比“省领导”，更扔掉行李后栽赃安检员并动手殴打。http://t.cn/RbHmblK</p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3933870384772757" target="freeweibo-mirror">呵呵，这就是王大年？[围观] //@孙警官说事:扰乱公共秩序…</a>
 </h2>
 <p>呵呵，这就是王大年？[围观] //@孙警官说事:扰乱公共秩序，抓起来了没?//@施怀基:这次，我必须帮警官转发！<br><br>RE: 原来是CCTV的记者，佩服[作揖][作揖][作揖]你虽然怕冷，但是你很火 http://t.cn/R4RyYH1</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3933869776380720" target="freeweibo-mirror">SPAM 装逼装得不伦不类，纯脑残嘛//@莹莹依水: 坐等删…</a>
-</h2>
-<p>SPAM 装逼装得不伦不类，纯脑残嘛//@莹莹依水: 坐等删帖//@如皋老猫:【阴毒澎湃，有种别删】感谢这样的奸媒让广大爱国青年更清楚地看懂看清公知和南方系们的丑恶嘴脸。<br><br>RE: 【青春的遗书：发动自杀式袭击的日本特攻队员，究竟怎么想？】http://t.cn/RbQvzeL（分享自@澎湃新闻）#我读澎湃#<br><img src="http://ww2.sinaimg.cn/large/005vnhZYjw1f07hq4mjp0j30q518gn5f.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
