@@ -48,7 +48,7 @@
 </h2>
 <p>没有引用上诉人上诉意见并批驳，没有阐述和反驳辩护人辩护意见的历史判决—郭飞雄案二审判决维持原判！本案法官广州中院伦铭健，陈少波，杨毅。第六幅图就是我现在的心情。<br><img src="http://ww4.sinaimg.cn/large/0064M62igw1f08as2nwr0j30qo0zk79l.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3934097984152109" target="freeweibo-mirror">回复@CC开发网:看那个人的道歉微博。//@CC开发网:到底…</a>
 </h2>
@@ -108,7 +108,7 @@
 </h2>
 <p>#我冷# 央视记者就是牛逼，不但网上到处屏蔽和删除相关视频及发言，还把手伸向了安检工作。作为国家媒体你们能不知道新疆反恐工作的严峻？干的漂亮，央视你们是恐怖分子的帮凶？或者你们就是恐怖分子？安检以后得对你们特权放行，信不信恐怖分子以后人手一张央视记者采访证？央视记者面子大于别人的命<br><img src="http://ww2.sinaimg.cn/large/76102133jw1f07zi3orpzj20k00ph41f.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3933991658751528" target="freeweibo-mirror">SPAM 跋扈 //@性感玉米:官方回复临时工妥妥的…</a>
 </h2>
