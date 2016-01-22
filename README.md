@@ -24,7 +24,7 @@
 </h2>
 <p>SPAM #电影过年好#这么魔性这么洗脑，表示电脑看死机了- -</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3934122123175003" target="freeweibo-mirror">厉害厉害！这个歌唱的我给满分！ #王健林上春晚#</a>
 </h2>
@@ -90,7 +90,7 @@
 </h2>
 <p>SPAM #随思问道# 150928 http://t.cn/RyvtKvG</p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3934024832057467" target="freeweibo-mirror">SPAM 我天，#有钱任性#~~答应我，以后酱紫的酒宴一定要…</a>
 </h2>
