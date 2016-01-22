@@ -30,13 +30,13 @@
 </h2>
 <p>//@终南刺青:不是很懂。。貌似交换机应该是华为的强项，估计这傻叉也没赚到中国几个钱//@天诛加秃保前三: http://t.cn/RbQC4J4  做交换机的，我还以为啥高科技……//@carlvinson金牛: //@终南刺青:谁来曝曝他家啥产品卖到了中国？//@章晓华微博: 让他火。[话筒][话筒] //@孤烟暮蝉:扩散<br><br>RE: 发现台独分子杨明超，“益网科技”创办人兼执行长，在FB上大放厥词，称“赚中国人的钱大力支持台独”，而且每到一处就大张旗鼓地宣传自己的台独理念。这种就不多说什么了，请广传<br><img src="http://ww3.sinaimg.cn/large/a762cab6jw1f06qlgdi53j20hs0vkjxm.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3934096675523679" target="freeweibo-mirror">回复@我付账:请把以上的话转给当事人看，我认为比较妥当。</a>
 </h2>
 <p>回复@我付账:请把以上的话转给当事人看，我认为比较妥当。<br><br>RE: 好牛X！！！央视CCTV5摄影记者王华年，坐飞机过安检为难年轻工作人员全过程被曝光。不但口出狂言自比“省领导”，更扔掉行李后栽赃安检员并动手殴打。http://t.cn/RbHmblK</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3934093908066638" target="freeweibo-mirror">大裤衩里暖和</a>
 </h2>
@@ -54,7 +54,7 @@
 </h2>
 <p>没病，因为有病也不说！//@王亚军上海: 转发微博</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3934048378091469" target="freeweibo-mirror">SPAM #随思问道# 150928 http://t.cn…</a>
 </h2>
@@ -78,7 +78,7 @@
 </h2>
 <p>SPAM 跋扈 //@性感玉米:官方回复临时工妥妥的…<br><br>RE: #央视记者好冷#@王大年年 你现在可火了，不冷了吧[doge] http://t.cn/RbHsA3m .</p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3933877074373379" target="freeweibo-mirror">牛逼帮你红[挖鼻] //@狼-勿开心:目测会红//@中和老頭…</a>
 </h2>
