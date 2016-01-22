@@ -50,6 +50,12 @@
 <p>
 	<small> ============== 4小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3934066510757025" target="freeweibo-mirror">没病，因为有病也不说！//@王亚军上海: 转发微博</a>
+</h2>
+<p>没病，因为有病也不说！//@王亚军上海: 转发微博</p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3934048378091469" target="freeweibo-mirror">SPAM #随思问道# 150928 http://t.cn…</a>
 </h2>
 <p>SPAM #随思问道# 150928 http://t.cn/RyvtKvG</p>
@@ -66,7 +72,7 @@
 </h2>
 <p>SPAM //@Paul郑褚:第一次看，确实挺好的一个老哥 //@皮诺切特大大: 老雷每次都很实在，经常提一下porn之类的[哈哈]。井底之蛙表示墙外的porn站没怎么上过，一般只上艹榴社区，是不是墙外的porn站也比艹榴社区好呢[思考]</p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3933991658751528" target="freeweibo-mirror">SPAM 跋扈 //@性感玉米:官方回复临时工妥妥的…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3933862561894287" target="freeweibo-mirror">这不是冷，这是傻啊！//@夏河:刚才我转发的已被删除…如果这…</a>
 </h2>
 <p>这不是冷，这是傻啊！//@夏河:刚才我转发的已被删除…如果这条回头也不幸被删…请大家记住这个视频里很冷的央视记者叫@王大年年<br><br>RE: CCAV记者就是牛逼啊，咋上不了天呢[挖鼻]http://t.cn/RbHmblK</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3933858590704722" target="freeweibo-mirror">我支持！ 老雷128：帝吧出征FB http://t.cn/…</a>
-</h2>
-<p>我支持！ 老雷128：帝吧出征FB http://t.cn/RbQvEgR     http://t.cn/RbQvolw</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
