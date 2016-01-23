@@ -54,7 +54,7 @@
 </h2>
 <p>SPAM 生活也是政治。 //@清华孙立平:这个对。 //@北京崔卫平:“两岸老人家谈政治谈得乱七八糟，年轻人当然是要谈生活呀！”——生活大于政治，在生活中学会做人。<br><br>RE: 打开防火墙，交流更顺畅。不打不相识的两岸年轻一代_贾选凝_腾讯大家 http://t.cn/Rb8Ct7q</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3934442894838883" target="freeweibo-mirror">SPAM “两岸老人家谈政治谈得乱七八糟，年轻人当然是要谈生…</a>
 </h2>
@@ -78,7 +78,7 @@
 </h2>
 <p>【帝吧fb出征】作为曾经的团员，坚决支持团中央，请让中国人民，天天翻墙，时刻翻墙http://t.cn/Rb86Acl 支持者转<br><img src="http://ww4.sinaimg.cn/large/6a3d7f8cgw1f098lgtud1j20a10bh0un.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3934382244610447" target="freeweibo-mirror">【一中各表】台湾属于中华民国。//@记者-薛洪涛: //@常…</a>
 </h2>
