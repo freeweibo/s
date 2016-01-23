@@ -30,7 +30,7 @@
 </h2>
 <p>SPAM [泪]只想封印自己在被窝里！这组超棒的爱屁屁收下了[心]</p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3934518371609187" target="freeweibo-mirror">CB新出的这部，very goooood[哆啦A梦花心]各种…</a>
 </h2>
@@ -42,7 +42,7 @@
 </h2>
 <p>SPAM 一个在苏宁工作过接近7年的苏宁人，从一个消费者的角度给苏宁一些反馈，以一个电商人的角度给所有的电商人一个提醒。</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3934457846884118" target="freeweibo-mirror">//@清华孙立平: 回复@他说GNKE:你是说共产党领导下的…</a>
 </h2>
