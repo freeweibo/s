@@ -32,6 +32,12 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3934448028007583" target="freeweibo-mirror">回复@他说GNKE:你是说共产党领导下的社会主义人民比资本主…</a>
+</h2>
+<p>回复@他说GNKE:你是说共产党领导下的社会主义人民比资本主义社会的人素质低下？<br><br>RE: 打开防火墙，交流更顺畅。不打不相识的两岸年轻一代_贾选凝_腾讯大家 http://t.cn/Rb8Ct7q</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3934446652444561" target="freeweibo-mirror">SPAM 这文章，有趣。</a>
 </h2>
 <p>SPAM 这文章，有趣。<br><br>RE: 打开防火墙，交流更顺畅。不打不相识的两岸年轻一代_贾选凝_腾讯大家 http://t.cn/Rb8Ct7q</p>
@@ -48,7 +54,7 @@
 </h2>
 <p>SPAM 生活也是政治。 //@清华孙立平:这个对。 //@北京崔卫平:“两岸老人家谈政治谈得乱七八糟，年轻人当然是要谈生活呀！”——生活大于政治，在生活中学会做人。<br><br>RE: 打开防火墙，交流更顺畅。不打不相识的两岸年轻一代_贾选凝_腾讯大家 http://t.cn/Rb8Ct7q</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3934442894838883" target="freeweibo-mirror">SPAM “两岸老人家谈政治谈得乱七八糟，年轻人当然是要谈生…</a>
 </h2>
@@ -72,7 +78,7 @@
 </h2>
 <p>【帝吧fb出征】作为曾经的团员，坚决支持团中央，请让中国人民，天天翻墙，时刻翻墙http://t.cn/Rb86Acl 支持者转<br><img src="http://ww4.sinaimg.cn/large/6a3d7f8cgw1f098lgtud1j20a10bh0un.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3934382244610447" target="freeweibo-mirror">【一中各表】台湾属于中华民国。//@记者-薛洪涛: //@常…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3934229908293545" target="freeweibo-mirror">说你白痴算是抬举你 脖子上顶的夜壶的家伙 //@葉遊歡:右边…</a>
 </h2>
 <p>说你白痴算是抬举你 脖子上顶的夜壶的家伙 //@葉遊歡:右边也是翻墙转战fb的爱国人士伐，开口即白痴[震惊]//@船人-老姚:中国只有在大一统的时候才最为强盛 白痴//@葉遊歡:自秦以降，分裂与统一历时各有千年，何以统一为正，分裂为反？//<br><br>RE: 上海自治運動，滬人治滬，吴地自治。內部殖民主義。上海人遭受中國的壓榨與暴政：财富掠夺，人才掠夺，文化灭绝，强制迁出，人口灭绝，外人涌入，无自主权，政治迫害，名誉诋毁。从不抗争，不会改变。<br><img src="http://ww1.sinaimg.cn/large/67d1c1c2gw1f08dpqsdvxj20p018gjyx.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3934210118983984" target="freeweibo-mirror">SPAM [笑cry]//@战术狂郑三炮:太欢乐了！//@C…</a>
-</h2>
-<p>SPAM [笑cry]//@战术狂郑三炮:太欢乐了！//@Cheka-机枪天使:爱国小粉红连死都不怕还怕冷？？？只要死的是别人就好[笑cry][笑cry][笑cry]<br><br>RE: 事情是这样的，有个台独分子假装爱国青年发了这样的内容，企图怂恿大家上街游行制造内乱，他万万没想到那天是寒潮到来最冷的一天，评论笑死我了[笑cry][笑cry][笑cry]<br><img src="http://ww3.sinaimg.cn/large/6cfd5b02gw1f088sxkcqfj20d80ac0tp.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
