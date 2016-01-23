@@ -66,7 +66,7 @@
 </h2>
 <p>SPAM [笑cry]//@战术狂郑三炮:太欢乐了！//@Cheka-机枪天使:爱国小粉红连死都不怕还怕冷？？？只要死的是别人就好[笑cry][笑cry][笑cry]<br><br>RE: 事情是这样的，有个台独分子假装爱国青年发了这样的内容，企图怂恿大家上街游行制造内乱，他万万没想到那天是寒潮到来最冷的一天，评论笑死我了[笑cry][笑cry][笑cry]<br><img src="http://ww3.sinaimg.cn/large/6cfd5b02gw1f088sxkcqfj20d80ac0tp.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3934203508587693" target="freeweibo-mirror">SPAM //@杜芝富://@徐xiaopang0531: …</a>
 </h2>
