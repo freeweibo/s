@@ -42,13 +42,13 @@
 </h2>
 <p>你导师是搞防火墙的，这么教你们的？ //@清华孙立平:回复@他说GNKE:你是说共产党领导下的社会主义人民比资本主义社会的人素质低下？<br><br>RE: 打开防火墙，交流更顺畅。不打不相识的两岸年轻一代_贾选凝_腾讯大家 http://t.cn/Rb8Ct7q</p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3934448028007583" target="freeweibo-mirror">回复@他说GNKE:你是说共产党领导下的社会主义人民比资本主…</a>
 </h2>
 <p>回复@他说GNKE:你是说共产党领导下的社会主义人民比资本主义社会的人素质低下？<br><br>RE: 打开防火墙，交流更顺畅。不打不相识的两岸年轻一代_贾选凝_腾讯大家 http://t.cn/Rb8Ct7q</p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3934446652444561" target="freeweibo-mirror">SPAM 这文章，有趣。</a>
 </h2>
