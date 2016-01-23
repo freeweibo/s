@@ -20,6 +20,18 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3934457846884118" target="freeweibo-mirror">//@清华孙立平: 回复@他说GNKE:你是说共产党领导下的…</a>
+</h2>
+<p>//@清华孙立平: 回复@他说GNKE:你是说共产党领导下的社会主义人民比资本主义社会的人素质低下？<br><br>RE: 打开防火墙，交流更顺畅。不打不相识的两岸年轻一代_贾选凝_腾讯大家 http://t.cn/Rb8Ct7q</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3934448305036326" target="freeweibo-mirror">你导师是搞防火墙的，这么教你们的？ //@清华孙立平:回复@…</a>
+</h2>
+<p>你导师是搞防火墙的，这么教你们的？ //@清华孙立平:回复@他说GNKE:你是说共产党领导下的社会主义人民比资本主义社会的人素质低下？<br><br>RE: 打开防火墙，交流更顺畅。不打不相识的两岸年轻一代_贾选凝_腾讯大家 http://t.cn/Rb8Ct7q</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3934446652444561" target="freeweibo-mirror">SPAM 这文章，有趣。</a>
 </h2>
 <p>SPAM 这文章，有趣。<br><br>RE: 打开防火墙，交流更顺畅。不打不相识的两岸年轻一代_贾选凝_腾讯大家 http://t.cn/Rb8Ct7q</p>
@@ -42,7 +54,7 @@
 </h2>
 <p>SPAM “两岸老人家谈政治谈得乱七八糟，年轻人当然是要谈生活呀！”——生活大于政治，在生活中学会做人。<br><br>RE: 打开防火墙，交流更顺畅。不打不相识的两岸年轻一代_贾选凝_腾讯大家 http://t.cn/Rb8Ct7q</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3934433922600770" target="freeweibo-mirror">打开防火墙，交流更顺畅。不打不相识的两岸年轻一代_贾选凝_腾…</a>
 </h2>
@@ -66,7 +78,7 @@
 </h2>
 <p>【一中各表】台湾属于中华民国。//@记者-薛洪涛: //@常州杨洪波://@笨笨an: 转发微博<br><br>RE: 赵太爷冷眼看着一群狗自发地冲出铁笼，冲门外狂吠，享受了片刻作为主人的威风，然后狠狠敲打烟袋锅，喊道：“滚回来！”狗们自发地停止吠叫，又自发地灰溜溜钻回铁笼。赵太爷瞥了一眼旁边那不配姓赵的阿Q，又燃了一袋烟，悠悠地说：“那铁笼子该修修了！”阿Q果然欣然领命，满脸荣耀地拿工具去了。<br><img src="http://ww4.sinaimg.cn/large/450d9682gw1f0948bietzj20go0go3zk.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3934361017404468" target="freeweibo-mirror">赵太爷冷眼看着一群狗自发地冲出铁笼，冲门外狂吠，享受了片刻作…</a>
 </h2>
@@ -125,18 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3934210118983984" target="freeweibo-mirror">SPAM [笑cry]//@战术狂郑三炮:太欢乐了！//@C…</a>
 </h2>
 <p>SPAM [笑cry]//@战术狂郑三炮:太欢乐了！//@Cheka-机枪天使:爱国小粉红连死都不怕还怕冷？？？只要死的是别人就好[笑cry][笑cry][笑cry]<br><br>RE: 事情是这样的，有个台独分子假装爱国青年发了这样的内容，企图怂恿大家上街游行制造内乱，他万万没想到那天是寒潮到来最冷的一天，评论笑死我了[笑cry][笑cry][笑cry]<br><img src="http://ww3.sinaimg.cn/large/6cfd5b02gw1f088sxkcqfj20d80ac0tp.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3934206310621656" target="freeweibo-mirror">WW准备反攻了。怕～怕～[哈欠][哈欠]</a>
-</h2>
-<p>WW准备反攻了。怕～怕～[哈欠][哈欠]<br><img src="http://ww2.sinaimg.cn/large/c37c67cbgw1f08mgqhzsnj20hs0o2dhf.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3934203508587693" target="freeweibo-mirror">SPAM //@杜芝富://@徐xiaopang0531: …</a>
-</h2>
-<p>SPAM //@杜芝富://@徐xiaopang0531: //@孔智勇40: //@twitor: //@湘潭勇哥: //@绝对集团: //@平凡的沙石: 爱国贼对着全世界文明，露出丑陋的下体，毫无廉耻。<br><br>RE: 热腾腾的新图<br><img src="http://ww4.sinaimg.cn/large/006dLzDfgw1f08h2ahde6j30lo0ezq65.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
