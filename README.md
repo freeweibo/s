@@ -78,7 +78,7 @@
 </h2>
 <p>打开防火墙，交流更顺畅。不打不相识的两岸年轻一代_贾选凝_腾讯大家 http://t.cn/Rb8Ct7q</p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3934406378960431" target="freeweibo-mirror">大家明天厦门见[爱你]希望不要太冷。</a>
 </h2>
