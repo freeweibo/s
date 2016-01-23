@@ -48,7 +48,7 @@
 </h2>
 <p>[生病]//@转帖小王: [吃惊]//@高小曜://@乌托国民16: //@小南街胡同B: //@对坏的制度不会忍很久4://@决不做奴隶6:转发微博<br><br>RE: http://t.cn/RbQpRbN 某国衙役向百姓开战了！？？ http://t.cn/RbQjBpp<br><img src="http://ww1.sinaimg.cn/large/006mJvUljw1f08cj6mo5oj30cl0k4wev.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3934240217572346" target="freeweibo-mirror">呦 侬只刚早西活到现在绝对是奇迹 撸色～//@葉遊歡:侬介大…</a>
 </h2>
@@ -66,7 +66,7 @@
 </h2>
 <p>回复@猫头鹰快艇:LOSER在什么时代都是LOSER//@猫头鹰快艇:因为他在治世里活得也跟狗差不多，所以想换个乱世碰运气//@船人-老姚:你愿意做乱世狗没人愿意拦着 你觉得不想做中国人 可以圆润的离开这个国家 中国还没成为一个发达国家就想着 分裂成零碎 你妈怀你的时候做过唐氏筛查吗？<br><br>RE: 上海自治運動，滬人治滬，吴地自治。內部殖民主義。上海人遭受中國的壓榨與暴政：财富掠夺，人才掠夺，文化灭绝，强制迁出，人口灭绝，外人涌入，无自主权，政治迫害，名誉诋毁。从不抗争，不会改变。<br><img src="http://ww1.sinaimg.cn/large/67d1c1c2gw1f08dpqsdvxj20p018gjyx.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3934234546283321" target="freeweibo-mirror">拿爷叔混KDS额 混拿妈妈额贴吧 侬着小浮尸 乱毛长齐了伐 …</a>
 </h2>
