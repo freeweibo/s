@@ -30,7 +30,7 @@
 </h2>
 <p>[生病]//@转帖小王: [吃惊]//@高小曜://@乌托国民16: //@小南街胡同B: //@对坏的制度不会忍很久4://@决不做奴隶6:转发微博<br><br>RE: http://t.cn/RbQpRbN 某国衙役向百姓开战了！？？ http://t.cn/RbQjBpp<br><img src="http://ww1.sinaimg.cn/large/006mJvUljw1f08cj6mo5oj30cl0k4wev.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3934240217572346" target="freeweibo-mirror">呦 侬只刚早西活到现在绝对是奇迹 撸色～//@葉遊歡:侬介大…</a>
 </h2>
@@ -78,7 +78,7 @@
 </h2>
 <p>同右边，右边滴右边都装逼！[哈哈]//@地瓜老汉: 又装逼，山西兴县樊猴子的儿子你能不知？老汉来告诉你，博主父亲早年投军阎锡山，与鬼子做战被俘成伪军，再后与八路作战被俘投降修正果，后随@米瑞蓉 父老革命米建书入川娶妻生博主。//@文山娃:过了这阵再说 //@爱新觉罗-载仁: //@文山娃:隐约有反动气息<br><br>RE: 很多年了，羡慕会翻墙的人，听他们眉飞色舞的讲那墙外的事情。我绝不翻墙，一来乡下老头笨手笨脚的，二来官府修的墙不是让你随便翻的。除非，把那墙拆了，老汉我就甩手甩脚的走出去耍一盘。<br><img src="http://ww4.sinaimg.cn/large/63eb5b8dgw1f08f8obudgj20b407gq3q.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3934181740207484" target="freeweibo-mirror">[衰]//@北京厨子新号:[笑cry]//@陆亚明: 转发微…</a>
 </h2>
