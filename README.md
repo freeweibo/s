@@ -30,7 +30,7 @@
 </h2>
 <p>SPAM [泪]只想封印自己在被窝里！这组超棒的爱屁屁收下了[心]</p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3934518371609187" target="freeweibo-mirror">CB新出的这部，very goooood[哆啦A梦花心]各种…</a>
 </h2>
