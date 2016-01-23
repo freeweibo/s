@@ -24,7 +24,7 @@
 </h2>
 <p>SPAM 我觉得我连床都不想离开//@林六月: 求原微博传送门，想去围观 //@孤独的僵尸是可耻的:何必呢~~~~~<br><br>RE: 事情是这样的，有个台独分子假装爱国青年发了这样的内容，企图怂恿大家上街游行制造内乱，他万万没想到那天是寒潮到来最冷的一天，评论笑死我了[笑cry][笑cry][笑cry]<br><img src="http://ww3.sinaimg.cn/large/6cfd5b02gw1f088sxkcqfj20d80ac0tp.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3934242826052492" target="freeweibo-mirror">[生病]//@转帖小王: [吃惊]//@高小曜://@乌托国…</a>
 </h2>
