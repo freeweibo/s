@@ -84,13 +84,13 @@
 </h2>
 <p>大家明天厦门见[爱你]希望不要太冷。</p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3934399047685367" target="freeweibo-mirror">【帝吧fb出征】作为曾经的团员，坚决支持团中央，请让中国人民…</a>
 </h2>
 <p>【帝吧fb出征】作为曾经的团员，坚决支持团中央，请让中国人民，天天翻墙，时刻翻墙http://t.cn/Rb86Acl 支持者转<br><img src="http://ww4.sinaimg.cn/large/6a3d7f8cgw1f098lgtud1j20a10bh0un.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3934382244610447" target="freeweibo-mirror">【一中各表】台湾属于中华民国。//@记者-薛洪涛: //@常…</a>
 </h2>
