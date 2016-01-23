@@ -72,7 +72,7 @@
 </h2>
 <p>SPAM //@杜芝富://@徐xiaopang0531: //@孔智勇40: //@twitor: //@湘潭勇哥: //@绝对集团: //@平凡的沙石: 爱国贼对着全世界文明，露出丑陋的下体，毫无廉耻。<br><br>RE: 热腾腾的新图<br><img src="http://ww4.sinaimg.cn/large/006dLzDfgw1f08h2ahde6j30lo0ezq65.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3934189688935789" target="freeweibo-mirror">同右边，右边滴右边都装逼！[哈哈]//@地瓜老汉: 又装逼，…</a>
 </h2>
