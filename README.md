@@ -42,7 +42,7 @@
 </h2>
 <p>顾雏军经济犯罪案再审，自2014年4月以来已经累计延期十次。顾雏军对此表态称“欲哭无泪”，并质问广东法院“刑事诉讼法的尊严何在！”这位资本运作高手与著名企业家，是原格林柯尔系的创始人，曾控制旗下科龙电器、美菱电器等五家上市公司，2005年9月被捕，2008年被冤判十年。http://t.cn/Rb85sLj<br><img src="http://ww2.sinaimg.cn/large/6b804b51gw1f0921gwoh0j20hs0ayq3j.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3934244638209404" target="freeweibo-mirror">SPAM 我觉得我连床都不想离开//@林六月: 求原微博传送…</a>
 </h2>
