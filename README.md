@@ -48,7 +48,7 @@
 </h2>
 <p>我们引入市场经济这么多年后，大家思路越来越讲实力优先而非主义优先，你说你有民主，那就和我说有马列主义一样嘛，都略显虚无，意义不大。[哈哈]//@傲雪V:国内外的中华同胞，众所周知：台湾好太哦，比天上的星星都大，懗S大陆十几亿人了[哈哈]//@独家网:438人，吓死本宝宝了！[doge]<br><br>RE: WW准备反攻了。怕～怕～[哈欠][哈欠]<br><img src="http://ww2.sinaimg.cn/large/c37c67cbgw1f08mgqhzsnj20hs0o2dhf.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3934444404351799" target="freeweibo-mirror">SPAM 生活也是政治。 //@清华孙立平:这个对。 //@…</a>
 </h2>
