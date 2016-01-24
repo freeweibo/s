@@ -24,7 +24,7 @@
 </h2>
 <p>SPAM [哈哈]//@防务君: 回复@摄氏451:原来如此 //@摄氏451:豹2A6 后面跟上序号4   然后出现了坦克  然后就质变啦<br><br>RE: 这个帖子被屏蔽了，敏感词在哪里？<br><img src="http://ww4.sinaimg.cn/large/71fa61e8gw1f0and6jv8rj20j50b3jt9.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3934826460006907" target="freeweibo-mirror">//@雷颐://@王周生:我们今天抗争，是为自己和下一代推开…</a>
 </h2>
@@ -66,7 +66,7 @@
 </h2>
 <p>SPAM 可恶！[泪][泪][泪][泪]<br><br>RE: 讓小粉紅們理解下自己國家這20年不見了多少領土！天天惦記台灣，人家中華民國地圖擁有的土地面積比某黨執政後還大！[挖鼻] http://t.cn/Rb8Fk4L .</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3934771090497453" target="freeweibo-mirror">珍贵视频：中俄边界争端。。。 http://t.cn/Rb8…</a>
 </h2>
