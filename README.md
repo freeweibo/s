@@ -54,13 +54,13 @@
 </h2>
 <p>回复@宿县小镇田园嘀风:[赞][赞][赞] //@宿县小镇田园嘀风:天安门城楼上应该挂国徽 以示庄严！<br><br>RE: 香港《动向》杂志近日报导，截至2015年底，中共人大办公厅、政协办公厅已经收到21份人大代表联署，政协委员32份联署，要求撤销天安门广场上的毛泽东纪念堂，改为中国人民英勇先烈纪念馆。<br><img src="http://ww4.sinaimg.cn/large/006lXtIKjw1f09hlpfnhtj30og0ic3zv.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3934753394820324" target="freeweibo-mirror">//@徐幸起: //@老故事周伟思:呵呵</a>
 </h2>
 <p>//@徐幸起: //@老故事周伟思:呵呵<br><br>RE: 香港《动向》杂志近日报导，截至2015年底，中共人大办公厅、政协办公厅已经收到21份人大代表联署，政协委员32份联署，要求撤销天安门广场上的毛泽东纪念堂，改为中国人民英勇先烈纪念馆。<br><img src="http://ww4.sinaimg.cn/large/006lXtIKjw1f09hlpfnhtj30og0ic3zv.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3934750546573652" target="freeweibo-mirror">SPAM 【今起春运开启，5000万人将站着回家】24日，2…</a>
 </h2>
