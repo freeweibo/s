@@ -54,7 +54,13 @@
 </h2>
 <p>SPAM [来]</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3934568572274554" target="freeweibo-mirror">讓小粉紅們理解下自己國家這20年不見了多少領土！天天惦記台灣…</a>
+</h2>
+<p>讓小粉紅們理解下自己國家這20年不見了多少領土！天天惦記台灣，人家中華民國地圖擁有的土地面積比某黨執政後還大！[挖鼻] http://t.cn/Rb8Fk4L .</p>
+<p>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3934567788349578" target="freeweibo-mirror">SPAM 总结的好，转发一下[哆啦A梦微笑] //@幸运大发…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3934433922600770" target="freeweibo-mirror">打开防火墙，交流更顺畅。不打不相识的两岸年轻一代_贾选凝_腾…</a>
 </h2>
 <p>打开防火墙，交流更顺畅。不打不相识的两岸年轻一代_贾选凝_腾讯大家 http://t.cn/Rb8Ct7q</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3934406378960431" target="freeweibo-mirror">大家明天厦门见[爱你]希望不要太冷。</a>
-</h2>
-<p>大家明天厦门见[爱你]希望不要太冷。</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
