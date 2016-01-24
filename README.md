@@ -24,7 +24,7 @@
 </h2>
 <p>SPAM [来]</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3934567788349578" target="freeweibo-mirror">SPAM 总结的好，转发一下[哆啦A梦微笑] //@幸运大发…</a>
 </h2>
@@ -138,7 +138,7 @@
 </h2>
 <p>[生病]//@转帖小王: [吃惊]//@高小曜://@乌托国民16: //@小南街胡同B: //@对坏的制度不会忍很久4://@决不做奴隶6:转发微博<br><br>RE: http://t.cn/RbQpRbN 某国衙役向百姓开战了！？？ http://t.cn/RbQjBpp<br><img src="http://ww1.sinaimg.cn/large/006mJvUljw1f08cj6mo5oj30cl0k4wev.jpg"></p>
 <p>
-	<small> ============== 1天前</small>
+	<small> ============== 2天前</small>
 </p>
 <table>
     <tr>
