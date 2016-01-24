@@ -72,7 +72,7 @@
 </h2>
 <p>举报博主传谣造谣！<br><br>RE: 珍贵视频：中俄边界争端。。。 http://t.cn/Rb8Fk4L</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3934806334868142" target="freeweibo-mirror">【鲸播报：山东省副省长徐珠宝辞职系因隐瞒病情】24日讯，徐珠…</a>
 </h2>
