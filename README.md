@@ -24,7 +24,7 @@
 </h2>
 <p>贺兰县人民政府！政府、官员、警察、人民，本是社会关系紧密的一体。政府领导人民，人民信赖政府，但遗憾的是，现在可见的政民关系、官民关系、警民关系，为什么就这样如此的僵硬？人民就是敌人？悲哀！ http://t.cn/RbRCqxm</p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3934851235150769" target="freeweibo-mirror">SPAM midtitm成人动作#成人动作# xvxdfxf…</a>
 </h2>
@@ -48,7 +48,7 @@
 </h2>
 <p>这个帖子被屏蔽了，敏感词在哪里？<br><img src="http://ww4.sinaimg.cn/large/71fa61e8gw1f0and6jv8rj20j50b3jt9.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3934826460006907" target="freeweibo-mirror">//@雷颐://@王周生:我们今天抗争，是为自己和下一代推开…</a>
 </h2>
