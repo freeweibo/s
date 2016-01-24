@@ -84,7 +84,7 @@
 </h2>
 <p>SPAM 《山东省副省长徐珠宝辞职系因隐瞒病情》- @财经网 - 这个理由还是第一次见到！到底是什么病呢？ http://t.cn/RbRSbNo</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3934787796464904" target="freeweibo-mirror">SPAM 蛤蟆</a>
 </h2>
