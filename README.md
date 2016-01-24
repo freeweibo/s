@@ -24,7 +24,7 @@
 </h2>
 <p>SPAM [来]</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3934567788349578" target="freeweibo-mirror">SPAM 总结的好，转发一下[哆啦A梦微笑] //@幸运大发…</a>
 </h2>
