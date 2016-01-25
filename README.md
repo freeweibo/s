@@ -54,7 +54,7 @@
 </h2>
 <p>SPAM //@包红玉:像极了！[哈哈]//@侯宁:[哈哈]//@朱一卿: [笑cry][笑cry][笑cry]<br><br>RE: 哥哥，中东转一圈成这样了</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3935251200448271" target="freeweibo-mirror">哥哥，中东转一圈成这样了</a>
 </h2>
