@@ -42,7 +42,7 @@
 </h2>
 <p>→_→[哈哈]//@---憨憨---:越来越感觉到环球时报就是高级黑，别的媒体不敢说不能说的话，环球时报采用自己的方式，让全体国民了解真相，感谢环球时报，感谢胡锡进。<br><br>RE: 赵家如果不舍得对外援助，没法在国际混。<br><img src="http://ww1.sinaimg.cn/large/756ed4dfgw1f0ajkm1j9rj20j80dy40z.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3935068931951696" target="freeweibo-mirror">SPAM #随手拍濮阳# 这个点儿了，月亮还挂在晨空不舍离去…</a>
 </h2>
