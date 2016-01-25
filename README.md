@@ -42,7 +42,7 @@
 </h2>
 <p>蔡英文：「以彼此为鉴，以人民为念」这就是民主时代当中，政党竞争最重要的原则。做一个民主国家的总统，我知道权力不是天赋的，而是向人民借来的。如果做得不好，时间到的时候，人民就会把借给我的权力收回去。 http://t.cn/RbEVUhS</p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3935124968041065" target="freeweibo-mirror">真的假的[疑问] //@新浪河北:【北影北邮等高校将迁往北戴…</a>
 </h2>
@@ -60,13 +60,13 @@
 </h2>
 <p>SPAM //@Ming_the_Great_大明:轉發微博<br><br>RE: #观点#【铜锣湾书店股东失踪案 足证中央已不再重视香港】也许中央并非当真认为香港人如此好骗，只是他们已经不在乎香港人的想法了──这样的话更糟糕，当中可能掺杂了蔑视之情。http://t.cn/RbE2Pva<br><img src="http://ww2.sinaimg.cn/large/9dcb59c7jw1f0bf9h49cgj20c82wbk9z.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3935089123225326" target="freeweibo-mirror">#观点#【铜锣湾书店股东失踪案 足证中央已不再重视香港】也许…</a>
 </h2>
 <p>#观点#【铜锣湾书店股东失踪案 足证中央已不再重视香港】也许中央并非当真认为香港人如此好骗，只是他们已经不在乎香港人的想法了──这样的话更糟糕，当中可能掺杂了蔑视之情。http://t.cn/RbE2Pva<br><img src="http://ww2.sinaimg.cn/large/9dcb59c7jw1f0bf9h49cgj20c82wbk9z.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3935082257594868" target="freeweibo-mirror">【北影北邮等高校将搬至北戴河】北京副市长李士祥近日表示，疏解…</a>
 </h2>
