@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3935106093721785" target="freeweibo-mirror">//@用户5489508193: //@山高路远N://@一…</a>
+</h2>
+<p>//@用户5489508193: //@山高路远N://@一品九醉://@秋风秋雨N://@安德鲁000001:<br><br>RE: 【无疆界记者谴责新华社和央视 吁欧盟制裁】 无国界记者组织点名谴责中国的新华社和中央电视台媒体，指它们播出被捕者的“被强迫忏悔”，成了“最大的宣传武器，而非新闻媒体”。其亚太项目负责人伊斯梅尔说，“散布没有新闻价值的被迫悔过，  对自由报道构成威胁，破坏了被告受到公正审判的权利。”<br><img src="http://ww1.sinaimg.cn/large/006m2v8yjw1f0apatzu2ij30i80ayn03.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3935089962808962" target="freeweibo-mirror">SPAM //@Ming_the_Great_大明:轉發微博</a>
 </h2>
 <p>SPAM //@Ming_the_Great_大明:轉發微博<br><br>RE: #观点#【铜锣湾书店股东失踪案 足证中央已不再重视香港】也许中央并非当真认为香港人如此好骗，只是他们已经不在乎香港人的想法了──这样的话更糟糕，当中可能掺杂了蔑视之情。http://t.cn/RbE2Pva<br><img src="http://ww2.sinaimg.cn/large/9dcb59c7jw1f0bf9h49cgj20c82wbk9z.jpg"></p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3934785401786906" target="freeweibo-mirror">SPAM 可恶！[泪][泪][泪][泪]</a>
 </h2>
 <p>SPAM 可恶！[泪][泪][泪][泪]<br><br>RE: 讓小粉紅們理解下自己國家這20年不見了多少領土！天天惦記台灣，人家中華民國地圖擁有的土地面積比某黨執政後還大！[挖鼻] http://t.cn/Rb8Fk4L .</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3934779814975487" target="freeweibo-mirror">又一單?---揭露国安内幕 香港《前哨》职员遭大陆警非法禁锢…</a>
-</h2>
-<p>又一單?---揭露国安内幕 香港《前哨》职员遭大陆警非法禁锢-rfa-香港铜锣湾书店五人失踪事件持续发酵之际，香港另一出版发行“禁书”的夏菲尔出版社负责人曝光，该出版社一名员工日前在大陆被当局非法关押及审讯四小时，原因可能是该出版去年上半年曾刊出多篇长文披露中国国安内幕，触怒了当局。<br><img src="http://ww1.sinaimg.cn/large/a284b3f9gw1f0agbuh8c0j20ha0n1gov.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
