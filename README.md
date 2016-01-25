@@ -24,7 +24,7 @@
 </h2>
 <p>SPAM //@琢磨先生:钱木了[哈哈] //@魏城WEICHENG:[哈哈]<br><br>RE: 哥哥，中东转一圈成这样了</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3935272108407388" target="freeweibo-mirror">SPAM //@蒲子里的二流子: 自己一分钱都没留，出门时，…</a>
 </h2>
@@ -78,7 +78,7 @@
 </h2>
 <p>蔡英文：「以彼此为鉴，以人民为念」这就是民主时代当中，政党竞争最重要的原则。做一个民主国家的总统，我知道权力不是天赋的，而是向人民借来的。如果做得不好，时间到的时候，人民就会把借给我的权力收回去。 http://t.cn/RbEVUhS</p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3935124968041065" target="freeweibo-mirror">真的假的[疑问] //@新浪河北:【北影北邮等高校将迁往北戴…</a>
 </h2>
