@@ -24,7 +24,7 @@
 </h2>
 <p>→_→[哈哈]//@---憨憨---:越来越感觉到环球时报就是高级黑，别的媒体不敢说不能说的话，环球时报采用自己的方式，让全体国民了解真相，感谢环球时报，感谢胡锡进。<br><br>RE: 赵家如果不舍得对外援助，没法在国际混。<br><img src="http://ww1.sinaimg.cn/large/756ed4dfgw1f0ajkm1j9rj20j80dy40z.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3934923477996977" target="freeweibo-mirror">贺兰县人民政府！政府、官员、警察、人民，本是社会关系紧密的一…</a>
 </h2>
