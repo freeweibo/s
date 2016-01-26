@@ -90,7 +90,7 @@
 </h2>
 <p>SPAM 遗了…[害羞]<br><img src="http://ww2.sinaimg.cn/large/757b8344jw1f0cl61gf7aj20jw0onmz1.jpg"></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3935314709732592" target="freeweibo-mirror">SPAM  只想封印自己在被窝里[笑cry][笑cry]！这…</a>
 </h2>
