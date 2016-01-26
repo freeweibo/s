@@ -30,7 +30,7 @@
 </h2>
 <p>SPAM  只想封印自己在被窝里[笑cry][笑cry]！这组超棒的爱屁屁收下了[心]</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3935278123179835" target="freeweibo-mirror">SPAM //@琢磨先生:钱木了[哈哈] //@魏城WEIC…</a>
 </h2>
