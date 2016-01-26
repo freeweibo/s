@@ -48,7 +48,7 @@
 </h2>
 <p>这个讨厌的索罗斯来了，金融战是不是已经打响？今天股市又是暴跌，如果熔断机制不终止，今天铁定熔断！国家统计局局长王保安刚批完索罗斯，自己就被立案审查！做空中国的敌对势力究竟是来自境外还是来自队伍内部？去年党报言之凿凿，说四千点是牛市的起点，现在看来要直奔两千点了。究竟谁在做空中国？<br><img src="http://ww1.sinaimg.cn/large/005XsazYjw1f0d8xbs9fpj30qo0zk0xm.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3935675591744920" target="freeweibo-mirror">[群体围观]春晚彩排泄露 ！！</a>
 </h2>
@@ -66,7 +66,7 @@
 </h2>
 <p>SPAM 前男友都是报复真特么凶残[doge]已被删除了的“盗号”转发 →_→ //@吴昕:一切都多不容易 你我知道</p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3935636224481598" target="freeweibo-mirror">SPAM 谁都向往着一次不顾一切的爱情 需要多幸运 才能找到…</a>
 </h2>
