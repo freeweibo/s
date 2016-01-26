@@ -42,7 +42,7 @@
 </h2>
 <p>好消息是空仓的朋友不用做单身狗了//@媒体人张强: [泪]//@六六:[泪]<br><br>RE: 这个讨厌的索罗斯来了，金融战是不是已经打响？今天股市又是暴跌，如果熔断机制不终止，今天铁定熔断！国家统计局局长王保安刚批完索罗斯，自己就被立案审查！做空中国的敌对势力究竟是来自境外还是来自队伍内部？去年党报言之凿凿，说四千点是牛市的起点，现在看来要直奔两千点了。究竟谁在做空中国？<br><img src="http://ww1.sinaimg.cn/large/005XsazYjw1f0d8xbs9fpj30qo0zk0xm.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3935677416912867" target="freeweibo-mirror">这个讨厌的索罗斯来了，金融战是不是已经打响？今天股市又是暴跌…</a>
 </h2>
@@ -90,7 +90,7 @@
 </h2>
 <p>SPAM [哈哈]//@谭人玮: //@连岳lianyue: 蛤蛤。//@香港的谭叔: 哈哈哈//@牙医犹飞:[馋嘴]蛤蛤… //@粤不韦:[哆啦A梦吃惊]<br><br>RE: 分享图片<br><img src="http://ww1.sinaimg.cn/large/61463e79jw1f0cujnfx85j20dz3vfqbi.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3935571829157394" target="freeweibo-mirror">SPAM 蛤蛤蛤//@连岳lianyue:蛤蛤。//@香港的…</a>
 </h2>
