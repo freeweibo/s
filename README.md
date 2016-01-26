@@ -60,7 +60,7 @@
 </h2>
 <p>SPAM 希望之星: 【中国公司收购盖茨图片库 敏感照片已遭过滤】视觉中国集团（VCG）陆续与全球两大图片商Getty Images和Corbis建立合作伙伴关系，引发民众对图片自由的担忧。 全文: …<br><img src="http://ww4.sinaimg.cn/large/006jwFM8gw1f0cu068rocj30go0b4gn4.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3935489977066300" target="freeweibo-mirror">SPAM 一号线的出没。</a>
 </h2>
