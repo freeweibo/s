@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3935461829152324" target="freeweibo-mirror">//@山西酷老头: //@伍雷看夹边沟:内政！ //@财经女…</a>
+</h2>
+<p>//@山西酷老头: //@伍雷看夹边沟:内政！ //@财经女作家: //@京都探花:和朝鲜一比，顿感幸福不少！选对参照物很重要！[good]//@董增寿:[吃惊] //@徐付群:朝鲜人民的饥饱和死活，是朝鲜这个主权国家的内政。<br><br>RE: 【朝鲜是一座人间地狱】根据联合国最新报告，朝鲜有2/3人处于吃了上顿没下顿状态。朝鲜自称民主主义人民共和国，其实挂羊头卖狗肉，全世界民主指数排行中，连续多年稳居全球倒数第一！朝鲜拥有韩国1.3倍土地，却养不活韩国一半不到的人口！什么原因？金家祖孙三代倒行逆施的结果 http://t.cn/Rb86SZ1</p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3935448923621593" target="freeweibo-mirror">SPAM 遗了…[害羞]</a>
 </h2>
 <p>SPAM 遗了…[害羞]<br><img src="http://ww2.sinaimg.cn/large/757b8344jw1f0cl61gf7aj20jw0onmz1.jpg"></p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3935080378392055" target="freeweibo-mirror">→_→[哈哈]//@---憨憨---:越来越感觉到环球时报就…</a>
 </h2>
 <p>→_→[哈哈]//@---憨憨---:越来越感觉到环球时报就是高级黑，别的媒体不敢说不能说的话，环球时报采用自己的方式，让全体国民了解真相，感谢环球时报，感谢胡锡进。<br><br>RE: 赵家如果不舍得对外援助，没法在国际混。<br><img src="http://ww1.sinaimg.cn/large/756ed4dfgw1f0ajkm1j9rj20j80dy40z.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3935068931951696" target="freeweibo-mirror">SPAM #随手拍濮阳# 这个点儿了，月亮还挂在晨空不舍离去…</a>
-</h2>
-<p>SPAM #随手拍濮阳# 这个点儿了，月亮还挂在晨空不舍离去。现在的气温是-11°，空气质量70（良），结论：月亮啊，不怕寒冷怕雾霾！<br><img src="http://ww2.sinaimg.cn/large/7ca637f5jw1f0bdd02miej20qo1beq6u.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
