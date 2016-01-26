@@ -36,7 +36,7 @@
 </h2>
 <p>SPAM [哈哈]//@谭人玮: //@连岳lianyue: 蛤蛤。//@香港的谭叔: 哈哈哈//@牙医犹飞:[馋嘴]蛤蛤… //@粤不韦:[哆啦A梦吃惊]<br><br>RE: 分享图片<br><img src="http://ww1.sinaimg.cn/large/61463e79jw1f0cujnfx85j20dz3vfqbi.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3935571829157394" target="freeweibo-mirror">SPAM 蛤蛤蛤//@连岳lianyue:蛤蛤。//@香港的…</a>
 </h2>
@@ -90,7 +90,7 @@
 </h2>
 <p>SPAM 一号线的出没。<br><img src="http://ww2.sinaimg.cn/large/67780590jw1f0cpqovs6xj20gn0m740g.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3935468884547968" target="freeweibo-mirror">瑞典人彼得.达林在被拘押23天后释放并驱逐出境。这些天令人迷…</a>
 </h2>
