@@ -72,13 +72,13 @@
 </h2>
 <p>SPAM 谁都向往着一次不顾一切的爱情 需要多幸运 才能找到那个人 …找到了！<br><img src="http://ww4.sinaimg.cn/large/8f04f0b6jw1f0d6neivvaj20zk0qo492.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3935582600374375" target="freeweibo-mirror">下三滥看家手段！//@西丰客人在1984: 这种邪恶的手段如…</a>
 </h2>
 <p>下三滥看家手段！//@西丰客人在1984: 这种邪恶的手段如果不是无师自通，那么大概就是跟苏联斯大林匪帮学的吧。莫斯科大审判，老革命们都纷纷认罪，请求政府判处自己死刑，令西方观察家目瞪口呆。后来资料公开，才知道斯大林匪帮就是采取了在父亲面前强奸其女儿之类的手段，令老革命们瞬间崩溃。<br><br>RE: 一条神秘消失的微博<br><img src="http://ww1.sinaimg.cn/large/4888f507gw1f0czky9ieej20qo1be43n.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3935574505518207" target="freeweibo-mirror">一条神秘消失的微博</a>
 </h2>
