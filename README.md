@@ -96,7 +96,7 @@
 </h2>
 <p>SPAM 蛤蛤蛤//@连岳lianyue:蛤蛤。//@香港的谭叔: 哈哈哈//@牙医犹飞:[馋嘴]蛤蛤… //@粤不韦:[哆啦A梦吃惊]<br><br>RE: 分享图片<br><img src="http://ww1.sinaimg.cn/large/61463e79jw1f0cujnfx85j20dz3vfqbi.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3935564203693375" target="freeweibo-mirror">//@米鱼米虾: //@迩東晨: 连坐乃中华传统重要组分之一…</a>
 </h2>
