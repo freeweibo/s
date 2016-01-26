@@ -84,7 +84,7 @@
 </h2>
 <p>一条神秘消失的微博<br><img src="http://ww1.sinaimg.cn/large/4888f507gw1f0czky9ieej20qo1be43n.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3935572354084472" target="freeweibo-mirror">SPAM [哈哈]//@谭人玮: //@连岳lianyue:…</a>
 </h2>
