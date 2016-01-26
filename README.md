@@ -72,7 +72,7 @@
 </h2>
 <p>SPAM 谁都向往着一次不顾一切的爱情 需要多幸运 才能找到那个人 …找到了！<br><img src="http://ww4.sinaimg.cn/large/8f04f0b6jw1f0d6neivvaj20zk0qo492.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3935582600374375" target="freeweibo-mirror">下三滥看家手段！//@西丰客人在1984: 这种邪恶的手段如…</a>
 </h2>
