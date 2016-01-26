@@ -36,7 +36,13 @@
 </h2>
 <p>//@但德拉的哈索尔:…… //@芝士紅豆喵:艹！//@政经熊: 不怕流氓，就怕流氓有钱有棒槌//@小島嶼天亮啦: //@霹靂小黑:FUCK//@昆明湖_布都本命: 妈的 //@賣支求榮阿蒙查:這家公司叫視覺中國，幕後大股東是@李学凌  //@sonicblue3:还能这样腐蚀世界的，学到了</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3935532545123666" target="freeweibo-mirror">#北京突发#今日，因市政府强制产业外迁计划，松下控股决定单方…</a>
+</h2>
+<p>#北京突发#今日，因市政府强制产业外迁计划，松下控股决定单方面终止与员工的劳动合同并撤离中国，致员工维权。图为兆维产业园内员工维权现场。农民工还有宅基地口粮田，可工人阶级没了工作连社保都交不起了。这就是城市劳动者的凄惨命运。@天涯北京009 @姆们说<br><img src="http://ww3.sinaimg.cn/large/0067cBzyjw1f0cumwpr9yj30zk0qowhl.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3935525797143098" target="freeweibo-mirror">SPAM 希望之星: 【中国公司收购盖茨图片库 敏感照片已遭…</a>
 </h2>
@@ -48,7 +54,7 @@
 </h2>
 <p>SPAM 一号线的出没。<br><img src="http://ww2.sinaimg.cn/large/67780590jw1f0cpqovs6xj20gn0m740g.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3935461829152324" target="freeweibo-mirror">//@山西酷老头: //@伍雷看夹边沟:内政！ //@财经女…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3935142928313681" target="freeweibo-mirror">蔡英文：「以彼此为鉴，以人民为念」这就是民主时代当中，政党竞…</a>
 </h2>
 <p>蔡英文：「以彼此为鉴，以人民为念」这就是民主时代当中，政党竞争最重要的原则。做一个民主国家的总统，我知道权力不是天赋的，而是向人民借来的。如果做得不好，时间到的时候，人民就会把借给我的权力收回去。 http://t.cn/RbEVUhS</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3935133377474600" target="freeweibo-mirror">#视频大厅#据网友@柚子柚子柚子lee 发微博称，江苏省丹阳…</a>
-</h2>
-<p>#视频大厅#据网友@柚子柚子柚子lee 发微博称，江苏省丹阳市界牌镇界牌医院挂水挂死一个四岁小孩，特警出动强抢小孩。爆打孩子爸爸，将抱着孩子尸体的妈妈拖行十几米 。 http://t.cn/RbE5ryY</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
