@@ -30,7 +30,7 @@
 </h2>
 <p>致敬救援[作揖]致敬生命[作揖]<br><br>RE: 【平邑“12.25”石膏矿被困矿工有望升井！】1月27日，临沂平邑“12.25”石膏矿坍塌事故发生后第34天，随着救援的突破性进展，井底被困的四人有望很快升井。23时38，现场消防武警、专业救援、120救护等部门人员已经准备就绪，大众网记者已经抵达救援现场。http://t.cn/RbuThYf<br><img src="http://ww4.sinaimg.cn/large/9c2b5f31jw1f0ei19rcblj20go09ewg2.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3936048519985296" target="freeweibo-mirror">【平邑“12.25”石膏矿被困矿工有望升井！】1月27日，临…</a>
 </h2>
