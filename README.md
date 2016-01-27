@@ -54,7 +54,7 @@
 </h2>
 <p>[群体围观]春晚彩排泄露 ！！<br><br>RE: 【网曝春晚彩排泄露！】今晚央视春晚进行彩排，有网友在微博曝光了央视猴年春晚直播画面，朱军、周涛、撒贝宁、董卿、尼格买提、李思思等主持人亮相，岳云鹏、孙越、乔杉、修睿、娄艺潇、句号、平安、张碧晨等人节目也被曝光。http://t.cn/RbmKVmv<br><img src="http://ww3.sinaimg.cn/large/6de39d21jw1f0daxqjfgej20bb070mxf.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3935673876240281" target="freeweibo-mirror">【网曝春晚彩排泄露！】今晚央视春晚进行彩排，有网友在微博曝光…</a>
 </h2>
