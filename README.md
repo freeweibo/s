@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3936051934485586" target="freeweibo-mirror">致敬救援[作揖]致敬生命[作揖]</a>
+</h2>
+<p>致敬救援[作揖]致敬生命[作揖]<br><br>RE: 【平邑“12.25”石膏矿被困矿工有望升井！】1月27日，临沂平邑“12.25”石膏矿坍塌事故发生后第34天，随着救援的突破性进展，井底被困的四人有望很快升井。23时38，现场消防武警、专业救援、120救护等部门人员已经准备就绪，大众网记者已经抵达救援现场。http://t.cn/RbuThYf<br><img src="http://ww4.sinaimg.cn/large/9c2b5f31jw1f0ei19rcblj20go09ewg2.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3936028438402881" target="freeweibo-mirror">达赖后来死活不承认。不过日本政府方面的信息，麻原彰晃能注册宗…</a>
 </h2>
 <p>达赖后来死活不承认。不过日本政府方面的信息，麻原彰晃能注册宗教组织，与达赖的认证有直接关系。大和尚与日本人，肯定有一个撒谎的，呵呵。//@文武全才常凯申: 原来麻原彰晃也是认证的活佛[哈哈]@华智_郎塞仁青嘉措</p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3935582600374375" target="freeweibo-mirror">下三滥看家手段！//@西丰客人在1984: 这种邪恶的手段如…</a>
 </h2>
 <p>下三滥看家手段！//@西丰客人在1984: 这种邪恶的手段如果不是无师自通，那么大概就是跟苏联斯大林匪帮学的吧。莫斯科大审判，老革命们都纷纷认罪，请求政府判处自己死刑，令西方观察家目瞪口呆。后来资料公开，才知道斯大林匪帮就是采取了在父亲面前强奸其女儿之类的手段，令老革命们瞬间崩溃。<br><br>RE: 一条神秘消失的微博<br><img src="http://ww1.sinaimg.cn/large/4888f507gw1f0czky9ieej20qo1be43n.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3935574505518207" target="freeweibo-mirror">一条神秘消失的微博</a>
-</h2>
-<p>一条神秘消失的微博<br><img src="http://ww1.sinaimg.cn/large/4888f507gw1f0czky9ieej20qo1be43n.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
