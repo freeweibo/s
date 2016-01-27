@@ -24,7 +24,7 @@
 </h2>
 <p>SPAM //@茉莉芬芳茶清香:截图大师。哈哈哈<br><br>RE: 小粉红事件 update：团中央删帖了。炸裂！一次特大型宣传事故<br><img src="http://ww3.sinaimg.cn/large/65cc9274gw1f0dcij3v4qj20hs0vkjvd.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3935682823115865" target="freeweibo-mirror">你妹啊！//@刘春: 图三是我妹！图一是我弟妹[爱你]</a>
 </h2>
