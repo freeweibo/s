@@ -20,11 +20,17 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3936028438402881" target="freeweibo-mirror">达赖后来死活不承认。不过日本政府方面的信息，麻原彰晃能注册宗…</a>
+</h2>
+<p>达赖后来死活不承认。不过日本政府方面的信息，麻原彰晃能注册宗教组织，与达赖的认证有直接关系。大和尚与日本人，肯定有一个撒谎的，呵呵。//@文武全才常凯申: 原来麻原彰晃也是认证的活佛[哈哈]@华智_郎塞仁青嘉措</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3935877702902718" target="freeweibo-mirror">SPAM //@谓贤:[思考]//@徐幸起://@基石yzQ…</a>
 </h2>
 <p>SPAM //@谓贤:[思考]//@徐幸起://@基石yzQ: 不要乱说！//@老故事周伟思:呵。//@陈业文新大都:嗯。//@卓越兄: 哦。 //@陆亚明:[生病]//@刘军宁:这个 赵国，果然集古今精粹之大成！<br><br>RE: 【何谓赵国】一网友神回复：如今集合了商的酒池肉林，周的贵族世袭，秦的言论管制，晋魏的炫富糜烂，南北朝的文化断层，汉的好大喜功，隋的大兴土木，唐的雍容体态，宋的软弱外交，元的税赋镇压，明的腐败党争，清的专制封闭——乃赵国也！转</p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3935868869915971" target="freeweibo-mirror">SPAM [思考]//@徐幸起://@基石yzQ: 不要乱说…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3935574505518207" target="freeweibo-mirror">一条神秘消失的微博</a>
 </h2>
 <p>一条神秘消失的微博<br><img src="http://ww1.sinaimg.cn/large/4888f507gw1f0czky9ieej20qo1be43n.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3935572354084472" target="freeweibo-mirror">SPAM [哈哈]//@谭人玮: //@连岳lianyue:…</a>
-</h2>
-<p>SPAM [哈哈]//@谭人玮: //@连岳lianyue: 蛤蛤。//@香港的谭叔: 哈哈哈//@牙医犹飞:[馋嘴]蛤蛤… //@粤不韦:[哆啦A梦吃惊]<br><br>RE: 分享图片<br><img src="http://ww1.sinaimg.cn/large/61463e79jw1f0cujnfx85j20dz3vfqbi.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
