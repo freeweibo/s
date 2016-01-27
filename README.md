@@ -66,7 +66,7 @@
 </h2>
 <p>SPAM 前男友都是报复真特么凶残[doge]已被删除了的“盗号”转发 →_→ //@吴昕:一切都多不容易 你我知道</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3935636224481598" target="freeweibo-mirror">SPAM 谁都向往着一次不顾一切的爱情 需要多幸运 才能找到…</a>
 </h2>
