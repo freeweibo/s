@@ -114,7 +114,7 @@
 </h2>
 <p>快讯：广州三君子涉“煽颠”案将于本周五宣判<br><img src="http://ww1.sinaimg.cn/large/78149615gw1f0djiddgv7j20qc13r10e.jpg"></p>
 <p>
-	<small> ============== 1天前</small>
+	<small> ============== 2天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3935687293812937" target="freeweibo-mirror">小粉红事件 update：团中央删帖了。炸裂！一次特大型宣传…</a>
 </h2>
