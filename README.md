@@ -48,7 +48,7 @@
 </h2>
 <p>除去精华，吸取糟粕!//@赵克罗:总结三个字，伟光正！//@况秀猛:【何谓赵国?】中华民族5000年的历史沉淀？中华民族还是有很多美德的？<br><br>RE: 【何谓赵国?】一网友神回复：如今集合了商的酒池肉林，周的贵族世袭，秦的言论管制，晋魏的炫富糜烂，南北朝的文化断层，汉的好大喜功，隋的大兴土木，唐的雍容体态，宋的软弱外交，元的税赋镇压，明的腐败党争，清的专制封闭——乃赵国也！看来这个赵国，果然集古今精粹之大成！@于建嵘 #听海观潮#<br><img src="http://ww1.sinaimg.cn/large/4fa29975gw1f0dtsws5unj204a05kdfv.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3936202204307569" target="freeweibo-mirror">对内有就够了//@沙滩五月花: 你相信这样的军队，对外有战斗…</a>
 </h2>
@@ -126,7 +126,7 @@
 </h2>
 <p>SPAM //@茉莉芬芳茶清香:截图大师。哈哈哈<br><br>RE: 小粉红事件 update：团中央删帖了。炸裂！一次特大型宣传事故<br><img src="http://ww3.sinaimg.cn/large/65cc9274gw1f0dcij3v4qj20hs0vkjvd.jpg"></p>
 <p>
-	<small> ============== 1天前</small>
+	<small> ============== 2天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3935844144215776" target="freeweibo-mirror">SPAM 寒冬的温度也会达到沸点，为什么？因有暖暖地、感人地…</a>
 </h2>
