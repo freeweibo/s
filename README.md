@@ -36,7 +36,7 @@
 </h2>
 <p>实话实话，你能坚持到这支舞结束吗[doge]http://t.cn/RU10rqw</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3936314044897478" target="freeweibo-mirror">→_→//@孫文1915革命:旁边坐的是雪雪姨麻麻么？//@…</a>
 </h2>
