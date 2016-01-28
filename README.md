@@ -36,7 +36,7 @@
 </h2>
 <p>实话实话，你能坚持到这支舞结束吗[doge]http://t.cn/RU10rqw</p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3936314044897478" target="freeweibo-mirror">→_→//@孫文1915革命:旁边坐的是雪雪姨麻麻么？//@…</a>
 </h2>
@@ -54,7 +54,7 @@
 </h2>
 <p>现在可以在微博上编写这样的"小文"了吗？//@老李读行: 转发微博<br><br>RE: 坐地铁碰到一位老兄，问我做什么工作的?辛苦么？……我说做电视</p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3936302929976036" target="freeweibo-mirror">坐地铁碰到一位老兄，问我做什么工作的?辛苦么？……我说做电视…</a>
 </h2>
