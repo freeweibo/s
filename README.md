@@ -48,13 +48,13 @@
 </h2>
 <p>//@HelloKafir:武昌起义前，就有不少起义士兵因为负气而向敌人说出马上就要起义收拾你们诸如此类的话，这个连时间都有，绝对是听到什么风声了，请公安部门重视。<br><br>RE: 怕怕，这是在预告什么吗？想报警，吓到不知该圈谁了[可怜]<br><img src="http://ww3.sinaimg.cn/large/6db51a58gw1f0el0o0nsjj20k00zkags.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3936304422840145" target="freeweibo-mirror">现在可以在微博上编写这样的"小文"了吗？//@老李读行: 转…</a>
 </h2>
 <p>现在可以在微博上编写这样的"小文"了吗？//@老李读行: 转发微博<br><br>RE: 坐地铁碰到一位老兄，问我做什么工作的?辛苦么？……我说做电视</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3936302929976036" target="freeweibo-mirror">坐地铁碰到一位老兄，问我做什么工作的?辛苦么？……我说做电视…</a>
 </h2>
