@@ -36,7 +36,7 @@
 </h2>
 <p>现在可以在微博上编写这样的"小文"了吗？//@老李读行: 转发微博<br><br>RE: 坐地铁碰到一位老兄，问我做什么工作的?辛苦么？……我说做电视</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3936302929976036" target="freeweibo-mirror">坐地铁碰到一位老兄，问我做什么工作的?辛苦么？……我说做电视…</a>
 </h2>
@@ -132,7 +132,7 @@
 </h2>
 <p>SPAM 寒冬的温度也会达到沸点，为什么？因有暖暖地、感人地关怀与爱。#爱从未离家#<br><img src="http://ww2.sinaimg.cn/large/6e8a81a3gw1f0dukdj66ej204x087q3u.jpg"></p>
 <p>
-	<small> ============== 1天前</small>
+	<small> ============== 2天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3935812968424559" target="freeweibo-mirror">广州三君子案将于本月29日9.30分在广州中院宣判，估计将成…</a>
 </h2>
