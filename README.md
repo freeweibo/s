@@ -30,7 +30,7 @@
 </h2>
 <p>五百年桑田沧海</p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3936354733632802" target="freeweibo-mirror">SPAM //@内裤都笑掉了:[微笑]</a>
 </h2>
