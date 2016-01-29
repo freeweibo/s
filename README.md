@@ -26,17 +26,23 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3936751590247655" target="freeweibo-mirror">SPAM 发表了一篇转载博文《[转载]徐焰：选江青充当＂旗手…</a>
+</h2>
+<p>SPAM 发表了一篇转载博文《[转载]徐焰：选江青充当＂旗手＂是毛泽东晚年重大失误》http://t.cn/Rb1gTNP</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3936699669659488" target="freeweibo-mirror">#新年，一起下厨吧#近日，一小撮不知从何而来的神秘人空降三里…</a>
 </h2>
 <p>#新年，一起下厨吧#近日，一小撮不知从何而来的神秘人空降三里屯一家餐厅，他们用锅碗瓢盆筷子勺敲击出具有催眠效果的魔幻打击乐，让在场的所有人先是大吃一惊，再是手舞足蹈地跟着他们扬长而去。这一消息在微博上已经炸翻了天~请在家人陪同下点击视频，以免被催眠！http://t.cn/RbuyG9O</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3936668823855464" target="freeweibo-mirror">凡人的关注不大管用。上帝他老神家的关注或许管点……等下，拆十…</a>
 </h2>
 <p>凡人的关注不大管用。上帝他老神家的关注或许管点……等下，拆十字架这事就是他老神家的意思，牧师连这都不知道？<br><br>RE: 有消息称 : 浙江基督教协会会长顾约瑟牧师及其夫人周莲美女士因反对强拆十字架，于昨日失联。今日获悉被监视居住。希望更多人关注并声援。</p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3936662767748574" target="freeweibo-mirror">大家都在等着央视回应，可是我们中国的中央电视台却关闭了评论，…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3936319660875938" target="freeweibo-mirror">实话实话，你能坚持到这支舞结束吗[doge]http://t…</a>
 </h2>
 <p>实话实话，你能坚持到这支舞结束吗[doge]http://t.cn/RU10rqw</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3936314044897478" target="freeweibo-mirror">→_→//@孫文1915革命:旁边坐的是雪雪姨麻麻么？//@…</a>
-</h2>
-<p>→_→//@孫文1915革命:旁边坐的是雪雪姨麻麻么？//@caowumao://@传媒老王:现在可以在微博上编写这样的"小文"了吗？//@老李读行: 转发微博<br><br>RE: 坐地铁碰到一位老兄，问我做什么工作的?辛苦么？……我说做电视</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
