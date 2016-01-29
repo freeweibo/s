@@ -66,7 +66,7 @@
 </h2>
 <p>[doge]我啥也没看到 http://t.cn/RbuKSch</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3936668823855464" target="freeweibo-mirror">凡人的关注不大管用。上帝他老神家的关注或许管点……等下，拆十…</a>
 </h2>
