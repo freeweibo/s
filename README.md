@@ -36,7 +36,7 @@
 </h2>
 <p>SPAM 没事找事！<br><br>RE: 我是基督徒。我并不是完美的人，我愿意承认我的有罪，因和属天的圣洁比，每个人的心思行为还是充满了属地的污秽。每个基督徒都愿意学习耶稣的样式，活出上帝的荣美。浙江又开始拆十字架，我很难过！但不会因为拆，我们就否定和动摇我们心中的信仰！浙江，我生长的家乡，我为你难过！<br><img src="http://ww3.sinaimg.cn/large/473ed7c0gw1f0gb7ay0jxj20qo0zktc9.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3936642471287940" target="freeweibo-mirror">//@西西福厮:记住，基督徒所谓的“有罪”是对上帝犯下的罪，…</a>
 </h2>
@@ -84,7 +84,7 @@
 </h2>
 <p>SPAM 走开啦！要上也是黄焖鸡先上，关你外国鸡啥事哈哈哈哈哈</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3936519569713781" target="freeweibo-mirror">SPAM //@任志强:[怒] //@樊建川:什么规定哟。[…</a>
 </h2>
