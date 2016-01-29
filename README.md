@@ -24,7 +24,7 @@
 </h2>
 <p>SPAM [可爱][可爱]</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3936751816882766" target="freeweibo-mirror">SPAM 吼啊 //@媒文化的章伯:吼啊//@周小C:吼啊！…</a>
 </h2>
