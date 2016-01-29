@@ -24,7 +24,7 @@
 </h2>
 <p>SPAM [可爱][可爱]</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3936751816882766" target="freeweibo-mirror">SPAM 吼啊 //@媒文化的章伯:吼啊//@周小C:吼啊！…</a>
 </h2>
@@ -78,7 +78,7 @@
 </h2>
 <p>有消息称 : 浙江基督教协会会长顾约瑟牧师及其夫人周莲美女士因反对强拆十字架，于昨日失联。今日获悉被监视居住。希望更多人关注并声援。</p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3936637593372995" target="freeweibo-mirror">我党强调三个自信，但看看大大小小的官员，有多少真有三个自信的…</a>
 </h2>
