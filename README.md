@@ -50,6 +50,12 @@
 <p>
 	<small> ============== 7小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3936697937088069" target="freeweibo-mirror">[doge]我啥也没看到 http://t.cn/RbuKS…</a>
+</h2>
+<p>[doge]我啥也没看到 http://t.cn/RbuKSch</p>
+<p>
+	<small> ============== 7小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3936668823855464" target="freeweibo-mirror">凡人的关注不大管用。上帝他老神家的关注或许管点……等下，拆十…</a>
 </h2>
 <p>凡人的关注不大管用。上帝他老神家的关注或许管点……等下，拆十字架这事就是他老神家的意思，牧师连这都不知道？<br><br>RE: 有消息称 : 浙江基督教协会会长顾约瑟牧师及其夫人周莲美女士因反对强拆十字架，于昨日失联。今日获悉被监视居住。希望更多人关注并声援。</p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3936506001638355" target="freeweibo-mirror">香港铜锣湾李波事件继续发酵，越描越黑。大陆方面好不恼火。明明…</a>
 </h2>
 <p>香港铜锣湾李波事件继续发酵，越描越黑。大陆方面好不恼火。明明是中国领土，却不能执法。明摆着香港民意越来越远离大陆，还不便发作。一国两制，实际上行不通。大陆体制，根本上是枪杆子里打出来的，属于帝制的变种，与民主政治格格不入，却非说自己也是民主，这就是没有自信。</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3936386165539883" target="freeweibo-mirror">五百年桑田沧海</a>
-</h2>
-<p>五百年桑田沧海</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
