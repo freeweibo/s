@@ -132,7 +132,7 @@
 </h2>
 <p>SPAM 你有本事转发里ky去，别他妈缩在我评论里ky。再有下次直接拉黑。</p>
 <p>
-	<small> ============== 1天前</small>
+	<small> ============== 2天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3936076038892073" target="freeweibo-mirror">怕怕，这是在预告什么吗？想报警，吓到不知该圈谁了[可怜]</a>
 </h2>
