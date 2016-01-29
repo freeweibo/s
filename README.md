@@ -48,7 +48,7 @@
 </h2>
 <p>SPAM //@任志强:[怒] //@樊建川:什么规定哟。[汗] //@陳嘉上Gordon:[晕]這不對 //@洪启:太过分了！</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3936386165539883" target="freeweibo-mirror">五百年桑田沧海</a>
 </h2>
