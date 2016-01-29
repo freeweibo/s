@@ -24,13 +24,13 @@
 </h2>
 <p>SPAM 吼啊 //@媒文化的章伯:吼啊//@周小C:吼啊！//@天文绿蛇: 吼啊！//@藕粽: 吼啊！//@宋勇鑫: 吼唔吼//@来去之间:吼吼吼 //@白城以北:吼啊！ //@钢铁侠:吼啊！ //@公务员小王:吼啊！<br><br>RE: 今天教大家用广东话跟朋友开玩笑，好唔好啊？[偷笑] http://t.cn/Rb38FHY .</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3936751590247655" target="freeweibo-mirror">SPAM 发表了一篇转载博文《[转载]徐焰：选江青充当＂旗手…</a>
 </h2>
 <p>SPAM 发表了一篇转载博文《[转载]徐焰：选江青充当＂旗手＂是毛泽东晚年重大失误》http://t.cn/Rb1gTNP</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3936699669659488" target="freeweibo-mirror">#新年，一起下厨吧#近日，一小撮不知从何而来的神秘人空降三里…</a>
 </h2>
