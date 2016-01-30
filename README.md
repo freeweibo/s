@@ -36,7 +36,7 @@
 </h2>
 <p>SPAM 。。。会玩 是只有福州有吗 //@二次元种草机:手动拒绝[拜拜][拜拜][拜拜]</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3937044944007202" target="freeweibo-mirror">感动！//@村务公开: 自由必胜，人民必胜。//@践行者Ha…</a>
 </h2>
