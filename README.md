@@ -42,7 +42,7 @@
 </h2>
 <p>SPAM 【刘怡：央视春晚到底听谁的】有一则无法证实的消息则是援引一位所谓“央视春晚剧组知情人士”，这位人士则质疑网民的行为是“有人在炒作和推动”，并认为说，“这样起哄是很不负责任的，这不就是煽动网络话题绑架导演的创作吗？全民都想指挥春晚，但春晚创作真有那么容易吗？” http://t.cn/RbB4xfj<br><img src="http://ww3.sinaimg.cn/large/6298156bgw1f0h9909dtxj209l0ar0tr.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3936851545441661" target="freeweibo-mirror">除了甩开膀子说空话，就是壮士断腕说假话。【李克强：中国10万…</a>
 </h2>
