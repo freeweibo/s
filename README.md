@@ -32,6 +32,12 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3936940170620215" target="freeweibo-mirror">//@谢文://@蓝鲸财经记者工作平台: //@LifeTi…</a>
+</h2>
+<p>//@谢文://@蓝鲸财经记者工作平台: //@LifeTime：YouTube //@Phoenix淼淼：哪里能看？<br><br>RE: BBC 大型《全景》专题节目报道了《普京的秘密财富》。片中通过走访俄罗斯、美国，披露了大量普京财富的证据和一些当事人的亲诉。可以想象，普京会否认，甚至片中的有些人会“消失”。[衰]<br><img src="http://ww1.sinaimg.cn/large/dd816182gw1f0gzkz9ql1j20lc0bwjt0.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3936912429447376" target="freeweibo-mirror">SPAM 【刘怡：央视春晚到底听谁的】有一则无法证实的消息则…</a>
 </h2>
 <p>SPAM 【刘怡：央视春晚到底听谁的】有一则无法证实的消息则是援引一位所谓“央视春晚剧组知情人士”，这位人士则质疑网民的行为是“有人在炒作和推动”，并认为说，“这样起哄是很不负责任的，这不就是煽动网络话题绑架导演的创作吗？全民都想指挥春晚，但春晚创作真有那么容易吗？” http://t.cn/RbB4xfj<br><img src="http://ww3.sinaimg.cn/large/6298156bgw1f0h9909dtxj209l0ar0tr.jpg"></p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3936617796869322" target="freeweibo-mirror">我是基督徒。我并不是完美的人，我愿意承认我的有罪，因和属天的…</a>
 </h2>
 <p>我是基督徒。我并不是完美的人，我愿意承认我的有罪，因和属天的圣洁比，每个人的心思行为还是充满了属地的污秽。每个基督徒都愿意学习耶稣的样式，活出上帝的荣美。浙江又开始拆十字架，我很难过！但不会因为拆，我们就否定和动摇我们心中的信仰！浙江，我生长的家乡，我为你难过！<br><img src="http://ww3.sinaimg.cn/large/473ed7c0gw1f0gb7ay0jxj20qo0zktc9.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3936615015641811" target="freeweibo-mirror">广州三君子案今天开庭宣判：唐荆陵5年、袁新亭3年半、王清营2…</a>
-</h2>
-<p>广州三君子案今天开庭宣判：唐荆陵5年、袁新亭3年半、王清营2年半。他们三个人，一个是律师，一个是编辑，一个是老师。都是温和善良，充满正义感的谦谦君子，如今被判，唐荆陵说他不上诉，他只向上帝和人民上诉。<br><img src="http://ww1.sinaimg.cn/large/006lNjTsgw1f0gb3jume0j30m80m8n0e.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
