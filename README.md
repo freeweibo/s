@@ -38,6 +38,12 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3937092549317107" target="freeweibo-mirror">SPAM //@政经观察员范利祥:伪高尚</a>
+</h2>
+<p>SPAM //@政经观察员范利祥:伪高尚<br><br>RE: 【春晚可以休矣】每年大年三十晚都搞个大晚会，如果说早期还有些吸引力和品格的话，近十年来已落入宣传甚至强颜欢笑的可怜境地。伟高尚、假欢乐、馊锅巴充斥其中，各种歌舞升平掩饰弊端和不公。最可笑者，主办者还自娱地夸耀什么收视率还评优颁奖。年节娱乐都要官家主导，可悲！</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3937044944007202" target="freeweibo-mirror">感动！//@村务公开: 自由必胜，人民必胜。//@践行者Ha…</a>
 </h2>
 <p>感动！//@村务公开: 自由必胜，人民必胜。//@践行者Harry://@巫一观://@戎戎88日记: //@怜儿姑娘-: //@贾榀42:唐荆陵律师的这篇文章读来让人感动！<br><br>RE: 唐荆陵：不破楼兰终不还——我只向人民和上帝上诉<br><img src="http://ww3.sinaimg.cn/large/b3a40c85jw1f0hlvu28e6j20yi98o7wi.jpg"></p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3936699669659488" target="freeweibo-mirror">#新年，一起下厨吧#近日，一小撮不知从何而来的神秘人空降三里…</a>
 </h2>
 <p>#新年，一起下厨吧#近日，一小撮不知从何而来的神秘人空降三里屯一家餐厅，他们用锅碗瓢盆筷子勺敲击出具有催眠效果的魔幻打击乐，让在场的所有人先是大吃一惊，再是手舞足蹈地跟着他们扬长而去。这一消息在微博上已经炸翻了天~请在家人陪同下点击视频，以免被催眠！http://t.cn/RbuyG9O</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3936697937088069" target="freeweibo-mirror">[doge]我啥也没看到 http://t.cn/RbuKS…</a>
-</h2>
-<p>[doge]我啥也没看到 http://t.cn/RbuKSch</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
