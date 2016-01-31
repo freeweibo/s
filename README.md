@@ -138,7 +138,7 @@
 </h2>
 <p>SPAM 摸鱼，找找感觉。。<br><img src="http://ww4.sinaimg.cn/large/67c89502jw1f0irurvehmj20l007rwgq.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p>
 <table>
     <tr>
