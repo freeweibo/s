@@ -96,7 +96,7 @@
 </h2>
 <p>竞技场，去抢中华民国国旗，赵国的竞技精神，不过如此。换位思考一下，假如对岸抢你赵国国旗，你国运动员会怎样？ http://t.cn/Rbr3Yfb .</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3937420573284056" target="freeweibo-mirror">//@高小曜: //@冉彤律师: 学习历史//@刘耘博士:伍…</a>
 </h2>
