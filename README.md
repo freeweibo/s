@@ -32,6 +32,12 @@
 <p>
 	<small> ============== 4小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3937319586932478" target="freeweibo-mirror">至少本人质疑的不是老人，而是你袁立的说辞，请看：http:/…</a>
+</h2>
+<p>至少本人质疑的不是老人，而是你袁立的说辞，请看：http://t.cn/RbrJVYw；他自述因生病没打内战，51年县农场劳改1年，58年台湾要反攻大陆时被判5年。右边看看其自述抗战经历： http://t.cn/RbrS7xT //@成都双爷://@谢佑平:赞！//@陈生辉Connor:骂的<br><br>RE: 有一群狗在我昨天写的抗战老兵的微博下狅犬。质疑老人年龄，与是否上过黄埔军校。你们也配，人家上战场时，你连颗精子都不是！一边呆着去。另外说政府对他们好了，发了5000慰问金。我想应该有吧，政策在变。但是很多老兵确实坐了几十年牢，确实孤独终老。我们晚辈，应该常去看看他们[微笑]少没大没小的<br><img src="http://ww1.sinaimg.cn/large/473ed7c0gw1f0if1i037nj209c05k0sz.jpg"></p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3937269892990442" target="freeweibo-mirror">SPAM #华为澳洲体验区贺岁折扣大放送，转发送P8#曾经有…</a>
 </h2>
 <p>SPAM #华为澳洲体验区贺岁折扣大放送，转发送P8#曾经有份大奖摆在我眼前，而我差点错过！幸好我眼疾手快，喜大普奔！ http://t.cn/Rbn2z03</p>
@@ -133,12 +139,6 @@
 <p>除了甩开膀子说空话，就是壮士断腕说假话。【李克强：中国10万亿美元“大块头”必须保持一定增速】“经过30多年的高速发展，中国经济的确需要转变发展方式、调整经济结构、推动产业转型。” http://t.cn/RbBwgiR（分享自 @凤凰网）<br><img src="http://ww4.sinaimg.cn/large/b9b69db3jw1f0h29l8mazj20dc08wq3b.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3936829105080360" target="freeweibo-mirror">BBC 大型《全景》专题节目报道了《普京的秘密财富》。片中通…</a>
-</h2>
-<p>BBC 大型《全景》专题节目报道了《普京的秘密财富》。片中通过走访俄罗斯、美国，披露了大量普京财富的证据和一些当事人的亲诉。可以想象，普京会否认，甚至片中的有些人会“消失”。[衰]<br><img src="http://ww1.sinaimg.cn/large/dd816182gw1f0gzkz9ql1j20lc0bwjt0.jpg"></p>
-<p>
-	<small> ============== 2天前</small>
 </p>
 <table>
     <tr>
