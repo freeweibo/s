@@ -36,7 +36,7 @@
 </h2>
 <p>[奥特曼] //@菊十一画:图样图森破。 //@XIGA_Jenny:我伙呆 //@潘大潘Panmmou:转发微博<br><br>RE: 这个小品的阵容厉害了！ http://t.cn/RbRghis</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3937434565618859" target="freeweibo-mirror">SPAM 哈哈认真欣赏了一遍。//@我是任村长:彭麻麻模仿赵…</a>
 </h2>
@@ -132,7 +132,7 @@
 </h2>
 <p>这个小品的阵容厉害了！ http://t.cn/RbRghis</p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3937278906630617" target="freeweibo-mirror">有一群狗在我昨天写的抗战老兵的微博下狅犬。质疑老人年龄，与是…</a>
 </h2>
