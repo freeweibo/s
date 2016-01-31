@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3937420573284056" target="freeweibo-mirror">//@高小曜: //@冉彤律师: 学习历史//@刘耘博士:伍…</a>
+</h2>
+<p>//@高小曜: //@冉彤律师: 学习历史//@刘耘博士:伍修权在《回忆与怀念》中说，阿尔巴尼亚总书记霍查的女婿马利列，在1962年到中国要粮食，找到外贸部部长李强。李强没办法，又去找刘少奇。刘少奇命令从加拿大进口粮食的中国船队，立即改变航向，把进口救命的小麦，卸在阿尔巴尼亚的港口。</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3937391297260802" target="freeweibo-mirror">SPAM 又到了拼人品的时候了，万一中了呢？[哈哈] htt…</a>
 </h2>
 <p>SPAM 又到了拼人品的时候了，万一中了呢？[哈哈] http://t.cn/Rbn2z03</p>
@@ -30,7 +36,7 @@
 </h2>
 <p>SPAM 摸鱼，找找感觉。。<br><img src="http://ww4.sinaimg.cn/large/67c89502jw1f0irurvehmj20l007rwgq.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3937336822162402" target="freeweibo-mirror">给国军老兵的救济就像给犹太人的补偿一样，是对侵略罪行的追溯，…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3937044944007202" target="freeweibo-mirror">感动！//@村务公开: 自由必胜，人民必胜。//@践行者Ha…</a>
 </h2>
 <p>感动！//@村务公开: 自由必胜，人民必胜。//@践行者Harry://@巫一观://@戎戎88日记: //@怜儿姑娘-: //@贾榀42:唐荆陵律师的这篇文章读来让人感动！<br><br>RE: 唐荆陵：不破楼兰终不还——我只向人民和上帝上诉<br><img src="http://ww3.sinaimg.cn/large/b3a40c85jw1f0hlvu28e6j20yi98o7wi.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3937022366666568" target="freeweibo-mirror">唐荆陵：不破楼兰终不还——我只向人民和上帝上诉</a>
-</h2>
-<p>唐荆陵：不破楼兰终不还——我只向人民和上帝上诉<br><img src="http://ww3.sinaimg.cn/large/b3a40c85jw1f0hlvu28e6j20yi98o7wi.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
