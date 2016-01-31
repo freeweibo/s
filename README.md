@@ -20,6 +20,18 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3937391297260802" target="freeweibo-mirror">SPAM 又到了拼人品的时候了，万一中了呢？[哈哈] htt…</a>
+</h2>
+<p>SPAM 又到了拼人品的时候了，万一中了呢？[哈哈] http://t.cn/Rbn2z03</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3937387803972491" target="freeweibo-mirror">SPAM 摸鱼，找找感觉。。</a>
+</h2>
+<p>SPAM 摸鱼，找找感觉。。<br><img src="http://ww4.sinaimg.cn/large/67c89502jw1f0irurvehmj20l007rwgq.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3937336822162402" target="freeweibo-mirror">给国军老兵的救济就像给犹太人的补偿一样，是对侵略罪行的追溯，…</a>
 </h2>
 <p>给国军老兵的救济就像给犹太人的补偿一样，是对侵略罪行的追溯，并不意味肯定其抗战功绩。实际上那段灾难历史对当时政府的反思和检讨应该是主要的，现在做得还不够。//@历史的反衬者:国民党抗战中付出的惨烈代价是，不容忽视的。忘记历史就等于背叛。他们的牺牲是有目共睹。<br><br>RE: 有一群狗在我昨天写的抗战老兵的微博下狅犬。质疑老人年龄，与是否上过黄埔军校。你们也配，人家上战场时，你连颗精子都不是！一边呆着去。另外说政府对他们好了，发了5000慰问金。我想应该有吧，政策在变。但是很多老兵确实坐了几十年牢，确实孤独终老。我们晚辈，应该常去看看他们[微笑]少没大没小的<br><img src="http://ww1.sinaimg.cn/large/473ed7c0gw1f0if1i037nj209c05k0sz.jpg"></p>
@@ -125,18 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3937022366666568" target="freeweibo-mirror">唐荆陵：不破楼兰终不还——我只向人民和上帝上诉</a>
 </h2>
 <p>唐荆陵：不破楼兰终不还——我只向人民和上帝上诉<br><img src="http://ww3.sinaimg.cn/large/b3a40c85jw1f0hlvu28e6j20yi98o7wi.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3937014300930552" target="freeweibo-mirror">【春晚可以休矣】每年大年三十晚都搞个大晚会，如果说早期还有些…</a>
-</h2>
-<p>【春晚可以休矣】每年大年三十晚都搞个大晚会，如果说早期还有些吸引力和品格的话，近十年来已落入宣传甚至强颜欢笑的可怜境地。伟高尚、假欢乐、馊锅巴充斥其中，各种歌舞升平掩饰弊端和不公。最可笑者，主办者还自娱地夸耀什么收视率还评优颁奖。年节娱乐都要官家主导，可悲！</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3936959594693159" target="freeweibo-mirror">//@价值投资快客://@苏世山价值投资: 这个嘛，哈哈⋯⋯…</a>
-</h2>
-<p>//@价值投资快客://@苏世山价值投资: 这个嘛，哈哈⋯⋯，今天天气不错[微笑] //@余胜海:这说好像是赵国?//@邵明波://@钱中华: 转发微博</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
