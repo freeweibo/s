@@ -26,6 +26,12 @@
 <p>
 	<small> ============== 4小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3937691076763496" target="freeweibo-mirror">【呼格案的所谓追责，证明此处的法是典型的治民之法】对民，专治…</a>
+</h2>
+<p>【呼格案的所谓追责，证明此处的法是典型的治民之法】对民，专治各种不服；公家人犯罪，法不管用，除非站错队或者犯罪行径实在遮掩不住引起舆论涛涛。现在更糟，枪杀徐纯合的李乐斌至今逍遥法外，揭露他罪行的，不管网民或律师，抓了一大批，介入此案很深的锋锐事务所全军覆没，不是颠覆就是煽颠！<br><img src="http://ww3.sinaimg.cn/large/006isjHPgw1f0jqjxnnx2j308m064mxo.jpg"></p>
+<p>
+	<small> ============== 6小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3937651797480349" target="freeweibo-mirror">SPAM [doge]这是什么鬼？http://t.cn/R…</a>
 </h2>
 <p>SPAM [doge]这是什么鬼？http://t.cn/RbuKSch</p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3937418220368338" target="freeweibo-mirror">SPAM 以前的小品好玩，说着说着就唱起来，唱着唱着就抖起包…</a>
 </h2>
 <p>SPAM 以前的小品好玩，说着说着就唱起来，唱着唱着就抖起包袱，自带各种梗。。。。。不管何时看都觉得有趣。当然，演的人更厉害～[嘻嘻]<br><br>RE: 这个小品的阵容厉害了！ http://t.cn/RbRghis</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3937417058373468" target="freeweibo-mirror">大炮向教育界开火了，啥时转战股市？</a>
-</h2>
-<p>大炮向教育界开火了，啥时转战股市？<br><br>RE: 教育的可怕在于从来不是开启人的独立思考能力，而是只告诉你死死记住敎课书上告诉你的答案。不需要你去探索，为什么是这个答案的结果？不需要知道原因和有其它答案的可能，并且用考分限制你只能死记这个标准答案。于是就可以用欺骗掩盖事实的真相，甚至任意编写历史，颠倒黑白。让人民生活在谎言之中。</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
