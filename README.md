@@ -72,7 +72,7 @@
 </h2>
 <p>SPAM two国母s<br><br>RE: 这个小品的阵容厉害了！ http://t.cn/RbRghis</p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3937441515563239" target="freeweibo-mirror">SPAM 不谈别滴,这个反串小品演的绝了,强烈要求上春晚！[…</a>
 </h2>
