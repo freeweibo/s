@@ -20,6 +20,18 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3937651797480349" target="freeweibo-mirror">SPAM [doge]这是什么鬼？http://t.cn/R…</a>
+</h2>
+<p>SPAM [doge]这是什么鬼？http://t.cn/RbuKSch</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3937650127517290" target="freeweibo-mirror">//@一个老人日记_87695:看来是制度的产物。不进行政治…</a>
+</h2>
+<p>//@一个老人日记_87695:看来是制度的产物。不进行政治改革，不改变制度，不光有江核心、习核心，还会有别的核心。中国人民永远在“核心”的领导之下。//@挺美国: //@承天授命:毛魔复活//@未醉已迷情:直接喊万岁不就得了 //@Drew1002003:个人崇拜愈加畸形 //@陈茂来-:[吃惊]</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3937618339130033" target="freeweibo-mirror">SPAM 今天腊月二十三是小年，天津的习俗是吃糖瓜，传说在今…</a>
 </h2>
 <p>SPAM 今天腊月二十三是小年，天津的习俗是吃糖瓜，传说在今天用糖瓜祭祀灶王爷，让其上天在玉帝面前说好话，来年甜甜蜜蜜的寓意，也有粘住最嘴，不该乱说话的意思。今天你最想给谁送点糖瓜吃，粘嘴一天，别乱说了 。</p>
@@ -125,18 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3937416089781815" target="freeweibo-mirror">教育的可怕在于从来不是开启人的独立思考能力，而是只告诉你死死…</a>
 </h2>
 <p>教育的可怕在于从来不是开启人的独立思考能力，而是只告诉你死死记住敎课书上告诉你的答案。不需要你去探索，为什么是这个答案的结果？不需要知道原因和有其它答案的可能，并且用考分限制你只能死记这个标准答案。于是就可以用欺骗掩盖事实的真相，甚至任意编写历史，颠倒黑白。让人民生活在谎言之中。</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3937391297260802" target="freeweibo-mirror">SPAM 又到了拼人品的时候了，万一中了呢？[哈哈] htt…</a>
-</h2>
-<p>SPAM 又到了拼人品的时候了，万一中了呢？[哈哈] http://t.cn/Rbn2z03</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3937390894772209" target="freeweibo-mirror">一切所谓讲政治，如何依法治国？如何公平正义？ //@荣剑20…</a>
-</h2>
-<p>一切所谓讲政治，如何依法治国？如何公平正义？ //@荣剑2001:案子里面有政治。<br><br>RE: 正在认真学习一位省委书记对政法要员的训话http://t.cn/RbrW7W3<br><img src="http://ww4.sinaimg.cn/large/621d03b7gw1f0ip51753nj20k20d17al.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
