@@ -48,7 +48,7 @@
 </h2>
 <p>//@灰色的伞://@又来金好多:转发微博<br><br>RE: 因组织“6.4公祭活动”，被关押在郑州三看的于世文…<br><img src="http://ww2.sinaimg.cn/large/006eXDHkgw1f0iydqy38qj30qo2ce47n.jpg"></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3937785943598714" target="freeweibo-mirror">#上合安保表彰大会#  警民同心，其利断金。15000多名警…</a>
 </h2>
@@ -66,7 +66,7 @@
 </h2>
 <p>SPAM  //@善待他人就是善待自己://@IB林立人:这机票老贵吧？[哈哈]//@凤凰秦风的微博<br><br>RE: "這是那家航空公司？有這樣的服務？ " 我的秒拍作品,一起来看~ http://t.cn/RbB8JN1（使用#秒拍#录制）</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3937747473423126" target="freeweibo-mirror">SPAM //@IB林立人:这机票老贵吧？[哈哈]//@凤凰…</a>
 </h2>
