@@ -66,7 +66,7 @@
 </h2>
 <p>典型的文革余孽！倒行逆施！[衰]<br><img src="http://ww1.sinaimg.cn/large/006nfwizgw1f0izxq0wj9j30xj0qownn.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3937450491433881" target="freeweibo-mirror">SPAM two国母s</a>
 </h2>
