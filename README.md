@@ -66,7 +66,7 @@
 </h2>
 <p>SPAM [doge]这是什么鬼？http://t.cn/RbuKSch</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3937650127517290" target="freeweibo-mirror">//@一个老人日记_87695:看来是制度的产物。不进行政治…</a>
 </h2>
