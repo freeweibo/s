@@ -24,7 +24,7 @@
 </h2>
 <p>SPAM 【政协委员倡议杭州女性G20峰会期间都穿旗袍】近日，杭州市政协委员、中国杭州低碳科技馆副馆长江静向市政协十届五次会议递交了《关于倡议杭州女性在G20峰会期间穿旗袍的建议》，建议由该市文明办、市妇联共同发起“迎G20峰会，穿美丽旗袍，做美德佳人，展杭州故事”的倡议。http://t.cn/Rbe3CDe<br><img src="http://ww4.sinaimg.cn/large/72ff3c3fjw1f0kyfue3rxj20fa0a5754.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3938055398088424" target="freeweibo-mirror">//@理痕:回复@老虎不打盹007:不客气！要合作共同除害这…</a>
 </h2>
