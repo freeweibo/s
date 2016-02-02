@@ -26,6 +26,12 @@
 <p>
 	<small> ============== 4小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3938190945439232" target="freeweibo-mirror">习近平向老区和全国人民拜年</a>
+</h2>
+<p>习近平向老区和全国人民拜年<br><br>RE: #江西给总书记的答卷#村路一侧挤满了人,总书记向大家拜年,一一热情握手。他说：“我对井冈山怀有很深的感情。这是我第三次来,来瞻仰革命圣地,看望苏区人民,祝老区人民生活越来越好。”临行前,习近平再次向村民们表示：“祝神山村村民生活幸福、老人健康、孩子好好成长,祝乡亲们猴年吉祥！”<br><img src="http://ww3.sinaimg.cn/large/dbc3728bgw1f0lc2fd17mj20c807emyz.jpg"></p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3938072062523735" target="freeweibo-mirror">SPAM 【政协委员倡议杭州女性G20峰会期间都穿旗袍】近日…</a>
 </h2>
 <p>SPAM 【政协委员倡议杭州女性G20峰会期间都穿旗袍】近日，杭州市政协委员、中国杭州低碳科技馆副馆长江静向市政协十届五次会议递交了《关于倡议杭州女性在G20峰会期间穿旗袍的建议》，建议由该市文明办、市妇联共同发起“迎G20峰会，穿美丽旗袍，做美德佳人，展杭州故事”的倡议。http://t.cn/Rbe3CDe<br><img src="http://ww4.sinaimg.cn/large/72ff3c3fjw1f0kyfue3rxj20fa0a5754.jpg"></p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3937618339130033" target="freeweibo-mirror">SPAM 今天腊月二十三是小年，天津的习俗是吃糖瓜，传说在今…</a>
 </h2>
 <p>SPAM 今天腊月二十三是小年，天津的习俗是吃糖瓜，传说在今天用糖瓜祭祀灶王爷，让其上天在玉帝面前说好话，来年甜甜蜜蜜的寓意，也有粘住最嘴，不该乱说话的意思。今天你最想给谁送点糖瓜吃，粘嘴一天，别乱说了 。</p>
-<p>
-	<small> ============== 2天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3937497652817906" target="freeweibo-mirror">SPAM //@张洲:只转不评。//@窝窝之网事: 哦？//</a>
-</h2>
-<p>SPAM //@张洲:只转不评。//@窝窝之网事: 哦？//<br><br>RE: 竞技场，去抢中华民国国旗，赵国的竞技精神，不过如此。换位思考一下，假如对岸抢你赵国国旗，你国运动员会怎样？ http://t.cn/Rbr3Yfb .</p>
 <p>
 	<small> ============== 2天前</small>
 </p>
