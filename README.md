@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3938225959496237" target="freeweibo-mirror">比如“【也】是安排好的” [偷笑]  http://t.cn…</a>
+</h2>
+<p>比如“【也】是安排好的” [偷笑]  http://t.cn/Rbk2qX3 //@战争史研究WHS: 翻译一下：“中纪委你给老子记着，我胡某某是长者系的人，一颗赛艇～” ——这两年您老和手下小喽罗们偷偷给习总上眼药下绊子的一些小动作也顿时揭开了谜底[偷笑]</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3938192627271293" target="freeweibo-mirror">解放军五大战区司令部驻地公开 http://t.cn/RbD…</a>
 </h2>
 <p>解放军五大战区司令部驻地公开 http://t.cn/RbDQqG4</p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3937651797480349" target="freeweibo-mirror">SPAM [doge]这是什么鬼？http://t.cn/R…</a>
 </h2>
 <p>SPAM [doge]这是什么鬼？http://t.cn/RbuKSch</p>
-<p>
-	<small> ============== 2天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3937650127517290" target="freeweibo-mirror">//@一个老人日记_87695:看来是制度的产物。不进行政治…</a>
-</h2>
-<p>//@一个老人日记_87695:看来是制度的产物。不进行政治改革，不改变制度，不光有江核心、习核心，还会有别的核心。中国人民永远在“核心”的领导之下。//@挺美国: //@承天授命:毛魔复活//@未醉已迷情:直接喊万岁不就得了 //@Drew1002003:个人崇拜愈加畸形 //@陈茂来-:[吃惊]</p>
 <p>
 	<small> ============== 2天前</small>
 </p>
