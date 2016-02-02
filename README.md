@@ -44,6 +44,12 @@
 <p>
 	<small> ============== 1天前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3937817379597969" target="freeweibo-mirror">千方百计把农民驱离土地进而彻底私有化中国！彻底把中国政治经济…</a>
+</h2>
+<p>千方百计把农民驱离土地进而彻底私有化中国！彻底把中国政治经济纳入寡头买办资产阶级的管控之下！其计不可谓不恶毒，其心不可谓不险恶！李总也只不过是谁家的一条狗而已！『李克强：着力稳定和扩大农民工就业 有序推进农民工融入城市_财经网 - CAIJING.COM.CN』http://t.cn/RbeL7gx</p>
+<p>
+	<small> ============== 1天前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3937812238246073" target="freeweibo-mirror">【央视猴年春晚再遭大规模泄露：疑似卫星信号被劫持】今天下午，…</a>
 </h2>
 <p>【央视猴年春晚再遭大规模泄露：疑似卫星信号被劫持】今天下午，涉及央视2016年猴年春晚彩排画面的照片被更大规模的泄露了出来。从泄露的中篇我们已经大致能够看出今年春晚会场的情况和部分节目的细节，包括主持人的开场贺词，甚至包含几大分会场的画面……详情点击：http://t.cn/RbewkJI<br><img src="http://ww1.sinaimg.cn/large/6cd6d028jw1f0k4llkd5ij20go09d0tm.jpg"></p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3937488546580070" target="freeweibo-mirror">SPAM 这种东西，谁烧谁背锅，凭啥啊。</a>
 </h2>
 <p>SPAM 这种东西，谁烧谁背锅，凭啥啊。<br><br>RE: 为了毁灭证据，e租宝的犯罪嫌疑人将1200余册证据材料装入80余个编织袋，埋藏在合肥市郊外某处6米深的地下，专案组动用两台挖掘机，历时20余个小时才将其挖出。 我就想问犯罪嫌疑人一个问题：人类发明火是干啥用的？</p>
-<p>
-	<small> ============== 2天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3937486822404479" target="freeweibo-mirror">//@馨雨纤尘://@chen迁迁13://@舜之壤一胡尘里…</a>
-</h2>
-<p>//@馨雨纤尘://@chen迁迁13://@舜之壤一胡尘里://@江山勇者火化中://@水9度: //@阿拉要砸鍋37:转发微博<br><br>RE: 典型的文革余孽！倒行逆施！[衰]<br><img src="http://ww1.sinaimg.cn/large/006nfwizgw1f0izxq0wj9j30xj0qownn.jpg"></p>
 <p>
 	<small> ============== 2天前</small>
 </p>
