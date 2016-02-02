@@ -42,7 +42,7 @@
 </h2>
 <p>【央视猴年春晚再遭大规模泄露：疑似卫星信号被劫持】今天下午，涉及央视2016年猴年春晚彩排画面的照片被更大规模的泄露了出来。从泄露的中篇我们已经大致能够看出今年春晚会场的情况和部分节目的细节，包括主持人的开场贺词，甚至包含几大分会场的画面……详情点击：http://t.cn/RbewkJI<br><img src="http://ww1.sinaimg.cn/large/6cd6d028jw1f0k4llkd5ij20go09d0tm.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3937786908544761" target="freeweibo-mirror">//@灰色的伞://@又来金好多:转发微博</a>
 </h2>
