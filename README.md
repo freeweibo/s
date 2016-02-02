@@ -126,7 +126,7 @@
 </h2>
 <p></p>
 <p>
-	<small> ============== 1天前</small>
+	<small> ============== 2天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3937691076763496" target="freeweibo-mirror">【呼格案的所谓追责，证明此处的法是典型的治民之法】对民，专治…</a>
 </h2>
