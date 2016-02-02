@@ -114,7 +114,7 @@
 </h2>
 <p>SPAM //@张洲:只转不评。//@窝窝之网事: 哦？//<br><br>RE: 竞技场，去抢中华民国国旗，赵国的竞技精神，不过如此。换位思考一下，假如对岸抢你赵国国旗，你国运动员会怎样？ http://t.cn/Rbr3Yfb .</p>
 <p>
-	<small> ============== 1天前</small>
+	<small> ============== 2天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3937491272588398" target="freeweibo-mirror">SPAM 还有碎纸机～[思考]</a>
 </h2>
