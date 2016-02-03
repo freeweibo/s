@@ -48,7 +48,7 @@
 </h2>
 <p>面对港媒记者的提问，老江一针见血的指出问题，极其精准，记者的那点小伎俩，太幼稚，知识太欠缺，真是贻笑大方，现在微博上也有很多这样的记者，不以为耻、反以为荣。 http://t.cn/RbDB8Rm</p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3938478339693617" target="freeweibo-mirror">那阵子把香港政界媒体的政治水平当做一个国家的去对待，结果连个…</a>
 </h2>
@@ -72,7 +72,7 @@
 </h2>
 <p>SPAM //@何三畏: 原来张学良其实姓赵<br><br>RE: 你们都弄错了，赵家是这么来的<br><img src="http://ww4.sinaimg.cn/large/473f8cfdgw1f0lzpqk9o0j20i00m8dh3.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3938439931738354" target="freeweibo-mirror">SPAM //@郁千翊://@放眼_://@不破楼兰终不还_…</a>
 </h2>
