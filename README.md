@@ -36,7 +36,7 @@
 </h2>
 <p>这也是一种观点。</p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3938478339693617" target="freeweibo-mirror">那阵子把香港政界媒体的政治水平当做一个国家的去对待，结果连个…</a>
 </h2>
