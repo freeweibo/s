@@ -138,7 +138,7 @@
 </h2>
 <p>【李克强宁夏清真寺与民族宗教人士恳谈】昨天，国家主席习近平再上井冈山看望当地群众，国务院总理李克强赶赴宁夏向各族人民“云拜年”。http://t.cn/RbkIdTw把团结的希望放在宗教权贵身上，而不是放在世俗群众身上，抱薪救火，缘木求鱼。<br><img src="http://ww2.sinaimg.cn/large/dd260bddgw1f0lv0viy9sj208m064jrn.jpg"></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p>
 <table>
     <tr>
