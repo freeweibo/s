@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3938390414378496" target="freeweibo-mirror">SPAM //@禁言too: //@雷颐://@徐幸起:[赞…</a>
+</h2>
+<p>SPAM //@禁言too: //@雷颐://@徐幸起:[赞]//@王亚军上海: [赞] //@陈业文新大都:[心][鲜花] //@作家沙光:身体安康（上联）   文本飘香（下联）   横批：祝福   [心]<br><br>RE: 今天去花市买一盆水仙，门口贴上好友针对我写的春联：毛病未改（上联）   积恶成习（下联）横批：没治    报告网友：章诒和迎春活动准备完毕！</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3938379911251710" target="freeweibo-mirror">SPAM 拼人品的时候到了，万一中了呢？[哈哈]</a>
 </h2>
 <p>SPAM 拼人品的时候到了，万一中了呢？[哈哈]</p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3937720705781723" target="freeweibo-mirror"></a>
 </h2>
 <p></p>
-<p>
-	<small> ============== 2天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3937691076763496" target="freeweibo-mirror">【呼格案的所谓追责，证明此处的法是典型的治民之法】对民，专治…</a>
-</h2>
-<p>【呼格案的所谓追责，证明此处的法是典型的治民之法】对民，专治各种不服；公家人犯罪，法不管用，除非站错队或者犯罪行径实在遮掩不住引起舆论涛涛。现在更糟，枪杀徐纯合的李乐斌至今逍遥法外，揭露他罪行的，不管网民或律师，抓了一大批，介入此案很深的锋锐事务所全军覆没，不是颠覆就是煽颠！<br><img src="http://ww3.sinaimg.cn/large/006isjHPgw1f0jqjxnnx2j308m064mxo.jpg"></p>
 <p>
 	<small> ============== 2天前</small>
 </p>
