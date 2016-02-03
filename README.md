@@ -134,9 +134,9 @@
 <p>
 	<small> ============== 1天前</small>
 </p><h2>
-	<a href="https://freeweibo.com/weibo/3938190945439232" target="freeweibo-mirror">习近平向老区和全国人民拜年</a>
+	<a href="https://freeweibo.com/weibo/3938192413355102" target="freeweibo-mirror">这里即使书记收不到，也要……让他们看看民众的心声。</a>
 </h2>
-<p>习近平向老区和全国人民拜年<br><br>RE: #江西给总书记的答卷#村路一侧挤满了人,总书记向大家拜年,一一热情握手。他说：“我对井冈山怀有很深的感情。这是我第三次来,来瞻仰革命圣地,看望苏区人民,祝老区人民生活越来越好。”临行前,习近平再次向村民们表示：“祝神山村村民生活幸福、老人健康、孩子好好成长,祝乡亲们猴年吉祥！”<br><img src="http://ww3.sinaimg.cn/large/dbc3728bgw1f0lc2fd17mj20c807emyz.jpg"></p>
+<p>这里即使书记收不到，也要……让他们看看民众的心声。<br><img src="http://ww2.sinaimg.cn/large/0065EKZrjw1f0lc6ifue0j30hw0g80xq.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
