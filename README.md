@@ -92,11 +92,23 @@
 <p>
 	<small> ============== 4小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3938355773262595" target="freeweibo-mirror">【李克强宁夏清真寺与民族宗教人士恳谈】昨天，国家主席习近平再…</a>
+</h2>
+<p>【李克强宁夏清真寺与民族宗教人士恳谈】昨天，国家主席习近平再上井冈山看望当地群众，国务院总理李克强赶赴宁夏向各族人民“云拜年”。http://t.cn/RbkIdTw把团结的希望放在宗教权贵身上，而不是放在世俗群众身上，抱薪救火，缘木求鱼。<br><img src="http://ww2.sinaimg.cn/large/dd260bddgw1f0lv0viy9sj208m064jrn.jpg"></p>
+<p>
+	<small> ============== 5小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3938354636689277" target="freeweibo-mirror">今天去花市买一盆水仙，门口贴上好友针对我写的春联：毛病未改（…</a>
 </h2>
 <p>今天去花市买一盆水仙，门口贴上好友针对我写的春联：毛病未改（上联）   积恶成习（下联）横批：没治    报告网友：章诒和迎春活动准备完毕！</p>
 <p>
 	<small> ============== 5小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3938233945741955" target="freeweibo-mirror">共青团是一个多么无耻的存在？和大陆相比，台湾像原始社会？别说…</a>
+</h2>
+<p>共青团是一个多么无耻的存在？和大陆相比，台湾像原始社会？别说民主制度，别说对政府不满意就可以换班子，别说人文素质，就一个脸书，都甩你八条街。真以为防火墙能挡住人们的眼睛啊！什么年代了，还搞愚民那一套，只能显示你自己的愚蠢！问你，你组织的经费是不是从财政出的？经过人民同意了吗？<br><img src="http://ww1.sinaimg.cn/large/450d9682jw1f0lh0l1dy2j20xc1hc1hw.jpg"></p>
+<p>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3938225959496237" target="freeweibo-mirror">比如“【也】是安排好的” [偷笑]  http://t.cn…</a>
 </h2>
@@ -125,18 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3938190723748424" target="freeweibo-mirror">#江西给总书记的答卷#村路一侧挤满了人,总书记向大家拜年,一…</a>
 </h2>
 <p>#江西给总书记的答卷#村路一侧挤满了人,总书记向大家拜年,一一热情握手。他说：“我对井冈山怀有很深的感情。这是我第三次来,来瞻仰革命圣地,看望苏区人民,祝老区人民生活越来越好。”临行前,习近平再次向村民们表示：“祝神山村村民生活幸福、老人健康、孩子好好成长,祝乡亲们猴年吉祥！”<br><img src="http://ww3.sinaimg.cn/large/dbc3728bgw1f0lc2fd17mj20c807emyz.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3938072062523735" target="freeweibo-mirror">SPAM 【政协委员倡议杭州女性G20峰会期间都穿旗袍】近日…</a>
-</h2>
-<p>SPAM 【政协委员倡议杭州女性G20峰会期间都穿旗袍】近日，杭州市政协委员、中国杭州低碳科技馆副馆长江静向市政协十届五次会议递交了《关于倡议杭州女性在G20峰会期间穿旗袍的建议》，建议由该市文明办、市妇联共同发起“迎G20峰会，穿美丽旗袍，做美德佳人，展杭州故事”的倡议。http://t.cn/Rbe3CDe<br><img src="http://ww4.sinaimg.cn/large/72ff3c3fjw1f0kyfue3rxj20fa0a5754.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3938055398088424" target="freeweibo-mirror">//@理痕:回复@老虎不打盹007:不客气！要合作共同除害这…</a>
-</h2>
-<p>//@理痕:回复@老虎不打盹007:不客气！要合作共同除害这才是我们目的！ //@老虎不打盹007:回复@理痕:谢谢[握手]<br><br>RE: 千方百计把农民驱离土地进而彻底私有化中国！彻底把中国政治经济纳入寡头买办资产阶级的管控之下！其计不可谓不恶毒，其心不可谓不险恶！李总也只不过是谁家的一条狗而已！『李克强：着力稳定和扩大农民工就业 有序推进农民工融入城市_财经网 - CAIJING.COM.CN』http://t.cn/RbeL7gx</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
