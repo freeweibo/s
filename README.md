@@ -72,13 +72,13 @@
 </h2>
 <p>//@下岗女工三: “在大陆，网络代表着一种生活方式”，那就是：你一直被屏蔽，可能被删除，与此同时，你必须忍受。<br><br>RE: 共青团是一个多么无耻的存在？和大陆相比，台湾像原始社会？别说民主制度，别说对政府不满意就可以换班子，别说人文素质，就一个脸书，都甩你八条街。真以为防火墙能挡住人们的眼睛啊！什么年代了，还搞愚民那一套，只能显示你自己的愚蠢！问你，你组织的经费是不是从财政出的？经过人民同意了吗？<br><img src="http://ww1.sinaimg.cn/large/450d9682jw1f0lh0l1dy2j20xc1hc1hw.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3938396869028942" target="freeweibo-mirror">你们都弄错了，赵家是这么来的</a>
 </h2>
 <p>你们都弄错了，赵家是这么来的<br><img src="http://ww4.sinaimg.cn/large/473f8cfdgw1f0lzpqk9o0j20i00m8dh3.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3938394646134914" target="freeweibo-mirror">市场经济时代，还没断奶？//@猫头鹰快艇: 广告还说收礼只收…</a>
 </h2>
