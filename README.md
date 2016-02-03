@@ -102,13 +102,13 @@
 </h2>
 <p>SPAM 拼人品的时候到了，万一中了呢？[哈哈]</p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3938379685140248" target="freeweibo-mirror">白帽心想：“感赞真主，又派卡菲尔给俺们送温暖来了。” //@…</a>
 </h2>
 <p>白帽心想：“感赞真主，又派卡菲尔给俺们送温暖来了。” //@猫头鹰快艇:回复@良怪:目前没发现。也许他擅长去国台办也未可知//@良怪:突然有一问，Rick John到底有哪些治理强项啊？ @猫头鹰快艇<br><br>RE: 【李克强宁夏清真寺与民族宗教人士恳谈】昨天，国家主席习近平再上井冈山看望当地群众，国务院总理李克强赶赴宁夏向各族人民“云拜年”。http://t.cn/RbkIdTw把团结的希望放在宗教权贵身上，而不是放在世俗群众身上，抱薪救火，缘木求鱼。<br><img src="http://ww2.sinaimg.cn/large/dd260bddgw1f0lv0viy9sj208m064jrn.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3938378812952338" target="freeweibo-mirror">充分利用法不责众的潜规则，把越多的人拖下水，自己就越安全！/…</a>
 </h2>
