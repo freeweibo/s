@@ -42,7 +42,7 @@
 </h2>
 <p>这也是一种观点。</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3938490179999108" target="freeweibo-mirror">面对港媒记者的提问，老江一针见血的指出问题，极其精准，记者的…</a>
 </h2>
