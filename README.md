@@ -24,7 +24,7 @@
 </h2>
 <p>这也是一种观点。</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3938473511716781" target="freeweibo-mirror">//@琉球战士:中宣部、中网办真乱。。这让全国人民情何以堪。…</a>
 </h2>
