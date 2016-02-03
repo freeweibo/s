@@ -36,7 +36,7 @@
 </h2>
 <p>简单说，从呼格向检察院翻供的材料来看，他承认当时去女厕所“摸了（受害人）乳房和阴部两下”，指甲缝里也检出和女受害人血型一样的皮屑——当时他确有嫌疑。且真凶赵志红口供称“作案射精多少都记得很肯定、清晰”，但诡异的是受害人分泌物却未检出精斑。此案与杨乃武案根本两码事。<br><br>RE: 說趙國倒退至清朝，簡直是對清朝的侮辱！<br><img src="http://ww4.sinaimg.cn/large/006iYoQ3jw1f0lycymt2rj30cj0m80xa.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3938492541459026" target="freeweibo-mirror">这也是一种观点。</a>
 </h2>
