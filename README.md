@@ -48,7 +48,7 @@
 </h2>
 <p>SPAM //@何三畏: 原来张学良其实姓赵<br><br>RE: 你们都弄错了，赵家是这么来的<br><img src="http://ww4.sinaimg.cn/large/473f8cfdgw1f0lzpqk9o0j20i00m8dh3.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3938439931738354" target="freeweibo-mirror">SPAM //@郁千翊://@放眼_://@不破楼兰终不还_…</a>
 </h2>
@@ -90,7 +90,7 @@
 </h2>
 <p>SPAM 绝对！//@上海老顽童吴德余:堪称丙申第一联，绝对！[赞][鼓掌]<br><br>RE: 今天去花市买一盆水仙，门口贴上好友针对我写的春联：毛病未改（上联）   积恶成习（下联）横批：没治    报告网友：章诒和迎春活动准备完毕！</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3938390414378496" target="freeweibo-mirror">SPAM //@禁言too: //@雷颐://@徐幸起:[赞…</a>
 </h2>
