@@ -42,7 +42,7 @@
 </h2>
 <p>微信看到的：＂核心＂来了，＂伟大＂还远吗；＂伟大＂来了，＂万岁＂还远吗？<br><img src="http://ww2.sinaimg.cn/large/c57c1a49jw1f0ndm3mb4ej217a0w0wmd.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3938804396050919" target="freeweibo-mirror">德国自干五妄议「四个全面」[生病][生病][生病] http…</a>
 </h2>
