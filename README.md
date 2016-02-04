@@ -24,7 +24,7 @@
 </h2>
 <p>有民谣，有官谣、有专谣、农业部转基因害有高层谣。是李断腕狂言//@闻得檐雨滴声: 再看一遍，吃相难看极了。手指头戳发戳发。瘪三流氓。</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3938835954223213" target="freeweibo-mirror">SPAM 万岁来了，温都尔汉还远吗？</a>
 </h2>
@@ -96,7 +96,7 @@
 </h2>
 <p>美媒：令完成正在向美情报机构汇报<br><img src="http://ww1.sinaimg.cn/large/006lqV4Pjw1f0n6465wqrj30k02tbav1.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3938763958483422" target="freeweibo-mirror">这一天不会太遥远→_→//@竹韵的花园:乐见赵家走向没落 /…</a>
 </h2>
