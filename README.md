@@ -36,11 +36,17 @@
 </h2>
 <p>有民谣，有官谣、有专谣、农业部转基因害有高层谣。是李断腕狂言//@闻得檐雨滴声: 再看一遍，吃相难看极了。手指头戳发戳发。瘪三流氓。</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3938835954223213" target="freeweibo-mirror">SPAM 万岁来了，温都尔汉还远吗？</a>
 </h2>
 <p>SPAM 万岁来了，温都尔汉还远吗？<br><br>RE: 微信看到的：＂核心＂来了，＂伟大＂还远吗；＂伟大＂来了，＂万岁＂还远吗？<br><img src="http://ww2.sinaimg.cn/large/c57c1a49jw1f0ndm3mb4ej217a0w0wmd.jpg"></p>
+<p>
+	<small> ============== 5小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3938833504724825" target="freeweibo-mirror">令某完成了什么？</a>
+</h2>
+<p>令某完成了什么？<br><img src="http://ww4.sinaimg.cn/large/473f8cfdgw1f0ndut5dv1j20m80zk0wf.jpg"></p>
 <p>
 	<small> ============== 5小时前</small>
 </p><h2>
@@ -114,7 +120,7 @@
 </h2>
 <p>美媒：令完成正在向美情报机构汇报<br><img src="http://ww1.sinaimg.cn/large/006lqV4Pjw1f0n6465wqrj30k02tbav1.jpg"></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3938763958483422" target="freeweibo-mirror">这一天不会太遥远→_→//@竹韵的花园:乐见赵家走向没落 /…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3938761840781159" target="freeweibo-mirror">加多宝靠侮辱、辱骂英烈搞营销却能获“创新中国 .创新企业”中…</a>
 </h2>
 <p>加多宝靠侮辱、辱骂英烈搞营销却能获“创新中国 .创新企业”中国品牌两项权威大奖，从纯碎的商业觉度考虑这种营销是很低级、龌龊、肮脏的营销方式。这会让真正热爱这个民族的人感到透心凉。<br><br>RE: 【网信办，让我怎么再信你？】在与网信办有关同志交谈后，特别是当网信办推出系列治网规定、约谈这约谈那、评选“五个一百正能量”时，我对网信办寄予巨大的希望，并始终主动配合支持。但是，当得知侮辱邱少云的“加多宝”在你指导的评选中被树为了“正能量”时，我的希望顿时灰飞烟灭，我的心凉透了！<br><img src="http://ww2.sinaimg.cn/large/811168e6gw1f0n30kgi29j20ei070gm6.jpg"></p>
-<p>
-	<small> ============== 10小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3938760783398432" target="freeweibo-mirror">仅此而已 //@荣剑2001:一百家报纸和一家报纸，性质差不…</a>
-</h2>
-<p>仅此而已 //@荣剑2001:一百家报纸和一家报纸，性质差不多，反正没人看，不过是从造纸厂到印厂再到废品站，走完一圈，每个环节都可以算GDP，为GDP增长做点贡献，仅此而已。<br><br>RE: 如果说媒体监督，在以前只是妾身未明的话，现在则已经被葬入坟墓了。只有顶级央媒，才能偶尔出来说几句不咸不淡的话。这么看来，地方媒体，其实可以取消了，全国只有一家报纸，一家电视台，还节省资源。</p>
 <p>
 	<small> ============== 10小时前</small>
 </p>
