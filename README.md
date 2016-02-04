@@ -48,7 +48,7 @@
 </h2>
 <p>德国自干五妄议「四个全面」[生病][生病][生病] http://t.cn/Rbs4KWf .</p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3938794405306887" target="freeweibo-mirror">SPAM 这份右翼报纸一贯靠谱啊</a>
 </h2>
@@ -138,7 +138,7 @@
 </h2>
 <p>SPAM [偷笑][偷笑][偷笑]<br><br>RE: 总书记，您就在路上办公吧[偷笑][偷笑][偷笑]<br><img src="http://ww4.sinaimg.cn/large/006mMxbNgw1f0mgemvelqj30l70vz0xz.jpg"></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p>
 <table>
     <tr>
