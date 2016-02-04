@@ -42,7 +42,7 @@
 </h2>
 <p>SPAM //@剑君DV://@杜君立://@东邪西嘟嘟嘟: 人中吕布马中赤兔//@朱学东:[吃惊]<br><br>RE: 拜拜了，普世价值！红驹好帅！<br><img src="http://ww3.sinaimg.cn/large/492d06fbjw1f0n2ck8bwxj20m80g7wh8.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3938885693758677" target="freeweibo-mirror">SPAM Hujgffujhkd一群傻偷拍野战的，却拍到了两…</a>
 </h2>
@@ -108,7 +108,7 @@
 </h2>
 <p>德国自干五妄议「四个全面」[生病][生病][生病] http://t.cn/Rbs4KWf .</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3938794405306887" target="freeweibo-mirror">SPAM 这份右翼报纸一贯靠谱啊</a>
 </h2>
