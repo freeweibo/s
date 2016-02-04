@@ -30,7 +30,7 @@
 </h2>
 <p>SPAM 万岁来了，温都尔汉还远吗？<br><br>RE: 微信看到的：＂核心＂来了，＂伟大＂还远吗；＂伟大＂来了，＂万岁＂还远吗？<br><img src="http://ww2.sinaimg.cn/large/c57c1a49jw1f0ndm3mb4ej217a0w0wmd.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3938832589788351" target="freeweibo-mirror">SPAM [good][good][哈哈]</a>
 </h2>
@@ -72,7 +72,7 @@
 </h2>
 <p>SPAM 卖国，得够资格才行！[挖鼻]//@李学鹏: //@演员孙海英:美帝亡我之心不死，妄想把我们的令完成变成他们的？呸！我们还留着令有计划呢！<br><br>RE: 美媒：令完成正在向美情报机构汇报<br><img src="http://ww1.sinaimg.cn/large/006lqV4Pjw1f0n6465wqrj30k02tbav1.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3938784804910819" target="freeweibo-mirror">SPAM #胡歌# #胡歌代言光明畅优# 惊喜不断，胡歌相伴…</a>
 </h2>
@@ -126,13 +126,13 @@
 </h2>
 <p>仅此而已 //@荣剑2001:一百家报纸和一家报纸，性质差不多，反正没人看，不过是从造纸厂到印厂再到废品站，走完一圈，每个环节都可以算GDP，为GDP增长做点贡献，仅此而已。<br><br>RE: 如果说媒体监督，在以前只是妾身未明的话，现在则已经被葬入坟墓了。只有顶级央媒，才能偶尔出来说几句不咸不淡的话。这么看来，地方媒体，其实可以取消了，全国只有一家报纸，一家电视台，还节省资源。</p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3938759764749401" target="freeweibo-mirror">SPAM 我从来没看得起过赵家人豢养的伪爱国青年//@飞檐走…</a>
 </h2>
 <p>SPAM 我从来没看得起过赵家人豢养的伪爱国青年//@飞檐走壁的胖子:盛世呀，爱国青年们啥时候对内也愤怒一次呀？//@王小东: 级别完全不同，这次是什么级别什么位置//@230上铺: 老天！比俞某还猛吧！统治阶级呀//@爱国打工小民闲赋家中: including details of its nuclear command and control system</p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3938758812442933" target="freeweibo-mirror">SPAM [偷笑][偷笑][偷笑]</a>
 </h2>
