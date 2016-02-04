@@ -20,6 +20,18 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3938887225024428" target="freeweibo-mirror">SPAM //@剑君DV://@杜君立://@东邪西嘟嘟嘟:…</a>
+</h2>
+<p>SPAM //@剑君DV://@杜君立://@东邪西嘟嘟嘟: 人中吕布马中赤兔//@朱学东:[吃惊]<br><br>RE: 拜拜了，普世价值！红驹好帅！<br><img src="http://ww3.sinaimg.cn/large/492d06fbjw1f0n2ck8bwxj20m80g7wh8.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3938879490829429" target="freeweibo-mirror">SPAM 奸臣败露，得大于失。</a>
+</h2>
+<p>SPAM 奸臣败露，得大于失。<br><br>RE: 令某完成了什么？<br><img src="http://ww4.sinaimg.cn/large/473f8cfdgw1f0ndut5dv1j20m80zk0wf.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3938840110795718" target="freeweibo-mirror">有民谣，有官谣、有专谣、农业部转基因害有高层谣。是李断腕狂言…</a>
 </h2>
 <p>有民谣，有官谣、有专谣、农业部转基因害有高层谣。是李断腕狂言//@闻得檐雨滴声: 再看一遍，吃相难看极了。手指头戳发戳发。瘪三流氓。</p>
@@ -120,23 +132,11 @@
 </h2>
 <p>加多宝靠侮辱、辱骂英烈搞营销却能获“创新中国 .创新企业”中国品牌两项权威大奖，从纯碎的商业觉度考虑这种营销是很低级、龌龊、肮脏的营销方式。这会让真正热爱这个民族的人感到透心凉。<br><br>RE: 【网信办，让我怎么再信你？】在与网信办有关同志交谈后，特别是当网信办推出系列治网规定、约谈这约谈那、评选“五个一百正能量”时，我对网信办寄予巨大的希望，并始终主动配合支持。但是，当得知侮辱邱少云的“加多宝”在你指导的评选中被树为了“正能量”时，我的希望顿时灰飞烟灭，我的心凉透了！<br><img src="http://ww2.sinaimg.cn/large/811168e6gw1f0n30kgi29j20ei070gm6.jpg"></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3938760783398432" target="freeweibo-mirror">仅此而已 //@荣剑2001:一百家报纸和一家报纸，性质差不…</a>
 </h2>
 <p>仅此而已 //@荣剑2001:一百家报纸和一家报纸，性质差不多，反正没人看，不过是从造纸厂到印厂再到废品站，走完一圈，每个环节都可以算GDP，为GDP增长做点贡献，仅此而已。<br><br>RE: 如果说媒体监督，在以前只是妾身未明的话，现在则已经被葬入坟墓了。只有顶级央媒，才能偶尔出来说几句不咸不淡的话。这么看来，地方媒体，其实可以取消了，全国只有一家报纸，一家电视台，还节省资源。</p>
-<p>
-	<small> ============== 10小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3938759764749401" target="freeweibo-mirror">SPAM 我从来没看得起过赵家人豢养的伪爱国青年//@飞檐走…</a>
-</h2>
-<p>SPAM 我从来没看得起过赵家人豢养的伪爱国青年//@飞檐走壁的胖子:盛世呀，爱国青年们啥时候对内也愤怒一次呀？//@王小东: 级别完全不同，这次是什么级别什么位置//@230上铺: 老天！比俞某还猛吧！统治阶级呀//@爱国打工小民闲赋家中: including details of its nuclear command and control system</p>
-<p>
-	<small> ============== 10小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3938758812442933" target="freeweibo-mirror">SPAM [偷笑][偷笑][偷笑]</a>
-</h2>
-<p>SPAM [偷笑][偷笑][偷笑]<br><br>RE: 总书记，您就在路上办公吧[偷笑][偷笑][偷笑]<br><img src="http://ww4.sinaimg.cn/large/006mMxbNgw1f0mgemvelqj30l70vz0xz.jpg"></p>
 <p>
 	<small> ============== 10小时前</small>
 </p>
