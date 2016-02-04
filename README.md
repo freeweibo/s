@@ -38,6 +38,42 @@
 <p>
 	<small> ============== 1小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3938760783398432" target="freeweibo-mirror">仅此而已 //@荣剑2001:一百家报纸和一家报纸，性质差不…</a>
+</h2>
+<p>仅此而已 //@荣剑2001:一百家报纸和一家报纸，性质差不多，反正没人看，不过是从造纸厂到印厂再到废品站，走完一圈，每个环节都可以算GDP，为GDP增长做点贡献，仅此而已。<br><br>RE: 如果说媒体监督，在以前只是妾身未明的话，现在则已经被葬入坟墓了。只有顶级央媒，才能偶尔出来说几句不咸不淡的话。这么看来，地方媒体，其实可以取消了，全国只有一家报纸，一家电视台，还节省资源。</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3938759764749401" target="freeweibo-mirror">SPAM 我从来没看得起过赵家人豢养的伪爱国青年//@飞檐走…</a>
+</h2>
+<p>SPAM 我从来没看得起过赵家人豢养的伪爱国青年//@飞檐走壁的胖子:盛世呀，爱国青年们啥时候对内也愤怒一次呀？//@王小东: 级别完全不同，这次是什么级别什么位置//@230上铺: 老天！比俞某还猛吧！统治阶级呀//@爱国打工小民闲赋家中: including details of its nuclear command and control system</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3938758812442933" target="freeweibo-mirror">SPAM [偷笑][偷笑][偷笑]</a>
+</h2>
+<p>SPAM [偷笑][偷笑][偷笑]<br><br>RE: 总书记，您就在路上办公吧[偷笑][偷笑][偷笑]<br><img src="http://ww4.sinaimg.cn/large/006mMxbNgw1f0mgemvelqj30l70vz0xz.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3938758577865044" target="freeweibo-mirror">大棋党继续YY吧//@ZHAO_CHENJIE:别弄个蒋干盗…</a>
+</h2>
+<p>大棋党继续YY吧//@ZHAO_CHENJIE:别弄个蒋干盗书吧！//@王小东:级别完全不同，俞某只不过是个处级，他在上级哪里偷看了一点东西，这次是什么级别什么位置//@230上铺: 老天！比俞某还猛吧！统治阶级呀 //@芈四: 我去……上层卖国厉害如斯啊[弱]//@爱国打工小民闲赋家中</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3938737446219486" target="freeweibo-mirror">SPAM 这些赵家人，赖家人，就是一坨坨屎[鄙视][鄙视][…</a>
+</h2>
+<p>SPAM 这些赵家人，赖家人，就是一坨坨屎[鄙视][鄙视][鄙视]转：令完成偷出来的果然都是国家最高机密。 http://t.cn/RbFSG8g</p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3938721873157465" target="freeweibo-mirror">SPAM //@杨小滨-法镭: 小命悬矣 //@阿子: [衰…</a>
+</h2>
+<p>SPAM //@杨小滨-法镭: 小命悬矣 //@阿子: [衰] //@藕粽:BI 出品 //@atreides:… //@这货不是小白:转发微博</p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3938692874342291" target="freeweibo-mirror">//@王林的微博客:转发微博</a>
 </h2>
 <p>//@王林的微博客:转发微博<br><br>RE: 【一张白纸】苏联解体前，封锁越来越紧。有人在广场上发传单，警察过来查看，发现只不过是一张白纸，于是问怎么回事，发传单的人说：“每个人都知道上面写的是什么！”……你可以监控网络、邮件、电话、出版这一切的，但有一种东西你无法监控：那就是民心。</p>
@@ -60,13 +96,19 @@
 </h2>
 <p>克制？速度克制不住啊，否则卫星怎么上天啊！//@费煜鈞://@贺延光: 另一种方式的纵容罢了！<br><br>RE: 朝鲜刚爆了氢弹，转眼又要发射卫星，傻瓜都知道，这是朝鲜在试验它的远程投放能力。中国政府对此的反应是：严重关切，希望朝鲜克制。这听起来怎么都像是在对一个无赖说：请你保持冷静。中国现在很强大，不怕美国，更不尿日本，怎么对朝鲜一点办法都没有，撒币不行，动武不敢，还反对制裁。真是看不懂！<br><img src="http://ww4.sinaimg.cn/large/005XsazYjw1f0mbs8mnbyj30p018g7d1.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3938660455698761" target="freeweibo-mirror">【一张白纸】苏联解体前，封锁越来越紧。有人在广场上发传单，警…</a>
 </h2>
 <p>【一张白纸】苏联解体前，封锁越来越紧。有人在广场上发传单，警察过来查看，发现只不过是一张白纸，于是问怎么回事，发传单的人说：“每个人都知道上面写的是什么！”……你可以监控网络、邮件、电话、出版这一切的，但有一种东西你无法监控：那就是民心。</p>
 <p>
 	<small> ============== 8小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3938630462995752" target="freeweibo-mirror">令完成向美国汇报大量中国军事机密，包括核武器指挥结构  ht…</a>
+</h2>
+<p>令完成向美国汇报大量中国军事机密，包括核武器指挥结构  http://t.cn/RbFCtZF</p>
+<p>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3938582232477467" target="freeweibo-mirror">//@闲听落花慢品茶:看了视频，搜到了张图 http://t…</a>
 </h2>
@@ -95,48 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3938492541459026" target="freeweibo-mirror">这也是一种观点。</a>
 </h2>
 <p>这也是一种观点。</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3938490179999108" target="freeweibo-mirror">面对港媒记者的提问，老江一针见血的指出问题，极其精准，记者的…</a>
-</h2>
-<p>面对港媒记者的提问，老江一针见血的指出问题，极其精准，记者的那点小伎俩，太幼稚，知识太欠缺，真是贻笑大方，现在微博上也有很多这样的记者，不以为耻、反以为荣。 http://t.cn/RbDB8Rm</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3938478339693617" target="freeweibo-mirror">那阵子把香港政界媒体的政治水平当做一个国家的去对待，结果连个…</a>
-</h2>
-<p>那阵子把香港政界媒体的政治水平当做一个国家的去对待，结果连个直辖市都不如，也就是县级。//@陈流长:用娱乐八卦的下九流手段去采访一个国家领导人，长者肯定火大。//@西西福厮: 以前看这个觉得丢人，现在觉得老头挺率真的，香港记者够恶心。<br><br>RE: 告诉你们一点人生的经验。 http://t.cn/RbDB8Rm .</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3938473511716781" target="freeweibo-mirror">//@琉球战士:中宣部、中网办真乱。。这让全国人民情何以堪。…</a>
-</h2>
-<p>//@琉球战士:中宣部、中网办真乱。。这让全国人民情何以堪。。[吃惊]，记住“水能载舟,亦能覆舟”，@杜建国微博 @孔庆东@求是 @旗帜 @紫光阁 @林治波 @城市传媒5 @南街村de人 @思想火炬 @尚信传媒V@平民王小石 @尹国明 @地瓜熊老六 @全球评点1号 @刘毅然 //@井十石: [吃惊][吃惊][吃惊]</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3938462769639552" target="freeweibo-mirror">更讽刺的是，国务院下属的中新社还把e租宝评选为……自己看吧</a>
-</h2>
-<p>更讽刺的是，国务院下属的中新社还把e租宝评选为……自己看吧</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3938459972516137" target="freeweibo-mirror">SPAM //@何三畏: 原来张学良其实姓赵</a>
-</h2>
-<p>SPAM //@何三畏: 原来张学良其实姓赵<br><br>RE: 你们都弄错了，赵家是这么来的<br><img src="http://ww4.sinaimg.cn/large/473f8cfdgw1f0lzpqk9o0j20i00m8dh3.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3938439931738354" target="freeweibo-mirror">SPAM //@郁千翊://@放眼_://@不破楼兰终不还_…</a>
-</h2>
-<p>SPAM //@郁千翊://@放眼_://@不破楼兰终不还_76246://@三吨博士: 中央啥时候救党啊//@实践dandy:习核心//@艹长老105:救包子！</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3938427499862009" target="freeweibo-mirror">//@被淹死的鲔鱼:說明你成熟了，開始做夢[哈哈]//@这个…</a>
-</h2>
-<p>//@被淹死的鲔鱼:說明你成熟了，開始做夢[哈哈]//@这个冬季特别冷:装逼中的战斗机。既然如此，你下来，让我当一下这个跑腿办事员好不好！</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
