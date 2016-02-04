@@ -26,6 +26,12 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3938660455698761" target="freeweibo-mirror">【一张白纸】苏联解体前，封锁越来越紧。有人在广场上发传单，警…</a>
+</h2>
+<p>【一张白纸】苏联解体前，封锁越来越紧。有人在广场上发传单，警察过来查看，发现只不过是一张白纸，于是问怎么回事，发传单的人说：“每个人都知道上面写的是什么！”……你可以监控网络、邮件、电话、出版这一切的，但有一种东西你无法监控：那就是民心。</p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3938582232477467" target="freeweibo-mirror">//@闲听落花慢品茶:看了视频，搜到了张图 http://t…</a>
 </h2>
 <p>//@闲听落花慢品茶:看了视频，搜到了张图 http://t.cn/RbFPqgs<br><br>RE: 面对港媒记者的提问，老江一针见血的指出问题，极其精准，记者的那点小伎俩，太幼稚，知识太欠缺，真是贻笑大方，现在微博上也有很多这样的记者，不以为耻、反以为荣。 http://t.cn/RbDB8Rm</p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3938385112904301" target="freeweibo-mirror">說趙國倒退至清朝，簡直是對清朝的侮辱！</a>
 </h2>
 <p>說趙國倒退至清朝，簡直是對清朝的侮辱！<br><img src="http://ww4.sinaimg.cn/large/006iYoQ3jw1f0lycymt2rj30cj0m80xa.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3938379911251710" target="freeweibo-mirror">SPAM 拼人品的时候到了，万一中了呢？[哈哈]</a>
-</h2>
-<p>SPAM 拼人品的时候到了，万一中了呢？[哈哈]</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
