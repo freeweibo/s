@@ -132,7 +132,7 @@
 </h2>
 <p>SPAM 卖国，得够资格才行！[挖鼻]//@李学鹏: //@演员孙海英:美帝亡我之心不死，妄想把我们的令完成变成他们的？呸！我们还留着令有计划呢！<br><br>RE: 美媒：令完成正在向美情报机构汇报<br><img src="http://ww1.sinaimg.cn/large/006lqV4Pjw1f0n6465wqrj30k02tbav1.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3938784804910819" target="freeweibo-mirror">SPAM #胡歌# #胡歌代言光明畅优# 惊喜不断，胡歌相伴…</a>
 </h2>
