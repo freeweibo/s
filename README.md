@@ -114,7 +114,7 @@
 </h2>
 <p>SPAM 这份右翼报纸一贯靠谱啊<br><br>RE: 美媒：令完成正在向美情报机构汇报<br><img src="http://ww1.sinaimg.cn/large/006lqV4Pjw1f0n6465wqrj30k02tbav1.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3938793290087762" target="freeweibo-mirror">SPAM 石头的声音听起来好着急，涛叔究竟怎样回答了呀？他今…</a>
 </h2>
