@@ -72,7 +72,7 @@
 </h2>
 <p>SPAM 哈哈，公知太讨厌了[吃惊] //@十年砍柴:令家兄弟一定是受公知的影响才堕落如此的。<br><br>RE: 令某完成了什么？<br><img src="http://ww4.sinaimg.cn/large/473f8cfdgw1f0ndut5dv1j20m80zk0wf.jpg"></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3938840110795718" target="freeweibo-mirror">有民谣，有官谣、有专谣、农业部转基因害有高层谣。是李断腕狂言…</a>
 </h2>
@@ -102,7 +102,7 @@
 </h2>
 <p>微信看到的：＂核心＂来了，＂伟大＂还远吗；＂伟大＂来了，＂万岁＂还远吗？<br><img src="http://ww2.sinaimg.cn/large/c57c1a49jw1f0ndm3mb4ej217a0w0wmd.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3938804396050919" target="freeweibo-mirror">德国自干五妄议「四个全面」[生病][生病][生病] http…</a>
 </h2>
