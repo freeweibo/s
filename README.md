@@ -38,6 +38,12 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3938763635796955" target="freeweibo-mirror">SPAM some of the innermost sec…</a>
+</h2>
+<p>SPAM some of the innermost secrets of the Chinese government and military, including details of its nuclear command and control system……Ling Wancheng, has been undergoing a debrief by FBI, CIA……[愤怒][愤怒]//@晋文的微博: [鄙视]</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3938760783398432" target="freeweibo-mirror">仅此而已 //@荣剑2001:一百家报纸和一家报纸，性质差不…</a>
 </h2>
 <p>仅此而已 //@荣剑2001:一百家报纸和一家报纸，性质差不多，反正没人看，不过是从造纸厂到印厂再到废品站，走完一圈，每个环节都可以算GDP，为GDP增长做点贡献，仅此而已。<br><br>RE: 如果说媒体监督，在以前只是妾身未明的话，现在则已经被葬入坟墓了。只有顶级央媒，才能偶尔出来说几句不咸不淡的话。这么看来，地方媒体，其实可以取消了，全国只有一家报纸，一家电视台，还节省资源。</p>
@@ -84,7 +90,7 @@
 </h2>
 <p>//@王林的微博客:转发微博<br><br>RE: 【一张白纸】苏联解体前，封锁越来越紧。有人在广场上发传单，警察过来查看，发现只不过是一张白纸，于是问怎么回事，发传单的人说：“每个人都知道上面写的是什么！”……你可以监控网络、邮件、电话、出版这一切的，但有一种东西你无法监控：那就是民心。</p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3938691233530450" target="freeweibo-mirror">//@茶人悟茶:民心向背。</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3938541967117907" target="freeweibo-mirror">总书记，您就在路上办公吧[偷笑][偷笑][偷笑]</a>
 </h2>
 <p>总书记，您就在路上办公吧[偷笑][偷笑][偷笑]<br><img src="http://ww4.sinaimg.cn/large/006mMxbNgw1f0mgemvelqj30l70vz0xz.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3938517870627936" target="freeweibo-mirror">简单说，从呼格向检察院翻供的材料来看，他承认当时去女厕所“摸…</a>
-</h2>
-<p>简单说，从呼格向检察院翻供的材料来看，他承认当时去女厕所“摸了（受害人）乳房和阴部两下”，指甲缝里也检出和女受害人血型一样的皮屑——当时他确有嫌疑。且真凶赵志红口供称“作案射精多少都记得很肯定、清晰”，但诡异的是受害人分泌物却未检出精斑。此案与杨乃武案根本两码事。<br><br>RE: 說趙國倒退至清朝，簡直是對清朝的侮辱！<br><img src="http://ww4.sinaimg.cn/large/006iYoQ3jw1f0lycymt2rj30cj0m80xa.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
