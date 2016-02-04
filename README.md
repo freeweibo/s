@@ -44,6 +44,12 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3938761840781159" target="freeweibo-mirror">加多宝靠侮辱、辱骂英烈搞营销却能获“创新中国 .创新企业”中…</a>
+</h2>
+<p>加多宝靠侮辱、辱骂英烈搞营销却能获“创新中国 .创新企业”中国品牌两项权威大奖，从纯碎的商业觉度考虑这种营销是很低级、龌龊、肮脏的营销方式。这会让真正热爱这个民族的人感到透心凉。<br><br>RE: 【网信办，让我怎么再信你？】在与网信办有关同志交谈后，特别是当网信办推出系列治网规定、约谈这约谈那、评选“五个一百正能量”时，我对网信办寄予巨大的希望，并始终主动配合支持。但是，当得知侮辱邱少云的“加多宝”在你指导的评选中被树为了“正能量”时，我的希望顿时灰飞烟灭，我的心凉透了！<br><img src="http://ww2.sinaimg.cn/large/811168e6gw1f0n30kgi29j20ei070gm6.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3938760783398432" target="freeweibo-mirror">仅此而已 //@荣剑2001:一百家报纸和一家报纸，性质差不…</a>
 </h2>
 <p>仅此而已 //@荣剑2001:一百家报纸和一家报纸，性质差不多，反正没人看，不过是从造纸厂到印厂再到废品站，走完一圈，每个环节都可以算GDP，为GDP增长做点贡献，仅此而已。<br><br>RE: 如果说媒体监督，在以前只是妾身未明的话，现在则已经被葬入坟墓了。只有顶级央媒，才能偶尔出来说几句不咸不淡的话。这么看来，地方媒体，其实可以取消了，全国只有一家报纸，一家电视台，还节省资源。</p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3938554713974878" target="freeweibo-mirror">SPAM 韩国本土设计师出品 国际快递直发@youarewh…</a>
 </h2>
 <p>SPAM 韩国本土设计师出品 国际快递直发@youarewhatyouwear<br><img src="http://ww1.sinaimg.cn/large/70623bbbgw1f0mg4i67kpj20h00h0jus.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3938541967117907" target="freeweibo-mirror">总书记，您就在路上办公吧[偷笑][偷笑][偷笑]</a>
-</h2>
-<p>总书记，您就在路上办公吧[偷笑][偷笑][偷笑]<br><img src="http://ww4.sinaimg.cn/large/006mMxbNgw1f0mgemvelqj30l70vz0xz.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
