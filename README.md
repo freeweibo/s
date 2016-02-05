@@ -24,7 +24,7 @@
 </h2>
 <p>又是党纪处分。。。</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3939228196939205" target="freeweibo-mirror">那还想怎样？//@无意续了道德经: 你懂的</a>
 </h2>
