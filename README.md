@@ -24,7 +24,7 @@
 </h2>
 <p>呵呵。 //@廖睿:呵呵。<br><br>RE: 【中国一个月内被金正恩打了两记耳光】 北京外交消息人士3日透露，中国六方会谈代表武大伟在不知道朝鲜通报远程导弹发射计划的情况下2日抵达平壤。有观测认为，武大伟将于4日空手返回中国。金正恩看到中国无法采取能够撼动朝鲜体制的制裁，十分嚣张，一个月内连打中国两记耳光。http://t.cn/RbFTkgD<br><img src="http://ww1.sinaimg.cn/large/706ecc39gw1f0n10wkce6j207s0aoq3r.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3939054485544881" target="freeweibo-mirror">//@希特勒甘拜下风:被小弟打脸……太没面子了……//@闵玉…</a>
 </h2>
