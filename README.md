@@ -24,7 +24,13 @@
 </h2>
 <p>段郎对法律的了解～了解个屁。//@侠骨柔情的杨华:我看屡屡违反政治纪律的段郎，应当即刻辞去其单位纪委副书记职务！[拳头]</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3939278847124980" target="freeweibo-mirror">一点不吹牛逼，说到问责，中共全球第一！责任明确，该谁担责谁都…</a>
+</h2>
+<p>一点不吹牛逼，说到问责，中共全球第一！责任明确，该谁担责谁都逃不了，我们是党政纪加国法，该撸的撸，该送进去的送进去，段狼你说你想谁引咎辞职？不妨说出来，是一号还是二号？</p>
+<p>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3939271466007638" target="freeweibo-mirror">这种"引咎辞职牛逼"论是利用中国人的自卑心态忽悠，美国可不是…</a>
 </h2>
@@ -78,7 +84,7 @@
 </h2>
 <p>#我要榜咚SUPERJUNIOR##我要榜咚曺圭贤# 三点更票。朋友们，年底交肾的时间到了…gaon大赏偶吧们全体出席，去年我们拿了两个大奖，72万绝杀的热血场面是不是还历历在目！鼓掌还是领奖在此一搏！想要给偶吧最好的应援，现在不投，难道你还在等@像你妹 的出现么？！[doge]直通车☞http://t.cn/RGhAoh9<br><img src="http://ww3.sinaimg.cn/large/862c9a69jw1f0oheqduflj20q30altby.jpg"></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3939142746808936" target="freeweibo-mirror">80后是海淘中坚力量，但是90后、95后已经逐渐占领世界……</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3938885693758677" target="freeweibo-mirror">SPAM Hujgffujhkd一群傻偷拍野战的，却拍到了两…</a>
 </h2>
 <p>SPAM Hujgffujhkd一群傻偷拍野战的，却拍到了两[实习][嘘]shjlbb个淫荡黑丝无内的小骚妇jdjdb毛小黄[哈哈][哈哈]片JT.lanw卧槽cc333kjj<br><img src="http://ww4.sinaimg.cn/large/5df4251bgw1f0njvqigd0j20k00zkdi1.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3938885400289811" target="freeweibo-mirror">SPAM 你这什么狗屁眼神看出我说上联了。最受不了的事就是这…</a>
-</h2>
-<p>SPAM 你这什么狗屁眼神看出我说上联了。最受不了的事就是这种浅碟子前来卖弄了。 //@空一缕余香:上联结尾不能为平声，你这什么狗屁上联？<br><br>RE: 出个对子，对得者我送红包：【令计划谋大计划，令令完成完成】。</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
