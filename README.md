@@ -42,7 +42,7 @@
 </h2>
 <p>与@段郎说事 商榷：1、天津爆炸事故，49人被追究刑事责任，123人被问责，请问：刑事责任与引咎辞职哪个担责更大？2、你举了日本铁路事故，赞赏社长和公司领导引咎辞职，你看看天津爆炸案的企业领导都关在哪呢？3、你举例说韩国沉船总理辞职，你不知道风声过后，他收回辞呈，继续当总理吗？<br><img src="http://ww4.sinaimg.cn/large/6fb87d17jw1f0orjemx9ij20qo1bf79o.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3939264657489744" target="freeweibo-mirror">谁呀</a>
 </h2>
