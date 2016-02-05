@@ -30,7 +30,7 @@
 </h2>
 <p>那还想怎样？//@无意续了道德经: 你懂的</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3939191081148826" target="freeweibo-mirror">SPAM #我要榜咚SUPERJUNIOR##我要榜咚曺圭贤…</a>
 </h2>
