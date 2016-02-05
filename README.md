@@ -20,6 +20,18 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3939271466007638" target="freeweibo-mirror">这种"引咎辞职牛逼"论是利用中国人的自卑心态忽悠，美国可不是…</a>
+</h2>
+<p>这种"引咎辞职牛逼"论是利用中国人的自卑心态忽悠，美国可不是靠一群动不动就辞职的企业家和政客搞起来的。//@悬壶问茶://@老牛叔叔://@捍卫者唐唐: //@椒江叶Sir:段狼没举例说福岛核泄漏日本首相啥的？也没说911时那米国总统没保护好米国人民？韩东，你马上会被段狼拉黑！//@人民理财员张博:转发微博</p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3939267526986724" target="freeweibo-mirror">与@段郎说事 商榷：1、天津爆炸事故，49人被追究刑事责任，…</a>
+</h2>
+<p>与@段郎说事 商榷：1、天津爆炸事故，49人被追究刑事责任，123人被问责，请问：刑事责任与引咎辞职哪个担责更大？2、你举了日本铁路事故，赞赏社长和公司领导引咎辞职，你看看天津爆炸案的企业领导都关在哪呢？3、你举例说韩国沉船总理辞职，你不知道风声过后，他收回辞呈，继续当总理吗？<br><img src="http://ww4.sinaimg.cn/large/6fb87d17jw1f0orjemx9ij20qo1bf79o.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3939234929128313" target="freeweibo-mirror">又是党纪处分。。。</a>
 </h2>
 <p>又是党纪处分。。。</p>
@@ -125,18 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3938868971407246" target="freeweibo-mirror">SPAM 哈哈，公知太讨厌了[吃惊] //@十年砍柴:令家兄…</a>
 </h2>
 <p>SPAM 哈哈，公知太讨厌了[吃惊] //@十年砍柴:令家兄弟一定是受公知的影响才堕落如此的。<br><br>RE: 令某完成了什么？<br><img src="http://ww4.sinaimg.cn/large/473f8cfdgw1f0ndut5dv1j20m80zk0wf.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3938840110795718" target="freeweibo-mirror">有民谣，有官谣、有专谣、农业部转基因害有高层谣。是李断腕狂言…</a>
-</h2>
-<p>有民谣，有官谣、有专谣、农业部转基因害有高层谣。是李断腕狂言//@闻得檐雨滴声: 再看一遍，吃相难看极了。手指头戳发戳发。瘪三流氓。</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3938835954223213" target="freeweibo-mirror">SPAM 万岁来了，温都尔汉还远吗？</a>
-</h2>
-<p>SPAM 万岁来了，温都尔汉还远吗？<br><br>RE: 微信看到的：＂核心＂来了，＂伟大＂还远吗；＂伟大＂来了，＂万岁＂还远吗？<br><img src="http://ww2.sinaimg.cn/large/c57c1a49jw1f0ndm3mb4ej217a0w0wmd.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
