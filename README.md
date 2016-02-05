@@ -36,7 +36,7 @@
 </h2>
 <p>#我要榜咚SUPERJUNIOR##我要榜咚曺圭贤# 三点更票。朋友们，年底交肾的时间到了…gaon大赏偶吧们全体出席，去年我们拿了两个大奖，72万绝杀的热血场面是不是还历历在目！鼓掌还是领奖在此一搏！想要给偶吧最好的应援，现在不投，难道你还在等@像你妹 的出现么？！[doge]直通车☞http://t.cn/RGhAoh9<br><img src="http://ww3.sinaimg.cn/large/862c9a69jw1f0oheqduflj20q30altby.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3939142746808936" target="freeweibo-mirror">80后是海淘中坚力量，但是90后、95后已经逐渐占领世界……</a>
 </h2>
