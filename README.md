@@ -26,6 +26,12 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3939572046433976" target="freeweibo-mirror">SPAM 【互联网制售假药案 壮阳药为“重灾区”】通过网名为…</a>
+</h2>
+<p>SPAM 【互联网制售假药案 壮阳药为“重灾区”】通过网名为“依琪依舍”、“艾购2014”、“时尚购物18032”、“福如意饰品”、“男人本色519”、“快活林情趣用品”等网店大肆销售。这些产品加入远超正常剂量的枸橼酸西地那非，对人体健康会造成严重危害。http://t.cn/RG7DI24<br><img src="http://ww1.sinaimg.cn/large/928aba1egw1f0pqplc55aj207w0643yf.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3939564009409122" target="freeweibo-mirror">SPAM [衰]//@谣言PK谎言: 中红会之郭美美还有她！</a>
 </h2>
 <p>SPAM [衰]//@谣言PK谎言: 中红会之郭美美还有她！<br><br>RE: 万里大造林有她，达芬奇风波有她，世界华人商会骗局有她，少林僧棍，开光有她，e租宝庞氏大骗局仍然有她……一个骗子中的战斗鸡，战斗鸡中的轰炸鸡。但是这娘们每次都能全身而退，一定是被大和尚开光的功劳。一个骗子中的不倒鸡，不倒鸡里面常胜鸡，你还别不服，只要沾上她骗子都要倒十八辈子霉运。<br><img src="http://ww2.sinaimg.cn/large/4659d332jw1f0ownewqi9j20e80b63yz.jpg"></p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3939264657489744" target="freeweibo-mirror">谁呀</a>
 </h2>
 <p>谁呀<br><br>RE: 被处分的五名省部级官员，没有一人被撤职，免职，更别说负法律责任。再见，羊年。</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3939234929128313" target="freeweibo-mirror">又是党纪处分。。。</a>
-</h2>
-<p>又是党纪处分。。。</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
