@@ -30,7 +30,7 @@
 </h2>
 <p>明成化二十一年二三月间 泰安州屡发强烈地震，朝廷遣使告祭。卜者声称“应在东宫”。天象地律本是自然现象，但此次令人想到台独势力确实不得人心和天地之心，“应在蔡妖”http://t.cn/RG7nC1x http://weibo.com/1893801487/DgxEdsxf9  http://t.cn/RG7CyKl</p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3939437303303418" target="freeweibo-mirror">SPAM //@昕静自然好:黑黑黑 //@杨锦麟:嘿嘿嘿</a>
 </h2>
