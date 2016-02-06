@@ -48,7 +48,7 @@
 </h2>
 <p>明成化二十一年二三月间 泰安州屡发强烈地震，朝廷遣使告祭。卜者声称“应在东宫”。天象地律本是自然现象，但此次令人想到台独势力确实不得人心和天地之心，“应在蔡妖”http://t.cn/RG7nC1x http://weibo.com/1893801487/DgxEdsxf9  http://t.cn/RG7CyKl</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3939437303303418" target="freeweibo-mirror">SPAM //@昕静自然好:黑黑黑 //@杨锦麟:嘿嘿嘿</a>
 </h2>
@@ -83,6 +83,12 @@
 	<a href="https://freeweibo.com/weibo/3939417674215538" target="freeweibo-mirror">大众传媒的监管者十分辛苦，不舍昼夜，随时捕捉和制止负面新闻和…</a>
 </h2>
 <p>大众传媒的监管者十分辛苦，不舍昼夜，随时捕捉和制止负面新闻和议论的扩散。而网站运营商因为帖文管理任务重、所需人力多，硬是把这个高新技术产业做成了劳动密集型产业。然而这样灭掉的只是大众传媒中的“明火”，而不是社会实际的“暗火”或“地火”。 http://t.cn/RG7WJAW</p>
+<p>
+	<small> ============== 1天前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3939408552337180" target="freeweibo-mirror">春天来了，祝这朵“开在山巅的自由花”更加绚丽！</a>
+</h2>
+<p>春天来了，祝这朵“开在山巅的自由花”更加绚丽！<br><img src="http://ww3.sinaimg.cn/large/006jC2Bfgw1f0p7xls82oj30h20lmgpe.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p><h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3939234929128313" target="freeweibo-mirror">又是党纪处分。。。</a>
 </h2>
 <p>又是党纪处分。。。</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3939228196939205" target="freeweibo-mirror">那还想怎样？//@无意续了道德经: 你懂的</a>
-</h2>
-<p>那还想怎样？//@无意续了道德经: 你懂的</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
