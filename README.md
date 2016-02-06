@@ -20,17 +20,23 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3939658805571217" target="freeweibo-mirror">顾约瑟牧师的逮捕通知书</a>
+</h2>
+<p>顾约瑟牧师的逮捕通知书<br><img src="http://ww4.sinaimg.cn/large/48fe46d9jw1f0q0obdxutj20go0m8gn1.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3939651460677714" target="freeweibo-mirror">SPAM //@馨雨纤尘:我只是路過。。。 //@瑞安丰和1…</a>
 </h2>
 <p>SPAM //@馨雨纤尘:我只是路過。。。 //@瑞安丰和18:红色基因传承//@玩者5v://@思想上的一片天空: 有点意思~~？//@还是纳税人a: 难道是六个女人之一的后？//@砂器--40://@憮堓柯渡:[笑哈哈] //@沥泉枪挑:[笑哈哈]阿玛尼男装代表？//@微雨-870:姓XI？<br><br>RE: 有点意思。</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3939620859740060" target="freeweibo-mirror">SPAM 哎，从大内总管到千夫所指。奥黑又来电话了，夫妻关系…</a>
 </h2>
 <p>SPAM 哎，从大内总管到千夫所指。奥黑又来电话了，夫妻关系会出这样的小别扭吗？//@曹凡:赞同！<br><br>RE: 令氏应处死刑！为了一己私利，竟以整个中华民族的安全做抵押，这就破了底线，罪不可赦！</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3939619894770934" target="freeweibo-mirror">事发前还是统战部长，这是坐被别人统战 吧 //@格竹熊:真真…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3939310309031253" target="freeweibo-mirror">万里大造林有她，达芬奇风波有她，世界华人商会骗局有她，少林僧…</a>
 </h2>
 <p>万里大造林有她，达芬奇风波有她，世界华人商会骗局有她，少林僧棍，开光有她，e租宝庞氏大骗局仍然有她……一个骗子中的战斗鸡，战斗鸡中的轰炸鸡。但是这娘们每次都能全身而退，一定是被大和尚开光的功劳。一个骗子中的不倒鸡，不倒鸡里面常胜鸡，你还别不服，只要沾上她骗子都要倒十八辈子霉运。<br><img src="http://ww2.sinaimg.cn/large/4659d332jw1f0ownewqi9j20e80b63yz.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3939299201885831" target="freeweibo-mirror">段郎对法律的了解～了解个屁。//@侠骨柔情的杨华:我看屡屡违…</a>
-</h2>
-<p>段郎对法律的了解～了解个屁。//@侠骨柔情的杨华:我看屡屡违反政治纪律的段郎，应当即刻辞去其单位纪委副书记职务！[拳头]</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
