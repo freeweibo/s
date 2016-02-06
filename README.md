@@ -60,7 +60,7 @@
 </h2>
 <p>顾约瑟牧师的逮捕通知书<br><img src="http://ww4.sinaimg.cn/large/48fe46d9jw1f0q0obdxutj20go0m8gn1.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3939654548417966" target="freeweibo-mirror">SPAM //@司马平邦:[赞]</a>
 </h2>
