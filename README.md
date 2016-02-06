@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3939513229800147" target="freeweibo-mirror">哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈</a>
+</h2>
+<p>哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈<br><br>RE: 曾經誤報長者死訊的亞洲電視，不斷在股東內鬥、虧損、不獲續牌、欠薪的醜聞中續了N久的命，用「愛是永恆」改編的「亞視永恆」歌曲更是笑爆全港。年關將近，又拖欠員工兩個月薪資，今天大股東王征終於宣布入秉清盤。全港翹首亞視早日執笠，惡搞處處[笑cry]<br><img src="http://ww3.sinaimg.cn/large/006gR0EGjw1f0oy8is1vwj30qo0z0ahp.jpg"></p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3939439233926336" target="freeweibo-mirror">明成化二十一年二三月间 泰安州屡发强烈地震，朝廷遣使告祭。卜…</a>
 </h2>
 <p>明成化二十一年二三月间 泰安州屡发强烈地震，朝廷遣使告祭。卜者声称“应在东宫”。天象地律本是自然现象，但此次令人想到台独势力确实不得人心和天地之心，“应在蔡妖”http://t.cn/RG7nC1x http://weibo.com/1893801487/DgxEdsxf9  http://t.cn/RG7CyKl</p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3939142746808936" target="freeweibo-mirror">80后是海淘中坚力量，但是90后、95后已经逐渐占领世界……</a>
 </h2>
 <p>80后是海淘中坚力量，但是90后、95后已经逐渐占领世界……</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3939099989619819" target="freeweibo-mirror">SPAM #浓浓年味安慕希#过猴年，喝安慕希，咱也能跟猴哥一…</a>
-</h2>
-<p>SPAM #浓浓年味安慕希#过猴年，喝安慕希，咱也能跟猴哥一样性感。亲朋好友喝了咱送的@安慕希希腊酸奶 ，再也不用担心猴年变成八戒那样了~<br><img src="http://ww3.sinaimg.cn/large/62fd4fbejw1f0o8f3qzg9j21kw28g7nt.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
