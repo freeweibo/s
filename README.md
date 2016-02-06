@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3939564009409122" target="freeweibo-mirror">SPAM [衰]//@谣言PK谎言: 中红会之郭美美还有她！</a>
+</h2>
+<p>SPAM [衰]//@谣言PK谎言: 中红会之郭美美还有她！<br><br>RE: 万里大造林有她，达芬奇风波有她，世界华人商会骗局有她，少林僧棍，开光有她，e租宝庞氏大骗局仍然有她……一个骗子中的战斗鸡，战斗鸡中的轰炸鸡。但是这娘们每次都能全身而退，一定是被大和尚开光的功劳。一个骗子中的不倒鸡，不倒鸡里面常胜鸡，你还别不服，只要沾上她骗子都要倒十八辈子霉运。<br><img src="http://ww2.sinaimg.cn/large/4659d332jw1f0ownewqi9j20e80b63yz.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3939513229800147" target="freeweibo-mirror">哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈</a>
 </h2>
 <p>哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈<br><br>RE: 曾經誤報長者死訊的亞洲電視，不斷在股東內鬥、虧損、不獲續牌、欠薪的醜聞中續了N久的命，用「愛是永恆」改編的「亞視永恆」歌曲更是笑爆全港。年關將近，又拖欠員工兩個月薪資，今天大股東王征終於宣布入秉清盤。全港翹首亞視早日執笠，惡搞處處[笑cry]<br><img src="http://ww3.sinaimg.cn/large/006gR0EGjw1f0oy8is1vwj30qo0z0ahp.jpg"></p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3939188003224922" target="freeweibo-mirror">SPAM 转给喜欢的妹纸 收藏啦~[心][心][心] 总有一…</a>
 </h2>
 <p>SPAM 转给喜欢的妹纸 收藏啦~[心][心][心] 总有一款适合你～ [good]不错，试下</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3939178158420685" target="freeweibo-mirror">#我要榜咚SUPERJUNIOR##我要榜咚曺圭贤# 三点更…</a>
-</h2>
-<p>#我要榜咚SUPERJUNIOR##我要榜咚曺圭贤# 三点更票。朋友们，年底交肾的时间到了…gaon大赏偶吧们全体出席，去年我们拿了两个大奖，72万绝杀的热血场面是不是还历历在目！鼓掌还是领奖在此一搏！想要给偶吧最好的应援，现在不投，难道你还在等@像你妹 的出现么？！[doge]直通车☞http://t.cn/RGhAoh9<br><img src="http://ww3.sinaimg.cn/large/862c9a69jw1f0oheqduflj20q30altby.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
