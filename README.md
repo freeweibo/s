@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3939439233926336" target="freeweibo-mirror">明成化二十一年二三月间 泰安州屡发强烈地震，朝廷遣使告祭。卜…</a>
+</h2>
+<p>明成化二十一年二三月间 泰安州屡发强烈地震，朝廷遣使告祭。卜者声称“应在东宫”。天象地律本是自然现象，但此次令人想到台独势力确实不得人心和天地之心，“应在蔡妖”http://t.cn/RG7nC1x http://weibo.com/1893801487/DgxEdsxf9  http://t.cn/RG7CyKl</p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3939437303303418" target="freeweibo-mirror">SPAM //@昕静自然好:黑黑黑 //@杨锦麟:嘿嘿嘿</a>
 </h2>
 <p>SPAM //@昕静自然好:黑黑黑 //@杨锦麟:嘿嘿嘿<br><br>RE: 大众传媒的监管者十分辛苦，不舍昼夜，随时捕捉和制止负面新闻和议论的扩散。而网站运营商因为帖文管理任务重、所需人力多，硬是把这个高新技术产业做成了劳动密集型产业。然而这样灭掉的只是大众传媒中的“明火”，而不是社会实际的“暗火”或“地火”。 http://t.cn/RG7WJAW</p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3939099989619819" target="freeweibo-mirror">SPAM #浓浓年味安慕希#过猴年，喝安慕希，咱也能跟猴哥一…</a>
 </h2>
 <p>SPAM #浓浓年味安慕希#过猴年，喝安慕希，咱也能跟猴哥一样性感。亲朋好友喝了咱送的@安慕希希腊酸奶 ，再也不用担心猴年变成八戒那样了~<br><img src="http://ww3.sinaimg.cn/large/62fd4fbejw1f0o8f3qzg9j21kw28g7nt.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3939061032721433" target="freeweibo-mirror">呵呵。 //@廖睿:呵呵。</a>
-</h2>
-<p>呵呵。 //@廖睿:呵呵。<br><br>RE: 【中国一个月内被金正恩打了两记耳光】 北京外交消息人士3日透露，中国六方会谈代表武大伟在不知道朝鲜通报远程导弹发射计划的情况下2日抵达平壤。有观测认为，武大伟将于4日空手返回中国。金正恩看到中国无法采取能够撼动朝鲜体制的制裁，十分嚣张，一个月内连打中国两记耳光。http://t.cn/RbFTkgD<br><img src="http://ww1.sinaimg.cn/large/706ecc39gw1f0n10wkce6j207s0aoq3r.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
