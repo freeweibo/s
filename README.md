@@ -84,7 +84,7 @@
 </h2>
 <p>哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈<br><br>RE: 曾經誤報長者死訊的亞洲電視，不斷在股東內鬥、虧損、不獲續牌、欠薪的醜聞中續了N久的命，用「愛是永恆」改編的「亞視永恆」歌曲更是笑爆全港。年關將近，又拖欠員工兩個月薪資，今天大股東王征終於宣布入秉清盤。全港翹首亞視早日執笠，惡搞處處[笑cry]<br><img src="http://ww3.sinaimg.cn/large/006gR0EGjw1f0oy8is1vwj30qo0z0ahp.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3939439233926336" target="freeweibo-mirror">明成化二十一年二三月间 泰安州屡发强烈地震，朝廷遣使告祭。卜…</a>
 </h2>
