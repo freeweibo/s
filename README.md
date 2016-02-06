@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3939677163486088" target="freeweibo-mirror">SPAM #亚蒙读图# [可爱][可爱]</a>
+</h2>
+<p>SPAM #亚蒙读图# [可爱][可爱]<br><img src="http://ww1.sinaimg.cn/large/681521d1jw1f0q2rvxb5sj20ku112jw2.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3939671011149775" target="freeweibo-mirror">[心]//@被褐怀玉的玉:// @bingwen09 ://…</a>
 </h2>
 <p>[心]//@被褐怀玉的玉:// @bingwen09 ://@rainbow201203: //@独有英雄驱虎豹V:转发微博</p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3939421008828404" target="freeweibo-mirror">SPAM //@杨锦麟:嘿嘿嘿。</a>
 </h2>
 <p>SPAM //@杨锦麟:嘿嘿嘿。<br><br>RE: 大众传媒的监管者十分辛苦，不舍昼夜，随时捕捉和制止负面新闻和议论的扩散。而网站运营商因为帖文管理任务重、所需人力多，硬是把这个高新技术产业做成了劳动密集型产业。然而这样灭掉的只是大众传媒中的“明火”，而不是社会实际的“暗火”或“地火”。 http://t.cn/RG7WJAW</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3939417674215538" target="freeweibo-mirror">大众传媒的监管者十分辛苦，不舍昼夜，随时捕捉和制止负面新闻和…</a>
-</h2>
-<p>大众传媒的监管者十分辛苦，不舍昼夜，随时捕捉和制止负面新闻和议论的扩散。而网站运营商因为帖文管理任务重、所需人力多，硬是把这个高新技术产业做成了劳动密集型产业。然而这样灭掉的只是大众传媒中的“明火”，而不是社会实际的“暗火”或“地火”。 http://t.cn/RG7WJAW</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
