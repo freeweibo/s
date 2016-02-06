@@ -36,7 +36,7 @@
 </h2>
 <p>这种"引咎辞职牛逼"论是利用中国人的自卑心态忽悠，美国可不是靠一群动不动就辞职的企业家和政客搞起来的。//@悬壶问茶://@老牛叔叔://@捍卫者唐唐: //@椒江叶Sir:段狼没举例说福岛核泄漏日本首相啥的？也没说911时那米国总统没保护好米国人民？韩东，你马上会被段狼拉黑！//@人民理财员张博:转发微博</p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3939267526986724" target="freeweibo-mirror">与@段郎说事 商榷：1、天津爆炸事故，49人被追究刑事责任，…</a>
 </h2>
@@ -138,7 +138,7 @@
 </h2>
 <p>SPAM Hujgffujhkd一群傻偷拍野战的，却拍到了两[实习][嘘]shjlbb个淫荡黑丝无内的小骚妇jdjdb毛小黄[哈哈][哈哈]片JT.lanw卧槽cc333kjj<br><img src="http://ww4.sinaimg.cn/large/5df4251bgw1f0njvqigd0j20k00zkdi1.jpg"></p>
 <p>
-	<small> ============== 1天前</small>
+	<small> ============== 2天前</small>
 </p>
 <table>
     <tr>
