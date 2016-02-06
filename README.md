@@ -32,6 +32,12 @@
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3939417674215538" target="freeweibo-mirror">大众传媒的监管者十分辛苦，不舍昼夜，随时捕捉和制止负面新闻和…</a>
+</h2>
+<p>大众传媒的监管者十分辛苦，不舍昼夜，随时捕捉和制止负面新闻和议论的扩散。而网站运营商因为帖文管理任务重、所需人力多，硬是把这个高新技术产业做成了劳动密集型产业。然而这样灭掉的只是大众传媒中的“明火”，而不是社会实际的“暗火”或“地火”。 http://t.cn/RG7WJAW</p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3939299201885831" target="freeweibo-mirror">段郎对法律的了解～了解个屁。//@侠骨柔情的杨华:我看屡屡违…</a>
 </h2>
 <p>段郎对法律的了解～了解个屁。//@侠骨柔情的杨华:我看屡屡违反政治纪律的段郎，应当即刻辞去其单位纪委副书记职务！[拳头]</p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3938891260640498" target="freeweibo-mirror">SPAM //@穆罕默德_大冬冬W:[嘻嘻]//@悠然阁-姚…</a>
 </h2>
 <p>SPAM //@穆罕默德_大冬冬W:[嘻嘻]//@悠然阁-姚小俊:[嘻嘻] //@水兵李铭://@记者钱莽墩://@趙記棺材鋪:大宗生意要上门咯！[哈哈]<br><br>RE: 招了，全招了！令完成你个坏蛋，这是要趙老太爷的命啊！[怒]<br><img src="http://ww4.sinaimg.cn/large/006lG2K4jw1f0nen3og5fj30k00w0n12.jpg"></p>
-<p>
-	<small> ============== 2天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3938889665729411" target="freeweibo-mirror">SPAM 回复@PE基金Keny:[赞]//@PE基金Ken…</a>
-</h2>
-<p>SPAM 回复@PE基金Keny:[赞]//@PE基金Keny:任我行图随我行，向向问天问天<br><br>RE: 出个对子，对得者我送红包：【令计划谋大计划，令令完成完成】。</p>
 <p>
 	<small> ============== 2天前</small>
 </p>
