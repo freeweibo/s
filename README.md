@@ -32,6 +32,12 @@
 <p>
 	<small> ============== 4小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3939717869803830" target="freeweibo-mirror">[怒][怒][怒]//@渴望蓝天-G: //@曾经沧海_97…</a>
+</h2>
+<p>[怒][怒][怒]//@渴望蓝天-G: //@曾经沧海_97227:经济这么差，转基因灾难又这么严重，确实需要，坚决支持。<br><br>RE: 紧急呼吁：罢免三总理，重组国务院：紧急呼吁：罢免三总理，重组国务院 编剧赵华 鉴于东三省全部沦陷于转基因玉米非法种植【http://t.cn/RGh5HnJ】，给国民健...文字版>> http://t.cn/RGZJLl7 （新浪长微博>> http://t.cn/zOXAaic）<br><img src="http://ww2.sinaimg.cn/large/3d4c4b44jw1f0py19lgrlj20c81t6118.jpg"></p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3939677163486088" target="freeweibo-mirror">SPAM #亚蒙读图# [可爱][可爱]</a>
 </h2>
 <p>SPAM #亚蒙读图# [可爱][可爱]<br><img src="http://ww1.sinaimg.cn/large/681521d1jw1f0q2rvxb5sj20ku112jw2.jpg"></p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3939427665753482" target="freeweibo-mirror">SPAM 密集型产业?[吃惊]</a>
 </h2>
 <p>SPAM 密集型产业?[吃惊]<br><br>RE: 大众传媒的监管者十分辛苦，不舍昼夜，随时捕捉和制止负面新闻和议论的扩散。而网站运营商因为帖文管理任务重、所需人力多，硬是把这个高新技术产业做成了劳动密集型产业。然而这样灭掉的只是大众传媒中的“明火”，而不是社会实际的“暗火”或“地火”。 http://t.cn/RG7WJAW</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3939422238388829" target="freeweibo-mirror">SPAM 防控维稳越来越繁重，何以致此？</a>
-</h2>
-<p>SPAM 防控维稳越来越繁重，何以致此？<br><br>RE: 大众传媒的监管者十分辛苦，不舍昼夜，随时捕捉和制止负面新闻和议论的扩散。而网站运营商因为帖文管理任务重、所需人力多，硬是把这个高新技术产业做成了劳动密集型产业。然而这样灭掉的只是大众传媒中的“明火”，而不是社会实际的“暗火”或“地火”。 http://t.cn/RG7WJAW</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
