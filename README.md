@@ -26,6 +26,12 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3939665822123189" target="freeweibo-mirror">http://t.cn/R4yyfFW 1 http://t…</a>
+</h2>
+<p>http://t.cn/R4yyfFW 1 http://t.cn/R4yyfFj 1 http://t.cn/R4UMQIz  跟紧大大@爆笑大篷车   ，天天精彩</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3939658805571217" target="freeweibo-mirror">顾约瑟牧师的逮捕通知书</a>
 </h2>
 <p>顾约瑟牧师的逮捕通知书<br><img src="http://ww4.sinaimg.cn/large/48fe46d9jw1f0q0obdxutj20go0m8gn1.jpg"></p>
@@ -54,7 +60,7 @@
 </h2>
 <p>事发前还是统战部长，这是坐被别人统战 吧 //@格竹熊:真真假假都不要着急，海外媒体说的未必就是真的。//@紫月缥缈://@司马平邦:[赞]<br><br>RE: 令氏应处死刑！为了一己私利，竟以整个中华民族的安全做抵押，这就破了底线，罪不可赦！</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3939606904443268" target="freeweibo-mirror">令氏应处死刑！为了一己私利，竟以整个中华民族的安全做抵押，这…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3939417674215538" target="freeweibo-mirror">大众传媒的监管者十分辛苦，不舍昼夜，随时捕捉和制止负面新闻和…</a>
 </h2>
 <p>大众传媒的监管者十分辛苦，不舍昼夜，随时捕捉和制止负面新闻和议论的扩散。而网站运营商因为帖文管理任务重、所需人力多，硬是把这个高新技术产业做成了劳动密集型产业。然而这样灭掉的只是大众传媒中的“明火”，而不是社会实际的“暗火”或“地火”。 http://t.cn/RG7WJAW</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3939408552337180" target="freeweibo-mirror">春天来了，祝这朵“开在山巅的自由花”更加绚丽！</a>
-</h2>
-<p>春天来了，祝这朵“开在山巅的自由花”更加绚丽！<br><img src="http://ww3.sinaimg.cn/large/006jC2Bfgw1f0p7xls82oj30h20lmgpe.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
