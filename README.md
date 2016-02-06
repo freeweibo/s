@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3939671011149775" target="freeweibo-mirror">[心]//@被褐怀玉的玉:// @bingwen09 ://…</a>
+</h2>
+<p>[心]//@被褐怀玉的玉:// @bingwen09 ://@rainbow201203: //@独有英雄驱虎豹V:转发微博</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3939658805571217" target="freeweibo-mirror">顾约瑟牧师的逮捕通知书</a>
 </h2>
 <p>顾约瑟牧师的逮捕通知书<br><img src="http://ww4.sinaimg.cn/large/48fe46d9jw1f0q0obdxutj20go0m8gn1.jpg"></p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3939408552337180" target="freeweibo-mirror">春天来了，祝这朵“开在山巅的自由花”更加绚丽！</a>
 </h2>
 <p>春天来了，祝这朵“开在山巅的自由花”更加绚丽！<br><img src="http://ww3.sinaimg.cn/large/006jC2Bfgw1f0p7xls82oj30h20lmgpe.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3939326142834415" target="freeweibo-mirror">曾經誤報長者死訊的亞洲電視，不斷在股東內鬥、虧損、不獲續牌、…</a>
-</h2>
-<p>曾經誤報長者死訊的亞洲電視，不斷在股東內鬥、虧損、不獲續牌、欠薪的醜聞中續了N久的命，用「愛是永恆」改編的「亞視永恆」歌曲更是笑爆全港。年關將近，又拖欠員工兩個月薪資，今天大股東王征終於宣布入秉清盤。全港翹首亞視早日執笠，惡搞處處[笑cry]<br><img src="http://ww3.sinaimg.cn/large/006gR0EGjw1f0oy8is1vwj30qo0z0ahp.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
