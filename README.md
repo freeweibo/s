@@ -48,7 +48,7 @@
 </h2>
 <p>谁呀<br><br>RE: 被处分的五名省部级官员，没有一人被撤职，免职，更别说负法律责任。再见，羊年。</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3939234929128313" target="freeweibo-mirror">又是党纪处分。。。</a>
 </h2>
