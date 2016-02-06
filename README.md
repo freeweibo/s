@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3939745761102976" target="freeweibo-mirror">[哈哈]//@潘金莲日记: 轉發微博</a>
+</h2>
+<p>[哈哈]//@潘金莲日记: 轉發微博<br><br>RE: 上台干的几件实事：阅了次兵，抓了几只大老虎，去美国买了300架飞机，到英国修了两座核电站，免除了非洲国家的债务，提高了联合国会费，加了两次油税，出台了延迟退休，设定了油价调节机制和股市熔断机制，推倒调节机制设定了地板价，退休人员交医疗保险。口才也不错，说的比他老婆唱的还好听。</p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3939721783116381" target="freeweibo-mirror">回复@伯乐爱马不爱人:【#转基因投毒#犯】才是反动透顶的反人…</a>
 </h2>
 <p>回复@伯乐爱马不爱人:【#转基因投毒#犯】才是反动透顶的反人类反革命分子！ //@伯乐爱马不爱人:[哈哈]老赵这是准备当现行反革命？<br><br>RE: 紧急呼吁：罢免三总理，重组国务院：紧急呼吁：罢免三总理，重组国务院 编剧赵华 鉴于东三省全部沦陷于转基因玉米非法种植【http://t.cn/RGh5HnJ】，给国民健...文字版>> http://t.cn/RGZJLl7 （新浪长微博>> http://t.cn/zOXAaic）<br><img src="http://ww2.sinaimg.cn/large/3d4c4b44jw1f0py19lgrlj20c81t6118.jpg"></p>
@@ -30,7 +36,7 @@
 </h2>
 <p>//@编剧赵华:[怒][怒][怒]//@渴望蓝天-G: //@曾经沧海_97227:经济这么差，转基因灾难又这么严重，确实需要，坚决支持。<br><br>RE: 紧急呼吁：罢免三总理，重组国务院：紧急呼吁：罢免三总理，重组国务院 编剧赵华 鉴于东三省全部沦陷于转基因玉米非法种植【http://t.cn/RGh5HnJ】，给国民健...文字版>> http://t.cn/RGZJLl7 （新浪长微博>> http://t.cn/zOXAaic）<br><img src="http://ww2.sinaimg.cn/large/3d4c4b44jw1f0py19lgrlj20c81t6118.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3939717869803830" target="freeweibo-mirror">[怒][怒][怒]//@渴望蓝天-G: //@曾经沧海_97…</a>
 </h2>
@@ -96,7 +102,7 @@
 </h2>
 <p>令氏应处死刑！为了一己私利，竟以整个中华民族的安全做抵押，这就破了底线，罪不可赦！</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3939594015678534" target="freeweibo-mirror">SPAM //@砂器--40://@贾家楼二十四友://@大…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3939439233926336" target="freeweibo-mirror">明成化二十一年二三月间 泰安州屡发强烈地震，朝廷遣使告祭。卜…</a>
 </h2>
 <p>明成化二十一年二三月间 泰安州屡发强烈地震，朝廷遣使告祭。卜者声称“应在东宫”。天象地律本是自然现象，但此次令人想到台独势力确实不得人心和天地之心，“应在蔡妖”http://t.cn/RG7nC1x http://weibo.com/1893801487/DgxEdsxf9  http://t.cn/RG7CyKl</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3939437303303418" target="freeweibo-mirror">SPAM //@昕静自然好:黑黑黑 //@杨锦麟:嘿嘿嘿</a>
-</h2>
-<p>SPAM //@昕静自然好:黑黑黑 //@杨锦麟:嘿嘿嘿<br><br>RE: 大众传媒的监管者十分辛苦，不舍昼夜，随时捕捉和制止负面新闻和议论的扩散。而网站运营商因为帖文管理任务重、所需人力多，硬是把这个高新技术产业做成了劳动密集型产业。然而这样灭掉的只是大众传媒中的“明火”，而不是社会实际的“暗火”或“地火”。 http://t.cn/RG7WJAW</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
