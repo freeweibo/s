@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3939928885027224" target="freeweibo-mirror">//@上海老顽童吴德余: 用烧钱换来的歌舞升平来粉饰一塌糊涂…</a>
+</h2>
+<p>//@上海老顽童吴德余: 用烧钱换来的歌舞升平来粉饰一塌糊涂的经济和民怨？<br><br>RE: 央视春晚的歌舞升平、歌功颂德，不过是为了掩盖喉舌操控者的声色犬马、巧取豪夺。 http://t.cn/RGApPUg</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3939902934125404" target="freeweibo-mirror">终于要到一年一度全国人民欢聚一堂吐槽的时刻了！先预热一下学习…</a>
 </h2>
 <p>终于要到一年一度全国人民欢聚一堂吐槽的时刻了！先预热一下学习起来[哆啦A梦吃惊]<br><br>RE: 今年的#春晚# 节目单吐槽……[bed凌乱]<br><img src="http://ww1.sinaimg.cn/large/69917555gw1f0qp1uos8kj20c860t1f3.jpg"></p>
@@ -42,7 +48,7 @@
 </h2>
 <p>今年的#春晚# 节目单吐槽……[bed凌乱]<br><img src="http://ww1.sinaimg.cn/large/69917555gw1f0qp1uos8kj20c860t1f3.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3939863366184187" target="freeweibo-mirror">一点政治纪律也没有，36年来第一次竟然公然威胁对平民动用人民…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3939620859740060" target="freeweibo-mirror">SPAM 哎，从大内总管到千夫所指。奥黑又来电话了，夫妻关系…</a>
 </h2>
 <p>SPAM 哎，从大内总管到千夫所指。奥黑又来电话了，夫妻关系会出这样的小别扭吗？//@曹凡:赞同！<br><br>RE: 令氏应处死刑！为了一己私利，竟以整个中华民族的安全做抵押，这就破了底线，罪不可赦！</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3939619894770934" target="freeweibo-mirror">事发前还是统战部长，这是坐被别人统战 吧 //@格竹熊:真真…</a>
-</h2>
-<p>事发前还是统战部长，这是坐被别人统战 吧 //@格竹熊:真真假假都不要着急，海外媒体说的未必就是真的。//@紫月缥缈://@司马平邦:[赞]<br><br>RE: 令氏应处死刑！为了一己私利，竟以整个中华民族的安全做抵押，这就破了底线，罪不可赦！</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
