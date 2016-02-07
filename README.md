@@ -50,6 +50,12 @@
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3940039694066280" target="freeweibo-mirror">SPAM 今年春晚真的很好看[酷]</a>
+</h2>
+<p>SPAM 今年春晚真的很好看[酷]<br><img src="http://ww1.sinaimg.cn/large/70642251gw1f0r8ecr3y0j20hs0amgm4.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3940034459684016" target="freeweibo-mirror">//@李成腾讯://@有雨天自凉60世://@亮剑兄又来了:…</a>
 </h2>
 <p>//@李成腾讯://@有雨天自凉60世://@亮剑兄又来了: //@网易Pegasus: //@对立至统一: //@青城公子W: //@老许祈福-15s://@哥们儿好_88840:转发微博<br><br>RE: 薄三没死，习四来了[哈哈] http://t.cn/R2WxNLx<br><img src="http://ww2.sinaimg.cn/large/006gDjJgjw1f0r5ju45cnj30ei0jpdh5.jpg"></p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3940017804466402" target="freeweibo-mirror">#春晚#今晚新闻联播4个半小时</a>
 </h2>
 <p>#春晚#今晚新闻联播4个半小时<br><img src="http://ww4.sinaimg.cn/large/6227049agw1f0r5wlec03j21840qugt1.jpg"></p>
-<p>
-	<small> ============== 5小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3940016894398096" target="freeweibo-mirror">【这是我看过最好的一次新闻联播】它摒弃了惯常新闻联播单一的口…</a>
-</h2>
-<p>【这是我看过最好的一次新闻联播】它摒弃了惯常新闻联播单一的口播加图像形式，集歌曲，舞蹈，小品，vcr等形式于一体。深入浅出地宣传了党的好政策，国家欣欣向荣，人民安居乐业，是新闻宣传工作的又一次创新型突破，入脑入心，深刻践行了三贴近原则，值得所有新闻宣传战线同志们深入学习领会。（转）</p>
 <p>
 	<small> ============== 5小时前</small>
 </p>
