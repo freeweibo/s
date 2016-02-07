@@ -24,7 +24,7 @@
 </h2>
 <p>//@上海老顽童吴德余: 用烧钱换来的歌舞升平来粉饰一塌糊涂的经济和民怨？<br><br>RE: 央视春晚的歌舞升平、歌功颂德，不过是为了掩盖喉舌操控者的声色犬马、巧取豪夺。 http://t.cn/RGApPUg</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3939903135688029" target="freeweibo-mirror">央视春晚的歌舞升平、歌功颂德，不过是为了掩盖喉舌操控者的声色…</a>
 </h2>
@@ -42,7 +42,7 @@
 </h2>
 <p>SPAM 想起了台湾“江南命案”。<br><br>RE: 强烈要求跨国抓捕！哼哼！！<br><img src="http://ww2.sinaimg.cn/large/006ggMmIgw1f0pwlcgsvbj30db0k9jtk.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3939874518519405" target="freeweibo-mirror">SPAM //@所长别开枪是我: 请放过这个猴 //@八卦_…</a>
 </h2>
@@ -66,7 +66,7 @@
 </h2>
 <p>SPAM 喜欢[可爱]</p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3939745761102976" target="freeweibo-mirror">[哈哈]//@潘金莲日记: 轉發微博</a>
 </h2>
