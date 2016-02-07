@@ -26,11 +26,17 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3940050595321284" target="freeweibo-mirror">有网友把我劝进的英文春联装裱出来了。</a>
+</h2>
+<p>有网友把我劝进的英文春联装裱出来了。</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3940043502255484" target="freeweibo-mirror">SPAM 一台淘宝定制。 //@一个提问者:这是一台真正不再…</a>
 </h2>
 <p>SPAM 一台淘宝定制。 //@一个提问者:这是一台真正不再把观众感受当回事的春晚，从头到尾透出一种爱看不看的劲儿。</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3940034459684016" target="freeweibo-mirror">//@李成腾讯://@有雨天自凉60世://@亮剑兄又来了:…</a>
 </h2>
@@ -66,13 +72,13 @@
 </h2>
 <p>嗯 //@bird_雨://@我的前任是极品:同感…… //@知乎大神:爱国主义教育主题晚会//@思想聚焦:这是有史以来节目形式最为丰富多彩的一部新闻联播<br><br>RE: #春晚#今晚新闻联播4个半小时<br><img src="http://ww4.sinaimg.cn/large/6227049agw1f0r5wlec03j21840qugt1.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3940028701237139" target="freeweibo-mirror">评论得太认真了</a>
 </h2>
 <p>评论得太认真了<br><br>RE: 这是我活了三十多年看的最好的一次新闻联播。它摒弃了惯常新闻联播单一的口播加图像形式,集歌曲、舞蹈、小品、vcr等形式于一体。深入浅出的宣传了党的好政策,国家欣欣向荣.人民安居乐业,是新闻宣传的又一次创新型突破,入脑入心,深刻践行了三贴近原则,值得所有新闻宣传战线同志们学习领会。转发自网络</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3940026930835378" target="freeweibo-mirror">看了几个节目就关了 春节本来是一家人团聚的时候 搞得一股膻味…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3940004286299611" target="freeweibo-mirror">前方线报。</a>
 </h2>
 <p>前方线报。<br><img src="http://ww3.sinaimg.cn/large/5d098bccgw1f0r4cmixljj20v91jl4bk.jpg"></p>
-<p>
-	<small> ============== 5小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3940003514047950" target="freeweibo-mirror">政委这话，有政纸高度，有经济深度！[赞]</a>
-</h2>
-<p>政委这话，有政纸高度，有经济深度！[赞]<br><br>RE: 春晚尤其需要打破垄断的供给侧改革！</p>
 <p>
 	<small> ============== 5小时前</small>
 </p>
