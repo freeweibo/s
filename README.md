@@ -30,7 +30,7 @@
 </h2>
 <p>SPAM 喜欢[可爱]</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3939745761102976" target="freeweibo-mirror">[哈哈]//@潘金莲日记: 轉發微博</a>
 </h2>
