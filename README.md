@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3940028701237139" target="freeweibo-mirror">评论得太认真了</a>
+</h2>
+<p>评论得太认真了<br><br>RE: 这是我活了三十多年看的最好的一次新闻联播。它摒弃了惯常新闻联播单一的口播加图像形式,集歌曲、舞蹈、小品、vcr等形式于一体。深入浅出的宣传了党的好政策,国家欣欣向荣.人民安居乐业,是新闻宣传的又一次创新型突破,入脑入心,深刻践行了三贴近原则,值得所有新闻宣传战线同志们学习领会。转发自网络</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3940026196830108" target="freeweibo-mirror">SPAM 看到大家对今年春晚的评论，作为刑辩律师，我有个大胆…</a>
 </h2>
 <p>SPAM 看到大家对今年春晚的评论，作为刑辩律师，我有个大胆的建议：以后侦查机关审讯犯罪嫌疑人别再刑讯逼供了，直接给他们看今年在春晚吧。<br><img src="http://ww2.sinaimg.cn/large/4bdb1fa0jw1f0r6p62rtmj20ku112jw5.jpg"></p>
@@ -133,12 +139,6 @@
 <p>#春晚吐槽大战# 这台春晚每一个节目都在努力传达这样的讯息：“我就是喜欢你看不惯我，却不得不和我一同建设中国特色社会主义的样子。”<br><img src="http://ww4.sinaimg.cn/large/6710d616jw1f0r1wmdn0tj20go0godiq.jpg"></p>
 <p>
 	<small> ============== 4小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3939981267907744" target="freeweibo-mirror">SPAM 如图。</a>
-</h2>
-<p>SPAM 如图。</p>
-<p>
-	<small> ============== 5小时前</small>
 </p>
 <table>
     <tr>
