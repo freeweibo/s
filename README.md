@@ -26,6 +26,12 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3939903135688029" target="freeweibo-mirror">央视春晚的歌舞升平、歌功颂德，不过是为了掩盖喉舌操控者的声色…</a>
+</h2>
+<p>央视春晚的歌舞升平、歌功颂德，不过是为了掩盖喉舌操控者的声色犬马、巧取豪夺。 http://t.cn/RGApPUg</p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3939902934125404" target="freeweibo-mirror">终于要到一年一度全国人民欢聚一堂吐槽的时刻了！先预热一下学习…</a>
 </h2>
 <p>终于要到一年一度全国人民欢聚一堂吐槽的时刻了！先预热一下学习起来[哆啦A梦吃惊]<br><br>RE: 今年的#春晚# 节目单吐槽……[bed凌乱]<br><img src="http://ww1.sinaimg.cn/large/69917555gw1f0qp1uos8kj20c860t1f3.jpg"></p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3939623262855963" target="freeweibo-mirror">强烈要求跨国抓捕！哼哼！！</a>
 </h2>
 <p>强烈要求跨国抓捕！哼哼！！<br><img src="http://ww2.sinaimg.cn/large/006ggMmIgw1f0pwlcgsvbj30db0k9jtk.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3939620859740060" target="freeweibo-mirror">SPAM 哎，从大内总管到千夫所指。奥黑又来电话了，夫妻关系…</a>
-</h2>
-<p>SPAM 哎，从大内总管到千夫所指。奥黑又来电话了，夫妻关系会出这样的小别扭吗？//@曹凡:赞同！<br><br>RE: 令氏应处死刑！为了一己私利，竟以整个中华民族的安全做抵押，这就破了底线，罪不可赦！</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
