@@ -30,7 +30,7 @@
 </h2>
 <p>SPAM [笑cry] //@北京老妪:[偷笑]//@宏鑫88: [笑cry]//@廖睿: 就是一个堂会嘛。<br><br>RE: 我们家有三个人属猴，本来以为春晚是围绕猴子的，看了半天发现是围绕包子的。</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3940053791647286" target="freeweibo-mirror">SPAM 大大对得不工，改包子。//@文山娃: 上联：没了祖…</a>
 </h2>
@@ -42,7 +42,7 @@
 </h2>
 <p>有网友把我劝进的英文春联装裱出来了。</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3940043502255484" target="freeweibo-mirror">SPAM 一台淘宝定制。 //@一个提问者:这是一台真正不再…</a>
 </h2>
