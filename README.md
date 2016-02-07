@@ -24,7 +24,7 @@
 </h2>
 <p>[哈哈]//@潘金莲日记: 轉發微博<br><br>RE: 上台干的几件实事：阅了次兵，抓了几只大老虎，去美国买了300架飞机，到英国修了两座核电站，免除了非洲国家的债务，提高了联合国会费，加了两次油税，出台了延迟退休，设定了油价调节机制和股市熔断机制，推倒调节机制设定了地板价，退休人员交医疗保险。口才也不错，说的比他老婆唱的还好听。</p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3939721783116381" target="freeweibo-mirror">回复@伯乐爱马不爱人:【#转基因投毒#犯】才是反动透顶的反人…</a>
 </h2>
@@ -48,7 +48,7 @@
 </h2>
 <p>SPAM #亚蒙读图# [可爱][可爱]<br><img src="http://ww1.sinaimg.cn/large/681521d1jw1f0q2rvxb5sj20ku112jw2.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3939671011149775" target="freeweibo-mirror">[心]//@被褐怀玉的玉:// @bingwen09 ://…</a>
 </h2>
