@@ -42,7 +42,7 @@
 </h2>
 <p>[怒][怒][怒]//@渴望蓝天-G: //@曾经沧海_97227:经济这么差，转基因灾难又这么严重，确实需要，坚决支持。<br><br>RE: 紧急呼吁：罢免三总理，重组国务院：紧急呼吁：罢免三总理，重组国务院 编剧赵华 鉴于东三省全部沦陷于转基因玉米非法种植【http://t.cn/RGh5HnJ】，给国民健...文字版>> http://t.cn/RGZJLl7 （新浪长微博>> http://t.cn/zOXAaic）<br><img src="http://ww2.sinaimg.cn/large/3d4c4b44jw1f0py19lgrlj20c81t6118.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3939677163486088" target="freeweibo-mirror">SPAM #亚蒙读图# [可爱][可爱]</a>
 </h2>
