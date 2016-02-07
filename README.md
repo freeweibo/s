@@ -66,7 +66,7 @@
 </h2>
 <p>感觉自己在朝鲜。。。 //@同道大叔:</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3940032387378842" target="freeweibo-mirror">转：【评#春晚#】这是我活了40年看的最好的一次新闻联播。它…</a>
 </h2>
@@ -126,7 +126,7 @@
 </h2>
 <p>春晚，好多人受不了了！不会看出人命吧？<br><img src="http://ww2.sinaimg.cn/large/4bdb1fa0jw1f0r5xnp2e2j20ku112jw5.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3940017804466402" target="freeweibo-mirror">#春晚#今晚新闻联播4个半小时</a>
 </h2>
