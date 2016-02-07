@@ -96,7 +96,7 @@
 </h2>
 <p>SPAM 转：我们必须向我们吐槽过的历届春晚道歉！</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3940018135273401" target="freeweibo-mirror">春晚，好多人受不了了！不会看出人命吧？</a>
 </h2>
