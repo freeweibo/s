@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3939854251863905" target="freeweibo-mirror">SPAM 喜欢[可爱]</a>
+</h2>
+<p>SPAM 喜欢[可爱]</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3939745761102976" target="freeweibo-mirror">[哈哈]//@潘金莲日记: 轉發微博</a>
 </h2>
 <p>[哈哈]//@潘金莲日记: 轉發微博<br><br>RE: 上台干的几件实事：阅了次兵，抓了几只大老虎，去美国买了300架飞机，到英国修了两座核电站，免除了非洲国家的债务，提高了联合国会费，加了两次油税，出台了延迟退休，设定了油价调节机制和股市熔断机制，推倒调节机制设定了地板价，退休人员交医疗保险。口才也不错，说的比他老婆唱的还好听。</p>
@@ -36,7 +42,7 @@
 </h2>
 <p>//@编剧赵华:[怒][怒][怒]//@渴望蓝天-G: //@曾经沧海_97227:经济这么差，转基因灾难又这么严重，确实需要，坚决支持。<br><br>RE: 紧急呼吁：罢免三总理，重组国务院：紧急呼吁：罢免三总理，重组国务院 编剧赵华 鉴于东三省全部沦陷于转基因玉米非法种植【http://t.cn/RGh5HnJ】，给国民健...文字版>> http://t.cn/RGZJLl7 （新浪长微博>> http://t.cn/zOXAaic）<br><img src="http://ww2.sinaimg.cn/large/3d4c4b44jw1f0py19lgrlj20c81t6118.jpg"></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3939717869803830" target="freeweibo-mirror">[怒][怒][怒]//@渴望蓝天-G: //@曾经沧海_97…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3939513229800147" target="freeweibo-mirror">哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈</a>
 </h2>
 <p>哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈<br><br>RE: 曾經誤報長者死訊的亞洲電視，不斷在股東內鬥、虧損、不獲續牌、欠薪的醜聞中續了N久的命，用「愛是永恆」改編的「亞視永恆」歌曲更是笑爆全港。年關將近，又拖欠員工兩個月薪資，今天大股東王征終於宣布入秉清盤。全港翹首亞視早日執笠，惡搞處處[笑cry]<br><img src="http://ww3.sinaimg.cn/large/006gR0EGjw1f0oy8is1vwj30qo0z0ahp.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3939439233926336" target="freeweibo-mirror">明成化二十一年二三月间 泰安州屡发强烈地震，朝廷遣使告祭。卜…</a>
-</h2>
-<p>明成化二十一年二三月间 泰安州屡发强烈地震，朝廷遣使告祭。卜者声称“应在东宫”。天象地律本是自然现象，但此次令人想到台独势力确实不得人心和天地之心，“应在蔡妖”http://t.cn/RG7nC1x http://weibo.com/1893801487/DgxEdsxf9  http://t.cn/RG7CyKl</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
