@@ -66,7 +66,7 @@
 </h2>
 <p>顾约瑟牧师的逮捕通知书<br><img src="http://ww4.sinaimg.cn/large/48fe46d9jw1f0q0obdxutj20go0m8gn1.jpg"></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3939654548417966" target="freeweibo-mirror">SPAM //@司马平邦:[赞]</a>
 </h2>
@@ -84,7 +84,7 @@
 </h2>
 <p>紧急呼吁：罢免三总理，重组国务院：紧急呼吁：罢免三总理，重组国务院 编剧赵华 鉴于东三省全部沦陷于转基因玉米非法种植【http://t.cn/RGh5HnJ】，给国民健...文字版>> http://t.cn/RGZJLl7 （新浪长微博>> http://t.cn/zOXAaic）<br><img src="http://ww2.sinaimg.cn/large/3d4c4b44jw1f0py19lgrlj20c81t6118.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3939620859740060" target="freeweibo-mirror">SPAM 哎，从大内总管到千夫所指。奥黑又来电话了，夫妻关系…</a>
 </h2>
