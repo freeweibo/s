@@ -42,13 +42,13 @@
 </h2>
 <p>嗯 //@bird_雨://@我的前任是极品:同感…… //@知乎大神:爱国主义教育主题晚会//@思想聚焦:这是有史以来节目形式最为丰富多彩的一部新闻联播<br><br>RE: #春晚#今晚新闻联播4个半小时<br><img src="http://ww4.sinaimg.cn/large/6227049agw1f0r5wlec03j21840qugt1.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3940028701237139" target="freeweibo-mirror">评论得太认真了</a>
 </h2>
 <p>评论得太认真了<br><br>RE: 这是我活了三十多年看的最好的一次新闻联播。它摒弃了惯常新闻联播单一的口播加图像形式,集歌曲、舞蹈、小品、vcr等形式于一体。深入浅出的宣传了党的好政策,国家欣欣向荣.人民安居乐业,是新闻宣传的又一次创新型突破,入脑入心,深刻践行了三贴近原则,值得所有新闻宣传战线同志们学习领会。转发自网络</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3940026930835378" target="freeweibo-mirror">看了几个节目就关了 春节本来是一家人团聚的时候 搞得一股膻味…</a>
 </h2>
@@ -120,7 +120,7 @@
 </h2>
 <p>没法看了，静音也不行，关了。</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3939995880946840" target="freeweibo-mirror">哈哈哈哈 //@Maggie_小麦:看来看去转你这条了！</a>
 </h2>
