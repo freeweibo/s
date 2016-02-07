@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3939863366184187" target="freeweibo-mirror">一点政治纪律也没有，36年来第一次竟然公然威胁对平民动用人民…</a>
+</h2>
+<p>一点政治纪律也没有，36年来第一次竟然公然威胁对平民动用人民军队！@六六 @警民直通车-上海 @美国驻华大使馆 @上海新闻网<br><img src="http://ww4.sinaimg.cn/large/73b54915jw1f0qo2wf94sj20hs0nq0ub.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3939854251863905" target="freeweibo-mirror">SPAM 喜欢[可爱]</a>
 </h2>
 <p>SPAM 喜欢[可爱]</p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3939558208571003" target="freeweibo-mirror">//@快乐玉米猫: 谁？//@COCO嘀嗒:同意→_→ //…</a>
 </h2>
 <p>//@快乐玉米猫: 谁？//@COCO嘀嗒:同意→_→ //@卡扎菲9119:不是不报，时候未到//@伐豁胖伐IB:也是拼的，弄了勿号后台倒了就清算//@zerozeroonetwo:[doge]背景深 //@伐豁胖伐IB:也是本事[挖鼻]//@SH甜面酱:我知道是谁了 对这个人好感全无 一家子骗子<br><br>RE: 万里大造林有她，达芬奇风波有她，世界华人商会骗局有她，少林僧棍，开光有她，e租宝庞氏大骗局仍然有她……一个骗子中的战斗鸡，战斗鸡中的轰炸鸡。但是这娘们每次都能全身而退，一定是被大和尚开光的功劳。一个骗子中的不倒鸡，不倒鸡里面常胜鸡，你还别不服，只要沾上她骗子都要倒十八辈子霉运。<br><img src="http://ww2.sinaimg.cn/large/4659d332jw1f0ownewqi9j20e80b63yz.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3939513229800147" target="freeweibo-mirror">哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈</a>
-</h2>
-<p>哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈<br><br>RE: 曾經誤報長者死訊的亞洲電視，不斷在股東內鬥、虧損、不獲續牌、欠薪的醜聞中續了N久的命，用「愛是永恆」改編的「亞視永恆」歌曲更是笑爆全港。年關將近，又拖欠員工兩個月薪資，今天大股東王征終於宣布入秉清盤。全港翹首亞視早日執笠，惡搞處處[笑cry]<br><img src="http://ww3.sinaimg.cn/large/006gR0EGjw1f0oy8is1vwj30qo0z0ahp.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
