@@ -122,6 +122,12 @@
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3939978205628682" target="freeweibo-mirror">凤凰传奇和玖月奇迹假唱。今年的真唱怕是不多了。</a>
+</h2>
+<p>凤凰传奇和玖月奇迹假唱。今年的真唱怕是不多了。</p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3939978080014680" target="freeweibo-mirror">SPAM 哈哈哈，笑死我了。//@马志海:一派胡言！明明是太…</a>
 </h2>
 <p>SPAM 哈哈哈，笑死我了。//@马志海:一派胡言！明明是太太太太太太大太太太大太太……//@曹增辉:那谁，大大。。//@白城以北:哈哈</p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3939975432706095" target="freeweibo-mirror">#春晚# 大大大大大大大大大大大们</a>
 </h2>
 <p>#春晚# 大大大大大大大大大大大们<br><img src="http://ww3.sinaimg.cn/large/7d10e085jw1f0r113pi58j20zk0qogui.jpg"></p>
-<p>
-	<small> ============== 3小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3939974887371581" target="freeweibo-mirror">SPAM #春晚#开场，首个歌舞节目依然是假唱~~不过，今年…</a>
-</h2>
-<p>SPAM #春晚#开场，首个歌舞节目依然是假唱~~不过，今年是有所突破的，那就是还有假说……辛苦了[微笑]</p>
 <p>
 	<small> ============== 4小时前</small>
 </p>
