@@ -54,7 +54,7 @@
 </h2>
 <p>看了几个节目就关了 春节本来是一家人团聚的时候 搞得一股膻味就不好了 //@影响力工作室:转发微博<br><br>RE: 春晚，好多人受不了了！不会看出人命吧？<br><img src="http://ww2.sinaimg.cn/large/4bdb1fa0jw1f0r5xnp2e2j20ku112jw5.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3940026196830108" target="freeweibo-mirror">SPAM 看到大家对今年春晚的评论，作为刑辩律师，我有个大胆…</a>
 </h2>
@@ -71,6 +71,12 @@
 	<a href="https://freeweibo.com/weibo/3940018135273401" target="freeweibo-mirror">春晚，好多人受不了了！不会看出人命吧？</a>
 </h2>
 <p>春晚，好多人受不了了！不会看出人命吧？<br><img src="http://ww2.sinaimg.cn/large/4bdb1fa0jw1f0r5xnp2e2j20ku112jw5.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3940017804466402" target="freeweibo-mirror">#春晚#今晚新闻联播4个半小时</a>
+</h2>
+<p>#春晚#今晚新闻联播4个半小时<br><img src="http://ww4.sinaimg.cn/large/6227049agw1f0r5wlec03j21840qugt1.jpg"></p>
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3939993921582886" target="freeweibo-mirror">SPAM 你不是人家的目标 //@何兵:三十年，春晚烂到如此…</a>
 </h2>
 <p>SPAM 你不是人家的目标 //@何兵:三十年，春晚烂到如此程度！<br><br>RE: 我认为，春晚今年最烂。同意的，赞个。</p>
-<p>
-	<small> ============== 5小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3939993683007122" target="freeweibo-mirror">SPAM 呸  你知道他们有多努力啊？！赞！</a>
-</h2>
-<p>SPAM 呸  你知道他们有多努力啊？！赞！<br><br>RE: 我认为，春晚今年最烂。同意的，赞个。</p>
 <p>
 	<small> ============== 5小时前</small>
 </p>
