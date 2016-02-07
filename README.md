@@ -20,6 +20,18 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3940026196830108" target="freeweibo-mirror">SPAM 看到大家对今年春晚的评论，作为刑辩律师，我有个大胆…</a>
+</h2>
+<p>SPAM 看到大家对今年春晚的评论，作为刑辩律师，我有个大胆的建议：以后侦查机关审讯犯罪嫌疑人别再刑讯逼供了，直接给他们看今年在春晚吧。<br><img src="http://ww2.sinaimg.cn/large/4bdb1fa0jw1f0r6p62rtmj20ku112jw5.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3940016894398096" target="freeweibo-mirror">【这是我看过最好的一次新闻联播】它摒弃了惯常新闻联播单一的口…</a>
+</h2>
+<p>【这是我看过最好的一次新闻联播】它摒弃了惯常新闻联播单一的口播加图像形式，集歌曲，舞蹈，小品，vcr等形式于一体。深入浅出地宣传了党的好政策，国家欣欣向荣，人民安居乐业，是新闻宣传工作的又一次创新型突破，入脑入心，深刻践行了三贴近原则，值得所有新闻宣传战线同志们深入学习领会。（转）</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3940005011441762" target="freeweibo-mirror">SPAM 。。。</a>
 </h2>
 <p>SPAM 。。。<br><br>RE: 前方线报。<br><img src="http://ww3.sinaimg.cn/large/5d098bccgw1f0r4cmixljj20v91jl4bk.jpg"></p>
@@ -125,18 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3939981267907744" target="freeweibo-mirror">SPAM 如图。</a>
 </h2>
 <p>SPAM 如图。</p>
-<p>
-	<small> ============== 4小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3939980156573038" target="freeweibo-mirror">SPAM 哈哈哈//@水兵李铭:哈哈哈//@虫子在北京:哈哈…</a>
-</h2>
-<p>SPAM 哈哈哈//@水兵李铭:哈哈哈//@虫子在北京:哈哈哈//@卓雨卓雨: 哈哈哈//@-ERSHAO-:哈哈哈 //@鼻涕仙May:哈哈哈哈</p>
-<p>
-	<small> ============== 4小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3939979233492779" target="freeweibo-mirror">SPAM #春晚#已经开始20分钟了，看了那么多段子我还没发…</a>
-</h2>
-<p>SPAM #春晚#已经开始20分钟了，看了那么多段子我还没发出第一个“哈哈” 有点方……<br><img src="http://ww1.sinaimg.cn/large/640ce205gw1f0r1gpksztj20fk0fkdgl.jpg"></p>
 <p>
 	<small> ============== 4小时前</small>
 </p>
