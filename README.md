@@ -24,7 +24,7 @@
 </h2>
 <p>SPAM //@北村:此博暴露了你的行踪……<br><br>RE: 没法看了，静音也不行，关了。</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3939998589501918" target="freeweibo-mirror">没法看了，静音也不行，关了。</a>
 </h2>
@@ -60,7 +60,7 @@
 </h2>
 <p>SPAM 一千三百多赞！<br><br>RE: 我认为，春晚今年最烂。同意的，赞个。</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3939987168704748" target="freeweibo-mirror">SPAM 明年的可能表示不服～</a>
 </h2>
