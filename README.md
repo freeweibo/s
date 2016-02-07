@@ -60,7 +60,7 @@
 </h2>
 <p>http://t.cn/R4yyfFW 1 http://t.cn/R4yyfFj 1 http://t.cn/R4UMQIz  跟紧大大@爆笑大篷车   ，天天精彩</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3939658805571217" target="freeweibo-mirror">顾约瑟牧师的逮捕通知书</a>
 </h2>
