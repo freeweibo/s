@@ -38,9 +38,21 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3940026930835378" target="freeweibo-mirror">看了几个节目就关了 春节本来是一家人团聚的时候 搞得一股膻味…</a>
+</h2>
+<p>看了几个节目就关了 春节本来是一家人团聚的时候 搞得一股膻味就不好了 //@影响力工作室:转发微博<br><br>RE: 春晚，好多人受不了了！不会看出人命吧？<br><img src="http://ww2.sinaimg.cn/large/4bdb1fa0jw1f0r5xnp2e2j20ku112jw5.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3940026196830108" target="freeweibo-mirror">SPAM 看到大家对今年春晚的评论，作为刑辩律师，我有个大胆…</a>
 </h2>
 <p>SPAM 看到大家对今年春晚的评论，作为刑辩律师，我有个大胆的建议：以后侦查机关审讯犯罪嫌疑人别再刑讯逼供了，直接给他们看今年在春晚吧。<br><img src="http://ww2.sinaimg.cn/large/4bdb1fa0jw1f0r6p62rtmj20ku112jw5.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3940025827591803" target="freeweibo-mirror">总结：中宣部应该根据春晚吐槽率实行熔断机制。PS：想对此前历…</a>
+</h2>
+<p>总结：中宣部应该根据春晚吐槽率实行熔断机制。PS：想对此前历届春晚的导演说一句对不起。<br><br>RE: 今年的春晚，这是我活了几十年看的最好的一次新闻联播。它摒弃了惯常新闻联播单一的口播加图像形式，集歌曲，舞蹈，小品，VCR等形式于一体。深入浅出的宣传了党的好政策，国家欣欣向荣，人民安居乐业，是新闻宣传的又一次创新型突破，入脑入心，深刻践行了三贴近原则，值得新闻宣传战线同志们学习领会</p>
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
@@ -125,18 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3939985432274770" target="freeweibo-mirror">SPAM 哈哈哈哈哈哈无法反驳。。//@两色风景嘎: [笑c…</a>
 </h2>
 <p>SPAM 哈哈哈哈哈哈无法反驳。。//@两色风景嘎: [笑cry]这节目里其他歌太难听 衬得青春修炼手册前所未有的好听<br><br>RE: #春晚#嚯！大家的呼声还是有用的，六小龄童来了一半：三小龄童。<br><img src="http://ww1.sinaimg.cn/large/679074b3gw1f0r1xxfvg1j20zk0qo7ek.jpg"></p>
-<p>
-	<small> ============== 4小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3939985256457823" target="freeweibo-mirror">//@张晨初艺术空间:[挤眼]//@一叶兰008:小品《立功…</a>
-</h2>
-<p>//@张晨初艺术空间:[挤眼]//@一叶兰008:小品《立功》，表演者:李乐斌。//@荣剑2001:单口相声：《检罗失联》，表演者：陈检罗。//@演员孙海英:是吗？ //@容若风流:小品《警察与记者》，表演者：武威警方、兰州晨报记者[酷][阴险]</p>
-<p>
-	<small> ============== 4小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3939985059453247" target="freeweibo-mirror">我认为，春晚今年最烂。同意的，赞个。</a>
-</h2>
-<p>我认为，春晚今年最烂。同意的，赞个。</p>
 <p>
 	<small> ============== 5小时前</small>
 </p>
