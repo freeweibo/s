@@ -48,7 +48,7 @@
 </h2>
 <p>SPAM #亚蒙读图# [可爱][可爱]<br><img src="http://ww1.sinaimg.cn/large/681521d1jw1f0q2rvxb5sj20ku112jw2.jpg"></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3939671011149775" target="freeweibo-mirror">[心]//@被褐怀玉的玉:// @bingwen09 ://…</a>
 </h2>
@@ -72,7 +72,7 @@
 </h2>
 <p>SPAM //@司马平邦:[赞]<br><br>RE: 令氏应处死刑！为了一己私利，竟以整个中华民族的安全做抵押，这就破了底线，罪不可赦！</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3939651460677714" target="freeweibo-mirror">SPAM //@馨雨纤尘:我只是路過。。。 //@瑞安丰和1…</a>
 </h2>
