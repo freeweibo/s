@@ -56,6 +56,12 @@
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3940034333157362" target="freeweibo-mirror">我们家有三个人属猴，本来以为春晚是围绕猴子的，看了半天发现是…</a>
+</h2>
+<p>我们家有三个人属猴，本来以为春晚是围绕猴子的，看了半天发现是围绕包子的。</p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3940033569845634" target="freeweibo-mirror">感觉自己在朝鲜。。。 //@同道大叔:</a>
 </h2>
 <p>感觉自己在朝鲜。。。 //@同道大叔:</p>
@@ -66,13 +72,13 @@
 </h2>
 <p>转：【评#春晚#】这是我活了40年看的最好的一次新闻联播。它摒弃了惯常新闻联播单一的口播加图像形式，集歌曲，舞蹈，小品，vcr等形式于一体。深入浅出的宣传了党的好政策，国家欣欣向荣，人民安居乐业，是新闻宣传的又一次创新型突破，入脑入心，深刻践行了三贴近原则，值得所有新闻宣传战线同志们学...全文： http://m.weibo.cn/1197863207/3940032387378842</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3940031778920952" target="freeweibo-mirror">尊敬的聂辰席台长 ！这届春晚是三十多年看的最好的一次新闻联播…</a>
 </h2>
 <p>尊敬的聂辰席台长 ！这届春晚是三十多年看的最好的一次新闻联播。它摒弃了惯常新闻联播单一的口播加图像形式，集歌曲，舞蹈，小品，vcr等形式于一体。深入浅出的宣传了党的好政策，国家欣欣向荣，人民安居乐业，是新闻宣传的又一次创新型突破，入脑入心，深刻践行了三贴近原则，值得所有新闻宣传战线同...全文： http://m.weibo.cn/1666381533/3940031778920952<br><img src="http://ww3.sinaimg.cn/large/6352f6ddjw1f0r7i9zupvj20k00da0tt.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3940031304844505" target="freeweibo-mirror">SPAM //@李成腾讯://@财经网:[挖鼻]</a>
 </h2>
@@ -126,17 +132,11 @@
 </h2>
 <p>#春晚#今晚新闻联播4个半小时<br><img src="http://ww4.sinaimg.cn/large/6227049agw1f0r5wlec03j21840qugt1.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3940016894398096" target="freeweibo-mirror">【这是我看过最好的一次新闻联播】它摒弃了惯常新闻联播单一的口…</a>
 </h2>
 <p>【这是我看过最好的一次新闻联播】它摒弃了惯常新闻联播单一的口播加图像形式，集歌曲，舞蹈，小品，vcr等形式于一体。深入浅出地宣传了党的好政策，国家欣欣向荣，人民安居乐业，是新闻宣传工作的又一次创新型突破，入脑入心，深刻践行了三贴近原则，值得所有新闻宣传战线同志们深入学习领会。（转）</p>
-<p>
-	<small> ============== 4小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3940014889475441" target="freeweibo-mirror">薄三没死，习四来了[哈哈] http://t.cn/R2Wx…</a>
-</h2>
-<p>薄三没死，习四来了[哈哈] http://t.cn/R2WxNLx<br><img src="http://ww2.sinaimg.cn/large/006gDjJgjw1f0r5ju45cnj30ei0jpdh5.jpg"></p>
 <p>
 	<small> ============== 5小时前</small>
 </p>
