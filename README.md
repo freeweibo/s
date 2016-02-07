@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3940053791647286" target="freeweibo-mirror">SPAM 大大对得不工，改包子。//@文山娃: 上联：没了祖…</a>
+</h2>
+<p>SPAM 大大对得不工，改包子。//@文山娃: 上联：没了祖国你将什么都不是；下联：除了大大我无论谁都不认。 尚有中文横批待补。[作揖]<br><br>RE: 有网友把我劝进的英文春联装裱出来了。</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3940043502255484" target="freeweibo-mirror">SPAM 一台淘宝定制。 //@一个提问者:这是一台真正不再…</a>
 </h2>
 <p>SPAM 一台淘宝定制。 //@一个提问者:这是一台真正不再把观众感受当回事的春晚，从头到尾透出一种爱看不看的劲儿。</p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3940003514047950" target="freeweibo-mirror">政委这话，有政纸高度，有经济深度！[赞]</a>
 </h2>
 <p>政委这话，有政纸高度，有经济深度！[赞]<br><br>RE: 春晚尤其需要打破垄断的供给侧改革！</p>
-<p>
-	<small> ============== 5小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3940002981305859" target="freeweibo-mirror">SPAM //@北村:此博暴露了你的行踪……</a>
-</h2>
-<p>SPAM //@北村:此博暴露了你的行踪……<br><br>RE: 没法看了，静音也不行，关了。</p>
 <p>
 	<small> ============== 5小时前</small>
 </p>
