@@ -24,11 +24,23 @@
 </h2>
 <p>古今中外，莫出其右。 //@雨后晴29:无语伦比，震惊宇宙。//@林滤山:已经实现了？ //@Icerock中荷教育:还没实现吗？ //@林滤山:【如此伟大，多么荣光！】新闻联播:央视春晚好评如潮！我是真的醉了……中国，只要央视存在，中国梦的实现就是指日可待！目测我们大家很快就会过上幸福美满的生活。<br><br>RE: 今年的春晚真不错……<br><img src="http://ww1.sinaimg.cn/large/562f4083gw1f0r7hk7g5bj20ze0ku431.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3940389113572899" target="freeweibo-mirror">已经实现了？ //@Icerock中荷教育:还没实现吗？ /…</a>
 </h2>
 <p>已经实现了？ //@Icerock中荷教育:还没实现吗？ //@林滤山:【如此伟大，多么荣光！】新闻联播:央视春晚好评如潮！我是真的醉了……中国，只要央视存在，中国梦的实现就是指日可待！目测我们大家很快就会过上幸福美满的生活。<br><br>RE: 今年的春晚真不错……<br><img src="http://ww1.sinaimg.cn/large/562f4083gw1f0r7hk7g5bj20ze0ku431.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3940388794881254" target="freeweibo-mirror">SPAM 我给春晚打分：250分，你们呢！</a>
+</h2>
+<p>SPAM 我给春晚打分：250分，你们呢！</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3940383220240366" target="freeweibo-mirror">//@李大华V: //@白星跃:没有共产党，就没有新中国，没…</a>
+</h2>
+<p>//@李大华V: //@白星跃:没有共产党，就没有新中国，没有中央电视台，就没有人民的幸福生活？//@林滤山:【如此伟大，多么荣光！】新闻联播:央视春晚好评如潮！我是真的醉了……中国，只要央视存在，中国梦的实现就是指日可待！目测我们大家很快就会过上幸福美满的生活。<br><br>RE: 今年的春晚真不错……<br><img src="http://ww1.sinaimg.cn/large/562f4083gw1f0r7hk7g5bj20ze0ku431.jpg"></p>
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
@@ -102,7 +114,7 @@
 </h2>
 <p>唯一亮点在呼伦贝尔那几个草原胖小子，也许是距离中心远吧 还有点欢乐喜庆的淳朴乡情。//@洋芋慢半拍:五毛都看不下去了，只有不说话的节目还不错了//@不沉默的大多数:弥漫着一种迫不及待的权力崇拜。而审美的苍白，内心的空虚，传统的丢失，人情的漠视，让各方正直人士无言以对。<br><br>RE: 一位中间偏左的大哥痛心的说：公知们忙活了那么多年没干成的事，一台春晚就做到了。</p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3940254371779236" target="freeweibo-mirror">SPAM 弥漫着一种迫不及待的权力崇拜。而审美的苍白，内心的…</a>
 </h2>
@@ -125,18 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3940237761880180" target="freeweibo-mirror">SPAM 太谦虚了</a>
 </h2>
 <p>SPAM 太谦虚了<br><br>RE: 吕导v5<br><img src="http://ww2.sinaimg.cn/large/617fc8a9jw1f0rtb9dhpgj20ch0m8wg1.jpg"></p>
-<p>
-	<small> ============== 12小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3940237027528481" target="freeweibo-mirror">SPAM  //@荣剑2001:感觉这架势要当央视台长了？/…</a>
-</h2>
-<p>SPAM  //@荣剑2001:感觉这架势要当央视台长了？//@榕粉团:[生病]<br><br>RE: 吕导v5<br><img src="http://ww2.sinaimg.cn/large/617fc8a9jw1f0rtb9dhpgj20ch0m8wg1.jpg"></p>
-<p>
-	<small> ============== 12小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3940234758744937" target="freeweibo-mirror">春晚总导演吕逸涛自己：一百分：“我觉得交出了一份满意的答卷。…</a>
-</h2>
-<p>春晚总导演吕逸涛自己：一百分：“我觉得交出了一份满意的答卷。观众对我们支持，才会来点赞或批评。好的建议我们可以吸纳，不好的建议我们可以置之不理。”——微评：这是央视严重脱离现实的白痴心态，第一是腐败，第二是自淫，除了赞美还是赞美，多么无耻，才屡屡挑衅观众的底线。<br><br>RE: 我发起了一个投票 【痛快点，2016年春晚，好还是差？[赞][弱]】http://t.cn/RGyw1VF</p>
 <p>
 	<small> ============== 12小时前</small>
 </p>
