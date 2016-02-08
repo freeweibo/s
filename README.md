@@ -30,7 +30,7 @@
 </h2>
 <p>SPAM 一个孩子喊：看，他没穿衣服<br><br>RE: 一群猴子扮演《皇帝的新装》。（附网文《从整风运动到窑洞美学》作者不详）<br><img src="http://ww3.sinaimg.cn/large/6362d8eajw1f0rhuy49qcj20qo4hv7vi.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3940168451139648" target="freeweibo-mirror">SPAM 看弹幕已够，解说好评 //@晋江iceheart:…</a>
 </h2>
