@@ -90,7 +90,7 @@
 </h2>
 <p>一位中间偏左的大哥痛心的说：公知们忙活了那么多年没干成的事，一台春晚就做到了。</p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3940230040585679" target="freeweibo-mirror">SPAM 翻白眼 //@互联网的那点事:没想到导演竟然是个段…</a>
 </h2>
