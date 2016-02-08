@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3940398151255814" target="freeweibo-mirror">//@鲲鹏展翅qd://@北京道哥:转发微博</a>
+</h2>
+<p>//@鲲鹏展翅qd://@北京道哥:转发微博<br><br>RE: 【美国价值观】王立军夜奔美领馆4周年了， 在这个事件中可以看出这位警察英模对美国的价值观一无所知。自称看过的书可以火烧重庆。当警察的王局长竟然天真到认为美国会庇护他。希拉里这样描述：他有着腐败和凶残的过往，我们没有任何理由收留他。但两个月后，美国兴师动众的在大使馆庇护了山东农民陈光...全文： http://m.weibo.cn/5127098030/3940353230674533<br><img src="http://ww2.sinaimg.cn/large/005AYMpwjw1f0s8fbyzzbj308c050jrl.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3940397438632542" target="freeweibo-mirror">SPAM #东方卫视女医明妃传#  过新年，穿新衣！穿衣就穿…</a>
 </h2>
 <p>SPAM #东方卫视女医明妃传#  过新年，穿新衣！穿衣就穿谭允贤同款！明明是古代造型，却引领了现代的风尚！扫描二维码，关注#东方卫视电视剧#微信公众号！了解更多最新、最好玩剧资讯！[好爱哦][求关注]<br><img src="http://ww1.sinaimg.cn/large/71b654e6gw1f0sdg8v594j20es0hxjs9.jpg"></p>
@@ -30,7 +36,7 @@
 </h2>
 <p>古今中外，莫出其右。 //@雨后晴29:无语伦比，震惊宇宙。//@林滤山:已经实现了？ //@Icerock中荷教育:还没实现吗？ //@林滤山:【如此伟大，多么荣光！】新闻联播:央视春晚好评如潮！我是真的醉了……中国，只要央视存在，中国梦的实现就是指日可待！目测我们大家很快就会过上幸福美满的生活。<br><br>RE: 今年的春晚真不错……<br><img src="http://ww1.sinaimg.cn/large/562f4083gw1f0r7hk7g5bj20ze0ku431.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3940389113572899" target="freeweibo-mirror">已经实现了？ //@Icerock中荷教育:还没实现吗？ /…</a>
 </h2>
@@ -120,7 +126,7 @@
 </h2>
 <p>唯一亮点在呼伦贝尔那几个草原胖小子，也许是距离中心远吧 还有点欢乐喜庆的淳朴乡情。//@洋芋慢半拍:五毛都看不下去了，只有不说话的节目还不错了//@不沉默的大多数:弥漫着一种迫不及待的权力崇拜。而审美的苍白，内心的空虚，传统的丢失，人情的漠视，让各方正直人士无言以对。<br><br>RE: 一位中间偏左的大哥痛心的说：公知们忙活了那么多年没干成的事，一台春晚就做到了。</p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3940254371779236" target="freeweibo-mirror">SPAM 弥漫着一种迫不及待的权力崇拜。而审美的苍白，内心的…</a>
 </h2>
@@ -133,12 +139,6 @@
 <p>SPAM 总是yy自己了解内幕，客观上是高级黑。 //@防务君:还是真的？ //@船人-老姚:[哆啦A梦吃惊]</p>
 <p>
 	<small> ============== 12小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3940242032062185" target="freeweibo-mirror">SPAM 这事，求证下哈～[微笑]</a>
-</h2>
-<p>SPAM 这事，求证下哈～[微笑]<br><img src="http://ww4.sinaimg.cn/large/8f1bd71bgw1f0rvlm05z9j20ku0mzq47.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
 </p>
 <table>
     <tr>
