@@ -114,7 +114,7 @@
 </h2>
 <p>SPAM 好拼命<br><br>RE: #林允# 秒删微博，还有娱乐博主爆料，大家可以对比一下林允照片中的厨房和冯绍峰家厨房[阴险]大年初一娱乐圈就又迎来喜事儿了？！[思考]<br><img src="http://ww2.sinaimg.cn/large/ad930c47jw1f0rz42a4krj20hs0e83zx.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3940272146146926" target="freeweibo-mirror">#林允# 秒删微博，还有娱乐博主爆料，大家可以对比一下林允照…</a>
 </h2>
