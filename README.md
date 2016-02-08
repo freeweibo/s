@@ -24,7 +24,7 @@
 </h2>
 <p>胡思乱想。//@陶然万柳世界: 实在不明白至今还有人会这么想，智商还是情商有问题？//@山河-万朵:坏事都是太监干的。//@张五常经济学:今上是保持定力，步步为营，但限于体制，组阁还未完成耳。//@腾龙唤雨:难道今上是傻瓜？//@逸为: 转发微博<br><br>RE: 它们的主将是那个俊秀的刘部长，带鱼事件就是它的杰作。当年小邓对老邓也是这么一个套路。<br><img src="http://ww3.sinaimg.cn/large/006dfZ8kgw1f0rrg4zf8fj30qo1jcguu.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3940217080072764" target="freeweibo-mirror">//@明风:居然没被和谐 //@谷中国歌:转发微博</a>
 </h2>
@@ -84,7 +84,7 @@
 </h2>
 <p>[生病] //@谢文:文革时期，文艺舞台上展示的是蛮横，狭隘和愚昧，但江青至少还算是有点文艺常识与品味。如今只剩下前者了。//@陶景洲: 评论百花争艳啊.... //@谢勇:嗯嗯 霸道总书记可能会爱上我<br><br>RE: 不必奇怪本届春晚的表现，这几年的宣传风格一贯如此：强行、拙劣、生硬、自以为是，满怀着“霸道总书记可能会爱上我”的期待。春晚不过是把这些社会现实浓缩在几个小时里罢了。</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3940184448120600" target="freeweibo-mirror">SPAM 一年又一年。看来我也还年轻。</a>
 </h2>
@@ -126,7 +126,7 @@
 </h2>
 <p>SPAM [笑cry][笑cry][笑cry] //@Mancy珉:在朋友圈看到昨晚霓虹弹幕到胡歌唱歌那里还在说“胡歌在上海开了个日料店Fount”[笑cry]…笑疯→_→ http://t.cn/RGy9BfG<br><br>RE: 霓虹国迷之八卦好评，已笑哭[笑cry][笑cry]<br><img src="http://ww4.sinaimg.cn/large/62f9dee9gw1f0rl1fxgbmj20k00zkq8i.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3940173135828009" target="freeweibo-mirror">SPAM 喝好茶，读书去，初一读书，一年好学。 //@北京大…</a>
 </h2>
