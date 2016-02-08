@@ -36,7 +36,7 @@
 </h2>
 <p>SPAM 这事，求证下哈～[微笑]<br><img src="http://ww4.sinaimg.cn/large/8f1bd71bgw1f0rvlm05z9j20ku0mzq47.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3940237761880180" target="freeweibo-mirror">SPAM 太谦虚了</a>
 </h2>
@@ -138,7 +138,7 @@
 </h2>
 <p>讲真，春晚就该是这个样子，反映时代风貌嘛。<br><br>RE: 不必奇怪本届春晚的表现，这几年的宣传风格一贯如此：强行、拙劣、生硬、自以为是，满怀着“霸道总书记可能会爱上我”的期待。春晚不过是把这些社会现实浓缩在几个小时里罢了。</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p>
 <table>
     <tr>
