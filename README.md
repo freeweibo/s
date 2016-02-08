@@ -80,6 +80,12 @@
 <p>
 	<small> ============== 5小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3940232946829084" target="freeweibo-mirror">一位中间偏左的大哥痛心的说：公知们忙活了那么多年没干成的事，…</a>
+</h2>
+<p>一位中间偏左的大哥痛心的说：公知们忙活了那么多年没干成的事，一台春晚就做到了。</p>
+<p>
+	<small> ============== 5小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3940230040585679" target="freeweibo-mirror">SPAM 翻白眼 //@互联网的那点事:没想到导演竟然是个段…</a>
 </h2>
 <p>SPAM 翻白眼 //@互联网的那点事:没想到导演竟然是个段子手！<br><br>RE: #热点#【春晚总导演：我给本届春晚打一百分！】导演吕逸涛称，为本届春晚打一百分，“基本是按照导演组设计的，出新出彩打造亮点 ”、“交出了一份满意的答卷”。至于观众评价，吕导演说：“好的建议我们可以吸纳，不好的建议我们可以置之不理”。http://t.cn/RGyqYn8 猴年春晚，你打几分？<br><img src="http://ww3.sinaimg.cn/large/60718250jw1f0rlgbm7i5j20hs09lwh5.jpg"></p>
@@ -126,17 +132,11 @@
 </h2>
 <p>吕导v5<br><img src="http://ww2.sinaimg.cn/large/617fc8a9jw1f0rtb9dhpgj20ch0m8wg1.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3940219340504045" target="freeweibo-mirror">胡思乱想。//@陶然万柳世界: 实在不明白至今还有人会这么想…</a>
 </h2>
 <p>胡思乱想。//@陶然万柳世界: 实在不明白至今还有人会这么想，智商还是情商有问题？//@山河-万朵:坏事都是太监干的。//@张五常经济学:今上是保持定力，步步为营，但限于体制，组阁还未完成耳。//@腾龙唤雨:难道今上是傻瓜？//@逸为: 转发微博<br><br>RE: 它们的主将是那个俊秀的刘部长，带鱼事件就是它的杰作。当年小邓对老邓也是这么一个套路。<br><img src="http://ww3.sinaimg.cn/large/006dfZ8kgw1f0rrg4zf8fj30qo1jcguu.jpg"></p>
-<p>
-	<small> ============== 6小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3940217080072764" target="freeweibo-mirror">//@明风:居然没被和谐 //@谷中国歌:转发微博</a>
-</h2>
-<p>//@明风:居然没被和谐 //@谷中国歌:转发微博<br><br>RE: 不必奇怪本届春晚的表现，这几年的宣传风格一贯如此：强行、拙劣、生硬、自以为是，满怀着“霸道总书记可能会爱上我”的期待。春晚不过是把这些社会现实浓缩在几个小时里罢了。</p>
 <p>
 	<small> ============== 6小时前</small>
 </p>
