@@ -44,17 +44,23 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3940230040585679" target="freeweibo-mirror">SPAM 翻白眼 //@互联网的那点事:没想到导演竟然是个段…</a>
+</h2>
+<p>SPAM 翻白眼 //@互联网的那点事:没想到导演竟然是个段子手！<br><br>RE: #热点#【春晚总导演：我给本届春晚打一百分！】导演吕逸涛称，为本届春晚打一百分，“基本是按照导演组设计的，出新出彩打造亮点 ”、“交出了一份满意的答卷”。至于观众评价，吕导演说：“好的建议我们可以吸纳，不好的建议我们可以置之不理”。http://t.cn/RGyqYn8 猴年春晚，你打几分？<br><img src="http://ww3.sinaimg.cn/large/60718250jw1f0rlgbm7i5j20hs09lwh5.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3940225875010757" target="freeweibo-mirror">SPAM //@常州杨洪波:[哈哈]</a>
 </h2>
 <p>SPAM //@常州杨洪波:[哈哈]<br><br>RE: 我建议大家再去看一遍春晚，如果你能坚持看完，没砸电视，没摔手机，没打电脑，那么，在接下来的人生中，就没有你吃不了的苦，没有你受不了的罪，没有你过不去的坎…只要看完，就没有你做不到的事！</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3940225665404058" target="freeweibo-mirror">SPAM //@常州杨洪波:仿佛听到了从秦城传来的冷笑声[挖…</a>
 </h2>
 <p>SPAM //@常州杨洪波:仿佛听到了从秦城传来的冷笑声[挖鼻] //@張骆驼:差不多了。<br><br>RE: 按此节奏，明年春晚该上“忠字舞”了吧。</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3940224964950559" target="freeweibo-mirror">左右啪啪打脸，是不是打痛了？文章怎么不见了？</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3940207067896824" target="freeweibo-mirror">SPAM 一场凝聚共识的晚会，导演功不可没。[偷笑]</a>
 </h2>
 <p>SPAM 一场凝聚共识的晚会，导演功不可没。[偷笑]<br><br>RE: #热点#【春晚总导演：我给本届春晚打一百分！】导演吕逸涛称，为本届春晚打一百分，“基本是按照导演组设计的，出新出彩打造亮点 ”、“交出了一份满意的答卷”。至于观众评价，吕导演说：“好的建议我们可以吸纳，不好的建议我们可以置之不理”。http://t.cn/RGyqYn8 猴年春晚，你打几分？<br><img src="http://ww3.sinaimg.cn/large/60718250jw1f0rlgbm7i5j20hs09lwh5.jpg"></p>
-<p>
-	<small> ============== 4小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3940206803245887" target="freeweibo-mirror">它们的主将是那个俊秀的刘部长，带鱼事件就是它的杰作。当年小邓…</a>
-</h2>
-<p>它们的主将是那个俊秀的刘部长，带鱼事件就是它的杰作。当年小邓对老邓也是这么一个套路。<br><img src="http://ww3.sinaimg.cn/large/006dfZ8kgw1f0rrg4zf8fj30qo1jcguu.jpg"></p>
 <p>
 	<small> ============== 4小时前</small>
 </p>
