@@ -138,7 +138,7 @@
 </h2>
 <p>SPAM 这事，求证下哈～[微笑]<br><img src="http://ww4.sinaimg.cn/large/8f1bd71bgw1f0rvlm05z9j20ku0mzq47.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p>
 <table>
     <tr>
