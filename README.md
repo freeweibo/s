@@ -72,7 +72,7 @@
 </h2>
 <p>SPAM 老公说的他对了</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3940193814063523" target="freeweibo-mirror">//@bambi_lin:说得对，自由派娱乐精神有余，政治意…</a>
 </h2>
