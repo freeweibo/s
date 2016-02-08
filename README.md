@@ -30,7 +30,7 @@
 </h2>
 <p>SPAM 这事，求证下哈～[微笑]<br><img src="http://ww4.sinaimg.cn/large/8f1bd71bgw1f0rvlm05z9j20ku0mzq47.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3940237761880180" target="freeweibo-mirror">SPAM 太谦虚了</a>
 </h2>
@@ -126,13 +126,13 @@
 </h2>
 <p>讲真，春晚就该是这个样子，反映时代风貌嘛。<br><br>RE: 不必奇怪本届春晚的表现，这几年的宣传风格一贯如此：强行、拙劣、生硬、自以为是，满怀着“霸道总书记可能会爱上我”的期待。春晚不过是把这些社会现实浓缩在几个小时里罢了。</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3940212348112580" target="freeweibo-mirror">SPAM 250分</a>
 </h2>
 <p>SPAM 250分<br><br>RE: #热点#【春晚总导演：我给本届春晚打一百分！】导演吕逸涛称，为本届春晚打一百分，“基本是按照导演组设计的，出新出彩打造亮点 ”、“交出了一份满意的答卷”。至于观众评价，吕导演说：“好的建议我们可以吸纳，不好的建议我们可以置之不理”。http://t.cn/RGyqYn8 猴年春晚，你打几分？<br><img src="http://ww3.sinaimg.cn/large/60718250jw1f0rlgbm7i5j20hs09lwh5.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3940210168021324" target="freeweibo-mirror">SPAM 还好我聪明，一分钟都没看，看了几秒钟。//@天魔圣…</a>
 </h2>
