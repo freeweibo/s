@@ -42,7 +42,7 @@
 </h2>
 <p>已经实现了？ //@Icerock中荷教育:还没实现吗？ //@林滤山:【如此伟大，多么荣光！】新闻联播:央视春晚好评如潮！我是真的醉了……中国，只要央视存在，中国梦的实现就是指日可待！目测我们大家很快就会过上幸福美满的生活。<br><br>RE: 今年的春晚真不错……<br><img src="http://ww1.sinaimg.cn/large/562f4083gw1f0r7hk7g5bj20ze0ku431.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3940388794881254" target="freeweibo-mirror">SPAM 我给春晚打分：250分，你们呢！</a>
 </h2>
@@ -102,7 +102,7 @@
 </h2>
 <p>求上联：———习大大，取经重上井冈山</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3940298348276448" target="freeweibo-mirror">长者虽然被黑多年，但至少骨子里是风雅的，吹拉弹唱样样都能来几…</a>
 </h2>
