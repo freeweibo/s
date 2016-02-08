@@ -72,7 +72,13 @@
 </h2>
 <p>SPAM //@X__又又:换个心态，把自己当国家领导人再看一遍春晚，简直完美！<br><br>RE: 我建议大家再去看一遍春晚，如果你能坚持看完，没砸电视，没摔手机，没打电脑，那么，在接下来的人生中，就没有你吃不了的苦，没有你受不了的罪，没有你过不去的坎…只要看完，就没有你做不到的事！</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3940221621846599" target="freeweibo-mirror">吕导v5</a>
+</h2>
+<p>吕导v5<br><img src="http://ww2.sinaimg.cn/large/617fc8a9jw1f0rtb9dhpgj20ch0m8wg1.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3940219340504045" target="freeweibo-mirror">胡思乱想。//@陶然万柳世界: 实在不明白至今还有人会这么想…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3940206803245887" target="freeweibo-mirror">它们的主将是那个俊秀的刘部长，带鱼事件就是它的杰作。当年小邓…</a>
 </h2>
 <p>它们的主将是那个俊秀的刘部长，带鱼事件就是它的杰作。当年小邓对老邓也是这么一个套路。<br><img src="http://ww3.sinaimg.cn/large/006dfZ8kgw1f0rrg4zf8fj30qo1jcguu.jpg"></p>
-<p>
-	<small> ============== 4小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3940206274460653" target="freeweibo-mirror">SPAM 都不是他导的，他敢不打一百分吗</a>
-</h2>
-<p>SPAM 都不是他导的，他敢不打一百分吗<br><br>RE: #热点#【春晚总导演：我给本届春晚打一百分！】导演吕逸涛称，为本届春晚打一百分，“基本是按照导演组设计的，出新出彩打造亮点 ”、“交出了一份满意的答卷”。至于观众评价，吕导演说：“好的建议我们可以吸纳，不好的建议我们可以置之不理”。http://t.cn/RGyqYn8 猴年春晚，你打几分？<br><img src="http://ww3.sinaimg.cn/large/60718250jw1f0rlgbm7i5j20hs09lwh5.jpg"></p>
 <p>
 	<small> ============== 4小时前</small>
 </p>
