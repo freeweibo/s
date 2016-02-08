@@ -56,6 +56,12 @@
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3940207151923573" target="freeweibo-mirror">按此节奏，明年春晚该上“忠字舞”了吧。</a>
+</h2>
+<p>按此节奏，明年春晚该上“忠字舞”了吧。</p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3940206803245887" target="freeweibo-mirror">它们的主将是那个俊秀的刘部长，带鱼事件就是它的杰作。当年小邓…</a>
 </h2>
 <p>它们的主将是那个俊秀的刘部长，带鱼事件就是它的杰作。当年小邓对老邓也是这么一个套路。<br><img src="http://ww3.sinaimg.cn/large/006dfZ8kgw1f0rrg4zf8fj30qo1jcguu.jpg"></p>
@@ -104,6 +110,12 @@
 <p>
 	<small> ============== 4小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3940193654984206" target="freeweibo-mirror">我建议大家再去看一遍春晚，如果你能坚持看完，没砸电视，没摔手…</a>
+</h2>
+<p>我建议大家再去看一遍春晚，如果你能坚持看完，没砸电视，没摔手机，没打电脑，那么，在接下来的人生中，就没有你吃不了的苦，没有你受不了的罪，没有你过不去的坎…只要看完，就没有你做不到的事！</p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3940190702172208" target="freeweibo-mirror">最牛的春晚导演应该是她。比起现在的吕导不知要高到哪里去了。</a>
 </h2>
 <p>最牛的春晚导演应该是她。比起现在的吕导不知要高到哪里去了。<br><img src="http://ww1.sinaimg.cn/large/61fcc2a9gw1f0rprdvroqj20c20bvdhe.jpg"></p>
@@ -125,18 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3940184448120600" target="freeweibo-mirror">SPAM 一年又一年。看来我也还年轻。</a>
 </h2>
 <p>SPAM 一年又一年。看来我也还年轻。</p>
-<p>
-	<small> ============== 4小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3940183977848635" target="freeweibo-mirror">SPAM 这是八卦的力量 //@黄飘飘:对对对，我们就是要输…</a>
-</h2>
-<p>SPAM 这是八卦的力量 //@黄飘飘:对对对，我们就是要输出这样的核心文化 [嘻嘻][嘻嘻][心][心]//@上校:哈哈哈哈哈哈哈哈哈//@困猫:哈哈哈 八卦信息量爆棚 //@欧美二线品牌:[挖鼻] //@立誓成妖:谜之征服<br><br>RE: 霓虹国迷之八卦好评，已笑哭[笑cry][笑cry]<br><img src="http://ww4.sinaimg.cn/large/62f9dee9gw1f0rl1fxgbmj20k00zkq8i.jpg"></p>
-<p>
-	<small> ============== 4小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3940183248265723" target="freeweibo-mirror">SPAM 思聪直接[good]，换作我是首富的儿子，这话我一…</a>
-</h2>
-<p>SPAM 思聪直接[good]，换作我是首富的儿子，这话我一定不敢说！</p>
 <p>
 	<small> ============== 4小时前</small>
 </p>
