@@ -38,6 +38,24 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3940342577103415" target="freeweibo-mirror">【某舆情监测：猴年春晚网民满意度相比羊年有所提升】网友满意率…</a>
+</h2>
+<p>【某舆情监测：猴年春晚网民满意度相比羊年有所提升】网友满意率高达72.21%，比羊年春晚有所提升。你感受到了吗？<br><img src="http://ww4.sinaimg.cn/large/62b31d36gw1f0s743wi9jj20hh0a3tai.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3940322649857349" target="freeweibo-mirror">我来做个“阴暗”的推测，一闪而过的想法：维尼上台以后热衷于通…</a>
+</h2>
+<p>我来做个“阴暗”的推测，一闪而过的想法：维尼上台以后热衷于通过各种手段作秀来营造个人崇拜，在这种环境下，此国已不能再允许出现第二个人气超过他的人物，特别是在春晚这种平台上，即便是一个老牌角色也要严防死守，防民之口。而文宣部门很好的贯彻了这种思想，让整个春晚很好的对了他的胃口，同时...全文： http://m.weibo.cn/2754700831/3940322649857349</p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3940298348276448" target="freeweibo-mirror">长者虽然被黑多年，但至少骨子里是风雅的，吹拉弹唱样样都能来几…</a>
+</h2>
+<p>长者虽然被黑多年，但至少骨子里是风雅的，吹拉弹唱样样都能来几下，属于性情中人，对艺术相对宽容。现在看来，一个爱好文艺的领导的确太重要了——至少对于春晚来说。<br><img src="http://ww3.sinaimg.cn/large/5d413e05gw1f0s24iuv48j20i50b7dhl.jpg"></p>
+<p>
+	<small> ============== 6小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3940288088764532" target="freeweibo-mirror">SPAM 好拼命</a>
 </h2>
 <p>SPAM 好拼命<br><br>RE: #林允# 秒删微博，还有娱乐博主爆料，大家可以对比一下林允照片中的厨房和冯绍峰家厨房[阴险]大年初一娱乐圈就又迎来喜事儿了？！[思考]<br><img src="http://ww2.sinaimg.cn/large/ad930c47jw1f0rz42a4krj20hs0e83zx.jpg"></p>
@@ -66,7 +84,7 @@
 </h2>
 <p>SPAM 弥漫着一种迫不及待的权力崇拜。而审美的苍白，内心的空虚，传统的丢失，人情的漠视，让各方正直人士无言以对。<br><br>RE: 一位中间偏左的大哥痛心的说：公知们忙活了那么多年没干成的事，一台春晚就做到了。</p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3940253071512184" target="freeweibo-mirror">SPAM 总是yy自己了解内幕，客观上是高级黑。 //@防务…</a>
 </h2>
@@ -119,24 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3940229901167371" target="freeweibo-mirror">分享图片 转发不了？</a>
 </h2>
 <p>分享图片 转发不了？<br><img src="http://ww3.sinaimg.cn/large/793acb1cjw1f0ru9dbsuoj20c80pdwhi.jpg"></p>
-<p>
-	<small> ============== 10小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3940225875010757" target="freeweibo-mirror">SPAM //@常州杨洪波:[哈哈]</a>
-</h2>
-<p>SPAM //@常州杨洪波:[哈哈]<br><br>RE: 我建议大家再去看一遍春晚，如果你能坚持看完，没砸电视，没摔手机，没打电脑，那么，在接下来的人生中，就没有你吃不了的苦，没有你受不了的罪，没有你过不去的坎…只要看完，就没有你做不到的事！</p>
-<p>
-	<small> ============== 10小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3940225665404058" target="freeweibo-mirror">SPAM //@常州杨洪波:仿佛听到了从秦城传来的冷笑声[挖…</a>
-</h2>
-<p>SPAM //@常州杨洪波:仿佛听到了从秦城传来的冷笑声[挖鼻] //@張骆驼:差不多了。<br><br>RE: 按此节奏，明年春晚该上“忠字舞”了吧。</p>
-<p>
-	<small> ============== 10小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3940224964950559" target="freeweibo-mirror">左右啪啪打脸，是不是打痛了？文章怎么不见了？</a>
-</h2>
-<p>左右啪啪打脸，是不是打痛了？文章怎么不见了？<br><img src="http://ww3.sinaimg.cn/large/005XsazYjw1f0rtoj2zwpj30p018g10g.jpg"></p>
 <p>
 	<small> ============== 10小时前</small>
 </p>
