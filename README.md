@@ -60,7 +60,7 @@
 </h2>
 <p>SPAM [笑cry] //@北京老妪:[偷笑]//@宏鑫88: [笑cry]//@廖睿: 就是一个堂会嘛。<br><br>RE: 我们家有三个人属猴，本来以为春晚是围绕猴子的，看了半天发现是围绕包子的。</p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3940063777712225" target="freeweibo-mirror">SPAM 哎，不舔不精彩嘛！</a>
 </h2>
@@ -77,6 +77,12 @@
 	<a href="https://freeweibo.com/weibo/3940050595321284" target="freeweibo-mirror">有网友把我劝进的英文春联装裱出来了。</a>
 </h2>
 <p>有网友把我劝进的英文春联装裱出来了。</p>
+<p>
+	<small> ============== 9小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3940048217385501" target="freeweibo-mirror">看完这场倒退几十年的晚会，终于可以放弃对你大大的幻想了吧。</a>
+</h2>
+<p>看完这场倒退几十年的晚会，终于可以放弃对你大大的幻想了吧。</p>
 <p>
 	<small> ============== 9小时前</small>
 </p><h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3940028906174159" target="freeweibo-mirror">嗯 //@bird_雨://@我的前任是极品:同感…… //…</a>
 </h2>
 <p>嗯 //@bird_雨://@我的前任是极品:同感…… //@知乎大神:爱国主义教育主题晚会//@思想聚焦:这是有史以来节目形式最为丰富多彩的一部新闻联播<br><br>RE: #春晚#今晚新闻联播4个半小时<br><img src="http://ww4.sinaimg.cn/large/6227049agw1f0r5wlec03j21840qugt1.jpg"></p>
-<p>
-	<small> ============== 10小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3940028701237139" target="freeweibo-mirror">评论得太认真了</a>
-</h2>
-<p>评论得太认真了<br><br>RE: 这是我活了三十多年看的最好的一次新闻联播。它摒弃了惯常新闻联播单一的口播加图像形式,集歌曲、舞蹈、小品、vcr等形式于一体。深入浅出的宣传了党的好政策,国家欣欣向荣.人民安居乐业,是新闻宣传的又一次创新型突破,入脑入心,深刻践行了三贴近原则,值得所有新闻宣传战线同志们学习领会。转发自网络</p>
 <p>
 	<small> ============== 10小时前</small>
 </p>
