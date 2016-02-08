@@ -66,7 +66,7 @@
 </h2>
 <p>霓虹国迷之八卦好评，已笑哭[笑cry][笑cry]<br><img src="http://ww4.sinaimg.cn/large/62f9dee9gw1f0rl1fxgbmj20k00zkq8i.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3940138071097396" target="freeweibo-mirror">//@吴澧-猪草园:我们天天要读@环球时报 的极左同志和军国…</a>
 </h2>
@@ -83,6 +83,12 @@
 	<a href="https://freeweibo.com/weibo/3940125471511234" target="freeweibo-mirror">所以说毛是千古罪人，遗患无穷，必须彻底清算！//@凯风快晴:…</a>
 </h2>
 <p>所以说毛是千古罪人，遗患无穷，必须彻底清算！//@凯风快晴: 转发微博<br><br>RE: 刚才在鹿特丹吃饭，朋友们一致认为中国三界政府，最开放，最自由的是江政府。言论开放，经济自由，政治宽松。我认为这是因为他们那代人接受的教育毕竟还是民国教育，而包子这一代人，从处长以上的几万高级官员，全部接受的是文革教育！一窝的文革造反派。这不是他一个人的问题，是整个一代人的问题。</p>
+<p>
+	<small> ============== 5小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3940121957564496" target="freeweibo-mirror">一群猴子扮演《皇帝的新装》。（附网文《从整风运动到窑洞美学》…</a>
+</h2>
+<p>一群猴子扮演《皇帝的新装》。（附网文《从整风运动到窑洞美学》作者不详）<br><img src="http://ww3.sinaimg.cn/large/6362d8eajw1f0rhuy49qcj20qo4hv7vi.jpg"></p>
 <p>
 	<small> ============== 5小时前</small>
 </p><h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3940048217385501" target="freeweibo-mirror">看完这场倒退几十年的晚会，终于可以放弃对你大大的幻想了吧。</a>
 </h2>
 <p>看完这场倒退几十年的晚会，终于可以放弃对你大大的幻想了吧。</p>
-<p>
-	<small> ============== 10小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3940043502255484" target="freeweibo-mirror">SPAM 一台淘宝定制。 //@一个提问者:这是一台真正不再…</a>
-</h2>
-<p>SPAM 一台淘宝定制。 //@一个提问者:这是一台真正不再把观众感受当回事的春晚，从头到尾透出一种爱看不看的劲儿。</p>
 <p>
 	<small> ============== 10小时前</small>
 </p>
