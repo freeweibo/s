@@ -30,7 +30,7 @@
 </h2>
 <p>//@bambi_lin:说得对，自由派娱乐精神有余，政治意识反而远不如左派<br><br>RE: 赵国人民群众又是吐槽春晚又是抨击中宣部，生怕赵家宣传的不好，真是忠党爱赵呀</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3940189590105340" target="freeweibo-mirror">[生病] //@谢文:文革时期，文艺舞台上展示的是蛮横，狭隘…</a>
 </h2>
@@ -60,7 +60,7 @@
 </h2>
 <p>SPAM //@理科全才匡申升:外国友人赶出来给春晚救场……<br><br>RE: 霓虹国迷之八卦好评，已笑哭[笑cry][笑cry]<br><img src="http://ww4.sinaimg.cn/large/62f9dee9gw1f0rl1fxgbmj20k00zkq8i.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3940176478196829" target="freeweibo-mirror">SPAM 一个孩子喊：看，他没穿衣服</a>
 </h2>
