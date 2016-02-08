@@ -32,6 +32,12 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3940173974390415" target="freeweibo-mirror">SPAM [笑cry][笑cry][笑cry] //@Man…</a>
+</h2>
+<p>SPAM [笑cry][笑cry][笑cry] //@Mancy珉:在朋友圈看到昨晚霓虹弹幕到胡歌唱歌那里还在说“胡歌在上海开了个日料店Fount”[笑cry]…笑疯→_→ http://t.cn/RGy9BfG<br><br>RE: 霓虹国迷之八卦好评，已笑哭[笑cry][笑cry]<br><img src="http://ww4.sinaimg.cn/large/62f9dee9gw1f0rl1fxgbmj20k00zkq8i.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3940168451139648" target="freeweibo-mirror">SPAM 看弹幕已够，解说好评 //@晋江iceheart:…</a>
 </h2>
 <p>SPAM 看弹幕已够，解说好评 //@晋江iceheart:[哈哈][哈哈][哈哈]<br><br>RE: 霓虹国迷之八卦好评，已笑哭[笑cry][笑cry]<br><img src="http://ww4.sinaimg.cn/large/62f9dee9gw1f0rl1fxgbmj20k00zkq8i.jpg"></p>
@@ -42,7 +48,7 @@
 </h2>
 <p>SPAM 拿春晚浪费的钱办几所希望小学该多好啊！ //@荣剑2001:不吃饺子吗？</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3940157553731275" target="freeweibo-mirror">SPAM //@阴霾里的叹息://@彭园v://@三皮LEE…</a>
 </h2>
@@ -96,7 +102,7 @@
 </h2>
 <p>新人不如故 //@LifeTime:[汗]<br><br>RE: 刚才在鹿特丹吃饭，朋友们一致认为中国三界政府，最开放，最自由的是江政府。言论开放，经济自由，政治宽松。我认为这是因为他们那代人接受的教育毕竟还是民国教育，而包子这一代人，从处长以上的几万高级官员，全部接受的是文革教育！一窝的文革造反派。这不是他一个人的问题，是整个一代人的问题。</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3940117301697730" target="freeweibo-mirror">刚才在鹿特丹吃饭，朋友们一致认为中国三界政府，最开放，最自由…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3940050595321284" target="freeweibo-mirror">有网友把我劝进的英文春联装裱出来了。</a>
 </h2>
 <p>有网友把我劝进的英文春联装裱出来了。</p>
-<p>
-	<small> ============== 10小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3940048217385501" target="freeweibo-mirror">看完这场倒退几十年的晚会，终于可以放弃对你大大的幻想了吧。</a>
-</h2>
-<p>看完这场倒退几十年的晚会，终于可以放弃对你大大的幻想了吧。</p>
 <p>
 	<small> ============== 10小时前</small>
 </p>
