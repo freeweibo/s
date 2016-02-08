@@ -36,7 +36,7 @@
 </h2>
 <p>SPAM 这是八卦的力量 //@黄飘飘:对对对，我们就是要输出这样的核心文化 [嘻嘻][嘻嘻][心][心]//@上校:哈哈哈哈哈哈哈哈哈//@困猫:哈哈哈 八卦信息量爆棚 //@欧美二线品牌:[挖鼻] //@立誓成妖:谜之征服<br><br>RE: 霓虹国迷之八卦好评，已笑哭[笑cry][笑cry]<br><img src="http://ww4.sinaimg.cn/large/62f9dee9gw1f0rl1fxgbmj20k00zkq8i.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3940178802591687" target="freeweibo-mirror">SPAM //@理科全才匡申升:外国友人赶出来给春晚救场……</a>
 </h2>
