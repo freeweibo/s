@@ -24,7 +24,7 @@
 </h2>
 <p>SPAM //@理科全才匡申升:外国友人赶出来给春晚救场……<br><br>RE: 霓虹国迷之八卦好评，已笑哭[笑cry][笑cry]<br><img src="http://ww4.sinaimg.cn/large/62f9dee9gw1f0rl1fxgbmj20k00zkq8i.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3940176478196829" target="freeweibo-mirror">SPAM 一个孩子喊：看，他没穿衣服</a>
 </h2>
@@ -96,7 +96,7 @@
 </h2>
 <p>刚才在鹿特丹吃饭，朋友们一致认为中国三界政府，最开放，最自由的是江政府。言论开放，经济自由，政治宽松。我认为这是因为他们那代人接受的教育毕竟还是民国教育，而包子这一代人，从处长以上的几万高级官员，全部接受的是文革教育！一窝的文革造反派。这不是他一个人的问题，是整个一代人的问题。</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3940068589117279" target="freeweibo-mirror">SPAM [怒] //@陈业文新大都:[笑cry] //@北…</a>
 </h2>
