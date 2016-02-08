@@ -66,13 +66,13 @@
 </h2>
 <p>SPAM 看弹幕已够，解说好评 //@晋江iceheart:[哈哈][哈哈][哈哈]<br><br>RE: 霓虹国迷之八卦好评，已笑哭[笑cry][笑cry]<br><img src="http://ww4.sinaimg.cn/large/62f9dee9gw1f0rl1fxgbmj20k00zkq8i.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3940168274970890" target="freeweibo-mirror">//@陆禾刀: [给力]//@北京崔卫平:果然猴年，洞中美学…</a>
 </h2>
 <p>//@陆禾刀: [给力]//@北京崔卫平:果然猴年，洞中美学[哈哈][哈哈][哈哈] （始终不能确定，猴子能否作为人类认同的对象[疑问]）//@Ming_the_Great_大明:转发微博 :转发微博<br><br>RE: 一群猴子扮演《皇帝的新装》。（附网文《从整风运动到窑洞美学》作者不详）<br><img src="http://ww3.sinaimg.cn/large/6362d8eajw1f0rhuy49qcj20qo4hv7vi.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3940166139815897" target="freeweibo-mirror">SPAM 拿春晚浪费的钱办几所希望小学该多好啊！ //@荣剑…</a>
 </h2>
@@ -108,7 +108,7 @@
 </h2>
 <p>//@吴澧-猪草园:我们天天要读@环球时报 的极左同志和军国青年无比激动无比振奋 [拳头] 今年的春晚拉开了纪念无产阶级文化大革命五十周年 [国旗] 的序幕啊 [哈哈]<br><br>RE: 刚才在鹿特丹吃饭，朋友们一致认为中国三界政府，最开放，最自由的是江政府。言论开放，经济自由，政治宽松。我认为这是因为他们那代人接受的教育毕竟还是民国教育，而包子这一代人，从处长以上的几万高级官员，全部接受的是文革教育！一窝的文革造反派。这不是他一个人的问题，是整个一代人的问题。</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3940130648039812" target="freeweibo-mirror">//@LifeTime:[汗]</a>
 </h2>
