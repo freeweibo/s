@@ -20,6 +20,24 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3940360449330275" target="freeweibo-mirror">有文化的大学生，和土包子在文化修养上还是天差地别的 //@菊…</a>
+</h2>
+<p>有文化的大学生，和土包子在文化修养上还是天差地别的 //@菊十一画:长者当年说《泰坦尼克号》好，于是一刀不剪全国上映，就这眼光，已经甩后面人几条街了。<br><br>RE: 长者虽然被黑多年，但至少骨子里是风雅的，吹拉弹唱样样都能来几下，属于性情中人，对艺术相对宽容。现在看来，一个爱好文艺的领导的确太重要了——至少对于春晚来说。<br><img src="http://ww3.sinaimg.cn/large/5d413e05gw1f0s24iuv48j20i50b7dhl.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3940357873644926" target="freeweibo-mirror">SPAM //@ECO中文网:[思考]//@NewBigge…</a>
+</h2>
+<p>SPAM //@ECO中文网:[思考]//@NewBigger: 据说是通过人工智能自动抓取<br><br>RE: 【某舆情监测：猴年春晚网民满意度相比羊年有所提升】网友满意率高达72.21%，比羊年春晚有所提升。你感受到了吗？<br><img src="http://ww4.sinaimg.cn/large/62b31d36gw1f0s743wi9jj20hh0a3tai.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3940350886737356" target="freeweibo-mirror">→_→//@盛善心儿711：我就记得一个事儿→_→宣传丝路文…</a>
+</h2>
+<p>→_→//@盛善心儿711：我就记得一个事儿→_→宣传丝路文化的时候，尽量避免提到郑和……说是担心抢了今上的风头<br><br>RE: 我来做个“阴暗”的推测，一闪而过的想法：维尼上台以后热衷于通过各种手段作秀来营造个人崇拜，在这种环境下，此国已不能再允许出现第二个人气超过他的人物，特别是在春晚这种平台上，即便是一个老牌角色也要严防死守，防民之口。而文宣部门很好的贯彻了这种思想，让整个春晚很好的对了他的胃口，同时...全文： http://m.weibo.cn/2754700831/3940322649857349</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3940288088764532" target="freeweibo-mirror">SPAM 好拼命</a>
 </h2>
 <p>SPAM 好拼命<br><br>RE: #林允# 秒删微博，还有娱乐博主爆料，大家可以对比一下林允照片中的厨房和冯绍峰家厨房[阴险]大年初一娱乐圈就又迎来喜事儿了？！[思考]<br><img src="http://ww2.sinaimg.cn/large/ad930c47jw1f0rz42a4krj20hs0e83zx.jpg"></p>
@@ -119,24 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3940224964950559" target="freeweibo-mirror">左右啪啪打脸，是不是打痛了？文章怎么不见了？</a>
 </h2>
 <p>左右啪啪打脸，是不是打痛了？文章怎么不见了？<br><img src="http://ww3.sinaimg.cn/large/005XsazYjw1f0rtoj2zwpj30p018g10g.jpg"></p>
-<p>
-	<small> ============== 10小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3940224708732348" target="freeweibo-mirror">SPAM 不让评论了？</a>
-</h2>
-<p>SPAM 不让评论了？<br><br>RE: #热点#【春晚总导演：我给本届春晚打一百分！】导演吕逸涛称，为本届春晚打一百分，“基本是按照导演组设计的，出新出彩打造亮点 ”、“交出了一份满意的答卷”。至于观众评价，吕导演说：“好的建议我们可以吸纳，不好的建议我们可以置之不理”。http://t.cn/RGyqYn8 猴年春晚，你打几分？<br><img src="http://ww3.sinaimg.cn/large/60718250jw1f0rlgbm7i5j20hs09lwh5.jpg"></p>
-<p>
-	<small> ============== 10小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3940223039358389" target="freeweibo-mirror">SPAM //@X__又又:换个心态，把自己当国家领导人再看…</a>
-</h2>
-<p>SPAM //@X__又又:换个心态，把自己当国家领导人再看一遍春晚，简直完美！<br><br>RE: 我建议大家再去看一遍春晚，如果你能坚持看完，没砸电视，没摔手机，没打电脑，那么，在接下来的人生中，就没有你吃不了的苦，没有你受不了的罪，没有你过不去的坎…只要看完，就没有你做不到的事！</p>
-<p>
-	<small> ============== 10小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3940221621846599" target="freeweibo-mirror">吕导v5</a>
-</h2>
-<p>吕导v5<br><img src="http://ww2.sinaimg.cn/large/617fc8a9jw1f0rtb9dhpgj20ch0m8wg1.jpg"></p>
 <p>
 	<small> ============== 10小时前</small>
 </p>
