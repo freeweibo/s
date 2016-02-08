@@ -48,7 +48,7 @@
 </h2>
 <p>它们的主将是那个俊秀的刘部长，带鱼事件就是它的杰作。当年小邓对老邓也是这么一个套路。<br><img src="http://ww3.sinaimg.cn/large/006dfZ8kgw1f0rrg4zf8fj30qo1jcguu.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3940203297733773" target="freeweibo-mirror">SPAM [生病]</a>
 </h2>
@@ -79,6 +79,12 @@
 <p>//@bambi_lin:说得对，自由派娱乐精神有余，政治意识反而远不如左派<br><br>RE: 赵国人民群众又是吐槽春晚又是抨击中宣部，生怕赵家宣传的不好，真是忠党爱赵呀</p>
 <p>
 	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3940190702172208" target="freeweibo-mirror">最牛的春晚导演应该是她。比起现在的吕导不知要高到哪里去了。</a>
+</h2>
+<p>最牛的春晚导演应该是她。比起现在的吕导不知要高到哪里去了。<br><img src="http://ww1.sinaimg.cn/large/61fcc2a9gw1f0rprdvroqj20c20bvdhe.jpg"></p>
+<p>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3940189590105340" target="freeweibo-mirror">[生病] //@谢文:文革时期，文艺舞台上展示的是蛮横，狭隘…</a>
 </h2>
@@ -120,7 +126,7 @@
 </h2>
 <p>SPAM 一个孩子喊：看，他没穿衣服<br><br>RE: 一群猴子扮演《皇帝的新装》。（附网文《从整风运动到窑洞美学》作者不详）<br><img src="http://ww3.sinaimg.cn/large/6362d8eajw1f0rhuy49qcj20qo4hv7vi.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3940173974390415" target="freeweibo-mirror">SPAM [笑cry][笑cry][笑cry] //@Man…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3940173135828009" target="freeweibo-mirror">SPAM 喝好茶，读书去，初一读书，一年好学。 //@北京大…</a>
 </h2>
 <p>SPAM 喝好茶，读书去，初一读书，一年好学。 //@北京大众2015:不能移民的，只能忍耐，珍惜春节，远离春晚，远高电视。<br><br>RE: 一群猴子扮演《皇帝的新装》。（附网文《从整风运动到窑洞美学》作者不详）<br><img src="http://ww3.sinaimg.cn/large/6362d8eajw1f0rhuy49qcj20qo4hv7vi.jpg"></p>
-<p>
-	<small> ============== 5小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3940172410324813" target="freeweibo-mirror">不必奇怪本届春晚的表现，这几年的宣传风格一贯如此：强行、拙劣…</a>
-</h2>
-<p>不必奇怪本届春晚的表现，这几年的宣传风格一贯如此：强行、拙劣、生硬、自以为是，满怀着“霸道总书记可能会爱上我”的期待。春晚不过是把这些社会现实浓缩在几个小时里罢了。</p>
 <p>
 	<small> ============== 5小时前</small>
 </p>
