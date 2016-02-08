@@ -62,6 +62,12 @@
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3940149610547710" target="freeweibo-mirror">霓虹国迷之八卦好评，已笑哭[笑cry][笑cry]</a>
+</h2>
+<p>霓虹国迷之八卦好评，已笑哭[笑cry][笑cry]<br><img src="http://ww4.sinaimg.cn/large/62f9dee9gw1f0rl1fxgbmj20k00zkq8i.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3940138071097396" target="freeweibo-mirror">//@吴澧-猪草园:我们天天要读@环球时报 的极左同志和军国…</a>
 </h2>
 <p>//@吴澧-猪草园:我们天天要读@环球时报 的极左同志和军国青年无比激动无比振奋 [拳头] 今年的春晚拉开了纪念无产阶级文化大革命五十周年 [国旗] 的序幕啊 [哈哈]<br><br>RE: 刚才在鹿特丹吃饭，朋友们一致认为中国三界政府，最开放，最自由的是江政府。言论开放，经济自由，政治宽松。我认为这是因为他们那代人接受的教育毕竟还是民国教育，而包子这一代人，从处长以上的几万高级官员，全部接受的是文革教育！一窝的文革造反派。这不是他一个人的问题，是整个一代人的问题。</p>
@@ -72,7 +78,7 @@
 </h2>
 <p>//@LifeTime:[汗]<br><br>RE: 刚才在鹿特丹吃饭，朋友们一致认为中国三界政府，最开放，最自由的是江政府。言论开放，经济自由，政治宽松。我认为这是因为他们那代人接受的教育毕竟还是民国教育，而包子这一代人，从处长以上的几万高级官员，全部接受的是文革教育！一窝的文革造反派。这不是他一个人的问题，是整个一代人的问题。</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3940125471511234" target="freeweibo-mirror">所以说毛是千古罪人，遗患无穷，必须彻底清算！//@凯风快晴:…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3940043502255484" target="freeweibo-mirror">SPAM 一台淘宝定制。 //@一个提问者:这是一台真正不再…</a>
 </h2>
 <p>SPAM 一台淘宝定制。 //@一个提问者:这是一台真正不再把观众感受当回事的春晚，从头到尾透出一种爱看不看的劲儿。</p>
-<p>
-	<small> ============== 10小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3940039694066280" target="freeweibo-mirror">SPAM 今年春晚真的很好看[酷]</a>
-</h2>
-<p>SPAM 今年春晚真的很好看[酷]<br><img src="http://ww1.sinaimg.cn/large/70642251gw1f0r8ecr3y0j20hs0amgm4.jpg"></p>
 <p>
 	<small> ============== 10小时前</small>
 </p>
