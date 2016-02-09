@@ -86,9 +86,21 @@
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3940525809116450" target="freeweibo-mirror">初二了，大家还在吐槽许多人说看都没看的春晚。总以为，这与其说…</a>
+</h2>
+<p>初二了，大家还在吐槽许多人说看都没看的春晚。总以为，这与其说是批评春晚，不如说是批评主流文化的过度政治化和灌输方式的傲慢任性。中国毕竟改革开放了三十多年，倒退没有出路，与时俱进才是中国的希望。</p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3940518943226608" target="freeweibo-mirror">【香港旺角骚乱 警察被袭后开枪】在香港游客区旺角，8号深夜因…</a>
 </h2>
 <p>【香港旺角骚乱 警察被袭后开枪】在香港游客区旺角，8号深夜因春节无牌小贩摆卖事件，演变成骚乱，有人多次冲击警方，警方多次施放胡椒喷雾并开枪。事件中有至少44名警员和记者受伤送院，部分伤势严重。警方已拘捕24人。不排除是次骚乱是有预谋事件。http://t.cn/RGbLuU2<br><br>RE: 香港春节不安宁。正在进行时。[汗]<br><img src="http://ww3.sinaimg.cn/large/dd816182gw1f0simhzudqj20go0citau.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3940517223564390" target="freeweibo-mirror">花了那么多纳税人银子的春晚凭什么不让群众吐槽？还关评论删帖？…</a>
+</h2>
+<p>花了那么多纳税人银子的春晚凭什么不让群众吐槽？还关评论删帖？党的联系群众、批评与自我批评的优良作风哪去了？批评是一种关心，吐槽也是一种爱。群众的眼睛是雪亮的，与其孤芳自赏抵触批评，不如虚心接受与时俱进，这才是互联网精神。互动与共享已成为时代主流，不变革早晚会死！#微博热点快评#<br><img src="http://ww4.sinaimg.cn/large/50fd482djw1f0sr8mhvivj20cs0mp75n.jpg"></p>
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
@@ -97,6 +109,12 @@
 <p>SPAM 怎么回事？<br><br>RE: 香港春节不安宁。正在进行时。[汗]<br><img src="http://ww3.sinaimg.cn/large/dd816182gw1f0simhzudqj20go0citau.jpg"></p>
 <p>
 	<small> ============== 4小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3940441038278305" target="freeweibo-mirror">从目前网上删贴的规模和一些特别奇特的言论诸如“一百分”看（导…</a>
+</h2>
+<p>从目前网上删贴的规模和一些特别奇特的言论诸如“一百分”看（导演情商没那么低），某晚会并不是导演为了拍给某人看那么简单，很可能该某人就做了部分导演的事，或亲自审过了。所以任何低于100分的评价在舆论中都是不允许大规模存在的。</p>
+<p>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3940398295142264" target="freeweibo-mirror">发布了头条文章：《雍正年间的春晚段子手之死》 http://…</a>
 </h2>
@@ -121,24 +139,6 @@
 <p>古今中外，莫出其右。 //@雨后晴29:无语伦比，震惊宇宙。//@林滤山:已经实现了？ //@Icerock中荷教育:还没实现吗？ //@林滤山:【如此伟大，多么荣光！】新闻联播:央视春晚好评如潮！我是真的醉了……中国，只要央视存在，中国梦的实现就是指日可待！目测我们大家很快就会过上幸福美满的生活。<br><br>RE: 今年的春晚真不错……<br><img src="http://ww1.sinaimg.cn/large/562f4083gw1f0r7hk7g5bj20ze0ku431.jpg"></p>
 <p>
 	<small> ============== 12小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3940389113572899" target="freeweibo-mirror">已经实现了？ //@Icerock中荷教育:还没实现吗？ /…</a>
-</h2>
-<p>已经实现了？ //@Icerock中荷教育:还没实现吗？ //@林滤山:【如此伟大，多么荣光！】新闻联播:央视春晚好评如潮！我是真的醉了……中国，只要央视存在，中国梦的实现就是指日可待！目测我们大家很快就会过上幸福美满的生活。<br><br>RE: 今年的春晚真不错……<br><img src="http://ww1.sinaimg.cn/large/562f4083gw1f0r7hk7g5bj20ze0ku431.jpg"></p>
-<p>
-	<small> ============== 12小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3940388794881254" target="freeweibo-mirror">SPAM 我给春晚打分：250分，你们呢！</a>
-</h2>
-<p>SPAM 我给春晚打分：250分，你们呢！</p>
-<p>
-	<small> ============== 12小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3940383220240366" target="freeweibo-mirror">//@李大华V: //@白星跃:没有共产党，就没有新中国，没…</a>
-</h2>
-<p>//@李大华V: //@白星跃:没有共产党，就没有新中国，没有中央电视台，就没有人民的幸福生活？//@林滤山:【如此伟大，多么荣光！】新闻联播:央视春晚好评如潮！我是真的醉了……中国，只要央视存在，中国梦的实现就是指日可待！目测我们大家很快就会过上幸福美满的生活。<br><br>RE: 今年的春晚真不错……<br><img src="http://ww1.sinaimg.cn/large/562f4083gw1f0r7hk7g5bj20ze0ku431.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
 </p>
 <table>
     <tr>
