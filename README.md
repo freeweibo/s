@@ -110,6 +110,12 @@
 <p>
 	<small> ============== 4小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3940518905523023" target="freeweibo-mirror">SPAM 哈哈哈哈 //@激光月饼大魔王://@Multiv…</a>
+</h2>
+<p>SPAM 哈哈哈哈 //@激光月饼大魔王://@Multivac://@祝佳音: 转发微博<br><br>RE: 发布了头条文章：《雍正年间的春晚段子手之死》 http://t.cn/RG4gDu5</p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3940517223564390" target="freeweibo-mirror">花了那么多纳税人银子的春晚凭什么不让群众吐槽？还关评论删帖？…</a>
 </h2>
 <p>花了那么多纳税人银子的春晚凭什么不让群众吐槽？还关评论删帖？党的联系群众、批评与自我批评的优良作风哪去了？批评是一种关心，吐槽也是一种爱。群众的眼睛是雪亮的，与其孤芳自赏抵触批评，不如虚心接受与时俱进，这才是互联网精神。互动与共享已成为时代主流，不变革早晚会死！#微博热点快评#<br><img src="http://ww4.sinaimg.cn/large/50fd482djw1f0sr8mhvivj20cs0mp75n.jpg"></p>
@@ -120,7 +126,7 @@
 </h2>
 <p>SPAM 怎么回事？<br><br>RE: 香港春节不安宁。正在进行时。[汗]<br><img src="http://ww3.sinaimg.cn/large/dd816182gw1f0simhzudqj20go0citau.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3940442188325200" target="freeweibo-mirror">香港春节不安宁。正在进行时。[汗]</a>
 </h2>
@@ -133,12 +139,6 @@
 <p>从目前网上删贴的规模和一些特别奇特的言论诸如“一百分”看（导演情商没那么低），某晚会并不是导演为了拍给某人看那么简单，很可能该某人就做了部分导演的事，或亲自审过了。所以任何低于100分的评价在舆论中都是不允许大规模存在的。</p>
 <p>
 	<small> ============== 9小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3940398295142264" target="freeweibo-mirror">发布了头条文章：《雍正年间的春晚段子手之死》 http://…</a>
-</h2>
-<p>发布了头条文章：《雍正年间的春晚段子手之死》 http://t.cn/RG4gDu5</p>
-<p>
-	<small> ============== 12小时前</small>
 </p>
 <table>
     <tr>
