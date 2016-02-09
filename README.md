@@ -104,6 +104,12 @@
 <p>
 	<small> ============== 4小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3940525432495713" target="freeweibo-mirror">SPAM 我参与了@邱仦剛 发起的投票 【你支持停办春晚吗？…</a>
+</h2>
+<p>SPAM 我参与了@邱仦剛 发起的投票 【你支持停办春晚吗？】，我投给了“不支持”这个选项。你也快来表态吧~<br><br>RE: #停办春晚#我发起了一个投票 【你支持停办春晚吗？】http://t.cn/RG44IUs<br><img src="http://ww2.sinaimg.cn/large/7d410493gw1f0s43x4b8bj20sg0lcjve.jpg"></p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3940519031403572" target="freeweibo-mirror">彭麗媛的妹妹彭麗娟是麗媛曾經的經紀人，是這次春晚的製片主任。</a>
 </h2>
 <p>彭麗媛的妹妹彭麗娟是麗媛曾經的經紀人，是這次春晚的製片主任。<br><img src="http://ww4.sinaimg.cn/large/7522d4eagw1f0srfvuk8bj20cj06omxt.jpg"></p>
@@ -133,12 +139,6 @@
 <p>SPAM 怎么回事？<br><br>RE: 香港春节不安宁。正在进行时。[汗]<br><img src="http://ww3.sinaimg.cn/large/dd816182gw1f0simhzudqj20go0citau.jpg"></p>
 <p>
 	<small> ============== 5小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3940502913182671" target="freeweibo-mirror">你宣布绝对的服从，那你正是消灭了儿童们合理、正确而自由的发展…</a>
-</h2>
-<p>你宣布绝对的服从，那你正是消灭了儿童们合理、正确而自由的发展。一杜勃罗留波夫</p>
-<p>
-	<small> ============== 6小时前</small>
 </p>
 <table>
     <tr>
