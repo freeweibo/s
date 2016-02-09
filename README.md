@@ -68,6 +68,12 @@
 <p>
 	<small> ============== 4小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3940628512094038" target="freeweibo-mirror">SPAM  //@徐付群:[微笑]//@曹菡艾:……终于改版…</a>
+</h2>
+<p>SPAM  //@徐付群:[微笑]//@曹菡艾:……终于改版了！[哈哈][doge][喵喵]<br><br>RE: 如果你因为工作繁忙错过了“2016央视春晚”，没事儿，帮你剪辑好了，5分钟看完春晚，让你看到核心的核心[doge][doge] http://t.cn/RGbIYQX .</p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3940626799969958" target="freeweibo-mirror">SPAM #春晚导演吕涛逸#http://weibo.com…</a>
 </h2>
 <p>SPAM #春晚导演吕涛逸#http://weibo.com/u/1403793932这才是他的微博， //@宝贝回家-中原:[哈哈]//@好人卡灰太狼:你个二货！你也不看看制片主任是谁，你惹得起吗[挖鼻]<br><br>RE: 央视春晚总导演吕涛逸对一个微博用户的质疑回复到【 信不信马上调查你，我有的是能力 】！———这是真牛逼，你们誰敢不服？！<br><img src="http://ww1.sinaimg.cn/large/0062Acy5gw1f0rrpuwhdkj30c80ftdhs.jpg"></p>
@@ -96,7 +102,7 @@
 </h2>
 <p>半斤八两，刘志军除外。 //@唐史主任司马迁:昏官比贪官更可怕 //@耐力投资:同意 //@侯宁:财产公示了就不会过剩了，再呼吁！希望成为两会焦点！</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3940611533451200" target="freeweibo-mirror">SPAM 读完这篇文章，对吕峥兄由衷佩服，120分是他对春晚…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3940606566416971" target="freeweibo-mirror">[赞] //@曲子叶:中国产能过剩背后是官员严重过剩——核心…</a>
 </h2>
 <p>[赞] //@曲子叶:中国产能过剩背后是官员严重过剩——核心是权力没有制衡。还权于社会与市场很难但非如此今年就得粗大事（香港是导火索）。//@范剑平: 去产能、去库存、去杠杆之外，更要去昏官贪官？ //@蔡照明:顶！要算的人太多！<br><br>RE: 中国产能过剩最严重的不是地产、钢材和低端产品，而是官员，尤其是外行的腐败官员。中国吏制的供给侧改革决定中国改革的命运。加油，中国，加油，2016。<br><img src="http://ww3.sinaimg.cn/large/4fcb878ajw1f0svs7fyrzj20go0m8myt.jpg"></p>
-<p>
-	<small> ============== 6小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3940604772022838" target="freeweibo-mirror">该吃药了[偷笑]</a>
-</h2>
-<p>该吃药了[偷笑]<br><br>RE: 中国产能过剩最严重的不是地产、钢材和低端产品，而是官员，尤其是外行的腐败官员。中国吏制的供给侧改革决定中国改革的命运。加油，中国，加油，2016。<br><img src="http://ww3.sinaimg.cn/large/4fcb878ajw1f0svs7fyrzj20go0m8myt.jpg"></p>
 <p>
 	<small> ============== 6小时前</small>
 </p>
