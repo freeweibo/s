@@ -60,7 +60,7 @@
 </h2>
 <p>有文化的大学生，和土包子在文化修养上还是天差地别的 //@菊十一画:长者当年说《泰坦尼克号》好，于是一刀不剪全国上映，就这眼光，已经甩后面人几条街了。<br><br>RE: 长者虽然被黑多年，但至少骨子里是风雅的，吹拉弹唱样样都能来几下，属于性情中人，对艺术相对宽容。现在看来，一个爱好文艺的领导的确太重要了——至少对于春晚来说。<br><img src="http://ww3.sinaimg.cn/large/5d413e05gw1f0s24iuv48j20i50b7dhl.jpg"></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3940357873644926" target="freeweibo-mirror">SPAM //@ECO中文网:[思考]//@NewBigge…</a>
 </h2>
