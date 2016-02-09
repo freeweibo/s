@@ -26,6 +26,24 @@
 <p>
 	<small> ============== 1小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3940662275076951" target="freeweibo-mirror">SPAM 推荐给2016届高考生，以备做时事政治复习参考。</a>
+</h2>
+<p>SPAM 推荐给2016届高考生，以备做时事政治复习参考。<br><br>RE: 如果你因为工作繁忙错过了“2016央视春晚”，没事儿，帮你剪辑好了，5分钟看完春晚，让你看到核心的核心[doge][doge] http://t.cn/RGbIYQX .</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3940658949813354" target="freeweibo-mirror">//@海爷海爷:</a>
+</h2>
+<p>//@海爷海爷:<br><br>RE: #时局#【香港旺角骚乱 警察被袭后开枪】在香港游客区旺角，8号深夜因春节无牌小贩摆卖事件，演变成骚乱，有人多次冲击警方，警方多次施放胡椒喷雾并开枪。事件中有至少44名警员和记者受伤送院，部分伤势严重。警方已拘捕24人。不排除是次骚乱是有预谋事件。http://t.cn/RGbLuU2<br><img src="http://ww3.sinaimg.cn/large/60718250jw1f0sqybjw5aj20fa08iab8.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3940655431000969" target="freeweibo-mirror">再这样下去，香港玩完了！//@珠海老周:嗯，这下找到维稳的借…</a>
+</h2>
+<p>再这样下去，香港玩完了！//@珠海老周:嗯，这下找到维稳的借口了。呵呵<br><br>RE: #时局#【香港旺角骚乱 警察被袭后开枪】在香港游客区旺角，8号深夜因春节无牌小贩摆卖事件，演变成骚乱，有人多次冲击警方，警方多次施放胡椒喷雾并开枪。事件中有至少44名警员和记者受伤送院，部分伤势严重。警方已拘捕24人。不排除是次骚乱是有预谋事件。http://t.cn/RGbLuU2<br><img src="http://ww3.sinaimg.cn/large/60718250jw1f0sqybjw5aj20fa08iab8.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3940638862676664" target="freeweibo-mirror">[傻眼]</a>
 </h2>
 <p>[傻眼]<br><br>RE: 【香港旺角冲突：警方向天鸣两枪驱示威者】大年初二凌晨2点，冲突事件演变成暴乱，示威者投掷垃圾桶、木板等，期间有警方向后退时倒地受伤，警方向天开2枪警告，现场有市民感到震惊，高呼：警察向巿民开真枪，放实弹，想杀人！ http://t.cn/RGb7rHs</p>
@@ -114,29 +132,11 @@
 </h2>
 <p>该吃药了[偷笑]<br><br>RE: 中国产能过剩最严重的不是地产、钢材和低端产品，而是官员，尤其是外行的腐败官员。中国吏制的供给侧改革决定中国改革的命运。加油，中国，加油，2016。<br><img src="http://ww3.sinaimg.cn/large/4fcb878ajw1f0svs7fyrzj20go0m8myt.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3940604490741719" target="freeweibo-mirror">去产能、去库存、去杠杆之外，更要去昏官贪官？ //@蔡照明:…</a>
 </h2>
 <p>去产能、去库存、去杠杆之外，更要去昏官贪官？ //@蔡照明:顶！要算的人太多！<br><br>RE: 中国产能过剩最严重的不是地产、钢材和低端产品，而是官员，尤其是外行的腐败官员。中国吏制的供给侧改革决定中国改革的命运。加油，中国，加油，2016。<br><img src="http://ww3.sinaimg.cn/large/4fcb878ajw1f0svs7fyrzj20go0m8myt.jpg"></p>
-<p>
-	<small> ============== 5小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3940603236038173" target="freeweibo-mirror">顶！要算的人太多！</a>
-</h2>
-<p>顶！要算的人太多！<br><br>RE: 中国产能过剩最严重的不是地产、钢材和低端产品，而是官员，尤其是外行的腐败官员。中国吏制的供给侧改革决定中国改革的命运。加油，中国，加油，2016。<br><img src="http://ww3.sinaimg.cn/large/4fcb878ajw1f0svs7fyrzj20go0m8myt.jpg"></p>
-<p>
-	<small> ============== 6小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3940600242179904" target="freeweibo-mirror">SPAM 我参与了@新浪浙江 发起的投票【猴年春晚，你打几分…</a>
-</h2>
-<p>SPAM 我参与了@新浪浙江 发起的投票【猴年春晚，你打几分？】，你也快来表态吧~<br><br>RE: #春晚#【春晚总导演：我给本届春晚打一百分！】导演@吕逸涛-俊霖 称，“基本是按照导演组设计的，出新出彩打造亮点 ”、“交出了一份满意的答卷”。至于观众评价，吕导演说：“好的建议我们可以吸纳，不好的建议我们可以置之不理”。满分10分，你给央视春晚打几分？快来投票↓↓↓http://t.cn/RGyuy1u</p>
-<p>
-	<small> ============== 6小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3940595880280045" target="freeweibo-mirror">折腾吧//@芥末芥末芥末君:袭警你还想怎么样 暴民！</a>
-</h2>
-<p>折腾吧//@芥末芥末芥末君:袭警你还想怎么样 暴民！<br><br>RE: 【香港旺角冲突：警方向天鸣两枪驱示威者】大年初二凌晨2点，冲突事件演变成暴乱，示威者投掷垃圾桶、木板等，期间有警方向后退时倒地受伤，警方向天开2枪警告，现场有市民感到震惊，高呼：警察向巿民开真枪，放实弹，想杀人！ http://t.cn/RGb7rHs</p>
 <p>
 	<small> ============== 6小时前</small>
 </p>
