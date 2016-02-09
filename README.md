@@ -96,7 +96,7 @@
 </h2>
 <p>定性暴乱，后续处理，会处处被动， //@三楚书生:梁书记想必已是焦头烂额了。</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3940712787750586" target="freeweibo-mirror">估计谣言！</a>
 </h2>
