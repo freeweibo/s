@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3940715648024400" target="freeweibo-mirror">定性暴乱，后续处理，会处处被动， //@三楚书生:梁书记想必…</a>
+</h2>
+<p>定性暴乱，后续处理，会处处被动， //@三楚书生:梁书记想必已是焦头烂额了。</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3940667283779993" target="freeweibo-mirror">警方并未朝人群开枪，而是对天鸣枪。如果香港废青坚持要搞搞震，…</a>
 </h2>
 <p>警方并未朝人群开枪，而是对天鸣枪。如果香港废青坚持要搞搞震，一个团的解放军就可以控制整个局面，好自为之吧！<br><br>RE: #时局#【香港旺角骚乱 警察被袭后开枪】在香港游客区旺角，8号深夜因春节无牌小贩摆卖事件，演变成骚乱，有人多次冲击警方，警方多次施放胡椒喷雾并开枪。事件中有至少44名警员和记者受伤送院，部分伤势严重。警方已拘捕24人。不排除是次骚乱是有预谋事件。http://t.cn/RGbLuU2<br><img src="http://ww3.sinaimg.cn/large/60718250jw1f0sqybjw5aj20fa08iab8.jpg"></p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3940609427659932" target="freeweibo-mirror">SPAM #爱奇艺跑男特辑#还在春晚的尴尬里无力挣脱！兄弟们…</a>
 </h2>
 <p>SPAM #爱奇艺跑男特辑#还在春晚的尴尬里无力挣脱！兄弟们却在三亚的沙滩上肆意欢脱！！！<br><img src="http://ww3.sinaimg.cn/large/8bed9298jw1f0t1upcjj3j20qo3jhaqy.jpg"></p>
-<p>
-	<small> ============== 8小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3940606566416971" target="freeweibo-mirror">[赞] //@曲子叶:中国产能过剩背后是官员严重过剩——核心…</a>
-</h2>
-<p>[赞] //@曲子叶:中国产能过剩背后是官员严重过剩——核心是权力没有制衡。还权于社会与市场很难但非如此今年就得粗大事（香港是导火索）。//@范剑平: 去产能、去库存、去杠杆之外，更要去昏官贪官？ //@蔡照明:顶！要算的人太多！<br><br>RE: 中国产能过剩最严重的不是地产、钢材和低端产品，而是官员，尤其是外行的腐败官员。中国吏制的供给侧改革决定中国改革的命运。加油，中国，加油，2016。<br><img src="http://ww3.sinaimg.cn/large/4fcb878ajw1f0svs7fyrzj20go0m8myt.jpg"></p>
 <p>
 	<small> ============== 8小时前</small>
 </p>
