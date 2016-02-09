@@ -102,7 +102,7 @@
 </h2>
 <p>花了那么多纳税人银子的春晚凭什么不让群众吐槽？还关评论删帖？党的联系群众、批评与自我批评的优良作风哪去了？批评是一种关心，吐槽也是一种爱。群众的眼睛是雪亮的，与其孤芳自赏抵触批评，不如虚心接受与时俱进，这才是互联网精神。互动与共享已成为时代主流，不变革早晚会死！#微博热点快评#<br><img src="http://ww4.sinaimg.cn/large/50fd482djw1f0sr8mhvivj20cs0mp75n.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3940506649914919" target="freeweibo-mirror">SPAM 怎么回事？</a>
 </h2>
@@ -110,11 +110,17 @@
 <p>
 	<small> ============== 4小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3940442188325200" target="freeweibo-mirror">香港春节不安宁。正在进行时。[汗]</a>
+</h2>
+<p>香港春节不安宁。正在进行时。[汗]<br><img src="http://ww3.sinaimg.cn/large/dd816182gw1f0simhzudqj20go0citau.jpg"></p>
+<p>
+	<small> ============== 8小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3940441038278305" target="freeweibo-mirror">从目前网上删贴的规模和一些特别奇特的言论诸如“一百分”看（导…</a>
 </h2>
 <p>从目前网上删贴的规模和一些特别奇特的言论诸如“一百分”看（导演情商没那么低），某晚会并不是导演为了拍给某人看那么简单，很可能该某人就做了部分导演的事，或亲自审过了。所以任何低于100分的评价在舆论中都是不允许大规模存在的。</p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3940398295142264" target="freeweibo-mirror">发布了头条文章：《雍正年间的春晚段子手之死》 http://…</a>
 </h2>
@@ -133,12 +139,6 @@
 <p>SPAM #东方卫视女医明妃传#  过新年，穿新衣！穿衣就穿谭允贤同款！明明是古代造型，却引领了现代的风尚！扫描二维码，关注#东方卫视电视剧#微信公众号！了解更多最新、最好玩剧资讯！[好爱哦][求关注]<br><img src="http://ww1.sinaimg.cn/large/71b654e6gw1f0sdg8v594j20es0hxjs9.jpg"></p>
 <p>
 	<small> ============== 11小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3940391780716266" target="freeweibo-mirror">古今中外，莫出其右。 //@雨后晴29:无语伦比，震惊宇宙。…</a>
-</h2>
-<p>古今中外，莫出其右。 //@雨后晴29:无语伦比，震惊宇宙。//@林滤山:已经实现了？ //@Icerock中荷教育:还没实现吗？ //@林滤山:【如此伟大，多么荣光！】新闻联播:央视春晚好评如潮！我是真的醉了……中国，只要央视存在，中国梦的实现就是指日可待！目测我们大家很快就会过上幸福美满的生活。<br><br>RE: 今年的春晚真不错……<br><img src="http://ww1.sinaimg.cn/large/562f4083gw1f0r7hk7g5bj20ze0ku431.jpg"></p>
-<p>
-	<small> ============== 12小时前</small>
 </p>
 <table>
     <tr>
