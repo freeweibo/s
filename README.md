@@ -54,7 +54,7 @@
 </h2>
 <p>SPAM 我给春晚打分：250分，你们呢！</p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3940383220240366" target="freeweibo-mirror">//@李大华V: //@白星跃:没有共产党，就没有新中国，没…</a>
 </h2>
