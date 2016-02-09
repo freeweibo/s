@@ -96,19 +96,19 @@
 </h2>
 <p>SPAM 我参与了@新浪浙江 发起的投票 【猴年春晚，你打几分？】，我投给了“1分”这个选项。你也快来表态吧~<br><br>RE: #春晚#【春晚总导演：我给本届春晚打一百分！】导演@吕逸涛-俊霖 称，“基本是按照导演组设计的，出新出彩打造亮点 ”、“交出了一份满意的答卷”。至于观众评价，吕导演说：“好的建议我们可以吸纳，不好的建议我们可以置之不理”。满分10分，你给央视春晚打几分？快来投票↓↓↓http://t.cn/RGyuy1u</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3940577437012115" target="freeweibo-mirror">『端传媒』凌晨2点03分，就在距离我不足十米之外，一名警察向…</a>
 </h2>
 <p>『端传媒』凌晨2点03分，就在距离我不足十米之外，一名警察向天开了一枪。不到数秒后，他再次向天开了一枪。连续两声枪声下，示威者还未即时反应，直至警员停下脚步，用那还冒着烟的枪指向人群，示威者才慌忙地向后方逃去。http://t.cn/RGb0v9J<br><img src="http://ww2.sinaimg.cn/large/65cc9274jw1f0sy6c5k90j20hs0vkjxq.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3940576724996934" target="freeweibo-mirror">SPAM 哎，一国两制就是失败的，而这个失败的包袱，香港将要…</a>
 </h2>
 <p>SPAM 哎，一国两制就是失败的，而这个失败的包袱，香港将要一直背负下去～ //@EASON寧軒:@Chiphell-nApoleon</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3940572978550035" target="freeweibo-mirror">SPAM 瞧这一家子！//@温斯顿de马甲张然: //@高小…</a>
 </h2>
