@@ -108,13 +108,13 @@
 </h2>
 <p>该吃药了[偷笑]<br><br>RE: 中国产能过剩最严重的不是地产、钢材和低端产品，而是官员，尤其是外行的腐败官员。中国吏制的供给侧改革决定中国改革的命运。加油，中国，加油，2016。<br><img src="http://ww3.sinaimg.cn/large/4fcb878ajw1f0svs7fyrzj20go0m8myt.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3940604490741719" target="freeweibo-mirror">去产能、去库存、去杠杆之外，更要去昏官贪官？ //@蔡照明:…</a>
 </h2>
 <p>去产能、去库存、去杠杆之外，更要去昏官贪官？ //@蔡照明:顶！要算的人太多！<br><br>RE: 中国产能过剩最严重的不是地产、钢材和低端产品，而是官员，尤其是外行的腐败官员。中国吏制的供给侧改革决定中国改革的命运。加油，中国，加油，2016。<br><img src="http://ww3.sinaimg.cn/large/4fcb878ajw1f0svs7fyrzj20go0m8myt.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3940603236038173" target="freeweibo-mirror">顶！要算的人太多！</a>
 </h2>
