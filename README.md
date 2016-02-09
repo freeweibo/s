@@ -32,6 +32,72 @@
 <p>
 	<small> ============== 1小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3940548513576296" target="freeweibo-mirror">SPAM //@Laruence:哦 //@响马:哦 //@…</a>
+</h2>
+<p>SPAM //@Laruence:哦 //@响马:哦 //@时蝇喜箭://@忆梅下西舟: //@曲异和寡://@我心无漾:哦//@冰砚之心:哦!//@老百姓心:嗷//@伟荣V实说://@海龙-27: //@戎戎89日记: 哦！<br><br>RE: 彭麗媛的妹妹彭麗娟是麗媛曾經的經紀人，是這次春晚的製片主任。<br><img src="http://ww4.sinaimg.cn/large/7522d4eagw1f0srfvuk8bj20cj06omxt.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3940548123296104" target="freeweibo-mirror">//@章诒和: 想起“茶馆”名句：大清帝国要，，，//@富敏…</a>
+</h2>
+<p>//@章诒和: 想起“茶馆”名句：大清帝国要，，，//@富敏荣律师: //@愚夫愚言://@邱仦剛: //@钢铁侠: 走国走年新气象<br><br>RE: 办了个春晚，还不让人评论几句了？春晚微博不让评论，微博到处删帖，干啥呢？怕人说怕人议论不播不就完了？播了干啥？弄一堆假唱还恬不知耻蹦哒啥？怕人讨论别出来卖，这还没说啥呢就删帖屏帖的干脆封号得了。</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3940544419884014" target="freeweibo-mirror">SPAM 该熊前程不可限量～～～</a>
+</h2>
+<p>SPAM 该熊前程不可限量～～～<br><br>RE: 发布了头条文章：《雍正年间的春晚段子手之死》 http://t.cn/RG4gDu5</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3940543677010343" target="freeweibo-mirror">嘿嘿 //@陈业文新大都:雅量，他们未必懂这个词汇。//@荣…</a>
+</h2>
+<p>嘿嘿 //@陈业文新大都:雅量，他们未必懂这个词汇。//@荣剑2001:他们哪有这点雅量！<br><br>RE: 花了那么多纳税人银子的春晚凭什么不让群众吐槽？还关评论删帖？党的联系群众、批评与自我批评的优良作风哪去了？批评是一种关心，吐槽也是一种爱。群众的眼睛是雪亮的，与其孤芳自赏抵触批评，不如虚心接受与时俱进，这才是互联网精神。互动与共享已成为时代主流，不变革早晚会死！#微博热点快评#<br><img src="http://ww4.sinaimg.cn/large/50fd482djw1f0sr8mhvivj20cs0mp75n.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3940542197181880" target="freeweibo-mirror">雅量，他们未必懂这个词汇。//@荣剑2001:他们哪有这点雅…</a>
+</h2>
+<p>雅量，他们未必懂这个词汇。//@荣剑2001:他们哪有这点雅量！<br><br>RE: 花了那么多纳税人银子的春晚凭什么不让群众吐槽？还关评论删帖？党的联系群众、批评与自我批评的优良作风哪去了？批评是一种关心，吐槽也是一种爱。群众的眼睛是雪亮的，与其孤芳自赏抵触批评，不如虚心接受与时俱进，这才是互联网精神。互动与共享已成为时代主流，不变革早晚会死！#微博热点快评#<br><img src="http://ww4.sinaimg.cn/large/50fd482djw1f0sr8mhvivj20cs0mp75n.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3940539118694896" target="freeweibo-mirror">//@纪昀://@徐幸起://@雷颐:转发微博</a>
+</h2>
+<p>//@纪昀://@徐幸起://@雷颐:转发微博<br><br>RE: 初二了，大家还在吐槽许多人说看都没看的春晚。总以为，这与其说是批评春晚，不如说是批评主流文化的过度政治化和灌输方式的傲慢任性。中国毕竟改革开放了三十多年，倒退没有出路，与时俱进才是中国的希望。</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3940538547810603" target="freeweibo-mirror">[挖鼻] //@只配叫猪_:其妹。//@木遥：图片评论 ht…</a>
+</h2>
+<p>[挖鼻] //@只配叫猪_:其妹。//@木遥：图片评论 http://t.cn/RGbznXE<br><br>RE: 从目前网上删贴的规模和一些特别奇特的言论诸如“一百分”看（导演情商没那么低），某晚会并不是导演为了拍给某人看那么简单，很可能该某人就做了部分导演的事，或亲自审过了。所以任何低于100分的评价在舆论中都是不允许大规模存在的。</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3940538535698538" target="freeweibo-mirror">连这个也不让评了。[怒]</a>
+</h2>
+<p>连这个也不让评了。[怒]<br><br>RE: 办了个春晚，还不让人评论几句了？春晚微博不让评论，微博到处删帖，干啥呢？怕人说怕人议论不播不就完了？播了干啥？弄一堆假唱还恬不知耻蹦哒啥？怕人讨论别出来卖，这还没说啥呢就删帖屏帖的干脆封号得了。</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3940529802225139" target="freeweibo-mirror">SPAM 虽然只是咏史的套路，但还是感觉四爷的艺术修养被黑了…</a>
+</h2>
+<p>SPAM 虽然只是咏史的套路，但还是感觉四爷的艺术修养被黑了……//@苏离弦:PO主吃点好的[喵喵]//@烟啾啾: 吓得宝宝趴床上了。//@暗号大老爷: 每次都可以更精彩…… //@安迪斯晨风:博主您的前途也是不可限量啊。<br><br>RE: 发布了头条文章：《雍正年间的春晚段子手之死》 http://t.cn/RG4gDu5</p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3940518943226608" target="freeweibo-mirror">【香港旺角骚乱 警察被袭后开枪】在香港游客区旺角，8号深夜因…</a>
+</h2>
+<p>【香港旺角骚乱 警察被袭后开枪】在香港游客区旺角，8号深夜因春节无牌小贩摆卖事件，演变成骚乱，有人多次冲击警方，警方多次施放胡椒喷雾并开枪。事件中有至少44名警员和记者受伤送院，部分伤势严重。警方已拘捕24人。不排除是次骚乱是有预谋事件。http://t.cn/RGbLuU2<br><br>RE: 香港春节不安宁。正在进行时。[汗]<br><img src="http://ww3.sinaimg.cn/large/dd816182gw1f0simhzudqj20go0citau.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3940506649914919" target="freeweibo-mirror">SPAM 怎么回事？</a>
+</h2>
+<p>SPAM 怎么回事？<br><br>RE: 香港春节不安宁。正在进行时。[汗]<br><img src="http://ww3.sinaimg.cn/large/dd816182gw1f0simhzudqj20go0citau.jpg"></p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3940398295142264" target="freeweibo-mirror">发布了头条文章：《雍正年间的春晚段子手之死》 http://…</a>
 </h2>
 <p>发布了头条文章：《雍正年间的春晚段子手之死》 http://t.cn/RG4gDu5</p>
@@ -71,72 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3940383220240366" target="freeweibo-mirror">//@李大华V: //@白星跃:没有共产党，就没有新中国，没…</a>
 </h2>
 <p>//@李大华V: //@白星跃:没有共产党，就没有新中国，没有中央电视台，就没有人民的幸福生活？//@林滤山:【如此伟大，多么荣光！】新闻联播:央视春晚好评如潮！我是真的醉了……中国，只要央视存在，中国梦的实现就是指日可待！目测我们大家很快就会过上幸福美满的生活。<br><br>RE: 今年的春晚真不错……<br><img src="http://ww1.sinaimg.cn/large/562f4083gw1f0r7hk7g5bj20ze0ku431.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3940360449330275" target="freeweibo-mirror">有文化的大学生，和土包子在文化修养上还是天差地别的 //@菊…</a>
-</h2>
-<p>有文化的大学生，和土包子在文化修养上还是天差地别的 //@菊十一画:长者当年说《泰坦尼克号》好，于是一刀不剪全国上映，就这眼光，已经甩后面人几条街了。<br><br>RE: 长者虽然被黑多年，但至少骨子里是风雅的，吹拉弹唱样样都能来几下，属于性情中人，对艺术相对宽容。现在看来，一个爱好文艺的领导的确太重要了——至少对于春晚来说。<br><img src="http://ww3.sinaimg.cn/large/5d413e05gw1f0s24iuv48j20i50b7dhl.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3940357873644926" target="freeweibo-mirror">SPAM //@ECO中文网:[思考]//@NewBigge…</a>
-</h2>
-<p>SPAM //@ECO中文网:[思考]//@NewBigger: 据说是通过人工智能自动抓取<br><br>RE: 【某舆情监测：猴年春晚网民满意度相比羊年有所提升】网友满意率高达72.21%，比羊年春晚有所提升。你感受到了吗？<br><img src="http://ww4.sinaimg.cn/large/62b31d36gw1f0s743wi9jj20hh0a3tai.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3940353230674533" target="freeweibo-mirror">【美国价值观】王立军夜奔美领馆4周年了， 在这个事件中可以看…</a>
-</h2>
-<p>【美国价值观】王立军夜奔美领馆4周年了， 在这个事件中可以看出这位警察英模对美国的价值观一无所知。自称看过的书可以火烧重庆。当警察的王局长竟然天真到认为美国会庇护他。希拉里这样描述：他有着腐败和凶残的过往，我们没有任何理由收留他。但两个月后，美国兴师动众的在大使馆庇护了山东农民陈光...全文： http://m.weibo.cn/5127098030/3940353230674533<br><img src="http://ww2.sinaimg.cn/large/005AYMpwjw1f0s8fbyzzbj308c050jrl.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3940350886737356" target="freeweibo-mirror">→_→//@盛善心儿711：我就记得一个事儿→_→宣传丝路文…</a>
-</h2>
-<p>→_→//@盛善心儿711：我就记得一个事儿→_→宣传丝路文化的时候，尽量避免提到郑和……说是担心抢了今上的风头<br><br>RE: 我来做个“阴暗”的推测，一闪而过的想法：维尼上台以后热衷于通过各种手段作秀来营造个人崇拜，在这种环境下，此国已不能再允许出现第二个人气超过他的人物，特别是在春晚这种平台上，即便是一个老牌角色也要严防死守，防民之口。而文宣部门很好的贯彻了这种思想，让整个春晚很好的对了他的胃口，同时...全文： http://m.weibo.cn/2754700831/3940322649857349</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3940342577103415" target="freeweibo-mirror">【某舆情监测：猴年春晚网民满意度相比羊年有所提升】网友满意率…</a>
-</h2>
-<p>【某舆情监测：猴年春晚网民满意度相比羊年有所提升】网友满意率高达72.21%，比羊年春晚有所提升。你感受到了吗？<br><img src="http://ww4.sinaimg.cn/large/62b31d36gw1f0s743wi9jj20hh0a3tai.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3940323577236948" target="freeweibo-mirror">SPAM 周涛涛，念佛再来春晚会====习大大，取经重上井冈…</a>
-</h2>
-<p>SPAM 周涛涛，念佛再来春晚会====习大大，取经重上井冈山<br><br>RE: 求上联：———习大大，取经重上井冈山</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3940322649857349" target="freeweibo-mirror">我来做个“阴暗”的推测，一闪而过的想法：维尼上台以后热衷于通…</a>
-</h2>
-<p>我来做个“阴暗”的推测，一闪而过的想法：维尼上台以后热衷于通过各种手段作秀来营造个人崇拜，在这种环境下，此国已不能再允许出现第二个人气超过他的人物，特别是在春晚这种平台上，即便是一个老牌角色也要严防死守，防民之口。而文宣部门很好的贯彻了这种思想，让整个春晚很好的对了他的胃口，同时...全文： http://m.weibo.cn/2754700831/3940322649857349</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3940321677026088" target="freeweibo-mirror">求上联：———习大大，取经重上井冈山</a>
-</h2>
-<p>求上联：———习大大，取经重上井冈山</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3940298348276448" target="freeweibo-mirror">长者虽然被黑多年，但至少骨子里是风雅的，吹拉弹唱样样都能来几…</a>
-</h2>
-<p>长者虽然被黑多年，但至少骨子里是风雅的，吹拉弹唱样样都能来几下，属于性情中人，对艺术相对宽容。现在看来，一个爱好文艺的领导的确太重要了——至少对于春晚来说。<br><img src="http://ww3.sinaimg.cn/large/5d413e05gw1f0s24iuv48j20i50b7dhl.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3940288088764532" target="freeweibo-mirror">SPAM 好拼命</a>
-</h2>
-<p>SPAM 好拼命<br><br>RE: #林允# 秒删微博，还有娱乐博主爆料，大家可以对比一下林允照片中的厨房和冯绍峰家厨房[阴险]大年初一娱乐圈就又迎来喜事儿了？！[思考]<br><img src="http://ww2.sinaimg.cn/large/ad930c47jw1f0rz42a4krj20hs0e83zx.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3940272146146926" target="freeweibo-mirror">#林允# 秒删微博，还有娱乐博主爆料，大家可以对比一下林允照…</a>
-</h2>
-<p>#林允# 秒删微博，还有娱乐博主爆料，大家可以对比一下林允照片中的厨房和冯绍峰家厨房[阴险]大年初一娱乐圈就又迎来喜事儿了？！[思考]<br><img src="http://ww2.sinaimg.cn/large/ad930c47jw1f0rz42a4krj20hs0e83zx.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
