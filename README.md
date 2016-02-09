@@ -42,7 +42,7 @@
 </h2>
 <p>//@陶然万柳世界: //@鲁壁藏书:婊子立牌坊//@kakakaka1973://@守候者说: //@天宇航模://@DopeyTom:她前面3人都是国王或皇帝，后面那位是网球沙皇，前世界排名第一的萨芬。//@袍哥3: 没有具体金额？//@瑞安丰和18: 全国人民谁不知道？青梅竹马少年玩伴不好下手，反贪？谁几巴信啊！<br><br>RE: 瑞士銀行大客户名單出來了 李家紅格格榜上有名。順便提一句，准备给國民建道德檔案的李格格說過：能力之外的資本等于零。<br><img src="http://ww3.sinaimg.cn/large/7c02717bjw1f0t8l6vf1kj20ow0hstb8.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3940727442129442" target="freeweibo-mirror">去年这个时候外媒的报道，背景是多家媒体联合调查瑞士银行协助客…</a>
 </h2>
@@ -104,6 +104,12 @@
 <p>
 	<small> ============== 5小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3940705736933449" target="freeweibo-mirror">SPAM 拿「城管維穩」那一套對付香港人，一定會出問題。 h…</a>
+</h2>
+<p>SPAM 拿「城管維穩」那一套對付香港人，一定會出問題。 http://t.cn/R2WJvly<br><img src="http://ww1.sinaimg.cn/large/5186d665jw1f0tcvrcfx2j20qo0srwhk.jpg"></p>
+<p>
+	<small> ============== 5小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3940704948091148" target="freeweibo-mirror">//@律师王学明:央视 //@三岔河口我的家:谁在撒谎？//…</a>
 </h2>
 <p>//@律师王学明:央视 //@三岔河口我的家:谁在撒谎？//@律师王学明:央视，在撒谎 //@张重实律师:转发微博</p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3940694035184309" target="freeweibo-mirror">居然做了一期焦点访谈来夸春晚～～～～～～～央视领导是真急眼了…</a>
 </h2>
 <p>居然做了一期焦点访谈来夸春晚～～～～～～～央视领导是真急眼了～～～～～</p>
-<p>
-	<small> ============== 6小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3940689831607646" target="freeweibo-mirror">真是这么想的么，那举个破纸牌子有屁用，举菜刀冲上去啊。另外说…</a>
-</h2>
-<p>真是这么想的么，那举个破纸牌子有屁用，举菜刀冲上去啊。另外说句题外话：好一笔破字！造反之前能先找@司马南 @司马平邦 练练字吗。<br><br>RE: 春晚中高唱到：中共实行了民主好处多。中共新华日报1945：不实行人民普选，如何能实现民主？<br><img src="http://ww2.sinaimg.cn/large/006lxYeqgw1f0rr6zcw6kj30eo0p0q6o.jpg"></p>
 <p>
 	<small> ============== 6小时前</small>
 </p>
