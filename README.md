@@ -68,6 +68,12 @@
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3940610316517231" target="freeweibo-mirror">没有对比就没有伤害，看看真正对作品有高要求的人是怎样的态度[…</a>
+</h2>
+<p>没有对比就没有伤害，看看真正对作品有高要求的人是怎样的态度[拜拜]<br><img src="http://ww4.sinaimg.cn/large/67d6aa46gw1f0t1r7abkxj20e70m8dhk.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3940609427659932" target="freeweibo-mirror">SPAM #爱奇艺跑男特辑#还在春晚的尴尬里无力挣脱！兄弟们…</a>
 </h2>
 <p>SPAM #爱奇艺跑男特辑#还在春晚的尴尬里无力挣脱！兄弟们却在三亚的沙滩上肆意欢脱！！！<br><img src="http://ww3.sinaimg.cn/large/8bed9298jw1f0t1upcjj3j20qo3jhaqy.jpg"></p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3940577437012115" target="freeweibo-mirror">『端传媒』凌晨2点03分，就在距离我不足十米之外，一名警察向…</a>
 </h2>
 <p>『端传媒』凌晨2点03分，就在距离我不足十米之外，一名警察向天开了一枪。不到数秒后，他再次向天开了一枪。连续两声枪声下，示威者还未即时反应，直至警员停下脚步，用那还冒着烟的枪指向人群，示威者才慌忙地向后方逃去。http://t.cn/RGb0v9J<br><img src="http://ww2.sinaimg.cn/large/65cc9274jw1f0sy6c5k90j20hs0vkjxq.jpg"></p>
-<p>
-	<small> ============== 5小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3940576724996934" target="freeweibo-mirror">SPAM 哎，一国两制就是失败的，而这个失败的包袱，香港将要…</a>
-</h2>
-<p>SPAM 哎，一国两制就是失败的，而这个失败的包袱，香港将要一直背负下去～ //@EASON寧軒:@Chiphell-nApoleon</p>
 <p>
 	<small> ============== 5小时前</small>
 </p>
