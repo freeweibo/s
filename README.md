@@ -114,13 +114,13 @@
 </h2>
 <p>初二了，大家还在吐槽许多人说看都没看的春晚。总以为，这与其说是批评春晚，不如说是批评主流文化的过度政治化和灌输方式的傲慢任性。中国毕竟改革开放了三十多年，倒退没有出路，与时俱进才是中国的希望。</p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3940525432495713" target="freeweibo-mirror">SPAM 我参与了@邱仦剛 发起的投票 【你支持停办春晚吗？…</a>
 </h2>
 <p>SPAM 我参与了@邱仦剛 发起的投票 【你支持停办春晚吗？】，我投给了“不支持”这个选项。你也快来表态吧~<br><br>RE: #停办春晚#我发起了一个投票 【你支持停办春晚吗？】http://t.cn/RG44IUs<br><img src="http://ww2.sinaimg.cn/large/7d410493gw1f0s43x4b8bj20sg0lcjve.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3940519031403572" target="freeweibo-mirror">彭麗媛的妹妹彭麗娟是麗媛曾經的經紀人，是這次春晚的製片主任。</a>
 </h2>
