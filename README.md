@@ -54,7 +54,7 @@
 </h2>
 <p>[傻眼]<br><br>RE: 【香港旺角冲突：警方向天鸣两枪驱示威者】大年初二凌晨2点，冲突事件演变成暴乱，示威者投掷垃圾桶、木板等，期间有警方向后退时倒地受伤，警方向天开2枪警告，现场有市民感到震惊，高呼：警察向巿民开真枪，放实弹，想杀人！ http://t.cn/RGb7rHs</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3940630939710867" target="freeweibo-mirror">小V都不愿意说违心的话、干背锅的事[哈哈] //@金融评论员…</a>
 </h2>
@@ -90,7 +90,7 @@
 </h2>
 <p>SPAM [拜拜] //@屌絲打分蜻蜓隊長:啧啧 //@同道大叔:[拜拜] //@回忆专用小马甲:[拜拜]//@使徒子:没法比<br><br>RE: 没有对比就没有伤害，看看真正对作品有高要求的人是怎样的态度[拜拜]<br><img src="http://ww4.sinaimg.cn/large/67d6aa46gw1f0t1r7abkxj20e70m8dhk.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3940613566824355" target="freeweibo-mirror">//@范剑平:半斤八两，刘志军除外。 //@唐史主任司马迁:…</a>
 </h2>
