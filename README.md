@@ -54,7 +54,7 @@
 </h2>
 <p>//@彭园v://@大山不远:谁写的就回来自首吧//@私家野史: 估计谣言！<br><br>RE: 瑞士銀行大客户名單出來了 李家紅格格榜上有名。順便提一句，准备给國民建道德檔案的李格格說過：能力之外的資本等于零。<br><img src="http://ww3.sinaimg.cn/large/7c02717bjw1f0t8l6vf1kj20ow0hstb8.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3940721662354480" target="freeweibo-mirror">//@大山不远:谁写的就回来自首吧//@私家野史: 估计谣言…</a>
 </h2>
@@ -126,7 +126,7 @@
 </h2>
 <p>SPAM 推荐给2016届高考生，以备做时事政治复习参考。<br><br>RE: 如果你因为工作繁忙错过了“2016央视春晚”，没事儿，帮你剪辑好了，5分钟看完春晚，让你看到核心的核心[doge][doge] http://t.cn/RGbIYQX .</p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3940658949813354" target="freeweibo-mirror">//@海爷海爷:</a>
 </h2>
