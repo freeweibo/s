@@ -78,7 +78,7 @@
 </h2>
 <p>//@律师王学明:央视 //@三岔河口我的家:谁在撒谎？//@律师王学明:央视，在撒谎 //@张重实律师:转发微博</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3940695502326687" target="freeweibo-mirror">【谁在撒谎】这两天央视等主流媒体一直喋喋不休的宣扬猴年春晚的…</a>
 </h2>
@@ -96,7 +96,7 @@
 </h2>
 <p>真是这么想的么，那举个破纸牌子有屁用，举菜刀冲上去啊。另外说句题外话：好一笔破字！造反之前能先找@司马南 @司马平邦 练练字吗。<br><br>RE: 春晚中高唱到：中共实行了民主好处多。中共新华日报1945：不实行人民普选，如何能实现民主？<br><img src="http://ww2.sinaimg.cn/large/006lxYeqgw1f0rr6zcw6kj30eo0p0q6o.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3940668092452531" target="freeweibo-mirror">瑞士銀行大客户名單出來了 李家紅格格榜上有名。順便提一句，准…</a>
 </h2>
@@ -132,7 +132,7 @@
 </h2>
 <p>剧场版新闻联播。<br><br>RE: 如果你因为工作繁忙错过了“2016央视春晚”，没事儿，帮你剪辑好了，5分钟看完春晚，让你看到核心的核心[doge][doge] http://t.cn/RGbIYQX .</p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3940638862676664" target="freeweibo-mirror">[傻眼]</a>
 </h2>
