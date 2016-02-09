@@ -54,7 +54,7 @@
 </h2>
 <p>剧场版新闻联播。<br><br>RE: 如果你因为工作繁忙错过了“2016央视春晚”，没事儿，帮你剪辑好了，5分钟看完春晚，让你看到核心的核心[doge][doge] http://t.cn/RGbIYQX .</p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3940638862676664" target="freeweibo-mirror">[傻眼]</a>
 </h2>
