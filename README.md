@@ -78,7 +78,7 @@
 </h2>
 <p>//@大山不远:谁写的就回来自首吧//@私家野史: 估计谣言！<br><br>RE: 瑞士銀行大客户名單出來了 李家紅格格榜上有名。順便提一句，准备给國民建道德檔案的李格格說過：能力之外的資本等于零。<br><img src="http://ww3.sinaimg.cn/large/7c02717bjw1f0t8l6vf1kj20ow0hstb8.jpg"></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3940721067628523" target="freeweibo-mirror">SPAM 台独狗，要砍头。</a>
 </h2>
