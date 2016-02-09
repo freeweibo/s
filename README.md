@@ -30,7 +30,7 @@
 </h2>
 <p>SPAM 推荐给2016届高考生，以备做时事政治复习参考。<br><br>RE: 如果你因为工作繁忙错过了“2016央视春晚”，没事儿，帮你剪辑好了，5分钟看完春晚，让你看到核心的核心[doge][doge] http://t.cn/RGbIYQX .</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3940658949813354" target="freeweibo-mirror">//@海爷海爷:</a>
 </h2>
