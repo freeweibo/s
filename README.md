@@ -84,13 +84,13 @@
 </h2>
 <p>【中共为何重提“核心意识”？】春晚“主旋律”的高潮，是中共五代最高领导人依序在画面中出现。其中，前四位每人两个镜头，时间一致，而习的镜头和时间比前四位加起来还多，充分体现了“增强政治意识、大局意识、核心意识、看齐意识”。http://t.cn/RGGBFcL<br><img src="http://ww3.sinaimg.cn/large/6298156bgw1f0tx9rwmswj20sg0g0gnn.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3940882661045950" target="freeweibo-mirror">还有被烧焦的解放军尸体被挂在旗杆上。后来我再看到有人怀念赵紫…</a>
 </h2>
 <p>还有被烧焦的解放军尸体被挂在旗杆上。后来我再看到有人怀念赵紫阳真是恨的压根都痒<br><br>RE: 內地廿六年前的一场暴乱，跟今天的香港实在太相似了，都是早有预谋有外国势力渗透，对执法人员都是往死里打！当年分裂不了中国仍死心不息，中国人要时刻警惕，外国反华势力亡我中华之心不死！<br><img src="http://ww2.sinaimg.cn/large/69eba87cjw1f0tj5k83pbj20sg0j6juf.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3940881927039974" target="freeweibo-mirror">一贯民族的思维方式，改变不容易，恢复也很难。文化事态的改变，…</a>
 </h2>
