@@ -50,6 +50,12 @@
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3940872774904562" target="freeweibo-mirror">小赵孩子去考试，100道题答对3道，考卷得了3分，孩子自我评…</a>
+</h2>
+<p>小赵孩子去考试，100道题答对3道，考卷得了3分，孩子自我评价得的是100分，学生和老师们想说出真相，小赵大喊：我家孩子就是100分。[笑cry] http://t.cn/RyhW8OV<br><img src="http://ww1.sinaimg.cn/large/73570bbdjw1f0tw3cajlhj20f90en3z3.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3940868731686465" target="freeweibo-mirror">你们的…… //@捷润飞://@asdfghjkl12345…</a>
 </h2>
 <p>你们的…… //@捷润飞://@asdfghjkl1234567890123456789://@深川胡骏://@灰色的伞://@又来金好多://@儒林泊客:@笑神客<br><br>RE: 仅仅在瑞士银行2016年初公布的约5000个资金来源不明的账户中，约三分之二是中国供贪裆要员。目前还有150个名字尚未确认，估计是家眷。尚书和阁 员几乎人人有份。其中有最显赫的就有33亿5000万。当年有位无产... http://t.cn/RGGVHU4<br><img src="http://ww2.sinaimg.cn/large/006o2MuJjw1f0tcqgf6iqj30dc0iddhm.jpg"></p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3940723403529431" target="freeweibo-mirror">SPAM //@地球人都震惊了://@煙巳惔嘸菋: [喵喵]…</a>
 </h2>
 <p>SPAM //@地球人都震惊了://@煙巳惔嘸菋: [喵喵]//@私家野史: 回复@老虎在大树之巅:[吃惊]//@老虎在大树之巅:我操[傻眼]帮凶走狗//@私家野史:回复@人生一途:[吃惊]//@人生一途:可怕。取关。//@私家野史:[good]</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3940723206163196" target="freeweibo-mirror">//@彭园v://@大山不远:谁写的就回来自首吧//@私家野…</a>
-</h2>
-<p>//@彭园v://@大山不远:谁写的就回来自首吧//@私家野史: 估计谣言！<br><br>RE: 瑞士銀行大客户名單出來了 李家紅格格榜上有名。順便提一句，准备给國民建道德檔案的李格格說過：能力之外的資本等于零。<br><img src="http://ww3.sinaimg.cn/large/7c02717bjw1f0t8l6vf1kj20ow0hstb8.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
