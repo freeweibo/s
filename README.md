@@ -102,7 +102,7 @@
 </h2>
 <p>SPAM 台独狗，要砍头。</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3940719598706282" target="freeweibo-mirror">按说宣传也有技巧，为啥只扯央视春晚一只羊薅羊毛呢？辽视，北京…</a>
 </h2>
