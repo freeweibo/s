@@ -32,9 +32,21 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3940995945511098" target="freeweibo-mirror">只有痛了才会清醒!</a>
+</h2>
+<p>只有痛了才会清醒!</p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3940986189621807" target="freeweibo-mirror">//@上海老顽童吴德余: 回复@弄堂沈国斌:金姓不入赵氏宗谱…</a>
 </h2>
 <p>//@上海老顽童吴德余: 回复@弄堂沈国斌:金姓不入赵氏宗谱，顶多算外戚之类，故不能算。//@弄堂沈国斌:北韩那首《除了金正恩，什么人也不认》排得上吗？//@上海老顽童吴德余: 回复@天涯喜鹊:两首互为伯仲，并列第二；第一当然永远属于《爹亲娘亲不如毛主席亲 》，因为后面都是他的孝子贤孙。</p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3940985836205013" target="freeweibo-mirror">音乐剧启蒙和理论，对于大多数音乐剧人来说，也是一个屁! </a>
+</h2>
+<p>音乐剧启蒙和理论，对于大多数音乐剧人来说，也是一个屁! </p>
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
@@ -48,7 +60,7 @@
 </h2>
 <p>政幻小说。怎么写都可以。//@何葆国: //@陶然万柳世界: 这个人最可笑！//@山河-万朵:意淫。//@法律及其价值:改革派？谁是改革派？操！！//@崔小平律师:扯！//@孫海峯:[生病]//@财经评论徐斌: [吃惊] //@张五常经济学:转发微博<br><br>RE: 吴稼祥老师。<br><img src="http://ww2.sinaimg.cn/large/6031cd2fgw1f0u3qcmjg9j20u01hc7no.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3940963527782914" target="freeweibo-mirror">//@法律及其价值: 改革派？谁是改革派？操！！//@崔小平…</a>
 </h2>
@@ -66,7 +78,7 @@
 </h2>
 <p>//@亮剑兄又来了://@荒漠A甘泉: 大规模、有组织金融犯罪集团！<br><br>RE: 42萬億呀，追的回來嗎？<br><img src="http://ww1.sinaimg.cn/large/006lMCCFgw1f0thl4y5rbj30ku112grb.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3940949619563147" target="freeweibo-mirror">这图未必是真的，不过也是时候港人思考一下当时为什么那么积极的…</a>
 </h2>
@@ -125,18 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3940915967648760" target="freeweibo-mirror">SPAM //@搏浪沙2010: //@7的代言://@wm…</a>
 </h2>
 <p>SPAM //@搏浪沙2010: //@7的代言://@wm_yu: 全网只有这一条，太神秘了！<br><br>RE: 神秘的猴年春晚制片人<br><img src="http://ww4.sinaimg.cn/large/006n608yjw1f0tinlfg85j30kf0bzwfn.jpg"></p>
-<p>
-	<small> ============== 8小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3940914898286703" target="freeweibo-mirror">看看，由于中国的发展强大，原来反华的都变成了中国政府的坚定支…</a>
-</h2>
-<p>看看，由于中国的发展强大，原来反华的都变成了中国政府的坚定支持者，那些骚乱分子知道不，现在抓你们的就是27年前的你们，世道轮回，认命吧。<br><br>RE: 一个政治投机者的狰狞面目，中国政坛一旦风云变幻，会有多少这样彻底出卖良知，求得主子欢心的人？<br><img src="http://ww1.sinaimg.cn/large/006nas7Lgw1f0tll63y55j30g9091wf8.jpg"></p>
-<p>
-	<small> ============== 8小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3940913946072186" target="freeweibo-mirror">SPAM 一直听说文宣部门和今上不对付，我觉得这不是传言……</a>
-</h2>
-<p>SPAM 一直听说文宣部门和今上不对付，我觉得这不是传言……</p>
 <p>
 	<small> ============== 8小时前</small>
 </p>
