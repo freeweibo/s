@@ -102,13 +102,13 @@
 </h2>
 <p>吴稼祥老师。<br><img src="http://ww2.sinaimg.cn/large/6031cd2fgw1f0u3qcmjg9j20u01hc7no.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3940925045134822" target="freeweibo-mirror">嗯！</a>
 </h2>
 <p>嗯！<br><br>RE: 批评本来只是一种权利，但是当批评的话会被删除的时候，批评就成了每个人的一种责任。</p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3940923592793760" target="freeweibo-mirror">必须认真对待//@郭松民:我认为应该严肃的看待余杰的表态。中…</a>
 </h2>
