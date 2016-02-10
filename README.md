@@ -24,7 +24,13 @@
 </h2>
 <p>政治经济学！<br><br>RE: 支付宝的文案有点坏～<br><img src="http://ww1.sinaimg.cn/large/621d03b7jw1f0ubrf2tdbj20go0giq61.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3941009164982876" target="freeweibo-mirror">支付宝的文案有点坏～</a>
+</h2>
+<p>支付宝的文案有点坏～<br><img src="http://ww1.sinaimg.cn/large/621d03b7jw1f0ubrf2tdbj20go0giq61.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3940986189621807" target="freeweibo-mirror">//@上海老顽童吴德余: 回复@弄堂沈国斌:金姓不入赵氏宗谱…</a>
 </h2>
@@ -66,7 +72,7 @@
 </h2>
 <p>这图未必是真的，不过也是时候港人思考一下当时为什么那么积极的参与64了，是真的认为那一场革命能救中国，还是觉得一个软弱或者内乱的中国让他们更能保持优越感?<br><br>RE: 捡到张图，可惜找不到原视频，看看港人参加6.4后的看法@孤烟暮蝉 @点子正 @昭華君 @香港沉默之聲<br><img src="http://ww4.sinaimg.cn/large/44d85863jw1f0u456xi8ij20hm6oak8s.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3940942837292730" target="freeweibo-mirror">捡到张图，可惜找不到原视频，看看港人参加6.4后的看法@孤烟…</a>
 </h2>
@@ -102,7 +108,7 @@
 </h2>
 <p>批评本来只是一种权利，但是当批评的话会被删除的时候，批评就成了每个人的一种责任。</p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3940916915908773" target="freeweibo-mirror">//@云医疗阳仔://@何兵:那年广告不停，被观众骂死。 /…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3940913946072186" target="freeweibo-mirror">SPAM 一直听说文宣部门和今上不对付，我觉得这不是传言……</a>
 </h2>
 <p>SPAM 一直听说文宣部门和今上不对付，我觉得这不是传言……</p>
-<p>
-	<small> ============== 8小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3940911009891699" target="freeweibo-mirror">#随思随行# 学习了，本来看到全国人大向政治ju汇报工作我还…</a>
-</h2>
-<p>#随思随行# 学习了，本来看到全国人大向政治ju汇报工作我还迷惑，现在明白了。<br><br>RE: 【中共为何重提“核心意识”？】春晚“主旋律”的高潮，是中共五代最高领导人依序在画面中出现。其中，前四位每人两个镜头，时间一致，而习的镜头和时间比前四位加起来还多，充分体现了“增强政治意识、大局意识、核心意识、看齐意识”。http://t.cn/RGGBFcL<br><img src="http://ww3.sinaimg.cn/large/6298156bgw1f0tx9rwmswj20sg0g0gnn.jpg"></p>
 <p>
 	<small> ============== 8小时前</small>
 </p>
