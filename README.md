@@ -30,7 +30,7 @@
 </h2>
 <p>政幻小说。怎么写都可以。//@何葆国: //@陶然万柳世界: 这个人最可笑！//@山河-万朵:意淫。//@法律及其价值:改革派？谁是改革派？操！！//@崔小平律师:扯！//@孫海峯:[生病]//@财经评论徐斌: [吃惊] //@张五常经济学:转发微博<br><br>RE: 吴稼祥老师。<br><img src="http://ww2.sinaimg.cn/large/6031cd2fgw1f0u3qcmjg9j20u01hc7no.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3940963527782914" target="freeweibo-mirror">//@法律及其价值: 改革派？谁是改革派？操！！//@崔小平…</a>
 </h2>
@@ -38,11 +38,17 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3940957965053092" target="freeweibo-mirror">这是嘴炮恐怖分子 //@-梁生宝-:刺杀有用还要革命干嘛</a>
+</h2>
+<p>这是嘴炮恐怖分子 //@-梁生宝-:刺杀有用还要革命干嘛<br><br>RE: 图穷匕首见，中国的新右派精英露出了本来面目——恐怖分子！<br><img src="http://ww1.sinaimg.cn/large/3f840b6bjw1f0u0afppxmj20c804v0t6.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3940951607250470" target="freeweibo-mirror">//@亮剑兄又来了://@荒漠A甘泉: 大规模、有组织金融犯…</a>
 </h2>
 <p>//@亮剑兄又来了://@荒漠A甘泉: 大规模、有组织金融犯罪集团！<br><br>RE: 42萬億呀，追的回來嗎？<br><img src="http://ww1.sinaimg.cn/large/006lMCCFgw1f0thl4y5rbj30ku112grb.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3940949619563147" target="freeweibo-mirror">这图未必是真的，不过也是时候港人思考一下当时为什么那么积极的…</a>
 </h2>
@@ -59,6 +65,12 @@
 	<a href="https://freeweibo.com/weibo/3940925045134822" target="freeweibo-mirror">嗯！</a>
 </h2>
 <p>嗯！<br><br>RE: 批评本来只是一种权利，但是当批评的话会被删除的时候，批评就成了每个人的一种责任。</p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3940923592793760" target="freeweibo-mirror">必须认真对待//@郭松民:我认为应该严肃的看待余杰的表态。中…</a>
+</h2>
+<p>必须认真对待//@郭松民:我认为应该严肃的看待余杰的表态。中国的新右派已经失去了耐心，非常有可能真的铤而走险，走上恐怖主义的道路。国家应该按照恐怖主义的现实威胁予以应对。//@领袖_誓夺九省: 这。。。搞刺杀？//@侯宁:[晕]//@玩ERP：这些书生啊，也就敢在洋主子面前放个嘴炮。<br><br>RE: 图穷匕首见，中国的新右派精英露出了本来面目——恐怖分子！<br><img src="http://ww1.sinaimg.cn/large/3f840b6bjw1f0u0afppxmj20c804v0t6.jpg"></p>
 <p>
 	<small> ============== 4小时前</small>
 </p><h2>
@@ -125,18 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3940903242583937" target="freeweibo-mirror">//@孙万宝: //@山东荣辱不惊:应当申请公开央视报道的数…</a>
 </h2>
 <p>//@孙万宝: //@山东荣辱不惊:应当申请公开央视报道的数据来历@米家那个山  @加贝98858 @北外乔木 //@专职法律顾问:谎言一千遍就是真理，宣传春晚成功是小事，官媒宣传的其他事情呢？</p>
-<p>
-	<small> ============== 6小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3940902453394915" target="freeweibo-mirror">SPAM 我二大爷是左权[doge]//@沈阳网警小胖:我家…</a>
-</h2>
-<p>SPAM 我二大爷是左权[doge]//@沈阳网警小胖:我家祖上还是将军呢[doge]嗯，清朝的//@奉普慈特慈真主之名:我爷爷是董必武的部下。</p>
-<p>
-	<small> ============== 6小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3940901976385107" target="freeweibo-mirror">30年前的中国人，良知还没有完全泯灭。//@林卿颖://@何…</a>
-</h2>
-<p>30年前的中国人，良知还没有完全泯灭。//@林卿颖://@何兵:那年广告不停，被观众骂死。 //@老李头06:转发微博</p>
 <p>
 	<small> ============== 6小时前</small>
 </p>
