@@ -60,7 +60,7 @@
 </h2>
 <p>SPAM 遥望中书房，痴迷国师梦，三年来不惜指鹿为马信口雌黄，直舔得舌头生蒼满嘴流血，依然自娱自乐意淫连连欲罢不能！<br><br>RE: 吴稼祥老师。<br><img src="http://ww2.sinaimg.cn/large/6031cd2fgw1f0u3qcmjg9j20u01hc7no.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3940967495346984" target="freeweibo-mirror">政幻小说。怎么写都可以。//@何葆国: //@陶然万柳世界:…</a>
 </h2>
