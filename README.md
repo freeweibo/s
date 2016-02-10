@@ -126,17 +126,17 @@
 </h2>
 <p>#随思随行# 学习了，本来看到全国人大向政治ju汇报工作我还迷惑，现在明白了。<br><br>RE: 【中共为何重提“核心意识”？】春晚“主旋律”的高潮，是中共五代最高领导人依序在画面中出现。其中，前四位每人两个镜头，时间一致，而习的镜头和时间比前四位加起来还多，充分体现了“增强政治意识、大局意识、核心意识、看齐意识”。http://t.cn/RGGBFcL<br><img src="http://ww3.sinaimg.cn/large/6298156bgw1f0tx9rwmswj20sg0g0gnn.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3940909391512007" target="freeweibo-mirror">图穷匕首见，中国的新右派精英露出了本来面目——恐怖分子！</a>
+</h2>
+<p>图穷匕首见，中国的新右派精英露出了本来面目——恐怖分子！<br><img src="http://ww1.sinaimg.cn/large/3f840b6bjw1f0u0afppxmj20c804v0t6.jpg"></p>
+<p>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3940905411481425" target="freeweibo-mirror">//@作家郑午然: 世事如棋。前几年薄王之势汹汹，抓这个抓那…</a>
 </h2>
 <p>//@作家郑午然: 世事如棋。前几年薄王之势汹汹，抓这个抓那个，结果也被他们自己逆转了。//@老芋头: 这几天重读《资治通鉴》，常掩卷太息。有西大律师、童大教授，当以史为鉴，如不改弦更张，妄议时政，祸不远矣！<br><br>RE: 【顺天应制】@童之伟：袁世凱时只有个《顺天时报》，现在什么都有顺天牌的，春晚即顺天晚会。现在很多现象着眼于顺天，都极易解释，用不着多少学识。[doge]<br><img src="http://ww3.sinaimg.cn/large/6b804b51gw1f0ttsnvmetj208c069aas.jpg"></p>
-<p>
-	<small> ============== 6小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3940903326706306" target="freeweibo-mirror">习仲勋的部下，这关系攀的，你咋不说你祖上姓习呢 //@地瓜熊…</a>
-</h2>
-<p>习仲勋的部下，这关系攀的，你咋不说你祖上姓习呢 //@地瓜熊老六:大过年的吓死宝宝了，公知警察反体制，原来是想做更大的五毛！</p>
 <p>
 	<small> ============== 6小时前</small>
 </p>
