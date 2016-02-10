@@ -44,6 +44,12 @@
 <p>
 	<small> ============== 4小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3940996787917054" target="freeweibo-mirror">妄议了。</a>
+</h2>
+<p>妄议了。<br><br>RE: 上午，央视舞台上一群年轻人又跳又唱《三八作风歌》：“红旗飘飘军号响，人民战士歌声嘹亮。三八作风是传家宝，毛泽东思想闪金光。坚定正确的政治方向，艰苦朴素的工作作风，灵活机动的战略战术……”。一哥们儿悠悠地说：搞这一套的林副主席死于文革，作曲家死于文革，看来已经没有什么能阻止这帮孙子...全文： http://m.weibo.cn/3197077575/3940995734918122<br><img src="http://ww3.sinaimg.cn/large/be8f8847gw1f0ua7x65oaj20fi0csq4e.jpg"></p>
+<p>
+	<small> ============== 5小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3940995945511098" target="freeweibo-mirror">只有痛了才会清醒!</a>
 </h2>
 <p>只有痛了才会清醒!</p>
@@ -72,7 +78,7 @@
 </h2>
 <p>政幻小说。怎么写都可以。//@何葆国: //@陶然万柳世界: 这个人最可笑！//@山河-万朵:意淫。//@法律及其价值:改革派？谁是改革派？操！！//@崔小平律师:扯！//@孫海峯:[生病]//@财经评论徐斌: [吃惊] //@张五常经济学:转发微博<br><br>RE: 吴稼祥老师。<br><img src="http://ww2.sinaimg.cn/large/6031cd2fgw1f0u3qcmjg9j20u01hc7no.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3940963527782914" target="freeweibo-mirror">//@法律及其价值: 改革派？谁是改革派？操！！//@崔小平…</a>
 </h2>
@@ -90,7 +96,7 @@
 </h2>
 <p>//@亮剑兄又来了://@荒漠A甘泉: 大规模、有组织金融犯罪集团！<br><br>RE: 42萬億呀，追的回來嗎？<br><img src="http://ww1.sinaimg.cn/large/006lMCCFgw1f0thl4y5rbj30ku112grb.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3940949619563147" target="freeweibo-mirror">这图未必是真的，不过也是时候港人思考一下当时为什么那么积极的…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3940919671941794" target="freeweibo-mirror">批评本来只是一种权利，但是当批评的话会被删除的时候，批评就成…</a>
 </h2>
 <p>批评本来只是一种权利，但是当批评的话会被删除的时候，批评就成了每个人的一种责任。</p>
-<p>
-	<small> ============== 10小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3940916915908773" target="freeweibo-mirror">//@云医疗阳仔://@何兵:那年广告不停，被观众骂死。 /…</a>
-</h2>
-<p>//@云医疗阳仔://@何兵:那年广告不停，被观众骂死。 //@老李头06:转发微博</p>
 <p>
 	<small> ============== 10小时前</small>
 </p>
