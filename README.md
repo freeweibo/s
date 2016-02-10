@@ -24,7 +24,13 @@
 </h2>
 <p>//@亮剑兄又来了://@荒漠A甘泉: 大规模、有组织金融犯罪集团！<br><br>RE: 42萬億呀，追的回來嗎？<br><img src="http://ww1.sinaimg.cn/large/006lMCCFgw1f0thl4y5rbj30ku112grb.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3940949619563147" target="freeweibo-mirror">这图未必是真的，不过也是时候港人思考一下当时为什么那么积极的…</a>
+</h2>
+<p>这图未必是真的，不过也是时候港人思考一下当时为什么那么积极的参与64了，是真的认为那一场革命能救中国，还是觉得一个软弱或者内乱的中国让他们更能保持优越感?<br><br>RE: 捡到张图，可惜找不到原视频，看看港人参加6.4后的看法@孤烟暮蝉 @点子正 @昭華君 @香港沉默之聲<br><img src="http://ww4.sinaimg.cn/large/44d85863jw1f0u456xi8ij20hm6oak8s.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3940925045134822" target="freeweibo-mirror">嗯！</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3940883114458238" target="freeweibo-mirror">【中共为何重提“核心意识”？】春晚“主旋律”的高潮，是中共五…</a>
 </h2>
 <p>【中共为何重提“核心意识”？】春晚“主旋律”的高潮，是中共五代最高领导人依序在画面中出现。其中，前四位每人两个镜头，时间一致，而习的镜头和时间比前四位加起来还多，充分体现了“增强政治意识、大局意识、核心意识、看齐意识”。http://t.cn/RGGBFcL<br><img src="http://ww3.sinaimg.cn/large/6298156bgw1f0tx9rwmswj20sg0g0gnn.jpg"></p>
-<p>
-	<small> ============== 6小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3940882661045950" target="freeweibo-mirror">还有被烧焦的解放军尸体被挂在旗杆上。后来我再看到有人怀念赵紫…</a>
-</h2>
-<p>还有被烧焦的解放军尸体被挂在旗杆上。后来我再看到有人怀念赵紫阳真是恨的压根都痒<br><br>RE: 內地廿六年前的一场暴乱，跟今天的香港实在太相似了，都是早有预谋有外国势力渗透，对执法人员都是往死里打！当年分裂不了中国仍死心不息，中国人要时刻警惕，外国反华势力亡我中华之心不死！<br><img src="http://ww2.sinaimg.cn/large/69eba87cjw1f0tj5k83pbj20sg0j6juf.jpg"></p>
 <p>
 	<small> ============== 6小时前</small>
 </p>
