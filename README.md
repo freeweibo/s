@@ -32,11 +32,17 @@
 <p>
 	<small> ============== 1小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3940915967648760" target="freeweibo-mirror">SPAM //@搏浪沙2010: //@7的代言://@wm…</a>
+</h2>
+<p>SPAM //@搏浪沙2010: //@7的代言://@wm_yu: 全网只有这一条，太神秘了！<br><br>RE: 神秘的猴年春晚制片人<br><img src="http://ww4.sinaimg.cn/large/006n608yjw1f0tinlfg85j30kf0bzwfn.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3940882661045950" target="freeweibo-mirror">还有被烧焦的解放军尸体被挂在旗杆上。后来我再看到有人怀念赵紫…</a>
 </h2>
 <p>还有被烧焦的解放军尸体被挂在旗杆上。后来我再看到有人怀念赵紫阳真是恨的压根都痒<br><br>RE: 內地廿六年前的一场暴乱，跟今天的香港实在太相似了，都是早有预谋有外国势力渗透，对执法人员都是往死里打！当年分裂不了中国仍死心不息，中国人要时刻警惕，外国反华势力亡我中华之心不死！<br><img src="http://ww2.sinaimg.cn/large/69eba87cjw1f0tj5k83pbj20sg0j6juf.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3940881927039974" target="freeweibo-mirror">一贯民族的思维方式，改变不容易，恢复也很难。文化事态的改变，…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3940732622249952" target="freeweibo-mirror">//@陶然万柳世界: //@鲁壁藏书:婊子立牌坊//@kak…</a>
 </h2>
 <p>//@陶然万柳世界: //@鲁壁藏书:婊子立牌坊//@kakakaka1973://@守候者说: //@天宇航模://@DopeyTom:她前面3人都是国王或皇帝，后面那位是网球沙皇，前世界排名第一的萨芬。//@袍哥3: 没有具体金额？//@瑞安丰和18: 全国人民谁不知道？青梅竹马少年玩伴不好下手，反贪？谁几巴信啊！<br><br>RE: 瑞士銀行大客户名單出來了 李家紅格格榜上有名。順便提一句，准备给國民建道德檔案的李格格說過：能力之外的資本等于零。<br><img src="http://ww3.sinaimg.cn/large/7c02717bjw1f0t8l6vf1kj20ow0hstb8.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3940727442129442" target="freeweibo-mirror">去年这个时候外媒的报道，背景是多家媒体联合调查瑞士银行协助客…</a>
-</h2>
-<p>去年这个时候外媒的报道，背景是多家媒体联合调查瑞士银行协助客户逃税的事。不知道中纪委介入调查没有，也没见有人出来辟谣。//@李宝健: 这是谣言吧？ //@胖子0641: //@悠然阁-姚小俊:[嘻嘻] //@袍哥3: 没有具体金额？ //@瑞安丰和18:<br><br>RE: 瑞士銀行大客户名單出來了 李家紅格格榜上有名。順便提一句，准备给國民建道德檔案的李格格說過：能力之外的資本等于零。<br><img src="http://ww3.sinaimg.cn/large/7c02717bjw1f0t8l6vf1kj20ow0hstb8.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
