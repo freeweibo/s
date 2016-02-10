@@ -86,6 +86,12 @@
 <p>
 	<small> ============== 4小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3940895969786634" target="freeweibo-mirror">试试看这条可以活多久[doge]</a>
+</h2>
+<p>试试看这条可以活多久[doge]<br><img src="http://ww2.sinaimg.cn/large/a11fe4afjw1f0tyrc78t9j20u01hcdpv.jpg"></p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3940893087869761" target="freeweibo-mirror">SPAM 以后再没人敢惹@民警吕宏伟 先生了吧。</a>
 </h2>
 <p>SPAM 以后再没人敢惹@民警吕宏伟 先生了吧。</p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3940877971807317" target="freeweibo-mirror">想起费正清从前说的一句话：“中国没有艺术，只有宣传。”</a>
 </h2>
 <p>想起费正清从前说的一句话：“中国没有艺术，只有宣传。”<br><br>RE: 摘：这是一场政治挂帅的晚会，歌功颂德、粉饰太平的词汇与节目贯穿始终，政治挤压艺术，宣传挤压趣味，僵化教条，毫无生机，这是一场加长版的新闻联播。整场晚会都笼罩在一片歌颂、献媚、虚荣、自负的假大空氛围里，政治宣传逻辑强硬霸道地突破了艺术底线 http://t.cn/RGGeu9L</p>
-<p>
-	<small> ============== 5小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3940877707913306" target="freeweibo-mirror">摘：这是一场政治挂帅的晚会，歌功颂德、粉饰太平的词汇与节目贯…</a>
-</h2>
-<p>摘：这是一场政治挂帅的晚会，歌功颂德、粉饰太平的词汇与节目贯穿始终，政治挤压艺术，宣传挤压趣味，僵化教条，毫无生机，这是一场加长版的新闻联播。整场晚会都笼罩在一片歌颂、献媚、虚荣、自负的假大空氛围里，政治宣传逻辑强硬霸道地突破了艺术底线 http://t.cn/RGGeu9L</p>
 <p>
 	<small> ============== 5小时前</small>
 </p>
