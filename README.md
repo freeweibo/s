@@ -66,13 +66,19 @@
 </h2>
 <p>@王小东:是别人吃一刀//@裸炮:慷慨歌北大，从容做美囚。引刀成一快，不负民主头[笑cry]<br><br>RE: 满街挤余生，无处觅兆铭[挖鼻]读著名作家要刺杀政治领导人有感<br><img src="http://ww4.sinaimg.cn/large/53a7ac51jw1f0t1ybjom5j20la08gjsl.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3940851685652271" target="freeweibo-mirror">//@御风依旧:当要求辟谣的时候，结果往往是发布消息的人被抓…</a>
 </h2>
 <p>//@御风依旧:当要求辟谣的时候，结果往往是发布消息的人被抓，央视认错，然后就可以确信最初说的都是真的<br><br>RE: 仅仅在瑞士银行2016年初公布的约5000个资金来源不明的账户中，约三分之二是中国供贪裆要员。目前还有150个名字尚未确认，估计是家眷。尚书和阁 员几乎人人有份。其中有最显赫的就有33亿5000万。当年有位无产... http://t.cn/RGGVHU4<br><img src="http://ww2.sinaimg.cn/large/006o2MuJjw1f0tcqgf6iqj30dc0iddhm.jpg"></p>
 <p>
 	<small> ============== 4小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3940762893325128" target="freeweibo-mirror">內地廿六年前的一场暴乱，跟今天的香港实在太相似了，都是早有预…</a>
+</h2>
+<p>內地廿六年前的一场暴乱，跟今天的香港实在太相似了，都是早有预谋有外国势力渗透，对执法人员都是往死里打！当年分裂不了中国仍死心不息，中国人要时刻警惕，外国反华势力亡我中华之心不死！<br><img src="http://ww2.sinaimg.cn/large/69eba87cjw1f0tj5k83pbj20sg0j6juf.jpg"></p>
+<p>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3940738716771880" target="freeweibo-mirror">SPAM 上淘宝的都懂，不良卖家非得刷个好评不能理解么？</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3940721662354480" target="freeweibo-mirror">//@大山不远:谁写的就回来自首吧//@私家野史: 估计谣言…</a>
 </h2>
 <p>//@大山不远:谁写的就回来自首吧//@私家野史: 估计谣言！<br><br>RE: 瑞士銀行大客户名單出來了 李家紅格格榜上有名。順便提一句，准备给國民建道德檔案的李格格說過：能力之外的資本等于零。<br><img src="http://ww3.sinaimg.cn/large/7c02717bjw1f0t8l6vf1kj20ow0hstb8.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3940721067628523" target="freeweibo-mirror">SPAM 台独狗，要砍头。</a>
-</h2>
-<p>SPAM 台独狗，要砍头。</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
