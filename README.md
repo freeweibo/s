@@ -24,7 +24,7 @@
 </h2>
 <p>SPAM 估计是删号 //@S1nk://@点数不足:→_→//@Geek飞不起来的鱼://@Necromancer:[doge]//@贾有财:你要被封了[笑cry]<br><br>RE: 试试看这条可以活多久[doge]<br><img src="http://ww2.sinaimg.cn/large/a11fe4afjw1f0tyrc78t9j20u01hcdpv.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3940916915908773" target="freeweibo-mirror">//@云医疗阳仔://@何兵:那年广告不停，被观众骂死。 /…</a>
 </h2>
@@ -96,7 +96,7 @@
 </h2>
 <p>SPAM 以后再没人敢惹@民警吕宏伟 先生了吧。</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3940883214890040" target="freeweibo-mirror">我聽到的，看到的只是2.1%//@昕静自然好:[哈哈]//@…</a>
 </h2>
@@ -132,13 +132,13 @@
 </h2>
 <p>[哈哈]//@B2B2C研究:[哈哈]//@孟浩然大律师: 我们只在2.1%里面调查[笑cry] //@荣剑2001:调查的人群不一样？你们是网上调查，我们是内部调查。</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3940877971807317" target="freeweibo-mirror">想起费正清从前说的一句话：“中国没有艺术，只有宣传。”</a>
 </h2>
 <p>想起费正清从前说的一句话：“中国没有艺术，只有宣传。”<br><br>RE: 摘：这是一场政治挂帅的晚会，歌功颂德、粉饰太平的词汇与节目贯穿始终，政治挤压艺术，宣传挤压趣味，僵化教条，毫无生机，这是一场加长版的新闻联播。整场晚会都笼罩在一片歌颂、献媚、虚荣、自负的假大空氛围里，政治宣传逻辑强硬霸道地突破了艺术底线 http://t.cn/RGGeu9L</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p>
 <table>
     <tr>
