@@ -20,6 +20,102 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3941053695866094" target="freeweibo-mirror">看来官员不贪几个亿对不起党对不起人民![嘻嘻]//@陈茂来-…</a>
+</h2>
+<p>看来官员不贪几个亿对不起党对不起人民![嘻嘻]//@陈茂来-:[偷笑] #听海观潮#//@犹也xf:这么多房子，要我也永远跟党走</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3941052174150441" target="freeweibo-mirror">//@菜乡之剑: //@编剧赵华:[怒][怒][怒]【官家回…</a>
+</h2>
+<p>//@菜乡之剑: //@编剧赵华:[怒][怒][怒]【官家回应：删文，禁转发】//@月影清风东方: 请赵同志公开此事的回应情况！</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3941050714725476" target="freeweibo-mirror">回复@自由的天蝎哥哥:【宪法不是白写的】 //@自由的天蝎哥…</a>
+</h2>
+<p>回复@自由的天蝎哥哥:【宪法不是白写的】 //@自由的天蝎哥哥:人大代表是领导挑选的，人大要向党汇报工作，听党的话，怎么可能随便启动罢免权</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3941050551242254" target="freeweibo-mirror">回复@栋哥最近可坑了求萝卜:【已经没有退路！】 //@栋哥最…</a>
+</h2>
+<p>回复@栋哥最近可坑了求萝卜:【已经没有退路！】 //@栋哥最近可坑了求萝卜:不注意斗争策略[拜拜]</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3941049283885762" target="freeweibo-mirror">【已经忍无可忍】//@环境保护主义者联盟: 说话要有分寸</a>
+</h2>
+<p>【已经忍无可忍】//@环境保护主义者联盟: 说话要有分寸</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3941049078566812" target="freeweibo-mirror">//@编剧赵华:[怒][怒][怒]【官家回应：删文，禁转发】…</a>
+</h2>
+<p>//@编剧赵华:[怒][怒][怒]【官家回应：删文，禁转发】//@月影清风东方: 请赵同志公开此事的回应情况！</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3941049028448549" target="freeweibo-mirror">SPAM 今天初三，出门会亲戚朋友，我给我的行动打100分[…</a>
+</h2>
+<p>SPAM 今天初三，出门会亲戚朋友，我给我的行动打100分[酷]#微博热点快评#<br><img src="http://ww4.sinaimg.cn/large/50fd482djw1f0ugc4xp78j20co0f6q3q.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3941047892053207" target="freeweibo-mirror">会允许转到500？//@古老围脖: 转到500，看啥结果</a>
+</h2>
+<p>会允许转到500？//@古老围脖: 转到500，看啥结果</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3941047502084861" target="freeweibo-mirror">[怒][怒][怒]【官家回应：删文，禁转发】//@月影清风东…</a>
+</h2>
+<p>[怒][怒][怒]【官家回应：删文，禁转发】//@月影清风东方: 请赵同志公开此事的回应情况！</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3941047295447373" target="freeweibo-mirror">勾上了才有可能成为红色资本家。//@章诒和:转发微博</a>
+</h2>
+<p>勾上了才有可能成为红色资本家。//@章诒和:转发微博</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3941047241651460" target="freeweibo-mirror">【新中国是人民的，不是#转基因汉奸#的！】//@白云长征V1…</a>
+</h2>
+<p>【新中国是人民的，不是#转基因汉奸#的！】//@白云长征V19: 人民有权力反对用转基因毒食品害人的反动官员，推广转基因毒食品还当高官，要看人民答不答应，满不满意！//@心歸来兮: //@尘PM:党不管党，官员不问政就是现状</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3941045660087762" target="freeweibo-mirror">【#金龙鱼#滚！】//@伊水紫桐: 近来发现大型超市已看不到…</a>
+</h2>
+<p>【#金龙鱼#滚！】//@伊水紫桐: 近来发现大型超市已看不到金龙鱼转基因大豆油了，可能是卖不出去。金龙鱼改卖花生油，且价格便宜。但俺不会买的。 //@元素医学与癌症研究:目前超市里的豆油几乎都是转基因的，这还不算，这些豆油也几乎都是化学榨取的毒豆油。含有铅汞镍铬等重金属。</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3941045165378029" target="freeweibo-mirror">【餐饮仍在用，礼品垃圾油】//@伊水紫桐:油及酱油不标注非转…</a>
+</h2>
+<p>【餐饮仍在用，礼品垃圾油】//@伊水紫桐:油及酱油不标注非转没人买。 //@上海西北狼A1:花生油包括鲁花均无标注是否转基因//@伊水紫桐:近来发现大型超市已看不到金龙鱼转基因大豆油了，可能是卖不出去。金龙鱼改卖花生油，且价格便宜。但俺不会买的。</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3941044876299776" target="freeweibo-mirror">【#转基因#五毛滚】//@凉宫以马内利穆罕默德玛丽亚春日:乌…</a>
+</h2>
+<p>【#转基因#五毛滚】//@凉宫以马内利穆罕默德玛丽亚春日:乌有毛左恶毒攻击党中央，应该严厉打击。 //@广西黄健://@雨田田田田2015:转发微博</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3941044615406193" target="freeweibo-mirror">[怒][怒][怒]【政治#转基因#，完全失民心】//@爱ja…</a>
+</h2>
+<p>[怒][怒][怒]【政治#转基因#，完全失民心】//@爱jack1028来了: @摄政王爷有话说:大家要明白食物转基因是和政治转基因是有内在必然联系的！！！否则，食物转基因绝不会那么猖獗的.[哼][怒][抓狂][怒骂][话筒][话筒][话筒]</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3941043822704935" target="freeweibo-mirror">你打算逆来顺受，吃#转基因#至死？//@窗外蚕舞绿波: 真天…</a>
+</h2>
+<p>你打算逆来顺受，吃#转基因#至死？//@窗外蚕舞绿波: 真天真！//@人间大道OOO:转发各省市自治区各大军区新疆生产建设兵团各人民团体。 //@68军战旗红a://@华的幸福life3: //@中华在心://@毛派必胜16://@魔鬼的狂欢日922B://@如易的天空1:转发微博</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3941022071408520" target="freeweibo-mirror">//@老刘在德克萨斯:通往地狱的路上总是布满手舞足蹈的高分贝…</a>
 </h2>
 <p>//@老刘在德克萨斯:通往地狱的路上总是布满手舞足蹈的高分贝啦啦队。 //@刘耘博士:造神的林彪葬身荒漠，这首歌的作曲，也是文革语录歌的集大成作曲家李劫夫死于学习班。想起一句神评：看来已经没有什么能阻止这帮傻逼作死了。<br><br>RE: 上午，央视舞台上一群年轻人又跳又唱《三八作风歌》：“红旗飘飘军号响，人民战士歌声嘹亮。三八作风是传家宝，毛泽东思想闪金光。坚定正确的政治方向，艰苦朴素的工作作风，灵活机动的战略战术……”。一哥们儿悠悠地说：搞这一套的林副主席死于文革，作曲家死于文革，看来已经没有什么能阻止这帮孙子...全文： http://m.weibo.cn/3197077575/3940995734918122<br><img src="http://ww3.sinaimg.cn/large/be8f8847gw1f0ua7x65oaj20fi0csq4e.jpg"></p>
@@ -30,7 +126,7 @@
 </h2>
 <p>SPAM [嘻嘻]//@唐师曾: [嘻嘻]</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3941009954557014" target="freeweibo-mirror">政治经济学！</a>
 </h2>
@@ -43,102 +139,6 @@
 <p>支付宝的文案有点坏～<br><img src="http://ww1.sinaimg.cn/large/621d03b7jw1f0ubrf2tdbj20go0giq61.jpg"></p>
 <p>
 	<small> ============== 4小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3940996787917054" target="freeweibo-mirror">妄议了。</a>
-</h2>
-<p>妄议了。<br><br>RE: 上午，央视舞台上一群年轻人又跳又唱《三八作风歌》：“红旗飘飘军号响，人民战士歌声嘹亮。三八作风是传家宝，毛泽东思想闪金光。坚定正确的政治方向，艰苦朴素的工作作风，灵活机动的战略战术……”。一哥们儿悠悠地说：搞这一套的林副主席死于文革，作曲家死于文革，看来已经没有什么能阻止这帮孙子...全文： http://m.weibo.cn/3197077575/3940995734918122<br><img src="http://ww3.sinaimg.cn/large/be8f8847gw1f0ua7x65oaj20fi0csq4e.jpg"></p>
-<p>
-	<small> ============== 5小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3940995945511098" target="freeweibo-mirror">只有痛了才会清醒!</a>
-</h2>
-<p>只有痛了才会清醒!</p>
-<p>
-	<small> ============== 5小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3940995734918122" target="freeweibo-mirror">上午，央视舞台上一群年轻人又跳又唱《三八作风歌》：“红旗飘飘…</a>
-</h2>
-<p>上午，央视舞台上一群年轻人又跳又唱《三八作风歌》：“红旗飘飘军号响，人民战士歌声嘹亮。三八作风是传家宝，毛泽东思想闪金光。坚定正确的政治方向，艰苦朴素的工作作风，灵活机动的战略战术……”。一哥们儿悠悠地说：搞这一套的林副主席死于文革，作曲家死于文革，看来已经没有什么能阻止这帮孙子...全文： http://m.weibo.cn/3197077575/3940995734918122<br><img src="http://ww3.sinaimg.cn/large/be8f8847gw1f0ua7x65oaj20fi0csq4e.jpg"></p>
-<p>
-	<small> ============== 5小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3940986189621807" target="freeweibo-mirror">//@上海老顽童吴德余: 回复@弄堂沈国斌:金姓不入赵氏宗谱…</a>
-</h2>
-<p>//@上海老顽童吴德余: 回复@弄堂沈国斌:金姓不入赵氏宗谱，顶多算外戚之类，故不能算。//@弄堂沈国斌:北韩那首《除了金正恩，什么人也不认》排得上吗？//@上海老顽童吴德余: 回复@天涯喜鹊:两首互为伯仲，并列第二；第一当然永远属于《爹亲娘亲不如毛主席亲 》，因为后面都是他的孝子贤孙。</p>
-<p>
-	<small> ============== 6小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3940985836205013" target="freeweibo-mirror">音乐剧启蒙和理论，对于大多数音乐剧人来说，也是一个屁! </a>
-</h2>
-<p>音乐剧启蒙和理论，对于大多数音乐剧人来说，也是一个屁! </p>
-<p>
-	<small> ============== 6小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3940975980322704" target="freeweibo-mirror">SPAM 遥望中书房，痴迷国师梦，三年来不惜指鹿为马信口雌黄…</a>
-</h2>
-<p>SPAM 遥望中书房，痴迷国师梦，三年来不惜指鹿为马信口雌黄，直舔得舌头生蒼满嘴流血，依然自娱自乐意淫连连欲罢不能！<br><br>RE: 吴稼祥老师。<br><img src="http://ww2.sinaimg.cn/large/6031cd2fgw1f0u3qcmjg9j20u01hc7no.jpg"></p>
-<p>
-	<small> ============== 6小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3940967495346984" target="freeweibo-mirror">政幻小说。怎么写都可以。//@何葆国: //@陶然万柳世界:…</a>
-</h2>
-<p>政幻小说。怎么写都可以。//@何葆国: //@陶然万柳世界: 这个人最可笑！//@山河-万朵:意淫。//@法律及其价值:改革派？谁是改革派？操！！//@崔小平律师:扯！//@孫海峯:[生病]//@财经评论徐斌: [吃惊] //@张五常经济学:转发微博<br><br>RE: 吴稼祥老师。<br><img src="http://ww2.sinaimg.cn/large/6031cd2fgw1f0u3qcmjg9j20u01hc7no.jpg"></p>
-<p>
-	<small> ============== 7小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3940963527782914" target="freeweibo-mirror">//@法律及其价值: 改革派？谁是改革派？操！！//@崔小平…</a>
-</h2>
-<p>//@法律及其价值: 改革派？谁是改革派？操！！//@崔小平律师:扯！//@孫海峯:[生病]//@财经评论徐斌: [吃惊] //@张五常经济学:转发微博<br><br>RE: 吴稼祥老师。<br><img src="http://ww2.sinaimg.cn/large/6031cd2fgw1f0u3qcmjg9j20u01hc7no.jpg"></p>
-<p>
-	<small> ============== 7小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3940957965053092" target="freeweibo-mirror">这是嘴炮恐怖分子 //@-梁生宝-:刺杀有用还要革命干嘛</a>
-</h2>
-<p>这是嘴炮恐怖分子 //@-梁生宝-:刺杀有用还要革命干嘛<br><br>RE: 图穷匕首见，中国的新右派精英露出了本来面目——恐怖分子！<br><img src="http://ww1.sinaimg.cn/large/3f840b6bjw1f0u0afppxmj20c804v0t6.jpg"></p>
-<p>
-	<small> ============== 7小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3940951607250470" target="freeweibo-mirror">//@亮剑兄又来了://@荒漠A甘泉: 大规模、有组织金融犯…</a>
-</h2>
-<p>//@亮剑兄又来了://@荒漠A甘泉: 大规模、有组织金融犯罪集团！<br><br>RE: 42萬億呀，追的回來嗎？<br><img src="http://ww1.sinaimg.cn/large/006lMCCFgw1f0thl4y5rbj30ku112grb.jpg"></p>
-<p>
-	<small> ============== 8小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3940949619563147" target="freeweibo-mirror">这图未必是真的，不过也是时候港人思考一下当时为什么那么积极的…</a>
-</h2>
-<p>这图未必是真的，不过也是时候港人思考一下当时为什么那么积极的参与64了，是真的认为那一场革命能救中国，还是觉得一个软弱或者内乱的中国让他们更能保持优越感?<br><br>RE: 捡到张图，可惜找不到原视频，看看港人参加6.4后的看法@孤烟暮蝉 @点子正 @昭華君 @香港沉默之聲<br><img src="http://ww4.sinaimg.cn/large/44d85863jw1f0u456xi8ij20hm6oak8s.jpg"></p>
-<p>
-	<small> ============== 8小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3940942837292730" target="freeweibo-mirror">捡到张图，可惜找不到原视频，看看港人参加6.4后的看法@孤烟…</a>
-</h2>
-<p>捡到张图，可惜找不到原视频，看看港人参加6.4后的看法@孤烟暮蝉 @点子正 @昭華君 @香港沉默之聲<br><img src="http://ww4.sinaimg.cn/large/44d85863jw1f0u456xi8ij20hm6oak8s.jpg"></p>
-<p>
-	<small> ============== 8小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3940939246951794" target="freeweibo-mirror">吴稼祥老师。</a>
-</h2>
-<p>吴稼祥老师。<br><img src="http://ww2.sinaimg.cn/large/6031cd2fgw1f0u3qcmjg9j20u01hc7no.jpg"></p>
-<p>
-	<small> ============== 9小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3940925045134822" target="freeweibo-mirror">嗯！</a>
-</h2>
-<p>嗯！<br><br>RE: 批评本来只是一种权利，但是当批评的话会被删除的时候，批评就成了每个人的一种责任。</p>
-<p>
-	<small> ============== 10小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3940923592793760" target="freeweibo-mirror">必须认真对待//@郭松民:我认为应该严肃的看待余杰的表态。中…</a>
-</h2>
-<p>必须认真对待//@郭松民:我认为应该严肃的看待余杰的表态。中国的新右派已经失去了耐心，非常有可能真的铤而走险，走上恐怖主义的道路。国家应该按照恐怖主义的现实威胁予以应对。//@领袖_誓夺九省: 这。。。搞刺杀？//@侯宁:[晕]//@玩ERP：这些书生啊，也就敢在洋主子面前放个嘴炮。<br><br>RE: 图穷匕首见，中国的新右派精英露出了本来面目——恐怖分子！<br><img src="http://ww1.sinaimg.cn/large/3f840b6bjw1f0u0afppxmj20c804v0t6.jpg"></p>
-<p>
-	<small> ============== 10小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3940923265595347" target="freeweibo-mirror">SPAM 估计是删号 //@S1nk://@点数不足:→_→…</a>
-</h2>
-<p>SPAM 估计是删号 //@S1nk://@点数不足:→_→//@Geek飞不起来的鱼://@Necromancer:[doge]//@贾有财:你要被封了[笑cry]<br><br>RE: 试试看这条可以活多久[doge]<br><img src="http://ww2.sinaimg.cn/large/a11fe4afjw1f0tyrc78t9j20u01hcdpv.jpg"></p>
-<p>
-	<small> ============== 10小时前</small>
 </p>
 <table>
     <tr>
