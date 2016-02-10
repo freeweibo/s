@@ -108,7 +108,7 @@
 </h2>
 <p>//@云医疗阳仔://@何兵:那年广告不停，被观众骂死。 //@老李头06:转发微博</p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3940916408813376" target="freeweibo-mirror">SPAM //@价值投资快客: //@搏浪沙2010: //…</a>
 </h2>
