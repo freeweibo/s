@@ -42,7 +42,7 @@
 </h2>
 <p>SPAM //@搏浪沙2010: //@7的代言://@wm_yu: 全网只有这一条，太神秘了！<br><br>RE: 神秘的猴年春晚制片人<br><img src="http://ww4.sinaimg.cn/large/006n608yjw1f0tinlfg85j30kf0bzwfn.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3940913946072186" target="freeweibo-mirror">SPAM 一直听说文宣部门和今上不对付，我觉得这不是传言……</a>
 </h2>
