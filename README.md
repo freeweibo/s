@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3941009954557014" target="freeweibo-mirror">政治经济学！</a>
+</h2>
+<p>政治经济学！<br><br>RE: 支付宝的文案有点坏～<br><img src="http://ww1.sinaimg.cn/large/621d03b7jw1f0ubrf2tdbj20go0giq61.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3940986189621807" target="freeweibo-mirror">//@上海老顽童吴德余: 回复@弄堂沈国斌:金姓不入赵氏宗谱…</a>
 </h2>
 <p>//@上海老顽童吴德余: 回复@弄堂沈国斌:金姓不入赵氏宗谱，顶多算外戚之类，故不能算。//@弄堂沈国斌:北韩那首《除了金正恩，什么人也不认》排得上吗？//@上海老顽童吴德余: 回复@天涯喜鹊:两首互为伯仲，并列第二；第一当然永远属于《爹亲娘亲不如毛主席亲 》，因为后面都是他的孝子贤孙。</p>
@@ -48,7 +54,7 @@
 </h2>
 <p>这是嘴炮恐怖分子 //@-梁生宝-:刺杀有用还要革命干嘛<br><br>RE: 图穷匕首见，中国的新右派精英露出了本来面目——恐怖分子！<br><img src="http://ww1.sinaimg.cn/large/3f840b6bjw1f0u0afppxmj20c804v0t6.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3940951607250470" target="freeweibo-mirror">//@亮剑兄又来了://@荒漠A甘泉: 大规模、有组织金融犯…</a>
 </h2>
@@ -66,7 +72,7 @@
 </h2>
 <p>捡到张图，可惜找不到原视频，看看港人参加6.4后的看法@孤烟暮蝉 @点子正 @昭華君 @香港沉默之聲<br><img src="http://ww4.sinaimg.cn/large/44d85863jw1f0u456xi8ij20hm6oak8s.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3940939246951794" target="freeweibo-mirror">吴稼祥老师。</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3940911009891699" target="freeweibo-mirror">#随思随行# 学习了，本来看到全国人大向政治ju汇报工作我还…</a>
 </h2>
 <p>#随思随行# 学习了，本来看到全国人大向政治ju汇报工作我还迷惑，现在明白了。<br><br>RE: 【中共为何重提“核心意识”？】春晚“主旋律”的高潮，是中共五代最高领导人依序在画面中出现。其中，前四位每人两个镜头，时间一致，而习的镜头和时间比前四位加起来还多，充分体现了“增强政治意识、大局意识、核心意识、看齐意识”。http://t.cn/RGGBFcL<br><img src="http://ww3.sinaimg.cn/large/6298156bgw1f0tx9rwmswj20sg0g0gnn.jpg"></p>
-<p>
-	<small> ============== 8小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3940909391512007" target="freeweibo-mirror">图穷匕首见，中国的新右派精英露出了本来面目——恐怖分子！</a>
-</h2>
-<p>图穷匕首见，中国的新右派精英露出了本来面目——恐怖分子！<br><img src="http://ww1.sinaimg.cn/large/3f840b6bjw1f0u0afppxmj20c804v0t6.jpg"></p>
 <p>
 	<small> ============== 8小时前</small>
 </p>
