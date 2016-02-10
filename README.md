@@ -30,7 +30,7 @@
 </h2>
 <p>支付宝的文案有点坏～<br><img src="http://ww1.sinaimg.cn/large/621d03b7jw1f0ubrf2tdbj20go0giq61.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3940995945511098" target="freeweibo-mirror">只有痛了才会清醒!</a>
 </h2>
@@ -66,7 +66,7 @@
 </h2>
 <p>//@法律及其价值: 改革派？谁是改革派？操！！//@崔小平律师:扯！//@孫海峯:[生病]//@财经评论徐斌: [吃惊] //@张五常经济学:转发微博<br><br>RE: 吴稼祥老师。<br><img src="http://ww2.sinaimg.cn/large/6031cd2fgw1f0u3qcmjg9j20u01hc7no.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3940957965053092" target="freeweibo-mirror">这是嘴炮恐怖分子 //@-梁生宝-:刺杀有用还要革命干嘛</a>
 </h2>
