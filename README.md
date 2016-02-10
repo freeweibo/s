@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3940925045134822" target="freeweibo-mirror">嗯！</a>
+</h2>
+<p>嗯！<br><br>RE: 批评本来只是一种权利，但是当批评的话会被删除的时候，批评就成了每个人的一种责任。</p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3940923265595347" target="freeweibo-mirror">SPAM 估计是删号 //@S1nk://@点数不足:→_→…</a>
 </h2>
 <p>SPAM 估计是删号 //@S1nk://@点数不足:→_→//@Geek飞不起来的鱼://@Necromancer:[doge]//@贾有财:你要被封了[笑cry]<br><br>RE: 试试看这条可以活多久[doge]<br><img src="http://ww2.sinaimg.cn/large/a11fe4afjw1f0tyrc78t9j20u01hcdpv.jpg"></p>
@@ -102,19 +108,19 @@
 </h2>
 <p>我聽到的，看到的只是2.1%//@昕静自然好:[哈哈]//@B2B2C研究:[哈哈]//@孟浩然大律师: 我们只在2.1%里面调查[笑cry] //@荣剑2001:调查的人群不一样？你们是网上调查，我们是内部调查。</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3940883114458238" target="freeweibo-mirror">【中共为何重提“核心意识”？】春晚“主旋律”的高潮，是中共五…</a>
 </h2>
 <p>【中共为何重提“核心意识”？】春晚“主旋律”的高潮，是中共五代最高领导人依序在画面中出现。其中，前四位每人两个镜头，时间一致，而习的镜头和时间比前四位加起来还多，充分体现了“增强政治意识、大局意识、核心意识、看齐意识”。http://t.cn/RGGBFcL<br><img src="http://ww3.sinaimg.cn/large/6298156bgw1f0tx9rwmswj20sg0g0gnn.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3940882661045950" target="freeweibo-mirror">还有被烧焦的解放军尸体被挂在旗杆上。后来我再看到有人怀念赵紫…</a>
 </h2>
 <p>还有被烧焦的解放军尸体被挂在旗杆上。后来我再看到有人怀念赵紫阳真是恨的压根都痒<br><br>RE: 內地廿六年前的一场暴乱，跟今天的香港实在太相似了，都是早有预谋有外国势力渗透，对执法人员都是往死里打！当年分裂不了中国仍死心不息，中国人要时刻警惕，外国反华势力亡我中华之心不死！<br><img src="http://ww2.sinaimg.cn/large/69eba87cjw1f0tj5k83pbj20sg0j6juf.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3940881927039974" target="freeweibo-mirror">一贯民族的思维方式，改变不容易，恢复也很难。文化事态的改变，…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3940878240320049" target="freeweibo-mirror">[哈哈]//@B2B2C研究:[哈哈]//@孟浩然大律师: …</a>
 </h2>
 <p>[哈哈]//@B2B2C研究:[哈哈]//@孟浩然大律师: 我们只在2.1%里面调查[笑cry] //@荣剑2001:调查的人群不一样？你们是网上调查，我们是内部调查。</p>
-<p>
-	<small> ============== 6小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3940877971807317" target="freeweibo-mirror">想起费正清从前说的一句话：“中国没有艺术，只有宣传。”</a>
-</h2>
-<p>想起费正清从前说的一句话：“中国没有艺术，只有宣传。”<br><br>RE: 摘：这是一场政治挂帅的晚会，歌功颂德、粉饰太平的词汇与节目贯穿始终，政治挤压艺术，宣传挤压趣味，僵化教条，毫无生机，这是一场加长版的新闻联播。整场晚会都笼罩在一片歌颂、献媚、虚荣、自负的假大空氛围里，政治宣传逻辑强硬霸道地突破了艺术底线 http://t.cn/RGGeu9L</p>
 <p>
 	<small> ============== 6小时前</small>
 </p>
