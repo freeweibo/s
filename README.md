@@ -36,7 +36,7 @@
 </h2>
 <p>SPAM //@搏浪沙2010: //@7的代言://@wm_yu: 全网只有这一条，太神秘了！<br><br>RE: 神秘的猴年春晚制片人<br><img src="http://ww4.sinaimg.cn/large/006n608yjw1f0tinlfg85j30kf0bzwfn.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3940903326706306" target="freeweibo-mirror">习仲勋的部下，这关系攀的，你咋不说你祖上姓习呢 //@地瓜熊…</a>
 </h2>
@@ -126,7 +126,7 @@
 </h2>
 <p>哦，对，刚才说的就是这张图[doge]当时我在北京开会，就是一群网警聚在一起开的那种会。。。会间休息的时候正好刷到这张图，我们在场的网警们都惊呆了[doge]嗯。真的是惊呆了[doge]<br><img src="http://ww1.sinaimg.cn/large/005yagqJjw1f0tla38oj8j30k00px764.jpg"></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3940762893325128" target="freeweibo-mirror">內地廿六年前的一场暴乱，跟今天的香港实在太相似了，都是早有预…</a>
 </h2>
