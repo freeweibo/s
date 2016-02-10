@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3940986189621807" target="freeweibo-mirror">//@上海老顽童吴德余: 回复@弄堂沈国斌:金姓不入赵氏宗谱…</a>
+</h2>
+<p>//@上海老顽童吴德余: 回复@弄堂沈国斌:金姓不入赵氏宗谱，顶多算外戚之类，故不能算。//@弄堂沈国斌:北韩那首《除了金正恩，什么人也不认》排得上吗？//@上海老顽童吴德余: 回复@天涯喜鹊:两首互为伯仲，并列第二；第一当然永远属于《爹亲娘亲不如毛主席亲 》，因为后面都是他的孝子贤孙。</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3940975980322704" target="freeweibo-mirror">SPAM 遥望中书房，痴迷国师梦，三年来不惜指鹿为马信口雌黄…</a>
 </h2>
 <p>SPAM 遥望中书房，痴迷国师梦，三年来不惜指鹿为马信口雌黄，直舔得舌头生蒼满嘴流血，依然自娱自乐意淫连连欲罢不能！<br><br>RE: 吴稼祥老师。<br><img src="http://ww2.sinaimg.cn/large/6031cd2fgw1f0u3qcmjg9j20u01hc7no.jpg"></p>
@@ -42,7 +48,7 @@
 </h2>
 <p>这是嘴炮恐怖分子 //@-梁生宝-:刺杀有用还要革命干嘛<br><br>RE: 图穷匕首见，中国的新右派精英露出了本来面目——恐怖分子！<br><img src="http://ww1.sinaimg.cn/large/3f840b6bjw1f0u0afppxmj20c804v0t6.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3940951607250470" target="freeweibo-mirror">//@亮剑兄又来了://@荒漠A甘泉: 大规模、有组织金融犯…</a>
 </h2>
@@ -60,7 +66,7 @@
 </h2>
 <p>捡到张图，可惜找不到原视频，看看港人参加6.4后的看法@孤烟暮蝉 @点子正 @昭華君 @香港沉默之聲<br><img src="http://ww4.sinaimg.cn/large/44d85863jw1f0u456xi8ij20hm6oak8s.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3940939246951794" target="freeweibo-mirror">吴稼祥老师。</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3940909391512007" target="freeweibo-mirror">图穷匕首见，中国的新右派精英露出了本来面目——恐怖分子！</a>
 </h2>
 <p>图穷匕首见，中国的新右派精英露出了本来面目——恐怖分子！<br><img src="http://ww1.sinaimg.cn/large/3f840b6bjw1f0u0afppxmj20c804v0t6.jpg"></p>
-<p>
-	<small> ============== 7小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3940905411481425" target="freeweibo-mirror">//@作家郑午然: 世事如棋。前几年薄王之势汹汹，抓这个抓那…</a>
-</h2>
-<p>//@作家郑午然: 世事如棋。前几年薄王之势汹汹，抓这个抓那个，结果也被他们自己逆转了。//@老芋头: 这几天重读《资治通鉴》，常掩卷太息。有西大律师、童大教授，当以史为鉴，如不改弦更张，妄议时政，祸不远矣！<br><br>RE: 【顺天应制】@童之伟：袁世凱时只有个《顺天时报》，现在什么都有顺天牌的，春晚即顺天晚会。现在很多现象着眼于顺天，都极易解释，用不着多少学识。[doge]<br><img src="http://ww3.sinaimg.cn/large/6b804b51gw1f0ttsnvmetj208c069aas.jpg"></p>
 <p>
 	<small> ============== 7小时前</small>
 </p>
