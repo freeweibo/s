@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3940923265595347" target="freeweibo-mirror">SPAM 估计是删号 //@S1nk://@点数不足:→_→…</a>
+</h2>
+<p>SPAM 估计是删号 //@S1nk://@点数不足:→_→//@Geek飞不起来的鱼://@Necromancer:[doge]//@贾有财:你要被封了[笑cry]<br><br>RE: 试试看这条可以活多久[doge]<br><img src="http://ww2.sinaimg.cn/large/a11fe4afjw1f0tyrc78t9j20u01hcdpv.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3940916915908773" target="freeweibo-mirror">//@云医疗阳仔://@何兵:那年广告不停，被观众骂死。 /…</a>
 </h2>
 <p>//@云医疗阳仔://@何兵:那年广告不停，被观众骂死。 //@老李头06:转发微博</p>
@@ -90,13 +96,13 @@
 </h2>
 <p>一贯民族的思维方式，改变不容易，恢复也很难。文化事态的改变，一百年回头就不错。//@章诒和:想起费正清从前说的一句话：“中国没有艺术，只有宣传。”<br><br>RE: 摘：这是一场政治挂帅的晚会，歌功颂德、粉饰太平的词汇与节目贯穿始终，政治挤压艺术，宣传挤压趣味，僵化教条，毫无生机，这是一场加长版的新闻联播。整场晚会都笼罩在一片歌颂、献媚、虚荣、自负的假大空氛围里，政治宣传逻辑强硬霸道地突破了艺术底线 http://t.cn/RGGeu9L</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3940881222681353" target="freeweibo-mirror">[酷]//@章诒和: 想起费正清从前说的一句话：“中国没有艺…</a>
 </h2>
 <p>[酷]//@章诒和: 想起费正清从前说的一句话：“中国没有艺术，只有宣传。”<br><br>RE: 摘：这是一场政治挂帅的晚会，歌功颂德、粉饰太平的词汇与节目贯穿始终，政治挤压艺术，宣传挤压趣味，僵化教条，毫无生机，这是一场加长版的新闻联播。整场晚会都笼罩在一片歌颂、献媚、虚荣、自负的假大空氛围里，政治宣传逻辑强硬霸道地突破了艺术底线 http://t.cn/RGGeu9L</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3940878240320049" target="freeweibo-mirror">[哈哈]//@B2B2C研究:[哈哈]//@孟浩然大律师: …</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3940863081563298" target="freeweibo-mirror">这些就是毛泽东要打倒的走资本主义道路的当权派！注意：这里没有…</a>
 </h2>
 <p>这些就是毛泽东要打倒的走资本主义道路的当权派！注意：这里没有毛泽东、周恩来的家属！<br><br>RE: 仅仅在瑞士银行2016年初公布的约5000个资金来源不明的账户中，约三分之二是中国供贪裆要员。目前还有150个名字尚未确认，估计是家眷。尚书和阁 员几乎人人有份。其中有最显赫的就有33亿5000万。当年有位无产... http://t.cn/RGGVHU4<br><img src="http://ww2.sinaimg.cn/large/006o2MuJjw1f0tcqgf6iqj30dc0iddhm.jpg"></p>
-<p>
-	<small> ============== 6小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3940859370174526" target="freeweibo-mirror">驻港部队在哪儿？</a>
-</h2>
-<p>驻港部队在哪儿？<br><br>RE: 內地廿六年前的一场暴乱，跟今天的香港实在太相似了，都是早有预谋有外国势力渗透，对执法人员都是往死里打！当年分裂不了中国仍死心不息，中国人要时刻警惕，外国反华势力亡我中华之心不死！<br><img src="http://ww2.sinaimg.cn/large/69eba87cjw1f0tj5k83pbj20sg0j6juf.jpg"></p>
 <p>
 	<small> ============== 6小时前</small>
 </p>
