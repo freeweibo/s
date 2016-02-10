@@ -44,6 +44,18 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3940913946072186" target="freeweibo-mirror">SPAM 一直听说文宣部门和今上不对付，我觉得这不是传言……</a>
+</h2>
+<p>SPAM 一直听说文宣部门和今上不对付，我觉得这不是传言……</p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3940911009891699" target="freeweibo-mirror">#随思随行# 学习了，本来看到全国人大向政治ju汇报工作我还…</a>
+</h2>
+<p>#随思随行# 学习了，本来看到全国人大向政治ju汇报工作我还迷惑，现在明白了。<br><br>RE: 【中共为何重提“核心意识”？】春晚“主旋律”的高潮，是中共五代最高领导人依序在画面中出现。其中，前四位每人两个镜头，时间一致，而习的镜头和时间比前四位加起来还多，充分体现了“增强政治意识、大局意识、核心意识、看齐意识”。http://t.cn/RGGBFcL<br><img src="http://ww3.sinaimg.cn/large/6298156bgw1f0tx9rwmswj20sg0g0gnn.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3940905411481425" target="freeweibo-mirror">//@作家郑午然: 世事如棋。前几年薄王之势汹汹，抓这个抓那…</a>
 </h2>
 <p>//@作家郑午然: 世事如棋。前几年薄王之势汹汹，抓这个抓那个，结果也被他们自己逆转了。//@老芋头: 这几天重读《资治通鉴》，常掩卷太息。有西大律师、童大教授，当以史为鉴，如不改弦更张，妄议时政，祸不远矣！<br><br>RE: 【顺天应制】@童之伟：袁世凱时只有个《顺天时报》，现在什么都有顺天牌的，春晚即顺天晚会。现在很多现象着眼于顺天，都极易解释，用不着多少学识。[doge]<br><img src="http://ww3.sinaimg.cn/large/6b804b51gw1f0ttsnvmetj208c069aas.jpg"></p>
@@ -79,6 +91,12 @@
 <p>SPAM 以后再没人敢惹@民警吕宏伟 先生了吧。</p>
 <p>
 	<small> ============== 4小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3940883214890040" target="freeweibo-mirror">我聽到的，看到的只是2.1%//@昕静自然好:[哈哈]//@…</a>
+</h2>
+<p>我聽到的，看到的只是2.1%//@昕静自然好:[哈哈]//@B2B2C研究:[哈哈]//@孟浩然大律师: 我们只在2.1%里面调查[笑cry] //@荣剑2001:调查的人群不一样？你们是网上调查，我们是内部调查。</p>
+<p>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3940883114458238" target="freeweibo-mirror">【中共为何重提“核心意识”？】春晚“主旋律”的高潮，是中共五…</a>
 </h2>
@@ -121,24 +139,6 @@
 <p>摘：这是一场政治挂帅的晚会，歌功颂德、粉饰太平的词汇与节目贯穿始终，政治挤压艺术，宣传挤压趣味，僵化教条，毫无生机，这是一场加长版的新闻联播。整场晚会都笼罩在一片歌颂、献媚、虚荣、自负的假大空氛围里，政治宣传逻辑强硬霸道地突破了艺术底线 http://t.cn/RGGeu9L</p>
 <p>
 	<small> ============== 5小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3940872774904562" target="freeweibo-mirror">小赵孩子去考试，100道题答对3道，考卷得了3分，孩子自我评…</a>
-</h2>
-<p>小赵孩子去考试，100道题答对3道，考卷得了3分，孩子自我评价得的是100分，学生和老师们想说出真相，小赵大喊：我家孩子就是100分。[笑cry] http://t.cn/RyhW8OV<br><img src="http://ww1.sinaimg.cn/large/73570bbdjw1f0tw3cajlhj20f90en3z3.jpg"></p>
-<p>
-	<small> ============== 5小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3940868731686465" target="freeweibo-mirror">你们的…… //@捷润飞://@asdfghjkl12345…</a>
-</h2>
-<p>你们的…… //@捷润飞://@asdfghjkl1234567890123456789://@深川胡骏://@灰色的伞://@又来金好多://@儒林泊客:@笑神客<br><br>RE: 仅仅在瑞士银行2016年初公布的约5000个资金来源不明的账户中，约三分之二是中国供贪裆要员。目前还有150个名字尚未确认，估计是家眷。尚书和阁 员几乎人人有份。其中有最显赫的就有33亿5000万。当年有位无产... http://t.cn/RGGVHU4<br><img src="http://ww2.sinaimg.cn/large/006o2MuJjw1f0tcqgf6iqj30dc0iddhm.jpg"></p>
-<p>
-	<small> ============== 5小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3940863081563298" target="freeweibo-mirror">这些就是毛泽东要打倒的走资本主义道路的当权派！注意：这里没有…</a>
-</h2>
-<p>这些就是毛泽东要打倒的走资本主义道路的当权派！注意：这里没有毛泽东、周恩来的家属！<br><br>RE: 仅仅在瑞士银行2016年初公布的约5000个资金来源不明的账户中，约三分之二是中国供贪裆要员。目前还有150个名字尚未确认，估计是家眷。尚书和阁 员几乎人人有份。其中有最显赫的就有33亿5000万。当年有位无产... http://t.cn/RGGVHU4<br><img src="http://ww2.sinaimg.cn/large/006o2MuJjw1f0tcqgf6iqj30dc0iddhm.jpg"></p>
-<p>
-	<small> ============== 6小时前</small>
 </p>
 <table>
     <tr>
