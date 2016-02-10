@@ -126,7 +126,7 @@
 </h2>
 <p>#随思随行# 学习了，本来看到全国人大向政治ju汇报工作我还迷惑，现在明白了。<br><br>RE: 【中共为何重提“核心意识”？】春晚“主旋律”的高潮，是中共五代最高领导人依序在画面中出现。其中，前四位每人两个镜头，时间一致，而习的镜头和时间比前四位加起来还多，充分体现了“增强政治意识、大局意识、核心意识、看齐意识”。http://t.cn/RGGBFcL<br><img src="http://ww3.sinaimg.cn/large/6298156bgw1f0tx9rwmswj20sg0g0gnn.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3940909391512007" target="freeweibo-mirror">图穷匕首见，中国的新右派精英露出了本来面目——恐怖分子！</a>
 </h2>
