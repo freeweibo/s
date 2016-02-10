@@ -102,7 +102,7 @@
 </h2>
 <p>SPAM 台独狗，要砍头。</p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3940719598706282" target="freeweibo-mirror">按说宣传也有技巧，为啥只扯央视春晚一只羊薅羊毛呢？辽视，北京…</a>
 </h2>
@@ -120,7 +120,7 @@
 </h2>
 <p>估计谣言！<br><br>RE: 瑞士銀行大客户名單出來了 李家紅格格榜上有名。順便提一句，准备给國民建道德檔案的李格格說過：能力之外的資本等于零。<br><img src="http://ww3.sinaimg.cn/large/7c02717bjw1f0t8l6vf1kj20ow0hstb8.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3940705736933449" target="freeweibo-mirror">SPAM 拿「城管維穩」那一套對付香港人，一定會出問題。 h…</a>
 </h2>
