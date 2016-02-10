@@ -32,11 +32,17 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3940942837292730" target="freeweibo-mirror">捡到张图，可惜找不到原视频，看看港人参加6.4后的看法@孤烟…</a>
+</h2>
+<p>捡到张图，可惜找不到原视频，看看港人参加6.4后的看法@孤烟暮蝉 @点子正 @昭華君 @香港沉默之聲<br><img src="http://ww4.sinaimg.cn/large/44d85863jw1f0u456xi8ij20hm6oak8s.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3940925045134822" target="freeweibo-mirror">嗯！</a>
 </h2>
 <p>嗯！<br><br>RE: 批评本来只是一种权利，但是当批评的话会被删除的时候，批评就成了每个人的一种责任。</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3940923265595347" target="freeweibo-mirror">SPAM 估计是删号 //@S1nk://@点数不足:→_→…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3940883214890040" target="freeweibo-mirror">我聽到的，看到的只是2.1%//@昕静自然好:[哈哈]//@…</a>
 </h2>
 <p>我聽到的，看到的只是2.1%//@昕静自然好:[哈哈]//@B2B2C研究:[哈哈]//@孟浩然大律师: 我们只在2.1%里面调查[笑cry] //@荣剑2001:调查的人群不一样？你们是网上调查，我们是内部调查。</p>
-<p>
-	<small> ============== 6小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3940883114458238" target="freeweibo-mirror">【中共为何重提“核心意识”？】春晚“主旋律”的高潮，是中共五…</a>
-</h2>
-<p>【中共为何重提“核心意识”？】春晚“主旋律”的高潮，是中共五代最高领导人依序在画面中出现。其中，前四位每人两个镜头，时间一致，而习的镜头和时间比前四位加起来还多，充分体现了“增强政治意识、大局意识、核心意识、看齐意识”。http://t.cn/RGGBFcL<br><img src="http://ww3.sinaimg.cn/large/6298156bgw1f0tx9rwmswj20sg0g0gnn.jpg"></p>
 <p>
 	<small> ============== 6小时前</small>
 </p>
