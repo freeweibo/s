@@ -72,7 +72,7 @@
 </h2>
 <p>驻港部队在哪儿？<br><br>RE: 內地廿六年前的一场暴乱，跟今天的香港实在太相似了，都是早有预谋有外国势力渗透，对执法人员都是往死里打！当年分裂不了中国仍死心不息，中国人要时刻警惕，外国反华势力亡我中华之心不死！<br><img src="http://ww2.sinaimg.cn/large/69eba87cjw1f0tj5k83pbj20sg0j6juf.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3940857784502100" target="freeweibo-mirror">@王小东:是别人吃一刀//@裸炮:慷慨歌北大，从容做美囚。引…</a>
 </h2>
