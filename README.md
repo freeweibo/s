@@ -84,13 +84,13 @@
 </h2>
 <p>必须认真对待//@郭松民:我认为应该严肃的看待余杰的表态。中国的新右派已经失去了耐心，非常有可能真的铤而走险，走上恐怖主义的道路。国家应该按照恐怖主义的现实威胁予以应对。//@领袖_誓夺九省: 这。。。搞刺杀？//@侯宁:[晕]//@玩ERP：这些书生啊，也就敢在洋主子面前放个嘴炮。<br><br>RE: 图穷匕首见，中国的新右派精英露出了本来面目——恐怖分子！<br><img src="http://ww1.sinaimg.cn/large/3f840b6bjw1f0u0afppxmj20c804v0t6.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3940923265595347" target="freeweibo-mirror">SPAM 估计是删号 //@S1nk://@点数不足:→_→…</a>
 </h2>
 <p>SPAM 估计是删号 //@S1nk://@点数不足:→_→//@Geek飞不起来的鱼://@Necromancer:[doge]//@贾有财:你要被封了[笑cry]<br><br>RE: 试试看这条可以活多久[doge]<br><img src="http://ww2.sinaimg.cn/large/a11fe4afjw1f0tyrc78t9j20u01hcdpv.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3940919671941794" target="freeweibo-mirror">批评本来只是一种权利，但是当批评的话会被删除的时候，批评就成…</a>
 </h2>
