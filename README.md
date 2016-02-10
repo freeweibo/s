@@ -42,7 +42,7 @@
 </h2>
 <p>SPAM 估计是删号 //@S1nk://@点数不足:→_→//@Geek飞不起来的鱼://@Necromancer:[doge]//@贾有财:你要被封了[笑cry]<br><br>RE: 试试看这条可以活多久[doge]<br><img src="http://ww2.sinaimg.cn/large/a11fe4afjw1f0tyrc78t9j20u01hcdpv.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3940919671941794" target="freeweibo-mirror">批评本来只是一种权利，但是当批评的话会被删除的时候，批评就成…</a>
 </h2>
@@ -126,7 +126,7 @@
 </h2>
 <p>SPAM 以后再没人敢惹@民警吕宏伟 先生了吧。</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3940883214890040" target="freeweibo-mirror">我聽到的，看到的只是2.1%//@昕静自然好:[哈哈]//@…</a>
 </h2>
