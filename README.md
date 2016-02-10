@@ -78,13 +78,13 @@
 </h2>
 <p>看看，由于中国的发展强大，原来反华的都变成了中国政府的坚定支持者，那些骚乱分子知道不，现在抓你们的就是27年前的你们，世道轮回，认命吧。<br><br>RE: 一个政治投机者的狰狞面目，中国政坛一旦风云变幻，会有多少这样彻底出卖良知，求得主子欢心的人？<br><img src="http://ww1.sinaimg.cn/large/006nas7Lgw1f0tll63y55j30g9091wf8.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3940913946072186" target="freeweibo-mirror">SPAM 一直听说文宣部门和今上不对付，我觉得这不是传言……</a>
 </h2>
 <p>SPAM 一直听说文宣部门和今上不对付，我觉得这不是传言……</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3940911009891699" target="freeweibo-mirror">#随思随行# 学习了，本来看到全国人大向政治ju汇报工作我还…</a>
 </h2>
