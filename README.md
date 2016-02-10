@@ -66,7 +66,7 @@
 </h2>
 <p>政幻小说。怎么写都可以。//@何葆国: //@陶然万柳世界: 这个人最可笑！//@山河-万朵:意淫。//@法律及其价值:改革派？谁是改革派？操！！//@崔小平律师:扯！//@孫海峯:[生病]//@财经评论徐斌: [吃惊] //@张五常经济学:转发微博<br><br>RE: 吴稼祥老师。<br><img src="http://ww2.sinaimg.cn/large/6031cd2fgw1f0u3qcmjg9j20u01hc7no.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3940963527782914" target="freeweibo-mirror">//@法律及其价值: 改革派？谁是改革派？操！！//@崔小平…</a>
 </h2>
@@ -84,7 +84,7 @@
 </h2>
 <p>//@亮剑兄又来了://@荒漠A甘泉: 大规模、有组织金融犯罪集团！<br><br>RE: 42萬億呀，追的回來嗎？<br><img src="http://ww1.sinaimg.cn/large/006lMCCFgw1f0thl4y5rbj30ku112grb.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3940949619563147" target="freeweibo-mirror">这图未必是真的，不过也是时候港人思考一下当时为什么那么积极的…</a>
 </h2>
