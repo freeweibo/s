@@ -62,6 +62,12 @@
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3940939246951794" target="freeweibo-mirror">吴稼祥老师。</a>
+</h2>
+<p>吴稼祥老师。<br><img src="http://ww2.sinaimg.cn/large/6031cd2fgw1f0u3qcmjg9j20u01hc7no.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3940925045134822" target="freeweibo-mirror">嗯！</a>
 </h2>
 <p>嗯！<br><br>RE: 批评本来只是一种权利，但是当批评的话会被删除的时候，批评就成了每个人的一种责任。</p>
@@ -72,13 +78,13 @@
 </h2>
 <p>必须认真对待//@郭松民:我认为应该严肃的看待余杰的表态。中国的新右派已经失去了耐心，非常有可能真的铤而走险，走上恐怖主义的道路。国家应该按照恐怖主义的现实威胁予以应对。//@领袖_誓夺九省: 这。。。搞刺杀？//@侯宁:[晕]//@玩ERP：这些书生啊，也就敢在洋主子面前放个嘴炮。<br><br>RE: 图穷匕首见，中国的新右派精英露出了本来面目——恐怖分子！<br><img src="http://ww1.sinaimg.cn/large/3f840b6bjw1f0u0afppxmj20c804v0t6.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3940923265595347" target="freeweibo-mirror">SPAM 估计是删号 //@S1nk://@点数不足:→_→…</a>
 </h2>
 <p>SPAM 估计是删号 //@S1nk://@点数不足:→_→//@Geek飞不起来的鱼://@Necromancer:[doge]//@贾有财:你要被封了[笑cry]<br><br>RE: 试试看这条可以活多久[doge]<br><img src="http://ww2.sinaimg.cn/large/a11fe4afjw1f0tyrc78t9j20u01hcdpv.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3940919671941794" target="freeweibo-mirror">批评本来只是一种权利，但是当批评的话会被删除的时候，批评就成…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3940903326706306" target="freeweibo-mirror">习仲勋的部下，这关系攀的，你咋不说你祖上姓习呢 //@地瓜熊…</a>
 </h2>
 <p>习仲勋的部下，这关系攀的，你咋不说你祖上姓习呢 //@地瓜熊老六:大过年的吓死宝宝了，公知警察反体制，原来是想做更大的五毛！</p>
-<p>
-	<small> ============== 6小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3940903242583937" target="freeweibo-mirror">//@孙万宝: //@山东荣辱不惊:应当申请公开央视报道的数…</a>
-</h2>
-<p>//@孙万宝: //@山东荣辱不惊:应当申请公开央视报道的数据来历@米家那个山  @加贝98858 @北外乔木 //@专职法律顾问:谎言一千遍就是真理，宣传春晚成功是小事，官媒宣传的其他事情呢？</p>
 <p>
 	<small> ============== 6小时前</small>
 </p>
