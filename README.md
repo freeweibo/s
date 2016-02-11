@@ -42,7 +42,7 @@
 </h2>
 <p>SPAM 学习了。<br><br>RE: 首先是先孝顺走乂家，有走乂才有家。<br><img src="http://ww4.sinaimg.cn/large/90b3b535gw1f0vcmxlu05j20j70csq4k.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3941330483019711" target="freeweibo-mirror">首先是先孝顺走乂家，有走乂才有家。</a>
 </h2>
@@ -132,7 +132,7 @@
 </h2>
 <p>“再长的路，一步一步也能走完；再短的路，站着不动就到不了终点。”——最高司令官<br><img src="http://ww1.sinaimg.cn/large/a8ef5277gw1f0v375lb9bj20qo0vfn2x.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3941248274197733" target="freeweibo-mirror">真实信息放出来了，而且官方未屏蔽信息。文章标题：瑞士银行大客…</a>
 </h2>
