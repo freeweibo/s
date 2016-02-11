@@ -114,7 +114,7 @@
 </h2>
 <p>SPAM 帅帅哒[熊猫]</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3941311843031187" target="freeweibo-mirror">SPAM [赞] //@荣剑2001:群众的眼睛是雪亮的！/…</a>
 </h2>
