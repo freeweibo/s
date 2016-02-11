@@ -96,7 +96,7 @@
 </h2>
 <p>连春晚都不能评论是一种自信吗？</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3941109640569074" target="freeweibo-mirror">名单是真的吗？敬佩这些人，人格闪亮的艺人[good]</a>
 </h2>
