@@ -36,7 +36,7 @@
 </h2>
 <p>“再长的路，一步一步也能走完；再短的路，站着不动就到不了终点。”——最高司令官<br><img src="http://ww1.sinaimg.cn/large/a8ef5277gw1f0v375lb9bj20qo0vfn2x.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3941109640569074" target="freeweibo-mirror">名单是真的吗？敬佩这些人，人格闪亮的艺人[good]</a>
 </h2>
