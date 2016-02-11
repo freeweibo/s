@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3941248736168386" target="freeweibo-mirror">“再长的路，一步一步也能走完；再短的路，站着不动就到不了终点…</a>
+</h2>
+<p>“再长的路，一步一步也能走完；再短的路，站着不动就到不了终点。”——最高司令官<br><img src="http://ww1.sinaimg.cn/large/a8ef5277gw1f0v375lb9bj20qo0vfn2x.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3941109640569074" target="freeweibo-mirror">名单是真的吗？敬佩这些人，人格闪亮的艺人[good]</a>
 </h2>
 <p>名单是真的吗？敬佩这些人，人格闪亮的艺人[good]<br><br>RE: 五毛跟帖指令！<br><img src="http://ww3.sinaimg.cn/large/006m305Cjw1f0uhv1lpygj309m0eamz1.jpg"></p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3941045660087762" target="freeweibo-mirror">【#金龙鱼#滚！】//@伊水紫桐: 近来发现大型超市已看不到…</a>
 </h2>
 <p>【#金龙鱼#滚！】//@伊水紫桐: 近来发现大型超市已看不到金龙鱼转基因大豆油了，可能是卖不出去。金龙鱼改卖花生油，且价格便宜。但俺不会买的。 //@元素医学与癌症研究:目前超市里的豆油几乎都是转基因的，这还不算，这些豆油也几乎都是化学榨取的毒豆油。含有铅汞镍铬等重金属。</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3941045165378029" target="freeweibo-mirror">【餐饮仍在用，礼品垃圾油】//@伊水紫桐:油及酱油不标注非转…</a>
-</h2>
-<p>【餐饮仍在用，礼品垃圾油】//@伊水紫桐:油及酱油不标注非转没人买。 //@上海西北狼A1:花生油包括鲁花均无标注是否转基因//@伊水紫桐:近来发现大型超市已看不到金龙鱼转基因大豆油了，可能是卖不出去。金龙鱼改卖花生油，且价格便宜。但俺不会买的。</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
