@@ -42,7 +42,7 @@
 </h2>
 <p>SPAM //@华南飞猛: 放到美利坚估计打成筛子！//@中国公知精神病总院: 这些都是武疯子，他们听不懂道理，相信的只是拳头！[拳头]<br><br>RE: 港毒已经被逼疯了<br><img src="http://ww1.sinaimg.cn/large/005RsgLpjw1f0va309skej30c82lb7iy.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3941353928628853" target="freeweibo-mirror">SPAM 不要说亲爹被整得半死，就是被整死，也得感恩孝顺。躬…</a>
 </h2>
@@ -72,7 +72,7 @@
 </h2>
 <p>SPAM 不错哦[挤眼]</p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3941328138064268" target="freeweibo-mirror">冯小刚做导演，至少你可以调侃他一下，他也不生气，是吧。</a>
 </h2>
