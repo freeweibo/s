@@ -78,7 +78,7 @@
 </h2>
 <p>首先是先孝顺走乂家，有走乂才有家。<br><img src="http://ww4.sinaimg.cn/large/90b3b535gw1f0vcmxlu05j20j70csq4k.jpg"></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3941330176840105" target="freeweibo-mirror">SPAM 不错哦[挤眼]</a>
 </h2>
@@ -120,7 +120,7 @@
 </h2>
 <p>港毒已经被逼疯了<br><img src="http://ww1.sinaimg.cn/large/005RsgLpjw1f0va309skej30c82lb7iy.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3941305719943288" target="freeweibo-mirror">SPAM [微笑] //@克羅迪厄斯三世:</a>
 </h2>
