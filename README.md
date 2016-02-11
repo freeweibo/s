@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3941491582315109" target="freeweibo-mirror">俺不信，人家妹子有道德！</a>
+</h2>
+<p>俺不信，人家妹子有道德！<br><br>RE: 【瑞士银行大客户名单曝光】今日网传李鹏之女“李小琳荣登瑞士银行大客户名单”的多个帖子，此事迅即引发网友热议，不久便遭删帖......微评：曾记得一句著名台词：“全世界我只相信自己和瑞士的银行家”。中国也有句俗话：”世上没有不透风的墙“。试问：李小琳及”李小琳们“，你们相信前者还是后者？<br><img src="http://ww1.sinaimg.cn/large/db1747fcgw1f0vhr7j7wej20ku112n1r.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3941473634723564" target="freeweibo-mirror">SPAM 超级喜欢~[lxhx奔跑]</a>
 </h2>
 <p>SPAM 超级喜欢~[lxhx奔跑]</p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3941311843031187" target="freeweibo-mirror">SPAM [赞] //@荣剑2001:群众的眼睛是雪亮的！/…</a>
 </h2>
 <p>SPAM [赞] //@荣剑2001:群众的眼睛是雪亮的！//@童之伟:期待飚大师的杰作。[微笑]//@飚叔钢笔画47: 正在画《群众》</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3941311600213210" target="freeweibo-mirror">SPAM //@Cc_永远18岁:@_小鰻魚 快看！！</a>
-</h2>
-<p>SPAM //@Cc_永远18岁:@_小鰻魚 快看！！</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
