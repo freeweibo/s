@@ -78,7 +78,13 @@
 </h2>
 <p>【#转基因五毛#滚！】//@青松怒向苍天发: 考验一个人是不是忠于党、忠于社会主义，就是在党和人民利益相冲突的时候，看你是站在党一边还是人民一边。所谓公知，就是不放弃一切机会攻击党的领导，而且总打着人民、反转等幌子。</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3941308030581145" target="freeweibo-mirror">港毒已经被逼疯了</a>
+</h2>
+<p>港毒已经被逼疯了<br><img src="http://ww1.sinaimg.cn/large/005RsgLpjw1f0va309skej30c82lb7iy.jpg"></p>
+<p>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3941305719943288" target="freeweibo-mirror">SPAM [微笑] //@克羅迪厄斯三世:</a>
 </h2>
@@ -126,17 +132,11 @@
 </h2>
 <p>“再长的路，一步一步也能走完；再短的路，站着不动就到不了终点。”——最高司令官<br><img src="http://ww1.sinaimg.cn/large/a8ef5277gw1f0v375lb9bj20qo0vfn2x.jpg"></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3941248274197733" target="freeweibo-mirror">真实信息放出来了，而且官方未屏蔽信息。文章标题：瑞士银行大客…</a>
 </h2>
 <p>真实信息放出来了，而且官方未屏蔽信息。文章标题：瑞士银行大客户。@于建嵘；@南方都市报；@南方周末；http://t.cn/RGqIjAY</p>
-<p>
-	<small> ============== 10小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3941245414479109" target="freeweibo-mirror">//@荣剑2001:忍不住又转了。//@Ming_the_G…</a>
-</h2>
-<p>//@荣剑2001:忍不住又转了。//@Ming_the_Great_大明:轉發微博<br><br>RE: 春晚没办好，承认了，也就损失了一场春晚，至少观众还会对明年有所期待。导演底气十足地不知羞耻给自己打满分，官方动员众多公媒指鹿为马般为糟糕的春晚叫好，还拿出毫无依据的数据来说明春晚很成功，损失的就不止是一场春晚了，而是整个公信力。因为一场晚会儿公然站到民众的对立面，不止坏，而且蠢。</p>
 <p>
 	<small> ============== 10小时前</small>
 </p>
