@@ -30,7 +30,7 @@
 </h2>
 <p>SPAM 不要说亲爹被整得半死，就是被整死，也得感恩孝顺。躬为表率，垂范天下。<br><br>RE: 首先是先孝顺走乂家，有走乂才有家。<br><img src="http://ww4.sinaimg.cn/large/90b3b535gw1f0vcmxlu05j20j70csq4k.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3941351479303612" target="freeweibo-mirror">这个窝致辞，以后有人说你不孝顺了，你就说还没有孝顺国家呐，等…</a>
 </h2>
@@ -132,7 +132,7 @@
 </h2>
 <p>真实信息放出来了，而且官方未屏蔽信息。文章标题：瑞士银行大客户。@于建嵘；@南方都市报；@南方周末；http://t.cn/RGqIjAY</p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3941245414479109" target="freeweibo-mirror">//@荣剑2001:忍不住又转了。//@Ming_the_G…</a>
 </h2>
