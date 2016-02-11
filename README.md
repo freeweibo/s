@@ -30,7 +30,7 @@
 </h2>
 <p>SPAM 不错哦[挤眼]</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3941327668783059" target="freeweibo-mirror">SPAM 帅帅哒[熊猫]</a>
 </h2>
