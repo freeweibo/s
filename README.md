@@ -30,7 +30,7 @@
 </h2>
 <p>[围观]文革时，朱教授还太小，其感性记忆真实，此篇权当巴别辞条的童真版。<br><br>RE: 发表了一篇转载博文《[转载]新巴别辞典之二：文革》http://t.cn/RGtweVQ<br><img src="http://ww1.sinaimg.cn/large/5408ee85jw1f0vqfuk171j20by0bymxj.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3941450427399134" target="freeweibo-mirror">发表了一篇转载博文《[转载]新巴别辞典之二：文革》http:…</a>
 </h2>
@@ -72,7 +72,7 @@
 </h2>
 <p>SPAM 学习了。<br><br>RE: 首先是先孝顺走乂家，有走乂才有家。<br><img src="http://ww4.sinaimg.cn/large/90b3b535gw1f0vcmxlu05j20j70csq4k.jpg"></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3941330483019711" target="freeweibo-mirror">首先是先孝顺走乂家，有走乂才有家。</a>
 </h2>
@@ -114,7 +114,7 @@
 </h2>
 <p>【#转基因五毛#滚！】//@青松怒向苍天发: 考验一个人是不是忠于党、忠于社会主义，就是在党和人民利益相冲突的时候，看你是站在党一边还是人民一边。所谓公知，就是不放弃一切机会攻击党的领导，而且总打着人民、反转等幌子。</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3941308030581145" target="freeweibo-mirror">港毒已经被逼疯了</a>
 </h2>
