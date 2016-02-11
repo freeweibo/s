@@ -24,7 +24,7 @@
 </h2>
 <p>//@于建嵘:最恨这些西方国家的坏分子，专搞假信息，造谣惑众。咱们的道德姐，全凭自己的能力，在国企任职，如何可能成为大客户？！<br><br>RE: 真实信息放出来了，而且官方未屏蔽信息。文章标题：瑞士银行大客户。@于建嵘；@南方都市报；@南方周末；http://t.cn/RGqIjAY</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3941250472092589" target="freeweibo-mirror">最恨这些西方国家的坏分子，专搞假信息，造谣惑众。咱们的道德姐…</a>
 </h2>
@@ -38,6 +38,12 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3941248274197733" target="freeweibo-mirror">真实信息放出来了，而且官方未屏蔽信息。文章标题：瑞士银行大客…</a>
+</h2>
+<p>真实信息放出来了，而且官方未屏蔽信息。文章标题：瑞士银行大客户。@于建嵘；@南方都市报；@南方周末；http://t.cn/RGqIjAY</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3941109640569074" target="freeweibo-mirror">名单是真的吗？敬佩这些人，人格闪亮的艺人[good]</a>
 </h2>
 <p>名单是真的吗？敬佩这些人，人格闪亮的艺人[good]<br><br>RE: 五毛跟帖指令！<br><img src="http://ww3.sinaimg.cn/large/006m305Cjw1f0uhv1lpygj309m0eamz1.jpg"></p>
@@ -48,7 +54,7 @@
 </h2>
 <p>[吃惊][吃惊]//@整合之道刘鸿雁:真的假的？[挖鼻]<br><br>RE: 五毛跟帖指令！<br><img src="http://ww3.sinaimg.cn/large/006m305Cjw1f0uhv1lpygj309m0eamz1.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3941088581063196" target="freeweibo-mirror">SPAM [哆啦A夢花心][哆啦A夢花心][哆啦A夢花心][…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3941047502084861" target="freeweibo-mirror">[怒][怒][怒]【官家回应：删文，禁转发】//@月影清风东…</a>
 </h2>
 <p>[怒][怒][怒]【官家回应：删文，禁转发】//@月影清风东方: 请赵同志公开此事的回应情况！</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3941047295447373" target="freeweibo-mirror">勾上了才有可能成为红色资本家。//@章诒和:转发微博</a>
-</h2>
-<p>勾上了才有可能成为红色资本家。//@章诒和:转发微博</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
