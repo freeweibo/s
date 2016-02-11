@@ -114,7 +114,7 @@
 </h2>
 <p>//@高小曜://@襄阳V: //@这个冬季特别冷:转发微博</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3941251558414762" target="freeweibo-mirror">//@于建嵘:最恨这些西方国家的坏分子，专搞假信息，造谣惑众…</a>
 </h2>
