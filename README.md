@@ -24,7 +24,7 @@
 </h2>
 <p>SPAM //@华南飞猛: 放到美利坚估计打成筛子！//@中国公知精神病总院: 这些都是武疯子，他们听不懂道理，相信的只是拳头！[拳头]<br><br>RE: 港毒已经被逼疯了<br><img src="http://ww1.sinaimg.cn/large/005RsgLpjw1f0va309skej30c82lb7iy.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3941353928628853" target="freeweibo-mirror">SPAM 不要说亲爹被整得半死，就是被整死，也得感恩孝顺。躬…</a>
 </h2>
@@ -54,7 +54,7 @@
 </h2>
 <p>SPAM 不错哦[挤眼]</p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3941327668783059" target="freeweibo-mirror">SPAM 帅帅哒[熊猫]</a>
 </h2>
