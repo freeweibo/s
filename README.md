@@ -78,7 +78,7 @@
 </h2>
 <p>【#转基因五毛#滚！】//@青松怒向苍天发: 考验一个人是不是忠于党、忠于社会主义，就是在党和人民利益相冲突的时候，看你是站在党一边还是人民一边。所谓公知，就是不放弃一切机会攻击党的领导，而且总打着人民、反转等幌子。</p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3941308030581145" target="freeweibo-mirror">港毒已经被逼疯了</a>
 </h2>
@@ -132,7 +132,7 @@
 </h2>
 <p>“再长的路，一步一步也能走完；再短的路，站着不动就到不了终点。”——最高司令官<br><img src="http://ww1.sinaimg.cn/large/a8ef5277gw1f0v375lb9bj20qo0vfn2x.jpg"></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3941248274197733" target="freeweibo-mirror">真实信息放出来了，而且官方未屏蔽信息。文章标题：瑞士银行大客…</a>
 </h2>
