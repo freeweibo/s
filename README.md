@@ -54,7 +54,7 @@
 </h2>
 <p>27姨没消息了？//@庄园主C:谁能比过富可敌国窃国大盗[哈哈][哈哈]//@风波亭小沙弥6:美国感谢大家了，没你们它实在不方便掐住中共的蛋蛋。 //@替天行道g://@玲瀚:我最恨不劳而获之流，也最恶心剥削有理之流//@牛哥_80848://@玲瀚: 回复@李俊晓:姐？怕脏了人嘴//@李俊晓:恭喜小<br><br>RE: 【瑞士银行大客户名单曝光】今日网传李鹏之女“李小琳荣登瑞士银行大客户名单”的多个帖子，此事迅即引发网友热议，不久便遭删帖......微评：曾记得一句著名台词：“全世界我只相信自己和瑞士的银行家”。中国也有句俗话：”世上没有不透风的墙“。试问：李小琳及”李小琳们“，你们相信前者还是后者？<br><img src="http://ww1.sinaimg.cn/large/db1747fcgw1f0vhr7j7wej20ku112n1r.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3941477724450012" target="freeweibo-mirror">SPAM 我最恨不劳而获之流，也最恶心剥削有理之流//@牛哥…</a>
 </h2>
@@ -114,7 +114,7 @@
 </h2>
 <p>//@贪官多11世://@大藏布:好大的道德档案[哈哈]//@王亚军上海: 能力之外的东西等于瑞士银行富豪榜[赞] //@千里马常有:李小鹏与李小林什么关系？[嘻嘻]  http://t.cn/RG5Bxl0<br><br>RE: 【瑞士银行大客户名单曝光】今日网传李鹏之女“李小琳荣登瑞士银行大客户名单”的多个帖子，此事迅即引发网友热议，不久便遭删帖......微评：曾记得一句著名台词：“全世界我只相信自己和瑞士的银行家”。中国也有句俗话：”世上没有不透风的墙“。试问：李小琳及”李小琳们“，你们相信前者还是后者？<br><img src="http://ww1.sinaimg.cn/large/db1747fcgw1f0vhr7j7wej20ku112n1r.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3941458568102266" target="freeweibo-mirror">SPAM wsrffghhhj成Tu人动作#成人动作# TY…</a>
 </h2>
@@ -132,7 +132,7 @@
 </h2>
 <p>发表了一篇转载博文《[转载]新巴别辞典之二：文革》http://t.cn/RGtweVQ<br><img src="http://ww1.sinaimg.cn/large/5408ee85jw1f0vqfuk171j20by0bymxj.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3941427803743275" target="freeweibo-mirror">SPAM uhvhjgh成Tu人动作#成人动作# TYIO[…</a>
 </h2>
