@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3941473634723564" target="freeweibo-mirror">SPAM 超级喜欢~[lxhx奔跑]</a>
+</h2>
+<p>SPAM 超级喜欢~[lxhx奔跑]</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3941469523574975" target="freeweibo-mirror">不共富，一切狗屁改革滚他妈的蛋！[怒]//@单蛋_3252:…</a>
 </h2>
 <p>不共富，一切狗屁改革滚他妈的蛋！[怒]//@单蛋_3252: //@人民的义务1: 一位牢记共产党宗旨的人民干部，一位伟大的社会主义路线实践者！<br><br>RE: 薄熙来在重庆时说：“共同富裕是社会主义最本质的特征和最大优越性。马克斯在100多年前就说“新社会主义制度中，生产将以所有人的富裕为目的。”毛主席在见国初期就明确指出：“我们建设社会主义的目的，就是要大家有事做，有饭吃，大家共同富裕。”社会主义就是要全国人民共同富裕，不要两极分化”。<br><img src="http://ww4.sinaimg.cn/large/01106953gw1f0vk7ium1xj20dt0dbq3m.jpg"></p>
@@ -102,7 +108,7 @@
 </h2>
 <p>冯小刚做导演，至少你可以调侃他一下，他也不生气，是吧。</p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3941327668783059" target="freeweibo-mirror">SPAM 帅帅哒[熊猫]</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3941308030581145" target="freeweibo-mirror">港毒已经被逼疯了</a>
 </h2>
 <p>港毒已经被逼疯了<br><img src="http://ww1.sinaimg.cn/large/005RsgLpjw1f0va309skej30c82lb7iy.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3941305719943288" target="freeweibo-mirror">SPAM [微笑] //@克羅迪厄斯三世:</a>
-</h2>
-<p>SPAM [微笑] //@克羅迪厄斯三世:</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
