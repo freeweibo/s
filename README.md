@@ -74,6 +74,12 @@
 <p>
 	<small> ============== 8小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3941374879768742" target="freeweibo-mirror">【瑞士银行大客户名单曝光】今日网传李鹏之女“李小琳荣登瑞士银…</a>
+</h2>
+<p>【瑞士银行大客户名单曝光】今日网传李鹏之女“李小琳荣登瑞士银行大客户名单”的多个帖子，此事迅即引发网友热议，不久便遭删帖......微评：曾记得一句著名台词：“全世界我只相信自己和瑞士的银行家”。中国也有句俗话：”世上没有不透风的墙“。试问：李小琳及”李小琳们“，你们相信前者还是后者？<br><img src="http://ww1.sinaimg.cn/large/db1747fcgw1f0vhr7j7wej20ku112n1r.jpg"></p>
+<p>
+	<small> ============== 9小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3941359469036564" target="freeweibo-mirror">SPAM //@华南飞猛: 放到美利坚估计打成筛子！//@中…</a>
 </h2>
 <p>SPAM //@华南飞猛: 放到美利坚估计打成筛子！//@中国公知精神病总院: 这些都是武疯子，他们听不懂道理，相信的只是拳头！[拳头]<br><br>RE: 港毒已经被逼疯了<br><img src="http://ww1.sinaimg.cn/large/005RsgLpjw1f0va309skej30c82lb7iy.jpg"></p>
@@ -84,7 +90,7 @@
 </h2>
 <p>SPAM 不要说亲爹被整得半死，就是被整死，也得感恩孝顺。躬为表率，垂范天下。<br><br>RE: 首先是先孝顺走乂家，有走乂才有家。<br><img src="http://ww4.sinaimg.cn/large/90b3b535gw1f0vcmxlu05j20j70csq4k.jpg"></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3941351479303612" target="freeweibo-mirror">这个窝致辞，以后有人说你不孝顺了，你就说还没有孝顺国家呐，等…</a>
 </h2>
@@ -102,7 +108,7 @@
 </h2>
 <p>首先是先孝顺走乂家，有走乂才有家。<br><img src="http://ww4.sinaimg.cn/large/90b3b535gw1f0vcmxlu05j20j70csq4k.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3941330176840105" target="freeweibo-mirror">SPAM 不错哦[挤眼]</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3941311600213210" target="freeweibo-mirror">SPAM //@Cc_永远18岁:@_小鰻魚 快看！！</a>
 </h2>
 <p>SPAM //@Cc_永远18岁:@_小鰻魚 快看！！</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3941309217757773" target="freeweibo-mirror">【#转基因五毛#滚！】//@青松怒向苍天发: 考验一个人是不…</a>
-</h2>
-<p>【#转基因五毛#滚！】//@青松怒向苍天发: 考验一个人是不是忠于党、忠于社会主义，就是在党和人民利益相冲突的时候，看你是站在党一边还是人民一边。所谓公知，就是不放弃一切机会攻击党的领导，而且总打着人民、反转等幌子。</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
