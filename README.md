@@ -56,6 +56,12 @@
 <p>
 	<small> ============== 7小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3941396299554622" target="freeweibo-mirror">薄熙来在重庆时说：“共同富裕是社会主义最本质的特征和最大优越…</a>
+</h2>
+<p>薄熙来在重庆时说：“共同富裕是社会主义最本质的特征和最大优越性。马克斯在100多年前就说“新社会主义制度中，生产将以所有人的富裕为目的。”毛主席在见国初期就明确指出：“我们建设社会主义的目的，就是要大家有事做，有饭吃，大家共同富裕。”社会主义就是要全国人民共同富裕，不要两极分化”。<br><img src="http://ww4.sinaimg.cn/large/01106953gw1f0vk7ium1xj20dt0dbq3m.jpg"></p>
+<p>
+	<small> ============== 7小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3941359469036564" target="freeweibo-mirror">SPAM //@华南飞猛: 放到美利坚估计打成筛子！//@中…</a>
 </h2>
 <p>SPAM //@华南飞猛: 放到美利坚估计打成筛子！//@中国公知精神病总院: 这些都是武疯子，他们听不懂道理，相信的只是拳头！[拳头]<br><br>RE: 港毒已经被逼疯了<br><img src="http://ww1.sinaimg.cn/large/005RsgLpjw1f0va309skej30c82lb7iy.jpg"></p>
@@ -102,7 +108,7 @@
 </h2>
 <p>SPAM 帅帅哒[熊猫]</p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3941311843031187" target="freeweibo-mirror">SPAM [赞] //@荣剑2001:群众的眼睛是雪亮的！/…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3941305719943288" target="freeweibo-mirror">SPAM [微笑] //@克羅迪厄斯三世:</a>
 </h2>
 <p>SPAM [微笑] //@克羅迪厄斯三世:</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3941290801007892" target="freeweibo-mirror">SPAM //@張芷逢:自不自信，要不要臉都不重要，重要的是…</a>
-</h2>
-<p>SPAM //@張芷逢:自不自信，要不要臉都不重要，重要的是要誓死保住私利！！<br><br>RE: 连春晚都不能评论是一种自信吗？</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
