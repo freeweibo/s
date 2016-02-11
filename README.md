@@ -48,7 +48,7 @@
 </h2>
 <p>这个窝致辞，以后有人说你不孝顺了，你就说还没有孝顺国家呐，等孝顺完国家再孝顺你，而国家永远孝顺不完 //@列那狐的传说:你牛逼你伟大，你跟你妈生你爸//@野蛮人兰斯: 嘿嘿嘿，图穷匕见 //@LeMcDull:央视新闻都开始弄这种，右上角的“走”字真讽刺，不愧是走国，时刻教育全民要孝顺走家人<br><br>RE: 首先是先孝顺走乂家，有走乂才有家。<br><img src="http://ww4.sinaimg.cn/large/90b3b535gw1f0vcmxlu05j20j70csq4k.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3941346782388739" target="freeweibo-mirror">SPAM 学习了。</a>
 </h2>
@@ -108,13 +108,13 @@
 </h2>
 <p>SPAM [微笑] //@克羅迪厄斯三世:</p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3941290801007892" target="freeweibo-mirror">SPAM //@張芷逢:自不自信，要不要臉都不重要，重要的是…</a>
 </h2>
 <p>SPAM //@張芷逢:自不自信，要不要臉都不重要，重要的是要誓死保住私利！！<br><br>RE: 连春晚都不能评论是一种自信吗？</p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3941258592544964" target="freeweibo-mirror">//@任志强:删也没学会。[哈哈] //@任志强:有人说：你…</a>
 </h2>
