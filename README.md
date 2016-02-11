@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3941397830361855" target="freeweibo-mirror">SPAM 发火有啥？吕导也可以发火嘛 //@王小山:回复@目…</a>
+</h2>
+<p>SPAM 发火有啥？吕导也可以发火嘛 //@王小山:回复@目丶田丶人:我爱死冯导了，为什么会骂我？//@目丶田丶人:山哥，你又调皮了。不过我相信冯导应该了解像你这样的人，估计也骂不起来。[嘻嘻]//@王小山:大家互相骂一骂嘛，又不会被禁言。//@o沉淀b:你调侃一下试试，骂死你，哪次不发火？<br><br>RE: 冯小刚做导演，至少你可以调侃他一下，他也不生气，是吧。</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3941359469036564" target="freeweibo-mirror">SPAM //@华南飞猛: 放到美利坚估计打成筛子！//@中…</a>
 </h2>
 <p>SPAM //@华南飞猛: 放到美利坚估计打成筛子！//@中国公知精神病总院: 这些都是武疯子，他们听不懂道理，相信的只是拳头！[拳头]<br><br>RE: 港毒已经被逼疯了<br><img src="http://ww1.sinaimg.cn/large/005RsgLpjw1f0va309skej30c82lb7iy.jpg"></p>
@@ -36,7 +42,7 @@
 </h2>
 <p>这个窝致辞，以后有人说你不孝顺了，你就说还没有孝顺国家呐，等孝顺完国家再孝顺你，而国家永远孝顺不完 //@列那狐的传说:你牛逼你伟大，你跟你妈生你爸//@野蛮人兰斯: 嘿嘿嘿，图穷匕见 //@LeMcDull:央视新闻都开始弄这种，右上角的“走”字真讽刺，不愧是走国，时刻教育全民要孝顺走家人<br><br>RE: 首先是先孝顺走乂家，有走乂才有家。<br><img src="http://ww4.sinaimg.cn/large/90b3b535gw1f0vcmxlu05j20j70csq4k.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3941346782388739" target="freeweibo-mirror">SPAM 学习了。</a>
 </h2>
@@ -90,13 +96,13 @@
 </h2>
 <p>SPAM [微笑] //@克羅迪厄斯三世:</p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3941290801007892" target="freeweibo-mirror">SPAM //@張芷逢:自不自信，要不要臉都不重要，重要的是…</a>
 </h2>
 <p>SPAM //@張芷逢:自不自信，要不要臉都不重要，重要的是要誓死保住私利！！<br><br>RE: 连春晚都不能评论是一种自信吗？</p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3941258592544964" target="freeweibo-mirror">//@任志强:删也没学会。[哈哈] //@任志强:有人说：你…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3941248736168386" target="freeweibo-mirror">“再长的路，一步一步也能走完；再短的路，站着不动就到不了终点…</a>
 </h2>
 <p>“再长的路，一步一步也能走完；再短的路，站着不动就到不了终点。”——最高司令官<br><img src="http://ww1.sinaimg.cn/large/a8ef5277gw1f0v375lb9bj20qo0vfn2x.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3941248274197733" target="freeweibo-mirror">真实信息放出来了，而且官方未屏蔽信息。文章标题：瑞士银行大客…</a>
-</h2>
-<p>真实信息放出来了，而且官方未屏蔽信息。文章标题：瑞士银行大客户。@于建嵘；@南方都市报；@南方周末；http://t.cn/RGqIjAY</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
