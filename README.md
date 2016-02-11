@@ -32,6 +32,12 @@
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3941465941357968" target="freeweibo-mirror">//@贪官多11世://@大藏布:好大的道德档案[哈哈]//…</a>
+</h2>
+<p>//@贪官多11世://@大藏布:好大的道德档案[哈哈]//@王亚军上海: 能力之外的东西等于瑞士银行富豪榜[赞] //@千里马常有:李小鹏与李小林什么关系？[嘻嘻]  http://t.cn/RG5Bxl0<br><br>RE: 【瑞士银行大客户名单曝光】今日网传李鹏之女“李小琳荣登瑞士银行大客户名单”的多个帖子，此事迅即引发网友热议，不久便遭删帖......微评：曾记得一句著名台词：“全世界我只相信自己和瑞士的银行家”。中国也有句俗话：”世上没有不透风的墙“。试问：李小琳及”李小琳们“，你们相信前者还是后者？<br><img src="http://ww1.sinaimg.cn/large/db1747fcgw1f0vhr7j7wej20ku112n1r.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3941458568102266" target="freeweibo-mirror">SPAM wsrffghhhj成Tu人动作#成人动作# TY…</a>
 </h2>
 <p>SPAM wsrffghhhj成Tu人动作#成人动作# TYIO[爱你][害羞][转发][熊猫][打哈气][太阳][悲催][失望][花心]OIU[馋嘴][不要][爱你][爱你][爱你][爱你]#性与爱的那点事# 诚信 诚信拍毛片KJHYT性DH爱 做 爱欲望d<br><img src="http://ww3.sinaimg.cn/large/4212af8fgw1f0vrdf79euj20qo1begqa.jpg"></p>
@@ -66,7 +72,7 @@
 </h2>
 <p>薄熙来在重庆时说：“共同富裕是社会主义最本质的特征和最大优越性。马克斯在100多年前就说“新社会主义制度中，生产将以所有人的富裕为目的。”毛主席在见国初期就明确指出：“我们建设社会主义的目的，就是要大家有事做，有饭吃，大家共同富裕。”社会主义就是要全国人民共同富裕，不要两极分化”。<br><img src="http://ww4.sinaimg.cn/large/01106953gw1f0vk7ium1xj20dt0dbq3m.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3941359469036564" target="freeweibo-mirror">SPAM //@华南飞猛: 放到美利坚估计打成筛子！//@中…</a>
 </h2>
@@ -84,7 +90,7 @@
 </h2>
 <p>这个窝致辞，以后有人说你不孝顺了，你就说还没有孝顺国家呐，等孝顺完国家再孝顺你，而国家永远孝顺不完 //@列那狐的传说:你牛逼你伟大，你跟你妈生你爸//@野蛮人兰斯: 嘿嘿嘿，图穷匕见 //@LeMcDull:央视新闻都开始弄这种，右上角的“走”字真讽刺，不愧是走国，时刻教育全民要孝顺走家人<br><br>RE: 首先是先孝顺走乂家，有走乂才有家。<br><img src="http://ww4.sinaimg.cn/large/90b3b535gw1f0vcmxlu05j20j70csq4k.jpg"></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3941346782388739" target="freeweibo-mirror">SPAM 学习了。</a>
 </h2>
@@ -108,7 +114,7 @@
 </h2>
 <p>冯小刚做导演，至少你可以调侃他一下，他也不生气，是吧。</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3941327668783059" target="freeweibo-mirror">SPAM 帅帅哒[熊猫]</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3941309217757773" target="freeweibo-mirror">【#转基因五毛#滚！】//@青松怒向苍天发: 考验一个人是不…</a>
 </h2>
 <p>【#转基因五毛#滚！】//@青松怒向苍天发: 考验一个人是不是忠于党、忠于社会主义，就是在党和人民利益相冲突的时候，看你是站在党一边还是人民一边。所谓公知，就是不放弃一切机会攻击党的领导，而且总打着人民、反转等幌子。</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3941308030581145" target="freeweibo-mirror">港毒已经被逼疯了</a>
-</h2>
-<p>港毒已经被逼疯了<br><img src="http://ww1.sinaimg.cn/large/005RsgLpjw1f0va309skej30c82lb7iy.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
