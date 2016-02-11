@@ -90,7 +90,7 @@
 </h2>
 <p>名单是真的吗？敬佩这些人，人格闪亮的艺人[good]<br><br>RE: 五毛跟帖指令！<br><img src="http://ww3.sinaimg.cn/large/006m305Cjw1f0uhv1lpygj309m0eamz1.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3941100194689650" target="freeweibo-mirror">[吃惊][吃惊]//@整合之道刘鸿雁:真的假的？[挖鼻]</a>
 </h2>
