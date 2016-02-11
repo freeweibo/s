@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3941452930770442" target="freeweibo-mirror">[围观]文革时，朱教授还太小，其感性记忆真实，此篇权当巴别辞…</a>
+</h2>
+<p>[围观]文革时，朱教授还太小，其感性记忆真实，此篇权当巴别辞条的童真版。<br><br>RE: 发表了一篇转载博文《[转载]新巴别辞典之二：文革》http://t.cn/RGtweVQ<br><img src="http://ww1.sinaimg.cn/large/5408ee85jw1f0vqfuk171j20by0bymxj.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3941427803743275" target="freeweibo-mirror">SPAM uhvhjgh成Tu人动作#成人动作# TYIO[…</a>
 </h2>
 <p>SPAM uhvhjgh成Tu人动作#成人动作# TYIO[爱你][害羞][转发][熊猫][打哈气][太阳][悲催][失望][花心]OIU[馋嘴][不要][爱你][爱你][爱你][爱你]#性与爱的那点事# 诚信 诚信拍毛片KJHYT性DH爱 做 爱欲望dgm<br><img src="http://ww3.sinaimg.cn/large/4212af8fgw1f0vnu6r7tyj20qo1begqa.jpg"></p>
@@ -72,7 +78,7 @@
 </h2>
 <p>冯小刚做导演，至少你可以调侃他一下，他也不生气，是吧。</p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3941327668783059" target="freeweibo-mirror">SPAM 帅帅哒[熊猫]</a>
 </h2>
@@ -114,7 +120,7 @@
 </h2>
 <p>SPAM //@張芷逢:自不自信，要不要臉都不重要，重要的是要誓死保住私利！！<br><br>RE: 连春晚都不能评论是一种自信吗？</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3941258592544964" target="freeweibo-mirror">//@任志强:删也没学会。[哈哈] //@任志强:有人说：你…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3941251558414762" target="freeweibo-mirror">//@于建嵘:最恨这些西方国家的坏分子，专搞假信息，造谣惑众…</a>
 </h2>
 <p>//@于建嵘:最恨这些西方国家的坏分子，专搞假信息，造谣惑众。咱们的道德姐，全凭自己的能力，在国企任职，如何可能成为大客户？！<br><br>RE: 真实信息放出来了，而且官方未屏蔽信息。文章标题：瑞士银行大客户。@于建嵘；@南方都市报；@南方周末；http://t.cn/RGqIjAY</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3941251541889136" target="freeweibo-mirror">非要你叫好，不叫好不行，岂有此理。//@李不白的店: //@…</a>
-</h2>
-<p>非要你叫好，不叫好不行，岂有此理。//@李不白的店: //@饮水居士: //@荣剑2001:忍不住又转了<br><br>RE: 春晚没办好，承认了，也就损失了一场春晚，至少观众还会对明年有所期待。导演底气十足地不知羞耻给自己打满分，官方动员众多公媒指鹿为马般为糟糕的春晚叫好，还拿出毫无依据的数据来说明春晚很成功，损失的就不止是一场春晚了，而是整个公信力。因为一场晚会儿公然站到民众的对立面，不止坏，而且蠢。</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
