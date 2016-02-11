@@ -54,7 +54,7 @@
 </h2>
 <p>SPAM 学习了。<br><br>RE: 首先是先孝顺走乂家，有走乂才有家。<br><img src="http://ww4.sinaimg.cn/large/90b3b535gw1f0vcmxlu05j20j70csq4k.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3941330483019711" target="freeweibo-mirror">首先是先孝顺走乂家，有走乂才有家。</a>
 </h2>
