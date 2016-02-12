@@ -30,7 +30,13 @@
 </h2>
 <p>转网评 “最可怕的事情，不是这台晚会越来越难看，而是我们连说它难看的权利，也渐渐消失殆尽了。”——说的太对了！<br><img src="http://ww2.sinaimg.cn/large/53bd81b0jw1f0wg8oy8x9j20zk0qodk0.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3941641754162401" target="freeweibo-mirror">SPAM 百姓总是要娱乐的。一开始春晚是娱乐，后来娱乐春晚成…</a>
+</h2>
+<p>SPAM 百姓总是要娱乐的。一开始春晚是娱乐，后来娱乐春晚成了娱乐。现在不让娱乐春晚了，春晚背后那副权力的嘴脸就一定会成为娱乐。<br><img src="http://ww3.sinaimg.cn/large/4ce32014jw1f0wccwvhovj20id0f1ac6.jpg"></p>
+<p>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3941638101803095" target="freeweibo-mirror">//@王楚襄在晋国://@成都冯川://@清华孙立平: 人们…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3941471838646705" target="freeweibo-mirror">//@陈光武律师:除了能力一无所有。 //@法律人童朝平: …</a>
 </h2>
 <p>//@陈光武律师:除了能力一无所有。 //@法律人童朝平: //@许合文: //@大藏布:好大的道德档案[哈哈] //@王亚军上海: 能力之外的东西等于瑞士银行富豪榜[赞] //@千里马常有:李小鹏与李小林什么关系？[嘻嘻]   http://t.cn/RG5Bxl0右边高级黑？<br><br>RE: 【瑞士银行大客户名单曝光】今日网传李鹏之女“李小琳荣登瑞士银行大客户名单”的多个帖子，此事迅即引发网友热议，不久便遭删帖......微评：曾记得一句著名台词：“全世界我只相信自己和瑞士的银行家”。中国也有句俗话：”世上没有不透风的墙“。试问：李小琳及”李小琳们“，你们相信前者还是后者？<br><img src="http://ww1.sinaimg.cn/large/db1747fcgw1f0vhr7j7wej20ku112n1r.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3941471302398144" target="freeweibo-mirror">原地转发“群众”（@飚叔钢笔画47 作品）失败，异地转发。[…</a>
-</h2>
-<p>原地转发“群众”（@飚叔钢笔画47 作品）失败，异地转发。[微笑]<br><img src="http://ww2.sinaimg.cn/large/6d8baa34gw1f0vstrexrqj20c80hldj4.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
