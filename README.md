@@ -26,6 +26,12 @@
 <p>
 	<small> ============== 1小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3941689871228694" target="freeweibo-mirror">//@50年矛苔://@法治路由器://@华夏原住民:六十多…</a>
+</h2>
+<p>//@50年矛苔://@法治路由器://@华夏原住民:六十多年来，大陆哪来什么艺术家，只有各种御用的洗脑大师！<br><br>RE: 著名洗脑艺术家死了！他创作了江姐、党的女儿、长征颂、红旗颂、我爱祖国的蓝天等一大批脍炙人口的洗脑产品，参加一年最后一次绝好洗脑机会——春晚的总体设计策划撰稿。“德艺双馨的人民艺术家”，就是给人民洗脑的艺术家。不只是助桀为恶，是以笔害民祸国，曾接受毛太祖接见，现在马毛在无间道等你。<br><img src="http://ww4.sinaimg.cn/large/00662rTfgw1f0wejrghwej30dm0j1gmx.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3941681923494496" target="freeweibo-mirror">今年春晚难看死了，难看死了，难看死了。//@崔小平律师:转发…</a>
 </h2>
 <p>今年春晚难看死了，难看死了，难看死了。//@崔小平律师:转发微博<br><br>RE: 转网评 “最可怕的事情，不是这台晚会越来越难看，而是我们连说它难看的权利，也渐渐消失殆尽了。”——说的太对了！<br><img src="http://ww2.sinaimg.cn/large/53bd81b0jw1f0wg8oy8x9j20zk0qodk0.jpg"></p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3941473634723564" target="freeweibo-mirror">SPAM 超级喜欢~[lxhx奔跑]</a>
 </h2>
 <p>SPAM 超级喜欢~[lxhx奔跑]</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3941473122543069" target="freeweibo-mirror">转发微博 http://t.cn/RGt5FMB</a>
-</h2>
-<p>转发微博 http://t.cn/RGt5FMB<br><br>RE: 【瑞士银行大客户名单曝光】今日网传李鹏之女“李小琳荣登瑞士银行大客户名单”的多个帖子，此事迅即引发网友热议，不久便遭删帖......微评：曾记得一句著名台词：“全世界我只相信自己和瑞士的银行家”。中国也有句俗话：”世上没有不透风的墙“。试问：李小琳及”李小琳们“，你们相信前者还是后者？<br><img src="http://ww1.sinaimg.cn/large/db1747fcgw1f0vhr7j7wej20ku112n1r.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
