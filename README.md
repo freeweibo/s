@@ -78,7 +78,7 @@
 </h2>
 <p>SPAM 百姓总是要娱乐的。一开始春晚是娱乐，后来娱乐春晚成了娱乐。现在不让娱乐春晚了，春晚背后那副权力的嘴脸就一定会成为娱乐。<br><img src="http://ww3.sinaimg.cn/large/4ce32014jw1f0wccwvhovj20id0f1ac6.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3941638101803095" target="freeweibo-mirror">//@王楚襄在晋国://@成都冯川://@清华孙立平: 人们…</a>
 </h2>
