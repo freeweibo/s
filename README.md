@@ -66,7 +66,7 @@
 </h2>
 <p>SPAM 百姓总是要娱乐的。一开始春晚是娱乐，后来娱乐春晚成了娱乐。现在不让娱乐春晚了，春晚背后那副权力的嘴脸就一定会成为娱乐。<br><img src="http://ww3.sinaimg.cn/large/4ce32014jw1f0wccwvhovj20id0f1ac6.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3941638101803095" target="freeweibo-mirror">//@王楚襄在晋国://@成都冯川://@清华孙立平: 人们…</a>
 </h2>
@@ -84,7 +84,7 @@
 </h2>
 <p>初五了，早上看央视新闻节目，还在自我表扬，这是准备表扬到什么时候？<br><br>RE: 应当说，当前中国经济处在一个很艰难且险象环生的时刻。在这样的情况下，信心是一个重要的因素。而信心取决于对未来的明确而稳定的预期。问题是，现在发出的种种信号往往是与此相悖的。包括今年的春晚，别的不说，给出的信号是什么？从而对改革和经济前景预期的影响是什么？对资本外流的影响是什么？<br><img src="http://ww1.sinaimg.cn/large/408bb143jw1f0w8h1l3idj214a0qok48.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3941609915496745" target="freeweibo-mirror">应当说，当前中国经济处在一个很艰难且险象环生的时刻。在这样的…</a>
 </h2>
