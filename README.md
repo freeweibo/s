@@ -42,7 +42,7 @@
 </h2>
 <p>这个微博身份是真的假的？ //@侯宁:改开的基础。//@罗昌平: [疑问][思考]<br><br>RE: 王岐山绝密讲话视频http://t.cn/RGG0EUY（使用#秒拍#录制）</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3941701003500334" target="freeweibo-mirror">[疑问][思考]</a>
 </h2>
