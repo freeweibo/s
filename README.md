@@ -48,7 +48,7 @@
 </h2>
 <p>今年春晚难看死了，难看死了，难看死了。//@崔小平律师:转发微博<br><br>RE: 转网评 “最可怕的事情，不是这台晚会越来越难看，而是我们连说它难看的权利，也渐渐消失殆尽了。”——说的太对了！<br><img src="http://ww2.sinaimg.cn/large/53bd81b0jw1f0wg8oy8x9j20zk0qodk0.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3941675246395766" target="freeweibo-mirror">转网评 “最可怕的事情，不是这台晚会越来越难看，而是我们连说…</a>
 </h2>
