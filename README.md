@@ -66,7 +66,7 @@
 </h2>
 <p>转网评 “最可怕的事情，不是这台晚会越来越难看，而是我们连说它难看的权利，也渐渐消失殆尽了。”——说的太对了！<br><img src="http://ww2.sinaimg.cn/large/53bd81b0jw1f0wg8oy8x9j20zk0qodk0.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3941660356594116" target="freeweibo-mirror">著名洗脑艺术家死了！他创作了江姐、党的女儿、长征颂、红旗颂、…</a>
 </h2>
