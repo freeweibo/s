@@ -30,7 +30,7 @@
 </h2>
 <p>//@50年矛苔://@法治路由器://@华夏原住民:六十多年来，大陆哪来什么艺术家，只有各种御用的洗脑大师！<br><br>RE: 著名洗脑艺术家死了！他创作了江姐、党的女儿、长征颂、红旗颂、我爱祖国的蓝天等一大批脍炙人口的洗脑产品，参加一年最后一次绝好洗脑机会——春晚的总体设计策划撰稿。“德艺双馨的人民艺术家”，就是给人民洗脑的艺术家。不只是助桀为恶，是以笔害民祸国，曾接受毛太祖接见，现在马毛在无间道等你。<br><img src="http://ww4.sinaimg.cn/large/00662rTfgw1f0wejrghwej30dm0j1gmx.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3941681923494496" target="freeweibo-mirror">今年春晚难看死了，难看死了，难看死了。//@崔小平律师:转发…</a>
 </h2>
@@ -86,6 +86,12 @@
 <p>
 	<small> ============== 1天前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3941508942077762" target="freeweibo-mirror">王岐山绝密讲话视频http://t.cn/RGG0EUY（使…</a>
+</h2>
+<p>王岐山绝密讲话视频http://t.cn/RGG0EUY（使用#秒拍#录制）</p>
+<p>
+	<small> ============== 1天前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3941491582315109" target="freeweibo-mirror">俺不信，人家妹子有道德！</a>
 </h2>
 <p>俺不信，人家妹子有道德！<br><br>RE: 【瑞士银行大客户名单曝光】今日网传李鹏之女“李小琳荣登瑞士银行大客户名单”的多个帖子，此事迅即引发网友热议，不久便遭删帖......微评：曾记得一句著名台词：“全世界我只相信自己和瑞士的银行家”。中国也有句俗话：”世上没有不透风的墙“。试问：李小琳及”李小琳们“，你们相信前者还是后者？<br><img src="http://ww1.sinaimg.cn/large/db1747fcgw1f0vhr7j7wej20ku112n1r.jpg"></p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3941477317149303" target="freeweibo-mirror">SPAM 回复@李俊晓:姐？怕脏了人嘴。//@李俊晓:恭喜小…</a>
 </h2>
 <p>SPAM 回复@李俊晓:姐？怕脏了人嘴。//@李俊晓:恭喜小琳姐，能说一下存多少钱才算是瑞士银行大客户？[哈哈]<br><br>RE: 【瑞士银行大客户名单曝光】今日网传李鹏之女“李小琳荣登瑞士银行大客户名单”的多个帖子，此事迅即引发网友热议，不久便遭删帖......微评：曾记得一句著名台词：“全世界我只相信自己和瑞士的银行家”。中国也有句俗话：”世上没有不透风的墙“。试问：李小琳及”李小琳们“，你们相信前者还是后者？<br><img src="http://ww1.sinaimg.cn/large/db1747fcgw1f0vhr7j7wej20ku112n1r.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3941474893241953" target="freeweibo-mirror">//@童之伟: 从法学角度看，这类作品有助于促进治理方式改革…</a>
-</h2>
-<p>//@童之伟: 从法学角度看，这类作品有助于促进治理方式改革。掌权者没必要太积极地作为，无为而治的效果有时胜过有为。装神弄鬼，久而久之，到后来只能糊弄自己。<br><br>RE: 原地转发“群众”（@飚叔钢笔画47 作品）失败，异地转发。[微笑]<br><img src="http://ww2.sinaimg.cn/large/6d8baa34gw1f0vstrexrqj20c80hldj4.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
