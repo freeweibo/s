@@ -126,7 +126,7 @@
 </h2>
 <p>[围观]文革时，朱教授还太小，其感性记忆真实，此篇权当巴别辞条的童真版。<br><br>RE: 发表了一篇转载博文《[转载]新巴别辞典之二：文革》http://t.cn/RGtweVQ<br><img src="http://ww1.sinaimg.cn/large/5408ee85jw1f0vqfuk171j20by0bymxj.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3941450427399134" target="freeweibo-mirror">发表了一篇转载博文《[转载]新巴别辞典之二：文革》http:…</a>
 </h2>
