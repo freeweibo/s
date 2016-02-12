@@ -54,13 +54,13 @@
 </h2>
 <p>转网评 “最可怕的事情，不是这台晚会越来越难看，而是我们连说它难看的权利，也渐渐消失殆尽了。”——说的太对了！<br><img src="http://ww2.sinaimg.cn/large/53bd81b0jw1f0wg8oy8x9j20zk0qodk0.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3941660356594116" target="freeweibo-mirror">著名洗脑艺术家死了！他创作了江姐、党的女儿、长征颂、红旗颂、…</a>
 </h2>
 <p>著名洗脑艺术家死了！他创作了江姐、党的女儿、长征颂、红旗颂、我爱祖国的蓝天等一大批脍炙人口的洗脑产品，参加一年最后一次绝好洗脑机会——春晚的总体设计策划撰稿。“德艺双馨的人民艺术家”，就是给人民洗脑的艺术家。不只是助桀为恶，是以笔害民祸国，曾接受毛太祖接见，现在马毛在无间道等你。<br><img src="http://ww4.sinaimg.cn/large/00662rTfgw1f0wejrghwej30dm0j1gmx.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3941641754162401" target="freeweibo-mirror">SPAM 百姓总是要娱乐的。一开始春晚是娱乐，后来娱乐春晚成…</a>
 </h2>
