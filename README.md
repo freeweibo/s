@@ -60,13 +60,13 @@
 </h2>
 <p>//@王甫律师: //@童之伟:从法学角度看，这类作品有助于促进治理方式改革。掌权者没必要太积极地作为，无为而治的效果有时胜过有为。装神弄鬼，久而久之，到后来只能糊弄自己。<br><br>RE: 原地转发“群众”（@飚叔钢笔画47 作品）失败，异地转发。[微笑]<br><img src="http://ww2.sinaimg.cn/large/6d8baa34gw1f0vstrexrqj20c80hldj4.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3941485797648484" target="freeweibo-mirror">//@童之伟:从法学角度看，这类作品有助于促进治理方式改革。…</a>
 </h2>
 <p>//@童之伟:从法学角度看，这类作品有助于促进治理方式改革。掌权者没必要太积极地作为，无为而治的效果有时胜过有为。装神弄鬼，久而久之，到后来只能糊弄自己。<br><br>RE: 原地转发“群众”（@飚叔钢笔画47 作品）失败，异地转发。[微笑]<br><img src="http://ww2.sinaimg.cn/large/6d8baa34gw1f0vstrexrqj20c80hldj4.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3941482535078733" target="freeweibo-mirror">SPAM //@玲瀚: 我最恨不劳而获之流，也最恶心剥削有理…</a>
 </h2>
