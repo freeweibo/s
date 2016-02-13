@@ -126,7 +126,7 @@
 </h2>
 <p>准备回家看春碗。只听说不许评论，不知回去还有录像回放吗？</p>
 <p>
-	<small> ============== 1天前</small>
+	<small> ============== 2天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3941491582315109" target="freeweibo-mirror">俺不信，人家妹子有道德！</a>
 </h2>
