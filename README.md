@@ -24,7 +24,7 @@
 </h2>
 <p>SPAM //@奇葩国的奴隶://@李宝健://@常州姚宝华家属://@另类无敌:太有智慧了[哈哈]</p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3941737858935153" target="freeweibo-mirror">SPAM 帅气[好棒]</a>
 </h2>
@@ -114,7 +114,7 @@
 </h2>
 <p>【回不去的老香港】@： 我還是很懷念英治下的香港，因為大年初一至二，拜年而不夠車位在街上泊車，也不會被罰告票；……有牌無牌小販在街上賣小食，也不會有食環趕走或警察拘捕。由往年開始，大年初一都會吃告票……由今年開始，大家在旺角吃小食的權利都被沒收了。這個政府連一天安穩日子都不願給香港<br><img src="http://ww3.sinaimg.cn/large/006nvHmDjw1f0w03jeif2j30dc1i945x.jpg"></p>
 <p>
-	<small> ============== 1天前</small>
+	<small> ============== 2天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3941508942077762" target="freeweibo-mirror">王岐山绝密讲话视频http://t.cn/RGG0EUY（使…</a>
 </h2>
