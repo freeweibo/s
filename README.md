@@ -120,7 +120,7 @@
 </h2>
 <p>王岐山绝密讲话视频http://t.cn/RGG0EUY（使用#秒拍#录制）</p>
 <p>
-	<small> ============== 1天前</small>
+	<small> ============== 2天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3941495306318866" target="freeweibo-mirror">准备回家看春碗。只听说不许评论，不知回去还有录像回放吗？</a>
 </h2>
