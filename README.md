@@ -36,7 +36,7 @@
 </h2>
 <p>ཆབ་མདོ་ཁྱི་མོ་རྫོང་ནས་རེད།@萨吾奇 @图伯特女儿TseringKyi @玛曲奥赛 @阿翅A @柔吉 @东格桑 @顶科-毒解 @西藏心灯<br><img src="http://ww2.sinaimg.cn/large/006bR9Lwjw1f0xkgk6lquj30hs0vk77w.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3941950044482465" target="freeweibo-mirror">SPAM //@奇葩国的奴隶://@李宝健://@常州姚宝华…</a>
 </h2>
