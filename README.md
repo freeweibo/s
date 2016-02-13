@@ -36,7 +36,7 @@
 </h2>
 <p>SPAM 无法反驳。</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3942168437508726" target="freeweibo-mirror">SPAM 来，说一句话，证明你是最欠揍的人！ http://…</a>
 </h2>
