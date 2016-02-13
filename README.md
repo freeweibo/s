@@ -42,7 +42,7 @@
 </h2>
 <p>SPAM 来，说一句话，证明你是最欠揍的人！ http://t.cn/RGVlmQN .</p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3942137361642183" target="freeweibo-mirror">//@墙国3V://@7的代言://@章鱼小笑:小粉红 //…</a>
 </h2>
