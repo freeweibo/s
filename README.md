@@ -42,7 +42,7 @@
 </h2>
 <p>SPAM 来，说一句话，证明你是最欠揍的人！ http://t.cn/RGVlmQN .</p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3942137361642183" target="freeweibo-mirror">//@墙国3V://@7的代言://@章鱼小笑:小粉红 //…</a>
 </h2>
@@ -54,7 +54,7 @@
 </h2>
 <p>//@越王尝胆前世://@晨曦的北斗:还是做猪舒服[挖鼻]赞英国小伙[赞]//@传播正能量1314://@练习一册://@奇葩国的奴隶://@李宝健:转发微博</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3942114377065788" target="freeweibo-mirror">SPAM 国家一级保护动物ཡིན་ཞེས་ཁྲིམས་ཀྱི…</a>
 </h2>
