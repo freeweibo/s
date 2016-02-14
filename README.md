@@ -30,7 +30,7 @@
 </h2>
 <p>SPAM 看牌子上的内容，估计这位上井冈山了。好一笔破字，造反之前能找@司马南 @司马平邦 学学书法么。<br><br>RE: 成都网友蒋先健，网名@道理没国界，电话：18109023859，失联48小时，请扩散寻人[作揖]<br><img src="http://ww2.sinaimg.cn/large/0066ilVWjw1f0xucwak5oj30dv0kudhf.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3942389737685374" target="freeweibo-mirror">你敢骂毛泽东，你就有罪不得好死[吃惊]。金妹其它的听不懂，大…</a>
 </h2>
@@ -48,7 +48,7 @@
 </h2>
 <p>SPAM @捣乱仁波切 ： 凌晨到达天津第一看守所，陪屠夫过生日。原本想浪漫一下，点上蜡烛，可惜，风太大[大哭]，原本想坐在大墙下面吃完蛋糕，可惜，雪后的天津太特么冷啦！[抓狂]，屠夫啊，不是兄弟们不仗义，实在是冻得鼻子都快掉了，回酒店替你吃蛋糕啦！<br><img src="http://ww3.sinaimg.cn/large/006bIW6djw1f0ymeh1zbxj31be0qo77g.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3942343511876063" target="freeweibo-mirror">希望民意能起作用。//@侠骨柔情的杨华:此条微博在不到十个小…</a>
 </h2>
