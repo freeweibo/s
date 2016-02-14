@@ -26,6 +26,12 @@
 <p>
 	<small> ============== 1小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3942476328671913" target="freeweibo-mirror">SPAM 看牌子上的内容，估计这位上井冈山了。好一笔破字，造…</a>
+</h2>
+<p>SPAM 看牌子上的内容，估计这位上井冈山了。好一笔破字，造反之前能找@司马南 @司马平邦 学学书法么。<br><br>RE: 成都网友蒋先健，网名@道理没国界，电话：18109023859，失联48小时，请扩散寻人[作揖]<br><img src="http://ww2.sinaimg.cn/large/0066ilVWjw1f0xucwak5oj30dv0kudhf.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3942389737685374" target="freeweibo-mirror">你敢骂毛泽东，你就有罪不得好死[吃惊]。金妹其它的听不懂，大…</a>
 </h2>
 <p>你敢骂毛泽东，你就有罪不得好死[吃惊]。金妹其它的听不懂，大家帮忙翻译一下[话筒] http://t.cn/RGfKKEm .</p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3941734088634379" target="freeweibo-mirror">SPAM 萌萌哒[江南style]</a>
 </h2>
 <p>SPAM 萌萌哒[江南style]</p>
-<p>
-	<small> ============== 2天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3941711132341426" target="freeweibo-mirror">1.和身边那些同样年纪的老人讲的一样吗？2.这是简单的怀旧？…</a>
-</h2>
-<p>1.和身边那些同样年纪的老人讲的一样吗？2.这是简单的怀旧？还是要以此为思路？3.我已经梦回内个年代，认真研读《五金工具大全》了<br><br>RE: 王岐山绝密讲话视频http://t.cn/RGG0EUY（使用#秒拍#录制）</p>
 <p>
 	<small> ============== 2天前</small>
 </p>
