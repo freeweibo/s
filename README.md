@@ -44,6 +44,12 @@
 <p>
 	<small> ============== 1天前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3942185202661915" target="freeweibo-mirror">【呼吁央视】据网友@杨昭友昆仑松魂 消息，央视将邀请@刘桂娟…</a>
+</h2>
+<p>【呼吁央视】据网友@杨昭友昆仑松魂 消息，央视将邀请@刘桂娟 上今年的元宵晚会。呼吁央视禁止刘桂娟在其任何频道的任何节目中露脸！理由请见截图。赞同我呼吁的，请转发！[话筒][话筒]<br><img src="http://ww1.sinaimg.cn/large/811168e6gw1f0y2qs6gytj20gt09sgme.jpg"></p>
+<p>
+	<small> ============== 1天前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3942172031715025" target="freeweibo-mirror">SPAM 无法反驳。</a>
 </h2>
 <p>SPAM 无法反驳。</p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3941681923494496" target="freeweibo-mirror">今年春晚难看死了，难看死了，难看死了。//@崔小平律师:转发…</a>
 </h2>
 <p>今年春晚难看死了，难看死了，难看死了。//@崔小平律师:转发微博<br><br>RE: 转网评 “最可怕的事情，不是这台晚会越来越难看，而是我们连说它难看的权利，也渐渐消失殆尽了。”——说的太对了！<br><img src="http://ww2.sinaimg.cn/large/53bd81b0jw1f0wg8oy8x9j20zk0qodk0.jpg"></p>
-<p>
-	<small> ============== 2天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3941675246395766" target="freeweibo-mirror">转网评 “最可怕的事情，不是这台晚会越来越难看，而是我们连说…</a>
-</h2>
-<p>转网评 “最可怕的事情，不是这台晚会越来越难看，而是我们连说它难看的权利，也渐渐消失殆尽了。”——说的太对了！<br><img src="http://ww2.sinaimg.cn/large/53bd81b0jw1f0wg8oy8x9j20zk0qodk0.jpg"></p>
 <p>
 	<small> ============== 2天前</small>
 </p>
