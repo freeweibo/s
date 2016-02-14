@@ -54,7 +54,7 @@
 </h2>
 <p>一个男孩问他的父亲：“为什么台湾的国旗上有个太阳？”父亲说：“因为他们生活在阳光下。”男孩又问：“为什么中国的国旗上全是星星？”父亲说：“因为我们生活在黑夜里”。[哈哈]<br><img src="http://ww3.sinaimg.cn/large/006g6G5Vjw1f0ysb8b9kxj303r02it8i.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3942389737685374" target="freeweibo-mirror">你敢骂毛泽东，你就有罪不得好死[吃惊]。金妹其它的听不懂，大…</a>
 </h2>
