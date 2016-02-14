@@ -54,7 +54,7 @@
 </h2>
 <p>你敢骂毛泽东，你就有罪不得好死[吃惊]。金妹其它的听不懂，大家帮忙翻译一下[话筒] http://t.cn/RGfKKEm .</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3942388608697423" target="freeweibo-mirror">//@核平猪圈:转发微博</a>
 </h2>
