@@ -114,7 +114,7 @@
 </h2>
 <p>SPAM //@奇葩国的奴隶://@李宝健://@常州姚宝华家属://@另类无敌:太有智慧了[哈哈]</p>
 <p>
-	<small> ============== 1天前</small>
+	<small> ============== 2天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3941737858935153" target="freeweibo-mirror">SPAM 帅气[好棒]</a>
 </h2>
