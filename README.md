@@ -24,7 +24,7 @@
 </h2>
 <p>SPAM Taiwan Province, PRC//@yubarnet:應該改成Chinese Taiwan<br><br>RE: 台灣就是台灣！ 觀眾席高掛醒目標語<br><img src="http://ww2.sinaimg.cn/large/006m2XEtjw1f0ym0dd6n8j30p018g4a7.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3942514815369303" target="freeweibo-mirror">//@墨爷鞋袜店:@小爷是怪咖 @Yoo_草太 @Aa_乔小…</a>
 </h2>
@@ -60,7 +60,7 @@
 </h2>
 <p>//@核平猪圈:转发微博</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3942355676044304" target="freeweibo-mirror">SPAM @捣乱仁波切 ： 凌晨到达天津第一看守所，陪屠夫过…</a>
 </h2>
