@@ -114,7 +114,7 @@
 </h2>
 <p>台灣就是台灣！ 觀眾席高掛醒目標語<br><img src="http://ww2.sinaimg.cn/large/006m2XEtjw1f0ym0dd6n8j30p018g4a7.jpg"></p>
 <p>
-	<small> ============== 1天前</small>
+	<small> ============== 2天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3942343511876063" target="freeweibo-mirror">希望民意能起作用。//@侠骨柔情的杨华:此条微博在不到十个小…</a>
 </h2>
