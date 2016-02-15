@@ -120,7 +120,7 @@
 </h2>
 <p>SPAM 全国统一假期结束！珍惜最后的美好时光，一部精彩的电影送给你！http://t.cn/RbkZGEa</p>
 <p>
-	<small> ============== 1天前</small>
+	<small> ============== 2天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3942185202661915" target="freeweibo-mirror">【呼吁央视】据网友@杨昭友昆仑松魂 消息，央视将邀请@刘桂娟…</a>
 </h2>
