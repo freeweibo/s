@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3942796358454021" target="freeweibo-mirror">//@猗舞:都怕自己吃亏，渴望别人发声别人牺牲获得权益。 /…</a>
+</h2>
+<p>//@猗舞:都怕自己吃亏，渴望别人发声别人牺牲获得权益。 //@北疆观点:转发微博<br><br>RE: 让大部分人处于穷乏之中；让人们为吃饭而活着；让人民没有保障的生存；成年累月为生存奔波，这样就无法追求什么民主自由甚至公平，人们即便不满，也不敢去抗争，就因为权大于法。<br><img src="http://ww4.sinaimg.cn/large/006bND46gw1f0zpw6g5bej30bn0biaaf.jpg"></p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3942736648718353" target="freeweibo-mirror">SPAM //@霸刀门:多么可爱的领悟啊！</a>
 </h2>
 <p>SPAM //@霸刀门:多么可爱的领悟啊！<br><br>RE: #节节高#情人节后，妇女节来了。意思是你奏变成一位妇女; 妇女后是愚人节，变成了妇女后才发现自己被骗上当了; 愚人节后是劳动节，发现自己被骗的时候，已经晚了 只能当牛做马了; 劳动节后是儿童节，天啊还要生孩子。儿童节后是建D节。于是悲催的发现，这一切竟然是阻止上早就安排好的！人生步步是陷阱<br><img src="http://ww4.sinaimg.cn/large/42412704jw1f0zsab4st0j20hs0nqmyk.jpg"></p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3942193041080641" target="freeweibo-mirror">SPAM 全国统一假期结束！珍惜最后的美好时光，一部精彩的电…</a>
 </h2>
 <p>SPAM 全国统一假期结束！珍惜最后的美好时光，一部精彩的电影送给你！http://t.cn/RbkZGEa</p>
-<p>
-	<small> ============== 2天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3942185202661915" target="freeweibo-mirror">【呼吁央视】据网友@杨昭友昆仑松魂 消息，央视将邀请@刘桂娟…</a>
-</h2>
-<p>【呼吁央视】据网友@杨昭友昆仑松魂 消息，央视将邀请@刘桂娟 上今年的元宵晚会。呼吁央视禁止刘桂娟在其任何频道的任何节目中露脸！理由请见截图。赞同我呼吁的，请转发！[话筒][话筒]<br><img src="http://ww1.sinaimg.cn/large/811168e6gw1f0y2qs6gytj20gt09sgme.jpg"></p>
 <p>
 	<small> ============== 2天前</small>
 </p>
