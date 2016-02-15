@@ -126,7 +126,7 @@
 </h2>
 <p>【朴槿惠对中国的失望已达“愤怒”程度】中国始终对制裁朝鲜持消极态度。朴槿惠决定和美国商讨在韩部署萨德反导系统，并取消总理黄教安出席中国博鳌论坛行程。外交人士表示，朴槿惠去年还不顾韩国舆论反对，去北京参加抗日纪念活动，现在心里有“中国怎么可以这样对待我”的感觉。http://t.cn/RGfvREP<br><img src="http://ww1.sinaimg.cn/large/6298156bgw1f0yjbog0u8j20m80t3acr.jpg"></p>
 <p>
-	<small> ============== 1天前</small>
+	<small> ============== 2天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3942300357230264" target="freeweibo-mirror">SPAM //@尘世里遇见:看标题足矣！[赞]顺推率妮～[微…</a>
 </h2>
