@@ -42,13 +42,13 @@
 </h2>
 <p>让大部分人处于穷乏之中；让人们为吃饭而活着；让人民没有保障的生存；成年累月为生存奔波，这样就无法追求什么民主自由甚至公平，人们即便不满，也不敢去抗争，就因为权大于法。<br><img src="http://ww4.sinaimg.cn/large/006bND46gw1f0zpw6g5bej30bn0biaaf.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3942692889421167" target="freeweibo-mirror">//@V一骑绝尘V://@LifeTime://@年轻的沙狐…</a>
 </h2>
 <p>//@V一骑绝尘V://@LifeTime://@年轻的沙狐隆美尔:转发示众 //@老杜找乐儿:清楚记得这个人和那个新闻</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3942567395316589" target="freeweibo-mirror">//@公民社会2017: 表情代表了一切。 //@翻译驴:转…</a>
 </h2>
