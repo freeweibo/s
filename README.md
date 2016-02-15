@@ -108,7 +108,7 @@
 </h2>
 <p>SPAM @捣乱仁波切 ： 凌晨到达天津第一看守所，陪屠夫过生日。原本想浪漫一下，点上蜡烛，可惜，风太大[大哭]，原本想坐在大墙下面吃完蛋糕，可惜，雪后的天津太特么冷啦！[抓狂]，屠夫啊，不是兄弟们不仗义，实在是冻得鼻子都快掉了，回酒店替你吃蛋糕啦！<br><img src="http://ww3.sinaimg.cn/large/006bIW6djw1f0ymeh1zbxj31be0qo77g.jpg"></p>
 <p>
-	<small> ============== 1天前</small>
+	<small> ============== 2天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3942352244662204" target="freeweibo-mirror">台灣就是台灣！ 觀眾席高掛醒目標語</a>
 </h2>
