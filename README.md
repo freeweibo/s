@@ -36,7 +36,7 @@
 </h2>
 <p>//@猗舞:都怕自己吃亏，渴望别人发声别人牺牲获得权益。 //@北疆观点:转发微博<br><br>RE: 让大部分人处于穷乏之中；让人们为吃饭而活着；让人民没有保障的生存；成年累月为生存奔波，这样就无法追求什么民主自由甚至公平，人们即便不满，也不敢去抗争，就因为权大于法。<br><img src="http://ww4.sinaimg.cn/large/006bND46gw1f0zpw6g5bej30bn0biaaf.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3942736648718353" target="freeweibo-mirror">SPAM //@霸刀门:多么可爱的领悟啊！</a>
 </h2>
