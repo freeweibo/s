@@ -30,7 +30,7 @@
 </h2>
 <p>//@女游msh: 转发微博</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3942854407829961" target="freeweibo-mirror">SPAM @兰州新闻哥:#求证# 【网爆: 天水甘谷县看守所…</a>
 </h2>
