@@ -60,7 +60,7 @@
 </h2>
 <p>//@六安自媒体://@夙生律师事务所:今年的全国两会上还能见到倪萍的身影吗？//@Lucia122: @lilith30 [笑cry] //@章诒和://@徐昕: //@做个安静的哲人:有一种爱国叫做精致的利己主义<br><br>RE: 【 韩志国：倪萍不糊涂 】 倪萍当政协委员从不投反对票不给国家添乱，说明她知道国家希望什么人当政协委员，这是孝顺国家。倪萍让儿子去美国留学，说明她知道什么样的教育才能让孩子健康成长，这是望子成龙。倪萍选择加拿大作为移民国家，说明她知道什么国家和社会才能让自己安居乐业，这是趋利避害。</p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3943213297063336" target="freeweibo-mirror">//@王双增的博客: //@邓相超: //@几任支书害我妻离…</a>
 </h2>
@@ -108,13 +108,13 @@
 </h2>
 <p>这是各大网站的首页新闻，就简单评论了几句，早上的这条微博就只能评，不能转。新浪做得过分了，有必要吗？自信，自信，自信，非常重要！<br><img src="http://ww1.sinaimg.cn/large/df1b0723gw1f1184c3efdj21340cn0w3.jpg"></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3943171325360493" target="freeweibo-mirror">SPAM 我什么都没有说。事实证明：金融圈八故事的速度堪比下…</a>
 </h2>
 <p>SPAM 我什么都没有说。事实证明：金融圈八故事的速度堪比下单。<br><img src="http://ww1.sinaimg.cn/large/7c1d7ba8gw1f1182t7a8xj20ch0hg40i.jpg"></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3943149451455401" target="freeweibo-mirror">SPAM //@寻找自干五: //@王敏竹--反计救国: /…</a>
 </h2>
