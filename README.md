@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3943079079345985" target="freeweibo-mirror">【标题党和“推理党”】1.这帖子2012年就出来了。2.请注…</a>
+</h2>
+<p>【标题党和“推理党”】1.这帖子2012年就出来了。2.请注意标点符号，先是引用王讲话“…”【重点在后面】，然后得出结论，所以……【也就是说后面这段，不是王说的】…3.到了后来，这帖子就变成了“王说：谁在…就是……”… http://t.cn/RGxcf7R<br><br>RE: 这个帖子我足足看了5分钟。<br><img src="http://ww1.sinaimg.cn/large/8fdf46d6gw1f10fz8232lj20ci0m8gmx.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3943057903290911" target="freeweibo-mirror">SPAM 不太相信。//@首席观察: 无产阶级实干家！ //…</a>
 </h2>
 <p>SPAM 不太相信。//@首席观察: 无产阶级实干家！ //@闵玉平:简直难以置信。 //@昕静自然好:没想跟他们共妻吧？ //@律师文摘: //@嵇康门下01: //@葛永喜律师:看看官员们都这么富有，我真想和他们共产</p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3942388608697423" target="freeweibo-mirror">//@核平猪圈:转发微博</a>
 </h2>
 <p>//@核平猪圈:转发微博</p>
-<p>
-	<small> ============== 2天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3942355676044304" target="freeweibo-mirror">SPAM @捣乱仁波切 ： 凌晨到达天津第一看守所，陪屠夫过…</a>
-</h2>
-<p>SPAM @捣乱仁波切 ： 凌晨到达天津第一看守所，陪屠夫过生日。原本想浪漫一下，点上蜡烛，可惜，风太大[大哭]，原本想坐在大墙下面吃完蛋糕，可惜，雪后的天津太特么冷啦！[抓狂]，屠夫啊，不是兄弟们不仗义，实在是冻得鼻子都快掉了，回酒店替你吃蛋糕啦！<br><img src="http://ww3.sinaimg.cn/large/006bIW6djw1f0ymeh1zbxj31be0qo77g.jpg"></p>
 <p>
 	<small> ============== 2天前</small>
 </p>
