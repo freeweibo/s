@@ -24,7 +24,7 @@
 </h2>
 <p>SPAM 不太相信。//@首席观察: 无产阶级实干家！ //@闵玉平:简直难以置信。 //@昕静自然好:没想跟他们共妻吧？ //@律师文摘: //@嵇康门下01: //@葛永喜律师:看看官员们都这么富有，我真想和他们共产</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3943055222876779" target="freeweibo-mirror">SPAM  //@自由职业者在浦东: //@昕静自然好:没想…</a>
 </h2>
@@ -84,7 +84,7 @@
 </h2>
 <p>//@公民社会2017: 表情代表了一切。 //@翻译驴:转发微博<br><br>RE: 【朴槿惠对中国的失望已达“愤怒”程度】中国始终对制裁朝鲜持消极态度。朴槿惠决定和美国商讨在韩部署萨德反导系统，并取消总理黄教安出席中国博鳌论坛行程。外交人士表示，朴槿惠去年还不顾韩国舆论反对，去北京参加抗日纪念活动，现在心里有“中国怎么可以这样对待我”的感觉。http://t.cn/RGfvREP<br><img src="http://ww1.sinaimg.cn/large/6298156bgw1f0yjbog0u8j20m80t3acr.jpg"></p>
 <p>
-	<small> ============== 1天前</small>
+	<small> ============== 2天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3942517722690110" target="freeweibo-mirror">SPAM Taiwan Province, PRC//@yu…</a>
 </h2>
