@@ -24,7 +24,7 @@
 </h2>
 <p>SPAM 真的假的？[哈哈][哈哈][哈哈]<br><br>RE: 王岐山：谁再删帖谁就是和中央唱反调！[赞][思考]微博小秘书，要记住哦！[笑cry]<br><img src="http://ww1.sinaimg.cn/large/6d076215jw1f10dqy0qhcj20ci0m8dh7.jpg"></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3942876427530649" target="freeweibo-mirror">//@女游msh: 转发微博</a>
 </h2>
