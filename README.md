@@ -24,7 +24,7 @@
 </h2>
 <p>咳咳…<br><br>RE: 这是各大网站的首页新闻，就简单评论了几句，早上的这条微博就只能评，不能转。新浪做得过分了，有必要吗？自信，自信，自信，非常重要！<br><img src="http://ww1.sinaimg.cn/large/df1b0723gw1f1184c3efdj21340cn0w3.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3943171325360493" target="freeweibo-mirror">SPAM 我什么都没有说。事实证明：金融圈八故事的速度堪比下…</a>
 </h2>
