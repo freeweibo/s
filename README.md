@@ -108,7 +108,7 @@
 </h2>
 <p>【标题党和“推理党”】1.这帖子2012年就出来了。2.请注意标点符号，先是引用王讲话“…”【重点在后面】，然后得出结论，所以……【也就是说后面这段，不是王说的】…3.到了后来，这帖子就变成了“王说：谁在…就是……”… http://t.cn/RGxcf7R<br><br>RE: 这个帖子我足足看了5分钟。<br><img src="http://ww1.sinaimg.cn/large/8fdf46d6gw1f10fz8232lj20ci0m8gmx.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3943077473470503" target="freeweibo-mirror">现实很残酷，祸来名灭不由人。</a>
 </h2>
