@@ -26,6 +26,12 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3943560908329001" target="freeweibo-mirror">【鑫琦资产被爆陷19亿兑付危机 张铁林曾为其代言】17日，众…</a>
+</h2>
+<p>【鑫琦资产被爆陷19亿兑付危机 张铁林曾为其代言】17日，众多投资者聚集在鑫琦资产管理公司上海分公司的门前维权，他们收到信息，被告知利息将被停止支付，本金能否回收也不确定，该公司涉及资金19亿元，共有投资者5000人左右。16日，鑫琦资产高层被警方带走。http://t.cn/RGJkbyo<br><img src="http://ww2.sinaimg.cn/large/657e68d0gw1f12gtpfo4tj20c309v3z0.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3943558434535603" target="freeweibo-mirror">SPAM 为啥能这么相信骗子？</a>
 </h2>
 <p>SPAM 为啥能这么相信骗子？</p>
@@ -66,7 +72,7 @@
 </h2>
 <p>SPAM 嘿嘿嘿<br><img src="http://ww1.sinaimg.cn/large/3cc7b32ajw1f1289wkg6dj20d00f0mxo.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3943464527580678" target="freeweibo-mirror">不用选择，中国就是专制国家，你就在专制统治下。为什么你不滚到…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3943248453822164" target="freeweibo-mirror">SPAM 你不瘦下来怎么让前任后悔 现任更爱你 男神注意你 …</a>
 </h2>
 <p>SPAM 你不瘦下来怎么让前任后悔 现任更爱你 男神注意你 找她聊聊瘦成女神</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3943244658655557" target="freeweibo-mirror">【联合国人权专员敦促中国释放所有被捕律师】联合国人权事务高级…</a>
-</h2>
-<p>【联合国人权专员敦促中国释放所有被捕律师】联合国人权事务高级专员扎伊德·拉阿德·侯赛因（Zeid Ra'ad Al Hussein）今天发表声明，敦促中国立即无条件地释放所有自去年7月以来拘捕的律师，包括上个月被捕的15人。http://t.cn/RGJZECc</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
