@@ -36,7 +36,7 @@
 </h2>
 <p>据说上当都是因为贪心//@元猫大大:唉。[蜡烛]//@羊串串SC: 用生命教会中国人怎么投资</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3943551966701004" target="freeweibo-mirror">唉。[蜡烛]//@羊串串SC: 用生命教会中国人怎么投资</a>
 </h2>
