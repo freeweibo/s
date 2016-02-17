@@ -36,7 +36,7 @@
 </h2>
 <p>墓碑！<br><br>RE: 人民网：【杨继绳的报告文学巨著——《墓碑》简介】http://t.cn/8kk4WbF杨继绳谈《墓碑》：一是为1959年饿死的父亲立碑；二是为3600万饿死的中国人立碑；第三，为造成大饥荒的制度立下一个墓碑；第四，写此书有很大的政治风险，如因此书而遭不测，也算是为理想而献身，它自然也就成了自己的一个墓碑。<br><img src="http://ww3.sinaimg.cn/large/a4bc2044jw1f11klog6whj20ch0kudhe.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3943345078850511" target="freeweibo-mirror">SPAM 一段感情走到尽头，往往难以善终。因为这时双方已心生…</a>
 </h2>
