@@ -116,6 +116,12 @@
 <p>
 	<small> ============== 1天前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3943191742291201" target="freeweibo-mirror">那一年，他很无奈！#屯里的事##屯长讲故事# http://…</a>
+</h2>
+<p>那一年，他很无奈！#屯里的事##屯长讲故事# http://t.cn/RGxrNFD .</p>
+<p>
+	<small> ============== 1天前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3943190069555293" target="freeweibo-mirror">脊梁都跑了？ //@李不白的店:脊梁跑了？//@于建嵘: 她…</a>
 </h2>
 <p>脊梁都跑了？ //@李不白的店:脊梁跑了？//@于建嵘: 她好像有一年得过“共和国脊梁” 之类的荣誉称号。向她致敬！<br><br>RE: 【 韩志国：倪萍不糊涂 】 倪萍当政协委员从不投反对票不给国家添乱，说明她知道国家希望什么人当政协委员，这是孝顺国家。倪萍让儿子去美国留学，说明她知道什么样的教育才能让孩子健康成长，这是望子成龙。倪萍选择加拿大作为移民国家，说明她知道什么国家和社会才能让自己安居乐业，这是趋利避害。</p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3943172546015357" target="freeweibo-mirror">咳咳…</a>
 </h2>
 <p>咳咳…<br><br>RE: 这是各大网站的首页新闻，就简单评论了几句，早上的这条微博就只能评，不能转。新浪做得过分了，有必要吗？自信，自信，自信，非常重要！<br><img src="http://ww1.sinaimg.cn/large/df1b0723gw1f1184c3efdj21340cn0w3.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3943171672809270" target="freeweibo-mirror">这是各大网站的首页新闻，就简单评论了几句，早上的这条微博就只…</a>
-</h2>
-<p>这是各大网站的首页新闻，就简单评论了几句，早上的这条微博就只能评，不能转。新浪做得过分了，有必要吗？自信，自信，自信，非常重要！<br><img src="http://ww1.sinaimg.cn/large/df1b0723gw1f1184c3efdj21340cn0w3.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
