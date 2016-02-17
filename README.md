@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3943580600495139" target="freeweibo-mirror">SPAM 因举牌而闻名于市场的华南神秘险资控制人，牵涉到广东…</a>
+</h2>
+<p>SPAM 因举牌而闻名于市场的华南神秘险资控制人，牵涉到广东省副省长刘志庚案，正被调查。</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3943571436834960" target="freeweibo-mirror">//@齐河律师: 转发微博</a>
 </h2>
 <p>//@齐河律师: 转发微博<br><br>RE: 【鑫琦资产被爆陷19亿兑付危机 张铁林曾为其代言】17日，众多投资者聚集在鑫琦资产管理公司上海分公司的门前维权，他们收到信息，被告知利息将被停止支付，本金能否回收也不确定，该公司涉及资金19亿元，共有投资者5000人左右。16日，鑫琦资产高层被警方带走。http://t.cn/RGJkbyo<br><img src="http://ww2.sinaimg.cn/large/657e68d0gw1f12gtpfo4tj20c309v3z0.jpg"></p>
@@ -78,7 +84,7 @@
 </h2>
 <p>不用选择，中国就是专制国家，你就在专制统治下。为什么你不滚到民主国家去？因为人家不收垃圾？//@温柔佐罗5世: 全世界民主的国家那么多，我可以选择地方很多，独裁专制的国家还剩几个，你能选择谁？//@在线有声: 那么崇尚皿煮尸油，怎么不去扑屎笼罩下的印度阿富汗缅甸菲律宾利比里亚利比亚伊拉克？</p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3943453291471672" target="freeweibo-mirror">//@奚正仁的小屋: //@泉歌1963://@陶景洲:还有…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3943260316186076" target="freeweibo-mirror">SPAM //@谓贤:静心读三遍。。。//@航海的波: 这个…</a>
 </h2>
 <p>SPAM //@谓贤:静心读三遍。。。//@航海的波: 这个。。。 //@闵玉平:好文！[good]<br><br>RE: 强烈推荐！***过大关<br><img src="http://ww4.sinaimg.cn/large/594607fbjw1f11favfk6hj20go2eu1kx.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3943248453822164" target="freeweibo-mirror">SPAM 你不瘦下来怎么让前任后悔 现任更爱你 男神注意你 …</a>
-</h2>
-<p>SPAM 你不瘦下来怎么让前任后悔 现任更爱你 男神注意你 找她聊聊瘦成女神</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
