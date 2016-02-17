@@ -66,7 +66,7 @@
 </h2>
 <p>今天下午两点，我和蔡瑛律师到天津市第一看守所要求会见被以涉嫌颠覆国家政权罪遭受逮捕的李和平律师。被警方指定的发言人李斌告知1，已经解除对你们二位的委托，2，解除委托的手续肯定有，但是不能给你们看，3，你们要求会见的申请由于已经解除委托，不能会见。以后再来我们也不接待！不让拍照<br><img src="http://ww3.sinaimg.cn/large/005Xannljw1f12dlwr6sqj30f00qogmy.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3943486468093135" target="freeweibo-mirror">SPAM 嘿嘿嘿</a>
 </h2>
