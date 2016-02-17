@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3943571436834960" target="freeweibo-mirror">//@齐河律师: 转发微博</a>
+</h2>
+<p>//@齐河律师: 转发微博<br><br>RE: 【鑫琦资产被爆陷19亿兑付危机 张铁林曾为其代言】17日，众多投资者聚集在鑫琦资产管理公司上海分公司的门前维权，他们收到信息，被告知利息将被停止支付，本金能否回收也不确定，该公司涉及资金19亿元，共有投资者5000人左右。16日，鑫琦资产高层被警方带走。http://t.cn/RGJkbyo<br><img src="http://ww2.sinaimg.cn/large/657e68d0gw1f12gtpfo4tj20c309v3z0.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3943558434535603" target="freeweibo-mirror">SPAM 为啥能这么相信骗子？</a>
 </h2>
 <p>SPAM 为啥能这么相信骗子？</p>
@@ -66,7 +72,7 @@
 </h2>
 <p>不用选择，中国就是专制国家，你就在专制统治下。为什么你不滚到民主国家去？因为人家不收垃圾？//@温柔佐罗5世: 全世界民主的国家那么多，我可以选择地方很多，独裁专制的国家还剩几个，你能选择谁？//@在线有声: 那么崇尚皿煮尸油，怎么不去扑屎笼罩下的印度阿富汗缅甸菲律宾利比里亚利比亚伊拉克？</p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3943453291471672" target="freeweibo-mirror">//@奚正仁的小屋: //@泉歌1963://@陶景洲:还有…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3943244658655557" target="freeweibo-mirror">【联合国人权专员敦促中国释放所有被捕律师】联合国人权事务高级…</a>
 </h2>
 <p>【联合国人权专员敦促中国释放所有被捕律师】联合国人权事务高级专员扎伊德·拉阿德·侯赛因（Zeid Ra'ad Al Hussein）今天发表声明，敦促中国立即无条件地释放所有自去年7月以来拘捕的律师，包括上个月被捕的15人。http://t.cn/RGJZECc</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3943234189373507" target="freeweibo-mirror">强烈推荐！***过大关</a>
-</h2>
-<p>强烈推荐！***过大关<br><img src="http://ww4.sinaimg.cn/large/594607fbjw1f11favfk6hj20go2eu1kx.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
