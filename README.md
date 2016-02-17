@@ -24,13 +24,13 @@
 </h2>
 <p>SPAM 为啥能这么相信骗子？</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3943557901229117" target="freeweibo-mirror">//@六六:据说上当都是因为贪心//@元猫大大:唉。[蜡烛]…</a>
 </h2>
 <p>//@六六:据说上当都是因为贪心//@元猫大大:唉。[蜡烛]//@羊串串SC: 用生命教会中国人怎么投资</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3943557066411502" target="freeweibo-mirror">据说上当都是因为贪心//@元猫大大:唉。[蜡烛]//@羊串串…</a>
 </h2>
@@ -78,7 +78,7 @@
 </h2>
 <p>//@俗人老姜: 那就是我们的伟大领袖 //@刘军宁:跟第十位最残暴的统治者相比，这九位都逊色。</p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3943415215355970" target="freeweibo-mirror">人性，良知，操守。[心][赞]//@DUBigge: 转发微…</a>
 </h2>
