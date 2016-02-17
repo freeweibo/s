@@ -78,7 +78,7 @@
 </h2>
 <p>SPAM 嘿嘿嘿<br><img src="http://ww1.sinaimg.cn/large/3cc7b32ajw1f1289wkg6dj20d00f0mxo.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3943464527580678" target="freeweibo-mirror">不用选择，中国就是专制国家，你就在专制统治下。为什么你不滚到…</a>
 </h2>
