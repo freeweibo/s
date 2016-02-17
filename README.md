@@ -36,7 +36,7 @@
 </h2>
 <p>人性，良知，操守。[心][赞]//@DUBigge: 转发微博</p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3943367219675337" target="freeweibo-mirror">墓碑！</a>
 </h2>
