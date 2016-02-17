@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3943437554766374" target="freeweibo-mirror">//@俗人老姜: 那就是我们的伟大领袖 //@刘军宁:跟第十…</a>
+</h2>
+<p>//@俗人老姜: 那就是我们的伟大领袖 //@刘军宁:跟第十位最残暴的统治者相比，这九位都逊色。</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3943415215355970" target="freeweibo-mirror">人性，良知，操守。[心][赞]//@DUBigge: 转发微…</a>
 </h2>
 <p>人性，良知，操守。[心][赞]//@DUBigge: 转发微博</p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3943178728024036" target="freeweibo-mirror">//@未醉已迷情: //@海七叔://@楊康令:随风摇摆</a>
 </h2>
 <p>//@未醉已迷情: //@海七叔://@楊康令:随风摇摆<br><br>RE: 【 韩志国：倪萍不糊涂 】 倪萍当政协委员从不投反对票不给国家添乱，说明她知道国家希望什么人当政协委员，这是孝顺国家。倪萍让儿子去美国留学，说明她知道什么样的教育才能让孩子健康成长，这是望子成龙。倪萍选择加拿大作为移民国家，说明她知道什么国家和社会才能让自己安居乐业，这是趋利避害。</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3943172546015357" target="freeweibo-mirror">咳咳…</a>
-</h2>
-<p>咳咳…<br><br>RE: 这是各大网站的首页新闻，就简单评论了几句，早上的这条微博就只能评，不能转。新浪做得过分了，有必要吗？自信，自信，自信，非常重要！<br><img src="http://ww1.sinaimg.cn/large/df1b0723gw1f1184c3efdj21340cn0w3.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
