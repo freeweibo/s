@@ -26,6 +26,12 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3943652546365767" target="freeweibo-mirror">SPAM 自从收了她</a>
+</h2>
+<p>SPAM 自从收了她</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3943580600495139" target="freeweibo-mirror">SPAM 因举牌而闻名于市场的华南神秘险资控制人，牵涉到广东…</a>
 </h2>
 <p>SPAM 因举牌而闻名于市场的华南神秘险资控制人，牵涉到广东省副省长刘志庚案，正被调查。</p>
@@ -36,7 +42,7 @@
 </h2>
 <p>//@齐河律师: 转发微博<br><br>RE: 【鑫琦资产被爆陷19亿兑付危机 张铁林曾为其代言】17日，众多投资者聚集在鑫琦资产管理公司上海分公司的门前维权，他们收到信息，被告知利息将被停止支付，本金能否回收也不确定，该公司涉及资金19亿元，共有投资者5000人左右。16日，鑫琦资产高层被警方带走。http://t.cn/RGJkbyo<br><img src="http://ww2.sinaimg.cn/large/657e68d0gw1f12gtpfo4tj20c309v3z0.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3943560908329001" target="freeweibo-mirror">【鑫琦资产被爆陷19亿兑付危机 张铁林曾为其代言】17日，众…</a>
 </h2>
@@ -60,7 +66,7 @@
 </h2>
 <p>据说上当都是因为贪心//@元猫大大:唉。[蜡烛]//@羊串串SC: 用生命教会中国人怎么投资</p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3943551966701004" target="freeweibo-mirror">唉。[蜡烛]//@羊串串SC: 用生命教会中国人怎么投资</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3943289247669139" target="freeweibo-mirror">哈尔滨年轻人一代护犊子，北京本逼不识牛舌饼夹油饼，上海本逼围…</a>
 </h2>
 <p>哈尔滨年轻人一代护犊子，北京本逼不识牛舌饼夹油饼，上海本逼围着老上海叫硬盘，呵呵~我就一句话：社会主义好~[xkl转圈]（1949人口大迁徙，翻身农奴把歌唱，都什么下三滥）</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3943280452218927" target="freeweibo-mirror">人民网：【杨继绳的报告文学巨著——《墓碑》简介】http:/…</a>
-</h2>
-<p>人民网：【杨继绳的报告文学巨著——《墓碑》简介】http://t.cn/8kk4WbF杨继绳谈《墓碑》：一是为1959年饿死的父亲立碑；二是为3600万饿死的中国人立碑；第三，为造成大饥荒的制度立下一个墓碑；第四，写此书有很大的政治风险，如因此书而遭不测，也算是为理想而献身，它自然也就成了自己的一个墓碑。<br><img src="http://ww3.sinaimg.cn/large/a4bc2044jw1f11klog6whj20ch0kudhe.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
