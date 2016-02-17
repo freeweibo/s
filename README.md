@@ -30,7 +30,7 @@
 </h2>
 <p>//@俗人老姜: 那就是我们的伟大领袖 //@刘军宁:跟第十位最残暴的统治者相比，这九位都逊色。</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3943415215355970" target="freeweibo-mirror">人性，良知，操守。[心][赞]//@DUBigge: 转发微…</a>
 </h2>
