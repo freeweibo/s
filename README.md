@@ -20,11 +20,17 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3943415215355970" target="freeweibo-mirror">人性，良知，操守。[心][赞]//@DUBigge: 转发微…</a>
+</h2>
+<p>人性，良知，操守。[心][赞]//@DUBigge: 转发微博</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3943367219675337" target="freeweibo-mirror">墓碑！</a>
 </h2>
 <p>墓碑！<br><br>RE: 人民网：【杨继绳的报告文学巨著——《墓碑》简介】http://t.cn/8kk4WbF杨继绳谈《墓碑》：一是为1959年饿死的父亲立碑；二是为3600万饿死的中国人立碑；第三，为造成大饥荒的制度立下一个墓碑；第四，写此书有很大的政治风险，如因此书而遭不测，也算是为理想而献身，它自然也就成了自己的一个墓碑。<br><img src="http://ww3.sinaimg.cn/large/a4bc2044jw1f11klog6whj20ch0kudhe.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3943345078850511" target="freeweibo-mirror">SPAM 一段感情走到尽头，往往难以善终。因为这时双方已心生…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3943171672809270" target="freeweibo-mirror">这是各大网站的首页新闻，就简单评论了几句，早上的这条微博就只…</a>
 </h2>
 <p>这是各大网站的首页新闻，就简单评论了几句，早上的这条微博就只能评，不能转。新浪做得过分了，有必要吗？自信，自信，自信，非常重要！<br><img src="http://ww1.sinaimg.cn/large/df1b0723gw1f1184c3efdj21340cn0w3.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3943171325360493" target="freeweibo-mirror">SPAM 我什么都没有说。事实证明：金融圈八故事的速度堪比下…</a>
-</h2>
-<p>SPAM 我什么都没有说。事实证明：金融圈八故事的速度堪比下单。<br><img src="http://ww1.sinaimg.cn/large/7c1d7ba8gw1f1182t7a8xj20ch0hg40i.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
