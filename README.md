@@ -24,7 +24,7 @@
 </h2>
 <p>SPAM 因举牌而闻名于市场的华南神秘险资控制人，牵涉到广东省副省长刘志庚案，正被调查。</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3943571436834960" target="freeweibo-mirror">//@齐河律师: 转发微博</a>
 </h2>
@@ -96,7 +96,7 @@
 </h2>
 <p>//@俗人老姜: 那就是我们的伟大领袖 //@刘军宁:跟第十位最残暴的统治者相比，这九位都逊色。</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3943415215355970" target="freeweibo-mirror">人性，良知，操守。[心][赞]//@DUBigge: 转发微…</a>
 </h2>
