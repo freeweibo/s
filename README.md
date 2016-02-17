@@ -30,7 +30,7 @@
 </h2>
 <p>//@齐河律师: 转发微博<br><br>RE: 【鑫琦资产被爆陷19亿兑付危机 张铁林曾为其代言】17日，众多投资者聚集在鑫琦资产管理公司上海分公司的门前维权，他们收到信息，被告知利息将被停止支付，本金能否回收也不确定，该公司涉及资金19亿元，共有投资者5000人左右。16日，鑫琦资产高层被警方带走。http://t.cn/RGJkbyo<br><img src="http://ww2.sinaimg.cn/large/657e68d0gw1f12gtpfo4tj20c309v3z0.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3943560908329001" target="freeweibo-mirror">【鑫琦资产被爆陷19亿兑付危机 张铁林曾为其代言】17日，众…</a>
 </h2>
@@ -54,7 +54,7 @@
 </h2>
 <p>据说上当都是因为贪心//@元猫大大:唉。[蜡烛]//@羊串串SC: 用生命教会中国人怎么投资</p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3943551966701004" target="freeweibo-mirror">唉。[蜡烛]//@羊串串SC: 用生命教会中国人怎么投资</a>
 </h2>
