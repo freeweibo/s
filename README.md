@@ -42,7 +42,7 @@
 </h2>
 <p>//@齐河律师: 转发微博<br><br>RE: 【鑫琦资产被爆陷19亿兑付危机 张铁林曾为其代言】17日，众多投资者聚集在鑫琦资产管理公司上海分公司的门前维权，他们收到信息，被告知利息将被停止支付，本金能否回收也不确定，该公司涉及资金19亿元，共有投资者5000人左右。16日，鑫琦资产高层被警方带走。http://t.cn/RGJkbyo<br><img src="http://ww2.sinaimg.cn/large/657e68d0gw1f12gtpfo4tj20c309v3z0.jpg"></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3943560908329001" target="freeweibo-mirror">【鑫琦资产被爆陷19亿兑付危机 张铁林曾为其代言】17日，众…</a>
 </h2>
@@ -66,7 +66,7 @@
 </h2>
 <p>据说上当都是因为贪心//@元猫大大:唉。[蜡烛]//@羊串串SC: 用生命教会中国人怎么投资</p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3943551966701004" target="freeweibo-mirror">唉。[蜡烛]//@羊串串SC: 用生命教会中国人怎么投资</a>
 </h2>
@@ -84,7 +84,7 @@
 </h2>
 <p>今天下午两点，我和蔡瑛律师到天津市第一看守所要求会见被以涉嫌颠覆国家政权罪遭受逮捕的李和平律师。被警方指定的发言人李斌告知1，已经解除对你们二位的委托，2，解除委托的手续肯定有，但是不能给你们看，3，你们要求会见的申请由于已经解除委托，不能会见。以后再来我们也不接待！不让拍照<br><img src="http://ww3.sinaimg.cn/large/005Xannljw1f12dlwr6sqj30f00qogmy.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3943486468093135" target="freeweibo-mirror">SPAM 嘿嘿嘿</a>
 </h2>
