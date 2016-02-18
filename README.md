@@ -30,13 +30,13 @@
 </h2>
 <p>SPAM 美美的[星星眼]</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3944020868401841" target="freeweibo-mirror">SPAM 没有人类跟我玩，世界在角落和黑暗中慢慢坍塌，它不足…</a>
 </h2>
 <p>SPAM 没有人类跟我玩，世界在角落和黑暗中慢慢坍塌，它不足以自持，亦无法散射出亮光。渴望爱，而不是盲目的自作多情。——事实上，在昔日女孩的影像从脑海中完全消逝的时候，心中或许已经不再存在真实的爱了，残存一些欲望、理性和幻想而已。不受伤害，亦无以付出。想去配一副ZOFF眼镜。<br><img src="http://ww2.sinaimg.cn/large/7010b3bcjw1f13vl1e6l7j20qo0zk17e.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3944011842613937" target="freeweibo-mirror">SPAM 强拆自己房子可以，强拆华国峰铜像不行！[笑cry]…</a>
 </h2>
@@ -48,7 +48,7 @@
 </h2>
 <p>？//@华先森-X：怎么能把我爷爷铜像拆除呢？[偷笑][哈哈][怒][doge]<br><br>RE: 【交城华国锋铜像暂停拆除，但晚间另有通知】今日下午，有交城县委副书记表示，考虑到安全问题，“今天下午不拆了”，但稍后有官方文件称要说服群众，并指出该塑像“需要走程序”……但并未明确其树立过程中是否走了相关程序。详见下图。<br><img src="http://ww1.sinaimg.cn/large/92c79538jw1f13ta6e72fj20ku11249t.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3943988594205067" target="freeweibo-mirror">只转不评，</a>
 </h2>
@@ -84,7 +84,7 @@
 </h2>
 <p>//@崔小平律师://@孙吉森:真知道他 //@张宏光律师:嘴上的共产主义靠不住，脚下的资本主义才踏实。//@狐哥归来:[抓狂]//@吴顾问1970: //@通城风雨:[挖鼻]//@苏州常熟徐文石: //@雷耘:<br><br>RE: 此人袁木，原国务院发言人，八九学生没有不认识的，说广场未放一枪。著名喉舌、反美、反民主斗士。如今移居美国。<br><img src="http://ww3.sinaimg.cn/large/006nas7Ljw1f13ios0yy9j30c80cat9p.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3943946859638603" target="freeweibo-mirror">SPAM //@刘二狗蛋://@家福777: //@戎戎日9…</a>
 </h2>
