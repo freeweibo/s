@@ -26,6 +26,12 @@
 <p>
 	<small> ============== 1小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3943988594205067" target="freeweibo-mirror">只转不评，</a>
+</h2>
+<p>只转不评，<br><br>RE: 【交城华国锋铜像暂停拆除，但晚间另有通知】今日下午，有交城县委副书记表示，考虑到安全问题，“今天下午不拆了”，但稍后有官方文件称要说服群众，并指出该塑像“需要走程序”……但并未明确其树立过程中是否走了相关程序。详见下图。<br><img src="http://ww1.sinaimg.cn/large/92c79538jw1f13ta6e72fj20ku11249t.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3943983434386443" target="freeweibo-mirror">【交城华国锋铜像暂停拆除，但晚间另有通知】今日下午，有交城县…</a>
 </h2>
 <p>【交城华国锋铜像暂停拆除，但晚间另有通知】今日下午，有交城县委副书记表示，考虑到安全问题，“今天下午不拆了”，但稍后有官方文件称要说服群众，并指出该塑像“需要走程序”……但并未明确其树立过程中是否走了相关程序。详见下图。<br><img src="http://ww1.sinaimg.cn/large/92c79538jw1f13ta6e72fj20ku11249t.jpg"></p>
@@ -90,7 +96,7 @@
 </h2>
 <p>此人叫袁木，原国务院发言人，著名反美名嘴、反美斗士，如今随女儿移居美国。袁木女儿申请美国签证的故事曾传遍北京。<br><img src="http://ww4.sinaimg.cn/large/413da42cjw1f13b9gizagj20c80cadgp.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3943659277151658" target="freeweibo-mirror">SPAM 以你之名，冠我之姓，一生相伴，一世相随！私人定制，…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3943557901229117" target="freeweibo-mirror">//@六六:据说上当都是因为贪心//@元猫大大:唉。[蜡烛]…</a>
 </h2>
 <p>//@六六:据说上当都是因为贪心//@元猫大大:唉。[蜡烛]//@羊串串SC: 用生命教会中国人怎么投资</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3943557066411502" target="freeweibo-mirror">据说上当都是因为贪心//@元猫大大:唉。[蜡烛]//@羊串串…</a>
-</h2>
-<p>据说上当都是因为贪心//@元猫大大:唉。[蜡烛]//@羊串串SC: 用生命教会中国人怎么投资</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
