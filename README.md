@@ -20,9 +20,21 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3943990506178911" target="freeweibo-mirror">？//@华先森-X：怎么能把我爷爷铜像拆除呢？[偷笑][哈哈…</a>
+</h2>
+<p>？//@华先森-X：怎么能把我爷爷铜像拆除呢？[偷笑][哈哈][怒][doge]<br><br>RE: 【交城华国锋铜像暂停拆除，但晚间另有通知】今日下午，有交城县委副书记表示，考虑到安全问题，“今天下午不拆了”，但稍后有官方文件称要说服群众，并指出该塑像“需要走程序”……但并未明确其树立过程中是否走了相关程序。详见下图。<br><img src="http://ww1.sinaimg.cn/large/92c79538jw1f13ta6e72fj20ku11249t.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3943966699364227" target="freeweibo-mirror">袁木?还记得他，去美国了？</a>
 </h2>
 <p>袁木?还记得他，去美国了？<br><br>RE: 此人叫袁木，原国务院发言人，著名反美名嘴、反美斗士，如今随女儿移居美国。袁木女儿申请美国签证的故事曾传遍北京。<br><img src="http://ww4.sinaimg.cn/large/413da42cjw1f13b9gizagj20c80cadgp.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3943964127568498" target="freeweibo-mirror">//@宏鑫88: //@徐xiaopang0531:爱国贼生…</a>
+</h2>
+<p>//@宏鑫88: //@徐xiaopang0531:爱国贼生意好做[偷笑]//@思想尘雾://@杨博论坛:为何反美人士大都去了美国？（当然也包括那些天天嘴上＂意识形态守土有责＂高官及二代）<br><br>RE: 此人袁木，原国务院发言人，八九学生没有不认识的，说广场未放一枪。著名喉舌、反美、反民主斗士。如今移居美国。<br><img src="http://ww3.sinaimg.cn/large/006nas7Ljw1f13ios0yy9j30c80cat9p.jpg"></p>
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
@@ -42,7 +54,7 @@
 </h2>
 <p>//@大项的天:现在不稀奇，都是这样的共产主义斗士<br><br>RE: 此人叫袁木，原国务院发言人，著名反美名嘴、反美斗士，如今随女儿移居美国。袁木女儿申请美国签证的故事曾传遍北京。<br><img src="http://ww4.sinaimg.cn/large/413da42cjw1f13b9gizagj20c80cadgp.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3943932024798679" target="freeweibo-mirror">晚年，美，爽了。//@程立澜: 内谁也还没死。//@简直: …</a>
 </h2>
@@ -60,7 +72,7 @@
 </h2>
 <p>此人叫袁木，原国务院发言人，著名反美名嘴、反美斗士，如今随女儿移居美国。袁木女儿申请美国签证的故事曾传遍北京。<br><img src="http://ww4.sinaimg.cn/large/413da42cjw1f13b9gizagj20c80cadgp.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3943659277151658" target="freeweibo-mirror">SPAM 以你之名，冠我之姓，一生相伴，一世相随！私人定制，…</a>
 </h2>
@@ -125,18 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3943533654168833" target="freeweibo-mirror">今天下午两点，我和蔡瑛律师到天津市第一看守所要求会见被以涉嫌…</a>
 </h2>
 <p>今天下午两点，我和蔡瑛律师到天津市第一看守所要求会见被以涉嫌颠覆国家政权罪遭受逮捕的李和平律师。被警方指定的发言人李斌告知1，已经解除对你们二位的委托，2，解除委托的手续肯定有，但是不能给你们看，3，你们要求会见的申请由于已经解除委托，不能会见。以后再来我们也不接待！不让拍照<br><img src="http://ww3.sinaimg.cn/large/005Xannljw1f12dlwr6sqj30f00qogmy.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3943486468093135" target="freeweibo-mirror">SPAM 嘿嘿嘿</a>
-</h2>
-<p>SPAM 嘿嘿嘿<br><img src="http://ww1.sinaimg.cn/large/3cc7b32ajw1f1289wkg6dj20d00f0mxo.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3943464527580678" target="freeweibo-mirror">不用选择，中国就是专制国家，你就在专制统治下。为什么你不滚到…</a>
-</h2>
-<p>不用选择，中国就是专制国家，你就在专制统治下。为什么你不滚到民主国家去？因为人家不收垃圾？//@温柔佐罗5世: 全世界民主的国家那么多，我可以选择地方很多，独裁专制的国家还剩几个，你能选择谁？//@在线有声: 那么崇尚皿煮尸油，怎么不去扑屎笼罩下的印度阿富汗缅甸菲律宾利比里亚利比亚伊拉克？</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
