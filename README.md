@@ -114,7 +114,7 @@
 </h2>
 <p>当年，“缘木求鱼”这个成语出现的频率还是蛮高的。<br><br>RE: 此人叫袁木，原国务院发言人，著名反美名嘴、反美斗士，如今随女儿移居美国。袁木女儿申请美国签证的故事曾传遍北京。<br><img src="http://ww4.sinaimg.cn/large/413da42cjw1f13b9gizagj20c80cadgp.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3943890794961894" target="freeweibo-mirror">此人袁木，原国务院发言人，八九学生没有不认识的，说广场未放一…</a>
 </h2>
