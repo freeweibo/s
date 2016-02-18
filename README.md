@@ -90,7 +90,7 @@
 </h2>
 <p>此人袁木，原国务院发言人，八九学生没有不认识的，说广场未放一枪。著名喉舌、反美、反民主斗士。如今移居美国。<br><img src="http://ww3.sinaimg.cn/large/006nas7Ljw1f13ios0yy9j30c80cat9p.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3943826881991720" target="freeweibo-mirror">此人叫袁木，原国务院发言人，著名反美名嘴、反美斗士，如今随女…</a>
 </h2>
