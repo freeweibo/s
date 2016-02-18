@@ -36,7 +36,13 @@
 </h2>
 <p>//@宏鑫88: //@徐xiaopang0531:爱国贼生意好做[偷笑]//@思想尘雾://@杨博论坛:为何反美人士大都去了美国？（当然也包括那些天天嘴上＂意识形态守土有责＂高官及二代）<br><br>RE: 此人袁木，原国务院发言人，八九学生没有不认识的，说广场未放一枪。著名喉舌、反美、反民主斗士。如今移居美国。<br><img src="http://ww3.sinaimg.cn/large/006nas7Ljw1f13ios0yy9j30c80cat9p.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3943961284091814" target="freeweibo-mirror">//@崔小平律师://@孙吉森:真知道他 //@张宏光律师:…</a>
+</h2>
+<p>//@崔小平律师://@孙吉森:真知道他 //@张宏光律师:嘴上的共产主义靠不住，脚下的资本主义才踏实。//@狐哥归来:[抓狂]//@吴顾问1970: //@通城风雨:[挖鼻]//@苏州常熟徐文石: //@雷耘:<br><br>RE: 此人袁木，原国务院发言人，八九学生没有不认识的，说广场未放一枪。著名喉舌、反美、反民主斗士。如今移居美国。<br><img src="http://ww3.sinaimg.cn/large/006nas7Ljw1f13ios0yy9j30c80cat9p.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3943946859638603" target="freeweibo-mirror">SPAM //@刘二狗蛋://@家福777: //@戎戎日9…</a>
 </h2>
@@ -66,7 +72,7 @@
 </h2>
 <p>当年，“缘木求鱼”这个成语出现的频率还是蛮高的。<br><br>RE: 此人叫袁木，原国务院发言人，著名反美名嘴、反美斗士，如今随女儿移居美国。袁木女儿申请美国签证的故事曾传遍北京。<br><img src="http://ww4.sinaimg.cn/large/413da42cjw1f13b9gizagj20c80cadgp.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3943826881991720" target="freeweibo-mirror">此人叫袁木，原国务院发言人，著名反美名嘴、反美斗士，如今随女…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3943544832413803" target="freeweibo-mirror">//@王才亮律师: 转发微博</a>
 </h2>
 <p>//@王才亮律师: 转发微博<br><br>RE: 今天下午两点，我和蔡瑛律师到天津市第一看守所要求会见被以涉嫌颠覆国家政权罪遭受逮捕的李和平律师。被警方指定的发言人李斌告知1，已经解除对你们二位的委托，2，解除委托的手续肯定有，但是不能给你们看，3，你们要求会见的申请由于已经解除委托，不能会见。以后再来我们也不接待！不让拍照<br><img src="http://ww3.sinaimg.cn/large/005Xannljw1f12dlwr6sqj30f00qogmy.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3943533654168833" target="freeweibo-mirror">今天下午两点，我和蔡瑛律师到天津市第一看守所要求会见被以涉嫌…</a>
-</h2>
-<p>今天下午两点，我和蔡瑛律师到天津市第一看守所要求会见被以涉嫌颠覆国家政权罪遭受逮捕的李和平律师。被警方指定的发言人李斌告知1，已经解除对你们二位的委托，2，解除委托的手续肯定有，但是不能给你们看，3，你们要求会见的申请由于已经解除委托，不能会见。以后再来我们也不接待！不让拍照<br><img src="http://ww3.sinaimg.cn/large/005Xannljw1f12dlwr6sqj30f00qogmy.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
