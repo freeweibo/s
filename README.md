@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3944011842613937" target="freeweibo-mirror">SPAM 强拆自己房子可以，强拆华国峰铜像不行！[笑cry]…</a>
+</h2>
+<p>SPAM 强拆自己房子可以，强拆华国峰铜像不行！[笑cry]『吕梁万人聚集“保华”官方表示已停拆华国锋像』http://t.cn/RG6o5HR</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3943990506178911" target="freeweibo-mirror">？//@华先森-X：怎么能把我爷爷铜像拆除呢？[偷笑][哈哈…</a>
 </h2>
 <p>？//@华先森-X：怎么能把我爷爷铜像拆除呢？[偷笑][哈哈][怒][doge]<br><br>RE: 【交城华国锋铜像暂停拆除，但晚间另有通知】今日下午，有交城县委副书记表示，考虑到安全问题，“今天下午不拆了”，但稍后有官方文件称要说服群众，并指出该塑像“需要走程序”……但并未明确其树立过程中是否走了相关程序。详见下图。<br><img src="http://ww1.sinaimg.cn/large/92c79538jw1f13ta6e72fj20ku11249t.jpg"></p>
@@ -41,6 +47,12 @@
 	<a href="https://freeweibo.com/weibo/3943966699364227" target="freeweibo-mirror">袁木?还记得他，去美国了？</a>
 </h2>
 <p>袁木?还记得他，去美国了？<br><br>RE: 此人叫袁木，原国务院发言人，著名反美名嘴、反美斗士，如今随女儿移居美国。袁木女儿申请美国签证的故事曾传遍北京。<br><img src="http://ww4.sinaimg.cn/large/413da42cjw1f13b9gizagj20c80cadgp.jpg"></p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3943965193891604" target="freeweibo-mirror">右边的傻逼为什么不移民中华民国？因为他们不收垃圾？[嘻嘻]这…</a>
+</h2>
+<p>右边的傻逼为什么不移民中华民国？因为他们不收垃圾？[嘻嘻]这孙子在"土匪"集团的统治下即没胆子造反，又没本事移民，每天娘们似的叽叽歪歪，活成这逼样也算难得了。//@温柔佐罗5世:当时中华民国就是中国的合法代表，你推崇的是土匪集团！</p>
 <p>
 	<small> ============== 4小时前</small>
 </p><h2>
@@ -72,7 +84,7 @@
 </h2>
 <p>//@大项的天:现在不稀奇，都是这样的共产主义斗士<br><br>RE: 此人叫袁木，原国务院发言人，著名反美名嘴、反美斗士，如今随女儿移居美国。袁木女儿申请美国签证的故事曾传遍北京。<br><img src="http://ww4.sinaimg.cn/large/413da42cjw1f13b9gizagj20c80cadgp.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3943932024798679" target="freeweibo-mirror">晚年，美，爽了。//@程立澜: 内谁也还没死。//@简直: …</a>
 </h2>
@@ -125,18 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3943560908329001" target="freeweibo-mirror">【鑫琦资产被爆陷19亿兑付危机 张铁林曾为其代言】17日，众…</a>
 </h2>
 <p>【鑫琦资产被爆陷19亿兑付危机 张铁林曾为其代言】17日，众多投资者聚集在鑫琦资产管理公司上海分公司的门前维权，他们收到信息，被告知利息将被停止支付，本金能否回收也不确定，该公司涉及资金19亿元，共有投资者5000人左右。16日，鑫琦资产高层被警方带走。http://t.cn/RGJkbyo<br><img src="http://ww2.sinaimg.cn/large/657e68d0gw1f12gtpfo4tj20c309v3z0.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3943558434535603" target="freeweibo-mirror">SPAM 为啥能这么相信骗子？</a>
-</h2>
-<p>SPAM 为啥能这么相信骗子？</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3943557901229117" target="freeweibo-mirror">//@六六:据说上当都是因为贪心//@元猫大大:唉。[蜡烛]…</a>
-</h2>
-<p>//@六六:据说上当都是因为贪心//@元猫大大:唉。[蜡烛]//@羊串串SC: 用生命教会中国人怎么投资</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
