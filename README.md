@@ -24,7 +24,7 @@
 </h2>
 <p>//@传播学邓建国: //@喻国明:中国的权力阶层口头反美，儿孙一家都送美国，中国人把说谎普遍地化为行为，他们是口头上的义和团分子，行动上的媚外者，这已经不止是“虚伪”（Hypocrisy），而是“虚假”。<br><br>RE: 分享自玉花园2001《反美名嘴袁木晚年居然在美国悠闲地打高尔夫球》 -     反美名嘴袁木晚年居然在美国悠闲地打高尔夫球        (来源：网络)                    今天看到朋友圈一张照...  (来自 @头条博客)   http://t.cn/RG6uMIK<br><img src="http://ww3.sinaimg.cn/large/3bd4391ajw1f14fuad660j20c80ca0tf.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3944025448729092" target="freeweibo-mirror">SPAM 喜欢[太开心]</a>
 </h2>
