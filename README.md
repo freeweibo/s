@@ -32,9 +32,57 @@
 <p>
 	<small> ============== 1小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3944238125127560" target="freeweibo-mirror">SPAM 为任督二脉转 //@连岳lianyue:胡锡进说，…</a>
+</h2>
+<p>SPAM 为任督二脉转 //@连岳lianyue:胡锡进说，我大意了。<br><br>RE: 央视和新华社。<br><img src="http://ww4.sinaimg.cn/large/7c1d7ba8jw1f14l985np5j20rs0ku41s.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3944237983114299" target="freeweibo-mirror">SPAM 为什么我发同样的图片被删除？</a>
+</h2>
+<p>SPAM 为什么我发同样的图片被删除？<br><br>RE: 央視懂政治，講政治，至少懂得影像紀錄。<br><img src="http://ww3.sinaimg.cn/large/5937c055jw1f14lipy6ejj20zk0qojvl.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3944236372152686" target="freeweibo-mirror">//@朝阳子先生://@吕洞宾出山了: 恍然大悟。//@未得…</a>
+</h2>
+<p>//@朝阳子先生://@吕洞宾出山了: 恍然大悟。//@未得糊涂://@黄亭序: 理解春晚了。//@荒堂省三:转发微博<br><br>RE: 据说今天大领导视察央视时，央视的欢迎词@曹山石<br><img src="http://ww4.sinaimg.cn/large/475b6025gw1f14kxibb3kj20ku112tco.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3944235851550982" target="freeweibo-mirror">SPAM 改名了：D央电视台</a>
+</h2>
+<p>SPAM 改名了：D央电视台<br><img src="http://ww2.sinaimg.cn/large/6841ec71gw1f14mbkm86wj20c8096jsa.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3944234937710139" target="freeweibo-mirror">入教材吧</a>
+</h2>
+<p>入教材吧<br><br>RE: 鲸播报：19日讯，新华社参考新闻编辑部副主任蒲立业在习主席视察新华通讯社后，用笔名“朴拙子”在微信号白菜上发表题为《总书记，您的背影我的目光》的诗歌。<br><img src="http://ww1.sinaimg.cn/large/7061c249gw1f14lk5cqu0j20c81ewdkp.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3944231049910071" target="freeweibo-mirror">盛世出诗人[哈哈]</a>
+</h2>
+<p>盛世出诗人[哈哈]<br><br>RE: 鲸播报：19日讯，新华社参考新闻编辑部副主任蒲立业在习主席视察新华通讯社后，用笔名“朴拙子”在微信号白菜上发表题为《总书记，您的背影我的目光》的诗歌。<br><img src="http://ww1.sinaimg.cn/large/7061c249gw1f14lk5cqu0j20c81ewdkp.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3944228113258076" target="freeweibo-mirror">中央新闻社就这鸟水平？？？[吐][吐][吐]//@易葦航: …</a>
+</h2>
+<p>中央新闻社就这鸟水平？？？[吐][吐][吐]//@易葦航: 诗给脏了<br><br>RE: 央视和新华社。<br><img src="http://ww4.sinaimg.cn/large/7c1d7ba8jw1f14l985np5j20rs0ku41s.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3944216323093899" target="freeweibo-mirror">SPAM 不管怎样，起码是有正当职业的耍嘴皮子，嘴皮子为实权…</a>
 </h2>
 <p>SPAM 不管怎样，起码是有正当职业的耍嘴皮子，嘴皮子为实权。总比长年无业者作秀胸怀天下点评万事，假冒“正能量”穷忽悠强。 //@邈視天下:三分天注定 七分靠嘴吹//@董藩: 我在大连时是市委市政府顾问(咨询专家)，很熟悉他，风度翩翩，口才极好，能干敢开，善秀！但霸道，专制，不尊重下属，官场评价不高。<br><br>RE: 电影演员们你们都弱爆了，这才叫真正的演技派。 http://t.cn/RG6S1om .</p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3944208110210525" target="freeweibo-mirror">SPAM //@未醉已迷情: //@海七叔:不厚挪出去74亿…</a>
+</h2>
+<p>SPAM //@未醉已迷情: //@海七叔:不厚挪出去74亿美元，瓜仔衣食无忧鸟 //@圆润女郎521://@民间治堵人陈哲宏: //@北野的理想国: //@刘力博士://@寻常-巷陌2015:好像对自己的无耻一无所知//@阎家麒: 把谎话说得理直气壮，这是党官的基本功。//@独俏逍遥2014: 这是什么演技？ //@演员孙海英:吹牛皮不上税！<br><br>RE: 电影演员们你们都弱爆了，这才叫真正的演技派。 http://t.cn/RG6S1om .</p>
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
@@ -89,54 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3943988594205067" target="freeweibo-mirror">只转不评，</a>
 </h2>
 <p>只转不评，<br><br>RE: 【交城华国锋铜像暂停拆除，但晚间另有通知】今日下午，有交城县委副书记表示，考虑到安全问题，“今天下午不拆了”，但稍后有官方文件称要说服群众，并指出该塑像“需要走程序”……但并未明确其树立过程中是否走了相关程序。详见下图。<br><img src="http://ww1.sinaimg.cn/large/92c79538jw1f13ta6e72fj20ku11249t.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3943983434386443" target="freeweibo-mirror">【交城华国锋铜像暂停拆除，但晚间另有通知】今日下午，有交城县…</a>
-</h2>
-<p>【交城华国锋铜像暂停拆除，但晚间另有通知】今日下午，有交城县委副书记表示，考虑到安全问题，“今天下午不拆了”，但稍后有官方文件称要说服群众，并指出该塑像“需要走程序”……但并未明确其树立过程中是否走了相关程序。详见下图。<br><img src="http://ww1.sinaimg.cn/large/92c79538jw1f13ta6e72fj20ku11249t.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3943966699364227" target="freeweibo-mirror">袁木?还记得他，去美国了？</a>
-</h2>
-<p>袁木?还记得他，去美国了？<br><br>RE: 此人叫袁木，原国务院发言人，著名反美名嘴、反美斗士，如今随女儿移居美国。袁木女儿申请美国签证的故事曾传遍北京。<br><img src="http://ww4.sinaimg.cn/large/413da42cjw1f13b9gizagj20c80cadgp.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3943965193891604" target="freeweibo-mirror">右边的傻逼为什么不移民中华民国？因为他们不收垃圾？[嘻嘻]这…</a>
-</h2>
-<p>右边的傻逼为什么不移民中华民国？因为他们不收垃圾？[嘻嘻]这孙子在"土匪"集团的统治下即没胆子造反，又没本事移民，每天娘们似的叽叽歪歪，活成这逼样也算难得了。//@温柔佐罗5世:当时中华民国就是中国的合法代表，你推崇的是土匪集团！</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3943964127568498" target="freeweibo-mirror">//@宏鑫88: //@徐xiaopang0531:爱国贼生…</a>
-</h2>
-<p>//@宏鑫88: //@徐xiaopang0531:爱国贼生意好做[偷笑]//@思想尘雾://@杨博论坛:为何反美人士大都去了美国？（当然也包括那些天天嘴上＂意识形态守土有责＂高官及二代）<br><br>RE: 此人袁木，原国务院发言人，八九学生没有不认识的，说广场未放一枪。著名喉舌、反美、反民主斗士。如今移居美国。<br><img src="http://ww3.sinaimg.cn/large/006nas7Ljw1f13ios0yy9j30c80cat9p.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3943961284091814" target="freeweibo-mirror">//@崔小平律师://@孙吉森:真知道他 //@张宏光律师:…</a>
-</h2>
-<p>//@崔小平律师://@孙吉森:真知道他 //@张宏光律师:嘴上的共产主义靠不住，脚下的资本主义才踏实。//@狐哥归来:[抓狂]//@吴顾问1970: //@通城风雨:[挖鼻]//@苏州常熟徐文石: //@雷耘:<br><br>RE: 此人袁木，原国务院发言人，八九学生没有不认识的，说广场未放一枪。著名喉舌、反美、反民主斗士。如今移居美国。<br><img src="http://ww3.sinaimg.cn/large/006nas7Ljw1f13ios0yy9j30c80cat9p.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3943946859638603" target="freeweibo-mirror">SPAM //@刘二狗蛋://@家福777: //@戎戎日9…</a>
-</h2>
-<p>SPAM //@刘二狗蛋://@家福777: //@戎戎日92记://@海龙-27: //@taitale小超人2: //@千山H胡说:不幸言中！<br><br>RE: 分享图片<br><img src="http://ww3.sinaimg.cn/large/006nWGZKgw1f13g9nc8ptj30hs0vktc6.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3943943961937772" target="freeweibo-mirror">还不死啊？//@杨红旭:晚年，美，爽了。//@程立澜: 内谁…</a>
-</h2>
-<p>还不死啊？//@杨红旭:晚年，美，爽了。//@程立澜: 内谁也还没死。//@简直: 还没死？ //@刘力博士://@外星人69007:89的时候看到这家伙在电视上的记者会都想上去抽他。这么多年过去了这老家伙要是没忏悔。估计每天都夜不能寐<br><br>RE: 此人叫袁木，原国务院发言人，著名反美名嘴、反美斗士，如今随女儿移居美国。袁木女儿申请美国签证的故事曾传遍北京。<br><img src="http://ww4.sinaimg.cn/large/413da42cjw1f13b9gizagj20c80cadgp.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3943932712757784" target="freeweibo-mirror">//@大项的天:现在不稀奇，都是这样的共产主义斗士</a>
-</h2>
-<p>//@大项的天:现在不稀奇，都是这样的共产主义斗士<br><br>RE: 此人叫袁木，原国务院发言人，著名反美名嘴、反美斗士，如今随女儿移居美国。袁木女儿申请美国签证的故事曾传遍北京。<br><img src="http://ww4.sinaimg.cn/large/413da42cjw1f13b9gizagj20c80cadgp.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
