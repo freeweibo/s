@@ -20,6 +20,18 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3944262544426819" target="freeweibo-mirror">//@西丰客人在1984:然并卵。//@刘远举:1998年朱…</a>
+</h2>
+<p>//@西丰客人在1984:然并卵。//@刘远举:1998年朱镕基视察央视，破例题写：“舆论监督，群众喉舌，政府镜鉴，改革尖兵。”在场的一位高级领导丁x提醒应是“党的喉舌”，总理朗声说道：“我没有写错！为这16个字我想了一宿，天亮时血压都上去了。”<br><br>RE: 被这张照片刷屏了。为啥啊？<br><img src="http://ww1.sinaimg.cn/large/8083182dgw1f14lj1v8d0j20nz0hsdh4.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3944260338408588" target="freeweibo-mirror">SPAM 一模一样的服装要表明什么 //@湖嗨散人:都姓一个…</a>
+</h2>
+<p>SPAM 一模一样的服装要表明什么 //@湖嗨散人:都姓一个姓了，一家子也搞得这么紧张，犯得着吗？<br><br>RE: 进自己的喉舌机关，也要带保镖，他们面无表情，虎视众生，完全置身于热烈气氛之外。 http://t.cn/z8AauOj<br><img src="http://ww1.sinaimg.cn/large/48dcce8ejw1f14lfxi6rej20zk0qowgm.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3944243775573035" target="freeweibo-mirror">党的春晚 //@任志强:讲政治！ //@薛健同学:为什么我发…</a>
 </h2>
 <p>党的春晚 //@任志强:讲政治！ //@薛健同学:为什么我发同样的图片被删除？<br><br>RE: 央視懂政治，講政治，至少懂得影像紀錄。<br><img src="http://ww3.sinaimg.cn/large/5937c055jw1f14lipy6ejj20zk0qojvl.jpg"></p>
@@ -66,7 +78,7 @@
 </h2>
 <p>入教材吧<br><br>RE: 鲸播报：19日讯，新华社参考新闻编辑部副主任蒲立业在习主席视察新华通讯社后，用笔名“朴拙子”在微信号白菜上发表题为《总书记，您的背影我的目光》的诗歌。<br><img src="http://ww1.sinaimg.cn/large/7061c249gw1f14lk5cqu0j20c81ewdkp.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3944234194634670" target="freeweibo-mirror">SPAM 总书记要视察陕西卫视的话我保证写一首比这个更有水平…</a>
 </h2>
@@ -127,18 +139,6 @@
 <p>SPAM //@未醉已迷情: //@海七叔:不厚挪出去74亿美元，瓜仔衣食无忧鸟 //@圆润女郎521://@民间治堵人陈哲宏: //@北野的理想国: //@刘力博士://@寻常-巷陌2015:好像对自己的无耻一无所知//@阎家麒: 把谎话说得理直气壮，这是党官的基本功。//@独俏逍遥2014: 这是什么演技？ //@演员孙海英:吹牛皮不上税！<br><br>RE: 电影演员们你们都弱爆了，这才叫真正的演技派。 http://t.cn/RG6S1om .</p>
 <p>
 	<small> ============== 4小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3944182567846723" target="freeweibo-mirror">//@传播学邓建国: //@喻国明:中国的权力阶层口头反美，…</a>
-</h2>
-<p>//@传播学邓建国: //@喻国明:中国的权力阶层口头反美，儿孙一家都送美国，中国人把说谎普遍地化为行为，他们是口头上的义和团分子，行动上的媚外者，这已经不止是“虚伪”（Hypocrisy），而是“虚假”。<br><br>RE: 分享自玉花园2001《反美名嘴袁木晚年居然在美国悠闲地打高尔夫球》 -     反美名嘴袁木晚年居然在美国悠闲地打高尔夫球        (来源：网络)                    今天看到朋友圈一张照...  (来自 @头条博客)   http://t.cn/RG6uMIK<br><img src="http://ww3.sinaimg.cn/large/3bd4391ajw1f14fuad660j20c80ca0tf.jpg"></p>
-<p>
-	<small> ============== 6小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3944179250456941" target="freeweibo-mirror">分享自玉花园2001《反美名嘴袁木晚年居然在美国悠闲地打高尔…</a>
-</h2>
-<p>分享自玉花园2001《反美名嘴袁木晚年居然在美国悠闲地打高尔夫球》 -     反美名嘴袁木晚年居然在美国悠闲地打高尔夫球        (来源：网络)                    今天看到朋友圈一张照...  (来自 @头条博客)   http://t.cn/RG6uMIK<br><img src="http://ww3.sinaimg.cn/large/3bd4391ajw1f14fuad660j20c80ca0tf.jpg"></p>
-<p>
-	<small> ============== 6小时前</small>
 </p>
 <table>
     <tr>
