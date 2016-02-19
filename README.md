@@ -54,7 +54,7 @@
 </h2>
 <p>[泪] //@崔小平律师:转发微博<br><br>RE: 彻底的分为对立的两个阵营了？当所有的媒体有了姓，并且不代表人民的利益时，人民就被抛弃到被遗忘的角落了！[泪]</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3944354651658757" target="freeweibo-mirror">SPAM [哈哈] //@崔小平律师://@燕山游民:[蜡烛…</a>
 </h2>
@@ -90,7 +90,7 @@
 </h2>
 <p>人民日报也来一首，请央视做成配乐诗朗诵，这样才能振奋人心嘛。<br><br>RE: 新华社参编部副主任（至少副厅级记者）今天发表的这首诗，被很多诗友认为是在向郭老致敬，代表了广大新华人的心声。问了一些新华社的朋友，大多认为这样直白颂圣的文字，不大可能是纯个人表态，也不能代表全体“新华人”。此诗在社党委或编委过了会的可能性很大，大抵能代表了社领导的心声。<br><img src="http://ww4.sinaimg.cn/large/006k3GOWjw1f14qpqt5xvj30hs2wq7eb.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3944325572292680" target="freeweibo-mirror">//@梦晨伤:写的真好，不上春晚可惜了。//@李佳佳Audr…</a>
 </h2>
@@ -126,7 +126,7 @@
 </h2>
 <p>//@___crystal_:倒退程度令人匪夷所思、瞠目结舌！<br><br>RE: 以后是不是应该改称：党中央电视台？<br><img src="http://ww2.sinaimg.cn/large/005XsazYjw1f14sc7tp7wj30k00f0dgp.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3944289911822127" target="freeweibo-mirror">SPAM //@冉氏艺文志:始终不脱二杆子起家的本色，整肃好…</a>
 </h2>
