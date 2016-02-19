@@ -32,6 +32,12 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3944387068860534" target="freeweibo-mirror">//@zdp61: 不评了//@李_英杰:经济衰退，民生凋敝…</a>
+</h2>
+<p>//@zdp61: 不评了//@李_英杰:经济衰退，民生凋敝，股市乱成一锅粥；政治极权化、痞子化，宣传弱智化、空洞化；文化日益荒芜，沦为政治的贱婢；言论空间收紧，网络封锁加剧；外交陷入被动，已无牌可打。<br><br>RE: 强烈推荐：<br><img src="http://ww2.sinaimg.cn/large/594607fbjw1f152e2hnftj20go2eu1kx.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3944358396839198" target="freeweibo-mirror">[泪] //@崔小平律师:转发微博</a>
 </h2>
 <p>[泪] //@崔小平律师:转发微博<br><br>RE: 彻底的分为对立的两个阵营了？当所有的媒体有了姓，并且不代表人民的利益时，人民就被抛弃到被遗忘的角落了！[泪]</p>
@@ -48,7 +54,7 @@
 </h2>
 <p>SPAM //@喷嚏网铂程://@徐凤文:[哼]</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3944348217913541" target="freeweibo-mirror">//@旺喜39: 栏目名可叫《小组讲话》，组长负责稿子的撰写…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3944278726326621" target="freeweibo-mirror">公器变私器，社会变成了少先队。</a>
 </h2>
 <p>公器变私器，社会变成了少先队。<br><img src="http://ww1.sinaimg.cn/large/54c6b554gw1f14r95uv5wj20m80ci0tx.jpg"></p>
-<p>
-	<small> ============== 9小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3944273927980809" target="freeweibo-mirror">新华社参编部副主任（至少副厅级记者）今天发表的这首诗，被很多…</a>
-</h2>
-<p>新华社参编部副主任（至少副厅级记者）今天发表的这首诗，被很多诗友认为是在向郭老致敬，代表了广大新华人的心声。问了一些新华社的朋友，大多认为这样直白颂圣的文字，不大可能是纯个人表态，也不能代表全体“新华人”。此诗在社党委或编委过了会的可能性很大，大抵能代表了社领导的心声。<br><img src="http://ww4.sinaimg.cn/large/006k3GOWjw1f14qpqt5xvj30hs2wq7eb.jpg"></p>
 <p>
 	<small> ============== 9小时前</small>
 </p>
