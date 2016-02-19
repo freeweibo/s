@@ -68,6 +68,18 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3944229103427045" target="freeweibo-mirror">鲸播报：19日讯，新华社参考新闻编辑部副主任蒲立业在习主席视…</a>
+</h2>
+<p>鲸播报：19日讯，新华社参考新闻编辑部副主任蒲立业在习主席视察新华通讯社后，用笔名“朴拙子”在微信号白菜上发表题为《总书记，您的背影我的目光》的诗歌。<br><img src="http://ww1.sinaimg.cn/large/7061c249gw1f14lk5cqu0j20c81ewdkp.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3944228801968549" target="freeweibo-mirror">央視懂政治，講政治，至少懂得影像紀錄。</a>
+</h2>
+<p>央視懂政治，講政治，至少懂得影像紀錄。<br><img src="http://ww3.sinaimg.cn/large/5937c055jw1f14lipy6ejj20zk0qojvl.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3944228113258076" target="freeweibo-mirror">中央新闻社就这鸟水平？？？[吐][吐][吐]//@易葦航: …</a>
 </h2>
 <p>中央新闻社就这鸟水平？？？[吐][吐][吐]//@易葦航: 诗给脏了<br><br>RE: 央视和新华社。<br><img src="http://ww4.sinaimg.cn/large/7c1d7ba8jw1f14l985np5j20rs0ku41s.jpg"></p>
@@ -84,7 +96,7 @@
 </h2>
 <p>据说今天大领导视察央视时，央视的欢迎词@曹山石<br><img src="http://ww4.sinaimg.cn/large/475b6025gw1f14kxibb3kj20ku112tco.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3944216323093899" target="freeweibo-mirror">SPAM 不管怎样，起码是有正当职业的耍嘴皮子，嘴皮子为实权…</a>
 </h2>
@@ -96,7 +108,7 @@
 </h2>
 <p>SPAM //@未醉已迷情: //@海七叔:不厚挪出去74亿美元，瓜仔衣食无忧鸟 //@圆润女郎521://@民间治堵人陈哲宏: //@北野的理想国: //@刘力博士://@寻常-巷陌2015:好像对自己的无耻一无所知//@阎家麒: 把谎话说得理直气壮，这是党官的基本功。//@独俏逍遥2014: 这是什么演技？ //@演员孙海英:吹牛皮不上税！<br><br>RE: 电影演员们你们都弱爆了，这才叫真正的演技派。 http://t.cn/RG6S1om .</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3944182567846723" target="freeweibo-mirror">//@传播学邓建国: //@喻国明:中国的权力阶层口头反美，…</a>
 </h2>
@@ -114,7 +126,7 @@
 </h2>
 <p>电影演员们你们都弱爆了，这才叫真正的演技派。 http://t.cn/RG6S1om .</p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3944025448729092" target="freeweibo-mirror">SPAM 喜欢[太开心]</a>
 </h2>
@@ -125,18 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3944021673846106" target="freeweibo-mirror">SPAM 美美的[星星眼]</a>
 </h2>
 <p>SPAM 美美的[星星眼]</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3944020868401841" target="freeweibo-mirror">SPAM 没有人类跟我玩，世界在角落和黑暗中慢慢坍塌，它不足…</a>
-</h2>
-<p>SPAM 没有人类跟我玩，世界在角落和黑暗中慢慢坍塌，它不足以自持，亦无法散射出亮光。渴望爱，而不是盲目的自作多情。——事实上，在昔日女孩的影像从脑海中完全消逝的时候，心中或许已经不再存在真实的爱了，残存一些欲望、理性和幻想而已。不受伤害，亦无以付出。想去配一副ZOFF眼镜。<br><img src="http://ww2.sinaimg.cn/large/7010b3bcjw1f13vl1e6l7j20qo0zk17e.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3944011842613937" target="freeweibo-mirror">SPAM 强拆自己房子可以，强拆华国峰铜像不行！[笑cry]…</a>
-</h2>
-<p>SPAM 强拆自己房子可以，强拆华国峰铜像不行！[笑cry]『吕梁万人聚集“保华”官方表示已停拆华国锋像』http://t.cn/RG6o5HR</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
