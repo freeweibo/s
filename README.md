@@ -20,6 +20,18 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3944240541404232" target="freeweibo-mirror">SPAM 好的[挖鼻] //@任志强:讲政治！ //@薛健同…</a>
+</h2>
+<p>SPAM 好的[挖鼻] //@任志强:讲政治！ //@薛健同学:为什么我发同样的图片被删除？<br><br>RE: 央視懂政治，講政治，至少懂得影像紀錄。<br><img src="http://ww3.sinaimg.cn/large/5937c055jw1f14lipy6ejj20zk0qojvl.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3944240335625637" target="freeweibo-mirror">SPAM 菊花饭店生意兴隆。</a>
+</h2>
+<p>SPAM 菊花饭店生意兴隆。<br><br>RE: 央视和新华社。<br><img src="http://ww4.sinaimg.cn/large/7c1d7ba8jw1f14l985np5j20rs0ku41s.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3944216323093899" target="freeweibo-mirror">SPAM 不管怎样，起码是有正当职业的耍嘴皮子，嘴皮子为实权…</a>
 </h2>
 <p>SPAM 不管怎样，起码是有正当职业的耍嘴皮子，嘴皮子为实权。总比长年无业者作秀胸怀天下点评万事，假冒“正能量”穷忽悠强。 //@邈視天下:三分天注定 七分靠嘴吹//@董藩: 我在大连时是市委市政府顾问(咨询专家)，很熟悉他，风度翩翩，口才极好，能干敢开，善秀！但霸道，专制，不尊重下属，官场评价不高。<br><br>RE: 电影演员们你们都弱爆了，这才叫真正的演技派。 http://t.cn/RG6S1om .</p>
@@ -125,18 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3943932712757784" target="freeweibo-mirror">//@大项的天:现在不稀奇，都是这样的共产主义斗士</a>
 </h2>
 <p>//@大项的天:现在不稀奇，都是这样的共产主义斗士<br><br>RE: 此人叫袁木，原国务院发言人，著名反美名嘴、反美斗士，如今随女儿移居美国。袁木女儿申请美国签证的故事曾传遍北京。<br><img src="http://ww4.sinaimg.cn/large/413da42cjw1f13b9gizagj20c80cadgp.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3943932024798679" target="freeweibo-mirror">晚年，美，爽了。//@程立澜: 内谁也还没死。//@简直: …</a>
-</h2>
-<p>晚年，美，爽了。//@程立澜: 内谁也还没死。//@简直: 还没死？ //@刘力博士://@外星人69007:89的时候看到这家伙在电视上的记者会都想上去抽他。这么多年过去了这老家伙要是没忏悔。估计每天都夜不能寐<br><br>RE: 此人叫袁木，原国务院发言人，著名反美名嘴、反美斗士，如今随女儿移居美国。袁木女儿申请美国签证的故事曾传遍北京。<br><img src="http://ww4.sinaimg.cn/large/413da42cjw1f13b9gizagj20c80cadgp.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3943919803116486" target="freeweibo-mirror">当年，“缘木求鱼”这个成语出现的频率还是蛮高的。</a>
-</h2>
-<p>当年，“缘木求鱼”这个成语出现的频率还是蛮高的。<br><br>RE: 此人叫袁木，原国务院发言人，著名反美名嘴、反美斗士，如今随女儿移居美国。袁木女儿申请美国签证的故事曾传遍北京。<br><img src="http://ww4.sinaimg.cn/large/413da42cjw1f13b9gizagj20c80cadgp.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
