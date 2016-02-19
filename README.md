@@ -36,13 +36,13 @@
 </h2>
 <p>SPAM 为任督二脉转 //@连岳lianyue:胡锡进说，我大意了。<br><br>RE: 央视和新华社。<br><img src="http://ww4.sinaimg.cn/large/7c1d7ba8jw1f14l985np5j20rs0ku41s.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3944237983114299" target="freeweibo-mirror">SPAM 为什么我发同样的图片被删除？</a>
 </h2>
 <p>SPAM 为什么我发同样的图片被删除？<br><br>RE: 央視懂政治，講政治，至少懂得影像紀錄。<br><img src="http://ww3.sinaimg.cn/large/5937c055jw1f14lipy6ejj20zk0qojvl.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3944236372152686" target="freeweibo-mirror">//@朝阳子先生://@吕洞宾出山了: 恍然大悟。//@未得…</a>
 </h2>
@@ -71,6 +71,18 @@
 	<a href="https://freeweibo.com/weibo/3944228113258076" target="freeweibo-mirror">中央新闻社就这鸟水平？？？[吐][吐][吐]//@易葦航: …</a>
 </h2>
 <p>中央新闻社就这鸟水平？？？[吐][吐][吐]//@易葦航: 诗给脏了<br><br>RE: 央视和新华社。<br><img src="http://ww4.sinaimg.cn/large/7c1d7ba8jw1f14l985np5j20rs0ku41s.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3944226448279731" target="freeweibo-mirror">央视和新华社。</a>
+</h2>
+<p>央视和新华社。<br><img src="http://ww4.sinaimg.cn/large/7c1d7ba8jw1f14l985np5j20rs0ku41s.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3944223776311546" target="freeweibo-mirror">据说今天大领导视察央视时，央视的欢迎词@曹山石</a>
+</h2>
+<p>据说今天大领导视察央视时，央视的欢迎词@曹山石<br><img src="http://ww4.sinaimg.cn/large/475b6025gw1f14kxibb3kj20ku112tco.jpg"></p>
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
@@ -125,18 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3944011842613937" target="freeweibo-mirror">SPAM 强拆自己房子可以，强拆华国峰铜像不行！[笑cry]…</a>
 </h2>
 <p>SPAM 强拆自己房子可以，强拆华国峰铜像不行！[笑cry]『吕梁万人聚集“保华”官方表示已停拆华国锋像』http://t.cn/RG6o5HR</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3943990506178911" target="freeweibo-mirror">？//@华先森-X：怎么能把我爷爷铜像拆除呢？[偷笑][哈哈…</a>
-</h2>
-<p>？//@华先森-X：怎么能把我爷爷铜像拆除呢？[偷笑][哈哈][怒][doge]<br><br>RE: 【交城华国锋铜像暂停拆除，但晚间另有通知】今日下午，有交城县委副书记表示，考虑到安全问题，“今天下午不拆了”，但稍后有官方文件称要说服群众，并指出该塑像“需要走程序”……但并未明确其树立过程中是否走了相关程序。详见下图。<br><img src="http://ww1.sinaimg.cn/large/92c79538jw1f13ta6e72fj20ku11249t.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3943988594205067" target="freeweibo-mirror">只转不评，</a>
-</h2>
-<p>只转不评，<br><br>RE: 【交城华国锋铜像暂停拆除，但晚间另有通知】今日下午，有交城县委副书记表示，考虑到安全问题，“今天下午不拆了”，但稍后有官方文件称要说服群众，并指出该塑像“需要走程序”……但并未明确其树立过程中是否走了相关程序。详见下图。<br><img src="http://ww1.sinaimg.cn/large/92c79538jw1f13ta6e72fj20ku11249t.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
