@@ -36,7 +36,7 @@
 </h2>
 <p>SPAM //@喷嚏网铂程://@徐凤文:[哼]</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3944348217913541" target="freeweibo-mirror">//@旺喜39: 栏目名可叫《小组讲话》，组长负责稿子的撰写…</a>
 </h2>
@@ -126,7 +126,7 @@
 </h2>
 <p>新华社参编部副主任（至少副厅级记者）今天发表的这首诗，被很多诗友认为是在向郭老致敬，代表了广大新华人的心声。问了一些新华社的朋友，大多认为这样直白颂圣的文字，不大可能是纯个人表态，也不能代表全体“新华人”。此诗在社党委或编委过了会的可能性很大，大抵能代表了社领导的心声。<br><img src="http://ww4.sinaimg.cn/large/006k3GOWjw1f14qpqt5xvj30hs2wq7eb.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3944265157299348" target="freeweibo-mirror">幕後導演坐到台前，這也算是不遮掩了！ http://t.cn…</a>
 </h2>
