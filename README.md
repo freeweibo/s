@@ -126,7 +126,7 @@
 </h2>
 <p>//@___crystal_:倒退程度令人匪夷所思、瞠目结舌！<br><br>RE: 以后是不是应该改称：党中央电视台？<br><img src="http://ww2.sinaimg.cn/large/005XsazYjw1f14sc7tp7wj30k00f0dgp.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3944289911822127" target="freeweibo-mirror">SPAM //@冉氏艺文志:始终不脱二杆子起家的本色，整肃好…</a>
 </h2>
