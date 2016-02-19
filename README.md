@@ -90,7 +90,7 @@
 </h2>
 <p>央视和新华社。<br><img src="http://ww4.sinaimg.cn/large/7c1d7ba8jw1f14l985np5j20rs0ku41s.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3944223776311546" target="freeweibo-mirror">据说今天大领导视察央视时，央视的欢迎词@曹山石</a>
 </h2>
