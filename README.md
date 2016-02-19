@@ -102,7 +102,7 @@
 </h2>
 <p>SPAM //@冉氏艺文志:始终不脱二杆子起家的本色，整肃好枪杆子，再来操弄笔杆子。此之谓也。<br><br>RE: 公器变私器，社会变成了少先队。<br><img src="http://ww1.sinaimg.cn/large/54c6b554gw1f14r95uv5wj20m80ci0tx.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3944288246826210" target="freeweibo-mirror">以后是不是应该改称：党中央电视台？</a>
 </h2>
