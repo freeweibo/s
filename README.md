@@ -26,6 +26,18 @@
 <p>
 	<small> ============== 1小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3944309252024927" target="freeweibo-mirror">SPAM //@CQ佬熊嘎嘎:要说气场还得看三胖。</a>
+</h2>
+<p>SPAM //@CQ佬熊嘎嘎:要说气场还得看三胖。<br><br>RE: 看看效果赶个时髦～<br><img src="http://ww2.sinaimg.cn/large/d60724d4jw1f14tnvhw82g205s03dqng.gif"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3944297864422192" target="freeweibo-mirror">//@___crystal_:倒退程度令人匪夷所思、瞠目结舌…</a>
+</h2>
+<p>//@___crystal_:倒退程度令人匪夷所思、瞠目结舌！<br><br>RE: 以后是不是应该改称：党中央电视台？<br><img src="http://ww2.sinaimg.cn/large/005XsazYjw1f14sc7tp7wj30k00f0dgp.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3944289911822127" target="freeweibo-mirror">SPAM //@冉氏艺文志:始终不脱二杆子起家的本色，整肃好…</a>
 </h2>
 <p>SPAM //@冉氏艺文志:始终不脱二杆子起家的本色，整肃好枪杆子，再来操弄笔杆子。此之谓也。<br><br>RE: 公器变私器，社会变成了少先队。<br><img src="http://ww1.sinaimg.cn/large/54c6b554gw1f14r95uv5wj20m80ci0tx.jpg"></p>
@@ -125,18 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3944245624499636" target="freeweibo-mirror">//@刘远举: 1998年朱镕基视察央视，破例题写：“舆论监…</a>
 </h2>
 <p>//@刘远举: 1998年朱镕基视察央视，破例题写：“舆论监督，群众喉舌，政府镜鉴，改革尖兵。”在场的一位高级领导丁x提醒应是“党的喉舌”，总理朗声说道：“我没有写错！为这16个字我想了一宿，天亮时血压都上去了。”<br><br>RE: 被这张照片刷屏了。为啥啊？<br><img src="http://ww1.sinaimg.cn/large/8083182dgw1f14lj1v8d0j20nz0hsdh4.jpg"></p>
-<p>
-	<small> ============== 6小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3944243975953082" target="freeweibo-mirror">SPAM 姓党的都是孤儿院出来的吧？</a>
-</h2>
-<p>SPAM 姓党的都是孤儿院出来的吧？<br><br>RE: 绝对忠诚<br><img src="http://ww3.sinaimg.cn/large/8bfcdacbjw1f14mgbevgsj208c0h0q3j.jpg"></p>
-<p>
-	<small> ============== 6小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3944243775573035" target="freeweibo-mirror">党的春晚 //@任志强:讲政治！ //@薛健同学:为什么我发…</a>
-</h2>
-<p>党的春晚 //@任志强:讲政治！ //@薛健同学:为什么我发同样的图片被删除？<br><br>RE: 央視懂政治，講政治，至少懂得影像紀錄。<br><img src="http://ww3.sinaimg.cn/large/5937c055jw1f14lipy6ejj20zk0qojvl.jpg"></p>
 <p>
 	<small> ============== 6小时前</small>
 </p>
