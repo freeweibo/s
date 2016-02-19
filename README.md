@@ -30,7 +30,7 @@
 </h2>
 <p>SPAM 一模一样的服装要表明什么 //@湖嗨散人:都姓一个姓了，一家子也搞得这么紧张，犯得着吗？<br><br>RE: 进自己的喉舌机关，也要带保镖，他们面无表情，虎视众生，完全置身于热烈气氛之外。 http://t.cn/z8AauOj<br><img src="http://ww1.sinaimg.cn/large/48dcce8ejw1f14lfxi6rej20zk0qowgm.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3944258568878691" target="freeweibo-mirror">//@自由的章鱼哥12: //@张晨初艺术空间://@MT油…</a>
 </h2>
@@ -102,7 +102,7 @@
 </h2>
 <p>//@刘远举: 1998年朱镕基视察央视，破例题写：“舆论监督，群众喉舌，政府镜鉴，改革尖兵。”在场的一位高级领导丁x提醒应是“党的喉舌”，总理朗声说道：“我没有写错！为这16个字我想了一宿，天亮时血压都上去了。”<br><br>RE: 被这张照片刷屏了。为啥啊？<br><img src="http://ww1.sinaimg.cn/large/8083182dgw1f14lj1v8d0j20nz0hsdh4.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3944243975953082" target="freeweibo-mirror">SPAM 姓党的都是孤儿院出来的吧？</a>
 </h2>
