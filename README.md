@@ -42,7 +42,7 @@
 </h2>
 <p>SPAM 强拆自己房子可以，强拆华国峰铜像不行！[笑cry]『吕梁万人聚集“保华”官方表示已停拆华国锋像』http://t.cn/RG6o5HR</p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3943990506178911" target="freeweibo-mirror">？//@华先森-X：怎么能把我爷爷铜像拆除呢？[偷笑][哈哈…</a>
 </h2>
