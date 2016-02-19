@@ -24,7 +24,7 @@
 </h2>
 <p>党的春晚 //@任志强:讲政治！ //@薛健同学:为什么我发同样的图片被删除？<br><br>RE: 央視懂政治，講政治，至少懂得影像紀錄。<br><img src="http://ww3.sinaimg.cn/large/5937c055jw1f14lipy6ejj20zk0qojvl.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3944240541404232" target="freeweibo-mirror">SPAM 好的[挖鼻] //@任志强:讲政治！ //@薛健同…</a>
 </h2>
@@ -68,9 +68,21 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3944234194634670" target="freeweibo-mirror">SPAM 总书记要视察陕西卫视的话我保证写一首比这个更有水平…</a>
+</h2>
+<p>SPAM 总书记要视察陕西卫视的话我保证写一首比这个更有水平！<br><br>RE: 央视和新华社。<br><img src="http://ww4.sinaimg.cn/large/7c1d7ba8jw1f14l985np5j20rs0ku41s.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3944231049910071" target="freeweibo-mirror">盛世出诗人[哈哈]</a>
 </h2>
 <p>盛世出诗人[哈哈]<br><br>RE: 鲸播报：19日讯，新华社参考新闻编辑部副主任蒲立业在习主席视察新华通讯社后，用笔名“朴拙子”在微信号白菜上发表题为《总书记，您的背影我的目光》的诗歌。<br><img src="http://ww1.sinaimg.cn/large/7061c249gw1f14lk5cqu0j20c81ewdkp.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3944230575461375" target="freeweibo-mirror">谄。</a>
+</h2>
+<p>谄。<br><br>RE: 鲸播报：19日讯，新华社参考新闻编辑部副主任蒲立业在习主席视察新华通讯社后，用笔名“朴拙子”在微信号白菜上发表题为《总书记，您的背影我的目光》的诗歌。<br><img src="http://ww1.sinaimg.cn/large/7061c249gw1f14lk5cqu0j20c81ewdkp.jpg"></p>
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
@@ -78,19 +90,19 @@
 </h2>
 <p>鲸播报：19日讯，新华社参考新闻编辑部副主任蒲立业在习主席视察新华通讯社后，用笔名“朴拙子”在微信号白菜上发表题为《总书记，您的背影我的目光》的诗歌。<br><img src="http://ww1.sinaimg.cn/large/7061c249gw1f14lk5cqu0j20c81ewdkp.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3944228801968549" target="freeweibo-mirror">央視懂政治，講政治，至少懂得影像紀錄。</a>
 </h2>
 <p>央視懂政治，講政治，至少懂得影像紀錄。<br><img src="http://ww3.sinaimg.cn/large/5937c055jw1f14lipy6ejj20zk0qojvl.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3944228113258076" target="freeweibo-mirror">中央新闻社就这鸟水平？？？[吐][吐][吐]//@易葦航: …</a>
 </h2>
 <p>中央新闻社就这鸟水平？？？[吐][吐][吐]//@易葦航: 诗给脏了<br><br>RE: 央视和新华社。<br><img src="http://ww4.sinaimg.cn/large/7c1d7ba8jw1f14l985np5j20rs0ku41s.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3944226448279731" target="freeweibo-mirror">央视和新华社。</a>
 </h2>
@@ -127,18 +139,6 @@
 <p>分享自玉花园2001《反美名嘴袁木晚年居然在美国悠闲地打高尔夫球》 -     反美名嘴袁木晚年居然在美国悠闲地打高尔夫球        (来源：网络)                    今天看到朋友圈一张照...  (来自 @头条博客)   http://t.cn/RG6uMIK<br><img src="http://ww3.sinaimg.cn/large/3bd4391ajw1f14fuad660j20c80ca0tf.jpg"></p>
 <p>
 	<small> ============== 6小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3944163730694008" target="freeweibo-mirror">电影演员们你们都弱爆了，这才叫真正的演技派。 http://…</a>
-</h2>
-<p>电影演员们你们都弱爆了，这才叫真正的演技派。 http://t.cn/RG6S1om .</p>
-<p>
-	<small> ============== 7小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3944025448729092" target="freeweibo-mirror">SPAM 喜欢[太开心]</a>
-</h2>
-<p>SPAM 喜欢[太开心]</p>
-<p>
-	<small> ============== 1天前</small>
 </p>
 <table>
     <tr>
