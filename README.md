@@ -36,13 +36,13 @@
 </h2>
 <p>SPAM 美美的[星星眼]</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3944020868401841" target="freeweibo-mirror">SPAM 没有人类跟我玩，世界在角落和黑暗中慢慢坍塌，它不足…</a>
 </h2>
 <p>SPAM 没有人类跟我玩，世界在角落和黑暗中慢慢坍塌，它不足以自持，亦无法散射出亮光。渴望爱，而不是盲目的自作多情。——事实上，在昔日女孩的影像从脑海中完全消逝的时候，心中或许已经不再存在真实的爱了，残存一些欲望、理性和幻想而已。不受伤害，亦无以付出。想去配一副ZOFF眼镜。<br><img src="http://ww2.sinaimg.cn/large/7010b3bcjw1f13vl1e6l7j20qo0zk17e.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3944011842613937" target="freeweibo-mirror">SPAM 强拆自己房子可以，强拆华国峰铜像不行！[笑cry]…</a>
 </h2>
@@ -138,7 +138,7 @@
 </h2>
 <p>SPAM 以你之名，冠我之姓，一生相伴，一世相随！私人定制，以挚爱为名，为你量身定做，让你独一无二的美丽！</p>
 <p>
-	<small> ============== 1天前</small>
+	<small> ============== 2天前</small>
 </p>
 <table>
     <tr>
