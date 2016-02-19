@@ -36,7 +36,7 @@
 </h2>
 <p>//@梦晨伤:写的真好，不上春晚可惜了。//@李佳佳Audrey:才子，服。<br><br>RE: 新华社参编部副主任（至少副厅级记者）今天发表的这首诗，被很多诗友认为是在向郭老致敬，代表了广大新华人的心声。问了一些新华社的朋友，大多认为这样直白颂圣的文字，不大可能是纯个人表态，也不能代表全体“新华人”。此诗在社党委或编委过了会的可能性很大，大抵能代表了社领导的心声。<br><img src="http://ww4.sinaimg.cn/large/006k3GOWjw1f14qpqt5xvj30hs2wq7eb.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3944317964116340" target="freeweibo-mirror">[晕] //@荣剑2001:现在血压不会再高了吧？//@陶景…</a>
 </h2>
@@ -102,7 +102,7 @@
 </h2>
 <p>幕後導演坐到台前，這也算是不遮掩了！ http://t.cn/R2WJvly<br><img src="http://ww4.sinaimg.cn/large/5186d665jw1f14pofzbwlj20k00g6jt4.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3944262544426819" target="freeweibo-mirror">//@西丰客人在1984:然并卵。//@刘远举:1998年朱…</a>
 </h2>
