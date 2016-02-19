@@ -42,7 +42,7 @@
 </h2>
 <p>//@土豆2008://@梅虔: 今夜网上传出来一连串神秘数字；→→1966→→1976→→1986→→1996→→2006→→2016→→1966→→……据说是宇宙真理密码。[钟]//@blue蓝蓝青天: 转发微博<br><br>RE: 强烈推荐：<br><img src="http://ww2.sinaimg.cn/large/594607fbjw1f152e2hnftj20go2eu1kx.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3944375593703594" target="freeweibo-mirror">强烈推荐：</a>
 </h2>
@@ -96,7 +96,7 @@
 </h2>
 <p>//@梦晨伤:写的真好，不上春晚可惜了。//@李佳佳Audrey:才子，服。<br><br>RE: 新华社参编部副主任（至少副厅级记者）今天发表的这首诗，被很多诗友认为是在向郭老致敬，代表了广大新华人的心声。问了一些新华社的朋友，大多认为这样直白颂圣的文字，不大可能是纯个人表态，也不能代表全体“新华人”。此诗在社党委或编委过了会的可能性很大，大抵能代表了社领导的心声。<br><img src="http://ww4.sinaimg.cn/large/006k3GOWjw1f14qpqt5xvj30hs2wq7eb.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3944317964116340" target="freeweibo-mirror">[晕] //@荣剑2001:现在血压不会再高了吧？//@陶景…</a>
 </h2>
