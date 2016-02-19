@@ -114,7 +114,7 @@
 </h2>
 <p>//@王亚军上海:转发微博<br><br>RE: 幕後導演坐到台前，這也算是不遮掩了！ http://t.cn/R2WJvly<br><img src="http://ww4.sinaimg.cn/large/5186d665jw1f14pofzbwlj20k00g6jt4.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3944299656232931" target="freeweibo-mirror">看看效果赶个时髦～</a>
 </h2>
