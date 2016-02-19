@@ -20,11 +20,17 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3944216323093899" target="freeweibo-mirror">SPAM 不管怎样，起码是有正当职业的耍嘴皮子，嘴皮子为实权…</a>
+</h2>
+<p>SPAM 不管怎样，起码是有正当职业的耍嘴皮子，嘴皮子为实权。总比长年无业者作秀胸怀天下点评万事，假冒“正能量”穷忽悠强。 //@邈視天下:三分天注定 七分靠嘴吹//@董藩: 我在大连时是市委市政府顾问(咨询专家)，很熟悉他，风度翩翩，口才极好，能干敢开，善秀！但霸道，专制，不尊重下属，官场评价不高。<br><br>RE: 电影演员们你们都弱爆了，这才叫真正的演技派。 http://t.cn/RG6S1om .</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3944182567846723" target="freeweibo-mirror">//@传播学邓建国: //@喻国明:中国的权力阶层口头反美，…</a>
 </h2>
 <p>//@传播学邓建国: //@喻国明:中国的权力阶层口头反美，儿孙一家都送美国，中国人把说谎普遍地化为行为，他们是口头上的义和团分子，行动上的媚外者，这已经不止是“虚伪”（Hypocrisy），而是“虚假”。<br><br>RE: 分享自玉花园2001《反美名嘴袁木晚年居然在美国悠闲地打高尔夫球》 -     反美名嘴袁木晚年居然在美国悠闲地打高尔夫球        (来源：网络)                    今天看到朋友圈一张照...  (来自 @头条博客)   http://t.cn/RG6uMIK<br><img src="http://ww3.sinaimg.cn/large/3bd4391ajw1f14fuad660j20c80ca0tf.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3944179250456941" target="freeweibo-mirror">分享自玉花园2001《反美名嘴袁木晚年居然在美国悠闲地打高尔…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3943890794961894" target="freeweibo-mirror">此人袁木，原国务院发言人，八九学生没有不认识的，说广场未放一…</a>
 </h2>
 <p>此人袁木，原国务院发言人，八九学生没有不认识的，说广场未放一枪。著名喉舌、反美、反民主斗士。如今移居美国。<br><img src="http://ww3.sinaimg.cn/large/006nas7Ljw1f13ios0yy9j30c80cat9p.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3943826881991720" target="freeweibo-mirror">此人叫袁木，原国务院发言人，著名反美名嘴、反美斗士，如今随女…</a>
-</h2>
-<p>此人叫袁木，原国务院发言人，著名反美名嘴、反美斗士，如今随女儿移居美国。袁木女儿申请美国签证的故事曾传遍北京。<br><img src="http://ww4.sinaimg.cn/large/413da42cjw1f13b9gizagj20c80cadgp.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
