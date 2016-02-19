@@ -24,7 +24,7 @@
 </h2>
 <p>SPAM 喜欢[太开心]</p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3944021673846106" target="freeweibo-mirror">SPAM 美美的[星星眼]</a>
 </h2>
