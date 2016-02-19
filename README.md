@@ -72,7 +72,7 @@
 </h2>
 <p>SPAM 总书记要视察陕西卫视的话我保证写一首比这个更有水平！<br><br>RE: 央视和新华社。<br><img src="http://ww4.sinaimg.cn/large/7c1d7ba8jw1f14l985np5j20rs0ku41s.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3944231049910071" target="freeweibo-mirror">盛世出诗人[哈哈]</a>
 </h2>
