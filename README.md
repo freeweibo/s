@@ -90,13 +90,13 @@
 </h2>
 <p>SPAM 为任督二脉转 //@连岳lianyue:胡锡进说，我大意了。<br><br>RE: 央视和新华社。<br><img src="http://ww4.sinaimg.cn/large/7c1d7ba8jw1f14l985np5j20rs0ku41s.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3944237983114299" target="freeweibo-mirror">SPAM 为什么我发同样的图片被删除？</a>
 </h2>
 <p>SPAM 为什么我发同样的图片被删除？<br><br>RE: 央視懂政治，講政治，至少懂得影像紀錄。<br><img src="http://ww3.sinaimg.cn/large/5937c055jw1f14lipy6ejj20zk0qojvl.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3944236372152686" target="freeweibo-mirror">//@朝阳子先生://@吕洞宾出山了: 恍然大悟。//@未得…</a>
 </h2>
