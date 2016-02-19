@@ -54,7 +54,7 @@
 </h2>
 <p>看看效果赶个时髦～<br><img src="http://ww2.sinaimg.cn/large/d60724d4jw1f14tnvhw82g205s03dqng.gif"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3944297864422192" target="freeweibo-mirror">//@___crystal_:倒退程度令人匪夷所思、瞠目结舌…</a>
 </h2>
@@ -132,7 +132,7 @@
 </h2>
 <p>//@刘咚咚:→_→ //@小楼春正好:[喵喵][喵喵]就愿意看着你们满腹牢骚发不出还不得不看央视。<br><br>RE: 呵呵呵，我不说话[哈哈]<br><img src="http://ww2.sinaimg.cn/large/006o34Figw1f14lcoqntgj30k00f0jss.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3944250401886549" target="freeweibo-mirror">//@刘远举:1998年朱镕基视察央视，破例题写：“舆论监督…</a>
 </h2>
