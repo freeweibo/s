@@ -84,7 +84,7 @@
 </h2>
 <p>SPAM //@冉氏艺文志:始终不脱二杆子起家的本色，整肃好枪杆子，再来操弄笔杆子。此之谓也。<br><br>RE: 公器变私器，社会变成了少先队。<br><img src="http://ww1.sinaimg.cn/large/54c6b554gw1f14r95uv5wj20m80ci0tx.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3944288246826210" target="freeweibo-mirror">以后是不是应该改称：党中央电视台？</a>
 </h2>
@@ -126,7 +126,7 @@
 </h2>
 <p>SPAM 一模一样的服装要表明什么 //@湖嗨散人:都姓一个姓了，一家子也搞得这么紧张，犯得着吗？<br><br>RE: 进自己的喉舌机关，也要带保镖，他们面无表情，虎视众生，完全置身于热烈气氛之外。 http://t.cn/z8AauOj<br><img src="http://ww1.sinaimg.cn/large/48dcce8ejw1f14lfxi6rej20zk0qowgm.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3944258568878691" target="freeweibo-mirror">//@自由的章鱼哥12: //@张晨初艺术空间://@MT油…</a>
 </h2>
