@@ -24,13 +24,13 @@
 </h2>
 <p>SPAM 好的[挖鼻] //@任志强:讲政治！ //@薛健同学:为什么我发同样的图片被删除？<br><br>RE: 央視懂政治，講政治，至少懂得影像紀錄。<br><img src="http://ww3.sinaimg.cn/large/5937c055jw1f14lipy6ejj20zk0qojvl.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3944240335625637" target="freeweibo-mirror">SPAM 菊花饭店生意兴隆。</a>
 </h2>
 <p>SPAM 菊花饭店生意兴隆。<br><br>RE: 央视和新华社。<br><img src="http://ww4.sinaimg.cn/large/7c1d7ba8jw1f14l985np5j20rs0ku41s.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3944238125127560" target="freeweibo-mirror">SPAM 为任督二脉转 //@连岳lianyue:胡锡进说，…</a>
 </h2>
@@ -120,7 +120,7 @@
 </h2>
 <p>分享自玉花园2001《反美名嘴袁木晚年居然在美国悠闲地打高尔夫球》 -     反美名嘴袁木晚年居然在美国悠闲地打高尔夫球        (来源：网络)                    今天看到朋友圈一张照...  (来自 @头条博客)   http://t.cn/RG6uMIK<br><img src="http://ww3.sinaimg.cn/large/3bd4391ajw1f14fuad660j20c80ca0tf.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3944163730694008" target="freeweibo-mirror">电影演员们你们都弱爆了，这才叫真正的演技派。 http://…</a>
 </h2>
