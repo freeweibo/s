@@ -42,7 +42,7 @@
 </h2>
 <p>//@张晨初艺术空间:://@刘远举:1998年朱镕基视察央视，破例题写：“舆论监督，群众喉舌，政府镜鉴，改革尖兵。”在场的一位高级领导丁x提醒应是“党的喉舌”，总理朗声说道：“我没有写错！为这16个字我想了一宿，天亮时血压都上去了。”<br><br>RE: 被这张照片刷屏了。为啥啊？<br><img src="http://ww1.sinaimg.cn/large/8083182dgw1f14lj1v8d0j20nz0hsdh4.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3944254793505374" target="freeweibo-mirror">//@MT油画室://@刘远举:1998年朱镕基视察央视，破…</a>
 </h2>
@@ -56,9 +56,33 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3944250401886549" target="freeweibo-mirror">//@刘远举:1998年朱镕基视察央视，破例题写：“舆论监督…</a>
+</h2>
+<p>//@刘远举:1998年朱镕基视察央视，破例题写：“舆论监督，群众喉舌，政府镜鉴，改革尖兵。”在场的一位高级领导丁x提醒应是“党的喉舌”，总理朗声说道：“我没有写错！为这16个字我想了一宿，天亮时血压都上去了。”<br><br>RE: 被这张照片刷屏了。为啥啊？<br><img src="http://ww1.sinaimg.cn/large/8083182dgw1f14lj1v8d0j20nz0hsdh4.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3944249969479472" target="freeweibo-mirror">党姓的央视这两年出了不少问题啊。腐败现象不可谓不严重。是之前…</a>
 </h2>
 <p>党姓的央视这两年出了不少问题啊。腐败现象不可谓不严重。是之前对中央不忠诚，还是忘了自己姓什么？//@曼娜回忆录30: 像刚刚做完亲子鉴定似的![汗]<br><br>RE: 被这张照片刷屏了。为啥啊？<br><img src="http://ww1.sinaimg.cn/large/8083182dgw1f14lj1v8d0j20nz0hsdh4.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3944249646484722" target="freeweibo-mirror">//@陆亚明:哦。原来这样！//@刘远举: 1998年朱镕基…</a>
+</h2>
+<p>//@陆亚明:哦。原来这样！//@刘远举: 1998年朱镕基视察央视，破例题写：“舆论监督，群众喉舌，政府镜鉴，改革尖兵。”在场的一位高级领导丁x提醒应是“党的喉舌”，总理朗声说道：“我没有写错！为这16个字我想了一宿，天亮时血压都上去了。”<br><br>RE: 被这张照片刷屏了。为啥啊？<br><img src="http://ww1.sinaimg.cn/large/8083182dgw1f14lj1v8d0j20nz0hsdh4.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3944249618181289" target="freeweibo-mirror">历史大倒退，越来越朝鲜//@眭小军:监督到了认干爹，悲哀//…</a>
+</h2>
+<p>历史大倒退，越来越朝鲜//@眭小军:监督到了认干爹，悲哀//@朱学东://@刘远举: 1998年朱镕基视察央视，破例题写：“舆论监督，群众喉舌，政府镜鉴，改革尖兵。”在场的一位高级领导丁x提醒应是“党的喉舌”，总理朗声说道：“我没有写错！为这16个字我想了一宿，天亮时血压都上去了。”<br><br>RE: 被这张照片刷屏了。为啥啊？<br><img src="http://ww1.sinaimg.cn/large/8083182dgw1f14lj1v8d0j20nz0hsdh4.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3944248874996484" target="freeweibo-mirror">//@开进布拉格://@李佳佳Audrey: //@刘远举:…</a>
+</h2>
+<p>//@开进布拉格://@李佳佳Audrey: //@刘远举: 1998年朱镕基视察央视，破例题写：“舆论监督，群众喉舌，政府镜鉴，改革尖兵。”在场的一位高级领导丁x提醒应是“党的喉舌”，总理朗声说道：“我没有写错！为这16个字我想了一宿，天亮时血压都上去了。”<br><br>RE: 被这张照片刷屏了。为啥啊？<br><img src="http://ww1.sinaimg.cn/large/8083182dgw1f14lj1v8d0j20nz0hsdh4.jpg"></p>
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
@@ -98,6 +122,12 @@
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3944236862220069" target="freeweibo-mirror">绝对忠诚</a>
+</h2>
+<p>绝对忠诚<br><img src="http://ww3.sinaimg.cn/large/8bfcdacbjw1f14mgbevgsj208c0h0q3j.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3944236372152686" target="freeweibo-mirror">//@朝阳子先生://@吕洞宾出山了: 恍然大悟。//@未得…</a>
 </h2>
 <p>//@朝阳子先生://@吕洞宾出山了: 恍然大悟。//@未得糊涂://@黄亭序: 理解春晚了。//@荒堂省三:转发微博<br><br>RE: 据说今天大领导视察央视时，央视的欢迎词@曹山石<br><img src="http://ww4.sinaimg.cn/large/475b6025gw1f14kxibb3kj20ku112tco.jpg"></p>
@@ -107,36 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3944235851550982" target="freeweibo-mirror">SPAM 改名了：D央电视台</a>
 </h2>
 <p>SPAM 改名了：D央电视台<br><img src="http://ww2.sinaimg.cn/large/6841ec71gw1f14mbkm86wj20c8096jsa.jpg"></p>
-<p>
-	<small> ============== 3小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3944234937710139" target="freeweibo-mirror">入教材吧</a>
-</h2>
-<p>入教材吧<br><br>RE: 鲸播报：19日讯，新华社参考新闻编辑部副主任蒲立业在习主席视察新华通讯社后，用笔名“朴拙子”在微信号白菜上发表题为《总书记，您的背影我的目光》的诗歌。<br><img src="http://ww1.sinaimg.cn/large/7061c249gw1f14lk5cqu0j20c81ewdkp.jpg"></p>
-<p>
-	<small> ============== 3小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3944234194634670" target="freeweibo-mirror">SPAM 总书记要视察陕西卫视的话我保证写一首比这个更有水平…</a>
-</h2>
-<p>SPAM 总书记要视察陕西卫视的话我保证写一首比这个更有水平！<br><br>RE: 央视和新华社。<br><img src="http://ww4.sinaimg.cn/large/7c1d7ba8jw1f14l985np5j20rs0ku41s.jpg"></p>
-<p>
-	<small> ============== 3小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3944231049910071" target="freeweibo-mirror">盛世出诗人[哈哈]</a>
-</h2>
-<p>盛世出诗人[哈哈]<br><br>RE: 鲸播报：19日讯，新华社参考新闻编辑部副主任蒲立业在习主席视察新华通讯社后，用笔名“朴拙子”在微信号白菜上发表题为《总书记，您的背影我的目光》的诗歌。<br><img src="http://ww1.sinaimg.cn/large/7061c249gw1f14lk5cqu0j20c81ewdkp.jpg"></p>
-<p>
-	<small> ============== 3小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3944230575461375" target="freeweibo-mirror">谄。</a>
-</h2>
-<p>谄。<br><br>RE: 鲸播报：19日讯，新华社参考新闻编辑部副主任蒲立业在习主席视察新华通讯社后，用笔名“朴拙子”在微信号白菜上发表题为《总书记，您的背影我的目光》的诗歌。<br><img src="http://ww1.sinaimg.cn/large/7061c249gw1f14lk5cqu0j20c81ewdkp.jpg"></p>
-<p>
-	<small> ============== 3小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3944229103427045" target="freeweibo-mirror">鲸播报：19日讯，新华社参考新闻编辑部副主任蒲立业在习主席视…</a>
-</h2>
-<p>鲸播报：19日讯，新华社参考新闻编辑部副主任蒲立业在习主席视察新华通讯社后，用笔名“朴拙子”在微信号白菜上发表题为《总书记，您的背影我的目光》的诗歌。<br><img src="http://ww1.sinaimg.cn/large/7061c249gw1f14lk5cqu0j20c81ewdkp.jpg"></p>
 <p>
 	<small> ============== 3小时前</small>
 </p>
