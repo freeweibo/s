@@ -38,6 +38,12 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3944375593703594" target="freeweibo-mirror">强烈推荐：</a>
+</h2>
+<p>强烈推荐：<br><img src="http://ww2.sinaimg.cn/large/594607fbjw1f152e2hnftj20go2eu1kx.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3944358396839198" target="freeweibo-mirror">[泪] //@崔小平律师:转发微博</a>
 </h2>
 <p>[泪] //@崔小平律师:转发微博<br><br>RE: 彻底的分为对立的两个阵营了？当所有的媒体有了姓，并且不代表人民的利益时，人民就被抛弃到被遗忘的角落了！[泪]</p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3944282785979353" target="freeweibo-mirror">世界怎么这么多山羊？首先我 替高先生 问候你全家。 高 自己…</a>
 </h2>
 <p>世界怎么这么多山羊？首先我 替高先生 问候你全家。 高 自己讲的 女儿是鎂国弓民。驾照是他自己发的。我转发算侵犯隐私吗？人家什么国籍跟你有什么关系？还给大众造成误会。对。我确实说错了。其实高的母亲出生在德国。应该是德国籍+美国（最少是PR）你说这些话想表达什么？你代表小粉洪？还是自干五？<br><img src="http://ww4.sinaimg.cn/large/7df898fdjw1f14r6ralcaj20hs0vkq6d.jpg"></p>
-<p>
-	<small> ============== 9小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3944278726326621" target="freeweibo-mirror">公器变私器，社会变成了少先队。</a>
-</h2>
-<p>公器变私器，社会变成了少先队。<br><img src="http://ww1.sinaimg.cn/large/54c6b554gw1f14r95uv5wj20m80ci0tx.jpg"></p>
 <p>
 	<small> ============== 9小时前</small>
 </p>
