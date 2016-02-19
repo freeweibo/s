@@ -32,11 +32,17 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3944299656232931" target="freeweibo-mirror">看看效果赶个时髦～</a>
+</h2>
+<p>看看效果赶个时髦～<br><img src="http://ww2.sinaimg.cn/large/d60724d4jw1f14tnvhw82g205s03dqng.gif"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3944297864422192" target="freeweibo-mirror">//@___crystal_:倒退程度令人匪夷所思、瞠目结舌…</a>
 </h2>
 <p>//@___crystal_:倒退程度令人匪夷所思、瞠目结舌！<br><br>RE: 以后是不是应该改称：党中央电视台？<br><img src="http://ww2.sinaimg.cn/large/005XsazYjw1f14sc7tp7wj30k00f0dgp.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3944289911822127" target="freeweibo-mirror">SPAM //@冉氏艺文志:始终不脱二杆子起家的本色，整肃好…</a>
 </h2>
@@ -44,11 +50,17 @@
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3944288246826210" target="freeweibo-mirror">以后是不是应该改称：党中央电视台？</a>
+</h2>
+<p>以后是不是应该改称：党中央电视台？<br><img src="http://ww2.sinaimg.cn/large/005XsazYjw1f14sc7tp7wj30k00f0dgp.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3944282785979353" target="freeweibo-mirror">世界怎么这么多山羊？首先我 替高先生 问候你全家。 高 自己…</a>
 </h2>
 <p>世界怎么这么多山羊？首先我 替高先生 问候你全家。 高 自己讲的 女儿是鎂国弓民。驾照是他自己发的。我转发算侵犯隐私吗？人家什么国籍跟你有什么关系？还给大众造成误会。对。我确实说错了。其实高的母亲出生在德国。应该是德国籍+美国（最少是PR）你说这些话想表达什么？你代表小粉洪？还是自干五？<br><img src="http://ww4.sinaimg.cn/large/7df898fdjw1f14r6ralcaj20hs0vkq6d.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3944278726326621" target="freeweibo-mirror">公器变私器，社会变成了少先队。</a>
 </h2>
@@ -125,18 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3944248874996484" target="freeweibo-mirror">//@开进布拉格://@李佳佳Audrey: //@刘远举:…</a>
 </h2>
 <p>//@开进布拉格://@李佳佳Audrey: //@刘远举: 1998年朱镕基视察央视，破例题写：“舆论监督，群众喉舌，政府镜鉴，改革尖兵。”在场的一位高级领导丁x提醒应是“党的喉舌”，总理朗声说道：“我没有写错！为这16个字我想了一宿，天亮时血压都上去了。”<br><br>RE: 被这张照片刷屏了。为啥啊？<br><img src="http://ww1.sinaimg.cn/large/8083182dgw1f14lj1v8d0j20nz0hsdh4.jpg"></p>
-<p>
-	<small> ============== 6小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3944248699318148" target="freeweibo-mirror">//@李維film: //@王克勤: 【群众喉舌】//@朱学…</a>
-</h2>
-<p>//@李維film: //@王克勤: 【群众喉舌】//@朱学东: //@刘远举: 1998年朱镕基视察央视，破例题写：“舆论监督，群众喉舌，政府镜鉴，改革尖兵。”在场的一位高级领导丁x提醒应是“党的喉舌”，总理朗声说道：“我没有写错！为这16个字我想了一宿，天亮时血压都上去了。”<br><br>RE: 被这张照片刷屏了。为啥啊？<br><img src="http://ww1.sinaimg.cn/large/8083182dgw1f14lj1v8d0j20nz0hsdh4.jpg"></p>
-<p>
-	<small> ============== 6小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3944245624499636" target="freeweibo-mirror">//@刘远举: 1998年朱镕基视察央视，破例题写：“舆论监…</a>
-</h2>
-<p>//@刘远举: 1998年朱镕基视察央视，破例题写：“舆论监督，群众喉舌，政府镜鉴，改革尖兵。”在场的一位高级领导丁x提醒应是“党的喉舌”，总理朗声说道：“我没有写错！为这16个字我想了一宿，天亮时血压都上去了。”<br><br>RE: 被这张照片刷屏了。为啥啊？<br><img src="http://ww1.sinaimg.cn/large/8083182dgw1f14lj1v8d0j20nz0hsdh4.jpg"></p>
 <p>
 	<small> ============== 6小时前</small>
 </p>
