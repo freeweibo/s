@@ -36,7 +36,7 @@
 </h2>
 <p>//@自由的章鱼哥12: //@张晨初艺术空间://@MT油画室://@刘远举:1998年朱镕基视察央视，破例题写：“舆论监督，群众喉舌，政府镜鉴，改革尖兵。”在场的一位高级领导丁x提醒应是“党的喉舌”，总理朗声说道：“我没有写错！为这16个字我想了一宿，天亮时血压都上去了。”<br><br>RE: 被这张照片刷屏了。为啥啊？<br><img src="http://ww1.sinaimg.cn/large/8083182dgw1f14lj1v8d0j20nz0hsdh4.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3944257079098841" target="freeweibo-mirror">//@张晨初艺术空间:://@刘远举:1998年朱镕基视察央…</a>
 </h2>
@@ -90,13 +90,13 @@
 </h2>
 <p>SPAM 姓党的都是孤儿院出来的吧？<br><br>RE: 绝对忠诚<br><img src="http://ww3.sinaimg.cn/large/8bfcdacbjw1f14mgbevgsj208c0h0q3j.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3944243775573035" target="freeweibo-mirror">党的春晚 //@任志强:讲政治！ //@薛健同学:为什么我发…</a>
 </h2>
 <p>党的春晚 //@任志强:讲政治！ //@薛健同学:为什么我发同样的图片被删除？<br><br>RE: 央視懂政治，講政治，至少懂得影像紀錄。<br><img src="http://ww3.sinaimg.cn/large/5937c055jw1f14lipy6ejj20zk0qojvl.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3944240541404232" target="freeweibo-mirror">SPAM 好的[挖鼻] //@任志强:讲政治！ //@薛健同…</a>
 </h2>
