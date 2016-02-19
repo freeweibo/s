@@ -54,7 +54,7 @@
 </h2>
 <p>//@刘咚咚:→_→ //@小楼春正好:[喵喵][喵喵]就愿意看着你们满腹牢骚发不出还不得不看央视。<br><br>RE: 呵呵呵，我不说话[哈哈]<br><img src="http://ww2.sinaimg.cn/large/006o34Figw1f14lcoqntgj30k00f0jss.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3944249969479472" target="freeweibo-mirror">党姓的央视这两年出了不少问题啊。腐败现象不可谓不严重。是之前…</a>
 </h2>
