@@ -32,6 +32,18 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3944349500497195" target="freeweibo-mirror">SPAM //@喷嚏网铂程://@徐凤文:[哼]</a>
+</h2>
+<p>SPAM //@喷嚏网铂程://@徐凤文:[哼]</p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3944348217913541" target="freeweibo-mirror">//@旺喜39: 栏目名可叫《小组讲话》，组长负责稿子的撰写…</a>
+</h2>
+<p>//@旺喜39: 栏目名可叫《小组讲话》，组长负责稿子的撰写和播报，前后台兼顾。把“小组治国理念”入脑，入心，传播到千家万户！//@宋家宏: 体谅他的日理万机，反复播放他的讲话作为新闻联播内容即可。分国际，国内，政治，经济，工业，农业，军事等专题。<br><br>RE: 从我个人观察公共事务的兴趣来说，我倒是真心希望每晚新闻联播都由总书记来亲自主持，一是反正联播头几条一定是总书记，二是由总书记亲自讲述肯定比记者编辑主持人这种二道贩子来得准确、专业。如果忙不过来，可考虑每周主持一期联播，或者每周政治局常委会都由联播直播。#纯热心建议，求别误解封号#</p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3944345139066423" target="freeweibo-mirror">SPAM 给央视设计了个新logo</a>
 </h2>
 <p>SPAM 给央视设计了个新logo<br><img src="http://ww2.sinaimg.cn/large/a90c3530gw1f14yw4a1u5j20zk0qo406.jpg"></p>
@@ -114,7 +126,7 @@
 </h2>
 <p>新华社参编部副主任（至少副厅级记者）今天发表的这首诗，被很多诗友认为是在向郭老致敬，代表了广大新华人的心声。问了一些新华社的朋友，大多认为这样直白颂圣的文字，不大可能是纯个人表态，也不能代表全体“新华人”。此诗在社党委或编委过了会的可能性很大，大抵能代表了社领导的心声。<br><img src="http://ww4.sinaimg.cn/large/006k3GOWjw1f14qpqt5xvj30hs2wq7eb.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3944265157299348" target="freeweibo-mirror">幕後導演坐到台前，這也算是不遮掩了！ http://t.cn…</a>
 </h2>
@@ -125,18 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3944262544426819" target="freeweibo-mirror">//@西丰客人在1984:然并卵。//@刘远举:1998年朱…</a>
 </h2>
 <p>//@西丰客人在1984:然并卵。//@刘远举:1998年朱镕基视察央视，破例题写：“舆论监督，群众喉舌，政府镜鉴，改革尖兵。”在场的一位高级领导丁x提醒应是“党的喉舌”，总理朗声说道：“我没有写错！为这16个字我想了一宿，天亮时血压都上去了。”<br><br>RE: 被这张照片刷屏了。为啥啊？<br><img src="http://ww1.sinaimg.cn/large/8083182dgw1f14lj1v8d0j20nz0hsdh4.jpg"></p>
-<p>
-	<small> ============== 8小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3944260338408588" target="freeweibo-mirror">SPAM 一模一样的服装要表明什么 //@湖嗨散人:都姓一个…</a>
-</h2>
-<p>SPAM 一模一样的服装要表明什么 //@湖嗨散人:都姓一个姓了，一家子也搞得这么紧张，犯得着吗？<br><br>RE: 进自己的喉舌机关，也要带保镖，他们面无表情，虎视众生，完全置身于热烈气氛之外。 http://t.cn/z8AauOj<br><img src="http://ww1.sinaimg.cn/large/48dcce8ejw1f14lfxi6rej20zk0qowgm.jpg"></p>
-<p>
-	<small> ============== 8小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3944258568878691" target="freeweibo-mirror">//@自由的章鱼哥12: //@张晨初艺术空间://@MT油…</a>
-</h2>
-<p>//@自由的章鱼哥12: //@张晨初艺术空间://@MT油画室://@刘远举:1998年朱镕基视察央视，破例题写：“舆论监督，群众喉舌，政府镜鉴，改革尖兵。”在场的一位高级领导丁x提醒应是“党的喉舌”，总理朗声说道：“我没有写错！为这16个字我想了一宿，天亮时血压都上去了。”<br><br>RE: 被这张照片刷屏了。为啥啊？<br><img src="http://ww1.sinaimg.cn/large/8083182dgw1f14lj1v8d0j20nz0hsdh4.jpg"></p>
 <p>
 	<small> ============== 8小时前</small>
 </p>
