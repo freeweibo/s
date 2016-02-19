@@ -38,6 +38,12 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3944257955573789" target="freeweibo-mirror">还在看ccav的那都是进棺材都活不明白的，话难听，见谅～ /…</a>
+</h2>
+<p>还在看ccav的那都是进棺材都活不明白的，话难听，见谅～ //@地球EP2:转发微博<br><br>RE: #亚蒙社会观察#【重要的事儿说三遍】中共中央电视台！中共中央电视台！中共中央电视台！[哈哈][哈哈]<br><img src="http://ww2.sinaimg.cn/large/681521d1jw1f14mfgvi25j20ci0m8aax.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3944257079098841" target="freeweibo-mirror">//@张晨初艺术空间:://@刘远举:1998年朱镕基视察央…</a>
 </h2>
 <p>//@张晨初艺术空间:://@刘远举:1998年朱镕基视察央视，破例题写：“舆论监督，群众喉舌，政府镜鉴，改革尖兵。”在场的一位高级领导丁x提醒应是“党的喉舌”，总理朗声说道：“我没有写错！为这16个字我想了一宿，天亮时血压都上去了。”<br><br>RE: 被这张照片刷屏了。为啥啊？<br><img src="http://ww1.sinaimg.cn/large/8083182dgw1f14lj1v8d0j20nz0hsdh4.jpg"></p>
@@ -60,25 +66,25 @@
 </h2>
 <p>//@刘远举:1998年朱镕基视察央视，破例题写：“舆论监督，群众喉舌，政府镜鉴，改革尖兵。”在场的一位高级领导丁x提醒应是“党的喉舌”，总理朗声说道：“我没有写错！为这16个字我想了一宿，天亮时血压都上去了。”<br><br>RE: 被这张照片刷屏了。为啥啊？<br><img src="http://ww1.sinaimg.cn/large/8083182dgw1f14lj1v8d0j20nz0hsdh4.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3944249969479472" target="freeweibo-mirror">党姓的央视这两年出了不少问题啊。腐败现象不可谓不严重。是之前…</a>
 </h2>
 <p>党姓的央视这两年出了不少问题啊。腐败现象不可谓不严重。是之前对中央不忠诚，还是忘了自己姓什么？//@曼娜回忆录30: 像刚刚做完亲子鉴定似的![汗]<br><br>RE: 被这张照片刷屏了。为啥啊？<br><img src="http://ww1.sinaimg.cn/large/8083182dgw1f14lj1v8d0j20nz0hsdh4.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3944249646484722" target="freeweibo-mirror">//@陆亚明:哦。原来这样！//@刘远举: 1998年朱镕基…</a>
 </h2>
 <p>//@陆亚明:哦。原来这样！//@刘远举: 1998年朱镕基视察央视，破例题写：“舆论监督，群众喉舌，政府镜鉴，改革尖兵。”在场的一位高级领导丁x提醒应是“党的喉舌”，总理朗声说道：“我没有写错！为这16个字我想了一宿，天亮时血压都上去了。”<br><br>RE: 被这张照片刷屏了。为啥啊？<br><img src="http://ww1.sinaimg.cn/large/8083182dgw1f14lj1v8d0j20nz0hsdh4.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3944249618181289" target="freeweibo-mirror">历史大倒退，越来越朝鲜//@眭小军:监督到了认干爹，悲哀//…</a>
 </h2>
 <p>历史大倒退，越来越朝鲜//@眭小军:监督到了认干爹，悲哀//@朱学东://@刘远举: 1998年朱镕基视察央视，破例题写：“舆论监督，群众喉舌，政府镜鉴，改革尖兵。”在场的一位高级领导丁x提醒应是“党的喉舌”，总理朗声说道：“我没有写错！为这16个字我想了一宿，天亮时血压都上去了。”<br><br>RE: 被这张照片刷屏了。为啥啊？<br><img src="http://ww1.sinaimg.cn/large/8083182dgw1f14lj1v8d0j20nz0hsdh4.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3944248874996484" target="freeweibo-mirror">//@开进布拉格://@李佳佳Audrey: //@刘远举:…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3944238125127560" target="freeweibo-mirror">SPAM 为任督二脉转 //@连岳lianyue:胡锡进说，…</a>
 </h2>
 <p>SPAM 为任督二脉转 //@连岳lianyue:胡锡进说，我大意了。<br><br>RE: 央视和新华社。<br><img src="http://ww4.sinaimg.cn/large/7c1d7ba8jw1f14l985np5j20rs0ku41s.jpg"></p>
-<p>
-	<small> ============== 3小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3944237983114299" target="freeweibo-mirror">SPAM 为什么我发同样的图片被删除？</a>
-</h2>
-<p>SPAM 为什么我发同样的图片被删除？<br><br>RE: 央視懂政治，講政治，至少懂得影像紀錄。<br><img src="http://ww3.sinaimg.cn/large/5937c055jw1f14lipy6ejj20zk0qojvl.jpg"></p>
 <p>
 	<small> ============== 3小时前</small>
 </p>
