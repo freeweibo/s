@@ -26,6 +26,18 @@
 <p>
 	<small> ============== 1小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3944575355646275" target="freeweibo-mirror">有内涵。 //@民间治堵人陈哲宏:南都也彻底变人日了//@马…</a>
+</h2>
+<p>有内涵。 //@民间治堵人陈哲宏:南都也彻底变人日了//@马达_168: 不懂。//@zzpzym200820://@网易Pegasus:[生病]//@网易绘春: 这版面//@沙漠渔夫809://@一只博://@揭开于海东死刑黑幕2: 广告宣传也要讲导向了。//@晓谭的博客: 转发微博<br><br>RE: 有一种表达，叫版面语言。<br><img src="http://ww2.sinaimg.cn/large/92c79538jw1f15n9u5a7uj20qo0zkn1o.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3944573502161694" target="freeweibo-mirror">SPAM 南都封面。</a>
+</h2>
+<p>SPAM 南都封面。<br><img src="http://ww1.sinaimg.cn/large/4459489ejw1f15p4bldcvj20go0m8mzo.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3944557521466834" target="freeweibo-mirror">有一种表达，叫版面语言。</a>
 </h2>
 <p>有一种表达，叫版面语言。<br><img src="http://ww2.sinaimg.cn/large/92c79538jw1f15n9u5a7uj20qo0zkn1o.jpg"></p>
@@ -42,7 +54,7 @@
 </h2>
 <p>//@舒可心: [话筒][赞][心]朱镕基：“舆论监督，群众喉舌，政府镜鉴，改革尖兵。”//@杜华平同學: 央视及包子在开历史倒车，不会有好下场！@央视新闻<br><br>RE: 1998年朱镕基总理视察中央电视台，破例题写16个大字：“舆论监督，群众喉舌，政府镜鉴，改革尖兵。”白岩松忆述，当写到“群众喉舌”时，在场的一位高级领导提醒应是“党的喉舌”，总理朗声说：“我没有写错！为这16个字我想了一宿，天亮时血压都上去了！”18年后我们看到央视忠心耿耿的12个字。<br><img src="http://ww4.sinaimg.cn/large/63493c15gw1f156gir0avj20m80go75s.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3944538592721351" target="freeweibo-mirror">SPAM 不管是不是崔永元写的，作者是一个真正的马克思新闻观…</a>
 </h2>
@@ -114,7 +126,7 @@
 </h2>
 <p>[衰][挖鼻]//@笨笨an://@博联社马晓霖:【央视姓党】 以后别叫“中国中央电视台”，改叫“中共中央电视台”，直接划归中宣部管辖，这样就名正言顺了。<br><br>RE: 【坦荡的观点】今天看到习大大视察央视时的标语“央视姓党，绝对忠诚”，不期然想起1998年朱镕基视察央视时破例写出的：“舆论监督，群众喉舌，政府镜鉴，改革尖兵。”当时在场的一位高级领导提醒应是“党的喉舌”，朱总理大声说道：“我没有写错！为这16个字我想了一宿，天亮时血压都上去了。”<br><img src="http://ww3.sinaimg.cn/large/9ddb72ebjw1f150zp6wdkj20m80cign3.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3944487674081514" target="freeweibo-mirror">//@博联社马晓霖:【央视姓党】 以后别叫“中国中央电视台”…</a>
 </h2>
@@ -127,18 +139,6 @@
 <p>毛早已看透萱萱、新闻和文化界人士的风骨，在延安时就知道他们的骨头最软，一场反右就吓得几十年不敢讲真话，至今还不乏谄媚逢迎者恭迎圣上。今上的巡幸，让新华社雌雄二蒲彰显出郭沫若的阴魂，让央视的那些人再现了沈冰、叶迎春、芮成钢等人向权力投怀送抱的身影。没有骨头的人能讲出什么有骨气的话！<br><img src="http://ww3.sinaimg.cn/large/006omsx2gw1f15ds0u5s5j30k00bbq3d.jpg"></p>
 <p>
 	<small> ============== 8小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3944411077584158" target="freeweibo-mirror">1998年朱镕基总理视察中央电视台，破例题写16个大字：“舆…</a>
-</h2>
-<p>1998年朱镕基总理视察中央电视台，破例题写16个大字：“舆论监督，群众喉舌，政府镜鉴，改革尖兵。”白岩松忆述，当写到“群众喉舌”时，在场的一位高级领导提醒应是“党的喉舌”，总理朗声说：“我没有写错！为这16个字我想了一宿，天亮时血压都上去了！”18年后我们看到央视忠心耿耿的12个字。<br><img src="http://ww4.sinaimg.cn/large/63493c15gw1f156gir0avj20m80go75s.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3944393667191407" target="freeweibo-mirror">//@未得糊涂: //@泪洒博坛: 问个轮回//@芳草在崖上…</a>
-</h2>
-<p>//@未得糊涂: //@泪洒博坛: 问个轮回//@芳草在崖上://@梅虔: 今夜网上传出来一连串神秘数字；→→1966→→1976→→1986→→1996→→2006→→2016→→1966→→……据说是宇宙真理密码。[钟]//@blue蓝蓝青天: 转发微博<br><br>RE: 强烈推荐：<br><img src="http://ww2.sinaimg.cn/large/594607fbjw1f152e2hnftj20go2eu1kx.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
 </p>
 <table>
     <tr>
