@@ -24,7 +24,7 @@
 </h2>
 <p>#思想微评#【如果不坚持正确导向：媒体越强大危害越大】南方系的问题由来已久，并且深重，早就不是秘密！南方系为何如此猖狂，何时才能得到彻底整顿？希望广东省委和中央有关部门能真正贯彻好习总书记“8.19”“2.19”讲话精神，早日彻底整顿南方系！//@长空星河6: 南方系这是公然挑战习总。<br><br>RE: 【《南方都市报》深圳版有特色】图一是报纸实拍。图二是网站上广州版。图三是网站上深圳版。评：No Zuo No Die！<br><img src="http://ww4.sinaimg.cn/large/634a37f3jw1f15s934qoij20qo1bh7fd.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3944604741540376" target="freeweibo-mirror">SPAM 迎春你姓啥？绝对忠乎？//@闵玉平: //@发条橙…</a>
 </h2>
@@ -84,7 +84,7 @@
 </h2>
 <p>有一种表达，叫版面语言。<br><img src="http://ww2.sinaimg.cn/large/92c79538jw1f15n9u5a7uj20qo0zkn1o.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3944556124751908" target="freeweibo-mirror">//@陈崇正: //@城与年:1998年朱镕基总理视察中央电…</a>
 </h2>
