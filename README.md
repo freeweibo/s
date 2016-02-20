@@ -20,6 +20,18 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3944538592721351" target="freeweibo-mirror">SPAM 不管是不是崔永元写的，作者是一个真正的马克思新闻观…</a>
+</h2>
+<p>SPAM 不管是不是崔永元写的，作者是一个真正的马克思新闻观的人</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3944538344989284" target="freeweibo-mirror">SPAM 转：    “总书记，您的背影我的目光 千万小心那…</a>
+</h2>
+<p>SPAM 转：    “总书记，您的背影我的目光 千万小心那些肉麻的赞扬 媒体的岗位需要创造力执行力 可他们，哄你高兴就算实现理想 他们好像特别意外 其实昨天就接到通知布置了现场 他们似乎正在真实地工作 其实早就集结在那里准备统一鼓掌 是的，总书记，一切都像演戏一样。 总书记，你的背影我的目光 你一定知...全文： http://m.weibo.cn/1253531973/3944538344989284<br><img src="http://ww1.sinaimg.cn/large/4ab76145jw1f15ktu3ljuj20zk0qoam1.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3944511354975829" target="freeweibo-mirror">说实话，我怎么会有感觉现在还没删帖是在钓鱼？？//@章诒和:…</a>
 </h2>
 <p>说实话，我怎么会有感觉现在还没删帖是在钓鱼？？//@章诒和://@荣剑2001: 还能转？//@演员孙海英:姓党，就叫“党中央电视台”为好！<br><br>RE: 【坦荡的观点】今天看到习大大视察央视时的标语“央视姓党，绝对忠诚”，不期然想起1998年朱镕基视察央视时破例写出的：“舆论监督，群众喉舌，政府镜鉴，改革尖兵。”当时在场的一位高级领导提醒应是“党的喉舌”，朱总理大声说道：“我没有写错！为这16个字我想了一宿，天亮时血压都上去了。”<br><img src="http://ww3.sinaimg.cn/large/9ddb72ebjw1f150zp6wdkj20m80cign3.jpg"></p>
@@ -66,7 +78,7 @@
 </h2>
 <p>[衰][挖鼻]//@笨笨an://@博联社马晓霖:【央视姓党】 以后别叫“中国中央电视台”，改叫“中共中央电视台”，直接划归中宣部管辖，这样就名正言顺了。<br><br>RE: 【坦荡的观点】今天看到习大大视察央视时的标语“央视姓党，绝对忠诚”，不期然想起1998年朱镕基视察央视时破例写出的：“舆论监督，群众喉舌，政府镜鉴，改革尖兵。”当时在场的一位高级领导提醒应是“党的喉舌”，朱总理大声说道：“我没有写错！为这16个字我想了一宿，天亮时血压都上去了。”<br><img src="http://ww3.sinaimg.cn/large/9ddb72ebjw1f150zp6wdkj20m80cign3.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3944487674081514" target="freeweibo-mirror">//@博联社马晓霖:【央视姓党】 以后别叫“中国中央电视台”…</a>
 </h2>
@@ -84,13 +96,13 @@
 </h2>
 <p>//@未得糊涂: //@泪洒博坛: 问个轮回//@芳草在崖上://@梅虔: 今夜网上传出来一连串神秘数字；→→1966→→1976→→1986→→1996→→2006→→2016→→1966→→……据说是宇宙真理密码。[钟]//@blue蓝蓝青天: 转发微博<br><br>RE: 强烈推荐：<br><img src="http://ww2.sinaimg.cn/large/594607fbjw1f152e2hnftj20go2eu1kx.jpg"></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3944393217865154" target="freeweibo-mirror">//@泪洒博坛: 问个轮回//@芳草在崖上://@梅虔: 今…</a>
 </h2>
 <p>//@泪洒博坛: 问个轮回//@芳草在崖上://@梅虔: 今夜网上传出来一连串神秘数字；→→1966→→1976→→1986→→1996→→2006→→2016→→1966→→……据说是宇宙真理密码。[钟]//@blue蓝蓝青天: 转发微博<br><br>RE: 强烈推荐：<br><img src="http://ww2.sinaimg.cn/large/594607fbjw1f152e2hnftj20go2eu1kx.jpg"></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3944387068860534" target="freeweibo-mirror">//@zdp61: 不评了//@李_英杰:经济衰退，民生凋敝…</a>
 </h2>
@@ -125,18 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3944354651658757" target="freeweibo-mirror">SPAM [哈哈] //@崔小平律师://@燕山游民:[蜡烛…</a>
 </h2>
 <p>SPAM [哈哈] //@崔小平律师://@燕山游民:[蜡烛]</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3944349593327240" target="freeweibo-mirror">我发这张照片为什么给我删了，这照片里哪句话说错了吗？请批评指…</a>
-</h2>
-<p>我发这张照片为什么给我删了，这照片里哪句话说错了吗？请批评指正啊！我好下次不犯同样错误<br><img src="http://ww2.sinaimg.cn/large/53a7ac51jw1f14zc5bjrfj20ci0m80tk.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3944349500497195" target="freeweibo-mirror">SPAM //@喷嚏网铂程://@徐凤文:[哼]</a>
-</h2>
-<p>SPAM //@喷嚏网铂程://@徐凤文:[哼]</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
