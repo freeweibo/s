@@ -84,7 +84,7 @@
 </h2>
 <p>SPAM 给央视设计了个新logo<br><img src="http://ww2.sinaimg.cn/large/a90c3530gw1f14yw4a1u5j20zk0qo406.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3944333667789235" target="freeweibo-mirror">→_→[哈哈] //@清华孙立平:第一句有问题。这么重要的活…</a>
 </h2>
