@@ -30,7 +30,7 @@
 </h2>
 <p>//@文然0880://@米家那个山:转发微博<br><br>RE: 我收藏了八百万件文革旧物，如果再来一次，全部可以排上用场[汗][汗][汗]<br><img src="http://ww3.sinaimg.cn/large/63eb5b8dgw1f15rsiqjtgj20zq0qogvi.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3944713176160377" target="freeweibo-mirror">//@紫色偶然520: 笔杆子也可以推翻政权、破坏中华民族复…</a>
 </h2>
@@ -66,7 +66,7 @@
 </h2>
 <p>SPAM @崔永元 诗已经被删除，这是图片<br><img src="http://ww1.sinaimg.cn/large/d945ef47gw1f15ycdpu43j20c80lqac0.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3944632276644236" target="freeweibo-mirror">#思想微评#【如果不坚持正确导向：媒体越强大危害越大】南方系…</a>
 </h2>
@@ -102,7 +102,7 @@
 </h2>
 <p>【《南方都市报》深圳版有特色】图一是报纸实拍。图二是网站上广州版。图三是网站上深圳版。评：No Zuo No Die！<br><img src="http://ww4.sinaimg.cn/large/634a37f3jw1f15s934qoij20qo1bh7fd.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3944597349992822" target="freeweibo-mirror">我收藏了八百万件文革旧物，如果再来一次，全部可以排上用场[汗…</a>
 </h2>
