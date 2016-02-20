@@ -84,7 +84,7 @@
 </h2>
 <p>【《南方都市报》深圳版有特色】图一是报纸实拍。图二是网站上广州版。图三是网站上深圳版。评：No Zuo No Die！<br><img src="http://ww4.sinaimg.cn/large/634a37f3jw1f15s934qoij20qo1bh7fd.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3944597349992822" target="freeweibo-mirror">我收藏了八百万件文革旧物，如果再来一次，全部可以排上用场[汗…</a>
 </h2>
