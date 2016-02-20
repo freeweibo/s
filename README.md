@@ -48,7 +48,7 @@
 </h2>
 <p>明天各大媒体，争先恐后，头版头条，大篇幅，告诉读者，它，姓，党。[笑cry]</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3944604741540376" target="freeweibo-mirror">SPAM 迎春你姓啥？绝对忠乎？//@闵玉平: //@发条橙…</a>
 </h2>
