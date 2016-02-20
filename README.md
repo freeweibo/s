@@ -20,6 +20,18 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3944604741540376" target="freeweibo-mirror">SPAM 迎春你姓啥？绝对忠乎？//@闵玉平: //@发条橙…</a>
+</h2>
+<p>SPAM 迎春你姓啥？绝对忠乎？//@闵玉平: //@发条橙798:高，实在是高<br><br>RE: 接受检阅<br><img src="http://ww4.sinaimg.cn/large/3d78f362gw1f15r1hn56dj20m816u76y.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3944603696482706" target="freeweibo-mirror">//@雁塔小木屋4:[阴险]//@小卖部长十世: //@原子…</a>
+</h2>
+<p>//@雁塔小木屋4:[阴险]//@小卖部长十世: //@原子漫画: 绝对忠贞，请您检阅 //@小感-J:转发微博<br><br>RE: 接受检阅<br><img src="http://ww4.sinaimg.cn/large/3d78f362gw1f15r1hn56dj20m816u76y.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3944575707714880" target="freeweibo-mirror">SPAM 改革之魂归大海！</a>
 </h2>
 <p>SPAM 改革之魂归大海！<br><br>RE: 有一种表达，叫版面语言。<br><img src="http://ww2.sinaimg.cn/large/92c79538jw1f15n9u5a7uj20qo0zkn1o.jpg"></p>
@@ -125,18 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3944507236528462" target="freeweibo-mirror">能有啥希望？难~//@胡淑芬:这样下去，中华民族没准真的有希…</a>
 </h2>
 <p>能有啥希望？难~//@胡淑芬:这样下去，中华民族没准真的有希望了。//@横槊: [疑问]//@东方定海神珍:越表忠心就越假，越有问题，山可能得垮了，拭目以待<br><br>RE: 【坦荡的观点】今天看到习大大视察央视时的标语“央视姓党，绝对忠诚”，不期然想起1998年朱镕基视察央视时破例写出的：“舆论监督，群众喉舌，政府镜鉴，改革尖兵。”当时在场的一位高级领导提醒应是“党的喉舌”，朱总理大声说道：“我没有写错！为这16个字我想了一宿，天亮时血压都上去了。”<br><img src="http://ww3.sinaimg.cn/large/9ddb72ebjw1f150zp6wdkj20m80cign3.jpg"></p>
-<p>
-	<small> ============== 7小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3944502751921133" target="freeweibo-mirror">凡事，过了必然走向反面。</a>
-</h2>
-<p>凡事，过了必然走向反面。<br><br>RE: 我发这张照片为什么给我删了，这照片里哪句话说错了吗？请批评指正啊！我好下次不犯同样错误<br><img src="http://ww2.sinaimg.cn/large/53a7ac51jw1f14zc5bjrfj20ci0m80tk.jpg"></p>
-<p>
-	<small> ============== 8小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3944499677454209" target="freeweibo-mirror">[衰][挖鼻]//@笨笨an://@博联社马晓霖:【央视姓党…</a>
-</h2>
-<p>[衰][挖鼻]//@笨笨an://@博联社马晓霖:【央视姓党】 以后别叫“中国中央电视台”，改叫“中共中央电视台”，直接划归中宣部管辖，这样就名正言顺了。<br><br>RE: 【坦荡的观点】今天看到习大大视察央视时的标语“央视姓党，绝对忠诚”，不期然想起1998年朱镕基视察央视时破例写出的：“舆论监督，群众喉舌，政府镜鉴，改革尖兵。”当时在场的一位高级领导提醒应是“党的喉舌”，朱总理大声说道：“我没有写错！为这16个字我想了一宿，天亮时血压都上去了。”<br><img src="http://ww3.sinaimg.cn/large/9ddb72ebjw1f150zp6wdkj20m80cign3.jpg"></p>
 <p>
 	<small> ============== 8小时前</small>
 </p>
