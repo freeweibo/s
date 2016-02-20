@@ -30,7 +30,7 @@
 </h2>
 <p>回复@邱建W:[闭嘴][闭嘴]//@邱建W:您这是妄议啊[doge]//@陶景洲:有时候我也不明白：为啥要删讲习总书记和朱总理访问央视事情的微博啊？<br><br>RE: 被阅读了四十多万次并被转发了三千多次后，我的这个微博终于寿终正寝了...<br><img src="http://ww2.sinaimg.cn/large/9ddb72ebgw1f161l7gpn0j20ku112afh.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3944682067097821" target="freeweibo-mirror">被阅读了四十多万次并被转发了三千多次后，我的这个微博终于寿终…</a>
 </h2>
@@ -42,7 +42,7 @@
 </h2>
 <p>SPAM 小崔真是好同志。<br><br>RE: 分享图片 http://t.cn/Ry43UlK<br><img src="http://ww1.sinaimg.cn/large/4ab76145jw1f15jq4ixnlj20ci0m8q56.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3944653885388177" target="freeweibo-mirror">SPAM @崔永元 诗已经被删除，这是图片</a>
 </h2>
@@ -108,7 +108,7 @@
 </h2>
 <p>有内涵。 //@民间治堵人陈哲宏:南都也彻底变人日了//@马达_168: 不懂。//@zzpzym200820://@网易Pegasus:[生病]//@网易绘春: 这版面//@沙漠渔夫809://@一只博://@揭开于海东死刑黑幕2: 广告宣传也要讲导向了。//@晓谭的博客: 转发微博<br><br>RE: 有一种表达，叫版面语言。<br><img src="http://ww2.sinaimg.cn/large/92c79538jw1f15n9u5a7uj20qo0zkn1o.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3944573502161694" target="freeweibo-mirror">SPAM 南都封面。</a>
 </h2>
