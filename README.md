@@ -102,7 +102,7 @@
 </h2>
 <p>SPAM [哈哈] //@崔小平律师://@燕山游民:[蜡烛]</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3944349500497195" target="freeweibo-mirror">SPAM //@喷嚏网铂程://@徐凤文:[哼]</a>
 </h2>
