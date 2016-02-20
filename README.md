@@ -26,6 +26,12 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3944545169208979" target="freeweibo-mirror">//@舒可心: [话筒][赞][心]朱镕基：“舆论监督，群众…</a>
+</h2>
+<p>//@舒可心: [话筒][赞][心]朱镕基：“舆论监督，群众喉舌，政府镜鉴，改革尖兵。”//@杜华平同學: 央视及包子在开历史倒车，不会有好下场！@央视新闻<br><br>RE: 1998年朱镕基总理视察中央电视台，破例题写16个大字：“舆论监督，群众喉舌，政府镜鉴，改革尖兵。”白岩松忆述，当写到“群众喉舌”时，在场的一位高级领导提醒应是“党的喉舌”，总理朗声说：“我没有写错！为这16个字我想了一宿，天亮时血压都上去了！”18年后我们看到央视忠心耿耿的12个字。<br><img src="http://ww4.sinaimg.cn/large/63493c15gw1f156gir0avj20m80go75s.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3944538592721351" target="freeweibo-mirror">SPAM 不管是不是崔永元写的，作者是一个真正的马克思新闻观…</a>
 </h2>
 <p>SPAM 不管是不是崔永元写的，作者是一个真正的马克思新闻观的人</p>
@@ -96,7 +102,7 @@
 </h2>
 <p>[衰][挖鼻]//@笨笨an://@博联社马晓霖:【央视姓党】 以后别叫“中国中央电视台”，改叫“中共中央电视台”，直接划归中宣部管辖，这样就名正言顺了。<br><br>RE: 【坦荡的观点】今天看到习大大视察央视时的标语“央视姓党，绝对忠诚”，不期然想起1998年朱镕基视察央视时破例写出的：“舆论监督，群众喉舌，政府镜鉴，改革尖兵。”当时在场的一位高级领导提醒应是“党的喉舌”，朱总理大声说道：“我没有写错！为这16个字我想了一宿，天亮时血压都上去了。”<br><img src="http://ww3.sinaimg.cn/large/9ddb72ebjw1f150zp6wdkj20m80cign3.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3944487674081514" target="freeweibo-mirror">//@博联社马晓霖:【央视姓党】 以后别叫“中国中央电视台”…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3944388155371817" target="freeweibo-mirror">此人红了！他不姓党？</a>
 </h2>
 <p>此人红了！他不姓党？<br><img src="http://ww2.sinaimg.cn/large/62c109c2jw1f153tzn85ij20cr0hs76b.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3944387068860534" target="freeweibo-mirror">//@zdp61: 不评了//@李_英杰:经济衰退，民生凋敝…</a>
-</h2>
-<p>//@zdp61: 不评了//@李_英杰:经济衰退，民生凋敝，股市乱成一锅粥；政治极权化、痞子化，宣传弱智化、空洞化；文化日益荒芜，沦为政治的贱婢；言论空间收紧，网络封锁加剧；外交陷入被动，已无牌可打。<br><br>RE: 强烈推荐：<br><img src="http://ww2.sinaimg.cn/large/594607fbjw1f152e2hnftj20go2eu1kx.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
