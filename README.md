@@ -24,7 +24,7 @@
 </h2>
 <p>//@文然0880://@米家那个山:转发微博<br><br>RE: 我收藏了八百万件文革旧物，如果再来一次，全部可以排上用场[汗][汗][汗]<br><img src="http://ww3.sinaimg.cn/large/63eb5b8dgw1f15rsiqjtgj20zq0qogvi.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3944687868041209" target="freeweibo-mirror">回复@邱建W:[闭嘴][闭嘴]//@邱建W:您这是妄议啊[d…</a>
 </h2>
@@ -48,7 +48,7 @@
 </h2>
 <p>SPAM @崔永元 诗已经被删除，这是图片<br><img src="http://ww1.sinaimg.cn/large/d945ef47gw1f15ycdpu43j20c80lqac0.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3944632276644236" target="freeweibo-mirror">#思想微评#【如果不坚持正确导向：媒体越强大危害越大】南方系…</a>
 </h2>
