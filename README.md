@@ -24,7 +24,7 @@
 </h2>
 <p>SPAM 卧槽尼玛。<br><br>RE: 欢迎配文。<br><img src="http://ww1.sinaimg.cn/large/d90f1e6dgw1f169onfi87j20c80c83yt.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3944752615253009" target="freeweibo-mirror">欢迎配文。</a>
 </h2>
