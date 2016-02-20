@@ -30,7 +30,7 @@
 </h2>
 <p>欢迎配文。<br><img src="http://ww1.sinaimg.cn/large/d90f1e6dgw1f169onfi87j20c80c83yt.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3944729437380286" target="freeweibo-mirror">//@文然0880://@米家那个山:转发微博</a>
 </h2>
@@ -72,7 +72,7 @@
 </h2>
 <p>SPAM @崔永元 诗已经被删除，这是图片<br><img src="http://ww1.sinaimg.cn/large/d945ef47gw1f15ycdpu43j20c80lqac0.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3944632276644236" target="freeweibo-mirror">#思想微评#【如果不坚持正确导向：媒体越强大危害越大】南方系…</a>
 </h2>
