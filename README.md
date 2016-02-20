@@ -60,7 +60,7 @@
 </h2>
 <p>被阅读了四十多万次并被转发了三千多次后，我的这个微博终于寿终正寝了...<br><img src="http://ww2.sinaimg.cn/large/9ddb72ebgw1f161l7gpn0j20ku112afh.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3944657492727891" target="freeweibo-mirror">SPAM 小崔真是好同志。</a>
 </h2>
@@ -84,7 +84,7 @@
 </h2>
 <p>从六周年上手游发布开始就期待了，终于来了[色] //@剑网3官方微博:#剑网3口袋版# 和《剑侠情缘手游》运营代理平台落定腾讯。我们会坚定西山居在研发领域的技术实力和精品策略，联合腾讯游戏在移动互联网领域的发行优势，在手游精品化热潮中全方位共赢亮剑！相信我们，江湖不老，一路同行！</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3944625989342804" target="freeweibo-mirror">明天各大媒体，争先恐后，头版头条，大篇幅，告诉读者，它，姓，…</a>
 </h2>
