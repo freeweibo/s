@@ -30,7 +30,13 @@
 </h2>
 <p>//@雁塔小木屋4:[阴险]//@小卖部长十世: //@原子漫画: 绝对忠贞，请您检阅 //@小感-J:转发微博<br><br>RE: 接受检阅<br><img src="http://ww4.sinaimg.cn/large/3d78f362gw1f15r1hn56dj20m816u76y.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3944590274647528" target="freeweibo-mirror">接受检阅</a>
+</h2>
+<p>接受检阅<br><img src="http://ww4.sinaimg.cn/large/3d78f362gw1f15r1hn56dj20m816u76y.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3944575707714880" target="freeweibo-mirror">SPAM 改革之魂归大海！</a>
 </h2>
@@ -48,7 +54,7 @@
 </h2>
 <p>SPAM 南都封面。<br><img src="http://ww1.sinaimg.cn/large/4459489ejw1f15p4bldcvj20go0m8mzo.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3944557521466834" target="freeweibo-mirror">有一种表达，叫版面语言。</a>
 </h2>
@@ -84,7 +90,7 @@
 </h2>
 <p>【国务院高层发生重要人事任命】重庆市长黄奇帆担任国务院秘书长，已经到位；证监会主席肖钢调任国务院副秘书长，接替调任国资委主任的肖时庆；农行董事长刘士余接任证监会主席。</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3944538592721351" target="freeweibo-mirror">SPAM 不管是不是崔永元写的，作者是一个真正的马克思新闻观…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3944510264304470" target="freeweibo-mirror">//@扬韬: 18年后，是时候轮换了。以前的人不是说嘛，18…</a>
 </h2>
 <p>//@扬韬: 18年后，是时候轮换了。以前的人不是说嘛，18年后又是一条好汉。时移世易，与时俱进。新的好汉来了。<br><br>RE: 【坦荡的观点】今天看到习大大视察央视时的标语“央视姓党，绝对忠诚”，不期然想起1998年朱镕基视察央视时破例写出的：“舆论监督，群众喉舌，政府镜鉴，改革尖兵。”当时在场的一位高级领导提醒应是“党的喉舌”，朱总理大声说道：“我没有写错！为这16个字我想了一宿，天亮时血压都上去了。”<br><img src="http://ww3.sinaimg.cn/large/9ddb72ebjw1f150zp6wdkj20m80cign3.jpg"></p>
-<p>
-	<small> ============== 8小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3944509609965016" target="freeweibo-mirror">CCCTV。 //@博联社马晓霖:【央视姓党】 以后别叫“中…</a>
-</h2>
-<p>CCCTV。 //@博联社马晓霖:【央视姓党】 以后别叫“中国中央电视台”，改叫“中共中央电视台”，直接划归中宣部管辖，这样就名正言顺了。<br><br>RE: 【坦荡的观点】今天看到习大大视察央视时的标语“央视姓党，绝对忠诚”，不期然想起1998年朱镕基视察央视时破例写出的：“舆论监督，群众喉舌，政府镜鉴，改革尖兵。”当时在场的一位高级领导提醒应是“党的喉舌”，朱总理大声说道：“我没有写错！为这16个字我想了一宿，天亮时血压都上去了。”<br><img src="http://ww3.sinaimg.cn/large/9ddb72ebjw1f150zp6wdkj20m80cign3.jpg"></p>
 <p>
 	<small> ============== 8小时前</small>
 </p>
