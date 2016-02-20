@@ -24,7 +24,7 @@
 </h2>
 <p>SPAM 迎春你姓啥？绝对忠乎？//@闵玉平: //@发条橙798:高，实在是高<br><br>RE: 接受检阅<br><img src="http://ww4.sinaimg.cn/large/3d78f362gw1f15r1hn56dj20m816u76y.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3944603696482706" target="freeweibo-mirror">//@雁塔小木屋4:[阴险]//@小卖部长十世: //@原子…</a>
 </h2>
@@ -32,11 +32,17 @@
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3944594679377802" target="freeweibo-mirror">SPAM 图是什么意思。。。。</a>
+</h2>
+<p>SPAM 图是什么意思。。。。</p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3944590274647528" target="freeweibo-mirror">接受检阅</a>
 </h2>
 <p>接受检阅<br><img src="http://ww4.sinaimg.cn/large/3d78f362gw1f15r1hn56dj20m816u76y.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3944575707714880" target="freeweibo-mirror">SPAM 改革之魂归大海！</a>
 </h2>
@@ -48,11 +54,17 @@
 </h2>
 <p>有内涵。 //@民间治堵人陈哲宏:南都也彻底变人日了//@马达_168: 不懂。//@zzpzym200820://@网易Pegasus:[生病]//@网易绘春: 这版面//@沙漠渔夫809://@一只博://@揭开于海东死刑黑幕2: 广告宣传也要讲导向了。//@晓谭的博客: 转发微博<br><br>RE: 有一种表达，叫版面语言。<br><img src="http://ww2.sinaimg.cn/large/92c79538jw1f15n9u5a7uj20qo0zkn1o.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3944573502161694" target="freeweibo-mirror">SPAM 南都封面。</a>
 </h2>
 <p>SPAM 南都封面。<br><img src="http://ww1.sinaimg.cn/large/4459489ejw1f15p4bldcvj20go0m8mzo.jpg"></p>
+<p>
+	<small> ============== 5小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3944565062248092" target="freeweibo-mirror">SPAM 阿们！</a>
+</h2>
+<p>SPAM 阿们！</p>
 <p>
 	<small> ============== 5小时前</small>
 </p><h2>
@@ -125,18 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3944510822138823" target="freeweibo-mirror">//@演员孙海英:姓党，就叫“党中央电视台”为好！</a>
 </h2>
 <p>//@演员孙海英:姓党，就叫“党中央电视台”为好！<br><br>RE: 【坦荡的观点】今天看到习大大视察央视时的标语“央视姓党，绝对忠诚”，不期然想起1998年朱镕基视察央视时破例写出的：“舆论监督，群众喉舌，政府镜鉴，改革尖兵。”当时在场的一位高级领导提醒应是“党的喉舌”，朱总理大声说道：“我没有写错！为这16个字我想了一宿，天亮时血压都上去了。”<br><img src="http://ww3.sinaimg.cn/large/9ddb72ebjw1f150zp6wdkj20m80cign3.jpg"></p>
-<p>
-	<small> ============== 9小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3944510596121882" target="freeweibo-mirror">从今往后，谁还有资格讥讽金三胖？//@尹小龙的:一定要让朝鲜…</a>
-</h2>
-<p>从今往后，谁还有资格讥讽金三胖？//@尹小龙的:一定要让朝鲜金三胖看看！！你还嫩点！！！<br><br>RE: 毛早已看透萱萱、新闻和文化界人士的风骨，在延安时就知道他们的骨头最软，一场反右就吓得几十年不敢讲真话，至今还不乏谄媚逢迎者恭迎圣上。今上的巡幸，让新华社雌雄二蒲彰显出郭沫若的阴魂，让央视的那些人再现了沈冰、叶迎春、芮成钢等人向权力投怀送抱的身影。没有骨头的人能讲出什么有骨气的话！<br><img src="http://ww3.sinaimg.cn/large/006omsx2gw1f15ds0u5s5j30k00bbq3d.jpg"></p>
-<p>
-	<small> ============== 9小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3944510264304470" target="freeweibo-mirror">//@扬韬: 18年后，是时候轮换了。以前的人不是说嘛，18…</a>
-</h2>
-<p>//@扬韬: 18年后，是时候轮换了。以前的人不是说嘛，18年后又是一条好汉。时移世易，与时俱进。新的好汉来了。<br><br>RE: 【坦荡的观点】今天看到习大大视察央视时的标语“央视姓党，绝对忠诚”，不期然想起1998年朱镕基视察央视时破例写出的：“舆论监督，群众喉舌，政府镜鉴，改革尖兵。”当时在场的一位高级领导提醒应是“党的喉舌”，朱总理大声说道：“我没有写错！为这16个字我想了一宿，天亮时血压都上去了。”<br><img src="http://ww3.sinaimg.cn/large/9ddb72ebjw1f150zp6wdkj20m80cign3.jpg"></p>
 <p>
 	<small> ============== 9小时前</small>
 </p>
