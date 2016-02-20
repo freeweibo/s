@@ -66,7 +66,7 @@
 </h2>
 <p>SPAM 小崔真是好同志。<br><br>RE: 分享图片 http://t.cn/Ry43UlK<br><img src="http://ww1.sinaimg.cn/large/4ab76145jw1f15jq4ixnlj20ci0m8q56.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3944653885388177" target="freeweibo-mirror">SPAM @崔永元 诗已经被删除，这是图片</a>
 </h2>
