@@ -72,7 +72,7 @@
 </h2>
 <p>有一种表达，叫版面语言。<br><img src="http://ww2.sinaimg.cn/large/92c79538jw1f15n9u5a7uj20qo0zkn1o.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3944556124751908" target="freeweibo-mirror">//@陈崇正: //@城与年:1998年朱镕基总理视察中央电…</a>
 </h2>
@@ -132,7 +132,7 @@
 </h2>
 <p>说实话，我怎么会有感觉现在还没删帖是在钓鱼？？//@章诒和://@荣剑2001: 还能转？//@演员孙海英:姓党，就叫“党中央电视台”为好！<br><br>RE: 【坦荡的观点】今天看到习大大视察央视时的标语“央视姓党，绝对忠诚”，不期然想起1998年朱镕基视察央视时破例写出的：“舆论监督，群众喉舌，政府镜鉴，改革尖兵。”当时在场的一位高级领导提醒应是“党的喉舌”，朱总理大声说道：“我没有写错！为这16个字我想了一宿，天亮时血压都上去了。”<br><img src="http://ww3.sinaimg.cn/large/9ddb72ebjw1f150zp6wdkj20m80cign3.jpg"></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3944510822138823" target="freeweibo-mirror">//@演员孙海英:姓党，就叫“党中央电视台”为好！</a>
 </h2>
