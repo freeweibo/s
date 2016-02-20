@@ -102,7 +102,7 @@
 </h2>
 <p>毛早已看透萱萱、新闻和文化界人士的风骨，在延安时就知道他们的骨头最软，一场反右就吓得几十年不敢讲真话，至今还不乏谄媚逢迎者恭迎圣上。今上的巡幸，让新华社雌雄二蒲彰显出郭沫若的阴魂，让央视的那些人再现了沈冰、叶迎春、芮成钢等人向权力投怀送抱的身影。没有骨头的人能讲出什么有骨气的话！<br><img src="http://ww3.sinaimg.cn/large/006omsx2gw1f15ds0u5s5j30k00bbq3d.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3944393667191407" target="freeweibo-mirror">//@未得糊涂: //@泪洒博坛: 问个轮回//@芳草在崖上…</a>
 </h2>
@@ -115,6 +115,12 @@
 <p>//@泪洒博坛: 问个轮回//@芳草在崖上://@梅虔: 今夜网上传出来一连串神秘数字；→→1966→→1976→→1986→→1996→→2006→→2016→→1966→→……据说是宇宙真理密码。[钟]//@blue蓝蓝青天: 转发微博<br><br>RE: 强烈推荐：<br><img src="http://ww2.sinaimg.cn/large/594607fbjw1f152e2hnftj20go2eu1kx.jpg"></p>
 <p>
 	<small> ============== 12小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3944388155371817" target="freeweibo-mirror">此人红了！他不姓党？</a>
+</h2>
+<p>此人红了！他不姓党？<br><img src="http://ww2.sinaimg.cn/large/62c109c2jw1f153tzn85ij20cr0hs76b.jpg"></p>
+<p>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3944387068860534" target="freeweibo-mirror">//@zdp61: 不评了//@李_英杰:经济衰退，民生凋敝…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3944375593703594" target="freeweibo-mirror">强烈推荐：</a>
 </h2>
 <p>强烈推荐：<br><img src="http://ww2.sinaimg.cn/large/594607fbjw1f152e2hnftj20go2eu1kx.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3944363723398014" target="freeweibo-mirror">【坦荡的观点】今天看到习大大视察央视时的标语“央视姓党，绝对…</a>
-</h2>
-<p>【坦荡的观点】今天看到习大大视察央视时的标语“央视姓党，绝对忠诚”，不期然想起1998年朱镕基视察央视时破例写出的：“舆论监督，群众喉舌，政府镜鉴，改革尖兵。”当时在场的一位高级领导提醒应是“党的喉舌”，朱总理大声说道：“我没有写错！为这16个字我想了一宿，天亮时血压都上去了。”<br><img src="http://ww3.sinaimg.cn/large/9ddb72ebjw1f150zp6wdkj20m80cign3.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
