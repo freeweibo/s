@@ -126,7 +126,7 @@
 </h2>
 <p>强烈推荐：<br><img src="http://ww2.sinaimg.cn/large/594607fbjw1f152e2hnftj20go2eu1kx.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3944363723398014" target="freeweibo-mirror">【坦荡的观点】今天看到习大大视察央视时的标语“央视姓党，绝对…</a>
 </h2>
