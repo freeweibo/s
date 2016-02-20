@@ -20,11 +20,29 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3944753206543164" target="freeweibo-mirror">SPAM 卧槽尼玛。</a>
+</h2>
+<p>SPAM 卧槽尼玛。<br><br>RE: 欢迎配文。<br><img src="http://ww1.sinaimg.cn/large/d90f1e6dgw1f169onfi87j20c80c83yt.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3944729437380286" target="freeweibo-mirror">//@文然0880://@米家那个山:转发微博</a>
 </h2>
 <p>//@文然0880://@米家那个山:转发微博<br><br>RE: 我收藏了八百万件文革旧物，如果再来一次，全部可以排上用场[汗][汗][汗]<br><img src="http://ww3.sinaimg.cn/large/63eb5b8dgw1f15rsiqjtgj20zq0qogvi.jpg"></p>
 <p>
 	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3944713176160377" target="freeweibo-mirror">//@紫色偶然520: 笔杆子也可以推翻政权、破坏中华民族复…</a>
+</h2>
+<p>//@紫色偶然520: 笔杆子也可以推翻政权、破坏中华民族复兴大业，也可以杀人于无形。//@一泓清泉e:要相抓好笔杆子 不清除体制婊尤其是文化宣传界的体制婊 白扯[doge]<br><br>RE: 首先抓枪杆子，然后抓笔杆子，没错，这两杆子最重要。但好像笔杆子比枪杆子还难抓得多。2013年819讲话就显示非常在意这第二杆子，后来不断抓，貌似就是抓不住，这2016年春节刚过完就又去抓了，要害部门全去了，不知成效如何。貌似笔杆子比枪杆子更能耍人，所以不好抓</p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3944712949676451" target="freeweibo-mirror">//@张建朋: 在场高级领导丁XX是关根吗 //@君无忌13…</a>
+</h2>
+<p>//@张建朋: 在场高级领导丁XX是关根吗 //@君无忌139:要改正，要改正到党的喉舌这个基本观点上来。//@一泓清泉e: 资本的喉舌<br><br>RE: 微信群里都拿这两张照片做对比呢。你还别说，朱相爷就是会说话。他跟温相爷是继紫阳真人之后最会说话的党和国家领导人<br><img src="http://ww3.sinaimg.cn/large/53a7ac51jw1f156gw25yxj20d50ewgno.jpg"></p>
+<p>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3944687868041209" target="freeweibo-mirror">回复@邱建W:[闭嘴][闭嘴]//@邱建W:您这是妄议啊[d…</a>
 </h2>
@@ -72,7 +90,7 @@
 </h2>
 <p>SPAM 迎春你姓啥？绝对忠乎？//@闵玉平: //@发条橙798:高，实在是高<br><br>RE: 接受检阅<br><img src="http://ww4.sinaimg.cn/large/3d78f362gw1f15r1hn56dj20m816u76y.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3944603696482706" target="freeweibo-mirror">//@雁塔小木屋4:[阴险]//@小卖部长十世: //@原子…</a>
 </h2>
@@ -90,7 +108,7 @@
 </h2>
 <p>我收藏了八百万件文革旧物，如果再来一次，全部可以排上用场[汗][汗][汗]<br><img src="http://ww3.sinaimg.cn/large/63eb5b8dgw1f15rsiqjtgj20zq0qogvi.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3944594679377802" target="freeweibo-mirror">SPAM 图是什么意思。。。。</a>
 </h2>
@@ -119,24 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3944573502161694" target="freeweibo-mirror">SPAM 南都封面。</a>
 </h2>
 <p>SPAM 南都封面。<br><img src="http://ww1.sinaimg.cn/large/4459489ejw1f15p4bldcvj20go0m8mzo.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3944565062248092" target="freeweibo-mirror">SPAM 阿们！</a>
-</h2>
-<p>SPAM 阿们！</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3944557521466834" target="freeweibo-mirror">有一种表达，叫版面语言。</a>
-</h2>
-<p>有一种表达，叫版面语言。<br><img src="http://ww2.sinaimg.cn/large/92c79538jw1f15n9u5a7uj20qo0zkn1o.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3944556124751908" target="freeweibo-mirror">//@陈崇正: //@城与年:1998年朱镕基总理视察中央电…</a>
-</h2>
-<p>//@陈崇正: //@城与年:1998年朱镕基总理视察中央电视台，破例题写16个大字：“舆论监督，群众喉舌，政府镜鉴，改革尖兵。”<br><br>RE: 1998年朱镕基总理视察中央电视台，破例题写16个大字：“舆论监督，群众喉舌，政府镜鉴，改革尖兵。”白岩松忆述，当写到“群众喉舌”时，在场的一位高级领导提醒应是“党的喉舌”，总理朗声说：“我没有写错！为这16个字我想了一宿，天亮时血压都上去了！”18年后我们看到央视忠心耿耿的12个字。<br><img src="http://ww4.sinaimg.cn/large/63493c15gw1f156gir0avj20m80go75s.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
