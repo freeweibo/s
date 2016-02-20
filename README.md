@@ -42,7 +42,7 @@
 </h2>
 <p>//@汉商天民:众人诺诺，一士谔谔？//@可可-cm10: //@谓贤:和平时期的民族英雄！<br><br>RE: 此人红了！他不姓党？<br><img src="http://ww2.sinaimg.cn/large/62c109c2jw1f153tzn85ij20cr0hs76b.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3944511354975829" target="freeweibo-mirror">说实话，我怎么会有感觉现在还没删帖是在钓鱼？？//@章诒和:…</a>
 </h2>
@@ -120,7 +120,7 @@
 </h2>
 <p>//@zdp61: 不评了//@李_英杰:经济衰退，民生凋敝，股市乱成一锅粥；政治极权化、痞子化，宣传弱智化、空洞化；文化日益荒芜，沦为政治的贱婢；言论空间收紧，网络封锁加剧；外交陷入被动，已无牌可打。<br><br>RE: 强烈推荐：<br><img src="http://ww2.sinaimg.cn/large/594607fbjw1f152e2hnftj20go2eu1kx.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3944386591650550" target="freeweibo-mirror">//@土豆2008://@梅虔: 今夜网上传出来一连串神秘数…</a>
 </h2>
