@@ -20,17 +20,23 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3944499677454209" target="freeweibo-mirror">[衰][挖鼻]//@笨笨an://@博联社马晓霖:【央视姓党…</a>
+</h2>
+<p>[衰][挖鼻]//@笨笨an://@博联社马晓霖:【央视姓党】 以后别叫“中国中央电视台”，改叫“中共中央电视台”，直接划归中宣部管辖，这样就名正言顺了。<br><br>RE: 【坦荡的观点】今天看到习大大视察央视时的标语“央视姓党，绝对忠诚”，不期然想起1998年朱镕基视察央视时破例写出的：“舆论监督，群众喉舌，政府镜鉴，改革尖兵。”当时在场的一位高级领导提醒应是“党的喉舌”，朱总理大声说道：“我没有写错！为这16个字我想了一宿，天亮时血压都上去了。”<br><img src="http://ww3.sinaimg.cn/large/9ddb72ebjw1f150zp6wdkj20m80cign3.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3944393667191407" target="freeweibo-mirror">//@未得糊涂: //@泪洒博坛: 问个轮回//@芳草在崖上…</a>
 </h2>
 <p>//@未得糊涂: //@泪洒博坛: 问个轮回//@芳草在崖上://@梅虔: 今夜网上传出来一连串神秘数字；→→1966→→1976→→1986→→1996→→2006→→2016→→1966→→……据说是宇宙真理密码。[钟]//@blue蓝蓝青天: 转发微博<br><br>RE: 强烈推荐：<br><img src="http://ww2.sinaimg.cn/large/594607fbjw1f152e2hnftj20go2eu1kx.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3944393217865154" target="freeweibo-mirror">//@泪洒博坛: 问个轮回//@芳草在崖上://@梅虔: 今…</a>
 </h2>
 <p>//@泪洒博坛: 问个轮回//@芳草在崖上://@梅虔: 今夜网上传出来一连串神秘数字；→→1966→→1976→→1986→→1996→→2006→→2016→→1966→→……据说是宇宙真理密码。[钟]//@blue蓝蓝青天: 转发微博<br><br>RE: 强烈推荐：<br><img src="http://ww2.sinaimg.cn/large/594607fbjw1f152e2hnftj20go2eu1kx.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3944387068860534" target="freeweibo-mirror">//@zdp61: 不评了//@李_英杰:经济衰退，民生凋敝…</a>
 </h2>
@@ -72,7 +78,7 @@
 </h2>
 <p>//@旺喜39: 栏目名可叫《小组讲话》，组长负责稿子的撰写和播报，前后台兼顾。把“小组治国理念”入脑，入心，传播到千家万户！//@宋家宏: 体谅他的日理万机，反复播放他的讲话作为新闻联播内容即可。分国际，国内，政治，经济，工业，农业，军事等专题。<br><br>RE: 从我个人观察公共事务的兴趣来说，我倒是真心希望每晚新闻联播都由总书记来亲自主持，一是反正联播头几条一定是总书记，二是由总书记亲自讲述肯定比记者编辑主持人这种二道贩子来得准确、专业。如果忙不过来，可考虑每周主持一期联播，或者每周政治局常委会都由联播直播。#纯热心建议，求别误解封号#</p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3944345139066423" target="freeweibo-mirror">SPAM 给央视设计了个新logo</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3944289911822127" target="freeweibo-mirror">SPAM //@冉氏艺文志:始终不脱二杆子起家的本色，整肃好…</a>
 </h2>
 <p>SPAM //@冉氏艺文志:始终不脱二杆子起家的本色，整肃好枪杆子，再来操弄笔杆子。此之谓也。<br><br>RE: 公器变私器，社会变成了少先队。<br><img src="http://ww1.sinaimg.cn/large/54c6b554gw1f14r95uv5wj20m80ci0tx.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3944288246826210" target="freeweibo-mirror">以后是不是应该改称：党中央电视台？</a>
-</h2>
-<p>以后是不是应该改称：党中央电视台？<br><img src="http://ww2.sinaimg.cn/large/005XsazYjw1f14sc7tp7wj30k00f0dgp.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
