@@ -54,7 +54,7 @@
 </h2>
 <p>回复@邱建W:[闭嘴][闭嘴]//@邱建W:您这是妄议啊[doge]//@陶景洲:有时候我也不明白：为啥要删讲习总书记和朱总理访问央视事情的微博啊？<br><br>RE: 被阅读了四十多万次并被转发了三千多次后，我的这个微博终于寿终正寝了...<br><img src="http://ww2.sinaimg.cn/large/9ddb72ebgw1f161l7gpn0j20ku112afh.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3944682067097821" target="freeweibo-mirror">被阅读了四十多万次并被转发了三千多次后，我的这个微博终于寿终…</a>
 </h2>
@@ -66,7 +66,7 @@
 </h2>
 <p>SPAM 小崔真是好同志。<br><br>RE: 分享图片 http://t.cn/Ry43UlK<br><img src="http://ww1.sinaimg.cn/large/4ab76145jw1f15jq4ixnlj20ci0m8q56.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3944653885388177" target="freeweibo-mirror">SPAM @崔永元 诗已经被删除，这是图片</a>
 </h2>
@@ -96,7 +96,7 @@
 </h2>
 <p>SPAM 迎春你姓啥？绝对忠乎？//@闵玉平: //@发条橙798:高，实在是高<br><br>RE: 接受检阅<br><img src="http://ww4.sinaimg.cn/large/3d78f362gw1f15r1hn56dj20m816u76y.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3944603696482706" target="freeweibo-mirror">//@雁塔小木屋4:[阴险]//@小卖部长十世: //@原子…</a>
 </h2>
