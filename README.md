@@ -26,6 +26,12 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3944653885388177" target="freeweibo-mirror">SPAM @崔永元 诗已经被删除，这是图片</a>
+</h2>
+<p>SPAM @崔永元 诗已经被删除，这是图片<br><img src="http://ww1.sinaimg.cn/large/d945ef47gw1f15ycdpu43j20c80lqac0.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3944632276644236" target="freeweibo-mirror">#思想微评#【如果不坚持正确导向：媒体越强大危害越大】南方系…</a>
 </h2>
 <p>#思想微评#【如果不坚持正确导向：媒体越强大危害越大】南方系的问题由来已久，并且深重，早就不是秘密！南方系为何如此猖狂，何时才能得到彻底整顿？希望广东省委和中央有关部门能真正贯彻好习总书记“8.19”“2.19”讲话精神，早日彻底整顿南方系！//@长空星河6: 南方系这是公然挑战习总。<br><br>RE: 【《南方都市报》深圳版有特色】图一是报纸实拍。图二是网站上广州版。图三是网站上深圳版。评：No Zuo No Die！<br><img src="http://ww4.sinaimg.cn/large/634a37f3jw1f15s934qoij20qo1bh7fd.jpg"></p>
@@ -38,11 +44,17 @@
 <p>
 	<small> ============== 4小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3944625989342804" target="freeweibo-mirror">明天各大媒体，争先恐后，头版头条，大篇幅，告诉读者，它，姓，…</a>
+</h2>
+<p>明天各大媒体，争先恐后，头版头条，大篇幅，告诉读者，它，姓，党。[笑cry]</p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3944604741540376" target="freeweibo-mirror">SPAM 迎春你姓啥？绝对忠乎？//@闵玉平: //@发条橙…</a>
 </h2>
 <p>SPAM 迎春你姓啥？绝对忠乎？//@闵玉平: //@发条橙798:高，实在是高<br><br>RE: 接受检阅<br><img src="http://ww4.sinaimg.cn/large/3d78f362gw1f15r1hn56dj20m816u76y.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3944603696482706" target="freeweibo-mirror">//@雁塔小木屋4:[阴险]//@小卖部长十世: //@原子…</a>
 </h2>
@@ -66,7 +78,7 @@
 </h2>
 <p>接受检阅<br><img src="http://ww4.sinaimg.cn/large/3d78f362gw1f15r1hn56dj20m816u76y.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3944575707714880" target="freeweibo-mirror">SPAM 改革之魂归大海！</a>
 </h2>
@@ -78,7 +90,7 @@
 </h2>
 <p>有内涵。 //@民间治堵人陈哲宏:南都也彻底变人日了//@马达_168: 不懂。//@zzpzym200820://@网易Pegasus:[生病]//@网易绘春: 这版面//@沙漠渔夫809://@一只博://@揭开于海东死刑黑幕2: 广告宣传也要讲导向了。//@晓谭的博客: 转发微博<br><br>RE: 有一种表达，叫版面语言。<br><img src="http://ww2.sinaimg.cn/large/92c79538jw1f15n9u5a7uj20qo0zkn1o.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3944573502161694" target="freeweibo-mirror">SPAM 南都封面。</a>
 </h2>
@@ -120,23 +132,11 @@
 </h2>
 <p>//@舒可心: [话筒][赞][心]朱镕基：“舆论监督，群众喉舌，政府镜鉴，改革尖兵。”//@杜华平同學: 央视及包子在开历史倒车，不会有好下场！@央视新闻<br><br>RE: 1998年朱镕基总理视察中央电视台，破例题写16个大字：“舆论监督，群众喉舌，政府镜鉴，改革尖兵。”白岩松忆述，当写到“群众喉舌”时，在场的一位高级领导提醒应是“党的喉舌”，总理朗声说：“我没有写错！为这16个字我想了一宿，天亮时血压都上去了！”18年后我们看到央视忠心耿耿的12个字。<br><img src="http://ww4.sinaimg.cn/large/63493c15gw1f156gir0avj20m80go75s.jpg"></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3944543898456588" target="freeweibo-mirror">【国务院高层发生重要人事任命】重庆市长黄奇帆担任国务院秘书长…</a>
 </h2>
 <p>【国务院高层发生重要人事任命】重庆市长黄奇帆担任国务院秘书长，已经到位；证监会主席肖钢调任国务院副秘书长，接替调任国资委主任的肖时庆；农行董事长刘士余接任证监会主席。</p>
-<p>
-	<small> ============== 10小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3944538592721351" target="freeweibo-mirror">SPAM 不管是不是崔永元写的，作者是一个真正的马克思新闻观…</a>
-</h2>
-<p>SPAM 不管是不是崔永元写的，作者是一个真正的马克思新闻观的人</p>
-<p>
-	<small> ============== 10小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3944538344989284" target="freeweibo-mirror">SPAM 转：    “总书记，您的背影我的目光 千万小心那…</a>
-</h2>
-<p>SPAM 转：    “总书记，您的背影我的目光 千万小心那些肉麻的赞扬 媒体的岗位需要创造力执行力 可他们，哄你高兴就算实现理想 他们好像特别意外 其实昨天就接到通知布置了现场 他们似乎正在真实地工作 其实早就集结在那里准备统一鼓掌 是的，总书记，一切都像演戏一样。 总书记，你的背影我的目光 你一定知...全文： http://m.weibo.cn/1253531973/3944538344989284<br><img src="http://ww1.sinaimg.cn/large/4ab76145jw1f15ktu3ljuj20zk0qoam1.jpg"></p>
 <p>
 	<small> ============== 10小时前</small>
 </p>
