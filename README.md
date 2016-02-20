@@ -20,11 +20,17 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3944632276644236" target="freeweibo-mirror">#思想微评#【如果不坚持正确导向：媒体越强大危害越大】南方系…</a>
+</h2>
+<p>#思想微评#【如果不坚持正确导向：媒体越强大危害越大】南方系的问题由来已久，并且深重，早就不是秘密！南方系为何如此猖狂，何时才能得到彻底整顿？希望广东省委和中央有关部门能真正贯彻好习总书记“8.19”“2.19”讲话精神，早日彻底整顿南方系！//@长空星河6: 南方系这是公然挑战习总。<br><br>RE: 【《南方都市报》深圳版有特色】图一是报纸实拍。图二是网站上广州版。图三是网站上深圳版。评：No Zuo No Die！<br><img src="http://ww4.sinaimg.cn/large/634a37f3jw1f15s934qoij20qo1bh7fd.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3944604741540376" target="freeweibo-mirror">SPAM 迎春你姓啥？绝对忠乎？//@闵玉平: //@发条橙…</a>
 </h2>
 <p>SPAM 迎春你姓啥？绝对忠乎？//@闵玉平: //@发条橙798:高，实在是高<br><br>RE: 接受检阅<br><img src="http://ww4.sinaimg.cn/large/3d78f362gw1f15r1hn56dj20m816u76y.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3944603696482706" target="freeweibo-mirror">//@雁塔小木屋4:[阴险]//@小卖部长十世: //@原子…</a>
 </h2>
@@ -42,7 +48,7 @@
 </h2>
 <p>接受检阅<br><img src="http://ww4.sinaimg.cn/large/3d78f362gw1f15r1hn56dj20m816u76y.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3944575707714880" target="freeweibo-mirror">SPAM 改革之魂归大海！</a>
 </h2>
@@ -54,7 +60,7 @@
 </h2>
 <p>有内涵。 //@民间治堵人陈哲宏:南都也彻底变人日了//@马达_168: 不懂。//@zzpzym200820://@网易Pegasus:[生病]//@网易绘春: 这版面//@沙漠渔夫809://@一只博://@揭开于海东死刑黑幕2: 广告宣传也要讲导向了。//@晓谭的博客: 转发微博<br><br>RE: 有一种表达，叫版面语言。<br><img src="http://ww2.sinaimg.cn/large/92c79538jw1f15n9u5a7uj20qo0zkn1o.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3944573502161694" target="freeweibo-mirror">SPAM 南都封面。</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3944511354975829" target="freeweibo-mirror">说实话，我怎么会有感觉现在还没删帖是在钓鱼？？//@章诒和:…</a>
 </h2>
 <p>说实话，我怎么会有感觉现在还没删帖是在钓鱼？？//@章诒和://@荣剑2001: 还能转？//@演员孙海英:姓党，就叫“党中央电视台”为好！<br><br>RE: 【坦荡的观点】今天看到习大大视察央视时的标语“央视姓党，绝对忠诚”，不期然想起1998年朱镕基视察央视时破例写出的：“舆论监督，群众喉舌，政府镜鉴，改革尖兵。”当时在场的一位高级领导提醒应是“党的喉舌”，朱总理大声说道：“我没有写错！为这16个字我想了一宿，天亮时血压都上去了。”<br><img src="http://ww3.sinaimg.cn/large/9ddb72ebjw1f150zp6wdkj20m80cign3.jpg"></p>
-<p>
-	<small> ============== 10小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3944510822138823" target="freeweibo-mirror">//@演员孙海英:姓党，就叫“党中央电视台”为好！</a>
-</h2>
-<p>//@演员孙海英:姓党，就叫“党中央电视台”为好！<br><br>RE: 【坦荡的观点】今天看到习大大视察央视时的标语“央视姓党，绝对忠诚”，不期然想起1998年朱镕基视察央视时破例写出的：“舆论监督，群众喉舌，政府镜鉴，改革尖兵。”当时在场的一位高级领导提醒应是“党的喉舌”，朱总理大声说道：“我没有写错！为这16个字我想了一宿，天亮时血压都上去了。”<br><img src="http://ww3.sinaimg.cn/large/9ddb72ebjw1f150zp6wdkj20m80cign3.jpg"></p>
 <p>
 	<small> ============== 10小时前</small>
 </p>
