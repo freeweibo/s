@@ -84,7 +84,7 @@
 </h2>
 <p>SPAM 图是什么意思。。。。</p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3944590274647528" target="freeweibo-mirror">接受检阅</a>
 </h2>
@@ -114,13 +114,13 @@
 </h2>
 <p>SPAM 阿们！</p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3944557521466834" target="freeweibo-mirror">有一种表达，叫版面语言。</a>
 </h2>
 <p>有一种表达，叫版面语言。<br><img src="http://ww2.sinaimg.cn/large/92c79538jw1f15n9u5a7uj20qo0zkn1o.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3944556124751908" target="freeweibo-mirror">//@陈崇正: //@城与年:1998年朱镕基总理视察中央电…</a>
 </h2>
