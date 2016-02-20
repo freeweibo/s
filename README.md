@@ -20,11 +20,17 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3944687868041209" target="freeweibo-mirror">回复@邱建W:[闭嘴][闭嘴]//@邱建W:您这是妄议啊[d…</a>
+</h2>
+<p>回复@邱建W:[闭嘴][闭嘴]//@邱建W:您这是妄议啊[doge]//@陶景洲:有时候我也不明白：为啥要删讲习总书记和朱总理访问央视事情的微博啊？<br><br>RE: 被阅读了四十多万次并被转发了三千多次后，我的这个微博终于寿终正寝了...<br><img src="http://ww2.sinaimg.cn/large/9ddb72ebgw1f161l7gpn0j20ku112afh.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3944657492727891" target="freeweibo-mirror">SPAM 小崔真是好同志。</a>
 </h2>
 <p>SPAM 小崔真是好同志。<br><br>RE: 分享图片 http://t.cn/Ry43UlK<br><img src="http://ww1.sinaimg.cn/large/4ab76145jw1f15jq4ixnlj20ci0m8q56.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3944653885388177" target="freeweibo-mirror">SPAM @崔永元 诗已经被删除，这是图片</a>
 </h2>
@@ -126,17 +132,11 @@
 </h2>
 <p>黄也落定了//@尚待完成:（国务院新任命 -2）黄奇帆任国务院秘书长，肖钢为副秘书长。简评：股民情绪发泄、国家政治需要两不误；唯独可怜了部分外媒，猛追消息得罪了某些部门：其中路透新浪微博账号被销号、被禁止参加证监会周五例行发布会，不知新官上任后能不能理解新闻机构政正常的职业行为！</p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3944545169208979" target="freeweibo-mirror">//@舒可心: [话筒][赞][心]朱镕基：“舆论监督，群众…</a>
 </h2>
 <p>//@舒可心: [话筒][赞][心]朱镕基：“舆论监督，群众喉舌，政府镜鉴，改革尖兵。”//@杜华平同學: 央视及包子在开历史倒车，不会有好下场！@央视新闻<br><br>RE: 1998年朱镕基总理视察中央电视台，破例题写16个大字：“舆论监督，群众喉舌，政府镜鉴，改革尖兵。”白岩松忆述，当写到“群众喉舌”时，在场的一位高级领导提醒应是“党的喉舌”，总理朗声说：“我没有写错！为这16个字我想了一宿，天亮时血压都上去了！”18年后我们看到央视忠心耿耿的12个字。<br><img src="http://ww4.sinaimg.cn/large/63493c15gw1f156gir0avj20m80go75s.jpg"></p>
-<p>
-	<small> ============== 11小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3944543898456588" target="freeweibo-mirror">【国务院高层发生重要人事任命】重庆市长黄奇帆担任国务院秘书长…</a>
-</h2>
-<p>【国务院高层发生重要人事任命】重庆市长黄奇帆担任国务院秘书长，已经到位；证监会主席肖钢调任国务院副秘书长，接替调任国资委主任的肖时庆；农行董事长刘士余接任证监会主席。</p>
 <p>
 	<small> ============== 11小时前</small>
 </p>
