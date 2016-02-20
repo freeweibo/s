@@ -20,6 +20,30 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3944510822138823" target="freeweibo-mirror">//@演员孙海英:姓党，就叫“党中央电视台”为好！</a>
+</h2>
+<p>//@演员孙海英:姓党，就叫“党中央电视台”为好！<br><br>RE: 【坦荡的观点】今天看到习大大视察央视时的标语“央视姓党，绝对忠诚”，不期然想起1998年朱镕基视察央视时破例写出的：“舆论监督，群众喉舌，政府镜鉴，改革尖兵。”当时在场的一位高级领导提醒应是“党的喉舌”，朱总理大声说道：“我没有写错！为这16个字我想了一宿，天亮时血压都上去了。”<br><img src="http://ww3.sinaimg.cn/large/9ddb72ebjw1f150zp6wdkj20m80cign3.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3944510596121882" target="freeweibo-mirror">从今往后，谁还有资格讥讽金三胖？//@尹小龙的:一定要让朝鲜…</a>
+</h2>
+<p>从今往后，谁还有资格讥讽金三胖？//@尹小龙的:一定要让朝鲜金三胖看看！！你还嫩点！！！<br><br>RE: 毛早已看透萱萱、新闻和文化界人士的风骨，在延安时就知道他们的骨头最软，一场反右就吓得几十年不敢讲真话，至今还不乏谄媚逢迎者恭迎圣上。今上的巡幸，让新华社雌雄二蒲彰显出郭沫若的阴魂，让央视的那些人再现了沈冰、叶迎春、芮成钢等人向权力投怀送抱的身影。没有骨头的人能讲出什么有骨气的话！<br><img src="http://ww3.sinaimg.cn/large/006omsx2gw1f15ds0u5s5j30k00bbq3d.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3944510264304470" target="freeweibo-mirror">//@扬韬: 18年后，是时候轮换了。以前的人不是说嘛，18…</a>
+</h2>
+<p>//@扬韬: 18年后，是时候轮换了。以前的人不是说嘛，18年后又是一条好汉。时移世易，与时俱进。新的好汉来了。<br><br>RE: 【坦荡的观点】今天看到习大大视察央视时的标语“央视姓党，绝对忠诚”，不期然想起1998年朱镕基视察央视时破例写出的：“舆论监督，群众喉舌，政府镜鉴，改革尖兵。”当时在场的一位高级领导提醒应是“党的喉舌”，朱总理大声说道：“我没有写错！为这16个字我想了一宿，天亮时血压都上去了。”<br><img src="http://ww3.sinaimg.cn/large/9ddb72ebjw1f150zp6wdkj20m80cign3.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3944509609965016" target="freeweibo-mirror">CCCTV。 //@博联社马晓霖:【央视姓党】 以后别叫“中…</a>
+</h2>
+<p>CCCTV。 //@博联社马晓霖:【央视姓党】 以后别叫“中国中央电视台”，改叫“中共中央电视台”，直接划归中宣部管辖，这样就名正言顺了。<br><br>RE: 【坦荡的观点】今天看到习大大视察央视时的标语“央视姓党，绝对忠诚”，不期然想起1998年朱镕基视察央视时破例写出的：“舆论监督，群众喉舌，政府镜鉴，改革尖兵。”当时在场的一位高级领导提醒应是“党的喉舌”，朱总理大声说道：“我没有写错！为这16个字我想了一宿，天亮时血压都上去了。”<br><img src="http://ww3.sinaimg.cn/large/9ddb72ebjw1f150zp6wdkj20m80cign3.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3944499677454209" target="freeweibo-mirror">[衰][挖鼻]//@笨笨an://@博联社马晓霖:【央视姓党…</a>
 </h2>
 <p>[衰][挖鼻]//@笨笨an://@博联社马晓霖:【央视姓党】 以后别叫“中国中央电视台”，改叫“中共中央电视台”，直接划归中宣部管辖，这样就名正言顺了。<br><br>RE: 【坦荡的观点】今天看到习大大视察央视时的标语“央视姓党，绝对忠诚”，不期然想起1998年朱镕基视察央视时破例写出的：“舆论监督，群众喉舌，政府镜鉴，改革尖兵。”当时在场的一位高级领导提醒应是“党的喉舌”，朱总理大声说道：“我没有写错！为这16个字我想了一宿，天亮时血压都上去了。”<br><img src="http://ww3.sinaimg.cn/large/9ddb72ebjw1f150zp6wdkj20m80cign3.jpg"></p>
@@ -42,7 +66,7 @@
 </h2>
 <p>//@zdp61: 不评了//@李_英杰:经济衰退，民生凋敝，股市乱成一锅粥；政治极权化、痞子化，宣传弱智化、空洞化；文化日益荒芜，沦为政治的贱婢；言论空间收紧，网络封锁加剧；外交陷入被动，已无牌可打。<br><br>RE: 强烈推荐：<br><img src="http://ww2.sinaimg.cn/large/594607fbjw1f152e2hnftj20go2eu1kx.jpg"></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3944386591650550" target="freeweibo-mirror">//@土豆2008://@梅虔: 今夜网上传出来一连串神秘数…</a>
 </h2>
@@ -78,7 +102,7 @@
 </h2>
 <p>SPAM //@喷嚏网铂程://@徐凤文:[哼]</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3944348217913541" target="freeweibo-mirror">//@旺喜39: 栏目名可叫《小组讲话》，组长负责稿子的撰写…</a>
 </h2>
@@ -113,30 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3944317964116340" target="freeweibo-mirror">[晕] //@荣剑2001:现在血压不会再高了吧？//@陶景…</a>
 </h2>
 <p>[晕] //@荣剑2001:现在血压不会再高了吧？//@陶景洲:1998年朱镕基视察央视，破例题写：“舆论监督，群众喉舌，政府镜鉴，改革尖兵。”在场的一位高级领导提醒应是“党的喉舌”，总理大声说道：“我没有写错！为这16个字我想了一宿，天亮时血压都上去了。”<br><br>RE: 以后是不是应该改称：党中央电视台？<br><img src="http://ww2.sinaimg.cn/large/005XsazYjw1f14sc7tp7wj30k00f0dgp.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3944309252024927" target="freeweibo-mirror">SPAM //@CQ佬熊嘎嘎:要说气场还得看三胖。</a>
-</h2>
-<p>SPAM //@CQ佬熊嘎嘎:要说气场还得看三胖。<br><br>RE: 看看效果赶个时髦～<br><img src="http://ww2.sinaimg.cn/large/d60724d4jw1f14tnvhw82g205s03dqng.gif"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3944300264344477" target="freeweibo-mirror">//@王亚军上海:转发微博</a>
-</h2>
-<p>//@王亚军上海:转发微博<br><br>RE: 幕後導演坐到台前，這也算是不遮掩了！ http://t.cn/R2WJvly<br><img src="http://ww4.sinaimg.cn/large/5186d665jw1f14pofzbwlj20k00g6jt4.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3944299656232931" target="freeweibo-mirror">看看效果赶个时髦～</a>
-</h2>
-<p>看看效果赶个时髦～<br><img src="http://ww2.sinaimg.cn/large/d60724d4jw1f14tnvhw82g205s03dqng.gif"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3944297864422192" target="freeweibo-mirror">//@___crystal_:倒退程度令人匪夷所思、瞠目结舌…</a>
-</h2>
-<p>//@___crystal_:倒退程度令人匪夷所思、瞠目结舌！<br><br>RE: 以后是不是应该改称：党中央电视台？<br><img src="http://ww2.sinaimg.cn/large/005XsazYjw1f14sc7tp7wj30k00f0dgp.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
