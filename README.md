@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3944575707714880" target="freeweibo-mirror">SPAM 改革之魂归大海！</a>
+</h2>
+<p>SPAM 改革之魂归大海！<br><br>RE: 有一种表达，叫版面语言。<br><img src="http://ww2.sinaimg.cn/large/92c79538jw1f15n9u5a7uj20qo0zkn1o.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3944556124751908" target="freeweibo-mirror">//@陈崇正: //@城与年:1998年朱镕基总理视察中央电…</a>
 </h2>
 <p>//@陈崇正: //@城与年:1998年朱镕基总理视察中央电视台，破例题写16个大字：“舆论监督，群众喉舌，政府镜鉴，改革尖兵。”<br><br>RE: 1998年朱镕基总理视察中央电视台，破例题写16个大字：“舆论监督，群众喉舌，政府镜鉴，改革尖兵。”白岩松忆述，当写到“群众喉舌”时，在场的一位高级领导提醒应是“党的喉舌”，总理朗声说：“我没有写错！为这16个字我想了一宿，天亮时血压都上去了！”18年后我们看到央视忠心耿耿的12个字。<br><img src="http://ww4.sinaimg.cn/large/63493c15gw1f156gir0avj20m80go75s.jpg"></p>
@@ -90,7 +96,7 @@
 </h2>
 <p>能有啥希望？难~//@胡淑芬:这样下去，中华民族没准真的有希望了。//@横槊: [疑问]//@东方定海神珍:越表忠心就越假，越有问题，山可能得垮了，拭目以待<br><br>RE: 【坦荡的观点】今天看到习大大视察央视时的标语“央视姓党，绝对忠诚”，不期然想起1998年朱镕基视察央视时破例写出的：“舆论监督，群众喉舌，政府镜鉴，改革尖兵。”当时在场的一位高级领导提醒应是“党的喉舌”，朱总理大声说道：“我没有写错！为这16个字我想了一宿，天亮时血压都上去了。”<br><img src="http://ww3.sinaimg.cn/large/9ddb72ebjw1f150zp6wdkj20m80cign3.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3944502751921133" target="freeweibo-mirror">凡事，过了必然走向反面。</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3944393217865154" target="freeweibo-mirror">//@泪洒博坛: 问个轮回//@芳草在崖上://@梅虔: 今…</a>
 </h2>
 <p>//@泪洒博坛: 问个轮回//@芳草在崖上://@梅虔: 今夜网上传出来一连串神秘数字；→→1966→→1976→→1986→→1996→→2006→→2016→→1966→→……据说是宇宙真理密码。[钟]//@blue蓝蓝青天: 转发微博<br><br>RE: 强烈推荐：<br><img src="http://ww2.sinaimg.cn/large/594607fbjw1f152e2hnftj20go2eu1kx.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3944388155371817" target="freeweibo-mirror">此人红了！他不姓党？</a>
-</h2>
-<p>此人红了！他不姓党？<br><img src="http://ww2.sinaimg.cn/large/62c109c2jw1f153tzn85ij20cr0hs76b.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
