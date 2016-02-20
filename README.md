@@ -66,7 +66,7 @@
 </h2>
 <p>SPAM 不动戳大<br><img src="http://ww1.sinaimg.cn/large/67800d3bjw1f15mx8t3lng20dw07t4qq.gif"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3944552140619326" target="freeweibo-mirror">黄也落定了//@尚待完成:（国务院新任命 -2）黄奇帆任国务…</a>
 </h2>
@@ -138,7 +138,7 @@
 </h2>
 <p>CCCTV。 //@博联社马晓霖:【央视姓党】 以后别叫“中国中央电视台”，改叫“中共中央电视台”，直接划归中宣部管辖，这样就名正言顺了。<br><br>RE: 【坦荡的观点】今天看到习大大视察央视时的标语“央视姓党，绝对忠诚”，不期然想起1998年朱镕基视察央视时破例写出的：“舆论监督，群众喉舌，政府镜鉴，改革尖兵。”当时在场的一位高级领导提醒应是“党的喉舌”，朱总理大声说道：“我没有写错！为这16个字我想了一宿，天亮时血压都上去了。”<br><img src="http://ww3.sinaimg.cn/large/9ddb72ebjw1f150zp6wdkj20m80cign3.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p>
 <table>
     <tr>
