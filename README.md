@@ -38,6 +38,12 @@
 <p>
 	<small> ============== 4小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3944601762932484" target="freeweibo-mirror">【《南方都市报》深圳版有特色】图一是报纸实拍。图二是网站上广…</a>
+</h2>
+<p>【《南方都市报》深圳版有特色】图一是报纸实拍。图二是网站上广州版。图三是网站上深圳版。评：No Zuo No Die！<br><img src="http://ww4.sinaimg.cn/large/634a37f3jw1f15s934qoij20qo1bh7fd.jpg"></p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3944594679377802" target="freeweibo-mirror">SPAM 图是什么意思。。。。</a>
 </h2>
 <p>SPAM 图是什么意思。。。。</p>
@@ -133,12 +139,6 @@
 <p>//@汉商天民:众人诺诺，一士谔谔？//@可可-cm10: //@谓贤:和平时期的民族英雄！<br><br>RE: 此人红了！他不姓党？<br><img src="http://ww2.sinaimg.cn/large/62c109c2jw1f153tzn85ij20cr0hs76b.jpg"></p>
 <p>
 	<small> ============== 9小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3944511354975829" target="freeweibo-mirror">说实话，我怎么会有感觉现在还没删帖是在钓鱼？？//@章诒和:…</a>
-</h2>
-<p>说实话，我怎么会有感觉现在还没删帖是在钓鱼？？//@章诒和://@荣剑2001: 还能转？//@演员孙海英:姓党，就叫“党中央电视台”为好！<br><br>RE: 【坦荡的观点】今天看到习大大视察央视时的标语“央视姓党，绝对忠诚”，不期然想起1998年朱镕基视察央视时破例写出的：“舆论监督，群众喉舌，政府镜鉴，改革尖兵。”当时在场的一位高级领导提醒应是“党的喉舌”，朱总理大声说道：“我没有写错！为这16个字我想了一宿，天亮时血压都上去了。”<br><img src="http://ww3.sinaimg.cn/large/9ddb72ebjw1f150zp6wdkj20m80cign3.jpg"></p>
-<p>
-	<small> ============== 10小时前</small>
 </p>
 <table>
     <tr>
