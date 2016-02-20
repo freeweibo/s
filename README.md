@@ -30,7 +30,7 @@
 </h2>
 <p>被阅读了四十多万次并被转发了三千多次后，我的这个微博终于寿终正寝了...<br><img src="http://ww2.sinaimg.cn/large/9ddb72ebgw1f161l7gpn0j20ku112afh.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3944657492727891" target="freeweibo-mirror">SPAM 小崔真是好同志。</a>
 </h2>
@@ -96,7 +96,7 @@
 </h2>
 <p>SPAM 改革之魂归大海！<br><br>RE: 有一种表达，叫版面语言。<br><img src="http://ww2.sinaimg.cn/large/92c79538jw1f15n9u5a7uj20qo0zkn1o.jpg"></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3944575355646275" target="freeweibo-mirror">有内涵。 //@民间治堵人陈哲宏:南都也彻底变人日了//@马…</a>
 </h2>
