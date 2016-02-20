@@ -72,7 +72,7 @@
 </h2>
 <p>SPAM 图是什么意思。。。。</p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3944590274647528" target="freeweibo-mirror">接受检阅</a>
 </h2>
@@ -102,7 +102,7 @@
 </h2>
 <p>SPAM 阿们！</p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3944557521466834" target="freeweibo-mirror">有一种表达，叫版面语言。</a>
 </h2>
