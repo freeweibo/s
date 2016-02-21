@@ -24,11 +24,17 @@
 </h2>
 <p>SPAM 【邪性不改】习总书记刚刚讲了一连串“讲导向”要求，它就在第一版给他来这么一个“导向”。——第一版能这么个排版，是临时工干的吗？<br><img src="http://ww2.sinaimg.cn/large/5d7227b8gw1f16yboef79j20j60pkaf7.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3944951173690436" target="freeweibo-mirror">//@卡bing_://@潘里个潘潘你个潘://@Hanas…</a>
 </h2>
 <p>//@卡bing_://@潘里个潘潘你个潘://@Hanasa_Criin://@英俊哕:转给首页//@出污泥而不染的腿毛崩二栗:转发微博</p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3944943628115101" target="freeweibo-mirror">//@紫色偶然520: 公知骂的人肯定挺好的。//@鎏光:转…</a>
+</h2>
+<p>//@紫色偶然520: 公知骂的人肯定挺好的。//@鎏光:转给大家看看。博主这类公知、反复转世的谣子，真正衣冠禽兽龌龊下作，最右一串与他相呼应的点赞喊好的又是啥货色//@崔紫剑同志:右边都是些什么玩意儿？就这么尊重女性的？//@野村评论:奴化教育养了一批脑残，没有价值观和高尚人格<br><br>RE: 她真名叫“刘津宇”，辽宁营口人。风口浪尖后，改了微博名。这些都是根据公开信息而来的。图转。她微博永久链接->http://weibo.com/u/1837939021<br><img src="http://ww3.sinaimg.cn/large/0068FKKNgw1f16sb5salvj30ku112wi1.jpg"></p>
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
@@ -126,19 +132,13 @@
 </h2>
 <p>//@律师文摘://@老王5504595728: 党妈说的你别当真</p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3944826846129141" target="freeweibo-mirror">『從維穩看經濟崩潰』「2015年國防預算9114億元，『維穩…</a>
 </h2>
 <p>『從維穩看經濟崩潰』「2015年國防預算9114億元，『維穩』經費8899億元，『今年的維穩費首次比軍費少了』……」 ——「走X家新聞發言人」傅瑩<br><img src="http://ww3.sinaimg.cn/large/006cZrz9jw1f16i7t158hj30c80c875o.jpg"></p>
 <p>
 	<small> ============== 11小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3944800925714212" target="freeweibo-mirror">共产党说为人民服务，无非是为了糊弄傻逼；敢信这种鬼话的，也只…</a>
-</h2>
-<p>共产党说为人民服务，无非是为了糊弄傻逼；敢信这种鬼话的，也只有你这样的花痴；[嘻嘻]</p>
-<p>
-	<small> ============== 1天前</small>
 </p>
 <table>
     <tr>
