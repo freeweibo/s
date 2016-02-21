@@ -20,6 +20,18 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3944907163030084" target="freeweibo-mirror">SPAM 普及政协制度常识[good]//@陈业文新大都: …</a>
+</h2>
+<p>SPAM 普及政协制度常识[good]//@陈业文新大都: 任总想建立新的参政党？共产新党？[笑cry]</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3944899658750179" target="freeweibo-mirror">SPAM 参政党  cān zhèng dǎng 在中国，指…</a>
+</h2>
+<p>SPAM 参政党  cān zhèng dǎng 在中国，指接受中国共产党的领导、与中国共产党通力合作、共同致力于社会主义事业的各民主党派。是执政党中国共产党的亲密友党。它们参政的基本点是：参加国家政权，参与国家大政方针和国家领导人选的协商，参与国家事务的管理，参与国家方针、政策、法律、法规的制定执行。</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3944896325359000" target="freeweibo-mirror">//@崔小平律师://@陶景洲:艺术的魅力。 //@作家金槿…</a>
 </h2>
 <p>//@崔小平律师://@陶景洲:艺术的魅力。 //@作家金槿姬V:[怒] //@原子漫画:[doge]//@梁振亚南方: 转发微博<br><br>RE: @原子漫画：接受检阅<br><img src="http://ww3.sinaimg.cn/large/c330bbcagw1f1655znzxrj20m816uju8.jpg"></p>
@@ -125,18 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3944625989342804" target="freeweibo-mirror">明天各大媒体，争先恐后，头版头条，大篇幅，告诉读者，它，姓，…</a>
 </h2>
 <p>明天各大媒体，争先恐后，头版头条，大篇幅，告诉读者，它，姓，党。[笑cry]</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3944604741540376" target="freeweibo-mirror">SPAM 迎春你姓啥？绝对忠乎？//@闵玉平: //@发条橙…</a>
-</h2>
-<p>SPAM 迎春你姓啥？绝对忠乎？//@闵玉平: //@发条橙798:高，实在是高<br><br>RE: 接受检阅<br><img src="http://ww4.sinaimg.cn/large/3d78f362gw1f15r1hn56dj20m816u76y.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3944603696482706" target="freeweibo-mirror">//@雁塔小木屋4:[阴险]//@小卖部长十世: //@原子…</a>
-</h2>
-<p>//@雁塔小木屋4:[阴险]//@小卖部长十世: //@原子漫画: 绝对忠贞，请您检阅 //@小感-J:转发微博<br><br>RE: 接受检阅<br><img src="http://ww4.sinaimg.cn/large/3d78f362gw1f15r1hn56dj20m816u76y.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
