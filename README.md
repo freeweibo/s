@@ -42,7 +42,7 @@
 </h2>
 <p>那天，人民军女战士崔静姬（女，23岁）幸福地和最高司令官握了手。如今，半年过去了，崔静姬仍舍不得洗手，因为周围十几公里，每天都有群众慕名前来和她握手，体会最高司令官的温暖。<br><img src="http://ww4.sinaimg.cn/large/a8ef5277jw1f178cqift7j20hs0me408.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3944990319167353" target="freeweibo-mirror">SPAM @洪利律师   新华社组织的500人的欢迎队伍</a>
 </h2>
@@ -132,7 +132,7 @@
 </h2>
 <p>//@邵明波:这是个外围小宫女，盼啊盼的。//@逆风蝴蝶: 链接正确。比芮成钢差太远。 //@记者郝成:【与主席握手后不洗手的美女是央视编辑，大量美图曝光】<br><br>RE: 她真名叫“刘津宇”，辽宁营口人。风口浪尖后，改了微博名。这些都是根据公开信息而来的。图转。她微博永久链接->http://weibo.com/u/1837939021<br><img src="http://ww3.sinaimg.cn/large/0068FKKNgw1f16sb5salvj30ku112wi1.jpg"></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3944945696374213" target="freeweibo-mirror">哈哈哈哈哈，里应外合啊[哈哈][哈哈][哈哈][哈哈][哈哈…</a>
 </h2>
