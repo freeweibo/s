@@ -48,7 +48,7 @@
 </h2>
 <p>//@崔小平律师://@陶景洲:艺术的魅力。 //@作家金槿姬V:[怒] //@原子漫画:[doge]//@梁振亚南方: 转发微博<br><br>RE: @原子漫画：接受检阅<br><img src="http://ww3.sinaimg.cn/large/c330bbcagw1f1655znzxrj20m816uju8.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3944890091658009" target="freeweibo-mirror">艺术的魅力。 //@作家金槿姬V:[怒] //@原子漫画:[…</a>
 </h2>
@@ -96,7 +96,7 @@
 </h2>
 <p>SPAM 卧槽尼玛。<br><br>RE: 欢迎配文。<br><img src="http://ww1.sinaimg.cn/large/d90f1e6dgw1f169onfi87j20c80c83yt.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3944752615253009" target="freeweibo-mirror">欢迎配文。</a>
 </h2>
