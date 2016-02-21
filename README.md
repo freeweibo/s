@@ -26,6 +26,12 @@
 <p>
 	<small> ============== 1小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3944922015496201" target="freeweibo-mirror">【媒体姓氏】说必须姓啥有些费解，姓毛的还有毛人凤呢。政治修辞…</a>
+</h2>
+<p>【媒体姓氏】说必须姓啥有些费解，姓毛的还有毛人凤呢。政治修辞这种风格太模糊。“党的新闻舆论媒体的所有工作，都要体现党的意志、反映党的主张，维护党中央权威、维护党的团结，做到爱党、护党、为党。”这似乎清楚些，但仍有争议，怎样才算爱护？批评中央或更有助于维护中央权威呢！<br><img src="http://ww1.sinaimg.cn/large/48866320jw1f16t545r0xj20m80citaa.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3944909050336884" target="freeweibo-mirror">SPAM [偷笑]谁呢？//@V实谈：最后那女胖子是谁？</a>
 </h2>
 <p>SPAM [偷笑]谁呢？//@V实谈：最后那女胖子是谁？</p>
@@ -78,7 +84,7 @@
 </h2>
 <p>SPAM #微博记微#被删除的博（昨晚看，只是转发的博没有了，现在再看，我的博也被删了。重新发，留存）。<br><img src="http://ww4.sinaimg.cn/large/44de9a03gw1f16miviylgj20k00yh0vx.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3944863073040669" target="freeweibo-mirror">//@律师文摘://@老王5504595728: 党妈说的你…</a>
 </h2>
@@ -102,7 +108,7 @@
 </h2>
 <p>【 网文 】  新 H 社 春节迎送大大未果<br><img src="http://ww2.sinaimg.cn/large/006jB54ngw1f16c91qdvdj30c3141dob.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3944753206543164" target="freeweibo-mirror">SPAM 卧槽尼玛。</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3944722127297920" target="freeweibo-mirror">文革停止过吗？还好意思嘲笑金三胖吗？这下知道什么是贱人了吧？…</a>
 </h2>
 <p>文革停止过吗？还好意思嘲笑金三胖吗？这下知道什么是贱人了吧？她金大大万一手淫没洗手她晚上自摸你说要是怀孕了可咋整啊！[哈哈] 我在#北京市# http://t.cn/R2Wx66N<br><img src="http://ww1.sinaimg.cn/large/006lT03Qjw1f1666u4b4kj30k00zkgt4.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3944713222351885" target="freeweibo-mirror">@原子漫画：接受检阅</a>
-</h2>
-<p>@原子漫画：接受检阅<br><img src="http://ww3.sinaimg.cn/large/c330bbcagw1f1655znzxrj20m816uju8.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
