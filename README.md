@@ -84,7 +84,7 @@
 </h2>
 <p>『從維穩看經濟崩潰』「2015年國防預算9114億元，『維穩』經費8899億元，『今年的維穩費首次比軍費少了』……」 ——「走X家新聞發言人」傅瑩<br><img src="http://ww3.sinaimg.cn/large/006cZrz9jw1f16i7t158hj30c80c875o.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3944800925714212" target="freeweibo-mirror">共产党说为人民服务，无非是为了糊弄傻逼；敢信这种鬼话的，也只…</a>
 </h2>
