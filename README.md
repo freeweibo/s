@@ -56,6 +56,12 @@
 <p>
 	<small> ============== 1天前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3944713222351885" target="freeweibo-mirror">@原子漫画：接受检阅</a>
+</h2>
+<p>@原子漫画：接受检阅<br><img src="http://ww3.sinaimg.cn/large/c330bbcagw1f1655znzxrj20m816uju8.jpg"></p>
+<p>
+	<small> ============== 1天前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3944713176160377" target="freeweibo-mirror">//@紫色偶然520: 笔杆子也可以推翻政权、破坏中华民族复…</a>
 </h2>
 <p>//@紫色偶然520: 笔杆子也可以推翻政权、破坏中华民族复兴大业，也可以杀人于无形。//@一泓清泉e:要相抓好笔杆子 不清除体制婊尤其是文化宣传界的体制婊 白扯[doge]<br><br>RE: 首先抓枪杆子，然后抓笔杆子，没错，这两杆子最重要。但好像笔杆子比枪杆子还难抓得多。2013年819讲话就显示非常在意这第二杆子，后来不断抓，貌似就是抓不住，这2016年春节刚过完就又去抓了，要害部门全去了，不知成效如何。貌似笔杆子比枪杆子更能耍人，所以不好抓</p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3944597349992822" target="freeweibo-mirror">我收藏了八百万件文革旧物，如果再来一次，全部可以排上用场[汗…</a>
 </h2>
 <p>我收藏了八百万件文革旧物，如果再来一次，全部可以排上用场[汗][汗][汗]<br><img src="http://ww3.sinaimg.cn/large/63eb5b8dgw1f15rsiqjtgj20zq0qogvi.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3944594679377802" target="freeweibo-mirror">SPAM 图是什么意思。。。。</a>
-</h2>
-<p>SPAM 图是什么意思。。。。</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
