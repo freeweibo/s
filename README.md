@@ -78,7 +78,7 @@
 </h2>
 <p>那天，人民军女战士崔静姬（女，23岁）幸福地和最高司令官握了手。如今，半年过去了，崔静姬仍舍不得洗手，因为周围十几公里，每天都有群众慕名前来和她握手，体会最高司令官的温暖。<br><img src="http://ww4.sinaimg.cn/large/a8ef5277jw1f178cqift7j20hs0me408.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3945046283787547" target="freeweibo-mirror">傻逼也就只能欺负女人了。我也就奇怪了现在的人干嘛稍微有点压力…</a>
 </h2>
