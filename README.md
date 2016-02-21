@@ -48,13 +48,13 @@
 </h2>
 <p>[笑cry]//@潇湘酒徒胜哥://@微笑类星体:十八大后，不是说出行连路都不封吗？//@我是伏起: //@光年无极: 倒车，没希望了！<br><br>RE: 新华社组织的500人的欢迎队伍<br><img src="http://ww4.sinaimg.cn/large/5eac8cf4jw1f16t7hp02fj20c3141gt7.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3944974523406726" target="freeweibo-mirror">SPAM 离朝鲜很近!//@邵明波:今年已经是21世纪的第1…</a>
 </h2>
 <p>SPAM 离朝鲜很近!//@邵明波:今年已经是21世纪的第16个年头，我们还在玩儿这个！#听海观潮#<br><br>RE: 新华社组织的500人的欢迎队伍<br><img src="http://ww4.sinaimg.cn/large/5eac8cf4jw1f16t7hp02fj20c3141gt7.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3944971394986596" target="freeweibo-mirror">#原子漫画#性福的手掌</a>
 </h2>
