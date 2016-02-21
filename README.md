@@ -26,6 +26,12 @@
 <p>
 	<small> ============== 1小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3945082539536384" target="freeweibo-mirror">央视跟平壤的优越感还真是一个模子刻出来的，握着金三胖的手和握…</a>
+</h2>
+<p>央视跟平壤的优越感还真是一个模子刻出来的，握着金三胖的手和握着习大大的手一样激动泪目。也是奇了怪了，有皇族存在的国家对政府领导人都比较冷静，没有皇族的国家把政府领导人当皇族膜拜，穷怕了都想搂着权力的龙根升天。//@weixiaoping的空间://@库雪明:转发微博<br><br>RE: @央视新闻《新闻联播》编导刘津宇，辽宁营口人，看来很喜欢旅游和游泳，也很爱穿比基尼，还都是低胸的。不管你胸多大，央视容得下。在央视打工，应胸怀宽广。不必自称奴才，也不必骂人“苍蝇”，对于不友善的言论，也可以有礼有节地回击。<br><img src="http://ww4.sinaimg.cn/large/5ff29ca4jw1f17322i6znj20k00zkwi0.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3945067322196241" target="freeweibo-mirror">[哈哈]臭了吧！ //@彭园v: //@暴躁船長:幸亏没摸奶…</a>
 </h2>
 <p>[哈哈]臭了吧！ //@彭园v: //@暴躁船長:幸亏没摸奶[doge][doge]</p>
@@ -44,9 +50,21 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3945060980700771" target="freeweibo-mirror">SPAM 发表了博文《历史：你不说实话能死吗？》2011年1…</a>
+</h2>
+<p>SPAM 发表了博文《历史：你不说实话能死吗？》2011年10月上旬，导演冯小刚发了一条微博：“说两句实话，代价是很大，先是媳妇不让睡觉，苦口婆心央求：看在我和孩子的份上少说两句实话行吗？后是兄长如道明，声色俱http://t.cn/RGSb8gU<br><img src="http://ww2.sinaimg.cn/large/55dde65fjw1f1793uhsbxj209q0aidgs.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3945054692888552" target="freeweibo-mirror">那天，人民军女战士崔静姬（女，23岁）幸福地和最高司令官握了…</a>
 </h2>
 <p>那天，人民军女战士崔静姬（女，23岁）幸福地和最高司令官握了手。如今，半年过去了，崔静姬仍舍不得洗手，因为周围十几公里，每天都有群众慕名前来和她握手，体会最高司令官的温暖。<br><img src="http://ww4.sinaimg.cn/large/a8ef5277jw1f178cqift7j20hs0me408.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3945046283787547" target="freeweibo-mirror">傻逼也就只能欺负女人了。我也就奇怪了现在的人干嘛稍微有点压力…</a>
+</h2>
+<p>傻逼也就只能欺负女人了。我也就奇怪了现在的人干嘛稍微有点压力就删微博呢？<br><br>RE: @央视新闻《新闻联播》编导刘津宇，辽宁营口人，看来很喜欢旅游和游泳，也很爱穿比基尼，还都是低胸的。不管你胸多大，央视容得下。在央视打工，应胸怀宽广。不必自称奴才，也不必骂人“苍蝇”，对于不友善的言论，也可以有礼有节地回击。<br><img src="http://ww4.sinaimg.cn/large/5ff29ca4jw1f17322i6znj20k00zkwi0.jpg"></p>
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
@@ -66,7 +84,7 @@
 </h2>
 <p>少见多怪，类似场景，现在还在体制内的同学们谁还不是隔三差五地玩嘛，开心着呢 //@tinyfool://@高春辉: //@钱中华://@邵明波:今年已经是21世纪的第16个年头，我们还在玩儿这个！<br><br>RE: 新华社组织的500人的欢迎队伍<br><img src="http://ww4.sinaimg.cn/large/5eac8cf4jw1f16t7hp02fj20c3141gt7.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3944977971608579" target="freeweibo-mirror">SPAM //@吃饭才胖:[嘻嘻]</a>
 </h2>
@@ -114,31 +132,13 @@
 </h2>
 <p>SPAM 【邪性不改】习总书记刚刚讲了一连串“讲导向”要求，它就在第一版给他来这么一个“导向”。——第一版能这么个排版，是临时工干的吗？<br><img src="http://ww2.sinaimg.cn/large/5d7227b8gw1f16yboef79j20j60pkaf7.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3944960921680782" target="freeweibo-mirror">志强的意思是割裂党和人民，类似那个“你是替党说话，还是替人民…</a>
 </h2>
 <p>志强的意思是割裂党和人民，类似那个“你是替党说话，还是替人民说话”//@匆匆过客小松:果断转[话筒]//@点子正:好文#立场坚定斗志强#[话筒]<br><br>RE: #立场坚定斗志强# 《谁给了任志强反党的底气》 我们的媒体，太久不敢提党性原则，仿佛一提就触摸了所谓新闻自由的逆鳞，但是如果坚持一心一意为人民服务的宗旨，又何惧“姓党”？一个“优秀共产党员”却把自己跟人民割裂并踩在脚下的个体，哑火，是迟早的事。 http://t.cn/RGaRwq8</p>
 <p>
 	<small> ============== 9小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3944952218053317" target="freeweibo-mirror">中国舆论过去一段时间以来，总是遵循追捧着外国人制定的政治正确…</a>
-</h2>
-<p>中国舆论过去一段时间以来，总是遵循追捧着外国人制定的政治正确性，现在，终于由我们自己的老大来确立我们自己的政治正确性。这样的拐点，带路公知当然接受不了。[哈哈]<br><br>RE: 哈哈哈哈哈，里应外合啊[哈哈][哈哈][哈哈][哈哈][哈哈]<br><img src="http://ww4.sinaimg.cn/large/8031f80fgw1f16vu3meuzj20m805fwez.jpg"></p>
-<p>
-	<small> ============== 10小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3944951173690436" target="freeweibo-mirror">//@卡bing_://@潘里个潘潘你个潘://@Hanas…</a>
-</h2>
-<p>//@卡bing_://@潘里个潘潘你个潘://@Hanasa_Criin://@英俊哕:转给首页//@出污泥而不染的腿毛崩二栗:转发微博</p>
-<p>
-	<small> ============== 10小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3944948690711427" target="freeweibo-mirror">//@邵明波:这是个外围小宫女，盼啊盼的。//@逆风蝴蝶: …</a>
-</h2>
-<p>//@邵明波:这是个外围小宫女，盼啊盼的。//@逆风蝴蝶: 链接正确。比芮成钢差太远。 //@记者郝成:【与主席握手后不洗手的美女是央视编辑，大量美图曝光】<br><br>RE: 她真名叫“刘津宇”，辽宁营口人。风口浪尖后，改了微博名。这些都是根据公开信息而来的。图转。她微博永久链接->http://weibo.com/u/1837939021<br><img src="http://ww3.sinaimg.cn/large/0068FKKNgw1f16sb5salvj30ku112wi1.jpg"></p>
-<p>
-	<small> ============== 10小时前</small>
 </p>
 <table>
     <tr>
