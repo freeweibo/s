@@ -78,7 +78,7 @@
 </h2>
 <p>SPAM [偷笑]谁呢？//@V实谈：最后那女胖子是谁？</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3944907163030084" target="freeweibo-mirror">SPAM 普及政协制度常识[good]//@陈业文新大都: …</a>
 </h2>
