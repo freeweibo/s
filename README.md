@@ -30,7 +30,7 @@
 </h2>
 <p>少见多怪，类似场景，现在还在体制内的同学们谁还不是隔三差五地玩嘛，开心着呢 //@tinyfool://@高春辉: //@钱中华://@邵明波:今年已经是21世纪的第16个年头，我们还在玩儿这个！<br><br>RE: 新华社组织的500人的欢迎队伍<br><img src="http://ww4.sinaimg.cn/large/5eac8cf4jw1f16t7hp02fj20c3141gt7.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3944977971608579" target="freeweibo-mirror">SPAM //@吃饭才胖:[嘻嘻]</a>
 </h2>
@@ -78,7 +78,7 @@
 </h2>
 <p>SPAM 【邪性不改】习总书记刚刚讲了一连串“讲导向”要求，它就在第一版给他来这么一个“导向”。——第一版能这么个排版，是临时工干的吗？<br><img src="http://ww2.sinaimg.cn/large/5d7227b8gw1f16yboef79j20j60pkaf7.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3944960921680782" target="freeweibo-mirror">志强的意思是割裂党和人民，类似那个“你是替党说话，还是替人民…</a>
 </h2>
@@ -132,7 +132,7 @@
 </h2>
 <p>SPAM //@罗昌平: //@幽壹:</p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3944932026355308" target="freeweibo-mirror">小賀不是民主党派成员，据说是中共党员，还是“教授”。从他的系…</a>
 </h2>
