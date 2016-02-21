@@ -42,7 +42,7 @@
 </h2>
 <p>//@微笑类星体: 十八大后，不是说出行连路都不封吗？//@我是伏起: //@光年无极: 倒车，没希望了！<br><br>RE: 新华社组织的500人的欢迎队伍<br><img src="http://ww4.sinaimg.cn/large/5eac8cf4jw1f16t7hp02fj20c3141gt7.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3944975290721438" target="freeweibo-mirror">[笑cry]//@潇湘酒徒胜哥://@微笑类星体:十八大后，…</a>
 </h2>
@@ -84,7 +84,7 @@
 </h2>
 <p>志强的意思是割裂党和人民，类似那个“你是替党说话，还是替人民说话”//@匆匆过客小松:果断转[话筒]//@点子正:好文#立场坚定斗志强#[话筒]<br><br>RE: #立场坚定斗志强# 《谁给了任志强反党的底气》 我们的媒体，太久不敢提党性原则，仿佛一提就触摸了所谓新闻自由的逆鳞，但是如果坚持一心一意为人民服务的宗旨，又何惧“姓党”？一个“优秀共产党员”却把自己跟人民割裂并踩在脚下的个体，哑火，是迟早的事。 http://t.cn/RGaRwq8</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3944952218053317" target="freeweibo-mirror">中国舆论过去一段时间以来，总是遵循追捧着外国人制定的政治正确…</a>
 </h2>
@@ -108,7 +108,7 @@
 </h2>
 <p>哈哈哈哈哈，里应外合啊[哈哈][哈哈][哈哈][哈哈][哈哈]<br><img src="http://ww4.sinaimg.cn/large/8031f80fgw1f16vu3meuzj20m805fwez.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3944943628115101" target="freeweibo-mirror">//@紫色偶然520: 公知骂的人肯定挺好的。//@鎏光:转…</a>
 </h2>
