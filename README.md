@@ -36,7 +36,7 @@
 </h2>
 <p>共产党说为人民服务，无非是为了糊弄傻逼；敢信这种鬼话的，也只有你这样的花痴；[嘻嘻]</p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3944753206543164" target="freeweibo-mirror">SPAM 卧槽尼玛。</a>
 </h2>
