@@ -44,6 +44,12 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3945066265402117" target="freeweibo-mirror">SPAM 夸女人胸部大，构成性骚扰。她游泳时留影当然穿泳装了…</a>
+</h2>
+<p>SPAM 夸女人胸部大，构成性骚扰。她游泳时留影当然穿泳装了，但你对人家照片评论胸大，就猥琐不堪了。这和人家工作关系吗？删贴吧，别嘴硬傻13了。<br><br>RE: 说某位女士胸大身材好，叫歧视女性吗？这些图片来自刘津宇本人的博客，显然她自己是愿意展示自己的身材和胸部的。这些污言秽语，都是私信发给我的。我又没关评论，有话公开说吧。<br><img src="http://ww2.sinaimg.cn/large/5ff29ca4jw1f178zo5kqpj20qo1bejwx.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3945064792911506" target="freeweibo-mirror">SPAM 这是拍电影呢吧</a>
 </h2>
 <p>SPAM 这是拍电影呢吧</p>
@@ -72,7 +78,7 @@
 </h2>
 <p>SPAM @洪利律师   新华社组织的500人的欢迎队伍<br><img src="http://ww3.sinaimg.cn/large/8603d4cfgw1f170z9qi0oj20c314145h.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3944985638086142" target="freeweibo-mirror">SPAM [笑cry] //@张老汉一世:耻辱！</a>
 </h2>
@@ -102,13 +108,13 @@
 </h2>
 <p>[笑cry]//@潇湘酒徒胜哥://@微笑类星体:十八大后，不是说出行连路都不封吗？//@我是伏起: //@光年无极: 倒车，没希望了！<br><br>RE: 新华社组织的500人的欢迎队伍<br><img src="http://ww4.sinaimg.cn/large/5eac8cf4jw1f16t7hp02fj20c3141gt7.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3944974523406726" target="freeweibo-mirror">SPAM 离朝鲜很近!//@邵明波:今年已经是21世纪的第1…</a>
 </h2>
 <p>SPAM 离朝鲜很近!//@邵明波:今年已经是21世纪的第16个年头，我们还在玩儿这个！#听海观潮#<br><br>RE: 新华社组织的500人的欢迎队伍<br><img src="http://ww4.sinaimg.cn/large/5eac8cf4jw1f16t7hp02fj20c3141gt7.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3944971394986596" target="freeweibo-mirror">#原子漫画#性福的手掌</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3944968274122076" target="freeweibo-mirror">SPAM 【邪性不改】习总书记刚刚讲了一连串“讲导向”要求，…</a>
 </h2>
 <p>SPAM 【邪性不改】习总书记刚刚讲了一连串“讲导向”要求，它就在第一版给他来这么一个“导向”。——第一版能这么个排版，是临时工干的吗？<br><img src="http://ww2.sinaimg.cn/large/5d7227b8gw1f16yboef79j20j60pkaf7.jpg"></p>
-<p>
-	<small> ============== 9小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3944960921680782" target="freeweibo-mirror">志强的意思是割裂党和人民，类似那个“你是替党说话，还是替人民…</a>
-</h2>
-<p>志强的意思是割裂党和人民，类似那个“你是替党说话，还是替人民说话”//@匆匆过客小松:果断转[话筒]//@点子正:好文#立场坚定斗志强#[话筒]<br><br>RE: #立场坚定斗志强# 《谁给了任志强反党的底气》 我们的媒体，太久不敢提党性原则，仿佛一提就触摸了所谓新闻自由的逆鳞，但是如果坚持一心一意为人民服务的宗旨，又何惧“姓党”？一个“优秀共产党员”却把自己跟人民割裂并踩在脚下的个体，哑火，是迟早的事。 http://t.cn/RGaRwq8</p>
 <p>
 	<small> ============== 9小时前</small>
 </p>
