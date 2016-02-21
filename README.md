@@ -20,6 +20,18 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3944968274122076" target="freeweibo-mirror">SPAM 【邪性不改】习总书记刚刚讲了一连串“讲导向”要求，…</a>
+</h2>
+<p>SPAM 【邪性不改】习总书记刚刚讲了一连串“讲导向”要求，它就在第一版给他来这么一个“导向”。——第一版能这么个排版，是临时工干的吗？<br><img src="http://ww2.sinaimg.cn/large/5d7227b8gw1f16yboef79j20j60pkaf7.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3944951173690436" target="freeweibo-mirror">//@卡bing_://@潘里个潘潘你个潘://@Hanas…</a>
+</h2>
+<p>//@卡bing_://@潘里个潘潘你个潘://@Hanasa_Criin://@英俊哕:转给首页//@出污泥而不染的腿毛崩二栗:转发微博</p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3944932026355308" target="freeweibo-mirror">小賀不是民主党派成员，据说是中共党员，还是“教授”。从他的系…</a>
 </h2>
 <p>小賀不是民主党派成员，据说是中共党员，还是“教授”。从他的系列言论看，名符其实的资产阶级反动学术权威。应属于清党对象。之所以继续放毒，说明走资派不仅还在走，而且还在加速跑！[笑哈哈][笑哈哈][笑哈哈][笑哈哈][笑哈哈][笑哈哈][笑哈哈][笑哈哈][笑哈哈][笑哈哈][笑哈哈][笑哈哈][笑哈哈]<br><br>RE: 【媒体姓氏】说必须姓啥有些费解，姓毛的还有毛人凤呢。政治修辞这种风格太模糊。“党的新闻舆论媒体的所有工作，都要体现党的意志、反映党的主张，维护党中央权威、维护党的团结，做到爱党、护党、为党。”这似乎清楚些，但仍有争议，怎样才算爱护？批评中央或更有助于维护中央权威呢！<br><img src="http://ww1.sinaimg.cn/large/48866320jw1f16t545r0xj20m80citaa.jpg"></p>
@@ -54,7 +66,7 @@
 </h2>
 <p>【媒体姓氏】说必须姓啥有些费解，姓毛的还有毛人凤呢。政治修辞这种风格太模糊。“党的新闻舆论媒体的所有工作，都要体现党的意志、反映党的主张，维护党中央权威、维护党的团结，做到爱党、护党、为党。”这似乎清楚些，但仍有争议，怎样才算爱护？批评中央或更有助于维护中央权威呢！<br><img src="http://ww1.sinaimg.cn/large/48866320jw1f16t545r0xj20m80citaa.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3944909050336884" target="freeweibo-mirror">SPAM [偷笑]谁呢？//@V实谈：最后那女胖子是谁？</a>
 </h2>
@@ -66,7 +78,7 @@
 </h2>
 <p>SPAM 普及政协制度常识[good]//@陈业文新大都: 任总想建立新的参政党？共产新党？[笑cry]</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3944903740828620" target="freeweibo-mirror">//@如东维权王峰: //@三俗大哥: //@溜溜的木: /…</a>
 </h2>
@@ -125,18 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3944800925714212" target="freeweibo-mirror">共产党说为人民服务，无非是为了糊弄傻逼；敢信这种鬼话的，也只…</a>
 </h2>
 <p>共产党说为人民服务，无非是为了糊弄傻逼；敢信这种鬼话的，也只有你这样的花痴；[嘻嘻]</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3944774937336167" target="freeweibo-mirror">【 网文 】  新 H 社 春节迎送大大未果</a>
-</h2>
-<p>【 网文 】  新 H 社 春节迎送大大未果<br><img src="http://ww2.sinaimg.cn/large/006jB54ngw1f16c91qdvdj30c3141dob.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3944753206543164" target="freeweibo-mirror">SPAM 卧槽尼玛。</a>
-</h2>
-<p>SPAM 卧槽尼玛。<br><br>RE: 欢迎配文。<br><img src="http://ww1.sinaimg.cn/large/d90f1e6dgw1f169onfi87j20c80c83yt.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
