@@ -42,7 +42,7 @@
 </h2>
 <p>//@紫色偶然520: 公知骂的人肯定挺好的。//@鎏光:转给大家看看。博主这类公知、反复转世的谣子，真正衣冠禽兽龌龊下作，最右一串与他相呼应的点赞喊好的又是啥货色//@崔紫剑同志:右边都是些什么玩意儿？就这么尊重女性的？//@野村评论:奴化教育养了一批脑残，没有价值观和高尚人格<br><br>RE: 她真名叫“刘津宇”，辽宁营口人。风口浪尖后，改了微博名。这些都是根据公开信息而来的。图转。她微博永久链接->http://weibo.com/u/1837939021<br><img src="http://ww3.sinaimg.cn/large/0068FKKNgw1f16sb5salvj30ku112wi1.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3944932026355308" target="freeweibo-mirror">小賀不是民主党派成员，据说是中共党员，还是“教授”。从他的系…</a>
 </h2>
@@ -60,7 +60,7 @@
 </h2>
 <p>//@筑景园: //@ICO刘开明: 转发微博<br><br>RE: 【媒体姓氏】说必须姓啥有些费解，姓毛的还有毛人凤呢。政治修辞这种风格太模糊。“党的新闻舆论媒体的所有工作，都要体现党的意志、反映党的主张，维护党中央权威、维护党的团结，做到爱党、护党、为党。”这似乎清楚些，但仍有争议，怎样才算爱护？批评中央或更有助于维护中央权威呢！<br><img src="http://ww1.sinaimg.cn/large/48866320jw1f16t545r0xj20m80citaa.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3944925579992492" target="freeweibo-mirror">//@XB-188:罗某：坚守意识形态上甘岭……我们必须把意…</a>
 </h2>
@@ -77,6 +77,12 @@
 	<a href="https://freeweibo.com/weibo/3944922015496201" target="freeweibo-mirror">【媒体姓氏】说必须姓啥有些费解，姓毛的还有毛人凤呢。政治修辞…</a>
 </h2>
 <p>【媒体姓氏】说必须姓啥有些费解，姓毛的还有毛人凤呢。政治修辞这种风格太模糊。“党的新闻舆论媒体的所有工作，都要体现党的意志、反映党的主张，维护党中央权威、维护党的团结，做到爱党、护党、为党。”这似乎清楚些，但仍有争议，怎样才算爱护？批评中央或更有助于维护中央权威呢！<br><img src="http://ww1.sinaimg.cn/large/48866320jw1f16t545r0xj20m80citaa.jpg"></p>
+<p>
+	<small> ============== 5小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3944915153593961" target="freeweibo-mirror">她真名叫“刘津宇”，辽宁营口人。风口浪尖后，改了微博名。这些…</a>
+</h2>
+<p>她真名叫“刘津宇”，辽宁营口人。风口浪尖后，改了微博名。这些都是根据公开信息而来的。图转。她微博永久链接->http://weibo.com/u/1837939021<br><img src="http://ww3.sinaimg.cn/large/0068FKKNgw1f16sb5salvj30ku112wi1.jpg"></p>
 <p>
 	<small> ============== 5小时前</small>
 </p><h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3944864804457396" target="freeweibo-mirror">SPAM #微博记微#被删除的博（昨晚看，只是转发的博没有了…</a>
 </h2>
 <p>SPAM #微博记微#被删除的博（昨晚看，只是转发的博没有了，现在再看，我的博也被删了。重新发，留存）。<br><img src="http://ww4.sinaimg.cn/large/44de9a03gw1f16miviylgj20k00yh0vx.jpg"></p>
-<p>
-	<small> ============== 9小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3944863073040669" target="freeweibo-mirror">//@律师文摘://@老王5504595728: 党妈说的你…</a>
-</h2>
-<p>//@律师文摘://@老王5504595728: 党妈说的你别当真</p>
 <p>
 	<small> ============== 9小时前</small>
 </p>
