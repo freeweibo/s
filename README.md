@@ -24,7 +24,7 @@
 </h2>
 <p>共产党说为人民服务，无非是为了糊弄傻逼；敢信这种鬼话的，也只有你这样的花痴；[嘻嘻]</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3944753206543164" target="freeweibo-mirror">SPAM 卧槽尼玛。</a>
 </h2>
@@ -60,7 +60,7 @@
 </h2>
 <p>回复@邱建W:[闭嘴][闭嘴]//@邱建W:您这是妄议啊[doge]//@陶景洲:有时候我也不明白：为啥要删讲习总书记和朱总理访问央视事情的微博啊？<br><br>RE: 被阅读了四十多万次并被转发了三千多次后，我的这个微博终于寿终正寝了...<br><img src="http://ww2.sinaimg.cn/large/9ddb72ebgw1f161l7gpn0j20ku112afh.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3944682067097821" target="freeweibo-mirror">被阅读了四十多万次并被转发了三千多次后，我的这个微博终于寿终…</a>
 </h2>
