@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3944985638086142" target="freeweibo-mirror">SPAM [笑cry] //@张老汉一世:耻辱！</a>
+</h2>
+<p>SPAM [笑cry] //@张老汉一世:耻辱！<br><br>RE: 新华社组织的500人的欢迎队伍<br><img src="http://ww4.sinaimg.cn/large/5eac8cf4jw1f16t7hp02fj20c3141gt7.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3944983830152699" target="freeweibo-mirror">少见多怪，类似场景，现在还在体制内的同学们谁还不是隔三差五地…</a>
 </h2>
 <p>少见多怪，类似场景，现在还在体制内的同学们谁还不是隔三差五地玩嘛，开心着呢 //@tinyfool://@高春辉: //@钱中华://@邵明波:今年已经是21世纪的第16个年头，我们还在玩儿这个！<br><br>RE: 新华社组织的500人的欢迎队伍<br><img src="http://ww4.sinaimg.cn/large/5eac8cf4jw1f16t7hp02fj20c3141gt7.jpg"></p>
@@ -60,7 +66,7 @@
 </h2>
 <p>中国舆论过去一段时间以来，总是遵循追捧着外国人制定的政治正确性，现在，终于由我们自己的老大来确立我们自己的政治正确性。这样的拐点，带路公知当然接受不了。[哈哈]<br><br>RE: 哈哈哈哈哈，里应外合啊[哈哈][哈哈][哈哈][哈哈][哈哈]<br><img src="http://ww4.sinaimg.cn/large/8031f80fgw1f16vu3meuzj20m805fwez.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3944951173690436" target="freeweibo-mirror">//@卡bing_://@潘里个潘潘你个潘://@Hanas…</a>
 </h2>
@@ -126,17 +132,11 @@
 </h2>
 <p>新华社组织的500人的欢迎队伍<br><img src="http://ww4.sinaimg.cn/large/5eac8cf4jw1f16t7hp02fj20c3141gt7.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3944922015496201" target="freeweibo-mirror">【媒体姓氏】说必须姓啥有些费解，姓毛的还有毛人凤呢。政治修辞…</a>
 </h2>
 <p>【媒体姓氏】说必须姓啥有些费解，姓毛的还有毛人凤呢。政治修辞这种风格太模糊。“党的新闻舆论媒体的所有工作，都要体现党的意志、反映党的主张，维护党中央权威、维护党的团结，做到爱党、护党、为党。”这似乎清楚些，但仍有争议，怎样才算爱护？批评中央或更有助于维护中央权威呢！<br><img src="http://ww1.sinaimg.cn/large/48866320jw1f16t545r0xj20m80citaa.jpg"></p>
-<p>
-	<small> ============== 5小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3944915153593961" target="freeweibo-mirror">她真名叫“刘津宇”，辽宁营口人。风口浪尖后，改了微博名。这些…</a>
-</h2>
-<p>她真名叫“刘津宇”，辽宁营口人。风口浪尖后，改了微博名。这些都是根据公开信息而来的。图转。她微博永久链接->http://weibo.com/u/1837939021<br><img src="http://ww3.sinaimg.cn/large/0068FKKNgw1f16sb5salvj30ku112wi1.jpg"></p>
 <p>
 	<small> ============== 6小时前</small>
 </p>
