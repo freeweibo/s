@@ -66,7 +66,7 @@
 </h2>
 <p>SPAM //@吃饭才胖:[嘻嘻]<br><br>RE: #原子漫画#性福的手掌<br><img src="http://ww2.sinaimg.cn/large/3d78f362gw1f16ytby56wj20ku0uawg5.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3944976436291875" target="freeweibo-mirror">//@微笑类星体: 十八大后，不是说出行连路都不封吗？//@…</a>
 </h2>
