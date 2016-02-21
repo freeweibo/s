@@ -108,7 +108,7 @@
 </h2>
 <p>少见多怪，类似场景，现在还在体制内的同学们谁还不是隔三差五地玩嘛，开心着呢 //@tinyfool://@高春辉: //@钱中华://@邵明波:今年已经是21世纪的第16个年头，我们还在玩儿这个！<br><br>RE: 新华社组织的500人的欢迎队伍<br><img src="http://ww4.sinaimg.cn/large/5eac8cf4jw1f16t7hp02fj20c3141gt7.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3944977971608579" target="freeweibo-mirror">SPAM //@吃饭才胖:[嘻嘻]</a>
 </h2>
@@ -120,7 +120,7 @@
 </h2>
 <p>//@微笑类星体: 十八大后，不是说出行连路都不封吗？//@我是伏起: //@光年无极: 倒车，没希望了！<br><br>RE: 新华社组织的500人的欢迎队伍<br><img src="http://ww4.sinaimg.cn/large/5eac8cf4jw1f16t7hp02fj20c3141gt7.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3944975290721438" target="freeweibo-mirror">[笑cry]//@潇湘酒徒胜哥://@微笑类星体:十八大后，…</a>
 </h2>
