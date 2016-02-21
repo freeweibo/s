@@ -102,7 +102,7 @@
 </h2>
 <p>少见多怪，类似场景，现在还在体制内的同学们谁还不是隔三差五地玩嘛，开心着呢 //@tinyfool://@高春辉: //@钱中华://@邵明波:今年已经是21世纪的第16个年头，我们还在玩儿这个！<br><br>RE: 新华社组织的500人的欢迎队伍<br><img src="http://ww4.sinaimg.cn/large/5eac8cf4jw1f16t7hp02fj20c3141gt7.jpg"></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3944977971608579" target="freeweibo-mirror">SPAM //@吃饭才胖:[嘻嘻]</a>
 </h2>
