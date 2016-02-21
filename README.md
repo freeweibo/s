@@ -90,7 +90,7 @@
 </h2>
 <p>中国舆论过去一段时间以来，总是遵循追捧着外国人制定的政治正确性，现在，终于由我们自己的老大来确立我们自己的政治正确性。这样的拐点，带路公知当然接受不了。[哈哈]<br><br>RE: 哈哈哈哈哈，里应外合啊[哈哈][哈哈][哈哈][哈哈][哈哈]<br><img src="http://ww4.sinaimg.cn/large/8031f80fgw1f16vu3meuzj20m805fwez.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3944951173690436" target="freeweibo-mirror">//@卡bing_://@潘里个潘潘你个潘://@Hanas…</a>
 </h2>
