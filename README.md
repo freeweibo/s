@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3944983830152699" target="freeweibo-mirror">少见多怪，类似场景，现在还在体制内的同学们谁还不是隔三差五地…</a>
+</h2>
+<p>少见多怪，类似场景，现在还在体制内的同学们谁还不是隔三差五地玩嘛，开心着呢 //@tinyfool://@高春辉: //@钱中华://@邵明波:今年已经是21世纪的第16个年头，我们还在玩儿这个！<br><br>RE: 新华社组织的500人的欢迎队伍<br><img src="http://ww4.sinaimg.cn/large/5eac8cf4jw1f16t7hp02fj20c3141gt7.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3944968274122076" target="freeweibo-mirror">SPAM 【邪性不改】习总书记刚刚讲了一连串“讲导向”要求，…</a>
 </h2>
 <p>SPAM 【邪性不改】习总书记刚刚讲了一连串“讲导向”要求，它就在第一版给他来这么一个“导向”。——第一版能这么个排版，是临时工干的吗？<br><img src="http://ww2.sinaimg.cn/large/5d7227b8gw1f16yboef79j20j60pkaf7.jpg"></p>
@@ -102,7 +108,7 @@
 </h2>
 <p>//@崔小平律师://@陶景洲:艺术的魅力。 //@作家金槿姬V:[怒] //@原子漫画:[doge]//@梁振亚南方: 转发微博<br><br>RE: @原子漫画：接受检阅<br><img src="http://ww3.sinaimg.cn/large/c330bbcagw1f1655znzxrj20m816uju8.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3944890091658009" target="freeweibo-mirror">艺术的魅力。 //@作家金槿姬V:[怒] //@原子漫画:[…</a>
 </h2>
@@ -133,12 +139,6 @@
 <p>//@律师文摘://@老王5504595728: 党妈说的你别当真</p>
 <p>
 	<small> ============== 9小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3944826846129141" target="freeweibo-mirror">『從維穩看經濟崩潰』「2015年國防預算9114億元，『維穩…</a>
-</h2>
-<p>『從維穩看經濟崩潰』「2015年國防預算9114億元，『維穩』經費8899億元，『今年的維穩費首次比軍費少了』……」 ——「走X家新聞發言人」傅瑩<br><img src="http://ww3.sinaimg.cn/large/006cZrz9jw1f16i7t158hj30c80c875o.jpg"></p>
-<p>
-	<small> ============== 11小时前</small>
 </p>
 <table>
     <tr>
