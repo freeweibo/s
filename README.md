@@ -80,6 +80,12 @@
 <p>
 	<small> ============== 5小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3944826846129141" target="freeweibo-mirror">『從維穩看經濟崩潰』「2015年國防預算9114億元，『維穩…</a>
+</h2>
+<p>『從維穩看經濟崩潰』「2015年國防預算9114億元，『維穩』經費8899億元，『今年的維穩費首次比軍費少了』……」 ——「走X家新聞發言人」傅瑩<br><img src="http://ww3.sinaimg.cn/large/006cZrz9jw1f16i7t158hj30c80c875o.jpg"></p>
+<p>
+	<small> ============== 7小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3944800925714212" target="freeweibo-mirror">共产党说为人民服务，无非是为了糊弄傻逼；敢信这种鬼话的，也只…</a>
 </h2>
 <p>共产党说为人民服务，无非是为了糊弄傻逼；敢信这种鬼话的，也只有你这样的花痴；[嘻嘻]</p>
@@ -110,6 +116,12 @@
 <p>
 	<small> ============== 1天前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3944727982437996" target="freeweibo-mirror">咳咳，@JINY__ 真替你捏把汗，你那篇「大大的手肉乎乎的…</a>
+</h2>
+<p>咳咳，@JINY__ 真替你捏把汗，你那篇「大大的手肉乎乎的，很溫暖」的微博要是讓彭嬤嬤看見了……你可就真的弄明白什麼叫身不如死！<br><img src="http://ww1.sinaimg.cn/large/006cZrz9jw1f166uumt6qj30c80lqtaz.jpg"></p>
+<p>
+	<small> ============== 1天前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3944722127297920" target="freeweibo-mirror">文革停止过吗？还好意思嘲笑金三胖吗？这下知道什么是贱人了吧？…</a>
 </h2>
 <p>文革停止过吗？还好意思嘲笑金三胖吗？这下知道什么是贱人了吧？她金大大万一手淫没洗手她晚上自摸你说要是怀孕了可咋整啊！[哈哈] 我在#北京市# http://t.cn/R2Wx66N<br><img src="http://ww1.sinaimg.cn/large/006lT03Qjw1f1666u4b4kj30k00zkgt4.jpg"></p>
@@ -125,18 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3944713176160377" target="freeweibo-mirror">//@紫色偶然520: 笔杆子也可以推翻政权、破坏中华民族复…</a>
 </h2>
 <p>//@紫色偶然520: 笔杆子也可以推翻政权、破坏中华民族复兴大业，也可以杀人于无形。//@一泓清泉e:要相抓好笔杆子 不清除体制婊尤其是文化宣传界的体制婊 白扯[doge]<br><br>RE: 首先抓枪杆子，然后抓笔杆子，没错，这两杆子最重要。但好像笔杆子比枪杆子还难抓得多。2013年819讲话就显示非常在意这第二杆子，后来不断抓，貌似就是抓不住，这2016年春节刚过完就又去抓了，要害部门全去了，不知成效如何。貌似笔杆子比枪杆子更能耍人，所以不好抓</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3944712949676451" target="freeweibo-mirror">//@张建朋: 在场高级领导丁XX是关根吗 //@君无忌13…</a>
-</h2>
-<p>//@张建朋: 在场高级领导丁XX是关根吗 //@君无忌139:要改正，要改正到党的喉舌这个基本观点上来。//@一泓清泉e: 资本的喉舌<br><br>RE: 微信群里都拿这两张照片做对比呢。你还别说，朱相爷就是会说话。他跟温相爷是继紫阳真人之后最会说话的党和国家领导人<br><img src="http://ww3.sinaimg.cn/large/53a7ac51jw1f156gw25yxj20d50ewgno.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3944687868041209" target="freeweibo-mirror">回复@邱建W:[闭嘴][闭嘴]//@邱建W:您这是妄议啊[d…</a>
-</h2>
-<p>回复@邱建W:[闭嘴][闭嘴]//@邱建W:您这是妄议啊[doge]//@陶景洲:有时候我也不明白：为啥要删讲习总书记和朱总理访问央视事情的微博啊？<br><br>RE: 被阅读了四十多万次并被转发了三千多次后，我的这个微博终于寿终正寝了...<br><img src="http://ww2.sinaimg.cn/large/9ddb72ebgw1f161l7gpn0j20ku112afh.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
