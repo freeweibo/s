@@ -30,11 +30,23 @@
 </h2>
 <p>少见多怪，类似场景，现在还在体制内的同学们谁还不是隔三差五地玩嘛，开心着呢 //@tinyfool://@高春辉: //@钱中华://@邵明波:今年已经是21世纪的第16个年头，我们还在玩儿这个！<br><br>RE: 新华社组织的500人的欢迎队伍<br><img src="http://ww4.sinaimg.cn/large/5eac8cf4jw1f16t7hp02fj20c3141gt7.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3944977971608579" target="freeweibo-mirror">SPAM //@吃饭才胖:[嘻嘻]</a>
 </h2>
 <p>SPAM //@吃饭才胖:[嘻嘻]<br><br>RE: #原子漫画#性福的手掌<br><img src="http://ww2.sinaimg.cn/large/3d78f362gw1f16ytby56wj20ku0uawg5.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3944976436291875" target="freeweibo-mirror">//@微笑类星体: 十八大后，不是说出行连路都不封吗？//@…</a>
+</h2>
+<p>//@微笑类星体: 十八大后，不是说出行连路都不封吗？//@我是伏起: //@光年无极: 倒车，没希望了！<br><br>RE: 新华社组织的500人的欢迎队伍<br><img src="http://ww4.sinaimg.cn/large/5eac8cf4jw1f16t7hp02fj20c3141gt7.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3944975290721438" target="freeweibo-mirror">[笑cry]//@潇湘酒徒胜哥://@微笑类星体:十八大后，…</a>
+</h2>
+<p>[笑cry]//@潇湘酒徒胜哥://@微笑类星体:十八大后，不是说出行连路都不封吗？//@我是伏起: //@光年无极: 倒车，没希望了！<br><br>RE: 新华社组织的500人的欢迎队伍<br><img src="http://ww4.sinaimg.cn/large/5eac8cf4jw1f16t7hp02fj20c3141gt7.jpg"></p>
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
@@ -60,7 +72,7 @@
 </h2>
 <p>SPAM 【邪性不改】习总书记刚刚讲了一连串“讲导向”要求，它就在第一版给他来这么一个“导向”。——第一版能这么个排版，是临时工干的吗？<br><img src="http://ww2.sinaimg.cn/large/5d7227b8gw1f16yboef79j20j60pkaf7.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3944952218053317" target="freeweibo-mirror">中国舆论过去一段时间以来，总是遵循追捧着外国人制定的政治正确…</a>
 </h2>
@@ -92,11 +104,17 @@
 <p>
 	<small> ============== 4小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3944941888207831" target="freeweibo-mirror">SPAM [挖鼻]//@内个胖桔子:心里的辫子剪不掉了</a>
+</h2>
+<p>SPAM [挖鼻]//@内个胖桔子:心里的辫子剪不掉了</p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3944938557318361" target="freeweibo-mirror">SPAM //@罗昌平: //@幽壹:</a>
 </h2>
 <p>SPAM //@罗昌平: //@幽壹:</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3944932026355308" target="freeweibo-mirror">小賀不是民主党派成员，据说是中共党员，还是“教授”。从他的系…</a>
 </h2>
@@ -121,24 +139,6 @@
 <p>//@XB-188:罗某：坚守意识形态上甘岭……我们必须把意识形态的领导权、管理权、话语权牢牢掌握在手中！！  呵呵呵[微笑]<br><br>RE: 【媒体姓氏】说必须姓啥有些费解，姓毛的还有毛人凤呢。政治修辞这种风格太模糊。“党的新闻舆论媒体的所有工作，都要体现党的意志、反映党的主张，维护党中央权威、维护党的团结，做到爱党、护党、为党。”这似乎清楚些，但仍有争议，怎样才算爱护？批评中央或更有助于维护中央权威呢！<br><img src="http://ww1.sinaimg.cn/large/48866320jw1f16t545r0xj20m80citaa.jpg"></p>
 <p>
 	<small> ============== 5小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3944925441332303" target="freeweibo-mirror">杨海鹏说“:在包说话算数前，媒体是绝对不能放的，所以一切正常…</a>
-</h2>
-<p>杨海鹏说“:在包说话算数前，媒体是绝对不能放的，所以一切正常。”，所以即使都这样了，有些混入自由派阵营的内奸，照样大言不惭的打掩护，我不怕五毛，我担心混入自由派内搅混水的奸人<br><br>RE: 【媒体姓氏】说必须姓啥有些费解，姓毛的还有毛人凤呢。政治修辞这种风格太模糊。“党的新闻舆论媒体的所有工作，都要体现党的意志、反映党的主张，维护党中央权威、维护党的团结，做到爱党、护党、为党。”这似乎清楚些，但仍有争议，怎样才算爱护？批评中央或更有助于维护中央权威呢！<br><img src="http://ww1.sinaimg.cn/large/48866320jw1f16t545r0xj20m80citaa.jpg"></p>
-<p>
-	<small> ============== 5小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3944922547220342" target="freeweibo-mirror">新华社组织的500人的欢迎队伍</a>
-</h2>
-<p>新华社组织的500人的欢迎队伍<br><img src="http://ww4.sinaimg.cn/large/5eac8cf4jw1f16t7hp02fj20c3141gt7.jpg"></p>
-<p>
-	<small> ============== 6小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3944922015496201" target="freeweibo-mirror">【媒体姓氏】说必须姓啥有些费解，姓毛的还有毛人凤呢。政治修辞…</a>
-</h2>
-<p>【媒体姓氏】说必须姓啥有些费解，姓毛的还有毛人凤呢。政治修辞这种风格太模糊。“党的新闻舆论媒体的所有工作，都要体现党的意志、反映党的主张，维护党中央权威、维护党的团结，做到爱党、护党、为党。”这似乎清楚些，但仍有争议，怎样才算爱护？批评中央或更有助于维护中央权威呢！<br><img src="http://ww1.sinaimg.cn/large/48866320jw1f16t545r0xj20m80citaa.jpg"></p>
-<p>
-	<small> ============== 6小时前</small>
 </p>
 <table>
     <tr>
