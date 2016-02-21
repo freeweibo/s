@@ -32,6 +32,12 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3944903740828620" target="freeweibo-mirror">//@如东维权王峰: //@三俗大哥: //@溜溜的木: /…</a>
+</h2>
+<p>//@如东维权王峰: //@三俗大哥: //@溜溜的木: //@何时会天明18:看来不只国内敌人多，国外敌人更多[阴险]//@这个冬季特别冷:首次，呵呵<br><br>RE: 『從維穩看經濟崩潰』「2015年國防預算9114億元，『維穩』經費8899億元，『今年的維穩費首次比軍費少了』……」 ——「走X家新聞發言人」傅瑩<br><img src="http://ww3.sinaimg.cn/large/006cZrz9jw1f16i7t158hj30c80c875o.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3944899658750179" target="freeweibo-mirror">SPAM 参政党  cān zhèng dǎng 在中国，指…</a>
 </h2>
 <p>SPAM 参政党  cān zhèng dǎng 在中国，指接受中国共产党的领导、与中国共产党通力合作、共同致力于社会主义事业的各民主党派。是执政党中国共产党的亲密友党。它们参政的基本点是：参加国家政权，参与国家大政方针和国家领导人选的协商，参与国家事务的管理，参与国家方针、政策、法律、法规的制定执行。</p>
@@ -72,7 +78,7 @@
 </h2>
 <p>//@律师文摘://@老王5504595728: 党妈说的你别当真</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3944800925714212" target="freeweibo-mirror">共产党说为人民服务，无非是为了糊弄傻逼；敢信这种鬼话的，也只…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3944687868041209" target="freeweibo-mirror">回复@邱建W:[闭嘴][闭嘴]//@邱建W:您这是妄议啊[d…</a>
 </h2>
 <p>回复@邱建W:[闭嘴][闭嘴]//@邱建W:您这是妄议啊[doge]//@陶景洲:有时候我也不明白：为啥要删讲习总书记和朱总理访问央视事情的微博啊？<br><br>RE: 被阅读了四十多万次并被转发了三千多次后，我的这个微博终于寿终正寝了...<br><img src="http://ww2.sinaimg.cn/large/9ddb72ebgw1f161l7gpn0j20ku112afh.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3944682067097821" target="freeweibo-mirror">被阅读了四十多万次并被转发了三千多次后，我的这个微博终于寿终…</a>
-</h2>
-<p>被阅读了四十多万次并被转发了三千多次后，我的这个微博终于寿终正寝了...<br><img src="http://ww2.sinaimg.cn/large/9ddb72ebgw1f161l7gpn0j20ku112afh.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
