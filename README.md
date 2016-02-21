@@ -42,7 +42,7 @@
 </h2>
 <p>//@文然0880://@米家那个山:转发微博<br><br>RE: 我收藏了八百万件文革旧物，如果再来一次，全部可以排上用场[汗][汗][汗]<br><img src="http://ww3.sinaimg.cn/large/63eb5b8dgw1f15rsiqjtgj20zq0qogvi.jpg"></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3944713176160377" target="freeweibo-mirror">//@紫色偶然520: 笔杆子也可以推翻政权、破坏中华民族复…</a>
 </h2>
