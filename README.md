@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3944928692614597" target="freeweibo-mirror">//@筑景园: //@ICO刘开明: 转发微博</a>
+</h2>
+<p>//@筑景园: //@ICO刘开明: 转发微博<br><br>RE: 【媒体姓氏】说必须姓啥有些费解，姓毛的还有毛人凤呢。政治修辞这种风格太模糊。“党的新闻舆论媒体的所有工作，都要体现党的意志、反映党的主张，维护党中央权威、维护党的团结，做到爱党、护党、为党。”这似乎清楚些，但仍有争议，怎样才算爱护？批评中央或更有助于维护中央权威呢！<br><img src="http://ww1.sinaimg.cn/large/48866320jw1f16t545r0xj20m80citaa.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3944909050336884" target="freeweibo-mirror">SPAM [偷笑]谁呢？//@V实谈：最后那女胖子是谁？</a>
 </h2>
 <p>SPAM [偷笑]谁呢？//@V实谈：最后那女胖子是谁？</p>
@@ -30,7 +36,7 @@
 </h2>
 <p>SPAM 普及政协制度常识[good]//@陈业文新大都: 任总想建立新的参政党？共产新党？[笑cry]</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3944903740828620" target="freeweibo-mirror">//@如东维权王峰: //@三俗大哥: //@溜溜的木: /…</a>
 </h2>
@@ -90,7 +96,7 @@
 </h2>
 <p>共产党说为人民服务，无非是为了糊弄傻逼；敢信这种鬼话的，也只有你这样的花痴；[嘻嘻]</p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3944774937336167" target="freeweibo-mirror">【 网文 】  新 H 社 春节迎送大大未果</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3944713222351885" target="freeweibo-mirror">@原子漫画：接受检阅</a>
 </h2>
 <p>@原子漫画：接受检阅<br><img src="http://ww3.sinaimg.cn/large/c330bbcagw1f1655znzxrj20m816uju8.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3944713176160377" target="freeweibo-mirror">//@紫色偶然520: 笔杆子也可以推翻政权、破坏中华民族复…</a>
-</h2>
-<p>//@紫色偶然520: 笔杆子也可以推翻政权、破坏中华民族复兴大业，也可以杀人于无形。//@一泓清泉e:要相抓好笔杆子 不清除体制婊尤其是文化宣传界的体制婊 白扯[doge]<br><br>RE: 首先抓枪杆子，然后抓笔杆子，没错，这两杆子最重要。但好像笔杆子比枪杆子还难抓得多。2013年819讲话就显示非常在意这第二杆子，后来不断抓，貌似就是抓不住，这2016年春节刚过完就又去抓了，要害部门全去了，不知成效如何。貌似笔杆子比枪杆子更能耍人，所以不好抓</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
