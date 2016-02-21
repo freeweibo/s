@@ -78,7 +78,7 @@
 </h2>
 <p>SPAM 发表了博文《历史：你不说实话能死吗？》2011年10月上旬，导演冯小刚发了一条微博：“说两句实话，代价是很大，先是媳妇不让睡觉，苦口婆心央求：看在我和孩子的份上少说两句实话行吗？后是兄长如道明，声色俱http://t.cn/RGSb8gU<br><img src="http://ww2.sinaimg.cn/large/55dde65fjw1f1793uhsbxj209q0aidgs.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3945054692888552" target="freeweibo-mirror">那天，人民军女战士崔静姬（女，23岁）幸福地和最高司令官握了…</a>
 </h2>
@@ -114,7 +114,7 @@
 </h2>
 <p>SPAM //@吃饭才胖:[嘻嘻]<br><br>RE: #原子漫画#性福的手掌<br><img src="http://ww2.sinaimg.cn/large/3d78f362gw1f16ytby56wj20ku0uawg5.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3944976436291875" target="freeweibo-mirror">//@微笑类星体: 十八大后，不是说出行连路都不封吗？//@…</a>
 </h2>
