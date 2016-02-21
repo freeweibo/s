@@ -48,13 +48,13 @@
 </h2>
 <p>[笑cry]//@潇湘酒徒胜哥://@微笑类星体:十八大后，不是说出行连路都不封吗？//@我是伏起: //@光年无极: 倒车，没希望了！<br><br>RE: 新华社组织的500人的欢迎队伍<br><img src="http://ww4.sinaimg.cn/large/5eac8cf4jw1f16t7hp02fj20c3141gt7.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3944974523406726" target="freeweibo-mirror">SPAM 离朝鲜很近!//@邵明波:今年已经是21世纪的第1…</a>
 </h2>
 <p>SPAM 离朝鲜很近!//@邵明波:今年已经是21世纪的第16个年头，我们还在玩儿这个！#听海观潮#<br><br>RE: 新华社组织的500人的欢迎队伍<br><img src="http://ww4.sinaimg.cn/large/5eac8cf4jw1f16t7hp02fj20c3141gt7.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3944971394986596" target="freeweibo-mirror">#原子漫画#性福的手掌</a>
 </h2>
@@ -110,6 +110,12 @@
 <p>
 	<small> ============== 5小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3944941396467732" target="freeweibo-mirror">SPAM 绝大部分中国加油站的秘密是这样婶儿的</a>
+</h2>
+<p>SPAM 绝大部分中国加油站的秘密是这样婶儿的<br><img src="http://ww1.sinaimg.cn/large/4a3ca31ejw1f16vcxyi92j20e80ih75u.jpg"></p>
+<p>
+	<small> ============== 5小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3944938557318361" target="freeweibo-mirror">SPAM //@罗昌平: //@幽壹:</a>
 </h2>
 <p>SPAM //@罗昌平: //@幽壹:</p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3944928692614597" target="freeweibo-mirror">//@筑景园: //@ICO刘开明: 转发微博</a>
 </h2>
 <p>//@筑景园: //@ICO刘开明: 转发微博<br><br>RE: 【媒体姓氏】说必须姓啥有些费解，姓毛的还有毛人凤呢。政治修辞这种风格太模糊。“党的新闻舆论媒体的所有工作，都要体现党的意志、反映党的主张，维护党中央权威、维护党的团结，做到爱党、护党、为党。”这似乎清楚些，但仍有争议，怎样才算爱护？批评中央或更有助于维护中央权威呢！<br><img src="http://ww1.sinaimg.cn/large/48866320jw1f16t545r0xj20m80citaa.jpg"></p>
-<p>
-	<small> ============== 6小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3944925579992492" target="freeweibo-mirror">//@XB-188:罗某：坚守意识形态上甘岭……我们必须把意…</a>
-</h2>
-<p>//@XB-188:罗某：坚守意识形态上甘岭……我们必须把意识形态的领导权、管理权、话语权牢牢掌握在手中！！  呵呵呵[微笑]<br><br>RE: 【媒体姓氏】说必须姓啥有些费解，姓毛的还有毛人凤呢。政治修辞这种风格太模糊。“党的新闻舆论媒体的所有工作，都要体现党的意志、反映党的主张，维护党中央权威、维护党的团结，做到爱党、护党、为党。”这似乎清楚些，但仍有争议，怎样才算爱护？批评中央或更有助于维护中央权威呢！<br><img src="http://ww1.sinaimg.cn/large/48866320jw1f16t545r0xj20m80citaa.jpg"></p>
 <p>
 	<small> ============== 6小时前</small>
 </p>
