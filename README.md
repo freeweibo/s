@@ -44,11 +44,17 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3944925441332303" target="freeweibo-mirror">杨海鹏说“:在包说话算数前，媒体是绝对不能放的，所以一切正常…</a>
+</h2>
+<p>杨海鹏说“:在包说话算数前，媒体是绝对不能放的，所以一切正常。”，所以即使都这样了，有些混入自由派阵营的内奸，照样大言不惭的打掩护，我不怕五毛，我担心混入自由派内搅混水的奸人<br><br>RE: 【媒体姓氏】说必须姓啥有些费解，姓毛的还有毛人凤呢。政治修辞这种风格太模糊。“党的新闻舆论媒体的所有工作，都要体现党的意志、反映党的主张，维护党中央权威、维护党的团结，做到爱党、护党、为党。”这似乎清楚些，但仍有争议，怎样才算爱护？批评中央或更有助于维护中央权威呢！<br><img src="http://ww1.sinaimg.cn/large/48866320jw1f16t545r0xj20m80citaa.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3944922015496201" target="freeweibo-mirror">【媒体姓氏】说必须姓啥有些费解，姓毛的还有毛人凤呢。政治修辞…</a>
 </h2>
 <p>【媒体姓氏】说必须姓啥有些费解，姓毛的还有毛人凤呢。政治修辞这种风格太模糊。“党的新闻舆论媒体的所有工作，都要体现党的意志、反映党的主张，维护党中央权威、维护党的团结，做到爱党、护党、为党。”这似乎清楚些，但仍有争议，怎样才算爱护？批评中央或更有助于维护中央权威呢！<br><img src="http://ww1.sinaimg.cn/large/48866320jw1f16t545r0xj20m80citaa.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3944909050336884" target="freeweibo-mirror">SPAM [偷笑]谁呢？//@V实谈：最后那女胖子是谁？</a>
 </h2>
@@ -60,7 +66,7 @@
 </h2>
 <p>SPAM 普及政协制度常识[good]//@陈业文新大都: 任总想建立新的参政党？共产新党？[笑cry]</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3944903740828620" target="freeweibo-mirror">//@如东维权王峰: //@三俗大哥: //@溜溜的木: /…</a>
 </h2>
@@ -120,7 +126,7 @@
 </h2>
 <p>共产党说为人民服务，无非是为了糊弄傻逼；敢信这种鬼话的，也只有你这样的花痴；[嘻嘻]</p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3944774937336167" target="freeweibo-mirror">【 网文 】  新 H 社 春节迎送大大未果</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3944753206543164" target="freeweibo-mirror">SPAM 卧槽尼玛。</a>
 </h2>
 <p>SPAM 卧槽尼玛。<br><br>RE: 欢迎配文。<br><img src="http://ww1.sinaimg.cn/large/d90f1e6dgw1f169onfi87j20c80c83yt.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3944752615253009" target="freeweibo-mirror">欢迎配文。</a>
-</h2>
-<p>欢迎配文。<br><img src="http://ww1.sinaimg.cn/large/d90f1e6dgw1f169onfi87j20c80c83yt.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
