@@ -42,7 +42,7 @@
 </h2>
 <p>//@微笑类星体: 十八大后，不是说出行连路都不封吗？//@我是伏起: //@光年无极: 倒车，没希望了！<br><br>RE: 新华社组织的500人的欢迎队伍<br><img src="http://ww4.sinaimg.cn/large/5eac8cf4jw1f16t7hp02fj20c3141gt7.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3944975290721438" target="freeweibo-mirror">[笑cry]//@潇湘酒徒胜哥://@微笑类星体:十八大后，…</a>
 </h2>
@@ -96,7 +96,7 @@
 </h2>
 <p>哈哈哈哈哈，里应外合啊[哈哈][哈哈][哈哈][哈哈][哈哈]<br><img src="http://ww4.sinaimg.cn/large/8031f80fgw1f16vu3meuzj20m805fwez.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3944943628115101" target="freeweibo-mirror">//@紫色偶然520: 公知骂的人肯定挺好的。//@鎏光:转…</a>
 </h2>
