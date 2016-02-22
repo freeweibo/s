@@ -24,13 +24,13 @@
 </h2>
 <p>//@彭园v://@有冤说冤:？//@山东临沂孔大华: //@甘肃李建中: //@山东全伟: 共产党啊，狗操的</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3945370125867180" target="freeweibo-mirror">//@清华郭于36华: 这话耐人寻味//@王林的微博客: 转…</a>
 </h2>
 <p>//@清华郭于36华: 这话耐人寻味//@王林的微博客: 转发微博<br><br>RE: 解放一个习惯于被奴役的民族，比奴役一个习惯于自由的民族更难。——孟德斯鸠<br><img src="http://ww4.sinaimg.cn/large/006cWkIWgw1f180q5le1hj30qo0qogpv.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3945369081891977" target="freeweibo-mirror">//@沙漠渔夫809: //@瓦良格号归来:转发微博</a>
 </h2>
@@ -96,7 +96,7 @@
 </h2>
 <p>不用抓，开除党籍，取消退休级别待遇，依法追究故意流失国有资产的罪行，也就行了 //@庄志明律师:[good][鲜花] //@陆弃:把任某抓起来！<br><br>RE: 旗帜鲜明、党媒姓党！不许提意见，不许过底线！『千龙网:谁给了任志强反党的底气 - 新浪移动』http://t.cn/RGSHmPV</p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3945292837019890" target="freeweibo-mirror">一个共产党员宣称“背马列主义骗了十几年”，其实也不用正法，开…</a>
 </h2>
