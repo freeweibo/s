@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3945370125867180" target="freeweibo-mirror">//@清华郭于36华: 这话耐人寻味//@王林的微博客: 转…</a>
+</h2>
+<p>//@清华郭于36华: 这话耐人寻味//@王林的微博客: 转发微博<br><br>RE: 解放一个习惯于被奴役的民族，比奴役一个习惯于自由的民族更难。——孟德斯鸠<br><img src="http://ww4.sinaimg.cn/large/006cWkIWgw1f180q5le1hj30qo0qogpv.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3945358726222328" target="freeweibo-mirror">//@徐昕://@索子曰://@戴建业微博:中国最应该拆除的…</a>
 </h2>
 <p>//@徐昕://@索子曰://@戴建业微博:中国最应该拆除的是互联网的“围墙”，让人民与全世界实现信息和知识共享！<br><br>RE: 【拆墙意见】该拆的不是住宅小区的围墙，而是单位大院的围墙，法院、检察院、政府、的围墙，还有防火墙 http://t.cn/RGSOTyG<br><img src="http://ww4.sinaimg.cn/large/918d47a2jw1f183gqv6c6j20a20dpgn1.jpg"></p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3945054692888552" target="freeweibo-mirror">那天，人民军女战士崔静姬（女，23岁）幸福地和最高司令官握了…</a>
 </h2>
 <p>那天，人民军女战士崔静姬（女，23岁）幸福地和最高司令官握了手。如今，半年过去了，崔静姬仍舍不得洗手，因为周围十几公里，每天都有群众慕名前来和她握手，体会最高司令官的温暖。<br><img src="http://ww4.sinaimg.cn/large/a8ef5277jw1f178cqift7j20hs0me408.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3945046283787547" target="freeweibo-mirror">傻逼也就只能欺负女人了。我也就奇怪了现在的人干嘛稍微有点压力…</a>
-</h2>
-<p>傻逼也就只能欺负女人了。我也就奇怪了现在的人干嘛稍微有点压力就删微博呢？<br><br>RE: @央视新闻《新闻联播》编导刘津宇，辽宁营口人，看来很喜欢旅游和游泳，也很爱穿比基尼，还都是低胸的。不管你胸多大，央视容得下。在央视打工，应胸怀宽广。不必自称奴才，也不必骂人“苍蝇”，对于不友善的言论，也可以有礼有节地回击。<br><img src="http://ww4.sinaimg.cn/large/5ff29ca4jw1f17322i6znj20k00zkwi0.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
