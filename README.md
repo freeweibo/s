@@ -36,7 +36,7 @@
 </h2>
 <p>//@徐昕://@索子曰://@戴建业微博:中国最应该拆除的是互联网的“围墙”，让人民与全世界实现信息和知识共享！<br><br>RE: 【拆墙意见】该拆的不是住宅小区的围墙，而是单位大院的围墙，法院、检察院、政府、的围墙，还有防火墙 http://t.cn/RGSOTyG<br><img src="http://ww4.sinaimg.cn/large/918d47a2jw1f183gqv6c6j20a20dpgn1.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3945357475498899" target="freeweibo-mirror">解读牛逼！//@司马3忌: 今日最佳[good]→_→//@…</a>
 </h2>
@@ -56,6 +56,12 @@
 <p>
 	<small> ============== 5小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3945301499050668" target="freeweibo-mirror">解放一个习惯于被奴役的民族，比奴役一个习惯于自由的民族更难。…</a>
+</h2>
+<p>解放一个习惯于被奴役的民族，比奴役一个习惯于自由的民族更难。——孟德斯鸠<br><img src="http://ww4.sinaimg.cn/large/006cWkIWgw1f180q5le1hj30qo0qogpv.jpg"></p>
+<p>
+	<small> ============== 6小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3945300575409117" target="freeweibo-mirror">打是亲，骂是爱，溜须拍马才是害。[嘻嘻]//@何兵: @任志…</a>
 </h2>
 <p>打是亲，骂是爱，溜须拍马才是害。[嘻嘻]//@何兵: @任志强 的姓就不对，任性。<br><br>RE: 旗帜鲜明、党媒姓党！不许提意见，不许过底线！『千龙网:谁给了任志强反党的底气 - 新浪移动』http://t.cn/RGSHmPV</p>
@@ -73,6 +79,18 @@
 <p>一个共产党员宣称“背马列主义骗了十几年”，其实也不用正法，开除就行了 //@庄志明律师:任的问题可不要异议的问题。 //@夏日海湾:是的，谁有异议就抓谁，就地正法～[挖鼻] //@庄志明律师:[good][鲜花] //@陆弃:把任某抓起来！<br><br>RE: 旗帜鲜明、党媒姓党！不许提意见，不许过底线！『千龙网:谁给了任志强反党的底气 - 新浪移动』http://t.cn/RGSHmPV</p>
 <p>
 	<small> ============== 7小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3945289045757522" target="freeweibo-mirror">【“阶级教育”成果：1971年幼儿园小孩长矛杀美国佬】196…</a>
+</h2>
+<p>【“阶级教育”成果：1971年幼儿园小孩长矛杀美国佬】1963年10月，《人民教育》指出阶级的爱、革命的爱和对领袖的爱绝对要高于亲情和师生、同学之间的爱。一年之后，《人民教育》围绕这次“母爱教育”的讨论发表综述：“同伟大的无产阶级的爱比较起来，母爱只是渺小的，而决不是什么伟大的。”<br><img src="http://ww2.sinaimg.cn/large/9b7ac2e5jw1f17zasbhlqj20q40hfad2.jpg"></p>
+<p>
+	<small> ============== 7小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3945276211448426" target="freeweibo-mirror">最近有不少网友问我去哪了，实话告诉你们，我每天都在苦练大字报…</a>
+</h2>
+<p>最近有不少网友问我去哪了，实话告诉你们，我每天都在苦练大字报，我感觉五千年终于快轮到我上场了，我那个兴奋… 请大家跟我一起来嗨： 打倒贺卫方 ，治国要抓纲；踩扁陈丹青，再当红卫兵！宁要社会主义的草，不要资本主义的苗！主体思想就是好，哪怕三餐都吃草；宇宙真理就是硬，哪怕都成精神病！</p>
+<p>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3945263905249664" target="freeweibo-mirror">旗帜鲜明、党媒姓党！不许提意见，不许过底线！『千龙网:谁给了…</a>
 </h2>
@@ -119,24 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3945066265402117" target="freeweibo-mirror">SPAM 夸女人胸部大，构成性骚扰。她游泳时留影当然穿泳装了…</a>
 </h2>
 <p>SPAM 夸女人胸部大，构成性骚扰。她游泳时留影当然穿泳装了，但你对人家照片评论胸大，就猥琐不堪了。这和人家工作关系吗？删贴吧，别嘴硬傻13了。<br><br>RE: 说某位女士胸大身材好，叫歧视女性吗？这些图片来自刘津宇本人的博客，显然她自己是愿意展示自己的身材和胸部的。这些污言秽语，都是私信发给我的。我又没关评论，有话公开说吧。<br><img src="http://ww2.sinaimg.cn/large/5ff29ca4jw1f178zo5kqpj20qo1bejwx.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3945064792911506" target="freeweibo-mirror">SPAM 这是拍电影呢吧</a>
-</h2>
-<p>SPAM 这是拍电影呢吧</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3945061215277582" target="freeweibo-mirror">SPAM 痘痘，痘印，油性皮肤，粗毛孔的福音来了。纯草药研制…</a>
-</h2>
-<p>SPAM 痘痘，痘印，油性皮肤，粗毛孔的福音来了。纯草药研制，无刺激无副作用。</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3945061102394157" target="freeweibo-mirror">说某位女士胸大身材好，叫歧视女性吗？这些图片来自刘津宇本人的…</a>
-</h2>
-<p>说某位女士胸大身材好，叫歧视女性吗？这些图片来自刘津宇本人的博客，显然她自己是愿意展示自己的身材和胸部的。这些污言秽语，都是私信发给我的。我又没关评论，有话公开说吧。<br><img src="http://ww2.sinaimg.cn/large/5ff29ca4jw1f178zo5kqpj20qo1bejwx.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
