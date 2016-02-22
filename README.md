@@ -84,13 +84,13 @@
 </h2>
 <p>//@彭园v://@有冤说冤:？//@山东临沂孔大华: //@甘肃李建中: //@山东全伟: 共产党啊，狗操的</p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3945370125867180" target="freeweibo-mirror">//@清华郭于36华: 这话耐人寻味//@王林的微博客: 转…</a>
 </h2>
 <p>//@清华郭于36华: 这话耐人寻味//@王林的微博客: 转发微博<br><br>RE: 解放一个习惯于被奴役的民族，比奴役一个习惯于自由的民族更难。——孟德斯鸠<br><img src="http://ww4.sinaimg.cn/large/006cWkIWgw1f180q5le1hj30qo0qogpv.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3945369081891977" target="freeweibo-mirror">//@沙漠渔夫809: //@瓦良格号归来:转发微博</a>
 </h2>
