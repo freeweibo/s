@@ -84,13 +84,13 @@
 </h2>
 <p>那天，人民军女战士崔静姬（女，23岁）幸福地和最高司令官握了手。如今，半年过去了，崔静姬仍舍不得洗手，因为周围十几公里，每天都有群众慕名前来和她握手，体会最高司令官的温暖。<br><img src="http://ww4.sinaimg.cn/large/a8ef5277jw1f178cqift7j20hs0me408.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3945046283787547" target="freeweibo-mirror">傻逼也就只能欺负女人了。我也就奇怪了现在的人干嘛稍微有点压力…</a>
 </h2>
 <p>傻逼也就只能欺负女人了。我也就奇怪了现在的人干嘛稍微有点压力就删微博呢？<br><br>RE: @央视新闻《新闻联播》编导刘津宇，辽宁营口人，看来很喜欢旅游和游泳，也很爱穿比基尼，还都是低胸的。不管你胸多大，央视容得下。在央视打工，应胸怀宽广。不必自称奴才，也不必骂人“苍蝇”，对于不友善的言论，也可以有礼有节地回击。<br><img src="http://ww4.sinaimg.cn/large/5ff29ca4jw1f17322i6znj20k00zkwi0.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3944990319167353" target="freeweibo-mirror">SPAM @洪利律师   新华社组织的500人的欢迎队伍</a>
 </h2>
