@@ -66,7 +66,7 @@
 </h2>
 <p>//@浩正刘臻: [嘻嘻] //@淡墨天涯://@花前一壶酒03: 转发微博<br><br>RE: 袁腾飞老师：中国为啥老改朝换代？ http://t.cn/RGSgibs .</p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3945358726222328" target="freeweibo-mirror">//@徐昕://@索子曰://@戴建业微博:中国最应该拆除的…</a>
 </h2>
@@ -102,7 +102,7 @@
 </h2>
 <p>袁腾飞老师：中国为啥老改朝换代？ http://t.cn/RGSgibs .</p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3945301499050668" target="freeweibo-mirror">解放一个习惯于被奴役的民族，比奴役一个习惯于自由的民族更难。…</a>
 </h2>
