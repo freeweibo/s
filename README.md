@@ -24,7 +24,7 @@
 </h2>
 <p>//@清华郭于36华: 这话耐人寻味//@王林的微博客: 转发微博<br><br>RE: 解放一个习惯于被奴役的民族，比奴役一个习惯于自由的民族更难。——孟德斯鸠<br><img src="http://ww4.sinaimg.cn/large/006cWkIWgw1f180q5le1hj30qo0qogpv.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3945369081891977" target="freeweibo-mirror">//@沙漠渔夫809: //@瓦良格号归来:转发微博</a>
 </h2>
@@ -90,7 +90,7 @@
 </h2>
 <p>不用抓，开除党籍，取消退休级别待遇，依法追究故意流失国有资产的罪行，也就行了 //@庄志明律师:[good][鲜花] //@陆弃:把任某抓起来！<br><br>RE: 旗帜鲜明、党媒姓党！不许提意见，不许过底线！『千龙网:谁给了任志强反党的底气 - 新浪移动』http://t.cn/RGSHmPV</p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3945292837019890" target="freeweibo-mirror">一个共产党员宣称“背马列主义骗了十几年”，其实也不用正法，开…</a>
 </h2>
@@ -114,7 +114,7 @@
 </h2>
 <p>旗帜鲜明、党媒姓党！不许提意见，不许过底线！『千龙网:谁给了任志强反党的底气 - 新浪移动』http://t.cn/RGSHmPV</p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3945228119365472" target="freeweibo-mirror">#濮阳身边事# 对燃放烟花炮竹的行为，说一句粗话：作死。空气…</a>
 </h2>
