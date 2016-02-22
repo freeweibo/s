@@ -42,7 +42,7 @@
 </h2>
 <p>//@浩正刘臻: [嘻嘻] //@淡墨天涯://@花前一壶酒03: 转发微博<br><br>RE: 袁腾飞老师：中国为啥老改朝换代？ http://t.cn/RGSgibs .</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3945358726222328" target="freeweibo-mirror">//@徐昕://@索子曰://@戴建业微博:中国最应该拆除的…</a>
 </h2>
@@ -78,7 +78,7 @@
 </h2>
 <p>袁腾飞老师：中国为啥老改朝换代？ http://t.cn/RGSgibs .</p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3945301499050668" target="freeweibo-mirror">解放一个习惯于被奴役的民族，比奴役一个习惯于自由的民族更难。…</a>
 </h2>
@@ -108,7 +108,7 @@
 </h2>
 <p>【“阶级教育”成果：1971年幼儿园小孩长矛杀美国佬】1963年10月，《人民教育》指出阶级的爱、革命的爱和对领袖的爱绝对要高于亲情和师生、同学之间的爱。一年之后，《人民教育》围绕这次“母爱教育”的讨论发表综述：“同伟大的无产阶级的爱比较起来，母爱只是渺小的，而决不是什么伟大的。”<br><img src="http://ww2.sinaimg.cn/large/9b7ac2e5jw1f17zasbhlqj20q40hfad2.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3945276211448426" target="freeweibo-mirror">最近有不少网友问我去哪了，实话告诉你们，我每天都在苦练大字报…</a>
 </h2>
