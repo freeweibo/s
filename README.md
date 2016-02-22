@@ -54,7 +54,7 @@
 </h2>
 <p>//@徐昕://@索子曰://@戴建业微博:中国最应该拆除的是互联网的“围墙”，让人民与全世界实现信息和知识共享！<br><br>RE: 【拆墙意见】该拆的不是住宅小区的围墙，而是单位大院的围墙，法院、检察院、政府、的围墙，还有防火墙 http://t.cn/RGSOTyG<br><img src="http://ww4.sinaimg.cn/large/918d47a2jw1f183gqv6c6j20a20dpgn1.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3945357475498899" target="freeweibo-mirror">解读牛逼！//@司马3忌: 今日最佳[good]→_→//@…</a>
 </h2>
