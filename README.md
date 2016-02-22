@@ -20,6 +20,18 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3945294179104261" target="freeweibo-mirror">不用抓，开除党籍，取消退休级别待遇，依法追究故意流失国有资产…</a>
+</h2>
+<p>不用抓，开除党籍，取消退休级别待遇，依法追究故意流失国有资产的罪行，也就行了 //@庄志明律师:[good][鲜花] //@陆弃:把任某抓起来！<br><br>RE: 旗帜鲜明、党媒姓党！不许提意见，不许过底线！『千龙网:谁给了任志强反党的底气 - 新浪移动』http://t.cn/RGSHmPV</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3945292837019890" target="freeweibo-mirror">一个共产党员宣称“背马列主义骗了十几年”，其实也不用正法，开…</a>
+</h2>
+<p>一个共产党员宣称“背马列主义骗了十几年”，其实也不用正法，开除就行了 //@庄志明律师:任的问题可不要异议的问题。 //@夏日海湾:是的，谁有异议就抓谁，就地正法～[挖鼻] //@庄志明律师:[good][鲜花] //@陆弃:把任某抓起来！<br><br>RE: 旗帜鲜明、党媒姓党！不许提意见，不许过底线！『千龙网:谁给了任志强反党的底气 - 新浪移动』http://t.cn/RGSHmPV</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3945228119365472" target="freeweibo-mirror">#濮阳身边事# 对燃放烟花炮竹的行为，说一句粗话：作死。空气…</a>
 </h2>
 <p>#濮阳身边事# 对燃放烟花炮竹的行为，说一句粗话：作死。空气刚好不两天，就TM这么作践，祸己殃人！俺是挺讲究文明的，气急了也挡不住骂人。<br><img src="http://ww3.sinaimg.cn/large/7ca637f5jw1f17s3zz8v6j20qo1be4da.jpg"></p>
@@ -125,18 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3944976436291875" target="freeweibo-mirror">//@微笑类星体: 十八大后，不是说出行连路都不封吗？//@…</a>
 </h2>
 <p>//@微笑类星体: 十八大后，不是说出行连路都不封吗？//@我是伏起: //@光年无极: 倒车，没希望了！<br><br>RE: 新华社组织的500人的欢迎队伍<br><img src="http://ww4.sinaimg.cn/large/5eac8cf4jw1f16t7hp02fj20c3141gt7.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3944975290721438" target="freeweibo-mirror">[笑cry]//@潇湘酒徒胜哥://@微笑类星体:十八大后，…</a>
-</h2>
-<p>[笑cry]//@潇湘酒徒胜哥://@微笑类星体:十八大后，不是说出行连路都不封吗？//@我是伏起: //@光年无极: 倒车，没希望了！<br><br>RE: 新华社组织的500人的欢迎队伍<br><img src="http://ww4.sinaimg.cn/large/5eac8cf4jw1f16t7hp02fj20c3141gt7.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3944974523406726" target="freeweibo-mirror">SPAM 离朝鲜很近!//@邵明波:今年已经是21世纪的第1…</a>
-</h2>
-<p>SPAM 离朝鲜很近!//@邵明波:今年已经是21世纪的第16个年头，我们还在玩儿这个！#听海观潮#<br><br>RE: 新华社组织的500人的欢迎队伍<br><img src="http://ww4.sinaimg.cn/large/5eac8cf4jw1f16t7hp02fj20c3141gt7.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
