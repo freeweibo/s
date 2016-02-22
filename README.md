@@ -66,13 +66,13 @@
 </h2>
 <p>SPAM 痘痘，痘印，油性皮肤，粗毛孔的福音来了。纯草药研制，无刺激无副作用。</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3945061102394157" target="freeweibo-mirror">说某位女士胸大身材好，叫歧视女性吗？这些图片来自刘津宇本人的…</a>
 </h2>
 <p>说某位女士胸大身材好，叫歧视女性吗？这些图片来自刘津宇本人的博客，显然她自己是愿意展示自己的身材和胸部的。这些污言秽语，都是私信发给我的。我又没关评论，有话公开说吧。<br><img src="http://ww2.sinaimg.cn/large/5ff29ca4jw1f178zo5kqpj20qo1bejwx.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3945060980700771" target="freeweibo-mirror">SPAM 发表了博文《历史：你不说实话能死吗？》2011年1…</a>
 </h2>
