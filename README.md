@@ -20,6 +20,18 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3945358726222328" target="freeweibo-mirror">//@徐昕://@索子曰://@戴建业微博:中国最应该拆除的…</a>
+</h2>
+<p>//@徐昕://@索子曰://@戴建业微博:中国最应该拆除的是互联网的“围墙”，让人民与全世界实现信息和知识共享！<br><br>RE: 【拆墙意见】该拆的不是住宅小区的围墙，而是单位大院的围墙，法院、检察院、政府、的围墙，还有防火墙 http://t.cn/RGSOTyG<br><img src="http://ww4.sinaimg.cn/large/918d47a2jw1f183gqv6c6j20a20dpgn1.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3945357475498899" target="freeweibo-mirror">解读牛逼！//@司马3忌: 今日最佳[good]→_→//@…</a>
+</h2>
+<p>解读牛逼！//@司马3忌: 今日最佳[good]→_→//@馨悦谭: *华生：一个媒体从业者在网络上自由的表达了对元首的敬意，然后遭到海量的谩骂和侮辱，真是匪夷所思。*福尔摩斯：人们注意到网络系统管理的高官并未出现在元首陪同名单，可以从不同角度解读，比如......</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3945300575409117" target="freeweibo-mirror">打是亲，骂是爱，溜须拍马才是害。[嘻嘻]//@何兵: @任志…</a>
 </h2>
 <p>打是亲，骂是爱，溜须拍马才是害。[嘻嘻]//@何兵: @任志强 的姓就不对，任性。<br><br>RE: 旗帜鲜明、党媒姓党！不许提意见，不许过底线！『千龙网:谁给了任志强反党的底气 - 新浪移动』http://t.cn/RGSHmPV</p>
@@ -125,18 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3944990319167353" target="freeweibo-mirror">SPAM @洪利律师   新华社组织的500人的欢迎队伍</a>
 </h2>
 <p>SPAM @洪利律师   新华社组织的500人的欢迎队伍<br><img src="http://ww3.sinaimg.cn/large/8603d4cfgw1f170z9qi0oj20c314145h.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3944985638086142" target="freeweibo-mirror">SPAM [笑cry] //@张老汉一世:耻辱！</a>
-</h2>
-<p>SPAM [笑cry] //@张老汉一世:耻辱！<br><br>RE: 新华社组织的500人的欢迎队伍<br><img src="http://ww4.sinaimg.cn/large/5eac8cf4jw1f16t7hp02fj20c3141gt7.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3944983830152699" target="freeweibo-mirror">少见多怪，类似场景，现在还在体制内的同学们谁还不是隔三差五地…</a>
-</h2>
-<p>少见多怪，类似场景，现在还在体制内的同学们谁还不是隔三差五地玩嘛，开心着呢 //@tinyfool://@高春辉: //@钱中华://@邵明波:今年已经是21世纪的第16个年头，我们还在玩儿这个！<br><br>RE: 新华社组织的500人的欢迎队伍<br><img src="http://ww4.sinaimg.cn/large/5eac8cf4jw1f16t7hp02fj20c3141gt7.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
