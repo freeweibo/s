@@ -68,6 +68,12 @@
 <p>
 	<small> ============== 5小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3945319706241350" target="freeweibo-mirror">袁腾飞老师：中国为啥老改朝换代？ http://t.cn/R…</a>
+</h2>
+<p>袁腾飞老师：中国为啥老改朝换代？ http://t.cn/RGSgibs .</p>
+<p>
+	<small> ============== 5小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3945301499050668" target="freeweibo-mirror">解放一个习惯于被奴役的民族，比奴役一个习惯于自由的民族更难。…</a>
 </h2>
 <p>解放一个习惯于被奴役的民族，比奴役一个习惯于自由的民族更难。——孟德斯鸠<br><img src="http://ww4.sinaimg.cn/large/006cWkIWgw1f180q5le1hj30qo0qogpv.jpg"></p>
@@ -114,7 +120,7 @@
 </h2>
 <p>#濮阳身边事# 对燃放烟花炮竹的行为，说一句粗话：作死。空气刚好不两天，就TM这么作践，祸己殃人！俺是挺讲究文明的，气急了也挡不住骂人。<br><img src="http://ww3.sinaimg.cn/large/7ca637f5jw1f17s3zz8v6j20qo1be4da.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3945122724646404" target="freeweibo-mirror">归根到底，公知姓党//@MaxGoneMad: A.一个党卫…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3945082539536384" target="freeweibo-mirror">央视跟平壤的优越感还真是一个模子刻出来的，握着金三胖的手和握…</a>
 </h2>
 <p>央视跟平壤的优越感还真是一个模子刻出来的，握着金三胖的手和握着习大大的手一样激动泪目。也是奇了怪了，有皇族存在的国家对政府领导人都比较冷静，没有皇族的国家把政府领导人当皇族膜拜，穷怕了都想搂着权力的龙根升天。//@weixiaoping的空间://@库雪明:转发微博<br><br>RE: @央视新闻《新闻联播》编导刘津宇，辽宁营口人，看来很喜欢旅游和游泳，也很爱穿比基尼，还都是低胸的。不管你胸多大，央视容得下。在央视打工，应胸怀宽广。不必自称奴才，也不必骂人“苍蝇”，对于不友善的言论，也可以有礼有节地回击。<br><img src="http://ww4.sinaimg.cn/large/5ff29ca4jw1f17322i6znj20k00zkwi0.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3945067322196241" target="freeweibo-mirror">[哈哈]臭了吧！ //@彭园v: //@暴躁船長:幸亏没摸奶…</a>
-</h2>
-<p>[哈哈]臭了吧！ //@彭园v: //@暴躁船長:幸亏没摸奶[doge][doge]</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
