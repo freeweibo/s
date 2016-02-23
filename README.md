@@ -24,7 +24,7 @@
 </h2>
 <p>SPAM 照现在的势头，有些担心，宪法的一些条款会不会也被修改了<br><br>RE: 【不想说什么】请有关部门和个人对照我国宪法，主要看第二、三十五、四十一条，检讨一下自己的言行。<br><img src="http://ww1.sinaimg.cn/large/48866320jw1f187wf1p60j20hs0hs0u7.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3945657784387533" target="freeweibo-mirror">陈大律威武啊，跟轮子、美国之音一个腔调哦~[阴险] http…</a>
 </h2>
