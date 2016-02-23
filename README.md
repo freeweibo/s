@@ -24,7 +24,7 @@
 </h2>
 <p>SPAM 照现在的势头，有些担心，宪法的一些条款会不会也被修改了<br><br>RE: 【不想说什么】请有关部门和个人对照我国宪法，主要看第二、三十五、四十一条，检讨一下自己的言行。<br><img src="http://ww1.sinaimg.cn/large/48866320jw1f187wf1p60j20hs0hs0u7.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3945662615239686" target="freeweibo-mirror">SPAM 中共“挖祖坟”有传统！ http://t.cn/R…</a>
 </h2>
