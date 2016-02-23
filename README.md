@@ -42,7 +42,7 @@
 </h2>
 <p>SPAM 围墙不带了 //@Sailing8210:转发微博</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3945820082465122" target="freeweibo-mirror">SPAM //@笑看染坊:转发微博</a>
 </h2>
@@ -90,7 +90,7 @@
 </h2>
 <p>SPAM 非人类的心声。[笑cry] //@李鸿文在深圳://@阅古论今: [哈哈][笑cry] //@吉四六:良心的铺张，知识的反动！//@石扉客2014: [哈哈][哈哈][哈哈]<br><br>RE: 北京官宣下属的千龙网骂任志强“简直就是党性的泯灭、人性的猖狂。” 多少反贼都说不出这么有深度的内容啊！！http://t.cn/RGSmTl5<br><img src="http://ww1.sinaimg.cn/large/d60724d4jw1f1947f3qs3j20hj055gn8.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3945729074828788" target="freeweibo-mirror">SPAM [哈哈][笑cry] //@吉四六:良心的铺张，知…</a>
 </h2>
