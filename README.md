@@ -26,6 +26,12 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3945662615239686" target="freeweibo-mirror">SPAM 中共“挖祖坟”有传统！ http://t.cn/R…</a>
+</h2>
+<p>SPAM 中共“挖祖坟”有传统！ http://t.cn/RAZKuId</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3945657784387533" target="freeweibo-mirror">陈大律威武啊，跟轮子、美国之音一个腔调哦~[阴险] http…</a>
 </h2>
 <p>陈大律威武啊，跟轮子、美国之音一个腔调哦~[阴险] http://t.cn/RGKq6I7 //@钝斧无锋: 一万票抵一票原来是这么回事，陈有西告诉了我们，学习了。[哈哈]//@裸枪: [哈哈]//@牛哥笔记: //@倾听指尖: 陈大律每天给自己上党课的，所以陈大律说大炮优秀，那就必须优秀，所有反对的都是小丑、左棍！//@陈有西:<br><br>RE: #立场坚定斗志强#【中共中央网络安全和信息化领导小组办公室：网友为何要给任志强上党课？http://t.cn/RGouX8i】@任志强 你是否敢把中央网信办列为被告呢？[阴险][阴险][阴险]<br><img src="http://ww3.sinaimg.cn/large/94f2ee88gw1f18iqu41epj20qo1ben6n.jpg"></p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3945370125867180" target="freeweibo-mirror">//@清华郭于36华: 这话耐人寻味//@王林的微博客: 转…</a>
 </h2>
 <p>//@清华郭于36华: 这话耐人寻味//@王林的微博客: 转发微博<br><br>RE: 解放一个习惯于被奴役的民族，比奴役一个习惯于自由的民族更难。——孟德斯鸠<br><img src="http://ww4.sinaimg.cn/large/006cWkIWgw1f180q5le1hj30qo0qogpv.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3945369752922902" target="freeweibo-mirror">【何谓赵国】一网友神回复：如今集合了商的酒池肉林，周的贵族世…</a>
-</h2>
-<p>【何谓赵国】一网友神回复：如今集合了商的酒池肉林，周的贵族世袭，秦的言论管制，晋魏的炫富糜烂，南北朝的文化断层，汉的好大喜功，隋的大兴土木，唐的雍容体态，宋的软弱外交，元的税赋镇压，明的腐败党争，清的专制封闭一一乃赵国也！@A98niannayiji</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
