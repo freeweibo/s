@@ -36,7 +36,7 @@
 </h2>
 <p>SPAM 过去24个月里，我们把美利坚曾经奏效的救世良方挨个体验了一遍： 1：凯恩斯主义的政府刺激需求； 2：马歇尔计划的一带一路； 3：克林顿的互联网加万众创新； 4：弗里德曼的货币供给理论； 5：里根的供给侧改革，哦还有熔断制； 最后，又回到我们熟悉的房地产拉动经济上，不过这次不带院子了...</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3945787694345566" target="freeweibo-mirror">SPAM [哈哈] 人性 任性 搜狗给出的排序 //@吴京辉…</a>
 </h2>
@@ -79,6 +79,12 @@
 <p>SPAM 良心的铺张，知识的反动！//@石扉客2014: [哈哈][哈哈][哈哈]<br><br>RE: 北京官宣下属的千龙网骂任志强“简直就是党性的泯灭、人性的猖狂。” 多少反贼都说不出这么有深度的内容啊！！http://t.cn/RGSmTl5<br><img src="http://ww1.sinaimg.cn/large/d60724d4jw1f1947f3qs3j20hj055gn8.jpg"></p>
 <p>
 	<small> ============== 8小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3945716743898512" target="freeweibo-mirror">所谓小区拆墙,与理不通,与法无据,忤逆民意,肯定是行不通的。…</a>
+</h2>
+<p>所谓小区拆墙,与理不通,与法无据,忤逆民意,肯定是行不通的。老芋头冒昧揣测,其意可能是帮助房地产去库存,因为以后政府不再批准建封闭式小区,你想想,国人会买敞开式街区式的住宅吗？现有封闭式小区，不是奇货可居了吗？唉，房价又要涨了。</p>
+<p>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3945710912882191" target="freeweibo-mirror">上一届的名言是“不折腾”，这一届叫“胡折腾‘。//@侯虹斌:…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3945491043319369" target="freeweibo-mirror">SPAM 来了！万众期待！日日Rihanna联手公鸭Drak…</a>
 </h2>
 <p>SPAM 来了！万众期待！日日Rihanna联手公鸭Drake新单《Work》官方超清MV首播！！！MV时长7分半钟！MV分为两个部分，尤物日日也一共两套造型！性感火辣~~撩妹高手Drake最后和日日又抱在一块儿了！[酷] http://t.cn/RGogCxP .</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3945458596106120" target="freeweibo-mirror">#立场坚定斗志强#【中共中央网络安全和信息化领导小组办公室：…</a>
-</h2>
-<p>#立场坚定斗志强#【中共中央网络安全和信息化领导小组办公室：网友为何要给任志强上党课？http://t.cn/RGouX8i】@任志强 你是否敢把中央网信办列为被告呢？[阴险][阴险][阴险]<br><img src="http://ww3.sinaimg.cn/large/94f2ee88gw1f18iqu41epj20qo1ben6n.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
