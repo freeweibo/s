@@ -78,7 +78,7 @@
 </h2>
 <p>北京官宣下属的千龙网骂任志强“简直就是党性的泯灭、人性的猖狂。” 多少反贼都说不出这么有深度的内容啊！！http://t.cn/RGSmTl5<br><img src="http://ww1.sinaimg.cn/large/d60724d4jw1f1947f3qs3j20hj055gn8.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3945582621899676" target="freeweibo-mirror">//@樊建川://@鄢烈山:老了，听网络语言 我有智力障碍吧…</a>
 </h2>
