@@ -48,7 +48,7 @@
 </h2>
 <p>SPAM //@笑看染坊:转发微博</p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3945811165568287" target="freeweibo-mirror">SPAM 过去24个月里，我们把美利坚曾经奏效的救世良方挨个…</a>
 </h2>
@@ -72,7 +72,7 @@
 </h2>
 <p>【改革】为什么大家对中国经济这么绝望，其实不难理解。口口声声供给侧改革，结果涉及企业降费的水电煤气一样没降。成品油按规矩该降也不降，还加税。一会儿说推迟退休，一会儿是退休人员交医保，全在老百姓身上打主意。既得利益者铁桶一块，不肯让出一点儿利益。所谓改革，全靠一张嘴。<br><img src="http://ww4.sinaimg.cn/large/006oMYovjw1f19es2nsp2j30b20b20tw.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3945732953771971" target="freeweibo-mirror">本来准备义正言辞跟着批判任志强呢，结果看到“党性的泯灭、人性…</a>
 </h2>
