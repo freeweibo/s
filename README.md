@@ -24,7 +24,7 @@
 </h2>
 <p>这五毛也太不专业了，建议倒扣六毛//@金陵酒徒仓氏: [挖鼻] //@战争史研究WHS:[doge]//@液态人:公开宣称党性与人性对立，妥妥的打着红旗反红旗的反贼<br><br>RE: 北京官宣下属的千龙网骂任志强“简直就是党性的泯灭、人性的猖狂。” 多少反贼都说不出这么有深度的内容啊！！http://t.cn/RGSmTl5<br><img src="http://ww1.sinaimg.cn/large/d60724d4jw1f1947f3qs3j20hj055gn8.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3945730705951151" target="freeweibo-mirror">SPAM 非人类的心声。[笑cry] //@李鸿文在深圳:/…</a>
 </h2>
