@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3945666180987185" target="freeweibo-mirror">SPAM 照现在的势头，有些担心，宪法的一些条款会不会也被修…</a>
+</h2>
+<p>SPAM 照现在的势头，有些担心，宪法的一些条款会不会也被修改了<br><br>RE: 【不想说什么】请有关部门和个人对照我国宪法，主要看第二、三十五、四十一条，检讨一下自己的言行。<br><img src="http://ww1.sinaimg.cn/large/48866320jw1f187wf1p60j20hs0hs0u7.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3945582621899676" target="freeweibo-mirror">//@樊建川://@鄢烈山:老了，听网络语言 我有智力障碍吧…</a>
 </h2>
 <p>//@樊建川://@鄢烈山:老了，听网络语言 我有智力障碍吧//@倚栏看落晖2://@猛虎啸林海: //@活出Y尊严://@有朝一日那一天6:转发微博<br><br>RE: 【何谓赵国】一网友神回复：如今集合了商的酒池肉林，周的贵族世袭，秦的言论管制，晋魏的炫富糜烂，南北朝的文化断层，汉的好大喜功，隋的大兴土木，唐的雍容体态，宋的软弱外交，元的税赋镇压，明的腐败党争，清的专制封闭一一乃赵国也！@A98niannayiji</p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3945364946061067" target="freeweibo-mirror">//@浩正刘臻: [嘻嘻] //@淡墨天涯://@花前一壶酒…</a>
 </h2>
 <p>//@浩正刘臻: [嘻嘻] //@淡墨天涯://@花前一壶酒03: 转发微博<br><br>RE: 袁腾飞老师：中国为啥老改朝换代？ http://t.cn/RGSgibs .</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3945358726222328" target="freeweibo-mirror">//@徐昕://@索子曰://@戴建业微博:中国最应该拆除的…</a>
-</h2>
-<p>//@徐昕://@索子曰://@戴建业微博:中国最应该拆除的是互联网的“围墙”，让人民与全世界实现信息和知识共享！<br><br>RE: 【拆墙意见】该拆的不是住宅小区的围墙，而是单位大院的围墙，法院、检察院、政府、的围墙，还有防火墙 http://t.cn/RGSOTyG<br><img src="http://ww4.sinaimg.cn/large/918d47a2jw1f183gqv6c6j20a20dpgn1.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
