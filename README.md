@@ -48,7 +48,7 @@
 </h2>
 <p>好吧，我是来看评论的。</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3945827615232881" target="freeweibo-mirror">SPAM 找个能分散P民注意力的话碴子罢了。</a>
 </h2>
