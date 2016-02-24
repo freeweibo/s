@@ -24,7 +24,7 @@
 </h2>
 <p>有人在大学开探讨会，在媒体发文要给@任志强 定反党分子罪，大家看清楚，什么叫：反党分子，党又是怎样对待反党分子的。嗯，“利用微博发党，是一大发明。”<br><img src="http://ww4.sinaimg.cn/large/60c7309cjw1f1adz9qpjdj20dc0hs0v8.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3945988953705861" target="freeweibo-mirror">SPAM “老炮儿”任志强 咋成了“反党”分子？ | 联合早…</a>
 </h2>
