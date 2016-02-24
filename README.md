@@ -30,7 +30,7 @@
 </h2>
 <p>SPAM //@黄河直播12:得道多助，失道寡助 //@吕洞宾出山了:[哼]//@六安自媒体:[吃惊]//@王周生:怎么可以？！<br><br>RE: 目前已有 176 个国家支持取消中国在联合国的否决权。<br><img src="http://ww3.sinaimg.cn/large/a611cabfgw1f1ae17851ej20c809mjs4.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3946179915788148" target="freeweibo-mirror">铁肩担道义！陈律律界中流砥柱</a>
 </h2>
@@ -120,13 +120,13 @@
 </h2>
 <p>目前已有 176 个国家支持取消中国在联合国的否决权。<br><img src="http://ww3.sinaimg.cn/large/a611cabfgw1f1ae17851ej20c809mjs4.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3946044465099387" target="freeweibo-mirror">有人在大学开探讨会，在媒体发文要给@任志强 定反党分子罪，大…</a>
 </h2>
 <p>有人在大学开探讨会，在媒体发文要给@任志强 定反党分子罪，大家看清楚，什么叫：反党分子，党又是怎样对待反党分子的。嗯，“利用微博发党，是一大发明。”<br><img src="http://ww4.sinaimg.cn/large/60c7309cjw1f1adz9qpjdj20dc0hs0v8.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3946019026403548" target="freeweibo-mirror">【良知】什么是人的良知？@任志强 有钱、有名、有利，明知说真…</a>
 </h2>
