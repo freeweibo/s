@@ -48,7 +48,7 @@
 </h2>
 <p>SPAM 哈哈哈，某封闭小区…<br><br>RE: 北京某封闭小区。<br><img src="http://ww3.sinaimg.cn/large/63136032jw1f1aemvevatj20mv0hgajw.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3946105626598723" target="freeweibo-mirror">SPAM [吃惊]//@谓贤:皇宫怎么会是小区？休想尿入墙屎…</a>
 </h2>
@@ -84,7 +84,7 @@
 </h2>
 <p>SPAM 习合葬？ //@水能载舟亦能把包子煮成粥:九合葬！//@水能载舟亦能把包子煮成粥：还记得几年前的河南省长卢扒坟吗？这次是*合葬！</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3945988953705861" target="freeweibo-mirror">SPAM “老炮儿”任志强 咋成了“反党”分子？ | 联合早…</a>
 </h2>
