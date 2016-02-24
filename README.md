@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3946044465099387" target="freeweibo-mirror">有人在大学开探讨会，在媒体发文要给@任志强 定反党分子罪，大…</a>
+</h2>
+<p>有人在大学开探讨会，在媒体发文要给@任志强 定反党分子罪，大家看清楚，什么叫：反党分子，党又是怎样对待反党分子的。嗯，“利用微博发党，是一大发明。”<br><img src="http://ww4.sinaimg.cn/large/60c7309cjw1f1adz9qpjdj20dc0hs0v8.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3945988953705861" target="freeweibo-mirror">SPAM “老炮儿”任志强 咋成了“反党”分子？ | 联合早…</a>
 </h2>
 <p>SPAM “老炮儿”任志强 咋成了“反党”分子？ | 联合早报网【评论】千龙网变成了乾隆网？ http://t.cn/RG9fyD0</p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3945710912882191" target="freeweibo-mirror">上一届的名言是“不折腾”，这一届叫“胡折腾‘。//@侯虹斌:…</a>
 </h2>
 <p>上一届的名言是“不折腾”，这一届叫“胡折腾‘。//@侯虹斌: 折腾是一种特权，要经常使用，不使用就等于没有特权了//@熊长云: 真的无法理解。瞎搞。<br><br>RE: 这届政府 贯穿这几年的宗旨就是两个字：折腾 先折腾当官的 然后折腾军队 这几天开始折腾中产阶级 …… 折腾好金融 然后折腾股市 真他妈的吓人啊[晕]</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3945666180987185" target="freeweibo-mirror">SPAM 照现在的势头，有些担心，宪法的一些条款会不会也被修…</a>
-</h2>
-<p>SPAM 照现在的势头，有些担心，宪法的一些条款会不会也被修改了<br><br>RE: 【不想说什么】请有关部门和个人对照我国宪法，主要看第二、三十五、四十一条，检讨一下自己的言行。<br><img src="http://ww1.sinaimg.cn/large/48866320jw1f187wf1p60j20hs0hs0u7.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
