@@ -48,7 +48,7 @@
 </h2>
 <p>SPAM //@笑看染坊:转发微博</p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3945811165568287" target="freeweibo-mirror">SPAM 过去24个月里，我们把美利坚曾经奏效的救世良方挨个…</a>
 </h2>
