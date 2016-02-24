@@ -72,7 +72,7 @@
 </h2>
 <p>//@开博救母: //@崔小平律师://@李如玉微博:共同发声，转起来![话筒]<br><br>RE: ...... http://t.cn/RG9nlL4致两会的公开信<br><img src="http://ww4.sinaimg.cn/large/ab73c156jw1f1amao9qdfj206o06ot8o.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3946124954482272" target="freeweibo-mirror">SPAM //@谓贤:皇宫怎么会是小区？休想尿入墙屎入海！/…</a>
 </h2>
@@ -108,7 +108,7 @@
 </h2>
 <p>SPAM 今天，韩国跑男池石镇也在@水动乐轻补给吧 中现身，听说昨天HAHA欧巴也出现了，水动乐是联合RM在憋大招吗！</p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3946049536220358" target="freeweibo-mirror">北京某封闭小区。</a>
 </h2>
