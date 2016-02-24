@@ -24,7 +24,7 @@
 </h2>
 <p>SPAM 如果你愿意 想 瘦可以找她       @QueenOfThin美人邦</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3946141546572276" target="freeweibo-mirror">//@开博救母: //@崔小平律师://@李如玉微博:共同发…</a>
 </h2>
