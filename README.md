@@ -66,7 +66,7 @@
 </h2>
 <p>有人在大学开探讨会，在媒体发文要给@任志强 定反党分子罪，大家看清楚，什么叫：反党分子，党又是怎样对待反党分子的。嗯，“利用微博发党，是一大发明。”<br><img src="http://ww4.sinaimg.cn/large/60c7309cjw1f1adz9qpjdj20dc0hs0v8.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3946019026403548" target="freeweibo-mirror">【良知】什么是人的良知？@任志强 有钱、有名、有利，明知说真…</a>
 </h2>
