@@ -30,7 +30,7 @@
 </h2>
 <p>【良知】什么是人的良知？@任志强 有钱、有名、有利，明知说真话会被狗咬，任志强他，为什么还要敢于说真话呢？是良知！是社会的担当，是做人不可缺失的良知！ http://t.cn/RG96Y8t</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3946015675184873" target="freeweibo-mirror">SPAM 习合葬？ //@水能载舟亦能把包子煮成粥:九合葬！…</a>
 </h2>
@@ -42,7 +42,7 @@
 </h2>
 <p>SPAM “老炮儿”任志强 咋成了“反党”分子？ | 联合早报网【评论】千龙网变成了乾隆网？ http://t.cn/RG9fyD0</p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3945965071344325" target="freeweibo-mirror">国家走了一段弯路，对你来说，就是毁了一生。（分享@私家野史 …</a>
 </h2>
