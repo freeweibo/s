@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3946187818788947" target="freeweibo-mirror">SPAM //@黄河直播12:得道多助，失道寡助 //@吕洞…</a>
+</h2>
+<p>SPAM //@黄河直播12:得道多助，失道寡助 //@吕洞宾出山了:[哼]//@六安自媒体:[吃惊]//@王周生:怎么可以？！<br><br>RE: 目前已有 176 个国家支持取消中国在联合国的否决权。<br><img src="http://ww3.sinaimg.cn/large/a611cabfgw1f1ae17851ej20c809mjs4.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3946177366116093" target="freeweibo-mirror">SPAM [doge]//@湘微笑6: //@成都双爷: 不…</a>
 </h2>
 <p>SPAM [doge]//@湘微笑6: //@成都双爷: 不光是操蛋，智商也低！//@鎏金镋: 现今越是名人越操蛋！[太开心]//@成都双爷: 这个@王周生，还是个名人儿，编过《丁玲年谱》滴，呵呵，这智商！//@军机协理员: //@成都双爷:@首都网警 直接抓谣棍@青云云，抓错了双爷负责赔偿。<br><br>RE: 目前已有 176 个国家支持取消中国在联合国的否决权。<br><img src="http://ww3.sinaimg.cn/large/a611cabfgw1f1ae17851ej20c809mjs4.jpg"></p>
@@ -30,7 +36,7 @@
 </h2>
 <p>是1760个国家吧！然并卵，中国一票否决[哈哈]//@共青团中央:原po开什么国际玩笑[哼]//@昵称是马甲家的大学生:这谣言在网上流传广，一直被各种人以各种理由当做自己政见佐证。可连时间地点人物都没有，编这个玩意得有多业余。几个入常集团辛苦十多年都没找到入常大门，中国的“常”却在谣言中被剥夺n次<br><br>RE: 目前已有 176 个国家支持取消中国在联合国的否决权。<br><img src="http://ww3.sinaimg.cn/large/a611cabfgw1f1ae17851ej20c809mjs4.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3946164669809722" target="freeweibo-mirror">SPAM //@狐家三小姐: 看看民意//@长沙凌杰028:…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3945845949353434" target="freeweibo-mirror">//@价值投资快客: //@旺旺1658: //@_阿文_2…</a>
 </h2>
 <p>//@价值投资快客: //@旺旺1658: //@_阿文_2012://@霸气的北京小妞20126: 无耻[怒] //@老豆不炒熟29://@榴蓮飄香在嶺南a: 其實，以莪的花岗岩腦袋想，沒有了祖國再大的土豪也沒人征税，莪不幹。</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3945841431270627" target="freeweibo-mirror">好吧，我是来看评论的。</a>
-</h2>
-<p>好吧，我是来看评论的。</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
