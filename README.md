@@ -32,6 +32,12 @@
 <p>
 	<small> ============== 4小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3946015675184873" target="freeweibo-mirror">SPAM 习合葬？ //@水能载舟亦能把包子煮成粥:九合葬！…</a>
+</h2>
+<p>SPAM 习合葬？ //@水能载舟亦能把包子煮成粥:九合葬！//@水能载舟亦能把包子煮成粥：还记得几年前的河南省长卢扒坟吗？这次是*合葬！</p>
+<p>
+	<small> ============== 5小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3945988953705861" target="freeweibo-mirror">SPAM “老炮儿”任志强 咋成了“反党”分子？ | 联合早…</a>
 </h2>
 <p>SPAM “老炮儿”任志强 咋成了“反党”分子？ | 联合早报网【评论】千龙网变成了乾隆网？ http://t.cn/RG9fyD0</p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3945728357917813" target="freeweibo-mirror">SPAM 良心的铺张，知识的反动！//@石扉客2014: […</a>
 </h2>
 <p>SPAM 良心的铺张，知识的反动！//@石扉客2014: [哈哈][哈哈][哈哈]<br><br>RE: 北京官宣下属的千龙网骂任志强“简直就是党性的泯灭、人性的猖狂。” 多少反贼都说不出这么有深度的内容啊！！http://t.cn/RGSmTl5<br><img src="http://ww1.sinaimg.cn/large/d60724d4jw1f1947f3qs3j20hj055gn8.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3945716743898512" target="freeweibo-mirror">所谓小区拆墙,与理不通,与法无据,忤逆民意,肯定是行不通的。…</a>
-</h2>
-<p>所谓小区拆墙,与理不通,与法无据,忤逆民意,肯定是行不通的。老芋头冒昧揣测,其意可能是帮助房地产去库存,因为以后政府不再批准建封闭式小区,你想想,国人会买敞开式街区式的住宅吗？现有封闭式小区，不是奇货可居了吗？唉，房价又要涨了。</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
