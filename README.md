@@ -66,7 +66,7 @@
 </h2>
 <p>//@陈有西: 岂敢。中图一字写錯了，原教旨主义。<br><br>RE: 【2016年最有铁骨、最有担当、最有情怀的真正的大律师：@陈有西】<br><img src="http://ww2.sinaimg.cn/large/4231a8dbgw1f1an9cquncj20cq07874q.jpg"></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3946141546572276" target="freeweibo-mirror">//@开博救母: //@崔小平律师://@李如玉微博:共同发…</a>
 </h2>
@@ -96,7 +96,7 @@
 </h2>
 <p>SPAM 哈哈哈，某封闭小区…<br><br>RE: 北京某封闭小区。<br><img src="http://ww3.sinaimg.cn/large/63136032jw1f1aemvevatj20mv0hgajw.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3946105626598723" target="freeweibo-mirror">SPAM [吃惊]//@谓贤:皇宫怎么会是小区？休想尿入墙屎…</a>
 </h2>
