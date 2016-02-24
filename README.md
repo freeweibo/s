@@ -24,7 +24,7 @@
 </h2>
 <p>SPAM [doge]//@湘微笑6: //@成都双爷: 不光是操蛋，智商也低！//@鎏金镋: 现今越是名人越操蛋！[太开心]//@成都双爷: 这个@王周生，还是个名人儿，编过《丁玲年谱》滴，呵呵，这智商！//@军机协理员: //@成都双爷:@首都网警 直接抓谣棍@青云云，抓错了双爷负责赔偿。<br><br>RE: 目前已有 176 个国家支持取消中国在联合国的否决权。<br><img src="http://ww3.sinaimg.cn/large/a611cabfgw1f1ae17851ej20c809mjs4.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3946175885168283" target="freeweibo-mirror">是1760个国家吧！然并卵，中国一票否决[哈哈]//@共青团…</a>
 </h2>
@@ -36,7 +36,7 @@
 </h2>
 <p>SPAM 如果你愿意 想 瘦可以找她       @QueenOfThin美人邦</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3946141546572276" target="freeweibo-mirror">//@开博救母: //@崔小平律师://@李如玉微博:共同发…</a>
 </h2>
@@ -80,6 +80,12 @@
 <p>
 	<small> ============== 10小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3946044959525333" target="freeweibo-mirror">目前已有 176 个国家支持取消中国在联合国的否决权。</a>
+</h2>
+<p>目前已有 176 个国家支持取消中国在联合国的否决权。<br><img src="http://ww3.sinaimg.cn/large/a611cabfgw1f1ae17851ej20c809mjs4.jpg"></p>
+<p>
+	<small> ============== 10小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3946044465099387" target="freeweibo-mirror">有人在大学开探讨会，在媒体发文要给@任志强 定反党分子罪，大…</a>
 </h2>
 <p>有人在大学开探讨会，在媒体发文要给@任志强 定反党分子罪，大家看清楚，什么叫：反党分子，党又是怎样对待反党分子的。嗯，“利用微博发党，是一大发明。”<br><img src="http://ww4.sinaimg.cn/large/60c7309cjw1f1adz9qpjdj20dc0hs0v8.jpg"></p>
@@ -90,7 +96,7 @@
 </h2>
 <p>【良知】什么是人的良知？@任志强 有钱、有名、有利，明知说真话会被狗咬，任志强他，为什么还要敢于说真话呢？是良知！是社会的担当，是做人不可缺失的良知！ http://t.cn/RG96Y8t</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3946015675184873" target="freeweibo-mirror">SPAM 习合葬？ //@水能载舟亦能把包子煮成粥:九合葬！…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3945827615232881" target="freeweibo-mirror">SPAM 找个能分散P民注意力的话碴子罢了。</a>
 </h2>
 <p>SPAM 找个能分散P民注意力的话碴子罢了。<br><br>RE: 所谓小区拆墙,与理不通,与法无据,忤逆民意,肯定是行不通的。老芋头冒昧揣测,其意可能是帮助房地产去库存,因为以后政府不再批准建封闭式小区,你想想,国人会买敞开式街区式的住宅吗？现有封闭式小区，不是奇货可居了吗？唉，房价又要涨了。</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3945821768988647" target="freeweibo-mirror">SPAM 围墙不带了 //@Sailing8210:转发微博</a>
-</h2>
-<p>SPAM 围墙不带了 //@Sailing8210:转发微博</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
