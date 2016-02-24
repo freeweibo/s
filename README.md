@@ -84,7 +84,7 @@
 </h2>
 <p>SPAM “老炮儿”任志强 咋成了“反党”分子？ | 联合早报网【评论】千龙网变成了乾隆网？ http://t.cn/RG9fyD0</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3945965071344325" target="freeweibo-mirror">国家走了一段弯路，对你来说，就是毁了一生。（分享@私家野史 …</a>
 </h2>
