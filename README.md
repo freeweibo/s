@@ -24,7 +24,7 @@
 </h2>
 <p>[威武]//@我是半耳人: 必须支持大炮！//@悲夫-愚夫: [good]//@迟夙生律师:我不是党员，但是我会站在大炮的身后。//@yehanjie：迟律师是党员吗</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3946187818788947" target="freeweibo-mirror">SPAM //@黄河直播12:得道多助，失道寡助 //@吕洞…</a>
 </h2>
