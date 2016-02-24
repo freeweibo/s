@@ -24,7 +24,7 @@
 </h2>
 <p>国家走了一段弯路，对你来说，就是毁了一生。（分享@私家野史 的文章 http://t.cn/RGoOye2 ）每个人的权利就是选择，选错了的，不是悲剧就是帮凶。</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3945957802851075" target="freeweibo-mirror">【“老炮儿”任志强为何成了“反党分子”？】对任志强来说，挨批…</a>
 </h2>
@@ -54,7 +54,7 @@
 </h2>
 <p>SPAM 围墙不带了 //@Sailing8210:转发微博</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3945820082465122" target="freeweibo-mirror">SPAM //@笑看染坊:转发微博</a>
 </h2>
