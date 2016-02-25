@@ -42,7 +42,7 @@
 </h2>
 <p>SPAM //@黄河直播12:得道多助，失道寡助 //@吕洞宾出山了:[哼]//@六安自媒体:[吃惊]//@王周生:怎么可以？！<br><br>RE: 目前已有 176 个国家支持取消中国在联合国的否决权。<br><img src="http://ww3.sinaimg.cn/large/a611cabfgw1f1ae17851ej20c809mjs4.jpg"></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3946179915788148" target="freeweibo-mirror">铁肩担道义！陈律律界中流砥柱</a>
 </h2>
@@ -66,7 +66,7 @@
 </h2>
 <p>SPAM //@狐家三小姐: 看看民意//@长沙凌杰028:支持！://@馨雨纤尘: //@渤渤再升机://@公民高杨009:[赞][赞][赞]支持<br><br>RE: 目前已有 176 个国家支持取消中国在联合国的否决权。<br><img src="http://ww3.sinaimg.cn/large/a611cabfgw1f1ae17851ej20c809mjs4.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3946162526567206" target="freeweibo-mirror">SPAM 如果你愿意 想 瘦可以找她       @Quee…</a>
 </h2>
