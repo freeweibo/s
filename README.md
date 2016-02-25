@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3946552613732378" target="freeweibo-mirror">[哈哈]//@榕粉团: 回复@良_民_證:挺丰富的。剧透入门…</a>
+</h2>
+<p>[哈哈]//@榕粉团: 回复@良_民_證:挺丰富的。剧透入门啊：牢记语录100句。最常用的分别是：阶级斗争，一抓就灵。凡是敌人拥护的，我们就要反对。革命不是请客吃饭。革命无罪，造反有理。帝国主义及一切反动派都是纸老虎。不破不立。知识青年到农村去... //@良_民_證:有哪些课程啊？<br><br>RE: 活这么半辈子搞不好能赶上两次文革，也是不容易啊。当过几天正宗红卫兵团长（主要是主持广播站、写黑板报，反击右倾翻案风啥的，没真的斗过任何人）的在下，是不是可以考虑开补习班了。</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3946501224511946" target="freeweibo-mirror">善恶有报，时候未到，时候一到，统统报销。加大对诉棍的打击力度…</a>
 </h2>
 <p>善恶有报，时候未到，时候一到，统统报销。加大对诉棍的打击力度，还百姓一个公正的司法环境。//@紫筱_Sun: 这是“我爸是李刚”的被害人家属代理律师~几年前还撒谎说自己开车在长安街被围堵。之前一直当榜样关注的，11年左右忘了什么事，发现不像他宣传的那种好人就取关了，竟然真出事了[挖鼻][拜拜]<br><br>RE: 【温州公布律师张凯案真相：煽动教徒非法聚集，对抗政府】去年7月以来，温州发生十余起被境内外网络炒作的非法聚集活动，经查，均系张凯幕后策划。据悉张凯企图借助境外势力给政府施压，挑动信教群众与政府的对立情绪。张凯在忏悔中说，通过这些事他认清了一些境外组织的真面目。http://t.cn/RGCusSP<br><img src="http://ww1.sinaimg.cn/large/005vnhZYgw1f1bsxhormhj30go0b4jrj.jpg"></p>
@@ -60,7 +66,7 @@
 </h2>
 <p>SPAM 被我上午说中了。<br><br>RE: 这是今天股市暴跌的原因？http://t.cn/RGCxPB9<br><img src="http://ww4.sinaimg.cn/large/6260d7eejw1f1bmbwv9h6j20y40yi11j.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3946447139852297" target="freeweibo-mirror">究竟是谁的耻辱，历史终将有个正确定位，这已经是2016，不是…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3946372468791083" target="freeweibo-mirror">→_→→_→</a>
 </h2>
 <p>→_→→_→<br><br>RE: #斗鱼mini#啥也不说了，直接上视频[doge][doge][doge] http://t.cn/RGCixr8 .</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3946358731362637" target="freeweibo-mirror">#斗鱼mini#啥也不说了，直接上视频[doge][doge…</a>
-</h2>
-<p>#斗鱼mini#啥也不说了，直接上视频[doge][doge][doge] http://t.cn/RGCixr8 .</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
