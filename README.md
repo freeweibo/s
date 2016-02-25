@@ -30,7 +30,7 @@
 </h2>
 <p>出事咯，三骚这次玩大了… http://t.cn/RGCAQ5b</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3946193744571523" target="freeweibo-mirror">[威武]//@我是半耳人: 必须支持大炮！//@悲夫-愚夫:…</a>
 </h2>
@@ -54,7 +54,7 @@
 </h2>
 <p>SPAM [doge]//@湘微笑6: //@成都双爷: 不光是操蛋，智商也低！//@鎏金镋: 现今越是名人越操蛋！[太开心]//@成都双爷: 这个@王周生，还是个名人儿，编过《丁玲年谱》滴，呵呵，这智商！//@军机协理员: //@成都双爷:@首都网警 直接抓谣棍@青云云，抓错了双爷负责赔偿。<br><br>RE: 目前已有 176 个国家支持取消中国在联合国的否决权。<br><img src="http://ww3.sinaimg.cn/large/a611cabfgw1f1ae17851ej20c809mjs4.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3946175885168283" target="freeweibo-mirror">是1760个国家吧！然并卵，中国一票否决[哈哈]//@共青团…</a>
 </h2>
