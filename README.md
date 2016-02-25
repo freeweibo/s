@@ -42,7 +42,7 @@
 </h2>
 <p>SPAM //@文盲李世威:美帝该骂！ 附《美国是最大的独裁国家》一文以表支持。 http://t.cn/Ry3z8pd<br><br>RE: 今天看到十骂美国，揭露了美帝的丑恶嘴脸，批得是体无完肤[赞]<br><img src="http://ww4.sinaimg.cn/large/0069yXfEjw1f1bu2z2l5fj30c82ywh15.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3946548481980571" target="freeweibo-mirror">活这么半辈子搞不好能赶上两次文革，也是不容易啊。当过几天正宗…</a>
 </h2>
@@ -77,6 +77,12 @@
 	<a href="https://freeweibo.com/weibo/3946511341856618" target="freeweibo-mirror">多年经验告诉我：他真的失控了！</a>
 </h2>
 <p>多年经验告诉我：他真的失控了！<br><img src="http://ww4.sinaimg.cn/large/006ncmw0jw1f1bvoezt8sj30qr18gjx2.jpg"></p>
+<p>
+	<small> ============== 5小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3946510825520452" target="freeweibo-mirror">朋友送了我一本书，全是自拍，拍的都是各国硬币，我说这有什么好…</a>
+</h2>
+<p>朋友送了我一本书，全是自拍，拍的都是各国硬币，我说这有什么好看的，大家快来评评理这书买的值不值。。。<br><img src="http://ww1.sinaimg.cn/large/8f321405jw1f1bvios4xbj20x718gqd3.jpg"></p>
 <p>
 	<small> ============== 5小时前</small>
 </p><h2>
@@ -133,12 +139,6 @@
 <p>究竟是谁的耻辱，历史终将有个正确定位，这已经是2016，不是1916。<br><img src="http://ww2.sinaimg.cn/large/6f0978aajw1f1boat5a2pj20hs0vkq6p.jpg"></p>
 <p>
 	<small> ============== 9小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3946433243397763" target="freeweibo-mirror">这是今天股市暴跌的原因？http://t.cn/RGCxPB…</a>
-</h2>
-<p>这是今天股市暴跌的原因？http://t.cn/RGCxPB9<br><img src="http://ww4.sinaimg.cn/large/6260d7eejw1f1bmbwv9h6j20y40yi11j.jpg"></p>
-<p>
-	<small> ============== 10小时前</small>
 </p>
 <table>
     <tr>
