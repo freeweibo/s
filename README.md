@@ -50,6 +50,12 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3946544858027401" target="freeweibo-mirror">//@广州湾在线://@贾公知:转发微博</a>
+</h2>
+<p>//@广州湾在线://@贾公知:转发微博<br><br>RE: 多年经验告诉我：他真的失控了！<br><img src="http://ww4.sinaimg.cn/large/006ncmw0jw1f1bvoezt8sj30qr18gjx2.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3946501224511946" target="freeweibo-mirror">善恶有报，时候未到，时候一到，统统报销。加大对诉棍的打击力度…</a>
 </h2>
 <p>善恶有报，时候未到，时候一到，统统报销。加大对诉棍的打击力度，还百姓一个公正的司法环境。//@紫筱_Sun: 这是“我爸是李刚”的被害人家属代理律师~几年前还撒谎说自己开车在长安街被围堵。之前一直当榜样关注的，11年左右忘了什么事，发现不像他宣传的那种好人就取关了，竟然真出事了[挖鼻][拜拜]<br><br>RE: 【温州公布律师张凯案真相：煽动教徒非法聚集，对抗政府】去年7月以来，温州发生十余起被境内外网络炒作的非法聚集活动，经查，均系张凯幕后策划。据悉张凯企图借助境外势力给政府施压，挑动信教群众与政府的对立情绪。张凯在忏悔中说，通过这些事他认清了一些境外组织的真面目。http://t.cn/RGCusSP<br><img src="http://ww1.sinaimg.cn/large/005vnhZYgw1f1bsxhormhj30go0b4jrj.jpg"></p>
@@ -60,7 +66,7 @@
 </h2>
 <p>大国应大度，大国政府慌什么？岂能任志强几句话搞的动用政府喉舌群起攻之，自信呢？失态、失态！//@扬州宽带网:大国应大度!慌什么?岂能任志强几句话搞的媒体群起攻之，失态、失态。<br><br>RE: 究竟是谁的耻辱，历史终将有个正确定位，这已经是2016，不是1916。<br><img src="http://ww2.sinaimg.cn/large/6f0978aajw1f1boat5a2pj20hs0vkq6p.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3946488616417611" target="freeweibo-mirror">煽动[弱]</a>
 </h2>
@@ -78,7 +84,7 @@
 </h2>
 <p>谷俊山不是耻辱，薄熙来不是耻辱，令完成不是耻辱，周永康不是耻辱，姬胜德不是耻辱，说几句你们不爱听的真话，就成了8000多万党员的耻辱。你们真是恶趣味啊。</p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3946465527293125" target="freeweibo-mirror">SPAM 回复@雪后的茉莉2016lucky:可以容忍意见不…</a>
 </h2>
@@ -108,7 +114,7 @@
 </h2>
 <p>这是今天股市暴跌的原因？http://t.cn/RGCxPB9<br><img src="http://ww4.sinaimg.cn/large/6260d7eejw1f1bmbwv9h6j20y40yi11j.jpg"></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3946429786924283" target="freeweibo-mirror">SPAM 原博已删。只想说，大家都是成年人了，是需要对自己说…</a>
 </h2>
@@ -120,7 +126,7 @@
 </h2>
 <p>具体把大炮和某个具体领导并提，高看大炮了，他的态度和言行无需多举证，大家都能看清。应该从性质上仔细辨析为什么需要回击任。早说过，个人保留不同意见是权利，攻击性主张，把别人并不离谱的选择意见倾向攻击为倒行逆施 伤天害理，任主动开炮就必然承担后果。生活中，不同意不是谁可骂人的理由。<br><br>RE: #立场坚定斗志强#对于中央党校蔡霞的那篇给任志强洗地文章，这篇文章是最好的回应，把批评等同于胡说八道，罔议中央，鼓吹西式民主宪政，把网友对任志强的批评就等同于文革余孽，蔡霞，你这双标玩得溜啊http://t.cn/RG9y9nK</p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3946416554665993" target="freeweibo-mirror">//@种花家的蓝领兔://@锋星0:转发微博</a>
 </h2>
@@ -133,12 +139,6 @@
 <p>SPAM 任總@任志强，唉，不說了⋯⋯<br><img src="http://ww1.sinaimg.cn/large/5938d248jw1f1bkivbk2pj20hd0dcjsr.jpg"></p>
 <p>
 	<small> ============== 11小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3946399244054045" target="freeweibo-mirror">SPAM $中航三鑫 sz002163$ 春江水暖鸭先知，强…</a>
-</h2>
-<p>SPAM $中航三鑫 sz002163$ 春江水暖鸭先知，强势股中航周二就开始调整了[酷]  http://t.cn/RGCCQj4</p>
-<p>
-	<small> ============== 12小时前</small>
 </p>
 <table>
     <tr>
