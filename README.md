@@ -30,7 +30,7 @@
 </h2>
 <p>大国应大度，大国政府慌什么？岂能任志强几句话搞的动用政府喉舌群起攻之，自信呢？失态、失态！//@扬州宽带网:大国应大度!慌什么?岂能任志强几句话搞的媒体群起攻之，失态、失态。<br><br>RE: 究竟是谁的耻辱，历史终将有个正确定位，这已经是2016，不是1916。<br><img src="http://ww2.sinaimg.cn/large/6f0978aajw1f1boat5a2pj20hs0vkq6p.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3946488616417611" target="freeweibo-mirror">煽动[弱]</a>
 </h2>
@@ -72,7 +72,7 @@
 </h2>
 <p>这是今天股市暴跌的原因？http://t.cn/RGCxPB9<br><img src="http://ww4.sinaimg.cn/large/6260d7eejw1f1bmbwv9h6j20y40yi11j.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3946429786924283" target="freeweibo-mirror">SPAM 原博已删。只想说，大家都是成年人了，是需要对自己说…</a>
 </h2>
@@ -84,7 +84,7 @@
 </h2>
 <p>具体把大炮和某个具体领导并提，高看大炮了，他的态度和言行无需多举证，大家都能看清。应该从性质上仔细辨析为什么需要回击任。早说过，个人保留不同意见是权利，攻击性主张，把别人并不离谱的选择意见倾向攻击为倒行逆施 伤天害理，任主动开炮就必然承担后果。生活中，不同意不是谁可骂人的理由。<br><br>RE: #立场坚定斗志强#对于中央党校蔡霞的那篇给任志强洗地文章，这篇文章是最好的回应，把批评等同于胡说八道，罔议中央，鼓吹西式民主宪政，把网友对任志强的批评就等同于文革余孽，蔡霞，你这双标玩得溜啊http://t.cn/RG9y9nK</p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3946416554665993" target="freeweibo-mirror">//@种花家的蓝领兔://@锋星0:转发微博</a>
 </h2>
