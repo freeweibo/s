@@ -60,7 +60,13 @@
 </h2>
 <p>【温州公布律师张凯案真相：煽动教徒非法聚集，对抗政府】去年7月以来，温州发生十余起被境内外网络炒作的非法聚集活动，经查，均系张凯幕后策划。据悉张凯企图借助境外势力给政府施压，挑动信教群众与政府的对立情绪。张凯在忏悔中说，通过这些事他认清了一些境外组织的真面目。http://t.cn/RGCusSP<br><img src="http://ww1.sinaimg.cn/large/005vnhZYgw1f1bsxhormhj30go0b4jrj.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3946478575771928" target="freeweibo-mirror">谷俊山不是耻辱，薄熙来不是耻辱，令完成不是耻辱，周永康不是耻…</a>
+</h2>
+<p>谷俊山不是耻辱，薄熙来不是耻辱，令完成不是耻辱，周永康不是耻辱，姬胜德不是耻辱，说几句你们不爱听的真话，就成了8000多万党员的耻辱。你们真是恶趣味啊。</p>
+<p>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3946465527293125" target="freeweibo-mirror">SPAM 回复@雪后的茉莉2016lucky:可以容忍意见不…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3946383855205045" target="freeweibo-mirror">SPAM 脑裂散……//@Lxl_aaron:之前不是有个已…</a>
 </h2>
 <p>SPAM 脑裂散……//@Lxl_aaron:之前不是有个已婚男的花了大概200万睡了两个斗鱼主播，那男的家里也就几百万，泡妞时候还租了辆宝马。为了泡妞散尽家财，最后家里人还管那两个主播讨钱<br><br>RE: #斗鱼mini# 说实话我对这个什么斗鱼mini视频的一点都不感兴趣，只有没见过世面的小年轻才会大惊小怪。我只想借几张图告诫一下年轻人，结合昨天醉鸡打分很多人看走眼事件，看女人不能看包装好的成果，再纯平如飞机场跑道的女人都能挤成36D，那些深V大部分都是假的，即使真的胸大也未必是真胸，社会变了<br><img src="http://ww1.sinaimg.cn/large/a1b6e757gw1f1b9djybwgj20j20ff0ts.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3946377253792478" target="freeweibo-mirror">SPAM 我真的是难以理解……有这点钱做什么不好！//@Le…</a>
-</h2>
-<p>SPAM 我真的是难以理解……有这点钱做什么不好！//@LemonMarbles_:</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
