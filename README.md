@@ -54,7 +54,7 @@
 </h2>
 <p>回复@雪后的茉莉2016lucky:世界这么大，中国人移民海外投资置业没啥不可以，走之前得深深感谢赞美这个国家和时代。他让你有机会也有能力走出去，不是叙利亚难民，而是投资移民。到更大世界去竞争，不该感恩吗？多体验不同制度与社会，就知道机会在哪里，为什么这里有机会。[哈哈]<br><br>RE: 这是今天股市暴跌的原因？http://t.cn/RGCxPB9<br><img src="http://ww4.sinaimg.cn/large/6260d7eejw1f1bmbwv9h6j20y40yi11j.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3946454723152968" target="freeweibo-mirror">SPAM 被我上午说中了。</a>
 </h2>
@@ -66,7 +66,7 @@
 </h2>
 <p>究竟是谁的耻辱，历史终将有个正确定位，这已经是2016，不是1916。<br><img src="http://ww2.sinaimg.cn/large/6f0978aajw1f1boat5a2pj20hs0vkq6p.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3946433243397763" target="freeweibo-mirror">这是今天股市暴跌的原因？http://t.cn/RGCxPB…</a>
 </h2>
@@ -90,7 +90,7 @@
 </h2>
 <p>//@种花家的蓝领兔://@锋星0:转发微博<br><br>RE: #立场坚定斗志强#对于中央党校蔡霞的那篇给任志强洗地文章，这篇文章是最好的回应，把批评等同于胡说八道，罔议中央，鼓吹西式民主宪政，把网友对任志强的批评就等同于文革余孽，蔡霞，你这双标玩得溜啊http://t.cn/RG9y9nK</p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3946414369921976" target="freeweibo-mirror">SPAM 任總@任志强，唉，不說了⋯⋯</a>
 </h2>
