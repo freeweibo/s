@@ -54,7 +54,7 @@
 </h2>
 <p>煽动[弱]<br><br>RE: 【温州公布律师张凯案真相：煽动教徒非法聚集，对抗政府】去年7月以来，温州发生十余起被境内外网络炒作的非法聚集活动，经查，均系张凯幕后策划。据悉张凯企图借助境外势力给政府施压，挑动信教群众与政府的对立情绪。张凯在忏悔中说，通过这些事他认清了一些境外组织的真面目。http://t.cn/RGCusSP<br><img src="http://ww1.sinaimg.cn/large/005vnhZYgw1f1bsxhormhj30go0b4jrj.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3946487476606560" target="freeweibo-mirror">【温州公布律师张凯案真相：煽动教徒非法聚集，对抗政府】去年7…</a>
 </h2>
