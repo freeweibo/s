@@ -56,6 +56,18 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3946533567291259" target="freeweibo-mirror">报纸越干净，社会则越肮脏。电台越和谐，世道则越可怕。电视越美…</a>
+</h2>
+<p>报纸越干净，社会则越肮脏。电台越和谐，世道则越可怕。电视越美好，生活则越难过。电影越高尚，真实则越虚伪。一个正常的社会，不是只许歌颂，而是可以反对，不是只能感谢，而是可以批判。越是掩饰，则会越阴暗。越是粉饰，则会越虚伪。一个连真话都不能说、写、拍的社会，才是真正可怕的。@刀锋<br><img src="http://ww4.sinaimg.cn/large/006o6oVfjw1f1by7nbuk1j308r09n0te.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3946511341856618" target="freeweibo-mirror">多年经验告诉我：他真的失控了！</a>
+</h2>
+<p>多年经验告诉我：他真的失控了！<br><img src="http://ww4.sinaimg.cn/large/006ncmw0jw1f1bvoezt8sj30qr18gjx2.jpg"></p>
+<p>
+	<small> ============== 5小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3946501224511946" target="freeweibo-mirror">善恶有报，时候未到，时候一到，统统报销。加大对诉棍的打击力度…</a>
 </h2>
 <p>善恶有报，时候未到，时候一到，统统报销。加大对诉棍的打击力度，还百姓一个公正的司法环境。//@紫筱_Sun: 这是“我爸是李刚”的被害人家属代理律师~几年前还撒谎说自己开车在长安街被围堵。之前一直当榜样关注的，11年左右忘了什么事，发现不像他宣传的那种好人就取关了，竟然真出事了[挖鼻][拜拜]<br><br>RE: 【温州公布律师张凯案真相：煽动教徒非法聚集，对抗政府】去年7月以来，温州发生十余起被境内外网络炒作的非法聚集活动，经查，均系张凯幕后策划。据悉张凯企图借助境外势力给政府施压，挑动信教群众与政府的对立情绪。张凯在忏悔中说，通过这些事他认清了一些境外组织的真面目。http://t.cn/RGCusSP<br><img src="http://ww1.sinaimg.cn/large/005vnhZYgw1f1bsxhormhj30go0b4jrj.jpg"></p>
@@ -90,7 +102,7 @@
 </h2>
 <p>SPAM 回复@雪后的茉莉2016lucky:可以容忍意见不同的人，但以意见不同来进行攻击就不可以。现实是实力的结果，不无道理，为什么个人主观意见不同就不能接受现实呢？就像同性恋，大家可以视而不见宽容，但如果基佬要主动批评起异性恋，说那老土过时了，这不找抽吗？是不是这道理？<br><br>RE: 这是今天股市暴跌的原因？http://t.cn/RGCxPB9<br><img src="http://ww4.sinaimg.cn/large/6260d7eejw1f1bmbwv9h6j20y40yi11j.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3946462717265049" target="freeweibo-mirror">回复@雪后的茉莉2016lucky:世界这么大，中国人移民海…</a>
 </h2>
@@ -125,18 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3946418530580743" target="freeweibo-mirror">具体把大炮和某个具体领导并提，高看大炮了，他的态度和言行无需…</a>
 </h2>
 <p>具体把大炮和某个具体领导并提，高看大炮了，他的态度和言行无需多举证，大家都能看清。应该从性质上仔细辨析为什么需要回击任。早说过，个人保留不同意见是权利，攻击性主张，把别人并不离谱的选择意见倾向攻击为倒行逆施 伤天害理，任主动开炮就必然承担后果。生活中，不同意不是谁可骂人的理由。<br><br>RE: #立场坚定斗志强#对于中央党校蔡霞的那篇给任志强洗地文章，这篇文章是最好的回应，把批评等同于胡说八道，罔议中央，鼓吹西式民主宪政，把网友对任志强的批评就等同于文革余孽，蔡霞，你这双标玩得溜啊http://t.cn/RG9y9nK</p>
-<p>
-	<small> ============== 11小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3946416554665993" target="freeweibo-mirror">//@种花家的蓝领兔://@锋星0:转发微博</a>
-</h2>
-<p>//@种花家的蓝领兔://@锋星0:转发微博<br><br>RE: #立场坚定斗志强#对于中央党校蔡霞的那篇给任志强洗地文章，这篇文章是最好的回应，把批评等同于胡说八道，罔议中央，鼓吹西式民主宪政，把网友对任志强的批评就等同于文革余孽，蔡霞，你这双标玩得溜啊http://t.cn/RG9y9nK</p>
-<p>
-	<small> ============== 11小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3946414369921976" target="freeweibo-mirror">SPAM 任總@任志强，唉，不說了⋯⋯</a>
-</h2>
-<p>SPAM 任總@任志强，唉，不說了⋯⋯<br><img src="http://ww1.sinaimg.cn/large/5938d248jw1f1bkivbk2pj20hd0dcjsr.jpg"></p>
 <p>
 	<small> ============== 11小时前</small>
 </p>
