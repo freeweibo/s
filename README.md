@@ -60,19 +60,19 @@
 </h2>
 <p>//@普法三十年-://@睡到自然醒啦1: //@加c菲炮1314Cat:转发微博<br><br>RE: 报纸越干净，社会则越肮脏。电台越和谐，世道则越可怕。电视越美好，生活则越难过。电影越高尚，真实则越虚伪。一个正常的社会，不是只许歌颂，而是可以反对，不是只能感谢，而是可以批判。越是掩饰，则会越阴暗。越是粉饰，则会越虚伪。一个连真话都不能说、写、拍的社会，才是真正可怕的。@刀锋<br><img src="http://ww4.sinaimg.cn/large/006o6oVfjw1f1by7nbuk1j308r09n0te.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3946544967185351" target="freeweibo-mirror">//@狐哥归来://@广州湾在线: //@啦啦啦哦啦://@…</a>
 </h2>
 <p>//@狐哥归来://@广州湾在线: //@啦啦啦哦啦://@夙生律师事务所: //@红太郎200111: 转发微博<br><br>RE: 谷俊山不是耻辱，薄熙来不是耻辱，令完成不是耻辱，周永康不是耻辱，姬胜德不是耻辱，说几句你们不爱听的真话，就成了8000多万党员的耻辱。你们真是恶趣味啊。</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3946544858027401" target="freeweibo-mirror">//@广州湾在线://@贾公知:转发微博</a>
 </h2>
 <p>//@广州湾在线://@贾公知:转发微博<br><br>RE: 多年经验告诉我：他真的失控了！<br><img src="http://ww4.sinaimg.cn/large/006ncmw0jw1f1bvoezt8sj30qr18gjx2.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3946533567291259" target="freeweibo-mirror">报纸越干净，社会则越肮脏。电台越和谐，世道则越可怕。电视越美…</a>
 </h2>
@@ -138,7 +138,7 @@
 </h2>
 <p>SPAM 被我上午说中了。<br><br>RE: 这是今天股市暴跌的原因？http://t.cn/RGCxPB9<br><img src="http://ww4.sinaimg.cn/large/6260d7eejw1f1bmbwv9h6j20y40yi11j.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p>
 <table>
     <tr>
