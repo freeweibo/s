@@ -20,6 +20,18 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3946565485667150" target="freeweibo-mirror">卧槽～[抓狂]//@JiJi_MoMo:回复@Dezso:请…</a>
+</h2>
+<p>卧槽～[抓狂]//@JiJi_MoMo:回复@Dezso:请问是放一元的硬币还是放一角硬币的？ //@Dezso:刚真的试了一下，勉强能放8枚[doge]，不信私信我[阴险]<br><br>RE: 朋友送了我一本书，全是自拍，拍的都是各国硬币，我说这有什么好看的，大家快来评评理这书买的值不值。。。<br><img src="http://ww1.sinaimg.cn/large/8f321405jw1f1bvios4xbj20x718gqd3.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3946558384716475" target="freeweibo-mirror">//@南人一方:显然，包子要的是个人意志凌驾于国民意志，以一…</a>
+</h2>
+<p>//@南人一方:显然，包子要的是个人意志凌驾于国民意志，以一己之野心，绑架一个国家。</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3946552613732378" target="freeweibo-mirror">[哈哈]//@榕粉团: 回复@良_民_證:挺丰富的。剧透入门…</a>
 </h2>
 <p>[哈哈]//@榕粉团: 回复@良_民_證:挺丰富的。剧透入门啊：牢记语录100句。最常用的分别是：阶级斗争，一抓就灵。凡是敌人拥护的，我们就要反对。革命不是请客吃饭。革命无罪，造反有理。帝国主义及一切反动派都是纸老虎。不破不立。知识青年到农村去... //@良_民_證:有哪些课程啊？<br><br>RE: 活这么半辈子搞不好能赶上两次文革，也是不容易啊。当过几天正宗红卫兵团长（主要是主持广播站、写黑板报，反击右倾翻案风啥的，没真的斗过任何人）的在下，是不是可以考虑开补习班了。</p>
@@ -42,19 +54,19 @@
 </h2>
 <p>//@普法三十年-://@睡到自然醒啦1: //@加c菲炮1314Cat:转发微博<br><br>RE: 报纸越干净，社会则越肮脏。电台越和谐，世道则越可怕。电视越美好，生活则越难过。电影越高尚，真实则越虚伪。一个正常的社会，不是只许歌颂，而是可以反对，不是只能感谢，而是可以批判。越是掩饰，则会越阴暗。越是粉饰，则会越虚伪。一个连真话都不能说、写、拍的社会，才是真正可怕的。@刀锋<br><img src="http://ww4.sinaimg.cn/large/006o6oVfjw1f1by7nbuk1j308r09n0te.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3946544967185351" target="freeweibo-mirror">//@狐哥归来://@广州湾在线: //@啦啦啦哦啦://@…</a>
 </h2>
 <p>//@狐哥归来://@广州湾在线: //@啦啦啦哦啦://@夙生律师事务所: //@红太郎200111: 转发微博<br><br>RE: 谷俊山不是耻辱，薄熙来不是耻辱，令完成不是耻辱，周永康不是耻辱，姬胜德不是耻辱，说几句你们不爱听的真话，就成了8000多万党员的耻辱。你们真是恶趣味啊。</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3946544858027401" target="freeweibo-mirror">//@广州湾在线://@贾公知:转发微博</a>
 </h2>
 <p>//@广州湾在线://@贾公知:转发微博<br><br>RE: 多年经验告诉我：他真的失控了！<br><img src="http://ww4.sinaimg.cn/large/006ncmw0jw1f1bvoezt8sj30qr18gjx2.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3946533567291259" target="freeweibo-mirror">报纸越干净，社会则越肮脏。电台越和谐，世道则越可怕。电视越美…</a>
 </h2>
@@ -114,7 +126,7 @@
 </h2>
 <p>SPAM 被我上午说中了。<br><br>RE: 这是今天股市暴跌的原因？http://t.cn/RGCxPB9<br><img src="http://ww4.sinaimg.cn/large/6260d7eejw1f1bmbwv9h6j20y40yi11j.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3946447139852297" target="freeweibo-mirror">究竟是谁的耻辱，历史终将有个正确定位，这已经是2016，不是…</a>
 </h2>
@@ -127,18 +139,6 @@
 <p>这是今天股市暴跌的原因？http://t.cn/RGCxPB9<br><img src="http://ww4.sinaimg.cn/large/6260d7eejw1f1bmbwv9h6j20y40yi11j.jpg"></p>
 <p>
 	<small> ============== 10小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3946429786924283" target="freeweibo-mirror">SPAM 原博已删。只想说，大家都是成年人了，是需要对自己说…</a>
-</h2>
-<p>SPAM 原博已删。只想说，大家都是成年人了，是需要对自己说过的话负责的；如果怕被挂，就别嘴X。<br><img src="http://ww1.sinaimg.cn/large/648ac377gw1f1bm9jc7qfj20w20kawfr.jpg"></p>
-<p>
-	<small> ============== 10小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3946418530580743" target="freeweibo-mirror">具体把大炮和某个具体领导并提，高看大炮了，他的态度和言行无需…</a>
-</h2>
-<p>具体把大炮和某个具体领导并提，高看大炮了，他的态度和言行无需多举证，大家都能看清。应该从性质上仔细辨析为什么需要回击任。早说过，个人保留不同意见是权利，攻击性主张，把别人并不离谱的选择意见倾向攻击为倒行逆施 伤天害理，任主动开炮就必然承担后果。生活中，不同意不是谁可骂人的理由。<br><br>RE: #立场坚定斗志强#对于中央党校蔡霞的那篇给任志强洗地文章，这篇文章是最好的回应，把批评等同于胡说八道，罔议中央，鼓吹西式民主宪政，把网友对任志强的批评就等同于文革余孽，蔡霞，你这双标玩得溜啊http://t.cn/RG9y9nK</p>
-<p>
-	<small> ============== 11小时前</small>
 </p>
 <table>
     <tr>
