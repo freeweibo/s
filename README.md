@@ -102,7 +102,7 @@
 </h2>
 <p>大国应大度，大国政府慌什么？岂能任志强几句话搞的动用政府喉舌群起攻之，自信呢？失态、失态！//@扬州宽带网:大国应大度!慌什么?岂能任志强几句话搞的媒体群起攻之，失态、失态。<br><br>RE: 究竟是谁的耻辱，历史终将有个正确定位，这已经是2016，不是1916。<br><img src="http://ww2.sinaimg.cn/large/6f0978aajw1f1boat5a2pj20hs0vkq6p.jpg"></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3946488616417611" target="freeweibo-mirror">煽动[弱]</a>
 </h2>
@@ -120,7 +120,7 @@
 </h2>
 <p>谷俊山不是耻辱，薄熙来不是耻辱，令完成不是耻辱，周永康不是耻辱，姬胜德不是耻辱，说几句你们不爱听的真话，就成了8000多万党员的耻辱。你们真是恶趣味啊。</p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3946465527293125" target="freeweibo-mirror">SPAM 回复@雪后的茉莉2016lucky:可以容忍意见不…</a>
 </h2>
