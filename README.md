@@ -24,7 +24,7 @@
 </h2>
 <p>[哈哈]//@榕粉团: 回复@良_民_證:挺丰富的。剧透入门啊：牢记语录100句。最常用的分别是：阶级斗争，一抓就灵。凡是敌人拥护的，我们就要反对。革命不是请客吃饭。革命无罪，造反有理。帝国主义及一切反动派都是纸老虎。不破不立。知识青年到农村去... //@良_民_證:有哪些课程啊？<br><br>RE: 活这么半辈子搞不好能赶上两次文革，也是不容易啊。当过几天正宗红卫兵团长（主要是主持广播站、写黑板报，反击右倾翻案风啥的，没真的斗过任何人）的在下，是不是可以考虑开补习班了。</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3946550952046190" target="freeweibo-mirror">SPAM //@文盲李世威:美帝该骂！ 附《美国是最大的独裁…</a>
 </h2>
@@ -35,6 +35,12 @@
 	<a href="https://freeweibo.com/weibo/3946548481980571" target="freeweibo-mirror">活这么半辈子搞不好能赶上两次文革，也是不容易啊。当过几天正宗…</a>
 </h2>
 <p>活这么半辈子搞不好能赶上两次文革，也是不容易啊。当过几天正宗红卫兵团长（主要是主持广播站、写黑板报，反击右倾翻案风啥的，没真的斗过任何人）的在下，是不是可以考虑开补习班了。</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3946545089152708" target="freeweibo-mirror">//@普法三十年-://@睡到自然醒啦1: //@加c菲炮1…</a>
+</h2>
+<p>//@普法三十年-://@睡到自然醒啦1: //@加c菲炮1314Cat:转发微博<br><br>RE: 报纸越干净，社会则越肮脏。电台越和谐，世道则越可怕。电视越美好，生活则越难过。电影越高尚，真实则越虚伪。一个正常的社会，不是只许歌颂，而是可以反对，不是只能感谢，而是可以批判。越是掩饰，则会越阴暗。越是粉饰，则会越虚伪。一个连真话都不能说、写、拍的社会，才是真正可怕的。@刀锋<br><img src="http://ww4.sinaimg.cn/large/006o6oVfjw1f1by7nbuk1j308r09n0te.jpg"></p>
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
@@ -84,7 +90,7 @@
 </h2>
 <p>回复@雪后的茉莉2016lucky:世界这么大，中国人移民海外投资置业没啥不可以，走之前得深深感谢赞美这个国家和时代。他让你有机会也有能力走出去，不是叙利亚难民，而是投资移民。到更大世界去竞争，不该感恩吗？多体验不同制度与社会，就知道机会在哪里，为什么这里有机会。[哈哈]<br><br>RE: 这是今天股市暴跌的原因？http://t.cn/RGCxPB9<br><img src="http://ww4.sinaimg.cn/large/6260d7eejw1f1bmbwv9h6j20y40yi11j.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3946454723152968" target="freeweibo-mirror">SPAM 被我上午说中了。</a>
 </h2>
@@ -96,7 +102,7 @@
 </h2>
 <p>究竟是谁的耻辱，历史终将有个正确定位，这已经是2016，不是1916。<br><img src="http://ww2.sinaimg.cn/large/6f0978aajw1f1boat5a2pj20hs0vkq6p.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3946433243397763" target="freeweibo-mirror">这是今天股市暴跌的原因？http://t.cn/RGCxPB…</a>
 </h2>
@@ -120,7 +126,7 @@
 </h2>
 <p>//@种花家的蓝领兔://@锋星0:转发微博<br><br>RE: #立场坚定斗志强#对于中央党校蔡霞的那篇给任志强洗地文章，这篇文章是最好的回应，把批评等同于胡说八道，罔议中央，鼓吹西式民主宪政，把网友对任志强的批评就等同于文革余孽，蔡霞，你这双标玩得溜啊http://t.cn/RG9y9nK</p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3946414369921976" target="freeweibo-mirror">SPAM 任總@任志强，唉，不說了⋯⋯</a>
 </h2>
@@ -133,12 +139,6 @@
 <p>SPAM $中航三鑫 sz002163$ 春江水暖鸭先知，强势股中航周二就开始调整了[酷]  http://t.cn/RGCCQj4</p>
 <p>
 	<small> ============== 12小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3946393212939867" target="freeweibo-mirror">人性猖狂，党性就泯灭了[疑问][思考]</a>
-</h2>
-<p>人性猖狂，党性就泯灭了[疑问][思考]<br><img src="http://ww3.sinaimg.cn/large/7e035fcbgw1f1bi3uzwozj20j61lfdsy.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
 </p>
 <table>
     <tr>
