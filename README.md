@@ -42,13 +42,13 @@
 </h2>
 <p>SPAM //@黄河直播12:得道多助，失道寡助 //@吕洞宾出山了:[哼]//@六安自媒体:[吃惊]//@王周生:怎么可以？！<br><br>RE: 目前已有 176 个国家支持取消中国在联合国的否决权。<br><img src="http://ww3.sinaimg.cn/large/a611cabfgw1f1ae17851ej20c809mjs4.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3946179915788148" target="freeweibo-mirror">铁肩担道义！陈律律界中流砥柱</a>
 </h2>
 <p>铁肩担道义！陈律律界中流砥柱</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3946177366116093" target="freeweibo-mirror">SPAM [doge]//@湘微笑6: //@成都双爷: 不…</a>
 </h2>
