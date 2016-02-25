@@ -24,7 +24,7 @@
 </h2>
 <p>[威武]//@我是半耳人: 必须支持大炮！//@悲夫-愚夫: [good]//@迟夙生律师:我不是党员，但是我会站在大炮的身后。//@yehanjie：迟律师是党员吗</p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3946187818788947" target="freeweibo-mirror">SPAM //@黄河直播12:得道多助，失道寡助 //@吕洞…</a>
 </h2>
@@ -72,7 +72,7 @@
 </h2>
 <p>//@开博救母: //@崔小平律师://@李如玉微博:共同发声，转起来![话筒]<br><br>RE: ...... http://t.cn/RG9nlL4致两会的公开信<br><img src="http://ww4.sinaimg.cn/large/ab73c156jw1f1amao9qdfj206o06ot8o.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3946124954482272" target="freeweibo-mirror">SPAM //@谓贤:皇宫怎么会是小区？休想尿入墙屎入海！/…</a>
 </h2>
