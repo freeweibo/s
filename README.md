@@ -32,6 +32,12 @@
 <p>
 	<small> ============== 1小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3946548481980571" target="freeweibo-mirror">活这么半辈子搞不好能赶上两次文革，也是不容易啊。当过几天正宗…</a>
+</h2>
+<p>活这么半辈子搞不好能赶上两次文革，也是不容易啊。当过几天正宗红卫兵团长（主要是主持广播站、写黑板报，反击右倾翻案风啥的，没真的斗过任何人）的在下，是不是可以考虑开补习班了。</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3946544967185351" target="freeweibo-mirror">//@狐哥归来://@广州湾在线: //@啦啦啦哦啦://@…</a>
 </h2>
 <p>//@狐哥归来://@广州湾在线: //@啦啦啦哦啦://@夙生律师事务所: //@红太郎200111: 转发微博<br><br>RE: 谷俊山不是耻辱，薄熙来不是耻辱，令完成不是耻辱，周永康不是耻辱，姬胜德不是耻辱，说几句你们不爱听的真话，就成了8000多万党员的耻辱。你们真是恶趣味啊。</p>
@@ -102,7 +108,7 @@
 </h2>
 <p>SPAM 原博已删。只想说，大家都是成年人了，是需要对自己说过的话负责的；如果怕被挂，就别嘴X。<br><img src="http://ww1.sinaimg.cn/large/648ac377gw1f1bm9jc7qfj20w20kawfr.jpg"></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3946418530580743" target="freeweibo-mirror">具体把大炮和某个具体领导并提，高看大炮了，他的态度和言行无需…</a>
 </h2>
@@ -120,25 +126,19 @@
 </h2>
 <p>SPAM 任總@任志强，唉，不說了⋯⋯<br><img src="http://ww1.sinaimg.cn/large/5938d248jw1f1bkivbk2pj20hd0dcjsr.jpg"></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3946399244054045" target="freeweibo-mirror">SPAM $中航三鑫 sz002163$ 春江水暖鸭先知，强…</a>
 </h2>
 <p>SPAM $中航三鑫 sz002163$ 春江水暖鸭先知，强势股中航周二就开始调整了[酷]  http://t.cn/RGCCQj4</p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3946393212939867" target="freeweibo-mirror">人性猖狂，党性就泯灭了[疑问][思考]</a>
 </h2>
 <p>人性猖狂，党性就泯灭了[疑问][思考]<br><img src="http://ww3.sinaimg.cn/large/7e035fcbgw1f1bi3uzwozj20j61lfdsy.jpg"></p>
 <p>
 	<small> ============== 12小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3946383855205045" target="freeweibo-mirror">SPAM 脑裂散……//@Lxl_aaron:之前不是有个已…</a>
-</h2>
-<p>SPAM 脑裂散……//@Lxl_aaron:之前不是有个已婚男的花了大概200万睡了两个斗鱼主播，那男的家里也就几百万，泡妞时候还租了辆宝马。为了泡妞散尽家财，最后家里人还管那两个主播讨钱<br><br>RE: #斗鱼mini# 说实话我对这个什么斗鱼mini视频的一点都不感兴趣，只有没见过世面的小年轻才会大惊小怪。我只想借几张图告诫一下年轻人，结合昨天醉鸡打分很多人看走眼事件，看女人不能看包装好的成果，再纯平如飞机场跑道的女人都能挤成36D，那些深V大部分都是假的，即使真的胸大也未必是真胸，社会变了<br><img src="http://ww1.sinaimg.cn/large/a1b6e757gw1f1b9djybwgj20j20ff0ts.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
 </p>
 <table>
     <tr>
