@@ -66,7 +66,7 @@
 </h2>
 <p>SPAM 如果你愿意 想 瘦可以找她       @QueenOfThin美人邦</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3946151361021964" target="freeweibo-mirror">//@陈有西: 岂敢。中图一字写錯了，原教旨主义。</a>
 </h2>
