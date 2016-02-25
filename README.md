@@ -108,7 +108,7 @@
 </h2>
 <p>人性猖狂，党性就泯灭了[疑问][思考]<br><img src="http://ww3.sinaimg.cn/large/7e035fcbgw1f1bi3uzwozj20j61lfdsy.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3946383855205045" target="freeweibo-mirror">SPAM 脑裂散……//@Lxl_aaron:之前不是有个已…</a>
 </h2>
