@@ -48,7 +48,7 @@
 </h2>
 <p>SPAM 回复@雪后的茉莉2016lucky:可以容忍意见不同的人，但以意见不同来进行攻击就不可以。现实是实力的结果，不无道理，为什么个人主观意见不同就不能接受现实呢？就像同性恋，大家可以视而不见宽容，但如果基佬要主动批评起异性恋，说那老土过时了，这不找抽吗？是不是这道理？<br><br>RE: 这是今天股市暴跌的原因？http://t.cn/RGCxPB9<br><img src="http://ww4.sinaimg.cn/large/6260d7eejw1f1bmbwv9h6j20y40yi11j.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3946462717265049" target="freeweibo-mirror">回复@雪后的茉莉2016lucky:世界这么大，中国人移民海…</a>
 </h2>
