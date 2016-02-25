@@ -60,7 +60,7 @@
 </h2>
 <p>SPAM 被我上午说中了。<br><br>RE: 这是今天股市暴跌的原因？http://t.cn/RGCxPB9<br><img src="http://ww4.sinaimg.cn/large/6260d7eejw1f1bmbwv9h6j20y40yi11j.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3946447139852297" target="freeweibo-mirror">究竟是谁的耻辱，历史终将有个正确定位，这已经是2016，不是…</a>
 </h2>
