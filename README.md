@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3946904297380831" target="freeweibo-mirror">//@自由职业者在浦东: //@博者文摘:转发微博</a>
+</h2>
+<p>//@自由职业者在浦东: //@博者文摘:转发微博<br><br>RE: 【什么是“两会”？】简单地说，就是“两种人”的聚会。一种人：不敢公布财产；另一种人：不敢公布国籍！！@南国一匹狼<br><img src="http://ww1.sinaimg.cn/large/006o6oVfjw1f1d2aj9bvnj31460qo11s.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3946865202350786" target="freeweibo-mirror">[哈哈]//@摸着石头过河---水太深: //@雁塔小木屋4…</a>
 </h2>
 <p>[哈哈]//@摸着石头过河---水太深: //@雁塔小木屋4://@nb沈榄: //@许合文://@世俗的苦行僧:[哈哈][哈哈]//@无畏剃DAO: //@南开老魏034: //@自由联盟八世: //@四维不存:转发微博<br><br>RE: 微信看到个好段子，大家乐一个[哈哈]<br><img src="http://ww2.sinaimg.cn/large/006lZhUygw1f1cuqq0ah1j30ic0kedir.jpg"></p>
@@ -96,7 +102,7 @@
 </h2>
 <p>//@当律师的陈刚: //@邓相超://@星火必燎原: //@摸着石头过河---水太深://@关洪导演://@崔小平律师://@虎叔-:轉發微博<br><br>RE: 今天是中共中央发出《关于为所谓“习仲勋反党集团”平反的通知》的第36个年头。过去利用小说反党是一大发明，现在利用微博反党也是一大发明。<br><img src="http://ww4.sinaimg.cn/large/9ddb72ebjw1f1cdxyombhj20ku112dml.jpg"></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3946760277487533" target="freeweibo-mirror">SPAM 打倒任志强！//@六国虹:敢于直言的猛士！[赞] …</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3946754145524413" target="freeweibo-mirror">//@妙兰先生: //@飚叔钢笔画47:[偷笑]//@我叫强…</a>
 </h2>
 <p>//@妙兰先生: //@飚叔钢笔画47:[偷笑]//@我叫强老湿: 查处周永康， 令计划和徐才厚等人， 8000万党员都没觉得是耻辱， 任大炮这是犯了个多大的错误呀？[晕]<br><br>RE: #任志强#坚决打倒一切敌对势力！<br><img src="http://ww1.sinaimg.cn/large/005wiLQxgw1f1clmfivndj319q1tmav8.jpg"></p>
-<p>
-	<small> ============== 11小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3946752698490674" target="freeweibo-mirror">【不杀言官】历朝历代皆有“不杀言官”传统。原因很简单，历史一…</a>
-</h2>
-<p>【不杀言官】历朝历代皆有“不杀言官”传统。原因很简单，历史一再表明：导致国家灭亡、政权倾覆的从来都不是死谏的言官，而是一味揣摩上意、溜须拍马的太监。@任志强 就是没有头衔的“言官”。言官冒死直谏，不是哗众取宠，而是“为什么我的眼里常含泪水，因为爱这片土地爱的深沉”，是中国最可爱的人<br><img src="http://ww4.sinaimg.cn/large/709b1d0ejw1f1cn5fup3hj20ir0dk3zs.jpg"></p>
 <p>
 	<small> ============== 11小时前</small>
 </p>
