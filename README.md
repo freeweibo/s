@@ -84,7 +84,7 @@
 </h2>
 <p>//@袁莉wsj: //@清华孙立平://@贺延光: [good][good][good]<br><br>RE: 任志强 : 不要以为对党的历史和现状提出批评就是反党。-灵魂绽放的博客中国专栏 http://t.cn/RGNwpuB</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3946750895567062" target="freeweibo-mirror">//@CFYY陈封: //@大学生讲坛:@FLY4239： …</a>
 </h2>
@@ -126,7 +126,7 @@
 </h2>
 <p>SPAM //@袁莉wsj: Repost<br><br>RE: 请用《党委会的工作方法》来对待任志强 http://t.cn/RGNGJVd</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3946720255604883" target="freeweibo-mirror">SPAM //@袁莉wsj: //@周克成://@磨思: 任…</a>
 </h2>
