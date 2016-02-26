@@ -114,7 +114,7 @@
 </h2>
 <p>//@当律师的陈刚: //@邓相超://@星火必燎原: //@摸着石头过河---水太深://@关洪导演://@崔小平律师://@虎叔-:轉發微博<br><br>RE: 今天是中共中央发出《关于为所谓“习仲勋反党集团”平反的通知》的第36个年头。过去利用小说反党是一大发明，现在利用微博反党也是一大发明。<br><img src="http://ww4.sinaimg.cn/large/9ddb72ebjw1f1cdxyombhj20ku112dml.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3946760277487533" target="freeweibo-mirror">SPAM 打倒任志强！//@六国虹:敢于直言的猛士！[赞] …</a>
 </h2>
@@ -132,13 +132,13 @@
 </h2>
 <p>//@刘力博士://@大气磅礴2015:文革的节奏又回来了，不是又反革命吧//@王小山: 眼看快成我们群众了，哈哈。<br><br>RE: 邝飙作品<br><img src="http://ww2.sinaimg.cn/large/539d77e6gw1f1cm9j5oorj20k00spq71.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3946755987424332" target="freeweibo-mirror">倒退！</a>
 </h2>
 <p>倒退！<br><br>RE: 【不杀言官】历朝历代皆有“不杀言官”传统。原因很简单，历史一再表明：导致国家灭亡、政权倾覆的从来都不是死谏的言官，而是一味揣摩上意、溜须拍马的太监。@任志强 就是没有头衔的“言官”。言官冒死直谏，不是哗众取宠，而是“为什么我的眼里常含泪水，因为爱这片土地爱的深沉”，是中国最可爱的人<br><img src="http://ww4.sinaimg.cn/large/709b1d0ejw1f1cn5fup3hj20ir0dk3zs.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p>
 <table>
     <tr>
