@@ -102,7 +102,7 @@
 </h2>
 <p>SPAM 打倒任志强！//@六国虹:敢于直言的猛士！[赞] //@吴铭:秦人不暇自哀。<br><br>RE: 眼看快回到我们群众中来了，哈哈。<br><img src="http://ww1.sinaimg.cn/large/684c74ecgw1f1cn3y0bpoj20fh0m80zl.jpg"></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3946759056878471" target="freeweibo-mirror">反驳的不错。 //@纪小婪: //@清华孙立平: //@贺延…</a>
 </h2>
