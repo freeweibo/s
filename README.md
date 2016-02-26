@@ -36,7 +36,7 @@
 </h2>
 <p>【什么是“两会”？】简单地说，就是“两种人”的聚会。一种人：不敢公布财产；另一种人：不敢公布国籍！！@南国一匹狼<br><img src="http://ww1.sinaimg.cn/large/006o6oVfjw1f1d2aj9bvnj31460qo11s.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3946865202350786" target="freeweibo-mirror">[哈哈]//@摸着石头过河---水太深: //@雁塔小木屋4…</a>
 </h2>
@@ -72,13 +72,13 @@
 </h2>
 <p>SPAM 最美女教授！</p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3946791852521729" target="freeweibo-mirror">回复@水城孔府:那是写入宪法。哈哈哈。 //@水城孔府:党章…</a>
 </h2>
 <p>回复@水城孔府:那是写入宪法。哈哈哈。 //@水城孔府:党章也是会变的，林副统帅不也写在党章里过？ //@逆风蝴蝶:到底谁反党，开始亮党章党规。  //@IYALAN: //@北马南山: //@常州杨洪波: 转发微博<br><br>RE: 今日最美女教授<br><img src="http://ww4.sinaimg.cn/large/006m17vkjw1f1cnpeecdhj30f00qon0o.jpg"></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3946780674317594" target="freeweibo-mirror">SPAM //@天天Y向上:还有真正的党员存在！[good]</a>
 </h2>
