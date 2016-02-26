@@ -72,7 +72,7 @@
 </h2>
 <p>//@当律师的陈刚: //@邓相超://@星火必燎原: //@摸着石头过河---水太深://@关洪导演://@崔小平律师://@虎叔-:轉發微博<br><br>RE: 今天是中共中央发出《关于为所谓“习仲勋反党集团”平反的通知》的第36个年头。过去利用小说反党是一大发明，现在利用微博反党也是一大发明。<br><img src="http://ww4.sinaimg.cn/large/9ddb72ebjw1f1cdxyombhj20ku112dml.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3946760277487533" target="freeweibo-mirror">SPAM 打倒任志强！//@六国虹:敢于直言的猛士！[赞] …</a>
 </h2>
