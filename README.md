@@ -48,7 +48,7 @@
 </h2>
 <p>流氓一旦有文化，就无耻得很彻底，光屁股裸奔也会形容得很完美。大明乱于言官，灭于东林党的嘴炮中。看到这，崇祯要从地底下跳出来扇你耳光。<br><br>RE: 【不杀言官】历朝历代皆有“不杀言官”传统。原因很简单，历史一再表明：导致国家灭亡、政权倾覆的从来都不是死谏的言官，而是一味揣摩上意、溜须拍马的太监。@任志强 就是没有头衔的“言官”。言官冒死直谏，不是哗众取宠，而是“为什么我的眼里常含泪水，因为爱这片土地爱的深沉”，是中国最可爱的人<br><img src="http://ww4.sinaimg.cn/large/709b1d0ejw1f1cn5fup3hj20ir0dk3zs.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3946769739513941" target="freeweibo-mirror">还有半夜能与高层通电话的官员……//@小小鸟: 言官,指能与…</a>
 </h2>
@@ -90,13 +90,13 @@
 </h2>
 <p>//@刘力博士://@大气磅礴2015:文革的节奏又回来了，不是又反革命吧//@王小山: 眼看快成我们群众了，哈哈。<br><br>RE: 邝飙作品<br><img src="http://ww2.sinaimg.cn/large/539d77e6gw1f1cm9j5oorj20k00spq71.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3946755987424332" target="freeweibo-mirror">倒退！</a>
 </h2>
 <p>倒退！<br><br>RE: 【不杀言官】历朝历代皆有“不杀言官”传统。原因很简单，历史一再表明：导致国家灭亡、政权倾覆的从来都不是死谏的言官，而是一味揣摩上意、溜须拍马的太监。@任志强 就是没有头衔的“言官”。言官冒死直谏，不是哗众取宠，而是“为什么我的眼里常含泪水，因为爱这片土地爱的深沉”，是中国最可爱的人<br><img src="http://ww4.sinaimg.cn/large/709b1d0ejw1f1cn5fup3hj20ir0dk3zs.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3946755433331636" target="freeweibo-mirror">今日最美女教授</a>
 </h2>
