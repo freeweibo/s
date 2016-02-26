@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3946919757590247" target="freeweibo-mirror">@任志强 大炮同志，回到人民群众中来吧！[赞]</a>
+</h2>
+<p>@任志强 大炮同志，回到人民群众中来吧！[赞]</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3946904297380831" target="freeweibo-mirror">//@自由职业者在浦东: //@博者文摘:转发微博</a>
 </h2>
 <p>//@自由职业者在浦东: //@博者文摘:转发微博<br><br>RE: 【什么是“两会”？】简单地说，就是“两种人”的聚会。一种人：不敢公布财产；另一种人：不敢公布国籍！！@南国一匹狼<br><img src="http://ww1.sinaimg.cn/large/006o6oVfjw1f1d2aj9bvnj31460qo11s.jpg"></p>
@@ -54,13 +60,13 @@
 </h2>
 <p>王怡牧师：关于张凯一案的个人声明<br><img src="http://ww3.sinaimg.cn/large/0068r69ojw1f1curij3xkj30ri4oc7wh.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3946816725059061" target="freeweibo-mirror">微信看到个好段子，大家乐一个[哈哈]</a>
 </h2>
 <p>微信看到个好段子，大家乐一个[哈哈]<br><img src="http://ww2.sinaimg.cn/large/006lZhUygw1f1cuqq0ah1j30ic0kedir.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3946795459503546" target="freeweibo-mirror">SPAM 今晚微信公众号:希希的成长日记20:30节目预告 …</a>
 </h2>
@@ -90,7 +96,7 @@
 </h2>
 <p>流氓一旦有文化，就无耻得很彻底，光屁股裸奔也会形容得很完美。大明乱于言官，灭于东林党的嘴炮中。看到这，崇祯要从地底下跳出来扇你耳光。<br><br>RE: 【不杀言官】历朝历代皆有“不杀言官”传统。原因很简单，历史一再表明：导致国家灭亡、政权倾覆的从来都不是死谏的言官，而是一味揣摩上意、溜须拍马的太监。@任志强 就是没有头衔的“言官”。言官冒死直谏，不是哗众取宠，而是“为什么我的眼里常含泪水，因为爱这片土地爱的深沉”，是中国最可爱的人<br><img src="http://ww4.sinaimg.cn/large/709b1d0ejw1f1cn5fup3hj20ir0dk3zs.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3946769739513941" target="freeweibo-mirror">还有半夜能与高层通电话的官员……//@小小鸟: 言官,指能与…</a>
 </h2>
@@ -114,7 +120,7 @@
 </h2>
 <p>//@当律师的陈刚: //@邓相超://@星火必燎原: //@摸着石头过河---水太深://@关洪导演://@崔小平律师://@虎叔-:轉發微博<br><br>RE: 今天是中共中央发出《关于为所谓“习仲勋反党集团”平反的通知》的第36个年头。过去利用小说反党是一大发明，现在利用微博反党也是一大发明。<br><img src="http://ww4.sinaimg.cn/large/9ddb72ebjw1f1cdxyombhj20ku112dml.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3946760277487533" target="freeweibo-mirror">SPAM 打倒任志强！//@六国虹:敢于直言的猛士！[赞] …</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3946757102246122" target="freeweibo-mirror">//@刘力博士://@大气磅礴2015:文革的节奏又回来了，…</a>
 </h2>
 <p>//@刘力博士://@大气磅礴2015:文革的节奏又回来了，不是又反革命吧//@王小山: 眼看快成我们群众了，哈哈。<br><br>RE: 邝飙作品<br><img src="http://ww2.sinaimg.cn/large/539d77e6gw1f1cm9j5oorj20k00spq71.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3946755987424332" target="freeweibo-mirror">倒退！</a>
-</h2>
-<p>倒退！<br><br>RE: 【不杀言官】历朝历代皆有“不杀言官”传统。原因很简单，历史一再表明：导致国家灭亡、政权倾覆的从来都不是死谏的言官，而是一味揣摩上意、溜须拍马的太监。@任志强 就是没有头衔的“言官”。言官冒死直谏，不是哗众取宠，而是“为什么我的眼里常含泪水，因为爱这片土地爱的深沉”，是中国最可爱的人<br><img src="http://ww4.sinaimg.cn/large/709b1d0ejw1f1cn5fup3hj20ir0dk3zs.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
