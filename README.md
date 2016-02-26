@@ -24,7 +24,7 @@
 </h2>
 <p>流氓一旦有文化，就无耻得很彻底，光屁股裸奔也会形容得很完美。大明乱于言官，灭于东林党的嘴炮中。看到这，崇祯要从地底下跳出来扇你耳光。<br><br>RE: 【不杀言官】历朝历代皆有“不杀言官”传统。原因很简单，历史一再表明：导致国家灭亡、政权倾覆的从来都不是死谏的言官，而是一味揣摩上意、溜须拍马的太监。@任志强 就是没有头衔的“言官”。言官冒死直谏，不是哗众取宠，而是“为什么我的眼里常含泪水，因为爱这片土地爱的深沉”，是中国最可爱的人<br><img src="http://ww4.sinaimg.cn/large/709b1d0ejw1f1cn5fup3hj20ir0dk3zs.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3946769739513941" target="freeweibo-mirror">还有半夜能与高层通电话的官员……//@小小鸟: 言官,指能与…</a>
 </h2>
@@ -35,6 +35,12 @@
 	<a href="https://freeweibo.com/weibo/3946767731610244" target="freeweibo-mirror">//@刘胜军改革:言官的座右铭：臣言已行，臣死何憾！</a>
 </h2>
 <p>//@刘胜军改革:言官的座右铭：臣言已行，臣死何憾！<br><br>RE: 【不杀言官】历朝历代皆有“不杀言官”传统。原因很简单，历史一再表明：导致国家灭亡、政权倾覆的从来都不是死谏的言官，而是一味揣摩上意、溜须拍马的太监。@任志强 就是没有头衔的“言官”。言官冒死直谏，不是哗众取宠，而是“为什么我的眼里常含泪水，因为爱这片土地爱的深沉”，是中国最可爱的人<br><img src="http://ww4.sinaimg.cn/large/709b1d0ejw1f1cn5fup3hj20ir0dk3zs.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3946767592631045" target="freeweibo-mirror">八千万党员的耻辱，12亿群众的光荣！</a>
+</h2>
+<p>八千万党员的耻辱，12亿群众的光荣！</p>
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3946565485667150" target="freeweibo-mirror">卧槽～[抓狂]//@JiJi_MoMo:回复@Dezso:请…</a>
 </h2>
 <p>卧槽～[抓狂]//@JiJi_MoMo:回复@Dezso:请问是放一元的硬币还是放一角硬币的？ //@Dezso:刚真的试了一下，勉强能放8枚[doge]，不信私信我[阴险]<br><br>RE: 朋友送了我一本书，全是自拍，拍的都是各国硬币，我说这有什么好看的，大家快来评评理这书买的值不值。。。<br><img src="http://ww1.sinaimg.cn/large/8f321405jw1f1bvios4xbj20x718gqd3.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3946558384716475" target="freeweibo-mirror">//@南人一方:显然，包子要的是个人意志凌驾于国民意志，以一…</a>
-</h2>
-<p>//@南人一方:显然，包子要的是个人意志凌驾于国民意志，以一己之野心，绑架一个国家。</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
