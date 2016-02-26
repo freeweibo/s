@@ -48,7 +48,7 @@
 </h2>
 <p>SPAM //@文盲李世威:美帝该骂！ 附《美国是最大的独裁国家》一文以表支持。 http://t.cn/Ry3z8pd<br><br>RE: 今天看到十骂美国，揭露了美帝的丑恶嘴脸，批得是体无完肤[赞]<br><img src="http://ww4.sinaimg.cn/large/0069yXfEjw1f1bu2z2l5fj30c82ywh15.jpg"></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3946548481980571" target="freeweibo-mirror">活这么半辈子搞不好能赶上两次文革，也是不容易啊。当过几天正宗…</a>
 </h2>
