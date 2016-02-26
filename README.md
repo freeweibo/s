@@ -42,13 +42,13 @@
 </h2>
 <p>卧槽～[抓狂]//@JiJi_MoMo:回复@Dezso:请问是放一元的硬币还是放一角硬币的？ //@Dezso:刚真的试了一下，勉强能放8枚[doge]，不信私信我[阴险]<br><br>RE: 朋友送了我一本书，全是自拍，拍的都是各国硬币，我说这有什么好看的，大家快来评评理这书买的值不值。。。<br><img src="http://ww1.sinaimg.cn/large/8f321405jw1f1bvios4xbj20x718gqd3.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3946558384716475" target="freeweibo-mirror">//@南人一方:显然，包子要的是个人意志凌驾于国民意志，以一…</a>
 </h2>
 <p>//@南人一方:显然，包子要的是个人意志凌驾于国民意志，以一己之野心，绑架一个国家。</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3946552613732378" target="freeweibo-mirror">[哈哈]//@榕粉团: 回复@良_民_證:挺丰富的。剧透入门…</a>
 </h2>
