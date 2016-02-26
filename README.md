@@ -24,7 +24,7 @@
 </h2>
 <p>@任志强 大炮同志，回到人民群众中来吧！[赞]</p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3946904297380831" target="freeweibo-mirror">//@自由职业者在浦东: //@博者文摘:转发微博</a>
 </h2>
@@ -36,7 +36,7 @@
 </h2>
 <p>//@荣兴律师://@飞龙在天hj: //@龙之父ywc://@曹国洪微谈:转发微博<br><br>RE: 【什么是“两会”？】简单地说，就是“两种人”的聚会。一种人：不敢公布财产；另一种人：不敢公布国籍！！@南国一匹狼<br><img src="http://ww1.sinaimg.cn/large/006o6oVfjw1f1d2aj9bvnj31460qo11s.jpg"></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3946882449445069" target="freeweibo-mirror">【什么是“两会”？】简单地说，就是“两种人”的聚会。一种人：…</a>
 </h2>
