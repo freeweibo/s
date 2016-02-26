@@ -32,6 +32,18 @@
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3946816841690115" target="freeweibo-mirror">王怡牧师：关于张凯一案的个人声明</a>
+</h2>
+<p>王怡牧师：关于张凯一案的个人声明<br><img src="http://ww3.sinaimg.cn/large/0068r69ojw1f1curij3xkj30ri4oc7wh.jpg"></p>
+<p>
+	<small> ============== 5小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3946816725059061" target="freeweibo-mirror">微信看到个好段子，大家乐一个[哈哈]</a>
+</h2>
+<p>微信看到个好段子，大家乐一个[哈哈]<br><img src="http://ww2.sinaimg.cn/large/006lZhUygw1f1cuqq0ah1j30ic0kedir.jpg"></p>
+<p>
+	<small> ============== 5小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3946795459503546" target="freeweibo-mirror">SPAM 今晚微信公众号:希希的成长日记20:30节目预告 …</a>
 </h2>
 <p>SPAM 今晚微信公众号:希希的成长日记20:30节目预告  希妈喊你来玩成语接龙游戏，认识帅哥美女，还有小红包抢！  周末：为你推荐在南昌带小孩好去处：江西省科技馆  小米口述：我想和传销老婆离婚，但又下不了决心怎么办？  视频预告片：一位护士根据亲身经历所写的医患宫斗签约小说：《卧底小护士》<br><img src="http://ww3.sinaimg.cn/large/0440fcc7gw1f1csb1kn9wj20by0bydgg.jpg"></p>
@@ -125,18 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3946752698490674" target="freeweibo-mirror">【不杀言官】历朝历代皆有“不杀言官”传统。原因很简单，历史一…</a>
 </h2>
 <p>【不杀言官】历朝历代皆有“不杀言官”传统。原因很简单，历史一再表明：导致国家灭亡、政权倾覆的从来都不是死谏的言官，而是一味揣摩上意、溜须拍马的太监。@任志强 就是没有头衔的“言官”。言官冒死直谏，不是哗众取宠，而是“为什么我的眼里常含泪水，因为爱这片土地爱的深沉”，是中国最可爱的人<br><img src="http://ww4.sinaimg.cn/large/709b1d0ejw1f1cn5fup3hj20ir0dk3zs.jpg"></p>
-<p>
-	<small> ============== 9小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3946752199928032" target="freeweibo-mirror">//@袁莉wsj: //@清华孙立平://@贺延光: [go…</a>
-</h2>
-<p>//@袁莉wsj: //@清华孙立平://@贺延光: [good][good][good]<br><br>RE: 任志强 : 不要以为对党的历史和现状提出批评就是反党。-灵魂绽放的博客中国专栏 http://t.cn/RGNwpuB</p>
-<p>
-	<small> ============== 9小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3946750895567062" target="freeweibo-mirror">//@CFYY陈封: //@大学生讲坛:@FLY4239： …</a>
-</h2>
-<p>//@CFYY陈封: //@大学生讲坛:@FLY4239： 出现薄熙来不觉得耻辱，出现周永康不觉得耻辱，出现令计划不觉得耻辱，出现徐才厚不觉得耻辱，出现郭伯雄不觉得耻辱。。。出现无数贪官不觉得耻辱，任志强说了句真话就觉得耻辱了，简直就是个无耻党[吐]</p>
 <p>
 	<small> ============== 9小时前</small>
 </p>
