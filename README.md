@@ -24,13 +24,13 @@
 </h2>
 <p>SPAM 最美女教授！</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3946791852521729" target="freeweibo-mirror">回复@水城孔府:那是写入宪法。哈哈哈。 //@水城孔府:党章…</a>
 </h2>
 <p>回复@水城孔府:那是写入宪法。哈哈哈。 //@水城孔府:党章也是会变的，林副统帅不也写在党章里过？ //@逆风蝴蝶:到底谁反党，开始亮党章党规。  //@IYALAN: //@北马南山: //@常州杨洪波: 转发微博<br><br>RE: 今日最美女教授<br><img src="http://ww4.sinaimg.cn/large/006m17vkjw1f1cnpeecdhj30f00qon0o.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3946780674317594" target="freeweibo-mirror">SPAM //@天天Y向上:还有真正的党员存在！[good]</a>
 </h2>
