@@ -78,7 +78,7 @@
 </h2>
 <p>SPAM //@袁莉wsj: Repost<br><br>RE: 请用《党委会的工作方法》来对待任志强 http://t.cn/RGNGJVd</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3946720255604883" target="freeweibo-mirror">SPAM //@袁莉wsj: //@周克成://@磨思: 任…</a>
 </h2>
