@@ -38,11 +38,23 @@
 <p>
 	<small> ============== 1小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3946760277487533" target="freeweibo-mirror">SPAM 打倒任志强！//@六国虹:敢于直言的猛士！[赞] …</a>
+</h2>
+<p>SPAM 打倒任志强！//@六国虹:敢于直言的猛士！[赞] //@吴铭:秦人不暇自哀。<br><br>RE: 眼看快回到我们群众中来了，哈哈。<br><img src="http://ww1.sinaimg.cn/large/684c74ecgw1f1cn3y0bpoj20fh0m80zl.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3946759056878471" target="freeweibo-mirror">反驳的不错。 //@纪小婪: //@清华孙立平: //@贺延…</a>
+</h2>
+<p>反驳的不错。 //@纪小婪: //@清华孙立平: //@贺延光: [good][good][good]<br><br>RE: 任志强 : 不要以为对党的历史和现状提出批评就是反党。-灵魂绽放的博客中国专栏 http://t.cn/RGNwpuB</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3946750895567062" target="freeweibo-mirror">//@CFYY陈封: //@大学生讲坛:@FLY4239： …</a>
 </h2>
 <p>//@CFYY陈封: //@大学生讲坛:@FLY4239： 出现薄熙来不觉得耻辱，出现周永康不觉得耻辱，出现令计划不觉得耻辱，出现徐才厚不觉得耻辱，出现郭伯雄不觉得耻辱。。。出现无数贪官不觉得耻辱，任志强说了句真话就觉得耻辱了，简直就是个无耻党[吐]</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3946747829562122" target="freeweibo-mirror">【又到孩子长高季，妈妈们准备好了吗？】世界卫生组织一项调查发…</a>
 </h2>
@@ -72,7 +84,7 @@
 </h2>
 <p>SPAM //@袁莉wsj: //@周克成://@磨思: 任志强不断读书、学习、讨论、实践和思考，他的才识早已超过很多社科院的专家，而他敢于直言的胆识更是让很多人佩服不已。<br><br>RE: 向任总致敬！ http://t.cn/RGCDZYP</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3946718519452749" target="freeweibo-mirror">SPAM //@A乳此迷人:这么长都用不完……[哆啦A梦微笑…</a>
 </h2>
@@ -125,18 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3946552613732378" target="freeweibo-mirror">[哈哈]//@榕粉团: 回复@良_民_證:挺丰富的。剧透入门…</a>
 </h2>
 <p>[哈哈]//@榕粉团: 回复@良_民_證:挺丰富的。剧透入门啊：牢记语录100句。最常用的分别是：阶级斗争，一抓就灵。凡是敌人拥护的，我们就要反对。革命不是请客吃饭。革命无罪，造反有理。帝国主义及一切反动派都是纸老虎。不破不立。知识青年到农村去... //@良_民_證:有哪些课程啊？<br><br>RE: 活这么半辈子搞不好能赶上两次文革，也是不容易啊。当过几天正宗红卫兵团长（主要是主持广播站、写黑板报，反击右倾翻案风啥的，没真的斗过任何人）的在下，是不是可以考虑开补习班了。</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3946550952046190" target="freeweibo-mirror">SPAM //@文盲李世威:美帝该骂！ 附《美国是最大的独裁…</a>
-</h2>
-<p>SPAM //@文盲李世威:美帝该骂！ 附《美国是最大的独裁国家》一文以表支持。 http://t.cn/Ry3z8pd<br><br>RE: 今天看到十骂美国，揭露了美帝的丑恶嘴脸，批得是体无完肤[赞]<br><img src="http://ww4.sinaimg.cn/large/0069yXfEjw1f1bu2z2l5fj30c82ywh15.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3946548481980571" target="freeweibo-mirror">活这么半辈子搞不好能赶上两次文革，也是不容易啊。当过几天正宗…</a>
-</h2>
-<p>活这么半辈子搞不好能赶上两次文革，也是不容易啊。当过几天正宗红卫兵团长（主要是主持广播站、写黑板报，反击右倾翻案风啥的，没真的斗过任何人）的在下，是不是可以考虑开补习班了。</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
