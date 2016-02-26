@@ -26,6 +26,12 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3946715243928291" target="freeweibo-mirror">请用《党委会的工作方法》来对待任志强 http://t.cn…</a>
+</h2>
+<p>请用《党委会的工作方法》来对待任志强 http://t.cn/RGNGJVd</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3946703826912270" target="freeweibo-mirror">SPAM 炮房巍巍，炮声隆隆！[哈哈]</a>
 </h2>
 <p>SPAM 炮房巍巍，炮声隆隆！[哈哈]<br><br>RE: 猜一下：任大炮将会是嫖娼还是偷税漏税？</p>
@@ -48,7 +54,7 @@
 </h2>
 <p>卧槽～[抓狂]//@JiJi_MoMo:回复@Dezso:请问是放一元的硬币还是放一角硬币的？ //@Dezso:刚真的试了一下，勉强能放8枚[doge]，不信私信我[阴险]<br><br>RE: 朋友送了我一本书，全是自拍，拍的都是各国硬币，我说这有什么好看的，大家快来评评理这书买的值不值。。。<br><img src="http://ww1.sinaimg.cn/large/8f321405jw1f1bvios4xbj20x718gqd3.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3946558384716475" target="freeweibo-mirror">//@南人一方:显然，包子要的是个人意志凌驾于国民意志，以一…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3946487476606560" target="freeweibo-mirror">【温州公布律师张凯案真相：煽动教徒非法聚集，对抗政府】去年7…</a>
 </h2>
 <p>【温州公布律师张凯案真相：煽动教徒非法聚集，对抗政府】去年7月以来，温州发生十余起被境内外网络炒作的非法聚集活动，经查，均系张凯幕后策划。据悉张凯企图借助境外势力给政府施压，挑动信教群众与政府的对立情绪。张凯在忏悔中说，通过这些事他认清了一些境外组织的真面目。http://t.cn/RGCusSP<br><img src="http://ww1.sinaimg.cn/large/005vnhZYgw1f1bsxhormhj30go0b4jrj.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3946478575771928" target="freeweibo-mirror">谷俊山不是耻辱，薄熙来不是耻辱，令完成不是耻辱，周永康不是耻…</a>
-</h2>
-<p>谷俊山不是耻辱，薄熙来不是耻辱，令完成不是耻辱，周永康不是耻辱，姬胜德不是耻辱，说几句你们不爱听的真话，就成了8000多万党员的耻辱。你们真是恶趣味啊。</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
