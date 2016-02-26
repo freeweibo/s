@@ -90,13 +90,13 @@
 </h2>
 <p>//@CFYY陈封: //@大学生讲坛:@FLY4239： 出现薄熙来不觉得耻辱，出现周永康不觉得耻辱，出现令计划不觉得耻辱，出现徐才厚不觉得耻辱，出现郭伯雄不觉得耻辱。。。出现无数贪官不觉得耻辱，任志强说了句真话就觉得耻辱了，简直就是个无耻党[吐]</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3946750191036239" target="freeweibo-mirror">眼看快回到我们群众中来了，哈哈。</a>
 </h2>
 <p>眼看快回到我们群众中来了，哈哈。<br><img src="http://ww1.sinaimg.cn/large/684c74ecgw1f1cn3y0bpoj20fh0m80zl.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3946747829562122" target="freeweibo-mirror">【又到孩子长高季，妈妈们准备好了吗？】世界卫生组织一项调查发…</a>
 </h2>
@@ -132,7 +132,7 @@
 </h2>
 <p>SPAM //@袁莉wsj: //@周克成://@磨思: 任志强不断读书、学习、讨论、实践和思考，他的才识早已超过很多社科院的专家，而他敢于直言的胆识更是让很多人佩服不已。<br><br>RE: 向任总致敬！ http://t.cn/RGCDZYP</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3946718519452749" target="freeweibo-mirror">SPAM //@A乳此迷人:这么长都用不完……[哆啦A梦微笑…</a>
 </h2>
