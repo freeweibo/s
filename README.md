@@ -90,7 +90,7 @@
 </h2>
 <p>SPAM //@天天Y向上:还有真正的党员存在！[good]<br><br>RE: 今日最美女教授<br><img src="http://ww4.sinaimg.cn/large/006m17vkjw1f1cnpeecdhj30f00qon0o.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3946772085125051" target="freeweibo-mirror">流氓一旦有文化，就无耻得很彻底，光屁股裸奔也会形容得很完美。…</a>
 </h2>
