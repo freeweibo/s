@@ -24,7 +24,7 @@
 </h2>
 <p>SPAM //@袁莉wsj: Repost<br><br>RE: 请用《党委会的工作方法》来对待任志强 http://t.cn/RGNGJVd</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3946715243928291" target="freeweibo-mirror">请用《党委会的工作方法》来对待任志强 http://t.cn…</a>
 </h2>
