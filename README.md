@@ -42,7 +42,7 @@
 </h2>
 <p>//@南人一方:显然，包子要的是个人意志凌驾于国民意志，以一己之野心，绑架一个国家。</p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3946552613732378" target="freeweibo-mirror">[哈哈]//@榕粉团: 回复@良_民_證:挺丰富的。剧透入门…</a>
 </h2>
@@ -54,7 +54,7 @@
 </h2>
 <p>SPAM //@文盲李世威:美帝该骂！ 附《美国是最大的独裁国家》一文以表支持。 http://t.cn/Ry3z8pd<br><br>RE: 今天看到十骂美国，揭露了美帝的丑恶嘴脸，批得是体无完肤[赞]<br><img src="http://ww4.sinaimg.cn/large/0069yXfEjw1f1bu2z2l5fj30c82ywh15.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3946548481980571" target="freeweibo-mirror">活这么半辈子搞不好能赶上两次文革，也是不容易啊。当过几天正宗…</a>
 </h2>
