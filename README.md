@@ -60,13 +60,13 @@
 </h2>
 <p>王怡牧师：关于张凯一案的个人声明<br><img src="http://ww3.sinaimg.cn/large/0068r69ojw1f1curij3xkj30ri4oc7wh.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3946816725059061" target="freeweibo-mirror">微信看到个好段子，大家乐一个[哈哈]</a>
 </h2>
 <p>微信看到个好段子，大家乐一个[哈哈]<br><img src="http://ww2.sinaimg.cn/large/006lZhUygw1f1cuqq0ah1j30ic0kedir.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3946795459503546" target="freeweibo-mirror">SPAM 今晚微信公众号:希希的成长日记20:30节目预告 …</a>
 </h2>
