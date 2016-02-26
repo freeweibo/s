@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3946750895567062" target="freeweibo-mirror">//@CFYY陈封: //@大学生讲坛:@FLY4239： …</a>
+</h2>
+<p>//@CFYY陈封: //@大学生讲坛:@FLY4239： 出现薄熙来不觉得耻辱，出现周永康不觉得耻辱，出现令计划不觉得耻辱，出现徐才厚不觉得耻辱，出现郭伯雄不觉得耻辱。。。出现无数贪官不觉得耻辱，任志强说了句真话就觉得耻辱了，简直就是个无耻党[吐]</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3946721015275666" target="freeweibo-mirror">SPAM //@袁莉wsj: Repost</a>
 </h2>
 <p>SPAM //@袁莉wsj: Repost<br><br>RE: 请用《党委会的工作方法》来对待任志强 http://t.cn/RGNGJVd</p>
@@ -30,7 +36,7 @@
 </h2>
 <p>SPAM //@A乳此迷人:这么长都用不完……[哆啦A梦微笑] //@零距离小老婆:转发微博<br><br>RE: #約瑟呋#唉，其实不想发的，看着有点自卑[笑cry][笑cry][笑cry] http://t.cn/RGCCKJ8 .</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3946715243928291" target="freeweibo-mirror">请用《党委会的工作方法》来对待任志强 http://t.cn…</a>
 </h2>
@@ -42,13 +48,13 @@
 </h2>
 <p>SPAM 炮房巍巍，炮声隆隆！[哈哈]<br><br>RE: 猜一下：任大炮将会是嫖娼还是偷税漏税？</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3946688261354734" target="freeweibo-mirror">猜一下：任大炮将会是嫖娼还是偷税漏税？</a>
 </h2>
 <p>猜一下：任大炮将会是嫖娼还是偷税漏税？</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3946570808042264" target="freeweibo-mirror">如果如此一无是处，那右边没成为淹死的叙利亚难民中一员，太不科…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3946493684165542" target="freeweibo-mirror">大国应大度，大国政府慌什么？岂能任志强几句话搞的动用政府喉舌…</a>
 </h2>
 <p>大国应大度，大国政府慌什么？岂能任志强几句话搞的动用政府喉舌群起攻之，自信呢？失态、失态！//@扬州宽带网:大国应大度!慌什么?岂能任志强几句话搞的媒体群起攻之，失态、失态。<br><br>RE: 究竟是谁的耻辱，历史终将有个正确定位，这已经是2016，不是1916。<br><img src="http://ww2.sinaimg.cn/large/6f0978aajw1f1boat5a2pj20hs0vkq6p.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3946488616417611" target="freeweibo-mirror">煽动[弱]</a>
-</h2>
-<p>煽动[弱]<br><br>RE: 【温州公布律师张凯案真相：煽动教徒非法聚集，对抗政府】去年7月以来，温州发生十余起被境内外网络炒作的非法聚集活动，经查，均系张凯幕后策划。据悉张凯企图借助境外势力给政府施压，挑动信教群众与政府的对立情绪。张凯在忏悔中说，通过这些事他认清了一些境外组织的真面目。http://t.cn/RGCusSP<br><img src="http://ww1.sinaimg.cn/large/005vnhZYgw1f1bsxhormhj30go0b4jrj.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
