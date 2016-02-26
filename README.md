@@ -54,7 +54,7 @@
 </h2>
 <p>//@无畏剃DAO://@南开老魏034: //@自由联盟八世: //@四维不存:转发微博<br><br>RE: 微信看到个好段子，大家乐一个[哈哈]<br><img src="http://ww2.sinaimg.cn/large/006lZhUygw1f1cuqq0ah1j30ic0kedir.jpg"></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3946816841690115" target="freeweibo-mirror">王怡牧师：关于张凯一案的个人声明</a>
 </h2>
