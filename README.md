@@ -30,7 +30,7 @@
 </h2>
 <p>//@无畏剃DAO://@南开老魏034: //@自由联盟八世: //@四维不存:转发微博<br><br>RE: 微信看到个好段子，大家乐一个[哈哈]<br><img src="http://ww2.sinaimg.cn/large/006lZhUygw1f1cuqq0ah1j30ic0kedir.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3946816841690115" target="freeweibo-mirror">王怡牧师：关于张凯一案的个人声明</a>
 </h2>
@@ -120,13 +120,13 @@
 </h2>
 <p>倒退！<br><br>RE: 【不杀言官】历朝历代皆有“不杀言官”传统。原因很简单，历史一再表明：导致国家灭亡、政权倾覆的从来都不是死谏的言官，而是一味揣摩上意、溜须拍马的太监。@任志强 就是没有头衔的“言官”。言官冒死直谏，不是哗众取宠，而是“为什么我的眼里常含泪水，因为爱这片土地爱的深沉”，是中国最可爱的人<br><img src="http://ww4.sinaimg.cn/large/709b1d0ejw1f1cn5fup3hj20ir0dk3zs.jpg"></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3946755433331636" target="freeweibo-mirror">今日最美女教授</a>
 </h2>
 <p>今日最美女教授<br><img src="http://ww4.sinaimg.cn/large/006m17vkjw1f1cnpeecdhj30f00qon0o.jpg"></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3946754145524413" target="freeweibo-mirror">//@妙兰先生: //@飚叔钢笔画47:[偷笑]//@我叫强…</a>
 </h2>
