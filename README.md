@@ -36,7 +36,7 @@
 </h2>
 <p>请用《党委会的工作方法》来对待任志强 http://t.cn/RGNGJVd</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3946703826912270" target="freeweibo-mirror">SPAM 炮房巍巍，炮声隆隆！[哈哈]</a>
 </h2>
