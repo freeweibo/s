@@ -62,6 +62,12 @@
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3946763960087320" target="freeweibo-mirror">//@当律师的陈刚: //@邓相超://@星火必燎原: //…</a>
+</h2>
+<p>//@当律师的陈刚: //@邓相超://@星火必燎原: //@摸着石头过河---水太深://@关洪导演://@崔小平律师://@虎叔-:轉發微博<br><br>RE: 今天是中共中央发出《关于为所谓“习仲勋反党集团”平反的通知》的第36个年头。过去利用小说反党是一大发明，现在利用微博反党也是一大发明。<br><img src="http://ww4.sinaimg.cn/large/9ddb72ebjw1f1cdxyombhj20ku112dml.jpg"></p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3946760277487533" target="freeweibo-mirror">SPAM 打倒任志强！//@六国虹:敢于直言的猛士！[赞] …</a>
 </h2>
 <p>SPAM 打倒任志强！//@六国虹:敢于直言的猛士！[赞] //@吴铭:秦人不暇自哀。<br><br>RE: 眼看快回到我们群众中来了，哈哈。<br><img src="http://ww1.sinaimg.cn/large/684c74ecgw1f1cn3y0bpoj20fh0m80zl.jpg"></p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3946742971486821" target="freeweibo-mirror">邝飙作品</a>
 </h2>
 <p>邝飙作品<br><img src="http://ww2.sinaimg.cn/large/539d77e6gw1f1cm9j5oorj20k00spq71.jpg"></p>
-<p>
-	<small> ============== 5小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3946739281582109" target="freeweibo-mirror">//@简直:这老家伙的共产主义底子真厚。[good] //@…</a>
-</h2>
-<p>//@简直:这老家伙的共产主义底子真厚。[good] //@医疗律师刘晔://@清华孙立平://@贺延光: [good][good][good]<br><br>RE: 任志强 : 不要以为对党的历史和现状提出批评就是反党。-灵魂绽放的博客中国专栏 http://t.cn/RGNwpuB</p>
 <p>
 	<small> ============== 5小时前</small>
 </p>
