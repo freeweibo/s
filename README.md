@@ -38,6 +38,12 @@
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3946729517098267" target="freeweibo-mirror">任志强 : 不要以为对党的历史和现状提出批评就是反党。-灵魂…</a>
+</h2>
+<p>任志强 : 不要以为对党的历史和现状提出批评就是反党。-灵魂绽放的博客中国专栏 http://t.cn/RGNwpuB</p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3946721015275666" target="freeweibo-mirror">SPAM //@袁莉wsj: Repost</a>
 </h2>
 <p>SPAM //@袁莉wsj: Repost<br><br>RE: 请用《党委会的工作方法》来对待任志强 http://t.cn/RGNGJVd</p>
@@ -92,6 +98,12 @@
 <p>
 	<small> ============== 1天前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3946555326626780" target="freeweibo-mirror">向任总致敬！ http://t.cn/RGCDZYP</a>
+</h2>
+<p>向任总致敬！ http://t.cn/RGCDZYP</p>
+<p>
+	<small> ============== 1天前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3946552613732378" target="freeweibo-mirror">[哈哈]//@榕粉团: 回复@良_民_證:挺丰富的。剧透入门…</a>
 </h2>
 <p>[哈哈]//@榕粉团: 回复@良_民_證:挺丰富的。剧透入门啊：牢记语录100句。最常用的分别是：阶级斗争，一抓就灵。凡是敌人拥护的，我们就要反对。革命不是请客吃饭。革命无罪，造反有理。帝国主义及一切反动派都是纸老虎。不破不立。知识青年到农村去... //@良_民_證:有哪些课程啊？<br><br>RE: 活这么半辈子搞不好能赶上两次文革，也是不容易啊。当过几天正宗红卫兵团长（主要是主持广播站、写黑板报，反击右倾翻案风啥的，没真的斗过任何人）的在下，是不是可以考虑开补习班了。</p>
@@ -125,18 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3946544858027401" target="freeweibo-mirror">//@广州湾在线://@贾公知:转发微博</a>
 </h2>
 <p>//@广州湾在线://@贾公知:转发微博<br><br>RE: 多年经验告诉我：他真的失控了！<br><img src="http://ww4.sinaimg.cn/large/006ncmw0jw1f1bvoezt8sj30qr18gjx2.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3946533567291259" target="freeweibo-mirror">报纸越干净，社会则越肮脏。电台越和谐，世道则越可怕。电视越美…</a>
-</h2>
-<p>报纸越干净，社会则越肮脏。电台越和谐，世道则越可怕。电视越美好，生活则越难过。电影越高尚，真实则越虚伪。一个正常的社会，不是只许歌颂，而是可以反对，不是只能感谢，而是可以批判。越是掩饰，则会越阴暗。越是粉饰，则会越虚伪。一个连真话都不能说、写、拍的社会，才是真正可怕的。@刀锋<br><img src="http://ww4.sinaimg.cn/large/006o6oVfjw1f1by7nbuk1j308r09n0te.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3946511341856618" target="freeweibo-mirror">多年经验告诉我：他真的失控了！</a>
-</h2>
-<p>多年经验告诉我：他真的失控了！<br><img src="http://ww4.sinaimg.cn/large/006ncmw0jw1f1bvoezt8sj30qr18gjx2.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
