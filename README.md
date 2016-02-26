@@ -56,9 +56,33 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3946757102246122" target="freeweibo-mirror">//@刘力博士://@大气磅礴2015:文革的节奏又回来了，…</a>
+</h2>
+<p>//@刘力博士://@大气磅礴2015:文革的节奏又回来了，不是又反革命吧//@王小山: 眼看快成我们群众了，哈哈。<br><br>RE: 邝飙作品<br><img src="http://ww2.sinaimg.cn/large/539d77e6gw1f1cm9j5oorj20k00spq71.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3946755987424332" target="freeweibo-mirror">倒退！</a>
+</h2>
+<p>倒退！<br><br>RE: 【不杀言官】历朝历代皆有“不杀言官”传统。原因很简单，历史一再表明：导致国家灭亡、政权倾覆的从来都不是死谏的言官，而是一味揣摩上意、溜须拍马的太监。@任志强 就是没有头衔的“言官”。言官冒死直谏，不是哗众取宠，而是“为什么我的眼里常含泪水，因为爱这片土地爱的深沉”，是中国最可爱的人<br><img src="http://ww4.sinaimg.cn/large/709b1d0ejw1f1cn5fup3hj20ir0dk3zs.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3946754145524413" target="freeweibo-mirror">//@妙兰先生: //@飚叔钢笔画47:[偷笑]//@我叫强…</a>
+</h2>
+<p>//@妙兰先生: //@飚叔钢笔画47:[偷笑]//@我叫强老湿: 查处周永康， 令计划和徐才厚等人， 8000万党员都没觉得是耻辱， 任大炮这是犯了个多大的错误呀？[晕]<br><br>RE: #任志强#坚决打倒一切敌对势力！<br><img src="http://ww1.sinaimg.cn/large/005wiLQxgw1f1clmfivndj319q1tmav8.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3946752698490674" target="freeweibo-mirror">【不杀言官】历朝历代皆有“不杀言官”传统。原因很简单，历史一…</a>
 </h2>
 <p>【不杀言官】历朝历代皆有“不杀言官”传统。原因很简单，历史一再表明：导致国家灭亡、政权倾覆的从来都不是死谏的言官，而是一味揣摩上意、溜须拍马的太监。@任志强 就是没有头衔的“言官”。言官冒死直谏，不是哗众取宠，而是“为什么我的眼里常含泪水，因为爱这片土地爱的深沉”，是中国最可爱的人<br><img src="http://ww4.sinaimg.cn/large/709b1d0ejw1f1cn5fup3hj20ir0dk3zs.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3946752199928032" target="freeweibo-mirror">//@袁莉wsj: //@清华孙立平://@贺延光: [go…</a>
+</h2>
+<p>//@袁莉wsj: //@清华孙立平://@贺延光: [good][good][good]<br><br>RE: 任志强 : 不要以为对党的历史和现状提出批评就是反党。-灵魂绽放的博客中国专栏 http://t.cn/RGNwpuB</p>
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
@@ -115,30 +139,6 @@
 <p>请用《党委会的工作方法》来对待任志强 http://t.cn/RGNGJVd</p>
 <p>
 	<small> ============== 5小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3946703826912270" target="freeweibo-mirror">SPAM 炮房巍巍，炮声隆隆！[哈哈]</a>
-</h2>
-<p>SPAM 炮房巍巍，炮声隆隆！[哈哈]<br><br>RE: 猜一下：任大炮将会是嫖娼还是偷税漏税？</p>
-<p>
-	<small> ============== 6小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3946688261354734" target="freeweibo-mirror">猜一下：任大炮将会是嫖娼还是偷税漏税？</a>
-</h2>
-<p>猜一下：任大炮将会是嫖娼还是偷税漏税？</p>
-<p>
-	<small> ============== 7小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3946570808042264" target="freeweibo-mirror">如果如此一无是处，那右边没成为淹死的叙利亚难民中一员，太不科…</a>
-</h2>
-<p>如果如此一无是处，那右边没成为淹死的叙利亚难民中一员，太不科学。过去这些年，贪赃枉法的腐败分子替满嘴谎言的资本集团打工谋利益，与虎谋皮了。 //@洛杉矶吴明:任何冤之有？他哪里有共产党员应该有的样子？他贪赃枉法吗？公权私用吗？满口谎言吗？媚上欺下吗？既然没有，还是趁早把他清除出去吧！</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3946565485667150" target="freeweibo-mirror">卧槽～[抓狂]//@JiJi_MoMo:回复@Dezso:请…</a>
-</h2>
-<p>卧槽～[抓狂]//@JiJi_MoMo:回复@Dezso:请问是放一元的硬币还是放一角硬币的？ //@Dezso:刚真的试了一下，勉强能放8枚[doge]，不信私信我[阴险]<br><br>RE: 朋友送了我一本书，全是自拍，拍的都是各国硬币，我说这有什么好看的，大家快来评评理这书买的值不值。。。<br><img src="http://ww1.sinaimg.cn/large/8f321405jw1f1bvios4xbj20x718gqd3.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
 </p>
 <table>
     <tr>
