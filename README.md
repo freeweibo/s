@@ -120,7 +120,7 @@
 </h2>
 <p>//@袁莉wsj: //@清华孙立平://@贺延光: [good][good][good]<br><br>RE: 任志强 : 不要以为对党的历史和现状提出批评就是反党。-灵魂绽放的博客中国专栏 http://t.cn/RGNwpuB</p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3946750895567062" target="freeweibo-mirror">//@CFYY陈封: //@大学生讲坛:@FLY4239： …</a>
 </h2>
