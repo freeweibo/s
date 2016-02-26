@@ -54,7 +54,7 @@
 </h2>
 <p>反驳的不错。 //@纪小婪: //@清华孙立平: //@贺延光: [good][good][good]<br><br>RE: 任志强 : 不要以为对党的历史和现状提出批评就是反党。-灵魂绽放的博客中国专栏 http://t.cn/RGNwpuB</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3946757102246122" target="freeweibo-mirror">//@刘力博士://@大气磅礴2015:文革的节奏又回来了，…</a>
 </h2>
@@ -114,7 +114,7 @@
 </h2>
 <p>任志强 : 不要以为对党的历史和现状提出批评就是反党。-灵魂绽放的博客中国专栏 http://t.cn/RGNwpuB</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3946721015275666" target="freeweibo-mirror">SPAM //@袁莉wsj: Repost</a>
 </h2>
