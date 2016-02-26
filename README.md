@@ -24,7 +24,7 @@
 </h2>
 <p>SPAM //@袁莉wsj: Repost<br><br>RE: 请用《党委会的工作方法》来对待任志强 http://t.cn/RGNGJVd</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3946703826912270" target="freeweibo-mirror">SPAM 炮房巍巍，炮声隆隆！[哈哈]</a>
 </h2>
@@ -42,7 +42,7 @@
 </h2>
 <p>如果如此一无是处，那右边没成为淹死的叙利亚难民中一员，太不科学。过去这些年，贪赃枉法的腐败分子替满嘴谎言的资本集团打工谋利益，与虎谋皮了。 //@洛杉矶吴明:任何冤之有？他哪里有共产党员应该有的样子？他贪赃枉法吗？公权私用吗？满口谎言吗？媚上欺下吗？既然没有，还是趁早把他清除出去吧！</p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3946565485667150" target="freeweibo-mirror">卧槽～[抓狂]//@JiJi_MoMo:回复@Dezso:请…</a>
 </h2>
