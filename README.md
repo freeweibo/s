@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3947298356789089" target="freeweibo-mirror">//@朱孝顶律师: //@徐昕://@京都观潮://@王修2…</a>
+</h2>
+<p>//@朱孝顶律师: //@徐昕://@京都观潮://@王修216: 任总是根导火索？//@王甫律师:越来越热闹 //@王小东:这阶级斗争味儿越来越浓了，双方互相指责对方反党，真的很像文革[嘻嘻]//@博联社马晓霖:【话里有话】 这个解读有意思，用过去的话说，阶级斗争非常复杂，敌情十分严重<br><br>RE: 好文章。兼听则明，警惕阴谋。http://t.cn/RG0ZlPb<br><img src="http://ww3.sinaimg.cn/large/6b804b51jw1f1e97hd39cj20qo1bg46n.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3947295156129536" target="freeweibo-mirror">SPAM 戏里戏外，不止是戏；云里雾里的看戏人，尽皆入戏。</a>
 </h2>
 <p>SPAM 戏里戏外，不止是戏；云里雾里的看戏人，尽皆入戏。<br><br>RE: 好文章。兼听则明，警惕阴谋。http://t.cn/RG0ZlPb<br><img src="http://ww3.sinaimg.cn/large/6b804b51jw1f1e97hd39cj20qo1bg46n.jpg"></p>
@@ -36,7 +42,7 @@
 </h2>
 <p>随意。跳梁小丑，有本事就署名，不署名爱说什么说什么，跟王岐山叫板，能有好下场？ //@Phicochan小布晨飛://@LifeTime:文革模式启动了，各派都指责对方反党反毛。[酷] //@姜逸青:转发微博<br><br>RE: 好文章。兼听则明，警惕阴谋。http://t.cn/RG0ZlPb<br><img src="http://ww3.sinaimg.cn/large/6b804b51jw1f1e97hd39cj20qo1bg46n.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3947291527869930" target="freeweibo-mirror">//@京都观潮://@王修216: 任总是根导火索？//@旦…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3947243776269993" target="freeweibo-mirror">枪杀法官？[吃惊]//@薛荣民:强烈谴责暴行！请好好保护法官…</a>
 </h2>
 <p>枪杀法官？[吃惊]//@薛荣民:强烈谴责暴行！请好好保护法官！</p>
-<p>
-	<small> ============== 5小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3947243616616955" target="freeweibo-mirror">听说昌平法院一位女法官遭枪杀，非常痛心。这两年在研究女法官的…</a>
-</h2>
-<p>听说昌平法院一位女法官遭枪杀，非常痛心。这两年在研究女法官的生存状态，不少受访人都谈到对人身安全的担忧，有的法官连公交车都不敢坐，被迫买车上下班。归根结底，是当事人对司法判决缺乏最基本的敬畏，而背后的制度原因，大家都心知肚明。一个连法官和医生的人身安全都无法保障的社会，太危险了。</p>
 <p>
 	<small> ============== 5小时前</small>
 </p>
