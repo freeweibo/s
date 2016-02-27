@@ -32,6 +32,12 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3947112854852656" target="freeweibo-mirror">反对任志强的文章，似乎作者都匿名。在共产党领导的国家，维护党…</a>
+</h2>
+<p>反对任志强的文章，似乎作者都匿名。在共产党领导的国家，维护党的利益和尊严，竟然连名字都不敢写，似乎这么点底气都没有，我真的看不懂了。<br><img src="http://ww1.sinaimg.cn/large/5ff29ca4jw1f1dsr4f1jmj20qo1be493.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3947109713840783" target="freeweibo-mirror">//@广州区伯:监督一下政府，就说你是汉奸卖国贼，就是丑化党…</a>
 </h2>
 <p>//@广州区伯:监督一下政府，就说你是汉奸卖国贼，就是丑化党的领导，丑化社会主义。唉！难道这些行为就是爱国主义的行为？都丢脸丢到国外去了！</p>
@@ -133,12 +139,6 @@
 <p>被和谐了//@彭园v: 转发微博<br><br>RE: 任志强回复共青团的文章，写的太好了，建议阅读此文！[赞][赞] http://t.cn/RGNggX2</p>
 <p>
 	<small> ============== 5小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3947061034287173" target="freeweibo-mirror">实话实说</a>
-</h2>
-<p>实话实说<br><br>RE: 用一党意识形态来解释一切现实经验，在无法用意识形态进行思想控制时，只能越来越借助于强权和暴力压制的手段，如警察对任何群众场面如临大敌，随时准备动用武力进行镇压。这等于政府自己在宣布已失去了民心，承认老百姓已成了它必须时时防范的对象。政府权力实质上已变成了一个得不到民心支持的统治。<br><img src="http://ww2.sinaimg.cn/large/902ff5fejw1f1dlcx0c3xj20h80armzy.jpg"></p>
-<p>
-	<small> ============== 6小时前</small>
 </p>
 <table>
     <tr>
