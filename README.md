@@ -96,7 +96,7 @@
 </h2>
 <p>SPAM //@赵克罗:老雷的话非常客观！推荐大家看看！[话筒]<br><br>RE: 老雷137：任志强 http://t.cn/RGp4ND6 .</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3947040746515079" target="freeweibo-mirror">SPAM //@危在旦夕: 幸亏你是德国人，不然……哼。</a>
 </h2>
@@ -114,7 +114,7 @@
 </h2>
 <p>//@自由职业者在浦东: //@博者文摘:转发微博<br><br>RE: 【什么是“两会”？】简单地说，就是“两种人”的聚会。一种人：不敢公布财产；另一种人：不敢公布国籍！！@南国一匹狼<br><img src="http://ww1.sinaimg.cn/large/006o6oVfjw1f1d2aj9bvnj31460qo11s.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3946889919521967" target="freeweibo-mirror">//@荣兴律师://@飞龙在天hj: //@龙之父ywc:/…</a>
 </h2>
