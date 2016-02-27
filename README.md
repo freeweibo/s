@@ -66,7 +66,7 @@
 </h2>
 <p>反对任志强的文章，似乎作者都匿名。在共产党领导的国家，维护党的利益和尊严，竟然连名字都不敢写，似乎这么点底气都没有，我真的看不懂了。<br><img src="http://ww1.sinaimg.cn/large/5ff29ca4jw1f1dsr4f1jmj20qo1be493.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3947109713840783" target="freeweibo-mirror">//@广州区伯:监督一下政府，就说你是汉奸卖国贼，就是丑化党…</a>
 </h2>
