@@ -26,9 +26,33 @@
 <p>
 	<small> ============== 1小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3947074229862197" target="freeweibo-mirror">SPAM //@谢文: //@章诒和:是风景，也是信号//@…</a>
+</h2>
+<p>SPAM //@谢文: //@章诒和:是风景，也是信号//@媒体人张强: //@袁莉wsj:Repost<br><br>RE: 转网友评论：“刚开微博的时候关注过任志强，很快就发现他每天一大早都发人生感言心灵鸡汤，烦透了，取关。现在想想其实早晨这碗汤和从前地下党在窗台上摆花盆是一样重要的。”[月亮][月亮][月亮][月亮]</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3947073386727147" target="freeweibo-mirror">//@陈竹父: //@郝劲松:几家媒体攻击任志强，背离了讲话…</a>
+</h2>
+<p>//@陈竹父: //@郝劲松:几家媒体攻击任志强，背离了讲话精神<br><br>RE: 重温习主席讲话：共产党要容得下尖锐批评。这几天共青团、中国青年网等对任志强的狂轰乱炸是否与习主席的讲话精神背道而驰？<br><img src="http://ww3.sinaimg.cn/large/9154fba0jw1f1dmiv0k96j20hs0vkgq3.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3947070816081529" target="freeweibo-mirror">SPAM //@章诒和:是风景，也是信号//@媒体人张强: …</a>
+</h2>
+<p>SPAM //@章诒和:是风景，也是信号//@媒体人张强: //@袁莉wsj:Repost<br><br>RE: 转网友评论：“刚开微博的时候关注过任志强，很快就发现他每天一大早都发人生感言心灵鸡汤，烦透了，取关。现在想想其实早晨这碗汤和从前地下党在窗台上摆花盆是一样重要的。”[月亮][月亮][月亮][月亮]</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3947069561645772" target="freeweibo-mirror">//@宪阁微观:两个红苕引发的惨案。。。//@尹鸿: 咋回事…</a>
 </h2>
 <p>//@宪阁微观:两个红苕引发的惨案。。。//@尹鸿: 咋回事？这是道政治试题吗？怎么人民网原博都删了[泪]<br><br>RE: 整风出奇效，群众觉悟不是一般的高了。[好棒]<br><img src="http://ww2.sinaimg.cn/large/dd816182jw1f1dctlkv4wj20lc0cl756.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3947069129031385" target="freeweibo-mirror">SPAM 纪录片《光明星4号》发射纪实。http://t.c…</a>
+</h2>
+<p>SPAM 纪录片《光明星4号》发射纪实。http://t.cn/RGxuYrn<br><img src="http://ww4.sinaimg.cn/large/a8ef5277jw1f1dnqguniwj20yi0lqgrc.jpg"></p>
 <p>
 	<small> ============== 1小时前</small>
 </p><h2>
@@ -74,6 +98,12 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3947054051073600" target="freeweibo-mirror">SPAM 最近小心，别封号了</a>
+</h2>
+<p>SPAM 最近小心，别封号了<br><br>RE: 整风出奇效，群众觉悟不是一般的高了。[好棒]<br><img src="http://ww2.sinaimg.cn/large/dd816182jw1f1dctlkv4wj20lc0cl756.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3947053954259809" target="freeweibo-mirror">这些年，这种流氓网名、歧视性、攻击性、制造社群分裂的网名，一…</a>
 </h2>
 <p>这些年，这种流氓网名、歧视性、攻击性、制造社群分裂的网名，一天到晚制造谣言，诋毁良知，恶心吹捧权力拍马奉迎，网信办一直视而不见，不进行关闭。治理网络需要一种大气和公正，低俗水军即使帮助官方，也要及时清理关闭。 //@陈有西:今天院门没关好让你溜出来了？ //@中国公知精神康复疗养院：<br><img src="http://ww2.sinaimg.cn/large/6b804b51jw1f1dlzacoxfj20ku112jw6.jpg"></p>
@@ -109,36 +139,6 @@
 <p>SPAM //@赵克罗:老雷的话非常客观！推荐大家看看！[话筒]<br><br>RE: 老雷137：任志强 http://t.cn/RGp4ND6 .</p>
 <p>
 	<small> ============== 3小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3947040746515079" target="freeweibo-mirror">SPAM //@危在旦夕: 幸亏你是德国人，不然……哼。</a>
-</h2>
-<p>SPAM //@危在旦夕: 幸亏你是德国人，不然……哼。<br><br>RE: 老雷137：任志强 http://t.cn/RGp4ND6 .</p>
-<p>
-	<small> ============== 3小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3946997637591738" target="freeweibo-mirror">整风出奇效，群众觉悟不是一般的高了。[好棒]</a>
-</h2>
-<p>整风出奇效，群众觉悟不是一般的高了。[好棒]<br><img src="http://ww2.sinaimg.cn/large/dd816182jw1f1dctlkv4wj20lc0cl756.jpg"></p>
-<p>
-	<small> ============== 6小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3946976481833827" target="freeweibo-mirror">任志强回复共青团的文章，写的太好了，建议阅读此文！[赞][赞…</a>
-</h2>
-<p>任志强回复共青团的文章，写的太好了，建议阅读此文！[赞][赞] http://t.cn/RGNggX2</p>
-<p>
-	<small> ============== 7小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3946919757590247" target="freeweibo-mirror">@任志强 大炮同志，回到人民群众中来吧！[赞]</a>
-</h2>
-<p>@任志强 大炮同志，回到人民群众中来吧！[赞]</p>
-<p>
-	<small> ============== 11小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3946904297380831" target="freeweibo-mirror">//@自由职业者在浦东: //@博者文摘:转发微博</a>
-</h2>
-<p>//@自由职业者在浦东: //@博者文摘:转发微博<br><br>RE: 【什么是“两会”？】简单地说，就是“两种人”的聚会。一种人：不敢公布财产；另一种人：不敢公布国籍！！@南国一匹狼<br><img src="http://ww1.sinaimg.cn/large/006o6oVfjw1f1d2aj9bvnj31460qo11s.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
 </p>
 <table>
     <tr>
