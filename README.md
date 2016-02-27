@@ -36,13 +36,13 @@
 </h2>
 <p>“反党分子”这顶帽子，彭德怀、刘少奇、习仲勋、邓小平等都带过，左棍们给任志强带上这顶帽子不是耻辱，而是荣耀！<br><img src="http://ww4.sinaimg.cn/large/9154fba0jw1f1e08w37kgj205c0640sr.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3947162825414955" target="freeweibo-mirror">快登机吧！ //@黄奎ART:我日尼玛！//@郭三皮Runn…</a>
 </h2>
 <p>快登机吧！ //@黄奎ART:我日尼玛！//@郭三皮Running: 恍恍惚惚和红红火火 //@阿乌阿乌:山雨欲来风满楼 //@兔子奶奶熊的娘长颈鹿的爱:無語 //@愽物館典藏:[哈哈][笑cry][鼓掌][怒骂]//@西西弗的胡话:天哪!//@晓钟残漏:恍惚倒穿越……</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3947155942683531" target="freeweibo-mirror">//@爱乐律师: //@法律及其价值: 转发微博</a>
 </h2>
