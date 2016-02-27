@@ -30,13 +30,19 @@
 </h2>
 <p>SPAM //@谢文: //@章诒和:是风景，也是信号//@媒体人张强: //@袁莉wsj:Repost<br><br>RE: 转网友评论：“刚开微博的时候关注过任志强，很快就发现他每天一大早都发人生感言心灵鸡汤，烦透了，取关。现在想想其实早晨这碗汤和从前地下党在窗台上摆花盆是一样重要的。”[月亮][月亮][月亮][月亮]</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3947073386727147" target="freeweibo-mirror">//@陈竹父: //@郝劲松:几家媒体攻击任志强，背离了讲话…</a>
 </h2>
 <p>//@陈竹父: //@郝劲松:几家媒体攻击任志强，背离了讲话精神<br><br>RE: 重温习主席讲话：共产党要容得下尖锐批评。这几天共青团、中国青年网等对任志强的狂轰乱炸是否与习主席的讲话精神背道而驰？<br><img src="http://ww3.sinaimg.cn/large/9154fba0jw1f1dmiv0k96j20hs0vkgq3.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3947071268930872" target="freeweibo-mirror">想玩你易如反掌。没玩你，要么是你不值得一玩，要么就是玩你有点…</a>
+</h2>
+<p>想玩你易如反掌。没玩你，要么是你不值得一玩，要么就是玩你有点棘手，都一个裤筒子里的，怎么玩？</p>
+<p>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3947070816081529" target="freeweibo-mirror">SPAM //@章诒和:是风景，也是信号//@媒体人张强: …</a>
 </h2>
@@ -96,13 +102,13 @@
 </h2>
 <p>哦…//@黎津平老师:这位同志是云南省教育厅原厅长。<br><br>RE: 用一党意识形态来解释一切现实经验，在无法用意识形态进行思想控制时，只能越来越借助于强权和暴力压制的手段，如警察对任何群众场面如临大敌，随时准备动用武力进行镇压。这等于政府自己在宣布已失去了民心，承认老百姓已成了它必须时时防范的对象。政府权力实质上已变成了一个得不到民心支持的统治。<br><img src="http://ww2.sinaimg.cn/large/902ff5fejw1f1dlcx0c3xj20h80armzy.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3947058413483387" target="freeweibo-mirror">良心话。</a>
 </h2>
 <p>良心话。<br><br>RE: 用一党意识形态来解释一切现实经验，在无法用意识形态进行思想控制时，只能越来越借助于强权和暴力压制的手段，如警察对任何群众场面如临大敌，随时准备动用武力进行镇压。这等于政府自己在宣布已失去了民心，承认老百姓已成了它必须时时防范的对象。政府权力实质上已变成了一个得不到民心支持的统治。<br><img src="http://ww2.sinaimg.cn/large/902ff5fejw1f1dlcx0c3xj20h80armzy.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3947056639376917" target="freeweibo-mirror">//@徐付群: //@黎津平老师: 这位同志是云南省教育厅原…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3947051567711164" target="freeweibo-mirror">SPAM 雷克这混小子，竟然说无所谓，完全是隔岸观火的心态啊…</a>
 </h2>
 <p>SPAM 雷克这混小子，竟然说无所谓，完全是隔岸观火的心态啊。[怒]//@急煞人也-://@被淹死的鲔鱼://@上海杰睿老爷3: 在墙外看得很清楚。<br><br>RE: 老雷137：任志强 http://t.cn/RGp4ND6 .</p>
-<p>
-	<small> ============== 3小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3947050485377699" target="freeweibo-mirror">SPAM //@段贵发://@赵克罗:老雷的话非常客观！推荐…</a>
-</h2>
-<p>SPAM //@段贵发://@赵克罗:老雷的话非常客观！推荐大家看看！[话筒]<br><br>RE: 老雷137：任志强 http://t.cn/RGp4ND6 .</p>
 <p>
 	<small> ============== 3小时前</small>
 </p>
