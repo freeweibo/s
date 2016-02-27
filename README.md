@@ -26,6 +26,12 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3947122300953070" target="freeweibo-mirror">SPAM  //@笨笨an://@陈业文新大都:[衰][衰]…</a>
+</h2>
+<p>SPAM  //@笨笨an://@陈业文新大都:[衰][衰][衰]//@杨宁远v:荣辱观真的有问题。<br><br>RE: 家族里出了贪赃枉法的不算耻辱，出了侵吞家资的不算耻辱，出了生活淫乱的不算耻辱，出了鱼肉乡里的不算耻辱；而出了个敢于讲真话的，就算是全家族的耻辱。这道理，跟百姓讲不通，百姓难以理解和接受。如果都秉持这样的耻辱观，不仅这个家族，所有家庭过不了多久，都会是败家子的天下，正直者的地狱。</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3947116352595820" target="freeweibo-mirror">喏</a>
 </h2>
 <p>喏</p>
@@ -108,13 +114,13 @@
 </h2>
 <p>SPAM //@谢文: //@章诒和:是风景，也是信号//@媒体人张强: //@袁莉wsj:Repost<br><br>RE: 转网友评论：“刚开微博的时候关注过任志强，很快就发现他每天一大早都发人生感言心灵鸡汤，烦透了，取关。现在想想其实早晨这碗汤和从前地下党在窗台上摆花盆是一样重要的。”[月亮][月亮][月亮][月亮]</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3947073386727147" target="freeweibo-mirror">//@陈竹父: //@郝劲松:几家媒体攻击任志强，背离了讲话…</a>
 </h2>
 <p>//@陈竹父: //@郝劲松:几家媒体攻击任志强，背离了讲话精神<br><br>RE: 重温习主席讲话：共产党要容得下尖锐批评。这几天共青团、中国青年网等对任志强的狂轰乱炸是否与习主席的讲话精神背道而驰？<br><img src="http://ww3.sinaimg.cn/large/9154fba0jw1f1dmiv0k96j20hs0vkgq3.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3947071268930872" target="freeweibo-mirror">想玩你易如反掌。没玩你，要么是你不值得一玩，要么就是玩你有点…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3947069561645772" target="freeweibo-mirror">//@宪阁微观:两个红苕引发的惨案。。。//@尹鸿: 咋回事…</a>
 </h2>
 <p>//@宪阁微观:两个红苕引发的惨案。。。//@尹鸿: 咋回事？这是道政治试题吗？怎么人民网原博都删了[泪]<br><br>RE: 整风出奇效，群众觉悟不是一般的高了。[好棒]<br><img src="http://ww2.sinaimg.cn/large/dd816182jw1f1dctlkv4wj20lc0cl756.jpg"></p>
-<p>
-	<small> ============== 6小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3947069129031385" target="freeweibo-mirror">SPAM 纪录片《光明星4号》发射纪实。http://t.c…</a>
-</h2>
-<p>SPAM 纪录片《光明星4号》发射纪实。http://t.cn/RGxuYrn<br><img src="http://ww4.sinaimg.cn/large/a8ef5277jw1f1dnqguniwj20yi0lqgrc.jpg"></p>
 <p>
 	<small> ============== 6小时前</small>
 </p>
