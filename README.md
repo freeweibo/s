@@ -96,7 +96,7 @@
 </h2>
 <p>SPAM 后台是谁呢？<br><br>RE: 好文章。兼听则明，警惕阴谋。http://t.cn/RG0ZlPb<br><img src="http://ww3.sinaimg.cn/large/6b804b51jw1f1e97hd39cj20qo1bg46n.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3947282950578056" target="freeweibo-mirror">//@成都双爷:鉴定一哈：这篇所谓兼听则明的好文章，其实就是…</a>
 </h2>
