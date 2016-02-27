@@ -26,6 +26,48 @@
 <p>
 	<small> ============== 1小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3947064868386010" target="freeweibo-mirror">//@李不白的店://@徐付群: //@黎津平老师: 这位同…</a>
+</h2>
+<p>//@李不白的店://@徐付群: //@黎津平老师: 这位同志是云南省教育厅原厅长。被盗号了？<br><br>RE: 用一党意识形态来解释一切现实经验，在无法用意识形态进行思想控制时，只能越来越借助于强权和暴力压制的手段，如警察对任何群众场面如临大敌，随时准备动用武力进行镇压。这等于政府自己在宣布已失去了民心，承认老百姓已成了它必须时时防范的对象。政府权力实质上已变成了一个得不到民心支持的统治。<br><img src="http://ww2.sinaimg.cn/large/902ff5fejw1f1dlcx0c3xj20h80armzy.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3947064331069537" target="freeweibo-mirror">被和谐了//@彭园v: 转发微博</a>
+</h2>
+<p>被和谐了//@彭园v: 转发微博<br><br>RE: 任志强回复共青团的文章，写的太好了，建议阅读此文！[赞][赞] http://t.cn/RGNggX2</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3947061034287173" target="freeweibo-mirror">实话实说</a>
+</h2>
+<p>实话实说<br><br>RE: 用一党意识形态来解释一切现实经验，在无法用意识形态进行思想控制时，只能越来越借助于强权和暴力压制的手段，如警察对任何群众场面如临大敌，随时准备动用武力进行镇压。这等于政府自己在宣布已失去了民心，承认老百姓已成了它必须时时防范的对象。政府权力实质上已变成了一个得不到民心支持的统治。<br><img src="http://ww2.sinaimg.cn/large/902ff5fejw1f1dlcx0c3xj20h80armzy.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3947060384020124" target="freeweibo-mirror">如果我是国家网信办主任，一个月即会清理好这些污染社会破坏网络…</a>
+</h2>
+<p>如果我是国家网信办主任，一个月即会清理好这些污染社会破坏网络正常秩序的低劣网名水军，让有学识有良知真正为国家民族着想人们，心情舒畅地为党和政府建言献策。而不会用现在这样愚蠢的治理方法。<br><br>RE: 这些年，这种流氓网名、歧视性、攻击性、制造社群分裂的网名，一天到晚制造谣言，诋毁良知，恶心吹捧权力拍马奉迎，网信办一直视而不见，不进行关闭。治理网络需要一种大气和公正，低俗水军即使帮助官方，也要及时清理关闭。 //@陈有西:今天院门没关好让你溜出来了？ //@中国公知精神康复疗养院：<br><img src="http://ww2.sinaimg.cn/large/6b804b51jw1f1dlzacoxfj20ku112jw6.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3947059092828653" target="freeweibo-mirror">哦…//@黎津平老师:这位同志是云南省教育厅原厅长。</a>
+</h2>
+<p>哦…//@黎津平老师:这位同志是云南省教育厅原厅长。<br><br>RE: 用一党意识形态来解释一切现实经验，在无法用意识形态进行思想控制时，只能越来越借助于强权和暴力压制的手段，如警察对任何群众场面如临大敌，随时准备动用武力进行镇压。这等于政府自己在宣布已失去了民心，承认老百姓已成了它必须时时防范的对象。政府权力实质上已变成了一个得不到民心支持的统治。<br><img src="http://ww2.sinaimg.cn/large/902ff5fejw1f1dlcx0c3xj20h80armzy.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3947058413483387" target="freeweibo-mirror">良心话。</a>
+</h2>
+<p>良心话。<br><br>RE: 用一党意识形态来解释一切现实经验，在无法用意识形态进行思想控制时，只能越来越借助于强权和暴力压制的手段，如警察对任何群众场面如临大敌，随时准备动用武力进行镇压。这等于政府自己在宣布已失去了民心，承认老百姓已成了它必须时时防范的对象。政府权力实质上已变成了一个得不到民心支持的统治。<br><img src="http://ww2.sinaimg.cn/large/902ff5fejw1f1dlcx0c3xj20h80armzy.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3947056639376917" target="freeweibo-mirror">//@徐付群: //@黎津平老师: 这位同志是云南省教育厅原…</a>
+</h2>
+<p>//@徐付群: //@黎津平老师: 这位同志是云南省教育厅原厅长。被盗号了？<br><br>RE: 用一党意识形态来解释一切现实经验，在无法用意识形态进行思想控制时，只能越来越借助于强权和暴力压制的手段，如警察对任何群众场面如临大敌，随时准备动用武力进行镇压。这等于政府自己在宣布已失去了民心，承认老百姓已成了它必须时时防范的对象。政府权力实质上已变成了一个得不到民心支持的统治。<br><img src="http://ww2.sinaimg.cn/large/902ff5fejw1f1dlcx0c3xj20h80armzy.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3947053152839152" target="freeweibo-mirror">凡是把党跟群众对立起来的人，都是给党抹黑，反对党提出的群众路…</a>
 </h2>
 <p>凡是把党跟群众对立起来的人，都是给党抹黑，反对党提出的群众路线//@黎津平老师: 这位同志是云南省教育厅原厅长。<br><br>RE: 用一党意识形态来解释一切现实经验，在无法用意识形态进行思想控制时，只能越来越借助于强权和暴力压制的手段，如警察对任何群众场面如临大敌，随时准备动用武力进行镇压。这等于政府自己在宣布已失去了民心，承认老百姓已成了它必须时时防范的对象。政府权力实质上已变成了一个得不到民心支持的统治。<br><img src="http://ww2.sinaimg.cn/large/902ff5fejw1f1dlcx0c3xj20h80armzy.jpg"></p>
@@ -47,6 +89,12 @@
 	<a href="https://freeweibo.com/weibo/3947048405940569" target="freeweibo-mirror">用一党意识形态来解释一切现实经验，在无法用意识形态进行思想控…</a>
 </h2>
 <p>用一党意识形态来解释一切现实经验，在无法用意识形态进行思想控制时，只能越来越借助于强权和暴力压制的手段，如警察对任何群众场面如临大敌，随时准备动用武力进行镇压。这等于政府自己在宣布已失去了民心，承认老百姓已成了它必须时时防范的对象。政府权力实质上已变成了一个得不到民心支持的统治。<br><img src="http://ww2.sinaimg.cn/large/902ff5fejw1f1dlcx0c3xj20h80armzy.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3947046761069913" target="freeweibo-mirror">SPAM //@赵克罗:老雷的话非常客观！推荐大家看看！[话…</a>
+</h2>
+<p>SPAM //@赵克罗:老雷的话非常客观！推荐大家看看！[话筒]<br><br>RE: 老雷137：任志强 http://t.cn/RGp4ND6 .</p>
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
@@ -89,54 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3946865202350786" target="freeweibo-mirror">[哈哈]//@摸着石头过河---水太深: //@雁塔小木屋4…</a>
 </h2>
 <p>[哈哈]//@摸着石头过河---水太深: //@雁塔小木屋4://@nb沈榄: //@许合文://@世俗的苦行僧:[哈哈][哈哈]//@无畏剃DAO: //@南开老魏034: //@自由联盟八世: //@四维不存:转发微博<br><br>RE: 微信看到个好段子，大家乐一个[哈哈]<br><img src="http://ww2.sinaimg.cn/large/006lZhUygw1f1cuqq0ah1j30ic0kedir.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3946846567530182" target="freeweibo-mirror">//@无畏剃DAO://@南开老魏034: //@自由联盟八…</a>
-</h2>
-<p>//@无畏剃DAO://@南开老魏034: //@自由联盟八世: //@四维不存:转发微博<br><br>RE: 微信看到个好段子，大家乐一个[哈哈]<br><img src="http://ww2.sinaimg.cn/large/006lZhUygw1f1cuqq0ah1j30ic0kedir.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3946816841690115" target="freeweibo-mirror">王怡牧师：关于张凯一案的个人声明</a>
-</h2>
-<p>王怡牧师：关于张凯一案的个人声明<br><img src="http://ww3.sinaimg.cn/large/0068r69ojw1f1curij3xkj30ri4oc7wh.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3946816725059061" target="freeweibo-mirror">微信看到个好段子，大家乐一个[哈哈]</a>
-</h2>
-<p>微信看到个好段子，大家乐一个[哈哈]<br><img src="http://ww2.sinaimg.cn/large/006lZhUygw1f1cuqq0ah1j30ic0kedir.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3946795459503546" target="freeweibo-mirror">SPAM 今晚微信公众号:希希的成长日记20:30节目预告 …</a>
-</h2>
-<p>SPAM 今晚微信公众号:希希的成长日记20:30节目预告  希妈喊你来玩成语接龙游戏，认识帅哥美女，还有小红包抢！  周末：为你推荐在南昌带小孩好去处：江西省科技馆  小米口述：我想和传销老婆离婚，但又下不了决心怎么办？  视频预告片：一位护士根据亲身经历所写的医患宫斗签约小说：《卧底小护士》<br><img src="http://ww3.sinaimg.cn/large/0440fcc7gw1f1csb1kn9wj20by0bydgg.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3946792275875283" target="freeweibo-mirror">SPAM 最美女教授！</a>
-</h2>
-<p>SPAM 最美女教授！</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3946791852521729" target="freeweibo-mirror">回复@水城孔府:那是写入宪法。哈哈哈。 //@水城孔府:党章…</a>
-</h2>
-<p>回复@水城孔府:那是写入宪法。哈哈哈。 //@水城孔府:党章也是会变的，林副统帅不也写在党章里过？ //@逆风蝴蝶:到底谁反党，开始亮党章党规。  //@IYALAN: //@北马南山: //@常州杨洪波: 转发微博<br><br>RE: 今日最美女教授<br><img src="http://ww4.sinaimg.cn/large/006m17vkjw1f1cnpeecdhj30f00qon0o.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3946780674317594" target="freeweibo-mirror">SPAM //@天天Y向上:还有真正的党员存在！[good]</a>
-</h2>
-<p>SPAM //@天天Y向上:还有真正的党员存在！[good]<br><br>RE: 今日最美女教授<br><img src="http://ww4.sinaimg.cn/large/006m17vkjw1f1cnpeecdhj30f00qon0o.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3946772085125051" target="freeweibo-mirror">流氓一旦有文化，就无耻得很彻底，光屁股裸奔也会形容得很完美。…</a>
-</h2>
-<p>流氓一旦有文化，就无耻得很彻底，光屁股裸奔也会形容得很完美。大明乱于言官，灭于东林党的嘴炮中。看到这，崇祯要从地底下跳出来扇你耳光。<br><br>RE: 【不杀言官】历朝历代皆有“不杀言官”传统。原因很简单，历史一再表明：导致国家灭亡、政权倾覆的从来都不是死谏的言官，而是一味揣摩上意、溜须拍马的太监。@任志强 就是没有头衔的“言官”。言官冒死直谏，不是哗众取宠，而是“为什么我的眼里常含泪水，因为爱这片土地爱的深沉”，是中国最可爱的人<br><img src="http://ww4.sinaimg.cn/large/709b1d0ejw1f1cn5fup3hj20ir0dk3zs.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
