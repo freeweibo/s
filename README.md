@@ -30,13 +30,13 @@
 </h2>
 <p>//@李不白的店://@徐付群: //@黎津平老师: 这位同志是云南省教育厅原厅长。被盗号了？<br><br>RE: 用一党意识形态来解释一切现实经验，在无法用意识形态进行思想控制时，只能越来越借助于强权和暴力压制的手段，如警察对任何群众场面如临大敌，随时准备动用武力进行镇压。这等于政府自己在宣布已失去了民心，承认老百姓已成了它必须时时防范的对象。政府权力实质上已变成了一个得不到民心支持的统治。<br><img src="http://ww2.sinaimg.cn/large/902ff5fejw1f1dlcx0c3xj20h80armzy.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3947064331069537" target="freeweibo-mirror">被和谐了//@彭园v: 转发微博</a>
 </h2>
 <p>被和谐了//@彭园v: 转发微博<br><br>RE: 任志强回复共青团的文章，写的太好了，建议阅读此文！[赞][赞] http://t.cn/RGNggX2</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3947061034287173" target="freeweibo-mirror">实话实说</a>
 </h2>
@@ -65,6 +65,12 @@
 	<a href="https://freeweibo.com/weibo/3947056639376917" target="freeweibo-mirror">//@徐付群: //@黎津平老师: 这位同志是云南省教育厅原…</a>
 </h2>
 <p>//@徐付群: //@黎津平老师: 这位同志是云南省教育厅原厅长。被盗号了？<br><br>RE: 用一党意识形态来解释一切现实经验，在无法用意识形态进行思想控制时，只能越来越借助于强权和暴力压制的手段，如警察对任何群众场面如临大敌，随时准备动用武力进行镇压。这等于政府自己在宣布已失去了民心，承认老百姓已成了它必须时时防范的对象。政府权力实质上已变成了一个得不到民心支持的统治。<br><img src="http://ww2.sinaimg.cn/large/902ff5fejw1f1dlcx0c3xj20h80armzy.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3947053954259809" target="freeweibo-mirror">这些年，这种流氓网名、歧视性、攻击性、制造社群分裂的网名，一…</a>
+</h2>
+<p>这些年，这种流氓网名、歧视性、攻击性、制造社群分裂的网名，一天到晚制造谣言，诋毁良知，恶心吹捧权力拍马奉迎，网信办一直视而不见，不进行关闭。治理网络需要一种大气和公正，低俗水军即使帮助官方，也要及时清理关闭。 //@陈有西:今天院门没关好让你溜出来了？ //@中国公知精神康复疗养院：<br><img src="http://ww2.sinaimg.cn/large/6b804b51jw1f1dlzacoxfj20ku112jw6.jpg"></p>
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
@@ -104,6 +110,12 @@
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3946997637591738" target="freeweibo-mirror">整风出奇效，群众觉悟不是一般的高了。[好棒]</a>
+</h2>
+<p>整风出奇效，群众觉悟不是一般的高了。[好棒]<br><img src="http://ww2.sinaimg.cn/large/dd816182jw1f1dctlkv4wj20lc0cl756.jpg"></p>
+<p>
+	<small> ============== 6小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3946976481833827" target="freeweibo-mirror">任志强回复共青团的文章，写的太好了，建议阅读此文！[赞][赞…</a>
 </h2>
 <p>任志强回复共青团的文章，写的太好了，建议阅读此文！[赞][赞] http://t.cn/RGNggX2</p>
@@ -125,18 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3946889919521967" target="freeweibo-mirror">//@荣兴律师://@飞龙在天hj: //@龙之父ywc:/…</a>
 </h2>
 <p>//@荣兴律师://@飞龙在天hj: //@龙之父ywc://@曹国洪微谈:转发微博<br><br>RE: 【什么是“两会”？】简单地说，就是“两种人”的聚会。一种人：不敢公布财产；另一种人：不敢公布国籍！！@南国一匹狼<br><img src="http://ww1.sinaimg.cn/large/006o6oVfjw1f1d2aj9bvnj31460qo11s.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3946887314547344" target="freeweibo-mirror">#张凯事件# 看看五毛水军，连序号都没删！</a>
-</h2>
-<p>#张凯事件# 看看五毛水军，连序号都没删！<br><img src="http://ww2.sinaimg.cn/large/74146ef7jw1f1d2t36ov3j20ku11243i.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3946882449445069" target="freeweibo-mirror">【什么是“两会”？】简单地说，就是“两种人”的聚会。一种人：…</a>
-</h2>
-<p>【什么是“两会”？】简单地说，就是“两种人”的聚会。一种人：不敢公布财产；另一种人：不敢公布国籍！！@南国一匹狼<br><img src="http://ww1.sinaimg.cn/large/006o6oVfjw1f1d2aj9bvnj31460qo11s.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
