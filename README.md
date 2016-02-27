@@ -30,7 +30,7 @@
 </h2>
 <p>//@爱乐律师: //@法律及其价值: 转发微博<br><br>RE: 是合法性遭人质疑还是怎么地？难道也是无证上岗？<br><img src="http://ww3.sinaimg.cn/large/52038d40gw1f1dvveezejj20j60eeabu.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3947152017601955" target="freeweibo-mirror">既然说话了，那行动就要快！不要让别人再说光说不练了！//@早…</a>
 </h2>
@@ -38,11 +38,17 @@
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3947148737281917" target="freeweibo-mirror">上午就在帝都辞职法官群里炸开了消息，多方探寻，细节越来越明了…</a>
+</h2>
+<p>上午就在帝都辞职法官群里炸开了消息，多方探寻，细节越来越明了。希望官方尽快公布真相，保法官平安。<br><img src="http://ww2.sinaimg.cn/large/7ca1725bjw1f1dwuay5m0j20qo1be7b1.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3947139966788395" target="freeweibo-mirror">是合法性遭人质疑还是怎么地？难道也是无证上岗？</a>
 </h2>
 <p>是合法性遭人质疑还是怎么地？难道也是无证上岗？<br><img src="http://ww3.sinaimg.cn/large/52038d40gw1f1dvveezejj20j60eeabu.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3947128507837366" target="freeweibo-mirror">SPAM //@散去流沙:郑彪教授的微博应该解封。</a>
 </h2>
@@ -90,7 +96,7 @@
 </h2>
 <p>//@广州区伯:监督一下政府，就说你是汉奸卖国贼，就是丑化党的领导，丑化社会主义。唉！难道这些行为就是爱国主义的行为？都丢脸丢到国外去了！</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3947109529554447" target="freeweibo-mirror">SPAM //@陈业文新大都:[衰][衰][衰]//@杨宁远…</a>
 </h2>
@@ -114,7 +120,7 @@
 </h2>
 <p>//@蔡照明:周小平的示范效应//@佬_牛:纳税人供养的闲杂人员太多了，所以都没事惹事了。//@侯宁: 总统梦亮晶晶。//@蔡照明: 此事和地产圈无关。1、说明两种意识形态的打斗升级了， 都敢真刀真枪亮出来了；2、政治投机者捞取政治资本，以换取个人利益的套路，已标准化，都会用了；3、比勇敢的时候到了..<br><br>RE: 【任志强事情观察2】如果要动任，一定是很高层的想法，动气了，“大王一怒”，下一句知道怎么接吧。但现在这几个媒体联手反应，还不清楚是最高层知道生气了，还是某些人想搞大，让最高层知道生气。<br><img src="http://ww1.sinaimg.cn/large/48e950e1jw1f1d2i0ultjj20qo1bfagt.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3947091682908339" target="freeweibo-mirror">//@一毛不拔大师:……//@沈璎璎: 当时只道是寻常[泪]…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3947090717313173" target="freeweibo-mirror">SPAM [泪]长者牛逼着呢，还有弹着吉他唱歌的时候，也挺不…</a>
 </h2>
 <p>SPAM [泪]长者牛逼着呢，还有弹着吉他唱歌的时候，也挺不错 //@_lehaha_:[熊猫][哆啦A梦花心]//@谷大白话: 这是一道超纲题啊<br><br>RE: 跟你们这些懂艺术的人聊天压力好大呀，小姑娘的内心是崩溃的[哈哈] http://t.cn/RGp44tp .</p>
-<p>
-	<small> ============== 7小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3947089656751452" target="freeweibo-mirror">1-几十斤，2-负责邮寄[作揖]//@瞧a瞧:哪个主人会给远…</a>
-</h2>
-<p>1-几十斤，2-负责邮寄[作揖]//@瞧a瞧:哪个主人会给远道而来的客人赠送“几十年（应是斤的笔误）重的黄铜工艺品”？这怎么携带？航班上下两个人抬着？<br><br>RE: “2010年与另15家央媒受邀赴渝，意在声援唱红打黑，落地江北机场后，奥迪专车一对一迎接，专人伺候下榻五星级酒店套房。虽然我在书记组织的座谈会上提出了异议，临别时仍与他人一样收受了几十年重的黄铜工艺品。但晚上睡觉时，将门闩插死并堵上沙发。李庄，你如果喜欢就去我家搬走[哈哈]”--X总编<br><img src="http://ww2.sinaimg.cn/large/89aa0dcdjw1f1dls6m7aqj20sg0lcwhw.jpg"></p>
 <p>
 	<small> ============== 7小时前</small>
 </p>
