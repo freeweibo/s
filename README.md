@@ -72,7 +72,7 @@
 </h2>
 <p>喏</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3947115073907076" target="freeweibo-mirror">DNA</a>
 </h2>
