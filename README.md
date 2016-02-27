@@ -24,7 +24,7 @@
 </h2>
 <p>SPAM //@散去流沙:郑彪教授的微博应该解封。</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3947116352595820" target="freeweibo-mirror">喏</a>
 </h2>
@@ -138,7 +138,7 @@
 </h2>
 <p>SPAM 纪录片《光明星4号》发射纪实。http://t.cn/RGxuYrn<br><img src="http://ww4.sinaimg.cn/large/a8ef5277jw1f1dnqguniwj20yi0lqgrc.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p>
 <table>
     <tr>
