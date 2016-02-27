@@ -54,7 +54,7 @@
 </h2>
 <p>SPAM 纪录片《光明星4号》发射纪实。http://t.cn/RGxuYrn<br><img src="http://ww4.sinaimg.cn/large/a8ef5277jw1f1dnqguniwj20yi0lqgrc.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3947064868386010" target="freeweibo-mirror">//@李不白的店://@徐付群: //@黎津平老师: 这位同…</a>
 </h2>
@@ -102,19 +102,19 @@
 </h2>
 <p>SPAM 最近小心，别封号了<br><br>RE: 整风出奇效，群众觉悟不是一般的高了。[好棒]<br><img src="http://ww2.sinaimg.cn/large/dd816182jw1f1dctlkv4wj20lc0cl756.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3947053954259809" target="freeweibo-mirror">这些年，这种流氓网名、歧视性、攻击性、制造社群分裂的网名，一…</a>
 </h2>
 <p>这些年，这种流氓网名、歧视性、攻击性、制造社群分裂的网名，一天到晚制造谣言，诋毁良知，恶心吹捧权力拍马奉迎，网信办一直视而不见，不进行关闭。治理网络需要一种大气和公正，低俗水军即使帮助官方，也要及时清理关闭。 //@陈有西:今天院门没关好让你溜出来了？ //@中国公知精神康复疗养院：<br><img src="http://ww2.sinaimg.cn/large/6b804b51jw1f1dlzacoxfj20ku112jw6.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3947053152839152" target="freeweibo-mirror">凡是把党跟群众对立起来的人，都是给党抹黑，反对党提出的群众路…</a>
 </h2>
 <p>凡是把党跟群众对立起来的人，都是给党抹黑，反对党提出的群众路线//@黎津平老师: 这位同志是云南省教育厅原厅长。<br><br>RE: 用一党意识形态来解释一切现实经验，在无法用意识形态进行思想控制时，只能越来越借助于强权和暴力压制的手段，如警察对任何群众场面如临大敌，随时准备动用武力进行镇压。这等于政府自己在宣布已失去了民心，承认老百姓已成了它必须时时防范的对象。政府权力实质上已变成了一个得不到民心支持的统治。<br><img src="http://ww2.sinaimg.cn/large/902ff5fejw1f1dlcx0c3xj20h80armzy.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3947051567711164" target="freeweibo-mirror">SPAM 雷克这混小子，竟然说无所谓，完全是隔岸观火的心态啊…</a>
 </h2>
