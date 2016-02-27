@@ -90,7 +90,7 @@
 </h2>
 <p>SPAM 纪录片《光明星4号》发射纪实。http://t.cn/RGxuYrn<br><img src="http://ww4.sinaimg.cn/large/a8ef5277jw1f1dnqguniwj20yi0lqgrc.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3947064868386010" target="freeweibo-mirror">//@李不白的店://@徐付群: //@黎津平老师: 这位同…</a>
 </h2>
