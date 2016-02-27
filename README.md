@@ -56,6 +56,12 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3947242336932118" target="freeweibo-mirror">" 我们不能要求每一位网民，都以超然的态度来进行公共事务的讨…</a>
+</h2>
+<p>" 我们不能要求每一位网民，都以超然的态度来进行公共事务的讨论，因为个人经历、立场与利益，本就是公共讨论中无法回避的因素，但是我们希望在自媒体、新媒体中表达意见的网民，能够在发声的同时对这些因素予以审慎对待。 " http://t.cn/RGpdbzA</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3947240181313319" target="freeweibo-mirror">SPAM @陕西高院 ，我爱你！</a>
 </h2>
 <p>SPAM @陕西高院 ，我爱你！<br><img src="http://ww1.sinaimg.cn/large/4fc9c690jw1f1e7dk0rx7j20qo1beqbw.jpg"></p>
@@ -78,7 +84,7 @@
 </h2>
 <p>强烈谴责针对任何人的暴力！<br><br>RE: 【网传马彩云法官被枪杀，深切同情！】2月26日北京昌平区法院法官马彩云被枪杀！一离婚案当事人怀恨马彩云，两男子持枪闯入马彩云家打死马彩云打伤马丈夫后逃跑，被警方追逃至延庆，凶手二人自杀身亡。作为法律人对马法官遇害深表同情！法官是个外表光鲜，工作压力大，工资待遇低职业，没想到还有生命...全文： http://m.weibo.cn/3198720857/3947206241694879<br><img src="http://ww3.sinaimg.cn/large/bea89b59jw1f1e3gusnbrj20m80hjabm.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3947219356830901" target="freeweibo-mirror">[衰]//@八品法曹:转发微博</a>
 </h2>
@@ -114,7 +120,7 @@
 </h2>
 <p>“反党分子”这顶帽子，彭德怀、刘少奇、习仲勋、邓小平等都带过，左棍们给任志强带上这顶帽子不是耻辱，而是荣耀！<br><img src="http://ww4.sinaimg.cn/large/9154fba0jw1f1e08w37kgj205c0640sr.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3947173664097432" target="freeweibo-mirror">【任志强与中国命运！】媒体上正在开展对任志强的大批判，这几天…</a>
 </h2>
@@ -126,17 +132,11 @@
 </h2>
 <p>快登机吧！ //@黄奎ART:我日尼玛！//@郭三皮Running: 恍恍惚惚和红红火火 //@阿乌阿乌:山雨欲来风满楼 //@兔子奶奶熊的娘长颈鹿的爱:無語 //@愽物館典藏:[哈哈][笑cry][鼓掌][怒骂]//@西西弗的胡话:天哪!//@晓钟残漏:恍惚倒穿越……</p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3947155942683531" target="freeweibo-mirror">//@爱乐律师: //@法律及其价值: 转发微博</a>
 </h2>
 <p>//@爱乐律师: //@法律及其价值: 转发微博<br><br>RE: 是合法性遭人质疑还是怎么地？难道也是无证上岗？<br><img src="http://ww3.sinaimg.cn/large/52038d40gw1f1dvveezejj20j60eeabu.jpg"></p>
-<p>
-	<small> ============== 8小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3947152017601955" target="freeweibo-mirror">既然说话了，那行动就要快！不要让别人再说光说不练了！//@早…</a>
-</h2>
-<p>既然说话了，那行动就要快！不要让别人再说光说不练了！//@早报网:党建网发表文章说，这些年网络上奇怪的声音很多，而任志强奇怪语境中的“优秀共产党员”身份无疑是最扎眼的存在。党员发表反党言论的威力和损害远比非党员言论要大得多。“党内的任志强们，吃共产党的饭”[思考]</p>
 <p>
 	<small> ============== 8小时前</small>
 </p>
