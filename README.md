@@ -24,7 +24,13 @@
 </h2>
 <p>强烈谴责针对任何人的暴力！<br><br>RE: 【网传马彩云法官被枪杀，深切同情！】2月26日北京昌平区法院法官马彩云被枪杀！一离婚案当事人怀恨马彩云，两男子持枪闯入马彩云家打死马彩云打伤马丈夫后逃跑，被警方追逃至延庆，凶手二人自杀身亡。作为法律人对马法官遇害深表同情！法官是个外表光鲜，工作压力大，工资待遇低职业，没想到还有生命...全文： http://m.weibo.cn/3198720857/3947206241694879<br><img src="http://ww3.sinaimg.cn/large/bea89b59jw1f1e3gusnbrj20m80hjabm.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3947206241694879" target="freeweibo-mirror">【网传马彩云法官被枪杀，深切同情！】2月26日北京昌平区法院…</a>
+</h2>
+<p>【网传马彩云法官被枪杀，深切同情！】2月26日北京昌平区法院法官马彩云被枪杀！一离婚案当事人怀恨马彩云，两男子持枪闯入马彩云家打死马彩云打伤马丈夫后逃跑，被警方追逃至延庆，凶手二人自杀身亡。作为法律人对马法官遇害深表同情！法官是个外表光鲜，工作压力大，工资待遇低职业，没想到还有生命...全文： http://m.weibo.cn/3198720857/3947206241694879<br><img src="http://ww3.sinaimg.cn/large/bea89b59jw1f1e3gusnbrj20m80hjabm.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3947189459867865" target="freeweibo-mirror">被美国肢解的国家的人民像孙子一样流离失所。//@我错了吗世界…</a>
 </h2>
@@ -42,13 +48,13 @@
 </h2>
 <p>“反党分子”这顶帽子，彭德怀、刘少奇、习仲勋、邓小平等都带过，左棍们给任志强带上这顶帽子不是耻辱，而是荣耀！<br><img src="http://ww4.sinaimg.cn/large/9154fba0jw1f1e08w37kgj205c0640sr.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3947162825414955" target="freeweibo-mirror">快登机吧！ //@黄奎ART:我日尼玛！//@郭三皮Runn…</a>
 </h2>
 <p>快登机吧！ //@黄奎ART:我日尼玛！//@郭三皮Running: 恍恍惚惚和红红火火 //@阿乌阿乌:山雨欲来风满楼 //@兔子奶奶熊的娘长颈鹿的爱:無語 //@愽物館典藏:[哈哈][笑cry][鼓掌][怒骂]//@西西弗的胡话:天哪!//@晓钟残漏:恍惚倒穿越……</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3947155942683531" target="freeweibo-mirror">//@爱乐律师: //@法律及其价值: 转发微博</a>
 </h2>
@@ -133,12 +139,6 @@
 <p>SPAM 懵了？ //@情系丹江:迟大驴屎说自己是“自干五”，我感觉到莫大的污辱！[吐]//@湘微笑6:[阴险]//@地瓜熊老六: 陈有西不是最恨自干五吗？出来和迟夙生遛遛来//@与好运相伴:@陈有西 死磕他试试[阴险]</p>
 <p>
 	<small> ============== 9小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3947099512890928" target="freeweibo-mirror">网友真是太搞了。 http://t.cn/R2WJLZS</a>
-</h2>
-<p>网友真是太搞了。 http://t.cn/R2WJLZS<br><img src="http://ww2.sinaimg.cn/large/627cf045gw1f1dr866r15j20ij0m8gn8.jpg"></p>
-<p>
-	<small> ============== 10小时前</small>
 </p>
 <table>
     <tr>
