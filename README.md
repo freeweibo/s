@@ -42,7 +42,7 @@
 </h2>
 <p>//@爱乐律师: //@法律及其价值: 转发微博<br><br>RE: 是合法性遭人质疑还是怎么地？难道也是无证上岗？<br><img src="http://ww3.sinaimg.cn/large/52038d40gw1f1dvveezejj20j60eeabu.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3947152017601955" target="freeweibo-mirror">既然说话了，那行动就要快！不要让别人再说光说不练了！//@早…</a>
 </h2>
@@ -60,7 +60,7 @@
 </h2>
 <p>是合法性遭人质疑还是怎么地？难道也是无证上岗？<br><img src="http://ww3.sinaimg.cn/large/52038d40gw1f1dvveezejj20j60eeabu.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3947128507837366" target="freeweibo-mirror">SPAM //@散去流沙:郑彪教授的微博应该解封。</a>
 </h2>
@@ -108,7 +108,7 @@
 </h2>
 <p>//@广州区伯:监督一下政府，就说你是汉奸卖国贼，就是丑化党的领导，丑化社会主义。唉！难道这些行为就是爱国主义的行为？都丢脸丢到国外去了！</p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3947109529554447" target="freeweibo-mirror">SPAM //@陈业文新大都:[衰][衰][衰]//@杨宁远…</a>
 </h2>
@@ -138,7 +138,7 @@
 </h2>
 <p>//@蔡照明:周小平的示范效应//@佬_牛:纳税人供养的闲杂人员太多了，所以都没事惹事了。//@侯宁: 总统梦亮晶晶。//@蔡照明: 此事和地产圈无关。1、说明两种意识形态的打斗升级了， 都敢真刀真枪亮出来了；2、政治投机者捞取政治资本，以换取个人利益的套路，已标准化，都会用了；3、比勇敢的时候到了..<br><br>RE: 【任志强事情观察2】如果要动任，一定是很高层的想法，动气了，“大王一怒”，下一句知道怎么接吧。但现在这几个媒体联手反应，还不清楚是最高层知道生气了，还是某些人想搞大，让最高层知道生气。<br><img src="http://ww1.sinaimg.cn/large/48e950e1jw1f1d2i0ultjj20qo1bfagt.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p>
 <table>
     <tr>
