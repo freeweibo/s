@@ -26,6 +26,24 @@
 <p>
 	<small> ============== 1小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3947051567711164" target="freeweibo-mirror">SPAM 雷克这混小子，竟然说无所谓，完全是隔岸观火的心态啊…</a>
+</h2>
+<p>SPAM 雷克这混小子，竟然说无所谓，完全是隔岸观火的心态啊。[怒]//@急煞人也-://@被淹死的鲔鱼://@上海杰睿老爷3: 在墙外看得很清楚。<br><br>RE: 老雷137：任志强 http://t.cn/RGp4ND6 .</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3947050485377699" target="freeweibo-mirror">SPAM //@段贵发://@赵克罗:老雷的话非常客观！推荐…</a>
+</h2>
+<p>SPAM //@段贵发://@赵克罗:老雷的话非常客观！推荐大家看看！[话筒]<br><br>RE: 老雷137：任志强 http://t.cn/RGp4ND6 .</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3947040746515079" target="freeweibo-mirror">SPAM //@危在旦夕: 幸亏你是德国人，不然……哼。</a>
+</h2>
+<p>SPAM //@危在旦夕: 幸亏你是德国人，不然……哼。<br><br>RE: 老雷137：任志强 http://t.cn/RGp4ND6 .</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3946919757590247" target="freeweibo-mirror">@任志强 大炮同志，回到人民群众中来吧！[赞]</a>
 </h2>
 <p>@任志强 大炮同志，回到人民群众中来吧！[赞]</p>
@@ -119,24 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3946767731610244" target="freeweibo-mirror">//@刘胜军改革:言官的座右铭：臣言已行，臣死何憾！</a>
 </h2>
 <p>//@刘胜军改革:言官的座右铭：臣言已行，臣死何憾！<br><br>RE: 【不杀言官】历朝历代皆有“不杀言官”传统。原因很简单，历史一再表明：导致国家灭亡、政权倾覆的从来都不是死谏的言官，而是一味揣摩上意、溜须拍马的太监。@任志强 就是没有头衔的“言官”。言官冒死直谏，不是哗众取宠，而是“为什么我的眼里常含泪水，因为爱这片土地爱的深沉”，是中国最可爱的人<br><img src="http://ww4.sinaimg.cn/large/709b1d0ejw1f1cn5fup3hj20ir0dk3zs.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3946767592631045" target="freeweibo-mirror">八千万党员的耻辱，12亿群众的光荣！</a>
-</h2>
-<p>八千万党员的耻辱，12亿群众的光荣！</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3946763960087320" target="freeweibo-mirror">//@当律师的陈刚: //@邓相超://@星火必燎原: //…</a>
-</h2>
-<p>//@当律师的陈刚: //@邓相超://@星火必燎原: //@摸着石头过河---水太深://@关洪导演://@崔小平律师://@虎叔-:轉發微博<br><br>RE: 今天是中共中央发出《关于为所谓“习仲勋反党集团”平反的通知》的第36个年头。过去利用小说反党是一大发明，现在利用微博反党也是一大发明。<br><img src="http://ww4.sinaimg.cn/large/9ddb72ebjw1f1cdxyombhj20ku112dml.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3946760277487533" target="freeweibo-mirror">SPAM 打倒任志强！//@六国虹:敢于直言的猛士！[赞] …</a>
-</h2>
-<p>SPAM 打倒任志强！//@六国虹:敢于直言的猛士！[赞] //@吴铭:秦人不暇自哀。<br><br>RE: 眼看快回到我们群众中来了，哈哈。<br><img src="http://ww1.sinaimg.cn/large/684c74ecgw1f1cn3y0bpoj20fh0m80zl.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
