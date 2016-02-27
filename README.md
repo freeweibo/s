@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3947223437837470" target="freeweibo-mirror">强烈谴责针对任何人的暴力！</a>
+</h2>
+<p>强烈谴责针对任何人的暴力！<br><br>RE: 【网传马彩云法官被枪杀，深切同情！】2月26日北京昌平区法院法官马彩云被枪杀！一离婚案当事人怀恨马彩云，两男子持枪闯入马彩云家打死马彩云打伤马丈夫后逃跑，被警方追逃至延庆，凶手二人自杀身亡。作为法律人对马法官遇害深表同情！法官是个外表光鲜，工作压力大，工资待遇低职业，没想到还有生命...全文： http://m.weibo.cn/3198720857/3947206241694879<br><img src="http://ww3.sinaimg.cn/large/bea89b59jw1f1e3gusnbrj20m80hjabm.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3947189459867865" target="freeweibo-mirror">被美国肢解的国家的人民像孙子一样流离失所。//@我错了吗世界…</a>
 </h2>
 <p>被美国肢解的国家的人民像孙子一样流离失所。//@我错了吗世界://@梁瑞安://@刘胜军改革:[哈哈]</p>
@@ -30,7 +36,7 @@
 </h2>
 <p>//@温柔的魔兽: //@陆伟民律师:他们打倒的时候连人身自由都没了，还是大领导？//@疲民微言: 任大炮怎么能和那些大领导同列，他就是个盖房子、卖房子的<br><br>RE: “反党分子”这顶帽子，彭德怀、刘少奇、习仲勋、邓小平等都带过，左棍们给任志强带上这顶帽子不是耻辱，而是荣耀！<br><img src="http://ww4.sinaimg.cn/large/9154fba0jw1f1e08w37kgj205c0640sr.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3947178240683606" target="freeweibo-mirror">“反党分子”这顶帽子，彭德怀、刘少奇、习仲勋、邓小平等都带过…</a>
 </h2>
@@ -78,7 +84,7 @@
 </h2>
 <p>SPAM 马彩云法官</p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3947122300953070" target="freeweibo-mirror">SPAM  //@笨笨an://@陈业文新大都:[衰][衰]…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3947099512890928" target="freeweibo-mirror">网友真是太搞了。 http://t.cn/R2WJLZS</a>
 </h2>
 <p>网友真是太搞了。 http://t.cn/R2WJLZS<br><img src="http://ww2.sinaimg.cn/large/627cf045gw1f1dr866r15j20ij0m8gn8.jpg"></p>
-<p>
-	<small> ============== 9小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3947098607002433" target="freeweibo-mirror">报告@徐战前 老师，杨华@侠骨柔情的杨华 应该就是（请看附图…</a>
-</h2>
-<p>报告@徐战前 老师，杨华@侠骨柔情的杨华 应该就是（请看附图）这样的一个大科长领导党员。 http://t.cn/RGp9vYR //@徐战前:楊華是什麽特殊黨員呀，他有什麽資格要挾黨威脅組織，把個人和黨的矛盾公開發表在大眾傳媒上？楊華所在支部和上級組織應該給一個答復。<br><br>RE: 【发誓[拳头]】如果不开除@任志强  党籍，我将一辈子退出新浪微博、一辈子不参与任何意识形态领域里的任何事情！请你为我见证！[哈欠][话筒]</p>
 <p>
 	<small> ============== 9小时前</small>
 </p>
