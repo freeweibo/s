@@ -66,7 +66,7 @@
 </h2>
 <p>【强烈谴责枪杀法官的暴行！正义的国人都为正义呐喊吧！】 http://t.cn/RGpee8A 强烈谴责这种挑战人类文明底限的犯罪行为！强烈谴责针对法官职业群体和共和国法治建设的野蛮行径！为马彩云法官的遇害表示深切的哀悼！<br><img src="http://ww3.sinaimg.cn/large/88a1b60ajw1f1e6nby1lhj20fn0bkwfw.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3947230048763481" target="freeweibo-mirror">网络大字报。[衰] //@徐晋如:转发微博</a>
 </h2>
