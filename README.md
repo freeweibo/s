@@ -36,7 +36,7 @@
 </h2>
 <p>//@荣兴律师://@飞龙在天hj: //@龙之父ywc://@曹国洪微谈:转发微博<br><br>RE: 【什么是“两会”？】简单地说，就是“两种人”的聚会。一种人：不敢公布财产；另一种人：不敢公布国籍！！@南国一匹狼<br><img src="http://ww1.sinaimg.cn/large/006o6oVfjw1f1d2aj9bvnj31460qo11s.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3946887314547344" target="freeweibo-mirror">#张凯事件# 看看五毛水军，连序号都没删！</a>
 </h2>
