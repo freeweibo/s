@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3947053152839152" target="freeweibo-mirror">凡是把党跟群众对立起来的人，都是给党抹黑，反对党提出的群众路…</a>
+</h2>
+<p>凡是把党跟群众对立起来的人，都是给党抹黑，反对党提出的群众路线//@黎津平老师: 这位同志是云南省教育厅原厅长。<br><br>RE: 用一党意识形态来解释一切现实经验，在无法用意识形态进行思想控制时，只能越来越借助于强权和暴力压制的手段，如警察对任何群众场面如临大敌，随时准备动用武力进行镇压。这等于政府自己在宣布已失去了民心，承认老百姓已成了它必须时时防范的对象。政府权力实质上已变成了一个得不到民心支持的统治。<br><img src="http://ww2.sinaimg.cn/large/902ff5fejw1f1dlcx0c3xj20h80armzy.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3946919757590247" target="freeweibo-mirror">@任志强 大炮同志，回到人民群众中来吧！[赞]</a>
 </h2>
 <p>@任志强 大炮同志，回到人民群众中来吧！[赞]</p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3946760277487533" target="freeweibo-mirror">SPAM 打倒任志强！//@六国虹:敢于直言的猛士！[赞] …</a>
 </h2>
 <p>SPAM 打倒任志强！//@六国虹:敢于直言的猛士！[赞] //@吴铭:秦人不暇自哀。<br><br>RE: 眼看快回到我们群众中来了，哈哈。<br><img src="http://ww1.sinaimg.cn/large/684c74ecgw1f1cn3y0bpoj20fh0m80zl.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3946759056878471" target="freeweibo-mirror">反驳的不错。 //@纪小婪: //@清华孙立平: //@贺延…</a>
-</h2>
-<p>反驳的不错。 //@纪小婪: //@清华孙立平: //@贺延光: [good][good][good]<br><br>RE: 任志强 : 不要以为对党的历史和现状提出批评就是反党。-灵魂绽放的博客中国专栏 http://t.cn/RGNwpuB</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
