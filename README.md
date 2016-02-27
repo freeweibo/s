@@ -90,7 +90,7 @@
 </h2>
 <p>用一党意识形态来解释一切现实经验，在无法用意识形态进行思想控制时，只能越来越借助于强权和暴力压制的手段，如警察对任何群众场面如临大敌，随时准备动用武力进行镇压。这等于政府自己在宣布已失去了民心，承认老百姓已成了它必须时时防范的对象。政府权力实质上已变成了一个得不到民心支持的统治。<br><img src="http://ww2.sinaimg.cn/large/902ff5fejw1f1dlcx0c3xj20h80armzy.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3947046761069913" target="freeweibo-mirror">SPAM //@赵克罗:老雷的话非常客观！推荐大家看看！[话…</a>
 </h2>
@@ -103,6 +103,12 @@
 <p>SPAM //@危在旦夕: 幸亏你是德国人，不然……哼。<br><br>RE: 老雷137：任志强 http://t.cn/RGp4ND6 .</p>
 <p>
 	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3946976481833827" target="freeweibo-mirror">任志强回复共青团的文章，写的太好了，建议阅读此文！[赞][赞…</a>
+</h2>
+<p>任志强回复共青团的文章，写的太好了，建议阅读此文！[赞][赞] http://t.cn/RGNggX2</p>
+<p>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3946919757590247" target="freeweibo-mirror">@任志强 大炮同志，回到人民群众中来吧！[赞]</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3946882449445069" target="freeweibo-mirror">【什么是“两会”？】简单地说，就是“两种人”的聚会。一种人：…</a>
 </h2>
 <p>【什么是“两会”？】简单地说，就是“两种人”的聚会。一种人：不敢公布财产；另一种人：不敢公布国籍！！@南国一匹狼<br><img src="http://ww1.sinaimg.cn/large/006o6oVfjw1f1d2aj9bvnj31460qo11s.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3946865202350786" target="freeweibo-mirror">[哈哈]//@摸着石头过河---水太深: //@雁塔小木屋4…</a>
-</h2>
-<p>[哈哈]//@摸着石头过河---水太深: //@雁塔小木屋4://@nb沈榄: //@许合文://@世俗的苦行僧:[哈哈][哈哈]//@无畏剃DAO: //@南开老魏034: //@自由联盟八世: //@四维不存:转发微博<br><br>RE: 微信看到个好段子，大家乐一个[哈哈]<br><img src="http://ww2.sinaimg.cn/large/006lZhUygw1f1cuqq0ah1j30ic0kedir.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
