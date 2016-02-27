@@ -102,13 +102,13 @@
 </h2>
 <p>//@成都双爷:鉴定一哈：这篇所谓兼听则明的好文章，其实就是一装怂完了再装逼的贴：任志强同志……跟大佬叫板不妥……但还是好同志……反党的不是。嘿嘿嘿嘿，语重心长装得跟党一条心似滴哈？啊呸！@陈有西，你就给大炮这么着上膏药？<br><br>RE: 好文章。兼听则明，警惕阴谋。http://t.cn/RG0ZlPb<br><img src="http://ww3.sinaimg.cn/large/6b804b51jw1f1e97hd39cj20qo1bg46n.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3947282074243678" target="freeweibo-mirror">律师发声『梅春来｜关于北京昌平法院女法官被枪杀一事的关注声明…</a>
 </h2>
 <p>律师发声『梅春来｜关于北京昌平法院女法官被枪杀一事的关注声明』http://t.cn/RG0yIGN</p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3947281717437185" target="freeweibo-mirror">最近在外旅行，一位法官求转发，才得知昌平法院马彩云法官被枪杀…</a>
 </h2>
