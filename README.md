@@ -78,13 +78,13 @@
 </h2>
 <p>不要说混话，好像自己很超脱。这里没有双方。只有蓄意的一方。另一方同你一样，是看不下去的中立者。 //@王小东:这阶级斗争味儿越来越浓了，双方互相指责对方反党，真的很像文革[嘻嘻][嘻嘻][嘻嘻]//@博联社马晓霖:【话里有话】 这个解读有意思，用过去的话说，阶级斗争非常复杂，敌情十分严重。<br><br>RE: 好文章。兼听则明，警惕阴谋。http://t.cn/RG0ZlPb<br><img src="http://ww3.sinaimg.cn/large/6b804b51jw1f1e97hd39cj20qo1bg46n.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3947288747279482" target="freeweibo-mirror">//@西北悬天一块云:哈哈，的确是，都在争正统表决心[笑cr…</a>
 </h2>
 <p>//@西北悬天一块云:哈哈，的确是，都在争正统表决心[笑cry] //@王小东:这阶级斗争味儿越来越浓了，双方互相指责对方反党，真的很像文革[嘻嘻][嘻嘻][嘻嘻]//@博联社马晓霖:【话里有话】 这个解读有意思，用过去的话说，阶级斗争非常复杂，敌情十分严重。<br><br>RE: 好文章。兼听则明，警惕阴谋。http://t.cn/RG0ZlPb<br><img src="http://ww3.sinaimg.cn/large/6b804b51jw1f1e97hd39cj20qo1bg46n.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3947287644427384" target="freeweibo-mirror">//@南大景凯旋: 强烈谴责杀害法官的暴行！</a>
 </h2>
