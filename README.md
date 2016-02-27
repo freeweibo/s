@@ -38,6 +38,12 @@
 <p>
 	<small> ============== 11小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3946887314547344" target="freeweibo-mirror">#张凯事件# 看看五毛水军，连序号都没删！</a>
+</h2>
+<p>#张凯事件# 看看五毛水军，连序号都没删！<br><img src="http://ww2.sinaimg.cn/large/74146ef7jw1f1d2t36ov3j20ku11243i.jpg"></p>
+<p>
+	<small> ============== 11小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3946882449445069" target="freeweibo-mirror">【什么是“两会”？】简单地说，就是“两种人”的聚会。一种人：…</a>
 </h2>
 <p>【什么是“两会”？】简单地说，就是“两种人”的聚会。一种人：不敢公布财产；另一种人：不敢公布国籍！！@南国一匹狼<br><img src="http://ww1.sinaimg.cn/large/006o6oVfjw1f1d2aj9bvnj31460qo11s.jpg"></p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3946759056878471" target="freeweibo-mirror">反驳的不错。 //@纪小婪: //@清华孙立平: //@贺延…</a>
 </h2>
 <p>反驳的不错。 //@纪小婪: //@清华孙立平: //@贺延光: [good][good][good]<br><br>RE: 任志强 : 不要以为对党的历史和现状提出批评就是反党。-灵魂绽放的博客中国专栏 http://t.cn/RGNwpuB</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3946757102246122" target="freeweibo-mirror">//@刘力博士://@大气磅礴2015:文革的节奏又回来了，…</a>
-</h2>
-<p>//@刘力博士://@大气磅礴2015:文革的节奏又回来了，不是又反革命吧//@王小山: 眼看快成我们群众了，哈哈。<br><br>RE: 邝飙作品<br><img src="http://ww2.sinaimg.cn/large/539d77e6gw1f1cm9j5oorj20k00spq71.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
