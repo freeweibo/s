@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3947281717437185" target="freeweibo-mirror">最近在外旅行，一位法官求转发，才得知昌平法院马彩云法官被枪杀…</a>
+</h2>
+<p>最近在外旅行，一位法官求转发，才得知昌平法院马彩云法官被枪杀。无论任何理由，都决不可成为杀人的借口，强烈遣责。问题的解决不是靠禁声或遣责，而要推动实质性司法改革。确立司法独立，给予法官充分的司法保障，实现司法公正，提升司法公信，法官最终才能享有特殊的尊荣和权威http://t.cn/RG0yT4S<br><img src="http://ww4.sinaimg.cn/large/656952ecjw1f1ec5jad0cj20a80cz417.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3947266731929879" target="freeweibo-mirror">这是我们所有法律人的事，尽管有时候法官们并不认为我们是他们司…</a>
 </h2>
 <p>这是我们所有法律人的事，尽管有时候法官们并不认为我们是他们司法体系内的一员，但在重大问题上，我个人认为我们必须是共呼吸同命运//@阿榴1997: 律师能出此言，略感一丝安慰。 //@探汤CPAing:转发微博<br><br>RE: 发表了博文《梅春来｜关于北京昌平法院女法官被枪杀一事的关注声明》梅春来｜关于北京昌平法院女法官被枪杀一事的关注声明今天我们律师界突然得知一个令人十分痛惜的事件，北京市昌平区法院回龙观法庭马彩云法官被人http://weibo.com/p/2304184c808cbd0102wuck<br><img src="http://ww3.sinaimg.cn/large/4c808cbdjw1f1ea51rpjmj20b407ejrt.jpg"></p>
@@ -90,7 +96,7 @@
 </h2>
 <p>SPAM @陕西高院 ，我爱你！<br><img src="http://ww1.sinaimg.cn/large/4fc9c690jw1f1e7dk0rx7j20qo1beqbw.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3947233768164104" target="freeweibo-mirror">【强烈谴责枪杀法官的暴行！正义的国人都为正义呐喊吧！】 ht…</a>
 </h2>
@@ -133,12 +139,6 @@
 <p>【网传马彩云法官被枪杀，深切同情！】2月26日北京昌平区法院法官马彩云被枪杀！一离婚案当事人怀恨马彩云，两男子持枪闯入马彩云家打死马彩云打伤马丈夫后逃跑，被警方追逃至延庆，凶手二人自杀身亡。作为法律人对马法官遇害深表同情！法官是个外表光鲜，工作压力大，工资待遇低职业，没想到还有生命...全文： http://m.weibo.cn/3198720857/3947206241694879<br><img src="http://ww3.sinaimg.cn/large/bea89b59jw1f1e3gusnbrj20m80hjabm.jpg"></p>
 <p>
 	<small> ============== 6小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3947189459867865" target="freeweibo-mirror">被美国肢解的国家的人民像孙子一样流离失所。//@我错了吗世界…</a>
-</h2>
-<p>被美国肢解的国家的人民像孙子一样流离失所。//@我错了吗世界://@梁瑞安://@刘胜军改革:[哈哈]</p>
-<p>
-	<small> ============== 7小时前</small>
 </p>
 <table>
     <tr>
