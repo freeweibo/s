@@ -42,7 +42,7 @@
 </h2>
 <p>【什么是“两会”？】简单地说，就是“两种人”的聚会。一种人：不敢公布财产；另一种人：不敢公布国籍！！@南国一匹狼<br><img src="http://ww1.sinaimg.cn/large/006o6oVfjw1f1d2aj9bvnj31460qo11s.jpg"></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3946865202350786" target="freeweibo-mirror">[哈哈]//@摸着石头过河---水太深: //@雁塔小木屋4…</a>
 </h2>
