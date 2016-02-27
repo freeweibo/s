@@ -42,7 +42,7 @@
 </h2>
 <p>//@温柔的魔兽: //@陆伟民律师:他们打倒的时候连人身自由都没了，还是大领导？//@疲民微言: 任大炮怎么能和那些大领导同列，他就是个盖房子、卖房子的<br><br>RE: “反党分子”这顶帽子，彭德怀、刘少奇、习仲勋、邓小平等都带过，左棍们给任志强带上这顶帽子不是耻辱，而是荣耀！<br><img src="http://ww4.sinaimg.cn/large/9154fba0jw1f1e08w37kgj205c0640sr.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3947178240683606" target="freeweibo-mirror">“反党分子”这顶帽子，彭德怀、刘少奇、习仲勋、邓小平等都带过…</a>
 </h2>
@@ -90,7 +90,7 @@
 </h2>
 <p>SPAM 马彩云法官</p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3947122300953070" target="freeweibo-mirror">SPAM  //@笨笨an://@陈业文新大都:[衰][衰]…</a>
 </h2>
