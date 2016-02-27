@@ -42,7 +42,7 @@
 </h2>
 <p>上午就在帝都辞职法官群里炸开了消息，多方探寻，细节越来越明了。希望官方尽快公布真相，保法官平安。<br><img src="http://ww2.sinaimg.cn/large/7ca1725bjw1f1dwuay5m0j20qo1be7b1.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3947139966788395" target="freeweibo-mirror">是合法性遭人质疑还是怎么地？难道也是无证上岗？</a>
 </h2>
@@ -110,6 +110,12 @@
 <p>
 	<small> ============== 6小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3947099512890928" target="freeweibo-mirror">网友真是太搞了。 http://t.cn/R2WJLZS</a>
+</h2>
+<p>网友真是太搞了。 http://t.cn/R2WJLZS<br><img src="http://ww2.sinaimg.cn/large/627cf045gw1f1dr866r15j20ij0m8gn8.jpg"></p>
+<p>
+	<small> ============== 7小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3947098607002433" target="freeweibo-mirror">报告@徐战前 老师，杨华@侠骨柔情的杨华 应该就是（请看附图…</a>
 </h2>
 <p>报告@徐战前 老师，杨华@侠骨柔情的杨华 应该就是（请看附图）这样的一个大科长领导党员。 http://t.cn/RGp9vYR //@徐战前:楊華是什麽特殊黨員呀，他有什麽資格要挾黨威脅組織，把個人和黨的矛盾公開發表在大眾傳媒上？楊華所在支部和上級組織應該給一個答復。<br><br>RE: 【发誓[拳头]】如果不开除@任志强  党籍，我将一辈子退出新浪微博、一辈子不参与任何意识形态领域里的任何事情！请你为我见证！[哈欠][话筒]</p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3947091073605980" target="freeweibo-mirror">匡迪同志[太开心] //@一毛不拔大师:……//@沈璎璎: …</a>
 </h2>
 <p>匡迪同志[太开心] //@一毛不拔大师:……//@沈璎璎: 当时只道是寻常[泪]//@小仓山:哎呀格辰光新闻联播还有看头嘛 //@八圈:这小姑娘这种反应还不错了……长者问得也是很刁钻啊 //@阿汪娘:[可爱][可爱][可爱]哈哈哈匡迪黄菊辰光<br><br>RE: 跟你们这些懂艺术的人聊天压力好大呀，小姑娘的内心是崩溃的[哈哈] http://t.cn/RGp44tp .</p>
-<p>
-	<small> ============== 7小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3947090717313173" target="freeweibo-mirror">SPAM [泪]长者牛逼着呢，还有弹着吉他唱歌的时候，也挺不…</a>
-</h2>
-<p>SPAM [泪]长者牛逼着呢，还有弹着吉他唱歌的时候，也挺不错 //@_lehaha_:[熊猫][哆啦A梦花心]//@谷大白话: 这是一道超纲题啊<br><br>RE: 跟你们这些懂艺术的人聊天压力好大呀，小姑娘的内心是崩溃的[哈哈] http://t.cn/RGp44tp .</p>
 <p>
 	<small> ============== 7小时前</small>
 </p>
