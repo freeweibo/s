@@ -20,9 +20,21 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3947128507837366" target="freeweibo-mirror">SPAM //@散去流沙:郑彪教授的微博应该解封。</a>
+</h2>
+<p>SPAM //@散去流沙:郑彪教授的微博应该解封。</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3947116352595820" target="freeweibo-mirror">喏</a>
 </h2>
 <p>喏</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3947115073907076" target="freeweibo-mirror">DNA</a>
+</h2>
+<p>DNA<br><br>RE: 反对任志强的文章，似乎作者都匿名。在共产党领导的国家，维护党的利益和尊严，竟然连名字都不敢写，似乎这么点底气都没有，我真的看不懂了。<br><img src="http://ww1.sinaimg.cn/large/5ff29ca4jw1f1dsr4f1jmj20qo1be493.jpg"></p>
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
@@ -125,18 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3947064868386010" target="freeweibo-mirror">//@李不白的店://@徐付群: //@黎津平老师: 这位同…</a>
 </h2>
 <p>//@李不白的店://@徐付群: //@黎津平老师: 这位同志是云南省教育厅原厅长。被盗号了？<br><br>RE: 用一党意识形态来解释一切现实经验，在无法用意识形态进行思想控制时，只能越来越借助于强权和暴力压制的手段，如警察对任何群众场面如临大敌，随时准备动用武力进行镇压。这等于政府自己在宣布已失去了民心，承认老百姓已成了它必须时时防范的对象。政府权力实质上已变成了一个得不到民心支持的统治。<br><img src="http://ww2.sinaimg.cn/large/902ff5fejw1f1dlcx0c3xj20h80armzy.jpg"></p>
-<p>
-	<small> ============== 6小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3947064569643313" target="freeweibo-mirror">转网友评论：“刚开微博的时候关注过任志强，很快就发现他每天一…</a>
-</h2>
-<p>转网友评论：“刚开微博的时候关注过任志强，很快就发现他每天一大早都发人生感言心灵鸡汤，烦透了，取关。现在想想其实早晨这碗汤和从前地下党在窗台上摆花盆是一样重要的。”[月亮][月亮][月亮][月亮]</p>
-<p>
-	<small> ============== 6小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3947064331069537" target="freeweibo-mirror">被和谐了//@彭园v: 转发微博</a>
-</h2>
-<p>被和谐了//@彭园v: 转发微博<br><br>RE: 任志强回复共青团的文章，写的太好了，建议阅读此文！[赞][赞] http://t.cn/RGNggX2</p>
 <p>
 	<small> ============== 6小时前</small>
 </p>
