@@ -78,7 +78,7 @@
 </h2>
 <p>//@宪阁微观:两个红苕引发的惨案。。。//@尹鸿: 咋回事？这是道政治试题吗？怎么人民网原博都删了[泪]<br><br>RE: 整风出奇效，群众觉悟不是一般的高了。[好棒]<br><img src="http://ww2.sinaimg.cn/large/dd816182jw1f1dctlkv4wj20lc0cl756.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3947069129031385" target="freeweibo-mirror">SPAM 纪录片《光明星4号》发射纪实。http://t.c…</a>
 </h2>
