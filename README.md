@@ -54,13 +54,13 @@
 </h2>
 <p>右边好险[哈哈][哈哈]//@光明家具刘志军：//@袁莉wsj: 应该是：可惜，不叫志强<br><br>RE: 幸亏，不叫志强。<br><img src="http://ww3.sinaimg.cn/large/486bea1ajw1f1fba1wlmpj20qo0zkdjx.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3947590397613464" target="freeweibo-mirror">要容得下尖锐批评，做到有则改之、无则加勉；</a>
 </h2>
 <p>要容得下尖锐批评，做到有则改之、无则加勉；</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3947590024305309" target="freeweibo-mirror">尖锐的批评，但是需要是正确的批评。多看党史百利无害。</a>
 </h2>
