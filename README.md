@@ -48,25 +48,25 @@
 </h2>
 <p>//@逆风蝴蝶:随意。跳梁小丑，有本事就署名，不署名爱说什么说什么，跟王岐山叫板，能有好下场？ //@Phicochan小布晨飛://@LifeTime:文革模式启动了，各派都指责对方反党反毛。[酷] //@姜逸青:转发微博<br><br>RE: 好文章。兼听则明，警惕阴谋。http://t.cn/RG0ZlPb<br><img src="http://ww3.sinaimg.cn/large/6b804b51jw1f1e97hd39cj20qo1bg46n.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3947293863994262" target="freeweibo-mirror">[围观]//@摩娅: [偷笑]两边打的武器都一样，都是说自己…</a>
 </h2>
 <p>[围观]//@摩娅: [偷笑]两边打的武器都一样，都是说自己是党、人民一边，都拿毛的话说话。文革也是这样的嘛！要我说，你们就不能拿常识说事？//@瓦良格号归来:→_→[赞]<br><br>RE: 好文章。兼听则明，警惕阴谋。http://t.cn/RG0ZlPb<br><img src="http://ww3.sinaimg.cn/large/6b804b51jw1f1e97hd39cj20qo1bg46n.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3947293608951048" target="freeweibo-mirror">//@徐昕://@京都观潮://@王修216: 任总是根导火…</a>
 </h2>
 <p>//@徐昕://@京都观潮://@王修216: 任总是根导火索？//@旦复旦兮00://@王甫律师:越来越热闹 //@王小东:这阶级斗争味儿越来越浓了，双方互相指责对方反党，真的很像文革[嘻嘻]//@博联社马晓霖:【话里有话】 这个解读有意思，用过去的话说，阶级斗争非常复杂，敌情十分严重<br><br>RE: 好文章。兼听则明，警惕阴谋。http://t.cn/RG0ZlPb<br><img src="http://ww3.sinaimg.cn/large/6b804b51jw1f1e97hd39cj20qo1bg46n.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3947293599967796" target="freeweibo-mirror">SPAM //@杨宁远v: 人治-》党治-》法治。是生长痛吧…</a>
 </h2>
 <p>SPAM //@杨宁远v: 人治-》党治-》法治。是生长痛吧！ //@陈有西@王小东@博联社马晓霖<br><br>RE: 好文章。兼听则明，警惕阴谋。http://t.cn/RG0ZlPb<br><img src="http://ww3.sinaimg.cn/large/6b804b51jw1f1e97hd39cj20qo1bg46n.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3947293126791274" target="freeweibo-mirror">随意。跳梁小丑，有本事就署名，不署名爱说什么说什么，跟王岐山…</a>
 </h2>
