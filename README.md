@@ -32,6 +32,18 @@
 <p>
 	<small> ============== 1小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3947628502967168" target="freeweibo-mirror">//@道理没有国界:转发微博</a>
+</h2>
+<p>//@道理没有国界:转发微博</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3947624996518380" target="freeweibo-mirror">→_→//@老百0693: [哈哈][哈哈][哈哈] //@…</a>
+</h2>
+<p>→_→//@老百0693: [哈哈][哈哈][哈哈] //@村长宣言:谁代表我谁死全家！[衰] //@放眼_:转发微博<br><br>RE: 两会前夕，我再次声明：你代表你，他代表他，鱼代表鱼，虾代表虾，乌龟的代表是王八，未经我同意，谁代表我，谁就死全家！<br><img src="http://ww1.sinaimg.cn/large/006cUSOvgw1f1f3imr60fj30eq0qowg7.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3947620713878270" target="freeweibo-mirror">//@迟夙生律师: //@自由职业者在浦东://@崔小平律师…</a>
 </h2>
 <p>//@迟夙生律师: //@自由职业者在浦东://@崔小平律师: //@王敏竹--反计救国://@向天问道3://@以點帶面-://@元士116: //@砍柴破梦: 转发微博<br><br>RE: 任大炮后援团！胸器<br><img src="http://ww3.sinaimg.cn/large/006cUSOvgw1f1f47uvgjdj30c81f8dn8.jpg"></p>
@@ -60,7 +72,7 @@
 </h2>
 <p>//@在打盹: //@围观倒车-://@刚刚路过03:有权就是可以任性。 //@情系南北疆://@笑看众生之001://@流浪王子马文彬G://@脊松3:抓不到嫖娼，才出此下策。//@神评-剑圣://@哥们风太大://@散淡人生F:谁跟你讲理！//@LoveTrust哩:呵呵[嘘]<br><br>RE: 关闭任志强的账号也就罢了，但是不允许再次注册就有点匪夷所思了。这实际上意味着不仅对言论进行事后惩罚，而且还要进行事先审查乃至事先惩罚。一个人因为说了某些话，就永远将他嘴巴封上了。世界范围内对言论的事先审查制早就臭名昭著，我国法律表面上也没有这么明文搞。弱弱的问下网信办，依据何在？</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3947599306922134" target="freeweibo-mirror">才两年光景那，哈哈哈哈哈，就他妈的成了一个笑话！！ //@何…</a>
 </h2>
@@ -125,18 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3947589067407908" target="freeweibo-mirror">SPAM 其实，都叫志强。 //@袁莉wsj:应该是：可惜，…</a>
 </h2>
 <p>SPAM 其实，都叫志强。 //@袁莉wsj:应该是：可惜，不叫志强<br><br>RE: 幸亏，不叫志强。<br><img src="http://ww3.sinaimg.cn/large/486bea1ajw1f1fba1wlmpj20qo0zkdjx.jpg"></p>
-<p>
-	<small> ============== 4小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3947588786854517" target="freeweibo-mirror">SPAM //@最小的星: //@魏城WEICHENG:学习…</a>
-</h2>
-<p>SPAM //@最小的星: //@魏城WEICHENG:学习雷锋好榜样， 忠于革命忠于党， 爱憎分明不忘本， 立场坚定斗志强！<br><br>RE: 幸亏，不叫志强。<br><img src="http://ww3.sinaimg.cn/large/486bea1ajw1f1fba1wlmpj20qo0zkdjx.jpg"></p>
-<p>
-	<small> ============== 4小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3947588660518262" target="freeweibo-mirror">吃枣药丸。 //@北京厨子新号://@谭人玮: //@海口逗…</a>
-</h2>
-<p>吃枣药丸。 //@北京厨子新号://@谭人玮: //@海口逗逗er: 谁在违法，对照国家宪法看看。//@jerryby：任志强既没有传播谣言又没有违反法律，请问网信办做出封停账号这个行政处罚决定的法律依据在哪里？<br><br>RE: 关闭任志强的账号也就罢了，但是不允许再次注册就有点匪夷所思了。这实际上意味着不仅对言论进行事后惩罚，而且还要进行事先审查乃至事先惩罚。一个人因为说了某些话，就永远将他嘴巴封上了。世界范围内对言论的事先审查制早就臭名昭著，我国法律表面上也没有这么明文搞。弱弱的问下网信办，依据何在？</p>
 <p>
 	<small> ============== 4小时前</small>
 </p>
