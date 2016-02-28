@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3947604301730518" target="freeweibo-mirror">谁的题字？貌似防毛体。 //@一品泥人://@喷嚏网铂程: …</a>
+</h2>
+<p>谁的题字？貌似防毛体。 //@一品泥人://@喷嚏网铂程: //@胡戈: 转发微博   http://t.cn/RG08ayJ</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3947599306922134" target="freeweibo-mirror">才两年光景那，哈哈哈哈哈，就他妈的成了一个笑话！！ //@何…</a>
 </h2>
 <p>才两年光景那，哈哈哈哈哈，就他妈的成了一个笑话！！ //@何兵:那天，咱们正在喝酒。我宣读习总讲话，贺卫方们鼓掌相庆。右边记得否？ //@陶景洲:恍若隔世？ //@flypig:三年过去，历史重演 //@李开复:能不禁言不封号吗？ //@袁莉wsj: 能不请喝茶吗？ //@任志强:今后能不删微博吗？</p>
@@ -114,7 +120,7 @@
 </h2>
 <p>文革2.0从炮打仁大炮开始？？<br><br>RE: 【国家网信办：任志强微博账号被关闭】2月28日，国家互联网信息办公室责令新浪、腾讯等网站依法依规关闭任志强微博账号。国家网信办发言人姜军发表谈话称，网络空间不是法外之地，任何人不得利用网络传播违法信息。姜军表示，任志强微博账号持续公开发布违法信息，影响恶劣。http://t.cn/RG0lHUZ<br><img src="http://ww1.sinaimg.cn/large/65dc17d3jw1f1f49rdtenj20c707kmxg.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3947533434869851" target="freeweibo-mirror">讲真话，求真相。你已经走在了犯罪的道路上。</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3947526581214084" target="freeweibo-mirror">【国家网信办：任志强微博账号被关闭】2月28日，国家互联网信…</a>
 </h2>
 <p>【国家网信办：任志强微博账号被关闭】2月28日，国家互联网信息办公室责令新浪、腾讯等网站依法依规关闭任志强微博账号。国家网信办发言人姜军发表谈话称，网络空间不是法外之地，任何人不得利用网络传播违法信息。姜军表示，任志强微博账号持续公开发布违法信息，影响恶劣。http://t.cn/RG0lHUZ<br><img src="http://ww1.sinaimg.cn/large/65dc17d3jw1f1f49rdtenj20c707kmxg.jpg"></p>
-<p>
-	<small> ============== 6小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3947525998348573" target="freeweibo-mirror">SPAM 伪娘的春天就要来了</a>
-</h2>
-<p>SPAM 伪娘的春天就要来了<br><br>RE: 掃蕩完任志強、孫海英、榮劍之後，估計就該輪到@不加V 這種有違「社會主義核心價值觀」的非我族類了，充滿各種喜聞樂見普大喜奔的暖男新浪，該多有趣啊！<br><img src="http://ww4.sinaimg.cn/large/9fa8a41djw1f1f3sek6ibj20ku0q2n3k.jpg"></p>
 <p>
 	<small> ============== 6小时前</small>
 </p>
