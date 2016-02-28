@@ -78,7 +78,7 @@
 </h2>
 <p>//@汉语碎片:转发微博<br><br>RE: 任志强 : 不要以为对党的历史和现状提出批评就是反党 http://t.cn/RGpa5C1</p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3947379692238544" target="freeweibo-mirror">谴责枪杀法官的被删，转转法官妻子为夫鸣冤的应该可以吧</a>
 </h2>
