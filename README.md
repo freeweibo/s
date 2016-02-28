@@ -36,7 +36,7 @@
 </h2>
 <p>SPAM 戏里戏外，不止是戏；云里雾里的看戏人，尽皆入戏。<br><br>RE: 好文章。兼听则明，警惕阴谋。http://t.cn/RG0ZlPb<br><img src="http://ww3.sinaimg.cn/large/6b804b51jw1f1e97hd39cj20qo1bg46n.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3947294518500943" target="freeweibo-mirror">//@逆风蝴蝶:随意。跳梁小丑，有本事就署名，不署名爱说什么…</a>
 </h2>
@@ -126,7 +126,7 @@
 </h2>
 <p>有意思了…… //@王小东:这阶级斗争味儿越来越浓了，双方互相指责对方反党，真的很像文革[嘻嘻][嘻嘻][嘻嘻]//@博联社马晓霖:【话里有话】 这个解读有意思，用过去的话说，阶级斗争非常复杂，敌情十分严重。<br><br>RE: 好文章。兼听则明，警惕阴谋。http://t.cn/RG0ZlPb<br><img src="http://ww3.sinaimg.cn/large/6b804b51jw1f1e97hd39cj20qo1bg46n.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3947279343513649" target="freeweibo-mirror">【哀悼北京女法官】[蜡烛][蜡烛][蜡烛]@陈宝成：1，谴责…</a>
 </h2>
