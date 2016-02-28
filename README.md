@@ -96,7 +96,7 @@
 </h2>
 <p>//@南大景凯旋: 强烈谴责杀害法官的暴行！<br><br>RE: 最近在外旅行，一位法官求转发，才得知昌平法院马彩云法官被枪杀。无论任何理由，都决不可成为杀人的借口，强烈遣责。问题的解决不是靠禁声或遣责，而要推动实质性司法改革。确立司法独立，给予法官充分的司法保障，实现司法公正，提升司法公信，法官最终才能享有特殊的尊荣和权威http://t.cn/RG0yT4S<br><img src="http://ww4.sinaimg.cn/large/6a3d7f8cjw1f1ecq37fbxj20a80czt9m.jpg"></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3947285631449562" target="freeweibo-mirror">SPAM 后台是谁呢？</a>
 </h2>
