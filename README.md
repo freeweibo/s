@@ -30,7 +30,7 @@
 </h2>
 <p>右边好险[哈哈][哈哈]//@光明家具刘志军：//@袁莉wsj: 应该是：可惜，不叫志强<br><br>RE: 幸亏，不叫志强。<br><img src="http://ww3.sinaimg.cn/large/486bea1ajw1f1fba1wlmpj20qo0zkdjx.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3947589973937486" target="freeweibo-mirror">右边[爱你] //@法大尹志强:转发微博</a>
 </h2>
