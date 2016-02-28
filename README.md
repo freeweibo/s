@@ -30,7 +30,7 @@
 </h2>
 <p>SPAM 回复@胖纸微博:编的水平也不错啊。。。//@胖纸微博:和华莱士的谈话是另外的一套，这一套是国外一个华人教授编的，编的挺好，很多人信以为真//@西西福厮:最后一段话，说的太对了。。。<br><br>RE: 膜<br><img src="http://ww2.sinaimg.cn/large/c58a17e2jw1f1ethwycu4j20qo15dqbg.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3947437422984473" target="freeweibo-mirror">确切说，是公知推墙界会更加疯狂！特别是体制内滴~ //@哈利…</a>
 </h2>
