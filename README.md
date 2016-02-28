@@ -32,6 +32,30 @@
 <p>
 	<small> ============== 1小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3947589067407908" target="freeweibo-mirror">SPAM 其实，都叫志强。 //@袁莉wsj:应该是：可惜，…</a>
+</h2>
+<p>SPAM 其实，都叫志强。 //@袁莉wsj:应该是：可惜，不叫志强<br><br>RE: 幸亏，不叫志强。<br><img src="http://ww3.sinaimg.cn/large/486bea1ajw1f1fba1wlmpj20qo0zkdjx.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3947588786854517" target="freeweibo-mirror">SPAM //@最小的星: //@魏城WEICHENG:学习…</a>
+</h2>
+<p>SPAM //@最小的星: //@魏城WEICHENG:学习雷锋好榜样， 忠于革命忠于党， 爱憎分明不忘本， 立场坚定斗志强！<br><br>RE: 幸亏，不叫志强。<br><img src="http://ww3.sinaimg.cn/large/486bea1ajw1f1fba1wlmpj20qo0zkdjx.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3947588648367658" target="freeweibo-mirror">SPAM //@袁莉wsj: 应该是：可惜，不叫志强</a>
+</h2>
+<p>SPAM //@袁莉wsj: 应该是：可惜，不叫志强<br><br>RE: 幸亏，不叫志强。<br><img src="http://ww3.sinaimg.cn/large/486bea1ajw1f1fba1wlmpj20qo0zkdjx.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3947588417999388" target="freeweibo-mirror">SPAM 应该是：可惜，不叫志强</a>
+</h2>
+<p>SPAM 应该是：可惜，不叫志强<br><br>RE: 幸亏，不叫志强。<br><img src="http://ww3.sinaimg.cn/large/486bea1ajw1f1fba1wlmpj20qo0zkdjx.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3947571724719004" target="freeweibo-mirror">谴责枪杀法官 //@小埋汰猫://@记者郝成: //@陈光武…</a>
 </h2>
 <p>谴责枪杀法官 //@小埋汰猫://@记者郝成: //@陈光武律师://@何兵: 无论如何，都不能杀人。<br><br>RE: 分享图片<br><img src="http://ww4.sinaimg.cn/large/9f5f373djw1f1f4u40rhej20u01dmgt9.jpg"></p>
@@ -115,30 +139,6 @@
 <p>SPAM 我靠！<br><br>RE: 在想一個邏輯上的問題，八千萬黨員認為任志強是恥辱，十三億群眾認為任志強是志強。那麼八千萬黨員要把任志強踢出黨員隊伍，回到群眾當中，那麼是不是剩下的黨員會被十三億人認為是恥辱呢？</p>
 <p>
 	<small> ============== 5小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3947520252463952" target="freeweibo-mirror">枪打出头鸟。[挖鼻]//@邵明波:新浪微博的股价，会被拉下几…</a>
-</h2>
-<p>枪打出头鸟。[挖鼻]//@邵明波:新浪微博的股价，会被拉下几个点？</p>
-<p>
-	<small> ============== 5小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3947518885032708" target="freeweibo-mirror">SPAM @任志强 已经被销号了，没有了！</a>
-</h2>
-<p>SPAM @任志强 已经被销号了，没有了！<br><img src="http://ww2.sinaimg.cn/large/74e335a5gw1f1f3e2xw4aj20fh0m8dia.jpg"></p>
-<p>
-	<small> ============== 6小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3947480057669513" target="freeweibo-mirror">关键时候，一大波公知挺胡总了。胡总别删//@北村:嗯。 //…</a>
-</h2>
-<p>关键时候，一大波公知挺胡总了。胡总别删//@北村:嗯。 //@章诒和://@徐昕: //@毛立新:[嘻嘻] //@记者郝建国://@陶景洲: 造谣可耻！冒用别人的名义造谣更可耻。<br><br>RE: 有人冒充我的名义，编造我对任志强事件的评论。谴责伪造者。要说什么话，我会自己说，用不着别人来代笔。我迄今没做评论，而且如果没记错的话，这应是“任志强”三个字第一次出现在我的微博上，这就是事实。</p>
-<p>
-	<small> ============== 8小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3947440967656784" target="freeweibo-mirror">官媒对任的批评，组织对任的处理，有些人指责这是文革。其实，正…</a>
-</h2>
-<p>官媒对任的批评，组织对任的处理，有些人指责这是文革。其实，正常政治势力的交锋不可避免，中国这算温和文明稳定有序，丝毫不值得大惊小怪，更没有任何理由来批评指责。//@千年河东:转发微博<br><br>RE: 任志强的抛物线还有多长？新华网这文章比之前两篇还“露骨”：任比谁都清楚想要回头是不可能了，唯有孤注一掷走到党的对立面以各种反党言论不断扩充舆论影响力，才有可能引起国外反华政治团体的关注，最大限度地为自己积累反向的舆论博弈资本，以期延长被清算时间的抛物线，达到暂时保全自己的目的。<br><img src="http://ww4.sinaimg.cn/large/c37c67cbgw1f1ecj899jnj20ig0fi0v5.jpg"></p>
-<p>
-	<small> ============== 11小时前</small>
 </p>
 <table>
     <tr>
