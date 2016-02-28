@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3947537113393652" target="freeweibo-mirror">微博说话要注意了！！！</a>
+</h2>
+<p>微博说话要注意了！！！<br><br>RE: 【国家网信办：任志强微博账号被关闭】2月28日，国家互联网信息办公室责令新浪、腾讯等网站依法依规关闭任志强微博账号。国家网信办发言人姜军发表谈话称，网络空间不是法外之地，任何人不得利用网络传播违法信息。姜军表示，任志强微博账号持续公开发布违法信息，影响恶劣。http://t.cn/RG0lHUZ<br><img src="http://ww1.sinaimg.cn/large/65dc17d3jw1f1f49rdtenj20c707kmxg.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3947524085974042" target="freeweibo-mirror">说不准哪天会把微博关掉。//@北国红叶来南国: //@彼得洛…</a>
 </h2>
 <p>说不准哪天会把微博关掉。//@北国红叶来南国: //@彼得洛维奇QHM:经济不会玩，开始玩人了</p>
@@ -72,7 +78,7 @@
 </h2>
 <p>SPAM 最后一段话，说的太对了。。。<br><br>RE: 膜<br><img src="http://ww2.sinaimg.cn/large/c58a17e2jw1f1ethwycu4j20qo15dqbg.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3947432725473472" target="freeweibo-mirror">膜</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3947293126791274" target="freeweibo-mirror">随意。跳梁小丑，有本事就署名，不署名爱说什么说什么，跟王岐山…</a>
 </h2>
 <p>随意。跳梁小丑，有本事就署名，不署名爱说什么说什么，跟王岐山叫板，能有好下场？ //@Phicochan小布晨飛://@LifeTime:文革模式启动了，各派都指责对方反党反毛。[酷] //@姜逸青:转发微博<br><br>RE: 好文章。兼听则明，警惕阴谋。http://t.cn/RG0ZlPb<br><img src="http://ww3.sinaimg.cn/large/6b804b51jw1f1e97hd39cj20qo1bg46n.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3947291527869930" target="freeweibo-mirror">//@京都观潮://@王修216: 任总是根导火索？//@旦…</a>
-</h2>
-<p>//@京都观潮://@王修216: 任总是根导火索？//@旦复旦兮00://@王甫律师:越来越热闹 //@王小东:这阶级斗争味儿越来越浓了，双方互相指责对方反党，真的很像文革[嘻嘻]//@博联社马晓霖:【话里有话】 这个解读有意思，用过去的话说，阶级斗争非常复杂，敌情十分严重<br><br>RE: 好文章。兼听则明，警惕阴谋。http://t.cn/RG0ZlPb<br><img src="http://ww3.sinaimg.cn/large/6b804b51jw1f1e97hd39cj20qo1bg46n.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
