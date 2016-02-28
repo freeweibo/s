@@ -20,6 +20,18 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3947591172896184" target="freeweibo-mirror">右边好险[哈哈][哈哈]//@光明家具刘志军：//@袁莉ws…</a>
+</h2>
+<p>右边好险[哈哈][哈哈]//@光明家具刘志军：//@袁莉wsj: 应该是：可惜，不叫志强<br><br>RE: 幸亏，不叫志强。<br><img src="http://ww3.sinaimg.cn/large/486bea1ajw1f1fba1wlmpj20qo0zkdjx.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3947589232093383" target="freeweibo-mirror">SPAM 敢在这时发声，是真朋友 //@袁莉wsj:应该是：…</a>
+</h2>
+<p>SPAM 敢在这时发声，是真朋友 //@袁莉wsj:应该是：可惜，不叫志强<br><br>RE: 幸亏，不叫志强。<br><img src="http://ww3.sinaimg.cn/large/486bea1ajw1f1fba1wlmpj20qo0zkdjx.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3947571724719004" target="freeweibo-mirror">谴责枪杀法官 //@小埋汰猫://@记者郝成: //@陈光武…</a>
 </h2>
 <p>谴责枪杀法官 //@小埋汰猫://@记者郝成: //@陈光武律师://@何兵: 无论如何，都不能杀人。<br><br>RE: 分享图片<br><img src="http://ww4.sinaimg.cn/large/9f5f373djw1f1f4u40rhej20u01dmgt9.jpg"></p>
@@ -60,7 +72,7 @@
 </h2>
 <p>文革2.0从炮打仁大炮开始？？<br><br>RE: 【国家网信办：任志强微博账号被关闭】2月28日，国家互联网信息办公室责令新浪、腾讯等网站依法依规关闭任志强微博账号。国家网信办发言人姜军发表谈话称，网络空间不是法外之地，任何人不得利用网络传播违法信息。姜军表示，任志强微博账号持续公开发布违法信息，影响恶劣。http://t.cn/RG0lHUZ<br><img src="http://ww1.sinaimg.cn/large/65dc17d3jw1f1f49rdtenj20c707kmxg.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3947533434869851" target="freeweibo-mirror">讲真话，求真相。你已经走在了犯罪的道路上。</a>
 </h2>
@@ -114,7 +126,7 @@
 </h2>
 <p>SPAM @任志强 已经被销号了，没有了！<br><img src="http://ww2.sinaimg.cn/large/74e335a5gw1f1f3e2xw4aj20fh0m8dia.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3947480057669513" target="freeweibo-mirror">关键时候，一大波公知挺胡总了。胡总别删//@北村:嗯。 //…</a>
 </h2>
@@ -125,18 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3947440967656784" target="freeweibo-mirror">官媒对任的批评，组织对任的处理，有些人指责这是文革。其实，正…</a>
 </h2>
 <p>官媒对任的批评，组织对任的处理，有些人指责这是文革。其实，正常政治势力的交锋不可避免，中国这算温和文明稳定有序，丝毫不值得大惊小怪，更没有任何理由来批评指责。//@千年河东:转发微博<br><br>RE: 任志强的抛物线还有多长？新华网这文章比之前两篇还“露骨”：任比谁都清楚想要回头是不可能了，唯有孤注一掷走到党的对立面以各种反党言论不断扩充舆论影响力，才有可能引起国外反华政治团体的关注，最大限度地为自己积累反向的舆论博弈资本，以期延长被清算时间的抛物线，达到暂时保全自己的目的。<br><img src="http://ww4.sinaimg.cn/large/c37c67cbgw1f1ecj899jnj20ig0fi0v5.jpg"></p>
-<p>
-	<small> ============== 11小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3947438035641690" target="freeweibo-mirror">SPAM 回复@胖纸微博:编的水平也不错啊。。。//@胖纸微…</a>
-</h2>
-<p>SPAM 回复@胖纸微博:编的水平也不错啊。。。//@胖纸微博:和华莱士的谈话是另外的一套，这一套是国外一个华人教授编的，编的挺好，很多人信以为真//@西西福厮:最后一段话，说的太对了。。。<br><br>RE: 膜<br><img src="http://ww2.sinaimg.cn/large/c58a17e2jw1f1ethwycu4j20qo15dqbg.jpg"></p>
-<p>
-	<small> ============== 11小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3947437422984473" target="freeweibo-mirror">确切说，是公知推墙界会更加疯狂！特别是体制内滴~ //@哈利…</a>
-</h2>
-<p>确切说，是公知推墙界会更加疯狂！特别是体制内滴~ //@哈利的小香猪:假如任志强这次依然躲过处罚，不知道会对正能量界造成多大的打击啊<br><br>RE: 任志强的抛物线还有多长？新华网这文章比之前两篇还“露骨”：任比谁都清楚想要回头是不可能了，唯有孤注一掷走到党的对立面以各种反党言论不断扩充舆论影响力，才有可能引起国外反华政治团体的关注，最大限度地为自己积累反向的舆论博弈资本，以期延长被清算时间的抛物线，达到暂时保全自己的目的。<br><img src="http://ww4.sinaimg.cn/large/c37c67cbgw1f1ecj899jnj20ig0fi0v5.jpg"></p>
 <p>
 	<small> ============== 11小时前</small>
 </p>
