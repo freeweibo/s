@@ -42,7 +42,13 @@
 </h2>
 <p>没关注过他，任志强嘛，装逼过了头，明明是大地产商，大资本家，靠剥削房奴投机倒把发家的台子党，还装作为贫下中农代言，真是名利双收，最后得意忘形，叛变主子，实乃京城第一名伶，蒙蔽了不少群众啊。任志强仅仅是删号，我觉得是他的主子还想挽救他<br><br>RE: 【国家网信办：任志强微博账号被关闭】2月28日，国家互联网信息办公室责令新浪、腾讯等网站依法依规关闭任志强微博账号。国家网信办发言人姜军发表谈话称，网络空间不是法外之地，任何人不得利用网络传播违法信息。姜军表示，任志强微博账号持续公开发布违法信息，影响恶劣。http://t.cn/RG0lHUZ<br><img src="http://ww1.sinaimg.cn/large/65dc17d3jw1f1f49rdtenj20c707kmxg.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3947526581214084" target="freeweibo-mirror">【国家网信办：任志强微博账号被关闭】2月28日，国家互联网信…</a>
+</h2>
+<p>【国家网信办：任志强微博账号被关闭】2月28日，国家互联网信息办公室责令新浪、腾讯等网站依法依规关闭任志强微博账号。国家网信办发言人姜军发表谈话称，网络空间不是法外之地，任何人不得利用网络传播违法信息。姜军表示，任志强微博账号持续公开发布违法信息，影响恶劣。http://t.cn/RG0lHUZ<br><img src="http://ww1.sinaimg.cn/large/65dc17d3jw1f1f49rdtenj20c707kmxg.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3947525998348573" target="freeweibo-mirror">SPAM 伪娘的春天就要来了</a>
 </h2>
@@ -90,7 +96,7 @@
 </h2>
 <p>SPAM 回复@胖纸微博:编的水平也不错啊。。。//@胖纸微博:和华莱士的谈话是另外的一套，这一套是国外一个华人教授编的，编的挺好，很多人信以为真//@西西福厮:最后一段话，说的太对了。。。<br><br>RE: 膜<br><img src="http://ww2.sinaimg.cn/large/c58a17e2jw1f1ethwycu4j20qo15dqbg.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3947437422984473" target="freeweibo-mirror">确切说，是公知推墙界会更加疯狂！特别是体制内滴~ //@哈利…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3947295156129536" target="freeweibo-mirror">SPAM 戏里戏外，不止是戏；云里雾里的看戏人，尽皆入戏。</a>
 </h2>
 <p>SPAM 戏里戏外，不止是戏；云里雾里的看戏人，尽皆入戏。<br><br>RE: 好文章。兼听则明，警惕阴谋。http://t.cn/RG0ZlPb<br><img src="http://ww3.sinaimg.cn/large/6b804b51jw1f1e97hd39cj20qo1bg46n.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3947294518500943" target="freeweibo-mirror">//@逆风蝴蝶:随意。跳梁小丑，有本事就署名，不署名爱说什么…</a>
-</h2>
-<p>//@逆风蝴蝶:随意。跳梁小丑，有本事就署名，不署名爱说什么说什么，跟王岐山叫板，能有好下场？ //@Phicochan小布晨飛://@LifeTime:文革模式启动了，各派都指责对方反党反毛。[酷] //@姜逸青:转发微博<br><br>RE: 好文章。兼听则明，警惕阴谋。http://t.cn/RG0ZlPb<br><img src="http://ww3.sinaimg.cn/large/6b804b51jw1f1e97hd39cj20qo1bg46n.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
