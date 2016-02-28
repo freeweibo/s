@@ -36,7 +36,7 @@
 </h2>
 <p>讲真话，求真相。你已经走在了犯罪的道路上。<br><br>RE: 【国家网信办：任志强微博账号被关闭】2月28日，国家互联网信息办公室责令新浪、腾讯等网站依法依规关闭任志强微博账号。国家网信办发言人姜军发表谈话称，网络空间不是法外之地，任何人不得利用网络传播违法信息。姜军表示，任志强微博账号持续公开发布违法信息，影响恶劣。http://t.cn/RG0lHUZ<br><img src="http://ww1.sinaimg.cn/large/65dc17d3jw1f1f49rdtenj20c707kmxg.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3947528716204016" target="freeweibo-mirror">没关注过他，任志强嘛，装逼过了头，明明是大地产商，大资本家，…</a>
 </h2>
@@ -53,6 +53,12 @@
 	<a href="https://freeweibo.com/weibo/3947525998348573" target="freeweibo-mirror">SPAM 伪娘的春天就要来了</a>
 </h2>
 <p>SPAM 伪娘的春天就要来了<br><br>RE: 掃蕩完任志強、孫海英、榮劍之後，估計就該輪到@不加V 這種有違「社會主義核心價值觀」的非我族類了，充滿各種喜聞樂見普大喜奔的暖男新浪，該多有趣啊！<br><img src="http://ww4.sinaimg.cn/large/9fa8a41djw1f1f3sek6ibj20ku0q2n3k.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3947524743915964" target="freeweibo-mirror">掃蕩完任志強、孫海英、榮劍之後，估計就該輪到@不加V 這種有…</a>
+</h2>
+<p>掃蕩完任志強、孫海英、榮劍之後，估計就該輪到@不加V 這種有違「社會主義核心價值觀」的非我族類了，充滿各種喜聞樂見普大喜奔的暖男新浪，該多有趣啊！<br><img src="http://ww4.sinaimg.cn/large/9fa8a41djw1f1f3sek6ibj20ku0q2n3k.jpg"></p>
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
@@ -120,7 +126,7 @@
 </h2>
 <p>//@汉语碎片:转发微博<br><br>RE: 任志强 : 不要以为对党的历史和现状提出批评就是反党 http://t.cn/RGpa5C1</p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3947379692238544" target="freeweibo-mirror">谴责枪杀法官的被删，转转法官妻子为夫鸣冤的应该可以吧</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3947298356789089" target="freeweibo-mirror">//@朱孝顶律师: //@徐昕://@京都观潮://@王修2…</a>
 </h2>
 <p>//@朱孝顶律师: //@徐昕://@京都观潮://@王修216: 任总是根导火索？//@王甫律师:越来越热闹 //@王小东:这阶级斗争味儿越来越浓了，双方互相指责对方反党，真的很像文革[嘻嘻]//@博联社马晓霖:【话里有话】 这个解读有意思，用过去的话说，阶级斗争非常复杂，敌情十分严重<br><br>RE: 好文章。兼听则明，警惕阴谋。http://t.cn/RG0ZlPb<br><img src="http://ww3.sinaimg.cn/large/6b804b51jw1f1e97hd39cj20qo1bg46n.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3947295156129536" target="freeweibo-mirror">SPAM 戏里戏外，不止是戏；云里雾里的看戏人，尽皆入戏。</a>
-</h2>
-<p>SPAM 戏里戏外，不止是戏；云里雾里的看戏人，尽皆入戏。<br><br>RE: 好文章。兼听则明，警惕阴谋。http://t.cn/RG0ZlPb<br><img src="http://ww3.sinaimg.cn/large/6b804b51jw1f1e97hd39cj20qo1bg46n.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
