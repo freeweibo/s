@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3947379692238544" target="freeweibo-mirror">谴责枪杀法官的被删，转转法官妻子为夫鸣冤的应该可以吧</a>
+</h2>
+<p>谴责枪杀法官的被删，转转法官妻子为夫鸣冤的应该可以吧</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3947298356789089" target="freeweibo-mirror">//@朱孝顶律师: //@徐昕://@京都观潮://@王修2…</a>
 </h2>
 <p>//@朱孝顶律师: //@徐昕://@京都观潮://@王修216: 任总是根导火索？//@王甫律师:越来越热闹 //@王小东:这阶级斗争味儿越来越浓了，双方互相指责对方反党，真的很像文革[嘻嘻]//@博联社马晓霖:【话里有话】 这个解读有意思，用过去的话说，阶级斗争非常复杂，敌情十分严重<br><br>RE: 好文章。兼听则明，警惕阴谋。http://t.cn/RG0ZlPb<br><img src="http://ww3.sinaimg.cn/large/6b804b51jw1f1e97hd39cj20qo1bg46n.jpg"></p>
@@ -60,7 +66,7 @@
 </h2>
 <p>随意。跳梁小丑，有本事就署名，不署名爱说什么说什么，跟王岐山叫板，能有好下场？ //@Phicochan小布晨飛://@LifeTime:文革模式启动了，各派都指责对方反党反毛。[酷] //@姜逸青:转发微博<br><br>RE: 好文章。兼听则明，警惕阴谋。http://t.cn/RG0ZlPb<br><img src="http://ww3.sinaimg.cn/large/6b804b51jw1f1e97hd39cj20qo1bg46n.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3947291527869930" target="freeweibo-mirror">//@京都观潮://@王修216: 任总是根导火索？//@旦…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3947266731929879" target="freeweibo-mirror">这是我们所有法律人的事，尽管有时候法官们并不认为我们是他们司…</a>
 </h2>
 <p>这是我们所有法律人的事，尽管有时候法官们并不认为我们是他们司法体系内的一员，但在重大问题上，我个人认为我们必须是共呼吸同命运//@阿榴1997: 律师能出此言，略感一丝安慰。 //@探汤CPAing:转发微博<br><br>RE: 发表了博文《梅春来｜关于北京昌平法院女法官被枪杀一事的关注声明》梅春来｜关于北京昌平法院女法官被枪杀一事的关注声明今天我们律师界突然得知一个令人十分痛惜的事件，北京市昌平区法院回龙观法庭马彩云法官被人http://weibo.com/p/2304184c808cbd0102wuck<br><img src="http://ww3.sinaimg.cn/large/4c808cbdjw1f1ea51rpjmj20b407ejrt.jpg"></p>
-<p>
-	<small> ============== 9小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3947266086037529" target="freeweibo-mirror">我发表的只代表我个人的立场和意见，但如果很多人赞同，那么就代…</a>
-</h2>
-<p>我发表的只代表我个人的立场和意见，但如果很多人赞同，那么就代表一种职业的立场//@护A盘: 梅法师代表律师界发言[赞]<br><br>RE: 发表了博文《梅春来｜关于北京昌平法院女法官被枪杀一事的关注声明》梅春来｜关于北京昌平法院女法官被枪杀一事的关注声明今天我们律师界突然得知一个令人十分痛惜的事件，北京市昌平区法院回龙观法庭马彩云法官被人http://weibo.com/p/2304184c808cbd0102wuck<br><img src="http://ww3.sinaimg.cn/large/4c808cbdjw1f1ea51rpjmj20b407ejrt.jpg"></p>
 <p>
 	<small> ============== 9小时前</small>
 </p>
