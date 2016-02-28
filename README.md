@@ -20,6 +20,30 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3947571724719004" target="freeweibo-mirror">谴责枪杀法官 //@小埋汰猫://@记者郝成: //@陈光武…</a>
+</h2>
+<p>谴责枪杀法官 //@小埋汰猫://@记者郝成: //@陈光武律师://@何兵: 无论如何，都不能杀人。<br><br>RE: 分享图片<br><img src="http://ww4.sinaimg.cn/large/9f5f373djw1f1f4u40rhej20u01dmgt9.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3947570109201134" target="freeweibo-mirror">SPAM 北欧国家没有死刑，犯罪率反而低。美国监狱全世界最多…</a>
+</h2>
+<p>SPAM 北欧国家没有死刑，犯罪率反而低。美国监狱全世界最多，犯罪率反而高。 //@王小山:何兵老师也是支持废除死刑的，好。//@何兵:无论如何，都不能杀人。<br><br>RE: 分享图片<br><img src="http://ww4.sinaimg.cn/large/9f5f373djw1f1f4u40rhej20u01dmgt9.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3947569803278573" target="freeweibo-mirror">SPAM 我也想问这个问题，貌似了故障了？//@王涉律师: …</a>
+</h2>
+<p>SPAM 我也想问这个问题，貌似了故障了？//@王涉律师: 裁判文书网登录不了了，这又该作何理解？//@糜新元:对，只要把判决贴出来，自有公论！任何人说得再多，都是不面之词！ //@黑衣楼主:很多人不敢把全部事实说出来。他们只会告诉你部分事实。 //@法门渝客:<br><br>RE: 分享图片<br><img src="http://ww4.sinaimg.cn/large/9f5f373djw1f1f4u40rhej20u01dmgt9.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3947567085339557" target="freeweibo-mirror">不敢多讲了！我党媒体部门黑啊！</a>
+</h2>
+<p>不敢多讲了！我党媒体部门黑啊！<br><br>RE: 重要问题！谁能回答我？如你们所愿：造谣的，都逐一关闭了。贵党内部惩戒的事情我们没兴趣。现在问题来了：什么样的批评才是对的？是么样的不同意见是能被接受的？别告诉我，在民众话语权上，你们想“天下一统”啊。真是那样的话，这个国家就坏了。可能是职业敏感的原因吧，我怎么总感觉哪里不对啊？<br><img src="http://ww4.sinaimg.cn/large/65f4def0jw1f1f82m4h6zj20dw07aaan.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3947537113393652" target="freeweibo-mirror">微博说话要注意了！！！</a>
 </h2>
 <p>微博说话要注意了！！！<br><br>RE: 【国家网信办：任志强微博账号被关闭】2月28日，国家互联网信息办公室责令新浪、腾讯等网站依法依规关闭任志强微博账号。国家网信办发言人姜军发表谈话称，网络空间不是法外之地，任何人不得利用网络传播违法信息。姜军表示，任志强微博账号持续公开发布违法信息，影响恶劣。http://t.cn/RG0lHUZ<br><img src="http://ww1.sinaimg.cn/large/65dc17d3jw1f1f49rdtenj20c707kmxg.jpg"></p>
@@ -78,7 +102,7 @@
 </h2>
 <p>枪打出头鸟。[挖鼻]//@邵明波:新浪微博的股价，会被拉下几个点？</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3947518885032708" target="freeweibo-mirror">SPAM @任志强 已经被销号了，没有了！</a>
 </h2>
@@ -115,30 +139,6 @@
 <p>SPAM 最后一段话，说的太对了。。。<br><br>RE: 膜<br><img src="http://ww2.sinaimg.cn/large/c58a17e2jw1f1ethwycu4j20qo15dqbg.jpg"></p>
 <p>
 	<small> ============== 10小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3947432725473472" target="freeweibo-mirror">膜</a>
-</h2>
-<p>膜<br><img src="http://ww2.sinaimg.cn/large/c58a17e2jw1f1ethwycu4j20qo15dqbg.jpg"></p>
-<p>
-	<small> ============== 10小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3947427386536392" target="freeweibo-mirror">//@汉语碎片:转发微博</a>
-</h2>
-<p>//@汉语碎片:转发微博<br><br>RE: 任志强 : 不要以为对党的历史和现状提出批评就是反党 http://t.cn/RGpa5C1</p>
-<p>
-	<small> ============== 11小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3947379692238544" target="freeweibo-mirror">谴责枪杀法官的被删，转转法官妻子为夫鸣冤的应该可以吧</a>
-</h2>
-<p>谴责枪杀法官的被删，转转法官妻子为夫鸣冤的应该可以吧</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3947298356789089" target="freeweibo-mirror">//@朱孝顶律师: //@徐昕://@京都观潮://@王修2…</a>
-</h2>
-<p>//@朱孝顶律师: //@徐昕://@京都观潮://@王修216: 任总是根导火索？//@王甫律师:越来越热闹 //@王小东:这阶级斗争味儿越来越浓了，双方互相指责对方反党，真的很像文革[嘻嘻]//@博联社马晓霖:【话里有话】 这个解读有意思，用过去的话说，阶级斗争非常复杂，敌情十分严重<br><br>RE: 好文章。兼听则明，警惕阴谋。http://t.cn/RG0ZlPb<br><img src="http://ww3.sinaimg.cn/large/6b804b51jw1f1e97hd39cj20qo1bg46n.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
 </p>
 <table>
     <tr>
