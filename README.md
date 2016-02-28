@@ -20,6 +20,18 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3947643741117609" target="freeweibo-mirror">SPAM 通缉令清单！</a>
+</h2>
+<p>SPAM 通缉令清单！<br><br>RE: 嫖娼衫、造谣衫、神棍衫、汉奸衫、火葬场衫……，多衫一体，每件只卖35？ 我觉得太便宜了，至少也得250吧！<br><img src="http://ww3.sinaimg.cn/large/83324302gw1f1fdjsrculj20k00zkacf.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3947639911242030" target="freeweibo-mirror">//@陶景洲:马云同意这微博的内容吗？</a>
+</h2>
+<p>//@陶景洲:马云同意这微博的内容吗？<br><br>RE: 看孙海英、任志强这两天相继被封杀。无力得太久，已经感到麻木了。在这个国家，有谁敢说自己有安全感吗？权倾朝野的主席，他就有吗？若真像鼓吹的那样自信，为何要将批评的声音逮捕与封杀？问一问马云，他有吗？政府若要合法掠夺他的财产、瓜分他的股权，他敢不给吗？我们，不过是静候开水灌注的青蛙。</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3947620713878270" target="freeweibo-mirror">//@迟夙生律师: //@自由职业者在浦东://@崔小平律师…</a>
 </h2>
 <p>//@迟夙生律师: //@自由职业者在浦东://@崔小平律师: //@王敏竹--反计救国://@向天问道3://@以點帶面-://@元士116: //@砍柴破梦: 转发微博<br><br>RE: 任大炮后援团！胸器<br><img src="http://ww3.sinaimg.cn/large/006cUSOvgw1f1f47uvgjdj30c81f8dn8.jpg"></p>
@@ -125,18 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3947588660518262" target="freeweibo-mirror">吃枣药丸。 //@北京厨子新号://@谭人玮: //@海口逗…</a>
 </h2>
 <p>吃枣药丸。 //@北京厨子新号://@谭人玮: //@海口逗逗er: 谁在违法，对照国家宪法看看。//@jerryby：任志强既没有传播谣言又没有违反法律，请问网信办做出封停账号这个行政处罚决定的法律依据在哪里？<br><br>RE: 关闭任志强的账号也就罢了，但是不允许再次注册就有点匪夷所思了。这实际上意味着不仅对言论进行事后惩罚，而且还要进行事先审查乃至事先惩罚。一个人因为说了某些话，就永远将他嘴巴封上了。世界范围内对言论的事先审查制早就臭名昭著，我国法律表面上也没有这么明文搞。弱弱的问下网信办，依据何在？</p>
-<p>
-	<small> ============== 4小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3947588648367658" target="freeweibo-mirror">SPAM //@袁莉wsj: 应该是：可惜，不叫志强</a>
-</h2>
-<p>SPAM //@袁莉wsj: 应该是：可惜，不叫志强<br><br>RE: 幸亏，不叫志强。<br><img src="http://ww3.sinaimg.cn/large/486bea1ajw1f1fba1wlmpj20qo0zkdjx.jpg"></p>
-<p>
-	<small> ============== 4小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3947588417999388" target="freeweibo-mirror">SPAM 应该是：可惜，不叫志强</a>
-</h2>
-<p>SPAM 应该是：可惜，不叫志强<br><br>RE: 幸亏，不叫志强。<br><img src="http://ww3.sinaimg.cn/large/486bea1ajw1f1fba1wlmpj20qo0zkdjx.jpg"></p>
 <p>
 	<small> ============== 4小时前</small>
 </p>
