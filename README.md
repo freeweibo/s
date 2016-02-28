@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3947440967656784" target="freeweibo-mirror">官媒对任的批评，组织对任的处理，有些人指责这是文革。其实，正…</a>
+</h2>
+<p>官媒对任的批评，组织对任的处理，有些人指责这是文革。其实，正常政治势力的交锋不可避免，中国这算温和文明稳定有序，丝毫不值得大惊小怪，更没有任何理由来批评指责。//@千年河东:转发微博<br><br>RE: 任志强的抛物线还有多长？新华网这文章比之前两篇还“露骨”：任比谁都清楚想要回头是不可能了，唯有孤注一掷走到党的对立面以各种反党言论不断扩充舆论影响力，才有可能引起国外反华政治团体的关注，最大限度地为自己积累反向的舆论博弈资本，以期延长被清算时间的抛物线，达到暂时保全自己的目的。<br><img src="http://ww4.sinaimg.cn/large/c37c67cbgw1f1ecj899jnj20ig0fi0v5.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3947427386536392" target="freeweibo-mirror">//@汉语碎片:转发微博</a>
 </h2>
 <p>//@汉语碎片:转发微博<br><br>RE: 任志强 : 不要以为对党的历史和现状提出批评就是反党 http://t.cn/RGpa5C1</p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3947280002382391" target="freeweibo-mirror">有意思了…… //@王小东:这阶级斗争味儿越来越浓了，双方互…</a>
 </h2>
 <p>有意思了…… //@王小东:这阶级斗争味儿越来越浓了，双方互相指责对方反党，真的很像文革[嘻嘻][嘻嘻][嘻嘻]//@博联社马晓霖:【话里有话】 这个解读有意思，用过去的话说，阶级斗争非常复杂，敌情十分严重。<br><br>RE: 好文章。兼听则明，警惕阴谋。http://t.cn/RG0ZlPb<br><img src="http://ww3.sinaimg.cn/large/6b804b51jw1f1e97hd39cj20qo1bg46n.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3947279343513649" target="freeweibo-mirror">【哀悼北京女法官】[蜡烛][蜡烛][蜡烛]@陈宝成：1，谴责…</a>
-</h2>
-<p>【哀悼北京女法官】[蜡烛][蜡烛][蜡烛]@陈宝成：1，谴责所有暴力剥夺他人生命和健康的犯罪。2，对法官及其家属的不幸感到发自内心的难过。3，愿意通过可靠渠道为其提供力所能及的帮助。4，呼吁社会各方反思暴戾之气，并建立解压阀。http://t.cn/RG0yIGN<br><img src="http://ww4.sinaimg.cn/large/6b804b51jw1f1ebvc5gn4j20ez0qo779.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
