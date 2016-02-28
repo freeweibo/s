@@ -42,7 +42,7 @@
 </h2>
 <p>谴责枪杀法官的被删，转转法官妻子为夫鸣冤的应该可以吧</p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3947298356789089" target="freeweibo-mirror">//@朱孝顶律师: //@徐昕://@京都观潮://@王修2…</a>
 </h2>
