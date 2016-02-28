@@ -30,7 +30,7 @@
 </h2>
 <p>SPAM 北欧国家没有死刑，犯罪率反而低。美国监狱全世界最多，犯罪率反而高。 //@王小山:何兵老师也是支持废除死刑的，好。//@何兵:无论如何，都不能杀人。<br><br>RE: 分享图片<br><img src="http://ww4.sinaimg.cn/large/9f5f373djw1f1f4u40rhej20u01dmgt9.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3947569803278573" target="freeweibo-mirror">SPAM 我也想问这个问题，貌似了故障了？//@王涉律师: …</a>
 </h2>
@@ -41,6 +41,12 @@
 	<a href="https://freeweibo.com/weibo/3947567085339557" target="freeweibo-mirror">不敢多讲了！我党媒体部门黑啊！</a>
 </h2>
 <p>不敢多讲了！我党媒体部门黑啊！<br><br>RE: 重要问题！谁能回答我？如你们所愿：造谣的，都逐一关闭了。贵党内部惩戒的事情我们没兴趣。现在问题来了：什么样的批评才是对的？是么样的不同意见是能被接受的？别告诉我，在民众话语权上，你们想“天下一统”啊。真是那样的话，这个国家就坏了。可能是职业敏感的原因吧，我怎么总感觉哪里不对啊？<br><img src="http://ww4.sinaimg.cn/large/65f4def0jw1f1f82m4h6zj20dw07aaan.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3947559708178664" target="freeweibo-mirror">重要问题！谁能回答我？如你们所愿：造谣的，都逐一关闭了。贵党…</a>
+</h2>
+<p>重要问题！谁能回答我？如你们所愿：造谣的，都逐一关闭了。贵党内部惩戒的事情我们没兴趣。现在问题来了：什么样的批评才是对的？是么样的不同意见是能被接受的？别告诉我，在民众话语权上，你们想“天下一统”啊。真是那样的话，这个国家就坏了。可能是职业敏感的原因吧，我怎么总感觉哪里不对啊？<br><img src="http://ww4.sinaimg.cn/large/65f4def0jw1f1f82m4h6zj20dw07aaan.jpg"></p>
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
@@ -78,7 +84,7 @@
 </h2>
 <p>SPAM 伪娘的春天就要来了<br><br>RE: 掃蕩完任志強、孫海英、榮劍之後，估計就該輪到@不加V 這種有違「社會主義核心價值觀」的非我族類了，充滿各種喜聞樂見普大喜奔的暖男新浪，該多有趣啊！<br><img src="http://ww4.sinaimg.cn/large/9fa8a41djw1f1f3sek6ibj20ku0q2n3k.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3947524743915964" target="freeweibo-mirror">掃蕩完任志強、孫海英、榮劍之後，估計就該輪到@不加V 這種有…</a>
 </h2>
@@ -114,7 +120,7 @@
 </h2>
 <p>关键时候，一大波公知挺胡总了。胡总别删//@北村:嗯。 //@章诒和://@徐昕: //@毛立新:[嘻嘻] //@记者郝建国://@陶景洲: 造谣可耻！冒用别人的名义造谣更可耻。<br><br>RE: 有人冒充我的名义，编造我对任志强事件的评论。谴责伪造者。要说什么话，我会自己说，用不着别人来代笔。我迄今没做评论，而且如果没记错的话，这应是“任志强”三个字第一次出现在我的微博上，这就是事实。</p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3947440967656784" target="freeweibo-mirror">官媒对任的批评，组织对任的处理，有些人指责这是文革。其实，正…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3947437422984473" target="freeweibo-mirror">确切说，是公知推墙界会更加疯狂！特别是体制内滴~ //@哈利…</a>
 </h2>
 <p>确切说，是公知推墙界会更加疯狂！特别是体制内滴~ //@哈利的小香猪:假如任志强这次依然躲过处罚，不知道会对正能量界造成多大的打击啊<br><br>RE: 任志强的抛物线还有多长？新华网这文章比之前两篇还“露骨”：任比谁都清楚想要回头是不可能了，唯有孤注一掷走到党的对立面以各种反党言论不断扩充舆论影响力，才有可能引起国外反华政治团体的关注，最大限度地为自己积累反向的舆论博弈资本，以期延长被清算时间的抛物线，达到暂时保全自己的目的。<br><img src="http://ww4.sinaimg.cn/large/c37c67cbgw1f1ecj899jnj20ig0fi0v5.jpg"></p>
-<p>
-	<small> ============== 10小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3947436483237426" target="freeweibo-mirror">SPAM 最后一段话，说的太对了。。。</a>
-</h2>
-<p>SPAM 最后一段话，说的太对了。。。<br><br>RE: 膜<br><img src="http://ww2.sinaimg.cn/large/c58a17e2jw1f1ethwycu4j20qo15dqbg.jpg"></p>
 <p>
 	<small> ============== 10小时前</small>
 </p>
