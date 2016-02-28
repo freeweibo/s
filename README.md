@@ -122,6 +122,12 @@
 <p>
 	<small> ============== 1天前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3947285098203991" target="freeweibo-mirror">任志强的抛物线还有多长？新华网这文章比之前两篇还“露骨”：任…</a>
+</h2>
+<p>任志强的抛物线还有多长？新华网这文章比之前两篇还“露骨”：任比谁都清楚想要回头是不可能了，唯有孤注一掷走到党的对立面以各种反党言论不断扩充舆论影响力，才有可能引起国外反华政治团体的关注，最大限度地为自己积累反向的舆论博弈资本，以期延长被清算时间的抛物线，达到暂时保全自己的目的。<br><img src="http://ww4.sinaimg.cn/large/c37c67cbgw1f1ecj899jnj20ig0fi0v5.jpg"></p>
+<p>
+	<small> ============== 1天前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3947282950578056" target="freeweibo-mirror">//@成都双爷:鉴定一哈：这篇所谓兼听则明的好文章，其实就是…</a>
 </h2>
 <p>//@成都双爷:鉴定一哈：这篇所谓兼听则明的好文章，其实就是一装怂完了再装逼的贴：任志强同志……跟大佬叫板不妥……但还是好同志……反党的不是。嘿嘿嘿嘿，语重心长装得跟党一条心似滴哈？啊呸！@陈有西，你就给大炮这么着上膏药？<br><br>RE: 好文章。兼听则明，警惕阴谋。http://t.cn/RG0ZlPb<br><img src="http://ww3.sinaimg.cn/large/6b804b51jw1f1e97hd39cj20qo1bg46n.jpg"></p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3947282074243678" target="freeweibo-mirror">律师发声『梅春来｜关于北京昌平法院女法官被枪杀一事的关注声明…</a>
 </h2>
 <p>律师发声『梅春来｜关于北京昌平法院女法官被枪杀一事的关注声明』http://t.cn/RG0yIGN</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3947281717437185" target="freeweibo-mirror">最近在外旅行，一位法官求转发，才得知昌平法院马彩云法官被枪杀…</a>
-</h2>
-<p>最近在外旅行，一位法官求转发，才得知昌平法院马彩云法官被枪杀。无论任何理由，都决不可成为杀人的借口，强烈遣责。问题的解决不是靠禁声或遣责，而要推动实质性司法改革。确立司法独立，给予法官充分的司法保障，实现司法公正，提升司法公信，法官最终才能享有特殊的尊荣和权威http://t.cn/RG0yT4S<br><img src="http://ww4.sinaimg.cn/large/656952ecjw1f1ec5jad0cj20a80cz417.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
