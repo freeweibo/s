@@ -26,6 +26,12 @@
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3947437422984473" target="freeweibo-mirror">确切说，是公知推墙界会更加疯狂！特别是体制内滴~ //@哈利…</a>
+</h2>
+<p>确切说，是公知推墙界会更加疯狂！特别是体制内滴~ //@哈利的小香猪:假如任志强这次依然躲过处罚，不知道会对正能量界造成多大的打击啊<br><br>RE: 任志强的抛物线还有多长？新华网这文章比之前两篇还“露骨”：任比谁都清楚想要回头是不可能了，唯有孤注一掷走到党的对立面以各种反党言论不断扩充舆论影响力，才有可能引起国外反华政治团体的关注，最大限度地为自己积累反向的舆论博弈资本，以期延长被清算时间的抛物线，达到暂时保全自己的目的。<br><img src="http://ww4.sinaimg.cn/large/c37c67cbgw1f1ecj899jnj20ig0fi0v5.jpg"></p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3947427386536392" target="freeweibo-mirror">//@汉语碎片:转发微博</a>
 </h2>
 <p>//@汉语碎片:转发微博<br><br>RE: 任志强 : 不要以为对党的历史和现状提出批评就是反党 http://t.cn/RGpa5C1</p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3947281717437185" target="freeweibo-mirror">最近在外旅行，一位法官求转发，才得知昌平法院马彩云法官被枪杀…</a>
 </h2>
 <p>最近在外旅行，一位法官求转发，才得知昌平法院马彩云法官被枪杀。无论任何理由，都决不可成为杀人的借口，强烈遣责。问题的解决不是靠禁声或遣责，而要推动实质性司法改革。确立司法独立，给予法官充分的司法保障，实现司法公正，提升司法公信，法官最终才能享有特殊的尊荣和权威http://t.cn/RG0yT4S<br><img src="http://ww4.sinaimg.cn/large/656952ecjw1f1ec5jad0cj20a80cz417.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3947280002382391" target="freeweibo-mirror">有意思了…… //@王小东:这阶级斗争味儿越来越浓了，双方互…</a>
-</h2>
-<p>有意思了…… //@王小东:这阶级斗争味儿越来越浓了，双方互相指责对方反党，真的很像文革[嘻嘻][嘻嘻][嘻嘻]//@博联社马晓霖:【话里有话】 这个解读有意思，用过去的话说，阶级斗争非常复杂，敌情十分严重。<br><br>RE: 好文章。兼听则明，警惕阴谋。http://t.cn/RG0ZlPb<br><img src="http://ww3.sinaimg.cn/large/6b804b51jw1f1e97hd39cj20qo1bg46n.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
