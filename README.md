@@ -26,6 +26,12 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3947521292267890" target="freeweibo-mirror">SPAM 我靠！</a>
+</h2>
+<p>SPAM 我靠！<br><br>RE: 在想一個邏輯上的問題，八千萬黨員認為任志強是恥辱，十三億群眾認為任志強是志強。那麼八千萬黨員要把任志強踢出黨員隊伍，回到群眾當中，那麼是不是剩下的黨員會被十三億人認為是恥辱呢？</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3947520252463952" target="freeweibo-mirror">枪打出头鸟。[挖鼻]//@邵明波:新浪微博的股价，会被拉下几…</a>
 </h2>
 <p>枪打出头鸟。[挖鼻]//@邵明波:新浪微博的股价，会被拉下几个点？</p>
@@ -36,7 +42,7 @@
 </h2>
 <p>SPAM @任志强 已经被销号了，没有了！<br><img src="http://ww2.sinaimg.cn/large/74e335a5gw1f1f3e2xw4aj20fh0m8dia.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3947480057669513" target="freeweibo-mirror">关键时候，一大波公知挺胡总了。胡总别删//@北村:嗯。 //…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3947291527869930" target="freeweibo-mirror">//@京都观潮://@王修216: 任总是根导火索？//@旦…</a>
 </h2>
 <p>//@京都观潮://@王修216: 任总是根导火索？//@旦复旦兮00://@王甫律师:越来越热闹 //@王小东:这阶级斗争味儿越来越浓了，双方互相指责对方反党，真的很像文革[嘻嘻]//@博联社马晓霖:【话里有话】 这个解读有意思，用过去的话说，阶级斗争非常复杂，敌情十分严重<br><br>RE: 好文章。兼听则明，警惕阴谋。http://t.cn/RG0ZlPb<br><img src="http://ww3.sinaimg.cn/large/6b804b51jw1f1e97hd39cj20qo1bg46n.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3947291209426120" target="freeweibo-mirror">理解了，看来有云山雾罩的影子。</a>
-</h2>
-<p>理解了，看来有云山雾罩的影子。<br><br>RE: 好文章。兼听则明，警惕阴谋。http://t.cn/RG0ZlPb<br><img src="http://ww3.sinaimg.cn/large/6b804b51jw1f1e97hd39cj20qo1bg46n.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
