@@ -30,7 +30,7 @@
 </h2>
 <p>文革2.0从炮打仁大炮开始？？<br><br>RE: 【国家网信办：任志强微博账号被关闭】2月28日，国家互联网信息办公室责令新浪、腾讯等网站依法依规关闭任志强微博账号。国家网信办发言人姜军发表谈话称，网络空间不是法外之地，任何人不得利用网络传播违法信息。姜军表示，任志强微博账号持续公开发布违法信息，影响恶劣。http://t.cn/RG0lHUZ<br><img src="http://ww1.sinaimg.cn/large/65dc17d3jw1f1f49rdtenj20c707kmxg.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3947533434869851" target="freeweibo-mirror">讲真话，求真相。你已经走在了犯罪的道路上。</a>
 </h2>
@@ -84,7 +84,7 @@
 </h2>
 <p>SPAM @任志强 已经被销号了，没有了！<br><img src="http://ww2.sinaimg.cn/large/74e335a5gw1f1f3e2xw4aj20fh0m8dia.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3947480057669513" target="freeweibo-mirror">关键时候，一大波公知挺胡总了。胡总别删//@北村:嗯。 //…</a>
 </h2>
