@@ -24,7 +24,7 @@
 </h2>
 <p>SPAM 通缉令清单！<br><br>RE: 嫖娼衫、造谣衫、神棍衫、汉奸衫、火葬场衫……，多衫一体，每件只卖35？ 我觉得太便宜了，至少也得250吧！<br><img src="http://ww3.sinaimg.cn/large/83324302gw1f1fdjsrculj20k00zkacf.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3947639911242030" target="freeweibo-mirror">//@陶景洲:马云同意这微博的内容吗？</a>
 </h2>
@@ -54,7 +54,7 @@
 </h2>
 <p>//@道理没有国界:转发微博</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3947624996518380" target="freeweibo-mirror">→_→//@老百0693: [哈哈][哈哈][哈哈] //@…</a>
 </h2>
