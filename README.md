@@ -42,7 +42,7 @@
 </h2>
 <p>SPAM 最后一段话，说的太对了。。。<br><br>RE: 膜<br><img src="http://ww2.sinaimg.cn/large/c58a17e2jw1f1ethwycu4j20qo15dqbg.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3947432725473472" target="freeweibo-mirror">膜</a>
 </h2>
