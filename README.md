@@ -72,7 +72,7 @@
 </h2>
 <p>SPAM 北欧国家没有死刑，犯罪率反而低。美国监狱全世界最多，犯罪率反而高。 //@王小山:何兵老师也是支持废除死刑的，好。//@何兵:无论如何，都不能杀人。<br><br>RE: 分享图片<br><img src="http://ww4.sinaimg.cn/large/9f5f373djw1f1f4u40rhej20u01dmgt9.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3947569803278573" target="freeweibo-mirror">SPAM 我也想问这个问题，貌似了故障了？//@王涉律师: …</a>
 </h2>
@@ -126,7 +126,7 @@
 </h2>
 <p>SPAM 伪娘的春天就要来了<br><br>RE: 掃蕩完任志強、孫海英、榮劍之後，估計就該輪到@不加V 這種有違「社會主義核心價值觀」的非我族類了，充滿各種喜聞樂見普大喜奔的暖男新浪，該多有趣啊！<br><img src="http://ww4.sinaimg.cn/large/9fa8a41djw1f1f3sek6ibj20ku0q2n3k.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3947524743915964" target="freeweibo-mirror">掃蕩完任志強、孫海英、榮劍之後，估計就該輪到@不加V 這種有…</a>
 </h2>
