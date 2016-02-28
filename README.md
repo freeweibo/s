@@ -108,7 +108,7 @@
 </h2>
 <p>SPAM 北欧国家没有死刑，犯罪率反而低。美国监狱全世界最多，犯罪率反而高。 //@王小山:何兵老师也是支持废除死刑的，好。//@何兵:无论如何，都不能杀人。<br><br>RE: 分享图片<br><img src="http://ww4.sinaimg.cn/large/9f5f373djw1f1f4u40rhej20u01dmgt9.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3947569803278573" target="freeweibo-mirror">SPAM 我也想问这个问题，貌似了故障了？//@王涉律师: …</a>
 </h2>
