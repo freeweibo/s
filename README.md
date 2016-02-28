@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3947612078047006" target="freeweibo-mirror">SPAM 工作赚钱也别忘记爱惜自己的身体。咱也想祛痘</a>
+</h2>
+<p>SPAM 工作赚钱也别忘记爱惜自己的身体。咱也想祛痘</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3947604301730518" target="freeweibo-mirror">谁的题字？貌似防毛体。 //@一品泥人://@喷嚏网铂程: …</a>
 </h2>
 <p>谁的题字？貌似防毛体。 //@一品泥人://@喷嚏网铂程: //@胡戈: 转发微博   http://t.cn/RG08ayJ</p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3947569803278573" target="freeweibo-mirror">SPAM 我也想问这个问题，貌似了故障了？//@王涉律师: …</a>
 </h2>
 <p>SPAM 我也想问这个问题，貌似了故障了？//@王涉律师: 裁判文书网登录不了了，这又该作何理解？//@糜新元:对，只要把判决贴出来，自有公论！任何人说得再多，都是不面之词！ //@黑衣楼主:很多人不敢把全部事实说出来。他们只会告诉你部分事实。 //@法门渝客:<br><br>RE: 分享图片<br><img src="http://ww4.sinaimg.cn/large/9f5f373djw1f1f4u40rhej20u01dmgt9.jpg"></p>
-<p>
-	<small> ============== 4小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3947567085339557" target="freeweibo-mirror">不敢多讲了！我党媒体部门黑啊！</a>
-</h2>
-<p>不敢多讲了！我党媒体部门黑啊！<br><br>RE: 重要问题！谁能回答我？如你们所愿：造谣的，都逐一关闭了。贵党内部惩戒的事情我们没兴趣。现在问题来了：什么样的批评才是对的？是么样的不同意见是能被接受的？别告诉我，在民众话语权上，你们想“天下一统”啊。真是那样的话，这个国家就坏了。可能是职业敏感的原因吧，我怎么总感觉哪里不对啊？<br><img src="http://ww4.sinaimg.cn/large/65f4def0jw1f1f82m4h6zj20dw07aaan.jpg"></p>
 <p>
 	<small> ============== 4小时前</small>
 </p>
