@@ -78,7 +78,7 @@
 </h2>
 <p>枪打出头鸟。[挖鼻]//@邵明波:新浪微博的股价，会被拉下几个点？</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3947518885032708" target="freeweibo-mirror">SPAM @任志强 已经被销号了，没有了！</a>
 </h2>
