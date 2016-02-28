@@ -56,6 +56,12 @@
 <p>
 	<small> ============== 1小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3947587863779887" target="freeweibo-mirror">幸亏，不叫志强。</a>
+</h2>
+<p>幸亏，不叫志强。<br><img src="http://ww3.sinaimg.cn/large/486bea1ajw1f1fba1wlmpj20qo0zkdjx.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3947571724719004" target="freeweibo-mirror">谴责枪杀法官 //@小埋汰猫://@记者郝成: //@陈光武…</a>
 </h2>
 <p>谴责枪杀法官 //@小埋汰猫://@记者郝成: //@陈光武律师://@何兵: 无论如何，都不能杀人。<br><br>RE: 分享图片<br><img src="http://ww4.sinaimg.cn/large/9f5f373djw1f1f4u40rhej20u01dmgt9.jpg"></p>
@@ -133,12 +139,6 @@
 <p>说不准哪天会把微博关掉。//@北国红叶来南国: //@彼得洛维奇QHM:经济不会玩，开始玩人了</p>
 <p>
 	<small> ============== 5小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3947521292267890" target="freeweibo-mirror">SPAM 我靠！</a>
-</h2>
-<p>SPAM 我靠！<br><br>RE: 在想一個邏輯上的問題，八千萬黨員認為任志強是恥辱，十三億群眾認為任志強是志強。那麼八千萬黨員要把任志強踢出黨員隊伍，回到群眾當中，那麼是不是剩下的黨員會被十三億人認為是恥辱呢？</p>
-<p>
-	<small> ============== 6小时前</small>
 </p>
 <table>
     <tr>
