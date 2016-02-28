@@ -30,7 +30,7 @@
 </h2>
 <p>谴责枪杀法官的被删，转转法官妻子为夫鸣冤的应该可以吧</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3947298356789089" target="freeweibo-mirror">//@朱孝顶律师: //@徐昕://@京都观潮://@王修2…</a>
 </h2>
@@ -90,13 +90,13 @@
 </h2>
 <p>不要说混话，好像自己很超脱。这里没有双方。只有蓄意的一方。另一方同你一样，是看不下去的中立者。 //@王小东:这阶级斗争味儿越来越浓了，双方互相指责对方反党，真的很像文革[嘻嘻][嘻嘻][嘻嘻]//@博联社马晓霖:【话里有话】 这个解读有意思，用过去的话说，阶级斗争非常复杂，敌情十分严重。<br><br>RE: 好文章。兼听则明，警惕阴谋。http://t.cn/RG0ZlPb<br><img src="http://ww3.sinaimg.cn/large/6b804b51jw1f1e97hd39cj20qo1bg46n.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3947288747279482" target="freeweibo-mirror">//@西北悬天一块云:哈哈，的确是，都在争正统表决心[笑cr…</a>
 </h2>
 <p>//@西北悬天一块云:哈哈，的确是，都在争正统表决心[笑cry] //@王小东:这阶级斗争味儿越来越浓了，双方互相指责对方反党，真的很像文革[嘻嘻][嘻嘻][嘻嘻]//@博联社马晓霖:【话里有话】 这个解读有意思，用过去的话说，阶级斗争非常复杂，敌情十分严重。<br><br>RE: 好文章。兼听则明，警惕阴谋。http://t.cn/RG0ZlPb<br><img src="http://ww3.sinaimg.cn/large/6b804b51jw1f1e97hd39cj20qo1bg46n.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3947287644427384" target="freeweibo-mirror">//@南大景凯旋: 强烈谴责杀害法官的暴行！</a>
 </h2>
@@ -126,7 +126,7 @@
 </h2>
 <p>最近在外旅行，一位法官求转发，才得知昌平法院马彩云法官被枪杀。无论任何理由，都决不可成为杀人的借口，强烈遣责。问题的解决不是靠禁声或遣责，而要推动实质性司法改革。确立司法独立，给予法官充分的司法保障，实现司法公正，提升司法公信，法官最终才能享有特殊的尊荣和权威http://t.cn/RG0yT4S<br><img src="http://ww4.sinaimg.cn/large/656952ecjw1f1ec5jad0cj20a80cz417.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3947280002382391" target="freeweibo-mirror">有意思了…… //@王小东:这阶级斗争味儿越来越浓了，双方互…</a>
 </h2>
