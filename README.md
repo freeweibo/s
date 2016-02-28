@@ -24,7 +24,7 @@
 </h2>
 <p>谴责枪杀法官 //@小埋汰猫://@记者郝成: //@陈光武律师://@何兵: 无论如何，都不能杀人。<br><br>RE: 分享图片<br><img src="http://ww4.sinaimg.cn/large/9f5f373djw1f1f4u40rhej20u01dmgt9.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3947570109201134" target="freeweibo-mirror">SPAM 北欧国家没有死刑，犯罪率反而低。美国监狱全世界最多…</a>
 </h2>
@@ -78,7 +78,7 @@
 </h2>
 <p>【国家网信办：任志强微博账号被关闭】2月28日，国家互联网信息办公室责令新浪、腾讯等网站依法依规关闭任志强微博账号。国家网信办发言人姜军发表谈话称，网络空间不是法外之地，任何人不得利用网络传播违法信息。姜军表示，任志强微博账号持续公开发布违法信息，影响恶劣。http://t.cn/RG0lHUZ<br><img src="http://ww1.sinaimg.cn/large/65dc17d3jw1f1f49rdtenj20c707kmxg.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3947525998348573" target="freeweibo-mirror">SPAM 伪娘的春天就要来了</a>
 </h2>
