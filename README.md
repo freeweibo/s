@@ -44,6 +44,12 @@
 <p>
 	<small> ============== 4小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3947432725473472" target="freeweibo-mirror">膜</a>
+</h2>
+<p>膜<br><img src="http://ww2.sinaimg.cn/large/c58a17e2jw1f1ethwycu4j20qo15dqbg.jpg"></p>
+<p>
+	<small> ============== 5小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3947427386536392" target="freeweibo-mirror">//@汉语碎片:转发微博</a>
 </h2>
 <p>//@汉语碎片:转发微博<br><br>RE: 任志强 : 不要以为对党的历史和现状提出批评就是反党 http://t.cn/RGpa5C1</p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3947285631449562" target="freeweibo-mirror">SPAM 后台是谁呢？</a>
 </h2>
 <p>SPAM 后台是谁呢？<br><br>RE: 好文章。兼听则明，警惕阴谋。http://t.cn/RG0ZlPb<br><img src="http://ww3.sinaimg.cn/large/6b804b51jw1f1e97hd39cj20qo1bg46n.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3947285098203991" target="freeweibo-mirror">任志强的抛物线还有多长？新华网这文章比之前两篇还“露骨”：任…</a>
-</h2>
-<p>任志强的抛物线还有多长？新华网这文章比之前两篇还“露骨”：任比谁都清楚想要回头是不可能了，唯有孤注一掷走到党的对立面以各种反党言论不断扩充舆论影响力，才有可能引起国外反华政治团体的关注，最大限度地为自己积累反向的舆论博弈资本，以期延长被清算时间的抛物线，达到暂时保全自己的目的。<br><img src="http://ww4.sinaimg.cn/large/c37c67cbgw1f1ecj899jnj20ig0fi0v5.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
