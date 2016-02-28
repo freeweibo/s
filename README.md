@@ -26,9 +26,21 @@
 <p>
 	<small> ============== 4小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3947438035641690" target="freeweibo-mirror">SPAM 回复@胖纸微博:编的水平也不错啊。。。//@胖纸微…</a>
+</h2>
+<p>SPAM 回复@胖纸微博:编的水平也不错啊。。。//@胖纸微博:和华莱士的谈话是另外的一套，这一套是国外一个华人教授编的，编的挺好，很多人信以为真//@西西福厮:最后一段话，说的太对了。。。<br><br>RE: 膜<br><img src="http://ww2.sinaimg.cn/large/c58a17e2jw1f1ethwycu4j20qo15dqbg.jpg"></p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3947437422984473" target="freeweibo-mirror">确切说，是公知推墙界会更加疯狂！特别是体制内滴~ //@哈利…</a>
 </h2>
 <p>确切说，是公知推墙界会更加疯狂！特别是体制内滴~ //@哈利的小香猪:假如任志强这次依然躲过处罚，不知道会对正能量界造成多大的打击啊<br><br>RE: 任志强的抛物线还有多长？新华网这文章比之前两篇还“露骨”：任比谁都清楚想要回头是不可能了，唯有孤注一掷走到党的对立面以各种反党言论不断扩充舆论影响力，才有可能引起国外反华政治团体的关注，最大限度地为自己积累反向的舆论博弈资本，以期延长被清算时间的抛物线，达到暂时保全自己的目的。<br><img src="http://ww4.sinaimg.cn/large/c37c67cbgw1f1ecj899jnj20ig0fi0v5.jpg"></p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3947436483237426" target="freeweibo-mirror">SPAM 最后一段话，说的太对了。。。</a>
+</h2>
+<p>SPAM 最后一段话，说的太对了。。。<br><br>RE: 膜<br><img src="http://ww2.sinaimg.cn/large/c58a17e2jw1f1ethwycu4j20qo15dqbg.jpg"></p>
 <p>
 	<small> ============== 4小时前</small>
 </p><h2>
@@ -125,18 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3947285098203991" target="freeweibo-mirror">任志强的抛物线还有多长？新华网这文章比之前两篇还“露骨”：任…</a>
 </h2>
 <p>任志强的抛物线还有多长？新华网这文章比之前两篇还“露骨”：任比谁都清楚想要回头是不可能了，唯有孤注一掷走到党的对立面以各种反党言论不断扩充舆论影响力，才有可能引起国外反华政治团体的关注，最大限度地为自己积累反向的舆论博弈资本，以期延长被清算时间的抛物线，达到暂时保全自己的目的。<br><img src="http://ww4.sinaimg.cn/large/c37c67cbgw1f1ecj899jnj20ig0fi0v5.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3947282950578056" target="freeweibo-mirror">//@成都双爷:鉴定一哈：这篇所谓兼听则明的好文章，其实就是…</a>
-</h2>
-<p>//@成都双爷:鉴定一哈：这篇所谓兼听则明的好文章，其实就是一装怂完了再装逼的贴：任志强同志……跟大佬叫板不妥……但还是好同志……反党的不是。嘿嘿嘿嘿，语重心长装得跟党一条心似滴哈？啊呸！@陈有西，你就给大炮这么着上膏药？<br><br>RE: 好文章。兼听则明，警惕阴谋。http://t.cn/RG0ZlPb<br><img src="http://ww3.sinaimg.cn/large/6b804b51jw1f1e97hd39cj20qo1bg46n.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3947282074243678" target="freeweibo-mirror">律师发声『梅春来｜关于北京昌平法院女法官被枪杀一事的关注声明…</a>
-</h2>
-<p>律师发声『梅春来｜关于北京昌平法院女法官被枪杀一事的关注声明』http://t.cn/RG0yIGN</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
