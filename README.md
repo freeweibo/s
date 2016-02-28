@@ -26,6 +26,30 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3947534218824695" target="freeweibo-mirror">文革2.0从炮打仁大炮开始？？</a>
+</h2>
+<p>文革2.0从炮打仁大炮开始？？<br><br>RE: 【国家网信办：任志强微博账号被关闭】2月28日，国家互联网信息办公室责令新浪、腾讯等网站依法依规关闭任志强微博账号。国家网信办发言人姜军发表谈话称，网络空间不是法外之地，任何人不得利用网络传播违法信息。姜军表示，任志强微博账号持续公开发布违法信息，影响恶劣。http://t.cn/RG0lHUZ<br><img src="http://ww1.sinaimg.cn/large/65dc17d3jw1f1f49rdtenj20c707kmxg.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3947533434869851" target="freeweibo-mirror">讲真话，求真相。你已经走在了犯罪的道路上。</a>
+</h2>
+<p>讲真话，求真相。你已经走在了犯罪的道路上。<br><br>RE: 【国家网信办：任志强微博账号被关闭】2月28日，国家互联网信息办公室责令新浪、腾讯等网站依法依规关闭任志强微博账号。国家网信办发言人姜军发表谈话称，网络空间不是法外之地，任何人不得利用网络传播违法信息。姜军表示，任志强微博账号持续公开发布违法信息，影响恶劣。http://t.cn/RG0lHUZ<br><img src="http://ww1.sinaimg.cn/large/65dc17d3jw1f1f49rdtenj20c707kmxg.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3947528716204016" target="freeweibo-mirror">没关注过他，任志强嘛，装逼过了头，明明是大地产商，大资本家，…</a>
+</h2>
+<p>没关注过他，任志强嘛，装逼过了头，明明是大地产商，大资本家，靠剥削房奴投机倒把发家的台子党，还装作为贫下中农代言，真是名利双收，最后得意忘形，叛变主子，实乃京城第一名伶，蒙蔽了不少群众啊。任志强仅仅是删号，我觉得是他的主子还想挽救他<br><br>RE: 【国家网信办：任志强微博账号被关闭】2月28日，国家互联网信息办公室责令新浪、腾讯等网站依法依规关闭任志强微博账号。国家网信办发言人姜军发表谈话称，网络空间不是法外之地，任何人不得利用网络传播违法信息。姜军表示，任志强微博账号持续公开发布违法信息，影响恶劣。http://t.cn/RG0lHUZ<br><img src="http://ww1.sinaimg.cn/large/65dc17d3jw1f1f49rdtenj20c707kmxg.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3947525998348573" target="freeweibo-mirror">SPAM 伪娘的春天就要来了</a>
+</h2>
+<p>SPAM 伪娘的春天就要来了<br><br>RE: 掃蕩完任志強、孫海英、榮劍之後，估計就該輪到@不加V 這種有違「社會主義核心價值觀」的非我族類了，充滿各種喜聞樂見普大喜奔的暖男新浪，該多有趣啊！<br><img src="http://ww4.sinaimg.cn/large/9fa8a41djw1f1f3sek6ibj20ku0q2n3k.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3947524085974042" target="freeweibo-mirror">说不准哪天会把微博关掉。//@北国红叶来南国: //@彼得洛…</a>
 </h2>
 <p>说不准哪天会把微博关掉。//@北国红叶来南国: //@彼得洛维奇QHM:经济不会玩，开始玩人了</p>
@@ -72,7 +96,7 @@
 </h2>
 <p>确切说，是公知推墙界会更加疯狂！特别是体制内滴~ //@哈利的小香猪:假如任志强这次依然躲过处罚，不知道会对正能量界造成多大的打击啊<br><br>RE: 任志强的抛物线还有多长？新华网这文章比之前两篇还“露骨”：任比谁都清楚想要回头是不可能了，唯有孤注一掷走到党的对立面以各种反党言论不断扩充舆论影响力，才有可能引起国外反华政治团体的关注，最大限度地为自己积累反向的舆论博弈资本，以期延长被清算时间的抛物线，达到暂时保全自己的目的。<br><img src="http://ww4.sinaimg.cn/large/c37c67cbgw1f1ecj899jnj20ig0fi0v5.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3947436483237426" target="freeweibo-mirror">SPAM 最后一段话，说的太对了。。。</a>
 </h2>
@@ -113,30 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3947294518500943" target="freeweibo-mirror">//@逆风蝴蝶:随意。跳梁小丑，有本事就署名，不署名爱说什么…</a>
 </h2>
 <p>//@逆风蝴蝶:随意。跳梁小丑，有本事就署名，不署名爱说什么说什么，跟王岐山叫板，能有好下场？ //@Phicochan小布晨飛://@LifeTime:文革模式启动了，各派都指责对方反党反毛。[酷] //@姜逸青:转发微博<br><br>RE: 好文章。兼听则明，警惕阴谋。http://t.cn/RG0ZlPb<br><img src="http://ww3.sinaimg.cn/large/6b804b51jw1f1e97hd39cj20qo1bg46n.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3947293863994262" target="freeweibo-mirror">[围观]//@摩娅: [偷笑]两边打的武器都一样，都是说自己…</a>
-</h2>
-<p>[围观]//@摩娅: [偷笑]两边打的武器都一样，都是说自己是党、人民一边，都拿毛的话说话。文革也是这样的嘛！要我说，你们就不能拿常识说事？//@瓦良格号归来:→_→[赞]<br><br>RE: 好文章。兼听则明，警惕阴谋。http://t.cn/RG0ZlPb<br><img src="http://ww3.sinaimg.cn/large/6b804b51jw1f1e97hd39cj20qo1bg46n.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3947293608951048" target="freeweibo-mirror">//@徐昕://@京都观潮://@王修216: 任总是根导火…</a>
-</h2>
-<p>//@徐昕://@京都观潮://@王修216: 任总是根导火索？//@旦复旦兮00://@王甫律师:越来越热闹 //@王小东:这阶级斗争味儿越来越浓了，双方互相指责对方反党，真的很像文革[嘻嘻]//@博联社马晓霖:【话里有话】 这个解读有意思，用过去的话说，阶级斗争非常复杂，敌情十分严重<br><br>RE: 好文章。兼听则明，警惕阴谋。http://t.cn/RG0ZlPb<br><img src="http://ww3.sinaimg.cn/large/6b804b51jw1f1e97hd39cj20qo1bg46n.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3947293599967796" target="freeweibo-mirror">SPAM //@杨宁远v: 人治-》党治-》法治。是生长痛吧…</a>
-</h2>
-<p>SPAM //@杨宁远v: 人治-》党治-》法治。是生长痛吧！ //@陈有西@王小东@博联社马晓霖<br><br>RE: 好文章。兼听则明，警惕阴谋。http://t.cn/RG0ZlPb<br><img src="http://ww3.sinaimg.cn/large/6b804b51jw1f1e97hd39cj20qo1bg46n.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3947293126791274" target="freeweibo-mirror">随意。跳梁小丑，有本事就署名，不署名爱说什么说什么，跟王岐山…</a>
-</h2>
-<p>随意。跳梁小丑，有本事就署名，不署名爱说什么说什么，跟王岐山叫板，能有好下场？ //@Phicochan小布晨飛://@LifeTime:文革模式启动了，各派都指责对方反党反毛。[酷] //@姜逸青:转发微博<br><br>RE: 好文章。兼听则明，警惕阴谋。http://t.cn/RG0ZlPb<br><img src="http://ww3.sinaimg.cn/large/6b804b51jw1f1e97hd39cj20qo1bg46n.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
