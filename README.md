@@ -114,7 +114,7 @@
 </h2>
 <p>历史学者炮轰首席大法官！<br><img src="http://ww4.sinaimg.cn/large/ea664d14jw1f1gcf99rbtj20cn6e8npd.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3947908779244052" target="freeweibo-mirror">//@cateodata: 组长同意了，咋地？[笑cry]</a>
 </h2>
