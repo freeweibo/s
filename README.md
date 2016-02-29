@@ -32,6 +32,12 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3947902021748029" target="freeweibo-mirror">【批评任志强不能无限“上纲上线”】光明网署名“戚桂锋”文章称…</a>
+</h2>
+<p>【批评任志强不能无限“上纲上线”】光明网署名“戚桂锋”文章称，“这与国内外颠覆势力的愿望和利益是根本对立的，作为代言人的任志强跳出来任性反党也就不足为怪了。” 在依法治国的今天，不应乱扣“国外颠覆势力代言人”这样的大帽子，否则岂非文革遗风？2016年是文革爆发50周年，历史殷鉴必须铭记<br><img src="http://ww4.sinaimg.cn/large/709b1d0egw1f1gb6nu69dj2089064glp.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3947884372003144" target="freeweibo-mirror">SPAM 【请用选票，换取尊严】 您的转发，十分重要！</a>
 </h2>
 <p>SPAM 【请用选票，换取尊严】 您的转发，十分重要！<br><br>RE: 【请用选票，换取尊严】 ――2016、2017，县乡人大代表换届选举年。<br><img src="http://ww4.sinaimg.cn/large/00653bYAgw1f1fgngvts3j30gg1fm4qp.jpg"></p>
@@ -41,6 +47,12 @@
 	<a href="https://freeweibo.com/weibo/3947875333350374" target="freeweibo-mirror">SPAM #热爱为桥，跑向金马#跑马拉松享受的不仅仅是其大汗…</a>
 </h2>
 <p>SPAM #热爱为桥，跑向金马#跑马拉松享受的不仅仅是其大汗淋漓的痛快，还有其跑途中各种迷人的风景以及可爱的人群。</p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3947872318005229" target="freeweibo-mirror">光明网：任志强竟然反对党中央“多党制行不通”历史结论，称共产…</a>
+</h2>
+<p>光明网：任志强竟然反对党中央“多党制行不通”历史结论，称共产党是垄断皇权，中国是专制加垄断；称习新班子，让车轮倒转，军队枪口对内，鼓吹军队国家化；称被共产主义口号骗了十几年！ http://t.cn/RGOMgin @凤凰新闻客户端<br><img src="http://ww2.sinaimg.cn/large/58500250jw1f1g7zfimw7j20a006omx9.jpg"></p>
 <p>
 	<small> ============== 4小时前</small>
 </p><h2>
@@ -54,13 +66,13 @@
 </h2>
 <p>SPAM 好扎眼的签名</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3947864234952566" target="freeweibo-mirror">SPAM 【厦门“集美大桥”题字石碑突然断裂】2016年2月…</a>
 </h2>
 <p>SPAM 【厦门“集美大桥”题字石碑突然断裂】2016年2月29日早上，厦门多位市民报料，集美大桥出岛方向刚过下穿隧道出口不远处的写有“集美大桥”的石牌断裂，半块多的石牌砸落在草地上，压坏了栏杆，占用右侧半个车道车。受此影响，早高峰出岛方向交通发生滞留。http://t.cn/RGOI5hi<br><img src="http://ww4.sinaimg.cn/large/61e04755jw1f1g71ngajjj20eo0i3tbo.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3947860779249376" target="freeweibo-mirror">SPAM //@言渣渣哈哈哈哈和://@单调-村濑鱼料理部:…</a>
 </h2>
@@ -125,18 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3947808915987595" target="freeweibo-mirror">最敬佩的就是军人！保家卫国。守护边疆。如今退伍创业必然支持！</a>
 </h2>
 <p>最敬佩的就是军人！保家卫国。守护边疆。如今退伍创业必然支持！</p>
-<p>
-	<small> ============== 8小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3947807893135371" target="freeweibo-mirror">SPAM 皇上//@南山灯火_1c8:[闭嘴]//@山高路远…</a>
-</h2>
-<p>SPAM 皇上//@南山灯火_1c8:[闭嘴]//@山高路远N: //@暴走恭亲王:建议世袭<br><br>RE: 好啊好啊好啊[鼓掌][鼓掌]<br><img src="http://ww1.sinaimg.cn/large/837d0ccagw1f1fimdl6kfj20mv0avjsy.jpg"></p>
-<p>
-	<small> ============== 8小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3947807780250103" target="freeweibo-mirror">集美大桥题词碑断裂</a>
-</h2>
-<p>集美大桥题词碑断裂<br><img src="http://ww3.sinaimg.cn/large/6d0b6b33jw1f1g0jbz9k8j20go0m8dhi.jpg"></p>
 <p>
 	<small> ============== 8小时前</small>
 </p>
