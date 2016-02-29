@@ -108,7 +108,7 @@
 </h2>
 <p>光明网：任志强竟然反对党中央“多党制行不通”历史结论，称共产党是垄断皇权，中国是专制加垄断；称习新班子，让车轮倒转，军队枪口对内，鼓吹军队国家化；称被共产主义口号骗了十几年！ http://t.cn/RGOMgin @凤凰新闻客户端<br><img src="http://ww2.sinaimg.cn/large/58500250jw1f1g7zfimw7j20a006omx9.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3947867288246112" target="freeweibo-mirror">【初步判断为自然断裂】集美大桥为连接厦门岛与集美半岛的跨海大…</a>
 </h2>
