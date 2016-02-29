@@ -30,7 +30,7 @@
 </h2>
 <p>SPAM 世上最好的保鲜就是永恒…把她带在离心最近的位置 从此以后心跳多久爱就有多久[鲜花]只属于你们[爱你]喜欢就来吧</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3947911282822205" target="freeweibo-mirror">回复@指尖上的会计:自觉抵制文革是每个国人的良知和底线。中国…</a>
 </h2>
@@ -60,7 +60,7 @@
 </h2>
 <p>SPAM 【请用选票，换取尊严】 您的转发，十分重要！<br><br>RE: 【请用选票，换取尊严】 ――2016、2017，县乡人大代表换届选举年。<br><img src="http://ww4.sinaimg.cn/large/00653bYAgw1f1fgngvts3j30gg1fm4qp.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3947875333350374" target="freeweibo-mirror">SPAM #热爱为桥，跑向金马#跑马拉松享受的不仅仅是其大汗…</a>
 </h2>
