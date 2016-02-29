@@ -24,7 +24,7 @@
 </h2>
 <p>SPAM 【请用选票，换取尊严】 您的转发，十分重要！<br><br>RE: 【请用选票，换取尊严】 ――2016、2017，县乡人大代表换届选举年。<br><img src="http://ww4.sinaimg.cn/large/00653bYAgw1f1fgngvts3j30gg1fm4qp.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3947875333350374" target="freeweibo-mirror">SPAM #热爱为桥，跑向金马#跑马拉松享受的不仅仅是其大汗…</a>
 </h2>
@@ -114,7 +114,7 @@
 </h2>
 <p>最敬佩的就是军人！保家卫国。守护边疆。如今退伍创业必然支持！</p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3947807893135371" target="freeweibo-mirror">SPAM 皇上//@南山灯火_1c8:[闭嘴]//@山高路远…</a>
 </h2>
