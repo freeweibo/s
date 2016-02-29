@@ -84,7 +84,7 @@
 </h2>
 <p>习主席死了怎么办?//@冷夜烈猫: 哪四个职务？<br><br>RE: 人民网强国论坛的讨论已经深入到这个程度了…@作家崔成浩<br><img src="http://ww4.sinaimg.cn/large/5fbb35a2gw1f1g9ammwkcj20mv0avwfq.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3947884372003144" target="freeweibo-mirror">SPAM 【请用选票，换取尊严】 您的转发，十分重要！</a>
 </h2>
