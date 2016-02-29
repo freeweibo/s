@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3947884372003144" target="freeweibo-mirror">SPAM 【请用选票，换取尊严】 您的转发，十分重要！</a>
+</h2>
+<p>SPAM 【请用选票，换取尊严】 您的转发，十分重要！<br><br>RE: 【请用选票，换取尊严】 ――2016、2017，县乡人大代表换届选举年。<br><img src="http://ww4.sinaimg.cn/large/00653bYAgw1f1fgngvts3j30gg1fm4qp.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3947875333350374" target="freeweibo-mirror">SPAM #热爱为桥，跑向金马#跑马拉松享受的不仅仅是其大汗…</a>
 </h2>
 <p>SPAM #热爱为桥，跑向金马#跑马拉松享受的不仅仅是其大汗淋漓的痛快，还有其跑途中各种迷人的风景以及可爱的人群。</p>
@@ -60,7 +66,7 @@
 </h2>
 <p>//@埃玛Emma:向后倒，再倒，对，倒，倒，倒～ [霹雳]//@切维农:股市反映了民意，呵呵//@法律及其价值://@崔小平律师:转发微博<br><br>RE: 经济形势越是严峻，越要加强改革开放的力度，安抚并吸引境内外的投资者，可是现在，却重提意识形态的斗争，把任志强打成＂资本翻天派＂，这和救巿的努力不是南辕北辙嘛？<br><img src="http://ww4.sinaimg.cn/large/9154fba0jw1f1g3zzucnoj20hs0vkq7n.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3947847387442529" target="freeweibo-mirror">SPAM 发微博会被删，转图呢</a>
 </h2>
@@ -90,7 +96,7 @@
 </h2>
 <p>SPAM 转发微博 http://t.cn/RGOxNlv</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3947829858448776" target="freeweibo-mirror">SPAM 小李要是拿了#奥斯卡#影帝……我就从转发里抽一支T…</a>
 </h2>
@@ -126,19 +132,13 @@
 </h2>
 <p>集美大桥石碑断裂...好恐怖好不吉利[拜拜] http://t.cn/RGOtYzO</p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3947776432074074" target="freeweibo-mirror">真的开始劝进了。你们还能再无耻点儿吗？</a>
 </h2>
 <p>真的开始劝进了。你们还能再无耻点儿吗？<br><img src="http://ww4.sinaimg.cn/large/4b6f6353jw1f1fwyy7vhdj20m80ak0tf.jpg"></p>
 <p>
-	<small> ============== 9小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3947651643178557" target="freeweibo-mirror">好啊好啊好啊[鼓掌][鼓掌]</a>
-</h2>
-<p>好啊好啊好啊[鼓掌][鼓掌]<br><img src="http://ww1.sinaimg.cn/large/837d0ccagw1f1fimdl6kfj20mv0avjsy.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
+	<small> ============== 10小时前</small>
 </p>
 <table>
     <tr>
