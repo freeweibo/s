@@ -24,7 +24,7 @@
 </h2>
 <p>最敬佩的就是军人！保家卫国。守护边疆。如今退伍创业必然支持！</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3947649370016199" target="freeweibo-mirror">//@不是大V是大卫: //@迟夙生律师: //@红三叶:渭…</a>
 </h2>
