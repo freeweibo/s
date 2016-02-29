@@ -48,7 +48,7 @@
 </h2>
 <p>SPAM 粗制滥造啊[偷笑] //@女神读书会:#要嫁就嫁习大大这样的人#活久见！竟然有这样一首歌：《要嫁就嫁习大大这样的人》   本神已经不知道该说什么了！你们说说[笑cry][笑cry]要唱，尼玛，好歹曲子编好，换个人唱！！</p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3947961723331987" target="freeweibo-mirror">他们明明说了假话，结果他们在文革后说自己敢于坚持说真话……/…</a>
 </h2>
@@ -96,7 +96,7 @@
 </h2>
 <p>SPAM 谁说女儿不如男。<br><br>RE: 懒得说话，看图。<br><img src="http://ww2.sinaimg.cn/large/006iSYgSgw1f1gcj2u3a1j30hn0qognw.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3947924221733873" target="freeweibo-mirror">SPAM [赞][哈哈]//@西城老罗:好胃口啊小芮</a>
 </h2>
