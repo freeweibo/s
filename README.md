@@ -24,7 +24,7 @@
 </h2>
 <p>//@怒苍山五虎将之首: //@一品泥人: //@法律案例-文史典故: 转发微博</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3947971818857546" target="freeweibo-mirror">SPAM 粗制滥造啊[偷笑] //@女神读书会:#要嫁就嫁习…</a>
 </h2>
@@ -60,7 +60,7 @@
 </h2>
 <p>第一次是悲剧……<br><br>RE: 历史关头。<br><img src="http://ww4.sinaimg.cn/large/4db8e9a3gw1f1gb2763t8j20fe0m5tdm.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3947934892522050" target="freeweibo-mirror">//@周泽说话:嗯，改成这样吧。——历史学者问责首席大法官妄…</a>
 </h2>
