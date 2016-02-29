@@ -90,7 +90,7 @@
 </h2>
 <p>SPAM //@鈇帅湼槃3://@浮沉一梦43479: 过傢伙咋不上殃屎认罪[doge]//@王林的微博客://@老饕加佑:[笑cry]口味太重 //@摔三角拍烟画:最左边两位真俊[好爱哦][赞]<br><br>RE: 懒得说话，看图。<br><img src="http://ww2.sinaimg.cn/large/006iSYgSgw1f1gcj2u3a1j30hn0qognw.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3947927069819414" target="freeweibo-mirror">SPAM 谁说女儿不如男。</a>
 </h2>
