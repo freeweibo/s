@@ -30,7 +30,7 @@
 </h2>
 <p>SPAM 【厦门“集美大桥”题字石碑突然断裂】2016年2月29日早上，厦门多位市民报料，集美大桥出岛方向刚过下穿隧道出口不远处的写有“集美大桥”的石牌断裂，半块多的石牌砸落在草地上，压坏了栏杆，占用右侧半个车道车。受此影响，早高峰出岛方向交通发生滞留。http://t.cn/RGOI5hi<br><img src="http://ww4.sinaimg.cn/large/61e04755jw1f1g71ngajjj20eo0i3tbo.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3947852604376292" target="freeweibo-mirror">不说了，自己看吧http://t.cn/RGO6KJH</a>
 </h2>
