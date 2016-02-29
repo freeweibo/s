@@ -42,7 +42,7 @@
 </h2>
 <p>SPAM 发微博会被删，转图呢<br><br>RE: 分享图片<br><img src="http://ww1.sinaimg.cn/large/61e3e875jw1f1f5fwus99j20k00zkgoq.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3947838130306616" target="freeweibo-mirror">SPAM 2.0？ //@風雨顺德人:记得那一次断桥是股灾多…</a>
 </h2>
