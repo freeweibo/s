@@ -30,7 +30,7 @@
 </h2>
 <p>SPAM 皇上//@南山灯火_1c8:[闭嘴]//@山高路远N: //@暴走恭亲王:建议世袭<br><br>RE: 好啊好啊好啊[鼓掌][鼓掌]<br><img src="http://ww1.sinaimg.cn/large/837d0ccagw1f1fimdl6kfj20mv0avjsy.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3947651643178557" target="freeweibo-mirror">好啊好啊好啊[鼓掌][鼓掌]</a>
 </h2>
