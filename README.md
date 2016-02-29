@@ -54,7 +54,7 @@
 </h2>
 <p>他们明明说了假话，结果他们在文革后说自己敢于坚持说真话……//@文革老照片1966:后来呢？<br><br>RE: 历史关头。<br><img src="http://ww4.sinaimg.cn/large/4db8e9a3gw1f1gb2763t8j20fe0m5tdm.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3947961174000063" target="freeweibo-mirror">//@邝海炎://@刘军宁: 回复@西窗随笔365: 给小潘…</a>
 </h2>
@@ -138,7 +138,7 @@
 </h2>
 <p>//@cateodata: 组长同意了，咋地？[笑cry]<br><br>RE: 【批评任志强不能无限“上纲上线”】光明网署名“戚桂锋”文章称，“这与国内外颠覆势力的愿望和利益是根本对立的，作为代言人的任志强跳出来任性反党也就不足为怪了。” 在依法治国的今天，不应乱扣“国外颠覆势力代言人”这样的大帽子，否则岂非文革遗风？2016年是文革爆发50周年，历史殷鉴必须铭记<br><img src="http://ww4.sinaimg.cn/large/709b1d0egw1f1gb6nu69dj2089064glp.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p>
 <table>
     <tr>
