@@ -20,11 +20,17 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3947930974907590" target="freeweibo-mirror">SPAM //@鈇帅湼槃3://@浮沉一梦43479: 过傢…</a>
+</h2>
+<p>SPAM //@鈇帅湼槃3://@浮沉一梦43479: 过傢伙咋不上殃屎认罪[doge]//@王林的微博客://@老饕加佑:[笑cry]口味太重 //@摔三角拍烟画:最左边两位真俊[好爱哦][赞]<br><br>RE: 懒得说话，看图。<br><img src="http://ww2.sinaimg.cn/large/006iSYgSgw1f1gcj2u3a1j30hn0qognw.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3947927069819414" target="freeweibo-mirror">SPAM 谁说女儿不如男。</a>
 </h2>
 <p>SPAM 谁说女儿不如男。<br><br>RE: 懒得说话，看图。<br><img src="http://ww2.sinaimg.cn/large/006iSYgSgw1f1gcj2u3a1j30hn0qognw.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3947915246383450" target="freeweibo-mirror">//@崔小平律师://@麦田守望翁2:总有明白人。//@刘胜…</a>
 </h2>
@@ -42,13 +48,13 @@
 </h2>
 <p>懒得说话，看图。<br><img src="http://ww2.sinaimg.cn/large/006iSYgSgw1f1gcj2u3a1j30hn0qognw.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3947911282822205" target="freeweibo-mirror">回复@指尖上的会计:自觉抵制文革是每个国人的良知和底线。中国…</a>
 </h2>
 <p>回复@指尖上的会计:自觉抵制文革是每个国人的良知和底线。中国承受不起再来一次文革，哪怕仅仅是对文革的恐惧……//@指尖上的会计:难得现在还有人这么说。<br><br>RE: 【批评任志强不能无限“上纲上线”】光明网署名“戚桂锋”文章称，“这与国内外颠覆势力的愿望和利益是根本对立的，作为代言人的任志强跳出来任性反党也就不足为怪了。” 在依法治国的今天，不应乱扣“国外颠覆势力代言人”这样的大帽子，否则岂非文革遗风？2016年是文革爆发50周年，历史殷鉴必须铭记<br><img src="http://ww4.sinaimg.cn/large/709b1d0egw1f1gb6nu69dj2089064glp.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3947908779244052" target="freeweibo-mirror">//@cateodata: 组长同意了，咋地？[笑cry]</a>
 </h2>
@@ -67,6 +73,12 @@
 <p>【批评任志强不能无限“上纲上线”】光明网署名“戚桂锋”文章称，“这与国内外颠覆势力的愿望和利益是根本对立的，作为代言人的任志强跳出来任性反党也就不足为怪了。” 在依法治国的今天，不应乱扣“国外颠覆势力代言人”这样的大帽子，否则岂非文革遗风？2016年是文革爆发50周年，历史殷鉴必须铭记<br><img src="http://ww4.sinaimg.cn/large/709b1d0egw1f1gb6nu69dj2089064glp.jpg"></p>
 <p>
 	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3947889421826716" target="freeweibo-mirror">习主席死了怎么办?//@冷夜烈猫: 哪四个职务？</a>
+</h2>
+<p>习主席死了怎么办?//@冷夜烈猫: 哪四个职务？<br><br>RE: 人民网强国论坛的讨论已经深入到这个程度了…@作家崔成浩<br><img src="http://ww4.sinaimg.cn/large/5fbb35a2gw1f1g9ammwkcj20mv0avwfq.jpg"></p>
+<p>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3947884372003144" target="freeweibo-mirror">SPAM 【请用选票，换取尊严】 您的转发，十分重要！</a>
 </h2>
@@ -125,18 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3947850734349142" target="freeweibo-mirror">//@埃玛Emma:向后倒，再倒，对，倒，倒，倒～ [霹雳]…</a>
 </h2>
 <p>//@埃玛Emma:向后倒，再倒，对，倒，倒，倒～ [霹雳]//@切维农:股市反映了民意，呵呵//@法律及其价值://@崔小平律师:转发微博<br><br>RE: 经济形势越是严峻，越要加强改革开放的力度，安抚并吸引境内外的投资者，可是现在，却重提意识形态的斗争，把任志强打成＂资本翻天派＂，这和救巿的努力不是南辕北辙嘛？<br><img src="http://ww4.sinaimg.cn/large/9154fba0jw1f1g3zzucnoj20hs0vkq7n.jpg"></p>
-<p>
-	<small> ============== 6小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3947847387442529" target="freeweibo-mirror">SPAM 发微博会被删，转图呢</a>
-</h2>
-<p>SPAM 发微博会被删，转图呢<br><br>RE: 分享图片<br><img src="http://ww1.sinaimg.cn/large/61e3e875jw1f1f5fwus99j20k00zkgoq.jpg"></p>
-<p>
-	<small> ============== 7小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3947838130306616" target="freeweibo-mirror">SPAM 2.0？ //@風雨顺德人:记得那一次断桥是股灾多…</a>
-</h2>
-<p>SPAM 2.0？ //@風雨顺德人:记得那一次断桥是股灾多少点0？@朱一卿<br><br>RE: 集美大桥题词碑断裂<br><img src="http://ww3.sinaimg.cn/large/6d0b6b33jw1f1g0jbz9k8j20go0m8dhi.jpg"></p>
 <p>
 	<small> ============== 7小时前</small>
 </p>
