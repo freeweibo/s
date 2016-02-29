@@ -20,11 +20,17 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3947915246383450" target="freeweibo-mirror">//@崔小平律师://@麦田守望翁2:总有明白人。//@刘胜…</a>
+</h2>
+<p>//@崔小平律师://@麦田守望翁2:总有明白人。//@刘胜军改革:回复@指尖上的会计:自觉抵制文革是每个国人的良知和底线。中国承受不起再来一次文革，哪怕仅仅是对文革的恐惧……//@指尖上的会计:难得现在还有人这么说。<br><br>RE: 【批评任志强不能无限“上纲上线”】光明网署名“戚桂锋”文章称，“这与国内外颠覆势力的愿望和利益是根本对立的，作为代言人的任志强跳出来任性反党也就不足为怪了。” 在依法治国的今天，不应乱扣“国外颠覆势力代言人”这样的大帽子，否则岂非文革遗风？2016年是文革爆发50周年，历史殷鉴必须铭记<br><img src="http://ww4.sinaimg.cn/large/709b1d0egw1f1gb6nu69dj2089064glp.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3947911282822205" target="freeweibo-mirror">回复@指尖上的会计:自觉抵制文革是每个国人的良知和底线。中国…</a>
 </h2>
 <p>回复@指尖上的会计:自觉抵制文革是每个国人的良知和底线。中国承受不起再来一次文革，哪怕仅仅是对文革的恐惧……//@指尖上的会计:难得现在还有人这么说。<br><br>RE: 【批评任志强不能无限“上纲上线”】光明网署名“戚桂锋”文章称，“这与国内外颠覆势力的愿望和利益是根本对立的，作为代言人的任志强跳出来任性反党也就不足为怪了。” 在依法治国的今天，不应乱扣“国外颠覆势力代言人”这样的大帽子，否则岂非文革遗风？2016年是文革爆发50周年，历史殷鉴必须铭记<br><img src="http://ww4.sinaimg.cn/large/709b1d0egw1f1gb6nu69dj2089064glp.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3947907964699748" target="freeweibo-mirror">要完，能走快走 //@酱块小脑型:我想逃，没钱//@陈茂来-…</a>
 </h2>
@@ -96,7 +102,7 @@
 </h2>
 <p>//@埃玛Emma:向后倒，再倒，对，倒，倒，倒～ [霹雳]//@切维农:股市反映了民意，呵呵//@法律及其价值://@崔小平律师:转发微博<br><br>RE: 经济形势越是严峻，越要加强改革开放的力度，安抚并吸引境内外的投资者，可是现在，却重提意识形态的斗争，把任志强打成＂资本翻天派＂，这和救巿的努力不是南辕北辙嘛？<br><img src="http://ww4.sinaimg.cn/large/9154fba0jw1f1g3zzucnoj20hs0vkq7n.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3947847387442529" target="freeweibo-mirror">SPAM 发微博会被删，转图呢</a>
 </h2>
@@ -126,17 +132,11 @@
 </h2>
 <p>SPAM 转发微博 http://t.cn/RGOxNlv</p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3947829858448776" target="freeweibo-mirror">SPAM 小李要是拿了#奥斯卡#影帝……我就从转发里抽一支T…</a>
 </h2>
 <p>SPAM 小李要是拿了#奥斯卡#影帝……我就从转发里抽一支TOM FORD LIP&BOYS的Leonardo哈哈哈哈哈哈哈哈哈（跟风<br><img src="http://ww4.sinaimg.cn/large/6851778fjw1f1g31ohekcj20c80icaab.jpg"></p>
-<p>
-	<small> ============== 7小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3947826541677638" target="freeweibo-mirror">SPAM 吾皇万岁万岁万万岁！ //@四爷咋啦:如果是君主立…</a>
-</h2>
-<p>SPAM 吾皇万岁万岁万万岁！ //@四爷咋啦:如果是君主立宪，还真是一次伟大的进步。//@彭园v: 皇上//@南山灯火_1c8:[闭嘴]//@山高路远N: //@暴走恭亲王:建议世袭<br><br>RE: 好啊好啊好啊[鼓掌][鼓掌]<br><img src="http://ww1.sinaimg.cn/large/837d0ccagw1f1fimdl6kfj20mv0avjsy.jpg"></p>
 <p>
 	<small> ============== 7小时前</small>
 </p>
