@@ -54,7 +54,7 @@
 </h2>
 <p>他们明明说了假话，结果他们在文革后说自己敢于坚持说真话……//@文革老照片1966:后来呢？<br><br>RE: 历史关头。<br><img src="http://ww4.sinaimg.cn/large/4db8e9a3gw1f1gb2763t8j20fe0m5tdm.jpg"></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3947961174000063" target="freeweibo-mirror">//@邝海炎://@刘军宁: 回复@西窗随笔365: 给小潘…</a>
 </h2>
@@ -102,7 +102,7 @@
 </h2>
 <p>SPAM [赞][哈哈]//@西城老罗:好胃口啊小芮<br><br>RE: 懒得说话，看图。<br><img src="http://ww2.sinaimg.cn/large/006iSYgSgw1f1gcj2u3a1j30hn0qognw.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3947915246383450" target="freeweibo-mirror">//@崔小平律师://@麦田守望翁2:总有明白人。//@刘胜…</a>
 </h2>
