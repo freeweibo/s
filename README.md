@@ -48,7 +48,7 @@
 </h2>
 <p>第一次是悲剧……<br><br>RE: 历史关头。<br><img src="http://ww4.sinaimg.cn/large/4db8e9a3gw1f1gb2763t8j20fe0m5tdm.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3947934892522050" target="freeweibo-mirror">//@周泽说话:嗯，改成这样吧。——历史学者问责首席大法官妄…</a>
 </h2>
@@ -98,6 +98,12 @@
 <p>
 	<small> ============== 5小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3947910972489889" target="freeweibo-mirror">历史学者炮轰首席大法官！</a>
+</h2>
+<p>历史学者炮轰首席大法官！<br><img src="http://ww4.sinaimg.cn/large/ea664d14jw1f1gcf99rbtj20cn6e8npd.jpg"></p>
+<p>
+	<small> ============== 5小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3947908779244052" target="freeweibo-mirror">//@cateodata: 组长同意了，咋地？[笑cry]</a>
 </h2>
 <p>//@cateodata: 组长同意了，咋地？[笑cry]<br><br>RE: 【批评任志强不能无限“上纲上线”】光明网署名“戚桂锋”文章称，“这与国内外颠覆势力的愿望和利益是根本对立的，作为代言人的任志强跳出来任性反党也就不足为怪了。” 在依法治国的今天，不应乱扣“国外颠覆势力代言人”这样的大帽子，否则岂非文革遗风？2016年是文革爆发50周年，历史殷鉴必须铭记<br><img src="http://ww4.sinaimg.cn/large/709b1d0egw1f1gb6nu69dj2089064glp.jpg"></p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3947884372003144" target="freeweibo-mirror">SPAM 【请用选票，换取尊严】 您的转发，十分重要！</a>
 </h2>
 <p>SPAM 【请用选票，换取尊严】 您的转发，十分重要！<br><br>RE: 【请用选票，换取尊严】 ――2016、2017，县乡人大代表换届选举年。<br><img src="http://ww4.sinaimg.cn/large/00653bYAgw1f1fgngvts3j30gg1fm4qp.jpg"></p>
-<p>
-	<small> ============== 7小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3947883776607745" target="freeweibo-mirror">人民网强国论坛的讨论已经深入到这个程度了…@作家崔成浩</a>
-</h2>
-<p>人民网强国论坛的讨论已经深入到这个程度了…@作家崔成浩<br><img src="http://ww4.sinaimg.cn/large/5fbb35a2gw1f1g9ammwkcj20mv0avwfq.jpg"></p>
 <p>
 	<small> ============== 7小时前</small>
 </p>
