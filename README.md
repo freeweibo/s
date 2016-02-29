@@ -90,7 +90,7 @@
 </h2>
 <p>//@道理没有国界:转发微博</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3947624996518380" target="freeweibo-mirror">→_→//@老百0693: [哈哈][哈哈][哈哈] //@…</a>
 </h2>
