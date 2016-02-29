@@ -54,7 +54,7 @@
 </h2>
 <p>//@埃玛Emma:向后倒，再倒，对，倒，倒，倒～ [霹雳]//@切维农:股市反映了民意，呵呵//@法律及其价值://@崔小平律师:转发微博<br><br>RE: 经济形势越是严峻，越要加强改革开放的力度，安抚并吸引境内外的投资者，可是现在，却重提意识形态的斗争，把任志强打成＂资本翻天派＂，这和救巿的努力不是南辕北辙嘛？<br><img src="http://ww4.sinaimg.cn/large/9154fba0jw1f1g3zzucnoj20hs0vkq7n.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3947847387442529" target="freeweibo-mirror">SPAM 发微博会被删，转图呢</a>
 </h2>
@@ -84,7 +84,7 @@
 </h2>
 <p>SPAM 转发微博 http://t.cn/RGOxNlv</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3947829858448776" target="freeweibo-mirror">SPAM 小李要是拿了#奥斯卡#影帝……我就从转发里抽一支T…</a>
 </h2>
@@ -120,13 +120,13 @@
 </h2>
 <p>集美大桥石碑断裂...好恐怖好不吉利[拜拜] http://t.cn/RGOtYzO</p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3947776432074074" target="freeweibo-mirror">真的开始劝进了。你们还能再无耻点儿吗？</a>
 </h2>
 <p>真的开始劝进了。你们还能再无耻点儿吗？<br><img src="http://ww4.sinaimg.cn/large/4b6f6353jw1f1fwyy7vhdj20m80ak0tf.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3947651643178557" target="freeweibo-mirror">好啊好啊好啊[鼓掌][鼓掌]</a>
 </h2>
