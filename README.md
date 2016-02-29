@@ -110,6 +110,12 @@
 <p>
 	<small> ============== 6小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3947899127537356" target="freeweibo-mirror">历史关头。</a>
+</h2>
+<p>历史关头。<br><img src="http://ww4.sinaimg.cn/large/4db8e9a3gw1f1gb2763t8j20fe0m5tdm.jpg"></p>
+<p>
+	<small> ============== 6小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3947889421826716" target="freeweibo-mirror">习主席死了怎么办?//@冷夜烈猫: 哪四个职务？</a>
 </h2>
 <p>习主席死了怎么办?//@冷夜烈猫: 哪四个职务？<br><br>RE: 人民网强国论坛的讨论已经深入到这个程度了…@作家崔成浩<br><img src="http://ww4.sinaimg.cn/large/5fbb35a2gw1f1g9ammwkcj20mv0avwfq.jpg"></p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3947875333350374" target="freeweibo-mirror">SPAM #热爱为桥，跑向金马#跑马拉松享受的不仅仅是其大汗…</a>
 </h2>
 <p>SPAM #热爱为桥，跑向金马#跑马拉松享受的不仅仅是其大汗淋漓的痛快，还有其跑途中各种迷人的风景以及可爱的人群。</p>
-<p>
-	<small> ============== 7小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3947872318005229" target="freeweibo-mirror">光明网：任志强竟然反对党中央“多党制行不通”历史结论，称共产…</a>
-</h2>
-<p>光明网：任志强竟然反对党中央“多党制行不通”历史结论，称共产党是垄断皇权，中国是专制加垄断；称习新班子，让车轮倒转，军队枪口对内，鼓吹军队国家化；称被共产主义口号骗了十几年！ http://t.cn/RGOMgin @凤凰新闻客户端<br><img src="http://ww2.sinaimg.cn/large/58500250jw1f1g7zfimw7j20a006omx9.jpg"></p>
 <p>
 	<small> ============== 7小时前</small>
 </p>
