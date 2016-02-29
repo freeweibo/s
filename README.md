@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3947911282822205" target="freeweibo-mirror">回复@指尖上的会计:自觉抵制文革是每个国人的良知和底线。中国…</a>
+</h2>
+<p>回复@指尖上的会计:自觉抵制文革是每个国人的良知和底线。中国承受不起再来一次文革，哪怕仅仅是对文革的恐惧……//@指尖上的会计:难得现在还有人这么说。<br><br>RE: 【批评任志强不能无限“上纲上线”】光明网署名“戚桂锋”文章称，“这与国内外颠覆势力的愿望和利益是根本对立的，作为代言人的任志强跳出来任性反党也就不足为怪了。” 在依法治国的今天，不应乱扣“国外颠覆势力代言人”这样的大帽子，否则岂非文革遗风？2016年是文革爆发50周年，历史殷鉴必须铭记<br><img src="http://ww4.sinaimg.cn/large/709b1d0egw1f1gb6nu69dj2089064glp.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3947884372003144" target="freeweibo-mirror">SPAM 【请用选票，换取尊严】 您的转发，十分重要！</a>
 </h2>
 <p>SPAM 【请用选票，换取尊严】 您的转发，十分重要！<br><br>RE: 【请用选票，换取尊严】 ――2016、2017，县乡人大代表换届选举年。<br><img src="http://ww4.sinaimg.cn/large/00653bYAgw1f1fgngvts3j30gg1fm4qp.jpg"></p>
@@ -133,12 +139,6 @@
 <p>集美大桥石碑断裂...好恐怖好不吉利[拜拜] http://t.cn/RGOtYzO</p>
 <p>
 	<small> ============== 8小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3947776432074074" target="freeweibo-mirror">真的开始劝进了。你们还能再无耻点儿吗？</a>
-</h2>
-<p>真的开始劝进了。你们还能再无耻点儿吗？<br><img src="http://ww4.sinaimg.cn/large/4b6f6353jw1f1fwyy7vhdj20m80ak0tf.jpg"></p>
-<p>
-	<small> ============== 10小时前</small>
 </p>
 <table>
     <tr>
