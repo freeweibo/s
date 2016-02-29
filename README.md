@@ -36,7 +36,7 @@
 </h2>
 <p>SPAM [赞][哈哈]//@西城老罗:好胃口啊小芮<br><br>RE: 懒得说话，看图。<br><img src="http://ww2.sinaimg.cn/large/006iSYgSgw1f1gcj2u3a1j30hn0qognw.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3947915246383450" target="freeweibo-mirror">//@崔小平律师://@麦田守望翁2:总有明白人。//@刘胜…</a>
 </h2>
@@ -66,7 +66,7 @@
 </h2>
 <p>//@cateodata: 组长同意了，咋地？[笑cry]<br><br>RE: 【批评任志强不能无限“上纲上线”】光明网署名“戚桂锋”文章称，“这与国内外颠覆势力的愿望和利益是根本对立的，作为代言人的任志强跳出来任性反党也就不足为怪了。” 在依法治国的今天，不应乱扣“国外颠覆势力代言人”这样的大帽子，否则岂非文革遗风？2016年是文革爆发50周年，历史殷鉴必须铭记<br><img src="http://ww4.sinaimg.cn/large/709b1d0egw1f1gb6nu69dj2089064glp.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3947907964699748" target="freeweibo-mirror">要完，能走快走 //@酱块小脑型:我想逃，没钱//@陈茂来-…</a>
 </h2>
@@ -120,13 +120,13 @@
 </h2>
 <p>SPAM 好扎眼的签名</p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3947864234952566" target="freeweibo-mirror">SPAM 【厦门“集美大桥”题字石碑突然断裂】2016年2月…</a>
 </h2>
 <p>SPAM 【厦门“集美大桥”题字石碑突然断裂】2016年2月29日早上，厦门多位市民报料，集美大桥出岛方向刚过下穿隧道出口不远处的写有“集美大桥”的石牌断裂，半块多的石牌砸落在草地上，压坏了栏杆，占用右侧半个车道车。受此影响，早高峰出岛方向交通发生滞留。http://t.cn/RGOI5hi<br><img src="http://ww4.sinaimg.cn/large/61e04755jw1f1g71ngajjj20eo0i3tbo.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3947863296029550" target="freeweibo-mirror">坚决拥护！ http://t.cn/R2W6Yvd</a>
 </h2>
