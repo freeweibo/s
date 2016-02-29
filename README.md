@@ -114,7 +114,7 @@
 </h2>
 <p>SPAM 工作赚钱也别忘记爱惜自己的身体。咱也想祛痘</p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3947607384282260" target="freeweibo-mirror">嫖娼衫、造谣衫、神棍衫、汉奸衫、火葬场衫……，多衫一体，每件…</a>
 </h2>
@@ -126,7 +126,7 @@
 </h2>
 <p>谁的题字？貌似防毛体。 //@一品泥人://@喷嚏网铂程: //@胡戈: 转发微博   http://t.cn/RG08ayJ</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3947602871430268" target="freeweibo-mirror">//@在打盹: //@围观倒车-://@刚刚路过03:有权就…</a>
 </h2>
