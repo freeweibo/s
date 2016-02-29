@@ -86,6 +86,18 @@
 <p>
 	<small> ============== 5小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3947807780250103" target="freeweibo-mirror">集美大桥题词碑断裂</a>
+</h2>
+<p>集美大桥题词碑断裂<br><img src="http://ww3.sinaimg.cn/large/6d0b6b33jw1f1g0jbz9k8j20go0m8dhi.jpg"></p>
+<p>
+	<small> ============== 5小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3947805682848085" target="freeweibo-mirror">集美大桥石碑断裂...好恐怖好不吉利[拜拜] http://…</a>
+</h2>
+<p>集美大桥石碑断裂...好恐怖好不吉利[拜拜] http://t.cn/RGOtYzO</p>
+<p>
+	<small> ============== 5小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3947776432074074" target="freeweibo-mirror">真的开始劝进了。你们还能再无耻点儿吗？</a>
 </h2>
 <p>真的开始劝进了。你们还能再无耻点儿吗？<br><img src="http://ww4.sinaimg.cn/large/4b6f6353jw1f1fwyy7vhdj20m80ak0tf.jpg"></p>
@@ -125,18 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3947643551761633" target="freeweibo-mirror">[晕] //@澎湃新闻:【香港“失踪”书店老板桂敏海涉嫌非法…</a>
 </h2>
 <p>[晕] //@澎湃新闻:【香港“失踪”书店老板桂敏海涉嫌非法经营罪被解回再审】近日，相关办案机关透露，桂敏海为牟取非法利益，在明知书籍未取得我国新闻出版部门发行许可的情况下，躲避海关检查，通过邮寄方式，大肆向境内销售共向内地380名购书人邮寄书籍4000余册。http://t.cn/RG0skwW</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3947643463827392" target="freeweibo-mirror">中华人民共和国宪法第三十五条：　中华人民共和国公民有言论、出…</a>
-</h2>
-<p>中华人民共和国宪法第三十五条：　中华人民共和国公民有言论、出版、集会、结社、游行、示威的自由。作为中华人民共和国公民，我，王瑛，声援公民任志强，反对公然侵犯公民权利！</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3947639911242030" target="freeweibo-mirror">//@陶景洲:马云同意这微博的内容吗？</a>
-</h2>
-<p>//@陶景洲:马云同意这微博的内容吗？<br><br>RE: 看孙海英、任志强这两天相继被封杀。无力得太久，已经感到麻木了。在这个国家，有谁敢说自己有安全感吗？权倾朝野的主席，他就有吗？若真像鼓吹的那样自信，为何要将批评的声音逮捕与封杀？问一问马云，他有吗？政府若要合法掠夺他的财产、瓜分他的股权，他敢不给吗？我们，不过是静候开水灌注的青蛙。</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
