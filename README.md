@@ -84,7 +84,7 @@
 </h2>
 <p>//@周泽说话:嗯，改成这样吧。——历史学者问责首席大法官妄议“狗娘养的”侵权案。 //@律者自律也:这个题目是谁拟定的？该历史学者的话语权都在宪法和法律允许的范围之内，怎么就成了炮轰。(百度词条:炮轰-指有时对事件或者个人进行语言攻击，原引自战争。)<br><br>RE: 历史学者炮轰首席大法官！<br><img src="http://ww4.sinaimg.cn/large/ea664d14jw1f1gcf99rbtj20cn6e8npd.jpg"></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3947930974907590" target="freeweibo-mirror">SPAM //@鈇帅湼槃3://@浮沉一梦43479: 过傢…</a>
 </h2>
@@ -120,13 +120,13 @@
 </h2>
 <p>懒得说话，看图。<br><img src="http://ww2.sinaimg.cn/large/006iSYgSgw1f1gcj2u3a1j30hn0qognw.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3947911282822205" target="freeweibo-mirror">回复@指尖上的会计:自觉抵制文革是每个国人的良知和底线。中国…</a>
 </h2>
 <p>回复@指尖上的会计:自觉抵制文革是每个国人的良知和底线。中国承受不起再来一次文革，哪怕仅仅是对文革的恐惧……//@指尖上的会计:难得现在还有人这么说。<br><br>RE: 【批评任志强不能无限“上纲上线”】光明网署名“戚桂锋”文章称，“这与国内外颠覆势力的愿望和利益是根本对立的，作为代言人的任志强跳出来任性反党也就不足为怪了。” 在依法治国的今天，不应乱扣“国外颠覆势力代言人”这样的大帽子，否则岂非文革遗风？2016年是文革爆发50周年，历史殷鉴必须铭记<br><img src="http://ww4.sinaimg.cn/large/709b1d0egw1f1gb6nu69dj2089064glp.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3947910972489889" target="freeweibo-mirror">历史学者炮轰首席大法官！</a>
 </h2>
