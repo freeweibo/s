@@ -26,9 +26,21 @@
 <p>
 	<small> ============== 1小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3947913925738110" target="freeweibo-mirror">SPAM 世上最好的保鲜就是永恒…把她带在离心最近的位置 从…</a>
+</h2>
+<p>SPAM 世上最好的保鲜就是永恒…把她带在离心最近的位置 从此以后心跳多久爱就有多久[鲜花]只属于你们[爱你]喜欢就来吧</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3947911282822205" target="freeweibo-mirror">回复@指尖上的会计:自觉抵制文革是每个国人的良知和底线。中国…</a>
 </h2>
 <p>回复@指尖上的会计:自觉抵制文革是每个国人的良知和底线。中国承受不起再来一次文革，哪怕仅仅是对文革的恐惧……//@指尖上的会计:难得现在还有人这么说。<br><br>RE: 【批评任志强不能无限“上纲上线”】光明网署名“戚桂锋”文章称，“这与国内外颠覆势力的愿望和利益是根本对立的，作为代言人的任志强跳出来任性反党也就不足为怪了。” 在依法治国的今天，不应乱扣“国外颠覆势力代言人”这样的大帽子，否则岂非文革遗风？2016年是文革爆发50周年，历史殷鉴必须铭记<br><img src="http://ww4.sinaimg.cn/large/709b1d0egw1f1gb6nu69dj2089064glp.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3947908779244052" target="freeweibo-mirror">//@cateodata: 组长同意了，咋地？[笑cry]</a>
+</h2>
+<p>//@cateodata: 组长同意了，咋地？[笑cry]<br><br>RE: 【批评任志强不能无限“上纲上线”】光明网署名“戚桂锋”文章称，“这与国内外颠覆势力的愿望和利益是根本对立的，作为代言人的任志强跳出来任性反党也就不足为怪了。” 在依法治国的今天，不应乱扣“国外颠覆势力代言人”这样的大帽子，否则岂非文革遗风？2016年是文革爆发50周年，历史殷鉴必须铭记<br><img src="http://ww4.sinaimg.cn/large/709b1d0egw1f1gb6nu69dj2089064glp.jpg"></p>
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
@@ -66,7 +78,7 @@
 </h2>
 <p>【初步判断为自然断裂】集美大桥为连接厦门岛与集美半岛的跨海大桥，全长8.43公里，始建于2006年12月20日，2008年07月01日建成通车。对于石碑断裂，当地媒体报道称，今日大桥所在风力2级，不足以断石碑。亦已排除人为交通事故所为。初步判断属于自然断裂。 </p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3947864499062681" target="freeweibo-mirror">SPAM 好扎眼的签名</a>
 </h2>
@@ -96,7 +108,7 @@
 </h2>
 <p>不说了，自己看吧http://t.cn/RGO6KJH</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3947850734349142" target="freeweibo-mirror">//@埃玛Emma:向后倒，再倒，对，倒，倒，倒～ [霹雳]…</a>
 </h2>
@@ -114,29 +126,17 @@
 </h2>
 <p>SPAM 2.0？ //@風雨顺德人:记得那一次断桥是股灾多少点0？@朱一卿<br><br>RE: 集美大桥题词碑断裂<br><img src="http://ww3.sinaimg.cn/large/6d0b6b33jw1f1g0jbz9k8j20go0m8dhi.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3947837626986757" target="freeweibo-mirror">经济形势越是严峻，越要加强改革开放的力度，安抚并吸引境内外的…</a>
 </h2>
 <p>经济形势越是严峻，越要加强改革开放的力度，安抚并吸引境内外的投资者，可是现在，却重提意识形态的斗争，把任志强打成＂资本翻天派＂，这和救巿的努力不是南辕北辙嘛？<br><img src="http://ww4.sinaimg.cn/large/9154fba0jw1f1g3zzucnoj20hs0vkq7n.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3947837240238036" target="freeweibo-mirror">SPAM //@山高路远N: //@暴走恭亲王:建议世袭</a>
 </h2>
 <p>SPAM //@山高路远N: //@暴走恭亲王:建议世袭<br><br>RE: 好啊好啊好啊[鼓掌][鼓掌]<br><img src="http://ww1.sinaimg.cn/large/837d0ccagw1f1fimdl6kfj20mv0avjsy.jpg"></p>
-<p>
-	<small> ============== 6小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3947836468657659" target="freeweibo-mirror">SPAM 转发微博 http://t.cn/RGOxNlv</a>
-</h2>
-<p>SPAM 转发微博 http://t.cn/RGOxNlv</p>
-<p>
-	<small> ============== 7小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3947829858448776" target="freeweibo-mirror">SPAM 小李要是拿了#奥斯卡#影帝……我就从转发里抽一支T…</a>
-</h2>
-<p>SPAM 小李要是拿了#奥斯卡#影帝……我就从转发里抽一支TOM FORD LIP&BOYS的Leonardo哈哈哈哈哈哈哈哈哈（跟风<br><img src="http://ww4.sinaimg.cn/large/6851778fjw1f1g31ohekcj20c80icaab.jpg"></p>
 <p>
 	<small> ============== 7小时前</small>
 </p>
