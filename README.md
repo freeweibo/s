@@ -72,13 +72,13 @@
 </h2>
 <p>SPAM 很好的鞋子店家哦！[心]值得推荐！</p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3947952461985095" target="freeweibo-mirror">第一次是悲剧……</a>
 </h2>
 <p>第一次是悲剧……<br><br>RE: 历史关头。<br><img src="http://ww4.sinaimg.cn/large/4db8e9a3gw1f1gb2763t8j20fe0m5tdm.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3947934892522050" target="freeweibo-mirror">//@周泽说话:嗯，改成这样吧。——历史学者问责首席大法官妄…</a>
 </h2>
