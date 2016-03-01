@@ -108,7 +108,7 @@
 </h2>
 <p>//@腾晓东:老雷讲得很理性：你们折腾吧，反正又不关西方P事。[酷]<br><br>RE: 外国人谈任志强事件。。[吃惊]#最抽疯的视频#   http://t.cn/RGWswTg .</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3948364548295259" target="freeweibo-mirror">SPAM 小心！//@子午侠士:[笑cry]//@良知在神州…</a>
 </h2>
