@@ -36,13 +36,13 @@
 </h2>
 <p>SPAM 莫须有。//@陶景洲:影射罪要出台了吗？<br><br>RE: 我认为这样的处分过头了。<br><img src="http://ww3.sinaimg.cn/large/627cf045gw1f1hkgcqiu0j20i20gn403.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3948312736349848" target="freeweibo-mirror">SPAM 影射罪要出台了吗？</a>
 </h2>
 <p>SPAM 影射罪要出台了吗？<br><br>RE: 我认为这样的处分过头了。<br><img src="http://ww3.sinaimg.cn/large/627cf045gw1f1hkgcqiu0j20i20gn403.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3948311960247706" target="freeweibo-mirror">你爱说谁说谁去，有本事最好当面说，但是别拿脏话污了我的评论线…</a>
 </h2>
@@ -62,9 +62,21 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3948310861822075" target="freeweibo-mirror">SPAM //@潘海天:厉害了 //@胡淑芬://@潘朵拉:…</a>
+</h2>
+<p>SPAM //@潘海天:厉害了 //@胡淑芬://@潘朵拉://@育才老殷:真的魂归大海啦？一语成谶啦？ //@东东td36://@切吧日文打卤面:这不就是文字狱么？<br><br>RE: 我认为这样的处分过头了。<br><img src="http://ww3.sinaimg.cn/large/627cf045gw1f1hkgcqiu0j20i20gn403.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3948308960916368" target="freeweibo-mirror">SPAM 玻璃心啊，某党宣。//@陈业文新大都://@程中柳…</a>
 </h2>
 <p>SPAM 玻璃心啊，某党宣。//@陈业文新大都://@程中柳: //@松本纯一郎: 防不胜防，跟文字狱差不多了[衰]<br><br>RE: 我认为这样的处分过头了。<br><img src="http://ww3.sinaimg.cn/large/627cf045gw1f1hkgcqiu0j20i20gn403.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3948307379982483" target="freeweibo-mirror">SPAM //@程中柳: //@松本纯一郎: 防不胜防，跟文…</a>
+</h2>
+<p>SPAM //@程中柳: //@松本纯一郎: 防不胜防，跟文字狱差不多了[衰]<br><br>RE: 我认为这样的处分过头了。<br><img src="http://ww3.sinaimg.cn/large/627cf045gw1f1hkgcqiu0j20i20gn403.jpg"></p>
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
@@ -98,47 +110,35 @@
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3948290829160370" target="freeweibo-mirror">問題是⋯⋯雨也好，露也罷………没那麽多啊………[汗][汗][…</a>
+</h2>
+<p>問題是⋯⋯雨也好，露也罷………没那麽多啊………[汗][汗][汗][汗] //@突然就想换个名儿:雨露均沾…咋就不懂呢！[生病] //@朱彥碩:呵呵呵⋯⋯⋯⋯[偷笑][偷笑][偷笑][偷笑][偷笑]<br><br>RE: 【法院副院长同床睡三美女   只玩两个晾下一个遭举报】青岛市中级法院副院长刘青峰，因职务犯罪被判刑14年。他的案发，是因为他同时带三个美女律师一起睡觉，而只与其中两名嘿咻；由于激情尖叫，69式淫荡口咬，被另一个女律师嫉妒偷拍。随后该女律师直接向省纪委和省检越级举报，由此引发刘青锋落马。<br><img src="http://ww4.sinaimg.cn/large/e0fff2a7gw1f1gf72tm4lj20b407u3zv.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3948287713214115" target="freeweibo-mirror">雨露均沾…咋就不懂呢！[生病] //@朱彥碩:呵呵呵⋯⋯⋯⋯…</a>
+</h2>
+<p>雨露均沾…咋就不懂呢！[生病] //@朱彥碩:呵呵呵⋯⋯⋯⋯[偷笑][偷笑][偷笑][偷笑][偷笑]<br><br>RE: 【法院副院长同床睡三美女   只玩两个晾下一个遭举报】青岛市中级法院副院长刘青峰，因职务犯罪被判刑14年。他的案发，是因为他同时带三个美女律师一起睡觉，而只与其中两名嘿咻；由于激情尖叫，69式淫荡口咬，被另一个女律师嫉妒偷拍。随后该女律师直接向省纪委和省检越级举报，由此引发刘青锋落马。<br><img src="http://ww4.sinaimg.cn/large/e0fff2a7gw1f1gf72tm4lj20b407u3zv.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3948281563727682" target="freeweibo-mirror">SPAM CMYK色谱！</a>
 </h2>
 <p>SPAM CMYK色谱！</p>
 <p>
 	<small> ============== 4小时前</small>
 </p><h2>
-	<a href="https://freeweibo.com/weibo/3948276765594709" target="freeweibo-mirror">SPAM //@_兽医_:YES![hold住]变态辣椒[亲…</a>
+	<a href="https://freeweibo.com/weibo/3948280624388811" target="freeweibo-mirror">呵呵呵⋯⋯⋯⋯[偷笑][偷笑][偷笑][偷笑][偷笑]</a>
 </h2>
-<p>SPAM //@_兽医_:YES![hold住]变态辣椒[亲一口][亲一口]</p>
+<p>呵呵呵⋯⋯⋯⋯[偷笑][偷笑][偷笑][偷笑][偷笑]<br><br>RE: 【法院副院长同床睡三美女   只玩两个晾下一个遭举报】青岛市中级法院副院长刘青峰，因职务犯罪被判刑14年。他的案发，是因为他同时带三个美女律师一起睡觉，而只与其中两名嘿咻；由于激情尖叫，69式淫荡口咬，被另一个女律师嫉妒偷拍。随后该女律师直接向省纪委和省检越级举报，由此引发刘青锋落马。<br><img src="http://ww4.sinaimg.cn/large/e0fff2a7gw1f1gf72tm4lj20b407u3zv.jpg"></p>
 <p>
 	<small> ============== 4小时前</small>
 </p><h2>
-	<a href="https://freeweibo.com/weibo/3948245379810957" target="freeweibo-mirror">SPAM 这根大黑DICK舔准了，博主就发达了。</a>
+	<a href="https://freeweibo.com/weibo/3948278397346525" target="freeweibo-mirror">//@芳莎贝拉:转发微博</a>
 </h2>
-<p>SPAM 这根大黑DICK舔准了，博主就发达了。<br><br>RE: 【欲成中兴盛世，非20年不可】玄烨、弘历在位121年，开康乾盛世；刘彻54年，开汉武盛世；李世民23年，开贞观之治；李隆基44年，开开元盛世；刘秀33年，开光武中兴；赵祯41年，开仁宗之治。柴荣、雍正、李纯、朱棣、朱瞻基才略不输诸大帝，而天不假年，中兴大业半途而废，可叹！可惜！<br><img src="http://ww2.sinaimg.cn/large/66b822e6gw1f1ga738ohvj20dw0aj3zm.jpg"></p>
+<p>//@芳莎贝拉:转发微博<br><br>RE: 【法院副院长同床睡三美女   只玩两个晾下一个遭举报】青岛市中级法院副院长刘青峰，因职务犯罪被判刑14年。他的案发，是因为他同时带三个美女律师一起睡觉，而只与其中两名嘿咻；由于激情尖叫，69式淫荡口咬，被另一个女律师嫉妒偷拍。随后该女律师直接向省纪委和省检越级举报，由此引发刘青锋落马。<br><img src="http://ww4.sinaimg.cn/large/e0fff2a7gw1f1gf72tm4lj20b407u3zv.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3948241965703453" target="freeweibo-mirror">SPAM [作揖]//@渐行居士：猴年马月，祥瑞屡现：珠江瑞…</a>
-</h2>
-<p>SPAM [作揖]//@渐行居士：猴年马月，祥瑞屡现：珠江瑞雪、帝都霾消、油价地板、猴市涨停。寰宇颂扬一带一路，神州沸腾万民万岁，前朝陈腐已刮骨、新君欣荣正养颜。非天命真龙临凡，焉得如此？ 昔润王平公，略输风采；民叔涛哥，还欠重招；一代英豪，仙尊石座，不牧黎元枉天骄。问若鼎几何，还看今朝<br><br>RE: 【欲成中兴盛世，非20年不可】玄烨、弘历在位121年，开康乾盛世；刘彻54年，开汉武盛世；李世民23年，开贞观之治；李隆基44年，开开元盛世；刘秀33年，开光武中兴；赵祯41年，开仁宗之治。柴荣、雍正、李纯、朱棣、朱瞻基才略不输诸大帝，而天不假年，中兴大业半途而废，可叹！可惜！<br><img src="http://ww2.sinaimg.cn/large/66b822e6gw1f1ga738ohvj20dw0aj3zm.jpg"></p>
-<p>
-	<small> ============== 6小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3948235569219299" target="freeweibo-mirror">同意开除党籍！//@陈业文新大都: 毫无疑问，会成为历史事件…</a>
-</h2>
-<p>同意开除党籍！//@陈业文新大都: 毫无疑问，会成为历史事件。据说大炮正在写检查呢。[偷笑]<br><br>RE: 【分析：任志强“违纪”的可能结果】时评人陈杰人分析，西城区委下发的通知标题已经没有“同志”的称呼，按照中共党内惯例，估计任志强被开除党籍的可能性很大。西城区委表态要处分任志强，是中共高层的态度，而不只是官方媒体对任志强围攻。http://t.cn/RGWHt0B<br><img src="http://ww4.sinaimg.cn/large/6298156bgw1f1hc1m52u8j20yg0kags2.jpg"></p>
-<p>
-	<small> ============== 7小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3948234952607558" target="freeweibo-mirror">毫无疑问，会成为历史事件。据说大炮正在写检查呢。[偷笑]</a>
-</h2>
-<p>毫无疑问，会成为历史事件。据说大炮正在写检查呢。[偷笑]<br><br>RE: 【分析：任志强“违纪”的可能结果】时评人陈杰人分析，西城区委下发的通知标题已经没有“同志”的称呼，按照中共党内惯例，估计任志强被开除党籍的可能性很大。西城区委表态要处分任志强，是中共高层的态度，而不只是官方媒体对任志强围攻。http://t.cn/RGWHt0B<br><img src="http://ww4.sinaimg.cn/large/6298156bgw1f1hc1m52u8j20yg0kags2.jpg"></p>
-<p>
-	<small> ============== 7小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3948234508112197" target="freeweibo-mirror">SPAM #移民观察# 理性维权，关注诉求，祈祷平安！</a>
-</h2>
-<p>SPAM #移民观察# 理性维权，关注诉求，祈祷平安！<br><br>RE: 一戴着鸭舌帽的中年男子爬上6、7米高的孙中山雕像基座，腰上有扩音喇叭，手里拿着汽油疑似物，谈判专家来了，一白布黑子写的是：建邺区法院纵然建华开发违法违纪……云云<br><img src="http://ww1.sinaimg.cn/large/7cc1f9a1jw1f1hbst8ji6j20go0l243m.jpg"></p>
-<p>
-	<small> ============== 7小时前</small>
+	<small> ============== 4小时前</small>
 </p>
 <table>
     <tr>
