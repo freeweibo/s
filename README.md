@@ -24,13 +24,13 @@
 </h2>
 <p>同意开除党籍！//@陈业文新大都: 毫无疑问，会成为历史事件。据说大炮正在写检查呢。[偷笑]<br><br>RE: 【分析：任志强“违纪”的可能结果】时评人陈杰人分析，西城区委下发的通知标题已经没有“同志”的称呼，按照中共党内惯例，估计任志强被开除党籍的可能性很大。西城区委表态要处分任志强，是中共高层的态度，而不只是官方媒体对任志强围攻。http://t.cn/RGWHt0B<br><img src="http://ww4.sinaimg.cn/large/6298156bgw1f1hc1m52u8j20yg0kags2.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3948234952607558" target="freeweibo-mirror">毫无疑问，会成为历史事件。据说大炮正在写检查呢。[偷笑]</a>
 </h2>
 <p>毫无疑问，会成为历史事件。据说大炮正在写检查呢。[偷笑]<br><br>RE: 【分析：任志强“违纪”的可能结果】时评人陈杰人分析，西城区委下发的通知标题已经没有“同志”的称呼，按照中共党内惯例，估计任志强被开除党籍的可能性很大。西城区委表态要处分任志强，是中共高层的态度，而不只是官方媒体对任志强围攻。http://t.cn/RGWHt0B<br><img src="http://ww4.sinaimg.cn/large/6298156bgw1f1hc1m52u8j20yg0kags2.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3948228250977911" target="freeweibo-mirror">那里违法了？至今不懂。 //@Roses-s:公然践踏人权！…</a>
 </h2>
@@ -54,7 +54,7 @@
 </h2>
 <p>哈哈，挣钱了！<br><br>RE: #表扬稿紧急下架#刚才获知，四川省宜宾市宣传部门要求：当地表扬《任志强是8000多万党员的耻辱！》一文作者毛开云的稿件，一律下架。查看宜宾日报金沙网微信公众号的文章《宜宾一个帅气的男记者被中央网安点名表扬，太牛了！》，果然不见了。<br><img src="http://ww4.sinaimg.cn/large/de7c883djw1f1h6h283vvj20ci0hzab7.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3948202476443082" target="freeweibo-mirror">喔……</a>
 </h2>
@@ -96,19 +96,19 @@
 </h2>
 <p>//@笑谈国是:真的是时候该问问吴市场、厉股份等资改派大佬们，为什么改了近四十年，社会矛盾到了临界点，是什么导致社会矛盾如此尖锐和复杂？<br><br>RE: 吴敬琏：社会矛盾已经到了临界点，必须重启改革！微评：吴敬琏是新自由主义代表人物，他讲的重启改革，实质上是说习总阻碍了私有化改革进程，不搞私有化，就是反改革。 而且他在煽动所谓的政治“改革”！<br><img src="http://ww4.sinaimg.cn/large/b6ddfe6djw1f1h5avo056j20hs0m3wg9.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3948189939844524" target="freeweibo-mirror">//@为上976:茅厉们之势不死，中国无宁。</a>
 </h2>
 <p>//@为上976:茅厉们之势不死，中国无宁。<br><br>RE: 吴敬琏：社会矛盾已经到了临界点，必须重启改革！微评：吴敬琏是新自由主义代表人物，他讲的重启改革，实质上是说习总阻碍了私有化改革进程，不搞私有化，就是反改革。 而且他在煽动所谓的政治“改革”！<br><img src="http://ww4.sinaimg.cn/large/b6ddfe6djw1f1h5avo056j20hs0m3wg9.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3948189621131113" target="freeweibo-mirror">任志强的事情，是一群谄媚之徒在做。任志强自己说忠于共产党的，…</a>
 </h2>
 <p>任志强的事情，是一群谄媚之徒在做。任志强自己说忠于共产党的，是肺腑之言。任志强说了一个非常基本的常识，如果从共产党长远利益来看，要听到反对声音。反党和护党这样一种话语，是一些人的谄媚。在中国... http://t.cn/RGWiQDM</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3948182801739535" target="freeweibo-mirror">四川省宜宾市宣传部门要求：当地表扬《任志强是8000多万党员…</a>
 </h2>
