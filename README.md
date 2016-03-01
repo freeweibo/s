@@ -36,19 +36,19 @@
 </h2>
 <p>同意开除党籍！//@陈业文新大都: 毫无疑问，会成为历史事件。据说大炮正在写检查呢。[偷笑]<br><br>RE: 【分析：任志强“违纪”的可能结果】时评人陈杰人分析，西城区委下发的通知标题已经没有“同志”的称呼，按照中共党内惯例，估计任志强被开除党籍的可能性很大。西城区委表态要处分任志强，是中共高层的态度，而不只是官方媒体对任志强围攻。http://t.cn/RGWHt0B<br><img src="http://ww4.sinaimg.cn/large/6298156bgw1f1hc1m52u8j20yg0kags2.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3948234952607558" target="freeweibo-mirror">毫无疑问，会成为历史事件。据说大炮正在写检查呢。[偷笑]</a>
 </h2>
 <p>毫无疑问，会成为历史事件。据说大炮正在写检查呢。[偷笑]<br><br>RE: 【分析：任志强“违纪”的可能结果】时评人陈杰人分析，西城区委下发的通知标题已经没有“同志”的称呼，按照中共党内惯例，估计任志强被开除党籍的可能性很大。西城区委表态要处分任志强，是中共高层的态度，而不只是官方媒体对任志强围攻。http://t.cn/RGWHt0B<br><img src="http://ww4.sinaimg.cn/large/6298156bgw1f1hc1m52u8j20yg0kags2.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3948234508112197" target="freeweibo-mirror">SPAM #移民观察# 理性维权，关注诉求，祈祷平安！</a>
 </h2>
 <p>SPAM #移民观察# 理性维权，关注诉求，祈祷平安！<br><br>RE: 一戴着鸭舌帽的中年男子爬上6、7米高的孙中山雕像基座，腰上有扩音喇叭，手里拿着汽油疑似物，谈判专家来了，一白布黑子写的是：建邺区法院纵然建华开发违法违纪……云云<br><img src="http://ww1.sinaimg.cn/large/7cc1f9a1jw1f1hbst8ji6j20go0l243m.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3948233594709093" target="freeweibo-mirror">//@早报网:对于广大中共党员来说，任志强被严肃处理，也是对…</a>
 </h2>
@@ -98,6 +98,12 @@
 <p>
 	<small> ============== 4小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3948217886613395" target="freeweibo-mirror">不知道什么情况@南京正在发生 @南京发布</a>
+</h2>
+<p>不知道什么情况@南京正在发生 @南京发布<br><img src="http://ww4.sinaimg.cn/large/69c4bcb1gw1f1hbnpcnkej20qo0qogu6.jpg"></p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3948217232198923" target="freeweibo-mirror">//@火车司机gg-4:把证据撤下吧//@曾家山-居士03:…</a>
 </h2>
 <p>//@火车司机gg-4:把证据撤下吧//@曾家山-居士03:情节有变？//@火车司机gg-4://@jhw333://@茧人2015://@花样男子V2://@打狗仔_124:该表扬啊，为什么下架？//@阿里公鸡:转发微博<br><br>RE: 四川省宜宾市宣传部门要求：当地表扬《任志强是8000多万党员的耻辱！》一文作者毛开云的稿件，一律下架。<br><img src="http://ww2.sinaimg.cn/large/7da9a897gw1f1h7n5c76jj20gz09xabd.jpg"></p>
@@ -108,7 +114,7 @@
 </h2>
 <p>哈哈，挣钱了！<br><br>RE: #表扬稿紧急下架#刚才获知，四川省宜宾市宣传部门要求：当地表扬《任志强是8000多万党员的耻辱！》一文作者毛开云的稿件，一律下架。查看宜宾日报金沙网微信公众号的文章《宜宾一个帅气的男记者被中央网安点名表扬，太牛了！》，果然不见了。<br><img src="http://ww4.sinaimg.cn/large/de7c883djw1f1h6h283vvj20ci0hzab7.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3948202476443082" target="freeweibo-mirror">喔……</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3948195690179504" target="freeweibo-mirror">//@静娅_: 这样搞，从民众到官员，整个思想都乱套了。文革…</a>
 </h2>
 <p>//@静娅_: 这样搞，从民众到官员，整个思想都乱套了。文革毕竟是已经被历史也被党否定了的东西，让其死灰复燃，到时候不是党领导下步调一致，而是思想混乱之下不知所为不知如何为。//@上海杰睿老爷3: 且慢，再看//@静娅_:呵呵，就知道不会敢这样搞下去。//@大师兄微-博: //@上海杰睿老爷3: //@赖斯洛夫<br><br>RE: #表扬稿紧急下架#刚才获知，四川省宜宾市宣传部门要求：当地表扬《任志强是8000多万党员的耻辱！》一文作者毛开云的稿件，一律下架。查看宜宾日报金沙网微信公众号的文章《宜宾一个帅气的男记者被中央网安点名表扬，太牛了！》，果然不见了。<br><img src="http://ww4.sinaimg.cn/large/de7c883djw1f1h6h283vvj20ci0hzab7.jpg"></p>
-<p>
-	<small> ============== 5小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3948192641068354" target="freeweibo-mirror">[酷]</a>
-</h2>
-<p>[酷]</p>
 <p>
 	<small> ============== 5小时前</small>
 </p>
