@@ -96,7 +96,7 @@
 </h2>
 <p>四川省宜宾市宣传部门要求：当地表扬《任志强是8000多万党员的耻辱！》一文作者毛开云的稿件，一律下架。<br><img src="http://ww2.sinaimg.cn/large/7da9a897gw1f1h7n5c76jj20gz09xabd.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3948178816298861" target="freeweibo-mirror">好人好事就应该表扬啊，怕什么呢？//@邵明波:教书12年，又…</a>
 </h2>
@@ -120,7 +120,7 @@
 </h2>
 <p>用屌熬汤，到哪里味道都一样！……………… 温州拆迁办主人的原话：有一家拆迁户，把习*  ~大……大*  的画像贴满了墙壁，里里外外几百张画像，他们家里人拿着手机拍摄我们，现场传照片传录像给朋友。我们拆迁队傻了眼，没人敢动习~*大*~大*的画像，没人敢去强拆他家墙。结果多赔了75万元。<br><img src="http://ww4.sinaimg.cn/large/006nfRuLjw1f1h29x9o0nj30cs0h1wev.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3948116372029881" target="freeweibo-mirror">SPAM [太阳] //@怪求氦气:富贵就能淫、贫贱不能移[…</a>
 </h2>
