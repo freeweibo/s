@@ -36,19 +36,19 @@
 </h2>
 <p>同意开除党籍！//@陈业文新大都: 毫无疑问，会成为历史事件。据说大炮正在写检查呢。[偷笑]<br><br>RE: 【分析：任志强“违纪”的可能结果】时评人陈杰人分析，西城区委下发的通知标题已经没有“同志”的称呼，按照中共党内惯例，估计任志强被开除党籍的可能性很大。西城区委表态要处分任志强，是中共高层的态度，而不只是官方媒体对任志强围攻。http://t.cn/RGWHt0B<br><img src="http://ww4.sinaimg.cn/large/6298156bgw1f1hc1m52u8j20yg0kags2.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3948234952607558" target="freeweibo-mirror">毫无疑问，会成为历史事件。据说大炮正在写检查呢。[偷笑]</a>
 </h2>
 <p>毫无疑问，会成为历史事件。据说大炮正在写检查呢。[偷笑]<br><br>RE: 【分析：任志强“违纪”的可能结果】时评人陈杰人分析，西城区委下发的通知标题已经没有“同志”的称呼，按照中共党内惯例，估计任志强被开除党籍的可能性很大。西城区委表态要处分任志强，是中共高层的态度，而不只是官方媒体对任志强围攻。http://t.cn/RGWHt0B<br><img src="http://ww4.sinaimg.cn/large/6298156bgw1f1hc1m52u8j20yg0kags2.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3948234508112197" target="freeweibo-mirror">SPAM #移民观察# 理性维权，关注诉求，祈祷平安！</a>
 </h2>
 <p>SPAM #移民观察# 理性维权，关注诉求，祈祷平安！<br><br>RE: 一戴着鸭舌帽的中年男子爬上6、7米高的孙中山雕像基座，腰上有扩音喇叭，手里拿着汽油疑似物，谈判专家来了，一白布黑子写的是：建邺区法院纵然建华开发违法违纪……云云<br><img src="http://ww1.sinaimg.cn/large/7cc1f9a1jw1f1hbst8ji6j20go0l243m.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3948233594709093" target="freeweibo-mirror">//@早报网:对于广大中共党员来说，任志强被严肃处理，也是对…</a>
 </h2>
@@ -120,7 +120,7 @@
 </h2>
 <p>哈哈，挣钱了！<br><br>RE: #表扬稿紧急下架#刚才获知，四川省宜宾市宣传部门要求：当地表扬《任志强是8000多万党员的耻辱！》一文作者毛开云的稿件，一律下架。查看宜宾日报金沙网微信公众号的文章《宜宾一个帅气的男记者被中央网安点名表扬，太牛了！》，果然不见了。<br><img src="http://ww4.sinaimg.cn/large/de7c883djw1f1h6h283vvj20ci0hzab7.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3948202476443082" target="freeweibo-mirror">喔……</a>
 </h2>
