@@ -54,7 +54,7 @@
 </h2>
 <p>他们明明说了假话，结果他们在文革后说自己敢于坚持说真话……//@文革老照片1966:后来呢？<br><br>RE: 历史关头。<br><img src="http://ww4.sinaimg.cn/large/4db8e9a3gw1f1gb2763t8j20fe0m5tdm.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3947961174000063" target="freeweibo-mirror">//@邝海炎://@刘军宁: 回复@西窗随笔365: 给小潘…</a>
 </h2>
