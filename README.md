@@ -74,6 +74,12 @@
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3948219019472635" target="freeweibo-mirror">一戴着鸭舌帽的中年男子爬上6、7米高的孙中山雕像基座，腰上有…</a>
+</h2>
+<p>一戴着鸭舌帽的中年男子爬上6、7米高的孙中山雕像基座，腰上有扩音喇叭，手里拿着汽油疑似物，谈判专家来了，一白布黑子写的是：建邺区法院纵然建华开发违法违纪……云云<br><img src="http://ww1.sinaimg.cn/large/7cc1f9a1jw1f1hbst8ji6j20go0l243m.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3948217232198923" target="freeweibo-mirror">//@火车司机gg-4:把证据撤下吧//@曾家山-居士03:…</a>
 </h2>
 <p>//@火车司机gg-4:把证据撤下吧//@曾家山-居士03:情节有变？//@火车司机gg-4://@jhw333://@茧人2015://@花样男子V2://@打狗仔_124:该表扬啊，为什么下架？//@阿里公鸡:转发微博<br><br>RE: 四川省宜宾市宣传部门要求：当地表扬《任志强是8000多万党员的耻辱！》一文作者毛开云的稿件，一律下架。<br><img src="http://ww2.sinaimg.cn/large/7da9a897gw1f1h7n5c76jj20gz09xabd.jpg"></p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3948189939844524" target="freeweibo-mirror">//@为上976:茅厉们之势不死，中国无宁。</a>
 </h2>
 <p>//@为上976:茅厉们之势不死，中国无宁。<br><br>RE: 吴敬琏：社会矛盾已经到了临界点，必须重启改革！微评：吴敬琏是新自由主义代表人物，他讲的重启改革，实质上是说习总阻碍了私有化改革进程，不搞私有化，就是反改革。 而且他在煽动所谓的政治“改革”！<br><img src="http://ww4.sinaimg.cn/large/b6ddfe6djw1f1h5avo056j20hs0m3wg9.jpg"></p>
-<p>
-	<small> ============== 5小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3948189621131113" target="freeweibo-mirror">任志强的事情，是一群谄媚之徒在做。任志强自己说忠于共产党的，…</a>
-</h2>
-<p>任志强的事情，是一群谄媚之徒在做。任志强自己说忠于共产党的，是肺腑之言。任志强说了一个非常基本的常识，如果从共产党长远利益来看，要听到反对声音。反党和护党这样一种话语，是一些人的谄媚。在中国... http://t.cn/RGWiQDM</p>
 <p>
 	<small> ============== 5小时前</small>
 </p>
