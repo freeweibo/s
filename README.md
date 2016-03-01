@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3948192641068354" target="freeweibo-mirror">[酷]</a>
+</h2>
+<p>[酷]</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3948116372029881" target="freeweibo-mirror">SPAM [太阳] //@怪求氦气:富贵就能淫、贫贱不能移[…</a>
 </h2>
 <p>SPAM [太阳] //@怪求氦气:富贵就能淫、贫贱不能移[阴险]<br><br>RE: 一个国家奴才多不多，只要看媒体对领导赞美有多少就知道了。一个国家奴隶多不多，只要看民众遇到不公正有多少人沉默就知道了。一个国家自由不自由，只要看有多少敏感词就知道了。一个国家有没有尊严，只要看人们怎么样对待弱者就知道了。一个国家有没有未来，只要看孩子读什么书就知道了。</p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3947911282822205" target="freeweibo-mirror">回复@指尖上的会计:自觉抵制文革是每个国人的良知和底线。中国…</a>
 </h2>
 <p>回复@指尖上的会计:自觉抵制文革是每个国人的良知和底线。中国承受不起再来一次文革，哪怕仅仅是对文革的恐惧……//@指尖上的会计:难得现在还有人这么说。<br><br>RE: 【批评任志强不能无限“上纲上线”】光明网署名“戚桂锋”文章称，“这与国内外颠覆势力的愿望和利益是根本对立的，作为代言人的任志强跳出来任性反党也就不足为怪了。” 在依法治国的今天，不应乱扣“国外颠覆势力代言人”这样的大帽子，否则岂非文革遗风？2016年是文革爆发50周年，历史殷鉴必须铭记<br><img src="http://ww4.sinaimg.cn/large/709b1d0egw1f1gb6nu69dj2089064glp.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3947910972489889" target="freeweibo-mirror">历史学者炮轰首席大法官！</a>
-</h2>
-<p>历史学者炮轰首席大法官！<br><img src="http://ww4.sinaimg.cn/large/ea664d14jw1f1gcf99rbtj20cn6e8npd.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
