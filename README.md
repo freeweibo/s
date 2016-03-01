@@ -54,7 +54,7 @@
 </h2>
 <p>SPAM 玻璃心啊，某党宣。//@陈业文新大都://@程中柳: //@松本纯一郎: 防不胜防，跟文字狱差不多了[衰]<br><br>RE: 我认为这样的处分过头了。<br><img src="http://ww3.sinaimg.cn/large/627cf045gw1f1hkgcqiu0j20i20gn403.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3948305639745095" target="freeweibo-mirror">SPAM 这个是真的假的？</a>
 </h2>
@@ -62,11 +62,17 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3948294566636849" target="freeweibo-mirror">我认为这样的处分过头了。</a>
+</h2>
+<p>我认为这样的处分过头了。<br><img src="http://ww3.sinaimg.cn/large/627cf045gw1f1hkgcqiu0j20i20gn403.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3948293811999146" target="freeweibo-mirror">SPAM 都 在为小李终夺奥斯卡鼓掌喝彩，其实他早已是人生赢…</a>
 </h2>
 <p>SPAM 都 在为小李终夺奥斯卡鼓掌喝彩，其实他早已是人生赢家~这位维密天使背后的男人，20年集邮56枚超模女友，下面来细数这些绝世大美女和小李的情史，看完之后觉得#莱昂纳多#的撩妹史比冲奥精彩100倍！[酷]<br><img src="http://ww4.sinaimg.cn/large/a180de74jw1f1hk35epm3j20c62uewwp.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3948292989143643" target="freeweibo-mirror">SPAM 好物！</a>
 </h2>
@@ -126,17 +132,11 @@
 </h2>
 <p>//@早报网:对于广大中共党员来说，任志强被严肃处理，也是对全党发出了一个信号：不许妄议中央。<br><br>RE: 【分析：任志强“违纪”的可能结果】时评人陈杰人分析，西城区委下发的通知标题已经没有“同志”的称呼，按照中共党内惯例，估计任志强被开除党籍的可能性很大。西城区委表态要处分任志强，是中共高层的态度，而不只是官方媒体对任志强围攻。http://t.cn/RGWHt0B<br><img src="http://ww4.sinaimg.cn/large/6298156bgw1f1hc1m52u8j20yg0kags2.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3948233376616311" target="freeweibo-mirror">[偷笑] //@谓贤:公开提倡「终身制」不属于反党言论？//…</a>
 </h2>
 <p>[偷笑] //@谓贤:公开提倡「终身制」不属于反党言论？//@陶然万柳世界: //@壹本正经2010:[嘻嘻]//@馬鳴謙:学北俄普京，分几次登基[衰]//@封龙君: 吼吼，真的来了啊<br><br>RE: 从袁世凯当皇帝，到蒋介石修改宪法连任，再到生命不息战斗不止以至弄到文革的不可收拾，再到据说要力挽长者缓退，抬轿的人，就这个招数，真可谓老狗玩不出新花样[酷]不怕人耻笑吗[疑问]也是，脸都不要了，耻笑算个屁[笑cry]<br><img src="http://ww3.sinaimg.cn/large/719434ffjw1f1h3kbnlwpj20hs0lh40d.jpg"></p>
-<p>
-	<small> ============== 6小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3948232482220959" target="freeweibo-mirror">//@早报网: 对于广大中共党员来说，任志强被严肃处理，也是…</a>
-</h2>
-<p>//@早报网: 对于广大中共党员来说，任志强被严肃处理，也是对全党发出了一个信号：不许妄议中央。<br><br>RE: 【分析：任志强“违纪”的可能结果】时评人陈杰人分析，西城区委下发的通知标题已经没有“同志”的称呼，按照中共党内惯例，估计任志强被开除党籍的可能性很大。西城区委表态要处分任志强，是中共高层的态度，而不只是官方媒体对任志强围攻。http://t.cn/RGWHt0B<br><img src="http://ww4.sinaimg.cn/large/6298156bgw1f1hc1m52u8j20yg0kags2.jpg"></p>
 <p>
 	<small> ============== 7小时前</small>
 </p>
