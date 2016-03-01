@@ -84,13 +84,13 @@
 </h2>
 <p>【分析：任志强“违纪”的可能结果】时评人陈杰人分析，西城区委下发的通知标题已经没有“同志”的称呼，按照中共党内惯例，估计任志强被开除党籍的可能性很大。西城区委表态要处分任志强，是中共高层的态度，而不只是官方媒体对任志强围攻。http://t.cn/RGWHt0B<br><img src="http://ww4.sinaimg.cn/large/6298156bgw1f1hc1m52u8j20yg0kags2.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3948220906325589" target="freeweibo-mirror">关注诉求，祈祷平安！</a>
 </h2>
 <p>关注诉求，祈祷平安！<br><br>RE: 一戴着鸭舌帽的中年男子爬上6、7米高的孙中山雕像基座，腰上有扩音喇叭，手里拿着汽油疑似物，谈判专家来了，一白布黑子写的是：建邺区法院纵然建华开发违法违纪……云云<br><img src="http://ww1.sinaimg.cn/large/7cc1f9a1jw1f1hbst8ji6j20go0l243m.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3948219019472635" target="freeweibo-mirror">一戴着鸭舌帽的中年男子爬上6、7米高的孙中山雕像基座，腰上有…</a>
 </h2>
