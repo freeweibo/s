@@ -48,7 +48,7 @@
 </h2>
 <p>咱们法律人应该研究一下，这样的处罚是否合适、合法，该编辑有没有维护自己合法权益的法律途径？<br><br>RE: 我认为这样的处分过头了。<br><img src="http://ww3.sinaimg.cn/large/627cf045gw1f1hkgcqiu0j20i20gn403.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3948308960916368" target="freeweibo-mirror">SPAM 玻璃心啊，某党宣。//@陈业文新大都://@程中柳…</a>
 </h2>
@@ -114,19 +114,19 @@
 </h2>
 <p>同意开除党籍！//@陈业文新大都: 毫无疑问，会成为历史事件。据说大炮正在写检查呢。[偷笑]<br><br>RE: 【分析：任志强“违纪”的可能结果】时评人陈杰人分析，西城区委下发的通知标题已经没有“同志”的称呼，按照中共党内惯例，估计任志强被开除党籍的可能性很大。西城区委表态要处分任志强，是中共高层的态度，而不只是官方媒体对任志强围攻。http://t.cn/RGWHt0B<br><img src="http://ww4.sinaimg.cn/large/6298156bgw1f1hc1m52u8j20yg0kags2.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3948234952607558" target="freeweibo-mirror">毫无疑问，会成为历史事件。据说大炮正在写检查呢。[偷笑]</a>
 </h2>
 <p>毫无疑问，会成为历史事件。据说大炮正在写检查呢。[偷笑]<br><br>RE: 【分析：任志强“违纪”的可能结果】时评人陈杰人分析，西城区委下发的通知标题已经没有“同志”的称呼，按照中共党内惯例，估计任志强被开除党籍的可能性很大。西城区委表态要处分任志强，是中共高层的态度，而不只是官方媒体对任志强围攻。http://t.cn/RGWHt0B<br><img src="http://ww4.sinaimg.cn/large/6298156bgw1f1hc1m52u8j20yg0kags2.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3948234508112197" target="freeweibo-mirror">SPAM #移民观察# 理性维权，关注诉求，祈祷平安！</a>
 </h2>
 <p>SPAM #移民观察# 理性维权，关注诉求，祈祷平安！<br><br>RE: 一戴着鸭舌帽的中年男子爬上6、7米高的孙中山雕像基座，腰上有扩音喇叭，手里拿着汽油疑似物，谈判专家来了，一白布黑子写的是：建邺区法院纵然建华开发违法违纪……云云<br><img src="http://ww1.sinaimg.cn/large/7cc1f9a1jw1f1hbst8ji6j20go0l243m.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3948233594709093" target="freeweibo-mirror">//@早报网:对于广大中共党员来说，任志强被严肃处理，也是对…</a>
 </h2>
