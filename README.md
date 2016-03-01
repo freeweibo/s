@@ -32,6 +32,12 @@
 <p>
 	<small> ============== 1小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3948136923432278" target="freeweibo-mirror">用屌熬汤，到哪里味道都一样！……………… 温州拆迁办主人的原…</a>
+</h2>
+<p>用屌熬汤，到哪里味道都一样！……………… 温州拆迁办主人的原话：有一家拆迁户，把习*  ~大……大*  的画像贴满了墙壁，里里外外几百张画像，他们家里人拿着手机拍摄我们，现场传照片传录像给朋友。我们拆迁队傻了眼，没人敢动习~*大*~大*的画像，没人敢去强拆他家墙。结果多赔了75万元。<br><img src="http://ww4.sinaimg.cn/large/006nfRuLjw1f1h29x9o0nj30cs0h1wev.jpg"></p>
+<p>
+	<small> ============== 5小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3948116372029881" target="freeweibo-mirror">SPAM [太阳] //@怪求氦气:富贵就能淫、贫贱不能移[…</a>
 </h2>
 <p>SPAM [太阳] //@怪求氦气:富贵就能淫、贫贱不能移[阴险]<br><br>RE: 一个国家奴才多不多，只要看媒体对领导赞美有多少就知道了。一个国家奴隶多不多，只要看民众遇到不公正有多少人沉默就知道了。一个国家自由不自由，只要看有多少敏感词就知道了。一个国家有没有尊严，只要看人们怎么样对待弱者就知道了。一个国家有没有未来，只要看孩子读什么书就知道了。</p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3947913925738110" target="freeweibo-mirror">SPAM 世上最好的保鲜就是永恒…把她带在离心最近的位置 从…</a>
 </h2>
 <p>SPAM 世上最好的保鲜就是永恒…把她带在离心最近的位置 从此以后心跳多久爱就有多久[鲜花]只属于你们[爱你]喜欢就来吧</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3947912331087231" target="freeweibo-mirror">懒得说话，看图。</a>
-</h2>
-<p>懒得说话，看图。<br><img src="http://ww2.sinaimg.cn/large/006iSYgSgw1f1gcj2u3a1j30hn0qognw.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
