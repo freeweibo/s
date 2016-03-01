@@ -20,11 +20,17 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3948374530874418" target="freeweibo-mirror">广州日报连“禽兽不如”这样的话都骂出来了，能不能有点节操？ …</a>
+</h2>
+<p>广州日报连“禽兽不如”这样的话都骂出来了，能不能有点节操？ //@刘军宁:天下是天下人的天下 //@花石頭e:没说错一句话<br><br>RE: 任志强:江山不是打来的，江山一直都在，江山是属于13亿中国人民的，每一个中国人从一出生开始即天然拥有这个国家的股份 不论山川河流、石油矿产、自然资源，还是中国人民共同创造的财富，共产党都只是代为管理与分配，作为中国人民的一份子，我有权要求共产党端正态度，对我的股权负责，对子孙后代负责<br><img src="http://ww4.sinaimg.cn/large/006cWHKejw1f1h4i25pz0j30go0qoq46.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3948364523369113" target="freeweibo-mirror">SPAM 挂错了档？[思考] //@陶景洲: //@炜哥76…</a>
 </h2>
 <p>SPAM 挂错了档？[思考] //@陶景洲: //@炜哥764201:可笑！可悲！可怕！<br><br>RE: 这是倒车过程中发生的事故[哈哈]<br><img src="http://ww2.sinaimg.cn/large/006o34Figw1f1hljdz1dwj30i20gn0uf.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3948353760611471" target="freeweibo-mirror">人怂怂一个，报怂怂一窝，都特么敢做不敢当的孬种！[吐]//@…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3948302746113183" target="freeweibo-mirror">南方报业装什么糊涂，到底是编辑故意为之，还是读者恶意解读？处…</a>
 </h2>
 <p>南方报业装什么糊涂，到底是编辑故意为之，还是读者恶意解读？处分是对的，但把责任推给读者，明显就是强词夺理。纠错要从根子上纠，党报姓党不是玩嘴皮、装样子！@南方都市报 @南方报业网<br><img src="http://ww4.sinaimg.cn/large/005wYsa4jw1f1hlcxboyhj30i20gngn6.jpg"></p>
-<p>
-	<small> ============== 6小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3948294566636849" target="freeweibo-mirror">我认为这样的处分过头了。</a>
-</h2>
-<p>我认为这样的处分过头了。<br><img src="http://ww3.sinaimg.cn/large/627cf045gw1f1hkgcqiu0j20i20gn403.jpg"></p>
 <p>
 	<small> ============== 6小时前</small>
 </p>
