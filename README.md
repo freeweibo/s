@@ -20,6 +20,18 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3948314522576867" target="freeweibo-mirror">自己看评论去，看看到底是谁上杆子评论过来的。 //@Give…</a>
+</h2>
+<p>自己看评论去，看看到底是谁上杆子评论过来的。 //@Giveusomecolor:呵呵～我就奇怪，人家说公知下流加傻逼，你上赶着凑啥热闹？→ //@高春辉:你爱说谁说谁去，有本事最好当面说，但是别拿脏话污了我的评论线，能沟通的前提是不说脏话，不懂就别说话。<br><br>RE: 【法院副院长同床睡三美女   只玩两个晾下一个遭举报】青岛市中级法院副院长刘青峰，因职务犯罪被判刑14年。他的案发，是因为他同时带三个美女律师一起睡觉，而只与其中两名嘿咻；由于激情尖叫，69式淫荡口咬，被另一个女律师嫉妒偷拍。随后该女律师直接向省纪委和省检越级举报，由此引发刘青锋落马。<br><img src="http://ww4.sinaimg.cn/large/e0fff2a7gw1f1gf72tm4lj20b407u3zv.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3948314368412061" target="freeweibo-mirror">SPAM 以前认识一些“政治敏感”的人，基本都是神经病＋迫害…</a>
+</h2>
+<p>SPAM 以前认识一些“政治敏感”的人，基本都是神经病＋迫害妄想。//@潘海天: 厉害了 //@胡淑芬://@潘朵拉://@育才老殷:真的魂归大海啦？一语成谶啦？ //@东东td36://@切吧日文打卤面:这不就是文字狱么？<br><br>RE: 我认为这样的处分过头了。<br><img src="http://ww3.sinaimg.cn/large/627cf045gw1f1hkgcqiu0j20i20gn403.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3948293811999146" target="freeweibo-mirror">SPAM 都 在为小李终夺奥斯卡鼓掌喝彩，其实他早已是人生赢…</a>
 </h2>
 <p>SPAM 都 在为小李终夺奥斯卡鼓掌喝彩，其实他早已是人生赢家~这位维密天使背后的男人，20年集邮56枚超模女友，下面来细数这些绝世大美女和小李的情史，看完之后觉得#莱昂纳多#的撩妹史比冲奥精彩100倍！[酷]<br><img src="http://ww4.sinaimg.cn/large/a180de74jw1f1hk35epm3j20c62uewwp.jpg"></p>
@@ -96,7 +108,7 @@
 </h2>
 <p>那里违法了？至今不懂。 //@Roses-s:公然践踏人权！说明了尔等不合乎法律！一个极权国家的专制独裁，还有比这更卑鄙龌龊的么？！[吐] //@审计师理查德: 对于违法行为，尤其是特么的持续违法，怎么能不公审公判？对于封杀他的领导，怎么不告诉大家他的名字，供万民传颂？<br><br>RE: 封杀任志强刷不了啥大事儿，封杀大V也不是第一次了。所谓的大事儿，是公开宣布封杀任志强，宣布的理由是“持续公开发布违法信息“。任志强持续”违法“，法庭却没有审判他。难道法庭是任志强家开的？依法治国怎么能容忍任志强如此破坏？打倒任志强，坚决要求央视公开审判任志强的违法行为。</p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3948224995768621" target="freeweibo-mirror">【南京市中心突发】一戴着鸭舌帽的中年男子爬上6、7米高的孙中…</a>
 </h2>
@@ -125,18 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3948218058752074" target="freeweibo-mirror">SPAM 有人爬上去挂了个条幅[衰]</a>
 </h2>
 <p>SPAM 有人爬上去挂了个条幅[衰]<br><br>RE: 不知道什么情况@南京正在发生 @南京发布<br><img src="http://ww4.sinaimg.cn/large/69c4bcb1gw1f1hbnpcnkej20qo0qogu6.jpg"></p>
-<p>
-	<small> ============== 7小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3948217886613395" target="freeweibo-mirror">不知道什么情况@南京正在发生 @南京发布</a>
-</h2>
-<p>不知道什么情况@南京正在发生 @南京发布<br><img src="http://ww4.sinaimg.cn/large/69c4bcb1gw1f1hbnpcnkej20qo0qogu6.jpg"></p>
-<p>
-	<small> ============== 7小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3948217232198923" target="freeweibo-mirror">//@火车司机gg-4:把证据撤下吧//@曾家山-居士03:…</a>
-</h2>
-<p>//@火车司机gg-4:把证据撤下吧//@曾家山-居士03:情节有变？//@火车司机gg-4://@jhw333://@茧人2015://@花样男子V2://@打狗仔_124:该表扬啊，为什么下架？//@阿里公鸡:转发微博<br><br>RE: 四川省宜宾市宣传部门要求：当地表扬《任志强是8000多万党员的耻辱！》一文作者毛开云的稿件，一律下架。<br><img src="http://ww2.sinaimg.cn/large/7da9a897gw1f1h7n5c76jj20gz09xabd.jpg"></p>
 <p>
 	<small> ============== 7小时前</small>
 </p>
