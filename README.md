@@ -66,7 +66,7 @@
 </h2>
 <p>//@早报网: 对于广大中共党员来说，任志强被严肃处理，也是对全党发出了一个信号：不许妄议中央。<br><br>RE: 【分析：任志强“违纪”的可能结果】时评人陈杰人分析，西城区委下发的通知标题已经没有“同志”的称呼，按照中共党内惯例，估计任志强被开除党籍的可能性很大。西城区委表态要处分任志强，是中共高层的态度，而不只是官方媒体对任志强围攻。http://t.cn/RGWHt0B<br><img src="http://ww4.sinaimg.cn/large/6298156bgw1f1hc1m52u8j20yg0kags2.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3948228250977911" target="freeweibo-mirror">那里违法了？至今不懂。 //@Roses-s:公然践踏人权！…</a>
 </h2>
@@ -96,13 +96,13 @@
 </h2>
 <p>SPAM 有人爬上去挂了个条幅[衰]<br><br>RE: 不知道什么情况@南京正在发生 @南京发布<br><img src="http://ww4.sinaimg.cn/large/69c4bcb1gw1f1hbnpcnkej20qo0qogu6.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3948217232198923" target="freeweibo-mirror">//@火车司机gg-4:把证据撤下吧//@曾家山-居士03:…</a>
 </h2>
 <p>//@火车司机gg-4:把证据撤下吧//@曾家山-居士03:情节有变？//@火车司机gg-4://@jhw333://@茧人2015://@花样男子V2://@打狗仔_124:该表扬啊，为什么下架？//@阿里公鸡:转发微博<br><br>RE: 四川省宜宾市宣传部门要求：当地表扬《任志强是8000多万党员的耻辱！》一文作者毛开云的稿件，一律下架。<br><img src="http://ww2.sinaimg.cn/large/7da9a897gw1f1h7n5c76jj20gz09xabd.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3948205119214722" target="freeweibo-mirror">哈哈，挣钱了！</a>
 </h2>
@@ -114,7 +114,7 @@
 </h2>
 <p>喔……<br><br>RE: #表扬稿紧急下架#刚才获知，四川省宜宾市宣传部门要求：当地表扬《任志强是8000多万党员的耻辱！》一文作者毛开云的稿件，一律下架。查看宜宾日报金沙网微信公众号的文章《宜宾一个帅气的男记者被中央网安点名表扬，太牛了！》，果然不见了。<br><img src="http://ww4.sinaimg.cn/large/de7c883djw1f1h6h283vvj20ci0hzab7.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3948200928853660" target="freeweibo-mirror">SPAM 推荐一位很可爱的卖家在卖的品牌潮鞋 厂家直销性价比…</a>
 </h2>
