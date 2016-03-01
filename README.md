@@ -72,19 +72,19 @@
 </h2>
 <p>咱们法律人应该研究一下，这样的处罚是否合适、合法，该编辑有没有维护自己合法权益的法律途径？<br><br>RE: 我认为这样的处分过头了。<br><img src="http://ww3.sinaimg.cn/large/627cf045gw1f1hkgcqiu0j20i20gn403.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3948310861822075" target="freeweibo-mirror">SPAM //@潘海天:厉害了 //@胡淑芬://@潘朵拉:…</a>
 </h2>
 <p>SPAM //@潘海天:厉害了 //@胡淑芬://@潘朵拉://@育才老殷:真的魂归大海啦？一语成谶啦？ //@东东td36://@切吧日文打卤面:这不就是文字狱么？<br><br>RE: 我认为这样的处分过头了。<br><img src="http://ww3.sinaimg.cn/large/627cf045gw1f1hkgcqiu0j20i20gn403.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3948310270329759" target="freeweibo-mirror">SPAM 厉害了 //@胡淑芬://@潘朵拉://@育才老殷…</a>
 </h2>
 <p>SPAM 厉害了 //@胡淑芬://@潘朵拉://@育才老殷:真的魂归大海啦？一语成谶啦？ //@东东td36://@切吧日文打卤面:这不就是文字狱么？<br><br>RE: 我认为这样的处分过头了。<br><img src="http://ww3.sinaimg.cn/large/627cf045gw1f1hkgcqiu0j20i20gn403.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3948308960916368" target="freeweibo-mirror">SPAM 玻璃心啊，某党宣。//@陈业文新大都://@程中柳…</a>
 </h2>
