@@ -24,7 +24,7 @@
 </h2>
 <p>SPAM 这根大黑DICK舔准了，博主就发达了。<br><br>RE: 【欲成中兴盛世，非20年不可】玄烨、弘历在位121年，开康乾盛世；刘彻54年，开汉武盛世；李世民23年，开贞观之治；李隆基44年，开开元盛世；刘秀33年，开光武中兴；赵祯41年，开仁宗之治。柴荣、雍正、李纯、朱棣、朱瞻基才略不输诸大帝，而天不假年，中兴大业半途而废，可叹！可惜！<br><img src="http://ww2.sinaimg.cn/large/66b822e6gw1f1ga738ohvj20dw0aj3zm.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3948241965703453" target="freeweibo-mirror">SPAM [作揖]//@渐行居士：猴年马月，祥瑞屡现：珠江瑞…</a>
 </h2>
@@ -92,6 +92,12 @@
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3948218058752074" target="freeweibo-mirror">SPAM 有人爬上去挂了个条幅[衰]</a>
+</h2>
+<p>SPAM 有人爬上去挂了个条幅[衰]<br><br>RE: 不知道什么情况@南京正在发生 @南京发布<br><img src="http://ww4.sinaimg.cn/large/69c4bcb1gw1f1hbnpcnkej20qo0qogu6.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3948217232198923" target="freeweibo-mirror">//@火车司机gg-4:把证据撤下吧//@曾家山-居士03:…</a>
 </h2>
 <p>//@火车司机gg-4:把证据撤下吧//@曾家山-居士03:情节有变？//@火车司机gg-4://@jhw333://@茧人2015://@花样男子V2://@打狗仔_124:该表扬啊，为什么下架？//@阿里公鸡:转发微博<br><br>RE: 四川省宜宾市宣传部门要求：当地表扬《任志强是8000多万党员的耻辱！》一文作者毛开云的稿件，一律下架。<br><img src="http://ww2.sinaimg.cn/large/7da9a897gw1f1h7n5c76jj20gz09xabd.jpg"></p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3948192641068354" target="freeweibo-mirror">[酷]</a>
 </h2>
 <p>[酷]</p>
-<p>
-	<small> ============== 5小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3948192477325233" target="freeweibo-mirror">//@南无阿拉乎阿门吧:大胆缓则[哈哈] //@大意觉迷:有…</a>
-</h2>
-<p>//@南无阿拉乎阿门吧:大胆缓则[哈哈] //@大意觉迷:有点像斗斗。  //@纲子-洛中:这图的雕像是李金斗吧  //@缺德社:燕王朱棣从北京发兵南下“靖难”。兵至济南，欲以炮火攻城，守臣铁铉急将朱元璋画像悬挂城头，又亲自书写大批朱元璋神主灵牌，分置垛口，使燕军不能开炮<br><br>RE: 用屌熬汤，到哪里味道都一样！……………… 温州拆迁办主人的原话：有一家拆迁户，把习*  ~大……大*  的画像贴满了墙壁，里里外外几百张画像，他们家里人拿着手机拍摄我们，现场传照片传录像给朋友。我们拆迁队傻了眼，没人敢动习~*大*~大*的画像，没人敢去强拆他家墙。结果多赔了75万元。<br><img src="http://ww4.sinaimg.cn/large/006nfRuLjw1f1h29x9o0nj30cs0h1wev.jpg"></p>
 <p>
 	<small> ============== 5小时前</small>
 </p>
