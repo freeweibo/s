@@ -24,13 +24,13 @@
 </h2>
 <p>境外敌对势力。//@黄土路: 人民日报，快来批判他。//@赵卡的牛肉干:什么意思?//@小众菜园:这家伙什么意思[疑问]//@小小猫咪去钓鱼2: 转发微博<br><br>RE: 外国人谈任志强事件。。[吃惊]#最抽疯的视频#   http://t.cn/RGWswTg .</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3948374530874418" target="freeweibo-mirror">广州日报连“禽兽不如”这样的话都骂出来了，能不能有点节操？ …</a>
 </h2>
 <p>广州日报连“禽兽不如”这样的话都骂出来了，能不能有点节操？ //@刘军宁:天下是天下人的天下 //@花石頭e:没说错一句话<br><br>RE: 任志强:江山不是打来的，江山一直都在，江山是属于13亿中国人民的，每一个中国人从一出生开始即天然拥有这个国家的股份 不论山川河流、石油矿产、自然资源，还是中国人民共同创造的财富，共产党都只是代为管理与分配，作为中国人民的一份子，我有权要求共产党端正态度，对我的股权负责，对子孙后代负责<br><img src="http://ww4.sinaimg.cn/large/006cWHKejw1f1h4i25pz0j30go0qoq46.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3948373268126661" target="freeweibo-mirror">以前最多的是敌特好吧?//@喷嚏网铂程://@逆风蝴蝶:我看…</a>
 </h2>
@@ -120,7 +120,7 @@
 </h2>
 <p>倒霉到家了。//@写字李华良:转发微博<br><br>RE: 唉～<br><img src="http://ww3.sinaimg.cn/large/92c79538jw1f1hnzb6w1ij20cj0m8jtp.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3948353760611471" target="freeweibo-mirror">人怂怂一个，报怂怂一窝，都特么敢做不敢当的孬种！[吐]//@…</a>
 </h2>
