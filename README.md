@@ -138,7 +138,7 @@
 </h2>
 <p>记者设藏头诗被开除公职<br><img src="http://ww1.sinaimg.cn/large/5eac8cf4jw1f1irfwu0xhj20ci0m8mz5.jpg"></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p>
 <table>
     <tr>
