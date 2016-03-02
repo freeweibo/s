@@ -30,7 +30,7 @@
 </h2>
 <p>SPAM //@北村:啥事儿？ //@媒体人张强:那一版我看了，记得是深圳版//@曹凡:[围观]<br><br>RE: 犯了什么事儿？<br><img src="http://ww1.sinaimg.cn/large/5869d5a8jw1f1hr8294f1j20hs0vkadq.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3948377203431305" target="freeweibo-mirror">//@静娅_:老雷最后一个表情很有意味，有点替中国惋惜的味道…</a>
 </h2>
@@ -42,19 +42,19 @@
 </h2>
 <p>境外敌对势力。//@黄土路: 人民日报，快来批判他。//@赵卡的牛肉干:什么意思?//@小众菜园:这家伙什么意思[疑问]//@小小猫咪去钓鱼2: 转发微博<br><br>RE: 外国人谈任志强事件。。[吃惊]#最抽疯的视频#   http://t.cn/RGWswTg .</p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3948374699094020" target="freeweibo-mirror">老雷：你们折腾吧，关我屁事啊！</a>
 </h2>
 <p>老雷：你们折腾吧，关我屁事啊！<br><br>RE: 外国人谈任志强事件。。[吃惊]#最抽疯的视频#   http://t.cn/RGWswTg .</p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3948374530874418" target="freeweibo-mirror">广州日报连“禽兽不如”这样的话都骂出来了，能不能有点节操？ …</a>
 </h2>
 <p>广州日报连“禽兽不如”这样的话都骂出来了，能不能有点节操？ //@刘军宁:天下是天下人的天下 //@花石頭e:没说错一句话<br><br>RE: 任志强:江山不是打来的，江山一直都在，江山是属于13亿中国人民的，每一个中国人从一出生开始即天然拥有这个国家的股份 不论山川河流、石油矿产、自然资源，还是中国人民共同创造的财富，共产党都只是代为管理与分配，作为中国人民的一份子，我有权要求共产党端正态度，对我的股权负责，对子孙后代负责<br><img src="http://ww4.sinaimg.cn/large/006cWHKejw1f1h4i25pz0j30go0qoq46.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3948373268126661" target="freeweibo-mirror">以前最多的是敌特好吧?//@喷嚏网铂程://@逆风蝴蝶:我看…</a>
 </h2>
@@ -102,19 +102,19 @@
 </h2>
 <p>右边才发现？检查下智商先。[嘻嘻]//@黄奎ART: 卧槽，这历史哪是在倒车哦，分明是向后飘逸超速 //@熊华GG:倒霉到家了。//@写字李华良:转发微博<br><br>RE: 唉～<br><img src="http://ww3.sinaimg.cn/large/92c79538jw1f1hnzb6w1ij20cj0m8jtp.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3948366972957491" target="freeweibo-mirror">SPAM [哈哈]//@普法三十年-: [笑cry]//@今…</a>
 </h2>
 <p>SPAM [哈哈]//@普法三十年-: [笑cry]//@今夜不设防style: [哈哈][哈哈] //@马操188:[哈哈][哈哈] //@无牌黑店2012://@草根播报_: [哈哈]<br><br>RE: 我敢打赌，任志强在接下来的一段时间里，肯定会去嫖娼。<br><img src="http://ww1.sinaimg.cn/large/e661612cgw1f1hghs4w37j20fa0a6t9m.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3948366637265438" target="freeweibo-mirror">SPAM 很淳朴的一个妹纸[爱你]喜欢她，并不是因为她多美，…</a>
 </h2>
 <p>SPAM 很淳朴的一个妹纸[爱你]喜欢她，并不是因为她多美，而是因为她家的花茶[哈哈]非常棒，强烈推荐哦[心]</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3948365839968540" target="freeweibo-mirror">//@腾晓东:老雷讲得很理性：你们折腾吧，反正又不关西方P事…</a>
 </h2>
