@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3948480311766481" target="freeweibo-mirror">SPAM //@北村:啥事儿？ //@媒体人张强:那一版我看…</a>
+</h2>
+<p>SPAM //@北村:啥事儿？ //@媒体人张强:那一版我看了，记得是深圳版//@曹凡:[围观]<br><br>RE: 犯了什么事儿？<br><img src="http://ww1.sinaimg.cn/large/5869d5a8jw1f1hr8294f1j20hs0vkadq.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3948377203431305" target="freeweibo-mirror">//@静娅_:老雷最后一个表情很有意味，有点替中国惋惜的味道…</a>
 </h2>
 <p>//@静娅_:老雷最后一个表情很有意味，有点替中国惋惜的味道。//@石讷06: 说得清晰而中肯。推荐！<br><br>RE: 外国人谈任志强事件。。[吃惊]#最抽疯的视频#   http://t.cn/RGWswTg .</p>
@@ -114,29 +120,23 @@
 </h2>
 <p>信吗？当然不信！[笑哈哈]<br><br>RE: #南方系问题# 无论怎瞧，都对这《处理决定》落款“南方报业集团委员会”前的“中共”二字感到别扭,这么明显政治对抗,说成是“缺乏政治敏感”,把责任归罪于读者“网上恶意解读”!谁信这家报系姓党么？谁信这家报系改过自新么？谁信这家报系不是迫于压力以退为进么？反正@健康媒体王炎 不信,叶色也不信。<br><img src="http://ww1.sinaimg.cn/large/79594e60gw1f1hs669p44j20hs2z77wh.jpg"></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3948364548295259" target="freeweibo-mirror">SPAM 小心！//@子午侠士:[笑cry]//@良知在神州…</a>
 </h2>
 <p>SPAM 小心！//@子午侠士:[笑cry]//@良知在神州01:/[笑cry]/@地瓜熊老六:[笑cry]→_→//@Stupidfrog:@南方人物周刊 我觉得“小心  潘石屹”是亮点。。。</p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3948364523369113" target="freeweibo-mirror">SPAM 挂错了档？[思考] //@陶景洲: //@炜哥76…</a>
 </h2>
 <p>SPAM 挂错了档？[思考] //@陶景洲: //@炜哥764201:可笑！可悲！可怕！<br><br>RE: 这是倒车过程中发生的事故[哈哈]<br><img src="http://ww2.sinaimg.cn/large/006o34Figw1f1hljdz1dwj30i20gn0uf.jpg"></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3948364137181780" target="freeweibo-mirror">SPAM 呵呵，有个性的报纸！恶心！</a>
 </h2>
 <p>SPAM 呵呵，有个性的报纸！恶心！<br><br>RE: 南方报业装什么糊涂，到底是编辑故意为之，还是读者恶意解读？处分是对的，但把责任推给读者，明显就是强词夺理。纠错要从根子上纠，党报姓党不是玩嘴皮、装样子！@南方都市报 @南方报业网<br><img src="http://ww4.sinaimg.cn/large/005wYsa4jw1f1hlcxboyhj30i20gngn6.jpg"></p>
-<p>
-	<small> ============== 9小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3948363865524726" target="freeweibo-mirror">在这场意识形态和舆论争夺的斗争中，南方系目的注定是会殊就要死…</a>
-</h2>
-<p>在这场意识形态和舆论争夺的斗争中，南方系目的注定是会殊就要死一搏的，但也注定是会失败的！<br><br>RE: 南方报业装什么糊涂，到底是编辑故意为之，还是读者恶意解读？处分是对的，但把责任推给读者，明显就是强词夺理。纠错要从根子上纠，党报姓党不是玩嘴皮、装样子！@南方都市报 @南方报业网<br><img src="http://ww4.sinaimg.cn/large/005wYsa4jw1f1hlcxboyhj30i20gngn6.jpg"></p>
 <p>
 	<small> ============== 10小时前</small>
 </p>
