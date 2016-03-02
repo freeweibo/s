@@ -26,11 +26,65 @@
 <p>
 	<small> ============== 1小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3948670875620095" target="freeweibo-mirror">SPAM 为什么 //@何三畏:为什么这么小气，好东西不给别…</a>
+</h2>
+<p>SPAM 为什么 //@何三畏:为什么这么小气，好东西不给别人分享？<br><br>RE: 好东西关起门吃独食，很不好！<br><img src="http://ww2.sinaimg.cn/large/485f83dejw1f1hereowexj20hs0vkgon.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3948670862729751" target="freeweibo-mirror">SPAM [哈哈]//@摸着石头过河---水太深: //@1…</a>
+</h2>
+<p>SPAM [哈哈]//@摸着石头过河---水太深: //@1根稻草W://@温斯顿de马甲张然: //@高小曜://@云台二十五将: //@三番转世仁波切://@封神祭二十一叔://@昊空爱操垬:[哈哈]</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3948670393603886" target="freeweibo-mirror">[衰]//@李翔196811: //@一游的空间://@上海…</a>
+</h2>
+<p>[衰]//@李翔196811: //@一游的空间://@上海访民遭遇警察: //@鸿哥2010:转发微博</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3948669985696824" target="freeweibo-mirror">//@法律人童朝平: //@天天做梦zyp: //@山高路远…</a>
+</h2>
+<p>//@法律人童朝平: //@天天做梦zyp: //@山高路远N://@八斗愚公://@见雨听风N://@-BlackFlash-://@杜芝富://@圆润女郎521:[围观]//@北京论坛百姓说: [围观][围观]<br><br>RE: 底层人士就别去攻击任志强了，能帮你说句公道话的中国名人已经凤毛麟角了…………不管党媒如何抹黑，任志强都是中国少数有良知的公共知识分子；人家有钱、有名完全可以潇洒人生，不理世事、对吧？……不要被官方喉舌忽悠、而不知好坏，黑白不分…………象任志强这样有銭有名有人性有良知的知识分子，在...全文： http://m.weibo.cn/5458433968/3948552088518777...全文： http://m.weibo.cn/5458433968/3948552088518777<br><img src="http://ww2.sinaimg.cn/large/005Xp21yjw1f1ie10e6jwj30g8093dgg.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3948663346432346" target="freeweibo-mirror">SPAM 特别喜欢靠自己的女生 加她让她带着你一起 努力[心…</a>
+</h2>
+<p>SPAM 特别喜欢靠自己的女生 加她让她带着你一起 努力[心][心]</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3948660133711982" target="freeweibo-mirror">//@天天做梦zyp: //@山高路远N://@八斗愚公:/…</a>
+</h2>
+<p>//@天天做梦zyp: //@山高路远N://@八斗愚公://@见雨听风N://@-BlackFlash-://@杜芝富://@圆润女郎521:[围观]//@北京论坛百姓说: [围观][围观]<br><br>RE: 底层人士就别去攻击任志强了，能帮你说句公道话的中国名人已经凤毛麟角了…………不管党媒如何抹黑，任志强都是中国少数有良知的公共知识分子；人家有钱、有名完全可以潇洒人生，不理世事、对吧？……不要被官方喉舌忽悠、而不知好坏，黑白不分…………象任志强这样有銭有名有人性有良知的知识分子，在...全文： http://m.weibo.cn/5458433968/3948552088518777...全文： http://m.weibo.cn/5458433968/3948552088518777<br><img src="http://ww2.sinaimg.cn/large/005Xp21yjw1f1ie10e6jwj30g8093dgg.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3948650315001793" target="freeweibo-mirror">//@惜秋微博:活到老，开到老。 //@清风飘逸噻:没用担架…</a>
+</h2>
+<p>//@惜秋微博:活到老，开到老。 //@清风飘逸噻:没用担架抬？ //@西部弯刀:记住星爷那句话'轮到你这妖怪反对？<br><br>RE: #全国两会#个人认为：申纪兰同志，87岁高龄，没有文化，连任12届全国人大代表，已不具备参政议政能力，严重不合适！！！-----《山西团代表抵京 申纪兰第50次参加全国人代会》http://t.cn/RGlHsdd<br><img src="http://ww2.sinaimg.cn/large/a4bc2044jw1f1ij5xpwwrj20sg0ibdhq.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3948644018967455" target="freeweibo-mirror">SPAM 这是谁P的图？胆子太大了！晒出来给大家看看，一起把…</a>
+</h2>
+<p>SPAM 这是谁P的图？胆子太大了！晒出来给大家看看，一起把P图的人揪出来，必须严肃的表扬他一下！[鲜花][鲜花][鲜花][哈哈][哈哈][哈哈]<br><img src="http://ww2.sinaimg.cn/large/006lzJItgw1f1iojihweej30cs09kgmy.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3948606191023655" target="freeweibo-mirror">SPAM #北京突发#【这是欢迎谁呀[拜拜]】@Dr零零柒：…</a>
 </h2>
 <p>SPAM #北京突发#【这是欢迎谁呀[拜拜]】@Dr零零柒：首都机场T2航站楼有人放鞭炮！已被警察叔叔带走…<br><img src="http://ww2.sinaimg.cn/large/9d8a5ea1jw1f1ik8z55u3j20c80gbt9p.jpg"></p>
 <p>
 	<small> ============== 6小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3948586330696850" target="freeweibo-mirror">1979年，美国驻华联络处邀请了北京五家媒体访美交流，第一站…</a>
+</h2>
+<p>1979年，美国驻华联络处邀请了北京五家媒体访美交流，第一站就是纽约。出行前夕，美方介绍完基本情况之后，询问那些领导们“最想到纽约看什么”，得到的回答是：“我们到纽约去，最主要是想了解纽约市党委怎么控制《纽约时报》。”美方解释称《纽约时报》既不归民主党管也不归共和党管，但并不被相信。</p>
+<p>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3948586259346028" target="freeweibo-mirror">致2016全国“两会”的公开信：全国人大代表、政协委员并告全…</a>
 </h2>
@@ -83,60 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3948507306565915" target="freeweibo-mirror">SPAM 感觉海尔自动洗头机 搓背机 卸妆机 也快搞出来了/…</a>
 </h2>
 <p>SPAM 感觉海尔自动洗头机 搓背机 卸妆机 也快搞出来了//@这是一个很高冷的ID:卧槽 //@乊A乊永琪我们说好的姓福呢么么:海尔的攻城狮真有意思 //@一只野生的冰淇淋: 洗澡机都来了，洗头机还会远么 //@西川夜子_偷得半日闲:卧槽//@症候来时墙头多:卧槽真的出了！</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3948480311766481" target="freeweibo-mirror">SPAM //@北村:啥事儿？ //@媒体人张强:那一版我看…</a>
-</h2>
-<p>SPAM //@北村:啥事儿？ //@媒体人张强:那一版我看了，记得是深圳版//@曹凡:[围观]<br><br>RE: 犯了什么事儿？<br><img src="http://ww1.sinaimg.cn/large/5869d5a8jw1f1hr8294f1j20hs0vkadq.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3948377203431305" target="freeweibo-mirror">//@静娅_:老雷最后一个表情很有意味，有点替中国惋惜的味道…</a>
-</h2>
-<p>//@静娅_:老雷最后一个表情很有意味，有点替中国惋惜的味道。//@石讷06: 说得清晰而中肯。推荐！<br><br>RE: 外国人谈任志强事件。。[吃惊]#最抽疯的视频#   http://t.cn/RGWswTg .</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3948375072354190" target="freeweibo-mirror">境外敌对势力。//@黄土路: 人民日报，快来批判他。//@赵…</a>
-</h2>
-<p>境外敌对势力。//@黄土路: 人民日报，快来批判他。//@赵卡的牛肉干:什么意思?//@小众菜园:这家伙什么意思[疑问]//@小小猫咪去钓鱼2: 转发微博<br><br>RE: 外国人谈任志强事件。。[吃惊]#最抽疯的视频#   http://t.cn/RGWswTg .</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3948374699094020" target="freeweibo-mirror">老雷：你们折腾吧，关我屁事啊！</a>
-</h2>
-<p>老雷：你们折腾吧，关我屁事啊！<br><br>RE: 外国人谈任志强事件。。[吃惊]#最抽疯的视频#   http://t.cn/RGWswTg .</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3948374530874418" target="freeweibo-mirror">广州日报连“禽兽不如”这样的话都骂出来了，能不能有点节操？ …</a>
-</h2>
-<p>广州日报连“禽兽不如”这样的话都骂出来了，能不能有点节操？ //@刘军宁:天下是天下人的天下 //@花石頭e:没说错一句话<br><br>RE: 任志强:江山不是打来的，江山一直都在，江山是属于13亿中国人民的，每一个中国人从一出生开始即天然拥有这个国家的股份 不论山川河流、石油矿产、自然资源，还是中国人民共同创造的财富，共产党都只是代为管理与分配，作为中国人民的一份子，我有权要求共产党端正态度，对我的股权负责，对子孙后代负责<br><img src="http://ww4.sinaimg.cn/large/006cWHKejw1f1h4i25pz0j30go0qoq46.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3948373268126661" target="freeweibo-mirror">以前最多的是敌特好吧?//@喷嚏网铂程://@逆风蝴蝶:我看…</a>
-</h2>
-<p>以前最多的是敌特好吧?//@喷嚏网铂程://@逆风蝴蝶:我看是聚众赌博。 //@樊德安:还可能参与了分裂党中央的罪恶活动。[怒]//@虾拼O2OWIFI: 去少林寺把主持換了吧[哈哈]//@摩娅:偷漏税最靠谱了//@焊武帝vip:吸毒也行//@roc张roc://@圆润女郎521:转发微博<br><br>RE: 我敢打赌，任志强在接下来的一段时间里，肯定会去嫖娼。<br><img src="http://ww1.sinaimg.cn/large/e661612cgw1f1hghs4w37j20fa0a6t9m.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3948372580662131" target="freeweibo-mirror">天下是天下人的天下 //@花石頭e:没说错一句话</a>
-</h2>
-<p>天下是天下人的天下 //@花石頭e:没说错一句话<br><br>RE: 任志强:江山不是打来的，江山一直都在，江山是属于13亿中国人民的，每一个中国人从一出生开始即天然拥有这个国家的股份 不论山川河流、石油矿产、自然资源，还是中国人民共同创造的财富，共产党都只是代为管理与分配，作为中国人民的一份子，我有权要求共产党端正态度，对我的股权负责，对子孙后代负责<br><img src="http://ww4.sinaimg.cn/large/006cWHKejw1f1h4i25pz0j30go0qoq46.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3948371088154986" target="freeweibo-mirror">//@逆风蝴蝶:我看是聚众赌博。 //@樊德安:还可能参与了…</a>
-</h2>
-<p>//@逆风蝴蝶:我看是聚众赌博。 //@樊德安:还可能参与了分裂党中央的罪恶活动。[怒]//@虾拼O2OWIFI: 去少林寺把主持換了吧[哈哈]//@摩娅:偷漏税最靠谱了//@焊武帝vip:吸毒也行//@roc张roc://@圆润女郎521:转发微博<br><br>RE: 我敢打赌，任志强在接下来的一段时间里，肯定会去嫖娼。<br><img src="http://ww1.sinaimg.cn/large/e661612cgw1f1hghs4w37j20fa0a6t9m.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3948369875157797" target="freeweibo-mirror">我看是聚众赌博。 //@樊德安:还可能参与了分裂党中央的罪恶…</a>
-</h2>
-<p>我看是聚众赌博。 //@樊德安:还可能参与了分裂党中央的罪恶活动。[怒]//@虾拼O2OWIFI: 去少林寺把主持換了吧[哈哈]//@摩娅:偷漏税最靠谱了//@焊武帝vip:吸毒也行//@roc张roc://@圆润女郎521:转发微博<br><br>RE: 我敢打赌，任志强在接下来的一段时间里，肯定会去嫖娼。<br><img src="http://ww1.sinaimg.cn/large/e661612cgw1f1hghs4w37j20fa0a6t9m.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
