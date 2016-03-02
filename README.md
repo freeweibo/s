@@ -38,6 +38,12 @@
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3948531054504369" target="freeweibo-mirror">葛剑雄昨晚上在微博上发声明为自己辩驳。早上打开，评论已达四五…</a>
+</h2>
+<p>葛剑雄昨晚上在微博上发声明为自己辩驳。早上打开，评论已达四五千。但不仅不能评论，也看不到评论，更不能转发了。我就知道有这一手，所以在凌晨时分截图了下来。 我相信这是一份很有参考价值的资料。@谢晖- @章诒和 @龚晓跃 @十年砍柴<br><img src="http://ww2.sinaimg.cn/large/8acfa2adjw1f1ibmdkbm7j20jx0woq80.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3948507306565915" target="freeweibo-mirror">SPAM 感觉海尔自动洗头机 搓背机 卸妆机 也快搞出来了/…</a>
 </h2>
 <p>SPAM 感觉海尔自动洗头机 搓背机 卸妆机 也快搞出来了//@这是一个很高冷的ID:卧槽 //@乊A乊永琪我们说好的姓福呢么么:海尔的攻城狮真有意思 //@一只野生的冰淇淋: 洗澡机都来了，洗头机还会远么 //@西川夜子_偷得半日闲:卧槽//@症候来时墙头多:卧槽真的出了！</p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3948366637265438" target="freeweibo-mirror">SPAM 很淳朴的一个妹纸[爱你]喜欢她，并不是因为她多美，…</a>
 </h2>
 <p>SPAM 很淳朴的一个妹纸[爱你]喜欢她，并不是因为她多美，而是因为她家的花茶[哈哈]非常棒，强烈推荐哦[心]</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3948365839968540" target="freeweibo-mirror">//@腾晓东:老雷讲得很理性：你们折腾吧，反正又不关西方P事…</a>
-</h2>
-<p>//@腾晓东:老雷讲得很理性：你们折腾吧，反正又不关西方P事。[酷]<br><br>RE: 外国人谈任志强事件。。[吃惊]#最抽疯的视频#   http://t.cn/RGWswTg .</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
