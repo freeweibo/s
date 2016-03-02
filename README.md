@@ -66,7 +66,7 @@
 </h2>
 <p>天下是天下人的天下 //@花石頭e:没说错一句话<br><br>RE: 任志强:江山不是打来的，江山一直都在，江山是属于13亿中国人民的，每一个中国人从一出生开始即天然拥有这个国家的股份 不论山川河流、石油矿产、自然资源，还是中国人民共同创造的财富，共产党都只是代为管理与分配，作为中国人民的一份子，我有权要求共产党端正态度，对我的股权负责，对子孙后代负责<br><img src="http://ww4.sinaimg.cn/large/006cWHKejw1f1h4i25pz0j30go0qoq46.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3948371088154986" target="freeweibo-mirror">//@逆风蝴蝶:我看是聚众赌博。 //@樊德安:还可能参与了…</a>
 </h2>
@@ -126,19 +126,19 @@
 </h2>
 <p>信吗？当然不信！[笑哈哈]<br><br>RE: #南方系问题# 无论怎瞧，都对这《处理决定》落款“南方报业集团委员会”前的“中共”二字感到别扭,这么明显政治对抗,说成是“缺乏政治敏感”,把责任归罪于读者“网上恶意解读”!谁信这家报系姓党么？谁信这家报系改过自新么？谁信这家报系不是迫于压力以退为进么？反正@健康媒体王炎 不信,叶色也不信。<br><img src="http://ww1.sinaimg.cn/large/79594e60gw1f1hs669p44j20hs2z77wh.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3948364548295259" target="freeweibo-mirror">SPAM 小心！//@子午侠士:[笑cry]//@良知在神州…</a>
 </h2>
 <p>SPAM 小心！//@子午侠士:[笑cry]//@良知在神州01:/[笑cry]/@地瓜熊老六:[笑cry]→_→//@Stupidfrog:@南方人物周刊 我觉得“小心  潘石屹”是亮点。。。</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3948364523369113" target="freeweibo-mirror">SPAM 挂错了档？[思考] //@陶景洲: //@炜哥76…</a>
 </h2>
 <p>SPAM 挂错了档？[思考] //@陶景洲: //@炜哥764201:可笑！可悲！可怕！<br><br>RE: 这是倒车过程中发生的事故[哈哈]<br><img src="http://ww2.sinaimg.cn/large/006o34Figw1f1hljdz1dwj30i20gn0uf.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p>
 <table>
     <tr>
