@@ -30,7 +30,7 @@
 </h2>
 <p>致2016全国“两会”的公开信：全国人大代表、政协委员并告全体国民： 在今年全国“两会”召开之际，根据《中华人民共和国宪法》第二条“中华人民共和国的一切权力属于人民”、第五条“中华人民...文字版>> http://t.cn/RGlEzAg （新浪长微博>> http://t.cn/zOXAaic）<br><img src="http://ww1.sinaimg.cn/large/72276697jw1f1ihz9ccmlj20c86g91kx.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3948573420964753" target="freeweibo-mirror">//@嘉善老顾: [偷笑]//@悬壶问茶:@南方人物周刊  …</a>
 </h2>
