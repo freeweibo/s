@@ -126,7 +126,7 @@
 </h2>
 <p>记者设藏头诗被开除公职<br><img src="http://ww1.sinaimg.cn/large/5eac8cf4jw1f1irfwu0xhj20ci0m8mz5.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3948663346432346" target="freeweibo-mirror">SPAM 特别喜欢靠自己的女生 加她让她带着你一起 努力[心…</a>
 </h2>
