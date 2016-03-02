@@ -108,31 +108,31 @@
 </h2>
 <p>//@喷嚏网铂程: //@阑夕:出处：中青报2011年的冰点特稿   http://t.cn/Sq5dcP</p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3948670875620095" target="freeweibo-mirror">SPAM 为什么 //@何三畏:为什么这么小气，好东西不给别…</a>
 </h2>
 <p>SPAM 为什么 //@何三畏:为什么这么小气，好东西不给别人分享？<br><br>RE: 好东西关起门吃独食，很不好！<br><img src="http://ww2.sinaimg.cn/large/485f83dejw1f1hereowexj20hs0vkgon.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3948670862729751" target="freeweibo-mirror">SPAM [哈哈]//@摸着石头过河---水太深: //@1…</a>
 </h2>
 <p>SPAM [哈哈]//@摸着石头过河---水太深: //@1根稻草W://@温斯顿de马甲张然: //@高小曜://@云台二十五将: //@三番转世仁波切://@封神祭二十一叔://@昊空爱操垬:[哈哈]</p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3948670393603886" target="freeweibo-mirror">[衰]//@李翔196811: //@一游的空间://@上海…</a>
 </h2>
 <p>[衰]//@李翔196811: //@一游的空间://@上海访民遭遇警察: //@鸿哥2010:转发微博</p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3948669985696824" target="freeweibo-mirror">//@法律人童朝平: //@天天做梦zyp: //@山高路远…</a>
 </h2>
 <p>//@法律人童朝平: //@天天做梦zyp: //@山高路远N://@八斗愚公://@见雨听风N://@-BlackFlash-://@杜芝富://@圆润女郎521:[围观]//@北京论坛百姓说: [围观][围观]<br><br>RE: 底层人士就别去攻击任志强了，能帮你说句公道话的中国名人已经凤毛麟角了…………不管党媒如何抹黑，任志强都是中国少数有良知的公共知识分子；人家有钱、有名完全可以潇洒人生，不理世事、对吧？……不要被官方喉舌忽悠、而不知好坏，黑白不分…………象任志强这样有銭有名有人性有良知的知识分子，在...全文： http://m.weibo.cn/5458433968/3948552088518777...全文： http://m.weibo.cn/5458433968/3948552088518777<br><img src="http://ww2.sinaimg.cn/large/005Xp21yjw1f1ie10e6jwj30g8093dgg.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3948668656467091" target="freeweibo-mirror">记者设藏头诗被开除公职</a>
 </h2>
