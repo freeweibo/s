@@ -24,7 +24,7 @@
 </h2>
 <p>SPAM #北京突发#【这是欢迎谁呀[拜拜]】@Dr零零柒：首都机场T2航站楼有人放鞭炮！已被警察叔叔带走…<br><img src="http://ww2.sinaimg.cn/large/9d8a5ea1jw1f1ik8z55u3j20c80gbt9p.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3948586259346028" target="freeweibo-mirror">致2016全国“两会”的公开信：全国人大代表、政协委员并告全…</a>
 </h2>
@@ -72,7 +72,7 @@
 </h2>
 <p>葛剑雄昨晚上在微博上发声明为自己辩驳。早上打开，评论已达四五千。但不仅不能评论，也看不到评论，更不能转发了。我就知道有这一手，所以在凌晨时分截图了下来。 我相信这是一份很有参考价值的资料。@谢晖- @章诒和 @龚晓跃 @十年砍柴<br><img src="http://ww2.sinaimg.cn/large/8acfa2adjw1f1ibmdkbm7j20jx0woq80.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3948507306565915" target="freeweibo-mirror">SPAM 感觉海尔自动洗头机 搓背机 卸妆机 也快搞出来了/…</a>
 </h2>
