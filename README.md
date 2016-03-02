@@ -108,7 +108,7 @@
 </h2>
 <p>#全国两会#个人认为：申纪兰同志，87岁高龄，没有文化，连任12届全国人大代表，已不具备参政议政能力，严重不合适！！！-----《山西团代表抵京 申纪兰第50次参加全国人代会》http://t.cn/RGlHsdd<br><img src="http://ww2.sinaimg.cn/large/a4bc2044jw1f1ij5xpwwrj20sg0ibdhq.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3948586330696850" target="freeweibo-mirror">1979年，美国驻华联络处邀请了北京五家媒体访美交流，第一站…</a>
 </h2>
