@@ -30,7 +30,7 @@
 </h2>
 <p>SPAM 很喜欢他家的风格，喜欢的可以加V：845110991</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3948676592755627" target="freeweibo-mirror">SPAM 我要变瘦[色]  想瘦找她@美人邦_ickle</a>
 </h2>
