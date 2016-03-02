@@ -42,7 +42,7 @@
 </h2>
 <p>SPAM 真的？？？？//@温良俭让1: [哈哈][哈哈] //@张智勇律师:[吃惊]<br><br>RE: 记者设藏头诗被开除公职<br><img src="http://ww1.sinaimg.cn/large/5eac8cf4jw1f1irfwu0xhj20ci0m8mz5.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3948717289812195" target="freeweibo-mirror">SPAM //@司马南:这篇评论比胡锡进评论要犀利，南方报系…</a>
 </h2>
