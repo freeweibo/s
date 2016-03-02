@@ -60,7 +60,7 @@
 </h2>
 <p>SPAM //@北村:啥事儿？ //@媒体人张强:那一版我看了，记得是深圳版//@曹凡:[围观]<br><br>RE: 犯了什么事儿？<br><img src="http://ww1.sinaimg.cn/large/5869d5a8jw1f1hr8294f1j20hs0vkadq.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3948377203431305" target="freeweibo-mirror">//@静娅_:老雷最后一个表情很有意味，有点替中国惋惜的味道…</a>
 </h2>
