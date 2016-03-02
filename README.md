@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3948586259346028" target="freeweibo-mirror">致2016全国“两会”的公开信：全国人大代表、政协委员并告全…</a>
+</h2>
+<p>致2016全国“两会”的公开信：全国人大代表、政协委员并告全体国民： 在今年全国“两会”召开之际，根据《中华人民共和国宪法》第二条“中华人民共和国的一切权力属于人民”、第五条“中华人民...文字版>> http://t.cn/RGlEzAg （新浪长微博>> http://t.cn/zOXAaic）<br><img src="http://ww1.sinaimg.cn/large/72276697jw1f1ihz9ccmlj20c86g91kx.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3948573420964753" target="freeweibo-mirror">//@嘉善老顾: [偷笑]//@悬壶问茶:@南方人物周刊  …</a>
 </h2>
 <p>//@嘉善老顾: [偷笑]//@悬壶问茶:@南方人物周刊  公安部门要订一本啊，照封面抓人多省力。<br><br>RE: 资本盛宴，老百姓只是炮灰！从这些为资本权贵站台的媒体中，人们可以看到一个赤裸裸的圈子，这个圈子割裂了中国 。只是，在包装的时候，它们没有忘记为自己披上民主、自由的外衣。提醒：先别来喷屎，因为，老子就出身南方系，对它们搞的埋墙沉船，我比你有发言权！想骂我？可以，先回答我图6中的问题！<br><img src="http://ww3.sinaimg.cn/large/65f4def0jw1f1ibz2jsjij20ku112q9g.jpg"></p>
@@ -60,7 +66,7 @@
 </h2>
 <p>葛剑雄昨晚上在微博上发声明为自己辩驳。早上打开，评论已达四五千。但不仅不能评论，也看不到评论，更不能转发了。我就知道有这一手，所以在凌晨时分截图了下来。 我相信这是一份很有参考价值的资料。@谢晖- @章诒和 @龚晓跃 @十年砍柴<br><img src="http://ww2.sinaimg.cn/large/8acfa2adjw1f1ibmdkbm7j20jx0woq80.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3948507306565915" target="freeweibo-mirror">SPAM 感觉海尔自动洗头机 搓背机 卸妆机 也快搞出来了/…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3948369057530115" target="freeweibo-mirror">//@孙黎卿律师://@黄奎ART:卧槽，这历史哪是在倒车哦…</a>
 </h2>
 <p>//@孙黎卿律师://@黄奎ART:卧槽，这历史哪是在倒车哦，分明是向后飘逸超速 //@熊华GG:倒霉到家了。//@写字李华良:转发微博<br><br>RE: 唉～<br><img src="http://ww3.sinaimg.cn/large/92c79538jw1f1hnzb6w1ij20cj0m8jtp.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3948368437399259" target="freeweibo-mirror">[哈哈][笑cry][笑cry]</a>
-</h2>
-<p>[哈哈][笑cry][笑cry]<br><br>RE: 缺乏政治敏感的严重后果。<br><img src="http://ww2.sinaimg.cn/large/8603d4cfgw1f1hnphano1j20c80b9jsg.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
