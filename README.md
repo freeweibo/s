@@ -84,7 +84,7 @@
 </h2>
 <p>#全国两会#个人认为：申纪兰同志，87岁高龄，没有文化，连任12届全国人大代表，已不具备参政议政能力，严重不合适！！！-----《山西团代表抵京 申纪兰第50次参加全国人代会》http://t.cn/RGlHsdd<br><img src="http://ww2.sinaimg.cn/large/a4bc2044jw1f1ij5xpwwrj20sg0ibdhq.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3948586330696850" target="freeweibo-mirror">1979年，美国驻华联络处邀请了北京五家媒体访美交流，第一站…</a>
 </h2>
@@ -120,7 +120,7 @@
 </h2>
 <p>底层人士就别去攻击任志强了，能帮你说句公道话的中国名人已经凤毛麟角了…………不管党媒如何抹黑，任志强都是中国少数有良知的公共知识分子；人家有钱、有名完全可以潇洒人生，不理世事、对吧？……不要被官方喉舌忽悠、而不知好坏，黑白不分…………象任志强这样有銭有名有人性有良知的知识分子，在...全文： http://m.weibo.cn/5458433968/3948552088518777...全文： http://m.weibo.cn/5458433968/3948552088518777<br><img src="http://ww2.sinaimg.cn/large/005Xp21yjw1f1ie10e6jwj30g8093dgg.jpg"></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3948548440062110" target="freeweibo-mirror">//@施力勤:毛死后，反革命首犯江青下场悲惨 //@Lily…</a>
 </h2>
