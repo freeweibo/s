@@ -36,7 +36,7 @@
 </h2>
 <p>//@静娅_:老雷最后一个表情很有意味，有点替中国惋惜的味道。//@石讷06: 说得清晰而中肯。推荐！<br><br>RE: 外国人谈任志强事件。。[吃惊]#最抽疯的视频#   http://t.cn/RGWswTg .</p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3948375072354190" target="freeweibo-mirror">境外敌对势力。//@黄土路: 人民日报，快来批判他。//@赵…</a>
 </h2>
@@ -78,13 +78,13 @@
 </h2>
 <p>我看是聚众赌博。 //@樊德安:还可能参与了分裂党中央的罪恶活动。[怒]//@虾拼O2OWIFI: 去少林寺把主持換了吧[哈哈]//@摩娅:偷漏税最靠谱了//@焊武帝vip:吸毒也行//@roc张roc://@圆润女郎521:转发微博<br><br>RE: 我敢打赌，任志强在接下来的一段时间里，肯定会去嫖娼。<br><img src="http://ww1.sinaimg.cn/large/e661612cgw1f1hghs4w37j20fa0a6t9m.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3948369431126875" target="freeweibo-mirror">//@腾讯微博的王嘉://@寒秋孤影-2018://@腾晓东…</a>
 </h2>
 <p>//@腾讯微博的王嘉://@寒秋孤影-2018://@腾晓东:老雷讲得很理性：你们折腾吧，反正又不关西方P事。[酷]<br><br>RE: 外国人谈任志强事件。。[吃惊]#最抽疯的视频#   http://t.cn/RGWswTg .</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3948369057530115" target="freeweibo-mirror">//@孙黎卿律师://@黄奎ART:卧槽，这历史哪是在倒车哦…</a>
 </h2>
