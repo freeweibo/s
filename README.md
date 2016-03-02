@@ -74,6 +74,12 @@
 <p>
 	<small> ============== 4小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3948668656467091" target="freeweibo-mirror">记者设藏头诗被开除公职</a>
+</h2>
+<p>记者设藏头诗被开除公职<br><img src="http://ww1.sinaimg.cn/large/5eac8cf4jw1f1irfwu0xhj20ci0m8mz5.jpg"></p>
+<p>
+	<small> ============== 5小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3948663346432346" target="freeweibo-mirror">SPAM 特别喜欢靠自己的女生 加她让她带着你一起 努力[心…</a>
 </h2>
 <p>SPAM 特别喜欢靠自己的女生 加她让她带着你一起 努力[心][心]</p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3948573420964753" target="freeweibo-mirror">//@嘉善老顾: [偷笑]//@悬壶问茶:@南方人物周刊  …</a>
 </h2>
 <p>//@嘉善老顾: [偷笑]//@悬壶问茶:@南方人物周刊  公安部门要订一本啊，照封面抓人多省力。<br><br>RE: 资本盛宴，老百姓只是炮灰！从这些为资本权贵站台的媒体中，人们可以看到一个赤裸裸的圈子，这个圈子割裂了中国 。只是，在包装的时候，它们没有忘记为自己披上民主、自由的外衣。提醒：先别来喷屎，因为，老子就出身南方系，对它们搞的埋墙沉船，我比你有发言权！想骂我？可以，先回答我图6中的问题！<br><img src="http://ww3.sinaimg.cn/large/65f4def0jw1f1ibz2jsjij20ku112q9g.jpg"></p>
-<p>
-	<small> ============== 11小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3948566064335108" target="freeweibo-mirror">SPAM 我曾经尊敬过的葛剑雄教授啊！真的太失望了！ //@…</a>
-</h2>
-<p>SPAM 我曾经尊敬过的葛剑雄教授啊！真的太失望了！ //@谢晖-:有心人，好！<br><br>RE: 葛剑雄昨晚上在微博上发声明为自己辩驳。早上打开，评论已达四五千。但不仅不能评论，也看不到评论，更不能转发了。我就知道有这一手，所以在凌晨时分截图了下来。 我相信这是一份很有参考价值的资料。@谢晖- @章诒和 @龚晓跃 @十年砍柴<br><img src="http://ww2.sinaimg.cn/large/8acfa2adjw1f1ibmdkbm7j20jx0woq80.jpg"></p>
 <p>
 	<small> ============== 11小时前</small>
 </p>
