@@ -48,7 +48,7 @@
 </h2>
 <p>以前最多的是敌特好吧?//@喷嚏网铂程://@逆风蝴蝶:我看是聚众赌博。 //@樊德安:还可能参与了分裂党中央的罪恶活动。[怒]//@虾拼O2OWIFI: 去少林寺把主持換了吧[哈哈]//@摩娅:偷漏税最靠谱了//@焊武帝vip:吸毒也行//@roc张roc://@圆润女郎521:转发微博<br><br>RE: 我敢打赌，任志强在接下来的一段时间里，肯定会去嫖娼。<br><img src="http://ww1.sinaimg.cn/large/e661612cgw1f1hghs4w37j20fa0a6t9m.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3948372580662131" target="freeweibo-mirror">天下是天下人的天下 //@花石頭e:没说错一句话</a>
 </h2>
