@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3948566064335108" target="freeweibo-mirror">SPAM 我曾经尊敬过的葛剑雄教授啊！真的太失望了！ //@…</a>
+</h2>
+<p>SPAM 我曾经尊敬过的葛剑雄教授啊！真的太失望了！ //@谢晖-:有心人，好！<br><br>RE: 葛剑雄昨晚上在微博上发声明为自己辩驳。早上打开，评论已达四五千。但不仅不能评论，也看不到评论，更不能转发了。我就知道有这一手，所以在凌晨时分截图了下来。 我相信这是一份很有参考价值的资料。@谢晖- @章诒和 @龚晓跃 @十年砍柴<br><img src="http://ww2.sinaimg.cn/large/8acfa2adjw1f1ibmdkbm7j20jx0woq80.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3948557457856368" target="freeweibo-mirror">不懂报纸流程！但工作经验判断要先杀“四个兜的”！</a>
 </h2>
 <p>不懂报纸流程！但工作经验判断要先杀“四个兜的”！<br><br>RE: 删好快呀，幸亏先生做了截图。这样的微博内容会惹恼谁呢？会让谁气急败坏呢！以“咔嚓司马南”来配合南方报系“以技术事故来掩盖政治图谋”，很有效率嘛。//@gaga6792:新浪不是党媒，确实不姓党，严格监视司马先生的微博，司马说到关键的微博，会被立马删除，以最大限度的维护公知……<br><img src="http://ww2.sinaimg.cn/large/4b4e0e98jw1f1icu3dfd2j20ku11277r.jpg"></p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3948365839968540" target="freeweibo-mirror">//@腾晓东:老雷讲得很理性：你们折腾吧，反正又不关西方P事…</a>
 </h2>
 <p>//@腾晓东:老雷讲得很理性：你们折腾吧，反正又不关西方P事。[酷]<br><br>RE: 外国人谈任志强事件。。[吃惊]#最抽疯的视频#   http://t.cn/RGWswTg .</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3948364934967386" target="freeweibo-mirror">信吗？当然不信！[笑哈哈]</a>
-</h2>
-<p>信吗？当然不信！[笑哈哈]<br><br>RE: #南方系问题# 无论怎瞧，都对这《处理决定》落款“南方报业集团委员会”前的“中共”二字感到别扭,这么明显政治对抗,说成是“缺乏政治敏感”,把责任归罪于读者“网上恶意解读”!谁信这家报系姓党么？谁信这家报系改过自新么？谁信这家报系不是迫于压力以退为进么？反正@健康媒体王炎 不信,叶色也不信。<br><img src="http://ww1.sinaimg.cn/large/79594e60gw1f1hs669p44j20hs2z77wh.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
