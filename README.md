@@ -36,7 +36,7 @@
 </h2>
 <p>SPAM 我曾经尊敬过的葛剑雄教授啊！真的太失望了！ //@谢晖-:有心人，好！<br><br>RE: 葛剑雄昨晚上在微博上发声明为自己辩驳。早上打开，评论已达四五千。但不仅不能评论，也看不到评论，更不能转发了。我就知道有这一手，所以在凌晨时分截图了下来。 我相信这是一份很有参考价值的资料。@谢晖- @章诒和 @龚晓跃 @十年砍柴<br><img src="http://ww2.sinaimg.cn/large/8acfa2adjw1f1ibmdkbm7j20jx0woq80.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3948557457856368" target="freeweibo-mirror">不懂报纸流程！但工作经验判断要先杀“四个兜的”！</a>
 </h2>
