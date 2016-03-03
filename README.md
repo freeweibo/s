@@ -36,7 +36,7 @@
 </h2>
 <p>//@湖畔論衡: 嗯，说的是毛。 //@DopeyTom:[思考]//@梅虔: 博主说的是文革时期。[笑cry]//@中国老跌: //@法律及其价值://@roger905: 真敢说！<br><br>RE: 千人之诺诺，不如一士之谔谔；亿人之奋斗，不敌一人之胡搞。</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3949084760927967" target="freeweibo-mirror">SPAM 博主地命海心啊！</a>
 </h2>
@@ -114,13 +114,13 @@
 </h2>
 <p>SPAM 本来就是，维稳行情而已<br><br>RE: 今天第一天就不省心。<br><img src="http://ww2.sinaimg.cn/large/7c1d7ba8gw1f1jnqry7i5j20m80go41d.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3948950643537165" target="freeweibo-mirror">SPAM 只有你想不到！//@洪达亮: //@财联社APP:…</a>
 </h2>
 <p>SPAM 只有你想不到！//@洪达亮: //@财联社APP:[doge]<br><br>RE: 今天第一天就不省心。<br><img src="http://ww2.sinaimg.cn/large/7c1d7ba8gw1f1jnqry7i5j20m80go41d.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3948949905444884" target="freeweibo-mirror">今天第一天就不省心。</a>
 </h2>
