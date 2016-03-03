@@ -24,7 +24,7 @@
 </h2>
 <p>SPAM //@婚恋哲学:强烈推荐这位美女调养师，人很专业，也很nice哦。有需要的亲们赶紧的哦~~</p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3948722632999574" target="freeweibo-mirror">SPAM //@西征木兰://@司马南:这篇评论比胡锡进评论…</a>
 </h2>
@@ -72,7 +72,7 @@
 </h2>
 <p>SPAM 手工熬制的红糖，传承古法，独具匠心。民间手艺有人传承，值得庆幸。支持，帮转！</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3948698578870949" target="freeweibo-mirror">SPAM 很喜欢他家的风格，喜欢的可以加V：84511099…</a>
 </h2>
