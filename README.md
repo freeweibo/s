@@ -42,7 +42,7 @@
 </h2>
 <p>今天第一天就不省心。<br><img src="http://ww2.sinaimg.cn/large/7c1d7ba8gw1f1jnqry7i5j20m80go41d.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3948944221865039" target="freeweibo-mirror">//@俄罗斯琥珀蜜蜡888: 转发微博</a>
 </h2>
