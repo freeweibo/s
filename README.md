@@ -78,7 +78,7 @@
 </h2>
 <p>SPAM 很喜欢他家的风格，喜欢的可以加V：845110991</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3948692790973389" target="freeweibo-mirror">SPAM [嘻嘻]高丽义和拳 //@苏宁马越海:明白了。砸烂…</a>
 </h2>
