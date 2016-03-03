@@ -20,6 +20,18 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3948953974478777" target="freeweibo-mirror">SPAM 66666666。。。。。</a>
+</h2>
+<p>SPAM 66666666。。。。。<br><br>RE: 今天第一天就不省心。<br><img src="http://ww2.sinaimg.cn/large/7c1d7ba8gw1f1jnqry7i5j20m80go41d.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3948951542153037" target="freeweibo-mirror">SPAM 本来就是，维稳行情而已</a>
+</h2>
+<p>SPAM 本来就是，维稳行情而已<br><br>RE: 今天第一天就不省心。<br><img src="http://ww2.sinaimg.cn/large/7c1d7ba8gw1f1jnqry7i5j20m80go41d.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3948950643537165" target="freeweibo-mirror">SPAM 只有你想不到！//@洪达亮: //@财联社APP:…</a>
 </h2>
 <p>SPAM 只有你想不到！//@洪达亮: //@财联社APP:[doge]<br><br>RE: 今天第一天就不省心。<br><img src="http://ww2.sinaimg.cn/large/7c1d7ba8gw1f1jnqry7i5j20m80go41d.jpg"></p>
@@ -108,35 +120,23 @@
 </h2>
 <p>【官方打造“两会”互联网舆论环境】网络大V任志强的新浪、腾讯微博2月28日遭到正式封杀。官媒发表署名“国平”的文章称，此举赢得“网民一片叫好“，“体现了人心向背、力量对比，反映了党心和民意”。而任志强的3700多万微博粉丝则好像一下子“人间蒸发”了。这几天中国各类网站，“讨任”之言比比皆...全文： http://m.weibo.cn/1654134123/3948916157801326<br><img src="http://ww3.sinaimg.cn/large/6298156bgw1f1jg1k3hauj20b408tgmq.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3948916066140776" target="freeweibo-mirror">听说是被举报的? //@哈罗恩_Torrista:</a>
 </h2>
 <p>听说是被举报的? //@哈罗恩_Torrista:<br><br>RE: 【《南都》 副总编及编辑被处分开除】南方报业集团下属的《南方都市报》深圳地方版2月20日的排版中，出现疑似藏头文字“媒体姓党、魂归大海”，南方报业集团因此对相关责任人严厉惩处，在内部文件上称版面出现“严重导向事故”，开除有关编辑并行政处分副总编辑。http://t.cn/RGjXdX1<br><img src="http://ww1.sinaimg.cn/large/6298156bgw1f1jfw2hrbej20a20axmyx.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3948915407381963" target="freeweibo-mirror">//@仝宗锦:既然认为是"个别人恶意解读"，那么为何要处分编…</a>
 </h2>
 <p>//@仝宗锦:既然认为是"个别人恶意解读"，那么为何要处分编辑?难道编辑只有事先洞悉那么多人的种种可能恶意才叫"具有政治敏感"?如果不可能事先全部洞悉，那么编辑何错之有?如此处罚和"清风不识字，何故乱翻书?"作者被杀头的处罚逻辑有什么本质区别?<br><br>RE: 【《南都》 副总编及编辑被处分开除】南方报业集团下属的《南方都市报》深圳地方版2月20日的排版中，出现疑似藏头文字“媒体姓党、魂归大海”，南方报业集团因此对相关责任人严厉惩处，在内部文件上称版面出现“严重导向事故”，开除有关编辑并行政处分副总编辑。http://t.cn/RGjXdX1<br><img src="http://ww1.sinaimg.cn/large/6298156bgw1f1jfw2hrbej20a20axmyx.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3948912882796181" target="freeweibo-mirror">我的天……</a>
 </h2>
 <p>我的天……<br><br>RE: 【《南都》 副总编及编辑被处分开除】南方报业集团下属的《南方都市报》深圳地方版2月20日的排版中，出现疑似藏头文字“媒体姓党、魂归大海”，南方报业集团因此对相关责任人严厉惩处，在内部文件上称版面出现“严重导向事故”，开除有关编辑并行政处分副总编辑。http://t.cn/RGjXdX1<br><img src="http://ww1.sinaimg.cn/large/6298156bgw1f1jfw2hrbej20a20axmyx.jpg"></p>
-<p>
-	<small> ============== 5小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3948910680511302" target="freeweibo-mirror">When Paranoia reaches the poin…</a>
-</h2>
-<p>When Paranoia reaches the point of threatening overkill, it tends to dress itself up as Confidence. http://t.cn/RGjYebk<br><br>RE: 【《南都》 副总编及编辑被处分开除】南方报业集团下属的《南方都市报》深圳地方版2月20日的排版中，出现疑似藏头文字“媒体姓党、魂归大海”，南方报业集团因此对相关责任人严厉惩处，在内部文件上称版面出现“严重导向事故”，开除有关编辑并行政处分副总编辑。http://t.cn/RGjXdX1<br><img src="http://ww1.sinaimg.cn/large/6298156bgw1f1jfw2hrbej20a20axmyx.jpg"></p>
-<p>
-	<small> ============== 5小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3948908268922907" target="freeweibo-mirror">//@北方猎手:这家零点调查研究集团多少知道一些，老板是@袁…</a>
-</h2>
-<p>//@北方猎手:这家零点调查研究集团多少知道一些，老板是@袁岳 经常上电视露面。最牛X的是能承接到政府项目，如政府给居民燃气补贴，是通过零点调查公司发放的。住户用手机发送燃气数字后就给燃气补贴——手机回复数字拿补贴，调查就OK了，这种调查很专业吧？//@张晨初艺术空间: 转发微博</p>
 <p>
 	<small> ============== 5小时前</small>
 </p>
