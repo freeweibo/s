@@ -24,7 +24,7 @@
 </h2>
 <p>SPAM //@婚恋哲学:强烈推荐这位美女调养师，人很专业，也很nice哦。有需要的亲们赶紧的哦~~</p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3948722632999574" target="freeweibo-mirror">SPAM //@西征木兰://@司马南:这篇评论比胡锡进评论…</a>
 </h2>
@@ -90,7 +90,7 @@
 </h2>
 <p>SPAM 人民军已经准备好了，美帝放马过来吧！（非专业人士请勿模仿）  http://t.cn/RGlkyMU</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3948680589744111" target="freeweibo-mirror">SPAM 【八分斋：他们为什么要把内部处罚放到网上？】某报业…</a>
 </h2>
