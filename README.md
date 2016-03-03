@@ -42,7 +42,7 @@
 </h2>
 <p>SPAM 真的？？？？//@温良俭让1: [哈哈][哈哈] //@张智勇律师:[吃惊]<br><br>RE: 记者设藏头诗被开除公职<br><img src="http://ww1.sinaimg.cn/large/5eac8cf4jw1f1irfwu0xhj20ci0m8mz5.jpg"></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3948717289812195" target="freeweibo-mirror">SPAM //@司马南:这篇评论比胡锡进评论要犀利，南方报系…</a>
 </h2>
@@ -96,7 +96,7 @@
 </h2>
 <p>SPAM 【八分斋：他们为什么要把内部处罚放到网上？】某报业的内部处罚文件，顺利的在网上掀起了风浪，为什么要放上网晒？ 鬼才相信这里面没鬼。比版面的望文生义更严重的，恰恰是把这个决定放到网上，这才应该是有司应该警惕的！你打他的屁股他打你的脸，谁吃亏就显而易见了。 http://t.cn/RGjZVpT</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3948676592755627" target="freeweibo-mirror">SPAM 我要变瘦[色]  想瘦找她@美人邦_ickle</a>
 </h2>
