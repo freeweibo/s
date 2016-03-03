@@ -120,7 +120,7 @@
 </h2>
 <p>//@湖畔論衡: 嗯，说的是毛。 //@DopeyTom:[思考]//@梅虔: 博主说的是文革时期。[笑cry]//@中国老跌: //@法律及其价值://@roger905: 真敢说！<br><br>RE: 千人之诺诺，不如一士之谔谔；亿人之奋斗，不敌一人之胡搞。</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3949084760927967" target="freeweibo-mirror">SPAM 博主地命海心啊！</a>
 </h2>
