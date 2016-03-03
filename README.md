@@ -48,7 +48,7 @@
 </h2>
 <p>人治的结果不可避免地会走向诛心，诛心是会上瘾的//@老杜找乐儿:这TMD就是文革<br><br>RE: 【《南都》 副总编及编辑被处分开除】南方报业集团下属的《南方都市报》深圳地方版2月20日的排版中，出现疑似藏头文字“媒体姓党、魂归大海”，南方报业集团因此对相关责任人严厉惩处，在内部文件上称版面出现“严重导向事故”，开除有关编辑并行政处分副总编辑。http://t.cn/RGjXdX1<br><img src="http://ww1.sinaimg.cn/large/6298156bgw1f1jfw2hrbej20a20axmyx.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3948916066140776" target="freeweibo-mirror">听说是被举报的? //@哈罗恩_Torrista:</a>
 </h2>
