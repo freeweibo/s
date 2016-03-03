@@ -78,7 +78,7 @@
 </h2>
 <p>SPAM 你的名字，我的心事。只有短短几个字，却贯穿了我的一生。把它戴在心间，就是我最深情的告白。</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3949069590098760" target="freeweibo-mirror">SPAM //@婚恋哲学:这位美女调养师，人很专业，也很ni…</a>
 </h2>
@@ -126,7 +126,7 @@
 </h2>
 <p>今天第一天就不省心。<br><img src="http://ww2.sinaimg.cn/large/7c1d7ba8gw1f1jnqry7i5j20m80go41d.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3948944221865039" target="freeweibo-mirror">//@俄罗斯琥珀蜜蜡888: 转发微博</a>
 </h2>
