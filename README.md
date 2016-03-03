@@ -90,7 +90,7 @@
 </h2>
 <p>When Paranoia reaches the point of threatening overkill, it tends to dress itself up as Confidence. http://t.cn/RGjYebk<br><br>RE: 【《南都》 副总编及编辑被处分开除】南方报业集团下属的《南方都市报》深圳地方版2月20日的排版中，出现疑似藏头文字“媒体姓党、魂归大海”，南方报业集团因此对相关责任人严厉惩处，在内部文件上称版面出现“严重导向事故”，开除有关编辑并行政处分副总编辑。http://t.cn/RGjXdX1<br><img src="http://ww1.sinaimg.cn/large/6298156bgw1f1jfw2hrbej20a20axmyx.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3948908268922907" target="freeweibo-mirror">//@北方猎手:这家零点调查研究集团多少知道一些，老板是@袁…</a>
 </h2>
@@ -120,13 +120,13 @@
 </h2>
 <p>病入膏肓//@王小渔在海边:是不是我出国太久，中文退步了。我真没看懂这排版出了啥问题[衰]这比文字狱还厉害呀[晕]<br><br>RE: 【《南都》 副总编及编辑被处分开除】南方报业集团下属的《南方都市报》深圳地方版2月20日的排版中，出现疑似藏头文字“媒体姓党、魂归大海”，南方报业集团因此对相关责任人严厉惩处，在内部文件上称版面出现“严重导向事故”，开除有关编辑并行政处分副总编辑。 | 联合早报网 http://t.cn/RGjoI0C<br><img src="http://ww2.sinaimg.cn/large/68600ac9jw1f1jcuceq58j20b70go3ze.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3948895169725450" target="freeweibo-mirror">//@ECO中文网:不评论[蜡烛]</a>
 </h2>
 <p>//@ECO中文网:不评论[蜡烛]<br><br>RE: 【《南都》 副总编及编辑被处分开除】南方报业集团下属的《南方都市报》深圳地方版2月20日的排版中，出现疑似藏头文字“媒体姓党、魂归大海”，南方报业集团因此对相关责任人严厉惩处，在内部文件上称版面出现“严重导向事故”，开除有关编辑并行政处分副总编辑。http://t.cn/RGjXdX1<br><img src="http://ww1.sinaimg.cn/large/6298156bgw1f1jfw2hrbej20a20axmyx.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3948893215805696" target="freeweibo-mirror">[喵喵] //@ECO中文网:不评论[蜡烛]</a>
 </h2>
