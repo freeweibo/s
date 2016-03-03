@@ -84,7 +84,7 @@
 </h2>
 <p>我的天……<br><br>RE: 【《南都》 副总编及编辑被处分开除】南方报业集团下属的《南方都市报》深圳地方版2月20日的排版中，出现疑似藏头文字“媒体姓党、魂归大海”，南方报业集团因此对相关责任人严厉惩处，在内部文件上称版面出现“严重导向事故”，开除有关编辑并行政处分副总编辑。http://t.cn/RGjXdX1<br><img src="http://ww1.sinaimg.cn/large/6298156bgw1f1jfw2hrbej20a20axmyx.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3948910680511302" target="freeweibo-mirror">When Paranoia reaches the poin…</a>
 </h2>
