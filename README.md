@@ -66,7 +66,7 @@
 </h2>
 <p>SPAM 我在想，如何批斗老雷。对了，先表个态:打倒老雷！<br><br>RE: 分享视频 http://t.cn/RGj8UU9 .</p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3949192596461881" target="freeweibo-mirror">SPAM 我愿意。想瘦找她@美人邦创始人_翾翾 [爱你]</a>
 </h2>
