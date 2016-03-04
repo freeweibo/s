@@ -60,7 +60,7 @@
 </h2>
 <p>SPAM ❤️7号上午10点上❤️。粉色还是黑色？[doge]转并留言抽3个。<br><img src="http://ww2.sinaimg.cn/large/611f9d1bgw1f1l627iqdoj20zk0qo0y5.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3949420112502033" target="freeweibo-mirror">SPAM 小香黑色平底鞋也是这期的新品哦，去年年底几期一直搭…</a>
 </h2>
@@ -138,7 +138,7 @@
 </h2>
 <p>//@刘虎说: @甘肃发布 要发言。@甘肃检察 要作为。//@wxycng: //@埃玛Emma: @民主与法制网官方<br><br>RE: #武威抓捕三记者案#属典型的滥用职权，非法构陷。当地究竟打算怎样处理一直不公布，各位上会新闻同行别忘了向甘肃以及总局的代表、委员发问。<br><img src="http://ww3.sinaimg.cn/large/de7c883djw1f1kwlumlaej20q80yy476.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p>
 <table>
     <tr>
