@@ -24,7 +24,7 @@
 </h2>
 <p>[熊猫][熊猫][熊猫] //@Con30:哈哈哈哈哈哈 //@stamhe:政治局首先把你干了！//@朱孝顶律师:[赞][赞][赞]<br><br>RE: 宋平致信政治局，要求离退休老干部，必须公开财产和子女配偶财产和国籍。否则不被视作前领导人[鼓掌][鼓掌][鼓掌][鼓掌]<br><img src="http://ww3.sinaimg.cn/large/006kyQ0hgw1f1l1e8z0k1j30jg06v3zj.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3949429117483129" target="freeweibo-mirror">这才是真正的人民公仆！//@劉吉祥SOGO:[吃惊] //@…</a>
 </h2>
@@ -78,7 +78,13 @@
 </h2>
 <p>SPAM //@婚恋哲学: 这位美女调养师: 人很专业，也很nice 哦。有需要的亲们赶紧的哦!</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3949415188704098" target="freeweibo-mirror">大娘，醒醒，该举手了。</a>
+</h2>
+<p>大娘，醒醒，该举手了。<br><img src="http://ww1.sinaimg.cn/large/cfc95fc4gw1f1l56h54q8j20es0c7my8.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3949409912383556" target="freeweibo-mirror">支持！震撼！[围观][围观][围观]</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3949342554900044" target="freeweibo-mirror">SPAM 沪江开学季，哈哈哈，包邮哦亲！！</a>
 </h2>
 <p>SPAM 沪江开学季，哈哈哈，包邮哦亲！！</p>
-<p>
-	<small> ============== 7小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3949342412278757" target="freeweibo-mirror">SPAM 沪江开学季，包邮哦亲！！</a>
-</h2>
-<p>SPAM 沪江开学季，包邮哦亲！！</p>
 <p>
 	<small> ============== 7小时前</small>
 </p>
