@@ -36,7 +36,7 @@
 </h2>
 <p>公知是寂寞的，五毛是盲动的。//@司马平邦: 脑残。<br><br>RE: 最后一句: 现场没有一点掌声响起。[疑问][疑问][吃惊][吃惊]  俺给你 </p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3949302399120885" target="freeweibo-mirror">//@诛邪赤魔://@领秀芜湖://@中华文化传人：什么时候…</a>
 </h2>
@@ -90,13 +90,13 @@
 </h2>
 <p>【中纪委机关报为何刊文挺“纳谏”？】这篇题为《千人之诺诺，不如一士之谔谔》的文章，说的是历史，但在北京时政分析人士圈子内迅速引起巨大关注，有分析人士对本报形容此文背景“非比寻常”。该文以魏徵谏唐太宗故事为例，颇有为当今的“魏徵”说话、肯定“唐太宗”纳谏之意。http://t.cn/RGYDAq2<br><img src="http://ww4.sinaimg.cn/large/6298156bgw1f1kp0zuq8nj20ir0dkab2.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3949273828248553" target="freeweibo-mirror">?</a>
 </h2>
 <p>?<br><br>RE: 下图是否属实？若属实，还得回到我先前提到的如何看待任志强的三点想法上面。我个人还是老想法：在没有从党纪和国法两方面做出结论前，不应该封任志强的微博，这掩盖了更多真相，我更关注任的全部经历，而不是他的微博。——不管你持何种立场，你的观点应该经得起历史检验，暂继续淡看某方意态真底。<br><img src="http://ww4.sinaimg.cn/large/df1b0723gw1f1kou8szw0j20j60pkadb.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3949272950631347" target="freeweibo-mirror">下图是否属实？若属实，还得回到我先前提到的如何看待任志强的三…</a>
 </h2>
@@ -132,7 +132,7 @@
 </h2>
 <p>SPAM 我在想，如何批斗老雷。对了，先表个态:打倒老雷！<br><br>RE: 分享视频 http://t.cn/RGj8UU9 .</p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3949192596461881" target="freeweibo-mirror">SPAM 我愿意。想瘦找她@美人邦创始人_翾翾 [爱你]</a>
 </h2>
