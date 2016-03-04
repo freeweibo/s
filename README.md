@@ -78,7 +78,7 @@
 </h2>
 <p>刻意歪曲，央视姓党变成央视姓习。中宣部系统几名正副部级高官（包括一名政治局成员），以及已退休的几名副部级官员，已经被锁定调查。《王：又黑你了。习：你放手办他们》[嘘][嘘][嘘]<br><img src="http://ww4.sinaimg.cn/large/006kyQ0hgw1f1kf2ciwphj30go0bzaam.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3949181352265045" target="freeweibo-mirror">//@独自演奏f://@律师文摘://@职业女巫wicca:…</a>
 </h2>
