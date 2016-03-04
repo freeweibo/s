@@ -36,7 +36,13 @@
 </h2>
 <p>?<br><br>RE: 下图是否属实？若属实，还得回到我先前提到的如何看待任志强的三点想法上面。我个人还是老想法：在没有从党纪和国法两方面做出结论前，不应该封任志强的微博，这掩盖了更多真相，我更关注任的全部经历，而不是他的微博。——不管你持何种立场，你的观点应该经得起历史检验，暂继续淡看某方意态真底。<br><img src="http://ww4.sinaimg.cn/large/df1b0723gw1f1kou8szw0j20j60pkadb.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3949272950631347" target="freeweibo-mirror">下图是否属实？若属实，还得回到我先前提到的如何看待任志强的三…</a>
+</h2>
+<p>下图是否属实？若属实，还得回到我先前提到的如何看待任志强的三点想法上面。我个人还是老想法：在没有从党纪和国法两方面做出结论前，不应该封任志强的微博，这掩盖了更多真相，我更关注任的全部经历，而不是他的微博。——不管你持何种立场，你的观点应该经得起历史检验，暂继续淡看某方意态真底。<br><img src="http://ww4.sinaimg.cn/large/df1b0723gw1f1kou8szw0j20j60pkadb.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3949231666669867" target="freeweibo-mirror">//@做人有道:</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3949097515930508" target="freeweibo-mirror">这个配图的确不妥，当删除。@人民日报 //@郭涵来了: @俏…</a>
 </h2>
 <p>这个配图的确不妥，当删除。@人民日报 //@郭涵来了: @俏太子的围脖  //@记者-薛洪涛://@郑维: 优秀的日本女艺术家 //@ConnieTse:表演艺术家……<br><br>RE: 人民日报微信公众号今晚封面文章的配图，是女优青木麻奈。<br><img src="http://ww2.sinaimg.cn/large/7c1d7ba8gw1f1k4dvj2xbj20k00zk77b.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3949096349766189" target="freeweibo-mirror">优秀的日本女艺术家 //@ConnieTse:表演艺术家……</a>
-</h2>
-<p>优秀的日本女艺术家 //@ConnieTse:表演艺术家……<br><br>RE: 人民日报微信公众号今晚封面文章的配图，是女优青木麻奈。<br><img src="http://ww2.sinaimg.cn/large/7c1d7ba8gw1f1k4dvj2xbj20k00zk77b.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
