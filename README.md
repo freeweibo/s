@@ -26,6 +26,12 @@
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3949376496178039" target="freeweibo-mirror">中共党员们的幸福生活</a>
+</h2>
+<p>中共党员们的幸福生活<br><img src="http://ww1.sinaimg.cn/large/006gbJu7gw1f1l0q2z823j30sg0lcte4.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3949362226314866" target="freeweibo-mirror">//@刘虎说: @甘肃发布 要发言。@甘肃检察 要作为。//…</a>
 </h2>
 <p>//@刘虎说: @甘肃发布 要发言。@甘肃检察 要作为。//@wxycng: //@埃玛Emma: @民主与法制网官方<br><br>RE: #武威抓捕三记者案#属典型的滥用职权，非法构陷。当地究竟打算怎样处理一直不公布，各位上会新闻同行别忘了向甘肃以及总局的代表、委员发问。<br><img src="http://ww3.sinaimg.cn/large/de7c883djw1f1kwlumlaej20q80yy476.jpg"></p>
@@ -54,7 +60,7 @@
 </h2>
 <p>#武威抓捕三记者案#属典型的滥用职权，非法构陷。当地究竟打算怎样处理一直不公布，各位上会新闻同行别忘了向甘肃以及总局的代表、委员发问。<br><img src="http://ww3.sinaimg.cn/large/de7c883djw1f1kwlumlaej20q80yy476.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3949327078139964" target="freeweibo-mirror">所以苏联解体了！ //@陈启宙://@月光手帕伊莲娜://@…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3949286083894317" target="freeweibo-mirror">任先生好友潘石屹之子 @潘瑞 在微博上发自己跟任叔叔的合影黑…</a>
 </h2>
 <p>任先生好友潘石屹之子 @潘瑞 在微博上发自己跟任叔叔的合影黑白照，并将那句名言置顶：尖锐的批评是肯定不被允许的，之后温和的建议也无法接受，然后调侃也不行，大家只好沉默，后来沉默也不行了，大家必须赞美，最后他们把赞美的不起劲儿的人也抓起来了。唉，当时的苏联太黑暗了！——这才是名门之后<br><img src="http://ww2.sinaimg.cn/large/60cc4434gw1f1kqbbwvuej20c80gbjsz.jpg"></p>
-<p>
-	<small> ============== 9小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3949282539186017" target="freeweibo-mirror">//@魔鬼的狂欢日922B: //@骄阳不梦: //@胥黎明…</a>
-</h2>
-<p>//@魔鬼的狂欢日922B: //@骄阳不梦: //@胥黎明明:[哈哈][笑cry]<br><br>RE: 下图是否属实？若属实，还得回到我先前提到的如何看待任志强的三点想法上面。我个人还是老想法：在没有从党纪和国法两方面做出结论前，不应该封任志强的微博，这掩盖了更多真相，我更关注任的全部经历，而不是他的微博。——不管你持何种立场，你的观点应该经得起历史检验，暂继续淡看某方意态真底。<br><img src="http://ww4.sinaimg.cn/large/df1b0723gw1f1kou8szw0j20j60pkadb.jpg"></p>
 <p>
 	<small> ============== 9小时前</small>
 </p>
