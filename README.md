@@ -72,7 +72,7 @@
 </h2>
 <p>突然痛经[泪][泪][泪]<br><img src="http://ww1.sinaimg.cn/large/e786a5e0jw1f1l6yun357j20es0aqdgd.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3949429117483129" target="freeweibo-mirror">这才是真正的人民公仆！//@劉吉祥SOGO:[吃惊] //@…</a>
 </h2>
@@ -132,7 +132,7 @@
 </h2>
 <p>大娘，醒醒，该举手了。<br><img src="http://ww1.sinaimg.cn/large/cfc95fc4gw1f1l56h54q8j20es0c7my8.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3949409912383556" target="freeweibo-mirror">支持！震撼！[围观][围观][围观]</a>
 </h2>
