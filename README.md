@@ -24,7 +24,7 @@
 </h2>
 <p>SPAM //@婚恋哲学: 这位美女调养师: 人很专业，也很nice 哦。有需要的亲们赶紧的哦!</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3949383554725593" target="freeweibo-mirror">[哈哈]5p//@桀紂再生:[哈哈]//@俗家人释永乖: […</a>
 </h2>
@@ -66,7 +66,7 @@
 </h2>
 <p>#武威抓捕三记者案#属典型的滥用职权，非法构陷。当地究竟打算怎样处理一直不公布，各位上会新闻同行别忘了向甘肃以及总局的代表、委员发问。<br><img src="http://ww3.sinaimg.cn/large/de7c883djw1f1kwlumlaej20q80yy476.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3949327078139964" target="freeweibo-mirror">所以苏联解体了！ //@陈启宙://@月光手帕伊莲娜://@…</a>
 </h2>
