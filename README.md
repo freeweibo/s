@@ -42,13 +42,13 @@
 </h2>
 <p>高华著作《革命年代（珍藏版）》全面下架。出版社称，该书存在编校、印制质量问题。（图片来源：@周言）<br><img src="http://ww1.sinaimg.cn/large/53e2b340gw1f1l9tj6lclj20hk0q03zi.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3949455067694309" target="freeweibo-mirror">SPAM 祝你一直痛，痛到死。//@金汝姬:大家不要误会，是…</a>
 </h2>
 <p>SPAM 祝你一直痛，痛到死。//@金汝姬:大家不要误会，是金妹痛经，于配图没有关系[可爱][害羞]<br><br>RE: 突然痛经[泪][泪][泪]<br><img src="http://ww1.sinaimg.cn/large/e786a5e0jw1f1l6yun357j20es0aqdgd.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3949454728403219" target="freeweibo-mirror">SPAM 是母狗养的。//@不戒_和尚:博猪狗娘养的？</a>
 </h2>
@@ -138,7 +138,7 @@
 </h2>
 <p>支持！震撼！[围观][围观][围观]<br><br>RE: 宋平致信政治局，要求离退休老干部，必须公开财产和子女配偶财产和国籍。否则不被视作前领导人[鼓掌][鼓掌][鼓掌][鼓掌]<br><img src="http://ww3.sinaimg.cn/large/006kyQ0hgw1f1l1e8z0k1j30jg06v3zj.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p>
 <table>
     <tr>
