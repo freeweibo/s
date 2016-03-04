@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3949383554725593" target="freeweibo-mirror">[哈哈]5p//@桀紂再生:[哈哈]//@俗家人释永乖: […</a>
+</h2>
+<p>[哈哈]5p//@桀紂再生:[哈哈]//@俗家人释永乖: [哈哈][哈哈][哈哈]先进性。<br><br>RE: 中共党员们的幸福生活<br><img src="http://ww1.sinaimg.cn/large/006gbJu7gw1f1l0q2z823j30sg0lcte4.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3949362226314866" target="freeweibo-mirror">//@刘虎说: @甘肃发布 要发言。@甘肃检察 要作为。//…</a>
 </h2>
 <p>//@刘虎说: @甘肃发布 要发言。@甘肃检察 要作为。//@wxycng: //@埃玛Emma: @民主与法制网官方<br><br>RE: #武威抓捕三记者案#属典型的滥用职权，非法构陷。当地究竟打算怎样处理一直不公布，各位上会新闻同行别忘了向甘肃以及总局的代表、委员发问。<br><img src="http://ww3.sinaimg.cn/large/de7c883djw1f1kwlumlaej20q80yy476.jpg"></p>
@@ -78,13 +84,13 @@
 </h2>
 <p>这是十多年来误入歧途的国企定位与反复无常的改革迟早要付出的代价 //@陈有西:国企不安定的一年。</p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3949308024248377" target="freeweibo-mirror">SPAM 纪念死去的前苏联[蜡烛]</a>
 </h2>
 <p>SPAM 纪念死去的前苏联[蜡烛]</p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3949306840459145" target="freeweibo-mirror">SPAM //@昕静自然好://@月光手帕伊莲娜://@记者…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3949282539186017" target="freeweibo-mirror">//@魔鬼的狂欢日922B: //@骄阳不梦: //@胥黎明…</a>
 </h2>
 <p>//@魔鬼的狂欢日922B: //@骄阳不梦: //@胥黎明明:[哈哈][笑cry]<br><br>RE: 下图是否属实？若属实，还得回到我先前提到的如何看待任志强的三点想法上面。我个人还是老想法：在没有从党纪和国法两方面做出结论前，不应该封任志强的微博，这掩盖了更多真相，我更关注任的全部经历，而不是他的微博。——不管你持何种立场，你的观点应该经得起历史检验，暂继续淡看某方意态真底。<br><img src="http://ww4.sinaimg.cn/large/df1b0723gw1f1kou8szw0j20j60pkadb.jpg"></p>
-<p>
-	<small> ============== 9小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3949280060849124" target="freeweibo-mirror">[给力][话筒]//@小朋友家族族长: 重庆可以有五个，中国…</a>
-</h2>
-<p>[给力][话筒]//@小朋友家族族长: 重庆可以有五个，中国却只能是一个。//@读爱25:挺薄的为什么越来越多？一，这是个冤案，不用可以，陷害人不成，这是底线；二，人民民主，唱红打黑，共同富裕，五个中国，这是路线；三，是白日做梦，聊斋忽悠，还是脚踏实地，知行合一，梦醒时分，想念书记[心]。</p>
 <p>
 	<small> ============== 9小时前</small>
 </p>
