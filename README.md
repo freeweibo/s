@@ -120,7 +120,7 @@
 </h2>
 <p>//@辉钛郎2058:估计又是让穷屌丝暂时乐呵一下的中国梦<br><br>RE: 宋平致信政治局，要求离退休老干部，必须公开财产和子女配偶财产和国籍。否则不被视作前领导人[鼓掌][鼓掌][鼓掌][鼓掌]<br><img src="http://ww3.sinaimg.cn/large/006kyQ0hgw1f1l1e8z0k1j30jg06v3zj.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3949417088911660" target="freeweibo-mirror">SPAM //@婚恋哲学: 这位美女调养师: 人很专业，也很…</a>
 </h2>
