@@ -66,11 +66,17 @@
 </h2>
 <p>[给力][话筒]//@小朋友家族族长: 重庆可以有五个，中国却只能是一个。//@读爱25:挺薄的为什么越来越多？一，这是个冤案，不用可以，陷害人不成，这是底线；二，人民民主，唱红打黑，共同富裕，五个中国，这是路线；三，是白日做梦，聊斋忽悠，还是脚踏实地，知行合一，梦醒时分，想念书记[心]。</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3949278777024187" target="freeweibo-mirror">SPAM 王:老大，王珉隐藏的很深啊，啥时候办他？“明天是个…</a>
 </h2>
 <p>SPAM 王:老大，王珉隐藏的很深啊，啥时候办他？“明天是个好日子！”<br><br>RE: 在说啥呢？[思考]  #王岐山追上习近平#<br><img src="http://ww4.sinaimg.cn/large/62952eedjw1f1klp4084kj217q0uc79s.jpg"></p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3949274586760937" target="freeweibo-mirror">【中纪委机关报为何刊文挺“纳谏”？】这篇题为《千人之诺诺，不…</a>
+</h2>
+<p>【中纪委机关报为何刊文挺“纳谏”？】这篇题为《千人之诺诺，不如一士之谔谔》的文章，说的是历史，但在北京时政分析人士圈子内迅速引起巨大关注，有分析人士对本报形容此文背景“非比寻常”。该文以魏徵谏唐太宗故事为例，颇有为当今的“魏徵”说话、肯定“唐太宗”纳谏之意。http://t.cn/RGYDAq2<br><img src="http://ww4.sinaimg.cn/large/6298156bgw1f1kp0zuq8nj20ir0dkab2.jpg"></p>
 <p>
 	<small> ============== 4小时前</small>
 </p><h2>
@@ -133,12 +139,6 @@
 <p>//@独自演奏f://@律师文摘://@职业女巫wicca: 葛剑雄委员好好看看。<br><br>RE: 【两会好声音】1、政协委员蒋洪：中共历来主张听取不同意见，习总书记也说过，要容得下尖锐批评。前几任领导还说过，没有条件，创造条件也要让大家说。公众畅所欲言是一个国家兴旺发达和谐的标志，也是社会自信的标志。对党内的事情，我作为党外人士，不说三道四，但作为公民，表达权利必须要保障<br><img src="http://ww1.sinaimg.cn/large/709b1d0ejw1f1k1nrgm68j204m064749.jpg"></p>
 <p>
 	<small> ============== 10小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3949108320065013" target="freeweibo-mirror">SPAM [色]//@财联社APP:见多识广[喵喵]</a>
-</h2>
-<p>SPAM [色]//@财联社APP:见多识广[喵喵]<br><br>RE: 人民日报微信公众号今晚封面文章的配图，是女优青木麻奈。<br><img src="http://ww2.sinaimg.cn/large/7c1d7ba8gw1f1k4dvj2xbj20k00zk77b.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
 </p>
 <table>
     <tr>
