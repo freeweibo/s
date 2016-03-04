@@ -24,7 +24,7 @@
 </h2>
 <p>//@刘虎说: @甘肃发布 要发言。@甘肃检察 要作为。//@wxycng: //@埃玛Emma: @民主与法制网官方<br><br>RE: #武威抓捕三记者案#属典型的滥用职权，非法构陷。当地究竟打算怎样处理一直不公布，各位上会新闻同行别忘了向甘肃以及总局的代表、委员发问。<br><img src="http://ww3.sinaimg.cn/large/de7c883djw1f1kwlumlaej20q80yy476.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3949359588524689" target="freeweibo-mirror">黄鼠狼下耗子一窝不如一窝 //@从不迷路汪汪汪:你这条也不能…</a>
 </h2>
@@ -41,6 +41,12 @@
 	<a href="https://freeweibo.com/weibo/3949342412278757" target="freeweibo-mirror">SPAM 沪江开学季，包邮哦亲！！</a>
 </h2>
 <p>SPAM 沪江开学季，包邮哦亲！！</p>
+<p>
+	<small> ============== 5小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3949340563036348" target="freeweibo-mirror">#武威抓捕三记者案#属典型的滥用职权，非法构陷。当地究竟打算…</a>
+</h2>
+<p>#武威抓捕三记者案#属典型的滥用职权，非法构陷。当地究竟打算怎样处理一直不公布，各位上会新闻同行别忘了向甘肃以及总局的代表、委员发问。<br><img src="http://ww3.sinaimg.cn/large/de7c883djw1f1kwlumlaej20q80yy476.jpg"></p>
 <p>
 	<small> ============== 5小时前</small>
 </p><h2>
@@ -96,7 +102,7 @@
 </h2>
 <p>//@诛邪赤魔://@领秀芜湖://@中华文化传人：什么时候的？//@贺延光: //@貂锦胡尘://@古拉阁://@清心鸟: 转//@阿军的灵食:转发微博<br><br>RE: 任先生好友潘石屹之子 @潘瑞 在微博上发自己跟任叔叔的合影黑白照，并将那句名言置顶：尖锐的批评是肯定不被允许的，之后温和的建议也无法接受，然后调侃也不行，大家只好沉默，后来沉默也不行了，大家必须赞美，最后他们把赞美的不起劲儿的人也抓起来了。唉，当时的苏联太黑暗了！——这才是名门之后<br><img src="http://ww2.sinaimg.cn/large/60cc4434gw1f1kqbbwvuej20c80gbjsz.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3949301036157008" target="freeweibo-mirror">SPAM #眼霜成分解析#（二）高端线 ：HR菁华修护眼霜／…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3949280060849124" target="freeweibo-mirror">[给力][话筒]//@小朋友家族族长: 重庆可以有五个，中国…</a>
 </h2>
 <p>[给力][话筒]//@小朋友家族族长: 重庆可以有五个，中国却只能是一个。//@读爱25:挺薄的为什么越来越多？一，这是个冤案，不用可以，陷害人不成，这是底线；二，人民民主，唱红打黑，共同富裕，五个中国，这是路线；三，是白日做梦，聊斋忽悠，还是脚踏实地，知行合一，梦醒时分，想念书记[心]。</p>
-<p>
-	<small> ============== 9小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3949278777024187" target="freeweibo-mirror">SPAM 王:老大，王珉隐藏的很深啊，啥时候办他？“明天是个…</a>
-</h2>
-<p>SPAM 王:老大，王珉隐藏的很深啊，啥时候办他？“明天是个好日子！”<br><br>RE: 在说啥呢？[思考]  #王岐山追上习近平#<br><img src="http://ww4.sinaimg.cn/large/62952eedjw1f1klp4084kj217q0uc79s.jpg"></p>
 <p>
 	<small> ============== 9小时前</small>
 </p>
