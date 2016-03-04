@@ -108,7 +108,7 @@
 </h2>
 <p>在说啥呢？[思考]  #王岐山追上习近平#<br><img src="http://ww4.sinaimg.cn/large/62952eedjw1f1klp4084kj217q0uc79s.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3949231666669867" target="freeweibo-mirror">//@做人有道:</a>
 </h2>
