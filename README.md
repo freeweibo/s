@@ -48,7 +48,7 @@
 </h2>
 <p>//@貂锦胡尘://@古拉阁://@清心鸟: 转//@阿军的灵食:转发微博<br><br>RE: 任先生好友潘石屹之子 @潘瑞 在微博上发自己跟任叔叔的合影黑白照，并将那句名言置顶：尖锐的批评是肯定不被允许的，之后温和的建议也无法接受，然后调侃也不行，大家只好沉默，后来沉默也不行了，大家必须赞美，最后他们把赞美的不起劲儿的人也抓起来了。唉，当时的苏联太黑暗了！——这才是名门之后<br><img src="http://ww2.sinaimg.cn/large/60cc4434gw1f1kqbbwvuej20c80gbjsz.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3949286083894317" target="freeweibo-mirror">任先生好友潘石屹之子 @潘瑞 在微博上发自己跟任叔叔的合影黑…</a>
 </h2>
@@ -114,7 +114,7 @@
 </h2>
 <p>SPAM Mana Aoki 青木麻奈,  a famous Japanese AV actress,was wrongly chosen as the frontpage image of the offi http://t.cn/RGYQCfI<br><img src="http://ww4.sinaimg.cn/large/5d02e406jw1f1khkjyvybj20hs0hsq46.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3949199521432715" target="freeweibo-mirror">SPAM 我在想，如何批斗老雷。对了，先表个态:打倒老雷！</a>
 </h2>
