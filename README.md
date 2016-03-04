@@ -96,7 +96,7 @@
 </h2>
 <p>支持！震撼！[围观][围观][围观]<br><br>RE: 宋平致信政治局，要求离退休老干部，必须公开财产和子女配偶财产和国籍。否则不被视作前领导人[鼓掌][鼓掌][鼓掌][鼓掌]<br><img src="http://ww3.sinaimg.cn/large/006kyQ0hgw1f1l1e8z0k1j30jg06v3zj.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3949409563547901" target="freeweibo-mirror">廉洁还怕公布财产？财产都不敢公布还谈什么廉洁？谈什么反腐？</a>
 </h2>
