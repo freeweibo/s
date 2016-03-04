@@ -36,7 +36,7 @@
 </h2>
 <p>SPAM Mana Aoki 青木麻奈,  a famous Japanese AV actress,was wrongly chosen as the frontpage image of the offi http://t.cn/RGYQCfI<br><img src="http://ww4.sinaimg.cn/large/5d02e406jw1f1khkjyvybj20hs0hsq46.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3949199521432715" target="freeweibo-mirror">SPAM 我在想，如何批斗老雷。对了，先表个态:打倒老雷！</a>
 </h2>
@@ -120,7 +120,7 @@
 </h2>
 <p>优秀的日本女艺术家 //@ConnieTse:表演艺术家……<br><br>RE: 人民日报微信公众号今晚封面文章的配图，是女优青木麻奈。<br><img src="http://ww2.sinaimg.cn/large/7c1d7ba8gw1f1k4dvj2xbj20k00zk77b.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3949095087668069" target="freeweibo-mirror">//@王周生: 转发微博</a>
 </h2>
