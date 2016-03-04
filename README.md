@@ -24,7 +24,7 @@
 </h2>
 <p>//@做人有道:</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3949210259412870" target="freeweibo-mirror">//@cccp_123:过去互相关心互相爱护互相帮助，如今暴…</a>
 </h2>
@@ -47,6 +47,12 @@
 	<a href="https://freeweibo.com/weibo/3949192596461881" target="freeweibo-mirror">SPAM 我愿意。想瘦找她@美人邦创始人_翾翾 [爱你]</a>
 </h2>
 <p>SPAM 我愿意。想瘦找她@美人邦创始人_翾翾 [爱你]</p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3949187860821633" target="freeweibo-mirror">刻意歪曲，央视姓党变成央视姓习。中宣部系统几名正副部级高官（…</a>
+</h2>
+<p>刻意歪曲，央视姓党变成央视姓习。中宣部系统几名正副部级高官（包括一名政治局成员），以及已退休的几名副部级官员，已经被锁定调查。《王：又黑你了。习：你放手办他们》[嘘][嘘][嘘]<br><img src="http://ww4.sinaimg.cn/large/006kyQ0hgw1f1kf2ciwphj30go0bzaam.jpg"></p>
 <p>
 	<small> ============== 4小时前</small>
 </p><h2>
@@ -114,7 +120,7 @@
 </h2>
 <p>优秀的日本女艺术家 //@ConnieTse:表演艺术家……<br><br>RE: 人民日报微信公众号今晚封面文章的配图，是女优青木麻奈。<br><img src="http://ww2.sinaimg.cn/large/7c1d7ba8gw1f1k4dvj2xbj20k00zk77b.jpg"></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3949095087668069" target="freeweibo-mirror">//@王周生: 转发微博</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3949093480856965" target="freeweibo-mirror">@夏榆温家宝先生在任时谈”政治改革“和“普世价值”最多//@…</a>
 </h2>
 <p>@夏榆温家宝先生在任时谈”政治改革“和“普世价值”最多//@鄢烈山: 哪怕一点点善意也是值得称赞的。可奴才们总比主人严厉。 //@南大景凯旋: //@石扉客有次新闻联播把老江接见外宾的新闻搞反了，江直接电话赵化勇，赵吓惨了，不料江说我是工程师出身，建议你主要是搞清楚出错的原因，不准处理任何人</p>
-<p>
-	<small> ============== 11小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3949092407444018" target="freeweibo-mirror">出错了，处理是正常的，按照人家一贯的规则来，该怎么处理就怎么…</a>
-</h2>
-<p>出错了，处理是正常的，按照人家一贯的规则来，该怎么处理就怎么处理，你可以表态你个人不追究，表达一个宽容的态度，但机构怎么处理是他们自己的事，不必干涉。当然更不应该当成政治错误来处罚，比如开除之类，这就涉嫌过度干涉，侵权了。//@王周生: 转发微博</p>
 <p>
 	<small> ============== 11小时前</small>
 </p>
