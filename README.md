@@ -132,7 +132,7 @@
 </h2>
 <p>在说啥呢？[思考]  #王岐山追上习近平#<br><img src="http://ww4.sinaimg.cn/large/62952eedjw1f1klp4084kj217q0uc79s.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3949235482991258" target="freeweibo-mirror">最后一句: 现场没有一点掌声响起。[疑问][疑问][吃惊][…</a>
 </h2>
