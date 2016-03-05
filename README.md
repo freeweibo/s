@@ -102,7 +102,7 @@
 </h2>
 <p>//@神马素人V: //@潘金莲日记:轉發微博<br><br>RE: 宋平致信政治局，要求离退休老干部，必须公开财产和子女配偶财产和国籍。否则不被视作前领导人[鼓掌][鼓掌][鼓掌][鼓掌]<br><img src="http://ww3.sinaimg.cn/large/006kyQ0hgw1f1l1e8z0k1j30jg06v3zj.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3949423500839489" target="freeweibo-mirror">SPAM ❤️7号上午10点上❤️。粉色还是黑色？[doge…</a>
 </h2>
