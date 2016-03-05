@@ -78,7 +78,7 @@
 </h2>
 <p>突然痛经[泪][泪][泪]<br><img src="http://ww1.sinaimg.cn/large/e786a5e0jw1f1l6yun357j20es0aqdgd.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3949429117483129" target="freeweibo-mirror">这才是真正的人民公仆！//@劉吉祥SOGO:[吃惊] //@…</a>
 </h2>
@@ -108,7 +108,7 @@
 </h2>
 <p>SPAM ❤️7号上午10点上❤️。粉色还是黑色？[doge]转并留言抽3个。<br><img src="http://ww2.sinaimg.cn/large/611f9d1bgw1f1l627iqdoj20zk0qo0y5.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3949420112502033" target="freeweibo-mirror">SPAM 小香黑色平底鞋也是这期的新品哦，去年年底几期一直搭…</a>
 </h2>
