@@ -50,6 +50,12 @@
 <p>
 	<small> ============== 4小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3949613549243840" target="freeweibo-mirror">内蒙、宁夏、青海、广西、云南、新疆等代表团纷纷跪求佩戴习大大…</a>
+</h2>
+<p>内蒙、宁夏、青海、广西、云南、新疆等代表团纷纷跪求佩戴习大大像章，高丽代表团表示不服！<br><img src="http://ww1.sinaimg.cn/large/48cc14eajw1f1lry2k3b4j20hp0d3dgv.jpg"></p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3949613226605627" target="freeweibo-mirror">SPAM [闭嘴]『西藏代表团戴习近平像章』http://t…</a>
 </h2>
 <p>SPAM [闭嘴]『西藏代表团戴习近平像章』http://t.cn/RGTeSTb</p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3949436591961204" target="freeweibo-mirror">SPAM 朋友很好的微 店！很好的鞋子！主要经营各大知名品牌…</a>
 </h2>
 <p>SPAM 朋友很好的微 店！很好的鞋子！主要经营各大知名品牌男女潮鞋，全国广招 代理威芯号：pzq52000 欢迎大家的加入，售后服务有保障哦，让您买的放心，穿的安心！</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3949431491285384" target="freeweibo-mirror">[熊猫][熊猫][熊猫] //@Con30:哈哈哈哈哈哈 /…</a>
-</h2>
-<p>[熊猫][熊猫][熊猫] //@Con30:哈哈哈哈哈哈 //@stamhe:政治局首先把你干了！//@朱孝顶律师:[赞][赞][赞]<br><br>RE: 宋平致信政治局，要求离退休老干部，必须公开财产和子女配偶财产和国籍。否则不被视作前领导人[鼓掌][鼓掌][鼓掌][鼓掌]<br><img src="http://ww3.sinaimg.cn/large/006kyQ0hgw1f1l1e8z0k1j30jg06v3zj.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
