@@ -44,6 +44,12 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3949770915040322" target="freeweibo-mirror">SPAM //@陆伟民律师: 只能呵呵了。</a>
+</h2>
+<p>SPAM //@陆伟民律师: 只能呵呵了。<br><br>RE: 【“人无信不立 国无信则衰”】最近三年的GDP和用电量：2013年，GDP增长7.66%，用电量增长7%左右；2014年，GDP增长7.4%，用电量增长3%出头；2015年，GDP增长6.9%，用电量仅增长0.5%。若数据属实，那就只有一种可能：我国自2013年至今，每一年的产业结构都发生了翻天覆地的变化。再看两组数据：据中国海...全文： http://m.weibo.cn/2020017453/3949765282855390<br><img src="http://ww1.sinaimg.cn/large/7867052dgw1f1m9dtb7jhj20be03oq39.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3949742591339365" target="freeweibo-mirror">mwmjt[泪流满面]卧槽…老爸在家族群里发了黄色gif视频…</a>
 </h2>
 <p>mwmjt[泪流满面]卧槽…老爸在家族群里发了黄色gif视频我是不是该当没看见[微笑][嘻嘻][嘻嘻][嘻嘻]雾agdjp<br><img src="http://ww1.sinaimg.cn/large/6b27dbd9jw1f1m6pwpznaj20pb190q7h.jpg"></p>
@@ -126,17 +132,11 @@
 </h2>
 <p>全国政协委员蒋洪：上午发言后，我就发现昨天财新网采访我的报道被屏蔽了，屏蔽的理由是“该网页包含违法或违规内容”。我对这种情况感到很不可理解。……任何部门都不能够超越法律，或者以自己的偏好来代替法律，去删公民的文章和帖子。http://t.cn/RGHyBO7</p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3949677789668501" target="freeweibo-mirror">“党恩大于天”，想想的确如此。此“恩”是一千万还是一个亿啊[…</a>
 </h2>
 <p>“党恩大于天”，想想的确如此。此“恩”是一千万还是一个亿啊[抓狂]<br><img src="http://ww2.sinaimg.cn/large/4c7c1ba8gw1f1lzc50s79j20fa0a5dgl.jpg"></p>
-<p>
-	<small> ============== 9小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3949677689353014" target="freeweibo-mirror">蒋洪：俞主席讲话强调包容不同意见 不理解发言被屏蔽</a>
-</h2>
-<p>蒋洪：俞主席讲话强调包容不同意见 不理解发言被屏蔽<br><img src="http://ww4.sinaimg.cn/large/6d0b6b33jw1f1lzbjr41cj20ku112afl.jpg"></p>
 <p>
 	<small> ============== 9小时前</small>
 </p>
