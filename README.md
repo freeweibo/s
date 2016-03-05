@@ -26,6 +26,12 @@
 <p>
 	<small> ============== 1小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3949650816272537" target="freeweibo-mirror">//@天人合一之境: 藏族人民心向党。</a>
+</h2>
+<p>//@天人合一之境: 藏族人民心向党。<br><br>RE: 香港卫视记者观察到，西藏代表团各代表和工作人员胸前都别有两枚像章。一枚是印有毛泽东、邓小平、江泽民、胡锦涛、习近平5人像章，另一枚是习主席个人的像章。记者询问得知，只有西藏代表团配发这两枚像章。http://t.cn/RGTgre4</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3949638388755152" target="freeweibo-mirror">SPAM 郑重推荐《宁静的地平线》by张郎郎 //@玉香笼-…</a>
 </h2>
 <p>SPAM 郑重推荐《宁静的地平线》by张郎郎 //@玉香笼-包包://@郑晓翀: //@尹鸿:其实，也可以改写为“在没有人的年代里，我只能做一个英雄”</p>
@@ -96,7 +102,7 @@
 </h2>
 <p>好胃口//@章诒和: “我们吃饭”//@李不白的店: 开会不是来发表意见的，吃饭要紧。//<br><br>RE: 【两会记者手记 - 谈谈任志强？“嘘—”“我们吃饭”】昨日全国政协会上，问及任志强事件及内地加强言论管控时，政协委员们都默默无语。被问到上述争议时，诺贝尔文学奖得主莫言人如其名，没有直接回答，只说“我们吃饭。”被问到任志强的时候，冯小刚在唇前竖起一根手指http://t.cn/RGT1Wiz<br><img src="http://ww4.sinaimg.cn/large/9dcb59c7gw1f1lavactbjj20di08emy7.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3949584562072316" target="freeweibo-mirror">【两会记者手记 - 谈谈任志强？“嘘—”“我们吃饭”】昨日全…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3949456716672044" target="freeweibo-mirror">SPAM 唉</a>
 </h2>
 <p>SPAM 唉<br><br>RE: 高华著作《革命年代（珍藏版）》全面下架。出版社称，该书存在编校、印制质量问题。（图片来源：@周言）<br><img src="http://ww1.sinaimg.cn/large/53e2b340gw1f1l9tj6lclj20hk0q03zi.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3949455713970981" target="freeweibo-mirror">高华著作《革命年代（珍藏版）》全面下架。出版社称，该书存在编…</a>
-</h2>
-<p>高华著作《革命年代（珍藏版）》全面下架。出版社称，该书存在编校、印制质量问题。（图片来源：@周言）<br><img src="http://ww1.sinaimg.cn/large/53e2b340gw1f1l9tj6lclj20hk0q03zi.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
