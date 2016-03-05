@@ -74,6 +74,12 @@
 <p>
 	<small> ============== 6小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3949680205192801" target="freeweibo-mirror">全国政协委员蒋洪：上午发言后，我就发现昨天财新网采访我的报道…</a>
+</h2>
+<p>全国政协委员蒋洪：上午发言后，我就发现昨天财新网采访我的报道被屏蔽了，屏蔽的理由是“该网页包含违法或违规内容”。我对这种情况感到很不可理解。……任何部门都不能够超越法律，或者以自己的偏好来代替法律，去删公民的文章和帖子。http://t.cn/RGHyBO7</p>
+<p>
+	<small> ============== 6小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3949677789668501" target="freeweibo-mirror">“党恩大于天”，想想的确如此。此“恩”是一千万还是一个亿啊[…</a>
 </h2>
 <p>“党恩大于天”，想想的确如此。此“恩”是一千万还是一个亿啊[抓狂]<br><img src="http://ww2.sinaimg.cn/large/4c7c1ba8gw1f1lzc50s79j20fa0a5dgl.jpg"></p>
@@ -120,7 +126,7 @@
 </h2>
 <p>SPAM 昨天这篇被微博屏蔽了</p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3949650816272537" target="freeweibo-mirror">//@天人合一之境: 藏族人民心向党。</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3949649301186876" target="freeweibo-mirror">SPAM [心]3.7。早上10点约❤️。有字母，无字母会有…</a>
 </h2>
 <p>SPAM [心]3.7。早上10点约❤️。有字母，无字母会有两个版本[ok]。微博大神请饶了我吧[微笑]<br><img src="http://ww2.sinaimg.cn/large/611f9d1bgw1f1lvyptgpfj20qo0qp0ya.jpg"></p>
-<p>
-	<small> ============== 8小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3949644884970672" target="freeweibo-mirror">87岁的全国人大代表申纪兰，开会好辛苦！看到这幅图片，你心疼…</a>
-</h2>
-<p>87岁的全国人大代表申纪兰，开会好辛苦！看到这幅图片，你心疼申大妈吗？如果心疼，你就转发！<br><img src="http://ww1.sinaimg.cn/large/58500250jw1f1lvk6x5taj20es0c70t7.jpg"></p>
 <p>
 	<small> ============== 8小时前</small>
 </p>
