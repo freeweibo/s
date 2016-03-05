@@ -84,7 +84,7 @@
 </h2>
 <p>SPAM 对于这类一天到晚唱当恩的家伙，一定要警惕。<br><br>RE: “党恩大于天”，想想的确如此。此“恩”是一千万还是一个亿啊[抓狂]<br><img src="http://ww2.sinaimg.cn/large/4c7c1ba8gw1f1lzc50s79j20fa0a5dgl.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3949681832356860" target="freeweibo-mirror">//@月伴风荷1997:积重难返啊。有的人总以为他自己比毛泽…</a>
 </h2>
@@ -108,7 +108,7 @@
 </h2>
 <p>蒋洪：俞主席讲话强调包容不同意见 不理解发言被屏蔽<br><img src="http://ww4.sinaimg.cn/large/6d0b6b33jw1f1lzbjr41cj20ku112afl.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3949675226139872" target="freeweibo-mirror">SPAM [弱]//@黎津平老师: //@天景5767:辛苦…</a>
 </h2>
