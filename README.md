@@ -24,7 +24,7 @@
 </h2>
 <p>图七真是做大死！//@老柴-G世界NG更新官网了吗:一颗赛艇，想买//@真之漆黑天使: 你们又搞大新闻//@蓝桥里的魔法黑猫: 为啥阿沛阿旺晋美都会和谐……？<br><br>RE: 在誠品書店看到一本有趣的書。一個老外在微博上寫了一個軟件腳本，三個月內搜集出在微博發表不了的敏感詞，然後歸類研究……<br><img src="http://ww1.sinaimg.cn/large/6764cadegw1f1jt890eilj20hs0vnmzj.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3949457613936897" target="freeweibo-mirror">SPAM [生病]//@50年矛苔: [偷乐]//@王亚东5…</a>
 </h2>
@@ -126,7 +126,7 @@
 </h2>
 <p>//@辉钛郎2058:估计又是让穷屌丝暂时乐呵一下的中国梦<br><br>RE: 宋平致信政治局，要求离退休老干部，必须公开财产和子女配偶财产和国籍。否则不被视作前领导人[鼓掌][鼓掌][鼓掌][鼓掌]<br><img src="http://ww3.sinaimg.cn/large/006kyQ0hgw1f1l1e8z0k1j30jg06v3zj.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3949417088911660" target="freeweibo-mirror">SPAM //@婚恋哲学: 这位美女调养师: 人很专业，也很…</a>
 </h2>
