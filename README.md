@@ -96,7 +96,7 @@
 </h2>
 <p>SPAM [心]3.7。早上10点约❤️。有字母，无字母会有两个版本[ok]。微博大神请饶了我吧[微笑]<br><img src="http://ww2.sinaimg.cn/large/611f9d1bgw1f1lvyptgpfj20qo0qp0ya.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3949638388755152" target="freeweibo-mirror">SPAM 郑重推荐《宁静的地平线》by张郎郎 //@玉香笼-…</a>
 </h2>
@@ -132,7 +132,7 @@
 </h2>
 <p>【像章】 在代表团入场现场，香港卫视记者观察到，西藏代表团各代表和工作人员胸前都别有两枚像章。一枚是印有毛泽东、邓小平、江泽民、胡锦涛、习近平5人像章，另一枚是习主席个人的像章。——微评：这个可以拿到会上讨论讨论吗？有敢提议的代表吗？<br><img src="http://ww1.sinaimg.cn/large/5cf7ad65jw1f1lsl1mpm3j20k00zkagf.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3949613708481818" target="freeweibo-mirror">#记者在两会#西藏代表團戴領導人胸章入場，每人胸前戴兩個：一…</a>
 </h2>
