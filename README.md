@@ -102,7 +102,7 @@
 </h2>
 <p>SPAM [心]3.7。早上10点约❤️。有字母，无字母会有两个版本[ok]。微博大神请饶了我吧[微笑]<br><img src="http://ww2.sinaimg.cn/large/611f9d1bgw1f1lvyptgpfj20qo0qp0ya.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3949644884970672" target="freeweibo-mirror">87岁的全国人大代表申纪兰，开会好辛苦！看到这幅图片，你心疼…</a>
 </h2>
