@@ -78,7 +78,7 @@
 </h2>
 <p>SPAM [弱]//@黎津平老师: //@天景5767:辛苦了，敬礼！<br><br>RE: 87岁的全国人大代表申纪兰，开会好辛苦！看到这幅图片，你心疼申大妈吗？如果心疼，你就转发！<br><img src="http://ww1.sinaimg.cn/large/58500250jw1f1lvk6x5taj20es0c70t7.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3949673129471526" target="freeweibo-mirror">//@夙生律师事务所://@年华似水流过: //@后现代派小…</a>
 </h2>
@@ -126,7 +126,7 @@
 </h2>
 <p>87岁的全国人大代表申纪兰，开会好辛苦！看到这幅图片，你心疼申大妈吗？如果心疼，你就转发！<br><img src="http://ww1.sinaimg.cn/large/58500250jw1f1lvk6x5taj20es0c70t7.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3949638388755152" target="freeweibo-mirror">SPAM 郑重推荐《宁静的地平线》by张郎郎 //@玉香笼-…</a>
 </h2>
