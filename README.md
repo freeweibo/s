@@ -104,6 +104,12 @@
 <p>
 	<small> ============== 5小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3949644884970672" target="freeweibo-mirror">87岁的全国人大代表申纪兰，开会好辛苦！看到这幅图片，你心疼…</a>
+</h2>
+<p>87岁的全国人大代表申纪兰，开会好辛苦！看到这幅图片，你心疼申大妈吗？如果心疼，你就转发！<br><img src="http://ww1.sinaimg.cn/large/58500250jw1f1lvk6x5taj20es0c70t7.jpg"></p>
+<p>
+	<small> ============== 6小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3949638388755152" target="freeweibo-mirror">SPAM 郑重推荐《宁静的地平线》by张郎郎 //@玉香笼-…</a>
 </h2>
 <p>SPAM 郑重推荐《宁静的地平线》by张郎郎 //@玉香笼-包包://@郑晓翀: //@尹鸿:其实，也可以改写为“在没有人的年代里，我只能做一个英雄”</p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3949620465464049" target="freeweibo-mirror">还有这事儿？不会吧？ //@谢文:文革结束后第一次吧？直接回…</a>
 </h2>
 <p>还有这事儿？不会吧？ //@谢文:文革结束后第一次吧？直接回到50年前。//@首席观察: 2.0 //@鄢烈山:原来是标配！<br><br>RE: #记者在两会#西藏代表團戴領導人胸章入場，每人胸前戴兩個：一是有毛澤東、鄧小平、江澤民、胡錦濤、習近平5人像章，另一個是現任主席習近平個人的像章。代表們表示是代表團統一配發的。（记者 木子）<br><img src="http://ww3.sinaimg.cn/large/6e18de6fjw1f1lrz7ilw3j20jz0jz3zu.jpg"></p>
-<p>
-	<small> ============== 7小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3949619446782818" target="freeweibo-mirror">【像章】 在代表团入场现场，香港卫视记者观察到，西藏代表团各…</a>
-</h2>
-<p>【像章】 在代表团入场现场，香港卫视记者观察到，西藏代表团各代表和工作人员胸前都别有两枚像章。一枚是印有毛泽东、邓小平、江泽民、胡锦涛、习近平5人像章，另一枚是习主席个人的像章。——微评：这个可以拿到会上讨论讨论吗？有敢提议的代表吗？<br><img src="http://ww1.sinaimg.cn/large/5cf7ad65jw1f1lsl1mpm3j20k00zkagf.jpg"></p>
 <p>
 	<small> ============== 7小时前</small>
 </p>
