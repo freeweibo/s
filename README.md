@@ -30,7 +30,7 @@
 </h2>
 <p>右边心态很好。[good] //@网易自-由蓝莲花:感觉两会比春晚好看，有悬念。</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3949728187573221" target="freeweibo-mirror">SPAM 【这节奏令人无语】说话的被删掉，没说的“被说话”。</a>
 </h2>
