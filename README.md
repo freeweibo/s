@@ -20,11 +20,17 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3949693870650487" target="freeweibo-mirror">外国人怎么都比国人知道的多？ //@早报网:中国人民大学政治…</a>
+</h2>
+<p>外国人怎么都比国人知道的多？ //@早报网:中国人民大学政治学系教授张鸣则分析指出，施芝鸿的说法可能代表“另一种声音”，“声音来自于哪儿，不好猜测”。张鸣也说，施芝鸿的说法在理论上虽然说得通，但它跟现在流行的“习核心”说法有些差距，外界将之理解为“习近平一个人”的“核心”，而不是施芝</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3949693228864477" target="freeweibo-mirror">//@早报网:中国人民大学政治学系教授张鸣则分析指出，施芝鸿…</a>
 </h2>
 <p>//@早报网:中国人民大学政治学系教授张鸣则分析指出，施芝鸿的说法可能代表“另一种声音”，“声音来自于哪儿，不好猜测”。张鸣也说，施芝鸿的说法在理论上虽然说得通，但它跟现在流行的“习核心”说法有些差距，外界将之理解为“习近平一个人”的“核心”，而不是施芝鸿所说的三重含义。</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3949691622070073" target="freeweibo-mirror">SPAM 对于这类一天到晚唱当恩的家伙，一定要警惕。</a>
 </h2>
@@ -42,7 +48,7 @@
 </h2>
 <p>“党恩大于天”，想想的确如此。此“恩”是一千万还是一个亿啊[抓狂]<br><img src="http://ww2.sinaimg.cn/large/4c7c1ba8gw1f1lzc50s79j20fa0a5dgl.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3949677689353014" target="freeweibo-mirror">蒋洪：俞主席讲话强调包容不同意见 不理解发言被屏蔽</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3949613708481818" target="freeweibo-mirror">#记者在两会#西藏代表團戴領導人胸章入場，每人胸前戴兩個：一…</a>
 </h2>
 <p>#记者在两会#西藏代表團戴領導人胸章入場，每人胸前戴兩個：一是有毛澤東、鄧小平、江澤民、胡錦濤、習近平5人像章，另一個是現任主席習近平個人的像章。代表們表示是代表團統一配發的。（记者 木子）<br><img src="http://ww3.sinaimg.cn/large/6e18de6fjw1f1lrz7ilw3j20jz0jz3zu.jpg"></p>
-<p>
-	<small> ============== 7小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3949613549243840" target="freeweibo-mirror">内蒙、宁夏、青海、广西、云南、新疆等代表团纷纷跪求佩戴习大大…</a>
-</h2>
-<p>内蒙、宁夏、青海、广西、云南、新疆等代表团纷纷跪求佩戴习大大像章，高丽代表团表示不服！<br><img src="http://ww1.sinaimg.cn/large/48cc14eajw1f1lry2k3b4j20hp0d3dgv.jpg"></p>
 <p>
 	<small> ============== 7小时前</small>
 </p>
