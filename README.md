@@ -26,17 +26,35 @@
 <p>
 	<small> ============== 1小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3949636815323747" target="freeweibo-mirror">西藏的书记真给力。//@北国红叶来南国: //@腐败零容忍:…</a>
+</h2>
+<p>西藏的书记真给力。//@北国红叶来南国: //@腐败零容忍:[哈哈]//@昕静自然好://@李崇律师://@孟浩然大律师:原来不是传说啊//@紫雪糕KDS: 哪里有教跳忠字舞！//@邮局钢锯:直接上劝进表！ //@快乐诊所_舒汉锋:西藏已经领先了，各地怎么办？尤其上海该怎么办？[嘻嘻]//@鄢烈山: 原来是标配！<br><br>RE: #记者在两会#西藏代表團戴領導人胸章入場，每人胸前戴兩個：一是有毛澤東、鄧小平、江澤民、胡錦濤、習近平5人像章，另一個是現任主席習近平個人的像章。代表們表示是代表團統一配發的。（记者 木子）<br><img src="http://ww3.sinaimg.cn/large/6e18de6fjw1f1lrz7ilw3j20jz0jz3zu.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3949613226605627" target="freeweibo-mirror">SPAM [闭嘴]『西藏代表团戴习近平像章』http://t…</a>
+</h2>
+<p>SPAM [闭嘴]『西藏代表团戴习近平像章』http://t.cn/RGTeSTb</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3949596482653710" target="freeweibo-mirror">好胃口//@章诒和: “我们吃饭”//@李不白的店: 开会不…</a>
 </h2>
 <p>好胃口//@章诒和: “我们吃饭”//@李不白的店: 开会不是来发表意见的，吃饭要紧。//<br><br>RE: 【两会记者手记 - 谈谈任志强？“嘘—”“我们吃饭”】昨日全国政协会上，问及任志强事件及内地加强言论管控时，政协委员们都默默无语。被问到上述争议时，诺贝尔文学奖得主莫言人如其名，没有直接回答，只说“我们吃饭。”被问到任志强的时候，冯小刚在唇前竖起一根手指http://t.cn/RGT1Wiz<br><img src="http://ww4.sinaimg.cn/large/9dcb59c7gw1f1lavactbjj20di08emy7.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3949584562072316" target="freeweibo-mirror">【两会记者手记 - 谈谈任志强？“嘘—”“我们吃饭”】昨日全…</a>
 </h2>
 <p>【两会记者手记 - 谈谈任志强？“嘘—”“我们吃饭”】昨日全国政协会上，问及任志强事件及内地加强言论管控时，政协委员们都默默无语。被问到上述争议时，诺贝尔文学奖得主莫言人如其名，没有直接回答，只说“我们吃饭。”被问到任志强的时候，冯小刚在唇前竖起一根手指http://t.cn/RGT1Wiz<br><img src="http://ww4.sinaimg.cn/large/9dcb59c7gw1f1lavactbjj20di08emy7.jpg"></p>
 <p>
 	<small> ============== 4小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3949574579617875" target="freeweibo-mirror">SPAM 1970年3月5日，遇罗克在北京工体的十万人大会上…</a>
+</h2>
+<p>SPAM 1970年3月5日，遇罗克在北京工体的十万人大会上，被宣判死刑并处决，他在1966年写下著名的《出身论》，批判血统论(老子英雄儿好汉，老子反动儿混蛋)。在遇罗克的祭日，重温北岛写给遇罗克的诗歌：我只能选择天空 决不跪在地上 以显出刽子手们的高大。[蜡烛][蜡烛][蜡烛]<br><img src="http://ww2.sinaimg.cn/large/006j4IW2gw1f1lnherk7xj30c71xdwln.jpg"></p>
+<p>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3949523992132056" target="freeweibo-mirror">图七真是做大死！//@老柴-G世界NG更新官网了吗:一颗赛艇…</a>
 </h2>
@@ -119,24 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3949427602773465" target="freeweibo-mirror">//@神马素人V: //@潘金莲日记:轉發微博</a>
 </h2>
 <p>//@神马素人V: //@潘金莲日记:轉發微博<br><br>RE: 宋平致信政治局，要求离退休老干部，必须公开财产和子女配偶财产和国籍。否则不被视作前领导人[鼓掌][鼓掌][鼓掌][鼓掌]<br><img src="http://ww3.sinaimg.cn/large/006kyQ0hgw1f1l1e8z0k1j30jg06v3zj.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3949423500839489" target="freeweibo-mirror">SPAM ❤️7号上午10点上❤️。粉色还是黑色？[doge…</a>
-</h2>
-<p>SPAM ❤️7号上午10点上❤️。粉色还是黑色？[doge]转并留言抽3个。<br><img src="http://ww2.sinaimg.cn/large/611f9d1bgw1f1l627iqdoj20zk0qo0y5.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3949420112502033" target="freeweibo-mirror">SPAM 小香黑色平底鞋也是这期的新品哦，去年年底几期一直搭…</a>
-</h2>
-<p>SPAM 小香黑色平底鞋也是这期的新品哦，去年年底几期一直搭配，很多亲喜欢，所以给大家打出来啦[可爱]<br><img src="http://ww3.sinaimg.cn/large/6bbb09c4gw1f1l5omdwcsj21w01w07wh.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3949420082435806" target="freeweibo-mirror">SPAM →_→//@神通广大-毛毛虫:累！找毛去吧。</a>
-</h2>
-<p>SPAM →_→//@神通广大-毛毛虫:累！找毛去吧。<br><br>RE: 大娘，醒醒，该举手了。<br><img src="http://ww1.sinaimg.cn/large/cfc95fc4gw1f1l56h54q8j20es0c7my8.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
