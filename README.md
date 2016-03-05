@@ -32,6 +32,12 @@
 <p>
 	<small> ============== 1小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3949613708481818" target="freeweibo-mirror">#记者在两会#西藏代表團戴領導人胸章入場，每人胸前戴兩個：一…</a>
+</h2>
+<p>#记者在两会#西藏代表團戴領導人胸章入場，每人胸前戴兩個：一是有毛澤東、鄧小平、江澤民、胡錦濤、習近平5人像章，另一個是現任主席習近平個人的像章。代表們表示是代表團統一配發的。（记者 木子）<br><img src="http://ww3.sinaimg.cn/large/6e18de6fjw1f1lrz7ilw3j20jz0jz3zu.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3949613226605627" target="freeweibo-mirror">SPAM [闭嘴]『西藏代表团戴习近平像章』http://t…</a>
 </h2>
 <p>SPAM [闭嘴]『西藏代表团戴习近平像章』http://t.cn/RGTeSTb</p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3949429016682954" target="freeweibo-mirror">//@崔小平律师: //@老李头06:此消息我等小民无从证实…</a>
 </h2>
 <p>//@崔小平律师: //@老李头06:此消息我等小民无从证实或证伪，但愿确有其事。<br><br>RE: 宋平致信政治局，要求离退休老干部，必须公开财产和子女配偶财产和国籍。否则不被视作前领导人[鼓掌][鼓掌][鼓掌][鼓掌]<br><img src="http://ww3.sinaimg.cn/large/006kyQ0hgw1f1l1e8z0k1j30jg06v3zj.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3949427602773465" target="freeweibo-mirror">//@神马素人V: //@潘金莲日记:轉發微博</a>
-</h2>
-<p>//@神马素人V: //@潘金莲日记:轉發微博<br><br>RE: 宋平致信政治局，要求离退休老干部，必须公开财产和子女配偶财产和国籍。否则不被视作前领导人[鼓掌][鼓掌][鼓掌][鼓掌]<br><img src="http://ww3.sinaimg.cn/large/006kyQ0hgw1f1l1e8z0k1j30jg06v3zj.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
