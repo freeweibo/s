@@ -72,7 +72,7 @@
 </h2>
 <p>SPAM 【这节奏令人无语】说话的被删掉，没说的“被说话”。<br><img src="http://ww1.sinaimg.cn/large/9ddb72ebjw1f1m54fcf64j20ku112teo.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3949721707415445" target="freeweibo-mirror">你认识这些代表你的人吗？———我觉得图三很有趣儿，到此一游！…</a>
 </h2>
