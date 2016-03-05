@@ -36,7 +36,7 @@
 </h2>
 <p>SPAM 【这节奏令人无语】说话的被删掉，没说的“被说话”。<br><img src="http://ww1.sinaimg.cn/large/9ddb72ebjw1f1m54fcf64j20ku112teo.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3949718201213049" target="freeweibo-mirror">像章都有了！[威武][威武]</a>
 </h2>
@@ -132,7 +132,7 @@
 </h2>
 <p>张宏良：没有左翼人士参加的政治协商会议已失去了政治协商的功能： 一年一度的全国政治协商会议正在召开，只是没有左翼人士参加的政治协商会议，已经完全失去了政治协商的功能，变成了富商大贾...文字版>> http://t.cn/RGH2i6L （新浪长微博>> http://t.cn/zOXAaic）<br><img src="http://ww4.sinaimg.cn/large/b6ddfe6djw1f1ly8vlu93j20c82k3dzt.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3949658281690725" target="freeweibo-mirror">SPAM 开店至今卖了几万条的裤子再加强版 转发抽5个宝宝送…</a>
 </h2>
