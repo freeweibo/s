@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3949728187573221" target="freeweibo-mirror">SPAM 【这节奏令人无语】说话的被删掉，没说的“被说话”。</a>
+</h2>
+<p>SPAM 【这节奏令人无语】说话的被删掉，没说的“被说话”。<br><img src="http://ww1.sinaimg.cn/large/9ddb72ebjw1f1m54fcf64j20ku112teo.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3949718201213049" target="freeweibo-mirror">像章都有了！[威武][威武]</a>
 </h2>
 <p>像章都有了！[威武][威武]<br><br>RE: 【西藏人大代表团戴习近平像章】3月5日，中国第十二届全国人民代表大会第四次会议举行开幕会。在代表团入场现场，香港卫视记者观察到，西藏代表团各代表和工作人员胸前都别有两枚像章。一枚是印有毛泽东、邓小平、江泽民、胡锦涛、习近平5人像章，另一枚是习主席个人的像章。记者询问得知，只有西藏代...全文： http://m.weibo.cn/1654134123/3949610676098094<br><img src="http://ww2.sinaimg.cn/large/6298156bgw1f1lrmhxt8dj20hp0d3q42.jpg"></p>
@@ -36,19 +42,19 @@
 </h2>
 <p>外国人怎么都比国人知道的多？ //@早报网:中国人民大学政治学系教授张鸣则分析指出，施芝鸿的说法可能代表“另一种声音”，“声音来自于哪儿，不好猜测”。张鸣也说，施芝鸿的说法在理论上虽然说得通，但它跟现在流行的“习核心”说法有些差距，外界将之理解为“习近平一个人”的“核心”，而不是施芝</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3949693745213477" target="freeweibo-mirror">梦。。。</a>
 </h2>
 <p>梦。。。<br><img src="http://ww2.sinaimg.cn/large/65c38c30jw1f1m15dzmckj20c809e3za.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3949693228864477" target="freeweibo-mirror">//@早报网:中国人民大学政治学系教授张鸣则分析指出，施芝鸿…</a>
 </h2>
 <p>//@早报网:中国人民大学政治学系教授张鸣则分析指出，施芝鸿的说法可能代表“另一种声音”，“声音来自于哪儿，不好猜测”。张鸣也说，施芝鸿的说法在理论上虽然说得通，但它跟现在流行的“习核心”说法有些差距，外界将之理解为“习近平一个人”的“核心”，而不是施芝鸿所说的三重含义。</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3949691622070073" target="freeweibo-mirror">SPAM 对于这类一天到晚唱当恩的家伙，一定要警惕。</a>
 </h2>
@@ -66,7 +72,7 @@
 </h2>
 <p>“党恩大于天”，想想的确如此。此“恩”是一千万还是一个亿啊[抓狂]<br><img src="http://ww2.sinaimg.cn/large/4c7c1ba8gw1f1lzc50s79j20fa0a5dgl.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3949677689353014" target="freeweibo-mirror">蒋洪：俞主席讲话强调包容不同意见 不理解发言被屏蔽</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3949638388755152" target="freeweibo-mirror">SPAM 郑重推荐《宁静的地平线》by张郎郎 //@玉香笼-…</a>
 </h2>
 <p>SPAM 郑重推荐《宁静的地平线》by张郎郎 //@玉香笼-包包://@郑晓翀: //@尹鸿:其实，也可以改写为“在没有人的年代里，我只能做一个英雄”</p>
-<p>
-	<small> ============== 8小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3949636815323747" target="freeweibo-mirror">西藏的书记真给力。//@北国红叶来南国: //@腐败零容忍:…</a>
-</h2>
-<p>西藏的书记真给力。//@北国红叶来南国: //@腐败零容忍:[哈哈]//@昕静自然好://@李崇律师://@孟浩然大律师:原来不是传说啊//@紫雪糕KDS: 哪里有教跳忠字舞！//@邮局钢锯:直接上劝进表！ //@快乐诊所_舒汉锋:西藏已经领先了，各地怎么办？尤其上海该怎么办？[嘻嘻]//@鄢烈山: 原来是标配！<br><br>RE: #记者在两会#西藏代表團戴領導人胸章入場，每人胸前戴兩個：一是有毛澤東、鄧小平、江澤民、胡錦濤、習近平5人像章，另一個是現任主席習近平個人的像章。代表們表示是代表團統一配發的。（记者 木子）<br><img src="http://ww3.sinaimg.cn/large/6e18de6fjw1f1lrz7ilw3j20jz0jz3zu.jpg"></p>
 <p>
 	<small> ============== 8小时前</small>
 </p>
