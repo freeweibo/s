@@ -138,7 +138,7 @@
 </h2>
 <p>SPAM 对于这类一天到晚唱当恩的家伙，一定要警惕。<br><br>RE: “党恩大于天”，想想的确如此。此“恩”是一千万还是一个亿啊[抓狂]<br><img src="http://ww2.sinaimg.cn/large/4c7c1ba8gw1f1lzc50s79j20fa0a5dgl.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p>
 <table>
     <tr>
