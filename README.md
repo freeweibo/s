@@ -60,7 +60,7 @@
 </h2>
 <p>SPAM 是母狗养的。//@不戒_和尚:博猪狗娘养的？<br><br>RE: 突然痛经[泪][泪][泪]<br><img src="http://ww1.sinaimg.cn/large/e786a5e0jw1f1l6yun357j20es0aqdgd.jpg"></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3949436591961204" target="freeweibo-mirror">SPAM 朋友很好的微 店！很好的鞋子！主要经营各大知名品牌…</a>
 </h2>
@@ -132,7 +132,7 @@
 </h2>
 <p>SPAM //@婚恋哲学: 这位美女调养师: 人很专业，也很nice 哦。有需要的亲们赶紧的哦!</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3949415188704098" target="freeweibo-mirror">大娘，醒醒，该举手了。</a>
 </h2>
