@@ -30,7 +30,7 @@
 </h2>
 <p>SPAM [生病]//@50年矛苔: [偷乐]//@王亚东522: //@淡紫色de冰冰:[笑cry] //@白东平151121:[笑cry] //@戎戎93日记:太年轻！[哈哈][哈哈][哈哈]<br><br>RE: 突然痛经[泪][泪][泪]<br><img src="http://ww1.sinaimg.cn/large/e786a5e0jw1f1l6yun357j20es0aqdgd.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3949456720559349" target="freeweibo-mirror">SPAM 又在“炒作”吸引爱读书人的眼球了[话筒]</a>
 </h2>
@@ -102,7 +102,7 @@
 </h2>
 <p>//@神马素人V: //@潘金莲日记:轉發微博<br><br>RE: 宋平致信政治局，要求离退休老干部，必须公开财产和子女配偶财产和国籍。否则不被视作前领导人[鼓掌][鼓掌][鼓掌][鼓掌]<br><img src="http://ww3.sinaimg.cn/large/006kyQ0hgw1f1l1e8z0k1j30jg06v3zj.jpg"></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3949423500839489" target="freeweibo-mirror">SPAM ❤️7号上午10点上❤️。粉色还是黑色？[doge…</a>
 </h2>
