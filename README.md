@@ -24,7 +24,7 @@
 </h2>
 <p>像章都有了！[威武][威武]<br><br>RE: 【西藏人大代表团戴习近平像章】3月5日，中国第十二届全国人民代表大会第四次会议举行开幕会。在代表团入场现场，香港卫视记者观察到，西藏代表团各代表和工作人员胸前都别有两枚像章。一枚是印有毛泽东、邓小平、江泽民、胡锦涛、习近平5人像章，另一枚是习主席个人的像章。记者询问得知，只有西藏代...全文： http://m.weibo.cn/1654134123/3949610676098094<br><img src="http://ww2.sinaimg.cn/large/6298156bgw1f1lrmhxt8dj20hp0d3q42.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3949706364683255" target="freeweibo-mirror">【我也想戴。谁对底层好，谁就是大救星。我们党现在还不能彻底把…</a>
 </h2>
@@ -84,7 +84,7 @@
 </h2>
 <p>//@夙生律师事务所://@年华似水流过: //@后现代派小说家童牧野:[囧]//@法律及其价值: //@被永久删除了微博的我: 只是个保佑的种符而已！一查他立马骂娘！</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3949671489125312" target="freeweibo-mirror">SPAM //@老虎吃人s: //@拜崇博2://@重出江湖…</a>
 </h2>
@@ -102,7 +102,7 @@
 </h2>
 <p>SPAM 开店至今卖了几万条的裤子再加强版 转发抽5个宝宝送 说 要破的还是不要破的[doge]<br><img src="http://ww2.sinaimg.cn/large/7d7cf01bgw1f1lx2jw56dj20qo0qotgu.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3949654657709410" target="freeweibo-mirror">SPAM 昨天这篇被微博屏蔽了</a>
 </h2>
