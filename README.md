@@ -42,7 +42,7 @@
 </h2>
 <p>SPAM //@zenhalo: 像是聚会 开party<br><br>RE: 你认识这些代表你的人吗？———我觉得图三很有趣儿，到此一游！图二不免有些暧昧，说不清啥关系............<br><img src="http://ww3.sinaimg.cn/large/7fd6e271jw1f1m49if5e6j20r30e4dmh.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3949779983579351" target="freeweibo-mirror">/@Hai-贤: [怒]//@焦点联播: 转发微博</a>
 </h2>
