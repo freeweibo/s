@@ -24,13 +24,13 @@
 </h2>
 <p>【两会记者手记 - 谈谈任志强？“嘘—”“我们吃饭”】昨日全国政协会上，问及任志强事件及内地加强言论管控时，政协委员们都默默无语。被问到上述争议时，诺贝尔文学奖得主莫言人如其名，没有直接回答，只说“我们吃饭。”被问到任志强的时候，冯小刚在唇前竖起一根手指http://t.cn/RGT1Wiz<br><img src="http://ww4.sinaimg.cn/large/9dcb59c7gw1f1lavactbjj20di08emy7.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3949523992132056" target="freeweibo-mirror">图七真是做大死！//@老柴-G世界NG更新官网了吗:一颗赛艇…</a>
 </h2>
 <p>图七真是做大死！//@老柴-G世界NG更新官网了吗:一颗赛艇，想买//@真之漆黑天使: 你们又搞大新闻//@蓝桥里的魔法黑猫: 为啥阿沛阿旺晋美都会和谐……？<br><br>RE: 在誠品書店看到一本有趣的書。一個老外在微博上寫了一個軟件腳本，三個月內搜集出在微博發表不了的敏感詞，然後歸類研究……<br><img src="http://ww1.sinaimg.cn/large/6764cadegw1f1jt890eilj20hs0vnmzj.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3949457613936897" target="freeweibo-mirror">SPAM [生病]//@50年矛苔: [偷乐]//@王亚东5…</a>
 </h2>
