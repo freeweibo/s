@@ -24,7 +24,7 @@
 </h2>
 <p>SPAM 郑重推荐《宁静的地平线》by张郎郎 //@玉香笼-包包://@郑晓翀: //@尹鸿:其实，也可以改写为“在没有人的年代里，我只能做一个英雄”</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3949636815323747" target="freeweibo-mirror">西藏的书记真给力。//@北国红叶来南国: //@腐败零容忍:…</a>
 </h2>
@@ -42,7 +42,7 @@
 </h2>
 <p>SPAM //@章诒和:一路狂奔//@鄢烈山: 原来是标配！<br><br>RE: #记者在两会#西藏代表團戴領導人胸章入場，每人胸前戴兩個：一是有毛澤東、鄧小平、江澤民、胡錦濤、習近平5人像章，另一個是現任主席習近平個人的像章。代表們表示是代表團統一配發的。（记者 木子）<br><img src="http://ww3.sinaimg.cn/large/6e18de6fjw1f1lrz7ilw3j20jz0jz3zu.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3949620465464049" target="freeweibo-mirror">还有这事儿？不会吧？ //@谢文:文革结束后第一次吧？直接回…</a>
 </h2>
@@ -73,6 +73,12 @@
 <p>西藏特色？ //@千里蜀黍:戴像章了。<br><br>RE: 这是迄今为止两会最有价值的新闻，报道者貌似是香港卫视女记者的自媒体。所以即便是伪外媒，用心处即有大新闻，不要妄自菲薄，跟澳洲新快报那哥们似的蠢得有滋有味嗷嗷叫唤<br><img src="http://ww2.sinaimg.cn/large/a5658013gw1f1lqa0bxbjj20qo1bgtgm.jpg"></p>
 <p>
 	<small> ============== 4小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3949604678304153" target="freeweibo-mirror">香港卫视记者观察到，西藏代表团各代表和工作人员胸前都别有两枚…</a>
+</h2>
+<p>香港卫视记者观察到，西藏代表团各代表和工作人员胸前都别有两枚像章。一枚是印有毛泽东、邓小平、江泽民、胡锦涛、习近平5人像章，另一枚是习主席个人的像章。记者询问得知，只有西藏代表团配发这两枚像章。http://t.cn/RGTgre4</p>
+<p>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3949600005873489" target="freeweibo-mirror">这是迄今为止两会最有价值的新闻，报道者貌似是香港卫视女记者的…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3949455067694309" target="freeweibo-mirror">SPAM 祝你一直痛，痛到死。//@金汝姬:大家不要误会，是…</a>
 </h2>
 <p>SPAM 祝你一直痛，痛到死。//@金汝姬:大家不要误会，是金妹痛经，于配图没有关系[可爱][害羞]<br><br>RE: 突然痛经[泪][泪][泪]<br><img src="http://ww1.sinaimg.cn/large/e786a5e0jw1f1l6yun357j20es0aqdgd.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3949454728403219" target="freeweibo-mirror">SPAM 是母狗养的。//@不戒_和尚:博猪狗娘养的？</a>
-</h2>
-<p>SPAM 是母狗养的。//@不戒_和尚:博猪狗娘养的？<br><br>RE: 突然痛经[泪][泪][泪]<br><img src="http://ww1.sinaimg.cn/large/e786a5e0jw1f1l6yun357j20es0aqdgd.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
