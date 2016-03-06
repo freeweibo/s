@@ -30,7 +30,7 @@
 </h2>
 <p>1984年，李锡铭开始当市委书记，此后，北京就一直是左派营垒，估计很快要换人了 //@郑旭光VIP://@谢文:转发微博<br><br>RE: 这微博太复杂啦！<br><img src="http://ww1.sinaimg.cn/large/9ddb72ebgw1f1mg4y4e75j20ku112wl6.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3949926356362655" target="freeweibo-mirror">右边现在已经不是简单的诅咒了[可怜][可怜][挤眼][挤眼]…</a>
 </h2>
@@ -43,6 +43,12 @@
 <p>SPAM 小会停下，赶紧备战大会！[哈哈][哈哈]<br><br>RE: 这微博太复杂啦！<br><img src="http://ww1.sinaimg.cn/large/9ddb72ebgw1f1mg4y4e75j20ku112wl6.jpg"></p>
 <p>
 	<small> ============== 5小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3949880579486068" target="freeweibo-mirror">这肯定是某个傻逼，在做所谓的工作报告时，大家都听腻了、没意思…</a>
+</h2>
+<p>这肯定是某个傻逼，在做所谓的工作报告时，大家都听腻了、没意思了，才睡着了。这种报告，不能在电视上提前讲吗，非要把这么多人召集到一起，听它放屁[怒][弱]？一个国家、一个党、一个会议的组织者，把一场会开的 让与会者都睡着了，这不是睡觉人的责任，是放屁人的责任。@紫光阁@共青团中央@冯小刚<br><img src="http://ww3.sinaimg.cn/large/5f55d1cfjw1f1mmlssz2yj20ga0ci3z2.jpg"></p>
+<p>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3949880184963249" target="freeweibo-mirror">SPAM 这事儿蹊跷//@柳塘風:很有内涵！//@谜一样的星…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3949721707415445" target="freeweibo-mirror">你认识这些代表你的人吗？———我觉得图三很有趣儿，到此一游！…</a>
 </h2>
 <p>你认识这些代表你的人吗？———我觉得图三很有趣儿，到此一游！图二不免有些暧昧，说不清啥关系............<br><img src="http://ww3.sinaimg.cn/large/7fd6e271jw1f1m49if5e6j20r30e4dmh.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3949718201213049" target="freeweibo-mirror">像章都有了！[威武][威武]</a>
-</h2>
-<p>像章都有了！[威武][威武]<br><br>RE: 【西藏人大代表团戴习近平像章】3月5日，中国第十二届全国人民代表大会第四次会议举行开幕会。在代表团入场现场，香港卫视记者观察到，西藏代表团各代表和工作人员胸前都别有两枚像章。一枚是印有毛泽东、邓小平、江泽民、胡锦涛、习近平5人像章，另一枚是习主席个人的像章。记者询问得知，只有西藏代...全文： http://m.weibo.cn/1654134123/3949610676098094<br><img src="http://ww2.sinaimg.cn/large/6298156bgw1f1lrmhxt8dj20hp0d3q42.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
