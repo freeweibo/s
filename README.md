@@ -24,7 +24,13 @@
 </h2>
 <p>1984年，李锡铭开始当市委书记，此后，北京就一直是左派营垒，估计很快要换人了 //@郑旭光VIP://@谢文:转发微博<br><br>RE: 这微博太复杂啦！<br><img src="http://ww1.sinaimg.cn/large/9ddb72ebgw1f1mg4y4e75j20ku112wl6.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3949926356362655" target="freeweibo-mirror">右边现在已经不是简单的诅咒了[可怜][可怜][挤眼][挤眼]…</a>
+</h2>
+<p>右边现在已经不是简单的诅咒了[可怜][可怜][挤眼][挤眼] //@虎叔-:小秘书，听叔的，把这个姓陶的给削了[笑cry]<br><br>RE: 这微博太复杂啦！<br><img src="http://ww1.sinaimg.cn/large/9ddb72ebgw1f1mg4y4e75j20ku112wl6.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3949894085276426" target="freeweibo-mirror">SPAM 小会停下，赶紧备战大会！[哈哈][哈哈]</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3949706395034419" target="freeweibo-mirror">谁干的？</a>
 </h2>
 <p>谁干的？<br><br>RE: 全国政协委员蒋洪：上午发言后，我就发现昨天财新网采访我的报道被屏蔽了，屏蔽的理由是“该网页包含违法或违规内容”。我对这种情况感到很不可理解。……任何部门都不能够超越法律，或者以自己的偏好来代替法律，去删公民的文章和帖子。http://t.cn/RGHyBO7</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3949706364683255" target="freeweibo-mirror">【我也想戴。谁对底层好，谁就是大救星。我们党现在还不能彻底把…</a>
-</h2>
-<p>【我也想戴。谁对底层好，谁就是大救星。我们党现在还不能彻底把人大代表6成更换为底层百姓，还存在变天的风险。若如此，江山稳固就没有了问题。再说，为何底层不能戴？资本家还天天说美国好呢？这不是崇拜么？尼玛的叫兽！】西藏人大代表团戴习近平像章 | 联合早报网 http://t.cn/RGH5qmV</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
