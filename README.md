@@ -66,7 +66,7 @@
 </h2>
 <p>这微博太复杂啦！<br><img src="http://ww1.sinaimg.cn/large/9ddb72ebgw1f1mg4y4e75j20ku112wl6.jpg"></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3949804373731801" target="freeweibo-mirror">//@山高路远N://@汪俊廷5://@内蒙古巴蒙人://@…</a>
 </h2>
@@ -84,7 +84,7 @@
 </h2>
 <p>SPAM //@婚恋哲学: 这位美女调养师, 人很专业, 也很   nice哦。有需要的亲们赶紧的哦~</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3949783398316464" target="freeweibo-mirror">SPAM //@zenhalo: 像是聚会 开party</a>
 </h2>
