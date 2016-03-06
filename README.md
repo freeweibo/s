@@ -78,7 +78,7 @@
 </h2>
 <p>SPAM 你冤了吗?骑墙派不好当。<br><br>RE: 文艺界又出一个大坏蛋。[发呆][难过][偷笑]我试试这条微博还删吗？<br><img src="http://ww2.sinaimg.cn/large/774104ccjw1f1n8c51xfaj20k00zk40z.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3950140613979508" target="freeweibo-mirror">//@大浪花啊:央视不要脸，强行杜撰新闻自慰//@探险家计划…</a>
 </h2>
@@ -102,7 +102,7 @@
 </h2>
 <p>SPAM //@侯宁:作者是？[汗]<br><br>RE: 什么意思！[怒]@无界新闻<br><img src="http://ww3.sinaimg.cn/large/006iKLkpjw1f1neo25x3cj30m50vggs0.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3950124252608582" target="freeweibo-mirror">SPAM //@王明解读://@汤耕车田://@热笔小新:/…</a>
 </h2>
