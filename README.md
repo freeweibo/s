@@ -120,7 +120,7 @@
 </h2>
 <p>吓尿了<br><img src="http://ww3.sinaimg.cn/large/5e0bba51gw1f1n1h4ky2nj20ku112jzz.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3949997378583837" target="freeweibo-mirror">[哈哈][哈哈][哈哈] //@莱德赵克强:[笑cry] /…</a>
 </h2>
