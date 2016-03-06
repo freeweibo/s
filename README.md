@@ -78,7 +78,7 @@
 </h2>
 <p>【他们带着人民的重托直接进入梦乡】报告王岐山书记：这几位“两会”代表带着人民的重托进入“中国梦”了。王岐山书记答道：等这几位同志治睡醒了，我带他们换个地方继续睡。[哈哈][哈哈][哈哈]<br><img src="http://ww4.sinaimg.cn/large/db1747fcgw1f1mbomgu2tj20ga0ci0u9.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3949785964617710" target="freeweibo-mirror">SPAM //@婚恋哲学: 这位美女调养师, 人很专业, 也…</a>
 </h2>
