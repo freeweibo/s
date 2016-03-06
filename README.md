@@ -36,7 +36,7 @@
 </h2>
 <p>//@韶管南友K9:我不姓国民党的党！我信共产党的共！我曾经是@拥护然并卵，现在是抵制反对一切然并卵！</p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3950170615700653" target="freeweibo-mirror">嘴硬的像鸭子，就是不说经济危机在肆虐，没有经济危机你浴火干嘛…</a>
 </h2>
@@ -138,7 +138,7 @@
 </h2>
 <p>央视更高人民法院终审判决！<br><br>RE: 文艺界又出一个大坏蛋。[发呆][难过][偷笑]我试试这条微博还删吗？<br><img src="http://ww2.sinaimg.cn/large/774104ccjw1f1n8c51xfaj20k00zk40z.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p>
 <table>
     <tr>
