@@ -24,7 +24,7 @@
 </h2>
 <p>//@静夜之笋悄悄长7:转发微博</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3949928965104886" target="freeweibo-mirror">1984年，李锡铭开始当市委书记，此后，北京就一直是左派营垒…</a>
 </h2>
@@ -42,7 +42,7 @@
 </h2>
 <p>SPAM 小会停下，赶紧备战大会！[哈哈][哈哈]<br><br>RE: 这微博太复杂啦！<br><img src="http://ww1.sinaimg.cn/large/9ddb72ebgw1f1mg4y4e75j20ku112wl6.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3949880579486068" target="freeweibo-mirror">这肯定是某个傻逼，在做所谓的工作报告时，大家都听腻了、没意思…</a>
 </h2>
