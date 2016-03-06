@@ -126,7 +126,7 @@
 </h2>
 <p>SPAM 这条禁转。说明他们知道这行为并不光彩？<br><img src="http://ww1.sinaimg.cn/large/71e168dajw1f1n7414jbhj20jz0jz0v3.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3950053858637471" target="freeweibo-mirror">SPAM -------------------------…</a>
 </h2>
