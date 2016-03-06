@@ -90,7 +90,7 @@
 </h2>
 <p>对于“两会”来说，代表委员拼的是谁清醒，媒体人拼的是谁个儿高！[偷笑]#微博热点快评#<br><img src="http://ww2.sinaimg.cn/large/50fd482djw1f1n3ymgsdvj20hs0bvwfs.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3950029892861595" target="freeweibo-mirror">SPAM 88年，属龙的？果然有龙行天下之大痣！[good]</a>
 </h2>
@@ -116,6 +116,12 @@
 <p>
 	<small> ============== 6小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3950029066598497" target="freeweibo-mirror">【诗人贝岭到港调查桂民海失踪：在泰调查显示其是被绑架】来香港…</a>
+</h2>
+<p>【诗人贝岭到港调查桂民海失踪：在泰调查显示其是被绑架】来香港之前，贝岭已经和桂敏海的另外几名朋友到泰国芭堤雅做了调查，包括检视桂敏海在当地寓所的闭路电视片段。贝岭得到的结论是，桂敏海是被人绑架的。http://t.cn/RGQzIac<br><img src="http://ww1.sinaimg.cn/large/9dcb59c7jw1f1n3kwklv3j20di07rmy8.jpg"></p>
+<p>
+	<small> ============== 6小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3950028806300834" target="freeweibo-mirror">SPAM 还以为他叫毛荣华 //@丁声基:[偷笑]//@昙私…</a>
 </h2>
 <p>SPAM 还以为他叫毛荣华 //@丁声基:[偷笑]//@昙私厨:贵圈很神秘。//@由之-14: //@我家成分不好:支持哈哈哈哈哈 //@林小岚宝:不是很懂你们推背圈 //@Paul郑褚:昔有吾友屌似汝，坟头草已三尺高 //@亨利博士:真乃神人也 //@张洲:习大大看完轻轻说了5个字：推了个背的。[哼]//@孤独得农民: 抄送@习大大<br><br>RE: 吓尿了<br><img src="http://ww3.sinaimg.cn/large/5e0bba51gw1f1n1h4ky2nj20ku112jzz.jpg"></p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3950022258880517" target="freeweibo-mirror">SPAM 每年两会，总是某些政客刷存在感和秀智商的绝佳机会，…</a>
 </h2>
 <p>SPAM 每年两会，总是某些政客刷存在感和秀智商的绝佳机会，真心建议对某些奇葩提案的不负责货色，有个准入和清理机制。</p>
-<p>
-	<small> ============== 6小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3950021998682132" target="freeweibo-mirror">SPAM </a>
-</h2>
-<p>SPAM </p>
 <p>
 	<small> ============== 6小时前</small>
 </p>
