@@ -30,7 +30,7 @@
 </h2>
 <p>右边现在已经不是简单的诅咒了[可怜][可怜][挤眼][挤眼] //@虎叔-:小秘书，听叔的，把这个姓陶的给削了[笑cry]<br><br>RE: 这微博太复杂啦！<br><img src="http://ww1.sinaimg.cn/large/9ddb72ebgw1f1mg4y4e75j20ku112wl6.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3949894085276426" target="freeweibo-mirror">SPAM 小会停下，赶紧备战大会！[哈哈][哈哈]</a>
 </h2>
@@ -78,7 +78,7 @@
 </h2>
 <p>SPAM //@zenhalo: 像是聚会 开party<br><br>RE: 你认识这些代表你的人吗？———我觉得图三很有趣儿，到此一游！图二不免有些暧昧，说不清啥关系............<br><img src="http://ww3.sinaimg.cn/large/7fd6e271jw1f1m49if5e6j20r30e4dmh.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3949779983579351" target="freeweibo-mirror">/@Hai-贤: [怒]//@焦点联播: 转发微博</a>
 </h2>
