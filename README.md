@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3949954316338094" target="freeweibo-mirror">//@静夜之笋悄悄长7:转发微博</a>
+</h2>
+<p>//@静夜之笋悄悄长7:转发微博</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3949928965104886" target="freeweibo-mirror">1984年，李锡铭开始当市委书记，此后，北京就一直是左派营垒…</a>
 </h2>
 <p>1984年，李锡铭开始当市委书记，此后，北京就一直是左派营垒，估计很快要换人了 //@郑旭光VIP://@谢文:转发微博<br><br>RE: 这微博太复杂啦！<br><img src="http://ww1.sinaimg.cn/large/9ddb72ebgw1f1mg4y4e75j20ku112wl6.jpg"></p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3949718201213049" target="freeweibo-mirror">像章都有了！[威武][威武]</a>
 </h2>
 <p>像章都有了！[威武][威武]<br><br>RE: 【西藏人大代表团戴习近平像章】3月5日，中国第十二届全国人民代表大会第四次会议举行开幕会。在代表团入场现场，香港卫视记者观察到，西藏代表团各代表和工作人员胸前都别有两枚像章。一枚是印有毛泽东、邓小平、江泽民、胡锦涛、习近平5人像章，另一枚是习主席个人的像章。记者询问得知，只有西藏代...全文： http://m.weibo.cn/1654134123/3949610676098094<br><img src="http://ww2.sinaimg.cn/large/6298156bgw1f1lrmhxt8dj20hp0d3q42.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3949707963274897" target="freeweibo-mirror">呵呵//@章诒和://@王小山: 呵呵。//@杨晓春:呵呵。…</a>
-</h2>
-<p>呵呵//@章诒和://@王小山: 呵呵。//@杨晓春:呵呵。 //@程立澜:呵呵。<br><br>RE: 全国政协委员蒋洪：上午发言后，我就发现昨天财新网采访我的报道被屏蔽了，屏蔽的理由是“该网页包含违法或违规内容”。我对这种情况感到很不可理解。……任何部门都不能够超越法律，或者以自己的偏好来代替法律，去删公民的文章和帖子。http://t.cn/RGHyBO7</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
