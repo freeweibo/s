@@ -24,7 +24,7 @@
 </h2>
 <p>该娃配得起被土匪反复奸 //@Xiyan-Fine:嗯,你还活着,就是这个国家最大的宽容 //@conciser://@LVLVLVLV花生大少://@大流6:洗脑至此，匪复何求//@killhand-AK47:感谢党没让博主全家死光！//@俺是老毒物:既然中国没问题，po主也是德匹下！//@EireiEmiya: 恐怕不是。你的遭遇并不鲜见//@檬雨辰:回复</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3949968857933360" target="freeweibo-mirror">党纪国法都严厉禁止吧？咱这民族真不长记性。[衰] //@煙巳…</a>
 </h2>
@@ -60,7 +60,7 @@
 </h2>
 <p>1984年，李锡铭开始当市委书记，此后，北京就一直是左派营垒，估计很快要换人了 //@郑旭光VIP://@谢文:转发微博<br><br>RE: 这微博太复杂啦！<br><img src="http://ww1.sinaimg.cn/large/9ddb72ebgw1f1mg4y4e75j20ku112wl6.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3949926356362655" target="freeweibo-mirror">右边现在已经不是简单的诅咒了[可怜][可怜][挤眼][挤眼]…</a>
 </h2>
