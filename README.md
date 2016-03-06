@@ -90,7 +90,7 @@
 </h2>
 <p>SPAM 懂<br><br>RE: 文艺界又出一个大坏蛋。[发呆][难过][偷笑]我试试这条微博还删吗？<br><img src="http://ww2.sinaimg.cn/large/774104ccjw1f1n8c51xfaj20k00zk40z.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3950131420048772" target="freeweibo-mirror">SPAM 坏蛋[嘻嘻][嘻嘻][嘻嘻]</a>
 </h2>
@@ -114,7 +114,7 @@
 </h2>
 <p>SPAM 评论真热闹<br><br>RE: 文艺界又出一个大坏蛋。[发呆][难过][偷笑]我试试这条微博还删吗？<br><img src="http://ww2.sinaimg.cn/large/774104ccjw1f1n8c51xfaj20k00zk40z.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3950119055864480" target="freeweibo-mirror">哈哈 //@左手刷片强://@陆浑戎:转发微博</a>
 </h2>
