@@ -66,7 +66,7 @@
 </h2>
 <p>右边现在已经不是简单的诅咒了[可怜][可怜][挤眼][挤眼] //@虎叔-:小秘书，听叔的，把这个姓陶的给削了[笑cry]<br><br>RE: 这微博太复杂啦！<br><img src="http://ww1.sinaimg.cn/large/9ddb72ebgw1f1mg4y4e75j20ku112wl6.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3949894085276426" target="freeweibo-mirror">SPAM 小会停下，赶紧备战大会！[哈哈][哈哈]</a>
 </h2>
@@ -78,7 +78,7 @@
 </h2>
 <p>这肯定是某个傻逼，在做所谓的工作报告时，大家都听腻了、没意思了，才睡着了。这种报告，不能在电视上提前讲吗，非要把这么多人召集到一起，听它放屁[怒][弱]？一个国家、一个党、一个会议的组织者，把一场会开的 让与会者都睡着了，这不是睡觉人的责任，是放屁人的责任。@紫光阁@共青团中央@冯小刚<br><img src="http://ww3.sinaimg.cn/large/5f55d1cfjw1f1mmlssz2yj20ga0ci3z2.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3949880184963249" target="freeweibo-mirror">SPAM 这事儿蹊跷//@柳塘風:很有内涵！//@谜一样的星…</a>
 </h2>
