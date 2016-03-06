@@ -102,7 +102,7 @@
 </h2>
 <p>对于“两会”来说，代表委员拼的是谁清醒，媒体人拼的是谁个儿高！[偷笑]#微博热点快评#<br><img src="http://ww2.sinaimg.cn/large/50fd482djw1f1n3ymgsdvj20hs0bvwfs.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3950029892861595" target="freeweibo-mirror">SPAM 88年，属龙的？果然有龙行天下之大痣！[good]</a>
 </h2>
