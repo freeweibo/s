@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3949928965104886" target="freeweibo-mirror">1984年，李锡铭开始当市委书记，此后，北京就一直是左派营垒…</a>
+</h2>
+<p>1984年，李锡铭开始当市委书记，此后，北京就一直是左派营垒，估计很快要换人了 //@郑旭光VIP://@谢文:转发微博<br><br>RE: 这微博太复杂啦！<br><img src="http://ww1.sinaimg.cn/large/9ddb72ebgw1f1mg4y4e75j20ku112wl6.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3949894085276426" target="freeweibo-mirror">SPAM 小会停下，赶紧备战大会！[哈哈][哈哈]</a>
 </h2>
 <p>SPAM 小会停下，赶紧备战大会！[哈哈][哈哈]<br><br>RE: 这微博太复杂啦！<br><img src="http://ww1.sinaimg.cn/large/9ddb72ebgw1f1mg4y4e75j20ku112wl6.jpg"></p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3949706364683255" target="freeweibo-mirror">【我也想戴。谁对底层好，谁就是大救星。我们党现在还不能彻底把…</a>
 </h2>
 <p>【我也想戴。谁对底层好，谁就是大救星。我们党现在还不能彻底把人大代表6成更换为底层百姓，还存在变天的风险。若如此，江山稳固就没有了问题。再说，为何底层不能戴？资本家还天天说美国好呢？这不是崇拜么？尼玛的叫兽！】西藏人大代表团戴习近平像章 | 联合早报网 http://t.cn/RGH5qmV</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3949693870650487" target="freeweibo-mirror">外国人怎么都比国人知道的多？ //@早报网:中国人民大学政治…</a>
-</h2>
-<p>外国人怎么都比国人知道的多？ //@早报网:中国人民大学政治学系教授张鸣则分析指出，施芝鸿的说法可能代表“另一种声音”，“声音来自于哪儿，不好猜测”。张鸣也说，施芝鸿的说法在理论上虽然说得通，但它跟现在流行的“习核心”说法有些差距，外界将之理解为“习近平一个人”的“核心”，而不是施芝</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
