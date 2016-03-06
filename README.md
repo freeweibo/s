@@ -42,7 +42,7 @@
 </h2>
 <p>这样，举报党满意了吗？<br><img src="http://ww4.sinaimg.cn/large/006pwkR5gw1f1niycc9mbj31og2iohdv.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3950155865024672" target="freeweibo-mirror">SPAM 监狱学园OAD发售~</a>
 </h2>
