@@ -90,13 +90,13 @@
 </h2>
 <p>//@高小曜://@一片月在呼吸v: 该来的会来//@任小炮来也://@放眼_://@刺破天://@腾晓东:外储一旦耗光，毛币就会一文不值。[酷]<br><br>RE: 穆迪公司下调中国主权评级。意义重大，深远，有启示意义。中国经济将崩溃。现在中国政府是硬撑着。</p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3949824048509531" target="freeweibo-mirror">这微博太复杂啦！</a>
 </h2>
 <p>这微博太复杂啦！<br><img src="http://ww1.sinaimg.cn/large/9ddb72ebgw1f1mg4y4e75j20ku112wl6.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3949804373731801" target="freeweibo-mirror">//@山高路远N://@汪俊廷5://@内蒙古巴蒙人://@…</a>
 </h2>
