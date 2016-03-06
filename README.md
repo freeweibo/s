@@ -30,7 +30,7 @@
 </h2>
 <p>1984年，李锡铭开始当市委书记，此后，北京就一直是左派营垒，估计很快要换人了 //@郑旭光VIP://@谢文:转发微博<br><br>RE: 这微博太复杂啦！<br><img src="http://ww1.sinaimg.cn/large/9ddb72ebgw1f1mg4y4e75j20ku112wl6.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3949926356362655" target="freeweibo-mirror">右边现在已经不是简单的诅咒了[可怜][可怜][挤眼][挤眼]…</a>
 </h2>
