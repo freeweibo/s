@@ -42,7 +42,7 @@
 </h2>
 <p>对于“两会”来说，代表委员拼的是谁清醒，媒体人拼的是谁个儿高！[偷笑]#微博热点快评#<br><img src="http://ww2.sinaimg.cn/large/50fd482djw1f1n3ymgsdvj20hs0bvwfs.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3950029892861595" target="freeweibo-mirror">SPAM 88年，属龙的？果然有龙行天下之大痣！[good]</a>
 </h2>
@@ -102,7 +102,7 @@
 </h2>
 <p>sgw[泪流满面]卧槽…老爸在家族群里发了黄色gif视频我是不是该当没看见[微笑][嘻嘻][嘻嘻][嘻嘻]雾atpmtjm<br><img src="http://ww2.sinaimg.cn/large/6b27dbd9jw1f1n2b1ef3jj20k00l9q6c.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3950015845930977" target="freeweibo-mirror">警察连自己都保护不了，怎么保护人民群众？既然起不到作用，就让…</a>
 </h2>
