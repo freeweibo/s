@@ -72,7 +72,7 @@
 </h2>
 <p>SPAM 这个这个，不好评论了！//@盘子微谈: //@喷嚏网铂程://@Fenng: 讲真，民间研究易经、推背图、紫微斗数、黄帝内经的估计得有千把万人<br><br>RE: 吓尿了<br><img src="http://ww3.sinaimg.cn/large/5e0bba51gw1f1n1h4ky2nj20ku112jzz.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3950022258880517" target="freeweibo-mirror">SPAM 每年两会，总是某些政客刷存在感和秀智商的绝佳机会，…</a>
 </h2>
