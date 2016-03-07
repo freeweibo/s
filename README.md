@@ -24,7 +24,7 @@
 </h2>
 <p>SPAM [哈哈][哈哈][哈哈][笑cry][笑cry][笑cry] //@兰亭静寂:咋啦？[疑问][疑问][疑问]<br><br>RE: 文艺界又出一个大坏蛋。[发呆][难过][偷笑]我试试这条微博还删吗？<br><img src="http://ww2.sinaimg.cn/large/774104ccjw1f1n8c51xfaj20k00zk40z.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3950183769362083" target="freeweibo-mirror">SPAM 需要的联系@佩佩家的阿胶糕</a>
 </h2>
