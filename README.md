@@ -38,6 +38,18 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3950556366059008" target="freeweibo-mirror">晚上领导又说了，稳定大于一切，领导说的我今晚全部删了！！！！…</a>
+</h2>
+<p>晚上领导又说了，稳定大于一切，领导说的我今晚全部删了！！！！！！！！！我们不关心，他们说了什么，我们应该关心，他们明年会说什么，已经说了的大家都知道了，大家不知道的知道他们会说什么，那才是真本事！[偷笑]</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3950550935121376" target="freeweibo-mirror">最后领导说了：好多人会分流下岗。符合去年大幅度裁员的预判！</a>
+</h2>
+<p>最后领导说了：好多人会分流下岗。符合去年大幅度裁员的预判！</p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3950542470390167" target="freeweibo-mirror">如今流行官員冷臉，昨日黑龍江陸昊就如此：“笑不笑只是我的一种…</a>
 </h2>
 <p>如今流行官員冷臉，昨日黑龍江陸昊就如此：“笑不笑只是我的一种方式。而且，你也不能强加于我。”“我估计到你可能会问什么问题。事实上，我现在很平静”。。。</p>
@@ -125,18 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3950491744130018" target="freeweibo-mirror">我有事，先走一步。不好意思，你们聊。</a>
 </h2>
 <p>我有事，先走一步。不好意思，你们聊。<br><br>RE: “王书记，请你回应一下武威抓记者的事情”……“王书记，总书记也说了，舆论监督和正面报道是统一的”http://t.cn/RG8wT6O新京报记者几次提问武威抓记者一事，几次被打断，最终王书记走了……<br><img src="http://ww1.sinaimg.cn/large/7e035fcbgw1f1ojwiqf03j20qo1be0xh.jpg"></p>
-<p>
-	<small> ============== 7小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3950490624294516" target="freeweibo-mirror">穿越到了大元</a>
-</h2>
-<p>穿越到了大元<br><img src="http://ww3.sinaimg.cn/large/006bIW6djw1f1okostk4zj30qo0zkgon.jpg"></p>
-<p>
-	<small> ============== 7小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3950486644505500" target="freeweibo-mirror">嘘⋯</a>
-</h2>
-<p>嘘⋯</p>
 <p>
 	<small> ============== 7小时前</small>
 </p>
