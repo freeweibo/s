@@ -32,6 +32,12 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3950403114763045" target="freeweibo-mirror">SPAM 现货会直接发的 预售不会影响速度</a>
+</h2>
+<p>SPAM 现货会直接发的 预售不会影响速度</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3950375171722441" target="freeweibo-mirror">SPAM 平面设计师的福音！</a>
 </h2>
 <p>SPAM 平面设计师的福音！</p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3950290274916942" target="freeweibo-mirror">SPAM 往事如风，新忆成梦！</a>
 </h2>
 <p>SPAM 往事如风，新忆成梦！<br><br>RE: 27年前论房价的报纸文章！珍贵！也有意思！<br><img src="http://ww3.sinaimg.cn/large/4a78b4eegw1f1noovgqn2j20bq0fidhf.jpg"></p>
-<p>
-	<small> ============== 9小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3950287226301045" target="freeweibo-mirror">据传老领导主动要求公布财产，要给全党做个表率[鼓掌][鼓掌]…</a>
-</h2>
-<p>据传老领导主动要求公布财产，要给全党做个表率[鼓掌][鼓掌][鼓掌]<br><img src="http://ww4.sinaimg.cn/large/006e75Sugw1f1nxbxumwhj305a07e3yh.jpg"></p>
 <p>
 	<small> ============== 10小时前</small>
 </p>
