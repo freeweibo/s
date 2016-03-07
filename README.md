@@ -50,6 +50,12 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3950483469017903" target="freeweibo-mirror">有良心的记者[赞][赞][赞]</a>
+</h2>
+<p>有良心的记者[赞][赞][赞]<br><br>RE: 甘肃，视频出来了，向新京报记者致敬！ http://t.cn/RG8wT6O .</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3950482642818997" target="freeweibo-mirror">SPAM 暴君最怕天亮，恨不能扯块黑布遮住天空，雄鸡之鸣，唤…</a>
 </h2>
 <p>SPAM 暴君最怕天亮，恨不能扯块黑布遮住天空，雄鸡之鸣，唤醒国人，暴君破胆。 //@律师老周401://@馨冰評:事难成，不放弃。<br><br>RE: 公鸡叫了之后天亮了，会产生两种后果。一，公鸡以为天是它叫亮的；二，猪认为只要把公鸡杀了，天就永远不会亮了。（赠予所有被销号的朋友们）</p>
@@ -86,6 +92,12 @@
 <p>
 	<small> ============== 4小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3950445325672108" target="freeweibo-mirror">真不拼？ //@老罗的微博:哈哈，拼爹不行吗？//@习美黄德…</a>
+</h2>
+<p>真不拼？ //@老罗的微博:哈哈，拼爹不行吗？//@习美黄德荣:[哈哈]//@侯宁:要允许该行！[挖鼻]//@赫连勃勃大王: 几千万工人下岗，他们都是为了共和国贡献最宝贵年华的工人阶级啊，被朱总下岗了。想想朱总初衷是为了发展生产力学习资本主义效率，估计他们更会感谢朱总老人家祖宗八辈的！</p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3950443282854427" target="freeweibo-mirror">旧日军档案中出现的《平型关大捷》（一）： 旧日军档案中出现的…</a>
 </h2>
 <p>旧日军档案中出现的《平型关大捷》（一）： 旧日军档案中出现的《平型关大捷》（一） 按：此文不是在讲英雄故事，而是一篇严谨的学术考察。无学智者请不要自讨无趣 冈山大学教授（日本近代史）...文字版>> http://t.cn/RG8wnny （新浪长微博>> http://t.cn/zOXAaic）<br><img src="http://ww1.sinaimg.cn/large/56661fa1jw1f1of97eic8j20c8770npd.jpg"></p>
@@ -102,11 +114,17 @@
 </h2>
 <p>到底是谁在剽窃谁？： 一场尴尬的历史剧――代表“平型关大捷”的一张历史照片 冈山大学教授 姜 克实 一、从一张有名的照片开始 如果读者对共产党史，对抗日战争史有兴趣或有研究的话，一定能记...文字版>> http://t.cn/RGSBFzZ （新浪长微博>> http://t.cn/zOXAaic）<br><img src="http://ww4.sinaimg.cn/large/56661fa1jw1f1of6qehctj20c8766hdt.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3950407409217036" target="freeweibo-mirror">去年两个男部长手拉手的照片可以传播到互联网的角角落落，今年两…</a>
 </h2>
 <p>去年两个男部长手拉手的照片可以传播到互联网的角角落落，今年两个省部级男干部手牵手的照片却被和谐了。去年我20岁，今年我21岁。</p>
+<p>
+	<small> ============== 7小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3950407128185556" target="freeweibo-mirror">昨天，政协委员朱燕来女士说，“我在中国人民大学做过四年大学老…</a>
+</h2>
+<p>昨天，政协委员朱燕来女士说，“我在中国人民大学做过四年大学老师，也算从教育界出来的。”请问朱燕来女士——知道您不拼爹，您一学哲学、社会学的，怎么当上中银香港副总裁的？您哥哥朱云来学气象的，怎么当上中金总裁的？还有，前翻译朱彤女士，怎么当上德意志银行大中华区总裁的？<br><img src="http://ww1.sinaimg.cn/large/4a8ce83ajw1f1oauuj9xmj20fa0a63yz.jpg"></p>
 <p>
 	<small> ============== 7小时前</small>
 </p><h2>
@@ -121,24 +139,6 @@
 <p>SPAM 现货会直接发的 预售不会影响速度</p>
 <p>
 	<small> ============== 7小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3950375171722441" target="freeweibo-mirror">SPAM 平面设计师的福音！</a>
-</h2>
-<p>SPAM 平面设计师的福音！</p>
-<p>
-	<small> ============== 9小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3950371745799240" target="freeweibo-mirror">SPAM 中场前帮朋友安利个广告，他们招人，有意者去面试一下…</a>
-</h2>
-<p>SPAM 中场前帮朋友安利个广告，他们招人，有意者去面试一下。</p>
-<p>
-	<small> ============== 9小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3950363738157352" target="freeweibo-mirror">SPAM 给你们看衬衣单穿的样子 很多人问#微博橱窗# ht…</a>
-</h2>
-<p>SPAM 给你们看衬衣单穿的样子 很多人问#微博橱窗# http://t.cn/RGQdZJj<br><img src="http://ww2.sinaimg.cn/large/6ce0e77fjw1f1o63s07hsj22c02c07wh.jpg"></p>
-<p>
-	<small> ============== 10小时前</small>
 </p>
 <table>
     <tr>
