@@ -38,6 +38,18 @@
 <p>
 	<small> ============== 1小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3950497108665082" target="freeweibo-mirror">向@新京报  记者致敬！ //@范炜:面对新京报记者追问，甘…</a>
+</h2>
+<p>向@新京报  记者致敬！ //@范炜:面对新京报记者追问，甘肃省委书记落荒而逃，公关能力负分，这样的人也能当省委书记？？？<br><br>RE: 甘肃，视频出来了，向新京报记者致敬！ http://t.cn/RG8wT6O .</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3950491744130018" target="freeweibo-mirror">我有事，先走一步。不好意思，你们聊。</a>
+</h2>
+<p>我有事，先走一步。不好意思，你们聊。<br><br>RE: “王书记，请你回应一下武威抓记者的事情”……“王书记，总书记也说了，舆论监督和正面报道是统一的”http://t.cn/RG8wT6O新京报记者几次提问武威抓记者一事，几次被打断，最终王书记走了……<br><img src="http://ww1.sinaimg.cn/large/7e035fcbgw1f1ojwiqf03j20qo1be0xh.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3950486644505500" target="freeweibo-mirror">嘘⋯</a>
 </h2>
 <p>嘘⋯</p>
@@ -72,7 +84,7 @@
 </h2>
 <p>SPAM #三八腐女节#我想艾特两个人～不过我心里默默萌着就够鸟～[doge]</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3950458072132724" target="freeweibo-mirror">SPAM 3.8日新:适合敏感肌肤的小样红腰子[害羞]</a>
 </h2>
@@ -125,18 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3950407409217036" target="freeweibo-mirror">去年两个男部长手拉手的照片可以传播到互联网的角角落落，今年两…</a>
 </h2>
 <p>去年两个男部长手拉手的照片可以传播到互联网的角角落落，今年两个省部级男干部手牵手的照片却被和谐了。去年我20岁，今年我21岁。</p>
-<p>
-	<small> ============== 7小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3950407128185556" target="freeweibo-mirror">昨天，政协委员朱燕来女士说，“我在中国人民大学做过四年大学老…</a>
-</h2>
-<p>昨天，政协委员朱燕来女士说，“我在中国人民大学做过四年大学老师，也算从教育界出来的。”请问朱燕来女士——知道您不拼爹，您一学哲学、社会学的，怎么当上中银香港副总裁的？您哥哥朱云来学气象的，怎么当上中金总裁的？还有，前翻译朱彤女士，怎么当上德意志银行大中华区总裁的？<br><img src="http://ww1.sinaimg.cn/large/4a8ce83ajw1f1oauuj9xmj20fa0a63yz.jpg"></p>
-<p>
-	<small> ============== 7小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3950403877564821" target="freeweibo-mirror">今年困了！//@老曹:职业代表！</a>
-</h2>
-<p>今年困了！//@老曹:职业代表！<br><br>RE: 人大代表申纪兰的两会表情包<br><img src="http://ww2.sinaimg.cn/large/72ae17c5gw1f1o46hugjkj20ca0em0t8.jpg"></p>
 <p>
 	<small> ============== 7小时前</small>
 </p>
