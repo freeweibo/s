@@ -20,6 +20,18 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3950483791924575" target="freeweibo-mirror">SPAM //@巴楚渔樵: 暴君最怕天亮，恨不能扯块黑布遮住…</a>
+</h2>
+<p>SPAM //@巴楚渔樵: 暴君最怕天亮，恨不能扯块黑布遮住天空，雄鸡之鸣，唤醒国人，暴君破胆。 //@律师老周401://@馨冰評:事难成，不放弃。<br><br>RE: 公鸡叫了之后天亮了，会产生两种后果。一，公鸡以为天是它叫亮的；二，猪认为只要把公鸡杀了，天就永远不会亮了。（赠予所有被销号的朋友们）</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3950482642818997" target="freeweibo-mirror">SPAM 暴君最怕天亮，恨不能扯块黑布遮住天空，雄鸡之鸣，唤…</a>
+</h2>
+<p>SPAM 暴君最怕天亮，恨不能扯块黑布遮住天空，雄鸡之鸣，唤醒国人，暴君破胆。 //@律师老周401://@馨冰評:事难成，不放弃。<br><br>RE: 公鸡叫了之后天亮了，会产生两种后果。一，公鸡以为天是它叫亮的；二，猪认为只要把公鸡杀了，天就永远不会亮了。（赠予所有被销号的朋友们）</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3950458072132724" target="freeweibo-mirror">SPAM 3.8日新:适合敏感肌肤的小样红腰子[害羞]</a>
 </h2>
 <p>SPAM 3.8日新:适合敏感肌肤的小样红腰子[害羞]<br><img src="http://ww1.sinaimg.cn/large/478f4358jw1f1ogwpbb6ej20ku0ku75v.jpg"></p>
@@ -127,18 +139,6 @@
 <p>SPAM 还有10分钟[haha]http://t.cn/RLpEPTe</p>
 <p>
 	<small> ============== 11小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3950326799280764" target="freeweibo-mirror">社会撕裂，人为制造左右矛盾，整天寻找敌对势力，是我在2014…</a>
-</h2>
-<p>社会撕裂，人为制造左右矛盾，整天寻找敌对势力，是我在2014年《时代人物》专访《良知律师的边界艺术》中明确提出的警示。当时针对的是所谓的“右”的少数死嗑律师。被攻击为“骑墙”“递刀”。两年过去，情势发展恰如我的预言。现在，少数极左势力又兴风作浪，试图挑起思想上的对抗与混乱。“左”已经...全文： http://m.weibo.cn/1803570001/3950326799280764<br><img src="http://ww4.sinaimg.cn/large/6b804b51gw1f1o1slsvswj20zk0qomz0.jpg"></p>
-<p>
-	<small> ============== 11小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3950312841253213" target="freeweibo-mirror">SPAM [哈哈][哈哈][哈哈][笑cry][笑cry][…</a>
-</h2>
-<p>SPAM [哈哈][哈哈][哈哈][笑cry][笑cry][笑cry] //@兰亭静寂:咋啦？[疑问][疑问][疑问]<br><br>RE: 文艺界又出一个大坏蛋。[发呆][难过][偷笑]我试试这条微博还删吗？<br><img src="http://ww2.sinaimg.cn/large/774104ccjw1f1n8c51xfaj20k00zk40z.jpg"></p>
-<p>
-	<small> ============== 12小时前</small>
 </p>
 <table>
     <tr>
