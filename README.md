@@ -90,13 +90,13 @@
 </h2>
 <p>【西藏团代表佩戴领导人头像胸章参加审议】2016年3月6日，北京，西藏代表佩戴五代领导人头像胸章参加审议。两枚头像中，一枚是五位领导人头像；一枚是2013年两会上，习总书记参加十二届全国人大一次会议西藏代表团的审议时，问候全国人大代表、西藏拉萨市城关区纳金乡塔玛村党支部第一书记格桑卓嘎的画...全文： http://m.weibo.cn/2037273137/3950446244365464<br><img src="http://ww3.sinaimg.cn/large/796e5231jw1f1o32i9jjbj20go0p00vh.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3950445325672108" target="freeweibo-mirror">真不拼？ //@老罗的微博:哈哈，拼爹不行吗？//@习美黄德…</a>
 </h2>
 <p>真不拼？ //@老罗的微博:哈哈，拼爹不行吗？//@习美黄德荣:[哈哈]//@侯宁:要允许该行！[挖鼻]//@赫连勃勃大王: 几千万工人下岗，他们都是为了共和国贡献最宝贵年华的工人阶级啊，被朱总下岗了。想想朱总初衷是为了发展生产力学习资本主义效率，估计他们更会感谢朱总老人家祖宗八辈的！</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3950443282854427" target="freeweibo-mirror">旧日军档案中出现的《平型关大捷》（一）： 旧日军档案中出现的…</a>
 </h2>
@@ -107,6 +107,12 @@
 	<a href="https://freeweibo.com/weibo/3950443043755507" target="freeweibo-mirror">SPAM 资料介绍《平行关战役与日军的山西作战》： 资料介绍…</a>
 </h2>
 <p>SPAM 资料介绍《平行关战役与日军的山西作战》： 资料介绍《平行关战役与日军的山西作战》1937 【凡例】 *出典中的资料名等，为查询方便均使用日语原文表示。 *解说，论文引用的JACAR(アジア歴史資料...文字版>> http://t.cn/RG8w88l （新浪长微博>> http://t.cn/zOXAaic）<br><img src="http://ww1.sinaimg.cn/large/56661fa1jw1f1of87id2tj20c8770qv5.jpg"></p>
+<p>
+	<small> ============== 5小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3950442741997431" target="freeweibo-mirror">甘肃，视频出来了，向新京报记者致敬！ http://t.cn…</a>
+</h2>
+<p>甘肃，视频出来了，向新京报记者致敬！ http://t.cn/RG8wT6O .</p>
 <p>
 	<small> ============== 5小时前</small>
 </p><h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3950403877564821" target="freeweibo-mirror">今年困了！//@老曹:职业代表！</a>
 </h2>
 <p>今年困了！//@老曹:职业代表！<br><br>RE: 人大代表申纪兰的两会表情包<br><img src="http://ww2.sinaimg.cn/large/72ae17c5gw1f1o46hugjkj20ca0em0t8.jpg"></p>
-<p>
-	<small> ============== 7小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3950403114763045" target="freeweibo-mirror">SPAM 现货会直接发的 预售不会影响速度</a>
-</h2>
-<p>SPAM 现货会直接发的 预售不会影响速度</p>
 <p>
 	<small> ============== 7小时前</small>
 </p>
