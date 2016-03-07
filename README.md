@@ -126,7 +126,7 @@
 </h2>
 <p>我有事，先走一步。不好意思，你们聊。<br><br>RE: “王书记，请你回应一下武威抓记者的事情”……“王书记，总书记也说了，舆论监督和正面报道是统一的”http://t.cn/RG8wT6O新京报记者几次提问武威抓记者一事，几次被打断，最终王书记走了……<br><img src="http://ww1.sinaimg.cn/large/7e035fcbgw1f1ojwiqf03j20qo1be0xh.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3950490624294516" target="freeweibo-mirror">穿越到了大元</a>
 </h2>
