@@ -66,7 +66,7 @@
 </h2>
 <p>SPAM 监狱学园OAD发售~<br><img src="http://ww3.sinaimg.cn/large/706dedafgw1f1ni8l4z8hj20zk0k00v0.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3950148277726913" target="freeweibo-mirror">HDIDJH[泪流满面]卧槽…老爸在家族群里发了黄色gif视…</a>
 </h2>
