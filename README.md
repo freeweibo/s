@@ -60,7 +60,7 @@
 </h2>
 <p>朱总理好人啊，一点儿也不腐败，他儿子朱云来学气象的，居然干了中金公司总裁而且还年薪近亿；朱燕来女士是学社会学的，却担任中银香港副总裁；连朱总的前翻译朱彤女士都能担任德意志银行大中华区总裁！呵呵，你信他们没拼爹吗？呵呵，清廉如此，如此清廉……<br><img src="http://ww4.sinaimg.cn/large/0065lrTljw1f1okna87wlj30d70ghdgd.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3950491744130018" target="freeweibo-mirror">我有事，先走一步。不好意思，你们聊。</a>
 </h2>
@@ -120,7 +120,7 @@
 </h2>
 <p>兰州蓝。<br><br>RE: 甘肃，视频出来了，向新京报记者致敬！ http://t.cn/RG8wT6O .</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3950458072132724" target="freeweibo-mirror">SPAM 3.8日新:适合敏感肌肤的小样红腰子[害羞]</a>
 </h2>
