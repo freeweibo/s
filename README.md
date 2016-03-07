@@ -80,6 +80,12 @@
 <p>
 	<small> ============== 4小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3950442687720346" target="freeweibo-mirror">到底是谁在剽窃谁？： 一场尴尬的历史剧――代表“平型关大捷”…</a>
+</h2>
+<p>到底是谁在剽窃谁？： 一场尴尬的历史剧――代表“平型关大捷”的一张历史照片 冈山大学教授 姜 克实 一、从一张有名的照片开始 如果读者对共产党史，对抗日战争史有兴趣或有研究的话，一定能记...文字版>> http://t.cn/RGSBFzZ （新浪长微博>> http://t.cn/zOXAaic）<br><img src="http://ww4.sinaimg.cn/large/56661fa1jw1f1of6qehctj20c8766hdt.jpg"></p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3950407409217036" target="freeweibo-mirror">去年两个男部长手拉手的照片可以传播到互联网的角角落落，今年两…</a>
 </h2>
 <p>去年两个男部长手拉手的照片可以传播到互联网的角角落落，今年两个省部级男干部手牵手的照片却被和谐了。去年我20岁，今年我21岁。</p>
@@ -90,7 +96,7 @@
 </h2>
 <p>今年困了！//@老曹:职业代表！<br><br>RE: 人大代表申纪兰的两会表情包<br><img src="http://ww2.sinaimg.cn/large/72ae17c5gw1f1o46hugjkj20ca0em0t8.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3950403114763045" target="freeweibo-mirror">SPAM 现货会直接发的 预售不会影响速度</a>
 </h2>
@@ -120,7 +126,7 @@
 </h2>
 <p>既然《党章》禁止任何形式的个人崇拜，如何处理个别代表团集体制作、佩戴领导人像章就是一个党纪问题，也是判断未来的风向标。<br><img src="http://ww3.sinaimg.cn/large/6362d8eagw1f1o5j3k4kaj20cw06xgn1.jpg"></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3950357560875450" target="freeweibo-mirror">人大代表申纪兰的两会表情包</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3950354351565264" target="freeweibo-mirror">SPAM 注意尺度~[可爱]</a>
 </h2>
 <p>SPAM 注意尺度~[可爱]<br><img src="http://ww1.sinaimg.cn/large/4d18d1b1jw1f1o51ddvlrj20c10bgaao.jpg"></p>
-<p>
-	<small> ============== 10小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3950352971635085" target="freeweibo-mirror">SPAM 活动继续 雪花秀气垫可以联系客服先拍哦，一周左右到…</a>
-</h2>
-<p>SPAM 活动继续 雪花秀气垫可以联系客服先拍哦，一周左右到货马上发出 现在买可以用无门槛代金劵</p>
 <p>
 	<small> ============== 10小时前</small>
 </p>
