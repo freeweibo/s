@@ -62,6 +62,12 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3950483637445001" target="freeweibo-mirror">[good][good][good]</a>
+</h2>
+<p>[good][good][good]<br><br>RE: 甘肃，视频出来了，向新京报记者致敬！ http://t.cn/RG8wT6O .</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3950483469017903" target="freeweibo-mirror">有良心的记者[赞][赞][赞]</a>
 </h2>
 <p>有良心的记者[赞][赞][赞]<br><br>RE: 甘肃，视频出来了，向新京报记者致敬！ http://t.cn/RG8wT6O .</p>
@@ -83,6 +89,12 @@
 	<a href="https://freeweibo.com/weibo/3950478834133099" target="freeweibo-mirror">SPAM #三八腐女节#我想艾特两个人～不过我心里默默萌着就…</a>
 </h2>
 <p>SPAM #三八腐女节#我想艾特两个人～不过我心里默默萌着就够鸟～[doge]</p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3950477919912360" target="freeweibo-mirror">兰州蓝。</a>
+</h2>
+<p>兰州蓝。<br><br>RE: 甘肃，视频出来了，向新京报记者致敬！ http://t.cn/RG8wT6O .</p>
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
@@ -127,18 +139,6 @@
 <p>甘肃，视频出来了，向新京报记者致敬！ http://t.cn/RG8wT6O .</p>
 <p>
 	<small> ============== 5小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3950442687720346" target="freeweibo-mirror">到底是谁在剽窃谁？： 一场尴尬的历史剧――代表“平型关大捷”…</a>
-</h2>
-<p>到底是谁在剽窃谁？： 一场尴尬的历史剧――代表“平型关大捷”的一张历史照片 冈山大学教授 姜 克实 一、从一张有名的照片开始 如果读者对共产党史，对抗日战争史有兴趣或有研究的话，一定能记...文字版>> http://t.cn/RGSBFzZ （新浪长微博>> http://t.cn/zOXAaic）<br><img src="http://ww4.sinaimg.cn/large/56661fa1jw1f1of6qehctj20c8766hdt.jpg"></p>
-<p>
-	<small> ============== 5小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3950407409217036" target="freeweibo-mirror">去年两个男部长手拉手的照片可以传播到互联网的角角落落，今年两…</a>
-</h2>
-<p>去年两个男部长手拉手的照片可以传播到互联网的角角落落，今年两个省部级男干部手牵手的照片却被和谐了。去年我20岁，今年我21岁。</p>
-<p>
-	<small> ============== 7小时前</small>
 </p>
 <table>
     <tr>
