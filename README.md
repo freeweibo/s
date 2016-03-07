@@ -60,19 +60,25 @@
 </h2>
 <p>SPAM //@巴楚渔樵: 暴君最怕天亮，恨不能扯块黑布遮住天空，雄鸡之鸣，唤醒国人，暴君破胆。 //@律师老周401://@馨冰評:事难成，不放弃。<br><br>RE: 公鸡叫了之后天亮了，会产生两种后果。一，公鸡以为天是它叫亮的；二，猪认为只要把公鸡杀了，天就永远不会亮了。（赠予所有被销号的朋友们）</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3950483754448912" target="freeweibo-mirror">“王书记，请你回应一下武威抓记者的事情”……“王书记，总书记…</a>
+</h2>
+<p>“王书记，请你回应一下武威抓记者的事情”……“王书记，总书记也说了，舆论监督和正面报道是统一的”http://t.cn/RG8wT6O新京报记者几次提问武威抓记者一事，几次被打断，最终王书记走了……<br><img src="http://ww1.sinaimg.cn/large/7e035fcbgw1f1ojwiqf03j20qo1be0xh.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3950483637445001" target="freeweibo-mirror">[good][good][good]</a>
 </h2>
 <p>[good][good][good]<br><br>RE: 甘肃，视频出来了，向新京报记者致敬！ http://t.cn/RG8wT6O .</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3950483469017903" target="freeweibo-mirror">有良心的记者[赞][赞][赞]</a>
 </h2>
 <p>有良心的记者[赞][赞][赞]<br><br>RE: 甘肃，视频出来了，向新京报记者致敬！ http://t.cn/RG8wT6O .</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3950482642818997" target="freeweibo-mirror">SPAM 暴君最怕天亮，恨不能扯块黑布遮住天空，雄鸡之鸣，唤…</a>
 </h2>
@@ -108,7 +114,7 @@
 </h2>
 <p>转 // #我在看新闻# 《西藏团代表佩戴领导人头像胸章参加审议》  西藏团代表佩戴领导人头像胸章参加审议 http://t.cn/RGQgprh 来自@腾讯新闻客户端<br><img src="http://ww1.sinaimg.cn/large/417d63bajw1f1oghrlqlfj20p00gomz0.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3950446244365464" target="freeweibo-mirror">【西藏团代表佩戴领导人头像胸章参加审议】2016年3月6日，…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3950443043755507" target="freeweibo-mirror">SPAM 资料介绍《平行关战役与日军的山西作战》： 资料介绍…</a>
 </h2>
 <p>SPAM 资料介绍《平行关战役与日军的山西作战》： 资料介绍《平行关战役与日军的山西作战》1937 【凡例】 *出典中的资料名等，为查询方便均使用日语原文表示。 *解说，论文引用的JACAR(アジア歴史資料...文字版>> http://t.cn/RG8w88l （新浪长微博>> http://t.cn/zOXAaic）<br><img src="http://ww1.sinaimg.cn/large/56661fa1jw1f1of87id2tj20c8770qv5.jpg"></p>
-<p>
-	<small> ============== 5小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3950442741997431" target="freeweibo-mirror">甘肃，视频出来了，向新京报记者致敬！ http://t.cn…</a>
-</h2>
-<p>甘肃，视频出来了，向新京报记者致敬！ http://t.cn/RG8wT6O .</p>
 <p>
 	<small> ============== 5小时前</small>
 </p>
