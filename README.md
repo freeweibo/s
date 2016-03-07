@@ -90,7 +90,7 @@
 </h2>
 <p>27年前论房价的报纸文章！珍贵！也有意思！<br><img src="http://ww3.sinaimg.cn/large/4a78b4eegw1f1noovgqn2j20bq0fidhf.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3950183769362083" target="freeweibo-mirror">SPAM 需要的联系@佩佩家的阿胶糕</a>
 </h2>
