@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3950358973543958" target="freeweibo-mirror">既然《党章》禁止任何形式的个人崇拜，如何处理个别代表团集体制…</a>
+</h2>
+<p>既然《党章》禁止任何形式的个人崇拜，如何处理个别代表团集体制作、佩戴领导人像章就是一个党纪问题，也是判断未来的风向标。<br><img src="http://ww3.sinaimg.cn/large/6362d8eagw1f1o5j3k4kaj20cw06xgn1.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3950331937909432" target="freeweibo-mirror">SPAM 制服的！！！！      配乐发布—— http:…</a>
 </h2>
 <p>SPAM 制服的！！！！      配乐发布—— http://t.cn/R7FMeBx<br><img src="http://ww3.sinaimg.cn/large/4d18d1b1jw1f1o2gfz3g9j20gd0h874x.jpg"></p>
@@ -54,7 +60,7 @@
 </h2>
 <p>SPAM 往事如风，新忆成梦！<br><br>RE: 27年前论房价的报纸文章！珍贵！也有意思！<br><img src="http://ww3.sinaimg.cn/large/4a78b4eegw1f1noovgqn2j20bq0fidhf.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3950287226301045" target="freeweibo-mirror">据传老领导主动要求公布财产，要给全党做个表率[鼓掌][鼓掌]…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3950140613979508" target="freeweibo-mirror">//@大浪花啊:央视不要脸，强行杜撰新闻自慰//@探险家计划…</a>
 </h2>
 <p>//@大浪花啊:央视不要脸，强行杜撰新闻自慰//@探险家计划EP:[拜拜]//@藤原绵兔与处世之道:纪大人</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3950135895656777" target="freeweibo-mirror">SPAM 懂</a>
-</h2>
-<p>SPAM 懂<br><br>RE: 文艺界又出一个大坏蛋。[发呆][难过][偷笑]我试试这条微博还删吗？<br><img src="http://ww2.sinaimg.cn/large/774104ccjw1f1n8c51xfaj20k00zk40z.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
