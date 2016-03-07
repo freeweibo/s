@@ -30,7 +30,7 @@
 </h2>
 <p>SPAM 还有10分钟[haha]http://t.cn/RLpEPTe</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3950312841253213" target="freeweibo-mirror">SPAM [哈哈][哈哈][哈哈][笑cry][笑cry][…</a>
 </h2>
