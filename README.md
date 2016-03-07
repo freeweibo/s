@@ -72,7 +72,7 @@
 </h2>
 <p>SPAM 给你们看衬衣单穿的样子 很多人问#微博橱窗# http://t.cn/RGQdZJj<br><img src="http://ww2.sinaimg.cn/large/6ce0e77fjw1f1o63s07hsj22c02c07wh.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3950358973543958" target="freeweibo-mirror">既然《党章》禁止任何形式的个人崇拜，如何处理个别代表团集体制…</a>
 </h2>
@@ -108,7 +108,7 @@
 </h2>
 <p>社会在不断地被撕裂逐步碎片化，越是碎片化社会矛盾越复杂，就像马蜂窝被捣散了一样。社会管理再也没有章法可言，按下葫芦起了瓢。极左势力无非就是想用斗争理论消灭一切不同意见者，再来一次文革式的大扫除！<br><br>RE: 社会撕裂，人为制造左右矛盾，整天寻找敌对势力，是我在2014年《时代人物》专访《良知律师的边界艺术》中明确提出的警示。当时针对的是所谓的“右”的少数死嗑律师。被攻击为“骑墙”“递刀”。两年过去，情势发展恰如我的预言。现在，少数极左势力又兴风作浪，试图挑起思想上的对抗与混乱。“左”已经...全文： http://m.weibo.cn/1803570001/3950326799280764<br><img src="http://ww4.sinaimg.cn/large/6b804b51gw1f1o1slsvswj20zk0qomz0.jpg"></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3950348312494943" target="freeweibo-mirror">SPAM 人头款杯子到啦 还有黑色条纹～</a>
 </h2>
