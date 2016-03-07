@@ -84,7 +84,7 @@
 </h2>
 <p>嘘⋯</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3950483791924575" target="freeweibo-mirror">SPAM //@巴楚渔樵: 暴君最怕天亮，恨不能扯块黑布遮住…</a>
 </h2>
