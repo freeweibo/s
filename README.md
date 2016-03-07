@@ -68,6 +68,12 @@
 <p>
 	<small> ============== 5小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3950326799280764" target="freeweibo-mirror">社会撕裂，人为制造左右矛盾，整天寻找敌对势力，是我在2014…</a>
+</h2>
+<p>社会撕裂，人为制造左右矛盾，整天寻找敌对势力，是我在2014年《时代人物》专访《良知律师的边界艺术》中明确提出的警示。当时针对的是所谓的“右”的少数死嗑律师。被攻击为“骑墙”“递刀”。两年过去，情势发展恰如我的预言。现在，少数极左势力又兴风作浪，试图挑起思想上的对抗与混乱。“左”已经...全文： http://m.weibo.cn/1803570001/3950326799280764<br><img src="http://ww4.sinaimg.cn/large/6b804b51gw1f1o1slsvswj20zk0qomz0.jpg"></p>
+<p>
+	<small> ============== 5小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3950312841253213" target="freeweibo-mirror">SPAM [哈哈][哈哈][哈哈][笑cry][笑cry][…</a>
 </h2>
 <p>SPAM [哈哈][哈哈][哈哈][笑cry][笑cry][笑cry] //@兰亭静寂:咋啦？[疑问][疑问][疑问]<br><br>RE: 文艺界又出一个大坏蛋。[发呆][难过][偷笑]我试试这条微博还删吗？<br><img src="http://ww2.sinaimg.cn/large/774104ccjw1f1n8c51xfaj20k00zk40z.jpg"></p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3950168875373989" target="freeweibo-mirror">。。。。把妹子气的</a>
 </h2>
 <p>。。。。把妹子气的</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3950165268611947" target="freeweibo-mirror">这样，举报党满意了吗？</a>
-</h2>
-<p>这样，举报党满意了吗？<br><img src="http://ww4.sinaimg.cn/large/006pwkR5gw1f1niycc9mbj31og2iohdv.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
