@@ -42,7 +42,7 @@
 </h2>
 <p>据传老领导主动要求公布财产，要给全党做个表率[鼓掌][鼓掌][鼓掌]<br><img src="http://ww4.sinaimg.cn/large/006e75Sugw1f1nxbxumwhj305a07e3yh.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3950183769362083" target="freeweibo-mirror">SPAM 需要的联系@佩佩家的阿胶糕</a>
 </h2>
