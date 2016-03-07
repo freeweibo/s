@@ -42,7 +42,7 @@
 </h2>
 <p>如今流行官員冷臉，昨日黑龍江陸昊就如此：“笑不笑只是我的一种方式。而且，你也不能强加于我。”“我估计到你可能会问什么问题。事实上，我现在很平静”。。。</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3950540754582247" target="freeweibo-mirror">3月7日甘肅代表团舉辦媒體開放日活動，多名記者多次大聲呼喊能…</a>
 </h2>
@@ -84,25 +84,25 @@
 </h2>
 <p>//@DCCO_G:书记逃跑了//@张杨赛扬:转发微博<br><br>RE: 甘肃，视频出来了，向新京报记者致敬！ http://t.cn/RG8wT6O .</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3950497368573248" target="freeweibo-mirror">转发微博 //@范炜:面对新京报记者追问，甘肃省委书记落荒而…</a>
 </h2>
 <p>转发微博 //@范炜:面对新京报记者追问，甘肃省委书记落荒而逃，公关能力负分，这样的人也能当省委书记？？？<br><br>RE: 甘肃，视频出来了，向新京报记者致敬！ http://t.cn/RG8wT6O .</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3950497288871276" target="freeweibo-mirror">//@老尹微博巡视: //@何尚5863:他妈的，那是哪家的…</a>
 </h2>
 <p>//@老尹微博巡视: //@何尚5863:他妈的，那是哪家的记者！人肉她是哪个的专用妓者//@承包了一百亩山地:两个女妓者高潮了，还兰州蓝[吐]//@造船的铁匠:[good][good] //@郑维:[挖鼻]<br><br>RE: 甘肃，视频出来了，向新京报记者致敬！ http://t.cn/RG8wT6O .</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3950497108665082" target="freeweibo-mirror">向@新京报  记者致敬！ //@范炜:面对新京报记者追问，甘…</a>
 </h2>
 <p>向@新京报  记者致敬！ //@范炜:面对新京报记者追问，甘肃省委书记落荒而逃，公关能力负分，这样的人也能当省委书记？？？<br><br>RE: 甘肃，视频出来了，向新京报记者致敬！ http://t.cn/RG8wT6O .</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3950491899616247" target="freeweibo-mirror">朱总理好人啊，一点儿也不腐败，他儿子朱云来学气象的，居然干了…</a>
 </h2>
@@ -113,6 +113,12 @@
 	<a href="https://freeweibo.com/weibo/3950491744130018" target="freeweibo-mirror">我有事，先走一步。不好意思，你们聊。</a>
 </h2>
 <p>我有事，先走一步。不好意思，你们聊。<br><br>RE: “王书记，请你回应一下武威抓记者的事情”……“王书记，总书记也说了，舆论监督和正面报道是统一的”http://t.cn/RG8wT6O新京报记者几次提问武威抓记者一事，几次被打断，最终王书记走了……<br><img src="http://ww1.sinaimg.cn/large/7e035fcbgw1f1ojwiqf03j20qo1be0xh.jpg"></p>
+<p>
+	<small> ============== 6小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3950490624294516" target="freeweibo-mirror">穿越到了大元</a>
+</h2>
+<p>穿越到了大元<br><img src="http://ww3.sinaimg.cn/large/006bIW6djw1f1okostk4zj30qo0zkgon.jpg"></p>
 <p>
 	<small> ============== 6小时前</small>
 </p><h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3950483754448912" target="freeweibo-mirror">“王书记，请你回应一下武威抓记者的事情”……“王书记，总书记…</a>
 </h2>
 <p>“王书记，请你回应一下武威抓记者的事情”……“王书记，总书记也说了，舆论监督和正面报道是统一的”http://t.cn/RG8wT6O新京报记者几次提问武威抓记者一事，几次被打断，最终王书记走了……<br><img src="http://ww1.sinaimg.cn/large/7e035fcbgw1f1ojwiqf03j20qo1be0xh.jpg"></p>
-<p>
-	<small> ============== 6小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3950483637445001" target="freeweibo-mirror">[good][good][good]</a>
-</h2>
-<p>[good][good][good]<br><br>RE: 甘肃，视频出来了，向新京报记者致敬！ http://t.cn/RG8wT6O .</p>
 <p>
 	<small> ============== 6小时前</small>
 </p>
