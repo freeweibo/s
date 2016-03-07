@@ -102,7 +102,7 @@
 </h2>
 <p>兰州蓝。<br><br>RE: 甘肃，视频出来了，向新京报记者致敬！ http://t.cn/RG8wT6O .</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3950458072132724" target="freeweibo-mirror">SPAM 3.8日新:适合敏感肌肤的小样红腰子[害羞]</a>
 </h2>
