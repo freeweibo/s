@@ -56,6 +56,12 @@
 <p>
 	<small> ============== 4小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3950491899616247" target="freeweibo-mirror">朱总理好人啊，一点儿也不腐败，他儿子朱云来学气象的，居然干了…</a>
+</h2>
+<p>朱总理好人啊，一点儿也不腐败，他儿子朱云来学气象的，居然干了中金公司总裁而且还年薪近亿；朱燕来女士是学社会学的，却担任中银香港副总裁；连朱总的前翻译朱彤女士都能担任德意志银行大中华区总裁！呵呵，你信他们没拼爹吗？呵呵，清廉如此，如此清廉……<br><img src="http://ww4.sinaimg.cn/large/0065lrTljw1f1okna87wlj30d70ghdgd.jpg"></p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3950491744130018" target="freeweibo-mirror">我有事，先走一步。不好意思，你们聊。</a>
 </h2>
 <p>我有事，先走一步。不好意思，你们聊。<br><br>RE: “王书记，请你回应一下武威抓记者的事情”……“王书记，总书记也说了，舆论监督和正面报道是统一的”http://t.cn/RG8wT6O新京报记者几次提问武威抓记者一事，几次被打断，最终王书记走了……<br><img src="http://ww1.sinaimg.cn/large/7e035fcbgw1f1ojwiqf03j20qo1be0xh.jpg"></p>
@@ -72,25 +78,25 @@
 </h2>
 <p>SPAM //@巴楚渔樵: 暴君最怕天亮，恨不能扯块黑布遮住天空，雄鸡之鸣，唤醒国人，暴君破胆。 //@律师老周401://@馨冰評:事难成，不放弃。<br><br>RE: 公鸡叫了之后天亮了，会产生两种后果。一，公鸡以为天是它叫亮的；二，猪认为只要把公鸡杀了，天就永远不会亮了。（赠予所有被销号的朋友们）</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3950483754448912" target="freeweibo-mirror">“王书记，请你回应一下武威抓记者的事情”……“王书记，总书记…</a>
 </h2>
 <p>“王书记，请你回应一下武威抓记者的事情”……“王书记，总书记也说了，舆论监督和正面报道是统一的”http://t.cn/RG8wT6O新京报记者几次提问武威抓记者一事，几次被打断，最终王书记走了……<br><img src="http://ww1.sinaimg.cn/large/7e035fcbgw1f1ojwiqf03j20qo1be0xh.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3950483637445001" target="freeweibo-mirror">[good][good][good]</a>
 </h2>
 <p>[good][good][good]<br><br>RE: 甘肃，视频出来了，向新京报记者致敬！ http://t.cn/RG8wT6O .</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3950483469017903" target="freeweibo-mirror">有良心的记者[赞][赞][赞]</a>
 </h2>
 <p>有良心的记者[赞][赞][赞]<br><br>RE: 甘肃，视频出来了，向新京报记者致敬！ http://t.cn/RG8wT6O .</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3950482642818997" target="freeweibo-mirror">SPAM 暴君最怕天亮，恨不能扯块黑布遮住天空，雄鸡之鸣，唤…</a>
 </h2>
@@ -126,17 +132,11 @@
 </h2>
 <p>转 // #我在看新闻# 《西藏团代表佩戴领导人头像胸章参加审议》  西藏团代表佩戴领导人头像胸章参加审议 http://t.cn/RGQgprh 来自@腾讯新闻客户端<br><img src="http://ww1.sinaimg.cn/large/417d63bajw1f1oghrlqlfj20p00gomz0.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3950446244365464" target="freeweibo-mirror">【西藏团代表佩戴领导人头像胸章参加审议】2016年3月6日，…</a>
 </h2>
 <p>【西藏团代表佩戴领导人头像胸章参加审议】2016年3月6日，北京，西藏代表佩戴五代领导人头像胸章参加审议。两枚头像中，一枚是五位领导人头像；一枚是2013年两会上，习总书记参加十二届全国人大一次会议西藏代表团的审议时，问候全国人大代表、西藏拉萨市城关区纳金乡塔玛村党支部第一书记格桑卓嘎的画...全文： http://m.weibo.cn/2037273137/3950446244365464<br><img src="http://ww3.sinaimg.cn/large/796e5231jw1f1o32i9jjbj20go0p00vh.jpg"></p>
-<p>
-	<small> ============== 7小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3950445325672108" target="freeweibo-mirror">真不拼？ //@老罗的微博:哈哈，拼爹不行吗？//@习美黄德…</a>
-</h2>
-<p>真不拼？ //@老罗的微博:哈哈，拼爹不行吗？//@习美黄德荣:[哈哈]//@侯宁:要允许该行！[挖鼻]//@赫连勃勃大王: 几千万工人下岗，他们都是为了共和国贡献最宝贵年华的工人阶级啊，被朱总下岗了。想想朱总初衷是为了发展生产力学习资本主义效率，估计他们更会感谢朱总老人家祖宗八辈的！</p>
 <p>
 	<small> ============== 7小时前</small>
 </p>
