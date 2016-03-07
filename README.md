@@ -24,7 +24,7 @@
 </h2>
 <p>//@三晋神马:事后的酬劳而已//@AC之星:转发微博<br><br>RE: 朱总理好人啊，一点儿也不腐败，他儿子朱云来学气象的，居然干了中金公司总裁而且还年薪近亿；朱燕来女士是学社会学的，却担任中银香港副总裁；连朱总的前翻译朱彤女士都能担任德意志银行大中华区总裁！呵呵，你信他们没拼爹吗？呵呵，清廉如此，如此清廉……<br><img src="http://ww4.sinaimg.cn/large/0065lrTljw1f1okna87wlj30d70ghdgd.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3950511176474191" target="freeweibo-mirror">SPAM [太开心]明明你可以瘦！但是却偏偏的让自己胖而烦恼…</a>
 </h2>
