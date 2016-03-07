@@ -36,7 +36,7 @@
 </h2>
 <p>SPAM //@冰海雪涛44: //@世俗的苦行僧:[吃惊]//@针叶林2: //@孤独行进者111:反正不是假的 //@上海-Q公:這是真的嗎？ //@一只博: //@蛋疼的李帅_79104: //@老许祈福-15s: //@l鑫鑫鑫l: //@恨天啊:草 //@moxivivo: //@BigChopper: 我勒个去<br><br>RE: 穿越到了大元<br><img src="http://ww3.sinaimg.cn/large/006bIW6djw1f1okostk4zj30qo0zkgon.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3950542470390167" target="freeweibo-mirror">如今流行官員冷臉，昨日黑龍江陸昊就如此：“笑不笑只是我的一种…</a>
 </h2>
@@ -60,7 +60,19 @@
 </h2>
 <p>//@青岛蒙冤法官: //@摩羯文明: //@王甫律师:该倡议令人伤感。</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3950527677122220" target="freeweibo-mirror">SPAM 真以为梁左活过来了，尤其是看到“做饭需要”四个字。</a>
+</h2>
+<p>SPAM 真以为梁左活过来了，尤其是看到“做饭需要”四个字。<br><br>RE: 分享图片<br><img src="http://ww2.sinaimg.cn/large/53d9ca03jw1f1oljafib5j20hs0nqt9o.jpg"></p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3950526514829633" target="freeweibo-mirror">SPAM //@性感玉米:</a>
+</h2>
+<p>SPAM //@性感玉米:</p>
+<p>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3950524615049865" target="freeweibo-mirror">//@三晋神马:事后的酬劳而已//@AC之星:转发微博</a>
 </h2>
@@ -125,18 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3950486644505500" target="freeweibo-mirror">嘘⋯</a>
 </h2>
 <p>嘘⋯</p>
-<p>
-	<small> ============== 6小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3950483791924575" target="freeweibo-mirror">SPAM //@巴楚渔樵: 暴君最怕天亮，恨不能扯块黑布遮住…</a>
-</h2>
-<p>SPAM //@巴楚渔樵: 暴君最怕天亮，恨不能扯块黑布遮住天空，雄鸡之鸣，唤醒国人，暴君破胆。 //@律师老周401://@馨冰評:事难成，不放弃。<br><br>RE: 公鸡叫了之后天亮了，会产生两种后果。一，公鸡以为天是它叫亮的；二，猪认为只要把公鸡杀了，天就永远不会亮了。（赠予所有被销号的朋友们）</p>
-<p>
-	<small> ============== 7小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3950483754448912" target="freeweibo-mirror">“王书记，请你回应一下武威抓记者的事情”……“王书记，总书记…</a>
-</h2>
-<p>“王书记，请你回应一下武威抓记者的事情”……“王书记，总书记也说了，舆论监督和正面报道是统一的”http://t.cn/RG8wT6O新京报记者几次提问武威抓记者一事，几次被打断，最终王书记走了……<br><img src="http://ww1.sinaimg.cn/large/7e035fcbgw1f1ojwiqf03j20qo1be0xh.jpg"></p>
 <p>
 	<small> ============== 7小时前</small>
 </p>
