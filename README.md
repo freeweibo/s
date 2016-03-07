@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3950486644505500" target="freeweibo-mirror">嘘⋯</a>
+</h2>
+<p>嘘⋯</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3950483791924575" target="freeweibo-mirror">SPAM //@巴楚渔樵: 暴君最怕天亮，恨不能扯块黑布遮住…</a>
 </h2>
 <p>SPAM //@巴楚渔樵: 暴君最怕天亮，恨不能扯块黑布遮住天空，雄鸡之鸣，唤醒国人，暴君破胆。 //@律师老周401://@馨冰評:事难成，不放弃。<br><br>RE: 公鸡叫了之后天亮了，会产生两种后果。一，公鸡以为天是它叫亮的；二，猪认为只要把公鸡杀了，天就永远不会亮了。（赠予所有被销号的朋友们）</p>
@@ -31,6 +37,18 @@
 <p>SPAM 暴君最怕天亮，恨不能扯块黑布遮住天空，雄鸡之鸣，唤醒国人，暴君破胆。 //@律师老周401://@馨冰評:事难成，不放弃。<br><br>RE: 公鸡叫了之后天亮了，会产生两种后果。一，公鸡以为天是它叫亮的；二，猪认为只要把公鸡杀了，天就永远不会亮了。（赠予所有被销号的朋友们）</p>
 <p>
 	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3950481992743482" target="freeweibo-mirror">//@徐晋如: 1959年3月11日，胡适读了毛的《蝶恋花·…</a>
+</h2>
+<p>//@徐晋如: 1959年3月11日，胡适读了毛的《蝶恋花·答李淑一》，专门向赵元任请教，到底柳、九、有、酒、袖与舞、虎、雨能不能押韵，赵元任说在湖南方言中也不押的。所以@杜子建 同学不该找李白背书哦，要找他的伟大领袖才对嘛！<br><br>RE: 以沒有文化為榮，以粗俗為傲，正是土包子進城文化的縮影。臘肉自己寫舊詩，卻禁止後生模仿，因為他自己也知道，如果年輕人都詩詞熟諳聲律，他自己寫的那些帶有「不許放屁」之類有辱斯文字眼的狗屁不通羔雁之作就會徹底淪為笑料。而漢語本身就是詩的語言，閹割了詩詞漢語就失去了一半靈長</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3950478834133099" target="freeweibo-mirror">SPAM #三八腐女节#我想艾特两个人～不过我心里默默萌着就…</a>
+</h2>
+<p>SPAM #三八腐女节#我想艾特两个人～不过我心里默默萌着就够鸟～[doge]</p>
+<p>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3950458072132724" target="freeweibo-mirror">SPAM 3.8日新:适合敏感肌肤的小样红腰子[害羞]</a>
 </h2>
@@ -50,6 +68,18 @@
 <p>
 	<small> ============== 4小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3950443282854427" target="freeweibo-mirror">旧日军档案中出现的《平型关大捷》（一）： 旧日军档案中出现的…</a>
+</h2>
+<p>旧日军档案中出现的《平型关大捷》（一）： 旧日军档案中出现的《平型关大捷》（一） 按：此文不是在讲英雄故事，而是一篇严谨的学术考察。无学智者请不要自讨无趣 冈山大学教授（日本近代史）...文字版>> http://t.cn/RG8wnny （新浪长微博>> http://t.cn/zOXAaic）<br><img src="http://ww1.sinaimg.cn/large/56661fa1jw1f1of97eic8j20c8770npd.jpg"></p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3950443043755507" target="freeweibo-mirror">SPAM 资料介绍《平行关战役与日军的山西作战》： 资料介绍…</a>
+</h2>
+<p>SPAM 资料介绍《平行关战役与日军的山西作战》： 资料介绍《平行关战役与日军的山西作战》1937 【凡例】 *出典中的资料名等，为查询方便均使用日语原文表示。 *解说，论文引用的JACAR(アジア歴史資料...文字版>> http://t.cn/RG8w88l （新浪长微博>> http://t.cn/zOXAaic）<br><img src="http://ww1.sinaimg.cn/large/56661fa1jw1f1of87id2tj20c8770qv5.jpg"></p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3950407409217036" target="freeweibo-mirror">去年两个男部长手拉手的照片可以传播到互联网的角角落落，今年两…</a>
 </h2>
 <p>去年两个男部长手拉手的照片可以传播到互联网的角角落落，今年两个省部级男干部手牵手的照片却被和谐了。去年我20岁，今年我21岁。</p>
@@ -66,7 +96,7 @@
 </h2>
 <p>SPAM 现货会直接发的 预售不会影响速度</p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3950375171722441" target="freeweibo-mirror">SPAM 平面设计师的福音！</a>
 </h2>
@@ -96,7 +126,7 @@
 </h2>
 <p>人大代表申纪兰的两会表情包<br><img src="http://ww2.sinaimg.cn/large/72ae17c5gw1f1o46hugjkj20ca0em0t8.jpg"></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3950354351565264" target="freeweibo-mirror">SPAM 注意尺度~[可爱]</a>
 </h2>
@@ -109,36 +139,6 @@
 <p>SPAM 活动继续 雪花秀气垫可以联系客服先拍哦，一周左右到货马上发出 现在买可以用无门槛代金劵</p>
 <p>
 	<small> ============== 10小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3950352812016584" target="freeweibo-mirror">“丘也闻有国有家者，不患寡而患不均，不患贫而患不安”。中国目…</a>
-</h2>
-<p>“丘也闻有国有家者，不患寡而患不均，不患贫而患不安”。中国目前所有的问题都出在富而不均、多而不安。利益永远是社会的G点，回归均贫富永远不可能，但在一部分人先富起来后没有能创立一个大家都心服口服的贫富的规则，且以权力为中心的社会不可能产生这样的规则。所以，只有一个字：乱！<br><br>RE: 社会撕裂，人为制造左右矛盾，整天寻找敌对势力，是我在2014年《时代人物》专访《良知律师的边界艺术》中明确提出的警示。当时针对的是所谓的“右”的少数死嗑律师。被攻击为“骑墙”“递刀”。两年过去，情势发展恰如我的预言。现在，少数极左势力又兴风作浪，试图挑起思想上的对抗与混乱。“左”已经...全文： http://m.weibo.cn/1803570001/3950326799280764<br><img src="http://ww4.sinaimg.cn/large/6b804b51gw1f1o1slsvswj20zk0qomz0.jpg"></p>
-<p>
-	<small> ============== 10小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3950349439993074" target="freeweibo-mirror">社会在不断地被撕裂逐步碎片化，越是碎片化社会矛盾越复杂，就像…</a>
-</h2>
-<p>社会在不断地被撕裂逐步碎片化，越是碎片化社会矛盾越复杂，就像马蜂窝被捣散了一样。社会管理再也没有章法可言，按下葫芦起了瓢。极左势力无非就是想用斗争理论消灭一切不同意见者，再来一次文革式的大扫除！<br><br>RE: 社会撕裂，人为制造左右矛盾，整天寻找敌对势力，是我在2014年《时代人物》专访《良知律师的边界艺术》中明确提出的警示。当时针对的是所谓的“右”的少数死嗑律师。被攻击为“骑墙”“递刀”。两年过去，情势发展恰如我的预言。现在，少数极左势力又兴风作浪，试图挑起思想上的对抗与混乱。“左”已经...全文： http://m.weibo.cn/1803570001/3950326799280764<br><img src="http://ww4.sinaimg.cn/large/6b804b51gw1f1o1slsvswj20zk0qomz0.jpg"></p>
-<p>
-	<small> ============== 10小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3950348312494943" target="freeweibo-mirror">SPAM 人头款杯子到啦 还有黑色条纹～</a>
-</h2>
-<p>SPAM 人头款杯子到啦 还有黑色条纹～</p>
-<p>
-	<small> ============== 10小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3950331937909432" target="freeweibo-mirror">SPAM 制服的！！！！      配乐发布—— http:…</a>
-</h2>
-<p>SPAM 制服的！！！！      配乐发布—— http://t.cn/R7FMeBx<br><img src="http://ww3.sinaimg.cn/large/4d18d1b1jw1f1o2gfz3g9j20gd0h874x.jpg"></p>
-<p>
-	<small> ============== 11小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3950329336894957" target="freeweibo-mirror">SPAM 还有10分钟[haha]http://t.cn/R…</a>
-</h2>
-<p>SPAM 还有10分钟[haha]http://t.cn/RLpEPTe</p>
-<p>
-	<small> ============== 11小时前</small>
 </p>
 <table>
     <tr>
