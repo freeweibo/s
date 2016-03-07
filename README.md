@@ -38,6 +38,18 @@
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3950352812016584" target="freeweibo-mirror">“丘也闻有国有家者，不患寡而患不均，不患贫而患不安”。中国目…</a>
+</h2>
+<p>“丘也闻有国有家者，不患寡而患不均，不患贫而患不安”。中国目前所有的问题都出在富而不均、多而不安。利益永远是社会的G点，回归均贫富永远不可能，但在一部分人先富起来后没有能创立一个大家都心服口服的贫富的规则，且以权力为中心的社会不可能产生这样的规则。所以，只有一个字：乱！<br><br>RE: 社会撕裂，人为制造左右矛盾，整天寻找敌对势力，是我在2014年《时代人物》专访《良知律师的边界艺术》中明确提出的警示。当时针对的是所谓的“右”的少数死嗑律师。被攻击为“骑墙”“递刀”。两年过去，情势发展恰如我的预言。现在，少数极左势力又兴风作浪，试图挑起思想上的对抗与混乱。“左”已经...全文： http://m.weibo.cn/1803570001/3950326799280764<br><img src="http://ww4.sinaimg.cn/large/6b804b51gw1f1o1slsvswj20zk0qomz0.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3950349439993074" target="freeweibo-mirror">社会在不断地被撕裂逐步碎片化，越是碎片化社会矛盾越复杂，就像…</a>
+</h2>
+<p>社会在不断地被撕裂逐步碎片化，越是碎片化社会矛盾越复杂，就像马蜂窝被捣散了一样。社会管理再也没有章法可言，按下葫芦起了瓢。极左势力无非就是想用斗争理论消灭一切不同意见者，再来一次文革式的大扫除！<br><br>RE: 社会撕裂，人为制造左右矛盾，整天寻找敌对势力，是我在2014年《时代人物》专访《良知律师的边界艺术》中明确提出的警示。当时针对的是所谓的“右”的少数死嗑律师。被攻击为“骑墙”“递刀”。两年过去，情势发展恰如我的预言。现在，少数极左势力又兴风作浪，试图挑起思想上的对抗与混乱。“左”已经...全文： http://m.weibo.cn/1803570001/3950326799280764<br><img src="http://ww4.sinaimg.cn/large/6b804b51gw1f1o1slsvswj20zk0qomz0.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3950348312494943" target="freeweibo-mirror">SPAM 人头款杯子到啦 还有黑色条纹～</a>
 </h2>
 <p>SPAM 人头款杯子到啦 还有黑色条纹～</p>
@@ -60,7 +72,7 @@
 </h2>
 <p>SPAM [哈哈][哈哈][哈哈][笑cry][笑cry][笑cry] //@兰亭静寂:咋啦？[疑问][疑问][疑问]<br><br>RE: 文艺界又出一个大坏蛋。[发呆][难过][偷笑]我试试这条微博还删吗？<br><img src="http://ww2.sinaimg.cn/large/774104ccjw1f1n8c51xfaj20k00zk40z.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3950307836288515" target="freeweibo-mirror">SPAM //@北纬三十八点五: [good]对这个表示欢迎…</a>
 </h2>
@@ -72,7 +84,7 @@
 </h2>
 <p>SPAM 那时月薪高者300元，低者几十元 //@苏渝:以史为鉴可以知兴替。//@中金在线: 历史总是惊人的相似....<br><br>RE: 27年前论房价的报纸文章！珍贵！也有意思！<br><img src="http://ww3.sinaimg.cn/large/4a78b4eegw1f1noovgqn2j20bq0fidhf.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3950290274916942" target="freeweibo-mirror">SPAM 往事如风，新忆成梦！</a>
 </h2>
@@ -125,18 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3950165268611947" target="freeweibo-mirror">这样，举报党满意了吗？</a>
 </h2>
 <p>这样，举报党满意了吗？<br><img src="http://ww4.sinaimg.cn/large/006pwkR5gw1f1niycc9mbj31og2iohdv.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3950155865024672" target="freeweibo-mirror">SPAM 监狱学园OAD发售~</a>
-</h2>
-<p>SPAM 监狱学园OAD发售~<br><img src="http://ww3.sinaimg.cn/large/706dedafgw1f1ni8l4z8hj20zk0k00v0.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3950148277726913" target="freeweibo-mirror">HDIDJH[泪流满面]卧槽…老爸在家族群里发了黄色gif视…</a>
-</h2>
-<p>HDIDJH[泪流满面]卧槽…老爸在家族群里发了黄色gif视频我是不是该当没看见[微笑][嘻嘻][嘻嘻][嘻嘻]雾PKXJDH<br><img src="http://ww4.sinaimg.cn/large/6b27dbd9gw1f1nhdcvryqj20830c4t99.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
