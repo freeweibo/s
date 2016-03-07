@@ -54,7 +54,7 @@
 </h2>
 <p>这样，举报党满意了吗？<br><img src="http://ww4.sinaimg.cn/large/006pwkR5gw1f1niycc9mbj31og2iohdv.jpg"></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3950155865024672" target="freeweibo-mirror">SPAM 监狱学园OAD发售~</a>
 </h2>
@@ -102,7 +102,7 @@
 </h2>
 <p>SPAM //@侯宁:作者是？[汗]<br><br>RE: 什么意思！[怒]@无界新闻<br><img src="http://ww3.sinaimg.cn/large/006iKLkpjw1f1neo25x3cj30m50vggs0.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3950124252608582" target="freeweibo-mirror">SPAM //@王明解读://@汤耕车田://@热笔小新:/…</a>
 </h2>
