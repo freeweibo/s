@@ -24,13 +24,13 @@
 </h2>
 <p>//@大汉族人民:如果将中国当朝与中国历代相类比的话，那么与作为蒙古帝国一部分的元朝最为相似，如户口制度、村长制度、崇尚暴力和奴性、菜刀实名制、外国(色目)人优越，这些都是继承元朝的衣钵，当朝体制内的统治者完全是一群精神上的野蛮鞑靼人//@何其多1061://@蛋疼的李帅_79104: //@老许祈福-15s<br><br>RE: 穿越到了大元<br><img src="http://ww3.sinaimg.cn/large/006bIW6djw1f1okostk4zj30qo0zkgon.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3950562611120368" target="freeweibo-mirror">SPAM 胆破成这样怎么办？[吃惊]</a>
 </h2>
 <p>SPAM 胆破成这样怎么办？[吃惊]<br><br>RE: 分享图片<br><img src="http://ww2.sinaimg.cn/large/53d9ca03jw1f1oljafib5j20hs0nqt9o.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3950561541573084" target="freeweibo-mirror">SPAM //@冰海雪涛44: //@世俗的苦行僧:[吃惊]…</a>
 </h2>
