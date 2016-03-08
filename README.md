@@ -48,13 +48,13 @@
 </h2>
 <p>天津市长:爆炸事故是很好的老师…就凭这句，你这辈子就代理书记到底了！</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3950846813379254" target="freeweibo-mirror">SPAM //@社会日常: 转发关注 @李信军道长 @书画界…</a>
 </h2>
 <p>SPAM //@社会日常: 转发关注 @李信军道长 @书画界 就有机会获得 经典之作《太上感应篇》图书。</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3950846242359042" target="freeweibo-mirror">SPAM 一个成为水彩画大触的机会来啦，感兴趣的童鞋可以看看…</a>
 </h2>
@@ -71,6 +71,12 @@
 	<a href="https://freeweibo.com/weibo/3950828429541698" target="freeweibo-mirror">SPAM 死了那么多人，居然变好事儿了… #记录中国#</a>
 </h2>
 <p>SPAM 死了那么多人，居然变好事儿了… #记录中国#<br><img src="http://ww4.sinaimg.cn/large/7f6a1e2bjw1f1pnhlatycj21401ug4qp.jpg"></p>
+<p>
+	<small> ============== 7小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3950828131783496" target="freeweibo-mirror">马克思指出妇女的解放才是人类彻底解放，参加长征的红军十万官兵…</a>
+</h2>
+<p>马克思指出妇女的解放才是人类彻底解放，参加长征的红军十万官兵绝大多数必须压抑性欲，毛泽东的性欲不会受委屈。他使爱人贺子珍在长征途中怀孕三次及流产两次。1935年2月贺子珍于贵州生下一女，寄养当地农户后下落不明。长征后不久，老毛又有年轻貌美有文化会演戏的新欢江青。为三八国际妇女节记。</p>
 <p>
 	<small> ============== 7小时前</small>
 </p><h2>
@@ -120,7 +126,7 @@
 </h2>
 <p>这个党之所以在哈美公彘那里还有意义，就是为了那个决议为了否定文革。可见决议是什么货色，否定文革究竟是什么恶果//@渡江兄: 不是反党，说反邓倒是可以有//@水遥山:“反党”一词从这个反党分子嘴里说出还真有带感。[哈哈] //@凡宝移山:<br><br>RE: 【标尺】今年是文革爆发五十周年，该是真正揭示真相、反思历史的时刻了。至少应该树立一个基本标尺，被定义为“十年浩劫”的文革已经由中共中央关于若干重大历史问题的决议彻底否定，无论什么人，谁为文革摆好招魂，谁就是真正的反党。</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3950723072818243" target="freeweibo-mirror">SPAM #有滋有味，柑谢有你# 总有人问，怎样才能更好地帮…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3950719080503661" target="freeweibo-mirror">俞敏洪老师在政协会议发言，国家要创办世界一流大学，光靠拨款是…</a>
 </h2>
 <p>俞敏洪老师在政协会议发言，国家要创办世界一流大学，光靠拨款是不行的。做到了“思想解放、学术自由”这八个字，一流大学就出现了。<br><img src="http://ww2.sinaimg.cn/large/491d78cbjw1f1paunvzj3j20k00zkws8.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3950717632746953" target="freeweibo-mirror">有意思，一个不在台湾出生，也不在台湾生活，甚至没有去过台湾的…</a>
-</h2>
-<p>有意思，一个不在台湾出生，也不在台湾生活，甚至没有去过台湾的代表团却代表台湾人民参加全国两会，这肚量真是无法比拟。<br><img src="http://ww3.sinaimg.cn/large/006osaYEgw1f1pari6w6jj30c80lrtb1.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
