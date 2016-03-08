@@ -56,6 +56,12 @@
 <p>
 	<small> ============== 6小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3950717632746953" target="freeweibo-mirror">有意思，一个不在台湾出生，也不在台湾生活，甚至没有去过台湾的…</a>
+</h2>
+<p>有意思，一个不在台湾出生，也不在台湾生活，甚至没有去过台湾的代表团却代表台湾人民参加全国两会，这肚量真是无法比拟。<br><img src="http://ww3.sinaimg.cn/large/006osaYEgw1f1pari6w6jj30c80lrtb1.jpg"></p>
+<p>
+	<small> ============== 6小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3950712159029321" target="freeweibo-mirror">之所以转就是想看看多久被删，现在是11点10分，计时开始，滴…</a>
 </h2>
 <p>之所以转就是想看看多久被删，现在是11点10分，计时开始，滴答滴答<br><br>RE: 坚决支持罢免李克强总理之职！支持的就转。 http://t.cn/RG8ThOO</p>
@@ -66,7 +72,7 @@
 </h2>
 <p>坚决支持罢免李克强总理之职！支持的就转。 http://t.cn/RG8ThOO</p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3950693821801179" target="freeweibo-mirror">//@成渝雄鹰-:除了罗斯柴尔德，还有亨利．保尔森、约翰．桑…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3950592462084452" target="freeweibo-mirror">新京报记者提问被打断 | Video | 阅读时间 http…</a>
 </h2>
 <p>新京报记者提问被打断 | Video | 阅读时间 http://t.cn/RG8os9l</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3950563438337921" target="freeweibo-mirror">//@大汉族人民:如果将中国当朝与中国历代相类比的话，那么与…</a>
-</h2>
-<p>//@大汉族人民:如果将中国当朝与中国历代相类比的话，那么与作为蒙古帝国一部分的元朝最为相似，如户口制度、村长制度、崇尚暴力和奴性、菜刀实名制、外国(色目)人优越，这些都是继承元朝的衣钵，当朝体制内的统治者完全是一群精神上的野蛮鞑靼人//@何其多1061://@蛋疼的李帅_79104: //@老许祈福-15s<br><br>RE: 穿越到了大元<br><img src="http://ww3.sinaimg.cn/large/006bIW6djw1f1okostk4zj30qo0zkgon.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
