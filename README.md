@@ -42,7 +42,7 @@
 </h2>
 <p>SPAM 一个成为水彩画大触的机会来啦，感兴趣的童鞋可以看看。</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3950834947345530" target="freeweibo-mirror">//@健康时谈: //@律师文摘:独立之精神，自由之思想。/…</a>
 </h2>
@@ -120,7 +120,7 @@
 </h2>
 <p>有意思，一个不在台湾出生，也不在台湾生活，甚至没有去过台湾的代表团却代表台湾人民参加全国两会，这肚量真是无法比拟。<br><img src="http://ww3.sinaimg.cn/large/006osaYEgw1f1pari6w6jj30c80lrtb1.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3950712159029321" target="freeweibo-mirror">之所以转就是想看看多久被删，现在是11点10分，计时开始，滴…</a>
 </h2>
