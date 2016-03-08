@@ -36,7 +36,7 @@
 </h2>
 <p>//@老常_83637:转发微博<br><br>RE: 为了胜利，向我开炮！[嘻嘻]<br><img src="http://ww1.sinaimg.cn/large/006p1QFjjw1f1puujrwblj30hs0hsgmk.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3950899187559592" target="freeweibo-mirror">//@咏春茶馆:人自贱则无敌，连累他母亲的老底都被揭穿，没办…</a>
 </h2>
@@ -114,7 +114,7 @@
 </h2>
 <p>SPAM 卧槽，申纪兰~[doge]//@战争史研究WHS: 同工同酬+妇女参政  http://t.cn/RGRGoap</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3950778836151692" target="freeweibo-mirror">//@火旺世家: [哈哈][哈哈][哈哈][哈哈]//@灰色…</a>
 </h2>
