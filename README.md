@@ -30,7 +30,7 @@
 </h2>
 <p>SPAM //@社会日常: 转发关注 @李信军道长 @书画界 就有机会获得 经典之作《太上感应篇》图书。</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3950846242359042" target="freeweibo-mirror">SPAM 一个成为水彩画大触的机会来啦，感兴趣的童鞋可以看看…</a>
 </h2>
