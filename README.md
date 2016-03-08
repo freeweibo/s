@@ -24,7 +24,7 @@
 </h2>
 <p>SPAM 所有提问者全都是事先“埋”好的<br><br>RE: 落后地区的落后，是有原因的。<br><img src="http://ww1.sinaimg.cn/large/6d0b6b33jw1f1o7ornw9wj20n21s511x.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3950638096132155" target="freeweibo-mirror">甘肃领导记者会躲避武威抓记者事件，对政府形象是负效果，尤其在…</a>
 </h2>
@@ -132,7 +132,7 @@
 </h2>
 <p>//@青岛蒙冤法官: //@摩羯文明: //@王甫律师:该倡议令人伤感。</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3950527677122220" target="freeweibo-mirror">SPAM 真以为梁左活过来了，尤其是看到“做饭需要”四个字。</a>
 </h2>
