@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3950645322595354" target="freeweibo-mirror">SPAM 所有提问者全都是事先“埋”好的</a>
+</h2>
+<p>SPAM 所有提问者全都是事先“埋”好的<br><br>RE: 落后地区的落后，是有原因的。<br><img src="http://ww1.sinaimg.cn/large/6d0b6b33jw1f1o7ornw9wj20n21s511x.jpg"></p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3950638096132155" target="freeweibo-mirror">甘肃领导记者会躲避武威抓记者事件，对政府形象是负效果，尤其在…</a>
 </h2>
 <p>甘肃领导记者会躲避武威抓记者事件，对政府形象是负效果，尤其在互联网时代的负效果更大！<br><br>RE: 新京报记者提问被打断 | Video | 阅读时间 http://t.cn/RG8os9l</p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3950527677122220" target="freeweibo-mirror">SPAM 真以为梁左活过来了，尤其是看到“做饭需要”四个字。</a>
 </h2>
 <p>SPAM 真以为梁左活过来了，尤其是看到“做饭需要”四个字。<br><br>RE: 分享图片<br><img src="http://ww2.sinaimg.cn/large/53d9ca03jw1f1oljafib5j20hs0nqt9o.jpg"></p>
-<p>
-	<small> ============== 11小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3950526514829633" target="freeweibo-mirror">SPAM //@性感玉米:</a>
-</h2>
-<p>SPAM //@性感玉米:</p>
 <p>
 	<small> ============== 11小时前</small>
 </p>
