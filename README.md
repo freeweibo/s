@@ -120,7 +120,7 @@
 </h2>
 <p>有意思，一个不在台湾出生，也不在台湾生活，甚至没有去过台湾的代表团却代表台湾人民参加全国两会，这肚量真是无法比拟。<br><img src="http://ww3.sinaimg.cn/large/006osaYEgw1f1pari6w6jj30c80lrtb1.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3950712159029321" target="freeweibo-mirror">之所以转就是想看看多久被删，现在是11点10分，计时开始，滴…</a>
 </h2>
@@ -132,7 +132,7 @@
 </h2>
 <p>坚决支持罢免李克强总理之职！支持的就转。 http://t.cn/RG8ThOO</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3950693821801179" target="freeweibo-mirror">//@成渝雄鹰-:除了罗斯柴尔德，还有亨利．保尔森、约翰．桑…</a>
 </h2>
