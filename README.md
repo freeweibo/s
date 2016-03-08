@@ -72,7 +72,7 @@
 </h2>
 <p>甘肃领导记者会躲避武威抓记者事件，对政府形象是负效果，尤其在互联网时代的负效果更大！<br><br>RE: 新京报记者提问被打断 | Video | 阅读时间 http://t.cn/RG8os9l</p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3950637178333877" target="freeweibo-mirror">//@迷茫邯公:转发微博</a>
 </h2>
@@ -102,7 +102,7 @@
 </h2>
 <p>SPAM [衰]//@贺延光: [抓狂]<br><br>RE: 新京报记者提问被打断 | Video | 阅读时间 http://t.cn/RG8os9l</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3950598028204768" target="freeweibo-mirror">SPAM [抓狂]</a>
 </h2>
