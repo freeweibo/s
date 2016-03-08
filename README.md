@@ -42,7 +42,7 @@
 </h2>
 <p>之所以转就是想看看多久被删，现在是11点10分，计时开始，滴答滴答<br><br>RE: 坚决支持罢免李克强总理之职！支持的就转。 http://t.cn/RG8ThOO</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3950709966100250" target="freeweibo-mirror">坚决支持罢免李克强总理之职！支持的就转。 http://t.…</a>
 </h2>
@@ -78,7 +78,7 @@
 </h2>
 <p>//@迷茫邯公:转发微博<br><br>RE: 真的佩服这位@新京报 的记者，搞得王书记都哑巴了，几个人拉都拉不住啊！都把习主席的话当耳边风吗？甘肃记者抓去嫖娼又没嫖娼的事情，几时休啊？[笑cry][笑cry][笑cry]信㐅＊*得永生！[偷笑][偷笑][偷笑] http://t.cn/z8GWYtA http://t.cn/RG86CA9 .</p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3950632274073712" target="freeweibo-mirror">//@夙生律师事务所: 那位问兰州蓝的记者会被钉上耻辱柱！拒…</a>
 </h2>
