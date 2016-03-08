@@ -44,6 +44,12 @@
 <p>
 	<small> ============== 5小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3950892510152933" target="freeweibo-mirror">为了胜利，向我开炮！[嘻嘻]</a>
+</h2>
+<p>为了胜利，向我开炮！[嘻嘻]<br><img src="http://ww1.sinaimg.cn/large/006p1QFjjw1f1puujrwblj30hs0hsgmk.jpg"></p>
+<p>
+	<small> ============== 5小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3950889951152909" target="freeweibo-mirror">//@奔六: 红线女怎么生下这么个杂碎？[弱]//@东-回归…</a>
 </h2>
 <p>//@奔六: 红线女怎么生下这么个杂碎？[弱]//@东-回归线:[吐]//@问沉1:毛主席错在不该把红线女这样的旧时代戏子变成人民艺术家！[鄙视] //@叶伶886:老东西，死你全家！呸呸！[吐][弱]<br><br>RE: 马克思指出妇女的解放才是人类彻底解放，参加长征的红军十万官兵绝大多数必须压抑性欲，毛泽东的性欲不会受委屈。他使爱人贺子珍在长征途中怀孕三次及流产两次。1935年2月贺子珍于贵州生下一女，寄养当地农户后下落不明。长征后不久，老毛又有年轻貌美有文化会演戏的新欢江青。为三八国际妇女节记。</p>
@@ -60,7 +66,7 @@
 </h2>
 <p>SPAM 坏事变好事，真有本事！ //@李天义老师:转发微博</p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3950852710693892" target="freeweibo-mirror">[哈哈] //@张清同志: //@五羊子民: 有逃荒书记撑腰…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3950763976079054" target="freeweibo-mirror">今天他生日！（1951.3.8）[蛋糕][玫瑰]</a>
 </h2>
 <p>今天他生日！（1951.3.8）[蛋糕][玫瑰]<br><img src="http://ww3.sinaimg.cn/large/e089bebfgw1f1pg2q2y5dj20k00f0acf.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3950753670503395" target="freeweibo-mirror">//@钟鼎文无声://@游明磊46://@海龙-27: [哈…</a>
-</h2>
-<p>//@钟鼎文无声://@游明磊46://@海龙-27: [哈哈]//@chen迁迁15: //@花前一壶酒08://@sy漁夫:[酷] 宇宙无耻真理教，懂不？//@鲁壁藏书:台属//@zzpzym200820: 转发微博<br><br>RE: 有意思，一个不在台湾出生，也不在台湾生活，甚至没有去过台湾的代表团却代表台湾人民参加全国两会，这肚量真是无法比拟。<br><img src="http://ww3.sinaimg.cn/large/006osaYEgw1f1pari6w6jj30c80lrtb1.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
