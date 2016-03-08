@@ -84,7 +84,7 @@
 </h2>
 <p>张宏良：政治往往是由谁来说比说什么更加重要： 今年两会期间安排厉以宁、易刚、楼继伟、白岩松等一大批人在记者招待会上高调亮相，显然是刻意安排的政治举动，是在告诉人们，特别是在告诉亿万...文字版>> http://t.cn/RGRLWUA （新浪长微博>> http://t.cn/zOXAaic）<br><img src="http://ww2.sinaimg.cn/large/b6ddfe6djw1f1phdm2blgj20c82e9h42.jpg"></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3950772498828064" target="freeweibo-mirror">SPAM 同贺！//@夙生律师事务所: 这生日好记//@优昙…</a>
 </h2>
