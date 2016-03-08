@@ -126,7 +126,7 @@
 </h2>
 <p>之所以转就是想看看多久被删，现在是11点10分，计时开始，滴答滴答<br><br>RE: 坚决支持罢免李克强总理之职！支持的就转。 http://t.cn/RG8ThOO</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3950709966100250" target="freeweibo-mirror">坚决支持罢免李克强总理之职！支持的就转。 http://t.…</a>
 </h2>
