@@ -20,6 +20,18 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3950693821801179" target="freeweibo-mirror">//@成渝雄鹰-:除了罗斯柴尔德，还有亨利．保尔森、约翰．桑…</a>
+</h2>
+<p>//@成渝雄鹰-:除了罗斯柴尔德，还有亨利．保尔森、约翰．桑顿……。不仅建立起家族财富帝国，还构筑起金融权力中心！可以说是公开地认贼做父和卖国求荣，与中国人民、中华民族和中国财富为敌。//@小木鱼破袈裟:有人不仅仅是入世议定书当汉奸卖国的问题那么简单！而是和一切罪恶之源罗斯柴尔德勾肩搭背<br><br>RE: 还老朱清白！昨天，政协委员朱燕来女士说，“我在中国人民大学做过四年大学老师，也算从教育界出来的。”请问朱燕来女士——知道您不拼爹，您一学哲学、社会学的，怎么当上中银香港副总裁的？您哥哥朱云来学气象的，怎么当上中金总裁的？还有，前翻译朱彤女士，怎么当上德意志银行大中华区总裁的？<br><img src="http://ww2.sinaimg.cn/large/b6ddfe6djw1f1okf7bu27j20m80i90vd.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3950693595094608" target="freeweibo-mirror">//@小木鱼破袈裟:要查朱班底就去一个地方，清华经管学院顾问…</a>
+</h2>
+<p>//@小木鱼破袈裟:要查朱班底就去一个地方，清华经管学院顾问委员会！汉奸窝子！//@李二保2015://@罄竹难书的马甲:这些还是小事了，朱班底才是大事。楼继伟、周小川//@Merengues大董: //@恬退隐忍12: 高薪单位，让自己的儿女先去做高官，真是大公无私！还想让全国人民都称赞说你是清官，除非<br><br>RE: 还老朱清白！昨天，政协委员朱燕来女士说，“我在中国人民大学做过四年大学老师，也算从教育界出来的。”请问朱燕来女士——知道您不拼爹，您一学哲学、社会学的，怎么当上中银香港副总裁的？您哥哥朱云来学气象的，怎么当上中金总裁的？还有，前翻译朱彤女士，怎么当上德意志银行大中华区总裁的？<br><img src="http://ww2.sinaimg.cn/large/b6ddfe6djw1f1okf7bu27j20m80i90vd.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3950645322595354" target="freeweibo-mirror">SPAM 所有提问者全都是事先“埋”好的</a>
 </h2>
 <p>SPAM 所有提问者全都是事先“埋”好的<br><br>RE: 落后地区的落后，是有原因的。<br><img src="http://ww1.sinaimg.cn/large/6d0b6b33jw1f1o7ornw9wj20n21s511x.jpg"></p>
@@ -60,7 +72,7 @@
 </h2>
 <p>SPAM [衰]//@贺延光: [抓狂]<br><br>RE: 新京报记者提问被打断 | Video | 阅读时间 http://t.cn/RG8os9l</p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3950598028204768" target="freeweibo-mirror">SPAM [抓狂]</a>
 </h2>
@@ -114,7 +126,7 @@
 </h2>
 <p>3月7日甘肅代表团舉辦媒體開放日活動，多名記者多次大聲呼喊能否回應“武威抓記者”事件，均未得到回應。另据微博消息稱，甘肅開放日提問的記者都是官方拿著安排好的紙條提問的，而《新京報》記者提問王三運回答武威記者事件，王三運当場“冷臉”，沒有回答，“現場沸騰”。</p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3950534216210078" target="freeweibo-mirror">真的佩服这位@新京报 的记者，搞得王书记都哑巴了，几个人拉都…</a>
 </h2>
@@ -127,18 +139,6 @@
 <p>SPAM 求是？<br><br>RE: 穿越到了大元<br><img src="http://ww3.sinaimg.cn/large/006bIW6djw1f1okostk4zj30qo0zkgon.jpg"></p>
 <p>
 	<small> ============== 12小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3950531380218537" target="freeweibo-mirror">//@青岛蒙冤法官: //@摩羯文明: //@王甫律师:该倡…</a>
-</h2>
-<p>//@青岛蒙冤法官: //@摩羯文明: //@王甫律师:该倡议令人伤感。</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3950527677122220" target="freeweibo-mirror">SPAM 真以为梁左活过来了，尤其是看到“做饭需要”四个字。</a>
-</h2>
-<p>SPAM 真以为梁左活过来了，尤其是看到“做饭需要”四个字。<br><br>RE: 分享图片<br><img src="http://ww2.sinaimg.cn/large/53d9ca03jw1f1oljafib5j20hs0nqt9o.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
 </p>
 <table>
     <tr>
