@@ -32,6 +32,12 @@
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3950753670503395" target="freeweibo-mirror">//@钟鼎文无声://@游明磊46://@海龙-27: [哈…</a>
+</h2>
+<p>//@钟鼎文无声://@游明磊46://@海龙-27: [哈哈]//@chen迁迁15: //@花前一壶酒08://@sy漁夫:[酷] 宇宙无耻真理教，懂不？//@鲁壁藏书:台属//@zzpzym200820: 转发微博<br><br>RE: 有意思，一个不在台湾出生，也不在台湾生活，甚至没有去过台湾的代表团却代表台湾人民参加全国两会，这肚量真是无法比拟。<br><img src="http://ww3.sinaimg.cn/large/006osaYEgw1f1pari6w6jj30c80lrtb1.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3950751233994556" target="freeweibo-mirror">十一届三中全会就是资产党了，跟共产党没关系！//@海奇子: …</a>
 </h2>
 <p>十一届三中全会就是资产党了，跟共产党没关系！//@海奇子: 十一届三中全会后的决议还是共产党的吗？本人无知，求教。//@云游郎中:一干不尿共产党的贺卫方，偏偏重视共产党否定文革的这个决议，这只能证明这个决议有问题。//@海奇子:关于对文革的评价，不能由少数人说了算，还是听听大多数人的看法吧！<br><br>RE: 【标尺】今年是文革爆发五十周年，该是真正揭示真相、反思历史的时刻了。至少应该树立一个基本标尺，被定义为“十年浩劫”的文革已经由中共中央关于若干重大历史问题的决议彻底否定，无论什么人，谁为文革摆好招魂，谁就是真正的反党。</p>
@@ -78,7 +84,7 @@
 </h2>
 <p>SPAM 所有提问者全都是事先“埋”好的<br><br>RE: 落后地区的落后，是有原因的。<br><img src="http://ww1.sinaimg.cn/large/6d0b6b33jw1f1o7ornw9wj20n21s511x.jpg"></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3950638096132155" target="freeweibo-mirror">甘肃领导记者会躲避武威抓记者事件，对政府形象是负效果，尤其在…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3950563438337921" target="freeweibo-mirror">//@大汉族人民:如果将中国当朝与中国历代相类比的话，那么与…</a>
 </h2>
 <p>//@大汉族人民:如果将中国当朝与中国历代相类比的话，那么与作为蒙古帝国一部分的元朝最为相似，如户口制度、村长制度、崇尚暴力和奴性、菜刀实名制、外国(色目)人优越，这些都是继承元朝的衣钵，当朝体制内的统治者完全是一群精神上的野蛮鞑靼人//@何其多1061://@蛋疼的李帅_79104: //@老许祈福-15s<br><br>RE: 穿越到了大元<br><img src="http://ww3.sinaimg.cn/large/006bIW6djw1f1okostk4zj30qo0zkgon.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3950562611120368" target="freeweibo-mirror">SPAM 胆破成这样怎么办？[吃惊]</a>
-</h2>
-<p>SPAM 胆破成这样怎么办？[吃惊]<br><br>RE: 分享图片<br><img src="http://ww2.sinaimg.cn/large/53d9ca03jw1f1oljafib5j20hs0nqt9o.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
