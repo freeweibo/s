@@ -72,7 +72,7 @@
 </h2>
 <p>SPAM 死了那么多人，居然变好事儿了… #记录中国#<br><img src="http://ww4.sinaimg.cn/large/7f6a1e2bjw1f1pnhlatycj21401ug4qp.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3950789607261168" target="freeweibo-mirror">SPAM 卧槽，申纪兰~[doge]//@战争史研究WHS:…</a>
 </h2>
