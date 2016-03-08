@@ -54,7 +54,7 @@
 </h2>
 <p>SPAM #有滋有味，柑谢有你# 总有人问，怎样才能更好地帮助贫苦农民？您每购买一个黄果柑，就能帮石棉县种植黄果柑的农户增收3毛钱。过去一年，他们从剪枝、疏果、施农家肥开始，良心生产、深耕品质。支持贫困果农，让诚信生产实现价值。请点击支持http://t.cn/RG8Rvt6 http://t.cn/RGTXS9V<br><img src="http://ww1.sinaimg.cn/large/622dd928gw1f1pbdlkfsrj20o60g4mzy.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3950712159029321" target="freeweibo-mirror">之所以转就是想看看多久被删，现在是11点10分，计时开始，滴…</a>
 </h2>
@@ -102,7 +102,7 @@
 </h2>
 <p>//@夙生律师事务所: 那位问兰州蓝的记者会被钉上耻辱柱！拒接再看他们媒体的报道，甜菊报道专业户。<br><br>RE: 真的佩服这位@新京报 的记者，搞得王书记都哑巴了，几个人拉都拉不住啊！都把习主席的话当耳边风吗？甘肃记者抓去嫖娼又没嫖娼的事情，几时休啊？[笑cry][笑cry][笑cry]信㐅＊*得永生！[偷笑][偷笑][偷笑] http://t.cn/z8GWYtA http://t.cn/RG86CA9 .</p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3950611991536315" target="freeweibo-mirror">//@千里马常有:→_→[赞] //@某普通公民II:我要是…</a>
 </h2>
