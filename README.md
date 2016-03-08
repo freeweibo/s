@@ -36,7 +36,7 @@
 </h2>
 <p>SPAM //@社会日常: 转发关注 @李信军道长 @书画界 就有机会获得 经典之作《太上感应篇》图书。</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3950846242359042" target="freeweibo-mirror">SPAM 一个成为水彩画大触的机会来啦，感兴趣的童鞋可以看看…</a>
 </h2>
@@ -114,7 +114,7 @@
 </h2>
 <p>俞敏洪老师在政协会议发言，国家要创办世界一流大学，光靠拨款是不行的。做到了“思想解放、学术自由”这八个字，一流大学就出现了。<br><img src="http://ww2.sinaimg.cn/large/491d78cbjw1f1paunvzj3j20k00zkws8.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3950717632746953" target="freeweibo-mirror">有意思，一个不在台湾出生，也不在台湾生活，甚至没有去过台湾的…</a>
 </h2>
