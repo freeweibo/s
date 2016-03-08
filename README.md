@@ -96,7 +96,7 @@
 </h2>
 <p>如果这也必须删除，那就停止反腐败吧，因为腐败问题更损党政形象。//@贺延光:[抓狂]<br><br>RE: 新京报记者提问被打断 | Video | 阅读时间 http://t.cn/RG8os9l</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3950600162425381" target="freeweibo-mirror">SPAM [衰]//@贺延光: [抓狂]</a>
 </h2>
