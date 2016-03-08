@@ -60,13 +60,13 @@
 </h2>
 <p>天津市长:爆炸事故是很好的老师…就凭这句，你这辈子就代理书记到底了！</p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3950846813379254" target="freeweibo-mirror">SPAM //@社会日常: 转发关注 @李信军道长 @书画界…</a>
 </h2>
 <p>SPAM //@社会日常: 转发关注 @李信军道长 @书画界 就有机会获得 经典之作《太上感应篇》图书。</p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3950846242359042" target="freeweibo-mirror">SPAM 一个成为水彩画大触的机会来啦，感兴趣的童鞋可以看看…</a>
 </h2>
@@ -120,7 +120,7 @@
 </h2>
 <p>今天他生日！（1951.3.8）[蛋糕][玫瑰]<br><img src="http://ww3.sinaimg.cn/large/e089bebfgw1f1pg2q2y5dj20k00f0acf.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3950753670503395" target="freeweibo-mirror">//@钟鼎文无声://@游明磊46://@海龙-27: [哈…</a>
 </h2>
