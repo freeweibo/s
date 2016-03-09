@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3951056867722769" target="freeweibo-mirror">【神逻辑】#微博说两会#天津市长黄兴国在两会上说，天津港爆炸…</a>
+</h2>
+<p>【神逻辑】#微博说两会#天津市长黄兴国在两会上说，天津港爆炸事故发生后，并未动摇天津发展的良好基本面。爆炸事故是很好的老师，会认真反思如何把坏事变成好事。哇靠！如此坏事变好事，瞬间实现悲剧翻转，堪称惊天动地之强悍逻辑，不知在爆炸中死去的数百冤魂作何感想？[悲伤] http://t.cn/R2WJZPr</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3950996382233520" target="freeweibo-mirror">掉节操的app来了</a>
 </h2>
 <p>掉节操的app来了<br><br>RE: 掉节操的app来了，小编这次决定放大招~【S[色]e[色]x[色]Brain】这个游戏能上架，苹果的审核也挺开放的，当时估计也玩的很嗨！话不多说，先看看下面羞耻的动图~找到正确的姿势，让他们能顺利的 XXOO，如果找的姿势不合适就 Game Over 了！同学，你需要来一包去污粉了。。。<br><img src="http://ww4.sinaimg.cn/large/716e55f5gw1f1p7113gvdg20760cs1ky.gif"></p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3950775220545433" target="freeweibo-mirror">张宏良：政治往往是由谁来说比说什么更加重要： 今年两会期间安…</a>
 </h2>
 <p>张宏良：政治往往是由谁来说比说什么更加重要： 今年两会期间安排厉以宁、易刚、楼继伟、白岩松等一大批人在记者招待会上高调亮相，显然是刻意安排的政治举动，是在告诉人们，特别是在告诉亿万...文字版>> http://t.cn/RGRLWUA （新浪长微博>> http://t.cn/zOXAaic）<br><img src="http://ww2.sinaimg.cn/large/b6ddfe6djw1f1phdm2blgj20c82e9h42.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3950772498828064" target="freeweibo-mirror">SPAM 同贺！//@夙生律师事务所: 这生日好记//@优昙…</a>
-</h2>
-<p>SPAM 同贺！//@夙生律师事务所: 这生日好记//@优昙婆罗花-净：祝福！//@浔阳女高音123: [蛋糕]//@牛倌的渴望: [哈哈][赞][蛋糕][玫瑰] //@蓝星虫语:全世界女同胞与大炮同贺！[酷]//@-西风独自凉V:[蛋糕]//@牛倌的渴望: 人走并不茶凉，默默地送祝福！大炮生日快乐！[玫瑰] //@杜芝富B: 真心祝福任大炮生日快<br><br>RE: 今天他生日！（1951.3.8）[蛋糕][玫瑰]<br><img src="http://ww3.sinaimg.cn/large/e089bebfgw1f1pg2q2y5dj20k00f0acf.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
