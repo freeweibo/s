@@ -60,7 +60,7 @@
 </h2>
 <p>为了胜利，向我开炮！[嘻嘻]<br><img src="http://ww1.sinaimg.cn/large/006p1QFjjw1f1puujrwblj30hs0hsgmk.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3950889951152909" target="freeweibo-mirror">//@奔六: 红线女怎么生下这么个杂碎？[弱]//@东-回归…</a>
 </h2>
