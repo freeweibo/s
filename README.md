@@ -30,7 +30,7 @@
 </h2>
 <p>发布了头条文章：《老公领回个干妹住家里，结果真是‘干’妹！》 http://t.cn/RGEbhP6</p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3951153765573541" target="freeweibo-mirror">SPAM http://t.cn/RGEUqgu  提前把预…</a>
 </h2>
@@ -72,7 +72,7 @@
 </h2>
 <p>SPAM 毛泽东是对的“批林批孔”就是批判愚忠附庸//@臭皮醋5: 坨族 //@工厂仅1位:看面貌、是歹族[思考] //@回笼教教主驾到:他好恶心额[挖鼻] //@金质勋章:看帽子是gui(跪)族，听说话是舔族[思考]</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3951063130659130" target="freeweibo-mirror">从文中可以看出，习总当年也是被逼无奈去的农村，还是家里失势了…</a>
 </h2>
