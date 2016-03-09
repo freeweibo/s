@@ -24,7 +24,7 @@
 </h2>
 <p>SPAM 海尔智能生态战略在魔都上海世博中心盛大开启</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3951162669339755" target="freeweibo-mirror">发布了头条文章：《老公领回个干妹住家里，结果真是‘干’妹！》…</a>
 </h2>
