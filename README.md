@@ -72,7 +72,7 @@
 </h2>
 <p>SPAM 坏事变好事，真有本事！ //@李天义老师:转发微博</p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3950852710693892" target="freeweibo-mirror">[哈哈] //@张清同志: //@五羊子民: 有逃荒书记撑腰…</a>
 </h2>
