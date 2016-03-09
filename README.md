@@ -24,7 +24,7 @@
 </h2>
 <p>杜光：试论“任志强事件”的是非曲直_天地悠悠 http://t.cn/RGRHzAL</p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3950906904711591" target="freeweibo-mirror">转发来看评论。</a>
 </h2>
@@ -72,7 +72,7 @@
 </h2>
 <p>[哈哈] //@张清同志: //@五羊子民: 有逃荒书记撑腰，有钱有权，财大气粗！<br><br>RE: 张宏良：政治往往是由谁来说比说什么更加重要： 今年两会期间安排厉以宁、易刚、楼继伟、白岩松等一大批人在记者招待会上高调亮相，显然是刻意安排的政治举动，是在告诉人们，特别是在告诉亿万...文字版>> http://t.cn/RGRLWUA （新浪长微博>> http://t.cn/zOXAaic）<br><img src="http://ww2.sinaimg.cn/large/b6ddfe6djw1f1phdm2blgj20c82e9h42.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3950846817576636" target="freeweibo-mirror">天津市长:爆炸事故是很好的老师…就凭这句，你这辈子就代理书记…</a>
 </h2>
