@@ -54,7 +54,7 @@
 </h2>
 <p>为了胜利，向我开炮！[嘻嘻]<br><img src="http://ww1.sinaimg.cn/large/006p1QFjjw1f1puujrwblj30hs0hsgmk.jpg"></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3950889951152909" target="freeweibo-mirror">//@奔六: 红线女怎么生下这么个杂碎？[弱]//@东-回归…</a>
 </h2>
@@ -72,7 +72,7 @@
 </h2>
 <p>SPAM 坏事变好事，真有本事！ //@李天义老师:转发微博</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3950852710693892" target="freeweibo-mirror">[哈哈] //@张清同志: //@五羊子民: 有逃荒书记撑腰…</a>
 </h2>
