@@ -30,7 +30,7 @@
 </h2>
 <p>发布了头条文章：《老公领回个干妹住家里，结果真是‘干’妹！》 http://t.cn/RGEbhP6</p>
 <p>
-	<small> ============== 1天前</small>
+	<small> ============== 2天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3951153765573541" target="freeweibo-mirror">SPAM http://t.cn/RGEUqgu  提前把预…</a>
 </h2>
