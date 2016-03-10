@@ -108,7 +108,7 @@
 </h2>
 <p>杜光：试论“任志强事件”的是非曲直_天地悠悠 http://t.cn/RGRHzAL</p>
 <p>
-	<small> ============== 1天前</small>
+	<small> ============== 2天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3950911053287669" target="freeweibo-mirror">这哥们哪个族的</a>
 </h2>
