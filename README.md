@@ -114,7 +114,7 @@
 </h2>
 <p>这哥们哪个族的<br><img src="http://ww4.sinaimg.cn/large/66ac8ae9jw1f1pwyxxo0sj20gm0oimz4.jpg"></p>
 <p>
-	<small> ============== 1天前</small>
+	<small> ============== 2天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3950906904711591" target="freeweibo-mirror">转发来看评论。</a>
 </h2>
