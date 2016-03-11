@@ -36,7 +36,7 @@
 </h2>
 <p>SPAM http://t.cn/RGmh9mG</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3951841080929276" target="freeweibo-mirror">SPAM 各位亲爱的家人朋友，经过一年的准备，我的创业项目再…</a>
 </h2>
@@ -96,7 +96,7 @@
 </h2>
 <p>以前一直以为自己是公民，后来才发现，人家并不拿你当公民，再后来，连公民这俩字，都不大让你提了。你是什么？人民，一个随时可以被从这个集体名字从踢出来的人。</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3951762798436389" target="freeweibo-mirror">SPAM </a>
 </h2>
