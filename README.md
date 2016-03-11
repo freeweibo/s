@@ -38,6 +38,12 @@
 <p>
 	<small> ============== 4小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3951930642369711" target="freeweibo-mirror">社会分裂，伤害公众凝聚力，这就是此前公知大力宣传种的恶果。香…</a>
+</h2>
+<p>社会分裂，伤害公众凝聚力，这就是此前公知大力宣传种的恶果。香港那么现实的社会出现暴乱，街头打斗围攻对骂，不是社会分裂？台湾向来较温和，台独占领议会 油漆泼雕像把文物都侮辱了，哪有中国凝聚力？这种极端化类中东现象，难道还是内地的原因？这些年大陆社会开放远比从前宽松了，结果如何？<br><br>RE: 最近一段不少央媒的正面报道都关闭了评论。虽然的确有一些非理性网民评论，但如完全不能有立场和观点的对话和协商，这肯定反映出社会不正常的分裂，也会严重伤害公众凝聚力。从党章宪法以及近代革命史中找到与当今世界主流价值共享的核心价值，把它变成实际阶段性目标而不是口号，将影响中国命运。</p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3951927241301647" target="freeweibo-mirror">//@懒得洗澡的鱼xyz:大家转起来阿，如果这位良心记者的声…</a>
 </h2>
 <p>//@懒得洗澡的鱼xyz:大家转起来阿，如果这位良心记者的声音传递不出来，极有可能成为炮灰<br><br>RE: 新华社记者实名控告网络主管部门，揭露真相。大家转起来，不能让这位良心记者成为炮灰 http://t.cn/RGmztdd</p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3951755551420407" target="freeweibo-mirror">//@涵涵他爹:西装配体恤，妥妥的公务员范儿。</a>
 </h2>
 <p>//@涵涵他爹:西装配体恤，妥妥的公务员范儿。<br><br>RE: 【变脸】平日西装革履，两会就民族时装秀了。<br><img src="http://ww3.sinaimg.cn/large/a5d15efdgw1f1s620tyqaj20dw099gmr.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3951747506451787" target="freeweibo-mirror">Just learnt a new word: "ten-d…</a>
-</h2>
-<p>Just learnt a new word: "ten-day culture revolution"[衰]</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
