@@ -48,7 +48,7 @@
 </h2>
 <p>能不删你帖就不错了！<br><br>RE: 最不关心的一届两会，已经无耻到这种地步！ http://t.cn/RGmLjuK .</p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3951994437890643" target="freeweibo-mirror">法‘治’国家//@崔小平律师://@陈光武律师://@律师侯…</a>
 </h2>
