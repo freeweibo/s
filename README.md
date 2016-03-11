@@ -26,6 +26,12 @@
 <p>
 	<small> ============== 1小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3951931229981419" target="freeweibo-mirror">//@自然一点好不好: 回复@民心推枯拉朽压倒一切:谢谢 /…</a>
+</h2>
+<p>//@自然一点好不好: 回复@民心推枯拉朽压倒一切:谢谢 //@自然一点好不好:回复@民心推枯拉朽压倒一切:谢谢 //@自然一点好不好: //@大漠狼烟5291: 转发微博<br><br>RE: 张鸣：做了什么事，在网上招反对，你说网上靠不住，那么就搞一次实际的投票吧，又不肯。唯一的办法，是弄些水军，拍自己的马屁，然后关闭评论，删掉反对的声音，只留下马屁。这叫自信吗？<br><img src="http://ww1.sinaimg.cn/large/bfa66467jw1f1sft18eqxj20go08c3zk.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3951908013600470" target="freeweibo-mirror">SPAM http://t.cn/RGmh9mG</a>
 </h2>
 <p>SPAM http://t.cn/RGmh9mG</p>
@@ -96,7 +102,7 @@
 </h2>
 <p>SPAM </p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3951755551420407" target="freeweibo-mirror">//@涵涵他爹:西装配体恤，妥妥的公务员范儿。</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3951600520809714" target="freeweibo-mirror">任志强将于3月21日归来。别问我消息来源</a>
 </h2>
 <p>任志强将于3月21日归来。别问我消息来源<br><img src="http://ww3.sinaimg.cn/large/006brqyMjw1f1s45838c0j308u07f0t1.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3951542988229508" target="freeweibo-mirror">SPAM 看到@海尔 @统帅电器 的Hello Kitty的…</a>
-</h2>
-<p>SPAM 看到@海尔 @统帅电器 的Hello Kitty的定制款洗衣机，简直被萌化了！</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
