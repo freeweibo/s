@@ -72,7 +72,7 @@
 </h2>
 <p>得奖人无法出席的颁奖礼。<br><img src="http://ww1.sinaimg.cn/large/46e9d5dajw1f1sqw0pettj20zk0qotg9.jpg"></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3951797008295921" target="freeweibo-mirror">SPAM //@胡劲东: 你就是一小撮 //@章诒和://@…</a>
 </h2>
