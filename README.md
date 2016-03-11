@@ -48,7 +48,7 @@
 </h2>
 <p>SPAM  //@章诒和://@李不白的店: [衰]<br><br>RE: 以前一直以为自己是公民，后来才发现，人家并不拿你当公民，再后来，连公民这俩字，都不大让你提了。你是什么？人民，一个随时可以被从这个集体名字从踢出来的人。</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3951788694673547" target="freeweibo-mirror">SPAM 想撩骚，你得有料。戳链接 领取价值500元的3节1…</a>
 </h2>
@@ -72,13 +72,19 @@
 </h2>
 <p>SPAM </p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3951755551420407" target="freeweibo-mirror">//@涵涵他爹:西装配体恤，妥妥的公务员范儿。</a>
 </h2>
 <p>//@涵涵他爹:西装配体恤，妥妥的公务员范儿。<br><br>RE: 【变脸】平日西装革履，两会就民族时装秀了。<br><img src="http://ww3.sinaimg.cn/large/a5d15efdgw1f1s620tyqaj20dw099gmr.jpg"></p>
 <p>
 	<small> ============== 7小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3951747506451787" target="freeweibo-mirror">Just learnt a new word: "ten-d…</a>
+</h2>
+<p>Just learnt a new word: "ten-day culture revolution"[衰]</p>
+<p>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3951641394735728" target="freeweibo-mirror">？？？ //@广西林仁聪律师:[吃惊]</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3951520653397023" target="freeweibo-mirror">[哈哈]//@冷夜烈猫: [哈哈]//@一只博://@shi…</a>
 </h2>
 <p>[哈哈]//@冷夜烈猫: [哈哈]//@一只博://@shishi1600: [哈哈]//@狮狮上海: [哈哈] //@李不白的店:[哈哈]//@某某某上海: [哈哈] //@神评_剑圣://@龙之父ywc:还湿疣呢[哈哈] //@博闻楚郡:[哈哈]//@涉-美266:[哈哈]//@逗名阳: [哈哈]//@财经女作家: [哈哈]<br><br>RE: 习近平主席说：对中国共产党而言要容得下尖锐的批评。我响应了习主席的号召，向党提出了些意见，微博却很快被销了号。我问它们：为什么要销我的号？它们说：你是谁啊？你是叫尖锐吗？</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3951476688134227" target="freeweibo-mirror">看来是真的，通知@共青团中央 了吗？</a>
-</h2>
-<p>看来是真的，通知@共青团中央 了吗？<br><br>RE: 老板终于叫萱萱收声了，好事。</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
