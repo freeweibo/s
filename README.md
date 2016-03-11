@@ -42,7 +42,7 @@
 </h2>
 <p>学校为什么不开除他们？ //@十一月末君:目瞪口呆.jpg//@田地發: 異教徒與豬不得入…[猪头]//@StellaZhang200:异教徒与狗不得入内 //@王小东:不是北大疯了，而是整个庙堂疯了<br><br>RE: 中国政府的民族政策制定人是种族主义者吗?这么明目张胆的开历史倒车,现在终于可以开花结果了.去年传媒大学学生要求把非虔诚穆斯林踢出食堂，要求食堂不能和汉餐厅在一座建筑里,否则就要闹出国际事件.到今年他们就彻底打算立法了.看来tg的民族政策不仅仅是个别领导的问题，是它的整个理论体系出了问题。<br><img src="http://ww1.sinaimg.cn/large/4a139f0bgw1f1s8uiuv9pj20ua0t6wqp.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3951917891697268" target="freeweibo-mirror">新华社记者实名控告网络主管部门，揭露真相。大家转起来，不能让…</a>
 </h2>
@@ -54,7 +54,7 @@
 </h2>
 <p>SPAM http://t.cn/RGmh9mG</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3951841080929276" target="freeweibo-mirror">SPAM 各位亲爱的家人朋友，经过一年的准备，我的创业项目再…</a>
 </h2>
