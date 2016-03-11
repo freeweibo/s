@@ -96,7 +96,7 @@
 </h2>
 <p>Just learnt a new word: "ten-day culture revolution"[衰]</p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3951641394735728" target="freeweibo-mirror">？？？ //@广西林仁聪律师:[吃惊]</a>
 </h2>
