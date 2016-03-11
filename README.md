@@ -72,7 +72,7 @@
 </h2>
 <p>？？？ //@广西林仁聪律师:[吃惊]<br><br>RE: 任志强将于3月21日归来。别问我消息来源<br><img src="http://ww3.sinaimg.cn/large/006brqyMjw1f1s45838c0j308u07f0t1.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3951618708028405" target="freeweibo-mirror">SPAM 网易——有态度的新闻门户</a>
 </h2>
