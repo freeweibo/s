@@ -24,7 +24,7 @@
 </h2>
 <p>//@陶然万柳世界:[话筒][话筒]//@老书新作坊://@宪阁微观://@徐凤文: //@亦农: //@徐幸起: //@懒得洗澡的鱼xyz:大家转起来阿，如果这位良心记者的声音传递不出来，极有可能成为炮灰<br><br>RE: 新华社记者实名控告网络主管部门，揭露真相。大家转起来，不能让这位良心记者成为炮灰 http://t.cn/RGmztdd</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3951931229981419" target="freeweibo-mirror">//@自然一点好不好: 回复@民心推枯拉朽压倒一切:谢谢 /…</a>
 </h2>
@@ -48,7 +48,7 @@
 </h2>
 <p>新华社记者实名控告网络主管部门，揭露真相。大家转起来，不能让这位良心记者成为炮灰 http://t.cn/RGmztdd</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3951908013600470" target="freeweibo-mirror">SPAM http://t.cn/RGmh9mG</a>
 </h2>
