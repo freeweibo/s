@@ -24,7 +24,7 @@
 </h2>
 <p>SPAM http://t.cn/RGmh9mG</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3951841080929276" target="freeweibo-mirror">SPAM 各位亲爱的家人朋友，经过一年的准备，我的创业项目再…</a>
 </h2>
