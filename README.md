@@ -26,6 +26,12 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3951966935843959" target="freeweibo-mirror">#静说两会# 在人大预算委员会的记者会上，上海的澎拜新闻记者…</a>
+</h2>
+<p>#静说两会# 在人大预算委员会的记者会上，上海的澎拜新闻记者提了一个问题：国家预算中是否包含了党的各项经费？具体多少？全国人大常委会预算工作委员会副主任刘修文坦诚“这有点难”。不过他承认：共产党的经费都不是靠党费，而是列入国家预算，但是还没公布。也就是说，党花的也是人民的钱，而不是...全文： http://m.weibo.cn/1288814951/3951966935843959...全文： http://m.weibo.cn/1288814951/3951966935843959...全文： http://m.weibo.cn/1288814951/3951966935843959<br><img src="http://ww4.sinaimg.cn/large/4cd1c167gw1f1ta8smuazj209g06hmxa.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3951933737649229" target="freeweibo-mirror">//@陶然万柳世界:[话筒][话筒]//@老书新作坊://@…</a>
 </h2>
 <p>//@陶然万柳世界:[话筒][话筒]//@老书新作坊://@宪阁微观://@徐凤文: //@亦农: //@徐幸起: //@懒得洗澡的鱼xyz:大家转起来阿，如果这位良心记者的声音传递不出来，极有可能成为炮灰<br><br>RE: 新华社记者实名控告网络主管部门，揭露真相。大家转起来，不能让这位良心记者成为炮灰 http://t.cn/RGmztdd</p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3951762798436389" target="freeweibo-mirror">SPAM </a>
 </h2>
 <p>SPAM </p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3951755551420407" target="freeweibo-mirror">//@涵涵他爹:西装配体恤，妥妥的公务员范儿。</a>
-</h2>
-<p>//@涵涵他爹:西装配体恤，妥妥的公务员范儿。<br><br>RE: 【变脸】平日西装革履，两会就民族时装秀了。<br><img src="http://ww3.sinaimg.cn/large/a5d15efdgw1f1s620tyqaj20dw099gmr.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
