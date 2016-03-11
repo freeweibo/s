@@ -24,7 +24,7 @@
 </h2>
 <p>SPAM //@婚恋哲学: 转发微博</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3951933737649229" target="freeweibo-mirror">//@陶然万柳世界:[话筒][话筒]//@老书新作坊://@…</a>
 </h2>
