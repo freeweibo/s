@@ -38,6 +38,12 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3951922811505758" target="freeweibo-mirror">学校为什么不开除他们？ //@十一月末君:目瞪口呆.jpg/…</a>
+</h2>
+<p>学校为什么不开除他们？ //@十一月末君:目瞪口呆.jpg//@田地發: 異教徒與豬不得入…[猪头]//@StellaZhang200:异教徒与狗不得入内 //@王小东:不是北大疯了，而是整个庙堂疯了<br><br>RE: 中国政府的民族政策制定人是种族主义者吗?这么明目张胆的开历史倒车,现在终于可以开花结果了.去年传媒大学学生要求把非虔诚穆斯林踢出食堂，要求食堂不能和汉餐厅在一座建筑里,否则就要闹出国际事件.到今年他们就彻底打算立法了.看来tg的民族政策不仅仅是个别领导的问题，是它的整个理论体系出了问题。<br><img src="http://ww1.sinaimg.cn/large/4a139f0bgw1f1s8uiuv9pj20ua0t6wqp.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3951917891697268" target="freeweibo-mirror">新华社记者实名控告网络主管部门，揭露真相。大家转起来，不能让…</a>
 </h2>
 <p>新华社记者实名控告网络主管部门，揭露真相。大家转起来，不能让这位良心记者成为炮灰 http://t.cn/RGmztdd</p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3951701914059566" target="freeweibo-mirror">张鸣：做了什么事，在网上招反对，你说网上靠不住，那么就搞一次…</a>
 </h2>
 <p>张鸣：做了什么事，在网上招反对，你说网上靠不住，那么就搞一次实际的投票吧，又不肯。唯一的办法，是弄些水军，拍自己的马屁，然后关闭评论，删掉反对的声音，只留下马屁。这叫自信吗？<br><img src="http://ww1.sinaimg.cn/large/bfa66467jw1f1sft18eqxj20go08c3zk.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3951641394735728" target="freeweibo-mirror">？？？ //@广西林仁聪律师:[吃惊]</a>
-</h2>
-<p>？？？ //@广西林仁聪律师:[吃惊]<br><br>RE: 任志强将于3月21日归来。别问我消息来源<br><img src="http://ww3.sinaimg.cn/large/006brqyMjw1f1s45838c0j308u07f0t1.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
