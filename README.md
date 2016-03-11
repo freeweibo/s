@@ -48,7 +48,7 @@
 </h2>
 <p>//@懒得洗澡的鱼xyz:大家转起来阿，如果这位良心记者的声音传递不出来，极有可能成为炮灰<br><br>RE: 新华社记者实名控告网络主管部门，揭露真相。大家转起来，不能让这位良心记者成为炮灰 http://t.cn/RGmztdd</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3951922811505758" target="freeweibo-mirror">学校为什么不开除他们？ //@十一月末君:目瞪口呆.jpg/…</a>
 </h2>
