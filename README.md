@@ -32,6 +32,12 @@
 <p>
 	<small> ============== 1小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3951917891697268" target="freeweibo-mirror">新华社记者实名控告网络主管部门，揭露真相。大家转起来，不能让…</a>
+</h2>
+<p>新华社记者实名控告网络主管部门，揭露真相。大家转起来，不能让这位良心记者成为炮灰 http://t.cn/RGmztdd</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3951908013600470" target="freeweibo-mirror">SPAM http://t.cn/RGmh9mG</a>
 </h2>
 <p>SPAM http://t.cn/RGmh9mG</p>
@@ -54,7 +60,7 @@
 </h2>
 <p>//@律师老周401:笑话而已//@徐战前:人民群眾對楊科長有意見，不要把怒火撒在組織頭上。據了解，我黨任何一級組織都沒有委派他用文革方式對黨內外同志們打棍子扣帽子咬腿肚子。//@用鄙视的眼光藐视一切:楊大科長說話不如放屁，是共產黨員的優秀代表。</p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3951798568452271" target="freeweibo-mirror">得奖人无法出席的颁奖礼。</a>
 </h2>
@@ -116,6 +122,12 @@
 <p>
 	<small> ============== 1天前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3951701914059566" target="freeweibo-mirror">张鸣：做了什么事，在网上招反对，你说网上靠不住，那么就搞一次…</a>
+</h2>
+<p>张鸣：做了什么事，在网上招反对，你说网上靠不住，那么就搞一次实际的投票吧，又不肯。唯一的办法，是弄些水军，拍自己的马屁，然后关闭评论，删掉反对的声音，只留下马屁。这叫自信吗？<br><img src="http://ww1.sinaimg.cn/large/bfa66467jw1f1sft18eqxj20go08c3zk.jpg"></p>
+<p>
+	<small> ============== 1天前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3951641394735728" target="freeweibo-mirror">？？？ //@广西林仁聪律师:[吃惊]</a>
 </h2>
 <p>？？？ //@广西林仁聪律师:[吃惊]<br><br>RE: 任志强将于3月21日归来。别问我消息来源<br><img src="http://ww3.sinaimg.cn/large/006brqyMjw1f1s45838c0j308u07f0t1.jpg"></p>
@@ -125,18 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3951618708028405" target="freeweibo-mirror">SPAM 网易——有态度的新闻门户</a>
 </h2>
 <p>SPAM 网易——有态度的新闻门户<br><br>RE: 网易胆儿够肥的<br><img src="http://ww1.sinaimg.cn/large/9e6b7fdbjw1f1rovo64m1j20f03egttl.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3951617940873940" target="freeweibo-mirror">【变脸】平日西装革履，两会就民族时装秀了。</a>
-</h2>
-<p>【变脸】平日西装革履，两会就民族时装秀了。<br><img src="http://ww3.sinaimg.cn/large/a5d15efdgw1f1s620tyqaj20dw099gmr.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3951600520809714" target="freeweibo-mirror">任志强将于3月21日归来。别问我消息来源</a>
-</h2>
-<p>任志强将于3月21日归来。别问我消息来源<br><img src="http://ww3.sinaimg.cn/large/006brqyMjw1f1s45838c0j308u07f0t1.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
