@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3951970182227619" target="freeweibo-mirror">SPAM //@婚恋哲学: 转发微博</a>
+</h2>
+<p>SPAM //@婚恋哲学: 转发微博</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3951933737649229" target="freeweibo-mirror">//@陶然万柳世界:[话筒][话筒]//@老书新作坊://@…</a>
 </h2>
 <p>//@陶然万柳世界:[话筒][话筒]//@老书新作坊://@宪阁微观://@徐凤文: //@亦农: //@徐幸起: //@懒得洗澡的鱼xyz:大家转起来阿，如果这位良心记者的声音传递不出来，极有可能成为炮灰<br><br>RE: 新华社记者实名控告网络主管部门，揭露真相。大家转起来，不能让这位良心记者成为炮灰 http://t.cn/RGmztdd</p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3951747506451787" target="freeweibo-mirror">Just learnt a new word: "ten-d…</a>
 </h2>
 <p>Just learnt a new word: "ten-day culture revolution"[衰]</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3951701914059566" target="freeweibo-mirror">张鸣：做了什么事，在网上招反对，你说网上靠不住，那么就搞一次…</a>
-</h2>
-<p>张鸣：做了什么事，在网上招反对，你说网上靠不住，那么就搞一次实际的投票吧，又不肯。唯一的办法，是弄些水军，拍自己的马屁，然后关闭评论，删掉反对的声音，只留下马屁。这叫自信吗？<br><img src="http://ww1.sinaimg.cn/large/bfa66467jw1f1sft18eqxj20go08c3zk.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
