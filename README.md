@@ -50,6 +50,12 @@
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3951764711555796" target="freeweibo-mirror">以前一直以为自己是公民，后来才发现，人家并不拿你当公民，再后…</a>
+</h2>
+<p>以前一直以为自己是公民，后来才发现，人家并不拿你当公民，再后来，连公民这俩字，都不大让你提了。你是什么？人民，一个随时可以被从这个集体名字从踢出来的人。</p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3951762798436389" target="freeweibo-mirror">SPAM </a>
 </h2>
 <p>SPAM </p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3951467448060790" target="freeweibo-mirror">网易胆儿够肥的</a>
 </h2>
 <p>网易胆儿够肥的<br><img src="http://ww1.sinaimg.cn/large/9e6b7fdbjw1f1rovo64m1j20f03egttl.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3951459039011770" target="freeweibo-mirror">SPAM 【男神胡歌到昆明禄劝县拍戏】来自粉丝提供的照片~胡…</a>
-</h2>
-<p>SPAM 【男神胡歌到昆明禄劝县拍戏】来自粉丝提供的照片~胡歌站在油菜花田里~[心] http://t.cn/RGErvIk<br><br>RE: #昆明身边事#【男神胡歌到昆明禄劝县拍戏】胡歌、刘涛等一行人昨日下午在昆明禄劝县屏山镇硝井村西村，进行新剧拍摄任务，是以我们云南滇缅公路公路为题材拍摄的战争爱情片《情比山高》，日程安排是3月9~10日。[话筒]不久后就可以在荧幕上感受我大云南滇缅文化氛围了~[心]随手转发给胡椒粉们~<br><img src="http://ww2.sinaimg.cn/large/6a8bd5d1gw1f1rn3dxzkcj20hs0netbj.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
