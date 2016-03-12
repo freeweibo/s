@@ -90,13 +90,13 @@
 </h2>
 <p>//@半人半鬼1:中国人喜欢做奴隶！ //@国民利益:赞同//@匆匆四海傲游-://@公民V高顺民://@封神祭二十叔://@瞽聋://@菇行天下: [悲伤]<br><br>RE: 巴金说：“一个美国人敢站出来， 因为他知道身后会有千万个美国人用行动支持他。一个中国人不敢站出来， 因为他知道周围的同胞会默默地与他保持距离。 （同胞遭遇不公，转发也是种力量[拳头]）<br><img src="http://ww1.sinaimg.cn/large/006eJuDtgw1f1ubz2evc5j30ez0icgn5.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3952356930278834" target="freeweibo-mirror">//@凯雷:了解煤矿谎报，陆昊即时开会说明实情，提出解决方案…</a>
 </h2>
 <p>//@凯雷:了解煤矿谎报，陆昊即时开会说明实情，提出解决方案//@点子正: [doge] //@韩东言:一、黑龙江召开龙煤工作会：1、尽力及时发放职工工资。2、不拖欠正在运行的煤矿井下职工工资，3、解决地面职工工资拖欠问题。4、批评情况报告不真实。 http://t.cn/RGu4eau<br><br>RE: 媒体说谎？省长说谎？老百姓说谎？<br><img src="http://ww1.sinaimg.cn/large/6fb87d17jw1f1u8x5q6jvj20k00zk0wl.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3952356540095960" target="freeweibo-mirror">悲催的东北人已经不能自立自生了。//@上海老哥: //@一品…</a>
 </h2>
