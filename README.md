@@ -24,7 +24,7 @@
 </h2>
 <p>//@大汉民族007: 中国劳动人民，流血，牺牲打的天下，吃苦耐劳，团结一心搞开放建设，辛辛苦苦几十年建造的资产积累的财富就这样白白被强盗，卖国贼给掠夺，瓜分了。[怒][怒][泪]<br><br>RE: 过去农民在灾年把房子和土地抵押给地主，后来土地大规模兼并，农民饿死流亡，再后来就是周期率……厉以宁是多么迫不及待要灭亡这个国家啊……<br><img src="http://ww2.sinaimg.cn/large/b6ddfe6djw1f1tbxwo3nsj20gz0m8zmi.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3952188181175034" target="freeweibo-mirror">//@珠海半夏:转发微博</a>
 </h2>
@@ -42,7 +42,7 @@
 </h2>
 <p>//@徐承伦blog:这十二国好个胆大妄为，怎不记我天朝曾同时向十几国宣战之鉴？！！！<br><br>RE: 凤凰首页有条新闻说：十二国发声明妄议中国人权。连这都敢妄议，纪委呢？</p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3952162805992690" target="freeweibo-mirror">后续呢？看过很多类似的都没下文了 //@tinyfool:/…</a>
 </h2>
