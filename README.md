@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3952117976598063" target="freeweibo-mirror">西方应该是说的英德，马克思的故乡。东方大概是日美吧。</a>
+</h2>
+<p>西方应该是说的英德，马克思的故乡。东方大概是日美吧。<br><br>RE: 【教育部长解释"西方价值观"教材不适合课堂】外媒记者问袁贵仁:“你去年说西方价值观教材不适合课堂,希望可以解释一下,西方价值观具体是指什么?马克思主义本身好像是西方的一个概念吧?”且看袁部长如何接招:http://t.cn/RGnPus7 微评:避免国人受西方价值观影响,当务之急是关闭国门!拒绝留学人员回国!</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3952116110764261" target="freeweibo-mirror">SPAM //@Ming_the_Great_大明:呵呵//…</a>
 </h2>
 <p>SPAM //@Ming_the_Great_大明:呵呵//@王周生:全世界都看到了，你好厉害！<br><br>RE: 散會！<br><img src="http://ww2.sinaimg.cn/large/539d77e6jw1f1t127qtrvj20zk0qo79m.jpg"></p>
@@ -120,7 +126,7 @@
 </h2>
 <p>//@高高高高先生丶:[弱][弱][弱] //@李军林导演:他妈的，这帮东西在台上嘻哈，简直是国耻，光天化日之下直播着呢，把十三亿人当什么了。<br><br>RE: 最不关心的一届两会，已经无耻到这种地步！ http://t.cn/RGmLjuK .</p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3951987504708020" target="freeweibo-mirror">//@刘忠世:更有无耻在后面。//@昆明律师许思龙: 无耻无…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3951985209922752" target="freeweibo-mirror">有胆大的。</a>
 </h2>
 <p>有胆大的。<br><br>RE: #静说两会# 在人大预算委员会的记者会上，上海的澎拜新闻记者提了一个问题：国家预算中是否包含了党的各项经费？具体多少？全国人大常委会预算工作委员会副主任刘修文坦诚“这有点难”。不过他承认：共产党的经费都不是靠党费，而是列入国家预算，但是还没公布。也就是说，党花的也是人民的钱，而不是...全文： http://m.weibo.cn/1288814951/3951966935843959...全文： http://m.weibo.cn/1288814951/3951966935843959...全文： http://m.weibo.cn/1288814951/3951966935843959<br><img src="http://ww4.sinaimg.cn/large/4cd1c167gw1f1ta8smuazj209g06hmxa.jpg"></p>
-<p>
-	<small> ============== 11小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3951978889200312" target="freeweibo-mirror">无耻</a>
-</h2>
-<p>无耻<br><br>RE: 最不关心的一届两会，已经无耻到这种地步！ http://t.cn/RGmLjuK .</p>
 <p>
 	<small> ============== 11小时前</small>
 </p>
