@@ -26,6 +26,12 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3952306980068057" target="freeweibo-mirror">//@仁者乐兽:转发微博。</a>
+</h2>
+<p>//@仁者乐兽:转发微博。<br><br>RE: 从外地调武警镇压老百姓，这些狗官。<br><img src="http://ww2.sinaimg.cn/large/88a42de7jw1f1u23jhcb2j20f00qomz8.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3952294795665180" target="freeweibo-mirror">//@天蝎黄世旭:不仅征税，还无度印钞，远胜于单纯征税。//…</a>
 </h2>
 <p>//@天蝎黄世旭:不仅征税，还无度印钞，远胜于单纯征税。//@吴学谦的微博://@雁塔小木屋4: //@的灵魂已走远: //@石讷06:转发微博<br><br>RE: 《大宪章》宣布了一个人类文明史上最重要的原则：未经允许，国王不得擅自征税。http://t.cn/RGm7Vym</p>
@@ -120,7 +126,7 @@
 </h2>
 <p>后续呢？看过很多类似的都没下文了 //@tinyfool://@jlijames:真的么？公然造假，欺骗政府？ //@王连军律师:凡是质疑政府违法的都不能说//@苏西坡V:这样的消费者具有律师潜质，应该抓起来。[哈哈]<br><br>RE: "这位北京车管所穿制服工作人员被美女[赞]反驳的哑口无言手足无措语无伦次，干的漂亮! " 我的秒拍作品,一起来看~[赞][赞]http://t.cn/RGmXSMM（使用#秒拍#录制）</p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3952157730518296" target="freeweibo-mirror">//@shayubin:被双规的统计局局长也是丫的学生[喵喵…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3952138516189620" target="freeweibo-mirror">凤凰首页有条新闻说：十二国发声明妄议中国人权。连这都敢妄议，…</a>
 </h2>
 <p>凤凰首页有条新闻说：十二国发声明妄议中国人权。连这都敢妄议，纪委呢？</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3952135760191480" target="freeweibo-mirror">SPAM 选票在哪？//@于建嵘:等待。 //@杨清林先生:…</a>
-</h2>
-<p>SPAM 选票在哪？//@于建嵘:等待。 //@杨清林先生:中国参加选举的人远超这个数字，但被选举人啥时候能不指定、有差额呢？这才是大家真正需要的！</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
