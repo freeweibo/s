@@ -36,7 +36,7 @@
 </h2>
 <p>//@东海平民:[围观] //@央媒新闻评论:陆昊！[挖鼻]//@汉大赋2013:狗官上期下压，作恶多端。通钢事件所在省省委书记王珉就是你的前身！[怒]//@勇敢的春之声2015: 转发微博<br><br>RE: 【今天的朋友圈很沉重】黑龙江双鸭山工人讨薪 http://t.cn/RGmn8K5<br><img src="http://ww1.sinaimg.cn/large/742373c7jw1f1uaic5xhhj20c80gbq4v.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3952296255205513" target="freeweibo-mirror">//@宏鑫88: //@徐昕://@焌熙: //@昕静自然好…</a>
 </h2>
@@ -96,7 +96,7 @@
 </h2>
 <p>SPAM 今天推送的东西出现失误，把 “清世宗” 写成了 “清高宗” ，实在是不能忍，可是没法修改，实在要把人憋哭了。在此感谢多位朋友指出错误，蟆蟆哒！<br><img src="http://ww3.sinaimg.cn/large/aacb6d3agw1f1u3uuybrfj2076076dga.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3952217751241512" target="freeweibo-mirror">请大家关注黑龙江双鸭市工人讨薪#双鸭山市工人讨薪##中国微力…</a>
 </h2>
@@ -108,13 +108,13 @@
 </h2>
 <p>从外地调武警镇压老百姓，这些狗官。<br><img src="http://ww2.sinaimg.cn/large/88a42de7jw1f1u23jhcb2j20f00qomz8.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3952195198758751" target="freeweibo-mirror">//@大汉民族007: 中国劳动人民，流血，牺牲打的天下，吃…</a>
 </h2>
 <p>//@大汉民族007: 中国劳动人民，流血，牺牲打的天下，吃苦耐劳，团结一心搞开放建设，辛辛苦苦几十年建造的资产积累的财富就这样白白被强盗，卖国贼给掠夺，瓜分了。[怒][怒][泪]<br><br>RE: 过去农民在灾年把房子和土地抵押给地主，后来土地大规模兼并，农民饿死流亡，再后来就是周期率……厉以宁是多么迫不及待要灭亡这个国家啊……<br><img src="http://ww2.sinaimg.cn/large/b6ddfe6djw1f1tbxwo3nsj20gz0m8zmi.jpg"></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3952188181175034" target="freeweibo-mirror">//@珠海半夏:转发微博</a>
 </h2>
@@ -132,7 +132,7 @@
 </h2>
 <p>//@徐承伦blog:这十二国好个胆大妄为，怎不记我天朝曾同时向十几国宣战之鉴？！！！<br><br>RE: 凤凰首页有条新闻说：十二国发声明妄议中国人权。连这都敢妄议，纪委呢？</p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3952162805992690" target="freeweibo-mirror">后续呢？看过很多类似的都没下文了 //@tinyfool:/…</a>
 </h2>
