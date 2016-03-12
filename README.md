@@ -84,7 +84,7 @@
 </h2>
 <p>凤凰首页有条新闻说：十二国发声明妄议中国人权。连这都敢妄议，纪委呢？</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3952135760191480" target="freeweibo-mirror">SPAM 选票在哪？//@于建嵘:等待。 //@杨清林先生:…</a>
 </h2>
