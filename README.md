@@ -36,13 +36,13 @@
 </h2>
 <p>SPAM 今天推送的东西出现失误，把 “清世宗” 写成了 “清高宗” ，实在是不能忍，可是没法修改，实在要把人憋哭了。在此感谢多位朋友指出错误，蟆蟆哒！<br><img src="http://ww3.sinaimg.cn/large/aacb6d3agw1f1u3uuybrfj2076076dga.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3952195198758751" target="freeweibo-mirror">//@大汉民族007: 中国劳动人民，流血，牺牲打的天下，吃…</a>
 </h2>
 <p>//@大汉民族007: 中国劳动人民，流血，牺牲打的天下，吃苦耐劳，团结一心搞开放建设，辛辛苦苦几十年建造的资产积累的财富就这样白白被强盗，卖国贼给掠夺，瓜分了。[怒][怒][泪]<br><br>RE: 过去农民在灾年把房子和土地抵押给地主，后来土地大规模兼并，农民饿死流亡，再后来就是周期率……厉以宁是多么迫不及待要灭亡这个国家啊……<br><img src="http://ww2.sinaimg.cn/large/b6ddfe6djw1f1tbxwo3nsj20gz0m8zmi.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3952188181175034" target="freeweibo-mirror">//@珠海半夏:转发微博</a>
 </h2>
@@ -60,7 +60,7 @@
 </h2>
 <p>//@徐承伦blog:这十二国好个胆大妄为，怎不记我天朝曾同时向十几国宣战之鉴？！！！<br><br>RE: 凤凰首页有条新闻说：十二国发声明妄议中国人权。连这都敢妄议，纪委呢？</p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3952162805992690" target="freeweibo-mirror">后续呢？看过很多类似的都没下文了 //@tinyfool:/…</a>
 </h2>
