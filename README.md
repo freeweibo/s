@@ -84,7 +84,7 @@
 </h2>
 <p>SPAM //@Ming_the_Great_大明:呵呵//@王周生:全世界都看到了，你好厉害！<br><br>RE: 散會！<br><img src="http://ww2.sinaimg.cn/large/539d77e6jw1f1t127qtrvj20zk0qo79m.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3952112163293072" target="freeweibo-mirror">文章好像煽情有余而理性不足。 //@卜安淳:呵呵～//@sy…</a>
 </h2>
