@@ -72,13 +72,19 @@
 </h2>
 <p>#吐槽曝料# 欠债还钱，天经地义！干万不能光打雷不下雨！#双鸭山市工人讨薪# http://t.cn/RGmn8K5 .</p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3952225011597422" target="freeweibo-mirror">SPAM 今天推送的东西出现失误，把 “清世宗” 写成了 “…</a>
 </h2>
 <p>SPAM 今天推送的东西出现失误，把 “清世宗” 写成了 “清高宗” ，实在是不能忍，可是没法修改，实在要把人憋哭了。在此感谢多位朋友指出错误，蟆蟆哒！<br><img src="http://ww3.sinaimg.cn/large/aacb6d3agw1f1u3uuybrfj2076076dga.jpg"></p>
 <p>
 	<small> ============== 7小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3952209580233310" target="freeweibo-mirror">从外地调武警镇压老百姓，这些狗官。</a>
+</h2>
+<p>从外地调武警镇压老百姓，这些狗官。<br><img src="http://ww2.sinaimg.cn/large/88a42de7jw1f1u23jhcb2j20f00qomz8.jpg"></p>
+<p>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3952195198758751" target="freeweibo-mirror">//@大汉民族007: 中国劳动人民，流血，牺牲打的天下，吃…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3952123328576260" target="freeweibo-mirror">//@夙生律师事务所: //@手机用户1649219402:…</a>
 </h2>
 <p>//@夙生律师事务所: //@手机用户1649219402://@律师文摘://@姚尜尜: //@神鸟sun://@魂皈莲花生: [围观]<br><br>RE: 【98万中国青年人葬在朝鲜战场】1950年秋，林彪当年称病拒绝入朝时曾判断：美国无意侵略中国，否则三年内战中早已介入。朝鲜战争的结果是中国倾举国之力以死伤两百万人的惨痛代价保住了金家的邪恶政权，卫护了苏俄，孤立了自己。给北朝鲜人留下苦难的六十年，对不起纯朴的北朝鲜人民，遗祸人类。？<br><img src="http://ww4.sinaimg.cn/large/006iV3xDgw1f1t7bjci12j30c80n1goo.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3952117976598063" target="freeweibo-mirror">西方应该是说的英德，马克思的故乡。东方大概是日美吧。</a>
-</h2>
-<p>西方应该是说的英德，马克思的故乡。东方大概是日美吧。<br><br>RE: 【教育部长解释"西方价值观"教材不适合课堂】外媒记者问袁贵仁:“你去年说西方价值观教材不适合课堂,希望可以解释一下,西方价值观具体是指什么?马克思主义本身好像是西方的一个概念吧?”且看袁部长如何接招:http://t.cn/RGnPus7 微评:避免国人受西方价值观影响,当务之急是关闭国门!拒绝留学人员回国!</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
