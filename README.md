@@ -24,7 +24,7 @@
 </h2>
 <p>//@徐承伦blog:这十二国好个胆大妄为，怎不记我天朝曾同时向十几国宣战之鉴？！！！<br><br>RE: 凤凰首页有条新闻说：十二国发声明妄议中国人权。连这都敢妄议，纪委呢？</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3952157730518296" target="freeweibo-mirror">//@shayubin:被双规的统计局局长也是丫的学生[喵喵…</a>
 </h2>
