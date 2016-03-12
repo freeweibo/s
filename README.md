@@ -32,6 +32,12 @@
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3952225011597422" target="freeweibo-mirror">SPAM 今天推送的东西出现失误，把 “清世宗” 写成了 “…</a>
+</h2>
+<p>SPAM 今天推送的东西出现失误，把 “清世宗” 写成了 “清高宗” ，实在是不能忍，可是没法修改，实在要把人憋哭了。在此感谢多位朋友指出错误，蟆蟆哒！<br><img src="http://ww3.sinaimg.cn/large/aacb6d3agw1f1u3uuybrfj2076076dga.jpg"></p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3952195198758751" target="freeweibo-mirror">//@大汉民族007: 中国劳动人民，流血，牺牲打的天下，吃…</a>
 </h2>
 <p>//@大汉民族007: 中国劳动人民，流血，牺牲打的天下，吃苦耐劳，团结一心搞开放建设，辛辛苦苦几十年建造的资产积累的财富就这样白白被强盗，卖国贼给掠夺，瓜分了。[怒][怒][泪]<br><br>RE: 过去农民在灾年把房子和土地抵押给地主，后来土地大规模兼并，农民饿死流亡，再后来就是周期率……厉以宁是多么迫不及待要灭亡这个国家啊……<br><img src="http://ww2.sinaimg.cn/large/b6ddfe6djw1f1tbxwo3nsj20gz0m8zmi.jpg"></p>
@@ -60,7 +66,7 @@
 </h2>
 <p>后续呢？看过很多类似的都没下文了 //@tinyfool://@jlijames:真的么？公然造假，欺骗政府？ //@王连军律师:凡是质疑政府违法的都不能说//@苏西坡V:这样的消费者具有律师潜质，应该抓起来。[哈哈]<br><br>RE: "这位北京车管所穿制服工作人员被美女[赞]反驳的哑口无言手足无措语无伦次，干的漂亮! " 我的秒拍作品,一起来看~[赞][赞]http://t.cn/RGmXSMM（使用#秒拍#录制）</p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3952157730518296" target="freeweibo-mirror">//@shayubin:被双规的统计局局长也是丫的学生[喵喵…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3951996933189786" target="freeweibo-mirror">这到底是要脸还是不要脸？ //@尹鸿: 泱泱大国 //@中一…</a>
 </h2>
 <p>这到底是要脸还是不要脸？ //@尹鸿: 泱泱大国 //@中一在线：谢谢各位嘉宾，谢谢！  //@刘柏柏：你要是不想让人问 干脆就别让人家说完···· //@司马平邦: 不可思议，匪夷所思。<br><br>RE: 最不关心的一届两会，已经无耻到这种地步！ http://t.cn/RGmLjuK .</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3951995570468201" target="freeweibo-mirror">能不删你帖就不错了！</a>
-</h2>
-<p>能不删你帖就不错了！<br><br>RE: 最不关心的一届两会，已经无耻到这种地步！ http://t.cn/RGmLjuK .</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
