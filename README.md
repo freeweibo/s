@@ -54,7 +54,7 @@
 </h2>
 <p>SPAM #北京提个醒儿#【遇到报警！[话筒]】@北京人发布：有一可疑人员或在京，请市民注意防范，如有线索及时举报。<br><img src="http://ww1.sinaimg.cn/large/63136032jw1f1ufhy4ljrj20qo0zkgow.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3952322612535102" target="freeweibo-mirror">SPAM 从来没有下过100斤的我跪拜[赞啊] 推荐闺蜜麦穗…</a>
 </h2>
@@ -98,6 +98,12 @@
 <p>
 	<small> ============== 5小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3952285015057609" target="freeweibo-mirror">双鸭山矿工讨薪场面（双鸭山中国煤都）现在改成人堵了 http…</a>
+</h2>
+<p>双鸭山矿工讨薪场面（双鸭山中国煤都）现在改成人堵了 http://t.cn/Rh07wfh http://t.cn/RGmFRgA .</p>
+<p>
+	<small> ============== 5小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3952284956289762" target="freeweibo-mirror">【今天的朋友圈很沉重】黑龙江双鸭山工人讨薪 http://t…</a>
 </h2>
 <p>【今天的朋友圈很沉重】黑龙江双鸭山工人讨薪 http://t.cn/RGmn8K5<br><img src="http://ww1.sinaimg.cn/large/742373c7jw1f1uaic5xhhj20c80gbq4v.jpg"></p>
@@ -133,12 +139,6 @@
 <p>【终于出名了】新华社对外部编辑周方！//@点子正: 新华社是每个国社记者像呵护眼睛一样的金字招牌，却不是呵呵的挡贱牌。[挖鼻]//@菉葭苍苍:[围观]<br><br>RE: 【周方印象】我向来在评论时候把个体与整体是分开的，不因为个人而一杆子扫了一大片。正如周方不代表国社更不代表媒体记者朋友们一样。我认为因为之前咱们讨论过一个热门话题#立场坚定斗志强# 的关系，所以最近有这么个人跳出来站队挺大炮。见仁见智，说事说理，随手搜“周方”，见识一下这是什么人。<br><img src="http://ww2.sinaimg.cn/large/79594e60gw1f1u6lznoeyj20k00zk46y.jpg"></p>
 <p>
 	<small> ============== 7小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3952249061958418" target="freeweibo-mirror">【周方印象】我向来在评论时候把个体与整体是分开的，不因为个人…</a>
-</h2>
-<p>【周方印象】我向来在评论时候把个体与整体是分开的，不因为个人而一杆子扫了一大片。正如周方不代表国社更不代表媒体记者朋友们一样。我认为因为之前咱们讨论过一个热门话题#立场坚定斗志强# 的关系，所以最近有这么个人跳出来站队挺大炮。见仁见智，说事说理，随手搜“周方”，见识一下这是什么人。<br><img src="http://ww2.sinaimg.cn/large/79594e60gw1f1u6lznoeyj20k00zk46y.jpg"></p>
-<p>
-	<small> ============== 8小时前</small>
 </p>
 <table>
     <tr>
