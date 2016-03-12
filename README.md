@@ -72,7 +72,7 @@
 </h2>
 <p>//@凯雷:了解煤矿谎报，陆昊即时开会说明实情，提出解决方案//@点子正: [doge] //@韩东言:一、黑龙江召开龙煤工作会：1、尽力及时发放职工工资。2、不拖欠正在运行的煤矿井下职工工资，3、解决地面职工工资拖欠问题。4、批评情况报告不真实。 http://t.cn/RGu4eau<br><br>RE: 媒体说谎？省长说谎？老百姓说谎？<br><img src="http://ww1.sinaimg.cn/large/6fb87d17jw1f1u8x5q6jvj20k00zk0wl.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3952355601015762" target="freeweibo-mirror">//@李翔196811: //@wuqiang788://@…</a>
 </h2>
