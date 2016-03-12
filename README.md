@@ -54,7 +54,7 @@
 </h2>
 <p>//@东海平民:[围观] //@央媒新闻评论:陆昊！[挖鼻]//@汉大赋2013:狗官上期下压，作恶多端。通钢事件所在省省委书记王珉就是你的前身！[怒]//@勇敢的春之声2015: 转发微博<br><br>RE: 【今天的朋友圈很沉重】黑龙江双鸭山工人讨薪 http://t.cn/RGmn8K5<br><img src="http://ww1.sinaimg.cn/large/742373c7jw1f1uaic5xhhj20c80gbq4v.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3952296255205513" target="freeweibo-mirror">//@宏鑫88: //@徐昕://@焌熙: //@昕静自然好…</a>
 </h2>
@@ -78,7 +78,7 @@
 </h2>
 <p>【今天的朋友圈很沉重】黑龙江双鸭山工人讨薪 http://t.cn/RGmn8K5<br><img src="http://ww1.sinaimg.cn/large/742373c7jw1f1uaic5xhhj20c80gbq4v.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3952282275704521" target="freeweibo-mirror">//@中和老頭: 一个省长敢在国家殿堂公然说谎话，只有在这个…</a>
 </h2>
@@ -132,7 +132,7 @@
 </h2>
 <p>SPAM 今天推送的东西出现失误，把 “清世宗” 写成了 “清高宗” ，实在是不能忍，可是没法修改，实在要把人憋哭了。在此感谢多位朋友指出错误，蟆蟆哒！<br><img src="http://ww3.sinaimg.cn/large/aacb6d3agw1f1u3uuybrfj2076076dga.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3952217751241512" target="freeweibo-mirror">请大家关注黑龙江双鸭市工人讨薪#双鸭山市工人讨薪##中国微力…</a>
 </h2>
