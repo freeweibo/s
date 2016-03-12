@@ -24,7 +24,7 @@
 </h2>
 <p>SPAM 从来没有下过100斤的我跪拜[赞啊] 推荐闺蜜麦穗家的产品，瘦了20斤，完全没有感觉到副作用，[泪][泪]成功拯救了我的水桶腰，小粗腿[心][太开心]</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3952308854903474" target="freeweibo-mirror">双鸭山出什么事了？谁能证实？光这几张照片也有可能是钓鱼//@…</a>
 </h2>
@@ -36,7 +36,7 @@
 </h2>
 <p>//@仁者乐兽:转发微博。<br><br>RE: 从外地调武警镇压老百姓，这些狗官。<br><img src="http://ww2.sinaimg.cn/large/88a42de7jw1f1u23jhcb2j20f00qomz8.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3952300710373371" target="freeweibo-mirror">//@东海平民:[围观] //@央媒新闻评论:陆昊！[挖鼻]…</a>
 </h2>
@@ -65,6 +65,12 @@
 	<a href="https://freeweibo.com/weibo/3952284956289762" target="freeweibo-mirror">【今天的朋友圈很沉重】黑龙江双鸭山工人讨薪 http://t…</a>
 </h2>
 <p>【今天的朋友圈很沉重】黑龙江双鸭山工人讨薪 http://t.cn/RGmn8K5<br><img src="http://ww1.sinaimg.cn/large/742373c7jw1f1uaic5xhhj20c80gbq4v.jpg"></p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3952282275704521" target="freeweibo-mirror">//@中和老頭: 一个省长敢在国家殿堂公然说谎话，只有在这个…</a>
+</h2>
+<p>//@中和老頭: 一个省长敢在国家殿堂公然说谎话，只有在这个国家才能有这种省长！<br><br>RE: 都是黑龙江双鸭山煤矿工人讨要工资的画面，工人不是无理取闹的，他们是这个社会的最底层的人员，虽然他没有你们政府高官，公务员的显赫高贵，但在寒冷的冬季，是他们在千尺井下为我们的取暖提供着能源，现在可能你我都在温暖的屋子里，而他们却在瑟瑟的寒风里，讨要自己应该得到的薪酬！<br><img src="http://ww1.sinaimg.cn/large/c5075f35jw1f1u629eiejj20o10hsmz9.jpg"></p>
 <p>
 	<small> ============== 4小时前</small>
 </p><h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3952188181175034" target="freeweibo-mirror">//@珠海半夏:转发微博</a>
 </h2>
 <p>//@珠海半夏:转发微博<br><br>RE: 周方在这封公开信中以公民身份要求全面调查“打大V运动”的办案过程与经费使用情况，追究网络办、公安部、央视等部门有关责任人的刑事责任；全面调查“围攻任志强”事件，追究网络办、团中央网络部门、千龙网等有关部门负责人的刑事责任等问题。</p>
-<p>
-	<small> ============== 10小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3952186418938952" target="freeweibo-mirror">周方在这封公开信中以公民身份要求全面调查“打大V运动”的办案…</a>
-</h2>
-<p>周方在这封公开信中以公民身份要求全面调查“打大V运动”的办案过程与经费使用情况，追究网络办、公安部、央视等部门有关责任人的刑事责任；全面调查“围攻任志强”事件，追究网络办、团中央网络部门、千龙网等有关部门负责人的刑事责任等问题。</p>
 <p>
 	<small> ============== 10小时前</small>
 </p>
