@@ -80,6 +80,12 @@
 <p>
 	<small> ============== 7小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3952217751241512" target="freeweibo-mirror">请大家关注黑龙江双鸭市工人讨薪#双鸭山市工人讨薪##中国微力…</a>
+</h2>
+<p>请大家关注黑龙江双鸭市工人讨薪#双鸭山市工人讨薪##中国微力量#@周李城 @真话哥 @助人女郎 【如此生活三十年，直到大厦崩塌。云层深处的黑暗啊，淹没心底的景观】#杀死那个石家庄人[音乐]# http://t.cn/RGmn8K5 .</p>
+<p>
+	<small> ============== 8小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3952209580233310" target="freeweibo-mirror">从外地调武警镇压老百姓，这些狗官。</a>
 </h2>
 <p>从外地调武警镇压老百姓，这些狗官。<br><img src="http://ww2.sinaimg.cn/large/88a42de7jw1f1u23jhcb2j20f00qomz8.jpg"></p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3952135760191480" target="freeweibo-mirror">SPAM 选票在哪？//@于建嵘:等待。 //@杨清林先生:…</a>
 </h2>
 <p>SPAM 选票在哪？//@于建嵘:等待。 //@杨清林先生:中国参加选举的人远超这个数字，但被选举人啥时候能不指定、有差额呢？这才是大家真正需要的！</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3952123328576260" target="freeweibo-mirror">//@夙生律师事务所: //@手机用户1649219402:…</a>
-</h2>
-<p>//@夙生律师事务所: //@手机用户1649219402://@律师文摘://@姚尜尜: //@神鸟sun://@魂皈莲花生: [围观]<br><br>RE: 【98万中国青年人葬在朝鲜战场】1950年秋，林彪当年称病拒绝入朝时曾判断：美国无意侵略中国，否则三年内战中早已介入。朝鲜战争的结果是中国倾举国之力以死伤两百万人的惨痛代价保住了金家的邪恶政权，卫护了苏俄，孤立了自己。给北朝鲜人留下苦难的六十年，对不起纯朴的北朝鲜人民，遗祸人类。？<br><img src="http://ww4.sinaimg.cn/large/006iV3xDgw1f1t7bjci12j30c80n1goo.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
