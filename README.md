@@ -114,7 +114,7 @@
 </h2>
 <p>红喇叭报道：请大家欣赏红歌《东方升起了红太阳》 http://t.cn/R2W6Ldo http://t.cn/RG3zKcT .</p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3952677652487659" target="freeweibo-mirror">SPAM //@鹰隼N1A晏欢: [good][给力]//@…</a>
 </h2>
