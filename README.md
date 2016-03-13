@@ -108,7 +108,7 @@
 </h2>
 <p>SPAM 黑龙江省长你出事了。<br><img src="http://ww2.sinaimg.cn/large/a1433ab8jw1f1uyxdtbn5j20c806waay.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3952486803051088" target="freeweibo-mirror">一层骗一层，假话空话废话盛行，最后会害了大家的。</a>
 </h2>
