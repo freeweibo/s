@@ -102,7 +102,7 @@
 </h2>
 <p>SPAM //@南人梦: 用错地方了，不就是倒个水嘛，自己去倒不行吗？ //@沙河de渔夫:必须滴<br><br>RE: 同样是严谨，德国用在制造业上，中国用在开会上。<br><img src="http://ww4.sinaimg.cn/large/bc36346bgw1f1vi2bk2ffj20c80vumzk.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3952670677380753" target="freeweibo-mirror">这几天看两会，习近平多次讲话，开口就是邓小平理论，三个代表，…</a>
 </h2>
