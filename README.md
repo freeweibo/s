@@ -36,7 +36,7 @@
 </h2>
 <p>//@实践论a:转发微博<br><br>RE: 红喇叭报道：请大家欣赏红歌《东方升起了红太阳》 http://t.cn/R2W6Ldo http://t.cn/RG3zKcT .</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3952707855277062" target="freeweibo-mirror">//@广州湾在线://@读书比较少://@网易1200多个头…</a>
 </h2>
@@ -120,7 +120,7 @@
 </h2>
 <p>這是不是真的無所謂，關鍵是很多人包括我相信中共能幹出這種事！<br><img src="http://ww4.sinaimg.cn/large/006lYZh5gw1f1vid9joz4j30qo1bf12h.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3952662683082945" target="freeweibo-mirror">同样是严谨，德国用在制造业上，中国用在开会上。</a>
 </h2>
