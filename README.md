@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3952712964604677" target="freeweibo-mirror">//@峰顶浪间://@用户3829915711://@红旗-…</a>
+</h2>
+<p>//@峰顶浪间://@用户3829915711://@红旗--兽医老兵: //@4671ushpuhua_a: //@红旗--兽医老兵://@评水论茶V: //@Osaka崎://@红旗--兽医老兵: 作为毛泽东思想的信仰者对习近平很失望//@阿斯道客: 倭人邓走资派余孽及走狗早已全面复辟！毛泽东思想早不是特色指导思想了</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3952709730808158" target="freeweibo-mirror">//@实践论a:转发微博</a>
 </h2>
 <p>//@实践论a:转发微博<br><br>RE: 红喇叭报道：请大家欣赏红歌《东方升起了红太阳》 http://t.cn/R2W6Ldo http://t.cn/RG3zKcT .</p>
@@ -48,7 +54,7 @@
 </h2>
 <p>//@夙生律师事务所://@品雨听风: 双鸭山事件被微博曝光，由此可以看出，黑龙江省的官场，应该是腐败透顶了吧！公然说谎的官员还好意思继续做人民的公仆？引咎辞职吧！<br><br>RE: 封疆大吏，公然撒谎，事败推诿责任，且将处分留给“再次”，这是一种什么样的权力？</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3952693783725207" target="freeweibo-mirror">SPAM //@婚恋哲学: 果然是个靠谱的逗B～</a>
 </h2>
@@ -90,7 +96,7 @@
 </h2>
 <p>//@陶然万柳世界: //@山高路远N://@雾瓜的世界://@一根芦苇20160117</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3952662683082945" target="freeweibo-mirror">同样是严谨，德国用在制造业上，中国用在开会上。</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3952626279699616" target="freeweibo-mirror">SPAM //@B2B2C研究: [哈哈]//@封神祭二十叔…</a>
 </h2>
 <p>SPAM //@B2B2C研究: [哈哈]//@封神祭二十叔: //@乌托国民16://@梦之尚02-Cecilia:[哈哈]<br><br>RE: 腊耄獸起身去双鸭山了！<br><img src="http://ww2.sinaimg.cn/large/006neGA6gw1f1vd952aa0j30c80hjq3w.jpg"></p>
-<p>
-	<small> ============== 7小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3952626217274367" target="freeweibo-mirror">SPAM [哈哈]//@玉可因心://@福山福园://@B2…</a>
-</h2>
-<p>SPAM [哈哈]//@玉可因心://@福山福园://@B2B2C研究:[哈哈]//@封神祭二十叔: //@乌托国民16://@梦之尚02-Cecilia:[哈哈]<br><br>RE: 腊耄獸起身去双鸭山了！<br><img src="http://ww2.sinaimg.cn/large/006neGA6gw1f1vd952aa0j30c80hjq3w.jpg"></p>
 <p>
 	<small> ============== 7小时前</small>
 </p>
