@@ -116,6 +116,12 @@
 <p>
 	<small> ============== 5小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3952664821181716" target="freeweibo-mirror">這是不是真的無所謂，關鍵是很多人包括我相信中共能幹出這種事！</a>
+</h2>
+<p>這是不是真的無所謂，關鍵是很多人包括我相信中共能幹出這種事！<br><img src="http://ww4.sinaimg.cn/large/006lYZh5gw1f1vid9joz4j30qo1bf12h.jpg"></p>
+<p>
+	<small> ============== 5小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3952662683082945" target="freeweibo-mirror">同样是严谨，德国用在制造业上，中国用在开会上。</a>
 </h2>
 <p>同样是严谨，德国用在制造业上，中国用在开会上。<br><img src="http://ww4.sinaimg.cn/large/bc36346bgw1f1vi2bk2ffj20c80vumzk.jpg"></p>
@@ -133,12 +139,6 @@
 <p>//@宏鑫88: //@苏州常熟徐文石://@Laughing1924: //@明觉其事:<br><br>RE: 分享视频：双鸭山矿工讨薪场面 http://t.cn/Rh07wfh 黑龙江省长对记者说没有拖欠工人一分钱，工人吃不上饭了！消息被封锁出不去，现在已经有人被抓被打，求扩散！ http://t.cn/RGmFRgA</p>
 <p>
 	<small> ============== 6小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3952635167743583" target="freeweibo-mirror">3月7日，2013年曾公开举报中宣部高官参与“人奶宴”的新华…</a>
-</h2>
-<p>3月7日，2013年曾公开举报中宣部高官参与“人奶宴”的新华社记者周方，在微博实名发表公开信，控告网络主管部门长期存在滥用公权、侵犯人权等违宪行为，给社会造成极大的思想混乱和舆论误导，并将给国家和民族带来灾难性结果。</p>
-<p>
-	<small> ============== 7小时前</small>
 </p>
 <table>
     <tr>
