@@ -24,7 +24,7 @@
 </h2>
 <p>SPAM //@浴过天情://@镜中自我B: [吃惊]//@麻辣锅的Dad: //@吳記炭烤:國際記者聯盟ICIJ今年也曝光包含李小琳在內全球66個名人的瑞士銀行帳戶，舉世矚目。<br><br>RE: 中国离岸金融解密,披露中国精英的海外资产 By Marina Walker Guevara, Gerard Ryle, Alexa Olesen, Mar Cabra, Michael Hudson and Christoph Giesen January 21, 2014, 4:00 pm 调查中的重要发现有 资料显... http://t.cn/RGuPiJz</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3952735537758805" target="freeweibo-mirror">//@猫胡子003://@薄伽梵歌65://@_____独行…</a>
 </h2>
@@ -126,7 +126,7 @@
 </h2>
 <p>SPAM 女孩想要的爱情就是一颗真心，一生一世，别无其他！</p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3952671675181448" target="freeweibo-mirror">SPAM //@南人梦: 用错地方了，不就是倒个水嘛，自己去…</a>
 </h2>
