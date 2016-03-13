@@ -78,7 +78,7 @@
 </h2>
 <p>好多消息不让转了？ //@徐付群:省长受假情报之害呀//@青岛老虎:这种省长赶紧撤职法办！还有当地领导<br><br>RE: 【地下与地上】你这样整让省长多被动啊！省长也是假报告受害者。当年地下党冒生命危险也要搞到真情报。现在成地上党了，有人却想方设法不上报真情况。（#“我与殡葬改革”有奖征文#）<br><img src="http://ww4.sinaimg.cn/large/791ae3d5jw1f1uuhmgzkaj20ez0ib403.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3952463696583194" target="freeweibo-mirror">SPAM //@荷兰通讯: 压力锅中的压力山大//@记者谈春…</a>
 </h2>
