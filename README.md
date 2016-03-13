@@ -48,13 +48,13 @@
 </h2>
 <p>特色党已经走到工农的对立面了</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3952705963535491" target="freeweibo-mirror">无语 //@喀喇昆仑--唐古拉:g进京城和李自成其实是一样的…</a>
 </h2>
 <p>无语 //@喀喇昆仑--唐古拉:g进京城和李自成其实是一样的，文革就是毛主席反对他们做李自成，要继续革命，要确保红色江山不变色。开国者及其子女反对文革再正常不过，文革就是针对他们的特权去的。<br><br>RE: 这样的卖国贼竟然不被犬决，你国必……完！ http://t.cn/RGuC1Dk .</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3952698246008332" target="freeweibo-mirror">//@夙生律师事务所://@品雨听风: 双鸭山事件被微博曝光…</a>
 </h2>
@@ -71,6 +71,12 @@
 	<a href="https://freeweibo.com/weibo/3952693783725207" target="freeweibo-mirror">SPAM //@婚恋哲学: 果然是个靠谱的逗B～</a>
 </h2>
 <p>SPAM //@婚恋哲学: 果然是个靠谱的逗B～</p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3952693200692232" target="freeweibo-mirror">据说此微博转发超过500就会被屏蔽[悲伤]</a>
+</h2>
+<p>据说此微博转发超过500就会被屏蔽[悲伤]<br><br>RE: Emily Ratajkowski的一组照片，尺度惊人！身材是真的又瘦又有料！约吗？[嘘][晕][羞嗒嗒]<br><img src="http://ww3.sinaimg.cn/large/70623bbbgw1f1u09b86nhj20go0m8ta1.jpg"></p>
 <p>
 	<small> ============== 4小时前</small>
 </p><h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3952654881549441" target="freeweibo-mirror">对头了。</a>
 </h2>
 <p>对头了。<br><img src="http://ww1.sinaimg.cn/large/7f22381cjw1f1vh8lqnaoj20gj09awfw.jpg"></p>
-<p>
-	<small> ============== 7小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3952646357965308" target="freeweibo-mirror">//@宏鑫88: //@苏州常熟徐文石://@Laughin…</a>
-</h2>
-<p>//@宏鑫88: //@苏州常熟徐文石://@Laughing1924: //@明觉其事:<br><br>RE: 分享视频：双鸭山矿工讨薪场面 http://t.cn/Rh07wfh 黑龙江省长对记者说没有拖欠工人一分钱，工人吃不上饭了！消息被封锁出不去，现在已经有人被抓被打，求扩散！ http://t.cn/RGmFRgA</p>
 <p>
 	<small> ============== 7小时前</small>
 </p>
