@@ -42,7 +42,7 @@
 </h2>
 <p>看看龙煤和双鸭山。//@东元马夫: 呵呵。</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3952458100818448" target="freeweibo-mirror">黑龙江省长陆昊承认煤矿欠钱，啪地扇了先前那些说不欠钱的家伙一…</a>
 </h2>
