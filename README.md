@@ -24,7 +24,7 @@
 </h2>
 <p>//@实践论a:转发微博<br><br>RE: 红喇叭报道：请大家欣赏红歌《东方升起了红太阳》 http://t.cn/R2W6Ldo http://t.cn/RG3zKcT .</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3952707855277062" target="freeweibo-mirror">//@广州湾在线://@读书比较少://@网易1200多个头…</a>
 </h2>
