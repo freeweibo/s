@@ -96,13 +96,13 @@
 </h2>
 <p>不要撒谎。虽然在这个国家，99%的谎言都没事，但是1%就可能致命 //@不沉默的大多数:说谎是硬伤。事情本身可能有各种复杂原因，但都解释不了有人不愿承认问题这事。<br><br>RE: 媒体说谎？省长说谎？老百姓说谎？<br><img src="http://ww1.sinaimg.cn/large/6fb87d17jw1f1u8x5q6jvj20k00zk0wl.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3952362143685490" target="freeweibo-mirror">//@司马平邦:不知道习总到黑龙江代表团时，是否有人向他反映…</a>
 </h2>
 <p>//@司马平邦:不知道习总到黑龙江代表团时，是否有人向他反映双鸭山市矿工为薪酬请愿的事件，兹事体大。</p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3952360445237052" target="freeweibo-mirror">黑龙江省省长的假话被微博的揭露已盖不住了，致使在京城开了电话…</a>
 </h2>
