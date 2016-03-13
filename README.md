@@ -26,6 +26,18 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3952735537758805" target="freeweibo-mirror">//@猫胡子003://@薄伽梵歌65://@_____独行…</a>
+</h2>
+<p>//@猫胡子003://@薄伽梵歌65://@_____独行客://@高先生0703://@忠殃政府://@王大鹏66://@千山的胡说:这是想干嘛？[怒]<br><br>RE: 黑龙江省双鸭山市把要工资的老百姓当成犯罪，难道讨要工资有错吗？公道自在人心，转发出去，让更多人知道，怎么这样欺压老百姓！@微博电视 @东方早报 @BTV李向显 @北京日报 @北京晨报 @思想聚焦 @北京朝阳 @大嘴韩乔生 @何炅 @新浪新闻客户端 @杨澜 @中国青年报陈小川<br><img src="http://ww4.sinaimg.cn/large/9ef7956bjw1f1vikskai6j20ci0m80v6.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3952724929874240" target="freeweibo-mirror">//@高先生0703://@忠殃政府://@王大鹏66://…</a>
+</h2>
+<p>//@高先生0703://@忠殃政府://@王大鹏66://@千山的胡说:这是想干嘛？[怒]<br><br>RE: 黑龙江省双鸭山市把要工资的老百姓当成犯罪，难道讨要工资有错吗？公道自在人心，转发出去，让更多人知道，怎么这样欺压老百姓！@微博电视 @东方早报 @BTV李向显 @北京日报 @北京晨报 @思想聚焦 @北京朝阳 @大嘴韩乔生 @何炅 @新浪新闻客户端 @杨澜 @中国青年报陈小川<br><img src="http://ww4.sinaimg.cn/large/9ef7956bjw1f1vikskai6j20ci0m80v6.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3952712964604677" target="freeweibo-mirror">//@峰顶浪间://@用户3829915711://@红旗-…</a>
 </h2>
 <p>//@峰顶浪间://@用户3829915711://@红旗--兽医老兵: //@4671ushpuhua_a: //@红旗--兽医老兵://@评水论茶V: //@Osaka崎://@红旗--兽医老兵: 作为毛泽东思想的信仰者对习近平很失望//@阿斯道客: 倭人邓走资派余孽及走狗早已全面复辟！毛泽东思想早不是特色指导思想了</p>
@@ -125,18 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3952668487170782" target="freeweibo-mirror">//@陶然万柳世界: //@山高路远N://@雾瓜的世界:/…</a>
 </h2>
 <p>//@陶然万柳世界: //@山高路远N://@雾瓜的世界://@一根芦苇20160117</p>
-<p>
-	<small> ============== 7小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3952664821181716" target="freeweibo-mirror">這是不是真的無所謂，關鍵是很多人包括我相信中共能幹出這種事！</a>
-</h2>
-<p>這是不是真的無所謂，關鍵是很多人包括我相信中共能幹出這種事！<br><img src="http://ww4.sinaimg.cn/large/006lYZh5gw1f1vid9joz4j30qo1bf12h.jpg"></p>
-<p>
-	<small> ============== 7小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3952662683082945" target="freeweibo-mirror">同样是严谨，德国用在制造业上，中国用在开会上。</a>
-</h2>
-<p>同样是严谨，德国用在制造业上，中国用在开会上。<br><img src="http://ww4.sinaimg.cn/large/bc36346bgw1f1vi2bk2ffj20c80vumzk.jpg"></p>
 <p>
 	<small> ============== 7小时前</small>
 </p>
