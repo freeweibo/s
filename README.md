@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3952749042778295" target="freeweibo-mirror">SPAM //@浴过天情://@镜中自我B: [吃惊]//@…</a>
+</h2>
+<p>SPAM //@浴过天情://@镜中自我B: [吃惊]//@麻辣锅的Dad: //@吳記炭烤:國際記者聯盟ICIJ今年也曝光包含李小琳在內全球66個名人的瑞士銀行帳戶，舉世矚目。<br><br>RE: 中国离岸金融解密,披露中国精英的海外资产 By Marina Walker Guevara, Gerard Ryle, Alexa Olesen, Mar Cabra, Michael Hudson and Christoph Giesen January 21, 2014, 4:00 pm 调查中的重要发现有 资料显... http://t.cn/RGuPiJz</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3952712964604677" target="freeweibo-mirror">//@峰顶浪间://@用户3829915711://@红旗-…</a>
 </h2>
 <p>//@峰顶浪间://@用户3829915711://@红旗--兽医老兵: //@4671ushpuhua_a: //@红旗--兽医老兵://@评水论茶V: //@Osaka崎://@红旗--兽医老兵: 作为毛泽东思想的信仰者对习近平很失望//@阿斯道客: 倭人邓走资派余孽及走狗早已全面复辟！毛泽东思想早不是特色指导思想了</p>
@@ -48,13 +54,13 @@
 </h2>
 <p>特色党已经走到工农的对立面了</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3952705963535491" target="freeweibo-mirror">无语 //@喀喇昆仑--唐古拉:g进京城和李自成其实是一样的…</a>
 </h2>
 <p>无语 //@喀喇昆仑--唐古拉:g进京城和李自成其实是一样的，文革就是毛主席反对他们做李自成，要继续革命，要确保红色江山不变色。开国者及其子女反对文革再正常不过，文革就是针对他们的特权去的。<br><br>RE: 这样的卖国贼竟然不被犬决，你国必……完！ http://t.cn/RGuC1Dk .</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3952698246008332" target="freeweibo-mirror">//@夙生律师事务所://@品雨听风: 双鸭山事件被微博曝光…</a>
 </h2>
@@ -133,12 +139,6 @@
 <p>同样是严谨，德国用在制造业上，中国用在开会上。<br><img src="http://ww4.sinaimg.cn/large/bc36346bgw1f1vi2bk2ffj20c80vumzk.jpg"></p>
 <p>
 	<small> ============== 7小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3952654881549441" target="freeweibo-mirror">对头了。</a>
-</h2>
-<p>对头了。<br><img src="http://ww1.sinaimg.cn/large/7f22381cjw1f1vh8lqnaoj20gj09awfw.jpg"></p>
-<p>
-	<small> ============== 8小时前</small>
 </p>
 <table>
     <tr>
