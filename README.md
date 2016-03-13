@@ -26,6 +26,12 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3952710330295736" target="freeweibo-mirror">//@汪俊廷5: //@转帖小王:[吃惊]@博海转评:[吃惊…</a>
+</h2>
+<p>//@汪俊廷5: //@转帖小王:[吃惊]@博海转评:[吃惊]@灰色的伞:@fanny7-788:[吃惊] //@一根笒:前段時間說軍隊漲薪就是鎮壓下崗工人，真的出兵了[怒][怒]//@笑-看风云: 是的，删了！！速度截图//@淡紫色de冰冰:这个也被删贴了吗？ //@一根笒:[吃惊][吃惊]/<br><br>RE: 這是不是真的無所謂，關鍵是很多人包括我相信中共能幹出這種事！<br><img src="http://ww4.sinaimg.cn/large/006lYZh5gw1f1vid9joz4j30qo1bf12h.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3952709730808158" target="freeweibo-mirror">//@实践论a:转发微博</a>
 </h2>
 <p>//@实践论a:转发微博<br><br>RE: 红喇叭报道：请大家欣赏红歌《东方升起了红太阳》 http://t.cn/R2W6Ldo http://t.cn/RG3zKcT .</p>
@@ -56,6 +62,12 @@
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3952697998989717" target="freeweibo-mirror">//@红小兵-屠倭灭美:无产阶级唯有遵循毛主席的教导，造反，…</a>
+</h2>
+<p>//@红小兵-屠倭灭美:无产阶级唯有遵循毛主席的教导，造反，造修正主义的反，重新夺回人民政权！//@红旗--兽医老兵: [ok][给力][话筒]//@红小兵-屠倭灭美: 对特修早就不抱任何希望了。//@极目青山依旧: //@红旗--兽医老兵://@娱乐民生路: //@评水论茶V://@Osaka崎://@红旗--兽医老兵: 作为毛泽东思想的</p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3952693783725207" target="freeweibo-mirror">SPAM //@婚恋哲学: 果然是个靠谱的逗B～</a>
 </h2>
 <p>SPAM //@婚恋哲学: 果然是个靠谱的逗B～</p>
@@ -72,7 +84,7 @@
 </h2>
 <p>红喇叭报道：请大家欣赏红歌《东方升起了红太阳》 http://t.cn/R2W6Ldo http://t.cn/RG3zKcT .</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3952677652487659" target="freeweibo-mirror">SPAM //@鹰隼N1A晏欢: [good][给力]//@…</a>
 </h2>
@@ -89,6 +101,12 @@
 	<a href="https://freeweibo.com/weibo/3952671675181448" target="freeweibo-mirror">SPAM //@南人梦: 用错地方了，不就是倒个水嘛，自己去…</a>
 </h2>
 <p>SPAM //@南人梦: 用错地方了，不就是倒个水嘛，自己去倒不行吗？ //@沙河de渔夫:必须滴<br><br>RE: 同样是严谨，德国用在制造业上，中国用在开会上。<br><img src="http://ww4.sinaimg.cn/large/bc36346bgw1f1vi2bk2ffj20c80vumzk.jpg"></p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3952670677380753" target="freeweibo-mirror">这几天看两会，习近平多次讲话，开口就是邓小平理论，三个代表，…</a>
+</h2>
+<p>这几天看两会，习近平多次讲话，开口就是邓小平理论，三个代表，科学发展观，中国梦。就是不谈毛泽东思想。似乎他们都比毛泽东伟大。</p>
 <p>
 	<small> ============== 4小时前</small>
 </p><h2>
@@ -119,24 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3952635167743583" target="freeweibo-mirror">3月7日，2013年曾公开举报中宣部高官参与“人奶宴”的新华…</a>
 </h2>
 <p>3月7日，2013年曾公开举报中宣部高官参与“人奶宴”的新华社记者周方，在微博实名发表公开信，控告网络主管部门长期存在滥用公权、侵犯人权等违宪行为，给社会造成极大的思想混乱和舆论误导，并将给国家和民族带来灾难性结果。</p>
-<p>
-	<small> ============== 7小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3952632248510818" target="freeweibo-mirror">//@谢靖波律师: //@张红兵律师_gdj: //@萧萧梧…</a>
-</h2>
-<p>//@谢靖波律师: //@张红兵律师_gdj: //@萧萧梧桐雨: //@斯韦爵:[话筒] //@石讷06:转发微博<br><br>RE: 我们矿工都快活不起了，合理合理讨薪有错吗？ http://t.cn/RGuJA9j .</p>
-<p>
-	<small> ============== 7小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3952630000874107" target="freeweibo-mirror">@陈恒博·阜新  //@北京大兴亦庄张憬民1:饿晕了！//@…</a>
-</h2>
-<p>@陈恒博·阜新  //@北京大兴亦庄张憬民1:饿晕了！//@北京七里渠毕正英://@刘二狗蛋://@70夜里://@一只博://@晒太阳过日子: //@黑暗里的烛光-智勇双全: 祖国的悲哀，百姓的悲剧//@用户欧阳素晓:转发微博<br><br>RE: 我们矿工都快活不起了，合理合理讨薪有错吗？ http://t.cn/RGuJA9j .</p>
-<p>
-	<small> ============== 7小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3952626279699616" target="freeweibo-mirror">SPAM //@B2B2C研究: [哈哈]//@封神祭二十叔…</a>
-</h2>
-<p>SPAM //@B2B2C研究: [哈哈]//@封神祭二十叔: //@乌托国民16://@梦之尚02-Cecilia:[哈哈]<br><br>RE: 腊耄獸起身去双鸭山了！<br><img src="http://ww2.sinaimg.cn/large/006neGA6gw1f1vd952aa0j30c80hjq3w.jpg"></p>
 <p>
 	<small> ============== 7小时前</small>
 </p>
