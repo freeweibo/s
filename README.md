@@ -96,7 +96,7 @@
 </h2>
 <p>一层骗一层，假话空话废话盛行，最后会害了大家的。<br><br>RE: 【地下与地上】你这样整让省长多被动啊！省长也是假报告受害者。当年地下党冒生命危险也要搞到真情报。现在成地上党了，有人却想方设法不上报真情况。（#“我与殡葬改革”有奖征文#）<br><img src="http://ww4.sinaimg.cn/large/791ae3d5jw1f1uuhmgzkaj20ez0ib403.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3952485645700298" target="freeweibo-mirror">//@男人2013A:假如是在战争时期，作为一个指挥员，自己…</a>
 </h2>
