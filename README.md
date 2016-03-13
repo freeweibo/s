@@ -30,7 +30,7 @@
 </h2>
 <p>//@男人2013A:假如是在战争时期，作为一个指挥员，自己的兵力不清楚，传令兵经常口误，结果你自己最清楚<br><br>RE: 【地下与地上】你这样整让省长多被动啊！省长也是假报告受害者。当年地下党冒生命危险也要搞到真情报。现在成地上党了，有人却想方设法不上报真情况。（#“我与殡葬改革”有奖征文#）<br><img src="http://ww4.sinaimg.cn/large/791ae3d5jw1f1uuhmgzkaj20ez0ib403.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3952484181543525" target="freeweibo-mirror">有人建议设立全国“讲真话日”，很有必要。//@XBLBW金龙…</a>
 </h2>
@@ -126,7 +126,7 @@
 </h2>
 <p>在庄严的人民大会堂，当着中外媒体的面，黑龙江的陆昊省长先是说不欠龙煤8万井下职工分文工资;事情闹大了，后来又说是下面报的信息错了，欠职工的钱。今后，大人们讲话是否可以严谨点？知道不，一个封疆大吏，即便是在皇权时代，谎报灾情，欺上瞒下，轻者丢乌纱帽，重者是要丢脑袋的。<br><img src="http://ww4.sinaimg.cn/large/005SvoAtgw1f1uqmcimmnj30ez0ibtaz.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3952419681466989" target="freeweibo-mirror">#对话#：【网友爆料：黑龙江双鸭山市】，3月12日发生，龙煤…</a>
 </h2>
