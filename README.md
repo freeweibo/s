@@ -108,7 +108,7 @@
 </h2>
 <p>这几天看两会，习近平多次讲话，开口就是邓小平理论，三个代表，科学发展观，中国梦。就是不谈毛泽东思想。似乎他们都比毛泽东伟大。</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3952668487170782" target="freeweibo-mirror">//@陶然万柳世界: //@山高路远N://@雾瓜的世界:/…</a>
 </h2>
@@ -132,7 +132,7 @@
 </h2>
 <p>对头了。<br><img src="http://ww1.sinaimg.cn/large/7f22381cjw1f1vh8lqnaoj20gj09awfw.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3952646357965308" target="freeweibo-mirror">//@宏鑫88: //@苏州常熟徐文石://@Laughin…</a>
 </h2>
