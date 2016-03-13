@@ -54,7 +54,7 @@
 </h2>
 <p>腊耄獸起身去双鸭山了！<br><img src="http://ww2.sinaimg.cn/large/006neGA6gw1f1vd952aa0j30c80hjq3w.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3952596895248253" target="freeweibo-mirror">呵呵呵</a>
 </h2>
@@ -84,7 +84,7 @@
 </h2>
 <p>工资从哪里来？从销售收入中来。企业产品销不出，何来钱发工资？靠银行贷款，只能维持短期。</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3952584207545221" target="freeweibo-mirror">//@尹国明:因减员增效成绩突出，98年5月，陆昊以北京制呢…</a>
 </h2>
