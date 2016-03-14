@@ -26,6 +26,18 @@
 <p>
 	<small> ============== 1小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3952836779853753" target="freeweibo-mirror">//@3任3志3强: //@刘二狗蛋: //@老豆不炒熟31…</a>
+</h2>
+<p>//@3任3志3强: //@刘二狗蛋: //@老豆不炒熟31://@湖北林春芬_Lz: //@平措多吉://@耕者XWG://@追唐-如东李忠://@西风rhythm:转发微博<br><br>RE: 2鸭山的事情完全可以预见，一部分人会被抓，被捕者绝大部分会被判刑，有些人可能会拿到部分工资然后不了了之，他们会假装忘记被捕者，他们私下里还会庆幸自己没有被抓，还拿到了部分工资。微薄啥也改变不了，转发啥也改变不了，希望不在西方，希望不在台港，希望不在龙江，希望只能在我们每个人肩上。<br><img src="http://ww3.sinaimg.cn/large/5efd767djw1f1vx0s2x7kj20dg09x3z5.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3952836225657915" target="freeweibo-mirror">//@Ray言耸听_: //@临沂陈光福2世:权利都是争取来…</a>
+</h2>
+<p>//@Ray言耸听_: //@临沂陈光福2世:权利都是争取来的，没有谁会给予！ //@刘二狗蛋://@老衲猛男666:每次看到类似帖子，老衲就想唱国歌，起来~[泪]<br><br>RE: 這次雙鴨山討薪事件，任人怎麼洗地都洗不乾淨的！誰洗地，別說你傻逼在做無用功，你他媽就是在助紂為虐！你們只知道政府難，企業難，你們有誰站在討薪者的角度想想，他們是最底層的人，幹著最累最危險的活，拿著原本就很廉價的報酬，你還欠他們微薄的工資達八九月之久，請問，你們他媽還是人不？<br><img src="http://ww4.sinaimg.cn/large/006lYZh5gw1f1w1lpc5ijj30hs0np0yn.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3952826013594801" target="freeweibo-mirror">SPAM //@阿宝背书的美好生活:亲爱的武警，你还真下的了…</a>
 </h2>
 <p>SPAM //@阿宝背书的美好生活:亲爱的武警，你还真下的了手，感谢你们的父母，生了你们这批为党的忠诚战士！福兮。 //@公民社会2017:[话筒] //@微暖初晴:唯有自己拯救自己！<br><br>RE: 關注！黑龍江雙鴨山30萬礦工討薪！ FB 圖 http://t.cn/RyhWfOl<br><img src="http://ww3.sinaimg.cn/large/d390bc98jw1f1vc685awqj20qo0k0dim.jpg"></p>
@@ -127,18 +139,6 @@
 <p>冤有头 债有主//@中华文化传人:还有这条幅?第一次！//@广州湾在线://@文理科2112://@刘二狗蛋://@曾家山-居士03://@老饕加佑://@放眼_://@反动派20://@九钻女王:转发微博<br><br>RE: 对头了。<br><img src="http://ww1.sinaimg.cn/large/7f22381cjw1f1vh8lqnaoj20gj09awfw.jpg"></p>
 <p>
 	<small> ============== 12小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3952684535243532" target="freeweibo-mirror">红喇叭报道：请大家欣赏红歌《东方升起了红太阳》 http:/…</a>
-</h2>
-<p>红喇叭报道：请大家欣赏红歌《东方升起了红太阳》 http://t.cn/R2W6Ldo http://t.cn/RG3zKcT .</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3952681871751860" target="freeweibo-mirror">这个要力挺，特别提到要查办围攻任志强的操控者！[给力][给力…</a>
-</h2>
-<p>这个要力挺，特别提到要查办围攻任志强的操控者！[给力][给力][给力]//@喷嚏网铂程://@鹰隼N1A晏欢: [good][给力]//@老夫乃布衣: [给力]支持!!<br><img src="http://ww1.sinaimg.cn/large/006k3Fnogw1f1vkcd25hxj30k00wfthd.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
 </p>
 <table>
     <tr>
