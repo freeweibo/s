@@ -32,6 +32,12 @@
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3953036147336717" target="freeweibo-mirror">我以为那是一片净土 //@凌虚铺子:很早以前，有一僧人说我是…</a>
+</h2>
+<p>我以为那是一片净土 //@凌虚铺子:很早以前，有一僧人说我是有些慧根的。这一下，彻底断了我出家的念想。[衰]<br><br>RE: 惊着我了。中共寺庙党委书记誓师大会？“做毛泽东的和尚，做邓小平的居士，紧密团结在习近平周围......” http://t.cn/RGZO9Mr</p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3953035405020743" target="freeweibo-mirror">一个不敢面对历史的民族，是没有前途的民族。我分享了@北京天则…</a>
 </h2>
 <p>一个不敢面对历史的民族，是没有前途的民族。我分享了@北京天则经济研究所 的文章 http://t.cn/RG30AgA</p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3952967817996801" target="freeweibo-mirror">记者会的游戏。</a>
 </h2>
 <p>记者会的游戏。<br><img src="http://ww2.sinaimg.cn/large/6362d8eagw1f1wh6sjbymj20bx0foq55.jpg"></p>
-<p>
-	<small> ============== 7小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3952962369954372" target="freeweibo-mirror">如果军"民"融合,是把私企骗说成民企的军工混合私改,即违宪反…</a>
-</h2>
-<p>如果军"民"融合,是把私企骗说成民企的军工混合私改,即违宪反共反工人反人类反民族军工私有化!就是危险的!也是帝国军国财阀党所要求的!评:【习近平:全面实施创新驱动发展战略 推进军民融合深度发展(新华社)】http://t.cn/RG3Nhzd  我分享了@中国李建军 的文章 http://t.cn/RGnZomM</p>
 <p>
 	<small> ============== 7小时前</small>
 </p>
