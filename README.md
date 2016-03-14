@@ -42,7 +42,7 @@
 </h2>
 <p>這次雙鴨山討薪事件，任人怎麼洗地都洗不乾淨的！誰洗地，別說你傻逼在做無用功，你他媽就是在助紂為虐！你們只知道政府難，企業難，你們有誰站在討薪者的角度想想，他們是最底層的人，幹著最累最危險的活，拿著原本就很廉價的報酬，你還欠他們微薄的工資達八九月之久，請問，你們他媽還是人不？<br><img src="http://ww4.sinaimg.cn/large/006lYZh5gw1f1w1lpc5ijj30hs0np0yn.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3952826013594801" target="freeweibo-mirror">SPAM //@阿宝背书的美好生活:亲爱的武警，你还真下的了…</a>
 </h2>
@@ -66,7 +66,7 @@
 </h2>
 <p>SPAM //@浴过天情://@镜中自我B: [吃惊]//@麻辣锅的Dad: //@吳記炭烤:國際記者聯盟ICIJ今年也曝光包含李小琳在內全球66個名人的瑞士銀行帳戶，舉世矚目。<br><br>RE: 中国离岸金融解密,披露中国精英的海外资产 By Marina Walker Guevara, Gerard Ryle, Alexa Olesen, Mar Cabra, Michael Hudson and Christoph Giesen January 21, 2014, 4:00 pm 调查中的重要发现有 资料显... http://t.cn/RGuPiJz</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3952735537758805" target="freeweibo-mirror">//@猫胡子003://@薄伽梵歌65://@_____独行…</a>
 </h2>
