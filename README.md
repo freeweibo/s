@@ -20,11 +20,17 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3952826013594801" target="freeweibo-mirror">SPAM //@阿宝背书的美好生活:亲爱的武警，你还真下的了…</a>
+</h2>
+<p>SPAM //@阿宝背书的美好生活:亲爱的武警，你还真下的了手，感谢你们的父母，生了你们这批为党的忠诚战士！福兮。 //@公民社会2017:[话筒] //@微暖初晴:唯有自己拯救自己！<br><br>RE: 關注！黑龍江雙鴨山30萬礦工討薪！ FB 圖 http://t.cn/RyhWfOl<br><img src="http://ww3.sinaimg.cn/large/d390bc98jw1f1vc685awqj20qo0k0dim.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3952796426484198" target="freeweibo-mirror">//@娃她爹-:必须严查，从@千钧客 开始查起！</a>
 </h2>
 <p>//@娃她爹-:必须严查，从@千钧客 开始查起！<br><br>RE: 这个要力挺，特别提到要查办围攻任志强的操控者！[给力][给力][给力]//@喷嚏网铂程://@鹰隼N1A晏欢: [good][给力]//@老夫乃布衣: [给力]支持!!<br><img src="http://ww1.sinaimg.cn/large/006k3Fnogw1f1vkcd25hxj30k00wfthd.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3952749042778295" target="freeweibo-mirror">SPAM //@浴过天情://@镜中自我B: [吃惊]//@…</a>
 </h2>
@@ -36,7 +42,7 @@
 </h2>
 <p>//@猫胡子003://@薄伽梵歌65://@_____独行客://@高先生0703://@忠殃政府://@王大鹏66://@千山的胡说:这是想干嘛？[怒]<br><br>RE: 黑龙江省双鸭山市把要工资的老百姓当成犯罪，难道讨要工资有错吗？公道自在人心，转发出去，让更多人知道，怎么这样欺压老百姓！@微博电视 @东方早报 @BTV李向显 @北京日报 @北京晨报 @思想聚焦 @北京朝阳 @大嘴韩乔生 @何炅 @新浪新闻客户端 @杨澜 @中国青年报陈小川<br><img src="http://ww4.sinaimg.cn/large/9ef7956bjw1f1vikskai6j20ci0m80v6.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3952727052815886" target="freeweibo-mirror">http://t.cn/RG3b9Vi</a>
 </h2>
@@ -78,13 +84,13 @@
 </h2>
 <p>特色党已经走到工农的对立面了</p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3952705963535491" target="freeweibo-mirror">无语 //@喀喇昆仑--唐古拉:g进京城和李自成其实是一样的…</a>
 </h2>
 <p>无语 //@喀喇昆仑--唐古拉:g进京城和李自成其实是一样的，文革就是毛主席反对他们做李自成，要继续革命，要确保红色江山不变色。开国者及其子女反对文革再正常不过，文革就是针对他们的特权去的。<br><br>RE: 这样的卖国贼竟然不被犬决，你国必……完！ http://t.cn/RGuC1Dk .</p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3952698246008332" target="freeweibo-mirror">//@夙生律师事务所://@品雨听风: 双鸭山事件被微博曝光…</a>
 </h2>
@@ -133,12 +139,6 @@
 <p>SPAM //@鹰隼N1A晏欢: [good][给力]//@老夫乃布衣: [给力]支持!!</p>
 <p>
 	<small> ============== 11小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3952673332110963" target="freeweibo-mirror">SPAM 女孩想要的爱情就是一颗真心，一生一世，别无其他！</a>
-</h2>
-<p>SPAM 女孩想要的爱情就是一颗真心，一生一世，别无其他！</p>
-<p>
-	<small> ============== 12小时前</small>
 </p>
 <table>
     <tr>
