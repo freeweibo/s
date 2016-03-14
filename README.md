@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3953006997403960" target="freeweibo-mirror">这样的错误，谁该负责？[微笑]</a>
+</h2>
+<p>这样的错误，谁该负责？[微笑]<br><img src="http://ww3.sinaimg.cn/large/52038d40gw1f1wloyyoydj20hs0m5ac4.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3953004606631576" target="freeweibo-mirror">那怎么为？ //@常州杨洪波://@松静悟求:南方都市报深圳…</a>
 </h2>
 <p>那怎么为？ //@常州杨洪波://@松静悟求:南方都市报深圳版//@王林的微博客:[哈哈]//@搜狐的莱克星顿: [哈哈]<br><br>RE: 诛心一下，新华社的那个用词看起来更像是有意为之的“错误，”“高”与“后”无论是五笔还是拼音，都不太可能出现替换错误吧。</p>
@@ -60,7 +66,7 @@
 </h2>
 <p>记者会的游戏。<br><img src="http://ww2.sinaimg.cn/large/6362d8eagw1f1wh6sjbymj20bx0foq55.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3952938865040954" target="freeweibo-mirror">//@朱庄虹007:“奉命”真要成为时代的符号？</a>
 </h2>
@@ -84,7 +90,7 @@
 </h2>
 <p>群众对反腐戏早没兴趣了，博主还在演？[偷笑]<br><br>RE: “奉命”是正义的代表！“奉命”是让腐败分子恐惧的代表！“奉命”为老百姓说实话的代表！“奉命”是一种强大的不可战胜的精神力量！只要人人充满“奉命”精神，人人都是“奉命”！即使你再封杀，也会有千千万万个“奉命”站起来与腐败分子抗争到底！<br><img src="http://ww3.sinaimg.cn/large/006pPjq0jw1f1viaquhhtj30540643yi.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3952918699039553" target="freeweibo-mirror">你问的太多了</a>
 </h2>
@@ -114,7 +120,7 @@
 </h2>
 <p>[哈哈] //@唐家三一爷:[哈哈] //@我犀利虎涂:他的档，难怪他lp[哈哈][哈哈]<br><br>RE: 最恶心的两类人：第一类，一群拿着中华人民共和国身份证的人，天天你国你国的喷中国，请问你国究竟是哪国？第二类，@高晓松 一个美国人，天天在中国装逼我党我党，请问你党究竟是哪个党？？？<br><img src="http://ww4.sinaimg.cn/large/eacedf04jw1f1w9sxsvfgj21pc0yi7wh.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3952903510913115" target="freeweibo-mirror">最恶心的两类人：第一类，一群拿着中华人民共和国身份证的人，天…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3952851824346333" target="freeweibo-mirror">SPAM [挖鼻] //@陈业文新大都:有点像@崔永元 的文…</a>
 </h2>
 <p>SPAM [挖鼻] //@陈业文新大都:有点像@崔永元 的文风。[偷笑]<br><br>RE: 当给你送一桶油，你就感激涕零，你是否想过，你为什么买不起一桶油？当给你报一点医疗费，你就感恩戴德，你是否想过，你为什么付不起医疗费？当有人开着豪车体察民情，你就高呼青天大老爷。你知道吗，人家的狗都比你吃的好！为什么会这样？ 因为你一直都跪着。最深重的奴役，在人的内心！转！</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3952836779853753" target="freeweibo-mirror">//@3任3志3强: //@刘二狗蛋: //@老豆不炒熟31…</a>
-</h2>
-<p>//@3任3志3强: //@刘二狗蛋: //@老豆不炒熟31://@湖北林春芬_Lz: //@平措多吉://@耕者XWG://@追唐-如东李忠://@西风rhythm:转发微博<br><br>RE: 2鸭山的事情完全可以预见，一部分人会被抓，被捕者绝大部分会被判刑，有些人可能会拿到部分工资然后不了了之，他们会假装忘记被捕者，他们私下里还会庆幸自己没有被抓，还拿到了部分工资。微薄啥也改变不了，转发啥也改变不了，希望不在西方，希望不在台港，希望不在龙江，希望只能在我们每个人肩上。<br><img src="http://ww3.sinaimg.cn/large/5efd767djw1f1vx0s2x7kj20dg09x3z5.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
