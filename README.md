@@ -132,7 +132,7 @@
 </h2>
 <p>SPAM [微笑] //@简直:[哈哈][笑cry]<br><br>RE: 记者会的游戏。<br><img src="http://ww2.sinaimg.cn/large/6362d8eagw1f1wh6sjbymj20bx0foq55.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3952982074623753" target="freeweibo-mirror">#正义呐喊# 据网友@长春太威武 爆料：通钢员工讨欠薪…?[…</a>
 </h2>
