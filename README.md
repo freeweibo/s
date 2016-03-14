@@ -36,13 +36,13 @@
 </h2>
 <p>一个不敢面对历史的民族，是没有前途的民族。我分享了@北京天则经济研究所 的文章 http://t.cn/RG30AgA</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3953035271133569" target="freeweibo-mirror">煤矿工人相当于枪林弹雨中卖命的老革命，他们的付出太多了，应该…</a>
 </h2>
 <p>煤矿工人相当于枪林弹雨中卖命的老革命，他们的付出太多了，应该受到优厚保障，不可为了照顾资本的利益或者贪官的利益而牺牲掉煤矿工人的利益。<br><br>RE: 这个就必须要转了！见一地转一次！[good]星星之火，可以燎原！<br><img src="http://ww2.sinaimg.cn/large/b4385310jw1f1wbb010puj20o10hs0ul.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3953033345935710" target="freeweibo-mirror">上海浦东有，是爷爷或伯父，没搞清。//@何兵: 回复@XCC…</a>
 </h2>
@@ -72,7 +72,7 @@
 </h2>
 <p>SPAM //@秦岭二月: [吃惊]#探索发现#<br><br>RE: #正义呐喊# 据网友@长春太威武 爆料：通钢员工讨欠薪…?[思考]求真相[围观]<br><img src="http://ww4.sinaimg.cn/large/e5313595jw1f1wipdvrbij20qo0k0q7l.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3953004606631576" target="freeweibo-mirror">那怎么为？ //@常州杨洪波://@松静悟求:南方都市报深圳…</a>
 </h2>
