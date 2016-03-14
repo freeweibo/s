@@ -62,6 +62,12 @@
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3953029905918780" target="freeweibo-mirror">寺院是个名利场[生病]//@石讷06: 终有一日，和尚称还俗…</a>
+</h2>
+<p>寺院是个名利场[生病]//@石讷06: 终有一日，和尚称还俗叫出家。[哈哈]//@凌虚铺子: 很早以前，有一僧人说我是有些慧根的。这一下，彻底断了我出家的念想。[衰]<br><br>RE: 惊着我了。中共寺庙党委书记誓师大会？“做毛泽东的和尚，做邓小平的居士，紧密团结在习近平周围......” http://t.cn/RGZO9Mr</p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3953012429050615" target="freeweibo-mirror">@胤佚胤佚:@冰冻3千尺: 铁道部拆了卖，国防科技也拆了卖[…</a>
 </h2>
 <p>@胤佚胤佚:@冰冻3千尺: 铁道部拆了卖，国防科技也拆了卖[怒]！啥时候把特色贼的海外资产晒出来卖？回@红尘踏落英: 特色私改贼其实就是狗卵子！回@冰冻3千尺: 特色私改贼想卖的，挡不住！它们在逼工农兵杀死它们！  http://t.cn/RG1AkAH<br><br>RE: 如果军"民"融合,是把私企骗说成民企的军工混合私改,即违宪反共反工人反人类反民族军工私有化!就是危险的!也是帝国军国财阀党所要求的!评:【习近平:全面实施创新驱动发展战略 推进军民融合深度发展(新华社)】http://t.cn/RG3Nhzd  我分享了@中国李建军 的文章 http://t.cn/RGnZomM</p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3952974248731280" target="freeweibo-mirror">深海同志把暗号丢了//@周迪伦:哈哈，一本正经地磨洋工。</a>
 </h2>
 <p>深海同志把暗号丢了//@周迪伦:哈哈，一本正经地磨洋工。<br><br>RE: 美女，领导还没说让你脱呢[哈哈][哈哈][哈哈]<br><img src="http://ww4.sinaimg.cn/large/73b54915gw1f1wcjqd9p4j20jz0zkn28.jpg"></p>
-<p>
-	<small> ============== 7小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3952967817996801" target="freeweibo-mirror">记者会的游戏。</a>
-</h2>
-<p>记者会的游戏。<br><img src="http://ww2.sinaimg.cn/large/6362d8eagw1f1wh6sjbymj20bx0foq55.jpg"></p>
 <p>
 	<small> ============== 7小时前</small>
 </p>
