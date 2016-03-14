@@ -30,11 +30,17 @@
 </h2>
 <p>一个不敢面对历史的民族，是没有前途的民族。我分享了@北京天则经济研究所 的文章 http://t.cn/RG30AgA</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3953033345935710" target="freeweibo-mirror">上海浦东有，是爷爷或伯父，没搞清。//@何兵: 回复@XCC…</a>
 </h2>
 <p>上海浦东有，是爷爷或伯父，没搞清。//@何兵: 回复@XCCHA:[泪]//@XCCHA:这不跟叫村头“二狗”一样显得亲切呗</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3953031575442011" target="freeweibo-mirror">吾国吾民 http://t.cn/RG30AgA</a>
+</h2>
+<p>吾国吾民 http://t.cn/RG30AgA</p>
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
@@ -54,7 +60,7 @@
 </h2>
 <p>SPAM //@秦岭二月: [吃惊]#探索发现#<br><br>RE: #正义呐喊# 据网友@长春太威武 爆料：通钢员工讨欠薪…?[思考]求真相[围观]<br><img src="http://ww4.sinaimg.cn/large/e5313595jw1f1wipdvrbij20qo0k0q7l.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3953004606631576" target="freeweibo-mirror">那怎么为？ //@常州杨洪波://@松静悟求:南方都市报深圳…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3952927842118082" target="freeweibo-mirror">美女，领导还没说让你脱呢[哈哈][哈哈][哈哈]</a>
 </h2>
 <p>美女，领导还没说让你脱呢[哈哈][哈哈][哈哈]<br><img src="http://ww4.sinaimg.cn/large/73b54915gw1f1wcjqd9p4j20jz0zkn28.jpg"></p>
-<p>
-	<small> ============== 9小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3952924562381003" target="freeweibo-mirror">秀恩爱秀出了第三者</a>
-</h2>
-<p>秀恩爱秀出了第三者<br><br>RE: 【省长自摆“乌龙”的背后隐藏着什么】陆昊省长只有正面如实回应公众疑问，才有可能挽回自摆“乌龙”事件丢失的公信力。倘若继续对“龙煤事件”的真实内幕进行遮掩，对公众批评的声音进行“疯狂删帖”，那陆昊省长就大错特错、错上加错了。 http://t.cn/RG30CoM</p>
 <p>
 	<small> ============== 9小时前</small>
 </p>
