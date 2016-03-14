@@ -20,6 +20,18 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3953035405020743" target="freeweibo-mirror">一个不敢面对历史的民族，是没有前途的民族。我分享了@北京天则…</a>
+</h2>
+<p>一个不敢面对历史的民族，是没有前途的民族。我分享了@北京天则经济研究所 的文章 http://t.cn/RG30AgA</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3953033345935710" target="freeweibo-mirror">上海浦东有，是爷爷或伯父，没搞清。//@何兵: 回复@XCC…</a>
+</h2>
+<p>上海浦东有，是爷爷或伯父，没搞清。//@何兵: 回复@XCCHA:[泪]//@XCCHA:这不跟叫村头“二狗”一样显得亲切呗</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3953012429050615" target="freeweibo-mirror">@胤佚胤佚:@冰冻3千尺: 铁道部拆了卖，国防科技也拆了卖[…</a>
 </h2>
 <p>@胤佚胤佚:@冰冻3千尺: 铁道部拆了卖，国防科技也拆了卖[怒]！啥时候把特色贼的海外资产晒出来卖？回@红尘踏落英: 特色私改贼其实就是狗卵子！回@冰冻3千尺: 特色私改贼想卖的，挡不住！它们在逼工农兵杀死它们！  http://t.cn/RG1AkAH<br><br>RE: 如果军"民"融合,是把私企骗说成民企的军工混合私改,即违宪反共反工人反人类反民族军工私有化!就是危险的!也是帝国军国财阀党所要求的!评:【习近平:全面实施创新驱动发展战略 推进军民融合深度发展(新华社)】http://t.cn/RG3Nhzd  我分享了@中国李建军 的文章 http://t.cn/RGnZomM</p>
@@ -29,6 +41,12 @@
 	<a href="https://freeweibo.com/weibo/3953006997403960" target="freeweibo-mirror">这样的错误，谁该负责？[微笑]</a>
 </h2>
 <p>这样的错误，谁该负责？[微笑]<br><img src="http://ww3.sinaimg.cn/large/52038d40gw1f1wloyyoydj20hs0m5ac4.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3953005369746052" target="freeweibo-mirror">SPAM //@秦岭二月: [吃惊]#探索发现#</a>
+</h2>
+<p>SPAM //@秦岭二月: [吃惊]#探索发现#<br><br>RE: #正义呐喊# 据网友@长春太威武 爆料：通钢员工讨欠薪…?[思考]求真相[围观]<br><img src="http://ww4.sinaimg.cn/large/e5313595jw1f1wipdvrbij20qo0k0q7l.jpg"></p>
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
@@ -78,7 +96,7 @@
 </h2>
 <p>如果军"民"融合,是把私企骗说成民企的军工混合私改,即违宪反共反工人反人类反民族军工私有化!就是危险的!也是帝国军国财阀党所要求的!评:【习近平:全面实施创新驱动发展战略 推进军民融合深度发展(新华社)】http://t.cn/RG3Nhzd  我分享了@中国李建军 的文章 http://t.cn/RGnZomM</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3952938865040954" target="freeweibo-mirror">//@朱庄虹007:“奉命”真要成为时代的符号？</a>
 </h2>
@@ -119,24 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3952911765824383" target="freeweibo-mirror">【省长自摆“乌龙”的背后隐藏着什么】陆昊省长只有正面如实回应…</a>
 </h2>
 <p>【省长自摆“乌龙”的背后隐藏着什么】陆昊省长只有正面如实回应公众疑问，才有可能挽回自摆“乌龙”事件丢失的公信力。倘若继续对“龙煤事件”的真实内幕进行遮掩，对公众批评的声音进行“疯狂删帖”，那陆昊省长就大错特错、错上加错了。 http://t.cn/RG30CoM</p>
-<p>
-	<small> ============== 9小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3952908888288029" target="freeweibo-mirror">SPAM //@一个老实人V: →_→ //@孔智勇_:→_…</a>
-</h2>
-<p>SPAM //@一个老实人V: →_→ //@孔智勇_:→_→ //@孔智勇51:→_→//@不是电栖月楼主:→_→//@皮革鞋盒3: 看看桌上的矿泉水 ---觅仙泉 30多元一瓶。。可以买多少稿纸？<br><br>RE: 装逼无极限，书记用日历纸当讲稿<br><img src="http://ww2.sinaimg.cn/large/006oPWaVjw1f1vdb8kiz9j30eu0hzacd.jpg"></p>
-<p>
-	<small> ============== 9小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3952907734662437" target="freeweibo-mirror">[哈哈] //@唐家三一爷:[哈哈] //@我犀利虎涂:他的…</a>
-</h2>
-<p>[哈哈] //@唐家三一爷:[哈哈] //@我犀利虎涂:他的档，难怪他lp[哈哈][哈哈]<br><br>RE: 最恶心的两类人：第一类，一群拿着中华人民共和国身份证的人，天天你国你国的喷中国，请问你国究竟是哪国？第二类，@高晓松 一个美国人，天天在中国装逼我党我党，请问你党究竟是哪个党？？？<br><img src="http://ww4.sinaimg.cn/large/eacedf04jw1f1w9sxsvfgj21pc0yi7wh.jpg"></p>
-<p>
-	<small> ============== 9小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3952903510913115" target="freeweibo-mirror">最恶心的两类人：第一类，一群拿着中华人民共和国身份证的人，天…</a>
-</h2>
-<p>最恶心的两类人：第一类，一群拿着中华人民共和国身份证的人，天天你国你国的喷中国，请问你国究竟是哪国？第二类，@高晓松 一个美国人，天天在中国装逼我党我党，请问你党究竟是哪个党？？？<br><img src="http://ww4.sinaimg.cn/large/eacedf04jw1f1w9sxsvfgj21pc0yi7wh.jpg"></p>
 <p>
 	<small> ============== 9小时前</small>
 </p>
