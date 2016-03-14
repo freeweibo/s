@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3953048490929268" target="freeweibo-mirror">简直，把佛祖都惊呆了！！</a>
+</h2>
+<p>简直，把佛祖都惊呆了！！<br><br>RE: 惊着我了。中共寺庙党委书记誓师大会？“做毛泽东的和尚，做邓小平的居士，紧密团结在习近平周围......” http://t.cn/RGZO9Mr</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3953036856554008" target="freeweibo-mirror">//@逃亡泰国://@东风落云Q：//@怀化麻阳黄雨慧黄雨霞…</a>
 </h2>
 <p>//@逃亡泰国://@东风落云Q：//@怀化麻阳黄雨慧黄雨霞: //@孤家寡哥微博://@酒醚醇香V://@依然如昨V9: [衰]//@chen迁迁15: //@葫芦J散人://@moxivivo: //@nuclear-winter: //@文盲的盛宴5世: //@醉卧柴扉: //@养猪DE庄园: 转发微博<br><br>RE: #长春身边事#通钢员工又来讨要欠薪了，现场聚集了大量警察及前来讨薪的通钢职工 ... 现场视频：http://t.cn/RG3C6IA<br><img src="http://ww1.sinaimg.cn/large/5ce84478jw1f1w8zeoazzj20qo0k0q5s.jpg"></p>
@@ -29,6 +35,12 @@
 	<a href="https://freeweibo.com/weibo/3953035405020743" target="freeweibo-mirror">一个不敢面对历史的民族，是没有前途的民族。我分享了@北京天则…</a>
 </h2>
 <p>一个不敢面对历史的民族，是没有前途的民族。我分享了@北京天则经济研究所 的文章 http://t.cn/RG30AgA</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3953035271133569" target="freeweibo-mirror">煤矿工人相当于枪林弹雨中卖命的老革命，他们的付出太多了，应该…</a>
+</h2>
+<p>煤矿工人相当于枪林弹雨中卖命的老革命，他们的付出太多了，应该受到优厚保障，不可为了照顾资本的利益或者贪官的利益而牺牲掉煤矿工人的利益。<br><br>RE: 这个就必须要转了！见一地转一次！[good]星星之火，可以燎原！<br><img src="http://ww2.sinaimg.cn/large/b4385310jw1f1wbb010puj20o10hs0ul.jpg"></p>
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
@@ -84,7 +96,7 @@
 </h2>
 <p>诛心一下，新华社的那个用词看起来更像是有意为之的“错误，”“高”与“后”无论是五笔还是拼音，都不太可能出现替换错误吧。</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3952996171724515" target="freeweibo-mirror">靠政府帮着哄抬房价去库存，也算奇葩。央视2整天吹吹打打撒出各…</a>
 </h2>
@@ -127,18 +139,6 @@
 <p>如果军"民"融合,是把私企骗说成民企的军工混合私改,即违宪反共反工人反人类反民族军工私有化!就是危险的!也是帝国军国财阀党所要求的!评:【习近平:全面实施创新驱动发展战略 推进军民融合深度发展(新华社)】http://t.cn/RG3Nhzd  我分享了@中国李建军 的文章 http://t.cn/RGnZomM</p>
 <p>
 	<small> ============== 7小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3952938865040954" target="freeweibo-mirror">//@朱庄虹007:“奉命”真要成为时代的符号？</a>
-</h2>
-<p>//@朱庄虹007:“奉命”真要成为时代的符号？<br><br>RE: “奉命”是正义的代表！“奉命”是让腐败分子恐惧的代表！“奉命”为老百姓说实话的代表！“奉命”是一种强大的不可战胜的精神力量！只要人人充满“奉命”精神，人人都是“奉命”！即使你再封杀，也会有千千万万个“奉命”站起来与腐败分子抗争到底！<br><img src="http://ww3.sinaimg.cn/large/006pPjq0jw1f1viaquhhtj30540643yi.jpg"></p>
-<p>
-	<small> ============== 9小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3952927842118082" target="freeweibo-mirror">美女，领导还没说让你脱呢[哈哈][哈哈][哈哈]</a>
-</h2>
-<p>美女，领导还没说让你脱呢[哈哈][哈哈][哈哈]<br><img src="http://ww4.sinaimg.cn/large/73b54915gw1f1wcjqd9p4j20jz0zkn28.jpg"></p>
-<p>
-	<small> ============== 9小时前</small>
 </p>
 <table>
     <tr>
