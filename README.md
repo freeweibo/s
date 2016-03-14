@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3953004606631576" target="freeweibo-mirror">那怎么为？ //@常州杨洪波://@松静悟求:南方都市报深圳…</a>
+</h2>
+<p>那怎么为？ //@常州杨洪波://@松静悟求:南方都市报深圳版//@王林的微博客:[哈哈]//@搜狐的莱克星顿: [哈哈]<br><br>RE: 诛心一下，新华社的那个用词看起来更像是有意为之的“错误，”“高”与“后”无论是五笔还是拼音，都不太可能出现替换错误吧。</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3953004182358176" target="freeweibo-mirror">[哈欠]演砸啦！ //@梁溪居士:[哈哈] //@Dopey…</a>
 </h2>
 <p>[哈欠]演砸啦！ //@梁溪居士:[哈哈] //@DopeyTom:脱衣服太早引发的事故。 //@章诒和:“问答成了一场戏” //@上海陈子善: //@漫游者粒子:[哈哈][哈哈][哈哈] //@徐付群: //@逆风蝴蝶:演砸啦！ //@翁颖明: 深海同志把暗号丢了<br><br>RE: 美女，领导还没说让你脱呢[哈哈][哈哈][哈哈]<br><img src="http://ww4.sinaimg.cn/large/73b54915gw1f1wcjqd9p4j20jz0zkn28.jpg"></p>
@@ -35,6 +41,12 @@
 	<a href="https://freeweibo.com/weibo/3952983316489988" target="freeweibo-mirror">SPAM [微笑] //@简直:[哈哈][笑cry]</a>
 </h2>
 <p>SPAM [微笑] //@简直:[哈哈][笑cry]<br><br>RE: 记者会的游戏。<br><img src="http://ww2.sinaimg.cn/large/6362d8eagw1f1wh6sjbymj20bx0foq55.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3952974248731280" target="freeweibo-mirror">深海同志把暗号丢了//@周迪伦:哈哈，一本正经地磨洋工。</a>
+</h2>
+<p>深海同志把暗号丢了//@周迪伦:哈哈，一本正经地磨洋工。<br><br>RE: 美女，领导还没说让你脱呢[哈哈][哈哈][哈哈]<br><img src="http://ww4.sinaimg.cn/large/73b54915gw1f1wcjqd9p4j20jz0zkn28.jpg"></p>
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
@@ -60,7 +72,7 @@
 </h2>
 <p>秀恩爱秀出了第三者<br><br>RE: 【省长自摆“乌龙”的背后隐藏着什么】陆昊省长只有正面如实回应公众疑问，才有可能挽回自摆“乌龙”事件丢失的公信力。倘若继续对“龙煤事件”的真实内幕进行遮掩，对公众批评的声音进行“疯狂删帖”，那陆昊省长就大错特错、错上加错了。 http://t.cn/RG30CoM</p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3952922818187299" target="freeweibo-mirror">群众对反腐戏早没兴趣了，博主还在演？[偷笑]</a>
 </h2>
@@ -125,18 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3952836225657915" target="freeweibo-mirror">//@Ray言耸听_: //@临沂陈光福2世:权利都是争取来…</a>
 </h2>
 <p>//@Ray言耸听_: //@临沂陈光福2世:权利都是争取来的，没有谁会给予！ //@刘二狗蛋://@老衲猛男666:每次看到类似帖子，老衲就想唱国歌，起来~[泪]<br><br>RE: 這次雙鴨山討薪事件，任人怎麼洗地都洗不乾淨的！誰洗地，別說你傻逼在做無用功，你他媽就是在助紂為虐！你們只知道政府難，企業難，你們有誰站在討薪者的角度想想，他們是最底層的人，幹著最累最危險的活，拿著原本就很廉價的報酬，你還欠他們微薄的工資達八九月之久，請問，你們他媽還是人不？<br><img src="http://ww4.sinaimg.cn/large/006lYZh5gw1f1w1lpc5ijj30hs0np0yn.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3952832795371957" target="freeweibo-mirror">#百姓呼声# 黑龙江省双鸭山市把要工资的老百姓当成犯罪，难道…</a>
-</h2>
-<p>#百姓呼声# 黑龙江省双鸭山市把要工资的老百姓当成犯罪，难道讨要工资有错吗？公道自在人心，转发出去，让更多人知道，怎么这样欺压老百姓！@迟夙生律师 @孔智勇_ @韋郁- @联合国 @花心蒋先生-记者 @南方都市报 @oncc東網 @华尔街日报中文网 @海峡都市报 @台湾中华时报<br><img src="http://ww3.sinaimg.cn/large/b7c32acbgw1f1w1j78f2zj20ci0m8ac2.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3952832073654939" target="freeweibo-mirror">這次雙鴨山討薪事件，任人怎麼洗地都洗不乾淨的！誰洗地，別說你…</a>
-</h2>
-<p>這次雙鴨山討薪事件，任人怎麼洗地都洗不乾淨的！誰洗地，別說你傻逼在做無用功，你他媽就是在助紂為虐！你們只知道政府難，企業難，你們有誰站在討薪者的角度想想，他們是最底層的人，幹著最累最危險的活，拿著原本就很廉價的報酬，你還欠他們微薄的工資達八九月之久，請問，你們他媽還是人不？<br><img src="http://ww4.sinaimg.cn/large/006lYZh5gw1f1w1lpc5ijj30hs0np0yn.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
