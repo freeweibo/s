@@ -48,7 +48,7 @@
 </h2>
 <p>http://t.cn/RG3b9Vi<br><br>RE: 黑龙江省双鸭山市把要工资的老百姓当成犯罪，难道讨要工资有错吗？公道自在人心，转发出去，让更多人知道，怎么这样欺压老百姓！@微博电视 @东方早报 @BTV李向显 @北京日报 @北京晨报 @思想聚焦 @北京朝阳 @大嘴韩乔生 @何炅 @新浪新闻客户端 @杨澜 @中国青年报陈小川<br><img src="http://ww4.sinaimg.cn/large/9ef7956bjw1f1vikskai6j20ci0m80v6.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3952724929874240" target="freeweibo-mirror">//@高先生0703://@忠殃政府://@王大鹏66://…</a>
 </h2>
@@ -132,7 +132,7 @@
 </h2>
 <p>这个要力挺，特别提到要查办围攻任志强的操控者！[给力][给力][给力]//@喷嚏网铂程://@鹰隼N1A晏欢: [good][给力]//@老夫乃布衣: [给力]支持!!<br><img src="http://ww1.sinaimg.cn/large/006k3Fnogw1f1vkcd25hxj30k00wfthd.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3952677652487659" target="freeweibo-mirror">SPAM //@鹰隼N1A晏欢: [good][给力]//@…</a>
 </h2>
