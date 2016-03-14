@@ -132,7 +132,7 @@
 </h2>
 <p>这个要力挺，特别提到要查办围攻任志强的操控者！[给力][给力][给力]//@喷嚏网铂程://@鹰隼N1A晏欢: [good][给力]//@老夫乃布衣: [给力]支持!!<br><img src="http://ww1.sinaimg.cn/large/006k3Fnogw1f1vkcd25hxj30k00wfthd.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3952677652487659" target="freeweibo-mirror">SPAM //@鹰隼N1A晏欢: [good][给力]//@…</a>
 </h2>
