@@ -60,7 +60,7 @@
 </h2>
 <p>2鸭山的事情完全可以预见，一部分人会被抓，被捕者绝大部分会被判刑，有些人可能会拿到部分工资然后不了了之，他们会假装忘记被捕者，他们私下里还会庆幸自己没有被抓，还拿到了部分工资。微薄啥也改变不了，转发啥也改变不了，希望不在西方，希望不在台港，希望不在龙江，希望只能在我们每个人肩上。<br><img src="http://ww3.sinaimg.cn/large/5efd767djw1f1vx0s2x7kj20dg09x3z5.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3952749042778295" target="freeweibo-mirror">SPAM //@浴过天情://@镜中自我B: [吃惊]//@…</a>
 </h2>
@@ -102,7 +102,7 @@
 </h2>
 <p>//@实践论a:转发微博<br><br>RE: 红喇叭报道：请大家欣赏红歌《东方升起了红太阳》 http://t.cn/R2W6Ldo http://t.cn/RG3zKcT .</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3952707855277062" target="freeweibo-mirror">//@广州湾在线://@读书比较少://@网易1200多个头…</a>
 </h2>
