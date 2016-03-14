@@ -114,13 +114,13 @@
 </h2>
 <p>SPAM //@阿宝背书的美好生活:亲爱的武警，你还真下的了手，感谢你们的父母，生了你们这批为党的忠诚战士！福兮。 //@公民社会2017:[话筒] //@微暖初晴:唯有自己拯救自己！<br><br>RE: 關注！黑龍江雙鴨山30萬礦工討薪！ FB 圖 http://t.cn/RyhWfOl<br><img src="http://ww3.sinaimg.cn/large/d390bc98jw1f1vc685awqj20qo0k0dim.jpg"></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3952796426484198" target="freeweibo-mirror">//@娃她爹-:必须严查，从@千钧客 开始查起！</a>
 </h2>
 <p>//@娃她爹-:必须严查，从@千钧客 开始查起！<br><br>RE: 这个要力挺，特别提到要查办围攻任志强的操控者！[给力][给力][给力]//@喷嚏网铂程://@鹰隼N1A晏欢: [good][给力]//@老夫乃布衣: [给力]支持!!<br><img src="http://ww1.sinaimg.cn/large/006k3Fnogw1f1vkcd25hxj30k00wfthd.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3952792773437966" target="freeweibo-mirror">2鸭山的事情完全可以预见，一部分人会被抓，被捕者绝大部分会被…</a>
 </h2>
