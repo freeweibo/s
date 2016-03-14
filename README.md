@@ -42,7 +42,7 @@
 </h2>
 <p>回复@冯仁军:忙着抓工人呢！[怒] //@汉大赋2013:资产阶级专政就是如此凶残！[怒] //@尘PM: 由此我想起来五卅，二七惨案不同的是“共产党”的天下。 //@九云祥瑞99: :黑龙江省委政府除了用武警对付工人，还能干..<br><br>RE: 助肘為虐阿！惡意欠薪的不抓，反抓討薪要生存的！這是什麼節奏？[思考][思考][思考]#郁言詼語# http://t.cn/RGucKzb</p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3953048490929268" target="freeweibo-mirror">简直，把佛祖都惊呆了！！</a>
 </h2>
@@ -84,7 +84,7 @@
 </h2>
 <p>吾国吾民 http://t.cn/RG30AgA</p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3953029905918780" target="freeweibo-mirror">寺院是个名利场[生病]//@石讷06: 终有一日，和尚称还俗…</a>
 </h2>
@@ -126,7 +126,7 @@
 </h2>
 <p>//@气象万千: 演戏没有跟上节拍//@萧含:似乎与河北有关~[笑cry]<br><br>RE: 美女，领导还没说让你脱呢[哈哈][哈哈][哈哈]<br><img src="http://ww4.sinaimg.cn/large/73b54915gw1f1wcjqd9p4j20jz0zkn28.jpg"></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3952999866741407" target="freeweibo-mirror">诛心一下，新华社的那个用词看起来更像是有意为之的“错误，”“…</a>
 </h2>
