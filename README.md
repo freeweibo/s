@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3952796426484198" target="freeweibo-mirror">//@娃她爹-:必须严查，从@千钧客 开始查起！</a>
+</h2>
+<p>//@娃她爹-:必须严查，从@千钧客 开始查起！<br><br>RE: 这个要力挺，特别提到要查办围攻任志强的操控者！[给力][给力][给力]//@喷嚏网铂程://@鹰隼N1A晏欢: [good][给力]//@老夫乃布衣: [给力]支持!!<br><img src="http://ww1.sinaimg.cn/large/006k3Fnogw1f1vkcd25hxj30k00wfthd.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3952749042778295" target="freeweibo-mirror">SPAM //@浴过天情://@镜中自我B: [吃惊]//@…</a>
 </h2>
 <p>SPAM //@浴过天情://@镜中自我B: [吃惊]//@麻辣锅的Dad: //@吳記炭烤:國際記者聯盟ICIJ今年也曝光包含李小琳在內全球66個名人的瑞士銀行帳戶，舉世矚目。<br><br>RE: 中国离岸金融解密,披露中国精英的海外资产 By Marina Walker Guevara, Gerard Ryle, Alexa Olesen, Mar Cabra, Michael Hudson and Christoph Giesen January 21, 2014, 4:00 pm 调查中的重要发现有 资料显... http://t.cn/RGuPiJz</p>
@@ -48,7 +54,7 @@
 </h2>
 <p>//@峰顶浪间://@用户3829915711://@红旗--兽医老兵: //@4671ushpuhua_a: //@红旗--兽医老兵://@评水论茶V: //@Osaka崎://@红旗--兽医老兵: 作为毛泽东思想的信仰者对习近平很失望//@阿斯道客: 倭人邓走资派余孽及走狗早已全面复辟！毛泽东思想早不是特色指导思想了</p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3952710330295736" target="freeweibo-mirror">//@汪俊廷5: //@转帖小王:[吃惊]@博海转评:[吃惊…</a>
 </h2>
@@ -84,13 +90,13 @@
 </h2>
 <p>//@夙生律师事务所://@品雨听风: 双鸭山事件被微博曝光，由此可以看出，黑龙江省的官场，应该是腐败透顶了吧！公然说谎的官员还好意思继续做人民的公仆？引咎辞职吧！<br><br>RE: 封疆大吏，公然撒谎，事败推诿责任，且将处分留给“再次”，这是一种什么样的权力？</p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3952697998989717" target="freeweibo-mirror">//@红小兵-屠倭灭美:无产阶级唯有遵循毛主席的教导，造反，…</a>
 </h2>
 <p>//@红小兵-屠倭灭美:无产阶级唯有遵循毛主席的教导，造反，造修正主义的反，重新夺回人民政权！//@红旗--兽医老兵: [ok][给力][话筒]//@红小兵-屠倭灭美: 对特修早就不抱任何希望了。//@极目青山依旧: //@红旗--兽医老兵://@娱乐民生路: //@评水论茶V://@Osaka崎://@红旗--兽医老兵: 作为毛泽东思想的</p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3952693783725207" target="freeweibo-mirror">SPAM //@婚恋哲学: 果然是个靠谱的逗B～</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3952671675181448" target="freeweibo-mirror">SPAM //@南人梦: 用错地方了，不就是倒个水嘛，自己去…</a>
 </h2>
 <p>SPAM //@南人梦: 用错地方了，不就是倒个水嘛，自己去倒不行吗？ //@沙河de渔夫:必须滴<br><br>RE: 同样是严谨，德国用在制造业上，中国用在开会上。<br><img src="http://ww4.sinaimg.cn/large/bc36346bgw1f1vi2bk2ffj20c80vumzk.jpg"></p>
-<p>
-	<small> ============== 11小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3952670677380753" target="freeweibo-mirror">这几天看两会，习近平多次讲话，开口就是邓小平理论，三个代表，…</a>
-</h2>
-<p>这几天看两会，习近平多次讲话，开口就是邓小平理论，三个代表，科学发展观，中国梦。就是不谈毛泽东思想。似乎他们都比毛泽东伟大。</p>
 <p>
 	<small> ============== 11小时前</small>
 </p>
