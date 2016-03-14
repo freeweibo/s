@@ -32,6 +32,12 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3952911765824383" target="freeweibo-mirror">【省长自摆“乌龙”的背后隐藏着什么】陆昊省长只有正面如实回应…</a>
+</h2>
+<p>【省长自摆“乌龙”的背后隐藏着什么】陆昊省长只有正面如实回应公众疑问，才有可能挽回自摆“乌龙”事件丢失的公信力。倘若继续对“龙煤事件”的真实内幕进行遮掩，对公众批评的声音进行“疯狂删帖”，那陆昊省长就大错特错、错上加错了。 http://t.cn/RG30CoM</p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3952908888288029" target="freeweibo-mirror">SPAM //@一个老实人V: →_→ //@孔智勇_:→_…</a>
 </h2>
 <p>SPAM //@一个老实人V: →_→ //@孔智勇_:→_→ //@孔智勇51:→_→//@不是电栖月楼主:→_→//@皮革鞋盒3: 看看桌上的矿泉水 ---觅仙泉 30多元一瓶。。可以买多少稿纸？<br><br>RE: 装逼无极限，书记用日历纸当讲稿<br><img src="http://ww2.sinaimg.cn/large/006oPWaVjw1f1vdb8kiz9j30eu0hzacd.jpg"></p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3952709730808158" target="freeweibo-mirror">//@实践论a:转发微博</a>
 </h2>
 <p>//@实践论a:转发微博<br><br>RE: 红喇叭报道：请大家欣赏红歌《东方升起了红太阳》 http://t.cn/R2W6Ldo http://t.cn/RG3zKcT .</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3952707855277062" target="freeweibo-mirror">//@广州湾在线://@读书比较少://@网易1200多个头…</a>
-</h2>
-<p>//@广州湾在线://@读书比较少://@网易1200多个头衔6: //@axqq56ax: //@齐鲁秦人5: //@壹拾伍世://@诛邪系列不服:转发微博<br><br>RE: 我問過家裡的老人「民國時桂林以前有土匪嗎？」老人說「桂林沒土匪，有大學。」我又問「那為什麼後來會有廣西剿匪？」老人說「共產黨把反共的稱為土匪，其實它們才是土匪。」</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
