@@ -66,7 +66,7 @@
 </h2>
 <p>SPAM //@浴过天情://@镜中自我B: [吃惊]//@麻辣锅的Dad: //@吳記炭烤:國際記者聯盟ICIJ今年也曝光包含李小琳在內全球66個名人的瑞士銀行帳戶，舉世矚目。<br><br>RE: 中国离岸金融解密,披露中国精英的海外资产 By Marina Walker Guevara, Gerard Ryle, Alexa Olesen, Mar Cabra, Michael Hudson and Christoph Giesen January 21, 2014, 4:00 pm 调查中的重要发现有 资料显... http://t.cn/RGuPiJz</p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3952735537758805" target="freeweibo-mirror">//@猫胡子003://@薄伽梵歌65://@_____独行…</a>
 </h2>
@@ -96,7 +96,7 @@
 </h2>
 <p>//@汪俊廷5: //@转帖小王:[吃惊]@博海转评:[吃惊]@灰色的伞:@fanny7-788:[吃惊] //@一根笒:前段時間說軍隊漲薪就是鎮壓下崗工人，真的出兵了[怒][怒]//@笑-看风云: 是的，删了！！速度截图//@淡紫色de冰冰:这个也被删贴了吗？ //@一根笒:[吃惊][吃惊]/<br><br>RE: 這是不是真的無所謂，關鍵是很多人包括我相信中共能幹出這種事！<br><img src="http://ww4.sinaimg.cn/large/006lYZh5gw1f1vid9joz4j30qo1bf12h.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3952709730808158" target="freeweibo-mirror">//@实践论a:转发微博</a>
 </h2>
