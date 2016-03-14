@@ -132,7 +132,7 @@
 </h2>
 <p>//@气象万千: 演戏没有跟上节拍//@萧含:似乎与河北有关~[笑cry]<br><br>RE: 美女，领导还没说让你脱呢[哈哈][哈哈][哈哈]<br><img src="http://ww4.sinaimg.cn/large/73b54915gw1f1wcjqd9p4j20jz0zkn28.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3952999866741407" target="freeweibo-mirror">诛心一下，新华社的那个用词看起来更像是有意为之的“错误，”“…</a>
 </h2>
