@@ -36,7 +36,7 @@
 </h2>
 <p>群众对反腐戏早没兴趣了，博主还在演？[偷笑]<br><br>RE: “奉命”是正义的代表！“奉命”是让腐败分子恐惧的代表！“奉命”为老百姓说实话的代表！“奉命”是一种强大的不可战胜的精神力量！只要人人充满“奉命”精神，人人都是“奉命”！即使你再封杀，也会有千千万万个“奉命”站起来与腐败分子抗争到底！<br><img src="http://ww3.sinaimg.cn/large/006pPjq0jw1f1viaquhhtj30540643yi.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3952918699039553" target="freeweibo-mirror">你问的太多了</a>
 </h2>
@@ -66,7 +66,13 @@
 </h2>
 <p>[哈哈] //@唐家三一爷:[哈哈] //@我犀利虎涂:他的档，难怪他lp[哈哈][哈哈]<br><br>RE: 最恶心的两类人：第一类，一群拿着中华人民共和国身份证的人，天天你国你国的喷中国，请问你国究竟是哪国？第二类，@高晓松 一个美国人，天天在中国装逼我党我党，请问你党究竟是哪个党？？？<br><img src="http://ww4.sinaimg.cn/large/eacedf04jw1f1w9sxsvfgj21pc0yi7wh.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3952903510913115" target="freeweibo-mirror">最恶心的两类人：第一类，一群拿着中华人民共和国身份证的人，天…</a>
+</h2>
+<p>最恶心的两类人：第一类，一群拿着中华人民共和国身份证的人，天天你国你国的喷中国，请问你国究竟是哪国？第二类，@高晓松 一个美国人，天天在中国装逼我党我党，请问你党究竟是哪个党？？？<br><img src="http://ww4.sinaimg.cn/large/eacedf04jw1f1w9sxsvfgj21pc0yi7wh.jpg"></p>
+<p>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3952897807186273" target="freeweibo-mirror">//@四明南雷://@慈溪阿立哥:如果他们是违法犯罪分子的话…</a>
 </h2>
@@ -102,7 +108,7 @@
 </h2>
 <p>這次雙鴨山討薪事件，任人怎麼洗地都洗不乾淨的！誰洗地，別說你傻逼在做無用功，你他媽就是在助紂為虐！你們只知道政府難，企業難，你們有誰站在討薪者的角度想想，他們是最底層的人，幹著最累最危險的活，拿著原本就很廉價的報酬，你還欠他們微薄的工資達八九月之久，請問，你們他媽還是人不？<br><img src="http://ww4.sinaimg.cn/large/006lYZh5gw1f1w1lpc5ijj30hs0np0yn.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3952826013594801" target="freeweibo-mirror">SPAM //@阿宝背书的美好生活:亲爱的武警，你还真下的了…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3952735537758805" target="freeweibo-mirror">//@猫胡子003://@薄伽梵歌65://@_____独行…</a>
 </h2>
 <p>//@猫胡子003://@薄伽梵歌65://@_____独行客://@高先生0703://@忠殃政府://@王大鹏66://@千山的胡说:这是想干嘛？[怒]<br><br>RE: 黑龙江省双鸭山市把要工资的老百姓当成犯罪，难道讨要工资有错吗？公道自在人心，转发出去，让更多人知道，怎么这样欺压老百姓！@微博电视 @东方早报 @BTV李向显 @北京日报 @北京晨报 @思想聚焦 @北京朝阳 @大嘴韩乔生 @何炅 @新浪新闻客户端 @杨澜 @中国青年报陈小川<br><img src="http://ww4.sinaimg.cn/large/9ef7956bjw1f1vikskai6j20ci0m80v6.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3952727052815886" target="freeweibo-mirror">http://t.cn/RG3b9Vi</a>
-</h2>
-<p>http://t.cn/RG3b9Vi<br><br>RE: 黑龙江省双鸭山市把要工资的老百姓当成犯罪，难道讨要工资有错吗？公道自在人心，转发出去，让更多人知道，怎么这样欺压老百姓！@微博电视 @东方早报 @BTV李向显 @北京日报 @北京晨报 @思想聚焦 @北京朝阳 @大嘴韩乔生 @何炅 @新浪新闻客户端 @杨澜 @中国青年报陈小川<br><img src="http://ww4.sinaimg.cn/large/9ef7956bjw1f1vikskai6j20ci0m80v6.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
