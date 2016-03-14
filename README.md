@@ -30,7 +30,7 @@
 </h2>
 <p>SPAM //@浴过天情://@镜中自我B: [吃惊]//@麻辣锅的Dad: //@吳記炭烤:國際記者聯盟ICIJ今年也曝光包含李小琳在內全球66個名人的瑞士銀行帳戶，舉世矚目。<br><br>RE: 中国离岸金融解密,披露中国精英的海外资产 By Marina Walker Guevara, Gerard Ryle, Alexa Olesen, Mar Cabra, Michael Hudson and Christoph Giesen January 21, 2014, 4:00 pm 调查中的重要发现有 资料显... http://t.cn/RGuPiJz</p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3952735537758805" target="freeweibo-mirror">//@猫胡子003://@薄伽梵歌65://@_____独行…</a>
 </h2>
@@ -122,6 +122,12 @@
 <p>
 	<small> ============== 11小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3952681871751860" target="freeweibo-mirror">这个要力挺，特别提到要查办围攻任志强的操控者！[给力][给力…</a>
+</h2>
+<p>这个要力挺，特别提到要查办围攻任志强的操控者！[给力][给力][给力]//@喷嚏网铂程://@鹰隼N1A晏欢: [good][给力]//@老夫乃布衣: [给力]支持!!<br><img src="http://ww1.sinaimg.cn/large/006k3Fnogw1f1vkcd25hxj30k00wfthd.jpg"></p>
+<p>
+	<small> ============== 11小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3952677652487659" target="freeweibo-mirror">SPAM //@鹰隼N1A晏欢: [good][给力]//@…</a>
 </h2>
 <p>SPAM //@鹰隼N1A晏欢: [good][给力]//@老夫乃布衣: [给力]支持!!</p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3952673332110963" target="freeweibo-mirror">SPAM 女孩想要的爱情就是一颗真心，一生一世，别无其他！</a>
 </h2>
 <p>SPAM 女孩想要的爱情就是一颗真心，一生一世，别无其他！</p>
-<p>
-	<small> ============== 11小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3952671675181448" target="freeweibo-mirror">SPAM //@南人梦: 用错地方了，不就是倒个水嘛，自己去…</a>
-</h2>
-<p>SPAM //@南人梦: 用错地方了，不就是倒个水嘛，自己去倒不行吗？ //@沙河de渔夫:必须滴<br><br>RE: 同样是严谨，德国用在制造业上，中国用在开会上。<br><img src="http://ww4.sinaimg.cn/large/bc36346bgw1f1vi2bk2ffj20c80vumzk.jpg"></p>
 <p>
 	<small> ============== 12小时前</small>
 </p>
