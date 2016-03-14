@@ -48,7 +48,7 @@
 </h2>
 <p>群众理性温和，政府更该依法查处企业欠薪行为。</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3952911765824383" target="freeweibo-mirror">【省长自摆“乌龙”的背后隐藏着什么】陆昊省长只有正面如实回应…</a>
 </h2>
