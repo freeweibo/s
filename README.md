@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3953062160990835" target="freeweibo-mirror">回复@冯仁军:忙着抓工人呢！[怒] //@汉大赋2013:资…</a>
+</h2>
+<p>回复@冯仁军:忙着抓工人呢！[怒] //@汉大赋2013:资产阶级专政就是如此凶残！[怒] //@尘PM: 由此我想起来五卅，二七惨案不同的是“共产党”的天下。 //@九云祥瑞99: :黑龙江省委政府除了用武警对付工人，还能干..<br><br>RE: 助肘為虐阿！惡意欠薪的不抓，反抓討薪要生存的！這是什麼節奏？[思考][思考][思考]#郁言詼語# http://t.cn/RGucKzb</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3953048490929268" target="freeweibo-mirror">简直，把佛祖都惊呆了！！</a>
 </h2>
 <p>简直，把佛祖都惊呆了！！<br><br>RE: 惊着我了。中共寺庙党委书记誓师大会？“做毛泽东的和尚，做邓小平的居士，紧密团结在习近平周围......” http://t.cn/RGZO9Mr</p>
@@ -66,7 +72,7 @@
 </h2>
 <p>寺院是个名利场[生病]//@石讷06: 终有一日，和尚称还俗叫出家。[哈哈]//@凌虚铺子: 很早以前，有一僧人说我是有些慧根的。这一下，彻底断了我出家的念想。[衰]<br><br>RE: 惊着我了。中共寺庙党委书记誓师大会？“做毛泽东的和尚，做邓小平的居士，紧密团结在习近平周围......” http://t.cn/RGZO9Mr</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3953012429050615" target="freeweibo-mirror">@胤佚胤佚:@冰冻3千尺: 铁道部拆了卖，国防科技也拆了卖[…</a>
 </h2>
@@ -108,7 +114,7 @@
 </h2>
 <p>诛心一下，新华社的那个用词看起来更像是有意为之的“错误，”“高”与“后”无论是五笔还是拼音，都不太可能出现替换错误吧。</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3952996171724515" target="freeweibo-mirror">靠政府帮着哄抬房价去库存，也算奇葩。央视2整天吹吹打打撒出各…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3952982074623753" target="freeweibo-mirror">#正义呐喊# 据网友@长春太威武 爆料：通钢员工讨欠薪…?[…</a>
 </h2>
 <p>#正义呐喊# 据网友@长春太威武 爆料：通钢员工讨欠薪…?[思考]求真相[围观]<br><img src="http://ww4.sinaimg.cn/large/e5313595jw1f1wipdvrbij20qo0k0q7l.jpg"></p>
-<p>
-	<small> ============== 7小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3952974248731280" target="freeweibo-mirror">深海同志把暗号丢了//@周迪伦:哈哈，一本正经地磨洋工。</a>
-</h2>
-<p>深海同志把暗号丢了//@周迪伦:哈哈，一本正经地磨洋工。<br><br>RE: 美女，领导还没说让你脱呢[哈哈][哈哈][哈哈]<br><img src="http://ww4.sinaimg.cn/large/73b54915gw1f1wcjqd9p4j20jz0zkn28.jpg"></p>
 <p>
 	<small> ============== 7小时前</small>
 </p>
