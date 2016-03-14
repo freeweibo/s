@@ -24,7 +24,7 @@
 </h2>
 <p>//@逃亡泰国://@东风落云Q：//@怀化麻阳黄雨慧黄雨霞: //@孤家寡哥微博://@酒醚醇香V://@依然如昨V9: [衰]//@chen迁迁15: //@葫芦J散人://@moxivivo: //@nuclear-winter: //@文盲的盛宴5世: //@醉卧柴扉: //@养猪DE庄园: 转发微博<br><br>RE: #长春身边事#通钢员工又来讨要欠薪了，现场聚集了大量警察及前来讨薪的通钢职工 ... 现场视频：http://t.cn/RG3C6IA<br><img src="http://ww1.sinaimg.cn/large/5ce84478jw1f1w8zeoazzj20qo0k0q5s.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3953035405020743" target="freeweibo-mirror">一个不敢面对历史的民族，是没有前途的民族。我分享了@北京天则…</a>
 </h2>
@@ -54,7 +54,7 @@
 </h2>
 <p>这样的错误，谁该负责？[微笑]<br><img src="http://ww3.sinaimg.cn/large/52038d40gw1f1wloyyoydj20hs0m5ac4.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3953005369746052" target="freeweibo-mirror">SPAM //@秦岭二月: [吃惊]#探索发现#</a>
 </h2>
@@ -96,7 +96,7 @@
 </h2>
 <p>確實奇葩！去庫存，通常應該伴隨著降價過程。更為重要的是，去庫存應該是減槓桿的。但是，我國房地產去庫存，竟然是以漲價的方式進行，而且還在政策性加槓桿。如果，管理層智商無太大問題；那麽，就是配合境內外投機資本做空人民幣。房地產債務鏈條一旦斷裂，人民幣匯率必將崩潰。袞袞諸公將載入史冊！</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3952983316489988" target="freeweibo-mirror">SPAM [微笑] //@简直:[哈哈][笑cry]</a>
 </h2>
