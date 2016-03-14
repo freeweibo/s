@@ -54,7 +54,7 @@
 </h2>
 <p>//@高先生0703://@忠殃政府://@王大鹏66://@千山的胡说:这是想干嘛？[怒]<br><br>RE: 黑龙江省双鸭山市把要工资的老百姓当成犯罪，难道讨要工资有错吗？公道自在人心，转发出去，让更多人知道，怎么这样欺压老百姓！@微博电视 @东方早报 @BTV李向显 @北京日报 @北京晨报 @思想聚焦 @北京朝阳 @大嘴韩乔生 @何炅 @新浪新闻客户端 @杨澜 @中国青年报陈小川<br><img src="http://ww4.sinaimg.cn/large/9ef7956bjw1f1vikskai6j20ci0m80v6.jpg"></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3952712964604677" target="freeweibo-mirror">//@峰顶浪间://@用户3829915711://@红旗-…</a>
 </h2>
@@ -72,7 +72,7 @@
 </h2>
 <p>//@实践论a:转发微博<br><br>RE: 红喇叭报道：请大家欣赏红歌《东方升起了红太阳》 http://t.cn/R2W6Ldo http://t.cn/RG3zKcT .</p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3952707855277062" target="freeweibo-mirror">//@广州湾在线://@读书比较少://@网易1200多个头…</a>
 </h2>
