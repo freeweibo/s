@@ -42,7 +42,13 @@
 </h2>
 <p>你问的太多了<br><br>RE: 【省长自摆“乌龙”的背后隐藏着什么】陆昊省长只有正面如实回应公众疑问，才有可能挽回自摆“乌龙”事件丢失的公信力。倘若继续对“龙煤事件”的真实内幕进行遮掩，对公众批评的声音进行“疯狂删帖”，那陆昊省长就大错特错、错上加错了。 http://t.cn/RG30CoM</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3952914630472066" target="freeweibo-mirror">群众理性温和，政府更该依法查处企业欠薪行为。</a>
+</h2>
+<p>群众理性温和，政府更该依法查处企业欠薪行为。</p>
+<p>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3952911765824383" target="freeweibo-mirror">【省长自摆“乌龙”的背后隐藏着什么】陆昊省长只有正面如实回应…</a>
 </h2>
@@ -53,6 +59,12 @@
 	<a href="https://freeweibo.com/weibo/3952908888288029" target="freeweibo-mirror">SPAM //@一个老实人V: →_→ //@孔智勇_:→_…</a>
 </h2>
 <p>SPAM //@一个老实人V: →_→ //@孔智勇_:→_→ //@孔智勇51:→_→//@不是电栖月楼主:→_→//@皮革鞋盒3: 看看桌上的矿泉水 ---觅仙泉 30多元一瓶。。可以买多少稿纸？<br><br>RE: 装逼无极限，书记用日历纸当讲稿<br><img src="http://ww2.sinaimg.cn/large/006oPWaVjw1f1vdb8kiz9j30eu0hzacd.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3952907734662437" target="freeweibo-mirror">[哈哈] //@唐家三一爷:[哈哈] //@我犀利虎涂:他的…</a>
+</h2>
+<p>[哈哈] //@唐家三一爷:[哈哈] //@我犀利虎涂:他的档，难怪他lp[哈哈][哈哈]<br><br>RE: 最恶心的两类人：第一类，一群拿着中华人民共和国身份证的人，天天你国你国的喷中国，请问你国究竟是哪国？第二类，@高晓松 一个美国人，天天在中国装逼我党我党，请问你党究竟是哪个党？？？<br><img src="http://ww4.sinaimg.cn/large/eacedf04jw1f1w9sxsvfgj21pc0yi7wh.jpg"></p>
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
@@ -125,18 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3952727052815886" target="freeweibo-mirror">http://t.cn/RG3b9Vi</a>
 </h2>
 <p>http://t.cn/RG3b9Vi<br><br>RE: 黑龙江省双鸭山市把要工资的老百姓当成犯罪，难道讨要工资有错吗？公道自在人心，转发出去，让更多人知道，怎么这样欺压老百姓！@微博电视 @东方早报 @BTV李向显 @北京日报 @北京晨报 @思想聚焦 @北京朝阳 @大嘴韩乔生 @何炅 @新浪新闻客户端 @杨澜 @中国青年报陈小川<br><img src="http://ww4.sinaimg.cn/large/9ef7956bjw1f1vikskai6j20ci0m80v6.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3952724929874240" target="freeweibo-mirror">//@高先生0703://@忠殃政府://@王大鹏66://…</a>
-</h2>
-<p>//@高先生0703://@忠殃政府://@王大鹏66://@千山的胡说:这是想干嘛？[怒]<br><br>RE: 黑龙江省双鸭山市把要工资的老百姓当成犯罪，难道讨要工资有错吗？公道自在人心，转发出去，让更多人知道，怎么这样欺压老百姓！@微博电视 @东方早报 @BTV李向显 @北京日报 @北京晨报 @思想聚焦 @北京朝阳 @大嘴韩乔生 @何炅 @新浪新闻客户端 @杨澜 @中国青年报陈小川<br><img src="http://ww4.sinaimg.cn/large/9ef7956bjw1f1vikskai6j20ci0m80v6.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3952712964604677" target="freeweibo-mirror">//@峰顶浪间://@用户3829915711://@红旗-…</a>
-</h2>
-<p>//@峰顶浪间://@用户3829915711://@红旗--兽医老兵: //@4671ushpuhua_a: //@红旗--兽医老兵://@评水论茶V: //@Osaka崎://@红旗--兽医老兵: 作为毛泽东思想的信仰者对习近平很失望//@阿斯道客: 倭人邓走资派余孽及走狗早已全面复辟！毛泽东思想早不是特色指导思想了</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
