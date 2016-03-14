@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3953085959307211" target="freeweibo-mirror">再来一道死活题吧：我们都恨前车突然急刹，这时如果你也急刹，很…</a>
+</h2>
+<p>再来一道死活题吧：我们都恨前车突然急刹，这时如果你也急刹，很可能前车没事，后车追你尾，所以当看到前车急刹时，是否不要刹车，甚至狠狠的撞上去给他一点惩戒呢？</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3953062160990835" target="freeweibo-mirror">回复@冯仁军:忙着抓工人呢！[怒] //@汉大赋2013:资…</a>
 </h2>
 <p>回复@冯仁军:忙着抓工人呢！[怒] //@汉大赋2013:资产阶级专政就是如此凶残！[怒] //@尘PM: 由此我想起来五卅，二七惨案不同的是“共产党”的天下。 //@九云祥瑞99: :黑龙江省委政府除了用武警对付工人，还能干..<br><br>RE: 助肘為虐阿！惡意欠薪的不抓，反抓討薪要生存的！這是什麼節奏？[思考][思考][思考]#郁言詼語# http://t.cn/RGucKzb</p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3952983316489988" target="freeweibo-mirror">SPAM [微笑] //@简直:[哈哈][笑cry]</a>
 </h2>
 <p>SPAM [微笑] //@简直:[哈哈][笑cry]<br><br>RE: 记者会的游戏。<br><img src="http://ww2.sinaimg.cn/large/6362d8eagw1f1wh6sjbymj20bx0foq55.jpg"></p>
-<p>
-	<small> ============== 8小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3952982074623753" target="freeweibo-mirror">#正义呐喊# 据网友@长春太威武 爆料：通钢员工讨欠薪…?[…</a>
-</h2>
-<p>#正义呐喊# 据网友@长春太威武 爆料：通钢员工讨欠薪…?[思考]求真相[围观]<br><img src="http://ww4.sinaimg.cn/large/e5313595jw1f1wipdvrbij20qo0k0q7l.jpg"></p>
 <p>
 	<small> ============== 8小时前</small>
 </p>
