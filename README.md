@@ -126,7 +126,7 @@
 </h2>
 <p>红喇叭报道：请大家欣赏红歌《东方升起了红太阳》 http://t.cn/R2W6Ldo http://t.cn/RG3zKcT .</p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3952681871751860" target="freeweibo-mirror">这个要力挺，特别提到要查办围攻任志强的操控者！[给力][给力…</a>
 </h2>
