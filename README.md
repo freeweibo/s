@@ -78,7 +78,7 @@
 </h2>
 <p>居然</p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3953383364525604" target="freeweibo-mirror">强烈抗议！//@刘军宁:纳粹也是左派，希同志也是社会主义者 …</a>
 </h2>
@@ -96,7 +96,7 @@
 </h2>
 <p>SPAM 汉语被您如此这般如同朦胧诗般模样使用，不怕祖先来找您麻烦？ //@记者-薛洪涛://@卖火柴的小女孩Angie: //@上海鱼鱼1://@乌托国民16: //@不破楼兰终不还_76246://@大国小屁民003: 欠债还钱天经地义，怎么非法了？[吃惊]<br><br>RE: 你就是说破大天，我也不信讨薪的非法。欠薪合理。你们这样子干，不怕人怨，还不怕天怒吗？<br><img src="http://ww4.sinaimg.cn/large/006oZs3Ujw1f1xdiwwi2yj30h608vq3z.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3953351131848645" target="freeweibo-mirror">昨天越南大规模反华游行，称中国是侵略者，游行标语称中国是纳粹…</a>
 </h2>
