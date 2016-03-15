@@ -126,7 +126,7 @@
 </h2>
 <p>有网友晒图，高速被封了。双鸭山<br><img src="http://ww2.sinaimg.cn/large/afb3120fgw1f1xj4gbf1qj20qo1bf419.jpg"></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3953297390107188" target="freeweibo-mirror">图为当年的“学生领袖”柴某事后在西方接受采访时的话。然后你就…</a>
 </h2>
