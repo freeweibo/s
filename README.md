@@ -72,7 +72,7 @@
 </h2>
 <p>把企业名称填到许可证号里，肯定是搜不到的吧……#315晚会#<br><img src="http://ww1.sinaimg.cn/large/7e948b4djw1f1xum4bz5yj20m80c1gmq.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3953388137661263" target="freeweibo-mirror">居然</a>
 </h2>
@@ -138,7 +138,7 @@
 </h2>
 <p>//@活得精彩才能死得瞑目:哇，这还是共产党领导下的蓝蓝的天吗？双鸭山的市政府想独立吗？<br><br>RE: 有网友晒图，高速被封了。双鸭山<br><img src="http://ww2.sinaimg.cn/large/afb3120fgw1f1xj4gbf1qj20qo1bf419.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p>
 <table>
     <tr>
