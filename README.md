@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3953252607283822" target="freeweibo-mirror">SPAM 【转发赢OPPO R9】3.17日OPPO R9即…</a>
+</h2>
+<p>SPAM 【转发赢OPPO R9】3.17日OPPO R9即将发布！它配备1600万臻美前置摄像头；拥有5.5英寸屏幕搭配极窄边框；搭载0.2秒正面指纹识别；金属一体机身，手感精致细腻，被称为流淌的艺术品！带#OPPO全新拍照手机R9#话题转发本微博即有机会获得OPPO R9！3月22日@微博抽奖平台 开奖！转起来吧！<br><img src="http://ww2.sinaimg.cn/large/b952aec3gw1f1xdwhcwhgj20m8111dmw.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3953241844682956" target="freeweibo-mirror">SPAM 万一没错呢[挖鼻]//@梦晨伤: 这就是通稿的魅力…</a>
 </h2>
 <p>SPAM 万一没错呢[挖鼻]//@梦晨伤: 这就是通稿的魅力所在啊……[兔子]……<br><br>RE: 新华社完了[挖鼻]<br><img src="http://ww4.sinaimg.cn/large/006oMMZhgw1f1x301kcwmj30k00zkwin.jpg"></p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3953029905918780" target="freeweibo-mirror">寺院是个名利场[生病]//@石讷06: 终有一日，和尚称还俗…</a>
 </h2>
 <p>寺院是个名利场[生病]//@石讷06: 终有一日，和尚称还俗叫出家。[哈哈]//@凌虚铺子: 很早以前，有一僧人说我是有些慧根的。这一下，彻底断了我出家的念想。[衰]<br><br>RE: 惊着我了。中共寺庙党委书记誓师大会？“做毛泽东的和尚，做邓小平的居士，紧密团结在习近平周围......” http://t.cn/RGZO9Mr</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3953012429050615" target="freeweibo-mirror">@胤佚胤佚:@冰冻3千尺: 铁道部拆了卖，国防科技也拆了卖[…</a>
-</h2>
-<p>@胤佚胤佚:@冰冻3千尺: 铁道部拆了卖，国防科技也拆了卖[怒]！啥时候把特色贼的海外资产晒出来卖？回@红尘踏落英: 特色私改贼其实就是狗卵子！回@冰冻3千尺: 特色私改贼想卖的，挡不住！它们在逼工农兵杀死它们！  http://t.cn/RG1AkAH<br><br>RE: 如果军"民"融合,是把私企骗说成民企的军工混合私改,即违宪反共反工人反人类反民族军工私有化!就是危险的!也是帝国军国财阀党所要求的!评:【习近平:全面实施创新驱动发展战略 推进军民融合深度发展(新华社)】http://t.cn/RG3Nhzd  我分享了@中国李建军 的文章 http://t.cn/RGnZomM</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
