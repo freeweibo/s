@@ -50,6 +50,12 @@
 <p>
 	<small> ============== 5小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3953220189258933" target="freeweibo-mirror">继续声援双鸭山罢工、截路、游行！一夜之间删的渣也不剩，又发！…</a>
+</h2>
+<p>继续声援双鸭山罢工、截路、游行！一夜之间删的渣也不剩，又发！！<br><img src="http://ww3.sinaimg.cn/large/b4385310jw1f1xa69hurmj20hs0o1mz7.jpg"></p>
+<p>
+	<small> ============== 6小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3953210060137576" target="freeweibo-mirror">18大以来，大批干部被中纪委拿下，这些干部都是中共组织部门考…</a>
 </h2>
 <p>18大以来，大批干部被中纪委拿下，这些干部都是中共组织部门考查提拨的。中纪委为啥不首先巡视组织部呢？<br><img src="http://ww1.sinaimg.cn/large/73b54915jw1f1x90is8kyj209n064q3l.jpg"></p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3953033345935710" target="freeweibo-mirror">上海浦东有，是爷爷或伯父，没搞清。//@何兵: 回复@XCC…</a>
 </h2>
 <p>上海浦东有，是爷爷或伯父，没搞清。//@何兵: 回复@XCCHA:[泪]//@XCCHA:这不跟叫村头“二狗”一样显得亲切呗</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3953031575442011" target="freeweibo-mirror">吾国吾民 http://t.cn/RG30AgA</a>
-</h2>
-<p>吾国吾民 http://t.cn/RG30AgA</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
