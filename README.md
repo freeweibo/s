@@ -24,7 +24,7 @@
 </h2>
 <p>SPAM //@刘子新少爷:哈哈哈 //@刘咚咚:233333 //@股社区:hahahahaha[笑cry][笑cry][笑cry][笑cry][笑cry]笑的我泪花都出来了<br><br>RE: 把企业名称填到许可证号里，肯定是搜不到的吧……#315晚会#<br><img src="http://ww1.sinaimg.cn/large/7e948b4djw1f1xum4bz5yj20m80c1gmq.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3953388137661263" target="freeweibo-mirror">居然</a>
 </h2>
@@ -78,7 +78,7 @@
 </h2>
 <p>回复@波斯小昭: 【片中这个女的还威胁要告此片的导演，最后不了了之】？不是不了了之，的确告到法院，是这个女的输了官司，这部影片至今仍然在美国很多大学里作为教材使用。<br><br>RE: 图为当年的“学生领袖”柴某事后在西方接受采访时的话。然后你就知道了，为什么会有那么多人做了炮灰，因为他们的“领袖”需要他们做炮灰。再强调一遍，当年若是我掌权，我一定会铁腕镇压！但希望是一开始就把这几个学生领袖镇压了，后面的悲剧就不会发生了。<br><img src="http://ww2.sinaimg.cn/large/aa657095gw1f1xj0z0fd2j20c03bjaha.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3953316456723406" target="freeweibo-mirror">//@活得精彩才能死得瞑目:哇，这还是共产党领导下的蓝蓝的天…</a>
 </h2>
@@ -132,7 +132,7 @@
 </h2>
 <p>你就是说破大天，我也不信讨薪的非法。欠薪合理。你们这样子干，不怕人怨，还不怕天怒吗？<br><img src="http://ww4.sinaimg.cn/large/006oZs3Ujw1f1xdiwwi2yj30h608vq3z.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3953241844682956" target="freeweibo-mirror">SPAM 万一没错呢[挖鼻]//@梦晨伤: 这就是通稿的魅力…</a>
 </h2>
