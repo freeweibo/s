@@ -96,7 +96,7 @@
 </h2>
 <p>SPAM 万一没错呢[挖鼻]//@梦晨伤: 这就是通稿的魅力所在啊……[兔子]……<br><br>RE: 新华社完了[挖鼻]<br><img src="http://ww4.sinaimg.cn/large/006oMMZhgw1f1x301kcwmj30k00zkwin.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3953241143994298" target="freeweibo-mirror">SPAM 这就是通稿的魅力所在啊……[兔子]……</a>
 </h2>
