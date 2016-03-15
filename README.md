@@ -30,7 +30,7 @@
 </h2>
 <p>SPAM 星星之火，必须扑灭。<br><br>RE: 继续声援双鸭山罢工、截路、游行！一夜之间删的渣也不剩，又发！！<br><img src="http://ww3.sinaimg.cn/large/b4385310jw1f1xa69hurmj20hs0o1mz7.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3953252607283822" target="freeweibo-mirror">SPAM 【转发赢OPPO R9】3.17日OPPO R9即…</a>
 </h2>
