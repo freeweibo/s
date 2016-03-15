@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3953276305368034" target="freeweibo-mirror">SPAM 星星之火，必须扑灭。</a>
+</h2>
+<p>SPAM 星星之火，必须扑灭。<br><br>RE: 继续声援双鸭山罢工、截路、游行！一夜之间删的渣也不剩，又发！！<br><img src="http://ww3.sinaimg.cn/large/b4385310jw1f1xa69hurmj20hs0o1mz7.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3953252607283822" target="freeweibo-mirror">SPAM 【转发赢OPPO R9】3.17日OPPO R9即…</a>
 </h2>
 <p>SPAM 【转发赢OPPO R9】3.17日OPPO R9即将发布！它配备1600万臻美前置摄像头；拥有5.5英寸屏幕搭配极窄边框；搭载0.2秒正面指纹识别；金属一体机身，手感精致细腻，被称为流淌的艺术品！带#OPPO全新拍照手机R9#话题转发本微博即有机会获得OPPO R9！3月22日@微博抽奖平台 开奖！转起来吧！<br><img src="http://ww2.sinaimg.cn/large/b952aec3gw1f1xdwhcwhgj20m8111dmw.jpg"></p>
@@ -42,7 +48,7 @@
 </h2>
 <p>中组部说，冤枉啊，我其实也做不了主啊！[笑cry]//@费煜鈞: //@山高路远N: 现有的选人模式，确实值得检讨//@红尘里的回眸:那谁来巡视中纪委呢，博主这问题比明显下套资势。[偷笑]//@孤独行进者111:[赞]//@公民高杨018:<br><br>RE: 18大以来，大批干部被中纪委拿下，这些干部都是中共组织部门考查提拨的。中纪委为啥不首先巡视组织部呢？<br><img src="http://ww1.sinaimg.cn/large/73b54915jw1f1x90is8kyj209n064q3l.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3953210060137576" target="freeweibo-mirror">18大以来，大批干部被中纪委拿下，这些干部都是中共组织部门考…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3953031575442011" target="freeweibo-mirror">吾国吾民 http://t.cn/RG30AgA</a>
 </h2>
 <p>吾国吾民 http://t.cn/RG30AgA</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3953029905918780" target="freeweibo-mirror">寺院是个名利场[生病]//@石讷06: 终有一日，和尚称还俗…</a>
-</h2>
-<p>寺院是个名利场[生病]//@石讷06: 终有一日，和尚称还俗叫出家。[哈哈]//@凌虚铺子: 很早以前，有一僧人说我是有些慧根的。这一下，彻底断了我出家的念想。[衰]<br><br>RE: 惊着我了。中共寺庙党委书记誓师大会？“做毛泽东的和尚，做邓小平的居士，紧密团结在习近平周围......” http://t.cn/RGZO9Mr</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
