@@ -72,7 +72,7 @@
 </h2>
 <p>江苏省扬州市的大洋造船有限公司上千工人集会围堵船厂大门，追讨被拖欠数月的工资。<br><img src="http://ww3.sinaimg.cn/large/006pGId1gw1f1xkh4wuctj30gp0dnad0.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3953300837009791" target="freeweibo-mirror">秦岭深山中的土蜂蜜业界好评！帮转，支持真正的养蜂人[赞]</a>
 </h2>
@@ -132,7 +132,7 @@
 </h2>
 <p>中组部说，冤枉啊，我其实也做不了主啊！[笑cry]//@费煜鈞: //@山高路远N: 现有的选人模式，确实值得检讨//@红尘里的回眸:那谁来巡视中纪委呢，博主这问题比明显下套资势。[偷笑]//@孤独行进者111:[赞]//@公民高杨018:<br><br>RE: 18大以来，大批干部被中纪委拿下，这些干部都是中共组织部门考查提拨的。中纪委为啥不首先巡视组织部呢？<br><img src="http://ww1.sinaimg.cn/large/73b54915jw1f1x90is8kyj209n064q3l.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3953220189258933" target="freeweibo-mirror">继续声援双鸭山罢工、截路、游行！一夜之间删的渣也不剩，又发！…</a>
 </h2>
