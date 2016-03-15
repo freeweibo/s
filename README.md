@@ -36,7 +36,7 @@
 </h2>
 <p>SPAM 【转发赢OPPO R9】3.17日OPPO R9即将发布！它配备1600万臻美前置摄像头；拥有5.5英寸屏幕搭配极窄边框；搭载0.2秒正面指纹识别；金属一体机身，手感精致细腻，被称为流淌的艺术品！带#OPPO全新拍照手机R9#话题转发本微博即有机会获得OPPO R9！3月22日@微博抽奖平台 开奖！转起来吧！<br><img src="http://ww2.sinaimg.cn/large/b952aec3gw1f1xdwhcwhgj20m8111dmw.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3953241844682956" target="freeweibo-mirror">SPAM 万一没错呢[挖鼻]//@梦晨伤: 这就是通稿的魅力…</a>
 </h2>
