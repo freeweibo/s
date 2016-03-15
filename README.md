@@ -60,7 +60,7 @@
 </h2>
 <p>简直，把佛祖都惊呆了！！<br><br>RE: 惊着我了。中共寺庙党委书记誓师大会？“做毛泽东的和尚，做邓小平的居士，紧密团结在习近平周围......” http://t.cn/RGZO9Mr</p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3953036856554008" target="freeweibo-mirror">//@逃亡泰国://@东风落云Q：//@怀化麻阳黄雨慧黄雨霞…</a>
 </h2>
@@ -90,7 +90,7 @@
 </h2>
 <p>上海浦东有，是爷爷或伯父，没搞清。//@何兵: 回复@XCCHA:[泪]//@XCCHA:这不跟叫村头“二狗”一样显得亲切呗</p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3953031575442011" target="freeweibo-mirror">吾国吾民 http://t.cn/RG30AgA</a>
 </h2>
