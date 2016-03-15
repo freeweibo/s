@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3953388137661263" target="freeweibo-mirror">居然</a>
+</h2>
+<p>居然</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3953372283802011" target="freeweibo-mirror">SPAM 汉语被您如此这般如同朦胧诗般模样使用，不怕祖先来找…</a>
 </h2>
 <p>SPAM 汉语被您如此这般如同朦胧诗般模样使用，不怕祖先来找您麻烦？ //@记者-薛洪涛://@卖火柴的小女孩Angie: //@上海鱼鱼1://@乌托国民16: //@不破楼兰终不还_76246://@大国小屁民003: 欠债还钱天经地义，怎么非法了？[吃惊]<br><br>RE: 你就是说破大天，我也不信讨薪的非法。欠薪合理。你们这样子干，不怕人怨，还不怕天怒吗？<br><img src="http://ww4.sinaimg.cn/large/006oZs3Ujw1f1xdiwwi2yj30h608vq3z.jpg"></p>
@@ -114,7 +120,7 @@
 </h2>
 <p>SPAM 万一没错呢[挖鼻]//@梦晨伤: 这就是通稿的魅力所在啊……[兔子]……<br><br>RE: 新华社完了[挖鼻]<br><img src="http://ww4.sinaimg.cn/large/006oMMZhgw1f1x301kcwmj30k00zkwin.jpg"></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3953241143994298" target="freeweibo-mirror">SPAM 这就是通稿的魅力所在啊……[兔子]……</a>
 </h2>
@@ -133,12 +139,6 @@
 <p>继续声援双鸭山罢工、截路、游行！一夜之间删的渣也不剩，又发！！<br><img src="http://ww3.sinaimg.cn/large/b4385310jw1f1xa69hurmj20hs0o1mz7.jpg"></p>
 <p>
 	<small> ============== 12小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3953210060137576" target="freeweibo-mirror">18大以来，大批干部被中纪委拿下，这些干部都是中共组织部门考…</a>
-</h2>
-<p>18大以来，大批干部被中纪委拿下，这些干部都是中共组织部门考查提拨的。中纪委为啥不首先巡视组织部呢？<br><img src="http://ww1.sinaimg.cn/large/73b54915jw1f1x90is8kyj209n064q3l.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
 </p>
 <table>
     <tr>
