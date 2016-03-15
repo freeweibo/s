@@ -78,7 +78,7 @@
 </h2>
 <p>居然</p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3953383364525604" target="freeweibo-mirror">强烈抗议！//@刘军宁:纳粹也是左派，希同志也是社会主义者 …</a>
 </h2>
