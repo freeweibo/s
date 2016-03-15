@@ -54,7 +54,7 @@
 </h2>
 <p>继续声援双鸭山罢工、截路、游行！一夜之间删的渣也不剩，又发！！<br><img src="http://ww3.sinaimg.cn/large/b4385310jw1f1xa69hurmj20hs0o1mz7.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3953210060137576" target="freeweibo-mirror">18大以来，大批干部被中纪委拿下，这些干部都是中共组织部门考…</a>
 </h2>
