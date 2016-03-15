@@ -30,13 +30,13 @@
 </h2>
 <p>结果让远牧师xx了[笑哈哈] //@痞子王不懂爱:可恨之人必食可悲之果 //@张鹤慈:回复@波斯小昭: 【片中这个女的还威胁要告此片的导演，最后不了了之】？不是不了了之，的确告到法院，是这个女的输了官司，这部影片至今仍然在美国很多大学里作为教材使用。<br><br>RE: 图为当年的“学生领袖”柴某事后在西方接受采访时的话。然后你就知道了，为什么会有那么多人做了炮灰，因为他们的“领袖”需要他们做炮灰。再强调一遍，当年若是我掌权，我一定会铁腕镇压！但希望是一开始就把这几个学生领袖镇压了，后面的悲剧就不会发生了。<br><img src="http://ww2.sinaimg.cn/large/aa657095gw1f1xj0z0fd2j20c03bjaha.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3953330663688574" target="freeweibo-mirror">回复@花开梅陇:我写过不少这方面的文章，国内不适合转发。89…</a>
 </h2>
 <p>回复@花开梅陇:我写过不少这方面的文章，国内不适合转发。89年的中国失去了一次难得的机遇，主要不怪学生，学生被不同势力利用才可能如此久的占据舞台，群众运动是逆淘汰，死伤的无一个学生领袖，乌尔开溜跑的比兔子还快。<br><br>RE: 图为当年的“学生领袖”柴某事后在西方接受采访时的话。然后你就知道了，为什么会有那么多人做了炮灰，因为他们的“领袖”需要他们做炮灰。再强调一遍，当年若是我掌权，我一定会铁腕镇压！但希望是一开始就把这几个学生领袖镇压了，后面的悲剧就不会发生了。<br><img src="http://ww2.sinaimg.cn/large/aa657095gw1f1xj0z0fd2j20c03bjaha.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3953327648207569" target="freeweibo-mirror">//@手背风迎8: // //@一品泥人://@河南马氏庄园…</a>
 </h2>
@@ -54,13 +54,13 @@
 </h2>
 <p>//@活得精彩才能死得瞑目:哇，这还是共产党领导下的蓝蓝的天吗？双鸭山的市政府想独立吗？<br><br>RE: 有网友晒图，高速被封了。双鸭山<br><img src="http://ww2.sinaimg.cn/large/afb3120fgw1f1xj4gbf1qj20qo1bf419.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3953300837009791" target="freeweibo-mirror">秦岭深山中的土蜂蜜业界好评！帮转，支持真正的养蜂人[赞]</a>
 </h2>
 <p>秦岭深山中的土蜂蜜业界好评！帮转，支持真正的养蜂人[赞]</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3953298195707467" target="freeweibo-mirror">有网友晒图，高速被封了。双鸭山</a>
 </h2>
@@ -102,7 +102,7 @@
 </h2>
 <p>SPAM 这就是通稿的魅力所在啊……[兔子]……<br><br>RE: 新华社完了[挖鼻]<br><img src="http://ww4.sinaimg.cn/large/006oMMZhgw1f1x301kcwmj30k00zkwin.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3953234600992245" target="freeweibo-mirror">中组部说，冤枉啊，我其实也做不了主啊！[笑cry]//@费煜…</a>
 </h2>
@@ -120,7 +120,7 @@
 </h2>
 <p>18大以来，大批干部被中纪委拿下，这些干部都是中共组织部门考查提拨的。中纪委为啥不首先巡视组织部呢？<br><img src="http://ww1.sinaimg.cn/large/73b54915jw1f1x90is8kyj209n064q3l.jpg"></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3953182914750492" target="freeweibo-mirror">//@姬红:结果如何，这是个分水岭。</a>
 </h2>
