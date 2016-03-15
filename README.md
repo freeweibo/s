@@ -102,7 +102,7 @@
 </h2>
 <p>吾国吾民 http://t.cn/RG30AgA</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3953029905918780" target="freeweibo-mirror">寺院是个名利场[生病]//@石讷06: 终有一日，和尚称还俗…</a>
 </h2>
