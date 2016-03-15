@@ -38,6 +38,12 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3953210060137576" target="freeweibo-mirror">18大以来，大批干部被中纪委拿下，这些干部都是中共组织部门考…</a>
+</h2>
+<p>18大以来，大批干部被中纪委拿下，这些干部都是中共组织部门考查提拨的。中纪委为啥不首先巡视组织部呢？<br><img src="http://ww1.sinaimg.cn/large/73b54915jw1f1x90is8kyj209n064q3l.jpg"></p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3953182914750492" target="freeweibo-mirror">//@姬红:结果如何，这是个分水岭。</a>
 </h2>
 <p>//@姬红:结果如何，这是个分水岭。</p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3953012429050615" target="freeweibo-mirror">@胤佚胤佚:@冰冻3千尺: 铁道部拆了卖，国防科技也拆了卖[…</a>
 </h2>
 <p>@胤佚胤佚:@冰冻3千尺: 铁道部拆了卖，国防科技也拆了卖[怒]！啥时候把特色贼的海外资产晒出来卖？回@红尘踏落英: 特色私改贼其实就是狗卵子！回@冰冻3千尺: 特色私改贼想卖的，挡不住！它们在逼工农兵杀死它们！  http://t.cn/RG1AkAH<br><br>RE: 如果军"民"融合,是把私企骗说成民企的军工混合私改,即违宪反共反工人反人类反民族军工私有化!就是危险的!也是帝国军国财阀党所要求的!评:【习近平:全面实施创新驱动发展战略 推进军民融合深度发展(新华社)】http://t.cn/RG3Nhzd  我分享了@中国李建军 的文章 http://t.cn/RGnZomM</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3953006997403960" target="freeweibo-mirror">这样的错误，谁该负责？[微笑]</a>
-</h2>
-<p>这样的错误，谁该负责？[微笑]<br><img src="http://ww3.sinaimg.cn/large/52038d40gw1f1wloyyoydj20hs0m5ac4.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
