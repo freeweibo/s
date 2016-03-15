@@ -84,7 +84,7 @@
 </h2>
 <p>强烈抗议！//@刘军宁:纳粹也是左派，希同志也是社会主义者 //@简直:老毛子扶持的收获很大啊，现在还享受不完的岁贡。//@渡缘养心:仇恨中国的国家越来越多了。<br><br>RE: 昨天越南大规模反华游行，称中国是侵略者，游行标语称中国是纳粹德国，毛泽东是希特勒！<br><img src="http://ww3.sinaimg.cn/large/ad7d9a27jw1f1xp4uwb9wj20fa09cmyc.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3953379099123537" target="freeweibo-mirror">SPAM //@山高路远N: //@二月的风清://@见雨听…</a>
 </h2>
