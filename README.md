@@ -42,7 +42,7 @@
 </h2>
 <p>SPAM 恭喜大家！@NATUNA童装 3月22日新品发布，值得期待[心]故意跟iphone春季发布会同一[doge] //@NATUNA童装:最后一天的中奖名额为：@神的孩子们在午睡，@唐山小龚 ，@杨小阳o_o，@晨菲麻麻，@Arusabeth，恭喜你们！请私信我们您的地址和宝宝性别！#NATUNA送开衫#活动结束！感谢大家的支持，谢谢关注！</p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3953401840268529" target="freeweibo-mirror">SPAM [笑cry][笑cry][笑cry]//@创业家传…</a>
 </h2>
@@ -102,7 +102,7 @@
 </h2>
 <p>昨天越南大规模反华游行，称中国是侵略者，游行标语称中国是纳粹德国，毛泽东是希特勒！<br><img src="http://ww3.sinaimg.cn/large/ad7d9a27jw1f1xp4uwb9wj20fa09cmyc.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3953333679539891" target="freeweibo-mirror">柴的官司异常恶毒，她不是告卡玛的影片不真实，而是重点告商标侵…</a>
 </h2>
