@@ -126,7 +126,7 @@
 </h2>
 <p>18大以来，大批干部被中纪委拿下，这些干部都是中共组织部门考查提拨的。中纪委为啥不首先巡视组织部呢？<br><img src="http://ww1.sinaimg.cn/large/73b54915jw1f1x90is8kyj209n064q3l.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3953182914750492" target="freeweibo-mirror">//@姬红:结果如何，这是个分水岭。</a>
 </h2>
