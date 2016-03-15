@@ -36,7 +36,7 @@
 </h2>
 <p>SPAM 【佛教重大节日提醒】明天是3月16日（农历二月初八）恭迎释迦牟尼佛出家日.释迦牟尼佛,原名乔达摩·悉达多,迦毗罗卫国太子.求离苦之道出家,后成就“无上正等正觉”,世尊在世弘法49年示寂.逢此殊胜日,广做功德,回向、祈愿一切有情众生离苦得乐,究竟圆满,世界无有灾厄！南无本师释迦牟尼佛！<br><img src="http://ww4.sinaimg.cn/large/7a32ccbdgw1f1wyjny2zij20j60qm0y0.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3953085959307211" target="freeweibo-mirror">再来一道死活题吧：我们都恨前车突然急刹，这时如果你也急刹，很…</a>
 </h2>
@@ -72,13 +72,13 @@
 </h2>
 <p>//@逃亡泰国://@东风落云Q：//@怀化麻阳黄雨慧黄雨霞: //@孤家寡哥微博://@酒醚醇香V://@依然如昨V9: [衰]//@chen迁迁15: //@葫芦J散人://@moxivivo: //@nuclear-winter: //@文盲的盛宴5世: //@醉卧柴扉: //@养猪DE庄园: 转发微博<br><br>RE: #长春身边事#通钢员工又来讨要欠薪了，现场聚集了大量警察及前来讨薪的通钢职工 ... 现场视频：http://t.cn/RG3C6IA<br><img src="http://ww1.sinaimg.cn/large/5ce84478jw1f1w8zeoazzj20qo0k0q5s.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3953036147336717" target="freeweibo-mirror">我以为那是一片净土 //@凌虚铺子:很早以前，有一僧人说我是…</a>
 </h2>
 <p>我以为那是一片净土 //@凌虚铺子:很早以前，有一僧人说我是有些慧根的。这一下，彻底断了我出家的念想。[衰]<br><br>RE: 惊着我了。中共寺庙党委书记誓师大会？“做毛泽东的和尚，做邓小平的居士，紧密团结在习近平周围......” http://t.cn/RGZO9Mr</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3953035405020743" target="freeweibo-mirror">一个不敢面对历史的民族，是没有前途的民族。我分享了@北京天则…</a>
 </h2>
