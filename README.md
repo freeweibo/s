@@ -84,7 +84,7 @@
 </h2>
 <p>SPAM 星星之火，必须扑灭。<br><br>RE: 继续声援双鸭山罢工、截路、游行！一夜之间删的渣也不剩，又发！！<br><img src="http://ww3.sinaimg.cn/large/b4385310jw1f1xa69hurmj20hs0o1mz7.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3953274119263215" target="freeweibo-mirror">可爱的同胞！谁再说国人奴性太深，看看这视频。 http://…</a>
 </h2>
