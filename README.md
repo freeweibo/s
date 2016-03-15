@@ -62,9 +62,27 @@
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3953298195707467" target="freeweibo-mirror">有网友晒图，高速被封了。双鸭山</a>
+</h2>
+<p>有网友晒图，高速被封了。双鸭山<br><img src="http://ww2.sinaimg.cn/large/afb3120fgw1f1xj4gbf1qj20qo1bf419.jpg"></p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3953297390107188" target="freeweibo-mirror">图为当年的“学生领袖”柴某事后在西方接受采访时的话。然后你就…</a>
+</h2>
+<p>图为当年的“学生领袖”柴某事后在西方接受采访时的话。然后你就知道了，为什么会有那么多人做了炮灰，因为他们的“领袖”需要他们做炮灰。再强调一遍，当年若是我掌权，我一定会铁腕镇压！但希望是一开始就把这几个学生领袖镇压了，后面的悲剧就不会发生了。<br><img src="http://ww2.sinaimg.cn/large/aa657095gw1f1xj0z0fd2j20c03bjaha.jpg"></p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3953276305368034" target="freeweibo-mirror">SPAM 星星之火，必须扑灭。</a>
 </h2>
 <p>SPAM 星星之火，必须扑灭。<br><br>RE: 继续声援双鸭山罢工、截路、游行！一夜之间删的渣也不剩，又发！！<br><img src="http://ww3.sinaimg.cn/large/b4385310jw1f1xa69hurmj20hs0o1mz7.jpg"></p>
+<p>
+	<small> ============== 5小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3953274119263215" target="freeweibo-mirror">可爱的同胞！谁再说国人奴性太深，看看这视频。 http://…</a>
+</h2>
+<p>可爱的同胞！谁再说国人奴性太深，看看这视频。 http://t.cn/RG1n5NZ .</p>
 <p>
 	<small> ============== 5小时前</small>
 </p><h2>
@@ -119,24 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3953119349696865" target="freeweibo-mirror">SPAM 【佛教重大节日提醒】明天是3月16日（农历二月初八…</a>
 </h2>
 <p>SPAM 【佛教重大节日提醒】明天是3月16日（农历二月初八）恭迎释迦牟尼佛出家日.释迦牟尼佛,原名乔达摩·悉达多,迦毗罗卫国太子.求离苦之道出家,后成就“无上正等正觉”,世尊在世弘法49年示寂.逢此殊胜日,广做功德,回向、祈愿一切有情众生离苦得乐,究竟圆满,世界无有灾厄！南无本师释迦牟尼佛！<br><img src="http://ww4.sinaimg.cn/large/7a32ccbdgw1f1wyjny2zij20j60qm0y0.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3953085959307211" target="freeweibo-mirror">再来一道死活题吧：我们都恨前车突然急刹，这时如果你也急刹，很…</a>
-</h2>
-<p>再来一道死活题吧：我们都恨前车突然急刹，这时如果你也急刹，很可能前车没事，后车追你尾，所以当看到前车急刹时，是否不要刹车，甚至狠狠的撞上去给他一点惩戒呢？</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3953083409233990" target="freeweibo-mirror">SPAM 支持开斗气车觉得好爽的人尽管去开吧，你出事故的时候…</a>
-</h2>
-<p>SPAM 支持开斗气车觉得好爽的人尽管去开吧，你出事故的时候，我会及时减速并远远绕开的，不会因为你违反交规在先就傻到拿我的时间和命去陪你玩的。</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3953080842353743" target="freeweibo-mirror">如果前车违反交规，我就可以撞翻它这成立。那么行人闯红灯，我也…</a>
-</h2>
-<p>如果前车违反交规，我就可以撞翻它这成立。那么行人闯红灯，我也可以撞他。地铁站有人插队，我也可以推他下站台。上公交有人不给老人让座，我就可以号召群众辱骂殴打她。因为“你不仁”，所以“我不义”，这真的是我们要的社会法则吗？</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
