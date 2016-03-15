@@ -24,7 +24,7 @@
 </h2>
 <p>SPAM 万一没错呢[挖鼻]//@梦晨伤: 这就是通稿的魅力所在啊……[兔子]……<br><br>RE: 新华社完了[挖鼻]<br><img src="http://ww4.sinaimg.cn/large/006oMMZhgw1f1x301kcwmj30k00zkwin.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3953241143994298" target="freeweibo-mirror">SPAM 这就是通稿的魅力所在啊……[兔子]……</a>
 </h2>
@@ -66,7 +66,7 @@
 </h2>
 <p>SPAM 支持开斗气车觉得好爽的人尽管去开吧，你出事故的时候，我会及时减速并远远绕开的，不会因为你违反交规在先就傻到拿我的时间和命去陪你玩的。</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3953080842353743" target="freeweibo-mirror">如果前车违反交规，我就可以撞翻它这成立。那么行人闯红灯，我也…</a>
 </h2>
