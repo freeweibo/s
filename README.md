@@ -30,7 +30,7 @@
 </h2>
 <p>无论对他本人的家庭还是社会，都是沉痛的悲剧！ //@刘芮东:发生在山西省，承包煤矿失败，举报村干部们，遭遇报复反击，一夜枪杀14人。<br><br>RE: 胡文海一夜枪杀14人，临刑前的对话。。。深思！ http://t.cn/RG1uekX</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3953600411265600" target="freeweibo-mirror">//@袁国宝: [哈哈]//@后来学的：没按剧本走？也可能是…</a>
 </h2>
@@ -72,7 +72,7 @@
 </h2>
 <p>SPAM 哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈<br><br>RE: 人啊，总是会变成自己最讨厌的人<br><img src="http://ww3.sinaimg.cn/large/6c9e9aa5gw1f1xuy04la1j20k00v9770.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3953571034659362" target="freeweibo-mirror">回复@e点正经:有道理//@e点正经:一个人走到了怎样的绝境…</a>
 </h2>
