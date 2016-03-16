@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3953573202952081" target="freeweibo-mirror">搜狗输入法 ？</a>
+</h2>
+<p>搜狗输入法 ？<br><br>RE: 【多事之秋】新华社的内部调查后倾向认为，导致错误的原因是发稿编辑在改稿时，以拼音输入法输入“最高”(ZG)，手误输入了“最后”（ZH）。这次错误被新华社高层定性为“政治错误”，“影响恶劣” http://t.cn/RGBXVLX<br><img src="http://ww4.sinaimg.cn/large/563a2b53jw1f1ydvw4a6wj20xc0hiwfw.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3953571760081342" target="freeweibo-mirror">SPAM 哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈</a>
 </h2>
 <p>SPAM 哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈<br><br>RE: 人啊，总是会变成自己最讨厌的人<br><img src="http://ww3.sinaimg.cn/large/6c9e9aa5gw1f1xuy04la1j20k00v9770.jpg"></p>
@@ -54,7 +60,7 @@
 </h2>
 <p>SPAM 平顶山估计也快了[熊猫]//@葛陂士张祚臣: //@青岛薛原://@陶然万柳世界://@罗争BJ://@记者-薛洪涛://@腾晓东: 呵，越来越热闹了。 //@USDsir:[哈哈]<br><br>RE: 2016.3.13 湖南 娄底市 涟源市 斗笠山煤业-------全国风起云涌，郁闷<br><img src="http://ww2.sinaimg.cn/large/006pGId1gw1f1xuw22sugj30r10ceter.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3953420731719837" target="freeweibo-mirror">SPAM //@王连军律师://@孟庆泉律师://@山高路远…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3953351131848645" target="freeweibo-mirror">昨天越南大规模反华游行，称中国是侵略者，游行标语称中国是纳粹…</a>
 </h2>
 <p>昨天越南大规模反华游行，称中国是侵略者，游行标语称中国是纳粹德国，毛泽东是希特勒！<br><img src="http://ww3.sinaimg.cn/large/ad7d9a27jw1f1xp4uwb9wj20fa09cmyc.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3953333679539891" target="freeweibo-mirror">柴的官司异常恶毒，她不是告卡玛的影片不真实，而是重点告商标侵…</a>
-</h2>
-<p>柴的官司异常恶毒，她不是告卡玛的影片不真实，而是重点告商标侵权【影片出现柴公司的商标】她也知道肯定告不会赢，她依仗财大气粗想利用官司的高额费用，故意拖延官司的时间想搞跨一个非盈利性的纪录片制作公司<br><br>RE: 图为当年的“学生领袖”柴某事后在西方接受采访时的话。然后你就知道了，为什么会有那么多人做了炮灰，因为他们的“领袖”需要他们做炮灰。再强调一遍，当年若是我掌权，我一定会铁腕镇压！但希望是一开始就把这几个学生领袖镇压了，后面的悲剧就不会发生了。<br><img src="http://ww2.sinaimg.cn/large/aa657095gw1f1xj0z0fd2j20c03bjaha.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
