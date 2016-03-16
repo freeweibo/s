@@ -48,7 +48,7 @@
 </h2>
 <p>湖南电视台:湖南省委书记徐守盛告诉习主席，反映总书记情系十八洞村歌曲《不知该怎么称呼你》迅速唱响三湘大地，苗族乡亲用最直白语言、最深情旋律，表达他们很质朴感情，唱出他们走在脱贫致富路上的幸福笑脸，唱出他们对党优良作风又回来了的真诚赞许，唱出了他们发自内心感恩共产党的满满的正能量！<br><img src="http://ww2.sinaimg.cn/large/d0781b5djw1f1yxj2tf71j20840c70sw.jpg"></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3953735321500948" target="freeweibo-mirror">SPAM 天天支持</a>
 </h2>
@@ -96,7 +96,7 @@
 </h2>
 <p>: [吃惊]//@鲲鹏男装: 工人运动失败的根本原因是没有党的坚强领导。别问我怎么知道的，历史课上经常分析历史事件，最后分析的结果通常是这个。<br><br>RE: 【中国警方平息双鸭山抗议活动】来自邻近城市的警察封锁了双鸭山市中心，并张贴海报呼吁抓捕至少75名“犯罪分子” （分享自 @FT中文网） http://t.cn/RG1g5HK<br><img src="http://ww3.sinaimg.cn/large/005ODQRDjw1f1xnlnyvhlj30go09ewfq.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3953704908890144" target="freeweibo-mirror">能公布下”罪行”吗//@闵玉平:// @蓝色孤独0914: …</a>
 </h2>
