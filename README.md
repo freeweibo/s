@@ -36,7 +36,7 @@
 </h2>
 <p>3月15日：中宣部关于组织观看《白毛女》的通知<br><img src="http://ww1.sinaimg.cn/large/006pGId1gw1f1xzeyfs3zj30go0m8wfb.jpg"></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3953437282911245" target="freeweibo-mirror">要战就快点战，每一分钟阿尔发狗都在和自己对弈，疯狂进化。而且…</a>
 </h2>
