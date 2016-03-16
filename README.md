@@ -32,6 +32,12 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3953600411265600" target="freeweibo-mirror">//@袁国宝: [哈哈]//@后来学的：没按剧本走？也可能是…</a>
+</h2>
+<p>//@袁国宝: [哈哈]//@后来学的：没按剧本走？也可能是直接说的是里面那件深色上衣。（虽然颜色不那么够深）//@能扯多远就多远: 说好了你不脱衣我不脱稿，咋你先脱了捏？[抓狂]</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3953599140400382" target="freeweibo-mirror">//@逆风蝴蝶:讲到家庭，这人落泪了。良禽择木而栖，君子不立…</a>
 </h2>
 <p>//@逆风蝴蝶:讲到家庭，这人落泪了。良禽择木而栖，君子不立危墙之下，户籍制度是逼人到绝路的一个背景。留得青山在不怕没柴少，秦琼也忍胯下之辱，此人原本应该远避。 //@黄奎ART:转发微博<br><br>RE: 胡文海一夜枪杀14人，临刑前的对话。。。深思！ http://t.cn/RG1uekX</p>
@@ -68,6 +74,12 @@
 <p>
 	<small> ============== 4小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3953571034659362" target="freeweibo-mirror">回复@e点正经:有道理//@e点正经:一个人走到了怎样的绝境…</a>
+</h2>
+<p>回复@e点正经:有道理//@e点正经:一个人走到了怎样的绝境怎样的无助才会如此？一个所谓的`恶人`背后背负着多少委屈无助？不是为这种极端的行为开脱，而是当政者尤其是强权的政府，更应该反思一下。因为淳朴的老百姓会把所有的希望寄托于他们，所以当委屈、冤屈、无助得不到回馈帮助，就会导致绝望。<br><br>RE: 胡文海一夜枪杀14人，临刑前的对话。。。深思！ http://t.cn/RG1uekX</p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3953570908683178" target="freeweibo-mirror">→_→ //@北京大众2015:李凯，48岁，处分是肯定的。</a>
 </h2>
 <p>→_→ //@北京大众2015:李凯，48岁，处分是肯定的。<br><br>RE: 【多事之秋】新华社的内部调查后倾向认为，导致错误的原因是发稿编辑在改稿时，以拼音输入法输入“最高”(ZG)，手误输入了“最后”（ZH）。这次错误被新华社高层定性为“政治错误”，“影响恶劣” http://t.cn/RGBXVLX<br><img src="http://ww4.sinaimg.cn/large/563a2b53jw1f1ydvw4a6wj20xc0hiwfw.jpg"></p>
@@ -91,6 +103,12 @@
 <p>【多事之秋】新华社的内部调查后倾向认为，导致错误的原因是发稿编辑在改稿时，以拼音输入法输入“最高”(ZG)，手误输入了“最后”（ZH）。这次错误被新华社高层定性为“政治错误”，“影响恶劣” http://t.cn/RGBXVLX<br><img src="http://ww4.sinaimg.cn/large/563a2b53jw1f1ydvw4a6wj20xc0hiwfw.jpg"></p>
 <p>
 	<small> ============== 4小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3953531444577718" target="freeweibo-mirror">3月8日的河北团媒体开放日上，河北省委书记赵克志在点名提问媒…</a>
+</h2>
+<p>3月8日的河北团媒体开放日上，河北省委书记赵克志在点名提问媒体时，头也没有抬，照着手下给他的提示纸条念：下面请某排某座的那位穿深色上衣的女记者提问。不巧的是，该名女记者进场后不久就脱下了深色外套，穿了白色上衣……太不配合了，说好的深色上衣呢[笑cry]<br><img src="http://ww3.sinaimg.cn/large/5d7ca92cjw1f1y9t346d2j20c80b6dh4.jpg"></p>
+<p>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3953440181093873" target="freeweibo-mirror">3月15日：中宣部关于组织观看《白毛女》的通知</a>
 </h2>
@@ -119,24 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3953420731719837" target="freeweibo-mirror">SPAM //@王连军律师://@孟庆泉律师://@山高路远…</a>
 </h2>
 <p>SPAM //@王连军律师://@孟庆泉律师://@山高路远N://@二月的风清://@见雨听风N://@神鸟sun:晒吧，只能晒了[蜡烛]//@张云磊33://@师太无迹:欠薪不是罪，讨薪就是罪？[怒]//@猎人瓦西里:肯定是那傻逼省长大发雷霆，马上就行动了//@师太无迹:这么快就定罪了？[吃惊]//@猎人瓦西里:混帐<br><br>RE: 霜鸭删开始对矿工讨薪事件打击报复了，这才春天就开始算账。官方通报里有两项罪名有意思：串联、挑事。可笑之极。为达到讨薪目的矿工当然要联合起来嗓门大，难不成你让矿工一个人跑大街上吆喝？管用吗？挑事罪名更搞笑，别说讨薪是挑事，骂你省长大人一句傻逼也是挑事，什么叫挑事？说白了就是让你省长...全文： http://m.weibo.cn/5611061968/3953201809860680</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3953419167200475" target="freeweibo-mirror">SPAM 恭喜大家！@NATUNA童装 3月22日新品发布，…</a>
-</h2>
-<p>SPAM 恭喜大家！@NATUNA童装 3月22日新品发布，值得期待[心]故意跟iphone春季发布会同一[doge] //@NATUNA童装:最后一天的中奖名额为：@神的孩子们在午睡，@唐山小龚 ，@杨小阳o_o，@晨菲麻麻，@Arusabeth，恭喜你们！请私信我们您的地址和宝宝性别！#NATUNA送开衫#活动结束！感谢大家的支持，谢谢关注！</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3953401840268529" target="freeweibo-mirror">SPAM [笑cry][笑cry][笑cry]//@创业家传…</a>
-</h2>
-<p>SPAM [笑cry][笑cry][笑cry]//@创业家传媒: [笑cry][笑cry][笑cry]//@互联网的那点事: [笑cry][笑cry][笑cry]<br><br>RE: 把企业名称填到许可证号里，肯定是搜不到的吧……#315晚会#<br><img src="http://ww1.sinaimg.cn/large/7e948b4djw1f1xum4bz5yj20m80c1gmq.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3953401429171476" target="freeweibo-mirror">SPAM //@刘子新少爷:哈哈哈 //@刘咚咚:23333…</a>
-</h2>
-<p>SPAM //@刘子新少爷:哈哈哈 //@刘咚咚:233333 //@股社区:hahahahaha[笑cry][笑cry][笑cry][笑cry][笑cry]笑的我泪花都出来了<br><br>RE: 把企业名称填到许可证号里，肯定是搜不到的吧……#315晚会#<br><img src="http://ww1.sinaimg.cn/large/7e948b4djw1f1xum4bz5yj20m80c1gmq.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
