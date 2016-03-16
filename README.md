@@ -20,6 +20,24 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3953571760081342" target="freeweibo-mirror">SPAM 哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈</a>
+</h2>
+<p>SPAM 哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈<br><br>RE: 人啊，总是会变成自己最讨厌的人<br><img src="http://ww3.sinaimg.cn/large/6c9e9aa5gw1f1xuy04la1j20k00v9770.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3953570908683178" target="freeweibo-mirror">→_→ //@北京大众2015:李凯，48岁，处分是肯定的。</a>
+</h2>
+<p>→_→ //@北京大众2015:李凯，48岁，处分是肯定的。<br><br>RE: 【多事之秋】新华社的内部调查后倾向认为，导致错误的原因是发稿编辑在改稿时，以拼音输入法输入“最高”(ZG)，手误输入了“最后”（ZH）。这次错误被新华社高层定性为“政治错误”，“影响恶劣” http://t.cn/RGBXVLX<br><img src="http://ww4.sinaimg.cn/large/563a2b53jw1f1ydvw4a6wj20xc0hiwfw.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3953440181093873" target="freeweibo-mirror">3月15日：中宣部关于组织观看《白毛女》的通知</a>
+</h2>
+<p>3月15日：中宣部关于组织观看《白毛女》的通知<br><img src="http://ww1.sinaimg.cn/large/006pGId1gw1f1xzeyfs3zj30go0m8wfb.jpg"></p>
+<p>
+	<small> ============== 10小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3953437282911245" target="freeweibo-mirror">要战就快点战，每一分钟阿尔发狗都在和自己对弈，疯狂进化。而且…</a>
 </h2>
 <p>要战就快点战，每一分钟阿尔发狗都在和自己对弈，疯狂进化。而且它很快就要改行去玩星际争霸了。//@柯洁大棋渣: 为了围棋职业棋手尊严，全力一战！</p>
@@ -30,7 +48,7 @@
 </h2>
 <p>SPAM 平顶山估计也快了[熊猫]//@葛陂士张祚臣: //@青岛薛原://@陶然万柳世界://@罗争BJ://@记者-薛洪涛://@腾晓东: 呵，越来越热闹了。 //@USDsir:[哈哈]<br><br>RE: 2016.3.13 湖南 娄底市 涟源市 斗笠山煤业-------全国风起云涌，郁闷<br><img src="http://ww2.sinaimg.cn/large/006pGId1gw1f1xuw22sugj30r10ceter.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3953420731719837" target="freeweibo-mirror">SPAM //@王连军律师://@孟庆泉律师://@山高路远…</a>
 </h2>
@@ -119,24 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3953330663688574" target="freeweibo-mirror">回复@花开梅陇:我写过不少这方面的文章，国内不适合转发。89…</a>
 </h2>
 <p>回复@花开梅陇:我写过不少这方面的文章，国内不适合转发。89年的中国失去了一次难得的机遇，主要不怪学生，学生被不同势力利用才可能如此久的占据舞台，群众运动是逆淘汰，死伤的无一个学生领袖，乌尔开溜跑的比兔子还快。<br><br>RE: 图为当年的“学生领袖”柴某事后在西方接受采访时的话。然后你就知道了，为什么会有那么多人做了炮灰，因为他们的“领袖”需要他们做炮灰。再强调一遍，当年若是我掌权，我一定会铁腕镇压！但希望是一开始就把这几个学生领袖镇压了，后面的悲剧就不会发生了。<br><img src="http://ww2.sinaimg.cn/large/aa657095gw1f1xj0z0fd2j20c03bjaha.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3953327648207569" target="freeweibo-mirror">//@手背风迎8: // //@一品泥人://@河南马氏庄园…</a>
-</h2>
-<p>//@手背风迎8: // //@一品泥人://@河南马氏庄园://@对立至统一://@新新世界的微博: [鼓掌]//@孔智勇_: //@逃亡泰国: 风起云涌，维稳高于一切的今天！请记住“……你有把枪口抬高一厘米的主权，这是你应主动承担的良心义务。这个世界，在法律之外还有‘良知’。当法律和良知冲突之时<br><br>RE: 可爱的同胞！谁再说国人奴性太深，看看这视频。 http://t.cn/RG1n5NZ .</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3953326280902593" target="freeweibo-mirror">回复@波斯小昭: 【片中这个女的还威胁要告此片的导演，最后不…</a>
-</h2>
-<p>回复@波斯小昭: 【片中这个女的还威胁要告此片的导演，最后不了了之】？不是不了了之，的确告到法院，是这个女的输了官司，这部影片至今仍然在美国很多大学里作为教材使用。<br><br>RE: 图为当年的“学生领袖”柴某事后在西方接受采访时的话。然后你就知道了，为什么会有那么多人做了炮灰，因为他们的“领袖”需要他们做炮灰。再强调一遍，当年若是我掌权，我一定会铁腕镇压！但希望是一开始就把这几个学生领袖镇压了，后面的悲剧就不会发生了。<br><img src="http://ww2.sinaimg.cn/large/aa657095gw1f1xj0z0fd2j20c03bjaha.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3953316456723406" target="freeweibo-mirror">//@活得精彩才能死得瞑目:哇，这还是共产党领导下的蓝蓝的天…</a>
-</h2>
-<p>//@活得精彩才能死得瞑目:哇，这还是共产党领导下的蓝蓝的天吗？双鸭山的市政府想独立吗？<br><br>RE: 有网友晒图，高速被封了。双鸭山<br><img src="http://ww2.sinaimg.cn/large/afb3120fgw1f1xj4gbf1qj20qo1bf419.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
