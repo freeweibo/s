@@ -24,7 +24,7 @@
 </h2>
 <p>要战就快点战，每一分钟阿尔发狗都在和自己对弈，疯狂进化。而且它很快就要改行去玩星际争霸了。//@柯洁大棋渣: 为了围棋职业棋手尊严，全力一战！</p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3953423835325293" target="freeweibo-mirror">SPAM 平顶山估计也快了[熊猫]//@葛陂士张祚臣: //…</a>
 </h2>
@@ -72,7 +72,7 @@
 </h2>
 <p>把企业名称填到许可证号里，肯定是搜不到的吧……#315晚会#<br><img src="http://ww1.sinaimg.cn/large/7e948b4djw1f1xum4bz5yj20m80c1gmq.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3953388137661263" target="freeweibo-mirror">居然</a>
 </h2>
