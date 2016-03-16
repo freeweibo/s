@@ -24,7 +24,7 @@
 </h2>
 <p>搜狗输入法 ？<br><br>RE: 【多事之秋】新华社的内部调查后倾向认为，导致错误的原因是发稿编辑在改稿时，以拼音输入法输入“最高”(ZG)，手误输入了“最后”（ZH）。这次错误被新华社高层定性为“政治错误”，“影响恶劣” http://t.cn/RGBXVLX<br><img src="http://ww4.sinaimg.cn/large/563a2b53jw1f1ydvw4a6wj20xc0hiwfw.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3953571760081342" target="freeweibo-mirror">SPAM 哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈</a>
 </h2>
@@ -54,7 +54,7 @@
 </h2>
 <p>要战就快点战，每一分钟阿尔发狗都在和自己对弈，疯狂进化。而且它很快就要改行去玩星际争霸了。//@柯洁大棋渣: 为了围棋职业棋手尊严，全力一战！</p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3953423835325293" target="freeweibo-mirror">SPAM 平顶山估计也快了[熊猫]//@葛陂士张祚臣: //…</a>
 </h2>
