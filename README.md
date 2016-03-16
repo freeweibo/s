@@ -32,6 +32,12 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3953565922411800" target="freeweibo-mirror">【多事之秋】新华社的内部调查后倾向认为，导致错误的原因是发稿…</a>
+</h2>
+<p>【多事之秋】新华社的内部调查后倾向认为，导致错误的原因是发稿编辑在改稿时，以拼音输入法输入“最高”(ZG)，手误输入了“最后”（ZH）。这次错误被新华社高层定性为“政治错误”，“影响恶劣” http://t.cn/RGBXVLX<br><img src="http://ww4.sinaimg.cn/large/563a2b53jw1f1ydvw4a6wj20xc0hiwfw.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3953440181093873" target="freeweibo-mirror">3月15日：中宣部关于组织观看《白毛女》的通知</a>
 </h2>
 <p>3月15日：中宣部关于组织观看《白毛女》的通知<br><img src="http://ww1.sinaimg.cn/large/006pGId1gw1f1xzeyfs3zj30go0m8wfb.jpg"></p>
@@ -71,6 +77,12 @@
 	<a href="https://freeweibo.com/weibo/3953401429171476" target="freeweibo-mirror">SPAM //@刘子新少爷:哈哈哈 //@刘咚咚:23333…</a>
 </h2>
 <p>SPAM //@刘子新少爷:哈哈哈 //@刘咚咚:233333 //@股社区:hahahahaha[笑cry][笑cry][笑cry][笑cry][笑cry]笑的我泪花都出来了<br><br>RE: 把企业名称填到许可证号里，肯定是搜不到的吧……#315晚会#<br><img src="http://ww1.sinaimg.cn/large/7e948b4djw1f1xum4bz5yj20m80c1gmq.jpg"></p>
+<p>
+	<small> ============== 1天前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3953401001780671" target="freeweibo-mirror">人啊，总是会变成自己最讨厌的人</a>
+</h2>
+<p>人啊，总是会变成自己最讨厌的人<br><img src="http://ww3.sinaimg.cn/large/6c9e9aa5gw1f1xuy04la1j20k00v9770.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p><h2>
@@ -125,18 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3953333679539891" target="freeweibo-mirror">柴的官司异常恶毒，她不是告卡玛的影片不真实，而是重点告商标侵…</a>
 </h2>
 <p>柴的官司异常恶毒，她不是告卡玛的影片不真实，而是重点告商标侵权【影片出现柴公司的商标】她也知道肯定告不会赢，她依仗财大气粗想利用官司的高额费用，故意拖延官司的时间想搞跨一个非盈利性的纪录片制作公司<br><br>RE: 图为当年的“学生领袖”柴某事后在西方接受采访时的话。然后你就知道了，为什么会有那么多人做了炮灰，因为他们的“领袖”需要他们做炮灰。再强调一遍，当年若是我掌权，我一定会铁腕镇压！但希望是一开始就把这几个学生领袖镇压了，后面的悲剧就不会发生了。<br><img src="http://ww2.sinaimg.cn/large/aa657095gw1f1xj0z0fd2j20c03bjaha.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3953330679810837" target="freeweibo-mirror">结果让远牧师xx了[笑哈哈] //@痞子王不懂爱:可恨之人必…</a>
-</h2>
-<p>结果让远牧师xx了[笑哈哈] //@痞子王不懂爱:可恨之人必食可悲之果 //@张鹤慈:回复@波斯小昭: 【片中这个女的还威胁要告此片的导演，最后不了了之】？不是不了了之，的确告到法院，是这个女的输了官司，这部影片至今仍然在美国很多大学里作为教材使用。<br><br>RE: 图为当年的“学生领袖”柴某事后在西方接受采访时的话。然后你就知道了，为什么会有那么多人做了炮灰，因为他们的“领袖”需要他们做炮灰。再强调一遍，当年若是我掌权，我一定会铁腕镇压！但希望是一开始就把这几个学生领袖镇压了，后面的悲剧就不会发生了。<br><img src="http://ww2.sinaimg.cn/large/aa657095gw1f1xj0z0fd2j20c03bjaha.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3953330663688574" target="freeweibo-mirror">回复@花开梅陇:我写过不少这方面的文章，国内不适合转发。89…</a>
-</h2>
-<p>回复@花开梅陇:我写过不少这方面的文章，国内不适合转发。89年的中国失去了一次难得的机遇，主要不怪学生，学生被不同势力利用才可能如此久的占据舞台，群众运动是逆淘汰，死伤的无一个学生领袖，乌尔开溜跑的比兔子还快。<br><br>RE: 图为当年的“学生领袖”柴某事后在西方接受采访时的话。然后你就知道了，为什么会有那么多人做了炮灰，因为他们的“领袖”需要他们做炮灰。再强调一遍，当年若是我掌权，我一定会铁腕镇压！但希望是一开始就把这几个学生领袖镇压了，后面的悲剧就不会发生了。<br><img src="http://ww2.sinaimg.cn/large/aa657095gw1f1xj0z0fd2j20c03bjaha.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
