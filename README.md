@@ -54,13 +54,13 @@
 </h2>
 <p>SPAM //@清风竹影55555: ，等着芦荡火种吧。 //@简直:肯定在双鸭儿山首演。支持 //@徐幸起:看个戏要用这样规格的文件通知吗？也许其它几个革命样板戏也要登场了吧？[抓狂]<br><br>RE: 重点推荐，重温经典，希望大家多多支持《白毛女》3D！[嘻嘻]<br><img src="http://ww2.sinaimg.cn/large/a02164b7jw1f1xyvw5snij20zk0qowgw.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3953592920862148" target="freeweibo-mirror">SPAM 这是要跟《疯狂动物城》抢票房吗？[偷笑]//@简直…</a>
 </h2>
 <p>SPAM 这是要跟《疯狂动物城》抢票房吗？[偷笑]//@简直:肯定在双鸭儿山首演。支持 //@徐幸起:看个戏要用这样规格的文件通知吗？也许其它几个革命样板戏也要登场了吧？[抓狂]<br><br>RE: 重点推荐，重温经典，希望大家多多支持《白毛女》3D！[嘻嘻]<br><img src="http://ww2.sinaimg.cn/large/a02164b7jw1f1xyvw5snij20zk0qowgw.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3953573202952081" target="freeweibo-mirror">搜狗输入法 ？</a>
 </h2>
