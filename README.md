@@ -24,7 +24,7 @@
 </h2>
 <p>公知的前身啊 //@财经女作家:毛泽东是中国最大的公知！[笑cry]</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3953601569108115" target="freeweibo-mirror">无论对他本人的家庭还是社会，都是沉痛的悲剧！ //@刘芮东:…</a>
 </h2>
