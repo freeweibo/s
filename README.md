@@ -20,6 +20,30 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3953599140400382" target="freeweibo-mirror">//@逆风蝴蝶:讲到家庭，这人落泪了。良禽择木而栖，君子不立…</a>
+</h2>
+<p>//@逆风蝴蝶:讲到家庭，这人落泪了。良禽择木而栖，君子不立危墙之下，户籍制度是逼人到绝路的一个背景。留得青山在不怕没柴少，秦琼也忍胯下之辱，此人原本应该远避。 //@黄奎ART:转发微博<br><br>RE: 胡文海一夜枪杀14人，临刑前的对话。。。深思！ http://t.cn/RG1uekX</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3953598944193988" target="freeweibo-mirror">讲到家庭，这人落泪了。良禽择木而栖，君子不立危墙之下，户籍制…</a>
+</h2>
+<p>讲到家庭，这人落泪了。良禽择木而栖，君子不立危墙之下，户籍制度是逼人到绝路的一个背景。留得青山在不怕没柴少，秦琼也忍胯下之辱，此人原本应该远避。 //@黄奎ART:转发微博<br><br>RE: 胡文海一夜枪杀14人，临刑前的对话。。。深思！ http://t.cn/RG1uekX</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3953593361040060" target="freeweibo-mirror">SPAM //@清风竹影55555: ，等着芦荡火种吧。 /…</a>
+</h2>
+<p>SPAM //@清风竹影55555: ，等着芦荡火种吧。 //@简直:肯定在双鸭儿山首演。支持 //@徐幸起:看个戏要用这样规格的文件通知吗？也许其它几个革命样板戏也要登场了吧？[抓狂]<br><br>RE: 重点推荐，重温经典，希望大家多多支持《白毛女》3D！[嘻嘻]<br><img src="http://ww2.sinaimg.cn/large/a02164b7jw1f1xyvw5snij20zk0qowgw.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3953592920862148" target="freeweibo-mirror">SPAM 这是要跟《疯狂动物城》抢票房吗？[偷笑]//@简直…</a>
+</h2>
+<p>SPAM 这是要跟《疯狂动物城》抢票房吗？[偷笑]//@简直:肯定在双鸭儿山首演。支持 //@徐幸起:看个戏要用这样规格的文件通知吗？也许其它几个革命样板戏也要登场了吧？[抓狂]<br><br>RE: 重点推荐，重温经典，希望大家多多支持《白毛女》3D！[嘻嘻]<br><img src="http://ww2.sinaimg.cn/large/a02164b7jw1f1xyvw5snij20zk0qowgw.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3953573202952081" target="freeweibo-mirror">搜狗输入法 ？</a>
 </h2>
 <p>搜狗输入法 ？<br><br>RE: 【多事之秋】新华社的内部调查后倾向认为，导致错误的原因是发稿编辑在改稿时，以拼音输入法输入“最高”(ZG)，手误输入了“最后”（ZH）。这次错误被新华社高层定性为“政治错误”，“影响恶劣” http://t.cn/RGBXVLX<br><img src="http://ww4.sinaimg.cn/large/563a2b53jw1f1ydvw4a6wj20xc0hiwfw.jpg"></p>
@@ -35,6 +59,12 @@
 	<a href="https://freeweibo.com/weibo/3953570908683178" target="freeweibo-mirror">→_→ //@北京大众2015:李凯，48岁，处分是肯定的。</a>
 </h2>
 <p>→_→ //@北京大众2015:李凯，48岁，处分是肯定的。<br><br>RE: 【多事之秋】新华社的内部调查后倾向认为，导致错误的原因是发稿编辑在改稿时，以拼音输入法输入“最高”(ZG)，手误输入了“最后”（ZH）。这次错误被新华社高层定性为“政治错误”，“影响恶劣” http://t.cn/RGBXVLX<br><img src="http://ww4.sinaimg.cn/large/563a2b53jw1f1ydvw4a6wj20xc0hiwfw.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3953568392329246" target="freeweibo-mirror">SPAM //@乌托邦之田园: //@昕静自然好: !//@…</a>
+</h2>
+<p>SPAM //@乌托邦之田园: //@昕静自然好: !//@章诒和: ！！！<br><br>RE: 胡文海一夜枪杀14人，临刑前的对话。。。深思！ http://t.cn/RG1uekX</p>
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
@@ -107,36 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3953398727952188" target="freeweibo-mirror">把企业名称填到许可证号里，肯定是搜不到的吧……#315晚会#</a>
 </h2>
 <p>把企业名称填到许可证号里，肯定是搜不到的吧……#315晚会#<br><img src="http://ww1.sinaimg.cn/large/7e948b4djw1f1xum4bz5yj20m80c1gmq.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3953388137661263" target="freeweibo-mirror">居然</a>
-</h2>
-<p>居然</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3953383364525604" target="freeweibo-mirror">强烈抗议！//@刘军宁:纳粹也是左派，希同志也是社会主义者 …</a>
-</h2>
-<p>强烈抗议！//@刘军宁:纳粹也是左派，希同志也是社会主义者 //@简直:老毛子扶持的收获很大啊，现在还享受不完的岁贡。//@渡缘养心:仇恨中国的国家越来越多了。<br><br>RE: 昨天越南大规模反华游行，称中国是侵略者，游行标语称中国是纳粹德国，毛泽东是希特勒！<br><img src="http://ww3.sinaimg.cn/large/ad7d9a27jw1f1xp4uwb9wj20fa09cmyc.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3953379099123537" target="freeweibo-mirror">SPAM //@山高路远N: //@二月的风清://@见雨听…</a>
-</h2>
-<p>SPAM //@山高路远N: //@二月的风清://@见雨听风N://@神鸟sun:晒吧，只能晒了[蜡烛]//@张云磊33://@师太无迹:欠薪不是罪，讨薪就是罪？[怒]//@猎人瓦西里:肯定是那傻逼省长大发雷霆，马上就行动了//@师太无迹:这么快就定罪了？[吃惊]//@猎人瓦西里:混帐<br><br>RE: 霜鸭删开始对矿工讨薪事件打击报复了，这才春天就开始算账。官方通报里有两项罪名有意思：串联、挑事。可笑之极。为达到讨薪目的矿工当然要联合起来嗓门大，难不成你让矿工一个人跑大街上吆喝？管用吗？挑事罪名更搞笑，别说讨薪是挑事，骂你省长大人一句傻逼也是挑事，什么叫挑事？说白了就是让你省长...全文： http://m.weibo.cn/5611061968/3953201809860680</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3953372283802011" target="freeweibo-mirror">SPAM 汉语被您如此这般如同朦胧诗般模样使用，不怕祖先来找…</a>
-</h2>
-<p>SPAM 汉语被您如此这般如同朦胧诗般模样使用，不怕祖先来找您麻烦？ //@记者-薛洪涛://@卖火柴的小女孩Angie: //@上海鱼鱼1://@乌托国民16: //@不破楼兰终不还_76246://@大国小屁民003: 欠债还钱天经地义，怎么非法了？[吃惊]<br><br>RE: 你就是说破大天，我也不信讨薪的非法。欠薪合理。你们这样子干，不怕人怨，还不怕天怒吗？<br><img src="http://ww4.sinaimg.cn/large/006oZs3Ujw1f1xdiwwi2yj30h608vq3z.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3953351131848645" target="freeweibo-mirror">昨天越南大规模反华游行，称中国是侵略者，游行标语称中国是纳粹…</a>
-</h2>
-<p>昨天越南大规模反华游行，称中国是侵略者，游行标语称中国是纳粹德国，毛泽东是希特勒！<br><img src="http://ww3.sinaimg.cn/large/ad7d9a27jw1f1xp4uwb9wj20fa09cmyc.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
