@@ -26,6 +26,12 @@
 <p>
 	<small> ============== 1小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3953619487618098" target="freeweibo-mirror">负责最新一期《学苑》的前总编辑刘以正强调，香港未来要如何发展…</a>
+</h2>
+<p>负责最新一期《学苑》的前总编辑刘以正强调，香港未来要如何发展，应由港人定夺，不是梁振英一人说了算。他坦言，在客观环境下“港独”不可行，但并非“知道困难而不做”，他认为，提出“港独”是为争取香港建立民主政府的手段。</p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3953609617895700" target="freeweibo-mirror">SPAM 恶//@knightzorro://@我向八尺捐汽…</a>
 </h2>
 <p>SPAM 恶//@knightzorro://@我向八尺捐汽油://@秋原nrokin:最右的长微博图就是博主文章，帮转，警惕百度//@火狼: 回复@哎呀就玩一下:多谢，扩散。//@哎呀就玩一下:已经制图，应该就是这篇了《再谈百度：KPI、无人机，以及一个必须给父母看的案例》  http://t.cn/RGBAMd9</p>
@@ -73,6 +79,12 @@
 <p>SPAM 这是要跟《疯狂动物城》抢票房吗？[偷笑]//@简直:肯定在双鸭儿山首演。支持 //@徐幸起:看个戏要用这样规格的文件通知吗？也许其它几个革命样板戏也要登场了吧？[抓狂]<br><br>RE: 重点推荐，重温经典，希望大家多多支持《白毛女》3D！[嘻嘻]<br><img src="http://ww2.sinaimg.cn/large/a02164b7jw1f1xyvw5snij20zk0qowgw.jpg"></p>
 <p>
 	<small> ============== 5小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3953578634483218" target="freeweibo-mirror">【港大《学苑》：香港应成为主权国家】“港独”思潮有愈趋严重之…</a>
+</h2>
+<p>【港大《学苑》：香港应成为主权国家】“港独”思潮有愈趋严重之势。香港大学学生会的《学苑》会刊再次触及“港独”议题，刊文主张香港应成为受联合国认可的独立主权国家，建立民主政府，并制订香港宪法。http://t.cn/RGBaFt5<br><img src="http://ww3.sinaimg.cn/large/6298156bgw1f1yeftjsa3j209m0b73zn.jpg"></p>
+<p>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3953573202952081" target="freeweibo-mirror">搜狗输入法 ？</a>
 </h2>
@@ -125,18 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3953440181093873" target="freeweibo-mirror">3月15日：中宣部关于组织观看《白毛女》的通知</a>
 </h2>
 <p>3月15日：中宣部关于组织观看《白毛女》的通知<br><img src="http://ww1.sinaimg.cn/large/006pGId1gw1f1xzeyfs3zj30go0m8wfb.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3953437282911245" target="freeweibo-mirror">要战就快点战，每一分钟阿尔发狗都在和自己对弈，疯狂进化。而且…</a>
-</h2>
-<p>要战就快点战，每一分钟阿尔发狗都在和自己对弈，疯狂进化。而且它很快就要改行去玩星际争霸了。//@柯洁大棋渣: 为了围棋职业棋手尊严，全力一战！</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3953435395566139" target="freeweibo-mirror">重点推荐，重温经典，希望大家多多支持《白毛女》3D！[嘻嘻]</a>
-</h2>
-<p>重点推荐，重温经典，希望大家多多支持《白毛女》3D！[嘻嘻]<br><img src="http://ww2.sinaimg.cn/large/a02164b7jw1f1xyvw5snij20zk0qowgw.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
