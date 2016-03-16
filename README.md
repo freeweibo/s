@@ -54,13 +54,13 @@
 </h2>
 <p>SPAM 哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈<br><br>RE: 人啊，总是会变成自己最讨厌的人<br><img src="http://ww3.sinaimg.cn/large/6c9e9aa5gw1f1xuy04la1j20k00v9770.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3953570908683178" target="freeweibo-mirror">→_→ //@北京大众2015:李凯，48岁，处分是肯定的。</a>
 </h2>
 <p>→_→ //@北京大众2015:李凯，48岁，处分是肯定的。<br><br>RE: 【多事之秋】新华社的内部调查后倾向认为，导致错误的原因是发稿编辑在改稿时，以拼音输入法输入“最高”(ZG)，手误输入了“最后”（ZH）。这次错误被新华社高层定性为“政治错误”，“影响恶劣” http://t.cn/RGBXVLX<br><img src="http://ww4.sinaimg.cn/large/563a2b53jw1f1ydvw4a6wj20xc0hiwfw.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3953570820892086" target="freeweibo-mirror">//@金陵酒徒仓氏: //@张荣奎:那些自以为聪明，能够侵吞…</a>
 </h2>
