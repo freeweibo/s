@@ -132,7 +132,7 @@
 </h2>
 <p>【多事之秋】新华社的内部调查后倾向认为，导致错误的原因是发稿编辑在改稿时，以拼音输入法输入“最高”(ZG)，手误输入了“最后”（ZH）。这次错误被新华社高层定性为“政治错误”，“影响恶劣” http://t.cn/RGBXVLX<br><img src="http://ww4.sinaimg.cn/large/563a2b53jw1f1ydvw4a6wj20xc0hiwfw.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3953531444577718" target="freeweibo-mirror">3月8日的河北团媒体开放日上，河北省委书记赵克志在点名提问媒…</a>
 </h2>
