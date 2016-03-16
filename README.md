@@ -26,6 +26,12 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3953637400512579" target="freeweibo-mirror">【总理记者会】平淡。平庸。旧话多。套话多。缺乏激情。1，大家…</a>
+</h2>
+<p>【总理记者会】平淡。平庸。旧话多。套话多。缺乏激情。1，大家普遍关注中国经济下滑问题。2，养老成为焦点，强哥斩钉截铁说政府不会撒手不管，有记者要求给出时间表。3，提问记者都很乖，无论中外，均无尖锐问题。4，人日记者批评国务会议讨论文物保护议题空泛，总理作了辩解。 http://t.cn/RyhXMbY<br><img src="http://ww2.sinaimg.cn/large/5000af0ajw1f1ym0ryfcyj20nz0hs0ue.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3953619487618098" target="freeweibo-mirror">负责最新一期《学苑》的前总编辑刘以正强调，香港未来要如何发展…</a>
 </h2>
 <p>负责最新一期《学苑》的前总编辑刘以正强调，香港未来要如何发展，应由港人定夺，不是梁振英一人说了算。他坦言，在客观环境下“港独”不可行，但并非“知道困难而不做”，他认为，提出“港独”是为争取香港建立民主政府的手段。</p>
@@ -133,12 +139,6 @@
 <p>3月8日的河北团媒体开放日上，河北省委书记赵克志在点名提问媒体时，头也没有抬，照着手下给他的提示纸条念：下面请某排某座的那位穿深色上衣的女记者提问。不巧的是，该名女记者进场后不久就脱下了深色外套，穿了白色上衣……太不配合了，说好的深色上衣呢[笑cry]<br><img src="http://ww3.sinaimg.cn/large/5d7ca92cjw1f1y9t346d2j20c80b6dh4.jpg"></p>
 <p>
 	<small> ============== 10小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3953440181093873" target="freeweibo-mirror">3月15日：中宣部关于组织观看《白毛女》的通知</a>
-</h2>
-<p>3月15日：中宣部关于组织观看《白毛女》的通知<br><img src="http://ww1.sinaimg.cn/large/006pGId1gw1f1xzeyfs3zj30go0m8wfb.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
 </p>
 <table>
     <tr>
