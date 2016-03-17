@@ -68,6 +68,12 @@
 <p>
 	<small> ============== 1天前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3953727863312020" target="freeweibo-mirror">不娶何撩[拜拜][拜拜]</a>
+</h2>
+<p>不娶何撩[拜拜][拜拜]<br><img src="http://ww2.sinaimg.cn/large/006cwIvSjw1f1ywgvp74ij30hr07bjrr.jpg"></p>
+<p>
+	<small> ============== 1天前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3953714790338643" target="freeweibo-mirror">//@陈光武律师://@杭州萧山王水金2: [话筒][话筒]…</a>
 </h2>
 <p>//@陈光武律师://@杭州萧山王水金2: [话筒][话筒][话筒]//@西子丹67: 转发微博<br><br>RE: 当国人从专制奴役的噩梦中醒来，并意识到自己深陷政治腐败和道德堕落的处境，他们最终会认同以下不证自明之理：人人都有不可剥夺与不可让渡的内在尊严，国家的义务是通过宪法与法律制度尊重与保护人的尊严；对尊严的任何践踏都是不合法的，一个长期践踏尊严的政府则是一个不合法的政府。——张千帆<br><img src="http://ww2.sinaimg.cn/large/9cd221f1gw1f1yofdk1gpj20dw098q3j.jpg"></p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3953691164301390" target="freeweibo-mirror">回复@王宝青:那时候俺也养狗，俺的狗不咬要饭花子，只咬欺负俺…</a>
 </h2>
 <p>回复@王宝青:那时候俺也养狗，俺的狗不咬要饭花子，只咬欺负俺的人。 //@王宝青:回复@晓雨闻铃:那时不想给要饭吃的人家就养大狗，来要饭的就咬，一般穷人家养不起狗，狗也吃粮食啊 //@晓雨闻铃:为什么不用当地警力？ //@长余量化对冲投资: //@吴贤毅_在上海: 搞定！ //@浔阳女高音123:<br><br>RE: 【中国警方平息双鸭山抗议活动】来自邻近城市的警察封锁了双鸭山市中心，并张贴海报呼吁抓捕至少75名“犯罪分子” （分享自 @FT中文网） http://t.cn/RG1g5HK<br><img src="http://ww3.sinaimg.cn/large/005ODQRDjw1f1xnlnyvhlj30go09ewfq.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3953687414687511" target="freeweibo-mirror">回复@王宝青:[赞]记得小时候我奶奶遇到有要饭的敲门的时候，…</a>
-</h2>
-<p>回复@王宝青:[赞]记得小时候我奶奶遇到有要饭的敲门的时候，总是尽量把新鲜饭给要饭的吃，自家人多吃些剩饭。 //@晓雨闻铃:为什么不用当地警力？ //@长余量化对冲投资: //@吴贤毅_在上海: 搞定！ //@浔阳女高音123: //@小尧JC:转发微博<br><br>RE: 【中国警方平息双鸭山抗议活动】来自邻近城市的警察封锁了双鸭山市中心，并张贴海报呼吁抓捕至少75名“犯罪分子” （分享自 @FT中文网） http://t.cn/RG1g5HK<br><img src="http://ww3.sinaimg.cn/large/005ODQRDjw1f1xnlnyvhlj30go09ewfq.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
