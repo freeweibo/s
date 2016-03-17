@@ -102,7 +102,7 @@
 </h2>
 <p>代婊们开完两会，纷纷回国了。海关已经开辟快速通道，以便代婊们快速回到邪路国家。<br><img src="http://ww3.sinaimg.cn/large/006p0Mw4jw1f1zqbao3blj30qo0zk77e.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3953986103373536" target="freeweibo-mirror">SPAM 一个90后女孩靠自己的努力成为小富婆“她说努力挣钱…</a>
 </h2>
