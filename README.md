@@ -36,7 +36,7 @@
 </h2>
 <p>SPAM 马//@蛇精病学姐:后续更精彩，建议先马后看！</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3954048950568276" target="freeweibo-mirror">SPAM 轉貼明報。[吃惊]記者拍孟建柱，保安：信不信我弄死…</a>
 </h2>
@@ -48,7 +48,7 @@
 </h2>
 <p>SPAM //@粉色信笺: 阅读全文请看文章最下图，后续更精彩！</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3954037319085104" target="freeweibo-mirror">//@火旺世家: 特权无处不在[怒骂][怒骂][弱]//@刘…</a>
 </h2>
