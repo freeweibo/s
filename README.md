@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3954135260927149" target="freeweibo-mirror">判决的社会效果为负。//@凉水一盏泡清茶：作为一个基层法院人…</a>
+</h2>
+<p>判决的社会效果为负。//@凉水一盏泡清茶：作为一个基层法院人，虽然觉得阆中法院对违法维权进行适当惩处于法有据，但还是同意吴教授的质疑，同时亦反对对他们的这种公判。只想说阆中法院的领导们在处理这案子的时候可能在发烧头晕。<br><br>RE: 我当然反对以过激的方式讨薪，但恶意欠薪已经入刑的情况下，当地政府为什么让讨薪行为发生呢？就不能及时督促给农民工支付工资，让他们根本就不需要讨呢？这样以公判大会的形式打击非法讨薪，怎么没见你们如此严厉打击恶意欠薪呢？法治中国的口号下还出现这种公判大会，本身是对法治的巨大嘲讽！失分！<br><img src="http://ww2.sinaimg.cn/large/53c7cd33jw1f2017ma1dhj20qo1bgk1h.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3954115576985644" target="freeweibo-mirror">SPAM YJGMJ,VB我就问下那个好友搜索“电影大尺度”…</a>
 </h2>
 <p>SPAM YJGMJ,VB我就问下那个好友搜索“电影大尺度”是谁搜的gif[doge][汗][doge]限制级，是vVjfTwHDRuwVHcpajjcm<br><img src="http://ww2.sinaimg.cn/large/9574d8b0gw1f1m7u4yotbj20k00u00up.jpg"></p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3953742098911045" target="freeweibo-mirror">//@蒲子里的二流子:习大大爱着彭麻麻http://t.cn…</a>
 </h2>
 <p>//@蒲子里的二流子:习大大爱着彭麻麻http://t.cn/Rzc0qyz（分享自@虾米音乐）//@黑夜已深-白昼将近:还有一首《要嫁就嫁习大大这样的人》！<br><br>RE: 湖南电视台:湖南省委书记徐守盛告诉习主席，反映总书记情系十八洞村歌曲《不知该怎么称呼你》迅速唱响三湘大地，苗族乡亲用最直白语言、最深情旋律，表达他们很质朴感情，唱出他们走在脱贫致富路上的幸福笑脸，唱出他们对党优良作风又回来了的真诚赞许，唱出了他们发自内心感恩共产党的满满的正能量！<br><img src="http://ww2.sinaimg.cn/large/d0781b5djw1f1yxj2tf71j20840c70sw.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3953736966145482" target="freeweibo-mirror">湖南电视台:湖南省委书记徐守盛告诉习主席，反映总书记情系十八…</a>
-</h2>
-<p>湖南电视台:湖南省委书记徐守盛告诉习主席，反映总书记情系十八洞村歌曲《不知该怎么称呼你》迅速唱响三湘大地，苗族乡亲用最直白语言、最深情旋律，表达他们很质朴感情，唱出他们走在脱贫致富路上的幸福笑脸，唱出他们对党优良作风又回来了的真诚赞许，唱出了他们发自内心感恩共产党的满满的正能量！<br><img src="http://ww2.sinaimg.cn/large/d0781b5djw1f1yxj2tf71j20840c70sw.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
