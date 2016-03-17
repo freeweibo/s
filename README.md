@@ -42,7 +42,7 @@
 </h2>
 <p>//@奋斗青年张珑耀: 转发微博<br><br>RE: 领导没让你脱，你怎么就脱了呢？<br><img src="http://ww3.sinaimg.cn/large/c72b9682jw1f1yjne8m7rj20go0jidi8.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3953948932875884" target="freeweibo-mirror">这种蠢货也算是做过记者？举了三个例子都能完全不靠边儿，一个是…</a>
 </h2>
