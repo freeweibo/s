@@ -54,7 +54,7 @@
 </h2>
 <p>依法治国了，该怎么办呢？//@倪文涛2016: 转发微博</p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3954115576985644" target="freeweibo-mirror">SPAM YJGMJ,VB我就问下那个好友搜索“电影大尺度”…</a>
 </h2>
@@ -120,7 +120,7 @@
 </h2>
 <p>SPAM 轉貼明報。[吃惊]記者拍孟建柱，保安：信不信我弄死你<br><img src="http://ww1.sinaimg.cn/large/66e24a02jw1f1zxcv3nwsj20f00qotdf.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3954043556683086" target="freeweibo-mirror">SPAM //@粉色信笺: 阅读全文请看文章最下图，后续更精…</a>
 </h2>
