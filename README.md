@@ -26,6 +26,12 @@
 <p>
 	<small> ============== 1小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3953948932875884" target="freeweibo-mirror">这种蠢货也算是做过记者？举了三个例子都能完全不靠边儿，一个是…</a>
+</h2>
+<p>这种蠢货也算是做过记者？举了三个例子都能完全不靠边儿，一个是记者职责、一个是行业自律、一个是职业素质，拌三丝都能让他拌进来扫帚苗。还跑口，跑口的意思不是让你去舔，是行业熟悉能问出问题，不然要你做啥？这种人不该做记者，直接做小M合适，捆绑拿小鞭子一抽，马上就喷水高潮。<br><img src="http://ww1.sinaimg.cn/large/5809ec90gw1f1zlp8bzc2j20qo1bgth8.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3953778329960419" target="freeweibo-mirror">SPAM gghjn谁有百度云[挖鼻]资源你懂的～[发红包啦…</a>
 </h2>
 <p>SPAM gghjn谁有百度云[挖鼻]资源你懂的～[发红包啦][哆啦A梦微笑]dnkd黑丝袜为了满足需要ghh<br><img src="http://ww1.sinaimg.cn/large/873e52f0jw1f1z29q7ipgj20gv0u0di9.jpg"></p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3953687414687511" target="freeweibo-mirror">回复@王宝青:[赞]记得小时候我奶奶遇到有要饭的敲门的时候，…</a>
 </h2>
 <p>回复@王宝青:[赞]记得小时候我奶奶遇到有要饭的敲门的时候，总是尽量把新鲜饭给要饭的吃，自家人多吃些剩饭。 //@晓雨闻铃:为什么不用当地警力？ //@长余量化对冲投资: //@吴贤毅_在上海: 搞定！ //@浔阳女高音123: //@小尧JC:转发微博<br><br>RE: 【中国警方平息双鸭山抗议活动】来自邻近城市的警察封锁了双鸭山市中心，并张贴海报呼吁抓捕至少75名“犯罪分子” （分享自 @FT中文网） http://t.cn/RG1g5HK<br><img src="http://ww3.sinaimg.cn/large/005ODQRDjw1f1xnlnyvhlj30go09ewfq.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3953685987946690" target="freeweibo-mirror">被官方称为改革开放的总设计师邓小平为我国发展进步做出了巨大贡…</a>
-</h2>
-<p>被官方称为改革开放的总设计师邓小平为我国发展进步做出了巨大贡献，功劳卓著。但当时并没有搞他的个人崇拜。没有为他铸造像章，没有为他谱写颂歌，没有在公众场合摆放他的画像，没有喊他万岁，没有姑娘唱嫁人就要嫁给他。也没人喊他大大。他自称是中国人民的儿子，视人民为父母。就这点来说值得尊敬</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
