@@ -30,7 +30,7 @@
 </h2>
 <p>SPAM //@粉色信笺: 阅读全文请看文章最下图，后续更精彩！</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3953994416012566" target="freeweibo-mirror">SPAM 马//@南穑:故事非常虐心 情节曲折离奇 文章较长…</a>
 </h2>
