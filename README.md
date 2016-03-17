@@ -36,7 +36,7 @@
 </h2>
 <p>SPAM 轉貼明報。[吃惊]記者拍孟建柱，保安：信不信我弄死你<br><img src="http://ww1.sinaimg.cn/large/66e24a02jw1f1zxcv3nwsj20f00qotdf.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3954043556683086" target="freeweibo-mirror">SPAM //@粉色信笺: 阅读全文请看文章最下图，后续更精…</a>
 </h2>
@@ -60,7 +60,7 @@
 </h2>
 <p>代婊们开完两会，纷纷回国了。海关已经开辟快速通道，以便代婊们快速回到邪路国家。<br><img src="http://ww3.sinaimg.cn/large/006p0Mw4jw1f1zqbao3blj30qo0zk77e.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3953986103373536" target="freeweibo-mirror">SPAM 一个90后女孩靠自己的努力成为小富婆“她说努力挣钱…</a>
 </h2>
