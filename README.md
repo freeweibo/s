@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3954076796451267" target="freeweibo-mirror">SPAM [心]粉丝福利[心]转发此微博关注VXIN: rr…</a>
+</h2>
+<p>SPAM [心]粉丝福利[心]转发此微博关注VXIN: rrrrrr222333，截图发给他就可参加抽奖，奖品3名100元现金红包。@GaryWang潮流购<br><img src="http://ww3.sinaimg.cn/large/70623bbbgw1f1zyc362f9j20sy0kujya.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3954060640406782" target="freeweibo-mirror">[心][心]</a>
 </h2>
 <p>[心][心]</p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3953714790338643" target="freeweibo-mirror">//@陈光武律师://@杭州萧山王水金2: [话筒][话筒]…</a>
 </h2>
 <p>//@陈光武律师://@杭州萧山王水金2: [话筒][话筒][话筒]//@西子丹67: 转发微博<br><br>RE: 当国人从专制奴役的噩梦中醒来，并意识到自己深陷政治腐败和道德堕落的处境，他们最终会认同以下不证自明之理：人人都有不可剥夺与不可让渡的内在尊严，国家的义务是通过宪法与法律制度尊重与保护人的尊严；对尊严的任何践踏都是不合法的，一个长期践踏尊严的政府则是一个不合法的政府。——张千帆<br><img src="http://ww2.sinaimg.cn/large/9cd221f1gw1f1yofdk1gpj20dw098q3j.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3953714693232465" target="freeweibo-mirror">当时党内有规定，禁止一切形式的个人崇拜。江时代，规定逐渐不那…</a>
-</h2>
-<p>当时党内有规定，禁止一切形式的个人崇拜。江时代，规定逐渐不那么严格，再后来…<br><br>RE: 被官方称为改革开放的总设计师邓小平为我国发展进步做出了巨大贡献，功劳卓著。但当时并没有搞他的个人崇拜。没有为他铸造像章，没有为他谱写颂歌，没有在公众场合摆放他的画像，没有喊他万岁，没有姑娘唱嫁人就要嫁给他。也没人喊他大大。他自称是中国人民的儿子，视人民为父母。就这点来说值得尊敬</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
