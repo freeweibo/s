@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3954048950568276" target="freeweibo-mirror">SPAM 轉貼明報。[吃惊]記者拍孟建柱，保安：信不信我弄死…</a>
+</h2>
+<p>SPAM 轉貼明報。[吃惊]記者拍孟建柱，保安：信不信我弄死你<br><img src="http://ww1.sinaimg.cn/large/66e24a02jw1f1zxcv3nwsj20f00qotdf.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3954043556683086" target="freeweibo-mirror">SPAM //@粉色信笺: 阅读全文请看文章最下图，后续更精…</a>
 </h2>
 <p>SPAM //@粉色信笺: 阅读全文请看文章最下图，后续更精彩！</p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3953708829993749" target="freeweibo-mirror">//@谓贤之声: //@章诒和: //@千里蜀黍: 内谁，您…</a>
 </h2>
 <p>//@谓贤之声: //@章诒和: //@千里蜀黍: 内谁，您感觉呢？<br><br>RE: 被官方称为改革开放的总设计师邓小平为我国发展进步做出了巨大贡献，功劳卓著。但当时并没有搞他的个人崇拜。没有为他铸造像章，没有为他谱写颂歌，没有在公众场合摆放他的画像，没有喊他万岁，没有姑娘唱嫁人就要嫁给他。也没人喊他大大。他自称是中国人民的儿子，视人民为父母。就这点来说值得尊敬</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3953706145845414" target="freeweibo-mirror">: [吃惊]//@鲲鹏男装: 工人运动失败的根本原因是没有党…</a>
-</h2>
-<p>: [吃惊]//@鲲鹏男装: 工人运动失败的根本原因是没有党的坚强领导。别问我怎么知道的，历史课上经常分析历史事件，最后分析的结果通常是这个。<br><br>RE: 【中国警方平息双鸭山抗议活动】来自邻近城市的警察封锁了双鸭山市中心，并张贴海报呼吁抓捕至少75名“犯罪分子” （分享自 @FT中文网） http://t.cn/RG1g5HK<br><img src="http://ww3.sinaimg.cn/large/005ODQRDjw1f1xnlnyvhlj30go09ewfq.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
