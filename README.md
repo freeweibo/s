@@ -54,7 +54,7 @@
 </h2>
 <p>//@杜建国微博:贺卫方，当初你可是反对“恶意欠薪入刑”、反对劳动合同法的。你当完了婊子，又来立牌坊了，你当完了无良老板的喉舌，又来工人这里赚好了。<br><br>RE: 【法治准则】1）这种公判大会严重侵犯公民人格尊严；2）企业恶意欠薪，违反劳动法甚至构成恶意欠薪罪，阆中政府是否尽了督促责任，如构成犯罪，执法司法机关何以不作为？3）宪法规定公民有游行示威权利，阆中为此提供实现条件否？附：四川阆中举行公判大会 8名民工获刑 http://t.cn/RGriuIx<br><img src="http://ww3.sinaimg.cn/large/48866320jw1f209xp173pj20g40aa75r.jpg"></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3954410113726823" target="freeweibo-mirror">真是让人绝望啊！ //@青菜豆腐女:：警察护航老赖，手铐锁住…</a>
 </h2>
@@ -73,6 +73,12 @@
 <p>听见口号是“人民警察爱人民”。 //@茶人悟茶:去产能。 //@linlin在瑞典:失业潮？ //@深夜走过长安街001:这儿怎么也闹起来了？难道煤矿都欠薪吗？[晕]<br><br>RE: ［2016.3.17］ 陕西省渭南市澄合矿务局200煤矿工人游行示威遭警察镇压（三）http://t.cn/RGrnbll</p>
 <p>
 	<small> ============== 10小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3954395089048798" target="freeweibo-mirror">分享视频 http://t.cn/RGdXCtC .</a>
+</h2>
+<p>分享视频 http://t.cn/RGdXCtC .</p>
+<p>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3954394926280928" target="freeweibo-mirror">SPAM 该地领导无视法律，无视民众，投机作死。//@老左识…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3954143934528430" target="freeweibo-mirror">SPAM 还好我没去//@心外無物CV:[汗] //@神店通…</a>
 </h2>
 <p>SPAM 还好我没去//@心外無物CV:[汗] //@神店通缉令:额...<br><br>RE: 今晚Bigbang郑州演唱会，郑州110的接警记录~~[拜拜]<br><img src="http://ww4.sinaimg.cn/large/65adfd13jw1f204evc3pnj20qo0xvak5.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3954140159313940" target="freeweibo-mirror">SPAM [汗] //@神店通缉令:额...</a>
-</h2>
-<p>SPAM [汗] //@神店通缉令:额...<br><br>RE: 今晚Bigbang郑州演唱会，郑州110的接警记录~~[拜拜]<br><img src="http://ww4.sinaimg.cn/large/65adfd13jw1f204evc3pnj20qo0xvak5.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
