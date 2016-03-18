@@ -20,6 +20,24 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3954410113726823" target="freeweibo-mirror">真是让人绝望啊！ //@青菜豆腐女:：警察护航老赖，手铐锁住…</a>
+</h2>
+<p>真是让人绝望啊！ //@青菜豆腐女:：警察护航老赖，手铐锁住农民。薪不给，身遭擒。城市里头辛劳者，公判会上犯罪人。欠债不须再还钱，杀人竟然命长存。黑白已颠倒，正反不区分。不闹薪难要，闹了罪加身。</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3954402521436421" target="freeweibo-mirror">[吃惊][吃惊][吃惊][怒][怒][怒]</a>
+</h2>
+<p>[吃惊][吃惊][吃惊][怒][怒][怒]</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3954386382281530" target="freeweibo-mirror">3月16日，在两会闭幕的凯歌声中，阆中市人民政府江南街道办事…</a>
+</h2>
+<p>3月16日，在两会闭幕的凯歌声中，阆中市人民政府江南街道办事处广场上举行声势浩大的“公判大会”，有8名讨薪农民工因“妨碍公务”被判处6到8个月不等的刑期，更为荒谬的是，当地执法机关荷枪实弹押送讨薪农民工沿街示众，借此恐吓讨薪维权的农民工，恍愡回到血雨腥风的恐怖年代，这些农民工并不是罪大...全文： http://m.weibo.cn/1726595173/3954386382281530<br><img src="http://ww3.sinaimg.cn/large/66e9c065jw1f2100wh4kqj20g40a63zv.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3954325426418222" target="freeweibo-mirror">SPAM ☀️ @APPLE美瞳公社</a>
 </h2>
 <p>SPAM ☀️ @APPLE美瞳公社<br><img src="http://ww2.sinaimg.cn/large/68ed0b1djw1f20t3xjf2zj21i60qlnc3.jpg"></p>
@@ -37,6 +55,12 @@
 <p>违法讨薪固然应该坚决制止，恶意欠薪也必须从根本上杜绝。治表不治本，到头一场空。如果单方面公开审判违法讨薪的农民工，却对恶意欠薪的资方听之任之，就必然损害社会的公平正义，削弱共产党的执政基础。</p>
 <p>
 	<small> ============== 9小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3954222372234187" target="freeweibo-mirror">@最高人民法院 早就有司法解释，严禁“公审公判”行为，而@阆…</a>
+</h2>
+<p>@最高人民法院 早就有司法解释，严禁“公审公判”行为，而@阆中法院 将八名讨薪工人公审示众，只能证明这个国家尚在黑暗的中世纪，执法者自己是法盲这是全体国人的悲哀也是屈辱更是暴力恐怖。即便这八名人士违法，也只能在法律程序里执法，如此公开侮辱实则有违法制精神。 http://t.cn/R2W6Yvd<br><img src="http://ww1.sinaimg.cn/large/48996f31jw1f20h1b5js4j20g40aa402.jpg"></p>
+<p>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3954143934528430" target="freeweibo-mirror">SPAM 还好我没去//@心外無物CV:[汗] //@神店通…</a>
 </h2>
@@ -113,30 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3954083360038954" target="freeweibo-mirror">我当然反对以过激的方式讨薪，但恶意欠薪已经入刑的情况下，当地…</a>
 </h2>
 <p>我当然反对以过激的方式讨薪，但恶意欠薪已经入刑的情况下，当地政府为什么让讨薪行为发生呢？就不能及时督促给农民工支付工资，让他们根本就不需要讨呢？这样以公判大会的形式打击非法讨薪，怎么没见你们如此严厉打击恶意欠薪呢？法治中国的口号下还出现这种公判大会，本身是对法治的巨大嘲讽！失分！<br><img src="http://ww2.sinaimg.cn/large/53c7cd33jw1f2017ma1dhj20qo1bgk1h.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3954076796451267" target="freeweibo-mirror">SPAM [心]粉丝福利[心]转发此微博关注VXIN: rr…</a>
-</h2>
-<p>SPAM [心]粉丝福利[心]转发此微博关注VXIN: rrrrrr222333，截图发给他就可参加抽奖，奖品3名100元现金红包。@GaryWang潮流购<br><img src="http://ww3.sinaimg.cn/large/70623bbbgw1f1zyc362f9j20sy0kujya.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3954075546054113" target="freeweibo-mirror">讨薪，不单是纯粹的商业纠纷，而带有工人阶级反抗剥削压迫的政治…</a>
-</h2>
-<p>讨薪，不单是纯粹的商业纠纷，而带有工人阶级反抗剥削压迫的政治性质；同样，公审也不仅仅是纯粹的司法行为，而带有镇压敌对势力的政治性质。在毛泽东时代，一般只有反革命案件才进行公审。四川公审讨薪农民工，当地官员想证明什么呢？</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3954060640406782" target="freeweibo-mirror">[心][心]</a>
-</h2>
-<p>[心][心]</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3954058060957742" target="freeweibo-mirror">SPAM 马//@蛇精病学姐:后续更精彩，建议先马后看！</a>
-</h2>
-<p>SPAM 马//@蛇精病学姐:后续更精彩，建议先马后看！</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
