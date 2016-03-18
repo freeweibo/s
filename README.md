@@ -30,7 +30,7 @@
 </h2>
 <p>//@流小曲: 必须纠正[围观]必须追究领导责任[话筒]//@王管團長: [吐]//@涛声依旧201566://@黃驛强: [话筒][话筒]//@埋己无土地:[怒]//@黃驛强:活生生的文革在眼前!//@一定要回头啊:转发微博</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3954410180618853" target="freeweibo-mirror">//@杜建国微博:贺卫方，当初你可是反对“恶意欠薪入刑”、反…</a>
 </h2>
@@ -72,7 +72,7 @@
 </h2>
 <p>SPAM ☀️ @APPLE美瞳公社<br><img src="http://ww2.sinaimg.cn/large/68ed0b1djw1f20t3xjf2zj21i60qlnc3.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3954321689341466" target="freeweibo-mirror">//@渡江兄:该审判·，就是一起性质十分恶劣的违法审判，也是…</a>
 </h2>
