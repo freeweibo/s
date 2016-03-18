@@ -78,7 +78,7 @@
 </h2>
 <p>分享视频 http://t.cn/RGdXCtC .</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3954394926280928" target="freeweibo-mirror">SPAM 该地领导无视法律，无视民众，投机作死。//@老左识…</a>
 </h2>
