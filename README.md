@@ -72,7 +72,7 @@
 </h2>
 <p>听见口号是“人民警察爱人民”。 //@茶人悟茶:去产能。 //@linlin在瑞典:失业潮？ //@深夜走过长安街001:这儿怎么也闹起来了？难道煤矿都欠薪吗？[晕]<br><br>RE: ［2016.3.17］ 陕西省渭南市澄合矿务局200煤矿工人游行示威遭警察镇压（三）http://t.cn/RGrnbll</p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3954395089048798" target="freeweibo-mirror">分享视频 http://t.cn/RGdXCtC .</a>
 </h2>
