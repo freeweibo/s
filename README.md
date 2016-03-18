@@ -60,7 +60,7 @@
 </h2>
 <p>SPAM YJGMJ,VB我就问下那个好友搜索“电影大尺度”是谁搜的gif[doge][汗][doge]限制级，是vVjfTwHDRuwVHcpajjcm<br><img src="http://ww2.sinaimg.cn/large/9574d8b0gw1f1m7u4yotbj20k00u00up.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3954113442584777" target="freeweibo-mirror">SPAM 看评论说深圳那场的有买票被骗15万的//@灯灯HO…</a>
 </h2>
@@ -78,7 +78,7 @@
 </h2>
 <p>//@那景色好美那真相太冷: //@逗名阳:[衰]//@佬_牛: [衰]//@老衲猛男666: 慢走，不送。[挖鼻]<br><br>RE: 你们这些国际友人，身在曹营心在汉，不远万里回来替屁民举手作主，辛苦了！回国后好好与妻儿团聚，明年两会再见哦～ [拜拜][拜拜]<br><img src="http://ww2.sinaimg.cn/large/006lZd66gw1f203203y05j30c80gbta6.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3954105510498652" target="freeweibo-mirror">//@咪润A: 纳税人养了一帮畜禽！//@孔智勇_:老百姓老…</a>
 </h2>
