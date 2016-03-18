@@ -36,7 +36,7 @@
 </h2>
 <p>[吃惊][吃惊][吃惊][怒][怒][怒]</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3954394926280928" target="freeweibo-mirror">SPAM 该地领导无视法律，无视民众，投机作死。//@老左识…</a>
 </h2>
@@ -48,7 +48,7 @@
 </h2>
 <p>3月16日，在两会闭幕的凯歌声中，阆中市人民政府江南街道办事处广场上举行声势浩大的“公判大会”，有8名讨薪农民工因“妨碍公务”被判处6到8个月不等的刑期，更为荒谬的是，当地执法机关荷枪实弹押送讨薪农民工沿街示众，借此恐吓讨薪维权的农民工，恍愡回到血雨腥风的恐怖年代，这些农民工并不是罪大...全文： http://m.weibo.cn/1726595173/3954386382281530<br><img src="http://ww3.sinaimg.cn/large/66e9c065jw1f2100wh4kqj20g40a63zv.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3954325426418222" target="freeweibo-mirror">SPAM ☀️ @APPLE美瞳公社</a>
 </h2>
@@ -77,6 +77,12 @@
 	<a href="https://freeweibo.com/weibo/3954183574513481" target="freeweibo-mirror">请教最高人民法院几个问题： 1/“公判大会”法律依据何在？ …</a>
 </h2>
 <p>请教最高人民法院几个问题： 1/“公判大会”法律依据何在？ 2/四川法院违法是否应予纠正并追究经办人责任？ 3/只惩罚讨薪者却放过恶意欠薪者，如何体现政治、大局、看齐意识？ 4/现在农民工（包括被判刑8人）工资拿到了没有？ 5/什么人在袒护恶意欠薪者？ 6/恶意欠薪的单位及法定代表人是谁？ ……<br><img src="http://ww1.sinaimg.cn/large/4b4e0e98jw1f20cfut4mej20pb0p1qn5.jpg"></p>
+<p>
+	<small> ============== 1天前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3954158443091612" target="freeweibo-mirror">【法治准则】1）这种公判大会严重侵犯公民人格尊严；2）企业恶…</a>
+</h2>
+<p>【法治准则】1）这种公判大会严重侵犯公民人格尊严；2）企业恶意欠薪，违反劳动法甚至构成恶意欠薪罪，阆中政府是否尽了督促责任，如构成犯罪，执法司法机关何以不作为？3）宪法规定公民有游行示威权利，阆中为此提供实现条件否？附：四川阆中举行公判大会 8名民工获刑 http://t.cn/RGriuIx<br><img src="http://ww3.sinaimg.cn/large/48866320jw1f209xp173pj20g40aa75r.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p><h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3954110698653956" target="freeweibo-mirror">今晚Bigbang郑州演唱会，郑州110的接警记录~~[拜拜…</a>
 </h2>
 <p>今晚Bigbang郑州演唱会，郑州110的接警记录~~[拜拜]<br><img src="http://ww4.sinaimg.cn/large/65adfd13jw1f204evc3pnj20qo0xvak5.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3954107062190567" target="freeweibo-mirror">//@那景色好美那真相太冷: //@逗名阳:[衰]//@佬_…</a>
-</h2>
-<p>//@那景色好美那真相太冷: //@逗名阳:[衰]//@佬_牛: [衰]//@老衲猛男666: 慢走，不送。[挖鼻]<br><br>RE: 你们这些国际友人，身在曹营心在汉，不远万里回来替屁民举手作主，辛苦了！回国后好好与妻儿团聚，明年两会再见哦～ [拜拜][拜拜]<br><img src="http://ww2.sinaimg.cn/large/006lZd66gw1f203203y05j30c80gbta6.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
