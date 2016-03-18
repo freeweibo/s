@@ -110,6 +110,12 @@
 <p>
 	<small> ============== 1天前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3954075546054113" target="freeweibo-mirror">讨薪，不单是纯粹的商业纠纷，而带有工人阶级反抗剥削压迫的政治…</a>
+</h2>
+<p>讨薪，不单是纯粹的商业纠纷，而带有工人阶级反抗剥削压迫的政治性质；同样，公审也不仅仅是纯粹的司法行为，而带有镇压敌对势力的政治性质。在毛泽东时代，一般只有反革命案件才进行公审。四川公审讨薪农民工，当地官员想证明什么呢？</p>
+<p>
+	<small> ============== 1天前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3954060640406782" target="freeweibo-mirror">[心][心]</a>
 </h2>
 <p>[心][心]</p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3954043556683086" target="freeweibo-mirror">SPAM //@粉色信笺: 阅读全文请看文章最下图，后续更精…</a>
 </h2>
 <p>SPAM //@粉色信笺: 阅读全文请看文章最下图，后续更精彩！</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3954037319085104" target="freeweibo-mirror">//@火旺世家: 特权无处不在[怒骂][怒骂][弱]//@刘…</a>
-</h2>
-<p>//@火旺世家: 特权无处不在[怒骂][怒骂][弱]//@刘二狗蛋://@居家好男人好: //@漪舞:转发微博<br><br>RE: 代婊们开完两会，纷纷回国了。海关已经开辟快速通道，以便代婊们快速回到邪路国家。<br><img src="http://ww3.sinaimg.cn/large/006p0Mw4jw1f1zqbao3blj30qo0zk77e.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
