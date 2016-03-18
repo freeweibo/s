@@ -24,7 +24,7 @@
 </h2>
 <p>//@杜建国微博:贺卫方，当初你可是反对“恶意欠薪入刑”、反对劳动合同法的。你当完了婊子，又来立牌坊了，你当完了无良老板的喉舌，又来工人这里赚好了。<br><br>RE: 【法治准则】1）这种公判大会严重侵犯公民人格尊严；2）企业恶意欠薪，违反劳动法甚至构成恶意欠薪罪，阆中政府是否尽了督促责任，如构成犯罪，执法司法机关何以不作为？3）宪法规定公民有游行示威权利，阆中为此提供实现条件否？附：四川阆中举行公判大会 8名民工获刑 http://t.cn/RGriuIx<br><img src="http://ww3.sinaimg.cn/large/48866320jw1f209xp173pj20g40aa75r.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3954410113726823" target="freeweibo-mirror">真是让人绝望啊！ //@青菜豆腐女:：警察护航老赖，手铐锁住…</a>
 </h2>
@@ -73,6 +73,12 @@
 <p>违法讨薪固然应该坚决制止，恶意欠薪也必须从根本上杜绝。治表不治本，到头一场空。如果单方面公开审判违法讨薪的农民工，却对恶意欠薪的资方听之任之，就必然损害社会的公平正义，削弱共产党的执政基础。</p>
 <p>
 	<small> ============== 10小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3954233155982950" target="freeweibo-mirror">［2016.3.17］ 陕西省渭南市澄合矿务局200煤矿工人…</a>
+</h2>
+<p>［2016.3.17］ 陕西省渭南市澄合矿务局200煤矿工人游行示威遭警察镇压（三）http://t.cn/RGrnbll</p>
+<p>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3954222372234187" target="freeweibo-mirror">@最高人民法院 早就有司法解释，严禁“公审公判”行为，而@阆…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3954115576985644" target="freeweibo-mirror">SPAM YJGMJ,VB我就问下那个好友搜索“电影大尺度”…</a>
 </h2>
 <p>SPAM YJGMJ,VB我就问下那个好友搜索“电影大尺度”是谁搜的gif[doge][汗][doge]限制级，是vVjfTwHDRuwVHcpajjcm<br><img src="http://ww2.sinaimg.cn/large/9574d8b0gw1f1m7u4yotbj20k00u00up.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3954113442584777" target="freeweibo-mirror">SPAM 看评论说深圳那场的有买票被骗15万的//@灯灯HO…</a>
-</h2>
-<p>SPAM 看评论说深圳那场的有买票被骗15万的//@灯灯HOHO: 惊呆了[哆啦A梦吃惊]<br><br>RE: 今晚Bigbang郑州演唱会，郑州110的接警记录~~[拜拜]<br><img src="http://ww4.sinaimg.cn/large/65adfd13jw1f204evc3pnj20qo0xvak5.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
