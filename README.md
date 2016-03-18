@@ -66,7 +66,7 @@
 </h2>
 <p>SPAM 看评论说深圳那场的有买票被骗15万的//@灯灯HOHO: 惊呆了[哆啦A梦吃惊]<br><br>RE: 今晚Bigbang郑州演唱会，郑州110的接警记录~~[拜拜]<br><img src="http://ww4.sinaimg.cn/large/65adfd13jw1f204evc3pnj20qo0xvak5.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3954110698653956" target="freeweibo-mirror">今晚Bigbang郑州演唱会，郑州110的接警记录~~[拜拜…</a>
 </h2>
