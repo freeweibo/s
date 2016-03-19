@@ -60,7 +60,7 @@
 </h2>
 <p>历史的伤口http://t.cn/RGgXNqj</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3954776825651661" target="freeweibo-mirror">//@安哈特親王: //@你国爸夶://@莫瓠:转发微博</a>
 </h2>
@@ -72,7 +72,7 @@
 </h2>
 <p>阆中法院公审讨薪者，羞辱了谁？ //@黑龙江省刘彦娥: //@治国策论: //@一个在外经商的中国女人: 转发微博</p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3954719036694456" target="freeweibo-mirror">问得好[赞]</a>
 </h2>
