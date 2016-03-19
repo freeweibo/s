@@ -36,7 +36,7 @@
 </h2>
 <p>SPAM #每周六问诊# 这周先分享一个【皮肤发炎+闭口粉刺】的案例，类似问题的同学请参考图7的解决办法[奥特曼]老规矩，要参加问诊的同学把自己的问题在评论里详细说明，最好带上图片方便我了解你的情况好更准确判断你的皮肤问题。[奥特曼]想要自学的同学可以看后面这些链接：http://t.cn/RGaIJLJ ...全文： http://m.weibo.cn/1434004434/3954836284894087<br><img src="http://ww3.sinaimg.cn/large/55792bd2jw1f22for5r3bj20lc0zkwhz.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3954831750060776" target="freeweibo-mirror">SPAM @-张智研 用官方@微博抽奖平台 对本次活动进行抽…</a>
 </h2>
