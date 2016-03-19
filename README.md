@@ -48,13 +48,13 @@
 </h2>
 <p>//@塘沽祥记: //@夙生律师事务所: //@可可-cm11: //@tj123--推: //@围观倒车-: //@wxp阿力://@杜博杜博:Repost<br><br>RE: 不要扯政治，不要扯意识形态，不要扯美国俄国，不要扯马列毛邓，不要扯东方西方，这些都没关系，都是扯淡。只要扯一个除了强盗鬼都认的天理：全体国民创造的财富，必须由国民全体参与制定分配其财富的游戏规则。</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3954636852873723" target="freeweibo-mirror">阆中的事暴露：对政府而言，右派不能靠，左派不可靠。//@吹歌…</a>
 </h2>
 <p>阆中的事暴露：对政府而言，右派不能靠，左派不可靠。//@吹歌://@诸子百家之一:右派从法律角度抨击“阆中事件”，左派从政治方面批评此事。但都罔顾：若经济继续下行，企业状况恶化，别说欠薪，失业者也会愈来愈多。//@不沉默的大多数:弱势不代表正义，但欺软怕硬一定不符合正义。<br><br>RE: 阆中宣判讨薪民工：1.宣布了执政党对执政承诺的背信弃义；2.公开与人民为敌，司法体系沦为资本打手；3.宣告依法治国实际上是资本治国；4.宣告了新的更激烈对抗时代开始<br><img src="http://ww1.sinaimg.cn/large/005QCzycjw1f20xm1xxroj30hs0o8acf.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3954632516890315" target="freeweibo-mirror">猪！//@南街村de人:配有美女专职打伞？//@千年河东:阆…</a>
 </h2>
@@ -67,6 +67,12 @@
 <p>“打伞哥”横空出世！//@千年河东:   阆中一审惹众愤，此官花伞天下知，榜样书记焦裕禄，强势铁腕蒋建平。<br><br>RE: 四川阆中市委书记蒋建平，主要看气质，威风凛凛，器宇轩昂，绝对是个好官！<br><img src="http://ww3.sinaimg.cn/large/cfdf49bbjw1f21d66oh4mj20ci08t74t.jpg"></p>
 <p>
 	<small> ============== 4小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3954539075636654" target="freeweibo-mirror">转发400，阅读4万。已被限转，不过也值了[耶]！#立场坚定…</a>
+</h2>
+<p>转发400，阅读4万。已被限转，不过也值了[耶]！#立场坚定斗志强#[拳头]！继续[酷]！<br><img src="http://ww3.sinaimg.cn/large/005wYsa4jw1f21hmo9cx5j30qo1bedmw.jpg"></p>
+<p>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3954529794241378" target="freeweibo-mirror">居然不能下载，今天的孩子们怎么知道？//@大陆公民的天空: …</a>
 </h2>
@@ -84,7 +90,7 @@
 </h2>
 <p>四川阆中市委书记蒋建平，主要看气质，威风凛凛，器宇轩昂，绝对是个好官！<br><img src="http://ww3.sinaimg.cn/large/cfdf49bbjw1f21d66oh4mj20ci08t74t.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3954500484075888" target="freeweibo-mirror">重庆就是一个【庞氏骗局】，一个巨型的“南街村”，靠着沟马财团…</a>
 </h2>
@@ -96,7 +102,7 @@
 </h2>
 <p>不要扯政治，不要扯意识形态，不要扯美国俄国，不要扯马列毛邓，不要扯东方西方，这些都没关系，都是扯淡。只要扯一个除了强盗鬼都认的天理：全体国民创造的财富，必须由国民全体参与制定分配其财富的游戏规则。</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3954434264334312" target="freeweibo-mirror">SPAM 公布一下最近的好运气的名单@喵喵君的无人岛 @京京…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3954398642046938" target="freeweibo-mirror">听见口号是“人民警察爱人民”。 //@茶人悟茶:去产能。 /…</a>
 </h2>
 <p>听见口号是“人民警察爱人民”。 //@茶人悟茶:去产能。 //@linlin在瑞典:失业潮？ //@深夜走过长安街001:这儿怎么也闹起来了？难道煤矿都欠薪吗？[晕]<br><br>RE: ［2016.3.17］ 陕西省渭南市澄合矿务局200煤矿工人游行示威遭警察镇压（三）http://t.cn/RGrnbll</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3954395089048798" target="freeweibo-mirror">分享视频 http://t.cn/RGdXCtC .</a>
-</h2>
-<p>分享视频 http://t.cn/RGdXCtC .</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
