@@ -54,7 +54,7 @@
 </h2>
 <p>三年前的今天，一位年轻人站在重庆解放碑前一个商场的楼上，拿着话筒向着数万名重庆老百姓高声疾呼唱红打黑、唱读讲传、三进三同、五个重庆给重庆人民带来的变化。他拒绝了警察要他离开危险地方的要求，用嘶哑了的声音高唱[国际歌]，最后选择了用纵身一跳的方式为人民书记喊冤！——向勇士致敬！[心]<br><img src="http://ww2.sinaimg.cn/large/006ixTLhgw1f22h03q887j30ch0i6tbd.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3954843342912168" target="freeweibo-mirror">SPAM [嘻嘻][嘻嘻][嘻嘻]</a>
 </h2>
@@ -84,7 +84,7 @@
 </h2>
 <p>SPAM @-张智研 用官方@微博抽奖平台 对本次活动进行抽奖，结果公正有效。恭喜@李施瑶微微一笑绝对不抽 1名用户中奖！可点击 http://t.cn/RGgpVIu  查看中奖结果，欢迎大家监督！</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3954823705898790" target="freeweibo-mirror">SPAM //@谢作诗: [哈哈][哈哈][哈哈] //@画…</a>
 </h2>
