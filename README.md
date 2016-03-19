@@ -84,7 +84,7 @@
 </h2>
 <p>转发400，阅读4万。已被限转，不过也值了[耶]！#立场坚定斗志强#[拳头]！继续[酷]！<br><img src="http://ww3.sinaimg.cn/large/005wYsa4jw1f21hmo9cx5j30qo1bedmw.jpg"></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3954529794241378" target="freeweibo-mirror">居然不能下载，今天的孩子们怎么知道？//@大陆公民的天空: …</a>
 </h2>
@@ -102,7 +102,7 @@
 </h2>
 <p>四川阆中市委书记蒋建平，主要看气质，威风凛凛，器宇轩昂，绝对是个好官！<br><img src="http://ww3.sinaimg.cn/large/cfdf49bbjw1f21d66oh4mj20ci08t74t.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3954500484075888" target="freeweibo-mirror">重庆就是一个【庞氏骗局】，一个巨型的“南街村”，靠着沟马财团…</a>
 </h2>
