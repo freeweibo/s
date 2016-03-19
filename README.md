@@ -78,7 +78,7 @@
 </h2>
 <p>真的，假的？开完两会代表们就返回各自国家？人大政协出来辟谣吧<br><br>RE: #两会结束#两会胜利结束，代表委员们纷纷启程回国，美国、英国、法国、加拿大、澳大利亚.......为了方便前来中国参加两会的代表委员回国，我国边检为此特别开通两会代表委员回国专用“VIP”通道。<br><img src="http://ww3.sinaimg.cn/large/9d3f1d93gw1f20nf1tskjj20cs0fqjs3.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3954650300370279" target="freeweibo-mirror">王林作为一个平民，同高官平起平坐，同明星合影拥抱，让很多无法…</a>
 </h2>
