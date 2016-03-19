@@ -126,7 +126,7 @@
 </h2>
 <p>黄奇帆讲的这5个奇迹，全部发生在薄熙来主政时期 http://t.cn/RGgpyPD<br><img src="http://ww2.sinaimg.cn/large/00639wWYjw1f22f6ahuuoj30af0hfwgh.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3954823705898790" target="freeweibo-mirror">SPAM //@谢作诗: [哈哈][哈哈][哈哈] //@画…</a>
 </h2>
