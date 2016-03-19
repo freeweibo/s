@@ -66,7 +66,7 @@
 </h2>
 <p>SPAM //@谢作诗: [哈哈][哈哈][哈哈] //@画外音2016:红裙花伞，绮旎万般<br><br>RE: 霹雳一声震天响，阆中网红从天降！“伞哥”－－阆中市委书记蒋建平横空出世了！且看他，指点江山，激扬文字，挥斥方遒。真可谓龙凤之姿，气度非凡。这小子前世怕是个皇上，走哪都有太监打黄龙伞。只是今世口味变了，太监换成了宫女。黃龙伞换成了花伞！但不变的是皇家气派！<br><img src="http://ww4.sinaimg.cn/large/005SvoAtgw1f21w95morvj30ci09dq47.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3954798372212440" target="freeweibo-mirror">历史的伤口http://t.cn/RGgXNqj</a>
 </h2>
