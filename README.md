@@ -54,7 +54,7 @@
 </h2>
 <p>我们倡议：不信谣，不传谣，不散布事故现场不适图片。<br><br>RE: 【京港澳高速汨罗大荆路段发生油罐车爆炸事故】3月19日下午，京港澳高速汨罗大荆路段发生一起油罐车爆炸事故，伤亡情况暂时不明。交警、消防正在现场救援。具体情况我们将持续发布消息，请不要轻信目前网上流传的各种版本信息。 http://t.cn/R2dUSyb</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3954872652794730" target="freeweibo-mirror">//@湖南公安在线:我们倡议：不信谣，不传谣，不散布事故现场…</a>
 </h2>
@@ -90,7 +90,7 @@
 </h2>
 <p>SPAM [嘻嘻][嘻嘻][嘻嘻]<br><img src="http://ww1.sinaimg.cn/large/c92ab60cjw1f22gldepesj20go0m80ww.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3954837542585106" target="freeweibo-mirror">//@理性的乌托邦://@曹先生2012Y://@一定要回头…</a>
 </h2>
@@ -138,7 +138,7 @@
 </h2>
 <p>历史的伤口http://t.cn/RGgXNqj</p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p>
 <table>
     <tr>
