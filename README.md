@@ -108,7 +108,7 @@
 </h2>
 <p>感谢薄公。//@问苍茫大地8://@敏悟空间://@村夫归尘12://@盛夏又回来了H://@方寸问道: //@梅铮星: //@红旗漫卷西风微博4: //@交易线coffee: 转发微博<br><br>RE: 黄奇帆讲的这5个奇迹，全部发生在薄熙来主政时期 http://t.cn/RGgpyPD<br><img src="http://ww2.sinaimg.cn/large/00639wWYjw1f22f6ahuuoj30af0hfwgh.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3954866261006588" target="freeweibo-mirror">[心][拳头]//@看你们在干啥: 转发微博</a>
 </h2>
