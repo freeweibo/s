@@ -96,7 +96,7 @@
 </h2>
 <p>感谢薄公。//@问苍茫大地8://@敏悟空间://@村夫归尘12://@盛夏又回来了H://@方寸问道: //@梅铮星: //@红旗漫卷西风微博4: //@交易线coffee: 转发微博<br><br>RE: 黄奇帆讲的这5个奇迹，全部发生在薄熙来主政时期 http://t.cn/RGgpyPD<br><img src="http://ww2.sinaimg.cn/large/00639wWYjw1f22f6ahuuoj30af0hfwgh.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3954866261006588" target="freeweibo-mirror">[心][拳头]//@看你们在干啥: 转发微博</a>
 </h2>
@@ -114,7 +114,7 @@
 </h2>
 <p>【京港澳高速汨罗大荆路段发生油罐车爆炸事故】3月19日下午，京港澳高速汨罗大荆路段发生一起油罐车爆炸事故，伤亡情况暂时不明。交警、消防正在现场救援。具体情况我们将持续发布消息，请不要轻信目前网上流传的各种版本信息。 http://t.cn/R2dUSyb</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3954847004453081" target="freeweibo-mirror">三年前的今天，一位年轻人站在重庆解放碑前一个商场的楼上，拿着…</a>
 </h2>
