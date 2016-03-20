@@ -54,7 +54,7 @@
 </h2>
 <p>//@浯河蚊蚋:官商勾结的结果。//@闵玉平://@陈茂来-: //@夙生律师事务所: //@飛揚成帆V:转发微博<br><br>RE: 四川阆中公审恶意讨薪事件的内幕披露，微信里看到的，求证实或证伪。<br><img src="http://ww4.sinaimg.cn/large/5ff29ca4jw1f22ixivm3pj20qo13w458.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3954914352923970" target="freeweibo-mirror">原来是他导致八名农民工被公判。</a>
 </h2>
@@ -90,7 +90,7 @@
 </h2>
 <p>#京珠高速油罐车爆炸#<br><br>RE: 【京港澳高速汨罗大荆路段发生油罐车爆炸事故】3月19日下午，京港澳高速汨罗大荆路段发生一起油罐车爆炸事故，伤亡情况暂时不明。交警、消防正在现场救援。具体情况我们将持续发布消息，请不要轻信目前网上流传的各种版本信息。 http://t.cn/R2dUSyb</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3954873277874305" target="freeweibo-mirror">我们倡议：不信谣，不传谣，不散布事故现场不适图片。</a>
 </h2>
