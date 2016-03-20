@@ -72,7 +72,7 @@
 </h2>
 <p>感谢薄公。//@问苍茫大地8://@敏悟空间://@村夫归尘12://@盛夏又回来了H://@方寸问道: //@梅铮星: //@红旗漫卷西风微博4: //@交易线coffee: 转发微博<br><br>RE: 黄奇帆讲的这5个奇迹，全部发生在薄熙来主政时期 http://t.cn/RGgpyPD<br><img src="http://ww2.sinaimg.cn/large/00639wWYjw1f22f6ahuuoj30af0hfwgh.jpg"></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3954866261006588" target="freeweibo-mirror">[心][拳头]//@看你们在干啥: 转发微博</a>
 </h2>
@@ -90,7 +90,7 @@
 </h2>
 <p>三年前的今天，一位年轻人站在重庆解放碑前一个商场的楼上，拿着话筒向着数万名重庆老百姓高声疾呼唱红打黑、唱读讲传、三进三同、五个重庆给重庆人民带来的变化。他拒绝了警察要他离开危险地方的要求，用嘶哑了的声音高唱[国际歌]，最后选择了用纵身一跳的方式为人民书记喊冤！——向勇士致敬！[心]<br><img src="http://ww2.sinaimg.cn/large/006ixTLhgw1f22h03q887j30ch0i6tbd.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3954843342912168" target="freeweibo-mirror">SPAM [嘻嘻][嘻嘻][嘻嘻]</a>
 </h2>
