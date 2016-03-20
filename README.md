@@ -108,7 +108,7 @@
 </h2>
 <p>四川阆中公审恶意讨薪事件的内幕披露，微信里看到的，求证实或证伪。<br><img src="http://ww4.sinaimg.cn/large/5ff29ca4jw1f22ixivm3pj20qo13w458.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3954862444393333" target="freeweibo-mirror">【京港澳高速汨罗大荆路段发生油罐车爆炸事故】3月19日下午，…</a>
 </h2>
