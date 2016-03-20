@@ -38,6 +38,24 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3955222478964429" target="freeweibo-mirror">//@崔小平律师://@邓树林律师://@六安自媒体: //…</a>
+</h2>
+<p>//@崔小平律师://@邓树林律师://@六安自媒体: //@深圳王庆斌:[嘻嘻][围观]//@曾经的一个传说: #贾雨村言# 【书记的名牌一定是用工资买的吧？】//@静平静待之: 转发微博<br><br>RE: 网友真厉害，把人家阆中市委书记衣服都扒出来了<br><img src="http://ww3.sinaimg.cn/large/5f6520eagw1f237t3lub3j20k00zk41u.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3955194389070850" target="freeweibo-mirror">//@宏鑫88: 说实话//@湘江冷雨://@黄易快乐天使:…</a>
+</h2>
+<p>//@宏鑫88: 说实话//@湘江冷雨://@黄易快乐天使:警告个几把，你说个实数？ //@前腐后继日月无光5: 同问//@胡同小串y:请右边给个准确的伤亡人数！ //@湖南网警巡查执法:警告博主@只不过是流水账：请勿散布警情谣言。<br><br>RE: 我妈同学群消息：岳阳平江至大荆路段发生爆炸。据说死78人，上66，36人下落不明。一公里外民宅震感强烈。附近的镇子和城区居民以为发生地震。房屋玻璃被震碎。一般即时推送的新闻大概最多半个小时就可以让全国都知道，现在十点半了却无任何报道！严重怀疑汨罗当局在压制新闻发布！看图！实在太惨了！<br><img src="http://ww2.sinaimg.cn/large/6b6866f2gw1f22jmtii37j20m80gojsn.jpg"></p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3955194141842253" target="freeweibo-mirror">//@作家杨志鹏: 转发微博</a>
+</h2>
+<p>//@作家杨志鹏: 转发微博<br><br>RE: 有一前中央领导人的孙子到某地任职近三年，该县政府网站 " 领导之窗 " 中独他的简历及职务均未列入。媒体赞誉称：某人多低调。我要告诉这些吹鼓手：这种故作神秘的“低调”是另一种特权。同为地方领导人，你的信息为什么不能同样公开？！</p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3955189242971750" target="freeweibo-mirror">【伟人对话】毛：“蒋公啊，我当年，消灭了你的八百万军队，把你…</a>
 </h2>
 <p>【伟人对话】毛：“蒋公啊，我当年，消灭了你的八百万军队，把你赶到了那个小岛上，你到底服气不服气哟？”蒋：“润之啊，英雄决战，岂止在战场？你看看你那八千万党员，如今都是个什么样子？还有多少像你说的为人民服务？你真的就比我更开心吗？” http://t.cn/z8L6nXp<br><img src="http://ww2.sinaimg.cn/large/476da361jw1f1h60zqq7kj20cs0afab9.jpg"></p>
@@ -54,7 +72,7 @@
 </h2>
 <p>SPAM 法式小情调[好喜欢][求关注]<br><img src="http://ww2.sinaimg.cn/large/68c1e787jw1f22djy3ya3j21be1be1kx.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3955135392086265" target="freeweibo-mirror">恶意欠薪，必须公审。倒行逆施，断子绝孙。</a>
 </h2>
@@ -119,24 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3954988802061790" target="freeweibo-mirror">//@浯河蚊蚋:官商勾结的结果。//@闵玉平://@陈茂来-…</a>
 </h2>
 <p>//@浯河蚊蚋:官商勾结的结果。//@闵玉平://@陈茂来-: //@夙生律师事务所: //@飛揚成帆V:转发微博<br><br>RE: 四川阆中公审恶意讨薪事件的内幕披露，微信里看到的，求证实或证伪。<br><img src="http://ww4.sinaimg.cn/large/5ff29ca4jw1f22ixivm3pj20qo13w458.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3954914352923970" target="freeweibo-mirror">原来是他导致八名农民工被公判。</a>
-</h2>
-<p>原来是他导致八名农民工被公判。<br><br>RE: #恶意欠薪老板#：【无良】：四川阆中市学府花园项目部开发商为阆中华诚置业有限公司，董事长杨彩虎。 杨彩虎曾加入中央警卫团，成为国家领导人贴身侍卫，复员之后开始创业，在北大完成高级工程师进修，人脉广阔乐于助人，一呼百应八方相助，投身房地产行业，一举拿下阆中南津关恢复重建项目。<br><img src="http://ww1.sinaimg.cn/large/006ddTvnjw1f22o7vfklhj30c809cabi.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3954910456500084" target="freeweibo-mirror">#恶意欠薪老板#：【无良】：四川阆中市学府花园项目部开发商为…</a>
-</h2>
-<p>#恶意欠薪老板#：【无良】：四川阆中市学府花园项目部开发商为阆中华诚置业有限公司，董事长杨彩虎。 杨彩虎曾加入中央警卫团，成为国家领导人贴身侍卫，复员之后开始创业，在北大完成高级工程师进修，人脉广阔乐于助人，一呼百应八方相助，投身房地产行业，一举拿下阆中南津关恢复重建项目。<br><img src="http://ww1.sinaimg.cn/large/006ddTvnjw1f22o7vfklhj30c809cabi.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3954887898800512" target="freeweibo-mirror">SPAM 欠妥</a>
-</h2>
-<p>SPAM 欠妥<br><br>RE: 把讨薪的8名农民工押上大广场，用游斗示众的手法审判讨薪者，这种赤裸裸的权力炫耀真的好吗？<br><img src="http://ww1.sinaimg.cn/large/bdc1323cgw1f22cpc90pgj20k00diwfv.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
