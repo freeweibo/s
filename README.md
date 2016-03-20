@@ -72,7 +72,7 @@
 </h2>
 <p>//@浯河蚊蚋:官商勾结的结果。//@闵玉平://@陈茂来-: //@夙生律师事务所: //@飛揚成帆V:转发微博<br><br>RE: 四川阆中公审恶意讨薪事件的内幕披露，微信里看到的，求证实或证伪。<br><img src="http://ww4.sinaimg.cn/large/5ff29ca4jw1f22ixivm3pj20qo13w458.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3954914352923970" target="freeweibo-mirror">原来是他导致八名农民工被公判。</a>
 </h2>
