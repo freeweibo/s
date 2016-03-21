@@ -26,6 +26,12 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3955561215385923" target="freeweibo-mirror">不了解或者已经忘了贾姓媒体人失联的原因，请戳图[最右]</a>
+</h2>
+<p>不了解或者已经忘了贾姓媒体人失联的原因，请戳图[最右]<br><img src="http://ww1.sinaimg.cn/large/006oZBFXgw1f24qzt0zcxj3094068dfz.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3955551015175407" target="freeweibo-mirror">马//@少先队员屌丝队长:结局精彩，建议先马后看[微笑]</a>
 </h2>
 <p>马//@少先队员屌丝队长:结局精彩，建议先马后看[微笑]</p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3955240896143735" target="freeweibo-mirror">[doge]//@孟庆明v: →_→ //@杜芝富B:→_→…</a>
 </h2>
 <p>[doge]//@孟庆明v: →_→ //@杜芝富B:→_→//@呆头鹰: →_→//@张国立ZGL:有些事不怕外人知道，怕自己人知道<br><br>RE: 在浦东机场，外国同事问我，不是说中国政府封锁谷歌了吗？为啥我还能用。我耐心地解释，那是因为你用的美国手机号上网，你如果用中国手机号，或者用酒店的wifi就不行了。我们只整自己人，类似于以前华人与狗不得入内一样。</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3955238992524570" target="freeweibo-mirror">当下互联网政策比大清闭关锁国更愚蠢，国人使用国际互联网受限制…</a>
-</h2>
-<p>当下互联网政策比大清闭关锁国更愚蠢，国人使用国际互联网受限制，外国人采集中国互联网信息却畅通无阻。[巨汗]</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
