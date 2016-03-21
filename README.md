@@ -36,7 +36,7 @@
 </h2>
 <p>SPAM 我来啦边工作边玩之东京之旅第一波~这是一条有毒的视频吃饭时间慎点开嘻嘻~ http://t.cn/RGD6Vxo .</p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3955468373729510" target="freeweibo-mirror">6666，99年习大大还是个副部级，全国的副部级干部超过万人…</a>
 </h2>
@@ -66,7 +66,7 @@
 </h2>
 <p>SPAM [笑cry][笑cry][笑cry]玩晕了，房贷忘记打卡里，结果今天扣款失败。。。赶紧补进去了。那么问题来了，会影响信用记录么……</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3955338685814684" target="freeweibo-mirror">//@六安自媒体://@天蝎黄世旭:转发微博</a>
 </h2>
