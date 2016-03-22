@@ -90,7 +90,7 @@
 </h2>
 <p>SPAM 这该不该叫非法上访，早干嘛去了？想想你当年开坦克的时候<br><img src="http://ww4.sinaimg.cn/large/006pBveBgw1f25qxspqe5j30c607m750.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3955870331433856" target="freeweibo-mirror">坚决拥护共产党，建议中共中央顺应民意和法制杀了所有涉案官员和…</a>
 </h2>
@@ -132,7 +132,7 @@
 </h2>
 <p>SPAM 每天吃你一颗安利，药都停了</p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3955842694497751" target="freeweibo-mirror">平时微博天涯等各大论坛讨论政治的时候，总有些人冷嘲热讽。现在…</a>
 </h2>
