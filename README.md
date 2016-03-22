@@ -78,7 +78,7 @@
 </h2>
 <p>古巴终于“沦陷”了，竟然宣布解除对Google和Facebook的封锁！好在全世界还有贵国和鲜国坚持到底，跟美帝继续斗争到底！<br><img src="http://ww3.sinaimg.cn/large/625c226dgw1f25zzsohrij209q05dt8v.jpg"></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3955950018738460" target="freeweibo-mirror">//@乔素霞: //@天高云淡ge的微博: //@魚-疯收:…</a>
 </h2>
@@ -102,7 +102,7 @@
 </h2>
 <p>六年了还是... //@常州杨洪波:丧尽天良！//@徐付群:山西省，卫生部，新华社这三大集团到底被什么鬼迷了心窍？[吃惊][怒]<br><br>RE: 王克勤：六年前山西疫苗报道发表后，山西省、卫生部、新华社三大集团联合攻击打压@中国经济时报。负责签发这个报道的社长总编辑包月阳及副总编辑车海刚起草了这份强硬的《关于“山西疫苗乱象调查”报道的声明》。http://t.cn/hjDUV @贾乃亮@稀土部队@陆川@金星@一号立井@姚晨@黄晓明@孙俪@佟丽娅<br><img src="http://ww4.sinaimg.cn/large/4c7c1ba8jw1f25sy8ikhwj20k00f0q53.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3955914081943210" target="freeweibo-mirror">//@王强毛巾:当年执行领导命令开坦克，现在为啥不听领导话了…</a>
 </h2>
