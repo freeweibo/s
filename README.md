@@ -30,13 +30,19 @@
 </h2>
 <p>SPAM 马//@爱讲笑话的特长生:故事精彩，建议先马后看。</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3955788613448653" target="freeweibo-mirror">SPAM 太血腥了[泪]</a>
 </h2>
 <p>SPAM 太血腥了[泪]<br><br>RE: #淮北身边事#【突发：淮北一医生被砍数刀身亡！太残忍了[吃惊]】微闻君收到网友爆料：淮北市杜集区医院一名医生被病人人猛砍数刀，颅骨破碎，经抢救无效死亡！具体情况请以官方信息为准！后三张图片过于血腥，虽然已经黑白处理，但是劝告心理素质差的朋友慎点。@淮北发布<br><img src="http://ww3.sinaimg.cn/large/a5399f3agw1f25f405p3mj20dw0a6abd.jpg"></p>
 <p>
 	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3955771379428629" target="freeweibo-mirror">#淮北身边事#【突发：淮北一医生被砍数刀身亡！太残忍了[吃惊…</a>
+</h2>
+<p>#淮北身边事#【突发：淮北一医生被砍数刀身亡！太残忍了[吃惊]】微闻君收到网友爆料：淮北市杜集区医院一名医生被病人人猛砍数刀，颅骨破碎，经抢救无效死亡！具体情况请以官方信息为准！后三张图片过于血腥，虽然已经黑白处理，但是劝告心理素质差的朋友慎点。@淮北发布<br><img src="http://ww3.sinaimg.cn/large/a5399f3agw1f25f405p3mj20dw0a6abd.jpg"></p>
+<p>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3955758833958448" target="freeweibo-mirror">SPAM 【博鳌亚洲论坛热点前瞻：聚焦三大关键词】博鳌亚洲论…</a>
 </h2>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3955468495852270" target="freeweibo-mirror">SPAM 我来啦边工作边玩之东京之旅第一波~这是一条有毒的视…</a>
 </h2>
 <p>SPAM 我来啦边工作边玩之东京之旅第一波~这是一条有毒的视频吃饭时间慎点开嘻嘻~ http://t.cn/RGD6Vxo .</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3955468373729510" target="freeweibo-mirror">6666，99年习大大还是个副部级，全国的副部级干部超过万人…</a>
-</h2>
-<p>6666，99年习大大还是个副部级，全国的副部级干部超过万人了吧，确实不怎么出名…窦和梁不认识也正常<br><br>RE: 国母99年《锵锵三人行》，窦文涛问她“你丈夫老被人介绍说是彭丽媛老公，是不是压力大“。国母自信的说，嫁的人一定要能在感情和思想上驾驭她，对方的事业很成功，并不介意自己名气大。她在节目里笑得很嗨，估计心想你们知道我老公是谁吗http://t.cn/RUEcoXh<br><img src="http://ww2.sinaimg.cn/large/67c63f46gw1f24cayx2tjj20hk0d0go1.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
