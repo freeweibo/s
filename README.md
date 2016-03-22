@@ -42,7 +42,7 @@
 </h2>
 <p>SPAM 每天吃你一颗安利，药都停了</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3955840283754903" target="freeweibo-mirror">把二类疫苗从冷库中拿出来让临时工贴上某与疾控中心利益关联企业…</a>
 </h2>
