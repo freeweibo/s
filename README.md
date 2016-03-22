@@ -48,7 +48,7 @@
 </h2>
 <p>回复@程绍武:看来是的//@程绍武:古巴要走上邪路？<br><br>RE: 古巴终于“沦陷”了，竟然宣布解除对Google和Facebook的封锁！好在全世界还有贵国和鲜国坚持到底，跟美帝继续斗争到底！<br><img src="http://ww3.sinaimg.cn/large/625c226dgw1f25zzsohrij209q05dt8v.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3955974170000358" target="freeweibo-mirror">SPAM 翻翻她的微博 你会发现瘦下来也不是很难  找她@h…</a>
 </h2>
@@ -108,7 +108,7 @@
 </h2>
 <p>//@王强毛巾:当年执行领导命令开坦克，现在为啥不听领导话了？</p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3955913745768126" target="freeweibo-mirror">SPAM 【彭丽媛参加电视节目录制宣传防治结核病】近日，有网…</a>
 </h2>
