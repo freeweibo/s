@@ -60,7 +60,7 @@
 </h2>
 <p>SPAM 每天吃你一颗安利，药都停了</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3955842694497751" target="freeweibo-mirror">平时微博天涯等各大论坛讨论政治的时候，总有些人冷嘲热讽。现在…</a>
 </h2>
