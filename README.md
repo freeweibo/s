@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3956011590875561" target="freeweibo-mirror">梦想把权力关进笼子者往往自己先进牢笼。</a>
+</h2>
+<p>梦想把权力关进笼子者往往自己先进牢笼。<br><br>RE: 【旧闻：疫苗案律师被判煽动颠覆国家政权罪】过期疫苗危害儿童，令人愤慨。可是很少有人知道，早在十年前唐荆陵律师就开始代理疫苗危害儿童案，受害家长被拘禁，唐荆陵律师因为倡导和平非暴力抵抗而被长期关押后控罪。<br><img src="http://ww1.sinaimg.cn/large/5eac8cf4jw1f25to4b0tjj20hn0m8gn8.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3955996642635115" target="freeweibo-mirror">我们国家有那么多经验国务院就是看不见！//@非著名业余人士:…</a>
 </h2>
 <p>我们国家有那么多经验国务院就是看不见！//@非著名业余人士: //@清越微博1:集体化就是唯一共同致富的办法！//@rainbow201203: //@蒂罗尔的天空C:记住，集集体化不仅能共同致富，更重要的是能够一起吃苦，渡过难关。因为资本不会放过集体化组织的。譬如资本家的贷款不还，银行会宽免。<br><br>RE: 《南街村是用事实说话，把邓小平批得得体无完肤了》 查看全文：http://t.cn/RGFrk3p 分享自@新浪博客<br><img src="http://ww1.sinaimg.cn/large/80b4291djw1f261o7f0pnj20g4092jry.jpg"></p>
@@ -48,7 +54,7 @@
 </h2>
 <p>《南街村是用事实说话，把邓小平批得得体无完肤了》 查看全文：http://t.cn/RGFrk3p 分享自@新浪博客<br><img src="http://ww1.sinaimg.cn/large/80b4291djw1f261o7f0pnj20g4092jry.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3955957606289294" target="freeweibo-mirror">SPAM 只是胖着玩玩  想瘦找她 @婉悦的瘦身日记</a>
 </h2>
@@ -126,17 +132,11 @@
 </h2>
 <p>王克勤：六年前山西疫苗报道发表后，山西省、卫生部、新华社三大集团联合攻击打压@中国经济时报。负责签发这个报道的社长总编辑包月阳及副总编辑车海刚起草了这份强硬的《关于“山西疫苗乱象调查”报道的声明》。http://t.cn/hjDUV @贾乃亮@稀土部队@陆川@金星@一号立井@姚晨@黄晓明@孙俪@佟丽娅<br><img src="http://ww4.sinaimg.cn/large/4c7c1ba8jw1f25sy8ikhwj20k00f0q53.jpg"></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3955873988240557" target="freeweibo-mirror">SPAM 这该不该叫非法上访，早干嘛去了？想想你当年开坦克的…</a>
 </h2>
 <p>SPAM 这该不该叫非法上访，早干嘛去了？想想你当年开坦克的时候<br><img src="http://ww4.sinaimg.cn/large/006pBveBgw1f25qxspqe5j30c607m750.jpg"></p>
-<p>
-	<small> ============== 12小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3955870331433856" target="freeweibo-mirror">坚决拥护共产党，建议中共中央顺应民意和法制杀了所有涉案官员和…</a>
-</h2>
-<p>坚决拥护共产党，建议中共中央顺应民意和法制杀了所有涉案官员和这300涉案人员，没收其全部财产。否则什么梦、24字、12345都是垃圾桶里的废纸！中国共产党万岁！#疫苗之殇#</p>
 <p>
 	<small> ============== 12小时前</small>
 </p>
