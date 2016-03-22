@@ -24,7 +24,7 @@
 </h2>
 <p>SPAM 马//@爱讲笑话的特长生:故事精彩，建议先马后看。</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3955758833958448" target="freeweibo-mirror">SPAM 【博鳌亚洲论坛热点前瞻：聚焦三大关键词】博鳌亚洲论…</a>
 </h2>
