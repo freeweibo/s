@@ -24,7 +24,7 @@
 </h2>
 <p>SPAM 没教养和坦率是两码事，讲真</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3955792950716188" target="freeweibo-mirror">SPAM 马//@爱讲笑话的特长生:故事精彩，建议先马后看。</a>
 </h2>
