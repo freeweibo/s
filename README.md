@@ -72,7 +72,7 @@
 </h2>
 <p>古巴终于“沦陷”了，竟然宣布解除对Google和Facebook的封锁！好在全世界还有贵国和鲜国坚持到底，跟美帝继续斗争到底！<br><img src="http://ww3.sinaimg.cn/large/625c226dgw1f25zzsohrij209q05dt8v.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3955950018738460" target="freeweibo-mirror">//@乔素霞: //@天高云淡ge的微博: //@魚-疯收:…</a>
 </h2>
