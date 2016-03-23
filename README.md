@@ -72,7 +72,7 @@
 </h2>
 <p>SPAM 只是胖着玩玩  想瘦找她 @婉悦的瘦身日记</p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3955955890187678" target="freeweibo-mirror">//@四季逗豆://@一品泥人://@周难的微博: //@三…</a>
 </h2>
@@ -90,7 +90,7 @@
 </h2>
 <p>//@乔素霞: //@天高云淡ge的微博: //@魚-疯收: //@老许祈福-15s://@貧僧-文納://@楽楽将--: //@安静不安静a:转发微博<br><br>RE: 屏蔽的微博，重发<br><img src="http://ww3.sinaimg.cn/large/006qaj6Cgw1f25w3sbzhjj30dc0i8jue.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3955930637190243" target="freeweibo-mirror">刘二狗蛋：连古巴也能上脸书了，中国人哭晕在厕所吧，真的是上辈…</a>
 </h2>
