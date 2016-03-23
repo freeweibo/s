@@ -36,13 +36,13 @@
 </h2>
 <p>梦想把权力关进笼子者往往自己先进牢笼。<br><br>RE: 【旧闻：疫苗案律师被判煽动颠覆国家政权罪】过期疫苗危害儿童，令人愤慨。可是很少有人知道，早在十年前唐荆陵律师就开始代理疫苗危害儿童案，受害家长被拘禁，唐荆陵律师因为倡导和平非暴力抵抗而被长期关押后控罪。<br><img src="http://ww1.sinaimg.cn/large/5eac8cf4jw1f25to4b0tjj20hn0m8gn8.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3955996642635115" target="freeweibo-mirror">我们国家有那么多经验国务院就是看不见！//@非著名业余人士:…</a>
 </h2>
 <p>我们国家有那么多经验国务院就是看不见！//@非著名业余人士: //@清越微博1:集体化就是唯一共同致富的办法！//@rainbow201203: //@蒂罗尔的天空C:记住，集集体化不仅能共同致富，更重要的是能够一起吃苦，渡过难关。因为资本不会放过集体化组织的。譬如资本家的贷款不还，银行会宽免。<br><br>RE: 《南街村是用事实说话，把邓小平批得得体无完肤了》 查看全文：http://t.cn/RGFrk3p 分享自@新浪博客<br><img src="http://ww1.sinaimg.cn/large/80b4291djw1f261o7f0pnj20g4092jry.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3955995564611924" target="freeweibo-mirror">集体化就是唯一共同致富的办法！//@rainbow20120…</a>
 </h2>
@@ -92,6 +92,12 @@
 <p>
 	<small> ============== 12小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3955930637190243" target="freeweibo-mirror">刘二狗蛋：连古巴也能上脸书了，中国人哭晕在厕所吧，真的是上辈…</a>
+</h2>
+<p>刘二狗蛋：连古巴也能上脸书了，中国人哭晕在厕所吧，真的是上辈子造了什么孽出生在大陆！@北京的齐齐@北京老妪@雾海巍岩@钟鼎文无声@爱吃榴莲公主<br><img src="http://ww2.sinaimg.cn/large/005AYMpwjw1f25xfs6a1zj30dc0i8jue.jpg"></p>
+<p>
+	<small> ============== 1天前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3955919085512092" target="freeweibo-mirror">屏蔽的微博，重发</a>
 </h2>
 <p>屏蔽的微博，重发<br><img src="http://ww3.sinaimg.cn/large/006qaj6Cgw1f25w3sbzhjj30dc0i8jue.jpg"></p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3955901306115784" target="freeweibo-mirror">SPAM 【彭丽媛现身】近日，一组彭丽媛图片曝光。这是彭丽媛…</a>
 </h2>
 <p>SPAM 【彭丽媛现身】近日，一组彭丽媛图片曝光。这是彭丽媛为宣传世界防治结核病日而录制的北京卫视《养生堂》节目。彭丽媛身穿灰色大衣、系银灰纱巾，显得朴素得体、落落大方，录制中也与观众一同开怀大笑，并报以掌声。大兵简评：贵为第一夫人，依然关怀民情，现身为防治结核病出力，还开怀大笑，点赞！<br><img src="http://ww1.sinaimg.cn/large/4d353f02jw1f25ty825m7j20k00f0409.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3955897635517777" target="freeweibo-mirror">【旧闻：疫苗案律师被判煽动颠覆国家政权罪】过期疫苗危害儿童，…</a>
-</h2>
-<p>【旧闻：疫苗案律师被判煽动颠覆国家政权罪】过期疫苗危害儿童，令人愤慨。可是很少有人知道，早在十年前唐荆陵律师就开始代理疫苗危害儿童案，受害家长被拘禁，唐荆陵律师因为倡导和平非暴力抵抗而被长期关押后控罪。<br><img src="http://ww1.sinaimg.cn/large/5eac8cf4jw1f25to4b0tjj20hn0m8gn8.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
