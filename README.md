@@ -35,7 +35,7 @@
 </h2>
 <p>SPAM 最后一条真的嘛？求真相[偷笑]</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3956190453660525" target="freeweibo-mirror">SPAM 每个人都是父母生命的延续！！</a>
 </h2>
