@@ -3,19 +3,18 @@
 <img src="../../raw/master/x/freeweibo.png" alt="自由微博"/>
 <table>
     <tr>
-                <td>自由微博免
-        翻墙安卓应用</td>
                 
+                <td>自由浏览</td>
         
         
                 <!-- <td><a href=""
         target="freeweibo-mirror">免翻墙网页版</a></td> -->
     </tr>
-        <tr>
-                <td><a href="../../raw/master/x/FreeWeibo.apk"><img
-        src="../../raw/master/x/freeweibo.qr.png" /></a></td>
-                
-                
+    
+            <tr>
+        <td><a href="../../raw/master/x/FreeBrowser.apk"><img
+        src="../../raw/master/x/fb.qr.png" /></a></td>
+
         
             </tr>
 </table>
@@ -42,7 +41,7 @@
 </h2>
 <p>SPAM 每个人都是父母生命的延续！！<br><br>RE: 关 注#疫苗#之殇：你沉默你就是帮 凶！下面这些孩子的悲惨命运，曾经都是用疫苗正常的不良反应率来解释的，对他们的家庭而言，是天灾；但在山东疫苗案曝光缓刑母女持续5年涉案数亿的案情之后，那些遭受疫苗之殇的孩子们，到底是天灾还是人祸？<br><img src="http://ww3.sinaimg.cn/large/0064al1Xjw1f25jrh7cv5g30c60qgwff.gif"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3956186514625433" target="freeweibo-mirror">SPAM 始作俑者，其无后呼？</a>
 </h2>
@@ -142,19 +141,13 @@
 </p>
 <table>
     <tr>
-                <td>自由微博免
-        翻墙安卓应用</td>
                 
         
         
                 <!-- <td><a href=""
         target="freeweibo-mirror">免翻墙网页版</a></td> -->
     </tr>
-        <tr>
-                <td><a href="https://raw.githubusercontent.com/greatfire/z/master/FreeWeibo.apk"><img
-        src="https://raw.githubusercontent.com/greatfire/images/master/freeweibo.qr.png" /></a></td>
-                
-                
+    
         
             </tr>
 </table>
