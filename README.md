@@ -42,7 +42,7 @@
 </h2>
 <p>集体化就是唯一共同致富的办法！//@rainbow201203: //@蒂罗尔的天空C:记住，集集体化不仅能共同致富，更重要的是能够一起吃苦，渡过难关。因为资本不会放过集体化组织的。譬如资本家的贷款不还，银行会宽免。而对集体企业不会的…<br><br>RE: 《南街村是用事实说话，把邓小平批得得体无完肤了》 查看全文：http://t.cn/RGFrk3p 分享自@新浪博客<br><img src="http://ww1.sinaimg.cn/large/80b4291djw1f261o7f0pnj20g4092jry.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3955974727789850" target="freeweibo-mirror">回复@程绍武:看来是的//@程绍武:古巴要走上邪路？</a>
 </h2>
@@ -84,7 +84,7 @@
 </h2>
 <p>//@乔素霞: //@天高云淡ge的微博: //@魚-疯收: //@老许祈福-15s://@貧僧-文納://@楽楽将--: //@安静不安静a:转发微博<br><br>RE: 屏蔽的微博，重发<br><img src="http://ww3.sinaimg.cn/large/006qaj6Cgw1f25w3sbzhjj30dc0i8jue.jpg"></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3955919085512092" target="freeweibo-mirror">屏蔽的微博，重发</a>
 </h2>
