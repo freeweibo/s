@@ -54,7 +54,7 @@
 </h2>
 <p>梦想把权力关进笼子者往往自己先进牢笼。<br><br>RE: 【旧闻：疫苗案律师被判煽动颠覆国家政权罪】过期疫苗危害儿童，令人愤慨。可是很少有人知道，早在十年前唐荆陵律师就开始代理疫苗危害儿童案，受害家长被拘禁，唐荆陵律师因为倡导和平非暴力抵抗而被长期关押后控罪。<br><img src="http://ww1.sinaimg.cn/large/5eac8cf4jw1f25to4b0tjj20hn0m8gn8.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3955996642635115" target="freeweibo-mirror">我们国家有那么多经验国务院就是看不见！//@非著名业余人士:…</a>
 </h2>
