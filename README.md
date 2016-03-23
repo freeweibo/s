@@ -66,7 +66,7 @@
 </h2>
 <p>SPAM 只是胖着玩玩  想瘦找她 @婉悦的瘦身日记</p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3955955890187678" target="freeweibo-mirror">//@四季逗豆://@一品泥人://@周难的微博: //@三…</a>
 </h2>
@@ -90,7 +90,7 @@
 </h2>
 <p>屏蔽的微博，重发<br><img src="http://ww3.sinaimg.cn/large/006qaj6Cgw1f25w3sbzhjj30dc0i8jue.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3955917093494221" target="freeweibo-mirror">難以置信！！[吃惊] //@冉氏艺文志:右边，只要给钱，他瞬…</a>
 </h2>
