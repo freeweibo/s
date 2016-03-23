@@ -20,6 +20,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3956222744892588" target="freeweibo-mirror">SPAM 第一条，看着都疼</a>
+</h2>
+<p>SPAM 第一条，看着都疼</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3956206609687266" target="freeweibo-mirror">SPAM 最后一条真的嘛？求真相[偷笑]</a>
 </h2>
 <p>SPAM 最后一条真的嘛？求真相[偷笑]</p>
@@ -131,12 +137,6 @@
 	<a href="https://freeweibo.com/weibo/3955933832815410" target="freeweibo-mirror">唐荆陵，71年生，湖北荆州人，基督徒。上海交大毕业后，到广州…</a>
 </h2>
 <p>唐荆陵，71年生，湖北荆州人，基督徒。上海交大毕业后，到广州当律师，2003年，联名反对收容遣送制度。2005年，为太石村民众维权。2012年，调查铁汉离奇死亡案。2014年，因践行公民不合作，他和袁新亭、王清营一同被捕。最终获刑五年。2009年，他曾为假疫苗受害儿童奔走呼号。现在，有人想起他了吧。<br><img src="http://ww4.sinaimg.cn/large/006cYaFLgw1f25xsu7ok4j30qe0jsgpy.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3955930637190243" target="freeweibo-mirror">刘二狗蛋：连古巴也能上脸书了，中国人哭晕在厕所吧，真的是上辈…</a>
-</h2>
-<p>刘二狗蛋：连古巴也能上脸书了，中国人哭晕在厕所吧，真的是上辈子造了什么孽出生在大陆！@北京的齐齐@北京老妪@雾海巍岩@钟鼎文无声@爱吃榴莲公主<br><img src="http://ww2.sinaimg.cn/large/005AYMpwjw1f25xfs6a1zj30dc0i8jue.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
