@@ -24,7 +24,7 @@
 </h2>
 <p>SPAM 最后一条真的嘛？求真相[偷笑]</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3956190453660525" target="freeweibo-mirror">SPAM 每个人都是父母生命的延续！！</a>
 </h2>
@@ -60,7 +60,7 @@
 </h2>
 <p>切，体现社会主义优越性嘛！//@北京的齐齐:转发微博<br><br>RE: 刘二狗蛋：连古巴也能上脸书了，中国人哭晕在厕所吧，真的是上辈子造了什么孽出生在大陆！@北京的齐齐@北京老妪@雾海巍岩@钟鼎文无声@爱吃榴莲公主<br><img src="http://ww2.sinaimg.cn/large/005AYMpwjw1f25xfs6a1zj30dc0i8jue.jpg"></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3956015231873137" target="freeweibo-mirror">//@宝石一番星:呵呵呵呵呵//@夜月白_: //@懒蛋蛋蛋…</a>
 </h2>
