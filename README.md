@@ -24,13 +24,13 @@
 </h2>
 <p>SPAM 最后一个亮了[doge][doge][doge]</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3956134933553724" target="freeweibo-mirror">SPAM 红红火火恍恍惚惚，我就看看</a>
 </h2>
 <p>SPAM 红红火火恍恍惚惚，我就看看</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3956116863778421" target="freeweibo-mirror">SPAM 你走了真好，不然总担心你会走</a>
 </h2>
