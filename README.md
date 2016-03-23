@@ -36,7 +36,7 @@
 </h2>
 <p>SPAM 你走了真好，不然总担心你会走</p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3956085326876900" target="freeweibo-mirror">切，体现社会主义优越性嘛！//@北京的齐齐:转发微博</a>
 </h2>
