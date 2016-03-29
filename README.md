@@ -101,7 +101,7 @@
 </h2>
 <p>【四川公安厅回应张平家人遭扣押一事】公安厅的通报指出，长平（本名：张平）一家10余人祭祖时，因擅自使用明火而引发山林火灾。西充县公安局目前已对长平的父亲和两名弟弟展开进一步调查。长平是旅居德国的中国资深媒体人、时评作家，被官方怀疑涉嫌参与一封公开信事件。http://t.cn/RqZw2Ui<br><img src="http://ww4.sinaimg.cn/large/6298156bjw1f2drq6ol9sj20os0z3q3v.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3958385336914817" target="freeweibo-mirror">SPAM 马//@美图精彩语录:后续精彩内容戳长图末尾~</a>
 </h2>
