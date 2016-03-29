@@ -71,7 +71,7 @@
 </h2>
 <p>//@昕静自然好: //@章诒和: 什么是文革？与社会为敌，残害人民，毁灭文化、以领袖为首恶的、全国规模的犯罪活动就是文革。<br><br>RE: 今年是文革五十周年。文革如何定性？有说是“人与人互相残害”；有说是“全体国民的疯狂”；也有说是“横扫阶级敌人”；还有说“毛泽东要打倒刘少奇”。我的定性是“以全社会痛苦总量极大化为目标的全民运动”。如果人的痛苦可以相加的话，文革就是使全社会大家都痛苦，而且使这个痛苦的总量达到极大。</p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3958447688788480" target="freeweibo-mirror">//@陆伟民律师: //@李不白的店:转发微博</a>
 </h2>
@@ -113,7 +113,7 @@
 </h2>
 <p>SPAM 收到Daniel Wellington寄来的Dapper Sheffield Silver，逼格爆表。关注@danielwellington  或者上官网http://t.cn/R4G4xXA 用我的这个折扣码：dwbu 可以享受85折，折扣码截止日期：5月31日。最后是从@果库 君那里扒来的“为什么大家都在戴的 Daniel Wellington 手表”。<br><img src="http://ww2.sinaimg.cn/large/80e84737gw1f2dpu6ya8rj21kw1kwh4f.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3958368228381172" target="freeweibo-mirror">SPAM [doge]//@吐槽部部长_FrosV: 练功发…</a>
 </h2>
