@@ -35,7 +35,7 @@
 </h2>
 <p>很久不吃康师傅看到这个口味有点动心了。淘宝上搜了下还挺多 超市倒是没见过//@笑点已死的不会截图歌手: 想吃</p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3958475052290796" target="freeweibo-mirror">你们没发现这回答有多不要脸吗，没有一个是实质性的回答，全是顾…</a>
 </h2>
@@ -89,7 +89,7 @@
 </h2>
 <p>有骨气的新闻人[good]<br><img src="http://ww1.sinaimg.cn/large/6f47298bjw1f2dvagz1ljj20qo1bgmzk.jpg"></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3958395545410671" target="freeweibo-mirror">【旧帖】中国人民最大的敌人不是日本，也不是美国，而是戴假面具…</a>
 </h2>
