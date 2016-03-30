@@ -41,7 +41,7 @@
 </h2>
 <p>不敢相信，这是真的！[泪][泪][泪]<br><img src="http://ww3.sinaimg.cn/large/b270f231jw1f2e6yd6fsdj20cs0mpwge.jpg"></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3958496988360312" target="freeweibo-mirror">SPAM 好受伤 想瘦找她@瘦子的艺术</a>
 </h2>
