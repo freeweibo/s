@@ -19,11 +19,23 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3958862652966649" target="freeweibo-mirror">这就是传说中的“粉饰”吗？[吃惊]</a>
+</h2>
+<p>这就是传说中的“粉饰”吗？[吃惊]<br><br>RE: 杭州市相当重视G20峰会，市委书记赵一德今天特地批评，史量才旧居秋水山庄刷墙事件。<br><img src="http://ww4.sinaimg.cn/large/7c1d7ba8gw1f2f807ztw2j20m80gognb.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3958862442504988" target="freeweibo-mirror">反应迅速，赞一锅！[赞]//@刘文超vincent: G20…</a>
+</h2>
+<p>反应迅速，赞一锅！[赞]//@刘文超vincent: G20重视没错，多少历史保护建筑被你们涂的五颜六色，美其名曰保护整修@杭州发布<br><br>RE: 杭州市相当重视G20峰会，市委书记赵一德今天特地批评，史量才旧居秋水山庄刷墙事件。<br><img src="http://ww4.sinaimg.cn/large/7c1d7ba8gw1f2f807ztw2j20m80gognb.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3958836350635994" target="freeweibo-mirror">【童评】鬼鬼祟祟的代表，谁授权你们代表全体律师？偷偷摸摸地开…</a>
 </h2>
 <p>【童评】鬼鬼祟祟的代表，谁授权你们代表全体律师？偷偷摸摸地开会，你们没做见不得人的勾当吧？依宪治国了，一群红律师、心中若无鬼，为何怕阳光？//@公民林静在维权4: 转发微博<br><br>RE: 【估计全国律师“代表”们掌声大作】孟建柱：这是一个法治昌明的时代，律师大有作为的时代。<br><img src="http://ww2.sinaimg.cn/large/6a80bfcdgw1f2f07nopigj20hs0a1wfj.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3958823645511596" target="freeweibo-mirror">SPAM //@闵玉平: //@上海老顽童吴德余:大战略，大…</a>
 </h2>
@@ -47,7 +59,7 @@
 </h2>
 <p>SPAM [doge]//@密斯爻爻：完全不用猜，全都知道是宋仲基了，本来以为是赵寅成，可是看见特种兵就是宋仲基咯。忽略错别字</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3958781006388688" target="freeweibo-mirror">//@凌虚铺子: 我乃厦大的，不是吓大的。杨桑，举报打官司劳…</a>
 </h2>
@@ -59,13 +71,13 @@
 </h2>
 <p>【估计全国律师“代表”们掌声大作】孟建柱：这是一个法治昌明的时代，律师大有作为的时代。<br><img src="http://ww2.sinaimg.cn/large/6a80bfcdgw1f2f07nopigj20hs0a1wfj.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3958760982415375" target="freeweibo-mirror">我党强大，听得起尖锐意见。还是让任志强继续发表党内民主建议吧…</a>
 </h2>
 <p>我党强大，听得起尖锐意见。还是让任志强继续发表党内民主建议吧。 //@许林2009:转发微博<br><br>RE: 实在看不出任志强的微博，有任何反党的意思，所以，请尊重宪法，开禁他的微博。</p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3958757203481243" target="freeweibo-mirror">SPAM //@尹鸿: 民国105年。</a>
 </h2>
@@ -95,7 +107,7 @@
 </h2>
 <p>????//@夏目家的小诗哥: 为了G20 整个杭州都在翻修折腾 小吃小摊也全没了[拜拜]烦都烦死//@再抖一夏_叽叽叽:mdzz//@学习君:目瞪口呆……这是搞破坏吧把肌理效果还给人家啊[笑cry] //@小鸡NK旁白D:妈的智障…//@毛巾被被裹着被子说: 杭州政府这次真-智障[拜拜]<br><br>RE: 杭州市为了迎接G20, 做了很多工作，市政府对于此次重要里程碑式会议做足了功课，同时特别重视文化建设和修缮，功不可没！中国梦一定会实现！<br><img src="http://ww2.sinaimg.cn/large/7dc37d8egw1f2epi08wu8j20k00zk0wl.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3958711342392621" target="freeweibo-mirror">SPAM 哈哈都变成寺庙的感觉[嘻嘻]//@-广宇-:失心疯…</a>
 </h2>
@@ -124,18 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3958702681970128" target="freeweibo-mirror">认真的吗……//@佐仓千代级战列舰: 哈哈哈哈哈哈//@太妃…</a>
 </h2>
 <p>认真的吗……//@佐仓千代级战列舰: 哈哈哈哈哈哈//@太妃兔奶糖: 好丑啊！！！！！！！！！！！！ //@意匠id:.............<br><br>RE: 杭州市为了迎接G20, 做了很多工作，市政府对于此次重要里程碑式会议做足了功课，同时特别重视文化建设和修缮，功不可没！中国梦一定会实现！<br><img src="http://ww2.sinaimg.cn/large/7dc37d8egw1f2epi08wu8j20k00zk0wl.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3958692175136444" target="freeweibo-mirror">杭州城为迎G20开始了丧心病狂的涂墙运动。。。快去拍吧，太精…</a>
-</h2>
-<p>杭州城为迎G20开始了丧心病狂的涂墙运动。。。快去拍吧，太精彩了[白眼]<br><img src="http://ww1.sinaimg.cn/large/69b56ab6gw1f2eqm3338oj20f00qon1e.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3958688244757947" target="freeweibo-mirror">7000吨进口婴幼奶粉检出问题被拒入境http://t.cn…</a>
-</h2>
-<p>7000吨进口婴幼奶粉检出问题被拒入境http://t.cn/RqZrZ0K 这种新闻没几个媒体炒。//@辟谣与真相: 不是什么“为澳洲国民吃得放心”，是专门整给中国人看的促销噱头： http://t.cn/RqZuCZV 且这公司“不含中国原料”的奶粉，被国家质检局查出违规使用化学物质退货。http://t.cn/RqZBUJE<br><br>RE: 澳大利亚为了让国民吃得放心，在奶粉包装上特别注明：“该产品没有任何来自中国的原料”，还特别用了粗体字。食药监总局：你们看了有何想法？（图片来自@初八叔叔  ）<br><img src="http://ww1.sinaimg.cn/large/9154fba0jw1f2e2gfj3j5j20j60y2wj1.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
