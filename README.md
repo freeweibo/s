@@ -107,7 +107,7 @@
 </h2>
 <p>巴特尔辞去内蒙古自治区主席职务  近年来内蒙古自治区出现许多冤假错案和重大违法事件，可长期没人揭开。这和内蒙主要领导在其位不谋萁政有重大关系。因此内蒙广大人民迫切要求中央能换血。走了的该算的账还要算，新上的希望别再让人民群众寒心。我不仇官，是仇恨腐败。 http://t.cn/RqwUDjr<br><img src="http://ww2.sinaimg.cn/large/7dcb5fd1jw1f2f4cd7v4xj20ic03c0sz.jpg"></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3958805715011088" target="freeweibo-mirror">SPAM [doge]//@密斯爻爻：完全不用猜，全都知道是…</a>
 </h2>
@@ -119,7 +119,7 @@
 </h2>
 <p>#热烈祝贺# ……  世界人民的大救星，在捷克，又砸500亿。  我居然激动的无言以对。  …… 无眠，2016.03.30。。<br><img src="http://ww3.sinaimg.cn/large/006pITeNjw1f2f1noivdjj30hs0oijta.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3958781006388688" target="freeweibo-mirror">//@凌虚铺子: 我乃厦大的，不是吓大的。杨桑，举报打官司劳…</a>
 </h2>
