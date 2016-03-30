@@ -127,17 +127,17 @@
 <p>
 	<small> ============== 8小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3958650860877333" target="freeweibo-mirror">转自朋友圈。</a>
+</h2>
+<p>转自朋友圈。<br><img src="http://ww4.sinaimg.cn/large/627cf045gw1f2elvqp5bij20jz0zkdjb.jpg"></p>
+<p>
+	<small> ============== 9小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3958646897040226" target="freeweibo-mirror">发表了博文《梵高画作《夜晚的咖啡馆》被判留在美国，原藏家后裔…</a>
 </h2>
 <p>发表了博文《梵高画作《夜晚的咖啡馆》被判留在美国，原藏家后裔败诉》转载自《参考消息网》，编译：张琳　　法媒称，美国最高法院驳回了一起上诉，从而令一幅文森特·梵高的名作可以留在美国。这项裁决终结了法国人http://t.cn/RqZR3hI<br><img src="http://ww3.sinaimg.cn/large/5577c576jw1f2elfexuhmj20760763yu.jpg"></p>
 <p>
 	<small> ============== 9小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3958633433230078" target="freeweibo-mirror">【关于毛泽东的那些谣言】为何伙食费高？原来，他还得招待客饭。…</a>
-</h2>
-<p>【关于毛泽东的那些谣言】为何伙食费高？原来，他还得招待客饭。如请黄炎培、章士钊等民主人士，不是官方报销，而是花自己的伙食费。去外地别人请吃饭，也是主席付钱。他说，如果他都付账，下面的人才不敢吃饭不付账。http://t.cn/RqZQDZY；  http://t.cn/RqZQDZT //@朱孝顶律师: //@<br><br>RE: 毛在1961年7月的伙食费开支是654.82元，另有水果费86.65元。按1961年的黄金价格3.04元/克算，折合黄金243.9克，换算成2012年的价格在8万元左右，百姓因食物短缺饿死几千万，但当局宣传却说毛和百姓一样节俭！来源：中南海画册编辑委员会所编《平凡与伟大——毛泽东中南海遗物轶事》西苑出版社<br><img src="http://ww1.sinaimg.cn/large/006pu1VBjw1f2dsevjiijj309h0dxwf2.jpg"></p>
-<p>
-	<small> ============== 10小时前</small>
 </p>
 <table>
     <tr>
