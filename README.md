@@ -47,7 +47,7 @@
 </h2>
 <p>SPAM 好受伤 想瘦找她@瘦子的艺术</p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3958481389897150" target="freeweibo-mirror">//@雷颐: //@北马南山://@刘力博士://@有话就说…</a>
 </h2>
