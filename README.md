@@ -23,7 +23,7 @@
 </h2>
 <p>SPAM  //@高悟琴://@司马南:</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3958624558910366" target="freeweibo-mirror">#985早新闻即将播出#（二）◆圭亚那一名中国援外工人突发疾…</a>
 </h2>
@@ -47,7 +47,7 @@
 </h2>
 <p>不敢相信，这是真的！[泪][泪][泪]<br><img src="http://ww3.sinaimg.cn/large/b270f231jw1f2e6yd6fsdj20cs0mpwge.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3958508132687054" target="freeweibo-mirror">环球时报社评：“文革”50周年，反思不应是偏激的     离…</a>
 </h2>
