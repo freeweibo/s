@@ -35,7 +35,7 @@
 </h2>
 <p>撒币来了。<br><img src="http://ww3.sinaimg.cn/large/549f8a4djw1f2f4pq5af8j20g40m8acf.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3958811598861073" target="freeweibo-mirror">巴特尔辞去内蒙古自治区主席职务  近年来内蒙古自治区出现许多…</a>
 </h2>
@@ -52,6 +52,12 @@
 	<a href="https://freeweibo.com/weibo/3958781006388688" target="freeweibo-mirror">//@凌虚铺子: 我乃厦大的，不是吓大的。杨桑，举报打官司劳…</a>
 </h2>
 <p>//@凌虚铺子: 我乃厦大的，不是吓大的。杨桑，举报打官司劳资奉陪。要劳资删帖，没门！[怒]//@崔小平律师：小心社长。//@侠骨柔情的杨华:【警告博主】：你对我的人身攻击不计其数，我都截图了。 你此文涉及我的内容已经不仅是我无需搭理的普通的人身攻击，更是涉及造谣诽谤！提醒你删除！<br><br>RE: 【装逼遭雷劈】严复有言“华风之弊，八字尽之。始于作伪，终于无耻。”一百多年过去，严复这一名言用于@司马南 @小蔺 等大五毛身上，再贴切不过了。                                                       网络代有红人出，各领风骚三五天。最近，共青团中央网络影视中心党组成员、副主任@小蔺 女士...全文： http://m.weibo.cn/5386068989/3958704297021488<br><img src="http://ww3.sinaimg.cn/large/005SvoAtjw1f2ersrxt5oj30wt0ocdo5.jpg"></p>
+<p>
+	<small> ============== 7小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3958775633859217" target="freeweibo-mirror">【估计全国律师“代表”们掌声大作】孟建柱：这是一个法治昌明的…</a>
+</h2>
+<p>【估计全国律师“代表”们掌声大作】孟建柱：这是一个法治昌明的时代，律师大有作为的时代。<br><img src="http://ww2.sinaimg.cn/large/6a80bfcdgw1f2f07nopigj20hs0a1wfj.jpg"></p>
 <p>
 	<small> ============== 7小时前</small>
 </p><h2>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3958688244757947" target="freeweibo-mirror">7000吨进口婴幼奶粉检出问题被拒入境http://t.cn…</a>
 </h2>
 <p>7000吨进口婴幼奶粉检出问题被拒入境http://t.cn/RqZrZ0K 这种新闻没几个媒体炒。//@辟谣与真相: 不是什么“为澳洲国民吃得放心”，是专门整给中国人看的促销噱头： http://t.cn/RqZuCZV 且这公司“不含中国原料”的奶粉，被国家质检局查出违规使用化学物质退货。http://t.cn/RqZBUJE<br><br>RE: 澳大利亚为了让国民吃得放心，在奶粉包装上特别注明：“该产品没有任何来自中国的原料”，还特别用了粗体字。食药监总局：你们看了有何想法？（图片来自@初八叔叔  ）<br><img src="http://ww1.sinaimg.cn/large/9154fba0jw1f2e2gfj3j5j20j60y2wj1.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3958688101924468" target="freeweibo-mirror">//@辟谣与真相:不是什么“为澳洲国民吃得放心”，而是为做中…</a>
-</h2>
-<p>//@辟谣与真相:不是什么“为澳洲国民吃得放心”，而是为做中国生意，利用国人恐国产食品心理，以及“购洋货却买到国产”的顾虑，专门整给中国人看的促销噱头：http://t.cn/RqZuCZV 且这公司“不含中国原料”的奶粉，曾被国家质检局查出违规使用化学物质被退货。 http://t.cn/RqZBUJE<br><br>RE: 澳大利亚为了让国民吃得放心，在奶粉包装上特别注明：“该产品没有任何来自中国的原料”，还特别用了粗体字。食药监总局：你们看了有何想法？（图片来自@初八叔叔  ）<br><img src="http://ww1.sinaimg.cn/large/9154fba0jw1f2e2gfj3j5j20j60y2wj1.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
