@@ -19,6 +19,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3958895556897191" target="freeweibo-mirror">SPAM 那条转发了数次之后就不动了，我下一条评论直接无法发…</a>
+</h2>
+<p>SPAM 那条转发了数次之后就不动了，我下一条评论直接无法发出，不知是否有被屏，但我自己能看到，或许不算被删。后来我自己转好友圈了，因为我会每天清理自己的微博，只留我认为最重要的。</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3958879383648180" target="freeweibo-mirror">钱开路！OK！ //@黄奎ART:怎么不是美金？小气//@夙…</a>
 </h2>
 <p>钱开路！OK！ //@黄奎ART:怎么不是美金？小气//@夙生律师事务所: 转发微博</p>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3958760982415375" target="freeweibo-mirror">我党强大，听得起尖锐意见。还是让任志强继续发表党内民主建议吧…</a>
 </h2>
 <p>我党强大，听得起尖锐意见。还是让任志强继续发表党内民主建议吧。 //@许林2009:转发微博<br><br>RE: 实在看不出任志强的微博，有任何反党的意思，所以，请尊重宪法，开禁他的微博。</p>
-<p>
-	<small> ============== 11小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3958757203481243" target="freeweibo-mirror">SPAM //@尹鸿: 民国105年。</a>
-</h2>
-<p>SPAM //@尹鸿: 民国105年。<br><br>RE: 转自朋友圈。<br><img src="http://ww4.sinaimg.cn/large/627cf045gw1f2elvqp5bij20jz0zkdjb.jpg"></p>
 <p>
 	<small> ============== 11小时前</small>
 </p>
