@@ -89,19 +89,19 @@
 </h2>
 <p>不是什么“为澳洲国民吃得放心”，而是为做中国生意，利用国人恐国产食品心理，以及“购洋货却买到国产”的顾虑，专门整给中国人看的促销噱头：http://t.cn/RqZuCZV 且这公司“不含中国原料”的奶粉，曾被国家质检局查出违规使用化学物质被退货。 http://t.cn/RqZBUJE<br><br>RE: 澳大利亚为了让国民吃得放心，在奶粉包装上特别注明：“该产品没有任何来自中国的原料”，还特别用了粗体字。食药监总局：你们看了有何想法？（图片来自@初八叔叔  ）<br><img src="http://ww1.sinaimg.cn/large/9154fba0jw1f2e2gfj3j5j20j60y2wj1.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3958682730035539" target="freeweibo-mirror">杭州市为了迎接G20, 做了很多工作，市政府对于此次重要里程…</a>
 </h2>
 <p>杭州市为了迎接G20, 做了很多工作，市政府对于此次重要里程碑式会议做足了功课，同时特别重视文化建设和修缮，功不可没！中国梦一定会实现！<br><img src="http://ww2.sinaimg.cn/large/7dc37d8egw1f2epi08wu8j20k00zk0wl.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3958682456643611" target="freeweibo-mirror">你搞反了，我们致力于民族团结，宗教和睦//@adam1133…</a>
 </h2>
 <p>你搞反了，我们致力于民族团结，宗教和睦//@adam11336:回复@王小东:无意间看到你们的微博，我算是明白西方国家为什么会利用民族问题制造事端、分裂国家了，如此行径无疑于分裂势力的帮凶和刽子手，请三思！！！</p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3958680267230357" target="freeweibo-mirror">这不是奶粉，主要原料是“花椰菜绿豆”之类，这些原料关中国多大…</a>
 </h2>
