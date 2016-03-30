@@ -71,7 +71,7 @@
 </h2>
 <p>认真的吗……//@佐仓千代级战列舰: 哈哈哈哈哈哈//@太妃兔奶糖: 好丑啊！！！！！！！！！！！！ //@意匠id:.............<br><br>RE: 杭州市为了迎接G20, 做了很多工作，市政府对于此次重要里程碑式会议做足了功课，同时特别重视文化建设和修缮，功不可没！中国梦一定会实现！<br><img src="http://ww2.sinaimg.cn/large/7dc37d8egw1f2epi08wu8j20k00zk0wl.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3958692175136444" target="freeweibo-mirror">杭州城为迎G20开始了丧心病狂的涂墙运动。。。快去拍吧，太精…</a>
 </h2>
@@ -83,13 +83,13 @@
 </h2>
 <p>7000吨进口婴幼奶粉检出问题被拒入境http://t.cn/RqZrZ0K 这种新闻没几个媒体炒。//@辟谣与真相: 不是什么“为澳洲国民吃得放心”，是专门整给中国人看的促销噱头： http://t.cn/RqZuCZV 且这公司“不含中国原料”的奶粉，被国家质检局查出违规使用化学物质退货。http://t.cn/RqZBUJE<br><br>RE: 澳大利亚为了让国民吃得放心，在奶粉包装上特别注明：“该产品没有任何来自中国的原料”，还特别用了粗体字。食药监总局：你们看了有何想法？（图片来自@初八叔叔  ）<br><img src="http://ww1.sinaimg.cn/large/9154fba0jw1f2e2gfj3j5j20j60y2wj1.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3958688101924468" target="freeweibo-mirror">//@辟谣与真相:不是什么“为澳洲国民吃得放心”，而是为做中…</a>
 </h2>
 <p>//@辟谣与真相:不是什么“为澳洲国民吃得放心”，而是为做中国生意，利用国人恐国产食品心理，以及“购洋货却买到国产”的顾虑，专门整给中国人看的促销噱头：http://t.cn/RqZuCZV 且这公司“不含中国原料”的奶粉，曾被国家质检局查出违规使用化学物质被退货。 http://t.cn/RqZBUJE<br><br>RE: 澳大利亚为了让国民吃得放心，在奶粉包装上特别注明：“该产品没有任何来自中国的原料”，还特别用了粗体字。食药监总局：你们看了有何想法？（图片来自@初八叔叔  ）<br><img src="http://ww1.sinaimg.cn/large/9154fba0jw1f2e2gfj3j5j20j60y2wj1.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3958683128353804" target="freeweibo-mirror">不是什么“为澳洲国民吃得放心”，而是为做中国生意，利用国人恐…</a>
 </h2>
