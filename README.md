@@ -25,6 +25,18 @@
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3958814833013236" target="freeweibo-mirror">撒币来了。</a>
+</h2>
+<p>撒币来了。<br><img src="http://ww3.sinaimg.cn/large/549f8a4djw1f2f4pq5af8j20g40m8acf.jpg"></p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3958811598861073" target="freeweibo-mirror">巴特尔辞去内蒙古自治区主席职务  近年来内蒙古自治区出现许多…</a>
+</h2>
+<p>巴特尔辞去内蒙古自治区主席职务  近年来内蒙古自治区出现许多冤假错案和重大违法事件，可长期没人揭开。这和内蒙主要领导在其位不谋萁政有重大关系。因此内蒙广大人民迫切要求中央能换血。走了的该算的账还要算，新上的希望别再让人民群众寒心。我不仇官，是仇恨腐败。 http://t.cn/RqwUDjr<br><img src="http://ww2.sinaimg.cn/large/7dcb5fd1jw1f2f4cd7v4xj20ic03c0sz.jpg"></p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3958805715011088" target="freeweibo-mirror">SPAM [doge]//@密斯爻爻：完全不用猜，全都知道是…</a>
 </h2>
 <p>SPAM [doge]//@密斯爻爻：完全不用猜，全都知道是宋仲基了，本来以为是赵寅成，可是看见特种兵就是宋仲基咯。忽略错别字</p>
@@ -124,18 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3958683128353804" target="freeweibo-mirror">不是什么“为澳洲国民吃得放心”，而是为做中国生意，利用国人恐…</a>
 </h2>
 <p>不是什么“为澳洲国民吃得放心”，而是为做中国生意，利用国人恐国产食品心理，以及“购洋货却买到国产”的顾虑，专门整给中国人看的促销噱头：http://t.cn/RqZuCZV 且这公司“不含中国原料”的奶粉，曾被国家质检局查出违规使用化学物质被退货。 http://t.cn/RqZBUJE<br><br>RE: 澳大利亚为了让国民吃得放心，在奶粉包装上特别注明：“该产品没有任何来自中国的原料”，还特别用了粗体字。食药监总局：你们看了有何想法？（图片来自@初八叔叔  ）<br><img src="http://ww1.sinaimg.cn/large/9154fba0jw1f2e2gfj3j5j20j60y2wj1.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3958682730035539" target="freeweibo-mirror">杭州市为了迎接G20, 做了很多工作，市政府对于此次重要里程…</a>
-</h2>
-<p>杭州市为了迎接G20, 做了很多工作，市政府对于此次重要里程碑式会议做足了功课，同时特别重视文化建设和修缮，功不可没！中国梦一定会实现！<br><img src="http://ww2.sinaimg.cn/large/7dc37d8egw1f2epi08wu8j20k00zk0wl.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3958682456643611" target="freeweibo-mirror">你搞反了，我们致力于民族团结，宗教和睦//@adam1133…</a>
-</h2>
-<p>你搞反了，我们致力于民族团结，宗教和睦//@adam11336:回复@王小东:无意间看到你们的微博，我算是明白西方国家为什么会利用民族问题制造事端、分裂国家了，如此行径无疑于分裂势力的帮凶和刽子手，请三思！！！</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
