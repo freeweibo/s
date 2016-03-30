@@ -131,7 +131,7 @@
 </h2>
 <p>【估计全国律师“代表”们掌声大作】孟建柱：这是一个法治昌明的时代，律师大有作为的时代。<br><img src="http://ww2.sinaimg.cn/large/6a80bfcdgw1f2f07nopigj20hs0a1wfj.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3958760982415375" target="freeweibo-mirror">我党强大，听得起尖锐意见。还是让任志强继续发表党内民主建议吧…</a>
 </h2>
