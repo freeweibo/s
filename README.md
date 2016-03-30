@@ -19,6 +19,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3958836350635994" target="freeweibo-mirror">【童评】鬼鬼祟祟的代表，谁授权你们代表全体律师？偷偷摸摸地开…</a>
+</h2>
+<p>【童评】鬼鬼祟祟的代表，谁授权你们代表全体律师？偷偷摸摸地开会，你们没做见不得人的勾当吧？依宪治国了，一群红律师、心中若无鬼，为何怕阳光？//@公民林静在维权4: 转发微博<br><br>RE: 【估计全国律师“代表”们掌声大作】孟建柱：这是一个法治昌明的时代，律师大有作为的时代。<br><img src="http://ww2.sinaimg.cn/large/6a80bfcdgw1f2f07nopigj20hs0a1wfj.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3958823645511596" target="freeweibo-mirror">SPAM //@闵玉平: //@上海老顽童吴德余:大战略，大…</a>
 </h2>
 <p>SPAM //@闵玉平: //@上海老顽童吴德余:大战略，大气魄，大手笔，大…<br><br>RE: 撒币来了。<br><img src="http://ww3.sinaimg.cn/large/549f8a4djw1f2f4pq5af8j20g40m8acf.jpg"></p>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3958688101924468" target="freeweibo-mirror">//@辟谣与真相:不是什么“为澳洲国民吃得放心”，而是为做中…</a>
 </h2>
 <p>//@辟谣与真相:不是什么“为澳洲国民吃得放心”，而是为做中国生意，利用国人恐国产食品心理，以及“购洋货却买到国产”的顾虑，专门整给中国人看的促销噱头：http://t.cn/RqZuCZV 且这公司“不含中国原料”的奶粉，曾被国家质检局查出违规使用化学物质被退货。 http://t.cn/RqZBUJE<br><br>RE: 澳大利亚为了让国民吃得放心，在奶粉包装上特别注明：“该产品没有任何来自中国的原料”，还特别用了粗体字。食药监总局：你们看了有何想法？（图片来自@初八叔叔  ）<br><img src="http://ww1.sinaimg.cn/large/9154fba0jw1f2e2gfj3j5j20j60y2wj1.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3958683128353804" target="freeweibo-mirror">不是什么“为澳洲国民吃得放心”，而是为做中国生意，利用国人恐…</a>
-</h2>
-<p>不是什么“为澳洲国民吃得放心”，而是为做中国生意，利用国人恐国产食品心理，以及“购洋货却买到国产”的顾虑，专门整给中国人看的促销噱头：http://t.cn/RqZuCZV 且这公司“不含中国原料”的奶粉，曾被国家质检局查出违规使用化学物质被退货。 http://t.cn/RqZBUJE<br><br>RE: 澳大利亚为了让国民吃得放心，在奶粉包装上特别注明：“该产品没有任何来自中国的原料”，还特别用了粗体字。食药监总局：你们看了有何想法？（图片来自@初八叔叔  ）<br><img src="http://ww1.sinaimg.cn/large/9154fba0jw1f2e2gfj3j5j20j60y2wj1.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
