@@ -25,11 +25,35 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3958711342392621" target="freeweibo-mirror">SPAM 哈哈都变成寺庙的感觉[嘻嘻]//@-广宇-:失心疯…</a>
+</h2>
+<p>SPAM 哈哈都变成寺庙的感觉[嘻嘻]//@-广宇-:失心疯了//@--米有--: 满街都是番茄炒蛋了吗？[kxl晕]//@浙江摄影出版社: →_→→_→→_→<br><br>RE: 杭州城为迎G20开始了丧心病狂的涂墙运动。。。快去拍吧，太精彩了[白眼]<br><img src="http://ww1.sinaimg.cn/large/69b56ab6gw1f2eqm3338oj20f00qon1e.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3958711124264168" target="freeweibo-mirror">目瞪口呆……这是搞破坏吧把肌理效果还给人家啊[笑cry] /…</a>
 </h2>
 <p>目瞪口呆……这是搞破坏吧把肌理效果还给人家啊[笑cry] //@小鸡NK旁白D:妈的智障……//@毛巾被被裹着被子说: 杭州政府这次真-智障[拜拜]<br><br>RE: 杭州市为了迎接G20, 做了很多工作，市政府对于此次重要里程碑式会议做足了功课，同时特别重视文化建设和修缮，功不可没！中国梦一定会实现！<br><img src="http://ww2.sinaimg.cn/large/7dc37d8egw1f2epi08wu8j20k00zk0wl.jpg"></p>
 <p>
 	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3958688244757947" target="freeweibo-mirror">7000吨进口婴幼奶粉检出问题被拒入境http://t.cn…</a>
+</h2>
+<p>7000吨进口婴幼奶粉检出问题被拒入境http://t.cn/RqZrZ0K 这种新闻没几个媒体炒。//@辟谣与真相: 不是什么“为澳洲国民吃得放心”，是专门整给中国人看的促销噱头： http://t.cn/RqZuCZV 且这公司“不含中国原料”的奶粉，被国家质检局查出违规使用化学物质退货。http://t.cn/RqZBUJE<br><br>RE: 澳大利亚为了让国民吃得放心，在奶粉包装上特别注明：“该产品没有任何来自中国的原料”，还特别用了粗体字。食药监总局：你们看了有何想法？（图片来自@初八叔叔  ）<br><img src="http://ww1.sinaimg.cn/large/9154fba0jw1f2e2gfj3j5j20j60y2wj1.jpg"></p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3958688101924468" target="freeweibo-mirror">//@辟谣与真相:不是什么“为澳洲国民吃得放心”，而是为做中…</a>
+</h2>
+<p>//@辟谣与真相:不是什么“为澳洲国民吃得放心”，而是为做中国生意，利用国人恐国产食品心理，以及“购洋货却买到国产”的顾虑，专门整给中国人看的促销噱头：http://t.cn/RqZuCZV 且这公司“不含中国原料”的奶粉，曾被国家质检局查出违规使用化学物质被退货。 http://t.cn/RqZBUJE<br><br>RE: 澳大利亚为了让国民吃得放心，在奶粉包装上特别注明：“该产品没有任何来自中国的原料”，还特别用了粗体字。食药监总局：你们看了有何想法？（图片来自@初八叔叔  ）<br><img src="http://ww1.sinaimg.cn/large/9154fba0jw1f2e2gfj3j5j20j60y2wj1.jpg"></p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3958683128353804" target="freeweibo-mirror">不是什么“为澳洲国民吃得放心”，而是为做中国生意，利用国人恐…</a>
+</h2>
+<p>不是什么“为澳洲国民吃得放心”，而是为做中国生意，利用国人恐国产食品心理，以及“购洋货却买到国产”的顾虑，专门整给中国人看的促销噱头：http://t.cn/RqZuCZV 且这公司“不含中国原料”的奶粉，曾被国家质检局查出违规使用化学物质被退货。 http://t.cn/RqZBUJE<br><br>RE: 澳大利亚为了让国民吃得放心，在奶粉包装上特别注明：“该产品没有任何来自中国的原料”，还特别用了粗体字。食药监总局：你们看了有何想法？（图片来自@初八叔叔  ）<br><img src="http://ww1.sinaimg.cn/large/9154fba0jw1f2e2gfj3j5j20j60y2wj1.jpg"></p>
+<p>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3958682730035539" target="freeweibo-mirror">杭州市为了迎接G20, 做了很多工作，市政府对于此次重要里程…</a>
 </h2>
@@ -42,6 +66,18 @@
 <p>你搞反了，我们致力于民族团结，宗教和睦//@adam11336:回复@王小东:无意间看到你们的微博，我算是明白西方国家为什么会利用民族问题制造事端、分裂国家了，如此行径无疑于分裂势力的帮凶和刽子手，请三思！！！</p>
 <p>
 	<small> ============== 4小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3958680267230357" target="freeweibo-mirror">这不是奶粉，主要原料是“花椰菜绿豆”之类，这些原料关中国多大…</a>
+</h2>
+<p>这不是奶粉，主要原料是“花椰菜绿豆”之类，这些原料关中国多大事？也不是什么“为澳洲国民吃得放心”，而是为做中国生意，利用国人恐国产食品心理以及“购洋货却买到国产”的顾虑，专门整给中国人看的促销噱头：http://t.cn/RqZuCZV //@菜花1颗:重点是注明的那句话好吗！顾左右而言他的智障们<br><br>RE: 澳大利亚为了让国民吃得放心，在奶粉包装上特别注明：“该产品没有任何来自中国的原料”，还特别用了粗体字。食药监总局：你们看了有何想法？（图片来自@初八叔叔  ）<br><img src="http://ww1.sinaimg.cn/large/9154fba0jw1f2e2gfj3j5j20j60y2wj1.jpg"></p>
+<p>
+	<small> ============== 5小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3958678896036891" target="freeweibo-mirror">中国有食安问题是事实，不过外资也不干净。比如“毒奶粉”三鹿，…</a>
+</h2>
+<p>中国有食安问题是事实，不过外资也不干净。比如“毒奶粉”三鹿，董事长田文华是“中国优秀民营企业家”，56%股权归老板和员工私人，43%的股份归外企新西兰恒天然。且这些做中国生意的外企，利用国人恐慌心理，以及“购洋货却买到国产”心理，以此促销也是事实。 http://t.cn/RqZ1id3 //@Harry徐不坏争做富一代:<br><br>RE: 澳大利亚为了让国民吃得放心，在奶粉包装上特别注明：“该产品没有任何来自中国的原料”，还特别用了粗体字。食药监总局：你们看了有何想法？（图片来自@初八叔叔  ）<br><img src="http://ww1.sinaimg.cn/large/9154fba0jw1f2e2gfj3j5j20j60y2wj1.jpg"></p>
+<p>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3958671782109803" target="freeweibo-mirror">SPAM  //@高悟琴://@司马南:</a>
 </h2>
@@ -77,7 +113,7 @@
 </h2>
 <p>SPAM 我总算开了微信公众号啦，太懒了。可以关注一下哦，我会写些欧美圈趣闻资讯的。<br><img src="http://ww3.sinaimg.cn/large/69077c94jw1f2ed50gldfj20by0bymxx.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3958547576404015" target="freeweibo-mirror">SPAM 没去过广东黑粤菜，没去过四川黑川菜，没去过上海，逢…</a>
 </h2>
@@ -100,42 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3958496988360312" target="freeweibo-mirror">SPAM 好受伤 想瘦找她@瘦子的艺术</a>
 </h2>
 <p>SPAM 好受伤 想瘦找她@瘦子的艺术</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3958481389897150" target="freeweibo-mirror">//@雷颐: //@北马南山://@刘力博士://@有话就说…</a>
-</h2>
-<p>//@雷颐: //@北马南山://@刘力博士://@有话就说3402662140:作为一个国家媒体，公然向这种文明社会所不齿的流氓行为致敬，真是无话可说。中国人的价值观畸形到无可救药。</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3958479620293463" target="freeweibo-mirror">很久不吃康师傅看到这个口味有点动心了。淘宝上搜了下还挺多 超…</a>
-</h2>
-<p>很久不吃康师傅看到这个口味有点动心了。淘宝上搜了下还挺多 超市倒是没见过//@笑点已死的不会截图歌手: 想吃</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3958475052290796" target="freeweibo-mirror">你们没发现这回答有多不要脸吗，没有一个是实质性的回答，全是顾…</a>
-</h2>
-<p>你们没发现这回答有多不要脸吗，没有一个是实质性的回答，全是顾左右而言他的踢皮球拉皮条的胡扯，第四问关于近代史所谓的开放更是无耻，特么的我要卖给你毒品，你敢不买？那就是不平等对我，我就杀了你。贺教授，要、点、脸、行、吗！ 我分享了http://t.cn/Rqzkulu</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3958471475151831" target="freeweibo-mirror">…… //@我的极品评论:马个</a>
-</h2>
-<p>…… //@我的极品评论:马个</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3958460339015174" target="freeweibo-mirror">SPAM sdfsdff闲得蛋疼把取快递的短信删掉了 然后去…</a>
-</h2>
-<p>SPAM sdfsdff闲得蛋疼把取快递的短信删掉了 然后去百度云恢复信息 恢复了两千多条信息后并没有找到我删掉的那条 然后又删掉了那两千多条短信[拜拜]鱼唇放大一百倍是我[微笑]sdfegr<br><img src="http://ww3.sinaimg.cn/large/3d48a1fdjw1f2akcvcwinj20pb190jv1.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3958459995537878" target="freeweibo-mirror">//@陈业文新大都://@昕静自然好: //@章诒和: 什么…</a>
-</h2>
-<p>//@陈业文新大都://@昕静自然好: //@章诒和: 什么是文革？与社会为敌，残害人民，毁灭文化、以领袖为首恶的、全国规模的犯罪活动就是文革。<br><br>RE: 今年是文革五十周年。文革如何定性？有说是“人与人互相残害”；有说是“全体国民的疯狂”；也有说是“横扫阶级敌人”；还有说“毛泽东要打倒刘少奇”。我的定性是“以全社会痛苦总量极大化为目标的全民运动”。如果人的痛苦可以相加的话，文革就是使全社会大家都痛苦，而且使这个痛苦的总量达到极大。</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
