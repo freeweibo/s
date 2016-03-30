@@ -59,19 +59,19 @@
 </h2>
 <p>哎<br><br>RE: 杭州市相当重视G20峰会，市委书记赵一德今天特地批评，史量才旧居秋水山庄刷墙事件。<br><img src="http://ww4.sinaimg.cn/large/7c1d7ba8gw1f2f807ztw2j20m80gognb.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3958862652966649" target="freeweibo-mirror">这就是传说中的“粉饰”吗？[吃惊]</a>
 </h2>
 <p>这就是传说中的“粉饰”吗？[吃惊]<br><br>RE: 杭州市相当重视G20峰会，市委书记赵一德今天特地批评，史量才旧居秋水山庄刷墙事件。<br><img src="http://ww4.sinaimg.cn/large/7c1d7ba8gw1f2f807ztw2j20m80gognb.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3958862442504988" target="freeweibo-mirror">反应迅速，赞一锅！[赞]//@刘文超vincent: G20…</a>
 </h2>
 <p>反应迅速，赞一锅！[赞]//@刘文超vincent: G20重视没错，多少历史保护建筑被你们涂的五颜六色，美其名曰保护整修@杭州发布<br><br>RE: 杭州市相当重视G20峰会，市委书记赵一德今天特地批评，史量才旧居秋水山庄刷墙事件。<br><img src="http://ww4.sinaimg.cn/large/7c1d7ba8gw1f2f807ztw2j20m80gognb.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3958852686421856" target="freeweibo-mirror">//@余戈-腾冲之围: 博主的意思是殖民+帝制更适合中国。/…</a>
 </h2>
