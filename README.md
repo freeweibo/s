@@ -95,7 +95,7 @@
 </h2>
 <p>SPAM //@闵玉平: //@上海老顽童吴德余:大战略，大气魄，大手笔，大…<br><br>RE: 撒币来了。<br><img src="http://ww3.sinaimg.cn/large/549f8a4djw1f2f4pq5af8j20g40m8acf.jpg"></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3958814833013236" target="freeweibo-mirror">撒币来了。</a>
 </h2>
