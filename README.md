@@ -19,6 +19,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3958823645511596" target="freeweibo-mirror">SPAM //@闵玉平: //@上海老顽童吴德余:大战略，大…</a>
+</h2>
+<p>SPAM //@闵玉平: //@上海老顽童吴德余:大战略，大气魄，大手笔，大…<br><br>RE: 撒币来了。<br><img src="http://ww3.sinaimg.cn/large/549f8a4djw1f2f4pq5af8j20g40m8acf.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3958805715011088" target="freeweibo-mirror">SPAM [doge]//@密斯爻爻：完全不用猜，全都知道是…</a>
 </h2>
 <p>SPAM [doge]//@密斯爻爻：完全不用猜，全都知道是宋仲基了，本来以为是赵寅成，可是看见特种兵就是宋仲基咯。忽略错别字</p>
@@ -101,7 +107,7 @@
 </h2>
 <p>杭州城为迎G20开始了丧心病狂的涂墙运动。。。快去拍吧，太精彩了[白眼]<br><img src="http://ww1.sinaimg.cn/large/69b56ab6gw1f2eqm3338oj20f00qon1e.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3958688244757947" target="freeweibo-mirror">7000吨进口婴幼奶粉检出问题被拒入境http://t.cn…</a>
 </h2>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3958682456643611" target="freeweibo-mirror">你搞反了，我们致力于民族团结，宗教和睦//@adam1133…</a>
 </h2>
 <p>你搞反了，我们致力于民族团结，宗教和睦//@adam11336:回复@王小东:无意间看到你们的微博，我算是明白西方国家为什么会利用民族问题制造事端、分裂国家了，如此行径无疑于分裂势力的帮凶和刽子手，请三思！！！</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3958680267230357" target="freeweibo-mirror">这不是奶粉，主要原料是“花椰菜绿豆”之类，这些原料关中国多大…</a>
-</h2>
-<p>这不是奶粉，主要原料是“花椰菜绿豆”之类，这些原料关中国多大事？也不是什么“为澳洲国民吃得放心”，而是为做中国生意，利用国人恐国产食品心理以及“购洋货却买到国产”的顾虑，专门整给中国人看的促销噱头：http://t.cn/RqZuCZV //@菜花1颗:重点是注明的那句话好吗！顾左右而言他的智障们<br><br>RE: 澳大利亚为了让国民吃得放心，在奶粉包装上特别注明：“该产品没有任何来自中国的原料”，还特别用了粗体字。食药监总局：你们看了有何想法？（图片来自@初八叔叔  ）<br><img src="http://ww1.sinaimg.cn/large/9154fba0jw1f2e2gfj3j5j20j60y2wj1.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
