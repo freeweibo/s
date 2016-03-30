@@ -125,7 +125,7 @@
 </h2>
 <p>SPAM  //@高悟琴://@司马南:</p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3958670045984099" target="freeweibo-mirror">意识形态软实力不足，就要大力投入正确的方向，财政不要去建清真…</a>
 </h2>
