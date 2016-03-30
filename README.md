@@ -31,6 +31,12 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3958633433230078" target="freeweibo-mirror">【关于毛泽东的那些谣言】为何伙食费高？原来，他还得招待客饭。…</a>
+</h2>
+<p>【关于毛泽东的那些谣言】为何伙食费高？原来，他还得招待客饭。如请黄炎培、章士钊等民主人士，不是官方报销，而是花自己的伙食费。去外地别人请吃饭，也是主席付钱。他说，如果他都付账，下面的人才不敢吃饭不付账。http://t.cn/RqZQDZY；  http://t.cn/RqZQDZT //@朱孝顶律师: //@<br><br>RE: 毛在1961年7月的伙食费开支是654.82元，另有水果费86.65元。按1961年的黄金价格3.04元/克算，折合黄金243.9克，换算成2012年的价格在8万元左右，百姓因食物短缺饿死几千万，但当局宣传却说毛和百姓一样节俭！来源：中南海画册编辑委员会所编《平凡与伟大——毛泽东中南海遗物轶事》西苑出版社<br><img src="http://ww1.sinaimg.cn/large/006pu1VBjw1f2dsevjiijj309h0dxwf2.jpg"></p>
+<p>
+	<small> ============== 5小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3958624558910366" target="freeweibo-mirror">#985早新闻即将播出#（二）◆圭亚那一名中国援外工人突发疾…</a>
 </h2>
 <p>#985早新闻即将播出#（二）◆圭亚那一名中国援外工人突发疾病昏迷，扬州医疗援助队紧急救援，受到央视、新华社等国家级媒体点赞；◆宝应县婚姻登处乱收费91万元，违反“八项规定”精神，相关责任人作何查处？◆行风追踪：新万福大桥附近交通标线令人困扰，原是两个部门分别施画，交通设施管理为何不能...全文： http://m.weibo.cn/1744729263/3958624558910366<br><img src="http://ww1.sinaimg.cn/large/67fe74afjw1f2eifl5fy2j21kw11xwog.jpg"></p>
@@ -53,7 +59,7 @@
 </h2>
 <p>不敢相信，这是真的！[泪][泪][泪]<br><img src="http://ww3.sinaimg.cn/large/b270f231jw1f2e6yd6fsdj20cs0mpwge.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3958508132687054" target="freeweibo-mirror">环球时报社评：“文革”50周年，反思不应是偏激的     离…</a>
 </h2>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3958419327210142" target="freeweibo-mirror">有骨气的新闻人[good]</a>
 </h2>
 <p>有骨气的新闻人[good]<br><img src="http://ww1.sinaimg.cn/large/6f47298bjw1f2dvagz1ljj20qo1bgmzk.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3958395545410671" target="freeweibo-mirror">【旧帖】中国人民最大的敌人不是日本，也不是美国，而是戴假面具…</a>
-</h2>
-<p>【旧帖】中国人民最大的敌人不是日本，也不是美国，而是戴假面具，满口为人民服务一肚子自私自利的百万贪官,在国内当官能捞就捞，能贪就贪，一看风头不对，就溜之大吉，跑到外国合家欢乐去了。最终留下的是一个千疮百孔国家，一群贫贱不能移的人民。</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
