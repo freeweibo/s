@@ -23,7 +23,7 @@
 </h2>
 <p>SPAM //@闵玉平: //@上海老顽童吴德余:大战略，大气魄，大手笔，大…<br><br>RE: 撒币来了。<br><img src="http://ww3.sinaimg.cn/large/549f8a4djw1f2f4pq5af8j20g40m8acf.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3958814833013236" target="freeweibo-mirror">撒币来了。</a>
 </h2>
@@ -113,7 +113,7 @@
 </h2>
 <p>认真的吗……//@佐仓千代级战列舰: 哈哈哈哈哈哈//@太妃兔奶糖: 好丑啊！！！！！！！！！！！！ //@意匠id:.............<br><br>RE: 杭州市为了迎接G20, 做了很多工作，市政府对于此次重要里程碑式会议做足了功课，同时特别重视文化建设和修缮，功不可没！中国梦一定会实现！<br><img src="http://ww2.sinaimg.cn/large/7dc37d8egw1f2epi08wu8j20k00zk0wl.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3958692175136444" target="freeweibo-mirror">杭州城为迎G20开始了丧心病狂的涂墙运动。。。快去拍吧，太精…</a>
 </h2>
