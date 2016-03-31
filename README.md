@@ -23,7 +23,7 @@
 </h2>
 <p>SPAM 凑合过吧，还能咋</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3959073420356665" target="freeweibo-mirror">SPAM  //@大学生开讲://@我爱葡萄皮儿: [哈哈]…</a>
 </h2>
@@ -49,6 +49,12 @@
 <p>
 	<small> ============== 5小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3959023675386901" target="freeweibo-mirror">我大学时就发誓，一定要搞清楚，一个国家，一个政权，为什么要将…</a>
+</h2>
+<p>我大学时就发誓，一定要搞清楚，一个国家，一个政权，为什么要将无辜的孩子变成黑人？如何才能防止这种事情再不发生？我认为，我们个人可以原谅曾经遭受的巨大伤害，但执政者应该有勇气反省将人变黑的罪恶。http://t.cn/RqwYxiJ</p>
+<p>
+	<small> ============== 5小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3959020647993023" target="freeweibo-mirror">SPAM NYT算是破罐破摔了</a>
 </h2>
 <p>SPAM NYT算是破罐破摔了<br><br>RE: NYT 安邦<br><img src="http://ww1.sinaimg.cn/large/005VoXoMgw1f2f10u34tyj30c3261aq6.jpg"></p>
@@ -60,6 +66,12 @@
 <p>SPAM 不分手留着过清明啊！</p>
 <p>
 	<small> ============== 5小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3959007981237009" target="freeweibo-mirror">人家躲在出租屋里嫖个娼，吸点毒，你们马上就知道了。事关这么多…</a>
+</h2>
+<p>人家躲在出租屋里嫖个娼，吸点毒，你们马上就知道了。事关这么多儿童生命安全的疫苗事件，连进货商家电话都有了，却至今不见案件的查处结果？贵国的事情真让人看不懂[思考][思考][思考]</p>
+<p>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3958997629472676" target="freeweibo-mirror">这位同志的觉悟还有待提高。个人建议终身制比较好。</a>
 </h2>
@@ -83,7 +95,7 @@
 </h2>
 <p>#985早新闻即将播出#（一）◆市委书记谢正义调研“扬马”赛前筹备工作，要求确保“扬马”成为国内同类比赛领跑者；◆卫生部门开展全市接种疫苗冷藏、运输链检查工作。我市疫苗冷链情况如何？（图为丽欣、李毅）<br><img src="http://ww1.sinaimg.cn/large/67fe74afjw1f2fo6ccbebj20c80i7ab7.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3958895556897191" target="freeweibo-mirror">SPAM 那条转发了数次之后就不动了，我下一条评论直接无法发…</a>
 </h2>
@@ -124,18 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3958863080153008" target="freeweibo-mirror">哎</a>
 </h2>
 <p>哎<br><br>RE: 杭州市相当重视G20峰会，市委书记赵一德今天特地批评，史量才旧居秋水山庄刷墙事件。<br><img src="http://ww4.sinaimg.cn/large/7c1d7ba8gw1f2f807ztw2j20m80gognb.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3958862652966649" target="freeweibo-mirror">这就是传说中的“粉饰”吗？[吃惊]</a>
-</h2>
-<p>这就是传说中的“粉饰”吗？[吃惊]<br><br>RE: 杭州市相当重视G20峰会，市委书记赵一德今天特地批评，史量才旧居秋水山庄刷墙事件。<br><img src="http://ww4.sinaimg.cn/large/7c1d7ba8gw1f2f807ztw2j20m80gognb.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3958862442504988" target="freeweibo-mirror">反应迅速，赞一锅！[赞]//@刘文超vincent: G20…</a>
-</h2>
-<p>反应迅速，赞一锅！[赞]//@刘文超vincent: G20重视没错，多少历史保护建筑被你们涂的五颜六色，美其名曰保护整修@杭州发布<br><br>RE: 杭州市相当重视G20峰会，市委书记赵一德今天特地批评，史量才旧居秋水山庄刷墙事件。<br><img src="http://ww4.sinaimg.cn/large/7c1d7ba8gw1f2f807ztw2j20m80gognb.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
