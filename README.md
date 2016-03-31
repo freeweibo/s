@@ -19,6 +19,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3959176415340167" target="freeweibo-mirror">//@博文评论:中国的媒体不是都姓党么[挖鼻]</a>
+</h2>
+<p>//@博文评论:中国的媒体不是都姓党么[挖鼻]<br><br>RE: 自媒体比媒体好，因为自媒体讲良心，媒体没有良心....</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3959150096186116" target="freeweibo-mirror">SPAM 【电影  #蝙蝠侠大战超人#】影片在70多年DC漫…</a>
 </h2>
 <p>SPAM 【电影  #蝙蝠侠大战超人#】影片在70多年DC漫画历史中，挑选出两位最伟大的英雄蝙蝠侠和超人进行巅峰对决，这碗DC精心烹制的银幕靓汤，你还想错过吗？两人的对决被认为是光明与黑暗的对决、人类历史上最伟大的角斗士决战。在这场世纪大战中，你更支持谁呢？粤TV带您抢先看精彩预告。更多精彩内容，粤TV...全文： http://m.weibo.cn/1726426884/3959150096186116<br><img src="http://ww2.sinaimg.cn/large/66e72f04gw1f2fve99aiyj20zk0k0qay.jpg"></p>
@@ -35,7 +41,7 @@
 </h2>
 <p>高 瑜家遭城管闯入，对方称高老师家违章搭建，高瑜之子被打伤，高老师被对方蛮横推搡，高血压发作，请大家驰援：北京市朝阳区和平家园11区19楼2单元1号<br><img src="http://ww4.sinaimg.cn/large/006fpJqdgw1f2g5ojyw2wj30c80lqabu.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3959104504508420" target="freeweibo-mirror">神舟专车真是一家挺low的公司。深圳的专车司机里是有刑满释放…</a>
 </h2>
@@ -77,7 +83,7 @@
 </h2>
 <p>我大学时就发誓，一定要搞清楚，一个国家，一个政权，为什么要将无辜的孩子变成黑人？如何才能防止这种事情再不发生？我认为，我们个人可以原谅曾经遭受的巨大伤害，但执政者应该有勇气反省将人变黑的罪恶。http://t.cn/RqwYxiJ</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3959020647993023" target="freeweibo-mirror">SPAM NYT算是破罐破摔了</a>
 </h2>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3958879383648180" target="freeweibo-mirror">钱开路！OK！ //@黄奎ART:怎么不是美金？小气//@夙…</a>
 </h2>
 <p>钱开路！OK！ //@黄奎ART:怎么不是美金？小气//@夙生律师事务所: 转发微博</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3958878855723385" target="freeweibo-mirror">SPAM //@眉中王:公知沿着现在的道路走下去，必然走向汉…</a>
-</h2>
-<p>SPAM //@眉中王:公知沿着现在的道路走下去，必然走向汉奸卖国的结局。#戳穿公知无耻的伎俩#<br><br>RE: 公知必然走向卖国汉奸的道路 http://t.cn/R45SbTA</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
