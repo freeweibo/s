@@ -113,7 +113,7 @@
 </h2>
 <p>SPAM 看一眼就爱上了，用一下就黏上了~</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3959136725628567" target="freeweibo-mirror">高 瑜家遭城管闯入，对方称高老师家违章搭建，高瑜之子被打伤，…</a>
 </h2>
