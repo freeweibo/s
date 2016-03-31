@@ -23,7 +23,7 @@
 </h2>
 <p>SPAM [嘘]闷声发大财//@囧纳森:如今不用懂英语•也•能看懂中国了[拜拜] //@娘歆://@多吉犬兵卫://@LeMcDull:轉發微博<br><br>RE: NYT 安邦<br><img src="http://ww1.sinaimg.cn/large/005VoXoMgw1f2f10u34tyj30c3261aq6.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3959020647993023" target="freeweibo-mirror">SPAM NYT算是破罐破摔了</a>
 </h2>
