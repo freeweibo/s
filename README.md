@@ -55,6 +55,12 @@
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3959202298421439" target="freeweibo-mirror">//@浩正刘臻:[吃惊][吃惊][吃惊]</a>
+</h2>
+<p>//@浩正刘臻:[吃惊][吃惊][吃惊]<br><br>RE: 当举报成为职业，举报成为表彰对象时，文革的一幕幕开始接近……<br><img src="http://ww3.sinaimg.cn/large/9154fba0jw1f2gcrzqvzej20iv0d5acg.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3959198570165517" target="freeweibo-mirror">当举报成为职业，举报成为表彰对象时，文革的一幕幕开始接近……</a>
 </h2>
 <p>当举报成为职业，举报成为表彰对象时，文革的一幕幕开始接近……<br><img src="http://ww3.sinaimg.cn/large/9154fba0jw1f2gcrzqvzej20iv0d5acg.jpg"></p>
@@ -101,7 +107,7 @@
 </h2>
 <p>SPAM 看一眼就爱上了，用一下就黏上了~</p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3959136725628567" target="freeweibo-mirror">高 瑜家遭城管闯入，对方称高老师家违章搭建，高瑜之子被打伤，…</a>
 </h2>
@@ -132,12 +138,6 @@
 <p>SPAM  //@大学生开讲://@我爱葡萄皮儿: [哈哈] //@白头翁001:[围观][话筒]//@浔阳女高音123: //@王亚东522: 一个外国人说什么实话，再说不给你国撒币了[右哼哼][左哼哼]<br><br>RE: 人家躲在出租屋里嫖个娼，吸点毒，你们马上就知道了。事关这么多儿童生命安全的疫苗事件，连进货商家电话都有了，却至今不见案件的查处结果？贵国的事情真让人看不懂[思考][思考][思考]</p>
 <p>
 	<small> ============== 12小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3959067275923439" target="freeweibo-mirror">SPAM @小小斌哥：[赞][赞][赞][赞][赞][赞]</a>
-</h2>
-<p>SPAM @小小斌哥：[赞][赞][赞][赞][赞][赞]<br><br>RE: 我大学时就发誓，一定要搞清楚，一个国家，一个政权，为什么要将无辜的孩子变成黑人？如何才能防止这种事情再不发生？我认为，我们个人可以原谅曾经遭受的巨大伤害，但执政者应该有勇气反省将人变黑的罪恶。http://t.cn/RqwYxiJ</p>
-<p>
-	<small> ============== 1天前</small>
 </p>
 <table>
     <tr>
