@@ -71,19 +71,19 @@
 </h2>
 <p>钱开路！OK！ //@黄奎ART:怎么不是美金？小气//@夙生律师事务所: 转发微博</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3958878855723385" target="freeweibo-mirror">SPAM //@眉中王:公知沿着现在的道路走下去，必然走向汉…</a>
 </h2>
 <p>SPAM //@眉中王:公知沿着现在的道路走下去，必然走向汉奸卖国的结局。#戳穿公知无耻的伎俩#<br><br>RE: 公知必然走向卖国汉奸的道路 http://t.cn/R45SbTA</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3958878674560043" target="freeweibo-mirror">怎么不是美金？小气//@夙生律师事务所: 转发微博</a>
 </h2>
 <p>怎么不是美金？小气//@夙生律师事务所: 转发微博</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3958866767214838" target="freeweibo-mirror">造谣传谣死全家//@潘明先生:脑残！脑残！脑残！[弱]//@…</a>
 </h2>
