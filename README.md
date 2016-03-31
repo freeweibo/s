@@ -47,7 +47,7 @@
 </h2>
 <p>如果没做亏心事有什么可怕的呢。<br><br>RE: 当举报成为职业，举报成为表彰对象时，文革的一幕幕开始接近……<br><img src="http://ww3.sinaimg.cn/large/9154fba0jw1f2gcrzqvzej20iv0d5acg.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3959224390280642" target="freeweibo-mirror">//@行者老陈: //@李不白的店://@LifeTime:…</a>
 </h2>
@@ -107,7 +107,7 @@
 </h2>
 <p>自媒体比媒体好，因为自媒体讲良心，媒体没有良心....</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3959150096186116" target="freeweibo-mirror">SPAM 【电影  #蝙蝠侠大战超人#】影片在70多年DC漫…</a>
 </h2>
