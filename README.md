@@ -71,7 +71,7 @@
 </h2>
 <p>SPAM [嘘]闷声发大财//@囧纳森:如今不用懂英语•也•能看懂中国了[拜拜] //@娘歆://@多吉犬兵卫://@LeMcDull:轉發微博<br><br>RE: NYT 安邦<br><img src="http://ww1.sinaimg.cn/large/005VoXoMgw1f2f10u34tyj30c3261aq6.jpg"></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3959023675386901" target="freeweibo-mirror">我大学时就发誓，一定要搞清楚，一个国家，一个政权，为什么要将…</a>
 </h2>
