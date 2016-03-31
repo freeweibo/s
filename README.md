@@ -131,7 +131,7 @@
 </h2>
 <p>SPAM 凑合过吧，还能咋</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3959073420356665" target="freeweibo-mirror">SPAM  //@大学生开讲://@我爱葡萄皮儿: [哈哈]…</a>
 </h2>
