@@ -59,7 +59,7 @@
 </h2>
 <p>我大学时就发誓，一定要搞清楚，一个国家，一个政权，为什么要将无辜的孩子变成黑人？如何才能防止这种事情再不发生？我认为，我们个人可以原谅曾经遭受的巨大伤害，但执政者应该有勇气反省将人变黑的罪恶。http://t.cn/RqwYxiJ</p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3959020647993023" target="freeweibo-mirror">SPAM NYT算是破罐破摔了</a>
 </h2>
@@ -95,7 +95,7 @@
 </h2>
 <p>SPAM 俗话说都说千年王八万年鳖，却没真正见过。倒是蛤蟆妄想当道至死。百年帝梦真的要实现了。[傻眼]//@特许连锁李维华://@水兵李铭://@秦天5279:建议世袭，千秋万代<br><br>RE: 【关于延长习近平总书记的任职期限的建议】 http://t.cn/RqwwUQZ<br><img src="http://ww4.sinaimg.cn/large/7e035fcbgw1f2ezkl7c81j20qo2064ch.jpg"></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3958984358497094" target="freeweibo-mirror">#985早新闻即将播出#（一）◆市委书记谢正义调研“扬马”赛…</a>
 </h2>
