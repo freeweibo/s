@@ -19,6 +19,24 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3958997629472676" target="freeweibo-mirror">这位同志的觉悟还有待提高。个人建议终身制比较好。</a>
+</h2>
+<p>这位同志的觉悟还有待提高。个人建议终身制比较好。<br><br>RE: 【关于延长习近平总书记的任职期限的建议】 http://t.cn/RqwwUQZ<br><img src="http://ww4.sinaimg.cn/large/7e035fcbgw1f2ezkl7c81j20qo2064ch.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3958996518189079" target="freeweibo-mirror">简书记打算干多少年？ //@简直:二十年怎么够，肯定被抓。 …</a>
+</h2>
+<p>简书记打算干多少年？ //@简直:二十年怎么够，肯定被抓。 //@清风竹影55555:这应该不会抓吧？ //@资本杀手寇文红:支持！<br><br>RE: 【关于延长习近平总书记的任职期限的建议】 http://t.cn/RqwwUQZ<br><img src="http://ww4.sinaimg.cn/large/7e035fcbgw1f2ezkl7c81j20qo2064ch.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3958992956667428" target="freeweibo-mirror">SPAM 俗话说都说千年王八万年鳖，却没真正见过。倒是蛤蟆妄…</a>
+</h2>
+<p>SPAM 俗话说都说千年王八万年鳖，却没真正见过。倒是蛤蟆妄想当道至死。百年帝梦真的要实现了。[傻眼]//@特许连锁李维华://@水兵李铭://@秦天5279:建议世袭，千秋万代<br><br>RE: 【关于延长习近平总书记的任职期限的建议】 http://t.cn/RqwwUQZ<br><img src="http://ww4.sinaimg.cn/large/7e035fcbgw1f2ezkl7c81j20qo2064ch.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3958895556897191" target="freeweibo-mirror">SPAM 那条转发了数次之后就不动了，我下一条评论直接无法发…</a>
 </h2>
 <p>SPAM 那条转发了数次之后就不动了，我下一条评论直接无法发出，不知是否有被屏，但我自己能看到，或许不算被删。后来我自己转好友圈了，因为我会每天清理自己的微博，只留我认为最重要的。</p>
@@ -89,7 +107,7 @@
 </h2>
 <p>【童评】鬼鬼祟祟的代表，谁授权你们代表全体律师？偷偷摸摸地开会，你们没做见不得人的勾当吧？依宪治国了，一群红律师、心中若无鬼，为何怕阳光？//@公民林静在维权4: 转发微博<br><br>RE: 【估计全国律师“代表”们掌声大作】孟建柱：这是一个法治昌明的时代，律师大有作为的时代。<br><img src="http://ww2.sinaimg.cn/large/6a80bfcdgw1f2f07nopigj20hs0a1wfj.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3958823645511596" target="freeweibo-mirror">SPAM //@闵玉平: //@上海老顽童吴德余:大战略，大…</a>
 </h2>
@@ -118,24 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3958788228919228" target="freeweibo-mirror">#热烈祝贺# ……  世界人民的大救星，在捷克，又砸500亿…</a>
 </h2>
 <p>#热烈祝贺# ……  世界人民的大救星，在捷克，又砸500亿。  我居然激动的无言以对。  …… 无眠，2016.03.30。。<br><img src="http://ww3.sinaimg.cn/large/006pITeNjw1f2f1noivdjj30hs0oijta.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3958781006388688" target="freeweibo-mirror">//@凌虚铺子: 我乃厦大的，不是吓大的。杨桑，举报打官司劳…</a>
-</h2>
-<p>//@凌虚铺子: 我乃厦大的，不是吓大的。杨桑，举报打官司劳资奉陪。要劳资删帖，没门！[怒]//@崔小平律师：小心社长。//@侠骨柔情的杨华:【警告博主】：你对我的人身攻击不计其数，我都截图了。 你此文涉及我的内容已经不仅是我无需搭理的普通的人身攻击，更是涉及造谣诽谤！提醒你删除！<br><br>RE: 【装逼遭雷劈】严复有言“华风之弊，八字尽之。始于作伪，终于无耻。”一百多年过去，严复这一名言用于@司马南 @小蔺 等大五毛身上，再贴切不过了。                                                       网络代有红人出，各领风骚三五天。最近，共青团中央网络影视中心党组成员、副主任@小蔺 女士...全文： http://m.weibo.cn/5386068989/3958704297021488<br><img src="http://ww3.sinaimg.cn/large/005SvoAtjw1f2ersrxt5oj30wt0ocdo5.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3958775633859217" target="freeweibo-mirror">【估计全国律师“代表”们掌声大作】孟建柱：这是一个法治昌明的…</a>
-</h2>
-<p>【估计全国律师“代表”们掌声大作】孟建柱：这是一个法治昌明的时代，律师大有作为的时代。<br><img src="http://ww2.sinaimg.cn/large/6a80bfcdgw1f2f07nopigj20hs0a1wfj.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3958760982415375" target="freeweibo-mirror">我党强大，听得起尖锐意见。还是让任志强继续发表党内民主建议吧…</a>
-</h2>
-<p>我党强大，听得起尖锐意见。还是让任志强继续发表党内民主建议吧。 //@许林2009:转发微博<br><br>RE: 实在看不出任志强的微博，有任何反党的意思，所以，请尊重宪法，开禁他的微博。</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
