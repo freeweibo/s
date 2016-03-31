@@ -95,7 +95,7 @@
 </h2>
 <p>这位同志的觉悟还有待提高。个人建议终身制比较好。<br><br>RE: 【关于延长习近平总书记的任职期限的建议】 http://t.cn/RqwwUQZ<br><img src="http://ww4.sinaimg.cn/large/7e035fcbgw1f2ezkl7c81j20qo2064ch.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3958996518189079" target="freeweibo-mirror">简书记打算干多少年？ //@简直:二十年怎么够，肯定被抓。 …</a>
 </h2>
