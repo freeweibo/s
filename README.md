@@ -53,7 +53,7 @@
 </h2>
 <p>SPAM 俗话说都说千年王八万年鳖，却没真正见过。倒是蛤蟆妄想当道至死。百年帝梦真的要实现了。[傻眼]//@特许连锁李维华://@水兵李铭://@秦天5279:建议世袭，千秋万代<br><br>RE: 【关于延长习近平总书记的任职期限的建议】 http://t.cn/RqwwUQZ<br><img src="http://ww4.sinaimg.cn/large/7e035fcbgw1f2ezkl7c81j20qo2064ch.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3958984358497094" target="freeweibo-mirror">#985早新闻即将播出#（一）◆市委书记谢正义调研“扬马”赛…</a>
 </h2>
@@ -65,7 +65,7 @@
 </h2>
 <p>SPAM 那条转发了数次之后就不动了，我下一条评论直接无法发出，不知是否有被屏，但我自己能看到，或许不算被删。后来我自己转好友圈了，因为我会每天清理自己的微博，只留我认为最重要的。</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3958879383648180" target="freeweibo-mirror">钱开路！OK！ //@黄奎ART:怎么不是美金？小气//@夙…</a>
 </h2>
