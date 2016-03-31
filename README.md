@@ -71,7 +71,7 @@
 </h2>
 <p>简书记打算干多少年？ //@简直:二十年怎么够，肯定被抓。 //@清风竹影55555:这应该不会抓吧？ //@资本杀手寇文红:支持！<br><br>RE: 【关于延长习近平总书记的任职期限的建议】 http://t.cn/RqwwUQZ<br><img src="http://ww4.sinaimg.cn/large/7e035fcbgw1f2ezkl7c81j20qo2064ch.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3958992956667428" target="freeweibo-mirror">SPAM 俗话说都说千年王八万年鳖，却没真正见过。倒是蛤蟆妄…</a>
 </h2>
