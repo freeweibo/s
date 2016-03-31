@@ -77,7 +77,7 @@
 </h2>
 <p>我大学时就发誓，一定要搞清楚，一个国家，一个政权，为什么要将无辜的孩子变成黑人？如何才能防止这种事情再不发生？我认为，我们个人可以原谅曾经遭受的巨大伤害，但执政者应该有勇气反省将人变黑的罪恶。http://t.cn/RqwYxiJ</p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3959020647993023" target="freeweibo-mirror">SPAM NYT算是破罐破摔了</a>
 </h2>
@@ -89,7 +89,7 @@
 </h2>
 <p>SPAM 不分手留着过清明啊！</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3959007981237009" target="freeweibo-mirror">人家躲在出租屋里嫖个娼，吸点毒，你们马上就知道了。事关这么多…</a>
 </h2>
