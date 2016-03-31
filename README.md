@@ -19,6 +19,18 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3959139220714624" target="freeweibo-mirror">SPAM 看一眼就爱上了，用一下就黏上了~</a>
+</h2>
+<p>SPAM 看一眼就爱上了，用一下就黏上了~</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3959136725628567" target="freeweibo-mirror">高 瑜家遭城管闯入，对方称高老师家违章搭建，高瑜之子被打伤，…</a>
+</h2>
+<p>高 瑜家遭城管闯入，对方称高老师家违章搭建，高瑜之子被打伤，高老师被对方蛮横推搡，高血压发作，请大家驰援：北京市朝阳区和平家园11区19楼2单元1号<br><img src="http://ww4.sinaimg.cn/large/006fpJqdgw1f2g5ojyw2wj30c80lqabu.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3959104504508420" target="freeweibo-mirror">神舟专车真是一家挺low的公司。深圳的专车司机里是有刑满释放…</a>
 </h2>
 <p>神舟专车真是一家挺low的公司。深圳的专车司机里是有刑满释放人员，可那又如何呢？作为老百姓可以担心，也可以质疑。可作为一个行业竞争对手，利用“刑满释放人员”来当话题炒作，引起大众恐慌。未免格局太小，手段太劣。南方系报纸也沦为广告专栏了，还有公信力可言？换句话说，监狱即使惩罚人的地方...全文： http://m.weibo.cn/2397417584/3959104504508420<br><img src="http://ww1.sinaimg.cn/large/8ee5b070gw1f2g1vfnhupj20r20r8jyn.jpg"></p>
@@ -53,7 +65,7 @@
 </h2>
 <p>SPAM [嘘]闷声发大财//@囧纳森:如今不用懂英语•也•能看懂中国了[拜拜] //@娘歆://@多吉犬兵卫://@LeMcDull:轉發微博<br><br>RE: NYT 安邦<br><img src="http://ww1.sinaimg.cn/large/005VoXoMgw1f2f10u34tyj30c3261aq6.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3959023675386901" target="freeweibo-mirror">我大学时就发誓，一定要搞清楚，一个国家，一个政权，为什么要将…</a>
 </h2>
@@ -124,18 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3958878674560043" target="freeweibo-mirror">怎么不是美金？小气//@夙生律师事务所: 转发微博</a>
 </h2>
 <p>怎么不是美金？小气//@夙生律师事务所: 转发微博</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3958866767214838" target="freeweibo-mirror">造谣传谣死全家//@潘明先生:脑残！脑残！脑残！[弱]//@…</a>
-</h2>
-<p>造谣传谣死全家//@潘明先生:脑残！脑残！脑残！[弱]//@成都双爷:@首都网警，这是个流传很久的低级谣言和低级谣棍！</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3958866372245270" target="freeweibo-mirror">外援这么多的钱哪来的？财政的激增哪来的？超60%恐怕来自于国…</a>
-</h2>
-<p>外援这么多的钱哪来的？财政的激增哪来的？超60%恐怕来自于国内的土地收益金吧！世界上所有的民主国家都没有这比收入。可见土地私有制多么重要，多么可贵！[思考]//@李成腾讯://@广州湾在线://@夙生律师事务所:转发微博</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
