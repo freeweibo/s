@@ -59,7 +59,7 @@
 </h2>
 <p>//@浩正刘臻:[吃惊][吃惊][吃惊]<br><br>RE: 当举报成为职业，举报成为表彰对象时，文革的一幕幕开始接近……<br><img src="http://ww3.sinaimg.cn/large/9154fba0jw1f2gcrzqvzej20iv0d5acg.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3959198570165517" target="freeweibo-mirror">当举报成为职业，举报成为表彰对象时，文革的一幕幕开始接近……</a>
 </h2>
@@ -95,7 +95,7 @@
 </h2>
 <p>自媒体比媒体好，因为自媒体讲良心，媒体没有良心....</p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3959150096186116" target="freeweibo-mirror">SPAM 【电影  #蝙蝠侠大战超人#】影片在70多年DC漫…</a>
 </h2>
@@ -119,13 +119,13 @@
 </h2>
 <p>此前，我曾经说过，近现代史上，人类最伟大的发明，不是飞机轮船，不是核弹卫星，甚至不是互联网。而是用“数人头”(一人一票)替代了“砍人头”(暴力革命)。台湾三次政党轮替，政权和平交接(如图所示），被人戏言：“一盏茶的功夫，就把政权交了。”证明人类这一文明游戏，我们华族也会玩。<br><img src="http://ww4.sinaimg.cn/large/005SvoAtgw1f2g2rcpkcjj30hr0dzq4m.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3959104504508420" target="freeweibo-mirror">神舟专车真是一家挺low的公司。深圳的专车司机里是有刑满释放…</a>
 </h2>
 <p>神舟专车真是一家挺low的公司。深圳的专车司机里是有刑满释放人员，可那又如何呢？作为老百姓可以担心，也可以质疑。可作为一个行业竞争对手，利用“刑满释放人员”来当话题炒作，引起大众恐慌。未免格局太小，手段太劣。南方系报纸也沦为广告专栏了，还有公信力可言？换句话说，监狱即使惩罚人的地方...全文： http://m.weibo.cn/2397417584/3959104504508420<br><img src="http://ww1.sinaimg.cn/large/8ee5b070gw1f2g1vfnhupj20r20r8jyn.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3959075681425150" target="freeweibo-mirror">SPAM 凑合过吧，还能咋</a>
 </h2>
