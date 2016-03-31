@@ -23,7 +23,7 @@
 </h2>
 <p>SPAM [嘘]闷声发大财//@囧纳森:如今不用懂英语•也•能看懂中国了[拜拜] //@娘歆://@多吉犬兵卫://@LeMcDull:轉發微博<br><br>RE: NYT 安邦<br><img src="http://ww1.sinaimg.cn/large/005VoXoMgw1f2f10u34tyj30c3261aq6.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3959020647993023" target="freeweibo-mirror">SPAM NYT算是破罐破摔了</a>
 </h2>
@@ -89,13 +89,13 @@
 </h2>
 <p>造谣传谣死全家//@潘明先生:脑残！脑残！脑残！[弱]//@成都双爷:@首都网警，这是个流传很久的低级谣言和低级谣棍！</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3958866372245270" target="freeweibo-mirror">外援这么多的钱哪来的？财政的激增哪来的？超60%恐怕来自于国…</a>
 </h2>
 <p>外援这么多的钱哪来的？财政的激增哪来的？超60%恐怕来自于国内的土地收益金吧！世界上所有的民主国家都没有这比收入。可见土地私有制多么重要，多么可贵！[思考]//@李成腾讯://@广州湾在线://@夙生律师事务所:转发微博</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3958863080153008" target="freeweibo-mirror">哎</a>
 </h2>
