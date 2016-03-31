@@ -59,7 +59,7 @@
 </h2>
 <p>//@浩正刘臻:[吃惊][吃惊][吃惊]<br><br>RE: 当举报成为职业，举报成为表彰对象时，文革的一幕幕开始接近……<br><img src="http://ww3.sinaimg.cn/large/9154fba0jw1f2gcrzqvzej20iv0d5acg.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3959198570165517" target="freeweibo-mirror">当举报成为职业，举报成为表彰对象时，文革的一幕幕开始接近……</a>
 </h2>
@@ -95,7 +95,7 @@
 </h2>
 <p>自媒体比媒体好，因为自媒体讲良心，媒体没有良心....</p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3959150096186116" target="freeweibo-mirror">SPAM 【电影  #蝙蝠侠大战超人#】影片在70多年DC漫…</a>
 </h2>
@@ -119,7 +119,7 @@
 </h2>
 <p>此前，我曾经说过，近现代史上，人类最伟大的发明，不是飞机轮船，不是核弹卫星，甚至不是互联网。而是用“数人头”(一人一票)替代了“砍人头”(暴力革命)。台湾三次政党轮替，政权和平交接(如图所示），被人戏言：“一盏茶的功夫，就把政权交了。”证明人类这一文明游戏，我们华族也会玩。<br><img src="http://ww4.sinaimg.cn/large/005SvoAtgw1f2g2rcpkcjj30hr0dzq4m.jpg"></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3959104504508420" target="freeweibo-mirror">神舟专车真是一家挺low的公司。深圳的专车司机里是有刑满释放…</a>
 </h2>
