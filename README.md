@@ -29,7 +29,7 @@
 </h2>
 <p>SPAM 不分手留着过清明啊！</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3958997629472676" target="freeweibo-mirror">这位同志的觉悟还有待提高。个人建议终身制比较好。</a>
 </h2>
@@ -59,7 +59,7 @@
 </h2>
 <p>SPAM 那条转发了数次之后就不动了，我下一条评论直接无法发出，不知是否有被屏，但我自己能看到，或许不算被删。后来我自己转好友圈了，因为我会每天清理自己的微博，只留我认为最重要的。</p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3958879383648180" target="freeweibo-mirror">钱开路！OK！ //@黄奎ART:怎么不是美金？小气//@夙…</a>
 </h2>
