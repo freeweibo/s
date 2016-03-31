@@ -19,6 +19,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3959198042126984" target="freeweibo-mirror">SPAM 好啊，学台湾，先来个38年的戒严再说。</a>
+</h2>
+<p>SPAM 好啊，学台湾，先来个38年的戒严再说。</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3959176415340167" target="freeweibo-mirror">//@博文评论:中国的媒体不是都姓党么[挖鼻]</a>
 </h2>
 <p>//@博文评论:中国的媒体不是都姓党么[挖鼻]<br><br>RE: 自媒体比媒体好，因为自媒体讲良心，媒体没有良心....</p>
@@ -48,6 +54,12 @@
 <p>高 瑜家遭城管闯入，对方称高老师家违章搭建，高瑜之子被打伤，高老师被对方蛮横推搡，高血压发作，请大家驰援：北京市朝阳区和平家园11区19楼2单元1号<br><img src="http://ww4.sinaimg.cn/large/006fpJqdgw1f2g5ojyw2wj30c80lqabu.jpg"></p>
 <p>
 	<small> ============== 6小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3959111798559534" target="freeweibo-mirror">此前，我曾经说过，近现代史上，人类最伟大的发明，不是飞机轮船…</a>
+</h2>
+<p>此前，我曾经说过，近现代史上，人类最伟大的发明，不是飞机轮船，不是核弹卫星，甚至不是互联网。而是用“数人头”(一人一票)替代了“砍人头”(暴力革命)。台湾三次政党轮替，政权和平交接(如图所示），被人戏言：“一盏茶的功夫，就把政权交了。”证明人类这一文明游戏，我们华族也会玩。<br><img src="http://ww4.sinaimg.cn/large/005SvoAtgw1f2g2rcpkcjj30hr0dzq4m.jpg"></p>
+<p>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3959104504508420" target="freeweibo-mirror">神舟专车真是一家挺low的公司。深圳的专车司机里是有刑满释放…</a>
 </h2>
@@ -124,18 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3958992956667428" target="freeweibo-mirror">SPAM 俗话说都说千年王八万年鳖，却没真正见过。倒是蛤蟆妄…</a>
 </h2>
 <p>SPAM 俗话说都说千年王八万年鳖，却没真正见过。倒是蛤蟆妄想当道至死。百年帝梦真的要实现了。[傻眼]//@特许连锁李维华://@水兵李铭://@秦天5279:建议世袭，千秋万代<br><br>RE: 【关于延长习近平总书记的任职期限的建议】 http://t.cn/RqwwUQZ<br><img src="http://ww4.sinaimg.cn/large/7e035fcbgw1f2ezkl7c81j20qo2064ch.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3958984358497094" target="freeweibo-mirror">#985早新闻即将播出#（一）◆市委书记谢正义调研“扬马”赛…</a>
-</h2>
-<p>#985早新闻即将播出#（一）◆市委书记谢正义调研“扬马”赛前筹备工作，要求确保“扬马”成为国内同类比赛领跑者；◆卫生部门开展全市接种疫苗冷藏、运输链检查工作。我市疫苗冷链情况如何？（图为丽欣、李毅）<br><img src="http://ww1.sinaimg.cn/large/67fe74afjw1f2fo6ccbebj20c80i7ab7.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3958895556897191" target="freeweibo-mirror">SPAM 那条转发了数次之后就不动了，我下一条评论直接无法发…</a>
-</h2>
-<p>SPAM 那条转发了数次之后就不动了，我下一条评论直接无法发出，不知是否有被屏，但我自己能看到，或许不算被删。后来我自己转好友圈了，因为我会每天清理自己的微博，只留我认为最重要的。</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
