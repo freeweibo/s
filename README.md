@@ -59,7 +59,7 @@
 </h2>
 <p>#985早新闻即将播出#（一）◆市委书记谢正义调研“扬马”赛前筹备工作，要求确保“扬马”成为国内同类比赛领跑者；◆卫生部门开展全市接种疫苗冷藏、运输链检查工作。我市疫苗冷链情况如何？（图为丽欣、李毅）<br><img src="http://ww1.sinaimg.cn/large/67fe74afjw1f2fo6ccbebj20c80i7ab7.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3958895556897191" target="freeweibo-mirror">SPAM 那条转发了数次之后就不动了，我下一条评论直接无法发…</a>
 </h2>
