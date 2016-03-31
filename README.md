@@ -43,11 +43,23 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3959198570165517" target="freeweibo-mirror">当举报成为职业，举报成为表彰对象时，文革的一幕幕开始接近……</a>
+</h2>
+<p>当举报成为职业，举报成为表彰对象时，文革的一幕幕开始接近……<br><img src="http://ww3.sinaimg.cn/large/9154fba0jw1f2gcrzqvzej20iv0d5acg.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3959198042126984" target="freeweibo-mirror">SPAM 好啊，学台湾，先来个38年的戒严再说。</a>
 </h2>
 <p>SPAM 好啊，学台湾，先来个38年的戒严再说。</p>
 <p>
 	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3959196519387613" target="freeweibo-mirror">公交车配司机和售票员是正常的，去年开始途径中南海的14路公交…</a>
+</h2>
+<p>公交车配司机和售票员是正常的，去年开始途径中南海的14路公交车配了安全员，监视可疑乘客和包裹，有一次赶上安全员检查外地乘客包裹，搞得人家哭哭啼啼，为了中南海安全可以理解，最近发现300路也配备安全员了，这太平盛世不断增加安全员反而觉得不安全。乘客一举一动被监视正常吗？靠监视维稳不是病...全文： http://m.weibo.cn/3198720857/3959196519387613<br><img src="http://ww3.sinaimg.cn/large/bea89b59jw1f2gc3owlszj20qo1be7a5.jpg"></p>
+<p>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3959176415340167" target="freeweibo-mirror">//@博文评论:中国的媒体不是都姓党么[挖鼻]</a>
 </h2>
@@ -83,7 +95,7 @@
 </h2>
 <p>高 瑜家遭城管闯入，对方称高老师家违章搭建，高瑜之子被打伤，高老师被对方蛮横推搡，高血压发作，请大家驰援：北京市朝阳区和平家园11区19楼2单元1号<br><img src="http://ww4.sinaimg.cn/large/006fpJqdgw1f2g5ojyw2wj30c80lqabu.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3959111798559534" target="freeweibo-mirror">此前，我曾经说过，近现代史上，人类最伟大的发明，不是飞机轮船…</a>
 </h2>
@@ -124,18 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3959025063882613" target="freeweibo-mirror">SPAM [嘘]闷声发大财//@囧纳森:如今不用懂英语•也•…</a>
 </h2>
 <p>SPAM [嘘]闷声发大财//@囧纳森:如今不用懂英语•也•能看懂中国了[拜拜] //@娘歆://@多吉犬兵卫://@LeMcDull:轉發微博<br><br>RE: NYT 安邦<br><img src="http://ww1.sinaimg.cn/large/005VoXoMgw1f2f10u34tyj30c3261aq6.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3959023675386901" target="freeweibo-mirror">我大学时就发誓，一定要搞清楚，一个国家，一个政权，为什么要将…</a>
-</h2>
-<p>我大学时就发誓，一定要搞清楚，一个国家，一个政权，为什么要将无辜的孩子变成黑人？如何才能防止这种事情再不发生？我认为，我们个人可以原谅曾经遭受的巨大伤害，但执政者应该有勇气反省将人变黑的罪恶。http://t.cn/RqwYxiJ</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3959020647993023" target="freeweibo-mirror">SPAM NYT算是破罐破摔了</a>
-</h2>
-<p>SPAM NYT算是破罐破摔了<br><br>RE: NYT 安邦<br><img src="http://ww1.sinaimg.cn/large/005VoXoMgw1f2f10u34tyj30c3261aq6.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
