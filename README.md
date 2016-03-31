@@ -23,7 +23,7 @@
 </h2>
 <p>SPAM 好啊，学台湾，先来个38年的戒严再说。</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3959176415340167" target="freeweibo-mirror">//@博文评论:中国的媒体不是都姓党么[挖鼻]</a>
 </h2>
