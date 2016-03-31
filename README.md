@@ -101,7 +101,7 @@
 </h2>
 <p>SPAM [话筒][话筒][话筒]紧急呼吁：全网关注，莫忘截图，接力转发！！！[霹雳][霹雳][霹雳]<br><img src="http://ww2.sinaimg.cn/large/006ndwUegw1f2g8weyt1aj30c80lqwfz.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3959156929048080" target="freeweibo-mirror">自媒体比媒体好，因为自媒体讲良心，媒体没有良心....</a>
 </h2>
