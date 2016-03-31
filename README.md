@@ -29,11 +29,17 @@
 </h2>
 <p>简书记打算干多少年？ //@简直:二十年怎么够，肯定被抓。 //@清风竹影55555:这应该不会抓吧？ //@资本杀手寇文红:支持！<br><br>RE: 【关于延长习近平总书记的任职期限的建议】 http://t.cn/RqwwUQZ<br><img src="http://ww4.sinaimg.cn/large/7e035fcbgw1f2ezkl7c81j20qo2064ch.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3958992956667428" target="freeweibo-mirror">SPAM 俗话说都说千年王八万年鳖，却没真正见过。倒是蛤蟆妄…</a>
 </h2>
 <p>SPAM 俗话说都说千年王八万年鳖，却没真正见过。倒是蛤蟆妄想当道至死。百年帝梦真的要实现了。[傻眼]//@特许连锁李维华://@水兵李铭://@秦天5279:建议世袭，千秋万代<br><br>RE: 【关于延长习近平总书记的任职期限的建议】 http://t.cn/RqwwUQZ<br><img src="http://ww4.sinaimg.cn/large/7e035fcbgw1f2ezkl7c81j20qo2064ch.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3958984358497094" target="freeweibo-mirror">#985早新闻即将播出#（一）◆市委书记谢正义调研“扬马”赛…</a>
+</h2>
+<p>#985早新闻即将播出#（一）◆市委书记谢正义调研“扬马”赛前筹备工作，要求确保“扬马”成为国内同类比赛领跑者；◆卫生部门开展全市接种疫苗冷藏、运输链检查工作。我市疫苗冷链情况如何？（图为丽欣、李毅）<br><img src="http://ww1.sinaimg.cn/large/67fe74afjw1f2fo6ccbebj20c80i7ab7.jpg"></p>
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
@@ -101,7 +107,7 @@
 </h2>
 <p>杭州市相当重视G20峰会，市委书记赵一德今天特地批评，史量才旧居秋水山庄刷墙事件。<br><img src="http://ww4.sinaimg.cn/large/7c1d7ba8gw1f2f807ztw2j20m80gognb.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3958836350635994" target="freeweibo-mirror">【童评】鬼鬼祟祟的代表，谁授权你们代表全体律师？偷偷摸摸地开…</a>
 </h2>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3958805715011088" target="freeweibo-mirror">SPAM [doge]//@密斯爻爻：完全不用猜，全都知道是…</a>
 </h2>
 <p>SPAM [doge]//@密斯爻爻：完全不用猜，全都知道是宋仲基了，本来以为是赵寅成，可是看见特种兵就是宋仲基咯。忽略错别字</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3958788228919228" target="freeweibo-mirror">#热烈祝贺# ……  世界人民的大救星，在捷克，又砸500亿…</a>
-</h2>
-<p>#热烈祝贺# ……  世界人民的大救星，在捷克，又砸500亿。  我居然激动的无言以对。  …… 无眠，2016.03.30。。<br><img src="http://ww3.sinaimg.cn/large/006pITeNjw1f2f1noivdjj30hs0oijta.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
