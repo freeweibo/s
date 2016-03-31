@@ -19,6 +19,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3959104504508420" target="freeweibo-mirror">神舟专车真是一家挺low的公司。深圳的专车司机里是有刑满释放…</a>
+</h2>
+<p>神舟专车真是一家挺low的公司。深圳的专车司机里是有刑满释放人员，可那又如何呢？作为老百姓可以担心，也可以质疑。可作为一个行业竞争对手，利用“刑满释放人员”来当话题炒作，引起大众恐慌。未免格局太小，手段太劣。南方系报纸也沦为广告专栏了，还有公信力可言？换句话说，监狱即使惩罚人的地方...全文： http://m.weibo.cn/2397417584/3959104504508420<br><img src="http://ww1.sinaimg.cn/large/8ee5b070gw1f2g1vfnhupj20r20r8jyn.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3959075681425150" target="freeweibo-mirror">SPAM 凑合过吧，还能咋</a>
 </h2>
 <p>SPAM 凑合过吧，还能咋</p>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3958866372245270" target="freeweibo-mirror">外援这么多的钱哪来的？财政的激增哪来的？超60%恐怕来自于国…</a>
 </h2>
 <p>外援这么多的钱哪来的？财政的激增哪来的？超60%恐怕来自于国内的土地收益金吧！世界上所有的民主国家都没有这比收入。可见土地私有制多么重要，多么可贵！[思考]//@李成腾讯://@广州湾在线://@夙生律师事务所:转发微博</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3958863080153008" target="freeweibo-mirror">哎</a>
-</h2>
-<p>哎<br><br>RE: 杭州市相当重视G20峰会，市委书记赵一德今天特地批评，史量才旧居秋水山庄刷墙事件。<br><img src="http://ww4.sinaimg.cn/large/7c1d7ba8gw1f2f807ztw2j20m80gognb.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
