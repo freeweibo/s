@@ -59,7 +59,7 @@
 </h2>
 <p>依法治国，为人民服务，政府为民做主，政府的解释是唯一依据，公车改革，欢迎监督举报，最新养老保险政策宣传，95岁以上老人看病全报销，明天会更好。哦！原来今天是愚人节。 http://t.cn/R7dlffG<br><img src="http://ww2.sinaimg.cn/large/8a018550gw1f2hhscdp91j206z03n74c.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3959546379140634" target="freeweibo-mirror">中非合作论坛[哈哈] //@智谷的吴扬文:人家也是家天下！有…</a>
 </h2>
