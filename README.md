@@ -23,7 +23,7 @@
 </h2>
 <p>//@活捉死老鼠://@淵流青年:報告長官，洗頭艇座位已滿，請求支援再開一艘過來<br><br>RE: 时代官网拷屏<br><img src="http://ww2.sinaimg.cn/large/625da52cjw1f2h38zan3qj20qo1bfwk9.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3959429018016337" target="freeweibo-mirror">时代官网拷屏</a>
 </h2>
@@ -65,13 +65,13 @@
 </h2>
 <p>[衰]//@喷嚏网铂程: 转发微博<br><br>RE: 不是愚人节作品，是真的。<br><img src="http://ww2.sinaimg.cn/large/625da52cjw1f2h1pit4lgj20go0m8wfu.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3959426526603089" target="freeweibo-mirror">大家今天都在作。。。//@谢文: 转发微博</a>
 </h2>
 <p>大家今天都在作。。。//@谢文: 转发微博<br><br>RE: 不是愚人节作品，是真的。<br><img src="http://ww2.sinaimg.cn/large/625da52cjw1f2h1pit4lgj20go0m8wfu.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3959415629465404" target="freeweibo-mirror">不是愚人节作品，是真的。</a>
 </h2>
