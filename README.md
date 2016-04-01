@@ -19,11 +19,17 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3959342866109229" target="freeweibo-mirror">SPAM 你以为护士就只是打针、发药这么简单？那么你就大错特…</a>
+</h2>
+<p>SPAM 你以为护士就只是打针、发药这么简单？那么你就大错特错了！我是希妈，一名在南昌工作13年的在编护士，现在辞职做自媒体，这是一个关于我、关于南昌护士的原创成长日记！每天20：30为您带来护士原创/心声/情感/交友/咨询/电台，传播护士的正能量！扫描二维码关注我们<br><img src="http://ww3.sinaimg.cn/large/0440fcc7gw1f2gtcua52yj20by0bygmd.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3959288931820567" target="freeweibo-mirror">SPAM 别当真，岳南写的全是小说。－－－黄方毅：关于《南渡…</a>
 </h2>
 <p>SPAM 别当真，岳南写的全是小说。－－－黄方毅：关于《南渡北归》一个细节的澄清 - 笔会 - 共识网—在大变革时代寻找共识 http://t.cn/RqA6clv<br><img src="http://ww4.sinaimg.cn/large/744be08djw1f2gn5x8c64j202z02zt8m.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3959288067744747" target="freeweibo-mirror">在印度，女儿属于“赔钱货” - 教育 - 共识网—在大变革时…</a>
 </h2>
@@ -65,7 +71,7 @@
 </h2>
 <p>//@上海楼耀福:？//@王周生:“网络举报志愿者”，这是怎样的一种职业？培养怎样的一种人格？<br><br>RE: 当举报成为职业，举报成为表彰对象时，文革的一幕幕开始接近……<br><img src="http://ww3.sinaimg.cn/large/9154fba0jw1f2gcrzqvzej20iv0d5acg.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3959202298421439" target="freeweibo-mirror">//@浩正刘臻:[吃惊][吃惊][吃惊]</a>
 </h2>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3959111798559534" target="freeweibo-mirror">此前，我曾经说过，近现代史上，人类最伟大的发明，不是飞机轮船…</a>
 </h2>
 <p>此前，我曾经说过，近现代史上，人类最伟大的发明，不是飞机轮船，不是核弹卫星，甚至不是互联网。而是用“数人头”(一人一票)替代了“砍人头”(暴力革命)。台湾三次政党轮替，政权和平交接(如图所示），被人戏言：“一盏茶的功夫，就把政权交了。”证明人类这一文明游戏，我们华族也会玩。<br><img src="http://ww4.sinaimg.cn/large/005SvoAtgw1f2g2rcpkcjj30hr0dzq4m.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3959104504508420" target="freeweibo-mirror">神舟专车真是一家挺low的公司。深圳的专车司机里是有刑满释放…</a>
-</h2>
-<p>神舟专车真是一家挺low的公司。深圳的专车司机里是有刑满释放人员，可那又如何呢？作为老百姓可以担心，也可以质疑。可作为一个行业竞争对手，利用“刑满释放人员”来当话题炒作，引起大众恐慌。未免格局太小，手段太劣。南方系报纸也沦为广告专栏了，还有公信力可言？换句话说，监狱即使惩罚人的地方...全文： http://m.weibo.cn/2397417584/3959104504508420<br><img src="http://ww1.sinaimg.cn/large/8ee5b070gw1f2g1vfnhupj20r20r8jyn.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
