@@ -41,13 +41,13 @@
 </h2>
 <p>SPAM 约会？</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3959535938390339" target="freeweibo-mirror">→_→ //@王晔Ken:竟然点名批评了罗援和胡锡进[偷笑]…</a>
 </h2>
 <p>→_→ //@王晔Ken:竟然点名批评了罗援和胡锡进[偷笑] //@jlijames:[汗]<br><br>RE: 吴建民：准确认识今天的世界-共识网 经常嫌外交软的就是军方，我去国防大学讲课。我说，近三十年中国的发展，离不开中央的正确方针，难道中国外交没有功劳吗?软硬都是手段，哪个难?软难。硬，你打我一下我踢你一脚，这三岁小孩子也会，没有难度。讲道理，谈判，软实力，这个很难 http://t.cn/RqA0wci<br><img src="http://ww3.sinaimg.cn/large/513a2b80jw1f2gzdfgot8j202z02zwee.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3959501168301734" target="freeweibo-mirror">SPAM 故事很精彩，点大图</a>
 </h2>
@@ -107,7 +107,7 @@
 </h2>
 <p>SPAM 该出手时就出手，为海外华人点赞！ //@司马平邦:爱国之心，山不能移，海不能干。</p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3959442066853524" target="freeweibo-mirror">//@活捉死老鼠://@淵流青年:報告長官，洗頭艇座位已滿，…</a>
 </h2>
