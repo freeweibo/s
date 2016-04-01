@@ -47,7 +47,7 @@
 </h2>
 <p>如果没做亏心事有什么可怕的呢。<br><br>RE: 当举报成为职业，举报成为表彰对象时，文革的一幕幕开始接近……<br><img src="http://ww3.sinaimg.cn/large/9154fba0jw1f2gcrzqvzej20iv0d5acg.jpg"></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3959224390280642" target="freeweibo-mirror">//@行者老陈: //@李不白的店://@LifeTime:…</a>
 </h2>
