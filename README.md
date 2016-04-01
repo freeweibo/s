@@ -71,7 +71,7 @@
 </h2>
 <p>//@浩正刘臻:[吃惊][吃惊][吃惊]<br><br>RE: 当举报成为职业，举报成为表彰对象时，文革的一幕幕开始接近……<br><img src="http://ww3.sinaimg.cn/large/9154fba0jw1f2gcrzqvzej20iv0d5acg.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3959198570165517" target="freeweibo-mirror">当举报成为职业，举报成为表彰对象时，文革的一幕幕开始接近……</a>
 </h2>
