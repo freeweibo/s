@@ -19,6 +19,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3959426526603089" target="freeweibo-mirror">大家今天都在作。。。//@谢文: 转发微博</a>
+</h2>
+<p>大家今天都在作。。。//@谢文: 转发微博<br><br>RE: 不是愚人节作品，是真的。<br><img src="http://ww2.sinaimg.cn/large/625da52cjw1f2h1pit4lgj20go0m8wfu.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3959378392852582" target="freeweibo-mirror">//@喷嚏网铂程: //@章诒和:转发微博</a>
 </h2>
 <p>//@喷嚏网铂程: //@章诒和:转发微博<br><br>RE: 还是那句话，没有任何道理关闭任志强的微博，请有司尊重民意，将之打开。任何人的宪法权利，都必须得到尊重，核心价值，不应该是空话。</p>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3959202298421439" target="freeweibo-mirror">//@浩正刘臻:[吃惊][吃惊][吃惊]</a>
 </h2>
 <p>//@浩正刘臻:[吃惊][吃惊][吃惊]<br><br>RE: 当举报成为职业，举报成为表彰对象时，文革的一幕幕开始接近……<br><img src="http://ww3.sinaimg.cn/large/9154fba0jw1f2gcrzqvzej20iv0d5acg.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3959198570165517" target="freeweibo-mirror">当举报成为职业，举报成为表彰对象时，文革的一幕幕开始接近……</a>
-</h2>
-<p>当举报成为职业，举报成为表彰对象时，文革的一幕幕开始接近……<br><img src="http://ww3.sinaimg.cn/large/9154fba0jw1f2gcrzqvzej20iv0d5acg.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
