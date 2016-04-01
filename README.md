@@ -29,7 +29,7 @@
 </h2>
 <p>@何惜流年: @西子丹67:回复@黑山塞玉:私改贼最无耻的是从不敢说阶级，从不敢承认他们的权力是工人阶级赋予的！从不敢说最根本最基础最重要的民主，就是经济民主！私改贼就是一伙披着人皮的畜生骗子！ http://t.cn/RqA3NBS</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3959471447104591" target="freeweibo-mirror">SPAM 马//@木岛情箱:情节超级好看！建议先马后看！获取…</a>
 </h2>
@@ -95,13 +95,13 @@
 </h2>
 <p>时代官网拷屏<br><img src="http://ww2.sinaimg.cn/large/625da52cjw1f2h38zan3qj20qo1bfwk9.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3959428396727631" target="freeweibo-mirror">的确如此~//@苏州郎心铁:回复@JW石头:习面毛心 //@…</a>
 </h2>
 <p>的确如此~//@苏州郎心铁:回复@JW石头:习面毛心 //@JW石头:什么意思？ //@苏州郎心铁:[衰] //@喷嚏网铂程: 转发微博<br><br>RE: 不是愚人节作品，是真的。<br><img src="http://ww2.sinaimg.cn/large/625da52cjw1f2h1pit4lgj20go0m8wfu.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3959427801365534" target="freeweibo-mirror">回复@JW石头:习面毛心 //@JW石头:什么意思？ //@…</a>
 </h2>
