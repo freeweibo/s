@@ -49,6 +49,12 @@
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3959565106015408" target="freeweibo-mirror">美国一个基金会日前向“世维会”头目多力坤颁奖，中国外交部就此…</a>
+</h2>
+<p>美国一个基金会日前向“世维会”头目多力坤颁奖，中国外交部就此向美国国务院提出抗议。多力坤·艾沙是国际刑警组织和中国警方的红色通缉对象，涉嫌在中亚和中国境内组织实施多起爆炸、抢劫、杀人等严重刑事犯罪和暴力恐怖活动。中方坚决反对在反恐问题上采取“双重标准”。[围观]不是杰出民主人士吗？<br><img src="http://ww4.sinaimg.cn/large/562bc1d7jw1f2hiulky2kj20b408xwfe.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3959560169166239" target="freeweibo-mirror">依法治国，为人民服务，政府为民做主，政府的解释是唯一依据，公…</a>
 </h2>
 <p>依法治国，为人民服务，政府为民做主，政府的解释是唯一依据，公车改革，欢迎监督举报，最新养老保险政策宣传，95岁以上老人看病全报销，明天会更好。哦！原来今天是愚人节。 http://t.cn/R7dlffG<br><img src="http://ww2.sinaimg.cn/large/8a018550gw1f2hhscdp91j206z03n74c.jpg"></p>
@@ -132,12 +138,6 @@
 <p>SPAM 该出手时就出手，为海外华人点赞！ //@司马平邦:爱国之心，山不能移，海不能干。</p>
 <p>
 	<small> ============== 11小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3959442066853524" target="freeweibo-mirror">//@活捉死老鼠://@淵流青年:報告長官，洗頭艇座位已滿，…</a>
-</h2>
-<p>//@活捉死老鼠://@淵流青年:報告長官，洗頭艇座位已滿，請求支援再開一艘過來<br><br>RE: 时代官网拷屏<br><img src="http://ww2.sinaimg.cn/large/625da52cjw1f2h38zan3qj20qo1bfwk9.jpg"></p>
-<p>
-	<small> ============== 12小时前</small>
 </p>
 <table>
     <tr>
