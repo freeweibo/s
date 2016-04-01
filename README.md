@@ -19,6 +19,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3959560169166239" target="freeweibo-mirror">依法治国，为人民服务，政府为民做主，政府的解释是唯一依据，公…</a>
+</h2>
+<p>依法治国，为人民服务，政府为民做主，政府的解释是唯一依据，公车改革，欢迎监督举报，最新养老保险政策宣传，95岁以上老人看病全报销，明天会更好。哦！原来今天是愚人节。 http://t.cn/R7dlffG<br><img src="http://ww2.sinaimg.cn/large/8a018550gw1f2hhscdp91j206z03n74c.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3959546379140634" target="freeweibo-mirror">中非合作论坛[哈哈] //@智谷的吴扬文:人家也是家天下！有…</a>
 </h2>
 <p>中非合作论坛[哈哈] //@智谷的吴扬文:人家也是家天下！有气派[哈哈]//@谢文:</p>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3959427604359096" target="freeweibo-mirror">赞设计。//@佳期曾经是个假爷们儿://@ECO中文网: 大…</a>
 </h2>
 <p>赞设计。//@佳期曾经是个假爷们儿://@ECO中文网: 大家今天都在作。。。//@谢文: 转发微博<br><br>RE: 不是愚人节作品，是真的。<br><img src="http://ww2.sinaimg.cn/large/625da52cjw1f2h1pit4lgj20go0m8wfu.jpg"></p>
-<p>
-	<small> ============== 11小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3959427574976224" target="freeweibo-mirror">[吃惊] //@我叫方放://@Lynn在遥远的地方:转发微…</a>
-</h2>
-<p>[吃惊] //@我叫方放://@Lynn在遥远的地方:转发微博<br><br>RE: 不是愚人节作品，是真的。<br><img src="http://ww2.sinaimg.cn/large/625da52cjw1f2h1pit4lgj20go0m8wfu.jpg"></p>
 <p>
 	<small> ============== 11小时前</small>
 </p>
