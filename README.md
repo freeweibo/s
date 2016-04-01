@@ -101,7 +101,7 @@
 </h2>
 <p>不是愚人节作品，是真的。<br><img src="http://ww2.sinaimg.cn/large/625da52cjw1f2h1pit4lgj20go0m8wfu.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3959412332724014" target="freeweibo-mirror">SPAM 这个国家哪天不是愚人节？所以今天就别骗了，过一个诚…</a>
 </h2>
