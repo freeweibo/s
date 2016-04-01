@@ -59,7 +59,7 @@
 </h2>
 <p>不是愚人节作品，是真的。<br><img src="http://ww2.sinaimg.cn/large/625da52cjw1f2h1pit4lgj20go0m8wfu.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3959378392852582" target="freeweibo-mirror">//@喷嚏网铂程: //@章诒和:转发微博</a>
 </h2>
