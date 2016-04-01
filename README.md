@@ -29,13 +29,13 @@
 </h2>
 <p>采茶女？//@扛着石头过河:真尼玛难看//@喷嚏网铂程:转发微博<br><br>RE: 《人民日报》突破广电总局的封锁，在Twitter上发了一组没有剪裁的采茶女。[好棒]<br><img src="http://ww2.sinaimg.cn/large/dd816182jw1f2gisvyt5gj20i70cogoa.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3959371295580055" target="freeweibo-mirror">有人在街市派钱做善事，也会有人质疑派钱者是不是神经病，任何人…</a>
 </h2>
 <p>有人在街市派钱做善事，也会有人质疑派钱者是不是神经病，任何人做任何事都会有人拥护有人质疑 ，这是现代社会的政治生态，也是社会政治文明标志。如果有人因为自己做好事被人质疑，就要将质疑者干掉，这就是野蛮政治，好事也变成坏事了。船古佬认为有人敢质疑批评当权者，这其实是当权者的文明荣耀。<br><br>RE: 还是那句话，没有任何道理关闭任志强的微博，请有司尊重民意，将之打开。任何人的宪法权利，都必须得到尊重，核心价值，不应该是空话。</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3959364362800695" target="freeweibo-mirror">SPAM 坐等被删... //@ECO中文网:回复@假装是少…</a>
 </h2>
@@ -47,7 +47,7 @@
 </h2>
 <p>【某报最新一期封面】唉，你们就。。。<br><img src="http://ww2.sinaimg.cn/large/62b31d36gw1f2guttsrpmj20b40emabj.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3959351523790226" target="freeweibo-mirror">SPAM #985早新闻即将播出#（三）◆疯狂司机酒后驾车、…</a>
 </h2>
