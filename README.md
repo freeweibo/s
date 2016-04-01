@@ -23,7 +23,7 @@
 </h2>
 <p>SPAM 故事很精彩，点大图</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3959474093923868" target="freeweibo-mirror">@何惜流年: @西子丹67:回复@黑山塞玉:私改贼最无耻的是…</a>
 </h2>
@@ -89,7 +89,7 @@
 </h2>
 <p>有点不敢发《经济学人》最新的封面哎……</p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3959429018016337" target="freeweibo-mirror">时代官网拷屏</a>
 </h2>
