@@ -137,7 +137,7 @@
 </h2>
 <p>回复@JW石头:习面毛心 //@JW石头:什么意思？ //@苏州郎心铁:[衰] //@喷嚏网铂程: 转发微博<br><br>RE: 不是愚人节作品，是真的。<br><img src="http://ww2.sinaimg.cn/large/625da52cjw1f2h1pit4lgj20go0m8wfu.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p>
 <table>
     <tr>
