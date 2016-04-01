@@ -59,7 +59,7 @@
 </h2>
 <p>依法治国，为人民服务，政府为民做主，政府的解释是唯一依据，公车改革，欢迎监督举报，最新养老保险政策宣传，95岁以上老人看病全报销，明天会更好。哦！原来今天是愚人节。 http://t.cn/R7dlffG<br><img src="http://ww2.sinaimg.cn/large/8a018550gw1f2hhscdp91j206z03n74c.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3959546379140634" target="freeweibo-mirror">中非合作论坛[哈哈] //@智谷的吴扬文:人家也是家天下！有…</a>
 </h2>
@@ -113,7 +113,7 @@
 </h2>
 <p>京沪知识界盛传杭州最近几年极左流行，让著名法学家@范忠信 教授在那里受尽屈辱。<br><br>RE: 【浙江省有这个必要吗？我深表怀疑】浙江省委书记提出，"举全省之力",把G20杭州峰会筹备工作“作为压倒一切的头等大事”。http://t.cn/RqAwdZN离九月开会日子还远着呢，难道这一年全省工作就以开这么个会为中心？</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3959448491579476" target="freeweibo-mirror">[哆啦A梦吃惊]//@儿过刀泼书:[doge] //@管鑫S…</a>
 </h2>
