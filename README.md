@@ -107,7 +107,7 @@
 </h2>
 <p>SPAM 坐等被删... //@ECO中文网:回复@假装是少先队员:来年清明记得来看我[最右] //@假装是少先队员:这是清明特别版吗？[doge]<br><br>RE: 【某报最新一期封面】唉，你们就。。。<br><img src="http://ww2.sinaimg.cn/large/62b31d36gw1f2guttsrpmj20b40emabj.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3959355692564896" target="freeweibo-mirror">【某报最新一期封面】唉，你们就。。。</a>
 </h2>
@@ -125,13 +125,13 @@
 </h2>
 <p>//@老刘在德克萨斯:世界各国人都可以看，但神州人和北朝鲜人不能看。<br><br>RE: 《人民日报》突破广电总局的封锁，在Twitter上发了一组没有剪裁的采茶女。[好棒]<br><img src="http://ww2.sinaimg.cn/large/dd816182jw1f2gisvyt5gj20i70cogoa.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3959349632534659" target="freeweibo-mirror">还是那句话，没有任何道理关闭任志强的微博，请有司尊重民意，将…</a>
 </h2>
 <p>还是那句话，没有任何道理关闭任志强的微博，请有司尊重民意，将之打开。任何人的宪法权利，都必须得到尊重，核心价值，不应该是空话。</p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3959342866109229" target="freeweibo-mirror">SPAM 你以为护士就只是打针、发药这么简单？那么你就大错特…</a>
 </h2>
