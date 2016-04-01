@@ -49,6 +49,12 @@
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3959349632534659" target="freeweibo-mirror">还是那句话，没有任何道理关闭任志强的微博，请有司尊重民意，将…</a>
+</h2>
+<p>还是那句话，没有任何道理关闭任志强的微博，请有司尊重民意，将之打开。任何人的宪法权利，都必须得到尊重，核心价值，不应该是空话。</p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3959342866109229" target="freeweibo-mirror">SPAM 你以为护士就只是打针、发药这么简单？那么你就大错特…</a>
 </h2>
 <p>SPAM 你以为护士就只是打针、发药这么简单？那么你就大错特错了！我是希妈，一名在南昌工作13年的在编护士，现在辞职做自媒体，这是一个关于我、关于南昌护士的原创成长日记！每天20：30为您带来护士原创/心声/情感/交友/咨询/电台，传播护士的正能量！扫描二维码关注我们<br><img src="http://ww3.sinaimg.cn/large/0440fcc7gw1f2gtcua52yj20by0bygmd.jpg"></p>
@@ -67,6 +73,12 @@
 <p>
 	<small> ============== 7小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3959251271197506" target="freeweibo-mirror">《人民日报》突破广电总局的封锁，在Twitter上发了一组没…</a>
+</h2>
+<p>《人民日报》突破广电总局的封锁，在Twitter上发了一组没有剪裁的采茶女。[好棒]<br><img src="http://ww2.sinaimg.cn/large/dd816182jw1f2gisvyt5gj20i70cogoa.jpg"></p>
+<p>
+	<small> ============== 10小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3959226907303826" target="freeweibo-mirror">SPAM //@铁帅涅槃4:用时4小时零2分钟，超过千转[耶…</a>
 </h2>
 <p>SPAM //@铁帅涅槃4:用时4小时零2分钟，超过千转[耶]</p>
@@ -83,7 +95,7 @@
 </h2>
 <p>如果没做亏心事有什么可怕的呢。<br><br>RE: 当举报成为职业，举报成为表彰对象时，文革的一幕幕开始接近……<br><img src="http://ww3.sinaimg.cn/large/9154fba0jw1f2gcrzqvzej20iv0d5acg.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3959224390280642" target="freeweibo-mirror">//@行者老陈: //@李不白的店://@LifeTime:…</a>
 </h2>
@@ -124,18 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3959196519387613" target="freeweibo-mirror">公交车配司机和售票员是正常的，去年开始途径中南海的14路公交…</a>
 </h2>
 <p>公交车配司机和售票员是正常的，去年开始途径中南海的14路公交车配了安全员，监视可疑乘客和包裹，有一次赶上安全员检查外地乘客包裹，搞得人家哭哭啼啼，为了中南海安全可以理解，最近发现300路也配备安全员了，这太平盛世不断增加安全员反而觉得不安全。乘客一举一动被监视正常吗？靠监视维稳不是病...全文： http://m.weibo.cn/3198720857/3959196519387613<br><img src="http://ww3.sinaimg.cn/large/bea89b59jw1f2gc3owlszj20qo1be7a5.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3959176415340167" target="freeweibo-mirror">//@博文评论:中国的媒体不是都姓党么[挖鼻]</a>
-</h2>
-<p>//@博文评论:中国的媒体不是都姓党么[挖鼻]<br><br>RE: 自媒体比媒体好，因为自媒体讲良心，媒体没有良心....</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3959165343119760" target="freeweibo-mirror">SPAM [话筒][话筒][话筒]紧急呼吁：全网关注，莫忘截…</a>
-</h2>
-<p>SPAM [话筒][话筒][话筒]紧急呼吁：全网关注，莫忘截图，接力转发！！！[霹雳][霹雳][霹雳]<br><img src="http://ww2.sinaimg.cn/large/006ndwUegw1f2g8weyt1aj30c80lqwfz.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
