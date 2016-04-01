@@ -25,6 +25,12 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3959567677434851" target="freeweibo-mirror">多里坤·艾沙参与策划了新疆新和县系列爆炸案件，出境后，组织参…</a>
+</h2>
+<p>多里坤·艾沙参与策划了新疆新和县系列爆炸案件，出境后，组织参与“东突解放组织”的各种恐怖活动。在安卡拉举行的所谓纪念运动10周年大会上，多里坤·艾沙公开承认“在和田地区发生的反抗中国暴政的起义，就是由我们组织策划的。”//@鉴湖风:这就是普世价值。//@占豪: 美国双重标准何时休？<br><br>RE: 美国一个基金会日前向“世维会”头目多力坤颁奖，中国外交部就此向美国国务院提出抗议。多力坤·艾沙是国际刑警组织和中国警方的红色通缉对象，涉嫌在中亚和中国境内组织实施多起爆炸、抢劫、杀人等严重刑事犯罪和暴力恐怖活动。中方坚决反对在反恐问题上采取“双重标准”。[围观]不是杰出民主人士吗？<br><img src="http://ww4.sinaimg.cn/large/562bc1d7jw1f2hiulky2kj20b408xwfe.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3959560169166239" target="freeweibo-mirror">依法治国，为人民服务，政府为民做主，政府的解释是唯一依据，公…</a>
 </h2>
 <p>依法治国，为人民服务，政府为民做主，政府的解释是唯一依据，公车改革，欢迎监督举报，最新养老保险政策宣传，95岁以上老人看病全报销，明天会更好。哦！原来今天是愚人节。 http://t.cn/R7dlffG<br><img src="http://ww2.sinaimg.cn/large/8a018550gw1f2hhscdp91j206z03n74c.jpg"></p>
@@ -125,17 +131,11 @@
 </h2>
 <p>时代官网拷屏<br><img src="http://ww2.sinaimg.cn/large/625da52cjw1f2h38zan3qj20qo1bfwk9.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3959428396727631" target="freeweibo-mirror">的确如此~//@苏州郎心铁:回复@JW石头:习面毛心 //@…</a>
 </h2>
 <p>的确如此~//@苏州郎心铁:回复@JW石头:习面毛心 //@JW石头:什么意思？ //@苏州郎心铁:[衰] //@喷嚏网铂程: 转发微博<br><br>RE: 不是愚人节作品，是真的。<br><img src="http://ww2.sinaimg.cn/large/625da52cjw1f2h1pit4lgj20go0m8wfu.jpg"></p>
-<p>
-	<small> ============== 12小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3959427801365534" target="freeweibo-mirror">回复@JW石头:习面毛心 //@JW石头:什么意思？ //@…</a>
-</h2>
-<p>回复@JW石头:习面毛心 //@JW石头:什么意思？ //@苏州郎心铁:[衰] //@喷嚏网铂程: 转发微博<br><br>RE: 不是愚人节作品，是真的。<br><img src="http://ww2.sinaimg.cn/large/625da52cjw1f2h1pit4lgj20go0m8wfu.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
