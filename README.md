@@ -25,11 +25,35 @@
 <p>
 	<small> ============== 1小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3959371546903691" target="freeweibo-mirror">采茶女？//@扛着石头过河:真尼玛难看//@喷嚏网铂程:转发…</a>
+</h2>
+<p>采茶女？//@扛着石头过河:真尼玛难看//@喷嚏网铂程:转发微博<br><br>RE: 《人民日报》突破广电总局的封锁，在Twitter上发了一组没有剪裁的采茶女。[好棒]<br><img src="http://ww2.sinaimg.cn/large/dd816182jw1f2gisvyt5gj20i70cogoa.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3959371295580055" target="freeweibo-mirror">有人在街市派钱做善事，也会有人质疑派钱者是不是神经病，任何人…</a>
+</h2>
+<p>有人在街市派钱做善事，也会有人质疑派钱者是不是神经病，任何人做任何事都会有人拥护有人质疑 ，这是现代社会的政治生态，也是社会政治文明标志。如果有人因为自己做好事被人质疑，就要将质疑者干掉，这就是野蛮政治，好事也变成坏事了。船古佬认为有人敢质疑批评当权者，这其实是当权者的文明荣耀。<br><br>RE: 还是那句话，没有任何道理关闭任志强的微博，请有司尊重民意，将之打开。任何人的宪法权利，都必须得到尊重，核心价值，不应该是空话。</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3959351523790226" target="freeweibo-mirror">SPAM #985早新闻即将播出#（三）◆疯狂司机酒后驾车、…</a>
+</h2>
+<p>SPAM #985早新闻即将播出#（三）◆疯狂司机酒后驾车、无证驾驶，从扬州主城区到江都共造成5起交通事故； ◆行风追踪：听众投诉，邗江区兴扬花园小区乱收费服务不达标？物价部门作何答复？  欢迎您收听《985早新闻》节目！[爱你]<br><img src="http://ww2.sinaimg.cn/large/67fe74afjw1f2gu48mai7j20b606oweu.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3959349783200382" target="freeweibo-mirror">//@老刘在德克萨斯:世界各国人都可以看，但神州人和北朝鲜人…</a>
+</h2>
+<p>//@老刘在德克萨斯:世界各国人都可以看，但神州人和北朝鲜人不能看。<br><br>RE: 《人民日报》突破广电总局的封锁，在Twitter上发了一组没有剪裁的采茶女。[好棒]<br><img src="http://ww2.sinaimg.cn/large/dd816182jw1f2gisvyt5gj20i70cogoa.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3959342866109229" target="freeweibo-mirror">SPAM 你以为护士就只是打针、发药这么简单？那么你就大错特…</a>
 </h2>
 <p>SPAM 你以为护士就只是打针、发药这么简单？那么你就大错特错了！我是希妈，一名在南昌工作13年的在编护士，现在辞职做自媒体，这是一个关于我、关于南昌护士的原创成长日记！每天20：30为您带来护士原创/心声/情感/交友/咨询/电台，传播护士的正能量！扫描二维码关注我们<br><img src="http://ww3.sinaimg.cn/large/0440fcc7gw1f2gtcua52yj20by0bygmd.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3959288931820567" target="freeweibo-mirror">SPAM 别当真，岳南写的全是小说。－－－黄方毅：关于《南渡…</a>
 </h2>
@@ -112,30 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3959165343119760" target="freeweibo-mirror">SPAM [话筒][话筒][话筒]紧急呼吁：全网关注，莫忘截…</a>
 </h2>
 <p>SPAM [话筒][话筒][话筒]紧急呼吁：全网关注，莫忘截图，接力转发！！！[霹雳][霹雳][霹雳]<br><img src="http://ww2.sinaimg.cn/large/006ndwUegw1f2g8weyt1aj30c80lqwfz.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3959156929048080" target="freeweibo-mirror">自媒体比媒体好，因为自媒体讲良心，媒体没有良心....</a>
-</h2>
-<p>自媒体比媒体好，因为自媒体讲良心，媒体没有良心....</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3959150096186116" target="freeweibo-mirror">SPAM 【电影  #蝙蝠侠大战超人#】影片在70多年DC漫…</a>
-</h2>
-<p>SPAM 【电影  #蝙蝠侠大战超人#】影片在70多年DC漫画历史中，挑选出两位最伟大的英雄蝙蝠侠和超人进行巅峰对决，这碗DC精心烹制的银幕靓汤，你还想错过吗？两人的对决被认为是光明与黑暗的对决、人类历史上最伟大的角斗士决战。在这场世纪大战中，你更支持谁呢？粤TV带您抢先看精彩预告。更多精彩内容，粤TV...全文： http://m.weibo.cn/1726426884/3959150096186116<br><img src="http://ww2.sinaimg.cn/large/66e72f04gw1f2fve99aiyj20zk0k0qay.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3959139220714624" target="freeweibo-mirror">SPAM 看一眼就爱上了，用一下就黏上了~</a>
-</h2>
-<p>SPAM 看一眼就爱上了，用一下就黏上了~</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3959136725628567" target="freeweibo-mirror">高 瑜家遭城管闯入，对方称高老师家违章搭建，高瑜之子被打伤，…</a>
-</h2>
-<p>高 瑜家遭城管闯入，对方称高老师家违章搭建，高瑜之子被打伤，高老师被对方蛮横推搡，高血压发作，请大家驰援：北京市朝阳区和平家园11区19楼2单元1号<br><img src="http://ww4.sinaimg.cn/large/006fpJqdgw1f2g5ojyw2wj30c80lqabu.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
