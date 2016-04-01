@@ -77,13 +77,13 @@
 </h2>
 <p>当举报成为职业，举报成为表彰对象时，文革的一幕幕开始接近……<br><img src="http://ww3.sinaimg.cn/large/9154fba0jw1f2gcrzqvzej20iv0d5acg.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3959198042126984" target="freeweibo-mirror">SPAM 好啊，学台湾，先来个38年的戒严再说。</a>
 </h2>
 <p>SPAM 好啊，学台湾，先来个38年的戒严再说。</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3959196519387613" target="freeweibo-mirror">公交车配司机和售票员是正常的，去年开始途径中南海的14路公交…</a>
 </h2>
