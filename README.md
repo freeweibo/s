@@ -19,6 +19,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3959585532079680" target="freeweibo-mirror">不知道最近海外追逃的那个红色名单上有木有它？如果木有，那说明…</a>
+</h2>
+<p>不知道最近海外追逃的那个红色名单上有木有它？如果木有，那说明谁也在搞双重标准？[思考]//@月月鸟206:@公安部刑侦局 必须除了他。//@郑维://@不沉默的大多数:在安卡拉举行的所谓纪念运动10周年大会上，多里坤·艾沙公开承认“在和田地区发生的反抗中国暴政的起义，就是由我们组织策划的。”<br><br>RE: 美国一个基金会日前向“世维会”头目多力坤颁奖，中国外交部就此向美国国务院提出抗议。多力坤·艾沙是国际刑警组织和中国警方的红色通缉对象，涉嫌在中亚和中国境内组织实施多起爆炸、抢劫、杀人等严重刑事犯罪和暴力恐怖活动。中方坚决反对在反恐问题上采取“双重标准”。[围观]不是杰出民主人士吗？<br><img src="http://ww4.sinaimg.cn/large/562bc1d7jw1f2hiulky2kj20b408xwfe.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3959576015697848" target="freeweibo-mirror">SPAM 怎么学的？</a>
 </h2>
 <p>SPAM 怎么学的？<br><img src="http://ww1.sinaimg.cn/large/9ddb72ebjw1f2hk4o1twhj20ku112teg.jpg"></p>
@@ -35,7 +41,7 @@
 </h2>
 <p>依法治国，为人民服务，政府为民做主，政府的解释是唯一依据，公车改革，欢迎监督举报，最新养老保险政策宣传，95岁以上老人看病全报销，明天会更好。哦！原来今天是愚人节。 http://t.cn/R7dlffG<br><img src="http://ww2.sinaimg.cn/large/8a018550gw1f2hhscdp91j206z03n74c.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3959546379140634" target="freeweibo-mirror">中非合作论坛[哈哈] //@智谷的吴扬文:人家也是家天下！有…</a>
 </h2>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3959429018016337" target="freeweibo-mirror">时代官网拷屏</a>
 </h2>
 <p>时代官网拷屏<br><img src="http://ww2.sinaimg.cn/large/625da52cjw1f2h38zan3qj20qo1bfwk9.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3959428396727631" target="freeweibo-mirror">的确如此~//@苏州郎心铁:回复@JW石头:习面毛心 //@…</a>
-</h2>
-<p>的确如此~//@苏州郎心铁:回复@JW石头:习面毛心 //@JW石头:什么意思？ //@苏州郎心铁:[衰] //@喷嚏网铂程: 转发微博<br><br>RE: 不是愚人节作品，是真的。<br><img src="http://ww2.sinaimg.cn/large/625da52cjw1f2h1pit4lgj20go0m8wfu.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
