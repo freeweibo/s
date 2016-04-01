@@ -59,7 +59,7 @@
 </h2>
 <p>SPAM 该出手时就出手，为海外华人点赞！ //@司马平邦:爱国之心，山不能移，海不能干。</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3959442066853524" target="freeweibo-mirror">//@活捉死老鼠://@淵流青年:報告長官，洗頭艇座位已滿，…</a>
 </h2>
@@ -131,7 +131,7 @@
 </h2>
 <p>不是愚人节作品，是真的。<br><img src="http://ww2.sinaimg.cn/large/625da52cjw1f2h1pit4lgj20go0m8wfu.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3959412332724014" target="freeweibo-mirror">SPAM 这个国家哪天不是愚人节？所以今天就别骗了，过一个诚…</a>
 </h2>
