@@ -19,6 +19,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3959378392852582" target="freeweibo-mirror">//@喷嚏网铂程: //@章诒和:转发微博</a>
+</h2>
+<p>//@喷嚏网铂程: //@章诒和:转发微博<br><br>RE: 还是那句话，没有任何道理关闭任志强的微博，请有司尊重民意，将之打开。任何人的宪法权利，都必须得到尊重，核心价值，不应该是空话。</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3959342866109229" target="freeweibo-mirror">SPAM 你以为护士就只是打针、发药这么简单？那么你就大错特…</a>
 </h2>
 <p>SPAM 你以为护士就只是打针、发药这么简单？那么你就大错特错了！我是希妈，一名在南昌工作13年的在编护士，现在辞职做自媒体，这是一个关于我、关于南昌护士的原创成长日记！每天20：30为您带来护士原创/心声/情感/交友/咨询/电台，传播护士的正能量！扫描二维码关注我们<br><img src="http://ww3.sinaimg.cn/large/0440fcc7gw1f2gtcua52yj20by0bygmd.jpg"></p>
@@ -71,7 +77,7 @@
 </h2>
 <p>//@上海楼耀福:？//@王周生:“网络举报志愿者”，这是怎样的一种职业？培养怎样的一种人格？<br><br>RE: 当举报成为职业，举报成为表彰对象时，文革的一幕幕开始接近……<br><img src="http://ww3.sinaimg.cn/large/9154fba0jw1f2gcrzqvzej20iv0d5acg.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3959202298421439" target="freeweibo-mirror">//@浩正刘臻:[吃惊][吃惊][吃惊]</a>
 </h2>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3959136725628567" target="freeweibo-mirror">高 瑜家遭城管闯入，对方称高老师家违章搭建，高瑜之子被打伤，…</a>
 </h2>
 <p>高 瑜家遭城管闯入，对方称高老师家违章搭建，高瑜之子被打伤，高老师被对方蛮横推搡，高血压发作，请大家驰援：北京市朝阳区和平家园11区19楼2单元1号<br><img src="http://ww4.sinaimg.cn/large/006fpJqdgw1f2g5ojyw2wj30c80lqabu.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3959111798559534" target="freeweibo-mirror">此前，我曾经说过，近现代史上，人类最伟大的发明，不是飞机轮船…</a>
-</h2>
-<p>此前，我曾经说过，近现代史上，人类最伟大的发明，不是飞机轮船，不是核弹卫星，甚至不是互联网。而是用“数人头”(一人一票)替代了“砍人头”(暴力革命)。台湾三次政党轮替，政权和平交接(如图所示），被人戏言：“一盏茶的功夫，就把政权交了。”证明人类这一文明游戏，我们华族也会玩。<br><img src="http://ww4.sinaimg.cn/large/005SvoAtgw1f2g2rcpkcjj30hr0dzq4m.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
