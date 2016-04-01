@@ -25,6 +25,24 @@
 <p>
 	<small> ============== 1小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3959463528196593" target="freeweibo-mirror">//@童之伟:京沪知识界盛传杭州最近几年极左流行，让著名法学…</a>
+</h2>
+<p>//@童之伟:京沪知识界盛传杭州最近几年极左流行，让著名法学家@范忠信 教授在那里受尽屈辱。<br><br>RE: 【浙江省有这个必要吗？我深表怀疑】浙江省委书记提出，"举全省之力",把G20杭州峰会筹备工作“作为压倒一切的头等大事”。http://t.cn/RqAwdZN离九月开会日子还远着呢，难道这一年全省工作就以开这么个会为中心？</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3959462602155563" target="freeweibo-mirror">压倒一切，矮马//@童之伟: 京沪知识界盛传杭州最近几年极左…</a>
+</h2>
+<p>压倒一切，矮马//@童之伟: 京沪知识界盛传杭州最近几年极左流行，让著名法学家@范忠信 教授在那里受尽屈辱。<br><br>RE: 【浙江省有这个必要吗？我深表怀疑】浙江省委书记提出，"举全省之力",把G20杭州峰会筹备工作“作为压倒一切的头等大事”。http://t.cn/RqAwdZN离九月开会日子还远着呢，难道这一年全省工作就以开这么个会为中心？</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3959461720475648" target="freeweibo-mirror">京沪知识界盛传杭州最近几年极左流行，让著名法学家@范忠信 教…</a>
+</h2>
+<p>京沪知识界盛传杭州最近几年极左流行，让著名法学家@范忠信 教授在那里受尽屈辱。<br><br>RE: 【浙江省有这个必要吗？我深表怀疑】浙江省委书记提出，"举全省之力",把G20杭州峰会筹备工作“作为压倒一切的头等大事”。http://t.cn/RqAwdZN离九月开会日子还远着呢，难道这一年全省工作就以开这么个会为中心？</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3959442066853524" target="freeweibo-mirror">//@活捉死老鼠://@淵流青年:報告長官，洗頭艇座位已滿，…</a>
 </h2>
 <p>//@活捉死老鼠://@淵流青年:報告長官，洗頭艇座位已滿，請求支援再開一艘過來<br><br>RE: 时代官网拷屏<br><img src="http://ww2.sinaimg.cn/large/625da52cjw1f2h38zan3qj20qo1bfwk9.jpg"></p>
@@ -118,24 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3959355692564896" target="freeweibo-mirror">【某报最新一期封面】唉，你们就。。。</a>
 </h2>
 <p>【某报最新一期封面】唉，你们就。。。<br><img src="http://ww2.sinaimg.cn/large/62b31d36gw1f2guttsrpmj20b40emabj.jpg"></p>
-<p>
-	<small> ============== 9小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3959351523790226" target="freeweibo-mirror">SPAM #985早新闻即将播出#（三）◆疯狂司机酒后驾车、…</a>
-</h2>
-<p>SPAM #985早新闻即将播出#（三）◆疯狂司机酒后驾车、无证驾驶，从扬州主城区到江都共造成5起交通事故； ◆行风追踪：听众投诉，邗江区兴扬花园小区乱收费服务不达标？物价部门作何答复？  欢迎您收听《985早新闻》节目！[爱你]<br><img src="http://ww2.sinaimg.cn/large/67fe74afjw1f2gu48mai7j20b606oweu.jpg"></p>
-<p>
-	<small> ============== 9小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3959349783200382" target="freeweibo-mirror">//@老刘在德克萨斯:世界各国人都可以看，但神州人和北朝鲜人…</a>
-</h2>
-<p>//@老刘在德克萨斯:世界各国人都可以看，但神州人和北朝鲜人不能看。<br><br>RE: 《人民日报》突破广电总局的封锁，在Twitter上发了一组没有剪裁的采茶女。[好棒]<br><img src="http://ww2.sinaimg.cn/large/dd816182jw1f2gisvyt5gj20i70cogoa.jpg"></p>
-<p>
-	<small> ============== 9小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3959349632534659" target="freeweibo-mirror">还是那句话，没有任何道理关闭任志强的微博，请有司尊重民意，将…</a>
-</h2>
-<p>还是那句话，没有任何道理关闭任志强的微博，请有司尊重民意，将之打开。任何人的宪法权利，都必须得到尊重，核心价值，不应该是空话。</p>
 <p>
 	<small> ============== 9小时前</small>
 </p>
