@@ -37,6 +37,12 @@
 <p>
 	<small> ============== 4小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3959917557492270" target="freeweibo-mirror">【观点】年检，必须从政府做起，否则我们也可以拒绝。企业年检、…</a>
+</h2>
+<p>【观点】年检，必须从政府做起，否则我们也可以拒绝。企业年检、律师年检、汽车年检，大把年检一堆堆。政府，你自己年检了吗？你自己做不到，凭什么要求别人做到？你六十多年从不年检，你有什么资格要求别人年检？请以身作则。年检，必须从政府做起，政府必须接受人民的年检。合格，继续干；不合格，滚<br><img src="http://ww3.sinaimg.cn/large/006iAMZRgw1f2incztoi0j30c80f13zr.jpg"></p>
+<p>
+	<small> ============== 5小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3959825426263078" target="freeweibo-mirror">【毛粉们：快来看看！】伟大领袖毛主席的胸怀</a>
 </h2>
 <p>【毛粉们：快来看看！】伟大领袖毛主席的胸怀<br><img src="http://ww1.sinaimg.cn/large/006m1KG1jw1f2icpea9c5j30cs49ck8e.jpg"></p>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3959535960516509" target="freeweibo-mirror">SPAM 约会？</a>
 </h2>
 <p>SPAM 约会？</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3959535938390339" target="freeweibo-mirror">→_→ //@王晔Ken:竟然点名批评了罗援和胡锡进[偷笑]…</a>
-</h2>
-<p>→_→ //@王晔Ken:竟然点名批评了罗援和胡锡进[偷笑] //@jlijames:[汗]<br><br>RE: 吴建民：准确认识今天的世界-共识网 经常嫌外交软的就是军方，我去国防大学讲课。我说，近三十年中国的发展，离不开中央的正确方针，难道中国外交没有功劳吗?软硬都是手段，哪个难?软难。硬，你打我一下我踢你一脚，这三岁小孩子也会，没有难度。讲道理，谈判，软实力，这个很难 http://t.cn/RqA0wci<br><img src="http://ww3.sinaimg.cn/large/513a2b80jw1f2gzdfgot8j202z02zwee.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
