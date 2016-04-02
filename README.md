@@ -25,6 +25,18 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3959964802121934" target="freeweibo-mirror">看来，党和政府依靠吹牛逼、说谎、骗人、耍横那一套执政确实不行…</a>
+</h2>
+<p>看来，党和政府依靠吹牛逼、说谎、骗人、耍横那一套执政确实不行了。该换个套路啦。 [酷]<br><br>RE: 【观点】年检，必须从政府做起，否则我们也可以拒绝。企业年检、律师年检、汽车年检，大把年检一堆堆。政府，你自己年检了吗？你自己做不到，凭什么要求别人做到？你六十多年从不年检，你有什么资格要求别人年检？请以身作则。年检，必须从政府做起，政府必须接受人民的年检。合格，继续干；不合格，滚<br><img src="http://ww3.sinaimg.cn/large/006iAMZRgw1f2incztoi0j30c80f13zr.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3959955587057824" target="freeweibo-mirror">//@花木兰CPV://@力天--度心://@一定要回头啊:…</a>
+</h2>
+<p>//@花木兰CPV://@力天--度心://@一定要回头啊: 转发微博</p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3959941347416356" target="freeweibo-mirror">//@沧海蓝狐VB: 俺们就爱养猪，咋地？！[doge]</a>
 </h2>
 <p>//@沧海蓝狐VB: 俺们就爱养猪，咋地？！[doge]</p>
@@ -41,7 +53,7 @@
 </h2>
 <p>【观点】年检，必须从政府做起，否则我们也可以拒绝。企业年检、律师年检、汽车年检，大把年检一堆堆。政府，你自己年检了吗？你自己做不到，凭什么要求别人做到？你六十多年从不年检，你有什么资格要求别人年检？请以身作则。年检，必须从政府做起，政府必须接受人民的年检。合格，继续干；不合格，滚<br><img src="http://ww3.sinaimg.cn/large/006iAMZRgw1f2incztoi0j30c80f13zr.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3959825426263078" target="freeweibo-mirror">【毛粉们：快来看看！】伟大领袖毛主席的胸怀</a>
 </h2>
@@ -124,18 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3959560169166239" target="freeweibo-mirror">依法治国，为人民服务，政府为民做主，政府的解释是唯一依据，公…</a>
 </h2>
 <p>依法治国，为人民服务，政府为民做主，政府的解释是唯一依据，公车改革，欢迎监督举报，最新养老保险政策宣传，95岁以上老人看病全报销，明天会更好。哦！原来今天是愚人节。 http://t.cn/R7dlffG<br><img src="http://ww2.sinaimg.cn/large/8a018550gw1f2hhscdp91j206z03n74c.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3959546379140634" target="freeweibo-mirror">中非合作论坛[哈哈] //@智谷的吴扬文:人家也是家天下！有…</a>
-</h2>
-<p>中非合作论坛[哈哈] //@智谷的吴扬文:人家也是家天下！有气派[哈哈]//@谢文:</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3959535960516509" target="freeweibo-mirror">SPAM 约会？</a>
-</h2>
-<p>SPAM 约会？</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
