@@ -19,6 +19,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3959972145992153" target="freeweibo-mirror">//@金色麦子沉甸甸: 好博文一篇[good]！</a>
+</h2>
+<p>//@金色麦子沉甸甸: 好博文一篇[good]！<br><br>RE: 【观点】年检，必须从政府做起，否则我们也可以拒绝。企业年检、律师年检、汽车年检，大把年检一堆堆。政府，你自己年检了吗？你自己做不到，凭什么要求别人做到？你六十多年从不年检，你有什么资格要求别人年检？请以身作则。年检，必须从政府做起，政府必须接受人民的年检。合格，继续干；不合格，滚<br><img src="http://ww3.sinaimg.cn/large/006iAMZRgw1f2incztoi0j30c80f13zr.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3959941347416356" target="freeweibo-mirror">//@沧海蓝狐VB: 俺们就爱养猪，咋地？！[doge]</a>
 </h2>
 <p>//@沧海蓝狐VB: 俺们就爱养猪，咋地？！[doge]</p>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3959535938390339" target="freeweibo-mirror">→_→ //@王晔Ken:竟然点名批评了罗援和胡锡进[偷笑]…</a>
 </h2>
 <p>→_→ //@王晔Ken:竟然点名批评了罗援和胡锡进[偷笑] //@jlijames:[汗]<br><br>RE: 吴建民：准确认识今天的世界-共识网 经常嫌外交软的就是军方，我去国防大学讲课。我说，近三十年中国的发展，离不开中央的正确方针，难道中国外交没有功劳吗?软硬都是手段，哪个难?软难。硬，你打我一下我踢你一脚，这三岁小孩子也会，没有难度。讲道理，谈判，软实力，这个很难 http://t.cn/RqA0wci<br><img src="http://ww3.sinaimg.cn/large/513a2b80jw1f2gzdfgot8j202z02zwee.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3959501168301734" target="freeweibo-mirror">SPAM 故事很精彩，点大图</a>
-</h2>
-<p>SPAM 故事很精彩，点大图</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
