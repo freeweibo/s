@@ -35,7 +35,7 @@
 </h2>
 <p>SPAM 撕各姨[害羞] //@北京厨子新号:回复@慎独101007:发散尼婷！//@慎独101007:银吹斯庭//@北京厨子新号:一颗赛艇！ //@LifeTime://@谢文://@Ming_the_Great_大明: //@章诒和:49年前毕业。//@爱坦克的贝塔: “very good quality” 比会背外国书名的庆丰倒车王不知道高到哪里去了！</p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3959748938823918" target="freeweibo-mirror">SPAM 一个赛艇！ //@sonicblue3: Die …</a>
 </h2>
@@ -53,7 +53,7 @@
 </h2>
 <p>SPAM 怀懋教授睡的晚醒的早，科学家告诉我们每天睡觉7小时最好。 //@洪怀懋:打嘴巴就可以了，封嘴巴就过了。</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3959585532079680" target="freeweibo-mirror">不知道最近海外追逃的那个红色名单上有木有它？如果木有，那说明…</a>
 </h2>
