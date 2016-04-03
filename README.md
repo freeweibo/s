@@ -77,7 +77,7 @@
 </h2>
 <p>今儿这个事儿，要是商量不出个结果，咱就不上菜！都饿着！看谁熬得过谁！我还真就不信了！<br><img src="http://ww1.sinaimg.cn/large/7fd6e271jw1f2j59xmnfhj20qa0gmtf5.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3959972145992153" target="freeweibo-mirror">//@金色麦子沉甸甸: 好博文一篇[good]！</a>
 </h2>
