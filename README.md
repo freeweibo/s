@@ -23,7 +23,7 @@
 </h2>
 <p>说了几句实话//@小跳胡言: 估计是前面接受了凤凰采访的那段视频惹祸了 //@好火药:凤姐真没啥问题啊//@卖水晶的猪猪: 凤姐劣迹？凤姐不就是长得没那么好看去做美甲了吗？？凤姐堂堂正正赚自己辛苦钱哪点劣迹了？？//@希波克拉底门徒:估计是怪汤唯把抗日英雄演成汉奸的性奴了<br><br>RE: 汤唯？?why ??<br><img src="http://ww3.sinaimg.cn/large/6841ec71gw1f2jjamo04ej20j60y3q8s.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3960198031358118" target="freeweibo-mirror">SPAM 凤姐真没啥问题啊//@卖水晶的猪猪: 凤姐劣迹？凤…</a>
 </h2>
@@ -113,7 +113,7 @@
 </h2>
 <p>//@郑维:换明朝郑和即可[作揖] //@Mr-blahblahblah:郑总表嘚瑟，如果有必要，中宣部都能找出“自秦汉以来，天朝上国对你新加坡国进行中央管辖的历史证据”来！[哈哈]<br><br>RE: 问：谈香港问题我们用秦朝，那谈新疆、西藏、台湾、南沙、钓鱼岛怎么办？答：换清朝，再不行还可以换民国。<br><img src="http://ww2.sinaimg.cn/large/6d0b6b33jw1f2j5uskxpmj20qo1bgwsi.jpg"></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3960079558747379" target="freeweibo-mirror">问：谈香港问题我们用秦朝，那谈新疆、西藏、台湾、南沙、钓鱼岛…</a>
 </h2>
