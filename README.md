@@ -29,7 +29,7 @@
 </h2>
 <p>问：谈香港问题我们用秦朝，那谈新疆、西藏、台湾、南沙、钓鱼岛怎么办？答：换清朝，再不行还可以换民国。<br><img src="http://ww2.sinaimg.cn/large/6d0b6b33jw1f2j5uskxpmj20qo1bgwsi.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3959972145992153" target="freeweibo-mirror">//@金色麦子沉甸甸: 好博文一篇[good]！</a>
 </h2>
