@@ -23,7 +23,7 @@
 </h2>
 <p>dfgsbjk'dfasd经z过反复劝说沟通，他决定今年夏天投身中超fbglkp;ddgv百度云！电影限制级之资源[哈哈][哈哈][哈哈] 多的是，但是呢 还有剩余，需要的伙伴加百度云……你懂的sdfsdfefd[爱你][爱你]hafyfhvhjlbjk<br><img src="http://ww4.sinaimg.cn/large/5395776bgw1f2jeqxlsc9j20pb190n06.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3960150275086471" target="freeweibo-mirror">SPAM //@思维作家：故事很精彩，先马后看~~~</a>
 </h2>
@@ -79,6 +79,12 @@
 <p>
 	<small> ============== 7小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3960108352920473" target="freeweibo-mirror">张先生的言论总是入木三分。</a>
+</h2>
+<p>张先生的言论总是入木三分。<br><img src="http://ww4.sinaimg.cn/large/006pwrTxgw1f2j969dgcdj30fw0kyq6y.jpg"></p>
+<p>
+	<small> ============== 8小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3960100978607594" target="freeweibo-mirror">//@郑维:换明朝郑和即可[作揖] //@Mr-blahbl…</a>
 </h2>
 <p>//@郑维:换明朝郑和即可[作揖] //@Mr-blahblahblah:郑总表嘚瑟，如果有必要，中宣部都能找出“自秦汉以来，天朝上国对你新加坡国进行中央管辖的历史证据”来！[哈哈]<br><br>RE: 问：谈香港问题我们用秦朝，那谈新疆、西藏、台湾、南沙、钓鱼岛怎么办？答：换清朝，再不行还可以换民国。<br><img src="http://ww2.sinaimg.cn/large/6d0b6b33jw1f2j5uskxpmj20qo1bgwsi.jpg"></p>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3959940391688427" target="freeweibo-mirror">这是杭州市政府为了G20演的戏，完全是虚情假意。一个不断纵容…</a>
 </h2>
 <p>这是杭州市政府为了G20演的戏，完全是虚情假意。一个不断纵容职能部门赖账、抢夺百姓财产的政府怎么可能真心感谢市民？市民车堵心堵还怎么品质生活...//【杭州市政府写感谢信向市民承诺 4月底前完成重点道路整治 】  http://t.cn/Rq2i1kl</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3959917557492270" target="freeweibo-mirror">【观点】年检，必须从政府做起，否则我们也可以拒绝。企业年检、…</a>
-</h2>
-<p>【观点】年检，必须从政府做起，否则我们也可以拒绝。企业年检、律师年检、汽车年检，大把年检一堆堆。政府，你自己年检了吗？你自己做不到，凭什么要求别人做到？你六十多年从不年检，你有什么资格要求别人年检？请以身作则。年检，必须从政府做起，政府必须接受人民的年检。合格，继续干；不合格，滚<br><img src="http://ww3.sinaimg.cn/large/006iAMZRgw1f2incztoi0j30c80f13zr.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
