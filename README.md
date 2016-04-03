@@ -19,6 +19,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3960287508006017" target="freeweibo-mirror">张志新的节操和婊子一样。为婊子喊冤者，会是什么人生的呢？//…</a>
+</h2>
+<p>张志新的节操和婊子一样。为婊子喊冤者，会是什么人生的呢？//@悬壶问茶: 今天的精英们在宣传张志新案的时候，故意回避了一些关键的法律规定和死刑决定程序 http://t.cn/RqLnanS<br><br>RE: 张志新在文革中定为现行反革命，于1969年9月被逮捕。1969年她公开说："强迫自己把真理说成错误是不行的，让我投降办不到。人活着，就要光明正大。"她在狱中遭受了精神上肉体上难以容忍的摧残和折磨，于1975年4月4日被杀害。刑前审判人员怕她喊出“真理之声”，竟把她的喉管割断。http://t.cn/zOonkst ...全文： http://m.weibo.cn/2710739767/3960121728153954<br><img src="http://ww3.sinaimg.cn/large/a1929b37jw1f2jasprfn4j20br0eldga.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3960282948263041" target="freeweibo-mirror">SPAM 亲测，好玩实用高逼格，小伙伴们赶快带走！[doge…</a>
 </h2>
 <p>SPAM 亲测，好玩实用高逼格，小伙伴们赶快带走！[doge]</p>
@@ -65,7 +71,7 @@
 </h2>
 <p>說的真好！鼓掌</p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3960156054129537" target="freeweibo-mirror">dfgsbjk'dfasd经z过反复劝说沟通，他决定今年夏天…</a>
 </h2>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3960108352920473" target="freeweibo-mirror">张先生的言论总是入木三分。</a>
 </h2>
 <p>张先生的言论总是入木三分。<br><img src="http://ww4.sinaimg.cn/large/006pwrTxgw1f2j969dgcdj30fw0kyq6y.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3960100978607594" target="freeweibo-mirror">//@郑维:换明朝郑和即可[作揖] //@Mr-blahbl…</a>
-</h2>
-<p>//@郑维:换明朝郑和即可[作揖] //@Mr-blahblahblah:郑总表嘚瑟，如果有必要，中宣部都能找出“自秦汉以来，天朝上国对你新加坡国进行中央管辖的历史证据”来！[哈哈]<br><br>RE: 问：谈香港问题我们用秦朝，那谈新疆、西藏、台湾、南沙、钓鱼岛怎么办？答：换清朝，再不行还可以换民国。<br><img src="http://ww2.sinaimg.cn/large/6d0b6b33jw1f2j5uskxpmj20qo1bgwsi.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
