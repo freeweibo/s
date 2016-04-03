@@ -19,6 +19,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3960325130769880" target="freeweibo-mirror">//@和合邓润: [崩溃] //@董郎dxp:@鲍迪克  /…</a>
+</h2>
+<p>//@和合邓润: [崩溃] //@董郎dxp:@鲍迪克  //@熋静://@徐昕:呵呵<br><br>RE: #瞭望回眸# 【官员不敢公开财产的原因找到了】2003年曾就财产申报制，决定到上海广东搞试点，结果发生二大问题：1.党政干部强烈抗拒，以消极怠工来对待；2.在内部申报时，上海市的省厅级干部90%拥有一千万以上的资产，广东省的省厅级干部99%拥有一千万以上资产，如公开势必会被社会各界追击。——吴官...全文： http://m.weibo.cn/1736574887/3960118334512521...全文： http://m.weibo.cn/1736574887/3960118334512521...全文： http://m.weibo.cn/1736574887/3960118334512521<br><img src="http://ww2.sinaimg.cn/large/678207a7jw1f2ivdi2901j209z087dg2.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3960305560495906" target="freeweibo-mirror">SPAM 千万不要相信  女孩子可以不白不漂亮身材可以不好 …</a>
 </h2>
 <p>SPAM 千万不要相信  女孩子可以不白不漂亮身材可以不好  之类的话  因为当有一天你终于又瘦又美时  你会发现你的人生就跟开挂似的  只要瘦下来敢于改变自己下一个女神就是你 想瘦找她@Jessie的瘦身小铺<br><img src="http://ww1.sinaimg.cn/large/7fa9a04fgw1f2jvv7ulmrj20qo0hsdht.jpg"></p>
@@ -35,7 +41,7 @@
 </h2>
 <p>垃圾 //@遥远:一群垃圾//@冷爱:后来被判刑了？ //@流浪的蛤蟆:为什么结婚要请这些上不得台面的亲戚呢？我知道好多人说各种理由，但这些理由都站不住脚...//@花间辞殿下:谁要是在我的婚礼上闹伴娘，我直接现场开杀</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3960282948263041" target="freeweibo-mirror">SPAM 亲测，好玩实用高逼格，小伙伴们赶快带走！[doge…</a>
 </h2>
@@ -71,7 +77,7 @@
 </h2>
 <p>汤唯？?why ??<br><img src="http://ww3.sinaimg.cn/large/6841ec71gw1f2jjamo04ej20j60y3q8s.jpg"></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3960192418538269" target="freeweibo-mirror">//@不放弃1300: //@戴建业微博:转发微博</a>
 </h2>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3960117009133133" target="freeweibo-mirror">SPAM //@爱新觉罗载勋:早就过了饭口儿了！谁想到他这一…</a>
 </h2>
 <p>SPAM //@爱新觉罗载勋:早就过了饭口儿了！谁想到他这一手！不表态就不让吃饭！//@珠海ZHTV: 奥巴马旁边是法国奥朗德，习近平旁边是谁？为什么他们都不高兴呢？<br><br>RE: 今儿这个事儿，要是商量不出个结果，咱就不上菜！都饿着！看谁熬得过谁！我还真就不信了！<br><img src="http://ww1.sinaimg.cn/large/7fd6e271jw1f2j59xmnfhj20qa0gmtf5.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3960116774200024" target="freeweibo-mirror">SPAM 早就过了饭口儿了！谁想到他这一手！不表态就不让吃饭…</a>
-</h2>
-<p>SPAM 早就过了饭口儿了！谁想到他这一手！不表态就不让吃饭！//@珠海ZHTV: 奥巴马旁边是法国奥朗德，习近平旁边是谁？为什么他们都不高兴呢？<br><br>RE: 今儿这个事儿，要是商量不出个结果，咱就不上菜！都饿着！看谁熬得过谁！我还真就不信了！<br><img src="http://ww1.sinaimg.cn/large/7fd6e271jw1f2j59xmnfhj20qa0gmtf5.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
