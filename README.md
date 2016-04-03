@@ -23,7 +23,7 @@
 </h2>
 <p>//@闾丘露薇:"Only Thing We Have to Fear Is Fear Itself” 最大的恐惧就是恐惧本身。这是罗斯福当年就职演说中的一句，如今在金像奖颁奖礼听到。特殊时代，艺术的意义不在技巧，而在于人们透过艺术所表达的精神，一种姿态。<br><br>RE: 金像奖最佳影片<br><img src="http://ww3.sinaimg.cn/large/46e9d5dajw1f2jyh9xsncj20m80go76m.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3960338934155112" target="freeweibo-mirror">SPAM  //@核平奖:亮贱如麻，当道多渣。//@春秋药王…</a>
 </h2>
@@ -40,6 +40,12 @@
 	<a href="https://freeweibo.com/weibo/3960338183881189" target="freeweibo-mirror">SPAM 原来是这样！</a>
 </h2>
 <p>SPAM 原来是这样！<br><br>RE: 金像奖最佳影片<br><img src="http://ww3.sinaimg.cn/large/46e9d5dajw1f2jyh9xsncj20m80go76m.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3960335763901305" target="freeweibo-mirror">SPAM 广告!//@民间治堵人陈哲宏: //@喷嚏网铂程:…</a>
+</h2>
+<p>SPAM 广告!//@民间治堵人陈哲宏: //@喷嚏网铂程://@记者钱莽墩: //@律师高庆健：比任大炮强多了。</p>
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
@@ -101,13 +107,13 @@
 </h2>
 <p>//@和合邓润: [崩溃] //@董郎dxp:@鲍迪克  //@熋静://@徐昕:呵呵<br><br>RE: #瞭望回眸# 【官员不敢公开财产的原因找到了】2003年曾就财产申报制，决定到上海广东搞试点，结果发生二大问题：1.党政干部强烈抗拒，以消极怠工来对待；2.在内部申报时，上海市的省厅级干部90%拥有一千万以上的资产，广东省的省厅级干部99%拥有一千万以上资产，如公开势必会被社会各界追击。——吴官...全文： http://m.weibo.cn/1736574887/3960118334512521...全文： http://m.weibo.cn/1736574887/3960118334512521...全文： http://m.weibo.cn/1736574887/3960118334512521<br><img src="http://ww2.sinaimg.cn/large/678207a7jw1f2ivdi2901j209z087dg2.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3960324749726804" target="freeweibo-mirror">@鲍迪克  //@熋静://@徐昕:呵呵</a>
 </h2>
 <p>@鲍迪克  //@熋静://@徐昕:呵呵<br><br>RE: #瞭望回眸# 【官员不敢公开财产的原因找到了】2003年曾就财产申报制，决定到上海广东搞试点，结果发生二大问题：1.党政干部强烈抗拒，以消极怠工来对待；2.在内部申报时，上海市的省厅级干部90%拥有一千万以上的资产，广东省的省厅级干部99%拥有一千万以上资产，如公开势必会被社会各界追击。——吴官...全文： http://m.weibo.cn/1736574887/3960118334512521...全文： http://m.weibo.cn/1736574887/3960118334512521...全文： http://m.weibo.cn/1736574887/3960118334512521<br><img src="http://ww2.sinaimg.cn/large/678207a7jw1f2ivdi2901j209z087dg2.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3960323994258103" target="freeweibo-mirror">//@夙生律师事务所: //@公民林静在维权3: //@马克…</a>
 </h2>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3960320898402965" target="freeweibo-mirror">#THISISHKIKNOW# BREAKING：全城期待，…</a>
 </h2>
 <p>#THISISHKIKNOW# BREAKING：全城期待，眾望所歸，香港電影「十年」拿下今年金像獎最佳電影，感動全城，香港，仍有希望！<br><img src="http://ww2.sinaimg.cn/large/5938d248jw1f2jxoc7p20j20zk0qon4n.jpg"></p>
-<p>
-	<small> ============== 4小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3960311855800719" target="freeweibo-mirror">心情好，同乐！[耶]//@威瑟斯庞的勺子:呵呵，这群嘴炮自诩…</a>
-</h2>
-<p>心情好，同乐！[耶]//@威瑟斯庞的勺子:呵呵，这群嘴炮自诩思想正确觉悟高，你要他们俯下身子做点实事那是断不可能的，引吭高歌抡棍子扣帽子倒是乐不可支，这群人于国家的价值还不如一个居委会大妈//@进击的熊儿子:哈哈哈，吕宏伟的拥趸都是...<br><br>RE: 今天攻击这个，明天诽谤那个，无论是什么能量，只要选择了谎言和欺骗，只能是不停的用新的谎言掩盖谎言。遇到攻击和诽谤，只要不是喜欢下跪的奴才就一定会选择反击。某些人自以为是，实际狗屁不是，我仍然认为，能够团结同胞的才是正能量。玩贱之人，必死于剑下！[话筒]</p>
 <p>
 	<small> ============== 4小时前</small>
 </p>
