@@ -53,7 +53,7 @@
 </h2>
 <p>//@花木兰CPV://@力天--度心://@一定要回头啊: 转发微博</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3959941347416356" target="freeweibo-mirror">//@沧海蓝狐VB: 俺们就爱养猪，咋地？！[doge]</a>
 </h2>
