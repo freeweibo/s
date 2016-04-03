@@ -29,7 +29,7 @@
 </h2>
 <p>说了几句实话//@小跳胡言: 估计是前面接受了凤凰采访的那段视频惹祸了 //@好火药:凤姐真没啥问题啊//@卖水晶的猪猪: 凤姐劣迹？凤姐不就是长得没那么好看去做美甲了吗？？凤姐堂堂正正赚自己辛苦钱哪点劣迹了？？//@希波克拉底门徒:估计是怪汤唯把抗日英雄演成汉奸的性奴了<br><br>RE: 汤唯？?why ??<br><img src="http://ww3.sinaimg.cn/large/6841ec71gw1f2jjamo04ej20j60y3q8s.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3960205601408381" target="freeweibo-mirror">//@王敏竹--反计救国://@湖嗨散人://@不放弃130…</a>
 </h2>
@@ -125,7 +125,7 @@
 </h2>
 <p>张先生的言论总是入木三分。<br><img src="http://ww4.sinaimg.cn/large/006pwrTxgw1f2j969dgcdj30fw0kyq6y.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3960100978607594" target="freeweibo-mirror">//@郑维:换明朝郑和即可[作揖] //@Mr-blahbl…</a>
 </h2>
