@@ -77,7 +77,7 @@
 </h2>
 <p>SPAM 回复@青青子佩jx: 您甭找了！方圆五百里没一个中国人！我们这儿有会说中国话的！ //@青青子佩jx:总觉得有孤军深入敌后的意思...不会外语怎么寒暄啊？连要个餐巾纸都不知道怎么说...翻译，翻译，被你们弄哪儿去了？<br><br>RE: 今儿这个事儿，要是商量不出个结果，咱就不上菜！都饿着！看谁熬得过谁！我还真就不信了！<br><img src="http://ww1.sinaimg.cn/large/7fd6e271jw1f2j59xmnfhj20qa0gmtf5.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3960122163691327" target="freeweibo-mirror">SPAM 自然是美国人拍的啊！这不，传过来的，让拿钱赎人呐！…</a>
 </h2>
@@ -119,7 +119,7 @@
 </h2>
 <p>张先生的言论总是入木三分。<br><img src="http://ww4.sinaimg.cn/large/006pwrTxgw1f2j969dgcdj30fw0kyq6y.jpg"></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3960100978607594" target="freeweibo-mirror">//@郑维:换明朝郑和即可[作揖] //@Mr-blahbl…</a>
 </h2>
