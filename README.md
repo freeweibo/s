@@ -65,7 +65,7 @@
 </h2>
 <p>//@郑维:换明朝郑和即可[作揖] //@Mr-blahblahblah:郑总表嘚瑟，如果有必要，中宣部都能找出“自秦汉以来，天朝上国对你新加坡国进行中央管辖的历史证据”来！[哈哈]<br><br>RE: 问：谈香港问题我们用秦朝，那谈新疆、西藏、台湾、南沙、钓鱼岛怎么办？答：换清朝，再不行还可以换民国。<br><img src="http://ww2.sinaimg.cn/large/6d0b6b33jw1f2j5uskxpmj20qo1bgwsi.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3960079558747379" target="freeweibo-mirror">问：谈香港问题我们用秦朝，那谈新疆、西藏、台湾、南沙、钓鱼岛…</a>
 </h2>
