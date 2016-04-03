@@ -49,6 +49,12 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3960114912429013" target="freeweibo-mirror">哦，这样啊。可习书记去美国好多次了，美国人为什么不这么干呢？…</a>
+</h2>
+<p>哦，这样啊。可习书记去美国好多次了，美国人为什么不这么干呢？美国人还不如杰克慢慢操热爱自由?</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3960100978607594" target="freeweibo-mirror">//@郑维:换明朝郑和即可[作揖] //@Mr-blahbl…</a>
 </h2>
 <p>//@郑维:换明朝郑和即可[作揖] //@Mr-blahblahblah:郑总表嘚瑟，如果有必要，中宣部都能找出“自秦汉以来，天朝上国对你新加坡国进行中央管辖的历史证据”来！[哈哈]<br><br>RE: 问：谈香港问题我们用秦朝，那谈新疆、西藏、台湾、南沙、钓鱼岛怎么办？答：换清朝，再不行还可以换民国。<br><img src="http://ww2.sinaimg.cn/large/6d0b6b33jw1f2j5uskxpmj20qo1bgwsi.jpg"></p>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3959748938823918" target="freeweibo-mirror">SPAM 一个赛艇！ //@sonicblue3: Die …</a>
 </h2>
 <p>SPAM 一个赛艇！ //@sonicblue3: Die Meistersinger von Liangjiahe //@waterise:把鞑靼当年插队吹的口琴拿出来！//@sonicblue3: 梁家河大队修窑洞时要发现一个黑胶唱片库了 //@列那狐的传说:奥地利著名作家莫扎特的作品我都读过//@風景天晴:马上通知梁家河大队增加贝多芬舒曼的作品～//@章诒和:49年前毕业</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3959744274866049" target="freeweibo-mirror">//@宋阳彪:做贼心虚，怕人民群众清明节祭奠毛主席。历史上可…</a>
-</h2>
-<p>//@宋阳彪:做贼心虚，怕人民群众清明节祭奠毛主席。历史上可曾有这样一个丧心病狂的政权，禁止人民纪念此政权创始人？数典忘祖，背心离德，胡不速死</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
