@@ -25,6 +25,12 @@
 <p>
 	<small> ============== 1小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3960321255832674" target="freeweibo-mirror">果然是“党内党外无官正”</a>
+</h2>
+<p>果然是“党内党外无官正”<br><br>RE: #瞭望回眸# 【官员不敢公开财产的原因找到了】2003年曾就财产申报制，决定到上海广东搞试点，结果发生二大问题：1.党政干部强烈抗拒，以消极怠工来对待；2.在内部申报时，上海市的省厅级干部90%拥有一千万以上的资产，广东省的省厅级干部99%拥有一千万以上资产，如公开势必会被社会各界追击。——吴官...全文： http://m.weibo.cn/1736574887/3960118334512521...全文： http://m.weibo.cn/1736574887/3960118334512521...全文： http://m.weibo.cn/1736574887/3960118334512521<br><img src="http://ww2.sinaimg.cn/large/678207a7jw1f2ivdi2901j209z087dg2.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3960305560495906" target="freeweibo-mirror">SPAM 千万不要相信  女孩子可以不白不漂亮身材可以不好 …</a>
 </h2>
 <p>SPAM 千万不要相信  女孩子可以不白不漂亮身材可以不好  之类的话  因为当有一天你终于又瘦又美时  你会发现你的人生就跟开挂似的  只要瘦下来敢于改变自己下一个女神就是你 想瘦找她@Jessie的瘦身小铺<br><img src="http://ww1.sinaimg.cn/large/7fa9a04fgw1f2jvv7ulmrj20qo0hsdht.jpg"></p>
@@ -89,7 +95,7 @@
 </h2>
 <p>說的真好！鼓掌</p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3960156054129537" target="freeweibo-mirror">dfgsbjk'dfasd经z过反复劝说沟通，他决定今年夏天…</a>
 </h2>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3960119278113562" target="freeweibo-mirror">SPAM 不好意思！您这么走了，这不是骂人吗！您这是骂我！您…</a>
 </h2>
 <p>SPAM 不好意思！您这么走了，这不是骂人吗！您这是骂我！您骂我！我们再至不济，也不能让您这么走啊！传出去，我们也丢不起这个人！内什么！海军陆战队外边围上了！您就安心开会吧！//@况秀猛: 回复@爱新觉罗载勋:那我就不吃了，哥们，走！[笑cry]<br><br>RE: 今儿这个事儿，要是商量不出个结果，咱就不上菜！都饿着！看谁熬得过谁！我还真就不信了！<br><img src="http://ww1.sinaimg.cn/large/7fd6e271jw1f2j59xmnfhj20qa0gmtf5.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3960118334512521" target="freeweibo-mirror">#瞭望回眸# 【官员不敢公开财产的原因找到了】2003年曾就…</a>
-</h2>
-<p>#瞭望回眸# 【官员不敢公开财产的原因找到了】2003年曾就财产申报制，决定到上海广东搞试点，结果发生二大问题：1.党政干部强烈抗拒，以消极怠工来对待；2.在内部申报时，上海市的省厅级干部90%拥有一千万以上的资产，广东省的省厅级干部99%拥有一千万以上资产，如公开势必会被社会各界追击。——吴官...全文： http://m.weibo.cn/1736574887/3960118334512521...全文： http://m.weibo.cn/1736574887/3960118334512521...全文： http://m.weibo.cn/1736574887/3960118334512521<br><img src="http://ww2.sinaimg.cn/large/678207a7jw1f2ivdi2901j209z087dg2.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
