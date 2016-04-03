@@ -43,9 +43,21 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3960335574410819" target="freeweibo-mirror">三大魔教//@呆头鹰://@夙生律师事务所: //@公民林静…</a>
+</h2>
+<p>三大魔教//@呆头鹰://@夙生律师事务所: //@公民林静在维权3: //@马克思粉丝9:五毛 //@觅翠04600: //@冰砚之心: //@杜康111: //@稳普高清摄像机S:朝阳区大妈！ //@西江月wy: //@活着是煎熬四网易:转发微博<br><br>RE: 百年来的三大怪胎：义和团，红卫兵，爱国贼。<br><img src="http://ww4.sinaimg.cn/large/006qq6RTgw1f2jt9o4bnqj30d708qjsv.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3960333821657715" target="freeweibo-mirror">SPAM //@喷嚏网铂程://@记者钱莽墩: //@律师高…</a>
 </h2>
 <p>SPAM //@喷嚏网铂程://@记者钱莽墩: //@律师高庆健：比任大炮强多了。</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3960333746482909" target="freeweibo-mirror">SPAM //@记者钱莽墩: //@律师高庆健：比任大炮强多…</a>
+</h2>
+<p>SPAM //@记者钱莽墩: //@律师高庆健：比任大炮强多了。</p>
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
@@ -53,11 +65,23 @@
 </h2>
 <p>SPAM 翻翻她的微-博 你会发现瘦-下来也不是很难  想-瘦找她@私人健身指南</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3960329333254037" target="freeweibo-mirror">//@BD-老李的围脖：这些人才是社会财富的主体，才是真正的…</a>
 </h2>
 <p>//@BD-老李的围脖：这些人才是社会财富的主体，才是真正的公民。<br><br>RE: #瞭望回眸# 【官员不敢公开财产的原因找到了】2003年曾就财产申报制，决定到上海广东搞试点，结果发生二大问题：1.党政干部强烈抗拒，以消极怠工来对待；2.在内部申报时，上海市的省厅级干部90%拥有一千万以上的资产，广东省的省厅级干部99%拥有一千万以上资产，如公开势必会被社会各界追击。——吴官...全文： http://m.weibo.cn/1736574887/3960118334512521...全文： http://m.weibo.cn/1736574887/3960118334512521...全文： http://m.weibo.cn/1736574887/3960118334512521<br><img src="http://ww2.sinaimg.cn/large/678207a7jw1f2ivdi2901j209z087dg2.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3960329169873320" target="freeweibo-mirror">求资源 私信</a>
+</h2>
+<p>求资源 私信<br><br>RE: #THISISHKIKNOW# BREAKING：全城期待，眾望所歸，香港電影「十年」拿下今年金像獎最佳電影，感動全城，香港，仍有希望！<br><img src="http://ww2.sinaimg.cn/large/5938d248jw1f2jxoc7p20j20zk0qon4n.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3960329174070689" target="freeweibo-mirror">"Only Thing We Have to Fear Is…</a>
+</h2>
+<p>"Only Thing We Have to Fear Is Fear Itself” 最大的恐惧就是恐惧本身。这是罗斯福当年就职演说中的一句，如今在金像奖颁奖礼听到。特殊时代，艺术的意义不在技巧，而在于人们透过艺术所表达的精神，一种姿态。<br><br>RE: 金像奖最佳影片<br><img src="http://ww3.sinaimg.cn/large/46e9d5dajw1f2jyh9xsncj20m80go76m.jpg"></p>
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
@@ -85,6 +109,12 @@
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3960323994258103" target="freeweibo-mirror">//@夙生律师事务所: //@公民林静在维权3: //@马克…</a>
+</h2>
+<p>//@夙生律师事务所: //@公民林静在维权3: //@马克思粉丝9:五毛 //@觅翠04600: //@冰砚之心: //@杜康111: //@稳普高清摄像机S:朝阳区大妈！ //@西江月wy: //@活着是煎熬四网易:转发微博<br><br>RE: 百年来的三大怪胎：义和团，红卫兵，爱国贼。<br><img src="http://ww4.sinaimg.cn/large/006qq6RTgw1f2jt9o4bnqj30d708qjsv.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3960321489548578" target="freeweibo-mirror">//@李翔196811: //@铁幕一民:转发微博</a>
 </h2>
 <p>//@李翔196811: //@铁幕一民:转发微博</p>
@@ -97,47 +127,17 @@
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3960311855800719" target="freeweibo-mirror">心情好，同乐！[耶]//@威瑟斯庞的勺子:呵呵，这群嘴炮自诩…</a>
+</h2>
+<p>心情好，同乐！[耶]//@威瑟斯庞的勺子:呵呵，这群嘴炮自诩思想正确觉悟高，你要他们俯下身子做点实事那是断不可能的，引吭高歌抡棍子扣帽子倒是乐不可支，这群人于国家的价值还不如一个居委会大妈//@进击的熊儿子:哈哈哈，吕宏伟的拥趸都是...<br><br>RE: 今天攻击这个，明天诽谤那个，无论是什么能量，只要选择了谎言和欺骗，只能是不停的用新的谎言掩盖谎言。遇到攻击和诽谤，只要不是喜欢下跪的奴才就一定会选择反击。某些人自以为是，实际狗屁不是，我仍然认为，能够团结同胞的才是正能量。玩贱之人，必死于剑下！[话筒]</p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3960309758380037" target="freeweibo-mirror">//@青柳古息：1000多万，太小看党的官员了，自从白猫黑猫…</a>
 </h2>
 <p>//@青柳古息：1000多万，太小看党的官员了，自从白猫黑猫成精后，万在人家眼里如粪土，多少亿在人家眼里都不屑一顾、钱太多到一定程度毕竟有它不方便之处，追求精神安逸最实在，古玩、字画、女人、包养160名女人很快就被280名刷新，让世界也目瞪口呆、刮目相看！现在的世界记录除了我中华大国还有谁<br><br>RE: #瞭望回眸# 【官员不敢公开财产的原因找到了】2003年曾就财产申报制，决定到上海广东搞试点，结果发生二大问题：1.党政干部强烈抗拒，以消极怠工来对待；2.在内部申报时，上海市的省厅级干部90%拥有一千万以上的资产，广东省的省厅级干部99%拥有一千万以上资产，如公开势必会被社会各界追击。——吴官...全文： http://m.weibo.cn/1736574887/3960118334512521...全文： http://m.weibo.cn/1736574887/3960118334512521...全文： http://m.weibo.cn/1736574887/3960118334512521<br><img src="http://ww2.sinaimg.cn/large/678207a7jw1f2ivdi2901j209z087dg2.jpg"></p>
 <p>
 	<small> ============== 4小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3960305560495906" target="freeweibo-mirror">SPAM 千万不要相信  女孩子可以不白不漂亮身材可以不好 …</a>
-</h2>
-<p>SPAM 千万不要相信  女孩子可以不白不漂亮身材可以不好  之类的话  因为当有一天你终于又瘦又美时  你会发现你的人生就跟开挂似的  只要瘦下来敢于改变自己下一个女神就是你 想瘦找她@Jessie的瘦身小铺<br><img src="http://ww1.sinaimg.cn/large/7fa9a04fgw1f2jvv7ulmrj20qo0hsdht.jpg"></p>
-<p>
-	<small> ============== 4小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3960287508006017" target="freeweibo-mirror">张志新的节操和婊子一样。为婊子喊冤者，会是什么人生的呢？//…</a>
-</h2>
-<p>张志新的节操和婊子一样。为婊子喊冤者，会是什么人生的呢？//@悬壶问茶: 今天的精英们在宣传张志新案的时候，故意回避了一些关键的法律规定和死刑决定程序 http://t.cn/RqLnanS<br><br>RE: 张志新在文革中定为现行反革命，于1969年9月被逮捕。1969年她公开说："强迫自己把真理说成错误是不行的，让我投降办不到。人活着，就要光明正大。"她在狱中遭受了精神上肉体上难以容忍的摧残和折磨，于1975年4月4日被杀害。刑前审判人员怕她喊出“真理之声”，竟把她的喉管割断。http://t.cn/zOonkst ...全文： http://m.weibo.cn/2710739767/3960121728153954<br><img src="http://ww3.sinaimg.cn/large/a1929b37jw1f2jasprfn4j20br0eldga.jpg"></p>
-<p>
-	<small> ============== 5小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3960285805005800" target="freeweibo-mirror">垃圾 //@遥远:一群垃圾//@冷爱:后来被判刑了？ //@…</a>
-</h2>
-<p>垃圾 //@遥远:一群垃圾//@冷爱:后来被判刑了？ //@流浪的蛤蟆:为什么结婚要请这些上不得台面的亲戚呢？我知道好多人说各种理由，但这些理由都站不住脚...//@花间辞殿下:谁要是在我的婚礼上闹伴娘，我直接现场开杀</p>
-<p>
-	<small> ============== 6小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3960282948263041" target="freeweibo-mirror">SPAM 亲测，好玩实用高逼格，小伙伴们赶快带走！[doge…</a>
-</h2>
-<p>SPAM 亲测，好玩实用高逼格，小伙伴们赶快带走！[doge]</p>
-<p>
-	<small> ============== 6小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3960224278816144" target="freeweibo-mirror">SPAM 有点意思</a>
-</h2>
-<p>SPAM 有点意思</p>
-<p>
-	<small> ============== 10小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3960219669727157" target="freeweibo-mirror">@贺卫方 :问新浪，获悉遭禁闭一个月。原因？得罪某机构了。</a>
-</h2>
-<p>@贺卫方 :问新浪，获悉遭禁闭一个月。原因？得罪某机构了。<br><img src="http://ww2.sinaimg.cn/large/006kXZhdgw1f2jm1exowtj30b40b840d.jpg"></p>
-<p>
-	<small> ============== 10小时前</small>
 </p>
 <table>
     <tr>
