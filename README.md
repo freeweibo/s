@@ -19,6 +19,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3960339513686209" target="freeweibo-mirror">//@闾丘露薇:"Only Thing We Have to…</a>
+</h2>
+<p>//@闾丘露薇:"Only Thing We Have to Fear Is Fear Itself” 最大的恐惧就是恐惧本身。这是罗斯福当年就职演说中的一句，如今在金像奖颁奖礼听到。特殊时代，艺术的意义不在技巧，而在于人们透过艺术所表达的精神，一种姿态。<br><br>RE: 金像奖最佳影片<br><img src="http://ww3.sinaimg.cn/large/46e9d5dajw1f2jyh9xsncj20m80go76m.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3960338934155112" target="freeweibo-mirror">SPAM  //@核平奖:亮贱如麻，当道多渣。//@春秋药王…</a>
 </h2>
 <p>SPAM  //@核平奖:亮贱如麻，当道多渣。//@春秋药王:能量的作用在于推动，一些泼皮无赖整天打闷棍，使横劲。还敢咧着逼嘴号称正能量。中国的事情，全都坏在这些小人之手。<br><br>RE: 今天攻击这个，明天诽谤那个，无论是什么能量，只要选择了谎言和欺骗，只能是不停的用新的谎言掩盖谎言。遇到攻击和诽谤，只要不是喜欢下跪的奴才就一定会选择反击。某些人自以为是，实际狗屁不是，我仍然认为，能够团结同胞的才是正能量。玩贱之人，必死于剑下！[话筒]</p>
@@ -113,7 +119,7 @@
 </h2>
 <p>垃圾 //@遥远:一群垃圾//@冷爱:后来被判刑了？ //@流浪的蛤蟆:为什么结婚要请这些上不得台面的亲戚呢？我知道好多人说各种理由，但这些理由都站不住脚...//@花间辞殿下:谁要是在我的婚礼上闹伴娘，我直接现场开杀</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3960282948263041" target="freeweibo-mirror">SPAM 亲测，好玩实用高逼格，小伙伴们赶快带走！[doge…</a>
 </h2>
@@ -132,12 +138,6 @@
 <p>@贺卫方 :问新浪，获悉遭禁闭一个月。原因？得罪某机构了。<br><img src="http://ww2.sinaimg.cn/large/006kXZhdgw1f2jm1exowtj30b40b840d.jpg"></p>
 <p>
 	<small> ============== 10小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3960205996023868" target="freeweibo-mirror">说了几句实话//@小跳胡言: 估计是前面接受了凤凰采访的那段…</a>
-</h2>
-<p>说了几句实话//@小跳胡言: 估计是前面接受了凤凰采访的那段视频惹祸了 //@好火药:凤姐真没啥问题啊//@卖水晶的猪猪: 凤姐劣迹？凤姐不就是长得没那么好看去做美甲了吗？？凤姐堂堂正正赚自己辛苦钱哪点劣迹了？？//@希波克拉底门徒:估计是怪汤唯把抗日英雄演成汉奸的性奴了<br><br>RE: 汤唯？?why ??<br><img src="http://ww3.sinaimg.cn/large/6841ec71gw1f2jjamo04ej20j60y3q8s.jpg"></p>
-<p>
-	<small> ============== 11小时前</small>
 </p>
 <table>
     <tr>
