@@ -23,7 +23,7 @@
 </h2>
 <p>SPAM //@爱新觉罗载勋:早就过了饭口儿了！谁想到他这一手！不表态就不让吃饭！//@珠海ZHTV: 奥巴马旁边是法国奥朗德，习近平旁边是谁？为什么他们都不高兴呢？<br><br>RE: 今儿这个事儿，要是商量不出个结果，咱就不上菜！都饿着！看谁熬得过谁！我还真就不信了！<br><img src="http://ww1.sinaimg.cn/large/7fd6e271jw1f2j59xmnfhj20qa0gmtf5.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3960100978607594" target="freeweibo-mirror">//@郑维:换明朝郑和即可[作揖] //@Mr-blahbl…</a>
 </h2>
