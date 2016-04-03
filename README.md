@@ -77,7 +77,7 @@
 </h2>
 <p>问：谈香港问题我们用秦朝，那谈新疆、西藏、台湾、南沙、钓鱼岛怎么办？答：换清朝，再不行还可以换民国。<br><img src="http://ww2.sinaimg.cn/large/6d0b6b33jw1f2j5uskxpmj20qo1bgwsi.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3960073555835465" target="freeweibo-mirror">今儿这个事儿，要是商量不出个结果，咱就不上菜！都饿着！看谁熬…</a>
 </h2>
