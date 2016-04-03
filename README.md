@@ -53,7 +53,7 @@
 </h2>
 <p>//@不放弃1300: //@戴建业微博:转发微博</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3960172710166822" target="freeweibo-mirror">說的真好！鼓掌</a>
 </h2>
@@ -101,13 +101,13 @@
 </h2>
 <p>SPAM //@爱新觉罗载勋:早就过了饭口儿了！谁想到他这一手！不表态就不让吃饭！//@珠海ZHTV: 奥巴马旁边是法国奥朗德，习近平旁边是谁？为什么他们都不高兴呢？<br><br>RE: 今儿这个事儿，要是商量不出个结果，咱就不上菜！都饿着！看谁熬得过谁！我还真就不信了！<br><img src="http://ww1.sinaimg.cn/large/7fd6e271jw1f2j59xmnfhj20qa0gmtf5.jpg"></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3960116774200024" target="freeweibo-mirror">SPAM 早就过了饭口儿了！谁想到他这一手！不表态就不让吃饭…</a>
 </h2>
 <p>SPAM 早就过了饭口儿了！谁想到他这一手！不表态就不让吃饭！//@珠海ZHTV: 奥巴马旁边是法国奥朗德，习近平旁边是谁？为什么他们都不高兴呢？<br><br>RE: 今儿这个事儿，要是商量不出个结果，咱就不上菜！都饿着！看谁熬得过谁！我还真就不信了！<br><img src="http://ww1.sinaimg.cn/large/7fd6e271jw1f2j59xmnfhj20qa0gmtf5.jpg"></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3960114912429013" target="freeweibo-mirror">哦，这样啊。可习书记去美国好多次了，美国人为什么不这么干呢？…</a>
 </h2>
@@ -137,7 +137,7 @@
 </h2>
 <p>问：谈香港问题我们用秦朝，那谈新疆、西藏、台湾、南沙、钓鱼岛怎么办？答：换清朝，再不行还可以换民国。<br><img src="http://ww2.sinaimg.cn/large/6d0b6b33jw1f2j5uskxpmj20qo1bgwsi.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p>
 <table>
     <tr>
