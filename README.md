@@ -79,6 +79,12 @@
 <p>
 	<small> ============== 12小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3959965213026317" target="freeweibo-mirror">中共總書記習訪問捷克，具有光榮傳統追求自由的捷克人民，用各種…</a>
+</h2>
+<p>中共總書記習訪問捷克，具有光榮傳統追求自由的捷克人民，用各種方式表達對中共的不滿。幾十面五星旗遭捷克民眾塗抹。<br><img src="http://ww4.sinaimg.cn/large/a380a663jw1f2issv11s8j20lo0fiq5n.jpg"></p>
+<p>
+	<small> ============== 1天前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3959964802121934" target="freeweibo-mirror">看来，党和政府依靠吹牛逼、说谎、骗人、耍横那一套执政确实不行…</a>
 </h2>
 <p>看来，党和政府依靠吹牛逼、说谎、骗人、耍横那一套执政确实不行了。该换个套路啦。 [酷]<br><br>RE: 【观点】年检，必须从政府做起，否则我们也可以拒绝。企业年检、律师年检、汽车年检，大把年检一堆堆。政府，你自己年检了吗？你自己做不到，凭什么要求别人做到？你六十多年从不年检，你有什么资格要求别人年检？请以身作则。年检，必须从政府做起，政府必须接受人民的年检。合格，继续干；不合格，滚<br><img src="http://ww3.sinaimg.cn/large/006iAMZRgw1f2incztoi0j30c80f13zr.jpg"></p>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3959749307947927" target="freeweibo-mirror">SPAM 撕各姨[害羞] //@北京厨子新号:回复@慎独10…</a>
 </h2>
 <p>SPAM 撕各姨[害羞] //@北京厨子新号:回复@慎独101007:发散尼婷！//@慎独101007:银吹斯庭//@北京厨子新号:一颗赛艇！ //@LifeTime://@谢文://@Ming_the_Great_大明: //@章诒和:49年前毕业。//@爱坦克的贝塔: “very good quality” 比会背外国书名的庆丰倒车王不知道高到哪里去了！</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3959748938823918" target="freeweibo-mirror">SPAM 一个赛艇！ //@sonicblue3: Die …</a>
-</h2>
-<p>SPAM 一个赛艇！ //@sonicblue3: Die Meistersinger von Liangjiahe //@waterise:把鞑靼当年插队吹的口琴拿出来！//@sonicblue3: 梁家河大队修窑洞时要发现一个黑胶唱片库了 //@列那狐的传说:奥地利著名作家莫扎特的作品我都读过//@風景天晴:马上通知梁家河大队增加贝多芬舒曼的作品～//@章诒和:49年前毕业</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
