@@ -35,7 +35,7 @@
 </h2>
 <p>SPAM 有点意思</p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3960205996023868" target="freeweibo-mirror">说了几句实话//@小跳胡言: 估计是前面接受了凤凰采访的那段…</a>
 </h2>
@@ -103,6 +103,12 @@
 <p>
 	<small> ============== 1天前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3960121728153954" target="freeweibo-mirror">张志新在文革中定为现行反革命，于1969年9月被逮捕。196…</a>
+</h2>
+<p>张志新在文革中定为现行反革命，于1969年9月被逮捕。1969年她公开说："强迫自己把真理说成错误是不行的，让我投降办不到。人活着，就要光明正大。"她在狱中遭受了精神上肉体上难以容忍的摧残和折磨，于1975年4月4日被杀害。刑前审判人员怕她喊出“真理之声”，竟把她的喉管割断。http://t.cn/zOonkst ...全文： http://m.weibo.cn/2710739767/3960121728153954<br><img src="http://ww3.sinaimg.cn/large/a1929b37jw1f2jasprfn4j20br0eldga.jpg"></p>
+<p>
+	<small> ============== 1天前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3960119278113562" target="freeweibo-mirror">SPAM 不好意思！您这么走了，这不是骂人吗！您这是骂我！您…</a>
 </h2>
 <p>SPAM 不好意思！您这么走了，这不是骂人吗！您这是骂我！您骂我！我们再至不济，也不能让您这么走啊！传出去，我们也丢不起这个人！内什么！海军陆战队外边围上了！您就安心开会吧！//@况秀猛: 回复@爱新觉罗载勋:那我就不吃了，哥们，走！[笑cry]<br><br>RE: 今儿这个事儿，要是商量不出个结果，咱就不上菜！都饿着！看谁熬得过谁！我还真就不信了！<br><img src="http://ww1.sinaimg.cn/large/7fd6e271jw1f2j59xmnfhj20qa0gmtf5.jpg"></p>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3960113108387607" target="freeweibo-mirror">历史老师不会检索么：【布拉格之春是捷根据本国国情，为加速经济…</a>
 </h2>
 <p>历史老师不会检索么：【布拉格之春是捷根据本国国情，为加速经济发展，完善社会主义制度而在政治、经济方面进行改革的有益探索。目的是建立适合本国国情的发展道路】，身为历史老师，历史知识一塌糊涂，整天胡说八道误人子弟，丢脸不。//@历史老师王三实: 中国官方还在定义布拉格之春为反革命事件吧</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3960108352920473" target="freeweibo-mirror">张先生的言论总是入木三分。</a>
-</h2>
-<p>张先生的言论总是入木三分。<br><img src="http://ww4.sinaimg.cn/large/006pwrTxgw1f2j969dgcdj30fw0kyq6y.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
