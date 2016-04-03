@@ -29,7 +29,7 @@
 </h2>
 <p>SPAM 亲测，好玩实用高逼格，小伙伴们赶快带走！[doge]</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3960224278816144" target="freeweibo-mirror">SPAM 有点意思</a>
 </h2>
@@ -65,7 +65,7 @@
 </h2>
 <p>//@不放弃1300: //@戴建业微博:转发微博</p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3960172710166822" target="freeweibo-mirror">說的真好！鼓掌</a>
 </h2>
