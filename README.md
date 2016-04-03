@@ -31,6 +31,12 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3960172710166822" target="freeweibo-mirror">說的真好！鼓掌</a>
+</h2>
+<p>說的真好！鼓掌</p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3960156054129537" target="freeweibo-mirror">dfgsbjk'dfasd经z过反复劝说沟通，他决定今年夏天…</a>
 </h2>
 <p>dfgsbjk'dfasd经z过反复劝说沟通，他决定今年夏天投身中超fbglkp;ddgv百度云！电影限制级之资源[哈哈][哈哈][哈哈] 多的是，但是呢 还有剩余，需要的伙伴加百度云……你懂的sdfsdfefd[爱你][爱你]hafyfhvhjlbjk<br><img src="http://ww4.sinaimg.cn/large/5395776bgw1f2jeqxlsc9j20pb190n06.jpg"></p>
@@ -89,7 +95,7 @@
 </h2>
 <p>历史老师不会检索么：【布拉格之春是捷根据本国国情，为加速经济发展，完善社会主义制度而在政治、经济方面进行改革的有益探索。目的是建立适合本国国情的发展道路】，身为历史老师，历史知识一塌糊涂，整天胡说八道误人子弟，丢脸不。//@历史老师王三实: 中国官方还在定义布拉格之春为反革命事件吧</p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3960108352920473" target="freeweibo-mirror">张先生的言论总是入木三分。</a>
 </h2>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3959964802121934" target="freeweibo-mirror">看来，党和政府依靠吹牛逼、说谎、骗人、耍横那一套执政确实不行…</a>
 </h2>
 <p>看来，党和政府依靠吹牛逼、说谎、骗人、耍横那一套执政确实不行了。该换个套路啦。 [酷]<br><br>RE: 【观点】年检，必须从政府做起，否则我们也可以拒绝。企业年检、律师年检、汽车年检，大把年检一堆堆。政府，你自己年检了吗？你自己做不到，凭什么要求别人做到？你六十多年从不年检，你有什么资格要求别人年检？请以身作则。年检，必须从政府做起，政府必须接受人民的年检。合格，继续干；不合格，滚<br><img src="http://ww3.sinaimg.cn/large/006iAMZRgw1f2incztoi0j30c80f13zr.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3959955587057824" target="freeweibo-mirror">//@花木兰CPV://@力天--度心://@一定要回头啊:…</a>
-</h2>
-<p>//@花木兰CPV://@力天--度心://@一定要回头啊: 转发微博</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
