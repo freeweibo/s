@@ -19,6 +19,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3960100978607594" target="freeweibo-mirror">//@郑维:换明朝郑和即可[作揖] //@Mr-blahbl…</a>
+</h2>
+<p>//@郑维:换明朝郑和即可[作揖] //@Mr-blahblahblah:郑总表嘚瑟，如果有必要，中宣部都能找出“自秦汉以来，天朝上国对你新加坡国进行中央管辖的历史证据”来！[哈哈]<br><br>RE: 问：谈香港问题我们用秦朝，那谈新疆、西藏、台湾、南沙、钓鱼岛怎么办？答：换清朝，再不行还可以换民国。<br><img src="http://ww2.sinaimg.cn/large/6d0b6b33jw1f2j5uskxpmj20qo1bgwsi.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3959972145992153" target="freeweibo-mirror">//@金色麦子沉甸甸: 好博文一篇[good]！</a>
 </h2>
 <p>//@金色麦子沉甸甸: 好博文一篇[good]！<br><br>RE: 【观点】年检，必须从政府做起，否则我们也可以拒绝。企业年检、律师年检、汽车年检，大把年检一堆堆。政府，你自己年检了吗？你自己做不到，凭什么要求别人做到？你六十多年从不年检，你有什么资格要求别人年检？请以身作则。年检，必须从政府做起，政府必须接受人民的年检。合格，继续干；不合格，滚<br><img src="http://ww3.sinaimg.cn/large/006iAMZRgw1f2incztoi0j30c80f13zr.jpg"></p>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3959565106015408" target="freeweibo-mirror">美国一个基金会日前向“世维会”头目多力坤颁奖，中国外交部就此…</a>
 </h2>
 <p>美国一个基金会日前向“世维会”头目多力坤颁奖，中国外交部就此向美国国务院提出抗议。多力坤·艾沙是国际刑警组织和中国警方的红色通缉对象，涉嫌在中亚和中国境内组织实施多起爆炸、抢劫、杀人等严重刑事犯罪和暴力恐怖活动。中方坚决反对在反恐问题上采取“双重标准”。[围观]不是杰出民主人士吗？<br><img src="http://ww4.sinaimg.cn/large/562bc1d7jw1f2hiulky2kj20b408xwfe.jpg"></p>
-<p>
-	<small> ============== 2天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3959560169166239" target="freeweibo-mirror">依法治国，为人民服务，政府为民做主，政府的解释是唯一依据，公…</a>
-</h2>
-<p>依法治国，为人民服务，政府为民做主，政府的解释是唯一依据，公车改革，欢迎监督举报，最新养老保险政策宣传，95岁以上老人看病全报销，明天会更好。哦！原来今天是愚人节。 http://t.cn/R7dlffG<br><img src="http://ww2.sinaimg.cn/large/8a018550gw1f2hhscdp91j206z03n74c.jpg"></p>
 <p>
 	<small> ============== 2天前</small>
 </p>
