@@ -49,6 +49,12 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3960592261334607" target="freeweibo-mirror">【谣言】人家早在两年前就明确表示没有离岸公司，真是的！</a>
+</h2>
+<p>【谣言】人家早在两年前就明确表示没有离岸公司，真是的！<br><img src="http://ww4.sinaimg.cn/large/5cf7ad65jw1f2ksrxpow0j20qo11179l.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3960590731021568" target="freeweibo-mirror">再转一次</a>
 </h2>
 <p>再转一次<br><br>RE: 【巴拿马泄密文件事件持续发酵 五大因素成关注焦点】据英国广播公司（BBC）报道，文件显示，全球累计有72位现任和前任领导人涉嫌卷入洗钱交易，其中包括俄罗斯总统普京等多名政界商界要员，此外还显示，冰岛总理贡劳格松（Sigmundur Gunnlaugsson）涉嫌通过开设离岸公司将资金秘密转移至英属维尔京群岛...全文： http://m.weibo.cn/1638782947/3960576243825112<br><img src="http://ww4.sinaimg.cn/large/61add7e3jw1f2kqiummixj20sg0j2dq6.jpg"></p>
@@ -95,7 +101,7 @@
 </h2>
 <p>【巴拿马泄密文件事件持续发酵 五大因素成关注焦点】据英国广播公司（BBC）报道，文件显示，全球累计有72位现任和前任领导人涉嫌卷入洗钱交易，其中包括俄罗斯总统普京等多名政界商界要员，此外还显示，冰岛总理贡劳格松（Sigmundur Gunnlaugsson）涉嫌通过开设离岸公司将资金秘密转移至英属维尔京群岛...全文： http://m.weibo.cn/1638782947/3960576243825112<br><img src="http://ww4.sinaimg.cn/large/61add7e3jw1f2kqiummixj20sg0j2dq6.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3960575098539728" target="freeweibo-mirror">//@连鹏:有些人对普京的崇拜，其实就是对威权、铁腕的崇拜，…</a>
 </h2>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3960558401018338" target="freeweibo-mirror">//@鹏媒体赵鹏:转发微博</a>
 </h2>
 <p>//@鹏媒体赵鹏:转发微博<br><br>RE: 【巴拿马】三个字很快也会被列入敏感词了<br><img src="http://ww4.sinaimg.cn/large/91a85543gw1f2koaw7rkzj20k00zkgo4.jpg"></p>
-<p>
-	<small> ============== 5小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3960558044258414" target="freeweibo-mirror">//@阿姜aa://@杜康111: //@踏雪寻梅逐梦人3:…</a>
-</h2>
-<p>//@阿姜aa://@杜康111: //@踏雪寻梅逐梦人3://@天艹起个名字也很难啊://@戎戎94日-记://@王林的微博客: //@安静不安静a: 转发微博<br><br>RE: 趙家人就是碉堡 http://t.cn/R2WJvly<br><img src="http://ww3.sinaimg.cn/large/5186d665jw1f2koccswh9j20qo0u4alr.jpg"></p>
 <p>
 	<small> ============== 5小时前</small>
 </p>
