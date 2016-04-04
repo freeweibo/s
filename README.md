@@ -29,13 +29,13 @@
 </h2>
 <p>//@陆伟民律师: //@50年矛苔://@煙巳惔嘸菋: 要相信道德婊的回应<br><br>RE: 【谣言】人家早在两年前就明确表示没有离岸公司，真是的！<br><img src="http://ww4.sinaimg.cn/large/5cf7ad65jw1f2ksrxpow0j20qo11179l.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3960611924938168" target="freeweibo-mirror">那么问题来了，哪位光明磊落的社会主义国家常委级人物会被污蔑呢…</a>
 </h2>
 <p>那么问题来了，哪位光明磊落的社会主义国家常委级人物会被污蔑呢？李小琳他爹吗？<br><br>RE: 塞翁失马，祸福平分。<br><img src="http://ww4.sinaimg.cn/large/006qwQacjw1f2ks0elcmuj30c86fxnhn.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3960607768608836" target="freeweibo-mirror">SPAM 波音空客的推销又来鸟[怒]</a>
 </h2>
@@ -43,9 +43,21 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3960606564582612" target="freeweibo-mirror">SPAM //@终南山人的天空1:香港护照//@paixue…</a>
+</h2>
+<p>SPAM //@终南山人的天空1:香港护照//@paixuejinwu拍雪进屋: //@荒岛恶郎十五代:此女就是爱得瑟。[嘻嘻]//@麻子王四:香港护照？ //@看破红尘宝贝六:这是自己奋斗的结果！[偷笑][鄙视] //@墙国4V: //@回头是岸A9: //@一定要回头啊: //@伟荣V实说: //@Pig_of_life: //@一定要回头啊: //@决不-妥协G:滚动播出<br><br>RE: 现在只能截图发了[笑cry][笑cry][笑cry]<br><img src="http://ww4.sinaimg.cn/large/006q3XzHgw1f2klz4bk16j30qo1beqah.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3960604752207424" target="freeweibo-mirror">//@50年矛苔://@煙巳惔嘸菋: 要相信道德婊的回应</a>
 </h2>
 <p>//@50年矛苔://@煙巳惔嘸菋: 要相信道德婊的回应<br><br>RE: 【谣言】人家早在两年前就明确表示没有离岸公司，真是的！<br><img src="http://ww4.sinaimg.cn/large/5cf7ad65jw1f2ksrxpow0j20qo11179l.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3960603729519803" target="freeweibo-mirror">//@王建国: //@张旭5454: [good]//@爽朗…</a>
+</h2>
+<p>//@王建国: //@张旭5454: [good]//@爽朗的mddddh: 可能是愚人节的假消息。作为克格勃出身的普京，应该不会被人家轻易抓到把柄。退一万步讲，即便是确有其事，它们也不会承认的。//@法律案例-文史典故: 好像涉及国内不少人//@廖睿:这事能在我们这儿引起地震么？<br><br>RE: 塞翁失马，祸福平分。<br><img src="http://ww4.sinaimg.cn/large/006qwQacjw1f2ks0elcmuj30c86fxnhn.jpg"></p>
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
@@ -124,18 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3960575098539728" target="freeweibo-mirror">//@连鹏:有些人对普京的崇拜，其实就是对威权、铁腕的崇拜，…</a>
 </h2>
 <p>//@连鹏:有些人对普京的崇拜，其实就是对威权、铁腕的崇拜，觉得唯有政治强人才能带来国家强盛民族复兴。<br><br>RE: 普京第一个任期干的还行。后来呢，通过反腐打黑强化权力，控制媒体不断包装自己，煽动反西方情绪及俄罗斯民族主义，还钻宪法空子，玩政治“二人转”。但你不要忘了，集权是腐败的成因，只会造成更多的特权泛滥。因此，当巴拿马文件泄密普京被卷入巨额洗钱丑闻，真是一点也不意外。有趣的是，前两个月BB...全文： http://m.weibo.cn/1641428154/3960567846912712<br><img src="http://ww1.sinaimg.cn/large/61d634bajw1f2kpueiq11j20fa0dw74q.jpg"></p>
-<p>
-	<small> ============== 4小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3960574376918876" target="freeweibo-mirror">有些人对普京的崇拜，其实就是对威权、铁腕的崇拜，觉得唯有政治…</a>
-</h2>
-<p>有些人对普京的崇拜，其实就是对威权、铁腕的崇拜，觉得唯有政治强人才能带来国家强盛民族复兴。<br><br>RE: 普京第一个任期干的还行。后来呢，通过反腐打黑强化权力，控制媒体不断包装自己，煽动反西方情绪及俄罗斯民族主义，还钻宪法空子，玩政治“二人转”。但你不要忘了，集权是腐败的成因，只会造成更多的特权泛滥。因此，当巴拿马文件泄密普京被卷入巨额洗钱丑闻，真是一点也不意外。有趣的是，前两个月BB...全文： http://m.weibo.cn/1641428154/3960567846912712<br><img src="http://ww1.sinaimg.cn/large/61d634bajw1f2kpueiq11j20fa0dw74q.jpg"></p>
-<p>
-	<small> ============== 4小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3960567846912712" target="freeweibo-mirror">普京第一个任期干的还行。后来呢，通过反腐打黑强化权力，控制媒…</a>
-</h2>
-<p>普京第一个任期干的还行。后来呢，通过反腐打黑强化权力，控制媒体不断包装自己，煽动反西方情绪及俄罗斯民族主义，还钻宪法空子，玩政治“二人转”。但你不要忘了，集权是腐败的成因，只会造成更多的特权泛滥。因此，当巴拿马文件泄密普京被卷入巨额洗钱丑闻，真是一点也不意外。有趣的是，前两个月BB...全文： http://m.weibo.cn/1641428154/3960567846912712<br><img src="http://ww1.sinaimg.cn/large/61d634bajw1f2kpueiq11j20fa0dw74q.jpg"></p>
 <p>
 	<small> ============== 4小时前</small>
 </p>
