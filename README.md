@@ -23,13 +23,13 @@
 </h2>
 <p>一场暴风骤雨，才刚刚开始.....<br><br>RE: 昨晚..世界几大媒体同时发布的一条消息，震撼了全世界！！ 超过1150万份金融文件被泄密给媒体，文件曝光了21万个海外洗钱和逃税的离岸公司...曝光了79名各国领导人，各路名人明星公司高管，各种毒贩军火贩走私贩各国黑帮黑社会的各种海外黑钱和洗钱流向.......  一场暴风骤雨，才刚刚开始.....<br><img src="http://ww4.sinaimg.cn/large/97f224aajw1f2kd1hygkuj20c86fx7wh.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3960521139289545" target="freeweibo-mirror">绝佳电影素材…… //@然后下面就没了:卧槽这个厉害了 //…</a>
 </h2>
 <p>绝佳电影素材…… //@然后下面就没了:卧槽这个厉害了 //@小5啊:……哈？ //@八卦_我实在是太CJ了:吃瓜群众表示围观 //@蓝鲸财经记者工作平台:文章写得是：400名记者一共研究了整整12个月，在未来几周或者几个月，媒体还会披露更多细节<br><br>RE: 昨晚..世界几大媒体同时发布的一条消息，震撼了全世界！！ 超过1150万份金融文件被泄密给媒体，文件曝光了21万个海外洗钱和逃税的离岸公司...曝光了79名各国领导人，各路名人明星公司高管，各种毒贩军火贩走私贩各国黑帮黑社会的各种海外黑钱和洗钱流向.......  一场暴风骤雨，才刚刚开始.....<br><img src="http://ww4.sinaimg.cn/large/97f224aajw1f2kd1hygkuj20c86fx7wh.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3960520203885948" target="freeweibo-mirror">//@孙愿平-://@董寅河北 @設計師楊利波</a>
 </h2>
@@ -43,9 +43,39 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3960514072081194" target="freeweibo-mirror">立此存照！</a>
+</h2>
+<p>立此存照！<br><br>RE: 昨晚..世界几大媒体同时发布的一条消息，震撼了全世界！！ 超过1150万份金融文件被泄密给媒体，文件曝光了21万个海外洗钱和逃税的离岸公司...曝光了79名各国领导人，各路名人明星公司高管，各种毒贩军火贩走私贩各国黑帮黑社会的各种海外黑钱和洗钱流向.......  一场暴风骤雨，才刚刚开始.....<br><img src="http://ww4.sinaimg.cn/large/97f224aajw1f2kd1hygkuj20c86fx7wh.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3960513425642035" target="freeweibo-mirror">东北亚的新闻线索有多少？这才叫媒体嘛[嘻嘻]</a>
 </h2>
 <p>东北亚的新闻线索有多少？这才叫媒体嘛[嘻嘻]<br><br>RE: 昨晚..世界几大媒体同时发布的一条消息，震撼了全世界！！ 超过1150万份金融文件被泄密给媒体，文件曝光了21万个海外洗钱和逃税的离岸公司...曝光了79名各国领导人，各路名人明星公司高管，各种毒贩军火贩走私贩各国黑帮黑社会的各种海外黑钱和洗钱流向.......  一场暴风骤雨，才刚刚开始.....<br><img src="http://ww4.sinaimg.cn/large/97f224aajw1f2kd1hygkuj20c86fx7wh.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3960513400959962" target="freeweibo-mirror">//@欧罗拉之鹰: 老外的事而已！//@谢勇:渠道没了 生产…</a>
+</h2>
+<p>//@欧罗拉之鹰: 老外的事而已！//@谢勇:渠道没了 生产还在//@王天定:在当下媒体行业整体衰落的形势下，还有人肯把料报给媒体，媒体间还能运用众包式合作生产，确属奇迹。//<br><br>RE: 昨晚..世界几大媒体同时发布的一条消息，震撼了全世界！！ 超过1150万份金融文件被泄密给媒体，文件曝光了21万个海外洗钱和逃税的离岸公司...曝光了79名各国领导人，各路名人明星公司高管，各种毒贩军火贩走私贩各国黑帮黑社会的各种海外黑钱和洗钱流向.......  一场暴风骤雨，才刚刚开始.....<br><img src="http://ww4.sinaimg.cn/large/97f224aajw1f2kd1hygkuj20c86fx7wh.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3960511375151687" target="freeweibo-mirror">围观//@蓝鲸财经记者工作平台:文章写得是：400名记者一共…</a>
+</h2>
+<p>围观//@蓝鲸财经记者工作平台:文章写得是：400名记者一共研究了整整12个月，在未来几周或者几个月里，媒体还会披露更多细节性的报道。//@楚惜刀: 400名记者研究了一年。真相之日。<br><br>RE: 昨晚..世界几大媒体同时发布的一条消息，震撼了全世界！！ 超过1150万份金融文件被泄密给媒体，文件曝光了21万个海外洗钱和逃税的离岸公司...曝光了79名各国领导人，各路名人明星公司高管，各种毒贩军火贩走私贩各国黑帮黑社会的各种海外黑钱和洗钱流向.......  一场暴风骤雨，才刚刚开始.....<br><img src="http://ww4.sinaimg.cn/large/97f224aajw1f2kd1hygkuj20c86fx7wh.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3960509839500272" target="freeweibo-mirror">重型武器…辐射开始…</a>
+</h2>
+<p>重型武器…辐射开始…<br><br>RE: 昨晚..世界几大媒体同时发布的一条消息，震撼了全世界！！ 超过1150万份金融文件被泄密给媒体，文件曝光了21万个海外洗钱和逃税的离岸公司...曝光了79名各国领导人，各路名人明星公司高管，各种毒贩军火贩走私贩各国黑帮黑社会的各种海外黑钱和洗钱流向.......  一场暴风骤雨，才刚刚开始.....<br><img src="http://ww4.sinaimg.cn/large/97f224aajw1f2kd1hygkuj20c86fx7wh.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3960508619590981" target="freeweibo-mirror">原文还有天朝的哦[doge]</a>
+</h2>
+<p>原文还有天朝的哦[doge]<br><br>RE: 昨晚..世界几大媒体同时发布的一条消息，震撼了全世界！！ 超过1150万份金融文件被泄密给媒体，文件曝光了21万个海外洗钱和逃税的离岸公司...曝光了79名各国领导人，各路名人明星公司高管，各种毒贩军火贩走私贩各国黑帮黑社会的各种海外黑钱和洗钱流向.......  一场暴风骤雨，才刚刚开始.....<br><img src="http://ww4.sinaimg.cn/large/97f224aajw1f2kd1hygkuj20c86fx7wh.jpg"></p>
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
@@ -54,6 +84,30 @@
 <p>懂英語看吧。涉入巴拿馬文件的。http://t.cn/8kqcta7<br><img src="http://ww2.sinaimg.cn/large/a380a663jw1f2kj70imd4j20hh0p877w.jpg"></p>
 <p>
 	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3960503975975830" target="freeweibo-mirror">//@关洪导演: //@谢文://@阿嚏: //@安定医院郝…</a>
+</h2>
+<p>//@关洪导演: //@谢文://@阿嚏: //@安定医院郝医生:[哆啦A梦吃惊] //@他回精神病院了:转发微博<br><br>RE: 昨晚..世界几大媒体同时发布的一条消息，震撼了全世界！！ 超过1150万份金融文件被泄密给媒体，文件曝光了21万个海外洗钱和逃税的离岸公司...曝光了79名各国领导人，各路名人明星公司高管，各种毒贩军火贩走私贩各国黑帮黑社会的各种海外黑钱和洗钱流向.......  一场暴风骤雨，才刚刚开始.....<br><img src="http://ww4.sinaimg.cn/large/97f224aajw1f2kd1hygkuj20c86fx7wh.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3960503820368385" target="freeweibo-mirror">這真是世紀猛料//@phoenixli: 哇 //@粽子蓝云…</a>
+</h2>
+<p>這真是世紀猛料//@phoenixli: 哇 //@粽子蓝云舒:哎呀好精彩，现实加强版《聚焦》！ //@宝少:这能拍成大片了！！<br><br>RE: 昨晚..世界几大媒体同时发布的一条消息，震撼了全世界！！ 超过1150万份金融文件被泄密给媒体，文件曝光了21万个海外洗钱和逃税的离岸公司...曝光了79名各国领导人，各路名人明星公司高管，各种毒贩军火贩走私贩各国黑帮黑社会的各种海外黑钱和洗钱流向.......  一场暴风骤雨，才刚刚开始.....<br><img src="http://ww4.sinaimg.cn/large/97f224aajw1f2kd1hygkuj20c86fx7wh.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3960501874123513" target="freeweibo-mirror">昨晚就看到了，没想到里面居然有更刺激的。。 //@一毛不拔大…</a>
+</h2>
+<p>昨晚就看到了，没想到里面居然有更刺激的。。 //@一毛不拔大师:刚看到卫报的报道[好爱哦]<br><br>RE: 昨晚..世界几大媒体同时发布的一条消息，震撼了全世界！！ 超过1150万份金融文件被泄密给媒体，文件曝光了21万个海外洗钱和逃税的离岸公司...曝光了79名各国领导人，各路名人明星公司高管，各种毒贩军火贩走私贩各国黑帮黑社会的各种海外黑钱和洗钱流向.......  一场暴风骤雨，才刚刚开始.....<br><img src="http://ww4.sinaimg.cn/large/97f224aajw1f2kd1hygkuj20c86fx7wh.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3960479468397216" target="freeweibo-mirror">//@他回精神病院了:转发微博</a>
+</h2>
+<p>//@他回精神病院了:转发微博<br><br>RE: 昨晚..世界几大媒体同时发布的一条消息，震撼了全世界！！ 超过1150万份金融文件被泄密给媒体，文件曝光了21万个海外洗钱和逃税的离岸公司...曝光了79名各国领导人，各路名人明星公司高管，各种毒贩军火贩走私贩各国黑帮黑社会的各种海外黑钱和洗钱流向.......  一场暴风骤雨，才刚刚开始.....<br><img src="http://ww4.sinaimg.cn/large/97f224aajw1f2kd1hygkuj20c86fx7wh.jpg"></p>
+<p>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3960477404889154" target="freeweibo-mirror">…………  http://t.cn/RqyqPZV //@淡…</a>
 </h2>
@@ -65,7 +119,7 @@
 </h2>
 <p>SPAM //@冰水气化://@爪爪拆牆:向記者們致敬[鲜花]</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3960474732953373" target="freeweibo-mirror">SPAM @爪爪拆牆 某大大真是偉大光榮正確</a>
 </h2>
@@ -84,60 +138,6 @@
 <p>//@WK张建兴:一群有钱有权有势之人始终不放手乌坎村的土地，而恶劣的是他们不想花钱就想掠夺走不属于他们的东西！</p>
 <p>
 	<small> ============== 5小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3960456429082537" target="freeweibo-mirror">昨晚..世界几大媒体同时发布的一条消息，震撼了全世界！！ 超…</a>
-</h2>
-<p>昨晚..世界几大媒体同时发布的一条消息，震撼了全世界！！ 超过1150万份金融文件被泄密给媒体，文件曝光了21万个海外洗钱和逃税的离岸公司...曝光了79名各国领导人，各路名人明星公司高管，各种毒贩军火贩走私贩各国黑帮黑社会的各种海外黑钱和洗钱流向.......  一场暴风骤雨，才刚刚开始.....<br><img src="http://ww4.sinaimg.cn/large/97f224aajw1f2kd1hygkuj20c86fx7wh.jpg"></p>
-<p>
-	<small> ============== 6小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3960442672031274" target="freeweibo-mirror">SPAM //@周难的微博://@南京金鸣: //@佛光成觉…</a>
-</h2>
-<p>SPAM //@周难的微博://@南京金鸣: //@佛光成觉:何时公映啊？//@猫胡子003: //@无肉不欢911://@周铁东本人: //@刘毅:不知道十年讲什么的，看这里：  http://t.cn/Rqy7t7T   //@周铁东本人: 我们无需恐惧，真正恐惧的是恐惧《十年》的人。 //@浩正刘臻:Repost<br><br>RE: #香港电影金像奖# 最佳电影：《十年》！颁最佳电影奖之前，金像奖主席尔冬升上台说：大家知道上个月发生了一些事。前几天，有一个编剧问我，一会儿颁奖礼里面，能不能提十年两个字？我对他说，你记住，我们最需要恐惧的，是恐惧本身。<br><img src="http://ww4.sinaimg.cn/large/6764cadegw1f2jxlils8xj20og0byq6m.jpg"></p>
-<p>
-	<small> ============== 7小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3960438301482889" target="freeweibo-mirror">SPAM 说好的愚人节玩笑不符合咱们的价值观咧。[嘻嘻]//…</a>
-</h2>
-<p>SPAM 说好的愚人节玩笑不符合咱们的价值观咧。[嘻嘻]//@老黄的微博2014: 愚人节已经过了啊 //@草原上的寶雲d://@瑞安丰和18:这个有点名堂了//@李氏卫东:我操，水太深，深不见底。<br><br>RE: 卧槽这是怎么了？[围观][围观][围观]<br><img src="http://ww2.sinaimg.cn/large/006e75Sujw1f2k2ajantij30dc09l0t2.jpg"></p>
-<p>
-	<small> ============== 7小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3960436443453490" target="freeweibo-mirror">SPAM 被小岳岳圈粉了最近 小贱样~[偷乐]</a>
-</h2>
-<p>SPAM 被小岳岳圈粉了最近 小贱样~[偷乐]<br><br>RE: 欢乐喜剧人第二季冠军岳云鹏总决赛作品《今夜我们说相声》，你的努力观众看到了，实至名归！[good]http://t.cn/RqLFThV</p>
-<p>
-	<small> ============== 7小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3960435927571836" target="freeweibo-mirror">SPAM 想多了，一定是被盗号了～</a>
-</h2>
-<p>SPAM 想多了，一定是被盗号了～<br><br>RE: 卧槽这是怎么了？[围观][围观][围观]<br><img src="http://ww2.sinaimg.cn/large/006e75Sujw1f2k2ajantij30dc09l0t2.jpg"></p>
-<p>
-	<small> ============== 7小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3960426439420289" target="freeweibo-mirror">SPAM 封杀即恶 //@红拂夜奔不复还:为什么刚才转的自动…</a>
-</h2>
-<p>SPAM 封杀即恶 //@红拂夜奔不复还:为什么刚才转的自动被删了？ //@刘毅:不知道十年讲什么的，看这里：http://t.cn/Rqy7t7T //@周铁东本人: 我们无需恐惧，真正恐惧的是恐惧《十年》的人。 //@浩正刘臻:Repost<br><br>RE: #香港电影金像奖# 最佳电影：《十年》！颁最佳电影奖之前，金像奖主席尔冬升上台说：大家知道上个月发生了一些事。前几天，有一个编剧问我，一会儿颁奖礼里面，能不能提十年两个字？我对他说，你记住，我们最需要恐惧的，是恐惧本身。<br><img src="http://ww4.sinaimg.cn/large/6764cadegw1f2jxlils8xj20og0byq6m.jpg"></p>
-<p>
-	<small> ============== 8小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3960424406427052" target="freeweibo-mirror">SPAM //@闾丘露薇: //@谭人玮://@洛杉矶吴明:…</a>
-</h2>
-<p>SPAM //@闾丘露薇: //@谭人玮://@洛杉矶吴明://@刘毅:不知道十年讲什么的，看这里： http://t.cn/Rqy7t7T  //@周铁东本人: 我们无需恐惧，真正恐惧的是恐惧《十年》的人。 //@浩正刘臻:Repost<br><br>RE: #香港电影金像奖# 最佳电影：《十年》！颁最佳电影奖之前，金像奖主席尔冬升上台说：大家知道上个月发生了一些事。前几天，有一个编剧问我，一会儿颁奖礼里面，能不能提十年两个字？我对他说，你记住，我们最需要恐惧的，是恐惧本身。<br><img src="http://ww4.sinaimg.cn/large/6764cadegw1f2jxlils8xj20og0byq6m.jpg"></p>
-<p>
-	<small> ============== 8小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3960361034312639" target="freeweibo-mirror">卧槽这是怎么了？[围观][围观][围观]</a>
-</h2>
-<p>卧槽这是怎么了？[围观][围观][围观]<br><img src="http://ww2.sinaimg.cn/large/006e75Sujw1f2k2ajantij30dc09l0t2.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3960339513686209" target="freeweibo-mirror">//@闾丘露薇:"Only Thing We Have to…</a>
-</h2>
-<p>//@闾丘露薇:"Only Thing We Have to Fear Is Fear Itself” 最大的恐惧就是恐惧本身。这是罗斯福当年就职演说中的一句，如今在金像奖颁奖礼听到。特殊时代，艺术的意义不在技巧，而在于人们透过艺术所表达的精神，一种姿态。<br><br>RE: 金像奖最佳影片<br><img src="http://ww3.sinaimg.cn/large/46e9d5dajw1f2jyh9xsncj20m80go76m.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
 </p>
 <table>
     <tr>
