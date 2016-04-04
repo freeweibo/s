@@ -65,7 +65,7 @@
 </h2>
 <p>SPAM 想多了，一定是被盗号了～<br><br>RE: 卧槽这是怎么了？[围观][围观][围观]<br><img src="http://ww2.sinaimg.cn/large/006e75Sujw1f2k2ajantij30dc09l0t2.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3960426439420289" target="freeweibo-mirror">SPAM 封杀即恶 //@红拂夜奔不复还:为什么刚才转的自动…</a>
 </h2>
