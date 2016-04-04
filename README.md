@@ -47,7 +47,13 @@
 </h2>
 <p>博主，还有谁呀？[太开心]//@李军林导演: 目测你们老板要嫖娼了。<br><br>RE: 【巴拿马泄密文件事件持续发酵 五大因素成关注焦点】据英国广播公司（BBC）报道，文件显示，全球累计有72位现任和前任领导人涉嫌卷入洗钱交易，其中包括俄罗斯总统普京等多名政界商界要员，此外还显示，冰岛总理贡劳格松（Sigmundur Gunnlaugsson）涉嫌通过开设离岸公司将资金秘密转移至英属维尔京群岛...全文： http://m.weibo.cn/1638782947/3960576243825112<br><img src="http://ww4.sinaimg.cn/large/61add7e3jw1f2kqiummixj20sg0j2dq6.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3960576243825112" target="freeweibo-mirror">【巴拿马泄密文件事件持续发酵 五大因素成关注焦点】据英国广播…</a>
+</h2>
+<p>【巴拿马泄密文件事件持续发酵 五大因素成关注焦点】据英国广播公司（BBC）报道，文件显示，全球累计有72位现任和前任领导人涉嫌卷入洗钱交易，其中包括俄罗斯总统普京等多名政界商界要员，此外还显示，冰岛总理贡劳格松（Sigmundur Gunnlaugsson）涉嫌通过开设离岸公司将资金秘密转移至英属维尔京群岛...全文： http://m.weibo.cn/1638782947/3960576243825112<br><img src="http://ww4.sinaimg.cn/large/61add7e3jw1f2kqiummixj20sg0j2dq6.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3960575098539728" target="freeweibo-mirror">//@连鹏:有些人对普京的崇拜，其实就是对威权、铁腕的崇拜，…</a>
 </h2>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3960540403640935" target="freeweibo-mirror">//@swansu_yw:[吃惊]//@新京报: [吃惊]</a>
 </h2>
 <p>//@swansu_yw:[吃惊]//@新京报: [吃惊]<br><br>RE: 【专稿：巴拿马文件大规模泄密 普京密友涉嫌巨额洗钱】从普京密友到冰岛总理，涉及12位国家首脑本人，规模远超维基解密和斯诺登泄密规模的巴拿马文件泄露事件，揭开了世界上最有权势人群隐匿财富的冰山一角：http://t.cn/RqyIsd4 新浪<br><img src="http://ww1.sinaimg.cn/large/70e11e0fjw1f2kkup9gjaj20h80acjsi.jpg"></p>
-<p>
-	<small> ============== 4小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3960540101160641" target="freeweibo-mirror">巴拿马文件，让这个世界来月经了！</a>
-</h2>
-<p>巴拿马文件，让这个世界来月经了！<br><img src="http://ww3.sinaimg.cn/large/8d84f9e6gw1f2kmuskh4tj20j609umy9.jpg"></p>
 <p>
 	<small> ============== 4小时前</small>
 </p>
