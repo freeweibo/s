@@ -53,7 +53,13 @@
 </h2>
 <p>//@swansu_yw:[吃惊]//@新京报: [吃惊]<br><br>RE: 【专稿：巴拿马文件大规模泄密 普京密友涉嫌巨额洗钱】从普京密友到冰岛总理，涉及12位国家首脑本人，规模远超维基解密和斯诺登泄密规模的巴拿马文件泄露事件，揭开了世界上最有权势人群隐匿财富的冰山一角：http://t.cn/RqyIsd4 新浪<br><img src="http://ww1.sinaimg.cn/large/70e11e0fjw1f2kkup9gjaj20h80acjsi.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3960540101160641" target="freeweibo-mirror">巴拿马文件，让这个世界来月经了！</a>
+</h2>
+<p>巴拿马文件，让这个世界来月经了！<br><img src="http://ww3.sinaimg.cn/large/8d84f9e6gw1f2kmuskh4tj20j609umy9.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3960538163435942" target="freeweibo-mirror">撕逼的一地鸡毛而已 国际记者调查团(ICIJ)协调，“南德意…</a>
 </h2>
@@ -95,13 +101,13 @@
 </h2>
 <p>SPAM 德国《南德意志报》4月3日公布了巴拿马注册公司Mossack Fonseca的文件，该报称，多国领导人及其亲近涉嫌洗钱和逃税。但该文件没有获得任何官方证实，Mossack Fonseca公司本身也拒绝证明其真实性。  http://t.cn/RqyMxBE<br><img src="http://ww1.sinaimg.cn/large/820887e2jw1f2kl4tm6asj20rs0f1q70.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3960524720484448" target="freeweibo-mirror">【专稿：巴拿马文件大规模泄密 普京密友涉嫌巨额洗钱】从普京密…</a>
 </h2>
 <p>【专稿：巴拿马文件大规模泄密 普京密友涉嫌巨额洗钱】从普京密友到冰岛总理，涉及12位国家首脑本人，规模远超维基解密和斯诺登泄密规模的巴拿马文件泄露事件，揭开了世界上最有权势人群隐匿财富的冰山一角：http://t.cn/RqyIsd4 新浪<br><img src="http://ww1.sinaimg.cn/large/70e11e0fjw1f2kkup9gjaj20h80acjsi.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3960524053836309" target="freeweibo-mirror">作为常任理事国，我们就被这样“等79个国家”了。。。</a>
 </h2>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3960520983376797" target="freeweibo-mirror">这本书尚未翻译出版，仅就介绍的几点科学内容即足以判转基因生物…</a>
 </h2>
 <p>这本书尚未翻译出版，仅就介绍的几点科学内容即足以判转基因生物技术100次死刑！转基因科匪，转基因法西斯，是全人类死敌！美国生化帝国主义用转基因食物为武器发动了战争击中了中国的命门！今上若非中了风，当立即拉闸吧？...科学大骗局如雾霾笼罩祖国！！</p>
-<p>
-	<small> ============== 4小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3960520203885948" target="freeweibo-mirror">//@孙愿平-://@董寅河北 @設計師楊利波</a>
-</h2>
-<p>//@孙愿平-://@董寅河北 @設計師楊利波<br><br>RE: 美国在导弹拦截技术上世界领先；中国在网络屏蔽技术上领先世界。（图片消息不靠谱，3000亿美元是什么概念，是中国军费+维稳经费的总和。）<br><img src="http://ww4.sinaimg.cn/large/bc36346bgw1f2kjeku0d2j20ku0ih41q.jpg"></p>
 <p>
 	<small> ============== 4小时前</small>
 </p>
