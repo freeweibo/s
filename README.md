@@ -31,6 +31,12 @@
 <p>
 	<small> ============== 1小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3960567846912712" target="freeweibo-mirror">普京第一个任期干的还行。后来呢，通过反腐打黑强化权力，控制媒…</a>
+</h2>
+<p>普京第一个任期干的还行。后来呢，通过反腐打黑强化权力，控制媒体不断包装自己，煽动反西方情绪及俄罗斯民族主义，还钻宪法空子，玩政治“二人转”。但你不要忘了，集权是腐败的成因，只会造成更多的特权泛滥。因此，当巴拿马文件泄密普京被卷入巨额洗钱丑闻，真是一点也不意外。有趣的是，前两个月BB...全文： http://m.weibo.cn/1641428154/3960567846912712<br><img src="http://ww1.sinaimg.cn/large/61d634bajw1f2kpueiq11j20fa0dw74q.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3960559780798112" target="freeweibo-mirror">SPAM 血崩了。唉～[生病]</a>
 </h2>
 <p>SPAM 血崩了。唉～[生病]<br><br>RE: 巴拿马文件，让这个世界来月经了！<br><img src="http://ww3.sinaimg.cn/large/8d84f9e6gw1f2kmuskh4tj20j609umy9.jpg"></p>
@@ -95,13 +101,13 @@
 </h2>
 <p>//@swansu_yw:[吃惊]//@新京报: [吃惊]<br><br>RE: 【专稿：巴拿马文件大规模泄密 普京密友涉嫌巨额洗钱】从普京密友到冰岛总理，涉及12位国家首脑本人，规模远超维基解密和斯诺登泄密规模的巴拿马文件泄露事件，揭开了世界上最有权势人群隐匿财富的冰山一角：http://t.cn/RqyIsd4 新浪<br><img src="http://ww1.sinaimg.cn/large/70e11e0fjw1f2kkup9gjaj20h80acjsi.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3960540101160641" target="freeweibo-mirror">巴拿马文件，让这个世界来月经了！</a>
 </h2>
 <p>巴拿马文件，让这个世界来月经了！<br><img src="http://ww3.sinaimg.cn/large/8d84f9e6gw1f2kmuskh4tj20j609umy9.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3960538163435942" target="freeweibo-mirror">撕逼的一地鸡毛而已 国际记者调查团(ICIJ)协调，“南德意…</a>
 </h2>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3960525676652999" target="freeweibo-mirror">岂止普京，国内更精彩</a>
 </h2>
 <p>岂止普京，国内更精彩<br><br>RE: 【专稿：巴拿马文件大规模泄密 普京密友涉嫌巨额洗钱】从普京密友到冰岛总理，涉及12位国家首脑本人，规模远超维基解密和斯诺登泄密规模的巴拿马文件泄露事件，揭开了世界上最有权势人群隐匿财富的冰山一角：http://t.cn/RqyIsd4 新浪<br><img src="http://ww1.sinaimg.cn/large/70e11e0fjw1f2kkup9gjaj20h80acjsi.jpg"></p>
-<p>
-	<small> ============== 4小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3960525627003348" target="freeweibo-mirror">天朝的贪污分子数额比他们大，估计用不上这家律师事务所 //@…</a>
-</h2>
-<p>天朝的贪污分子数额比他们大，估计用不上这家律师事务所 //@十七少:这事不会牵扯到天朝这边吧？//@一毛不拔大师: 刚看到卫报的报道[好爱哦]<br><br>RE: 昨晚..世界几大媒体同时发布的一条消息，震撼了全世界！！ 超过1150万份金融文件被泄密给媒体，文件曝光了21万个海外洗钱和逃税的离岸公司...曝光了79名各国领导人，各路名人明星公司高管，各种毒贩军火贩走私贩各国黑帮黑社会的各种海外黑钱和洗钱流向.......  一场暴风骤雨，才刚刚开始.....<br><img src="http://ww4.sinaimg.cn/large/97f224aajw1f2kd1hygkuj20c86fx7wh.jpg"></p>
 <p>
 	<small> ============== 4小时前</small>
 </p>
