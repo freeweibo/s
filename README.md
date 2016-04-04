@@ -23,7 +23,7 @@
 </h2>
 <p>SPAM 血崩了。唉～[生病]<br><br>RE: 巴拿马文件，让这个世界来月经了！<br><img src="http://ww3.sinaimg.cn/large/8d84f9e6gw1f2kmuskh4tj20j609umy9.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3960558401018338" target="freeweibo-mirror">//@鹏媒体赵鹏:转发微博</a>
 </h2>
