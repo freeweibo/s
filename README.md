@@ -29,7 +29,7 @@
 </h2>
 <p>SPAM @爪爪拆牆 某大大真是偉大光榮正確<br><img src="http://ww2.sinaimg.cn/large/006oICx0jw1f2kfcn3hfzj30qo36ak9q.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3960473462236194" target="freeweibo-mirror">律痞成为律师队伍的一块牛皮癣//@打奥特曼de小怪兽:“大抓…</a>
 </h2>
@@ -46,6 +46,12 @@
 	<a href="https://freeweibo.com/weibo/3960438301482889" target="freeweibo-mirror">SPAM 说好的愚人节玩笑不符合咱们的价值观咧。[嘻嘻]//…</a>
 </h2>
 <p>SPAM 说好的愚人节玩笑不符合咱们的价值观咧。[嘻嘻]//@老黄的微博2014: 愚人节已经过了啊 //@草原上的寶雲d://@瑞安丰和18:这个有点名堂了//@李氏卫东:我操，水太深，深不见底。<br><br>RE: 卧槽这是怎么了？[围观][围观][围观]<br><img src="http://ww2.sinaimg.cn/large/006e75Sujw1f2k2ajantij30dc09l0t2.jpg"></p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3960436443453490" target="freeweibo-mirror">SPAM 被小岳岳圈粉了最近 小贱样~[偷乐]</a>
+</h2>
+<p>SPAM 被小岳岳圈粉了最近 小贱样~[偷乐]<br><br>RE: 欢乐喜剧人第二季冠军岳云鹏总决赛作品《今夜我们说相声》，你的努力观众看到了，实至名归！[good]http://t.cn/RqLFThV</p>
 <p>
 	<small> ============== 4小时前</small>
 </p><h2>
@@ -83,19 +89,19 @@
 </h2>
 <p>SPAM  //@核平奖:亮贱如麻，当道多渣。//@春秋药王:能量的作用在于推动，一些泼皮无赖整天打闷棍，使横劲。还敢咧着逼嘴号称正能量。中国的事情，全都坏在这些小人之手。<br><br>RE: 今天攻击这个，明天诽谤那个，无论是什么能量，只要选择了谎言和欺骗，只能是不停的用新的谎言掩盖谎言。遇到攻击和诽谤，只要不是喜欢下跪的奴才就一定会选择反击。某些人自以为是，实际狗屁不是，我仍然认为，能够团结同胞的才是正能量。玩贱之人，必死于剑下！[话筒]</p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3960338463950832" target="freeweibo-mirror">…………………………………………………………………………</a>
 </h2>
 <p>…………………………………………………………………………</p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3960338183881189" target="freeweibo-mirror">SPAM 原来是这样！</a>
 </h2>
 <p>SPAM 原来是这样！<br><br>RE: 金像奖最佳影片<br><img src="http://ww3.sinaimg.cn/large/46e9d5dajw1f2jyh9xsncj20m80go76m.jpg"></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3960335763901305" target="freeweibo-mirror">SPAM 广告!//@民间治堵人陈哲宏: //@喷嚏网铂程:…</a>
 </h2>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3960329333254037" target="freeweibo-mirror">//@BD-老李的围脖：这些人才是社会财富的主体，才是真正的…</a>
 </h2>
 <p>//@BD-老李的围脖：这些人才是社会财富的主体，才是真正的公民。<br><br>RE: #瞭望回眸# 【官员不敢公开财产的原因找到了】2003年曾就财产申报制，决定到上海广东搞试点，结果发生二大问题：1.党政干部强烈抗拒，以消极怠工来对待；2.在内部申报时，上海市的省厅级干部90%拥有一千万以上的资产，广东省的省厅级干部99%拥有一千万以上资产，如公开势必会被社会各界追击。——吴官...全文： http://m.weibo.cn/1736574887/3960118334512521...全文： http://m.weibo.cn/1736574887/3960118334512521...全文： http://m.weibo.cn/1736574887/3960118334512521<br><img src="http://ww2.sinaimg.cn/large/678207a7jw1f2ivdi2901j209z087dg2.jpg"></p>
-<p>
-	<small> ============== 11小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3960329169873320" target="freeweibo-mirror">求资源 私信</a>
-</h2>
-<p>求资源 私信<br><br>RE: #THISISHKIKNOW# BREAKING：全城期待，眾望所歸，香港電影「十年」拿下今年金像獎最佳電影，感動全城，香港，仍有希望！<br><img src="http://ww2.sinaimg.cn/large/5938d248jw1f2jxoc7p20j20zk0qon4n.jpg"></p>
 <p>
 	<small> ============== 11小时前</small>
 </p>
