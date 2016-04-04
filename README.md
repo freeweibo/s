@@ -29,7 +29,7 @@
 </h2>
 <p>还真有梅西//@比恶:转发微博<br><br>RE: 懂英語看吧。涉入巴拿馬文件的。http://t.cn/8kqcta7<br><img src="http://ww2.sinaimg.cn/large/a380a663jw1f2kj70imd4j20hh0p877w.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3960513425642035" target="freeweibo-mirror">东北亚的新闻线索有多少？这才叫媒体嘛[嘻嘻]</a>
 </h2>
