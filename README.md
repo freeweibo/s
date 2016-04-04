@@ -29,7 +29,7 @@
 </h2>
 <p>有些人对普京的崇拜，其实就是对威权、铁腕的崇拜，觉得唯有政治强人才能带来国家强盛民族复兴。<br><br>RE: 普京第一个任期干的还行。后来呢，通过反腐打黑强化权力，控制媒体不断包装自己，煽动反西方情绪及俄罗斯民族主义，还钻宪法空子，玩政治“二人转”。但你不要忘了，集权是腐败的成因，只会造成更多的特权泛滥。因此，当巴拿马文件泄密普京被卷入巨额洗钱丑闻，真是一点也不意外。有趣的是，前两个月BB...全文： http://m.weibo.cn/1641428154/3960567846912712<br><img src="http://ww1.sinaimg.cn/large/61d634bajw1f2kpueiq11j20fa0dw74q.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3960567846912712" target="freeweibo-mirror">普京第一个任期干的还行。后来呢，通过反腐打黑强化权力，控制媒…</a>
 </h2>
@@ -47,7 +47,7 @@
 </h2>
 <p>//@鹏媒体赵鹏:转发微博<br><br>RE: 【巴拿马】三个字很快也会被列入敏感词了<br><img src="http://ww4.sinaimg.cn/large/91a85543gw1f2koaw7rkzj20k00zkgo4.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3960558044258414" target="freeweibo-mirror">//@阿姜aa://@杜康111: //@踏雪寻梅逐梦人3:…</a>
 </h2>
