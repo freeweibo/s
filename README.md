@@ -19,6 +19,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3960590731021568" target="freeweibo-mirror">再转一次</a>
+</h2>
+<p>再转一次<br><br>RE: 【巴拿马泄密文件事件持续发酵 五大因素成关注焦点】据英国广播公司（BBC）报道，文件显示，全球累计有72位现任和前任领导人涉嫌卷入洗钱交易，其中包括俄罗斯总统普京等多名政界商界要员，此外还显示，冰岛总理贡劳格松（Sigmundur Gunnlaugsson）涉嫌通过开设离岸公司将资金秘密转移至英属维尔京群岛...全文： http://m.weibo.cn/1638782947/3960576243825112<br><img src="http://ww4.sinaimg.cn/large/61add7e3jw1f2kqiummixj20sg0j2dq6.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3960575098539728" target="freeweibo-mirror">//@连鹏:有些人对普京的崇拜，其实就是对威权、铁腕的崇拜，…</a>
 </h2>
 <p>//@连鹏:有些人对普京的崇拜，其实就是对威权、铁腕的崇拜，觉得唯有政治强人才能带来国家强盛民族复兴。<br><br>RE: 普京第一个任期干的还行。后来呢，通过反腐打黑强化权力，控制媒体不断包装自己，煽动反西方情绪及俄罗斯民族主义，还钻宪法空子，玩政治“二人转”。但你不要忘了，集权是腐败的成因，只会造成更多的特权泛滥。因此，当巴拿马文件泄密普京被卷入巨额洗钱丑闻，真是一点也不意外。有趣的是，前两个月BB...全文： http://m.weibo.cn/1641428154/3960567846912712<br><img src="http://ww1.sinaimg.cn/large/61d634bajw1f2kpueiq11j20fa0dw74q.jpg"></p>
@@ -119,7 +125,7 @@
 </h2>
 <p>[耶]//@名不徐传: 这回搞了个大新闻！<br><br>RE: 【专稿：巴拿马文件大规模泄密 普京密友涉嫌巨额洗钱】从普京密友到冰岛总理，涉及12位国家首脑本人，规模远超维基解密和斯诺登泄密规模的巴拿马文件泄露事件，揭开了世界上最有权势人群隐匿财富的冰山一角：http://t.cn/RqyIsd4 新浪<br><img src="http://ww1.sinaimg.cn/large/70e11e0fjw1f2kkup9gjaj20h80acjsi.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3960527354658742" target="freeweibo-mirror">看成川普，吓我一跳//@中和老頭:最引人矚目的，就是你國總統…</a>
 </h2>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3960526424461247" target="freeweibo-mirror">城会玩…… //@楚惜刀:400名记者研究了一年。真相之日。</a>
 </h2>
 <p>城会玩…… //@楚惜刀:400名记者研究了一年。真相之日。<br><br>RE: 昨晚..世界几大媒体同时发布的一条消息，震撼了全世界！！ 超过1150万份金融文件被泄密给媒体，文件曝光了21万个海外洗钱和逃税的离岸公司...曝光了79名各国领导人，各路名人明星公司高管，各种毒贩军火贩走私贩各国黑帮黑社会的各种海外黑钱和洗钱流向.......  一场暴风骤雨，才刚刚开始.....<br><img src="http://ww4.sinaimg.cn/large/97f224aajw1f2kd1hygkuj20c86fx7wh.jpg"></p>
-<p>
-	<small> ============== 5小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3960525676652999" target="freeweibo-mirror">岂止普京，国内更精彩</a>
-</h2>
-<p>岂止普京，国内更精彩<br><br>RE: 【专稿：巴拿马文件大规模泄密 普京密友涉嫌巨额洗钱】从普京密友到冰岛总理，涉及12位国家首脑本人，规模远超维基解密和斯诺登泄密规模的巴拿马文件泄露事件，揭开了世界上最有权势人群隐匿财富的冰山一角：http://t.cn/RqyIsd4 新浪<br><img src="http://ww1.sinaimg.cn/large/70e11e0fjw1f2kkup9gjaj20h80acjsi.jpg"></p>
 <p>
 	<small> ============== 5小时前</small>
 </p>
