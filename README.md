@@ -35,7 +35,7 @@
 </h2>
 <p>SPAM //@闾丘露薇: //@谭人玮://@洛杉矶吴明://@刘毅:不知道十年讲什么的，看这里： http://t.cn/Rqy7t7T  //@周铁东本人: 我们无需恐惧，真正恐惧的是恐惧《十年》的人。 //@浩正刘臻:Repost<br><br>RE: #香港电影金像奖# 最佳电影：《十年》！颁最佳电影奖之前，金像奖主席尔冬升上台说：大家知道上个月发生了一些事。前几天，有一个编剧问我，一会儿颁奖礼里面，能不能提十年两个字？我对他说，你记住，我们最需要恐惧的，是恐惧本身。<br><img src="http://ww4.sinaimg.cn/large/6764cadegw1f2jxlils8xj20og0byq6m.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3960339513686209" target="freeweibo-mirror">//@闾丘露薇:"Only Thing We Have to…</a>
 </h2>
@@ -77,13 +77,13 @@
 </h2>
 <p>SPAM //@喷嚏网铂程://@记者钱莽墩: //@律师高庆健：比任大炮强多了。</p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3960333746482909" target="freeweibo-mirror">SPAM //@记者钱莽墩: //@律师高庆健：比任大炮强多…</a>
 </h2>
 <p>SPAM //@记者钱莽墩: //@律师高庆健：比任大炮强多了。</p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3960332881965420" target="freeweibo-mirror">SPAM 翻翻她的微-博 你会发现瘦-下来也不是很难  想-…</a>
 </h2>
