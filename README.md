@@ -29,7 +29,7 @@
 </h2>
 <p>SPAM //@冰水气化://@爪爪拆牆:向記者們致敬[鲜花]</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3960474732953373" target="freeweibo-mirror">SPAM @爪爪拆牆 某大大真是偉大光榮正確</a>
 </h2>
@@ -89,7 +89,7 @@
 </h2>
 <p>//@闾丘露薇:"Only Thing We Have to Fear Is Fear Itself” 最大的恐惧就是恐惧本身。这是罗斯福当年就职演说中的一句，如今在金像奖颁奖礼听到。特殊时代，艺术的意义不在技巧，而在于人们透过艺术所表达的精神，一种姿态。<br><br>RE: 金像奖最佳影片<br><img src="http://ww3.sinaimg.cn/large/46e9d5dajw1f2jyh9xsncj20m80go76m.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3960338934155112" target="freeweibo-mirror">SPAM  //@核平奖:亮贱如麻，当道多渣。//@春秋药王…</a>
 </h2>
@@ -137,7 +137,7 @@
 </h2>
 <p>SPAM 翻翻她的微-博 你会发现瘦-下来也不是很难  想-瘦找她@私人健身指南</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p>
 <table>
     <tr>
