@@ -19,6 +19,18 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3960475886760828" target="freeweibo-mirror">SPAM //@冰水气化://@爪爪拆牆:向記者們致敬[鲜花…</a>
+</h2>
+<p>SPAM //@冰水气化://@爪爪拆牆:向記者們致敬[鲜花]</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3960474732953373" target="freeweibo-mirror">SPAM @爪爪拆牆 某大大真是偉大光榮正確</a>
+</h2>
+<p>SPAM @爪爪拆牆 某大大真是偉大光榮正確<br><img src="http://ww2.sinaimg.cn/large/006oICx0jw1f2kfcn3hfzj30qo36ak9q.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3960442672031274" target="freeweibo-mirror">SPAM //@周难的微博://@南京金鸣: //@佛光成觉…</a>
 </h2>
 <p>SPAM //@周难的微博://@南京金鸣: //@佛光成觉:何时公映啊？//@猫胡子003: //@无肉不欢911://@周铁东本人: //@刘毅:不知道十年讲什么的，看这里：  http://t.cn/Rqy7t7T   //@周铁东本人: 我们无需恐惧，真正恐惧的是恐惧《十年》的人。 //@浩正刘臻:Repost<br><br>RE: #香港电影金像奖# 最佳电影：《十年》！颁最佳电影奖之前，金像奖主席尔冬升上台说：大家知道上个月发生了一些事。前几天，有一个编剧问我，一会儿颁奖礼里面，能不能提十年两个字？我对他说，你记住，我们最需要恐惧的，是恐惧本身。<br><img src="http://ww4.sinaimg.cn/large/6764cadegw1f2jxlils8xj20og0byq6m.jpg"></p>
@@ -53,7 +65,7 @@
 </h2>
 <p>卧槽这是怎么了？[围观][围观][围观]<br><img src="http://ww2.sinaimg.cn/large/006e75Sujw1f2k2ajantij30dc09l0t2.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3960339513686209" target="freeweibo-mirror">//@闾丘露薇:"Only Thing We Have to…</a>
 </h2>
@@ -124,18 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3960329174070689" target="freeweibo-mirror">"Only Thing We Have to Fear Is…</a>
 </h2>
 <p>"Only Thing We Have to Fear Is Fear Itself” 最大的恐惧就是恐惧本身。这是罗斯福当年就职演说中的一句，如今在金像奖颁奖礼听到。特殊时代，艺术的意义不在技巧，而在于人们透过艺术所表达的精神，一种姿态。<br><br>RE: 金像奖最佳影片<br><img src="http://ww3.sinaimg.cn/large/46e9d5dajw1f2jyh9xsncj20m80go76m.jpg"></p>
-<p>
-	<small> ============== 11小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3960327877952980" target="freeweibo-mirror">金像奖最佳影片</a>
-</h2>
-<p>金像奖最佳影片<br><img src="http://ww3.sinaimg.cn/large/46e9d5dajw1f2jyh9xsncj20m80go76m.jpg"></p>
-<p>
-	<small> ============== 11小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3960327563906281" target="freeweibo-mirror">贺老师讨论了几句共青团问题就被禁言了。这几年，被禁言、被销号…</a>
-</h2>
-<p>贺老师讨论了几句共青团问题就被禁言了。这几年，被禁言、被销号、甚至因言被抓几乎是家常便饭，这等于告诉你，你的辩论对手的后盾并非语言和思想，而是逼你就范的棍棒和粘你双唇的胶条。当你把言论当做寻求真理和真相的途径时，辩论对手只关心你是否服从他的言论。这是彻头彻尾地流氓政治、强盗逻辑。</p>
 <p>
 	<small> ============== 11小时前</small>
 </p>
