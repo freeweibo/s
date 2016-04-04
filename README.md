@@ -23,7 +23,7 @@
 </h2>
 <p>SPAM 哇！原来你就是那位祛痘大神 @Skin-Hong [赞]</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3960639502141187" target="freeweibo-mirror">SPAM 给一个时评大赛当评委，晚上审稿，我的一些点评语：1…</a>
 </h2>
@@ -53,13 +53,13 @@
 </h2>
 <p>//@陆伟民律师: //@50年矛苔://@煙巳惔嘸菋: 要相信道德婊的回应<br><br>RE: 【谣言】人家早在两年前就明确表示没有离岸公司，真是的！<br><img src="http://ww4.sinaimg.cn/large/5cf7ad65jw1f2ksrxpow0j20qo11179l.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3960611924938168" target="freeweibo-mirror">那么问题来了，哪位光明磊落的社会主义国家常委级人物会被污蔑呢…</a>
 </h2>
 <p>那么问题来了，哪位光明磊落的社会主义国家常委级人物会被污蔑呢？李小琳他爹吗？<br><br>RE: 塞翁失马，祸福平分。<br><img src="http://ww4.sinaimg.cn/large/006qwQacjw1f2ks0elcmuj30c86fxnhn.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3960607768608836" target="freeweibo-mirror">SPAM 波音空客的推销又来鸟[怒]</a>
 </h2>
