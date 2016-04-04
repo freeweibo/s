@@ -25,6 +25,18 @@
 <p>
 	<small> ============== 1小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3960438301482889" target="freeweibo-mirror">SPAM 说好的愚人节玩笑不符合咱们的价值观咧。[嘻嘻]//…</a>
+</h2>
+<p>SPAM 说好的愚人节玩笑不符合咱们的价值观咧。[嘻嘻]//@老黄的微博2014: 愚人节已经过了啊 //@草原上的寶雲d://@瑞安丰和18:这个有点名堂了//@李氏卫东:我操，水太深，深不见底。<br><br>RE: 卧槽这是怎么了？[围观][围观][围观]<br><img src="http://ww2.sinaimg.cn/large/006e75Sujw1f2k2ajantij30dc09l0t2.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3960424406427052" target="freeweibo-mirror">SPAM //@闾丘露薇: //@谭人玮://@洛杉矶吴明:…</a>
+</h2>
+<p>SPAM //@闾丘露薇: //@谭人玮://@洛杉矶吴明://@刘毅:不知道十年讲什么的，看这里： http://t.cn/Rqy7t7T  //@周铁东本人: 我们无需恐惧，真正恐惧的是恐惧《十年》的人。 //@浩正刘臻:Repost<br><br>RE: #香港电影金像奖# 最佳电影：《十年》！颁最佳电影奖之前，金像奖主席尔冬升上台说：大家知道上个月发生了一些事。前几天，有一个编剧问我，一会儿颁奖礼里面，能不能提十年两个字？我对他说，你记住，我们最需要恐惧的，是恐惧本身。<br><img src="http://ww4.sinaimg.cn/large/6764cadegw1f2jxlils8xj20og0byq6m.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3960339513686209" target="freeweibo-mirror">//@闾丘露薇:"Only Thing We Have to…</a>
 </h2>
 <p>//@闾丘露薇:"Only Thing We Have to Fear Is Fear Itself” 最大的恐惧就是恐惧本身。这是罗斯福当年就职演说中的一句，如今在金像奖颁奖礼听到。特殊时代，艺术的意义不在技巧，而在于人们透过艺术所表达的精神，一种姿态。<br><br>RE: 金像奖最佳影片<br><img src="http://ww3.sinaimg.cn/large/46e9d5dajw1f2jyh9xsncj20m80go76m.jpg"></p>
@@ -77,7 +89,7 @@
 </h2>
 <p>SPAM 翻翻她的微-博 你会发现瘦-下来也不是很难  想-瘦找她@私人健身指南</p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3960329333254037" target="freeweibo-mirror">//@BD-老李的围脖：这些人才是社会财富的主体，才是真正的…</a>
 </h2>
@@ -124,18 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3960323994258103" target="freeweibo-mirror">//@夙生律师事务所: //@公民林静在维权3: //@马克…</a>
 </h2>
 <p>//@夙生律师事务所: //@公民林静在维权3: //@马克思粉丝9:五毛 //@觅翠04600: //@冰砚之心: //@杜康111: //@稳普高清摄像机S:朝阳区大妈！ //@西江月wy: //@活着是煎熬四网易:转发微博<br><br>RE: 百年来的三大怪胎：义和团，红卫兵，爱国贼。<br><img src="http://ww4.sinaimg.cn/large/006qq6RTgw1f2jt9o4bnqj30d708qjsv.jpg"></p>
-<p>
-	<small> ============== 9小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3960321489548578" target="freeweibo-mirror">//@李翔196811: //@铁幕一民:转发微博</a>
-</h2>
-<p>//@李翔196811: //@铁幕一民:转发微博</p>
-<p>
-	<small> ============== 9小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3960321255832674" target="freeweibo-mirror">果然是“党内党外无官正”</a>
-</h2>
-<p>果然是“党内党外无官正”<br><br>RE: #瞭望回眸# 【官员不敢公开财产的原因找到了】2003年曾就财产申报制，决定到上海广东搞试点，结果发生二大问题：1.党政干部强烈抗拒，以消极怠工来对待；2.在内部申报时，上海市的省厅级干部90%拥有一千万以上的资产，广东省的省厅级干部99%拥有一千万以上资产，如公开势必会被社会各界追击。——吴官...全文： http://m.weibo.cn/1736574887/3960118334512521...全文： http://m.weibo.cn/1736574887/3960118334512521...全文： http://m.weibo.cn/1736574887/3960118334512521<br><img src="http://ww2.sinaimg.cn/large/678207a7jw1f2ivdi2901j209z087dg2.jpg"></p>
 <p>
 	<small> ============== 9小时前</small>
 </p>
