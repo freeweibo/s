@@ -113,13 +113,13 @@
 </h2>
 <p>SPAM 广告!//@民间治堵人陈哲宏: //@喷嚏网铂程://@记者钱莽墩: //@律师高庆健：比任大炮强多了。</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3960335574410819" target="freeweibo-mirror">三大魔教//@呆头鹰://@夙生律师事务所: //@公民林静…</a>
 </h2>
 <p>三大魔教//@呆头鹰://@夙生律师事务所: //@公民林静在维权3: //@马克思粉丝9:五毛 //@觅翠04600: //@冰砚之心: //@杜康111: //@稳普高清摄像机S:朝阳区大妈！ //@西江月wy: //@活着是煎熬四网易:转发微博<br><br>RE: 百年来的三大怪胎：义和团，红卫兵，爱国贼。<br><img src="http://ww4.sinaimg.cn/large/006qq6RTgw1f2jt9o4bnqj30d708qjsv.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3960333821657715" target="freeweibo-mirror">SPAM //@喷嚏网铂程://@记者钱莽墩: //@律师高…</a>
 </h2>
