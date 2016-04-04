@@ -19,6 +19,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3960639502141187" target="freeweibo-mirror">SPAM 给一个时评大赛当评委，晚上审稿，我的一些点评语：1…</a>
+</h2>
+<p>SPAM 给一个时评大赛当评委，晚上审稿，我的一些点评语：1，那么有趣的话题被你写得这么无趣；2，一堆废话，等于啥也没说；3，先给别人强加情怀标签，再用商业把别人批判一番；4，把一个简单的道理说得那么绕；5，没有营养的鸡汤不如砒霜；6，一个巧妙的对比胜于千成言雄辩；7，纯属文字概念游戏；8，面面俱...全文： http://m.weibo.cn/1193210930/3960639502141187</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3960628987333502" target="freeweibo-mirror">SPAM 【菩提花开】莫轻小恶， 以为无殃， 水滴虽微， 渐…</a>
 </h2>
 <p>SPAM 【菩提花开】莫轻小恶， 以为无殃， 水滴虽微， 渐盈大器， 凡罪充满， 从小积成。 莫轻小善， 以为无福， 水滴虽微， 渐盈大器， 凡福充满， 从纤纤积。</p>
@@ -113,7 +119,7 @@
 </h2>
 <p>有中国官员牵涉其中么？我指国民党和民进党的[酷]<br><br>RE: 【巴拿马泄密文件事件持续发酵 五大因素成关注焦点】据英国广播公司（BBC）报道，文件显示，全球累计有72位现任和前任领导人涉嫌卷入洗钱交易，其中包括俄罗斯总统普京等多名政界商界要员，此外还显示，冰岛总理贡劳格松（Sigmundur Gunnlaugsson）涉嫌通过开设离岸公司将资金秘密转移至英属维尔京群岛...全文： http://m.weibo.cn/1638782947/3960576243825112<br><img src="http://ww4.sinaimg.cn/large/61add7e3jw1f2kqiummixj20sg0j2dq6.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3960586066780747" target="freeweibo-mirror">王书记经受住考验。[赞]</a>
 </h2>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3960584980153016" target="freeweibo-mirror">//@孤雁苍寒3://@星雨_辰风-70://@曹先生201…</a>
 </h2>
 <p>//@孤雁苍寒3://@星雨_辰风-70://@曹先生2012H: //@在地球做客02: //@上善若水童: 转发微博<br><br>RE: 不看不知道，一看都明白了<br><img src="http://ww2.sinaimg.cn/large/8067a123jw1f2kq0uxrwcj20hs1sgn6g.jpg"></p>
-<p>
-	<small> ============== 5小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3960584963911560" target="freeweibo-mirror">塞翁失马，祸福平分。</a>
-</h2>
-<p>塞翁失马，祸福平分。<br><img src="http://ww4.sinaimg.cn/large/006qwQacjw1f2ks0elcmuj30c86fxnhn.jpg"></p>
 <p>
 	<small> ============== 5小时前</small>
 </p>
