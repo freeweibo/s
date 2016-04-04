@@ -95,7 +95,7 @@
 </h2>
 <p>SPAM 神马节奏？ //@荷宝荣:外媒瞎说，我不信喜大大会干这事。 //@1024专员:巴拿马<br><br>RE: 大撒B,马拉个币！<br><img src="http://ww1.sinaimg.cn/large/006iVbLFgw1f2kpwpbcesj30k00mln1l.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3960650562959397" target="freeweibo-mirror">号外，截屏的速度，机不可失！</a>
 </h2>
