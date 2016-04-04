@@ -119,7 +119,7 @@
 </h2>
 <p>SPAM 这注定是一场前所未有的风暴，那些位高权重者将面临怎样的境地？我们拭目以待。<br><img src="http://ww1.sinaimg.cn/large/006g5ieXgw1f2kyn9whbhj30h60len2v.jpg"></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3960642447137938" target="freeweibo-mirror">SPAM 哇！原来你就是那位祛痘大神 @Skin-Hong …</a>
 </h2>
