@@ -25,6 +25,12 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3960612319000058" target="freeweibo-mirror">//@ICO刘开明://@老罗的微博:请不要继续传播巴拿马离…</a>
+</h2>
+<p>//@ICO刘开明://@老罗的微博:请不要继续传播巴拿马离岸故事了，万一老大生气了，新浪微博也许会打烊哦。//@崔小平律师:[嘻嘻]<br><br>RE: 【谣言】人家早在两年前就明确表示没有离岸公司，真是的！<br><img src="http://ww4.sinaimg.cn/large/5cf7ad65jw1f2ksrxpow0j20qo11179l.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3960611942148933" target="freeweibo-mirror">//@陆伟民律师: //@50年矛苔://@煙巳惔嘸菋: 要…</a>
 </h2>
 <p>//@陆伟民律师: //@50年矛苔://@煙巳惔嘸菋: 要相信道德婊的回应<br><br>RE: 【谣言】人家早在两年前就明确表示没有离岸公司，真是的！<br><img src="http://ww4.sinaimg.cn/large/5cf7ad65jw1f2ksrxpow0j20qo11179l.jpg"></p>
@@ -95,7 +101,7 @@
 </h2>
 <p>有中国官员牵涉其中么？我指国民党和民进党的[酷]<br><br>RE: 【巴拿马泄密文件事件持续发酵 五大因素成关注焦点】据英国广播公司（BBC）报道，文件显示，全球累计有72位现任和前任领导人涉嫌卷入洗钱交易，其中包括俄罗斯总统普京等多名政界商界要员，此外还显示，冰岛总理贡劳格松（Sigmundur Gunnlaugsson）涉嫌通过开设离岸公司将资金秘密转移至英属维尔京群岛...全文： http://m.weibo.cn/1638782947/3960576243825112<br><img src="http://ww4.sinaimg.cn/large/61add7e3jw1f2kqiummixj20sg0j2dq6.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3960586066780747" target="freeweibo-mirror">王书记经受住考验。[赞]</a>
 </h2>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3960576243825112" target="freeweibo-mirror">【巴拿马泄密文件事件持续发酵 五大因素成关注焦点】据英国广播…</a>
 </h2>
 <p>【巴拿马泄密文件事件持续发酵 五大因素成关注焦点】据英国广播公司（BBC）报道，文件显示，全球累计有72位现任和前任领导人涉嫌卷入洗钱交易，其中包括俄罗斯总统普京等多名政界商界要员，此外还显示，冰岛总理贡劳格松（Sigmundur Gunnlaugsson）涉嫌通过开设离岸公司将资金秘密转移至英属维尔京群岛...全文： http://m.weibo.cn/1638782947/3960576243825112<br><img src="http://ww4.sinaimg.cn/large/61add7e3jw1f2kqiummixj20sg0j2dq6.jpg"></p>
-<p>
-	<small> ============== 4小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3960575098539728" target="freeweibo-mirror">//@连鹏:有些人对普京的崇拜，其实就是对威权、铁腕的崇拜，…</a>
-</h2>
-<p>//@连鹏:有些人对普京的崇拜，其实就是对威权、铁腕的崇拜，觉得唯有政治强人才能带来国家强盛民族复兴。<br><br>RE: 普京第一个任期干的还行。后来呢，通过反腐打黑强化权力，控制媒体不断包装自己，煽动反西方情绪及俄罗斯民族主义，还钻宪法空子，玩政治“二人转”。但你不要忘了，集权是腐败的成因，只会造成更多的特权泛滥。因此，当巴拿马文件泄密普京被卷入巨额洗钱丑闻，真是一点也不意外。有趣的是，前两个月BB...全文： http://m.weibo.cn/1641428154/3960567846912712<br><img src="http://ww1.sinaimg.cn/large/61d634bajw1f2kpueiq11j20fa0dw74q.jpg"></p>
 <p>
 	<small> ============== 4小时前</small>
 </p>
