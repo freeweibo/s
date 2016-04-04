@@ -29,7 +29,7 @@
 </h2>
 <p>SPAM 说好的愚人节玩笑不符合咱们的价值观咧。[嘻嘻]//@老黄的微博2014: 愚人节已经过了啊 //@草原上的寶雲d://@瑞安丰和18:这个有点名堂了//@李氏卫东:我操，水太深，深不见底。<br><br>RE: 卧槽这是怎么了？[围观][围观][围观]<br><img src="http://ww2.sinaimg.cn/large/006e75Sujw1f2k2ajantij30dc09l0t2.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3960435927571836" target="freeweibo-mirror">SPAM 想多了，一定是被盗号了～</a>
 </h2>
@@ -107,7 +107,7 @@
 </h2>
 <p>SPAM 翻翻她的微-博 你会发现瘦-下来也不是很难  想-瘦找她@私人健身指南</p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3960329333254037" target="freeweibo-mirror">//@BD-老李的围脖：这些人才是社会财富的主体，才是真正的…</a>
 </h2>
