@@ -89,7 +89,7 @@
 </h2>
 <p>//@ICO刘开明://@老罗的微博:请不要继续传播巴拿马离岸故事了，万一老大生气了，新浪微博也许会打烊哦。//@崔小平律师:[嘻嘻]<br><br>RE: 【谣言】人家早在两年前就明确表示没有离岸公司，真是的！<br><img src="http://ww4.sinaimg.cn/large/5cf7ad65jw1f2ksrxpow0j20qo11179l.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3960611942148933" target="freeweibo-mirror">//@陆伟民律师: //@50年矛苔://@煙巳惔嘸菋: 要…</a>
 </h2>
