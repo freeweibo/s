@@ -59,7 +59,7 @@
 </h2>
 <p>SPAM 说好的愚人节玩笑不符合咱们的价值观咧。[嘻嘻]//@老黄的微博2014: 愚人节已经过了啊 //@草原上的寶雲d://@瑞安丰和18:这个有点名堂了//@李氏卫东:我操，水太深，深不见底。<br><br>RE: 卧槽这是怎么了？[围观][围观][围观]<br><img src="http://ww2.sinaimg.cn/large/006e75Sujw1f2k2ajantij30dc09l0t2.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3960436443453490" target="freeweibo-mirror">SPAM 被小岳岳圈粉了最近 小贱样~[偷乐]</a>
 </h2>
@@ -95,7 +95,7 @@
 </h2>
 <p>//@闾丘露薇:"Only Thing We Have to Fear Is Fear Itself” 最大的恐惧就是恐惧本身。这是罗斯福当年就职演说中的一句，如今在金像奖颁奖礼听到。特殊时代，艺术的意义不在技巧，而在于人们透过艺术所表达的精神，一种姿态。<br><br>RE: 金像奖最佳影片<br><img src="http://ww3.sinaimg.cn/large/46e9d5dajw1f2jyh9xsncj20m80go76m.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3960338934155112" target="freeweibo-mirror">SPAM  //@核平奖:亮贱如麻，当道多渣。//@春秋药王…</a>
 </h2>
