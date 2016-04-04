@@ -43,6 +43,12 @@
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3960465740650830" target="freeweibo-mirror">//@WK张建兴:一群有钱有权有势之人始终不放手乌坎村的土地…</a>
+</h2>
+<p>//@WK张建兴:一群有钱有权有势之人始终不放手乌坎村的土地，而恶劣的是他们不想花钱就想掠夺走不属于他们的东西！</p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3960442672031274" target="freeweibo-mirror">SPAM //@周难的微博://@南京金鸣: //@佛光成觉…</a>
 </h2>
 <p>SPAM //@周难的微博://@南京金鸣: //@佛光成觉:何时公映啊？//@猫胡子003: //@无肉不欢911://@周铁东本人: //@刘毅:不知道十年讲什么的，看这里：  http://t.cn/Rqy7t7T   //@周铁东本人: 我们无需恐惧，真正恐惧的是恐惧《十年》的人。 //@浩正刘臻:Repost<br><br>RE: #香港电影金像奖# 最佳电影：《十年》！颁最佳电影奖之前，金像奖主席尔冬升上台说：大家知道上个月发生了一些事。前几天，有一个编剧问我，一会儿颁奖礼里面，能不能提十年两个字？我对他说，你记住，我们最需要恐惧的，是恐惧本身。<br><img src="http://ww4.sinaimg.cn/large/6764cadegw1f2jxlils8xj20og0byq6m.jpg"></p>
@@ -59,7 +65,7 @@
 </h2>
 <p>SPAM 被小岳岳圈粉了最近 小贱样~[偷乐]<br><br>RE: 欢乐喜剧人第二季冠军岳云鹏总决赛作品《今夜我们说相声》，你的努力观众看到了，实至名归！[good]http://t.cn/RqLFThV</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3960435927571836" target="freeweibo-mirror">SPAM 想多了，一定是被盗号了～</a>
 </h2>
@@ -83,7 +89,7 @@
 </h2>
 <p>卧槽这是怎么了？[围观][围观][围观]<br><img src="http://ww2.sinaimg.cn/large/006e75Sujw1f2k2ajantij30dc09l0t2.jpg"></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3960339513686209" target="freeweibo-mirror">//@闾丘露薇:"Only Thing We Have to…</a>
 </h2>
@@ -95,19 +101,19 @@
 </h2>
 <p>SPAM  //@核平奖:亮贱如麻，当道多渣。//@春秋药王:能量的作用在于推动，一些泼皮无赖整天打闷棍，使横劲。还敢咧着逼嘴号称正能量。中国的事情，全都坏在这些小人之手。<br><br>RE: 今天攻击这个，明天诽谤那个，无论是什么能量，只要选择了谎言和欺骗，只能是不停的用新的谎言掩盖谎言。遇到攻击和诽谤，只要不是喜欢下跪的奴才就一定会选择反击。某些人自以为是，实际狗屁不是，我仍然认为，能够团结同胞的才是正能量。玩贱之人，必死于剑下！[话筒]</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3960338463950832" target="freeweibo-mirror">…………………………………………………………………………</a>
 </h2>
 <p>…………………………………………………………………………</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3960338183881189" target="freeweibo-mirror">SPAM 原来是这样！</a>
 </h2>
 <p>SPAM 原来是这样！<br><br>RE: 金像奖最佳影片<br><img src="http://ww3.sinaimg.cn/large/46e9d5dajw1f2jyh9xsncj20m80go76m.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3960335763901305" target="freeweibo-mirror">SPAM 广告!//@民间治堵人陈哲宏: //@喷嚏网铂程:…</a>
 </h2>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3960333746482909" target="freeweibo-mirror">SPAM //@记者钱莽墩: //@律师高庆健：比任大炮强多…</a>
 </h2>
 <p>SPAM //@记者钱莽墩: //@律师高庆健：比任大炮强多了。</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3960332881965420" target="freeweibo-mirror">SPAM 翻翻她的微-博 你会发现瘦-下来也不是很难  想-…</a>
-</h2>
-<p>SPAM 翻翻她的微-博 你会发现瘦-下来也不是很难  想-瘦找她@私人健身指南</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
