@@ -25,6 +25,30 @@
 <p>
 	<small> ============== 1小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3960588134690472" target="freeweibo-mirror">有中国官员牵涉其中么？我指国民党和民进党的[酷]</a>
+</h2>
+<p>有中国官员牵涉其中么？我指国民党和民进党的[酷]<br><br>RE: 【巴拿马泄密文件事件持续发酵 五大因素成关注焦点】据英国广播公司（BBC）报道，文件显示，全球累计有72位现任和前任领导人涉嫌卷入洗钱交易，其中包括俄罗斯总统普京等多名政界商界要员，此外还显示，冰岛总理贡劳格松（Sigmundur Gunnlaugsson）涉嫌通过开设离岸公司将资金秘密转移至英属维尔京群岛...全文： http://m.weibo.cn/1638782947/3960576243825112<br><img src="http://ww4.sinaimg.cn/large/61add7e3jw1f2kqiummixj20sg0j2dq6.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3960586066780747" target="freeweibo-mirror">王书记经受住考验。[赞]</a>
+</h2>
+<p>王书记经受住考验。[赞]<br><br>RE: 【巴拿马泄密文件事件持续发酵 五大因素成关注焦点】据英国广播公司（BBC）报道，文件显示，全球累计有72位现任和前任领导人涉嫌卷入洗钱交易，其中包括俄罗斯总统普京等多名政界商界要员，此外还显示，冰岛总理贡劳格松（Sigmundur Gunnlaugsson）涉嫌通过开设离岸公司将资金秘密转移至英属维尔京群岛...全文： http://m.weibo.cn/1638782947/3960576243825112<br><img src="http://ww4.sinaimg.cn/large/61add7e3jw1f2kqiummixj20sg0j2dq6.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3960586046079169" target="freeweibo-mirror">[挖鼻]你真以为他有得罪整个官僚体系的本钱么？如果他真敢那么…</a>
+</h2>
+<p>[挖鼻]你真以为他有得罪整个官僚体系的本钱么？如果他真敢那么做就会成为第二个赫鲁晓夫！//@张旭5454:现在实行官员财产社会公开制度，是历史最好时机。也把习的执政风险卸掉了。//@石--刚: 转发微博<br><br>RE: 【巴拿马泄密文件事件持续发酵 五大因素成关注焦点】据英国广播公司（BBC）报道，文件显示，全球累计有72位现任和前任领导人涉嫌卷入洗钱交易，其中包括俄罗斯总统普京等多名政界商界要员，此外还显示，冰岛总理贡劳格松（Sigmundur Gunnlaugsson）涉嫌通过开设离岸公司将资金秘密转移至英属维尔京群岛...全文： http://m.weibo.cn/1638782947/3960576243825112<br><img src="http://ww4.sinaimg.cn/large/61add7e3jw1f2kqiummixj20sg0j2dq6.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3960584507178879" target="freeweibo-mirror">博主，还有谁呀？[太开心]//@李军林导演: 目测你们老板要…</a>
+</h2>
+<p>博主，还有谁呀？[太开心]//@李军林导演: 目测你们老板要嫖娼了。<br><br>RE: 【巴拿马泄密文件事件持续发酵 五大因素成关注焦点】据英国广播公司（BBC）报道，文件显示，全球累计有72位现任和前任领导人涉嫌卷入洗钱交易，其中包括俄罗斯总统普京等多名政界商界要员，此外还显示，冰岛总理贡劳格松（Sigmundur Gunnlaugsson）涉嫌通过开设离岸公司将资金秘密转移至英属维尔京群岛...全文： http://m.weibo.cn/1638782947/3960576243825112<br><img src="http://ww4.sinaimg.cn/large/61add7e3jw1f2kqiummixj20sg0j2dq6.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3960575098539728" target="freeweibo-mirror">//@连鹏:有些人对普京的崇拜，其实就是对威权、铁腕的崇拜，…</a>
 </h2>
 <p>//@连鹏:有些人对普京的崇拜，其实就是对威权、铁腕的崇拜，觉得唯有政治强人才能带来国家强盛民族复兴。<br><br>RE: 普京第一个任期干的还行。后来呢，通过反腐打黑强化权力，控制媒体不断包装自己，煽动反西方情绪及俄罗斯民族主义，还钻宪法空子，玩政治“二人转”。但你不要忘了，集权是腐败的成因，只会造成更多的特权泛滥。因此，当巴拿马文件泄密普京被卷入巨额洗钱丑闻，真是一点也不意外。有趣的是，前两个月BB...全文： http://m.weibo.cn/1641428154/3960567846912712<br><img src="http://ww1.sinaimg.cn/large/61d634bajw1f2kpueiq11j20fa0dw74q.jpg"></p>
@@ -114,30 +138,6 @@
 <p>巴拿马文件，让这个世界来月经了！<br><img src="http://ww3.sinaimg.cn/large/8d84f9e6gw1f2kmuskh4tj20j609umy9.jpg"></p>
 <p>
 	<small> ============== 4小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3960538163435942" target="freeweibo-mirror">撕逼的一地鸡毛而已 国际记者调查团(ICIJ)协调，“南德意…</a>
-</h2>
-<p>撕逼的一地鸡毛而已 国际记者调查团(ICIJ)协调，“南德意志报”、法国“世界报”等76国106家媒体获得秘密材料。一年来对1,150万份文件分析，涉及21.4万个离岸公司，同全球200多国家有联系。披露疑似10亿美元由俄国银行经手且涉普京心腹，冰岛总理有未申报利益，球星梅西及欧足联主席普拉蒂尼也在内。<br><img src="http://ww2.sinaimg.cn/large/562bc1d7jw1f2kml9neirj20k00pcgo1.jpg"></p>
-<p>
-	<small> ============== 4小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3960534951279896" target="freeweibo-mirror">[耶]//@名不徐传: 这回搞了个大新闻！</a>
-</h2>
-<p>[耶]//@名不徐传: 这回搞了个大新闻！<br><br>RE: 【专稿：巴拿马文件大规模泄密 普京密友涉嫌巨额洗钱】从普京密友到冰岛总理，涉及12位国家首脑本人，规模远超维基解密和斯诺登泄密规模的巴拿马文件泄露事件，揭开了世界上最有权势人群隐匿财富的冰山一角：http://t.cn/RqyIsd4 新浪<br><img src="http://ww1.sinaimg.cn/large/70e11e0fjw1f2kkup9gjaj20h80acjsi.jpg"></p>
-<p>
-	<small> ============== 5小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3960527354658742" target="freeweibo-mirror">看成川普，吓我一跳//@中和老頭:最引人矚目的，就是你國總統…</a>
-</h2>
-<p>看成川普，吓我一跳//@中和老頭:最引人矚目的，就是你國總統普丁，他的親密心腹網透過銀行與境外企業，洗錢金額多達20億美元。http://t.cn/RqyM6w0</p>
-<p>
-	<small> ============== 5小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3960526424461247" target="freeweibo-mirror">城会玩…… //@楚惜刀:400名记者研究了一年。真相之日。</a>
-</h2>
-<p>城会玩…… //@楚惜刀:400名记者研究了一年。真相之日。<br><br>RE: 昨晚..世界几大媒体同时发布的一条消息，震撼了全世界！！ 超过1150万份金融文件被泄密给媒体，文件曝光了21万个海外洗钱和逃税的离岸公司...曝光了79名各国领导人，各路名人明星公司高管，各种毒贩军火贩走私贩各国黑帮黑社会的各种海外黑钱和洗钱流向.......  一场暴风骤雨，才刚刚开始.....<br><img src="http://ww4.sinaimg.cn/large/97f224aajw1f2kd1hygkuj20c86fx7wh.jpg"></p>
-<p>
-	<small> ============== 5小时前</small>
 </p>
 <table>
     <tr>
