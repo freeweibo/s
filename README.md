@@ -65,7 +65,7 @@
 </h2>
 <p>SPAM 波音空客的推销又来鸟[怒]<br><br>RE: 塞翁失马，祸福平分。<br><img src="http://ww4.sinaimg.cn/large/006qwQacjw1f2ks0elcmuj30c86fxnhn.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3960606564582612" target="freeweibo-mirror">SPAM //@终南山人的天空1:香港护照//@paixue…</a>
 </h2>
@@ -107,7 +107,7 @@
 </h2>
 <p>【谣言】人家早在两年前就明确表示没有离岸公司，真是的！<br><img src="http://ww4.sinaimg.cn/large/5cf7ad65jw1f2ksrxpow0j20qo11179l.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3960590731021568" target="freeweibo-mirror">再转一次</a>
 </h2>
