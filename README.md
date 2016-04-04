@@ -71,7 +71,7 @@
 </h2>
 <p>SPAM 封杀即恶 //@红拂夜奔不复还:为什么刚才转的自动被删了？ //@刘毅:不知道十年讲什么的，看这里：http://t.cn/Rqy7t7T //@周铁东本人: 我们无需恐惧，真正恐惧的是恐惧《十年》的人。 //@浩正刘臻:Repost<br><br>RE: #香港电影金像奖# 最佳电影：《十年》！颁最佳电影奖之前，金像奖主席尔冬升上台说：大家知道上个月发生了一些事。前几天，有一个编剧问我，一会儿颁奖礼里面，能不能提十年两个字？我对他说，你记住，我们最需要恐惧的，是恐惧本身。<br><img src="http://ww4.sinaimg.cn/large/6764cadegw1f2jxlils8xj20og0byq6m.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3960424406427052" target="freeweibo-mirror">SPAM //@闾丘露薇: //@谭人玮://@洛杉矶吴明:…</a>
 </h2>
@@ -113,13 +113,13 @@
 </h2>
 <p>SPAM 广告!//@民间治堵人陈哲宏: //@喷嚏网铂程://@记者钱莽墩: //@律师高庆健：比任大炮强多了。</p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3960335574410819" target="freeweibo-mirror">三大魔教//@呆头鹰://@夙生律师事务所: //@公民林静…</a>
 </h2>
 <p>三大魔教//@呆头鹰://@夙生律师事务所: //@公民林静在维权3: //@马克思粉丝9:五毛 //@觅翠04600: //@冰砚之心: //@杜康111: //@稳普高清摄像机S:朝阳区大妈！ //@西江月wy: //@活着是煎熬四网易:转发微博<br><br>RE: 百年来的三大怪胎：义和团，红卫兵，爱国贼。<br><img src="http://ww4.sinaimg.cn/large/006qq6RTgw1f2jt9o4bnqj30d708qjsv.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3960333821657715" target="freeweibo-mirror">SPAM //@喷嚏网铂程://@记者钱莽墩: //@律师高…</a>
 </h2>
