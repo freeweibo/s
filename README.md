@@ -83,7 +83,7 @@
 </h2>
 <p>//@王建国: //@张旭5454: [good]//@爽朗的mddddh: 可能是愚人节的假消息。作为克格勃出身的普京，应该不会被人家轻易抓到把柄。退一万步讲，即便是确有其事，它们也不会承认的。//@法律案例-文史典故: 好像涉及国内不少人//@廖睿:这事能在我们这儿引起地震么？<br><br>RE: 塞翁失马，祸福平分。<br><img src="http://ww4.sinaimg.cn/large/006qwQacjw1f2ks0elcmuj30c86fxnhn.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3960599920686530" target="freeweibo-mirror">SPAM 意料中事，怕被清算//@惠民E报: //@黄奎AR…</a>
 </h2>
@@ -119,7 +119,7 @@
 </h2>
 <p>SPAM 据德国《南德意志报》消息，巴拿马莫萨克•冯赛卡（Mossack Fonseca）法律事务所的文件泄露事件显示，有一系列世界领导人及其亲信与洗钱和逃税系统有关。  http://t.cn/RqyKff9<br><img src="http://ww2.sinaimg.cn/large/820887e2jw1f2ksiwsnqcj20rs0f1abx.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3960588134690472" target="freeweibo-mirror">有中国官员牵涉其中么？我指国民党和民进党的[酷]</a>
 </h2>
