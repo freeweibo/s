@@ -19,6 +19,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3960442672031274" target="freeweibo-mirror">SPAM //@周难的微博://@南京金鸣: //@佛光成觉…</a>
+</h2>
+<p>SPAM //@周难的微博://@南京金鸣: //@佛光成觉:何时公映啊？//@猫胡子003: //@无肉不欢911://@周铁东本人: //@刘毅:不知道十年讲什么的，看这里：  http://t.cn/Rqy7t7T   //@周铁东本人: 我们无需恐惧，真正恐惧的是恐惧《十年》的人。 //@浩正刘臻:Repost<br><br>RE: #香港电影金像奖# 最佳电影：《十年》！颁最佳电影奖之前，金像奖主席尔冬升上台说：大家知道上个月发生了一些事。前几天，有一个编剧问我，一会儿颁奖礼里面，能不能提十年两个字？我对他说，你记住，我们最需要恐惧的，是恐惧本身。<br><img src="http://ww4.sinaimg.cn/large/6764cadegw1f2jxlils8xj20og0byq6m.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3960339513686209" target="freeweibo-mirror">//@闾丘露薇:"Only Thing We Have to…</a>
 </h2>
 <p>//@闾丘露薇:"Only Thing We Have to Fear Is Fear Itself” 最大的恐惧就是恐惧本身。这是罗斯福当年就职演说中的一句，如今在金像奖颁奖礼听到。特殊时代，艺术的意义不在技巧，而在于人们透过艺术所表达的精神，一种姿态。<br><br>RE: 金像奖最佳影片<br><img src="http://ww3.sinaimg.cn/large/46e9d5dajw1f2jyh9xsncj20m80go76m.jpg"></p>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3960321255832674" target="freeweibo-mirror">果然是“党内党外无官正”</a>
 </h2>
 <p>果然是“党内党外无官正”<br><br>RE: #瞭望回眸# 【官员不敢公开财产的原因找到了】2003年曾就财产申报制，决定到上海广东搞试点，结果发生二大问题：1.党政干部强烈抗拒，以消极怠工来对待；2.在内部申报时，上海市的省厅级干部90%拥有一千万以上的资产，广东省的省厅级干部99%拥有一千万以上资产，如公开势必会被社会各界追击。——吴官...全文： http://m.weibo.cn/1736574887/3960118334512521...全文： http://m.weibo.cn/1736574887/3960118334512521...全文： http://m.weibo.cn/1736574887/3960118334512521<br><img src="http://ww2.sinaimg.cn/large/678207a7jw1f2ivdi2901j209z087dg2.jpg"></p>
-<p>
-	<small> ============== 9小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3960320898402965" target="freeweibo-mirror">#THISISHKIKNOW# BREAKING：全城期待，…</a>
-</h2>
-<p>#THISISHKIKNOW# BREAKING：全城期待，眾望所歸，香港電影「十年」拿下今年金像獎最佳電影，感動全城，香港，仍有希望！<br><img src="http://ww2.sinaimg.cn/large/5938d248jw1f2jxoc7p20j20zk0qon4n.jpg"></p>
 <p>
 	<small> ============== 9小时前</small>
 </p>
