@@ -23,7 +23,7 @@
 </h2>
 <p>眼瞅着要500转了呢……//@女王C-cup:转发微博 http://t.cn/RqyiM2s<br><br>RE: panama paper中的走国人，我们可以看到有包子的大姐夫（已移民加拿大），贾庆林的（外）孙女，以及小琳，大鸟的女儿<br><img src="http://ww2.sinaimg.cn/large/c0193b9cjw1f2kf6edltgj21kw071jtj.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3960542253564396" target="freeweibo-mirror">SPAM [doge]//@情话蜀黍:[doge]</a>
 </h2>
