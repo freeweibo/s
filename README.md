@@ -65,7 +65,7 @@
 </h2>
 <p>律痞成为律师队伍的一块牛皮癣//@打奥特曼de小怪兽:“大抓捕”、“绑架”、“残害”、“受难”……标准的轮子语言风格，原来这丫脑残是她妈遗传的……//@八大商人:尼玛，上帝保佑美国，所以你们的家属给美国当炮灰，也是上帝的旨意嘛！[挖鼻]</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3960465740650830" target="freeweibo-mirror">//@WK张建兴:一群有钱有权有势之人始终不放手乌坎村的土地…</a>
 </h2>
@@ -73,11 +73,17 @@
 <p>
 	<small> ============== 5小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3960456429082537" target="freeweibo-mirror">昨晚..世界几大媒体同时发布的一条消息，震撼了全世界！！ 超…</a>
+</h2>
+<p>昨晚..世界几大媒体同时发布的一条消息，震撼了全世界！！ 超过1150万份金融文件被泄密给媒体，文件曝光了21万个海外洗钱和逃税的离岸公司...曝光了79名各国领导人，各路名人明星公司高管，各种毒贩军火贩走私贩各国黑帮黑社会的各种海外黑钱和洗钱流向.......  一场暴风骤雨，才刚刚开始.....<br><img src="http://ww4.sinaimg.cn/large/97f224aajw1f2kd1hygkuj20c86fx7wh.jpg"></p>
+<p>
+	<small> ============== 6小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3960442672031274" target="freeweibo-mirror">SPAM //@周难的微博://@南京金鸣: //@佛光成觉…</a>
 </h2>
 <p>SPAM //@周难的微博://@南京金鸣: //@佛光成觉:何时公映啊？//@猫胡子003: //@无肉不欢911://@周铁东本人: //@刘毅:不知道十年讲什么的，看这里：  http://t.cn/Rqy7t7T   //@周铁东本人: 我们无需恐惧，真正恐惧的是恐惧《十年》的人。 //@浩正刘臻:Repost<br><br>RE: #香港电影金像奖# 最佳电影：《十年》！颁最佳电影奖之前，金像奖主席尔冬升上台说：大家知道上个月发生了一些事。前几天，有一个编剧问我，一会儿颁奖礼里面，能不能提十年两个字？我对他说，你记住，我们最需要恐惧的，是恐惧本身。<br><img src="http://ww4.sinaimg.cn/large/6764cadegw1f2jxlils8xj20og0byq6m.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3960438301482889" target="freeweibo-mirror">SPAM 说好的愚人节玩笑不符合咱们的价值观咧。[嘻嘻]//…</a>
 </h2>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3960338463950832" target="freeweibo-mirror">…………………………………………………………………………</a>
 </h2>
 <p>…………………………………………………………………………</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3960338183881189" target="freeweibo-mirror">SPAM 原来是这样！</a>
-</h2>
-<p>SPAM 原来是这样！<br><br>RE: 金像奖最佳影片<br><img src="http://ww3.sinaimg.cn/large/46e9d5dajw1f2jyh9xsncj20m80go76m.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
