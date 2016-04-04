@@ -19,6 +19,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3960687220851950" target="freeweibo-mirror">//@刑事案件被害人:???//@论称分金: //@宇宙微力…</a>
+</h2>
+<p>//@刑事案件被害人:???//@论称分金: //@宇宙微力学://@时光老人_33500://@太平金黄鱼: //@朱令是谁:转发微博<br><br>RE: 公开信，谷歌天网，3千亿。如果3千亿美元不能收买，谷歌天网必将全面覆盖。如果谷歌天网全面覆盖，任何公开信都将被广泛传播。历史反复证明，执意闭关锁国，要么被船坚炮利轰开，要么被科技发展冲破。</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3960685610293552" target="freeweibo-mirror">SPAM //@又来金好多://@佛山的同学:[感冒]//@…</a>
 </h2>
 <p>SPAM //@又来金好多://@佛山的同学:[感冒]//@孔智勇_:老花眼了看不清，什么内容？//@梦与天杰:怀疑[喵喵] @崔永元@罗玉凤@当律师的陈刚@孔智勇_@陈茂来-@初八叔叔 //@虫虫儿-微评://@天圆地方3511E://@斯韦爵://@小卖部长十世://@一定要回头啊://@老宁微博://@流浪王子马文彬G: 大家接力！<br><br>RE: 全球政治人物社会名流离岸资金揭密<br><img src="http://ww3.sinaimg.cn/large/006pn8rvjw1f2koeinr6rj30r02um4qp.jpg"></p>
@@ -47,7 +53,7 @@
 </h2>
 <p>SPAM 给一个时评大赛当评委，晚上审稿，我的一些点评语：1，那么有趣的话题被你写得这么无趣；2，一堆废话，等于啥也没说；3，先给别人强加情怀标签，再用商业把别人批判一番；4，把一个简单的道理说得那么绕；5，没有营养的鸡汤不如砒霜；6，一个巧妙的对比胜于千成言雄辩；7，纯属文字概念游戏；8，面面俱...全文： http://m.weibo.cn/1193210930/3960639502141187</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3960628987333502" target="freeweibo-mirror">SPAM 【菩提花开】莫轻小恶， 以为无殃， 水滴虽微， 渐…</a>
 </h2>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3960590731021568" target="freeweibo-mirror">再转一次</a>
 </h2>
 <p>再转一次<br><br>RE: 【巴拿马泄密文件事件持续发酵 五大因素成关注焦点】据英国广播公司（BBC）报道，文件显示，全球累计有72位现任和前任领导人涉嫌卷入洗钱交易，其中包括俄罗斯总统普京等多名政界商界要员，此外还显示，冰岛总理贡劳格松（Sigmundur Gunnlaugsson）涉嫌通过开设离岸公司将资金秘密转移至英属维尔京群岛...全文： http://m.weibo.cn/1638782947/3960576243825112<br><img src="http://ww4.sinaimg.cn/large/61add7e3jw1f2kqiummixj20sg0j2dq6.jpg"></p>
-<p>
-	<small> ============== 8小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3960589472729256" target="freeweibo-mirror">SPAM 据德国《南德意志报》消息，巴拿马莫萨克•冯赛卡（M…</a>
-</h2>
-<p>SPAM 据德国《南德意志报》消息，巴拿马莫萨克•冯赛卡（Mossack Fonseca）法律事务所的文件泄露事件显示，有一系列世界领导人及其亲信与洗钱和逃税系统有关。  http://t.cn/RqyKff9<br><img src="http://ww2.sinaimg.cn/large/820887e2jw1f2ksiwsnqcj20rs0f1abx.jpg"></p>
 <p>
 	<small> ============== 8小时前</small>
 </p>
