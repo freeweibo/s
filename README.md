@@ -65,19 +65,19 @@
 </h2>
 <p>SPAM  //@核平奖:亮贱如麻，当道多渣。//@春秋药王:能量的作用在于推动，一些泼皮无赖整天打闷棍，使横劲。还敢咧着逼嘴号称正能量。中国的事情，全都坏在这些小人之手。<br><br>RE: 今天攻击这个，明天诽谤那个，无论是什么能量，只要选择了谎言和欺骗，只能是不停的用新的谎言掩盖谎言。遇到攻击和诽谤，只要不是喜欢下跪的奴才就一定会选择反击。某些人自以为是，实际狗屁不是，我仍然认为，能够团结同胞的才是正能量。玩贱之人，必死于剑下！[话筒]</p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3960338463950832" target="freeweibo-mirror">…………………………………………………………………………</a>
 </h2>
 <p>…………………………………………………………………………</p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3960338183881189" target="freeweibo-mirror">SPAM 原来是这样！</a>
 </h2>
 <p>SPAM 原来是这样！<br><br>RE: 金像奖最佳影片<br><img src="http://ww3.sinaimg.cn/large/46e9d5dajw1f2jyh9xsncj20m80go76m.jpg"></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3960335763901305" target="freeweibo-mirror">SPAM 广告!//@民间治堵人陈哲宏: //@喷嚏网铂程:…</a>
 </h2>
