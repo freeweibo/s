@@ -65,19 +65,19 @@
 </h2>
 <p>巴XX文件第一个受影响国家出现：冰岛。今天冰岛数千抗议者围住政府大楼，要求首相辞职。冰岛是民主国家领导层中目前丑闻最大的：1.首相当选后公开财产前，将自己公司以1美元卖给合作伙伴，该伙伴后来成为他太太。2.该公司在冰岛三家银行的财务困境中受损失，他作为首相批准用国家资金救这几家银行。<br><img src="http://ww1.sinaimg.cn/large/56fc0caajw1f2llfimd66j20pf0eiq7s.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3960840787281660" target="freeweibo-mirror">SPAM [思考]//@胡是糊: “有人说我们只打苍蝇不打老…</a>
 </h2>
 <p>SPAM [思考]//@胡是糊: “有人说我们只打苍蝇不打老虎，我们老虎苍蝇都要打”。今天忽然想起来，除了老虎还有狮子，还有豺狼猎豹。xx的，动物知识白学了<br><br>RE: 来自维基百科.<br><img src="http://ww1.sinaimg.cn/large/93bde597jw1f2kumspci4j20hs0vkwoj.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3960840145565999" target="freeweibo-mirror">//@传承中华文化: 盘根错节，眼花缭乱。//@孔智勇_: …</a>
 </h2>
 <p>//@传承中华文化: 盘根错节，眼花缭乱。//@孔智勇_: 等待辟谣中… //@精日钟表-表哥://@叁羊開泰T://@咋胡已经41://@初八叔叔: 你不懂咯！帖子一删代表反腐成功！//@李斯之夏日清爽: 删帖的人真是有点傻B！//@杜康111://@老饕加佑://@鲁B斯人有寂://@深度NN播报://@一路贤聊: 贪官污吏都该杀！<br><br>RE: 来自维基百科.<br><img src="http://ww1.sinaimg.cn/large/93bde597jw1f2kumspci4j20hs0vkwoj.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3960823875654873" target="freeweibo-mirror">普京疑藉亲信 转移资产156亿 「巴拿马文件」揭名人离岸交易…</a>
 </h2>
