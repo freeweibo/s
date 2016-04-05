@@ -59,7 +59,7 @@
 </h2>
 <p>伊斯兰教最近越来越显得激进，不遵守普世价值，不遵守党纪国法，不尊敬其他民族，如此种种恶行必须受到限制！<br><br>RE: #教育与宗教相分离#某些地方政府大力兴办阿语学校，许多阿语学校实际上就是传播伊斯兰宗教的学校。张家川阿语学校毕业典礼演讲中，班主任公开宣称，学生在学校“学到了最完美的宗教信仰一伊斯兰信仰。”http://t.cn/RqUFE7i<br><img src="http://ww4.sinaimg.cn/large/55f6f027jw1f2m4xh8jvtj20qo1bggtx.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3961020676393320" target="freeweibo-mirror">吓死宝宝了//@司马平邦: 图文不配啊。</a>
 </h2>
@@ -72,6 +72,12 @@
 <p>SPAM 这图形象。 //@浔阳女高音123://@蕙兰i百合://@鹿鹿-小靓: //@春风渐老惜花残://@逆流J勇上: //@花自飘零-水自流20-dove:[笑cry][笑cry][笑cry]   http://t.cn/Rq4zTpl   //@决不-妥协G:装逼中南海，藏身巴#马！[笑cry][笑cry]</p>
 <p>
 	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3961006273411285" target="freeweibo-mirror">大家注意到没？这次 Panama文件中，备受“环球时报”调侃…</a>
+</h2>
+<p>大家注意到没？这次 Panama文件中，备受“环球时报”调侃的美国和日本的政府官员或前官员一个也没有，台湾的政治人物也没有，倒是经常受到“环球时报”推崇的普京大帝脱不了干系，@环球时报  这次怎么自圆其说？<br><img src="http://ww3.sinaimg.cn/large/9154fba0jw1f2m4earfexj20u00k0n0k.jpg"></p>
+<p>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3961005178155590" target="freeweibo-mirror">[疑问]//@张弛-文武道:哈哈哈哈，跑题了//@司马平邦:…</a>
 </h2>
@@ -132,12 +138,6 @@
 <p>中国权贵设离岸公司隐藏巨额财富<br><img src="http://ww1.sinaimg.cn/large/006qhcCSjw1f2lwouj8cqj30k068yqv5.jpg"></p>
 <p>
 	<small> ============== 8小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3960929546151090" target="freeweibo-mirror">【巴拿马文件：泄密引发全球调查】媒体获取由法律咨询公司“MO…</a>
-</h2>
-<p>【巴拿马文件：泄密引发全球调查】媒体获取由法律咨询公司“MOSSACK FONSECA”泄露的超过1100万份文件。这些文件揭露了该公司如何帮助部分客户参与洗钱，逃避监管以及偷税漏税。这些文件涉及到12为各国现任或前任领导人，以及至少60位与他们有特殊关系的人员。http://t.cn/RqUYlNq (译者largeuncle)<br><img src="http://ww2.sinaimg.cn/large/61e36de1jw1f2lvkz6tz6j20ic0ab0t8.jpg"></p>
-<p>
-	<small> ============== 9小时前</small>
 </p>
 <table>
     <tr>
