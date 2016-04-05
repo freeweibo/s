@@ -23,11 +23,17 @@
 </h2>
 <p>//@上海殷慧芬: //@王周生:转发微博<br><br>RE: 大家注意到没？这次 Panama文件中，备受“环球时报”调侃的美国和日本的政府官员或前官员一个也没有，台湾的政治人物也没有，倒是经常受到“环球时报”推崇的普京大帝脱不了干系，@环球时报  这次怎么自圆其说？<br><img src="http://ww3.sinaimg.cn/large/9154fba0jw1f2m4earfexj20u00k0n0k.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3961032940094014" target="freeweibo-mirror">//@山高路远N://@亲心港湾://@善待他人就是善待自己…</a>
 </h2>
 <p>//@山高路远N://@亲心港湾://@善待他人就是善待自己://@重出江湖68://@孔智勇_://@闵玉平://@彭园v://@镜中自我B:冰岛事件可以证明那些消息都是真的！//@一定要回头啊://@上善若水童:<br><br>RE: 冰岛人民有可能为中国的反腐大业立下奇功，感谢冰岛人民！——也许功劳远不止于此！<br><img src="http://ww2.sinaimg.cn/large/005JGoo0jw1f2luw47lo9j31es0qotdj.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3961032856195751" target="freeweibo-mirror">//@大雁飞回来了: //@马克思粉丝9:奴才愚民太多！[生…</a>
+</h2>
+<p>//@大雁飞回来了: //@马克思粉丝9:奴才愚民太多！[生病][生病] //@封神祭二十三叔: //@幸福正在路上溜达呢:反腐无禁区，零容忍。音犹在耳 //@13亿股民申诉: //@五月吹雪03V //@98年记:封，堵，禁，删。千万不能让老百姓知道真相<br><br>RE: 這地咋洗？難倒包子智囊团！<br><img src="http://ww4.sinaimg.cn/large/006qcQoDjw1f2m2j8m146j30hs0m3n0t.jpg"></p>
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
@@ -43,6 +49,18 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3961028247219865" target="freeweibo-mirror">//@陈光武律师: //@崔小平律师: 转发微博</a>
+</h2>
+<p>//@陈光武律师: //@崔小平律师: 转发微博<br><br>RE: 【刘李小琳】前总理之女、要给中国老百姓建立道德档案的电力一姐居然还有冠夫姓的香港护照？ http://t.cn/R2WJKVA<br><img src="http://ww3.sinaimg.cn/large/d4050bc4jw1f2m12jmnw9j20k00buwfz.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3961021897060187" target="freeweibo-mirror">伊斯兰教最近越来越显得激进，不遵守普世价值，不遵守党纪国法，…</a>
+</h2>
+<p>伊斯兰教最近越来越显得激进，不遵守普世价值，不遵守党纪国法，不尊敬其他民族，如此种种恶行必须受到限制！<br><br>RE: #教育与宗教相分离#某些地方政府大力兴办阿语学校，许多阿语学校实际上就是传播伊斯兰宗教的学校。张家川阿语学校毕业典礼演讲中，班主任公开宣称，学生在学校“学到了最完美的宗教信仰一伊斯兰信仰。”http://t.cn/RqUFE7i<br><img src="http://ww4.sinaimg.cn/large/55f6f027jw1f2m4xh8jvtj20qo1bggtx.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3961020676393320" target="freeweibo-mirror">吓死宝宝了//@司马平邦: 图文不配啊。</a>
 </h2>
 <p>吓死宝宝了//@司马平邦: 图文不配啊。<br><br>RE: 郭伯雄涉嫌受贿犯罪案已移送审查起诉  http://t.cn/RqU3SFN<br><img src="http://ww1.sinaimg.cn/large/006kBVzvgw1f2m2ubv08gj30r9158qdh.jpg"></p>
@@ -53,7 +71,7 @@
 </h2>
 <p>SPAM 这图形象。 //@浔阳女高音123://@蕙兰i百合://@鹿鹿-小靓: //@春风渐老惜花残://@逆流J勇上: //@花自飘零-水自流20-dove:[笑cry][笑cry][笑cry]   http://t.cn/Rq4zTpl   //@决不-妥协G:装逼中南海，藏身巴#马！[笑cry][笑cry]</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3961005178155590" target="freeweibo-mirror">[疑问]//@张弛-文武道:哈哈哈哈，跑题了//@司马平邦:…</a>
 </h2>
@@ -120,24 +138,6 @@
 <p>【巴拿马文件：泄密引发全球调查】媒体获取由法律咨询公司“MOSSACK FONSECA”泄露的超过1100万份文件。这些文件揭露了该公司如何帮助部分客户参与洗钱，逃避监管以及偷税漏税。这些文件涉及到12为各国现任或前任领导人，以及至少60位与他们有特殊关系的人员。http://t.cn/RqUYlNq (译者largeuncle)<br><img src="http://ww2.sinaimg.cn/large/61e36de1jw1f2lvkz6tz6j20ic0ab0t8.jpg"></p>
 <p>
 	<small> ============== 8小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3960925897804690" target="freeweibo-mirror">不明白香港的现实状况，但这预告片里面提到的各种未来的假想，只…</a>
-</h2>
-<p>不明白香港的现实状况，但这预告片里面提到的各种未来的假想，只觉得是在无端挑事发牢骚。拿着什么广东话和本地的词语来钻牛角尖，有种别觉得自己比内地屌，满大街的对内地人的歧视没人管就是尊严和自由。<br><br>RE: 香港电影《十年》预告片http://t.cn/Rb1ov9T</p>
-<p>
-	<small> ============== 9小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3960914862368112" target="freeweibo-mirror">我刚刚转发的@早报网 的微博就被删了，再看@早报网 的原博也…</a>
-</h2>
-<p>我刚刚转发的@早报网 的微博就被删了，再看@早报网 的原博也不见了。//@铁哥日记718: 删了就真干净了！[阴险]//@公民面包: 五毛们又有奖金可领了。[嘻嘻]//@王亚东522://@在纳税的人://@加E菲炮1314Cat:[嘻嘻]<br><br>RE: 注意了！最高指示来了！<br><img src="http://ww4.sinaimg.cn/large/b4211a74gw1f2lrjj35bxj20cq07idgp.jpg"></p>
-<p>
-	<small> ============== 9小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3960910059836613" target="freeweibo-mirror">【看一看“巴拿马文件”曝光之后各方的反应】各国政府严明彻查（…</a>
-</h2>
-<p>【看一看“巴拿马文件”曝光之后各方的反应】各国政府严明彻查（不包括中国政府）！梅西赶紧声明否认！但是：在赤朝，开始封锁了！百度搜不到了，环球叼飞盘了，各大“官媒党媒”也和环球一样叼盘了......但是：这个事是绕不过去的！以赤朝“媒体”的反应来推测：巴拿马文件反应的中国相关内容是真的！<br><img src="http://ww3.sinaimg.cn/large/a505f3a9jw1f2ltcd0ie1j20hs0vk0wh.jpg"></p>
-<p>
-	<small> ============== 10小时前</small>
 </p>
 <table>
     <tr>
