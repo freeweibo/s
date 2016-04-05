@@ -23,7 +23,7 @@
 </h2>
 <p>我刚刚转发的@早报网 的微博就被删了，再看@早报网 的原博也不见了。//@铁哥日记718: 删了就真干净了！[阴险]//@公民面包: 五毛们又有奖金可领了。[嘻嘻]//@王亚东522://@在纳税的人://@加E菲炮1314Cat:[嘻嘻]<br><br>RE: 注意了！最高指示来了！<br><img src="http://ww4.sinaimg.cn/large/b4211a74gw1f2lrjj35bxj20cq07idgp.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3960903264678046" target="freeweibo-mirror">SPAM 英语不会，但是，这三个人我都知道。//@曾过眼: …</a>
 </h2>
@@ -77,7 +77,13 @@
 </h2>
 <p>SPAM //@冰海雪涛44: //@余渔yu://@凉开水V泡茶://@蹙溪羽仙: //@星雨_辰风-70://@孔智勇_: //@傅强家园16: 诡异，在环球网上却没能看到这篇文章。<br><br>RE: 别人洗钱，环球洗地。<br><img src="http://ww3.sinaimg.cn/large/006qs7WMjw1f2lo3bnd5jj30q90cyn0f.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3960864305004077" target="freeweibo-mirror">别人洗钱，环球洗地。</a>
+</h2>
+<p>别人洗钱，环球洗地。<br><img src="http://ww3.sinaimg.cn/large/006qs7WMjw1f2lo3bnd5jj30q90cyn0f.jpg"></p>
+<p>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3960860483823346" target="freeweibo-mirror">据说中国那个啥，，呵呵，反正现在被屏蔽了。。权贵们转移资产，…</a>
 </h2>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3960845543441523" target="freeweibo-mirror">情绪稳定，这一方面这届人民很行。 //@好火药:大陆呢？//…</a>
 </h2>
 <p>情绪稳定，这一方面这届人民很行。 //@好火药:大陆呢？//@破破的桥: 另一个可能明显受影响的民主国家是乌克兰，涉及总统波罗申科，不过程度相比冰岛要轻一些。<br><br>RE: 巴XX文件第一个受影响国家出现：冰岛。今天冰岛数千抗议者围住政府大楼，要求首相辞职。冰岛是民主国家领导层中目前丑闻最大的：1.首相当选后公开财产前，将自己公司以1美元卖给合作伙伴，该伙伴后来成为他太太。2.该公司在冰岛三家银行的财务困境中受损失，他作为首相批准用国家资金救这几家银行。<br><img src="http://ww1.sinaimg.cn/large/56fc0caajw1f2llfimd66j20pf0eiq7s.jpg"></p>
-<p>
-	<small> ============== 6小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3960843882362963" target="freeweibo-mirror">大陆呢？//@破破的桥: 另一个可能明显受影响的民主国家是乌…</a>
-</h2>
-<p>大陆呢？//@破破的桥: 另一个可能明显受影响的民主国家是乌克兰，涉及总统波罗申科，不过程度相比冰岛要轻一些。<br><br>RE: 巴XX文件第一个受影响国家出现：冰岛。今天冰岛数千抗议者围住政府大楼，要求首相辞职。冰岛是民主国家领导层中目前丑闻最大的：1.首相当选后公开财产前，将自己公司以1美元卖给合作伙伴，该伙伴后来成为他太太。2.该公司在冰岛三家银行的财务困境中受损失，他作为首相批准用国家资金救这几家银行。<br><img src="http://ww1.sinaimg.cn/large/56fc0caajw1f2llfimd66j20pf0eiq7s.jpg"></p>
 <p>
 	<small> ============== 6小时前</small>
 </p>
