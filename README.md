@@ -37,15 +37,33 @@
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3960899704076230" target="freeweibo-mirror">SPAM 回复@sdvina:现在不还是一个迷，或者说谎言[…</a>
+</h2>
+<p>SPAM 回复@sdvina:现在不还是一个迷，或者说谎言[哈哈]//@sdvina:回复@不沉默的大多数:跟当年不厚那事，也是一开始留言，之后呢<br><br>RE: 别人洗钱，环球洗地。<br><img src="http://ww3.sinaimg.cn/large/006qs7WMjw1f2lo3bnd5jj30q90cyn0f.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3960898765303912" target="freeweibo-mirror">SPAM 风云诡谲的皇马更衣室失控究竟为何？看齐大内如何在更…</a>
 </h2>
 <p>SPAM 风云诡谲的皇马更衣室失控究竟为何？看齐大内如何在更衣室训诫球员，J罗为何打不开更衣室门？点击视频#揭秘神奇的皇马更衣室#，看完视频更有机会#赢西班牙皇马之旅#： 【http://t.cn/RqUXNcK】 【http://t.cn/RqUXNco  】</p>
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3960898408756539" target="freeweibo-mirror">回复@sdvina:传播的应该是真相，而不是流言和谣言。流言…</a>
+</h2>
+<p>回复@sdvina:传播的应该是真相，而不是流言和谣言。流言当做新闻，违背新闻道德，要承担法律责任。不过，西方媒体也就是一家公司，搞生意无所谓信誉。//@sdvina:回复@不沉默的大多数:既然是流言，封锁消息算怎么回事，算心虚么<br><br>RE: 别人洗钱，环球洗地。<br><img src="http://ww3.sinaimg.cn/large/006qs7WMjw1f2lo3bnd5jj30q90cyn0f.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3960895896387265" target="freeweibo-mirror">SPAM 大家明白没~</a>
 </h2>
 <p>SPAM 大家明白没~<br><img src="http://ww2.sinaimg.cn/large/7d6d0409gw1f2lrpyf5awj20cq07idgt.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3960892088013923" target="freeweibo-mirror">能泄露知名律师事务所1100万份文件确实非等闲之辈，看都来不…</a>
+</h2>
+<p>能泄露知名律师事务所1100万份文件确实非等闲之辈，看都来不及，更别说每份辨别正假了。这种非法获取的证据在法律上好像没意义，媒体仅凭电脑文件做调查依据，也不严谨。这事好像无法定义为法律或新闻事件，只能归于一种比较高级的流言。<br><br>RE: 别人洗钱，环球洗地。<br><img src="http://ww3.sinaimg.cn/large/006qs7WMjw1f2lo3bnd5jj30q90cyn0f.jpg"></p>
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
@@ -89,7 +107,7 @@
 </h2>
 <p>据说中国那个啥，，呵呵，反正现在被屏蔽了。。权贵们转移资产，掏空国家，我们还在梦中哩。。。<br><br>RE: 【“巴拿马文件”披露多国政要相关离岸资产】- 基于巴拿马一家律所外泄文件的媒体报道披露了一些全球重要人物相关离岸账户的详细情况，此事在俄罗斯、冰岛等国引起巨大反响，并促使美国、英国及其他国家政府展开相关调查。泄露出的这数百万份文件详细记录了全球140名公众人物、企业高管及名人所持有的...全文： http://m.weibo.cn/1649159940/3960857962436587<br><img src="http://ww1.sinaimg.cn/large/624c2f04jw1f2lnccbajsj20fd0a9gn7.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3960857962436587" target="freeweibo-mirror">【“巴拿马文件”披露多国政要相关离岸资产】- 基于巴拿马一家…</a>
 </h2>
@@ -118,24 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3960849968902363" target="freeweibo-mirror">全世界，除了社会主义国家，都是头版头条啊。。绝对是CIA,J…</a>
 </h2>
 <p>全世界，除了社会主义国家，都是头版头条啊。。绝对是CIA,James Bond的超级大阴谋。。造谣啊[怒][怒]//@陈朝晖: 多大点事情就闹成这样。。//@嘲笑鸟之Mockingjay: 这是CIA主导的全球性阴谋呗。。[怒][怒]//@左春和: //@凌杰长沙030://@星雨_辰风-70://@朝歌100军-长: //@静娅_: 转发微博<br><br>RE: 巴XX文件第一个受影响国家出现：冰岛。今天冰岛数千抗议者围住政府大楼，要求首相辞职。冰岛是民主国家领导层中目前丑闻最大的：1.首相当选后公开财产前，将自己公司以1美元卖给合作伙伴，该伙伴后来成为他太太。2.该公司在冰岛三家银行的财务困境中受损失，他作为首相批准用国家资金救这几家银行。<br><img src="http://ww1.sinaimg.cn/large/56fc0caajw1f2llfimd66j20pf0eiq7s.jpg"></p>
-<p>
-	<small> ============== 6小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3960848974469731" target="freeweibo-mirror">不敢！怕失联//@罗昌平: 谁是第二个？//@王天定:信息引…</a>
-</h2>
-<p>不敢！怕失联//@罗昌平: 谁是第二个？//@王天定:信息引发社会运动的机制是什么？为什么首先在冰岛而不是别的国家如俄罗斯？<br><br>RE: 巴XX文件第一个受影响国家出现：冰岛。今天冰岛数千抗议者围住政府大楼，要求首相辞职。冰岛是民主国家领导层中目前丑闻最大的：1.首相当选后公开财产前，将自己公司以1美元卖给合作伙伴，该伙伴后来成为他太太。2.该公司在冰岛三家银行的财务困境中受损失，他作为首相批准用国家资金救这几家银行。<br><img src="http://ww1.sinaimg.cn/large/56fc0caajw1f2llfimd66j20pf0eiq7s.jpg"></p>
-<p>
-	<small> ============== 6小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3960848697473315" target="freeweibo-mirror">这是CIA主导的全球性阴谋呗。。[怒][怒]//@左春和: …</a>
-</h2>
-<p>这是CIA主导的全球性阴谋呗。。[怒][怒]//@左春和: //@凌杰长沙030://@星雨_辰风-70://@朝歌100军-长: //@静娅_: 转发微博<br><br>RE: 巴XX文件第一个受影响国家出现：冰岛。今天冰岛数千抗议者围住政府大楼，要求首相辞职。冰岛是民主国家领导层中目前丑闻最大的：1.首相当选后公开财产前，将自己公司以1美元卖给合作伙伴，该伙伴后来成为他太太。2.该公司在冰岛三家银行的财务困境中受损失，他作为首相批准用国家资金救这几家银行。<br><img src="http://ww1.sinaimg.cn/large/56fc0caajw1f2llfimd66j20pf0eiq7s.jpg"></p>
-<p>
-	<small> ============== 6小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3960845543441523" target="freeweibo-mirror">情绪稳定，这一方面这届人民很行。 //@好火药:大陆呢？//…</a>
-</h2>
-<p>情绪稳定，这一方面这届人民很行。 //@好火药:大陆呢？//@破破的桥: 另一个可能明显受影响的民主国家是乌克兰，涉及总统波罗申科，不过程度相比冰岛要轻一些。<br><br>RE: 巴XX文件第一个受影响国家出现：冰岛。今天冰岛数千抗议者围住政府大楼，要求首相辞职。冰岛是民主国家领导层中目前丑闻最大的：1.首相当选后公开财产前，将自己公司以1美元卖给合作伙伴，该伙伴后来成为他太太。2.该公司在冰岛三家银行的财务困境中受损失，他作为首相批准用国家资金救这几家银行。<br><img src="http://ww1.sinaimg.cn/large/56fc0caajw1f2llfimd66j20pf0eiq7s.jpg"></p>
 <p>
 	<small> ============== 6小时前</small>
 </p>
