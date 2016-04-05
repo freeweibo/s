@@ -35,7 +35,7 @@
 </h2>
 <p>//@岳阳楼主:也许是个招数，赶紧弱化赶紧转移视线，，，//@龙潭百合: 转发微博<br><br>RE: 放出郭老虎也挡不住巴拿马的水[偷笑]</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3961020676393320" target="freeweibo-mirror">吓死宝宝了//@司马平邦: 图文不配啊。</a>
 </h2>
@@ -101,7 +101,7 @@
 </h2>
 <p>中国权贵设离岸公司隐藏巨额财富<br><img src="http://ww1.sinaimg.cn/large/006qhcCSjw1f2lwouj8cqj30k068yqv5.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3960929546151090" target="freeweibo-mirror">【巴拿马文件：泄密引发全球调查】媒体获取由法律咨询公司“MO…</a>
 </h2>
