@@ -35,7 +35,7 @@
 </h2>
 <p>SPAM //@浴过天情://@木子童童姐: //@宅友商城-蒲正波:难怪官财公开那么难。<br><br>RE: #巴拿馬#<br><img src="http://ww3.sinaimg.cn/large/7ee3e7cbjw1f2kpuxdcbgj20hs0vmtbj.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3960692853767910" target="freeweibo-mirror">//@黃驛强://@张佳珅v://@一只博://@曾家山-居…</a>
 </h2>
@@ -125,7 +125,7 @@
 </h2>
 <p>SPAM 哇！原来你就是那位祛痘大神 @Skin-Hong [赞]</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3960639502141187" target="freeweibo-mirror">SPAM 给一个时评大赛当评委，晚上审稿，我的一些点评语：1…</a>
 </h2>
