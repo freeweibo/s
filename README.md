@@ -83,7 +83,7 @@
 </h2>
 <p>//@陈光武律师: //@崔小平律师: 转发微博<br><br>RE: 【刘李小琳】前总理之女、要给中国老百姓建立道德档案的电力一姐居然还有冠夫姓的香港护照？ http://t.cn/R2WJKVA<br><img src="http://ww3.sinaimg.cn/large/d4050bc4jw1f2m12jmnw9j20k00buwfz.jpg"></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3961021897060187" target="freeweibo-mirror">伊斯兰教最近越来越显得激进，不遵守普世价值，不遵守党纪国法，…</a>
 </h2>
@@ -107,7 +107,7 @@
 </h2>
 <p>#教育与宗教相分离#某些地方政府大力兴办阿语学校，许多阿语学校实际上就是传播伊斯兰宗教的学校。张家川阿语学校毕业典礼演讲中，班主任公开宣称，学生在学校“学到了最完美的宗教信仰一伊斯兰信仰。”http://t.cn/RqUFE7i<br><img src="http://ww4.sinaimg.cn/large/55f6f027jw1f2m4xh8jvtj20qo1bggtx.jpg"></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3961007455953180" target="freeweibo-mirror">博主是要说香港不是中国，还是企业高管不能和港人通婚？</a>
 </h2>
