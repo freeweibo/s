@@ -137,7 +137,7 @@
 </h2>
 <p>SPAM 神马节奏？ //@荷宝荣:外媒瞎说，我不信喜大大会干这事。 //@1024专员:巴拿马<br><br>RE: 大撒B,马拉个币！<br><img src="http://ww1.sinaimg.cn/large/006iVbLFgw1f2kpwpbcesj30k00mln1l.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p>
 <table>
     <tr>
