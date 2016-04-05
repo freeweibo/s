@@ -25,6 +25,12 @@
 <p>
 	<small> ============== 1小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3960957573316693" target="freeweibo-mirror">//@传承中华文化:欲盖弥彰！</a>
+</h2>
+<p>//@传承中华文化:欲盖弥彰！<br><br>RE: 【看一看“巴拿马文件”曝光之后各方的反应】各国政府严明彻查（不包括中国政府）！梅西赶紧声明否认！但是：在赤朝，开始封锁了！百度搜不到了，环球叼飞盘了，各大“官媒党媒”也和环球一样叼盘了......但是：这个事是绕不过去的！以赤朝“媒体”的反应来推测：巴拿马文件反应的中国相关内容是真的！<br><img src="http://ww3.sinaimg.cn/large/a505f3a9jw1f2ltcd0ie1j20hs0vk0wh.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3960914862368112" target="freeweibo-mirror">我刚刚转发的@早报网 的微博就被删了，再看@早报网 的原博也…</a>
 </h2>
 <p>我刚刚转发的@早报网 的微博就被删了，再看@早报网 的原博也不见了。//@铁哥日记718: 删了就真干净了！[阴险]//@公民面包: 五毛们又有奖金可领了。[嘻嘻]//@王亚东522://@在纳税的人://@加E菲炮1314Cat:[嘻嘻]<br><br>RE: 注意了！最高指示来了！<br><img src="http://ww4.sinaimg.cn/large/b4211a74gw1f2lrjj35bxj20cq07idgp.jpg"></p>
@@ -65,7 +71,7 @@
 </h2>
 <p>SPAM 大家明白没~<br><img src="http://ww2.sinaimg.cn/large/7d6d0409gw1f2lrpyf5awj20cq07idgt.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3960892088013923" target="freeweibo-mirror">能泄露知名律师事务所1100万份文件确实非等闲之辈，看都来不…</a>
 </h2>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3960856082943149" target="freeweibo-mirror">[哆啦A梦吃惊][哆啦A梦吃惊]环球果然有</a>
 </h2>
 <p>[哆啦A梦吃惊][哆啦A梦吃惊]环球果然有<br><img src="http://ww4.sinaimg.cn/large/694c5670jw1f2ln55277gj20m80b5ju4.jpg"></p>
-<p>
-	<small> ============== 8小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3960851788517214" target="freeweibo-mirror">//@瘦驼: 冰岛，电话号码簿上可以查到总理宅电的国家。</a>
-</h2>
-<p>//@瘦驼: 冰岛，电话号码簿上可以查到总理宅电的国家。<br><br>RE: 巴XX文件第一个受影响国家出现：冰岛。今天冰岛数千抗议者围住政府大楼，要求首相辞职。冰岛是民主国家领导层中目前丑闻最大的：1.首相当选后公开财产前，将自己公司以1美元卖给合作伙伴，该伙伴后来成为他太太。2.该公司在冰岛三家银行的财务困境中受损失，他作为首相批准用国家资金救这几家银行。<br><img src="http://ww1.sinaimg.cn/large/56fc0caajw1f2llfimd66j20pf0eiq7s.jpg"></p>
 <p>
 	<small> ============== 8小时前</small>
 </p>
