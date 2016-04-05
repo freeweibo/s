@@ -43,6 +43,12 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3960956365060041" target="freeweibo-mirror">这公司广告做得，土豪们见面问:你上了巴拿马名单吗？没上都不好…</a>
+</h2>
+<p>这公司广告做得，土豪们见面问:你上了巴拿马名单吗？没上都不好意思。[偷笑]这种捕风捉影 牵强附会的指控，只会给那些本来的私利披上合法的外衣。<br><br>RE: 【巴拿马文件：泄密引发全球调查】媒体获取由法律咨询公司“MOSSACK FONSECA”泄露的超过1100万份文件。这些文件揭露了该公司如何帮助部分客户参与洗钱，逃避监管以及偷税漏税。这些文件涉及到12为各国现任或前任领导人，以及至少60位与他们有特殊关系的人员。http://t.cn/RqUYlNq (译者largeuncle)<br><img src="http://ww2.sinaimg.cn/large/61e36de1jw1f2lvkz6tz6j20ic0ab0t8.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3960925897804690" target="freeweibo-mirror">不明白香港的现实状况，但这预告片里面提到的各种未来的假想，只…</a>
 </h2>
 <p>不明白香港的现实状况，但这预告片里面提到的各种未来的假想，只觉得是在无端挑事发牢骚。拿着什么广东话和本地的词语来钻牛角尖，有种别觉得自己比内地屌，满大街的对内地人的歧视没人管就是尊严和自由。<br><br>RE: 香港电影《十年》预告片http://t.cn/Rb1ov9T</p>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3960869123586147" target="freeweibo-mirror">SPAM //@冰海雪涛44: //@余渔yu://@凉开水…</a>
 </h2>
 <p>SPAM //@冰海雪涛44: //@余渔yu://@凉开水V泡茶://@蹙溪羽仙: //@星雨_辰风-70://@孔智勇_: //@傅强家园16: 诡异，在环球网上却没能看到这篇文章。<br><br>RE: 别人洗钱，环球洗地。<br><img src="http://ww3.sinaimg.cn/large/006qs7WMjw1f2lo3bnd5jj30q90cyn0f.jpg"></p>
-<p>
-	<small> ============== 8小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3960864305004077" target="freeweibo-mirror">别人洗钱，环球洗地。</a>
-</h2>
-<p>别人洗钱，环球洗地。<br><img src="http://ww3.sinaimg.cn/large/006qs7WMjw1f2lo3bnd5jj30q90cyn0f.jpg"></p>
 <p>
 	<small> ============== 8小时前</small>
 </p>
