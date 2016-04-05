@@ -107,7 +107,7 @@
 </h2>
 <p>别人洗钱，环球洗地。<br><img src="http://ww3.sinaimg.cn/large/006qs7WMjw1f2lo3bnd5jj30q90cyn0f.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3960860483823346" target="freeweibo-mirror">据说中国那个啥，，呵呵，反正现在被屏蔽了。。权贵们转移资产，…</a>
 </h2>
