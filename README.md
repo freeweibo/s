@@ -49,6 +49,12 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3960929546151090" target="freeweibo-mirror">【巴拿马文件：泄密引发全球调查】媒体获取由法律咨询公司“MO…</a>
+</h2>
+<p>【巴拿马文件：泄密引发全球调查】媒体获取由法律咨询公司“MOSSACK FONSECA”泄露的超过1100万份文件。这些文件揭露了该公司如何帮助部分客户参与洗钱，逃避监管以及偷税漏税。这些文件涉及到12为各国现任或前任领导人，以及至少60位与他们有特殊关系的人员。http://t.cn/RqUYlNq (译者largeuncle)<br><img src="http://ww2.sinaimg.cn/large/61e36de1jw1f2lvkz6tz6j20ic0ab0t8.jpg"></p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3960925897804690" target="freeweibo-mirror">不明白香港的现实状况，但这预告片里面提到的各种未来的假想，只…</a>
 </h2>
 <p>不明白香港的现实状况，但这预告片里面提到的各种未来的假想，只觉得是在无端挑事发牢骚。拿着什么广东话和本地的词语来钻牛角尖，有种别觉得自己比内地屌，满大街的对内地人的歧视没人管就是尊严和自由。<br><br>RE: 香港电影《十年》预告片http://t.cn/Rb1ov9T</p>
@@ -107,7 +113,7 @@
 </h2>
 <p>能泄露知名律师事务所1100万份文件确实非等闲之辈，看都来不及，更别说每份辨别正假了。这种非法获取的证据在法律上好像没意义，媒体仅凭电脑文件做调查依据，也不严谨。这事好像无法定义为法律或新闻事件，只能归于一种比较高级的流言。<br><br>RE: 别人洗钱，环球洗地。<br><img src="http://ww3.sinaimg.cn/large/006qs7WMjw1f2lo3bnd5jj30q90cyn0f.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3960888510271659" target="freeweibo-mirror">呵呵//@北京厨子新号:这就开始了。呵呵。中国人民好可怜。唉…</a>
 </h2>
@@ -125,17 +131,11 @@
 </h2>
 <p>SPAM //@孔智勇_: 暴风雨席卷全球。。//@郁青百年://@谢文://@李鸿文在深圳: 全世界的统治者团结起来。。。//@小菜第四俗://@冰克尔://@好火药: 都炸开锅了，就只有大陆现在很平静。//@米兰马蒂尼://@疯癫的尼采: 商人利用离岸合理避税很正常，但是那些高官避税的钱是哪里来的？<br><br>RE: 分享图片<br><img src="http://ww3.sinaimg.cn/large/88890b6egw1f2liz17pzrj20ku112ado.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3960875235115959" target="freeweibo-mirror">//@我是你心中的一枚小太阳: //@糜新元:不要轻信谣言，…</a>
 </h2>
 <p>//@我是你心中的一枚小太阳: //@糜新元:不要轻信谣言，一定要相信中纪委岐山书记，相信习总！[思考]<br><br>RE: 【“巴拿马文件”披露多国政要相关离岸资产】- 基于巴拿马一家律所外泄文件的媒体报道披露了一些全球重要人物相关离岸账户的详细情况，此事在俄罗斯、冰岛等国引起巨大反响，并促使美国、英国及其他国家政府展开相关调查。泄露出的这数百万份文件详细记录了全球140名公众人物、企业高管及名人所持有的...全文： http://m.weibo.cn/1649159940/3960857962436587<br><img src="http://ww1.sinaimg.cn/large/624c2f04jw1f2lnccbajsj20fd0a9gn7.jpg"></p>
-<p>
-	<small> ============== 8小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3960869123586147" target="freeweibo-mirror">SPAM //@冰海雪涛44: //@余渔yu://@凉开水…</a>
-</h2>
-<p>SPAM //@冰海雪涛44: //@余渔yu://@凉开水V泡茶://@蹙溪羽仙: //@星雨_辰风-70://@孔智勇_: //@傅强家园16: 诡异，在环球网上却没能看到这篇文章。<br><br>RE: 别人洗钱，环球洗地。<br><img src="http://ww3.sinaimg.cn/large/006qs7WMjw1f2lo3bnd5jj30q90cyn0f.jpg"></p>
 <p>
 	<small> ============== 8小时前</small>
 </p>
