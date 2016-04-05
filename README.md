@@ -29,13 +29,13 @@
 </h2>
 <p>//@福州很多事://@瞽聋: //@禾厶享宀: [话筒][围观][话筒][话筒]//@世上没有不倒的高牆7: //@波波安并不乖:转发微博<br><br>RE: 今天全球最大的新闻。国内毫无动静，微博被屏蔽。<br><img src="http://ww4.sinaimg.cn/large/6764cadegw1f2l0ubu3y6j20k0av1b2c.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3960808751061540" target="freeweibo-mirror">SPAM //@沙棘花儿:巴拿马//@王周生:忽然，ba n…</a>
 </h2>
 <p>SPAM //@沙棘花儿:巴拿马//@王周生:忽然，ba na ma成敏感词了。<br><br>RE: 今天全球最大的新闻。国内毫无动静，微博被屏蔽。<br><img src="http://ww4.sinaimg.cn/large/6764cadegw1f2l0ubu3y6j20k0av1b2c.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3960802379847069" target="freeweibo-mirror">SPAM 哼~典型的不想解决问题，却要想办法把提出问题的人解…</a>
 </h2>
@@ -137,7 +137,7 @@
 </h2>
 <p>SPAM //@许开祯:神马节奏？ //@荷宝荣:外媒瞎说，我不信喜大大会干这事。 //@1024专员:巴拿马<br><br>RE: 大撒B,马拉个币！<br><img src="http://ww1.sinaimg.cn/large/006iVbLFgw1f2kpwpbcesj30k00mln1l.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p>
 <table>
     <tr>
