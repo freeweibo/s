@@ -59,7 +59,13 @@
 </h2>
 <p>恶心的真相？//@FT中文网: 巴拿马顶级律所之一莫萨克•冯赛卡律所的大规模数据泄露，以及有关巴拿马帮助全球政客、体育明星和艺人隐匿数十亿美元资产的报道，将测试其抵制全球推动透明度的决心。<br><br>RE: 【数据泄露事件让全球聚焦巴拿马】这个唯一拒绝遵从新的国际透明法规的离岸金融中心将会因此承受巨大国际压力。http://t.cn/RqUbZga<br><img src="http://ww4.sinaimg.cn/large/6538fd8cjw1f2lh4is70nj20go09eaba.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3960856082943149" target="freeweibo-mirror">[哆啦A梦吃惊][哆啦A梦吃惊]环球果然有</a>
+</h2>
+<p>[哆啦A梦吃惊][哆啦A梦吃惊]环球果然有<br><img src="http://ww4.sinaimg.cn/large/694c5670jw1f2ln55277gj20m80b5ju4.jpg"></p>
+<p>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3960851788517214" target="freeweibo-mirror">//@瘦驼: 冰岛，电话号码簿上可以查到总理宅电的国家。</a>
 </h2>
@@ -132,12 +138,6 @@
 <p>右边说的是李小琳爷爷牺牲了，所以他孙女就有权享受奢侈生活吧？//@armchairson: 没有革命烈士的牺牲，就没有你们现在的奢侈生活//@书生意气:如果说不出这家BVI公司有多大资产那就说明不了什么问题 //@喷嚏网铂程:一派胡言[偷笑]<br><br>RE: 李小琳及其丈夫刘智源拥有某基金，某基金全资拥有某BVI公司，该BVI公司系李父担任中国总理期间注册成立。夫妻二人的瑞士律师称这间BVI公司的资金来源系帮助其他客户从欧洲向中国出口重型机械的业务利润。李的香港特区护照显示其姓名为“刘李小琳”，这使得把李与总理联系起来更加困难。<br><img src="http://ww1.sinaimg.cn/large/4b7d5019jw1f2kw7tictfj20k00zkn2h.jpg"></p>
 <p>
 	<small> ============== 7小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3960809216196129" target="freeweibo-mirror">//@福州很多事://@瞽聋: //@禾厶享宀: [话筒][…</a>
-</h2>
-<p>//@福州很多事://@瞽聋: //@禾厶享宀: [话筒][围观][话筒][话筒]//@世上没有不倒的高牆7: //@波波安并不乖:转发微博<br><br>RE: 今天全球最大的新闻。国内毫无动静，微博被屏蔽。<br><img src="http://ww4.sinaimg.cn/large/6764cadegw1f2l0ubu3y6j20k0av1b2c.jpg"></p>
-<p>
-	<small> ============== 8小时前</small>
 </p>
 <table>
     <tr>
