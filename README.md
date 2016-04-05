@@ -107,7 +107,7 @@
 </h2>
 <p>[哆啦A梦吃惊][哆啦A梦吃惊]环球果然有<br><img src="http://ww4.sinaimg.cn/large/694c5670jw1f2ln55277gj20m80b5ju4.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3960851788517214" target="freeweibo-mirror">//@瘦驼: 冰岛，电话号码簿上可以查到总理宅电的国家。</a>
 </h2>
