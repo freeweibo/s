@@ -23,7 +23,7 @@
 </h2>
 <p>SPAM //@沙棘花儿:巴拿马//@王周生:忽然，ba na ma成敏感词了。<br><br>RE: 今天全球最大的新闻。国内毫无动静，微博被屏蔽。<br><img src="http://ww4.sinaimg.cn/large/6764cadegw1f2l0ubu3y6j20k0av1b2c.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3960802379847069" target="freeweibo-mirror">SPAM 哼~典型的不想解决问题，却要想办法把提出问题的人解…</a>
 </h2>
@@ -137,7 +137,7 @@
 </h2>
 <p>号外，截屏的速度，机不可失！</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p>
 <table>
     <tr>
