@@ -41,7 +41,7 @@
 </h2>
 <p>SPAM //@CHINA-蒼龖_上下5000年:走的是捷径吧，有方便利谁不去占。[思考] //@相面知心:成龙乱入<br><br>RE: 分享图片<br><img src="http://ww3.sinaimg.cn/large/88890b6egw1f2liz17pzrj20ku112ado.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3960876816062995" target="freeweibo-mirror">SPAM //@孔智勇_: 暴风雨席卷全球。。//@郁青百年…</a>
 </h2>
@@ -101,7 +101,7 @@
 </h2>
 <p>这是CIA主导的全球性阴谋呗。。[怒][怒]//@左春和: //@凌杰长沙030://@星雨_辰风-70://@朝歌100军-长: //@静娅_: 转发微博<br><br>RE: 巴XX文件第一个受影响国家出现：冰岛。今天冰岛数千抗议者围住政府大楼，要求首相辞职。冰岛是民主国家领导层中目前丑闻最大的：1.首相当选后公开财产前，将自己公司以1美元卖给合作伙伴，该伙伴后来成为他太太。2.该公司在冰岛三家银行的财务困境中受损失，他作为首相批准用国家资金救这几家银行。<br><img src="http://ww1.sinaimg.cn/large/56fc0caajw1f2llfimd66j20pf0eiq7s.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3960845543441523" target="freeweibo-mirror">情绪稳定，这一方面这届人民很行。 //@好火药:大陆呢？//…</a>
 </h2>
