@@ -47,7 +47,7 @@
 </h2>
 <p>//@刑事案件被害人:???//@论称分金: //@宇宙微力学://@时光老人_33500://@太平金黄鱼: //@朱令是谁:转发微博<br><br>RE: 公开信，谷歌天网，3千亿。如果3千亿美元不能收买，谷歌天网必将全面覆盖。如果谷歌天网全面覆盖，任何公开信都将被广泛传播。历史反复证明，执意闭关锁国，要么被船坚炮利轰开，要么被科技发展冲破。</p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3960685702381791" target="freeweibo-mirror">//@追唐-如东李忠: 转发微博</a>
 </h2>
@@ -95,7 +95,7 @@
 </h2>
 <p>同一手法。#时代周刊##经济学人#<br><img src="http://ww2.sinaimg.cn/large/62b7e287gw1f2l0anekb0j20k00qo77z.jpg"></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3960652647678108" target="freeweibo-mirror">SPAM 神马节奏？ //@荷宝荣:外媒瞎说，我不信喜大大会…</a>
 </h2>
@@ -125,7 +125,7 @@
 </h2>
 <p>SPAM 哇！原来你就是那位祛痘大神 @Skin-Hong [赞]</p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3960639502141187" target="freeweibo-mirror">SPAM 给一个时评大赛当评委，晚上审稿，我的一些点评语：1…</a>
 </h2>
