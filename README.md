@@ -53,7 +53,7 @@
 </h2>
 <p>恶心的真相？//@FT中文网: 巴拿马顶级律所之一莫萨克•冯赛卡律所的大规模数据泄露，以及有关巴拿马帮助全球政客、体育明星和艺人隐匿数十亿美元资产的报道，将测试其抵制全球推动透明度的决心。<br><br>RE: 【数据泄露事件让全球聚焦巴拿马】这个唯一拒绝遵从新的国际透明法规的离岸金融中心将会因此承受巨大国际压力。http://t.cn/RqUbZga<br><img src="http://ww4.sinaimg.cn/large/6538fd8cjw1f2lh4is70nj20go09eaba.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3960851788517214" target="freeweibo-mirror">//@瘦驼: 冰岛，电话号码簿上可以查到总理宅电的国家。</a>
 </h2>
