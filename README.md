@@ -43,6 +43,12 @@
 <p>
 	<small> ============== 5小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3960910059836613" target="freeweibo-mirror">【看一看“巴拿马文件”曝光之后各方的反应】各国政府严明彻查（…</a>
+</h2>
+<p>【看一看“巴拿马文件”曝光之后各方的反应】各国政府严明彻查（不包括中国政府）！梅西赶紧声明否认！但是：在赤朝，开始封锁了！百度搜不到了，环球叼飞盘了，各大“官媒党媒”也和环球一样叼盘了......但是：这个事是绕不过去的！以赤朝“媒体”的反应来推测：巴拿马文件反应的中国相关内容是真的！<br><img src="http://ww3.sinaimg.cn/large/a505f3a9jw1f2ltcd0ie1j20hs0vk0wh.jpg"></p>
+<p>
+	<small> ============== 5小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3960903264678046" target="freeweibo-mirror">SPAM 英语不会，但是，这三个人我都知道。//@曾过眼: …</a>
 </h2>
 <p>SPAM 英语不会，但是，这三个人我都知道。//@曾过眼: 我就认识梅西</p>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3960857962436587" target="freeweibo-mirror">【“巴拿马文件”披露多国政要相关离岸资产】- 基于巴拿马一家…</a>
 </h2>
 <p>【“巴拿马文件”披露多国政要相关离岸资产】- 基于巴拿马一家律所外泄文件的媒体报道披露了一些全球重要人物相关离岸账户的详细情况，此事在俄罗斯、冰岛等国引起巨大反响，并促使美国、英国及其他国家政府展开相关调查。泄露出的这数百万份文件详细记录了全球140名公众人物、企业高管及名人所持有的...全文： http://m.weibo.cn/1649159940/3960857962436587<br><img src="http://ww1.sinaimg.cn/large/624c2f04jw1f2lnccbajsj20fd0a9gn7.jpg"></p>
-<p>
-	<small> ============== 8小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3960857627266759" target="freeweibo-mirror">恶心的真相？//@FT中文网: 巴拿马顶级律所之一莫萨克•冯…</a>
-</h2>
-<p>恶心的真相？//@FT中文网: 巴拿马顶级律所之一莫萨克•冯赛卡律所的大规模数据泄露，以及有关巴拿马帮助全球政客、体育明星和艺人隐匿数十亿美元资产的报道，将测试其抵制全球推动透明度的决心。<br><br>RE: 【数据泄露事件让全球聚焦巴拿马】这个唯一拒绝遵从新的国际透明法规的离岸金融中心将会因此承受巨大国际压力。http://t.cn/RqUbZga<br><img src="http://ww4.sinaimg.cn/large/6538fd8cjw1f2lh4is70nj20go09eaba.jpg"></p>
 <p>
 	<small> ============== 8小时前</small>
 </p>
