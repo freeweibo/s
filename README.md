@@ -19,6 +19,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3961047147045847" target="freeweibo-mirror">SPAM [哈哈][哈哈] //@福州很多事:[哈哈]//@…</a>
+</h2>
+<p>SPAM [哈哈][哈哈] //@福州很多事:[哈哈]//@莫志谨: //@西安黑白无常之黑无常://@没事不加V-: //@蛋疼的李帅_79104://@佛山的同学://@终南山人的天空1://@公民-不服从: //@banzhsh://@楽楽将--: //@工厂仅1位:[哈哈]//@小小疯小小:比鸟儿姐姐写得好[笑哈哈]//@美裙百灵鸟儿:[哈哈][赞]<br><br>RE: 少将军又题词了<br><img src="http://ww2.sinaimg.cn/large/005XJB2mgw1f2lsa3h5kvj30dc08tmxp.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3961044349013480" target="freeweibo-mirror">SPAM 倒行逆施何时休？</a>
 </h2>
 <p>SPAM 倒行逆施何时休？<br><br>RE: 【深圳：失去电动车的人，彻底卑微的存在】很多人还不知道怎么回事，一群执法人员就围了上来，将电动车拖走。甚至有小伙子看到执法人员要没收他的车，竟拿起块大石头主动将自己车砸烂，并称“自己砸了也不交给土匪”。汽车事故致死人数比电动车多得多，那咋不把汽车禁了？菜刀呢？http://t.cn/RqUxFJO<br><img src="http://ww2.sinaimg.cn/large/a5242872jw1f2lnzcvpdjj2069066glz.jpg"></p>
@@ -29,7 +35,7 @@
 </h2>
 <p>//@夸夸奇谭: 转发微博<br><br>RE: 【深圳：失去电动车的人，彻底卑微的存在】很多人还不知道怎么回事，一群执法人员就围了上来，将电动车拖走。甚至有小伙子看到执法人员要没收他的车，竟拿起块大石头主动将自己车砸烂，并称“自己砸了也不交给土匪”。汽车事故致死人数比电动车多得多，那咋不把汽车禁了？菜刀呢？http://t.cn/RqUxFJO<br><img src="http://ww2.sinaimg.cn/large/a5242872jw1f2lnzcvpdjj2069066glz.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3961033976967881" target="freeweibo-mirror">//@上海殷慧芬: //@王周生:转发微博</a>
 </h2>
@@ -132,12 +138,6 @@
 <p>這地咋洗？難倒包子智囊团！<br><img src="http://ww4.sinaimg.cn/large/006qcQoDjw1f2m2j8m146j30hs0m3n0t.jpg"></p>
 <p>
 	<small> ============== 6小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3960977312058893" target="freeweibo-mirror">【刘李小琳】前总理之女、要给中国老百姓建立道德档案的电力一姐…</a>
-</h2>
-<p>【刘李小琳】前总理之女、要给中国老百姓建立道德档案的电力一姐居然还有冠夫姓的香港护照？ http://t.cn/R2WJKVA<br><img src="http://ww3.sinaimg.cn/large/d4050bc4jw1f2m12jmnw9j20k00buwfz.jpg"></p>
-<p>
-	<small> ============== 7小时前</small>
 </p>
 <table>
     <tr>
