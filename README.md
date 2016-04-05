@@ -73,6 +73,12 @@
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3961013327921217" target="freeweibo-mirror">#教育与宗教相分离#某些地方政府大力兴办阿语学校，许多阿语学…</a>
+</h2>
+<p>#教育与宗教相分离#某些地方政府大力兴办阿语学校，许多阿语学校实际上就是传播伊斯兰宗教的学校。张家川阿语学校毕业典礼演讲中，班主任公开宣称，学生在学校“学到了最完美的宗教信仰一伊斯兰信仰。”http://t.cn/RqUFE7i<br><img src="http://ww4.sinaimg.cn/large/55f6f027jw1f2m4xh8jvtj20qo1bggtx.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3961006273411285" target="freeweibo-mirror">大家注意到没？这次 Panama文件中，备受“环球时报”调侃…</a>
 </h2>
 <p>大家注意到没？这次 Panama文件中，备受“环球时报”调侃的美国和日本的政府官员或前官员一个也没有，台湾的政治人物也没有，倒是经常受到“环球时报”推崇的普京大帝脱不了干系，@环球时报  这次怎么自圆其说？<br><img src="http://ww3.sinaimg.cn/large/9154fba0jw1f2m4earfexj20u00k0n0k.jpg"></p>
@@ -94,6 +100,12 @@
 	<a href="https://freeweibo.com/weibo/3960993065749377" target="freeweibo-mirror">郭伯雄涉嫌受贿犯罪案已移送审查起诉  http://t.cn…</a>
 </h2>
 <p>郭伯雄涉嫌受贿犯罪案已移送审查起诉  http://t.cn/RqU3SFN<br><img src="http://ww1.sinaimg.cn/large/006kBVzvgw1f2m2ubv08gj30r9158qdh.jpg"></p>
+<p>
+	<small> ============== 5小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3960990137963136" target="freeweibo-mirror">這地咋洗？難倒包子智囊团！</a>
+</h2>
+<p>這地咋洗？難倒包子智囊团！<br><img src="http://ww4.sinaimg.cn/large/006qcQoDjw1f2m2j8m146j30hs0m3n0t.jpg"></p>
 <p>
 	<small> ============== 5小时前</small>
 </p><h2>
@@ -124,18 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3960963050721903" target="freeweibo-mirror">SPAM 马//@关岛邮局:先马再看，后面更精彩。</a>
 </h2>
 <p>SPAM 马//@关岛邮局:先马再看，后面更精彩。</p>
-<p>
-	<small> ============== 7小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3960957573316693" target="freeweibo-mirror">//@传承中华文化:欲盖弥彰！</a>
-</h2>
-<p>//@传承中华文化:欲盖弥彰！<br><br>RE: 【看一看“巴拿马文件”曝光之后各方的反应】各国政府严明彻查（不包括中国政府）！梅西赶紧声明否认！但是：在赤朝，开始封锁了！百度搜不到了，环球叼飞盘了，各大“官媒党媒”也和环球一样叼盘了......但是：这个事是绕不过去的！以赤朝“媒体”的反应来推测：巴拿马文件反应的中国相关内容是真的！<br><img src="http://ww3.sinaimg.cn/large/a505f3a9jw1f2ltcd0ie1j20hs0vk0wh.jpg"></p>
-<p>
-	<small> ============== 7小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3960956365060041" target="freeweibo-mirror">这公司广告做得，土豪们见面问:你上了巴拿马名单吗？没上都不好…</a>
-</h2>
-<p>这公司广告做得，土豪们见面问:你上了巴拿马名单吗？没上都不好意思。[偷笑]这种捕风捉影 牵强附会的指控，只会给那些本来的私利披上合法的外衣。<br><br>RE: 【巴拿马文件：泄密引发全球调查】媒体获取由法律咨询公司“MOSSACK FONSECA”泄露的超过1100万份文件。这些文件揭露了该公司如何帮助部分客户参与洗钱，逃避监管以及偷税漏税。这些文件涉及到12为各国现任或前任领导人，以及至少60位与他们有特殊关系的人员。http://t.cn/RqUYlNq (译者largeuncle)<br><img src="http://ww2.sinaimg.cn/large/61e36de1jw1f2lvkz6tz6j20ic0ab0t8.jpg"></p>
 <p>
 	<small> ============== 7小时前</small>
 </p>
