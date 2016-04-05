@@ -19,6 +19,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3960888510271659" target="freeweibo-mirror">呵呵//@北京厨子新号:这就开始了。呵呵。中国人民好可怜。唉…</a>
+</h2>
+<p>呵呵//@北京厨子新号:这就开始了。呵呵。中国人民好可怜。唉。//@天涯赵瑜: 环球时报，这个，这个，总觉得这份报纸是美国人办的。故意破坏中国人的知情权，让中国人愚昧着。//@喷嚏网铂程: 啧啧<br><br>RE: [哆啦A梦吃惊][哆啦A梦吃惊]环球果然有<br><img src="http://ww4.sinaimg.cn/large/694c5670jw1f2ln55277gj20m80b5ju4.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3960878405262649" target="freeweibo-mirror">SPAM //@CHINA-蒼龖_上下5000年:走的是捷径…</a>
 </h2>
 <p>SPAM //@CHINA-蒼龖_上下5000年:走的是捷径吧，有方便利谁不去占。[思考] //@相面知心:成龙乱入<br><br>RE: 分享图片<br><img src="http://ww3.sinaimg.cn/large/88890b6egw1f2liz17pzrj20ku112ado.jpg"></p>
@@ -59,7 +65,7 @@
 </h2>
 <p>//@瘦驼: 冰岛，电话号码簿上可以查到总理宅电的国家。<br><br>RE: 巴XX文件第一个受影响国家出现：冰岛。今天冰岛数千抗议者围住政府大楼，要求首相辞职。冰岛是民主国家领导层中目前丑闻最大的：1.首相当选后公开财产前，将自己公司以1美元卖给合作伙伴，该伙伴后来成为他太太。2.该公司在冰岛三家银行的财务困境中受损失，他作为首相批准用国家资金救这几家银行。<br><img src="http://ww1.sinaimg.cn/large/56fc0caajw1f2llfimd66j20pf0eiq7s.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3960849968902363" target="freeweibo-mirror">全世界，除了社会主义国家，都是头版头条啊。。绝对是CIA,J…</a>
 </h2>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3960809216196129" target="freeweibo-mirror">//@福州很多事://@瞽聋: //@禾厶享宀: [话筒][…</a>
 </h2>
 <p>//@福州很多事://@瞽聋: //@禾厶享宀: [话筒][围观][话筒][话筒]//@世上没有不倒的高牆7: //@波波安并不乖:转发微博<br><br>RE: 今天全球最大的新闻。国内毫无动静，微博被屏蔽。<br><img src="http://ww4.sinaimg.cn/large/6764cadegw1f2l0ubu3y6j20k0av1b2c.jpg"></p>
-<p>
-	<small> ============== 7小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3960808751061540" target="freeweibo-mirror">SPAM //@沙棘花儿:巴拿马//@王周生:忽然，ba n…</a>
-</h2>
-<p>SPAM //@沙棘花儿:巴拿马//@王周生:忽然，ba na ma成敏感词了。<br><br>RE: 今天全球最大的新闻。国内毫无动静，微博被屏蔽。<br><img src="http://ww4.sinaimg.cn/large/6764cadegw1f2l0ubu3y6j20k0av1b2c.jpg"></p>
 <p>
 	<small> ============== 7小时前</small>
 </p>
