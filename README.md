@@ -35,7 +35,7 @@
 </h2>
 <p>普京疑藉亲信 转移资产156亿 「巴拿马文件」揭名人离岸交易 涉瞒财富避税 - 巴拿马有律师行外泄逾千万份文件，揭发逾百政商名人涉及秘密离岸交易，或藉此隐瞒资产及避税。俄罗斯总统普京疑藉亲信转移20亿美元资产。外泄文件来自巴拿马律师行莫萨克冯赛卡…http://t.cn/RqUqDPz<br><img src="http://ww2.sinaimg.cn/large/7260b1bdjw1f2lixso4p3j20go0fwaef.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3960823493927291" target="freeweibo-mirror">右边说的是李小琳爷爷牺牲了，所以他孙女就有权享受奢侈生活吧？…</a>
 </h2>
@@ -47,13 +47,25 @@
 </h2>
 <p>//@福州很多事://@瞽聋: //@禾厶享宀: [话筒][围观][话筒][话筒]//@世上没有不倒的高牆7: //@波波安并不乖:转发微博<br><br>RE: 今天全球最大的新闻。国内毫无动静，微博被屏蔽。<br><img src="http://ww4.sinaimg.cn/large/6764cadegw1f2l0ubu3y6j20k0av1b2c.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3960808751061540" target="freeweibo-mirror">SPAM //@沙棘花儿:巴拿马//@王周生:忽然，ba n…</a>
 </h2>
 <p>SPAM //@沙棘花儿:巴拿马//@王周生:忽然，ba na ma成敏感词了。<br><br>RE: 今天全球最大的新闻。国内毫无动静，微博被屏蔽。<br><img src="http://ww4.sinaimg.cn/large/6764cadegw1f2l0ubu3y6j20k0av1b2c.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3960807995851469" target="freeweibo-mirror">遗臭万年 //@金陵薛冰:人在哪里呢?没有人怎么会有脸?[疑…</a>
+</h2>
+<p>遗臭万年 //@金陵薛冰:人在哪里呢?没有人怎么会有脸?[疑问] //@青岛薛原: //@玉吅: //@来自银河系外的星星：脸在哪里呢？我怎么看不见这个院士的脸？<br><br>RE: ​号称中国「网路防火墙之父」的全国人大代表、中国工程院院士方滨兴，日前演讲时试图以北韩也建设网路防火墙，来辩护网路防火墙的必要。但当他想点开论证其观点的网页，却被阻挡，只好在众目睽睽下翻墙。 http://t.cn/RqySgqp</p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3960806427395838" target="freeweibo-mirror">//@囧途一未来: //@干卫东律师://@荒堂省三://@…</a>
+</h2>
+<p>//@囧途一未来: //@干卫东律师://@荒堂省三://@追唐-如东李忠: //@宪政华夏://@兰色键:转发微博<br><br>RE: 李小琳及其丈夫刘智源拥有某基金，某基金全资拥有某BVI公司，该BVI公司系李父担任中国总理期间注册成立。夫妻二人的瑞士律师称这间BVI公司的资金来源系帮助其他客户从欧洲向中国出口重型机械的业务利润。李的香港特区护照显示其姓名为“刘李小琳”，这使得把李与总理联系起来更加困难。<br><img src="http://ww1.sinaimg.cn/large/4b7d5019jw1f2kw7tictfj20k00zkn2h.jpg"></p>
+<p>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3960802379847069" target="freeweibo-mirror">SPAM 哼~典型的不想解决问题，却要想办法把提出问题的人解…</a>
 </h2>
@@ -124,18 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3960685702381791" target="freeweibo-mirror">//@追唐-如东李忠: 转发微博</a>
 </h2>
 <p>//@追唐-如东李忠: 转发微博</p>
-<p>
-	<small> ============== 12小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3960685610293552" target="freeweibo-mirror">SPAM //@又来金好多://@佛山的同学:[感冒]//@…</a>
-</h2>
-<p>SPAM //@又来金好多://@佛山的同学:[感冒]//@孔智勇_:老花眼了看不清，什么内容？//@梦与天杰:怀疑[喵喵] @崔永元@罗玉凤@当律师的陈刚@孔智勇_@陈茂来-@初八叔叔 //@虫虫儿-微评://@天圆地方3511E://@斯韦爵://@小卖部长十世://@一定要回头啊://@老宁微博://@流浪王子马文彬G: 大家接力！<br><br>RE: 全球政治人物社会名流离岸资金揭密<br><img src="http://ww3.sinaimg.cn/large/006pn8rvjw1f2koeinr6rj30r02um4qp.jpg"></p>
-<p>
-	<small> ============== 12小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3960685136093793" target="freeweibo-mirror">//@眼瞰-: //@上帝a无言17:那么多记者不会合伙造假…</a>
-</h2>
-<p>//@眼瞰-: //@上帝a无言17:那么多记者不会合伙造假污蔑吧//@蓉蓉亿米阳光://@清醒的人AFM:没有不透风的墙。在一个信息时代，欺骗和隐瞒不可能到永远，事实总有一天要见光。//@晨花蜜蜂和钓者: //@我是一只蝼蚁而已: //@hehuanlinzhao:转发微博<br><br>RE: 号外，截屏的速度，机不可失！</p>
 <p>
 	<small> ============== 12小时前</small>
 </p>
