@@ -31,6 +31,12 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3960925897804690" target="freeweibo-mirror">不明白香港的现实状况，但这预告片里面提到的各种未来的假想，只…</a>
+</h2>
+<p>不明白香港的现实状况，但这预告片里面提到的各种未来的假想，只觉得是在无端挑事发牢骚。拿着什么广东话和本地的词语来钻牛角尖，有种别觉得自己比内地屌，满大街的对内地人的歧视没人管就是尊严和自由。<br><br>RE: 香港电影《十年》预告片http://t.cn/Rb1ov9T</p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3960914862368112" target="freeweibo-mirror">我刚刚转发的@早报网 的微博就被删了，再看@早报网 的原博也…</a>
 </h2>
 <p>我刚刚转发的@早报网 的微博就被删了，再看@早报网 的原博也不见了。//@铁哥日记718: 删了就真干净了！[阴险]//@公民面包: 五毛们又有奖金可领了。[嘻嘻]//@王亚东522://@在纳税的人://@加E菲炮1314Cat:[嘻嘻]<br><br>RE: 注意了！最高指示来了！<br><img src="http://ww4.sinaimg.cn/large/b4211a74gw1f2lrjj35bxj20cq07idgp.jpg"></p>
@@ -59,13 +65,13 @@
 </h2>
 <p>SPAM 风云诡谲的皇马更衣室失控究竟为何？看齐大内如何在更衣室训诫球员，J罗为何打不开更衣室门？点击视频#揭秘神奇的皇马更衣室#，看完视频更有机会#赢西班牙皇马之旅#： 【http://t.cn/RqUXNcK】 【http://t.cn/RqUXNco  】</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3960898408756539" target="freeweibo-mirror">回复@sdvina:传播的应该是真相，而不是流言和谣言。流言…</a>
 </h2>
 <p>回复@sdvina:传播的应该是真相，而不是流言和谣言。流言当做新闻，违背新闻道德，要承担法律责任。不过，西方媒体也就是一家公司，搞生意无所谓信誉。//@sdvina:回复@不沉默的大多数:既然是流言，封锁消息算怎么回事，算心虚么<br><br>RE: 别人洗钱，环球洗地。<br><img src="http://ww3.sinaimg.cn/large/006qs7WMjw1f2lo3bnd5jj30q90cyn0f.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3960895896387265" target="freeweibo-mirror">SPAM 大家明白没~</a>
 </h2>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3960857627266759" target="freeweibo-mirror">恶心的真相？//@FT中文网: 巴拿马顶级律所之一莫萨克•冯…</a>
 </h2>
 <p>恶心的真相？//@FT中文网: 巴拿马顶级律所之一莫萨克•冯赛卡律所的大规模数据泄露，以及有关巴拿马帮助全球政客、体育明星和艺人隐匿数十亿美元资产的报道，将测试其抵制全球推动透明度的决心。<br><br>RE: 【数据泄露事件让全球聚焦巴拿马】这个唯一拒绝遵从新的国际透明法规的离岸金融中心将会因此承受巨大国际压力。http://t.cn/RqUbZga<br><img src="http://ww4.sinaimg.cn/large/6538fd8cjw1f2lh4is70nj20go09eaba.jpg"></p>
-<p>
-	<small> ============== 8小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3960856082943149" target="freeweibo-mirror">[哆啦A梦吃惊][哆啦A梦吃惊]环球果然有</a>
-</h2>
-<p>[哆啦A梦吃惊][哆啦A梦吃惊]环球果然有<br><img src="http://ww4.sinaimg.cn/large/694c5670jw1f2ln55277gj20m80b5ju4.jpg"></p>
 <p>
 	<small> ============== 8小时前</small>
 </p>
