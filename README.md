@@ -113,7 +113,7 @@
 </h2>
 <p>博主是要说香港不是中国，还是企业高管不能和港人通婚？<br><br>RE: 【刘李小琳】前总理之女、要给中国老百姓建立道德档案的电力一姐居然还有冠夫姓的香港护照？ http://t.cn/R2WJKVA<br><img src="http://ww3.sinaimg.cn/large/d4050bc4jw1f2m12jmnw9j20k00buwfz.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3961006273411285" target="freeweibo-mirror">大家注意到没？这次 Panama文件中，备受“环球时报”调侃…</a>
 </h2>
@@ -137,7 +137,7 @@
 </h2>
 <p>郭伯雄涉嫌受贿犯罪案已移送审查起诉  http://t.cn/RqU3SFN<br><img src="http://ww1.sinaimg.cn/large/006kBVzvgw1f2m2ubv08gj30r9158qdh.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p>
 <table>
     <tr>
