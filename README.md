@@ -47,7 +47,7 @@
 </h2>
 <p>//@LifeTime:[瞧瞧] //@吴向宏_投资无国界:严厉谴责这种谣言[怒]//@盐光水灵Isabel:张&刘？又是捕风？[阴险] //@AuMans:晒谣棍 [怒]<br><br>RE: 驚爆：又發現兩位。<br><img src="http://ww1.sinaimg.cn/large/a380a663jw1f2mg2uxy69j20hs0olacz.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3961155779805559" target="freeweibo-mirror">就提个名字能说明什么？刘常委和张常委的家属就不能在巴拿马设个…</a>
 </h2>
