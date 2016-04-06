@@ -59,7 +59,7 @@
 </h2>
 <p>//@朱孝顶: 转发微博<br><br>RE: 【内蒙古征地补偿血案致一死三伤】（记者 崔先康）事发巴彦淖尔市乌拉特中旗石兰计乡双荣村繁荣一组，目击者称因征地修路补偿发生冲突，造成一61岁女性死亡，另有三人受伤。乌拉特中旗公安局办公室工作人员告诉财新记者，前两天好像听说了有这么一个事，但是具体都不清楚。 http://t.cn/RqbvFcX<br><img src="http://ww2.sinaimg.cn/large/632dab64jw1f2n413nsynj2085064wei.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3961321022007872" target="freeweibo-mirror">#内蒙古微讯# 【内蒙古征地补偿血案致一死三伤】清明节当天（…</a>
 </h2>
