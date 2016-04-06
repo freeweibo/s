@@ -77,7 +77,7 @@
 </h2>
 <p>SPAM //@贺金云-: 谁下的命令？<br><br>RE: 究竟是怎么回事？<br><img src="http://ww4.sinaimg.cn/large/6f47298bjw1f2m6f8lyjmj20cq07i3zf.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3961160501307728" target="freeweibo-mirror">那么严重?//@厚知厚觉v:[色]//@风花雪月男盗女娼: …</a>
 </h2>
@@ -125,7 +125,7 @@
 </h2>
 <p>驚爆：又發現兩位。<br><img src="http://ww1.sinaimg.cn/large/a380a663jw1f2mg2uxy69j20hs0olacz.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3961100754427438" target="freeweibo-mirror">又一个元首出面解释运河公司。[巨汗]</a>
 </h2>
