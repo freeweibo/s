@@ -35,7 +35,7 @@
 </h2>
 <p>那么严重?//@厚知厚觉v:[色]//@风花雪月男盗女娼: 人家敢上拖拉机![酷]//@安静不安静a:如果我们的人民也敢站出来争取自己的权利，那么他们也会辞职！！<br><br>RE: #巴拿马泄密#事件后，冰岛总统已经宣布辞职，而反观我大陆，删就一个字，多牛掰大气![酷]<br><img src="http://ww3.sinaimg.cn/large/006lEhFbjw1f2mk00y1uaj30cq07iaay.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3961159365006022" target="freeweibo-mirror">//@闵玉平://@北京厨子新号:[笑cry] //@Lif…</a>
 </h2>
@@ -77,7 +77,7 @@
 </h2>
 <p>SPAM [哈哈][哈哈] //@福州很多事:[哈哈]//@莫志谨: //@西安黑白无常之黑无常://@没事不加V-: //@蛋疼的李帅_79104://@佛山的同学://@终南山人的天空1://@公民-不服从: //@banzhsh://@楽楽将--: //@工厂仅1位:[哈哈]//@小小疯小小:比鸟儿姐姐写得好[笑哈哈]//@美裙百灵鸟儿:[哈哈][赞]<br><br>RE: 少将军又题词了<br><img src="http://ww2.sinaimg.cn/large/005XJB2mgw1f2lsa3h5kvj30dc08tmxp.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3961044349013480" target="freeweibo-mirror">SPAM 倒行逆施何时休？</a>
 </h2>
