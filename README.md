@@ -29,7 +29,7 @@
 </h2>
 <p>SPAM //@路灯悬挂委://@娘歆://@失去乔尼很伤心://@那就叫我萌萌吧:屎报上电视了诶</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3961244283516714" target="freeweibo-mirror">SPAM //@夜郎国主: 差评，不是企图影响大不列颠帝国下…</a>
 </h2>
@@ -95,7 +95,7 @@
 </h2>
 <p>//@LifeTime:[瞧瞧] //@吴向宏_投资无国界:严厉谴责这种谣言[怒]//@盐光水灵Isabel:张&刘？又是捕风？[阴险] //@AuMans:晒谣棍 [怒]<br><br>RE: 驚爆：又發現兩位。<br><img src="http://ww1.sinaimg.cn/large/a380a663jw1f2mg2uxy69j20hs0olacz.jpg"></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3961155779805559" target="freeweibo-mirror">就提个名字能说明什么？刘常委和张常委的家属就不能在巴拿马设个…</a>
 </h2>
@@ -119,7 +119,7 @@
 </h2>
 <p>冰岛总理，辞了<br><img src="http://ww4.sinaimg.cn/large/6a3d7f8cjw1f2mhcp9disj20ku0yktbk.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3961108140488700" target="freeweibo-mirror">驚爆：又發現兩位。</a>
 </h2>
