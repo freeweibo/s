@@ -119,7 +119,7 @@
 </h2>
 <p>四种反应，有意思 http://t.cn/R2W6hjZ<br><img src="http://ww4.sinaimg.cn/large/467a6223gw1f2mp6k6ky4j20hs1wm4ed.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3961164302228766" target="freeweibo-mirror">//@老徐时评:外交部发言人说了，那是捕风捉影，我们不走邪路…</a>
 </h2>
