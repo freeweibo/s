@@ -77,7 +77,7 @@
 </h2>
 <p>//@闵玉平://@北京厨子新号:[笑cry] //@LifeTime:[瞧瞧] //@吴向宏_投资无国界:严厉谴责这种谣言[怒]//@盐光水灵Isabel:张&刘？又是捕风？[阴险] //@AuMans:晒谣棍 [怒]// @广西南宁老刘: 那个拼音不懂呢？[笑cry][笑cry][笑cry]@慧娴姐姐的南宁小粉丝 @泠泠秦筝<br><br>RE: 驚爆：又發現兩位。<br><img src="http://ww1.sinaimg.cn/large/a380a663jw1f2mg2uxy69j20hs0olacz.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3961156048069440" target="freeweibo-mirror">//@LifeTime:[瞧瞧] //@吴向宏_投资无国界:…</a>
 </h2>
