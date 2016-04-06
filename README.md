@@ -55,6 +55,12 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3961142139553761" target="freeweibo-mirror">#巴拿马泄密#事件后，冰岛总统已经宣布辞职，而反观我大陆，删…</a>
+</h2>
+<p>#巴拿马泄密#事件后，冰岛总统已经宣布辞职，而反观我大陆，删就一个字，多牛掰大气![酷]<br><img src="http://ww3.sinaimg.cn/large/006lEhFbjw1f2mk00y1uaj30cq07iaay.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3961108140488700" target="freeweibo-mirror">驚爆：又發現兩位。</a>
 </h2>
 <p>驚爆：又發現兩位。<br><img src="http://ww1.sinaimg.cn/large/a380a663jw1f2mg2uxy69j20hs0olacz.jpg"></p>
@@ -113,7 +119,7 @@
 </h2>
 <p>没看明白，求解释！//@山高路远N: //@亲心港湾://@善待他人就是善待自己://@重出江湖68://@孔智勇_://@闵玉平://@彭园v://@镜中自我B:冰岛事件可以证明那些消息都是真的！//@一定要回头啊://@上善若水童:<br><br>RE: 冰岛人民有可能为中国的反腐大业立下奇功，感谢冰岛人民！——也许功劳远不止于此！<br><img src="http://ww2.sinaimg.cn/large/005JGoo0jw1f2luw47lo9j31es0qotdj.jpg"></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3961030050525139" target="freeweibo-mirror">//@岳阳楼主:也许是个招数，赶紧弱化赶紧转移视线，，，//…</a>
 </h2>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3961023906255239" target="freeweibo-mirror">究竟是怎么回事？</a>
 </h2>
 <p>究竟是怎么回事？<br><img src="http://ww4.sinaimg.cn/large/6f47298bjw1f2m6f8lyjmj20cq07i3zf.jpg"></p>
-<p>
-	<small> ============== 11小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3961021897060187" target="freeweibo-mirror">伊斯兰教最近越来越显得激进，不遵守普世价值，不遵守党纪国法，…</a>
-</h2>
-<p>伊斯兰教最近越来越显得激进，不遵守普世价值，不遵守党纪国法，不尊敬其他民族，如此种种恶行必须受到限制！<br><br>RE: #教育与宗教相分离#某些地方政府大力兴办阿语学校，许多阿语学校实际上就是传播伊斯兰宗教的学校。张家川阿语学校毕业典礼演讲中，班主任公开宣称，学生在学校“学到了最完美的宗教信仰一伊斯兰信仰。”http://t.cn/RqUFE7i<br><img src="http://ww4.sinaimg.cn/large/55f6f027jw1f2m4xh8jvtj20qo1bggtx.jpg"></p>
 <p>
 	<small> ============== 11小时前</small>
 </p>
