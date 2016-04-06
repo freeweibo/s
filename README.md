@@ -125,7 +125,7 @@
 </h2>
 <p>冰岛首相太脆弱了，因为一桩“捕风捉影”的事儿就辞职。呵呵。</p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3961187388087971" target="freeweibo-mirror">四种反应，有意思 http://t.cn/R2W6hjZ</a>
 </h2>
