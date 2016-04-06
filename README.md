@@ -35,7 +35,7 @@
 </h2>
 <p>那么严重?//@厚知厚觉v:[色]//@风花雪月男盗女娼: 人家敢上拖拉机![酷]//@安静不安静a:如果我们的人民也敢站出来争取自己的权利，那么他们也会辞职！！<br><br>RE: #巴拿马泄密#事件后，冰岛总统已经宣布辞职，而反观我大陆，删就一个字，多牛掰大气![酷]<br><img src="http://ww3.sinaimg.cn/large/006lEhFbjw1f2mk00y1uaj30cq07iaay.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3961159365006022" target="freeweibo-mirror">//@闵玉平://@北京厨子新号:[笑cry] //@Lif…</a>
 </h2>
@@ -77,7 +77,7 @@
 </h2>
 <p>SPAM 不要去相信这些负面的东西，生活就是一瓶水，要相信正能量</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3961047147045847" target="freeweibo-mirror">SPAM [哈哈][哈哈] //@福州很多事:[哈哈]//@…</a>
 </h2>
