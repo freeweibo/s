@@ -53,7 +53,7 @@
 </h2>
 <p>SPAM //@贺金云-: 谁下的命令？<br><br>RE: 究竟是怎么回事？<br><img src="http://ww4.sinaimg.cn/large/6f47298bjw1f2m6f8lyjmj20cq07i3zf.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3961160501307728" target="freeweibo-mirror">那么严重?//@厚知厚觉v:[色]//@风花雪月男盗女娼: …</a>
 </h2>
