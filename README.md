@@ -41,7 +41,7 @@
 </h2>
 <p>//@闵玉平://@北京厨子新号:[笑cry] //@LifeTime:[瞧瞧] //@吴向宏_投资无国界:严厉谴责这种谣言[怒]//@盐光水灵Isabel:张&刘？又是捕风？[阴险] //@AuMans:晒谣棍 [怒]// @广西南宁老刘: 那个拼音不懂呢？[笑cry][笑cry][笑cry]@慧娴姐姐的南宁小粉丝 @泠泠秦筝<br><br>RE: 驚爆：又發現兩位。<br><img src="http://ww1.sinaimg.cn/large/a380a663jw1f2mg2uxy69j20hs0olacz.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3961156048069440" target="freeweibo-mirror">//@LifeTime:[瞧瞧] //@吴向宏_投资无国界:…</a>
 </h2>
@@ -119,7 +119,7 @@
 </h2>
 <p>没看明白，求解释！//@山高路远N: //@亲心港湾://@善待他人就是善待自己://@重出江湖68://@孔智勇_://@闵玉平://@彭园v://@镜中自我B:冰岛事件可以证明那些消息都是真的！//@一定要回头啊://@上善若水童:<br><br>RE: 冰岛人民有可能为中国的反腐大业立下奇功，感谢冰岛人民！——也许功劳远不止于此！<br><img src="http://ww2.sinaimg.cn/large/005JGoo0jw1f2luw47lo9j31es0qotdj.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3961030050525139" target="freeweibo-mirror">//@岳阳楼主:也许是个招数，赶紧弱化赶紧转移视线，，，//…</a>
 </h2>
