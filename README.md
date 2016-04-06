@@ -71,7 +71,7 @@
 </h2>
 <p>驚爆：又發現兩位。<br><img src="http://ww1.sinaimg.cn/large/a380a663jw1f2mg2uxy69j20hs0olacz.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3961061511593258" target="freeweibo-mirror">SPAM 不要去相信这些负面的东西，生活就是一瓶水，要相信正…</a>
 </h2>
