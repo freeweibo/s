@@ -95,7 +95,7 @@
 </h2>
 <p>//@上海殷慧芬: //@王周生:转发微博<br><br>RE: 大家注意到没？这次 Panama文件中，备受“环球时报”调侃的美国和日本的政府官员或前官员一个也没有，台湾的政治人物也没有，倒是经常受到“环球时报”推崇的普京大帝脱不了干系，@环球时报  这次怎么自圆其说？<br><img src="http://ww3.sinaimg.cn/large/9154fba0jw1f2m4earfexj20u00k0n0k.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3961032940094014" target="freeweibo-mirror">//@山高路远N://@亲心港湾://@善待他人就是善待自己…</a>
 </h2>
