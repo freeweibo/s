@@ -29,7 +29,7 @@
 </h2>
 <p>//@LifeTime:[瞧瞧] //@吴向宏_投资无国界:严厉谴责这种谣言[怒]//@盐光水灵Isabel:张&刘？又是捕风？[阴险] //@AuMans:晒谣棍 [怒]<br><br>RE: 驚爆：又發現兩位。<br><img src="http://ww1.sinaimg.cn/large/a380a663jw1f2mg2uxy69j20hs0olacz.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3961155779805559" target="freeweibo-mirror">就提个名字能说明什么？刘常委和张常委的家属就不能在巴拿马设个…</a>
 </h2>
@@ -103,6 +103,12 @@
 <p>
 	<small> ============== 10小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3961023906255239" target="freeweibo-mirror">究竟是怎么回事？</a>
+</h2>
+<p>究竟是怎么回事？<br><img src="http://ww4.sinaimg.cn/large/6f47298bjw1f2m6f8lyjmj20cq07i3zf.jpg"></p>
+<p>
+	<small> ============== 10小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3961021897060187" target="freeweibo-mirror">伊斯兰教最近越来越显得激进，不遵守普世价值，不遵守党纪国法，…</a>
 </h2>
 <p>伊斯兰教最近越来越显得激进，不遵守普世价值，不遵守党纪国法，不尊敬其他民族，如此种种恶行必须受到限制！<br><br>RE: #教育与宗教相分离#某些地方政府大力兴办阿语学校，许多阿语学校实际上就是传播伊斯兰宗教的学校。张家川阿语学校毕业典礼演讲中，班主任公开宣称，学生在学校“学到了最完美的宗教信仰一伊斯兰信仰。”http://t.cn/RqUFE7i<br><img src="http://ww4.sinaimg.cn/large/55f6f027jw1f2m4xh8jvtj20qo1bggtx.jpg"></p>
@@ -113,7 +119,7 @@
 </h2>
 <p>吓死宝宝了//@司马平邦: 图文不配啊。<br><br>RE: 郭伯雄涉嫌受贿犯罪案已移送审查起诉  http://t.cn/RqU3SFN<br><img src="http://ww1.sinaimg.cn/large/006kBVzvgw1f2m2ubv08gj30r9158qdh.jpg"></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3961018935751706" target="freeweibo-mirror">SPAM 这图形象。 //@浔阳女高音123://@蕙兰i百…</a>
 </h2>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3961007455953180" target="freeweibo-mirror">博主是要说香港不是中国，还是企业高管不能和港人通婚？</a>
 </h2>
 <p>博主是要说香港不是中国，还是企业高管不能和港人通婚？<br><br>RE: 【刘李小琳】前总理之女、要给中国老百姓建立道德档案的电力一姐居然还有冠夫姓的香港护照？ http://t.cn/R2WJKVA<br><img src="http://ww3.sinaimg.cn/large/d4050bc4jw1f2m12jmnw9j20k00buwfz.jpg"></p>
-<p>
-	<small> ============== 11小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3961006273411285" target="freeweibo-mirror">大家注意到没？这次 Panama文件中，备受“环球时报”调侃…</a>
-</h2>
-<p>大家注意到没？这次 Panama文件中，备受“环球时报”调侃的美国和日本的政府官员或前官员一个也没有，台湾的政治人物也没有，倒是经常受到“环球时报”推崇的普京大帝脱不了干系，@环球时报  这次怎么自圆其说？<br><img src="http://ww3.sinaimg.cn/large/9154fba0jw1f2m4earfexj20u00k0n0k.jpg"></p>
 <p>
 	<small> ============== 11小时前</small>
 </p>
