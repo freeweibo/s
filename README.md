@@ -19,6 +19,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3961445219830013" target="freeweibo-mirror">SPAM 丫头，记得活得漂亮~[心]</a>
+</h2>
+<p>SPAM 丫头，记得活得漂亮~[心]<br><img src="http://ww1.sinaimg.cn/large/d7eb27e2gw1f2na13fhvdj20c811wq6t.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3961414282846026" target="freeweibo-mirror">//@法律人童朝平://@王楚襄在晋国: //@陈有西:胡毛…</a>
 </h2>
 <p>//@法律人童朝平://@王楚襄在晋国: //@陈有西:胡毛，告诉你，我从不派奸细，也没一个水军。从不做那种下三烂的事。至于你们有无找到反水投明者，以后告诉你。请继续。你会进行一步被扒皮。[弱]//@胡杨麟: 有西大叔，那@义勇军235 是你派来的奸细，已经清除掉了，现在群已恢复正常举报工作<br><br>RE: 【最后一击】网络需要清洁，网上语言应该真诚、健康、阳光，为社会提供友善启智的交流讨论平台。自从官方豢养、怂恿五毛这种怪胎以来，网络充满了谣言、阴谋、污言秽语、违心假话，对无冤无仇的良知人士喊打喊杀，纠缠咒骂，挑衅举报，定点清除，搞网络阶级斗争。五毛现象是社会变态毒瘤，必须消灭！<br><img src="http://ww2.sinaimg.cn/large/6b804b51jw1f2mo5ulggmj20ku0xan1y.jpg"></p>
@@ -95,7 +101,7 @@
 </h2>
 <p>仅仅是开始……<br><br>RE: 继泛亚e租宝出事后，今天上海中晋资产崩盘，带下去十多万投资者三百多亿资金。这种靠美女帅哥向个人投资者传销高息金融产品的事儿，往届政府都是以非法集资罪严打的，比如温相当年授意死缓吴英。可是到了本朝，监管部门在李相鼓励金融创新的号召下，不得不睁一眼闭一眼。天朝的事从来都是一放就乱。于...全文： http://m.weibo.cn/1989638280/3961342517697494<br><img src="http://ww1.sinaimg.cn/large/76977888jw1f2n70ijg15j20ch0m875x.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3961376441684821" target="freeweibo-mirror">SPAM 懦夫太多了，于是就期盼刺客。刺客死了，懦夫仍旧是懦…</a>
 </h2>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3961360645543905" target="freeweibo-mirror">【总理欲亲自空投，被郭伯熊假惺惺劝阻】地震发生的第三天，进入…</a>
 </h2>
 <p>【总理欲亲自空投，被郭伯熊假惺惺劝阻】地震发生的第三天，进入汶川的路仍未打通，温向将军们要求：“把我空投进去！”大家一致劝阻，温坚持要去，将军们把情况报给了郭，郭表示：“一，有的直升机不是很可靠；二，天气不适宜飞……。”最后通过做总理秘书的工作才说服了温 http://t.cn/RqbtKrP<br><img src="http://ww1.sinaimg.cn/large/66b822e6gw1f2n93fyjlgj20dw09xt9h.jpg"></p>
-<p>
-	<small> ============== 9小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3961353725399810" target="freeweibo-mirror">新写了一首短诗：懦夫</a>
-</h2>
-<p>新写了一首短诗：懦夫<br><img src="http://ww2.sinaimg.cn/large/489ab6b0jw1f2n8avywcej20ri40gqhs.jpg"></p>
 <p>
 	<small> ============== 9小时前</small>
 </p>
