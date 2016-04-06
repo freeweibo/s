@@ -23,7 +23,7 @@
 </h2>
 <p>//@老徐时评:外交部发言人说了，那是捕风捉影，我们不走邪路[酷]#微博热点快评#//@天恩0120: 是的，人家属于正常国家范畴//@谢文:印度至少还像个正常国家的样子，没有疯狂封锁消息，保护贪腐违法者。//@清华孙立平: //@米家那个山: 转发微博</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3961161412463405" target="freeweibo-mirror">SPAM //@贺金云-: 谁下的命令？</a>
 </h2>
@@ -65,7 +65,7 @@
 </h2>
 <p>冰岛总理，辞了<br><img src="http://ww4.sinaimg.cn/large/6a3d7f8cjw1f2mhcp9disj20ku0yktbk.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3961108140488700" target="freeweibo-mirror">驚爆：又發現兩位。</a>
 </h2>
