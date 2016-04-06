@@ -59,7 +59,7 @@
 </h2>
 <p>#巴拿马泄密#事件后，冰岛总统已经宣布辞职，而反观我大陆，删就一个字，多牛掰大气![酷]<br><img src="http://ww3.sinaimg.cn/large/006lEhFbjw1f2mk00y1uaj30cq07iaay.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3961108140488700" target="freeweibo-mirror">驚爆：又發現兩位。</a>
 </h2>
