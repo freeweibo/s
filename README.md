@@ -25,11 +25,17 @@
 <p>
 	<small> ============== 1小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3961406359518646" target="freeweibo-mirror">//@陈有西:现在被围剿吠咬的社会知识精英，是国民权益的篱笆…</a>
+</h2>
+<p>//@陈有西:现在被围剿吠咬的社会知识精英，是国民权益的篱笆和最后守护者。等到社会再无人为底层平民呼吁呐喊，再无人铮铮直言，人民就会是待宰羔羊。现在害人的五毛，那时同样逃脱不了这个命运。 http://t.cn/RqbxZPw //@江南蜀黎：今天不打五毛，总有一天它们会伤害你的家人朋友。<br><br>RE: 今天的五毛，早巳经不限于经济属性。这是一群破坏改革开放、摧毁社会良知、蛊惑误导青年、鼓吹专制奴役、致力愚民反智、将入世未深的青年人，引入害人复自害可悲境况的流氓恶势力。是国家意识形态建设走入岐途的典型现象。摧毁收拾五毛是迟早的事，这也是现在绝大多数五毛不敢实名的原因。<br><img src="http://ww2.sinaimg.cn/large/6b804b51gw1f2n9zi9i8oj20k00zkwj4.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3961389322536721" target="freeweibo-mirror">//@夙生律师事务所: //@乐好132: //@NATO东…</a>
 </h2>
 <p>//@夙生律师事务所: //@乐好132: //@NATO东方不败: 转发微博<br><br>RE: 分享图片 http://t.cn/R2WiQ4m<br><img src="http://ww2.sinaimg.cn/large/0068zFaqgw1f2m1lbr0kgj30u01hc1kx.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3961376441684821" target="freeweibo-mirror">SPAM 懦夫太多了，于是就期盼刺客。刺客死了，懦夫仍旧是懦…</a>
 </h2>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3961270502360686" target="freeweibo-mirror">//@张欣bpv: //@谢文: //@陈业文新大都:今日中…</a>
 </h2>
 <p>//@张欣bpv: //@谢文: //@陈业文新大都:今日中国各大媒体、北京的警力、亿万网民正聚焦798附近的一个商务酒店。[挖鼻] //@Ming_the_Great_大明: //@卓越兄:青瓦台發言人會不會罵自己的「央媒」捕风捉影？</p>
-<p>
-	<small> ============== 10小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3961270074445897" target="freeweibo-mirror">[挖鼻]//@陈光武律师://@崔小平律师:[哈哈]//@陈…</a>
-</h2>
-<p>[挖鼻]//@陈光武律师://@崔小平律师:[哈哈]//@陈业文新大都:今日中国各大媒体、北京的警力、亿万网民正聚焦798附近的一个商务酒店。//@卓越兄:青瓦台發言人會不會罵自己的「央媒」捕风捉影？</p>
 <p>
 	<small> ============== 10小时前</small>
 </p>
