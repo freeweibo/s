@@ -37,6 +37,12 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3961159365006022" target="freeweibo-mirror">//@闵玉平://@北京厨子新号:[笑cry] //@Lif…</a>
+</h2>
+<p>//@闵玉平://@北京厨子新号:[笑cry] //@LifeTime:[瞧瞧] //@吴向宏_投资无国界:严厉谴责这种谣言[怒]//@盐光水灵Isabel:张&刘？又是捕风？[阴险] //@AuMans:晒谣棍 [怒]// @广西南宁老刘: 那个拼音不懂呢？[笑cry][笑cry][笑cry]@慧娴姐姐的南宁小粉丝 @泠泠秦筝<br><br>RE: 驚爆：又發現兩位。<br><img src="http://ww1.sinaimg.cn/large/a380a663jw1f2mg2uxy69j20hs0olacz.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3961156048069440" target="freeweibo-mirror">//@LifeTime:[瞧瞧] //@吴向宏_投资无国界:…</a>
 </h2>
 <p>//@LifeTime:[瞧瞧] //@吴向宏_投资无国界:严厉谴责这种谣言[怒]//@盐光水灵Isabel:张&刘？又是捕风？[阴险] //@AuMans:晒谣棍 [怒]<br><br>RE: 驚爆：又發現兩位。<br><img src="http://ww1.sinaimg.cn/large/a380a663jw1f2mg2uxy69j20hs0olacz.jpg"></p>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3961021897060187" target="freeweibo-mirror">伊斯兰教最近越来越显得激进，不遵守普世价值，不遵守党纪国法，…</a>
 </h2>
 <p>伊斯兰教最近越来越显得激进，不遵守普世价值，不遵守党纪国法，不尊敬其他民族，如此种种恶行必须受到限制！<br><br>RE: #教育与宗教相分离#某些地方政府大力兴办阿语学校，许多阿语学校实际上就是传播伊斯兰宗教的学校。张家川阿语学校毕业典礼演讲中，班主任公开宣称，学生在学校“学到了最完美的宗教信仰一伊斯兰信仰。”http://t.cn/RqUFE7i<br><img src="http://ww4.sinaimg.cn/large/55f6f027jw1f2m4xh8jvtj20qo1bggtx.jpg"></p>
-<p>
-	<small> ============== 11小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3961020676393320" target="freeweibo-mirror">吓死宝宝了//@司马平邦: 图文不配啊。</a>
-</h2>
-<p>吓死宝宝了//@司马平邦: 图文不配啊。<br><br>RE: 郭伯雄涉嫌受贿犯罪案已移送审查起诉  http://t.cn/RqU3SFN<br><img src="http://ww1.sinaimg.cn/large/006kBVzvgw1f2m2ubv08gj30r9158qdh.jpg"></p>
 <p>
 	<small> ============== 11小时前</small>
 </p>
