@@ -53,7 +53,7 @@
 </h2>
 <p>就提个名字能说明什么？刘常委和张常委的家属就不能在巴拿马设个离岸公司避税了？避税可是合法的//@吴向宏_投资无国界: 严厉谴责这种谣言[怒]//@盐光水灵Isabel:张&刘？又是捕风？[阴险] //@AuMans:晒谣棍 [怒]<br><br>RE: 驚爆：又發現兩位。<br><img src="http://ww1.sinaimg.cn/large/a380a663jw1f2mg2uxy69j20hs0olacz.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3961142139553761" target="freeweibo-mirror">#巴拿马泄密#事件后，冰岛总统已经宣布辞职，而反观我大陆，删…</a>
 </h2>
@@ -95,7 +95,7 @@
 </h2>
 <p>//@上海殷慧芬: //@王周生:转发微博<br><br>RE: 大家注意到没？这次 Panama文件中，备受“环球时报”调侃的美国和日本的政府官员或前官员一个也没有，台湾的政治人物也没有，倒是经常受到“环球时报”推崇的普京大帝脱不了干系，@环球时报  这次怎么自圆其说？<br><img src="http://ww3.sinaimg.cn/large/9154fba0jw1f2m4earfexj20u00k0n0k.jpg"></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3961032940094014" target="freeweibo-mirror">//@山高路远N://@亲心港湾://@善待他人就是善待自己…</a>
 </h2>
