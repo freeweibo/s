@@ -59,7 +59,7 @@
 </h2>
 <p>#巴拿马泄密#事件后，冰岛总统已经宣布辞职，而反观我大陆，删就一个字，多牛掰大气![酷]<br><img src="http://ww3.sinaimg.cn/large/006lEhFbjw1f2mk00y1uaj30cq07iaay.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3961108140488700" target="freeweibo-mirror">驚爆：又發現兩位。</a>
 </h2>
@@ -83,7 +83,7 @@
 </h2>
 <p>SPAM 倒行逆施何时休？<br><br>RE: 【深圳：失去电动车的人，彻底卑微的存在】很多人还不知道怎么回事，一群执法人员就围了上来，将电动车拖走。甚至有小伙子看到执法人员要没收他的车，竟拿起块大石头主动将自己车砸烂，并称“自己砸了也不交给土匪”。汽车事故致死人数比电动车多得多，那咋不把汽车禁了？菜刀呢？http://t.cn/RqUxFJO<br><img src="http://ww2.sinaimg.cn/large/a5242872jw1f2lnzcvpdjj2069066glz.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3961040347561235" target="freeweibo-mirror">//@夸夸奇谭: 转发微博</a>
 </h2>
