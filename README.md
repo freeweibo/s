@@ -53,7 +53,7 @@
 </h2>
 <p>四种反应，有意思 http://t.cn/R2W6hjZ<br><img src="http://ww4.sinaimg.cn/large/467a6223gw1f2mp6k6ky4j20hs1wm4ed.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3961164302228766" target="freeweibo-mirror">//@老徐时评:外交部发言人说了，那是捕风捉影，我们不走邪路…</a>
 </h2>
@@ -101,7 +101,7 @@
 </h2>
 <p>#巴拿马泄密#事件后，冰岛总统已经宣布辞职，而反观我大陆，删就一个字，多牛掰大气![酷]<br><img src="http://ww3.sinaimg.cn/large/006lEhFbjw1f2mk00y1uaj30cq07iaay.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3961119066359783" target="freeweibo-mirror">冰岛总理，辞了</a>
 </h2>
