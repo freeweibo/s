@@ -35,7 +35,7 @@
 </h2>
 <p>SPAM 有时候懦弱的转发一条微博都不敢加评论。<br><br>RE: 新写了一首短诗：懦夫<br><img src="http://ww2.sinaimg.cn/large/489ab6b0jw1f2n8avywcej20ri40gqhs.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3961353725399810" target="freeweibo-mirror">新写了一首短诗：懦夫</a>
 </h2>
@@ -113,7 +113,7 @@
 </h2>
 <p>SPAM 很恶毒呀！//@爱红色://@理痕: 回复@茶余韵:真想不到这帮人渣如此而已恶毒！</p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3961275027780506" target="freeweibo-mirror">//@好兵帅克归来://@l鑫鑫鑫l: //@啦啦啦哦啦:/…</a>
 </h2>
