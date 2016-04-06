@@ -113,7 +113,7 @@
 </h2>
 <p>究竟是怎么回事？<br><img src="http://ww4.sinaimg.cn/large/6f47298bjw1f2m6f8lyjmj20cq07i3zf.jpg"></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3961021897060187" target="freeweibo-mirror">伊斯兰教最近越来越显得激进，不遵守普世价值，不遵守党纪国法，…</a>
 </h2>
