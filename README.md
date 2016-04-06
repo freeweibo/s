@@ -77,7 +77,7 @@
 </h2>
 <p>SPAM 不要去相信这些负面的东西，生活就是一瓶水，要相信正能量</p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3961047147045847" target="freeweibo-mirror">SPAM [哈哈][哈哈] //@福州很多事:[哈哈]//@…</a>
 </h2>
