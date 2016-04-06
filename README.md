@@ -61,6 +61,12 @@
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3961392790894818" target="freeweibo-mirror">扬太皇之威！//@中一在线:救援的关键时刻还争权夺利？ //…</a>
+</h2>
+<p>扬太皇之威！//@中一在线:救援的关键时刻还争权夺利？ //@哲镛:呵呵…//@刘仰:如果郭伯雄不是腐败分子……<br><br>RE: 【总理欲亲自空投，被郭伯熊假惺惺劝阻】地震发生的第三天，进入汶川的路仍未打通，温向将军们要求：“把我空投进去！”大家一致劝阻，温坚持要去，将军们把情况报给了郭，郭表示：“一，有的直升机不是很可靠；二，天气不适宜飞……。”最后通过做总理秘书的工作才说服了温 http://t.cn/RqbtKrP<br><img src="http://ww1.sinaimg.cn/large/66b822e6gw1f2n93fyjlgj20dw09xt9h.jpg"></p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3961391813790498" target="freeweibo-mirror">[doge][doge][doge][doge]</a>
 </h2>
 <p>[doge][doge][doge][doge]<br><br>RE: 刚刚在校外儿童摇摆机听到的歌，请问叫什么名字？“爸爸的爸爸叫爷爷；爸爸的妈妈叫奶奶。 妈妈的爸爸叫外公；妈妈的妈妈叫外婆。 哥哥的老婆叫嫂子，姐姐的老公叫 姐夫 。”</p>
@@ -84,6 +90,12 @@
 <p>SPAM 这次，我必须，为《环球时报》点赞！为胡锡进点赞！<br><img src="http://ww1.sinaimg.cn/large/6cefc1a7jw1f2nbvt5ifkj20j609mju7.jpg"></p>
 <p>
 	<small> ============== 4小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3961380631668557" target="freeweibo-mirror">仅仅是开始……</a>
+</h2>
+<p>仅仅是开始……<br><br>RE: 继泛亚e租宝出事后，今天上海中晋资产崩盘，带下去十多万投资者三百多亿资金。这种靠美女帅哥向个人投资者传销高息金融产品的事儿，往届政府都是以非法集资罪严打的，比如温相当年授意死缓吴英。可是到了本朝，监管部门在李相鼓励金融创新的号召下，不得不睁一眼闭一眼。天朝的事从来都是一放就乱。于...全文： http://m.weibo.cn/1989638280/3961342517697494<br><img src="http://ww1.sinaimg.cn/large/76977888jw1f2n70ijg15j20ch0m875x.jpg"></p>
+<p>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3961376441684821" target="freeweibo-mirror">SPAM 懦夫太多了，于是就期盼刺客。刺客死了，懦夫仍旧是懦…</a>
 </h2>
@@ -124,18 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3961329951908972" target="freeweibo-mirror">【傻子一大串?】运河泄密文件，冰岛总理要辞职，法国、印度政府…</a>
 </h2>
 <p>【傻子一大串?】运河泄密文件，冰岛总理要辞职，法国、印度政府要彻查，普京、卡梅伦、梅西等坚决否认，一件捕风捉影的事，弄得这些国家的政要这么折腾，你说他们是不是傻？看我们的外交部多稳当，坚决不予评论！[嘻嘻]<br><img src="http://ww2.sinaimg.cn/large/005JGoo0jw1f2n5jttwxqj30k00zk42h.jpg"></p>
-<p>
-	<small> ============== 8小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3961327317362034" target="freeweibo-mirror">//@abc顺其自然: 转发微博</a>
-</h2>
-<p>//@abc顺其自然: 转发微博<br><br>RE: 【内蒙古征地补偿血案致一死三伤】4月4日，内蒙古巴彦淖尔市乌拉特中旗石兰计乡双荣村发生因征地修路引发的血案。冲突共造成一名村民死亡、三名村民受伤。村民告诉记者，起因是政府修路占了村民的土地，但一直以来没有补偿。乌拉特中旗公安局办公室工作人员称，前两天好像听说了有这么一个事，但是具体...全文： http://m.weibo.cn/1644114654/3961311195237447<br><img src="http://ww1.sinaimg.cn/large/61ff32dejw1f2n3eyhvfuj208c08saag.jpg"></p>
-<p>
-	<small> ============== 8小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3961323610429401" target="freeweibo-mirror">//@海爷海爷: //@煮熟的海带：面对境外敌对势力的阴谋，…</a>
-</h2>
-<p>//@海爷海爷: //@煮熟的海带：面对境外敌对势力的阴谋，极少数冰奸数典忘祖里应外合，山洞滇副。部分觉悟不高、不明真相的群众没站稳政治立场，羌杆子叨把子无有男儿站出来，冰岛政府也没有严防死守意识形态阵地，软弱无能、屈膝投降，导致敌人阴谋得逞，使冰岛特色的资本主义大业毁于一旦。</p>
 <p>
 	<small> ============== 8小时前</small>
 </p>
