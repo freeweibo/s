@@ -37,6 +37,12 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3961108140488700" target="freeweibo-mirror">驚爆：又發現兩位。</a>
+</h2>
+<p>驚爆：又發現兩位。<br><img src="http://ww1.sinaimg.cn/large/a380a663jw1f2mg2uxy69j20hs0olacz.jpg"></p>
+<p>
+	<small> ============== 5小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3961061511593258" target="freeweibo-mirror">SPAM 不要去相信这些负面的东西，生活就是一瓶水，要相信正…</a>
 </h2>
 <p>SPAM 不要去相信这些负面的东西，生活就是一瓶水，要相信正能量</p>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3961013327921217" target="freeweibo-mirror">#教育与宗教相分离#某些地方政府大力兴办阿语学校，许多阿语学…</a>
 </h2>
 <p>#教育与宗教相分离#某些地方政府大力兴办阿语学校，许多阿语学校实际上就是传播伊斯兰宗教的学校。张家川阿语学校毕业典礼演讲中，班主任公开宣称，学生在学校“学到了最完美的宗教信仰一伊斯兰信仰。”http://t.cn/RqUFE7i<br><img src="http://ww4.sinaimg.cn/large/55f6f027jw1f2m4xh8jvtj20qo1bggtx.jpg"></p>
-<p>
-	<small> ============== 11小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3961007455953180" target="freeweibo-mirror">博主是要说香港不是中国，还是企业高管不能和港人通婚？</a>
-</h2>
-<p>博主是要说香港不是中国，还是企业高管不能和港人通婚？<br><br>RE: 【刘李小琳】前总理之女、要给中国老百姓建立道德档案的电力一姐居然还有冠夫姓的香港护照？ http://t.cn/R2WJKVA<br><img src="http://ww3.sinaimg.cn/large/d4050bc4jw1f2m12jmnw9j20k00buwfz.jpg"></p>
 <p>
 	<small> ============== 11小时前</small>
 </p>
