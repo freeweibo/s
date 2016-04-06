@@ -113,7 +113,7 @@
 </h2>
 <p>伊斯兰教最近越来越显得激进，不遵守普世价值，不遵守党纪国法，不尊敬其他民族，如此种种恶行必须受到限制！<br><br>RE: #教育与宗教相分离#某些地方政府大力兴办阿语学校，许多阿语学校实际上就是传播伊斯兰宗教的学校。张家川阿语学校毕业典礼演讲中，班主任公开宣称，学生在学校“学到了最完美的宗教信仰一伊斯兰信仰。”http://t.cn/RqUFE7i<br><img src="http://ww4.sinaimg.cn/large/55f6f027jw1f2m4xh8jvtj20qo1bggtx.jpg"></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3961020676393320" target="freeweibo-mirror">吓死宝宝了//@司马平邦: 图文不配啊。</a>
 </h2>
