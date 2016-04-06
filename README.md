@@ -59,7 +59,7 @@
 </h2>
 <p>SPAM 这次，我必须，为《环球时报》点赞！为胡锡进点赞！<br><img src="http://ww1.sinaimg.cn/large/6cefc1a7jw1f2nbvt5ifkj20j609mju7.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3961376441684821" target="freeweibo-mirror">SPAM 懦夫太多了，于是就期盼刺客。刺客死了，懦夫仍旧是懦…</a>
 </h2>
@@ -71,11 +71,17 @@
 </h2>
 <p>SPAM 有时候懦弱的转发一条微博都不敢加评论。<br><br>RE: 新写了一首短诗：懦夫<br><img src="http://ww2.sinaimg.cn/large/489ab6b0jw1f2n8avywcej20ri40gqhs.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3961368527309271" target="freeweibo-mirror">今天的五毛，早巳经不限于经济属性。这是一群破坏改革开放、摧毁…</a>
 </h2>
 <p>今天的五毛，早巳经不限于经济属性。这是一群破坏改革开放、摧毁社会良知、蛊惑误导青年、鼓吹专制奴役、致力愚民反智、将入世未深的青年人，引入害人复自害可悲境况的流氓恶势力。是国家意识形态建设走入岐途的典型现象。摧毁收拾五毛是迟早的事，这也是现在绝大多数五毛不敢实名的原因。<br><img src="http://ww2.sinaimg.cn/large/6b804b51gw1f2n9zi9i8oj20k00zkwj4.jpg"></p>
+<p>
+	<small> ============== 5小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3961364332245762" target="freeweibo-mirror">刚刚在校外儿童摇摆机听到的歌，请问叫什么名字？“爸爸的爸爸叫…</a>
+</h2>
+<p>刚刚在校外儿童摇摆机听到的歌，请问叫什么名字？“爸爸的爸爸叫爷爷；爸爸的妈妈叫奶奶。 妈妈的爸爸叫外公；妈妈的妈妈叫外婆。 哥哥的老婆叫嫂子，姐姐的老公叫 姐夫 。”</p>
 <p>
 	<small> ============== 5小时前</small>
 </p><h2>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3961316530483222" target="freeweibo-mirror">【内蒙古征地补偿血案致一死三伤】（记者 崔先康）事发巴彦淖尔…</a>
 </h2>
 <p>【内蒙古征地补偿血案致一死三伤】（记者 崔先康）事发巴彦淖尔市乌拉特中旗石兰计乡双荣村繁荣一组，目击者称因征地修路补偿发生冲突，造成一61岁女性死亡，另有三人受伤。乌拉特中旗公安局办公室工作人员告诉财新记者，前两天好像听说了有这么一个事，但是具体都不清楚。 http://t.cn/RqbvFcX<br><img src="http://ww2.sinaimg.cn/large/632dab64jw1f2n413nsynj2085064wei.jpg"></p>
-<p>
-	<small> ============== 8小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3961312759254345" target="freeweibo-mirror">回复@西鹤冲天:[哆啦A梦吃惊]//@西鹤冲天:师爷好定力！…</a>
-</h2>
-<p>回复@西鹤冲天:[哆啦A梦吃惊]//@西鹤冲天:师爷好定力！[赞]不过吃这么多得当心身体呀[吐]<br><br>RE: 【金瓶梅后传】最近衙内府出了大事，小衙内们里通外国，离岸洗钱被大金国曝光了，大郎带领十三行去衙内府闹事，小衙内拉的一坨屎又被挖了出来，歪嘴师爷没办法走过去，拿棍子扒拉了一番，引来无数围观。众目睽睽之下，师爷当场抓起一把屎往嘴里放吃起来，吃着他还大声喊：根本就没有屎，这只是黄连膏。<br><img src="http://ww1.sinaimg.cn/large/4659d332gw1f2m8fzx2mij20c80htwfv.jpg"></p>
 <p>
 	<small> ============== 8小时前</small>
 </p>
