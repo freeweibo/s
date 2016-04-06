@@ -41,7 +41,7 @@
 </h2>
 <p>新写了一首短诗：懦夫<br><img src="http://ww2.sinaimg.cn/large/489ab6b0jw1f2n8avywcej20ri40gqhs.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3961345466389228" target="freeweibo-mirror">SPAM #内蒙古全记录# 【内蒙古征地补偿血案致一死三伤】…</a>
 </h2>
@@ -59,7 +59,7 @@
 </h2>
 <p>//@海爷海爷: //@煮熟的海带：面对境外敌对势力的阴谋，极少数冰奸数典忘祖里应外合，山洞滇副。部分觉悟不高、不明真相的群众没站稳政治立场，羌杆子叨把子无有男儿站出来，冰岛政府也没有严防死守意识形态阵地，软弱无能、屈膝投降，导致敌人阴谋得逞，使冰岛特色的资本主义大业毁于一旦。</p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3961322108121111" target="freeweibo-mirror">//@朱孝顶: 转发微博</a>
 </h2>
