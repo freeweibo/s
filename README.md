@@ -65,7 +65,7 @@
 </h2>
 <p>SPAM //@贺金云-: 谁下的命令？<br><br>RE: 究竟是怎么回事？<br><img src="http://ww4.sinaimg.cn/large/6f47298bjw1f2m6f8lyjmj20cq07i3zf.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3961160501307728" target="freeweibo-mirror">那么严重?//@厚知厚觉v:[色]//@风花雪月男盗女娼: …</a>
 </h2>
@@ -115,6 +115,12 @@
 <p>
 	<small> ============== 11小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3961100754427438" target="freeweibo-mirror">又一个元首出面解释运河公司。[巨汗]</a>
+</h2>
+<p>又一个元首出面解释运河公司。[巨汗]<br><img src="http://ww1.sinaimg.cn/large/4d24098ejw1f2mf8xznqsj20is0bhq48.jpg"></p>
+<p>
+	<small> ============== 12小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3961061511593258" target="freeweibo-mirror">SPAM 不要去相信这些负面的东西，生活就是一瓶水，要相信正…</a>
 </h2>
 <p>SPAM 不要去相信这些负面的东西，生活就是一瓶水，要相信正能量</p>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3961044349013480" target="freeweibo-mirror">SPAM 倒行逆施何时休？</a>
 </h2>
 <p>SPAM 倒行逆施何时休？<br><br>RE: 【深圳：失去电动车的人，彻底卑微的存在】很多人还不知道怎么回事，一群执法人员就围了上来，将电动车拖走。甚至有小伙子看到执法人员要没收他的车，竟拿起块大石头主动将自己车砸烂，并称“自己砸了也不交给土匪”。汽车事故致死人数比电动车多得多，那咋不把汽车禁了？菜刀呢？http://t.cn/RqUxFJO<br><img src="http://ww2.sinaimg.cn/large/a5242872jw1f2lnzcvpdjj2069066glz.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3961040347561235" target="freeweibo-mirror">//@夸夸奇谭: 转发微博</a>
-</h2>
-<p>//@夸夸奇谭: 转发微博<br><br>RE: 【深圳：失去电动车的人，彻底卑微的存在】很多人还不知道怎么回事，一群执法人员就围了上来，将电动车拖走。甚至有小伙子看到执法人员要没收他的车，竟拿起块大石头主动将自己车砸烂，并称“自己砸了也不交给土匪”。汽车事故致死人数比电动车多得多，那咋不把汽车禁了？菜刀呢？http://t.cn/RqUxFJO<br><img src="http://ww2.sinaimg.cn/large/a5242872jw1f2lnzcvpdjj2069066glz.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
