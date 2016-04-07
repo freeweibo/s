@@ -59,7 +59,7 @@
 </h2>
 <p>SPAM //@麻油古灯: 环球高级黑！//@张晨初艺术空间:还能转？//@永乐大典丶:”国际玩笑"？！</p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3961406376536320" target="freeweibo-mirror">//@蓝星虫说://@法眼濛濛://@律政阿勇:转发微博</a>
 </h2>
@@ -95,7 +95,7 @@
 </h2>
 <p>扬太皇之威！//@中一在线:救援的关键时刻还争权夺利？ //@哲镛:呵呵…//@刘仰:如果郭伯雄不是腐败分子……<br><br>RE: 【总理欲亲自空投，被郭伯熊假惺惺劝阻】地震发生的第三天，进入汶川的路仍未打通，温向将军们要求：“把我空投进去！”大家一致劝阻，温坚持要去，将军们把情况报给了郭，郭表示：“一，有的直升机不是很可靠；二，天气不适宜飞……。”最后通过做总理秘书的工作才说服了温 http://t.cn/RqbtKrP<br><img src="http://ww1.sinaimg.cn/large/66b822e6gw1f2n93fyjlgj20dw09xt9h.jpg"></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3961391813790498" target="freeweibo-mirror">[doge][doge][doge][doge]</a>
 </h2>
@@ -137,7 +137,7 @@
 </h2>
 <p>再说反腐那就是，逗你玩，逗你玩，逗你玩。<br><img src="http://ww2.sinaimg.cn/large/005O7F2fjw1f2na8bmzzdj30ea0eeta4.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p>
 <table>
     <tr>
