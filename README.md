@@ -41,7 +41,7 @@
 </h2>
 <p>拼爹时代已过，现在拼小舅子 //@陈业文新大都:[钟] //@后现代派小说家童牧野:[钟]<br><br>RE: 【冰岛总理宣布辞职 被曝涉嫌用海外公司隐藏资产】因为被爆涉嫌利用海外公司隐藏资产，冰岛总理京勒伊格松受到各方批评，在“坚守”两天之后，于5日宣布辞职，成为丑闻曝光后受影响的第一张多米诺骨牌。看来，媒体的力量不容小视，不知道哪一国的谁还会跟着倒下？<br><img src="http://ww1.sinaimg.cn/large/562f4083gw1f2nb28a3dhj20j60d4adf.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3961543861130642" target="freeweibo-mirror">//@诚实的孤独的梦想:接下来会怎样？</a>
 </h2>
@@ -107,7 +107,7 @@
 </h2>
 <p>【印度下令调查】北欧雷克雅维克因隐瞒财产被揭两天就辞职。民主政体监督是灵敏的。这也是弄权贪官、五毛奴才拼命咒骂民主政体、害怕社会民主化的原因。五毛是贪官的保护伞。 http://t.cn/RqbRwPNhttp://3g.163.com/touch/article.html?channel=news&docid=BK0TOBPD00014AED<br><img src="http://ww2.sinaimg.cn/large/6b804b51jw1f2nqrnzd7oj20il0iwwgr.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3961511187533463" target="freeweibo-mirror">毛泽东外孙女孔东梅亦涉“运河泄密事件”</a>
 </h2>
