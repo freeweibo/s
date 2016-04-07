@@ -47,13 +47,13 @@
 </h2>
 <p>//@蓝星虫说://@法眼濛濛://@律政阿勇:转发微博<br><br>RE: 【傻子一大串?】运河泄密文件，冰岛总理要辞职，法国、印度政府要彻查，普京、卡梅伦、梅西等坚决否认，一件捕风捉影的事，弄得这些国家的政要这么折腾，你说他们是不是傻？看我们的外交部多稳当，坚决不予评论！[嘻嘻]<br><img src="http://ww2.sinaimg.cn/large/005JGoo0jw1f2n5jttwxqj30k00zk42h.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3961406359518646" target="freeweibo-mirror">//@陈有西:现在被围剿吠咬的社会知识精英，是国民权益的篱笆…</a>
 </h2>
 <p>//@陈有西:现在被围剿吠咬的社会知识精英，是国民权益的篱笆和最后守护者。等到社会再无人为底层平民呼吁呐喊，再无人铮铮直言，人民就会是待宰羔羊。现在害人的五毛，那时同样逃脱不了这个命运。 http://t.cn/RqbxZPw //@江南蜀黎：今天不打五毛，总有一天它们会伤害你的家人朋友。<br><br>RE: 今天的五毛，早巳经不限于经济属性。这是一群破坏改革开放、摧毁社会良知、蛊惑误导青年、鼓吹专制奴役、致力愚民反智、将入世未深的青年人，引入害人复自害可悲境况的流氓恶势力。是国家意识形态建设走入岐途的典型现象。摧毁收拾五毛是迟早的事，这也是现在绝大多数五毛不敢实名的原因。<br><img src="http://ww2.sinaimg.cn/large/6b804b51gw1f2n9zi9i8oj20k00zkwj4.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3961404945820355" target="freeweibo-mirror">SPAM 胡总编告诉了我们一个网上找不到的东西。。。</a>
 </h2>
@@ -83,7 +83,7 @@
 </h2>
 <p>[doge][doge][doge][doge]<br><br>RE: 刚刚在校外儿童摇摆机听到的歌，请问叫什么名字？“爸爸的爸爸叫爷爷；爸爸的妈妈叫奶奶。 妈妈的爸爸叫外公；妈妈的妈妈叫外婆。 哥哥的老婆叫嫂子，姐姐的老公叫 姐夫 。”</p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3961389322536721" target="freeweibo-mirror">//@夙生律师事务所: //@乐好132: //@NATO东…</a>
 </h2>
@@ -113,7 +113,7 @@
 </h2>
 <p>SPAM 懦夫太多了，于是就期盼刺客。刺客死了，懦夫仍旧是懦夫……<br><br>RE: 新写了一首短诗：懦夫<br><img src="http://ww2.sinaimg.cn/large/489ab6b0jw1f2n8avywcej20ri40gqhs.jpg"></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3961370951505950" target="freeweibo-mirror">再说反腐那就是，逗你玩，逗你玩，逗你玩。</a>
 </h2>
