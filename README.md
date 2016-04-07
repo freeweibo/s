@@ -47,13 +47,13 @@
 </h2>
 <p>受教！[作揖] //@安普若-外号安校长://@洪平凡_Pingfan_Hong: 为什么中文把“tax haven"翻译成“避税天堂”。“haven”是“避风港”，“heaven”才是“天堂”。正确的译法应该是“避税港”。很可能是哪位翻译最初误把“haven”当“heaven”，后来以讹传讹。 //@钟鸿钧:转发微博<br><br>RE: 就因为一些“捕风捉影的东西”，大英帝国的媒体对自己的首相和首相他爹穷追猛打，这是闹哪样啊！？[思考]<br><img src="http://ww1.sinaimg.cn/large/8036648djw1f2mh5vz395j20qo0zvq93.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3961535116343424" target="freeweibo-mirror">不是说是谣言吗？辞什么职啊？ //@梦与天杰:搜刮民脂民膏坑…</a>
 </h2>
 <p>不是说是谣言吗？辞什么职啊？ //@梦与天杰:搜刮民脂民膏坑老百姓血汗钱的贪官罪恶滔天，若百姓办实事也好，可他们却变本加厉，不拉动内销就算了还掏空国库转移巨额财产带动他国经济，是可忍孰不可忍。房价降不下来的原因是因为他们拥有大量房产//@陈有西:豢养五毛就是为了搅混水掩盖真相，防止人民听<br><br>RE: 【印度下令调查】北欧雷克雅维克因隐瞒财产被揭两天就辞职。民主政体监督是灵敏的。这也是弄权贪官、五毛奴才拼命咒骂民主政体、害怕社会民主化的原因。五毛是贪官的保护伞。 http://t.cn/RqbRwPNhttp://3g.163.com/touch/article.html?channel=news&docid=BK0TOBPD00014AED<br><img src="http://ww2.sinaimg.cn/large/6b804b51jw1f2nqrnzd7oj20il0iwwgr.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3961532184552485" target="freeweibo-mirror">这就是民主和独裁的区别 //@皮尔当人://@高小曜://@…</a>
 </h2>
@@ -101,7 +101,7 @@
 </h2>
 <p>SPAM 丫头，记得活得漂亮~[心]<br><img src="http://ww1.sinaimg.cn/large/d7eb27e2gw1f2na13fhvdj20c811wq6t.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3961442996624989" target="freeweibo-mirror">SPAM 【带路调研】扼守海上丝绸之路要冲 海南肩头任务重 …</a>
 </h2>
@@ -113,7 +113,7 @@
 </h2>
 <p>//@法律人童朝平://@王楚襄在晋国: //@陈有西:胡毛，告诉你，我从不派奸细，也没一个水军。从不做那种下三烂的事。至于你们有无找到反水投明者，以后告诉你。请继续。你会进行一步被扒皮。[弱]//@胡杨麟: 有西大叔，那@义勇军235 是你派来的奸细，已经清除掉了，现在群已恢复正常举报工作<br><br>RE: 【最后一击】网络需要清洁，网上语言应该真诚、健康、阳光，为社会提供友善启智的交流讨论平台。自从官方豢养、怂恿五毛这种怪胎以来，网络充满了谣言、阴谋、污言秽语、违心假话，对无冤无仇的良知人士喊打喊杀，纠缠咒骂，挑衅举报，定点清除，搞网络阶级斗争。五毛现象是社会变态毒瘤，必须消灭！<br><img src="http://ww2.sinaimg.cn/large/6b804b51jw1f2mo5ulggmj20ku0xan1y.jpg"></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3961408759235850" target="freeweibo-mirror">SPAM //@麻油古灯: 环球高级黑！//@张晨初艺术空间…</a>
 </h2>
