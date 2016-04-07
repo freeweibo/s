@@ -131,7 +131,7 @@
 </h2>
 <p>SPAM 丫头，记得活得漂亮~[心]<br><img src="http://ww1.sinaimg.cn/large/d7eb27e2gw1f2na13fhvdj20c811wq6t.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3961442996624989" target="freeweibo-mirror">SPAM 【带路调研】扼守海上丝绸之路要冲 海南肩头任务重 …</a>
 </h2>
