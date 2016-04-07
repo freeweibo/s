@@ -23,7 +23,7 @@
 </h2>
 <p>真的吗？ //@我叫方放://@伟荣V实说://@老常_83637: 转发微博<br><br>RE: 中国好姐夫</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3961562508579918" target="freeweibo-mirror">中国好姐夫</a>
 </h2>
