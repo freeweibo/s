@@ -23,7 +23,7 @@
 </h2>
 <p>//@高小曜://@不吸烟的男人11: //@柳梢上的明月://@九钻女王://@沙滩五月花: //@孤独的狼7777:转发微博<br><br>RE: 分享图片<br><img src="http://ww2.sinaimg.cn/large/006oICx0jw1f2nepjlxjej30qo5wrb29.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3961535703212996" target="freeweibo-mirror">受教！[作揖] //@安普若-外号安校长://@洪平凡_Pi…</a>
 </h2>
@@ -66,6 +66,12 @@
 <p>【印度下令调查】北欧雷克雅维克因隐瞒财产被揭两天就辞职。民主政体监督是灵敏的。这也是弄权贪官、五毛奴才拼命咒骂民主政体、害怕社会民主化的原因。五毛是贪官的保护伞。 http://t.cn/RqbRwPNhttp://3g.163.com/touch/article.html?channel=news&docid=BK0TOBPD00014AED<br><img src="http://ww2.sinaimg.cn/large/6b804b51jw1f2nqrnzd7oj20il0iwwgr.jpg"></p>
 <p>
 	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3961511187533463" target="freeweibo-mirror">毛泽东外孙女孔东梅亦涉“运河泄密事件”</a>
+</h2>
+<p>毛泽东外孙女孔东梅亦涉“运河泄密事件”</p>
+<p>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3961471546974915" target="freeweibo-mirror">SPAM Hi，大家好[微笑]因为特地为美瞳开了个号@Pan…</a>
 </h2>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3961392790894818" target="freeweibo-mirror">扬太皇之威！//@中一在线:救援的关键时刻还争权夺利？ //…</a>
 </h2>
 <p>扬太皇之威！//@中一在线:救援的关键时刻还争权夺利？ //@哲镛:呵呵…//@刘仰:如果郭伯雄不是腐败分子……<br><br>RE: 【总理欲亲自空投，被郭伯熊假惺惺劝阻】地震发生的第三天，进入汶川的路仍未打通，温向将军们要求：“把我空投进去！”大家一致劝阻，温坚持要去，将军们把情况报给了郭，郭表示：“一，有的直升机不是很可靠；二，天气不适宜飞……。”最后通过做总理秘书的工作才说服了温 http://t.cn/RqbtKrP<br><img src="http://ww1.sinaimg.cn/large/66b822e6gw1f2n93fyjlgj20dw09xt9h.jpg"></p>
-<p>
-	<small> ============== 11小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3961391813790498" target="freeweibo-mirror">[doge][doge][doge][doge]</a>
-</h2>
-<p>[doge][doge][doge][doge]<br><br>RE: 刚刚在校外儿童摇摆机听到的歌，请问叫什么名字？“爸爸的爸爸叫爷爷；爸爸的妈妈叫奶奶。 妈妈的爸爸叫外公；妈妈的妈妈叫外婆。 哥哥的老婆叫嫂子，姐姐的老公叫 姐夫 。”</p>
 <p>
 	<small> ============== 11小时前</small>
 </p>
