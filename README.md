@@ -41,7 +41,7 @@
 </h2>
 <p>SPAM BBC的女主持，很了解天朝的。//@IYALAN: //@胡淑芬:必须辟谣还小舅子一个清白。//@夏商茶席:bbc又在造谣[哼]//@陈业文新大都: BBC真敢说。</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3961616388951405" target="freeweibo-mirror">回复@余鑫2018:扯淡，避税犯法吗。 //@余鑫2018:…</a>
 </h2>
@@ -101,13 +101,19 @@
 </h2>
 <p>SPAM [怒]可恶的BBC,就知道抹黑中国…～ http://t.cn/RqGhWJy</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3961596684207283" target="freeweibo-mirror">SPAM </a>
 </h2>
 <p>SPAM </p>
 <p>
 	<small> ============== 4小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3961585951388389" target="freeweibo-mirror">巴拿马事件不应忽视，中国政府应该进行调查，那些是合法的商业行…</a>
+</h2>
+<p>巴拿马事件不应忽视，中国政府应该进行调查，那些是合法的商业行为，那些是违反法律法规的要调查清楚，涉及到的人无论是什么高官权贵，违反党纪了要处理，违反法律了要判刑。</p>
+<p>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3961581597796944" target="freeweibo-mirror">真的吗？ //@我叫方放://@伟荣V实说://@老常_83…</a>
 </h2>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3961546642093281" target="freeweibo-mirror">SPAM  //@章诒和://@刘军宁: 中国纵览 //@光…</a>
 </h2>
 <p>SPAM  //@章诒和://@刘军宁: 中国纵览 //@光明在黑暗: //@肖62雪慧:某姐夫照片呢？ //@白帽_青衫: //@神龙士1971: //@爱新觉罗载勋:[阴险][阴险][阴险] //@孙愿平-: [吃惊]<br><br>RE: 分享图片<br><img src="http://ww2.sinaimg.cn/large/006oICx0jw1f2nepjlxjej30qo5wrb29.jpg"></p>
-<p>
-	<small> ============== 7小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3961545870634295" target="freeweibo-mirror">拼爹时代已过，现在拼小舅子 //@陈业文新大都:[钟] //…</a>
-</h2>
-<p>拼爹时代已过，现在拼小舅子 //@陈业文新大都:[钟] //@后现代派小说家童牧野:[钟]<br><br>RE: 【冰岛总理宣布辞职 被曝涉嫌用海外公司隐藏资产】因为被爆涉嫌利用海外公司隐藏资产，冰岛总理京勒伊格松受到各方批评，在“坚守”两天之后，于5日宣布辞职，成为丑闻曝光后受影响的第一张多米诺骨牌。看来，媒体的力量不容小视，不知道哪一国的谁还会跟着倒下？<br><img src="http://ww1.sinaimg.cn/large/562f4083gw1f2nb28a3dhj20j60d4adf.jpg"></p>
 <p>
 	<small> ============== 7小时前</small>
 </p>
