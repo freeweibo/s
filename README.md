@@ -25,11 +25,17 @@
 <p>
 	<small> ============== 1小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3961615876927181" target="freeweibo-mirror">SPAM [笑cry] //@沈阳张晶://@华星高军://…</a>
+</h2>
+<p>SPAM [笑cry] //@沈阳张晶://@华星高军://@陈业文新大都:BBC真敢说。//@狐哥归来: //@l鑫鑫鑫l: //@戴刚米://@赞美诗6201: 对！我们不做评论[耶]//@易名一博://@独狼血恨134: [围观][围观][围观]//@禾厶享宀: 让这视频满屏飞·····[话筒][话筒][话筒][围观][围观][围观]</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3961614275953307" target="freeweibo-mirror">SPAM //@陈业文新大都: BBC真敢说。//@狐哥归来…</a>
 </h2>
 <p>SPAM //@陈业文新大都: BBC真敢说。//@狐哥归来: //@l鑫鑫鑫l: //@戴刚米://@赞美诗6201: 对！我们不做评论[耶]//@易名一博://@独狼血恨134: [围观][围观][围观]//@禾厶享宀: 让这视频满屏飞·····[话筒][话筒][话筒][围观][围观][围观]</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3961613847375132" target="freeweibo-mirror">SPAM 必须辟谣还小舅子一个清白。//@夏商茶席:bbc又…</a>
 </h2>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3961535116343424" target="freeweibo-mirror">不是说是谣言吗？辞什么职啊？ //@梦与天杰:搜刮民脂民膏坑…</a>
 </h2>
 <p>不是说是谣言吗？辞什么职啊？ //@梦与天杰:搜刮民脂民膏坑老百姓血汗钱的贪官罪恶滔天，若百姓办实事也好，可他们却变本加厉，不拉动内销就算了还掏空国库转移巨额财产带动他国经济，是可忍孰不可忍。房价降不下来的原因是因为他们拥有大量房产//@陈有西:豢养五毛就是为了搅混水掩盖真相，防止人民听<br><br>RE: 【印度下令调查】北欧雷克雅维克因隐瞒财产被揭两天就辞职。民主政体监督是灵敏的。这也是弄权贪官、五毛奴才拼命咒骂民主政体、害怕社会民主化的原因。五毛是贪官的保护伞。 http://t.cn/RqbRwPNhttp://3g.163.com/touch/article.html?channel=news&docid=BK0TOBPD00014AED<br><img src="http://ww2.sinaimg.cn/large/6b804b51jw1f2nqrnzd7oj20il0iwwgr.jpg"></p>
-<p>
-	<small> ============== 7小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3961532184552485" target="freeweibo-mirror">这就是民主和独裁的区别 //@皮尔当人://@高小曜://@…</a>
-</h2>
-<p>这就是民主和独裁的区别 //@皮尔当人://@高小曜://@快乐卫哥: 冰岛的辞职了，印度也认了，还有某些国家打死不认账。<br><br>RE: 【印度下令调查】北欧雷克雅维克因隐瞒财产被揭两天就辞职。民主政体监督是灵敏的。这也是弄权贪官、五毛奴才拼命咒骂民主政体、害怕社会民主化的原因。五毛是贪官的保护伞。 http://t.cn/RqbRwPNhttp://3g.163.com/touch/article.html?channel=news&docid=BK0TOBPD00014AED<br><img src="http://ww2.sinaimg.cn/large/6b804b51jw1f2nqrnzd7oj20il0iwwgr.jpg"></p>
 <p>
 	<small> ============== 7小时前</small>
 </p>
