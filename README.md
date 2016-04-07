@@ -29,7 +29,7 @@
 </h2>
 <p>中国好姐夫</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3961546642093281" target="freeweibo-mirror">SPAM  //@章诒和://@刘军宁: 中国纵览 //@光…</a>
 </h2>
@@ -83,13 +83,13 @@
 </h2>
 <p>这就是民主和独裁的区别 //@皮尔当人://@高小曜://@快乐卫哥: 冰岛的辞职了，印度也认了，还有某些国家打死不认账。<br><br>RE: 【印度下令调查】北欧雷克雅维克因隐瞒财产被揭两天就辞职。民主政体监督是灵敏的。这也是弄权贪官、五毛奴才拼命咒骂民主政体、害怕社会民主化的原因。五毛是贪官的保护伞。 http://t.cn/RqbRwPNhttp://3g.163.com/touch/article.html?channel=news&docid=BK0TOBPD00014AED<br><img src="http://ww2.sinaimg.cn/large/6b804b51jw1f2nqrnzd7oj20il0iwwgr.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3961532176161136" target="freeweibo-mirror">//@律师文摘://@锚止观海://@钟老汉://@陈有西:…</a>
 </h2>
 <p>//@律师文摘://@锚止观海://@钟老汉://@陈有西:豢养五毛就是为了搅混水掩盖真相，防止人民听到真实有力的声音。维持贪婪腐败和专制权谋。奴才不是白养的。//@少说多看19：贪官是五毛的保护伞，五毛就是奴才。<br><br>RE: 【印度下令调查】北欧雷克雅维克因隐瞒财产被揭两天就辞职。民主政体监督是灵敏的。这也是弄权贪官、五毛奴才拼命咒骂民主政体、害怕社会民主化的原因。五毛是贪官的保护伞。 http://t.cn/RqbRwPNhttp://3g.163.com/touch/article.html?channel=news&docid=BK0TOBPD00014AED<br><img src="http://ww2.sinaimg.cn/large/6b804b51jw1f2nqrnzd7oj20il0iwwgr.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3961531114733175" target="freeweibo-mirror">//@锚止观海://@钟老汉://@陈有西:豢养五毛就是为了…</a>
 </h2>
