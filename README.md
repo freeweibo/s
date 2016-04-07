@@ -29,7 +29,7 @@
 </h2>
 <p>【印度下令调查】北欧雷克雅维克因隐瞒财产被揭两天就辞职。民主政体监督是灵敏的。这也是弄权贪官、五毛奴才拼命咒骂民主政体、害怕社会民主化的原因。五毛是贪官的保护伞。 http://t.cn/RqbRwPNhttp://3g.163.com/touch/article.html?channel=news&docid=BK0TOBPD00014AED<br><img src="http://ww2.sinaimg.cn/large/6b804b51jw1f2nqrnzd7oj20il0iwwgr.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3961471546974915" target="freeweibo-mirror">SPAM Hi，大家好[微笑]因为特地为美瞳开了个号@Pan…</a>
 </h2>
