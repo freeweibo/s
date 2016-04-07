@@ -25,6 +25,12 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3961575293978251" target="freeweibo-mirror">“所谓腐败”的冰岛总理 夫妻的离岸公司Wintris用来管理…</a>
+</h2>
+<p>“所谓腐败”的冰岛总理 夫妻的离岸公司Wintris用来管理所获遗产，太太如实申报了海外收入。Wintris对三家冰岛银行有投资，后者在08金融危机中崩溃。总理参加过三家银行的善后谈判，没有证据表明他对海外投资人妥协。他错在没有及时披露自己的投资细节，说明潜在利益冲突。[挖鼻]道德高标则政治失能。<br><br>RE: 冰岛总理京勒伊格松第一个被那一大堆文件绊倒<br><img src="http://ww2.sinaimg.cn/large/4cd1c167jw1f2mmv5ak87j20r80kfwk1.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3961562508579918" target="freeweibo-mirror">中国好姐夫</a>
 </h2>
 <p>中国好姐夫</p>
@@ -132,12 +138,6 @@
 <p>SPAM 【带路调研】扼守海上丝绸之路要冲 海南肩头任务重 http://t.cn/Rq4nr1R<br><img src="http://ww2.sinaimg.cn/large/bc70fb59jw1f2nijyrmwbj20by0byjrz.jpg"></p>
 <p>
 	<small> ============== 11小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3961414282846026" target="freeweibo-mirror">//@法律人童朝平://@王楚襄在晋国: //@陈有西:胡毛…</a>
-</h2>
-<p>//@法律人童朝平://@王楚襄在晋国: //@陈有西:胡毛，告诉你，我从不派奸细，也没一个水军。从不做那种下三烂的事。至于你们有无找到反水投明者，以后告诉你。请继续。你会进行一步被扒皮。[弱]//@胡杨麟: 有西大叔，那@义勇军235 是你派来的奸细，已经清除掉了，现在群已恢复正常举报工作<br><br>RE: 【最后一击】网络需要清洁，网上语言应该真诚、健康、阳光，为社会提供友善启智的交流讨论平台。自从官方豢养、怂恿五毛这种怪胎以来，网络充满了谣言、阴谋、污言秽语、违心假话，对无冤无仇的良知人士喊打喊杀，纠缠咒骂，挑衅举报，定点清除，搞网络阶级斗争。五毛现象是社会变态毒瘤，必须消灭！<br><img src="http://ww2.sinaimg.cn/large/6b804b51jw1f2mo5ulggmj20ku0xan1y.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
 </p>
 <table>
     <tr>
