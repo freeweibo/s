@@ -19,6 +19,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3961535116343424" target="freeweibo-mirror">不是说是谣言吗？辞什么职啊？ //@梦与天杰:搜刮民脂民膏坑…</a>
+</h2>
+<p>不是说是谣言吗？辞什么职啊？ //@梦与天杰:搜刮民脂民膏坑老百姓血汗钱的贪官罪恶滔天，若百姓办实事也好，可他们却变本加厉，不拉动内销就算了还掏空国库转移巨额财产带动他国经济，是可忍孰不可忍。房价降不下来的原因是因为他们拥有大量房产//@陈有西:豢养五毛就是为了搅混水掩盖真相，防止人民听<br><br>RE: 【印度下令调查】北欧雷克雅维克因隐瞒财产被揭两天就辞职。民主政体监督是灵敏的。这也是弄权贪官、五毛奴才拼命咒骂民主政体、害怕社会民主化的原因。五毛是贪官的保护伞。 http://t.cn/RqbRwPNhttp://3g.163.com/touch/article.html?channel=news&docid=BK0TOBPD00014AED<br><img src="http://ww2.sinaimg.cn/large/6b804b51jw1f2nqrnzd7oj20il0iwwgr.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3961532184552485" target="freeweibo-mirror">这就是民主和独裁的区别 //@皮尔当人://@高小曜://@…</a>
 </h2>
 <p>这就是民主和独裁的区别 //@皮尔当人://@高小曜://@快乐卫哥: 冰岛的辞职了，印度也认了，还有某些国家打死不认账。<br><br>RE: 【印度下令调查】北欧雷克雅维克因隐瞒财产被揭两天就辞职。民主政体监督是灵敏的。这也是弄权贪官、五毛奴才拼命咒骂民主政体、害怕社会民主化的原因。五毛是贪官的保护伞。 http://t.cn/RqbRwPNhttp://3g.163.com/touch/article.html?channel=news&docid=BK0TOBPD00014AED<br><img src="http://ww2.sinaimg.cn/large/6b804b51jw1f2nqrnzd7oj20il0iwwgr.jpg"></p>
@@ -35,7 +41,7 @@
 </h2>
 <p>SPAM Hi，大家好[微笑]因为特地为美瞳开了个号@Panvci正品美瞳  所以我把这个号上的美瞳都删完啦，不过你们艾特我的买家秀我没舍得删[偷笑]这个微博以后就发发牢骚发发自拍发发彩妆教程发发装逼照片和发发财了，还有微信1⃣️2⃣️3⃣️4⃣️都满了，推荐朋友➕panvci5，然后想问下你"跟”了我几年了？<br><img src="http://ww2.sinaimg.cn/large/6a601c5fgw1f2nlstrvt2j20ku0r20vo.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3961445219830013" target="freeweibo-mirror">SPAM 丫头，记得活得漂亮~[心]</a>
 </h2>
@@ -125,19 +131,13 @@
 </h2>
 <p>仅仅是开始……<br><br>RE: 继泛亚e租宝出事后，今天上海中晋资产崩盘，带下去十多万投资者三百多亿资金。这种靠美女帅哥向个人投资者传销高息金融产品的事儿，往届政府都是以非法集资罪严打的，比如温相当年授意死缓吴英。可是到了本朝，监管部门在李相鼓励金融创新的号召下，不得不睁一眼闭一眼。天朝的事从来都是一放就乱。于...全文： http://m.weibo.cn/1989638280/3961342517697494<br><img src="http://ww1.sinaimg.cn/large/76977888jw1f2n70ijg15j20ch0m875x.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3961376441684821" target="freeweibo-mirror">SPAM 懦夫太多了，于是就期盼刺客。刺客死了，懦夫仍旧是懦…</a>
 </h2>
 <p>SPAM 懦夫太多了，于是就期盼刺客。刺客死了，懦夫仍旧是懦夫……<br><br>RE: 新写了一首短诗：懦夫<br><img src="http://ww2.sinaimg.cn/large/489ab6b0jw1f2n8avywcej20ri40gqhs.jpg"></p>
 <p>
 	<small> ============== 12小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3961370951505950" target="freeweibo-mirror">再说反腐那就是，逗你玩，逗你玩，逗你玩。</a>
-</h2>
-<p>再说反腐那就是，逗你玩，逗你玩，逗你玩。<br><img src="http://ww2.sinaimg.cn/large/005O7F2fjw1f2na8bmzzdj30ea0eeta4.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
 </p>
 <table>
     <tr>
