@@ -25,6 +25,12 @@
 <p>
 	<small> ============== 1小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3961535703212996" target="freeweibo-mirror">受教！[作揖] //@安普若-外号安校长://@洪平凡_Pi…</a>
+</h2>
+<p>受教！[作揖] //@安普若-外号安校长://@洪平凡_Pingfan_Hong: 为什么中文把“tax haven"翻译成“避税天堂”。“haven”是“避风港”，“heaven”才是“天堂”。正确的译法应该是“避税港”。很可能是哪位翻译最初误把“haven”当“heaven”，后来以讹传讹。 //@钟鸿钧:转发微博<br><br>RE: 就因为一些“捕风捉影的东西”，大英帝国的媒体对自己的首相和首相他爹穷追猛打，这是闹哪样啊！？[思考]<br><img src="http://ww1.sinaimg.cn/large/8036648djw1f2mh5vz395j20qo0zvq93.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3961535116343424" target="freeweibo-mirror">不是说是谣言吗？辞什么职啊？ //@梦与天杰:搜刮民脂民膏坑…</a>
 </h2>
 <p>不是说是谣言吗？辞什么职啊？ //@梦与天杰:搜刮民脂民膏坑老百姓血汗钱的贪官罪恶滔天，若百姓办实事也好，可他们却变本加厉，不拉动内销就算了还掏空国库转移巨额财产带动他国经济，是可忍孰不可忍。房价降不下来的原因是因为他们拥有大量房产//@陈有西:豢养五毛就是为了搅混水掩盖真相，防止人民听<br><br>RE: 【印度下令调查】北欧雷克雅维克因隐瞒财产被揭两天就辞职。民主政体监督是灵敏的。这也是弄权贪官、五毛奴才拼命咒骂民主政体、害怕社会民主化的原因。五毛是贪官的保护伞。 http://t.cn/RqbRwPNhttp://3g.163.com/touch/article.html?channel=news&docid=BK0TOBPD00014AED<br><img src="http://ww2.sinaimg.cn/large/6b804b51jw1f2nqrnzd7oj20il0iwwgr.jpg"></p>
@@ -37,11 +43,23 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3961532176161136" target="freeweibo-mirror">//@律师文摘://@锚止观海://@钟老汉://@陈有西:…</a>
+</h2>
+<p>//@律师文摘://@锚止观海://@钟老汉://@陈有西:豢养五毛就是为了搅混水掩盖真相，防止人民听到真实有力的声音。维持贪婪腐败和专制权谋。奴才不是白养的。//@少说多看19：贪官是五毛的保护伞，五毛就是奴才。<br><br>RE: 【印度下令调查】北欧雷克雅维克因隐瞒财产被揭两天就辞职。民主政体监督是灵敏的。这也是弄权贪官、五毛奴才拼命咒骂民主政体、害怕社会民主化的原因。五毛是贪官的保护伞。 http://t.cn/RqbRwPNhttp://3g.163.com/touch/article.html?channel=news&docid=BK0TOBPD00014AED<br><img src="http://ww2.sinaimg.cn/large/6b804b51jw1f2nqrnzd7oj20il0iwwgr.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3961531114733175" target="freeweibo-mirror">//@锚止观海://@钟老汉://@陈有西:豢养五毛就是为了…</a>
 </h2>
 <p>//@锚止观海://@钟老汉://@陈有西:豢养五毛就是为了搅混水掩盖真相，防止人民听到真实有力的声音。维持贪婪腐败和专制权谋。奴才不是白养的。//@少说多看19：贪官是五毛的保护伞，五毛就是奴才。<br><br>RE: 【印度下令调查】北欧雷克雅维克因隐瞒财产被揭两天就辞职。民主政体监督是灵敏的。这也是弄权贪官、五毛奴才拼命咒骂民主政体、害怕社会民主化的原因。五毛是贪官的保护伞。 http://t.cn/RqbRwPNhttp://3g.163.com/touch/article.html?channel=news&docid=BK0TOBPD00014AED<br><img src="http://ww2.sinaimg.cn/large/6b804b51jw1f2nqrnzd7oj20il0iwwgr.jpg"></p>
 <p>
 	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3961516740681532" target="freeweibo-mirror">//@儒林泊客:[嘻嘻][嘻嘻]，差不多齐了</a>
+</h2>
+<p>//@儒林泊客:[嘻嘻][嘻嘻]，差不多齐了<br><br>RE: 毛泽东外孙女孔东梅亦涉“运河泄密事件”</p>
+<p>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3961514530888719" target="freeweibo-mirror">【印度下令调查】北欧雷克雅维克因隐瞒财产被揭两天就辞职。民主…</a>
 </h2>
@@ -95,7 +113,7 @@
 </h2>
 <p>SPAM 胡总编告诉了我们一个网上找不到的东西。。。</p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3961400352753104" target="freeweibo-mirror">//@华南风向标: //@夙生律师事务所://@无肉不欢91…</a>
 </h2>
@@ -120,24 +138,6 @@
 <p>[doge][doge][doge][doge]<br><br>RE: 刚刚在校外儿童摇摆机听到的歌，请问叫什么名字？“爸爸的爸爸叫爷爷；爸爸的妈妈叫奶奶。 妈妈的爸爸叫外公；妈妈的妈妈叫外婆。 哥哥的老婆叫嫂子，姐姐的老公叫 姐夫 。”</p>
 <p>
 	<small> ============== 11小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3961389322536721" target="freeweibo-mirror">//@夙生律师事务所: //@乐好132: //@NATO东…</a>
-</h2>
-<p>//@夙生律师事务所: //@乐好132: //@NATO东方不败: 转发微博<br><br>RE: 分享图片 http://t.cn/R2WiQ4m<br><img src="http://ww2.sinaimg.cn/large/0068zFaqgw1f2m1lbr0kgj30u01hc1kx.jpg"></p>
-<p>
-	<small> ============== 11小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3961386311139906" target="freeweibo-mirror">SPAM 这篇文章可以看看，看他怎么写？</a>
-</h2>
-<p>SPAM 这篇文章可以看看，看他怎么写？</p>
-<p>
-	<small> ============== 12小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3961385257903078" target="freeweibo-mirror">SPAM 这次，我必须，为《环球时报》点赞！为胡锡进点赞！</a>
-</h2>
-<p>SPAM 这次，我必须，为《环球时报》点赞！为胡锡进点赞！<br><img src="http://ww1.sinaimg.cn/large/6cefc1a7jw1f2nbvt5ifkj20j609mju7.jpg"></p>
-<p>
-	<small> ============== 12小时前</small>
 </p>
 <table>
     <tr>
