@@ -95,7 +95,7 @@
 </h2>
 <p>姐 夫？？？？？？<br><img src="http://ww2.sinaimg.cn/large/006lZd66gw1f2od26aggnj307809gt8y.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3961702372327181" target="freeweibo-mirror">//@天快亮了2022: //@法律及其价值://@50年矛…</a>
 </h2>
