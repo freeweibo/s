@@ -71,7 +71,7 @@
 </h2>
 <p>SPAM bbc在胡说八道//@岛主唐的日常:哈哈哈，一定要转发让大家看透BBC的丑恶面目//@羊山踞仕: BBC实在太可恶了</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3961602447813007" target="freeweibo-mirror">SPAM [怒]可恶的BBC,就知道抹黑中国…～ http:…</a>
 </h2>
@@ -107,7 +107,7 @@
 </h2>
 <p>SPAM  //@章诒和://@刘军宁: 中国纵览 //@光明在黑暗: //@肖62雪慧:某姐夫照片呢？ //@白帽_青衫: //@神龙士1971: //@爱新觉罗载勋:[阴险][阴险][阴险] //@孙愿平-: [吃惊]<br><br>RE: 分享图片<br><img src="http://ww2.sinaimg.cn/large/006oICx0jw1f2nepjlxjej30qo5wrb29.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3961545870634295" target="freeweibo-mirror">拼爹时代已过，现在拼小舅子 //@陈业文新大都:[钟] //…</a>
 </h2>
