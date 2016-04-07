@@ -23,7 +23,7 @@
 </h2>
 <p>SPAM BBC的女主持，很了解天朝的。//@IYALAN: //@胡淑芬:必须辟谣还小舅子一个清白。//@夏商茶席:bbc又在造谣[哼]//@陈业文新大都: BBC真敢说。</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3961615876927181" target="freeweibo-mirror">SPAM [笑cry] //@沈阳张晶://@华星高军://…</a>
 </h2>
@@ -77,7 +77,7 @@
 </h2>
 <p>SPAM [怒]可恶的BBC,就知道抹黑中国…～ http://t.cn/RqGhWJy</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3961596684207283" target="freeweibo-mirror">SPAM </a>
 </h2>
@@ -137,7 +137,7 @@
 </h2>
 <p>//@高小曜://@不吸烟的男人11: //@柳梢上的明月://@九钻女王://@沙滩五月花: //@孤独的狼7777:转发微博<br><br>RE: 分享图片<br><img src="http://ww2.sinaimg.cn/large/006oICx0jw1f2nepjlxjej30qo5wrb29.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p>
 <table>
     <tr>
