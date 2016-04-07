@@ -19,6 +19,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3961532184552485" target="freeweibo-mirror">这就是民主和独裁的区别 //@皮尔当人://@高小曜://@…</a>
+</h2>
+<p>这就是民主和独裁的区别 //@皮尔当人://@高小曜://@快乐卫哥: 冰岛的辞职了，印度也认了，还有某些国家打死不认账。<br><br>RE: 【印度下令调查】北欧雷克雅维克因隐瞒财产被揭两天就辞职。民主政体监督是灵敏的。这也是弄权贪官、五毛奴才拼命咒骂民主政体、害怕社会民主化的原因。五毛是贪官的保护伞。 http://t.cn/RqbRwPNhttp://3g.163.com/touch/article.html?channel=news&docid=BK0TOBPD00014AED<br><img src="http://ww2.sinaimg.cn/large/6b804b51jw1f2nqrnzd7oj20il0iwwgr.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3961471546974915" target="freeweibo-mirror">SPAM Hi，大家好[微笑]因为特地为美瞳开了个号@Pan…</a>
 </h2>
 <p>SPAM Hi，大家好[微笑]因为特地为美瞳开了个号@Panvci正品美瞳  所以我把这个号上的美瞳都删完啦，不过你们艾特我的买家秀我没舍得删[偷笑]这个微博以后就发发牢骚发发自拍发发彩妆教程发发装逼照片和发发财了，还有微信1⃣️2⃣️3⃣️4⃣️都满了，推荐朋友➕panvci5，然后想问下你"跟”了我几年了？<br><img src="http://ww2.sinaimg.cn/large/6a601c5fgw1f2nlstrvt2j20ku0r20vo.jpg"></p>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3961370346735342" target="freeweibo-mirror">SPAM 有时候懦弱的转发一条微博都不敢加评论。</a>
 </h2>
 <p>SPAM 有时候懦弱的转发一条微博都不敢加评论。<br><br>RE: 新写了一首短诗：懦夫<br><img src="http://ww2.sinaimg.cn/large/489ab6b0jw1f2n8avywcej20ri40gqhs.jpg"></p>
-<p>
-	<small> ============== 12小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3961368527309271" target="freeweibo-mirror">今天的五毛，早巳经不限于经济属性。这是一群破坏改革开放、摧毁…</a>
-</h2>
-<p>今天的五毛，早巳经不限于经济属性。这是一群破坏改革开放、摧毁社会良知、蛊惑误导青年、鼓吹专制奴役、致力愚民反智、将入世未深的青年人，引入害人复自害可悲境况的流氓恶势力。是国家意识形态建设走入岐途的典型现象。摧毁收拾五毛是迟早的事，这也是现在绝大多数五毛不敢实名的原因。<br><img src="http://ww2.sinaimg.cn/large/6b804b51gw1f2n9zi9i8oj20k00zkwj4.jpg"></p>
 <p>
 	<small> ============== 12小时前</small>
 </p>
