@@ -71,13 +71,13 @@
 </h2>
 <p>受教！[作揖] //@安普若-外号安校长://@洪平凡_Pingfan_Hong: 为什么中文把“tax haven"翻译成“避税天堂”。“haven”是“避风港”，“heaven”才是“天堂”。正确的译法应该是“避税港”。很可能是哪位翻译最初误把“haven”当“heaven”，后来以讹传讹。 //@钟鸿钧:转发微博<br><br>RE: 就因为一些“捕风捉影的东西”，大英帝国的媒体对自己的首相和首相他爹穷追猛打，这是闹哪样啊！？[思考]<br><img src="http://ww1.sinaimg.cn/large/8036648djw1f2mh5vz395j20qo0zvq93.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3961535116343424" target="freeweibo-mirror">不是说是谣言吗？辞什么职啊？ //@梦与天杰:搜刮民脂民膏坑…</a>
 </h2>
 <p>不是说是谣言吗？辞什么职啊？ //@梦与天杰:搜刮民脂民膏坑老百姓血汗钱的贪官罪恶滔天，若百姓办实事也好，可他们却变本加厉，不拉动内销就算了还掏空国库转移巨额财产带动他国经济，是可忍孰不可忍。房价降不下来的原因是因为他们拥有大量房产//@陈有西:豢养五毛就是为了搅混水掩盖真相，防止人民听<br><br>RE: 【印度下令调查】北欧雷克雅维克因隐瞒财产被揭两天就辞职。民主政体监督是灵敏的。这也是弄权贪官、五毛奴才拼命咒骂民主政体、害怕社会民主化的原因。五毛是贪官的保护伞。 http://t.cn/RqbRwPNhttp://3g.163.com/touch/article.html?channel=news&docid=BK0TOBPD00014AED<br><img src="http://ww2.sinaimg.cn/large/6b804b51jw1f2nqrnzd7oj20il0iwwgr.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3961532184552485" target="freeweibo-mirror">这就是民主和独裁的区别 //@皮尔当人://@高小曜://@…</a>
 </h2>
@@ -125,7 +125,7 @@
 </h2>
 <p>SPAM 丫头，记得活得漂亮~[心]<br><img src="http://ww1.sinaimg.cn/large/d7eb27e2gw1f2na13fhvdj20c811wq6t.jpg"></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3961442996624989" target="freeweibo-mirror">SPAM 【带路调研】扼守海上丝绸之路要冲 海南肩头任务重 …</a>
 </h2>
