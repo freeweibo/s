@@ -31,6 +31,12 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3961543555662785" target="freeweibo-mirror">//@天蝎黄世旭:没看懂！//@jimin552014:有正…</a>
+</h2>
+<p>//@天蝎黄世旭:没看懂！//@jimin552014:有正常就有不正常，在不正常的环境里生活了几个世纪 人类，走出国门后才发现自己的国家不正常，这很”正常“！//@乡下闲人75: //@北京厨子新号:转发微博</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3961541495492678" target="freeweibo-mirror">//@高小曜://@不吸烟的男人11: //@柳梢上的明月:…</a>
 </h2>
 <p>//@高小曜://@不吸烟的男人11: //@柳梢上的明月://@九钻女王://@沙滩五月花: //@孤独的狼7777:转发微博<br><br>RE: 分享图片<br><img src="http://ww2.sinaimg.cn/large/006oICx0jw1f2nepjlxjej30qo5wrb29.jpg"></p>
@@ -53,7 +59,7 @@
 </h2>
 <p>这就是民主和独裁的区别 //@皮尔当人://@高小曜://@快乐卫哥: 冰岛的辞职了，印度也认了，还有某些国家打死不认账。<br><br>RE: 【印度下令调查】北欧雷克雅维克因隐瞒财产被揭两天就辞职。民主政体监督是灵敏的。这也是弄权贪官、五毛奴才拼命咒骂民主政体、害怕社会民主化的原因。五毛是贪官的保护伞。 http://t.cn/RqbRwPNhttp://3g.163.com/touch/article.html?channel=news&docid=BK0TOBPD00014AED<br><img src="http://ww2.sinaimg.cn/large/6b804b51jw1f2nqrnzd7oj20il0iwwgr.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3961532176161136" target="freeweibo-mirror">//@律师文摘://@锚止观海://@钟老汉://@陈有西:…</a>
 </h2>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3961404945820355" target="freeweibo-mirror">SPAM 胡总编告诉了我们一个网上找不到的东西。。。</a>
 </h2>
 <p>SPAM 胡总编告诉了我们一个网上找不到的东西。。。</p>
-<p>
-	<small> ============== 11小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3961400352753104" target="freeweibo-mirror">//@华南风向标: //@夙生律师事务所://@无肉不欢91…</a>
-</h2>
-<p>//@华南风向标: //@夙生律师事务所://@无肉不欢911: //@大道圣人15: //@酒醚醇香V: //@淡定鸭: //@灰色的伞: 一直都在逗你玩……<br><br>RE: 再说反腐那就是，逗你玩，逗你玩，逗你玩。<br><img src="http://ww2.sinaimg.cn/large/005O7F2fjw1f2na8bmzzdj30ea0eeta4.jpg"></p>
 <p>
 	<small> ============== 11小时前</small>
 </p>
