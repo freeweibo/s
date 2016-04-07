@@ -23,7 +23,7 @@
 </h2>
 <p>SPAM 贾大户[哈哈]<br><br>RE: 在北京待过的人没有人不相信贾是超级富翁，静静的看你们打虎。[阴险]</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3961773863779383" target="freeweibo-mirror">//@jlijames: 这还不够别有用心啊？[晕] //@…</a>
 </h2>
@@ -95,7 +95,7 @@
 </h2>
 <p>//@老關再來: //@东方之剑2:转发微博<br><br>RE: 姐 夫？？？？？？<br><img src="http://ww2.sinaimg.cn/large/006lZd66gw1f2od26aggnj307809gt8y.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3961708650874452" target="freeweibo-mirror">姐 夫？？？？？？</a>
 </h2>
