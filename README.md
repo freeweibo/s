@@ -19,6 +19,18 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3961546642093281" target="freeweibo-mirror">SPAM  //@章诒和://@刘军宁: 中国纵览 //@光…</a>
+</h2>
+<p>SPAM  //@章诒和://@刘军宁: 中国纵览 //@光明在黑暗: //@肖62雪慧:某姐夫照片呢？ //@白帽_青衫: //@神龙士1971: //@爱新觉罗载勋:[阴险][阴险][阴险] //@孙愿平-: [吃惊]<br><br>RE: 分享图片<br><img src="http://ww2.sinaimg.cn/large/006oICx0jw1f2nepjlxjej30qo5wrb29.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3961545870634295" target="freeweibo-mirror">拼爹时代已过，现在拼小舅子 //@陈业文新大都:[钟] //…</a>
+</h2>
+<p>拼爹时代已过，现在拼小舅子 //@陈业文新大都:[钟] //@后现代派小说家童牧野:[钟]<br><br>RE: 【冰岛总理宣布辞职 被曝涉嫌用海外公司隐藏资产】因为被爆涉嫌利用海外公司隐藏资产，冰岛总理京勒伊格松受到各方批评，在“坚守”两天之后，于5日宣布辞职，成为丑闻曝光后受影响的第一张多米诺骨牌。看来，媒体的力量不容小视，不知道哪一国的谁还会跟着倒下？<br><img src="http://ww1.sinaimg.cn/large/562f4083gw1f2nb28a3dhj20j60d4adf.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3961541495492678" target="freeweibo-mirror">//@高小曜://@不吸烟的男人11: //@柳梢上的明月:…</a>
 </h2>
 <p>//@高小曜://@不吸烟的男人11: //@柳梢上的明月://@九钻女王://@沙滩五月花: //@孤独的狼7777:转发微博<br><br>RE: 分享图片<br><img src="http://ww2.sinaimg.cn/large/006oICx0jw1f2nepjlxjej30qo5wrb29.jpg"></p>
@@ -65,7 +77,7 @@
 </h2>
 <p>【印度下令调查】北欧雷克雅维克因隐瞒财产被揭两天就辞职。民主政体监督是灵敏的。这也是弄权贪官、五毛奴才拼命咒骂民主政体、害怕社会民主化的原因。五毛是贪官的保护伞。 http://t.cn/RqbRwPNhttp://3g.163.com/touch/article.html?channel=news&docid=BK0TOBPD00014AED<br><img src="http://ww2.sinaimg.cn/large/6b804b51jw1f2nqrnzd7oj20il0iwwgr.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3961511187533463" target="freeweibo-mirror">毛泽东外孙女孔东梅亦涉“运河泄密事件”</a>
 </h2>
@@ -126,18 +138,6 @@
 <p>//@华南风向标: //@夙生律师事务所://@无肉不欢911: //@大道圣人15: //@酒醚醇香V: //@淡定鸭: //@灰色的伞: 一直都在逗你玩……<br><br>RE: 再说反腐那就是，逗你玩，逗你玩，逗你玩。<br><img src="http://ww2.sinaimg.cn/large/005O7F2fjw1f2na8bmzzdj30ea0eeta4.jpg"></p>
 <p>
 	<small> ============== 11小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3961398503965715" target="freeweibo-mirror">SPAM 同点 //@胡坤821:同点！</a>
-</h2>
-<p>SPAM 同点 //@胡坤821:同点！</p>
-<p>
-	<small> ============== 11小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3961392790894818" target="freeweibo-mirror">扬太皇之威！//@中一在线:救援的关键时刻还争权夺利？ //…</a>
-</h2>
-<p>扬太皇之威！//@中一在线:救援的关键时刻还争权夺利？ //@哲镛:呵呵…//@刘仰:如果郭伯雄不是腐败分子……<br><br>RE: 【总理欲亲自空投，被郭伯熊假惺惺劝阻】地震发生的第三天，进入汶川的路仍未打通，温向将军们要求：“把我空投进去！”大家一致劝阻，温坚持要去，将军们把情况报给了郭，郭表示：“一，有的直升机不是很可靠；二，天气不适宜飞……。”最后通过做总理秘书的工作才说服了温 http://t.cn/RqbtKrP<br><img src="http://ww1.sinaimg.cn/large/66b822e6gw1f2n93fyjlgj20dw09xt9h.jpg"></p>
-<p>
-	<small> ============== 12小时前</small>
 </p>
 <table>
     <tr>
