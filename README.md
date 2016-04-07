@@ -19,6 +19,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3961541495492678" target="freeweibo-mirror">//@高小曜://@不吸烟的男人11: //@柳梢上的明月:…</a>
+</h2>
+<p>//@高小曜://@不吸烟的男人11: //@柳梢上的明月://@九钻女王://@沙滩五月花: //@孤独的狼7777:转发微博<br><br>RE: 分享图片<br><img src="http://ww2.sinaimg.cn/large/006oICx0jw1f2nepjlxjej30qo5wrb29.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3961535116343424" target="freeweibo-mirror">不是说是谣言吗？辞什么职啊？ //@梦与天杰:搜刮民脂民膏坑…</a>
 </h2>
 <p>不是说是谣言吗？辞什么职啊？ //@梦与天杰:搜刮民脂民膏坑老百姓血汗钱的贪官罪恶滔天，若百姓办实事也好，可他们却变本加厉，不拉动内销就算了还掏空国库转移巨额财产带动他国经济，是可忍孰不可忍。房价降不下来的原因是因为他们拥有大量房产//@陈有西:豢养五毛就是为了搅混水掩盖真相，防止人民听<br><br>RE: 【印度下令调查】北欧雷克雅维克因隐瞒财产被揭两天就辞职。民主政体监督是灵敏的。这也是弄权贪官、五毛奴才拼命咒骂民主政体、害怕社会民主化的原因。五毛是贪官的保护伞。 http://t.cn/RqbRwPNhttp://3g.163.com/touch/article.html?channel=news&docid=BK0TOBPD00014AED<br><img src="http://ww2.sinaimg.cn/large/6b804b51jw1f2nqrnzd7oj20il0iwwgr.jpg"></p>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3961385257903078" target="freeweibo-mirror">SPAM 这次，我必须，为《环球时报》点赞！为胡锡进点赞！</a>
 </h2>
 <p>SPAM 这次，我必须，为《环球时报》点赞！为胡锡进点赞！<br><img src="http://ww1.sinaimg.cn/large/6cefc1a7jw1f2nbvt5ifkj20j609mju7.jpg"></p>
-<p>
-	<small> ============== 12小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3961380631668557" target="freeweibo-mirror">仅仅是开始……</a>
-</h2>
-<p>仅仅是开始……<br><br>RE: 继泛亚e租宝出事后，今天上海中晋资产崩盘，带下去十多万投资者三百多亿资金。这种靠美女帅哥向个人投资者传销高息金融产品的事儿，往届政府都是以非法集资罪严打的，比如温相当年授意死缓吴英。可是到了本朝，监管部门在李相鼓励金融创新的号召下，不得不睁一眼闭一眼。天朝的事从来都是一放就乱。于...全文： http://m.weibo.cn/1989638280/3961342517697494<br><img src="http://ww1.sinaimg.cn/large/76977888jw1f2n70ijg15j20ch0m875x.jpg"></p>
 <p>
 	<small> ============== 12小时前</small>
 </p>
