@@ -113,7 +113,7 @@
 </h2>
 <p>//@陈光武律师: //@吐槽曝料: 第一次看到官微这么说话，你确定没被盗号？[偷笑]//@厦门打黑在线:回复@吐槽曝料:不严肃查处，无法给社会一个交代！   http://t.cn/Rq5hXjB<br><br>RE: #吐槽曝料# 网曝漳浦女警察张志珍醉酒暴打小区保安，是个老人！[怒] 今天头条新闻都是你！！！车牌号：闽D NY651。 当事人：张志珍。 所属单位：行政服务中心户政科科长。 事件：用高跟鞋打富丽保安！被打的头破血流！！！[吃惊] via@漳州那些事   http://t.cn/Rqq0ghE<br><img src="http://ww2.sinaimg.cn/large/bfc688c8gw1f2oz2ghhcqj20hs0vkmzr.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3961927145136494" target="freeweibo-mirror">SPAM #Sephora八五折# 今年是color cor…</a>
 </h2>
