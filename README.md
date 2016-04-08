@@ -131,7 +131,7 @@
 </h2>
 <p>猪国梦：删无赦！[挖鼻]<br><img src="http://ww2.sinaimg.cn/large/006fm4bUgw1f2p92wlglxj30qo0zkgny.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3961985504435094" target="freeweibo-mirror">SPAM //@马仙家:。。。//@路更强1: 互撕的漂亮/…</a>
 </h2>
