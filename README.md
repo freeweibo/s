@@ -35,7 +35,7 @@
 </h2>
 <p>SPAM 外交部终于对.....表态...... //@天地律师:[吃惊] //@汉商天民: //@山高路远N: //@营口冤案2: //@见雨听风N: //@公民苏克: //@马上v: //@阿宝背书的美好生活: //@上海老顽童吴德余:同样是泄露天机同样是震惊世界，对斯诺登是幸灾乐禍唯恐曝得不够，对这条河是怒斥捕风捉影恨不得阉了才解恨。<br><br>RE: “对于这种捕风捉影的东西，我们不作评论。”中国外交部新闻发言人洪磊在被外国记者问及那条河文件时，如是说。<br><img src="http://ww1.sinaimg.cn/large/006iV4ztjw1f2n66jctjoj30bx09j3yu.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3962034531479834" target="freeweibo-mirror">SPAM //@楚人墨://@评论员文章指出：呵呵，你们这些…</a>
 </h2>
@@ -89,13 +89,13 @@
 </h2>
 <p>//@鲲鹏展翅qd: //@浑浑噩噩不死鸟:[哈哈][哈哈][哈哈]//@远山有梦123://@福州新人: 这是声援？感觉是在黑道德姐嘛。[笑cry]<br><br>RE: 比起总是“不予评论”的外交部发言人，这位仁兄有态度。[微笑]<br><img src="http://ww3.sinaimg.cn/large/8603d4cfgw1f2oxs726wbj20go0m8myt.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3961984388887205" target="freeweibo-mirror">SPAM //@火旺世家: //@魏为大傻://@村长宣言:…</a>
 </h2>
 <p>SPAM //@火旺世家: //@魏为大傻://@村长宣言: //@精神贵族一族://@健康NJ: 转！//@Travis-HKG:我的中國夢 //@mixivivo://@花甲孺子牛:<br><br>RE: 豪宅，3.87亿港幣，管理費每个月5.4万元。<br><img src="http://ww1.sinaimg.cn/large/691245e8jw1f2p4ckpbduj20hs0a075x.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3961982660411139" target="freeweibo-mirror">//@柳刀叶://@陈光武律师://@六安自媒体: 还有姐夫…</a>
 </h2>
