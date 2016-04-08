@@ -35,13 +35,13 @@
 </h2>
 <p>@蓝翔的高材生 [赞]→_→ //@厦门打黑在线:回复@吐槽曝料:不严肃查处，无法给社会一个交代！ http://t.cn/Rq5hXjB //@吐槽曝料://@厦门打黑在线:这案件已经造成恶劣的社会影响，请漳浦警方及纪委等部门，依法、依纪严肃查处！@钟馗在线 @共青团福建省委 @漳州同城会<br><br>RE: #吐槽曝料# 网曝漳浦女警察张志珍醉酒暴打小区保安，是个老人！[怒] 今天头条新闻都是你！！！车牌号：闽D NY651。 当事人：张志珍。 所属单位：行政服务中心户政科科长。 事件：用高跟鞋打富丽保安！被打的头破血流！！！[吃惊] via@漳州那些事   http://t.cn/Rqq0ghE<br><img src="http://ww2.sinaimg.cn/large/bfc688c8gw1f2oz2ghhcqj20hs0vkmzr.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3961940298852715" target="freeweibo-mirror">//@忆梅下西舟: //@爱诗戈: 其它国家，已经见怪不怪了…</a>
 </h2>
 <p>//@忆梅下西舟: //@爱诗戈: 其它国家，已经见怪不怪了//@弓长刘: 真尴尬，说敌对势力吧，人家还真不是冲你来的...环球加油！</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3961938348157996" target="freeweibo-mirror">SPAM 冰    岛：辞职。  希    腊：辞职。  新…</a>
 </h2>
@@ -52,6 +52,18 @@
 	<a href="https://freeweibo.com/weibo/3961935957363731" target="freeweibo-mirror">SPAM #Sephora八五折# 光泽粉底推荐：MUFE的…</a>
 </h2>
 <p>SPAM #Sephora八五折# 光泽粉底推荐：MUFE的ultra HD，非常顺滑好推，不卡纹不起皮，完全服帖，有中等遮瑕度，散发自然的光泽，还有同款粉底棒更便携。YSL超模，Guerlain娇兰的内衣粉底，非常服帖轻薄。http://t.cn/Rq5w30L  攻略 http://t.cn/RUDmPoz<br><img src="http://ww2.sinaimg.cn/large/6c0e6e30jw1f2p1qdnpfcj208g08yaai.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3961932866258526" target="freeweibo-mirror">//@陈光武律师: //@吐槽曝料: 第一次看到官微这么说话…</a>
+</h2>
+<p>//@陈光武律师: //@吐槽曝料: 第一次看到官微这么说话，你确定没被盗号？[偷笑]//@厦门打黑在线:回复@吐槽曝料:不严肃查处，无法给社会一个交代！   http://t.cn/Rq5hXjB<br><br>RE: #吐槽曝料# 网曝漳浦女警察张志珍醉酒暴打小区保安，是个老人！[怒] 今天头条新闻都是你！！！车牌号：闽D NY651。 当事人：张志珍。 所属单位：行政服务中心户政科科长。 事件：用高跟鞋打富丽保安！被打的头破血流！！！[吃惊] via@漳州那些事   http://t.cn/Rqq0ghE<br><img src="http://ww2.sinaimg.cn/large/bfc688c8gw1f2oz2ghhcqj20hs0vkmzr.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3961927145136494" target="freeweibo-mirror">SPAM #Sephora八五折# 今年是color cor…</a>
+</h2>
+<p>SPAM #Sephora八五折# 今年是color correct年，很多牌子都推出了遮瑕润色产品，橘色遮黑眼圈，绿色修正红血丝，紫色去黄，MUFE经典的step系列，Urban Decay，Tarte彩盘，兰蔻的气垫修容妆前，MJ的修容棒，Stila彩盘等等。http://t.cn/Rq5zLit 更多润色介绍直达http://t.cn/Rq5zLic 据说现在只要翻 了就能买 ...全文： http://m.weibo.cn/1812885040/3961927145136494<br><img src="http://ww2.sinaimg.cn/large/6c0e6e30jw1f2p1m3jhmtj20b90bhq46.jpg"></p>
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
@@ -124,18 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3961743766259543" target="freeweibo-mirror">SPAM //@殆知阁: //@特-GUID奼咲篶:再过两天…</a>
 </h2>
 <p>SPAM //@殆知阁: //@特-GUID奼咲篶:再过两天就是等你死了再去做笔录了 //@泰德子_Suji://@凛冬冥:既然男的信不过，不如女性自己组个车队吧，但这样就怕乘客不轨了[拜拜] //@神奇山田酱在哪里:为什么要坐私车呢 //@蕃茄教吃货独樂子: [拜拜][拜拜][拜拜]//@哞吼吼: 真是……说出事就出事……<br><br>RE: 同学昨晚滴滴打车遇惊悚一幕：司机载着她往和目的地相反的方向开许久，她多次提出异议却被无视和威胁。到中山公园红绿灯处，她选择了跳车！在车上时打电话求助110竟被答复：等下车了再来做笔录。向滴滴投诉，滴滴只退赔20元钱并无其他举动。这司机现在还在接单！@厦门警方在线 @交警陈清洲  @思廉明志<br><img src="http://ww2.sinaimg.cn/large/993e0090gw1f2o7g45dvmj20ab0hcjsd.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3961740729028670" target="freeweibo-mirror">//@凶猛的大青蛙:抢劫，赤裸裸的抢劫。//@郭顺guosh…</a>
-</h2>
-<p>//@凶猛的大青蛙:抢劫，赤裸裸的抢劫。//@郭顺guoshun:[吃惊]//@鲁筱筏:转发微博<br><br>RE: 听说广东佛山南海的交警部门今天直接进入工厂厂区收缴停在车棚的电动车，这还有王法没有？！<br><img src="http://ww2.sinaimg.cn/large/5a010821jw1f2o4xfmx8wj20ku112ady.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3961738275251337" target="freeweibo-mirror">//@谁云浮生记: [偷笑]//@文然0880: //@宪阁…</a>
-</h2>
-<p>//@谁云浮生记: [偷笑]//@文然0880: //@宪阁微观://@古哥在线: //@王怜花: [哈哈] //@老龍吉://@徐幸起:[哈哈] //@孔智勇_:[哈哈]//@微微蓝色天:[哈哈]//@散淡人生F:[哈哈]//@商略雪V:[哈哈]//@北京老妪: ！[哈哈]//@新视-点: 不声援姐夫？[哈哈]//@傻夶夶:[哈哈]//@胡一刀Ethan: [哈哈]<br><br>RE: 建议公安查一下这种行为是不是违法，如果违法就抓了！<br><img src="http://ww2.sinaimg.cn/large/006qnuVqjw1f2o7imygmij30go0m8dhh.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
