@@ -41,7 +41,7 @@
 </h2>
 <p>//@巧扯蛋:抓//@顾明峰: //@岭上松://@潘丽华律师:胶带[哈哈][哈哈][哈哈][抓狂][抓狂][怒][怒]//@陈业文新大都<br><br>RE: 分享视频：这视频谁拍的？赶紧把嘴给他缝上！[哼] http://t.cn/Rq4qnMf</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3962120763183991" target="freeweibo-mirror">SPAM //@旅行志:马住慢慢看，</a>
 </h2>
@@ -71,7 +71,7 @@
 </h2>
 <p>堂堂正正<br><img src="http://ww1.sinaimg.cn/large/a316360djw1f2ph0icla0j213z0tdgsm.jpg"></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3962044933283199" target="freeweibo-mirror">SPAM 外交部终于对.....表态...... //@天地…</a>
 </h2>
