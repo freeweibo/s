@@ -65,7 +65,7 @@
 </h2>
 <p>贪污几十亿不叫颠覆国家，发个帖抗议贪污叫颠覆国家，把桥建成豆腐渣不叫颠覆国家，发个帖牢骚叫颠覆国家，城管欺负国人不叫颠覆国家，发个帖叫苦是颠覆国家。总之一句话，坏事尽管做，谁抱怨，谁颠覆国家！（转）<br><img src="http://ww2.sinaimg.cn/large/006oZDfjgw1f2piw4j87jj30fm0b9dgm.jpg"></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3962056493282732" target="freeweibo-mirror">堂堂正正</a>
 </h2>
@@ -89,7 +89,7 @@
 </h2>
 <p>SPAM //@楚人墨://@评论员文章指出：呵呵，你们这些愚蠢的人类，稍微检索一下就知道，开心树朋友是当Rhode Montijo在一张纸上画一只有点像卡多的黄兔子，并在底下写着一行字：“ 抵抗无用（Resistance Is Futile）”时构想出来的。所以，蠢材们懂了这局棋么？<br><br>RE: 好死不死抄Happy Tree Friend，我国宣萱的反贼这是准备下一秒爆浆包子了。<br><img src="http://ww4.sinaimg.cn/large/6cf969c9jw1f2p96d5txuj20sg0g0418.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3962022519374145" target="freeweibo-mirror">//@小黑哥5794337106:真实的美帝并不是大家表面上…</a>
 </h2>
