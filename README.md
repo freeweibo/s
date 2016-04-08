@@ -59,7 +59,7 @@
 </h2>
 <p>同胞们团结起来，共同谴责别有用心的敌对势力！[拳头][拳头][拳头]<br><img src="http://ww1.sinaimg.cn/large/ad37d1f9gw1f2oi3lbfxnj20go0m8q4l.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3961743766259543" target="freeweibo-mirror">SPAM //@殆知阁: //@特-GUID奼咲篶:再过两天…</a>
 </h2>
