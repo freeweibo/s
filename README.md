@@ -35,7 +35,7 @@
 </h2>
 <p>堂堂正正<br><img src="http://ww1.sinaimg.cn/large/a316360djw1f2ph0icla0j213z0tdgsm.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3962044933283199" target="freeweibo-mirror">SPAM 外交部终于对.....表态...... //@天地…</a>
 </h2>
