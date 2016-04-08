@@ -23,13 +23,13 @@
 </h2>
 <p>[哈哈]//@读书比较少: //@湖嗨散人: //@邵明波: //@忆梅下西舟: //@爱诗戈: 其它国家，已经见怪不怪了//@弓长刘: 真尴尬，说敌对势力吧，人家还真不是冲你来的...环球加油！</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3961941623487811" target="freeweibo-mirror">[话筒]//@厦门打黑在线: 回复@吐槽曝料:不严肃查处，无…</a>
 </h2>
 <p>[话筒]//@厦门打黑在线: 回复@吐槽曝料:不严肃查处，无法给社会一个交代！  http://t.cn/Rq5hXjB  //@吐槽曝料:→_→[赞]//@厦门打黑在线:谁给了她如此野蛮的权力？这案件已经造成恶劣的社会影响，请漳浦警方及纪委等部门，依法、依纪严肃查处！@钟馗在线 @共青团福建省委 @漳州同城会<br><br>RE: #吐槽曝料# 网曝漳浦女警察张志珍醉酒暴打小区保安，是个老人！[怒] 今天头条新闻都是你！！！车牌号：闽D NY651。 当事人：张志珍。 所属单位：行政服务中心户政科科长。 事件：用高跟鞋打富丽保安！被打的头破血流！！！[吃惊] via@漳州那些事   http://t.cn/Rqq0ghE<br><img src="http://ww2.sinaimg.cn/large/bfc688c8gw1f2oz2ghhcqj20hs0vkmzr.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3961940545802599" target="freeweibo-mirror">@蓝翔的高材生 [赞]→_→ //@厦门打黑在线:回复@吐槽…</a>
 </h2>
@@ -65,13 +65,13 @@
 </h2>
 <p>SPAM #Sephora八五折# 今年是color correct年，很多牌子都推出了遮瑕润色产品，橘色遮黑眼圈，绿色修正红血丝，紫色去黄，MUFE经典的step系列，Urban Decay，Tarte彩盘，兰蔻的气垫修容妆前，MJ的修容棒，Stila彩盘等等。http://t.cn/Rq5zLit 更多润色介绍直达http://t.cn/Rq5zLic 据说现在只要翻 了就能买 ...全文： http://m.weibo.cn/1812885040/3961927145136494<br><img src="http://ww2.sinaimg.cn/large/6c0e6e30jw1f2p1m3jhmtj20b90bhq46.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3961925987613760" target="freeweibo-mirror">SPAM 我是绝对不会的。[哼]//@程中柳: 大家别眼红。…</a>
 </h2>
 <p>SPAM 我是绝对不会的。[哼]//@程中柳: 大家别眼红。//@佛山的同学: //@蓝色孤独0914://@爱美利坚合众国://@稳普高清摄像机S://@乌鲁乌鲁乌://@沙漠渔夫809://@歪扯邪道://@gander001://@没事不加V-://@酒醚醇香V:[衰]<br><br>RE: 重磅來襲<br><img src="http://ww2.sinaimg.cn/large/005HOLXtjw1f2ovnrzfcoj31320qoafu.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3961908900246945" target="freeweibo-mirror">太邪恶了</a>
 </h2>
@@ -88,6 +88,12 @@
 	<a href="https://freeweibo.com/weibo/3961903926096845" target="freeweibo-mirror">//@传承中华文化: 那些人真能搞事儿，全部删除了，多和谐！…</a>
 </h2>
 <p>//@传承中华文化: 那些人真能搞事儿，全部删除了，多和谐！[囧]<br><br>RE: 西方邪恶势力就是厉害啊！那个文件，除了瓷国部分以外，都是真的……全球都已沸腾，这里的黎明却静悄悄！<br><img src="http://ww2.sinaimg.cn/large/006nReA5jw1f2nt3nhgmoj30d708at9w.jpg"></p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3961900259991218" target="freeweibo-mirror">#吐槽曝料# 网曝漳浦女警察张志珍醉酒暴打小区保安，是个老人…</a>
+</h2>
+<p>#吐槽曝料# 网曝漳浦女警察张志珍醉酒暴打小区保安，是个老人！[怒] 今天头条新闻都是你！！！车牌号：闽D NY651。 当事人：张志珍。 所属单位：行政服务中心户政科科长。 事件：用高跟鞋打富丽保安！被打的头破血流！！！[吃惊] via@漳州那些事   http://t.cn/Rqq0ghE<br><img src="http://ww2.sinaimg.cn/large/bfc688c8gw1f2oz2ghhcqj20hs0vkmzr.jpg"></p>
 <p>
 	<small> ============== 4小时前</small>
 </p><h2>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3961752557304054" target="freeweibo-mirror">同胞们团结起来，共同谴责别有用心的敌对势力！[拳头][拳头]…</a>
 </h2>
 <p>同胞们团结起来，共同谴责别有用心的敌对势力！[拳头][拳头][拳头]<br><img src="http://ww1.sinaimg.cn/large/ad37d1f9gw1f2oi3lbfxnj20go0m8q4l.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3961743766259543" target="freeweibo-mirror">SPAM //@殆知阁: //@特-GUID奼咲篶:再过两天…</a>
-</h2>
-<p>SPAM //@殆知阁: //@特-GUID奼咲篶:再过两天就是等你死了再去做笔录了 //@泰德子_Suji://@凛冬冥:既然男的信不过，不如女性自己组个车队吧，但这样就怕乘客不轨了[拜拜] //@神奇山田酱在哪里:为什么要坐私车呢 //@蕃茄教吃货独樂子: [拜拜][拜拜][拜拜]//@哞吼吼: 真是……说出事就出事……<br><br>RE: 同学昨晚滴滴打车遇惊悚一幕：司机载着她往和目的地相反的方向开许久，她多次提出异议却被无视和威胁。到中山公园红绿灯处，她选择了跳车！在车上时打电话求助110竟被答复：等下车了再来做笔录。向滴滴投诉，滴滴只退赔20元钱并无其他举动。这司机现在还在接单！@厦门警方在线 @交警陈清洲  @思廉明志<br><img src="http://ww2.sinaimg.cn/large/993e0090gw1f2o7g45dvmj20ab0hcjsd.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
