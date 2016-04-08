@@ -59,7 +59,7 @@
 </h2>
 <p>SPAM 贾大户[哈哈]<br><br>RE: 在北京待过的人没有人不相信贾是超级富翁，静静的看你们打虎。[阴险]</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3961870568318280" target="freeweibo-mirror">重磅來襲</a>
 </h2>
@@ -77,7 +77,7 @@
 </h2>
 <p>//@jlijames: 这还不够别有用心啊？[晕] //@六国虹:[微笑] //@郑湘律师: //@鲲鹏展翅qd:转发微博<br><br>RE: 同胞们团结起来，共同谴责别有用心的敌对势力！[拳头][拳头][拳头]<br><img src="http://ww1.sinaimg.cn/large/ad37d1f9gw1f2oi3lbfxnj20go0m8q4l.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3961771406621749" target="freeweibo-mirror">//@旺旺1658: //@戴刚米://@静心看世界99: …</a>
 </h2>
