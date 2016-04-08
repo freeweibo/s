@@ -19,6 +19,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3962044933283199" target="freeweibo-mirror">SPAM 外交部终于对.....表态...... //@天地…</a>
+</h2>
+<p>SPAM 外交部终于对.....表态...... //@天地律师:[吃惊] //@汉商天民: //@山高路远N: //@营口冤案2: //@见雨听风N: //@公民苏克: //@马上v: //@阿宝背书的美好生活: //@上海老顽童吴德余:同样是泄露天机同样是震惊世界，对斯诺登是幸灾乐禍唯恐曝得不够，对这条河是怒斥捕风捉影恨不得阉了才解恨。<br><br>RE: “对于这种捕风捉影的东西，我们不作评论。”中国外交部新闻发言人洪磊在被外国记者问及那条河文件时，如是说。<br><img src="http://ww1.sinaimg.cn/large/006iV4ztjw1f2n66jctjoj30bx09j3yu.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3962022519374145" target="freeweibo-mirror">//@小黑哥5794337106:真实的美帝并不是大家表面上…</a>
 </h2>
 <p>//@小黑哥5794337106:真实的美帝并不是大家表面上看到的那么光鲜亮丽，并无自由民主可言，实则黑暗无比，建议大家众筹我移民美国去揭露他们罪恶的嘴脸！<br><br>RE: 万恶的帝国主义，万恶的民主国家，万恶的卡梅伦。你害小编禁转、禁评了，赔俺五毛钱……<br><img src="http://ww2.sinaimg.cn/large/0066m1Gwjw1f2p516mwp5j30qo1begu2.jpg"></p>
@@ -59,17 +65,23 @@
 </h2>
 <p>//@鲲鹏展翅qd: //@浑浑噩噩不死鸟:[哈哈][哈哈][哈哈]//@远山有梦123://@福州新人: 这是声援？感觉是在黑道德姐嘛。[笑cry]<br><br>RE: 比起总是“不予评论”的外交部发言人，这位仁兄有态度。[微笑]<br><img src="http://ww3.sinaimg.cn/large/8603d4cfgw1f2oxs726wbj20go0m8myt.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3961984388887205" target="freeweibo-mirror">SPAM //@火旺世家: //@魏为大傻://@村长宣言:…</a>
 </h2>
 <p>SPAM //@火旺世家: //@魏为大傻://@村长宣言: //@精神贵族一族://@健康NJ: 转！//@Travis-HKG:我的中國夢 //@mixivivo://@花甲孺子牛:<br><br>RE: 豪宅，3.87亿港幣，管理費每个月5.4万元。<br><img src="http://ww1.sinaimg.cn/large/691245e8jw1f2p4ckpbduj20hs0a075x.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3961982660411139" target="freeweibo-mirror">//@柳刀叶://@陈光武律师://@六安自媒体: 还有姐夫…</a>
 </h2>
 <p>//@柳刀叶://@陈光武律师://@六安自媒体: 还有姐夫//@邓相超://@煙巳惔嘸菋: 相信道德姐[右哼哼]//@劍指八荒V: //@沙漠渔夫809:就是，//@余渔yu:就算是“捕风捉影”，也应该查，还道德姐清白。//@paper-on-bnm:而且是中共党员<br><br>RE: 道德姐一不做生意，二不贪污受贿，有必要跑那么远去避税？就那点工资用得着吗？那啥文件就是“捕风捉影”。<br><img src="http://ww2.sinaimg.cn/large/006kyH3fgw1f2oymtf0uaj30hs0a0wfl.jpg"></p>
+<p>
+	<small> ============== 6小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3961978017706098" target="freeweibo-mirror">掩耳盗铃！[嘘] http://t.cn/Rq54BQx .</a>
+</h2>
+<p>掩耳盗铃！[嘘] http://t.cn/Rq54BQx .</p>
 <p>
 	<small> ============== 6小时前</small>
 </p><h2>
@@ -124,18 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3961935957363731" target="freeweibo-mirror">SPAM #Sephora八五折# 光泽粉底推荐：MUFE的…</a>
 </h2>
 <p>SPAM #Sephora八五折# 光泽粉底推荐：MUFE的ultra HD，非常顺滑好推，不卡纹不起皮，完全服帖，有中等遮瑕度，散发自然的光泽，还有同款粉底棒更便携。YSL超模，Guerlain娇兰的内衣粉底，非常服帖轻薄。http://t.cn/Rq5w30L  攻略 http://t.cn/RUDmPoz<br><img src="http://ww2.sinaimg.cn/large/6c0e6e30jw1f2p1qdnpfcj208g08yaai.jpg"></p>
-<p>
-	<small> ============== 9小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3961932866258526" target="freeweibo-mirror">//@陈光武律师: //@吐槽曝料: 第一次看到官微这么说话…</a>
-</h2>
-<p>//@陈光武律师: //@吐槽曝料: 第一次看到官微这么说话，你确定没被盗号？[偷笑]//@厦门打黑在线:回复@吐槽曝料:不严肃查处，无法给社会一个交代！   http://t.cn/Rq5hXjB<br><br>RE: #吐槽曝料# 网曝漳浦女警察张志珍醉酒暴打小区保安，是个老人！[怒] 今天头条新闻都是你！！！车牌号：闽D NY651。 当事人：张志珍。 所属单位：行政服务中心户政科科长。 事件：用高跟鞋打富丽保安！被打的头破血流！！！[吃惊] via@漳州那些事   http://t.cn/Rqq0ghE<br><img src="http://ww2.sinaimg.cn/large/bfc688c8gw1f2oz2ghhcqj20hs0vkmzr.jpg"></p>
-<p>
-	<small> ============== 9小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3961927145136494" target="freeweibo-mirror">SPAM #Sephora八五折# 今年是color cor…</a>
-</h2>
-<p>SPAM #Sephora八五折# 今年是color correct年，很多牌子都推出了遮瑕润色产品，橘色遮黑眼圈，绿色修正红血丝，紫色去黄，MUFE经典的step系列，Urban Decay，Tarte彩盘，兰蔻的气垫修容妆前，MJ的修容棒，Stila彩盘等等。http://t.cn/Rq5zLit 更多润色介绍直达http://t.cn/Rq5zLic 据说现在只要翻 了就能买 ...全文： http://m.weibo.cn/1812885040/3961927145136494<br><img src="http://ww2.sinaimg.cn/large/6c0e6e30jw1f2p1m3jhmtj20b90bhq46.jpg"></p>
 <p>
 	<small> ============== 9小时前</small>
 </p>
