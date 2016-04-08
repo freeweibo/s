@@ -29,7 +29,7 @@
 </h2>
 <p>SPAM //@楚人墨://@评论员文章指出：呵呵，你们这些愚蠢的人类，稍微检索一下就知道，开心树朋友是当Rhode Montijo在一张纸上画一只有点像卡多的黄兔子，并在底下写着一行字：“ 抵抗无用（Resistance Is Futile）”时构想出来的。所以，蠢材们懂了这局棋么？<br><br>RE: 好死不死抄Happy Tree Friend，我国宣萱的反贼这是准备下一秒爆浆包子了。<br><img src="http://ww4.sinaimg.cn/large/6cf969c9jw1f2p96d5txuj20sg0g0418.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3962022519374145" target="freeweibo-mirror">//@小黑哥5794337106:真实的美帝并不是大家表面上…</a>
 </h2>
@@ -41,7 +41,7 @@
 </h2>
 <p>该死的，下面看不见</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3962005700144338" target="freeweibo-mirror">李小琳//@鱼家俏妞:比较产生痛苦。万恶的资本主义太坏了，老…</a>
 </h2>
