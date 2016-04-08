@@ -59,7 +59,7 @@
 </h2>
 <p>//@jlijames: 这还不够别有用心啊？[晕] //@六国虹:[微笑] //@郑湘律师: //@鲲鹏展翅qd:转发微博<br><br>RE: 同胞们团结起来，共同谴责别有用心的敌对势力！[拳头][拳头][拳头]<br><img src="http://ww1.sinaimg.cn/large/ad37d1f9gw1f2oi3lbfxnj20go0m8q4l.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3961771406621749" target="freeweibo-mirror">//@旺旺1658: //@戴刚米://@静心看世界99: …</a>
 </h2>
