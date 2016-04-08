@@ -85,6 +85,12 @@
 <p>
 	<small> ============== 4小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3961908023004785" target="freeweibo-mirror">#屯长讲故事##屯里的事# 网曝漳浦女警察张志珍醉酒暴打小区…</a>
+</h2>
+<p>#屯长讲故事##屯里的事# 网曝漳浦女警察张志珍醉酒暴打小区保安，是个老人！ 今天头条新闻都是你！！！车牌号：闽D NY651。 当事人：张志珍。 所属单位：行政服务中心户政科科长。 事件：用高跟鞋打富丽保安！被打的头破血流！！！ http://t.cn/Rqq0ghE</p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3961905347435547" target="freeweibo-mirror">//@王有旺导演: //@行云仙客: //@李宪法-: //…</a>
 </h2>
 <p>//@王有旺导演: //@行云仙客: //@李宪法-: //@昆明律师许思龙: 都删了，这回世界静净了。//@广西林仁聪律师<br><br>RE: 西方邪恶势力就是厉害啊！那个文件，除了瓷国部分以外，都是真的……全球都已沸腾，这里的黎明却静悄悄！<br><img src="http://ww2.sinaimg.cn/large/006nReA5jw1f2nt3nhgmoj30d708at9w.jpg"></p>
@@ -95,7 +101,7 @@
 </h2>
 <p>//@传承中华文化: 那些人真能搞事儿，全部删除了，多和谐！[囧]<br><br>RE: 西方邪恶势力就是厉害啊！那个文件，除了瓷国部分以外，都是真的……全球都已沸腾，这里的黎明却静悄悄！<br><img src="http://ww2.sinaimg.cn/large/006nReA5jw1f2nt3nhgmoj30d708at9w.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3961900259991218" target="freeweibo-mirror">#吐槽曝料# 网曝漳浦女警察张志珍醉酒暴打小区保安，是个老人…</a>
 </h2>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3961771406621749" target="freeweibo-mirror">//@旺旺1658: //@戴刚米://@静心看世界99: …</a>
 </h2>
 <p>//@旺旺1658: //@戴刚米://@静心看世界99: //@大豆的海角://@西秦的狼: [耶]//@湘大嘴吧3: //@GM周金和:转发微博<br><br>RE: 图片分享。[耶][耶][耶]<br><img src="http://ww4.sinaimg.cn/large/006ppbmJgw1f2n259yvqrj30u01hctry.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3961759062865328" target="freeweibo-mirror">几个意思？不懂。//@六国虹: [微笑] //@郑湘律师:/…</a>
-</h2>
-<p>几个意思？不懂。//@六国虹: [微笑] //@郑湘律师://@鲲鹏展翅qd:转发微博<br><br>RE: 同胞们团结起来，共同谴责别有用心的敌对势力！[拳头][拳头][拳头]<br><img src="http://ww1.sinaimg.cn/large/ad37d1f9gw1f2oi3lbfxnj20go0m8q4l.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
