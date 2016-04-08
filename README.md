@@ -47,13 +47,13 @@
 </h2>
 <p>//@鲲鹏展翅qd: //@浑浑噩噩不死鸟:[哈哈][哈哈][哈哈]//@远山有梦123://@福州新人: 这是声援？感觉是在黑道德姐嘛。[笑cry]<br><br>RE: 比起总是“不予评论”的外交部发言人，这位仁兄有态度。[微笑]<br><img src="http://ww3.sinaimg.cn/large/8603d4cfgw1f2oxs726wbj20go0m8myt.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3961984388887205" target="freeweibo-mirror">SPAM //@火旺世家: //@魏为大傻://@村长宣言:…</a>
 </h2>
 <p>SPAM //@火旺世家: //@魏为大傻://@村长宣言: //@精神贵族一族://@健康NJ: 转！//@Travis-HKG:我的中國夢 //@mixivivo://@花甲孺子牛:<br><br>RE: 豪宅，3.87亿港幣，管理費每个月5.4万元。<br><img src="http://ww1.sinaimg.cn/large/691245e8jw1f2p4ckpbduj20hs0a075x.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3961982660411139" target="freeweibo-mirror">//@柳刀叶://@陈光武律师://@六安自媒体: 还有姐夫…</a>
 </h2>
@@ -137,7 +137,7 @@
 </h2>
 <p>太邪恶了<br><br>RE: 西方邪恶势力就是厉害啊！那个文件，除了瓷国部分以外，都是真的……全球都已沸腾，这里的黎明却静悄悄！<br><img src="http://ww2.sinaimg.cn/large/006nReA5jw1f2nt3nhgmoj30d708at9w.jpg"></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p>
 <table>
     <tr>
