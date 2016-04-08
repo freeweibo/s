@@ -125,7 +125,7 @@
 </h2>
 <p>在北京待过的人没有人不相信贾是超级富翁，静静的看你们打虎。[阴险]</p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3961773863779383" target="freeweibo-mirror">//@jlijames: 这还不够别有用心啊？[晕] //@…</a>
 </h2>
