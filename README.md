@@ -23,7 +23,7 @@
 </h2>
 <p>SPAM 我是绝对不会的。[哼]//@程中柳: 大家别眼红。//@佛山的同学: //@蓝色孤独0914://@爱美利坚合众国://@稳普高清摄像机S://@乌鲁乌鲁乌://@沙漠渔夫809://@歪扯邪道://@gander001://@没事不加V-://@酒醚醇香V:[衰]<br><br>RE: 重磅來襲<br><img src="http://ww2.sinaimg.cn/large/005HOLXtjw1f2ovnrzfcoj31320qoafu.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3961908900246945" target="freeweibo-mirror">太邪恶了</a>
 </h2>
