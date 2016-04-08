@@ -35,7 +35,7 @@
 </h2>
 <p>//@小黑哥5794337106:真实的美帝并不是大家表面上看到的那么光鲜亮丽，并无自由民主可言，实则黑暗无比，建议大家众筹我移民美国去揭露他们罪恶的嘴脸！<br><br>RE: 万恶的帝国主义，万恶的民主国家，万恶的卡梅伦。你害小编禁转、禁评了，赔俺五毛钱……<br><img src="http://ww2.sinaimg.cn/large/0066m1Gwjw1f2p516mwp5j30qo1begu2.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3962019155386839" target="freeweibo-mirror">该死的，下面看不见</a>
 </h2>
@@ -59,7 +59,13 @@
 </h2>
 <p>//@教授刹车://@孫文1915革命: //@蒂娜2932://@孤家寡哥在漂泊:转发微博<br><br>RE: 掩耳盗铃！[嘘] http://t.cn/Rq54BQx .</p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3961988944509360" target="freeweibo-mirror">好死不死抄Happy Tree Friend，我国宣萱的反贼…</a>
+</h2>
+<p>好死不死抄Happy Tree Friend，我国宣萱的反贼这是准备下一秒爆浆包子了。<br><img src="http://ww4.sinaimg.cn/large/6cf969c9jw1f2p96d5txuj20sg0g0418.jpg"></p>
+<p>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3961985504435094" target="freeweibo-mirror">SPAM //@马仙家:。。。//@路更强1: 互撕的漂亮/…</a>
 </h2>
@@ -107,7 +113,7 @@
 </h2>
 <p>豪宅，3.87亿港幣，管理費每个月5.4万元。<br><img src="http://ww1.sinaimg.cn/large/691245e8jw1f2p4ckpbduj20hs0a075x.jpg"></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3961942215896921" target="freeweibo-mirror">[哈哈]//@读书比较少: //@湖嗨散人: //@邵明波:…</a>
 </h2>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3961940298852715" target="freeweibo-mirror">//@忆梅下西舟: //@爱诗戈: 其它国家，已经见怪不怪了…</a>
 </h2>
 <p>//@忆梅下西舟: //@爱诗戈: 其它国家，已经见怪不怪了//@弓长刘: 真尴尬，说敌对势力吧，人家还真不是冲你来的...环球加油！</p>
-<p>
-	<small> ============== 10小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3961938348157996" target="freeweibo-mirror">SPAM 冰    岛：辞职。  希    腊：辞职。  新…</a>
-</h2>
-<p>SPAM 冰    岛：辞职。  希    腊：辞职。  新加坡：正在审查。  印    度：进行调查。  台    湾：成立专案小组。  洪    磊：“捕风捉影，不予评论！”</p>
 <p>
 	<small> ============== 10小时前</small>
 </p>
