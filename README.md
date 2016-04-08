@@ -23,7 +23,13 @@
 </h2>
 <p>SPAM 外交部终于对.....表态...... //@天地律师:[吃惊] //@汉商天民: //@山高路远N: //@营口冤案2: //@见雨听风N: //@公民苏克: //@马上v: //@阿宝背书的美好生活: //@上海老顽童吴德余:同样是泄露天机同样是震惊世界，对斯诺登是幸灾乐禍唯恐曝得不够，对这条河是怒斥捕风捉影恨不得阉了才解恨。<br><br>RE: “对于这种捕风捉影的东西，我们不作评论。”中国外交部新闻发言人洪磊在被外国记者问及那条河文件时，如是说。<br><img src="http://ww1.sinaimg.cn/large/006iV4ztjw1f2n66jctjoj30bx09j3yu.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3962034531479834" target="freeweibo-mirror">SPAM //@楚人墨://@评论员文章指出：呵呵，你们这些…</a>
+</h2>
+<p>SPAM //@楚人墨://@评论员文章指出：呵呵，你们这些愚蠢的人类，稍微检索一下就知道，开心树朋友是当Rhode Montijo在一张纸上画一只有点像卡多的黄兔子，并在底下写着一行字：“ 抵抗无用（Resistance Is Futile）”时构想出来的。所以，蠢材们懂了这局棋么？<br><br>RE: 好死不死抄Happy Tree Friend，我国宣萱的反贼这是准备下一秒爆浆包子了。<br><img src="http://ww4.sinaimg.cn/large/6cf969c9jw1f2p96d5txuj20sg0g0418.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3962022519374145" target="freeweibo-mirror">//@小黑哥5794337106:真实的美帝并不是大家表面上…</a>
 </h2>
@@ -65,13 +71,13 @@
 </h2>
 <p>//@鲲鹏展翅qd: //@浑浑噩噩不死鸟:[哈哈][哈哈][哈哈]//@远山有梦123://@福州新人: 这是声援？感觉是在黑道德姐嘛。[笑cry]<br><br>RE: 比起总是“不予评论”的外交部发言人，这位仁兄有态度。[微笑]<br><img src="http://ww3.sinaimg.cn/large/8603d4cfgw1f2oxs726wbj20go0m8myt.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3961984388887205" target="freeweibo-mirror">SPAM //@火旺世家: //@魏为大傻://@村长宣言:…</a>
 </h2>
 <p>SPAM //@火旺世家: //@魏为大傻://@村长宣言: //@精神贵族一族://@健康NJ: 转！//@Travis-HKG:我的中國夢 //@mixivivo://@花甲孺子牛:<br><br>RE: 豪宅，3.87亿港幣，管理費每个月5.4万元。<br><img src="http://ww1.sinaimg.cn/large/691245e8jw1f2p4ckpbduj20hs0a075x.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3961982660411139" target="freeweibo-mirror">//@柳刀叶://@陈光武律师://@六安自媒体: 还有姐夫…</a>
 </h2>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3961938348157996" target="freeweibo-mirror">SPAM 冰    岛：辞职。  希    腊：辞职。  新…</a>
 </h2>
 <p>SPAM 冰    岛：辞职。  希    腊：辞职。  新加坡：正在审查。  印    度：进行调查。  台    湾：成立专案小组。  洪    磊：“捕风捉影，不予评论！”</p>
-<p>
-	<small> ============== 10小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3961935957363731" target="freeweibo-mirror">SPAM #Sephora八五折# 光泽粉底推荐：MUFE的…</a>
-</h2>
-<p>SPAM #Sephora八五折# 光泽粉底推荐：MUFE的ultra HD，非常顺滑好推，不卡纹不起皮，完全服帖，有中等遮瑕度，散发自然的光泽，还有同款粉底棒更便携。YSL超模，Guerlain娇兰的内衣粉底，非常服帖轻薄。http://t.cn/Rq5w30L  攻略 http://t.cn/RUDmPoz<br><img src="http://ww2.sinaimg.cn/large/6c0e6e30jw1f2p1qdnpfcj208g08yaai.jpg"></p>
 <p>
 	<small> ============== 10小时前</small>
 </p>
