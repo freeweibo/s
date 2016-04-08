@@ -53,7 +53,7 @@
 </h2>
 <p>重磅來襲<br><img src="http://ww2.sinaimg.cn/large/005HOLXtjw1f2ovnrzfcoj31320qoafu.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3961868047267786" target="freeweibo-mirror">在北京待过的人没有人不相信贾是超级富翁，静静的看你们打虎。[…</a>
 </h2>
@@ -71,7 +71,7 @@
 </h2>
 <p>//@旺旺1658: //@戴刚米://@静心看世界99: //@大豆的海角://@西秦的狼: [耶]//@湘大嘴吧3: //@GM周金和:转发微博<br><br>RE: 图片分享。[耶][耶][耶]<br><img src="http://ww4.sinaimg.cn/large/006ppbmJgw1f2n259yvqrj30u01hctry.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3961759062865328" target="freeweibo-mirror">几个意思？不懂。//@六国虹: [微笑] //@郑湘律师:/…</a>
 </h2>
