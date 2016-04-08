@@ -29,7 +29,7 @@
 </h2>
 <p>在北京待过的人没有人不相信贾是超级富翁，静静的看你们打虎。[阴险]</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3961773863779383" target="freeweibo-mirror">//@jlijames: 这还不够别有用心啊？[晕] //@…</a>
 </h2>
@@ -83,7 +83,7 @@
 </h2>
 <p>什么情况 //@胡说金融:[疑问] //@汪漪职说:[哈哈] //@看热闹的纸老虎: [赞]同声援 //@神经浪游者: //@中国羊肉:[偷笑]<br><br>RE: 建议公安查一下这种行为是不是违法，如果违法就抓了！<br><img src="http://ww2.sinaimg.cn/large/006qnuVqjw1f2o7imygmij30go0m8dhh.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3961717207573632" target="freeweibo-mirror">[哈哈]//@看热闹的纸老虎: [赞]同声援//@神经浪游者…</a>
 </h2>
