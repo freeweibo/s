@@ -65,7 +65,7 @@
 </h2>
 <p>贪污几十亿不叫颠覆国家，发个帖抗议贪污叫颠覆国家，把桥建成豆腐渣不叫颠覆国家，发个帖牢骚叫颠覆国家，城管欺负国人不叫颠覆国家，发个帖叫苦是颠覆国家。总之一句话，坏事尽管做，谁抱怨，谁颠覆国家！（转）<br><img src="http://ww2.sinaimg.cn/large/006oZDfjgw1f2piw4j87jj30fm0b9dgm.jpg"></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3962056493282732" target="freeweibo-mirror">堂堂正正</a>
 </h2>
