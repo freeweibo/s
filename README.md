@@ -35,7 +35,7 @@
 </h2>
 <p>//@传承中华文化: 那些人真能搞事儿，全部删除了，多和谐！[囧]<br><br>RE: 西方邪恶势力就是厉害啊！那个文件，除了瓷国部分以外，都是真的……全球都已沸腾，这里的黎明却静悄悄！<br><img src="http://ww2.sinaimg.cn/large/006nReA5jw1f2nt3nhgmoj30d708at9w.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3961871931126239" target="freeweibo-mirror">SPAM 贾大户[哈哈]</a>
 </h2>
