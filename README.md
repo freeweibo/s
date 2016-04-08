@@ -47,7 +47,7 @@
 </h2>
 <p>//@小黑哥5794337106:真实的美帝并不是大家表面上看到的那么光鲜亮丽，并无自由民主可言，实则黑暗无比，建议大家众筹我移民美国去揭露他们罪恶的嘴脸！<br><br>RE: 万恶的帝国主义，万恶的民主国家，万恶的卡梅伦。你害小编禁转、禁评了，赔俺五毛钱……<br><img src="http://ww2.sinaimg.cn/large/0066m1Gwjw1f2p516mwp5j30qo1begu2.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3962019155386839" target="freeweibo-mirror">该死的，下面看不见</a>
 </h2>
@@ -71,7 +71,7 @@
 </h2>
 <p>//@教授刹车://@孫文1915革命: //@蒂娜2932://@孤家寡哥在漂泊:转发微博<br><br>RE: 掩耳盗铃！[嘘] http://t.cn/Rq54BQx .</p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3961988944509360" target="freeweibo-mirror">好死不死抄Happy Tree Friend，我国宣萱的反贼…</a>
 </h2>
