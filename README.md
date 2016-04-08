@@ -113,11 +113,17 @@
 </h2>
 <p>//@传承中华文化: 那些人真能搞事儿，全部删除了，多和谐！[囧]<br><br>RE: 西方邪恶势力就是厉害啊！那个文件，除了瓷国部分以外，都是真的……全球都已沸腾，这里的黎明却静悄悄！<br><img src="http://ww2.sinaimg.cn/large/006nReA5jw1f2nt3nhgmoj30d708at9w.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3961900259991218" target="freeweibo-mirror">#吐槽曝料# 网曝漳浦女警察张志珍醉酒暴打小区保安，是个老人…</a>
 </h2>
 <p>#吐槽曝料# 网曝漳浦女警察张志珍醉酒暴打小区保安，是个老人！[怒] 今天头条新闻都是你！！！车牌号：闽D NY651。 当事人：张志珍。 所属单位：行政服务中心户政科科长。 事件：用高跟鞋打富丽保安！被打的头破血流！！！[吃惊] via@漳州那些事   http://t.cn/Rqq0ghE<br><img src="http://ww2.sinaimg.cn/large/bfc688c8gw1f2oz2ghhcqj20hs0vkmzr.jpg"></p>
+<p>
+	<small> ============== 8小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3961896472214392" target="freeweibo-mirror">道德姐一不做生意，二不贪污受贿，有必要跑那么远去避税？就那点…</a>
+</h2>
+<p>道德姐一不做生意，二不贪污受贿，有必要跑那么远去避税？就那点工资用得着吗？那啥文件就是“捕风捉影”。<br><img src="http://ww2.sinaimg.cn/large/006kyH3fgw1f2oymtf0uaj30hs0a0wfl.jpg"></p>
 <p>
 	<small> ============== 8小时前</small>
 </p><h2>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3961870568318280" target="freeweibo-mirror">重磅來襲</a>
 </h2>
 <p>重磅來襲<br><img src="http://ww2.sinaimg.cn/large/005HOLXtjw1f2ovnrzfcoj31320qoafu.jpg"></p>
-<p>
-	<small> ============== 10小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3961868047267786" target="freeweibo-mirror">在北京待过的人没有人不相信贾是超级富翁，静静的看你们打虎。[…</a>
-</h2>
-<p>在北京待过的人没有人不相信贾是超级富翁，静静的看你们打虎。[阴险]</p>
 <p>
 	<small> ============== 10小时前</small>
 </p>
