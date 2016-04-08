@@ -47,7 +47,7 @@
 </h2>
 <p>//@王有旺导演: //@行云仙客: //@李宪法-: //@昆明律师许思龙: 都删了，这回世界静净了。//@广西林仁聪律师<br><br>RE: 西方邪恶势力就是厉害啊！那个文件，除了瓷国部分以外，都是真的……全球都已沸腾，这里的黎明却静悄悄！<br><img src="http://ww2.sinaimg.cn/large/006nReA5jw1f2nt3nhgmoj30d708at9w.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3961903926096845" target="freeweibo-mirror">//@传承中华文化: 那些人真能搞事儿，全部删除了，多和谐！…</a>
 </h2>
