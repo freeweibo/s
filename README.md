@@ -77,7 +77,13 @@
 </h2>
 <p>//@中四郎中:那是遥远的9月的事，那时谁还记得？//@灵舞凌风04: //@上善若水童: //@逆流勇上M://@阳名豆://@昊空XqO: 转发微博<br><br>RE: 亂了陣腳，杭州G20危機重重<br><img src="http://ww4.sinaimg.cn/large/006qFk17jw1f2qcyyllx3j30ku112dli.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3962339570552386" target="freeweibo-mirror">我的意思是，别tmd废话，操控不操控又能怎么，你就告诉我这事…</a>
+</h2>
+<p>我的意思是，别tmd废话，操控不操控又能怎么，你就告诉我这事是真是假。<br><img src="http://ww3.sinaimg.cn/large/5cf7ad65jw1f2qdhejd72j20zk0qowl8.jpg"></p>
+<p>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3962334848289461" target="freeweibo-mirror">亂了陣腳，杭州G20危機重重</a>
 </h2>
@@ -119,7 +125,7 @@
 </h2>
 <p>sfrgrehget经z过反复劝说沟通，他决定今年夏天投身中超xcvsrgthsx百度云！电影限制级之资源[哈哈][照相机][哈哈][哈哈] 多的是，但是呢 还有剩余，需要的伙伴加百度云……你懂的xvfsgehtzcvf<br><img src="http://ww1.sinaimg.cn/large/3f2d3ce1gw1f2q695x6u0j20gv0u0dhp.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3962259723788698" target="freeweibo-mirror">被民族主义绑架的三国，北极熊，熊猫，北棒子</a>
 </h2>
@@ -132,12 +138,6 @@
 <p>家族利益!<br><img src="http://ww2.sinaimg.cn/large/005TvPXbjw1f2q3lfv90nj30e209kwgh.jpg"></p>
 <p>
 	<small> ============== 10小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3962212677108950" target="freeweibo-mirror">谢谢支持！[爱你]#郁言詼語#//@湘潭小武哥:请长按二维码…</a>
-</h2>
-<p>谢谢支持！[爱你]#郁言詼語#//@湘潭小武哥:请长按二维码为“乔乔”投票。@湘潭环保迪迪 @公众环境马军 @湘潭解脱 @菜乡之剑 @湘潭矛戈 @大地飞鹰在路上 @环境观察V @洪武NGO@湘潭小雪无痕 @四级警长@本人双面胶@义工胡劲松 @蓝山小痞@益阳矛哥@益阳晖哥@晚稻空间@山鹰加错@上上若树 @贺金云- @何天恩<br><br>RE: #绿色中国年度人物# #环境观察# 【用行动支持导演乔乔与他的环保电影】感谢大家对“用光影保护生态环境”摄制组的支持。为@导演乔乔JOJO 投票支持环保。爱地球，爱家园，爱电影，我们一起努力！ 三种投票方式：第二种每天都可投，微信一个账号只能投一票。4月12日截止。 用光影保护生态环境，用镜头留...全文： http://m.weibo.cn/2640506410/3962177075455552<br><img src="http://ww2.sinaimg.cn/large/9d62ee2agw1f2put7rexpj205l098q3g.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
 </p>
 <table>
     <tr>
