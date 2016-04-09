@@ -89,7 +89,7 @@
 </h2>
 <p>SPAM //@史泰龙: //@啸啸愤蹄: //@那狼容若://@王修216: //@豫R大地:木有好鸟！//@绝对集团:天儿变了//@TomCat读经闭嘴: 掩耳盗铃。删得完的吗？//@绝对集团:我就说吧，胡耀邦也好不哪去，党棍而已//@超炫777: 看看吧<br><br>RE: 删了就不知道了[偷乐] http://t.cn/RqVhraA .</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3962485184415722" target="freeweibo-mirror">在为人民服务，这个天字号谎言的掩盖下，讲尧舜言，行桀纣事，就…</a>
 </h2>
@@ -113,7 +113,7 @@
 </h2>
 <p>距離5月19日，屠夫被抓捕一週年還有39日，不要讓勇敢有謀的人孤獨。他不是律師，被隔離在709事件外。你們目光聚焦在那些已經獲得大量關注的律師們的同時，請不要忘記屠夫吴淦。（转推）<br><img src="http://ww4.sinaimg.cn/large/006oZDfjgw1f2qsrjgavqj30ea0f6q3k.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3962471465760860" target="freeweibo-mirror">[哈哈][哈哈]//@亮剑兄又来啦://@曹先生2012H:…</a>
 </h2>
