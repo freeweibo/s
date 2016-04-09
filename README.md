@@ -59,13 +59,13 @@
 </h2>
 <p>//@深夜走过长安街001:[睡]//@聪明的一叔: 偷税，能力之外。 //@GrowEasy:李是国家干部，央企头头，有什么理由建立离岸公司？//@科学飞扬:胡德平已经承认了，看只靠自己的李小琳了//@心中的小象:[哈哈]//@水舞刀: 哈哈//@咆哮的蚊子灬灬:[嘻嘻][嘻嘻]//@阿满zyx_2005: [笑哈哈]<br><br>RE: 猪国梦：删无赦！[挖鼻]<br><img src="http://ww2.sinaimg.cn/large/006fm4bUgw1f2p92wlglxj30qo0zkgny.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3962136105245728" target="freeweibo-mirror">SPAM 有些人夏天都没瘦下去 又要贴秋膘了吧  想瘦的 找…</a>
 </h2>
 <p>SPAM 有些人夏天都没瘦下去 又要贴秋膘了吧  想瘦的 找她</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3962131462236627" target="freeweibo-mirror">//@巧扯蛋:抓//@顾明峰: //@岭上松://@潘丽华律…</a>
 </h2>
