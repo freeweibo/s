@@ -19,6 +19,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3962537424648109" target="freeweibo-mirror">这人很懂中国式智慧啊。</a>
+</h2>
+<p>这人很懂中国式智慧啊。</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3962509960026820" target="freeweibo-mirror">SPAM //@我心无漾://@今夜不设防style:[笑c…</a>
 </h2>
 <p>SPAM //@我心无漾://@今夜不设防style:[笑cry] //@8Dstyle-5:[哼]//@英拉---西那瓦:再敢说实话，立马销号。//@贾公知://@陇上老马0: //@眼花心NO花: //@宅男小夫://@黄河水长浪打浪://@法律及其价值: 警告@联合国 ，小心删号！[偷笑]<br><br>RE: 厉害，@联合国 中招，这条微博已经无法转发和评论了。<br><img src="http://ww3.sinaimg.cn/large/6c0d9c6ejw1f2qr5wdbquj20hs0vktdd.jpg"></p>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3962461777011547" target="freeweibo-mirror">醒脑好图文！[赞]</a>
 </h2>
 <p>醒脑好图文！[赞]<br><img src="http://ww1.sinaimg.cn/large/006oZDfjgw1f2qrjty716j309u0cumy4.jpg"></p>
-<p>
-	<small> ============== 7小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3962458614073388" target="freeweibo-mirror">厉害，@联合国 中招，这条微博已经无法转发和评论了。</a>
-</h2>
-<p>厉害，@联合国 中招，这条微博已经无法转发和评论了。<br><img src="http://ww3.sinaimg.cn/large/6c0d9c6ejw1f2qr5wdbquj20hs0vktdd.jpg"></p>
 <p>
 	<small> ============== 7小时前</small>
 </p>
