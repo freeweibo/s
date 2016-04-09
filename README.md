@@ -89,7 +89,7 @@
 </h2>
 <p>SPAM 来一包[哈哈][哈哈]//@法律及其价值:[哈哈]//@李大华V://@張馨冰:噗~腊肉[哈哈]<br><br>RE: 如此影射毛主席，刘信达请毛新宇叔叔出面查办这家公司！<br><img src="http://ww2.sinaimg.cn/large/005x6Hz9gw1f2qbrf37arj30ku11277a.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3962382218690326" target="freeweibo-mirror">//@新博浪微:当年煤炭是黑金，他们国进民退大肆吸金，然后离…</a>
 </h2>
