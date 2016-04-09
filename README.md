@@ -71,13 +71,13 @@
 </h2>
 <p>SPAM 章文此号，恐难长久 //@daxia1976：人民的差距咋就这么大哪[嘻嘻]<br><br>RE: 冰岛人民行，中国人民不行[笑cry][泪]<br><img src="http://ww2.sinaimg.cn/large/006qVvWZjw1f2qgc47zxfj309y2jyqcm.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3962375210638475" target="freeweibo-mirror">//@新博浪微://@伟荣V实说: //@冰山有雪水: //…</a>
 </h2>
 <p>//@新博浪微://@伟荣V实说: //@冰山有雪水: //@老關再來://@奖平核子孙: //@Fanny7788-://@丁火一世://@派动反23://@沙漠渔夫809: //@觅翠04600://@余渔yu://@眼瞰-:转发微博<br><br>RE: 被民族主义绑架的三国，北极熊，熊猫，北棒子<br><img src="http://ww4.sinaimg.cn/large/006eBrQ7jw1f2q4cbun8yj30nu0zkwid.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3962364590617391" target="freeweibo-mirror">知名度大大提高。//@杨佩昌: 提议给每个国民建道德档案的那…</a>
 </h2>
