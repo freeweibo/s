@@ -47,7 +47,7 @@
 </h2>
 <p>这个比那个热传的“五毛贴”的质量高些，但第五条还是露馅了——网评员有权命令删帖？另外，没发文件的单位。右边是互联网知名专家，经常看您在《财经》等媒体上写行业评论，怎么会犯这么低级的错误？//@谢文: 地下秘密组织？<br><br>RE: 网评员工作指南………………<br><img src="http://ww1.sinaimg.cn/large/006p0Mw4jw1f2q7osayjmj30dr0m8tap.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3962487277970028" target="freeweibo-mirror">SPAM //@史泰龙: //@啸啸愤蹄: //@那狼容若:…</a>
 </h2>
@@ -109,6 +109,12 @@
 <p>
 	<small> ============== 6小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3962437902860760" target="freeweibo-mirror">删了就不知道了[偷乐] http://t.cn/RqVhra…</a>
+</h2>
+<p>删了就不知道了[偷乐] http://t.cn/RqVhraA .</p>
+<p>
+	<small> ============== 6小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3962433560883552" target="freeweibo-mirror">@黑暗的沉思:联合国涉嫌煽颠与干涉内政！//@乔志峰:有墙，…</a>
 </h2>
 <p>@黑暗的沉思:联合国涉嫌煽颠与干涉内政！//@乔志峰:有墙，有枪。<br><br>RE: ［人权事务］上周末，国际媒体披露了多达1100余万份涉及来自全球多个国家的公司、富豪以及政界人士海外洗钱、避税的机密文件，震惊世界舆论。联合国外债与人权问题独立专家波霍斯拉夫斯基4月8日就这一事件发表声明，呼吁国际社会立即终结金融保密制度。http://t.cn/RqcDqnz<br><img src="http://ww2.sinaimg.cn/large/65dfab2djw1f2q9t8lewcj20sg0izwia.jpg"></p>
@@ -119,23 +125,17 @@
 </h2>
 <p>[笑cry] //@私家野史:【举报】微博小秘书，赶紧封了博主的号。<br><br>RE: ［人权事务］上周末，国际媒体披露了多达1100余万份涉及来自全球多个国家的公司、富豪以及政界人士海外洗钱、避税的机密文件，震惊世界舆论。联合国外债与人权问题独立专家波霍斯拉夫斯基4月8日就这一事件发表声明，呼吁国际社会立即终结金融保密制度。http://t.cn/RqcDqnz<br><img src="http://ww2.sinaimg.cn/large/65dfab2djw1f2q9t8lewcj20sg0izwia.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3962428192570071" target="freeweibo-mirror">SPAM //@查理wu://@梦秋雨围脖: //@l微博改…</a>
 </h2>
 <p>SPAM //@查理wu://@梦秋雨围脖: //@l微博改变中囯l: 好意<br><br>RE: 姐夫，姐夫！<br><img src="http://ww4.sinaimg.cn/large/549f8a4djw1f2qksudmaij20hs0hsact.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3962427198526794" target="freeweibo-mirror">联合国坐实了此事。[话筒] //@徐晋如:嗯，“捕风捉影”……</a>
 </h2>
 <p>联合国坐实了此事。[话筒] //@徐晋如:嗯，“捕风捉影”…//@眭谦-伯昏子://@侯会微博://@夙生律师事务所: //@黑暗的沉思: 联合国涉嫌煽颠与干涉内政！//@乔志峰:有墙，有枪。//@李宪法-:转发微博<br><br>RE: ［人权事务］上周末，国际媒体披露了多达1100余万份涉及来自全球多个国家的公司、富豪以及政界人士海外洗钱、避税的机密文件，震惊世界舆论。联合国外债与人权问题独立专家波霍斯拉夫斯基4月8日就这一事件发表声明，呼吁国际社会立即终结金融保密制度。http://t.cn/RqcDqnz<br><img src="http://ww2.sinaimg.cn/large/65dfab2djw1f2q9t8lewcj20sg0izwia.jpg"></p>
-<p>
-	<small> ============== 7小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3962425432835976" target="freeweibo-mirror">[赞][耶]</a>
-</h2>
-<p>[赞][耶]</p>
 <p>
 	<small> ============== 7小时前</small>
 </p>
