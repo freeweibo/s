@@ -29,7 +29,7 @@
 </h2>
 <p>这个比那个热传的“五毛贴”的质量高些，但第五条还是露馅了——网评员有权命令删帖？另外，没发文件的单位。右边是互联网知名专家，经常看您在《财经》等媒体上写行业评论，怎么会犯这么低级的错误？//@谢文: 地下秘密组织？<br><br>RE: 网评员工作指南………………<br><img src="http://ww1.sinaimg.cn/large/006p0Mw4jw1f2q7osayjmj30dr0m8tap.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3962485184415722" target="freeweibo-mirror">在为人民服务，这个天字号谎言的掩盖下，讲尧舜言，行桀纣事，就…</a>
 </h2>
@@ -49,6 +49,12 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3962472283173019" target="freeweibo-mirror">距離5月19日，屠夫被抓捕一週年還有39日，不要讓勇敢有謀的…</a>
+</h2>
+<p>距離5月19日，屠夫被抓捕一週年還有39日，不要讓勇敢有謀的人孤獨。他不是律師，被隔離在709事件外。你們目光聚焦在那些已經獲得大量關注的律師們的同時，請不要忘記屠夫吴淦。（转推）<br><img src="http://ww4.sinaimg.cn/large/006oZDfjgw1f2qsrjgavqj30ea0f6q3k.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3962471465760860" target="freeweibo-mirror">[哈哈][哈哈]//@亮剑兄又来啦://@曹先生2012H:…</a>
 </h2>
 <p>[哈哈][哈哈]//@亮剑兄又来啦://@曹先生2012H: //@奖平核子孙: [哈哈]//@今夜不设防style:[哈哈] //@觅翠04600:[哈哈] //@魚-疯收://@帝都老股民:[阴险][阴险] //@明镜山民:现在怕巴拿马[偷笑]//@活色笙香: //@车锁:[哈哈][哈哈][哈哈]//@刘力博士://@无知李二:这首潜伏了几十年的反动歌曲！！！！</p>
@@ -64,6 +70,12 @@
 	<a href="https://freeweibo.com/weibo/3962463022351092" target="freeweibo-mirror">SPAM 肯德基什么时候偷偷上了一个新甜筒[哆啦A梦吃惊]草…</a>
 </h2>
 <p>SPAM 肯德基什么时候偷偷上了一个新甜筒[哆啦A梦吃惊]草莓冰淇淋花筒 有点想吃  虽然粉红色有点娘娘的<br><img src="http://ww3.sinaimg.cn/large/66f005degw1f2qrnxdp4pj20do0h73zi.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3962461777011547" target="freeweibo-mirror">醒脑好图文！[赞]</a>
+</h2>
+<p>醒脑好图文！[赞]<br><img src="http://ww1.sinaimg.cn/large/006oZDfjgw1f2qrjty716j309u0cumy4.jpg"></p>
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
@@ -83,13 +95,13 @@
 </h2>
 <p>[笑cry] //@私家野史:【举报】微博小秘书，赶紧封了博主的号。<br><br>RE: ［人权事务］上周末，国际媒体披露了多达1100余万份涉及来自全球多个国家的公司、富豪以及政界人士海外洗钱、避税的机密文件，震惊世界舆论。联合国外债与人权问题独立专家波霍斯拉夫斯基4月8日就这一事件发表声明，呼吁国际社会立即终结金融保密制度。http://t.cn/RqcDqnz<br><img src="http://ww2.sinaimg.cn/large/65dfab2djw1f2q9t8lewcj20sg0izwia.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3962428192570071" target="freeweibo-mirror">SPAM //@查理wu://@梦秋雨围脖: //@l微博改…</a>
 </h2>
 <p>SPAM //@查理wu://@梦秋雨围脖: //@l微博改变中囯l: 好意<br><br>RE: 姐夫，姐夫！<br><img src="http://ww4.sinaimg.cn/large/549f8a4djw1f2qksudmaij20hs0hsact.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3962427198526794" target="freeweibo-mirror">联合国坐实了此事。[话筒] //@徐晋如:嗯，“捕风捉影”……</a>
 </h2>
@@ -121,21 +133,9 @@
 <p>
 	<small> ============== 7小时前</small>
 </p><h2>
-	<a href="https://freeweibo.com/weibo/3962392943844752" target="freeweibo-mirror">//@彭园v://@B2B2C研究III:终于明白：许多国企…</a>
+	<a href="https://freeweibo.com/weibo/3962393745251466" target="freeweibo-mirror">刚刚浏览了一下博谈网…这些吃饱了没事干外网正经事不干，是不是…</a>
 </h2>
-<p>//@彭园v://@B2B2C研究III:终于明白：许多国企亏损的钱去哪了？都离岸而去了。<br><br>RE: 山西五大煤矿集团负债率高达82%，仅晋煤一家就欠债1700亿，总计近万亿。工人要活命，要养家，上哪儿搞钱呢。这么大的窟窿，除了政府，谁都填不上。问题是，政府压根没打算填。那咋办，下岗分流，让工人滚蛋。可是，钱到底去哪儿了？被省长他妹存进瑞士银行了。<br><img src="http://ww1.sinaimg.cn/large/006cYd4Zgw1f2qhungqbnj30ak0e3751.jpg"></p>
-<p>
-	<small> ============== 8小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3962391978340966" target="freeweibo-mirror">//@B2B2C研究III:终于明白：许多国企亏损的钱去哪了…</a>
-</h2>
-<p>//@B2B2C研究III:终于明白：许多国企亏损的钱去哪了？都离岸而去了。<br><br>RE: 山西五大煤矿集团负债率高达82%，仅晋煤一家就欠债1700亿，总计近万亿。工人要活命，要养家，上哪儿搞钱呢。这么大的窟窿，除了政府，谁都填不上。问题是，政府压根没打算填。那咋办，下岗分流，让工人滚蛋。可是，钱到底去哪儿了？被省长他妹存进瑞士银行了。<br><img src="http://ww1.sinaimg.cn/large/006cYd4Zgw1f2qhungqbnj30ak0e3751.jpg"></p>
-<p>
-	<small> ============== 8小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3962387234680116" target="freeweibo-mirror">SPAM 来一包[哈哈][哈哈]//@法律及其价值:[哈哈]…</a>
-</h2>
-<p>SPAM 来一包[哈哈][哈哈]//@法律及其价值:[哈哈]//@李大华V://@張馨冰:噗~腊肉[哈哈]<br><br>RE: 如此影射毛主席，刘信达请毛新宇叔叔出面查办这家公司！<br><img src="http://ww2.sinaimg.cn/large/005x6Hz9gw1f2qbrf37arj30ku11277a.jpg"></p>
+<p>刚刚浏览了一下博谈网…这些吃饱了没事干外网正经事不干，是不是神经病了，整天捕风捉影还上瘾了。<br><img src="http://ww1.sinaimg.cn/large/006qyVH2gw1f2qjmdnyibj30hs0vk45e.jpg"></p>
 <p>
 	<small> ============== 8小时前</small>
 </p>
