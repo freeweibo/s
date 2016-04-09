@@ -77,7 +77,7 @@
 </h2>
 <p>//@彭园v://@B2B2C研究III:终于明白：许多国企亏损的钱去哪了？都离岸而去了。<br><br>RE: 山西五大煤矿集团负债率高达82%，仅晋煤一家就欠债1700亿，总计近万亿。工人要活命，要养家，上哪儿搞钱呢。这么大的窟窿，除了政府，谁都填不上。问题是，政府压根没打算填。那咋办，下岗分流，让工人滚蛋。可是，钱到底去哪儿了？被省长他妹存进瑞士银行了。<br><img src="http://ww1.sinaimg.cn/large/006cYd4Zgw1f2qhungqbnj30ak0e3751.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3962391978340966" target="freeweibo-mirror">//@B2B2C研究III:终于明白：许多国企亏损的钱去哪了…</a>
 </h2>
@@ -101,13 +101,13 @@
 </h2>
 <p>想起了六小龄童演玉皇大帝，为什么要让一个老去的人看他年轻时的梦想？太残忍。</p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3962378242755356" target="freeweibo-mirror">山西五大煤矿集团负债率高达82%，仅晋煤一家就欠债1700亿…</a>
 </h2>
 <p>山西五大煤矿集团负债率高达82%，仅晋煤一家就欠债1700亿，总计近万亿。工人要活命，要养家，上哪儿搞钱呢。这么大的窟窿，除了政府，谁都填不上。问题是，政府压根没打算填。那咋办，下岗分流，让工人滚蛋。可是，钱到底去哪儿了？被省长他妹存进瑞士银行了。<br><img src="http://ww1.sinaimg.cn/large/006cYd4Zgw1f2qhungqbnj30ak0e3751.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3962376996903435" target="freeweibo-mirror">俄罗斯人被蒙蔽了//@ICO刘开明: //@新博浪微://@…</a>
 </h2>
