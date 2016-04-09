@@ -37,6 +37,12 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3962382218690326" target="freeweibo-mirror">//@新博浪微:当年煤炭是黑金，他们国进民退大肆吸金，然后离…</a>
+</h2>
+<p>//@新博浪微:当年煤炭是黑金，他们国进民退大肆吸金，然后离岸摸河；现在行业亏损了，他们把民工一推了之，哪管工人死活。//@B2B2C研究III: 终于明白：许多国企亏损的钱去哪了？都离岸而去了。<br><br>RE: 山西五大煤矿集团负债率高达82%，仅晋煤一家就欠债1700亿，总计近万亿。工人要活命，要养家，上哪儿搞钱呢。这么大的窟窿，除了政府，谁都填不上。问题是，政府压根没打算填。那咋办，下岗分流，让工人滚蛋。可是，钱到底去哪儿了？被省长他妹存进瑞士银行了。<br><img src="http://ww1.sinaimg.cn/large/006cYd4Zgw1f2qhungqbnj30ak0e3751.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3962378351331484" target="freeweibo-mirror">想起了六小龄童演玉皇大帝，为什么要让一个老去的人看他年轻时的…</a>
 </h2>
 <p>想起了六小龄童演玉皇大帝，为什么要让一个老去的人看他年轻时的梦想？太残忍。</p>
@@ -70,6 +76,12 @@
 	<a href="https://freeweibo.com/weibo/3962364590617391" target="freeweibo-mirror">知名度大大提高。//@杨佩昌: 提议给每个国民建道德档案的那…</a>
 </h2>
 <p>知名度大大提高。//@杨佩昌: 提议给每个国民建道德档案的那位？//@吉祥-幸运:道德姐。[弱]//@迟夙生律师:转发微博</p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3962364426816043" target="freeweibo-mirror">SPAM [汗]//@六国虹: //@吴铭:机智！[挖鼻]</a>
+</h2>
+<p>SPAM [汗]//@六国虹: //@吴铭:机智！[挖鼻]<br><br>RE: http://t.cn/Rq5UFDz 普京为罗尔杜金开离岸公司洗地的那番话我太喜欢了~ 终于找到了英文全文翻译出来[喵喵] @路尘_把名字改短<br><img src="http://ww2.sinaimg.cn/large/bd6398abjw1f2p53siuxbj20hy0us0y5.jpg"></p>
 <p>
 	<small> ============== 4小时前</small>
 </p><h2>
@@ -124,18 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3962324212085483" target="freeweibo-mirror">如此影射毛主席，刘信达请毛新宇叔叔出面查办这家公司！</a>
 </h2>
 <p>如此影射毛主席，刘信达请毛新宇叔叔出面查办这家公司！<br><img src="http://ww2.sinaimg.cn/large/005x6Hz9gw1f2qbrf37arj30ku11277a.jpg"></p>
-<p>
-	<small> ============== 7小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3962324069331678" target="freeweibo-mirror">IS来了？//@美黛是红菜苔:转发微博</a>
-</h2>
-<p>IS来了？//@美黛是红菜苔:转发微博<br><br>RE: 【央视：深圳被扣电动车竟被公开兜售】一辆价值2000元的电动车，要想领回需要交6000元的罚款。先抛开我们的愤怒，那最少相关部门得告诉老百姓，他们的车最后都去了哪？“禁摩限电”目的是什么？强制扣取老百姓的车该如何处理？难道真的40天后“监守自盗”变卖吗？@迟夙生律师 http://t.cn/RqGfMup</p>
-<p>
-	<small> ============== 7小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3962315625679632" target="freeweibo-mirror">//@腥闻人:这图一定是万恶的西方资本主义搞的阴毛 //@袁…</a>
-</h2>
-<p>//@腥闻人:这图一定是万恶的西方资本主义搞的阴毛 //@袁军的博客:真幽默 //@尼禄1225:年度最佳冷笑话。//@Fanny7788-: //@独立思考0://@西秦的狼://@白帽_青衫: 转发微博<br><br>RE: 家族利益!<br><img src="http://ww2.sinaimg.cn/large/005TvPXbjw1f2q3lfv90nj30e209kwgh.jpg"></p>
 <p>
 	<small> ============== 7小时前</small>
 </p>
