@@ -35,13 +35,13 @@
 </h2>
 <p>[笑cry] //@私家野史:【举报】微博小秘书，赶紧封了博主的号。<br><br>RE: ［人权事务］上周末，国际媒体披露了多达1100余万份涉及来自全球多个国家的公司、富豪以及政界人士海外洗钱、避税的机密文件，震惊世界舆论。联合国外债与人权问题独立专家波霍斯拉夫斯基4月8日就这一事件发表声明，呼吁国际社会立即终结金融保密制度。http://t.cn/RqcDqnz<br><img src="http://ww2.sinaimg.cn/large/65dfab2djw1f2q9t8lewcj20sg0izwia.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3962428192570071" target="freeweibo-mirror">SPAM //@查理wu://@梦秋雨围脖: //@l微博改…</a>
 </h2>
 <p>SPAM //@查理wu://@梦秋雨围脖: //@l微博改变中囯l: 好意<br><br>RE: 姐夫，姐夫！<br><img src="http://ww4.sinaimg.cn/large/549f8a4djw1f2qksudmaij20hs0hsact.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3962427198526794" target="freeweibo-mirror">联合国坐实了此事。[话筒] //@徐晋如:嗯，“捕风捉影”……</a>
 </h2>
