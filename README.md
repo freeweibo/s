@@ -41,11 +41,17 @@
 </h2>
 <p>[赞][耶]</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3962422005637888" target="freeweibo-mirror">SPAM 迟早要完蛋，所以要留后路。 //@作家金槿姬:大大…</a>
 </h2>
 <p>SPAM 迟早要完蛋，所以要留后路。 //@作家金槿姬:大大讲的好[爱你]<br><br>RE: 当官就不要发财，发财就不要当官！可以当姐夫[笑cry] http://t.cn/RGdXrlo</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3962419141830656" target="freeweibo-mirror">［人权事务］上周末，国际媒体披露了多达1100余万份涉及来自…</a>
+</h2>
+<p>［人权事务］上周末，国际媒体披露了多达1100余万份涉及来自全球多个国家的公司、富豪以及政界人士海外洗钱、避税的机密文件，震惊世界舆论。联合国外债与人权问题独立专家波霍斯拉夫斯基4月8日就这一事件发表声明，呼吁国际社会立即终结金融保密制度。http://t.cn/RqcDqnz<br><img src="http://ww2.sinaimg.cn/large/65dfab2djw1f2q9t8lewcj20sg0izwia.jpg"></p>
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
@@ -107,19 +113,19 @@
 </h2>
 <p>知名度大大提高。//@杨佩昌: 提议给每个国民建道德档案的那位？//@吉祥-幸运:道德姐。[弱]//@迟夙生律师:转发微博</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3962364426816043" target="freeweibo-mirror">SPAM [汗]//@六国虹: //@吴铭:机智！[挖鼻]</a>
 </h2>
 <p>SPAM [汗]//@六国虹: //@吴铭:机智！[挖鼻]<br><br>RE: http://t.cn/Rq5UFDz 普京为罗尔杜金开离岸公司洗地的那番话我太喜欢了~ 终于找到了英文全文翻译出来[喵喵] @路尘_把名字改短<br><img src="http://ww2.sinaimg.cn/large/bd6398abjw1f2p53siuxbj20hy0us0y5.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3962364330184914" target="freeweibo-mirror">冰岛人民行，中国人民不行[笑cry][泪]</a>
 </h2>
 <p>冰岛人民行，中国人民不行[笑cry][泪]<br><img src="http://ww2.sinaimg.cn/large/006qVvWZjw1f2qgc47zxfj309y2jyqcm.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3962363349290416" target="freeweibo-mirror">提议给每个国民建道德档案的那位？//@吉祥-幸运:道德姐。[…</a>
 </h2>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3962361922090606" target="freeweibo-mirror">道德姐。[弱]//@迟夙生律师:转发微博</a>
 </h2>
 <p>道德姐。[弱]//@迟夙生律师:转发微博</p>
-<p>
-	<small> ============== 6小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3962359254716647" target="freeweibo-mirror">//@一只博: //@准公民A: //@nb沈榄://@东西…</a>
-</h2>
-<p>//@一只博: //@准公民A: //@nb沈榄://@东西雅居://@霾里神州梦黄粱G://@马克思粉丝9://@王林的微博客: //@wakarimasu: //@Andy-_-Yeung3: //@黑郁金香of:转发微博<br><br>RE: 分享图片<br><img src="http://ww2.sinaimg.cn/large/006qRnPwgw1f2q5qnzwmnj30dc0lgn15.jpg"></p>
 <p>
 	<small> ============== 6小时前</small>
 </p>
