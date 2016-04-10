@@ -71,7 +71,7 @@
 </h2>
 <p>习主席，是菩萨化身。 http://t.cn/Rqfr2Qh</p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3962771991396233" target="freeweibo-mirror">衡阳这位宣传部新闻中心的主任火了。</a>
 </h2>
