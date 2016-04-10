@@ -47,13 +47,13 @@
 </h2>
 <p>SPAM //@粵東老趙://@广州湾在线: //@反公车浪费六://@一根筋男人://@kakakaka1973://@崔小平律师: //@法律及其价值:警告@联合国 ，小心删号！[偷笑]<br><br>RE: 厉害，@联合国 中招，这条微博已经无法转发和评论了。<br><img src="http://ww3.sinaimg.cn/large/6c0d9c6ejw1f2qr5wdbquj20hs0vktdd.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3962508644071793" target="freeweibo-mirror">SPAM 不要胖死[生病] 想瘦找她@婉悦的瘦身日记</a>
 </h2>
 <p>SPAM 不要胖死[生病] 想瘦找她@婉悦的瘦身日记</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3962507947374816" target="freeweibo-mirror">//@SH-风姿娉婷:皇城跟下的就是</a>
 </h2>
