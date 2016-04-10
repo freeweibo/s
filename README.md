@@ -65,7 +65,7 @@
 </h2>
 <p>#反腐倡廉#湖南娄底市政协副主席黄祥刚坠楼身亡  （分享自 @新浪新闻）有人分析，为何贪官自杀比判死刑的多 http://t.cn/RAUkcl2 http://t.cn/RqfDZA5<br><img src="http://ww1.sinaimg.cn/large/49e0cb69jw1f2rsjs9mvzj203z05pa9x.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3962777795965480" target="freeweibo-mirror">习主席，是菩萨化身。 http://t.cn/Rqfr2Qh</a>
 </h2>
