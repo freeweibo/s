@@ -59,7 +59,7 @@
 </h2>
 <p>没牙是不是也叫作“无齿”？//@六国虹: //@深圳王剑://@防务君://@八桂直播:[哈哈]→_→//@司徒正襟:这年头宗教界也懂政治，就差带个姑娘蹦迪了。//@马轩:这人是谁呀<br><br>RE: 习主席，是菩萨化身。 http://t.cn/Rqfr2Qh</p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3962783865017218" target="freeweibo-mirror">#反腐倡廉#湖南娄底市政协副主席黄祥刚坠楼身亡  （分享自 …</a>
 </h2>
@@ -95,7 +95,7 @@
 </h2>
 <p>SPAM [酷]//@孟彦弘:寻衅滋事[酷]<br><br>RE: 成千上万英国民众在唐宁街十号门口要求卡梅伦立即辞职 http://t.cn/RqVBayB<br><img src="http://ww1.sinaimg.cn/large/656952ecjw1f2r7v5notvj21be0qo12c.jpg"></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3962739442932388" target="freeweibo-mirror">SPAM //@查良钧://@DopeyTom:[拳头]//…</a>
 </h2>
@@ -113,7 +113,7 @@
 </h2>
 <p>//@山高路远N: //@永嘉小强://@秋风秋雨N:资本主义的总统没有好日子过，请我去都不去！<br><br>RE: 转<br><img src="http://ww1.sinaimg.cn/large/664b5e3ajw1f2re95pwryj20ku0rstan.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3962718770152327" target="freeweibo-mirror">SPAM //@李_磊: 过去知道黑社会暴力打手基本都是东北…</a>
 </h2>
