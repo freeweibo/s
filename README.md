@@ -41,7 +41,7 @@
 </h2>
 <p>真相<br><br>RE: 衡阳这位宣传部新闻中心的主任火了。<br><img src="http://ww4.sinaimg.cn/large/6362d8eagw1f2rr697kj7j20m00edta5.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3962819822542240" target="freeweibo-mirror">这个宗教人士有女人面相，沙哑低沉男人声音，笑颜异常诡异</a>
 </h2>
@@ -53,7 +53,7 @@
 </h2>
 <p>SPAM 超度他去吧！ //@法律及其价值:法师必须要有特色。[哈哈]//@刘力博士://@保卫楠溪江:百度百科：“2000年，净空法师移居澳大利亚。”回来吧，大师！菩萨化身在这里，你跑偏了。[哈哈] //@晓雨闻铃:没牙是不是也叫作“无齿”？ //@六国虹: //@深圳王剑: //@防务君: //@八桂直播:[哈哈]<br><br>RE: 习主席，是菩萨化身。 http://t.cn/Rqfr2Qh</p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3962788579963455" target="freeweibo-mirror">没牙是不是也叫作“无齿”？//@六国虹: //@深圳王剑:/…</a>
 </h2>
@@ -113,7 +113,7 @@
 </h2>
 <p>//@山高路远N: //@永嘉小强://@秋风秋雨N:资本主义的总统没有好日子过，请我去都不去！<br><br>RE: 转<br><img src="http://ww1.sinaimg.cn/large/664b5e3ajw1f2re95pwryj20ku0rstan.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3962718770152327" target="freeweibo-mirror">SPAM //@李_磊: 过去知道黑社会暴力打手基本都是东北…</a>
 </h2>
