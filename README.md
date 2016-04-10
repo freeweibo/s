@@ -89,7 +89,7 @@
 </h2>
 <p>这个比那个热传的“五毛贴”的质量高些，但第五条还是露馅了——网评员有权命令删帖？另外，没发文件的单位。右边是互联网知名专家，经常看您在《财经》等媒体上写行业评论，怎么会犯这么低级的错误？//@谢文: 地下秘密组织？<br><br>RE: 网评员工作指南………………<br><img src="http://ww1.sinaimg.cn/large/006p0Mw4jw1f2q7osayjmj30dr0m8tap.jpg"></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3962487277970028" target="freeweibo-mirror">SPAM //@史泰龙: //@啸啸愤蹄: //@那狼容若:…</a>
 </h2>
