@@ -59,7 +59,7 @@
 </h2>
 <p>SPAM //@游走的鱼二:别给我们两学一做添乱/@贾公知://@陇上老马0: //@眼花心NO花: //@宅男小夫://@黄河水长浪打浪://@法律及其价值: 警告@联合国 ，小心删号！[偷笑]<br><br>RE: 厉害，@联合国 中招，这条微博已经无法转发和评论了。<br><img src="http://ww3.sinaimg.cn/large/6c0d9c6ejw1f2qr5wdbquj20hs0vktdd.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3962499491642949" target="freeweibo-mirror">SPAM [doge]//@我们都是宠物迷: 喜欢她的祛痘技…</a>
 </h2>
