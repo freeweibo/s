@@ -29,7 +29,7 @@
 </h2>
 <p>这个宗教人士有女人面相，沙哑低沉男人声音，笑颜异常诡异</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3962810683922408" target="freeweibo-mirror">SPAM 超度他去吧！ //@法律及其价值:法师必须要有特色…</a>
 </h2>
@@ -53,7 +53,7 @@
 </h2>
 <p>SPAM 肯定是谣言！[NO] //@李铁军:姐夫很忙[doge]//@阿吉_Aydge:今晚我们都是⋯⋯[怒]</p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3962748779939532" target="freeweibo-mirror">//@一只博: //@热血7132911: 转发微博</a>
 </h2>
