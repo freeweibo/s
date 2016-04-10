@@ -19,6 +19,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3962819822542240" target="freeweibo-mirror">这个宗教人士有女人面相，沙哑低沉男人声音，笑颜异常诡异</a>
+</h2>
+<p>这个宗教人士有女人面相，沙哑低沉男人声音，笑颜异常诡异</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3962759123302902" target="freeweibo-mirror">SPAM 肯定是谣言！[NO] //@李铁军:姐夫很忙[do…</a>
 </h2>
 <p>SPAM 肯定是谣言！[NO] //@李铁军:姐夫很忙[doge]//@阿吉_Aydge:今晚我们都是⋯⋯[怒]</p>
@@ -41,7 +47,7 @@
 </h2>
 <p>SPAM //@查良钧://@DopeyTom:[拳头]//@neowb2:[嘻嘻]今天，我们都是卡梅伦！//@许合文: //@川A冷眼观河蟹: [笑cry]//@玳簋36://@独狼血恨134: [笑cry]//@安徽田宽105: //@Fanny7788-:[笑哈哈][笑哈哈]<br><br>RE: 朋友们帮俺看下，这帖子里哪个是敏感瓷。才发出来，没有阅读量，就被屏了。[生病]<br><img src="http://ww2.sinaimg.cn/large/8603d4cfjw1f2reggad83j20p018gtic.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3962730317171817" target="freeweibo-mirror">//@天堂魔鬼1: 捕风捉影 一派胡言！//@陈光武律师:/…</a>
 </h2>
@@ -89,7 +95,7 @@
 </h2>
 <p>一、此前我曾认为公开回应也没啥大问题，但经历“酒店遇袭”事件舆论之狂躁之后，再结合“一条谣言摧毁突尼斯政权”的实例，我认为共党管控网络是正确的！以如今网民之狂躁：什么？公开回应了？不信不信就不信！——反正不是屎也是屎。且从目前披露的信息来看，至少现任高层并无直接证据指向。<br><br>RE: 转<br><img src="http://ww1.sinaimg.cn/large/664b5e3ajw1f2re95pwryj20ku0rstan.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3962707156096171" target="freeweibo-mirror">这届英国人民不行。素质太差了。才三万英镑，没见过钱吗？//@…</a>
 </h2>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3962678609780145" target="freeweibo-mirror">英国首相卡梅伦，此前在采访中承认他至少从避税天堂获利3万英镑…</a>
 </h2>
 <p>英国首相卡梅伦，此前在采访中承认他至少从避税天堂获利3万英镑，该丑闻曝光后，有数千名民众聚集在唐宁街十号要求其辞职。愤怒的抗议者们在唐宁街外高举着抗议牌，人群高喊“卡梅伦必须辞职”、“逃税是犯罪”，“保守党滚出去”等口号。3万英镑就闹成这样，呵呵……<br><img src="http://ww4.sinaimg.cn/large/a8ef5277jw1f2rg9in5xcj20qq0hotd1.jpg"></p>
-<p>
-	<small> ============== 10小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3962677728940251" target="freeweibo-mirror">文件披露的内容，不是境外敌对势力专门唱衰中国的举动，好像哪个…</a>
-</h2>
-<p>文件披露的内容，不是境外敌对势力专门唱衰中国的举动，好像哪个国家都有。因此这不是针对哪个政治倾向的文件，是客观记录的一些档案材料。世界各国媒体对这些事情广泛报导，让公众知道社会上还存在这些事情，让有关国家老百姓知道政治人物有可能涉及到这方面事情。--@福州馆-508-7http://t.cn/RqcFtcB</p>
 <p>
 	<small> ============== 11小时前</small>
 </p>
