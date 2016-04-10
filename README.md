@@ -23,7 +23,7 @@
 </h2>
 <p>//@何兵:律师事务所自己承认，文件是真的。@樊德安:首先要搞清楚怎么回事，然后再考虑应对方法。[晕]//@酒叔李权: 提到了巴巴马三个字，这个视屏也该删[偷笑]<br><br>RE: 告诉你，我不傻。但我很会装傻。[嘻嘻][嘻嘻] http://t.cn/RqV4aEv .</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3962537424648109" target="freeweibo-mirror">这人很懂中国式智慧啊。</a>
 </h2>
@@ -35,7 +35,7 @@
 </h2>
 <p>SPAM //@我心无漾://@今夜不设防style:[笑cry] //@8Dstyle-5:[哼]//@英拉---西那瓦:再敢说实话，立马销号。//@贾公知://@陇上老马0: //@眼花心NO花: //@宅男小夫://@黄河水长浪打浪://@法律及其价值: 警告@联合国 ，小心删号！[偷笑]<br><br>RE: 厉害，@联合国 中招，这条微博已经无法转发和评论了。<br><img src="http://ww3.sinaimg.cn/large/6c0d9c6ejw1f2qr5wdbquj20hs0vktdd.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3962509650326897" target="freeweibo-mirror">SPAM //@粵東老趙://@广州湾在线: //@反公车浪…</a>
 </h2>
