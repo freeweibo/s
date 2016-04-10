@@ -65,7 +65,7 @@
 </h2>
 <p>这届英国人民不行。素质太差了。才三万英镑，没见过钱吗？//@德钢制造:切！ //@邓树林律师: //@周泽律师: 欢迎卡梅伦来中国做人民公仆。<br><br>RE: 英国首相卡梅伦，此前在采访中承认他至少从避税天堂获利3万英镑，该丑闻曝光后，有数千名民众聚集在唐宁街十号要求其辞职。愤怒的抗议者们在唐宁街外高举着抗议牌，人群高喊“卡梅伦必须辞职”、“逃税是犯罪”，“保守党滚出去”等口号。3万英镑就闹成这样，呵呵……<br><img src="http://ww4.sinaimg.cn/large/a8ef5277jw1f2rg9in5xcj20qq0hotd1.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3962682401297238" target="freeweibo-mirror">//@七十年是兔子極限: //@尊重个体:你不出头  你能保…</a>
 </h2>
@@ -76,6 +76,12 @@
 	<a href="https://freeweibo.com/weibo/3962680316126786" target="freeweibo-mirror">黑不见底？</a>
 </h2>
 <p>黑不见底？<br><br>RE: 连卡梅伦这么干净的人也面临辞职，政治家真是一个风险最大化的职业。而某些国度的官员，真是黑暗得就是一群幽灵，浑身长满了毒疮和蛆。然而他们看上去总是那么伟岸，那么自信。让人不得不承认，虽然都是人，但人和人之间，国家和国家之间，的确存在特色差异：有罪之人与魔鬼的差异。</p>
+<p>
+	<small> ============== 5小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3962678609780145" target="freeweibo-mirror">英国首相卡梅伦，此前在采访中承认他至少从避税天堂获利3万英镑…</a>
+</h2>
+<p>英国首相卡梅伦，此前在采访中承认他至少从避税天堂获利3万英镑，该丑闻曝光后，有数千名民众聚集在唐宁街十号要求其辞职。愤怒的抗议者们在唐宁街外高举着抗议牌，人群高喊“卡梅伦必须辞职”、“逃税是犯罪”，“保守党滚出去”等口号。3万英镑就闹成这样，呵呵……<br><img src="http://ww4.sinaimg.cn/large/a8ef5277jw1f2rg9in5xcj20qq0hotd1.jpg"></p>
 <p>
 	<small> ============== 5小时前</small>
 </p><h2>
@@ -119,7 +125,7 @@
 </h2>
 <p>//@何兵:律师事务所自己承认，文件是真的。@樊德安:首先要搞清楚怎么回事，然后再考虑应对方法。[晕]//@酒叔李权: 提到了巴巴马三个字，这个视屏也该删[偷笑]<br><br>RE: 告诉你，我不傻。但我很会装傻。[嘻嘻][嘻嘻] http://t.cn/RqV4aEv .</p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3962537424648109" target="freeweibo-mirror">这人很懂中国式智慧啊。</a>
 </h2>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3962509960026820" target="freeweibo-mirror">SPAM //@我心无漾://@今夜不设防style:[笑c…</a>
 </h2>
 <p>SPAM //@我心无漾://@今夜不设防style:[笑cry] //@8Dstyle-5:[哼]//@英拉---西那瓦:再敢说实话，立马销号。//@贾公知://@陇上老马0: //@眼花心NO花: //@宅男小夫://@黄河水长浪打浪://@法律及其价值: 警告@联合国 ，小心删号！[偷笑]<br><br>RE: 厉害，@联合国 中招，这条微博已经无法转发和评论了。<br><img src="http://ww3.sinaimg.cn/large/6c0d9c6ejw1f2qr5wdbquj20hs0vktdd.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3962509650326897" target="freeweibo-mirror">SPAM //@粵東老趙://@广州湾在线: //@反公车浪…</a>
-</h2>
-<p>SPAM //@粵東老趙://@广州湾在线: //@反公车浪费六://@一根筋男人://@kakakaka1973://@崔小平律师: //@法律及其价值:警告@联合国 ，小心删号！[偷笑]<br><br>RE: 厉害，@联合国 中招，这条微博已经无法转发和评论了。<br><img src="http://ww3.sinaimg.cn/large/6c0d9c6ejw1f2qr5wdbquj20hs0vktdd.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
