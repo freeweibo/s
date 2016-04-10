@@ -65,7 +65,7 @@
 </h2>
 <p>#反腐倡廉#湖南娄底市政协副主席黄祥刚坠楼身亡  （分享自 @新浪新闻）有人分析，为何贪官自杀比判死刑的多 http://t.cn/RAUkcl2 http://t.cn/RqfDZA5<br><img src="http://ww1.sinaimg.cn/large/49e0cb69jw1f2rsjs9mvzj203z05pa9x.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3962777795965480" target="freeweibo-mirror">习主席，是菩萨化身。 http://t.cn/Rqfr2Qh</a>
 </h2>
@@ -107,7 +107,7 @@
 </h2>
 <p>//@天堂魔鬼1: 捕风捉影 一派胡言！//@陈光武律师://@山高路远N: 接轨不接轨，谁说了算?<br><br>RE: 文件披露的内容，不是境外敌对势力专门唱衰中国的举动，好像哪个国家都有。因此这不是针对哪个政治倾向的文件，是客观记录的一些档案材料。世界各国媒体对这些事情广泛报导，让公众知道社会上还存在这些事情，让有关国家老百姓知道政治人物有可能涉及到这方面事情。--@福州馆-508-7http://t.cn/RqcFtcB</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3962727586202799" target="freeweibo-mirror">//@山高路远N: //@永嘉小强://@秋风秋雨N:资本主…</a>
 </h2>
