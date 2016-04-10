@@ -29,7 +29,7 @@
 </h2>
 <p>这人很懂中国式智慧啊。</p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3962509960026820" target="freeweibo-mirror">SPAM //@我心无漾://@今夜不设防style:[笑c…</a>
 </h2>
@@ -65,7 +65,7 @@
 </h2>
 <p>SPAM [doge]//@我们都是宠物迷: 喜欢她的祛痘技巧，亲身验证，一周内见效[赞]！！战痘女生们咨询她  非常专业，非常靠谱！！扩散转需，你们会来谢我的[doge]</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3962493841446983" target="freeweibo-mirror">//@半两簃主人: 这妖后台好硬啊，悟空呢？</a>
 </h2>
