@@ -53,7 +53,7 @@
 </h2>
 <p>SPAM 超度他去吧！ //@法律及其价值:法师必须要有特色。[哈哈]//@刘力博士://@保卫楠溪江:百度百科：“2000年，净空法师移居澳大利亚。”回来吧，大师！菩萨化身在这里，你跑偏了。[哈哈] //@晓雨闻铃:没牙是不是也叫作“无齿”？ //@六国虹: //@深圳王剑: //@防务君: //@八桂直播:[哈哈]<br><br>RE: 习主席，是菩萨化身。 http://t.cn/Rqfr2Qh</p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3962788579963455" target="freeweibo-mirror">没牙是不是也叫作“无齿”？//@六国虹: //@深圳王剑:/…</a>
 </h2>
@@ -95,7 +95,7 @@
 </h2>
 <p>SPAM [酷]//@孟彦弘:寻衅滋事[酷]<br><br>RE: 成千上万英国民众在唐宁街十号门口要求卡梅伦立即辞职 http://t.cn/RqVBayB<br><img src="http://ww1.sinaimg.cn/large/656952ecjw1f2r7v5notvj21be0qo12c.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3962739442932388" target="freeweibo-mirror">SPAM //@查良钧://@DopeyTom:[拳头]//…</a>
 </h2>
