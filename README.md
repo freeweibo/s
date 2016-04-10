@@ -37,6 +37,12 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3962717360922945" target="freeweibo-mirror">//@飞累了云上躺躺:3万英镑 //@小白哥乌拉诺斯:说实话…</a>
+</h2>
+<p>//@飞累了云上躺躺:3万英镑 //@小白哥乌拉诺斯:说实话 个人很喜欢卡梅伦<br><br>RE: 英国首相卡梅伦，此前在采访中承认他至少从避税天堂获利3万英镑，该丑闻曝光后，有数千名民众聚集在唐宁街十号要求其辞职。愤怒的抗议者们在唐宁街外高举着抗议牌，人群高喊“卡梅伦必须辞职”、“逃税是犯罪”，“保守党滚出去”等口号。3万英镑就闹成这样，呵呵……<br><img src="http://ww4.sinaimg.cn/large/a8ef5277jw1f2rg9in5xcj20qq0hotd1.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3962713044276816" target="freeweibo-mirror">三、只要现任高层没实据，其他的就好办得多。没见前任常委、军委…</a>
 </h2>
 <p>三、只要现任高层没实据，其他的就好办得多。没见前任常委、军委副主席都能拿下？我非常非常好奇的是：上次纽约时报获普奖的报道，比这个巴拿马强大何止千倍万倍？为何少见今天力炒巴拿马的这些人逼逼？为什么呢？<br><br>RE: 转<br><img src="http://ww1.sinaimg.cn/large/664b5e3ajw1f2re95pwryj20ku0rstan.jpg"></p>
@@ -52,6 +58,12 @@
 	<a href="https://freeweibo.com/weibo/3962708648858161" target="freeweibo-mirror">一、此前我曾认为公开回应也没啥大问题，但经历“酒店遇袭”事件…</a>
 </h2>
 <p>一、此前我曾认为公开回应也没啥大问题，但经历“酒店遇袭”事件舆论之狂躁之后，再结合“一条谣言摧毁突尼斯政权”的实例，我认为共党管控网络是正确的！以如今网民之狂躁：什么？公开回应了？不信不信就不信！——反正不是屎也是屎。且从目前披露的信息来看，至少现任高层并无直接证据指向。<br><br>RE: 转<br><img src="http://ww1.sinaimg.cn/large/664b5e3ajw1f2re95pwryj20ku0rstan.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3962707156096171" target="freeweibo-mirror">这届英国人民不行。素质太差了。才三万英镑，没见过钱吗？//@…</a>
+</h2>
+<p>这届英国人民不行。素质太差了。才三万英镑，没见过钱吗？//@德钢制造:切！ //@邓树林律师: //@周泽律师: 欢迎卡梅伦来中国做人民公仆。<br><br>RE: 英国首相卡梅伦，此前在采访中承认他至少从避税天堂获利3万英镑，该丑闻曝光后，有数千名民众聚集在唐宁街十号要求其辞职。愤怒的抗议者们在唐宁街外高举着抗议牌，人群高喊“卡梅伦必须辞职”、“逃税是犯罪”，“保守党滚出去”等口号。3万英镑就闹成这样，呵呵……<br><img src="http://ww4.sinaimg.cn/large/a8ef5277jw1f2rg9in5xcj20qq0hotd1.jpg"></p>
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
@@ -124,18 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3962509650326897" target="freeweibo-mirror">SPAM //@粵東老趙://@广州湾在线: //@反公车浪…</a>
 </h2>
 <p>SPAM //@粵東老趙://@广州湾在线: //@反公车浪费六://@一根筋男人://@kakakaka1973://@崔小平律师: //@法律及其价值:警告@联合国 ，小心删号！[偷笑]<br><br>RE: 厉害，@联合国 中招，这条微博已经无法转发和评论了。<br><img src="http://ww3.sinaimg.cn/large/6c0d9c6ejw1f2qr5wdbquj20hs0vktdd.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3962508644071793" target="freeweibo-mirror">SPAM 不要胖死[生病] 想瘦找她@婉悦的瘦身日记</a>
-</h2>
-<p>SPAM 不要胖死[生病] 想瘦找她@婉悦的瘦身日记</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3962507947374816" target="freeweibo-mirror">//@SH-风姿娉婷:皇城跟下的就是</a>
-</h2>
-<p>//@SH-风姿娉婷:皇城跟下的就是</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
