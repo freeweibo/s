@@ -23,7 +23,7 @@
 </h2>
 <p>SPAM //@李_磊: 过去知道黑社会暴力打手基本都是东北人，现在河南的皮条客却领先了北京外地人的暴力指数。[笑cry] //@马随: //@江筱湖://@陈佳佳://@游云庭律师://@谈峥谈瀛洲://@王周生:<br><br>RE: 转<br><img src="http://ww1.sinaimg.cn/large/664b5e3ajw1f2re95pwryj20ku0rstan.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3962680316126786" target="freeweibo-mirror">黑不见底？</a>
 </h2>
