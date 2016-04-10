@@ -59,7 +59,7 @@
 </h2>
 <p>//@SH-风姿娉婷:皇城跟下的就是</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3962505817047308" target="freeweibo-mirror">SPAM //@游走的鱼二:别给我们两学一做添乱/@贾公知:…</a>
 </h2>
