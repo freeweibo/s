@@ -19,6 +19,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3962826894599782" target="freeweibo-mirror">真相</a>
+</h2>
+<p>真相<br><br>RE: 衡阳这位宣传部新闻中心的主任火了。<br><img src="http://ww4.sinaimg.cn/large/6362d8eagw1f2rr697kj7j20m00edta5.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3962819822542240" target="freeweibo-mirror">这个宗教人士有女人面相，沙哑低沉男人声音，笑颜异常诡异</a>
 </h2>
 <p>这个宗教人士有女人面相，沙哑低沉男人声音，笑颜异常诡异</p>
@@ -65,7 +71,7 @@
 </h2>
 <p>SPAM //@查良钧://@DopeyTom:[拳头]//@neowb2:[嘻嘻]今天，我们都是卡梅伦！//@许合文: //@川A冷眼观河蟹: [笑cry]//@玳簋36://@独狼血恨134: [笑cry]//@安徽田宽105: //@Fanny7788-:[笑哈哈][笑哈哈]<br><br>RE: 朋友们帮俺看下，这帖子里哪个是敏感瓷。才发出来，没有阅读量，就被屏了。[生病]<br><img src="http://ww2.sinaimg.cn/large/8603d4cfjw1f2reggad83j20p018gtic.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3962730317171817" target="freeweibo-mirror">//@天堂魔鬼1: 捕风捉影 一派胡言！//@陈光武律师:/…</a>
 </h2>
@@ -113,7 +119,7 @@
 </h2>
 <p>一、此前我曾认为公开回应也没啥大问题，但经历“酒店遇袭”事件舆论之狂躁之后，再结合“一条谣言摧毁突尼斯政权”的实例，我认为共党管控网络是正确的！以如今网民之狂躁：什么？公开回应了？不信不信就不信！——反正不是屎也是屎。且从目前披露的信息来看，至少现任高层并无直接证据指向。<br><br>RE: 转<br><img src="http://ww1.sinaimg.cn/large/664b5e3ajw1f2re95pwryj20ku0rstan.jpg"></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3962707156096171" target="freeweibo-mirror">这届英国人民不行。素质太差了。才三万英镑，没见过钱吗？//@…</a>
 </h2>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3962703208333748" target="freeweibo-mirror">SPAM //@清华池一级搓澡工:这一定是社会主义的阴谋[怒…</a>
 </h2>
 <p>SPAM //@清华池一级搓澡工:这一定是社会主义的阴谋[怒]<br><br>RE: 成千上万英国民众在唐宁街十号门口要求卡梅伦立即辞职 http://t.cn/RqVBayB<br><img src="http://ww1.sinaimg.cn/large/656952ecjw1f2r7v5notvj21be0qo12c.jpg"></p>
-<p>
-	<small> ============== 11小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3962699321376903" target="freeweibo-mirror">SPAM #音乐风云榜联合偶扑诈骗# 被骗的粉丝家（截止目前…</a>
-</h2>
-<p>SPAM #音乐风云榜联合偶扑诈骗# 被骗的粉丝家（截止目前不完整统计）①王俊凯家奖项被顶替，被骗18万。②王青&冯建宇家奖项无故消失，被骗36.6万。③张艺兴家后台颁奖，主场无任何公示。被骗30.4万 ④朴灿烈家后台颁奖，被骗6.1万。⑤罗志祥家奖项无故消失，被骗3.8万。⑥何炅&王嘉尔奖项无故消失，被骗1.1...全文： http://m.weibo.cn/1653761941/3962699321376903<br><img src="http://ww2.sinaimg.cn/large/62926795gw1f2rirl84dpj20dw1za7b3.jpg"></p>
 <p>
 	<small> ============== 11小时前</small>
 </p>
