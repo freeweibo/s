@@ -49,6 +49,12 @@
 <p>
 	<small> ============== 5小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3962634640166796" target="freeweibo-mirror">连卡梅伦这么干净的人也面临辞职，政治家真是一个风险最大化的职…</a>
+</h2>
+<p>连卡梅伦这么干净的人也面临辞职，政治家真是一个风险最大化的职业。而某些国度的官员，真是黑暗得就是一群幽灵，浑身长满了毒疮和蛆。然而他们看上去总是那么伟岸，那么自信。让人不得不承认，虽然都是人，但人和人之间，国家和国家之间，的确存在特色差异：有罪之人与魔鬼的差异。</p>
+<p>
+	<small> ============== 5小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3962600850782434" target="freeweibo-mirror">//@何兵:律师事务所自己承认，文件是真的。@樊德安:首先要…</a>
 </h2>
 <p>//@何兵:律师事务所自己承认，文件是真的。@樊德安:首先要搞清楚怎么回事，然后再考虑应对方法。[晕]//@酒叔李权: 提到了巴巴马三个字，这个视屏也该删[偷笑]<br><br>RE: 告诉你，我不傻。但我很会装傻。[嘻嘻][嘻嘻] http://t.cn/RqV4aEv .</p>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3962485184415722" target="freeweibo-mirror">在为人民服务，这个天字号谎言的掩盖下，讲尧舜言，行桀纣事，就…</a>
 </h2>
 <p>在为人民服务，这个天字号谎言的掩盖下，讲尧舜言，行桀纣事，就是国情！ //@面朝大海海啸来了: //@陈平福001:转发微博<br><br>RE: 醒脑好图文！[赞]<br><img src="http://ww1.sinaimg.cn/large/006oZDfjgw1f2qrjty716j309u0cumy4.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3962480818271127" target="freeweibo-mirror">SPAM 瘦6斤 想瘦找她@Hello瘦子瘦子</a>
-</h2>
-<p>SPAM 瘦6斤 想瘦找她@Hello瘦子瘦子</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
