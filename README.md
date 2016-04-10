@@ -95,7 +95,7 @@
 </h2>
 <p>SPAM //@史泰龙: //@啸啸愤蹄: //@那狼容若://@王修216: //@豫R大地:木有好鸟！//@绝对集团:天儿变了//@TomCat读经闭嘴: 掩耳盗铃。删得完的吗？//@绝对集团:我就说吧，胡耀邦也好不哪去，党棍而已//@超炫777: 看看吧<br><br>RE: 删了就不知道了[偷乐] http://t.cn/RqVhraA .</p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3962485184415722" target="freeweibo-mirror">在为人民服务，这个天字号谎言的掩盖下，讲尧舜言，行桀纣事，就…</a>
 </h2>
@@ -107,7 +107,7 @@
 </h2>
 <p>SPAM 瘦6斤 想瘦找她@Hello瘦子瘦子</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3962474980258855" target="freeweibo-mirror">SPAM 【胡耀邦猝死真正原因：喝了西瓜汁】从西瓜的“天然白…</a>
 </h2>
