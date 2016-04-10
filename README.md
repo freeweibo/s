@@ -19,6 +19,18 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3962748779939532" target="freeweibo-mirror">//@一只博: //@热血7132911: 转发微博</a>
+</h2>
+<p>//@一只博: //@热血7132911: 转发微博<br><br>RE: 成千上万英国民众在唐宁街十号门口要求卡梅伦立即辞职 http://t.cn/RqVBayB<br><img src="http://ww1.sinaimg.cn/large/656952ecjw1f2r7v5notvj21be0qo12c.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3962739442932388" target="freeweibo-mirror">SPAM //@查良钧://@DopeyTom:[拳头]//…</a>
+</h2>
+<p>SPAM //@查良钧://@DopeyTom:[拳头]//@neowb2:[嘻嘻]今天，我们都是卡梅伦！//@许合文: //@川A冷眼观河蟹: [笑cry]//@玳簋36://@独狼血恨134: [笑cry]//@安徽田宽105: //@Fanny7788-:[笑哈哈][笑哈哈]<br><br>RE: 朋友们帮俺看下，这帖子里哪个是敏感瓷。才发出来，没有阅读量，就被屏了。[生病]<br><img src="http://ww2.sinaimg.cn/large/8603d4cfjw1f2reggad83j20p018gtic.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3962727586202799" target="freeweibo-mirror">//@山高路远N: //@永嘉小强://@秋风秋雨N:资本主…</a>
 </h2>
 <p>//@山高路远N: //@永嘉小强://@秋风秋雨N:资本主义的总统没有好日子过，请我去都不去！<br><br>RE: 转<br><img src="http://ww1.sinaimg.cn/large/664b5e3ajw1f2re95pwryj20ku0rstan.jpg"></p>
@@ -59,7 +71,7 @@
 </h2>
 <p>一、此前我曾认为公开回应也没啥大问题，但经历“酒店遇袭”事件舆论之狂躁之后，再结合“一条谣言摧毁突尼斯政权”的实例，我认为共党管控网络是正确的！以如今网民之狂躁：什么？公开回应了？不信不信就不信！——反正不是屎也是屎。且从目前披露的信息来看，至少现任高层并无直接证据指向。<br><br>RE: 转<br><img src="http://ww1.sinaimg.cn/large/664b5e3ajw1f2re95pwryj20ku0rstan.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3962707156096171" target="freeweibo-mirror">这届英国人民不行。素质太差了。才三万英镑，没见过钱吗？//@…</a>
 </h2>
@@ -83,7 +95,7 @@
 </h2>
 <p>英国首相卡梅伦，此前在采访中承认他至少从避税天堂获利3万英镑，该丑闻曝光后，有数千名民众聚集在唐宁街十号要求其辞职。愤怒的抗议者们在唐宁街外高举着抗议牌，人群高喊“卡梅伦必须辞职”、“逃税是犯罪”，“保守党滚出去”等口号。3万英镑就闹成这样，呵呵……<br><img src="http://ww4.sinaimg.cn/large/a8ef5277jw1f2rg9in5xcj20qq0hotd1.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3962653460170993" target="freeweibo-mirror">//@李幺傻:老毛子对中国罪恶滔天，却有无数脑残追捧它，猪也…</a>
 </h2>
@@ -126,18 +138,6 @@
 <p>//@何兵:律师事务所自己承认，文件是真的。@樊德安:首先要搞清楚怎么回事，然后再考虑应对方法。[晕]//@酒叔李权: 提到了巴巴马三个字，这个视屏也该删[偷笑]<br><br>RE: 告诉你，我不傻。但我很会装傻。[嘻嘻][嘻嘻] http://t.cn/RqV4aEv .</p>
 <p>
 	<small> ============== 11小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3962537424648109" target="freeweibo-mirror">这人很懂中国式智慧啊。</a>
-</h2>
-<p>这人很懂中国式智慧啊。</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3962509960026820" target="freeweibo-mirror">SPAM //@我心无漾://@今夜不设防style:[笑c…</a>
-</h2>
-<p>SPAM //@我心无漾://@今夜不设防style:[笑cry] //@8Dstyle-5:[哼]//@英拉---西那瓦:再敢说实话，立马销号。//@贾公知://@陇上老马0: //@眼花心NO花: //@宅男小夫://@黄河水长浪打浪://@法律及其价值: 警告@联合国 ，小心删号！[偷笑]<br><br>RE: 厉害，@联合国 中招，这条微博已经无法转发和评论了。<br><img src="http://ww3.sinaimg.cn/large/6c0d9c6ejw1f2qr5wdbquj20hs0vktdd.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
 </p>
 <table>
     <tr>
