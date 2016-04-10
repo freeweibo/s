@@ -101,7 +101,7 @@
 </h2>
 <p>在为人民服务，这个天字号谎言的掩盖下，讲尧舜言，行桀纣事，就是国情！ //@面朝大海海啸来了: //@陈平福001:转发微博<br><br>RE: 醒脑好图文！[赞]<br><img src="http://ww1.sinaimg.cn/large/006oZDfjgw1f2qrjty716j309u0cumy4.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3962480818271127" target="freeweibo-mirror">SPAM 瘦6斤 想瘦找她@Hello瘦子瘦子</a>
 </h2>
