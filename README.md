@@ -47,7 +47,7 @@
 </h2>
 <p>有网友说长者没上名单，颇为失望。其实细想一下，令周徐郭等落马肥老虎，也都没上运河名单，就说明他们干净吗？名单的公布才刚刚开始，好戏还在后头急什么？<br><img src="http://ww4.sinaimg.cn/large/006oZDfjgw1f2rc0ucek4j30dw0kuwfo.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3962634640166796" target="freeweibo-mirror">连卡梅伦这么干净的人也面临辞职，政治家真是一个风险最大化的职…</a>
 </h2>
