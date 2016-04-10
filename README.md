@@ -19,6 +19,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3962600850782434" target="freeweibo-mirror">//@何兵:律师事务所自己承认，文件是真的。@樊德安:首先要…</a>
+</h2>
+<p>//@何兵:律师事务所自己承认，文件是真的。@樊德安:首先要搞清楚怎么回事，然后再考虑应对方法。[晕]//@酒叔李权: 提到了巴巴马三个字，这个视屏也该删[偷笑]<br><br>RE: 告诉你，我不傻。但我很会装傻。[嘻嘻][嘻嘻] http://t.cn/RqV4aEv .</p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3962537424648109" target="freeweibo-mirror">这人很懂中国式智慧啊。</a>
 </h2>
 <p>这人很懂中国式智慧啊。</p>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3962463022351092" target="freeweibo-mirror">SPAM 肯德基什么时候偷偷上了一个新甜筒[哆啦A梦吃惊]草…</a>
 </h2>
 <p>SPAM 肯德基什么时候偷偷上了一个新甜筒[哆啦A梦吃惊]草莓冰淇淋花筒 有点想吃  虽然粉红色有点娘娘的<br><img src="http://ww3.sinaimg.cn/large/66f005degw1f2qrnxdp4pj20do0h73zi.jpg"></p>
-<p>
-	<small> ============== 12小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3962461777011547" target="freeweibo-mirror">醒脑好图文！[赞]</a>
-</h2>
-<p>醒脑好图文！[赞]<br><img src="http://ww1.sinaimg.cn/large/006oZDfjgw1f2qrjty716j309u0cumy4.jpg"></p>
 <p>
 	<small> ============== 12小时前</small>
 </p>
