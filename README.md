@@ -77,7 +77,7 @@
 </h2>
 <p>衡阳这位宣传部新闻中心的主任火了。<br><img src="http://ww4.sinaimg.cn/large/6362d8eagw1f2rr697kj7j20m00edta5.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3962759123302902" target="freeweibo-mirror">SPAM 肯定是谣言！[NO] //@李铁军:姐夫很忙[do…</a>
 </h2>
