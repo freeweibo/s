@@ -35,7 +35,7 @@
 </h2>
 <p>SPAM 我好奇加了，太羞涩了，脸都变红了[害羞]快去调戏下[笑cry]</p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3962826894599782" target="freeweibo-mirror">真相</a>
 </h2>
@@ -83,7 +83,7 @@
 </h2>
 <p>SPAM 肯定是谣言！[NO] //@李铁军:姐夫很忙[doge]//@阿吉_Aydge:今晚我们都是⋯⋯[怒]</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3962748779939532" target="freeweibo-mirror">//@一只博: //@热血7132911: 转发微博</a>
 </h2>
