@@ -19,6 +19,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3962850769233207" target="freeweibo-mirror">#遇事勇担责，有事敢兜着，一善去百忧#颜某某若是善人，在普通…</a>
+</h2>
+<p>#遇事勇担责，有事敢兜着，一善去百忧#颜某某若是善人，在普通车祸面前，首先应想到救人。穷不可怕，就怕自私到凶恶，穷凶极恶，神仙没辙。多少生活不如意者，道德并不贫困，精神并未远离富有。一旦失去了真善美，那么疯长的定是心中的恶魔。穷人若善，早晚能追上共富脚步。现在颜某某成多家悲剧之源</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3962827767693808" target="freeweibo-mirror">SPAM 我好奇加了，太羞涩了，脸都变红了[害羞]快去调戏下…</a>
 </h2>
 <p>SPAM 我好奇加了，太羞涩了，脸都变红了[害羞]快去调戏下[笑cry]</p>
@@ -48,6 +54,12 @@
 <p>没牙是不是也叫作“无齿”？//@六国虹: //@深圳王剑://@防务君://@八桂直播:[哈哈]→_→//@司徒正襟:这年头宗教界也懂政治，就差带个姑娘蹦迪了。//@马轩:这人是谁呀<br><br>RE: 习主席，是菩萨化身。 http://t.cn/Rqfr2Qh</p>
 <p>
 	<small> ============== 6小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3962783865017218" target="freeweibo-mirror">#反腐倡廉#湖南娄底市政协副主席黄祥刚坠楼身亡  （分享自 …</a>
+</h2>
+<p>#反腐倡廉#湖南娄底市政协副主席黄祥刚坠楼身亡  （分享自 @新浪新闻）有人分析，为何贪官自杀比判死刑的多 http://t.cn/RAUkcl2 http://t.cn/RqfDZA5<br><img src="http://ww1.sinaimg.cn/large/49e0cb69jw1f2rsjs9mvzj203z05pa9x.jpg"></p>
+<p>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3962777795965480" target="freeweibo-mirror">习主席，是菩萨化身。 http://t.cn/Rqfr2Qh</a>
 </h2>
@@ -83,7 +95,7 @@
 </h2>
 <p>SPAM //@查良钧://@DopeyTom:[拳头]//@neowb2:[嘻嘻]今天，我们都是卡梅伦！//@许合文: //@川A冷眼观河蟹: [笑cry]//@玳簋36://@独狼血恨134: [笑cry]//@安徽田宽105: //@Fanny7788-:[笑哈哈][笑哈哈]<br><br>RE: 朋友们帮俺看下，这帖子里哪个是敏感瓷。才发出来，没有阅读量，就被屏了。[生病]<br><img src="http://ww2.sinaimg.cn/large/8603d4cfjw1f2reggad83j20p018gtic.jpg"></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3962730317171817" target="freeweibo-mirror">//@天堂魔鬼1: 捕风捉影 一派胡言！//@陈光武律师:/…</a>
 </h2>
@@ -126,18 +138,6 @@
 <p>二、目前信息称：1、习姐夫，信息称其是“富豪”。故办有公司不奇怪。且习上位时，公司就已搁置避嫌；2、张女婿，称其父是港企上市公司董事长；3、刘儿媳，称其子和温某一样，都是私募基金领军人物——这种似是而非最是说不清：有怀疑无实据，贪腐未必那证实，搞乱你倒是足够了。<br><br>RE: 转<br><img src="http://ww1.sinaimg.cn/large/664b5e3ajw1f2re95pwryj20ku0rstan.jpg"></p>
 <p>
 	<small> ============== 11小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3962708648858161" target="freeweibo-mirror">一、此前我曾认为公开回应也没啥大问题，但经历“酒店遇袭”事件…</a>
-</h2>
-<p>一、此前我曾认为公开回应也没啥大问题，但经历“酒店遇袭”事件舆论之狂躁之后，再结合“一条谣言摧毁突尼斯政权”的实例，我认为共党管控网络是正确的！以如今网民之狂躁：什么？公开回应了？不信不信就不信！——反正不是屎也是屎。且从目前披露的信息来看，至少现任高层并无直接证据指向。<br><br>RE: 转<br><img src="http://ww1.sinaimg.cn/large/664b5e3ajw1f2re95pwryj20ku0rstan.jpg"></p>
-<p>
-	<small> ============== 11小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3962707156096171" target="freeweibo-mirror">这届英国人民不行。素质太差了。才三万英镑，没见过钱吗？//@…</a>
-</h2>
-<p>这届英国人民不行。素质太差了。才三万英镑，没见过钱吗？//@德钢制造:切！ //@邓树林律师: //@周泽律师: 欢迎卡梅伦来中国做人民公仆。<br><br>RE: 英国首相卡梅伦，此前在采访中承认他至少从避税天堂获利3万英镑，该丑闻曝光后，有数千名民众聚集在唐宁街十号要求其辞职。愤怒的抗议者们在唐宁街外高举着抗议牌，人群高喊“卡梅伦必须辞职”、“逃税是犯罪”，“保守党滚出去”等口号。3万英镑就闹成这样，呵呵……<br><img src="http://ww4.sinaimg.cn/large/a8ef5277jw1f2rg9in5xcj20qq0hotd1.jpg"></p>
-<p>
-	<small> ============== 12小时前</small>
 </p>
 <table>
     <tr>
