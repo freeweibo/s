@@ -19,6 +19,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3963070596895123" target="freeweibo-mirror">//@徐利平律师: //@杨名跨:公安践踏法律，法院这等做法…</a>
+</h2>
+<p>//@徐利平律师: //@杨名跨:公安践踏法律，法院这等做法，不仅是继往的擦屁股，而是舔菊。建议深圳中院立即撤销行政庭。/@青石律师:请问你们，《中华人民共和国行政诉讼法》还要不要执行？你们只要说一句你院不执行《行政诉讼法》。<br><br>RE: @深圳市中级人民法院 ，这个起诉，你们今天如果硬是要践踏《行政诉讼法》，材料都不收，而且无任何借口或者理由就是一句话不收材料，我今天就在你们深圳市中级人民法院不走了。<br><img src="http://ww1.sinaimg.cn/large/63869567jw1f2smkdr1cej20c81mswtp.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3963044759150304" target="freeweibo-mirror">//@广州湾在线://@淡定鸭://@章于非081:微風起于…</a>
 </h2>
 <p>//@广州湾在线://@淡定鸭://@章于非081:微風起于萍末之時<br><br>RE: 巴拉嘛文件本身就是个热点，1150万份文件，21万家公司，14000人，12國领导人涉及其中，热点中的热点更是中国，包括香港在内，就占了这个文件的三分之一部分，即空壳公司的三分之一，而中国五代领导人，8个政治局常委，一个政治局委员，9个领导人涉嫌其中，最大看点在中国，中国竟是静悄悄！[笑cry]...全文： http://m.weibo.cn/5724023799/3963033409991424<br><img src="http://ww1.sinaimg.cn/large/006fnq4vgw1f2sl67255oj30ye0j6gon.jpg"></p>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3962771991396233" target="freeweibo-mirror">衡阳这位宣传部新闻中心的主任火了。</a>
 </h2>
 <p>衡阳这位宣传部新闻中心的主任火了。<br><img src="http://ww4.sinaimg.cn/large/6362d8eagw1f2rr697kj7j20m00edta5.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3962759123302902" target="freeweibo-mirror">SPAM 肯定是谣言！[NO] //@李铁军:姐夫很忙[do…</a>
-</h2>
-<p>SPAM 肯定是谣言！[NO] //@李铁军:姐夫很忙[doge]//@阿吉_Aydge:今晚我们都是⋯⋯[怒]</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
