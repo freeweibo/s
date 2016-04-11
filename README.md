@@ -29,7 +29,7 @@
 </h2>
 <p>SPAM “学好弟子规，实现中国梦。” //@TrishaZ://@我是你认识的王小能:“孝着活下去。”[笑cry]//@病娇与狂犬：</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3963112724195322" target="freeweibo-mirror">//@景觀師:流氓當道，上海不哭。[蜡烛] [蜡烛] [蜡烛…</a>
 </h2>
