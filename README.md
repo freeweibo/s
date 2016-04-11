@@ -59,7 +59,7 @@
 </h2>
 <p>[爱你]用事实说话，谢谢妹子分享，妹子受委屈了，严厉谴责那些不求证就乱讲的人[怒]</p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3963115625889847" target="freeweibo-mirror">SPAM //@李思磐: “学好弟子规，实现中国梦。” //…</a>
 </h2>
@@ -101,7 +101,7 @@
 </h2>
 <p>新疆莎车县妇女50人，怀揣打工致富梦想，乘汽车换火车，耗时五天四夜，横穿整个中国，到达福建省漳州市诏安县。所有证明手续齐全，当地公安部门也审核无误。可当地暗地里政府在给企业施压，不让录用。企业顶不住压力，准备退工！响应政府号召，勤劳致富，脱贫，有错吗？内地新疆不是一家吗？<br><img src="http://ww1.sinaimg.cn/large/6e95bb8ajw1f2stngfajpj20mz0hsgng.jpg"></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3963105275019054" target="freeweibo-mirror">这是真的吗？[吃惊][吃惊][吃惊]</a>
 </h2>
@@ -125,7 +125,7 @@
 </h2>
 <p>今日上海第二中级人民法院门口，悬在空中的冤民！<br><img src="http://ww1.sinaimg.cn/large/5a010821jw1f2sq5grgeij20m80m8t9a.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3963071674618810" target="freeweibo-mirror">“发展的代价都人民扛了，发展的成果都离岸了。”笑都笑不出来。</a>
 </h2>
