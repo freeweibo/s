@@ -53,7 +53,7 @@
 </h2>
 <p>SPAM //@最后一根稻草V: //@Forrest1994://@秋野昭俊:[蜡烛] //@囧纳森:不笑白不笑[笑cry][笑cry][笑cry]<br><br>RE: “发展的代价都人民扛了，发展的成果都离岸了。”笑都笑不出来。</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3963109561317930" target="freeweibo-mirror">//@宣威老火腿N世://@北京老妪: [吃惊]//@手机用…</a>
 </h2>
@@ -131,7 +131,7 @@
 </h2>
 <p>SPAM 走西部时间， 还有4个小时。http://t.cn/RqIewKt</p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3963033409991424" target="freeweibo-mirror">巴拉嘛文件本身就是个热点，1150万份文件，21万家公司，1…</a>
 </h2>
