@@ -47,7 +47,7 @@
 </h2>
 <p>转移资产的丑闻，2014年就曝过光。专门针对大陆高官的，包括道德姐在内，多人上榜。炒了一阵，熄火了。这一次，看似声势浩大，但瞄准的是全球政要，目标分散。对小舅子造成的压力，甚至不如两年前。可以预见，这事又要烂尾。唯一的收获是，让更多的人看清楚了，他们是骗子，小偷，王八蛋。@胡南宋<br><img src="http://ww2.sinaimg.cn/large/006qQTgygw1f2sxuvoa2wj30qo1betip.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3963127026425168" target="freeweibo-mirror">SPAM #资讯#【唯品会419特卖节：傲娇的品牌，呆萌的价…</a>
 </h2>
