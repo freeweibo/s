@@ -137,7 +137,7 @@
 </h2>
 <p>//@紫院子:转发微博<br><br>RE: 証實了[泪]<br><img src="http://ww2.sinaimg.cn/large/006fnoVujw1f2sfxe1p5uj315o1jkh1h.jpg"></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p>
 <table>
     <tr>
