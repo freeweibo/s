@@ -77,7 +77,7 @@
 </h2>
 <p>証實了[泪]<br><img src="http://ww2.sinaimg.cn/large/006fnoVujw1f2sfxe1p5uj315o1jkh1h.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3962982868335000" target="freeweibo-mirror">慈禧的后裔，这个人厉害，服http://t.cn/RqIwg…</a>
 </h2>
