@@ -41,7 +41,7 @@
 </h2>
 <p>真相<br><br>RE: 衡阳这位宣传部新闻中心的主任火了。<br><img src="http://ww4.sinaimg.cn/large/6362d8eagw1f2rr697kj7j20m00edta5.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3962819822542240" target="freeweibo-mirror">这个宗教人士有女人面相，沙哑低沉男人声音，笑颜异常诡异</a>
 </h2>
