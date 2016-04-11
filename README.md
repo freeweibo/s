@@ -35,7 +35,7 @@
 </h2>
 <p>SPAM //@雷公旗: //@另类无敌: 请外交部出来避谣！@张云磊33:[吃惊]@柳林清幽:发言人怎么说？@时光A之翼-:负责任的大国呢？说话不算数的是他妈小舅子！@青山怎能不妩媚@千山K胡说:草泥马环球时报，滚出来走两步。<br><br>RE: 証實了[泪]<br><img src="http://ww2.sinaimg.cn/large/006fnoVujw1f2sfxe1p5uj315o1jkh1h.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3963035238808116" target="freeweibo-mirror">SPAM 走西部时间， 还有4个小时。http://t.cn…</a>
 </h2>
