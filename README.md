@@ -29,19 +29,19 @@
 </h2>
 <p>#遇事勇担责，有事敢兜着，一善去百忧#颜某某若是善人，在普通车祸面前，首先应想到救人。穷不可怕，就怕自私到凶恶，穷凶极恶，神仙没辙。多少生活不如意者，道德并不贫困，精神并未远离富有。一旦失去了真善美，那么疯长的定是心中的恶魔。穷人若善，早晚能追上共富脚步。现在颜某某成多家悲剧之源</p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3962827767693808" target="freeweibo-mirror">SPAM 我好奇加了，太羞涩了，脸都变红了[害羞]快去调戏下…</a>
 </h2>
 <p>SPAM 我好奇加了，太羞涩了，脸都变红了[害羞]快去调戏下[笑cry]</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3962826894599782" target="freeweibo-mirror">真相</a>
 </h2>
 <p>真相<br><br>RE: 衡阳这位宣传部新闻中心的主任火了。<br><img src="http://ww4.sinaimg.cn/large/6362d8eagw1f2rr697kj7j20m00edta5.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3962819822542240" target="freeweibo-mirror">这个宗教人士有女人面相，沙哑低沉男人声音，笑颜异常诡异</a>
 </h2>
