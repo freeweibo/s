@@ -65,7 +65,7 @@
 </h2>
 <p>SPAM //@李思磐: “学好弟子规，实现中国梦。” //@TrishaZ://@我是你认识的王小能:“孝着活下去。”[笑cry]//@病娇与狂犬：还要教你怎么跪的好看不准反抗<br><br>RE: “发展的代价都人民扛了，发展的成果都离岸了。”笑都笑不出来。</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3963114867740265" target="freeweibo-mirror">SPAM “学好弟子规，实现中国梦。” //@TrishaZ…</a>
 </h2>
