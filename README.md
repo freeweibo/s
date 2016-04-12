@@ -67,6 +67,12 @@
 <p>
 	<small> ============== 7小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3963452324803517" target="freeweibo-mirror">一大波冷血无情的舞矛和自泔捂，咬住“门口”二字，疯狂洗地、举…</a>
+</h2>
+<p>一大波冷血无情的舞矛和自泔捂，咬住“门口”二字，疯狂洗地、举报，没有一人关心上吊者的死活或冤情[怒]。其中包括著名司法局法宣科长@侠骨柔情的杨华 ，甚至向国家司法部@中国普法 举报@李方平律师 @徐利平律师 。都说距离那么远，绝对不算是法院门口！认真看最后一图：什么叫“门口”……[笑cry]<br><img src="http://ww3.sinaimg.cn/large/006l2wU2gw1f2txalcxw9j30u01hcjtc.jpg"></p>
+<p>
+	<small> ============== 7小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3963438763729436" target="freeweibo-mirror">SPAM //@摇头晃乳:人在做，天在看，受了什么冤屈？</a>
 </h2>
 <p>SPAM //@摇头晃乳:人在做，天在看，受了什么冤屈？<br><br>RE: 浙江省江山市发生一起自焚事件。<br><img src="http://ww2.sinaimg.cn/large/7cc9aaf1gw1f2tvecn08tj20gm0m8wgf.jpg"></p>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3963341623806340" target="freeweibo-mirror">发表文章 http://t.cn/Rqxw5U2</a>
 </h2>
 <p>发表文章 http://t.cn/Rqxw5U2</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3963340713117963" target="freeweibo-mirror">【一个高级知识分子是如何被逼到对立面的】  陈桂秋系谢阳律师…</a>
-</h2>
-<p>【一个高级知识分子是如何被逼到对立面的】  陈桂秋系谢阳律师的妻子，湖南大学环境工程博士，化学博士后，教授，博士生导师。湖南浏阳人。教育部新世纪优秀人才计划入选者，美国Rice University访问学者。Journal of Hazardous Materials、Chemosphere、Chemical Engineering Journal等多种国际SCI杂...全文： http://m.weibo.cn/1272651680/3963340713117963</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
