@@ -29,7 +29,7 @@
 </h2>
 <p>SPAM [微风][微风][微风]</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3963358857676149" target="freeweibo-mirror">国会太挤了，各位都挤成狗了//@伯杨_老y://@自甘五-神…</a>
 </h2>
@@ -53,7 +53,7 @@
 </h2>
 <p>//@成准强: 让二十多公民与世隔离九个月，要控制真相到永远？ //@李方平律师:追问，株连律师家庭。</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3963341623806340" target="freeweibo-mirror">发表文章 http://t.cn/Rqxw5U2</a>
 </h2>
