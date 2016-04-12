@@ -83,7 +83,7 @@
 </h2>
 <p>SPAM //@逻辑_50493: / //@龙神帝魂: [怒]<br><br>RE: 这个私人医生完全在说胡话[挖鼻] http://t.cn/Rqx9BhC</p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3963554404929535" target="freeweibo-mirror">【中国在回应那个文件？】 这篇文章看起来有理有据，不会没有背…</a>
 </h2>
@@ -113,7 +113,7 @@
 </h2>
 <p>SPAM 比较正面！//@醉翁:哦</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3963512785581590" target="freeweibo-mirror">SPAM 境外博客：习总管教好子女和亲戚没？ 必須指出：這也…</a>
 </h2>
