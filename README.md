@@ -23,7 +23,7 @@
 </h2>
 <p>//@童之伟:并非上了paper的都有问题，更不是上了paper的都没有问题，要具体情况具体对待。关键是要公开透明，要让公民自由表达看法。<br><br>RE: 【境外博客：习总管教好子女和亲戚没？ | 界面新闻】 http://t.cn/RqxFgs8<br><img src="http://ww1.sinaimg.cn/large/6bf8bea4jw1f2uboozeklj20jg0b4dhq.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3963582456499840" target="freeweibo-mirror">→_→//@GrowEasy:他有什么义务澄清亲属的事情呢？…</a>
 </h2>
@@ -77,7 +77,7 @@
 </h2>
 <p>二胖这一家子，莫非真的想解放全人类？！<br><img src="http://ww2.sinaimg.cn/large/006oZDbdgw1f2u9r1to93j30cv0e2dh3.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3963558415133150" target="freeweibo-mirror">SPAM //@逻辑_50493: / //@龙神帝魂: […</a>
 </h2>
