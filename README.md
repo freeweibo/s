@@ -43,6 +43,12 @@
 <p>
 	<small> ============== 4小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3963341623806340" target="freeweibo-mirror">发表文章 http://t.cn/Rqxw5U2</a>
+</h2>
+<p>发表文章 http://t.cn/Rqxw5U2</p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3963340713117963" target="freeweibo-mirror">【一个高级知识分子是如何被逼到对立面的】  陈桂秋系谢阳律师…</a>
 </h2>
 <p>【一个高级知识分子是如何被逼到对立面的】  陈桂秋系谢阳律师的妻子，湖南大学环境工程博士，化学博士后，教授，博士生导师。湖南浏阳人。教育部新世纪优秀人才计划入选者，美国Rice University访问学者。Journal of Hazardous Materials、Chemosphere、Chemical Engineering Journal等多种国际SCI杂...全文： http://m.weibo.cn/1272651680/3963340713117963</p>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3963109561317930" target="freeweibo-mirror">//@宣威老火腿N世://@北京老妪: [吃惊]//@手机用…</a>
 </h2>
 <p>//@宣威老火腿N世://@北京老妪: [吃惊]//@手机用户2259597831: //@导演高晓舰小号: //@湘潭勇哥://@加拿大真妮花://@无条件反射://@婉风辰星74: [吃惊]//@章于非081: 什麼情況？ //@奖平核子孙:卧槽！[衰]//@右灵魂的中郭难民:悲！杀人的体制正在上演最后的疯狂！//@傅强家园16: 转发微博<br><br>RE: 今日上海第二中级人民法院门口，悬在空中的冤民！<br><img src="http://ww1.sinaimg.cn/large/5a010821jw1f2sq5grgeij20m80m8t9a.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3963106931557358" target="freeweibo-mirror">新疆莎车县妇女50人，怀揣打工致富梦想，乘汽车换火车，耗时五…</a>
-</h2>
-<p>新疆莎车县妇女50人，怀揣打工致富梦想，乘汽车换火车，耗时五天四夜，横穿整个中国，到达福建省漳州市诏安县。所有证明手续齐全，当地公安部门也审核无误。可当地暗地里政府在给企业施压，不让录用。企业顶不住压力，准备退工！响应政府号召，勤劳致富，脱贫，有错吗？内地新疆不是一家吗？<br><img src="http://ww1.sinaimg.cn/large/6e95bb8ajw1f2stngfajpj20mz0hsgng.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
