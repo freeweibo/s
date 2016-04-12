@@ -77,7 +77,7 @@
 </h2>
 <p>SPAM //@摇头晃乳:人在做，天在看，受了什么冤屈？<br><br>RE: 浙江省江山市发生一起自焚事件。<br><img src="http://ww2.sinaimg.cn/large/7cc9aaf1gw1f2tvecn08tj20gm0m8wgf.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3963435664684706" target="freeweibo-mirror">浙江省江山市发生一起自焚事件。</a>
 </h2>
@@ -95,7 +95,7 @@
 </h2>
 <p>SPAM 蚕？//@开水族馆的生物男:转需</p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3963406128305246" target="freeweibo-mirror">SPAM 原来你是我最想留住的幸运[玫瑰]，喜 欢 加 她 …</a>
 </h2>
