@@ -23,7 +23,7 @@
 </h2>
 <p>国会太挤了，各位都挤成狗了//@伯杨_老y://@自甘五-神棍: 貝雷帽呢？拖拉機呢？他媽的捕風捉影//@cydad111:@自甘五-神棍  成何体统！！//@LifeTime: 一把手被质问成狗，成何体统？[瞧瞧]<br><br>RE: 【卡梅伦接受国会质询：不仅仅红脸出汗，被批得像条狗】刚才CNN完整转播了英国议会每周首相质询，卡梅伦被反对党工党领袖科尔宾批评得狗血淋头……科尔宾步步紧逼，拿某文件披露出卡首相家族设立离岸公司说事，抨击说这样的人怎能为国家做出合适政策，他说这是一个国家级的丑闻。 http://t.cn/RqMkRCs</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3963351656751161" target="freeweibo-mirror">这是在英国。//@琢磨先生:任何国家都可能出丑闻，关键是事后…</a>
 </h2>
@@ -37,11 +37,23 @@
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3963344874661534" target="freeweibo-mirror">//@成准强: 让二十多公民与世隔离九个月，要控制真相到永远…</a>
+</h2>
+<p>//@成准强: 让二十多公民与世隔离九个月，要控制真相到永远？ //@李方平律师:追问，株连律师家庭。</p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3963340713117963" target="freeweibo-mirror">【一个高级知识分子是如何被逼到对立面的】  陈桂秋系谢阳律师…</a>
+</h2>
+<p>【一个高级知识分子是如何被逼到对立面的】  陈桂秋系谢阳律师的妻子，湖南大学环境工程博士，化学博士后，教授，博士生导师。湖南浏阳人。教育部新世纪优秀人才计划入选者，美国Rice University访问学者。Journal of Hazardous Materials、Chemosphere、Chemical Engineering Journal等多种国际SCI杂...全文： http://m.weibo.cn/1272651680/3963340713117963</p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3963237198354654" target="freeweibo-mirror">【卡梅伦接受国会质询：不仅仅红脸出汗，被批得像条狗】刚才CN…</a>
 </h2>
 <p>【卡梅伦接受国会质询：不仅仅红脸出汗，被批得像条狗】刚才CNN完整转播了英国议会每周首相质询，卡梅伦被反对党工党领袖科尔宾批评得狗血淋头……科尔宾步步紧逼，拿某文件披露出卡首相家族设立离岸公司说事，抨击说这样的人怎能为国家做出合适政策，他说这是一个国家级的丑闻。 http://t.cn/RqMkRCs</p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3963219934695369" target="freeweibo-mirror">来自80个国家和地区的370多名记者，在一年的时间里悄无声息…</a>
 </h2>
@@ -124,18 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3963106931557358" target="freeweibo-mirror">新疆莎车县妇女50人，怀揣打工致富梦想，乘汽车换火车，耗时五…</a>
 </h2>
 <p>新疆莎车县妇女50人，怀揣打工致富梦想，乘汽车换火车，耗时五天四夜，横穿整个中国，到达福建省漳州市诏安县。所有证明手续齐全，当地公安部门也审核无误。可当地暗地里政府在给企业施压，不让录用。企业顶不住压力，准备退工！响应政府号召，勤劳致富，脱贫，有错吗？内地新疆不是一家吗？<br><img src="http://ww1.sinaimg.cn/large/6e95bb8ajw1f2stngfajpj20mz0hsgng.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3963105275019054" target="freeweibo-mirror">这是真的吗？[吃惊][吃惊][吃惊]</a>
-</h2>
-<p>这是真的吗？[吃惊][吃惊][吃惊]<br><br>RE: 今日上海第二中级人民法院门口，悬在空中的冤民！<br><img src="http://ww1.sinaimg.cn/large/5a010821jw1f2sq5grgeij20m80m8t9a.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3963101970347881" target="freeweibo-mirror">SPAM 马//@表述:马了看！</a>
-</h2>
-<p>SPAM 马//@表述:马了看！</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
