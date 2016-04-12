@@ -23,7 +23,7 @@
 </h2>
 <p>如今还在市里面没搬走的各种家具城，没人管，容易着火，去到那些地方，还是小心为妙。<br><br>RE: #北京突发# 西四环岳各庄一灯具城着火了！！！http://t.cn/RqxNpSl （图视频来自网友）<br><img src="http://ww1.sinaimg.cn/large/63136032jw1f2u1gmkdybj20k00qomyx.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3963438763729436" target="freeweibo-mirror">SPAM //@摇头晃乳:人在做，天在看，受了什么冤屈？</a>
 </h2>
