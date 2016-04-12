@@ -41,7 +41,7 @@
 </h2>
 <p>//@成准强: 让二十多公民与世隔离九个月，要控制真相到永远？ //@李方平律师:追问，株连律师家庭。</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3963341623806340" target="freeweibo-mirror">发表文章 http://t.cn/Rqxw5U2</a>
 </h2>
