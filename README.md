@@ -77,7 +77,7 @@
 </h2>
 <p>二胖这一家子，莫非真的想解放全人类？！<br><img src="http://ww2.sinaimg.cn/large/006oZDbdgw1f2u9r1to93j30cv0e2dh3.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3963558415133150" target="freeweibo-mirror">SPAM //@逻辑_50493: / //@龙神帝魂: […</a>
 </h2>
