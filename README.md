@@ -113,7 +113,7 @@
 </h2>
 <p>SPAM 比较正面！//@醉翁:哦</p>
 <p>
-	<small> ============== 1天前</small>
+	<small> ============== 2天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3963512785581590" target="freeweibo-mirror">SPAM 境外博客：习总管教好子女和亲戚没？ 必須指出：這也…</a>
 </h2>
