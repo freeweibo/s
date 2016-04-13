@@ -119,7 +119,7 @@
 </h2>
 <p>SPAM 境外博客：习总管教好子女和亲戚没？ 必須指出：這也是平實之論，但也有沒管教好的，查還是不查？ http://t.cn/Rqxjunk</p>
 <p>
-	<small> ============== 1天前</small>
+	<small> ============== 2天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3963490810871850" target="freeweibo-mirror">如今还在市里面没搬走的各种家具城，没人管，容易着火，去到那些…</a>
 </h2>
