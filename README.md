@@ -47,7 +47,7 @@
 </h2>
 <p>博主很有意思[嘻嘻]//@用户周千骢:海外敌对势力，暗箱操作出这么个东西//@性情中人_zyzs://@hehuanlinzhao://@巫一观://@回头系岸R: //@A回头系岸:转发微博<br><br>RE: 二胖这一家子，莫非真的想解放全人类？！<br><img src="http://ww2.sinaimg.cn/large/006oZDbdgw1f2u9r1to93j30cv0e2dh3.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3963577381629179" target="freeweibo-mirror">【境外博客：习总管教好子女和亲戚没？ | 界面新闻】 htt…</a>
 </h2>
