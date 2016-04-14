@@ -25,6 +25,12 @@
 <p>
 	<small> ============== 4小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3964266019682661" target="freeweibo-mirror">#北京身边事#【网传北京一小区垃圾桶现炸弹 警方：物品系闹钟…</a>
+</h2>
+<p>#北京身边事#【网传北京一小区垃圾桶现炸弹 警方：物品系闹钟】今天一则在高鑫小区垃圾桶发现爆炸物的消息在网上流传引起众人关注。记者从丰台警方获悉，原来这个形状像定时炸弹的物品竟是一个闹钟。据悉，因为闹钟坏了之后被某住户扔进垃圾桶。目前警方已经对这名住户批评教育。http://t.cn/Rq6q4GP<br><img src="http://ww3.sinaimg.cn/large/bccd4cdbgw1f2wirp1nf6j20go0m8wg2.jpg"></p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3964234868015281" target="freeweibo-mirror">SPAM 很赞[good]</a>
 </h2>
 <p>SPAM 很赞[good]</p>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3963512785581590" target="freeweibo-mirror">SPAM 境外博客：习总管教好子女和亲戚没？ 必須指出：這也…</a>
 </h2>
 <p>SPAM 境外博客：习总管教好子女和亲戚没？ 必須指出：這也是平實之論，但也有沒管教好的，查還是不查？ http://t.cn/Rqxjunk</p>
-<p>
-	<small> ============== 2天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3963490810871850" target="freeweibo-mirror">如今还在市里面没搬走的各种家具城，没人管，容易着火，去到那些…</a>
-</h2>
-<p>如今还在市里面没搬走的各种家具城，没人管，容易着火，去到那些地方，还是小心为妙。<br><br>RE: #北京突发# 西四环岳各庄一灯具城着火了！！！http://t.cn/RqxNpSl （图视频来自网友）<br><img src="http://ww1.sinaimg.cn/large/63136032jw1f2u1gmkdybj20k00qomyx.jpg"></p>
 <p>
 	<small> ============== 2天前</small>
 </p>
