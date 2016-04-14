@@ -89,7 +89,7 @@
 </h2>
 <p>【中国在回应那个文件？】 这篇文章看起来有理有据，不会没有背景。既然如此，为什么不通过正常渠道第一时间澄清呢？那样做既是作为国家领导人的应尽义务，还可以及时消除负面影响，在形象上加分。『境外博客：习总管教好子女和亲戚没？』http://t.cn/RqxYpms<br><img src="http://ww4.sinaimg.cn/large/4ce32014gw1f2u8yvoh2lj20k00tajwg.jpg"></p>
 <p>
-	<small> ============== 1天前</small>
+	<small> ============== 2天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3963553876608369" target="freeweibo-mirror">SPAM //@Merlot杜樱:[嘻嘻] //@梁惠王:哈…</a>
 </h2>
