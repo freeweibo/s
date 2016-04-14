@@ -23,7 +23,7 @@
 </h2>
 <p>SPAM 很赞[good]</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3963590681335108" target="freeweibo-mirror">//@童之伟:并非上了paper的都有问题，更不是上了pap…</a>
 </h2>
