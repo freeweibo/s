@@ -89,7 +89,7 @@
 </h2>
 <p>毛主席说：“让人说话，天塌不下来”。一个帖子，难道要五个警察半夜上门？这个国家到底是怎么了？请@南海公安 @公安主持人 @平安南粤 @公安部打四黑除四害 依法保障公民宪法权利，避免事态扩大！<br><img src="http://ww3.sinaimg.cn/large/867a7319jw1f2xahhwddjj20ku112wh5.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3964498077934586" target="freeweibo-mirror">人权律师都在关注 葛永喜律师！ //@当律师的陈刚: //@…</a>
 </h2>
