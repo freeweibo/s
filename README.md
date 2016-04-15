@@ -59,7 +59,7 @@
 </h2>
 <p>普京没建防火墙看来是个错误。 //@郑维: 神右//@南河静水:欧洲在追责，俄中在指责[doge]<br><br>RE: 疤镎码文件泄露的幕后黑手是高盛，普京如是说。<br><img src="http://ww2.sinaimg.cn/large/6d0b6b33jw1f2x2yneyvqj20k00zkq65.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3964449881289662" target="freeweibo-mirror">SPAM 早说了 就是华尔街撕离岸金融，一嘴毛[哈哈]</a>
 </h2>
@@ -101,7 +101,7 @@
 </h2>
 <p>广电总局领导，开口闭口地‘’毛贼‘’叫得爽，贵党真的药丸。 @老辣陈香 @点子正 @老左识途     @侠骨柔情的杨华 @进击的熊爸爸<br><img src="http://ww2.sinaimg.cn/large/c857e634gw1f2wqzx68dqj20tb0qo79x.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3964320704506905" target="freeweibo-mirror">#律师权益保障# 据息@葛永喜律师 律师4月15日零点左右被…</a>
 </h2>
