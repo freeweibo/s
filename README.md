@@ -29,7 +29,7 @@
 </h2>
 <p>普京没建防火墙看来是个错误。 //@郑维: 神右//@南河静水:欧洲在追责，俄中在指责[doge]<br><br>RE: 疤镎码文件泄露的幕后黑手是高盛，普京如是说。<br><img src="http://ww2.sinaimg.cn/large/6d0b6b33jw1f2x2yneyvqj20k00zkq65.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3964444512277364" target="freeweibo-mirror">//@章诒和: 在我的理解中，国家安全以公民安全为最重要,是…</a>
 </h2>
