@@ -47,13 +47,13 @@
 </h2>
 <p>谁家弄的谁家负责。[挖鼻]<br><br>RE: 俄拟拨款千万维护列宁遗体 反对者：让俄共来付  （分享自 @新浪新闻） http://t.cn/RqXvh9p<br><img src="http://ww4.sinaimg.cn/large/3e518583jw1f2xfj2ngypj20hm0d3q4d.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3964555845232234" target="freeweibo-mirror">//@侯会微博://@雷颐:谢！常到天坛，一直奇怪这么多天线…</a>
 </h2>
 <p>//@侯会微博://@雷颐:谢！常到天坛，一直奇怪这么多天线是干吗用的。原来如此。//@琉璃厂人: 北京天坛西北部的542电台架设了五十多组干扰天线，就是干扰敌台用的。现在成了天坛里一处非常煞风景的玩意儿。<br><br>RE: 今天耀邦忌日。他在80年代下令停止干扰台湾广播，说大陆比台湾政治上更开放。80年代大部分时间里，美国之音也不受干扰，年轻人跟着VOA学《英语900句》、听Special  English，甚至成为时尚。 1986年耀邦主持的十二届六中全会决议提出，对外开放国策同样适用于精神文明。蓦然回首，开放体现政治自信。<br><img src="http://ww2.sinaimg.cn/large/631bc757jw1f2x6jj98xkj20q40hf0ue.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3964551218836016" target="freeweibo-mirror">俄拟拨款千万维护列宁遗体 反对者：让俄共来付  （分享自 @…</a>
 </h2>
@@ -77,7 +77,7 @@
 </h2>
 <p>我想知道@南海公安 依据《治安管理处罚法》第四十二条第二项“公然侮辱他人”对@葛永喜律师 治安传唤，这个行政案件是怎么受案的？报案人、控告人、举报人是谁或者是哪个行政主管部门或司法机关移送的？谁是受害者？有没有找受害者做过调查？<br><img src="http://ww3.sinaimg.cn/large/867a7319jw1f2xci6el6fj20ku112wh5.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3964519829231954" target="freeweibo-mirror">希望警方公布案件详情！</a>
 </h2>
