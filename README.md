@@ -65,7 +65,7 @@
 </h2>
 <p>这里是北大！<br><img src="http://ww4.sinaimg.cn/large/51834496jw1f2xngjulc8j20zk0qo43t.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3964614758774182" target="freeweibo-mirror">刘项原来不读书 //@梁惠王:哈哈 //@顧墨历:项羽曰，彼…</a>
 </h2>
@@ -89,7 +89,7 @@
 </h2>
 <p>SPAM [围观] //@谢文:真有点草木皆兵的意思 //@左春和://@谢勇:吼吼//@心理学刘爱民: 哈哈，长见识了！</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3964611894119326" target="freeweibo-mirror">//@桑博评论:操！</a>
 </h2>
