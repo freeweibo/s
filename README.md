@@ -125,13 +125,13 @@
 </h2>
 <p>[衰][蜡烛] //@十年沦落人:天哪！<br><br>RE: #四川师范大学杀人案# 据悉@四川师范大学 3月28日发生学生伤害致死案件，受害者与嫌疑人为同一寝室，现场惨烈，受害者身首异处[蜡烛]（图片慎点），学校官方微博4月15日下午回应目前正在积极配合警方调查中。[话筒]<br><img src="http://ww3.sinaimg.cn/large/8978f603jw1f2xgq9w800j20ku0lwtah.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3964579849240013" target="freeweibo-mirror">卧槽！</a>
 </h2>
 <p>卧槽！<br><br>RE: #四川师范大学肢解案# 四川师范大学近日发生一件骇人听闻的恶性事件。因室友长期唱歌扰乱正常休息，一学生被同寝室友碎尸。最新消息称，凶手者案发后即已投案自首，目前案件在进一步审理中。第三张图过于血腥，胆小者勿入。<br><img src="http://ww3.sinaimg.cn/large/8b8eebd6gw1f2xg3a95hxj20ku112akl.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3964573952463704" target="freeweibo-mirror">旁友们，你们不久将会看到一个“总理到农园食堂和学生共进晚餐”…</a>
 </h2>
