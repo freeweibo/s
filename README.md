@@ -77,7 +77,7 @@
 </h2>
 <p>毛主席说：“让人说话，天塌不下来”。一个帖子，难道要五个警察半夜上门？这个国家到底是怎么了？请@南海公安 @公安主持人 @平安南粤 @公安部打四黑除四害 依法保障公民宪法权利，避免事态扩大！<br><img src="http://ww3.sinaimg.cn/large/867a7319jw1f2xahhwddjj20ku112wh5.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3964498077934586" target="freeweibo-mirror">人权律师都在关注 葛永喜律师！ //@当律师的陈刚: //@…</a>
 </h2>
@@ -137,7 +137,7 @@
 </h2>
 <p>SPAM 这光头，敢在微博上叫唤两声而已，线下怂着呢。<br><br>RE: 广电总局领导，开口闭口地‘’毛贼‘’叫得爽，贵党真的药丸。 @老辣陈香 @点子正 @老左识途     @侠骨柔情的杨华 @进击的熊爸爸<br><img src="http://ww2.sinaimg.cn/large/c857e634gw1f2wqzx68dqj20tb0qo79x.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p>
 <table>
     <tr>
