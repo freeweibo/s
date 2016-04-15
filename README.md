@@ -19,6 +19,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3964488178785623" target="freeweibo-mirror">pmgmgngpxb</a>
+</h2>
+<p>pmgmgngpxb</p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3964472932956478" target="freeweibo-mirror">言论自由！</a>
 </h2>
 <p>言论自由！<br><br>RE: #律师权益保障# 据息@葛永喜律师 律师4月15日零点左右被五名便衣入宅带到佛山市黄歧盐步派出所，说可能涉及发了一个贴子与国家领导人有关。不严重的一个贴子如果 一个电话能解决，何必兴师动众深夜入门扰民？不解，请大家关注！<br><img src="http://ww1.sinaimg.cn/large/a9c7e7a9gw1f2wp18k0xnj20zk0o3dh3.jpg"></p>
@@ -71,13 +77,13 @@
 </h2>
 <p>SPAM [吃惊]//@陈有西:[围观][围观][围观]//@冷酷阿姨：回复@何求该:你用微博搜义勇军，出来的那些用户名带义勇军的就是。<br><br>RE: "揭秘五毛职业 " 我的秒拍作品,一起来看~ http://t.cn/Rq6Vaxn（使用#秒拍#录制）</p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3964444512277364" target="freeweibo-mirror">//@章诒和: 在我的理解中，国家安全以公民安全为最重要,是…</a>
 </h2>
 <p>//@章诒和: 在我的理解中，国家安全以公民安全为最重要,是第一位的；而非政治安全或政权安全。//@徐昕: //@何必曰利: //@商略雪V://@北京磬石://@刘志强律师://@重庆郑建伟:[哆啦A梦吃惊]<br><br>RE: #律师权益保障# @葛永喜律师 4-15日零点左右被五名便衣从家中带走，说涉及发了一个有关国家领导人的贴子，影响很大，不知道与啥有关，能有这么大的影响，能令五名警察深夜入宅把一名公民带走？我建议如果 只是涉及领导的的隐私或者名誉可学习台湾省的马英九到法院提起民事诉讼，那会是令人尊敬的做法。<br><img src="http://ww2.sinaimg.cn/large/a9c7e7a9gw1f2wou4gc6zj20zk0o3dh3.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3964442150213428" target="freeweibo-mirror">疤镎码文件泄露的幕后黑手是高盛，普京如是说。</a>
 </h2>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3964303805779440" target="freeweibo-mirror">泄密当然不是假的，应该追究合法的商业资料被盗取的责任，还利用…</a>
 </h2>
 <p>泄密当然不是假的，应该追究合法的商业资料被盗取的责任，还利用来炒作攻击就捕风捉影了。//@况秀猛: 敢作敢当 //@彭园v://@安波路:[晕][酷]//@北地-喷喷美剧迷：环球时报：文件是偷或者编的  中国外交部发言人洪磊：巴文件是捕风捉影</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3964277351921277" target="freeweibo-mirror">"揭秘五毛职业 " 我的秒拍作品,一起来看~ http://…</a>
-</h2>
-<p>"揭秘五毛职业 " 我的秒拍作品,一起来看~ http://t.cn/Rq6Vaxn（使用#秒拍#录制）</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
