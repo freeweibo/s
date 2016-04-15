@@ -31,6 +31,12 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3964498077934586" target="freeweibo-mirror">人权律师都在关注 葛永喜律师！ //@当律师的陈刚: //@…</a>
+</h2>
+<p>人权律师都在关注 葛永喜律师！ //@当律师的陈刚: //@李方平律师:关注，12小时了！<br><br>RE: 陈进学律师：今天凌晨3点，盐步派出所以075785797110通知葛永喜律师家人，承认带走葛永喜去问话。我现在准备出发去佛山南海盐步派出所。2014年2月我在天河法院门口被带走，葛永喜律师去找我；2015年5月，葛永喜律师在黑龙江庆安被拘留，我要飞东北找他，被有司坚决拦住。我的前同事说，我和葛永喜律师...全文： http://m.weibo.cn/1272651680/3964467689498776<br><img src="http://ww3.sinaimg.cn/large/4bdb1fa0jw1f2x5x9ahwnj20zk0k078g.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3964488178785623" target="freeweibo-mirror">pmgmgngpxb</a>
 </h2>
 <p>pmgmgngpxb</p>
@@ -65,7 +71,7 @@
 </h2>
 <p>SPAM 这光头，敢在微博上叫唤两声而已，线下怂着呢。<br><br>RE: 广电总局领导，开口闭口地‘’毛贼‘’叫得爽，贵党真的药丸。 @老辣陈香 @点子正 @老左识途     @侠骨柔情的杨华 @进击的熊爸爸<br><img src="http://ww2.sinaimg.cn/large/c857e634gw1f2wqzx68dqj20tb0qo79x.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3964454863529182" target="freeweibo-mirror">金钱和权力威逼利诱牧民安置赔偿了，在圈来的草地上开有毒铝厂，…</a>
 </h2>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3964319567915066" target="freeweibo-mirror">#律师权益保障# @葛永喜律师 4-15日零点左右被五名便衣…</a>
 </h2>
 <p>#律师权益保障# @葛永喜律师 4-15日零点左右被五名便衣从家中带走，说涉及发了一个有关国家领导人的贴子，影响很大，不知道与啥有关，能有这么大的影响，能令五名警察深夜入宅把一名公民带走？我建议如果 只是涉及领导的的隐私或者名誉可学习台湾省的马英九到法院提起民事诉讼，那会是令人尊敬的做法。<br><img src="http://ww2.sinaimg.cn/large/a9c7e7a9gw1f2wou4gc6zj20zk0o3dh3.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3964314375380802" target="freeweibo-mirror">SPAM 胸玩年~[doge][doge]</a>
-</h2>
-<p>SPAM 胸玩年~[doge][doge]<br><img src="http://ww2.sinaimg.cn/large/7f8c1087gw1f2wo386vszj209e0go3zj.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
