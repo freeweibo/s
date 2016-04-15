@@ -35,7 +35,13 @@
 </h2>
 <p>//@西边雨小屋: [吃惊] //@徐利平律师://@上海鱼鱼1://@彼岸花dll: //@前腐后继民无天日9:文革疯时代，只要说错一句话就判刑，如今与恐怖的文革疯有何异？//@婉风辰星74:[围观][话筒]//@自由基005:转发微博<br><br>RE: #律师权益保障# @葛永喜律师 4-15日零点左右被五名便衣从家中带走，说涉及发了一个有关国家领导人的贴子，影响很大，不知道与啥有关，能有这么大的影响，能令五名警察深夜入宅把一名公民带走？我建议如果 只是涉及领导的的隐私或者名誉可学习台湾省的马英九到法院提起民事诉讼，那会是令人尊敬的做法。<br><img src="http://ww2.sinaimg.cn/large/a9c7e7a9gw1f2wou4gc6zj20zk0o3dh3.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3964319567915066" target="freeweibo-mirror">#律师权益保障# @葛永喜律师 4-15日零点左右被五名便衣…</a>
+</h2>
+<p>#律师权益保障# @葛永喜律师 4-15日零点左右被五名便衣从家中带走，说涉及发了一个有关国家领导人的贴子，影响很大，不知道与啥有关，能有这么大的影响，能令五名警察深夜入宅把一名公民带走？我建议如果 只是涉及领导的的隐私或者名誉可学习台湾省的马英九到法院提起民事诉讼，那会是令人尊敬的做法。<br><img src="http://ww2.sinaimg.cn/large/a9c7e7a9gw1f2wou4gc6zj20zk0o3dh3.jpg"></p>
+<p>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3964314375380802" target="freeweibo-mirror">SPAM 胸玩年~[doge][doge]</a>
 </h2>
@@ -47,7 +53,7 @@
 </h2>
 <p>//@姚广孝_wayne:果然是文明的地板啊，尽管流氓，在确凿的证据前还是得认了，总算有点担当</p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3964303805779440" target="freeweibo-mirror">泄密当然不是假的，应该追究合法的商业资料被盗取的责任，还利用…</a>
 </h2>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3963564123105985" target="freeweibo-mirror">SPAM 妹子们快看看那个图片，最近这种“骨感瘦减法"很火，…</a>
 </h2>
 <p>SPAM 妹子们快看看那个图片，最近这种“骨感瘦减法"很火，不吃药瘦这么多，良心推荐！不转对不起观众，不减肥对不起自己，瘦！瘦瘦！~~~[喵喵][喵喵]</p>
-<p>
-	<small> ============== 3天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3963560683852835" target="freeweibo-mirror">二胖这一家子，莫非真的想解放全人类？！</a>
-</h2>
-<p>二胖这一家子，莫非真的想解放全人类？！<br><img src="http://ww2.sinaimg.cn/large/006oZDbdgw1f2u9r1to93j30cv0e2dh3.jpg"></p>
 <p>
 	<small> ============== 3天前</small>
 </p>
