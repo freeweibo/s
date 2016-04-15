@@ -53,7 +53,7 @@
 </h2>
 <p>SPAM 早说了 就是华尔街撕离岸金融，一嘴毛[哈哈]<br><br>RE: 疤镎码文件泄露的幕后黑手是高盛，普京如是说。<br><img src="http://ww2.sinaimg.cn/large/6d0b6b33jw1f2x2yneyvqj20k00zkq65.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3964445027518455" target="freeweibo-mirror">SPAM [吃惊]//@陈有西:[围观][围观][围观]//…</a>
 </h2>
