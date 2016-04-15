@@ -31,6 +31,12 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3964551218836016" target="freeweibo-mirror">俄拟拨款千万维护列宁遗体 反对者：让俄共来付  （分享自 @…</a>
+</h2>
+<p>俄拟拨款千万维护列宁遗体 反对者：让俄共来付  （分享自 @新浪新闻） http://t.cn/RqXvh9p<br><img src="http://ww4.sinaimg.cn/large/3e518583jw1f2xfj2ngypj20hm0d3q4d.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3964550275028149" target="freeweibo-mirror">谢！常到天坛，一直奇怪这么多天线是干吗用的。原来如此。//@…</a>
 </h2>
 <p>谢！常到天坛，一直奇怪这么多天线是干吗用的。原来如此。//@琉璃厂人: 北京天坛西北部的542电台架设了五十多组干扰天线，就是干扰敌台用的。现在成了天坛里一处非常煞风景的玩意儿。//@建筑史教师万谦: //@雷颐://@阿忆: 以前，叫偷听敌台，是罪。<br><br>RE: 今天耀邦忌日。他在80年代下令停止干扰台湾广播，说大陆比台湾政治上更开放。80年代大部分时间里，美国之音也不受干扰，年轻人跟着VOA学《英语900句》、听Special  English，甚至成为时尚。 1986年耀邦主持的十二届六中全会决议提出，对外开放国策同样适用于精神文明。蓦然回首，开放体现政治自信。<br><img src="http://ww2.sinaimg.cn/large/631bc757jw1f2x6jj98xkj20q40hf0ue.jpg"></p>
@@ -71,13 +77,19 @@
 </h2>
 <p>4月15日凌晨，5名警察闯进@葛永喜律师 的家，问他是否发布过敏感信息，随后将他带到盐步派出所调查。葛是人权律师，唐荆陵和柴宝文的辩护人。2015年5月，因围观徐纯合案，被庆安警方拘留。709事件中，深夜被广州警方传唤。这一次，当局明显在找碴，警告漏网之鱼。疑跟近期密集审判良心犯有关。<br><img src="http://ww4.sinaimg.cn/large/006cYd4Zgw1f2x99ankkbj30d30bsaak.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3964488178785623" target="freeweibo-mirror">pmgmgngpxb</a>
 </h2>
 <p>pmgmgngpxb</p>
 <p>
 	<small> ============== 6小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3964473188064492" target="freeweibo-mirror">今天耀邦忌日。他在80年代下令停止干扰台湾广播，说大陆比台湾…</a>
+</h2>
+<p>今天耀邦忌日。他在80年代下令停止干扰台湾广播，说大陆比台湾政治上更开放。80年代大部分时间里，美国之音也不受干扰，年轻人跟着VOA学《英语900句》、听Special  English，甚至成为时尚。 1986年耀邦主持的十二届六中全会决议提出，对外开放国策同样适用于精神文明。蓦然回首，开放体现政治自信。<br><img src="http://ww2.sinaimg.cn/large/631bc757jw1f2x6jj98xkj20q40hf0ue.jpg"></p>
+<p>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3964472932956478" target="freeweibo-mirror">言论自由！</a>
 </h2>
@@ -107,7 +119,7 @@
 </h2>
 <p>陈进学律师：今天凌晨3点，盐步派出所以075785797110通知葛永喜律师家人，承认带走葛永喜去问话。我现在准备出发去佛山南海盐步派出所。2014年2月我在天河法院门口被带走，葛永喜律师去找我；2015年5月，葛永喜律师在黑龙江庆安被拘留，我要飞东北找他，被有司坚决拦住。我的前同事说，我和葛永喜律师...全文： http://m.weibo.cn/1272651680/3964467689498776<br><img src="http://ww3.sinaimg.cn/large/4bdb1fa0jw1f2x5x9ahwnj20zk0k078g.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3964462317166599" target="freeweibo-mirror">SPAM 这光头，敢在微博上叫唤两声而已，线下怂着呢。</a>
 </h2>
@@ -124,18 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3964451981524348" target="freeweibo-mirror">普京没建防火墙看来是个错误。 //@郑维: 神右//@南河静…</a>
 </h2>
 <p>普京没建防火墙看来是个错误。 //@郑维: 神右//@南河静水:欧洲在追责，俄中在指责[doge]<br><br>RE: 疤镎码文件泄露的幕后黑手是高盛，普京如是说。<br><img src="http://ww2.sinaimg.cn/large/6d0b6b33jw1f2x2yneyvqj20k00zkq65.jpg"></p>
-<p>
-	<small> ============== 8小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3964449881289662" target="freeweibo-mirror">SPAM 早说了 就是华尔街撕离岸金融，一嘴毛[哈哈]</a>
-</h2>
-<p>SPAM 早说了 就是华尔街撕离岸金融，一嘴毛[哈哈]<br><br>RE: 疤镎码文件泄露的幕后黑手是高盛，普京如是说。<br><img src="http://ww2.sinaimg.cn/large/6d0b6b33jw1f2x2yneyvqj20k00zkq65.jpg"></p>
-<p>
-	<small> ============== 9小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3964445027518455" target="freeweibo-mirror">SPAM [吃惊]//@陈有西:[围观][围观][围观]//…</a>
-</h2>
-<p>SPAM [吃惊]//@陈有西:[围观][围观][围观]//@冷酷阿姨：回复@何求该:你用微博搜义勇军，出来的那些用户名带义勇军的就是。<br><br>RE: "揭秘五毛职业 " 我的秒拍作品,一起来看~ http://t.cn/Rq6Vaxn（使用#秒拍#录制）</p>
 <p>
 	<small> ============== 9小时前</small>
 </p>
