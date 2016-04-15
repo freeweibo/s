@@ -19,6 +19,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3964580403146109" target="freeweibo-mirror">[衰][蜡烛] //@十年沦落人:天哪！</a>
+</h2>
+<p>[衰][蜡烛] //@十年沦落人:天哪！<br><br>RE: #四川师范大学杀人案# 据悉@四川师范大学 3月28日发生学生伤害致死案件，受害者与嫌疑人为同一寝室，现场惨烈，受害者身首异处[蜡烛]（图片慎点），学校官方微博4月15日下午回应目前正在积极配合警方调查中。[话筒]<br><img src="http://ww3.sinaimg.cn/large/8978f603jw1f2xgq9w800j20ku0lwtah.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3964564104801715" target="freeweibo-mirror">SPAM 回复@千羊萬象:我就管好吃不好吃，不管健康不健康。…</a>
 </h2>
 <p>SPAM 回复@千羊萬象:我就管好吃不好吃，不管健康不健康。//@千羊萬象:猪油非健康食品。少吃为妙</p>
@@ -47,7 +53,7 @@
 </h2>
 <p>俄拟拨款千万维护列宁遗体 反对者：让俄共来付  （分享自 @新浪新闻） http://t.cn/RqXvh9p<br><img src="http://ww4.sinaimg.cn/large/3e518583jw1f2xfj2ngypj20hm0d3q4d.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3964550275028149" target="freeweibo-mirror">谢！常到天坛，一直奇怪这么多天线是干吗用的。原来如此。//@…</a>
 </h2>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3964467689498776" target="freeweibo-mirror">陈进学律师：今天凌晨3点，盐步派出所以07578579711…</a>
 </h2>
 <p>陈进学律师：今天凌晨3点，盐步派出所以075785797110通知葛永喜律师家人，承认带走葛永喜去问话。我现在准备出发去佛山南海盐步派出所。2014年2月我在天河法院门口被带走，葛永喜律师去找我；2015年5月，葛永喜律师在黑龙江庆安被拘留，我要飞东北找他，被有司坚决拦住。我的前同事说，我和葛永喜律师...全文： http://m.weibo.cn/1272651680/3964467689498776<br><img src="http://ww3.sinaimg.cn/large/4bdb1fa0jw1f2x5x9ahwnj20zk0k078g.jpg"></p>
-<p>
-	<small> ============== 9小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3964462317166599" target="freeweibo-mirror">SPAM 这光头，敢在微博上叫唤两声而已，线下怂着呢。</a>
-</h2>
-<p>SPAM 这光头，敢在微博上叫唤两声而已，线下怂着呢。<br><br>RE: 广电总局领导，开口闭口地‘’毛贼‘’叫得爽，贵党真的药丸。 @老辣陈香 @点子正 @老左识途     @侠骨柔情的杨华 @进击的熊爸爸<br><img src="http://ww2.sinaimg.cn/large/c857e634gw1f2wqzx68dqj20tb0qo79x.jpg"></p>
 <p>
 	<small> ============== 9小时前</small>
 </p>
