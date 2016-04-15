@@ -41,7 +41,7 @@
 </h2>
 <p>SPAM //@孔智勇51: //@黔山鹰:啧啧！[汗]<br><br>RE: 这里是北大！<br><img src="http://ww4.sinaimg.cn/large/51834496jw1f2xngjulc8j20zk0qo43t.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3964628704351853" target="freeweibo-mirror">//@凶猛的大青蛙: //@黑衣人02792:转发微博</a>
 </h2>
@@ -137,7 +137,7 @@
 </h2>
 <p>[淚]<br><br>RE: 中间的老人是90岁的王学珍教授，俺们读书时的中央委员兼北大党委书记，现在俺们说到政治风波中竭力保护学生的校官，总是大谈后来升为副委员长的丁石孙校长，没人提及后来被免职的王学珍书记，其实在保护学生问题上，王书记和丁校长同等重要，在李鹏总理会见绝食代表拂袖而走时，王书记从后排站起来大声...全文： http://m.weibo.cn/1222430350/3964567367266800<br><img src="http://ww4.sinaimg.cn/large/48dcce8ejw1f2xh0g8j8fj20m80go40n.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p>
 <table>
     <tr>
