@@ -25,6 +25,18 @@
 <p>
 	<small> ============== 1小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3964444512277364" target="freeweibo-mirror">//@章诒和: 在我的理解中，国家安全以公民安全为最重要,是…</a>
+</h2>
+<p>//@章诒和: 在我的理解中，国家安全以公民安全为最重要,是第一位的；而非政治安全或政权安全。//@徐昕: //@何必曰利: //@商略雪V://@北京磬石://@刘志强律师://@重庆郑建伟:[哆啦A梦吃惊]<br><br>RE: #律师权益保障# @葛永喜律师 4-15日零点左右被五名便衣从家中带走，说涉及发了一个有关国家领导人的贴子，影响很大，不知道与啥有关，能有这么大的影响，能令五名警察深夜入宅把一名公民带走？我建议如果 只是涉及领导的的隐私或者名誉可学习台湾省的马英九到法院提起民事诉讼，那会是令人尊敬的做法。<br><img src="http://ww2.sinaimg.cn/large/a9c7e7a9gw1f2wou4gc6zj20zk0o3dh3.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3964417470983065" target="freeweibo-mirror">//@西边雨小屋: [吃惊] //@徐利平律师://@上海鱼…</a>
+</h2>
+<p>//@西边雨小屋: [吃惊] //@徐利平律师://@上海鱼鱼1://@彼岸花dll: //@前腐后继民无天日9:文革疯时代，只要说错一句话就判刑，如今与恐怖的文革疯有何异？//@婉风辰星74:[围观][话筒]//@自由基005:转发微博<br><br>RE: #律师权益保障# @葛永喜律师 4-15日零点左右被五名便衣从家中带走，说涉及发了一个有关国家领导人的贴子，影响很大，不知道与啥有关，能有这么大的影响，能令五名警察深夜入宅把一名公民带走？我建议如果 只是涉及领导的的隐私或者名誉可学习台湾省的马英九到法院提起民事诉讼，那会是令人尊敬的做法。<br><img src="http://ww2.sinaimg.cn/large/a9c7e7a9gw1f2wou4gc6zj20zk0o3dh3.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3964314375380802" target="freeweibo-mirror">SPAM 胸玩年~[doge][doge]</a>
 </h2>
 <p>SPAM 胸玩年~[doge][doge]<br><img src="http://ww2.sinaimg.cn/large/7f8c1087gw1f2wo386vszj209e0go3zj.jpg"></p>
@@ -119,23 +131,11 @@
 </h2>
 <p>SPAM 妹子们快看看那个图片，最近这种“骨感瘦减法"很火，不吃药瘦这么多，良心推荐！不转对不起观众，不减肥对不起自己，瘦！瘦瘦！~~~[喵喵][喵喵]</p>
 <p>
-	<small> ============== 2天前</small>
+	<small> ============== 3天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3963560683852835" target="freeweibo-mirror">二胖这一家子，莫非真的想解放全人类？！</a>
 </h2>
 <p>二胖这一家子，莫非真的想解放全人类？！<br><img src="http://ww2.sinaimg.cn/large/006oZDbdgw1f2u9r1to93j30cv0e2dh3.jpg"></p>
-<p>
-	<small> ============== 3天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3963558415133150" target="freeweibo-mirror">SPAM //@逻辑_50493: / //@龙神帝魂: […</a>
-</h2>
-<p>SPAM //@逻辑_50493: / //@龙神帝魂: [怒]<br><br>RE: 这个私人医生完全在说胡话[挖鼻] http://t.cn/Rqx9BhC</p>
-<p>
-	<small> ============== 3天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3963554404929535" target="freeweibo-mirror">【中国在回应那个文件？】 这篇文章看起来有理有据，不会没有背…</a>
-</h2>
-<p>【中国在回应那个文件？】 这篇文章看起来有理有据，不会没有背景。既然如此，为什么不通过正常渠道第一时间澄清呢？那样做既是作为国家领导人的应尽义务，还可以及时消除负面影响，在形象上加分。『境外博客：习总管教好子女和亲戚没？』http://t.cn/RqxYpms<br><img src="http://ww4.sinaimg.cn/large/4ce32014gw1f2u8yvoh2lj20k00tajwg.jpg"></p>
 <p>
 	<small> ============== 3天前</small>
 </p>
