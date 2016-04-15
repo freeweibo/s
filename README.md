@@ -43,6 +43,12 @@
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3964567367266800" target="freeweibo-mirror">中间的老人是90岁的王学珍教授，俺们读书时的中央委员兼北大党…</a>
+</h2>
+<p>中间的老人是90岁的王学珍教授，俺们读书时的中央委员兼北大党委书记，现在俺们说到政治风波中竭力保护学生的校官，总是大谈后来升为副委员长的丁石孙校长，没人提及后来被免职的王学珍书记，其实在保护学生问题上，王书记和丁校长同等重要，在李鹏总理会见绝食代表拂袖而走时，王书记从后排站起来大声...全文： http://m.weibo.cn/1222430350/3964567367266800<br><img src="http://ww4.sinaimg.cn/large/48dcce8ejw1f2xh0g8j8fj20m80go40n.jpg"></p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3964564104801715" target="freeweibo-mirror">SPAM 回复@千羊萬象:我就管好吃不好吃，不管健康不健康。…</a>
 </h2>
 <p>SPAM 回复@千羊萬象:我就管好吃不好吃，不管健康不健康。//@千羊萬象:猪油非健康食品。少吃为妙</p>
@@ -85,6 +91,12 @@
 <p>
 	<small> ============== 5小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3964543799931608" target="freeweibo-mirror">未名湖，因为总理要走过这里，北大。</a>
+</h2>
+<p>未名湖，因为总理要走过这里，北大。<br><img src="http://ww2.sinaimg.cn/large/48dcce8ejw1f2xelmx7xuj20qo0zktfm.jpg"></p>
+<p>
+	<small> ============== 6小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3964539391008814" target="freeweibo-mirror">//@公民林静在维权4: 关注//@胡南梁:据@堵城之人 消…</a>
 </h2>
 <p>//@公民林静在维权4: 关注//@胡南梁:据@堵城之人 消息：葛永喜律师家属、陈进学律师、唐荆陵太太来到广州佛山盐步派出所查询情况，目前葛律师还在传唤问话中，无法会见。办案人员无任何手续！不告诉具体案由！[话筒]</p>
@@ -126,18 +138,6 @@
 <p>pmgmgngpxb</p>
 <p>
 	<small> ============== 9小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3964473188064492" target="freeweibo-mirror">今天耀邦忌日。他在80年代下令停止干扰台湾广播，说大陆比台湾…</a>
-</h2>
-<p>今天耀邦忌日。他在80年代下令停止干扰台湾广播，说大陆比台湾政治上更开放。80年代大部分时间里，美国之音也不受干扰，年轻人跟着VOA学《英语900句》、听Special  English，甚至成为时尚。 1986年耀邦主持的十二届六中全会决议提出，对外开放国策同样适用于精神文明。蓦然回首，开放体现政治自信。<br><img src="http://ww2.sinaimg.cn/large/631bc757jw1f2x6jj98xkj20q40hf0ue.jpg"></p>
-<p>
-	<small> ============== 10小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3964472932956478" target="freeweibo-mirror">言论自由！</a>
-</h2>
-<p>言论自由！<br><br>RE: #律师权益保障# 据息@葛永喜律师 律师4月15日零点左右被五名便衣入宅带到佛山市黄歧盐步派出所，说可能涉及发了一个贴子与国家领导人有关。不严重的一个贴子如果 一个电话能解决，何必兴师动众深夜入门扰民？不解，请大家关注！<br><img src="http://ww1.sinaimg.cn/large/a9c7e7a9gw1f2wp18k0xnj20zk0o3dh3.jpg"></p>
-<p>
-	<small> ============== 10小时前</small>
 </p>
 <table>
     <tr>
