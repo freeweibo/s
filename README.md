@@ -19,6 +19,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3964472932956478" target="freeweibo-mirror">言论自由！</a>
+</h2>
+<p>言论自由！<br><br>RE: #律师权益保障# 据息@葛永喜律师 律师4月15日零点左右被五名便衣入宅带到佛山市黄歧盐步派出所，说可能涉及发了一个贴子与国家领导人有关。不严重的一个贴子如果 一个电话能解决，何必兴师动众深夜入门扰民？不解，请大家关注！<br><img src="http://ww1.sinaimg.cn/large/a9c7e7a9gw1f2wp18k0xnj20zk0o3dh3.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3964454863529182" target="freeweibo-mirror">金钱和权力威逼利诱牧民安置赔偿了，在圈来的草地上开有毒铝厂，…</a>
 </h2>
 <p>金钱和权力威逼利诱牧民安置赔偿了，在圈来的草地上开有毒铝厂，官商勾结捞足钱还曰“鸡的屁”。关键是：圈来的草地并不属于你，把有毒污染灌进草原排进地底，毒害污染的是国家土地蒙古草原！如今污染已远超出所圈范围，关系到千百年子孙后代！你们捞够钱后，跑美国跑澳洲去了，遗留的的毒草原怎么办？<br><br>RE: #扎鲁特旗铝厂造成的污染# 从小就教育我们保护环境人人有责，从小教育我们看到警察叔叔不要害怕，从小教育告诉我们政府就是保护我们的神圣部门，可现如今，保护环境的被抓了！警察叔叔当我们恐怖分子抓了，我们只想保护那片仅有的草原环境，可是为什么就变成了我们无理取闹？你们的GPD是上去了，老百姓...全文： http://m.weibo.cn/2637442781/3964429995438039<br><img src="http://ww4.sinaimg.cn/large/9d342eddjw1f2x1ig2r84j20hs0qatci.jpg"></p>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3963578878519948" target="freeweibo-mirror">博主很有意思[嘻嘻]//@用户周千骢:海外敌对势力，暗箱操作…</a>
 </h2>
 <p>博主很有意思[嘻嘻]//@用户周千骢:海外敌对势力，暗箱操作出这么个东西//@性情中人_zyzs://@hehuanlinzhao://@巫一观://@回头系岸R: //@A回头系岸:转发微博<br><br>RE: 二胖这一家子，莫非真的想解放全人类？！<br><img src="http://ww2.sinaimg.cn/large/006oZDbdgw1f2u9r1to93j30cv0e2dh3.jpg"></p>
-<p>
-	<small> ============== 3天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3963577381629179" target="freeweibo-mirror">【境外博客：习总管教好子女和亲戚没？ | 界面新闻】 htt…</a>
-</h2>
-<p>【境外博客：习总管教好子女和亲戚没？ | 界面新闻】 http://t.cn/RqxFgs8<br><img src="http://ww1.sinaimg.cn/large/6bf8bea4jw1f2uboozeklj20jg0b4dhq.jpg"></p>
 <p>
 	<small> ============== 3天前</small>
 </p>
