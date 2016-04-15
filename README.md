@@ -23,7 +23,7 @@
 </h2>
 <p>言论自由！<br><br>RE: #律师权益保障# 据息@葛永喜律师 律师4月15日零点左右被五名便衣入宅带到佛山市黄歧盐步派出所，说可能涉及发了一个贴子与国家领导人有关。不严重的一个贴子如果 一个电话能解决，何必兴师动众深夜入门扰民？不解，请大家关注！<br><img src="http://ww1.sinaimg.cn/large/a9c7e7a9gw1f2wp18k0xnj20zk0o3dh3.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3964462317166599" target="freeweibo-mirror">SPAM 这光头，敢在微博上叫唤两声而已，线下怂着呢。</a>
 </h2>
@@ -89,7 +89,7 @@
 </h2>
 <p>SPAM 胸玩年~[doge][doge]<br><img src="http://ww2.sinaimg.cn/large/7f8c1087gw1f2wo386vszj209e0go3zj.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3964312290621616" target="freeweibo-mirror">//@姚广孝_wayne:果然是文明的地板啊，尽管流氓，在确…</a>
 </h2>
