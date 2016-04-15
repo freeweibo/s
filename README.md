@@ -59,7 +59,7 @@
 </h2>
 <p>俄拟拨款千万维护列宁遗体 反对者：让俄共来付  （分享自 @新浪新闻） http://t.cn/RqXvh9p<br><img src="http://ww4.sinaimg.cn/large/3e518583jw1f2xfj2ngypj20hm0d3q4d.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3964550275028149" target="freeweibo-mirror">谢！常到天坛，一直奇怪这么多天线是干吗用的。原来如此。//@…</a>
 </h2>
