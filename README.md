@@ -59,7 +59,7 @@
 </h2>
 <p>#四川师范大学杀人案# 据悉@四川师范大学 3月28日发生学生伤害致死案件，受害者与嫌疑人为同一寝室，现场惨烈，受害者身首异处[蜡烛]（图片慎点），学校官方微博4月15日下午回应目前正在积极配合警方调查中。[话筒]<br><img src="http://ww3.sinaimg.cn/large/8978f603jw1f2xgq9w800j20ku0lwtah.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3964557732632851" target="freeweibo-mirror">SPAM 我也很弱小，手里无寸铁。但面对强权，我们不能沉默！</a>
 </h2>
