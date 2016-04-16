@@ -19,6 +19,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3964840198514468" target="freeweibo-mirror">水中有忍者吗？[吃惊]</a>
+</h2>
+<p>水中有忍者吗？[吃惊]<br><br>RE: 【面试结果】有人打听今天博士生面试结果。孔老师告诉大家，考生们表现都不错，各有秋千，老师们很难割舍。今年面试改革，全程封闭录像。分数汇总上交，由系里统一权衡。为了给大家助兴，今儿个大师兄特意返校，北大人度过了难忘的一天，也算咱们都不虚此行啊。<br><img src="http://ww2.sinaimg.cn/large/476da361jw1f2xqphefvtj20qo0d0mzt.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3964795139283434" target="freeweibo-mirror">SPAM //@不沉默的大多数:不明真相 //@巍岳钦禹:清…</a>
 </h2>
 <p>SPAM //@不沉默的大多数:不明真相 //@巍岳钦禹:清华大学有表演系吗？<br><br>RE: 果然看见了！[哈哈]<br><img src="http://ww4.sinaimg.cn/large/006er8H9jw1f2xqxx8fy6j30hs0qodiw.jpg"></p>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3964613643318264" target="freeweibo-mirror">SPAM [围观] //@谢文:真有点草木皆兵的意思 //@…</a>
 </h2>
 <p>SPAM [围观] //@谢文:真有点草木皆兵的意思 //@左春和://@谢勇:吼吼//@心理学刘爱民: 哈哈，长见识了！</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3964611894119326" target="freeweibo-mirror">//@桑博评论:操！</a>
-</h2>
-<p>//@桑博评论:操！<br><br>RE: 旁友们，你们不久将会看到一个“总理到农园食堂和学生共进晚餐”的新闻，他进的膳呢，是这个小卡车专程运来的晚餐，学生呢，黑衣人对我说，“名单上有名字吗，没有，那无关人员不得入内”</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
