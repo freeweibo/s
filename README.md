@@ -77,7 +77,7 @@
 </h2>
 <p>话说轮子功的内讧已经进入白热化了，轮子功的前台人物是教主李大师，而真正的后台则是叶浩。李大师只有初中毕业，叶浩则是清华大学毕业。李大师只是个门卫小保安，叶浩则是公安局内负责网络审查的局长。李大师到处哭诉自己只是个可怜的傀儡虫。<br><img src="http://ww4.sinaimg.cn/large/5513b1cdgw1f2yn4din0bj21ae0yg7hl.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3964924705305065" target="freeweibo-mirror">卧槽 //@魔都学者韭菜://@闇御前: 赞同追究监护人责任…</a>
 </h2>
