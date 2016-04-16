@@ -47,7 +47,7 @@
 </h2>
 <p>老逼养的什么东西，马勒戈壁不是玩意！<br><img src="http://ww4.sinaimg.cn/large/006pqoV0gw1f2ys9r2cufj30fu0juq6r.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3964949581888776" target="freeweibo-mirror">【女子地铁遭袭胸殴打 警方：精神病患无法追责】日前，网友@庄…</a>
 </h2>
