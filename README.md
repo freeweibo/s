@@ -41,7 +41,7 @@
 </h2>
 <p>SPAM //@孔智勇51: //@黔山鹰:啧啧！[汗]<br><br>RE: 这里是北大！<br><img src="http://ww4.sinaimg.cn/large/51834496jw1f2xngjulc8j20zk0qo43t.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3964628704351853" target="freeweibo-mirror">//@凶猛的大青蛙: //@黑衣人02792:转发微博</a>
 </h2>
@@ -53,7 +53,7 @@
 </h2>
 <p>SPAM //@热情大闸蟹:干了什么亏心事？<br><br>RE: 这里是北大！<br><img src="http://ww4.sinaimg.cn/large/51834496jw1f2xngjulc8j20zk0qo43t.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3964621423093187" target="freeweibo-mirror">成都网友网名民主大木，刚刚单位领导通知到成都苏坡派出所去一趟…</a>
 </h2>
