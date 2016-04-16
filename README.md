@@ -77,7 +77,7 @@
 </h2>
 <p>话说轮子功的内讧已经进入白热化了，轮子功的前台人物是教主李大师，而真正的后台则是叶浩。李大师只有初中毕业，叶浩则是清华大学毕业。李大师只是个门卫小保安，叶浩则是公安局内负责网络审查的局长。李大师到处哭诉自己只是个可怜的傀儡虫。<br><img src="http://ww4.sinaimg.cn/large/5513b1cdgw1f2yn4din0bj21ae0yg7hl.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3964924705305065" target="freeweibo-mirror">卧槽 //@魔都学者韭菜://@闇御前: 赞同追究监护人责任…</a>
 </h2>
@@ -131,7 +131,7 @@
 </h2>
 <p>水中有忍者吗？[吃惊]<br><br>RE: 【面试结果】有人打听今天博士生面试结果。孔老师告诉大家，考生们表现都不错，各有秋千，老师们很难割舍。今年面试改革，全程封闭录像。分数汇总上交，由系里统一权衡。为了给大家助兴，今儿个大师兄特意返校，北大人度过了难忘的一天，也算咱们都不虚此行啊。<br><img src="http://ww2.sinaimg.cn/large/476da361jw1f2xqphefvtj20qo0d0mzt.jpg"></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3964806703035423" target="freeweibo-mirror">SPAM 我也来mo个ha。大约20年前在北大学5食堂吃饭的…</a>
 </h2>
