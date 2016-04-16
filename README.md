@@ -71,7 +71,7 @@
 </h2>
 <p>看看图，所以说相信轮子的，纯脑抽。一些内斗细节：http://t.cn/RqaadcV；http://t.cn/Rqaadcc<br><br>RE: 话说轮子功的内讧已经进入白热化了，轮子功的前台人物是教主李大师，而真正的后台则是叶浩。李大师只有初中毕业，叶浩则是清华大学毕业。李大师只是个门卫小保安，叶浩则是公安局内负责网络审查的局长。李大师到处哭诉自己只是个可怜的傀儡虫。<br><img src="http://ww4.sinaimg.cn/large/5513b1cdgw1f2yn4din0bj21ae0yg7hl.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3964938408124550" target="freeweibo-mirror">[吃惊]//@徐晋如:最右→_→//@殆知阁://@良知在神…</a>
 </h2>
@@ -95,7 +95,7 @@
 </h2>
 <p>马//@关岛邮局:故事精彩，先马再看~</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3964933048285357" target="freeweibo-mirror">#老谈说事# 【女孩地铁被猥亵殴打 删微博了】[怒]突然，有…</a>
 </h2>
