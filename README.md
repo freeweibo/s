@@ -67,6 +67,12 @@
 <p>
 	<small> ============== 1天前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3964656160730829" target="freeweibo-mirror">【面试结果】有人打听今天博士生面试结果。孔老师告诉大家，考生…</a>
+</h2>
+<p>【面试结果】有人打听今天博士生面试结果。孔老师告诉大家，考生们表现都不错，各有秋千，老师们很难割舍。今年面试改革，全程封闭录像。分数汇总上交，由系里统一权衡。为了给大家助兴，今儿个大师兄特意返校，北大人度过了难忘的一天，也算咱们都不虚此行啊。<br><img src="http://ww2.sinaimg.cn/large/476da361jw1f2xqphefvtj20qo0d0mzt.jpg"></p>
+<p>
+	<small> ============== 1天前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3964652238534106" target="freeweibo-mirror">SPAM 酱紫？[吃惊]//@晓雨闻铃: 想到了庆丰包子，，…</a>
 </h2>
 <p>SPAM 酱紫？[吃惊]//@晓雨闻铃: 想到了庆丰包子，，，。//@今时张志杰: [哈哈]→_→//@梅虔:同学们知道自己吃的食物是特供吗?[嘻嘻]<br><br>RE: 两条连在一起看，是不是更有意思？[哈哈]<br><img src="http://ww1.sinaimg.cn/large/879ee6bbjw1f2xq6agq2dj20qo1beaji.jpg"></p>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3964613927680429" target="freeweibo-mirror">SPAM 人多嘴杂，各种敌人无所不在，不得不防啊 //@袁国…</a>
 </h2>
 <p>SPAM 人多嘴杂，各种敌人无所不在，不得不防啊 //@袁国宝:水里那是干嘛呢？ //@萧含:唉。总理出动，天摇地动啊。至于吗？[挖鼻]</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3964613643318264" target="freeweibo-mirror">SPAM [围观] //@谢文:真有点草木皆兵的意思 //@…</a>
-</h2>
-<p>SPAM [围观] //@谢文:真有点草木皆兵的意思 //@左春和://@谢勇:吼吼//@心理学刘爱民: 哈哈，长见识了！</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
