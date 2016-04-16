@@ -41,7 +41,7 @@
 </h2>
 <p>SPAM //@孔智勇51: //@黔山鹰:啧啧！[汗]<br><br>RE: 这里是北大！<br><img src="http://ww4.sinaimg.cn/large/51834496jw1f2xngjulc8j20zk0qo43t.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3964628704351853" target="freeweibo-mirror">//@凶猛的大青蛙: //@黑衣人02792:转发微博</a>
 </h2>
