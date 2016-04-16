@@ -35,7 +35,7 @@
 </h2>
 <p>两条连在一起看，是不是更有意思？[哈哈]<br><img src="http://ww1.sinaimg.cn/large/879ee6bbjw1f2xq6agq2dj20qo1beaji.jpg"></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3964630688676169" target="freeweibo-mirror">SPAM //@孔智勇51: //@黔山鹰:啧啧！[汗]</a>
 </h2>
@@ -59,7 +59,7 @@
 </h2>
 <p>成都网友网名民主大木，刚刚单位领导通知到成都苏坡派出所去一趟！关于最近的姐夫小舅子事件发帖！请大家关注！<br><img src="http://ww3.sinaimg.cn/large/006r2f8Dgw1f2xnkbse8bj30qo0qo0wm.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3964620315649651" target="freeweibo-mirror">这里是北大！</a>
 </h2>
