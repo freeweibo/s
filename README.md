@@ -41,7 +41,7 @@
 </h2>
 <p>服[衰]//@laenix_:服了。//@挖希挖希:这尼玛哪个傻逼想出来的，脑子里头有屎吧//@黑长直赛高:辣鸡乐视//@南城_老赵: 对于这种营销手段，感觉真的挺傻逼的<br><br>RE: 不愧（     ） @贾老先森<br><img src="http://ww2.sinaimg.cn/large/64c18196jw1f2zi9u50t7j21be0qogs7.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3965234832396970" target="freeweibo-mirror">智障…//@孙渣:LOW的一B//@电信骗子Rkitty:/…</a>
 </h2>
@@ -101,7 +101,7 @@
 </h2>
 <p>第五次被删了，新浪还屏蔽了话题。好吧，再发一次，这次我不带话题。我就不信这个邪。<br><img src="http://ww2.sinaimg.cn/large/5ef2cb9djw1f2zgvmcku9j20qo1beqcz.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3965182289741501" target="freeweibo-mirror">SPAM 这里有发售 http://t.cn/RqSAA90…</a>
 </h2>
