@@ -23,7 +23,7 @@
 </h2>
 <p>//@夜雨沥沥:文革有人杀了一只鸡，拔毛被抓，拔毛就是拔毛主席的毛。<br><br>RE: 文革之毒害，旷古绝伦，文革之罪恶，罄竹难书。文革是仅次于二次世界大战，人类历史上的浩劫。文革期间，新疆焉耆县回族妇女马玉芳，文盲家境贫寒，没有卫生用纸。一天例假来，为擦经血，随手扯了一张破旧报纸，用完随手扔床下，后被人发现，指控其污染了毛像，被认定为反革命分子，判处死刑枪决。</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3965263227201581" target="freeweibo-mirror">@trusttruseet  耳听为虚，眼见为实，我也不是谁…</a>
 </h2>
@@ -47,7 +47,7 @@
 </h2>
 <p>智障…//@孙渣:LOW的一B//@电信骗子Rkitty://@秋山老雷: //@Jason玺:我是四川人，经历过512，看到这个很痛心！你能想象08年的时候，如果一家日本东京的门店，公然打出庆祝四川地震打折的标语，中国人会是怎么的心态？我不管这是哪家店，我都想掀了！<br><br>RE: 不愧（     ） @贾老先森<br><img src="http://ww2.sinaimg.cn/large/64c18196jw1f2zi9u50t7j21be0qogs7.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3965225616931017" target="freeweibo-mirror">删这个干啥？//@谷大白话:再转一次 //@桃小沫w:转发微…</a>
 </h2>
@@ -101,7 +101,7 @@
 </h2>
 <p>第五次被删了，新浪还屏蔽了话题。好吧，再发一次，这次我不带话题。我就不信这个邪。<br><img src="http://ww2.sinaimg.cn/large/5ef2cb9djw1f2zgvmcku9j20qo1beqcz.jpg"></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3965182289741501" target="freeweibo-mirror">SPAM 这里有发售 http://t.cn/RqSAA90…</a>
 </h2>
@@ -137,7 +137,7 @@
 </h2>
 <p>SPAM //@50年矛苔://@网易淡茶半杯://@独立思考0://@蒂罗尔的天空C:兔死狗烹…<br><br>RE: 美国为何要拿天朝的“太子党”开刀？<br><img src="http://ww2.sinaimg.cn/large/005yK05fjw1f2z2kxa0kzj30c68cux6r.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p>
 <table>
     <tr>
