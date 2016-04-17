@@ -19,6 +19,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3965248530741799" target="freeweibo-mirror">SPAM 王书金一个强奸杀害多名妇女的死有余辜的人，为了司法…</a>
+</h2>
+<p>SPAM 王书金一个强奸杀害多名妇女的死有余辜的人，为了司法公正，竟然经得住酷刑折磨。好多人的灵魂肮脏，虽在司法机关干了一辈子，竟连王书金这样一个强奸杀人犯都不如。建议@河北高院 门口树立聂树斌、王书金两座雕像，照一照某些端坐在法庭之上的丑陋的灵魂。<br><br>RE: 张越干预聂树斌案平反，曾经刑讯王书金，昨夜已被公开报道。<br><img src="http://ww4.sinaimg.cn/large/5ff29ca4jw1f2zbabs114j20qo1bedp9.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3965225616931017" target="freeweibo-mirror">删这个干啥？//@谷大白话:再转一次 //@桃小沫w:转发微…</a>
 </h2>
 <p>删这个干啥？//@谷大白话:再转一次 //@桃小沫w:转发微博<br><br>RE: 第五次被删了，新浪还屏蔽了话题。好吧，再发一次，这次我不带话题。我就不信这个邪。<br><img src="http://ww2.sinaimg.cn/large/5ef2cb9djw1f2zgvmcku9j20qo1beqcz.jpg"></p>
@@ -132,12 +138,6 @@
 <p>镇压了八九，放走了康华，官倒就合法化至今，贪官事小，官倒事关国家存亡。 //@稻粱之香2013:再也不是以前起步时小打小闹了，不过本质上还是官倒。一群腐败的寄生虫！//@镜宇-暖之:买办，本质上就是汉奸。//@蒂罗尔的天空C:兔死狗烹…<br><br>RE: 美国为何要拿天朝的“太子党”开刀？<br><img src="http://ww2.sinaimg.cn/large/005yK05fjw1f2z2kxa0kzj30c68cux6r.jpg"></p>
 <p>
 	<small> ============== 9小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3965065398875939" target="freeweibo-mirror">美国为何要拿天朝的“太子党”开刀？</a>
-</h2>
-<p>美国为何要拿天朝的“太子党”开刀？<br><img src="http://ww2.sinaimg.cn/large/005yK05fjw1f2z2kxa0kzj30c68cux6r.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
 </p>
 <table>
     <tr>
