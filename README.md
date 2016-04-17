@@ -41,7 +41,7 @@
 </h2>
 <p>服[衰]//@laenix_:服了。//@挖希挖希:这尼玛哪个傻逼想出来的，脑子里头有屎吧//@黑长直赛高:辣鸡乐视//@南城_老赵: 对于这种营销手段，感觉真的挺傻逼的<br><br>RE: 不愧（     ） @贾老先森<br><img src="http://ww2.sinaimg.cn/large/64c18196jw1f2zi9u50t7j21be0qogs7.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3965234832396970" target="freeweibo-mirror">智障…//@孙渣:LOW的一B//@电信骗子Rkitty:/…</a>
 </h2>
@@ -107,7 +107,7 @@
 </h2>
 <p>SPAM 这里有发售 http://t.cn/RqSAA90  别忘了Sandro现在在仓库大/促呢。http://t.cn/RqaZ617</p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3965177931710685" target="freeweibo-mirror">姑娘中彩了!精神病人犯罪免责是很傻逼的法律!其立法的初衷应该…</a>
 </h2>
