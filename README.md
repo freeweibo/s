@@ -35,7 +35,7 @@
 </h2>
 <p>@trusttruseet  耳听为虚，眼见为实，我也不是谁得粉，更何况就凭几张来历不明的图片，貌似也说明不了什么，一个以生态为核心的企业，应该不至于做出这么冷血无情的事吧，求原图求真相……！<br><br>RE: 不愧（     ） @贾老先森<br><img src="http://ww2.sinaimg.cn/large/64c18196jw1f2zi9u50t7j21be0qogs7.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3965248530741799" target="freeweibo-mirror">SPAM 王书金一个强奸杀害多名妇女的死有余辜的人，为了司法…</a>
 </h2>
