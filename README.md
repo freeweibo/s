@@ -23,7 +23,7 @@
 </h2>
 <p>SPAM 王书金一个强奸杀害多名妇女的死有余辜的人，为了司法公正，竟然经得住酷刑折磨。好多人的灵魂肮脏，虽在司法机关干了一辈子，竟连王书金这样一个强奸杀人犯都不如。建议@河北高院 门口树立聂树斌、王书金两座雕像，照一照某些端坐在法庭之上的丑陋的灵魂。<br><br>RE: 张越干预聂树斌案平反，曾经刑讯王书金，昨夜已被公开报道。<br><img src="http://ww4.sinaimg.cn/large/5ff29ca4jw1f2zbabs114j20qo1bedp9.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3965225616931017" target="freeweibo-mirror">删这个干啥？//@谷大白话:再转一次 //@桃小沫w:转发微…</a>
 </h2>
@@ -41,7 +41,7 @@
 </h2>
 <p>//@京城吃货日记:强烈建议大家转起来，因为今天我们不让政府看到，明天这种事就可能发生在你家人亲戚朋友身上！<br><br>RE: 第五次被删了，新浪还屏蔽了话题。好吧，再发一次，这次我不带话题。我就不信这个邪。<br><img src="http://ww2.sinaimg.cn/large/5ef2cb9djw1f2zgvmcku9j20qo1beqcz.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3965205345969880" target="freeweibo-mirror">SPAM [拜拜]如果微博只有图但什么都不说，是我在备份资料…</a>
 </h2>
