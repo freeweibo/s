@@ -23,7 +23,7 @@
 </h2>
 <p>//@高会民: [围观]不佩戴党徽者应该做自动退D处理。<br><br>RE: 转发网友建议:让8700万共产党员戴党徽！上班时间要佩戴，下班之后也应该佩戴。忘记佩戴一次扣2分，故意遮挡党徽扣6分，故意损坏党徽一次性扣完 12。扣完之后重新到党校学习，并重写入党申请书。对于拒不配合者，应该剥夺他们成为共产党员的荣誉感，以叛党论处。不愿意戴党徽就说明他不认可党员身份！<br><img src="http://ww4.sinaimg.cn/large/58500250jw1f2y7pgh5kxj2064064glg.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3965280290561891" target="freeweibo-mirror">//@夜雨沥沥:文革有人杀了一只鸡，拔毛被抓，拔毛就是拔毛主…</a>
 </h2>
@@ -35,7 +35,7 @@
 </h2>
 <p>@trusttruseet  耳听为虚，眼见为实，我也不是谁得粉，更何况就凭几张来历不明的图片，貌似也说明不了什么，一个以生态为核心的企业，应该不至于做出这么冷血无情的事吧，求原图求真相……！<br><br>RE: 不愧（     ） @贾老先森<br><img src="http://ww2.sinaimg.cn/large/64c18196jw1f2zi9u50t7j21be0qogs7.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3965248530741799" target="freeweibo-mirror">SPAM 王书金一个强奸杀害多名妇女的死有余辜的人，为了司法…</a>
 </h2>
