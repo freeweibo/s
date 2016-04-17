@@ -71,7 +71,7 @@
 </h2>
 <p>第五次被删了，新浪还屏蔽了话题。好吧，再发一次，这次我不带话题。我就不信这个邪。<br><img src="http://ww2.sinaimg.cn/large/5ef2cb9djw1f2zgvmcku9j20qo1beqcz.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3965182289741501" target="freeweibo-mirror">SPAM 这里有发售 http://t.cn/RqSAA90…</a>
 </h2>
