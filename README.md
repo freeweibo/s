@@ -19,6 +19,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3965369062169696" target="freeweibo-mirror">//@高会民: [围观]不佩戴党徽者应该做自动退D处理。</a>
+</h2>
+<p>//@高会民: [围观]不佩戴党徽者应该做自动退D处理。<br><br>RE: 转发网友建议:让8700万共产党员戴党徽！上班时间要佩戴，下班之后也应该佩戴。忘记佩戴一次扣2分，故意遮挡党徽扣6分，故意损坏党徽一次性扣完 12。扣完之后重新到党校学习，并重写入党申请书。对于拒不配合者，应该剥夺他们成为共产党员的荣誉感，以叛党论处。不愿意戴党徽就说明他不认可党员身份！<br><img src="http://ww4.sinaimg.cn/large/58500250jw1f2y7pgh5kxj2064064glg.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3965280290561891" target="freeweibo-mirror">//@夜雨沥沥:文革有人杀了一只鸡，拔毛被抓，拔毛就是拔毛主…</a>
 </h2>
 <p>//@夜雨沥沥:文革有人杀了一只鸡，拔毛被抓，拔毛就是拔毛主席的毛。<br><br>RE: 文革之毒害，旷古绝伦，文革之罪恶，罄竹难书。文革是仅次于二次世界大战，人类历史上的浩劫。文革期间，新疆焉耆县回族妇女马玉芳，文盲家境贫寒，没有卫生用纸。一天例假来，为擦经血，随手扯了一张破旧报纸，用完随手扔床下，后被人发现，指控其污染了毛像，被认定为反革命分子，判处死刑枪决。</p>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3965157044316679" target="freeweibo-mirror">[嘻嘻]骗纸</a>
 </h2>
 <p>[嘻嘻]骗纸<br><br>RE: 宋鸿兵已经被打，郎咸平还会远吗？郎咸平今天到上海讲座，因为曾为泛亚站台，被泛亚投资者围堵问责。演讲中途被迫撤退，投资者随后活捉其座驾。请问，谁对谁错？<br><img src="http://ww4.sinaimg.cn/large/7c1d7ba8gw1f2yt8d07hhj20bo0isgnj.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3965151868437138" target="freeweibo-mirror">SPAM //@50年矛苔://@网易淡茶半杯://@独立思…</a>
-</h2>
-<p>SPAM //@50年矛苔://@网易淡茶半杯://@独立思考0://@蒂罗尔的天空C:兔死狗烹…<br><br>RE: 美国为何要拿天朝的“太子党”开刀？<br><img src="http://ww2.sinaimg.cn/large/005yK05fjw1f2z2kxa0kzj30c68cux6r.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
