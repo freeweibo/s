@@ -47,13 +47,13 @@
 </h2>
 <p>服[衰]//@laenix_:服了。//@挖希挖希:这尼玛哪个傻逼想出来的，脑子里头有屎吧//@黑长直赛高:辣鸡乐视//@南城_老赵: 对于这种营销手段，感觉真的挺傻逼的<br><br>RE: 不愧（     ） @贾老先森<br><img src="http://ww2.sinaimg.cn/large/64c18196jw1f2zi9u50t7j21be0qogs7.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3965234832396970" target="freeweibo-mirror">智障…//@孙渣:LOW的一B//@电信骗子Rkitty:/…</a>
 </h2>
 <p>智障…//@孙渣:LOW的一B//@电信骗子Rkitty://@秋山老雷: //@Jason玺:我是四川人，经历过512，看到这个很痛心！你能想象08年的时候，如果一家日本东京的门店，公然打出庆祝四川地震打折的标语，中国人会是怎么的心态？我不管这是哪家店，我都想掀了！<br><br>RE: 不愧（     ） @贾老先森<br><img src="http://ww2.sinaimg.cn/large/64c18196jw1f2zi9u50t7j21be0qogs7.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3965225616931017" target="freeweibo-mirror">删这个干啥？//@谷大白话:再转一次 //@桃小沫w:转发微…</a>
 </h2>
