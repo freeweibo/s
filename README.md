@@ -125,7 +125,7 @@
 </h2>
 <p>//@梁翊芳律师:[吃惊][吃惊][吃惊]//@寒霜落萍浮:所以早就明白为什么要"杀出血路"改革，所以成为了药丸党。<br><br>RE: 美国为何要拿天朝的“太子党”开刀？<br><img src="http://ww2.sinaimg.cn/large/005yK05fjw1f2z2kxa0kzj30c68cux6r.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3965157044316679" target="freeweibo-mirror">[嘻嘻]骗纸</a>
 </h2>
