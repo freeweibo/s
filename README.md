@@ -47,7 +47,7 @@
 </h2>
 <p>试试看这次还删么。<br><br>RE: 第五次被删了，新浪还屏蔽了话题。好吧，再发一次，这次我不带话题。我就不信这个邪。<br><img src="http://ww2.sinaimg.cn/large/5ef2cb9djw1f2zgvmcku9j20qo1beqcz.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3965191526224626" target="freeweibo-mirror">[赞][赞]</a>
 </h2>
@@ -131,7 +131,7 @@
 </h2>
 <p>镇压了八九，放走了康华，官倒就合法化至今，贪官事小，官倒事关国家存亡。 //@稻粱之香2013:再也不是以前起步时小打小闹了，不过本质上还是官倒。一群腐败的寄生虫！//@镜宇-暖之:买办，本质上就是汉奸。//@蒂罗尔的天空C:兔死狗烹…<br><br>RE: 美国为何要拿天朝的“太子党”开刀？<br><img src="http://ww2.sinaimg.cn/large/005yK05fjw1f2z2kxa0kzj30c68cux6r.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3965065398875939" target="freeweibo-mirror">美国为何要拿天朝的“太子党”开刀？</a>
 </h2>
