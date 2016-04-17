@@ -59,7 +59,7 @@
 </h2>
 <p>删这个干啥？//@谷大白话:再转一次 //@桃小沫w:转发微博<br><br>RE: 第五次被删了，新浪还屏蔽了话题。好吧，再发一次，这次我不带话题。我就不信这个邪。<br><img src="http://ww2.sinaimg.cn/large/5ef2cb9djw1f2zgvmcku9j20qo1beqcz.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3965222404127699" target="freeweibo-mirror">不明白这种丝毫没有任何敏感性的事为什么会被删？</a>
 </h2>
@@ -71,7 +71,7 @@
 </h2>
 <p>//@京城吃货日记:强烈建议大家转起来，因为今天我们不让政府看到，明天这种事就可能发生在你家人亲戚朋友身上！<br><br>RE: 第五次被删了，新浪还屏蔽了话题。好吧，再发一次，这次我不带话题。我就不信这个邪。<br><img src="http://ww2.sinaimg.cn/large/5ef2cb9djw1f2zgvmcku9j20qo1beqcz.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3965205345969880" target="freeweibo-mirror">SPAM [拜拜]如果微博只有图但什么都不说，是我在备份资料…</a>
 </h2>
