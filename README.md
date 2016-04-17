@@ -19,6 +19,18 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3965280290561891" target="freeweibo-mirror">//@夜雨沥沥:文革有人杀了一只鸡，拔毛被抓，拔毛就是拔毛主…</a>
+</h2>
+<p>//@夜雨沥沥:文革有人杀了一只鸡，拔毛被抓，拔毛就是拔毛主席的毛。<br><br>RE: 文革之毒害，旷古绝伦，文革之罪恶，罄竹难书。文革是仅次于二次世界大战，人类历史上的浩劫。文革期间，新疆焉耆县回族妇女马玉芳，文盲家境贫寒，没有卫生用纸。一天例假来，为擦经血，随手扯了一张破旧报纸，用完随手扔床下，后被人发现，指控其污染了毛像，被认定为反革命分子，判处死刑枪决。</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3965263227201581" target="freeweibo-mirror">@trusttruseet  耳听为虚，眼见为实，我也不是谁…</a>
+</h2>
+<p>@trusttruseet  耳听为虚，眼见为实，我也不是谁得粉，更何况就凭几张来历不明的图片，貌似也说明不了什么，一个以生态为核心的企业，应该不至于做出这么冷血无情的事吧，求原图求真相……！<br><br>RE: 不愧（     ） @贾老先森<br><img src="http://ww2.sinaimg.cn/large/64c18196jw1f2zi9u50t7j21be0qogs7.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3965248530741799" target="freeweibo-mirror">SPAM 王书金一个强奸杀害多名妇女的死有余辜的人，为了司法…</a>
 </h2>
 <p>SPAM 王书金一个强奸杀害多名妇女的死有余辜的人，为了司法公正，竟然经得住酷刑折磨。好多人的灵魂肮脏，虽在司法机关干了一辈子，竟连王书金这样一个强奸杀人犯都不如。建议@河北高院 门口树立聂树斌、王书金两座雕像，照一照某些端坐在法庭之上的丑陋的灵魂。<br><br>RE: 张越干预聂树斌案平反，曾经刑讯王书金，昨夜已被公开报道。<br><img src="http://ww4.sinaimg.cn/large/5ff29ca4jw1f2zbabs114j20qo1bedp9.jpg"></p>
@@ -124,18 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3965151868437138" target="freeweibo-mirror">SPAM //@50年矛苔://@网易淡茶半杯://@独立思…</a>
 </h2>
 <p>SPAM //@50年矛苔://@网易淡茶半杯://@独立思考0://@蒂罗尔的天空C:兔死狗烹…<br><br>RE: 美国为何要拿天朝的“太子党”开刀？<br><img src="http://ww2.sinaimg.cn/large/005yK05fjw1f2z2kxa0kzj30c68cux6r.jpg"></p>
-<p>
-	<small> ============== 10小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3965149473746099" target="freeweibo-mirror">老公 cai 大 器  cu，活 好，婚后一直欲 罢不能！但…</a>
-</h2>
-<p>老公 cai 大 器  cu，活 好，婚后一直欲 罢不能！但就是需 求太大，我满 足不了，该怎么 办？<br><img src="http://ww1.sinaimg.cn/large/922c5da7gw1f2zc88siuwj20c6adib2c.jpg"></p>
-<p>
-	<small> ============== 10小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3965146961403259" target="freeweibo-mirror">卖脸有风险，忽悠需谨慎</a>
-</h2>
-<p>卖脸有风险，忽悠需谨慎<br><br>RE: 宋鸿兵已经被打，郎咸平还会远吗？郎咸平今天到上海讲座，因为曾为泛亚站台，被泛亚投资者围堵问责。演讲中途被迫撤退，投资者随后活捉其座驾。请问，谁对谁错？<br><img src="http://ww4.sinaimg.cn/large/7c1d7ba8gw1f2yt8d07hhj20bo0isgnj.jpg"></p>
 <p>
 	<small> ============== 10小时前</small>
 </p>
