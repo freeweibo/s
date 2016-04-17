@@ -23,7 +23,7 @@
 </h2>
 <p>//@高会民: [围观]不佩戴党徽者应该做自动退D处理。<br><br>RE: 转发网友建议:让8700万共产党员戴党徽！上班时间要佩戴，下班之后也应该佩戴。忘记佩戴一次扣2分，故意遮挡党徽扣6分，故意损坏党徽一次性扣完 12。扣完之后重新到党校学习，并重写入党申请书。对于拒不配合者，应该剥夺他们成为共产党员的荣誉感，以叛党论处。不愿意戴党徽就说明他不认可党员身份！<br><img src="http://ww4.sinaimg.cn/large/58500250jw1f2y7pgh5kxj2064064glg.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3965280290561891" target="freeweibo-mirror">//@夜雨沥沥:文革有人杀了一只鸡，拔毛被抓，拔毛就是拔毛主…</a>
 </h2>
@@ -35,13 +35,13 @@
 </h2>
 <p>@trusttruseet  耳听为虚，眼见为实，我也不是谁得粉，更何况就凭几张来历不明的图片，貌似也说明不了什么，一个以生态为核心的企业，应该不至于做出这么冷血无情的事吧，求原图求真相……！<br><br>RE: 不愧（     ） @贾老先森<br><img src="http://ww2.sinaimg.cn/large/64c18196jw1f2zi9u50t7j21be0qogs7.jpg"></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3965248530741799" target="freeweibo-mirror">SPAM 王书金一个强奸杀害多名妇女的死有余辜的人，为了司法…</a>
 </h2>
 <p>SPAM 王书金一个强奸杀害多名妇女的死有余辜的人，为了司法公正，竟然经得住酷刑折磨。好多人的灵魂肮脏，虽在司法机关干了一辈子，竟连王书金这样一个强奸杀人犯都不如。建议@河北高院 门口树立聂树斌、王书金两座雕像，照一照某些端坐在法庭之上的丑陋的灵魂。<br><br>RE: 张越干预聂树斌案平反，曾经刑讯王书金，昨夜已被公开报道。<br><img src="http://ww4.sinaimg.cn/large/5ff29ca4jw1f2zbabs114j20qo1bedp9.jpg"></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3965242566457423" target="freeweibo-mirror">服[衰]//@laenix_:服了。//@挖希挖希:这尼玛哪…</a>
 </h2>
@@ -59,7 +59,7 @@
 </h2>
 <p>删这个干啥？//@谷大白话:再转一次 //@桃小沫w:转发微博<br><br>RE: 第五次被删了，新浪还屏蔽了话题。好吧，再发一次，这次我不带话题。我就不信这个邪。<br><img src="http://ww2.sinaimg.cn/large/5ef2cb9djw1f2zgvmcku9j20qo1beqcz.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3965222404127699" target="freeweibo-mirror">不明白这种丝毫没有任何敏感性的事为什么会被删？</a>
 </h2>
