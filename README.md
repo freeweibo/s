@@ -41,7 +41,7 @@
 </h2>
 <p>SPAM 王书金一个强奸杀害多名妇女的死有余辜的人，为了司法公正，竟然经得住酷刑折磨。好多人的灵魂肮脏，虽在司法机关干了一辈子，竟连王书金这样一个强奸杀人犯都不如。建议@河北高院 门口树立聂树斌、王书金两座雕像，照一照某些端坐在法庭之上的丑陋的灵魂。<br><br>RE: 张越干预聂树斌案平反，曾经刑讯王书金，昨夜已被公开报道。<br><img src="http://ww4.sinaimg.cn/large/5ff29ca4jw1f2zbabs114j20qo1bedp9.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3965242566457423" target="freeweibo-mirror">服[衰]//@laenix_:服了。//@挖希挖希:这尼玛哪…</a>
 </h2>
