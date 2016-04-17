@@ -25,6 +25,12 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3965157044316679" target="freeweibo-mirror">[嘻嘻]骗纸</a>
+</h2>
+<p>[嘻嘻]骗纸<br><br>RE: 宋鸿兵已经被打，郎咸平还会远吗？郎咸平今天到上海讲座，因为曾为泛亚站台，被泛亚投资者围堵问责。演讲中途被迫撤退，投资者随后活捉其座驾。请问，谁对谁错？<br><img src="http://ww4.sinaimg.cn/large/7c1d7ba8gw1f2yt8d07hhj20bo0isgnj.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3965151868437138" target="freeweibo-mirror">SPAM //@50年矛苔://@网易淡茶半杯://@独立思…</a>
 </h2>
 <p>SPAM //@50年矛苔://@网易淡茶半杯://@独立思考0://@蒂罗尔的天空C:兔死狗烹…<br><br>RE: 美国为何要拿天朝的“太子党”开刀？<br><img src="http://ww2.sinaimg.cn/large/005yK05fjw1f2z2kxa0kzj30c68cux6r.jpg"></p>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3964935187059936" target="freeweibo-mirror">真的假的？[吃惊]//@西西福厮:[傻眼]我又想起方舟子老师…</a>
 </h2>
 <p>真的假的？[吃惊]//@西西福厮:[傻眼]我又想起方舟子老师以及科学道义小伙伴了，怎么办?<br><br>RE: 话说轮子功的内讧已经进入白热化了，轮子功的前台人物是教主李大师，而真正的后台则是叶浩。李大师只有初中毕业，叶浩则是清华大学毕业。李大师只是个门卫小保安，叶浩则是公安局内负责网络审查的局长。李大师到处哭诉自己只是个可怜的傀儡虫。<br><img src="http://ww4.sinaimg.cn/large/5513b1cdgw1f2yn4din0bj21ae0yg7hl.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3964934301969037" target="freeweibo-mirror">马//@关岛邮局:故事精彩，先马再看~</a>
-</h2>
-<p>马//@关岛邮局:故事精彩，先马再看~</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
