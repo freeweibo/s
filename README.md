@@ -41,7 +41,7 @@
 </h2>
 <p>删这个干啥？//@谷大白话:再转一次 //@桃小沫w:转发微博<br><br>RE: 第五次被删了，新浪还屏蔽了话题。好吧，再发一次，这次我不带话题。我就不信这个邪。<br><img src="http://ww2.sinaimg.cn/large/5ef2cb9djw1f2zgvmcku9j20qo1beqcz.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3965222404127699" target="freeweibo-mirror">不明白这种丝毫没有任何敏感性的事为什么会被删？</a>
 </h2>
