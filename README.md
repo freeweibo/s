@@ -71,7 +71,7 @@
 </h2>
 <p>SPAM [拜拜]如果微博只有图但什么都不说，是我在备份资料。以后我备份资料还是好友圈可见了，如果你发现我没改权限，告诉我一下，我改。<br><img src="http://ww1.sinaimg.cn/large/67197f43jw1f2zik68nd1j20ku0l075x.jpg"></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3965202048962993" target="freeweibo-mirror">不愧（     ） @贾老先森</a>
 </h2>
