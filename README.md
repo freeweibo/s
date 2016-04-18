@@ -59,7 +59,7 @@
 </h2>
 <p>SPAM 哈哈哈哈买了暗中观察</p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3965553972712007" target="freeweibo-mirror">SPAM 今天最后一天了。 //@纽约购物达人: 这个还有，…</a>
 </h2>
