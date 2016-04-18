@@ -77,7 +77,7 @@
 </h2>
 <p>河南新蔡一基督徒护教堂 遭强拆人员活埋惨死<br><img src="http://ww4.sinaimg.cn/large/b5f1ace9gw1f30gp6452ij20c81mcn4z.jpg"></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3965375144407764" target="freeweibo-mirror">央视总是用一副批判的，甚至有点幸灾乐祸的口气报道国外事件。报…</a>
 </h2>
