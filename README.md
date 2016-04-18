@@ -49,6 +49,12 @@
 <p>
 	<small> ============== 5小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3965501783161119" target="freeweibo-mirror">河南新蔡一基督徒护教堂 遭强拆人员活埋惨死</a>
+</h2>
+<p>河南新蔡一基督徒护教堂 遭强拆人员活埋惨死<br><img src="http://ww4.sinaimg.cn/large/b5f1ace9gw1f30gp6452ij20c81mcn4z.jpg"></p>
+<p>
+	<small> ============== 8小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3965375144407764" target="freeweibo-mirror">央视总是用一副批判的，甚至有点幸灾乐祸的口气报道国外事件。报…</a>
 </h2>
 <p>央视总是用一副批判的，甚至有点幸灾乐祸的口气报道国外事件。报道日本地震也是如此。日本面对地震有非常完善的应急机制，没有一所学校倒塌，没有发生一起哄抬物价。对此，央视不报道，却硬要说什么民众对未来不知所措之类的言辞。这样的央视，也只配给高官送二奶和小鲜肉。（转<br><img src="http://ww3.sinaimg.cn/large/9d0b866djw1f3024ppoi6j20j60audif.jpg"></p>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3965191526224626" target="freeweibo-mirror">[赞][赞]</a>
 </h2>
 <p>[赞][赞]</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3965191265781817" target="freeweibo-mirror">SPAM [爱你]//@幽默视频达人:马了  内容精彩慢慢看</a>
-</h2>
-<p>SPAM [爱你]//@幽默视频达人:马了  内容精彩慢慢看</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
