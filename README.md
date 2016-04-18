@@ -23,7 +23,7 @@
 </h2>
 <p>原博主最后那句～准确到位啊[嘻嘻]//@西山书客谭旭东:还有人看央视。[偷笑] //@陶然万柳世界://@壹本正经2010://@漫游者粒子:转发微博<br><br>RE: 央视总是用一副批判的，甚至有点幸灾乐祸的口气报道国外事件。报道日本地震也是如此。日本面对地震有非常完善的应急机制，没有一所学校倒塌，没有发生一起哄抬物价。对此，央视不报道，却硬要说什么民众对未来不知所措之类的言辞。这样的央视，也只配给高官送二奶和小鲜肉。（转<br><img src="http://ww3.sinaimg.cn/large/9d0b866djw1f3024ppoi6j20j60audif.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3965567637902358" target="freeweibo-mirror">SPAM 这支不到5分钟的广告，戳中了几百万人的心 ！[悲伤…</a>
 </h2>
@@ -41,7 +41,13 @@
 </h2>
 <p>SPAM 今天最后一天了。 //@纽约购物达人: 这个还有，并且满65刀还送面霜。</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3965375144407764" target="freeweibo-mirror">央视总是用一副批判的，甚至有点幸灾乐祸的口气报道国外事件。报…</a>
+</h2>
+<p>央视总是用一副批判的，甚至有点幸灾乐祸的口气报道国外事件。报道日本地震也是如此。日本面对地震有非常完善的应急机制，没有一所学校倒塌，没有发生一起哄抬物价。对此，央视不报道，却硬要说什么民众对未来不知所措之类的言辞。这样的央视，也只配给高官送二奶和小鲜肉。（转<br><img src="http://ww3.sinaimg.cn/large/9d0b866djw1f3024ppoi6j20j60audif.jpg"></p>
+<p>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3965369062169696" target="freeweibo-mirror">//@高会民: [围观]不佩戴党徽者应该做自动退D处理。</a>
 </h2>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3965189919226920" target="freeweibo-mirror">第五次被删了，新浪还屏蔽了话题。好吧，再发一次，这次我不带话…</a>
 </h2>
 <p>第五次被删了，新浪还屏蔽了话题。好吧，再发一次，这次我不带话题。我就不信这个邪。<br><img src="http://ww2.sinaimg.cn/large/5ef2cb9djw1f2zgvmcku9j20qo1beqcz.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3965182289741501" target="freeweibo-mirror">SPAM 这里有发售 http://t.cn/RqSAA90…</a>
-</h2>
-<p>SPAM 这里有发售 http://t.cn/RqSAA90  别忘了Sandro现在在仓库大/促呢。http://t.cn/RqaZ617</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
