@@ -31,6 +31,12 @@
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3965636982476396" target="freeweibo-mirror">公元2016年的4月18日上午8时，在中华人民共和国首都北京…</a>
+</h2>
+<p>公元2016年的4月18日上午8时，在中华人民共和国首都北京，座落在知春路的国家卫生和计划生育委员会大楼前，来自全国各地的失独父母们，为了老有所养、病有所医，步履维艰、相互搀扶，头戴小白帽，以省为单位井然有序的排列在路边，声势浩大的418维权正式拉开序幕。维权正在进行中……<br><img src="http://ww4.sinaimg.cn/large/939fa7adgw1f30vmhsk2wj20np0hstah.jpg"></p>
+<p>
+	<small> ============== 5小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3965597949768969" target="freeweibo-mirror">必须要说法！ 交警都是放屁么？ //@颜值马月://@张帅V…</a>
 </h2>
 <p>必须要说法！ 交警都是放屁么？ //@颜值马月://@张帅VlP:以后大家不要相信@平安北京 @北京交警，之类的官方微博，他们不会理老百姓的事，他们只是个摆设！这事过去几天了，感谢所有热心的网友，又对警方的冷漠寒心，想一下平凡的老百姓怎么办？这事我坚持要个说法！</p>
@@ -59,7 +65,7 @@
 </h2>
 <p>原博主最后那句～准确到位啊[嘻嘻]//@西山书客谭旭东:还有人看央视。[偷笑] //@陶然万柳世界://@壹本正经2010://@漫游者粒子:转发微博<br><br>RE: 央视总是用一副批判的，甚至有点幸灾乐祸的口气报道国外事件。报道日本地震也是如此。日本面对地震有非常完善的应急机制，没有一所学校倒塌，没有发生一起哄抬物价。对此，央视不报道，却硬要说什么民众对未来不知所措之类的言辞。这样的央视，也只配给高官送二奶和小鲜肉。（转<br><img src="http://ww3.sinaimg.cn/large/9d0b866djw1f3024ppoi6j20j60audif.jpg"></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3965567637902358" target="freeweibo-mirror">SPAM 这支不到5分钟的广告，戳中了几百万人的心 ！[悲伤…</a>
 </h2>
@@ -77,7 +83,7 @@
 </h2>
 <p>SPAM 今天最后一天了。 //@纽约购物达人: 这个还有，并且满65刀还送面霜。</p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3965540886016356" target="freeweibo-mirror">SPAM 和隔壁少妇在她家嘿咻的时候，她老公回来当场撞见了……</a>
 </h2>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3965234832396970" target="freeweibo-mirror">智障…//@孙渣:LOW的一B//@电信骗子Rkitty:/…</a>
 </h2>
 <p>智障…//@孙渣:LOW的一B//@电信骗子Rkitty://@秋山老雷: //@Jason玺:我是四川人，经历过512，看到这个很痛心！你能想象08年的时候，如果一家日本东京的门店，公然打出庆祝四川地震打折的标语，中国人会是怎么的心态？我不管这是哪家店，我都想掀了！<br><br>RE: 不愧（     ） @贾老先森<br><img src="http://ww2.sinaimg.cn/large/64c18196jw1f2zi9u50t7j21be0qogs7.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3965225616931017" target="freeweibo-mirror">删这个干啥？//@谷大白话:再转一次 //@桃小沫w:转发微…</a>
-</h2>
-<p>删这个干啥？//@谷大白话:再转一次 //@桃小沫w:转发微博<br><br>RE: 第五次被删了，新浪还屏蔽了话题。好吧，再发一次，这次我不带话题。我就不信这个邪。<br><img src="http://ww2.sinaimg.cn/large/5ef2cb9djw1f2zgvmcku9j20qo1beqcz.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
