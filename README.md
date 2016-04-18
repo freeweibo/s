@@ -23,7 +23,7 @@
 </h2>
 <p>SPAM 今天最后一天了。 //@纽约购物达人: 这个还有，并且满65刀还送面霜。</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3965369062169696" target="freeweibo-mirror">//@高会民: [围观]不佩戴党徽者应该做自动退D处理。</a>
 </h2>
