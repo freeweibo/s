@@ -137,7 +137,7 @@
 </h2>
 <p>服[衰]//@laenix_:服了。//@挖希挖希:这尼玛哪个傻逼想出来的，脑子里头有屎吧//@黑长直赛高:辣鸡乐视//@南城_老赵: 对于这种营销手段，感觉真的挺傻逼的<br><br>RE: 不愧（     ） @贾老先森<br><img src="http://ww2.sinaimg.cn/large/64c18196jw1f2zi9u50t7j21be0qogs7.jpg"></p>
 <p>
-	<small> ============== 1天前</small>
+	<small> ============== 2天前</small>
 </p>
 <table>
     <tr>
