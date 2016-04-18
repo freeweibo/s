@@ -19,6 +19,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3965574679515044" target="freeweibo-mirror">/@虞白水04: 基督教教堂，道观什么的说拆就拆，清真寺是说…</a>
+</h2>
+<p>/@虞白水04: 基督教教堂，道观什么的说拆就拆，清真寺是说盖就盖，会闹的孩子有奶吃。看中国基督徒的表现，就知道为啥伊斯兰教会搅乱欧洲大陆了。//@郭少坤: 天堂里没有强拆。//@飞过天空的树袋熊: 主看圣民的死，极为宝贵。//@郭少坤:愿全能的主恩待他们！ //@马上的仟毛:<br><br>RE: 河南新蔡一基督徒护教堂 遭强拆人员活埋惨死<br><img src="http://ww4.sinaimg.cn/large/b5f1ace9gw1f30gp6452ij20c81mcn4z.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3965569058887626" target="freeweibo-mirror">原博主最后那句～准确到位啊[嘻嘻]//@西山书客谭旭东:还有…</a>
 </h2>
 <p>原博主最后那句～准确到位啊[嘻嘻]//@西山书客谭旭东:还有人看央视。[偷笑] //@陶然万柳世界://@壹本正经2010://@漫游者粒子:转发微博<br><br>RE: 央视总是用一副批判的，甚至有点幸灾乐祸的口气报道国外事件。报道日本地震也是如此。日本面对地震有非常完善的应急机制，没有一所学校倒塌，没有发生一起哄抬物价。对此，央视不报道，却硬要说什么民众对未来不知所措之类的言辞。这样的央视，也只配给高官送二奶和小鲜肉。（转<br><img src="http://ww3.sinaimg.cn/large/9d0b866djw1f3024ppoi6j20j60audif.jpg"></p>
@@ -47,7 +53,7 @@
 </h2>
 <p>SPAM 和隔壁少妇在她家嘿咻的时候，她老公回来当场撞见了……<br><img src="http://ww1.sinaimg.cn/large/a8196607jw1f30l6sf6yfj20c69bfkjo.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3965501783161119" target="freeweibo-mirror">河南新蔡一基督徒护教堂 遭强拆人员活埋惨死</a>
 </h2>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3965198907964141" target="freeweibo-mirror">试试看这次还删么。</a>
 </h2>
 <p>试试看这次还删么。<br><br>RE: 第五次被删了，新浪还屏蔽了话题。好吧，再发一次，这次我不带话题。我就不信这个邪。<br><img src="http://ww2.sinaimg.cn/large/5ef2cb9djw1f2zgvmcku9j20qo1beqcz.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3965191526224626" target="freeweibo-mirror">[赞][赞]</a>
-</h2>
-<p>[赞][赞]</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
