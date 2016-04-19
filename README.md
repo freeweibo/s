@@ -119,7 +119,7 @@
 </h2>
 <p>就是比香港强啊！<br><br>RE: http://t.cn/RqKK7RK 写这条消息的人是高级黑。<br><img src="http://ww4.sinaimg.cn/large/61fcc2a9jw1f320zjomynj20ku112gro.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3965992662812222" target="freeweibo-mirror">习惯了。[晕]</a>
 </h2>
