@@ -77,7 +77,7 @@
 </h2>
 <p>这位新浪博友昨天发了这个，刚才被温州苍南公安带走。  (转) http://t.cn/RqKfAkA [话筒][话筒][话筒]<br><img src="http://ww4.sinaimg.cn/large/006oZDoxgw1f31tz51dtzj30910djq3c.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3965922961854011" target="freeweibo-mirror">SPAM 还有大陆公知粉也信[哈哈]智商低到难以想象//@斯…</a>
 </h2>
@@ -89,7 +89,7 @@
 </h2>
 <p>SPAM 在HK，这就是图书市场，洗脑的书籍很多，都上“头条”，就是在这种环境下孕育出一批一批港灿<br><img src="http://ww2.sinaimg.cn/large/c37c67cbjw1f31qljlphpj20qo1be7h0.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3965897792087026" target="freeweibo-mirror">@梦晨伤:告诉你们一个好消息，国家允许你们生二胎了。</a>
 </h2>
@@ -115,6 +115,12 @@
 <p>
 	<small> ============== 1天前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3965721967291459" target="freeweibo-mirror">【张越落马 周永康案“余案”还会震多久？】除了近日落马的张越…</a>
+</h2>
+<p>【张越落马 周永康案“余案”还会震多久？】除了近日落马的张越，至少有杨卫泽、周本顺、苏树林、徐建一、白恩培、丁雪峰、李华林、冉新权、王道富等与周永康有着各种关系的人尚未被审结。http://t.cn/Rqo19Ec<br><img src="http://ww3.sinaimg.cn/large/6b2e7e57jw1f315zkq3hcj20b406udgh.jpg"></p>
+<p>
+	<small> ============== 1天前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3965699301461969" target="freeweibo-mirror">SPAM #青云山上高科技# 看到@诛仙手游官博 就想起了碧…</a>
 </h2>
 <p>SPAM #青云山上高科技# 看到@诛仙手游官博 就想起了碧瑶，心疼她！  //@诛仙手游官博:#青云山上的高科技#4月21日前，关注@诛仙手游官博，转发本条微博并@三位好友，即有机会抽取苹果iPad mini 4~~~现在起，在官网zx.wanmei.com预约即有可能获得首测资格。</p>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3965666102850052" target="freeweibo-mirror">SPAM 稻香村的孩子们[泪]都命苦！</a>
 </h2>
 <p>SPAM 稻香村的孩子们[泪]都命苦！</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3965636982476396" target="freeweibo-mirror">公元2016年的4月18日上午8时，在中华人民共和国首都北京…</a>
-</h2>
-<p>公元2016年的4月18日上午8时，在中华人民共和国首都北京，座落在知春路的国家卫生和计划生育委员会大楼前，来自全国各地的失独父母们，为了老有所养、病有所医，步履维艰、相互搀扶，头戴小白帽，以省为单位井然有序的排列在路边，声势浩大的418维权正式拉开序幕。维权正在进行中……<br><img src="http://ww4.sinaimg.cn/large/939fa7adgw1f30vmhsk2wj20np0hstah.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
