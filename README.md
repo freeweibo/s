@@ -29,13 +29,25 @@
 </h2>
 <p>//@凶猛的大青蛙://@贪官多11世:[怒] //@chen迁迁15:[怒]越是不能提就是越有鬼！<br><br>RE: 这位新浪博友昨天发了这个，刚才被温州苍南公安带走。  (转) http://t.cn/RqKfAkA [话筒][话筒][话筒]<br><img src="http://ww4.sinaimg.cn/large/006oZDoxgw1f31tz51dtzj30910djq3c.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3965949918748468" target="freeweibo-mirror">【紧急关注，请帮忙扩散！】  @密密麻麻578 的 丈夫陈德…</a>
+</h2>
+<p>【紧急关注，请帮忙扩散！】  @密密麻麻578 的 丈夫陈德铮（微博名：@卡卡卡卡卡卡卡01)因发了这张图片，现被温州苍南县龙港公安分局带走。恳请各位声援支持！ 龙港公安分局电话：057764202151[话筒][话筒][话筒]<br><img src="http://ww4.sinaimg.cn/large/006p24Fagw1f31w5hplc7j30910djq3c.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3965949646416948" target="freeweibo-mirror">[心]//@蛇精病学姐:转发微博</a>
 </h2>
 <p>[心]//@蛇精病学姐:转发微博</p>
 <p>
 	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3965931191066199" target="freeweibo-mirror">这位新浪博友昨天发了这个，刚才被温州苍南公安带走。  (转)…</a>
+</h2>
+<p>这位新浪博友昨天发了这个，刚才被温州苍南公安带走。  (转) http://t.cn/RqKfAkA [话筒][话筒][话筒]<br><img src="http://ww4.sinaimg.cn/large/006oZDoxgw1f31tz51dtzj30910djq3c.jpg"></p>
+<p>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3965922961854011" target="freeweibo-mirror">SPAM 还有大陆公知粉也信[哈哈]智商低到难以想象//@斯…</a>
 </h2>
@@ -124,18 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3965569058887626" target="freeweibo-mirror">原博主最后那句～准确到位啊[嘻嘻]//@西山书客谭旭东:还有…</a>
 </h2>
 <p>原博主最后那句～准确到位啊[嘻嘻]//@西山书客谭旭东:还有人看央视。[偷笑] //@陶然万柳世界://@壹本正经2010://@漫游者粒子:转发微博<br><br>RE: 央视总是用一副批判的，甚至有点幸灾乐祸的口气报道国外事件。报道日本地震也是如此。日本面对地震有非常完善的应急机制，没有一所学校倒塌，没有发生一起哄抬物价。对此，央视不报道，却硬要说什么民众对未来不知所措之类的言辞。这样的央视，也只配给高官送二奶和小鲜肉。（转<br><img src="http://ww3.sinaimg.cn/large/9d0b866djw1f3024ppoi6j20j60audif.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3965567637902358" target="freeweibo-mirror">SPAM 这支不到5分钟的广告，戳中了几百万人的心 ！[悲伤…</a>
-</h2>
-<p>SPAM 这支不到5分钟的广告，戳中了几百万人的心 ！[悲伤][心]  #心灵阅者# http://t.cn/RqoUPJ6</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3965563833207454" target="freeweibo-mirror">SPAM 哈哈哈哈买了暗中观察</a>
-</h2>
-<p>SPAM 哈哈哈哈买了暗中观察</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
