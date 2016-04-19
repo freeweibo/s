@@ -29,7 +29,13 @@
 </h2>
 <p>习惯了。[晕]<br><br>RE: http://t.cn/RqKK7RK 写这条消息的人是高级黑。<br><img src="http://ww4.sinaimg.cn/large/61fcc2a9jw1f320zjomynj20ku112gro.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3965991883348209" target="freeweibo-mirror">http://t.cn/RqKK7RK 写这条消息的人是高级…</a>
+</h2>
+<p>http://t.cn/RqKK7RK 写这条消息的人是高级黑。<br><img src="http://ww4.sinaimg.cn/large/61fcc2a9jw1f320zjomynj20ku112gro.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3965974300702149" target="freeweibo-mirror">SPAM //@老刀99:[doge]主动靠前、周密部署、礼…</a>
 </h2>
@@ -89,7 +95,7 @@
 </h2>
 <p>这位新浪博友昨天发了这个，刚才被温州苍南公安带走。  (转) http://t.cn/RqKfAkA [话筒][话筒][话筒]<br><img src="http://ww4.sinaimg.cn/large/006oZDoxgw1f31tz51dtzj30910djq3c.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3965922961854011" target="freeweibo-mirror">SPAM 还有大陆公知粉也信[哈哈]智商低到难以想象//@斯…</a>
 </h2>
@@ -101,7 +107,7 @@
 </h2>
 <p>SPAM 在HK，这就是图书市场，洗脑的书籍很多，都上“头条”，就是在这种环境下孕育出一批一批港灿<br><img src="http://ww2.sinaimg.cn/large/c37c67cbjw1f31qljlphpj20qo1be7h0.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3965897792087026" target="freeweibo-mirror">@梦晨伤:告诉你们一个好消息，国家允许你们生二胎了。</a>
 </h2>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3965721967291459" target="freeweibo-mirror">【张越落马 周永康案“余案”还会震多久？】除了近日落马的张越…</a>
 </h2>
 <p>【张越落马 周永康案“余案”还会震多久？】除了近日落马的张越，至少有杨卫泽、周本顺、苏树林、徐建一、白恩培、丁雪峰、李华林、冉新权、王道富等与周永康有着各种关系的人尚未被审结。http://t.cn/Rqo19Ec<br><img src="http://ww3.sinaimg.cn/large/6b2e7e57jw1f315zkq3hcj20b406udgh.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3965699301461969" target="freeweibo-mirror">SPAM #青云山上高科技# 看到@诛仙手游官博 就想起了碧…</a>
-</h2>
-<p>SPAM #青云山上高科技# 看到@诛仙手游官博 就想起了碧瑶，心疼她！  //@诛仙手游官博:#青云山上的高科技#4月21日前，关注@诛仙手游官博，转发本条微博并@三位好友，即有机会抽取苹果iPad mini 4~~~现在起，在官网zx.wanmei.com预约即有可能获得首测资格。</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
