@@ -19,6 +19,18 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3965922961854011" target="freeweibo-mirror">SPAM 还有大陆公知粉也信[哈哈]智商低到难以想象//@斯…</a>
+</h2>
+<p>SPAM 还有大陆公知粉也信[哈哈]智商低到难以想象//@斯图卡98: 近期轮子在FB上宣传人体解剖，大部分湾湾深信不疑//@happybrucee: 哈哈，网络上更夸张，台湾人非常信轮子，一个石涛顶上一百个中宣部啊//@斯图卡98:为了体现所谓“言论自由”，实为造谣自由~台湾也如此，针对大陆的地摊文学野史非常疯狂。</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3965901428486857" target="freeweibo-mirror">SPAM 在HK，这就是图书市场，洗脑的书籍很多，都上“头条…</a>
+</h2>
+<p>SPAM 在HK，这就是图书市场，洗脑的书籍很多，都上“头条”，就是在这种环境下孕育出一批一批港灿<br><img src="http://ww2.sinaimg.cn/large/c37c67cbjw1f31qljlphpj20qo1be7h0.jpg"></p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3965897792087026" target="freeweibo-mirror">@梦晨伤:告诉你们一个好消息，国家允许你们生二胎了。</a>
 </h2>
 <p>@梦晨伤:告诉你们一个好消息，国家允许你们生二胎了。</p>
@@ -126,18 +138,6 @@
 <p>河南新蔡一基督徒护教堂 遭强拆人员活埋惨死<br><img src="http://ww4.sinaimg.cn/large/b5f1ace9gw1f30gp6452ij20c81mcn4z.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3965375144407764" target="freeweibo-mirror">央视总是用一副批判的，甚至有点幸灾乐祸的口气报道国外事件。报…</a>
-</h2>
-<p>央视总是用一副批判的，甚至有点幸灾乐祸的口气报道国外事件。报道日本地震也是如此。日本面对地震有非常完善的应急机制，没有一所学校倒塌，没有发生一起哄抬物价。对此，央视不报道，却硬要说什么民众对未来不知所措之类的言辞。这样的央视，也只配给高官送二奶和小鲜肉。（转<br><img src="http://ww3.sinaimg.cn/large/9d0b866djw1f3024ppoi6j20j60audif.jpg"></p>
-<p>
-	<small> ============== 2天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3965369062169696" target="freeweibo-mirror">//@高会民: [围观]不佩戴党徽者应该做自动退D处理。</a>
-</h2>
-<p>//@高会民: [围观]不佩戴党徽者应该做自动退D处理。<br><br>RE: 转发网友建议:让8700万共产党员戴党徽！上班时间要佩戴，下班之后也应该佩戴。忘记佩戴一次扣2分，故意遮挡党徽扣6分，故意损坏党徽一次性扣完 12。扣完之后重新到党校学习，并重写入党申请书。对于拒不配合者，应该剥夺他们成为共产党员的荣誉感，以叛党论处。不愿意戴党徽就说明他不认可党员身份！<br><img src="http://ww4.sinaimg.cn/large/58500250jw1f2y7pgh5kxj2064064glg.jpg"></p>
-<p>
-	<small> ============== 2天前</small>
 </p>
 <table>
     <tr>
