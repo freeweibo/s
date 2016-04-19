@@ -91,6 +91,12 @@
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3966056525817018" target="freeweibo-mirror">回复@网优蜀黍:中国互联网硬件设施发展得不错，差距在内容软实…</a>
+</h2>
+<p>回复@网优蜀黍:中国互联网硬件设施发展得不错，差距在内容软实力上。如果把舆论场当作民意表达渠道，社会情绪的发泄减压阀，就不要想着还要求风清气朗。</p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3966035990931468" target="freeweibo-mirror">要想多少挽回些民心，改变三年来网络管制上的错误作为，至少要做…</a>
 </h2>
 <p>要想多少挽回些民心，改变三年来网络管制上的错误作为，至少要做三件事：1）改组网管班子，撤换主要责任人；2）开放主要网络服务，例如谷歌和脸谱；3）解禁一大批被封微博帐号，取消近年胡搞的那些删贴和禁止传播的劣质工具与机制。不过，这将伤害一大批既得利益者，估计做不到。</p>
@@ -107,7 +113,7 @@
 </h2>
 <p>SPAM 我说了句草泥马，我妈上来就给我一嘴巴</p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3965994592688144" target="freeweibo-mirror">就是比香港强啊！</a>
 </h2>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3965976515081895" target="freeweibo-mirror">SPAM 转一个</a>
 </h2>
 <p>SPAM 转一个<br><br>RE: #花呗提现#未来局面还将如何发展？故事无人知晓。HRBxjMewTLhuRAabTDTq人人心底都有一段秘而不宣的传奇……没几个人有关联。不抱有一丝幻想，不放弃一点机会，@信用卡套现北路店<br><img src="http://ww1.sinaimg.cn/large/005vwa9sjw1f3150ogl5nj30k00zkdjd.jpg"></p>
-<p>
-	<small> ============== 9小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3965974300702149" target="freeweibo-mirror">SPAM //@老刀99:[doge]主动靠前、周密部署、礼…</a>
-</h2>
-<p>SPAM //@老刀99:[doge]主动靠前、周密部署、礼遇服务.......啧啧啧</p>
 <p>
 	<small> ============== 9小时前</small>
 </p>
