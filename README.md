@@ -19,6 +19,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3966103048884403" target="freeweibo-mirror">[汗] //@汉大赋2013:[阴险]国务院忙着抢劫，党中央…</a>
+</h2>
+<p>[汗] //@汉大赋2013:[阴险]国务院忙着抢劫，党中央忽悠大家做梦！ //@寒竹逸香: //@司马平邦:转发微博<br><br>RE: 习近平总书记昨天强调：“改革既要往有利于增添发展新动力方向前进，也要往有利于维护社会公平正义方向前进。”这是对年初人民日报上某“权威人士”的片面、极端言论的纠正。“权威人士”叫嚣着要让中国人民承受“阵痛”、“下岗失业”、“收入下降”。“权威人士”鼓吹的那一套，既不公平，也无效率，...全文： http://m.weibo.cn/1250748474/3966056580402569</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3966093078596638" target="freeweibo-mirror">今天晚上，很多被销号的博主产生了恢复账号的美好愿望，但这注定…</a>
 </h2>
 <p>今天晚上，很多被销号的博主产生了恢复账号的美好愿望，但这注定是一厢情愿的幻想，明天早晨太阳升起，一切照旧。<br><img src="http://ww4.sinaimg.cn/large/006pGX6ejw1f32cbfklycj30m80c73zh.jpg"></p>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3965994592688144" target="freeweibo-mirror">就是比香港强啊！</a>
 </h2>
 <p>就是比香港强啊！<br><br>RE: http://t.cn/RqKK7RK 写这条消息的人是高级黑。<br><img src="http://ww4.sinaimg.cn/large/61fcc2a9jw1f320zjomynj20ku112gro.jpg"></p>
-<p>
-	<small> ============== 9小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3965992662812222" target="freeweibo-mirror">习惯了。[晕]</a>
-</h2>
-<p>习惯了。[晕]<br><br>RE: http://t.cn/RqKK7RK 写这条消息的人是高级黑。<br><img src="http://ww4.sinaimg.cn/large/61fcc2a9jw1f320zjomynj20ku112gro.jpg"></p>
 <p>
 	<small> ============== 9小时前</small>
 </p>
