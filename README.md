@@ -35,7 +35,7 @@
 </h2>
 <p>今天晚上，很多被销号的博主产生了恢复账号的美好愿望，但这注定是一厢情愿的幻想，明天早晨太阳升起，一切照旧。<br><img src="http://ww4.sinaimg.cn/large/006pGX6ejw1f32cbfklycj30m80c73zh.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3966091912601076" target="freeweibo-mirror">//@雨露知音0: 错误的估计群众的认识能力？错误的估计群众…</a>
 </h2>
