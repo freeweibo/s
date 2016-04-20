@@ -19,6 +19,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3966268397016035" target="freeweibo-mirror">SPAM Saks太阳镜区的Grey Ant潮牌可以七五折加…</a>
+</h2>
+<p>SPAM Saks太阳镜区的Grey Ant潮牌可以七五折加九折的，原价$345折后$258.75，再叠加9折码【SAKSAPR】是$233，相当于6.7折。他家太阳镜造型独特另类，深受潮人时尚博主的喜爱。http://t.cn/RqKekyA  关于这次活动的说明http://t.cn/RqKJBj3  有博友说额外九折码今晚就结束了。<br><img src="http://ww4.sinaimg.cn/large/6c0e6e30gw1f32wpzp988j20by0b6jt4.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3966259379243500" target="freeweibo-mirror">SPAM 阿弥陀佛，善哉善哉</a>
 </h2>
 <p>SPAM 阿弥陀佛，善哉善哉</p>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3966064839171330" target="freeweibo-mirror">//@纪芸2016://@清华孙立平:会这样？不会吧</a>
 </h2>
 <p>//@纪芸2016://@清华孙立平:会这样？不会吧</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3966056580402569" target="freeweibo-mirror">习近平总书记昨天强调：“改革既要往有利于增添发展新动力方向前…</a>
-</h2>
-<p>习近平总书记昨天强调：“改革既要往有利于增添发展新动力方向前进，也要往有利于维护社会公平正义方向前进。”这是对年初人民日报上某“权威人士”的片面、极端言论的纠正。“权威人士”叫嚣着要让中国人民承受“阵痛”、“下岗失业”、“收入下降”。“权威人士”鼓吹的那一套，既不公平，也无效率，...全文： http://m.weibo.cn/1250748474/3966056580402569</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
