@@ -29,7 +29,7 @@
 </h2>
 <p>SPAM 看得我真是热血沸腾。。。。太过瘾了 @知乎八姐</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3966333379247507" target="freeweibo-mirror">呵呵，我从来不听其言而是观其行。血淋淋的现实已经给了我结论。…</a>
 </h2>
@@ -53,7 +53,7 @@
 </h2>
 <p>SPAM 喜欢的速存。<br><img src="http://ww4.sinaimg.cn/large/62b7e287gw1f330yfbccuj20dj0i23z8.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3966300432509239" target="freeweibo-mirror">贾榀: 被关了36小时,整整两个晚上不让睡觉，坐老虎凳十几个…</a>
 </h2>
