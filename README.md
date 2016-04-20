@@ -41,7 +41,7 @@
 </h2>
 <p>SPAM 为什么这么人，私信给小杭 想要看我长什么样呢？ 其实小杭不敢发自拍，怕掉粉。[笑cry]</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3966103048884403" target="freeweibo-mirror">[汗] //@汉大赋2013:[阴险]国务院忙着抢劫，党中央…</a>
 </h2>
