@@ -89,7 +89,7 @@
 </h2>
 <p>SPAM Saks太阳镜区的Grey Ant潮牌可以七五折加九折的，原价$345折后$258.75，再叠加9折码【SAKSAPR】是$233，相当于6.7折。他家太阳镜造型独特另类，深受潮人时尚博主的喜爱。http://t.cn/RqKekyA  关于这次活动的说明http://t.cn/RqKJBj3  有博友说额外九折码今晚就结束了。<br><img src="http://ww4.sinaimg.cn/large/6c0e6e30gw1f32wpzp988j20by0b6jt4.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3966259379243500" target="freeweibo-mirror">SPAM 阿弥陀佛，善哉善哉</a>
 </h2>
