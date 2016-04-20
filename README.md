@@ -77,7 +77,7 @@
 </h2>
 <p>SPAM 阿弥陀佛，善哉善哉</p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3966251724307389" target="freeweibo-mirror">SPAM 说了几句让你们听着耳顺的话，一些同学就欢呼雀跃起来…</a>
 </h2>
