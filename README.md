@@ -65,7 +65,7 @@
 </h2>
 <p>SPAM 喜欢的速存。<br><img src="http://ww4.sinaimg.cn/large/62b7e287gw1f330yfbccuj20dj0i23z8.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3966300432509239" target="freeweibo-mirror">贾榀: 被关了36小时,整整两个晚上不让睡觉，坐老虎凳十几个…</a>
 </h2>
