@@ -29,7 +29,7 @@
 </h2>
 <p>SPAM 智能新技术颠覆着人们的想象，黑科技带来的风暴，改变着你我的生活！未来，时光机器能够成为现实吧~</p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3966625528502518" target="freeweibo-mirror">听你们善意的批评，意思应该就是又要鼓励你们大鸣大放了吧？[阴…</a>
 </h2>
@@ -113,7 +113,7 @@
 </h2>
 <p>SPAM 阿弥陀佛，善哉善哉</p>
 <p>
-	<small> ============== 1天前</small>
+	<small> ============== 2天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3966251724307389" target="freeweibo-mirror">SPAM 说了几句让你们听着耳顺的话，一些同学就欢呼雀跃起来…</a>
 </h2>
