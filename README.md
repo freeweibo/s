@@ -89,7 +89,7 @@
 </h2>
 <p>SPAM 亦可突漾~//@汚彦祖: ？？？？//@一颗白兔糖呀: naive   http://t.cn/RqC5Zob   //@花样作死:总想搞个大新闻[喵喵] //@蛋里孵出神枪手:excuse？？？me？？？ //@中国左家垅皇家男子技院学员:？？//@后妈桑: ？？</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3966686102925703" target="freeweibo-mirror">我的观点是，作为执政者，在对待批评者问题上应该有法律意识和权…</a>
 </h2>
