@@ -23,7 +23,7 @@
 </h2>
 <p>SPAM 亦可突漾~//@汚彦祖: ？？？？//@一颗白兔糖呀: naive   http://t.cn/RqC5Zob   //@花样作死:总想搞个大新闻[喵喵] //@蛋里孵出神枪手:excuse？？？me？？？ //@中国左家垅皇家男子技院学员:？？//@后妈桑: ？？</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3966643862108857" target="freeweibo-mirror">SPAM 智能新技术颠覆着人们的想象，黑科技带来的风暴，改变…</a>
 </h2>
@@ -35,7 +35,7 @@
 </h2>
 <p>听你们善意的批评，意思应该就是又要鼓励你们大鸣大放了吧？[阴险]</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3966408964772504" target="freeweibo-mirror">//@路灯悬挂委: //@Nuclea-rWinter://…</a>
 </h2>
