@@ -29,7 +29,7 @@
 </h2>
 <p>听你们善意的批评，意思应该就是又要鼓励你们大鸣大放了吧？[阴险]</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3966408964772504" target="freeweibo-mirror">//@路灯悬挂委: //@Nuclea-rWinter://…</a>
 </h2>
