@@ -35,7 +35,13 @@
 </h2>
 <p>SPAM 【团中央直属高校中国青年政治学院将停办本科 】4月21日下午，一篇《有感于中青院将停办本科》的文章在网络流传，文章的作者系中国青年政治学院（以下称“中青院）教师杨支柱。杨支柱在文中透露：中国青年政治学院本科停办，将回归1985年以前中央团校的状态。<br><img src="http://ww1.sinaimg.cn/large/627cf045gw1f34ofkmgxoj20qo1bewoi.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3966817225466762" target="freeweibo-mirror">#反对在嘉兴海盐建造垃圾焚烧发电厂# 看到我们的西塘桥人民被…</a>
+</h2>
+<p>#反对在嘉兴海盐建造垃圾焚烧发电厂# 看到我们的西塘桥人民被打成这样，真的是一瞬间心都凉完了，政府真的是另一个披着羊皮的黑社会，真的很想问为什么要这样殴打老百姓？我们为了自己的家园不受污染提出抗议就有错吗？沈晓红为了自己能做出点政绩就不顾我们的死活，良心被狗吃了吧！看到很多年老的人...全文： http://m.weibo.cn/3119620237/3966817225466762<br><img src="http://ww1.sinaimg.cn/large/b9f1a08dgw1f34nrn1rcrj20qo0zkdk9.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3966809546006779" target="freeweibo-mirror">SPAM @微博云南 @云南网</a>
 </h2>
@@ -71,7 +77,7 @@
 </h2>
 <p>我的观点是，作为执政者，在对待批评者问题上应该有法律意识和权利观念。要充分认识到，批评公权是公民的权利。执政者应该包容一切批评意见，无论是善意的还是恶意的，只要不是造谣诽谤等违法犯罪行为。 http://t.cn/RqCycDd</p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3966665387719875" target="freeweibo-mirror">有个问题不敢问：当年彭德怀元帅庐山会议上发言写信是善意的批评…</a>
 </h2>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3966307978704873" target="freeweibo-mirror">//@浅游幸福: //@刘二狗蛋: //@寒未生18:操</a>
 </h2>
 <p>//@浅游幸福: //@刘二狗蛋: //@寒未生18:操<br><br>RE: 贾榀: 被关了36小时,整整两个晚上不让睡觉，坐老虎凳十几个小时,差点被群殴。朱承志大哥被抓时左手大拇指骨折,目前还在审讯室。朱承志大哥已六十多岁，被迫坐老虎凳三十小时。赤壁负责该案的是临时拼凑的交警，巡警，国保大队等各部门人员，素质极差毫无法律意识。刘本琦还没出来,龚新华也没有出来。</p>
-<p>
-	<small> ============== 2天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3966305138967371" target="freeweibo-mirror">SPAM 喜欢的速存。</a>
-</h2>
-<p>SPAM 喜欢的速存。<br><img src="http://ww4.sinaimg.cn/large/62b7e287gw1f330yfbccuj20dj0i23z8.jpg"></p>
 <p>
 	<small> ============== 2天前</small>
 </p>
