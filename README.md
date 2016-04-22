@@ -61,11 +61,17 @@
 <p>
 	<small> ============== 9小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3967070045857904" target="freeweibo-mirror">芮成钢……[吃惊]</a>
+</h2>
+<p>芮成钢……[吃惊]<br><img src="http://ww3.sinaimg.cn/large/842693b2gw1f35gt3tx1dj20iv0b4ab1.jpg"></p>
+<p>
+	<small> ============== 10小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3967063729259602" target="freeweibo-mirror">//@斯图卡98: //@司马南: 资本是什么？有人以为是钱…</a>
 </h2>
 <p>//@斯图卡98: //@司马南: 资本是什么？有人以为是钱，不对。 马克思厚厚的《资本论》哪里是在说钱，而是在说人和人之间的关系以及这种关系所体现的不德制度。在中国，在今天，资本意志为所欲为，地产豪强美元买办形成寡头，正在渗入政治操控话语形成黑色引力波损我道统。 不去寡头，大难临头。</p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3967023236795187" target="freeweibo-mirror">《纽约时报》报道，中国国家新闻出版广电总局上周要求苹果关闭中…</a>
 </h2>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3966839942539600" target="freeweibo-mirror">【联合国新闻自由奖中国唯一得主 】2003年，大学生孙志刚因…</a>
 </h2>
 <p>【联合国新闻自由奖中国唯一得主 】2003年，大学生孙志刚因无暂住证被收容，3天后被殴打致死。南都让该事件大白于天下，罪恶的收容遣送制度因此废止。在全国人民不用再担心被查暂住证的某个凌晨，大批警察破门而入，逮捕了南方都市报总编辑，就是这个不听话的人决定报道真相，他叫程益中。@剑走偏锋<br><img src="http://ww2.sinaimg.cn/large/006nS10Vgw1f34qdvgeu3j30cs07jwf4.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3966835790072153" target="freeweibo-mirror">SPAM 支持。</a>
-</h2>
-<p>SPAM 支持。</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
