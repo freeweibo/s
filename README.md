@@ -59,7 +59,7 @@
 </h2>
 <p>//@李开复://@来去之间: 我了个去……</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3967095279049787" target="freeweibo-mirror">//@易天:1954年4月19日，中华人民共和国国务院总理周…</a>
 </h2>
