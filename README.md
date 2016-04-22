@@ -23,13 +23,19 @@
 </h2>
 <p>//@网忆天涯://@山高路远N: //@何怪哉://@荒堂省三://@自由的章鱼哥12://@被淹死的鲔鱼:[哼]//@伊春环宇:在政治上一贯正确的朝鲜金氏祖孙三代，一共获得了一千二百多个头衔。与之相比，我们还任重而道远<br><br>RE: 我们伟大的政治家、军事家、外交家党的总书记，国家主席，军委主席，国安委主席、中央深改组组长、军委深化国防和军队改革领导小组组长、网络安全和信息化小组组长、外事国家安全工作领导小组组长、对台工作领导小组组长，财经领导小组组长习近平同志近日又担任了军委联指总指挥，老大加油[拍照][哈哈]<br><img src="http://ww4.sinaimg.cn/large/006oF1Fjgw1f34k2sl6roj30jg0ay3zl.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3966989225829260" target="freeweibo-mirror">免费时代还没到来。 //@义勇军想飞的梦想://@欢乐多超大…</a>
 </h2>
 <p>免费时代还没到来。 //@义勇军想飞的梦想://@欢乐多超大:拨打110.120.122.119是免费，民警又没说车子免费[不好意思]没问题[不好意思]//@40cal:不是江苏省委宣传部的吗?那咱就帮这个人宣传宣传呗?!你妹的! @jia_sir @alan_sir @超大胖羽 @屌研员Seven @恶童里的小白- @软绵绵的王小胖 @-正气丹心-<br><br>RE: 但凡手中有点权力，有点关系，都妄图通过这些手段来现实自己比他人要高上一等。其实，就是下作。@QBQ的无悔 @屌研员Seven @飞sir是你姐夫 @40cal @FYJS_从不走丢police二哈<br><img src="http://ww3.sinaimg.cn/large/5be68b5egw1f3569kjmw2j20qo0zkti3.jpg"></p>
 <p>
 	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3966978722915933" target="freeweibo-mirror">但凡手中有点权力，有点关系，都妄图通过这些手段来现实自己比他…</a>
+</h2>
+<p>但凡手中有点权力，有点关系，都妄图通过这些手段来现实自己比他人要高上一等。其实，就是下作。@QBQ的无悔 @屌研员Seven @飞sir是你姐夫 @40cal @FYJS_从不走丢police二哈<br><img src="http://ww3.sinaimg.cn/large/5be68b5egw1f3569kjmw2j20qo0zkti3.jpg"></p>
+<p>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3966843498383319" target="freeweibo-mirror">//@愚夫愚言://@后羿之颠VV: //@---京华烟云:…</a>
 </h2>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3966643862108857" target="freeweibo-mirror">SPAM 智能新技术颠覆着人们的想象，黑科技带来的风暴，改变…</a>
 </h2>
 <p>SPAM 智能新技术颠覆着人们的想象，黑科技带来的风暴，改变着你我的生活！未来，时光机器能够成为现实吧~</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3966625528502518" target="freeweibo-mirror">听你们善意的批评，意思应该就是又要鼓励你们大鸣大放了吧？[阴…</a>
-</h2>
-<p>听你们善意的批评，意思应该就是又要鼓励你们大鸣大放了吧？[阴险]</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
