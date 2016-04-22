@@ -77,7 +77,7 @@
 </h2>
 <p>但凡手中有点权力，有点关系，都妄图通过这些手段来现实自己比他人要高上一等。其实，就是下作。@QBQ的无悔 @屌研员Seven @飞sir是你姐夫 @40cal @FYJS_从不走丢police二哈<br><img src="http://ww3.sinaimg.cn/large/5be68b5egw1f3569kjmw2j20qo0zkti3.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3966973295372332" target="freeweibo-mirror">【由两件事看资本掌控权力的恐怖】  ❶据媒体报道［http:…</a>
 </h2>
