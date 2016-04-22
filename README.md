@@ -19,6 +19,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3967063729259602" target="freeweibo-mirror">//@斯图卡98: //@司马南: 资本是什么？有人以为是钱…</a>
+</h2>
+<p>//@斯图卡98: //@司马南: 资本是什么？有人以为是钱，不对。 马克思厚厚的《资本论》哪里是在说钱，而是在说人和人之间的关系以及这种关系所体现的不德制度。在中国，在今天，资本意志为所欲为，地产豪强美元买办形成寡头，正在渗入政治操控话语形成黑色引力波损我道统。 不去寡头，大难临头。</p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3967017273408013" target="freeweibo-mirror">SPAM 好吧， MF也来插一脚，全站10% off 输入M…</a>
 </h2>
 <p>SPAM 好吧， MF也来插一脚，全站10% off 输入MF10, 美帝fs code: USAFREE, 可叠加。戳http://t.cn/RUd20oe  你们慢慢纠结吧～<br><img src="http://ww3.sinaimg.cn/large/6c0e6e30gw1f35aq7nihaj208e086mxh.jpg"></p>
@@ -42,6 +48,12 @@
 <p>但凡手中有点权力，有点关系，都妄图通过这些手段来现实自己比他人要高上一等。其实，就是下作。@QBQ的无悔 @屌研员Seven @飞sir是你姐夫 @40cal @FYJS_从不走丢police二哈<br><img src="http://ww3.sinaimg.cn/large/5be68b5egw1f3569kjmw2j20qo0zkti3.jpg"></p>
 <p>
 	<small> ============== 8小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3966973295372332" target="freeweibo-mirror">【由两件事看资本掌控权力的恐怖】  ❶据媒体报道［http:…</a>
+</h2>
+<p>【由两件事看资本掌控权力的恐怖】  ❶据媒体报道［http://t.cn/RqC3H6f ］，商人郭文贵竟能指挥副部级官员张越两小时内驱车赶来盘古大厦，甚至操纵张越调动警察抓捕商业纠纷对手曲龙。  ❷据媒体报道［http://t.cn/RqCHaKm ］，“梳理一下，这次拍卖是由阿里拍卖主导，阿里全资子公司优酷土豆直播，阿...全文： http://m.weibo.cn/1665808371/3966973295372332<br><img src="http://ww3.sinaimg.cn/large/634a37f3gw1f355hcosi6j20zy0qogtg.jpg"></p>
+<p>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3966843498383319" target="freeweibo-mirror">//@愚夫愚言://@后羿之颠VV: //@---京华烟云:…</a>
 </h2>
@@ -124,18 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3966686102925703" target="freeweibo-mirror">我的观点是，作为执政者，在对待批评者问题上应该有法律意识和权…</a>
 </h2>
 <p>我的观点是，作为执政者，在对待批评者问题上应该有法律意识和权利观念。要充分认识到，批评公权是公民的权利。执政者应该包容一切批评意见，无论是善意的还是恶意的，只要不是造谣诽谤等违法犯罪行为。 http://t.cn/RqCycDd</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3966665387719875" target="freeweibo-mirror">有个问题不敢问：当年彭德怀元帅庐山会议上发言写信是善意的批评…</a>
-</h2>
-<p>有个问题不敢问：当年彭德怀元帅庐山会议上发言写信是善意的批评呢还是恶意的批评呢？？？</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3966664716471214" target="freeweibo-mirror">【新闻自由指数排名发布，中国居倒数第五】无国界记者组织4月2…</a>
-</h2>
-<p>【新闻自由指数排名发布，中国居倒数第五】无国界记者组织4月20日公布2016年世界新闻自由指数。新闻自由度最高的前三名分别为芬兰、荷兰和挪威。中国持续位于世界新闻自由的黑暗区，排名第176，倒数第五名。台湾的新闻自由度位于亚洲之冠，排在第51。美国排名第41位，韩国排第70位，日本排第72位。<br><img src="http://ww2.sinaimg.cn/large/a2b82c67gw1f346974gykj20dm08e0tn.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
