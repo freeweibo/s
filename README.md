@@ -53,7 +53,7 @@
 </h2>
 <p>SPAM 【团中央直属高校中国青年政治学院将停办本科 】4月21日下午，一篇《有感于中青院将停办本科》的文章在网络流传，文章的作者系中国青年政治学院（以下称“中青院）教师杨支柱。杨支柱在文中透露：中国青年政治学院本科停办，将回归1985年以前中央团校的状态。<br><img src="http://ww1.sinaimg.cn/large/627cf045gw1f34ofkmgxoj20qo1bewoi.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3966817225466762" target="freeweibo-mirror">#反对在嘉兴海盐建造垃圾焚烧发电厂# 看到我们的西塘桥人民被…</a>
 </h2>
