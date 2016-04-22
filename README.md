@@ -83,7 +83,7 @@
 </h2>
 <p>【由两件事看资本掌控权力的恐怖】  ❶据媒体报道［http://t.cn/RqC3H6f ］，商人郭文贵竟能指挥副部级官员张越两小时内驱车赶来盘古大厦，甚至操纵张越调动警察抓捕商业纠纷对手曲龙。  ❷据媒体报道［http://t.cn/RqCHaKm ］，“梳理一下，这次拍卖是由阿里拍卖主导，阿里全资子公司优酷土豆直播，阿...全文： http://m.weibo.cn/1665808371/3966973295372332<br><img src="http://ww3.sinaimg.cn/large/634a37f3gw1f355hcosi6j20zy0qogtg.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3966843498383319" target="freeweibo-mirror">//@愚夫愚言://@后羿之颠VV: //@---京华烟云:…</a>
 </h2>
