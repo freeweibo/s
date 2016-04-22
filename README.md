@@ -35,7 +35,7 @@
 </h2>
 <p>//@斯图卡98: //@司马南: 资本是什么？有人以为是钱，不对。 马克思厚厚的《资本论》哪里是在说钱，而是在说人和人之间的关系以及这种关系所体现的不德制度。在中国，在今天，资本意志为所欲为，地产豪强美元买办形成寡头，正在渗入政治操控话语形成黑色引力波损我道统。 不去寡头，大难临头。</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3967023236795187" target="freeweibo-mirror">《纽约时报》报道，中国国家新闻出版广电总局上周要求苹果关闭中…</a>
 </h2>
@@ -59,7 +59,7 @@
 </h2>
 <p>免费时代还没到来。 //@义勇军想飞的梦想://@欢乐多超大:拨打110.120.122.119是免费，民警又没说车子免费[不好意思]没问题[不好意思]//@40cal:不是江苏省委宣传部的吗?那咱就帮这个人宣传宣传呗?!你妹的! @jia_sir @alan_sir @超大胖羽 @屌研员Seven @恶童里的小白- @软绵绵的王小胖 @-正气丹心-<br><br>RE: 但凡手中有点权力，有点关系，都妄图通过这些手段来现实自己比他人要高上一等。其实，就是下作。@QBQ的无悔 @屌研员Seven @飞sir是你姐夫 @40cal @FYJS_从不走丢police二哈<br><img src="http://ww3.sinaimg.cn/large/5be68b5egw1f3569kjmw2j20qo0zkti3.jpg"></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3966978722915933" target="freeweibo-mirror">但凡手中有点权力，有点关系，都妄图通过这些手段来现实自己比他…</a>
 </h2>
@@ -71,7 +71,7 @@
 </h2>
 <p>【由两件事看资本掌控权力的恐怖】  ❶据媒体报道［http://t.cn/RqC3H6f ］，商人郭文贵竟能指挥副部级官员张越两小时内驱车赶来盘古大厦，甚至操纵张越调动警察抓捕商业纠纷对手曲龙。  ❷据媒体报道［http://t.cn/RqCHaKm ］，“梳理一下，这次拍卖是由阿里拍卖主导，阿里全资子公司优酷土豆直播，阿...全文： http://m.weibo.cn/1665808371/3966973295372332<br><img src="http://ww3.sinaimg.cn/large/634a37f3gw1f355hcosi6j20zy0qogtg.jpg"></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3966843498383319" target="freeweibo-mirror">//@愚夫愚言://@后羿之颠VV: //@---京华烟云:…</a>
 </h2>
@@ -88,6 +88,12 @@
 	<a href="https://freeweibo.com/weibo/3966840550403535" target="freeweibo-mirror">SPAM 上次推荐了她家衣服，好多朋友跟我说她家东西既好看又…</a>
 </h2>
 <p>SPAM 上次推荐了她家衣服，好多朋友跟我说她家东西既好看又便宜，如果你也喜欢随便背个包、穿双鞋、戴个表就引起大家的注意 那就请加她VX：baobaoshejishi</p>
+<p>
+	<small> ============== 1天前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3966839942539600" target="freeweibo-mirror">【联合国新闻自由奖中国唯一得主 】2003年，大学生孙志刚因…</a>
+</h2>
+<p>【联合国新闻自由奖中国唯一得主 】2003年，大学生孙志刚因无暂住证被收容，3天后被殴打致死。南都让该事件大白于天下，罪恶的收容遣送制度因此废止。在全国人民不用再担心被查暂住证的某个凌晨，大批警察破门而入，逮捕了南方都市报总编辑，就是这个不听话的人决定报道真相，他叫程益中。@剑走偏锋<br><img src="http://ww2.sinaimg.cn/large/006nS10Vgw1f34qdvgeu3j30cs07jwf4.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p><h2>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3966785373522055" target="freeweibo-mirror">我们伟大的政治家、军事家、外交家党的总书记，国家主席，军委主…</a>
 </h2>
 <p>我们伟大的政治家、军事家、外交家党的总书记，国家主席，军委主席，国安委主席、中央深改组组长、军委深化国防和军队改革领导小组组长、网络安全和信息化小组组长、外事国家安全工作领导小组组长、对台工作领导小组组长，财经领导小组组长习近平同志近日又担任了军委联指总指挥，老大加油[拍照][哈哈]<br><img src="http://ww4.sinaimg.cn/large/006oF1Fjgw1f34k2sl6roj30jg0ay3zl.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3966769289482778" target="freeweibo-mirror">要饭的又来了，上海的老大说了，要进一步加大力度进行帮扶工作！…</a>
-</h2>
-<p>要饭的又来了，上海的老大说了，要进一步加大力度进行帮扶工作！ http://t.cn/R2WilwF<br><img src="http://ww1.sinaimg.cn/large/57900600gw1f34i9nifusj20qo1bdgre.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
