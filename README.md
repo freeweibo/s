@@ -19,6 +19,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3967114849032530" target="freeweibo-mirror">毛主席的仁厚，冠绝古今。其他几人的言谈，让人寒凉。那几人真的…</a>
+</h2>
+<p>毛主席的仁厚，冠绝古今。其他几人的言谈，让人寒凉。那几人真的说过这样的话吗？</p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3967110877539388" target="freeweibo-mirror">人民有出版的自由，不过要经过审核、找茬、批准（检查了一下，这…</a>
 </h2>
 <p>人民有出版的自由，不过要经过审核、找茬、批准（检查了一下，这句话未发现错误）。 我突然发现，奴隶都是有一切自由的，主人同意就行啊[白眼]，黑奴们可以结婚可以生孩子，可以外出，可以吃饭睡觉。本言论并非煽动，是缅怀宪法，缅怀建党先烈。//@李开复://@来去之间: 我了个去……</p>
@@ -79,6 +85,12 @@
 <p>
 	<small> ============== 12小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3966976307393979" target="freeweibo-mirror">1966年3月18日罗瑞卿跳楼自杀未遂的消息传到杭州政治局会…</a>
+</h2>
+<p>1966年3月18日罗瑞卿跳楼自杀未遂的消息传到杭州政治局会议上，毛泽东说：＂没出息。＂刘少奇说：＂跳楼自杀也要有讲究，应头朝下，他是脚先落地。＂邓小平说：＂罗长子跳了个冰棍。＂叶剑英诗兴大发，写下了＂将军一跳身名裂，向河梁，回头万里，故人长绝＂。<br><img src="http://ww1.sinaimg.cn/large/4740c29ejw1f3561m6r8rj208t0b4mxs.jpg"></p>
+<p>
+	<small> ============== 12小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3966973295372332" target="freeweibo-mirror">【由两件事看资本掌控权力的恐怖】  ❶据媒体报道［http:…</a>
 </h2>
 <p>【由两件事看资本掌控权力的恐怖】  ❶据媒体报道［http://t.cn/RqC3H6f ］，商人郭文贵竟能指挥副部级官员张越两小时内驱车赶来盘古大厦，甚至操纵张越调动警察抓捕商业纠纷对手曲龙。  ❷据媒体报道［http://t.cn/RqCHaKm ］，“梳理一下，这次拍卖是由阿里拍卖主导，阿里全资子公司优酷土豆直播，阿...全文： http://m.weibo.cn/1665808371/3966973295372332<br><img src="http://ww3.sinaimg.cn/large/634a37f3gw1f355hcosi6j20zy0qogtg.jpg"></p>
@@ -124,18 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3966822942902151" target="freeweibo-mirror">SPAM 【团中央直属高校中国青年政治学院将停办本科 】4月…</a>
 </h2>
 <p>SPAM 【团中央直属高校中国青年政治学院将停办本科 】4月21日下午，一篇《有感于中青院将停办本科》的文章在网络流传，文章的作者系中国青年政治学院（以下称“中青院）教师杨支柱。杨支柱在文中透露：中国青年政治学院本科停办，将回归1985年以前中央团校的状态。<br><img src="http://ww1.sinaimg.cn/large/627cf045gw1f34ofkmgxoj20qo1bewoi.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3966817225466762" target="freeweibo-mirror">#反对在嘉兴海盐建造垃圾焚烧发电厂# 看到我们的西塘桥人民被…</a>
-</h2>
-<p>#反对在嘉兴海盐建造垃圾焚烧发电厂# 看到我们的西塘桥人民被打成这样，真的是一瞬间心都凉完了，政府真的是另一个披着羊皮的黑社会，真的很想问为什么要这样殴打老百姓？我们为了自己的家园不受污染提出抗议就有错吗？沈晓红为了自己能做出点政绩就不顾我们的死活，良心被狗吃了吧！看到很多年老的人...全文： http://m.weibo.cn/3119620237/3966817225466762<br><img src="http://ww1.sinaimg.cn/large/b9f1a08dgw1f34nrn1rcrj20qo0zkdk9.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3966809546006779" target="freeweibo-mirror">SPAM @微博云南 @云南网</a>
-</h2>
-<p>SPAM @微博云南 @云南网<br><br>RE: 要饭的又来了，上海的老大说了，要进一步加大力度进行帮扶工作！ http://t.cn/R2WilwF<br><img src="http://ww1.sinaimg.cn/large/57900600gw1f34i9nifusj20qo1bdgre.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
