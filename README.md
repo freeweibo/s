@@ -41,7 +41,7 @@
 </h2>
 <p>SPAM #蛇精男# 太太污了 想看的点赞<br><img src="http://ww3.sinaimg.cn/large/75ec56d1gw1f35pxnhcltj20hs0vkdj6.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3967114849032530" target="freeweibo-mirror">毛主席的仁厚，冠绝古今。其他几人的言谈，让人寒凉。那几人真的…</a>
 </h2>
