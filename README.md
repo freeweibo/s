@@ -65,7 +65,7 @@
 </h2>
 <p>《纽约时报》报道，中国国家新闻出版广电总局上周要求苹果关闭中国区iTunes Movies和iBooks Store商店，目的是控制内容发布。苹果发言人对此表示，将尽快重新向中国用户开放电影和图书商店。一个表情形容你看到这条新闻时的心情～<br><img src="http://ww4.sinaimg.cn/large/635c14a5jw1f35beryt6aj20c807fjrf.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3967017273408013" target="freeweibo-mirror">SPAM 好吧， MF也来插一脚，全站10% off 输入M…</a>
 </h2>
