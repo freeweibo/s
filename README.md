@@ -37,9 +37,21 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3967552126046472" target="freeweibo-mirror">→_→ //@东海老鲵:新加坡，xjp，哦，理由是有的，那要…</a>
+</h2>
+<p>→_→ //@东海老鲵:新加坡，xjp，哦，理由是有的，那要编辑校对作甚？//@中华义勇军召集人:[话筒]→_→<br><br>RE: #网络义勇军发布# 广电总局责令papi酱视频下线整改，错了么？（此处省略一千问[笑cry]）请教：@人民日报 ：你们微博和客户端今中午、晚上连放两大招，你们这是要挺酱？要搞僵？还是要将军？网络义勇军注意到：个别网友的和风细雨被你们“和谐”了，准备怎么对待此帖？抄送：@12321举报中心 @紫光阁<br><img src="http://ww2.sinaimg.cn/large/005JyiuVgw1f36yu1wbsuj30k00zkq6t.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3967552063408199" target="freeweibo-mirror">说到底就是这届人民不行//@Marco_徐晓峰: //@八大…</a>
 </h2>
 <p>说到底就是这届人民不行//@Marco_徐晓峰: //@八大山债人: //@李靖云: 这届就是段子手还行。</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3967549412088844" target="freeweibo-mirror">//@夙生律师事务所://@主权在民天赋人权: 转发微博</a>
+</h2>
+<p>//@夙生律师事务所://@主权在民天赋人权: 转发微博<br><br>RE: 【求辟谣：前央视名嘴芮成钢情妇多达18人】港媒爆料前央视名嘴芮成钢情妇多达18人，且多为高官夫人。声称代表亚洲、与美国总统是哥们的，与令计划夫人关系非同寻常的钢钢代表原来是个情种子。港媒的爆料有损CCTV形象，有损伟光正党形象，求辟谣！<br><img src="http://ww3.sinaimg.cn/large/bea89b59jw1f367d6sar3j21kw0npwjc.jpg"></p>
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
@@ -48,6 +60,12 @@
 <p>SPAM //@旺仔Taiwan:[话筒][话筒]<br><br>RE: 新加坡报纸，是造谣不？求澄清。<br><img src="http://ww1.sinaimg.cn/large/48c00fbbgw1f36vwtvrflj20zk0qon68.jpg"></p>
 <p>
 	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3967536054299536" target="freeweibo-mirror">SPAM //@陈业文新大都:[吃惊]//@ICO刘开明:/…</a>
+</h2>
+<p>SPAM //@陈业文新大都:[吃惊]//@ICO刘开明://@夏伦刚:原来如此！//@法律及其价值: //@风中楠竹:原来如此，岳不群君。<br><br>RE: 新加坡报纸，是造谣不？求澄清。<br><img src="http://ww1.sinaimg.cn/large/48c00fbbgw1f36vwtvrflj20zk0qon68.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3967531028506886" target="freeweibo-mirror">无耻造谣，中国为与东南亚国家友好相处，不承认双重国籍，劝说几…</a>
 </h2>
@@ -107,35 +125,17 @@
 </h2>
 <p>SPAM 油菜花，特别是关于股市那段很有G点。//@愚巷:<br><br>RE: 又被和谐了，处处是G点，随时受不了<br><img src="http://ww4.sinaimg.cn/large/63439267gw1f36rmszf47j20zk8311kx.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3967512187548291" target="freeweibo-mirror">//@干卫东律师: //@陈光武律师://@麻毛雄: //@…</a>
 </h2>
 <p>//@干卫东律师: //@陈光武律师://@麻毛雄: //@厦门筱鱼: 一线防暴警察们多是当地人吧，如果是高干也不会到一线吧？环境被重度污染得癌症您们也活不了滴。抗议的人群也在替你们挣活命的机会，下手别太狠哪！！！ //@忆梅下西舟:转发微博<br><br>RE: 嘉兴<br><img src="http://ww1.sinaimg.cn/large/006r8i01gw1f36ajm24cfj30k00zktfc.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3967510459566847" target="freeweibo-mirror">//@问道传奇:转发微博</a>
 </h2>
 <p>//@问道传奇:转发微博<br><br>RE: 又被和谐了，处处是G点，随时受不了<br><img src="http://ww4.sinaimg.cn/large/63439267gw1f36rmszf47j20zk8311kx.jpg"></p>
-<p>
-	<small> ============== 5小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3967509210651596" target="freeweibo-mirror">SPAM //@陈业文新大都:土匪、骗子们的日子不好过了..…</a>
-</h2>
-<p>SPAM //@陈业文新大都:土匪、骗子们的日子不好过了...... //@连鹏:这届群众不行？需要你行的时候，不行也得行......<br><br>RE: 又被和谐了，处处是G点，随时受不了<br><img src="http://ww4.sinaimg.cn/large/63439267gw1f36rmszf47j20zk8311kx.jpg"></p>
-<p>
-	<small> ============== 5小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3967507474098475" target="freeweibo-mirror">这个绝对是笔误，正确的写法应该是“吉隆坡总书记”。@人民网</a>
-</h2>
-<p>这个绝对是笔误，正确的写法应该是“吉隆坡总书记”。@人民网<br><img src="http://ww2.sinaimg.cn/large/8b3902cagw1f36uzdi7ebj20k00zk42t.jpg"></p>
-<p>
-	<small> ============== 5小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3967498690394148" target="freeweibo-mirror">SPAM [哈哈][哈哈][哈哈]这届群众真不行，给祖国拖后…</a>
-</h2>
-<p>SPAM [哈哈][哈哈][哈哈]这届群众真不行，给祖国拖后腿，添负担，制造对立，就连这公众账号文章都被某些群众举报，让和谐了…<br><br>RE: 又被和谐了，处处是G点，随时受不了<br><img src="http://ww4.sinaimg.cn/large/63439267gw1f36rmszf47j20zk8311kx.jpg"></p>
 <p>
 	<small> ============== 5小时前</small>
 </p>
