@@ -59,25 +59,25 @@
 </h2>
 <p>新加坡报纸，是造谣不？求澄清。<br><img src="http://ww1.sinaimg.cn/large/48c00fbbgw1f36vwtvrflj20zk0qon68.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3967514624808274" target="freeweibo-mirror">SPAM 哈哈 //@杨佩昌:有才！[笑cry]//@苏渝:…</a>
 </h2>
 <p>SPAM 哈哈 //@杨佩昌:有才！[笑cry]//@苏渝:油菜花，特别是关于股市那段很有G点。<br><br>RE: 又被和谐了，处处是G点，随时受不了<br><img src="http://ww4.sinaimg.cn/large/63439267gw1f36rmszf47j20zk8311kx.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3967514105397200" target="freeweibo-mirror">拼音输入法？还是语音输入法？//@健康媒体王炎:尼码，这也太…</a>
 </h2>
 <p>拼音输入法？还是语音输入法？//@健康媒体王炎:尼码，这也太狠了……//@白色燕子:人民日报有一种“把一切搞砸”的特殊技能。//@青枚煮菁瓜:笑了三分钟//@渡江檝:这个国家完蛋了。<br><br>RE: 这个绝对是笔误，正确的写法应该是“吉隆坡总书记”。@人民网<br><img src="http://ww2.sinaimg.cn/large/8b3902cagw1f36uzdi7ebj20k00zk42t.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3967514033532005" target="freeweibo-mirror">SPAM [笑cry]//@杨佩昌: 有才！[笑cry]//…</a>
 </h2>
 <p>SPAM [笑cry]//@杨佩昌: 有才！[笑cry]//@苏渝:油菜花，特别是关于股市那段很有G点。//@愚巷:<br><br>RE: 又被和谐了，处处是G点，随时受不了<br><img src="http://ww4.sinaimg.cn/large/63439267gw1f36rmszf47j20zk8311kx.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3967513774210373" target="freeweibo-mirror">SPAM 有才！[笑cry]//@苏渝:油菜花，特别是关于股…</a>
 </h2>
@@ -125,7 +125,7 @@
 </h2>
 <p>SPAM 毁童年[哆啦A梦吃惊]//@二逼青年这样过:好污！[笑cry]<br><br>RE: 蛇精脸看了，来回顾下毁童年的拳皇，KO~~卧槽太污了！！[笑cry]#极品吐槽帝# http://t.cn/Rqpx1ln</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3967477723357326" target="freeweibo-mirror">又被和谐了，处处是G点，随时受不了</a>
 </h2>
