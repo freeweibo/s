@@ -113,7 +113,7 @@
 </h2>
 <p>SPAM //@陈业文新大都:土匪、骗子们的日子不好过了...... //@连鹏:这届群众不行？需要你行的时候，不行也得行......<br><br>RE: 又被和谐了，处处是G点，随时受不了<br><img src="http://ww4.sinaimg.cn/large/63439267gw1f36rmszf47j20zk8311kx.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3967507474098475" target="freeweibo-mirror">这个绝对是笔误，正确的写法应该是“吉隆坡总书记”。@人民网</a>
 </h2>
