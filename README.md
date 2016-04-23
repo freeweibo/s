@@ -35,7 +35,7 @@
 </h2>
 <p>SPAM //@旺仔Taiwan:[话筒][话筒]<br><br>RE: 新加坡报纸，是造谣不？求澄清。<br><img src="http://ww1.sinaimg.cn/large/48c00fbbgw1f36vwtvrflj20zk0qon68.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3967530492581073" target="freeweibo-mirror">SPAM //@毛建华律师: 罪过啊 //@法律及其价值: …</a>
 </h2>
@@ -52,6 +52,12 @@
 	<a href="https://freeweibo.com/weibo/3967515816696376" target="freeweibo-mirror">习近平新加坡喜剧片小键盘香蕉皮洗脚盆小洁癖。。。</a>
 </h2>
 <p>习近平新加坡喜剧片小键盘香蕉皮洗脚盆小洁癖。。。<br><br>RE: 这个绝对是笔误，正确的写法应该是“吉隆坡总书记”。@人民网<br><img src="http://ww2.sinaimg.cn/large/8b3902cagw1f36uzdi7ebj20k00zk42t.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3967515094917158" target="freeweibo-mirror">新加坡报纸，是造谣不？求澄清。</a>
+</h2>
+<p>新加坡报纸，是造谣不？求澄清。<br><img src="http://ww1.sinaimg.cn/large/48c00fbbgw1f36vwtvrflj20zk0qon68.jpg"></p>
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
@@ -77,7 +83,7 @@
 </h2>
 <p>SPAM 有才！[笑cry]//@苏渝:油菜花，特别是关于股市那段很有G点。//@愚巷:<br><br>RE: 又被和谐了，处处是G点，随时受不了<br><img src="http://ww4.sinaimg.cn/large/63439267gw1f36rmszf47j20zk8311kx.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3967512758424482" target="freeweibo-mirror">SPAM 油菜花，特别是关于股市那段很有G点。//@愚巷:</a>
 </h2>
@@ -113,7 +119,7 @@
 </h2>
 <p>SPAM [哈哈][哈哈][哈哈]这届群众真不行，给祖国拖后腿，添负担，制造对立，就连这公众账号文章都被某些群众举报，让和谐了…<br><br>RE: 又被和谐了，处处是G点，随时受不了<br><img src="http://ww4.sinaimg.cn/large/63439267gw1f36rmszf47j20zk8311kx.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3967484027167098" target="freeweibo-mirror">SPAM 毁童年[哆啦A梦吃惊]//@二逼青年这样过:好污！…</a>
 </h2>
@@ -132,12 +138,6 @@
 <p>蛇精脸看了，来回顾下毁童年的拳皇，KO~~卧槽太污了！！[笑cry]#极品吐槽帝# http://t.cn/Rqpx1ln</p>
 <p>
 	<small> ============== 7小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3967440310010189" target="freeweibo-mirror">//@邻居多多乐: //@杜建国微博:高铁是营利的，何来亏损…</a>
-</h2>
-<p>//@邻居多多乐: //@杜建国微博:高铁是营利的，何来亏损？投资怎么带来无效产能了？中国还不富裕，产能并不过剩，应该利用产能而不是淘汰产能。<br><br>RE: 美国之音消息，前中投公司总经理、金融帮大将高西庆，4月21日在美国控诉“中国改革停滞、国企未能私有化“，哀叹中国政府内部尽管有”南院北院之争“，但是没有出现8*9年那样的“反对派”。高西庆吃里扒外，向美国人告中国的状，为8*9“反对派”叫好，请中纪委关注此事。高西庆、李剑阁们如此嚣张，谁...全文： http://m.weibo.cn/1250748474/3967424254670736<br><img src="http://ww1.sinaimg.cn/large/4a8ce83ajw1f36ldv2jnbj20c82wvh20.jpg"></p>
-<p>
-	<small> ============== 8小时前</small>
 </p>
 <table>
     <tr>
