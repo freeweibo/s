@@ -25,6 +25,12 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3967436145921089" target="freeweibo-mirror">高铁是营利的，何来亏损？投资怎么带来无效产能了？中国还不富裕…</a>
+</h2>
+<p>高铁是营利的，何来亏损？投资怎么带来无效产能了？中国还不富裕，产能并不过剩，应该利用产能而不是淘汰产能。//@秋山孤客2015:第一按照杜逻辑，继续扩大投资，扩大无效产能，直到全部高铁高速亏损，结果无非造成企业成本上升，银行破产。第二 高西庆此人说了些难得的真话，尽管有特务嫌疑。<br><br>RE: 美国之音消息，前中投公司总经理、金融帮大将高西庆，4月21日在美国控诉“中国改革停滞、国企未能私有化“，哀叹中国政府内部尽管有”南院北院之争“，但是没有出现8*9年那样的“反对派”。高西庆吃里扒外，向美国人告中国的状，为8*9“反对派”叫好，请中纪委关注此事。高西庆、李剑阁们如此嚣张，谁...全文： http://m.weibo.cn/1250748474/3967424254670736<br><img src="http://ww1.sinaimg.cn/large/4a8ce83ajw1f36ldv2jnbj20c82wvh20.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3967424254670736" target="freeweibo-mirror">美国之音消息，前中投公司总经理、金融帮大将高西庆，4月21日…</a>
 </h2>
 <p>美国之音消息，前中投公司总经理、金融帮大将高西庆，4月21日在美国控诉“中国改革停滞、国企未能私有化“，哀叹中国政府内部尽管有”南院北院之争“，但是没有出现8*9年那样的“反对派”。高西庆吃里扒外，向美国人告中国的状，为8*9“反对派”叫好，请中纪委关注此事。高西庆、李剑阁们如此嚣张，谁...全文： http://m.weibo.cn/1250748474/3967424254670736<br><img src="http://ww1.sinaimg.cn/large/4a8ce83ajw1f36ldv2jnbj20c82wvh20.jpg"></p>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3967023236795187" target="freeweibo-mirror">《纽约时报》报道，中国国家新闻出版广电总局上周要求苹果关闭中…</a>
 </h2>
 <p>《纽约时报》报道，中国国家新闻出版广电总局上周要求苹果关闭中国区iTunes Movies和iBooks Store商店，目的是控制内容发布。苹果发言人对此表示，将尽快重新向中国用户开放电影和图书商店。一个表情形容你看到这条新闻时的心情～<br><img src="http://ww4.sinaimg.cn/large/635c14a5jw1f35beryt6aj20c807fjrf.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3967017273408013" target="freeweibo-mirror">SPAM 好吧， MF也来插一脚，全站10% off 输入M…</a>
-</h2>
-<p>SPAM 好吧， MF也来插一脚，全站10% off 输入MF10, 美帝fs code: USAFREE, 可叠加。戳http://t.cn/RUd20oe  你们慢慢纠结吧～<br><img src="http://ww3.sinaimg.cn/large/6c0e6e30gw1f35aq7nihaj208e086mxh.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
