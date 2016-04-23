@@ -35,7 +35,7 @@
 </h2>
 <p>//@斗眼的喵星人:别个是情妇举报官，他是举报情妇[嘻嘻]<br><br>RE: 芮成钢……[吃惊]<br><img src="http://ww3.sinaimg.cn/large/842693b2gw1f35gt3tx1dj20iv0b4ab1.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3967149842743943" target="freeweibo-mirror">SPAM #蛇精男# 太太污了 想看的点赞</a>
 </h2>
