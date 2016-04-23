@@ -59,7 +59,7 @@
 </h2>
 <p>拼音打字法，xip～～～<br><img src="http://ww4.sinaimg.cn/large/5f6520eagw1f370v1s3zyj20b90m80tw.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3967556103021430" target="freeweibo-mirror">SPAM //@婚恋哲学:果然是一个靠谱滴逗逼，这年头，遇到…</a>
 </h2>
@@ -107,7 +107,7 @@
 </h2>
 <p>SPAM //@旺仔Taiwan:[话筒][话筒]<br><br>RE: 新加坡报纸，是造谣不？求澄清。<br><img src="http://ww1.sinaimg.cn/large/48c00fbbgw1f36vwtvrflj20zk0qon68.jpg"></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3967536054299536" target="freeweibo-mirror">SPAM //@陈业文新大都:[吃惊]//@ICO刘开明:/…</a>
 </h2>
