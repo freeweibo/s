@@ -19,6 +19,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3967343224797134" target="freeweibo-mirror">遏制个人崇拜 中共要求媒体别称“习大大”| m.zaobao…</a>
+</h2>
+<p>遏制个人崇拜 中共要求媒体别称“习大大”| m.zaobao.comhttp://www.zaobao.com/news/china/story20160423-608529 http://t.cn/Rqpv5TW</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3967201768250827" target="freeweibo-mirror">SPAM 哈哈免费啊 这要什么钱 不就是小视频 http:/…</a>
 </h2>
 <p>SPAM 哈哈免费啊 这要什么钱 不就是小视频 http://t.cn/RqNWGb2</p>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3966843498383319" target="freeweibo-mirror">//@愚夫愚言://@后羿之颠VV: //@---京华烟云:…</a>
 </h2>
 <p>//@愚夫愚言://@后羿之颠VV: //@---京华烟云://@作家沙光: //@又是纳税人a://@李不白的店://@谢文://@记者站网:倒数第一名是非洲国家厄立特里亚，倒数第二是朝鲜。[挖鼻]居然没垫底。<br><br>RE: 【新闻自由指数排名发布，中国居倒数第五】无国界记者组织4月20日公布2016年世界新闻自由指数。新闻自由度最高的前三名分别为芬兰、荷兰和挪威。中国持续位于世界新闻自由的黑暗区，排名第176，倒数第五名。台湾的新闻自由度位于亚洲之冠，排在第51。美国排名第41位，韩国排第70位，日本排第72位。<br><img src="http://ww2.sinaimg.cn/large/a2b82c67gw1f346974gykj20dm08e0tn.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3966841040192071" target="freeweibo-mirror">//@南开老魏034://@李方平律师: 俄罗斯还不错。 /…</a>
-</h2>
-<p>//@南开老魏034://@李方平律师: 俄罗斯还不错。 //@杨兴权律师:最红就是俄罗斯！<br><br>RE: 【新闻自由指数排名发布，中国居倒数第五】无国界记者组织4月20日公布2016年世界新闻自由指数。新闻自由度最高的前三名分别为芬兰、荷兰和挪威。中国持续位于世界新闻自由的黑暗区，排名第176，倒数第五名。台湾的新闻自由度位于亚洲之冠，排在第51。美国排名第41位，韩国排第70位，日本排第72位。<br><img src="http://ww2.sinaimg.cn/large/a2b82c67gw1f346974gykj20dm08e0tn.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
