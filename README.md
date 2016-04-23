@@ -67,6 +67,12 @@
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3967507474098475" target="freeweibo-mirror">这个绝对是笔误，正确的写法应该是“吉隆坡总书记”。@人民网</a>
+</h2>
+<p>这个绝对是笔误，正确的写法应该是“吉隆坡总书记”。@人民网<br><img src="http://ww2.sinaimg.cn/large/8b3902cagw1f36uzdi7ebj20k00zk42t.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3967498690394148" target="freeweibo-mirror">SPAM [哈哈][哈哈][哈哈]这届群众真不行，给祖国拖后…</a>
 </h2>
 <p>SPAM [哈哈][哈哈][哈哈]这届群众真不行，给祖国拖后腿，添负担，制造对立，就连这公众账号文章都被某些群众举报，让和谐了…<br><br>RE: 又被和谐了，处处是G点，随时受不了<br><img src="http://ww4.sinaimg.cn/large/63439267gw1f36rmszf47j20zk8311kx.jpg"></p>
@@ -119,7 +125,7 @@
 </h2>
 <p>//@我是周周007H:新浪应对用户起码的尊重，不能乱封！ //@杨昭友昆仑松魂:说好了的，要言论自由，为什么我们不能自由？//@我是周周007H: @紫光阁 @思想火炬@共青团中央@李艳艳@朱继东@爱丽粉丝团@旗帜@红旗文稿@求是@军报记者@昆仑的家-昆仑岩@破土网@杨昭友昆仑松魂@摄政王爷有话说@红旗-火龙B</p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3967356466053275" target="freeweibo-mirror">扎旗草原环境污染我的立场说明：1 扎旗十七家铝厂多年有害污染…</a>
 </h2>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3967343224797134" target="freeweibo-mirror">遏制个人崇拜 中共要求媒体别称“习大大”| m.zaobao…</a>
 </h2>
 <p>遏制个人崇拜 中共要求媒体别称“习大大”| m.zaobao.comhttp://www.zaobao.com/news/china/story20160423-608529 http://t.cn/Rqpv5TW</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3967329165727783" target="freeweibo-mirror">嘉兴</a>
-</h2>
-<p>嘉兴<br><img src="http://ww1.sinaimg.cn/large/006r8i01gw1f36ajm24cfj30k00zktfc.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
