@@ -49,6 +49,12 @@
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3967558165986458" target="freeweibo-mirror">拼音打字法，xip～～～</a>
+</h2>
+<p>拼音打字法，xip～～～<br><img src="http://ww4.sinaimg.cn/large/5f6520eagw1f370v1s3zyj20b90m80tw.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3967556103021430" target="freeweibo-mirror">SPAM //@婚恋哲学:果然是一个靠谱滴逗逼，这年头，遇到…</a>
 </h2>
 <p>SPAM //@婚恋哲学:果然是一个靠谱滴逗逼，这年头，遇到这样滴店主，就嫁了吧！</p>
@@ -101,7 +107,7 @@
 </h2>
 <p>SPAM //@陈业文新大都:[吃惊]//@ICO刘开明://@夏伦刚:原来如此！//@法律及其价值: //@风中楠竹:原来如此，岳不群君。<br><br>RE: 新加坡报纸，是造谣不？求澄清。<br><img src="http://ww1.sinaimg.cn/large/48c00fbbgw1f36vwtvrflj20zk0qon68.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3967531028506886" target="freeweibo-mirror">无耻造谣，中国为与东南亚国家友好相处，不承认双重国籍，劝说几…</a>
 </h2>
@@ -119,7 +125,7 @@
 </h2>
 <p>转发：网上最近流行一个说法，说这届群众不行。我想了想，是真不行。  首先是这届股民不行。股市赔了钱，哭爹喊娘的让国家救市，结果国家救市刚企稳，股民就跑了，把国家救市的钱都套里面了。你说说，还有这么不讲诚信的股民吗？这届股民都跟猴子一样，只跟股票一夜情，却不谈婚论嫁；就知道炒热点，却...全文： http://m.weibo.cn/1660079292/3967520329746118</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3967515816696376" target="freeweibo-mirror">习近平新加坡喜剧片小键盘香蕉皮洗脚盆小洁癖。。。</a>
 </h2>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3967515094917158" target="freeweibo-mirror">新加坡报纸，是造谣不？求澄清。</a>
 </h2>
 <p>新加坡报纸，是造谣不？求澄清。<br><img src="http://ww1.sinaimg.cn/large/48c00fbbgw1f36vwtvrflj20zk0qon68.jpg"></p>
-<p>
-	<small> ============== 6小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3967514624808274" target="freeweibo-mirror">SPAM 哈哈 //@杨佩昌:有才！[笑cry]//@苏渝:…</a>
-</h2>
-<p>SPAM 哈哈 //@杨佩昌:有才！[笑cry]//@苏渝:油菜花，特别是关于股市那段很有G点。<br><br>RE: 又被和谐了，处处是G点，随时受不了<br><img src="http://ww4.sinaimg.cn/large/63439267gw1f36rmszf47j20zk8311kx.jpg"></p>
 <p>
 	<small> ============== 6小时前</small>
 </p>
