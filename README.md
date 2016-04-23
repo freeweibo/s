@@ -37,6 +37,12 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3967531028506886" target="freeweibo-mirror">无耻造谣，中国为与东南亚国家友好相处，不承认双重国籍，劝说几…</a>
+</h2>
+<p>无耻造谣，中国为与东南亚国家友好相处，不承认双重国籍，劝说几百万华侨放弃中国国籍，周恩来深情的对华侨说让他们把所在国当做祖国，与当地百姓一起建设国家，如此善意换来的却是血腥屠杀，印尼欠中国一个道歉。印尼是多党制国家，印尼共产党是合法组织，被血腥屠杀，印尼欠百姓一个道歉。<br><br>RE: 新加坡报纸，是造谣不？求澄清。<br><img src="http://ww1.sinaimg.cn/large/48c00fbbgw1f36vwtvrflj20zk0qon68.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3967530492581073" target="freeweibo-mirror">SPAM //@毛建华律师: 罪过啊 //@法律及其价值: …</a>
 </h2>
 <p>SPAM //@毛建华律师: 罪过啊 //@法律及其价值: //@风中楠竹:原来如此，岳不群君。<br><br>RE: 新加坡报纸，是造谣不？求澄清。<br><img src="http://ww1.sinaimg.cn/large/48c00fbbgw1f36vwtvrflj20zk0qon68.jpg"></p>
@@ -132,12 +138,6 @@
 <p>又被和谐了，处处是G点，随时受不了<br><img src="http://ww4.sinaimg.cn/large/63439267gw1f36rmszf47j20zk8311kx.jpg"></p>
 <p>
 	<small> ============== 6小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3967461873386327" target="freeweibo-mirror">蛇精脸看了，来回顾下毁童年的拳皇，KO~~卧槽太污了！！[笑…</a>
-</h2>
-<p>蛇精脸看了，来回顾下毁童年的拳皇，KO~~卧槽太污了！！[笑cry]#极品吐槽帝# http://t.cn/Rqpx1ln</p>
-<p>
-	<small> ============== 7小时前</small>
 </p>
 <table>
     <tr>
