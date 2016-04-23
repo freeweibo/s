@@ -77,7 +77,7 @@
 </h2>
 <p>这个绝对是笔误，正确的写法应该是“吉隆坡总书记”。@人民网<br><img src="http://ww2.sinaimg.cn/large/8b3902cagw1f36uzdi7ebj20k00zk42t.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3967498690394148" target="freeweibo-mirror">SPAM [哈哈][哈哈][哈哈]这届群众真不行，给祖国拖后…</a>
 </h2>
@@ -101,7 +101,7 @@
 </h2>
 <p>蛇精脸看了，来回顾下毁童年的拳皇，KO~~卧槽太污了！！[笑cry]#极品吐槽帝# http://t.cn/Rqpx1ln</p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3967440310010189" target="freeweibo-mirror">//@邻居多多乐: //@杜建国微博:高铁是营利的，何来亏损…</a>
 </h2>
