@@ -59,7 +59,7 @@
 </h2>
 <p>SPAM //@旺仔Taiwan:[话筒][话筒]<br><br>RE: 新加坡报纸，是造谣不？求澄清。<br><img src="http://ww1.sinaimg.cn/large/48c00fbbgw1f36vwtvrflj20zk0qon68.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3967536054299536" target="freeweibo-mirror">SPAM //@陈业文新大都:[吃惊]//@ICO刘开明:/…</a>
 </h2>
@@ -119,7 +119,7 @@
 </h2>
 <p>SPAM 有才！[笑cry]//@苏渝:油菜花，特别是关于股市那段很有G点。//@愚巷:<br><br>RE: 又被和谐了，处处是G点，随时受不了<br><img src="http://ww4.sinaimg.cn/large/63439267gw1f36rmszf47j20zk8311kx.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3967512758424482" target="freeweibo-mirror">SPAM 油菜花，特别是关于股市那段很有G点。//@愚巷:</a>
 </h2>
