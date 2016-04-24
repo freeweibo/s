@@ -29,7 +29,7 @@
 </h2>
 <p>SPAM http://t.cn/Rq0N3gv 中原文化嘛。中国人绝大多数以亲缘(亲戚)、地缘(老乡)和学缘(同门)及仕缘(同僚)为轴心，依次向外展开人脉。首先是感情，其次是认同，最后才是信任和价值观，没理念什么事。[挖鼻]我们家则没这个，天生就不是以血缘为始，看谁都洞察本质，直指人心，六亲不认也很正常[哈哈]</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3967936957513756" target="freeweibo-mirror">//@红小兵-屠倭灭美://@御笔作文: //@智韬发明: …</a>
 </h2>
@@ -83,7 +83,7 @@
 </h2>
 <p>我最大的弱点也是我最大的优点：气太容易消。<br><img src="http://ww4.sinaimg.cn/large/670ff559jw1f3855q2whij21w01w0k2d.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3967908948845447" target="freeweibo-mirror">//@笨笨an: 这届夫人不行？//@LifeTime:怕是…</a>
 </h2>
@@ -119,7 +119,7 @@
 </h2>
 <p>SPAM 左下角正在开枪射击，是发射催泪弹吗？//@陈业文新大都: [草泥马][草泥马][草泥马]//@孔_智勇:这样维，会稳吗？ //@孟庆明v: 攘外必先安内？！<br><br>RE: 一片狼藉…… http://t.cn/RqqIuLs</p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3967878107474135" target="freeweibo-mirror">SPAM 屋顶就不是国内的特点。另外，天朝警察才不会这样开枪…</a>
 </h2>
