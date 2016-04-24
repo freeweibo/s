@@ -19,6 +19,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3967918800875506" target="freeweibo-mirror">//@森政嘉嘉:杨佳语，你不给我说法，我就给你说法！自焚在文…</a>
+</h2>
+<p>//@森政嘉嘉:杨佳语，你不给我说法，我就给你说法！自焚在文明国度会引起你所希望的效果，对不起，在天朝没有用[衰]<br><br>RE: 【自焚不如抗争】今天中午，网传一段自焚视频，自焚者生死不明，现场画面让人心碎......有网友发出质问：你有勇气自焚，为何不拼死抗争？现场警察为何不事先准备好灭火器？现场围观者为何不及时出手相救？发帖者为何不敢公开事件发生的时间、地点和事由？-----强烈求证事件真相！http://t.cn/RqpBSkk</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3967913411293218" target="freeweibo-mirror">[给力]//@功夫Lee熊猫: //@良心-医生:转发微博</a>
 </h2>
 <p>[给力]//@功夫Lee熊猫: //@良心-医生:转发微博<br><br>RE: 什么是信仰坚定？人民书记就是！在父亲的葬礼上高唱《国际歌》，特色之后，你是唯一[心][心][心]！<br><img src="http://ww1.sinaimg.cn/large/006qENhQjw1f381q5c741j30f00exq4i.jpg"></p>
@@ -41,7 +47,7 @@
 </h2>
 <p>[衰]消息不算靠谱 //@笨笨an:这届夫人不行？//@LifeTime:怕是不妥。说不定领导是好的，只是夫人被芮成钢勾走了。[悲催]<br><br>RE: 央视新闻：如果你能把这十八位高官的姓名在新闻联播里播放出来，我向你大爷保证，从今之后再也不骂你了。我说话算数，立帖为证！<br><img src="http://ww2.sinaimg.cn/large/005M7QzIjw1f36g34y7zhj30r20gmn0l.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3967909414549035" target="freeweibo-mirror">我最大的弱点也是我最大的优点：气太容易消。</a>
 </h2>
@@ -77,7 +83,7 @@
 </h2>
 <p>SPAM //@烟雨更冷m: //@何光伟: 老了后，你就成了我[泪]<br><br>RE: 这届老兵不行 http://t.cn/Rq04lZ6 .</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3967879655173986" target="freeweibo-mirror">SPAM 左下角正在开枪射击，是发射催泪弹吗？//@陈业文新…</a>
 </h2>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3967866933631339" target="freeweibo-mirror">SPAM [哈哈] //@孔_智勇:[嘻嘻]//@Docte…</a>
 </h2>
 <p>SPAM [哈哈] //@孔_智勇:[嘻嘻]//@Docter-李:[嘻嘻]//@大大的樂陶陶:应叫习主席懂吗。//@上海鱼鱼1:[哈哈]//@好兵帅克归来: 不是在师大的时候自己首肯的吗，玩大了吧。<br><br>RE: 据说不能叫了。<br><img src="http://ww3.sinaimg.cn/large/d1ca2e51jw1f37pa21dr1j20qo59m4qp.jpg"></p>
-<p>
-	<small> ============== 5小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3967865537604241" target="freeweibo-mirror">SPAM //@许冰_律师: //@何光伟:老了后，你就成了…</a>
-</h2>
-<p>SPAM //@许冰_律师: //@何光伟:老了后，你就成了我[泪]<br><br>RE: 这届老兵不行 http://t.cn/Rq04lZ6 .</p>
 <p>
 	<small> ============== 5小时前</small>
 </p>
