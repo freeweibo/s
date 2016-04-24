@@ -47,13 +47,13 @@
 </h2>
 <p>[哈哈] //@风神祭二十六叔:可见天朝人心已散，一片混乱。//@沉船别动队:转发微博<br><br>RE: 拼音打字法，xip～～～<br><img src="http://ww4.sinaimg.cn/large/5f6520eagw1f370v1s3zyj20b90m80tw.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3967559709584428" target="freeweibo-mirror">//@又来金好多: //@天南地北大魔王://@花前一壶酒0…</a>
 </h2>
 <p>//@又来金好多: //@天南地北大魔王://@花前一壶酒09://@马克思的粉丝:转发微博<br><br>RE: 铜锣湾出版社在台成立<br><img src="http://ww1.sinaimg.cn/large/006r8i01gw1f3708v5ut0j30go0sggr6.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3967558165986458" target="freeweibo-mirror">拼音打字法，xip～～～</a>
 </h2>
