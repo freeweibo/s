@@ -47,7 +47,7 @@
 </h2>
 <p>SPAM 睡前必看</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3967918800875506" target="freeweibo-mirror">//@森政嘉嘉:杨佳语，你不给我说法，我就给你说法！自焚在文…</a>
 </h2>
@@ -59,19 +59,19 @@
 </h2>
 <p>[给力]//@功夫Lee熊猫: //@良心-医生:转发微博<br><br>RE: 什么是信仰坚定？人民书记就是！在父亲的葬礼上高唱《国际歌》，特色之后，你是唯一[心][心][心]！<br><img src="http://ww1.sinaimg.cn/large/006qENhQjw1f381q5c741j30f00exq4i.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3967913088554512" target="freeweibo-mirror">SPAM [色][色]</a>
 </h2>
 <p>SPAM [色][色]<br><br>RE: 我最大的弱点也是我最大的优点：气太容易消。<br><img src="http://ww4.sinaimg.cn/large/670ff559jw1f3855q2whij21w01w0k2d.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3967913055217249" target="freeweibo-mirror">若如此，我保证天天准时收看新闻联播。</a>
 </h2>
 <p>若如此，我保证天天准时收看新闻联播。<br><br>RE: 央视新闻：如果你能把这十八位高官的姓名在新闻联播里播放出来，我向你大爷保证，从今之后再也不骂你了。我说话算数，立帖为证！<br><img src="http://ww2.sinaimg.cn/large/005M7QzIjw1f36g34y7zhj30r20gmn0l.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3967911493898460" target="freeweibo-mirror">[衰]消息不算靠谱 //@笨笨an:这届夫人不行？//@Li…</a>
 </h2>
