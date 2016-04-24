@@ -65,7 +65,7 @@
 </h2>
 <p>今天我在北师大将为100多位中小学校长讲授法律问题，大家有啥说的？<br><img src="http://ww2.sinaimg.cn/large/58500250jw1f37gmbtkg9j20gl0ce3z6.jpg"></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3967571957602921" target="freeweibo-mirror">SPAM [拜拜]//@以念为安11 :千万不要看最后一个[…</a>
 </h2>
