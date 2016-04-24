@@ -65,7 +65,7 @@
 </h2>
 <p>美国总统，竟然如此评价党毛？！？是实事求是？？还是一针见血？？？<br><img src="http://ww2.sinaimg.cn/large/006k3EKAjw1f37ruzqer0j30ms0dfjsu.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3967758116678640" target="freeweibo-mirror">//@鲲鹏展翅qd: //@浦江谈叔://@DopeyTom…</a>
 </h2>
@@ -101,7 +101,7 @@
 </h2>
 <p>三峡工程，一些不为人知的内幕。<br><img src="http://ww2.sinaimg.cn/large/8603d4cfgw1f37jc4zxeij20jk5nfkjl.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3967698499052227" target="freeweibo-mirror">热烈祝贺习总成为全球最懂球“领袖”！[鼓掌][鼓掌][鼓掌]…</a>
 </h2>
