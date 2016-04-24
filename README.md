@@ -35,7 +35,7 @@
 </h2>
 <p>SPAM 左下角正在开枪射击，是发射催泪弹吗？//@陈业文新大都: [草泥马][草泥马][草泥马]//@孔_智勇:这样维，会稳吗？ //@孟庆明v: 攘外必先安内？！<br><br>RE: 一片狼藉…… http://t.cn/RqqIuLs</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3967875868141402" target="freeweibo-mirror">SPAM 什么事情？ //@笨笨an:卧槽。。。</a>
 </h2>
