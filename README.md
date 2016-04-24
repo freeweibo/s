@@ -77,7 +77,7 @@
 </h2>
 <p>[衰]消息不算靠谱 //@笨笨an:这届夫人不行？//@LifeTime:怕是不妥。说不定领导是好的，只是夫人被芮成钢勾走了。[悲催]<br><br>RE: 央视新闻：如果你能把这十八位高官的姓名在新闻联播里播放出来，我向你大爷保证，从今之后再也不骂你了。我说话算数，立帖为证！<br><img src="http://ww2.sinaimg.cn/large/005M7QzIjw1f36g34y7zhj30r20gmn0l.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3967909414549035" target="freeweibo-mirror">我最大的弱点也是我最大的优点：气太容易消。</a>
 </h2>
@@ -113,7 +113,7 @@
 </h2>
 <p>SPAM //@烟雨更冷m: //@何光伟: 老了后，你就成了我[泪]<br><br>RE: 这届老兵不行 http://t.cn/Rq04lZ6 .</p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3967879655173986" target="freeweibo-mirror">SPAM 左下角正在开枪射击，是发射催泪弹吗？//@陈业文新…</a>
 </h2>
