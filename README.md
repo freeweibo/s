@@ -35,7 +35,7 @@
 </h2>
 <p>热烈祝贺习总成为全球最懂球“领袖”！[鼓掌][鼓掌][鼓掌]以后可以不叫包子吗？<br><img src="http://ww1.sinaimg.cn/large/b9e8e593gw1f37gzjkm8wj20hs0vkgpe.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3967571957602921" target="freeweibo-mirror">SPAM [拜拜]//@以念为安11 :千万不要看最后一个[…</a>
 </h2>
