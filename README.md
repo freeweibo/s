@@ -19,6 +19,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3967758116678640" target="freeweibo-mirror">//@鲲鹏展翅qd: //@浦江谈叔://@DopeyTom…</a>
+</h2>
+<p>//@鲲鹏展翅qd: //@浦江谈叔://@DopeyTom:“这个三峡工程几乎都是负面的。唯一的就是它能够发电，可是它们居然把这个发电机给它剥离出来，变成了‘长江电力’，基本又是他们家的了。”<br><br>RE: 三峡工程，一些不为人知的内幕。<br><img src="http://ww2.sinaimg.cn/large/8603d4cfgw1f37jc4zxeij20jk5nfkjl.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3967754065453639" target="freeweibo-mirror">[哆啦A梦吃惊]//@carlvinson金牛: //@碧落…</a>
 </h2>
 <p>[哆啦A梦吃惊]//@carlvinson金牛: //@碧落黄泉:这车太清真  //@GeniusVczh:果然清真 //@巴哈姆特zero: 太他妈牛逼了，第一次见清真车 //@忙借东风放纸鸢:卧槽，来一波清真车//@诸葛夏彤：评论居然有这么多没见过世面的，老司机让你们开开眼。穆斯林A片网→muslimass.com     http://t.cn/RqpSjWq<br><br>RE: 强烈谴责如图这种行为。希望可以对于发布原图的账号采取封号等惩戒措施。<br><img src="http://ww3.sinaimg.cn/large/8f1bd71bgw1f36l53il5gj20k00f0wh1.jpg"></p>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3967549412088844" target="freeweibo-mirror">//@夙生律师事务所://@主权在民天赋人权: 转发微博</a>
 </h2>
 <p>//@夙生律师事务所://@主权在民天赋人权: 转发微博<br><br>RE: 【求辟谣：前央视名嘴芮成钢情妇多达18人】港媒爆料前央视名嘴芮成钢情妇多达18人，且多为高官夫人。声称代表亚洲、与美国总统是哥们的，与令计划夫人关系非同寻常的钢钢代表原来是个情种子。港媒的爆料有损CCTV形象，有损伟光正党形象，求辟谣！<br><img src="http://ww3.sinaimg.cn/large/bea89b59jw1f367d6sar3j21kw0npwjc.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3967544723409483" target="freeweibo-mirror">#网络义勇军发布# 广电总局责令papi酱视频下线整改，错了…</a>
-</h2>
-<p>#网络义勇军发布# 广电总局责令papi酱视频下线整改，错了么？（此处省略一千问[笑cry]）请教：@人民日报 ：你们微博和客户端今中午、晚上连放两大招，你们这是要挺酱？要搞僵？还是要将军？网络义勇军注意到：个别网友的和风细雨被你们“和谐”了，准备怎么对待此帖？抄送：@12321举报中心 @紫光阁<br><img src="http://ww2.sinaimg.cn/large/005JyiuVgw1f36yu1wbsuj30k00zkq6t.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
