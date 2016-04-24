@@ -19,6 +19,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3968032378050941" target="freeweibo-mirror">SPAM //@人性之美丽: 不要去听 别人的忽悠，你人生的…</a>
+</h2>
+<p>SPAM //@人性之美丽: 不要去听 别人的忽悠，你人生的每一步都必须 靠自己的能力完成。自己肚子里 没有料，手上没本事，认识 再多人也没用。人脉只会给你机会，但抓住机会还是要靠真本事。所以啊，修炼自己，比到处逢迎别人重要的多。</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3967953353412111" target="freeweibo-mirror">SPAM 广州最全的吃喝玩乐攻略[心]搜索 gzlife55…</a>
 </h2>
 <p>SPAM 广州最全的吃喝玩乐攻略[心]搜索 gzlife550 关 注 ，带你玩转全广州！[心]</p>
@@ -41,7 +47,7 @@
 </h2>
 <p>SPAM //@叶匡政://@郝劲松:这是哪个厂的烟花？威力巨大啊1<br><br>RE: 抗日小电影！ http://t.cn/Rq0LQJB .</p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3967929164795010" target="freeweibo-mirror">SPAM 睡前必看</a>
 </h2>
@@ -53,7 +59,7 @@
 </h2>
 <p>//@森政嘉嘉:杨佳语，你不给我说法，我就给你说法！自焚在文明国度会引起你所希望的效果，对不起，在天朝没有用[衰]<br><br>RE: 【自焚不如抗争】今天中午，网传一段自焚视频，自焚者生死不明，现场画面让人心碎......有网友发出质问：你有勇气自焚，为何不拼死抗争？现场警察为何不事先准备好灭火器？现场围观者为何不及时出手相救？发帖者为何不敢公开事件发生的时间、地点和事由？-----强烈求证事件真相！http://t.cn/RqpBSkk</p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3967913411293218" target="freeweibo-mirror">[给力]//@功夫Lee熊猫: //@良心-医生:转发微博</a>
 </h2>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3967875868141402" target="freeweibo-mirror">SPAM 什么事情？ //@笨笨an:卧槽。。。</a>
 </h2>
 <p>SPAM 什么事情？ //@笨笨an:卧槽。。。<br><br>RE: 一片狼藉…… http://t.cn/RqqIuLs</p>
-<p>
-	<small> ============== 11小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3967875713173775" target="freeweibo-mirror">SPAM 殴斗双方，都是百姓。//@臧建春V: 进村了…</a>
-</h2>
-<p>SPAM 殴斗双方，都是百姓。//@臧建春V: 进村了…<br><br>RE: 一片狼藉…… http://t.cn/RqqIuLs</p>
 <p>
 	<small> ============== 11小时前</small>
 </p>
