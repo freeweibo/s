@@ -41,7 +41,7 @@
 </h2>
 <p>无视法治，会自食其果。 http://t.cn/Rqp8DJA</p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3967560024395073" target="freeweibo-mirror">[哈哈] //@风神祭二十六叔:可见天朝人心已散，一片混乱。…</a>
 </h2>
@@ -137,7 +137,7 @@
 </h2>
 <p>习近平新加坡喜剧片小键盘香蕉皮洗脚盆小洁癖。。。<br><br>RE: 这个绝对是笔误，正确的写法应该是“吉隆坡总书记”。@人民网<br><img src="http://ww2.sinaimg.cn/large/8b3902cagw1f36uzdi7ebj20k00zk42t.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p>
 <table>
     <tr>
