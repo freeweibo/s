@@ -59,7 +59,7 @@
 </h2>
 <p>热烈祝贺习总成为全球最懂球“领袖”！[鼓掌][鼓掌][鼓掌]以后可以不叫包子吗？<br><img src="http://ww1.sinaimg.cn/large/b9e8e593gw1f37gzjkm8wj20hs0vkgpe.jpg"></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3967695273161082" target="freeweibo-mirror">今天我在北师大将为100多位中小学校长讲授法律问题，大家有啥…</a>
 </h2>
