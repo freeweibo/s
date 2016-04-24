@@ -137,7 +137,7 @@
 </h2>
 <p>SPAM 什么事情？ //@笨笨an:卧槽。。。<br><br>RE: 一片狼藉…… http://t.cn/RqqIuLs</p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p>
 <table>
     <tr>
