@@ -55,6 +55,12 @@
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3967826324156788" target="freeweibo-mirror">【川师大凶案办案警察要求死者亲属致歉】3月27日，四川师范大…</a>
+</h2>
+<p>【川师大凶案办案警察要求死者亲属致歉】3月27日，四川师范大学学生滕某将室友芦海清砍杀。近日，死者哥哥芦海强被负责此案的民警叫到公安局，他本以为能了解案件进展，不料却被对方要求致歉，理由是此前芦海强泄露本案“秘密”。当记者质疑警方时，被呵斥“滚出去”。http://t.cn/Rq02mb9</p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3967758116678640" target="freeweibo-mirror">//@鲲鹏展翅qd: //@浦江谈叔://@DopeyTom…</a>
 </h2>
 <p>//@鲲鹏展翅qd: //@浦江谈叔://@DopeyTom:“这个三峡工程几乎都是负面的。唯一的就是它能够发电，可是它们居然把这个发电机给它剥离出来，变成了‘长江电力’，基本又是他们家的了。”<br><br>RE: 三峡工程，一些不为人知的内幕。<br><img src="http://ww2.sinaimg.cn/large/8603d4cfgw1f37jc4zxeij20jk5nfkjl.jpg"></p>
@@ -89,7 +95,7 @@
 </h2>
 <p>三峡工程，一些不为人知的内幕。<br><img src="http://ww2.sinaimg.cn/large/8603d4cfgw1f37jc4zxeij20jk5nfkjl.jpg"></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3967698499052227" target="freeweibo-mirror">热烈祝贺习总成为全球最懂球“领袖”！[鼓掌][鼓掌][鼓掌]…</a>
 </h2>
@@ -101,7 +107,7 @@
 </h2>
 <p>今天我在北师大将为100多位中小学校长讲授法律问题，大家有啥说的？<br><img src="http://ww2.sinaimg.cn/large/58500250jw1f37gmbtkg9j20gl0ce3z6.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3967571957602921" target="freeweibo-mirror">SPAM [拜拜]//@以念为安11 :千万不要看最后一个[…</a>
 </h2>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3967560024395073" target="freeweibo-mirror">[哈哈] //@风神祭二十六叔:可见天朝人心已散，一片混乱。…</a>
 </h2>
 <p>[哈哈] //@风神祭二十六叔:可见天朝人心已散，一片混乱。//@沉船别动队:转发微博<br><br>RE: 拼音打字法，xip～～～<br><img src="http://ww4.sinaimg.cn/large/5f6520eagw1f370v1s3zyj20b90m80tw.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3967559709584428" target="freeweibo-mirror">//@又来金好多: //@天南地北大魔王://@花前一壶酒0…</a>
-</h2>
-<p>//@又来金好多: //@天南地北大魔王://@花前一壶酒09://@马克思的粉丝:转发微博<br><br>RE: 铜锣湾出版社在台成立<br><img src="http://ww1.sinaimg.cn/large/006r8i01gw1f3708v5ut0j30go0sggr6.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
