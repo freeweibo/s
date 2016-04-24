@@ -47,13 +47,13 @@
 </h2>
 <p>[哈哈] //@风神祭二十六叔:可见天朝人心已散，一片混乱。//@沉船别动队:转发微博<br><br>RE: 拼音打字法，xip～～～<br><img src="http://ww4.sinaimg.cn/large/5f6520eagw1f370v1s3zyj20b90m80tw.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3967559709584428" target="freeweibo-mirror">//@又来金好多: //@天南地北大魔王://@花前一壶酒0…</a>
 </h2>
 <p>//@又来金好多: //@天南地北大魔王://@花前一壶酒09://@马克思的粉丝:转发微博<br><br>RE: 铜锣湾出版社在台成立<br><img src="http://ww1.sinaimg.cn/large/006r8i01gw1f3708v5ut0j30go0sggr6.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3967558165986458" target="freeweibo-mirror">拼音打字法，xip～～～</a>
 </h2>
@@ -71,25 +71,25 @@
 </h2>
 <p>铜锣湾出版社在台成立<br><img src="http://ww1.sinaimg.cn/large/006r8i01gw1f3708v5ut0j30go0sggr6.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3967552658433946" target="freeweibo-mirror">SPAM //@小道信息: //@rightman198: …</a>
 </h2>
 <p>SPAM //@小道信息: //@rightman198: 转发微博<br><br>RE: 新加坡报纸，是造谣不？求澄清。<br><img src="http://ww1.sinaimg.cn/large/48c00fbbgw1f36vwtvrflj20zk0qon68.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3967552126046472" target="freeweibo-mirror">→_→ //@东海老鲵:新加坡，xjp，哦，理由是有的，那要…</a>
 </h2>
 <p>→_→ //@东海老鲵:新加坡，xjp，哦，理由是有的，那要编辑校对作甚？//@中华义勇军召集人:[话筒]→_→<br><br>RE: #网络义勇军发布# 广电总局责令papi酱视频下线整改，错了么？（此处省略一千问[笑cry]）请教：@人民日报 ：你们微博和客户端今中午、晚上连放两大招，你们这是要挺酱？要搞僵？还是要将军？网络义勇军注意到：个别网友的和风细雨被你们“和谐”了，准备怎么对待此帖？抄送：@12321举报中心 @紫光阁<br><img src="http://ww2.sinaimg.cn/large/005JyiuVgw1f36yu1wbsuj30k00zkq6t.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3967552063408199" target="freeweibo-mirror">说到底就是这届人民不行//@Marco_徐晓峰: //@八大…</a>
 </h2>
 <p>说到底就是这届人民不行//@Marco_徐晓峰: //@八大山债人: //@李靖云: 这届就是段子手还行。</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3967549412088844" target="freeweibo-mirror">//@夙生律师事务所://@主权在民天赋人权: 转发微博</a>
 </h2>
