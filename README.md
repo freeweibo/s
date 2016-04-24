@@ -25,6 +25,18 @@
 <p>
 	<small> ============== 1小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3967913055217249" target="freeweibo-mirror">若如此，我保证天天准时收看新闻联播。</a>
+</h2>
+<p>若如此，我保证天天准时收看新闻联播。<br><br>RE: 央视新闻：如果你能把这十八位高官的姓名在新闻联播里播放出来，我向你大爷保证，从今之后再也不骂你了。我说话算数，立帖为证！<br><img src="http://ww2.sinaimg.cn/large/005M7QzIjw1f36g34y7zhj30r20gmn0l.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3967911493898460" target="freeweibo-mirror">[衰]消息不算靠谱 //@笨笨an:这届夫人不行？//@Li…</a>
+</h2>
+<p>[衰]消息不算靠谱 //@笨笨an:这届夫人不行？//@LifeTime:怕是不妥。说不定领导是好的，只是夫人被芮成钢勾走了。[悲催]<br><br>RE: 央视新闻：如果你能把这十八位高官的姓名在新闻联播里播放出来，我向你大爷保证，从今之后再也不骂你了。我说话算数，立帖为证！<br><img src="http://ww2.sinaimg.cn/large/005M7QzIjw1f36g34y7zhj30r20gmn0l.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3967908948845447" target="freeweibo-mirror">//@笨笨an: 这届夫人不行？//@LifeTime:怕是…</a>
 </h2>
 <p>//@笨笨an: 这届夫人不行？//@LifeTime:怕是不妥。说不定领导是好的，只是夫人被芮成钢勾走了。[悲催]<br><br>RE: 央视新闻：如果你能把这十八位高官的姓名在新闻联播里播放出来，我向你大爷保证，从今之后再也不骂你了。我说话算数，立帖为证！<br><img src="http://ww2.sinaimg.cn/large/005M7QzIjw1f36g34y7zhj30r20gmn0l.jpg"></p>
@@ -47,7 +59,7 @@
 </h2>
 <p>SPAM //@烟雨更冷m: //@何光伟: 老了后，你就成了我[泪]<br><br>RE: 这届老兵不行 http://t.cn/Rq04lZ6 .</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3967879655173986" target="freeweibo-mirror">SPAM 左下角正在开枪射击，是发射催泪弹吗？//@陈业文新…</a>
 </h2>
@@ -107,13 +119,13 @@
 </h2>
 <p>SPAM //@许冰_律师: //@何光伟:老了后，你就成了我[泪]<br><br>RE: 这届老兵不行 http://t.cn/Rq04lZ6 .</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3967865160358917" target="freeweibo-mirror">SPAM //@孔_智勇: 开枪了……  //@陈明登: 枪…</a>
 </h2>
 <p>SPAM //@孔_智勇: 开枪了……  //@陈明登: 枪口对准了村民……<br><br>RE: 一片狼藉…… http://t.cn/RqqIuLs</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3967863280978800" target="freeweibo-mirror">SPAM asdsadas   [亲亲]asdfgg</a>
 </h2>
@@ -124,18 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3967862055987732" target="freeweibo-mirror">SPAM dhdhdhdGJLMNVCZ纷纷行动的反弹#性与…</a>
 </h2>
 <p>SPAM dhdhdhdGJLMNVCZ纷纷行动的反弹#性与爱的那点事# [实习]hadndndndbd男女之间那些事儿大家都怎么看呵呵#成人动作#Mdjdhdjdk<br><img src="http://ww3.sinaimg.cn/large/6fb4b747jw1f37zrldls5j20di0l8dhk.jpg"></p>
-<p>
-	<small> ============== 5小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3967853407197553" target="freeweibo-mirror">SPAM 先删，从另外角度声援！ //@狼评天下的微博:删帖…</a>
-</h2>
-<p>SPAM 先删，从另外角度声援！ //@狼评天下的微博:删帖就能解决问题？//@般若观:似乎是压力！删吧 //@赛县长:为什么要删除？//@般若观:阳彪先删除此贴，以利问题解决！要么是民宗委沙特内奸施压，@紫光阁 @中国政府网 @新华社中国网事 @道教祖庭天师府 @李信军道长  //@格瓦拉真英雄</p>
-<p>
-	<small> ============== 5小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3967852632003949" target="freeweibo-mirror">同样是政治人物，还是有差距，天差地别。//@王周生:政治家不…</a>
-</h2>
-<p>同样是政治人物，还是有差距，天差地别。//@王周生:政治家不骗怎么行? 尼克松也一样。只不过，他被美国宪法制约，当了总统不姓党，姓民。<br><br>RE: 美国总统，竟然如此评价党毛？！？是实事求是？？还是一针见血？？？<br><img src="http://ww2.sinaimg.cn/large/006k3EKAjw1f37ruzqer0j30ms0dfjsu.jpg"></p>
 <p>
 	<small> ============== 5小时前</small>
 </p>
