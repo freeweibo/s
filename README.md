@@ -113,7 +113,7 @@
 </h2>
 <p>SPAM //@陈业文新大都:[吃惊]//@ICO刘开明://@夏伦刚:原来如此！//@法律及其价值: //@风中楠竹:原来如此，岳不群君。<br><br>RE: 新加坡报纸，是造谣不？求澄清。<br><img src="http://ww1.sinaimg.cn/large/48c00fbbgw1f36vwtvrflj20zk0qon68.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3967531028506886" target="freeweibo-mirror">无耻造谣，中国为与东南亚国家友好相处，不承认双重国籍，劝说几…</a>
 </h2>
