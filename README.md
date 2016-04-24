@@ -53,7 +53,7 @@
 </h2>
 <p>三峡工程，一些不为人知的内幕。<br><img src="http://ww2.sinaimg.cn/large/8603d4cfgw1f37jc4zxeij20jk5nfkjl.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3967698499052227" target="freeweibo-mirror">热烈祝贺习总成为全球最懂球“领袖”！[鼓掌][鼓掌][鼓掌]…</a>
 </h2>
