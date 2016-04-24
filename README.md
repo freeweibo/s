@@ -59,7 +59,13 @@
 </h2>
 <p>【川师大凶案办案警察要求死者亲属致歉】3月27日，四川师范大学学生滕某将室友芦海清砍杀。近日，死者哥哥芦海强被负责此案的民警叫到公安局，他本以为能了解案件进展，不料却被对方要求致歉，理由是此前芦海强泄露本案“秘密”。当记者质疑警方时，被呵斥“滚出去”。http://t.cn/Rq02mb9</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3967793550295488" target="freeweibo-mirror">美国总统，竟然如此评价党毛？！？是实事求是？？还是一针见血？…</a>
+</h2>
+<p>美国总统，竟然如此评价党毛？！？是实事求是？？还是一针见血？？？<br><img src="http://ww2.sinaimg.cn/large/006k3EKAjw1f37ruzqer0j30ms0dfjsu.jpg"></p>
+<p>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3967758116678640" target="freeweibo-mirror">//@鲲鹏展翅qd: //@浦江谈叔://@DopeyTom…</a>
 </h2>
@@ -101,7 +107,7 @@
 </h2>
 <p>热烈祝贺习总成为全球最懂球“领袖”！[鼓掌][鼓掌][鼓掌]以后可以不叫包子吗？<br><img src="http://ww1.sinaimg.cn/large/b9e8e593gw1f37gzjkm8wj20hs0vkgpe.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3967695273161082" target="freeweibo-mirror">今天我在北师大将为100多位中小学校长讲授法律问题，大家有啥…</a>
 </h2>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3967568508659432" target="freeweibo-mirror">无视法治，会自食其果。 http://t.cn/Rqp8DJ…</a>
 </h2>
 <p>无视法治，会自食其果。 http://t.cn/Rqp8DJA</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3967560024395073" target="freeweibo-mirror">[哈哈] //@风神祭二十六叔:可见天朝人心已散，一片混乱。…</a>
-</h2>
-<p>[哈哈] //@风神祭二十六叔:可见天朝人心已散，一片混乱。//@沉船别动队:转发微博<br><br>RE: 拼音打字法，xip～～～<br><img src="http://ww4.sinaimg.cn/large/5f6520eagw1f370v1s3zyj20b90m80tw.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
