@@ -29,11 +29,17 @@
 </h2>
 <p>SPAM //@烟雨更冷m: //@何光伟: 老了后，你就成了我[泪]<br><br>RE: 这届老兵不行 http://t.cn/Rq04lZ6 .</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3967879655173986" target="freeweibo-mirror">SPAM 左下角正在开枪射击，是发射催泪弹吗？//@陈业文新…</a>
 </h2>
 <p>SPAM 左下角正在开枪射击，是发射催泪弹吗？//@陈业文新大都: [草泥马][草泥马][草泥马]//@孔_智勇:这样维，会稳吗？ //@孟庆明v: 攘外必先安内？！<br><br>RE: 一片狼藉…… http://t.cn/RqqIuLs</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3967878107474135" target="freeweibo-mirror">SPAM 屋顶就不是国内的特点。另外，天朝警察才不会这样开枪…</a>
+</h2>
+<p>SPAM 屋顶就不是国内的特点。另外，天朝警察才不会这样开枪呢。又不傻。 //@郑维:什么事情？ //@笨笨an:卧槽。。。<br><br>RE: 一片狼藉…… http://t.cn/RqqIuLs</p>
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
@@ -61,6 +67,12 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3967872939932717" target="freeweibo-mirror">//@火旺世家: 就这吓场//@就在这里V://@清华池一级…</a>
+</h2>
+<p>//@火旺世家: 就这吓场//@就在这里V://@清华池一级搓泥工:别抛弃过去的打手，他们中间说不定谁就为你们沾满了人民的鲜血//@悠悠闲闲的看看:别抛弃老兵。[泪]//@何光伟:老了后，你就成了我[泪]<br><br>RE: 这届老兵不行 http://t.cn/Rq04lZ6 .</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3967867751896111" target="freeweibo-mirror">SPAM [汗]//@法律人童朝平: //@许冰_律师: /…</a>
 </h2>
 <p>SPAM [汗]//@法律人童朝平: //@许冰_律师: //@何光伟:老了后，你就成了我[泪]<br><br>RE: 这届老兵不行 http://t.cn/Rq04lZ6 .</p>
@@ -77,13 +89,13 @@
 </h2>
 <p>SPAM //@许冰_律师: //@何光伟:老了后，你就成了我[泪]<br><br>RE: 这届老兵不行 http://t.cn/Rq04lZ6 .</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3967865160358917" target="freeweibo-mirror">SPAM //@孔_智勇: 开枪了……  //@陈明登: 枪…</a>
 </h2>
 <p>SPAM //@孔_智勇: 开枪了……  //@陈明登: 枪口对准了村民……<br><br>RE: 一片狼藉…… http://t.cn/RqqIuLs</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3967853407197553" target="freeweibo-mirror">SPAM 先删，从另外角度声援！ //@狼评天下的微博:删帖…</a>
 </h2>
@@ -126,18 +138,6 @@
 <p>【川师大凶案办案警察要求死者亲属致歉】3月27日，四川师范大学学生滕某将室友芦海清砍杀。近日，死者哥哥芦海强被负责此案的民警叫到公安局，他本以为能了解案件进展，不料却被对方要求致歉，理由是此前芦海强泄露本案“秘密”。当记者质疑警方时，被呵斥“滚出去”。http://t.cn/Rq02mb9</p>
 <p>
 	<small> ============== 5小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3967825721044795" target="freeweibo-mirror">这届老兵不行 http://t.cn/Rq04lZ6 .</a>
-</h2>
-<p>这届老兵不行 http://t.cn/Rq04lZ6 .</p>
-<p>
-	<small> ============== 5小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3967793550295488" target="freeweibo-mirror">美国总统，竟然如此评价党毛？！？是实事求是？？还是一针见血？…</a>
-</h2>
-<p>美国总统，竟然如此评价党毛？！？是实事求是？？还是一针见血？？？<br><img src="http://ww2.sinaimg.cn/large/006k3EKAjw1f37ruzqer0j30ms0dfjsu.jpg"></p>
-<p>
-	<small> ============== 7小时前</small>
 </p>
 <table>
     <tr>
