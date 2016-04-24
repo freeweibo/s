@@ -29,7 +29,7 @@
 </h2>
 <p>[哆啦A梦吃惊]//@carlvinson金牛: //@碧落黄泉:这车太清真  //@GeniusVczh:果然清真 //@巴哈姆特zero: 太他妈牛逼了，第一次见清真车 //@忙借东风放纸鸢:卧槽，来一波清真车//@诸葛夏彤：评论居然有这么多没见过世面的，老司机让你们开开眼。穆斯林A片网→muslimass.com     http://t.cn/RqpSjWq<br><br>RE: 强烈谴责如图这种行为。希望可以对于发布原图的账号采取封号等惩戒措施。<br><img src="http://ww3.sinaimg.cn/large/8f1bd71bgw1f36l53il5gj20k00f0wh1.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3967727884571791" target="freeweibo-mirror">SPAM 一到重庆就只记得火锅了[拜拜]</a>
 </h2>
