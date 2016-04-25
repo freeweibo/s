@@ -41,7 +41,7 @@
 </h2>
 <p>//@哒摩-之剑: 裆奴恶犬！[怒] //@回头系岸D://@X大胡话://@深圳吕伟江苏://@国际商报观察://@涛声依旧201566:转发微博<br><br>RE: 民众有诉求，警察就上阵。奇葩！政府官员躲猫猫。 http://t.cn/Rq0nh9q .</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3968233776730446" target="freeweibo-mirror">SPAM [馋嘴][馋嘴][馋嘴]</a>
 </h2>
@@ -101,7 +101,7 @@
 </h2>
 <p>[嘻嘻]请多多关照<br><img src="http://ww1.sinaimg.cn/large/be2269e7gw1f38yslms09j20by0bygm6.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3968141371672672" target="freeweibo-mirror">言论自由什么时候可以这样解释了？微博是个商业媒体，有自己对内…</a>
 </h2>
