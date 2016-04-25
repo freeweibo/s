@@ -29,7 +29,7 @@
 </h2>
 <p>SPAM //@人性之美丽: 不要去听 别人的忽悠，你人生的每一步都必须 靠自己的能力完成。自己肚子里 没有料，手上没本事，认识 再多人也没用。人脉只会给你机会，但抓住机会还是要靠真本事。所以啊，修炼自己，比到处逢迎别人重要的多。</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3967953353412111" target="freeweibo-mirror">SPAM 广州最全的吃喝玩乐攻略[心]搜索 gzlife55…</a>
 </h2>
@@ -95,7 +95,7 @@
 </h2>
 <p>[衰]消息不算靠谱 //@笨笨an:这届夫人不行？//@LifeTime:怕是不妥。说不定领导是好的，只是夫人被芮成钢勾走了。[悲催]<br><br>RE: 央视新闻：如果你能把这十八位高官的姓名在新闻联播里播放出来，我向你大爷保证，从今之后再也不骂你了。我说话算数，立帖为证！<br><img src="http://ww2.sinaimg.cn/large/005M7QzIjw1f36g34y7zhj30r20gmn0l.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3967909414549035" target="freeweibo-mirror">我最大的弱点也是我最大的优点：气太容易消。</a>
 </h2>
