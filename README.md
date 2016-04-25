@@ -35,7 +35,7 @@
 </h2>
 <p>//@哒摩-之剑: 裆奴恶犬！[怒] //@回头系岸D://@X大胡话://@深圳吕伟江苏://@国际商报观察://@涛声依旧201566:转发微博<br><br>RE: 民众有诉求，警察就上阵。奇葩！政府官员躲猫猫。 http://t.cn/Rq0nh9q .</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3968233776730446" target="freeweibo-mirror">SPAM [馋嘴][馋嘴][馋嘴]</a>
 </h2>
@@ -91,6 +91,12 @@
 <p>
 	<small> ============== 8小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3968167086626556" target="freeweibo-mirror">[嘻嘻]请多多关照</a>
+</h2>
+<p>[嘻嘻]请多多关照<br><img src="http://ww1.sinaimg.cn/large/be2269e7gw1f38yslms09j20by0bygm6.jpg"></p>
+<p>
+	<small> ============== 9小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3968141371672672" target="freeweibo-mirror">言论自由什么时候可以这样解释了？微博是个商业媒体，有自己对内…</a>
 </h2>
 <p>言论自由什么时候可以这样解释了？微博是个商业媒体，有自己对内容的选择权，Facebook删帖可一点没少过。言论自由是指你可以自己开个微博，在不违反宪法其他条款(比如人人平等不得种族歧视)的情况下可以让用户自由发帖。<br><br>RE: 茅于轼：删人家的微博，妨碍言论自由，是违背宪法的行为。我们要据理力争。百姓除了用宪法保护自由就没有别的工具了。如果连这个唯一的工具也放弃了，就只能束手待毙。呼吁一切权利受到侵犯的人都拿起宪法去讲理。中国的宪法不难在互联网上能找到。法律越用越有用；越不用就完全没用了。<br><img src="http://ww2.sinaimg.cn/large/9bbea019jw1f38vkytxgij20j60a2wfh.jpg"></p>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3968099730886440" target="freeweibo-mirror">【拳脚间流失的公信】今晨，网传一段“警察暴打的哥”的视频..…</a>
 </h2>
 <p>【拳脚间流失的公信】今晨，网传一段“警察暴打的哥”的视频......微评：不管出于什么原因，警察都不该也无权在公共场合对的哥拳脚相加。就算是的哥不小心撞倒了警摩，那又怎样？至于对的哥大打出手吗？执法者如此滥用公权，无法无天，受伤的是的哥，受损的是公信！----吁请人肉！http://t.cn/Rq0YAMO</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3968095489829399" target="freeweibo-mirror">民众有诉求，警察就上阵。奇葩！政府官员躲猫猫。 http:/…</a>
-</h2>
-<p>民众有诉求，警察就上阵。奇葩！政府官员躲猫猫。 http://t.cn/Rq0nh9q .</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
