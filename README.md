@@ -29,7 +29,7 @@
 </h2>
 <p>SPAM //@人性之美丽: 不要去听 别人的忽悠，你人生的每一步都必须 靠自己的能力完成。自己肚子里 没有料，手上没本事，认识 再多人也没用。人脉只会给你机会，但抓住机会还是要靠真本事。所以啊，修炼自己，比到处逢迎别人重要的多。</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3967953353412111" target="freeweibo-mirror">SPAM 广州最全的吃喝玩乐攻略[心]搜索 gzlife55…</a>
 </h2>
@@ -53,13 +53,13 @@
 </h2>
 <p>SPAM //@叶匡政://@郝劲松:这是哪个厂的烟花？威力巨大啊1<br><br>RE: 抗日小电影！ http://t.cn/Rq0LQJB .</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3967933321401455" target="freeweibo-mirror">邪教横行香港无法无天，市民忍无可忍向轮子拋撒溪錢泄愤，爱国港…</a>
 </h2>
 <p>邪教横行香港无法无天，市民忍无可忍向轮子拋撒溪錢泄愤，爱国港人威武！ http://t.cn/Rq0CgrG .</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3967929164795010" target="freeweibo-mirror">SPAM 睡前必看</a>
 </h2>
