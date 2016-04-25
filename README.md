@@ -19,6 +19,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3968233776730446" target="freeweibo-mirror">SPAM [馋嘴][馋嘴][馋嘴]</a>
+</h2>
+<p>SPAM [馋嘴][馋嘴][馋嘴]</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3968208194923332" target="freeweibo-mirror">【今日精萃】 1、书上看不到的历史真 相！2、火山灰下发现了…</a>
 </h2>
 <p>【今日精萃】 1、书上看不到的历史真 相！2、火山灰下发现了一座骄 奢淫 逸的欲 望都市，彻底震惊了世界！！3、袁腾飞评价张 学 良 太给力了！！ 4、3分钟读懂整个抗战史！5、姜子牙推算的万年中国，很准很震惊！----更多精彩 内容请关注 公 众 wei 信：这不是歴史 複製 添 加：zhebsls<br><img src="http://ww2.sinaimg.cn/large/9647a31egw1f393hnjz2nj20c80lrdgn.jpg"></p>
@@ -47,7 +53,7 @@
 </h2>
 <p>//@腾讯廉政公暑: //@涛声依旧201566: //@郭解放v: 转发微博<br><br>RE: 转帖：如果没有台湾，我们可能会相信中华民族是劣等民族，中国人素质低不适合民主。台湾用了短短二十年时间，就走完了美国佬两百多年走过的路程，把同时代走上民主之路的西方大国俄罗斯远远甩在后边，用雄辩的事实证明了中国人一样能把人类文明的共同成果民主宪政做得很出色！ http://t.cn/Ryhj0Lg<br><img src="http://ww4.sinaimg.cn/large/005AYMpwgw1f388nznx12j30l30hsdhf.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3968195205672884" target="freeweibo-mirror">@老夫子001:@觉远_27445:秘密分地?回@法律谷歌:…</a>
 </h2>
@@ -59,7 +65,7 @@
 </h2>
 <p>SPAM #大大的娱#[爱你][爱你][爱你][爱你]<br><img src="http://ww1.sinaimg.cn/large/6c9aa2a8gw1f390n33darj20hs0vl77z.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3968176276014877" target="freeweibo-mirror">//@蔚蓝1916ROC: 八国联军攻陷北京，光绪慈禧西逃多…</a>
 </h2>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3967939629652110" target="freeweibo-mirror">SPAM http://t.cn/Rq0N3gv 中原文化嘛…</a>
 </h2>
 <p>SPAM http://t.cn/Rq0N3gv 中原文化嘛。中国人绝大多数以亲缘(亲戚)、地缘(老乡)和学缘(同门)及仕缘(同僚)为轴心，依次向外展开人脉。首先是感情，其次是认同，最后才是信任和价值观，没理念什么事。[挖鼻]我们家则没这个，天生就不是以血缘为始，看谁都洞察本质，直指人心，六亲不认也很正常[哈哈]</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3967939491092377" target="freeweibo-mirror">转帖：如果没有台湾，我们可能会相信中华民族是劣等民族，中国人…</a>
-</h2>
-<p>转帖：如果没有台湾，我们可能会相信中华民族是劣等民族，中国人素质低不适合民主。台湾用了短短二十年时间，就走完了美国佬两百多年走过的路程，把同时代走上民主之路的西方大国俄罗斯远远甩在后边，用雄辩的事实证明了中国人一样能把人类文明的共同成果民主宪政做得很出色！ http://t.cn/Ryhj0Lg<br><img src="http://ww4.sinaimg.cn/large/005AYMpwgw1f388nznx12j30l30hsdhf.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
