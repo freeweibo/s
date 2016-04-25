@@ -23,7 +23,7 @@
 </h2>
 <p>SPAM 蠢货佐政，必出大乱子！ //@酷是我的专利: //@防务君:重大失误 //@大死兄被续不是正常的吗:啊咧<br><br>RE: 一字不差，全文转载。[笑哈哈][笑哈哈][笑哈哈]<br><img src="http://ww1.sinaimg.cn/large/4f4fba28gw1f396tlmmv4j20ku1120y6.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3968273764767425" target="freeweibo-mirror">SPAM 想膄就进来学习</a>
 </h2>
@@ -95,7 +95,7 @@
 </h2>
 <p>//@蔚蓝1916ROC: 八国联军攻陷北京，光绪慈禧西逃多赖甘军护驾，赏赐多多，西北诸马亦崭露头角相继发迹//@十年砍柴:看纪录片《习仲勋》，远平忆：伯祖父（即仲勋的伯父）小名“老虎”，为董福祥甘军一员，庚子事变两宫西巡，老虎回乡探亲留下一笔银子，然后归队不知所终。习家用这笔钱买田发家。</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3968167086626556" target="freeweibo-mirror">[嘻嘻]请多多关照</a>
 </h2>
