@@ -131,7 +131,7 @@
 </h2>
 <p>SPAM 屋顶就不是国内的特点。另外，天朝警察才不会这样开枪呢。又不傻。 //@郑维:什么事情？ //@笨笨an:卧槽。。。<br><br>RE: 一片狼藉…… http://t.cn/RqqIuLs</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3967875868141402" target="freeweibo-mirror">SPAM 什么事情？ //@笨笨an:卧槽。。。</a>
 </h2>
