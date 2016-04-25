@@ -53,7 +53,7 @@
 </h2>
 <p>【今日精萃】 1、书上看不到的历史真 相！2、火山灰下发现了一座骄 奢淫 逸的欲 望都市，彻底震惊了世界！！3、袁腾飞评价张 学 良 太给力了！！ 4、3分钟读懂整个抗战史！5、姜子牙推算的万年中国，很准很震惊！----更多精彩 内容请关注 公 众 wei 信：这不是歴史 複製 添 加：zhebsls<br><img src="http://ww2.sinaimg.cn/large/9647a31egw1f393hnjz2nj20c80lrdgn.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3968204470977975" target="freeweibo-mirror">//@思想者睡着:绝对不删！你不服是吧？那我直接给党中央说一…</a>
 </h2>
