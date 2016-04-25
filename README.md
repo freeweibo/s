@@ -125,7 +125,7 @@
 </h2>
 <p>SPAM 左下角正在开枪射击，是发射催泪弹吗？//@陈业文新大都: [草泥马][草泥马][草泥马]//@孔_智勇:这样维，会稳吗？ //@孟庆明v: 攘外必先安内？！<br><br>RE: 一片狼藉…… http://t.cn/RqqIuLs</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3967878107474135" target="freeweibo-mirror">SPAM 屋顶就不是国内的特点。另外，天朝警察才不会这样开枪…</a>
 </h2>
