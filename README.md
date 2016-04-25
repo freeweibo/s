@@ -41,7 +41,7 @@
 </h2>
 <p>//@哒摩-之剑: 裆奴恶犬！[怒] //@回头系岸D://@X大胡话://@深圳吕伟江苏://@国际商报观察://@涛声依旧201566:转发微博<br><br>RE: 民众有诉求，警察就上阵。奇葩！政府官员躲猫猫。 http://t.cn/Rq0nh9q .</p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3968233776730446" target="freeweibo-mirror">SPAM [馋嘴][馋嘴][馋嘴]</a>
 </h2>
@@ -89,7 +89,7 @@
 </h2>
 <p>SPAM #大大的娱#[爱你][爱你][爱你][爱你]<br><img src="http://ww1.sinaimg.cn/large/6c9aa2a8gw1f390n33darj20hs0vl77z.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3968176276014877" target="freeweibo-mirror">//@蔚蓝1916ROC: 八国联军攻陷北京，光绪慈禧西逃多…</a>
 </h2>
