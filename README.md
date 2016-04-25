@@ -65,7 +65,7 @@
 </h2>
 <p>SPAM 睡前必看</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3967918800875506" target="freeweibo-mirror">//@森政嘉嘉:杨佳语，你不给我说法，我就给你说法！自焚在文…</a>
 </h2>
