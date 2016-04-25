@@ -101,7 +101,7 @@
 </h2>
 <p>我最大的弱点也是我最大的优点：气太容易消。<br><img src="http://ww4.sinaimg.cn/large/670ff559jw1f3855q2whij21w01w0k2d.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3967908948845447" target="freeweibo-mirror">//@笨笨an: 这届夫人不行？//@LifeTime:怕是…</a>
 </h2>
