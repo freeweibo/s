@@ -19,6 +19,18 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3968197458143592" target="freeweibo-mirror">//@腾讯廉政公暑: //@涛声依旧201566: //@郭…</a>
+</h2>
+<p>//@腾讯廉政公暑: //@涛声依旧201566: //@郭解放v: 转发微博<br><br>RE: 转帖：如果没有台湾，我们可能会相信中华民族是劣等民族，中国人素质低不适合民主。台湾用了短短二十年时间，就走完了美国佬两百多年走过的路程，把同时代走上民主之路的西方大国俄罗斯远远甩在后边，用雄辩的事实证明了中国人一样能把人类文明的共同成果民主宪政做得很出色！ http://t.cn/Ryhj0Lg<br><img src="http://ww4.sinaimg.cn/large/005AYMpwgw1f388nznx12j30l30hsdhf.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3968183100199473" target="freeweibo-mirror">SPAM #大大的娱#[爱你][爱你][爱你][爱你]</a>
+</h2>
+<p>SPAM #大大的娱#[爱你][爱你][爱你][爱你]<br><img src="http://ww1.sinaimg.cn/large/6c9aa2a8gw1f390n33darj20hs0vl77z.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3968176276014877" target="freeweibo-mirror">//@蔚蓝1916ROC: 八国联军攻陷北京，光绪慈禧西逃多…</a>
 </h2>
 <p>//@蔚蓝1916ROC: 八国联军攻陷北京，光绪慈禧西逃多赖甘军护驾，赏赐多多，西北诸马亦崭露头角相继发迹//@十年砍柴:看纪录片《习仲勋》，远平忆：伯祖父（即仲勋的伯父）小名“老虎”，为董福祥甘军一员，庚子事变两宫西巡，老虎回乡探亲留下一笔银子，然后归队不知所终。习家用这笔钱买田发家。</p>
@@ -65,13 +77,13 @@
 </h2>
 <p>//@小桥流水li:转发微博<br><br>RE: 邪教横行香港无法无天，市民忍无可忍向轮子拋撒溪錢泄愤，爱国港人威武！ http://t.cn/Rq0CgrG .</p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3968032378050941" target="freeweibo-mirror">SPAM //@人性之美丽: 不要去听 别人的忽悠，你人生的…</a>
 </h2>
 <p>SPAM //@人性之美丽: 不要去听 别人的忽悠，你人生的每一步都必须 靠自己的能力完成。自己肚子里 没有料，手上没本事，认识 再多人也没用。人脉只会给你机会，但抓住机会还是要靠真本事。所以啊，修炼自己，比到处逢迎别人重要的多。</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3967966159196615" target="freeweibo-mirror">中国隐形税收一览，令人发指的详细！ http://t.cn/…</a>
 </h2>
@@ -124,18 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3967913411293218" target="freeweibo-mirror">[给力]//@功夫Lee熊猫: //@良心-医生:转发微博</a>
 </h2>
 <p>[给力]//@功夫Lee熊猫: //@良心-医生:转发微博<br><br>RE: 什么是信仰坚定？人民书记就是！在父亲的葬礼上高唱《国际歌》，特色之后，你是唯一[心][心][心]！<br><img src="http://ww1.sinaimg.cn/large/006qENhQjw1f381q5c741j30f00exq4i.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3967913088554512" target="freeweibo-mirror">SPAM [色][色]</a>
-</h2>
-<p>SPAM [色][色]<br><br>RE: 我最大的弱点也是我最大的优点：气太容易消。<br><img src="http://ww4.sinaimg.cn/large/670ff559jw1f3855q2whij21w01w0k2d.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3967913055217249" target="freeweibo-mirror">若如此，我保证天天准时收看新闻联播。</a>
-</h2>
-<p>若如此，我保证天天准时收看新闻联播。<br><br>RE: 央视新闻：如果你能把这十八位高官的姓名在新闻联播里播放出来，我向你大爷保证，从今之后再也不骂你了。我说话算数，立帖为证！<br><img src="http://ww2.sinaimg.cn/large/005M7QzIjw1f36g34y7zhj30r20gmn0l.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
