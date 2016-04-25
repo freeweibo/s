@@ -47,7 +47,7 @@
 </h2>
 <p>SPAM //@叶匡政://@郝劲松:这是哪个厂的烟花？威力巨大啊1<br><br>RE: 抗日小电影！ http://t.cn/Rq0LQJB .</p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3967929164795010" target="freeweibo-mirror">SPAM 睡前必看</a>
 </h2>
@@ -59,7 +59,7 @@
 </h2>
 <p>//@森政嘉嘉:杨佳语，你不给我说法，我就给你说法！自焚在文明国度会引起你所希望的效果，对不起，在天朝没有用[衰]<br><br>RE: 【自焚不如抗争】今天中午，网传一段自焚视频，自焚者生死不明，现场画面让人心碎......有网友发出质问：你有勇气自焚，为何不拼死抗争？现场警察为何不事先准备好灭火器？现场围观者为何不及时出手相救？发帖者为何不敢公开事件发生的时间、地点和事由？-----强烈求证事件真相！http://t.cn/RqpBSkk</p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3967913411293218" target="freeweibo-mirror">[给力]//@功夫Lee熊猫: //@良心-医生:转发微博</a>
 </h2>
@@ -119,7 +119,7 @@
 </h2>
 <p>SPAM //@烟雨更冷m: //@何光伟: 老了后，你就成了我[泪]<br><br>RE: 这届老兵不行 http://t.cn/Rq04lZ6 .</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3967879655173986" target="freeweibo-mirror">SPAM 左下角正在开枪射击，是发射催泪弹吗？//@陈业文新…</a>
 </h2>
