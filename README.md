@@ -107,7 +107,7 @@
 </h2>
 <p>什么是信仰坚定？人民书记就是！在父亲的葬礼上高唱《国际歌》，特色之后，你是唯一[心][心][心]！<br><img src="http://ww1.sinaimg.cn/large/006qENhQjw1f381q5c741j30f00exq4i.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3967882134118990" target="freeweibo-mirror">[转发]//@笑笑白菜蒡: //@火旺世家: 就这吓场//@…</a>
 </h2>
