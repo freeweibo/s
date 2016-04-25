@@ -23,7 +23,7 @@
 </h2>
 <p>SPAM 蠢货佐政，必出大乱子！ //@酷是我的专利: //@防务君:重大失误 //@大死兄被续不是正常的吗:啊咧<br><br>RE: 一字不差，全文转载。[笑哈哈][笑哈哈][笑哈哈]<br><img src="http://ww1.sinaimg.cn/large/4f4fba28gw1f396tlmmv4j20ku1120y6.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3968273764767425" target="freeweibo-mirror">SPAM 想膄就进来学习</a>
 </h2>
