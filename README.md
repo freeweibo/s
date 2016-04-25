@@ -29,7 +29,13 @@
 </h2>
 <p>言论自由什么时候可以这样解释了？微博是个商业媒体，有自己对内容的选择权，Facebook删帖可一点没少过。言论自由是指你可以自己开个微博，在不违反宪法其他条款(比如人人平等不得种族歧视)的情况下可以让用户自由发帖。<br><br>RE: 茅于轼：删人家的微博，妨碍言论自由，是违背宪法的行为。我们要据理力争。百姓除了用宪法保护自由就没有别的工具了。如果连这个唯一的工具也放弃了，就只能束手待毙。呼吁一切权利受到侵犯的人都拿起宪法去讲理。中国的宪法不难在互联网上能找到。法律越用越有用；越不用就完全没用了。<br><img src="http://ww2.sinaimg.cn/large/9bbea019jw1f38vkytxgij20j60a2wfh.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3968139023058219" target="freeweibo-mirror">茅于轼：删人家的微博，妨碍言论自由，是违背宪法的行为。我们要…</a>
+</h2>
+<p>茅于轼：删人家的微博，妨碍言论自由，是违背宪法的行为。我们要据理力争。百姓除了用宪法保护自由就没有别的工具了。如果连这个唯一的工具也放弃了，就只能束手待毙。呼吁一切权利受到侵犯的人都拿起宪法去讲理。中国的宪法不难在互联网上能找到。法律越用越有用；越不用就完全没用了。<br><img src="http://ww2.sinaimg.cn/large/9bbea019jw1f38vkytxgij20j60a2wfh.jpg"></p>
+<p>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3968136116348219" target="freeweibo-mirror">//@李不白的店://@章诒和: 万税，万万税！ //@何兵…</a>
 </h2>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3967913055217249" target="freeweibo-mirror">若如此，我保证天天准时收看新闻联播。</a>
 </h2>
 <p>若如此，我保证天天准时收看新闻联播。<br><br>RE: 央视新闻：如果你能把这十八位高官的姓名在新闻联播里播放出来，我向你大爷保证，从今之后再也不骂你了。我说话算数，立帖为证！<br><img src="http://ww2.sinaimg.cn/large/005M7QzIjw1f36g34y7zhj30r20gmn0l.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3967911493898460" target="freeweibo-mirror">[衰]消息不算靠谱 //@笨笨an:这届夫人不行？//@Li…</a>
-</h2>
-<p>[衰]消息不算靠谱 //@笨笨an:这届夫人不行？//@LifeTime:怕是不妥。说不定领导是好的，只是夫人被芮成钢勾走了。[悲催]<br><br>RE: 央视新闻：如果你能把这十八位高官的姓名在新闻联播里播放出来，我向你大爷保证，从今之后再也不骂你了。我说话算数，立帖为证！<br><img src="http://ww2.sinaimg.cn/large/005M7QzIjw1f36g34y7zhj30r20gmn0l.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
