@@ -47,13 +47,13 @@
 </h2>
 <p>[ok]//@格瓦拉:[吃惊] //@一头小活猪:台上台下都演得嗨哦，奥斯卡欠走国十亿小金人//@姚-欣怡:难怪不敢上街拉票！开放民主…………怕死成这样………绝对演帝！！！！ http://t.cn/RqWy3lu</p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3968638400144781" target="freeweibo-mirror">[吃惊] //@一头小活猪:台上台下都演得嗨哦，奥斯卡欠走国…</a>
 </h2>
 <p>[吃惊] //@一头小活猪:台上台下都演得嗨哦，奥斯卡欠走国十亿小金人//@姚-欣怡:难怪不敢上街拉票！开放民主…………怕死成这样………绝对演帝！！！！ http://t.cn/RqWy3lu</p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3968633191258164" target="freeweibo-mirror">SPAM 这行情就是鸡肋行情，短期真不会出什么大点的趋势性行…</a>
 </h2>
@@ -95,7 +95,7 @@
 </h2>
 <p>SPAM 听听他说“那些情歌告诉过我的事”[围观]<br><img src="http://ww2.sinaimg.cn/large/8d51249djw1f3a690m63gj20jz0zkdh4.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3968606189005926" target="freeweibo-mirror">SPAM 这些百搭款包包都是春天必备啊！[哆啦A梦吃惊]你最…</a>
 </h2>
