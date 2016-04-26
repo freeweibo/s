@@ -23,7 +23,7 @@
 </h2>
 <p>纠正改开错误，就从承认小岗村错误开始//@伊水紫桐: 小岗村梦就是瞎话。</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3968609577793874" target="freeweibo-mirror">//@乱零飞21: //@shbh131: //@聿日17:…</a>
 </h2>
