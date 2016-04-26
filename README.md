@@ -19,6 +19,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3968562199020017" target="freeweibo-mirror">[思考]//@东-回归02: //@承文革: [笑cry][…</a>
+</h2>
+<p>[思考]//@东-回归02: //@承文革: [笑cry][笑cry][笑cry]//@东方老邪:昭示咱是邓线不离邓路而已。日暮梦乡何处是，小平路上使人愁。伪左喊：今年大大不收礼呀，收礼只收“给时间”，“给时间”。 //@欢乐小猪2013-2://@乐行居士观天下:去小岗村是一招臭棋<br><br>RE: 习近平来到安徽凤阳小岗村，围上来一帮抢拍族，除了这，不知总书记还看到了什么？小岗村的地里还有庄稼吗？这儿的人民都富裕了吗？http://t.cn/RqOz7GH<br><img src="http://ww2.sinaimg.cn/large/cb787320gw1f398kiyecrj20k00qoq5z.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3968535678116856" target="freeweibo-mirror">SPAM get√</a>
 </h2>
 <p>SPAM get√<br><br>RE: 怎么避免第一次约会的尴尬？（昨晚话题，欢迎编织）查看最新一期文章。<br><img src="http://ww1.sinaimg.cn/large/c4ff9961gw1f3a4d81zloj20yi6rl4om.jpg"></p>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3968176276014877" target="freeweibo-mirror">//@蔚蓝1916ROC: 八国联军攻陷北京，光绪慈禧西逃多…</a>
 </h2>
 <p>//@蔚蓝1916ROC: 八国联军攻陷北京，光绪慈禧西逃多赖甘军护驾，赏赐多多，西北诸马亦崭露头角相继发迹//@十年砍柴:看纪录片《习仲勋》，远平忆：伯祖父（即仲勋的伯父）小名“老虎”，为董福祥甘军一员，庚子事变两宫西巡，老虎回乡探亲留下一笔银子，然后归队不知所终。习家用这笔钱买田发家。</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3968167086626556" target="freeweibo-mirror">[嘻嘻]请多多关照</a>
-</h2>
-<p>[嘻嘻]请多多关照<br><img src="http://ww1.sinaimg.cn/large/be2269e7gw1f38yslms09j20by0bygm6.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
