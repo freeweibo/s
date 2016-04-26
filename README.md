@@ -35,7 +35,7 @@
 </h2>
 <p>SPAM 用Alexa查全球网站排名，发现当今世界的前三大网站YouTube、Google、Facebook，我们都无法在中国内地打开。这三大网站，都不是什么“反动网站”，工具性、娱乐性更强一些。所以，有人评论中国对于互联网的管制，是新时期的“闭关锁国”……</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3968535678116856" target="freeweibo-mirror">SPAM get√</a>
 </h2>
