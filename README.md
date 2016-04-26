@@ -19,6 +19,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3968657753521042" target="freeweibo-mirror">//@人性之美丽: 世界上最遥远的距离不是树与树的距离，而是…</a>
+</h2>
+<p>//@人性之美丽: 世界上最遥远的距离不是树与树的距离，而是同根生长的树枝，却无法在风中相依。世界上最遥远的距离，不是树枝无法在风中相依，而是相互嘹望的星星，却永远没有交汇的轨迹。</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3968642565023986" target="freeweibo-mirror">//@煙巳惔嘸菋: [挤眼]//@壹号草民: [ok]//@…</a>
 </h2>
 <p>//@煙巳惔嘸菋: [挤眼]//@壹号草民: [ok]//@格瓦拉:[吃惊] //@一头小活猪:台上台下都演得嗨哦，奥斯卡欠走国十亿小金人//@姚-欣怡:难怪不敢上街拉票！开放民主…………怕死成这样………绝对演帝！！！！   http://t.cn/RqWy3lu</p>
@@ -77,19 +83,19 @@
 </h2>
 <p>SPAM 这些百搭款包包都是春天必备啊！[哆啦A梦吃惊]你最喜欢哪一个？@大大小姐皮具<br><img src="http://ww1.sinaimg.cn/large/7e461e95jw1f3aam2sntyj20zk0zknpd.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3968605073068864" target="freeweibo-mirror">SPAM 造谣吧…… //@学习奉命://@二月-琼瑶03:…</a>
 </h2>
 <p>SPAM 造谣吧…… //@学习奉命://@二月-琼瑶03://@玮玮时代d:那些之前还对去北大的安保冷嘲热讽的，都出来溜溜？//@扯断邪哈犊子: //@学习奉命:与死神擦肩而过、、、万幸万幸、、、[心][可怜]@窝窝说事:[吃惊][吃惊][吃惊]卧槽！不会吧？这么凶险？@政局评论员 知道不？<br><br>RE: 难以置信！<br><img src="http://ww1.sinaimg.cn/large/6969f867gw1f39b28pevxj20hm0c7q4x.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3968589306217562" target="freeweibo-mirror">SPAM 哈哈，最后一个</a>
 </h2>
 <p>SPAM 哈哈，最后一个</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3968564631370410" target="freeweibo-mirror">SPAM #幸运大转盘# 房价涨钱包瘦，屌丝的命运难逆袭。一…</a>
 </h2>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3968500004947267" target="freeweibo-mirror">SPAM 提升您价值的深度阅读，引领图文阅读时代。</a>
 </h2>
 <p>SPAM 提升您价值的深度阅读，引领图文阅读时代。</p>
-<p>
-	<small> ============== 11小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3968493743977113" target="freeweibo-mirror">奇怪，中国现在还是共产党执政吗？</a>
-</h2>
-<p>奇怪，中国现在还是共产党执政吗？<br><br>RE: 没有注意现在中国一股“反“绿教””风！大力批判“马步芳”风。因为马步芳在中国青海和临夏回族心中威信很高。他对回民很是照顾，听说谁欺负回民全家一个不留！虽然对汉族不好，但在回民心中威信很高。他的功绩经典就是对日本人残酷和狠！在中国抗日战争时期日本就是不敢进西边马步芳势力范围。</p>
 <p>
 	<small> ============== 12小时前</small>
 </p>
