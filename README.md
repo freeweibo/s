@@ -29,7 +29,7 @@
 </h2>
 <p>SPAM 用Alexa查全球网站排名，发现当今世界的前三大网站YouTube、Google、Facebook，我们都无法在中国内地打开。这三大网站，都不是什么“反动网站”，工具性、娱乐性更强一些。所以，有人评论中国对于互联网的管制，是新时期的“闭关锁国”……</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3968535678116856" target="freeweibo-mirror">SPAM get√</a>
 </h2>
@@ -97,6 +97,12 @@
 <p>
 	<small> ============== 1天前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3968252139010433" target="freeweibo-mirror">习近平来到安徽凤阳小岗村，围上来一帮抢拍族，除了这，不知总书…</a>
+</h2>
+<p>习近平来到安徽凤阳小岗村，围上来一帮抢拍族，除了这，不知总书记还看到了什么？小岗村的地里还有庄稼吗？这儿的人民都富裕了吗？http://t.cn/RqOz7GH<br><img src="http://ww2.sinaimg.cn/large/cb787320gw1f398kiyecrj20k00qoq5z.jpg"></p>
+<p>
+	<small> ============== 1天前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3968233776730446" target="freeweibo-mirror">SPAM [馋嘴][馋嘴][馋嘴]</a>
 </h2>
 <p>SPAM [馋嘴][馋嘴][馋嘴]</p>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3968197458143592" target="freeweibo-mirror">//@腾讯廉政公暑: //@涛声依旧201566: //@郭…</a>
 </h2>
 <p>//@腾讯廉政公暑: //@涛声依旧201566: //@郭解放v: 转发微博<br><br>RE: 转帖：如果没有台湾，我们可能会相信中华民族是劣等民族，中国人素质低不适合民主。台湾用了短短二十年时间，就走完了美国佬两百多年走过的路程，把同时代走上民主之路的西方大国俄罗斯远远甩在后边，用雄辩的事实证明了中国人一样能把人类文明的共同成果民主宪政做得很出色！ http://t.cn/Ryhj0Lg<br><img src="http://ww4.sinaimg.cn/large/005AYMpwgw1f388nznx12j30l30hsdhf.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3968195205672884" target="freeweibo-mirror">@老夫子001:@觉远_27445:秘密分地?回@法律谷歌:…</a>
-</h2>
-<p>@老夫子001:@觉远_27445:秘密分地?回@法律谷歌:中国是社会主义国家!不准违反宪法!土地归国家和集体所有!农村和城市居民在平均地权下即人平百平米以下自住房,享受免费续用公地的权力!超面积私有住房,私占,私用,私人承包公地,必须上交超面积公地费!   http://t.cn/Rq03hwd</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
