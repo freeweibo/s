@@ -59,7 +59,7 @@
 </h2>
 <p>SPAM 提升您价值的深度阅读，引领图文阅读时代。</p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3968493743977113" target="freeweibo-mirror">奇怪，中国现在还是共产党执政吗？</a>
 </h2>
