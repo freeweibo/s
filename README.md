@@ -23,7 +23,7 @@
 </h2>
 <p>//@煙巳惔嘸菋: [挤眼]//@壹号草民: [ok]//@格瓦拉:[吃惊] //@一头小活猪:台上台下都演得嗨哦，奥斯卡欠走国十亿小金人//@姚-欣怡:难怪不敢上街拉票！开放民主…………怕死成这样………绝对演帝！！！！   http://t.cn/RqWy3lu</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3968638845469747" target="freeweibo-mirror">[ok]//@格瓦拉:[吃惊] //@一头小活猪:台上台下都…</a>
 </h2>
@@ -64,6 +64,12 @@
 	<a href="https://freeweibo.com/weibo/3968608789557445" target="freeweibo-mirror">SPAM 两车还能逃脱，决不可能，不可信。 //@余英:求辟…</a>
 </h2>
 <p>SPAM 两车还能逃脱，决不可能，不可信。 //@余英:求辟谣 //@董郎dxp:造谣吧…… //@学习奉命://@二月-琼瑶03://@玮玮时代d:那些之前还对去北大的安保冷嘲热讽的，都出来溜溜？<br><br>RE: 难以置信！<br><img src="http://ww1.sinaimg.cn/large/6969f867gw1f39b28pevxj20hm0c7q4x.jpg"></p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3968607664495118" target="freeweibo-mirror">SPAM 听听他说“那些情歌告诉过我的事”[围观]</a>
+</h2>
+<p>SPAM 听听他说“那些情歌告诉过我的事”[围观]<br><img src="http://ww2.sinaimg.cn/large/8d51249djw1f3a690m63gj20jz0zkdh4.jpg"></p>
 <p>
 	<small> ============== 4小时前</small>
 </p><h2>
@@ -131,13 +137,7 @@
 </h2>
 <p>奇怪，中国现在还是共产党执政吗？<br><br>RE: 没有注意现在中国一股“反“绿教””风！大力批判“马步芳”风。因为马步芳在中国青海和临夏回族心中威信很高。他对回民很是照顾，听说谁欺负回民全家一个不留！虽然对汉族不好，但在回民心中威信很高。他的功绩经典就是对日本人残酷和狠！在中国抗日战争时期日本就是不敢进西边马步芳势力范围。</p>
 <p>
-	<small> ============== 11小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3968424935381136" target="freeweibo-mirror">SPAM 720p（3G）、1080p（3.5G），自带英字…</a>
-</h2>
-<p>SPAM 720p（3G）、1080p（3.5G），自带英字。<br><br>RE: 嗷！！【《死侍》(Deadpool)正式高清支援 终于来啦！！】可以洗掉之前的韩文硬字版本啦！！终于啊！！！快来洗版刷高清贱贱吧！！见图！<br><img src="http://ww2.sinaimg.cn/large/76c73f8djw1f39rsaiw15j21bn1xge81.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
+	<small> ============== 12小时前</small>
 </p>
 <table>
     <tr>
