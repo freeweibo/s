@@ -23,13 +23,19 @@
 </h2>
 <p>SPAM 提升您价值的深度阅读，引领图文阅读时代。</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3968493743977113" target="freeweibo-mirror">奇怪，中国现在还是共产党执政吗？</a>
+</h2>
+<p>奇怪，中国现在还是共产党执政吗？<br><br>RE: 没有注意现在中国一股“反“绿教””风！大力批判“马步芳”风。因为马步芳在中国青海和临夏回族心中威信很高。他对回民很是照顾，听说谁欺负回民全家一个不留！虽然对汉族不好，但在回民心中威信很高。他的功绩经典就是对日本人残酷和狠！在中国抗日战争时期日本就是不敢进西边马步芳势力范围。</p>
+<p>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3968424935381136" target="freeweibo-mirror">SPAM 720p（3G）、1080p（3.5G），自带英字…</a>
 </h2>
 <p>SPAM 720p（3G）、1080p（3.5G），自带英字。<br><br>RE: 嗷！！【《死侍》(Deadpool)正式高清支援 终于来啦！！】可以洗掉之前的韩文硬字版本啦！！终于啊！！！快来洗版刷高清贱贱吧！！见图！<br><img src="http://ww2.sinaimg.cn/large/76c73f8djw1f39rsaiw15j21bn1xge81.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3968420501927462" target="freeweibo-mirror">嗷！！【《死侍》(Deadpool)正式高清支援 终于来啦！…</a>
 </h2>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3968139023058219" target="freeweibo-mirror">茅于轼：删人家的微博，妨碍言论自由，是违背宪法的行为。我们要…</a>
 </h2>
 <p>茅于轼：删人家的微博，妨碍言论自由，是违背宪法的行为。我们要据理力争。百姓除了用宪法保护自由就没有别的工具了。如果连这个唯一的工具也放弃了，就只能束手待毙。呼吁一切权利受到侵犯的人都拿起宪法去讲理。中国的宪法不难在互联网上能找到。法律越用越有用；越不用就完全没用了。<br><img src="http://ww2.sinaimg.cn/large/9bbea019jw1f38vkytxgij20j60a2wfh.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3968136116348219" target="freeweibo-mirror">//@李不白的店://@章诒和: 万税，万万税！ //@何兵…</a>
-</h2>
-<p>//@李不白的店://@章诒和: 万税，万万税！ //@何兵: 最后的答案是：某先生 3年税负占收入比 756872.08 / 1466000 = 51.6%。//@崔小平律师://@干卫东律师:转发微博<br><br>RE: 中国隐形税收一览，令人发指的详细！ http://t.cn/Rq0O4Wj</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
