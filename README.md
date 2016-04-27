@@ -23,7 +23,7 @@
 </h2>
 <p>回复@酒色人生须尽欢:[微笑]</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3968820471145874" target="freeweibo-mirror">最右//@Grtmars: //@冷俊123:呵呵呵。也当过…</a>
 </h2>
