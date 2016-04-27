@@ -59,13 +59,13 @@
 </h2>
 <p>//@朱孝顶律师://@記録者陳寳成:村骗乡，乡骗县，一骗骗到国务院。（我说的是民谣） //@清华孙立平:有一种欺骗叫羞羞答答，有一种欺骗叫理直气壮。又有了一个概念叫正能量，有了这个概念后，前者向后者的转化就容易多了。<br><br>RE: 造假欺骗如此煞费苦心，事后声明如此大义凛然，只能说明这个社会欺骗的成本几乎等于零。骗吧，不管怎么，骗也是善意的。自从有了某种特色的善恶标准之后，所有的恶都有了一件华丽的外衣。<br><img src="http://ww1.sinaimg.cn/large/408bb143jw1f3beh9wo8kj20c80gbjt4.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3968974242818975" target="freeweibo-mirror">//@我们村的蝙蝠侠: 愚蠢删得掉？ //@于建嵘:删吧。</a>
 </h2>
 <p>//@我们村的蝙蝠侠: 愚蠢删得掉？ //@于建嵘:删吧。</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3968972317441462" target="freeweibo-mirror">SPAM #沈阳分享#看着都舍不得吃啊！！沈阳有吗？求解答！…</a>
 </h2>
@@ -83,7 +83,7 @@
 </h2>
 <p>@于建嵘 老师写文革的微博，竟然也要删？<br><img src="http://ww2.sinaimg.cn/large/4bc782b3gw1f3bhq1zep8j20hs0vlad6.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3968953569401798" target="freeweibo-mirror">SPAM 蒙谁呢 //@奋壹:特色//@迟夙生律师: //@…</a>
 </h2>
@@ -107,7 +107,7 @@
 </h2>
 <p>昨天总理考察成都菜市场，碰巧老婆一表姐正好在那个菜市买菜，正好遇见总理，发来的微信照片清清楚楚，除了招手微笑的总理，还有每斤3元的蒲江大樱桃车厘子，今天总理一走，立刻变成每斤30元，尼玛连总理也敢骗！<br><img src="http://ww2.sinaimg.cn/large/0068b8ISgw1f3bcja2sg9j30cs0h10u3.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3968903476009068" target="freeweibo-mirror">SPAM 下边舔，上边乐[哼]//@澹泊为德:[生病]//@…</a>
 </h2>
@@ -125,7 +125,7 @@
 </h2>
 <p>这是什么节奏！台湾英雄铜像一揭幕……结果是他……<br><img src="http://ww2.sinaimg.cn/large/6d0b6b33gw1f3b92ncgmij20k00zkjxc.jpg"></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3968881720815180" target="freeweibo-mirror">#沈阳交通#【交警指挥高于信号灯 “闯手势”罚200元】电子…</a>
 </h2>
@@ -137,7 +137,7 @@
 </h2>
 <p>回复@酒色人生须尽欢:[微笑]</p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p>
 <table>
     <tr>
