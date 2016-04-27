@@ -59,7 +59,7 @@
 </h2>
 <p>//@于建嵘: 删吧。</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3968974285395034" target="freeweibo-mirror">//@朱孝顶律师://@記録者陳寳成:村骗乡，乡骗县，一骗骗…</a>
 </h2>
@@ -101,7 +101,7 @@
 </h2>
 <p>造假欺骗如此煞费苦心，事后声明如此大义凛然，只能说明这个社会欺骗的成本几乎等于零。骗吧，不管怎么，骗也是善意的。自从有了某种特色的善恶标准之后，所有的恶都有了一件华丽的外衣。<br><img src="http://ww1.sinaimg.cn/large/408bb143jw1f3beh9wo8kj20c80gbjt4.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3968920228670859" target="freeweibo-mirror">SPAM 一方水土一方人，故乡是烙在身上的印，而我身上的印，…</a>
 </h2>
