@@ -55,6 +55,12 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3968963907587535" target="freeweibo-mirror">//@日天小巨人: //@轰天老炮:现在中国的物价真是奇了怪…</a>
+</h2>
+<p>//@日天小巨人: //@轰天老炮:现在中国的物价真是奇了怪了，据说俄罗斯从中国进口生肉，结果黑龙江边贸进口俄罗斯纯肉香肠卖得比国产加大量淀粉的同口味香肠还便宜。中国的生牛肉40多元一斤，俄国进口的炖牛肉罐头500克装的才14块多。问题出在哪里？<br><br>RE: 造假欺骗如此煞费苦心，事后声明如此大义凛然，只能说明这个社会欺骗的成本几乎等于零。骗吧，不管怎么，骗也是善意的。自从有了某种特色的善恶标准之后，所有的恶都有了一件华丽的外衣。<br><img src="http://ww1.sinaimg.cn/large/408bb143jw1f3beh9wo8kj20c80gbjt4.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3968958727752763" target="freeweibo-mirror">@于建嵘 老师写文革的微博，竟然也要删？</a>
 </h2>
 <p>@于建嵘 老师写文革的微博，竟然也要删？<br><img src="http://ww2.sinaimg.cn/large/4bc782b3gw1f3bhq1zep8j20hs0vlad6.jpg"></p>
@@ -131,13 +137,7 @@
 </h2>
 <p>SPAM ☄#moonshot#<br><img src="http://ww3.sinaimg.cn/large/e1b3af7bgw1f3b6oriurnj20n00n0jtu.jpg"></p>
 <p>
-	<small> ============== 9小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3968831728671828" target="freeweibo-mirror">一方水土一方人，故乡是烙在身上的印，无论外面的世界如何精彩，…</a>
-</h2>
-<p>一方水土一方人，故乡是烙在身上的印，无论外面的世界如何精彩，一个人如何在世事沉浮，终究，也无法抹去前世定下的烙印，心一直困在围城。 而我身上的印，与厚重的城墙，雨打过后的青石板，青砖黛瓦，祖先遗留的智慧，悠久的人文情怀早已密不可分。@平遥古城 http://t.cn/RqW0HB9<br><img src="http://ww1.sinaimg.cn/large/8b989b83jw1f3b31r1auyj20a30ee75u.jpg"></p>
-<p>
-	<small> ============== 11小时前</small>
+	<small> ============== 10小时前</small>
 </p>
 <table>
     <tr>
