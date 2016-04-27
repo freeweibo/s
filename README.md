@@ -41,7 +41,7 @@
 </h2>
 <p>这是什么节奏！台湾英雄铜像一揭幕……结果是他……<br><img src="http://ww2.sinaimg.cn/large/6d0b6b33gw1f3b92ncgmij20k00zkjxc.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3968881720815180" target="freeweibo-mirror">#沈阳交通#【交警指挥高于信号灯 “闯手势”罚200元】电子…</a>
 </h2>
@@ -53,7 +53,7 @@
 </h2>
 <p>回复@酒色人生须尽欢:[微笑]</p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3968866935421942" target="freeweibo-mirror">SPAM 在朋友圈秀工作，分不分组是情商问题啊……秀工作的话…</a>
 </h2>
