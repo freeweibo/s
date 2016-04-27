@@ -25,6 +25,12 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3969017289199294" target="freeweibo-mirror">SPAM 喜欢走起</a>
+</h2>
+<p>SPAM 喜欢走起</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3969015359514239" target="freeweibo-mirror">【这位部长曾因涉嫌重婚落马，再出发成功逆袭】与众多落马官员出…</a>
 </h2>
 <p>【这位部长曾因涉嫌重婚落马，再出发成功逆袭】与众多落马官员出狱后不能自食其力以致生活窘迫不同，邱晓华走出牢门后马上找到了工作，他先在中国海洋石油总公司下属研究机构任高级研究员，又到民生证券担任首席经济学家。“著名经济学家”的新头衔，由此而来。 http://t.cn/RqWdShl<br><img src="http://ww2.sinaimg.cn/large/45884209jw1f3bo88hyv9j20dw09h0tc.jpg"></p>
@@ -132,12 +138,6 @@
 <p>温家宝，首位台湾英雄？这立像者真有眼光！[哈哈][哈哈][哈哈] //@XinweiAh:转发微博<br><br>RE: 这是什么节奏！台湾英雄铜像一揭幕……结果是他……<br><img src="http://ww2.sinaimg.cn/large/6d0b6b33gw1f3b92ncgmij20k00zkjxc.jpg"></p>
 <p>
 	<small> ============== 10小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3968883582759148" target="freeweibo-mirror">这是什么节奏！台湾英雄铜像一揭幕……结果是他……</a>
-</h2>
-<p>这是什么节奏！台湾英雄铜像一揭幕……结果是他……<br><img src="http://ww2.sinaimg.cn/large/6d0b6b33gw1f3b92ncgmij20k00zkjxc.jpg"></p>
-<p>
-	<small> ============== 11小时前</small>
 </p>
 <table>
     <tr>
