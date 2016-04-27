@@ -47,7 +47,7 @@
 </h2>
 <p>→_→[晕] http://t.cn/RqWafzA //@Ming_the_Great_大明:价格没错，只是试试领导的眼力[哈哈] http://t.cn/RqWV784 //@LifeTime:那个菜市场也不地道，尽报些“内部”价，这不是抢戏吗？[悲催]<br><br>RE: 大领导偶尔去地方视察，总像天外来客，对所有事好奇：菜价都什么价格？贵不贵？这种剧本毛时代以来就没变过。在信息化的今天，各地每天农副产品、食品价格全部公开，领导人再忙，也可以花一秒钟让秘书网搜一下。毛时代信息不同，领导人这种询问方式似“问寒问暖”，今天还这么几句就影响“收视率了。...全文： http://m.weibo.cn/3716243842/3968639671975615</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3968773943602371" target="freeweibo-mirror">[伤心]//@范剑平:[伤心] //@LifeTime:[瞧…</a>
 </h2>
@@ -107,7 +107,7 @@
 </h2>
 <p>看图说话<br><img src="http://ww2.sinaimg.cn/large/625d8a94jw1f3ahzfvrv0j20j60demzr.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3968642565023986" target="freeweibo-mirror">//@煙巳惔嘸菋: [挤眼]//@壹号草民: [ok]//@…</a>
 </h2>
