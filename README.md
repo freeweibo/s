@@ -29,7 +29,7 @@
 </h2>
 <p>欺下瞒上，这种官员这么可能为人民服务[挖鼻]//@钟鸿钧:政治风气可见一斑<br><br>RE: 造假欺骗如此煞费苦心，事后声明如此大义凛然，只能说明这个社会欺骗的成本几乎等于零。骗吧，不管怎么，骗也是善意的。自从有了某种特色的善恶标准之后，所有的恶都有了一件华丽的外衣。<br><img src="http://ww1.sinaimg.cn/large/408bb143jw1f3beh9wo8kj20c80gbjt4.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3968977149514285" target="freeweibo-mirror">//@于建嵘: 删吧。</a>
 </h2>
@@ -89,7 +89,7 @@
 </h2>
 <p>温家宝，首位台湾英雄？这立像者真有眼光！[哈哈][哈哈][哈哈] //@XinweiAh:转发微博<br><br>RE: 这是什么节奏！台湾英雄铜像一揭幕……结果是他……<br><img src="http://ww2.sinaimg.cn/large/6d0b6b33gw1f3b92ncgmij20k00zkjxc.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3968883582759148" target="freeweibo-mirror">这是什么节奏！台湾英雄铜像一揭幕……结果是他……</a>
 </h2>
