@@ -71,13 +71,13 @@
 </h2>
 <p>SPAM ☄#moonshot#<br><img src="http://ww3.sinaimg.cn/large/e1b3af7bgw1f3b6oriurnj20n00n0jtu.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3968831728671828" target="freeweibo-mirror">一方水土一方人，故乡是烙在身上的印，无论外面的世界如何精彩，…</a>
 </h2>
 <p>一方水土一方人，故乡是烙在身上的印，无论外面的世界如何精彩，一个人如何在世事沉浮，终究，也无法抹去前世定下的烙印，心一直困在围城。 而我身上的印，与厚重的城墙，雨打过后的青石板，青砖黛瓦，祖先遗留的智慧，悠久的人文情怀早已密不可分。@平遥古城 http://t.cn/RqW0HB9<br><img src="http://ww1.sinaimg.cn/large/8b989b83jw1f3b31r1auyj20a30ee75u.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3968820471145874" target="freeweibo-mirror">最右//@Grtmars: //@冷俊123:呵呵呵。也当过…</a>
 </h2>
