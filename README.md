@@ -67,6 +67,12 @@
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3968931745786485" target="freeweibo-mirror">造假欺骗如此煞费苦心，事后声明如此大义凛然，只能说明这个社会…</a>
+</h2>
+<p>造假欺骗如此煞费苦心，事后声明如此大义凛然，只能说明这个社会欺骗的成本几乎等于零。骗吧，不管怎么，骗也是善意的。自从有了某种特色的善恶标准之后，所有的恶都有了一件华丽的外衣。<br><img src="http://ww1.sinaimg.cn/large/408bb143jw1f3beh9wo8kj20c80gbjt4.jpg"></p>
+<p>
+	<small> ============== 5小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3968920228670859" target="freeweibo-mirror">SPAM 一方水土一方人，故乡是烙在身上的印，而我身上的印，…</a>
 </h2>
 <p>SPAM 一方水土一方人，故乡是烙在身上的印，而我身上的印，与厚重的城墙，雨打过后的青石板，青砖黛瓦，祖先遗留的智慧，悠久的人文情怀早已密不可分。</p>
@@ -132,12 +138,6 @@
 <p>一方水土一方人，故乡是烙在身上的印，无论外面的世界如何精彩，一个人如何在世事沉浮，终究，也无法抹去前世定下的烙印，心一直困在围城。 而我身上的印，与厚重的城墙，雨打过后的青石板，青砖黛瓦，祖先遗留的智慧，悠久的人文情怀早已密不可分。@平遥古城 http://t.cn/RqW0HB9<br><img src="http://ww1.sinaimg.cn/large/8b989b83jw1f3b31r1auyj20a30ee75u.jpg"></p>
 <p>
 	<small> ============== 11小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3968820471145874" target="freeweibo-mirror">最右//@Grtmars: //@冷俊123:呵呵呵。也当过…</a>
-</h2>
-<p>最右//@Grtmars: //@冷俊123:呵呵呵。也当过县长、市委书记。//@沙漠渔夫809://@商略雪V:欺骗？呵呵，幼稚，都在底下待过，对上边啥套路心里门清。不过是大家合演一场戏……<br><br>RE: 菜半价?造谣<br><img src="http://ww3.sinaimg.cn/large/0068MWrHjw1f3ax71r5q7j30j60de0uj.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
 </p>
 <table>
     <tr>
