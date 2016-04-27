@@ -35,13 +35,31 @@
 </h2>
 <p>//@于建嵘: 删吧。</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3968974285395034" target="freeweibo-mirror">//@朱孝顶律师://@記録者陳寳成:村骗乡，乡骗县，一骗骗…</a>
 </h2>
 <p>//@朱孝顶律师://@記録者陳寳成:村骗乡，乡骗县，一骗骗到国务院。（我说的是民谣） //@清华孙立平:有一种欺骗叫羞羞答答，有一种欺骗叫理直气壮。又有了一个概念叫正能量，有了这个概念后，前者向后者的转化就容易多了。<br><br>RE: 造假欺骗如此煞费苦心，事后声明如此大义凛然，只能说明这个社会欺骗的成本几乎等于零。骗吧，不管怎么，骗也是善意的。自从有了某种特色的善恶标准之后，所有的恶都有了一件华丽的外衣。<br><img src="http://ww1.sinaimg.cn/large/408bb143jw1f3beh9wo8kj20c80gbjt4.jpg"></p>
 <p>
 	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3968974242818975" target="freeweibo-mirror">//@我们村的蝙蝠侠: 愚蠢删得掉？ //@于建嵘:删吧。</a>
+</h2>
+<p>//@我们村的蝙蝠侠: 愚蠢删得掉？ //@于建嵘:删吧。</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3968972317441462" target="freeweibo-mirror">SPAM #沈阳分享#看着都舍不得吃啊！！沈阳有吗？求解答！…</a>
+</h2>
+<p>SPAM #沈阳分享#看着都舍不得吃啊！！沈阳有吗？求解答！不吃看看也好呀[可怜]<br><img src="http://ww1.sinaimg.cn/large/6486bd88jw1f3b8dcpebcj208c0nqad8.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3968958727752763" target="freeweibo-mirror">@于建嵘 老师写文革的微博，竟然也要删？</a>
+</h2>
+<p>@于建嵘 老师写文革的微博，竟然也要删？<br><img src="http://ww2.sinaimg.cn/large/4bc782b3gw1f3bhq1zep8j20hs0vlad6.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3968953569401798" target="freeweibo-mirror">SPAM 蒙谁呢 //@奋壹:特色//@迟夙生律师: //@…</a>
 </h2>
@@ -120,24 +138,6 @@
 <p>最右//@Grtmars: //@冷俊123:呵呵呵。也当过县长、市委书记。//@沙漠渔夫809://@商略雪V:欺骗？呵呵，幼稚，都在底下待过，对上边啥套路心里门清。不过是大家合演一场戏……<br><br>RE: 菜半价?造谣<br><img src="http://ww3.sinaimg.cn/large/0068MWrHjw1f3ax71r5q7j30j60de0uj.jpg"></p>
 <p>
 	<small> ============== 12小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3968799914582297" target="freeweibo-mirror">SPAM 老公财大器粗，活好，婚后一直欲罢不能！但就是需求太…</a>
-</h2>
-<p>SPAM 老公财大器粗，活好，婚后一直欲罢不能！但就是需求太大，我满足不了，该怎么办？<br><img src="http://ww2.sinaimg.cn/large/b0e2a675jw1f3azhazb4ej20c4aasb2c.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3968798476621472" target="freeweibo-mirror">[哈哈] //@皮涛-皮皮：今天买樱桃，一问15一斤，我就说…</a>
-</h2>
-<p>[哈哈] //@皮涛-皮皮：今天买樱桃，一问15一斤，我就说李总理都说了3块一斤，你怎么卖这么贵。结果小贩说，你是总理，我不收你钱。<br><br>RE: 大领导偶尔去地方视察，总像天外来客，对所有事好奇：菜价都什么价格？贵不贵？这种剧本毛时代以来就没变过。在信息化的今天，各地每天农副产品、食品价格全部公开，领导人再忙，也可以花一秒钟让秘书网搜一下。毛时代信息不同，领导人这种询问方式似“问寒问暖”，今天还这么几句就影响“收视率了。...全文： http://m.weibo.cn/3716243842/3968639671975615</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3968797386423171" target="freeweibo-mirror">#即兴还是彩排过？# http://t.cn/RqWSrsr</a>
-</h2>
-<p>#即兴还是彩排过？# http://t.cn/RqWSrsr</p>
-<p>
-	<small> ============== 1天前</small>
 </p>
 <table>
     <tr>
