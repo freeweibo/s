@@ -23,7 +23,7 @@
 </h2>
 <p>SPAM 蒙谁呢 //@奋壹:特色//@迟夙生律师: //@唐山大概齐:[哈哈][哈哈][哈哈]<br><br>RE: 昨天总理考察成都菜市场，碰巧老婆一表姐正好在那个菜市买菜，正好遇见总理，发来的微信照片清清楚楚，除了招手微笑的总理，还有每斤3元的蒲江大樱桃车厘子，今天总理一走，立刻变成每斤30元，尼玛连总理也敢骗！<br><img src="http://ww2.sinaimg.cn/large/0068b8ISgw1f3bcja2sg9j30cs0h10u3.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3968920228670859" target="freeweibo-mirror">SPAM 一方水土一方人，故乡是烙在身上的印，而我身上的印，…</a>
 </h2>
