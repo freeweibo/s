@@ -97,6 +97,12 @@
 <p>
 	<small> ============== 6小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3968935777037596" target="freeweibo-mirror">吐鲁番盆地是天山东部的一个山间盆地，位于天山山地东端。"吐鲁…</a>
+</h2>
+<p>吐鲁番盆地是天山东部的一个山间盆地，位于天山山地东端。"吐鲁番"是维吾尔语"低地"的意思。它是一个典型的地堑盆地，也是中国地势最低和夏季气温最高的地方。大部分地面在海拔500米以下。20世纪80年代以来，通过营造防护林和加强灌溉管理，风沙已初步控制，生态环境有所改善。http://t.cn/RqNzJ1y<br><img src="http://ww2.sinaimg.cn/large/593a79f9jw1f3bf2lsovrj20ib0p0wlc.jpg"></p>
+<p>
+	<small> ============== 8小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3968931745786485" target="freeweibo-mirror">造假欺骗如此煞费苦心，事后声明如此大义凛然，只能说明这个社会…</a>
 </h2>
 <p>造假欺骗如此煞费苦心，事后声明如此大义凛然，只能说明这个社会欺骗的成本几乎等于零。骗吧，不管怎么，骗也是善意的。自从有了某种特色的善恶标准之后，所有的恶都有了一件华丽的外衣。<br><img src="http://ww1.sinaimg.cn/large/408bb143jw1f3beh9wo8kj20c80gbjt4.jpg"></p>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3968883582759148" target="freeweibo-mirror">这是什么节奏！台湾英雄铜像一揭幕……结果是他……</a>
 </h2>
 <p>这是什么节奏！台湾英雄铜像一揭幕……结果是他……<br><img src="http://ww2.sinaimg.cn/large/6d0b6b33gw1f3b92ncgmij20k00zkjxc.jpg"></p>
-<p>
-	<small> ============== 11小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3968881720815180" target="freeweibo-mirror">#沈阳交通#【交警指挥高于信号灯 “闯手势”罚200元】电子…</a>
-</h2>
-<p>#沈阳交通#【交警指挥高于信号灯 “闯手势”罚200元】电子警察抓拍视频均会进行人工二次审核，服从交警手势闯红灯不会被处罚。http://t.cn/RqWQ14R<br><img src="http://ww4.sinaimg.cn/large/6486bd88jw1f3b1uim35tj20ds09oglx.jpg"></p>
 <p>
 	<small> ============== 11小时前</small>
 </p>
