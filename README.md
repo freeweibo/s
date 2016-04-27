@@ -41,7 +41,7 @@
 </h2>
 <p>SPAM //@城南邮局:最后你终会碰到一个人，终结了你所有的胡思乱想</p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3968642565023986" target="freeweibo-mirror">//@煙巳惔嘸菋: [挤眼]//@壹号草民: [ok]//@…</a>
 </h2>
