@@ -59,13 +59,13 @@
 </h2>
 <p>SPAM  //@蔡崇国之二:转！<br><br>RE: 刚看见一封呼吁信。<br><img src="http://ww3.sinaimg.cn/large/5988fecejw1f3bkgr817nj20qo2gq7ng.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3969152270101303" target="freeweibo-mirror">小岗村单干生死书是彻头彻尾的假货!编造和平阳光,生态丰茂,党…</a>
 </h2>
 <p>小岗村单干生死书是彻头彻尾的假货!编造和平阳光,生态丰茂,党政坚强,雷锋无数,朋友遍天下的公有制中国饿死人的卖国贼是反人类的垃圾!打倒违宪反共反工农反人类的私改贼及主子帝国财阀党!创建回归公有公正,共产共富,经济民主,政治自由,平均地权,成本房权医权学权粮权水权的奥林匹克社会主义!<br><img src="http://ww3.sinaimg.cn/large/5487a01cgw1f3c3vfedb4j20c890ib2b.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3969150320060708" target="freeweibo-mirror">//@黄思敏律师:转发微博</a>
 </h2>
@@ -137,7 +137,7 @@
 </h2>
 <p>“赶快交五分钱！子弹费！昨天枪决你女儿的，政府先给你垫付的。快点！”1968年4月29日，35岁的北大才女林昭，因不满文革之倒行逆施，被当局枪杀于上海，次日，执行人员上门向其年迈的父母收取子弹费。不久，曾留学英国习宪政的父亲自尽；抗日英雄母亲外滩病死。明天，是她的祭日，请转起[蜡烛][蜡烛]<br><img src="http://ww3.sinaimg.cn/large/65c38c30jw1f3bpxtq6b1j209y06oaas.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p>
 <table>
     <tr>
