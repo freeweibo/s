@@ -101,13 +101,13 @@
 </h2>
 <p>道理其实是一样的[挖鼻]#大尸凶的漫画#<br><img src="http://ww2.sinaimg.cn/large/767e4963jw1f3c9pn8jcyj20m80fsju7.jpg"></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3969201967774083" target="freeweibo-mirror">《李作鹏回忆录》读书摘记： 【1】在我刑滿到期尚被剝奪政治權…</a>
 </h2>
 <p>《李作鹏回忆录》读书摘记： 【1】在我刑滿到期尚被剝奪政治權利五年時，中共中央對我有若干特殊規定，其中一條是戰爭年代回憶錄可以寫，可以發表；文革年代回憶錄也可以寫，但發表要經審查。現...文字版>> http://t.cn/RqlSsLO （新浪长微博>> http://t.cn/zOXAaic）<br><img src="http://ww4.sinaimg.cn/large/70b79576jw1f3c9nsotrrj20c84991kx.jpg"></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3969185791100252" target="freeweibo-mirror">这捕风捉影的东西，俺们坚决不信！</a>
 </h2>
