@@ -115,6 +115,12 @@
 <p>
 	<small> ============== 6小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3969150286290875" target="freeweibo-mirror">【刘怡：谁在欺骗总理？】有网民反驳说，在信息化的今天，各地的…</a>
+</h2>
+<p>【刘怡：谁在欺骗总理？】有网民反驳说，在信息化的今天，各地的农副产品、食品价格都是全部公开的，每天更新，领导人再忙，也可以花一点时间上网看看，不然让秘书整理报告一下，谁能骗得了谁。但实际上，在中国，“欺骗总理”的新闻并不鲜见。比较有名的是“粮库满仓骗总理”。http://t.cn/RqlVzeT<br><img src="http://ww3.sinaimg.cn/large/6298156bjw1f3c3q2itxlj20co0fmgmg.jpg"></p>
+<p>
+	<small> ============== 6小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3969134942797189" target="freeweibo-mirror">【今日精彩】①朝鲜课本里的金日成父子，雷死人！②这样吃饭，其…</a>
 </h2>
 <p>【今日精彩】①朝鲜课本里的金日成父子，雷死人！②这样吃饭，其实是在喂养身体里的“癌细胞”！③日本，让人深思！不可不看④迪拜真的那么富有吗？真相是.....⑤蔡英文至今未婚的惊天秘密⑥一位老太太惊天退休计划！打死你也想不到，绝了！……【搜索V信  rszh86  详细阅读】<br><img src="http://ww1.sinaimg.cn/large/98c1610bjw1f3c1yovqspj20ku1120y5.jpg"></p>
@@ -125,19 +131,13 @@
 </h2>
 <p>//@小桥流水li://@chunyang188再世://@石家庄陈庆义: //@中华网络战区:转发微博<br><br>RE: 温家宝不但是日趋走向独立的台湾的"英雄"，更是时刻欲置中国人民于灭亡的美帝的“英雄"！当今，这样的"英雄"还很多～他们的每次"英雄壮举"，就是中国离灾难又近了一步！ http://t.cn/RqWnaah （分享自@凤凰新闻客户端）<br><img src="http://ww3.sinaimg.cn/large/005NVVlbjw1f3bni54jqwj30cs0j6jtp.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3969127377010393" target="freeweibo-mirror">[生病] //@钢铁侠:[笑cry] //@性感玉米:又来了…</a>
 </h2>
 <p>[生病] //@钢铁侠:[笑cry] //@性感玉米:又来了，皇帝都是好的，坏的都是宦官，对吧。皇帝真不喜欢，下面人敢弄？不要老觉得导而优则演的不是剧组的成员，成熟一点，你这想法，对得起你在走国活的日子么 //@归零者二条:地方领导的意思<br><br>RE: 总理来了…… http://t.cn/RqWorgo</p>
 <p>
 	<small> ============== 8小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3969109459398989" target="freeweibo-mirror">SPAM 回复@公子扶蕖:母亲节送礼嘛 //@公子扶蕖:有官…</a>
-</h2>
-<p>SPAM 回复@公子扶蕖:母亲节送礼嘛 //@公子扶蕖:有官网真好 这边百货199才送个图中款… 只是多了个洗手液<br><br>RE: Jo Malone今天有任意满$100就送两件豪华小样，有身体乳（15ml）和香水（9ml）任选。限量版Nashi Blossom梨花香水官网也上新了，还有blooming marvellous主题礼盒，可以送母亲节礼物 http://t.cn/RqlLaOq<br><img src="http://ww2.sinaimg.cn/large/6c0e6e30gw1f3ble56natj20cn0c9myb.jpg"></p>
-<p>
-	<small> ============== 9小时前</small>
 </p>
 <table>
     <tr>
