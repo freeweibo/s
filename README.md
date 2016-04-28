@@ -65,7 +65,7 @@
 </h2>
 <p>//@作家岳南:[拍照]//@创业家李宗升: 转发微博<br><br>RE: 分享图片<br><img src="http://ww3.sinaimg.cn/large/afa537c8gw1f3cpwx2irlj20ig0cajsw.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3969369958636894" target="freeweibo-mirror">SPAM 独家定制[心]</a>
 </h2>
