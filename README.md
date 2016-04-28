@@ -61,6 +61,12 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3969152270101303" target="freeweibo-mirror">小岗村单干生死书是彻头彻尾的假货!编造和平阳光,生态丰茂,党…</a>
+</h2>
+<p>小岗村单干生死书是彻头彻尾的假货!编造和平阳光,生态丰茂,党政坚强,雷锋无数,朋友遍天下的公有制中国饿死人的卖国贼是反人类的垃圾!打倒违宪反共反工农反人类的私改贼及主子帝国财阀党!创建回归公有公正,共产共富,经济民主,政治自由,平均地权,成本房权医权学权粮权水权的奥林匹克社会主义!<br><img src="http://ww3.sinaimg.cn/large/5487a01cgw1f3c3vfedb4j20c890ib2b.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3969150320060708" target="freeweibo-mirror">//@黄思敏律师:转发微博</a>
 </h2>
 <p>//@黄思敏律师:转发微博<br><br>RE: 刚看见一封呼吁信。<br><img src="http://ww3.sinaimg.cn/large/5988fecejw1f3bkgr817nj20qo2gq7ng.jpg"></p>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3969029049698103" target="freeweibo-mirror">上新闻联播了没有呢？总理不一定喜欢，但也没看出其尴尬。</a>
 </h2>
 <p>上新闻联播了没有呢？总理不一定喜欢，但也没看出其尴尬。</p>
-<p>
-	<small> ============== 11小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3969028093850090" target="freeweibo-mirror">此前也没有这样的。 //@天涯赵瑜:感觉李总理完全被这些热情…</a>
-</h2>
-<p>此前也没有这样的。 //@天涯赵瑜:感觉李总理完全被这些热情的愚民绑架：他既不能说这样子做不好，也不能夸这样子做好。这一场演出，是中国新闻联播数十年教育的恶果。//@帅哥的亲爹:起了一身鸡皮疙瘩....</p>
 <p>
 	<small> ============== 11小时前</small>
 </p>
