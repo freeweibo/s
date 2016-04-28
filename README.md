@@ -65,7 +65,7 @@
 </h2>
 <p>//@红月亮之夜: 这是真的吗？怕什么呢？//@流沙有金7://@春来寒归: 当这种官，没意义了！//@-静海心语-:还真没有。群众眼睛是雪亮的[笑cry][笑cry][笑cry]//@人方guo：确实没有看见刀，是真的？<br><br>RE: 总理：“给我四斤” 老板：“卖不了，知道您要来，刀被没收了”[泪]<br><img src="http://ww1.sinaimg.cn/large/97035f9fgw1f3blxwj1noj20m80erjud.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3969170388914711" target="freeweibo-mirror">//@冰气化水://@九仟客归来:庆丰末年，奸官当道，民不知…</a>
 </h2>
