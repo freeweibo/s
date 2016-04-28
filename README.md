@@ -23,7 +23,7 @@
 </h2>
 <p>SPAM 小数点的游戏：中堂来了，往前挪，它成了物价。中堂走了，往后挪，它就成了GDP！//@周铁东本人:所以才会有“何不食肉糜” 的决策频出。<br><br>RE: 分享图片<br><img src="http://ww3.sinaimg.cn/large/afa537c8gw1f3cpwx2irlj20ig0cajsw.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3969374962390432" target="freeweibo-mirror">[围观]//@李彤律师: 转发微博</a>
 </h2>
