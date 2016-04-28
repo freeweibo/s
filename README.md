@@ -19,11 +19,23 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3969219861028208" target="freeweibo-mirror">不要把板子都打在下面人的屁股上。很多时候，一些人自己很愿意被…</a>
+</h2>
+<p>不要把板子都打在下面人的屁股上。很多时候，一些人自己很愿意被骗。<br><br>RE: 【刘怡：谁在欺骗总理？】有网民反驳说，在信息化的今天，各地的农副产品、食品价格都是全部公开的，每天更新，领导人再忙，也可以花一点时间上网看看，不然让秘书整理报告一下，谁能骗得了谁。但实际上，在中国，“欺骗总理”的新闻并不鲜见。比较有名的是“粮库满仓骗总理”。http://t.cn/RqlVzeT<br><img src="http://ww3.sinaimg.cn/large/6298156bjw1f3c3q2itxlj20co0fmgmg.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3969215293829378" target="freeweibo-mirror">//@胡杨麟:回复@李雪非眼科-eHealth:你现在就在专…</a>
+</h2>
+<p>//@胡杨麟:回复@李雪非眼科-eHealth:你现在就在专制统治下啊，也没见你去反抗，你是眼科专家还是吹牛逼专家？ //@李雪非眼科-eHealth:人一生辛苦 无非就是做猪 要么野猪 要么家猪 家猪更稳定 生长更有效率 所以很多理智的精英说做家猪。   在这个时代还要说专制 就是反人类！</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3969201967774083" target="freeweibo-mirror">《李作鹏回忆录》读书摘记： 【1】在我刑滿到期尚被剝奪政治權…</a>
 </h2>
 <p>《李作鹏回忆录》读书摘记： 【1】在我刑滿到期尚被剝奪政治權利五年時，中共中央對我有若干特殊規定，其中一條是戰爭年代回憶錄可以寫，可以發表；文革年代回憶錄也可以寫，但發表要經審查。現...文字版>> http://t.cn/RqlSsLO （新浪长微博>> http://t.cn/zOXAaic）<br><img src="http://ww4.sinaimg.cn/large/70b79576jw1f3c9nsotrrj20c84991kx.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3969184062417013" target="freeweibo-mirror">SPAM 【作业帮成00后学习交流聚集地 “亲子写字大赛”神…</a>
 </h2>
@@ -124,18 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3969037509399460" target="freeweibo-mirror">SPAM </a>
 </h2>
 <p>SPAM </p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3969034833833811" target="freeweibo-mirror">SPAM 唱的什么啊？没听清楚。</a>
-</h2>
-<p>SPAM 唱的什么啊？没听清楚。</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3969031796802533" target="freeweibo-mirror">[熊猫] //@喂小猴儿: 我以为是丐帮在唱《鼠来宝》[衰]…</a>
-</h2>
-<p>[熊猫] //@喂小猴儿: 我以为是丐帮在唱《鼠来宝》[衰]//@天涯赵瑜:感觉李总理完全被这些热情的愚民绑架：）他既不能说这样子做不好，也不能夸这样子做好。这一场演出，是中国新闻联播数十年教育的恶果。//@连谏: 太恶心了//@乌托国民16:现在拍戏的质量越来越差 //@帅哥的亲爹:起了一身鸡皮疙瘩....</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
