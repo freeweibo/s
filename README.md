@@ -35,7 +35,7 @@
 </h2>
 <p>如果你知道谁腐败，尽管去举报，我们都支持你，为什么你不敢？因为怂逼吗？//@酒醒何处之杨柳岸:[赞]胡大V，您能从现政权各政府部门中 ，十人里面找出两个不腐败的官员来吗？//@胡杨麟:因为这个政府腐败无能，已经不能代表中国百姓的利益了。//@耶侓大石: 请问我党为什么要推翻蒋中正的专制独裁政府呢</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3969209657160098" target="freeweibo-mirror">回复@李雪非眼科-eHealth:你现在就在专制统治下啊，也…</a>
 </h2>
@@ -113,13 +113,13 @@
 </h2>
 <p>SPAM  //@蔡崇国之二:转！<br><br>RE: 刚看见一封呼吁信。<br><img src="http://ww3.sinaimg.cn/large/5988fecejw1f3bkgr817nj20qo2gq7ng.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3969152270101303" target="freeweibo-mirror">小岗村单干生死书是彻头彻尾的假货!编造和平阳光,生态丰茂,党…</a>
 </h2>
 <p>小岗村单干生死书是彻头彻尾的假货!编造和平阳光,生态丰茂,党政坚强,雷锋无数,朋友遍天下的公有制中国饿死人的卖国贼是反人类的垃圾!打倒违宪反共反工农反人类的私改贼及主子帝国财阀党!创建回归公有公正,共产共富,经济民主,政治自由,平均地权,成本房权医权学权粮权水权的奥林匹克社会主义!<br><img src="http://ww3.sinaimg.cn/large/5487a01cgw1f3c3vfedb4j20c890ib2b.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3969150320060708" target="freeweibo-mirror">//@黄思敏律师:转发微博</a>
 </h2>
