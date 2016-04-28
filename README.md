@@ -89,7 +89,7 @@
 </h2>
 <p>//@小桥流水li://@chunyang188再世://@石家庄陈庆义: //@中华网络战区:转发微博<br><br>RE: 温家宝不但是日趋走向独立的台湾的"英雄"，更是时刻欲置中国人民于灭亡的美帝的“英雄"！当今，这样的"英雄"还很多～他们的每次"英雄壮举"，就是中国离灾难又近了一步！ http://t.cn/RqWnaah （分享自@凤凰新闻客户端）<br><img src="http://ww3.sinaimg.cn/large/005NVVlbjw1f3bni54jqwj30cs0j6jtp.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3969127377010393" target="freeweibo-mirror">[生病] //@钢铁侠:[笑cry] //@性感玉米:又来了…</a>
 </h2>
@@ -125,7 +125,7 @@
 </h2>
 <p>SPAM 唱的什么啊？没听清楚。</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3969031796802533" target="freeweibo-mirror">[熊猫] //@喂小猴儿: 我以为是丐帮在唱《鼠来宝》[衰]…</a>
 </h2>
