@@ -31,15 +31,33 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3969209657160098" target="freeweibo-mirror">回复@李雪非眼科-eHealth:你现在就在专制统治下啊，也…</a>
+</h2>
+<p>回复@李雪非眼科-eHealth:你现在就在专制统治下啊，也没见你去反抗，你是眼科专家还是吹牛逼专家？ //@李雪非眼科-eHealth:人一生辛苦 无非就是做猪 要么野猪 要么家猪 家猪更稳定 生长更有效率 所以很多理智的精英说做家猪。   在这个时代还要说专制 就是反人类！</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3969201967774083" target="freeweibo-mirror">《李作鹏回忆录》读书摘记： 【1】在我刑滿到期尚被剝奪政治權…</a>
 </h2>
 <p>《李作鹏回忆录》读书摘记： 【1】在我刑滿到期尚被剝奪政治權利五年時，中共中央對我有若干特殊規定，其中一條是戰爭年代回憶錄可以寫，可以發表；文革年代回憶錄也可以寫，但發表要經審查。現...文字版>> http://t.cn/RqlSsLO （新浪长微博>> http://t.cn/zOXAaic）<br><img src="http://ww4.sinaimg.cn/large/70b79576jw1f3c9nsotrrj20c84991kx.jpg"></p>
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3969185287849278" target="freeweibo-mirror">[思考]//@小树林s:楼主为啥要制造假照片？http://…</a>
+</h2>
+<p>[思考]//@小树林s:楼主为啥要制造假照片？http://t.cn/Rql6F06 //@辟谣与真相:哦，两个小数点？又出来这个版本？可为何左上角那个“2.00”的牌子是一个小数点？http://t.cn/RqWpxVe；http://t.cn/Rql6WX2<br><br>RE: 【刘怡：谁在欺骗总理？】有网民反驳说，在信息化的今天，各地的农副产品、食品价格都是全部公开的，每天更新，领导人再忙，也可以花一点时间上网看看，不然让秘书整理报告一下，谁能骗得了谁。但实际上，在中国，“欺骗总理”的新闻并不鲜见。比较有名的是“粮库满仓骗总理”。http://t.cn/RqlVzeT<br><img src="http://ww3.sinaimg.cn/large/6298156bjw1f3c3q2itxlj20co0fmgmg.jpg"></p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3969184062417013" target="freeweibo-mirror">SPAM 【作业帮成00后学习交流聚集地 “亲子写字大赛”神…</a>
 </h2>
 <p>SPAM 【作业帮成00后学习交流聚集地 “亲子写字大赛”神作频出】由在中小学生中大受欢迎的学习app作业帮所举办的“中小学生亲子写字大赛”刚刚结束，00后的书法果然是不走寻常路，有书法大神还有各种脑洞作品，还能不能好好写字了！<br><img src="http://ww3.sinaimg.cn/large/aa0a453djw1f3c7hz4kzrj20m12pdtrn.jpg"></p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3969182628767270" target="freeweibo-mirror">哦，两个小数点？又出来这个版本？可为何左上角那个“2.00”…</a>
+</h2>
+<p>哦，两个小数点？又出来这个版本？可为何左上角那个“2.00”的牌子是一个小数点？http://t.cn/RqWpxVe； http://t.cn/Rql6WX2<br><br>RE: 【刘怡：谁在欺骗总理？】有网民反驳说，在信息化的今天，各地的农副产品、食品价格都是全部公开的，每天更新，领导人再忙，也可以花一点时间上网看看，不然让秘书整理报告一下，谁能骗得了谁。但实际上，在中国，“欺骗总理”的新闻并不鲜见。比较有名的是“粮库满仓骗总理”。http://t.cn/RqlVzeT<br><img src="http://ww3.sinaimg.cn/large/6298156bjw1f3c3q2itxlj20co0fmgmg.jpg"></p>
 <p>
 	<small> ============== 4小时前</small>
 </p><h2>
@@ -113,31 +131,13 @@
 </h2>
 <p>[生病] //@钢铁侠:[笑cry] //@性感玉米:又来了，皇帝都是好的，坏的都是宦官，对吧。皇帝真不喜欢，下面人敢弄？不要老觉得导而优则演的不是剧组的成员，成熟一点，你这想法，对得起你在走国活的日子么 //@归零者二条:地方领导的意思<br><br>RE: 总理来了…… http://t.cn/RqWorgo</p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3969109459398989" target="freeweibo-mirror">SPAM 回复@公子扶蕖:母亲节送礼嘛 //@公子扶蕖:有官…</a>
 </h2>
 <p>SPAM 回复@公子扶蕖:母亲节送礼嘛 //@公子扶蕖:有官网真好 这边百货199才送个图中款… 只是多了个洗手液<br><br>RE: Jo Malone今天有任意满$100就送两件豪华小样，有身体乳（15ml）和香水（9ml）任选。限量版Nashi Blossom梨花香水官网也上新了，还有blooming marvellous主题礼盒，可以送母亲节礼物 http://t.cn/RqlLaOq<br><img src="http://ww2.sinaimg.cn/large/6c0e6e30gw1f3ble56natj20cn0c9myb.jpg"></p>
 <p>
 	<small> ============== 9小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3969039703049502" target="freeweibo-mirror">这一届人民确实不行呀//@陈光武律师: //@周泽律师: /…</a>
-</h2>
-<p>这一届人民确实不行呀//@陈光武律师: //@周泽律师: //@天涯赵瑜:感觉李总理完全被这些热情的愚民绑架：）他既不能说这样子做不好，也不能夸这样子做好。//@连谏: 太恶心了//@笨笨an:[汗]//@孫文1915革命://@乌托国民16:现在拍戏的质量越来越差 //@帅哥的亲爹:起了一身鸡皮疙瘩....</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3969039417590684" target="freeweibo-mirror">//@夏榆的海景房: 这么恶心丑陋的表演，为什么没有随员阻止…</a>
-</h2>
-<p>//@夏榆的海景房: 这么恶心丑陋的表演，为什么没有随员阻止呢//@周泽律师: //@天涯赵瑜:感觉李总理完全被这些热情的愚民绑架：）他既不能说这样子做不好，也不能夸这样子做好。这一场演出，是中国新闻联播数十年教育的恶果。//@连谏: 太恶心了://@乌托国民16:现在拍戏的质量越来越差</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3969037509399460" target="freeweibo-mirror">SPAM </a>
-</h2>
-<p>SPAM </p>
-<p>
-	<small> ============== 1天前</small>
 </p>
 <table>
     <tr>
