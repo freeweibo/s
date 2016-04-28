@@ -23,7 +23,7 @@
 </h2>
 <p>//@孔_智勇:就算公开也不信，帝国主义之心亡我不死。//@九段II:俺也坚决不信。[感冒]就信到时候的芮成钢之类的新闻哦。//@Nuclea-rWinter:珊贴就够了。//@伊露桑III: 5月9日，东亚断网日。</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3969274059654012" target="freeweibo-mirror">SPAM 名字真是简单粗暴....</a>
 </h2>
@@ -125,7 +125,7 @@
 </h2>
 <p>SPAM 【作业帮成00后学习交流聚集地 “亲子写字大赛”神作频出】由在中小学生中大受欢迎的学习app作业帮所举办的“中小学生亲子写字大赛”刚刚结束，00后的书法果然是不走寻常路，有书法大神还有各种脑洞作品，还能不能好好写字了！<br><img src="http://ww3.sinaimg.cn/large/aa0a453djw1f3c7hz4kzrj20m12pdtrn.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3969183643110040" target="freeweibo-mirror">这么大的一个媒体居然搞PS假新闻?//@辟谣与真相:哦，两个…</a>
 </h2>
