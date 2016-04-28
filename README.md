@@ -23,7 +23,7 @@
 </h2>
 <p>不要把板子都打在下面人的屁股上。很多时候，一些人自己很愿意被骗。<br><br>RE: 【刘怡：谁在欺骗总理？】有网民反驳说，在信息化的今天，各地的农副产品、食品价格都是全部公开的，每天更新，领导人再忙，也可以花一点时间上网看看，不然让秘书整理报告一下，谁能骗得了谁。但实际上，在中国，“欺骗总理”的新闻并不鲜见。比较有名的是“粮库满仓骗总理”。http://t.cn/RqlVzeT<br><img src="http://ww3.sinaimg.cn/large/6298156bjw1f3c3q2itxlj20co0fmgmg.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3969215293829378" target="freeweibo-mirror">//@胡杨麟:回复@李雪非眼科-eHealth:你现在就在专…</a>
 </h2>
