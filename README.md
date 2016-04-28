@@ -19,6 +19,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3969184062417013" target="freeweibo-mirror">SPAM 【作业帮成00后学习交流聚集地 “亲子写字大赛”神…</a>
+</h2>
+<p>SPAM 【作业帮成00后学习交流聚集地 “亲子写字大赛”神作频出】由在中小学生中大受欢迎的学习app作业帮所举办的“中小学生亲子写字大赛”刚刚结束，00后的书法果然是不走寻常路，有书法大神还有各种脑洞作品，还能不能好好写字了！<br><img src="http://ww3.sinaimg.cn/large/aa0a453djw1f3c7hz4kzrj20m12pdtrn.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3969176307497556" target="freeweibo-mirror">//@红月亮之夜: 这是真的吗？怕什么呢？//@流沙有金7:…</a>
 </h2>
 <p>//@红月亮之夜: 这是真的吗？怕什么呢？//@流沙有金7://@春来寒归: 当这种官，没意义了！//@-静海心语-:还真没有。群众眼睛是雪亮的[笑cry][笑cry][笑cry]//@人方guo：确实没有看见刀，是真的？<br><br>RE: 总理：“给我四斤” 老板：“卖不了，知道您要来，刀被没收了”[泪]<br><img src="http://ww1.sinaimg.cn/large/97035f9fgw1f3blxwj1noj20m80erjud.jpg"></p>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3969031763710203" target="freeweibo-mirror">//@PENGJING09305:  湖南省南县人民维权之路…</a>
 </h2>
 <p>//@PENGJING09305:  湖南省南县人民维权之路何其艰辛：昨天晚上凌晨政府派特警抓走6名以上青壮年村民，当地气温最高20度最低15度，有人就只一条短裤也被抓走，更可恨的是把一家父母一起抓走，留下一对嗷嗷待哺的儿女，希望能得到全国同胞的支持，顶起来，感谢！！- http://t.cn/RqW7fDz</p>
-<p>
-	<small> ============== 12小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3969030819583507" target="freeweibo-mirror">“赶快交五分钱！子弹费！昨天枪决你女儿的，政府先给你垫付的。…</a>
-</h2>
-<p>“赶快交五分钱！子弹费！昨天枪决你女儿的，政府先给你垫付的。快点！”1968年4月29日，35岁的北大才女林昭，因不满文革之倒行逆施，被当局枪杀于上海，次日，执行人员上门向其年迈的父母收取子弹费。不久，曾留学英国习宪政的父亲自尽；抗日英雄母亲外滩病死。明天，是她的祭日，请转起[蜡烛][蜡烛]<br><img src="http://ww3.sinaimg.cn/large/65c38c30jw1f3bpxtq6b1j209y06oaas.jpg"></p>
 <p>
 	<small> ============== 12小时前</small>
 </p>
