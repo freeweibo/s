@@ -125,7 +125,7 @@
 </h2>
 <p>湖北地信科技集团股份有限公司实习生招聘  http://t.cn/Rqljugc  二、员工福利： （一）法定福利  1.五险一金；  2.法定假期（承认过往工龄并折算年假）；  3.双休/周。  更多招聘详情请关注微信公众号<br><img src="http://ww2.sinaimg.cn/large/45ce37e7jw1f3cd5arja2j205m05mdg2.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3969253717561476" target="freeweibo-mirror">#移民观察# 400万的学区房或成泡影，南京600土豪家庭或…</a>
 </h2>
