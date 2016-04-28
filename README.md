@@ -19,6 +19,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3969297904729809" target="freeweibo-mirror">//@孔_智勇:就算公开也不信，帝国主义之心亡我不死。//@…</a>
+</h2>
+<p>//@孔_智勇:就算公开也不信，帝国主义之心亡我不死。//@九段II:俺也坚决不信。[感冒]就信到时候的芮成钢之类的新闻哦。//@Nuclea-rWinter:珊贴就够了。//@伊露桑III: 5月9日，东亚断网日。</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3969250164863008" target="freeweibo-mirror">SPAM 真相是画出来的！</a>
 </h2>
 <p>SPAM 真相是画出来的！<br><br>RE: 道理其实是一样的[挖鼻]#大尸凶的漫画#<br><img src="http://ww2.sinaimg.cn/large/767e4963jw1f3c9pn8jcyj20m80fsju7.jpg"></p>
@@ -77,13 +83,19 @@
 </h2>
 <p>道理其实是一样的[挖鼻]#大尸凶的漫画#<br><img src="http://ww2.sinaimg.cn/large/767e4963jw1f3c9pn8jcyj20m80fsju7.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3969201967774083" target="freeweibo-mirror">《李作鹏回忆录》读书摘记： 【1】在我刑滿到期尚被剝奪政治權…</a>
 </h2>
 <p>《李作鹏回忆录》读书摘记： 【1】在我刑滿到期尚被剝奪政治權利五年時，中共中央對我有若干特殊規定，其中一條是戰爭年代回憶錄可以寫，可以發表；文革年代回憶錄也可以寫，但發表要經審查。現...文字版>> http://t.cn/RqlSsLO （新浪长微博>> http://t.cn/zOXAaic）<br><img src="http://ww4.sinaimg.cn/large/70b79576jw1f3c9nsotrrj20c84991kx.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3969185791100252" target="freeweibo-mirror">这捕风捉影的东西，俺们坚决不信！</a>
+</h2>
+<p>这捕风捉影的东西，俺们坚决不信！<br><img src="http://ww2.sinaimg.cn/large/006m0wb8gw1f3c7sh0qa4j30iw0su0wf.jpg"></p>
+<p>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3969185287849278" target="freeweibo-mirror">[思考]//@小树林s:楼主为啥要制造假照片？http://…</a>
 </h2>
@@ -124,18 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3969169848291152" target="freeweibo-mirror">[蜡烛]//@郑在索律师: [蜡烛][蜡烛][蜡烛]自由无价…</a>
 </h2>
 <p>[蜡烛]//@郑在索律师: [蜡烛][蜡烛][蜡烛]自由无价 ，生命有涯 ，宁为玉碎， 以殉中华！<br><br>RE: “赶快交五分钱！子弹费！昨天枪决你女儿的，政府先给你垫付的。快点！”1968年4月29日，35岁的北大才女林昭，因不满文革之倒行逆施，被当局枪杀于上海，次日，执行人员上门向其年迈的父母收取子弹费。不久，曾留学英国习宪政的父亲自尽；抗日英雄母亲外滩病死。明天，是她的祭日，请转起[蜡烛][蜡烛]<br><img src="http://ww3.sinaimg.cn/large/65c38c30jw1f3bpxtq6b1j209y06oaas.jpg"></p>
-<p>
-	<small> ============== 10小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3969169060232656" target="freeweibo-mirror">小岗农民说谎做假是被逼的！@杨恭_12712：只有落后的领导…</a>
-</h2>
-<p>小岗农民说谎做假是被逼的！@杨恭_12712：只有落后的领导,没有落后的群众,政治路线确定之后干部是决定的因素,群众靠领导去组织,去调动,去管理,只有没有水平的领导才能采用利益驱动的原则的,革命战争年代如此,现在也是如此, http://t.cn/RqlJf6L<br><br>RE: 小岗村单干生死书是彻头彻尾的假货!编造和平阳光,生态丰茂,党政坚强,雷锋无数,朋友遍天下的公有制中国饿死人的卖国贼是反人类的垃圾!打倒违宪反共反工农反人类的私改贼及主子帝国财阀党!创建回归公有公正,共产共富,经济民主,政治自由,平均地权,成本房权医权学权粮权水权的奥林匹克社会主义!<br><img src="http://ww3.sinaimg.cn/large/5487a01cgw1f3c3vfedb4j20c890ib2b.jpg"></p>
-<p>
-	<small> ============== 10小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3969168527224410" target="freeweibo-mirror">@小黄蛉：建军仁兄：如此拙劣骗术，我无言以对。[哈哈] ht…</a>
-</h2>
-<p>@小黄蛉：建军仁兄：如此拙劣骗术，我无言以对。[哈哈] http://t.cn/RqlJGXg<br><br>RE: 小岗村单干生死书是彻头彻尾的假货!编造和平阳光,生态丰茂,党政坚强,雷锋无数,朋友遍天下的公有制中国饿死人的卖国贼是反人类的垃圾!打倒违宪反共反工农反人类的私改贼及主子帝国财阀党!创建回归公有公正,共产共富,经济民主,政治自由,平均地权,成本房权医权学权粮权水权的奥林匹克社会主义!<br><img src="http://ww3.sinaimg.cn/large/5487a01cgw1f3c3vfedb4j20c890ib2b.jpg"></p>
 <p>
 	<small> ============== 10小时前</small>
 </p>
