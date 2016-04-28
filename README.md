@@ -61,6 +61,12 @@
 <p>
 	<small> ============== 4小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3969183643110040" target="freeweibo-mirror">这么大的一个媒体居然搞PS假新闻?//@辟谣与真相:哦，两个…</a>
+</h2>
+<p>这么大的一个媒体居然搞PS假新闻?//@辟谣与真相:哦，两个小数点？又出来这个版本？可为何左上角那个“2.00”的牌子是一个小数点？http://t.cn/RqWpxVe； http://t.cn/Rql6WX2<br><br>RE: 【刘怡：谁在欺骗总理？】有网民反驳说，在信息化的今天，各地的农副产品、食品价格都是全部公开的，每天更新，领导人再忙，也可以花一点时间上网看看，不然让秘书整理报告一下，谁能骗得了谁。但实际上，在中国，“欺骗总理”的新闻并不鲜见。比较有名的是“粮库满仓骗总理”。http://t.cn/RqlVzeT<br><img src="http://ww3.sinaimg.cn/large/6298156bjw1f3c3q2itxlj20co0fmgmg.jpg"></p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3969182628767270" target="freeweibo-mirror">哦，两个小数点？又出来这个版本？可为何左上角那个“2.00”…</a>
 </h2>
 <p>哦，两个小数点？又出来这个版本？可为何左上角那个“2.00”的牌子是一个小数点？http://t.cn/RqWpxVe； http://t.cn/Rql6WX2<br><br>RE: 【刘怡：谁在欺骗总理？】有网民反驳说，在信息化的今天，各地的农副产品、食品价格都是全部公开的，每天更新，领导人再忙，也可以花一点时间上网看看，不然让秘书整理报告一下，谁能骗得了谁。但实际上，在中国，“欺骗总理”的新闻并不鲜见。比较有名的是“粮库满仓骗总理”。http://t.cn/RqlVzeT<br><img src="http://ww3.sinaimg.cn/large/6298156bjw1f3c3q2itxlj20co0fmgmg.jpg"></p>
@@ -119,23 +125,17 @@
 </h2>
 <p>//@黄思敏律师:转发微博<br><br>RE: 刚看见一封呼吁信。<br><img src="http://ww3.sinaimg.cn/large/5988fecejw1f3bkgr817nj20qo2gq7ng.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3969150286290875" target="freeweibo-mirror">【刘怡：谁在欺骗总理？】有网民反驳说，在信息化的今天，各地的…</a>
 </h2>
 <p>【刘怡：谁在欺骗总理？】有网民反驳说，在信息化的今天，各地的农副产品、食品价格都是全部公开的，每天更新，领导人再忙，也可以花一点时间上网看看，不然让秘书整理报告一下，谁能骗得了谁。但实际上，在中国，“欺骗总理”的新闻并不鲜见。比较有名的是“粮库满仓骗总理”。http://t.cn/RqlVzeT<br><img src="http://ww3.sinaimg.cn/large/6298156bjw1f3c3q2itxlj20co0fmgmg.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3969134942797189" target="freeweibo-mirror">【今日精彩】①朝鲜课本里的金日成父子，雷死人！②这样吃饭，其…</a>
 </h2>
 <p>【今日精彩】①朝鲜课本里的金日成父子，雷死人！②这样吃饭，其实是在喂养身体里的“癌细胞”！③日本，让人深思！不可不看④迪拜真的那么富有吗？真相是.....⑤蔡英文至今未婚的惊天秘密⑥一位老太太惊天退休计划！打死你也想不到，绝了！……【搜索V信  rszh86  详细阅读】<br><img src="http://ww1.sinaimg.cn/large/98c1610bjw1f3c1yovqspj20ku1120y5.jpg"></p>
-<p>
-	<small> ============== 7小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3969133253090817" target="freeweibo-mirror">//@小桥流水li://@chunyang188再世://@…</a>
-</h2>
-<p>//@小桥流水li://@chunyang188再世://@石家庄陈庆义: //@中华网络战区:转发微博<br><br>RE: 温家宝不但是日趋走向独立的台湾的"英雄"，更是时刻欲置中国人民于灭亡的美帝的“英雄"！当今，这样的"英雄"还很多～他们的每次"英雄壮举"，就是中国离灾难又近了一步！ http://t.cn/RqWnaah （分享自@凤凰新闻客户端）<br><img src="http://ww3.sinaimg.cn/large/005NVVlbjw1f3bni54jqwj30cs0j6jtp.jpg"></p>
 <p>
 	<small> ============== 8小时前</small>
 </p>
