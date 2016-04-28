@@ -49,6 +49,12 @@
 <p>
 	<small> ============== 4小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3969204967257052" target="freeweibo-mirror">【历史上的今天】1927年4月28日，李大钊被政府以“和苏俄…</a>
+</h2>
+<p>【历史上的今天】1927年4月28日，李大钊被政府以“和苏俄里通外国”为罪名绞刑处决，因刽子手不熟悉绞刑架而绞了三次。李大钊曾公开请愿，要求承认苏联政府，支持苏军驻兵外蒙古，说“把外蒙置于苏俄统治下，那里的人民可以生活得更好”。1927年4月初，张作霖派军突袭苏联大使馆，搜捕李大钊军法审判。<br><img src="http://ww1.sinaimg.cn/large/834dc11cgw1f3ca04g46oj208c0c40ty.jpg"></p>
+<p>
+	<small> ============== 5小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3969201967774083" target="freeweibo-mirror">《李作鹏回忆录》读书摘记： 【1】在我刑滿到期尚被剝奪政治權…</a>
 </h2>
 <p>《李作鹏回忆录》读书摘记： 【1】在我刑滿到期尚被剝奪政治權利五年時，中共中央對我有若干特殊規定，其中一條是戰爭年代回憶錄可以寫，可以發表；文革年代回憶錄也可以寫，但發表要經審查。現...文字版>> http://t.cn/RqlSsLO （新浪长微博>> http://t.cn/zOXAaic）<br><img src="http://ww4.sinaimg.cn/large/70b79576jw1f3c9nsotrrj20c84991kx.jpg"></p>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3969150320060708" target="freeweibo-mirror">//@黄思敏律师:转发微博</a>
 </h2>
 <p>//@黄思敏律师:转发微博<br><br>RE: 刚看见一封呼吁信。<br><img src="http://ww3.sinaimg.cn/large/5988fecejw1f3bkgr817nj20qo2gq7ng.jpg"></p>
-<p>
-	<small> ============== 8小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3969150286290875" target="freeweibo-mirror">【刘怡：谁在欺骗总理？】有网民反驳说，在信息化的今天，各地的…</a>
-</h2>
-<p>【刘怡：谁在欺骗总理？】有网民反驳说，在信息化的今天，各地的农副产品、食品价格都是全部公开的，每天更新，领导人再忙，也可以花一点时间上网看看，不然让秘书整理报告一下，谁能骗得了谁。但实际上，在中国，“欺骗总理”的新闻并不鲜见。比较有名的是“粮库满仓骗总理”。http://t.cn/RqlVzeT<br><img src="http://ww3.sinaimg.cn/large/6298156bjw1f3c3q2itxlj20co0fmgmg.jpg"></p>
 <p>
 	<small> ============== 8小时前</small>
 </p>
