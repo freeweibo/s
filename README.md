@@ -41,7 +41,7 @@
 </h2>
 <p>SPAM 这这这？<br><img src="http://ww2.sinaimg.cn/large/006pzEOvjw1f3ce0zkua5j30gn0cgac7.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3969219861028208" target="freeweibo-mirror">不要把板子都打在下面人的屁股上。很多时候，一些人自己很愿意被…</a>
 </h2>
@@ -65,7 +65,7 @@
 </h2>
 <p>回复@李雪非眼科-eHealth:你现在就在专制统治下啊，也没见你去反抗，你是眼科专家还是吹牛逼专家？ //@李雪非眼科-eHealth:人一生辛苦 无非就是做猪 要么野猪 要么家猪 家猪更稳定 生长更有效率 所以很多理智的精英说做家猪。   在这个时代还要说专制 就是反人类！</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3969204967257052" target="freeweibo-mirror">【历史上的今天】1927年4月28日，李大钊被政府以“和苏俄…</a>
 </h2>
