@@ -41,7 +41,7 @@
 </h2>
 <p>SPAM </p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3969034833833811" target="freeweibo-mirror">SPAM 唱的什么啊？没听清楚。</a>
 </h2>
@@ -95,7 +95,7 @@
 </h2>
 <p>[话筒] //@蒂罗尔的天空C://@文刀化十a://@勇敢的春之声2015: 转发微博<br><br>RE: 转载：当年痛恨四人帮，自愿闻风举刀枪； 日月星辰全淹没，方知世道本非常。   而今愧对四人帮，误信妖言砍栋梁； 忍看神州多鬼怪，原来罪犯是忠良!</p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3969020291517883" target="freeweibo-mirror">[瞧瞧] //@灵舞凌风04:开门，放狗//@名阳豆: //…</a>
 </h2>
