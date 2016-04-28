@@ -23,7 +23,7 @@
 </h2>
 <p>SPAM  //@蔡崇国之二:转！<br><br>RE: 刚看见一封呼吁信。<br><img src="http://ww3.sinaimg.cn/large/5988fecejw1f3bkgr817nj20qo2gq7ng.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3969150320060708" target="freeweibo-mirror">//@黄思敏律师:转发微博</a>
 </h2>
