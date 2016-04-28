@@ -23,7 +23,7 @@
 </h2>
 <p>//@孔_智勇:就算公开也不信，帝国主义之心亡我不死。//@九段II:俺也坚决不信。[感冒]就信到时候的芮成钢之类的新闻哦。//@Nuclea-rWinter:珊贴就够了。//@伊露桑III: 5月9日，东亚断网日。</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3969274059654012" target="freeweibo-mirror">SPAM 名字真是简单粗暴....</a>
 </h2>
