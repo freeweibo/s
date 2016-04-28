@@ -19,6 +19,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3969364476146661" target="freeweibo-mirror">SPAM 觉得生活无聊的盆友下下看，打开新世界大门哦~[do…</a>
+</h2>
+<p>SPAM 觉得生活无聊的盆友下下看，打开新世界大门哦~[doge]</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3969344872381777" target="freeweibo-mirror">SPAM 回复@王小民岁月:哇塞[爱你][色]//@王小民岁…</a>
 </h2>
 <p>SPAM 回复@王小民岁月:哇塞[爱你][色]//@王小民岁月:@贾大户 哥来打麻将了</p>
@@ -107,13 +113,13 @@
 </h2>
 <p>道理其实是一样的[挖鼻]#大尸凶的漫画#<br><img src="http://ww2.sinaimg.cn/large/767e4963jw1f3c9pn8jcyj20m80fsju7.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3969201967774083" target="freeweibo-mirror">《李作鹏回忆录》读书摘记： 【1】在我刑滿到期尚被剝奪政治權…</a>
 </h2>
 <p>《李作鹏回忆录》读书摘记： 【1】在我刑滿到期尚被剝奪政治權利五年時，中共中央對我有若干特殊規定，其中一條是戰爭年代回憶錄可以寫，可以發表；文革年代回憶錄也可以寫，但發表要經審查。現...文字版>> http://t.cn/RqlSsLO （新浪长微博>> http://t.cn/zOXAaic）<br><img src="http://ww4.sinaimg.cn/large/70b79576jw1f3c9nsotrrj20c84991kx.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3969185791100252" target="freeweibo-mirror">这捕风捉影的东西，俺们坚决不信！</a>
 </h2>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3969184062417013" target="freeweibo-mirror">SPAM 【作业帮成00后学习交流聚集地 “亲子写字大赛”神…</a>
 </h2>
 <p>SPAM 【作业帮成00后学习交流聚集地 “亲子写字大赛”神作频出】由在中小学生中大受欢迎的学习app作业帮所举办的“中小学生亲子写字大赛”刚刚结束，00后的书法果然是不走寻常路，有书法大神还有各种脑洞作品，还能不能好好写字了！<br><img src="http://ww3.sinaimg.cn/large/aa0a453djw1f3c7hz4kzrj20m12pdtrn.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3969183643110040" target="freeweibo-mirror">这么大的一个媒体居然搞PS假新闻?//@辟谣与真相:哦，两个…</a>
-</h2>
-<p>这么大的一个媒体居然搞PS假新闻?//@辟谣与真相:哦，两个小数点？又出来这个版本？可为何左上角那个“2.00”的牌子是一个小数点？http://t.cn/RqWpxVe； http://t.cn/Rql6WX2<br><br>RE: 【刘怡：谁在欺骗总理？】有网民反驳说，在信息化的今天，各地的农副产品、食品价格都是全部公开的，每天更新，领导人再忙，也可以花一点时间上网看看，不然让秘书整理报告一下，谁能骗得了谁。但实际上，在中国，“欺骗总理”的新闻并不鲜见。比较有名的是“粮库满仓骗总理”。http://t.cn/RqlVzeT<br><img src="http://ww3.sinaimg.cn/large/6298156bjw1f3c3q2itxlj20co0fmgmg.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
