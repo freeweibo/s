@@ -73,6 +73,12 @@
 <p>
 	<small> ============== 6小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3969202425652403" target="freeweibo-mirror">道理其实是一样的[挖鼻]#大尸凶的漫画#</a>
+</h2>
+<p>道理其实是一样的[挖鼻]#大尸凶的漫画#<br><img src="http://ww2.sinaimg.cn/large/767e4963jw1f3c9pn8jcyj20m80fsju7.jpg"></p>
+<p>
+	<small> ============== 6小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3969201967774083" target="freeweibo-mirror">《李作鹏回忆录》读书摘记： 【1】在我刑滿到期尚被剝奪政治權…</a>
 </h2>
 <p>《李作鹏回忆录》读书摘记： 【1】在我刑滿到期尚被剝奪政治權利五年時，中共中央對我有若干特殊規定，其中一條是戰爭年代回憶錄可以寫，可以發表；文革年代回憶錄也可以寫，但發表要經審查。現...文字版>> http://t.cn/RqlSsLO （新浪长微博>> http://t.cn/zOXAaic）<br><img src="http://ww4.sinaimg.cn/large/70b79576jw1f3c9nsotrrj20c84991kx.jpg"></p>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3969168527224410" target="freeweibo-mirror">@小黄蛉：建军仁兄：如此拙劣骗术，我无言以对。[哈哈] ht…</a>
 </h2>
 <p>@小黄蛉：建军仁兄：如此拙劣骗术，我无言以对。[哈哈] http://t.cn/RqlJGXg<br><br>RE: 小岗村单干生死书是彻头彻尾的假货!编造和平阳光,生态丰茂,党政坚强,雷锋无数,朋友遍天下的公有制中国饿死人的卖国贼是反人类的垃圾!打倒违宪反共反工农反人类的私改贼及主子帝国财阀党!创建回归公有公正,共产共富,经济民主,政治自由,平均地权,成本房权医权学权粮权水权的奥林匹克社会主义!<br><img src="http://ww3.sinaimg.cn/large/5487a01cgw1f3c3vfedb4j20c890ib2b.jpg"></p>
-<p>
-	<small> ============== 8小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3969167968979338" target="freeweibo-mirror">//@转世互粉集结号: 宣传小岗，就是鼓励分裂势力！  以前…</a>
-</h2>
-<p>//@转世互粉集结号: 宣传小岗，就是鼓励分裂势力！  以前的小岗村人,是走村串户要饭,现在的小岗村人,是打着让集体经济散伙的分裂手印向国家要饭!让集体分裂散伙是功绩!那让国家散伙解体是不是更大的功绩呢!?  http://t.cn/RqlMn4D<br><br>RE: 小岗村单干生死书是彻头彻尾的假货!编造和平阳光,生态丰茂,党政坚强,雷锋无数,朋友遍天下的公有制中国饿死人的卖国贼是反人类的垃圾!打倒违宪反共反工农反人类的私改贼及主子帝国财阀党!创建回归公有公正,共产共富,经济民主,政治自由,平均地权,成本房权医权学权粮权水权的奥林匹克社会主义!<br><img src="http://ww3.sinaimg.cn/large/5487a01cgw1f3c3vfedb4j20c890ib2b.jpg"></p>
 <p>
 	<small> ============== 8小时前</small>
 </p>
