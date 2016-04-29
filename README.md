@@ -23,7 +23,7 @@
 </h2>
 <p>SPAM //@去V的刘建锋: 转发微博<br><br>RE: 【救命】您的关注或许可以救命！打電話、写信，寄明信片地址：廣東省陽春市松柏鎮一號大院 狱长或刘干士转郭飞雄收 郵編：529615 獄政科電話：0662-7806009地址：廣東省陽春市松柏鎮一號大院醫院監區 囚號4412029461楊荗東（郭飞雄）收 [话筒]@徐昕 @章诒和 @何兵<br><img src="http://ww2.sinaimg.cn/large/7a8590bdjw1f3d5w8wwf8j20kt0oddkr.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3969685873730054" target="freeweibo-mirror">对知识分子提的意见，要不抓辫子不带帽子不打棍子。一一习近平 …</a>
 </h2>
@@ -79,6 +79,12 @@
 <p>
 	<small> ============== 4小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3969633361434176" target="freeweibo-mirror">公开于重庆遥祭圣女的重庆公民崔斌刚接到一位蒋姓警官的电话，说…</a>
+</h2>
+<p>公开于重庆遥祭圣女的重庆公民崔斌刚接到一位蒋姓警官的电话，说马上开车到他住处接他，接到何处暂不知。蒋警官电话13896375399。<br><img src="http://ww4.sinaimg.cn/large/006lzJOPgw1f3dn4i8ixqj30qo0zk14x.jpg"></p>
+<p>
+	<small> ============== 5小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3969631901073333" target="freeweibo-mirror">//@干卫东律师: //@埃玛Emma:转发微博</a>
 </h2>
 <p>//@干卫东律师: //@埃玛Emma:转发微博<br><br>RE: 在党通过暴力垄断话语权，牢牢地控制媒体宣传和洗脑教育的情况下，民间是没有能力通过启蒙唤醒民众起来抗争的，倒是党自己通过电警棍、震爆弹、催泪弹以及各种血腥强拆强征才算是真正启蒙了民众——必须站起来反抗才是唯一活路。<br><img src="http://ww1.sinaimg.cn/large/006fm52ujw1f3dleasasbj30f00qo781.jpg"></p>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3969585440687459" target="freeweibo-mirror">SPAM 一个当事人给我的致歉信</a>
 </h2>
 <p>SPAM 一个当事人给我的致歉信<br><img src="http://ww3.sinaimg.cn/large/4bdb1fa0jw1f3dhp9rw1cj20ku112dl1.jpg"></p>
-<p>
-	<small> ============== 8小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3969583302165899" target="freeweibo-mirror">哪个宗教或者团体的极端派都是一个德行，这种事最关键的是所谓"…</a>
-</h2>
-<p>哪个宗教或者团体的极端派都是一个德行，这种事最关键的是所谓"温和派"的软刀子，人们怕的也是这一点。一个流氓砸了一家蛋糕店，警察毫不犹豫敢抓，但如果流氓说那蛋糕店给他卖猪油蛋糕，警察就不敢抓，因为抓了会有一堆温和派跑出来闹。<br><br>RE: 暴恐分子斩首威胁图片清晰版（截屏可能不够清晰），明白当时伊斯兰国横扫伊拉克北部对国内三股势力的鼓励了吧？…… 好在中国不是中东国家……<br><img src="http://ww4.sinaimg.cn/large/4b18c48fgw1f3dh5lahzgj20qo0f0aaz.jpg"></p>
 <p>
 	<small> ============== 8小时前</small>
 </p>
