@@ -29,7 +29,7 @@
 </h2>
 <p>对知识分子提的意见，要不抓辫子不带帽子不打棍子。一一习近平 http://t.cn/R2WiY6u<br><img src="http://ww4.sinaimg.cn/large/73570bbdjw1f3dt8edlvtj20fa0ac0tu.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3969683931557644" target="freeweibo-mirror">//@陈光武律师: //@崔小平律师: //@陆亚明:[笑c…</a>
 </h2>
@@ -53,13 +53,31 @@
 </h2>
 <p>好顶支持 ~ @小鱼-A4台风 @鱼总-A4TYPHOON</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3969663114741158" target="freeweibo-mirror">SPAM 悉尼西北区双砖精品公寓，你值得拥有！位于66-68…</a>
 </h2>
 <p>SPAM 悉尼西北区双砖精品公寓，你值得拥有！位于66-68 Park Road Rydalmere的Cumbria拥有巧妙的户型设计，优质的装潢材料，严格的质量检测体系和非常合理亲民的价格。让你用实惠的价格享受方便的交通和绝佳地理位置，同时拥有闲逸舒适的环境。预约请联系Sandy石先生 0468 928 888 Alex 程先生 0425 666 655<br><img src="http://ww2.sinaimg.cn/large/6766a160gw1f3dlt2vwpkj20e80e8jrf.jpg"></p>
 <p>
 	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3969651199219844" target="freeweibo-mirror">//@怀化麻阳黄雨慧黄雨霞: 转发微博</a>
+</h2>
+<p>//@怀化麻阳黄雨慧黄雨霞: 转发微博<br><br>RE: 公开于重庆遥祭圣女的重庆公民崔斌刚接到一位蒋姓警官的电话，说马上开车到他住处接他，接到何处暂不知。蒋警官电话13896375399。<br><img src="http://ww4.sinaimg.cn/large/006lzJOPgw1f3dn4i8ixqj30qo0zk14x.jpg"></p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3969646619643287" target="freeweibo-mirror">//@梁普湾: //@孔_智勇://@眼瞰-://@沉沦中再…</a>
+</h2>
+<p>//@梁普湾: //@孔_智勇://@眼瞰-://@沉沦中再继续: 他的粤语字正腔圆铿锵顿挫，一直是我用来学粤语的最佳教材。//@火星青蛇xss: 右边你听得懂吗？/@青山怎能不妩媚: 华夏好声音 ---此公当之无愧！//@自-由蓝莲花盛开: 非常清楚，精彩的演讲！[good]</p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3969645369624974" target="freeweibo-mirror">SPAM 不用多久，我就会升职加薪、当上总经理、出任CEO、…</a>
+</h2>
+<p>SPAM 不用多久，我就会升职加薪、当上总经理、出任CEO、迎娶白富美、走上人生巅峰！想想还有点小激动。不妨加入到我们一个高逼格温暖友爱的团队叫敢秀女神团，代理Dayshow纳米补水仪，演绎着自己的传奇！梦想还是要有的，万一实现了呢？<br><img src="http://ww3.sinaimg.cn/large/b833f906jw1f3dol1ne81j218g0xo47h.jpg"></p>
+<p>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3969631901073333" target="freeweibo-mirror">//@干卫东律师: //@埃玛Emma:转发微博</a>
 </h2>
@@ -120,24 +138,6 @@
 <p>哪个宗教或者团体的极端派都是一个德行，这种事最关键的是所谓"温和派"的软刀子，人们怕的也是这一点。一个流氓砸了一家蛋糕店，警察毫不犹豫敢抓，但如果流氓说那蛋糕店给他卖猪油蛋糕，警察就不敢抓，因为抓了会有一堆温和派跑出来闹。<br><br>RE: 暴恐分子斩首威胁图片清晰版（截屏可能不够清晰），明白当时伊斯兰国横扫伊拉克北部对国内三股势力的鼓励了吧？…… 好在中国不是中东国家……<br><img src="http://ww4.sinaimg.cn/large/4b18c48fgw1f3dh5lahzgj20qo0f0aaz.jpg"></p>
 <p>
 	<small> ============== 8小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3969580790159735" target="freeweibo-mirror">暴恐分子斩首威胁图片清晰版（截屏可能不够清晰），明白当时伊斯…</a>
-</h2>
-<p>暴恐分子斩首威胁图片清晰版（截屏可能不够清晰），明白当时伊斯兰国横扫伊拉克北部对国内三股势力的鼓励了吧？…… 好在中国不是中东国家……<br><img src="http://ww4.sinaimg.cn/large/4b18c48fgw1f3dh5lahzgj20qo0f0aaz.jpg"></p>
-<p>
-	<small> ============== 8小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3969576532698677" target="freeweibo-mirror">SPAM [爱你][爱你][爱你]外地问尼诺网络课的各位………</a>
-</h2>
-<p>SPAM [爱你][爱你][爱你]外地问尼诺网络课的各位……[来]</p>
-<p>
-	<small> ============== 9小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3969554306789994" target="freeweibo-mirror">SPAM #微关注#【永昌公安微信开通啦！大家快来围观！ 】…</a>
-</h2>
-<p>SPAM #微关注#【永昌公安微信开通啦！大家快来围观！ 】http://t.cn/Rqjt6H3<br><img src="http://ww1.sinaimg.cn/large/9b6e8663jw1f3de4ipqxsj2076076q33.jpg"></p>
-<p>
-	<small> ============== 10小时前</small>
 </p>
 <table>
     <tr>
