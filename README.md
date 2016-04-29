@@ -19,6 +19,18 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3969701820705813" target="freeweibo-mirror">SPAM 大上海！</a>
+</h2>
+<p>SPAM 大上海！<br><br>RE: 上海市大部分拉面都被强制关店，熟悉的味道要离开上海了。 http://t.cn/R2WJCKa<br><img src="http://ww3.sinaimg.cn/large/005w9hzxgw1f3cgepj1itj31be0qo7fb.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3969699883071725" target="freeweibo-mirror">坚决支持上海警方铁腕整顿，捍卫中国法规尊严，保卫人民身心健康…</a>
+</h2>
+<p>坚决支持上海警方铁腕整顿，捍卫中国法规尊严，保卫人民身心健康，严惩践踏法规暴徒<br><br>RE: 上海市大部分拉面都被强制关店，熟悉的味道要离开上海了。 http://t.cn/R2WJCKa<br><img src="http://ww3.sinaimg.cn/large/005w9hzxgw1f3cgepj1itj31be0qo7fb.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3969687534943897" target="freeweibo-mirror">SPAM //@去V的刘建锋: 转发微博</a>
 </h2>
 <p>SPAM //@去V的刘建锋: 转发微博<br><br>RE: 【救命】您的关注或许可以救命！打電話、写信，寄明信片地址：廣東省陽春市松柏鎮一號大院 狱长或刘干士转郭飞雄收 郵編：529615 獄政科電話：0662-7806009地址：廣東省陽春市松柏鎮一號大院醫院監區 囚號4412029461楊荗東（郭飞雄）收 [话筒]@徐昕 @章诒和 @何兵<br><img src="http://ww2.sinaimg.cn/large/7a8590bdjw1f3d5w8wwf8j20kt0oddkr.jpg"></p>
@@ -59,7 +71,7 @@
 </h2>
 <p>SPAM 悉尼西北区双砖精品公寓，你值得拥有！位于66-68 Park Road Rydalmere的Cumbria拥有巧妙的户型设计，优质的装潢材料，严格的质量检测体系和非常合理亲民的价格。让你用实惠的价格享受方便的交通和绝佳地理位置，同时拥有闲逸舒适的环境。预约请联系Sandy石先生 0468 928 888 Alex 程先生 0425 666 655<br><img src="http://ww2.sinaimg.cn/large/6766a160gw1f3dlt2vwpkj20e80e8jrf.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3969651564749456" target="freeweibo-mirror">开会时称人民， 落户时称居民， 强拆时称刁民， 发怒时称屁民…</a>
 </h2>
@@ -95,7 +107,7 @@
 </h2>
 <p>//@干卫东律师: //@埃玛Emma:转发微博<br><br>RE: 在党通过暴力垄断话语权，牢牢地控制媒体宣传和洗脑教育的情况下，民间是没有能力通过启蒙唤醒民众起来抗争的，倒是党自己通过电警棍、震爆弹、催泪弹以及各种血腥强拆强征才算是真正启蒙了民众——必须站起来反抗才是唯一活路。<br><img src="http://ww1.sinaimg.cn/large/006fm52ujw1f3dleasasbj30f00qo781.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3969631515558441" target="freeweibo-mirror">//@店主-再来壶酱油: //@学习的亚军: //@六叔一梦…</a>
 </h2>
@@ -113,7 +125,7 @@
 </h2>
 <p>在党通过暴力垄断话语权，牢牢地控制媒体宣传和洗脑教育的情况下，民间是没有能力通过启蒙唤醒民众起来抗争的，倒是党自己通过电警棍、震爆弹、催泪弹以及各种血腥强拆强征才算是真正启蒙了民众——必须站起来反抗才是唯一活路。<br><img src="http://ww1.sinaimg.cn/large/006fm52ujw1f3dleasasbj30f00qo781.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3969599739514827" target="freeweibo-mirror">SPAM 内心强大了，才能无坚不摧</a>
 </h2>
@@ -126,18 +138,6 @@
 <p>博主被点名威胁？//@大海大山是我家:怪不得右派公知大V基本都不吭声，原来真是特么不敢。疾风知劲草！<br><br>RE: 暴恐分子斩首威胁图片清晰版（截屏可能不够清晰），明白当时伊斯兰国横扫伊拉克北部对国内三股势力的鼓励了吧？…… 好在中国不是中东国家……<br><img src="http://ww4.sinaimg.cn/large/4b18c48fgw1f3dh5lahzgj20qo0f0aaz.jpg"></p>
 <p>
 	<small> ============== 8小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3969587622334210" target="freeweibo-mirror">SPAM #广州招聘#大前寻找创意引擎 【资深设计/助理设计…</a>
-</h2>
-<p>SPAM #广州招聘#大前寻找创意引擎 【资深设计/助理设计师、美术指导/助理美术指导、设计实习、编导/导演、项目经理、策划文案】大前文化是一家新概念的文化公司，公司架构主要分为三个部门：策划、影视、音乐。大前文化联合办公空间：无论是自由工作者、团队或是工作室都可与我们分享这个舒适文艺及多功能的...全文： http://m.weibo.cn/1644676167/3969587622334210<br><img src="http://ww3.sinaimg.cn/large/6207c447jw1f3dhy4cjkbj20go096gn9.jpg"></p>
-<p>
-	<small> ============== 8小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3969586333765557" target="freeweibo-mirror">也幸好不是南亚。在巴基斯坦、孟加拉这类绿色国家，也是要小心性…</a>
-</h2>
-<p>也幸好不是南亚。在巴基斯坦、孟加拉这类绿色国家，也是要小心性命的。<br><br>RE: 暴恐分子斩首威胁图片清晰版（截屏可能不够清晰），明白当时伊斯兰国横扫伊拉克北部对国内三股势力的鼓励了吧？…… 好在中国不是中东国家……<br><img src="http://ww4.sinaimg.cn/large/4b18c48fgw1f3dh5lahzgj20qo0f0aaz.jpg"></p>
-<p>
-	<small> ============== 9小时前</small>
 </p>
 <table>
     <tr>
