@@ -23,7 +23,7 @@
 </h2>
 <p>//@干卫东律师: //@埃玛Emma:转发微博<br><br>RE: 在党通过暴力垄断话语权，牢牢地控制媒体宣传和洗脑教育的情况下，民间是没有能力通过启蒙唤醒民众起来抗争的，倒是党自己通过电警棍、震爆弹、催泪弹以及各种血腥强拆强征才算是真正启蒙了民众——必须站起来反抗才是唯一活路。<br><img src="http://ww1.sinaimg.cn/large/006fm52ujw1f3dleasasbj30f00qo781.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3969631515558441" target="freeweibo-mirror">//@店主-再来壶酱油: //@学习的亚军: //@六叔一梦…</a>
 </h2>
@@ -41,7 +41,7 @@
 </h2>
 <p>在党通过暴力垄断话语权，牢牢地控制媒体宣传和洗脑教育的情况下，民间是没有能力通过启蒙唤醒民众起来抗争的，倒是党自己通过电警棍、震爆弹、催泪弹以及各种血腥强拆强征才算是真正启蒙了民众——必须站起来反抗才是唯一活路。<br><img src="http://ww1.sinaimg.cn/large/006fm52ujw1f3dleasasbj30f00qo781.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3969599739514827" target="freeweibo-mirror">SPAM 内心强大了，才能无坚不摧</a>
 </h2>
@@ -59,7 +59,7 @@
 </h2>
 <p>SPAM #广州招聘#大前寻找创意引擎 【资深设计/助理设计师、美术指导/助理美术指导、设计实习、编导/导演、项目经理、策划文案】大前文化是一家新概念的文化公司，公司架构主要分为三个部门：策划、影视、音乐。大前文化联合办公空间：无论是自由工作者、团队或是工作室都可与我们分享这个舒适文艺及多功能的...全文： http://m.weibo.cn/1644676167/3969587622334210<br><img src="http://ww3.sinaimg.cn/large/6207c447jw1f3dhy4cjkbj20go096gn9.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3969586333765557" target="freeweibo-mirror">也幸好不是南亚。在巴基斯坦、孟加拉这类绿色国家，也是要小心性…</a>
 </h2>
