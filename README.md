@@ -29,7 +29,7 @@
 </h2>
 <p>//@无边沉默:白帽又开始屡试不爽的妇孺儿童推向前线的战略了，大家围观一下。此战略从同治回乱沙甸回乱，到本拉登欧洲穆斯林难民，都技术性标配。是大家必须学习的伊斯兰教灿烂文化之一。必考题哦。</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3969702139234598" target="freeweibo-mirror">SPAM 独家定制。[鲜花][鲜花][鲜花]</a>
 </h2>
@@ -71,7 +71,7 @@
 </h2>
 <p>SPAM 无照也就罢了，无卫生证凭啥不该关门？http://t.cn/RqO1Fjo 看看BBC报道：英国清真餐厅因大便后未处理好手的卫生，140名顾客被人粪污染导致大肠杆菌中毒：http://t.cn/RyKsGPJ 想咨询下博主，按你们正宗教规，大便后怎么处理？是否只用手和水，不能用卫生纸？<br><br>RE: 上海市大部分拉面都被强制关店，熟悉的味道要离开上海了。 http://t.cn/R2WJCKa<br><img src="http://ww3.sinaimg.cn/large/005w9hzxgw1f3cgepj1itj31be0qo7fb.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3969687534943897" target="freeweibo-mirror">SPAM //@去V的刘建锋: 转发微博</a>
 </h2>
@@ -101,7 +101,7 @@
 </h2>
 <p>SPAM ( ´_ゝ`)真是黑科技...//@翼_光: 所见即所得！！！！！！索尼黑科技！！！！</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3969671977663590" target="freeweibo-mirror">好顶支持 ~ @小鱼-A4台风 @鱼总-A4TYPHOON</a>
 </h2>
