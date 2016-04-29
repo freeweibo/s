@@ -19,6 +19,18 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3969711237210697" target="freeweibo-mirror">一贯做法//@辟谣与真相:如果是闵行区这种情形：http:/…</a>
+</h2>
+<p>一贯做法//@辟谣与真相:如果是闵行区这种情形：http://t.cn/RqjlqFa 坚决支持@警民直通车-徐汇站@上海徐汇发布<br><br>RE: 以闹治国，值此经济下行我国努力挽救实体经济，某些群体由于长期的结成团团伙伙以闹谋福利、以闹抗法律。如今终于闹出了国际声誉，对我国的法制建设、民族团结、经济建设都在造成了极坏的影响。长此以往，对民族团结、对经济建设、对我们的招商引资环境都造成重大打击<br><img src="http://ww2.sinaimg.cn/large/0068ruHajw1f3dpir8uoej30ku112wlv.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3969709299233973" target="freeweibo-mirror">//@无边沉默:白帽又开始屡试不爽的妇孺儿童推向前线的战略了…</a>
+</h2>
+<p>//@无边沉默:白帽又开始屡试不爽的妇孺儿童推向前线的战略了，大家围观一下。此战略从同治回乱沙甸回乱，到本拉登欧洲穆斯林难民，都技术性标配。是大家必须学习的伊斯兰教灿烂文化之一。必考题哦。</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3969702139234598" target="freeweibo-mirror">SPAM 独家定制。[鲜花][鲜花][鲜花]</a>
 </h2>
 <p>SPAM 独家定制。[鲜花][鲜花][鲜花]</p>
@@ -101,7 +113,7 @@
 </h2>
 <p>SPAM 悉尼西北区双砖精品公寓，你值得拥有！位于66-68 Park Road Rydalmere的Cumbria拥有巧妙的户型设计，优质的装潢材料，严格的质量检测体系和非常合理亲民的价格。让你用实惠的价格享受方便的交通和绝佳地理位置，同时拥有闲逸舒适的环境。预约请联系Sandy石先生 0468 928 888 Alex 程先生 0425 666 655<br><img src="http://ww2.sinaimg.cn/large/6766a160gw1f3dlt2vwpkj20e80e8jrf.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3969651564749456" target="freeweibo-mirror">开会时称人民， 落户时称居民， 强拆时称刁民， 发怒时称屁民…</a>
 </h2>
@@ -124,18 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3969645369624974" target="freeweibo-mirror">SPAM 不用多久，我就会升职加薪、当上总经理、出任CEO、…</a>
 </h2>
 <p>SPAM 不用多久，我就会升职加薪、当上总经理、出任CEO、迎娶白富美、走上人生巅峰！想想还有点小激动。不妨加入到我们一个高逼格温暖友爱的团队叫敢秀女神团，代理Dayshow纳米补水仪，演绎着自己的传奇！梦想还是要有的，万一实现了呢？<br><img src="http://ww3.sinaimg.cn/large/b833f906jw1f3dol1ne81j218g0xo47h.jpg"></p>
-<p>
-	<small> ============== 6小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3969633361434176" target="freeweibo-mirror">公开于重庆遥祭圣女的重庆公民崔斌刚接到一位蒋姓警官的电话，说…</a>
-</h2>
-<p>公开于重庆遥祭圣女的重庆公民崔斌刚接到一位蒋姓警官的电话，说马上开车到他住处接他，接到何处暂不知。蒋警官电话13896375399。<br><img src="http://ww4.sinaimg.cn/large/006lzJOPgw1f3dn4i8ixqj30qo0zk14x.jpg"></p>
-<p>
-	<small> ============== 6小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3969631901073333" target="freeweibo-mirror">//@干卫东律师: //@埃玛Emma:转发微博</a>
-</h2>
-<p>//@干卫东律师: //@埃玛Emma:转发微博<br><br>RE: 在党通过暴力垄断话语权，牢牢地控制媒体宣传和洗脑教育的情况下，民间是没有能力通过启蒙唤醒民众起来抗争的，倒是党自己通过电警棍、震爆弹、催泪弹以及各种血腥强拆强征才算是真正启蒙了民众——必须站起来反抗才是唯一活路。<br><img src="http://ww1.sinaimg.cn/large/006fm52ujw1f3dleasasbj30f00qo781.jpg"></p>
 <p>
 	<small> ============== 6小时前</small>
 </p>
