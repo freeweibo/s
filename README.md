@@ -19,15 +19,27 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3969738386403044" target="freeweibo-mirror">//@梅新育:回复@曾经被渣浪迫害: 嗯，在我预料之中。有风…</a>
+</h2>
+<p>//@梅新育:回复@曾经被渣浪迫害: 嗯，在我预料之中。有风险不可怕，主要是国内有些人出于某种狭隘认同恨不得中国白给巴基斯坦送钱，对凡是提出对巴基斯坦经贸风险的人一律扣帽子打棍子，这问题就大了 //@曾经被渣浪迫害:@梅新育 你的担心成现实了～～～ //@司马平邦:转发微博<br><br>RE: 刚才看到的，巴基斯坦人在抗议“中巴经济走廊”。条幅上写的字的意思是说：巴基斯坦-中国经济走廊是中国对本地区的经济、政治、军事侵略。中国人与旁遮普人联手开发、奴役信德人和俾路支人。<br><img src="http://ww4.sinaimg.cn/large/0066LTqejw1f3ddwlb2crj30qo0hwn06.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3969737467851520" target="freeweibo-mirror">回复@曾经被渣浪迫害: 嗯，在我预料之中。有风险不可怕，主要…</a>
 </h2>
 <p>回复@曾经被渣浪迫害: 嗯，在我预料之中。有风险不可怕，主要是国内有些人出于某种狭隘认同恨不得中国白给巴基斯坦送钱，对凡是提出对巴基斯坦经贸风险的人一律扣帽子打棍子，这问题就大了 //@曾经被渣浪迫害:@梅新育 你的担心成现实了～～～ //@司马平邦:转发微博<br><br>RE: 刚才看到的，巴基斯坦人在抗议“中巴经济走廊”。条幅上写的字的意思是说：巴基斯坦-中国经济走廊是中国对本地区的经济、政治、军事侵略。中国人与旁遮普人联手开发、奴役信德人和俾路支人。<br><img src="http://ww4.sinaimg.cn/large/0066LTqejw1f3ddwlb2crj30qo0hwn06.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3969736548969656" target="freeweibo-mirror">快来看评论</a>
 </h2>
 <p>快来看评论<br><br>RE: #时局#【习近平:青年人要敢于做先锋 而不做过客当看客】习近平近日在安徽合肥主持召开知识分子、劳动模范、青年代表座谈会。会上习近平指出，青年时光非常可贵，要用来干事创业、辛勤耕耘。青年要敢于做先锋，而不做过客、当看客，让创新成为青春远航的动力，让创业成为青春搏击的能量，让青春年华在为...全文： http://m.weibo.cn/1618051664/3969732794671096<br><img src="http://ww2.sinaimg.cn/large/60718250jw1f3dymhmuw0j20dw0dejsa.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3969733919876526" target="freeweibo-mirror">大V一般都不是知识分子。//@世界之双目：在文革结束四十年后…</a>
+</h2>
+<p>大V一般都不是知识分子。//@世界之双目：在文革结束四十年后的今天，还在承诺对知识分子不抓辫子，不扣帽子，不打棍子，真是替你们感到丢人，感到耻辱。</p>
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
@@ -126,18 +138,6 @@
 <p>SPAM 无照也就罢了，无卫生证凭啥不该关门？http://t.cn/RqO1Fjo 看看BBC报道：英国清真餐厅因大便后未处理好手的卫生，140名顾客被人粪污染导致大肠杆菌中毒：http://t.cn/RyKsGPJ 想咨询下博主，按你们正宗教规，大便后怎么处理？是否只用手和水，不能用卫生纸？<br><br>RE: 上海市大部分拉面都被强制关店，熟悉的味道要离开上海了。 http://t.cn/R2WJCKa<br><img src="http://ww3.sinaimg.cn/large/005w9hzxgw1f3cgepj1itj31be0qo7fb.jpg"></p>
 <p>
 	<small> ============== 4小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3969687534943897" target="freeweibo-mirror">SPAM //@去V的刘建锋: 转发微博</a>
-</h2>
-<p>SPAM //@去V的刘建锋: 转发微博<br><br>RE: 【救命】您的关注或许可以救命！打電話、写信，寄明信片地址：廣東省陽春市松柏鎮一號大院 狱长或刘干士转郭飞雄收 郵編：529615 獄政科電話：0662-7806009地址：廣東省陽春市松柏鎮一號大院醫院監區 囚號4412029461楊荗東（郭飞雄）收 [话筒]@徐昕 @章诒和 @何兵<br><img src="http://ww2.sinaimg.cn/large/7a8590bdjw1f3d5w8wwf8j20kt0oddkr.jpg"></p>
-<p>
-	<small> ============== 5小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3969685873730054" target="freeweibo-mirror">对知识分子提的意见，要不抓辫子不带帽子不打棍子。一一习近平 …</a>
-</h2>
-<p>对知识分子提的意见，要不抓辫子不带帽子不打棍子。一一习近平 http://t.cn/R2WiY6u<br><img src="http://ww4.sinaimg.cn/large/73570bbdjw1f3dt8edlvtj20fa0ac0tu.jpg"></p>
-<p>
-	<small> ============== 5小时前</small>
 </p>
 <table>
     <tr>
