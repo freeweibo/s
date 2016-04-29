@@ -47,7 +47,7 @@
 </h2>
 <p>坚决支持上海警方铁腕整顿，捍卫中国法规尊严，保卫人民身心健康，严惩践踏法规暴徒<br><br>RE: 上海市大部分拉面都被强制关店，熟悉的味道要离开上海了。 http://t.cn/R2WJCKa<br><img src="http://ww3.sinaimg.cn/large/005w9hzxgw1f3cgepj1itj31be0qo7fb.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3969697940587116" target="freeweibo-mirror">青马史、青海地方志接触少！但这显然激化矛盾，制造新七五！@紫…</a>
 </h2>
@@ -97,6 +97,12 @@
 <p>
 	<small> ============== 4小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3969681633045435" target="freeweibo-mirror">如果是闵行区这种情形：http://t.cn/RqjlqFa…</a>
+</h2>
+<p>如果是闵行区这种情形：http://t.cn/RqjlqFa 坚决支持@警民直通车-徐汇站@上海徐汇发布<br><br>RE: 以闹治国，值此经济下行我国努力挽救实体经济，某些群体由于长期的结成团团伙伙以闹谋福利、以闹抗法律。如今终于闹出了国际声誉，对我国的法制建设、民族团结、经济建设都在造成了极坏的影响。长此以往，对民族团结、对经济建设、对我们的招商引资环境都造成重大打击<br><img src="http://ww2.sinaimg.cn/large/0068ruHajw1f3dpir8uoej30ku112wlv.jpg"></p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3969678785442422" target="freeweibo-mirror">SPAM ( ´_ゝ`)真是黑科技...//@翼_光: 所见…</a>
 </h2>
 <p>SPAM ( ´_ゝ`)真是黑科技...//@翼_光: 所见即所得！！！！！！索尼黑科技！！！！</p>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3969651199219844" target="freeweibo-mirror">//@怀化麻阳黄雨慧黄雨霞: 转发微博</a>
 </h2>
 <p>//@怀化麻阳黄雨慧黄雨霞: 转发微博<br><br>RE: 公开于重庆遥祭圣女的重庆公民崔斌刚接到一位蒋姓警官的电话，说马上开车到他住处接他，接到何处暂不知。蒋警官电话13896375399。<br><img src="http://ww4.sinaimg.cn/large/006lzJOPgw1f3dn4i8ixqj30qo0zk14x.jpg"></p>
-<p>
-	<small> ============== 6小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3969646619643287" target="freeweibo-mirror">//@梁普湾: //@孔_智勇://@眼瞰-://@沉沦中再…</a>
-</h2>
-<p>//@梁普湾: //@孔_智勇://@眼瞰-://@沉沦中再继续: 他的粤语字正腔圆铿锵顿挫，一直是我用来学粤语的最佳教材。//@火星青蛇xss: 右边你听得懂吗？/@青山怎能不妩媚: 华夏好声音 ---此公当之无愧！//@自-由蓝莲花盛开: 非常清楚，精彩的演讲！[good]</p>
 <p>
 	<small> ============== 6小时前</small>
 </p>
