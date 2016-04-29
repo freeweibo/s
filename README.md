@@ -19,6 +19,18 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3969517580920220" target="freeweibo-mirror">然则仍邪恶并善地自相矛盾着。//@梅新育: 又一位有自省的基…</a>
+</h2>
+<p>然则仍邪恶并善地自相矛盾着。//@梅新育: 又一位有自省的基督徒。//@海滨政经述-橡谷智库: 宗教之恶，要非常小心。我是基督徒……我参加过基督教原教旨主义者的主日活动，非常震惊，几乎动摇了我对基督教的信心。后来才重新审视宗教，可以用邪恶来定义任何宗教。是否善意，取决于你自己与神的关系。</p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3969504927269685" target="freeweibo-mirror">大概是安拉在发威。新浪难道也被绿教徒渗透了？ //@Simo…</a>
+</h2>
+<p>大概是安拉在发威。新浪难道也被绿教徒渗透了？ //@Simon_Shomingz:[思考]太老，不能评论你的微博了，20207错误，但是能转发，关注也没问题，是渣浪搞的鬼还是怎么的 //@太蔟:王只是症状。要想根治还需更大的动作。</p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3969494101107843" target="freeweibo-mirror">//@闲云踏雾://@雾好霾://@刚刚路过03://@重庆…</a>
 </h2>
 <p>//@闲云踏雾://@雾好霾://@刚刚路过03://@重庆郑建伟://@徐利平律师://@王连军律师://@游云庭律师:转发微博<br><br>RE: 来自那个著名的大个子律师。<br><img src="http://ww2.sinaimg.cn/large/3f79a379jw1f3cvcyvfalj20k00zk0yn.jpg"></p>
@@ -124,18 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3969343840275788" target="freeweibo-mirror">岛国人就是会玩[笑cry][笑cry][笑cry] http…</a>
 </h2>
 <p>岛国人就是会玩[笑cry][笑cry][笑cry] http://t.cn/Rql1y0v .</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3969343010866757" target="freeweibo-mirror">【为不降漫游费，工信部竟如此表态？】今天工信部召开了一场新闻…</a>
-</h2>
-<p>【为不降漫游费，工信部竟如此表态？】今天工信部召开了一场新闻发布会，不出意外，关于取消漫游费的问题成为记者关注的焦点。只不过，这个问题可是逼急了工信部。解局君慢慢告诉你，这是怎么回事。http://t.cn/Rql1hfF<br><img src="http://ww4.sinaimg.cn/large/768ab125jw1f3cj9hze6jj20c80d1q51.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3969297904729809" target="freeweibo-mirror">//@孔_智勇:就算公开也不信，帝国主义之心亡我不死。//@…</a>
-</h2>
-<p>//@孔_智勇:就算公开也不信，帝国主义之心亡我不死。//@九段II:俺也坚决不信。[感冒]就信到时候的芮成钢之类的新闻哦。//@Nuclea-rWinter:珊贴就够了。//@伊露桑III: 5月9日，东亚断网日。</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
