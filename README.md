@@ -29,7 +29,7 @@
 </h2>
 <p>快来看评论<br><br>RE: #时局#【习近平:青年人要敢于做先锋 而不做过客当看客】习近平近日在安徽合肥主持召开知识分子、劳动模范、青年代表座谈会。会上习近平指出，青年时光非常可贵，要用来干事创业、辛勤耕耘。青年要敢于做先锋，而不做过客、当看客，让创新成为青春远航的动力，让创业成为青春搏击的能量，让青春年华在为...全文： http://m.weibo.cn/1618051664/3969732794671096<br><img src="http://ww2.sinaimg.cn/large/60718250jw1f3dymhmuw0j20dw0dejsa.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3969732794671096" target="freeweibo-mirror">#时局#【习近平:青年人要敢于做先锋 而不做过客当看客】习近…</a>
 </h2>
@@ -115,6 +115,12 @@
 <p>
 	<small> ============== 4小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3969694622953205" target="freeweibo-mirror">就是现在，上海延庆路新乐路口，非法拉面vs徐汇警方，第二晚盛…</a>
+</h2>
+<p>就是现在，上海延庆路新乐路口，非法拉面vs徐汇警方，第二晚盛况<br><img src="http://ww4.sinaimg.cn/large/7001de18jw1f3du8jze7pj21bh0qotfy.jpg"></p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3969693699986585" target="freeweibo-mirror">SPAM 无照也就罢了，无卫生证凭啥不该关门？http://…</a>
 </h2>
 <p>SPAM 无照也就罢了，无卫生证凭啥不该关门？http://t.cn/RqO1Fjo 看看BBC报道：英国清真餐厅因大便后未处理好手的卫生，140名顾客被人粪污染导致大肠杆菌中毒：http://t.cn/RyKsGPJ 想咨询下博主，按你们正宗教规，大便后怎么处理？是否只用手和水，不能用卫生纸？<br><br>RE: 上海市大部分拉面都被强制关店，熟悉的味道要离开上海了。 http://t.cn/R2WJCKa<br><img src="http://ww3.sinaimg.cn/large/005w9hzxgw1f3cgepj1itj31be0qo7fb.jpg"></p>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3969685873730054" target="freeweibo-mirror">对知识分子提的意见，要不抓辫子不带帽子不打棍子。一一习近平 …</a>
 </h2>
 <p>对知识分子提的意见，要不抓辫子不带帽子不打棍子。一一习近平 http://t.cn/R2WiY6u<br><img src="http://ww4.sinaimg.cn/large/73570bbdjw1f3dt8edlvtj20fa0ac0tu.jpg"></p>
-<p>
-	<small> ============== 5小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3969683931557644" target="freeweibo-mirror">//@陈光武律师: //@崔小平律师: //@陆亚明:[笑c…</a>
-</h2>
-<p>//@陈光武律师: //@崔小平律师: //@陆亚明:[笑cry][笑cry][笑cry]<br><br>RE: 七十年代中学毕业后，国人脑袋都装满了如下内容：李鸿章丧权辱国，义和团保家卫国，太平天国农民起义，蒋介石只会摘桃子，地主个个是周扒皮，旧社会暗无天日，朝鲜是中国屏障……有人评价这种人就是一个中国傻逼的标准配置。你要是跟他说：你多看几本书，动点脑子再说话。他立马眼珠一翻：你是汉奸！</p>
 <p>
 	<small> ============== 5小时前</small>
 </p>
