@@ -19,6 +19,18 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3969719868743802" target="freeweibo-mirror">SPAM //@法律及其价值: //@东河-猎鹰倚天屠龙:/…</a>
+</h2>
+<p>SPAM //@法律及其价值: //@东河-猎鹰倚天屠龙://@活得轻松些真是不容易:推博主老友[话筒]<br><br>RE: 對於這些捕風捉影的東西，俺們堅決不信！你就是公開了我也不信！這麼偉大的黨不可能幹出這麼沒屁眼兒的事！帝國主義憑空捏造的彌天大謊，全世界竟然都相信了？！也就俺們這裡還保持清醒，真理掌握在少數人手中。西方敵對勢力太TM 惡劣了，特別是美帝、英帝，尼瑪亡我之心不死啊！[怒][怒]<br><img src="http://ww3.sinaimg.cn/large/006cjx8Hjw1f3cjldcxr2j30ma0ms78r.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3969718920577226" target="freeweibo-mirror">填成分都不要写这个，注定被迫害和遺弃？ //@LifeTim…</a>
+</h2>
+<p>填成分都不要写这个，注定被迫害和遺弃？ //@LifeTime:[瞧瞧] //@蒙犸:你才知識分子呢。你們全家都知識分子。。[笑cry]</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3969711237210697" target="freeweibo-mirror">一贯做法//@辟谣与真相:如果是闵行区这种情形：http:/…</a>
 </h2>
 <p>一贯做法//@辟谣与真相:如果是闵行区这种情形：http://t.cn/RqjlqFa 坚决支持@警民直通车-徐汇站@上海徐汇发布<br><br>RE: 以闹治国，值此经济下行我国努力挽救实体经济，某些群体由于长期的结成团团伙伙以闹谋福利、以闹抗法律。如今终于闹出了国际声誉，对我国的法制建设、民族团结、经济建设都在造成了极坏的影响。长此以往，对民族团结、对经济建设、对我们的招商引资环境都造成重大打击<br><img src="http://ww2.sinaimg.cn/large/0068ruHajw1f3dpir8uoej30ku112wlv.jpg"></p>
@@ -119,23 +131,11 @@
 </h2>
 <p>SPAM 悉尼西北区双砖精品公寓，你值得拥有！位于66-68 Park Road Rydalmere的Cumbria拥有巧妙的户型设计，优质的装潢材料，严格的质量检测体系和非常合理亲民的价格。让你用实惠的价格享受方便的交通和绝佳地理位置，同时拥有闲逸舒适的环境。预约请联系Sandy石先生 0468 928 888 Alex 程先生 0425 666 655<br><img src="http://ww2.sinaimg.cn/large/6766a160gw1f3dlt2vwpkj20e80e8jrf.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3969653955102042" target="freeweibo-mirror">以闹治国，值此经济下行我国努力挽救实体经济，某些群体由于长期…</a>
 </h2>
 <p>以闹治国，值此经济下行我国努力挽救实体经济，某些群体由于长期的结成团团伙伙以闹谋福利、以闹抗法律。如今终于闹出了国际声誉，对我国的法制建设、民族团结、经济建设都在造成了极坏的影响。长此以往，对民族团结、对经济建设、对我们的招商引资环境都造成重大打击<br><img src="http://ww2.sinaimg.cn/large/0068ruHajw1f3dpir8uoej30ku112wlv.jpg"></p>
-<p>
-	<small> ============== 6小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3969651564749456" target="freeweibo-mirror">开会时称人民， 落户时称居民， 强拆时称刁民， 发怒时称屁民…</a>
-</h2>
-<p>开会时称人民， 落户时称居民， 强拆时称刁民， 发怒时称屁民， 收税时成了公民， 打仗时称亲人。对外，老子有钱，到处撒钱。 对内，老子有枪，到处开枪。据说人民的幸福是档和ZF给的，那么人民的痛苦是谁给的？ 我们只能这样回答： 人民的痛苦都是自找的！----@江枫时评</p>
-<p>
-	<small> ============== 6小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3969651199219844" target="freeweibo-mirror">//@怀化麻阳黄雨慧黄雨霞: 转发微博</a>
-</h2>
-<p>//@怀化麻阳黄雨慧黄雨霞: 转发微博<br><br>RE: 公开于重庆遥祭圣女的重庆公民崔斌刚接到一位蒋姓警官的电话，说马上开车到他住处接他，接到何处暂不知。蒋警官电话13896375399。<br><img src="http://ww4.sinaimg.cn/large/006lzJOPgw1f3dn4i8ixqj30qo0zk14x.jpg"></p>
 <p>
 	<small> ============== 6小时前</small>
 </p>
