@@ -35,13 +35,13 @@
 </h2>
 <p>也幸好不是南亚。在巴基斯坦、孟加拉这类绿色国家，也是要小心性命的。<br><br>RE: 暴恐分子斩首威胁图片清晰版（截屏可能不够清晰），明白当时伊斯兰国横扫伊拉克北部对国内三股势力的鼓励了吧？…… 好在中国不是中东国家……<br><img src="http://ww4.sinaimg.cn/large/4b18c48fgw1f3dh5lahzgj20qo0f0aaz.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3969585440687459" target="freeweibo-mirror">SPAM 一个当事人给我的致歉信</a>
 </h2>
 <p>SPAM 一个当事人给我的致歉信<br><img src="http://ww3.sinaimg.cn/large/4bdb1fa0jw1f3dhp9rw1cj20ku112dl1.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3969583302165899" target="freeweibo-mirror">哪个宗教或者团体的极端派都是一个德行，这种事最关键的是所谓"…</a>
 </h2>
