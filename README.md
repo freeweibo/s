@@ -23,7 +23,7 @@
 </h2>
 <p>一贯做法//@辟谣与真相:如果是闵行区这种情形：http://t.cn/RqjlqFa 坚决支持@警民直通车-徐汇站@上海徐汇发布<br><br>RE: 以闹治国，值此经济下行我国努力挽救实体经济，某些群体由于长期的结成团团伙伙以闹谋福利、以闹抗法律。如今终于闹出了国际声誉，对我国的法制建设、民族团结、经济建设都在造成了极坏的影响。长此以往，对民族团结、对经济建设、对我们的招商引资环境都造成重大打击<br><img src="http://ww2.sinaimg.cn/large/0068ruHajw1f3dpir8uoej30ku112wlv.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3969709299233973" target="freeweibo-mirror">//@无边沉默:白帽又开始屡试不爽的妇孺儿童推向前线的战略了…</a>
 </h2>
@@ -65,7 +65,7 @@
 </h2>
 <p>@紫光阁 @中国政府网@首都网警  @单学刚 @段赛民 @环球舆情-戴元初 这是大事件，似乎故意要引发青海回民大规模对抗，配合美国金融战及祸水东引计划！ 08年论坛时代黑穆反回谤伊，鼓吹王震，一年后出事！现在又重复，中央要当心！@梅新育 @习五一 建议多观察、少转发！<br><br>RE: 上海市大部分拉面都被强制关店，熟悉的味道要离开上海了。 http://t.cn/R2WJCKa<br><img src="http://ww3.sinaimg.cn/large/005w9hzxgw1f3cgepj1itj31be0qo7fb.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3969693699986585" target="freeweibo-mirror">SPAM 无照也就罢了，无卫生证凭啥不该关门？http://…</a>
 </h2>
@@ -119,13 +119,13 @@
 </h2>
 <p>开会时称人民， 落户时称居民， 强拆时称刁民， 发怒时称屁民， 收税时成了公民， 打仗时称亲人。对外，老子有钱，到处撒钱。 对内，老子有枪，到处开枪。据说人民的幸福是档和ZF给的，那么人民的痛苦是谁给的？ 我们只能这样回答： 人民的痛苦都是自找的！----@江枫时评</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3969651199219844" target="freeweibo-mirror">//@怀化麻阳黄雨慧黄雨霞: 转发微博</a>
 </h2>
 <p>//@怀化麻阳黄雨慧黄雨霞: 转发微博<br><br>RE: 公开于重庆遥祭圣女的重庆公民崔斌刚接到一位蒋姓警官的电话，说马上开车到他住处接他，接到何处暂不知。蒋警官电话13896375399。<br><img src="http://ww4.sinaimg.cn/large/006lzJOPgw1f3dn4i8ixqj30qo0zk14x.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3969646619643287" target="freeweibo-mirror">//@梁普湾: //@孔_智勇://@眼瞰-://@沉沦中再…</a>
 </h2>
