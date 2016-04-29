@@ -19,6 +19,36 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3969687534943897" target="freeweibo-mirror">SPAM //@去V的刘建锋: 转发微博</a>
+</h2>
+<p>SPAM //@去V的刘建锋: 转发微博<br><br>RE: 【救命】您的关注或许可以救命！打電話、写信，寄明信片地址：廣東省陽春市松柏鎮一號大院 狱长或刘干士转郭飞雄收 郵編：529615 獄政科電話：0662-7806009地址：廣東省陽春市松柏鎮一號大院醫院監區 囚號4412029461楊荗東（郭飞雄）收 [话筒]@徐昕 @章诒和 @何兵<br><img src="http://ww2.sinaimg.cn/large/7a8590bdjw1f3d5w8wwf8j20kt0oddkr.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3969685873730054" target="freeweibo-mirror">对知识分子提的意见，要不抓辫子不带帽子不打棍子。一一习近平 …</a>
+</h2>
+<p>对知识分子提的意见，要不抓辫子不带帽子不打棍子。一一习近平 http://t.cn/R2WiY6u<br><img src="http://ww4.sinaimg.cn/large/73570bbdjw1f3dt8edlvtj20fa0ac0tu.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3969683931557644" target="freeweibo-mirror">//@陈光武律师: //@崔小平律师: //@陆亚明:[笑c…</a>
+</h2>
+<p>//@陈光武律师: //@崔小平律师: //@陆亚明:[笑cry][笑cry][笑cry]<br><br>RE: 七十年代中学毕业后，国人脑袋都装满了如下内容：李鸿章丧权辱国，义和团保家卫国，太平天国农民起义，蒋介石只会摘桃子，地主个个是周扒皮，旧社会暗无天日，朝鲜是中国屏障……有人评价这种人就是一个中国傻逼的标准配置。你要是跟他说：你多看几本书，动点脑子再说话。他立马眼珠一翻：你是汉奸！</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3969683638547173" target="freeweibo-mirror">//@崔小平律师: //@陆亚明:[笑cry][笑cry][…</a>
+</h2>
+<p>//@崔小平律师: //@陆亚明:[笑cry][笑cry][笑cry]<br><br>RE: 七十年代中学毕业后，国人脑袋都装满了如下内容：李鸿章丧权辱国，义和团保家卫国，太平天国农民起义，蒋介石只会摘桃子，地主个个是周扒皮，旧社会暗无天日，朝鲜是中国屏障……有人评价这种人就是一个中国傻逼的标准配置。你要是跟他说：你多看几本书，动点脑子再说话。他立马眼珠一翻：你是汉奸！</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3969678785442422" target="freeweibo-mirror">SPAM ( ´_ゝ`)真是黑科技...//@翼_光: 所见…</a>
+</h2>
+<p>SPAM ( ´_ゝ`)真是黑科技...//@翼_光: 所见即所得！！！！！！索尼黑科技！！！！</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3969671977663590" target="freeweibo-mirror">好顶支持 ~ @小鱼-A4台风 @鱼总-A4TYPHOON</a>
 </h2>
 <p>好顶支持 ~ @小鱼-A4台风 @鱼总-A4TYPHOON</p>
@@ -108,36 +138,6 @@
 <p>SPAM #微关注#【永昌公安微信开通啦！大家快来围观！ 】http://t.cn/Rqjt6H3<br><img src="http://ww1.sinaimg.cn/large/9b6e8663jw1f3de4ipqxsj2076076q33.jpg"></p>
 <p>
 	<small> ============== 10小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3969553039978418" target="freeweibo-mirror">SPAM 这只是最低级的刑讯逼供而已</a>
-</h2>
-<p>SPAM 这只是最低级的刑讯逼供而已<br><br>RE: 【刑讯逼供在中国是真实存在的】 “一个警察拿竹签扎我右手大拇指。疼啊。我就说是我杀的。问我怎么杀的，我说拿菜刀。他说不对，然后扎第二个手指。我说用尖刀，又不对，又扎。最后把我十个手指头都扎了”——吉林男子被指奸杀女邻居坐冤狱25年，带伤出狱称遭逼供。 http://t.cn/RqlovcD<br><img src="http://ww4.sinaimg.cn/large/6b804b51gw1f3c9o7040oj20b408cq4j.jpg"></p>
-<p>
-	<small> ============== 10小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3969552985109490" target="freeweibo-mirror">心智不成熟。 //@陈有西:你这类五毛喷子，只有到呼格一样被…</a>
-</h2>
-<p>心智不成熟。 //@陈有西:你这类五毛喷子，只有到呼格一样被冤枉送上刑场才会明白。//@注册很烦：回复@那是传说中的南哥:程序正义？在这个社会，没有钱你连什么叫程序都不知道。所谓程序正义就是一帮律师在那里狗咬狗<br><br>RE: 【刑讯逼供在中国是真实存在的】 “一个警察拿竹签扎我右手大拇指。疼啊。我就说是我杀的。问我怎么杀的，我说拿菜刀。他说不对，然后扎第二个手指。我说用尖刀，又不对，又扎。最后把我十个手指头都扎了”——吉林男子被指奸杀女邻居坐冤狱25年，带伤出狱称遭逼供。 http://t.cn/RqlovcD<br><img src="http://ww4.sinaimg.cn/large/6b804b51gw1f3c9o7040oj20b408cq4j.jpg"></p>
-<p>
-	<small> ============== 10小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3969550632206834" target="freeweibo-mirror">SPAM @虫虫手绘 细节控虫鸽子准备了好久好久好久的微课，…</a>
-</h2>
-<p>SPAM @虫虫手绘 细节控虫鸽子准备了好久好久好久的微课，终于上线了，外地的哥子们学起来！扫描或者手指按住识别二维码了解详情～<br><img src="http://ww3.sinaimg.cn/large/821a6ffdgw1f3ddnldgvdj20ku0ku40g.jpg"></p>
-<p>
-	<small> ============== 10小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3969517580920220" target="freeweibo-mirror">然则仍邪恶并善地自相矛盾着。//@梅新育: 又一位有自省的基…</a>
-</h2>
-<p>然则仍邪恶并善地自相矛盾着。//@梅新育: 又一位有自省的基督徒。//@海滨政经述-橡谷智库: 宗教之恶，要非常小心。我是基督徒……我参加过基督教原教旨主义者的主日活动，非常震惊，几乎动摇了我对基督教的信心。后来才重新审视宗教，可以用邪恶来定义任何宗教。是否善意，取决于你自己与神的关系。</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3969504927269685" target="freeweibo-mirror">大概是安拉在发威。新浪难道也被绿教徒渗透了？ //@Simo…</a>
-</h2>
-<p>大概是安拉在发威。新浪难道也被绿教徒渗透了？ //@Simon_Shomingz:[思考]太老，不能评论你的微博了，20207错误，但是能转发，关注也没问题，是渣浪搞的鬼还是怎么的 //@太蔟:王只是症状。要想根治还需更大的动作。</p>
-<p>
-	<small> ============== 1天前</small>
 </p>
 <table>
     <tr>
