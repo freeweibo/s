@@ -19,6 +19,18 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3969631901073333" target="freeweibo-mirror">//@干卫东律师: //@埃玛Emma:转发微博</a>
+</h2>
+<p>//@干卫东律师: //@埃玛Emma:转发微博<br><br>RE: 在党通过暴力垄断话语权，牢牢地控制媒体宣传和洗脑教育的情况下，民间是没有能力通过启蒙唤醒民众起来抗争的，倒是党自己通过电警棍、震爆弹、催泪弹以及各种血腥强拆强征才算是真正启蒙了民众——必须站起来反抗才是唯一活路。<br><img src="http://ww1.sinaimg.cn/large/006fm52ujw1f3dleasasbj30f00qo781.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3969631515558441" target="freeweibo-mirror">//@店主-再来壶酱油: //@学习的亚军: //@六叔一梦…</a>
+</h2>
+<p>//@店主-再来壶酱油: //@学习的亚军: //@六叔一梦: //@SANGMINGLEI4602://@殺人刀v活人剑: 转发微博</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3969599739514827" target="freeweibo-mirror">SPAM 内心强大了，才能无坚不摧</a>
 </h2>
 <p>SPAM 内心强大了，才能无坚不摧</p>
@@ -124,18 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3969391005011880" target="freeweibo-mirror">来自那个著名的大个子律师。</a>
 </h2>
 <p>来自那个著名的大个子律师。<br><img src="http://ww2.sinaimg.cn/large/3f79a379jw1f3cvcyvfalj20k00zk0yn.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3969376728222361" target="freeweibo-mirror">SPAM 小数点的游戏：中堂来了，往前挪，它成了物价。中堂走…</a>
-</h2>
-<p>SPAM 小数点的游戏：中堂来了，往前挪，它成了物价。中堂走了，往后挪，它就成了GDP！//@周铁东本人:所以才会有“何不食肉糜” 的决策频出。<br><br>RE: 分享图片<br><img src="http://ww3.sinaimg.cn/large/afa537c8gw1f3cpwx2irlj20ig0cajsw.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3969374962390432" target="freeweibo-mirror">[围观]//@李彤律师: 转发微博</a>
-</h2>
-<p>[围观]//@李彤律师: 转发微博<br><br>RE: 分享图片<br><img src="http://ww3.sinaimg.cn/large/afa537c8gw1f3cpwx2irlj20ig0cajsw.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
