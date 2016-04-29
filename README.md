@@ -61,6 +61,12 @@
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3969651564749456" target="freeweibo-mirror">开会时称人民， 落户时称居民， 强拆时称刁民， 发怒时称屁民…</a>
+</h2>
+<p>开会时称人民， 落户时称居民， 强拆时称刁民， 发怒时称屁民， 收税时成了公民， 打仗时称亲人。对外，老子有钱，到处撒钱。 对内，老子有枪，到处开枪。据说人民的幸福是档和ZF给的，那么人民的痛苦是谁给的？ 我们只能这样回答： 人民的痛苦都是自找的！----@江枫时评</p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3969651199219844" target="freeweibo-mirror">//@怀化麻阳黄雨慧黄雨霞: 转发微博</a>
 </h2>
 <p>//@怀化麻阳黄雨慧黄雨霞: 转发微博<br><br>RE: 公开于重庆遥祭圣女的重庆公民崔斌刚接到一位蒋姓警官的电话，说马上开车到他住处接他，接到何处暂不知。蒋警官电话13896375399。<br><img src="http://ww4.sinaimg.cn/large/006lzJOPgw1f3dn4i8ixqj30qo0zk14x.jpg"></p>
@@ -71,7 +77,7 @@
 </h2>
 <p>//@梁普湾: //@孔_智勇://@眼瞰-://@沉沦中再继续: 他的粤语字正腔圆铿锵顿挫，一直是我用来学粤语的最佳教材。//@火星青蛇xss: 右边你听得懂吗？/@青山怎能不妩媚: 华夏好声音 ---此公当之无愧！//@自-由蓝莲花盛开: 非常清楚，精彩的演讲！[good]</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3969645369624974" target="freeweibo-mirror">SPAM 不用多久，我就会升职加薪、当上总经理、出任CEO、…</a>
 </h2>
@@ -95,7 +101,7 @@
 </h2>
 <p>//@店主-再来壶酱油: //@学习的亚军: //@六叔一梦: //@SANGMINGLEI4602://@殺人刀v活人剑: 转发微博</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3969628114348422" target="freeweibo-mirror">//@杂家B-胡学龙: 无耻至极//@孟庆泉律师:→_→//…</a>
 </h2>
@@ -131,13 +137,7 @@
 </h2>
 <p>也幸好不是南亚。在巴基斯坦、孟加拉这类绿色国家，也是要小心性命的。<br><br>RE: 暴恐分子斩首威胁图片清晰版（截屏可能不够清晰），明白当时伊斯兰国横扫伊拉克北部对国内三股势力的鼓励了吧？…… 好在中国不是中东国家……<br><img src="http://ww4.sinaimg.cn/large/4b18c48fgw1f3dh5lahzgj20qo0f0aaz.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3969585440687459" target="freeweibo-mirror">SPAM 一个当事人给我的致歉信</a>
-</h2>
-<p>SPAM 一个当事人给我的致歉信<br><img src="http://ww3.sinaimg.cn/large/4bdb1fa0jw1f3dhp9rw1cj20ku112dl1.jpg"></p>
-<p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p>
 <table>
     <tr>
