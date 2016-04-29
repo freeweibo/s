@@ -71,7 +71,7 @@
 </h2>
 <p>SPAM 推荐这家有高回头率又显瘦的衣服，优雅中带点甜美，质量都是非常好的@模特MSAE</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3969733919876526" target="freeweibo-mirror">大V一般都不是知识分子。//@世界之双目：在文革结束四十年后…</a>
 </h2>
@@ -95,7 +95,7 @@
 </h2>
 <p>SPAM //@法律及其价值: //@东河-猎鹰倚天屠龙://@活得轻松些真是不容易:推博主老友[话筒]<br><br>RE: 對於這些捕風捉影的東西，俺們堅決不信！你就是公開了我也不信！這麼偉大的黨不可能幹出這麼沒屁眼兒的事！帝國主義憑空捏造的彌天大謊，全世界竟然都相信了？！也就俺們這裡還保持清醒，真理掌握在少數人手中。西方敵對勢力太TM 惡劣了，特別是美帝、英帝，尼瑪亡我之心不死啊！[怒][怒]<br><img src="http://ww3.sinaimg.cn/large/006cjx8Hjw1f3cjldcxr2j30ma0ms78r.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3969719134907925" target="freeweibo-mirror">SPAM 机器人辛苦了[good]//@今日睇弹:[来][来…</a>
 </h2>
