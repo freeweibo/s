@@ -37,6 +37,12 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3969617708218456" target="freeweibo-mirror">在党通过暴力垄断话语权，牢牢地控制媒体宣传和洗脑教育的情况下…</a>
+</h2>
+<p>在党通过暴力垄断话语权，牢牢地控制媒体宣传和洗脑教育的情况下，民间是没有能力通过启蒙唤醒民众起来抗争的，倒是党自己通过电警棍、震爆弹、催泪弹以及各种血腥强拆强征才算是真正启蒙了民众——必须站起来反抗才是唯一活路。<br><img src="http://ww1.sinaimg.cn/large/006fm52ujw1f3dleasasbj30f00qo781.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3969599739514827" target="freeweibo-mirror">SPAM 内心强大了，才能无坚不摧</a>
 </h2>
 <p>SPAM 内心强大了，才能无坚不摧</p>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3969469627685133" target="freeweibo-mirror">//@崔爱国律师:转发并祝福！</a>
 </h2>
 <p>//@崔爱国律师:转发并祝福！</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3969406708856393" target="freeweibo-mirror">SPAM 【每日深夜福利】36328元，快抢！步骤：1.搜索…</a>
-</h2>
-<p>SPAM 【每日深夜福利】36328元，快抢！步骤：1.搜索卫星号（谐音，你懂的）qinghuanandu并加关注；2.在卫星上（注意不是微博上）回复“xoxo”，系统会自动回复口令；3.将口令复制粘贴到http://t.cn/R4I95W9。已经抢过的孩纸，猜猜最后一张图是在哪里拍的？[馋嘴] http://t.cn/z8Lm7Tr<br><img src="http://ww4.sinaimg.cn/large/89ad7439jw1f3cx2gg9ogj20u01hc7aa.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
