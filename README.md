@@ -19,6 +19,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3969671977663590" target="freeweibo-mirror">好顶支持 ~ @小鱼-A4台风 @鱼总-A4TYPHOON</a>
+</h2>
+<p>好顶支持 ~ @小鱼-A4台风 @鱼总-A4TYPHOON</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3969631901073333" target="freeweibo-mirror">//@干卫东律师: //@埃玛Emma:转发微博</a>
 </h2>
 <p>//@干卫东律师: //@埃玛Emma:转发微博<br><br>RE: 在党通过暴力垄断话语权，牢牢地控制媒体宣传和洗脑教育的情况下，民间是没有能力通过启蒙唤醒民众起来抗争的，倒是党自己通过电警棍、震爆弹、催泪弹以及各种血腥强拆强征才算是真正启蒙了民众——必须站起来反抗才是唯一活路。<br><img src="http://ww1.sinaimg.cn/large/006fm52ujw1f3dleasasbj30f00qo781.jpg"></p>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3969494101107843" target="freeweibo-mirror">//@闲云踏雾://@雾好霾://@刚刚路过03://@重庆…</a>
 </h2>
 <p>//@闲云踏雾://@雾好霾://@刚刚路过03://@重庆郑建伟://@徐利平律师://@王连军律师://@游云庭律师:转发微博<br><br>RE: 来自那个著名的大个子律师。<br><img src="http://ww2.sinaimg.cn/large/3f79a379jw1f3cvcyvfalj20k00zk0yn.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3969469627685133" target="freeweibo-mirror">//@崔爱国律师:转发并祝福！</a>
-</h2>
-<p>//@崔爱国律师:转发并祝福！</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
