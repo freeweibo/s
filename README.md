@@ -29,7 +29,7 @@
 </h2>
 <p>大概是安拉在发威。新浪难道也被绿教徒渗透了？ //@Simon_Shomingz:[思考]太老，不能评论你的微博了，20207错误，但是能转发，关注也没问题，是渣浪搞的鬼还是怎么的 //@太蔟:王只是症状。要想根治还需更大的动作。</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3969494101107843" target="freeweibo-mirror">//@闲云踏雾://@雾好霾://@刚刚路过03://@重庆…</a>
 </h2>
@@ -59,7 +59,7 @@
 </h2>
 <p>SPAM 小数点的游戏：中堂来了，往前挪，它成了物价。中堂走了，往后挪，它就成了GDP！//@周铁东本人:所以才会有“何不食肉糜” 的决策频出。<br><br>RE: 分享图片<br><img src="http://ww3.sinaimg.cn/large/afa537c8gw1f3cpwx2irlj20ig0cajsw.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3969374962390432" target="freeweibo-mirror">[围观]//@李彤律师: 转发微博</a>
 </h2>
