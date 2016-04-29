@@ -41,7 +41,7 @@
 </h2>
 <p>大概是安拉在发威。新浪难道也被绿教徒渗透了？ //@Simon_Shomingz:[思考]太老，不能评论你的微博了，20207错误，但是能转发，关注也没问题，是渣浪搞的鬼还是怎么的 //@太蔟:王只是症状。要想根治还需更大的动作。</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3969494101107843" target="freeweibo-mirror">//@闲云踏雾://@雾好霾://@刚刚路过03://@重庆…</a>
 </h2>
@@ -59,7 +59,7 @@
 </h2>
 <p>SPAM 【每日深夜福利】36328元，快抢！步骤：1.搜索卫星号（谐音，你懂的）qinghuanandu并加关注；2.在卫星上（注意不是微博上）回复“xoxo”，系统会自动回复口令；3.将口令复制粘贴到http://t.cn/R4I95W9。已经抢过的孩纸，猜猜最后一张图是在哪里拍的？[馋嘴] http://t.cn/z8Lm7Tr<br><img src="http://ww4.sinaimg.cn/large/89ad7439jw1f3cx2gg9ogj20u01hc7aa.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3969391005011880" target="freeweibo-mirror">来自那个著名的大个子律师。</a>
 </h2>
