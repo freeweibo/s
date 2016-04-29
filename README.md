@@ -95,7 +95,7 @@
 </h2>
 <p>SPAM 奋不顾身的相爱，这组小清新推荐帮助你肆无忌惮的享受生活。</p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3969364476146661" target="freeweibo-mirror">SPAM 觉得生活无聊的盆友下下看，打开新世界大门哦~[do…</a>
 </h2>
@@ -125,7 +125,7 @@
 </h2>
 <p>岛国人就是会玩[笑cry][笑cry][笑cry] http://t.cn/Rql1y0v .</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3969343010866757" target="freeweibo-mirror">【为不降漫游费，工信部竟如此表态？】今天工信部召开了一场新闻…</a>
 </h2>
