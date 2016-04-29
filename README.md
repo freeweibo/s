@@ -37,6 +37,12 @@
 <p>
 	<small> ============== 4小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3969583302165899" target="freeweibo-mirror">哪个宗教或者团体的极端派都是一个德行，这种事最关键的是所谓"…</a>
+</h2>
+<p>哪个宗教或者团体的极端派都是一个德行，这种事最关键的是所谓"温和派"的软刀子，人们怕的也是这一点。一个流氓砸了一家蛋糕店，警察毫不犹豫敢抓，但如果流氓说那蛋糕店给他卖猪油蛋糕，警察就不敢抓，因为抓了会有一堆温和派跑出来闹。<br><br>RE: 暴恐分子斩首威胁图片清晰版（截屏可能不够清晰），明白当时伊斯兰国横扫伊拉克北部对国内三股势力的鼓励了吧？…… 好在中国不是中东国家……<br><img src="http://ww4.sinaimg.cn/large/4b18c48fgw1f3dh5lahzgj20qo0f0aaz.jpg"></p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3969576532698677" target="freeweibo-mirror">SPAM [爱你][爱你][爱你]外地问尼诺网络课的各位………</a>
 </h2>
 <p>SPAM [爱你][爱你][爱你]外地问尼诺网络课的各位……[来]</p>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3969373641179787" target="freeweibo-mirror">SPAM [吃惊]//@东河-猎鹰倚天屠龙: 这价格只能在机…</a>
 </h2>
 <p>SPAM [吃惊]//@东河-猎鹰倚天屠龙: 这价格只能在机关食堂里见到。//@风花雪月男盗女娼:我操，这价格，牛逼！<br><br>RE: 分享图片<br><img src="http://ww3.sinaimg.cn/large/afa537c8gw1f3cpwx2irlj20ig0cajsw.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3969373117302980" target="freeweibo-mirror">相互要求[嘻嘻] //@陈朝晖:这是自发自觉，还是上峰要求？…</a>
-</h2>
-<p>相互要求[嘻嘻] //@陈朝晖:这是自发自觉，还是上峰要求？//@朱田夫: //@作家岳南:[拍照]//@创业家李宗升: 转发微博<br><br>RE: 分享图片<br><img src="http://ww3.sinaimg.cn/large/afa537c8gw1f3cpwx2irlj20ig0cajsw.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
