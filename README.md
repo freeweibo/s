@@ -131,7 +131,7 @@
 </h2>
 <p>【为不降漫游费，工信部竟如此表态？】今天工信部召开了一场新闻发布会，不出意外，关于取消漫游费的问题成为记者关注的焦点。只不过，这个问题可是逼急了工信部。解局君慢慢告诉你，这是怎么回事。http://t.cn/Rql1hfF<br><img src="http://ww4.sinaimg.cn/large/768ab125jw1f3cj9hze6jj20c80d1q51.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3969297904729809" target="freeweibo-mirror">//@孔_智勇:就算公开也不信，帝国主义之心亡我不死。//@…</a>
 </h2>
