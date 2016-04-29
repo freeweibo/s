@@ -31,6 +31,24 @@
 <p>
 	<small> ============== 1小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3969697940587116" target="freeweibo-mirror">青马史、青海地方志接触少！但这显然激化矛盾，制造新七五！@紫…</a>
+</h2>
+<p>青马史、青海地方志接触少！但这显然激化矛盾，制造新七五！@紫光阁 @中国政府网@首都网警  @单学刚 @段赛民 @环球舆情-戴元初 这是大事件，似乎故意要引发青海回民大规模对抗，配合美国金融战及祸水东引计划！ @梅新育 @习五一 ：青海拉面那县回民彭总放走的马步芳旧军队的后人多，千万当心！<br><br>RE: 上海市大部分拉面都被强制关店，熟悉的味道要离开上海了。 http://t.cn/R2WJCKa<br><img src="http://ww3.sinaimg.cn/large/005w9hzxgw1f3cgepj1itj31be0qo7fb.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3969697332888971" target="freeweibo-mirror">//@般若观:@紫光阁 @中国政府网@首都网警  @单学刚 …</a>
+</h2>
+<p>//@般若观:@紫光阁 @中国政府网@首都网警  @单学刚 @段赛民 @环球舆情-戴元初 这是大事件，似乎故意要引发青海回民大规模对抗，配合美国金融战及祸水东引计划！ @梅新育 @习五一 ：青海拉面那县回民彭总放走的马步芳旧军队的后人多，千万当心！！！！！<br><br>RE: 上海市大部分拉面都被强制关店，熟悉的味道要离开上海了。 http://t.cn/R2WJCKa<br><img src="http://ww3.sinaimg.cn/large/005w9hzxgw1f3cgepj1itj31be0qo7fb.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3969696589918546" target="freeweibo-mirror">@紫光阁 @中国政府网@首都网警  @单学刚 @段赛民 @环…</a>
+</h2>
+<p>@紫光阁 @中国政府网@首都网警  @单学刚 @段赛民 @环球舆情-戴元初 这是大事件，似乎故意要引发青海回民大规模对抗，配合美国金融战及祸水东引计划！ 08年论坛时代黑穆反回谤伊，鼓吹王震，一年后出事！现在又重复，中央要当心！@梅新育 @习五一 建议多观察、少转发！<br><br>RE: 上海市大部分拉面都被强制关店，熟悉的味道要离开上海了。 http://t.cn/R2WJCKa<br><img src="http://ww3.sinaimg.cn/large/005w9hzxgw1f3cgepj1itj31be0qo7fb.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3969687534943897" target="freeweibo-mirror">SPAM //@去V的刘建锋: 转发微博</a>
 </h2>
 <p>SPAM //@去V的刘建锋: 转发微博<br><br>RE: 【救命】您的关注或许可以救命！打電話、写信，寄明信片地址：廣東省陽春市松柏鎮一號大院 狱长或刘干士转郭飞雄收 郵編：529615 獄政科電話：0662-7806009地址：廣東省陽春市松柏鎮一號大院醫院監區 囚號4412029461楊荗東（郭飞雄）收 [话筒]@徐昕 @章诒和 @何兵<br><img src="http://ww2.sinaimg.cn/large/7a8590bdjw1f3d5w8wwf8j20kt0oddkr.jpg"></p>
@@ -59,7 +77,7 @@
 </h2>
 <p>SPAM ( ´_ゝ`)真是黑科技...//@翼_光: 所见即所得！！！！！！索尼黑科技！！！！</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3969671977663590" target="freeweibo-mirror">好顶支持 ~ @小鱼-A4台风 @鱼总-A4TYPHOON</a>
 </h2>
@@ -101,7 +119,7 @@
 </h2>
 <p>公开于重庆遥祭圣女的重庆公民崔斌刚接到一位蒋姓警官的电话，说马上开车到他住处接他，接到何处暂不知。蒋警官电话13896375399。<br><img src="http://ww4.sinaimg.cn/large/006lzJOPgw1f3dn4i8ixqj30qo0zk14x.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3969631901073333" target="freeweibo-mirror">//@干卫东律师: //@埃玛Emma:转发微博</a>
 </h2>
@@ -120,24 +138,6 @@
 <p>//@杂家B-胡学龙: 无耻至极//@孟庆泉律师:→_→//@干卫东律师:把几百几千几万亿装进周永康们的口袋，问过纳税人吗？//@孔_智勇:你们到非洲等世界各地撒钱，你们问过中国纳税人同不同意了吗？ //@梧桐之城: 自取其辱。 //@夙生律师事务所:<br><br>RE: 说人先看己【外交部华春莹：美军派航母赴南海炫耀武力，而美国债已超过19万亿美元。不知道美方开展所谓“航行自由行动”时是否得到了美国纳税人的支持】众所周知，美国是科技大国，中国是消费大国。不知从何时开始又变成了“送钱”大国，买那麽多滴美债，问过中国的纳税人吗？真是搬起石头砸自己的脚！<br><img src="http://ww1.sinaimg.cn/large/006nIGH2gw1f3crx8ayydj30dw08lwfm.jpg"></p>
 <p>
 	<small> ============== 6小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3969617708218456" target="freeweibo-mirror">在党通过暴力垄断话语权，牢牢地控制媒体宣传和洗脑教育的情况下…</a>
-</h2>
-<p>在党通过暴力垄断话语权，牢牢地控制媒体宣传和洗脑教育的情况下，民间是没有能力通过启蒙唤醒民众起来抗争的，倒是党自己通过电警棍、震爆弹、催泪弹以及各种血腥强拆强征才算是真正启蒙了民众——必须站起来反抗才是唯一活路。<br><img src="http://ww1.sinaimg.cn/large/006fm52ujw1f3dleasasbj30f00qo781.jpg"></p>
-<p>
-	<small> ============== 7小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3969599739514827" target="freeweibo-mirror">SPAM 内心强大了，才能无坚不摧</a>
-</h2>
-<p>SPAM 内心强大了，才能无坚不摧</p>
-<p>
-	<small> ============== 8小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3969588440142498" target="freeweibo-mirror">博主被点名威胁？//@大海大山是我家:怪不得右派公知大V基本…</a>
-</h2>
-<p>博主被点名威胁？//@大海大山是我家:怪不得右派公知大V基本都不吭声，原来真是特么不敢。疾风知劲草！<br><br>RE: 暴恐分子斩首威胁图片清晰版（截屏可能不够清晰），明白当时伊斯兰国横扫伊拉克北部对国内三股势力的鼓励了吧？…… 好在中国不是中东国家……<br><img src="http://ww4.sinaimg.cn/large/4b18c48fgw1f3dh5lahzgj20qo0f0aaz.jpg"></p>
-<p>
-	<small> ============== 8小时前</small>
 </p>
 <table>
     <tr>
