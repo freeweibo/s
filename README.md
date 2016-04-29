@@ -19,6 +19,18 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3969553039978418" target="freeweibo-mirror">SPAM 这只是最低级的刑讯逼供而已</a>
+</h2>
+<p>SPAM 这只是最低级的刑讯逼供而已<br><br>RE: 【刑讯逼供在中国是真实存在的】 “一个警察拿竹签扎我右手大拇指。疼啊。我就说是我杀的。问我怎么杀的，我说拿菜刀。他说不对，然后扎第二个手指。我说用尖刀，又不对，又扎。最后把我十个手指头都扎了”——吉林男子被指奸杀女邻居坐冤狱25年，带伤出狱称遭逼供。 http://t.cn/RqlovcD<br><img src="http://ww4.sinaimg.cn/large/6b804b51gw1f3c9o7040oj20b408cq4j.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3969552985109490" target="freeweibo-mirror">心智不成熟。 //@陈有西:你这类五毛喷子，只有到呼格一样被…</a>
+</h2>
+<p>心智不成熟。 //@陈有西:你这类五毛喷子，只有到呼格一样被冤枉送上刑场才会明白。//@注册很烦：回复@那是传说中的南哥:程序正义？在这个社会，没有钱你连什么叫程序都不知道。所谓程序正义就是一帮律师在那里狗咬狗<br><br>RE: 【刑讯逼供在中国是真实存在的】 “一个警察拿竹签扎我右手大拇指。疼啊。我就说是我杀的。问我怎么杀的，我说拿菜刀。他说不对，然后扎第二个手指。我说用尖刀，又不对，又扎。最后把我十个手指头都扎了”——吉林男子被指奸杀女邻居坐冤狱25年，带伤出狱称遭逼供。 http://t.cn/RqlovcD<br><img src="http://ww4.sinaimg.cn/large/6b804b51gw1f3c9o7040oj20b408cq4j.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3969517580920220" target="freeweibo-mirror">然则仍邪恶并善地自相矛盾着。//@梅新育: 又一位有自省的基…</a>
 </h2>
 <p>然则仍邪恶并善地自相矛盾着。//@梅新育: 又一位有自省的基督徒。//@海滨政经述-橡谷智库: 宗教之恶，要非常小心。我是基督徒……我参加过基督教原教旨主义者的主日活动，非常震惊，几乎动摇了我对基督教的信心。后来才重新审视宗教，可以用邪恶来定义任何宗教。是否善意，取决于你自己与神的关系。</p>
@@ -53,7 +65,7 @@
 </h2>
 <p>来自那个著名的大个子律师。<br><img src="http://ww2.sinaimg.cn/large/3f79a379jw1f3cvcyvfalj20k00zk0yn.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3969376728222361" target="freeweibo-mirror">SPAM 小数点的游戏：中堂来了，往前挪，它成了物价。中堂走…</a>
 </h2>
@@ -124,18 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3969346025485411" target="freeweibo-mirror">SPAM 春天不穿裙子怎么型？点我关注艾蒙的公众号嘛[江南s…</a>
 </h2>
 <p>SPAM 春天不穿裙子怎么型？点我关注艾蒙的公众号嘛[江南style][偷乐]<br><img src="http://ww4.sinaimg.cn/large/611f531fgw1f3ckseli1lj20fo0hqq5y.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3969344872381777" target="freeweibo-mirror">SPAM 回复@王小民岁月:哇塞[爱你][色]//@王小民岁…</a>
-</h2>
-<p>SPAM 回复@王小民岁月:哇塞[爱你][色]//@王小民岁月:@贾大户 哥来打麻将了</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3969343840275788" target="freeweibo-mirror">岛国人就是会玩[笑cry][笑cry][笑cry] http…</a>
-</h2>
-<p>岛国人就是会玩[笑cry][笑cry][笑cry] http://t.cn/Rql1y0v .</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
