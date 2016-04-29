@@ -23,13 +23,13 @@
 </h2>
 <p>SPAM 独家定制。[鲜花][鲜花][鲜花]</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3969701820705813" target="freeweibo-mirror">SPAM 大上海！</a>
 </h2>
 <p>SPAM 大上海！<br><br>RE: 上海市大部分拉面都被强制关店，熟悉的味道要离开上海了。 http://t.cn/R2WJCKa<br><img src="http://ww3.sinaimg.cn/large/005w9hzxgw1f3cgepj1itj31be0qo7fb.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3969699883071725" target="freeweibo-mirror">坚决支持上海警方铁腕整顿，捍卫中国法规尊严，保卫人民身心健康…</a>
 </h2>
@@ -55,6 +55,12 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3969693699986585" target="freeweibo-mirror">SPAM 无照也就罢了，无卫生证凭啥不该关门？http://…</a>
+</h2>
+<p>SPAM 无照也就罢了，无卫生证凭啥不该关门？http://t.cn/RqO1Fjo 看看BBC报道：英国清真餐厅因大便后未处理好手的卫生，140名顾客被人粪污染导致大肠杆菌中毒：http://t.cn/RyKsGPJ 想咨询下博主，按你们正宗教规，大便后怎么处理？是否只用手和水，不能用卫生纸？<br><br>RE: 上海市大部分拉面都被强制关店，熟悉的味道要离开上海了。 http://t.cn/R2WJCKa<br><img src="http://ww3.sinaimg.cn/large/005w9hzxgw1f3cgepj1itj31be0qo7fb.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3969687534943897" target="freeweibo-mirror">SPAM //@去V的刘建锋: 转发微博</a>
 </h2>
 <p>SPAM //@去V的刘建锋: 转发微博<br><br>RE: 【救命】您的关注或许可以救命！打電話、写信，寄明信片地址：廣東省陽春市松柏鎮一號大院 狱长或刘干士转郭飞雄收 郵編：529615 獄政科電話：0662-7806009地址：廣東省陽春市松柏鎮一號大院醫院監區 囚號4412029461楊荗東（郭飞雄）收 [话筒]@徐昕 @章诒和 @何兵<br><img src="http://ww2.sinaimg.cn/large/7a8590bdjw1f3d5w8wwf8j20kt0oddkr.jpg"></p>
@@ -65,7 +71,7 @@
 </h2>
 <p>对知识分子提的意见，要不抓辫子不带帽子不打棍子。一一习近平 http://t.cn/R2WiY6u<br><img src="http://ww4.sinaimg.cn/large/73570bbdjw1f3dt8edlvtj20fa0ac0tu.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3969683931557644" target="freeweibo-mirror">//@陈光武律师: //@崔小平律师: //@陆亚明:[笑c…</a>
 </h2>
@@ -89,7 +95,7 @@
 </h2>
 <p>好顶支持 ~ @小鱼-A4台风 @鱼总-A4TYPHOON</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3969663114741158" target="freeweibo-mirror">SPAM 悉尼西北区双砖精品公寓，你值得拥有！位于66-68…</a>
 </h2>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3969631901073333" target="freeweibo-mirror">//@干卫东律师: //@埃玛Emma:转发微博</a>
 </h2>
 <p>//@干卫东律师: //@埃玛Emma:转发微博<br><br>RE: 在党通过暴力垄断话语权，牢牢地控制媒体宣传和洗脑教育的情况下，民间是没有能力通过启蒙唤醒民众起来抗争的，倒是党自己通过电警棍、震爆弹、催泪弹以及各种血腥强拆强征才算是真正启蒙了民众——必须站起来反抗才是唯一活路。<br><img src="http://ww1.sinaimg.cn/large/006fm52ujw1f3dleasasbj30f00qo781.jpg"></p>
-<p>
-	<small> ============== 6小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3969631515558441" target="freeweibo-mirror">//@店主-再来壶酱油: //@学习的亚军: //@六叔一梦…</a>
-</h2>
-<p>//@店主-再来壶酱油: //@学习的亚军: //@六叔一梦: //@SANGMINGLEI4602://@殺人刀v活人剑: 转发微博</p>
 <p>
 	<small> ============== 6小时前</small>
 </p>
