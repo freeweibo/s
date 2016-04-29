@@ -35,7 +35,7 @@
 </h2>
 <p>//@店主-再来壶酱油: //@学习的亚军: //@六叔一梦: //@SANGMINGLEI4602://@殺人刀v活人剑: 转发微博</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3969628114348422" target="freeweibo-mirror">//@杂家B-胡学龙: 无耻至极//@孟庆泉律师:→_→//…</a>
 </h2>
@@ -71,13 +71,13 @@
 </h2>
 <p>也幸好不是南亚。在巴基斯坦、孟加拉这类绿色国家，也是要小心性命的。<br><br>RE: 暴恐分子斩首威胁图片清晰版（截屏可能不够清晰），明白当时伊斯兰国横扫伊拉克北部对国内三股势力的鼓励了吧？…… 好在中国不是中东国家……<br><img src="http://ww4.sinaimg.cn/large/4b18c48fgw1f3dh5lahzgj20qo0f0aaz.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3969585440687459" target="freeweibo-mirror">SPAM 一个当事人给我的致歉信</a>
 </h2>
 <p>SPAM 一个当事人给我的致歉信<br><img src="http://ww3.sinaimg.cn/large/4bdb1fa0jw1f3dhp9rw1cj20ku112dl1.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3969583302165899" target="freeweibo-mirror">哪个宗教或者团体的极端派都是一个德行，这种事最关键的是所谓"…</a>
 </h2>
@@ -125,7 +125,7 @@
 </h2>
 <p>然则仍邪恶并善地自相矛盾着。//@梅新育: 又一位有自省的基督徒。//@海滨政经述-橡谷智库: 宗教之恶，要非常小心。我是基督徒……我参加过基督教原教旨主义者的主日活动，非常震惊，几乎动摇了我对基督教的信心。后来才重新审视宗教，可以用邪恶来定义任何宗教。是否善意，取决于你自己与神的关系。</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3969504927269685" target="freeweibo-mirror">大概是安拉在发威。新浪难道也被绿教徒渗透了？ //@Simo…</a>
 </h2>
