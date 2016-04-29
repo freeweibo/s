@@ -25,6 +25,18 @@
 <p>
 	<small> ============== 1小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3969736548969656" target="freeweibo-mirror">快来看评论</a>
+</h2>
+<p>快来看评论<br><br>RE: #时局#【习近平:青年人要敢于做先锋 而不做过客当看客】习近平近日在安徽合肥主持召开知识分子、劳动模范、青年代表座谈会。会上习近平指出，青年时光非常可贵，要用来干事创业、辛勤耕耘。青年要敢于做先锋，而不做过客、当看客，让创新成为青春远航的动力，让创业成为青春搏击的能量，让青春年华在为...全文： http://m.weibo.cn/1618051664/3969732794671096<br><img src="http://ww2.sinaimg.cn/large/60718250jw1f3dymhmuw0j20dw0dejsa.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3969732380274210" target="freeweibo-mirror">SPAM 【关于颈椎的秘密…九张图告诉你】  【喝蜂蜜水的黄…</a>
+</h2>
+<p>SPAM 【关于颈椎的秘密…九张图告诉你】  【喝蜂蜜水的黄金时间，你知道吗】 【晚饭不吃，饿治百病】 【早晨吃鸡蛋对身体是好还是坏？】  【老中医教你怎么辨别中药！】 尽在 【你要活到100岁】   关注卫星号：【both100】  百百带大家健康快乐地度过每一天<br><img src="http://ww4.sinaimg.cn/large/69cca5e3jw1f3dyks23ayj20k00zkgoe.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3969719868743802" target="freeweibo-mirror">SPAM //@法律及其价值: //@东河-猎鹰倚天屠龙:/…</a>
 </h2>
 <p>SPAM //@法律及其价值: //@东河-猎鹰倚天屠龙://@活得轻松些真是不容易:推博主老友[话筒]<br><br>RE: 對於這些捕風捉影的東西，俺們堅決不信！你就是公開了我也不信！這麼偉大的黨不可能幹出這麼沒屁眼兒的事！帝國主義憑空捏造的彌天大謊，全世界竟然都相信了？！也就俺們這裡還保持清醒，真理掌握在少數人手中。西方敵對勢力太TM 惡劣了，特別是美帝、英帝，尼瑪亡我之心不死啊！[怒][怒]<br><img src="http://ww3.sinaimg.cn/large/006cjx8Hjw1f3cjldcxr2j30ma0ms78r.jpg"></p>
@@ -41,7 +53,7 @@
 </h2>
 <p>上海警方加油//@任天堂斐哥:上海警方，加油！//@这里是上海shanghai: [拳头]<br><br>RE: 就是现在，上海延庆路新乐路口，非法拉面vs徐汇警方，第二晚盛况<br><img src="http://ww4.sinaimg.cn/large/7001de18jw1f3du8jze7pj21bh0qotfy.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3969716030359823" target="freeweibo-mirror">“知识分子”在毛的政治词典里就是个玩物的代名词，“知识分子”…</a>
 </h2>
@@ -65,13 +77,13 @@
 </h2>
 <p>SPAM 独家定制。[鲜花][鲜花][鲜花]</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3969701820705813" target="freeweibo-mirror">SPAM 大上海！</a>
 </h2>
 <p>SPAM 大上海！<br><br>RE: 上海市大部分拉面都被强制关店，熟悉的味道要离开上海了。 http://t.cn/R2WJCKa<br><img src="http://ww3.sinaimg.cn/large/005w9hzxgw1f3cgepj1itj31be0qo7fb.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3969699883071725" target="freeweibo-mirror">坚决支持上海警方铁腕整顿，捍卫中国法规尊严，保卫人民身心健康…</a>
 </h2>
@@ -113,7 +125,7 @@
 </h2>
 <p>对知识分子提的意见，要不抓辫子不带帽子不打棍子。一一习近平 http://t.cn/R2WiY6u<br><img src="http://ww4.sinaimg.cn/large/73570bbdjw1f3dt8edlvtj20fa0ac0tu.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3969683931557644" target="freeweibo-mirror">//@陈光武律师: //@崔小平律师: //@陆亚明:[笑c…</a>
 </h2>
@@ -124,18 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3969683638547173" target="freeweibo-mirror">//@崔小平律师: //@陆亚明:[笑cry][笑cry][…</a>
 </h2>
 <p>//@崔小平律师: //@陆亚明:[笑cry][笑cry][笑cry]<br><br>RE: 七十年代中学毕业后，国人脑袋都装满了如下内容：李鸿章丧权辱国，义和团保家卫国，太平天国农民起义，蒋介石只会摘桃子，地主个个是周扒皮，旧社会暗无天日，朝鲜是中国屏障……有人评价这种人就是一个中国傻逼的标准配置。你要是跟他说：你多看几本书，动点脑子再说话。他立马眼珠一翻：你是汉奸！</p>
-<p>
-	<small> ============== 5小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3969681633045435" target="freeweibo-mirror">如果是闵行区这种情形：http://t.cn/RqjlqFa…</a>
-</h2>
-<p>如果是闵行区这种情形：http://t.cn/RqjlqFa 坚决支持@警民直通车-徐汇站@上海徐汇发布<br><br>RE: 以闹治国，值此经济下行我国努力挽救实体经济，某些群体由于长期的结成团团伙伙以闹谋福利、以闹抗法律。如今终于闹出了国际声誉，对我国的法制建设、民族团结、经济建设都在造成了极坏的影响。长此以往，对民族团结、对经济建设、对我们的招商引资环境都造成重大打击<br><img src="http://ww2.sinaimg.cn/large/0068ruHajw1f3dpir8uoej30ku112wlv.jpg"></p>
-<p>
-	<small> ============== 5小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3969678785442422" target="freeweibo-mirror">SPAM ( ´_ゝ`)真是黑科技...//@翼_光: 所见…</a>
-</h2>
-<p>SPAM ( ´_ゝ`)真是黑科技...//@翼_光: 所见即所得！！！！！！索尼黑科技！！！！</p>
 <p>
 	<small> ============== 5小时前</small>
 </p>
