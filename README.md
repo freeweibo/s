@@ -89,7 +89,7 @@
 </h2>
 <p>SPAM [吃惊] //@余丰慧:太可怕了，这是谁的天？ //@陈业文新大都:草泥马！真凶残啊！[怒][怒][怒]<br><br>RE: 這是哪裡？？？ 天高皇帝遠 ，無法無天！ 無政府狀態了嗎？轉發求証！！！#郁言詼語##正义呐喊##助愛回家# http://t.cn/RqYa288 .</p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3970048282228973" target="freeweibo-mirror">这还是绿绿被世俗政权压住了呢。幸亏大航海时代后发展起来的是欧…</a>
 </h2>
@@ -125,7 +125,7 @@
 </h2>
 <p>SPAM #威海美食#作为吃货的亲们，一定不要错过威海夜市的这条街哦！各种小吃，烧烤大排档，满足那颗吃不饱的心！[馋嘴]<br><img src="http://ww1.sinaimg.cn/large/7e15b91fjw1f3exjnspi7j20qo0qo0wv.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3970025603715755" target="freeweibo-mirror">SPAM 这版面谁排的，点个赞！[哈哈][哈哈][哈哈]</a>
 </h2>
