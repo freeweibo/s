@@ -23,7 +23,7 @@
 </h2>
 <p>SPAM //@胡杨麟:[哈哈]</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3970054977180608" target="freeweibo-mirror">SPAM 这个微应用太好玩了，连P图都省了[太开心]</a>
 </h2>
