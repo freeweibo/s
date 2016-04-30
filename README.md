@@ -35,7 +35,7 @@
 </h2>
 <p>这么重大的事，喉舌们竟然不告知国民，你们确实姓D！//@九仟客归来: //@崔小平律师://@来去之间:这个都没公告？ //@Zodzod_张浩:靠//@敦煌郡公://@老杨scorpio: //@于赓哲://@宝树:还以为那三个王八蛋当人肉炸弹烧死了，居然还在西安躲着……<br><br>RE: 西安……距离姓白的国宝支队长找@全真道士梁兴扬 麻烦才多久时间？<br><img src="http://ww2.sinaimg.cn/large/5597e795jw1f3dzlad45hj20ci0m8abq.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3969891965578119" target="freeweibo-mirror">//@雨夜听琴005: 嘿，我很好奇，去年高喊万岁的那帮人呢…</a>
 </h2>
@@ -83,7 +83,7 @@
 </h2>
 <p>估计评论者出发点不好</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3969860919085298" target="freeweibo-mirror">SPAM 依法治国....？//@李佳佳Audrey:Rep…</a>
 </h2>
