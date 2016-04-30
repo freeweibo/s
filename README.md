@@ -137,7 +137,7 @@
 </h2>
 <p>SPAM 胃信：icplove，拿不完的cp头像，等你来。[心]</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p>
 <table>
     <tr>
