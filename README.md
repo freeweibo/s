@@ -19,6 +19,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3969931148218269" target="freeweibo-mirror">某人非毛立FLAG拉帮结派而已，党同伐异厚黑手段，有个屁理论…</a>
+</h2>
+<p>某人非毛立FLAG拉帮结派而已，党同伐异厚黑手段，有个屁理论基础//@桃瑞丝格格:绥靖政策[doge]<br><br>RE: “两少一宽”的出发点，一个是所谓"德政、大赦“收买式的政策，另一个是所谓少民有些”习惯“与国家法律有冲突（例如某地青年强奸幼女不被当地人认为是犯罪）。此政策造成的问题是：1、逆淘汰，放纵犯罪者就是惩罚守法者。2、等于宣告丧失了改造社会使之进步的意志。3、导致因为民族身份而不平等，违宪<br><img src="http://ww4.sinaimg.cn/large/6a59b68fjw1f3eg3mb31sj20k30nun2x.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3969921157219291" target="freeweibo-mirror">回复@NACLHINENI:我就在教育他啊。信仰分正信和伪信…</a>
 </h2>
 <p>回复@NACLHINENI:我就在教育他啊。信仰分正信和伪信，宗教分正教和邪教。而党妈负责以唯物主义的观点进行鉴别区分。谢天谢地，挺好的。</p>
@@ -59,7 +65,7 @@
 </h2>
 <p>//@竹园纤圆:回族在大城市的无法无天是政策造成的！没有法律的严惩，民族和平共处就是奢望/／@江-别-鹤：天平街道湖南街道这口气多少年了，太原路供电所门面合同到期死活不走，拖到你供电所拆迁在要你赔20万，五原路拉面店多牛逼啊，妈逼这口气他徐汇公安分局再忍就是他妈太监了！<br><br>RE: （转帖）@话痨白玄：就是现在，上海延庆路新乐路口，非法拉面vs徐汇警方，第二晚盛况。<br><img src="http://ww1.sinaimg.cn/large/53ae0b70jw1f3dwj9py9sj20sg0fzjud.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3969893018324092" target="freeweibo-mirror">这么重大的事，喉舌们竟然不告知国民，你们确实姓D！//@九仟…</a>
 </h2>
@@ -83,13 +89,13 @@
 </h2>
 <p>方舟子老师也这么说。//@风景疾如箭:白队长说「看看，你们和道士一起破坏民族团结了吧，人家愤怒了」@西安公安 [猪头]//@习五一:[偷笑] //@烧伤超人阿宝:西安国宝忙着对付道士呢。<br><br>RE: 西安……距离姓白的国宝支队长找@全真道士梁兴扬 麻烦才多久时间？<br><img src="http://ww2.sinaimg.cn/large/5597e795jw1f3dzlad45hj20ci0m8abq.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3969873757844575" target="freeweibo-mirror">SPAM :好的鞋子需要勤奋和努力才能给人信任，但背后一定要…</a>
 </h2>
 <p>SPAM :好的鞋子需要勤奋和努力才能给人信任，但背后一定要付出比人多的努力，自己穿过才敢推[心]荐</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3969867008445247" target="freeweibo-mirror">SPAM //@几句真心话:表姐太污，不忍直视！[喵喵]</a>
 </h2>
@@ -132,12 +138,6 @@
 <p>SPAM //@谢文://@Ming_the_Great_大明: //@李佳佳Audrey:Repost<br><br>RE: 知识者要的是言说的自由，而不是恩赐的善意的包容和宽容，更不需要辨别什么动机。。。</p>
 <p>
 	<small> ============== 6小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3969856954491433" target="freeweibo-mirror">SPAM //@光老顽童:博主什么动机？[馋嘴]//@Min…</a>
-</h2>
-<p>SPAM //@光老顽童:博主什么动机？[馋嘴]//@Ming_the_Great_大明://@李佳佳Audrey:Repost<br><br>RE: 知识者要的是言说的自由，而不是恩赐的善意的包容和宽容，更不需要辨别什么动机。。。</p>
-<p>
-	<small> ============== 7小时前</small>
 </p>
 <table>
     <tr>
