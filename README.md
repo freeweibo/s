@@ -95,7 +95,7 @@
 </h2>
 <p>SPAM //@光老顽童:博主什么动机？[馋嘴]//@Ming_the_Great_大明://@李佳佳Audrey:Repost<br><br>RE: 知识者要的是言说的自由，而不是恩赐的善意的包容和宽容，更不需要辨别什么动机。。。</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3969852127646468" target="freeweibo-mirror">[笑cry]//@青光楚辞:请回顾双百（百家争鸣、百花齐放）…</a>
 </h2>
