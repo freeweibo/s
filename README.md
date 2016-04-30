@@ -107,7 +107,7 @@
 </h2>
 <p>谁是新京，你全明白？五一劳动节前，座谈知识分子 劳动模范 青年代表，这谁排的顺序 按什么排序的？宪法里国家性质和领导阶层如何确定的，知识分子算工人阶级的一部分，现在还要说作为领导者？把科技工作者 专业人士当作知识分子，那老概念本就不科学，人丢了对方不领情，基本群众不看好，自作聪明。<br><br>RE: 屡教不改的新京报，再次采用标题党+黑配图的手段哗众取宠！ http://t.cn/8ke3lEy<br><img src="http://ww1.sinaimg.cn/large/5db2d058jw1f3enzn2ucoj20nq0hsta4.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3969986860516471" target="freeweibo-mirror">回乱</a>
 </h2>
