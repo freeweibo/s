@@ -19,6 +19,24 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3970057166613465" target="freeweibo-mirror">SPAM //@胡杨麟:[哈哈]</a>
+</h2>
+<p>SPAM //@胡杨麟:[哈哈]</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3970046789285956" target="freeweibo-mirror">//@南通薛亚俊--要和谐不要法治:转发微博</a>
+</h2>
+<p>//@南通薛亚俊--要和谐不要法治:转发微博</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3970025603715755" target="freeweibo-mirror">SPAM 这版面谁排的，点个赞！[哈哈][哈哈][哈哈]</a>
+</h2>
+<p>SPAM 这版面谁排的，点个赞！[哈哈][哈哈][哈哈]<br><img src="http://ww4.sinaimg.cn/large/006m0wb8gw1f3ew8vnohjj30k00f0abs.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3970014732078193" target="freeweibo-mirror">依法治理，难道是有谁搞抓辫子打棍子带帽子了？对错误思想言论放…</a>
 </h2>
 <p>依法治理，难道是有谁搞抓辫子打棍子带帽子了？对错误思想言论放任自流，两面讨巧听之任之当开明绅士，就是文明模范？该好好反思，为什么那些偏颇片面甚至错误反动的主张往往恰恰来于寄予厚望的知识分子？思想教育涣散漏洞百出，外交经济观感不佳，这是别人批评的主要诱因，不是舆论管理挖的坑。<br><br>RE: 新三不政策对知识分子，不抓辫子不戴帽子不打棍子，但问题是，谁会信？是不是又在引蛇出洞？三不讲话如果真的要让人相信的话，应该尽快出台新闻出版与网络法规，以保障宪法赋予的公民自由言论权，如果不依法保障，只是一个有限的善意，仅有善意是无用的，需要当局的行动，譬如说恢复那些被封杀的微博。</p>
@@ -47,7 +65,7 @@
 </h2>
 <p>回乱<br><img src="http://ww2.sinaimg.cn/large/006mbEeOgw1f3ersvmzedj307s05oglo.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3969979000723651" target="freeweibo-mirror">这就叫选择性传播！//@东海老鲵: 脑子坏了，得动手术下猛药…</a>
 </h2>
@@ -113,29 +131,11 @@
 </h2>
 <p>两少一宽政策的制定者违背宪法，破坏法治原则，是历史罪人，必将遗臭万年，永远被鞭尸。<br><br>RE: “两少一宽”的出发点，一个是所谓"德政、大赦“收买式的政策，另一个是所谓少民有些”习惯“与国家法律有冲突（例如某地青年强奸幼女不被当地人认为是犯罪）。此政策造成的问题是：1、逆淘汰，放纵犯罪者就是惩罚守法者。2、等于宣告丧失了改造社会使之进步的意志。3、导致因为民族身份而不平等，违宪<br><img src="http://ww4.sinaimg.cn/large/6a59b68fjw1f3eg3mb31sj20k30nun2x.jpg"></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3969921308134098" target="freeweibo-mirror">SPAM 不让我发这些关键字~【资源搬家中】已经做好的链接，…</a>
 </h2>
 <p>SPAM 不让我发这些关键字~【资源搬家中】已经做好的链接，百度云盘下载通道。看图！！ 关注以后。不定期回复【关键字】资料整理筛选中。<br><img src="http://ww4.sinaimg.cn/large/66e186a7gw1f3ek8xo515j20dw0c9goo.jpg"></p>
-<p>
-	<small> ============== 10小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3969921157219291" target="freeweibo-mirror">回复@NACLHINENI:我就在教育他啊。信仰分正信和伪信…</a>
-</h2>
-<p>回复@NACLHINENI:我就在教育他啊。信仰分正信和伪信，宗教分正教和邪教。而党妈负责以唯物主义的观点进行鉴别区分。谢天谢地，挺好的。</p>
-<p>
-	<small> ============== 10小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3969920070744698" target="freeweibo-mirror">同治回乱头子“白彦虎去世前一再叮嘱后人：若有一天，故乡重见天…</a>
-</h2>
-<p>同治回乱头子“白彦虎去世前一再叮嘱后人：若有一天，故乡重见天日，你们回家乡，一定要到西安府的西城门，把城门使劲地叩响让我听，那时我就和你们一起回到了家乡！”他的子孙终于实现了梦想，为怀念阿古柏，白彦虎重孙取名“白古柏”，现在是各级民委和统战部座上宾。http://t.cn/RU3i1FK</p>
-<p>
-	<small> ============== 10小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3969918015760590" target="freeweibo-mirror">什么可以信什么不可以信，什么人可以信，可以信到什么程度，党说…</a>
-</h2>
-<p>什么可以信什么不可以信，什么人可以信，可以信到什么程度，党说了算。 //@南洋富商饱醉豚:信仰轮子有什么问题？不是和信仰佛教基督教一样吗？</p>
 <p>
 	<small> ============== 10小时前</small>
 </p>
