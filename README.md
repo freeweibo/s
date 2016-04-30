@@ -59,7 +59,7 @@
 </h2>
 <p>估计评论者出发点不好</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3969860919085298" target="freeweibo-mirror">SPAM 依法治国....？//@李佳佳Audrey:Rep…</a>
 </h2>
@@ -131,7 +131,7 @@
 </h2>
 <p>西安……距离姓白的国宝支队长找@全真道士梁兴扬 麻烦才多久时间？<br><img src="http://ww2.sinaimg.cn/large/5597e795jw1f3dzlad45hj20ci0m8abq.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3969739942958887" target="freeweibo-mirror">【陕*西*大*巴，嫌*疑*人*相*貌*刻*画*为*三*名*维…</a>
 </h2>
