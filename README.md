@@ -47,7 +47,7 @@
 </h2>
 <p>SPAM 依法治国....？//@李佳佳Audrey:Repost<br><br>RE: 知识者要的是言说的自由，而不是恩赐的善意的包容和宽容，更不需要辨别什么动机。。。</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3969860050772466" target="freeweibo-mirror">SPAM //@谢文://@Ming_the_Great_大…</a>
 </h2>
@@ -77,7 +77,7 @@
 </h2>
 <p>昨天，我经常上的AcFun视频网，突然多了好多革命样板戏电影，其密集度从前没有过的，红色娘子军，沂蒙颂，杜鹃山，平原作战，白毛女，草原儿女，红云岗，其中娘子军还是两个不同版本。我有点犯蒙，就问了一个朋友，可能是怎么回事，有什么动向，朋友电话那头幽幽地说：或许是薄熙来从秦城放出来了吧。</p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3969754623087076" target="freeweibo-mirror">白天做微信，夜晚写评论，劳动节新闻农民工在劳动[耶]</a>
 </h2>
@@ -113,7 +113,7 @@
 </h2>
 <p>【陕*西*大*巴，嫌*疑*人*相*貌*刻*画*为*三*名*维*族*男*青*年，纵*火*导*致*8*死*5*伤，原来是这样啊】（转帖）<br><img src="http://ww3.sinaimg.cn/large/53ae0b70jw1f3dzbj1zezj20af0dw0tm.jpg"></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3969739422316432" target="freeweibo-mirror">SPAM 一个很赞的徽博，喜欢请关   注@瘦身女王范_琪琪…</a>
 </h2>
