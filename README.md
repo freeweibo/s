@@ -49,6 +49,12 @@
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3970046952566004" target="freeweibo-mirror">出发点绝对不好！//@陈光武律师: //@齐河律师: 引蛇出…</a>
+</h2>
+<p>出发点绝对不好！//@陈光武律师: //@齐河律师: 引蛇出洞！//@广西林仁聪律师:五千年以来最残暴<br><br>RE: 历史的今天：1957年4月30日，毛在天安门城楼与各民主党负责人座谈，请他们提意见。为消除党外人士顾虑，毛重申“知无不言，言无不尽，言者无罪，闻者足戒”的原则。一个月后储安平以《提些意见》为题，批评中共的党天下，毛为此几天没睡好觉。结果大家都知道了，储失踪至今，整一代文化层被敲断脊骨。</p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3970046789285956" target="freeweibo-mirror">//@南通薛亚俊--要和谐不要法治:转发微博</a>
 </h2>
 <p>//@南通薛亚俊--要和谐不要法治:转发微博</p>
@@ -64,6 +70,12 @@
 	<a href="https://freeweibo.com/weibo/3970043484094827" target="freeweibo-mirror">這是哪裡？？？ 天高皇帝遠 ，無法無天！ 無政府狀態了嗎？轉…</a>
 </h2>
 <p>這是哪裡？？？ 天高皇帝遠 ，無法無天！ 無政府狀態了嗎？轉發求証！！！#郁言詼語##正义呐喊##助愛回家# http://t.cn/RqYa288 .</p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3970036886411789" target="freeweibo-mirror">SPAM #威海美食#作为吃货的亲们，一定不要错过威海夜市的…</a>
+</h2>
+<p>SPAM #威海美食#作为吃货的亲们，一定不要错过威海夜市的这条街哦！各种小吃，烧烤大排档，满足那颗吃不饱的心！[馋嘴]<br><img src="http://ww1.sinaimg.cn/large/7e15b91fjw1f3exjnspi7j20qo0qo0wv.jpg"></p>
 <p>
 	<small> ============== 4小时前</small>
 </p><h2>
@@ -101,7 +113,7 @@
 </h2>
 <p>回乱<br><img src="http://ww2.sinaimg.cn/large/006mbEeOgw1f3ersvmzedj307s05oglo.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3969979000723651" target="freeweibo-mirror">这就叫选择性传播！//@东海老鲵: 脑子坏了，得动手术下猛药…</a>
 </h2>
@@ -126,18 +138,6 @@
 <p>SPAM [爱你][爱你][爱你]快来参加小吉先知大抽奖，各种5.1黄金档免费送啊[爱你] //@小吉先知-:@杨樾杨樾 @梵天沙 @混沌与概率1997 @程老湿爱吐槽 小吉先知#五一福利# 来了[鼓掌]关注公众号参加抽奖就有机会获得全国通兑电影票和爱奇艺vip会员哟[可爱][拍照][爱你]祝大家小长假愉快<br><br>RE: #五一劳动节# 不去热门景点儿，不当宅神，还能干点儿嘛？？#五一最强档#小吉&嗨牛的抽奖活动来啦，五一三天大片儿送不停！快来关注小吉先知公众号，看#大神推荐#给大家的强势观影大礼吧！[酷][酷][酷][威武]<br><img src="http://ww1.sinaimg.cn/large/006i468ujw1f3eocu1ih6j31e01y1hdu.jpg"></p>
 <p>
 	<small> ============== 9小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3969960873111241" target="freeweibo-mirror">【五一营改增就要来了，对老百姓的生活有啥影响？】营改增之前，…</a>
-</h2>
-<p>【五一营改增就要来了，对老百姓的生活有啥影响？】营改增之前，征营业税5%，现在改为增值税还是5%。但打个比方，过去的5%时，如果房价是100万元的话，100万乘5%，交5万元的营业税;现在如果房价还是100万元的话，是100÷(1+5%)×5%=47600元，少交税2400元。http://t.cn/RqYqEcb<br><img src="http://ww4.sinaimg.cn/large/6486bd88jw1f3eothv7kbj20dw08tmy1.jpg"></p>
-<p>
-	<small> ============== 9小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3969953651078458" target="freeweibo-mirror">屡教不改的新京报，再次采用标题党+黑配图的手段哗众取宠！ h…</a>
-</h2>
-<p>屡教不改的新京报，再次采用标题党+黑配图的手段哗众取宠！ http://t.cn/8ke3lEy<br><img src="http://ww1.sinaimg.cn/large/5db2d058jw1f3enzn2ucoj20nq0hsta4.jpg"></p>
-<p>
-	<small> ============== 10小时前</small>
 </p>
 <table>
     <tr>
