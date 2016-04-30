@@ -23,7 +23,7 @@
 </h2>
 <p>//@雨夜听琴005: 嘿，我很好奇，去年高喊万岁的那帮人呢？//@度为王: //@坚持追寻正义2: //@客家人老罗://@良心-医生:转发微博<br><br>RE: 【放大“红手印” 扭曲英雄观】小岗村风靡一时，广为流传，充满传奇，尤其在懵懂的孩子们心中，更是被无限放大，成了顶天立地的英雄典型。将“红手印”们与董存瑞、黄继光相提并论，一个是私分散伙，一个是奉献牺牲，岂不是对流血牺牲的英雄们令人难以容忍的亵渎与奸淫？http://t.cn/RqjURhv<br><img src="http://ww2.sinaimg.cn/large/5d70962dgw1f3dahapv8vj205t03tt8n.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3969874009391149" target="freeweibo-mirror">方舟子老师也这么说。//@风景疾如箭:白队长说「看看，你们和…</a>
 </h2>
@@ -65,7 +65,7 @@
 </h2>
 <p>SPAM 依法治国....？//@李佳佳Audrey:Repost<br><br>RE: 知识者要的是言说的自由，而不是恩赐的善意的包容和宽容，更不需要辨别什么动机。。。</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3969860050772466" target="freeweibo-mirror">SPAM //@谢文://@Ming_the_Great_大…</a>
 </h2>
@@ -95,7 +95,7 @@
 </h2>
 <p>昨天，我经常上的AcFun视频网，突然多了好多革命样板戏电影，其密集度从前没有过的，红色娘子军，沂蒙颂，杜鹃山，平原作战，白毛女，草原儿女，红云岗，其中娘子军还是两个不同版本。我有点犯蒙，就问了一个朋友，可能是怎么回事，有什么动向，朋友电话那头幽幽地说：或许是薄熙来从秦城放出来了吧。</p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3969754623087076" target="freeweibo-mirror">白天做微信，夜晚写评论，劳动节新闻农民工在劳动[耶]</a>
 </h2>
@@ -127,15 +127,15 @@
 <p>
 	<small> ============== 11小时前</small>
 </p><h2>
-	<a href="https://freeweibo.com/weibo/3969739942958887" target="freeweibo-mirror">【陕*西*大*巴，嫌*疑*人*相*貌*刻*画*为*三*名*维…</a>
+	<a href="https://freeweibo.com/weibo/3969741523727992" target="freeweibo-mirror">西安……距离姓白的国宝支队长找@全真道士梁兴扬 麻烦才多久时…</a>
 </h2>
-<p>【陕*西*大*巴，嫌*疑*人*相*貌*刻*画*为*三*名*维*族*男*青*年，纵*火*导*致*8*死*5*伤，原来是这样啊】（转帖）<br><img src="http://ww3.sinaimg.cn/large/53ae0b70jw1f3dzbj1zezj20af0dw0tm.jpg"></p>
+<p>西安……距离姓白的国宝支队长找@全真道士梁兴扬 麻烦才多久时间？<br><img src="http://ww2.sinaimg.cn/large/5597e795jw1f3dzlad45hj20ci0m8abq.jpg"></p>
 <p>
 	<small> ============== 11小时前</small>
 </p><h2>
-	<a href="https://freeweibo.com/weibo/3969739422316432" target="freeweibo-mirror">SPAM 一个很赞的徽博，喜欢请关   注@瘦身女王范_琪琪…</a>
+	<a href="https://freeweibo.com/weibo/3969739942958887" target="freeweibo-mirror">【陕*西*大*巴，嫌*疑*人*相*貌*刻*画*为*三*名*维…</a>
 </h2>
-<p>SPAM 一个很赞的徽博，喜欢请关   注@瘦身女王范_琪琪，</p>
+<p>【陕*西*大*巴，嫌*疑*人*相*貌*刻*画*为*三*名*维*族*男*青*年，纵*火*导*致*8*死*5*伤，原来是这样啊】（转帖）<br><img src="http://ww3.sinaimg.cn/large/53ae0b70jw1f3dzbj1zezj20af0dw0tm.jpg"></p>
 <p>
 	<small> ============== 12小时前</small>
 </p>
