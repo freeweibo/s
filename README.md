@@ -25,6 +25,12 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3970134193781197" target="freeweibo-mirror">【对比找疑点，此视非彼视，当心被蒙骗】海口暴力抗法视频 ht…</a>
+</h2>
+<p>【对比找疑点，此视非彼视，当心被蒙骗】海口暴力抗法视频 http://t.cn/RqYXtxk 朋友圈疯转及被商网指称为海口的视频 http://t.cn/RqYXOQK 请对比疑点：一、暴力抗法现场均为在建建筑，门窗未安装。是方型楼。按此推理，不可能出现陈旧电线线路。二、打人视频中的语言疑似果敢话，我刚去了缅甸中文网，...全文： http://m.weibo.cn/3716504593/3970134193781197</p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3970124123266559" target="freeweibo-mirror">SPAM //@Mbb4:宝宝心里苦，宝宝不说[笑cry][…</a>
 </h2>
 <p>SPAM //@Mbb4:宝宝心里苦，宝宝不说[笑cry][笑cry][笑cry]//@名字是个笑话啊:WOC，我被你们整晕了，到底什么情况？宝宝怎么了？</p>
@@ -43,6 +49,12 @@
 <p>
 	<small> ============== 4小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3970115357811271" target="freeweibo-mirror">海口那事的视频出来了。粗暴执法的7名联防队员被拘！但说有些人…</a>
+</h2>
+<p>海口那事的视频出来了。粗暴执法的7名联防队员被拘！但说有些人手无寸铁也是想当然，都直接用礼花炸了！朋友圈疯传的另一段视频建筑风格对不上，并且有老电线线路、玻璃门窗俱全，与前一个在建违章场景不符，口音及场景细节也貌似不是一出。我保留系中缅边界地区的怀疑，等进一步消息。 ...全文： http://m.weibo.cn/3716504593/3970115357811271<br><img src="http://ww1.sinaimg.cn/large/dd855c11jw1f3f67o50hej20zk0qoq71.jpg"></p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3970104418755101" target="freeweibo-mirror">SPAM [兔子]挑选一双合适的鞋，让你走在时尚最前端[心 …</a>
 </h2>
 <p>SPAM [兔子]挑选一双合适的鞋，让你走在时尚最前端[心 ]薇 ❤ aixie15</p>
@@ -53,7 +65,7 @@
 </h2>
 <p>SPAM //@LifeTime:本届金援大户专挑不靠谱国家。委内瑞拉、巴基斯坦、津巴布韦.....<br><br>RE: 中国全面金援俄罗斯。<br><img src="http://ww2.sinaimg.cn/large/0066m1Gwjw1f3f04zx9slj30k00zln1u.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3970080885003677" target="freeweibo-mirror">SPAM 极挑201红兴这俩麦麸演过头了，真尴尬，不如第一季…</a>
 </h2>
@@ -124,18 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3970046789285956" target="freeweibo-mirror">//@南通薛亚俊--要和谐不要法治:转发微博</a>
 </h2>
 <p>//@南通薛亚俊--要和谐不要法治:转发微博</p>
-<p>
-	<small> ============== 9小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3970045228553587" target="freeweibo-mirror">SPAM //@干卫东律师: 包容了//@孔_智勇:[哈哈]…</a>
-</h2>
-<p>SPAM //@干卫东律师: 包容了//@孔_智勇:[哈哈] //@遊女長歌緩緩歸五:又來了！好多天沒看到良心小編了，贊一個！！[赞]</p>
-<p>
-	<small> ============== 9小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3970043484094827" target="freeweibo-mirror">這是哪裡？？？ 天高皇帝遠 ，無法無天！ 無政府狀態了嗎？轉…</a>
-</h2>
-<p>這是哪裡？？？ 天高皇帝遠 ，無法無天！ 無政府狀態了嗎？轉發求証！！！#郁言詼語##正义呐喊##助愛回家# http://t.cn/RqYa288 .</p>
 <p>
 	<small> ============== 9小时前</small>
 </p>
