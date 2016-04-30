@@ -107,7 +107,7 @@
 </h2>
 <p>[笑cry]//@青光楚辞:请回顾双百（百家争鸣、百花齐放）和反右的关系。//@鄂A青花3: [哈哈]//@验算珠: 孙海英信了，号没了。任志强信了，号没了。王亚军信了，号没了。文山娃信了，号没了。连我都信了，结果号也没了。呵呵[微笑]</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3969824369289177" target="freeweibo-mirror">//@王小东://@叶孤城066://@SGT_SONG:转…</a>
 </h2>
@@ -125,7 +125,7 @@
 </h2>
 <p>白天做微信，夜晚写评论，劳动节新闻农民工在劳动[耶]<br><img src="http://ww3.sinaimg.cn/large/5938f23egw1f3e13mo5y0j20qo0zk0xp.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3969752840038701" target="freeweibo-mirror">SPAM 记住呦，ixxjie 知性姐，想要学习深造技巧的来…</a>
 </h2>
