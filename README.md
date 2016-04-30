@@ -89,7 +89,7 @@
 </h2>
 <p>SPAM 这版面谁排的，点个赞！[哈哈][哈哈][哈哈]<br><img src="http://ww4.sinaimg.cn/large/006m0wb8gw1f3ew8vnohjj30k00f0abs.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3970014732078193" target="freeweibo-mirror">依法治理，难道是有谁搞抓辫子打棍子带帽子了？对错误思想言论放…</a>
 </h2>
