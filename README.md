@@ -43,6 +43,12 @@
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3969979000723651" target="freeweibo-mirror">这就叫选择性传播！//@东海老鲵: 脑子坏了，得动手术下猛药…</a>
+</h2>
+<p>这就叫选择性传播！//@东海老鲵: 脑子坏了，得动手术下猛药//@子午侠士:还是那句话：皇城根，灯下黑！再多说一句：表象在传媒，根子在党委。//@法语薇言:皇城根的报纸公然用这种版面语言，看来新闻舆论工作座谈会上有些话是白说了。<br><br>RE: 屡教不改的新京报，再次采用标题党+黑配图的手段哗众取宠！ http://t.cn/8ke3lEy<br><img src="http://ww1.sinaimg.cn/large/5db2d058jw1f3enzn2ucoj20nq0hsta4.jpg"></p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3969964077136817" target="freeweibo-mirror">SPAM 喜欢的加她买买买 /爱心 /爱心 /爱心</a>
 </h2>
 <p>SPAM 喜欢的加她买买买 /爱心 /爱心 /爱心</p>
@@ -71,7 +77,7 @@
 </h2>
 <p>SPAM 人人可以谈国足，但有资格和机会跟访国足的却不多，我们来听听@禽禽青 和叶慧兄的见解吧。欢迎关注@今日睇弹 公众微信号，了解更多独家访谈。<br><img src="http://ww2.sinaimg.cn/large/674d0619gw1f3ejpxjqroj20ku112jwh.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3969933392038425" target="freeweibo-mirror">SPAM 【明年底沈阳二环内 全用市政管网供水、气】到201…</a>
 </h2>
@@ -113,7 +119,7 @@
 </h2>
 <p>同治回乱头子“白彦虎去世前一再叮嘱后人：若有一天，故乡重见天日，你们回家乡，一定要到西安府的西城门，把城门使劲地叩响让我听，那时我就和你们一起回到了家乡！”他的子孙终于实现了梦想，为怀念阿古柏，白彦虎重孙取名“白古柏”，现在是各级民委和统战部座上宾。http://t.cn/RU3i1FK</p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3969918015760590" target="freeweibo-mirror">什么可以信什么不可以信，什么人可以信，可以信到什么程度，党说…</a>
 </h2>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3969913024447505" target="freeweibo-mirror">[赞]//@用户uqqectm2o9:感觉这届人民越来越不行…</a>
 </h2>
 <p>[赞]//@用户uqqectm2o9:感觉这届人民越来越不行，群众演员都做不好。</p>
-<p>
-	<small> ============== 8小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3969907165524397" target="freeweibo-mirror">【428暴恐与西安怪像警示中国】 哀悼大巴暴恐案遇难同胞！西…</a>
-</h2>
-<p>【428暴恐与西安怪像警示中国】 哀悼大巴暴恐案遇难同胞！西安公安、民宗系统该清理了。从去年西安民警非法刑拘殴打洛阳警察事件，到这几天全国宗教工作会议后的梁道长事件，再到……社会公众和决策层肯定有看法了，信任失去后才知道可贵。相信整顿正在进行，相信西安教训会举一反三全国汲取。</p>
 <p>
 	<small> ============== 8小时前</small>
 </p>
