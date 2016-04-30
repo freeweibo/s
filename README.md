@@ -29,11 +29,17 @@
 </h2>
 <p>SPAM //@Mbb4:宝宝心里苦，宝宝不说[笑cry][笑cry][笑cry]//@名字是个笑话啊:WOC，我被你们整晕了，到底什么情况？宝宝怎么了？</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3970120105791254" target="freeweibo-mirror">SPAM [哈哈][哈哈]概括性很强嘛！</a>
 </h2>
 <p>SPAM [哈哈][哈哈]概括性很强嘛！</p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3970117643114177" target="freeweibo-mirror">海口暴力抗法视频 http://t.cn/RqYXtxk 朋…</a>
+</h2>
+<p>海口暴力抗法视频 http://t.cn/RqYXtxk 朋友圈疯转及被商网指称为海口的视频 http://t.cn/RqYXOQK 请对比<br><br>RE: 海口那事的视频出来了。粗暴执法的7名联防队员被拘！但说有些人手无寸铁也是想当然，都直接用礼花炸了！朋友圈疯传的另一段视频建筑风格对不上，并且有老电线线路、玻璃门窗俱全，与前一个在建违章场景不符，口音及场景细节也貌似不是一出。我保留系中缅边界地区的怀疑，等进一步消息。 ...全文： http://m.weibo.cn/3716504593/3970115357811271<br><img src="http://ww1.sinaimg.cn/large/dd855c11jw1f3f67o50hej20zk0qoq71.jpg"></p>
 <p>
 	<small> ============== 4小时前</small>
 </p><h2>
@@ -107,7 +113,7 @@
 </h2>
 <p>这还是绿绿被世俗政权压住了呢。幸亏大航海时代后发展起来的是欧洲，不是绿绿世界。如果现在掌握核武器和世界霸权的是某个绿绿国家而不是美帝……人类世界现在什么样你敢想吗？</p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3970046952566004" target="freeweibo-mirror">出发点绝对不好！//@陈光武律师: //@齐河律师: 引蛇出…</a>
 </h2>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3970043484094827" target="freeweibo-mirror">這是哪裡？？？ 天高皇帝遠 ，無法無天！ 無政府狀態了嗎？轉…</a>
 </h2>
 <p>這是哪裡？？？ 天高皇帝遠 ，無法無天！ 無政府狀態了嗎？轉發求証！！！#郁言詼語##正义呐喊##助愛回家# http://t.cn/RqYa288 .</p>
-<p>
-	<small> ============== 9小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3970036886411789" target="freeweibo-mirror">SPAM #威海美食#作为吃货的亲们，一定不要错过威海夜市的…</a>
-</h2>
-<p>SPAM #威海美食#作为吃货的亲们，一定不要错过威海夜市的这条街哦！各种小吃，烧烤大排档，满足那颗吃不饱的心！[馋嘴]<br><img src="http://ww1.sinaimg.cn/large/7e15b91fjw1f3exjnspi7j20qo0qo0wv.jpg"></p>
 <p>
 	<small> ============== 9小时前</small>
 </p>
