@@ -41,7 +41,7 @@
 </h2>
 <p>回乱<br><img src="http://ww2.sinaimg.cn/large/006mbEeOgw1f3ersvmzedj307s05oglo.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3969979000723651" target="freeweibo-mirror">这就叫选择性传播！//@东海老鲵: 脑子坏了，得动手术下猛药…</a>
 </h2>
@@ -107,7 +107,7 @@
 </h2>
 <p>两少一宽政策的制定者违背宪法，破坏法治原则，是历史罪人，必将遗臭万年，永远被鞭尸。<br><br>RE: “两少一宽”的出发点，一个是所谓"德政、大赦“收买式的政策，另一个是所谓少民有些”习惯“与国家法律有冲突（例如某地青年强奸幼女不被当地人认为是犯罪）。此政策造成的问题是：1、逆淘汰，放纵犯罪者就是惩罚守法者。2、等于宣告丧失了改造社会使之进步的意志。3、导致因为民族身份而不平等，违宪<br><img src="http://ww4.sinaimg.cn/large/6a59b68fjw1f3eg3mb31sj20k30nun2x.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3969921308134098" target="freeweibo-mirror">SPAM 不让我发这些关键字~【资源搬家中】已经做好的链接，…</a>
 </h2>
