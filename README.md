@@ -94,7 +94,7 @@
 </h2>
 <p>SPAM //@Mbb4:宝宝心里苦，宝宝不说[笑cry][笑cry][笑cry]//@名字是个笑话啊:WOC，我被你们整晕了，到底什么情况？宝宝怎么了？</p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3970120105791254" target="freeweibo-mirror">SPAM [哈哈][哈哈]概括性很强嘛！</a>
 </h2>
