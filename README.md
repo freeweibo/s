@@ -35,7 +35,7 @@
 </h2>
 <p>SPAM //@胡红一:[围观]  //@LifeTime :  毛的做派完全不同：1） 毛当时是鼓励无条件提意见 。 现在的 “ 三不 ” 政策是有限制条件的 ， 即出发点必须是好的 。2） 毛让你说的时候 “ 不删帖 ”， 隔一段时间后再翻脸 。[doge]<br><br>RE: 温故而知新<br><img src="http://ww2.sinaimg.cn/large/6764cadegw1f3efat1swij20qo1bfajc.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3970220823379311" target="freeweibo-mirror">#985早新闻即将播出#（二）◆传递“工匠精神”，新闻广播推…</a>
 </h2>
@@ -100,7 +100,7 @@
 </h2>
 <p>海口暴力抗法视频 http://t.cn/RqYXtxk 朋友圈疯转及被商网指称为海口的视频 http://t.cn/RqYXOQK 请对比<br><br>RE: 海口那事的视频出来了。粗暴执法的7名联防队员被拘！但说有些人手无寸铁也是想当然，都直接用礼花炸了！朋友圈疯传的另一段视频建筑风格对不上，并且有老电线线路、玻璃门窗俱全，与前一个在建违章场景不符，口音及场景细节也貌似不是一出。我保留系中缅边界地区的怀疑，等进一步消息。 ...全文： http://m.weibo.cn/3716504593/3970115357811271<br><img src="http://ww1.sinaimg.cn/large/dd855c11jw1f3f67o50hej20zk0qoq71.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3970115357811271" target="freeweibo-mirror">海口那事的视频出来了。粗暴执法的7名联防队员被拘！但说有些人…</a>
 </h2>
