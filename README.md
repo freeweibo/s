@@ -89,7 +89,7 @@
 </h2>
 <p>SPAM 【赏花季】生命的厚重不在于繁华喧嚣，而在于平静简朴。赏花季，驻足欣赏花的鲜艳叶的翠绿，让人想到青春和生命，这是自然界一种脱俗的美，一种文化典雅的美，一种时尚浪漫的美，她的美会传染人，会感动人，生命的本质就在于平静简朴，随遇而安。<br><img src="http://ww4.sinaimg.cn/large/7e15b91fjw1f3g35ydkkrj20hs0bwwf2.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3970399039852839" target="freeweibo-mirror">@蛤乎日报社</a>
 </h2>
