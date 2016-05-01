@@ -76,7 +76,7 @@
 </h2>
 <p>SPAM [哈哈][哈哈]概括性很强嘛！</p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3970117643114177" target="freeweibo-mirror">海口暴力抗法视频 http://t.cn/RqYXtxk 朋…</a>
 </h2>
