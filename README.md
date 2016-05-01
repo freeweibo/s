@@ -89,7 +89,7 @@
 </h2>
 <p>【中国西安三暴徒劫巴士杀人纵火造成八死五伤】陕西西安上周四发生巴士劫持杀人纵火事件，造成13人死伤，网上盛传这是一起恐怖袭击，但陕西官方将之定性为“劫持纵火刑事案件”。4月28日下午12时40分左右，一辆长途客车在福银高速蓝田段草坪隧道口前200米处起火，造成八人死亡、五人受伤。涉事巴士被烧...全文： http://m.weibo.cn/1654134123/3970239328764797<br><img src="http://ww1.sinaimg.cn/large/6298156bjw1f3fksoajktj20go0b4jsc.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3970226795589888" target="freeweibo-mirror">网上流传的海南省秀英区打人的视频背后，是这张图。图片来自朋友…</a>
 </h2>
@@ -113,7 +113,7 @@
 </h2>
 <p>SPAM //@胡红一:[围观]  //@LifeTime :  毛的做派完全不同：1） 毛当时是鼓励无条件提意见 。 现在的 “ 三不 ” 政策是有限制条件的 ， 即出发点必须是好的 。2） 毛让你说的时候 “ 不删帖 ”， 隔一段时间后再翻脸 。[doge]<br><br>RE: 温故而知新<br><img src="http://ww2.sinaimg.cn/large/6764cadegw1f3efat1swij20qo1bfajc.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3970220823379311" target="freeweibo-mirror">#985早新闻即将播出#（二）◆传递“工匠精神”，新闻广播推…</a>
 </h2>
