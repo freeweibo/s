@@ -41,11 +41,17 @@
 </h2>
 <p>#985早新闻即将播出#（二）◆传递“工匠精神”，新闻广播推出系列报道《你身边的匠心》，今天请听第一篇《一朵“剪菊”展新颜》；◆《江苏省价格条例》今天开始实施，电商平台促销行为首次纳入监管。（资料图）<br><img src="http://ww2.sinaimg.cn/large/67fe74afgw1f3fint2o8hj208u05q74a.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3970220214895043" target="freeweibo-mirror">SPAM [哆啦A梦吃惊] //@加藤蚁://@能靠点儿谱吗…</a>
 </h2>
 <p>SPAM [哆啦A梦吃惊] //@加藤蚁://@能靠点儿谱吗:毅种循环<br><br>RE: 温故而知新<br><img src="http://ww2.sinaimg.cn/large/6764cadegw1f3efat1swij20qo1bfajc.jpg"></p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3970220018845036" target="freeweibo-mirror">【早安】应大家要求，本寺建立了“日行一善·建寺安僧”微信群。…</a>
+</h2>
+<p>【早安】应大家要求，本寺建立了“日行一善·建寺安僧”微信群。一元起捐，每日坚持，功德相续。进群的人不可抢红包，只能发红包。红包统一由专人代为收取、记录，所收款项全部用于莲宗寺建寺安僧之用，每月底统计汇总在群里公布。欢迎大家拉友进群及广为宣传。拉人之前请先将群规讲明后再拉人进群，避...全文： http://m.weibo.cn/1764534547/3970220018845036<br><img src="http://ww2.sinaimg.cn/large/692ca913jw1f3fiktf75uj20e80e875b.jpg"></p>
 <p>
 	<small> ============== 4小时前</small>
 </p><h2>
@@ -64,7 +70,7 @@
 </h2>
 <p>完全同意 //@安崇民:个人坚持等到事发地明白准确确认并权威发布，那近距离殴打妇女儿童视频不是海口事发现场视频。再名正言顺提出追究。 //@子午侠士:另外，海南方面的原报道没有视频链接，而各门户网站为啥都给人家加了视频链接？如这事经证实属于媒体移花接木，建议追究法律责任，而不能以道歉了事！<br><br>RE: 【对比找疑点，此视非彼视，当心被蒙骗】海口暴力抗法视频 http://t.cn/RqYXtxk 朋友圈疯转及被商网指称为海口的视频 http://t.cn/RqYXOQK 请对比疑点：一、暴力抗法现场均为在建建筑，门窗未安装。是方型楼。按此推理，不可能出现陈旧电线线路。二、打人视频中的语言疑似果敢话，我刚去了缅甸中文网，...全文： http://m.weibo.cn/3716504593/3970134193781197</p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3970144864347673" target="freeweibo-mirror">SPAM 茅于轼：中国为何无法改变产能过剩的局面？ - 产业…</a>
 </h2>
@@ -100,7 +106,7 @@
 </h2>
 <p>海口那事的视频出来了。粗暴执法的7名联防队员被拘！但说有些人手无寸铁也是想当然，都直接用礼花炸了！朋友圈疯传的另一段视频建筑风格对不上，并且有老电线线路、玻璃门窗俱全，与前一个在建违章场景不符，口音及场景细节也貌似不是一出。我保留系中缅边界地区的怀疑，等进一步消息。 ...全文： http://m.weibo.cn/3716504593/3970115357811271<br><img src="http://ww1.sinaimg.cn/large/dd855c11jw1f3f67o50hej20zk0qoq71.jpg"></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3970104418755101" target="freeweibo-mirror">SPAM [兔子]挑选一双合适的鞋，让你走在时尚最前端[心 …</a>
 </h2>
@@ -135,12 +141,6 @@
 	<a href="https://freeweibo.com/weibo/3970059971864954" target="freeweibo-mirror">一群无神论者的灵魂是无所畏惧的。</a>
 </h2>
 <p>一群无神论者的灵魂是无所畏惧的。<br><br>RE: 今天下午，台、港、澳三地举行了动保大游行，三地公民同一呼声：尊重生命，反对虐待动物！要求政府跟上世界文明潮流，尽快立法保护动物！@中国政府网 @全国人大 @中共中央 @国务院 @动保立法委网巡组@公安部 @农业部 @中国食品药品监管  @新华网 @央视新闻 @法制日报<br><img src="http://ww3.sinaimg.cn/large/eaad0277jw1f3evmlhhynj20fq0m8gmw.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3970059443582004" target="freeweibo-mirror">中国全面金援俄罗斯。</a>
-</h2>
-<p>中国全面金援俄罗斯。<br><img src="http://ww2.sinaimg.cn/large/0066m1Gwjw1f3f04zx9slj30k00zln1u.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
