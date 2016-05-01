@@ -101,7 +101,7 @@
 </h2>
 <p>邓聿文：朝鲜崩溃的可能性及其方式 - 共识网 为庆祝5月召开的朝鲜劳动党第七次代表大会，平壤强制要求每个家庭缴纳100美元现金，对那些拥有3000美元的精英家庭来说，缴纳更多，这笔钱主要是用来表彰对劳动党和金正恩忠诚的劳动模范和先进典型。 http://t.cn/RqYrC0h<br><img src="http://ww3.sinaimg.cn/large/513a2b80jw1f3fmn36pb0j202z02zwee.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3970239328764797" target="freeweibo-mirror">【中国西安三暴徒劫巴士杀人纵火造成八死五伤】陕西西安上周四发…</a>
 </h2>
@@ -125,7 +125,7 @@
 </h2>
 <p>SPAM //@陈业文新大都://@胡红一:[围观]  //@LifeTime :  毛的做派完全不同：1） 毛当时是鼓励无条件提意见 。 现在的 “ 三不 ” 政策是有限制条件的 ， 即出发点必须是好的 。2） 毛让你说的时候 “ 不删帖 ”， 隔一段时间后再翻脸 。[doge]<br><br>RE: 温故而知新<br><img src="http://ww2.sinaimg.cn/large/6764cadegw1f3efat1swij20qo1bfajc.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3970224175427021" target="freeweibo-mirror">SPAM //@胡红一:[围观]  //@LifeTime …</a>
 </h2>
