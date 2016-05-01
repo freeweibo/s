@@ -23,7 +23,7 @@
 </h2>
 <p>//@去V的刘建锋:无一例外是政府组织。根源还是土地所有制的问题，为什么从古到今，只有当代中国才出现这样严重的违建与拆违冲突？土地是市场经济绕不过的最核心问题。<br><br>RE: 网上流传的海南省秀英区打人的视频背后，是这张图。图片来自朋友圈，真相还远吗？本届人民是打不过你们，但是并不糊涂～<br><img src="http://ww1.sinaimg.cn/large/3f79a379jw1f3fjczcbktj20qo0zkwjf.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3970276159495803" target="freeweibo-mirror">回族和阿拉伯族是两码事。//@时政中国:“公元13世纪，蒙古…</a>
 </h2>
@@ -61,6 +61,12 @@
 <p>
 	<small> ============== 5小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3970226795589888" target="freeweibo-mirror">网上流传的海南省秀英区打人的视频背后，是这张图。图片来自朋友…</a>
+</h2>
+<p>网上流传的海南省秀英区打人的视频背后，是这张图。图片来自朋友圈，真相还远吗？本届人民是打不过你们，但是并不糊涂～<br><img src="http://ww1.sinaimg.cn/large/3f79a379jw1f3fjczcbktj20qo0zkwjf.jpg"></p>
+<p>
+	<small> ============== 6小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3970225864625196" target="freeweibo-mirror">SPAM //@fengjingyiran: 刘的眼睛有点瞎…</a>
 </h2>
 <p>SPAM //@fengjingyiran: 刘的眼睛有点瞎要不然是心瞎扯 //@司马南:刘延东在宁夏， 关于党媒公开替马步芳这具政治僵尸化妆的丑事，她会不会说点儿什么 ……  http://t.cn/RqljV92</p>
@@ -89,13 +95,13 @@
 </h2>
 <p>SPAM [哆啦A梦吃惊] //@加藤蚁://@能靠点儿谱吗:毅种循环<br><br>RE: 温故而知新<br><img src="http://ww2.sinaimg.cn/large/6764cadegw1f3efat1swij20qo1bfajc.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3970220018845036" target="freeweibo-mirror">【早安】应大家要求，本寺建立了“日行一善·建寺安僧”微信群。…</a>
 </h2>
 <p>【早安】应大家要求，本寺建立了“日行一善·建寺安僧”微信群。一元起捐，每日坚持，功德相续。进群的人不可抢红包，只能发红包。红包统一由专人代为收取、记录，所收款项全部用于莲宗寺建寺安僧之用，每月底统计汇总在群里公布。欢迎大家拉友进群及广为宣传。拉人之前请先将群规讲明后再拉人进群，避...全文： http://m.weibo.cn/1764534547/3970220018845036<br><img src="http://ww2.sinaimg.cn/large/692ca913jw1f3fiktf75uj20e80e875b.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3970189286481056" target="freeweibo-mirror">SPAM [鲜花]等老了 和爱人一起，
 [鲜花]找一个小镇…</a>
@@ -106,7 +112,7 @@
 [鲜花]晚上相依相偎看夕阳 
 喜欢可以关.注这里总有一句你喜欢的<br><img src="http://ww1.sinaimg.cn/large/e72082c6gw1f3f2mo0yk6j20ku112767.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3970145208756493" target="freeweibo-mirror">完全同意 //@安崇民:个人坚持等到事发地明白准确确认并权威…</a>
 </h2>
@@ -118,7 +124,7 @@
 </h2>
 <p>SPAM 茅于轼：中国为何无法改变产能过剩的局面？ - 产业经营 - 共识网—在大变革时代寻找共识 http://t.cn/RqYRUcF<br><img src="http://ww2.sinaimg.cn/large/744be08djw1f3f9y92tukj202z02zt8m.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3970134193781197" target="freeweibo-mirror">【对比找疑点，此视非彼视，当心被蒙骗】海口暴力抗法视频 ht…</a>
 </h2>
@@ -135,12 +141,6 @@
 	<a href="https://freeweibo.com/weibo/3970120105791254" target="freeweibo-mirror">SPAM [哈哈][哈哈]概括性很强嘛！</a>
 </h2>
 <p>SPAM [哈哈][哈哈]概括性很强嘛！</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3970117643114177" target="freeweibo-mirror">海口暴力抗法视频 http://t.cn/RqYXtxk 朋…</a>
-</h2>
-<p>海口暴力抗法视频 http://t.cn/RqYXtxk 朋友圈疯转及被商网指称为海口的视频 http://t.cn/RqYXOQK 请对比<br><br>RE: 海口那事的视频出来了。粗暴执法的7名联防队员被拘！但说有些人手无寸铁也是想当然，都直接用礼花炸了！朋友圈疯传的另一段视频建筑风格对不上，并且有老电线线路、玻璃门窗俱全，与前一个在建违章场景不符，口音及场景细节也貌似不是一出。我保留系中缅边界地区的怀疑，等进一步消息。 ...全文： http://m.weibo.cn/3716504593/3970115357811271<br><img src="http://ww1.sinaimg.cn/large/dd855c11jw1f3f67o50hej20zk0qoq71.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
