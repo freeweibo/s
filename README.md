@@ -137,7 +137,7 @@
 </h2>
 <p>一个美丽的人大研究生，选择嫁给一个被抓三次，三次零口供，三次官方被迫放人的穷小子。他们在老家的婚礼，国宝成了主角。【宋泽婚礼最新情况通报】1、宋泽刚 ... @Zine中国  | 阅读全文: http://t.cn/RqThMFz<br><img src="http://ww3.sinaimg.cn/large/b494f6bajw1f3ftvbq84xj20ku3rsdwh.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p>
 <table>
     <tr>
