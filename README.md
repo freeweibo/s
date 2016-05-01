@@ -47,7 +47,7 @@
 </h2>
 <p>SPAM //@胡红一:[围观]  //@LifeTime :  毛的做派完全不同：1） 毛当时是鼓励无条件提意见 。 现在的 “ 三不 ” 政策是有限制条件的 ， 即出发点必须是好的 。2） 毛让你说的时候 “ 不删帖 ”， 隔一段时间后再翻脸 。[doge]<br><br>RE: 温故而知新<br><img src="http://ww2.sinaimg.cn/large/6764cadegw1f3efat1swij20qo1bfajc.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3970220823379311" target="freeweibo-mirror">#985早新闻即将播出#（二）◆传递“工匠精神”，新闻广播推…</a>
 </h2>
