@@ -112,7 +112,7 @@
 </h2>
 <p>SPAM [兔子]挑选一双合适的鞋，让你走在时尚最前端[心 ]薇 ❤ aixie15</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3970099108813657" target="freeweibo-mirror">SPAM //@LifeTime:本届金援大户专挑不靠谱国家…</a>
 </h2>
