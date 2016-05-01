@@ -29,7 +29,7 @@
 </h2>
 <p>[伤心]</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3970295687359834" target="freeweibo-mirror">海南尤其乱套，文革后，全省土地居然没有一点文字资料了。 //…</a>
 </h2>
