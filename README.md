@@ -35,13 +35,13 @@
 </h2>
 <p>海南尤其乱套，文革后，全省土地居然没有一点文字资料了。 //@去V的刘建锋:无一例外是政府组织。根源还是土地所有制的问题，为什么从古到今，只有当代中国才出现这样严重的违建与拆违冲突？土地是市场经济绕不过的最核心问题。<br><br>RE: 网上流传的海南省秀英区打人的视频背后，是这张图。图片来自朋友圈，真相还远吗？本届人民是打不过你们，但是并不糊涂～<br><img src="http://ww1.sinaimg.cn/large/3f79a379jw1f3fjczcbktj20qo0zkwjf.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3970295230311044" target="freeweibo-mirror">//@去V的刘建锋:无一例外是政府组织。根源还是土地所有制的…</a>
 </h2>
 <p>//@去V的刘建锋:无一例外是政府组织。根源还是土地所有制的问题，为什么从古到今，只有当代中国才出现这样严重的违建与拆违冲突？土地是市场经济绕不过的最核心问题。<br><br>RE: 网上流传的海南省秀英区打人的视频背后，是这张图。图片来自朋友圈，真相还远吗？本届人民是打不过你们，但是并不糊涂～<br><img src="http://ww1.sinaimg.cn/large/3f79a379jw1f3fjczcbktj20qo0zkwjf.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3970279724130611" target="freeweibo-mirror">//@王小山://@徐昕://@昆山老金: 打手别认为打人时…</a>
 </h2>
@@ -137,7 +137,7 @@
 </h2>
 <p>SPAM [哆啦A梦吃惊] //@加藤蚁://@能靠点儿谱吗:毅种循环<br><br>RE: 温故而知新<br><img src="http://ww2.sinaimg.cn/large/6764cadegw1f3efat1swij20qo1bfajc.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p>
 <table>
     <tr>
