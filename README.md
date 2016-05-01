@@ -112,7 +112,7 @@
 </h2>
 <p>中国全面金援俄罗斯。<br><img src="http://ww2.sinaimg.cn/large/0066m1Gwjw1f3f04zx9slj30k00zln1u.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3970057439237436" target="freeweibo-mirror">未来的噩梦……//@没事不加V-://@前18-://@美裙…</a>
 </h2>
