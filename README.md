@@ -29,7 +29,7 @@
 </h2>
 <p>SPAM //@陈业文新大都://@胡红一:[围观]  //@LifeTime :  毛的做派完全不同：1） 毛当时是鼓励无条件提意见 。 现在的 “ 三不 ” 政策是有限制条件的 ， 即出发点必须是好的 。2） 毛让你说的时候 “ 不删帖 ”， 隔一段时间后再翻脸 。[doge]<br><br>RE: 温故而知新<br><img src="http://ww2.sinaimg.cn/large/6764cadegw1f3efat1swij20qo1bfajc.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3970224175427021" target="freeweibo-mirror">SPAM //@胡红一:[围观]  //@LifeTime …</a>
 </h2>
@@ -82,7 +82,7 @@
 </h2>
 <p>【对比找疑点，此视非彼视，当心被蒙骗】海口暴力抗法视频 http://t.cn/RqYXtxk 朋友圈疯转及被商网指称为海口的视频 http://t.cn/RqYXOQK 请对比疑点：一、暴力抗法现场均为在建建筑，门窗未安装。是方型楼。按此推理，不可能出现陈旧电线线路。二、打人视频中的语言疑似果敢话，我刚去了缅甸中文网，...全文： http://m.weibo.cn/3716504593/3970134193781197</p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3970124123266559" target="freeweibo-mirror">SPAM //@Mbb4:宝宝心里苦，宝宝不说[笑cry][…</a>
 </h2>
@@ -112,7 +112,7 @@
 </h2>
 <p>SPAM [兔子]挑选一双合适的鞋，让你走在时尚最前端[心 ]薇 ❤ aixie15</p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3970099108813657" target="freeweibo-mirror">SPAM //@LifeTime:本届金援大户专挑不靠谱国家…</a>
 </h2>
