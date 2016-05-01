@@ -19,11 +19,23 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3970295230311044" target="freeweibo-mirror">//@去V的刘建锋:无一例外是政府组织。根源还是土地所有制的…</a>
+</h2>
+<p>//@去V的刘建锋:无一例外是政府组织。根源还是土地所有制的问题，为什么从古到今，只有当代中国才出现这样严重的违建与拆违冲突？土地是市场经济绕不过的最核心问题。<br><br>RE: 网上流传的海南省秀英区打人的视频背后，是这张图。图片来自朋友圈，真相还远吗？本届人民是打不过你们，但是并不糊涂～<br><img src="http://ww1.sinaimg.cn/large/3f79a379jw1f3fjczcbktj20qo0zkwjf.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3970276159495803" target="freeweibo-mirror">回族和阿拉伯族是两码事。//@时政中国:“公元13世纪，蒙古…</a>
 </h2>
 <p>回族和阿拉伯族是两码事。//@时政中国:“公元13世纪，蒙古军队西征，西域人大批迁入中国，吸收汉、蒙古、维吾尔等民族成分，逐渐形成了一个统一的民族——回族。通用汉语、或当地少数民族的语言。”回族其实就是中华民族融和史的缩影。可是现在，有人竟然又要把回族往外推！！！<br><br>RE: 国家电网：3月2日，国内首个穆斯林回族特色供电营业厅——银川供电局永宁县分局“纳家户”供电营业厅正式迎客......开设的全国第一个也是唯一一个具有回族特色的营业网点，实行穆斯林阿语特色接待客户，工作人员身着穆斯林民族服饰，用流利的阿语接待前来办理业务的当地回族群众。http://t.cn/zOtDGQc<br><img src="http://ww2.sinaimg.cn/large/498f37c7gw1f3ely56ypcj20sh0nyjuu.jpg"></p>
 <p>
 	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3970260870491208" target="freeweibo-mirror">//@王敏竹--反计救国: 那里有安全?//@成都江陵:看外…</a>
+</h2>
+<p>//@王敏竹--反计救国: 那里有安全?//@成都江陵:看外网，开始还以为是谣言了。 //@守着你的承诺太傻5:明明就是恐怖暴力犯罪//@东孟聂正文02:“和谐社会，盛世中国”，怎么能够承认有恐怖袭击呢！//@人翔Digital:连恐袭都不敢承认[怒][弱]<br><br>RE: 【中国西安三暴徒劫巴士杀人纵火造成八死五伤】陕西西安上周四发生巴士劫持杀人纵火事件，造成13人死伤，网上盛传这是一起恐怖袭击，但陕西官方将之定性为“劫持纵火刑事案件”。4月28日下午12时40分左右，一辆长途客车在福银高速蓝田段草坪隧道口前200米处起火，造成八人死亡、五人受伤。涉事巴士被烧...全文： http://m.weibo.cn/1654134123/3970239328764797<br><img src="http://ww1.sinaimg.cn/large/6298156bjw1f3fksoajktj20go0b4jsc.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3970259876858654" target="freeweibo-mirror">#中国音乐流行榜•Top星访谈#@刘凤瑶 的专访今日播出啦！…</a>
 </h2>
@@ -129,18 +141,6 @@
 	<a href="https://freeweibo.com/weibo/3970115357811271" target="freeweibo-mirror">海口那事的视频出来了。粗暴执法的7名联防队员被拘！但说有些人…</a>
 </h2>
 <p>海口那事的视频出来了。粗暴执法的7名联防队员被拘！但说有些人手无寸铁也是想当然，都直接用礼花炸了！朋友圈疯传的另一段视频建筑风格对不上，并且有老电线线路、玻璃门窗俱全，与前一个在建违章场景不符，口音及场景细节也貌似不是一出。我保留系中缅边界地区的怀疑，等进一步消息。 ...全文： http://m.weibo.cn/3716504593/3970115357811271<br><img src="http://ww1.sinaimg.cn/large/dd855c11jw1f3f67o50hej20zk0qoq71.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3970104418755101" target="freeweibo-mirror">SPAM [兔子]挑选一双合适的鞋，让你走在时尚最前端[心 …</a>
-</h2>
-<p>SPAM [兔子]挑选一双合适的鞋，让你走在时尚最前端[心 ]薇 ❤ aixie15</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3970099108813657" target="freeweibo-mirror">SPAM //@LifeTime:本届金援大户专挑不靠谱国家…</a>
-</h2>
-<p>SPAM //@LifeTime:本届金援大户专挑不靠谱国家。委内瑞拉、巴基斯坦、津巴布韦.....<br><br>RE: 中国全面金援俄罗斯。<br><img src="http://ww2.sinaimg.cn/large/0066m1Gwjw1f3f04zx9slj30k00zln1u.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
