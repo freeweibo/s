@@ -19,6 +19,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3970276159495803" target="freeweibo-mirror">回族和阿拉伯族是两码事。//@时政中国:“公元13世纪，蒙古…</a>
+</h2>
+<p>回族和阿拉伯族是两码事。//@时政中国:“公元13世纪，蒙古军队西征，西域人大批迁入中国，吸收汉、蒙古、维吾尔等民族成分，逐渐形成了一个统一的民族——回族。通用汉语、或当地少数民族的语言。”回族其实就是中华民族融和史的缩影。可是现在，有人竟然又要把回族往外推！！！<br><br>RE: 国家电网：3月2日，国内首个穆斯林回族特色供电营业厅——银川供电局永宁县分局“纳家户”供电营业厅正式迎客......开设的全国第一个也是唯一一个具有回族特色的营业网点，实行穆斯林阿语特色接待客户，工作人员身着穆斯林民族服饰，用流利的阿语接待前来办理业务的当地回族群众。http://t.cn/zOtDGQc<br><img src="http://ww2.sinaimg.cn/large/498f37c7gw1f3ely56ypcj20sh0nyjuu.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3970225864625196" target="freeweibo-mirror">SPAM //@fengjingyiran: 刘的眼睛有点瞎…</a>
 </h2>
 <p>SPAM //@fengjingyiran: 刘的眼睛有点瞎要不然是心瞎扯 //@司马南:刘延东在宁夏， 关于党媒公开替马步芳这具政治僵尸化妆的丑事，她会不会说点儿什么 ……  http://t.cn/RqljV92</p>
@@ -106,7 +112,7 @@
 </h2>
 <p>海口那事的视频出来了。粗暴执法的7名联防队员被拘！但说有些人手无寸铁也是想当然，都直接用礼花炸了！朋友圈疯传的另一段视频建筑风格对不上，并且有老电线线路、玻璃门窗俱全，与前一个在建违章场景不符，口音及场景细节也貌似不是一出。我保留系中缅边界地区的怀疑，等进一步消息。 ...全文： http://m.weibo.cn/3716504593/3970115357811271<br><img src="http://ww1.sinaimg.cn/large/dd855c11jw1f3f67o50hej20zk0qoq71.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3970104418755101" target="freeweibo-mirror">SPAM [兔子]挑选一双合适的鞋，让你走在时尚最前端[心 …</a>
 </h2>
@@ -135,12 +141,6 @@
 	<a href="https://freeweibo.com/weibo/3970073155040243" target="freeweibo-mirror">SPAM 【爆料 酒便利核心数据披露：126家直营店、45万…</a>
 </h2>
 <p>SPAM 【爆料 酒便利核心数据披露：126家直营店、45万会员、3亿营收、90%增速！】链接：http://t.cn/RqY9pAZ<br><img src="http://ww4.sinaimg.cn/large/9ea278b7jw1f3f1pcrxyjj207g07gq2x.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3970059971864954" target="freeweibo-mirror">一群无神论者的灵魂是无所畏惧的。</a>
-</h2>
-<p>一群无神论者的灵魂是无所畏惧的。<br><br>RE: 今天下午，台、港、澳三地举行了动保大游行，三地公民同一呼声：尊重生命，反对虐待动物！要求政府跟上世界文明潮流，尽快立法保护动物！@中国政府网 @全国人大 @中共中央 @国务院 @动保立法委网巡组@公安部 @农业部 @中国食品药品监管  @新华网 @央视新闻 @法制日报<br><img src="http://ww3.sinaimg.cn/large/eaad0277jw1f3evmlhhynj20fq0m8gmw.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
