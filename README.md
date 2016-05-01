@@ -19,6 +19,24 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3970224442618402" target="freeweibo-mirror">SPAM //@陈业文新大都://@胡红一:[围观]  //…</a>
+</h2>
+<p>SPAM //@陈业文新大都://@胡红一:[围观]  //@LifeTime :  毛的做派完全不同：1） 毛当时是鼓励无条件提意见 。 现在的 “ 三不 ” 政策是有限制条件的 ， 即出发点必须是好的 。2） 毛让你说的时候 “ 不删帖 ”， 隔一段时间后再翻脸 。[doge]<br><br>RE: 温故而知新<br><img src="http://ww2.sinaimg.cn/large/6764cadegw1f3efat1swij20qo1bfajc.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3970224175427021" target="freeweibo-mirror">SPAM //@胡红一:[围观]  //@LifeTime …</a>
+</h2>
+<p>SPAM //@胡红一:[围观]  //@LifeTime :  毛的做派完全不同：1） 毛当时是鼓励无条件提意见 。 现在的 “ 三不 ” 政策是有限制条件的 ， 即出发点必须是好的 。2） 毛让你说的时候 “ 不删帖 ”， 隔一段时间后再翻脸 。[doge]<br><br>RE: 温故而知新<br><img src="http://ww2.sinaimg.cn/large/6764cadegw1f3efat1swij20qo1bfajc.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3970220214895043" target="freeweibo-mirror">SPAM [哆啦A梦吃惊] //@加藤蚁://@能靠点儿谱吗…</a>
+</h2>
+<p>SPAM [哆啦A梦吃惊] //@加藤蚁://@能靠点儿谱吗:毅种循环<br><br>RE: 温故而知新<br><img src="http://ww2.sinaimg.cn/large/6764cadegw1f3efat1swij20qo1bfajc.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3970189286481056" target="freeweibo-mirror">SPAM [鲜花]等老了 和爱人一起，
 [鲜花]找一个小镇…</a>
 </h2>
@@ -34,7 +52,7 @@
 </h2>
 <p>完全同意 //@安崇民:个人坚持等到事发地明白准确确认并权威发布，那近距离殴打妇女儿童视频不是海口事发现场视频。再名正言顺提出追究。 //@子午侠士:另外，海南方面的原报道没有视频链接，而各门户网站为啥都给人家加了视频链接？如这事经证实属于媒体移花接木，建议追究法律责任，而不能以道歉了事！<br><br>RE: 【对比找疑点，此视非彼视，当心被蒙骗】海口暴力抗法视频 http://t.cn/RqYXtxk 朋友圈疯转及被商网指称为海口的视频 http://t.cn/RqYXOQK 请对比疑点：一、暴力抗法现场均为在建建筑，门窗未安装。是方型楼。按此推理，不可能出现陈旧电线线路。二、打人视频中的语言疑似果敢话，我刚去了缅甸中文网，...全文： http://m.weibo.cn/3716504593/3970134193781197</p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3970144864347673" target="freeweibo-mirror">SPAM 茅于轼：中国为何无法改变产能过剩的局面？ - 产业…</a>
 </h2>
@@ -70,7 +88,7 @@
 </h2>
 <p>海口那事的视频出来了。粗暴执法的7名联防队员被拘！但说有些人手无寸铁也是想当然，都直接用礼花炸了！朋友圈疯传的另一段视频建筑风格对不上，并且有老电线线路、玻璃门窗俱全，与前一个在建违章场景不符，口音及场景细节也貌似不是一出。我保留系中缅边界地区的怀疑，等进一步消息。 ...全文： http://m.weibo.cn/3716504593/3970115357811271<br><img src="http://ww1.sinaimg.cn/large/dd855c11jw1f3f67o50hej20zk0qoq71.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3970104418755101" target="freeweibo-mirror">SPAM [兔子]挑选一双合适的鞋，让你走在时尚最前端[心 …</a>
 </h2>
@@ -123,24 +141,6 @@
 	<a href="https://freeweibo.com/weibo/3970057166613465" target="freeweibo-mirror">SPAM //@胡杨麟:[哈哈]</a>
 </h2>
 <p>SPAM //@胡杨麟:[哈哈]</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3970054977180608" target="freeweibo-mirror">SPAM 这个微应用太好玩了，连P图都省了[太开心]</a>
-</h2>
-<p>SPAM 这个微应用太好玩了，连P图都省了[太开心]</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3970050975753495" target="freeweibo-mirror">SPAM [吃惊] //@余丰慧:太可怕了，这是谁的天？ /…</a>
-</h2>
-<p>SPAM [吃惊] //@余丰慧:太可怕了，这是谁的天？ //@陈业文新大都:草泥马！真凶残啊！[怒][怒][怒]<br><br>RE: 這是哪裡？？？ 天高皇帝遠 ，無法無天！ 無政府狀態了嗎？轉發求証！！！#郁言詼語##正义呐喊##助愛回家# http://t.cn/RqYa288 .</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3970048282228973" target="freeweibo-mirror">这还是绿绿被世俗政权压住了呢。幸亏大航海时代后发展起来的是欧…</a>
-</h2>
-<p>这还是绿绿被世俗政权压住了呢。幸亏大航海时代后发展起来的是欧洲，不是绿绿世界。如果现在掌握核武器和世界霸权的是某个绿绿国家而不是美帝……人类世界现在什么样你敢想吗？</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
