@@ -19,6 +19,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3970303993051359" target="freeweibo-mirror">SPAM 马//@故心:好精彩 马了慢慢看[偷乐][偷乐][…</a>
+</h2>
+<p>SPAM 马//@故心:好精彩 马了慢慢看[偷乐][偷乐][偷乐]</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3970295230311044" target="freeweibo-mirror">//@去V的刘建锋:无一例外是政府组织。根源还是土地所有制的…</a>
 </h2>
 <p>//@去V的刘建锋:无一例外是政府组织。根源还是土地所有制的问题，为什么从古到今，只有当代中国才出现这样严重的违建与拆违冲突？土地是市场经济绕不过的最核心问题。<br><br>RE: 网上流传的海南省秀英区打人的视频背后，是这张图。图片来自朋友圈，真相还远吗？本届人民是打不过你们，但是并不糊涂～<br><img src="http://ww1.sinaimg.cn/large/3f79a379jw1f3fjczcbktj20qo0zkwjf.jpg"></p>
@@ -89,7 +95,7 @@
 </h2>
 <p>#985早新闻即将播出#（二）◆传递“工匠精神”，新闻广播推出系列报道《你身边的匠心》，今天请听第一篇《一朵“剪菊”展新颜》；◆《江苏省价格条例》今天开始实施，电商平台促销行为首次纳入监管。（资料图）<br><img src="http://ww2.sinaimg.cn/large/67fe74afgw1f3fint2o8hj208u05q74a.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3970220214895043" target="freeweibo-mirror">SPAM [哆啦A梦吃惊] //@加藤蚁://@能靠点儿谱吗…</a>
 </h2>
@@ -118,7 +124,7 @@
 </h2>
 <p>完全同意 //@安崇民:个人坚持等到事发地明白准确确认并权威发布，那近距离殴打妇女儿童视频不是海口事发现场视频。再名正言顺提出追究。 //@子午侠士:另外，海南方面的原报道没有视频链接，而各门户网站为啥都给人家加了视频链接？如这事经证实属于媒体移花接木，建议追究法律责任，而不能以道歉了事！<br><br>RE: 【对比找疑点，此视非彼视，当心被蒙骗】海口暴力抗法视频 http://t.cn/RqYXtxk 朋友圈疯转及被商网指称为海口的视频 http://t.cn/RqYXOQK 请对比疑点：一、暴力抗法现场均为在建建筑，门窗未安装。是方型楼。按此推理，不可能出现陈旧电线线路。二、打人视频中的语言疑似果敢话，我刚去了缅甸中文网，...全文： http://m.weibo.cn/3716504593/3970134193781197</p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3970144864347673" target="freeweibo-mirror">SPAM 茅于轼：中国为何无法改变产能过剩的局面？ - 产业…</a>
 </h2>
@@ -135,12 +141,6 @@
 	<a href="https://freeweibo.com/weibo/3970124123266559" target="freeweibo-mirror">SPAM //@Mbb4:宝宝心里苦，宝宝不说[笑cry][…</a>
 </h2>
 <p>SPAM //@Mbb4:宝宝心里苦，宝宝不说[笑cry][笑cry][笑cry]//@名字是个笑话啊:WOC，我被你们整晕了，到底什么情况？宝宝怎么了？</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3970120105791254" target="freeweibo-mirror">SPAM [哈哈][哈哈]概括性很强嘛！</a>
-</h2>
-<p>SPAM [哈哈][哈哈]概括性很强嘛！</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
