@@ -41,7 +41,7 @@
 </h2>
 <p>[伤心]</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3970299337089893" target="freeweibo-mirror">假装没看见[抓狂] //@六国虹:这伙暴徒，当车裂！[怒] …</a>
 </h2>
