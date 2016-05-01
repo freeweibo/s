@@ -25,15 +25,39 @@
 <p>
 	<small> ============== 1小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3970303376276116" target="freeweibo-mirror">[伤心]</a>
+</h2>
+<p>[伤心]</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3970295687359834" target="freeweibo-mirror">海南尤其乱套，文革后，全省土地居然没有一点文字资料了。 //…</a>
+</h2>
+<p>海南尤其乱套，文革后，全省土地居然没有一点文字资料了。 //@去V的刘建锋:无一例外是政府组织。根源还是土地所有制的问题，为什么从古到今，只有当代中国才出现这样严重的违建与拆违冲突？土地是市场经济绕不过的最核心问题。<br><br>RE: 网上流传的海南省秀英区打人的视频背后，是这张图。图片来自朋友圈，真相还远吗？本届人民是打不过你们，但是并不糊涂～<br><img src="http://ww1.sinaimg.cn/large/3f79a379jw1f3fjczcbktj20qo0zkwjf.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3970295230311044" target="freeweibo-mirror">//@去V的刘建锋:无一例外是政府组织。根源还是土地所有制的…</a>
 </h2>
 <p>//@去V的刘建锋:无一例外是政府组织。根源还是土地所有制的问题，为什么从古到今，只有当代中国才出现这样严重的违建与拆违冲突？土地是市场经济绕不过的最核心问题。<br><br>RE: 网上流传的海南省秀英区打人的视频背后，是这张图。图片来自朋友圈，真相还远吗？本届人民是打不过你们，但是并不糊涂～<br><img src="http://ww1.sinaimg.cn/large/3f79a379jw1f3fjczcbktj20qo0zkwjf.jpg"></p>
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3970279724130611" target="freeweibo-mirror">//@王小山://@徐昕://@昆山老金: 打手别认为打人时…</a>
+</h2>
+<p>//@王小山://@徐昕://@昆山老金: 打手别认为打人时候爽，出问题时永远都是替罪羊，所以执这种法时先动动脑，别让贪官当枪使//@思量不思量://@刘志强律师://@律师姬来松:转发<br><br>RE: 网上流传的海南省秀英区打人的视频背后，是这张图。图片来自朋友圈，真相还远吗？本届人民是打不过你们，但是并不糊涂～<br><img src="http://ww1.sinaimg.cn/large/3f79a379jw1f3fjczcbktj20qo0zkwjf.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3970276159495803" target="freeweibo-mirror">回族和阿拉伯族是两码事。//@时政中国:“公元13世纪，蒙古…</a>
 </h2>
 <p>回族和阿拉伯族是两码事。//@时政中国:“公元13世纪，蒙古军队西征，西域人大批迁入中国，吸收汉、蒙古、维吾尔等民族成分，逐渐形成了一个统一的民族——回族。通用汉语、或当地少数民族的语言。”回族其实就是中华民族融和史的缩影。可是现在，有人竟然又要把回族往外推！！！<br><br>RE: 国家电网：3月2日，国内首个穆斯林回族特色供电营业厅——银川供电局永宁县分局“纳家户”供电营业厅正式迎客......开设的全国第一个也是唯一一个具有回族特色的营业网点，实行穆斯林阿语特色接待客户，工作人员身着穆斯林民族服饰，用流利的阿语接待前来办理业务的当地回族群众。http://t.cn/zOtDGQc<br><img src="http://ww2.sinaimg.cn/large/498f37c7gw1f3ely56ypcj20sh0nyjuu.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3970274003422141" target="freeweibo-mirror">这个咋滴了？ //@张开磊:秀英区人民政府....[衰]//…</a>
+</h2>
+<p>这个咋滴了？ //@张开磊:秀英区人民政府....[衰]//@谢文: //@郑维: 组织严密，队伍强大，纪律严明，攻无不克，战无不胜。<br><br>RE: 网上流传的海南省秀英区打人的视频背后，是这张图。图片来自朋友圈，真相还远吗？本届人民是打不过你们，但是并不糊涂～<br><img src="http://ww1.sinaimg.cn/large/3f79a379jw1f3fjczcbktj20qo0zkwjf.jpg"></p>
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
@@ -119,30 +143,6 @@
 喜欢可以关.注这里总有一句你喜欢的<br><img src="http://ww1.sinaimg.cn/large/e72082c6gw1f3f2mo0yk6j20ku112767.jpg"></p>
 <p>
 	<small> ============== 9小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3970145208756493" target="freeweibo-mirror">完全同意 //@安崇民:个人坚持等到事发地明白准确确认并权威…</a>
-</h2>
-<p>完全同意 //@安崇民:个人坚持等到事发地明白准确确认并权威发布，那近距离殴打妇女儿童视频不是海口事发现场视频。再名正言顺提出追究。 //@子午侠士:另外，海南方面的原报道没有视频链接，而各门户网站为啥都给人家加了视频链接？如这事经证实属于媒体移花接木，建议追究法律责任，而不能以道歉了事！<br><br>RE: 【对比找疑点，此视非彼视，当心被蒙骗】海口暴力抗法视频 http://t.cn/RqYXtxk 朋友圈疯转及被商网指称为海口的视频 http://t.cn/RqYXOQK 请对比疑点：一、暴力抗法现场均为在建建筑，门窗未安装。是方型楼。按此推理，不可能出现陈旧电线线路。二、打人视频中的语言疑似果敢话，我刚去了缅甸中文网，...全文： http://m.weibo.cn/3716504593/3970134193781197</p>
-<p>
-	<small> ============== 12小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3970144864347673" target="freeweibo-mirror">SPAM 茅于轼：中国为何无法改变产能过剩的局面？ - 产业…</a>
-</h2>
-<p>SPAM 茅于轼：中国为何无法改变产能过剩的局面？ - 产业经营 - 共识网—在大变革时代寻找共识 http://t.cn/RqYRUcF<br><img src="http://ww2.sinaimg.cn/large/744be08djw1f3f9y92tukj202z02zt8m.jpg"></p>
-<p>
-	<small> ============== 12小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3970134193781197" target="freeweibo-mirror">【对比找疑点，此视非彼视，当心被蒙骗】海口暴力抗法视频 ht…</a>
-</h2>
-<p>【对比找疑点，此视非彼视，当心被蒙骗】海口暴力抗法视频 http://t.cn/RqYXtxk 朋友圈疯转及被商网指称为海口的视频 http://t.cn/RqYXOQK 请对比疑点：一、暴力抗法现场均为在建建筑，门窗未安装。是方型楼。按此推理，不可能出现陈旧电线线路。二、打人视频中的语言疑似果敢话，我刚去了缅甸中文网，...全文： http://m.weibo.cn/3716504593/3970134193781197</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3970124123266559" target="freeweibo-mirror">SPAM //@Mbb4:宝宝心里苦，宝宝不说[笑cry][…</a>
-</h2>
-<p>SPAM //@Mbb4:宝宝心里苦，宝宝不说[笑cry][笑cry][笑cry]//@名字是个笑话啊:WOC，我被你们整晕了，到底什么情况？宝宝怎么了？</p>
-<p>
-	<small> ============== 1天前</small>
 </p>
 <table>
     <tr>
