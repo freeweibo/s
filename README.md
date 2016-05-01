@@ -23,7 +23,7 @@
 </h2>
 <p>SPAM //@fengjingyiran: 刘的眼睛有点瞎要不然是心瞎扯 //@司马南:刘延东在宁夏， 关于党媒公开替马步芳这具政治僵尸化妆的丑事，她会不会说点儿什么 ……  http://t.cn/RqljV92</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3970224442618402" target="freeweibo-mirror">SPAM //@陈业文新大都://@胡红一:[围观]  //…</a>
 </h2>
@@ -94,7 +94,7 @@
 </h2>
 <p>SPAM [哈哈][哈哈]概括性很强嘛！</p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3970117643114177" target="freeweibo-mirror">海口暴力抗法视频 http://t.cn/RqYXtxk 朋…</a>
 </h2>
