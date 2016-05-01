@@ -91,6 +91,12 @@
 <p>
 	<small> ============== 7小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3970429419215886" target="freeweibo-mirror">运气来了挡都挡不了[good] http://t.cn/Rq…</a>
+</h2>
+<p>运气来了挡都挡不了[good] http://t.cn/RqWrZbT</p>
+<p>
+	<small> ============== 7小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3970429418943087" target="freeweibo-mirror">SPAM 【它才是暴涨背后的真正推手 崩溃将不可避免】中国大…</a>
 </h2>
 <p>SPAM 【它才是暴涨背后的真正推手 崩溃将不可避免】中国大宗商品市场有问题，大家都知道，也多把矛头指向了散户，但有人却提出：背后黑手另有其人。http://t.cn/RqYso8x<br><img src="http://ww3.sinaimg.cn/large/768ab125jw1f3g4ccq65pj20c80cl3zt.jpg"></p>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3970406895617305" target="freeweibo-mirror">SPAM 这个是朋友在11区帮忙买的所以没链接，我只知道是寿…</a>
 </h2>
 <p>SPAM 这个是朋友在11区帮忙买的所以没链接，我只知道是寿屋出的周边……水越冰效果越好，红色的万花显现出来真的很漂亮。</p>
-<p>
-	<small> ============== 8小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3970406647579174" target="freeweibo-mirror">将非法施暴说成是不文明执法，这是中国特色；将有组织犯罪说成是…</a>
-</h2>
-<p>将非法施暴说成是不文明执法，这是中国特色；将有组织犯罪说成是临时工失控，更是中国特色。</p>
 <p>
 	<small> ============== 8小时前</small>
 </p>
