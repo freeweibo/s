@@ -53,7 +53,7 @@
 </h2>
 <p>SPAM //@抛语引砖: //@程中柳:保家就是卫国。//@习美黄德荣: 海南人知道反抗！<br><br>RE: 向着敌人的炮火前进、前进、前进进[笑cry][笑cry][笑cry] http://t.cn/RqTBOWN .</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3970746441140029" target="freeweibo-mirror">SPAM //@云韵峰: 转发一下</a>
 </h2>
@@ -125,7 +125,7 @@
 </h2>
 <p>SPAM 察看一年，改了还是好同志！<br><br>RE: 任志强留党察看，还是同志嘛[good]<br><img src="http://ww3.sinaimg.cn/large/6d0b6b33gw1f3h4gk1h96j20ku112jyp.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3970731467357976" target="freeweibo-mirror">SPAM 查看一下，再 //@章鱼哥R:跨区作案[笑cry]…</a>
 </h2>
