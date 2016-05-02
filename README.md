@@ -73,6 +73,12 @@
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3970724173952727" target="freeweibo-mirror">任志强留党察看，还是同志嘛[good]</a>
+</h2>
+<p>任志强留党察看，还是同志嘛[good]<br><img src="http://ww3.sinaimg.cn/large/6d0b6b33gw1f3h4gk1h96j20ku112jyp.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3970722185179961" target="freeweibo-mirror">//@薛明波://@杨洪纲: 华远集团原党委副书记、董事长任…</a>
 </h2>
 <p>//@薛明波://@杨洪纲: 华远集团原党委副书记、董事长任志强同志多次在微博、博客等网络平台和其他公开场合公开发表违背四项基本原则、违背党的路线方针政策等方面的错误言论，其行为严重违反党的政治纪律，决定给予任志强同志留党察看一年处分。</p>
@@ -89,25 +95,25 @@
 </h2>
 <p>SPAM #恋爱大作战# 我和女朋友异地恋......<br><img src="http://ww2.sinaimg.cn/large/b28db48cjw1f3g8dr6768j20ph0wb7aw.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3970716216748216" target="freeweibo-mirror">【任志强处理结果出来了，你满意吗？】华远集团原党委副书记、董…</a>
 </h2>
 <p>【任志强处理结果出来了，你满意吗？】华远集团原党委副书记、董事长任志强同志多次在微博、博客等网络平台和其他公开场合公开发表违背四项基本原则、违背党的路线方针政策等方面的错误言论，其行为严重违反党的政治纪律，决定给予任志强同志留党察看一年处分。<br><img src="http://ww3.sinaimg.cn/large/4659d332gw1f3h3kga7s0j207f0643yo.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3970640786602163" target="freeweibo-mirror">SPAM 未名湖畔的痛哭——读林昭1958年5月4日给妹妹的…</a>
 </h2>
 <p>SPAM 未名湖畔的痛哭——读林昭1958年5月4日给妹妹的信 - 教育 - 共识网—在大变革时代寻找共识 http://t.cn/RqTHncQ<br><img src="http://ww2.sinaimg.cn/large/669f7f54jw1f3guwn85gcj202z02zt8m.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3970640547603347" target="freeweibo-mirror">老公财 大器 粗，活好，婚后一直欲 罢不能！但就是需求太大，…</a>
 </h2>
 <p>老公财 大器 粗，活好，婚后一直欲 罢不能！但就是需求太大，我满足不了，该怎么办？<br><img src="http://ww2.sinaimg.cn/large/ed7baa2cgw1f3guvi864bj20c4aasb2c.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3970638026204331" target="freeweibo-mirror">SPAM 【参与口碑互动赢大奖】即日起至5月10日手机加关注…</a>
 </h2>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3970634109859672" target="freeweibo-mirror">//@辟谣与真相:那一年，藏独骚乱事件、民运学潮事件、某书事…</a>
 </h2>
 <p>//@辟谣与真相:那一年，藏独骚乱事件、民运学潮事件、某书事件。。很巧合的，集中发生了。。<br><br>RE: ［只能发图。。］某些人别老扯“重演”可能并不大的文革转移视线，还是扯扯多事之春的那一年，恐怕更具“预防重演”之意义吧？——当年若发展下去，中国会不会陷入混乱、分裂甚至内战？<br><img src="http://ww4.sinaimg.cn/large/6d88e352gw1f3gt1ttrwyj20qo1betke.jpg"></p>
-<p>
-	<small> ============== 9小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3970633648172722" target="freeweibo-mirror">为何不是独立第三方比如受众说了算？批评者和被批评对象都是当事…</a>
-</h2>
-<p>为何不是独立第三方比如受众说了算？批评者和被批评对象都是当事人，应回避，是否善意 出发点是否好应该由中立客观理性的第三方来判断，才比较合理，也能够服众。比如任志强 贺卫方是否善意，让广大群众判断不好吗？<br><br>RE: 官府说了算。【张鸣也指出，所谓“善意批评”和“出发点是好的”的批评要如何界定，恐怕难有客观标准。】联合早报</p>
 <p>
 	<small> ============== 9小时前</small>
 </p>
