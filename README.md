@@ -41,7 +41,7 @@
 </h2>
 <p>SPAM 带你每天涨姿势[心]Tia102030</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3970561253654109" target="freeweibo-mirror">SPAM 我都快成作家了！又写了一宿！哎……</a>
 </h2>
@@ -53,7 +53,7 @@
 </h2>
 <p>天，才知道，宁夏公务员中回族比例居然已经占公务员总数54%以上了，而宁夏全区回族占总人口比例只有35.7%.也就是说。宁夏的公务员中回族比例比人口比例要高将近20个百分点！！！太黑了吧。利用加分（百分制）政策清洗汉族。怪不得什么都清真优先，全是回回干部了，特么已经光膀子搞宁夏斯坦国。<br><img src="http://ww4.sinaimg.cn/large/ea0d1c25gw1f3gd6ofxqzj20he08vmya.jpg"></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3970483274079153" target="freeweibo-mirror">龙舟：什么样的人容易得抑郁症？ http://t.cn/Rq…</a>
 </h2>
