@@ -89,7 +89,7 @@
 </h2>
 <p>SPAM 民国时，谁出兵收复了外蒙古？_短史记 http://t.cn/R4Wlvqq<br><img src="http://ww4.sinaimg.cn/large/a885cb8ajw1f3g9if0uzij20by0byaap.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3970452190114257" target="freeweibo-mirror">SPAM 欢迎关注我的微信公众号#练依朋的心灵花园#提前了解…</a>
 </h2>
