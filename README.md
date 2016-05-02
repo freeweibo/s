@@ -95,7 +95,7 @@
 </h2>
 <p>//@于建嵘:宁鸣而死，不默而生 //@无为后生:于老师啊，我们很遗憾已经听不到任大炮的声音了，不想您也被禁言啊！[吃惊][吃惊][吃惊]  //@何兵:碰上官府违法犯罪的，网上的法官和检察官，全缩头了。<br><br>RE: 将非法施暴说成是不文明执法，这是中国特色；将有组织犯罪说成是临时工失控，更是中国特色。</p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3970430149106297" target="freeweibo-mirror">SPAM //@李翔196811: //@孔_智勇:[吃惊]…</a>
 </h2>
@@ -107,13 +107,13 @@
 </h2>
 <p>运气来了挡都挡不了[good] http://t.cn/RqWrZbT</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3970429418943087" target="freeweibo-mirror">SPAM 【它才是暴涨背后的真正推手 崩溃将不可避免】中国大…</a>
 </h2>
 <p>SPAM 【它才是暴涨背后的真正推手 崩溃将不可避免】中国大宗商品市场有问题，大家都知道，也多把矛头指向了散户，但有人却提出：背后黑手另有其人。http://t.cn/RqYso8x<br><img src="http://ww3.sinaimg.cn/large/768ab125jw1f3g4ccq65pj20c80cl3zt.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3970425102659548" target="freeweibo-mirror">SPAM 这一身装备好眼熟！</a>
 </h2>
