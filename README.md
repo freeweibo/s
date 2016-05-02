@@ -19,6 +19,18 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3970743362345960" target="freeweibo-mirror">SPAM </a>
+</h2>
+<p>SPAM </p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3970742305488821" target="freeweibo-mirror">SPAM 任他炮火足，还是得服区委管。</a>
+</h2>
+<p>SPAM 任他炮火足，还是得服区委管。<br><br>RE: 任志强留党察看，还是同志嘛[good]<br><img src="http://ww3.sinaimg.cn/large/6d0b6b33gw1f3h4gk1h96j20ku112jyp.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3970736656208727" target="freeweibo-mirror">SPAM [吃惊][吃惊][吃惊] //@周泽律师:以后，这…</a>
 </h2>
 <p>SPAM [吃惊][吃惊][吃惊] //@周泽律师:以后，这样的话怕也不能说了！</p>
@@ -30,6 +42,30 @@
 <p>SPAM 以后，这样的话怕也不能说了！</p>
 <p>
 	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3970732424291260" target="freeweibo-mirror">SPAM 察看一年，改了还是好同志！</a>
+</h2>
+<p>SPAM 察看一年，改了还是好同志！<br><br>RE: 任志强留党察看，还是同志嘛[good]<br><img src="http://ww3.sinaimg.cn/large/6d0b6b33gw1f3h4gk1h96j20ku112jyp.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3970729802182198" target="freeweibo-mirror">//@郑维:回复@_Gardner_:恢复他的微博，让他每天…</a>
+</h2>
+<p>//@郑维:回复@_Gardner_:恢复他的微博，让他每天写点察看中的反思也教育一下我们嘛[挖鼻]//@_Gardner_:恢复其微博吧<br><br>RE: 任志强留党察看，还是同志嘛[good]<br><img src="http://ww3.sinaimg.cn/large/6d0b6b33gw1f3h4gk1h96j20ku112jyp.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3970726992178645" target="freeweibo-mirror">让他离“群众”远点儿也好。党更需要他//@今日:转发微博</a>
+</h2>
+<p>让他离“群众”远点儿也好。党更需要他//@今日:转发微博<br><br>RE: 任志强留党察看，还是同志嘛[good]<br><img src="http://ww3.sinaimg.cn/large/6d0b6b33gw1f3h4gk1h96j20ku112jyp.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3970725188791856" target="freeweibo-mirror">//@湖嗨散人:回复@BlackwaterN22:[哈哈] …</a>
+</h2>
+<p>//@湖嗨散人:回复@BlackwaterN22:[哈哈] //@BlackwaterN22:不抓辫子不扣帽子不打棍子[哈哈][哈哈]<br><br>RE: 【任志强处理结果出来了，你满意吗？】华远集团原党委副书记、董事长任志强同志多次在微博、博客等网络平台和其他公开场合公开发表违背四项基本原则、违背党的路线方针政策等方面的错误言论，其行为严重违反党的政治纪律，决定给予任志强同志留党察看一年处分。<br><img src="http://ww3.sinaimg.cn/large/4659d332gw1f3h3kga7s0j207f0643yo.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3970724252842279" target="freeweibo-mirror">//@老实人半大老头:让你提意见，是让你歌功颂德。</a>
 </h2>
@@ -102,42 +138,6 @@
 <p>官府说了算。【张鸣也指出，所谓“善意批评”和“出发点是好的”的批评要如何界定，恐怕难有客观标准。】联合早报</p>
 <p>
 	<small> ============== 9小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3970624940795030" target="freeweibo-mirror">［只能发图。。］某些人别老扯“重演”可能并不大的文革转移视线…</a>
-</h2>
-<p>［只能发图。。］某些人别老扯“重演”可能并不大的文革转移视线，还是扯扯多事之春的那一年，恐怕更具“预防重演”之意义吧？——当年若发展下去，中国会不会陷入混乱、分裂甚至内战？<br><img src="http://ww4.sinaimg.cn/large/6d88e352gw1f3gt1ttrwyj20qo1betke.jpg"></p>
-<p>
-	<small> ============== 9小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3970622662669149" target="freeweibo-mirror">#丝路驿站 塞上江南#【铁路银川站"官方微信平台】平台设置了…</a>
-</h2>
-<p>#丝路驿站 塞上江南#【铁路银川站"官方微信平台】平台设置了车站介绍、购票指南、乘车资讯三个栏目,每个栏目都提供了一些服务栏目,比如“基本介绍”、“购票方式”、“退票改签”、“列车时刻表”等方便旅客乘车购票查询。<br><img src="http://ww1.sinaimg.cn/large/9ae2e23bjw1f3gstor9d5j20by0byq3k.jpg"></p>
-<p>
-	<small> ============== 9小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3970617667228794" target="freeweibo-mirror">SPAM 【台电信诈骗嫌犯：早知大陆会判刑肯定不敢做了】此前…</a>
-</h2>
-<p>SPAM 【台电信诈骗嫌犯：早知大陆会判刑肯定不敢做了】此前被遣返中国大陆的台湾嫌犯承认，台湾方面司法打击不力是导致电信诈骗猖獗的重要原因，“早知道会在大陆判刑，我肯定不敢再做了。”微评：此前大陆方面司法打击就有力了？如海口拆违一样，这么猖獗的电信诈骗，大陆受害人无数，是一天两天形成的？<br><img src="http://ww1.sinaimg.cn/large/4969c683gw1f3gs8exc31j205k05k74h.jpg"></p>
-<p>
-	<small> ============== 10小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3970617256372427" target="freeweibo-mirror">[赞]@山高路远N:现行宪法是中共领导制定的，中共应该带头落…</a>
-</h2>
-<p>[赞]@山高路远N:现行宪法是中共领导制定的，中共应该带头落实好宪法的言论自由。言论自由不能靠“不打棍子”的恩赐，而要靠法律保障。<br><br>RE: 【落实宪法的言论自由就好】总书记要求各级领导要热忱欢迎知识分子批评和意见，即使一些意见和批评有偏差，甚至不正确，也要多一些包容、多一些宽容。这实际是言论自由保障问题。在学习领导人讲话治国时代，权力任性是必然的。言论自由虽然被写入宪法，但您的善意批评和意见随时可被限制转发和删除。官...全文： http://m.weibo.cn/3198720857/3970222337684844<br><img src="http://ww2.sinaimg.cn/large/bea89b59gw1f3fhdg7l9vj20k00f0403.jpg"></p>
-<p>
-	<small> ============== 10小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3970616048402443" target="freeweibo-mirror">SPAM 今天老郑的公众号写的是《谷歌之橘 百度成枳》：【南…</a>
-</h2>
-<p>SPAM 今天老郑的公众号写的是《谷歌之橘 百度成枳》：【南橘北枳的故事，放在谷歌和百度身上真是再合适不过。谷歌这些年搞了一大堆酷炫机器人、无人驾驶车、AlphaGo……百度也没闲着，努力深化了和莆田老军医的合作……】欢迎大家扫描第一个二维码给老郑打赏或者扫第二个二维码关注老郑公号。谢谢大家，祝五...全文： http://m.weibo.cn/1829464883/3970616048402443<br><img src="http://ww1.sinaimg.cn/large/6d0b6b33jw1f3gs1jv02gj20af0aiwf4.jpg"></p>
-<p>
-	<small> ============== 10小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3970608880466360" target="freeweibo-mirror">【2016年5月2日 早安香港】1.工联会发起游行，批评反对…</a>
-</h2>
-<p>【2016年5月2日 早安香港】1.工联会发起游行，批评反对派拉布令打工仔受苦，有逾2900市民参与。2.激进组织取消上水“反水货客”游行活动，期间两名男子涉嫌在公众地方打架被捕。3.多个的士团体首次申请把等候时间收费由每分钟改为每45... http://t.cn/RqTWmvr<br><img src="http://ww2.sinaimg.cn/large/9ce4bf2fgw1f3gr88hwvpj20c80c3gnu.jpg"></p>
-<p>
-	<small> ============== 10小时前</small>
 </p>
 <table>
     <tr>
