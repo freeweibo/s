@@ -119,13 +119,13 @@
 </h2>
 <p>SPAM 这一身装备好眼熟！</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3970424586793397" target="freeweibo-mirror">SPAM +1s //@一头小活猪:+1s//@方便卫生起效…</a>
 </h2>
 <p>SPAM +1s //@一头小活猪:+1s//@方便卫生起效快: +1s//@丁义:+1s //@佩佳:+1s<br><br>RE: @蛤乎日报社<br><img src="http://ww2.sinaimg.cn/large/84403255gw1f3g351wytoj20fa0bzdhm.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3970423999411245" target="freeweibo-mirror">暴政总有一天也会落到它头上 //@于建嵘:回复@清风扬帆_用…</a>
 </h2>
