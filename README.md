@@ -25,6 +25,12 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3970588043793027" target="freeweibo-mirror">SPAM [衰][悲伤]//@李大大263:"一个典型的中国…</a>
+</h2>
+<p>SPAM [衰][悲伤]//@李大大263:"一个典型的中国梦就是离开中国"[太开心][哈哈]</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3970562835514876" target="freeweibo-mirror">SPAM 带你每天涨姿势[心]Tia102030</a>
 </h2>
 <p>SPAM 带你每天涨姿势[心]Tia102030</p>
@@ -37,6 +43,12 @@
 <p>
 	<small> ============== 4小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3970486646016868" target="freeweibo-mirror">天，才知道，宁夏公务员中回族比例居然已经占公务员总数54%以…</a>
+</h2>
+<p>天，才知道，宁夏公务员中回族比例居然已经占公务员总数54%以上了，而宁夏全区回族占总人口比例只有35.7%.也就是说。宁夏的公务员中回族比例比人口比例要高将近20个百分点！！！太黑了吧。利用加分（百分制）政策清洗汉族。怪不得什么都清真优先，全是回回干部了，特么已经光膀子搞宁夏斯坦国。<br><img src="http://ww4.sinaimg.cn/large/ea0d1c25gw1f3gd6ofxqzj20he08vmya.jpg"></p>
+<p>
+	<small> ============== 9小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3970483274079153" target="freeweibo-mirror">龙舟：什么样的人容易得抑郁症？ http://t.cn/Rq…</a>
 </h2>
 <p>龙舟：什么样的人容易得抑郁症？ http://t.cn/RqTGPhm （分享自@凤凰新闻客户端）<br><img src="http://ww1.sinaimg.cn/large/742b1583jw1f3gctexyhyj20760760sw.jpg"></p>
@@ -47,7 +59,7 @@
 </h2>
 <p>SPAM [兔子][兔子]挑选一双合适的脚，让你走在时尚最前端。薇   ❤ aixie33</p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3970473471852056" target="freeweibo-mirror">SPAM 胃信：icplove，拿不完的情侣头像等你来。[来…</a>
 </h2>
@@ -83,7 +95,7 @@
 </h2>
 <p>//@陆亚明:[怒]//@何兵:碰上官府违法犯罪的，网上的法官和检察官，全缩头了。<br><br>RE: 将非法施暴说成是不文明执法，这是中国特色；将有组织犯罪说成是临时工失控，更是中国特色。</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3970440261365041" target="freeweibo-mirror">SPAM 单图都在微信号里，可以去里边下载。 http://…</a>
 </h2>
@@ -124,18 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3970425102659548" target="freeweibo-mirror">SPAM 这一身装备好眼熟！</a>
 </h2>
 <p>SPAM 这一身装备好眼熟！</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3970424586793397" target="freeweibo-mirror">SPAM +1s //@一头小活猪:+1s//@方便卫生起效…</a>
-</h2>
-<p>SPAM +1s //@一头小活猪:+1s//@方便卫生起效快: +1s//@丁义:+1s //@佩佳:+1s<br><br>RE: @蛤乎日报社<br><img src="http://ww2.sinaimg.cn/large/84403255gw1f3g351wytoj20fa0bzdhm.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3970423999411245" target="freeweibo-mirror">暴政总有一天也会落到它头上 //@于建嵘:回复@清风扬帆_用…</a>
-</h2>
-<p>暴政总有一天也会落到它头上 //@于建嵘:回复@清风扬帆_用心远航:拆违建同对妇幼施暴是一回事？！//@清风扬帆_用心远航:怎么不说违章建筑在先，既是违建，拆除有何不可？伪公知群体为反而反挑动社会对立情绪已经到了不惜一切的地步。<br><br>RE: 将非法施暴说成是不文明执法，这是中国特色；将有组织犯罪说成是临时工失控，更是中国特色。</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
