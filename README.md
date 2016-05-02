@@ -49,6 +49,12 @@
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3970731467357976" target="freeweibo-mirror">SPAM 查看一下，再 //@章鱼哥R:跨区作案[笑cry]…</a>
+</h2>
+<p>SPAM 查看一下，再 //@章鱼哥R:跨区作案[笑cry] //@腾晓东:又看了一遍，感慨颇深，这才是一个企业家应该秉持的一种社会态度。[good]</p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3970729802182198" target="freeweibo-mirror">//@郑维:回复@_Gardner_:恢复他的微博，让他每天…</a>
 </h2>
 <p>//@郑维:回复@_Gardner_:恢复他的微博，让他每天写点察看中的反思也教育一下我们嘛[挖鼻]//@_Gardner_:恢复其微博吧<br><br>RE: 任志强留党察看，还是同志嘛[good]<br><img src="http://ww3.sinaimg.cn/large/6d0b6b33gw1f3h4gk1h96j20ku112jyp.jpg"></p>
@@ -67,6 +73,12 @@
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3970724312409480" target="freeweibo-mirror">[话筒]//@华之梁: 党员留党察看处分期间，没有表决权、选…</a>
+</h2>
+<p>[话筒]//@华之梁: 党员留党察看处分期间，没有表决权、选举权和被选举权。留党察看期间，确有悔改表现的，期满后恢复其党员权利；坚持不改或者又发现其他应受党纪处分的违纪行为的，应当开除党籍。<br><br>RE: 留党察看一年！</p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3970724252842279" target="freeweibo-mirror">//@老实人半大老头:让你提意见，是让你歌功颂德。</a>
 </h2>
 <p>//@老实人半大老头:让你提意见，是让你歌功颂德。<br><br>RE: 【任志强处理结果出来了，你满意吗？】华远集团原党委副书记、董事长任志强同志多次在微博、博客等网络平台和其他公开场合公开发表违背四项基本原则、违背党的路线方针政策等方面的错误言论，其行为严重违反党的政治纪律，决定给予任志强同志留党察看一年处分。<br><img src="http://ww3.sinaimg.cn/large/4659d332gw1f3h3kga7s0j207f0643yo.jpg"></p>
@@ -76,6 +88,12 @@
 	<a href="https://freeweibo.com/weibo/3970724173952727" target="freeweibo-mirror">任志强留党察看，还是同志嘛[good]</a>
 </h2>
 <p>任志强留党察看，还是同志嘛[good]<br><img src="http://ww3.sinaimg.cn/large/6d0b6b33gw1f3h4gk1h96j20ku112jyp.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3970723577945042" target="freeweibo-mirror">堂弟问：有什么感想？我说：关键的意义，是党组织亮出了大是大非…</a>
+</h2>
+<p>堂弟问：有什么感想？我说：关键的意义，是党组织亮出了大是大非的政治态度！三弟问：那你如何看待之前网民揭批大炮的态度呢？我说：党的一切就是人民的一切，党需要人民群众的支持！网民的呼声反映了人民对党的要求。<br><br>RE: 留党察看一年！</p>
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
@@ -118,24 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3970638026204331" target="freeweibo-mirror">SPAM 【参与口碑互动赢大奖】即日起至5月10日手机加关注…</a>
 </h2>
 <p>SPAM 【参与口碑互动赢大奖】即日起至5月10日手机加关注"家电派"微信公众号，并在微信中回复您的消费心愿，就有机会赢取美的电子秤,京东200元购物券等丰厚奖品！转发此条信息@ 三位好友,我们还将抽出三位幸运达人,送上50元京东购物券,数量有限先到先得,请赶快行动吧!<br><img src="http://ww1.sinaimg.cn/large/80c5185bjw1f3gul1g0dzj20hs1e07bj.jpg"></p>
-<p>
-	<small> ============== 9小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3970637599420321" target="freeweibo-mirror">五一劳动节前夕，劳动模范、知识分子、青年代表，这样的安排顺序…</a>
-</h2>
-<p>五一劳动节前夕，劳动模范、知识分子、青年代表，这样的安排顺序，才是考虑成熟周全。优秀知识分子也是劳动模范，有贡献劳动者，无论脑力还是体力，国家都应该重视。在其他国家，很少有单独把知识分子作为一个独立社会群体单独提出来的，我们这理论成就过时，内容狭隘没啥新意。</p>
-<p>
-	<small> ============== 9小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3970635279816757" target="freeweibo-mirror">//@渡江兄:是，成败都在此事件了。没出十年，就给自己定论了…</a>
-</h2>
-<p>//@渡江兄:是，成败都在此事件了。没出十年，就给自己定论了。//@喻晓峰N微博:我一直认为，平定64是小平同志为中国做的唯一的一件好事！！只有这件事才能称为功炳千秋！<br><br>RE: ［只能发图。。］某些人别老扯“重演”可能并不大的文革转移视线，还是扯扯多事之春的那一年，恐怕更具“预防重演”之意义吧？——当年若发展下去，中国会不会陷入混乱、分裂甚至内战？<br><img src="http://ww4.sinaimg.cn/large/6d88e352gw1f3gt1ttrwyj20qo1betke.jpg"></p>
-<p>
-	<small> ============== 9小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3970634109859672" target="freeweibo-mirror">//@辟谣与真相:那一年，藏独骚乱事件、民运学潮事件、某书事…</a>
-</h2>
-<p>//@辟谣与真相:那一年，藏独骚乱事件、民运学潮事件、某书事件。。很巧合的，集中发生了。。<br><br>RE: ［只能发图。。］某些人别老扯“重演”可能并不大的文革转移视线，还是扯扯多事之春的那一年，恐怕更具“预防重演”之意义吧？——当年若发展下去，中国会不会陷入混乱、分裂甚至内战？<br><img src="http://ww4.sinaimg.cn/large/6d88e352gw1f3gt1ttrwyj20qo1betke.jpg"></p>
 <p>
 	<small> ============== 9小时前</small>
 </p>
