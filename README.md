@@ -61,6 +61,12 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3970630187163104" target="freeweibo-mirror">官府说了算。【张鸣也指出，所谓“善意批评”和“出发点是好的”…</a>
+</h2>
+<p>官府说了算。【张鸣也指出，所谓“善意批评”和“出发点是好的”的批评要如何界定，恐怕难有客观标准。】联合早报</p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3970624940795030" target="freeweibo-mirror">［只能发图。。］某些人别老扯“重演”可能并不大的文革转移视线…</a>
 </h2>
 <p>［只能发图。。］某些人别老扯“重演”可能并不大的文革转移视线，还是扯扯多事之春的那一年，恐怕更具“预防重演”之意义吧？——当年若发展下去，中国会不会陷入混乱、分裂甚至内战？<br><img src="http://ww4.sinaimg.cn/large/6d88e352gw1f3gt1ttrwyj20qo1betke.jpg"></p>
@@ -89,7 +95,7 @@
 </h2>
 <p>SPAM 今天老郑的公众号写的是《谷歌之橘 百度成枳》：【南橘北枳的故事，放在谷歌和百度身上真是再合适不过。谷歌这些年搞了一大堆酷炫机器人、无人驾驶车、AlphaGo……百度也没闲着，努力深化了和莆田老军医的合作……】欢迎大家扫描第一个二维码给老郑打赏或者扫第二个二维码关注老郑公号。谢谢大家，祝五...全文： http://m.weibo.cn/1829464883/3970616048402443<br><img src="http://ww1.sinaimg.cn/large/6d0b6b33jw1f3gs1jv02gj20af0aiwf4.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3970608880466360" target="freeweibo-mirror">【2016年5月2日 早安香港】1.工联会发起游行，批评反对…</a>
 </h2>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3970483274079153" target="freeweibo-mirror">龙舟：什么样的人容易得抑郁症？ http://t.cn/Rq…</a>
 </h2>
 <p>龙舟：什么样的人容易得抑郁症？ http://t.cn/RqTGPhm （分享自@凤凰新闻客户端）<br><img src="http://ww1.sinaimg.cn/large/742b1583jw1f3gctexyhyj20760760sw.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3970478886483469" target="freeweibo-mirror">SPAM [兔子][兔子]挑选一双合适的脚，让你走在时尚最前…</a>
-</h2>
-<p>SPAM [兔子][兔子]挑选一双合适的脚，让你走在时尚最前端。薇   ❤ aixie33</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
