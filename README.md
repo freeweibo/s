@@ -77,7 +77,7 @@
 </h2>
 <p>官府说了算。【张鸣也指出，所谓“善意批评”和“出发点是好的”的批评要如何界定，恐怕难有客观标准。】联合早报</p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3970624940795030" target="freeweibo-mirror">［只能发图。。］某些人别老扯“重演”可能并不大的文革转移视线…</a>
 </h2>
@@ -131,7 +131,7 @@
 </h2>
 <p>SPAM 带你每天涨姿势[心]Tia102030</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3970561253654109" target="freeweibo-mirror">SPAM 我都快成作家了！又写了一宿！哎……</a>
 </h2>
