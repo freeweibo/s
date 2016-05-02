@@ -125,7 +125,7 @@
 </h2>
 <p>SPAM 我都快成作家了！又写了一宿！哎……</p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3970486646016868" target="freeweibo-mirror">天，才知道，宁夏公务员中回族比例居然已经占公务员总数54%以…</a>
 </h2>
