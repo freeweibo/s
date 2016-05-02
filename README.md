@@ -19,6 +19,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3970617667228794" target="freeweibo-mirror">SPAM 【台电信诈骗嫌犯：早知大陆会判刑肯定不敢做了】此前…</a>
+</h2>
+<p>SPAM 【台电信诈骗嫌犯：早知大陆会判刑肯定不敢做了】此前被遣返中国大陆的台湾嫌犯承认，台湾方面司法打击不力是导致电信诈骗猖獗的重要原因，“早知道会在大陆判刑，我肯定不敢再做了。”微评：此前大陆方面司法打击就有力了？如海口拆违一样，这么猖獗的电信诈骗，大陆受害人无数，是一天两天形成的？<br><img src="http://ww1.sinaimg.cn/large/4969c683gw1f3gs8exc31j205k05k74h.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3970616048402443" target="freeweibo-mirror">SPAM 今天老郑的公众号写的是《谷歌之橘 百度成枳》：【南…</a>
 </h2>
 <p>SPAM 今天老郑的公众号写的是《谷歌之橘 百度成枳》：【南橘北枳的故事，放在谷歌和百度身上真是再合适不过。谷歌这些年搞了一大堆酷炫机器人、无人驾驶车、AlphaGo……百度也没闲着，努力深化了和莆田老军医的合作……】欢迎大家扫描第一个二维码给老郑打赏或者扫第二个二维码关注老郑公号。谢谢大家，祝五...全文： http://m.weibo.cn/1829464883/3970616048402443<br><img src="http://ww1.sinaimg.cn/large/6d0b6b33jw1f3gs1jv02gj20af0aiwf4.jpg"></p>
@@ -53,7 +59,7 @@
 </h2>
 <p>SPAM 我都快成作家了！又写了一宿！哎……</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3970486646016868" target="freeweibo-mirror">天，才知道，宁夏公务员中回族比例居然已经占公务员总数54%以…</a>
 </h2>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3970430149106297" target="freeweibo-mirror">SPAM //@李翔196811: //@孔_智勇:[吃惊]…</a>
 </h2>
 <p>SPAM //@李翔196811: //@孔_智勇:[吃惊][吃惊][吃惊]这个位置……<br><br>RE: 发生了什么？为什么删了？<br><img src="http://ww1.sinaimg.cn/large/006gCweOjw1f3f5i9wssnj30k00zktdd.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3970429419215886" target="freeweibo-mirror">运气来了挡都挡不了[good] http://t.cn/Rq…</a>
-</h2>
-<p>运气来了挡都挡不了[good] http://t.cn/RqWrZbT</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
