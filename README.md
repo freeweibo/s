@@ -37,6 +37,12 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3970761574263763" target="freeweibo-mirror">净化网络，百度有责；治理医孬，国家有责。</a>
+</h2>
+<p>净化网络，百度有责；治理医孬，国家有责。<br><br>RE: #热点#【网信办牵头成立联合调查组进驻百度】国家网信办发言人姜军今天谈及“#魏则西事件#”指出，根据网民举报，国家网信办会同国家工商总局、国家卫生计生委成立联合调查组进驻百度公司，对此事件及互联网企业依法经营事项进行调查并依法处理。联合调查组将适时公布调查和处理结果。...全文： http://m.weibo.cn/1618051664/3970744822062905<br><img src="http://ww3.sinaimg.cn/large/60718250jw1f3h6u6a6tkj20go0go3zy.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3970753961332561" target="freeweibo-mirror">群众问一问：调查组可以去查查百度百科吗？</a>
 </h2>
 <p>群众问一问：调查组可以去查查百度百科吗？<br><br>RE: #热点#【网信办牵头成立联合调查组进驻百度】国家网信办发言人姜军今天谈及“#魏则西事件#”指出，根据网民举报，国家网信办会同国家工商总局、国家卫生计生委成立联合调查组进驻百度公司，对此事件及互联网企业依法经营事项进行调查并依法处理。联合调查组将适时公布调查和处理结果。...全文： http://m.weibo.cn/1618051664/3970744822062905<br><img src="http://ww3.sinaimg.cn/large/60718250jw1f3h6u6a6tkj20go0go3zy.jpg"></p>
@@ -67,23 +73,29 @@
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3970744196996235" target="freeweibo-mirror">//@IB林立人:？ //@羽博之://@花前一壶酒09: …</a>
+</h2>
+<p>//@IB林立人:？ //@羽博之://@花前一壶酒09: //@清-肺化-痰:玩命的节奏啊[衰][衰]<br><br>RE: 向着敌人的炮火前进、前进、前进进[笑cry][笑cry][笑cry] http://t.cn/RqTBOWN .</p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3970743539304432" target="freeweibo-mirror">耳不听为静，眼不见不烦？鸵鸟埋沙！[笑cry] //@可可-…</a>
 </h2>
 <p>耳不听为静，眼不见不烦？鸵鸟埋沙！[笑cry] //@可可-cm11://@50年矛苔: //@冰海雪涛44: 刚放的不打不扣不抓屁呢//@名阳豆: [衰] //@彭园v:转发微博</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3970743370954726" target="freeweibo-mirror">【任志强被处留党察看一年处分】中国有句话：说话不算话，不如活…</a>
 </h2>
 <p>【任志强被处留党察看一年处分】中国有句话：说话不算话，不如活王八！任志强留党察看一年，让探花想起@侠骨柔情的杨华 发誓不开除任志强党籍就退出微博的誓言！！现在，请科长出来走两步呗[酷][酷][酷]<br><img src="http://ww4.sinaimg.cn/large/006ryANOjw1f3h6oqsrszj30qo1be13q.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3970743362345960" target="freeweibo-mirror">SPAM </a>
 </h2>
 <p>SPAM </p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3970742305488821" target="freeweibo-mirror">SPAM 任他炮火足，还是得服区委管。</a>
 </h2>
@@ -126,18 +138,6 @@
 <p>//@郑维:回复@_Gardner_:恢复他的微博，让他每天写点察看中的反思也教育一下我们嘛[挖鼻]//@_Gardner_:恢复其微博吧<br><br>RE: 任志强留党察看，还是同志嘛[good]<br><img src="http://ww3.sinaimg.cn/large/6d0b6b33gw1f3h4gk1h96j20ku112jyp.jpg"></p>
 <p>
 	<small> ============== 4小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3970728086218851" target="freeweibo-mirror">SPAM //@明厂2175872133:海南人都还没有被奴…</a>
-</h2>
-<p>SPAM //@明厂2175872133:海南人都还没有被奴役过 反抗精神还在<br><br>RE: 向着敌人的炮火前进、前进、前进进[笑cry][笑cry][笑cry] http://t.cn/RqTBOWN .</p>
-<p>
-	<small> ============== 4小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3970726992178645" target="freeweibo-mirror">让他离“群众”远点儿也好。党更需要他//@今日:转发微博</a>
-</h2>
-<p>让他离“群众”远点儿也好。党更需要他//@今日:转发微博<br><br>RE: 任志强留党察看，还是同志嘛[good]<br><img src="http://ww3.sinaimg.cn/large/6d0b6b33gw1f3h4gk1h96j20ku112jyp.jpg"></p>
-<p>
-	<small> ============== 5小时前</small>
 </p>
 <table>
     <tr>
