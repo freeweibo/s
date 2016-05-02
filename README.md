@@ -49,6 +49,12 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3970633648172722" target="freeweibo-mirror">为何不是独立第三方比如受众说了算？批评者和被批评对象都是当事…</a>
+</h2>
+<p>为何不是独立第三方比如受众说了算？批评者和被批评对象都是当事人，应回避，是否善意 出发点是否好应该由中立客观理性的第三方来判断，才比较合理，也能够服众。比如任志强 贺卫方是否善意，让广大群众判断不好吗？<br><br>RE: 官府说了算。【张鸣也指出，所谓“善意批评”和“出发点是好的”的批评要如何界定，恐怕难有客观标准。】联合早报</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3970633320973094" target="freeweibo-mirror">喊着拥护党的口号让党替他们杀人，标准套路 //@中科大胡不归…</a>
 </h2>
 <p>喊着拥护党的口号让党替他们杀人，标准套路 //@中科大胡不归:喊着拥护党的口号让党替他们杀人，标准套路<br><br>RE: ［只能发图。。］某些人别老扯“重演”可能并不大的文革转移视线，还是扯扯多事之春的那一年，恐怕更具“预防重演”之意义吧？——当年若发展下去，中国会不会陷入混乱、分裂甚至内战？<br><img src="http://ww4.sinaimg.cn/large/6d88e352gw1f3gt1ttrwyj20qo1betke.jpg"></p>
@@ -119,7 +125,7 @@
 </h2>
 <p>天，才知道，宁夏公务员中回族比例居然已经占公务员总数54%以上了，而宁夏全区回族占总人口比例只有35.7%.也就是说。宁夏的公务员中回族比例比人口比例要高将近20个百分点！！！太黑了吧。利用加分（百分制）政策清洗汉族。怪不得什么都清真优先，全是回回干部了，特么已经光膀子搞宁夏斯坦国。<br><img src="http://ww4.sinaimg.cn/large/ea0d1c25gw1f3gd6ofxqzj20he08vmya.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3970483274079153" target="freeweibo-mirror">龙舟：什么样的人容易得抑郁症？ http://t.cn/Rq…</a>
 </h2>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3970478886483469" target="freeweibo-mirror">SPAM [兔子][兔子]挑选一双合适的脚，让你走在时尚最前…</a>
 </h2>
 <p>SPAM [兔子][兔子]挑选一双合适的脚，让你走在时尚最前端。薇   ❤ aixie33</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3970473471852056" target="freeweibo-mirror">SPAM 胃信：icplove，拿不完的情侣头像等你来。[来…</a>
-</h2>
-<p>SPAM 胃信：icplove，拿不完的情侣头像等你来。[来]</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
