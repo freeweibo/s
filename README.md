@@ -19,6 +19,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3970839412115076" target="freeweibo-mirror">好多穆斯林粉丝跑来劝我：你少说几句，怕你被封号。我的回答是：…</a>
+</h2>
+<p>好多穆斯林粉丝跑来劝我：你少说几句，怕你被封号。我的回答是：公元6-7世纪以来，我们就整天被封号。这有什么了不起。1500年来，他们都不见了，我们还在。一切赞美，归于安拉。</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3970833821219049" target="freeweibo-mirror">SPAM [good][good]</a>
 </h2>
 <p>SPAM [good][good]<br><br>RE: 不让百度蒙眼，呼吁解禁谷歌！【本博发起签名活动，转发视作签名，请转发！希望政府听见！】</p>
@@ -77,7 +83,7 @@
 </h2>
 <p>//@爱红色: //@v刘海军v: //@勇敢的春之声2015:转发微博<br><br>RE: 据说反党分子都可以留党察看，真是个冷笑话！浩浩荡荡8000万，如此从严治理，你让天下苍生看不到希望！父辈们万里长征的路白走了，不肖子孙啊。<br><img src="http://ww1.sinaimg.cn/large/86ef7e03gw1f3h98lurzej20j60d6q5t.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3970786509824167" target="freeweibo-mirror">一个时代会有一个时代的标志性人物，所谓时势造英雄是也。 //…</a>
 </h2>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3970772693039322" target="freeweibo-mirror">假设：百度是一只狗，谷歌也是一只狗，结论：两只狗总比一只狗好…</a>
 </h2>
 <p>假设：百度是一只狗，谷歌也是一只狗，结论：两只狗总比一只狗好//@支支V: 转发微博</p>
-<p>
-	<small> ============== 6小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3970769652395697" target="freeweibo-mirror">没有军委，国务院系统的调查组是进不了武警二院的。纵容未经检验…</a>
-</h2>
-<p>没有军委，国务院系统的调查组是进不了武警二院的。纵容未经检验疗法在市场上横行的卫计委跑去调查别人……[生病]</p>
 <p>
 	<small> ============== 7小时前</small>
 </p>
