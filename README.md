@@ -41,7 +41,7 @@
 </h2>
 <p>SPAM 以后，这样的话怕也不能说了！</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3970732424291260" target="freeweibo-mirror">SPAM 察看一年，改了还是好同志！</a>
 </h2>
