@@ -71,7 +71,7 @@
 </h2>
 <p>看了半天评论，怎么都是巴望着杨科长早走的呢？</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3970775977456503" target="freeweibo-mirror">有点晕！//@刘军宁:是啊，为何不查武......？？？//…</a>
 </h2>
@@ -113,13 +113,13 @@
 </h2>
 <p>据说反党分子都可以留党察看，真是个冷笑话！浩浩荡荡8000万，如此从严治理，你让天下苍生看不到希望！父辈们万里长征的路白走了，不肖子孙啊。<br><img src="http://ww1.sinaimg.cn/large/86ef7e03gw1f3h98lurzej20j60d6q5t.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3970765525001801" target="freeweibo-mirror">//@杜子建:他只是心中愤恨，随口一说，不要当真！</a>
 </h2>
 <p>//@杜子建:他只是心中愤恨，随口一说，不要当真！</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3970765265806003" target="freeweibo-mirror">//@记者谈春平: 徐老师给你恢复视频了？我的没恢复  ht…</a>
 </h2>
