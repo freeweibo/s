@@ -71,7 +71,7 @@
 </h2>
 <p>//@湖嗨散人:回复@BlackwaterN22:[哈哈] //@BlackwaterN22:不抓辫子不扣帽子不打棍子[哈哈][哈哈]<br><br>RE: 【任志强处理结果出来了，你满意吗？】华远集团原党委副书记、董事长任志强同志多次在微博、博客等网络平台和其他公开场合公开发表违背四项基本原则、违背党的路线方针政策等方面的错误言论，其行为严重违反党的政治纪律，决定给予任志强同志留党察看一年处分。<br><img src="http://ww3.sinaimg.cn/large/4659d332gw1f3h3kga7s0j207f0643yo.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3970724312409480" target="freeweibo-mirror">[话筒]//@华之梁: 党员留党察看处分期间，没有表决权、选…</a>
 </h2>
@@ -103,6 +103,12 @@
 <p>
 	<small> ============== 4小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3970717332566049" target="freeweibo-mirror">留党察看一年！</a>
+</h2>
+<p>留党察看一年！</p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3970716955817469" target="freeweibo-mirror">华远集团原党委副书记、董事长任志强同志多次在微博、博客等网络…</a>
 </h2>
 <p>华远集团原党委副书记、董事长任志强同志多次在微博、博客等网络平台和其他公开场合公开发表违背四项基本原则、违背党的路线方针政策等方面的错误言论，其行为严重违反党的政治纪律，决定给予任志强同志留党察看一年处分。</p>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3970640547603347" target="freeweibo-mirror">老公财 大器 粗，活好，婚后一直欲 罢不能！但就是需求太大，…</a>
 </h2>
 <p>老公财 大器 粗，活好，婚后一直欲 罢不能！但就是需求太大，我满足不了，该怎么办？<br><img src="http://ww2.sinaimg.cn/large/ed7baa2cgw1f3guvi864bj20c4aasb2c.jpg"></p>
-<p>
-	<small> ============== 9小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3970638026204331" target="freeweibo-mirror">SPAM 【参与口碑互动赢大奖】即日起至5月10日手机加关注…</a>
-</h2>
-<p>SPAM 【参与口碑互动赢大奖】即日起至5月10日手机加关注"家电派"微信公众号，并在微信中回复您的消费心愿，就有机会赢取美的电子秤,京东200元购物券等丰厚奖品！转发此条信息@ 三位好友,我们还将抽出三位幸运达人,送上50元京东购物券,数量有限先到先得,请赶快行动吧!<br><img src="http://ww1.sinaimg.cn/large/80c5185bjw1f3gul1g0dzj20hs1e07bj.jpg"></p>
 <p>
 	<small> ============== 9小时前</small>
 </p>
