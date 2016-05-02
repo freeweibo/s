@@ -125,7 +125,7 @@
 </h2>
 <p>武警二院是否需要调查？</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3970761574263763" target="freeweibo-mirror">净化网络，百度有责；治理医孬，国家有责。</a>
 </h2>
