@@ -23,7 +23,7 @@
 </h2>
 <p>SPAM //@苏州常熟徐文石: //@夙生律师事务所: //@云韵峰: 转发一下<br><br>RE: 【任志强被处留党察看一年处分】中国有句话：说话不算话，不如活王八！任志强留党察看一年，让探花想起@侠骨柔情的杨华 发誓不开除任志强党籍就退出微博的誓言！！现在，请科长出来走两步呗[酷][酷][酷]<br><img src="http://ww4.sinaimg.cn/large/006ryANOjw1f3h6oqsrszj30qo1be13q.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3970753961332561" target="freeweibo-mirror">群众问一问：调查组可以去查查百度百科吗？</a>
 </h2>
@@ -77,7 +77,7 @@
 </h2>
 <p>SPAM [吃惊][吃惊][吃惊] //@周泽律师:以后，这样的话怕也不能说了！</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3970733652671762" target="freeweibo-mirror">SPAM 以后，这样的话怕也不能说了！</a>
 </h2>
