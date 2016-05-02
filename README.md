@@ -23,7 +23,7 @@
 </h2>
 <p>//@爱红色: //@v刘海军v: //@勇敢的春之声2015:转发微博<br><br>RE: 据说反党分子都可以留党察看，真是个冷笑话！浩浩荡荡8000万，如此从严治理，你让天下苍生看不到希望！父辈们万里长征的路白走了，不肖子孙啊。<br><img src="http://ww1.sinaimg.cn/large/86ef7e03gw1f3h98lurzej20j60d6q5t.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3970786509824167" target="freeweibo-mirror">一个时代会有一个时代的标志性人物，所谓时势造英雄是也。 //…</a>
 </h2>
@@ -61,6 +61,12 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3970775977456503" target="freeweibo-mirror">有点晕！//@刘军宁:是啊，为何不查武......？？？//…</a>
+</h2>
+<p>有点晕！//@刘军宁:是啊，为何不查武......？？？//@柳刀叶://@罗昌平:谁去调查武警二院？</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3970775914980626" target="freeweibo-mirror">来一个留博观察？[笑cry][笑cry][笑cry]//@阿…</a>
 </h2>
 <p>来一个留博观察？[笑cry][笑cry][笑cry]//@阿忆:别废话，履行诺言吧，赶快。</p>
@@ -71,7 +77,7 @@
 </h2>
 <p>假设：百度是一只狗，谷歌也是一只狗，结论：两只狗总比一只狗好//@支支V: 转发微博</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3970769652395697" target="freeweibo-mirror">没有军委，国务院系统的调查组是进不了武警二院的。纵容未经检验…</a>
 </h2>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3970761506770572" target="freeweibo-mirror">SPAM 我参与了@于海青 发起的投票 【#魏则西事件调查#…</a>
 </h2>
 <p>SPAM 我参与了@于海青 发起的投票 【#魏则西事件调查#你的观点你做主！】，我投给了“严惩涉事医院。”这个选项。你也快来表态吧~<br><br>RE: 我发起了一个投票 【#魏则西事件调查#你的观点你做主！】http://t.cn/RqTkuGi</p>
-<p>
-	<small> ============== 3小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3970761465099312" target="freeweibo-mirror">//@蘑菇与雲: //@晓雨闻铃:武警二院归谁管？</a>
-</h2>
-<p>//@蘑菇与雲: //@晓雨闻铃:武警二院归谁管？</p>
 <p>
 	<small> ============== 3小时前</small>
 </p>
