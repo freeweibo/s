@@ -41,7 +41,7 @@
 </h2>
 <p>这回我支持葛老师//@廣州大聲書店: 转发微博<br><br>RE: 不让百度蒙眼，呼吁解禁谷歌！【本博发起签名活动，转发视作签名，请转发！希望政府听见！】</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3970820756428430" target="freeweibo-mirror">SPAM //@乐淳律师://@初创江湖://@天人合一之境…</a>
 </h2>
@@ -52,6 +52,12 @@
 	<a href="https://freeweibo.com/weibo/3970806281045321" target="freeweibo-mirror">想看</a>
 </h2>
 <p>想看</p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3970799456937800" target="freeweibo-mirror">SPAM 解禁谷歌！//@余胜海:呼吁解禁谷歌!#听海观潮#…</a>
+</h2>
+<p>SPAM 解禁谷歌！//@余胜海:呼吁解禁谷歌!#听海观潮#//@钱中华://@腾晓东:支持！对于现代商业活动，谷歌是一个必不可少的工具。[good] //@王周生:坚决支持葛红兵教授的呼吁，政府应该听听民众的声音！<br><br>RE: 不让百度蒙眼，呼吁解禁谷歌！【本博发起签名活动，转发视作签名，请转发！希望政府听见！】</p>
 <p>
 	<small> ============== 4小时前</small>
 </p><h2>
@@ -107,7 +113,7 @@
 </h2>
 <p>看了半天评论，怎么都是巴望着杨科长早走的呢？</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3970775977456503" target="freeweibo-mirror">有点晕！//@刘军宁:是啊，为何不查武......？？？//…</a>
 </h2>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3970769652395697" target="freeweibo-mirror">没有军委，国务院系统的调查组是进不了武警二院的。纵容未经检验…</a>
 </h2>
 <p>没有军委，国务院系统的调查组是进不了武警二院的。纵容未经检验疗法在市场上横行的卫计委跑去调查别人……[生病]</p>
-<p>
-	<small> ============== 6小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3970769271129276" target="freeweibo-mirror">SPAM 估计以后砖头和鞭炮也要实名制了</a>
-</h2>
-<p>SPAM 估计以后砖头和鞭炮也要实名制了<br><br>RE: 向着敌人的炮火前进、前进、前进进[笑cry][笑cry][笑cry] http://t.cn/RqTBOWN .</p>
 <p>
 	<small> ============== 6小时前</small>
 </p>
