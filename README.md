@@ -23,7 +23,7 @@
 </h2>
 <p>SPAM 未名湖畔的痛哭——读林昭1958年5月4日给妹妹的信 - 教育 - 共识网—在大变革时代寻找共识 http://t.cn/RqTHncQ<br><img src="http://ww2.sinaimg.cn/large/669f7f54jw1f3guwn85gcj202z02zt8m.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3970638026204331" target="freeweibo-mirror">SPAM 【参与口碑互动赢大奖】即日起至5月10日手机加关注…</a>
 </h2>
@@ -71,7 +71,7 @@
 </h2>
 <p>［只能发图。。］某些人别老扯“重演”可能并不大的文革转移视线，还是扯扯多事之春的那一年，恐怕更具“预防重演”之意义吧？——当年若发展下去，中国会不会陷入混乱、分裂甚至内战？<br><img src="http://ww4.sinaimg.cn/large/6d88e352gw1f3gt1ttrwyj20qo1betke.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3970622662669149" target="freeweibo-mirror">#丝路驿站 塞上江南#【铁路银川站"官方微信平台】平台设置了…</a>
 </h2>
@@ -107,7 +107,7 @@
 </h2>
 <p>//@王小东:耀邦那时中央政策延续下来的//@恶魔吹着钢管来:南疆不就是这样的吗？南疆的汉族官员只有最上层，中层和基层都是维族，官员下乡进村入驻是最近几年才发生的事情，但因语言不通和排斥，即使入驻也是被架空又接触不到太多的实情，宁夏的未来也许就是南疆的现在</p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3970588043793027" target="freeweibo-mirror">SPAM [衰][悲伤]//@李大大263:"一个典型的中国…</a>
 </h2>
