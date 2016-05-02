@@ -37,6 +37,12 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3970826224730705" target="freeweibo-mirror">这回我支持葛老师//@廣州大聲書店: 转发微博</a>
+</h2>
+<p>这回我支持葛老师//@廣州大聲書店: 转发微博<br><br>RE: 不让百度蒙眼，呼吁解禁谷歌！【本博发起签名活动，转发视作签名，请转发！希望政府听见！】</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3970820756428430" target="freeweibo-mirror">SPAM //@乐淳律师://@初创江湖://@天人合一之境…</a>
 </h2>
 <p>SPAM //@乐淳律师://@初创江湖://@天人合一之境://@余胜海: 呼吁解禁谷歌!#听海观潮#//@钱中华://@腾晓东:支持！对于现代商业活动，谷歌是一个必不可少的工具。[good] //@王周生:坚决支持葛红兵教授的呼吁，政府应该听听民众的声音！<br><br>RE: 不让百度蒙眼，呼吁解禁谷歌！【本博发起签名活动，转发视作签名，请转发！希望政府听见！】</p>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3970769271129276" target="freeweibo-mirror">SPAM 估计以后砖头和鞭炮也要实名制了</a>
 </h2>
 <p>SPAM 估计以后砖头和鞭炮也要实名制了<br><br>RE: 向着敌人的炮火前进、前进、前进进[笑cry][笑cry][笑cry] http://t.cn/RqTBOWN .</p>
-<p>
-	<small> ============== 6小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3970767328954382" target="freeweibo-mirror">SPAM //@苏州常熟徐文石: //@夙生律师事务所: /…</a>
-</h2>
-<p>SPAM //@苏州常熟徐文石: //@夙生律师事务所: //@云韵峰: 转发一下<br><br>RE: 【任志强被处留党察看一年处分】中国有句话：说话不算话，不如活王八！任志强留党察看一年，让探花想起@侠骨柔情的杨华 发誓不开除任志强党籍就退出微博的誓言！！现在，请科长出来走两步呗[酷][酷][酷]<br><img src="http://ww4.sinaimg.cn/large/006ryANOjw1f3h6oqsrszj30qo1be13q.jpg"></p>
 <p>
 	<small> ============== 6小时前</small>
 </p>
