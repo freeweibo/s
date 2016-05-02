@@ -29,7 +29,7 @@
 </h2>
 <p>SPAM 任他炮火足，还是得服区委管。<br><br>RE: 任志强留党察看，还是同志嘛[good]<br><img src="http://ww3.sinaimg.cn/large/6d0b6b33gw1f3h4gk1h96j20ku112jyp.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3970736656208727" target="freeweibo-mirror">SPAM [吃惊][吃惊][吃惊] //@周泽律师:以后，这…</a>
 </h2>
@@ -65,7 +65,7 @@
 </h2>
 <p>让他离“群众”远点儿也好。党更需要他//@今日:转发微博<br><br>RE: 任志强留党察看，还是同志嘛[good]<br><img src="http://ww3.sinaimg.cn/large/6d0b6b33gw1f3h4gk1h96j20ku112jyp.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3970725188791856" target="freeweibo-mirror">//@湖嗨散人:回复@BlackwaterN22:[哈哈] …</a>
 </h2>
