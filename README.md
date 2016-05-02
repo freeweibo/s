@@ -59,7 +59,7 @@
 </h2>
 <p>想看</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3970799456937800" target="freeweibo-mirror">SPAM 解禁谷歌！//@余胜海:呼吁解禁谷歌!#听海观潮#…</a>
 </h2>
@@ -125,13 +125,13 @@
 </h2>
 <p>有点晕！//@刘军宁:是啊，为何不查武......？？？//@柳刀叶://@罗昌平:谁去调查武警二院？</p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3970775914980626" target="freeweibo-mirror">来一个留博观察？[笑cry][笑cry][笑cry]//@阿…</a>
 </h2>
 <p>来一个留博观察？[笑cry][笑cry][笑cry]//@阿忆:别废话，履行诺言吧，赶快。</p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3970772693039322" target="freeweibo-mirror">假设：百度是一只狗，谷歌也是一只狗，结论：两只狗总比一只狗好…</a>
 </h2>
