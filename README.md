@@ -113,7 +113,7 @@
 </h2>
 <p>龙舟：什么样的人容易得抑郁症？ http://t.cn/RqTGPhm （分享自@凤凰新闻客户端）<br><img src="http://ww1.sinaimg.cn/large/742b1583jw1f3gctexyhyj20760760sw.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3970478886483469" target="freeweibo-mirror">SPAM [兔子][兔子]挑选一双合适的脚，让你走在时尚最前…</a>
 </h2>
