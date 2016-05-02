@@ -29,7 +29,7 @@
 </h2>
 <p>SPAM [good][good]<br><br>RE: 不让百度蒙眼，呼吁解禁谷歌！【本博发起签名活动，转发视作签名，请转发！希望政府听见！】</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3970829479619946" target="freeweibo-mirror">SPAM //@一品泥人://@南开老魏034:[话筒]//…</a>
 </h2>
