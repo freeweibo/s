@@ -77,19 +77,19 @@
 </h2>
 <p>[话筒]//@华之梁: 党员留党察看处分期间，没有表决权、选举权和被选举权。留党察看期间，确有悔改表现的，期满后恢复其党员权利；坚持不改或者又发现其他应受党纪处分的违纪行为的，应当开除党籍。<br><br>RE: 留党察看一年！</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3970724252842279" target="freeweibo-mirror">//@老实人半大老头:让你提意见，是让你歌功颂德。</a>
 </h2>
 <p>//@老实人半大老头:让你提意见，是让你歌功颂德。<br><br>RE: 【任志强处理结果出来了，你满意吗？】华远集团原党委副书记、董事长任志强同志多次在微博、博客等网络平台和其他公开场合公开发表违背四项基本原则、违背党的路线方针政策等方面的错误言论，其行为严重违反党的政治纪律，决定给予任志强同志留党察看一年处分。<br><img src="http://ww3.sinaimg.cn/large/4659d332gw1f3h3kga7s0j207f0643yo.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3970724173952727" target="freeweibo-mirror">任志强留党察看，还是同志嘛[good]</a>
 </h2>
 <p>任志强留党察看，还是同志嘛[good]<br><img src="http://ww3.sinaimg.cn/large/6d0b6b33gw1f3h4gk1h96j20ku112jyp.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3970723577945042" target="freeweibo-mirror">堂弟问：有什么感想？我说：关键的意义，是党组织亮出了大是大非…</a>
 </h2>
