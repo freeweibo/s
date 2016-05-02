@@ -53,7 +53,7 @@
 </h2>
 <p>//@郑维:回复@_Gardner_:恢复他的微博，让他每天写点察看中的反思也教育一下我们嘛[挖鼻]//@_Gardner_:恢复其微博吧<br><br>RE: 任志强留党察看，还是同志嘛[good]<br><img src="http://ww3.sinaimg.cn/large/6d0b6b33gw1f3h4gk1h96j20ku112jyp.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3970726992178645" target="freeweibo-mirror">让他离“群众”远点儿也好。党更需要他//@今日:转发微博</a>
 </h2>
