@@ -47,7 +47,7 @@
 </h2>
 <p>SPAM 察看一年，改了还是好同志！<br><br>RE: 任志强留党察看，还是同志嘛[good]<br><img src="http://ww3.sinaimg.cn/large/6d0b6b33gw1f3h4gk1h96j20ku112jyp.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3970729802182198" target="freeweibo-mirror">//@郑维:回复@_Gardner_:恢复他的微博，让他每天…</a>
 </h2>
@@ -89,7 +89,7 @@
 </h2>
 <p>华远集团原党委副书记、董事长任志强同志多次在微博、博客等网络平台和其他公开场合公开发表违背四项基本原则、违背党的路线方针政策等方面的错误言论，其行为严重违反党的政治纪律，决定给予任志强同志留党察看一年处分。</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3970716313404269" target="freeweibo-mirror">SPAM #恋爱大作战# 我和女朋友异地恋......</a>
 </h2>
