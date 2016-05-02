@@ -25,6 +25,18 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3970638026204331" target="freeweibo-mirror">SPAM 【参与口碑互动赢大奖】即日起至5月10日手机加关注…</a>
+</h2>
+<p>SPAM 【参与口碑互动赢大奖】即日起至5月10日手机加关注"家电派"微信公众号，并在微信中回复您的消费心愿，就有机会赢取美的电子秤,京东200元购物券等丰厚奖品！转发此条信息@ 三位好友,我们还将抽出三位幸运达人,送上50元京东购物券,数量有限先到先得,请赶快行动吧!<br><img src="http://ww1.sinaimg.cn/large/80c5185bjw1f3gul1g0dzj20hs1e07bj.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3970637599420321" target="freeweibo-mirror">五一劳动节前夕，劳动模范、知识分子、青年代表，这样的安排顺序…</a>
+</h2>
+<p>五一劳动节前夕，劳动模范、知识分子、青年代表，这样的安排顺序，才是考虑成熟周全。优秀知识分子也是劳动模范，有贡献劳动者，无论脑力还是体力，国家都应该重视。在其他国家，很少有单独把知识分子作为一个独立社会群体单独提出来的，我们这理论成就过时，内容狭隘没啥新意。</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3970635279816757" target="freeweibo-mirror">//@渡江兄:是，成败都在此事件了。没出十年，就给自己定论了…</a>
 </h2>
 <p>//@渡江兄:是，成败都在此事件了。没出十年，就给自己定论了。//@喻晓峰N微博:我一直认为，平定64是小平同志为中国做的唯一的一件好事！！只有这件事才能称为功炳千秋！<br><br>RE: ［只能发图。。］某些人别老扯“重演”可能并不大的文革转移视线，还是扯扯多事之春的那一年，恐怕更具“预防重演”之意义吧？——当年若发展下去，中国会不会陷入混乱、分裂甚至内战？<br><img src="http://ww4.sinaimg.cn/large/6d88e352gw1f3gt1ttrwyj20qo1betke.jpg"></p>
@@ -124,18 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3970473471852056" target="freeweibo-mirror">SPAM 胃信：icplove，拿不完的情侣头像等你来。[来…</a>
 </h2>
 <p>SPAM 胃信：icplove，拿不完的情侣头像等你来。[来]</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3970468652722666" target="freeweibo-mirror">SPAM http://t.cn/RqTaqQt  韩国小鲜…</a>
-</h2>
-<p>SPAM http://t.cn/RqTaqQt  韩国小鲜肉！！！！A-JAX组合[色] 关注“岭南音乐风”微信公众号，留言“我要票”呀！！！就有机会见到欧巴们啦[色]<br><img src="http://ww2.sinaimg.cn/large/6fff71b2gw1f3gb4k20yhj20nu0dkwjv.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3970459596559478" target="freeweibo-mirror">SPAM 专治男性各种性功能障碍，阳痿、早泄、疲软、勃起不坚…</a>
-</h2>
-<p>SPAM 专治男性各种性功能障碍，阳痿、早泄、疲软、勃起不坚，房事时间少于20分钟 ，过度手淫致阴茎短小、萎缩、发育不良，无精少精、射精无力，尿频尿急，肾虚遗精，阴囊潮湿，前列腺炎，性冷淡，夫妻性生活不和谐，长期吃（伟哥）害怕依赖和副作用。本产品为印度原装进口，纯天然草本提取，无副作用，无依...全文： http://m.weibo.cn/2178126947/3970459596559478<br><img src="http://ww1.sinaimg.cn/large/81d39463jw1f3ga2h8bj0j20by0bygm8.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
