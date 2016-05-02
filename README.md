@@ -31,6 +31,12 @@
 <p>
 	<small> ============== 1小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3970624940795030" target="freeweibo-mirror">［只能发图。。］某些人别老扯“重演”可能并不大的文革转移视线…</a>
+</h2>
+<p>［只能发图。。］某些人别老扯“重演”可能并不大的文革转移视线，还是扯扯多事之春的那一年，恐怕更具“预防重演”之意义吧？——当年若发展下去，中国会不会陷入混乱、分裂甚至内战？<br><img src="http://ww4.sinaimg.cn/large/6d88e352gw1f3gt1ttrwyj20qo1betke.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3970622662669149" target="freeweibo-mirror">#丝路驿站 塞上江南#【铁路银川站"官方微信平台】平台设置了…</a>
 </h2>
 <p>#丝路驿站 塞上江南#【铁路银川站"官方微信平台】平台设置了车站介绍、购票指南、乘车资讯三个栏目,每个栏目都提供了一些服务栏目,比如“基本介绍”、“购票方式”、“退票改签”、“列车时刻表”等方便旅客乘车购票查询。<br><img src="http://ww1.sinaimg.cn/large/9ae2e23bjw1f3gstor9d5j20by0byq3k.jpg"></p>
@@ -53,7 +59,7 @@
 </h2>
 <p>SPAM 今天老郑的公众号写的是《谷歌之橘 百度成枳》：【南橘北枳的故事，放在谷歌和百度身上真是再合适不过。谷歌这些年搞了一大堆酷炫机器人、无人驾驶车、AlphaGo……百度也没闲着，努力深化了和莆田老军医的合作……】欢迎大家扫描第一个二维码给老郑打赏或者扫第二个二维码关注老郑公号。谢谢大家，祝五...全文： http://m.weibo.cn/1829464883/3970616048402443<br><img src="http://ww1.sinaimg.cn/large/6d0b6b33jw1f3gs1jv02gj20af0aiwf4.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3970608880466360" target="freeweibo-mirror">【2016年5月2日 早安香港】1.工联会发起游行，批评反对…</a>
 </h2>
@@ -107,7 +113,7 @@
 </h2>
 <p>SPAM 胃信：icplove，拿不完的情侣头像等你来。[来]</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3970468652722666" target="freeweibo-mirror">SPAM http://t.cn/RqTaqQt  韩国小鲜…</a>
 </h2>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3970452190114257" target="freeweibo-mirror">SPAM 欢迎关注我的微信公众号#练依朋的心灵花园#提前了解…</a>
 </h2>
 <p>SPAM 欢迎关注我的微信公众号#练依朋的心灵花园#提前了解节目主题、歌单查询、情感咨询.....[心][心][心]保存此二维码，打开你的微信扫一扫功能，点击右上角，导入已保存的二维码图片[耶]就这样咱们可以微信互动啦！[奥特曼][威武]<br><img src="http://ww1.sinaimg.cn/large/543403bejw1f3g98w2yt7j215716ynar.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3970441373247460" target="freeweibo-mirror">//@陆亚明:[怒]//@何兵:碰上官府违法犯罪的，网上的法…</a>
-</h2>
-<p>//@陆亚明:[怒]//@何兵:碰上官府违法犯罪的，网上的法官和检察官，全缩头了。<br><br>RE: 将非法施暴说成是不文明执法，这是中国特色；将有组织犯罪说成是临时工失控，更是中国特色。</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
