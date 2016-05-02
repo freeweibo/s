@@ -19,6 +19,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3970716313404269" target="freeweibo-mirror">SPAM #恋爱大作战# 我和女朋友异地恋......</a>
+</h2>
+<p>SPAM #恋爱大作战# 我和女朋友异地恋......<br><img src="http://ww2.sinaimg.cn/large/b28db48cjw1f3g8dr6768j20ph0wb7aw.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3970640786602163" target="freeweibo-mirror">SPAM 未名湖畔的痛哭——读林昭1958年5月4日给妹妹的…</a>
 </h2>
 <p>SPAM 未名湖畔的痛哭——读林昭1958年5月4日给妹妹的信 - 教育 - 共识网—在大变革时代寻找共识 http://t.cn/RqTHncQ<br><img src="http://ww2.sinaimg.cn/large/669f7f54jw1f3guwn85gcj202z02zt8m.jpg"></p>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3970561253654109" target="freeweibo-mirror">SPAM 我都快成作家了！又写了一宿！哎……</a>
 </h2>
 <p>SPAM 我都快成作家了！又写了一宿！哎……</p>
-<p>
-	<small> ============== 12小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3970486646016868" target="freeweibo-mirror">天，才知道，宁夏公务员中回族比例居然已经占公务员总数54%以…</a>
-</h2>
-<p>天，才知道，宁夏公务员中回族比例居然已经占公务员总数54%以上了，而宁夏全区回族占总人口比例只有35.7%.也就是说。宁夏的公务员中回族比例比人口比例要高将近20个百分点！！！太黑了吧。利用加分（百分制）政策清洗汉族。怪不得什么都清真优先，全是回回干部了，特么已经光膀子搞宁夏斯坦国。<br><img src="http://ww4.sinaimg.cn/large/ea0d1c25gw1f3gd6ofxqzj20he08vmya.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
