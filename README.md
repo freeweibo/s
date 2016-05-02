@@ -19,6 +19,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3970640786602163" target="freeweibo-mirror">SPAM 未名湖畔的痛哭——读林昭1958年5月4日给妹妹的…</a>
+</h2>
+<p>SPAM 未名湖畔的痛哭——读林昭1958年5月4日给妹妹的信 - 教育 - 共识网—在大变革时代寻找共识 http://t.cn/RqTHncQ<br><img src="http://ww2.sinaimg.cn/large/669f7f54jw1f3guwn85gcj202z02zt8m.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3970635279816757" target="freeweibo-mirror">//@渡江兄:是，成败都在此事件了。没出十年，就给自己定论了…</a>
 </h2>
 <p>//@渡江兄:是，成败都在此事件了。没出十年，就给自己定论了。//@喻晓峰N微博:我一直认为，平定64是小平同志为中国做的唯一的一件好事！！只有这件事才能称为功炳千秋！<br><br>RE: ［只能发图。。］某些人别老扯“重演”可能并不大的文革转移视线，还是扯扯多事之春的那一年，恐怕更具“预防重演”之意义吧？——当年若发展下去，中国会不会陷入混乱、分裂甚至内战？<br><img src="http://ww4.sinaimg.cn/large/6d88e352gw1f3gt1ttrwyj20qo1betke.jpg"></p>
@@ -28,6 +34,12 @@
 	<a href="https://freeweibo.com/weibo/3970634109859672" target="freeweibo-mirror">//@辟谣与真相:那一年，藏独骚乱事件、民运学潮事件、某书事…</a>
 </h2>
 <p>//@辟谣与真相:那一年，藏独骚乱事件、民运学潮事件、某书事件。。很巧合的，集中发生了。。<br><br>RE: ［只能发图。。］某些人别老扯“重演”可能并不大的文革转移视线，还是扯扯多事之春的那一年，恐怕更具“预防重演”之意义吧？——当年若发展下去，中国会不会陷入混乱、分裂甚至内战？<br><img src="http://ww4.sinaimg.cn/large/6d88e352gw1f3gt1ttrwyj20qo1betke.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3970633320973094" target="freeweibo-mirror">喊着拥护党的口号让党替他们杀人，标准套路 //@中科大胡不归…</a>
+</h2>
+<p>喊着拥护党的口号让党替他们杀人，标准套路 //@中科大胡不归:喊着拥护党的口号让党替他们杀人，标准套路<br><br>RE: ［只能发图。。］某些人别老扯“重演”可能并不大的文革转移视线，还是扯扯多事之春的那一年，恐怕更具“预防重演”之意义吧？——当年若发展下去，中国会不会陷入混乱、分裂甚至内战？<br><img src="http://ww4.sinaimg.cn/large/6d88e352gw1f3gt1ttrwyj20qo1betke.jpg"></p>
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
@@ -89,7 +101,7 @@
 </h2>
 <p>SPAM 我都快成作家了！又写了一宿！哎……</p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3970486646016868" target="freeweibo-mirror">天，才知道，宁夏公务员中回族比例居然已经占公务员总数54%以…</a>
 </h2>
@@ -124,18 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3970459596559478" target="freeweibo-mirror">SPAM 专治男性各种性功能障碍，阳痿、早泄、疲软、勃起不坚…</a>
 </h2>
 <p>SPAM 专治男性各种性功能障碍，阳痿、早泄、疲软、勃起不坚，房事时间少于20分钟 ，过度手淫致阴茎短小、萎缩、发育不良，无精少精、射精无力，尿频尿急，肾虚遗精，阴囊潮湿，前列腺炎，性冷淡，夫妻性生活不和谐，长期吃（伟哥）害怕依赖和副作用。本产品为印度原装进口，纯天然草本提取，无副作用，无依...全文： http://m.weibo.cn/2178126947/3970459596559478<br><img src="http://ww1.sinaimg.cn/large/81d39463jw1f3ga2h8bj0j20by0bygm8.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3970454517437305" target="freeweibo-mirror">SPAM 民国时，谁出兵收复了外蒙古？_短史记 http:/…</a>
-</h2>
-<p>SPAM 民国时，谁出兵收复了外蒙古？_短史记 http://t.cn/R4Wlvqq<br><img src="http://ww4.sinaimg.cn/large/a885cb8ajw1f3g9if0uzij20by0byaap.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3970452190114257" target="freeweibo-mirror">SPAM 欢迎关注我的微信公众号#练依朋的心灵花园#提前了解…</a>
-</h2>
-<p>SPAM 欢迎关注我的微信公众号#练依朋的心灵花园#提前了解节目主题、歌单查询、情感咨询.....[心][心][心]保存此二维码，打开你的微信扫一扫功能，点击右上角，导入已保存的二维码图片[耶]就这样咱们可以微信互动啦！[奥特曼][威武]<br><img src="http://ww1.sinaimg.cn/large/543403bejw1f3g98w2yt7j215716ynar.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
