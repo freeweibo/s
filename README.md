@@ -19,6 +19,18 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3970833821219049" target="freeweibo-mirror">SPAM [good][good]</a>
+</h2>
+<p>SPAM [good][good]<br><br>RE: 不让百度蒙眼，呼吁解禁谷歌！【本博发起签名活动，转发视作签名，请转发！希望政府听见！】</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3970829479619946" target="freeweibo-mirror">SPAM //@一品泥人://@南开老魏034:[话筒]//…</a>
+</h2>
+<p>SPAM //@一品泥人://@南开老魏034:[话筒]//@来自星醒: [话筒]//@惊醒的家奴36: [话筒]//@一根筋A040:[话筒]//@张天戈-9: //@独立思考0: //@楊康令:呼吁解禁谷歌！<br><br>RE: 不让百度蒙眼，呼吁解禁谷歌！【本博发起签名活动，转发视作签名，请转发！希望政府听见！】</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3970806281045321" target="freeweibo-mirror">想看</a>
 </h2>
 <p>想看</p>
@@ -35,7 +47,7 @@
 </h2>
 <p>//@爱红色: //@v刘海军v: //@勇敢的春之声2015:转发微博<br><br>RE: 据说反党分子都可以留党察看，真是个冷笑话！浩浩荡荡8000万，如此从严治理，你让天下苍生看不到希望！父辈们万里长征的路白走了，不肖子孙啊。<br><img src="http://ww1.sinaimg.cn/large/86ef7e03gw1f3h98lurzej20j60d6q5t.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3970786509824167" target="freeweibo-mirror">一个时代会有一个时代的标志性人物，所谓时势造英雄是也。 //…</a>
 </h2>
@@ -89,7 +101,7 @@
 </h2>
 <p>假设：百度是一只狗，谷歌也是一只狗，结论：两只狗总比一只狗好//@支支V: 转发微博</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3970769652395697" target="freeweibo-mirror">没有军委，国务院系统的调查组是进不了武警二院的。纵容未经检验…</a>
 </h2>
@@ -124,18 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3970765265806003" target="freeweibo-mirror">//@记者谈春平: 徐老师给你恢复视频了？我的没恢复  ht…</a>
 </h2>
 <p>//@记者谈春平: 徐老师给你恢复视频了？我的没恢复  http://t.cn/RqHv6dM</p>
-<p>
-	<small> ============== 6小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3970764250225116" target="freeweibo-mirror">一个人可以造就一个历史节点。你的直言孟浪可以让混沌时势立马泾…</a>
-</h2>
-<p>一个人可以造就一个历史节点。你的直言孟浪可以让混沌时势立马泾渭分明，让所有人重温历史记忆，让匆匆行者立定思考。多少年后，历史会感谢你的。[微笑] 同样，这个社会更好，更开明和包容，让落井下石的人丧气，让忠实粉丝们开心，让不平则鸣而施予援手的人同样进入史书。阳光终究明媚。</p>
-<p>
-	<small> ============== 6小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3970761754917595" target="freeweibo-mirror">武警二院是否需要调查？</a>
-</h2>
-<p>武警二院是否需要调查？</p>
 <p>
 	<small> ============== 6小时前</small>
 </p>
