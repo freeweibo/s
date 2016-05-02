@@ -95,7 +95,7 @@
 </h2>
 <p>//@爱红色: //@v刘海军v: //@勇敢的春之声2015:转发微博<br><br>RE: 据说反党分子都可以留党察看，真是个冷笑话！浩浩荡荡8000万，如此从严治理，你让天下苍生看不到希望！父辈们万里长征的路白走了，不肖子孙啊。<br><img src="http://ww1.sinaimg.cn/large/86ef7e03gw1f3h98lurzej20j60d6q5t.jpg"></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3970786509824167" target="freeweibo-mirror">一个时代会有一个时代的标志性人物，所谓时势造英雄是也。 //…</a>
 </h2>
