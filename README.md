@@ -71,7 +71,7 @@
 </h2>
 <p>SPAM //@师伟微博:顾头不顾腚，乌鸦说猪黑。<br><br>RE: 南方报系的责任感强烈，值得每一个妓女学习<br><img src="http://ww3.sinaimg.cn/large/4bd32ceajw1f3i15yeo9wj20go0ciabx.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3971067732908645" target="freeweibo-mirror">超級地租，制造了食利階級，也製造了龐大的房奴群體。整個社會因…</a>
 </h2>
