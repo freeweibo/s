@@ -59,7 +59,7 @@
 </h2>
 <p>SPAM 据网友：今日报纸最后一版如图，原博中广告是出现在四月下旬一版上。周知。 http://t.cn/RqHkFLQ<br><br>RE: 呵呵。<br><img src="http://ww2.sinaimg.cn/large/56ee7ff7jw1f3i46uyxf9j20go0ci40m.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3971080517595346" target="freeweibo-mirror">SPAM //@李方平律师:没有敏感词，百度凭什么排世界第四…</a>
 </h2>
