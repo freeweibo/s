@@ -41,13 +41,13 @@
 </h2>
 <p>SPAM 这。。。<br><img src="http://ww2.sinaimg.cn/large/63e7c613gw1f3igrmwvfwj20hs0i775p.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3971129364852902" target="freeweibo-mirror">十五年前，中国和美国两个搜索引擎公司几乎同时起步。 十五年后…</a>
 </h2>
 <p>十五年前，中国和美国两个搜索引擎公司几乎同时起步。 十五年后，一个在研究量子计算机的可行性和自动驾驶，并研发了阿尔法狗这样的超级人工智能。 另一个则在奋发研究卖广告，贩假药，玩流量，送快餐。 它们的名字：一个叫谷歌，一个叫百度。 这就是不同体制造成的根本区别。<br><img src="http://ww4.sinaimg.cn/large/a285e685jw1f3if0etfs4j20ek098mxs.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3971104148017388" target="freeweibo-mirror">SPAM //@法律及其价值://@茉莉波波波://@铁肩道…</a>
 </h2>
@@ -119,13 +119,13 @@
 </h2>
 <p>SPAM 神仙打架，边上看着就好了…… //@萝卜新人类:@周志 这就是传说中的“乌鸦站在煤堆上”<br><br>RE: 南方报系的责任感强烈，值得每一个妓女学习<br><img src="http://ww3.sinaimg.cn/large/4bd32ceajw1f3i15yeo9wj20go0ciabx.jpg"></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3971039258121925" target="freeweibo-mirror">//@安然cn:在陕西做河南菜，象不象河南菜，是由消费者选择…</a>
 </h2>
 <p>//@安然cn:在陕西做河南菜，象不象河南菜，是由消费者选择购买，而不是由河南人去砸摊子。博主所言广告是否扩大宣传，我看不见得，又没有写疗效。我再说，宗教乃公共思想，谁都无从界定和干涉权，人多势众并不能代替法律。另外，所有伊教徒都有义务对此极端行为给予谴责，以说明自己所信伊教乃和平宗教<br><br>RE: 关于温州汉族烧烤摊事件，我再说一下我认为的合理处理办法，第一，汉族摊主的烤肉本身并没标明是清真食品，只是广告使用了自己都不懂的阿拉伯语清真言，界定为广告夸大宣传，应该由工商部门予以处罚。第二。温州穆斯林阿訇违反工商条例，非法取缔汉族烤肉经营，对摊主造成损失，也应该给予赔偿。<br><img src="http://ww3.sinaimg.cn/large/ea3daad9gw1f3hojb7x6oj20j60bfjtf.jpg"></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3971035113574207" target="freeweibo-mirror">呵呵。</a>
 </h2>
