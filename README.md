@@ -41,7 +41,7 @@
 </h2>
 <p>SPAM 吼吼。为黑商站台，总有政府官员的影子<br><br>RE: 有人翻出了一篇旧文让我看。<br><img src="http://ww3.sinaimg.cn/large/627cf045gw1f3h4kb3z2bj20qo1bedq9.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3970938900939969" target="freeweibo-mirror">//@迟夙生律师: //@陈远://@周文翰: //@谭人玮…</a>
 </h2>
@@ -107,7 +107,7 @@
 </h2>
 <p>SPAM 解禁谷歌！//@余胜海:呼吁解禁谷歌!#听海观潮#//@钱中华://@腾晓东:支持！对于现代商业活动，谷歌是一个必不可少的工具。[good] //@王周生:坚决支持葛红兵教授的呼吁，政府应该听听民众的声音！<br><br>RE: 不让百度蒙眼，呼吁解禁谷歌！【本博发起签名活动，转发视作签名，请转发！希望政府听见！】</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3970797246737071" target="freeweibo-mirror">SPAM 先加后看//@哔狗小公主: 先加后看</a>
 </h2>
