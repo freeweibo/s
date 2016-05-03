@@ -23,7 +23,7 @@
 </h2>
 <p>SPAM 最新八卦get！ //@曹踩圣曹:八卦如我！[doge]//@沉鱼遭哭扮: 加完挨个看！</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3971205490344139" target="freeweibo-mirror">//@乌骨-泊灼://@步军都虞候:野心家、阴谋家都出来了，…</a>
 </h2>
@@ -137,7 +137,7 @@
 </h2>
 <p>SPAM 违反广告法！//@何光伟: [汗]<br><br>RE: 河南省信阳市的这家医院太狠了[吃惊]<br><img src="http://ww2.sinaimg.cn/large/005As9Qdgw1f3ik7961zoj30c80gata6.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p>
 <table>
     <tr>
