@@ -25,9 +25,27 @@
 <p>
 	<small> ============== 1小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3971204962299957" target="freeweibo-mirror">//@50年矛苔://@亮剑兄又来啦: //@伟荣V实说: …</a>
+</h2>
+<p>//@50年矛苔://@亮剑兄又来啦: //@伟荣V实说: //@浮萍-JJ: 转发微博<br><br>RE: 分享图片<br><img src="http://ww3.sinaimg.cn/large/006frKBbgw1f3ilwayn55j30k00zkgt2.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3971203016156087" target="freeweibo-mirror">你说的没错，一般都是自己有这样的想法，欲强加他人而已！ //…</a>
 </h2>
 <p>你说的没错，一般都是自己有这样的想法，欲强加他人而已！ //@神剑10000:很明显是攻击中国共产党！如果姑息养奸会最终毁灭自己！ //@柳随风:这句话有问题吗？怎么看不出来！ //@大藏布:转发微博<br><br>RE: 【远大发任志强广告】昨日，北京西城党委通报给予任志强留党察看处分。今日，远大在长沙火车站大屏幕广告：“你可以不说话，但不能不呼吸”。请问：1，这是不是巧合？2,远大几个意思？3,湖南党委长沙党委铁路党委怎么看？4,主席家乡人民怎么看？5,资本的力量果然可以藐视一切！<br><img src="http://ww2.sinaimg.cn/large/006cuVe3jw1f3ih6githjj30m80eu408.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3971201804563998" target="freeweibo-mirror">http://t.cn/RqQfGDG //@江夏徳山: […</a>
+</h2>
+<p>http://t.cn/RqQfGDG //@江夏徳山: [嘻嘻][嘻嘻][嘻嘻]@张晨初艺术空间 没想到他的广告形象这么吓人吧 //@谢流石://@阅中国:转发微博<br><br>RE: 你可以不说话，但不能不呼吸！<br><img src="http://ww4.sinaimg.cn/large/621d03b7jw1f3ifomn6dtj20rs0ijgov.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3971200516712664" target="freeweibo-mirror">//@韩浩月:赞远大。</a>
+</h2>
+<p>//@韩浩月:赞远大。<br><br>RE: 【远大发任志强广告】昨日，北京西城党委通报给予任志强留党察看处分。今日，远大在长沙火车站大屏幕广告：“你可以不说话，但不能不呼吸”。请问：1，这是不是巧合？2,远大几个意思？3,湖南党委长沙党委铁路党委怎么看？4,主席家乡人民怎么看？5,资本的力量果然可以藐视一切！<br><img src="http://ww2.sinaimg.cn/large/006cuVe3jw1f3ih6githjj30m80eu408.jpg"></p>
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
@@ -37,9 +55,45 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3971199207585901" target="freeweibo-mirror">赞远大。</a>
+</h2>
+<p>赞远大。<br><br>RE: 【远大发任志强广告】昨日，北京西城党委通报给予任志强留党察看处分。今日，远大在长沙火车站大屏幕广告：“你可以不说话，但不能不呼吸”。请问：1，这是不是巧合？2,远大几个意思？3,湖南党委长沙党委铁路党委怎么看？4,主席家乡人民怎么看？5,资本的力量果然可以藐视一切！<br><img src="http://ww2.sinaimg.cn/large/006cuVe3jw1f3ih6githjj30m80eu408.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3971198704166144" target="freeweibo-mirror">//@亮剑兄又来啦: //@伟荣V实说: //@浮萍-JJ:…</a>
+</h2>
+<p>//@亮剑兄又来啦: //@伟荣V实说: //@浮萍-JJ: 转发微博<br><br>RE: 分享图片<br><img src="http://ww3.sinaimg.cn/large/006frKBbgw1f3ilwayn55j30k00zkgt2.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3971198448975458" target="freeweibo-mirror">//@刘水长东://@陆浑戎://@ECO中文网:“你可以不…</a>
+</h2>
+<p>//@刘水长东://@陆浑戎://@ECO中文网:“你可以不说话，但不能不呼吸”说的挺对的。<br><br>RE: 【远大发任志强广告】昨日，北京西城党委通报给予任志强留党察看处分。今日，远大在长沙火车站大屏幕广告：“你可以不说话，但不能不呼吸”。请问：1，这是不是巧合？2,远大几个意思？3,湖南党委长沙党委铁路党委怎么看？4,主席家乡人民怎么看？5,资本的力量果然可以藐视一切！<br><img src="http://ww2.sinaimg.cn/large/006cuVe3jw1f3ih6githjj30m80eu408.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3971195994693529" target="freeweibo-mirror">哦，这样一来反正不会买他家任何东西了[doge]不过，他们家…</a>
+</h2>
+<p>哦，这样一来反正不会买他家任何东西了[doge]不过，他们家的东西主要是卖给非家用用户的，那些做决策采购这些的人，没准很多是人质强的同路人呢<br><br>RE: 【远大发任志强广告】昨日，北京西城党委通报给予任志强留党察看处分。今日，远大在长沙火车站大屏幕广告：“你可以不说话，但不能不呼吸”。请问：1，这是不是巧合？2,远大几个意思？3,湖南党委长沙党委铁路党委怎么看？4,主席家乡人民怎么看？5,资本的力量果然可以藐视一切！<br><img src="http://ww2.sinaimg.cn/large/006cuVe3jw1f3ih6githjj30m80eu408.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3971195962031736" target="freeweibo-mirror">这样打广告纯属作死。法律在哪里？规矩在哪里？</a>
 </h2>
 <p>这样打广告纯属作死。法律在哪里？规矩在哪里？<br><br>RE: 河南省信阳市的这家医院太狠了[吃惊]<br><img src="http://ww2.sinaimg.cn/large/005As9Qdgw1f3ik7961zoj30c80gata6.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3971195735492998" target="freeweibo-mirror">照这样逻辑，右边支持的东西都是圣旨?都2016年了，唉，河北…</a>
+</h2>
+<p>照这样逻辑，右边支持的东西都是圣旨?都2016年了，唉，河北大城来的?//@苏客同学:右边和楼主都too young too simple sometime naive，以为西城区的决定就是最高圣旨万年不变了。当年刘少奇还被开除党籍呢。出来混，难免被咬，但你们何必这么追着咬呢？ //@西西福厮: 党员是宣誓过的，难道右边的意思是<br><br>RE: 【远大发任志强广告】昨日，北京西城党委通报给予任志强留党察看处分。今日，远大在长沙火车站大屏幕广告：“你可以不说话，但不能不呼吸”。请问：1，这是不是巧合？2,远大几个意思？3,湖南党委长沙党委铁路党委怎么看？4,主席家乡人民怎么看？5,资本的力量果然可以藐视一切！<br><img src="http://ww2.sinaimg.cn/large/006cuVe3jw1f3ih6githjj30m80eu408.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3971195420772889" target="freeweibo-mirror">口袋泄气了？[挖鼻][挖鼻][挖鼻]#设计段子手#</a>
+</h2>
+<p>口袋泄气了？[挖鼻][挖鼻][挖鼻]#设计段子手#<br><br>RE: 【远大力要挺任志强？】昨日，北京西城党委通报给予任志强留党察看处分。今日，远大在长沙火车站大屏幕广告：“你可以不说话，但不能不呼吸”。远大站出来了，铁杆粉丝就是这个样子！<br><img src="http://ww3.sinaimg.cn/large/490280f9jw1f3ikdhbjqnj20qo1begq8.jpg"></p>
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
@@ -77,65 +131,11 @@
 </h2>
 <p>看看吧</p>
 <p>
-	<small> ============== 2小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3971186821986583" target="freeweibo-mirror">SPAM //@崔小平律师://@何光伟:[汗]</a>
-</h2>
-<p>SPAM //@崔小平律师://@何光伟:[汗]<br><br>RE: 河南省信阳市的这家医院太狠了[吃惊]<br><img src="http://ww2.sinaimg.cn/large/005As9Qdgw1f3ik7961zoj30c80gata6.jpg"></p>
-<p>
 	<small> ============== 3小时前</small>
 </p><h2>
-	<a href="https://freeweibo.com/weibo/3971186641375486" target="freeweibo-mirror">//@北京老妪: 哦，（这里读二声）知子莫如父。//@茅于轼…</a>
+	<a href="https://freeweibo.com/weibo/3971188012949017" target="freeweibo-mirror">党员是宣誓过的，难道右边的意思是，为了言论自由，可以背叛誓言…</a>
 </h2>
-<p>//@北京老妪: 哦，（这里读二声）知子莫如父。//@茅于轼门下5: //@大道圣人15://@老许祈福-15s: 事实证明，适合做撒币[偷笑]//@海龙-28://@张乾坤制: 真的就可怕鸟！<br><br>RE: 习父当年说，这个儿子不适合从政。知子莫若父，看来习父说到根子上了。</p>
-<p>
-	<small> ============== 3小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3971186180266855" target="freeweibo-mirror">[挖鼻] //@扛着枕头:[思考] //@防务君:国家监管得…</a>
-</h2>
-<p>[挖鼻] //@扛着枕头:[思考] //@防务君:国家监管得当，百度合情合理，军队不容诋毁。那么结论就一个，魏则西该死。<br><br>RE: 【中国军视网：任何人都不能以“魏则西事件”个案诋毁人民军队】“部队医院”不会，也不可能游离于中国军队管辖之外。连徐，郭这样的人都能被拿下，难道，清理医疗环境这样关乎人民生命的事情，中国军队还会藏着掖着吗？任何人都不能以“魏则西事件”个案，来诋毁和抹黑人民军队。http://t.cn/RqQZlOw<br><img src="http://ww1.sinaimg.cn/large/61e04755jw1f3igav5thyj20b408ajst.jpg"></p>
-<p>
-	<small> ============== 3小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3971185068507200" target="freeweibo-mirror">？//@Merlot杜樱: ？@湾仔罗 //@深圳老歌: 大…</a>
-</h2>
-<p>？//@Merlot杜樱: ？@湾仔罗 //@深圳老歌: 大件事 //@曾经的一个传说://@玉石上的鹤: //@细水一滴:此人去年大谈“孝顺”理论，争当儿孙。[偷笑]//@曹小明律师: 约谈之后就开始斗法，老王不好对付！<br><br>RE: 港媒报道湖北省委书记李鸿忠遭中纪委约谈，打虎沉寂了好长时间了，是否到了瓜熟蒂落的时候？<br><img src="http://ww3.sinaimg.cn/large/e15009f1jw1f3ihk2eoetj206s04q749.jpg"></p>
-<p>
-	<small> ============== 3小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3971184800297599" target="freeweibo-mirror">//@杨清林先生: 二奶生的最爱护他爹的短！[哈哈] //@…</a>
-</h2>
-<p>//@杨清林先生: 二奶生的最爱护他爹的短！[哈哈] //@阿忆:还没普查，就断言是个案，所以不用普查了。 //@尹鸿：“连徐郭都能拿下”，成了满满正能量了…<br><br>RE: 【中国军视网：任何人都不能以“魏则西事件”个案诋毁人民军队】“部队医院”不会，也不可能游离于中国军队管辖之外。连徐，郭这样的人都能被拿下，难道，清理医疗环境这样关乎人民生命的事情，中国军队还会藏着掖着吗？任何人都不能以“魏则西事件”个案，来诋毁和抹黑人民军队。http://t.cn/RqQZlOw<br><img src="http://ww1.sinaimg.cn/large/61e04755jw1f3igav5thyj20b408ajst.jpg"></p>
-<p>
-	<small> ============== 3小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3971183890536546" target="freeweibo-mirror">//@王小毛之父葛明铭:完全没有看到有诋毁人民军队的言论，看…</a>
-</h2>
-<p>//@王小毛之父葛明铭:完全没有看到有诋毁人民军队的言论，看到的大都是理性批评部队医院存在问题的言论。先自己制造一个虚幻的对象或言论，然后进行义正词严的责问批判，这种手法是文革中惯用的大批判套路<br><br>RE: 【中国军视网：任何人都不能以“魏则西事件”个案诋毁人民军队】“部队医院”不会，也不可能游离于中国军队管辖之外。连徐，郭这样的人都能被拿下，难道，清理医疗环境这样关乎人民生命的事情，中国军队还会藏着掖着吗？任何人都不能以“魏则西事件”个案，来诋毁和抹黑人民军队。http://t.cn/RqQZlOw<br><img src="http://ww1.sinaimg.cn/large/61e04755jw1f3igav5thyj20b408ajst.jpg"></p>
-<p>
-	<small> ============== 3小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3971183106225926" target="freeweibo-mirror">「现在，也有不少人开始把舆论的矛头影影绰绰地指向“部队医院”…</a>
-</h2>
-<p>「现在，也有不少人开始把舆论的矛头影影绰绰地指向“部队医院”了。」不是影影绰绰，而是联合军委开展调查，这是诋毁吗？军队互联网都不是法外之地，部队医院违规商业合作这是军队应由职能，批评不得吗？ @军报记者 //@防务君:国家监管得当，百度合情合理，军队不容诋毁。那么，魏则西该死。<br><br>RE: 【中国军视网：任何人都不能以“魏则西事件”个案诋毁人民军队】“部队医院”不会，也不可能游离于中国军队管辖之外。连徐，郭这样的人都能被拿下，难道，清理医疗环境这样关乎人民生命的事情，中国军队还会藏着掖着吗？任何人都不能以“魏则西事件”个案，来诋毁和抹黑人民军队。http://t.cn/RqQZlOw<br><img src="http://ww1.sinaimg.cn/large/61e04755jw1f3igav5thyj20b408ajst.jpg"></p>
-<p>
-	<small> ============== 3小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3971182355599006" target="freeweibo-mirror">谈医疗问题，别上纲上线//@项先中001: 借用2008年汶…</a>
-</h2>
-<p>谈医疗问题，别上纲上线//@项先中001: 借用2008年汶川地震时，温相在怒斥军方不听指挥延误救援时说过的一句话：你们都是纳税人养着的，你们自己看着办。<br><br>RE: 【中国军视网：任何人都不能以“魏则西事件”个案诋毁人民军队】“部队医院”不会，也不可能游离于中国军队管辖之外。连徐，郭这样的人都能被拿下，难道，清理医疗环境这样关乎人民生命的事情，中国军队还会藏着掖着吗？任何人都不能以“魏则西事件”个案，来诋毁和抹黑人民军队。http://t.cn/RqQZlOw<br><img src="http://ww1.sinaimg.cn/large/61e04755jw1f3igav5thyj20b408ajst.jpg"></p>
-<p>
-	<small> ============== 3小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3971182137284080" target="freeweibo-mirror">SPAM 智斗小三，看的我热血沸腾，期待下期精彩@坏先生图片…</a>
-</h2>
-<p>SPAM 智斗小三，看的我热血沸腾，期待下期精彩@坏先生图片文集</p>
-<p>
-	<small> ============== 3小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3971181012353028" target="freeweibo-mirror">//@王宇明律师:[吃惊]//@zhanxiaoqian:吓…</a>
-</h2>
-<p>//@王宇明律师:[吃惊]//@zhanxiaoqian:吓死宝宝了！[泪]<br><br>RE: 【中国军视网：任何人都不能以“魏则西事件”个案诋毁人民军队】“部队医院”不会，也不可能游离于中国军队管辖之外。连徐，郭这样的人都能被拿下，难道，清理医疗环境这样关乎人民生命的事情，中国军队还会藏着掖着吗？任何人都不能以“魏则西事件”个案，来诋毁和抹黑人民军队。http://t.cn/RqQZlOw<br><img src="http://ww1.sinaimg.cn/large/61e04755jw1f3igav5thyj20b408ajst.jpg"></p>
+<p>党员是宣誓过的，难道右边的意思是，为了言论自由，可以背叛誓言?那这种自由的意义何在，维护野蛮吗？//@ECO中文网:“你可以不说话，但不能不呼吸”说的挺对的。<br><br>RE: 【远大发任志强广告】昨日，北京西城党委通报给予任志强留党察看处分。今日，远大在长沙火车站大屏幕广告：“你可以不说话，但不能不呼吸”。请问：1，这是不是巧合？2,远大几个意思？3,湖南党委长沙党委铁路党委怎么看？4,主席家乡人民怎么看？5,资本的力量果然可以藐视一切！<br><img src="http://ww2.sinaimg.cn/large/006cuVe3jw1f3ih6githjj30m80eu408.jpg"></p>
 <p>
 	<small> ============== 3小时前</small>
 </p>
