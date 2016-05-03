@@ -89,13 +89,13 @@
 </h2>
 <p>SPAM 神仙打架，边上看着就好了…… //@萝卜新人类:@周志 这就是传说中的“乌鸦站在煤堆上”<br><br>RE: 南方报系的责任感强烈，值得每一个妓女学习<br><img src="http://ww3.sinaimg.cn/large/4bd32ceajw1f3i15yeo9wj20go0ciabx.jpg"></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3971039258121925" target="freeweibo-mirror">//@安然cn:在陕西做河南菜，象不象河南菜，是由消费者选择…</a>
 </h2>
 <p>//@安然cn:在陕西做河南菜，象不象河南菜，是由消费者选择购买，而不是由河南人去砸摊子。博主所言广告是否扩大宣传，我看不见得，又没有写疗效。我再说，宗教乃公共思想，谁都无从界定和干涉权，人多势众并不能代替法律。另外，所有伊教徒都有义务对此极端行为给予谴责，以说明自己所信伊教乃和平宗教<br><br>RE: 关于温州汉族烧烤摊事件，我再说一下我认为的合理处理办法，第一，汉族摊主的烤肉本身并没标明是清真食品，只是广告使用了自己都不懂的阿拉伯语清真言，界定为广告夸大宣传，应该由工商部门予以处罚。第二。温州穆斯林阿訇违反工商条例，非法取缔汉族烤肉经营，对摊主造成损失，也应该给予赔偿。<br><img src="http://ww3.sinaimg.cn/large/ea3daad9gw1f3hojb7x6oj20j60bfjtf.jpg"></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3971035113574207" target="freeweibo-mirror">呵呵。</a>
 </h2>
@@ -119,19 +119,19 @@
 </h2>
 <p>南方报系的责任感强烈，值得每一个妓女学习<br><img src="http://ww3.sinaimg.cn/large/4bd32ceajw1f3i15yeo9wj20go0ciabx.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3971001869593121" target="freeweibo-mirror">SPAM //@鲲鹏展翅qd: //@彭园v://@活得轻松…</a>
 </h2>
 <p>SPAM //@鲲鹏展翅qd: //@彭园v://@活得轻松些真是不容易:@海口发布 滚出来说说!</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3971001333459706" target="freeweibo-mirror">//@民间治堵人陈哲宏: 救火要紧，不能让后院给烧了 //@…</a>
 </h2>
 <p>//@民间治堵人陈哲宏: 救火要紧，不能让后院给烧了 //@LifeTime:就是嘛，排除干扰。[瞧瞧]//@黄克HK：已经开始删帖了？<br><br>RE: 网民完全打乱了官方节奏。因魏则西事件，网信办正带相关政府官员组团“约谈”百度，正准备倒酒，很罚百度三杯。不料，好事儿的网民却曝光一大堆莆田系合作医院名单，甚至连行贿地方官员、医院负责人的名单、金额都公布了。这酒还倒不倒？[巨汗]</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3971000716328137" target="freeweibo-mirror">救火要紧，不能让后院给烧了 //@LifeTime:就是嘛，…</a>
 </h2>
