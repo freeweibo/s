@@ -19,6 +19,18 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3971195962031736" target="freeweibo-mirror">这样打广告纯属作死。法律在哪里？规矩在哪里？</a>
+</h2>
+<p>这样打广告纯属作死。法律在哪里？规矩在哪里？<br><br>RE: 河南省信阳市的这家医院太狠了[吃惊]<br><img src="http://ww2.sinaimg.cn/large/005As9Qdgw1f3ik7961zoj30c80gata6.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3971193197994670" target="freeweibo-mirror">SPAM 违反广告法！//@何光伟: [汗]</a>
+</h2>
+<p>SPAM 违反广告法！//@何光伟: [汗]<br><br>RE: 河南省信阳市的这家医院太狠了[吃惊]<br><img src="http://ww2.sinaimg.cn/large/005As9Qdgw1f3ik7961zoj30c80gata6.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3971190395159705" target="freeweibo-mirror">[good]人民军队就是好，谁敢说个不字？//@柳叶刀六爷-…</a>
 </h2>
 <p>[good]人民军队就是好，谁敢说个不字？//@柳叶刀六爷----诸云行龙:刮目相看！ //@防务君:国家监管得当，百度合情合理，军队不容诋毁。那么结论就一个，魏则西该死。<br><br>RE: 【中国军视网：任何人都不能以“魏则西事件”个案诋毁人民军队】“部队医院”不会，也不可能游离于中国军队管辖之外。连徐，郭这样的人都能被拿下，难道，清理医疗环境这样关乎人民生命的事情，中国军队还会藏着掖着吗？任何人都不能以“魏则西事件”个案，来诋毁和抹黑人民军队。http://t.cn/RqQZlOw<br><img src="http://ww1.sinaimg.cn/large/61e04755jw1f3igav5thyj20b408ajst.jpg"></p>
@@ -101,7 +113,7 @@
 </h2>
 <p>SPAM 走吧                                                                  和我一起 随便哪里                                         只要和你 背着行李 带着相机                                拍一些好看的照片                                           穿一双喜欢的鞋子 @Korea潮鞋<br><img src="http://ww2.sinaimg.cn/large/862dc77cjw1f3ii7n60mjj20ku0ku0vx.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3971152340997918" target="freeweibo-mirror">港媒报道湖北省委书记李鸿忠遭中纪委约谈，打虎沉寂了好长时间了…</a>
 </h2>
@@ -126,18 +138,6 @@
 <p>【中国军视网：任何人都不能以“魏则西事件”个案诋毁人民军队】“部队医院”不会，也不可能游离于中国军队管辖之外。连徐，郭这样的人都能被拿下，难道，清理医疗环境这样关乎人民生命的事情，中国军队还会藏着掖着吗？任何人都不能以“魏则西事件”个案，来诋毁和抹黑人民军队。http://t.cn/RqQZlOw<br><img src="http://ww1.sinaimg.cn/large/61e04755jw1f3igav5thyj20b408ajst.jpg"></p>
 <p>
 	<small> ============== 5小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3971129364852902" target="freeweibo-mirror">十五年前，中国和美国两个搜索引擎公司几乎同时起步。 十五年后…</a>
-</h2>
-<p>十五年前，中国和美国两个搜索引擎公司几乎同时起步。 十五年后，一个在研究量子计算机的可行性和自动驾驶，并研发了阿尔法狗这样的超级人工智能。 另一个则在奋发研究卖广告，贩假药，玩流量，送快餐。 它们的名字：一个叫谷歌，一个叫百度。 这就是不同体制造成的根本区别。<br><img src="http://ww4.sinaimg.cn/large/a285e685jw1f3if0etfs4j20ek098mxs.jpg"></p>
-<p>
-	<small> ============== 5小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3971104148017388" target="freeweibo-mirror">SPAM //@法律及其价值://@茉莉波波波://@铁肩道…</a>
-</h2>
-<p>SPAM //@法律及其价值://@茉莉波波波://@铁肩道义妙手文://@木之寞寞://@凡章://@风青杨V: //@最棒的abcdef:杀人的防火墙，和无效的疫苗是同类，都是中国特色的东西。<br><br>RE: 如果没有防火墙，魏则西只需要在谷歌、维基百科搜索一下，就会知道什么是生物免疫疗法。这样也许不一定能挽救他的生命，但至少他不会受骗而耽误治疗。可惜的是，对于生活在墙里的他，却没有这个选择，只能选择相信百度，相信这些军医院。从这点上说，隔绝可以救命的信息，确是杀人的同谋无疑。</p>
-<p>
-	<small> ============== 7小时前</small>
 </p>
 <table>
     <tr>
