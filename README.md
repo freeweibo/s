@@ -19,6 +19,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3971071994439443" target="freeweibo-mirror">SPAM //@师伟微博:顾头不顾腚，乌鸦说猪黑。</a>
+</h2>
+<p>SPAM //@师伟微博:顾头不顾腚，乌鸦说猪黑。<br><br>RE: 南方报系的责任感强烈，值得每一个妓女学习<br><img src="http://ww3.sinaimg.cn/large/4bd32ceajw1f3i15yeo9wj20go0ciabx.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3971067732908645" target="freeweibo-mirror">超級地租，制造了食利階級，也製造了龐大的房奴群體。整個社會因…</a>
 </h2>
 <p>超級地租，制造了食利階級，也製造了龐大的房奴群體。整個社會因此而分裂了，政府+食利者=既得利益群體，無房產之普通勞動者則成為被剝奪者。任志強，之所以說不得，是因為不能碰資產持有和資本利得的課稅。不過，我們就偏偏要說，直到完成稅政革命為止。大炮，應轟向敵人，而絕不是自己的祖國和人民。</p>
@@ -65,7 +71,7 @@
 </h2>
 <p>正在大做中国梦的社会，稀缺的正是这三个正常！[挖鼻][偷笑][思考]//@尹鸿: 其实是正常社会正常人的正常生活。<br><br>RE: 今年高中毕业的奥巴马的大女儿玛利亚选择进入她父母的母校哈佛就读。玛利亚决定推迟一年入学，参加一年的社会志愿服务，哈佛大学非常鼓励被录取的学生这样做。奥巴马对女儿们的教育很用心。原本离任后要搬回芝加哥或夏威夷，但奥巴马夫妇决定离任后在华盛顿租住两年，等小女儿高中顺利毕业后再确定定居...全文： http://m.weibo.cn/3716243842/3970798253045447<br><img src="http://ww4.sinaimg.cn/large/dd816182gw1f3hcseor2nj20y40muwhp.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3970989736425659" target="freeweibo-mirror">不是说媒体们都集体约到国外海岛度假公关了么？//@青枚煮菁瓜…</a>
 </h2>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3970973324046212" target="freeweibo-mirror">重磅！莆田系给部队医院领导送礼名单大曝光！动辄30万看的人脊…</a>
 </h2>
 <p>重磅！莆田系给部队医院领导送礼名单大曝光！动辄30万看的人脊背发凉～～～<br><img src="http://ww2.sinaimg.cn/large/5f6520eagw1f3hx2xut11j20qo1bezu3.jpg"></p>
-<p>
-	<small> ============== 8小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3970967795242132" target="freeweibo-mirror">@陈有西 区伯以为，我国目前由于还缺乏一个对政府的违法行为实…</a>
-</h2>
-<p>@陈有西 区伯以为，我国目前由于还缺乏一个对政府的违法行为实行监督的独立机构，故此，致使很多政府的违法行为得不有效的遏制和追究。<br><br>RE: 公开的明目张胆的故意伤害、聚众斗殴犯罪，由于是政府组织的，就被轻描淡写地表述为暴力执法。警察在场不解救被暴打的群众，还参与协同行动，明显构成玩忽职守犯罪，由于是政府组织的，就可以不作为犯罪处理。国家法治环境就是这样衰亡的。http://t.cn/RqTumtV<br><img src="http://ww2.sinaimg.cn/large/6b804b51gw1f3h037j48aj20qo1bgtgg.jpg"></p>
 <p>
 	<small> ============== 8小时前</small>
 </p>
