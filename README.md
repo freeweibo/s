@@ -19,6 +19,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3971207239825152" target="freeweibo-mirror">SPAM 最新八卦get！ //@曹踩圣曹:八卦如我！[do…</a>
+</h2>
+<p>SPAM 最新八卦get！ //@曹踩圣曹:八卦如我！[doge]//@沉鱼遭哭扮: 加完挨个看！</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3971205100535558" target="freeweibo-mirror">SPAM [good]这是我所见过最精妙的广告词，没有之一！</a>
 </h2>
 <p>SPAM [good]这是我所见过最精妙的广告词，没有之一！<br><br>RE: 你可以不说话，但不能不呼吸！<br><img src="http://ww4.sinaimg.cn/large/621d03b7jw1f3ifomn6dtj20rs0ijgov.jpg"></p>
@@ -89,13 +95,13 @@
 </h2>
 <p>照这样逻辑，右边支持的东西都是圣旨?都2016年了，唉，河北大城来的?//@苏客同学:右边和楼主都too young too simple sometime naive，以为西城区的决定就是最高圣旨万年不变了。当年刘少奇还被开除党籍呢。出来混，难免被咬，但你们何必这么追着咬呢？ //@西西福厮: 党员是宣誓过的，难道右边的意思是<br><br>RE: 【远大发任志强广告】昨日，北京西城党委通报给予任志强留党察看处分。今日，远大在长沙火车站大屏幕广告：“你可以不说话，但不能不呼吸”。请问：1，这是不是巧合？2,远大几个意思？3,湖南党委长沙党委铁路党委怎么看？4,主席家乡人民怎么看？5,资本的力量果然可以藐视一切！<br><img src="http://ww2.sinaimg.cn/large/006cuVe3jw1f3ih6githjj30m80eu408.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3971195420772889" target="freeweibo-mirror">口袋泄气了？[挖鼻][挖鼻][挖鼻]#设计段子手#</a>
 </h2>
 <p>口袋泄气了？[挖鼻][挖鼻][挖鼻]#设计段子手#<br><br>RE: 【远大力要挺任志强？】昨日，北京西城党委通报给予任志强留党察看处分。今日，远大在长沙火车站大屏幕广告：“你可以不说话，但不能不呼吸”。远大站出来了，铁杆粉丝就是这个样子！<br><img src="http://ww3.sinaimg.cn/large/490280f9jw1f3ikdhbjqnj20qo1begq8.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3971193877462089" target="freeweibo-mirror">耸人听闻的广告随处可见，见异思迁的蛇精无处不在</a>
 </h2>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3971188839145935" target="freeweibo-mirror">看看吧</a>
 </h2>
 <p>看看吧</p>
-<p>
-	<small> ============== 3小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3971188012949017" target="freeweibo-mirror">党员是宣誓过的，难道右边的意思是，为了言论自由，可以背叛誓言…</a>
-</h2>
-<p>党员是宣誓过的，难道右边的意思是，为了言论自由，可以背叛誓言?那这种自由的意义何在，维护野蛮吗？//@ECO中文网:“你可以不说话，但不能不呼吸”说的挺对的。<br><br>RE: 【远大发任志强广告】昨日，北京西城党委通报给予任志强留党察看处分。今日，远大在长沙火车站大屏幕广告：“你可以不说话，但不能不呼吸”。请问：1，这是不是巧合？2,远大几个意思？3,湖南党委长沙党委铁路党委怎么看？4,主席家乡人民怎么看？5,资本的力量果然可以藐视一切！<br><img src="http://ww2.sinaimg.cn/large/006cuVe3jw1f3ih6githjj30m80eu408.jpg"></p>
 <p>
 	<small> ============== 3小时前</small>
 </p>
