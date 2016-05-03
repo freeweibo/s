@@ -35,13 +35,13 @@
 </h2>
 <p>[good]人民军队就是好，谁敢说个不字？//@柳叶刀六爷----诸云行龙:刮目相看！ //@防务君:国家监管得当，百度合情合理，军队不容诋毁。那么结论就一个，魏则西该死。<br><br>RE: 【中国军视网：任何人都不能以“魏则西事件”个案诋毁人民军队】“部队医院”不会，也不可能游离于中国军队管辖之外。连徐，郭这样的人都能被拿下，难道，清理医疗环境这样关乎人民生命的事情，中国军队还会藏着掖着吗？任何人都不能以“魏则西事件”个案，来诋毁和抹黑人民军队。http://t.cn/RqQZlOw<br><img src="http://ww1.sinaimg.cn/large/61e04755jw1f3igav5thyj20b408ajst.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3971190311490634" target="freeweibo-mirror">SPAM  //@崔小平律师://@何光伟:[汗]</a>
 </h2>
 <p>SPAM  //@崔小平律师://@何光伟:[汗]<br><br>RE: 河南省信阳市的这家医院太狠了[吃惊]<br><img src="http://ww2.sinaimg.cn/large/005As9Qdgw1f3ik7961zoj30c80gata6.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3971186821986583" target="freeweibo-mirror">SPAM //@崔小平律师://@何光伟:[汗]</a>
 </h2>
