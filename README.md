@@ -23,7 +23,7 @@
 </h2>
 <p>SPAM //@师伟微博:顾头不顾腚，乌鸦说猪黑。<br><br>RE: 南方报系的责任感强烈，值得每一个妓女学习<br><img src="http://ww3.sinaimg.cn/large/4bd32ceajw1f3i15yeo9wj20go0ciabx.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3971067732908645" target="freeweibo-mirror">超級地租，制造了食利階級，也製造了龐大的房奴群體。整個社會因…</a>
 </h2>
@@ -119,7 +119,7 @@
 </h2>
 <p>不觉得，我说的很清楚了，莆田系是纣，百度就是助纣为虐的。这之间可以分轻重主从，但不能说毫无意义。被贴上老军医专治梅毒的电线杆确实是无辜的，但百度绝不是毫无知觉的电线杆。如果电线杆有知觉会收钱，只要花钱，繁华地带的电线杆贴上纸条能够闪闪发光，那电线杆都该受到惩罚。<br><img src="http://ww4.sinaimg.cn/large/6c83d38djw1f3hxza0w0gj20sl0qowmo.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3970975450378132" target="freeweibo-mirror">//@shengting:更关心医院和监管体系是怎么回事[弱…</a>
 </h2>
