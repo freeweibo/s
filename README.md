@@ -35,11 +35,23 @@
 </h2>
 <p>这样打广告纯属作死。法律在哪里？规矩在哪里？<br><br>RE: 河南省信阳市的这家医院太狠了[吃惊]<br><img src="http://ww2.sinaimg.cn/large/005As9Qdgw1f3ik7961zoj30c80gata6.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3971193877462089" target="freeweibo-mirror">耸人听闻的广告随处可见，见异思迁的蛇精无处不在</a>
+</h2>
+<p>耸人听闻的广告随处可见，见异思迁的蛇精无处不在<br><br>RE: 【远大发任志强广告】昨日，北京西城党委通报给予任志强留党察看处分。今日，远大在长沙火车站大屏幕广告：“你可以不说话，但不能不呼吸”。请问：1，这是不是巧合？2,远大几个意思？3,湖南党委长沙党委铁路党委怎么看？4,主席家乡人民怎么看？5,资本的力量果然可以藐视一切！<br><img src="http://ww2.sinaimg.cn/large/006cuVe3jw1f3ih6githjj30m80eu408.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3971193197994670" target="freeweibo-mirror">SPAM 违反广告法！//@何光伟: [汗]</a>
 </h2>
 <p>SPAM 违反广告法！//@何光伟: [汗]<br><br>RE: 河南省信阳市的这家医院太狠了[吃惊]<br><img src="http://ww2.sinaimg.cn/large/005As9Qdgw1f3ik7961zoj30c80gata6.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3971191071504422" target="freeweibo-mirror">SPAM 强烈推荐，感兴趣的宝宝找他~</a>
+</h2>
+<p>SPAM 强烈推荐，感兴趣的宝宝找他~</p>
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
@@ -55,9 +67,21 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3971188839145935" target="freeweibo-mirror">看看吧</a>
+</h2>
+<p>看看吧</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3971186821986583" target="freeweibo-mirror">SPAM //@崔小平律师://@何光伟:[汗]</a>
 </h2>
 <p>SPAM //@崔小平律师://@何光伟:[汗]<br><br>RE: 河南省信阳市的这家医院太狠了[吃惊]<br><img src="http://ww2.sinaimg.cn/large/005As9Qdgw1f3ik7961zoj30c80gata6.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3971186641375486" target="freeweibo-mirror">//@北京老妪: 哦，（这里读二声）知子莫如父。//@茅于轼…</a>
+</h2>
+<p>//@北京老妪: 哦，（这里读二声）知子莫如父。//@茅于轼门下5: //@大道圣人15://@老许祈福-15s: 事实证明，适合做撒币[偷笑]//@海龙-28://@张乾坤制: 真的就可怕鸟！<br><br>RE: 习父当年说，这个儿子不适合从政。知子莫若父，看来习父说到根子上了。</p>
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
@@ -107,35 +131,11 @@
 </h2>
 <p>//@王宇明律师:[吃惊]//@zhanxiaoqian:吓死宝宝了！[泪]<br><br>RE: 【中国军视网：任何人都不能以“魏则西事件”个案诋毁人民军队】“部队医院”不会，也不可能游离于中国军队管辖之外。连徐，郭这样的人都能被拿下，难道，清理医疗环境这样关乎人民生命的事情，中国军队还会藏着掖着吗？任何人都不能以“魏则西事件”个案，来诋毁和抹黑人民军队。http://t.cn/RqQZlOw<br><img src="http://ww1.sinaimg.cn/large/61e04755jw1f3igav5thyj20b408ajst.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3971179708235740" target="freeweibo-mirror">SPAM 福利  速度哦  私信里发送  完美搭档即可</a>
 </h2>
 <p>SPAM 福利  速度哦  私信里发送  完美搭档即可</p>
-<p>
-	<small> ============== 3小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3971178329013634" target="freeweibo-mirror">有人诋毁人民军队吗?我既没看到诋毁，也没看见军队，我看到的是…</a>
-</h2>
-<p>有人诋毁人民军队吗?我既没看到诋毁，也没看见军队，我看到的是白大褂。<br><br>RE: 【中国军视网：任何人都不能以“魏则西事件”个案诋毁人民军队】“部队医院”不会，也不可能游离于中国军队管辖之外。连徐，郭这样的人都能被拿下，难道，清理医疗环境这样关乎人民生命的事情，中国军队还会藏着掖着吗？任何人都不能以“魏则西事件”个案，来诋毁和抹黑人民军队。http://t.cn/RqQZlOw<br><img src="http://ww1.sinaimg.cn/large/61e04755jw1f3igav5thyj20b408ajst.jpg"></p>
-<p>
-	<small> ============== 3小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3971178182371988" target="freeweibo-mirror">国家监管得当，百度合情合理，军队不容诋毁。那么结论就一个，魏…</a>
-</h2>
-<p>国家监管得当，百度合情合理，军队不容诋毁。那么结论就一个，魏则西该死。<br><br>RE: 【中国军视网：任何人都不能以“魏则西事件”个案诋毁人民军队】“部队医院”不会，也不可能游离于中国军队管辖之外。连徐，郭这样的人都能被拿下，难道，清理医疗环境这样关乎人民生命的事情，中国军队还会藏着掖着吗？任何人都不能以“魏则西事件”个案，来诋毁和抹黑人民军队。http://t.cn/RqQZlOw<br><img src="http://ww1.sinaimg.cn/large/61e04755jw1f3igav5thyj20b408ajst.jpg"></p>
-<p>
-	<small> ============== 3小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3971176956886592" target="freeweibo-mirror">SPAM //@莞芊: [吃惊] //@营口81岁被劳教: …</a>
-</h2>
-<p>SPAM //@莞芊: [吃惊] //@营口81岁被劳教: //@腾龙布雨: 什么情况？<br><br>RE: #老谈说事# 与民搞对立，何谈为人民？ http://t.cn/RqTSrxS</p>
-<p>
-	<small> ============== 3小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3971174566476762" target="freeweibo-mirror">河南省信阳市的这家医院太狠了[吃惊]</a>
-</h2>
-<p>河南省信阳市的这家医院太狠了[吃惊]<br><img src="http://ww2.sinaimg.cn/large/005As9Qdgw1f3ik7961zoj30c80gata6.jpg"></p>
 <p>
 	<small> ============== 3小时前</small>
 </p>
