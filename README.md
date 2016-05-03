@@ -47,7 +47,7 @@
 </h2>
 <p>SPAM 智斗小三，看的我热血沸腾，期待下期精彩@坏先生图片文集</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3971179708235740" target="freeweibo-mirror">SPAM 福利  速度哦  私信里发送  完美搭档即可</a>
 </h2>
@@ -79,6 +79,12 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3971165741365716" target="freeweibo-mirror">#老谈说事# 与民搞对立，何谈为人民？ http://t.c…</a>
+</h2>
+<p>#老谈说事# 与民搞对立，何谈为人民？ http://t.cn/RqTSrxS</p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3971160813594199" target="freeweibo-mirror">//@喷嚏网铂程: //@金融评论员: 鲁迅先生说过：你们也…</a>
 </h2>
 <p>//@喷嚏网铂程: //@金融评论员: 鲁迅先生说过：你们也配用谷歌？ //@谢文:更可怕的是，百姓只能使用烂公司的服务，据说这样更安全 //@陈业文新大都:价值观不同。<br><br>RE: 十五年前，中国和美国两个搜索引擎公司几乎同时起步。 十五年后，一个在研究量子计算机的可行性和自动驾驶，并研发了阿尔法狗这样的超级人工智能。 另一个则在奋发研究卖广告，贩假药，玩流量，送快餐。 它们的名字：一个叫谷歌，一个叫百度。 这就是不同体制造成的根本区别。<br><img src="http://ww4.sinaimg.cn/large/a285e685jw1f3if0etfs4j20ek098mxs.jpg"></p>
@@ -109,6 +115,12 @@
 <p>
 	<small> ============== 4小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3971140566769066" target="freeweibo-mirror">【中国军视网：任何人都不能以“魏则西事件”个案诋毁人民军队】…</a>
+</h2>
+<p>【中国军视网：任何人都不能以“魏则西事件”个案诋毁人民军队】“部队医院”不会，也不可能游离于中国军队管辖之外。连徐，郭这样的人都能被拿下，难道，清理医疗环境这样关乎人民生命的事情，中国军队还会藏着掖着吗？任何人都不能以“魏则西事件”个案，来诋毁和抹黑人民军队。http://t.cn/RqQZlOw<br><img src="http://ww1.sinaimg.cn/large/61e04755jw1f3igav5thyj20b408ajst.jpg"></p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3971129364852902" target="freeweibo-mirror">十五年前，中国和美国两个搜索引擎公司几乎同时起步。 十五年后…</a>
 </h2>
 <p>十五年前，中国和美国两个搜索引擎公司几乎同时起步。 十五年后，一个在研究量子计算机的可行性和自动驾驶，并研发了阿尔法狗这样的超级人工智能。 另一个则在奋发研究卖广告，贩假药，玩流量，送快餐。 它们的名字：一个叫谷歌，一个叫百度。 这就是不同体制造成的根本区别。<br><img src="http://ww4.sinaimg.cn/large/a285e685jw1f3if0etfs4j20ek098mxs.jpg"></p>
@@ -124,18 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3971100570855383" target="freeweibo-mirror">SPAM 撩妹表情包，我要笑岔气了[哈哈]</a>
 </h2>
 <p>SPAM 撩妹表情包，我要笑岔气了[哈哈]</p>
-<p>
-	<small> ============== 7小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3971093524635807" target="freeweibo-mirror">SPAM //@懒人电饭煲菜谱: 谁的青春不迷茫[心]</a>
-</h2>
-<p>SPAM //@懒人电饭煲菜谱: 谁的青春不迷茫[心]</p>
-<p>
-	<small> ============== 7小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3971093222192987" target="freeweibo-mirror">SPAM //@烧伤超人阿宝: 请广州朋友协助查证。//@林…</a>
-</h2>
-<p>SPAM //@烧伤超人阿宝: 请广州朋友协助查证。//@林传毅：图片评论 数字版可能是事后换的，因为也有网友截到了这张图。印刷版比较好查证，网上有多个角度的照片，PS可能性不大。  http://t.cn/RqHFL2w<br><br>RE: 呵呵。<br><img src="http://ww2.sinaimg.cn/large/56ee7ff7jw1f3i46uyxf9j20go0ci40m.jpg"></p>
 <p>
 	<small> ============== 7小时前</small>
 </p>
