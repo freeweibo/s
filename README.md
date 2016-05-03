@@ -107,7 +107,7 @@
 </h2>
 <p>SPAM 违反广告法！//@何光伟: [汗]<br><br>RE: 河南省信阳市的这家医院太狠了[吃惊]<br><img src="http://ww2.sinaimg.cn/large/005As9Qdgw1f3ik7961zoj30c80gata6.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3971191071504422" target="freeweibo-mirror">SPAM 强烈推荐，感兴趣的宝宝找他~</a>
 </h2>
