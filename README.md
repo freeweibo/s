@@ -37,6 +37,18 @@
 <p>
 	<small> ============== 1小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3971190311490634" target="freeweibo-mirror">SPAM  //@崔小平律师://@何光伟:[汗]</a>
+</h2>
+<p>SPAM  //@崔小平律师://@何光伟:[汗]<br><br>RE: 河南省信阳市的这家医院太狠了[吃惊]<br><img src="http://ww2.sinaimg.cn/large/005As9Qdgw1f3ik7961zoj30c80gata6.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3971186821986583" target="freeweibo-mirror">SPAM //@崔小平律师://@何光伟:[汗]</a>
+</h2>
+<p>SPAM //@崔小平律师://@何光伟:[汗]<br><br>RE: 河南省信阳市的这家医院太狠了[吃惊]<br><img src="http://ww2.sinaimg.cn/large/005As9Qdgw1f3ik7961zoj30c80gata6.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3971186180266855" target="freeweibo-mirror">[挖鼻] //@扛着枕头:[思考] //@防务君:国家监管得…</a>
 </h2>
 <p>[挖鼻] //@扛着枕头:[思考] //@防务君:国家监管得当，百度合情合理，军队不容诋毁。那么结论就一个，魏则西该死。<br><br>RE: 【中国军视网：任何人都不能以“魏则西事件”个案诋毁人民军队】“部队医院”不会，也不可能游离于中国军队管辖之外。连徐，郭这样的人都能被拿下，难道，清理医疗环境这样关乎人民生命的事情，中国军队还会藏着掖着吗？任何人都不能以“魏则西事件”个案，来诋毁和抹黑人民军队。http://t.cn/RqQZlOw<br><img src="http://ww1.sinaimg.cn/large/61e04755jw1f3igav5thyj20b408ajst.jpg"></p>
@@ -55,15 +67,51 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3971183890536546" target="freeweibo-mirror">//@王小毛之父葛明铭:完全没有看到有诋毁人民军队的言论，看…</a>
+</h2>
+<p>//@王小毛之父葛明铭:完全没有看到有诋毁人民军队的言论，看到的大都是理性批评部队医院存在问题的言论。先自己制造一个虚幻的对象或言论，然后进行义正词严的责问批判，这种手法是文革中惯用的大批判套路<br><br>RE: 【中国军视网：任何人都不能以“魏则西事件”个案诋毁人民军队】“部队医院”不会，也不可能游离于中国军队管辖之外。连徐，郭这样的人都能被拿下，难道，清理医疗环境这样关乎人民生命的事情，中国军队还会藏着掖着吗？任何人都不能以“魏则西事件”个案，来诋毁和抹黑人民军队。http://t.cn/RqQZlOw<br><img src="http://ww1.sinaimg.cn/large/61e04755jw1f3igav5thyj20b408ajst.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3971183106225926" target="freeweibo-mirror">「现在，也有不少人开始把舆论的矛头影影绰绰地指向“部队医院”…</a>
+</h2>
+<p>「现在，也有不少人开始把舆论的矛头影影绰绰地指向“部队医院”了。」不是影影绰绰，而是联合军委开展调查，这是诋毁吗？军队互联网都不是法外之地，部队医院违规商业合作这是军队应由职能，批评不得吗？ @军报记者 //@防务君:国家监管得当，百度合情合理，军队不容诋毁。那么，魏则西该死。<br><br>RE: 【中国军视网：任何人都不能以“魏则西事件”个案诋毁人民军队】“部队医院”不会，也不可能游离于中国军队管辖之外。连徐，郭这样的人都能被拿下，难道，清理医疗环境这样关乎人民生命的事情，中国军队还会藏着掖着吗？任何人都不能以“魏则西事件”个案，来诋毁和抹黑人民军队。http://t.cn/RqQZlOw<br><img src="http://ww1.sinaimg.cn/large/61e04755jw1f3igav5thyj20b408ajst.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3971182355599006" target="freeweibo-mirror">谈医疗问题，别上纲上线//@项先中001: 借用2008年汶…</a>
+</h2>
+<p>谈医疗问题，别上纲上线//@项先中001: 借用2008年汶川地震时，温相在怒斥军方不听指挥延误救援时说过的一句话：你们都是纳税人养着的，你们自己看着办。<br><br>RE: 【中国军视网：任何人都不能以“魏则西事件”个案诋毁人民军队】“部队医院”不会，也不可能游离于中国军队管辖之外。连徐，郭这样的人都能被拿下，难道，清理医疗环境这样关乎人民生命的事情，中国军队还会藏着掖着吗？任何人都不能以“魏则西事件”个案，来诋毁和抹黑人民军队。http://t.cn/RqQZlOw<br><img src="http://ww1.sinaimg.cn/large/61e04755jw1f3igav5thyj20b408ajst.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3971182137284080" target="freeweibo-mirror">SPAM 智斗小三，看的我热血沸腾，期待下期精彩@坏先生图片…</a>
 </h2>
 <p>SPAM 智斗小三，看的我热血沸腾，期待下期精彩@坏先生图片文集</p>
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3971181012353028" target="freeweibo-mirror">//@王宇明律师:[吃惊]//@zhanxiaoqian:吓…</a>
+</h2>
+<p>//@王宇明律师:[吃惊]//@zhanxiaoqian:吓死宝宝了！[泪]<br><br>RE: 【中国军视网：任何人都不能以“魏则西事件”个案诋毁人民军队】“部队医院”不会，也不可能游离于中国军队管辖之外。连徐，郭这样的人都能被拿下，难道，清理医疗环境这样关乎人民生命的事情，中国军队还会藏着掖着吗？任何人都不能以“魏则西事件”个案，来诋毁和抹黑人民军队。http://t.cn/RqQZlOw<br><img src="http://ww1.sinaimg.cn/large/61e04755jw1f3igav5thyj20b408ajst.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3971179708235740" target="freeweibo-mirror">SPAM 福利  速度哦  私信里发送  完美搭档即可</a>
 </h2>
 <p>SPAM 福利  速度哦  私信里发送  完美搭档即可</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3971178329013634" target="freeweibo-mirror">有人诋毁人民军队吗?我既没看到诋毁，也没看见军队，我看到的是…</a>
+</h2>
+<p>有人诋毁人民军队吗?我既没看到诋毁，也没看见军队，我看到的是白大褂。<br><br>RE: 【中国军视网：任何人都不能以“魏则西事件”个案诋毁人民军队】“部队医院”不会，也不可能游离于中国军队管辖之外。连徐，郭这样的人都能被拿下，难道，清理医疗环境这样关乎人民生命的事情，中国军队还会藏着掖着吗？任何人都不能以“魏则西事件”个案，来诋毁和抹黑人民军队。http://t.cn/RqQZlOw<br><img src="http://ww1.sinaimg.cn/large/61e04755jw1f3igav5thyj20b408ajst.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3971178182371988" target="freeweibo-mirror">国家监管得当，百度合情合理，军队不容诋毁。那么结论就一个，魏…</a>
+</h2>
+<p>国家监管得当，百度合情合理，军队不容诋毁。那么结论就一个，魏则西该死。<br><br>RE: 【中国军视网：任何人都不能以“魏则西事件”个案诋毁人民军队】“部队医院”不会，也不可能游离于中国军队管辖之外。连徐，郭这样的人都能被拿下，难道，清理医疗环境这样关乎人民生命的事情，中国军队还会藏着掖着吗？任何人都不能以“魏则西事件”个案，来诋毁和抹黑人民军队。http://t.cn/RqQZlOw<br><img src="http://ww1.sinaimg.cn/large/61e04755jw1f3igav5thyj20b408ajst.jpg"></p>
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
@@ -90,54 +138,6 @@
 <p>［原标题：让“魏则西事件”真正净化我们的生命环境］中央军委部署3年左右分步停止军队武警一切有偿服务活动。。从小汤山到汶川，从抗洪大堤到玉树高原，部队医护人员努力拼搏着。想想吧，连徐、郭都能拿下，难道清理医疗环境这样关乎人民生命的事情，中国军队还会藏着掖着吗？ http://t.cn/RqQ4Cb5<br><br>RE: 【中国军视网：任何人都不能以“魏则西事件”个案诋毁人民军队】“部队医院”不会，也不可能游离于中国军队管辖之外。连徐，郭这样的人都能被拿下，难道，清理医疗环境这样关乎人民生命的事情，中国军队还会藏着掖着吗？任何人都不能以“魏则西事件”个案，来诋毁和抹黑人民军队。http://t.cn/RqQZlOw<br><img src="http://ww1.sinaimg.cn/large/61e04755jw1f3igav5thyj20b408ajst.jpg"></p>
 <p>
 	<small> ============== 3小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3971165741365716" target="freeweibo-mirror">#老谈说事# 与民搞对立，何谈为人民？ http://t.c…</a>
-</h2>
-<p>#老谈说事# 与民搞对立，何谈为人民？ http://t.cn/RqTSrxS</p>
-<p>
-	<small> ============== 3小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3971160813594199" target="freeweibo-mirror">//@喷嚏网铂程: //@金融评论员: 鲁迅先生说过：你们也…</a>
-</h2>
-<p>//@喷嚏网铂程: //@金融评论员: 鲁迅先生说过：你们也配用谷歌？ //@谢文:更可怕的是，百姓只能使用烂公司的服务，据说这样更安全 //@陈业文新大都:价值观不同。<br><br>RE: 十五年前，中国和美国两个搜索引擎公司几乎同时起步。 十五年后，一个在研究量子计算机的可行性和自动驾驶，并研发了阿尔法狗这样的超级人工智能。 另一个则在奋发研究卖广告，贩假药，玩流量，送快餐。 它们的名字：一个叫谷歌，一个叫百度。 这就是不同体制造成的根本区别。<br><img src="http://ww4.sinaimg.cn/large/a285e685jw1f3if0etfs4j20ek098mxs.jpg"></p>
-<p>
-	<small> ============== 3小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3971160788385021" target="freeweibo-mirror">又伟大光荣正确了啊？事情爆光前你们在做什么啊？全中国有多少类…</a>
-</h2>
-<p>又伟大光荣正确了啊？事情爆光前你们在做什么啊？全中国有多少类似的转包科室的医院啊？当中有多少军队内部人员从中捞取利益啊？把这些事做好了做完了，大家会鼓掌，自己说的不算！<br><br>RE: 【中国军视网：任何人都不能以“魏则西事件”个案诋毁人民军队】“部队医院”不会，也不可能游离于中国军队管辖之外。连徐，郭这样的人都能被拿下，难道，清理医疗环境这样关乎人民生命的事情，中国军队还会藏着掖着吗？任何人都不能以“魏则西事件”个案，来诋毁和抹黑人民军队。http://t.cn/RqQZlOw<br><img src="http://ww1.sinaimg.cn/large/61e04755jw1f3igav5thyj20b408ajst.jpg"></p>
-<p>
-	<small> ============== 3小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3971157516908811" target="freeweibo-mirror">SPAM 走吧                       …</a>
-</h2>
-<p>SPAM 走吧                                                                  和我一起 随便哪里                                         只要和你 背着行李 带着相机                                拍一些好看的照片                                           穿一双喜欢的鞋子 @Korea潮鞋<br><img src="http://ww2.sinaimg.cn/large/862dc77cjw1f3ii7n60mjj20ku0ku0vx.jpg"></p>
-<p>
-	<small> ============== 4小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3971152340997918" target="freeweibo-mirror">港媒报道湖北省委书记李鸿忠遭中纪委约谈，打虎沉寂了好长时间了…</a>
-</h2>
-<p>港媒报道湖北省委书记李鸿忠遭中纪委约谈，打虎沉寂了好长时间了，是否到了瓜熟蒂落的时候？<br><img src="http://ww3.sinaimg.cn/large/e15009f1jw1f3ihk2eoetj206s04q749.jpg"></p>
-<p>
-	<small> ============== 4小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3971150079783590" target="freeweibo-mirror">互联网闭关锁国富了一批人愚了大多数。</a>
-</h2>
-<p>互联网闭关锁国富了一批人愚了大多数。<br><br>RE: 十五年前，中国和美国两个搜索引擎公司几乎同时起步。 十五年后，一个在研究量子计算机的可行性和自动驾驶，并研发了阿尔法狗这样的超级人工智能。 另一个则在奋发研究卖广告，贩假药，玩流量，送快餐。 它们的名字：一个叫谷歌，一个叫百度。 这就是不同体制造成的根本区别。<br><img src="http://ww4.sinaimg.cn/large/a285e685jw1f3if0etfs4j20ek098mxs.jpg"></p>
-<p>
-	<small> ============== 4小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3971144741008533" target="freeweibo-mirror">SPAM 这。。。</a>
-</h2>
-<p>SPAM 这。。。<br><img src="http://ww2.sinaimg.cn/large/63e7c613gw1f3igrmwvfwj20hs0i775p.jpg"></p>
-<p>
-	<small> ============== 4小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3971140566769066" target="freeweibo-mirror">【中国军视网：任何人都不能以“魏则西事件”个案诋毁人民军队】…</a>
-</h2>
-<p>【中国军视网：任何人都不能以“魏则西事件”个案诋毁人民军队】“部队医院”不会，也不可能游离于中国军队管辖之外。连徐，郭这样的人都能被拿下，难道，清理医疗环境这样关乎人民生命的事情，中国军队还会藏着掖着吗？任何人都不能以“魏则西事件”个案，来诋毁和抹黑人民军队。http://t.cn/RqQZlOw<br><img src="http://ww1.sinaimg.cn/large/61e04755jw1f3igav5thyj20b408ajst.jpg"></p>
-<p>
-	<small> ============== 5小时前</small>
 </p>
 <table>
     <tr>
