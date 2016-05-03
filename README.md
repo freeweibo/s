@@ -19,11 +19,17 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3971205100535558" target="freeweibo-mirror">SPAM [good]这是我所见过最精妙的广告词，没有之一！</a>
+</h2>
+<p>SPAM [good]这是我所见过最精妙的广告词，没有之一！<br><br>RE: 你可以不说话，但不能不呼吸！<br><img src="http://ww4.sinaimg.cn/large/621d03b7jw1f3ifomn6dtj20rs0ijgov.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3971203016156087" target="freeweibo-mirror">你说的没错，一般都是自己有这样的想法，欲强加他人而已！ //…</a>
 </h2>
 <p>你说的没错，一般都是自己有这样的想法，欲强加他人而已！ //@神剑10000:很明显是攻击中国共产党！如果姑息养奸会最终毁灭自己！ //@柳随风:这句话有问题吗？怎么看不出来！ //@大藏布:转发微博<br><br>RE: 【远大发任志强广告】昨日，北京西城党委通报给予任志强留党察看处分。今日，远大在长沙火车站大屏幕广告：“你可以不说话，但不能不呼吸”。请问：1，这是不是巧合？2,远大几个意思？3,湖南党委长沙党委铁路党委怎么看？4,主席家乡人民怎么看？5,资本的力量果然可以藐视一切！<br><img src="http://ww2.sinaimg.cn/large/006cuVe3jw1f3ih6githjj30m80eu408.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3971200382135044" target="freeweibo-mirror">右边这一串是要兴文字狱啊！故意把净化空气的广告和政治联系，视…</a>
 </h2>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3971181012353028" target="freeweibo-mirror">//@王宇明律师:[吃惊]//@zhanxiaoqian:吓…</a>
 </h2>
 <p>//@王宇明律师:[吃惊]//@zhanxiaoqian:吓死宝宝了！[泪]<br><br>RE: 【中国军视网：任何人都不能以“魏则西事件”个案诋毁人民军队】“部队医院”不会，也不可能游离于中国军队管辖之外。连徐，郭这样的人都能被拿下，难道，清理医疗环境这样关乎人民生命的事情，中国军队还会藏着掖着吗？任何人都不能以“魏则西事件”个案，来诋毁和抹黑人民军队。http://t.cn/RqQZlOw<br><img src="http://ww1.sinaimg.cn/large/61e04755jw1f3igav5thyj20b408ajst.jpg"></p>
-<p>
-	<small> ============== 3小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3971179708235740" target="freeweibo-mirror">SPAM 福利  速度哦  私信里发送  完美搭档即可</a>
-</h2>
-<p>SPAM 福利  速度哦  私信里发送  完美搭档即可</p>
 <p>
 	<small> ============== 3小时前</small>
 </p>
