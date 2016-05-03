@@ -29,7 +29,7 @@
 </h2>
 <p>SPAM 违反广告法！//@何光伟: [汗]<br><br>RE: 河南省信阳市的这家医院太狠了[吃惊]<br><img src="http://ww2.sinaimg.cn/large/005As9Qdgw1f3ik7961zoj30c80gata6.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3971190395159705" target="freeweibo-mirror">[good]人民军队就是好，谁敢说个不字？//@柳叶刀六爷-…</a>
 </h2>
@@ -119,7 +119,7 @@
 </h2>
 <p>SPAM //@莞芊: [吃惊] //@营口81岁被劳教: //@腾龙布雨: 什么情况？<br><br>RE: #老谈说事# 与民搞对立，何谈为人民？ http://t.cn/RqTSrxS</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3971171559377245" target="freeweibo-mirror">致死人命，不见一丝歉疚，还要声色俱厉，某国特色//@盘子微谈…</a>
 </h2>
