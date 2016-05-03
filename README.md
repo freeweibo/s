@@ -137,7 +137,7 @@
 </h2>
 <p>南方报系的责任感强烈，值得每一个妓女学习<br><img src="http://ww3.sinaimg.cn/large/4bd32ceajw1f3i15yeo9wj20go0ciabx.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p>
 <table>
     <tr>
