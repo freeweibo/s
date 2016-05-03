@@ -25,9 +25,69 @@
 <p>
 	<small> ============== 1小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3971186180266855" target="freeweibo-mirror">[挖鼻] //@扛着枕头:[思考] //@防务君:国家监管得…</a>
+</h2>
+<p>[挖鼻] //@扛着枕头:[思考] //@防务君:国家监管得当，百度合情合理，军队不容诋毁。那么结论就一个，魏则西该死。<br><br>RE: 【中国军视网：任何人都不能以“魏则西事件”个案诋毁人民军队】“部队医院”不会，也不可能游离于中国军队管辖之外。连徐，郭这样的人都能被拿下，难道，清理医疗环境这样关乎人民生命的事情，中国军队还会藏着掖着吗？任何人都不能以“魏则西事件”个案，来诋毁和抹黑人民军队。http://t.cn/RqQZlOw<br><img src="http://ww1.sinaimg.cn/large/61e04755jw1f3igav5thyj20b408ajst.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3971185068507200" target="freeweibo-mirror">？//@Merlot杜樱: ？@湾仔罗 //@深圳老歌: 大…</a>
+</h2>
+<p>？//@Merlot杜樱: ？@湾仔罗 //@深圳老歌: 大件事 //@曾经的一个传说://@玉石上的鹤: //@细水一滴:此人去年大谈“孝顺”理论，争当儿孙。[偷笑]//@曹小明律师: 约谈之后就开始斗法，老王不好对付！<br><br>RE: 港媒报道湖北省委书记李鸿忠遭中纪委约谈，打虎沉寂了好长时间了，是否到了瓜熟蒂落的时候？<br><img src="http://ww3.sinaimg.cn/large/e15009f1jw1f3ihk2eoetj206s04q749.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3971184800297599" target="freeweibo-mirror">//@杨清林先生: 二奶生的最爱护他爹的短！[哈哈] //@…</a>
+</h2>
+<p>//@杨清林先生: 二奶生的最爱护他爹的短！[哈哈] //@阿忆:还没普查，就断言是个案，所以不用普查了。 //@尹鸿：“连徐郭都能拿下”，成了满满正能量了…<br><br>RE: 【中国军视网：任何人都不能以“魏则西事件”个案诋毁人民军队】“部队医院”不会，也不可能游离于中国军队管辖之外。连徐，郭这样的人都能被拿下，难道，清理医疗环境这样关乎人民生命的事情，中国军队还会藏着掖着吗？任何人都不能以“魏则西事件”个案，来诋毁和抹黑人民军队。http://t.cn/RqQZlOw<br><img src="http://ww1.sinaimg.cn/large/61e04755jw1f3igav5thyj20b408ajst.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3971182137284080" target="freeweibo-mirror">SPAM 智斗小三，看的我热血沸腾，期待下期精彩@坏先生图片…</a>
+</h2>
+<p>SPAM 智斗小三，看的我热血沸腾，期待下期精彩@坏先生图片文集</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3971179708235740" target="freeweibo-mirror">SPAM 福利  速度哦  私信里发送  完美搭档即可</a>
+</h2>
+<p>SPAM 福利  速度哦  私信里发送  完美搭档即可</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3971176956886592" target="freeweibo-mirror">SPAM //@莞芊: [吃惊] //@营口81岁被劳教: …</a>
+</h2>
+<p>SPAM //@莞芊: [吃惊] //@营口81岁被劳教: //@腾龙布雨: 什么情况？<br><br>RE: #老谈说事# 与民搞对立，何谈为人民？ http://t.cn/RqTSrxS</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3971171559377245" target="freeweibo-mirror">致死人命，不见一丝歉疚，还要声色俱厉，某国特色//@盘子微谈…</a>
+</h2>
+<p>致死人命，不见一丝歉疚，还要声色俱厉，某国特色//@盘子微谈:还需诋毁摸黑？[挖鼻]<br><br>RE: 【中国军视网：任何人都不能以“魏则西事件”个案诋毁人民军队】“部队医院”不会，也不可能游离于中国军队管辖之外。连徐，郭这样的人都能被拿下，难道，清理医疗环境这样关乎人民生命的事情，中国军队还会藏着掖着吗？任何人都不能以“魏则西事件”个案，来诋毁和抹黑人民军队。http://t.cn/RqQZlOw<br><img src="http://ww1.sinaimg.cn/large/61e04755jw1f3igav5thyj20b408ajst.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3971170674417572" target="freeweibo-mirror">//@王祖哲:回复@温所未闻: 咱这枪杆子，常常表现出【全自…</a>
+</h2>
+<p>//@王祖哲:回复@温所未闻: 咱这枪杆子，常常表现出【全自动】的特点，叫人不安。 //@温所未闻:必然如此。政治过度依赖枪杆子，枪杆子就必然反作用于政治。谁指挥谁不好说！ //@王祖哲:啧啧啧，不检讨，却还声色俱厉——没个好。其实，就是宠的。<br><br>RE: 【中国军视网：任何人都不能以“魏则西事件”个案诋毁人民军队】“部队医院”不会，也不可能游离于中国军队管辖之外。连徐，郭这样的人都能被拿下，难道，清理医疗环境这样关乎人民生命的事情，中国军队还会藏着掖着吗？任何人都不能以“魏则西事件”个案，来诋毁和抹黑人民军队。http://t.cn/RqQZlOw<br><img src="http://ww1.sinaimg.cn/large/61e04755jw1f3igav5thyj20b408ajst.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3971168795317338" target="freeweibo-mirror">［原标题：让“魏则西事件”真正净化我们的生命环境］中央军委部…</a>
+</h2>
+<p>［原标题：让“魏则西事件”真正净化我们的生命环境］中央军委部署3年左右分步停止军队武警一切有偿服务活动。。从小汤山到汶川，从抗洪大堤到玉树高原，部队医护人员努力拼搏着。想想吧，连徐、郭都能拿下，难道清理医疗环境这样关乎人民生命的事情，中国军队还会藏着掖着吗？ http://t.cn/RqQ4Cb5<br><br>RE: 【中国军视网：任何人都不能以“魏则西事件”个案诋毁人民军队】“部队医院”不会，也不可能游离于中国军队管辖之外。连徐，郭这样的人都能被拿下，难道，清理医疗环境这样关乎人民生命的事情，中国军队还会藏着掖着吗？任何人都不能以“魏则西事件”个案，来诋毁和抹黑人民军队。http://t.cn/RqQZlOw<br><img src="http://ww1.sinaimg.cn/large/61e04755jw1f3igav5thyj20b408ajst.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3971160813594199" target="freeweibo-mirror">//@喷嚏网铂程: //@金融评论员: 鲁迅先生说过：你们也…</a>
 </h2>
 <p>//@喷嚏网铂程: //@金融评论员: 鲁迅先生说过：你们也配用谷歌？ //@谢文:更可怕的是，百姓只能使用烂公司的服务，据说这样更安全 //@陈业文新大都:价值观不同。<br><br>RE: 十五年前，中国和美国两个搜索引擎公司几乎同时起步。 十五年后，一个在研究量子计算机的可行性和自动驾驶，并研发了阿尔法狗这样的超级人工智能。 另一个则在奋发研究卖广告，贩假药，玩流量，送快餐。 它们的名字：一个叫谷歌，一个叫百度。 这就是不同体制造成的根本区别。<br><img src="http://ww4.sinaimg.cn/large/a285e685jw1f3if0etfs4j20ek098mxs.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3971160788385021" target="freeweibo-mirror">又伟大光荣正确了啊？事情爆光前你们在做什么啊？全中国有多少类…</a>
+</h2>
+<p>又伟大光荣正确了啊？事情爆光前你们在做什么啊？全中国有多少类似的转包科室的医院啊？当中有多少军队内部人员从中捞取利益啊？把这些事做好了做完了，大家会鼓掌，自己说的不算！<br><br>RE: 【中国军视网：任何人都不能以“魏则西事件”个案诋毁人民军队】“部队医院”不会，也不可能游离于中国军队管辖之外。连徐，郭这样的人都能被拿下，难道，清理医疗环境这样关乎人民生命的事情，中国军队还会藏着掖着吗？任何人都不能以“魏则西事件”个案，来诋毁和抹黑人民军队。http://t.cn/RqQZlOw<br><img src="http://ww1.sinaimg.cn/large/61e04755jw1f3igav5thyj20b408ajst.jpg"></p>
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
@@ -78,66 +138,6 @@
 <p>SPAM //@烧伤超人阿宝: 请广州朋友协助查证。//@林传毅：图片评论 数字版可能是事后换的，因为也有网友截到了这张图。印刷版比较好查证，网上有多个角度的照片，PS可能性不大。  http://t.cn/RqHFL2w<br><br>RE: 呵呵。<br><img src="http://ww2.sinaimg.cn/large/56ee7ff7jw1f3i46uyxf9j20go0ci40m.jpg"></p>
 <p>
 	<small> ============== 7小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3971089476210781" target="freeweibo-mirror">SPAM 请广州朋友协助查证。//@林传毅：图片评论 数字版…</a>
-</h2>
-<p>SPAM 请广州朋友协助查证。//@林传毅：图片评论 数字版可能是事后换的，因为也有网友截到了这张图。印刷版比较好查证，网上有多个角度的照片，PS可能性不大。 http://t.cn/RqHFL2w<br><br>RE: 呵呵。<br><img src="http://ww2.sinaimg.cn/large/56ee7ff7jw1f3i46uyxf9j20go0ci40m.jpg"></p>
-<p>
-	<small> ============== 8小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3971088960985391" target="freeweibo-mirror">SPAM //@海明评说: 学会翻墙，这是当代中国公民的基本…</a>
-</h2>
-<p>SPAM //@海明评说: 学会翻墙，这是当代中国公民的基本素质。 //@海参崴以西:呵呵 ，那有什么办法呢？<br><br>RE: 如果没有防火墙，魏则西只需要在谷歌、维基百科搜索一下，就会知道什么是生物免疫疗法。这样也许不一定能挽救他的生命，但至少他不会受骗而耽误治疗。可惜的是，对于生活在墙里的他，却没有这个选择，只能选择相信百度，相信这些军医院。从这点上说，隔绝可以救命的信息，确是杀人的同谋无疑。</p>
-<p>
-	<small> ============== 8小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3971088070876826" target="freeweibo-mirror">SPAM 据网友：今日报纸最后一版如图，原博中广告是出现在四…</a>
-</h2>
-<p>SPAM 据网友：今日报纸最后一版如图，原博中广告是出现在四月下旬一版上。周知。 http://t.cn/RqHkFLQ<br><br>RE: 呵呵。<br><img src="http://ww2.sinaimg.cn/large/56ee7ff7jw1f3i46uyxf9j20go0ci40m.jpg"></p>
-<p>
-	<small> ============== 8小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3971080517595346" target="freeweibo-mirror">SPAM //@李方平律师:没有敏感词，百度凭什么排世界第四…</a>
-</h2>
-<p>SPAM //@李方平律师:没有敏感词，百度凭什么排世界第四？</p>
-<p>
-	<small> ============== 8小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3971071994439443" target="freeweibo-mirror">SPAM //@师伟微博:顾头不顾腚，乌鸦说猪黑。</a>
-</h2>
-<p>SPAM //@师伟微博:顾头不顾腚，乌鸦说猪黑。<br><br>RE: 南方报系的责任感强烈，值得每一个妓女学习<br><img src="http://ww3.sinaimg.cn/large/4bd32ceajw1f3i15yeo9wj20go0ciabx.jpg"></p>
-<p>
-	<small> ============== 9小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3971067732908645" target="freeweibo-mirror">超級地租，制造了食利階級，也製造了龐大的房奴群體。整個社會因…</a>
-</h2>
-<p>超級地租，制造了食利階級，也製造了龐大的房奴群體。整個社會因此而分裂了，政府+食利者=既得利益群體，無房產之普通勞動者則成為被剝奪者。任志強，之所以說不得，是因為不能碰資產持有和資本利得的課稅。不過，我們就偏偏要說，直到完成稅政革命為止。大炮，應轟向敵人，而絕不是自己的祖國和人民。</p>
-<p>
-	<small> ============== 9小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3971040667182436" target="freeweibo-mirror">SPAM ......还要立牌坊[汗]//@围脖老丁: //…</a>
-</h2>
-<p>SPAM ......还要立牌坊[汗]//@围脖老丁: //@苏雨农: 媒体生态就是这样哦 //@国东:充分体现了南方都市报报社的采编和销售分离，只是步调没协调好。 [偷笑]<br><br>RE: 南方报系的责任感强烈，值得每一个妓女学习<br><img src="http://ww3.sinaimg.cn/large/4bd32ceajw1f3i15yeo9wj20go0ciabx.jpg"></p>
-<p>
-	<small> ============== 11小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3971039530327039" target="freeweibo-mirror">SPAM 神仙打架，边上看着就好了…… //@萝卜新人类:@…</a>
-</h2>
-<p>SPAM 神仙打架，边上看着就好了…… //@萝卜新人类:@周志 这就是传说中的“乌鸦站在煤堆上”<br><br>RE: 南方报系的责任感强烈，值得每一个妓女学习<br><img src="http://ww3.sinaimg.cn/large/4bd32ceajw1f3i15yeo9wj20go0ciabx.jpg"></p>
-<p>
-	<small> ============== 11小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3971039258121925" target="freeweibo-mirror">//@安然cn:在陕西做河南菜，象不象河南菜，是由消费者选择…</a>
-</h2>
-<p>//@安然cn:在陕西做河南菜，象不象河南菜，是由消费者选择购买，而不是由河南人去砸摊子。博主所言广告是否扩大宣传，我看不见得，又没有写疗效。我再说，宗教乃公共思想，谁都无从界定和干涉权，人多势众并不能代替法律。另外，所有伊教徒都有义务对此极端行为给予谴责，以说明自己所信伊教乃和平宗教<br><br>RE: 关于温州汉族烧烤摊事件，我再说一下我认为的合理处理办法，第一，汉族摊主的烤肉本身并没标明是清真食品，只是广告使用了自己都不懂的阿拉伯语清真言，界定为广告夸大宣传，应该由工商部门予以处罚。第二。温州穆斯林阿訇违反工商条例，非法取缔汉族烤肉经营，对摊主造成损失，也应该给予赔偿。<br><img src="http://ww3.sinaimg.cn/large/ea3daad9gw1f3hojb7x6oj20j60bfjtf.jpg"></p>
-<p>
-	<small> ============== 11小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3971035113574207" target="freeweibo-mirror">呵呵。</a>
-</h2>
-<p>呵呵。<br><img src="http://ww2.sinaimg.cn/large/56ee7ff7jw1f3i46uyxf9j20go0ci40m.jpg"></p>
-<p>
-	<small> ============== 11小时前</small>
 </p>
 <table>
     <tr>
