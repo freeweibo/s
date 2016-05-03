@@ -89,7 +89,7 @@
 </h2>
 <p>SPAM //@李方平律师:没有敏感词，百度凭什么排世界第四？</p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3971071994439443" target="freeweibo-mirror">SPAM //@师伟微博:顾头不顾腚，乌鸦说猪黑。</a>
 </h2>
@@ -125,7 +125,7 @@
 </h2>
 <p>呵呵。<br><img src="http://ww2.sinaimg.cn/large/56ee7ff7jw1f3i46uyxf9j20go0ci40m.jpg"></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3971025308184587" target="freeweibo-mirror">SPAM 66666[哈哈]</a>
 </h2>
@@ -137,7 +137,7 @@
 </h2>
 <p>如果没有防火墙，魏则西只需要在谷歌、维基百科搜索一下，就会知道什么是生物免疫疗法。这样也许不一定能挽救他的生命，但至少他不会受骗而耽误治疗。可惜的是，对于生活在墙里的他，却没有这个选择，只能选择相信百度，相信这些军医院。从这点上说，隔绝可以救命的信息，确是杀人的同谋无疑。</p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p>
 <table>
     <tr>
