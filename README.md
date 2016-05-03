@@ -71,7 +71,7 @@
 </h2>
 <p>想看</p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3970799456937800" target="freeweibo-mirror">SPAM 解禁谷歌！//@余胜海:呼吁解禁谷歌!#听海观潮#…</a>
 </h2>
@@ -125,7 +125,7 @@
 </h2>
 <p>//@李鸿文在深圳:不是“杨科长很重要”，而是“没有杨科长很重要”。//@周泽律师: 看了半天评论，怎么都是巴望着杨科长早走的呢？</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3970781593614047" target="freeweibo-mirror">看了半天评论，怎么都是巴望着杨科长早走的呢？</a>
 </h2>
