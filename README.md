@@ -41,7 +41,7 @@
 </h2>
 <p>SPAM [good][good]<br><br>RE: 不让百度蒙眼，呼吁解禁谷歌！【本博发起签名活动，转发视作签名，请转发！希望政府听见！】</p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3970829479619946" target="freeweibo-mirror">SPAM //@一品泥人://@南开老魏034:[话筒]//…</a>
 </h2>
@@ -131,7 +131,7 @@
 </h2>
 <p>看了半天评论，怎么都是巴望着杨科长早走的呢？</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3970775977456503" target="freeweibo-mirror">有点晕！//@刘军宁:是啊，为何不查武......？？？//…</a>
 </h2>
