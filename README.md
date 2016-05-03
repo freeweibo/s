@@ -29,11 +29,17 @@
 </h2>
 <p>SPAM 走吧                                                                  和我一起 随便哪里                                         只要和你 背着行李 带着相机                                拍一些好看的照片                                           穿一双喜欢的鞋子 @Korea潮鞋<br><img src="http://ww2.sinaimg.cn/large/862dc77cjw1f3ii7n60mjj20ku0ku0vx.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3971150079783590" target="freeweibo-mirror">互联网闭关锁国富了一批人愚了大多数。</a>
 </h2>
 <p>互联网闭关锁国富了一批人愚了大多数。<br><br>RE: 十五年前，中国和美国两个搜索引擎公司几乎同时起步。 十五年后，一个在研究量子计算机的可行性和自动驾驶，并研发了阿尔法狗这样的超级人工智能。 另一个则在奋发研究卖广告，贩假药，玩流量，送快餐。 它们的名字：一个叫谷歌，一个叫百度。 这就是不同体制造成的根本区别。<br><img src="http://ww4.sinaimg.cn/large/a285e685jw1f3if0etfs4j20ek098mxs.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3971144741008533" target="freeweibo-mirror">SPAM 这。。。</a>
+</h2>
+<p>SPAM 这。。。<br><img src="http://ww2.sinaimg.cn/large/63e7c613gw1f3igrmwvfwj20hs0i775p.jpg"></p>
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
@@ -132,12 +138,6 @@
 <p>SPAM 66666[哈哈]</p>
 <p>
 	<small> ============== 11小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3971020447226023" target="freeweibo-mirror">如果没有防火墙，魏则西只需要在谷歌、维基百科搜索一下，就会知…</a>
-</h2>
-<p>如果没有防火墙，魏则西只需要在谷歌、维基百科搜索一下，就会知道什么是生物免疫疗法。这样也许不一定能挽救他的生命，但至少他不会受骗而耽误治疗。可惜的是，对于生活在墙里的他，却没有这个选择，只能选择相信百度，相信这些军医院。从这点上说，隔绝可以救命的信息，确是杀人的同谋无疑。</p>
-<p>
-	<small> ============== 12小时前</small>
 </p>
 <table>
     <tr>
