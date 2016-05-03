@@ -89,19 +89,19 @@
 </h2>
 <p>赞远大。<br><br>RE: 【远大发任志强广告】昨日，北京西城党委通报给予任志强留党察看处分。今日，远大在长沙火车站大屏幕广告：“你可以不说话，但不能不呼吸”。请问：1，这是不是巧合？2,远大几个意思？3,湖南党委长沙党委铁路党委怎么看？4,主席家乡人民怎么看？5,资本的力量果然可以藐视一切！<br><img src="http://ww2.sinaimg.cn/large/006cuVe3jw1f3ih6githjj30m80eu408.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3971198704166144" target="freeweibo-mirror">//@亮剑兄又来啦: //@伟荣V实说: //@浮萍-JJ:…</a>
 </h2>
 <p>//@亮剑兄又来啦: //@伟荣V实说: //@浮萍-JJ: 转发微博<br><br>RE: 分享图片<br><img src="http://ww3.sinaimg.cn/large/006frKBbgw1f3ilwayn55j30k00zkgt2.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3971198448975458" target="freeweibo-mirror">//@刘水长东://@陆浑戎://@ECO中文网:“你可以不…</a>
 </h2>
 <p>//@刘水长东://@陆浑戎://@ECO中文网:“你可以不说话，但不能不呼吸”说的挺对的。<br><br>RE: 【远大发任志强广告】昨日，北京西城党委通报给予任志强留党察看处分。今日，远大在长沙火车站大屏幕广告：“你可以不说话，但不能不呼吸”。请问：1，这是不是巧合？2,远大几个意思？3,湖南党委长沙党委铁路党委怎么看？4,主席家乡人民怎么看？5,资本的力量果然可以藐视一切！<br><img src="http://ww2.sinaimg.cn/large/006cuVe3jw1f3ih6githjj30m80eu408.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3971195994693529" target="freeweibo-mirror">哦，这样一来反正不会买他家任何东西了[doge]不过，他们家…</a>
 </h2>
