@@ -29,13 +29,19 @@
 </h2>
 <p>//@shengting:更关心医院和监管体系是怎么回事[弱] //@丕子:转发微博<br><br>RE: 其实百度事件很难说是百度本身的问题。在这个事件里百度的责任很大么。难道比治死人的医院责任还大？比明明假的机构能通过三甲认证还大？不可能的。把情绪宣泄在百度身上并不解决问题，等大家情绪宣泄完了，我再来给百度洗洗地。</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3970974762748746" target="freeweibo-mirror">魏则西事件迫使人们思考，军队腐败到了何种程度。</a>
 </h2>
 <p>魏则西事件迫使人们思考，军队腐败到了何种程度。</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3970973324046212" target="freeweibo-mirror">重磅！莆田系给部队医院领导送礼名单大曝光！动辄30万看的人脊…</a>
+</h2>
+<p>重磅！莆田系给部队医院领导送礼名单大曝光！动辄30万看的人脊背发凉～～～<br><img src="http://ww2.sinaimg.cn/large/5f6520eagw1f3hx2xut11j20qo1bezu3.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3970954206097541" target="freeweibo-mirror">就知道，舆论一定会从百度搜索风波转向军管医院监管风波！//@…</a>
 </h2>
@@ -95,7 +101,7 @@
 </h2>
 <p>好多穆斯林粉丝跑来劝我：你少说几句，怕你被封号。我的回答是：公元6-7世纪以来，我们就整天被封号。这有什么了不起。1500年来，他们都不见了，我们还在。一切赞美，归于安拉。</p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3970833821219049" target="freeweibo-mirror">SPAM [good][good]</a>
 </h2>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3970806281045321" target="freeweibo-mirror">想看</a>
 </h2>
 <p>想看</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3970799456937800" target="freeweibo-mirror">SPAM 解禁谷歌！//@余胜海:呼吁解禁谷歌!#听海观潮#…</a>
-</h2>
-<p>SPAM 解禁谷歌！//@余胜海:呼吁解禁谷歌!#听海观潮#//@钱中华://@腾晓东:支持！对于现代商业活动，谷歌是一个必不可少的工具。[good] //@王周生:坚决支持葛红兵教授的呼吁，政府应该听听民众的声音！<br><br>RE: 不让百度蒙眼，呼吁解禁谷歌！【本博发起签名活动，转发视作签名，请转发！希望政府听见！】</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
