@@ -59,13 +59,13 @@
 </h2>
 <p>SPAM [哈哈]最好，没有之一！<br><br>RE: 做广告这么多年，这是我见过最好的广告，没有之一。<br><img src="http://ww3.sinaimg.cn/large/4de85d08jw1f3ig2g7dv6j20rs0ijad5.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3971203016156087" target="freeweibo-mirror">你说的没错，一般都是自己有这样的想法，欲强加他人而已！ //…</a>
 </h2>
 <p>你说的没错，一般都是自己有这样的想法，欲强加他人而已！ //@神剑10000:很明显是攻击中国共产党！如果姑息养奸会最终毁灭自己！ //@柳随风:这句话有问题吗？怎么看不出来！ //@大藏布:转发微博<br><br>RE: 【远大发任志强广告】昨日，北京西城党委通报给予任志强留党察看处分。今日，远大在长沙火车站大屏幕广告：“你可以不说话，但不能不呼吸”。请问：1，这是不是巧合？2,远大几个意思？3,湖南党委长沙党委铁路党委怎么看？4,主席家乡人民怎么看？5,资本的力量果然可以藐视一切！<br><img src="http://ww2.sinaimg.cn/large/006cuVe3jw1f3ih6githjj30m80eu408.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3971201804563998" target="freeweibo-mirror">http://t.cn/RqQfGDG //@江夏徳山: […</a>
 </h2>
