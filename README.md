@@ -107,13 +107,13 @@
 </h2>
 <p>哦，这样一来反正不会买他家任何东西了[doge]不过，他们家的东西主要是卖给非家用用户的，那些做决策采购这些的人，没准很多是人质强的同路人呢<br><br>RE: 【远大发任志强广告】昨日，北京西城党委通报给予任志强留党察看处分。今日，远大在长沙火车站大屏幕广告：“你可以不说话，但不能不呼吸”。请问：1，这是不是巧合？2,远大几个意思？3,湖南党委长沙党委铁路党委怎么看？4,主席家乡人民怎么看？5,资本的力量果然可以藐视一切！<br><img src="http://ww2.sinaimg.cn/large/006cuVe3jw1f3ih6githjj30m80eu408.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3971195962031736" target="freeweibo-mirror">这样打广告纯属作死。法律在哪里？规矩在哪里？</a>
 </h2>
 <p>这样打广告纯属作死。法律在哪里？规矩在哪里？<br><br>RE: 河南省信阳市的这家医院太狠了[吃惊]<br><img src="http://ww2.sinaimg.cn/large/005As9Qdgw1f3ik7961zoj30c80gata6.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3971195735492998" target="freeweibo-mirror">照这样逻辑，右边支持的东西都是圣旨?都2016年了，唉，河北…</a>
 </h2>
