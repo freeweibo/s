@@ -59,7 +59,7 @@
 </h2>
 <p>//@金建荣1972://@登云2013:转发微博</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3971543049051348" target="freeweibo-mirror">回复@dashidai666:莆田系的后台是钱，它们早年发迹…</a>
 </h2>
@@ -67,11 +67,23 @@
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3971534978347669" target="freeweibo-mirror">老子查儿子下得了手？//@六安自媒体:自己调查自己！//@何…</a>
+</h2>
+<p>老子查儿子下得了手？//@六安自媒体:自己调查自己！//@何三畏:网民有一个字可能让领导不高兴你像领导肚子里的肥虫一嗅就知道立刻删帖销号，百度在搞什么你对全网怒涛视而不见到出人命了你去调查你低调点我们也知道你们在做什么！<br><br>RE: “国家网信办会同国家工商总局、国家卫生计生委已成立联合调查组对 •魏则西事件•进行调查。 ”——你们不正是责任方么？没有人去“调查”你们，反而是你们在调查下属。贼头还用调查贼喽啰么？这世上天理就这样颠倒。</p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3971522882886760" target="freeweibo-mirror">SPAM //@草木不深:杀死魏泽西的凶手找到了</a>
+</h2>
+<p>SPAM //@草木不深:杀死魏泽西的凶手找到了<br><br>RE: 分享图片<br><img src="http://ww4.sinaimg.cn/large/473f8cfdgw1f3jmhgp3xej20k00zk0xy.jpg"></p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3971498056780855" target="freeweibo-mirror">【魏则西事件】北京市武警第二医院回应：不存在科室承包情况。二…</a>
 </h2>
 <p>【魏则西事件】北京市武警第二医院回应：不存在科室承包情况。二院说的没错，他确实没外包，只是有莆田系的上海康新医院投资管理有限公司入股而已。想推卸责任，你想得美！图为二院院长蒋均远少将<br><img src="http://ww3.sinaimg.cn/large/d55abf7ejw1f3jlcfm0brj20cw0c9dgs.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3971465617151442" target="freeweibo-mirror">恶人恶报，时辰未到。</a>
 </h2>
@@ -124,18 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3971398425038358" target="freeweibo-mirror">SPAM 剧 透 波 biubiubiu~~ 选 几</a>
 </h2>
 <p>SPAM 剧 透 波 biubiubiu~~ 选 几<br><img src="http://ww1.sinaimg.cn/large/5db8744fgw1f3j9r6qvnhj21kw1kwk7w.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3971396881451038" target="freeweibo-mirror">【那一年】2013年，济南审判，朝廷如临大敌严阵以待，“熊猫…</a>
-</h2>
-<p>【那一年】2013年，济南审判，朝廷如临大敌严阵以待，“熊猫”们通过各种手段严控挺B百姓，网络24小时不间断疯狂封杀挺B声音，内奸卧底绞尽脑汁挑拨分化挺B百姓，媒体和公知近乎癫狂地谩骂抹黑帅哥，境内外轮子声嘶力竭地为审判摇旗呐喊...那一年，各色人等都在参与和书写历史，俺自豪俺站在了正义一边</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3971376454631478" target="freeweibo-mirror">SPAM 嗯，2016，新五四。//@菊十一画: 新五四运动…</a>
-</h2>
-<p>SPAM 嗯，2016，新五四。//@菊十一画: 新五四运动？ //@冰克尔:[衰]<br><br>RE: 今年的五四运动导火索应该是大学生魏则西之死，而引发全民声讨莆田人和骗子的运动。我们为什么不敢进医院和寺庙，因为都是收费的骗子，一个国家连救人和信仰都存在着诈骗，难道我们不应该反思声讨吗？<br><img src="http://ww3.sinaimg.cn/large/57553bbdjw1f3j47unzqgj20go0sggqw.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
