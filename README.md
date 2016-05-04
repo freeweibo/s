@@ -29,7 +29,7 @@
 </h2>
 <p>//@金建荣1972://@登云2013:转发微博</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3971465617151442" target="freeweibo-mirror">恶人恶报，时辰未到。</a>
 </h2>
