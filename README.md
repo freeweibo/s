@@ -125,7 +125,7 @@
 </h2>
 <p>//@旦复旦兮00: //@杜康111://@天明再会H://@张佳珅v://@雁塔晓木屋:必须转//@灰色的伞: //@淡定鸭://@亮剑兄又来啦://@SANGMINGLEI4602: 转发微博<br><br>RE: 分享图片<br><img src="http://ww3.sinaimg.cn/large/006frKBbgw1f3ilwayn55j30k00zkgt2.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3971207239825152" target="freeweibo-mirror">SPAM 最新八卦get！ //@曹踩圣曹:八卦如我！[do…</a>
 </h2>
