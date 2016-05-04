@@ -31,6 +31,12 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3971543049051348" target="freeweibo-mirror">回复@dashidai666:莆田系的后台是钱，它们早年发迹…</a>
+</h2>
+<p>回复@dashidai666:莆田系的后台是钱，它们早年发迹壮大后已经尾大不掉，拉拢谁站台也不奇怪，不要把因果关系颠倒了。//@dashidai666:知道莆田系的后台是谁吗？！<br><br>RE: 【魏则西事件】北京市武警第二医院回应：不存在科室承包情况。二院说的没错，他确实没外包，只是有莆田系的上海康新医院投资管理有限公司入股而已。想推卸责任，你想得美！图为二院院长蒋均远少将<br><img src="http://ww3.sinaimg.cn/large/d55abf7ejw1f3jlcfm0brj20cw0c9dgs.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3971498056780855" target="freeweibo-mirror">【魏则西事件】北京市武警第二医院回应：不存在科室承包情况。二…</a>
 </h2>
 <p>【魏则西事件】北京市武警第二医院回应：不存在科室承包情况。二院说的没错，他确实没外包，只是有莆田系的上海康新医院投资管理有限公司入股而已。想推卸责任，你想得美！图为二院院长蒋均远少将<br><img src="http://ww3.sinaimg.cn/large/d55abf7ejw1f3jlcfm0brj20cw0c9dgs.jpg"></p>
@@ -53,13 +59,13 @@
 </h2>
 <p>SPAM 休息休息吧，不让说了就不说了//@何兵: 你歇歇吧。<br><br>RE: 本来有媒体朋友约我写一篇小稿说说这个事情，现在也说不成了。<br><img src="http://ww3.sinaimg.cn/large/70043df0jw1f3jg15smzwj20m8063ab6.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3971459204609973" target="freeweibo-mirror">SPAM 不是鬼推磨，就是磨推鬼！//@何兵:你歇歇吧。</a>
 </h2>
 <p>SPAM 不是鬼推磨，就是磨推鬼！//@何兵:你歇歇吧。<br><br>RE: 本来有媒体朋友约我写一篇小稿说说这个事情，现在也说不成了。<br><img src="http://ww3.sinaimg.cn/large/70043df0jw1f3jg15smzwj20m8063ab6.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3971456347756718" target="freeweibo-mirror">//@南京先锋书店: 【他们用走私的中国手机，从与世隔绝的朝…</a>
 </h2>
@@ -89,7 +95,7 @@
 </h2>
 <p>SPAM 剧 透 波 biubiubiu~~ 选 几<br><img src="http://ww1.sinaimg.cn/large/5db8744fgw1f3j9r6qvnhj21kw1kwk7w.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3971396881451038" target="freeweibo-mirror">【那一年】2013年，济南审判，朝廷如临大敌严阵以待，“熊猫…</a>
 </h2>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3971348781299890" target="freeweibo-mirror">今年的五四运动导火索应该是大学生魏则西之死，而引发全民声讨莆…</a>
 </h2>
 <p>今年的五四运动导火索应该是大学生魏则西之死，而引发全民声讨莆田人和骗子的运动。我们为什么不敢进医院和寺庙，因为都是收费的骗子，一个国家连救人和信仰都存在着诈骗，难道我们不应该反思声讨吗？<br><img src="http://ww3.sinaimg.cn/large/57553bbdjw1f3j47unzqgj20go0sggqw.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3971340845453062" target="freeweibo-mirror">建议中央将环保督察组主要领导留在河北主政或者分管环保，如果其…</a>
-</h2>
-<p>建议中央将环保督察组主要领导留在河北主政或者分管环保，如果其主政期间河北不能实现经济增长、环境好转的目标，看他怎么打自己的嘴巴。同时，我也希望中央环保督察组举几个重视环保的省委书记正面典型，让民众看看这些省份的环保成果。</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
