@@ -95,13 +95,13 @@
 </h2>
 <p>回复@dashidai666:莆田系的后台是钱，它们早年发迹壮大后已经尾大不掉，拉拢谁站台也不奇怪，不要把因果关系颠倒了。//@dashidai666:知道莆田系的后台是谁吗？！<br><br>RE: 【魏则西事件】北京市武警第二医院回应：不存在科室承包情况。二院说的没错，他确实没外包，只是有莆田系的上海康新医院投资管理有限公司入股而已。想推卸责任，你想得美！图为二院院长蒋均远少将<br><img src="http://ww3.sinaimg.cn/large/d55abf7ejw1f3jlcfm0brj20cw0c9dgs.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3971541992031265" target="freeweibo-mirror">请对这届人民放心，不会纠缠魏则西事件的。[悲催]</a>
 </h2>
 <p>请对这届人民放心，不会纠缠魏则西事件的。[悲催]<br><img src="http://ww4.sinaimg.cn/large/dd816182gw1f3jqdxg74zj20lc0a4t9m.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3971534978347669" target="freeweibo-mirror">老子查儿子下得了手？//@六安自媒体:自己调查自己！//@何…</a>
 </h2>
