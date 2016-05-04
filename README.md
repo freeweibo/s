@@ -19,6 +19,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3971465617151442" target="freeweibo-mirror">恶人恶报，时辰未到。</a>
+</h2>
+<p>恶人恶报，时辰未到。<br><br>RE: 国家卫计委禁止我出版，禁止我讲座，胁迫各机构，将我拉进一个个黑名单中。我要对卫计委进行还击了，要将他们拉进历史的垃圾堆里，要对他们进行追责！损失了上亿人命，导致中华民族千年一毁，该有个说法了！</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3971462668833944" target="freeweibo-mirror">计生，是五千年来人类之恶的集大成者！//@写字李华良: 转发…</a>
 </h2>
 <p>计生，是五千年来人类之恶的集大成者！//@写字李华良: 转发微博<br><br>RE: 国家卫计委禁止我出版，禁止我讲座，胁迫各机构，将我拉进一个个黑名单中。我要对卫计委进行还击了，要将他们拉进历史的垃圾堆里，要对他们进行追责！损失了上亿人命，导致中华民族千年一毁，该有个说法了！</p>
@@ -28,6 +34,12 @@
 	<a href="https://freeweibo.com/weibo/3971459833331839" target="freeweibo-mirror">SPAM 休息休息吧，不让说了就不说了//@何兵: 你歇歇吧…</a>
 </h2>
 <p>SPAM 休息休息吧，不让说了就不说了//@何兵: 你歇歇吧。<br><br>RE: 本来有媒体朋友约我写一篇小稿说说这个事情，现在也说不成了。<br><img src="http://ww3.sinaimg.cn/large/70043df0jw1f3jg15smzwj20m8063ab6.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3971459204609973" target="freeweibo-mirror">SPAM 不是鬼推磨，就是磨推鬼！//@何兵:你歇歇吧。</a>
+</h2>
+<p>SPAM 不是鬼推磨，就是磨推鬼！//@何兵:你歇歇吧。<br><br>RE: 本来有媒体朋友约我写一篇小稿说说这个事情，现在也说不成了。<br><img src="http://ww3.sinaimg.cn/large/70043df0jw1f3jg15smzwj20m8063ab6.jpg"></p>
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
@@ -41,7 +53,7 @@
 </h2>
 <p>本来有媒体朋友约我写一篇小稿说说这个事情，现在也说不成了。<br><img src="http://ww3.sinaimg.cn/large/70043df0jw1f3jg15smzwj20m8063ab6.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3971446655493260" target="freeweibo-mirror">SPAM 哈哈哈，回家就撕看看</a>
 </h2>
@@ -65,13 +77,13 @@
 </h2>
 <p>SPAM 嗯，2016，新五四。//@菊十一画: 新五四运动？ //@冰克尔:[衰]<br><br>RE: 今年的五四运动导火索应该是大学生魏则西之死，而引发全民声讨莆田人和骗子的运动。我们为什么不敢进医院和寺庙，因为都是收费的骗子，一个国家连救人和信仰都存在着诈骗，难道我们不应该反思声讨吗？<br><img src="http://ww3.sinaimg.cn/large/57553bbdjw1f3j47unzqgj20go0sggqw.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3971375901142997" target="freeweibo-mirror">医疗制度改革咋回事？</a>
 </h2>
 <p>医疗制度改革咋回事？<br><br>RE: 今年的五四运动导火索应该是大学生魏则西之死，而引发全民声讨莆田人和骗子的运动。我们为什么不敢进医院和寺庙，因为都是收费的骗子，一个国家连救人和信仰都存在着诈骗，难道我们不应该反思声讨吗？<br><img src="http://ww3.sinaimg.cn/large/57553bbdjw1f3j47unzqgj20go0sggqw.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3971366707748855" target="freeweibo-mirror">国家卫计委禁止我出版，禁止我讲座，胁迫各机构，将我拉进一个个…</a>
 </h2>
@@ -124,18 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3971205490344139" target="freeweibo-mirror">//@乌骨-泊灼://@步军都虞候:野心家、阴谋家都出来了，…</a>
 </h2>
 <p>//@乌骨-泊灼://@步军都虞候:野心家、阴谋家都出来了，驺姿派还会远吗？ //@武黎嵩:两条路线的斗争，还在延续。。。<br><br>RE: 【远大发任志强广告】昨日，北京西城党委通报给予任志强留党察看处分。今日，远大在长沙火车站大屏幕广告：“你可以不说话，但不能不呼吸”。请问：1，这是不是巧合？2,远大几个意思？3,湖南党委长沙党委铁路党委怎么看？4,主席家乡人民怎么看？5,资本的力量果然可以藐视一切！<br><img src="http://ww2.sinaimg.cn/large/006cuVe3jw1f3ih6githjj30m80eu408.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3971205100535558" target="freeweibo-mirror">SPAM [good]这是我所见过最精妙的广告词，没有之一！</a>
-</h2>
-<p>SPAM [good]这是我所见过最精妙的广告词，没有之一！<br><br>RE: 你可以不说话，但不能不呼吸！<br><img src="http://ww4.sinaimg.cn/large/621d03b7jw1f3ifomn6dtj20rs0ijgov.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3971204962299957" target="freeweibo-mirror">//@50年矛苔://@亮剑兄又来啦: //@伟荣V实说: …</a>
-</h2>
-<p>//@50年矛苔://@亮剑兄又来啦: //@伟荣V实说: //@浮萍-JJ: 转发微博<br><br>RE: 分享图片<br><img src="http://ww3.sinaimg.cn/large/006frKBbgw1f3ilwayn55j30k00zkgt2.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
