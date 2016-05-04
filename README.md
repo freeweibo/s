@@ -31,6 +31,12 @@
 <p>
 	<small> ============== 4小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3971348781299890" target="freeweibo-mirror">今年的五四运动导火索应该是大学生魏则西之死，而引发全民声讨莆…</a>
+</h2>
+<p>今年的五四运动导火索应该是大学生魏则西之死，而引发全民声讨莆田人和骗子的运动。我们为什么不敢进医院和寺庙，因为都是收费的骗子，一个国家连救人和信仰都存在着诈骗，难道我们不应该反思声讨吗？<br><img src="http://ww3.sinaimg.cn/large/57553bbdjw1f3j47unzqgj20go0sggqw.jpg"></p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3971336651206421" target="freeweibo-mirror">【发改委人士：长三角城市群发展规划有两大变化】长三角城市群发…</a>
 </h2>
 <p>【发改委人士：长三角城市群发展规划有两大变化】长三角城市群发展规划已编制完成并报国务院审批。 长三角区位条件优越、经济基础雄厚、城镇体系完整、一体化发展基础较好，是我国综合实力最强的区域。未来有哪些亮点呢？http://t.cn/RqQX7JD<br><img src="http://ww4.sinaimg.cn/large/768ab125jw1f3j2tog1u2j20g40gujuh.jpg"></p>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3971195994693529" target="freeweibo-mirror">哦，这样一来反正不会买他家任何东西了[doge]不过，他们家…</a>
 </h2>
 <p>哦，这样一来反正不会买他家任何东西了[doge]不过，他们家的东西主要是卖给非家用用户的，那些做决策采购这些的人，没准很多是人质强的同路人呢<br><br>RE: 【远大发任志强广告】昨日，北京西城党委通报给予任志强留党察看处分。今日，远大在长沙火车站大屏幕广告：“你可以不说话，但不能不呼吸”。请问：1，这是不是巧合？2,远大几个意思？3,湖南党委长沙党委铁路党委怎么看？4,主席家乡人民怎么看？5,资本的力量果然可以藐视一切！<br><img src="http://ww2.sinaimg.cn/large/006cuVe3jw1f3ih6githjj30m80eu408.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3971195962031736" target="freeweibo-mirror">这样打广告纯属作死。法律在哪里？规矩在哪里？</a>
-</h2>
-<p>这样打广告纯属作死。法律在哪里？规矩在哪里？<br><br>RE: 河南省信阳市的这家医院太狠了[吃惊]<br><img src="http://ww2.sinaimg.cn/large/005As9Qdgw1f3ik7961zoj30c80gata6.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
