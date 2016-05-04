@@ -53,7 +53,7 @@
 </h2>
 <p>本来有媒体朋友约我写一篇小稿说说这个事情，现在也说不成了。<br><img src="http://ww3.sinaimg.cn/large/70043df0jw1f3jg15smzwj20m8063ab6.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3971446655493260" target="freeweibo-mirror">SPAM 哈哈哈，回家就撕看看</a>
 </h2>
@@ -77,13 +77,13 @@
 </h2>
 <p>SPAM 嗯，2016，新五四。//@菊十一画: 新五四运动？ //@冰克尔:[衰]<br><br>RE: 今年的五四运动导火索应该是大学生魏则西之死，而引发全民声讨莆田人和骗子的运动。我们为什么不敢进医院和寺庙，因为都是收费的骗子，一个国家连救人和信仰都存在着诈骗，难道我们不应该反思声讨吗？<br><img src="http://ww3.sinaimg.cn/large/57553bbdjw1f3j47unzqgj20go0sggqw.jpg"></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3971375901142997" target="freeweibo-mirror">医疗制度改革咋回事？</a>
 </h2>
 <p>医疗制度改革咋回事？<br><br>RE: 今年的五四运动导火索应该是大学生魏则西之死，而引发全民声讨莆田人和骗子的运动。我们为什么不敢进医院和寺庙，因为都是收费的骗子，一个国家连救人和信仰都存在着诈骗，难道我们不应该反思声讨吗？<br><img src="http://ww3.sinaimg.cn/large/57553bbdjw1f3j47unzqgj20go0sggqw.jpg"></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3971366707748855" target="freeweibo-mirror">国家卫计委禁止我出版，禁止我讲座，胁迫各机构，将我拉进一个个…</a>
 </h2>
