@@ -35,7 +35,7 @@
 </h2>
 <p>SPAM 就这样，骗子王国，一举建成<br><br>RE: 分享图片<br><img src="http://ww4.sinaimg.cn/large/473f8cfdgw1f3jmhgp3xej20k00zk0xy.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3971549591244255" target="freeweibo-mirror">回复@-都市过客--:如果外国会免费治疗他国病人，魏也许有选…</a>
 </h2>
@@ -95,7 +95,7 @@
 </h2>
 <p>SPAM //@草木不深:杀死魏泽西的凶手找到了<br><br>RE: 分享图片<br><img src="http://ww4.sinaimg.cn/large/473f8cfdgw1f3jmhgp3xej20k00zk0xy.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3971498056780855" target="freeweibo-mirror">【魏则西事件】北京市武警第二医院回应：不存在科室承包情况。二…</a>
 </h2>
