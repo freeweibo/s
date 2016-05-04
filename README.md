@@ -29,7 +29,7 @@
 </h2>
 <p>SPAM 剧 透 波 biubiubiu~~ 选 几<br><img src="http://ww1.sinaimg.cn/large/5db8744fgw1f3j9r6qvnhj21kw1kwk7w.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3971376454631478" target="freeweibo-mirror">SPAM 嗯，2016，新五四。//@菊十一画: 新五四运动…</a>
 </h2>
