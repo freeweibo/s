@@ -19,6 +19,24 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3971462668833944" target="freeweibo-mirror">计生，是五千年来人类之恶的集大成者！//@写字李华良: 转发…</a>
+</h2>
+<p>计生，是五千年来人类之恶的集大成者！//@写字李华良: 转发微博<br><br>RE: 国家卫计委禁止我出版，禁止我讲座，胁迫各机构，将我拉进一个个黑名单中。我要对卫计委进行还击了，要将他们拉进历史的垃圾堆里，要对他们进行追责！损失了上亿人命，导致中华民族千年一毁，该有个说法了！</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3971459833331839" target="freeweibo-mirror">SPAM 休息休息吧，不让说了就不说了//@何兵: 你歇歇吧…</a>
+</h2>
+<p>SPAM 休息休息吧，不让说了就不说了//@何兵: 你歇歇吧。<br><br>RE: 本来有媒体朋友约我写一篇小稿说说这个事情，现在也说不成了。<br><img src="http://ww3.sinaimg.cn/large/70043df0jw1f3jg15smzwj20m8063ab6.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3971456347756718" target="freeweibo-mirror">//@南京先锋书店: 【他们用走私的中国手机，从与世隔绝的朝…</a>
+</h2>
+<p>//@南京先锋书店: 【他们用走私的中国手机，从与世隔绝的朝鲜拨号】从中国走私进来的移动电话让朝鲜人在离中国边界不远的地方能上中国的移动网络，这些手机已成为朝鲜与外部世界之间越来越重要的桥梁。   http://t.cn/Rqz9xpw    //@南京先锋书店:#如何推荐一本书#  http://t.cn/RU733tl<br><br>RE: #凤凰卫视全媒体大开讲#【助脱北者牧师被发现在中国境内死亡】英国媒体报导，一名帮助脱北者逃离朝鲜的中国朝鲜族牧师被发现在中国东北死亡，有专家认为这名牧师很有可能遭到平壤的安全部门暗杀。英国电讯报5月2号报导称，在4月29号朝鲜族自治县，牧师韩某在与家人失联后，于晚上8点左右，其尸体在郊外...全文： http://m.weibo.cn/1643971635/3971366341901271<br><img src="http://ww1.sinaimg.cn/large/61fd0433jw1f3j59mx70sj20hd0ps78p.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3971446655493260" target="freeweibo-mirror">SPAM 哈哈哈，回家就撕看看</a>
 </h2>
 <p>SPAM 哈哈哈，回家就撕看看</p>
@@ -35,7 +53,7 @@
 </h2>
 <p>SPAM 剧 透 波 biubiubiu~~ 选 几<br><img src="http://ww1.sinaimg.cn/large/5db8744fgw1f3j9r6qvnhj21kw1kwk7w.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3971376454631478" target="freeweibo-mirror">SPAM 嗯，2016，新五四。//@菊十一画: 新五四运动…</a>
 </h2>
@@ -118,24 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3971203196609656" target="freeweibo-mirror">SPAM [哈哈]最好，没有之一！</a>
 </h2>
 <p>SPAM [哈哈]最好，没有之一！<br><br>RE: 做广告这么多年，这是我见过最好的广告，没有之一。<br><img src="http://ww3.sinaimg.cn/large/4de85d08jw1f3ig2g7dv6j20rs0ijad5.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3971203016156087" target="freeweibo-mirror">你说的没错，一般都是自己有这样的想法，欲强加他人而已！ //…</a>
-</h2>
-<p>你说的没错，一般都是自己有这样的想法，欲强加他人而已！ //@神剑10000:很明显是攻击中国共产党！如果姑息养奸会最终毁灭自己！ //@柳随风:这句话有问题吗？怎么看不出来！ //@大藏布:转发微博<br><br>RE: 【远大发任志强广告】昨日，北京西城党委通报给予任志强留党察看处分。今日，远大在长沙火车站大屏幕广告：“你可以不说话，但不能不呼吸”。请问：1，这是不是巧合？2,远大几个意思？3,湖南党委长沙党委铁路党委怎么看？4,主席家乡人民怎么看？5,资本的力量果然可以藐视一切！<br><img src="http://ww2.sinaimg.cn/large/006cuVe3jw1f3ih6githjj30m80eu408.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3971201804563998" target="freeweibo-mirror">http://t.cn/RqQfGDG //@江夏徳山: […</a>
-</h2>
-<p>http://t.cn/RqQfGDG //@江夏徳山: [嘻嘻][嘻嘻][嘻嘻]@张晨初艺术空间 没想到他的广告形象这么吓人吧 //@谢流石://@阅中国:转发微博<br><br>RE: 你可以不说话，但不能不呼吸！<br><img src="http://ww4.sinaimg.cn/large/621d03b7jw1f3ifomn6dtj20rs0ijgov.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3971200516712664" target="freeweibo-mirror">//@韩浩月:赞远大。</a>
-</h2>
-<p>//@韩浩月:赞远大。<br><br>RE: 【远大发任志强广告】昨日，北京西城党委通报给予任志强留党察看处分。今日，远大在长沙火车站大屏幕广告：“你可以不说话，但不能不呼吸”。请问：1，这是不是巧合？2,远大几个意思？3,湖南党委长沙党委铁路党委怎么看？4,主席家乡人民怎么看？5,资本的力量果然可以藐视一切！<br><img src="http://ww2.sinaimg.cn/large/006cuVe3jw1f3ih6githjj30m80eu408.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
