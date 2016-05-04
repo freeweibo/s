@@ -47,7 +47,7 @@
 </h2>
 <p>SPAM 就Bose两款主动降噪产品而言，我实际使用下来，觉得降噪算法都一样，不存在QC25降噪效果更好一说，只是25的耳罩结构让人心理上觉得更隔音吧……25用7号电池，没有外部声音导入功能，相对比较占地方，但用25的名人多（潘石屹那个级别的大老板），加上汉莎航空头等舱标配加持，适合不差钱的老板。我更喜...全文： http://m.weibo.cn/1676582524/3971355341021956<br><img src="http://ww2.sinaimg.cn/large/63ee9e7cgw1f3j4w1mknij20rs0kujx6.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3971348781299890" target="freeweibo-mirror">今年的五四运动导火索应该是大学生魏则西之死，而引发全民声讨莆…</a>
 </h2>
@@ -71,7 +71,7 @@
 </h2>
 <p>//@旦复旦兮00: //@杜康111://@天明再会H://@张佳珅v://@雁塔晓木屋:必须转//@灰色的伞: //@淡定鸭://@亮剑兄又来啦://@SANGMINGLEI4602: 转发微博<br><br>RE: 分享图片<br><img src="http://ww3.sinaimg.cn/large/006frKBbgw1f3ilwayn55j30k00zkgt2.jpg"></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3971207239825152" target="freeweibo-mirror">SPAM 最新八卦get！ //@曹踩圣曹:八卦如我！[do…</a>
 </h2>
