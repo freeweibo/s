@@ -37,6 +37,12 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3971549591244255" target="freeweibo-mirror">回复@-都市过客--:如果外国会免费治疗他国病人，魏也许有选…</a>
+</h2>
+<p>回复@-都市过客--:如果外国会免费治疗他国病人，魏也许有选择，否则他只能根据已有的经济条件和现实情况来选择。很多国家网络毫无管理，那里有木有不治的病人？治病要靠医疗系统还是指望靠网络自由来给你治病？对医疗系统乱象不刨根问底，不谴责无良网络推广，喷错对象也是故意误导。<br><br>RE: 分享图片<br><img src="http://ww4.sinaimg.cn/large/473f8cfdgw1f3jmhgp3xej20k00zk0xy.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3971548874724918" target="freeweibo-mirror">SPAM //@作家岳南:他可能是个遵守天朝法规的好学生。[…</a>
 </h2>
 <p>SPAM //@作家岳南:他可能是个遵守天朝法规的好学生。[悲伤]//@何三畏: //@一蚍蜉:也很奇怪一个名牌大学的学生居然不会翻墙，还是计算机系的！现在的大学生也要检讨自己啊！<br><br>RE: 分享图片<br><img src="http://ww4.sinaimg.cn/large/473f8cfdgw1f3jmhgp3xej20k00zk0xy.jpg"></p>
@@ -46,6 +52,12 @@
 	<a href="https://freeweibo.com/weibo/3971548392495251" target="freeweibo-mirror">SPAM 有一大帮白痴不知道网络实际上事关身家性命！当猪，则…</a>
 </h2>
 <p>SPAM 有一大帮白痴不知道网络实际上事关身家性命！当猪，则被宰杀必然。//@干卫东律师://@反腐史记://@东台波涛装饰://@何三畏:一墙之隔， 生命两界。<br><br>RE: 分享图片<br><img src="http://ww4.sinaimg.cn/large/473f8cfdgw1f3jmhgp3xej20k00zk0xy.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3971547020677499" target="freeweibo-mirror">SPAM 一个计算机专业的大学生做这些毫无困难，但多数人可能…</a>
+</h2>
+<p>SPAM 一个计算机专业的大学生做这些毫无困难，但多数人可能连选的医院幕后主导者是谁都不清楚，那真相能查出来吗？如不是悲剧发生，都没谁全面曝光过莆田系，发生在自己眼皮下的事，还要靠别人？ //@Evil林凡:[doge] //@智谷的吴扬文:这是五四看到的最酷青年文摘[赞]<br><br>RE: 分享图片<br><img src="http://ww4.sinaimg.cn/large/473f8cfdgw1f3jmhgp3xej20k00zk0xy.jpg"></p>
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
@@ -77,7 +89,7 @@
 </h2>
 <p>老子查儿子下得了手？//@六安自媒体:自己调查自己！//@何三畏:网民有一个字可能让领导不高兴你像领导肚子里的肥虫一嗅就知道立刻删帖销号，百度在搞什么你对全网怒涛视而不见到出人命了你去调查你低调点我们也知道你们在做什么！<br><br>RE: “国家网信办会同国家工商总局、国家卫生计生委已成立联合调查组对 •魏则西事件•进行调查。 ”——你们不正是责任方么？没有人去“调查”你们，反而是你们在调查下属。贼头还用调查贼喽啰么？这世上天理就这样颠倒。</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3971522882886760" target="freeweibo-mirror">SPAM //@草木不深:杀死魏泽西的凶手找到了</a>
 </h2>
@@ -107,13 +119,13 @@
 </h2>
 <p>SPAM 休息休息吧，不让说了就不说了//@何兵: 你歇歇吧。<br><br>RE: 本来有媒体朋友约我写一篇小稿说说这个事情，现在也说不成了。<br><img src="http://ww3.sinaimg.cn/large/70043df0jw1f3jg15smzwj20m8063ab6.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3971459204609973" target="freeweibo-mirror">SPAM 不是鬼推磨，就是磨推鬼！//@何兵:你歇歇吧。</a>
 </h2>
 <p>SPAM 不是鬼推磨，就是磨推鬼！//@何兵:你歇歇吧。<br><br>RE: 本来有媒体朋友约我写一篇小稿说说这个事情，现在也说不成了。<br><img src="http://ww3.sinaimg.cn/large/70043df0jw1f3jg15smzwj20m8063ab6.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3971456347756718" target="freeweibo-mirror">//@南京先锋书店: 【他们用走私的中国手机，从与世隔绝的朝…</a>
 </h2>
@@ -126,18 +138,6 @@
 <p>本来有媒体朋友约我写一篇小稿说说这个事情，现在也说不成了。<br><img src="http://ww3.sinaimg.cn/large/70043df0jw1f3jg15smzwj20m8063ab6.jpg"></p>
 <p>
 	<small> ============== 9小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3971446655493260" target="freeweibo-mirror">SPAM 哈哈哈，回家就撕看看</a>
-</h2>
-<p>SPAM 哈哈哈，回家就撕看看</p>
-<p>
-	<small> ============== 9小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3971431124059047" target="freeweibo-mirror">看来KFC薯条味假睫毛 奶昔粉底液和番茄酱口红也快出来了 /…</a>
-</h2>
-<p>看来KFC薯条味假睫毛 奶昔粉底液和番茄酱口红也快出来了 //@这腿我能胖一年:并不想要好吧....//@你说什么再说一遍: ？？？ //@尐菁蛙:？？？好好做鸡不行吗？！？？</p>
-<p>
-	<small> ============== 10小时前</small>
 </p>
 <table>
     <tr>
