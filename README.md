@@ -47,19 +47,19 @@
 </h2>
 <p>//@乌骨-泊灼://@步军都虞候:野心家、阴谋家都出来了，驺姿派还会远吗？ //@武黎嵩:两条路线的斗争，还在延续。。。<br><br>RE: 【远大发任志强广告】昨日，北京西城党委通报给予任志强留党察看处分。今日，远大在长沙火车站大屏幕广告：“你可以不说话，但不能不呼吸”。请问：1，这是不是巧合？2,远大几个意思？3,湖南党委长沙党委铁路党委怎么看？4,主席家乡人民怎么看？5,资本的力量果然可以藐视一切！<br><img src="http://ww2.sinaimg.cn/large/006cuVe3jw1f3ih6githjj30m80eu408.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3971205100535558" target="freeweibo-mirror">SPAM [good]这是我所见过最精妙的广告词，没有之一！</a>
 </h2>
 <p>SPAM [good]这是我所见过最精妙的广告词，没有之一！<br><br>RE: 你可以不说话，但不能不呼吸！<br><img src="http://ww4.sinaimg.cn/large/621d03b7jw1f3ifomn6dtj20rs0ijgov.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3971204962299957" target="freeweibo-mirror">//@50年矛苔://@亮剑兄又来啦: //@伟荣V实说: …</a>
 </h2>
 <p>//@50年矛苔://@亮剑兄又来啦: //@伟荣V实说: //@浮萍-JJ: 转发微博<br><br>RE: 分享图片<br><img src="http://ww3.sinaimg.cn/large/006frKBbgw1f3ilwayn55j30k00zkgt2.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3971203708178029" target="freeweibo-mirror">有质疑我转发长沙火车站广告贴，为什么不问问消息真伪。我转发的…</a>
 </h2>
