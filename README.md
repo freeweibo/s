@@ -29,7 +29,7 @@
 </h2>
 <p>//@旦复旦兮00: //@杜康111://@天明再会H://@张佳珅v://@雁塔晓木屋:必须转//@灰色的伞: //@淡定鸭://@亮剑兄又来啦://@SANGMINGLEI4602: 转发微博<br><br>RE: 分享图片<br><img src="http://ww3.sinaimg.cn/large/006frKBbgw1f3ilwayn55j30k00zkgt2.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3971207239825152" target="freeweibo-mirror">SPAM 最新八卦get！ //@曹踩圣曹:八卦如我！[do…</a>
 </h2>
@@ -59,13 +59,13 @@
 </h2>
 <p>有质疑我转发长沙火车站广告贴，为什么不问问消息真伪。我转发的理由：1媒体ID公开报道。2多信源公开披露。3各渠道信息印证，包括不同条件照片相符。——希望长沙当地网友，出来证实一下。如果我错了，会道歉。<br><img src="http://ww4.sinaimg.cn/large/5392eee7gw1f3injpumbfj20ez0a0mxm.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3971203666501945" target="freeweibo-mirror">要搞文字狱啊？ //@田舍郎:#郎闲批#此风不可长，请@长沙…</a>
 </h2>
 <p>要搞文字狱啊？ //@田舍郎:#郎闲批#此风不可长，请@长沙工商 依法依规查处。//@老辣陈香:[话筒]资本藐视党纪，金钱挑战政治。没惩罚加多宝，形成破窗效应。面临如此较量，打算如何接招！//@阿勒泰公安在线: 请打这个广告的出来说话！<br><br>RE: 【远大发任志强广告】昨日，北京西城党委通报给予任志强留党察看处分。今日，远大在长沙火车站大屏幕广告：“你可以不说话，但不能不呼吸”。请问：1，这是不是巧合？2,远大几个意思？3,湖南党委长沙党委铁路党委怎么看？4,主席家乡人民怎么看？5,资本的力量果然可以藐视一切！<br><img src="http://ww2.sinaimg.cn/large/006cuVe3jw1f3ih6githjj30m80eu408.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3971203196609656" target="freeweibo-mirror">SPAM [哈哈]最好，没有之一！</a>
 </h2>
@@ -119,13 +119,13 @@
 </h2>
 <p>哦，这样一来反正不会买他家任何东西了[doge]不过，他们家的东西主要是卖给非家用用户的，那些做决策采购这些的人，没准很多是人质强的同路人呢<br><br>RE: 【远大发任志强广告】昨日，北京西城党委通报给予任志强留党察看处分。今日，远大在长沙火车站大屏幕广告：“你可以不说话，但不能不呼吸”。请问：1，这是不是巧合？2,远大几个意思？3,湖南党委长沙党委铁路党委怎么看？4,主席家乡人民怎么看？5,资本的力量果然可以藐视一切！<br><img src="http://ww2.sinaimg.cn/large/006cuVe3jw1f3ih6githjj30m80eu408.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3971195962031736" target="freeweibo-mirror">这样打广告纯属作死。法律在哪里？规矩在哪里？</a>
 </h2>
 <p>这样打广告纯属作死。法律在哪里？规矩在哪里？<br><br>RE: 河南省信阳市的这家医院太狠了[吃惊]<br><img src="http://ww2.sinaimg.cn/large/005As9Qdgw1f3ik7961zoj30c80gata6.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3971195735492998" target="freeweibo-mirror">照这样逻辑，右边支持的东西都是圣旨?都2016年了，唉，河北…</a>
 </h2>
