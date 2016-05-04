@@ -65,13 +65,13 @@
 </h2>
 <p>SPAM //@作家岳南:他可能是个遵守天朝法规的好学生。[悲伤]//@何三畏: //@一蚍蜉:也很奇怪一个名牌大学的学生居然不会翻墙，还是计算机系的！现在的大学生也要检讨自己啊！<br><br>RE: 分享图片<br><img src="http://ww4.sinaimg.cn/large/473f8cfdgw1f3jmhgp3xej20k00zk0xy.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3971548392495251" target="freeweibo-mirror">SPAM 有一大帮白痴不知道网络实际上事关身家性命！当猪，则…</a>
 </h2>
 <p>SPAM 有一大帮白痴不知道网络实际上事关身家性命！当猪，则被宰杀必然。//@干卫东律师://@反腐史记://@东台波涛装饰://@何三畏:一墙之隔， 生命两界。<br><br>RE: 分享图片<br><img src="http://ww4.sinaimg.cn/large/473f8cfdgw1f3jmhgp3xej20k00zk0xy.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3971547020677499" target="freeweibo-mirror">SPAM 一个计算机专业的大学生做这些毫无困难，但多数人可能…</a>
 </h2>
@@ -109,6 +109,12 @@
 <p>
 	<small> ============== 5小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3971522991098486" target="freeweibo-mirror">还记得郭主席的100亿吗？</a>
+</h2>
+<p>还记得郭主席的100亿吗？<br><img src="http://ww2.sinaimg.cn/large/006pBgaFjw1f3jo7kc0yaj30it02v0tj.jpg"></p>
+<p>
+	<small> ============== 6小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3971522882886760" target="freeweibo-mirror">SPAM //@草木不深:杀死魏泽西的凶手找到了</a>
 </h2>
 <p>SPAM //@草木不深:杀死魏泽西的凶手找到了<br><br>RE: 分享图片<br><img src="http://ww4.sinaimg.cn/large/473f8cfdgw1f3jmhgp3xej20k00zk0xy.jpg"></p>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3971465617151442" target="freeweibo-mirror">恶人恶报，时辰未到。</a>
 </h2>
 <p>恶人恶报，时辰未到。<br><br>RE: 国家卫计委禁止我出版，禁止我讲座，胁迫各机构，将我拉进一个个黑名单中。我要对卫计委进行还击了，要将他们拉进历史的垃圾堆里，要对他们进行追责！损失了上亿人命，导致中华民族千年一毁，该有个说法了！</p>
-<p>
-	<small> ============== 10小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3971462668833944" target="freeweibo-mirror">计生，是五千年来人类之恶的集大成者！//@写字李华良: 转发…</a>
-</h2>
-<p>计生，是五千年来人类之恶的集大成者！//@写字李华良: 转发微博<br><br>RE: 国家卫计委禁止我出版，禁止我讲座，胁迫各机构，将我拉进一个个黑名单中。我要对卫计委进行还击了，要将他们拉进历史的垃圾堆里，要对他们进行追责！损失了上亿人命，导致中华民族千年一毁，该有个说法了！</p>
 <p>
 	<small> ============== 10小时前</small>
 </p>
