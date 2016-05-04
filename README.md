@@ -19,6 +19,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3971446655493260" target="freeweibo-mirror">SPAM 哈哈哈，回家就撕看看</a>
+</h2>
+<p>SPAM 哈哈哈，回家就撕看看</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3971431124059047" target="freeweibo-mirror">看来KFC薯条味假睫毛 奶昔粉底液和番茄酱口红也快出来了 /…</a>
 </h2>
 <p>看来KFC薯条味假睫毛 奶昔粉底液和番茄酱口红也快出来了 //@这腿我能胖一年:并不想要好吧....//@你说什么再说一遍: ？？？ //@尐菁蛙:？？？好好做鸡不行吗？！？？</p>
@@ -35,13 +41,13 @@
 </h2>
 <p>SPAM 嗯，2016，新五四。//@菊十一画: 新五四运动？ //@冰克尔:[衰]<br><br>RE: 今年的五四运动导火索应该是大学生魏则西之死，而引发全民声讨莆田人和骗子的运动。我们为什么不敢进医院和寺庙，因为都是收费的骗子，一个国家连救人和信仰都存在着诈骗，难道我们不应该反思声讨吗？<br><img src="http://ww3.sinaimg.cn/large/57553bbdjw1f3j47unzqgj20go0sggqw.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3971375901142997" target="freeweibo-mirror">医疗制度改革咋回事？</a>
 </h2>
 <p>医疗制度改革咋回事？<br><br>RE: 今年的五四运动导火索应该是大学生魏则西之死，而引发全民声讨莆田人和骗子的运动。我们为什么不敢进医院和寺庙，因为都是收费的骗子，一个国家连救人和信仰都存在着诈骗，难道我们不应该反思声讨吗？<br><img src="http://ww3.sinaimg.cn/large/57553bbdjw1f3j47unzqgj20go0sggqw.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3971355341021956" target="freeweibo-mirror">SPAM 就Bose两款主动降噪产品而言，我实际使用下来，觉…</a>
 </h2>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3971200516712664" target="freeweibo-mirror">//@韩浩月:赞远大。</a>
 </h2>
 <p>//@韩浩月:赞远大。<br><br>RE: 【远大发任志强广告】昨日，北京西城党委通报给予任志强留党察看处分。今日，远大在长沙火车站大屏幕广告：“你可以不说话，但不能不呼吸”。请问：1，这是不是巧合？2,远大几个意思？3,湖南党委长沙党委铁路党委怎么看？4,主席家乡人民怎么看？5,资本的力量果然可以藐视一切！<br><img src="http://ww2.sinaimg.cn/large/006cuVe3jw1f3ih6githjj30m80eu408.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3971200382135044" target="freeweibo-mirror">右边这一串是要兴文字狱啊！故意把净化空气的广告和政治联系，视…</a>
-</h2>
-<p>右边这一串是要兴文字狱啊！故意把净化空气的广告和政治联系，视人民健康为无物，这是要为党拉仇恨啊！你们有这么恨党吗？ //@田舍郎:此风不可长，请@长沙工商 依法依规查处//@老辣陈香:资本藐视党纪，金钱挑战政治。面临如此较量，打算如何接招！//@阿勒泰公安在线: 请打这个广告的出来说话！<br><br>RE: 【远大发任志强广告】昨日，北京西城党委通报给予任志强留党察看处分。今日，远大在长沙火车站大屏幕广告：“你可以不说话，但不能不呼吸”。请问：1，这是不是巧合？2,远大几个意思？3,湖南党委长沙党委铁路党委怎么看？4,主席家乡人民怎么看？5,资本的力量果然可以藐视一切！<br><img src="http://ww2.sinaimg.cn/large/006cuVe3jw1f3ih6githjj30m80eu408.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
