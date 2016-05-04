@@ -53,7 +53,7 @@
 </h2>
 <p>//@清越微博1:一查一准！[哈哈]//@健坤强德之声闻: 幕后黑手而已！//@清越微博1:少将也是？//@健坤强德之声闻: 都是承包的//@独行的风波亭小沙弥:私改 //@清越微博1:鬼信！[怒]//@承文革: //@libin-1030:武警医院有社会公司入股！那可能干净吗？不要把自己看得太高 其实是“藏龙卧虎”之地！都懂。<br><br>RE: 【魏则西事件】北京市武警第二医院回应：不存在科室承包情况。二院说的没错，他确实没外包，只是有莆田系的上海康新医院投资管理有限公司入股而已。想推卸责任，你想得美！图为二院院长蒋均远少将<br><img src="http://ww3.sinaimg.cn/large/d55abf7ejw1f3jlcfm0brj20cw0c9dgs.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3971544243598288" target="freeweibo-mirror">//@金建荣1972://@登云2013:转发微博</a>
 </h2>
@@ -64,6 +64,12 @@
 	<a href="https://freeweibo.com/weibo/3971543049051348" target="freeweibo-mirror">回复@dashidai666:莆田系的后台是钱，它们早年发迹…</a>
 </h2>
 <p>回复@dashidai666:莆田系的后台是钱，它们早年发迹壮大后已经尾大不掉，拉拢谁站台也不奇怪，不要把因果关系颠倒了。//@dashidai666:知道莆田系的后台是谁吗？！<br><br>RE: 【魏则西事件】北京市武警第二医院回应：不存在科室承包情况。二院说的没错，他确实没外包，只是有莆田系的上海康新医院投资管理有限公司入股而已。想推卸责任，你想得美！图为二院院长蒋均远少将<br><img src="http://ww3.sinaimg.cn/large/d55abf7ejw1f3jlcfm0brj20cw0c9dgs.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3971541992031265" target="freeweibo-mirror">请对这届人民放心，不会纠缠魏则西事件的。[悲催]</a>
+</h2>
+<p>请对这届人民放心，不会纠缠魏则西事件的。[悲催]<br><img src="http://ww4.sinaimg.cn/large/dd816182gw1f3jqdxg74zj20lc0a4t9m.jpg"></p>
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
@@ -132,12 +138,6 @@
 <p>看来KFC薯条味假睫毛 奶昔粉底液和番茄酱口红也快出来了 //@这腿我能胖一年:并不想要好吧....//@你说什么再说一遍: ？？？ //@尐菁蛙:？？？好好做鸡不行吗？！？？</p>
 <p>
 	<small> ============== 10小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3971398425038358" target="freeweibo-mirror">SPAM 剧 透 波 biubiubiu~~ 选 几</a>
-</h2>
-<p>SPAM 剧 透 波 biubiubiu~~ 选 几<br><img src="http://ww1.sinaimg.cn/large/5db8744fgw1f3j9r6qvnhj21kw1kwk7w.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
 </p>
 <table>
     <tr>
