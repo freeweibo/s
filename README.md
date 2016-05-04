@@ -37,6 +37,12 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3971451985443791" target="freeweibo-mirror">本来有媒体朋友约我写一篇小稿说说这个事情，现在也说不成了。</a>
+</h2>
+<p>本来有媒体朋友约我写一篇小稿说说这个事情，现在也说不成了。<br><img src="http://ww3.sinaimg.cn/large/70043df0jw1f3jg15smzwj20m8063ab6.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3971446655493260" target="freeweibo-mirror">SPAM 哈哈哈，回家就撕看看</a>
 </h2>
 <p>SPAM 哈哈哈，回家就撕看看</p>
@@ -66,6 +72,18 @@
 <p>医疗制度改革咋回事？<br><br>RE: 今年的五四运动导火索应该是大学生魏则西之死，而引发全民声讨莆田人和骗子的运动。我们为什么不敢进医院和寺庙，因为都是收费的骗子，一个国家连救人和信仰都存在着诈骗，难道我们不应该反思声讨吗？<br><img src="http://ww3.sinaimg.cn/large/57553bbdjw1f3j47unzqgj20go0sggqw.jpg"></p>
 <p>
 	<small> ============== 7小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3971366707748855" target="freeweibo-mirror">国家卫计委禁止我出版，禁止我讲座，胁迫各机构，将我拉进一个个…</a>
+</h2>
+<p>国家卫计委禁止我出版，禁止我讲座，胁迫各机构，将我拉进一个个黑名单中。我要对卫计委进行还击了，要将他们拉进历史的垃圾堆里，要对他们进行追责！损失了上亿人命，导致中华民族千年一毁，该有个说法了！</p>
+<p>
+	<small> ============== 8小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3971366341901271" target="freeweibo-mirror">#凤凰卫视全媒体大开讲#【助脱北者牧师被发现在中国境内死亡】…</a>
+</h2>
+<p>#凤凰卫视全媒体大开讲#【助脱北者牧师被发现在中国境内死亡】英国媒体报导，一名帮助脱北者逃离朝鲜的中国朝鲜族牧师被发现在中国东北死亡，有专家认为这名牧师很有可能遭到平壤的安全部门暗杀。英国电讯报5月2号报导称，在4月29号朝鲜族自治县，牧师韩某在与家人失联后，于晚上8点左右，其尸体在郊外...全文： http://m.weibo.cn/1643971635/3971366341901271<br><img src="http://ww1.sinaimg.cn/large/61fd0433jw1f3j59mx70sj20hd0ps78p.jpg"></p>
+<p>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3971355341021956" target="freeweibo-mirror">SPAM 就Bose两款主动降噪产品而言，我实际使用下来，觉…</a>
 </h2>
@@ -118,24 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3971204962299957" target="freeweibo-mirror">//@50年矛苔://@亮剑兄又来啦: //@伟荣V实说: …</a>
 </h2>
 <p>//@50年矛苔://@亮剑兄又来啦: //@伟荣V实说: //@浮萍-JJ: 转发微博<br><br>RE: 分享图片<br><img src="http://ww3.sinaimg.cn/large/006frKBbgw1f3ilwayn55j30k00zkgt2.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3971203708178029" target="freeweibo-mirror">有质疑我转发长沙火车站广告贴，为什么不问问消息真伪。我转发的…</a>
-</h2>
-<p>有质疑我转发长沙火车站广告贴，为什么不问问消息真伪。我转发的理由：1媒体ID公开报道。2多信源公开披露。3各渠道信息印证，包括不同条件照片相符。——希望长沙当地网友，出来证实一下。如果我错了，会道歉。<br><img src="http://ww4.sinaimg.cn/large/5392eee7gw1f3injpumbfj20ez0a0mxm.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3971203666501945" target="freeweibo-mirror">要搞文字狱啊？ //@田舍郎:#郎闲批#此风不可长，请@长沙…</a>
-</h2>
-<p>要搞文字狱啊？ //@田舍郎:#郎闲批#此风不可长，请@长沙工商 依法依规查处。//@老辣陈香:[话筒]资本藐视党纪，金钱挑战政治。没惩罚加多宝，形成破窗效应。面临如此较量，打算如何接招！//@阿勒泰公安在线: 请打这个广告的出来说话！<br><br>RE: 【远大发任志强广告】昨日，北京西城党委通报给予任志强留党察看处分。今日，远大在长沙火车站大屏幕广告：“你可以不说话，但不能不呼吸”。请问：1，这是不是巧合？2,远大几个意思？3,湖南党委长沙党委铁路党委怎么看？4,主席家乡人民怎么看？5,资本的力量果然可以藐视一切！<br><img src="http://ww2.sinaimg.cn/large/006cuVe3jw1f3ih6githjj30m80eu408.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3971203196609656" target="freeweibo-mirror">SPAM [哈哈]最好，没有之一！</a>
-</h2>
-<p>SPAM [哈哈]最好，没有之一！<br><br>RE: 做广告这么多年，这是我见过最好的广告，没有之一。<br><img src="http://ww3.sinaimg.cn/large/4de85d08jw1f3ig2g7dv6j20rs0ijad5.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
