@@ -29,7 +29,7 @@
 </h2>
 <p>把唱红推向全国。继承重庆书记未竟事业。把无产阶级文化大革命进行到底。<br><br>RE: 马晓力的一封信<br><img src="http://ww4.sinaimg.cn/large/006pHoeugw1f3jwttux2mj30px0zkn53.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3971676389402532" target="freeweibo-mirror">不厚在秦城里该大笑了，唱红打黑有了接班人//@漂移的社会:票…</a>
 </h2>
