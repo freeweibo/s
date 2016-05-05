@@ -53,7 +53,13 @@
 </h2>
 <p>SPAM //@sorrymiss: //@新启蒙熊伟: 扩散//@广西林仁聪律师:<br><br>RE: 香港文汇报今刊出直击莆田医院系列，独家曝光莆田系生物免疫假技术攻克武警总院、火箭军总院外，另有多个三甲医院沦陷内情。我们微博征集线索，逾十位甫田系受害者血泪控诉，今文汇头条曝光兰州天伦不育不孕医院欺诈，“万万“遭遇是万千普通病患劫难缩影。cc@甘肃刘维忠@波子哥-廖新波@凝哲同学<br><img src="http://ww3.sinaimg.cn/large/5938a13ajw1f3kf6pk63ej20b40hzjue.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3971857168109238" target="freeweibo-mirror">百度一下，怎么这样？</a>
+</h2>
+<p>百度一下，怎么这样？<br><img src="http://ww1.sinaimg.cn/large/74ab24d1jw1f3kqltlgyuj20v90woadx.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3971840219420700" target="freeweibo-mirror">这种过度治疗是虚构治疗虚假治疗，按期用尽，医患人头分成。//…</a>
 </h2>
@@ -132,12 +138,6 @@
 <p>SPAM 。。。。。卧槽，现在是下午三点三十六分。。。我好奇地去查了下，是真的……<br><br>RE: 百度怒了！<br><img src="http://ww4.sinaimg.cn/large/c38ab5aajw1f3kgsedx6wj20qo1bfgrc.jpg"></p>
 <p>
 	<small> ============== 6小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3971795004361123" target="freeweibo-mirror">SPAM //@李明波Hamas:[哈哈][哈哈][哈哈] …</a>
-</h2>
-<p>SPAM //@李明波Hamas:[哈哈][哈哈][哈哈] //@李正曦Sissi:[笑cry]//@老刀99: 估计李彦宏已经坐在飞往DC的飞机上了.......//@BlackCloak: 我操………………………我操…………………………我操………………………造反了！李彦宏不甘心当成济，这是要玩命啊……//@曾我诚向荒野土下座: [笑cry]像狂欢一样/<br><br>RE: 百度怒了！<br><img src="http://ww4.sinaimg.cn/large/c38ab5aajw1f3kgsedx6wj20qo1bfgrc.jpg"></p>
-<p>
-	<small> ============== 7小时前</small>
 </p>
 <table>
     <tr>
