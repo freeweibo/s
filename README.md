@@ -35,7 +35,7 @@
 </h2>
 <p>不厚在秦城里该大笑了，唱红打黑有了接班人//@漂移的社会:票价1280[吃惊]！看来，这次“文革”是资产阶级发动的[嘻嘻]//@高中政治教师陈勇: //@浩正刘臻:[话筒] //@陈业文新大都:票价不菲。这不是一般的演唱会！大海航行靠舵手都回来了。艹！//@况秀猛:<br><br>RE: 马晓力的一封信<br><img src="http://ww4.sinaimg.cn/large/006pHoeugw1f3jwttux2mj30px0zkn53.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3971665317323441" target="freeweibo-mirror">SPAM 有一只奶猫早上拉稀了，而且食欲不振，在线求问下成都…</a>
 </h2>
@@ -77,7 +77,7 @@
 </h2>
 <p>SPAM //@Campisi:我是先去google了解病情、病因，再根据上面的提示自己search治疗方法。我妈妈的鼻炎我就是通过google了解基本的常识，然后去找能够遏制住这种病的元素，而国内的百度上面只提示要开刀动手术。 //@老壶嚼早:http://t.cn/Rq8UEoP //@熏衣草的最好时光: //@王周生:墙害人。 //@凌国华兮:墙。<br><br>RE: 分享图片<br><img src="http://ww4.sinaimg.cn/large/473f8cfdgw1f3jmhgp3xej20k00zk0xy.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3971555875006498" target="freeweibo-mirror">SPAM //@何三畏: 就这样，骗子王国，一举建成</a>
 </h2>
