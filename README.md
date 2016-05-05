@@ -77,7 +77,7 @@
 </h2>
 <p>SPAM //@李明波Hamas:[哈哈][哈哈][哈哈] //@李正曦Sissi:[笑cry]//@老刀99: 估计李彦宏已经坐在飞往DC的飞机上了.......//@BlackCloak: 我操………………………我操…………………………我操………………………造反了！李彦宏不甘心当成济，这是要玩命啊……//@曾我诚向荒野土下座: [笑cry]像狂欢一样/<br><br>RE: 百度怒了！<br><img src="http://ww4.sinaimg.cn/large/c38ab5aajw1f3kgsedx6wj20qo1bfgrc.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3971794500992883" target="freeweibo-mirror">SPAM 真滳假滴？ //@吕健中:不是怒了，是疯了 //@…</a>
 </h2>
@@ -88,6 +88,12 @@
 	<a href="https://freeweibo.com/weibo/3971794048148257" target="freeweibo-mirror">SPAM //@北村:这真的假的？[吃惊][哈哈][good…</a>
 </h2>
 <p>SPAM //@北村:这真的假的？[吃惊][哈哈][good][给力] //@刘春:[哈哈]//@王小山:拽。//@急诊科女超人于莺:哈哈，百度座下小编你好拽啊[哈哈] //@来自天使之城：[哈哈]//@滴水成冰的北京: @百度 反击很给力啊！<br><br>RE: 网友截的图，百度，你这么屌，你爸妈知道么？[笑哈哈]<br><img src="http://ww2.sinaimg.cn/large/675d6d9dgw1f3kfl34i4ij20ci0m8q3n.jpg"></p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3971790462406554" target="freeweibo-mirror">最不能理解的是自焚者，命都舍得了，却不敢讨公道，对自己下手，…</a>
+</h2>
+<p>最不能理解的是自焚者，命都舍得了，却不敢讨公道，对自己下手，却对坏人下跪。http://t.cn/Rqp0iYM</p>
 <p>
 	<small> ============== 4小时前</small>
 </p><h2>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3971776528168843" target="freeweibo-mirror">天了撸，这是哪里 //@逆风蝴蝶:吓人 //@作家岳南:博主…</a>
 </h2>
 <p>天了撸，这是哪里 //@逆风蝴蝶:吓人 //@作家岳南:博主的意识和认知程度是，凡被政府警察抓的都是坏人，如同当年中共中央总书记向忠发同志被警察抓捕一样。<br><br>RE: 直到手铐子出现，我才看明白原来是警察叔叔在抓坏人…… http://t.cn/Rq8Cl94 .</p>
-<p>
-	<small> ============== 5小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3971776365601863" target="freeweibo-mirror">SPAM 有理有据[笑cry]//@王小山:拽。//@急诊科…</a>
-</h2>
-<p>SPAM 有理有据[笑cry]//@王小山:拽。//@急诊科女超人于莺:哈哈，百度座下小编你好拽啊[哈哈] //@来自天使之城：[哈哈]//@滴水成冰的北京: @百度 反击很给力啊！<br><br>RE: 网友截的图，百度，你这么屌，你爸妈知道么？[笑哈哈]<br><img src="http://ww2.sinaimg.cn/large/675d6d9dgw1f3kfl34i4ij20ci0m8q3n.jpg"></p>
 <p>
 	<small> ============== 5小时前</small>
 </p>
