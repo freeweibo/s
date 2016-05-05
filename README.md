@@ -61,6 +61,12 @@
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3971771801889100" target="freeweibo-mirror">百度怒了！</a>
+</h2>
+<p>百度怒了！<br><img src="http://ww4.sinaimg.cn/large/c38ab5aajw1f3kgsedx6wj20qo1bfgrc.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3971770211660590" target="freeweibo-mirror">SPAM 回复@杨恒均的微博: 是的。以前都被屏蔽了。 //…</a>
 </h2>
 <p>SPAM 回复@杨恒均的微博: 是的。以前都被屏蔽了。 //@杨恒均的微博:回复@陈业文新大都:以前都打不开哦。</p>
@@ -83,13 +89,13 @@
 </h2>
 <p>//@崔小平律师://@王祖哲:无论啥垄断了，不撒谎，不作恶，是不可能的。——物理学定律一样一样滴。<br><br>RE: 赶走谷歌，说是为了百姓的信息安全，结果，百姓却只能面对百度上的骗子，被骗了一次又一次。</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3971765166832479" target="freeweibo-mirror">SPAM 哈哈，乖乖的，百度也是怒了？[酷]它一定想，多少年…</a>
 </h2>
 <p>SPAM 哈哈，乖乖的，百度也是怒了？[酷]它一定想，多少年来，我一直为你们干活，这次不就赚点脏钱吗，你们就要抛弃我[泪]干脆⋯⋯[哈哈][嘻嘻]<br><img src="http://ww4.sinaimg.cn/large/48c00fbbjw1f3kg1ehsecj20qo1bfgt7.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3971764104792891" target="freeweibo-mirror">//@王祖哲:无论啥垄断了，不撒谎，不作恶，是不可能的。——…</a>
 </h2>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3971753766415045" target="freeweibo-mirror">SPAM 鄙司特点是搭车黑，详见本条及右侧[哈哈] //@来…</a>
 </h2>
 <p>SPAM 鄙司特点是搭车黑，详见本条及右侧[哈哈] //@来去之间:这要是鄙司，肯定都是自黑的[挖鼻] //@老刀99:正面肛啊，要反了！！！[哆啦A梦吃惊]//@夜zox夜: 要疯//@氓牛zunger: 好魄力~就照这个劲头炸成一朵花吧~<br><br>RE: 哎呦卧槽………疯了吧……<br><img src="http://ww4.sinaimg.cn/large/537e7cfdgw1f3kcidqhfpj20cs0mp0un.jpg"></p>
-<p>
-	<small> ============== 4小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3971753552210064" target="freeweibo-mirror">//@潮州仔弟_nht:民主的好处多，权力民选，政府时刻处于…</a>
-</h2>
-<p>//@潮州仔弟_nht:民主的好处多，权力民选，政府时刻处于民众监督<br><br>RE: 为什么官员财产不公开？为什么医院坑害病人？为什么维权人士投诉无门？为什么官商勾结千方百计掠夺百姓财富？还有无数个为什么。因为权力不是民选的，官员作恶你对他无可奈何。权力是谁给的就听谁的。只有权力民选，官员才能执政为民。民主启蒙，民主呼声。敬请转发！本微博由@LYJason凤凰VIP-14 原创</p>
 <p>
 	<small> ============== 4小时前</small>
 </p>
