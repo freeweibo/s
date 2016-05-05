@@ -25,6 +25,12 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3971734435056027" target="freeweibo-mirror">哎呦卧槽………疯了吧……</a>
+</h2>
+<p>哎呦卧槽………疯了吧……<br><img src="http://ww4.sinaimg.cn/large/537e7cfdgw1f3kcidqhfpj20cs0mp0un.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3971700792356627" target="freeweibo-mirror">SPAM 法治怎么是狗屎？叙利亚那种乱才是蛋糕？[偷笑] /…</a>
 </h2>
 <p>SPAM 法治怎么是狗屎？叙利亚那种乱才是蛋糕？[偷笑] //@律师文摘://@周泽律师: //@我是闻正兵: //@杨锦麟:狗屎！ //@朱学东:就是一坨狗屎，单仁平也会说是美味蛋糕。</p>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3971544243598288" target="freeweibo-mirror">//@金建荣1972://@登云2013:转发微博</a>
 </h2>
 <p>//@金建荣1972://@登云2013:转发微博</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3971543049051348" target="freeweibo-mirror">回复@dashidai666:莆田系的后台是钱，它们早年发迹…</a>
-</h2>
-<p>回复@dashidai666:莆田系的后台是钱，它们早年发迹壮大后已经尾大不掉，拉拢谁站台也不奇怪，不要把因果关系颠倒了。//@dashidai666:知道莆田系的后台是谁吗？！<br><br>RE: 【魏则西事件】北京市武警第二医院回应：不存在科室承包情况。二院说的没错，他确实没外包，只是有莆田系的上海康新医院投资管理有限公司入股而已。想推卸责任，你想得美！图为二院院长蒋均远少将<br><img src="http://ww3.sinaimg.cn/large/d55abf7ejw1f3jlcfm0brj20cw0c9dgs.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
