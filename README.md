@@ -89,7 +89,7 @@
 </h2>
 <p>回复@-都市过客--:如果外国会免费治疗他国病人，魏也许有选择，否则他只能根据已有的经济条件和现实情况来选择。很多国家网络毫无管理，那里有木有不治的病人？治病要靠医疗系统还是指望靠网络自由来给你治病？对医疗系统乱象不刨根问底，不谴责无良网络推广，喷错对象也是故意误导。<br><br>RE: 分享图片<br><img src="http://ww4.sinaimg.cn/large/473f8cfdgw1f3jmhgp3xej20k00zk0xy.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3971548874724918" target="freeweibo-mirror">SPAM //@作家岳南:他可能是个遵守天朝法规的好学生。[…</a>
 </h2>
@@ -125,13 +125,13 @@
 </h2>
 <p>回复@dashidai666:莆田系的后台是钱，它们早年发迹壮大后已经尾大不掉，拉拢谁站台也不奇怪，不要把因果关系颠倒了。//@dashidai666:知道莆田系的后台是谁吗？！<br><br>RE: 【魏则西事件】北京市武警第二医院回应：不存在科室承包情况。二院说的没错，他确实没外包，只是有莆田系的上海康新医院投资管理有限公司入股而已。想推卸责任，你想得美！图为二院院长蒋均远少将<br><img src="http://ww3.sinaimg.cn/large/d55abf7ejw1f3jlcfm0brj20cw0c9dgs.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3971541992031265" target="freeweibo-mirror">请对这届人民放心，不会纠缠魏则西事件的。[悲催]</a>
 </h2>
 <p>请对这届人民放心，不会纠缠魏则西事件的。[悲催]<br><img src="http://ww4.sinaimg.cn/large/dd816182gw1f3jqdxg74zj20lc0a4t9m.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3971534978347669" target="freeweibo-mirror">老子查儿子下得了手？//@六安自媒体:自己调查自己！//@何…</a>
 </h2>
