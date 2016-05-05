@@ -95,7 +95,7 @@
 </h2>
 <p>SPAM 有一只奶猫早上拉稀了，而且食欲不振，在线求问下成都有哪家宠物医院比较好一些</p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3971642332370695" target="freeweibo-mirror">SPAM 票价不菲。这不是一般的演唱会！大海航行靠舵手都回来…</a>
 </h2>
@@ -107,7 +107,7 @@
 </h2>
 <p>马晓力的一封信<br><img src="http://ww4.sinaimg.cn/large/006pHoeugw1f3jwttux2mj30px0zkn53.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3971596613655111" target="freeweibo-mirror">//@ZS-D-義-士-聚-://@五哥放羊43: //@永…</a>
 </h2>
