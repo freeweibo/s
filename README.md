@@ -77,7 +77,7 @@
 </h2>
 <p>公知媒体逼逼重庆文革，可中央何时把重庆定性为“文革”，我这本地人怎么不知道？http://t.cn/Rq81EX2；http://t.cn/Rq81sdY；http://t.cn/Rq8rixO 至于说什么“唱红打黑”搞文革，这是早就被本人驳得稀烂的谎言。特别是外地朋友，你们不过是被媒体铺天盖地的轰炸洗脑欺骗了而已。<br><br>RE: 分享图片<br><img src="http://ww4.sinaimg.cn/large/6031cd2fgw1f3k60ytwpfj20qo1betbe.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3971875904572571" target="freeweibo-mirror">有啥危险？除了傻逼公知和被公知忽悠的脑残说重庆是文革，为何我…</a>
 </h2>
