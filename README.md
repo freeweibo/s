@@ -37,15 +37,51 @@
 <p>
 	<small> ============== 1小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3971765480860849" target="freeweibo-mirror">//@崔小平律师://@王祖哲:无论啥垄断了，不撒谎，不作恶…</a>
+</h2>
+<p>//@崔小平律师://@王祖哲:无论啥垄断了，不撒谎，不作恶，是不可能的。——物理学定律一样一样滴。<br><br>RE: 赶走谷歌，说是为了百姓的信息安全，结果，百姓却只能面对百度上的骗子，被骗了一次又一次。</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3971765166832479" target="freeweibo-mirror">SPAM 哈哈，乖乖的，百度也是怒了？[酷]它一定想，多少年…</a>
+</h2>
+<p>SPAM 哈哈，乖乖的，百度也是怒了？[酷]它一定想，多少年来，我一直为你们干活，这次不就赚点脏钱吗，你们就要抛弃我[泪]干脆⋯⋯[哈哈][嘻嘻]<br><img src="http://ww4.sinaimg.cn/large/48c00fbbjw1f3kg1ehsecj20qo1bfgt7.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3971759101081121" target="freeweibo-mirror">[悲伤]//@沐趣：请不要在公共场所虐狗！</a>
 </h2>
 <p>[悲伤]//@沐趣：请不要在公共场所虐狗！<br><br>RE: 胡耀邦在文革前夕说：“‘突出政治’就真的那么灵？我看游泳时就得时不时地突出鼻子！”个人迷信之风刮得遮天蔽日，不分男女老幼都高呼“万岁、万岁、万万岁”时，他又不止一次地对许多青年人说：“人能活到一万岁吗？这种口号很不科学嘛！”http://t.cn/Rq8fPeI<br><img src="http://ww4.sinaimg.cn/large/6b804b51gw1f3k5f7z76cj20go0b4mxv.jpg"></p>
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3971757976918051" target="freeweibo-mirror">[doge] //@周泽律师:莆田系不是医疗，是特大诈骗集团…</a>
+</h2>
+<p>[doge] //@周泽律师:莆田系不是医疗，是特大诈骗集团？<br><br>RE: 莆田系不是医疗，是特大诈骗集团，我是医生，只讨论医疗。我再次呼吁大家重新看待莆田系，他们不是医疗，是谋财害命，触犯的是刑法而不是简单赔钱就完了。我再次呼吁有莆田系就医经历的病人，拿着你的原始病历，核查你的医疗行为，如果发现有违背医疗伦理的行为，请不要到卫计委上诉，而是到公安局以“...全文： http://m.weibo.cn/5893183577/3971420629896867</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3971753766415045" target="freeweibo-mirror">SPAM 鄙司特点是搭车黑，详见本条及右侧[哈哈] //@来…</a>
+</h2>
+<p>SPAM 鄙司特点是搭车黑，详见本条及右侧[哈哈] //@来去之间:这要是鄙司，肯定都是自黑的[挖鼻] //@老刀99:正面肛啊，要反了！！！[哆啦A梦吃惊]//@夜zox夜: 要疯//@氓牛zunger: 好魄力~就照这个劲头炸成一朵花吧~<br><br>RE: 哎呦卧槽………疯了吧……<br><img src="http://ww4.sinaimg.cn/large/537e7cfdgw1f3kcidqhfpj20cs0mp0un.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3971753552210064" target="freeweibo-mirror">//@潮州仔弟_nht:民主的好处多，权力民选，政府时刻处于…</a>
+</h2>
+<p>//@潮州仔弟_nht:民主的好处多，权力民选，政府时刻处于民众监督<br><br>RE: 为什么官员财产不公开？为什么医院坑害病人？为什么维权人士投诉无门？为什么官商勾结千方百计掠夺百姓财富？还有无数个为什么。因为权力不是民选的，官员作恶你对他无可奈何。权力是谁给的就听谁的。只有权力民选，官员才能执政为民。民主启蒙，民主呼声。敬请转发！本微博由@LYJason凤凰VIP-14 原创</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3971752050376517" target="freeweibo-mirror">[太开心] →//@陈有西:初中没毕业吧？千古是死人永远被怀…</a>
 </h2>
 <p>[太开心] →//@陈有西:初中没毕业吧？千古是死人永远被怀念，万岁是活人长生不死。你真不值二毛五。//@罗de博：没了“主席万岁”，可是我们越来越多的听到了“蒋公千古”“X邦千古”“马步芳千古”......死了的人能再活到一千岁吗？<br><br>RE: 胡耀邦在文革前夕说：“‘突出政治’就真的那么灵？我看游泳时就得时不时地突出鼻子！”个人迷信之风刮得遮天蔽日，不分男女老幼都高呼“万岁、万岁、万万岁”时，他又不止一次地对许多青年人说：“人能活到一万岁吗？这种口号很不科学嘛！”http://t.cn/Rq8fPeI<br><img src="http://ww4.sinaimg.cn/large/6b804b51gw1f3k5f7z76cj20go0b4mxv.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3971751735669271" target="freeweibo-mirror">//@巴楚渔樵: 他们都在阵地上，各守一段。 //@陈光武律…</a>
+</h2>
+<p>//@巴楚渔樵: 他们都在阵地上，各守一段。 //@陈光武律师://@六安自媒体: 都是垄断//@云台27将:转发微博</p>
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
@@ -59,7 +95,7 @@
 </h2>
 <p>[挖鼻]<br><br>RE: 昨天去复旦，在校园里看到这个标语，挺惊诧的，名校啊，居然用词更奇葩。<br><img src="http://ww2.sinaimg.cn/large/006pzEOvjw1f3k90eik17j30qo0k0tdv.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3971746862400138" target="freeweibo-mirror">SPAM 我勒个去。//@小浪:[doge] //@来去之间…</a>
 </h2>
@@ -70,6 +106,12 @@
 	<a href="https://freeweibo.com/weibo/3971746505750663" target="freeweibo-mirror">SPAM 真开心//@小浪: [doge] //@来去之间:…</a>
 </h2>
 <p>SPAM 真开心//@小浪: [doge] //@来去之间:这要是鄙司，肯定都是自黑的[挖鼻] //@老刀99:正面肛啊，要反了！！！[哆啦A梦吃惊]//@夜zox夜: 要疯//@氓牛zunger: 好魄力~就照这个劲头炸成一朵花吧~<br><br>RE: 哎呦卧槽………疯了吧……<br><img src="http://ww4.sinaimg.cn/large/537e7cfdgw1f3kcidqhfpj20cs0mp0un.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3971745633172325" target="freeweibo-mirror">SPAM [doge] //@来去之间:这要是鄙司，肯定都是…</a>
+</h2>
+<p>SPAM [doge] //@来去之间:这要是鄙司，肯定都是自黑的[挖鼻] //@老刀99:正面肛啊，要反了！！！[哆啦A梦吃惊]//@夜zox夜: 要疯//@氓牛zunger: 好魄力~就照这个劲头炸成一朵花吧~<br><br>RE: 哎呦卧槽………疯了吧……<br><img src="http://ww4.sinaimg.cn/large/537e7cfdgw1f3kcidqhfpj20cs0mp0un.jpg"></p>
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
@@ -85,59 +127,17 @@
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3971740306068804" target="freeweibo-mirror">//@史晓飞:转发微博</a>
+</h2>
+<p>//@史晓飞:转发微博<br><br>RE: 莆田系不是医疗，是特大诈骗集团，我是医生，只讨论医疗。我再次呼吁大家重新看待莆田系，他们不是医疗，是谋财害命，触犯的是刑法而不是简单赔钱就完了。我再次呼吁有莆田系就医经历的病人，拿着你的原始病历，核查你的医疗行为，如果发现有违背医疗伦理的行为，请不要到卫计委上诉，而是到公安局以“...全文： http://m.weibo.cn/5893183577/3971420629896867</p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3971734435056027" target="freeweibo-mirror">哎呦卧槽………疯了吧……</a>
 </h2>
 <p>哎呦卧槽………疯了吧……<br><img src="http://ww4.sinaimg.cn/large/537e7cfdgw1f3kcidqhfpj20cs0mp0un.jpg"></p>
 <p>
 	<small> ============== 3小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3971703967558057" target="freeweibo-mirror">昨天去复旦，在校园里看到这个标语，挺惊诧的，名校啊，居然用词…</a>
-</h2>
-<p>昨天去复旦，在校园里看到这个标语，挺惊诧的，名校啊，居然用词更奇葩。<br><img src="http://ww2.sinaimg.cn/large/006pzEOvjw1f3k90eik17j30qo0k0tdv.jpg"></p>
-<p>
-	<small> ============== 5小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3971700792356627" target="freeweibo-mirror">SPAM 法治怎么是狗屎？叙利亚那种乱才是蛋糕？[偷笑] /…</a>
-</h2>
-<p>SPAM 法治怎么是狗屎？叙利亚那种乱才是蛋糕？[偷笑] //@律师文摘://@周泽律师: //@我是闻正兵: //@杨锦麟:狗屎！ //@朱学东:就是一坨狗屎，单仁平也会说是美味蛋糕。</p>
-<p>
-	<small> ============== 6小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3971677933528532" target="freeweibo-mirror">把唱红推向全国。继承重庆书记未竟事业。把无产阶级文化大革命进…</a>
-</h2>
-<p>把唱红推向全国。继承重庆书记未竟事业。把无产阶级文化大革命进行到底。<br><br>RE: 马晓力的一封信<br><img src="http://ww4.sinaimg.cn/large/006pHoeugw1f3jwttux2mj30px0zkn53.jpg"></p>
-<p>
-	<small> ============== 7小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3971676389402532" target="freeweibo-mirror">不厚在秦城里该大笑了，唱红打黑有了接班人//@漂移的社会:票…</a>
-</h2>
-<p>不厚在秦城里该大笑了，唱红打黑有了接班人//@漂移的社会:票价1280[吃惊]！看来，这次“文革”是资产阶级发动的[嘻嘻]//@高中政治教师陈勇: //@浩正刘臻:[话筒] //@陈业文新大都:票价不菲。这不是一般的演唱会！大海航行靠舵手都回来了。艹！//@况秀猛:<br><br>RE: 马晓力的一封信<br><img src="http://ww4.sinaimg.cn/large/006pHoeugw1f3jwttux2mj30px0zkn53.jpg"></p>
-<p>
-	<small> ============== 7小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3971672857784632" target="freeweibo-mirror">胡耀邦在文革前夕说：“‘突出政治’就真的那么灵？我看游泳时就…</a>
-</h2>
-<p>胡耀邦在文革前夕说：“‘突出政治’就真的那么灵？我看游泳时就得时不时地突出鼻子！”个人迷信之风刮得遮天蔽日，不分男女老幼都高呼“万岁、万岁、万万岁”时，他又不止一次地对许多青年人说：“人能活到一万岁吗？这种口号很不科学嘛！”http://t.cn/Rq8fPeI<br><img src="http://ww4.sinaimg.cn/large/6b804b51gw1f3k5f7z76cj20go0b4mxv.jpg"></p>
-<p>
-	<small> ============== 7小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3971665317323441" target="freeweibo-mirror">SPAM 有一只奶猫早上拉稀了，而且食欲不振，在线求问下成都…</a>
-</h2>
-<p>SPAM 有一只奶猫早上拉稀了，而且食欲不振，在线求问下成都有哪家宠物医院比较好一些</p>
-<p>
-	<small> ============== 8小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3971642332370695" target="freeweibo-mirror">SPAM 票价不菲。这不是一般的演唱会！大海航行靠舵手都回来…</a>
-</h2>
-<p>SPAM 票价不菲。这不是一般的演唱会！大海航行靠舵手都回来了。艹！ //@新罗居士:[哆啦A梦花心][哆啦A梦花心][哆啦A梦花心]//@况秀猛:1000多元/张票？[偷笑]//@北京江荣生: @中国政府网  @北京崔卫平  @迟夙生律师  @陈有西  @方流芳  @导演孙周  @贺卫方 @华生2010  @李大霄  @刘军宁 @袁伟时<br><br>RE: 马晓力的一封信<br><img src="http://ww4.sinaimg.cn/large/006pHoeugw1f3jwttux2mj30px0zkn53.jpg"></p>
-<p>
-	<small> ============== 9小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3971597964966865" target="freeweibo-mirror">马晓力的一封信</a>
-</h2>
-<p>马晓力的一封信<br><img src="http://ww4.sinaimg.cn/large/006pHoeugw1f3jwttux2mj30px0zkn53.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
 </p>
 <table>
     <tr>
