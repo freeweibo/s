@@ -83,7 +83,7 @@
 </h2>
 <p>SPAM //@李明波Hamas:[哈哈][哈哈][哈哈] //@李正曦Sissi:[笑cry]//@老刀99: 估计李彦宏已经坐在飞往DC的飞机上了.......//@BlackCloak: 我操………………………我操…………………………我操………………………造反了！李彦宏不甘心当成济，这是要玩命啊……//@曾我诚向荒野土下座: [笑cry]像狂欢一样/<br><br>RE: 百度怒了！<br><img src="http://ww4.sinaimg.cn/large/c38ab5aajw1f3kgsedx6wj20qo1bfgrc.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3971794500992883" target="freeweibo-mirror">SPAM 真滳假滴？ //@吕健中:不是怒了，是疯了 //@…</a>
 </h2>
