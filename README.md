@@ -41,7 +41,7 @@
 </h2>
 <p>SPAM 【《科洛弗道10号》支援已出！】烂番茄新鲜度90%。讲述一个女人遭遇车祸后，在一个避难所中醒来，同在的两个男人告诉她，外面的世界遭到了生化攻击。随着相处，她觉得有些不对，于是想方设法逃离，可外面到底是什么情况了呢……本片由J·J·艾布拉姆斯（星战7）担任制片。期待已久了。支援见图。<br><img src="http://ww1.sinaimg.cn/large/76c73f8djw1f3kvgcgbk9j21c21z7e81.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3971900034196307" target="freeweibo-mirror">持续关注//@崔小平律师: //@高中政治教师陈勇:转发微博</a>
 </h2>
@@ -65,13 +65,13 @@
 </h2>
 <p>这些场景让我想到一个词：薄氏的政治遗产。//@胡椒豆: //@静娅_: 这就是权力的作用，他们怀念这个，就可以直接上演这个。他们代表的只是自己的利益，跟人民群众的利益八竿子打不着。//@上海村妇: 很多标语口号都是文革中提出的，看来对文革怀念的人不在少数//@静娅_: 薄氏审判，我真不知道审的是<br><br>RE: 呵呵<br><img src="http://ww4.sinaimg.cn/large/656952ecjw1f3kcinym44j20qo1beaqg.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3971886239545826" target="freeweibo-mirror">当时重庆卫视为什么改版？改版后具体播出什么内容？看看吧：ht…</a>
 </h2>
 <p>当时重庆卫视为什么改版？改版后具体播出什么内容？看看吧：http://t.cn/ht2tDJ；http://t.cn/Rq8deil；http://t.cn/Rq8dk1J；http://t.cn/Rq8g7Im 关键是，改这么一个版就等于“搞文革”？这帽子也太无稽了吧。//@夜风27799:我不在重庆，不了解真实情况。但重庆卫视那段时间天<br><br>RE: 分享图片<br><img src="http://ww4.sinaimg.cn/large/6031cd2fgw1f3k60ytwpfj20qo1betbe.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3971883790019539" target="freeweibo-mirror">//@加菲g炮1314Cat: //@绝不回头A://@Sg…</a>
 </h2>
@@ -101,19 +101,19 @@
 </h2>
 <p>//@孔_智勇:不让做假广告，就改说真话了？浪子回头金不换…… [嘻嘻]//@演员蔡明宇: 百度试图挽回在老百姓心目中的形象吗[思考]<br><br>RE: 百度一下，怎么这样？<br><img src="http://ww1.sinaimg.cn/large/74ab24d1jw1f3kqltlgyuj20v90woadx.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3971870489359820" target="freeweibo-mirror">//@曹国洪微谈://@法尚应舍-://@肖64雪慧: 什么…</a>
 </h2>
 <p>//@曹国洪微谈://@法尚应舍-://@肖64雪慧: 什么东西！[怒]//@私享枷: 虚弱无力，垂死挣扎//@围观倒车-: //@大雁飞回来了:呵呵！//@像叶子一样飞01:转发微博<br><br>RE: 虚弱到如此不堪。<br><img src="http://ww2.sinaimg.cn/large/006qAEB1gw1f3jr6a9ltbj30cs1o7tcr.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3971870279552510" target="freeweibo-mirror">老说重庆搞文革，为何没一个记者律师教授敢来走访百姓搞个调查报…</a>
 </h2>
 <p>老说重庆搞文革，为何没一个记者律师教授敢来走访百姓搞个调查报道？想想看，“重庆百姓反对薄式文革”——多么好的炮弹！咋不敢来整一发？重庆几千万百姓都傻，就你们聪明？本来不支持文革，若你们非说重庆就是文革，那我反倒支持这样的文革！http://t.cn/Rq81EX2；http://t.cn/Rq81sdY<br><br>RE: 分享图片<br><img src="http://ww4.sinaimg.cn/large/6031cd2fgw1f3k60ytwpfj20qo1betbe.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3971866060027805" target="freeweibo-mirror">SPAM 这。。。 //@牛文文:[挖鼻][挖鼻]//@罗昌…</a>
 </h2>
