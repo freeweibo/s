@@ -23,7 +23,7 @@
 </h2>
 <p>SPAM 哈哈哈哈哈哈哈<br><br>RE: 百度怒了！<br><img src="http://ww4.sinaimg.cn/large/c38ab5aajw1f3kgsedx6wj20qo1bfgrc.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3971799697655587" target="freeweibo-mirror">【“台湾国”贴纸网上呼吁新政府"护照去China"】“台湾国…</a>
 </h2>
@@ -131,7 +131,7 @@
 </h2>
 <p>百度怒了！<br><img src="http://ww4.sinaimg.cn/large/c38ab5aajw1f3kgsedx6wj20qo1bfgrc.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3971770211660590" target="freeweibo-mirror">SPAM 回复@杨恒均的微博: 是的。以前都被屏蔽了。 //…</a>
 </h2>
