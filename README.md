@@ -23,7 +23,7 @@
 </h2>
 <p>SPAM 如何找到好书？get√</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3971770211660590" target="freeweibo-mirror">SPAM 回复@杨恒均的微博: 是的。以前都被屏蔽了。 //…</a>
 </h2>
@@ -59,7 +59,7 @@
 </h2>
 <p>//@王祖哲:无论啥垄断了，不撒谎，不作恶，是不可能的。——物理学定律一样一样滴。<br><br>RE: 赶走谷歌，说是为了百姓的信息安全，结果，百姓却只能面对百度上的骗子，被骗了一次又一次。</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3971759705442543" target="freeweibo-mirror">我激动得不知道你姓什么了！</a>
 </h2>
