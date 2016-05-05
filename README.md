@@ -95,7 +95,7 @@
 </h2>
 <p>//@徐枫华:宣统威武。 //@刘X地盘://@曹国洪微谈://@法尚应舍-://@肖64雪慧: 什么东西！[怒]//@私享枷: 虚弱无力，垂死挣扎//@围观倒车-: //@大雁飞回来了:呵呵！//@像叶子一样飞01:转发微博<br><br>RE: 虚弱到如此不堪。<br><img src="http://ww2.sinaimg.cn/large/006qAEB1gw1f3jr6a9ltbj30cs1o7tcr.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3971870783150346" target="freeweibo-mirror">//@孔_智勇:不让做假广告，就改说真话了？浪子回头金不换……</a>
 </h2>
