@@ -29,7 +29,7 @@
 </h2>
 <p>不厚在秦城里该大笑了，唱红打黑有了接班人//@漂移的社会:票价1280[吃惊]！看来，这次“文革”是资产阶级发动的[嘻嘻]//@高中政治教师陈勇: //@浩正刘臻:[话筒] //@陈业文新大都:票价不菲。这不是一般的演唱会！大海航行靠舵手都回来了。艹！//@况秀猛:<br><br>RE: 马晓力的一封信<br><img src="http://ww4.sinaimg.cn/large/006pHoeugw1f3jwttux2mj30px0zkn53.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3971665317323441" target="freeweibo-mirror">SPAM 有一只奶猫早上拉稀了，而且食欲不振，在线求问下成都…</a>
 </h2>
@@ -107,7 +107,7 @@
 </h2>
 <p>SPAM 一个计算机专业的大学生做这些毫无困难，但多数人可能连选的医院幕后主导者是谁都不清楚，那真相能查出来吗？如不是悲剧发生，都没谁全面曝光过莆田系，发生在自己眼皮下的事，还要靠别人？ //@Evil林凡:[doge] //@智谷的吴扬文:这是五四看到的最酷青年文摘[赞]<br><br>RE: 分享图片<br><img src="http://ww4.sinaimg.cn/large/473f8cfdgw1f3jmhgp3xej20k00zk0xy.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3971544382150151" target="freeweibo-mirror">//@清越微博1:一查一准！[哈哈]//@健坤强德之声闻: …</a>
 </h2>
