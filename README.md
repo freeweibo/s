@@ -29,7 +29,7 @@
 </h2>
 <p>SPAM //@邀宇:全世界最好的良民，如果在一个好的制度下。都是温顺有礼的绅士。<br><br>RE: 最不能理解的是自焚者，命都舍得了，却不敢讨公道，对自己下手，却对坏人下跪。http://t.cn/Rqp0iYM</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3971814452919980" target="freeweibo-mirror">这是很危险的举动//@金子art:这是威胁么？[嘻嘻] //…</a>
 </h2>
@@ -95,7 +95,7 @@
 </h2>
 <p>最不能理解的是自焚者，命都舍得了，却不敢讨公道，对自己下手，却对坏人下跪。http://t.cn/Rqp0iYM</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3971789103591176" target="freeweibo-mirror">SPAM 哈哈哈哈哈爽//@乌骨-泊灼://@山野蓬蒿人:反…</a>
 </h2>
