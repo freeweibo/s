@@ -89,7 +89,7 @@
 </h2>
 <p>//@金建荣1972://@登云2013:转发微博</p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3971543049051348" target="freeweibo-mirror">回复@dashidai666:莆田系的后台是钱，它们早年发迹…</a>
 </h2>
@@ -125,7 +125,7 @@
 </h2>
 <p>关于那一年的事，已知的入狱人士是1602人。当然，这仅仅是已知的公开数据···<br><img src="http://ww1.sinaimg.cn/large/006oYcXpgw1f3jm80qjbkj30ck0e2myk.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3971498056780855" target="freeweibo-mirror">【魏则西事件】北京市武警第二医院回应：不存在科室承包情况。二…</a>
 </h2>
