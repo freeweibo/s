@@ -47,11 +47,17 @@
 </h2>
 <p>SPAM //@黔山鹰:鱼死网破！[哈哈]<br><br>RE: 百度怒了！<br><img src="http://ww4.sinaimg.cn/large/c38ab5aajw1f3kgsedx6wj20qo1bfgrc.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3971776365601863" target="freeweibo-mirror">SPAM 有理有据[笑cry]//@王小山:拽。//@急诊科…</a>
 </h2>
 <p>SPAM 有理有据[笑cry]//@王小山:拽。//@急诊科女超人于莺:哈哈，百度座下小编你好拽啊[哈哈] //@来自天使之城：[哈哈]//@滴水成冰的北京: @百度 反击很给力啊！<br><br>RE: 网友截的图，百度，你这么屌，你爸妈知道么？[笑哈哈]<br><img src="http://ww2.sinaimg.cn/large/675d6d9dgw1f3kfl34i4ij20ci0m8q3n.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3971774678985042" target="freeweibo-mirror">SPAM //@王小山: 拽。//@急诊科女超人于莺:哈哈，…</a>
+</h2>
+<p>SPAM //@王小山: 拽。//@急诊科女超人于莺:哈哈，百度座下小编你好拽啊[哈哈] //@来自天使之城：[哈哈]//@滴水成冰的北京: @百度 反击很给力啊！<br><br>RE: 网友截的图，百度，你这么屌，你爸妈知道么？[笑哈哈]<br><img src="http://ww2.sinaimg.cn/large/675d6d9dgw1f3kfl34i4ij20ci0m8q3n.jpg"></p>
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3971753552210064" target="freeweibo-mirror">//@潮州仔弟_nht:民主的好处多，权力民选，政府时刻处于…</a>
 </h2>
 <p>//@潮州仔弟_nht:民主的好处多，权力民选，政府时刻处于民众监督<br><br>RE: 为什么官员财产不公开？为什么医院坑害病人？为什么维权人士投诉无门？为什么官商勾结千方百计掠夺百姓财富？还有无数个为什么。因为权力不是民选的，官员作恶你对他无可奈何。权力是谁给的就听谁的。只有权力民选，官员才能执政为民。民主启蒙，民主呼声。敬请转发！本微博由@LYJason凤凰VIP-14 原创</p>
-<p>
-	<small> ============== 4小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3971752050376517" target="freeweibo-mirror">[太开心] →//@陈有西:初中没毕业吧？千古是死人永远被怀…</a>
-</h2>
-<p>[太开心] →//@陈有西:初中没毕业吧？千古是死人永远被怀念，万岁是活人长生不死。你真不值二毛五。//@罗de博：没了“主席万岁”，可是我们越来越多的听到了“蒋公千古”“X邦千古”“马步芳千古”......死了的人能再活到一千岁吗？<br><br>RE: 胡耀邦在文革前夕说：“‘突出政治’就真的那么灵？我看游泳时就得时不时地突出鼻子！”个人迷信之风刮得遮天蔽日，不分男女老幼都高呼“万岁、万岁、万万岁”时，他又不止一次地对许多青年人说：“人能活到一万岁吗？这种口号很不科学嘛！”http://t.cn/Rq8fPeI<br><img src="http://ww4.sinaimg.cn/large/6b804b51gw1f3k5f7z76cj20go0b4mxv.jpg"></p>
 <p>
 	<small> ============== 4小时前</small>
 </p>
