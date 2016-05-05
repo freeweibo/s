@@ -73,6 +73,12 @@
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3971703967558057" target="freeweibo-mirror">昨天去复旦，在校园里看到这个标语，挺惊诧的，名校啊，居然用词…</a>
+</h2>
+<p>昨天去复旦，在校园里看到这个标语，挺惊诧的，名校啊，居然用词更奇葩。<br><img src="http://ww2.sinaimg.cn/large/006pzEOvjw1f3k90eik17j30qo0k0tdv.jpg"></p>
+<p>
+	<small> ============== 5小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3971700792356627" target="freeweibo-mirror">SPAM 法治怎么是狗屎？叙利亚那种乱才是蛋糕？[偷笑] /…</a>
 </h2>
 <p>SPAM 法治怎么是狗屎？叙利亚那种乱才是蛋糕？[偷笑] //@律师文摘://@周泽律师: //@我是闻正兵: //@杨锦麟:狗屎！ //@朱学东:就是一坨狗屎，单仁平也会说是美味蛋糕。</p>
@@ -88,6 +94,12 @@
 	<a href="https://freeweibo.com/weibo/3971676389402532" target="freeweibo-mirror">不厚在秦城里该大笑了，唱红打黑有了接班人//@漂移的社会:票…</a>
 </h2>
 <p>不厚在秦城里该大笑了，唱红打黑有了接班人//@漂移的社会:票价1280[吃惊]！看来，这次“文革”是资产阶级发动的[嘻嘻]//@高中政治教师陈勇: //@浩正刘臻:[话筒] //@陈业文新大都:票价不菲。这不是一般的演唱会！大海航行靠舵手都回来了。艹！//@况秀猛:<br><br>RE: 马晓力的一封信<br><img src="http://ww4.sinaimg.cn/large/006pHoeugw1f3jwttux2mj30px0zkn53.jpg"></p>
+<p>
+	<small> ============== 7小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3971672857784632" target="freeweibo-mirror">胡耀邦在文革前夕说：“‘突出政治’就真的那么灵？我看游泳时就…</a>
+</h2>
+<p>胡耀邦在文革前夕说：“‘突出政治’就真的那么灵？我看游泳时就得时不时地突出鼻子！”个人迷信之风刮得遮天蔽日，不分男女老幼都高呼“万岁、万岁、万万岁”时，他又不止一次地对许多青年人说：“人能活到一万岁吗？这种口号很不科学嘛！”http://t.cn/Rq8fPeI<br><img src="http://ww4.sinaimg.cn/large/6b804b51gw1f3k5f7z76cj20go0b4mxv.jpg"></p>
 <p>
 	<small> ============== 7小时前</small>
 </p><h2>
@@ -124,18 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3971583532086511" target="freeweibo-mirror">SPAM 女人的要想变得完美，一个因素必不可少，就是皮肤好，…</a>
 </h2>
 <p>SPAM 女人的要想变得完美，一个因素必不可少，就是皮肤好，变美是一种生活方式，你想无可取代，就得与众不同，推荐给大家一位长期奋斗在第一线，免费帮助大家美白保养的爆红微信美容师→慕慕老师，唯心： YK2297 ，已成功帮助500多名妹子变美!</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3971563190041606" target="freeweibo-mirror">SPAM //@Campisi:我是先去google了解病情…</a>
-</h2>
-<p>SPAM //@Campisi:我是先去google了解病情、病因，再根据上面的提示自己search治疗方法。我妈妈的鼻炎我就是通过google了解基本的常识，然后去找能够遏制住这种病的元素，而国内的百度上面只提示要开刀动手术。 //@老壶嚼早:http://t.cn/Rq8UEoP //@熏衣草的最好时光: //@王周生:墙害人。 //@凌国华兮:墙。<br><br>RE: 分享图片<br><img src="http://ww4.sinaimg.cn/large/473f8cfdgw1f3jmhgp3xej20k00zk0xy.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3971555875006498" target="freeweibo-mirror">SPAM //@何三畏: 就这样，骗子王国，一举建成</a>
-</h2>
-<p>SPAM //@何三畏: 就这样，骗子王国，一举建成<br><br>RE: 分享图片<br><img src="http://ww4.sinaimg.cn/large/473f8cfdgw1f3jmhgp3xej20k00zk0xy.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
