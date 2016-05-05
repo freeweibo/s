@@ -41,7 +41,7 @@
 </h2>
 <p>持续关注//@崔小平律师: //@高中政治教师陈勇:转发微博<br><br>RE: 【郭飞雄的辩护律师不能通过考核】济南市律师协会今日公布了今年“补充通过考核”的律师名单，付永刚、袭祥栋、李仲伟、王振江通过考核，只有@伍雷 一人未通过，说是因为他代理了郭飞雄案的原因。按律协这意思，伟大祖国的部分被告人是只剩下自我辩护的权利咯？<br><img src="http://ww3.sinaimg.cn/large/6a80bfcdgw1f3kqs246grj20go0m80u7.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3971898961034811" target="freeweibo-mirror">//@高小曜: //@nanguoli: //@陈光武律师:…</a>
 </h2>
