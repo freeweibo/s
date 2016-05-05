@@ -19,6 +19,18 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3971677933528532" target="freeweibo-mirror">把唱红推向全国。继承重庆书记未竟事业。把无产阶级文化大革命进…</a>
+</h2>
+<p>把唱红推向全国。继承重庆书记未竟事业。把无产阶级文化大革命进行到底。<br><br>RE: 马晓力的一封信<br><img src="http://ww4.sinaimg.cn/large/006pHoeugw1f3jwttux2mj30px0zkn53.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3971676389402532" target="freeweibo-mirror">不厚在秦城里该大笑了，唱红打黑有了接班人//@漂移的社会:票…</a>
+</h2>
+<p>不厚在秦城里该大笑了，唱红打黑有了接班人//@漂移的社会:票价1280[吃惊]！看来，这次“文革”是资产阶级发动的[嘻嘻]//@高中政治教师陈勇: //@浩正刘臻:[话筒] //@陈业文新大都:票价不菲。这不是一般的演唱会！大海航行靠舵手都回来了。艹！//@况秀猛:<br><br>RE: 马晓力的一封信<br><img src="http://ww4.sinaimg.cn/large/006pHoeugw1f3jwttux2mj30px0zkn53.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3971642332370695" target="freeweibo-mirror">SPAM 票价不菲。这不是一般的演唱会！大海航行靠舵手都回来…</a>
 </h2>
 <p>SPAM 票价不菲。这不是一般的演唱会！大海航行靠舵手都回来了。艹！ //@新罗居士:[哆啦A梦花心][哆啦A梦花心][哆啦A梦花心]//@况秀猛:1000多元/张票？[偷笑]//@北京江荣生: @中国政府网  @北京崔卫平  @迟夙生律师  @陈有西  @方流芳  @导演孙周  @贺卫方 @华生2010  @李大霄  @刘军宁 @袁伟时<br><br>RE: 马晓力的一封信<br><img src="http://ww4.sinaimg.cn/large/006pHoeugw1f3jwttux2mj30px0zkn53.jpg"></p>
@@ -107,13 +119,13 @@
 </h2>
 <p>回复@dashidai666:莆田系的后台是钱，它们早年发迹壮大后已经尾大不掉，拉拢谁站台也不奇怪，不要把因果关系颠倒了。//@dashidai666:知道莆田系的后台是谁吗？！<br><br>RE: 【魏则西事件】北京市武警第二医院回应：不存在科室承包情况。二院说的没错，他确实没外包，只是有莆田系的上海康新医院投资管理有限公司入股而已。想推卸责任，你想得美！图为二院院长蒋均远少将<br><img src="http://ww3.sinaimg.cn/large/d55abf7ejw1f3jlcfm0brj20cw0c9dgs.jpg"></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3971541992031265" target="freeweibo-mirror">请对这届人民放心，不会纠缠魏则西事件的。[悲催]</a>
 </h2>
 <p>请对这届人民放心，不会纠缠魏则西事件的。[悲催]<br><img src="http://ww4.sinaimg.cn/large/dd816182gw1f3jqdxg74zj20lc0a4t9m.jpg"></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3971534978347669" target="freeweibo-mirror">老子查儿子下得了手？//@六安自媒体:自己调查自己！//@何…</a>
 </h2>
@@ -126,18 +138,6 @@
 <p>还记得郭主席的100亿吗？<br><img src="http://ww2.sinaimg.cn/large/006pBgaFjw1f3jo7kc0yaj30it02v0tj.jpg"></p>
 <p>
 	<small> ============== 12小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3971522882886760" target="freeweibo-mirror">SPAM //@草木不深:杀死魏泽西的凶手找到了</a>
-</h2>
-<p>SPAM //@草木不深:杀死魏泽西的凶手找到了<br><br>RE: 分享图片<br><img src="http://ww4.sinaimg.cn/large/473f8cfdgw1f3jmhgp3xej20k00zk0xy.jpg"></p>
-<p>
-	<small> ============== 12小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3971505916081941" target="freeweibo-mirror">关于那一年的事，已知的入狱人士是1602人。当然，这仅仅是已…</a>
-</h2>
-<p>关于那一年的事，已知的入狱人士是1602人。当然，这仅仅是已知的公开数据···<br><img src="http://ww1.sinaimg.cn/large/006oYcXpgw1f3jm80qjbkj30ck0e2myk.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
 </p>
 <table>
     <tr>
