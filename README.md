@@ -19,6 +19,18 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3971759101081121" target="freeweibo-mirror">[悲伤]//@沐趣：请不要在公共场所虐狗！</a>
+</h2>
+<p>[悲伤]//@沐趣：请不要在公共场所虐狗！<br><br>RE: 胡耀邦在文革前夕说：“‘突出政治’就真的那么灵？我看游泳时就得时不时地突出鼻子！”个人迷信之风刮得遮天蔽日，不分男女老幼都高呼“万岁、万岁、万万岁”时，他又不止一次地对许多青年人说：“人能活到一万岁吗？这种口号很不科学嘛！”http://t.cn/Rq8fPeI<br><img src="http://ww4.sinaimg.cn/large/6b804b51gw1f3k5f7z76cj20go0b4mxv.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3971752050376517" target="freeweibo-mirror">[太开心] →//@陈有西:初中没毕业吧？千古是死人永远被怀…</a>
+</h2>
+<p>[太开心] →//@陈有西:初中没毕业吧？千古是死人永远被怀念，万岁是活人长生不死。你真不值二毛五。//@罗de博：没了“主席万岁”，可是我们越来越多的听到了“蒋公千古”“X邦千古”“马步芳千古”......死了的人能再活到一千岁吗？<br><br>RE: 胡耀邦在文革前夕说：“‘突出政治’就真的那么灵？我看游泳时就得时不时地突出鼻子！”个人迷信之风刮得遮天蔽日，不分男女老幼都高呼“万岁、万岁、万万岁”时，他又不止一次地对许多青年人说：“人能活到一万岁吗？这种口号很不科学嘛！”http://t.cn/Rq8fPeI<br><img src="http://ww4.sinaimg.cn/large/6b804b51gw1f3k5f7z76cj20go0b4mxv.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3971746862400138" target="freeweibo-mirror">SPAM 我勒个去。//@小浪:[doge] //@来去之间…</a>
 </h2>
 <p>SPAM 我勒个去。//@小浪:[doge] //@来去之间:这要是鄙司，肯定都是自黑的[挖鼻] //@老刀99:正面肛啊，要反了！！！[哆啦A梦吃惊]//@夜zox夜: 要疯//@氓牛zunger: 好魄力~就照这个劲头炸成一朵花吧~<br><br>RE: 哎呦卧槽………疯了吧……<br><img src="http://ww4.sinaimg.cn/large/537e7cfdgw1f3kcidqhfpj20cs0mp0un.jpg"></p>
@@ -41,7 +53,7 @@
 </h2>
 <p>把唱红推向全国。继承重庆书记未竟事业。把无产阶级文化大革命进行到底。<br><br>RE: 马晓力的一封信<br><img src="http://ww4.sinaimg.cn/large/006pHoeugw1f3jwttux2mj30px0zkn53.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3971676389402532" target="freeweibo-mirror">不厚在秦城里该大笑了，唱红打黑有了接班人//@漂移的社会:票…</a>
 </h2>
@@ -124,18 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3971547020677499" target="freeweibo-mirror">SPAM 一个计算机专业的大学生做这些毫无困难，但多数人可能…</a>
 </h2>
 <p>SPAM 一个计算机专业的大学生做这些毫无困难，但多数人可能连选的医院幕后主导者是谁都不清楚，那真相能查出来吗？如不是悲剧发生，都没谁全面曝光过莆田系，发生在自己眼皮下的事，还要靠别人？ //@Evil林凡:[doge] //@智谷的吴扬文:这是五四看到的最酷青年文摘[赞]<br><br>RE: 分享图片<br><img src="http://ww4.sinaimg.cn/large/473f8cfdgw1f3jmhgp3xej20k00zk0xy.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3971544382150151" target="freeweibo-mirror">//@清越微博1:一查一准！[哈哈]//@健坤强德之声闻: …</a>
-</h2>
-<p>//@清越微博1:一查一准！[哈哈]//@健坤强德之声闻: 幕后黑手而已！//@清越微博1:少将也是？//@健坤强德之声闻: 都是承包的//@独行的风波亭小沙弥:私改 //@清越微博1:鬼信！[怒]//@承文革: //@libin-1030:武警医院有社会公司入股！那可能干净吗？不要把自己看得太高 其实是“藏龙卧虎”之地！都懂。<br><br>RE: 【魏则西事件】北京市武警第二医院回应：不存在科室承包情况。二院说的没错，他确实没外包，只是有莆田系的上海康新医院投资管理有限公司入股而已。想推卸责任，你想得美！图为二院院长蒋均远少将<br><img src="http://ww3.sinaimg.cn/large/d55abf7ejw1f3jlcfm0brj20cw0c9dgs.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3971544243598288" target="freeweibo-mirror">//@金建荣1972://@登云2013:转发微博</a>
-</h2>
-<p>//@金建荣1972://@登云2013:转发微博</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
