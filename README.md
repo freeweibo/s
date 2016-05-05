@@ -137,7 +137,7 @@
 </h2>
 <p>还记得郭主席的100亿吗？<br><img src="http://ww2.sinaimg.cn/large/006pBgaFjw1f3jo7kc0yaj30it02v0tj.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p>
 <table>
     <tr>
