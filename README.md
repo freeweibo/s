@@ -23,7 +23,7 @@
 </h2>
 <p>把唱红推向全国。继承重庆书记未竟事业。把无产阶级文化大革命进行到底。<br><br>RE: 马晓力的一封信<br><img src="http://ww4.sinaimg.cn/large/006pHoeugw1f3jwttux2mj30px0zkn53.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3971676389402532" target="freeweibo-mirror">不厚在秦城里该大笑了，唱红打黑有了接班人//@漂移的社会:票…</a>
 </h2>
@@ -89,7 +89,7 @@
 </h2>
 <p>回复@-都市过客--:如果外国会免费治疗他国病人，魏也许有选择，否则他只能根据已有的经济条件和现实情况来选择。很多国家网络毫无管理，那里有木有不治的病人？治病要靠医疗系统还是指望靠网络自由来给你治病？对医疗系统乱象不刨根问底，不谴责无良网络推广，喷错对象也是故意误导。<br><br>RE: 分享图片<br><img src="http://ww4.sinaimg.cn/large/473f8cfdgw1f3jmhgp3xej20k00zk0xy.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3971548874724918" target="freeweibo-mirror">SPAM //@作家岳南:他可能是个遵守天朝法规的好学生。[…</a>
 </h2>
