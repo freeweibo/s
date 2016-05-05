@@ -23,7 +23,7 @@
 </h2>
 <p>SPAM 。。。。。卧槽，现在是下午三点三十六分。。。我好奇地去查了下，是真的……<br><br>RE: 百度怒了！<br><img src="http://ww4.sinaimg.cn/large/c38ab5aajw1f3kgsedx6wj20qo1bfgrc.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3971788906311280" target="freeweibo-mirror">SPAM 百度今天在反击。//@北村:这真的假的？[吃惊][…</a>
 </h2>
