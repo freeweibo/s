@@ -89,7 +89,7 @@
 </h2>
 <p>有啥危险？除了傻逼公知和被公知忽悠的脑残说重庆是文革，为何我这本地人都不知道党中央把重庆定性为“文革”？http://t.cn/Rq81EX2；http://t.cn/Rq81sdY； http://t.cn/Rq8rixO //@常君宇想养狗:…有点危险，劝你还是删了吧<br><br>RE: 分享图片<br><img src="http://ww4.sinaimg.cn/large/6031cd2fgw1f3k60ytwpfj20qo1betbe.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3971874347684708" target="freeweibo-mirror">//@徐枫华:宣统威武。 //@刘X地盘://@曹国洪微谈:…</a>
 </h2>
