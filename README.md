@@ -35,7 +35,7 @@
 </h2>
 <p>不厚在秦城里该大笑了，唱红打黑有了接班人//@漂移的社会:票价1280[吃惊]！看来，这次“文革”是资产阶级发动的[嘻嘻]//@高中政治教师陈勇: //@浩正刘臻:[话筒] //@陈业文新大都:票价不菲。这不是一般的演唱会！大海航行靠舵手都回来了。艹！//@况秀猛:<br><br>RE: 马晓力的一封信<br><img src="http://ww4.sinaimg.cn/large/006pHoeugw1f3jwttux2mj30px0zkn53.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3971665317323441" target="freeweibo-mirror">SPAM 有一只奶猫早上拉稀了，而且食欲不振，在线求问下成都…</a>
 </h2>
