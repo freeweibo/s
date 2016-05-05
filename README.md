@@ -29,7 +29,7 @@
 </h2>
 <p>SPAM //@转帖小王:黑死了[挖鼻]//@孔_智勇:生命只有一次，也是最宝贵的，与其自焚不如拼死抗争。//@叶伟强E: 人总有信仰；如活在天堂，何须舍身向往？我想知道是什么让他们自焚，要知道，你现在就是给我一个亿让我自焚，我保证扇你，然后骂你：神经病！<br><br>RE: 最不能理解的是自焚者，命都舍得了，却不敢讨公道，对自己下手，却对坏人下跪。http://t.cn/Rqp0iYM</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3971821163837126" target="freeweibo-mirror">SPAM //@邀宇:全世界最好的良民，如果在一个好的制度下…</a>
 </h2>
@@ -89,13 +89,13 @@
 </h2>
 <p>SPAM 真滳假滴？ //@吕健中:不是怒了，是疯了 //@萧饮马:哈哈哈，不来自度娘的反击吗 //@Doctor豪生:不信。。。 //@BlackCloak:我操…李彦宏要玩命啊……//@曾我诚向荒野土下座: [笑cry]像狂欢一样//@Type-R_Design理工狼: 噗//@Elfina_Ashfield: 喷了//@骨头吃完了: 笑死我了//@伤寒玛丽: 掀桌子了。<br><br>RE: 百度怒了！<br><img src="http://ww4.sinaimg.cn/large/c38ab5aajw1f3kgsedx6wj20qo1bfgrc.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3971794048148257" target="freeweibo-mirror">SPAM //@北村:这真的假的？[吃惊][哈哈][good…</a>
 </h2>
 <p>SPAM //@北村:这真的假的？[吃惊][哈哈][good][给力] //@刘春:[哈哈]//@王小山:拽。//@急诊科女超人于莺:哈哈，百度座下小编你好拽啊[哈哈] //@来自天使之城：[哈哈]//@滴水成冰的北京: @百度 反击很给力啊！<br><br>RE: 网友截的图，百度，你这么屌，你爸妈知道么？[笑哈哈]<br><img src="http://ww2.sinaimg.cn/large/675d6d9dgw1f3kfl34i4ij20ci0m8q3n.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3971790462406554" target="freeweibo-mirror">最不能理解的是自焚者，命都舍得了，却不敢讨公道，对自己下手，…</a>
 </h2>
@@ -137,7 +137,7 @@
 </h2>
 <p>SPAM 如何找到好书？get√</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p>
 <table>
     <tr>
