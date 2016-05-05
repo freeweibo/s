@@ -119,13 +119,13 @@
 </h2>
 <p>SPAM [doge] //@朋友圈那点事:呵呵//@杰克波比: 啧啧~//@四包叔叔: 真拽 //@御前四品带套护卫: 呵呵//@达啾啾:[思考]//@牛角少女:百度牛逼<br><br>RE: 这个笑话，我怎么看不懂呢？[doge]<br><img src="http://ww1.sinaimg.cn/large/4abc2d1fgw1f3k9kiomyxj20ci0m8abu.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3971821163837126" target="freeweibo-mirror">SPAM //@邀宇:全世界最好的良民，如果在一个好的制度下…</a>
 </h2>
 <p>SPAM //@邀宇:全世界最好的良民，如果在一个好的制度下。都是温顺有礼的绅士。<br><br>RE: 最不能理解的是自焚者，命都舍得了，却不敢讨公道，对自己下手，却对坏人下跪。http://t.cn/Rqp0iYM</p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3971814452919980" target="freeweibo-mirror">这是很危险的举动//@金子art:这是威胁么？[嘻嘻] //…</a>
 </h2>
