@@ -19,6 +19,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3971779372220023" target="freeweibo-mirror">SPAM 如何找到好书？get√</a>
+</h2>
+<p>SPAM 如何找到好书？get√</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3971770211660590" target="freeweibo-mirror">SPAM 回复@杨恒均的微博: 是的。以前都被屏蔽了。 //…</a>
 </h2>
 <p>SPAM 回复@杨恒均的微博: 是的。以前都被屏蔽了。 //@杨恒均的微博:回复@陈业文新大都:以前都打不开哦。</p>
@@ -119,23 +125,17 @@
 </h2>
 <p>SPAM 我勒个去。//@小浪:[doge] //@来去之间:这要是鄙司，肯定都是自黑的[挖鼻] //@老刀99:正面肛啊，要反了！！！[哆啦A梦吃惊]//@夜zox夜: 要疯//@氓牛zunger: 好魄力~就照这个劲头炸成一朵花吧~<br><br>RE: 哎呦卧槽………疯了吧……<br><img src="http://ww4.sinaimg.cn/large/537e7cfdgw1f3kcidqhfpj20cs0mp0un.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3971746505750663" target="freeweibo-mirror">SPAM 真开心//@小浪: [doge] //@来去之间:…</a>
 </h2>
 <p>SPAM 真开心//@小浪: [doge] //@来去之间:这要是鄙司，肯定都是自黑的[挖鼻] //@老刀99:正面肛啊，要反了！！！[哆啦A梦吃惊]//@夜zox夜: 要疯//@氓牛zunger: 好魄力~就照这个劲头炸成一朵花吧~<br><br>RE: 哎呦卧槽………疯了吧……<br><img src="http://ww4.sinaimg.cn/large/537e7cfdgw1f3kcidqhfpj20cs0mp0un.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3971745633172325" target="freeweibo-mirror">SPAM [doge] //@来去之间:这要是鄙司，肯定都是…</a>
 </h2>
 <p>SPAM [doge] //@来去之间:这要是鄙司，肯定都是自黑的[挖鼻] //@老刀99:正面肛啊，要反了！！！[哆啦A梦吃惊]//@夜zox夜: 要疯//@氓牛zunger: 好魄力~就照这个劲头炸成一朵花吧~<br><br>RE: 哎呦卧槽………疯了吧……<br><img src="http://ww4.sinaimg.cn/large/537e7cfdgw1f3kcidqhfpj20cs0mp0un.jpg"></p>
-<p>
-	<small> ============== 4小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3971744102266484" target="freeweibo-mirror">罕见的领导人。</a>
-</h2>
-<p>罕见的领导人。<br><br>RE: 胡耀邦在文革前夕说：“‘突出政治’就真的那么灵？我看游泳时就得时不时地突出鼻子！”个人迷信之风刮得遮天蔽日，不分男女老幼都高呼“万岁、万岁、万万岁”时，他又不止一次地对许多青年人说：“人能活到一万岁吗？这种口号很不科学嘛！”http://t.cn/Rq8fPeI<br><img src="http://ww4.sinaimg.cn/large/6b804b51gw1f3k5f7z76cj20go0b4mxv.jpg"></p>
 <p>
 	<small> ============== 4小时前</small>
 </p>
