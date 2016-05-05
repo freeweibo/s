@@ -59,7 +59,7 @@
 </h2>
 <p>我激动得不知道你姓什么了！</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3971759101081121" target="freeweibo-mirror">[悲伤]//@沐趣：请不要在公共场所虐狗！</a>
 </h2>
@@ -131,7 +131,7 @@
 </h2>
 <p>SPAM [doge] //@来去之间:这要是鄙司，肯定都是自黑的[挖鼻] //@老刀99:正面肛啊，要反了！！！[哆啦A梦吃惊]//@夜zox夜: 要疯//@氓牛zunger: 好魄力~就照这个劲头炸成一朵花吧~<br><br>RE: 哎呦卧槽………疯了吧……<br><img src="http://ww4.sinaimg.cn/large/537e7cfdgw1f3kcidqhfpj20cs0mp0un.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3971744102266484" target="freeweibo-mirror">罕见的领导人。</a>
 </h2>
