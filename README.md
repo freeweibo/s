@@ -119,7 +119,7 @@
 </h2>
 <p>[挖鼻]<br><br>RE: 昨天去复旦，在校园里看到这个标语，挺惊诧的，名校啊，居然用词更奇葩。<br><img src="http://ww2.sinaimg.cn/large/006pzEOvjw1f3k90eik17j30qo0k0tdv.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3971746862400138" target="freeweibo-mirror">SPAM 我勒个去。//@小浪:[doge] //@来去之间…</a>
 </h2>
