@@ -43,11 +43,41 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3971894841930157" target="freeweibo-mirror">不爱看重庆卫视，还有其他诸多卫视。就是重庆本地，也还有11个…</a>
+</h2>
+<p>不爱看重庆卫视，还有其他诸多卫视。就是重庆本地，也还有11个频道没改版——不过铺天盖地都是性病广告，不信你问问重庆人。说穿了，当时重庆卫视改版，不过是一种困境下的尝试与突破。对此，业内人士看得很清楚，哪有公知媒体逼逼的那么悬乎？ http://t.cn/Rq8FqzZ //@魅力鹰潭:<br><br>RE: 分享图片<br><img src="http://ww4.sinaimg.cn/large/6031cd2fgw1f3k60ytwpfj20qo1betbe.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3971886537032748" target="freeweibo-mirror">这些场景让我想到一个词：薄氏的政治遗产。//@胡椒豆: //…</a>
 </h2>
 <p>这些场景让我想到一个词：薄氏的政治遗产。//@胡椒豆: //@静娅_: 这就是权力的作用，他们怀念这个，就可以直接上演这个。他们代表的只是自己的利益，跟人民群众的利益八竿子打不着。//@上海村妇: 很多标语口号都是文革中提出的，看来对文革怀念的人不在少数//@静娅_: 薄氏审判，我真不知道审的是<br><br>RE: 呵呵<br><img src="http://ww4.sinaimg.cn/large/656952ecjw1f3kcinym44j20qo1beaqg.jpg"></p>
 <p>
 	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3971886239545826" target="freeweibo-mirror">当时重庆卫视为什么改版？改版后具体播出什么内容？看看吧：ht…</a>
+</h2>
+<p>当时重庆卫视为什么改版？改版后具体播出什么内容？看看吧：http://t.cn/ht2tDJ；http://t.cn/Rq8deil；http://t.cn/Rq8dk1J；http://t.cn/Rq8g7Im 关键是，改这么一个版就等于“搞文革”？这帽子也太无稽了吧。//@夜风27799:我不在重庆，不了解真实情况。但重庆卫视那段时间天<br><br>RE: 分享图片<br><img src="http://ww4.sinaimg.cn/large/6031cd2fgw1f3k60ytwpfj20qo1betbe.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3971883790019539" target="freeweibo-mirror">//@加菲g炮1314Cat: //@绝不回头A://@Sg…</a>
+</h2>
+<p>//@加菲g炮1314Cat: //@绝不回头A://@Sg022哥哥://@崔小平律师:TMD！//@ICO刘开明://@山高路远N://@Frozen_III_Sunshine://@秋风秋雨N://@蓝星虫说://@小猫小狗_74635://@封神记二十九叔:<br><br>RE: 又开始删帖封锁消息了，除了这一手他们似乎没有别的办法！也难怪，这次百度、莆田系丑闻曝光百度市值蒸发几百亿还是小事，关键如果细追究，国家工商局，卫计委，食品和药品监督管理局，众多医院没一个脱得了干系！风雨飘渺的赵家楼危矣……<br><img src="http://ww4.sinaimg.cn/large/006eDsdxjw1f3kf86paolj30hs0vkdjf.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3971878995315552" target="freeweibo-mirror">公知媒体逼逼重庆文革，可中央何时把重庆定性为“文革”，我这本…</a>
+</h2>
+<p>公知媒体逼逼重庆文革，可中央何时把重庆定性为“文革”，我这本地人怎么不知道？http://t.cn/Rq81EX2；http://t.cn/Rq81sdY；http://t.cn/Rq8rixO 至于说什么“唱红打黑”搞文革，这是早就被本人驳得稀烂的谎言。特别是外地朋友，你们不过是被媒体铺天盖地的轰炸洗脑欺骗了而已。<br><br>RE: 分享图片<br><img src="http://ww4.sinaimg.cn/large/6031cd2fgw1f3k60ytwpfj20qo1betbe.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3971875904572571" target="freeweibo-mirror">有啥危险？除了傻逼公知和被公知忽悠的脑残说重庆是文革，为何我…</a>
+</h2>
+<p>有啥危险？除了傻逼公知和被公知忽悠的脑残说重庆是文革，为何我这本地人都不知道党中央把重庆定性为“文革”？http://t.cn/Rq81EX2；http://t.cn/Rq81sdY； http://t.cn/Rq8rixO //@常君宇想养狗:…有点危险，劝你还是删了吧<br><br>RE: 分享图片<br><img src="http://ww4.sinaimg.cn/large/6031cd2fgw1f3k60ytwpfj20qo1betbe.jpg"></p>
+<p>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3971874347684708" target="freeweibo-mirror">//@徐枫华:宣统威武。 //@刘X地盘://@曹国洪微谈:…</a>
 </h2>
@@ -64,6 +94,12 @@
 	<a href="https://freeweibo.com/weibo/3971870489359820" target="freeweibo-mirror">//@曹国洪微谈://@法尚应舍-://@肖64雪慧: 什么…</a>
 </h2>
 <p>//@曹国洪微谈://@法尚应舍-://@肖64雪慧: 什么东西！[怒]//@私享枷: 虚弱无力，垂死挣扎//@围观倒车-: //@大雁飞回来了:呵呵！//@像叶子一样飞01:转发微博<br><br>RE: 虚弱到如此不堪。<br><img src="http://ww2.sinaimg.cn/large/006qAEB1gw1f3jr6a9ltbj30cs1o7tcr.jpg"></p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3971870279552510" target="freeweibo-mirror">老说重庆搞文革，为何没一个记者律师教授敢来走访百姓搞个调查报…</a>
+</h2>
+<p>老说重庆搞文革，为何没一个记者律师教授敢来走访百姓搞个调查报道？想想看，“重庆百姓反对薄式文革”——多么好的炮弹！咋不敢来整一发？重庆几千万百姓都傻，就你们聪明？本来不支持文革，若你们非说重庆就是文革，那我反倒支持这样的文革！http://t.cn/Rq81EX2；http://t.cn/Rq81sdY<br><br>RE: 分享图片<br><img src="http://ww4.sinaimg.cn/large/6031cd2fgw1f3k60ytwpfj20qo1betbe.jpg"></p>
 <p>
 	<small> ============== 4小时前</small>
 </p><h2>
@@ -102,42 +138,6 @@
 <p>百度一下，怎么这样？<br><img src="http://ww1.sinaimg.cn/large/74ab24d1jw1f3kqltlgyuj20v90woadx.jpg"></p>
 <p>
 	<small> ============== 5小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3971840219420700" target="freeweibo-mirror">这种过度治疗是虚构治疗虚假治疗，按期用尽，医患人头分成。//…</a>
-</h2>
-<p>这种过度治疗是虚构治疗虚假治疗，按期用尽，医患人头分成。//@legoland:套保，在美国会有专门的软件对付。在咱们这儿嘛，应该是合谋套保。 //@不沉默的大多数:[耶]莆田系承包医院以粮油食品回扣诱导群众定期住院治疗，以医保报销，这个让财政破产的雷市场化改革顶吗？//@宋强says:爆料→_→<br><br>RE: 香港文汇报今刊出直击莆田医院系列，独家曝光莆田系生物免疫假技术攻克武警总院、火箭军总院外，另有多个三甲医院沦陷内情。我们微博征集线索，逾十位甫田系受害者血泪控诉，今文汇头条曝光兰州天伦不育不孕医院欺诈，“万万“遭遇是万千普通病患劫难缩影。cc@甘肃刘维忠@波子哥-廖新波@凝哲同学<br><img src="http://ww3.sinaimg.cn/large/5938a13ajw1f3kf6pk63ej20b40hzjue.jpg"></p>
-<p>
-	<small> ============== 6小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3971835027190041" target="freeweibo-mirror">[耶]莆田系承包医院以粮油食品回扣诱导群众定期住院治疗，以医…</a>
-</h2>
-<p>[耶]莆田系承包医院以粮油食品回扣诱导群众定期住院治疗，以医保报销，这个让财政破产的雷市场化改革顶吗？//@宋强says:爆料→_→<br><br>RE: 香港文汇报今刊出直击莆田医院系列，独家曝光莆田系生物免疫假技术攻克武警总院、火箭军总院外，另有多个三甲医院沦陷内情。我们微博征集线索，逾十位甫田系受害者血泪控诉，今文汇头条曝光兰州天伦不育不孕医院欺诈，“万万“遭遇是万千普通病患劫难缩影。cc@甘肃刘维忠@波子哥-廖新波@凝哲同学<br><img src="http://ww3.sinaimg.cn/large/5938a13ajw1f3kf6pk63ej20b40hzjue.jpg"></p>
-<p>
-	<small> ============== 6小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3971829019910771" target="freeweibo-mirror">SPAM 结尾部分太美[心]✨</a>
-</h2>
-<p>SPAM 结尾部分太美[心]✨</p>
-<p>
-	<small> ============== 7小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3971824041110102" target="freeweibo-mirror">SPAM //@转帖小王:黑死了[挖鼻]//@孔_智勇:生命…</a>
-</h2>
-<p>SPAM //@转帖小王:黑死了[挖鼻]//@孔_智勇:生命只有一次，也是最宝贵的，与其自焚不如拼死抗争。//@叶伟强E: 人总有信仰；如活在天堂，何须舍身向往？我想知道是什么让他们自焚，要知道，你现在就是给我一个亿让我自焚，我保证扇你，然后骂你：神经病！<br><br>RE: 最不能理解的是自焚者，命都舍得了，却不敢讨公道，对自己下手，却对坏人下跪。http://t.cn/Rqp0iYM</p>
-<p>
-	<small> ============== 7小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3971821366292589" target="freeweibo-mirror">SPAM [doge] //@朋友圈那点事:呵呵//@杰克波…</a>
-</h2>
-<p>SPAM [doge] //@朋友圈那点事:呵呵//@杰克波比: 啧啧~//@四包叔叔: 真拽 //@御前四品带套护卫: 呵呵//@达啾啾:[思考]//@牛角少女:百度牛逼<br><br>RE: 这个笑话，我怎么看不懂呢？[doge]<br><img src="http://ww1.sinaimg.cn/large/4abc2d1fgw1f3k9kiomyxj20ci0m8abu.jpg"></p>
-<p>
-	<small> ============== 7小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3971821163837126" target="freeweibo-mirror">SPAM //@邀宇:全世界最好的良民，如果在一个好的制度下…</a>
-</h2>
-<p>SPAM //@邀宇:全世界最好的良民，如果在一个好的制度下。都是温顺有礼的绅士。<br><br>RE: 最不能理解的是自焚者，命都舍得了，却不敢讨公道，对自己下手，却对坏人下跪。http://t.cn/Rqp0iYM</p>
-<p>
-	<small> ============== 7小时前</small>
 </p>
 <table>
     <tr>
