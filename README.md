@@ -65,7 +65,7 @@
 </h2>
 <p>[悲伤]//@沐趣：请不要在公共场所虐狗！<br><br>RE: 胡耀邦在文革前夕说：“‘突出政治’就真的那么灵？我看游泳时就得时不时地突出鼻子！”个人迷信之风刮得遮天蔽日，不分男女老幼都高呼“万岁、万岁、万万岁”时，他又不止一次地对许多青年人说：“人能活到一万岁吗？这种口号很不科学嘛！”http://t.cn/Rq8fPeI<br><img src="http://ww4.sinaimg.cn/large/6b804b51gw1f3k5f7z76cj20go0b4mxv.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3971757976918051" target="freeweibo-mirror">[doge] //@周泽律师:莆田系不是医疗，是特大诈骗集团…</a>
 </h2>
@@ -137,7 +137,7 @@
 </h2>
 <p>罕见的领导人。<br><br>RE: 胡耀邦在文革前夕说：“‘突出政治’就真的那么灵？我看游泳时就得时不时地突出鼻子！”个人迷信之风刮得遮天蔽日，不分男女老幼都高呼“万岁、万岁、万万岁”时，他又不止一次地对许多青年人说：“人能活到一万岁吗？这种口号很不科学嘛！”http://t.cn/Rq8fPeI<br><img src="http://ww4.sinaimg.cn/large/6b804b51gw1f3k5f7z76cj20go0b4mxv.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p>
 <table>
     <tr>
