@@ -19,6 +19,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3971700792356627" target="freeweibo-mirror">SPAM 法治怎么是狗屎？叙利亚那种乱才是蛋糕？[偷笑] /…</a>
+</h2>
+<p>SPAM 法治怎么是狗屎？叙利亚那种乱才是蛋糕？[偷笑] //@律师文摘://@周泽律师: //@我是闻正兵: //@杨锦麟:狗屎！ //@朱学东:就是一坨狗屎，单仁平也会说是美味蛋糕。</p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3971677933528532" target="freeweibo-mirror">把唱红推向全国。继承重庆书记未竟事业。把无产阶级文化大革命进…</a>
 </h2>
 <p>把唱红推向全国。继承重庆书记未竟事业。把无产阶级文化大革命进行到底。<br><br>RE: 马晓力的一封信<br><img src="http://ww4.sinaimg.cn/large/006pHoeugw1f3jwttux2mj30px0zkn53.jpg"></p>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3971541992031265" target="freeweibo-mirror">请对这届人民放心，不会纠缠魏则西事件的。[悲催]</a>
 </h2>
 <p>请对这届人民放心，不会纠缠魏则西事件的。[悲催]<br><img src="http://ww4.sinaimg.cn/large/dd816182gw1f3jqdxg74zj20lc0a4t9m.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3971534978347669" target="freeweibo-mirror">老子查儿子下得了手？//@六安自媒体:自己调查自己！//@何…</a>
-</h2>
-<p>老子查儿子下得了手？//@六安自媒体:自己调查自己！//@何三畏:网民有一个字可能让领导不高兴你像领导肚子里的肥虫一嗅就知道立刻删帖销号，百度在搞什么你对全网怒涛视而不见到出人命了你去调查你低调点我们也知道你们在做什么！<br><br>RE: “国家网信办会同国家工商总局、国家卫生计生委已成立联合调查组对 •魏则西事件•进行调查。 ”——你们不正是责任方么？没有人去“调查”你们，反而是你们在调查下属。贼头还用调查贼喽啰么？这世上天理就这样颠倒。</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
