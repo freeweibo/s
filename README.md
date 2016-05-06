@@ -41,7 +41,7 @@
 </h2>
 <p>正在参加国务院参事室的舆情座谈会，讨论近期的魏则西，疫苗等公共事件。。领导很开明啊。说现在社会是事件社会，有公共事件是常态，没有是非常态。政府得回应，明确政府回应主体。实情处置和舆情引导不能两张皮。点赞。btw材料功课做的很足也。<br><img src="http://ww2.sinaimg.cn/large/60331ba6jw1f3lfotvhndj20zk0qoadm.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3972074492408136" target="freeweibo-mirror">SPAM #不见不知# 洗衣机到底多脏？权威机构发现，使用一…</a>
 </h2>
