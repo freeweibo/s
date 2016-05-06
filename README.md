@@ -71,7 +71,7 @@
 </h2>
 <p>文革发动五十周年，不坚决否定，不彻底反思，不追查责任，不公开审判，这一页翻不过去，中国就没有实际的进步。</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3972071085768124" target="freeweibo-mirror">SPAM //@边城老垦://@西子丹67: 退役军人集体维…</a>
 </h2>
@@ -125,7 +125,7 @@
 </h2>
 <p>SPAM 20网站“挂靠”武警北京二院18科室———目前，武警北京二院官网已经无法打开，相当一部分科室网站被关闭。疑似武警北京二院下属科室的30个网站域名有13个依然可以打开，6个存有网页快照，1个为原百度认证网址，总共20个页面显示为武警北京二院的网站。但是通过ICP查询发现，其中并没有一个属于该院。...全文： http://m.weibo.cn/2144789105/3972041612426057<br><img src="http://ww3.sinaimg.cn/large/7fd6e271jw1f3lbs7qjvqj20b40f3t9y.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3972040145146676" target="freeweibo-mirror">几个意思？ http://t.cn/RqHM827</a>
 </h2>
