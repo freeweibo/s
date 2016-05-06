@@ -25,6 +25,24 @@
 <p>
 	<small> ============== 1小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3972051566140454" target="freeweibo-mirror">比薄时更甚。重庆当时进京唱红只能在民族文化宫举办。[挖鼻]/…</a>
+</h2>
+<p>比薄时更甚。重庆当时进京唱红只能在民族文化宫举办。[挖鼻]//@榕粉团:[生病]//@老李头06: 中宣部，你们有没有胆量公开澄清自己对这一严重政治事件的责任？//@骆越散人V: 如此大的演出盛况，而且还在人民大会堂不是中宣部批准的吗？</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3972039977250593" target="freeweibo-mirror">中宣部，你们有没有胆量公开澄清自己对这一严重政治事件的责任？…</a>
+</h2>
+<p>中宣部，你们有没有胆量公开澄清自己对这一严重政治事件的责任？//@骆越散人V: 如此大的演出盛况，而且还在人民大会堂不是中宣部批准的吗？</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3972034453739863" target="freeweibo-mirror">5月2日，有人在人民大会堂上演了一出为文革唱赞歌的丑剧，公然…</a>
+</h2>
+<p>5月2日，有人在人民大会堂上演了一出为文革唱赞歌的丑剧，公然挑战十一届六中全会否定文革的正确决议。中宣部应立即彻查此事，并向全国人民公布调查结果；否则人民有理由怀疑中宣部是不是姓党。党中央应当重视此事，依照党规惩治这一严重事件的相关当事人。</p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3972028144291866" target="freeweibo-mirror">【今日精彩分享】①别再崇拜普京了，他只是个流氓！②苏联女兵被…</a>
 </h2>
 <p>【今日精彩分享】①别再崇拜普京了，他只是个流氓！②苏联女兵被.轮★奸.后，背后的真相震★惊★13亿人！无地自容！③上帝为什么不奖励好人？（经典好文）④百度自称更懂中国，但中国不需要这样的百度。⑤【男女必读】离婚，大多是这个原因！⑥v信十大禁忌！你知道吗？【搜索V信 rszh86 详细阅读】<br><img src="http://ww1.sinaimg.cn/large/98c1610bjw1f3la8q7p9rj20ku112tdj.jpg"></p>
@@ -65,7 +83,7 @@
 </h2>
 <p>//@高小曜: //@nanguoli: //@陈光武律师:[吃惊][吃惊]//@骑牛隐士: //@崔小平律师: TMD！//@ICO刘开明://@山高路远N://@Frozen_III_Sunshine://@秋风秋雨N://@蓝星虫说://@小猫小狗_74635://@封神记二十九叔:<br><br>RE: 又开始删帖封锁消息了，除了这一手他们似乎没有别的办法！也难怪，这次百度、莆田系丑闻曝光百度市值蒸发几百亿还是小事，关键如果细追究，国家工商局，卫计委，食品和药品监督管理局，众多医院没一个脱得了干系！风雨飘渺的赵家楼危矣……<br><img src="http://ww4.sinaimg.cn/large/006eDsdxjw1f3kf86paolj30hs0vkdjf.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3971894841930157" target="freeweibo-mirror">不爱看重庆卫视，还有其他诸多卫视。就是重庆本地，也还有11个…</a>
 </h2>
@@ -118,24 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3971870489359820" target="freeweibo-mirror">//@曹国洪微谈://@法尚应舍-://@肖64雪慧: 什么…</a>
 </h2>
 <p>//@曹国洪微谈://@法尚应舍-://@肖64雪慧: 什么东西！[怒]//@私享枷: 虚弱无力，垂死挣扎//@围观倒车-: //@大雁飞回来了:呵呵！//@像叶子一样飞01:转发微博<br><br>RE: 虚弱到如此不堪。<br><img src="http://ww2.sinaimg.cn/large/006qAEB1gw1f3jr6a9ltbj30cs1o7tcr.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3971870279552510" target="freeweibo-mirror">老说重庆搞文革，为何没一个记者律师教授敢来走访百姓搞个调查报…</a>
-</h2>
-<p>老说重庆搞文革，为何没一个记者律师教授敢来走访百姓搞个调查报道？想想看，“重庆百姓反对薄式文革”——多么好的炮弹！咋不敢来整一发？重庆几千万百姓都傻，就你们聪明？本来不支持文革，若你们非说重庆就是文革，那我反倒支持这样的文革！http://t.cn/Rq81EX2；http://t.cn/Rq81sdY<br><br>RE: 分享图片<br><img src="http://ww4.sinaimg.cn/large/6031cd2fgw1f3k60ytwpfj20qo1betbe.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3971866060027805" target="freeweibo-mirror">SPAM 这。。。 //@牛文文:[挖鼻][挖鼻]//@罗昌…</a>
-</h2>
-<p>SPAM 这。。。 //@牛文文:[挖鼻][挖鼻]//@罗昌平:好厉害的样子？！<br><br>RE: 百度一下，怎么这样？<br><img src="http://ww1.sinaimg.cn/large/74ab24d1jw1f3kqltlgyuj20v90woadx.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3971865934097615" target="freeweibo-mirror">SPAM //@喷嚏网铂程://@罗昌平:好厉害的样子？！</a>
-</h2>
-<p>SPAM //@喷嚏网铂程://@罗昌平:好厉害的样子？！<br><br>RE: 百度一下，怎么这样？<br><img src="http://ww1.sinaimg.cn/large/74ab24d1jw1f3kqltlgyuj20v90woadx.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
