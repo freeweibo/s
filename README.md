@@ -23,7 +23,7 @@
 </h2>
 <p>SPAM //@土拨鼠123: //@裸漂筒子:5.宗教活动要在特定的场所。//@李北方2: 1，第四在背经文，小和尚小道士是在玩cosplay，2，就算不是cosplay，和尚道士是出家人，第四小女孩并不是。总之，区别大大的<br><br>RE: 为什么只有最后一张受到了批判？！<br><img src="http://ww3.sinaimg.cn/large/78fe4843jw1f3liq042o1j20go0ciwg4.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3972246840441439" target="freeweibo-mirror">SPAM 问得好。一碗水不能端平，是要出事的。民众个人可以各…</a>
 </h2>
