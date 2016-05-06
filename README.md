@@ -29,7 +29,7 @@
 </h2>
 <p>君子多思不若养志，多言不若守静，多才不若蓄德。—— 曾国藩（没睡的朋友请加，本人公重号吧：smtswx ）[爱你]</p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3971907176526472" target="freeweibo-mirror">呵呵 //@不羁的心0://@江山一担夫:我觉得当代的每个正…</a>
 </h2>
@@ -71,13 +71,13 @@
 </h2>
 <p>这些场景让我想到一个词：薄氏的政治遗产。//@胡椒豆: //@静娅_: 这就是权力的作用，他们怀念这个，就可以直接上演这个。他们代表的只是自己的利益，跟人民群众的利益八竿子打不着。//@上海村妇: 很多标语口号都是文革中提出的，看来对文革怀念的人不在少数//@静娅_: 薄氏审判，我真不知道审的是<br><br>RE: 呵呵<br><img src="http://ww4.sinaimg.cn/large/656952ecjw1f3kcinym44j20qo1beaqg.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3971886239545826" target="freeweibo-mirror">当时重庆卫视为什么改版？改版后具体播出什么内容？看看吧：ht…</a>
 </h2>
 <p>当时重庆卫视为什么改版？改版后具体播出什么内容？看看吧：http://t.cn/ht2tDJ；http://t.cn/Rq8deil；http://t.cn/Rq8dk1J；http://t.cn/Rq8g7Im 关键是，改这么一个版就等于“搞文革”？这帽子也太无稽了吧。//@夜风27799:我不在重庆，不了解真实情况。但重庆卫视那段时间天<br><br>RE: 分享图片<br><img src="http://ww4.sinaimg.cn/large/6031cd2fgw1f3k60ytwpfj20qo1betbe.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3971883790019539" target="freeweibo-mirror">//@加菲g炮1314Cat: //@绝不回头A://@Sg…</a>
 </h2>
