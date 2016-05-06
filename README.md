@@ -19,6 +19,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3972052669416127" target="freeweibo-mirror">中纪委应该出面查办。//@陈业文新大都: 比薄时更甚。重庆当…</a>
+</h2>
+<p>中纪委应该出面查办。//@陈业文新大都: 比薄时更甚。重庆当时进京唱红只能在民族文化宫举办。[挖鼻]//@榕粉团:[生病]//@老李头06: 中宣部，你们有没有胆量公开澄清自己对这一严重政治事件的责任？//@骆越散人V: 如此大的演出盛况，而且还在人民大会堂不是中宣部批准的吗？</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3972028144291866" target="freeweibo-mirror">【今日精彩分享】①别再崇拜普京了，他只是个流氓！②苏联女兵被…</a>
 </h2>
 <p>【今日精彩分享】①别再崇拜普京了，他只是个流氓！②苏联女兵被.轮★奸.后，背后的真相震★惊★13亿人！无地自容！③上帝为什么不奖励好人？（经典好文）④百度自称更懂中国，但中国不需要这样的百度。⑤【男女必读】离婚，大多是这个原因！⑥v信十大禁忌！你知道吗？【搜索V信 rszh86 详细阅读】<br><img src="http://ww1.sinaimg.cn/large/98c1610bjw1f3la8q7p9rj20ku112tdj.jpg"></p>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3971865934097615" target="freeweibo-mirror">SPAM //@喷嚏网铂程://@罗昌平:好厉害的样子？！</a>
 </h2>
 <p>SPAM //@喷嚏网铂程://@罗昌平:好厉害的样子？！<br><br>RE: 百度一下，怎么这样？<br><img src="http://ww1.sinaimg.cn/large/74ab24d1jw1f3kqltlgyuj20v90woadx.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3971858682318847" target="freeweibo-mirror">【郭飞雄的辩护律师不能通过考核】济南市律师协会今日公布了今年…</a>
-</h2>
-<p>【郭飞雄的辩护律师不能通过考核】济南市律师协会今日公布了今年“补充通过考核”的律师名单，付永刚、袭祥栋、李仲伟、王振江通过考核，只有@伍雷 一人未通过，说是因为他代理了郭飞雄案的原因。按律协这意思，伟大祖国的部分被告人是只剩下自我辩护的权利咯？<br><img src="http://ww3.sinaimg.cn/large/6a80bfcdgw1f3kqs246grj20go0m80u7.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
