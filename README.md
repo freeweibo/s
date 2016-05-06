@@ -41,7 +41,7 @@
 </h2>
 <p>舆论降温，意料之中。为什么不把问题当做改进的契机？<br><br>RE: 今天上午，中宣部和国家网信办发布了“魏则西事件”网上调控管控要求[话筒]『中宣部勒令魏则西事件降温 称警惕借机攻击党和政府 | 医疗界』http://t.cn/RqRcKrv</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3972131031242146" target="freeweibo-mirror">魏则西事件让我们怀念社会主义免费医疗制度的优越性，打击、揭露…</a>
 </h2>
@@ -107,7 +107,7 @@
 </h2>
 <p>司法太随心所欲了！<br><br>RE: 纽约时报：北京大娘立案被拒拍照留证被司法拘留<br><img src="http://ww1.sinaimg.cn/large/6a80bfcdgw1f3ldrs3jb2j20ku3pch9k.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3972079533854710" target="freeweibo-mirror">[哈哈][哈哈]//@来去之间:右边跟我说，材料里面居然还点…</a>
 </h2>
