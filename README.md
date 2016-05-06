@@ -119,7 +119,7 @@
 </h2>
 <p>SPAM 问得好。一碗水不能端平，是要出事的。民众个人可以各有所好，而政府对待各宗教应该一律平等。<br><br>RE: 为什么只有最后一张受到了批判？！<br><img src="http://ww3.sinaimg.cn/large/78fe4843jw1f3liq042o1j20go0ciwg4.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3972245468081943" target="freeweibo-mirror">//@格瓦拉:情节严重了 //@何兵:冒充中宣部，骗到了大会…</a>
 </h2>
@@ -127,15 +127,15 @@
 <p>
 	<small> ============== 4小时前</small>
 </p><h2>
-	<a href="https://freeweibo.com/weibo/3972239478779666" target="freeweibo-mirror">！！！//@绿纬:为什么？因为有些渣渣故意制造民族间矛盾，宗…</a>
+	<a href="https://freeweibo.com/weibo/3972244382189690" target="freeweibo-mirror">必须放在一起看才看得懂。</a>
 </h2>
-<p>！！！//@绿纬:为什么？因为有些渣渣故意制造民族间矛盾，宗教间矛盾。然后好向背后的主子要钱。但是这些渣渣只能代表一小撮分裂分子，代表不了中华民族。<br><br>RE: 为什么只有最后一张受到了批判？！<br><img src="http://ww3.sinaimg.cn/large/78fe4843jw1f3liq042o1j20go0ciwg4.jpg"></p>
+<p>必须放在一起看才看得懂。<br><img src="http://ww1.sinaimg.cn/large/46e9d5dagw1f3lz19k9lyj20g50m8gmd.jpg"></p>
 <p>
 	<small> ============== 4小时前</small>
 </p><h2>
-	<a href="https://freeweibo.com/weibo/3972234441364061" target="freeweibo-mirror">SPAM 匪夷所思。//@张效羽:晕，这行也有莆田系的手法……</a>
+	<a href="https://freeweibo.com/weibo/3972239478779666" target="freeweibo-mirror">！！！//@绿纬:为什么？因为有些渣渣故意制造民族间矛盾，宗…</a>
 </h2>
-<p>SPAM 匪夷所思。//@张效羽:晕，这行也有莆田系的手法…… //@八大山债人:耶。。。没想到高大上的也被骗了 //@来去之间:晕，还有这种事。。。//@paingod:见我上一条。</p>
+<p>！！！//@绿纬:为什么？因为有些渣渣故意制造民族间矛盾，宗教间矛盾。然后好向背后的主子要钱。但是这些渣渣只能代表一小撮分裂分子，代表不了中华民族。<br><br>RE: 为什么只有最后一张受到了批判？！<br><img src="http://ww3.sinaimg.cn/large/78fe4843jw1f3liq042o1j20go0ciwg4.jpg"></p>
 <p>
 	<small> ============== 4小时前</small>
 </p>
