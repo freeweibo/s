@@ -19,6 +19,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3972028144291866" target="freeweibo-mirror">【今日精彩分享】①别再崇拜普京了，他只是个流氓！②苏联女兵被…</a>
+</h2>
+<p>【今日精彩分享】①别再崇拜普京了，他只是个流氓！②苏联女兵被.轮★奸.后，背后的真相震★惊★13亿人！无地自容！③上帝为什么不奖励好人？（经典好文）④百度自称更懂中国，但中国不需要这样的百度。⑤【男女必读】离婚，大多是这个原因！⑥v信十大禁忌！你知道吗？【搜索V信 rszh86 详细阅读】<br><img src="http://ww1.sinaimg.cn/large/98c1610bjw1f3la8q7p9rj20ku112tdj.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3971923903525644" target="freeweibo-mirror">君子多思不若养志，多言不若守静，多才不若蓄德。—— 曾国藩（…</a>
 </h2>
 <p>君子多思不若养志，多言不若守静，多才不若蓄德。—— 曾国藩（没睡的朋友请加，本人公重号吧：smtswx ）[爱你]</p>
@@ -89,13 +95,13 @@
 </h2>
 <p>有啥危险？除了傻逼公知和被公知忽悠的脑残说重庆是文革，为何我这本地人都不知道党中央把重庆定性为“文革”？http://t.cn/Rq81EX2；http://t.cn/Rq81sdY； http://t.cn/Rq8rixO //@常君宇想养狗:…有点危险，劝你还是删了吧<br><br>RE: 分享图片<br><img src="http://ww4.sinaimg.cn/large/6031cd2fgw1f3k60ytwpfj20qo1betbe.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3971874347684708" target="freeweibo-mirror">//@徐枫华:宣统威武。 //@刘X地盘://@曹国洪微谈:…</a>
 </h2>
 <p>//@徐枫华:宣统威武。 //@刘X地盘://@曹国洪微谈://@法尚应舍-://@肖64雪慧: 什么东西！[怒]//@私享枷: 虚弱无力，垂死挣扎//@围观倒车-: //@大雁飞回来了:呵呵！//@像叶子一样飞01:转发微博<br><br>RE: 虚弱到如此不堪。<br><img src="http://ww2.sinaimg.cn/large/006qAEB1gw1f3jr6a9ltbj30cs1o7tcr.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3971870783150346" target="freeweibo-mirror">//@孔_智勇:不让做假广告，就改说真话了？浪子回头金不换……</a>
 </h2>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3971858682318847" target="freeweibo-mirror">【郭飞雄的辩护律师不能通过考核】济南市律师协会今日公布了今年…</a>
 </h2>
 <p>【郭飞雄的辩护律师不能通过考核】济南市律师协会今日公布了今年“补充通过考核”的律师名单，付永刚、袭祥栋、李仲伟、王振江通过考核，只有@伍雷 一人未通过，说是因为他代理了郭飞雄案的原因。按律协这意思，伟大祖国的部分被告人是只剩下自我辩护的权利咯？<br><img src="http://ww3.sinaimg.cn/large/6a80bfcdgw1f3kqs246grj20go0m80u7.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3971858062164412" target="freeweibo-mirror">SPAM //@金乐敏:"莆田系生物免疫假技术攻克武警总院、…</a>
-</h2>
-<p>SPAM //@金乐敏:"莆田系生物免疫假技术攻克武警总院、火箭军总院外，另有多个三甲医院沦陷"!<br><br>RE: 香港文汇报今刊出直击莆田医院系列，独家曝光莆田系生物免疫假技术攻克武警总院、火箭军总院外，另有多个三甲医院沦陷内情。我们微博征集线索，逾十位甫田系受害者血泪控诉，今文汇头条曝光兰州天伦不育不孕医院欺诈，“万万“遭遇是万千普通病患劫难缩影。cc@甘肃刘维忠@波子哥-廖新波@凝哲同学<br><img src="http://ww3.sinaimg.cn/large/5938a13ajw1f3kf6pk63ej20b40hzjue.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
