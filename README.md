@@ -19,6 +19,18 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3972079533854710" target="freeweibo-mirror">[哈哈][哈哈]//@来去之间:右边跟我说，材料里面居然还点…</a>
+</h2>
+<p>[哈哈][哈哈]//@来去之间:右边跟我说，材料里面居然还点了俺的名，说俺给百度洗地……以后要谨言慎行了……<br><br>RE: 正在参加国务院参事室的舆情座谈会，讨论近期的魏则西，疫苗等公共事件。。领导很开明啊。说现在社会是事件社会，有公共事件是常态，没有是非常态。政府得回应，明确政府回应主体。实情处置和舆情引导不能两张皮。点赞。btw材料功课做的很足也。<br><img src="http://ww2.sinaimg.cn/large/60331ba6jw1f3lfotvhndj20zk0qoadm.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3972074492408136" target="freeweibo-mirror">SPAM #不见不知# 洗衣机到底多脏？权威机构发现，使用一…</a>
+</h2>
+<p>SPAM #不见不知# 洗衣机到底多脏？权威机构发现，使用一年以上洗衣机，总大肠杆菌检出率为100%。受污染的洗衣机洗宝宝衣服可不行！生活中还有那些不见不知的威胁？@TCL冰箱洗衣机 @苏宁冰洗 @苏宁易购# 真免污问TCL#<br><img src="http://ww4.sinaimg.cn/large/61b1385cgw1f3lfiq44vhj20qo17ctem.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3972071085768124" target="freeweibo-mirror">SPAM //@边城老垦://@西子丹67: 退役军人集体维…</a>
 </h2>
 <p>SPAM //@边城老垦://@西子丹67: 退役军人集体维权传递出了什么？[话筒]//@陈光武律师: //@郝劲松: 复员战士依法维权<br><br>RE: 几个意思？ http://t.cn/RqHM827</p>
@@ -124,18 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3971886239545826" target="freeweibo-mirror">当时重庆卫视为什么改版？改版后具体播出什么内容？看看吧：ht…</a>
 </h2>
 <p>当时重庆卫视为什么改版？改版后具体播出什么内容？看看吧：http://t.cn/ht2tDJ；http://t.cn/Rq8deil；http://t.cn/Rq8dk1J；http://t.cn/Rq8g7Im 关键是，改这么一个版就等于“搞文革”？这帽子也太无稽了吧。//@夜风27799:我不在重庆，不了解真实情况。但重庆卫视那段时间天<br><br>RE: 分享图片<br><img src="http://ww4.sinaimg.cn/large/6031cd2fgw1f3k60ytwpfj20qo1betbe.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3971883790019539" target="freeweibo-mirror">//@加菲g炮1314Cat: //@绝不回头A://@Sg…</a>
-</h2>
-<p>//@加菲g炮1314Cat: //@绝不回头A://@Sg022哥哥://@崔小平律师:TMD！//@ICO刘开明://@山高路远N://@Frozen_III_Sunshine://@秋风秋雨N://@蓝星虫说://@小猫小狗_74635://@封神记二十九叔:<br><br>RE: 又开始删帖封锁消息了，除了这一手他们似乎没有别的办法！也难怪，这次百度、莆田系丑闻曝光百度市值蒸发几百亿还是小事，关键如果细追究，国家工商局，卫计委，食品和药品监督管理局，众多医院没一个脱得了干系！风雨飘渺的赵家楼危矣……<br><img src="http://ww4.sinaimg.cn/large/006eDsdxjw1f3kf86paolj30hs0vkdjf.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3971878995315552" target="freeweibo-mirror">公知媒体逼逼重庆文革，可中央何时把重庆定性为“文革”，我这本…</a>
-</h2>
-<p>公知媒体逼逼重庆文革，可中央何时把重庆定性为“文革”，我这本地人怎么不知道？http://t.cn/Rq81EX2；http://t.cn/Rq81sdY；http://t.cn/Rq8rixO 至于说什么“唱红打黑”搞文革，这是早就被本人驳得稀烂的谎言。特别是外地朋友，你们不过是被媒体铺天盖地的轰炸洗脑欺骗了而已。<br><br>RE: 分享图片<br><img src="http://ww4.sinaimg.cn/large/6031cd2fgw1f3k60ytwpfj20qo1betbe.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
