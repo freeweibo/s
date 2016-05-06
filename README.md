@@ -65,7 +65,7 @@
 </h2>
 <p>不爱看重庆卫视，还有其他诸多卫视。就是重庆本地，也还有11个频道没改版——不过铺天盖地都是性病广告，不信你问问重庆人。说穿了，当时重庆卫视改版，不过是一种困境下的尝试与突破。对此，业内人士看得很清楚，哪有公知媒体逼逼的那么悬乎？ http://t.cn/Rq8FqzZ //@魅力鹰潭:<br><br>RE: 分享图片<br><img src="http://ww4.sinaimg.cn/large/6031cd2fgw1f3k60ytwpfj20qo1betbe.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3971886537032748" target="freeweibo-mirror">这些场景让我想到一个词：薄氏的政治遗产。//@胡椒豆: //…</a>
 </h2>
