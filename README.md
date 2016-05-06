@@ -47,19 +47,19 @@
 </h2>
 <p>SPAM 【《科洛弗道10号》支援已出！】烂番茄新鲜度90%。讲述一个女人遭遇车祸后，在一个避难所中醒来，同在的两个男人告诉她，外面的世界遭到了生化攻击。随着相处，她觉得有些不对，于是想方设法逃离，可外面到底是什么情况了呢……本片由J·J·艾布拉姆斯（星战7）担任制片。期待已久了。支援见图。<br><img src="http://ww1.sinaimg.cn/large/76c73f8djw1f3kvgcgbk9j21c21z7e81.jpg"></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3971900034196307" target="freeweibo-mirror">持续关注//@崔小平律师: //@高中政治教师陈勇:转发微博</a>
 </h2>
 <p>持续关注//@崔小平律师: //@高中政治教师陈勇:转发微博<br><br>RE: 【郭飞雄的辩护律师不能通过考核】济南市律师协会今日公布了今年“补充通过考核”的律师名单，付永刚、袭祥栋、李仲伟、王振江通过考核，只有@伍雷 一人未通过，说是因为他代理了郭飞雄案的原因。按律协这意思，伟大祖国的部分被告人是只剩下自我辩护的权利咯？<br><img src="http://ww3.sinaimg.cn/large/6a80bfcdgw1f3kqs246grj20go0m80u7.jpg"></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3971898961034811" target="freeweibo-mirror">//@高小曜: //@nanguoli: //@陈光武律师:…</a>
 </h2>
 <p>//@高小曜: //@nanguoli: //@陈光武律师:[吃惊][吃惊]//@骑牛隐士: //@崔小平律师: TMD！//@ICO刘开明://@山高路远N://@Frozen_III_Sunshine://@秋风秋雨N://@蓝星虫说://@小猫小狗_74635://@封神记二十九叔:<br><br>RE: 又开始删帖封锁消息了，除了这一手他们似乎没有别的办法！也难怪，这次百度、莆田系丑闻曝光百度市值蒸发几百亿还是小事，关键如果细追究，国家工商局，卫计委，食品和药品监督管理局，众多医院没一个脱得了干系！风雨飘渺的赵家楼危矣……<br><img src="http://ww4.sinaimg.cn/large/006eDsdxjw1f3kf86paolj30hs0vkdjf.jpg"></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3971894841930157" target="freeweibo-mirror">不爱看重庆卫视，还有其他诸多卫视。就是重庆本地，也还有11个…</a>
 </h2>
@@ -71,31 +71,31 @@
 </h2>
 <p>这些场景让我想到一个词：薄氏的政治遗产。//@胡椒豆: //@静娅_: 这就是权力的作用，他们怀念这个，就可以直接上演这个。他们代表的只是自己的利益，跟人民群众的利益八竿子打不着。//@上海村妇: 很多标语口号都是文革中提出的，看来对文革怀念的人不在少数//@静娅_: 薄氏审判，我真不知道审的是<br><br>RE: 呵呵<br><img src="http://ww4.sinaimg.cn/large/656952ecjw1f3kcinym44j20qo1beaqg.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3971886239545826" target="freeweibo-mirror">当时重庆卫视为什么改版？改版后具体播出什么内容？看看吧：ht…</a>
 </h2>
 <p>当时重庆卫视为什么改版？改版后具体播出什么内容？看看吧：http://t.cn/ht2tDJ；http://t.cn/Rq8deil；http://t.cn/Rq8dk1J；http://t.cn/Rq8g7Im 关键是，改这么一个版就等于“搞文革”？这帽子也太无稽了吧。//@夜风27799:我不在重庆，不了解真实情况。但重庆卫视那段时间天<br><br>RE: 分享图片<br><img src="http://ww4.sinaimg.cn/large/6031cd2fgw1f3k60ytwpfj20qo1betbe.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3971883790019539" target="freeweibo-mirror">//@加菲g炮1314Cat: //@绝不回头A://@Sg…</a>
 </h2>
 <p>//@加菲g炮1314Cat: //@绝不回头A://@Sg022哥哥://@崔小平律师:TMD！//@ICO刘开明://@山高路远N://@Frozen_III_Sunshine://@秋风秋雨N://@蓝星虫说://@小猫小狗_74635://@封神记二十九叔:<br><br>RE: 又开始删帖封锁消息了，除了这一手他们似乎没有别的办法！也难怪，这次百度、莆田系丑闻曝光百度市值蒸发几百亿还是小事，关键如果细追究，国家工商局，卫计委，食品和药品监督管理局，众多医院没一个脱得了干系！风雨飘渺的赵家楼危矣……<br><img src="http://ww4.sinaimg.cn/large/006eDsdxjw1f3kf86paolj30hs0vkdjf.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3971878995315552" target="freeweibo-mirror">公知媒体逼逼重庆文革，可中央何时把重庆定性为“文革”，我这本…</a>
 </h2>
 <p>公知媒体逼逼重庆文革，可中央何时把重庆定性为“文革”，我这本地人怎么不知道？http://t.cn/Rq81EX2；http://t.cn/Rq81sdY；http://t.cn/Rq8rixO 至于说什么“唱红打黑”搞文革，这是早就被本人驳得稀烂的谎言。特别是外地朋友，你们不过是被媒体铺天盖地的轰炸洗脑欺骗了而已。<br><br>RE: 分享图片<br><img src="http://ww4.sinaimg.cn/large/6031cd2fgw1f3k60ytwpfj20qo1betbe.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3971875904572571" target="freeweibo-mirror">有啥危险？除了傻逼公知和被公知忽悠的脑残说重庆是文革，为何我…</a>
 </h2>
 <p>有啥危险？除了傻逼公知和被公知忽悠的脑残说重庆是文革，为何我这本地人都不知道党中央把重庆定性为“文革”？http://t.cn/Rq81EX2；http://t.cn/Rq81sdY； http://t.cn/Rq8rixO //@常君宇想养狗:…有点危险，劝你还是删了吧<br><br>RE: 分享图片<br><img src="http://ww4.sinaimg.cn/large/6031cd2fgw1f3k60ytwpfj20qo1betbe.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3971874347684708" target="freeweibo-mirror">//@徐枫华:宣统威武。 //@刘X地盘://@曹国洪微谈:…</a>
 </h2>
