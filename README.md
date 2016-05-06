@@ -53,13 +53,13 @@
 </h2>
 <p>//@天涯赵瑜:不清理文革，中国就没有真正的历史观。一个没有历史观的民族，不会有好的前景。<br><br>RE: 文革发动五十周年，不坚决否定，不彻底反思，不追查责任，不公开审判，这一页翻不过去，中国就没有实际的进步。</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3972076681650011" target="freeweibo-mirror">//@李方平律师:派一张司法不作为的照片竟被司法拘留15天？</a>
 </h2>
 <p>//@李方平律师:派一张司法不作为的照片竟被司法拘留15天？<br><br>RE: 纽约时报：北京大娘立案被拒拍照留证被司法拘留<br><img src="http://ww1.sinaimg.cn/large/6a80bfcdgw1f3ldrs3jb2j20ku3pch9k.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3972075897746608" target="freeweibo-mirror">正在参加国务院参事室的舆情座谈会，讨论近期的魏则西，疫苗等公…</a>
 </h2>
