@@ -29,7 +29,7 @@
 </h2>
 <p>//@黄州自干五://@陈业文新大都://@清华孙立平:有关部门完全把逻辑弄反了。无论什么事情，哪怕是人命关天的事情，首先考虑的是有人会不会借此攻击党和政府，这样更会使党和政府成为批评的对象。相反，把人命作为第一关心，积极解决问题，才会得到人们的认同。<br><br>RE: 铛要降温魏则西事件, 这是最新报道要求...原因很简单, 因为这事本来就是档的体制问题, 大家最后都会明白, 档当然不敢, 越多人明白, 越难统治吖.<br><img src="http://ww3.sinaimg.cn/large/4834fe81gw1f3kpblc7pxj20m8063my7.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3972129004953522" target="freeweibo-mirror">SPAM //@王志安: [阴险]</a>
 </h2>
@@ -71,19 +71,19 @@
 </h2>
 <p>昨天百度客户端发了个有趣的笑话，我转发微博时也编了一个笑话作为图片评论，今天看到原微博不见了，那我重发下。<br><img src="http://ww3.sinaimg.cn/large/62f3be27jw1f3lfwea2j5j20c80lqwfr.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3972076945260765" target="freeweibo-mirror">//@天涯赵瑜:不清理文革，中国就没有真正的历史观。一个没有…</a>
 </h2>
 <p>//@天涯赵瑜:不清理文革，中国就没有真正的历史观。一个没有历史观的民族，不会有好的前景。<br><br>RE: 文革发动五十周年，不坚决否定，不彻底反思，不追查责任，不公开审判，这一页翻不过去，中国就没有实际的进步。</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3972076681650011" target="freeweibo-mirror">//@李方平律师:派一张司法不作为的照片竟被司法拘留15天？</a>
 </h2>
 <p>//@李方平律师:派一张司法不作为的照片竟被司法拘留15天？<br><br>RE: 纽约时报：北京大娘立案被拒拍照留证被司法拘留<br><img src="http://ww1.sinaimg.cn/large/6a80bfcdgw1f3ldrs3jb2j20ku3pch9k.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3972075897746608" target="freeweibo-mirror">正在参加国务院参事室的舆情座谈会，讨论近期的魏则西，疫苗等公…</a>
 </h2>
