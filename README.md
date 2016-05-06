@@ -47,7 +47,7 @@
 </h2>
 <p>//@贺延光: 为文革招魂！[抓狂] //@北马南山:心虚啥？[黑线]//@刘力博士: //@易滨1209:演都演了，有必要删吗？<br><br>RE: 所转两则有关5拾六垛花大型响交演唱会在民人会大堂隆重演出的博文，都遭删。有的先禁转评后删，有的直接删。不知该怎么解读这个现象。[疑问]<br><img src="http://ww4.sinaimg.cn/large/791ae3d5jw1f3l8d4qhorj20fa08i77k.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3972089604499981" target="freeweibo-mirror">SPAM 故事很精彩，先马后看！！</a>
 </h2>
@@ -67,6 +67,12 @@
 <p>
 	<small> ============== 5小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3972077523871307" target="freeweibo-mirror">昨天百度客户端发了个有趣的笑话，我转发微博时也编了一个笑话作…</a>
+</h2>
+<p>昨天百度客户端发了个有趣的笑话，我转发微博时也编了一个笑话作为图片评论，今天看到原微博不见了，那我重发下。<br><img src="http://ww3.sinaimg.cn/large/62f3be27jw1f3lfwea2j5j20c80lqwfr.jpg"></p>
+<p>
+	<small> ============== 5小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3972076945260765" target="freeweibo-mirror">//@天涯赵瑜:不清理文革，中国就没有真正的历史观。一个没有…</a>
 </h2>
 <p>//@天涯赵瑜:不清理文革，中国就没有真正的历史观。一个没有历史观的民族，不会有好的前景。<br><br>RE: 文革发动五十周年，不坚决否定，不彻底反思，不追查责任，不公开审判，这一页翻不过去，中国就没有实际的进步。</p>
@@ -83,7 +89,7 @@
 </h2>
 <p>正在参加国务院参事室的舆情座谈会，讨论近期的魏则西，疫苗等公共事件。。领导很开明啊。说现在社会是事件社会，有公共事件是常态，没有是非常态。政府得回应，明确政府回应主体。实情处置和舆情引导不能两张皮。点赞。btw材料功课做的很足也。<br><img src="http://ww2.sinaimg.cn/large/60331ba6jw1f3lfotvhndj20zk0qoadm.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3972074492408136" target="freeweibo-mirror">SPAM #不见不知# 洗衣机到底多脏？权威机构发现，使用一…</a>
 </h2>
@@ -113,7 +119,7 @@
 </h2>
 <p>//@王楚襄在晋国:转发微博<br><br>RE: 纽约时报：北京大娘立案被拒拍照留证被司法拘留<br><img src="http://ww1.sinaimg.cn/large/6a80bfcdgw1f3ldrs3jb2j20ku3pch9k.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3972059111335287" target="freeweibo-mirror">纽约时报：北京大娘立案被拒拍照留证被司法拘留</a>
 </h2>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3972052669416127" target="freeweibo-mirror">中纪委应该出面查办。//@陈业文新大都: 比薄时更甚。重庆当…</a>
 </h2>
 <p>中纪委应该出面查办。//@陈业文新大都: 比薄时更甚。重庆当时进京唱红只能在民族文化宫举办。[挖鼻]//@榕粉团:[生病]//@老李头06: 中宣部，你们有没有胆量公开澄清自己对这一严重政治事件的责任？//@骆越散人V: 如此大的演出盛况，而且还在人民大会堂不是中宣部批准的吗？</p>
-<p>
-	<small> ============== 7小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3972051566140454" target="freeweibo-mirror">比薄时更甚。重庆当时进京唱红只能在民族文化宫举办。[挖鼻]/…</a>
-</h2>
-<p>比薄时更甚。重庆当时进京唱红只能在民族文化宫举办。[挖鼻]//@榕粉团:[生病]//@老李头06: 中宣部，你们有没有胆量公开澄清自己对这一严重政治事件的责任？//@骆越散人V: 如此大的演出盛况，而且还在人民大会堂不是中宣部批准的吗？</p>
 <p>
 	<small> ============== 7小时前</small>
 </p>
