@@ -23,19 +23,19 @@
 </h2>
 <p>【今日精彩分享】①别再崇拜普京了，他只是个流氓！②苏联女兵被.轮★奸.后，背后的真相震★惊★13亿人！无地自容！③上帝为什么不奖励好人？（经典好文）④百度自称更懂中国，但中国不需要这样的百度。⑤【男女必读】离婚，大多是这个原因！⑥v信十大禁忌！你知道吗？【搜索V信 rszh86 详细阅读】<br><img src="http://ww1.sinaimg.cn/large/98c1610bjw1f3la8q7p9rj20ku112tdj.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3971923903525644" target="freeweibo-mirror">君子多思不若养志，多言不若守静，多才不若蓄德。—— 曾国藩（…</a>
 </h2>
 <p>君子多思不若养志，多言不若守静，多才不若蓄德。—— 曾国藩（没睡的朋友请加，本人公重号吧：smtswx ）[爱你]</p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3971907176526472" target="freeweibo-mirror">呵呵 //@不羁的心0://@江山一担夫:我觉得当代的每个正…</a>
 </h2>
 <p>呵呵 //@不羁的心0://@江山一担夫:我觉得当代的每个正常事儿都会成为后代喜剧舞台的一段小故事！<br><br>RE: 医疗界的混乱，其实最该整治的就是国家卫计委。卫生系统专业性很强，以前的卫生部领导大多是医学专家。但是现在国家卫计委8个正副主任中只有一个会看病！主任李斌，副主任崔丽、王培安、王国强、金小桃，办公厅主任于学军都是原国家计生委的。一班抓计划生育的来管医疗，国际笑话、历史笑话！</p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3971904036103969" target="freeweibo-mirror">/@律师潘云亮: 他们是在与国家最高领导人对着 干，与整个中…</a>
 </h2>
@@ -89,7 +89,7 @@
 </h2>
 <p>公知媒体逼逼重庆文革，可中央何时把重庆定性为“文革”，我这本地人怎么不知道？http://t.cn/Rq81EX2；http://t.cn/Rq81sdY；http://t.cn/Rq8rixO 至于说什么“唱红打黑”搞文革，这是早就被本人驳得稀烂的谎言。特别是外地朋友，你们不过是被媒体铺天盖地的轰炸洗脑欺骗了而已。<br><br>RE: 分享图片<br><img src="http://ww4.sinaimg.cn/large/6031cd2fgw1f3k60ytwpfj20qo1betbe.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3971875904572571" target="freeweibo-mirror">有啥危险？除了傻逼公知和被公知忽悠的脑残说重庆是文革，为何我…</a>
 </h2>
@@ -107,19 +107,19 @@
 </h2>
 <p>//@孔_智勇:不让做假广告，就改说真话了？浪子回头金不换…… [嘻嘻]//@演员蔡明宇: 百度试图挽回在老百姓心目中的形象吗[思考]<br><br>RE: 百度一下，怎么这样？<br><img src="http://ww1.sinaimg.cn/large/74ab24d1jw1f3kqltlgyuj20v90woadx.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3971870489359820" target="freeweibo-mirror">//@曹国洪微谈://@法尚应舍-://@肖64雪慧: 什么…</a>
 </h2>
 <p>//@曹国洪微谈://@法尚应舍-://@肖64雪慧: 什么东西！[怒]//@私享枷: 虚弱无力，垂死挣扎//@围观倒车-: //@大雁飞回来了:呵呵！//@像叶子一样飞01:转发微博<br><br>RE: 虚弱到如此不堪。<br><img src="http://ww2.sinaimg.cn/large/006qAEB1gw1f3jr6a9ltbj30cs1o7tcr.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3971870279552510" target="freeweibo-mirror">老说重庆搞文革，为何没一个记者律师教授敢来走访百姓搞个调查报…</a>
 </h2>
 <p>老说重庆搞文革，为何没一个记者律师教授敢来走访百姓搞个调查报道？想想看，“重庆百姓反对薄式文革”——多么好的炮弹！咋不敢来整一发？重庆几千万百姓都傻，就你们聪明？本来不支持文革，若你们非说重庆就是文革，那我反倒支持这样的文革！http://t.cn/Rq81EX2；http://t.cn/Rq81sdY<br><br>RE: 分享图片<br><img src="http://ww4.sinaimg.cn/large/6031cd2fgw1f3k60ytwpfj20qo1betbe.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3971866060027805" target="freeweibo-mirror">SPAM 这。。。 //@牛文文:[挖鼻][挖鼻]//@罗昌…</a>
 </h2>
