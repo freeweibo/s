@@ -19,6 +19,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3972147732504723" target="freeweibo-mirror">//@郑伟:转发微博</a>
+</h2>
+<p>//@郑伟:转发微博</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3972143211514064" target="freeweibo-mirror">阿姨自己纯手工熬做的阿胶糕，吃了效果特别好，推荐给大家，市面…</a>
 </h2>
 <p>阿姨自己纯手工熬做的阿胶糕，吃了效果特别好，推荐给大家，市面上买不到的哦！</p>
@@ -29,7 +35,7 @@
 </h2>
 <p>//@徐昕://@黄州自干五://@陈业文新大都://@清华孙立平:有关部门完全把逻辑弄反了。无论什么事情，哪怕是人命关天的事情，首先考虑的是有人会不会借此攻击党和政府，这样更会使党和政府成为批评的对象。相反，把人命作为第一关心，积极解决问题，才会得到人们的认同。<br><br>RE: 铛要降温魏则西事件, 这是最新报道要求...原因很简单, 因为这事本来就是档的体制问题, 大家最后都会明白, 档当然不敢, 越多人明白, 越难统治吖.<br><img src="http://ww3.sinaimg.cn/large/4834fe81gw1f3kpblc7pxj20m8063my7.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3972137969052471" target="freeweibo-mirror">//@黄州自干五://@陈业文新大都://@清华孙立平:有关…</a>
 </h2>
@@ -77,7 +83,7 @@
 </h2>
 <p>就继续遮掩吧，脓疮上妆，粉饰太平。<br><br>RE: 铛要降温魏则西事件, 这是最新报道要求...原因很简单, 因为这事本来就是档的体制问题, 大家最后都会明白, 档当然不敢, 越多人明白, 越难统治吖.<br><img src="http://ww3.sinaimg.cn/large/4834fe81gw1f3kpblc7pxj20m8063my7.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3972105748081986" target="freeweibo-mirror">警惕文革重演</a>
 </h2>
@@ -113,7 +119,7 @@
 </h2>
 <p>[哈哈][哈哈]//@来去之间:右边跟我说，材料里面居然还点了俺的名，说俺给百度洗地……以后要谨言慎行了……<br><br>RE: 正在参加国务院参事室的舆情座谈会，讨论近期的魏则西，疫苗等公共事件。。领导很开明啊。说现在社会是事件社会，有公共事件是常态，没有是非常态。政府得回应，明确政府回应主体。实情处置和舆情引导不能两张皮。点赞。btw材料功课做的很足也。<br><img src="http://ww2.sinaimg.cn/large/60331ba6jw1f3lfotvhndj20zk0qoadm.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3972077523871307" target="freeweibo-mirror">昨天百度客户端发了个有趣的笑话，我转发微博时也编了一个笑话作…</a>
 </h2>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3972076681650011" target="freeweibo-mirror">//@李方平律师:派一张司法不作为的照片竟被司法拘留15天？</a>
 </h2>
 <p>//@李方平律师:派一张司法不作为的照片竟被司法拘留15天？<br><br>RE: 纽约时报：北京大娘立案被拒拍照留证被司法拘留<br><img src="http://ww1.sinaimg.cn/large/6a80bfcdgw1f3ldrs3jb2j20ku3pch9k.jpg"></p>
-<p>
-	<small> ============== 7小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3972075897746608" target="freeweibo-mirror">正在参加国务院参事室的舆情座谈会，讨论近期的魏则西，疫苗等公…</a>
-</h2>
-<p>正在参加国务院参事室的舆情座谈会，讨论近期的魏则西，疫苗等公共事件。。领导很开明啊。说现在社会是事件社会，有公共事件是常态，没有是非常态。政府得回应，明确政府回应主体。实情处置和舆情引导不能两张皮。点赞。btw材料功课做的很足也。<br><img src="http://ww2.sinaimg.cn/large/60331ba6jw1f3lfotvhndj20zk0qoadm.jpg"></p>
 <p>
 	<small> ============== 7小时前</small>
 </p>
