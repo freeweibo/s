@@ -49,6 +49,12 @@
 <p>
 	<small> ============== 4小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3972040145146676" target="freeweibo-mirror">几个意思？ http://t.cn/RqHM827</a>
+</h2>
+<p>几个意思？ http://t.cn/RqHM827</p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3972039977250593" target="freeweibo-mirror">中宣部，你们有没有胆量公开澄清自己对这一严重政治事件的责任？…</a>
 </h2>
 <p>中宣部，你们有没有胆量公开澄清自己对这一严重政治事件的责任？//@骆越散人V: 如此大的演出盛况，而且还在人民大会堂不是中宣部批准的吗？</p>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3971878995315552" target="freeweibo-mirror">公知媒体逼逼重庆文革，可中央何时把重庆定性为“文革”，我这本…</a>
 </h2>
 <p>公知媒体逼逼重庆文革，可中央何时把重庆定性为“文革”，我这本地人怎么不知道？http://t.cn/Rq81EX2；http://t.cn/Rq81sdY；http://t.cn/Rq8rixO 至于说什么“唱红打黑”搞文革，这是早就被本人驳得稀烂的谎言。特别是外地朋友，你们不过是被媒体铺天盖地的轰炸洗脑欺骗了而已。<br><br>RE: 分享图片<br><img src="http://ww4.sinaimg.cn/large/6031cd2fgw1f3k60ytwpfj20qo1betbe.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3971875904572571" target="freeweibo-mirror">有啥危险？除了傻逼公知和被公知忽悠的脑残说重庆是文革，为何我…</a>
-</h2>
-<p>有啥危险？除了傻逼公知和被公知忽悠的脑残说重庆是文革，为何我这本地人都不知道党中央把重庆定性为“文革”？http://t.cn/Rq81EX2；http://t.cn/Rq81sdY； http://t.cn/Rq8rixO //@常君宇想养狗:…有点危险，劝你还是删了吧<br><br>RE: 分享图片<br><img src="http://ww4.sinaimg.cn/large/6031cd2fgw1f3k60ytwpfj20qo1betbe.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
