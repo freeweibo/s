@@ -41,7 +41,7 @@
 </h2>
 <p>//@许克望SF: 转发微博<br><br>RE: 必须放在一起看才看得懂。<br><img src="http://ww1.sinaimg.cn/large/46e9d5dagw1f3lz19k9lyj20g50m8gmd.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3972278704696582" target="freeweibo-mirror">SPAM //@尹鸿:无论是否逆转，其背后的运行逻辑都思来极…</a>
 </h2>
@@ -71,7 +71,7 @@
 </h2>
 <p>博主老兄是曾经在海里工作过的大人物。[嘻嘻] //@北京江荣生:[哈哈] //@廖睿:极有可能。是这场晚会的策划者、组织者看形势不妙，拍马屁没拍好，赶紧抛出替罪羊。</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3972263903086642" target="freeweibo-mirror">SPAM [吃惊] //@水兵李铭:打倒工贼刘少奇这样的口号…</a>
 </h2>
