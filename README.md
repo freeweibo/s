@@ -29,7 +29,7 @@
 </h2>
 <p>//@贺延光: 为文革招魂！[抓狂] //@北马南山:心虚啥？[黑线]//@刘力博士: //@易滨1209:演都演了，有必要删吗？<br><br>RE: 所转两则有关5拾六垛花大型响交演唱会在民人会大堂隆重演出的博文，都遭删。有的先禁转评后删，有的直接删。不知该怎么解读这个现象。[疑问]<br><img src="http://ww4.sinaimg.cn/large/791ae3d5jw1f3l8d4qhorj20fa08i77k.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3972089604499981" target="freeweibo-mirror">SPAM 故事很精彩，先马后看！！</a>
 </h2>
@@ -65,7 +65,7 @@
 </h2>
 <p>正在参加国务院参事室的舆情座谈会，讨论近期的魏则西，疫苗等公共事件。。领导很开明啊。说现在社会是事件社会，有公共事件是常态，没有是非常态。政府得回应，明确政府回应主体。实情处置和舆情引导不能两张皮。点赞。btw材料功课做的很足也。<br><img src="http://ww2.sinaimg.cn/large/60331ba6jw1f3lfotvhndj20zk0qoadm.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3972074492408136" target="freeweibo-mirror">SPAM #不见不知# 洗衣机到底多脏？权威机构发现，使用一…</a>
 </h2>
@@ -95,7 +95,7 @@
 </h2>
 <p>//@王楚襄在晋国:转发微博<br><br>RE: 纽约时报：北京大娘立案被拒拍照留证被司法拘留<br><img src="http://ww1.sinaimg.cn/large/6a80bfcdgw1f3ldrs3jb2j20ku3pch9k.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3972059111335287" target="freeweibo-mirror">纽约时报：北京大娘立案被拒拍照留证被司法拘留</a>
 </h2>
