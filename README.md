@@ -43,6 +43,12 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3972126057401160" target="freeweibo-mirror">今天上午，中宣部和国家网信办发布了“魏则西事件”网上调控管控…</a>
+</h2>
+<p>今天上午，中宣部和国家网信办发布了“魏则西事件”网上调控管控要求[话筒]『中宣部勒令魏则西事件降温 称警惕借机攻击党和政府 | 医疗界』http://t.cn/RqRcKrv</p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3972124601133471" target="freeweibo-mirror">就继续遮掩吧，脓疮上妆，粉饰太平。</a>
 </h2>
 <p>就继续遮掩吧，脓疮上妆，粉饰太平。<br><br>RE: 铛要降温魏则西事件, 这是最新报道要求...原因很简单, 因为这事本来就是档的体制问题, 大家最后都会明白, 档当然不敢, 越多人明白, 越难统治吖.<br><img src="http://ww3.sinaimg.cn/large/4834fe81gw1f3kpblc7pxj20m8063my7.jpg"></p>
@@ -132,12 +138,6 @@
 <p>SPAM //@边城老垦://@西子丹67: 退役军人集体维权传递出了什么？[话筒]//@陈光武律师: //@郝劲松: 复员战士依法维权<br><br>RE: 几个意思？ http://t.cn/RqHM827</p>
 <p>
 	<small> ============== 6小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3972060835911765" target="freeweibo-mirror">//@王楚襄在晋国:转发微博</a>
-</h2>
-<p>//@王楚襄在晋国:转发微博<br><br>RE: 纽约时报：北京大娘立案被拒拍照留证被司法拘留<br><img src="http://ww1.sinaimg.cn/large/6a80bfcdgw1f3ldrs3jb2j20ku3pch9k.jpg"></p>
-<p>
-	<small> ============== 7小时前</small>
 </p>
 <table>
     <tr>
