@@ -25,6 +25,12 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3972075897746608" target="freeweibo-mirror">正在参加国务院参事室的舆情座谈会，讨论近期的魏则西，疫苗等公…</a>
+</h2>
+<p>正在参加国务院参事室的舆情座谈会，讨论近期的魏则西，疫苗等公共事件。。领导很开明啊。说现在社会是事件社会，有公共事件是常态，没有是非常态。政府得回应，明确政府回应主体。实情处置和舆情引导不能两张皮。点赞。btw材料功课做的很足也。<br><img src="http://ww2.sinaimg.cn/large/60331ba6jw1f3lfotvhndj20zk0qoadm.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3972074492408136" target="freeweibo-mirror">SPAM #不见不知# 洗衣机到底多脏？权威机构发现，使用一…</a>
 </h2>
 <p>SPAM #不见不知# 洗衣机到底多脏？权威机构发现，使用一年以上洗衣机，总大肠杆菌检出率为100%。受污染的洗衣机洗宝宝衣服可不行！生活中还有那些不见不知的威胁？@TCL冰箱洗衣机 @苏宁冰洗 @苏宁易购# 真免污问TCL#<br><img src="http://ww4.sinaimg.cn/large/61b1385cgw1f3lfiq44vhj20qo17ctem.jpg"></p>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3971886537032748" target="freeweibo-mirror">这些场景让我想到一个词：薄氏的政治遗产。//@胡椒豆: //…</a>
 </h2>
 <p>这些场景让我想到一个词：薄氏的政治遗产。//@胡椒豆: //@静娅_: 这就是权力的作用，他们怀念这个，就可以直接上演这个。他们代表的只是自己的利益，跟人民群众的利益八竿子打不着。//@上海村妇: 很多标语口号都是文革中提出的，看来对文革怀念的人不在少数//@静娅_: 薄氏审判，我真不知道审的是<br><br>RE: 呵呵<br><img src="http://ww4.sinaimg.cn/large/656952ecjw1f3kcinym44j20qo1beaqg.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3971886239545826" target="freeweibo-mirror">当时重庆卫视为什么改版？改版后具体播出什么内容？看看吧：ht…</a>
-</h2>
-<p>当时重庆卫视为什么改版？改版后具体播出什么内容？看看吧：http://t.cn/ht2tDJ；http://t.cn/Rq8deil；http://t.cn/Rq8dk1J；http://t.cn/Rq8g7Im 关键是，改这么一个版就等于“搞文革”？这帽子也太无稽了吧。//@夜风27799:我不在重庆，不了解真实情况。但重庆卫视那段时间天<br><br>RE: 分享图片<br><img src="http://ww4.sinaimg.cn/large/6031cd2fgw1f3k60ytwpfj20qo1betbe.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
