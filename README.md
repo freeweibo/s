@@ -131,7 +131,7 @@
 </h2>
 <p>今天上午，中宣部和国家网信办发布了“魏则西事件”网上调控管控要求[话筒]『中宣部勒令魏则西事件降温 称警惕借机攻击党和政府 | 医疗界』http://t.cn/RqRcKrv</p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3972124601133471" target="freeweibo-mirror">就继续遮掩吧，脓疮上妆，粉饰太平。</a>
 </h2>
