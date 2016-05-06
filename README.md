@@ -19,6 +19,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3972088215760444" target="freeweibo-mirror">司法太随心所欲了！</a>
+</h2>
+<p>司法太随心所欲了！<br><br>RE: 纽约时报：北京大娘立案被拒拍照留证被司法拘留<br><img src="http://ww1.sinaimg.cn/large/6a80bfcdgw1f3ldrs3jb2j20ku3pch9k.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3972079533854710" target="freeweibo-mirror">[哈哈][哈哈]//@来去之间:右边跟我说，材料里面居然还点…</a>
 </h2>
 <p>[哈哈][哈哈]//@来去之间:右边跟我说，材料里面居然还点了俺的名，说俺给百度洗地……以后要谨言慎行了……<br><br>RE: 正在参加国务院参事室的舆情座谈会，讨论近期的魏则西，疫苗等公共事件。。领导很开明啊。说现在社会是事件社会，有公共事件是常态，没有是非常态。政府得回应，明确政府回应主体。实情处置和舆情引导不能两张皮。点赞。btw材料功课做的很足也。<br><img src="http://ww2.sinaimg.cn/large/60331ba6jw1f3lfotvhndj20zk0qoadm.jpg"></p>
@@ -41,13 +47,13 @@
 </h2>
 <p>SPAM //@边城老垦://@西子丹67: 退役军人集体维权传递出了什么？[话筒]//@陈光武律师: //@郝劲松: 复员战士依法维权<br><br>RE: 几个意思？ http://t.cn/RqHM827</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3972056427105027" target="freeweibo-mirror">【中国少女组合“56朵花”北京演唱红歌】中国少女组合“56朵…</a>
 </h2>
 <p>【中国少女组合“56朵花”北京演唱红歌】中国少女组合“56朵花”周一（2日）在北京开演唱会，曲目包括《大海航行靠舵手》等红歌，和《不知该怎么称呼你》等颂习歌曲，再次遭网民吐槽。中国国家行政学院教授汪玉凯受访时认为，这未必是领导人的本意，比较可能是一些人的投机行为。他也相信，今年两会前...全文： http://m.weibo.cn/1654134123/3972056427105027<br><img src="http://ww1.sinaimg.cn/large/6298156bjw1f3ldhbj8wij20f709bwh1.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3972052669416127" target="freeweibo-mirror">中纪委应该出面查办。//@陈业文新大都: 比薄时更甚。重庆当…</a>
 </h2>
@@ -71,7 +77,7 @@
 </h2>
 <p>几个意思？ http://t.cn/RqHM827</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3972039977250593" target="freeweibo-mirror">中宣部，你们有没有胆量公开澄清自己对这一严重政治事件的责任？…</a>
 </h2>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3971894841930157" target="freeweibo-mirror">不爱看重庆卫视，还有其他诸多卫视。就是重庆本地，也还有11个…</a>
 </h2>
 <p>不爱看重庆卫视，还有其他诸多卫视。就是重庆本地，也还有11个频道没改版——不过铺天盖地都是性病广告，不信你问问重庆人。说穿了，当时重庆卫视改版，不过是一种困境下的尝试与突破。对此，业内人士看得很清楚，哪有公知媒体逼逼的那么悬乎？ http://t.cn/Rq8FqzZ //@魅力鹰潭:<br><br>RE: 分享图片<br><img src="http://ww4.sinaimg.cn/large/6031cd2fgw1f3k60ytwpfj20qo1betbe.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3971886537032748" target="freeweibo-mirror">这些场景让我想到一个词：薄氏的政治遗产。//@胡椒豆: //…</a>
-</h2>
-<p>这些场景让我想到一个词：薄氏的政治遗产。//@胡椒豆: //@静娅_: 这就是权力的作用，他们怀念这个，就可以直接上演这个。他们代表的只是自己的利益，跟人民群众的利益八竿子打不着。//@上海村妇: 很多标语口号都是文革中提出的，看来对文革怀念的人不在少数//@静娅_: 薄氏审判，我真不知道审的是<br><br>RE: 呵呵<br><img src="http://ww4.sinaimg.cn/large/656952ecjw1f3kcinym44j20qo1beaqg.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
