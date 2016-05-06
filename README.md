@@ -47,7 +47,7 @@
 </h2>
 <p>SPAM //@尹鸿:无论是否逆转，其背后的运行逻辑都思来极恐，说明许多人对极左有预期预判，以至于不愿不敢有任何质疑，它才能在人民大会堂畅通无阻。<br><br>RE: 必须放在一起看才看得懂。<br><img src="http://ww1.sinaimg.cn/large/46e9d5dagw1f3lz19k9lyj20g50m8gmd.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3972275449392892" target="freeweibo-mirror">//@月湖无人区:应该是这一首吧：http://t.cn/R…</a>
 </h2>
@@ -77,7 +77,7 @@
 </h2>
 <p>SPAM [吃惊] //@水兵李铭:打倒工贼刘少奇这样的口号也可以用作背景//@鹿城小猪:我还以为穿越了，一群跳梁小丑<br><br>RE: 必须放在一起看才看得懂。<br><img src="http://ww1.sinaimg.cn/large/46e9d5dagw1f3lz19k9lyj20g50m8gmd.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3972259255112675" target="freeweibo-mirror">SPAM 懂了又能怎样？ //@诗人刀哥:还是不好懂！ //…</a>
 </h2>
