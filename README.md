@@ -29,7 +29,7 @@
 </h2>
 <p>SPAM 问得好。一碗水不能端平，是要出事的。民众个人可以各有所好，而政府对待各宗教应该一律平等。<br><br>RE: 为什么只有最后一张受到了批判？！<br><img src="http://ww3.sinaimg.cn/large/78fe4843jw1f3liq042o1j20go0ciwg4.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3972239478779666" target="freeweibo-mirror">！！！//@绿纬:为什么？因为有些渣渣故意制造民族间矛盾，宗…</a>
 </h2>
@@ -41,7 +41,7 @@
 </h2>
 <p>SPAM //@宏鑫88: //@孙亚1968:时刻准备，建立功勋，要把敌人，消灭干净，//@流氓六: 因为最后一张有风险 //@末陆风:很简单，前三张经过实践检验是完全绿色无害的。<br><br>RE: 为什么只有最后一张受到了批判？！<br><img src="http://ww3.sinaimg.cn/large/78fe4843jw1f3liq042o1j20go0ciwg4.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3972201063208788" target="freeweibo-mirror">SPAM 回复@山的那边2023:  这就是 “一锅两制”治…</a>
 </h2>
