@@ -125,7 +125,7 @@
 </h2>
 <p>这事够荒唐 //@陈昌凤:@陶景洲 这里信息齐全 //@博联社马晓霖:【红歌诈唱】 原来大有文章啊！//@闾丘露薇:门票盛惠1280人民币一张，不知各方如何分成？<br><br>RE: 必须放在一起看才看得懂。<br><img src="http://ww1.sinaimg.cn/large/46e9d5dagw1f3lz19k9lyj20g50m8gmd.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3972267488462621" target="freeweibo-mirror">文革是社会主义核心价值观？//@律师老周401://@Dop…</a>
 </h2>
