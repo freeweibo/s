@@ -95,19 +95,19 @@
 </h2>
 <p>SPAM 另外，这个声明实在写得文理不通。堂堂国字号文艺院团，连个像样的文字班底都没有？//@各各他之路:这标语大亮！//@林滤山:行骗都到人民大会堂了，有水平！<br><br>RE: 必须放在一起看才看得懂。<br><img src="http://ww1.sinaimg.cn/large/46e9d5dagw1f3lz19k9lyj20g50m8gmd.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3972274371459970" target="freeweibo-mirror">文革恶棍，一群疯子，病的不轻，不可救药</a>
 </h2>
 <p>文革恶棍，一群疯子，病的不轻，不可救药<br><br>RE: 必须放在一起看才看得懂。<br><img src="http://ww1.sinaimg.cn/large/46e9d5dagw1f3lz19k9lyj20g50m8gmd.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3972274199054255" target="freeweibo-mirror">SPAM 这标语大亮！//@林滤山:行骗都到人民大会堂了，有…</a>
 </h2>
 <p>SPAM 这标语大亮！//@林滤山:行骗都到人民大会堂了，有水平！<br><br>RE: 必须放在一起看才看得懂。<br><img src="http://ww1.sinaimg.cn/large/46e9d5dagw1f3lz19k9lyj20g50m8gmd.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3972272404453333" target="freeweibo-mirror">//@重出江湖68: 怕脸给冻着？//@巴山易老: 转发微博</a>
 </h2>
