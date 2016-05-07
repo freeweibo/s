@@ -19,6 +19,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3972545172285383" target="freeweibo-mirror">//@童之伟:老先生说得好。</a>
+</h2>
+<p>//@童之伟:老先生说得好。<br><br>RE: 茅于轼：删人家的微博，妨碍言论自由，是违背宪法的行为。我们要据理力争。百姓除了用宪法保护自由就没有别的工具了。如果连这个唯一的工具也放弃了，就只能束手待毙。呼吁一切权利受到侵犯的人都拿起宪法去讲理。中国的宪法不难在互联网上能找到。法律越用越有用；越不用就完全没用了。<br><img src="http://ww1.sinaimg.cn/large/9bbea019jw1f3lgriqftuj20j60a2wfh.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3972540391433824" target="freeweibo-mirror">SPAM #感谢妈妈，健康保护#都说最爱孩子的人永远是妈妈，…</a>
 </h2>
 <p>SPAM #感谢妈妈，健康保护#都说最爱孩子的人永远是妈妈，同样，在孩子的眼里，妈妈是世界上最好的妈妈，也想长大以后给她最好的！对妈妈的爱更是多年不变，继续守护她！http://t.cn/RqjK1aR一起见证爱的承诺，祝妈妈节日快乐！http://t.cn/RqQT4Ei</p>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3972456274655018" target="freeweibo-mirror">SPAM 找到这首《包子铺》歌词了：话说今年元旦之前的某一天…</a>
 </h2>
 <p>SPAM 找到这首《包子铺》歌词了：话说今年元旦之前的某一天儿，/我走进那包子铺用午餐。/排着队身后来了人一个，/你看他：身材魁梧气宇轩昂红光满面。/哎！怎么看着那么眼熟？ 服务员满眼惊喜迎上前，/“您请坐，想吃啥给您送桌前。"/他微微一笑又摆了一摆手，/他还是排在我的身后，队伍的最后边儿。<br><img src="http://ww3.sinaimg.cn/large/61fcc2a9jw1f3mnelz2q3j20ku11277m.jpg"></p>
-<p>
-	<small> ============== 8小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3972453791074308" target="freeweibo-mirror">SPAM 【http://t.cn/RqE4PEk】5月2日…</a>
-</h2>
-<p>SPAM 【http://t.cn/RqE4PEk】5月2日晚，在人民大会堂演出《在希望的田野上》，56朵花组合演唱1964年歌曲《大海航行靠舵手》，为90后的56朵花点赞！[赞][赞][赞][鲜花][鲜花][鲜花]</p>
 <p>
 	<small> ============== 8小时前</small>
 </p>
