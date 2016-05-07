@@ -25,6 +25,24 @@
 <p>
 	<small> ============== 1小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3972484359539019" target="freeweibo-mirror">//@又来金好多: 转发微博</a>
+</h2>
+<p>//@又来金好多: 转发微博<br><br>RE: 【海口，放人！】网悉：海口市秀英区强拆暴力欧打村民影像的摄像者被以妨害公务罪刑拘。1、你们已公开认定强拆违规，领导已被处理，打人者已被刑拘，说明你们公务是违法的，甚至是犯罪的，对违法犯罪行为进行抵制难道也犯罪吗？2、如果拘留的是摄像者，那么他不但无罪还是立功。因为他冒险记录了真像，...全文： http://m.weibo.cn/3941094672/3972443134184354<br><img src="http://ww1.sinaimg.cn/large/eae85510gw1f3mlg6103ij20jz0zkdjc.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3972472636679646" target="freeweibo-mirror">SPAM //@几多愁先生:内容精彩，先马后转[doge]</a>
+</h2>
+<p>SPAM //@几多愁先生:内容精彩，先马后转[doge]</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3972471092461580" target="freeweibo-mirror">//@张晨初艺术空间://@徐昕: 没有摄像者，就没有真相，…</a>
+</h2>
+<p>//@张晨初艺术空间://@徐昕: 没有摄像者，就没有真相，他应该获得国家勋章 //@法律人侯日欣:你们所谓的“公务”都被认定为违法甚至是犯罪行为了，还谈什么“妨害公务”？可笑！//@袭祥栋律师: 打击报复 //@崔小平律师:转发<br><br>RE: 【海口，放人！】网悉：海口市秀英区强拆暴力欧打村民影像的摄像者被以妨害公务罪刑拘。1、你们已公开认定强拆违规，领导已被处理，打人者已被刑拘，说明你们公务是违法的，甚至是犯罪的，对违法犯罪行为进行抵制难道也犯罪吗？2、如果拘留的是摄像者，那么他不但无罪还是立功。因为他冒险记录了真像，...全文： http://m.weibo.cn/3941094672/3972443134184354<br><img src="http://ww1.sinaimg.cn/large/eae85510gw1f3mlg6103ij20jz0zkdjc.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3972467691464991" target="freeweibo-mirror">//@茶余韵:茶余韵看后点赞[鼓掌][鼓掌][鼓掌][鼓掌]…</a>
 </h2>
 <p>//@茶余韵:茶余韵看后点赞[鼓掌][鼓掌][鼓掌][鼓掌][鼓掌][鼓掌][围观][围观][围观][围观][围观][围观][玫瑰][玫瑰][玫瑰][玫瑰][玫瑰][玫瑰]——红歌唱来何嘹亮，带来一丝明亮光。多年久违重新唱，正义回归大会堂！</p>
@@ -36,6 +54,12 @@
 <p>SPAM 【http://t.cn/RqE4PEk】5月2日晚，在人民大会堂演出《在希望的田野上》，56朵花组合演唱1964年歌曲《大海航行靠舵手》，为90后的56朵花点赞！[赞][赞][赞][鲜花][鲜花][鲜花]</p>
 <p>
 	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3972444073615536" target="freeweibo-mirror">放人！</a>
+</h2>
+<p>放人！<br><br>RE: 【海口，放人！】网悉：海口市秀英区强拆暴力欧打村民影像的摄像者被以妨害公务罪刑拘。1、你们已公开认定强拆违规，领导已被处理，打人者已被刑拘，说明你们公务是违法的，甚至是犯罪的，对违法犯罪行为进行抵制难道也犯罪吗？2、如果拘留的是摄像者，那么他不但无罪还是立功。因为他冒险记录了真像，...全文： http://m.weibo.cn/3941094672/3972443134184354<br><img src="http://ww1.sinaimg.cn/large/eae85510gw1f3mlg6103ij20jz0zkdjc.jpg"></p>
+<p>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3972443326259467" target="freeweibo-mirror">/@王小东: 他现在是政协领导，不是民委领导，为什么只是民族…</a>
 </h2>
@@ -83,7 +107,7 @@
 </h2>
 <p>//@大雁飞回来了:谁在骗谁？//@山人姚是青:真是出了鬼了！无影无踪！要不就是魔鬼干的！它在施展魔法的结果！//@用户5714905423://@小童看天下:其实最严重的是，在人民大会堂万人规模集会需要作出相应的安保，骗子们怎么把中央警卫局和公安局天安门地区分局骗住的？<br><br>RE: 受骗单位还有：新华社、中央电视台、人民网、新华网、人民政协报、搜狐网、腾讯网等数十家新闻单位和媒体。真魔幻<br><img src="http://ww2.sinaimg.cn/large/6d2df321jw1f3m3ff676zj20k00u9109.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3972283037347830" target="freeweibo-mirror">受骗单位还有：新华社、中央电视台、人民网、新华网、人民政协报…</a>
 </h2>
@@ -112,30 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3972280994211619" target="freeweibo-mirror">//@陈业文新大都:博主老兄是曾经在海里工作过的大人物。[嘻…</a>
 </h2>
 <p>//@陈业文新大都:博主老兄是曾经在海里工作过的大人物。[嘻嘻] //@北京江荣生:[哈哈] //@廖睿:极有可能。是这场晚会的策划者、组织者看形势不妙，拍马屁没拍好，赶紧抛出替罪羊。</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3972280721654026" target="freeweibo-mirror">SPAM 第三张图倒数第三首歌……[汗]</a>
-</h2>
-<p>SPAM 第三张图倒数第三首歌……[汗]<br><br>RE: 必须放在一起看才看得懂。<br><img src="http://ww1.sinaimg.cn/large/46e9d5dagw1f3lz19k9lyj20g50m8gmd.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3972279971224595" target="freeweibo-mirror">//@许克望SF: 转发微博</a>
-</h2>
-<p>//@许克望SF: 转发微博<br><br>RE: 必须放在一起看才看得懂。<br><img src="http://ww1.sinaimg.cn/large/46e9d5dagw1f3lz19k9lyj20g50m8gmd.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3972279383443190" target="freeweibo-mirror">SPAM [兔子][兔子]一双好的鞋，可以让你越走越远！喜欢…</a>
-</h2>
-<p>SPAM [兔子][兔子]一双好的鞋，可以让你越走越远！喜欢的加  薇   ❤：aixie12</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3972278704696582" target="freeweibo-mirror">SPAM //@尹鸿:无论是否逆转，其背后的运行逻辑都思来极…</a>
-</h2>
-<p>SPAM //@尹鸿:无论是否逆转，其背后的运行逻辑都思来极恐，说明许多人对极左有预期预判，以至于不愿不敢有任何质疑，它才能在人民大会堂畅通无阻。<br><br>RE: 必须放在一起看才看得懂。<br><img src="http://ww1.sinaimg.cn/large/46e9d5dagw1f3lz19k9lyj20g50m8gmd.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
