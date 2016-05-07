@@ -53,13 +53,13 @@
 </h2>
 <p>SPAM //@雁迷津渡:天哪 //@尹鸿:无论是否逆转，其背后的运行逻辑都思来极恐，说明许多人对极左有预期预判，以至于不愿不敢有任何质疑，它才能在人民大会堂畅通无阻。<br><br>RE: 必须放在一起看才看得懂。<br><img src="http://ww1.sinaimg.cn/large/46e9d5dagw1f3lz19k9lyj20g50m8gmd.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3972281858220087" target="freeweibo-mirror">//@自由职业者在浦东: //@张志安:这事够荒唐 //@陈…</a>
 </h2>
 <p>//@自由职业者在浦东: //@张志安:这事够荒唐 //@陈昌凤:@陶景洲 这里信息齐全 //@博联社马晓霖:【红歌诈唱】 原来大有文章啊！//@闾丘露薇:门票盛惠1280人民币一张，不知各方如何分成？<br><br>RE: 必须放在一起看才看得懂。<br><img src="http://ww1.sinaimg.cn/large/46e9d5dagw1f3lz19k9lyj20g50m8gmd.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3972281284049193" target="freeweibo-mirror">SPAM 包子铺</a>
 </h2>
