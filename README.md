@@ -19,17 +19,23 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3972386863255721" target="freeweibo-mirror">卧槽，一战！！//@机核网: 虽然发布会以及宣传片中只露出了…</a>
+</h2>
+<p>卧槽，一战！！//@机核网: 虽然发布会以及宣传片中只露出了XBOXONE版的消息，但是在官网上的预购界面中我们是能够看到PS4版与PC版的预购入口。  http://t.cn/RqEh3oj</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3972282617843801" target="freeweibo-mirror">SPAM //@雁迷津渡:天哪 //@尹鸿:无论是否逆转，其…</a>
 </h2>
 <p>SPAM //@雁迷津渡:天哪 //@尹鸿:无论是否逆转，其背后的运行逻辑都思来极恐，说明许多人对极左有预期预判，以至于不愿不敢有任何质疑，它才能在人民大会堂畅通无阻。<br><br>RE: 必须放在一起看才看得懂。<br><img src="http://ww1.sinaimg.cn/large/46e9d5dagw1f3lz19k9lyj20g50m8gmd.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3972281858220087" target="freeweibo-mirror">//@自由职业者在浦东: //@张志安:这事够荒唐 //@陈…</a>
 </h2>
 <p>//@自由职业者在浦东: //@张志安:这事够荒唐 //@陈昌凤:@陶景洲 这里信息齐全 //@博联社马晓霖:【红歌诈唱】 原来大有文章啊！//@闾丘露薇:门票盛惠1280人民币一张，不知各方如何分成？<br><br>RE: 必须放在一起看才看得懂。<br><img src="http://ww1.sinaimg.cn/large/46e9d5dagw1f3lz19k9lyj20g50m8gmd.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3972281284049193" target="freeweibo-mirror">SPAM 包子铺</a>
 </h2>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3972267488462621" target="freeweibo-mirror">文革是社会主义核心价值观？//@律师老周401://@Dop…</a>
 </h2>
 <p>文革是社会主义核心价值观？//@律师老周401://@DopeyTom:[吃惊] “社会主义核心价值观宣传教育”也被盗去行骗了？//@郭涛1969: 复杂 //@织梦作坊:[围观][围观]//@朝阳群众举报: 看不懂了//@LifeTime:[瞧瞧]<br><br>RE: 必须放在一起看才看得懂。<br><img src="http://ww1.sinaimg.cn/large/46e9d5dagw1f3lz19k9lyj20g50m8gmd.jpg"></p>
-<p>
-	<small> ============== 9小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3972265907611888" target="freeweibo-mirror">你想查谁？//@吴伟bj:建议彻查这一严重违背党的政治纪律的…</a>
-</h2>
-<p>你想查谁？//@吴伟bj:建议彻查这一严重违背党的政治纪律的事件，查清事件背后的策划者和组织者，给全社会一个交代！</p>
 <p>
 	<small> ============== 10小时前</small>
 </p>
