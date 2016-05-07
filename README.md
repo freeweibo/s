@@ -31,6 +31,18 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3972443326259467" target="freeweibo-mirror">/@王小东: 他现在是政协领导，不是民委领导，为什么只是民族…</a>
+</h2>
+<p>/@王小东: 他现在是政协领导，不是民委领导，为什么只是民族报登啊？//@网名过期:这条是政协的消息，政协不发，人民政协报不登载。居然是民委登在机关报纸民族报上的。可见王前主任虽然已经离任，但是民族报编辑们，对他的感情还是很深的。[喵喵]<br><br>RE: 王阿訇最近日子还是很好过的，刚刚去贵州苗族自治州扶贫调研了哦[doge]。照片中间那个就是，瘦了不少，真是公务繁忙，为党国尽心竭力啊。<br><img src="http://ww4.sinaimg.cn/large/ea3daad9gw1f3lw8z2bn2j20li0f0n50.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3972440318751333" target="freeweibo-mirror">SPAM 人家家长不知多自豪呢//@我是伏起: //@东之仁…</a>
+</h2>
+<p>SPAM 人家家长不知多自豪呢//@我是伏起: //@东之仁2012: //@东河-猎鹰倚天屠龙://@邓相超://@整合之道刘鸿雁: [挖鼻]<br><br>RE: 诈骗犯得入刑。只是心疼这些孩子，小小年龄充当了诈骗犯的工具，话说孩子的父母也是畜牲，懵懂的年龄，让她们去学习打倒美帝及走狗大海航行靠剁手，这是多么残忍。如果是你的孩子，你愿意送她去参加这种演出吗？<br><img src="http://ww3.sinaimg.cn/large/006koBh1jw1f3min55txej30zk0qowlw.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3972417745252676" target="freeweibo-mirror">SPAM 这个帖子，评论里毛粪疯了，[哈哈]都一大把年纪了，…</a>
 </h2>
 <p>SPAM 这个帖子，评论里毛粪疯了，[哈哈]都一大把年纪了，别气死了，你们在说，小心把你亲爹抬出来烧了，换人。[哈哈]<br><br>RE: 环球时报评论：唱《大海航行靠舵手》能有几多观众<br><img src="http://ww3.sinaimg.cn/large/75b1a75fgw1f3lu5lllz7j20oq5os7se.jpg"></p>
@@ -59,7 +71,7 @@
 </h2>
 <p>//@大雁飞回来了:谁在骗谁？//@山人姚是青:真是出了鬼了！无影无踪！要不就是魔鬼干的！它在施展魔法的结果！//@用户5714905423://@小童看天下:其实最严重的是，在人民大会堂万人规模集会需要作出相应的安保，骗子们怎么把中央警卫局和公安局天安门地区分局骗住的？<br><br>RE: 受骗单位还有：新华社、中央电视台、人民网、新华网、人民政协报、搜狐网、腾讯网等数十家新闻单位和媒体。真魔幻<br><img src="http://ww2.sinaimg.cn/large/6d2df321jw1f3m3ff676zj20k00u9109.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3972283037347830" target="freeweibo-mirror">受骗单位还有：新华社、中央电视台、人民网、新华网、人民政协报…</a>
 </h2>
@@ -124,18 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3972275671235450" target="freeweibo-mirror">嗯，一定会办得更好！[偷笑]//@北京老妪: 这场晚会办得好…</a>
 </h2>
 <p>嗯，一定会办得更好！[偷笑]//@北京老妪: 这场晚会办得好啊，只差一个薄总指挥就完满了。 //@廖睿: 极有可能。是这场晚会的策划者、组织者看形势不妙，拍马屁没拍好，赶紧抛出替罪羊。</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3972275461484949" target="freeweibo-mirror">SPAM //@LifeTime:[瞧瞧]</a>
-</h2>
-<p>SPAM //@LifeTime:[瞧瞧]<br><br>RE: 必须放在一起看才看得懂。<br><img src="http://ww1.sinaimg.cn/large/46e9d5dagw1f3lz19k9lyj20g50m8gmd.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3972275449392892" target="freeweibo-mirror">//@月湖无人区:应该是这一首吧：http://t.cn/R…</a>
-</h2>
-<p>//@月湖无人区:应该是这一首吧：http://t.cn/RqRBjZP  //@尤素的电线杆子:居然还有《包子铺》这个歌。//@闾丘露薇: 门票盛惠1280人民币一张，不知各方如何分成？<br><br>RE: 必须放在一起看才看得懂。<br><img src="http://ww1.sinaimg.cn/large/46e9d5dagw1f3lz19k9lyj20g50m8gmd.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
