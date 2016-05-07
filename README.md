@@ -29,7 +29,7 @@
 </h2>
 <p>SPAM 咱们有防火墙，不会看到的。//@当律师的陈刚:保护好小心脏 //@胡説罷刀://@诤友3: //@HK滅豬魔神56:<br><br>RE: 下周一，一个可供搜索的数据库将向公众公布，网址已公布。这一次，魑魅魍魉要显原形了……<br><img src="http://ww3.sinaimg.cn/large/ed60ebeagw1f3n8fvy9x6j20k00zktfj.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3972644477215360" target="freeweibo-mirror">SPAM //@李翔196811://@贺金云-://@陈启…</a>
 </h2>
