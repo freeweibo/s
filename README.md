@@ -71,7 +71,7 @@
 </h2>
 <p>//@叶子SSS: 即使是正常公务，为什么不能拍？<br><br>RE: 【海口，放人！】网悉：海口市秀英区强拆暴力欧打村民影像的摄像者被以妨害公务罪刑拘。1、你们已公开认定强拆违规，领导已被处理，打人者已被刑拘，说明你们公务是违法的，甚至是犯罪的，对违法犯罪行为进行抵制难道也犯罪吗？2、如果拘留的是摄像者，那么他不但无罪还是立功。因为他冒险记录了真像，...全文： http://m.weibo.cn/3941094672/3972443134184354<br><img src="http://ww1.sinaimg.cn/large/eae85510gw1f3mlg6103ij20jz0zkdjc.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3972472636679646" target="freeweibo-mirror">SPAM //@几多愁先生:内容精彩，先马后转[doge]</a>
 </h2>
@@ -107,7 +107,7 @@
 </h2>
 <p>SPAM 您还甭说，30个歌，会唱会哼哼28个，可惜过了报考的岁数。</p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3972456274655018" target="freeweibo-mirror">SPAM 找到这首《包子铺》歌词了：话说今年元旦之前的某一天…</a>
 </h2>
