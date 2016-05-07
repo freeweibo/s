@@ -53,7 +53,7 @@
 </h2>
 <p>诈骗犯得入刑。只是心疼这些孩子，小小年龄充当了诈骗犯的工具，话说孩子的父母也是畜牲，懵懂的年龄，让她们去学习打倒美帝及走狗大海航行靠剁手，这是多么残忍。如果是你的孩子，你愿意送她去参加这种演出吗？<br><img src="http://ww3.sinaimg.cn/large/006koBh1jw1f3min55txej30zk0qowlw.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3972391568998493" target="freeweibo-mirror">//@粉雨://@mbssjsw索士6世://@悲夫-愚夫:…</a>
 </h2>
