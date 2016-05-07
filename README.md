@@ -107,7 +107,7 @@
 </h2>
 <p>放人！<br><br>RE: 【海口，放人！】网悉：海口市秀英区强拆暴力欧打村民影像的摄像者被以妨害公务罪刑拘。1、你们已公开认定强拆违规，领导已被处理，打人者已被刑拘，说明你们公务是违法的，甚至是犯罪的，对违法犯罪行为进行抵制难道也犯罪吗？2、如果拘留的是摄像者，那么他不但无罪还是立功。因为他冒险记录了真像，...全文： http://m.weibo.cn/3941094672/3972443134184354<br><img src="http://ww1.sinaimg.cn/large/eae85510gw1f3mlg6103ij20jz0zkdjc.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3972443326259467" target="freeweibo-mirror">/@王小东: 他现在是政协领导，不是民委领导，为什么只是民族…</a>
 </h2>
@@ -131,7 +131,7 @@
 </h2>
 <p>诈骗犯得入刑。只是心疼这些孩子，小小年龄充当了诈骗犯的工具，话说孩子的父母也是畜牲，懵懂的年龄，让她们去学习打倒美帝及走狗大海航行靠剁手，这是多么残忍。如果是你的孩子，你愿意送她去参加这种演出吗？<br><img src="http://ww3.sinaimg.cn/large/006koBh1jw1f3min55txej30zk0qowlw.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3972391568998493" target="freeweibo-mirror">//@粉雨://@mbssjsw索士6世://@悲夫-愚夫:…</a>
 </h2>
