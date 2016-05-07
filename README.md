@@ -29,7 +29,7 @@
 </h2>
 <p>//@天山刀郎: 若不彻底反思文革，以后还会有人为文革招魂。//@胥荣东主任医师: [圍觀]//@邓相超<br><br>RE: 静待严查结果。<br><img src="http://ww1.sinaimg.cn/large/ad37d1f9gw1f3my1rk0e1j20j60y3wno.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3972578529958407" target="freeweibo-mirror">回复@石一灵:你太不自信了，中国现在的社会发展安定团结，除了…</a>
 </h2>
@@ -47,13 +47,13 @@
 </h2>
 <p>27年前抢救伤员的那些英雄，谁能叫出他们的名字？<br><img src="http://ww4.sinaimg.cn/large/006oYcXpgw1f3mzwew6h1j30e20andgl.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3972550088890213" target="freeweibo-mirror">//@不沉默的大多数: 「很佩服德意志民族对待法西斯纳粹和国…</a>
 </h2>
 <p>//@不沉默的大多数: 「很佩服德意志民族对待法西斯纳粹和国家社会主义的反思态度。连他们的孩子都懂得反思和质疑，甚至无情的逼问自己的父母：你们参加过纳粹没有？你杀过人吗？二战以后几乎全民族都在反思。我们应反思历史，拒绝遗忘，用拱卒精神推动反思“文革”。」[围观]这算是要绑架中央的态度？<br><br>RE: 马晓力：演出中出现"全世界人民团结起来打倒美帝国主义侵略者及其一切走狗"的口号，会对国内外释放不良信号，误导世界其他国家，可能会让这些国家将其错误理解为中国的新战略部署或决策。[哈哈]原来是这张图把某些人吓尿了 这话不是有落款吗，何来误解？<br><img src="http://ww3.sinaimg.cn/large/562bc1d7jw1f3mmjsh93nj20k00f00w0.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3972548900877567" target="freeweibo-mirror">静待严查结果。</a>
 </h2>
