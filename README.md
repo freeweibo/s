@@ -41,7 +41,7 @@
 </h2>
 <p>卧槽，一战！！//@机核网: 虽然发布会以及宣传片中只露出了XBOXONE版的消息，但是在官网上的预购界面中我们是能够看到PS4版与PC版的预购入口。  http://t.cn/RqEh3oj</p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3972374472366325" target="freeweibo-mirror">//@大雁飞回来了:谁在骗谁？//@山人姚是青:真是出了鬼了…</a>
 </h2>
