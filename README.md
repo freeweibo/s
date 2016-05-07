@@ -47,7 +47,7 @@
 </h2>
 <p>受骗单位还有：新华社、中央电视台、人民网、新华网、人民政协报、搜狐网、腾讯网等数十家新闻单位和媒体。真魔幻<br><img src="http://ww2.sinaimg.cn/large/6d2df321jw1f3m3ff676zj20k00u9109.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3972282617843801" target="freeweibo-mirror">SPAM //@雁迷津渡:天哪 //@尹鸿:无论是否逆转，其…</a>
 </h2>
