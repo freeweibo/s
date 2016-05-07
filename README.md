@@ -125,7 +125,7 @@
 </h2>
 <p>卧槽，一战！！//@机核网: 虽然发布会以及宣传片中只露出了XBOXONE版的消息，但是在官网上的预购界面中我们是能够看到PS4版与PC版的预购入口。  http://t.cn/RqEh3oj</p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3972374472366325" target="freeweibo-mirror">//@大雁飞回来了:谁在骗谁？//@山人姚是青:真是出了鬼了…</a>
 </h2>
@@ -133,9 +133,9 @@
 <p>
 	<small> ============== 9小时前</small>
 </p><h2>
-	<a href="https://freeweibo.com/weibo/3972283037347830" target="freeweibo-mirror">受骗单位还有：新华社、中央电视台、人民网、新华网、人民政协报…</a>
+	<a href="https://freeweibo.com/weibo/3972319045246831" target="freeweibo-mirror">「社會主義少女天團」……金三的後宮妃團還霸氣</a>
 </h2>
-<p>受骗单位还有：新华社、中央电视台、人民网、新华网、人民政协报、搜狐网、腾讯网等数十家新闻单位和媒体。真魔幻<br><img src="http://ww2.sinaimg.cn/large/6d2df321jw1f3m3ff676zj20k00u9109.jpg"></p>
+<p>「社會主義少女天團」……金三的後宮妃團還霸氣<br><img src="http://ww2.sinaimg.cn/large/006fm4yagw1f3m7nfqlj9j31bh0qo7c8.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
