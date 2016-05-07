@@ -101,7 +101,7 @@
 </h2>
 <p>我比老谢小半辈呢，也会28个，当年真是早熟啊。//@北平谢其章: 您还甭说，30个歌，会唱会哼哼28个，可惜过了报考的岁数。</p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3972460829161157" target="freeweibo-mirror">SPAM 您还甭说，30个歌，会唱会哼哼28个，可惜过了报考…</a>
 </h2>
@@ -125,7 +125,7 @@
 </h2>
 <p>没有太祖这个舵手，马晓力你爹马文瑞估计还在蒋秃子统治下种田吧，轮得到你出来对一场商业演出定性？草泥马！[弱][弱][弱]<br><img src="http://ww4.sinaimg.cn/large/ace54511gw1f3mmjaqotnj20k00zk0v6.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3972444073615536" target="freeweibo-mirror">放人！</a>
 </h2>
