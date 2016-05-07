@@ -19,6 +19,18 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3972580576075493" target="freeweibo-mirror">//@天山刀郎: 若不彻底反思文革，以后还会有人为文革招魂。…</a>
+</h2>
+<p>//@天山刀郎: 若不彻底反思文革，以后还会有人为文革招魂。//@胥荣东主任医师: [圍觀]//@邓相超<br><br>RE: 静待严查结果。<br><img src="http://ww1.sinaimg.cn/large/ad37d1f9gw1f3my1rk0e1j20j60y3wno.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3972575552074000" target="freeweibo-mirror">SPAM //@沉沦中再继续: 向博主致敬[鲜花] //@沉…</a>
+</h2>
+<p>SPAM //@沉沦中再继续: 向博主致敬[鲜花] //@沉沦中再继续:我从小认识的一个大我不少的，当年是手拉手纠察队员，他救过人！他爸是个大校军代表，当年动用一切关系历时大半年才知道儿子十四年！ //@陈一大嘴:戳请链接[泪流满面][最右] http://t.cn/RqE9ePY 基础文明求索: 北京人民做出了不小的牺牲和贡献！<br><br>RE: 27年前抢救伤员的那些英雄，谁能叫出他们的名字？<br><img src="http://ww4.sinaimg.cn/large/006oYcXpgw1f3mzwew6h1j30e20andgl.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3972545172285383" target="freeweibo-mirror">//@童之伟:老先生说得好。</a>
 </h2>
 <p>//@童之伟:老先生说得好。<br><br>RE: 茅于轼：删人家的微博，妨碍言论自由，是违背宪法的行为。我们要据理力争。百姓除了用宪法保护自由就没有别的工具了。如果连这个唯一的工具也放弃了，就只能束手待毙。呼吁一切权利受到侵犯的人都拿起宪法去讲理。中国的宪法不难在互联网上能找到。法律越用越有用；越不用就完全没用了。<br><img src="http://ww1.sinaimg.cn/large/9bbea019jw1f3lgriqftuj20j60a2wfh.jpg"></p>
@@ -126,18 +138,6 @@
 <p>我比老谢小半辈呢，也会28个，当年真是早熟啊。//@北平谢其章: 您还甭说，30个歌，会唱会哼哼28个，可惜过了报考的岁数。</p>
 <p>
 	<small> ============== 9小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3972460829161157" target="freeweibo-mirror">SPAM 您还甭说，30个歌，会唱会哼哼28个，可惜过了报考…</a>
-</h2>
-<p>SPAM 您还甭说，30个歌，会唱会哼哼28个，可惜过了报考的岁数。</p>
-<p>
-	<small> ============== 10小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3972456274655018" target="freeweibo-mirror">SPAM 找到这首《包子铺》歌词了：话说今年元旦之前的某一天…</a>
-</h2>
-<p>SPAM 找到这首《包子铺》歌词了：话说今年元旦之前的某一天儿，/我走进那包子铺用午餐。/排着队身后来了人一个，/你看他：身材魁梧气宇轩昂红光满面。/哎！怎么看着那么眼熟？ 服务员满眼惊喜迎上前，/“您请坐，想吃啥给您送桌前。"/他微微一笑又摆了一摆手，/他还是排在我的身后，队伍的最后边儿。<br><img src="http://ww3.sinaimg.cn/large/61fcc2a9jw1f3mnelz2q3j20ku11277m.jpg"></p>
-<p>
-	<small> ============== 10小时前</small>
 </p>
 <table>
     <tr>
