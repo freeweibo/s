@@ -41,7 +41,7 @@
 </h2>
 <p>//@南开老魏034://@马克思的粉丝: 转发微博<br><br>RE: 这号秒灭，速度右键！[嘘][嘘][嘘]<br><img src="http://ww1.sinaimg.cn/large/006dpeoAgw1f3o7h85gd3j30j6bz6e6r.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3972971016640121" target="freeweibo-mirror">演出时背景有一幅文革时期的宣传画，上写“全世界人民团结起来，…</a>
 </h2>
