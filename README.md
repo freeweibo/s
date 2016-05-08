@@ -25,6 +25,12 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3972882641716117" target="freeweibo-mirror">我分享了http://t.cn/Rqn8lLL</a>
+</h2>
+<p>我分享了http://t.cn/Rqn8lLL</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3972850346313923" target="freeweibo-mirror">SPAM //@烛心话:阅读全文请看文章最下图，后续更精彩！</a>
 </h2>
 <p>SPAM //@烛心话:阅读全文请看文章最下图，后续更精彩！</p>
@@ -95,7 +101,7 @@
 </h2>
 <p>//@陈光武律师://@David王大维: //@周铁东本人://@Esther_15481://@夙生律师事务所: //@與點山房: //@人治社会没有法: //@南开老魏034://@雁塔晓木屋: //@公民王海滨: //@青春的gw89://@禁言too: //@徐纲新微博:转发微博<br><br>RE: 不知道他们你就不知道我们活在什么国度！<br><img src="http://ww1.sinaimg.cn/large/6a12687fjw1f3n6p4fyj8j20k00zkad1.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3972653956320029" target="freeweibo-mirror">[猪头]土匪血统！//@章国锡: //@迷人的摧花辣手196…</a>
 </h2>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3972645714693860" target="freeweibo-mirror">这是有些人格分裂者的自我孤立，是脱离群众 压制群众最愚昧的蠢…</a>
 </h2>
 <p>这是有些人格分裂者的自我孤立，是脱离群众 压制群众最愚昧的蠢行，是想霸占垄断舞台的一代对民间年轻力量的挑衅。<br><br>RE: 【天上太阳红彤彤】@五十六朵花 红歌视频被封杀了。五十六个民族五十六朵花，五十六个民族怀念毛泽东他老人家。我不明白这有什么错，为何要封杀。毛泽东是党的主要缔造者和开国领袖，怀念他，代表着百姓热爱党、热爱这个国家。红歌唱起来，爱党爱国行动起来！http://t.cn/RqRsfLA</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3972645588483885" target="freeweibo-mirror">冒充中宣部之说是唬外行！我身边专业人士说，中歌乃直属院团。筹…</a>
-</h2>
-<p>冒充中宣部之说是唬外行！我身边专业人士说，中歌乃直属院团。筹组多家参演的超大演唱会几月前就应分头排练。从主题策划撰稿编导排练，到合成联排彩排装台走台调光试音直至演出，台前幕后事无巨细，皇城要地举办重大政治性演出非中宣部首肯实难成行。他们是否唱乱套俺们不得而知，但找顶包实在太丢人。<br><img src="http://ww2.sinaimg.cn/large/006j7qyRjw1f3n7ysnuofj30qo1baak4.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
