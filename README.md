@@ -89,7 +89,7 @@
 </h2>
 <p>SPAM //@又来金好多://@迟夙生律师:[泪] //@王修216:[话筒]<br><br>RE: 海口长流琼华村村民公开信 http://t.cn/8k6GTAp<br><img src="http://ww1.sinaimg.cn/large/3ea9a72bjw1f3nxxsmpa1j20c84n3khn.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3972890284158571" target="freeweibo-mirror">这种傻帽又来了。//@bfjsj: 你为什么这么仇恨文革，你…</a>
 </h2>
