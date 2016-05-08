@@ -31,9 +31,27 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3972890284158571" target="freeweibo-mirror">这种傻帽又来了。//@bfjsj: 你为什么这么仇恨文革，你…</a>
+</h2>
+<p>这种傻帽又来了。//@bfjsj: 你为什么这么仇恨文革，你是走资派还是地富反坏右，还是牛鬼蛇神。//@崔小平律师: //@昕静自然好://@陈-建新://@静娅_:就在今天，看团中央官微发不许诋毁毛，人民日报官微发微博，将数百万知青下放说成是毛对社会主<br><br>RE: @石讷shine：5.2事件，敲响了国民警钟：文革就在近前。文革，血迹未干，尸骨未寒，已经兵临城下！拒绝文革不再是高堂论道、坊间说鬼，已经是人人不能自外其身的公民责任。这是一场公共安全危机。</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3972889475247561" target="freeweibo-mirror">总感觉有一拨人维恐天下不乱，故意制造各种事端。//@哪儿都不…</a>
+</h2>
+<p>总感觉有一拨人维恐天下不乱，故意制造各种事端。//@哪儿都不敏感: 故意煽风点火，在政府和网民间制造对立，这样他们就能攫取更多权力。//@雷颐:转发微博<br><br>RE: @石讷shine：5.2事件，敲响了国民警钟：文革就在近前。文革，血迹未干，尸骨未寒，已经兵临城下！拒绝文革不再是高堂论道、坊间说鬼，已经是人人不能自外其身的公民责任。这是一场公共安全危机。</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3972886915806521" target="freeweibo-mirror">SPAM //@法律人童朝平: //@传承中华文化: 老雷换…</a>
 </h2>
 <p>SPAM //@法律人童朝平: //@传承中华文化: 老雷换发型了<br><br>RE: 我分享了http://t.cn/Rqn8lLL</p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3972885984704593" target="freeweibo-mirror">SPAM 真相自在人心！//@迟夙生律师:[泪] //@王修…</a>
+</h2>
+<p>SPAM 真相自在人心！//@迟夙生律师:[泪] //@王修216:[话筒]<br><br>RE: 海口长流琼华村村民公开信 http://t.cn/8k6GTAp<br><img src="http://ww1.sinaimg.cn/large/3ea9a72bjw1f3nxxsmpa1j20c84n3khn.jpg"></p>
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
@@ -49,11 +67,47 @@
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3972883573255115" target="freeweibo-mirror">SPAM //@迟夙生律师:[泪] //@王修216:[话筒…</a>
+</h2>
+<p>SPAM //@迟夙生律师:[泪] //@王修216:[话筒]<br><br>RE: 海口长流琼华村村民公开信 http://t.cn/8k6GTAp<br><img src="http://ww1.sinaimg.cn/large/3ea9a72bjw1f3nxxsmpa1j20c84n3khn.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3972883233538673" target="freeweibo-mirror">SPAM //@迟夙生律师: [泪] //@王修216:[话…</a>
+</h2>
+<p>SPAM //@迟夙生律师: [泪] //@王修216:[话筒]<br><br>RE: 海口长流琼华村村民公开信 http://t.cn/8k6GTAp<br><img src="http://ww1.sinaimg.cn/large/3ea9a72bjw1f3nxxsmpa1j20c84n3khn.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3972882641716117" target="freeweibo-mirror">我分享了http://t.cn/Rqn8lLL</a>
 </h2>
 <p>我分享了http://t.cn/Rqn8lLL</p>
 <p>
 	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3972875671056327" target="freeweibo-mirror">不客气滴说，当朝有一些手握大权力和资源的权贵阶层，对这个国家…</a>
+</h2>
+<p>不客气滴说，当朝有一些手握大权力和资源的权贵阶层，对这个国家和民族的未来毫无责任感，眼中只盯着眼皮底下那点权力。却又喜欢拉大旗作虎皮。//@康康上海7: 现在问题不是文革会不会来，因为已经来了。文革不仅仅是“打砸抢”一种形式，文革最大的内核是愚民然后唆使内斗，当权者玩火中取栗的游戏<br><br>RE: @石讷shine：5.2事件，敲响了国民警钟：文革就在近前。文革，血迹未干，尸骨未寒，已经兵临城下！拒绝文革不再是高堂论道、坊间说鬼，已经是人人不能自外其身的公民责任。这是一场公共安全危机。</p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3972873024535417" target="freeweibo-mirror">恩，我说错了，是求是网的官微@旗帜。//@bj-鲁公: 今天…</a>
+</h2>
+<p>恩，我说错了，是求是网的官微@旗帜。//@bj-鲁公: 今天@旗帜 就给文革副产品知青下乡插队运动翻案。<br><br>RE: @石讷shine：5.2事件，敲响了国民警钟：文革就在近前。文革，血迹未干，尸骨未寒，已经兵临城下！拒绝文革不再是高堂论道、坊间说鬼，已经是人人不能自外其身的公民责任。这是一场公共安全危机。</p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3972871086615564" target="freeweibo-mirror">不客气，这也是我想说的，就在今天，看团中央官微发不许诋毁毛，…</a>
+</h2>
+<p>不客气，这也是我想说的，就在今天，看团中央官微发不许诋毁毛，人民日报官微发微博，将数百万知青下放说成是毛对社会主义道路的探索实践，是新农村建设探索实践。显然有人故意歪解曾经发生过的历史悲剧。//@石讷shine：谢静娅老师转贴！//@北方的雪V//@静娅_:不清算文革，就会有死灰复燃幽灵重现的一<br><br>RE: @石讷shine：5.2事件，敲响了国民警钟：文革就在近前。文革，血迹未干，尸骨未寒，已经兵临城下！拒绝文革不再是高堂论道、坊间说鬼，已经是人人不能自外其身的公民责任。这是一场公共安全危机。</p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3972864481254221" target="freeweibo-mirror">不清算文革，就会有死灰复燃幽灵重现的一天。</a>
+</h2>
+<p>不清算文革，就会有死灰复燃幽灵重现的一天。<br><br>RE: @石讷shine：5.2事件，敲响了国民警钟：文革就在近前。文革，血迹未干，尸骨未寒，已经兵临城下！拒绝文革不再是高堂论道、坊间说鬼，已经是人人不能自外其身的公民责任。这是一场公共安全危机。</p>
+<p>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3972850346313923" target="freeweibo-mirror">SPAM //@烛心话:阅读全文请看文章最下图，后续更精彩！</a>
 </h2>
@@ -84,60 +138,6 @@
 <p>SPAM 【五月不减肥，六七八月徒伤悲】[话筒]</p>
 <p>
 	<small> ============== 7小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3972809275910195" target="freeweibo-mirror">SPAM 5月2号这场为文化大革命招魂的演出，很多人错过了一…</a>
-</h2>
-<p>SPAM 5月2号这场为文化大革命招魂的演出，很多人错过了一个细节。就是谁花钱买了那个票？这是典型的利益输送，肯定有哪个机构，给背后的演出商送钱。正常人不会花1200块钱，去听十几首破歌。毛左们更不会。<br><img src="http://ww1.sinaimg.cn/large/6362d8eagw1f3nrwqtf0cj207p0addgl.jpg"></p>
-<p>
-	<small> ============== 8小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3972808847424122" target="freeweibo-mirror">SPAM 前几日还见电视塔放映韩后的广告，昨日就变成： #统…</a>
-</h2>
-<p>SPAM 前几日还见电视塔放映韩后的广告，昨日就变成： #统一冰红茶热波电跑# 啦！怪不得大家都在讲一个#广州小蛮腰跑了# 的冷笑话，今早我才明白！统一冰红茶从韩后手里“拐跑”了小蛮腰，咩哈哈。另外，亲爱的们，昨晚陈秋实蔡照CP、女团1931红队都去领跑了！@热波传媒_Zebra @陈秋实_Chambers @蔡照CAY-Z<br><img src="http://ww1.sinaimg.cn/large/5417c226gw1f3noknb02qj20rs0ijdky.jpg"></p>
-<p>
-	<small> ============== 8小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3972795577100206" target="freeweibo-mirror">问了下刘士余前农行的同事，刘是谨言慎行的人，不会在非公开场合…</a>
-</h2>
-<p>问了下刘士余前农行的同事，刘是谨言慎行的人，不会在非公开场合谈工作，是不是喝多，还是杜撰，不得而知[可怜]<br><img src="http://ww4.sinaimg.cn/large/530952abgw1f3nqc9w12aj20ci0k8mya.jpg"></p>
-<p>
-	<small> ============== 9小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3972791818882297" target="freeweibo-mirror">【衬衫是定制呢，还是定制呢，还是定制呢】每一位男人都应该有一…</a>
-</h2>
-<p>【衬衫是定制呢，还是定制呢，还是定制呢】每一位男人都应该有一件量身定制的专属衬衫！夏天来了，衬衫准备好了吗！悦杰定制俱乐部上海旗舰店，立夏优惠，开启私人定制时代。应朋友推荐，我也定制了几件，就是图中的三款，确实比商店里买的合体贴身，你也来吧。戳→_→ http://t.cn/RqEz0JS<br><img src="http://ww3.sinaimg.cn/large/53ae0b70jw1f3npuz3lfcj20cl0950ss.jpg"></p>
-<p>
-	<small> ============== 9小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3972747799298342" target="freeweibo-mirror">SPAM //@珠海小魚女:这笔血债该清算了！</a>
-</h2>
-<p>SPAM //@珠海小魚女:这笔血债该清算了！</p>
-<p>
-	<small> ============== 12小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3972746184223834" target="freeweibo-mirror">SPAM 夏天到了，衣服越穿越少，最近总为藏不住的肉肉而苦恼…</a>
-</h2>
-<p>SPAM 夏天到了，衣服越穿越少，最近总为藏不住的肉肉而苦恼，戳图↓↓↓ 大家一起来减肥大作战</p>
-<p>
-	<small> ============== 12小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3972729818683783" target="freeweibo-mirror">//@陈光武律师://@David王大维: //@周铁东本人…</a>
-</h2>
-<p>//@陈光武律师://@David王大维: //@周铁东本人://@Esther_15481://@夙生律师事务所: //@與點山房: //@人治社会没有法: //@南开老魏034://@雁塔晓木屋: //@公民王海滨: //@青春的gw89://@禁言too: //@徐纲新微博:转发微博<br><br>RE: 不知道他们你就不知道我们活在什么国度！<br><img src="http://ww1.sinaimg.cn/large/6a12687fjw1f3n6p4fyj8j20k00zkad1.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3972653956320029" target="freeweibo-mirror">[猪头]土匪血统！//@章国锡: //@迷人的摧花辣手196…</a>
-</h2>
-<p>[猪头]土匪血统！//@章国锡: //@迷人的摧花辣手1965:她爹朋鸟至今还因为广场镇压事件被海牙国际法庭通缉呢。//@沙漠渔夫809://@孔维嘉://@火星青蛇xss://@俗-人-王-軍-9://@力天-之度: //@社会主义下的9527: //@我被骗的经历03://@良心于23: 艹！//@泥腿子土八路一个:呵呵<br><br>RE: 简直是天大的笑话，一个要给我们建立道德档案的人，赫然出现在瑞士银行的大客户名单里。我们大家再没有道德，也不会像她那样，一边大肆侵吞人民的资产转移到国外，一边腆着一张逼脸要求记录人民的道德档案。这是他妈的什么精神？做婊子立牌坊不说，居然要求所有良家妇女顶礼膜拜她。 @王麒摄影师<br><img src="http://ww2.sinaimg.cn/large/006poWcrgw1f3n2c5axl3j30cs0fcq4x.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3972652651965997" target="freeweibo-mirror">[猪头]//@喷嚏网铂程: 转发微博</a>
-</h2>
-<p>[猪头]//@喷嚏网铂程: 转发微博<br><br>RE: 据消息人士透露，这两天兰州的莆田系医院，晚上把好多资料拉到山里焚烧，公示栏里的专家照片全部撤下，性质和去年非法集资诈骗集团e租宝的特大诈骗犯丁宁指示把资料埋在荒郊野外的地底数十米处一模一样。</p>
-<p>
-	<small> ============== 1天前</small>
 </p>
 <table>
     <tr>
