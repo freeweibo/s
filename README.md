@@ -23,7 +23,7 @@
 </h2>
 <p>SPAM 越看越气[怒][话筒]<br><br>RE: #老谈说事# 这个土匪太恶劣 [话筒][怒] http://t.cn/R2GEnTW</p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3973001747794938" target="freeweibo-mirror">#老谈说事# 这个土匪太恶劣 [话筒][怒] http://…</a>
 </h2>
