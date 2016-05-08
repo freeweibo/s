@@ -35,7 +35,7 @@
 </h2>
 <p>//@梁山汉://@三角锋评:[怒]占耕地不对你们就打，草尼玛河里不能摸石头你们还是要去摸？//@孔_智勇: [泪]//@法律人童朝平:[泪]//@迟夙生律师:[泪]//@王修216:[泪]<br><br>RE: 海口长流琼华村村民公开信 http://t.cn/8k6GTAp<br><img src="http://ww1.sinaimg.cn/large/3ea9a72bjw1f3nxxsmpa1j20c84n3khn.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3972891458279538" target="freeweibo-mirror">SPAM //@又来金好多://@迟夙生律师:[泪] //@…</a>
 </h2>
@@ -59,13 +59,13 @@
 </h2>
 <p>SPAM //@法律人童朝平: //@传承中华文化: 老雷换发型了<br><br>RE: 我分享了http://t.cn/Rqn8lLL</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3972885984704593" target="freeweibo-mirror">SPAM 真相自在人心！//@迟夙生律师:[泪] //@王修…</a>
 </h2>
 <p>SPAM 真相自在人心！//@迟夙生律师:[泪] //@王修216:[话筒]<br><br>RE: 海口长流琼华村村民公开信 http://t.cn/8k6GTAp<br><img src="http://ww1.sinaimg.cn/large/3ea9a72bjw1f3nxxsmpa1j20c84n3khn.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3972885532509128" target="freeweibo-mirror">SPAM //@传承中华文化: 老雷换发型了</a>
 </h2>
@@ -125,7 +125,7 @@
 </h2>
 <p>不客气，这也是我想说的，就在今天，看团中央官微发不许诋毁毛，人民日报官微发微博，将数百万知青下放说成是毛对社会主义道路的探索实践，是新农村建设探索实践。显然有人故意歪解曾经发生过的历史悲剧。//@石讷shine：谢静娅老师转贴！//@北方的雪V//@静娅_:不清算文革，就会有死灰复燃幽灵重现的一<br><br>RE: @石讷shine：5.2事件，敲响了国民警钟：文革就在近前。文革，血迹未干，尸骨未寒，已经兵临城下！拒绝文革不再是高堂论道、坊间说鬼，已经是人人不能自外其身的公民责任。这是一场公共安全危机。</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3972864481254221" target="freeweibo-mirror">不清算文革，就会有死灰复燃幽灵重现的一天。</a>
 </h2>
