@@ -53,7 +53,7 @@
 </h2>
 <p>SPAM 5月2号这场为文化大革命招魂的演出，很多人错过了一个细节。就是谁花钱买了那个票？这是典型的利益输送，肯定有哪个机构，给背后的演出商送钱。正常人不会花1200块钱，去听十几首破歌。毛左们更不会。<br><img src="http://ww1.sinaimg.cn/large/6362d8eagw1f3nrwqtf0cj207p0addgl.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3972808847424122" target="freeweibo-mirror">SPAM 前几日还见电视塔放映韩后的广告，昨日就变成： #统…</a>
 </h2>
