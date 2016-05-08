@@ -19,6 +19,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3972885532509128" target="freeweibo-mirror">SPAM //@传承中华文化: 老雷换发型了</a>
+</h2>
+<p>SPAM //@传承中华文化: 老雷换发型了<br><br>RE: 我分享了http://t.cn/Rqn8lLL</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3972850346313923" target="freeweibo-mirror">SPAM //@烛心话:阅读全文请看文章最下图，后续更精彩！</a>
 </h2>
 <p>SPAM //@烛心话:阅读全文请看文章最下图，后续更精彩！</p>
@@ -65,7 +71,7 @@
 </h2>
 <p>问了下刘士余前农行的同事，刘是谨言慎行的人，不会在非公开场合谈工作，是不是喝多，还是杜撰，不得而知[可怜]<br><img src="http://ww4.sinaimg.cn/large/530952abgw1f3nqc9w12aj20ci0k8mya.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3972791818882297" target="freeweibo-mirror">【衬衫是定制呢，还是定制呢，还是定制呢】每一位男人都应该有一…</a>
 </h2>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3972645588483885" target="freeweibo-mirror">冒充中宣部之说是唬外行！我身边专业人士说，中歌乃直属院团。筹…</a>
 </h2>
 <p>冒充中宣部之说是唬外行！我身边专业人士说，中歌乃直属院团。筹组多家参演的超大演唱会几月前就应分头排练。从主题策划撰稿编导排练，到合成联排彩排装台走台调光试音直至演出，台前幕后事无巨细，皇城要地举办重大政治性演出非中宣部首肯实难成行。他们是否唱乱套俺们不得而知，但找顶包实在太丢人。<br><img src="http://ww2.sinaimg.cn/large/006j7qyRjw1f3n7ysnuofj30qo1baak4.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3972644477215360" target="freeweibo-mirror">SPAM //@李翔196811://@贺金云-://@陈启…</a>
-</h2>
-<p>SPAM //@李翔196811://@贺金云-://@陈启宙://@黄奎ART://@博者文摘: //@六安自媒体://@深圳单身情人: 人神共愤！//@CQ独舞:海南强拆，暴力执法，天理难容！！！</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
