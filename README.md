@@ -23,11 +23,17 @@
 </h2>
 <p>SPAM 越看越气[怒][话筒]<br><br>RE: #老谈说事# 这个土匪太恶劣 [话筒][怒] http://t.cn/R2GEnTW</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3973001747794938" target="freeweibo-mirror">#老谈说事# 这个土匪太恶劣 [话筒][怒] http://…</a>
 </h2>
 <p>#老谈说事# 这个土匪太恶劣 [话筒][怒] http://t.cn/R2GEnTW</p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3973001164884762" target="freeweibo-mirror">这图配的//@中国懵: //@真理与大炮://@bingwe…</a>
+</h2>
+<p>这图配的//@中国懵: //@真理与大炮://@bingwen09: //@地球新媒体: //@Overbluesky: 高！//@良心-医生: @环球时报 @新京报 @杨锦麟 @中国懵<br><br>RE: 演出时背景有一幅文革时期的宣传画，上写“全世界人民团结起来，打败美帝国主义及其一切走狗。”马晓力称“这必将影响到国内外对我国未来走势的判断”。这样会使习近平建立起来的中美夫妻关系遭到破坏。请问：中美夫妻关系是习近平建立起来的？真是骂人不带脏字，你这么说，温某和汪某同意吗？<br><img src="http://ww3.sinaimg.cn/large/006aldHMgw1f3oagut1x4j30c807v0sz.jpg"></p>
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
@@ -47,7 +53,7 @@
 </h2>
 <p>SPAM [cp]实力厂家诚招全国代理，让你从此闪亮起来！千里之行始于足下，这里有千里马，你敢挑战伯乐？平凡不是宿命，生命在于运动！扬帆起航，敢于挑战就能成就下个阿里巴巴，不管你是宅男宅女帅哥女神，让我们从这里开始 + v   : 1 9 3 1 5 1 3 6 6 8<br><img src="http://ww2.sinaimg.cn/large/6acdb97fgw1f3o60at5f3j20k00f0jtf.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3972921846751548" target="freeweibo-mirror">呵呵！有點意思。//@黄易快乐天使:[哈哈][哈哈] htt…</a>
 </h2>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3972883233538673" target="freeweibo-mirror">SPAM //@迟夙生律师: [泪] //@王修216:[话…</a>
 </h2>
 <p>SPAM //@迟夙生律师: [泪] //@王修216:[话筒]<br><br>RE: 海口长流琼华村村民公开信 http://t.cn/8k6GTAp<br><img src="http://ww1.sinaimg.cn/large/3ea9a72bjw1f3nxxsmpa1j20c84n3khn.jpg"></p>
-<p>
-	<small> ============== 11小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3972882641716117" target="freeweibo-mirror">我分享了http://t.cn/Rqn8lLL</a>
-</h2>
-<p>我分享了http://t.cn/Rqn8lLL</p>
 <p>
 	<small> ============== 11小时前</small>
 </p>
