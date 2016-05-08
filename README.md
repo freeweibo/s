@@ -47,7 +47,7 @@
 </h2>
 <p>SPAM 【五月不减肥，六七八月徒伤悲】[话筒]</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3972809275910195" target="freeweibo-mirror">SPAM 5月2号这场为文化大革命招魂的演出，很多人错过了一…</a>
 </h2>
