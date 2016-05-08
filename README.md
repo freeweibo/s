@@ -65,7 +65,7 @@
 </h2>
 <p>问了下刘士余前农行的同事，刘是谨言慎行的人，不会在非公开场合谈工作，是不是喝多，还是杜撰，不得而知[可怜]<br><img src="http://ww4.sinaimg.cn/large/530952abgw1f3nqc9w12aj20ci0k8mya.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3972791818882297" target="freeweibo-mirror">【衬衫是定制呢，还是定制呢，还是定制呢】每一位男人都应该有一…</a>
 </h2>
