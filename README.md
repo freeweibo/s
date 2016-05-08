@@ -65,13 +65,13 @@
 </h2>
 <p>呵呵！有點意思。//@黄易快乐天使:[哈哈][哈哈] http://t.cn/Rqm7SmT //@紧爷要说话: [拍照]//@南开老魏034: //@心香肆溢A: 转发微博</p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3972921209253379" target="freeweibo-mirror">//@乡中语://@单蛋_3252://@天下为公111l:…</a>
 </h2>
 <p>//@乡中语://@单蛋_3252://@天下为公111l: 转发微博<br><br>RE: 就废除食盐垄断致习总书记和李总理的公开信 ——如果废除垄断就是为了废除中国人的生命安全保障，： 5月5日，国家宣布废除中国实行2600多年的食盐垄断制度。 就废除食盐垄断致习总书记和李总理...文字版>> http://t.cn/Rqn69Zq （新浪长微博>> http://t.cn/zOXAaic）<br><img src="http://ww1.sinaimg.cn/large/b6ddfe6djw1f3npt9z3wpj20c818046y.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3972908588216237" target="freeweibo-mirror">//@上海陈子善:如下决心严查，一查到底，不必等很久，就会有…</a>
 </h2>
