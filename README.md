@@ -19,6 +19,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3973291888324004" target="freeweibo-mirror">//@伟荣V实说://@戎戎日97记: [嘻嘻]</a>
+</h2>
+<p>//@伟荣V实说://@戎戎日97记: [嘻嘻]</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3973290622145390" target="freeweibo-mirror">[泪流满面] //@-静海心语-:五毛可以解释一下吗？ 改开…</a>
 </h2>
 <p>[泪流满面] //@-静海心语-:五毛可以解释一下吗？ 改开把外国人请回来了，把工农撵下台了，让学生们交费了，让妓女重操旧业了，把毒品翻出来了，让恶霸贪官们当官，让工人们下岗，让农民失地，让农民变成农民工，让农村的孩子变成留守儿童，遍地的上访民众都是他们逼出来的。</p>
@@ -47,7 +53,7 @@
 </h2>
 <p>【党和国家的最大危险】文革全面重演的可能性几乎为零，最大的危险是部分重演，从而把老邓的一个中心路线改成小邓（邓力群）的两个中心（经济和阶级斗争）路线。那样的话，中国共产党和中华人民共和国都将走向崩溃，天下大乱，人民遭殃，现代化中断，必是大难。</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3973227036929843" target="freeweibo-mirror">SPAM YAYA queen第一波夏上新预览已出[害羞]，…</a>
 </h2>
@@ -59,7 +65,7 @@
 </h2>
 <p>SPAM 今天的内容来啦：【姿势对了，走路也能瘦肚腩！3个月瘦17厘米！】<br><img src="http://ww1.sinaimg.cn/large/abb913fcgw1f3p3qxvnbxj20k00zk40z.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3973222040683836" target="freeweibo-mirror">回复@这是一块努力的橡皮:看来，魏则西是个挺正常的爱国青年，…</a>
 </h2>
@@ -83,7 +89,7 @@
 </h2>
 <p>SPAM 第一个笑尿了</p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3973106718906684" target="freeweibo-mirror">无风起浪？//@浪浪浪之魂: 支持习总，支持公平，支持正义。</a>
 </h2>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3972944856462793" target="freeweibo-mirror">这号秒灭，速度右键！[嘘][嘘][嘘]</a>
 </h2>
 <p>这号秒灭，速度右键！[嘘][嘘][嘘]<br><img src="http://ww1.sinaimg.cn/large/006dpeoAgw1f3o7h85gd3j30j6bz6e6r.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3972933443236396" target="freeweibo-mirror">SPAM [cp]实力厂家诚招全国代理，让你从此闪亮起来！千…</a>
-</h2>
-<p>SPAM [cp]实力厂家诚招全国代理，让你从此闪亮起来！千里之行始于足下，这里有千里马，你敢挑战伯乐？平凡不是宿命，生命在于运动！扬帆起航，敢于挑战就能成就下个阿里巴巴，不管你是宅男宅女帅哥女神，让我们从这里开始 + v   : 1 9 3 1 5 1 3 6 6 8<br><img src="http://ww2.sinaimg.cn/large/6acdb97fgw1f3o60at5f3j20k00f0jtf.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
