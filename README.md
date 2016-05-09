@@ -89,7 +89,7 @@
 </h2>
 <p>SPAM 玩微博同样应该多传递正能量，少喷少骂少BB…[嘻嘻]</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3973291888324004" target="freeweibo-mirror">//@伟荣V实说://@戎戎日97记: [嘻嘻]</a>
 </h2>
