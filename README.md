@@ -49,6 +49,12 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3973307843687403" target="freeweibo-mirror">百度在自己的平台屏蔽了国家网信办进驻调查结果，这个太牛了，谈…</a>
+</h2>
+<p>百度在自己的平台屏蔽了国家网信办进驻调查结果，这个太牛了，谈何整改啊！</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3973303179791057" target="freeweibo-mirror">SPAM 玩微博同样应该多传递正能量，少喷少骂少BB…[嘻嘻…</a>
 </h2>
 <p>SPAM 玩微博同样应该多传递正能量，少喷少骂少BB…[嘻嘻]</p>
@@ -77,7 +83,7 @@
 </h2>
 <p>小平的一个中心是阶段性补救，当时非常正确，最多可管五十年不变。社会生活从来是多方面的，这个客观规律靠政策只能短期管制住。不重复文革的无政府民粹模式，也不只谈经济不论其他，那才是健康的正常的社会均衡，必然趋势。//@张宏杰:会吗？//@谢文: 两个中心不可并存，必然会走向以斗争为中心。<br><br>RE: 【党和国家的最大危险】文革全面重演的可能性几乎为零，最大的危险是部分重演，从而把老邓的一个中心路线改成小邓（邓力群）的两个中心（经济和阶级斗争）路线。那样的话，中国共产党和中华人民共和国都将走向崩溃，天下大乱，人民遭殃，现代化中断，必是大难。</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3973243633043663" target="freeweibo-mirror">SPAM [心]//@眸黑:阅读全文请看文章最下图，后续更精…</a>
 </h2>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3973106718906684" target="freeweibo-mirror">无风起浪？//@浪浪浪之魂: 支持习总，支持公平，支持正义。</a>
 </h2>
 <p>无风起浪？//@浪浪浪之魂: 支持习总，支持公平，支持正义。<br><br>RE: 最烦帝国主义捕风捉影。[怒]<br><img src="http://ww3.sinaimg.cn/large/8cb3f55dgw1f3ogbdk3s9j20gd0by407.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3973023588116409" target="freeweibo-mirror">SPAM 越看越气[怒][话筒]</a>
-</h2>
-<p>SPAM 越看越气[怒][话筒]<br><br>RE: #老谈说事# 这个土匪太恶劣 [话筒][怒] http://t.cn/R2GEnTW</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
