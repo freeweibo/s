@@ -47,7 +47,7 @@
 </h2>
 <p>SPAM [心]//@眸黑:阅读全文请看文章最下图，后续更精彩！</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3973241678401204" target="freeweibo-mirror">【党和国家的最大危险】文革全面重演的可能性几乎为零，最大的危…</a>
 </h2>
