@@ -41,7 +41,7 @@
 </h2>
 <p>SPAM //@评论员李铁: [哈哈][哈哈][哈哈]<br><br>RE: 百度在自己的平台屏蔽了国家网信办进驻调查结果，这个太牛了，谈何整改啊！</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3973312473793498" target="freeweibo-mirror">//@王天定: 转发微博</a>
 </h2>
@@ -72,6 +72,12 @@
 <p>[泪流满面] //@-静海心语-:五毛可以解释一下吗？ 改开把外国人请回来了，把工农撵下台了，让学生们交费了，让妓女重操旧业了，把毒品翻出来了，让恶霸贪官们当官，让工人们下岗，让农民失地，让农民变成农民工，让农村的孩子变成留守儿童，遍地的上访民众都是他们逼出来的。</p>
 <p>
 	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3973282350787420" target="freeweibo-mirror">雷洋，我研究生室友，也是同门，去世前几天刚刚成为一个父亲，如…</a>
+</h2>
+<p>雷洋，我研究生室友，也是同门，去世前几天刚刚成为一个父亲，如今发生这样的事情，留下妻子和刚出生的女儿，真令人痛心。恳请大家转发支持，还家属一个真相@平安北京 @新京报<br><img src="http://ww1.sinaimg.cn/large/6b1991c7jw1f3pa840c13j20hs2c7na5.jpg"></p>
+<p>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3973260809324872" target="freeweibo-mirror">SPAM [xkl转圈]</a>
 </h2>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3973151031467879" target="freeweibo-mirror">SPAM 第一个笑尿了</a>
 </h2>
 <p>SPAM 第一个笑尿了</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3973106718906684" target="freeweibo-mirror">无风起浪？//@浪浪浪之魂: 支持习总，支持公平，支持正义。</a>
-</h2>
-<p>无风起浪？//@浪浪浪之魂: 支持习总，支持公平，支持正义。<br><br>RE: 最烦帝国主义捕风捉影。[怒]<br><img src="http://ww3.sinaimg.cn/large/8cb3f55dgw1f3ogbdk3s9j20gd0by407.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
