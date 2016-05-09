@@ -23,7 +23,7 @@
 </h2>
 <p>SPAM 痩.身 这些知识要知道</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3973151924839249" target="freeweibo-mirror">SPAM 学起来[爱你]</a>
 </h2>
