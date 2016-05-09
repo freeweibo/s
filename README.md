@@ -35,7 +35,7 @@
 </h2>
 <p>SPAM 第一个笑尿了</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3973106718906684" target="freeweibo-mirror">无风起浪？//@浪浪浪之魂: 支持习总，支持公平，支持正义。</a>
 </h2>
