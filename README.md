@@ -29,7 +29,7 @@
 </h2>
 <p>SPAM 学起来[爱你]</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3973151031467879" target="freeweibo-mirror">SPAM 第一个笑尿了</a>
 </h2>
@@ -41,7 +41,7 @@
 </h2>
 <p>无风起浪？//@浪浪浪之魂: 支持习总，支持公平，支持正义。<br><br>RE: 最烦帝国主义捕风捉影。[怒]<br><img src="http://ww3.sinaimg.cn/large/8cb3f55dgw1f3ogbdk3s9j20gd0by407.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3973023588116409" target="freeweibo-mirror">SPAM 越看越气[怒][话筒]</a>
 </h2>
