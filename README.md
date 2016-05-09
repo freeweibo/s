@@ -25,6 +25,12 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3973253376813582" target="freeweibo-mirror">小平的一个中心是阶段性补救，当时非常正确，最多可管五十年不变…</a>
+</h2>
+<p>小平的一个中心是阶段性补救，当时非常正确，最多可管五十年不变。社会生活从来是多方面的，这个客观规律靠政策只能短期管制住。不重复文革的无政府民粹模式，也不只谈经济不论其他，那才是健康的正常的社会均衡，必然趋势。//@张宏杰:会吗？//@谢文: 两个中心不可并存，必然会走向以斗争为中心。<br><br>RE: 【党和国家的最大危险】文革全面重演的可能性几乎为零，最大的危险是部分重演，从而把老邓的一个中心路线改成小邓（邓力群）的两个中心（经济和阶级斗争）路线。那样的话，中国共产党和中华人民共和国都将走向崩溃，天下大乱，人民遭殃，现代化中断，必是大难。</p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3973243633043663" target="freeweibo-mirror">SPAM [心]//@眸黑:阅读全文请看文章最下图，后续更精…</a>
 </h2>
 <p>SPAM [心]//@眸黑:阅读全文请看文章最下图，后续更精彩！</p>
@@ -41,7 +47,7 @@
 </h2>
 <p>SPAM 今天的内容来啦：【姿势对了，走路也能瘦肚腩！3个月瘦17厘米！】<br><img src="http://ww1.sinaimg.cn/large/abb913fcgw1f3p3qxvnbxj20k00zk40z.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3973222040683836" target="freeweibo-mirror">回复@这是一块努力的橡皮:看来，魏则西是个挺正常的爱国青年，…</a>
 </h2>
@@ -65,7 +71,7 @@
 </h2>
 <p>SPAM 第一个笑尿了</p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3973106718906684" target="freeweibo-mirror">无风起浪？//@浪浪浪之魂: 支持习总，支持公平，支持正义。</a>
 </h2>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3972921209253379" target="freeweibo-mirror">//@乡中语://@单蛋_3252://@天下为公111l:…</a>
 </h2>
 <p>//@乡中语://@单蛋_3252://@天下为公111l: 转发微博<br><br>RE: 就废除食盐垄断致习总书记和李总理的公开信 ——如果废除垄断就是为了废除中国人的生命安全保障，： 5月5日，国家宣布废除中国实行2600多年的食盐垄断制度。 就废除食盐垄断致习总书记和李总理...文字版>> http://t.cn/Rqn69Zq （新浪长微博>> http://t.cn/zOXAaic）<br><img src="http://ww1.sinaimg.cn/large/b6ddfe6djw1f3npt9z3wpj20c818046y.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3972908588216237" target="freeweibo-mirror">//@上海陈子善:如下决心严查，一查到底，不必等很久，就会有…</a>
-</h2>
-<p>//@上海陈子善:如下决心严查，一查到底，不必等很久，就会有结果。[白眼]<br><br>RE: 好奇的是，五十六朵花这样的商演是如何上演的？中国歌舞剧院真的被骗了？中宣部核心价值观宣教办公室、团中央未来之星组委会又是怎么跟演出单位勾搭的？五十六朵花，五十六朵谜团。<br><img src="http://ww2.sinaimg.cn/large/5d7ca92cjw1f3o0f47injj20ci0m8gok.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
