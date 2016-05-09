@@ -53,7 +53,7 @@
 </h2>
 <p>最烦帝国主义捕风捉影。[怒]<br><img src="http://ww3.sinaimg.cn/large/8cb3f55dgw1f3ogbdk3s9j20gd0by407.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3973001747794938" target="freeweibo-mirror">#老谈说事# 这个土匪太恶劣 [话筒][怒] http://…</a>
 </h2>
