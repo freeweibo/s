@@ -95,7 +95,7 @@
 </h2>
 <p>//@伟荣V实说://@戎戎日97记: [嘻嘻]</p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3973290622145390" target="freeweibo-mirror">[泪流满面] //@-静海心语-:五毛可以解释一下吗？ 改开…</a>
 </h2>
@@ -113,7 +113,7 @@
 </h2>
 <p>SPAM [xkl转圈]</p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3973253376813582" target="freeweibo-mirror">小平的一个中心是阶段性补救，当时非常正确，最多可管五十年不变…</a>
 </h2>
