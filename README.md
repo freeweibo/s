@@ -41,7 +41,7 @@
 </h2>
 <p>【党和国家的最大危险】文革全面重演的可能性几乎为零，最大的危险是部分重演，从而把老邓的一个中心路线改成小邓（邓力群）的两个中心（经济和阶级斗争）路线。那样的话，中国共产党和中华人民共和国都将走向崩溃，天下大乱，人民遭殃，现代化中断，必是大难。</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3973227036929843" target="freeweibo-mirror">SPAM YAYA queen第一波夏上新预览已出[害羞]，…</a>
 </h2>
@@ -53,7 +53,7 @@
 </h2>
 <p>SPAM 今天的内容来啦：【姿势对了，走路也能瘦肚腩！3个月瘦17厘米！】<br><img src="http://ww1.sinaimg.cn/large/abb913fcgw1f3p3qxvnbxj20k00zk40z.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3973222040683836" target="freeweibo-mirror">回复@这是一块努力的橡皮:看来，魏则西是个挺正常的爱国青年，…</a>
 </h2>
@@ -77,7 +77,7 @@
 </h2>
 <p>SPAM 第一个笑尿了</p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3973106718906684" target="freeweibo-mirror">无风起浪？//@浪浪浪之魂: 支持习总，支持公平，支持正义。</a>
 </h2>
