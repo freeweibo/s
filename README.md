@@ -47,7 +47,7 @@
 </h2>
 <p>SPAM 越看越气[怒][话筒]<br><br>RE: #老谈说事# 这个土匪太恶劣 [话筒][怒] http://t.cn/R2GEnTW</p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3973021469228173" target="freeweibo-mirror">最烦帝国主义捕风捉影。[怒]</a>
 </h2>
