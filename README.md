@@ -73,6 +73,12 @@
 <p>
 	<small> ============== 4小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3973585212949288" target="freeweibo-mirror">【7岁男童在校门口被砍身亡】今日福州市公安局发布通告，10日…</a>
+</h2>
+<p>【7岁男童在校门口被砍身亡】今日福州市公安局发布通告，10日7时30分许，闽清县坂东镇发生一起持刀伤人案，男子许某齐（65岁、闽清人）因纠纷，持砍柴刀在坂东镇文定村许氏纪念馆附近将女子陈某香（54岁、闽清人）及其孙子许某（7岁、闽清人）拦下砍伤，造成陈某香受伤（已送往福州医院抢救）、许某死...全文： http://m.weibo.cn/1734530730/3973585212949288<br><img src="http://ww1.sinaimg.cn/large/6762d6aajw1f3q8oobjc9j20go0m8dja.jpg"></p>
+<p>
+	<small> ============== 5小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3973577063319424" target="freeweibo-mirror">SPAM 5.10NEW手机党推荐2：10、http://t…</a>
 </h2>
 <p>SPAM 5.10NEW手机党推荐2：10、http://t.cn/Rq3R8eK 11、http://t.cn/Rq3R8eo 12、http://t.cn/Rq3R8eX 13、http://t.cn/Rq3R8ea 14、http://t.cn/Rq3R8eC 15、http://t.cn/Rq3R8eS 16、http://t.cn/Rq3R8e9 17、http://t.cn/Rq3R8eN 18、http://t.cn/Rq3R8ep 更多新品链接：http://t.cn/RLKpgvg 无线端链接...全文： http://m.weibo.cn/1757972997/3973577063319424<br><img src="http://ww1.sinaimg.cn/large/68c88a05gw1f3q7xsc1v8j21kw1z3e42.jpg"></p>
@@ -125,19 +131,13 @@
 </h2>
 <p>太可怕了//@深夜走过长安街001:对，公信力丧失，这是最可怕的事。//@蔡蚱蜢仁波切:从上访到网络求援，整个中国的司法体系已经不被信任了，这是中国最可怕的事<br><br>RE: 关于此事，最认同这样一段评论表达: 【执法记录仪、监控、尸检报告、证人，拿证据说话，比捂嘴更为明智，比删帖更有必要！毕竟，一个人，在警察的控制状态之下死了，应该说清楚，也能说清楚。期待公开透明的调查过程，期待公正客观的调查结果。】—— 同等待证据说话。<br><img src="http://ww3.sinaimg.cn/large/005vSjEdjw1f3pyywrvofj30de0hcq4p.jpg"></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3973498416295580" target="freeweibo-mirror">关于此事，最认同这样一段评论表达: 【执法记录仪、监控、尸检…</a>
 </h2>
 <p>关于此事，最认同这样一段评论表达: 【执法记录仪、监控、尸检报告、证人，拿证据说话，比捂嘴更为明智，比删帖更有必要！毕竟，一个人，在警察的控制状态之下死了，应该说清楚，也能说清楚。期待公开透明的调查过程，期待公正客观的调查结果。】—— 同等待证据说话。<br><img src="http://ww3.sinaimg.cn/large/005vSjEdjw1f3pyywrvofj30de0hcq4p.jpg"></p>
 <p>
 	<small> ============== 11小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3973486512494109" target="freeweibo-mirror">【吴官正揭密官员财产公示内幕】2003年，官员财产申报制在上…</a>
-</h2>
-<p>【吴官正揭密官员财产公示内幕】2003年，官员财产申报制在上海广东搞试点，结果发生两大问题：1.党政干部强烈抗拒，以消极怠工来对待；2.在内部申报时，上海市省厅级干部90%拥有1000万以上资产，广东省省厅级干部99%拥有1000万以上资产。结论：若官员财产公开，势必会被社会各界追击。微评：13年过去了...全文： http://m.weibo.cn/3675736060/3973486512494109<br><img src="http://ww1.sinaimg.cn/large/db1747fcgw1f3pxplz4jmj20b40j275g.jpg"></p>
-<p>
-	<small> ============== 12小时前</small>
 </p>
 <table>
     <tr>
