@@ -41,7 +41,7 @@
 </h2>
 <p>SPAM 为了看第一个加了！[doge]//@舒满雁君 :最后[拜拜]//@羡培东妤宙 :卧槽 贵圈真乱[拜拜]//@云群北旬:狗血的八卦加了看！</p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3973733095561248" target="freeweibo-mirror">SPAM 跳动？钱包？[汗] 我分享了http://t.cn…</a>
 </h2>
