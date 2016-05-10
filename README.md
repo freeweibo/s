@@ -65,7 +65,7 @@
 </h2>
 <p>SPAM //@评论员李铁: [哈哈][哈哈][哈哈]<br><br>RE: 百度在自己的平台屏蔽了国家网信办进驻调查结果，这个太牛了，谈何整改啊！</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3973312473793498" target="freeweibo-mirror">//@王天定: 转发微博</a>
 </h2>
