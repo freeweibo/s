@@ -35,7 +35,7 @@
 </h2>
 <p>#老谈说事#<br><br>RE: 【质问：为何对百度不予重罚】昨日，国家网信办调查组公布了对百度公司的调查结果，并提出三点整改意见......微评：只提整改意见，而不予与恶意竞价非法所得相应的经济处罚，怎么能确保百度日后不会再犯？这种不具任何威慑力的、不痛不痒的处理结果，其背后是否存有“猫腻”？ http://t.cn/Rqu5Po3<br><img src="http://ww3.sinaimg.cn/large/db1747fcjw1f3ptp4ppxej208c054mx1.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3973604158623634" target="freeweibo-mirror">//@律师陆伟民: //@王奇在思考: 这个解释最靠谱，如果…</a>
 </h2>
