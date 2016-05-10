@@ -19,6 +19,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3973649931665046" target="freeweibo-mirror">//@Jenny陶陶陶://@谢文://@Ming_the_…</a>
+</h2>
+<p>//@Jenny陶陶陶://@谢文://@Ming_the_Great_大明://@王周生:转发微博<br><br>RE: 港媒披露，查询数据库初步发现，又有15名中共从中央到地方的高官疑卷入。<br><img src="http://ww1.sinaimg.cn/large/006evBGjgw1f3qc1jgqbdj30hs0vkdlm.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3973627965590671" target="freeweibo-mirror">残忍！！！</a>
 </h2>
 <p>残忍！！！<br><br>RE: 【闽清文定#小学附近一老一少被砍# 孩子当场身亡[蜡烛]】今早，闽清县坂东镇文定中心小学门口附近，有两个人被砍，一死一伤。爆料人称，死者为一年级学生，伤者为死者奶奶。原因疑为砍人者和奶奶有个人恩怨，现在砍人者已经被警察控制。[怒]具体情况还待进一步核实。 http://t.cn/Rq3N0mw （海峡网 ）<br><img src="http://ww4.sinaimg.cn/large/9c78597dgw1f3q5ljmbinj20c80lq756.jpg"></p>
@@ -77,7 +83,7 @@
 </h2>
 <p>//@律师陆伟民: //@王奇在思考: 这个解释最靠谱，如果警方不能指出具体哪个洗浴中心，并提交洗浴中心门口的视频监控，证明死者确实在案发前走进过洗浴中心，则警方就是在说谎！ //@其他用户123:估计是围观警察执法并拍照，被警察打死了，因为他手机里的资料被删除过。 //@滴水成冰的北京:[怒]</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3973585212949288" target="freeweibo-mirror">【7岁男童在校门口被砍身亡】今日福州市公安局发布通告，10日…</a>
 </h2>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3973515986827785" target="freeweibo-mirror">SPAM #早安香港# 1.財務中介撒網行騙，涉款高達3.2…</a>
 </h2>
 <p>SPAM #早安香港# 1.財務中介撒網行騙，涉款高達3.26億元，警方已制定全盤策略加強打擊。2.六個販商協會代表指，受年初旺角暴亂及「反水貨客」活動影響，首季營業額跌逾50%。3.民調顯示，逾七成人盼2047年後維持「一國兩制」... http://t.cn/Rq3xDE0<br><img src="http://ww4.sinaimg.cn/large/9ce4bf2fgw1f3q149ogmsj20c80c3gmq.jpg"></p>
-<p>
-	<small> ============== 10小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3973513629556477" target="freeweibo-mirror">这几天的暴跌股民不知道因为什么？因为谣言请问谁散的谣言为什不…</a>
-</h2>
-<p>这几天的暴跌股民不知道因为什么？因为谣言请问谁散的谣言为什不查？我以为问题不是那么简单，为什么利好不涨谣言下跌，为什么习总关注股市就开跌，为什么一提社保就开砸。回忆一下去年的股灾：什么重要时候开砸，砸的目的是什么？，越出利好越砸，重要人物一讲话就砸，想一想去年的股灾什么时间砸盘，...全文： http://m.weibo.cn/1264138094/3973513629556477<br><img src="http://ww2.sinaimg.cn/large/4b59376ejw1f3q0odrh1jj209b0goab7.jpg"></p>
 <p>
 	<small> ============== 10小时前</small>
 </p>
