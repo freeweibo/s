@@ -29,7 +29,7 @@
 </h2>
 <p>应公布完整的执法记录视频。//@于建嵘: 大家不要着急，现在北京的警察有执法记录仪，发生了什么，很快就会查清。</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3973523099220700" target="freeweibo-mirror">SPAM 美国式阴谋的一个典型做法：看A这个团队正春风得意，…</a>
 </h2>
@@ -41,7 +41,7 @@
 </h2>
 <p>SPAM #早安香港# 1.財務中介撒網行騙，涉款高達3.26億元，警方已制定全盤策略加強打擊。2.六個販商協會代表指，受年初旺角暴亂及「反水貨客」活動影響，首季營業額跌逾50%。3.民調顯示，逾七成人盼2047年後維持「一國兩制」... http://t.cn/Rq3xDE0<br><img src="http://ww4.sinaimg.cn/large/9ce4bf2fgw1f3q149ogmsj20c80c3gmq.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3973513629556477" target="freeweibo-mirror">这几天的暴跌股民不知道因为什么？因为谣言请问谁散的谣言为什不…</a>
 </h2>
@@ -65,7 +65,7 @@
 </h2>
 <p>//@徐昕:人命关天 //@立足顶峰://@唐师曾:转 //@章诒和:不难查明，必須查明！ //@何兵: 这件事不难查明，关键是谁查？<br><br>RE: 执法记录仪、监控、尸检报告、证人，拿证据说话，比捂嘴更为明智，比删帖更有必要！毕竟，一个人，在警察的控制状态之下死了，应该说清楚，也能说清楚。期待公开透明的调查过程，期待公正客观的调查结果<br><img src="http://ww4.sinaimg.cn/large/9ba70885jw1f3pqm395k2j20de0hcwgk.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3973484180636346" target="freeweibo-mirror">不让议论五十年前发生的事，这是历史唯物主义？还是历史虚无主义…</a>
 </h2>
@@ -125,17 +125,17 @@
 </h2>
 <p>死于娼平<br><br>RE: 雷洋到底是怎么死的？<br><img src="http://ww3.sinaimg.cn/large/7cc9aaf1gw1f3piculrcjj20ic2euqbn.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3973468083557460" target="freeweibo-mirror">其实删帖禁转也是一种态度，再清楚不过地表达了对这场人间浩劫民…</a>
+</h2>
+<p>其实删帖禁转也是一种态度，再清楚不过地表达了对这场人间浩劫民族浩劫的立场。<br><img src="http://ww3.sinaimg.cn/large/9c1851c5jw1f3pvlsn0ubj20w10dvgog.jpg"></p>
+<p>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3973466379559477" target="freeweibo-mirror">+1。</a>
 </h2>
 <p>+1。<br><br>RE: 雷洋之死，调查清楚，说个明白，才会让我们每个人在一个正常国家免除自由出门的恐惧。如果连这一点都做不到，不能怪老百姓怀疑一切当下的公权力。</p>
-<p>
-	<small> ============== 8小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3973460164199843" target="freeweibo-mirror">我是来看评论的。</a>
-</h2>
-<p>我是来看评论的。<br><br>RE: 【人大硕士涉嫖被抓途中死 家属质疑警方说法】北京昌平警方称曾对死者雷洋采取强制约束措施，雷洋因涉嫌嫖娼被带往派出所途中突发心脏病身亡；死者亲属质疑死亡原因及死者手机信息被删除等做法，并称要求对遗体拍照被警方禁止；昌平区检察院已介入调查 。（财新）http://t.cn/Rq3hTjy<br><img src="http://ww3.sinaimg.cn/large/61ff32degw1f3pliv33syj20jz0zkjv3.jpg"></p>
 <p>
 	<small> ============== 8小时前</small>
 </p>
