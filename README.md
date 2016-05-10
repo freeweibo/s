@@ -19,6 +19,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3973661025550639" target="freeweibo-mirror">SPAM 安利 vx:104644548</a>
+</h2>
+<p>SPAM 安利 vx:104644548</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3973650417532823" target="freeweibo-mirror">SPAM GD、AdrianneHo都在上脚的大Air风强势…</a>
 </h2>
 <p>SPAM GD、AdrianneHo都在上脚的大Air风强势归来，你还会跟风剁手吗？（详见评论第一条）<br><img src="http://ww3.sinaimg.cn/large/6d5306acjw1f3qgjwbjarj20ep0epwj2.jpg"></p>
@@ -132,12 +138,6 @@
 <p>【闽清文定#小学附近一老一少被砍# 孩子当场身亡[蜡烛]】今早，闽清县坂东镇文定中心小学门口附近，有两个人被砍，一死一伤。爆料人称，死者为一年级学生，伤者为死者奶奶。原因疑为砍人者和奶奶有个人恩怨，现在砍人者已经被警察控制。[怒]具体情况还待进一步核实。 http://t.cn/Rq3N0mw （海峡网 ）<br><img src="http://ww4.sinaimg.cn/large/9c78597dgw1f3q5ljmbinj20c80lq756.jpg"></p>
 <p>
 	<small> ============== 9小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3973535301434426" target="freeweibo-mirror">这次可不能怪市场砸盘，权威人士的意见人日白底黑字，市场能不听…</a>
-</h2>
-<p>这次可不能怪市场砸盘，权威人士的意见人日白底黑字，市场能不听权威的？</p>
-<p>
-	<small> ============== 10小时前</small>
 </p>
 <table>
     <tr>
