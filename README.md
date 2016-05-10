@@ -47,13 +47,13 @@
 </h2>
 <p>SPAM GD、AdrianneHo都在上脚的大Air风强势归来，你还会跟风剁手吗？（详见评论第一条）<br><img src="http://ww3.sinaimg.cn/large/6d5306acjw1f3qgjwbjarj20ep0epwj2.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3973649931665046" target="freeweibo-mirror">//@Jenny陶陶陶://@谢文://@Ming_the_…</a>
 </h2>
 <p>//@Jenny陶陶陶://@谢文://@Ming_the_Great_大明://@王周生:转发微博<br><br>RE: 港媒披露，查询数据库初步发现，又有15名中共从中央到地方的高官疑卷入。<br><img src="http://ww1.sinaimg.cn/large/006evBGjgw1f3qc1jgqbdj30hs0vkdlm.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3973647725299426" target="freeweibo-mirror">SPAM #公益活动# 我和佳佳去过很多山区，那里的寨卡、登…</a>
 </h2>
@@ -83,19 +83,19 @@
 </h2>
 <p>SPAM 深得我心，一直走下去</p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3973619828312160" target="freeweibo-mirror">SPAM 揪心，周围的人太冷漠了，可悲</a>
 </h2>
 <p>SPAM 揪心，周围的人太冷漠了，可悲<br><br>RE: 【7岁男童在校门口被砍身亡】今日福州市公安局发布通告，10日7时30分许，闽清县坂东镇发生一起持刀伤人案，男子许某齐（65岁、闽清人）因纠纷，持砍柴刀在坂东镇文定村许氏纪念馆附近将女子陈某香（54岁、闽清人）及其孙子许某（7岁、闽清人）拦下砍伤，造成陈某香受伤（已送往福州医院抢救）、许某死...全文： http://m.weibo.cn/1734530730/3973585212949288<br><img src="http://ww1.sinaimg.cn/large/6762d6aajw1f3q8oobjc9j20go0m8dja.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3973619623326228" target="freeweibo-mirror">//@章诒和:那还是2003年，现在估计都上亿了。 //@章…</a>
 </h2>
 <p>//@章诒和:那还是2003年，现在估计都上亿了。 //@章诒和: 果真如此吗？不管你信不信，反正我信了。 //@鄢烈山: 转发微博<br><br>RE: 【吴官正揭密官员财产公示内幕】2003年，官员财产申报制在上海广东搞试点，结果发生两大问题：1.党政干部强烈抗拒，以消极怠工来对待；2.在内部申报时，上海市省厅级干部90%拥有1000万以上资产，广东省省厅级干部99%拥有1000万以上资产。结论：若官员财产公开，势必会被社会各界追击。微评：13年过去了...全文： http://m.weibo.cn/3675736060/3973486512494109<br><img src="http://ww1.sinaimg.cn/large/db1747fcgw1f3pxplz4jmj20b40j275g.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3973615358209308" target="freeweibo-mirror">#老谈说事#</a>
 </h2>
@@ -125,7 +125,7 @@
 </h2>
 <p>SPAM //@公民林静在维权5: //@没事不加V-://@千山神胡说:[怒]//@公民林静在维权4:[怒]//@只为伊人飘香牛仔:一个政权从来不是被推倒，它总是自己朽坏后轰然坍塌。<br><br>RE: 我发表了头条文章:《王峭岭：“我能做什么？我要怎么做”》 http://t.cn/Rq3XdrO</p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3973604158623634" target="freeweibo-mirror">//@律师陆伟民: //@王奇在思考: 这个解释最靠谱，如果…</a>
 </h2>
