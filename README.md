@@ -25,6 +25,24 @@
 <p>
 	<small> ============== 1小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3973619623326228" target="freeweibo-mirror">//@章诒和:那还是2003年，现在估计都上亿了。 //@章…</a>
+</h2>
+<p>//@章诒和:那还是2003年，现在估计都上亿了。 //@章诒和: 果真如此吗？不管你信不信，反正我信了。 //@鄢烈山: 转发微博<br><br>RE: 【吴官正揭密官员财产公示内幕】2003年，官员财产申报制在上海广东搞试点，结果发生两大问题：1.党政干部强烈抗拒，以消极怠工来对待；2.在内部申报时，上海市省厅级干部90%拥有1000万以上资产，广东省省厅级干部99%拥有1000万以上资产。结论：若官员财产公开，势必会被社会各界追击。微评：13年过去了...全文： http://m.weibo.cn/3675736060/3973486512494109<br><img src="http://ww1.sinaimg.cn/large/db1747fcgw1f3pxplz4jmj20b40j275g.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3973615358209308" target="freeweibo-mirror">#老谈说事#</a>
+</h2>
+<p>#老谈说事#<br><br>RE: 【质问：为何对百度不予重罚】昨日，国家网信办调查组公布了对百度公司的调查结果，并提出三点整改意见......微评：只提整改意见，而不予与恶意竞价非法所得相应的经济处罚，怎么能确保百度日后不会再犯？这种不具任何威慑力的、不痛不痒的处理结果，其背后是否存有“猫腻”？ http://t.cn/Rqu5Po3<br><img src="http://ww3.sinaimg.cn/large/db1747fcjw1f3ptp4ppxej208c054mx1.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3973604158623634" target="freeweibo-mirror">//@律师陆伟民: //@王奇在思考: 这个解释最靠谱，如果…</a>
+</h2>
+<p>//@律师陆伟民: //@王奇在思考: 这个解释最靠谱，如果警方不能指出具体哪个洗浴中心，并提交洗浴中心门口的视频监控，证明死者确实在案发前走进过洗浴中心，则警方就是在说谎！ //@其他用户123:估计是围观警察执法并拍照，被警察打死了，因为他手机里的资料被删除过。 //@滴水成冰的北京:[怒]</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3973577063319424" target="freeweibo-mirror">SPAM 5.10NEW手机党推荐2：10、http://t…</a>
 </h2>
 <p>SPAM 5.10NEW手机党推荐2：10、http://t.cn/Rq3R8eK 11、http://t.cn/Rq3R8eo 12、http://t.cn/Rq3R8eX 13、http://t.cn/Rq3R8ea 14、http://t.cn/Rq3R8eC 15、http://t.cn/Rq3R8eS 16、http://t.cn/Rq3R8e9 17、http://t.cn/Rq3R8eN 18、http://t.cn/Rq3R8ep 更多新品链接：http://t.cn/RLKpgvg 无线端链接...全文： http://m.weibo.cn/1757972997/3973577063319424<br><img src="http://ww1.sinaimg.cn/large/68c88a05gw1f3q7xsc1v8j21kw1z3e42.jpg"></p>
@@ -118,24 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3973480343326840" target="freeweibo-mirror">人命关天 //@立足顶峰://@唐师曾:转 //@章诒和:不…</a>
 </h2>
 <p>人命关天 //@立足顶峰://@唐师曾:转 //@章诒和:不难查明，必須查明！ //@何兵: 这件事不难查明，关键是谁查？<br><br>RE: 执法记录仪、监控、尸检报告、证人，拿证据说话，比捂嘴更为明智，比删帖更有必要！毕竟，一个人，在警察的控制状态之下死了，应该说清楚，也能说清楚。期待公开透明的调查过程，期待公正客观的调查结果<br><img src="http://ww4.sinaimg.cn/large/9ba70885jw1f3pqm395k2j20de0hcwgk.jpg"></p>
-<p>
-	<small> ============== 10小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3973479718159114" target="freeweibo-mirror">转 //@章诒和:不难查明，必須查明！ //@何兵: 这件事…</a>
-</h2>
-<p>转 //@章诒和:不难查明，必須查明！ //@何兵: 这件事不难查明，关键是谁查？<br><br>RE: 执法记录仪、监控、尸检报告、证人，拿证据说话，比捂嘴更为明智，比删帖更有必要！毕竟，一个人，在警察的控制状态之下死了，应该说清楚，也能说清楚。期待公开透明的调查过程，期待公正客观的调查结果<br><img src="http://ww4.sinaimg.cn/large/9ba70885jw1f3pqm395k2j20de0hcwgk.jpg"></p>
-<p>
-	<small> ============== 10小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3973477750896515" target="freeweibo-mirror">//@章诒和:不难查明，必須查明！ //@何兵: 这件事不难…</a>
-</h2>
-<p>//@章诒和:不难查明，必須查明！ //@何兵: 这件事不难查明，关键是谁查？<br><br>RE: 执法记录仪、监控、尸检报告、证人，拿证据说话，比捂嘴更为明智，比删帖更有必要！毕竟，一个人，在警察的控制状态之下死了，应该说清楚，也能说清楚。期待公开透明的调查过程，期待公正客观的调查结果<br><img src="http://ww4.sinaimg.cn/large/9ba70885jw1f3pqm395k2j20de0hcwgk.jpg"></p>
-<p>
-	<small> ============== 10小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3973477289020618" target="freeweibo-mirror">即便如警方所说，那和家属所说有何冲突？为什么要删家属所说内容…</a>
-</h2>
-<p>即便如警方所说，那和家属所说有何冲突？为什么要删家属所说内容多贴？为什么不阳光的说清楚一些？我只看到两个字，有鬼 //@何兵:这件事不难查明，关键是谁查？<br><br>RE: 执法记录仪、监控、尸检报告、证人，拿证据说话，比捂嘴更为明智，比删帖更有必要！毕竟，一个人，在警察的控制状态之下死了，应该说清楚，也能说清楚。期待公开透明的调查过程，期待公正客观的调查结果<br><img src="http://ww4.sinaimg.cn/large/9ba70885jw1f3pqm395k2j20de0hcwgk.jpg"></p>
 <p>
 	<small> ============== 10小时前</small>
 </p>
