@@ -23,7 +23,19 @@
 </h2>
 <p>//@Jenny陶陶陶://@谢文://@Ming_the_Great_大明://@王周生:转发微博<br><br>RE: 港媒披露，查询数据库初步发现，又有15名中共从中央到地方的高官疑卷入。<br><img src="http://ww1.sinaimg.cn/large/006evBGjgw1f3qc1jgqbdj30hs0vkdlm.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3973647725299426" target="freeweibo-mirror">SPAM #公益活动# 我和佳佳去过很多山区，那里的寨卡、登…</a>
+</h2>
+<p>SPAM #公益活动# 我和佳佳去过很多山区，那里的寨卡、登革热等蚊疾特可怕！那些留守儿童，别说驱蚊产品，连基本的驱蚊知识都没人教[可怜]。支持@超威贝贝健 公益众筹http://t.cn/RqRpxKj，佳佳也说要#和妈妈一起战斗#，让孩子们都能得到天然的驱蚊产品。</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3973645242120915" target="freeweibo-mirror">//@清淡06200:奧，海棠等得起。//@性情中人_zyz…</a>
+</h2>
+<p>//@清淡06200:奧，海棠等得起。//@性情中人_zyzs:右边这许多赞美，让光腚的今上情何以堪？[哈哈]//@小南街胡同B:树命比人命长，树说等得起[笑cry]//@千山神胡说:[笑cry]//@王狼默: 道是明年秋光好，煤山海棠又逢君[哈哈][笑cry]//@千山神胡说:俺给某人预先写一条墓志铭：这是一个死于谎言的蠢货！</p>
+<p>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3973627965590671" target="freeweibo-mirror">残忍！！！</a>
 </h2>
@@ -41,19 +53,19 @@
 </h2>
 <p>SPAM 深得我心，一直走下去</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3973619828312160" target="freeweibo-mirror">SPAM 揪心，周围的人太冷漠了，可悲</a>
 </h2>
 <p>SPAM 揪心，周围的人太冷漠了，可悲<br><br>RE: 【7岁男童在校门口被砍身亡】今日福州市公安局发布通告，10日7时30分许，闽清县坂东镇发生一起持刀伤人案，男子许某齐（65岁、闽清人）因纠纷，持砍柴刀在坂东镇文定村许氏纪念馆附近将女子陈某香（54岁、闽清人）及其孙子许某（7岁、闽清人）拦下砍伤，造成陈某香受伤（已送往福州医院抢救）、许某死...全文： http://m.weibo.cn/1734530730/3973585212949288<br><img src="http://ww1.sinaimg.cn/large/6762d6aajw1f3q8oobjc9j20go0m8dja.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3973619623326228" target="freeweibo-mirror">//@章诒和:那还是2003年，现在估计都上亿了。 //@章…</a>
 </h2>
 <p>//@章诒和:那还是2003年，现在估计都上亿了。 //@章诒和: 果真如此吗？不管你信不信，反正我信了。 //@鄢烈山: 转发微博<br><br>RE: 【吴官正揭密官员财产公示内幕】2003年，官员财产申报制在上海广东搞试点，结果发生两大问题：1.党政干部强烈抗拒，以消极怠工来对待；2.在内部申报时，上海市省厅级干部90%拥有1000万以上资产，广东省省厅级干部99%拥有1000万以上资产。结论：若官员财产公开，势必会被社会各界追击。微评：13年过去了...全文： http://m.weibo.cn/3675736060/3973486512494109<br><img src="http://ww1.sinaimg.cn/large/db1747fcgw1f3pxplz4jmj20b40j275g.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3973615358209308" target="freeweibo-mirror">#老谈说事#</a>
 </h2>
@@ -77,7 +89,7 @@
 </h2>
 <p>SPAM //@公民林静在维权5: //@没事不加V-://@千山神胡说:[怒]//@公民林静在维权4:[怒]//@只为伊人飘香牛仔:一个政权从来不是被推倒，它总是自己朽坏后轰然坍塌。<br><br>RE: 我发表了头条文章:《王峭岭：“我能做什么？我要怎么做”》 http://t.cn/Rq3XdrO</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3973604158623634" target="freeweibo-mirror">//@律师陆伟民: //@王奇在思考: 这个解释最靠谱，如果…</a>
 </h2>
@@ -124,18 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3973528732504256" target="freeweibo-mirror">我发表了头条文章:《王峭岭：“我能做什么？我要怎么做”》 h…</a>
 </h2>
 <p>我发表了头条文章:《王峭岭：“我能做什么？我要怎么做”》 http://t.cn/Rq3XdrO</p>
-<p>
-	<small> ============== 9小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3973523099220700" target="freeweibo-mirror">SPAM 美国式阴谋的一个典型做法：看A这个团队正春风得意，…</a>
-</h2>
-<p>SPAM 美国式阴谋的一个典型做法：看A这个团队正春风得意，对手B就会在A团队里找薄弱点，在某人身上先设个局，起初不太看得出，或者有端倪也只让人略感焦虑而看不透全局，到总攻的时候就从这个薄弱点开始击破。 电影里泽莫就是这么干的。  而现实中…… 天真青年刚刚崭露头角，就被当做棋子摆了一道。 知道这...全文： http://m.weibo.cn/1413823180/3973523099220700</p>
-<p>
-	<small> ============== 10小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3973515986827785" target="freeweibo-mirror">SPAM #早安香港# 1.財務中介撒網行騙，涉款高達3.2…</a>
-</h2>
-<p>SPAM #早安香港# 1.財務中介撒網行騙，涉款高達3.26億元，警方已制定全盤策略加強打擊。2.六個販商協會代表指，受年初旺角暴亂及「反水貨客」活動影響，首季營業額跌逾50%。3.民調顯示，逾七成人盼2047年後維持「一國兩制」... http://t.cn/Rq3xDE0<br><img src="http://ww4.sinaimg.cn/large/9ce4bf2fgw1f3q149ogmsj20c80c3gmq.jpg"></p>
 <p>
 	<small> ============== 10小时前</small>
 </p>
