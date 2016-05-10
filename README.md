@@ -29,7 +29,7 @@
 </h2>
 <p>这次可不能怪市场砸盘，权威人士的意见人日白底黑字，市场能不听权威的？</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3973531106241669" target="freeweibo-mirror">应公布完整的执法记录视频。//@于建嵘: 大家不要着急，现在…</a>
 </h2>
@@ -131,7 +131,7 @@
 </h2>
 <p>是的，删什么帖，就是政治态度，不暧昧，有立场。<br><br>RE: 其实删帖禁转也是一种态度，再清楚不过地表达了对这场人间浩劫民族浩劫的立场。<br><img src="http://ww3.sinaimg.cn/large/9c1851c5jw1f3pvlsn0ubj20w10dvgog.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3973470943158404" target="freeweibo-mirror">//@北京大众2015:转发微博</a>
 </h2>
