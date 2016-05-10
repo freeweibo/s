@@ -19,6 +19,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3973667215466712" target="freeweibo-mirror">SPAM //@张乾坤制: //@网易大明夜不收:武昌起议。…</a>
+</h2>
+<p>SPAM //@张乾坤制: //@网易大明夜不收:武昌起议。//@超炫777://@张乾坤制:宣言[赞][赞][赞]<br><br>RE: 不吃狗粮！<br><img src="http://ww3.sinaimg.cn/large/005Pvz9kjw1f3qhtwxwf7j30k00zkt9j.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3973661025550639" target="freeweibo-mirror">SPAM 安利 vx:104644548</a>
 </h2>
 <p>SPAM 安利 vx:104644548</p>
@@ -113,7 +119,7 @@
 </h2>
 <p>//@律师陆伟民: //@王奇在思考: 这个解释最靠谱，如果警方不能指出具体哪个洗浴中心，并提交洗浴中心门口的视频监控，证明死者确实在案发前走进过洗浴中心，则警方就是在说谎！ //@其他用户123:估计是围观警察执法并拍照，被警察打死了，因为他手机里的资料被删除过。 //@滴水成冰的北京:[怒]</p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3973585212949288" target="freeweibo-mirror">【7岁男童在校门口被砍身亡】今日福州市公安局发布通告，10日…</a>
 </h2>
@@ -132,12 +138,6 @@
 <p>SPAM #360儿童手表春季发布会#想给孩子买智能手表的爸爸妈妈们先别急，巴迪龙系列快上市了，功能很强大，佟大为还出任了品牌合伙人，大家静等吧 。说实在的挺羡慕现在的小朋友，说多了都是泪啊[笑cry]@360儿童<br><img src="http://ww4.sinaimg.cn/large/3e14293fjw1f3q69gb9ufj20fe0m8q3l.jpg"></p>
 <p>
 	<small> ============== 9小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3973555626563123" target="freeweibo-mirror">【闽清文定#小学附近一老一少被砍# 孩子当场身亡[蜡烛]】今…</a>
-</h2>
-<p>【闽清文定#小学附近一老一少被砍# 孩子当场身亡[蜡烛]】今早，闽清县坂东镇文定中心小学门口附近，有两个人被砍，一死一伤。爆料人称，死者为一年级学生，伤者为死者奶奶。原因疑为砍人者和奶奶有个人恩怨，现在砍人者已经被警察控制。[怒]具体情况还待进一步核实。 http://t.cn/Rq3N0mw （海峡网 ）<br><img src="http://ww4.sinaimg.cn/large/9c78597dgw1f3q5ljmbinj20c80lq756.jpg"></p>
-<p>
-	<small> ============== 10小时前</small>
 </p>
 <table>
     <tr>
