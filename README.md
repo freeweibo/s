@@ -65,7 +65,7 @@
 </h2>
 <p>关于此事，最认同这样一段评论表达: 【执法记录仪、监控、尸检报告、证人，拿证据说话，比捂嘴更为明智，比删帖更有必要！毕竟，一个人，在警察的控制状态之下死了，应该说清楚，也能说清楚。期待公开透明的调查过程，期待公正客观的调查结果。】—— 同等待证据说话。<br><img src="http://ww3.sinaimg.cn/large/005vSjEdjw1f3pyywrvofj30de0hcq4p.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3973486177094305" target="freeweibo-mirror">//@苏小和:多么高大上的年轻人啊，而且是要“永谋兴盛之道”…</a>
 </h2>
@@ -89,7 +89,7 @@
 </h2>
 <p>[衰] //@王周生:是的，删什么帖，就是政治态度，不暧昧，有立场。<br><br>RE: 其实删帖禁转也是一种态度，再清楚不过地表达了对这场人间浩劫民族浩劫的立场。<br><img src="http://ww3.sinaimg.cn/large/9c1851c5jw1f3pvlsn0ubj20w10dvgog.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3973481282553137" target="freeweibo-mirror">//@好响亮:真相 //@徐昕:人命关天 //@立足顶峰:/…</a>
 </h2>
