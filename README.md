@@ -119,7 +119,7 @@
 </h2>
 <p>确实散焦了。即便就是雷某人证据确凿的嫖了，也罪不至死。//@何葆国://@陈远: //@杜君立: 暴力需要谎言来包装，谎言需要暴力来维持。二者焦不离孟，孟不离焦。//@加藤蚁: 转发微博<br><br>RE: 关于雷洋嫖娼死亡事件，一位美国朋友的看法。<br><img src="http://ww1.sinaimg.cn/large/4c246125gw1f3rek85edqj20n019tn9h.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3973948368545220" target="freeweibo-mirror">//@充气榔头: /@caowumao@陈有西:[围观]@越…</a>
 </h2>
