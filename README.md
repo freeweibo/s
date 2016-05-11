@@ -71,7 +71,7 @@
 </h2>
 <p>//@记者谈春平:#老谈说事# 秀才斗得过流氓？<br><br>RE: 请转发：中国人民大学88级部分校友就雷洋同学意外身亡的声明<br><img src="http://ww3.sinaimg.cn/large/7c0e9549gw1f3rcw1439tj20qo46mkjl.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3973939878857195" target="freeweibo-mirror">SPAM 也没有嫖娼啦 就是打个飞机。。</a>
 </h2>
