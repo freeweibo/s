@@ -65,11 +65,17 @@
 </h2>
 <p>//@王小山://@西丁:专业分析<br><br>RE: 【昌平便衣警察已经涉嫌犯罪，须立即列为侦查对象，该局应回避办案，由异地专案组进行调查】一早看了腾讯转的人民日报报道的北京警方通报，觉得雷某死亡案办案警察已经涉嫌犯罪。1，这个调查通报反而证实了可能系办案中打死的直接冲突起因。2，嫖娼即使真实，仍然不是罪犯，中国没有嫖娼罪，也取消了劳...全文： http://m.weibo.cn/1803570001/3973853900797623<br><img src="http://ww4.sinaimg.cn/large/6b804b51gw1f3r3xb51qoj20qo1bgqby.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3973862381255064" target="freeweibo-mirror">//@George日行万步://@雷颐: //@傅蔚冈:转发…</a>
 </h2>
 <p>//@George日行万步://@雷颐: //@傅蔚冈:转发微博<br><br>RE: 【昌平便衣警察已经涉嫌犯罪，须立即列为侦查对象，该局应回避办案，由异地专案组进行调查】一早看了腾讯转的人民日报报道的北京警方通报，觉得雷某死亡案办案警察已经涉嫌犯罪。1，这个调查通报反而证实了可能系办案中打死的直接冲突起因。2，嫖娼即使真实，仍然不是罪犯，中国没有嫖娼罪，也取消了劳...全文： http://m.weibo.cn/1803570001/3973853900797623<br><img src="http://ww4.sinaimg.cn/large/6b804b51gw1f3r3xb51qoj20qo1bgqby.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3973853900797623" target="freeweibo-mirror">【昌平便衣警察已经涉嫌犯罪，须立即列为侦查对象，该局应回避办…</a>
+</h2>
+<p>【昌平便衣警察已经涉嫌犯罪，须立即列为侦查对象，该局应回避办案，由异地专案组进行调查】一早看了腾讯转的人民日报报道的北京警方通报，觉得雷某死亡案办案警察已经涉嫌犯罪。1，这个调查通报反而证实了可能系办案中打死的直接冲突起因。2，嫖娼即使真实，仍然不是罪犯，中国没有嫖娼罪，也取消了劳...全文： http://m.weibo.cn/1803570001/3973853900797623<br><img src="http://ww4.sinaimg.cn/large/6b804b51gw1f3r3xb51qoj20qo1bgqby.jpg"></p>
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3973667215466712" target="freeweibo-mirror">SPAM //@张乾坤制: //@网易大明夜不收:武昌起议。…</a>
 </h2>
 <p>SPAM //@张乾坤制: //@网易大明夜不收:武昌起议。//@超炫777://@张乾坤制:宣言[赞][赞][赞]<br><br>RE: 不吃狗粮！<br><img src="http://ww3.sinaimg.cn/large/005Pvz9kjw1f3qhtwxwf7j30k00zkt9j.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3973661675233663" target="freeweibo-mirror">不吃狗粮！</a>
-</h2>
-<p>不吃狗粮！<br><img src="http://ww3.sinaimg.cn/large/005Pvz9kjw1f3qhtwxwf7j30k00zkt9j.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
