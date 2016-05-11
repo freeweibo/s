@@ -107,7 +107,7 @@
 </h2>
 <p>SPAM 躁热啊[笑cry][笑cry][笑cry]<br><br>RE: 这个季节该脱掉长裤了！http://t.cn/Rq1rbkR</p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3974026131602171" target="freeweibo-mirror">【雷洋事件使中国至少倒退十年】说实话，我如今不太敢说话了，我…</a>
 </h2>
