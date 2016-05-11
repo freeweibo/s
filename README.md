@@ -41,7 +41,13 @@
 </h2>
 <p>//@干卫东律师://@陈光武律师://@六安自媒体: //@董郎dxp:转！@帮的 @全真道士梁兴扬 @淞沪教父  //@李不白的店:转！//@杨锦麟:從孫志剛到雷洋，都是大學生，一個湖北人，一個湖南人，一個本科，一個碩士⋯⋯ //@萧含:转！<br><br>RE: 请转发：中国人民大学88级部分校友就雷洋同学意外身亡的声明<br><img src="http://ww3.sinaimg.cn/large/7c0e9549gw1f3rcw1439tj20qo46mkjl.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3973953246876823" target="freeweibo-mirror">人民网吴君梅刊辞职信 人民网的一名员工，决定告别党媒，并将自…</a>
+</h2>
+<p>人民网吴君梅刊辞职信 人民网的一名员工，决定告别党媒，并将自己的辞呈公开。 〝不想再敲诈了〞人民网湖北频道的媒介顾问吴君梅女士5月6号写下辞职信，近期又将这份辞呈投书网站，进行公开。 吴君梅表示，... http://t.cn/RqBf6GA</p>
+<p>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3973951984657280" target="freeweibo-mirror">//@夏榆的海景房:转浩波兄：昌平警方反复强调死者“嫖娼”，…</a>
 </h2>
@@ -95,13 +101,13 @@
 </h2>
 <p>SPAM 也没有嫖娼啦 就是打个飞机。。<br><br>RE: 汗……http://t.cn/RqBtTAn</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3973939422442305" target="freeweibo-mirror">同学们，大家起来，担付起保命的责任，预备唱。</a>
 </h2>
 <p>同学们，大家起来，担付起保命的责任，预备唱。<br><br>RE: 请转发：中国人民大学88级部分校友就雷洋同学意外身亡的声明<br><img src="http://ww3.sinaimg.cn/large/7c0e9549gw1f3rcw1439tj20qo46mkjl.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3973933403716582" target="freeweibo-mirror">警方把雷洋案舆论导向嫖娼是可耻的。嫖娼算什么？违法抓嫖才恶心…</a>
 </h2>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3973914365633849" target="freeweibo-mirror">SPAM @云韵峰: 常州“毒地”土壤深夜转移　监测数据蹊跷…</a>
 </h2>
 <p>SPAM @云韵峰: 常州“毒地”土壤深夜转移　监测数据蹊跷缺失，而参与调查的专家雷洋也嫖娼意外死亡了，一切皆大欢喜，可怜雷洋的老婆和刚出生的女儿受苦了！<br><img src="http://ww2.sinaimg.cn/large/ab8ad551gw1f3raveo2stj20l40fun19.jpg"></p>
-<p>
-	<small> ============== 6小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3973913535373022" target="freeweibo-mirror">可以约束带离，警用装备中的警绳、手铐、胶带就是这时用的。不得…</a>
-</h2>
-<p>可以约束带离，警用装备中的警绳、手铐、胶带就是这时用的。不得殴打和伤害。警察强制力不得超过必要限度，更不许报复性暴力伤害。//@Dust-Wind：陈律，不接受口头传唤怎么办？ //@陈有西:你的观点是错误的。详细分析请查阅黄海波案中我对立法废法过程的回顾和疏理。卖淫嫖娼收教制度，随劳教废除同时<br><br>RE: 陈有西律师：昌平便衣警察已经涉嫌犯罪。京衡律师董事长兼主任 @陈有西 认为：昌平便衣警察已经涉嫌犯罪，须立即列为侦查对象，该局应回避办案，由异地专案组进行调查。<br><img src="http://ww2.sinaimg.cn/large/7c1f76efgw1f3r7xezo6yj213e0qo15j.jpg"></p>
 <p>
 	<small> ============== 6小时前</small>
 </p>
