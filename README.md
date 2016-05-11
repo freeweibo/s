@@ -25,6 +25,54 @@
 <p>
 	<small> ============== 1小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3973880970096373" target="freeweibo-mirror">我们要求很简单。国家花了那么多钱装那么多探头，把雷阳行进路线…</a>
+</h2>
+<p>我们要求很简单。国家花了那么多钱装那么多探头，把雷阳行进路线整理出来给大家看不就行了？小区摄像设备也坏了，警察摄像设备也坏了……这届犯罪嫌疑人身体不行，难道连监控设备都不行？<br><br>RE: 【昌平便衣警察已经涉嫌犯罪，须立即列为侦查对象，该局应回避办案，由异地专案组进行调查】一早看了腾讯转的人民日报报道的北京警方通报，觉得雷某死亡案办案警察已经涉嫌犯罪。1，这个调查通报反而证实了可能系办案中打死的直接冲突起因。2，嫖娼即使真实，仍然不是罪犯，中国没有嫖娼罪，也取消了劳...全文： http://m.weibo.cn/1803570001/3973853900797623<br><img src="http://ww4.sinaimg.cn/large/6b804b51gw1f3r3xb51qoj20qo1bgqby.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3973878680715029" target="freeweibo-mirror">//@雷颐: //@傅蔚冈:转发微博</a>
+</h2>
+<p>//@雷颐: //@傅蔚冈:转发微博<br><br>RE: 【昌平便衣警察已经涉嫌犯罪，须立即列为侦查对象，该局应回避办案，由异地专案组进行调查】一早看了腾讯转的人民日报报道的北京警方通报，觉得雷某死亡案办案警察已经涉嫌犯罪。1，这个调查通报反而证实了可能系办案中打死的直接冲突起因。2，嫖娼即使真实，仍然不是罪犯，中国没有嫖娼罪，也取消了劳...全文： http://m.weibo.cn/1803570001/3973853900797623<br><img src="http://ww4.sinaimg.cn/large/6b804b51gw1f3r3xb51qoj20qo1bgqby.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3973873009546110" target="freeweibo-mirror">//@徐昕: /@陈有西: 警察有口头传唤权，公民有扭送权，…</a>
+</h2>
+<p>//@徐昕: /@陈有西: 警察有口头传唤权，公民有扭送权，但有三个前提：1，对象正在实施违法犯罪行为，不是无端怀疑；2，必须着明显警服警号，出示警官证（这就是我指出的足浴店证人被抓可能扭曲真相，有无出示，死者无言）；3，传唤必须文明，不得使用暴力。扭送约束，以到案为限，不得有任何殴打<br><br>RE: 【昌平便衣警察已经涉嫌犯罪，须立即列为侦查对象，该局应回避办案，由异地专案组进行调查】一早看了腾讯转的人民日报报道的北京警方通报，觉得雷某死亡案办案警察已经涉嫌犯罪。1，这个调查通报反而证实了可能系办案中打死的直接冲突起因。2，嫖娼即使真实，仍然不是罪犯，中国没有嫖娼罪，也取消了劳...全文： http://m.weibo.cn/1803570001/3973853900797623<br><img src="http://ww4.sinaimg.cn/large/6b804b51gw1f3r3xb51qoj20qo1bgqby.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3973871717384696" target="freeweibo-mirror">//@北大杨众筹://@姜汝祥部落电商://@王小山: //…</a>
+</h2>
+<p>//@北大杨众筹://@姜汝祥部落电商://@王小山: //@西丁:专业分析<br><br>RE: 【昌平便衣警察已经涉嫌犯罪，须立即列为侦查对象，该局应回避办案，由异地专案组进行调查】一早看了腾讯转的人民日报报道的北京警方通报，觉得雷某死亡案办案警察已经涉嫌犯罪。1，这个调查通报反而证实了可能系办案中打死的直接冲突起因。2，嫖娼即使真实，仍然不是罪犯，中国没有嫖娼罪，也取消了劳...全文： http://m.weibo.cn/1803570001/3973853900797623<br><img src="http://ww4.sinaimg.cn/large/6b804b51gw1f3r3xb51qoj20qo1bgqby.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3973871037960369" target="freeweibo-mirror">//@巡视姐://@徐昕: //@章诒和: //@陈有西: …</a>
+</h2>
+<p>//@巡视姐://@徐昕: //@章诒和: //@陈有西: 警察有口头传唤权，公民有扭送权，但有三个前提：1，对象正在实施违法犯罪行为，不是无端怀疑；2，必须着明显警服警号，出示警官证（这就是我指出的足浴店证人被抓可能扭曲真相，有无出示，死者无言）；3，传唤必须文明，不得使用暴力。扭送约束，以到案为<br><br>RE: 【昌平便衣警察已经涉嫌犯罪，须立即列为侦查对象，该局应回避办案，由异地专案组进行调查】一早看了腾讯转的人民日报报道的北京警方通报，觉得雷某死亡案办案警察已经涉嫌犯罪。1，这个调查通报反而证实了可能系办案中打死的直接冲突起因。2，嫖娼即使真实，仍然不是罪犯，中国没有嫖娼罪，也取消了劳...全文： http://m.weibo.cn/1803570001/3973853900797623<br><img src="http://ww4.sinaimg.cn/large/6b804b51gw1f3r3xb51qoj20qo1bgqby.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3973870291595883" target="freeweibo-mirror">哦有道理，学习了</a>
+</h2>
+<p>哦有道理，学习了<br><br>RE: 【昌平便衣警察已经涉嫌犯罪，须立即列为侦查对象，该局应回避办案，由异地专案组进行调查】一早看了腾讯转的人民日报报道的北京警方通报，觉得雷某死亡案办案警察已经涉嫌犯罪。1，这个调查通报反而证实了可能系办案中打死的直接冲突起因。2，嫖娼即使真实，仍然不是罪犯，中国没有嫖娼罪，也取消了劳...全文： http://m.weibo.cn/1803570001/3973853900797623<br><img src="http://ww4.sinaimg.cn/large/6b804b51gw1f3r3xb51qoj20qo1bgqby.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3973867128579330" target="freeweibo-mirror">//@王小山://@西丁:专业分析</a>
+</h2>
+<p>//@王小山://@西丁:专业分析<br><br>RE: 【昌平便衣警察已经涉嫌犯罪，须立即列为侦查对象，该局应回避办案，由异地专案组进行调查】一早看了腾讯转的人民日报报道的北京警方通报，觉得雷某死亡案办案警察已经涉嫌犯罪。1，这个调查通报反而证实了可能系办案中打死的直接冲突起因。2，嫖娼即使真实，仍然不是罪犯，中国没有嫖娼罪，也取消了劳...全文： http://m.weibo.cn/1803570001/3973853900797623<br><img src="http://ww4.sinaimg.cn/large/6b804b51gw1f3r3xb51qoj20qo1bgqby.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3973862381255064" target="freeweibo-mirror">//@George日行万步://@雷颐: //@傅蔚冈:转发…</a>
+</h2>
+<p>//@George日行万步://@雷颐: //@傅蔚冈:转发微博<br><br>RE: 【昌平便衣警察已经涉嫌犯罪，须立即列为侦查对象，该局应回避办案，由异地专案组进行调查】一早看了腾讯转的人民日报报道的北京警方通报，觉得雷某死亡案办案警察已经涉嫌犯罪。1，这个调查通报反而证实了可能系办案中打死的直接冲突起因。2，嫖娼即使真实，仍然不是罪犯，中国没有嫖娼罪，也取消了劳...全文： http://m.weibo.cn/1803570001/3973853900797623<br><img src="http://ww4.sinaimg.cn/large/6b804b51gw1f3r3xb51qoj20qo1bgqby.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3973833981671609" target="freeweibo-mirror">他都知道是浩劫，身邊的其他人知道嗎？ //@徐付群:文化大革…</a>
 </h2>
 <p>他都知道是浩劫，身邊的其他人知道嗎？ //@徐付群:文化大革命是一场浩劫。浩劫，意思是大灾难、大劫难吧？</p>
@@ -59,13 +107,13 @@
 </h2>
 <p>SPAM 【关于颈椎的秘密…九张图告诉你】 【喝蜂蜜水的黄金时间，你知道吗】 【晚饭不吃，饿治百病】 【早晨吃鸡蛋对身体是好还是坏？】 【老中医教你怎么辨别中药！】 尽在 【你要活到100岁】 关注卫星号：【both100】 百百带大家健康快乐地度过每一天<br><img src="http://ww4.sinaimg.cn/large/69cca5e3jw1f3qodz5zcqj20k00zkgoe.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3973718436784524" target="freeweibo-mirror">SPAM 脸干净了好多，太厉害了！@纯中药偏方祛痘</a>
 </h2>
 <p>SPAM 脸干净了好多，太厉害了！@纯中药偏方祛痘</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3973687420634950" target="freeweibo-mirror">雷洋死后现场的数个摄像头同时“坏了”，雷生前携带的手机属遗物…</a>
 </h2>
@@ -88,54 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3973661675233663" target="freeweibo-mirror">不吃狗粮！</a>
 </h2>
 <p>不吃狗粮！<br><img src="http://ww3.sinaimg.cn/large/005Pvz9kjw1f3qhtwxwf7j30k00zkt9j.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3973661025550639" target="freeweibo-mirror">SPAM 安利 vx:104644548</a>
-</h2>
-<p>SPAM 安利 vx:104644548</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3973650417532823" target="freeweibo-mirror">SPAM GD、AdrianneHo都在上脚的大Air风强势…</a>
-</h2>
-<p>SPAM GD、AdrianneHo都在上脚的大Air风强势归来，你还会跟风剁手吗？（详见评论第一条）<br><img src="http://ww3.sinaimg.cn/large/6d5306acjw1f3qgjwbjarj20ep0epwj2.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3973649931665046" target="freeweibo-mirror">//@Jenny陶陶陶://@谢文://@Ming_the_…</a>
-</h2>
-<p>//@Jenny陶陶陶://@谢文://@Ming_the_Great_大明://@王周生:转发微博<br><br>RE: 港媒披露，查询数据库初步发现，又有15名中共从中央到地方的高官疑卷入。<br><img src="http://ww1.sinaimg.cn/large/006evBGjgw1f3qc1jgqbdj30hs0vkdlm.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3973647725299426" target="freeweibo-mirror">SPAM #公益活动# 我和佳佳去过很多山区，那里的寨卡、登…</a>
-</h2>
-<p>SPAM #公益活动# 我和佳佳去过很多山区，那里的寨卡、登革热等蚊疾特可怕！那些留守儿童，别说驱蚊产品，连基本的驱蚊知识都没人教[可怜]。支持@超威贝贝健 公益众筹http://t.cn/RqRpxKj，佳佳也说要#和妈妈一起战斗#，让孩子们都能得到天然的驱蚊产品。</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3973645242120915" target="freeweibo-mirror">//@清淡06200:奧，海棠等得起。//@性情中人_zyz…</a>
-</h2>
-<p>//@清淡06200:奧，海棠等得起。//@性情中人_zyzs:右边这许多赞美，让光腚的今上情何以堪？[哈哈]//@小南街胡同B:树命比人命长，树说等得起[笑cry]//@千山神胡说:[笑cry]//@王狼默: 道是明年秋光好，煤山海棠又逢君[哈哈][笑cry]//@千山神胡说:俺给某人预先写一条墓志铭：这是一个死于谎言的蠢货！</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3973627965590671" target="freeweibo-mirror">残忍！！！</a>
-</h2>
-<p>残忍！！！<br><br>RE: 【闽清文定#小学附近一老一少被砍# 孩子当场身亡[蜡烛]】今早，闽清县坂东镇文定中心小学门口附近，有两个人被砍，一死一伤。爆料人称，死者为一年级学生，伤者为死者奶奶。原因疑为砍人者和奶奶有个人恩怨，现在砍人者已经被警察控制。[怒]具体情况还待进一步核实。 http://t.cn/Rq3N0mw （海峡网 ）<br><img src="http://ww4.sinaimg.cn/large/9c78597dgw1f3q5ljmbinj20c80lq756.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3973621716838906" target="freeweibo-mirror">【首善之都，请让女孩上学!】真是大兴公安分局李向标警官干的事…</a>
-</h2>
-<p>【首善之都，请让女孩上学!】真是大兴公安分局李向标警官干的事吗？没准李警官也是有孩子的人了，不论从法律上，还是从良知上，为何“躲在暗处”阻断天使般孩子的上学路呢？依法治国，你凭哪条法律的授权把房东整整训了两钟头？<br><br>RE: 我发表了头条文章:《王峭岭：“我能做什么？我要怎么做”》 http://t.cn/Rq3XdrO</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3973620386830561" target="freeweibo-mirror">SPAM 深得我心，一直走下去</a>
-</h2>
-<p>SPAM 深得我心，一直走下去</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
