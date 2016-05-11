@@ -37,6 +37,18 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3973983206749266" target="freeweibo-mirror">//@神剑---2011://@顶天立地纯爷们-汉子: //…</a>
+</h2>
+<p>//@神剑---2011://@顶天立地纯爷们-汉子: //@版纳东生:请问:@陈里 @吴伟bj @徐昕 @南沧海sea @于建嵘 @陈里 @清风哲文@人民日报 @法制晚报  @中国政府网 @最高人民检察院 @周李城 @真话哥 @董郎dxp @媒体人张园 @媒体人欧菲@南方都市报  什么情况？</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3973982690087564" target="freeweibo-mirror">//@第十电影: //@电影通缉令://@机智的大马猴子: …</a>
+</h2>
+<p>//@第十电影: //@电影通缉令://@机智的大马猴子: 转发微博 //@镰刀刮腋毛:转发微博 //@加藤蚁:转发微博<br><br>RE: 关于雷洋嫖娼死亡事件，一位美国朋友的看法。<br><img src="http://ww1.sinaimg.cn/large/4c246125gw1f3rek85edqj20n019tn9h.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3973973123856401" target="freeweibo-mirror">—— 哎你看那个人被坦克压死了啊 ——当时交通灯是绿灯红灯啊…</a>
 </h2>
 <p>—— 哎你看那个人被坦克压死了啊 ——当时交通灯是绿灯红灯啊？ #热点事件谈论有感</p>
@@ -67,6 +79,12 @@
 <p>
 	<small> ============== 4小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3973950113986582" target="freeweibo-mirror">确实散焦了。即便就是雷某人证据确凿的嫖了，也罪不至死。//@…</a>
+</h2>
+<p>确实散焦了。即便就是雷某人证据确凿的嫖了，也罪不至死。//@何葆国://@陈远: //@杜君立: 暴力需要谎言来包装，谎言需要暴力来维持。二者焦不离孟，孟不离焦。//@加藤蚁: 转发微博<br><br>RE: 关于雷洋嫖娼死亡事件，一位美国朋友的看法。<br><img src="http://ww1.sinaimg.cn/large/4c246125gw1f3rek85edqj20n019tn9h.jpg"></p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3973948368545220" target="freeweibo-mirror">//@充气榔头: /@caowumao@陈有西:[围观]@越…</a>
 </h2>
 <p>//@充气榔头: /@caowumao@陈有西:[围观]@越界微影：据媒体报道:事发地不足五百米马路有逾三十家足浴店。这些“足浴店”当非一日形成，偏在那一晚那一家有人举报，且早在20时既已蹲守现场的警方对21时入店“嫖娼”的雷洋，一不抓现行二不入店盘查卖淫女，只盘查控制已离开卖淫嫖娼现场的雷洋，背后隐<br><br>RE: 这是陈有西律师的看法，此微博已无法转发，特截图。我同意陈律师看法，当事者昌平警方应该回避，建议组织有媒体、律师参加的第三方调查。<br><img src="http://ww2.sinaimg.cn/large/53bd81b0jw1f3r7wmw59bj20qo1bgtko.jpg"></p>
@@ -76,6 +94,12 @@
 	<a href="https://freeweibo.com/weibo/3973948205079369" target="freeweibo-mirror">转！@帮的 @全真道士梁兴扬 @淞沪教父  //@李不白的店…</a>
 </h2>
 <p>转！@帮的 @全真道士梁兴扬 @淞沪教父  //@李不白的店:转！//@杨锦麟:從孫志剛到雷洋，都是大學生，一個湖北人，一個湖南人，一個本科，一個碩士⋯⋯ //@萧含:转！<br><br>RE: 请转发：中国人民大学88级部分校友就雷洋同学意外身亡的声明<br><img src="http://ww3.sinaimg.cn/large/7c0e9549gw1f3rcw1439tj20qo46mkjl.jpg"></p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3973947080613638" target="freeweibo-mirror">我支持百姓所为，发展是需要和谐，发展需要尊重人民，发展需要道…</a>
+</h2>
+<p>我支持百姓所为，发展是需要和谐，发展需要尊重人民，发展需要道德，发展需要公平，发展不是不择手段，发展不是暴力发展，发展可以有选择性，幸福国家是什么？一个用枪口对向自己人民的行为，那太可怕…… 我们是平民 是百姓 ，只想生活的平平安安，仅此而已！今天的枪口，心想是不是还会对准我们……<br><br>RE: 范华培，被郑州警方“果断击毙”的被拆迁户，他据说杀了三个人，其中一个是街道办副主任。他，被被拆迁户称为“英雄”。<br><img src="http://ww1.sinaimg.cn/large/3f79a379gw1f3rdvl0tynj20kz0qoabx.jpg"></p>
 <p>
 	<small> ============== 4小时前</small>
 </p><h2>
@@ -89,7 +113,7 @@
 </h2>
 <p>便衣抓嫖，足疗店门口蹲守，的确更像是一场钓鱼执法式的敲诈。目前，关注的重点一是法医结论，另外一个是警方执法的方式和“执法”意图。//@九味安神茶://@邓相超:<br><br>RE: 请转发：中国人民大学88级部分校友就雷洋同学意外身亡的声明<br><img src="http://ww3.sinaimg.cn/large/7c0e9549gw1f3rcw1439tj20qo46mkjl.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3973943242978153" target="freeweibo-mirror">SPAM //@运营商头条:生态合作，再创辉煌！[心]</a>
 </h2>
@@ -114,30 +138,6 @@
 <p>同学们，大家起来，担付起保命的责任，预备唱。<br><br>RE: 请转发：中国人民大学88级部分校友就雷洋同学意外身亡的声明<br><img src="http://ww3.sinaimg.cn/large/7c0e9549gw1f3rcw1439tj20qo46mkjl.jpg"></p>
 <p>
 	<small> ============== 5小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3973933403716582" target="freeweibo-mirror">警方把雷洋案舆论导向嫖娼是可耻的。嫖娼算什么？违法抓嫖才恶心…</a>
-</h2>
-<p>警方把雷洋案舆论导向嫖娼是可耻的。嫖娼算什么？违法抓嫖才恶心！用私德，公权力杀害公民，孰不可忍！陈独秀嫖得，我为何嫖不得？光天化日下，就是嫖又怎地？有两百元的鸭吗？给我站出来走一圈。警察自己都嫖。没一个干净。 http://t.cn/R2WJ0LW</p>
-<p>
-	<small> ============== 5小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3973931930586417" target="freeweibo-mirror">请转发：中国人民大学88级部分校友就雷洋同学意外身亡的声明</a>
-</h2>
-<p>请转发：中国人民大学88级部分校友就雷洋同学意外身亡的声明<br><img src="http://ww3.sinaimg.cn/large/7c0e9549gw1f3rcw1439tj20qo46mkjl.jpg"></p>
-<p>
-	<small> ============== 5小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3973929507010596" target="freeweibo-mirror">SPAM 看着很好吃的样子……谁去试吃一下！好吃吗？</a>
-</h2>
-<p>SPAM 看着很好吃的样子……谁去试吃一下！好吃吗？</p>
-<p>
-	<small> ============== 5小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3973917926898480" target="freeweibo-mirror">SPAM 青岛的小伙伴们看过来，这个周日下午我们来聚一发！我…</a>
-</h2>
-<p>SPAM 青岛的小伙伴们看过来，这个周日下午我们来聚一发！我将带来#OPPO全新拍照手机R9#给大家现场体验，除了精致的手机，还有高颜值美女帅哥镇场，我也准备了R9手机等丰富奖品送给大家，晚上一起聚餐，在这个周末，让我们一起享受闪充，享受自拍，享受生活！现征集30名小伙伴的颜值参加，私信报名哈！<br><img src="http://ww2.sinaimg.cn/large/5434fd39jw1f3rasc2sn4j218g18gnjj.jpg"></p>
-<p>
-	<small> ============== 6小时前</small>
 </p>
 <table>
     <tr>
