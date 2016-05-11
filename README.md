@@ -101,7 +101,7 @@
 </h2>
 <p>//@柳刀叶://@王敏竹--反计救国: 有贺龙的种，没贺龙的命!可惜了!<br><br>RE: 小伙子名叫范花培，2016年5月10日提刀杀死4名拆迁人员！后被警察当场开枪打死！<br><img src="http://ww2.sinaimg.cn/large/006eDsmujw1f3qr28hzc7j30ch0kw752.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3973954324869616" target="freeweibo-mirror">//@干卫东律师://@陈光武律师://@六安自媒体: //…</a>
 </h2>
