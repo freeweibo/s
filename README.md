@@ -101,7 +101,7 @@
 </h2>
 <p>请转发：中国人民大学88级部分校友就雷洋同学意外身亡的声明<br><img src="http://ww3.sinaimg.cn/large/7c0e9549gw1f3rcw1439tj20qo46mkjl.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3973929507010596" target="freeweibo-mirror">SPAM 看着很好吃的样子……谁去试吃一下！好吃吗？</a>
 </h2>
