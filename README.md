@@ -59,7 +59,13 @@
 </h2>
 <p>便衣抓嫖，足疗店门口蹲守，的确更像是一场钓鱼执法式的敲诈。目前，关注的重点一是法医结论，另外一个是警方执法的方式和“执法”意图。//@九味安神茶://@邓相超:<br><br>RE: 请转发：中国人民大学88级部分校友就雷洋同学意外身亡的声明<br><img src="http://ww3.sinaimg.cn/large/7c0e9549gw1f3rcw1439tj20qo46mkjl.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3973943242978153" target="freeweibo-mirror">SPAM //@运营商头条:生态合作，再创辉煌！[心]</a>
+</h2>
+<p>SPAM //@运营商头条:生态合作，再创辉煌！[心]</p>
+<p>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3973941439842897" target="freeweibo-mirror">//@记者谈春平:#老谈说事# 秀才斗得过流氓？</a>
 </h2>
@@ -70,6 +76,12 @@
 	<a href="https://freeweibo.com/weibo/3973939878857195" target="freeweibo-mirror">SPAM 也没有嫖娼啦 就是打个飞机。。</a>
 </h2>
 <p>SPAM 也没有嫖娼啦 就是打个飞机。。<br><br>RE: 汗……http://t.cn/RqBtTAn</p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3973939422442305" target="freeweibo-mirror">同学们，大家起来，担付起保命的责任，预备唱。</a>
+</h2>
+<p>同学们，大家起来，担付起保命的责任，预备唱。<br><br>RE: 请转发：中国人民大学88级部分校友就雷洋同学意外身亡的声明<br><img src="http://ww3.sinaimg.cn/large/7c0e9549gw1f3rcw1439tj20qo46mkjl.jpg"></p>
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
@@ -124,18 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3973890776707151" target="freeweibo-mirror">支持//@何光伟:让犯罪嫌疑人自己查自己，不是一直都这么干嘛</a>
 </h2>
 <p>支持//@何光伟:让犯罪嫌疑人自己查自己，不是一直都这么干嘛<br><br>RE: 陈有西律师：昌平便衣警察已经涉嫌犯罪。京衡律师董事长兼主任 @陈有西 认为：昌平便衣警察已经涉嫌犯罪，须立即列为侦查对象，该局应回避办案，由异地专案组进行调查。<br><img src="http://ww2.sinaimg.cn/large/7c1f76efgw1f3r7xezo6yj213e0qo15j.jpg"></p>
-<p>
-	<small> ============== 6小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3973888873025925" target="freeweibo-mirror">这是陈有西律师的看法，此微博已无法转发，特截图。我同意陈律师…</a>
-</h2>
-<p>这是陈有西律师的看法，此微博已无法转发，特截图。我同意陈律师看法，当事者昌平警方应该回避，建议组织有媒体、律师参加的第三方调查。<br><img src="http://ww2.sinaimg.cn/large/53bd81b0jw1f3r7wmw59bj20qo1bgtko.jpg"></p>
-<p>
-	<small> ============== 6小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3973888779922434" target="freeweibo-mirror">陈有西律师：昌平便衣警察已经涉嫌犯罪。京衡律师董事长兼主任 …</a>
-</h2>
-<p>陈有西律师：昌平便衣警察已经涉嫌犯罪。京衡律师董事长兼主任 @陈有西 认为：昌平便衣警察已经涉嫌犯罪，须立即列为侦查对象，该局应回避办案，由异地专案组进行调查。<br><img src="http://ww2.sinaimg.cn/large/7c1f76efgw1f3r7xezo6yj213e0qo15j.jpg"></p>
 <p>
 	<small> ============== 6小时前</small>
 </p>
