@@ -35,7 +35,7 @@
 </h2>
 <p>SPAM 从他身上。看到杨佳......陈胜，吴广，官逼民反，血仇当报的感觉。 //@夙生律师事务所: //@萧迪居04:<br><br>RE: 小伙子名叫范花培，2016年5月10日提刀杀死4名拆迁人员！后被警察当场开枪打死！<br><img src="http://ww2.sinaimg.cn/large/006eDsmujw1f3qr28hzc7j30ch0kw752.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3973999383413550" target="freeweibo-mirror">SPAM //@萧迪居04: 生当作人杰，死亦为鬼雄[goo…</a>
 </h2>
