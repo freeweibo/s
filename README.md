@@ -89,7 +89,7 @@
 </h2>
 <p>//@第十电影: //@电影通缉令://@机智的大马猴子: 转发微博 //@镰刀刮腋毛:转发微博 //@加藤蚁:转发微博<br><br>RE: 关于雷洋嫖娼死亡事件，一位美国朋友的看法。<br><img src="http://ww1.sinaimg.cn/large/4c246125gw1f3rek85edqj20n019tn9h.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3973973123856401" target="freeweibo-mirror">—— 哎你看那个人被坦克压死了啊 ——当时交通灯是绿灯红灯啊…</a>
 </h2>
@@ -119,13 +119,13 @@
 </h2>
 <p>今日朋友圈最佳评论：记住范花培，一不上访，二不绝食！比杨佳更壮烈！比雷洋更值得关注！他平时不宣扬爱党爱国，关键时刻用生命捍卫了自己的权利与尊严。<br><img src="http://ww3.sinaimg.cn/large/006fm52ujw1f3rf881qc8j30ch0m8t99.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3973951984657280" target="freeweibo-mirror">//@夏榆的海景房:转浩波兄：昌平警方反复强调死者“嫖娼”，…</a>
 </h2>
 <p>//@夏榆的海景房:转浩波兄：昌平警方反复强调死者“嫖娼”，用心真是既猥琐又邪恶！每当警方干了坏事，总要拼命给当事人身上泼道德污水！仿佛因为雷某嫖娼了，所以就活该被弄死似的！ //@老平客://@夏榆的海景房://@章诒和://@杨锦麟:<br><br>RE: 请转发：中国人民大学88级部分校友就雷洋同学意外身亡的声明<br><img src="http://ww3.sinaimg.cn/large/7c0e9549gw1f3rcw1439tj20qo46mkjl.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3973951313236934" target="freeweibo-mirror">//@章诒和://@杨锦麟: 從孫志剛到雷洋，都是大學生，一…</a>
 </h2>
