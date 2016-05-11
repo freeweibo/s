@@ -89,7 +89,7 @@
 </h2>
 <p>确实散焦了。即便就是雷某人证据确凿的嫖了，也罪不至死。//@何葆国://@陈远: //@杜君立: 暴力需要谎言来包装，谎言需要暴力来维持。二者焦不离孟，孟不离焦。//@加藤蚁: 转发微博<br><br>RE: 关于雷洋嫖娼死亡事件，一位美国朋友的看法。<br><img src="http://ww1.sinaimg.cn/large/4c246125gw1f3rek85edqj20n019tn9h.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3973948368545220" target="freeweibo-mirror">//@充气榔头: /@caowumao@陈有西:[围观]@越…</a>
 </h2>
@@ -106,6 +106,12 @@
 	<a href="https://freeweibo.com/weibo/3973947080613638" target="freeweibo-mirror">我支持百姓所为，发展是需要和谐，发展需要尊重人民，发展需要道…</a>
 </h2>
 <p>我支持百姓所为，发展是需要和谐，发展需要尊重人民，发展需要道德，发展需要公平，发展不是不择手段，发展不是暴力发展，发展可以有选择性，幸福国家是什么？一个用枪口对向自己人民的行为，那太可怕…… 我们是平民 是百姓 ，只想生活的平平安安，仅此而已！今天的枪口，心想是不是还会对准我们……<br><br>RE: 范华培，被郑州警方“果断击毙”的被拆迁户，他据说杀了三个人，其中一个是街道办副主任。他，被被拆迁户称为“英雄”。<br><img src="http://ww1.sinaimg.cn/large/3f79a379gw1f3rdvl0tynj20kz0qoabx.jpg"></p>
+<p>
+	<small> ============== 5小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3973946493807052" target="freeweibo-mirror">关于雷洋嫖娼死亡事件，一位美国朋友的看法。</a>
+</h2>
+<p>关于雷洋嫖娼死亡事件，一位美国朋友的看法。<br><img src="http://ww1.sinaimg.cn/large/4c246125gw1f3rek85edqj20n019tn9h.jpg"></p>
 <p>
 	<small> ============== 5小时前</small>
 </p><h2>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3973941439842897" target="freeweibo-mirror">//@记者谈春平:#老谈说事# 秀才斗得过流氓？</a>
 </h2>
 <p>//@记者谈春平:#老谈说事# 秀才斗得过流氓？<br><br>RE: 请转发：中国人民大学88级部分校友就雷洋同学意外身亡的声明<br><img src="http://ww3.sinaimg.cn/large/7c0e9549gw1f3rcw1439tj20qo46mkjl.jpg"></p>
-<p>
-	<small> ============== 5小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3973939878857195" target="freeweibo-mirror">SPAM 也没有嫖娼啦 就是打个飞机。。</a>
-</h2>
-<p>SPAM 也没有嫖娼啦 就是打个飞机。。<br><br>RE: 汗……http://t.cn/RqBtTAn</p>
 <p>
 	<small> ============== 5小时前</small>
 </p>
