@@ -67,6 +67,12 @@
 <p>
 	<small> ============== 4小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3973952344795645" target="freeweibo-mirror">今日朋友圈最佳评论：记住范花培，一不上访，二不绝食！比杨佳更…</a>
+</h2>
+<p>今日朋友圈最佳评论：记住范花培，一不上访，二不绝食！比杨佳更壮烈！比雷洋更值得关注！他平时不宣扬爱党爱国，关键时刻用生命捍卫了自己的权利与尊严。<br><img src="http://ww3.sinaimg.cn/large/006fm52ujw1f3rf881qc8j30ch0m8t99.jpg"></p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3973951984657280" target="freeweibo-mirror">//@夏榆的海景房:转浩波兄：昌平警方反复强调死者“嫖娼”，…</a>
 </h2>
 <p>//@夏榆的海景房:转浩波兄：昌平警方反复强调死者“嫖娼”，用心真是既猥琐又邪恶！每当警方干了坏事，总要拼命给当事人身上泼道德污水！仿佛因为雷某嫖娼了，所以就活该被弄死似的！ //@老平客://@夏榆的海景房://@章诒和://@杨锦麟:<br><br>RE: 请转发：中国人民大学88级部分校友就雷洋同学意外身亡的声明<br><img src="http://ww3.sinaimg.cn/large/7c0e9549gw1f3rcw1439tj20qo46mkjl.jpg"></p>
@@ -101,7 +107,7 @@
 </h2>
 <p>我支持百姓所为，发展是需要和谐，发展需要尊重人民，发展需要道德，发展需要公平，发展不是不择手段，发展不是暴力发展，发展可以有选择性，幸福国家是什么？一个用枪口对向自己人民的行为，那太可怕…… 我们是平民 是百姓 ，只想生活的平平安安，仅此而已！今天的枪口，心想是不是还会对准我们……<br><br>RE: 范华培，被郑州警方“果断击毙”的被拆迁户，他据说杀了三个人，其中一个是街道办副主任。他，被被拆迁户称为“英雄”。<br><img src="http://ww1.sinaimg.cn/large/3f79a379gw1f3rdvl0tynj20kz0qoabx.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3973945193458813" target="freeweibo-mirror">//@风流云散://@陈有西: //@越界微影：据媒体报道:…</a>
 </h2>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3973939878857195" target="freeweibo-mirror">SPAM 也没有嫖娼啦 就是打个飞机。。</a>
 </h2>
 <p>SPAM 也没有嫖娼啦 就是打个飞机。。<br><br>RE: 汗……http://t.cn/RqBtTAn</p>
-<p>
-	<small> ============== 5小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3973939422442305" target="freeweibo-mirror">同学们，大家起来，担付起保命的责任，预备唱。</a>
-</h2>
-<p>同学们，大家起来，担付起保命的责任，预备唱。<br><br>RE: 请转发：中国人民大学88级部分校友就雷洋同学意外身亡的声明<br><img src="http://ww3.sinaimg.cn/large/7c0e9549gw1f3rcw1439tj20qo46mkjl.jpg"></p>
 <p>
 	<small> ============== 5小时前</small>
 </p>
