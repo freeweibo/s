@@ -71,7 +71,7 @@
 </h2>
 <p>陈有西律师：昌平便衣警察已经涉嫌犯罪。京衡律师董事长兼主任 @陈有西 认为：昌平便衣警察已经涉嫌犯罪，须立即列为侦查对象，该局应回避办案，由异地专案组进行调查。<br><img src="http://ww2.sinaimg.cn/large/7c1f76efgw1f3r7xezo6yj213e0qo15j.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3973883771917173" target="freeweibo-mirror">//@共识网:[最右]//@六六: 我们要求很简单。国家花了…</a>
 </h2>
