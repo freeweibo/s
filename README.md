@@ -25,6 +25,24 @@
 <p>
 	<small> ============== 1小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3973999383413550" target="freeweibo-mirror">SPAM //@萧迪居04: 生当作人杰，死亦为鬼雄[goo…</a>
+</h2>
+<p>SPAM //@萧迪居04: 生当作人杰，死亦为鬼雄[good]//@刘_超哥看盘: 哎！说点什么呢？最好还是沉默吧！//@夙生律师事务所://@萧迪居04:<br><br>RE: 小伙子名叫范花培，2016年5月10日提刀杀死4名拆迁人员！后被警察当场开枪打死！<br><img src="http://ww2.sinaimg.cn/large/006eDsmujw1f3qr28hzc7j30ch0kw752.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3973996498384012" target="freeweibo-mirror">SPAM //@萧迪居04:</a>
+</h2>
+<p>SPAM //@萧迪居04:<br><br>RE: 小伙子名叫范花培，2016年5月10日提刀杀死4名拆迁人员！后被警察当场开枪打死！<br><img src="http://ww2.sinaimg.cn/large/006eDsmujw1f3qr28hzc7j30ch0kw752.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3973985672202508" target="freeweibo-mirror">//@梦里依稀杠红中://@黑土邦德: //@李云龙:今天你…</a>
+</h2>
+<p>//@梦里依稀杠红中://@黑土邦德: //@李云龙:今天你不站出来维护正义，明天就没有人为你说话。//@楊康令: 说到点了！<br><br>RE: 关于雷洋嫖娼死亡事件，一位美国朋友的看法。<br><img src="http://ww1.sinaimg.cn/large/4c246125gw1f3rek85edqj20n019tn9h.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3973985487639399" target="freeweibo-mirror">//@余芷诺02://@独语邪栏20: //@日曰昭昭:转发…</a>
 </h2>
 <p>//@余芷诺02://@独语邪栏20: //@日曰昭昭:转发微博<br><br>RE: 人民网吴君梅刊辞职信 人民网的一名员工，决定告别党媒，并将自己的辞呈公开。 〝不想再敲诈了〞人民网湖北频道的媒介顾问吴君梅女士5月6号写下辞职信，近期又将这份辞呈投书网站，进行公开。 吴君梅表示，... http://t.cn/RqBf6GA</p>
@@ -53,13 +71,19 @@
 </h2>
 <p>//@第十电影: //@电影通缉令://@机智的大马猴子: 转发微博 //@镰刀刮腋毛:转发微博 //@加藤蚁:转发微博<br><br>RE: 关于雷洋嫖娼死亡事件，一位美国朋友的看法。<br><img src="http://ww1.sinaimg.cn/large/4c246125gw1f3rek85edqj20n019tn9h.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3973973123856401" target="freeweibo-mirror">—— 哎你看那个人被坦克压死了啊 ——当时交通灯是绿灯红灯啊…</a>
 </h2>
 <p>—— 哎你看那个人被坦克压死了啊 ——当时交通灯是绿灯红灯啊？ #热点事件谈论有感</p>
 <p>
 	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3973961626427513" target="freeweibo-mirror">//@柳刀叶://@王敏竹--反计救国: 有贺龙的种，没贺龙…</a>
+</h2>
+<p>//@柳刀叶://@王敏竹--反计救国: 有贺龙的种，没贺龙的命!可惜了!<br><br>RE: 小伙子名叫范花培，2016年5月10日提刀杀死4名拆迁人员！后被警察当场开枪打死！<br><img src="http://ww2.sinaimg.cn/large/006eDsmujw1f3qr28hzc7j30ch0kw752.jpg"></p>
+<p>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3973954324869616" target="freeweibo-mirror">//@干卫东律师://@陈光武律师://@六安自媒体: //…</a>
 </h2>
@@ -77,13 +101,13 @@
 </h2>
 <p>今日朋友圈最佳评论：记住范花培，一不上访，二不绝食！比杨佳更壮烈！比雷洋更值得关注！他平时不宣扬爱党爱国，关键时刻用生命捍卫了自己的权利与尊严。<br><img src="http://ww3.sinaimg.cn/large/006fm52ujw1f3rf881qc8j30ch0m8t99.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3973951984657280" target="freeweibo-mirror">//@夏榆的海景房:转浩波兄：昌平警方反复强调死者“嫖娼”，…</a>
 </h2>
 <p>//@夏榆的海景房:转浩波兄：昌平警方反复强调死者“嫖娼”，用心真是既猥琐又邪恶！每当警方干了坏事，总要拼命给当事人身上泼道德污水！仿佛因为雷某嫖娼了，所以就活该被弄死似的！ //@老平客://@夏榆的海景房://@章诒和://@杨锦麟:<br><br>RE: 请转发：中国人民大学88级部分校友就雷洋同学意外身亡的声明<br><img src="http://ww3.sinaimg.cn/large/7c0e9549gw1f3rcw1439tj20qo46mkjl.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3973951313236934" target="freeweibo-mirror">//@章诒和://@杨锦麟: 從孫志剛到雷洋，都是大學生，一…</a>
 </h2>
@@ -112,30 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3973947080613638" target="freeweibo-mirror">我支持百姓所为，发展是需要和谐，发展需要尊重人民，发展需要道…</a>
 </h2>
 <p>我支持百姓所为，发展是需要和谐，发展需要尊重人民，发展需要道德，发展需要公平，发展不是不择手段，发展不是暴力发展，发展可以有选择性，幸福国家是什么？一个用枪口对向自己人民的行为，那太可怕…… 我们是平民 是百姓 ，只想生活的平平安安，仅此而已！今天的枪口，心想是不是还会对准我们……<br><br>RE: 范华培，被郑州警方“果断击毙”的被拆迁户，他据说杀了三个人，其中一个是街道办副主任。他，被被拆迁户称为“英雄”。<br><img src="http://ww1.sinaimg.cn/large/3f79a379gw1f3rdvl0tynj20kz0qoabx.jpg"></p>
-<p>
-	<small> ============== 5小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3973946493807052" target="freeweibo-mirror">关于雷洋嫖娼死亡事件，一位美国朋友的看法。</a>
-</h2>
-<p>关于雷洋嫖娼死亡事件，一位美国朋友的看法。<br><img src="http://ww1.sinaimg.cn/large/4c246125gw1f3rek85edqj20n019tn9h.jpg"></p>
-<p>
-	<small> ============== 5小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3973945193458813" target="freeweibo-mirror">//@风流云散://@陈有西: //@越界微影：据媒体报道:…</a>
-</h2>
-<p>//@风流云散://@陈有西: //@越界微影：据媒体报道:事发地不足五百米马路有逾三十家足浴店。这些“足浴店”当非一日形成，偏在那一晚那一家有人举报，且早在20时既已蹲守现场的警方对21时入店“嫖娼”的雷洋，一不抓现行二不入店盘查卖淫女，只盘查控制已离开卖淫嫖娼现场的雷洋，背后隐藏着什么？<br><br>RE: 这是陈有西律师的看法，此微博已无法转发，特截图。我同意陈律师看法，当事者昌平警方应该回避，建议组织有媒体、律师参加的第三方调查。<br><img src="http://ww2.sinaimg.cn/large/53bd81b0jw1f3r7wmw59bj20qo1bgtko.jpg"></p>
-<p>
-	<small> ============== 5小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3973945126988828" target="freeweibo-mirror">便衣抓嫖，足疗店门口蹲守，的确更像是一场钓鱼执法式的敲诈。目…</a>
-</h2>
-<p>便衣抓嫖，足疗店门口蹲守，的确更像是一场钓鱼执法式的敲诈。目前，关注的重点一是法医结论，另外一个是警方执法的方式和“执法”意图。//@九味安神茶://@邓相超:<br><br>RE: 请转发：中国人民大学88级部分校友就雷洋同学意外身亡的声明<br><img src="http://ww3.sinaimg.cn/large/7c0e9549gw1f3rcw1439tj20qo46mkjl.jpg"></p>
-<p>
-	<small> ============== 5小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3973943242978153" target="freeweibo-mirror">SPAM //@运营商头条:生态合作，再创辉煌！[心]</a>
-</h2>
-<p>SPAM //@运营商头条:生态合作，再创辉煌！[心]</p>
 <p>
 	<small> ============== 5小时前</small>
 </p>
