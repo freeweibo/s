@@ -55,6 +55,12 @@
 <p>
 	<small> ============== 4小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3974001464825690" target="freeweibo-mirror">回复@v丹丹King:@文盲李世威 @章诒和 @阿里鸡公宝 …</a>
+</h2>
+<p>回复@v丹丹King:@文盲李世威 @章诒和 @阿里鸡公宝 @盘子微谈//@v丹丹King:回复@隔壁有王炸:分你的房子还要从原有宅基地扣除，三层以下1080，三以上500多，扣除的没人70平，要从1080元/平的面积里扣。村民还剩多少。可想而之。过渡费还不够租房子，每月1000元<br><br>RE: #名博曝光# 昨天下午17点左右（2016年5月10日），河南省郑州市惠济区薛岗村，薛岗村农民范花培，因不满政府拆迁补偿方案，政府停电停水，提刀直接杀死办事处副职一名陈山（头被砍掉）和3名其他人员，警察当场击毙范花培，现在薛岗村全村武警戒严！</p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3973999383413550" target="freeweibo-mirror">SPAM //@萧迪居04: 生当作人杰，死亦为鬼雄[goo…</a>
 </h2>
 <p>SPAM //@萧迪居04: 生当作人杰，死亦为鬼雄[good]//@刘_超哥看盘: 哎！说点什么呢？最好还是沉默吧！//@夙生律师事务所://@萧迪居04:<br><br>RE: 小伙子名叫范花培，2016年5月10日提刀杀死4名拆迁人员！后被警察当场开枪打死！<br><img src="http://ww2.sinaimg.cn/large/006eDsmujw1f3qr28hzc7j30ch0kw752.jpg"></p>
@@ -71,7 +77,7 @@
 </h2>
 <p>SPAM [#沫友分享# ]#西宁打听#听说习大大来咱大青海啦! 真的吗？真的吗？真的吗？我要不不要去合个影呢？by@西宁800婚庆网<br><img src="http://ww3.sinaimg.cn/large/6b2f97ddjw1f3rkdu5t0fj20i20l2wfm.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3973996498384012" target="freeweibo-mirror">SPAM //@萧迪居04:</a>
 </h2>
@@ -119,7 +125,7 @@
 </h2>
 <p>//@第十电影: //@电影通缉令://@机智的大马猴子: 转发微博 //@镰刀刮腋毛:转发微博 //@加藤蚁:转发微博<br><br>RE: 关于雷洋嫖娼死亡事件，一位美国朋友的看法。<br><img src="http://ww1.sinaimg.cn/large/4c246125gw1f3rek85edqj20n019tn9h.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3973973123856401" target="freeweibo-mirror">—— 哎你看那个人被坦克压死了啊 ——当时交通灯是绿灯红灯啊…</a>
 </h2>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3973961626427513" target="freeweibo-mirror">//@柳刀叶://@王敏竹--反计救国: 有贺龙的种，没贺龙…</a>
 </h2>
 <p>//@柳刀叶://@王敏竹--反计救国: 有贺龙的种，没贺龙的命!可惜了!<br><br>RE: 小伙子名叫范花培，2016年5月10日提刀杀死4名拆迁人员！后被警察当场开枪打死！<br><img src="http://ww2.sinaimg.cn/large/006eDsmujw1f3qr28hzc7j30ch0kw752.jpg"></p>
-<p>
-	<small> ============== 7小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3973954324869616" target="freeweibo-mirror">//@干卫东律师://@陈光武律师://@六安自媒体: //…</a>
-</h2>
-<p>//@干卫东律师://@陈光武律师://@六安自媒体: //@董郎dxp:转！@帮的 @全真道士梁兴扬 @淞沪教父  //@李不白的店:转！//@杨锦麟:從孫志剛到雷洋，都是大學生，一個湖北人，一個湖南人，一個本科，一個碩士⋯⋯ //@萧含:转！<br><br>RE: 请转发：中国人民大学88级部分校友就雷洋同学意外身亡的声明<br><img src="http://ww3.sinaimg.cn/large/7c0e9549gw1f3rcw1439tj20qo46mkjl.jpg"></p>
 <p>
 	<small> ============== 7小时前</small>
 </p>
