@@ -41,7 +41,7 @@
 </h2>
 <p>SPAM 躁热啊[笑cry][笑cry][笑cry]<br><br>RE: 这个季节该脱掉长裤了！http://t.cn/Rq1rbkR</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3974026131602171" target="freeweibo-mirror">【雷洋事件使中国至少倒退十年】说实话，我如今不太敢说话了，我…</a>
 </h2>
@@ -77,7 +77,7 @@
 </h2>
 <p>SPAM //@萧迪居04: 生当作人杰，死亦为鬼雄[good]//@刘_超哥看盘: 哎！说点什么呢？最好还是沉默吧！//@夙生律师事务所://@萧迪居04:<br><br>RE: 小伙子名叫范花培，2016年5月10日提刀杀死4名拆迁人员！后被警察当场开枪打死！<br><img src="http://ww2.sinaimg.cn/large/006eDsmujw1f3qr28hzc7j30ch0kw752.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3973998318500036" target="freeweibo-mirror">老人家们这种嘴仗通过网络才被人知晓，一场演出一首歌就草木皆兵…</a>
 </h2>
@@ -119,7 +119,7 @@
 </h2>
 <p>//@自由刘晨:还有“骗”人大会堂演出的疑似无罪，拍海口暴力执法的疑似有罪；@广州区伯 主嫖确凿，长沙陈加罗助嫖存疑……强者恒强，弱者更弱。<br><br>RE: 轉某朋友圈：抓嫖致死，掏鸟获刑，买玩具枪无期，小贩被殴，强拆群殴……每一个，似乎都是按法律办事。而百度无罪，离岸公司无罪，骗总理无罪！本用来调整社会权力制衡的法律，却让强者更强，弱者更弱！</p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3973983869644536" target="freeweibo-mirror">//@诏虎8://@又来金好多: //@hgsrikbx:/…</a>
 </h2>
