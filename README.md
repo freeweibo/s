@@ -55,6 +55,12 @@
 <p>
 	<small> ============== 4小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3973997203216299" target="freeweibo-mirror">SPAM [#沫友分享# ]#西宁打听#听说习大大来咱大青海…</a>
+</h2>
+<p>SPAM [#沫友分享# ]#西宁打听#听说习大大来咱大青海啦! 真的吗？真的吗？真的吗？我要不不要去合个影呢？by@西宁800婚庆网<br><img src="http://ww3.sinaimg.cn/large/6b2f97ddjw1f3rkdu5t0fj20i20l2wfm.jpg"></p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3973996498384012" target="freeweibo-mirror">SPAM //@萧迪居04:</a>
 </h2>
 <p>SPAM //@萧迪居04:<br><br>RE: 小伙子名叫范花培，2016年5月10日提刀杀死4名拆迁人员！后被警察当场开枪打死！<br><img src="http://ww2.sinaimg.cn/large/006eDsmujw1f3qr28hzc7j30ch0kw752.jpg"></p>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3973952344795645" target="freeweibo-mirror">今日朋友圈最佳评论：记住范花培，一不上访，二不绝食！比杨佳更…</a>
 </h2>
 <p>今日朋友圈最佳评论：记住范花培，一不上访，二不绝食！比杨佳更壮烈！比雷洋更值得关注！他平时不宣扬爱党爱国，关键时刻用生命捍卫了自己的权利与尊严。<br><img src="http://ww3.sinaimg.cn/large/006fm52ujw1f3rf881qc8j30ch0m8t99.jpg"></p>
-<p>
-	<small> ============== 7小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3973951984657280" target="freeweibo-mirror">//@夏榆的海景房:转浩波兄：昌平警方反复强调死者“嫖娼”，…</a>
-</h2>
-<p>//@夏榆的海景房:转浩波兄：昌平警方反复强调死者“嫖娼”，用心真是既猥琐又邪恶！每当警方干了坏事，总要拼命给当事人身上泼道德污水！仿佛因为雷某嫖娼了，所以就活该被弄死似的！ //@老平客://@夏榆的海景房://@章诒和://@杨锦麟:<br><br>RE: 请转发：中国人民大学88级部分校友就雷洋同学意外身亡的声明<br><img src="http://ww3.sinaimg.cn/large/7c0e9549gw1f3rcw1439tj20qo46mkjl.jpg"></p>
 <p>
 	<small> ============== 7小时前</small>
 </p>
