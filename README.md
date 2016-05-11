@@ -25,6 +25,12 @@
 <p>
 	<small> ============== 1小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3974084783596295" target="freeweibo-mirror">总觉得警方在故意隐瞒掩饰什么?#听海观潮#//@周华松:死因…</a>
+</h2>
+<p>总觉得警方在故意隐瞒掩饰什么?#听海观潮#//@周华松:死因与执法真相？！既然检查机关已介入调查，公安就是被调查对象了，不可以再单方面就案件对公众发言，更不能继续污名化死者雷洋！<br><br>RE: 【社论|雷洋是怎么死的】某女性违法嫌疑人接受采访时，提问者问：“凭你的经验，是不是类似的场所，他应该去过或经常去？”为什么要这样问？这种诱导性提问有转移视线、混淆是非的嫌疑。人们都在质疑雷洋是怎么死的，警方却集中精力反复证明雷洋嫖娼了，除了增加死者身上的污名，与雷洋之死的真相和责...全文： http://m.weibo.cn/5044281310/3974010276150225<br><img src="http://ww4.sinaimg.cn/large/005vnhZYgw1f3rlvi4mcaj30go06ygmd.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3974049082427134" target="freeweibo-mirror">SPAM 莎士比亚～[doge]//@照井春佳:果然//@去…</a>
 </h2>
 <p>SPAM 莎士比亚～[doge]//@照井春佳:果然//@去球:工农兵大学生//@囧纳森IV: 说的是Barbara Woodward。再联系跟D'Orsi的对话，估计还是走国官员的老毛病，歧视职业女性<br><br>RE: SPAM 分享图片<br><img src="http://ww1.sinaimg.cn/large/66e24a02jw1f3rlios80dj20qo1beguw.jpg"></p>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3973983869644536" target="freeweibo-mirror">//@诏虎8://@又来金好多: //@hgsrikbx:/…</a>
 </h2>
 <p>//@诏虎8://@又来金好多: //@hgsrikbx://@搜云看雾://@最后的黑暗2017://@居民武志刚D28://@明月清风捌世:转发微博<br><br>RE: 今日朋友圈最佳评论：记住范花培，一不上访，二不绝食！比杨佳更壮烈！比雷洋更值得关注！他平时不宣扬爱党爱国，关键时刻用生命捍卫了自己的权利与尊严。<br><img src="http://ww3.sinaimg.cn/large/006fm52ujw1f3rf881qc8j30ch0m8t99.jpg"></p>
-<p>
-	<small> ============== 8小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3973983759866280" target="freeweibo-mirror">SPAM [吃惊]//@厚知厚觉v://@沙漠渔夫809:/…</a>
-</h2>
-<p>SPAM [吃惊]//@厚知厚觉v://@沙漠渔夫809://@大Chi猛虫义:[吃惊]//@孔_智勇:[吃惊] //@老饕加佑:[吃惊]//@玳簋34:[吃惊]//@扯破布18:[吃惊]//@南开老魏034:[吃惊]//@霜葉15s_:[吃惊]//@毒舌男爵45:[吃惊]//@Fanny77_88:[吃惊]//@黄河天下天2:[疑问][疑问][疑问]</p>
 <p>
 	<small> ============== 8小时前</small>
 </p>
