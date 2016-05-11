@@ -23,7 +23,7 @@
 </h2>
 <p>//@干卫东律师://@陈光武律师://@六安自媒体: //@董郎dxp:转！@帮的 @全真道士梁兴扬 @淞沪教父  //@李不白的店:转！//@杨锦麟:從孫志剛到雷洋，都是大學生，一個湖北人，一個湖南人，一個本科，一個碩士⋯⋯ //@萧含:转！<br><br>RE: 请转发：中国人民大学88级部分校友就雷洋同学意外身亡的声明<br><img src="http://ww3.sinaimg.cn/large/7c0e9549gw1f3rcw1439tj20qo46mkjl.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3973951984657280" target="freeweibo-mirror">//@夏榆的海景房:转浩波兄：昌平警方反复强调死者“嫖娼”，…</a>
 </h2>
@@ -77,13 +77,13 @@
 </h2>
 <p>SPAM 也没有嫖娼啦 就是打个飞机。。<br><br>RE: 汗……http://t.cn/RqBtTAn</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3973939422442305" target="freeweibo-mirror">同学们，大家起来，担付起保命的责任，预备唱。</a>
 </h2>
 <p>同学们，大家起来，担付起保命的责任，预备唱。<br><br>RE: 请转发：中国人民大学88级部分校友就雷洋同学意外身亡的声明<br><img src="http://ww3.sinaimg.cn/large/7c0e9549gw1f3rcw1439tj20qo46mkjl.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3973933403716582" target="freeweibo-mirror">警方把雷洋案舆论导向嫖娼是可耻的。嫖娼算什么？违法抓嫖才恶心…</a>
 </h2>
