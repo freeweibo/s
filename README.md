@@ -65,7 +65,7 @@
 </h2>
 <p>便衣抓嫖，足疗店门口蹲守，的确更像是一场钓鱼执法式的敲诈。目前，关注的重点一是法医结论，另外一个是警方执法的方式和“执法”意图。//@九味安神茶://@邓相超:<br><br>RE: 请转发：中国人民大学88级部分校友就雷洋同学意外身亡的声明<br><img src="http://ww3.sinaimg.cn/large/7c0e9549gw1f3rcw1439tj20qo46mkjl.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3973943242978153" target="freeweibo-mirror">SPAM //@运营商头条:生态合作，再创辉煌！[心]</a>
 </h2>
@@ -103,11 +103,23 @@
 <p>
 	<small> ============== 4小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3973929507010596" target="freeweibo-mirror">SPAM 看着很好吃的样子……谁去试吃一下！好吃吗？</a>
+</h2>
+<p>SPAM 看着很好吃的样子……谁去试吃一下！好吃吗？</p>
+<p>
+	<small> ============== 5小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3973917926898480" target="freeweibo-mirror">SPAM 青岛的小伙伴们看过来，这个周日下午我们来聚一发！我…</a>
 </h2>
 <p>SPAM 青岛的小伙伴们看过来，这个周日下午我们来聚一发！我将带来#OPPO全新拍照手机R9#给大家现场体验，除了精致的手机，还有高颜值美女帅哥镇场，我也准备了R9手机等丰富奖品送给大家，晚上一起聚餐，在这个周末，让我们一起享受闪充，享受自拍，享受生活！现征集30名小伙伴的颜值参加，私信报名哈！<br><img src="http://ww2.sinaimg.cn/large/5434fd39jw1f3rasc2sn4j218g18gnjj.jpg"></p>
 <p>
 	<small> ============== 5小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3973914365633849" target="freeweibo-mirror">SPAM @云韵峰: 常州“毒地”土壤深夜转移　监测数据蹊跷…</a>
+</h2>
+<p>SPAM @云韵峰: 常州“毒地”土壤深夜转移　监测数据蹊跷缺失，而参与调查的专家雷洋也嫖娼意外死亡了，一切皆大欢喜，可怜雷洋的老婆和刚出生的女儿受苦了！<br><img src="http://ww2.sinaimg.cn/large/ab8ad551gw1f3raveo2stj20l40fun19.jpg"></p>
+<p>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3973913535373022" target="freeweibo-mirror">可以约束带离，警用装备中的警绳、手铐、胶带就是这时用的。不得…</a>
 </h2>
@@ -126,18 +138,6 @@
 <p>[话筒][话筒][话筒]特别关注！！！这是发生在昨天的强拆事件-----河南郑州惠济区//@哑巴阿杜: [蜡烛][蜡烛][蜡烛]抗拆英雄！一路走好！ //@围观倒车-://@安静不安静a:英雄一路走好，天堂不会再有强拆！！[蜡烛][蜡烛][蜡烛]<br><br>RE: 惠济区薛岗村因拆迁4人死亡，谁之过！今天下午17点左右，薛岗村农民范花培因不满政府拆迁补偿方案，政府停电停水，当事人提刀直接杀死办事处副职一名陈山和3名其他人人员，警察直接击毙，现在薛岗村全村武警戒严！谁之过！！被击毙者↓<br><img src="http://ww3.sinaimg.cn/large/b83ef72agw1f3qnzo8kqsj20ch0m8mxn.jpg"></p>
 <p>
 	<small> ============== 6小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3973893532143814" target="freeweibo-mirror">真是山高皇帝远啊 //@Deanna-肾虚少女:居然在上海？…</a>
-</h2>
-<p>真是山高皇帝远啊 //@Deanna-肾虚少女:居然在上海？//@风间聚月: //@DMV沧_减减减减减减减: //@爱达小迷妹笨笨: 卧槽？这警察要上天啊？//@藤醴_又是一条好汉: //@Tiger公子:？？？ //@午后的水妖://@大兔纸啦啦啦:！ //@茉柠檬://@茉柠檬: @大兔纸啦啦啦 @微博小秘书 @新浪娱乐 帮帮我！</p>
-<p>
-	<small> ============== 7小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3973891720895089" target="freeweibo-mirror">SPAM //@几多闲愁8023://@游云庭律师://@张…</a>
-</h2>
-<p>SPAM //@几多闲愁8023://@游云庭律师://@张发财:转发</p>
-<p>
-	<small> ============== 7小时前</small>
 </p>
 <table>
     <tr>
