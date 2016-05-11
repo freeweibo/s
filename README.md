@@ -59,7 +59,7 @@
 </h2>
 <p>SPAM 从他身上。看到杨佳......陈胜，吴广，官逼民反，血仇当报的感觉。 //@夙生律师事务所: //@萧迪居04:<br><br>RE: 小伙子名叫范花培，2016年5月10日提刀杀死4名拆迁人员！后被警察当场开枪打死！<br><img src="http://ww2.sinaimg.cn/large/006eDsmujw1f3qr28hzc7j30ch0kw752.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3974001464825690" target="freeweibo-mirror">回复@v丹丹King:@文盲李世威 @章诒和 @阿里鸡公宝 …</a>
 </h2>
@@ -88,6 +88,12 @@
 	<a href="https://freeweibo.com/weibo/3973996498384012" target="freeweibo-mirror">SPAM //@萧迪居04:</a>
 </h2>
 <p>SPAM //@萧迪居04:<br><br>RE: 小伙子名叫范花培，2016年5月10日提刀杀死4名拆迁人员！后被警察当场开枪打死！<br><img src="http://ww2.sinaimg.cn/large/006eDsmujw1f3qr28hzc7j30ch0kw752.jpg"></p>
+<p>
+	<small> ============== 6小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3973994182891015" target="freeweibo-mirror">这个季节该脱掉长裤了！http://t.cn/Rq1rbkR</a>
+</h2>
+<p>这个季节该脱掉长裤了！http://t.cn/Rq1rbkR</p>
 <p>
 	<small> ============== 6小时前</small>
 </p><h2>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3973982690087564" target="freeweibo-mirror">//@第十电影: //@电影通缉令://@机智的大马猴子: …</a>
 </h2>
 <p>//@第十电影: //@电影通缉令://@机智的大马猴子: 转发微博 //@镰刀刮腋毛:转发微博 //@加藤蚁:转发微博<br><br>RE: 关于雷洋嫖娼死亡事件，一位美国朋友的看法。<br><img src="http://ww1.sinaimg.cn/large/4c246125gw1f3rek85edqj20n019tn9h.jpg"></p>
-<p>
-	<small> ============== 7小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3973973123856401" target="freeweibo-mirror">—— 哎你看那个人被坦克压死了啊 ——当时交通灯是绿灯红灯啊…</a>
-</h2>
-<p>—— 哎你看那个人被坦克压死了啊 ——当时交通灯是绿灯红灯啊？ #热点事件谈论有感</p>
 <p>
 	<small> ============== 7小时前</small>
 </p>
