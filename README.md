@@ -71,7 +71,7 @@
 </h2>
 <p>SPAM #赏金天团701酷在一起##钟汉良##赏金猎人钟汉良# 哎呀！7月1日一边过节一边看阿yo~</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3973667215466712" target="freeweibo-mirror">SPAM //@张乾坤制: //@网易大明夜不收:武昌起议。…</a>
 </h2>
