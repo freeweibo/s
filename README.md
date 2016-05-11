@@ -125,7 +125,7 @@
 </h2>
 <p>老人家们这种嘴仗通过网络才被人知晓，一场演出一首歌就草木皆兵 风声鹤唳，太过敏了。历史就是过去的事，现在回看，觉得好听有意思的才能留传下来，后人不会去追究他当时的意义用处。这就是后来人与过来人不同坐标系眼中的历史。<br><br>RE: 【马晓力，一定要将无耻进行到底】<br><img src="http://ww2.sinaimg.cn/large/64815b7ajw1f3r3im4glaj20j63nc7wh.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3973997203216299" target="freeweibo-mirror">SPAM [#沫友分享# ]#西宁打听#听说习大大来咱大青海…</a>
 </h2>
