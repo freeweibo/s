@@ -23,7 +23,7 @@
 </h2>
 <p>SPAM 哈哈，因为你没用粉丝头条</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3974243437732083" target="freeweibo-mirror">大妈弄清了新西兰签证要找新西兰政府办后,又发现了本案关键性证…</a>
 </h2>
