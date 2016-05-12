@@ -29,7 +29,7 @@
 </h2>
 <p>SPAM 嗯嗯嗯？？？<br><br>RE: 雷洋是常州毒学校的调查员？求证！<br><img src="http://ww2.sinaimg.cn/large/6b7325b4gw1f3sx3wo6aaj20ci0m8758.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3974434354385695" target="freeweibo-mirror">SPAM 汶川时的捐款流向现在弄清了么？</a>
 </h2>
@@ -61,6 +61,12 @@
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3974428189232240" target="freeweibo-mirror">博主有上新闻联播的可能。[汗]//@ICO刘开明://@程中…</a>
+</h2>
+<p>博主有上新闻联播的可能。[汗]//@ICO刘开明://@程中柳://@逆风蝴蝶: //@张夫子谈历史:雷洋是常州毒学校唯一一个不肯签字的调查员？信息量太大[阴险]<br><br>RE: 雷洋是常州毒学校的调查员？求证！<br><img src="http://ww2.sinaimg.cn/large/6b7325b4gw1f3sx3wo6aaj20ci0m8758.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3974421435703330" target="freeweibo-mirror">雷洋是常州毒学校的调查员？求证！</a>
 </h2>
 <p>雷洋是常州毒学校的调查员？求证！<br><img src="http://ww2.sinaimg.cn/large/6b7325b4gw1f3sx3wo6aaj20ci0m8758.jpg"></p>
@@ -83,7 +89,7 @@
 </h2>
 <p>SPAM [衰]//@1024你董的:不可妄议，埋头吃饭，做中国梦。<br><br>RE: 和颐酒店遇袭的女生得到公正了吗？酒店道歉赔偿了吗？死去的魏则西就这样无声无息了吗？被舍友50刀砍死又被割下头颅的大学生芦海清呢？凶手真的有精神病抑郁症吗？五亿非法疫苗最后是怎么处理的？海南的拆迁处理完毕了吗？忽然死去的雷洋又是什么情况？</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3974395611310854" target="freeweibo-mirror">微信里看见的 @ 陈平   @贝带劲：新华社某记者发布了一个…</a>
 </h2>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3974371397206282" target="freeweibo-mirror">这都行？</a>
 </h2>
 <p>这都行？<br><br>RE: 【“毛派”人士举办座谈会纪念“5·16通知”发表五十周年】陕西“山丹丹红” 网站发表署名“红旗飘”的文章说，陕西各地“红友”近日在西安举行“纪念‘5·16’通知发表五十周年座谈会”。该文章称，各地毛派人士争相发言，控诉当代“邓集团篡夺政权，背叛无产阶级事业，复辟资本主义，葬送了毛泽东和无...全文： http://m.weibo.cn/1654134123/3974237947537294...全文： http://m.weibo.cn/1654134123/3974237947537294<br><img src="http://ww1.sinaimg.cn/large/6298156bjw1f3sc15sud8j20cg06kdgp.jpg"></p>
-<p>
-	<small> ============== 7小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3974368290183552" target="freeweibo-mirror">SPAM 进去读好书</a>
-</h2>
-<p>SPAM 进去读好书</p>
 <p>
 	<small> ============== 7小时前</small>
 </p>
