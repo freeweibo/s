@@ -73,6 +73,12 @@
 <p>
 	<small> ============== 4小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3974217983102055" target="freeweibo-mirror">博主捏造假收据造谣忽悠傻逼，请@首都网警 关注。//@重庆郑…</a>
+</h2>
+<p>博主捏造假收据造谣忽悠傻逼，请@首都网警 关注。//@重庆郑建伟:欺负死人不会说话，卑鄙无耻下流//@野靖环1998:卑鄙无耻！//@王周生://@摩托车爱旅行:铁证如山[偷笑]//@李大大263: 这个嫖资收据我还以为是网友造假开玩笑搞得恶作剧，原来是警察出示的证据？这也太无耻了吧！[草泥马]<br><br>RE: 【“中国制造”】居然连工作单位都写在嫖娼收据上了，足以证明雷洋嫖娼该死，死的合理。<br><img src="http://ww4.sinaimg.cn/large/006rlL8Pjw1f3ru136x8bj30j60ixgna.jpg"></p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3974095298945515" target="freeweibo-mirror">//@劍指八荒V: //@豆再来:我靠这么多。[衰]</a>
 </h2>
 <p>//@劍指八荒V: //@豆再来:我靠这么多。[衰]<br><br>RE: 数据库里的同音名有：财政部长楼继伟（Lou Jiwei）、国家民族事务委员会前主任王正伟（Wang Zhengwei）、工业和信息化部部长苗圩（Miao Wei）、如国务委员兼国务院秘书长杨晶（Yang Jing）、国务委员王勇（Wang Yong）、水利部部长陈雷（Chen Lei）、计生委主任李斌（Li Bin）——以上纯属拼音加联想<br><img src="http://ww3.sinaimg.cn/large/006qUnlSgw1f3ruzvd8l3j30li0fiaf8.jpg"></p>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3974065741698461" target="freeweibo-mirror">@平安昌平</a>
 </h2>
 <p>@平安昌平<br><br>RE: 【社论|雷洋是怎么死的】某女性违法嫌疑人接受采访时，提问者问：“凭你的经验，是不是类似的场所，他应该去过或经常去？”为什么要这样问？这种诱导性提问有转移视线、混淆是非的嫌疑。人们都在质疑雷洋是怎么死的，警方却集中精力反复证明雷洋嫖娼了，除了增加死者身上的污名，与雷洋之死的真相和责...全文： http://m.weibo.cn/5044281310/3974010276150225<br><img src="http://ww4.sinaimg.cn/large/005vnhZYgw1f3rlvi4mcaj30go06ygmd.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3974054152917795" target="freeweibo-mirror">//@律师王学明:@公安部打四黑除四害 @公安部刑侦局 @中…</a>
-</h2>
-<p>//@律师王学明:@公安部打四黑除四害 @公安部刑侦局 @中国警察网 @最高人民检察院 @中国政府网 @联合国人权高专办 @联合国驻中国人权协会  //@钢铁侠:问：雷洋是怎么死的？……答：他嫖娼！<br><br>RE: 【社论|雷洋是怎么死的】某女性违法嫌疑人接受采访时，提问者问：“凭你的经验，是不是类似的场所，他应该去过或经常去？”为什么要这样问？这种诱导性提问有转移视线、混淆是非的嫌疑。人们都在质疑雷洋是怎么死的，警方却集中精力反复证明雷洋嫖娼了，除了增加死者身上的污名，与雷洋之死的真相和责...全文： http://m.weibo.cn/5044281310/3974010276150225<br><img src="http://ww4.sinaimg.cn/large/005vnhZYgw1f3rlvi4mcaj30go06ygmd.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
