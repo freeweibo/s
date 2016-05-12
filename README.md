@@ -95,37 +95,37 @@
 </h2>
 <p>SPAM //@问苍茫大地8://@无语了998://@茅于轼门下5://@酒缸不小8097:法西斯//@迟夙生律师: //@冰海雪涛44://@我是德赛: 到度底是谁？<br><br>RE: 不知道被电刑的是谁？惨无人道的电刑西方有吗？ http://t.cn/Rqr1yXl .</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3974466986471332" target="freeweibo-mirror">SPAM http://t.cn/Rqdvslj   //@…</a>
 </h2>
 <p>SPAM http://t.cn/Rqdvslj   //@哎哎哎哎哟哟哟哟: 真的?//@刘建伟_微博:毫不惊讶。<br><br>RE: 雷洋   常州毒校……<br><img src="http://ww4.sinaimg.cn/large/de72b4cfgw1f3sbr0rpp6j20zx0qcjwj.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3974466969298867" target="freeweibo-mirror">SPAM //@天创流://@黄奎ART: 转发微博</a>
 </h2>
 <p>SPAM //@天创流://@黄奎ART: 转发微博<br><br>RE: #吐槽曝料# 看看这位评论员评雷某的口才，厉害！ http://t.cn/RqrXDp3</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3974466935440687" target="freeweibo-mirror">//@迟夙生律师: //@不沉默的大多数:回复@朝夕者:你可…</a>
 </h2>
 <p>//@迟夙生律师: //@不沉默的大多数:回复@朝夕者:你可以让昌平警方介绍一下此前当地这种执法过多少次了，效果如何？//@朝夕者:不查店，只在路上拦人。我擦，这话诡辩的太没水平了。。。<br><br>RE: 【风青杨：对不起，我并不想知道雷洋如何嫖娼】昌平警方在通报中试图证明雷洋涉嫌嫖娼是证据确凿的，却难以弥合家属及公众的质疑。道理很简单——嫖娼者即便身败名裂也绝不必付生命代价，任何道德的高地也高不过公民生命的尊严。正如雷洋妻子对媒体所说：“不考虑他是否嫖娼，只在意执法有无问题！”...全文： http://m.weibo.cn/1744259092/3974347234996563<br><img src="http://ww2.sinaimg.cn/large/67f74814gw1f3sja9qkipj20d008q755.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3974466142643472" target="freeweibo-mirror">//@襄阳V://@aspen6868: 网络上有人看到围观…</a>
 </h2>
 <p>//@襄阳V://@aspen6868: 网络上有人看到围观群众手拍视频，不知真假，便衣用电警棍不断电击雷洋胸部，火花不停闪烁，雷泽倒地……<br><br>RE: 雷洋事件应该讨论的问题是：1.涉嫌嫖娼是不是可以依法传唤？2、不服从传唤是不是可以强制传唤？3、强制传唤过程中嫌疑人反抗是不是可以强制制服？4、强制制服期间如果嫌疑人死亡该如何界定责任？5、如果嫌疑人自身有原发性疾病在强制制服期间诱发警方是否完全无责？6、如果没有没有原发性疾病导致死亡...全文： http://m.weibo.cn/1670421223/3974434332839680</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3974466087700843" target="freeweibo-mirror">SPAM [怒]//@王管團長:[怒]//@运在指尖502:…</a>
 </h2>
 <p>SPAM [怒]//@王管團長:[怒]//@运在指尖502:一个阴谋的黑夜，一个无耻的谎言，一场不对称的战斗，一场惨无人道的屠杀！[怒][话筒]<br><br>RE: 不知道被电刑的是谁？惨无人道的电刑西方有吗？ http://t.cn/Rqr1yXl .</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3974465501286215" target="freeweibo-mirror">变态的立法，才会有疯狂的利益。天天喊零容忍，其实还是遍地开花…</a>
 </h2>
