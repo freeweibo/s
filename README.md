@@ -71,13 +71,13 @@
 </h2>
 <p>雷洋是常州毒学校的调查员？求证！<br><img src="http://ww2.sinaimg.cn/large/6b7325b4gw1f3sx3wo6aaj20ci0m8758.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3974421272226669" target="freeweibo-mirror">//@营口81岁被劳教: //@我是德赛: 转发微博</a>
 </h2>
 <p>//@营口81岁被劳教: //@我是德赛: 转发微博<br><br>RE: 两个青年，一个死的蹊跷，网络上充斥着警察的无耻谎言与民众的愤怒和调侃形成悲哀的黑色幽默。一个抵抗强拆杀死强拆队员身重十一枪被击毙，十万乡民前去吊唁，警察封路。封路映射了他们内心的恐惧。相同的是两个青年的生命都被恶政吞噬。不同的是一个死的悲伤，无力哀嚎；另一个死的悲壮，英雄走好。<br><img src="http://ww3.sinaimg.cn/large/5efd767dgw1f3spxypaerj2068064wem.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3974415437734094" target="freeweibo-mirror">//@戆夫子30: 视频链接 http://t.cn/Rqr…</a>
 </h2>
@@ -119,7 +119,7 @@
 </h2>
 <p>//@章诒和:一点不奇怪，文革从未清算过！<br><br>RE: 【“毛派”人士举办座谈会纪念“5·16通知”发表五十周年】陕西“山丹丹红” 网站发表署名“红旗飘”的文章说，陕西各地“红友”近日在西安举行“纪念‘5·16’通知发表五十周年座谈会”。该文章称，各地毛派人士争相发言，控诉当代“邓集团篡夺政权，背叛无产阶级事业，复辟资本主义，葬送了毛泽东和无...全文： http://m.weibo.cn/1654134123/3974237947537294...全文： http://m.weibo.cn/1654134123/3974237947537294<br><img src="http://ww1.sinaimg.cn/large/6298156bjw1f3sc15sud8j20cg06kdgp.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3974373993454232" target="freeweibo-mirror">这难道不是明目张胆反对中共中央？反对改革开放？谁在纵容包庇，…</a>
 </h2>
