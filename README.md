@@ -35,7 +35,7 @@
 </h2>
 <p>SPAM 转给膝盖不好的跑友[doge]</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3974286286557679" target="freeweibo-mirror">嗯，雷洋家属真傻，何必自己去找法医机构尸检，应该请博主发话嘛…</a>
 </h2>
@@ -65,7 +65,7 @@
 </h2>
 <p>【英国女王公开指责中国官员无礼】英国女王伊丽莎白二世在和伦敦警方官员交谈时对中国官员去年访问英国时的行为做出了严厉评价，称“他们对待大使非常粗鲁”。 http://t.cn/RqrfnYC<br><img src="http://ww2.sinaimg.cn/large/6452c80djw1f3rvexf7mgj20ir0ci41e.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3974234663824068" target="freeweibo-mirror">曝英女王抱怨中国官员态度差 英国回应 http://t.cn…</a>
 </h2>
