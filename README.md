@@ -95,7 +95,7 @@
 </h2>
 <p>SPAM [赞]//@故心:天啦噜[震惊][震惊][震惊]</p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3974316653405218" target="freeweibo-mirror">SPAM //@破晓雾光_80:只要黨辟谣的，毫无疑问那就是…</a>
 </h2>
@@ -131,7 +131,7 @@
 </h2>
 <p>SPAM 哈哈，因为你没用粉丝头条</p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3974243437732083" target="freeweibo-mirror">大妈弄清了新西兰签证要找新西兰政府办后,又发现了本案关键性证…</a>
 </h2>
