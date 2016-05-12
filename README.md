@@ -41,7 +41,7 @@
 </h2>
 <p>SPAM 进去读好书</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3974360777625689" target="freeweibo-mirror">SPAM 你需要知道的知识 ]</a>
 </h2>
