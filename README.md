@@ -77,19 +77,19 @@
 </h2>
 <p>公平正义来之不易。//@张晨初艺术空间: http://t.cn/RqdztmL  //@区志航:【朱征夫：人大硕士死亡，不独立调查就没公信力】雷洋事件迄今为止最具说服力和建设性见解，重提废除卖淫嫖娼人员收容教育制度。 http://t.cn/Rqro4Ri<br><br>RE: 【雷洋事件会成为北京版孙志刚事件吗？】每逢新的热点事件，我都会习惯性对照迄今为止超过七百个的“俯卧撑”作品。北京雷洋事件酷似十三年前导致收容遣送制度终结的广州孙志刚事件，且引发的追问更强烈，最终会给社会带来什么？http://url.cn/2GTjPFo （图1为：《那一刻》2003年3月18日广州孙志刚事件...全文： http://m.weibo.cn/1293623721/3974294822162749<br><img src="http://ww2.sinaimg.cn/large/4d1b21a9gw1f3sik7wtwuj20k00dcgod.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3974467413443936" target="freeweibo-mirror">SPAM 这它妈的还叫国家？</a>
 </h2>
 <p>SPAM 这它妈的还叫国家？<br><br>RE: 不知道被电刑的是谁？惨无人道的电刑西方有吗？ http://t.cn/Rqr1yXl .</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3974467413838277" target="freeweibo-mirror">//@Lily-况莉莉: 美国也有3位警察，抓捕一个涉嫌嫖娼…</a>
 </h2>
 <p>//@Lily-况莉莉: 美国也有3位警察，抓捕一个涉嫌嫖娼召妓的嫌疑人。但半路上，人就死了。最后法庭宣判如下：3位警察分别领刑10年到30年刑期，政府赔偿嫌疑人家属640万美元。//@北极熊号<br><br>RE: #吐槽曝料# 看看这位评论员评雷某的口才，厉害！ http://t.cn/RqrXDp3</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3974467061101294" target="freeweibo-mirror">SPAM //@问苍茫大地8://@无语了998://@茅于…</a>
 </h2>
