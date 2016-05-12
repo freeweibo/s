@@ -19,6 +19,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3974434983833867" target="freeweibo-mirror">SPAM 嗯嗯嗯？？？</a>
+</h2>
+<p>SPAM 嗯嗯嗯？？？<br><br>RE: 雷洋是常州毒学校的调查员？求证！<br><img src="http://ww2.sinaimg.cn/large/6b7325b4gw1f3sx3wo6aaj20ci0m8758.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3974434354385695" target="freeweibo-mirror">SPAM 汶川时的捐款流向现在弄清了么？</a>
 </h2>
 <p>SPAM 汶川时的捐款流向现在弄清了么？</p>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3974346152256055" target="freeweibo-mirror">简单说吧，只要警察抓嫖，一定有不可告人的目的，至少为了钱！</a>
 </h2>
 <p>简单说吧，只要警察抓嫖，一定有不可告人的目的，至少为了钱！<br><br>RE: 比较了一下雷洋事件中警方两份通报，发现了一些细微但未必不重要的问题。雷洋事件牵涉到人权保护与警察权界限的重大问题，需要我们认真对待和反思。仅仅从警方自己发布的两份通报中，即已发现一些问题。这些问题，我想更多的不在于文法上，而在于有意无意投射的警方作法上。http://t.cn/RqrOLPN</p>
-<p>
-	<small> ============== 8小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3974340703302717" target="freeweibo-mirror">//@新起点NS:删了吧，不要相信这个一切以领导的口语为准，…</a>
-</h2>
-<p>//@新起点NS:删了吧，不要相信这个一切以领导的口语为准，否则同同属于妄议//@南南3013755657: 一群硕鼠，王八蛋。//@持槍權是最大的人權://@乳燕飞啸://@芒刺在身12://@封神记三十叔://@攻城第七狮://@滴水成冰的北京:呵呵，运河里的鱼果然挺多，个头也不小啊！</p>
 <p>
 	<small> ============== 8小时前</small>
 </p>
