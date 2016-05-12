@@ -23,7 +23,7 @@
 </h2>
 <p>SPAM 感觉“天亮说晚安”特文艺特有范儿？试试通宵加班，你就知道天亮说晚安有多痛苦了！不说了，决定去“扫码赢金罐”互动平台抽个奖安抚一下本宝宝受伤的心灵[泪]</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3974376107318241" target="freeweibo-mirror">//@章诒和:一点不奇怪，文革从未清算过！</a>
 </h2>
@@ -47,7 +47,7 @@
 </h2>
 <p>SPAM 进去读好书</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3974360777625689" target="freeweibo-mirror">SPAM 你需要知道的知识 ]</a>
 </h2>
