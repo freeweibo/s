@@ -47,7 +47,7 @@
 </h2>
 <p>//@围观blog:转发微博</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3974444270058329" target="freeweibo-mirror">SPAM 把你的名字戴在离心脏[心] 最近的地方，心跳多久爱…</a>
 </h2>
@@ -101,13 +101,13 @@
 </h2>
 <p>雷洋是常州毒学校的调查员？求证！<br><img src="http://ww2.sinaimg.cn/large/6b7325b4gw1f3sx3wo6aaj20ci0m8758.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3974421272226669" target="freeweibo-mirror">//@营口81岁被劳教: //@我是德赛: 转发微博</a>
 </h2>
 <p>//@营口81岁被劳教: //@我是德赛: 转发微博<br><br>RE: 两个青年，一个死的蹊跷，网络上充斥着警察的无耻谎言与民众的愤怒和调侃形成悲哀的黑色幽默。一个抵抗强拆杀死强拆队员身重十一枪被击毙，十万乡民前去吊唁，警察封路。封路映射了他们内心的恐惧。相同的是两个青年的生命都被恶政吞噬。不同的是一个死的悲伤，无力哀嚎；另一个死的悲壮，英雄走好。<br><img src="http://ww3.sinaimg.cn/large/5efd767dgw1f3spxypaerj2068064wem.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3974415437734094" target="freeweibo-mirror">//@戆夫子30: 视频链接 http://t.cn/Rqr…</a>
 </h2>
