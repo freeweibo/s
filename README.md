@@ -65,7 +65,7 @@
 </h2>
 <p>//@劍指八荒V: //@豆再来:我靠这么多。[衰]<br><br>RE: 数据库里的同音名有：财政部长楼继伟（Lou Jiwei）、国家民族事务委员会前主任王正伟（Wang Zhengwei）、工业和信息化部部长苗圩（Miao Wei）、如国务委员兼国务院秘书长杨晶（Yang Jing）、国务委员王勇（Wang Yong）、水利部部长陈雷（Chen Lei）、计生委主任李斌（Li Bin）——以上纯属拼音加联想<br><img src="http://ww3.sinaimg.cn/large/006qUnlSgw1f3ruzvd8l3j30li0fiaf8.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3974093789293770" target="freeweibo-mirror">SPAM //@婚恋哲学: 我也加了，看的我脸都红了[微笑]</a>
 </h2>
