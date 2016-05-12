@@ -131,7 +131,7 @@
 </h2>
 <p>大妈弄清了新西兰签证要找新西兰政府办后,又发现了本案关键性证据~~[doge]~轮子功对大脑果然又影响~//@scarlett冰与火1: 你国政府这么办案吗?傻逼爱国贼咋不来辩解//@李大大263:警察出示的证据太无耻<br><br>RE: 【“中国制造”】居然连工作单位都写在嫖娼收据上了，足以证明雷洋嫖娼该死，死的合理。<br><img src="http://ww4.sinaimg.cn/large/006rlL8Pjw1f3ru136x8bj30j60ixgna.jpg"></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3974238266619899" target="freeweibo-mirror">【英国女王公开指责中国官员无礼】英国女王伊丽莎白二世在和伦敦…</a>
 </h2>
