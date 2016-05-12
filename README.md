@@ -19,6 +19,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3974286286557679" target="freeweibo-mirror">嗯，雷洋家属真傻，何必自己去找法医机构尸检，应该请博主发话嘛…</a>
+</h2>
+<p>嗯，雷洋家属真傻，何必自己去找法医机构尸检，应该请博主发话嘛。“伟大光荣正确”的主持人无需证据依据，金口玉言说“没真相”，那当然就没真相咯。。//@上街里:有真像//@彭园v://@单眼皮小蝌蚪:我党从没把百姓当人过</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3974271519114540" target="freeweibo-mirror">嫖娼又成了“无关细节”？之前“嫖娼与否十分重要，事关死者名誉…</a>
 </h2>
 <p>嫖娼又成了“无关细节”？之前“嫖娼与否十分重要，事关死者名誉和警方是否滥权逼良为嫖”又是哪些傻逼说的？尸检结果未出，哪个官媒敢下结论？若雷洋在美国拒绝警察盘查，咬伤警察跳车逃跑，“美国律师朋友”敢不敢说说，有啥后果？//@何兵:博主是美国华尔街律师，我的好朋友。<br><br>RE: 反差还是巨大的，什么导致这种反差，我还在思考。<br><img src="http://ww2.sinaimg.cn/large/9ba9e19cjw1f3rfd4kld3j20qo1bfdv8.jpg"></p>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3974081218926830" target="freeweibo-mirror">【“中国制造”】居然连工作单位都写在嫖娼收据上了，足以证明雷…</a>
 </h2>
 <p>【“中国制造”】居然连工作单位都写在嫖娼收据上了，足以证明雷洋嫖娼该死，死的合理。<br><img src="http://ww4.sinaimg.cn/large/006rlL8Pjw1f3ru136x8bj30j60ixgna.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3974065795977510" target="freeweibo-mirror">@平安北京</a>
-</h2>
-<p>@平安北京<br><br>RE: 【社论|雷洋是怎么死的】某女性违法嫌疑人接受采访时，提问者问：“凭你的经验，是不是类似的场所，他应该去过或经常去？”为什么要这样问？这种诱导性提问有转移视线、混淆是非的嫌疑。人们都在质疑雷洋是怎么死的，警方却集中精力反复证明雷洋嫖娼了，除了增加死者身上的污名，与雷洋之死的真相和责...全文： http://m.weibo.cn/5044281310/3974010276150225<br><img src="http://ww4.sinaimg.cn/large/005vnhZYgw1f3rlvi4mcaj30go06ygmd.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
