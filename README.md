@@ -23,7 +23,7 @@
 </h2>
 <p>嫖娼又成了“无关细节”？之前“嫖娼与否十分重要，事关死者名誉和警方是否滥权逼良为嫖”又是哪些傻逼说的？尸检结果未出，哪个官媒敢下结论？若雷洋在美国拒绝警察盘查，咬伤警察跳车逃跑，“美国律师朋友”敢不敢说说，有啥后果？//@何兵:博主是美国华尔街律师，我的好朋友。<br><br>RE: 反差还是巨大的，什么导致这种反差，我还在思考。<br><img src="http://ww2.sinaimg.cn/large/9ba9e19cjw1f3rfd4kld3j20qo1bfdv8.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3974257522374519" target="freeweibo-mirror">SPAM 哈哈，因为你没用粉丝头条</a>
 </h2>
