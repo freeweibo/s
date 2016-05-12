@@ -49,6 +49,12 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3974473016680704" target="freeweibo-mirror">//@记者-薛洪涛://@迟夙生律师: //@不沉默的大多数…</a>
+</h2>
+<p>//@记者-薛洪涛://@迟夙生律师: //@不沉默的大多数:回复@朝夕者:你可以让昌平警方介绍一下此前当地这种执法过多少次了，效果如何？//@朝夕者:不查店，只在路上拦人。我擦，这话诡辩的太没水平了。。。<br><br>RE: 【风青杨：对不起，我并不想知道雷洋如何嫖娼】昌平警方在通报中试图证明雷洋涉嫌嫖娼是证据确凿的，却难以弥合家属及公众的质疑。道理很简单——嫖娼者即便身败名裂也绝不必付生命代价，任何道德的高地也高不过公民生命的尊严。正如雷洋妻子对媒体所说：“不考虑他是否嫖娼，只在意执法有无问题！”...全文： http://m.weibo.cn/1744259092/3974347234996563<br><img src="http://ww2.sinaimg.cn/large/67f74814gw1f3sja9qkipj20d008q755.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3974471683634032" target="freeweibo-mirror">严重支持！//@我的确不在乎: //@隋彭生民商法://@仲…</a>
 </h2>
 <p>严重支持！//@我的确不在乎: //@隋彭生民商法://@仲裁员武律师: 转发微博<br><br>RE: #吐槽曝料# 看看这位评论员评雷某的口才，厉害！ http://t.cn/RqrXDp3</p>
@@ -61,6 +67,12 @@
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3974470500803948" target="freeweibo-mirror">SPAM //@太史政-曲直鄉人:李總理:『臣妾做不到啊！』…</a>
+</h2>
+<p>SPAM //@太史政-曲直鄉人:李總理:『臣妾做不到啊！』//@梁惠王:他做得到？//@平山燕:后勤打杂人员哈～ //@李宝玖:打杂的而已。//@蘭州的尕鐘：辛苦，浦律师了<br><br>RE: 浦志强先生的意见。<br><img src="http://ww1.sinaimg.cn/large/62a548a7jw1f3srcc8aotj20hs0vktcj.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3974468462807339" target="freeweibo-mirror">公平正义来之不易。//@张晨初艺术空间: http://t.…</a>
 </h2>
 <p>公平正义来之不易。//@张晨初艺术空间: http://t.cn/RqdztmL  //@区志航:【朱征夫：人大硕士死亡，不独立调查就没公信力】雷洋事件迄今为止最具说服力和建设性见解，重提废除卖淫嫖娼人员收容教育制度。 http://t.cn/Rqro4Ri<br><br>RE: 【雷洋事件会成为北京版孙志刚事件吗？】每逢新的热点事件，我都会习惯性对照迄今为止超过七百个的“俯卧撑”作品。北京雷洋事件酷似十三年前导致收容遣送制度终结的广州孙志刚事件，且引发的追问更强烈，最终会给社会带来什么？http://url.cn/2GTjPFo （图1为：《那一刻》2003年3月18日广州孙志刚事件...全文： http://m.weibo.cn/1293623721/3974294822162749<br><img src="http://ww2.sinaimg.cn/large/4d1b21a9gw1f3sik7wtwuj20k00dcgod.jpg"></p>
@@ -70,6 +82,12 @@
 	<a href="https://freeweibo.com/weibo/3974467413443936" target="freeweibo-mirror">SPAM 这它妈的还叫国家？</a>
 </h2>
 <p>SPAM 这它妈的还叫国家？<br><br>RE: 不知道被电刑的是谁？惨无人道的电刑西方有吗？ http://t.cn/Rqr1yXl .</p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3974467413838277" target="freeweibo-mirror">//@Lily-况莉莉: 美国也有3位警察，抓捕一个涉嫌嫖娼…</a>
+</h2>
+<p>//@Lily-况莉莉: 美国也有3位警察，抓捕一个涉嫌嫖娼召妓的嫌疑人。但半路上，人就死了。最后法庭宣判如下：3位警察分别领刑10年到30年刑期，政府赔偿嫌疑人家属640万美元。//@北极熊号<br><br>RE: #吐槽曝料# 看看这位评论员评雷某的口才，厉害！ http://t.cn/RqrXDp3</p>
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
@@ -118,24 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3974464880917444" target="freeweibo-mirror">SPAM //@仲裁员武律师: 转发微博</a>
 </h2>
 <p>SPAM //@仲裁员武律师: 转发微博<br><br>RE: #吐槽曝料# 看看这位评论员评雷某的口才，厉害！ http://t.cn/RqrXDp3</p>
-<p>
-	<small> ============== 3小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3974464788248187" target="freeweibo-mirror">SPAM  http://t.cn/RqdZECE //@开…</a>
-</h2>
-<p>SPAM  http://t.cn/RqdZECE //@开心oko1: [赞]//@夙生律师事务所: //@尘世叁叁: //@铁渣涅槃4://@ffyyt16: 他的政府吗？//@半瓶酒4-网易://@chen迁迁15: //@花前一壶酒09://@梁惠王:他做得到？//@平山燕:后勤打杂人员哈～ //@李宝玖:打杂的而已。//@蘭州的尕鐘：辛苦，浦律师了<br><br>RE: 浦志强先生的意见。<br><img src="http://ww1.sinaimg.cn/large/62a548a7jw1f3srcc8aotj20hs0vktcj.jpg"></p>
-<p>
-	<small> ============== 3小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3974463743350953" target="freeweibo-mirror">SPAM 说的好</a>
-</h2>
-<p>SPAM 说的好<br><br>RE: #吐槽曝料# 看看这位评论员评雷某的口才，厉害！ http://t.cn/RqrXDp3</p>
-<p>
-	<small> ============== 3小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3974463454952805" target="freeweibo-mirror">SPAM //@ICO刘开明: //@魏城WEICHENG:…</a>
-</h2>
-<p>SPAM //@ICO刘开明: //@魏城WEICHENG://@邵明波: //@蘭州的尕鐘：辛苦，浦律师了<br><br>RE: 浦志强先生的意见。<br><img src="http://ww1.sinaimg.cn/large/62a548a7jw1f3srcc8aotj20hs0vktcj.jpg"></p>
 <p>
 	<small> ============== 3小时前</small>
 </p>
