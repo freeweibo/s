@@ -25,9 +25,99 @@
 <p>
 	<small> ============== 1小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3974475551167389" target="freeweibo-mirror">死得明白！ //@陈满华CMH://@襄阳V: 转发微博</a>
+</h2>
+<p>死得明白！ //@陈满华CMH://@襄阳V: 转发微博<br><br>RE: 【死得明白是公民权利底线】「雷先生是否嫖娼，无须再查，人已死亡，已无实质性意义。还原雷先生如何死亡是目前唯一应做的调查。」<br><img src="http://ww1.sinaimg.cn/large/7c0e9549gw1f3syvvwv5kj20g47pshdt.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3974471683634032" target="freeweibo-mirror">严重支持！//@我的确不在乎: //@隋彭生民商法://@仲…</a>
+</h2>
+<p>严重支持！//@我的确不在乎: //@隋彭生民商法://@仲裁员武律师: 转发微博<br><br>RE: #吐槽曝料# 看看这位评论员评雷某的口才，厉害！ http://t.cn/RqrXDp3</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3974471243024665" target="freeweibo-mirror">SPAM //@桀骜朗朗: //@又来金好多:转发微博</a>
+</h2>
+<p>SPAM //@桀骜朗朗: //@又来金好多:转发微博<br><br>RE: #吐槽曝料# 看看这位评论员评雷某的口才，厉害！ http://t.cn/RqrXDp3</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3974468462807339" target="freeweibo-mirror">公平正义来之不易。//@张晨初艺术空间: http://t.…</a>
+</h2>
+<p>公平正义来之不易。//@张晨初艺术空间: http://t.cn/RqdztmL  //@区志航:【朱征夫：人大硕士死亡，不独立调查就没公信力】雷洋事件迄今为止最具说服力和建设性见解，重提废除卖淫嫖娼人员收容教育制度。 http://t.cn/Rqro4Ri<br><br>RE: 【雷洋事件会成为北京版孙志刚事件吗？】每逢新的热点事件，我都会习惯性对照迄今为止超过七百个的“俯卧撑”作品。北京雷洋事件酷似十三年前导致收容遣送制度终结的广州孙志刚事件，且引发的追问更强烈，最终会给社会带来什么？http://url.cn/2GTjPFo （图1为：《那一刻》2003年3月18日广州孙志刚事件...全文： http://m.weibo.cn/1293623721/3974294822162749<br><img src="http://ww2.sinaimg.cn/large/4d1b21a9gw1f3sik7wtwuj20k00dcgod.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3974467413443936" target="freeweibo-mirror">SPAM 这它妈的还叫国家？</a>
+</h2>
+<p>SPAM 这它妈的还叫国家？<br><br>RE: 不知道被电刑的是谁？惨无人道的电刑西方有吗？ http://t.cn/Rqr1yXl .</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3974467061101294" target="freeweibo-mirror">SPAM //@问苍茫大地8://@无语了998://@茅于…</a>
+</h2>
+<p>SPAM //@问苍茫大地8://@无语了998://@茅于轼门下5://@酒缸不小8097:法西斯//@迟夙生律师: //@冰海雪涛44://@我是德赛: 到度底是谁？<br><br>RE: 不知道被电刑的是谁？惨无人道的电刑西方有吗？ http://t.cn/Rqr1yXl .</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3974466986471332" target="freeweibo-mirror">SPAM http://t.cn/Rqdvslj   //@…</a>
+</h2>
+<p>SPAM http://t.cn/Rqdvslj   //@哎哎哎哎哟哟哟哟: 真的?//@刘建伟_微博:毫不惊讶。<br><br>RE: 雷洋   常州毒校……<br><img src="http://ww4.sinaimg.cn/large/de72b4cfgw1f3sbr0rpp6j20zx0qcjwj.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3974466969298867" target="freeweibo-mirror">SPAM //@天创流://@黄奎ART: 转发微博</a>
+</h2>
+<p>SPAM //@天创流://@黄奎ART: 转发微博<br><br>RE: #吐槽曝料# 看看这位评论员评雷某的口才，厉害！ http://t.cn/RqrXDp3</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3974466935440687" target="freeweibo-mirror">//@迟夙生律师: //@不沉默的大多数:回复@朝夕者:你可…</a>
+</h2>
+<p>//@迟夙生律师: //@不沉默的大多数:回复@朝夕者:你可以让昌平警方介绍一下此前当地这种执法过多少次了，效果如何？//@朝夕者:不查店，只在路上拦人。我擦，这话诡辩的太没水平了。。。<br><br>RE: 【风青杨：对不起，我并不想知道雷洋如何嫖娼】昌平警方在通报中试图证明雷洋涉嫌嫖娼是证据确凿的，却难以弥合家属及公众的质疑。道理很简单——嫖娼者即便身败名裂也绝不必付生命代价，任何道德的高地也高不过公民生命的尊严。正如雷洋妻子对媒体所说：“不考虑他是否嫖娼，只在意执法有无问题！”...全文： http://m.weibo.cn/1744259092/3974347234996563<br><img src="http://ww2.sinaimg.cn/large/67f74814gw1f3sja9qkipj20d008q755.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3974466087700843" target="freeweibo-mirror">SPAM [怒]//@王管團長:[怒]//@运在指尖502:…</a>
+</h2>
+<p>SPAM [怒]//@王管團長:[怒]//@运在指尖502:一个阴谋的黑夜，一个无耻的谎言，一场不对称的战斗，一场惨无人道的屠杀！[怒][话筒]<br><br>RE: 不知道被电刑的是谁？惨无人道的电刑西方有吗？ http://t.cn/Rqr1yXl .</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3974464788248187" target="freeweibo-mirror">SPAM  http://t.cn/RqdZECE //@开…</a>
+</h2>
+<p>SPAM  http://t.cn/RqdZECE //@开心oko1: [赞]//@夙生律师事务所: //@尘世叁叁: //@铁渣涅槃4://@ffyyt16: 他的政府吗？//@半瓶酒4-网易://@chen迁迁15: //@花前一壶酒09://@梁惠王:他做得到？//@平山燕:后勤打杂人员哈～ //@李宝玖:打杂的而已。//@蘭州的尕鐘：辛苦，浦律师了<br><br>RE: 浦志强先生的意见。<br><img src="http://ww1.sinaimg.cn/large/62a548a7jw1f3srcc8aotj20hs0vktcj.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3974463743350953" target="freeweibo-mirror">SPAM 说的好</a>
+</h2>
+<p>SPAM 说的好<br><br>RE: #吐槽曝料# 看看这位评论员评雷某的口才，厉害！ http://t.cn/RqrXDp3</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3974462837582178" target="freeweibo-mirror">SPAM //@黄奎ART: 转发微博</a>
+</h2>
+<p>SPAM //@黄奎ART: 转发微博<br><br>RE: #吐槽曝料# 看看这位评论员评雷某的口才，厉害！ http://t.cn/RqrXDp3</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3974462661267527" target="freeweibo-mirror">//@陈业文新大都: //@陈光武律师://@迟夙生律师: …</a>
+</h2>
+<p>//@陈业文新大都: //@陈光武律师://@迟夙生律师: //@冰海雪涛44:情真意切，令人唏嘘。<br><br>RE: 【死得明白是公民权利底线】「雷先生是否嫖娼，无须再查，人已死亡，已无实质性意义。还原雷先生如何死亡是目前唯一应做的调查。」<br><img src="http://ww1.sinaimg.cn/large/7c0e9549gw1f3syvvwv5kj20g47pshdt.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3974461814033766" target="freeweibo-mirror">//@李刚律师拆迁维权: 中国急需有公信力的第三方机构！</a>
 </h2>
 <p>//@李刚律师拆迁维权: 中国急需有公信力的第三方机构！<br><br>RE: 陈光中谈雷洋案：建议最高检督办 北京市检主导<br><img src="http://ww2.sinaimg.cn/large/3f79a379jw1f3sv89i5d1j20qo1bgai0.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3974461781264457" target="freeweibo-mirror">自贴标签，何其醒目。//@陈有西: 主要是人品问题，心肺烂了…</a>
+</h2>
+<p>自贴标签，何其醒目。//@陈有西: 主要是人品问题，心肺烂了。@赵晟有云起：五毛的问题是智商问题，骂也没用//@陈有西:什么事只要有五毛疯狗出来狂吠，就可知见血了。//@僵尸粉腏我：真想不明这种水平的驴屎怎么活到现在的<br><br>RE: 《治安管理处罚法》第113条规定：公安机关及其人民警察办理治安案件禁止对违反治安管理行为人打骂、虐待或者侮辱；第116条规定：人民警察办理治安案件，有刑讯逼供、体罚、虐待、侮辱他人的，超时讯问限制人身自由的，依法给予行政处罚，构成犯罪的，追究刑事责任。http://t.cn/Rqr34eL<br><img src="http://ww1.sinaimg.cn/large/6b804b51gw1f3subk734vj20qo1bgai3.jpg"></p>
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
@@ -47,97 +137,7 @@
 </h2>
 <p>SPAM  //@冰海雪涛44://@我是德赛: 到度底是谁？<br><br>RE: 不知道被电刑的是谁？惨无人道的电刑西方有吗？ http://t.cn/Rqr1yXl .</p>
 <p>
-	<small> ============== 2小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3974451605906548" target="freeweibo-mirror">//@围观blog:转发微博</a>
-</h2>
-<p>//@围观blog:转发微博</p>
-<p>
 	<small> ============== 3小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3974444270058329" target="freeweibo-mirror">SPAM 把你的名字戴在离心脏[心] 最近的地方，心跳多久爱…</a>
-</h2>
-<p>SPAM 把你的名字戴在离心脏[心] 最近的地方，心跳多久爱多久。</p>
-<p>
-	<small> ============== 3小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3974434983833867" target="freeweibo-mirror">SPAM 嗯嗯嗯？？？</a>
-</h2>
-<p>SPAM 嗯嗯嗯？？？<br><br>RE: 雷洋是常州毒学校的调查员？求证！<br><img src="http://ww2.sinaimg.cn/large/6b7325b4gw1f3sx3wo6aaj20ci0m8758.jpg"></p>
-<p>
-	<small> ============== 4小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3974434354385695" target="freeweibo-mirror">SPAM 汶川时的捐款流向现在弄清了么？</a>
-</h2>
-<p>SPAM 汶川时的捐款流向现在弄清了么？</p>
-<p>
-	<small> ============== 4小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3974434127585087" target="freeweibo-mirror">//@法律人童朝平://@何宇清: //@北大杨众筹://@…</a>
-</h2>
-<p>//@法律人童朝平://@何宇清: //@北大杨众筹://@IB林立人:求证？！ //@熊华GG:博主有上新闻联播的可能。[汗]//@ICO刘开明://@程中柳://@逆风蝴蝶: //@张夫子谈历史:雷洋是常州毒学校唯一一个不肯签字的调查员？信息量太大[阴险]<br><br>RE: 雷洋是常州毒学校的调查员？求证！<br><img src="http://ww2.sinaimg.cn/large/6b7325b4gw1f3sx3wo6aaj20ci0m8758.jpg"></p>
-<p>
-	<small> ============== 4小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3974431330334093" target="freeweibo-mirror">//@何宇清: //@北大杨众筹://@IB林立人:求证？！…</a>
-</h2>
-<p>//@何宇清: //@北大杨众筹://@IB林立人:求证？！ //@熊华GG:博主有上新闻联播的可能。[汗]//@ICO刘开明://@程中柳://@逆风蝴蝶: //@张夫子谈历史:雷洋是常州毒学校唯一一个不肯签字的调查员？信息量太大[阴险]<br><br>RE: 雷洋是常州毒学校的调查员？求证！<br><img src="http://ww2.sinaimg.cn/large/6b7325b4gw1f3sx3wo6aaj20ci0m8758.jpg"></p>
-<p>
-	<small> ============== 4小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3974429739925543" target="freeweibo-mirror">【钉江姐手指的竹签子系解放后创造】《炎黄春秋》：1963年，…</a>
-</h2>
-<p>【钉江姐手指的竹签子系解放后创造】《炎黄春秋》：1963年，重庆市博物馆陈列部一位姓张的职工参加复原陈列工作，具体任务是复制“刑具”，渣滓洞刑讯室第一批“夹手指的竹筷子”，就是他做的。他很纳闷，不知道应该怎么做，全凭想象。他想这竹签子只能是极细的一片竹篾，但极细的竹篾又不能用“钉”的...全文： http://m.weibo.cn/1728892794/3974429739925543<br><img src="http://ww4.sinaimg.cn/large/670ccf7ajw1f3sy21c6tlj20ch0f1q4a.jpg"></p>
-<p>
-	<small> ============== 4小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3974428826434772" target="freeweibo-mirror">求证？！ //@熊华GG:博主有上新闻联播的可能。[汗]//…</a>
-</h2>
-<p>求证？！ //@熊华GG:博主有上新闻联播的可能。[汗]//@ICO刘开明://@程中柳://@逆风蝴蝶: //@张夫子谈历史:雷洋是常州毒学校唯一一个不肯签字的调查员？信息量太大[阴险]<br><br>RE: 雷洋是常州毒学校的调查员？求证！<br><img src="http://ww2.sinaimg.cn/large/6b7325b4gw1f3sx3wo6aaj20ci0m8758.jpg"></p>
-<p>
-	<small> ============== 4小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3974428189232240" target="freeweibo-mirror">博主有上新闻联播的可能。[汗]//@ICO刘开明://@程中…</a>
-</h2>
-<p>博主有上新闻联播的可能。[汗]//@ICO刘开明://@程中柳://@逆风蝴蝶: //@张夫子谈历史:雷洋是常州毒学校唯一一个不肯签字的调查员？信息量太大[阴险]<br><br>RE: 雷洋是常州毒学校的调查员？求证！<br><img src="http://ww2.sinaimg.cn/large/6b7325b4gw1f3sx3wo6aaj20ci0m8758.jpg"></p>
-<p>
-	<small> ============== 4小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3974421435703330" target="freeweibo-mirror">雷洋是常州毒学校的调查员？求证！</a>
-</h2>
-<p>雷洋是常州毒学校的调查员？求证！<br><img src="http://ww2.sinaimg.cn/large/6b7325b4gw1f3sx3wo6aaj20ci0m8758.jpg"></p>
-<p>
-	<small> ============== 5小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3974421272226669" target="freeweibo-mirror">//@营口81岁被劳教: //@我是德赛: 转发微博</a>
-</h2>
-<p>//@营口81岁被劳教: //@我是德赛: 转发微博<br><br>RE: 两个青年，一个死的蹊跷，网络上充斥着警察的无耻谎言与民众的愤怒和调侃形成悲哀的黑色幽默。一个抵抗强拆杀死强拆队员身重十一枪被击毙，十万乡民前去吊唁，警察封路。封路映射了他们内心的恐惧。相同的是两个青年的生命都被恶政吞噬。不同的是一个死的悲伤，无力哀嚎；另一个死的悲壮，英雄走好。<br><img src="http://ww3.sinaimg.cn/large/5efd767dgw1f3spxypaerj2068064wem.jpg"></p>
-<p>
-	<small> ============== 5小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3974415437734094" target="freeweibo-mirror">//@戆夫子30: 视频链接 http://t.cn/Rqr…</a>
-</h2>
-<p>//@戆夫子30: 视频链接 http://t.cn/RqrrLtn  //@做人有道 :不知道哎[吃惊]//@breatheforfreedom2:是真的嘛...太玄乎了 //@做人有道:[吃惊]//@薇薇877206:吴律师的微博已经不能转了，真是太恐怖了！！'//@故宫的草泥马:[吃惊][吃惊]这剧情<br><br>RE: 微信里看见的 @ 陈平   @贝带劲：新华社某记者发布了一个段视频 显示一个人被几个便衣电击，倒在地上抽搐。该记者说，便衣是常州国宝，被电击者是雷洋。</p>
-<p>
-	<small> ============== 5小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3974405358543528" target="freeweibo-mirror">陈光中谈雷洋案：建议最高检督办 北京市检主导</a>
-</h2>
-<p>陈光中谈雷洋案：建议最高检督办 北京市检主导<br><img src="http://ww2.sinaimg.cn/large/3f79a379jw1f3sv89i5d1j20qo1bgai0.jpg"></p>
-<p>
-	<small> ============== 6小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3974405115245305" target="freeweibo-mirror">SPAM [衰]//@1024你董的:不可妄议，埋头吃饭，做…</a>
-</h2>
-<p>SPAM [衰]//@1024你董的:不可妄议，埋头吃饭，做中国梦。<br><br>RE: 和颐酒店遇袭的女生得到公正了吗？酒店道歉赔偿了吗？死去的魏则西就这样无声无息了吗？被舍友50刀砍死又被割下头颅的大学生芦海清呢？凶手真的有精神病抑郁症吗？五亿非法疫苗最后是怎么处理的？海南的拆迁处理完毕了吗？忽然死去的雷洋又是什么情况？</p>
-<p>
-	<small> ============== 6小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3974403001865900" target="freeweibo-mirror">不知道被电刑的是谁？惨无人道的电刑西方有吗？ http://…</a>
-</h2>
-<p>不知道被电刑的是谁？惨无人道的电刑西方有吗？ http://t.cn/Rqr1yXl .</p>
-<p>
-	<small> ============== 6小时前</small>
 </p>
 <table>
     <tr>
