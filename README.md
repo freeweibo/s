@@ -71,7 +71,7 @@
 </h2>
 <p>博主有上新闻联播的可能。[汗]//@ICO刘开明://@程中柳://@逆风蝴蝶: //@张夫子谈历史:雷洋是常州毒学校唯一一个不肯签字的调查员？信息量太大[阴险]<br><br>RE: 雷洋是常州毒学校的调查员？求证！<br><img src="http://ww2.sinaimg.cn/large/6b7325b4gw1f3sx3wo6aaj20ci0m8758.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3974421435703330" target="freeweibo-mirror">雷洋是常州毒学校的调查员？求证！</a>
 </h2>
