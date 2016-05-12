@@ -61,6 +61,18 @@
 <p>
 	<small> ============== 4小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3974227877384455" target="freeweibo-mirror">//@定言_无悔:杀人是个体的恶，为杀人者掩盖是有组织的恶，…</a>
+</h2>
+<p>//@定言_无悔:杀人是个体的恶，为杀人者掩盖是有组织的恶，恶的组织取得“合法杀人权”，恶的个体享受杀人的快乐。//@邱旭瑜律师:现在大家看明白了，那几个警察什么货色、什么嘴脸了，他们努力制造并掩盖“合法的杀人权”，利用权力和地位优势毁灭证据、编造谎言、制造伪证掩盖自己的罪恶！<br><br>RE: 雷洋死了，一个生命就这么没了，问题当然是严重的，但是更严重性的却不仅仅是他的死，而在他死的背后隐藏了一个死亡模式。这个死亡模式的载体是警察违法执法，并且违法执法行为普遍化。2003年孙志刚这么死... http://t.cn/RqBf5uf</p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3974220340061232" target="freeweibo-mirror">低智弱智？右边可是上海社科院研究员，妥妥的“高知”！ htt…</a>
+</h2>
+<p>低智弱智？右边可是上海社科院研究员，妥妥的“高知”！ http://t.cn/RqrqNwo //@凝思布曲:如此低智弱智之徒，别再出丑了。//@辟谣与真相:博主捏造假收据造谣忽悠傻逼，请@首都网警 关注。//@王周生://@摩托车爱旅行:铁证如山[偷笑]//@李大大263:还以为是网友恶作剧，原来是警察出示的证据？这也太无耻了吧！[草泥马]<br><br>RE: 【“中国制造”】居然连工作单位都写在嫖娼收据上了，足以证明雷洋嫖娼该死，死的合理。<br><img src="http://ww4.sinaimg.cn/large/006rlL8Pjw1f3ru136x8bj30j60ixgna.jpg"></p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3974095298945515" target="freeweibo-mirror">//@劍指八荒V: //@豆再来:我靠这么多。[衰]</a>
 </h2>
 <p>//@劍指八荒V: //@豆再来:我靠这么多。[衰]<br><br>RE: 数据库里的同音名有：财政部长楼继伟（Lou Jiwei）、国家民族事务委员会前主任王正伟（Wang Zhengwei）、工业和信息化部部长苗圩（Miao Wei）、如国务委员兼国务院秘书长杨晶（Yang Jing）、国务委员王勇（Wang Yong）、水利部部长陈雷（Chen Lei）、计生委主任李斌（Li Bin）——以上纯属拼音加联想<br><img src="http://ww3.sinaimg.cn/large/006qUnlSgw1f3ruzvd8l3j30li0fiaf8.jpg"></p>
@@ -124,18 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3974054152917795" target="freeweibo-mirror">//@律师王学明:@公安部打四黑除四害 @公安部刑侦局 @中…</a>
 </h2>
 <p>//@律师王学明:@公安部打四黑除四害 @公安部刑侦局 @中国警察网 @最高人民检察院 @中国政府网 @联合国人权高专办 @联合国驻中国人权协会  //@钢铁侠:问：雷洋是怎么死的？……答：他嫖娼！<br><br>RE: 【社论|雷洋是怎么死的】某女性违法嫌疑人接受采访时，提问者问：“凭你的经验，是不是类似的场所，他应该去过或经常去？”为什么要这样问？这种诱导性提问有转移视线、混淆是非的嫌疑。人们都在质疑雷洋是怎么死的，警方却集中精力反复证明雷洋嫖娼了，除了增加死者身上的污名，与雷洋之死的真相和责...全文： http://m.weibo.cn/5044281310/3974010276150225<br><img src="http://ww4.sinaimg.cn/large/005vnhZYgw1f3rlvi4mcaj30go06ygmd.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3974054030875079" target="freeweibo-mirror">//@阿甘:转发微博</a>
-</h2>
-<p>//@阿甘:转发微博<br><br>RE: 【社论|雷洋是怎么死的】某女性违法嫌疑人接受采访时，提问者问：“凭你的经验，是不是类似的场所，他应该去过或经常去？”为什么要这样问？这种诱导性提问有转移视线、混淆是非的嫌疑。人们都在质疑雷洋是怎么死的，警方却集中精力反复证明雷洋嫖娼了，除了增加死者身上的污名，与雷洋之死的真相和责...全文： http://m.weibo.cn/5044281310/3974010276150225<br><img src="http://ww4.sinaimg.cn/large/005vnhZYgw1f3rlvi4mcaj30go06ygmd.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3974049082427134" target="freeweibo-mirror">SPAM 莎士比亚～[doge]//@照井春佳:果然//@去…</a>
-</h2>
-<p>SPAM 莎士比亚～[doge]//@照井春佳:果然//@去球:工农兵大学生//@囧纳森IV: 说的是Barbara Woodward。再联系跟D'Orsi的对话，估计还是走国官员的老毛病，歧视职业女性<br><br>RE: SPAM 分享图片<br><img src="http://ww1.sinaimg.cn/large/66e24a02jw1f3rlios80dj20qo1beguw.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
