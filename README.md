@@ -29,7 +29,7 @@
 </h2>
 <p>死得明白！ //@陈满华CMH://@襄阳V: 转发微博<br><br>RE: 【死得明白是公民权利底线】「雷先生是否嫖娼，无须再查，人已死亡，已无实质性意义。还原雷先生如何死亡是目前唯一应做的调查。」<br><img src="http://ww1.sinaimg.cn/large/7c0e9549gw1f3syvvwv5kj20g47pshdt.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3974471683634032" target="freeweibo-mirror">严重支持！//@我的确不在乎: //@隋彭生民商法://@仲…</a>
 </h2>
@@ -131,7 +131,7 @@
 </h2>
 <p>中国急需有公信力的第三方机构！<br><br>RE: 陈光中谈雷洋案：建议最高检督办 北京市检主导<br><img src="http://ww2.sinaimg.cn/large/3f79a379jw1f3sv89i5d1j20qo1bgai0.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3974459729913409" target="freeweibo-mirror">SPAM //@静娅_://@凌星在田野: //@迟夙生律师…</a>
 </h2>
