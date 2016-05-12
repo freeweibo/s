@@ -35,7 +35,7 @@
 </h2>
 <p>这都行？<br><br>RE: 【“毛派”人士举办座谈会纪念“5·16通知”发表五十周年】陕西“山丹丹红” 网站发表署名“红旗飘”的文章说，陕西各地“红友”近日在西安举行“纪念‘5·16’通知发表五十周年座谈会”。该文章称，各地毛派人士争相发言，控诉当代“邓集团篡夺政权，背叛无产阶级事业，复辟资本主义，葬送了毛泽东和无...全文： http://m.weibo.cn/1654134123/3974237947537294...全文： http://m.weibo.cn/1654134123/3974237947537294<br><img src="http://ww1.sinaimg.cn/large/6298156bjw1f3sc15sud8j20cg06kdgp.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3974368290183552" target="freeweibo-mirror">SPAM 进去读好书</a>
 </h2>
@@ -65,13 +65,19 @@
 </h2>
 <p>//@新起点NS:删了吧，不要相信这个一切以领导的口语为准，否则同同属于妄议//@南南3013755657: 一群硕鼠，王八蛋。//@持槍權是最大的人權://@乳燕飞啸://@芒刺在身12://@封神记三十叔://@攻城第七狮://@滴水成冰的北京:呵呵，运河里的鱼果然挺多，个头也不小啊！</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3974336882590997" target="freeweibo-mirror">SPAM 你们这些人捕风捉影，一派胡言。</a>
 </h2>
 <p>SPAM 你们这些人捕风捉影，一派胡言。</p>
 <p>
 	<small> ============== 4小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3974324022791882" target="freeweibo-mirror">比较了一下雷洋事件中警方两份通报，发现了一些细微但未必不重要…</a>
+</h2>
+<p>比较了一下雷洋事件中警方两份通报，发现了一些细微但未必不重要的问题。雷洋事件牵涉到人权保护与警察权界限的重大问题，需要我们认真对待和反思。仅仅从警方自己发布的两份通报中，即已发现一些问题。这些问题，我想更多的不在于文法上，而在于有意无意投射的警方作法上。http://t.cn/RqrOLPN</p>
+<p>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3974321380667963" target="freeweibo-mirror">SPAM //@蒋子刚与发明://@睿创新能源: //@凌通…</a>
 </h2>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3974238266619899" target="freeweibo-mirror">【英国女王公开指责中国官员无礼】英国女王伊丽莎白二世在和伦敦…</a>
 </h2>
 <p>【英国女王公开指责中国官员无礼】英国女王伊丽莎白二世在和伦敦警方官员交谈时对中国官员去年访问英国时的行为做出了严厉评价，称“他们对待大使非常粗鲁”。 http://t.cn/RqrfnYC<br><img src="http://ww2.sinaimg.cn/large/6452c80djw1f3rvexf7mgj20ir0ci41e.jpg"></p>
-<p>
-	<small> ============== 10小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3974234663824068" target="freeweibo-mirror">曝英女王抱怨中国官员态度差 英国回应 http://t.cn…</a>
-</h2>
-<p>曝英女王抱怨中国官员态度差 英国回应 http://t.cn/RqrUEPB</p>
 <p>
 	<small> ============== 10小时前</small>
 </p>
