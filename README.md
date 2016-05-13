@@ -19,6 +19,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3974711464011403" target="freeweibo-mirror">每个人都可能是下一个雷洋、孙志刚 //@孙大午:关注！</a>
+</h2>
+<p>每个人都可能是下一个雷洋、孙志刚 //@孙大午:关注！</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3974708480985982" target="freeweibo-mirror">雷洋，也是運動執法的犧牲者。如今，公安由日常管理走向了運動式…</a>
 </h2>
 <p>雷洋，也是運動執法的犧牲者。如今，公安由日常管理走向了運動式執法。平時，鬆懈日常管理，放縱一些違法犯罪行為，到特定時候集中力量突擊執法。我們常常會聽到“春雷行動”等軍事術語，好像消滅了階級敵人，取得了偉大勝利。其實，警察愛表演，入戲太深了，一場場戰役，消滅的都是些傻傻的飲食男女。</p>
@@ -29,7 +35,7 @@
 </h2>
 <p>SPAM 先推荐段万金律师此文。雷洋䅁法医检验进行中，时间太忙，容后发文。http://t.cn/RqdpIgi<br><img src="http://ww4.sinaimg.cn/large/6b804b51gw1f3ts1h228oj20qo1bgq8q.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3974683873554177" target="freeweibo-mirror">SPAM OPPO A37开卖，MTK6750 CPU，2G…</a>
 </h2>
@@ -77,7 +83,7 @@
 </h2>
 <p>邓小平上来后把是非颠倒了，把坏人打扮成了英雄（张志新、启用大右派），把好人投进了监狱（张钦礼），为反动派翻案，最不该的是把百姓踩在了脚底下，大肆造谣污蔑领袖，颠倒历史黑白，把好端端的社会主义... http://t.cn/Rqdxjdu</p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3974627518367286" target="freeweibo-mirror">SPAM #我的大学最666# 我的大学只有我能吐槽，外人你…</a>
 </h2>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3974585470519156" target="freeweibo-mirror">SPAM //@Thefourthwave: //@北村: …</a>
 </h2>
 <p>SPAM //@Thefourthwave: //@北村: 孩子啊……！[蜡烛][蜡烛][蜡烛] //@章诒和:现在可以说了？//@王小山: //@榕粉团: //@happy牛爹: 謝謝您還記得他們！[蜡烛]<br><br>RE: 他们的名字：512地震中死于倒塌校舍的学生们<br><img src="http://ww2.sinaimg.cn/large/46e9d5dagw1f3t59cbmwoj20l20kuwp4.jpg"></p>
-<p>
-	<small> ============== 9小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3974583553953929" target="freeweibo-mirror">【京衡律师所受理雷洋案】应雷洋亲属诚意要求，京衡律师事务所决…</a>
-</h2>
-<p>【京衡律师所受理雷洋案】应雷洋亲属诚意要求，京衡律师事务所决定受理雷洋案刑事附带民事的诉讼代理，组成由杭州总部、上海所资深律师组成的5人小组，对雷洋家属进行法律援助，处理系列法律事务。昨晚2位律师已飞抵北京开展相关工作。由2位律师主办，其他律师参与调查和协办。http://t.cn/RqdG1dG<br><img src="http://ww2.sinaimg.cn/large/6b804b51gw1f3tfoknop3j20b40eut97.jpg"></p>
 <p>
 	<small> ============== 10小时前</small>
 </p>
