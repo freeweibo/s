@@ -59,7 +59,7 @@
 </h2>
 <p>SPAM //@Thefourthwave: //@北村: 孩子啊……！[蜡烛][蜡烛][蜡烛] //@章诒和:现在可以说了？//@王小山: //@榕粉团: //@happy牛爹: 謝謝您還記得他們！[蜡烛]<br><br>RE: 他们的名字：512地震中死于倒塌校舍的学生们<br><img src="http://ww2.sinaimg.cn/large/46e9d5dagw1f3t59cbmwoj20l20kuwp4.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3974583553953929" target="freeweibo-mirror">【京衡律师所受理雷洋案】应雷洋亲属诚意要求，京衡律师事务所决…</a>
 </h2>
@@ -125,13 +125,13 @@
 </h2>
 <p>严重支持！//@我的确不在乎: //@隋彭生民商法://@仲裁员武律师: 转发微博<br><br>RE: #吐槽曝料# 看看这位评论员评雷某的口才，厉害！ http://t.cn/RqrXDp3</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3974471243024665" target="freeweibo-mirror">SPAM //@桀骜朗朗: //@又来金好多:转发微博</a>
 </h2>
 <p>SPAM //@桀骜朗朗: //@又来金好多:转发微博<br><br>RE: #吐槽曝料# 看看这位评论员评雷某的口才，厉害！ http://t.cn/RqrXDp3</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3974470500803948" target="freeweibo-mirror">SPAM //@太史政-曲直鄉人:李總理:『臣妾做不到啊！』…</a>
 </h2>
