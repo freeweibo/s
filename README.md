@@ -59,13 +59,13 @@
 </h2>
 <p>转帖：当前宏观经济的政治分析： 最近很多人问我，为何不怎么写微博了？拜托，不是我不想写，而且写了的微博都被秒删！不光是微博，对于所有对当前经济政策的不赞成的观点和言论，都被约谈和禁...文字版>> http://t.cn/RqdHJpD （新浪长微博>> http://t.cn/zOXAaic）<br><img src="http://ww4.sinaimg.cn/large/b6ddfe6djw1f3txjzs990j20c85bxhdt.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3974738315866775" target="freeweibo-mirror">#法治中国#满洲里，很讲理 http://t.cn/Rqms…</a>
 </h2>
 <p>#法治中国#满洲里，很讲理 http://t.cn/RqmsK9F 与民争利，令人深思http://t.cn/Rqd0CMJ 冷静三秒，不会发生的故事 http://t.cn/R4t9slR 好像二战某个战役场面 http://t.cn/RqdHfqN<br><br>RE: 【郑州拆迁户杀3人被击毙 150位村民为其捐款】5月10日下午，拆迁中的郑州市惠济区老鸦陈街道薛岗村，村民范华培持刀行凶，致三死一伤。警方发布通告称，制止行凶过程中，民警鸣枪警告无效，开枪将其击毙。11日，家族亲属在家中为他设了灵堂，家门口的捐款记录本记录了近150位村民及陌生人的捐款，没有...全文： http://m.weibo.cn/1744259092/3974332134734337<br><img src="http://ww2.sinaimg.cn/large/67f74814gw1f3si7kbx50j20b40fxgmk.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3974730732232523" target="freeweibo-mirror">去不列颠，自带食物有什么好说的？哼！</a>
 </h2>
@@ -77,7 +77,7 @@
 </h2>
 <p>大律师，在这类事件中能不能收敛一下笑容啊？<br><br>RE: http://t.cn/Rqdjz8Q小小渔a：大律推送的右边微博又被和谐了[泪]（陈有西：先推荐段万金律师此文。雷洋䅁法医检验进行中，时间太忙，容后发文。http://t.cn/RqdpIgi）<br><img src="http://ww4.sinaimg.cn/large/6b804b51gw1f3tva829jsj20qo1bgq8q.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3974722401988187" target="freeweibo-mirror">//@热传媒: //@河北-张占4:转发微博</a>
 </h2>
@@ -107,7 +107,7 @@
 </h2>
 <p>雷洋，也是運動執法的犧牲者。如今，公安由日常管理走向了運動式執法。平時，鬆懈日常管理，放縱一些違法犯罪行為，到特定時候集中力量突擊執法。我們常常會聽到“春雷行動”等軍事術語，好像消滅了階級敵人，取得了偉大勝利。其實，警察愛表演，入戲太深了，一場場戰役，消滅的都是些傻傻的飲食男女。</p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3974702114504980" target="freeweibo-mirror">从不反对警察来酒店核实身份，每次我都很配合，虽然我所有的个人…</a>
 </h2>
@@ -137,7 +137,7 @@
 </h2>
 <p>SPAM 在这里，感受不被时光侵扰的美丽。[心]</p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p>
 <table>
     <tr>
