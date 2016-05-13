@@ -43,6 +43,12 @@
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3974722401988187" target="freeweibo-mirror">//@热传媒: //@河北-张占4:转发微博</a>
+</h2>
+<p>//@热传媒: //@河北-张占4:转发微博<br><br>RE: 【范华培何以触动整个郑州？】有消息称薛岗杀人事件惊动整个郑州北郊薛岗及其它村半日为死者捐款三十多万元被强行停止，柳林，刘庄，中牟，花园口，常庄，李西河，双桥，胖庄，老鸦陈，惠济桥等都有人前往。少则几百元，多则有几个人捐一万元。<br><img src="http://ww4.sinaimg.cn/large/48eae8aejw1f3sq34uq06j20kz0qojss.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3974718690202778" target="freeweibo-mirror">http://t.cn/Rqdjz8Q小小渔a：大律推送的右…</a>
 </h2>
 <p>http://t.cn/Rqdjz8Q小小渔a：大律推送的右边微博又被和谐了[泪]（陈有西：先推荐段万金律师此文。雷洋䅁法医检验进行中，时间太忙，容后发文。http://t.cn/RqdpIgi）</p>
@@ -83,7 +89,7 @@
 </h2>
 <p>SPAM OPPO A37开卖，MTK6750 CPU，2G RAM，16G ROM，5.0寸屏，前置500万，后置800万摄像头，2630毫安电池，才卖1299元，要不要520买一部送女友</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3974678969921514" target="freeweibo-mirror">【中国版维基解密】一个神秘的Twitter账号公布了中国几十…</a>
 </h2>
@@ -125,17 +131,11 @@
 </h2>
 <p>SPAM 好文，再推荐一次。<br><img src="http://ww2.sinaimg.cn/large/91a85543gw1f3tntlv562j20k07tukjl.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3974639304628383" target="freeweibo-mirror">//@海龙-28://@洎油_泯注: //@hehuanli…</a>
 </h2>
 <p>//@海龙-28://@洎油_泯注: //@hehuanlinzhao: //@涙雨望星辰://@半---痴---探花://@冰海雪涛44://@花样男子V2: //@沙漠渔夫809:转发微博</p>
-<p>
-	<small> ============== 8小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3974630710627044" target="freeweibo-mirror">邓小平上来后把是非颠倒了，把坏人打扮成了英雄（张志新、启用大…</a>
-</h2>
-<p>邓小平上来后把是非颠倒了，把坏人打扮成了英雄（张志新、启用大右派），把好人投进了监狱（张钦礼），为反动派翻案，最不该的是把百姓踩在了脚底下，大肆造谣污蔑领袖，颠倒历史黑白，把好端端的社会主义... http://t.cn/Rqdxjdu</p>
 <p>
 	<small> ============== 9小时前</small>
 </p>
