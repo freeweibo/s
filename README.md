@@ -59,7 +59,7 @@
 </h2>
 <p>SPAM 换一种方式过一生，然后遇见更好的自己。@-LoveJune私物-<br><img src="http://ww4.sinaimg.cn/large/7e461e95jw1f3u1uty0phj20u00u0n0u.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3974773442807814" target="freeweibo-mirror">SPAM //@江水东逝: [晕]//@张老汉一世: 当年胡…</a>
 </h2>
@@ -95,7 +95,7 @@
 </h2>
 <p>去不列颠，自带食物有什么好说的？哼！<br><img src="http://ww1.sinaimg.cn/large/759fdc83gw1f3twm20eauj20ju0jvwi3.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3974722859569852" target="freeweibo-mirror">大律师，在这类事件中能不能收敛一下笑容啊？</a>
 </h2>
