@@ -83,7 +83,7 @@
 </h2>
 <p>//@热传媒: //@河北-张占4:转发微博<br><br>RE: 【范华培何以触动整个郑州？】有消息称薛岗杀人事件惊动整个郑州北郊薛岗及其它村半日为死者捐款三十多万元被强行停止，柳林，刘庄，中牟，花园口，常庄，李西河，双桥，胖庄，老鸦陈，惠济桥等都有人前往。少则几百元，多则有几个人捐一万元。<br><img src="http://ww4.sinaimg.cn/large/48eae8aejw1f3sq34uq06j20kz0qojss.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3974718690202778" target="freeweibo-mirror">http://t.cn/Rqdjz8Q小小渔a：大律推送的右…</a>
 </h2>
