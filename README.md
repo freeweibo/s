@@ -23,13 +23,13 @@
 </h2>
 <p>能行？//@张晨初艺术空间://@杨学林律师:坚决支持！<br><br>RE: 【京衡律师所受理雷洋案】应雷洋亲属诚意要求，京衡律师事务所决定受理雷洋案刑事附带民事的诉讼代理，组成由杭州总部、上海所资深律师组成的5人小组，对雷洋家属进行法律援助，处理系列法律事务。昨晚2位律师已飞抵北京开展相关工作。由2位律师主办，其他律师参与调查和协办。http://t.cn/RqdG1dG<br><img src="http://ww2.sinaimg.cn/large/6b804b51gw1f3tfoknop3j20b40eut97.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3974611530611726" target="freeweibo-mirror">SPAM 雷洋即使真的嫖娼了，就应该死吗？</a>
 </h2>
 <p>SPAM 雷洋即使真的嫖娼了，就应该死吗？</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3974609802576289" target="freeweibo-mirror">陈大状，看你的了。[good]</a>
 </h2>
@@ -61,6 +61,12 @@
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3974583553953929" target="freeweibo-mirror">【京衡律师所受理雷洋案】应雷洋亲属诚意要求，京衡律师事务所决…</a>
+</h2>
+<p>【京衡律师所受理雷洋案】应雷洋亲属诚意要求，京衡律师事务所决定受理雷洋案刑事附带民事的诉讼代理，组成由杭州总部、上海所资深律师组成的5人小组，对雷洋家属进行法律援助，处理系列法律事务。昨晚2位律师已飞抵北京开展相关工作。由2位律师主办，其他律师参与调查和协办。http://t.cn/RqdG1dG<br><img src="http://ww2.sinaimg.cn/large/6b804b51gw1f3tfoknop3j20b40eut97.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3974582753249020" target="freeweibo-mirror">伊斯兰癌症晚期的国家只能任其自生自灭了。世俗力量尚占上风的国…</a>
 </h2>
 <p>伊斯兰癌症晚期的国家只能任其自生自灭了。世俗力量尚占上风的国家必须警惕绿教人口的增加，采取釜底抽薪政策，遏制穆斯林后代自动成为穆斯林的势头，停止对穆斯林的特殊待遇（包括食品补贴和加分等），绝对不许用政府财政资助宗教（清真寺的建设、宗教活动）。</p>
@@ -71,7 +77,7 @@
 </h2>
 <p>//@侯杨方:说得好，人要有这个志气，接受照顾、低分数线是承认自己不行。//@饭人高: 这也是歧视我们西部各省呢，难道我们考不过江苏学生？//@侯杨方:太恶心。支持全国统一高考标准。//@梅新育: 理所当然支持江苏家长抗争。<br><br>RE: 寒窗苦读12年，江苏的本科低录取率让孩子们杀出一条血路，挤破脑袋过独木桥，如今还要拿出38000招生指标支持西部，为了孩子，维护权益，反对减招，这是江苏三十万家长们的正当诉求。请问，这里发生了什么？<br><img src="http://ww2.sinaimg.cn/large/a7daf5fagw1f3r80m6vgsj20qo0qojy8.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3974492566898656" target="freeweibo-mirror">他们的名字：512地震中死于倒塌校舍的学生们</a>
 </h2>
@@ -101,7 +107,7 @@
 </h2>
 <p>死得明白！ //@陈满华CMH://@襄阳V: 转发微博<br><br>RE: 【死得明白是公民权利底线】「雷先生是否嫖娼，无须再查，人已死亡，已无实质性意义。还原雷先生如何死亡是目前唯一应做的调查。」<br><img src="http://ww1.sinaimg.cn/large/7c0e9549gw1f3syvvwv5kj20g47pshdt.jpg"></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3974474095173481" target="freeweibo-mirror">SPAM </a>
 </h2>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3974470500803948" target="freeweibo-mirror">SPAM //@太史政-曲直鄉人:李總理:『臣妾做不到啊！』…</a>
 </h2>
 <p>SPAM //@太史政-曲直鄉人:李總理:『臣妾做不到啊！』//@梁惠王:他做得到？//@平山燕:后勤打杂人员哈～ //@李宝玖:打杂的而已。//@蘭州的尕鐘：辛苦，浦律师了<br><br>RE: 浦志强先生的意见。<br><img src="http://ww1.sinaimg.cn/large/62a548a7jw1f3srcc8aotj20hs0vktcj.jpg"></p>
-<p>
-	<small> ============== 11小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3974468462807339" target="freeweibo-mirror">公平正义来之不易。//@张晨初艺术空间: http://t.…</a>
-</h2>
-<p>公平正义来之不易。//@张晨初艺术空间: http://t.cn/RqdztmL  //@区志航:【朱征夫：人大硕士死亡，不独立调查就没公信力】雷洋事件迄今为止最具说服力和建设性见解，重提废除卖淫嫖娼人员收容教育制度。 http://t.cn/Rqro4Ri<br><br>RE: 【雷洋事件会成为北京版孙志刚事件吗？】每逢新的热点事件，我都会习惯性对照迄今为止超过七百个的“俯卧撑”作品。北京雷洋事件酷似十三年前导致收容遣送制度终结的广州孙志刚事件，且引发的追问更强烈，最终会给社会带来什么？http://url.cn/2GTjPFo （图1为：《那一刻》2003年3月18日广州孙志刚事件...全文： http://m.weibo.cn/1293623721/3974294822162749<br><img src="http://ww2.sinaimg.cn/large/4d1b21a9gw1f3sik7wtwuj20k00dcgod.jpg"></p>
 <p>
 	<small> ============== 11小时前</small>
 </p>
