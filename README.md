@@ -19,9 +19,21 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3974742560383142" target="freeweibo-mirror">//@六安自媒体:转发微博</a>
+</h2>
+<p>//@六安自媒体:转发微博<br><br>RE: 近日，郑州市研究生毕业的范华培持刀刺死3名拆迁人员，被警方当场击毙。范华培死后，当地村民自发排队为其送上花圈，并提上“永垂不朽”字样等，这社会变味了…  http://t.cn/RqdhRqq</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3974738784840781" target="freeweibo-mirror">转帖：当前宏观经济的政治分析： 最近很多人问我，为何不怎么写…</a>
 </h2>
 <p>转帖：当前宏观经济的政治分析： 最近很多人问我，为何不怎么写微博了？拜托，不是我不想写，而且写了的微博都被秒删！不光是微博，对于所有对当前经济政策的不赞成的观点和言论，都被约谈和禁...文字版>> http://t.cn/RqdHJpD （新浪长微博>> http://t.cn/zOXAaic）<br><img src="http://ww4.sinaimg.cn/large/b6ddfe6djw1f3txjzs990j20c85bxhdt.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3974738315866775" target="freeweibo-mirror">#法治中国#满洲里，很讲理 http://t.cn/Rqms…</a>
+</h2>
+<p>#法治中国#满洲里，很讲理 http://t.cn/RqmsK9F 与民争利，令人深思http://t.cn/Rqd0CMJ 冷静三秒，不会发生的故事 http://t.cn/R4t9slR 好像二战某个战役场面 http://t.cn/RqdHfqN<br><br>RE: 【郑州拆迁户杀3人被击毙 150位村民为其捐款】5月10日下午，拆迁中的郑州市惠济区老鸦陈街道薛岗村，村民范华培持刀行凶，致三死一伤。警方发布通告称，制止行凶过程中，民警鸣枪警告无效，开枪将其击毙。11日，家族亲属在家中为他设了灵堂，家门口的捐款记录本记录了近150位村民及陌生人的捐款，没有...全文： http://m.weibo.cn/1744259092/3974332134734337<br><img src="http://ww2.sinaimg.cn/large/67f74814gw1f3si7kbx50j20b40fxgmk.jpg"></p>
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
@@ -95,7 +107,7 @@
 </h2>
 <p>毛泽东是为公，邓小平是私。所以自私自利的人继续走邓小平的道路<br><br>RE: 邓小平上来后把是非颠倒了，把坏人打扮成了英雄（张志新、启用大右派），把好人投进了监狱（张钦礼），为反动派翻案，最不该的是把百姓踩在了脚底下，大肆造谣污蔑领袖，颠倒历史黑白，把好端端的社会主义... http://t.cn/Rqdxjdu</p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3974663610316936" target="freeweibo-mirror">SPAM #元气少年易烊千玺表演不打烊#</a>
 </h2>
@@ -126,18 +138,6 @@
 <p>邓小平上来后把是非颠倒了，把坏人打扮成了英雄（张志新、启用大右派），把好人投进了监狱（张钦礼），为反动派翻案，最不该的是把百姓踩在了脚底下，大肆造谣污蔑领袖，颠倒历史黑白，把好端端的社会主义... http://t.cn/Rqdxjdu</p>
 <p>
 	<small> ============== 9小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3974627518367286" target="freeweibo-mirror">SPAM #我的大学最666# 我的大学只有我能吐槽，外人你…</a>
-</h2>
-<p>SPAM #我的大学最666# 我的大学只有我能吐槽，外人你敢说一句试试！ [酷]</p>
-<p>
-	<small> ============== 9小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3974611886668244" target="freeweibo-mirror">能行？//@张晨初艺术空间://@杨学林律师:坚决支持！</a>
-</h2>
-<p>能行？//@张晨初艺术空间://@杨学林律师:坚决支持！<br><br>RE: 【京衡律师所受理雷洋案】应雷洋亲属诚意要求，京衡律师事务所决定受理雷洋案刑事附带民事的诉讼代理，组成由杭州总部、上海所资深律师组成的5人小组，对雷洋家属进行法律援助，处理系列法律事务。昨晚2位律师已飞抵北京开展相关工作。由2位律师主办，其他律师参与调查和协办。http://t.cn/RqdG1dG<br><img src="http://ww2.sinaimg.cn/large/6b804b51gw1f3tfoknop3j20b40eut97.jpg"></p>
-<p>
-	<small> ============== 10小时前</small>
 </p>
 <table>
     <tr>
