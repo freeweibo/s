@@ -29,7 +29,7 @@
 </h2>
 <p>//@侯杨方:说得好，人要有这个志气，接受照顾、低分数线是承认自己不行。//@饭人高: 这也是歧视我们西部各省呢，难道我们考不过江苏学生？//@侯杨方:太恶心。支持全国统一高考标准。//@梅新育: 理所当然支持江苏家长抗争。<br><br>RE: 寒窗苦读12年，江苏的本科低录取率让孩子们杀出一条血路，挤破脑袋过独木桥，如今还要拿出38000招生指标支持西部，为了孩子，维护权益，反对减招，这是江苏三十万家长们的正当诉求。请问，这里发生了什么？<br><img src="http://ww2.sinaimg.cn/large/a7daf5fagw1f3r80m6vgsj20qo0qojy8.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3974477362541295" target="freeweibo-mirror">SPAM //@记者-薛洪涛://@魏城WEICHENG: …</a>
 </h2>
@@ -53,7 +53,7 @@
 </h2>
 <p>死得明白！ //@陈满华CMH://@襄阳V: 转发微博<br><br>RE: 【死得明白是公民权利底线】「雷先生是否嫖娼，无须再查，人已死亡，已无实质性意义。还原雷先生如何死亡是目前唯一应做的调查。」<br><img src="http://ww1.sinaimg.cn/large/7c0e9549gw1f3syvvwv5kj20g47pshdt.jpg"></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3974474095173481" target="freeweibo-mirror">SPAM </a>
 </h2>
