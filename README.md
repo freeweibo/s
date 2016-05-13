@@ -29,13 +29,13 @@
 </h2>
 <p>能行？//@张晨初艺术空间://@杨学林律师:坚决支持！<br><br>RE: 【京衡律师所受理雷洋案】应雷洋亲属诚意要求，京衡律师事务所决定受理雷洋案刑事附带民事的诉讼代理，组成由杭州总部、上海所资深律师组成的5人小组，对雷洋家属进行法律援助，处理系列法律事务。昨晚2位律师已飞抵北京开展相关工作。由2位律师主办，其他律师参与调查和协办。http://t.cn/RqdG1dG<br><img src="http://ww2.sinaimg.cn/large/6b804b51gw1f3tfoknop3j20b40eut97.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3974611530611726" target="freeweibo-mirror">SPAM 雷洋即使真的嫖娼了，就应该死吗？</a>
 </h2>
 <p>SPAM 雷洋即使真的嫖娼了，就应该死吗？</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3974609802576289" target="freeweibo-mirror">陈大状，看你的了。[good]</a>
 </h2>
@@ -83,7 +83,7 @@
 </h2>
 <p>//@侯杨方:说得好，人要有这个志气，接受照顾、低分数线是承认自己不行。//@饭人高: 这也是歧视我们西部各省呢，难道我们考不过江苏学生？//@侯杨方:太恶心。支持全国统一高考标准。//@梅新育: 理所当然支持江苏家长抗争。<br><br>RE: 寒窗苦读12年，江苏的本科低录取率让孩子们杀出一条血路，挤破脑袋过独木桥，如今还要拿出38000招生指标支持西部，为了孩子，维护权益，反对减招，这是江苏三十万家长们的正当诉求。请问，这里发生了什么？<br><img src="http://ww2.sinaimg.cn/large/a7daf5fagw1f3r80m6vgsj20qo0qojy8.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3974492566898656" target="freeweibo-mirror">他们的名字：512地震中死于倒塌校舍的学生们</a>
 </h2>
