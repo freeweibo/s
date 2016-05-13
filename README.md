@@ -47,7 +47,7 @@
 </h2>
 <p>不要装外宾嘛，我国富贵人有几个不信风水的，资产上亿或者官至市级，不信风水基本上不可能了，形势比人强//@d1018:信风水，果然是真信中医 //@米尔海姆桑11:以为是谣言，搜了一下，顿时石化了。这两天努力扑腾想象力的翅膀，都跟不上大国外交出洋相的步伐。//@Fion-是我名: →_→  http://t.cn/RqdQiWc<br><br>RE: 去不列颠，自带食物有什么好说的？哼！<br><img src="http://ww1.sinaimg.cn/large/759fdc83gw1f3twm20eauj20ju0jvwi3.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3974742560383142" target="freeweibo-mirror">//@六安自媒体:转发微博</a>
 </h2>
@@ -131,7 +131,7 @@
 </h2>
 <p>【中国版维基解密】一个神秘的Twitter账号公布了中国几十个名人的个人信息，包括马云、王健林等亿万富翁，甚至还有中国互联网管控的缔造者方滨兴。在曝光数小时后，这个账号被Twitter冻结。http://t.cn/Rqd9rwG<br><img src="http://ww1.sinaimg.cn/large/6452c80dgw1f3tqodokj3j20go0b4q3s.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3974678605262571" target="freeweibo-mirror">SPAM 在这里，感受不被时光侵扰的美丽。[心]</a>
 </h2>
