@@ -119,7 +119,7 @@
 </h2>
 <p>为民请命！<br><br>RE: 【京衡律师所受理雷洋案】应雷洋亲属诚意要求，京衡律师事务所决定受理雷洋案刑事附带民事的诉讼代理，组成由杭州总部、上海所资深律师组成的5人小组，对雷洋家属进行法律援助，处理系列法律事务。昨晚2位律师已飞抵北京开展相关工作。由2位律师主办，其他律师参与调查和协办。http://t.cn/RqdG1dG<br><img src="http://ww2.sinaimg.cn/large/6b804b51gw1f3tfoknop3j20b40eut97.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3974585470519156" target="freeweibo-mirror">SPAM //@Thefourthwave: //@北村: …</a>
 </h2>
