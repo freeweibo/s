@@ -101,7 +101,7 @@
 </h2>
 <p>他们的名字：512地震中死于倒塌校舍的学生们<br><img src="http://ww2.sinaimg.cn/large/46e9d5dagw1f3t59cbmwoj20l20kuwp4.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3974477362541295" target="freeweibo-mirror">SPAM //@记者-薛洪涛://@魏城WEICHENG: …</a>
 </h2>
