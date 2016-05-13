@@ -41,7 +41,7 @@
 </h2>
 <p>每个人都可能是下一个雷洋、孙志刚 //@孙大午:关注！</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3974708480985982" target="freeweibo-mirror">雷洋，也是運動執法的犧牲者。如今，公安由日常管理走向了運動式…</a>
 </h2>
