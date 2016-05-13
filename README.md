@@ -23,7 +23,7 @@
 </h2>
 <p>SPAM 在这里，感受不被时光侵扰的美丽。[心]</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3974673446010951" target="freeweibo-mirror">SPAM 本来还觉得裸眼3D很远[晕]，万万没想到已经普及到…</a>
 </h2>
