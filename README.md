@@ -101,7 +101,7 @@
 </h2>
 <p>不要装外宾嘛，我国富贵人有几个不信风水的，资产上亿或者官至市级，不信风水基本上不可能了，形势比人强//@d1018:信风水，果然是真信中医 //@米尔海姆桑11:以为是谣言，搜了一下，顿时石化了。这两天努力扑腾想象力的翅膀，都跟不上大国外交出洋相的步伐。//@Fion-是我名: →_→  http://t.cn/RqdQiWc<br><br>RE: 去不列颠，自带食物有什么好说的？哼！<br><img src="http://ww1.sinaimg.cn/large/759fdc83gw1f3twm20eauj20ju0jvwi3.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3974764315332742" target="freeweibo-mirror">【历史上的今天】 公元1998年5月13日，印尼首都雅加达在…</a>
 </h2>
