@@ -19,6 +19,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3974718690202778" target="freeweibo-mirror">http://t.cn/Rqdjz8Q小小渔a：大律推送的右…</a>
+</h2>
+<p>http://t.cn/Rqdjz8Q小小渔a：大律推送的右边微博又被和谐了[泪]（陈有西：先推荐段万金律师此文。雷洋䅁法医检验进行中，时间太忙，容后发文。http://t.cn/RqdpIgi）</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3974711464011403" target="freeweibo-mirror">每个人都可能是下一个雷洋、孙志刚 //@孙大午:关注！</a>
 </h2>
 <p>每个人都可能是下一个雷洋、孙志刚 //@孙大午:关注！</p>
@@ -65,7 +71,7 @@
 </h2>
 <p>毛泽东是为公，邓小平是私。所以自私自利的人继续走邓小平的道路<br><br>RE: 邓小平上来后把是非颠倒了，把坏人打扮成了英雄（张志新、启用大右派），把好人投进了监狱（张钦礼），为反动派翻案，最不该的是把百姓踩在了脚底下，大肆造谣污蔑领袖，颠倒历史黑白，把好端端的社会主义... http://t.cn/Rqdxjdu</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3974663610316936" target="freeweibo-mirror">SPAM #元气少年易烊千玺表演不打烊#</a>
 </h2>
@@ -132,12 +138,6 @@
 <p>我为北京警方降个温！<br><img src="http://ww3.sinaimg.cn/large/a749845ajw1f3thimgogkj20d30m8n0n.jpg"></p>
 <p>
 	<small> ============== 9小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3974586863493350" target="freeweibo-mirror">为民请命！</a>
-</h2>
-<p>为民请命！<br><br>RE: 【京衡律师所受理雷洋案】应雷洋亲属诚意要求，京衡律师事务所决定受理雷洋案刑事附带民事的诉讼代理，组成由杭州总部、上海所资深律师组成的5人小组，对雷洋家属进行法律援助，处理系列法律事务。昨晚2位律师已飞抵北京开展相关工作。由2位律师主办，其他律师参与调查和协办。http://t.cn/RqdG1dG<br><img src="http://ww2.sinaimg.cn/large/6b804b51gw1f3tfoknop3j20b40eut97.jpg"></p>
-<p>
-	<small> ============== 10小时前</small>
 </p>
 <table>
     <tr>
