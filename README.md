@@ -35,7 +35,7 @@
 </h2>
 <p>陈大状，看你的了。[good]<br><br>RE: 【京衡律师所受理雷洋案】应雷洋亲属诚意要求，京衡律师事务所决定受理雷洋案刑事附带民事的诉讼代理，组成由杭州总部、上海所资深律师组成的5人小组，对雷洋家属进行法律援助，处理系列法律事务。昨晚2位律师已飞抵北京开展相关工作。由2位律师主办，其他律师参与调查和协办。http://t.cn/RqdG1dG<br><img src="http://ww2.sinaimg.cn/large/6b804b51gw1f3tfoknop3j20b40eut97.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3974609231591530" target="freeweibo-mirror">//@杨学林律师:坚决支持！</a>
 </h2>
@@ -113,7 +113,7 @@
 </h2>
 <p>SPAM </p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3974473016680704" target="freeweibo-mirror">//@记者-薛洪涛://@迟夙生律师: //@不沉默的大多数…</a>
 </h2>
