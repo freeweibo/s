@@ -107,7 +107,7 @@
 </h2>
 <p>死得明白！ //@陈满华CMH://@襄阳V: 转发微博<br><br>RE: 【死得明白是公民权利底线】「雷先生是否嫖娼，无须再查，人已死亡，已无实质性意义。还原雷先生如何死亡是目前唯一应做的调查。」<br><img src="http://ww1.sinaimg.cn/large/7c0e9549gw1f3syvvwv5kj20g47pshdt.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3974474095173481" target="freeweibo-mirror">SPAM </a>
 </h2>
