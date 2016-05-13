@@ -23,7 +23,7 @@
 </h2>
 <p>SPAM 风水[汗]……//@LifeTime:[推荐]//@Fion-是我名: →_→    http://t.cn/RqdQiWc<br><br>RE: 去不列颠，自带食物有什么好说的？哼！<br><img src="http://ww1.sinaimg.cn/large/759fdc83gw1f3twm20eauj20ju0jvwi3.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3974777665802349" target="freeweibo-mirror">SPAM //@LifeTime:[推荐]//@Fion-是…</a>
 </h2>
@@ -61,6 +61,12 @@
 <p>
 	<small> ============== 4小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3974730732232523" target="freeweibo-mirror">去不列颠，自带食物有什么好说的？哼！</a>
+</h2>
+<p>去不列颠，自带食物有什么好说的？哼！<br><img src="http://ww1.sinaimg.cn/large/759fdc83gw1f3twm20eauj20ju0jvwi3.jpg"></p>
+<p>
+	<small> ============== 5小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3974722859569852" target="freeweibo-mirror">大律师，在这类事件中能不能收敛一下笑容啊？</a>
 </h2>
 <p>大律师，在这类事件中能不能收敛一下笑容啊？<br><br>RE: http://t.cn/Rqdjz8Q小小渔a：大律推送的右边微博又被和谐了[泪]（陈有西：先推荐段万金律师此文。雷洋䅁法医检验进行中，时间太忙，容后发文。http://t.cn/RqdpIgi）<br><img src="http://ww4.sinaimg.cn/large/6b804b51gw1f3tva829jsj20qo1bgq8q.jpg"></p>
@@ -77,7 +83,7 @@
 </h2>
 <p>http://t.cn/Rqdjz8Q小小渔a：大律推送的右边微博又被和谐了[泪]（陈有西：先推荐段万金律师此文。雷洋䅁法医检验进行中，时间太忙，容后发文。http://t.cn/RqdpIgi）</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3974717448298612" target="freeweibo-mirror">推荐阅读：古代官员嫖娼那点事！</a>
 </h2>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3974673446010951" target="freeweibo-mirror">SPAM 本来还觉得裸眼3D很远[晕]，万万没想到已经普及到…</a>
 </h2>
 <p>SPAM 本来还觉得裸眼3D很远[晕]，万万没想到已经普及到这个地步了，看来这个世界的进步已经阻挡不了啊[哈哈]#科技无门槛#</p>
-<p>
-	<small> ============== 8小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3974668177982580" target="freeweibo-mirror">毛泽东是为公，邓小平是私。所以自私自利的人继续走邓小平的道路</a>
-</h2>
-<p>毛泽东是为公，邓小平是私。所以自私自利的人继续走邓小平的道路<br><br>RE: 邓小平上来后把是非颠倒了，把坏人打扮成了英雄（张志新、启用大右派），把好人投进了监狱（张钦礼），为反动派翻案，最不该的是把百姓踩在了脚底下，大肆造谣污蔑领袖，颠倒历史黑白，把好端端的社会主义... http://t.cn/Rqdxjdu</p>
 <p>
 	<small> ============== 9小时前</small>
 </p>
