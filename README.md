@@ -31,9 +31,39 @@
 <p>
 	<small> ============== 1小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3974609802576289" target="freeweibo-mirror">陈大状，看你的了。[good]</a>
+</h2>
+<p>陈大状，看你的了。[good]<br><br>RE: 【京衡律师所受理雷洋案】应雷洋亲属诚意要求，京衡律师事务所决定受理雷洋案刑事附带民事的诉讼代理，组成由杭州总部、上海所资深律师组成的5人小组，对雷洋家属进行法律援助，处理系列法律事务。昨晚2位律师已飞抵北京开展相关工作。由2位律师主办，其他律师参与调查和协办。http://t.cn/RqdG1dG<br><img src="http://ww2.sinaimg.cn/large/6b804b51gw1f3tfoknop3j20b40eut97.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3974609231591530" target="freeweibo-mirror">//@杨学林律师:坚决支持！</a>
+</h2>
+<p>//@杨学林律师:坚决支持！<br><br>RE: 【京衡律师所受理雷洋案】应雷洋亲属诚意要求，京衡律师事务所决定受理雷洋案刑事附带民事的诉讼代理，组成由杭州总部、上海所资深律师组成的5人小组，对雷洋家属进行法律援助，处理系列法律事务。昨晚2位律师已飞抵北京开展相关工作。由2位律师主办，其他律师参与调查和协办。http://t.cn/RqdG1dG<br><img src="http://ww2.sinaimg.cn/large/6b804b51gw1f3tfoknop3j20b40eut97.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3974604546662770" target="freeweibo-mirror">→_→//@路人甲古文:陈律师出门时一定不要路过任何一家沐足…</a>
+</h2>
+<p>→_→//@路人甲古文:陈律师出门时一定不要路过任何一家沐足店或发廊，万一不得不经过，请保持距离至少三十米开外，不要停留，甚至不要多看他们的招牌一眼。也不要跟任何陌生女性交谈或打招呼。  只想到这么多，请大家补充。<br><br>RE: 【京衡律师所受理雷洋案】应雷洋亲属诚意要求，京衡律师事务所决定受理雷洋案刑事附带民事的诉讼代理，组成由杭州总部、上海所资深律师组成的5人小组，对雷洋家属进行法律援助，处理系列法律事务。昨晚2位律师已飞抵北京开展相关工作。由2位律师主办，其他律师参与调查和协办。http://t.cn/RqdG1dG<br><img src="http://ww2.sinaimg.cn/large/6b804b51gw1f3tfoknop3j20b40eut97.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3974586863493350" target="freeweibo-mirror">为民请命！</a>
+</h2>
+<p>为民请命！<br><br>RE: 【京衡律师所受理雷洋案】应雷洋亲属诚意要求，京衡律师事务所决定受理雷洋案刑事附带民事的诉讼代理，组成由杭州总部、上海所资深律师组成的5人小组，对雷洋家属进行法律援助，处理系列法律事务。昨晚2位律师已飞抵北京开展相关工作。由2位律师主办，其他律师参与调查和协办。http://t.cn/RqdG1dG<br><img src="http://ww2.sinaimg.cn/large/6b804b51gw1f3tfoknop3j20b40eut97.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3974585470519156" target="freeweibo-mirror">SPAM //@Thefourthwave: //@北村: …</a>
 </h2>
 <p>SPAM //@Thefourthwave: //@北村: 孩子啊……！[蜡烛][蜡烛][蜡烛] //@章诒和:现在可以说了？//@王小山: //@榕粉团: //@happy牛爹: 謝謝您還記得他們！[蜡烛]<br><br>RE: 他们的名字：512地震中死于倒塌校舍的学生们<br><img src="http://ww2.sinaimg.cn/large/46e9d5dagw1f3t59cbmwoj20l20kuwp4.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3974582753249020" target="freeweibo-mirror">伊斯兰癌症晚期的国家只能任其自生自灭了。世俗力量尚占上风的国…</a>
+</h2>
+<p>伊斯兰癌症晚期的国家只能任其自生自灭了。世俗力量尚占上风的国家必须警惕绿教人口的增加，采取釜底抽薪政策，遏制穆斯林后代自动成为穆斯林的势头，停止对穆斯林的特殊待遇（包括食品补贴和加分等），绝对不许用政府财政资助宗教（清真寺的建设、宗教活动）。</p>
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
@@ -83,7 +113,7 @@
 </h2>
 <p>//@记者-薛洪涛://@迟夙生律师: //@不沉默的大多数:回复@朝夕者:你可以让昌平警方介绍一下此前当地这种执法过多少次了，效果如何？//@朝夕者:不查店，只在路上拦人。我擦，这话诡辩的太没水平了。。。<br><br>RE: 【风青杨：对不起，我并不想知道雷洋如何嫖娼】昌平警方在通报中试图证明雷洋涉嫌嫖娼是证据确凿的，却难以弥合家属及公众的质疑。道理很简单——嫖娼者即便身败名裂也绝不必付生命代价，任何道德的高地也高不过公民生命的尊严。正如雷洋妻子对媒体所说：“不考虑他是否嫖娼，只在意执法有无问题！”...全文： http://m.weibo.cn/1744259092/3974347234996563<br><img src="http://ww2.sinaimg.cn/large/67f74814gw1f3sja9qkipj20d008q755.jpg"></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3974471683634032" target="freeweibo-mirror">严重支持！//@我的确不在乎: //@隋彭生民商法://@仲…</a>
 </h2>
@@ -106,36 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3974468462807339" target="freeweibo-mirror">公平正义来之不易。//@张晨初艺术空间: http://t.…</a>
 </h2>
 <p>公平正义来之不易。//@张晨初艺术空间: http://t.cn/RqdztmL  //@区志航:【朱征夫：人大硕士死亡，不独立调查就没公信力】雷洋事件迄今为止最具说服力和建设性见解，重提废除卖淫嫖娼人员收容教育制度。 http://t.cn/Rqro4Ri<br><br>RE: 【雷洋事件会成为北京版孙志刚事件吗？】每逢新的热点事件，我都会习惯性对照迄今为止超过七百个的“俯卧撑”作品。北京雷洋事件酷似十三年前导致收容遣送制度终结的广州孙志刚事件，且引发的追问更强烈，最终会给社会带来什么？http://url.cn/2GTjPFo （图1为：《那一刻》2003年3月18日广州孙志刚事件...全文： http://m.weibo.cn/1293623721/3974294822162749<br><img src="http://ww2.sinaimg.cn/large/4d1b21a9gw1f3sik7wtwuj20k00dcgod.jpg"></p>
-<p>
-	<small> ============== 11小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3974467413443936" target="freeweibo-mirror">SPAM 这它妈的还叫国家？</a>
-</h2>
-<p>SPAM 这它妈的还叫国家？<br><br>RE: 不知道被电刑的是谁？惨无人道的电刑西方有吗？ http://t.cn/Rqr1yXl .</p>
-<p>
-	<small> ============== 11小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3974467413838277" target="freeweibo-mirror">//@Lily-况莉莉: 美国也有3位警察，抓捕一个涉嫌嫖娼…</a>
-</h2>
-<p>//@Lily-况莉莉: 美国也有3位警察，抓捕一个涉嫌嫖娼召妓的嫌疑人。但半路上，人就死了。最后法庭宣判如下：3位警察分别领刑10年到30年刑期，政府赔偿嫌疑人家属640万美元。//@北极熊号<br><br>RE: #吐槽曝料# 看看这位评论员评雷某的口才，厉害！ http://t.cn/RqrXDp3</p>
-<p>
-	<small> ============== 11小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3974467061101294" target="freeweibo-mirror">SPAM //@问苍茫大地8://@无语了998://@茅于…</a>
-</h2>
-<p>SPAM //@问苍茫大地8://@无语了998://@茅于轼门下5://@酒缸不小8097:法西斯//@迟夙生律师: //@冰海雪涛44://@我是德赛: 到度底是谁？<br><br>RE: 不知道被电刑的是谁？惨无人道的电刑西方有吗？ http://t.cn/Rqr1yXl .</p>
-<p>
-	<small> ============== 11小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3974466986471332" target="freeweibo-mirror">SPAM http://t.cn/Rqdvslj   //@…</a>
-</h2>
-<p>SPAM http://t.cn/Rqdvslj   //@哎哎哎哎哟哟哟哟: 真的?//@刘建伟_微博:毫不惊讶。<br><br>RE: 雷洋   常州毒校……<br><img src="http://ww4.sinaimg.cn/large/de72b4cfgw1f3sbr0rpp6j20zx0qcjwj.jpg"></p>
-<p>
-	<small> ============== 11小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3974466969298867" target="freeweibo-mirror">SPAM //@天创流://@黄奎ART: 转发微博</a>
-</h2>
-<p>SPAM //@天创流://@黄奎ART: 转发微博<br><br>RE: #吐槽曝料# 看看这位评论员评雷某的口才，厉害！ http://t.cn/RqrXDp3</p>
 <p>
 	<small> ============== 11小时前</small>
 </p>
