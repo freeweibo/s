@@ -19,6 +19,18 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3974585470519156" target="freeweibo-mirror">SPAM //@Thefourthwave: //@北村: …</a>
+</h2>
+<p>SPAM //@Thefourthwave: //@北村: 孩子啊……！[蜡烛][蜡烛][蜡烛] //@章诒和:现在可以说了？//@王小山: //@榕粉团: //@happy牛爹: 謝謝您還記得他們！[蜡烛]<br><br>RE: 他们的名字：512地震中死于倒塌校舍的学生们<br><img src="http://ww2.sinaimg.cn/large/46e9d5dagw1f3t59cbmwoj20l20kuwp4.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3974581234780818" target="freeweibo-mirror">//@侯杨方:说得好，人要有这个志气，接受照顾、低分数线是承…</a>
+</h2>
+<p>//@侯杨方:说得好，人要有这个志气，接受照顾、低分数线是承认自己不行。//@饭人高: 这也是歧视我们西部各省呢，难道我们考不过江苏学生？//@侯杨方:太恶心。支持全国统一高考标准。//@梅新育: 理所当然支持江苏家长抗争。<br><br>RE: 寒窗苦读12年，江苏的本科低录取率让孩子们杀出一条血路，挤破脑袋过独木桥，如今还要拿出38000招生指标支持西部，为了孩子，维护权益，反对减招，这是江苏三十万家长们的正当诉求。请问，这里发生了什么？<br><img src="http://ww2.sinaimg.cn/large/a7daf5fagw1f3r80m6vgsj20qo0qojy8.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3974477362541295" target="freeweibo-mirror">SPAM //@记者-薛洪涛://@魏城WEICHENG: …</a>
 </h2>
 <p>SPAM //@记者-薛洪涛://@魏城WEICHENG: //@邵明波: //@蘭州的尕鐘：辛苦，浦律师了<br><br>RE: 浦志强先生的意见。<br><img src="http://ww1.sinaimg.cn/large/62a548a7jw1f3srcc8aotj20hs0vktcj.jpg"></p>
@@ -53,7 +65,7 @@
 </h2>
 <p>//@记者-薛洪涛://@迟夙生律师: //@不沉默的大多数:回复@朝夕者:你可以让昌平警方介绍一下此前当地这种执法过多少次了，效果如何？//@朝夕者:不查店，只在路上拦人。我擦，这话诡辩的太没水平了。。。<br><br>RE: 【风青杨：对不起，我并不想知道雷洋如何嫖娼】昌平警方在通报中试图证明雷洋涉嫌嫖娼是证据确凿的，却难以弥合家属及公众的质疑。道理很简单——嫖娼者即便身败名裂也绝不必付生命代价，任何道德的高地也高不过公民生命的尊严。正如雷洋妻子对媒体所说：“不考虑他是否嫖娼，只在意执法有无问题！”...全文： http://m.weibo.cn/1744259092/3974347234996563<br><img src="http://ww2.sinaimg.cn/large/67f74814gw1f3sja9qkipj20d008q755.jpg"></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3974471683634032" target="freeweibo-mirror">严重支持！//@我的确不在乎: //@隋彭生民商法://@仲…</a>
 </h2>
@@ -124,18 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3974466087700843" target="freeweibo-mirror">SPAM [怒]//@王管團長:[怒]//@运在指尖502:…</a>
 </h2>
 <p>SPAM [怒]//@王管團長:[怒]//@运在指尖502:一个阴谋的黑夜，一个无耻的谎言，一场不对称的战斗，一场惨无人道的屠杀！[怒][话筒]<br><br>RE: 不知道被电刑的是谁？惨无人道的电刑西方有吗？ http://t.cn/Rqr1yXl .</p>
-<p>
-	<small> ============== 10小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3974465501286215" target="freeweibo-mirror">变态的立法，才会有疯狂的利益。天天喊零容忍，其实还是遍地开花…</a>
-</h2>
-<p>变态的立法，才会有疯狂的利益。天天喊零容忍，其实还是遍地开花。老百姓充其量只是种种罂粟花，而政府收获的是鸦片！<br><br>RE: 《治安管理处罚法》将嫖娼入罪，显示了立法精神的混乱。将自觉自愿的卖淫嫖娼作为“妨害社会管理的行为”入罪，这分明是将自觉自愿、互惠互利而且并不影响他人和社会的正当行为入罪，严重违背“己所不欲，勿施于人”以及保护个体意愿和利益不受侵犯这个世界通行的、最基本的立法精神。...全文： http://m.weibo.cn/1800850901/3974458512780143</p>
-<p>
-	<small> ============== 10小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3974464880917444" target="freeweibo-mirror">SPAM //@仲裁员武律师: 转发微博</a>
-</h2>
-<p>SPAM //@仲裁员武律师: 转发微博<br><br>RE: #吐槽曝料# 看看这位评论员评雷某的口才，厉害！ http://t.cn/RqrXDp3</p>
 <p>
 	<small> ============== 10小时前</small>
 </p>
