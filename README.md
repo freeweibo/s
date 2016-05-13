@@ -19,6 +19,18 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3974678605262571" target="freeweibo-mirror">SPAM 在这里，感受不被时光侵扰的美丽。[心]</a>
+</h2>
+<p>SPAM 在这里，感受不被时光侵扰的美丽。[心]</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3974668177982580" target="freeweibo-mirror">毛泽东是为公，邓小平是私。所以自私自利的人继续走邓小平的道路</a>
+</h2>
+<p>毛泽东是为公，邓小平是私。所以自私自利的人继续走邓小平的道路<br><br>RE: 邓小平上来后把是非颠倒了，把坏人打扮成了英雄（张志新、启用大右派），把好人投进了监狱（张钦礼），为反动派翻案，最不该的是把百姓踩在了脚底下，大肆造谣污蔑领袖，颠倒历史黑白，把好端端的社会主义... http://t.cn/Rqdxjdu</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3974657301980201" target="freeweibo-mirror">SPAM #恋爱大作战# 一年前因为一些琐事和前男友分手了，…</a>
 </h2>
 <p>SPAM #恋爱大作战# 一年前因为一些琐事和前男友分手了，当时很难过就说一年后如果……<br><img src="http://ww1.sinaimg.cn/large/b28db48cgw1f3tnt8tv72j20ph11b110.jpg"></p>
@@ -124,18 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3974476842142846" target="freeweibo-mirror">[围观]回复@陈有西:是初步核实无关，还会进一步核实么？现在…</a>
 </h2>
 <p>[围观]回复@陈有西:是初步核实无关，还会进一步核实么？现在需要贝叶斯逻辑完备性（即全概率分析，我学概率论时，老师强调连宇宙灾变都要考虑，太阳从西边出来是零概率事件，但不是不可能事件。抱歉，我是理工男！），重大案件分析，必须讲逻辑的吧。<br><br>RE: 有网友说：昌平警方有点儿小麻烦了，关键在于他们无法面对广大网民的智力和不怕麻烦的精神；他们致力坐实雷洋道德败坏其实更等于自找麻烦，因为网民不听这个，网民也不关心雷洋个人德品修养，网民只要知道人是怎么死的？为什么带人走不仅不通知家属反而家属打电话一直不接？因为网民怕自己成为下一个。<br><img src="http://ww3.sinaimg.cn/large/7fd6e271jw1f3rqauo1bdj20jq0doaba.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3974475551167389" target="freeweibo-mirror">死得明白！ //@陈满华CMH://@襄阳V: 转发微博</a>
-</h2>
-<p>死得明白！ //@陈满华CMH://@襄阳V: 转发微博<br><br>RE: 【死得明白是公民权利底线】「雷先生是否嫖娼，无须再查，人已死亡，已无实质性意义。还原雷先生如何死亡是目前唯一应做的调查。」<br><img src="http://ww1.sinaimg.cn/large/7c0e9549gw1f3syvvwv5kj20g47pshdt.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3974474095173481" target="freeweibo-mirror">SPAM </a>
-</h2>
-<p>SPAM </p>
 <p>
 	<small> ============== 1天前</small>
 </p>
