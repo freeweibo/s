@@ -31,11 +31,41 @@
 <p>
 	<small> ============== 1小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3975148191343583" target="freeweibo-mirror">//@一品泥人://@苏州常熟徐文石: //@腾讯苑泉:南海…</a>
+</h2>
+<p>//@一品泥人://@苏州常熟徐文石: //@腾讯苑泉:南海有纷争让警察先上今天谁打人谁死全家，而且绝子绝孙，绝到茅草不生根！<br><br>RE: 北京东路，南京市政府门口，一群警察武警再次殴打手无寸铁的百姓家长，把一位爸爸强行边打边拖走！！！流氓行为令人发指！！！[发怒][发怒][发怒]#江苏高考# http://t.cn/Rqgobfg .</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3975147696680474" target="freeweibo-mirror">//@梧桐之城: [吃惊]真的假的？ //@郭向达://@议…</a>
+</h2>
+<p>//@梧桐之城: [吃惊]真的假的？ //@郭向达://@议会最大E:对这样的小道消息坚决不信！<br><br>RE: 【美帝又在造謠！ 】中國現任中央委員共計204名，有子女187人，其中移民歐美的占91%。 候補中央委員167名，有子女142人，其中移民海外的占到85%。 部級子女親屬中，持有海外綠卡者占91%。 地市級以上領導，其配偶子女在國外居住或入籍者，高達344290人！ 請問這是不是美帝造謠？<br><img src="http://ww1.sinaimg.cn/large/006rQp0rjw1f3uv3hcz6oj30f80bzmyi.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3975141937684568" target="freeweibo-mirror">SPAM //@李英俊律师://@上海旅游人王琪:好闲//@…</a>
+</h2>
+<p>SPAM //@李英俊律师://@上海旅游人王琪:好闲//@八桂直播:[笑cry]//@孔智-勇: //@铁渣涅槃4://@淡紫色的冰冰: 歪果仁都去哪儿了？[笑cry][笑cry][笑cry]<br><br>RE: 我除了笑，真没什么能说的。[笑cry]<br><img src="http://ww2.sinaimg.cn/large/006rCqRqgw1f3v559yh9tj30eg0c6div.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3975129194962955" target="freeweibo-mirror">人们为什么怀念毛主席，大家懂。//@寒竹逸香: //@爱红色…</a>
+</h2>
+<p>人们为什么怀念毛主席，大家懂。//@寒竹逸香: //@爱红色: //@九毛大公: //@cheny637:转发微博<br><br>RE: 今天上午的大连，人们在星海广场沿滨海路沿线进行了毛泽东思想和抵制转基因的宣传活动。 这是现场的图片，最醒目的就是印着大海航行靠舵手的这面旗帜!<br><img src="http://ww4.sinaimg.cn/large/e4419e84gw1f3v5iass83j20zk0qowiq.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3975124669445158" target="freeweibo-mirror">这是谣言引发的还是真实情况，如果确有其事，疫苗事件这么久，现…</a>
 </h2>
 <p>这是谣言引发的还是真实情况，如果确有其事，疫苗事件这么久，现在才处理？ //@香港文匯網:重庆成立联合调查组调查“假疫苗”http://t.cn/Rqg0uWt<br><br>RE: 【质疑“假疫苗” 数百市民围堵医院】昨晚，因质疑重庆南岸区花园路街道社区卫生服务中心违规使用疫苗，数百名重庆市民围堵医院、路口讨说法。http://t.cn/Rqgi3tf<br><img src="http://ww1.sinaimg.cn/large/9ce4bf2fgw1f3uwlfwnroj20go0akjrx.jpg"></p>
 <p>
 	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3975122492758274" target="freeweibo-mirror">[怒][怒][怒][[话筒][话筒][话筒]//@笑笑白菜蒡…</a>
+</h2>
+<p>[怒][怒][怒][[话筒][话筒][话筒]//@笑笑白菜蒡: //@博者文摘: 转发微博<br><br>RE: 北京东路，南京市政府门口，一群警察武警再次殴打手无寸铁的百姓家长，把一位爸爸强行边打边拖走！！！流氓行为令人发指！！！[发怒][发怒][发怒]#江苏高考# http://t.cn/Rqgobfg .</p>
+<p>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3975102712378999" target="freeweibo-mirror">【质疑医院“假疫苗” 重庆数百市民围堵医院】昨日晚间，因质疑…</a>
 </h2>
@@ -53,7 +83,7 @@
 </h2>
 <p>没几个啊，我只看到三个！<br><br>RE: #江苏减招3.8万##江苏省新高招# 惹民愤，抗议现场这么多人……可不是某些报告上说的三三两两的人！之前发的视频被和谐了……估计我再发就要面临封号了吧？ http://t.cn/RqgVg40 .</p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3975069250099926" target="freeweibo-mirror">SPAM [good]【你恋爱最佳时期？不要错过时机哦！】到…</a>
 </h2>
@@ -101,41 +131,11 @@
 </h2>
 <p>//@黄奎ART: //@粉雨://@崔小平律师://@律师老周401://@霜葉15s_://@毒舌男爵45: 最恨转发健被没收，截图加复制接力</p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3975045023787902" target="freeweibo-mirror">想起了当年的护路。作死！//@于建嵘:是考验江苏执政者智慧和…</a>
 </h2>
 <p>想起了当年的护路。作死！//@于建嵘:是考验江苏执政者智慧和能力的时候了。<br><br>RE: 今日的江苏省政府门口，现场没有一家媒体，记者朋友们，这里需要您！@杨锦麟 @于建嵘 @葛永喜律师 @财经网 @蓝鲸财经记者工作平台 @六六<br><img src="http://ww4.sinaimg.cn/large/70d665f3gw1f3uvvn45grj20no0hstcs.jpg"></p>
-<p>
-	<small> ============== 9小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3975043916986757" target="freeweibo-mirror">【质疑“假疫苗” 数百市民围堵医院】昨晚，因质疑重庆南岸区花…</a>
-</h2>
-<p>【质疑“假疫苗” 数百市民围堵医院】昨晚，因质疑重庆南岸区花园路街道社区卫生服务中心违规使用疫苗，数百名重庆市民围堵医院、路口讨说法。http://t.cn/Rqgi3tf<br><img src="http://ww1.sinaimg.cn/large/9ce4bf2fgw1f3uwlfwnroj20go0akjrx.jpg"></p>
-<p>
-	<small> ============== 9小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3975043644487755" target="freeweibo-mirror">//@崔小平律师://@陆亚明:[笑cry][笑cry][笑…</a>
-</h2>
-<p>//@崔小平律师://@陆亚明:[笑cry][笑cry][笑cry]<br><br>RE: 开始删有关江苏高招减招的帖和评论了，五毛已出动洗地，还是江苏大五毛。贵省考生家长中的五毛自干五要站稳立场，不能给ZF添乱，拿出骂别人争取权益时的态度来。[哈哈][噢耶]</p>
-<p>
-	<small> ============== 9小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3975043630876404" target="freeweibo-mirror">//@粉雨://@崔小平律师://@律师老周401://@霜…</a>
-</h2>
-<p>//@粉雨://@崔小平律师://@律师老周401://@霜葉15s_://@毒舌男爵45: 最恨转发健被没收，截图加复制接力</p>
-<p>
-	<small> ============== 9小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3975041198219582" target="freeweibo-mirror">安徽省委宣传部，不仅没有对新安晚报的恶劣行为进行批评和制止，…</a>
-</h2>
-<p>安徽省委宣传部，不仅没有对新安晚报的恶劣行为进行批评和制止，反而颠倒黑白，混淆是非，指鹿为马，以政府的公信力为造谣传谣者背书，实在不可原谅！http://t.cn/Rqgiiid</p>
-<p>
-	<small> ============== 9小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3975038011050129" target="freeweibo-mirror">今日的江苏省政府门口，现场没有一家媒体，记者朋友们，这里需要…</a>
-</h2>
-<p>今日的江苏省政府门口，现场没有一家媒体，记者朋友们，这里需要您！@杨锦麟 @于建嵘 @葛永喜律师 @财经网 @蓝鲸财经记者工作平台 @六六<br><img src="http://ww4.sinaimg.cn/large/70d665f3gw1f3uvvn45grj20no0hstcs.jpg"></p>
 <p>
 	<small> ============== 9小时前</small>
 </p>
