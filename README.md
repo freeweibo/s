@@ -53,7 +53,7 @@
 </h2>
 <p>支持//@张志鹏老师://@徐昕: //@烹乐与海:雷洋死绝非意外，而是场系统性悲剧。我们呼吁最高权力机关展开对雷洋死因独立、公正调查，要求严惩肇事凶手、彻底整顿约束公安纪律，要得到最基本可靠人身安全、公民权利和城市秩序。对恶，我们不会忍太久<br><br>RE: 看到帮转，每个人都有可能成为下一个雷阳   http://t.cn/Rqdcvk0<br><img src="http://ww4.sinaimg.cn/large/918d47a2jw1f3thwrbuzmj20hs0rt0vo.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3974802592673301" target="freeweibo-mirror">//@尘封一XYZ:耻辱啊，身为80后现在才知道，居然瞒了的…</a>
 </h2>
