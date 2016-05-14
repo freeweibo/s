@@ -113,7 +113,7 @@
 </h2>
 <p>SPAM 转了几个都没了，一个还被删了……心塞……渣浪你太无耻了……<br><br>RE: 不发作以为我们是死的，敢欺负孩子我们就敢拼命#江苏高考减招# http://t.cn/RqgcJLT .</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3975026208875392" target="freeweibo-mirror">SPAM //@响马:转发微博</a>
 </h2>
