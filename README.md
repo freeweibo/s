@@ -19,6 +19,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3975162128904659" target="freeweibo-mirror">[给力][威武] //@传媒总编:转发微博</a>
+</h2>
+<p>[给力][威武] //@传媒总编:转发微博<br><br>RE: 今天上午的大连，人们在星海广场沿滨海路沿线进行了毛泽东思想和抵制转基因的宣传活动。 这是现场的图片，最醒目的就是印着大海航行靠舵手的这面旗帜!<br><img src="http://ww4.sinaimg.cn/large/e4419e84gw1f3v5iass83j20zk0qowiq.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3975161407440743" target="freeweibo-mirror">//@英拉-西那瓦://@一品泥人://@苏州常熟徐文石: …</a>
 </h2>
 <p>//@英拉-西那瓦://@一品泥人://@苏州常熟徐文石: //@腾讯苑泉:南海有纷争让警察先上今天谁打人谁死全家，而且绝子绝孙，绝到茅草不生根！<br><br>RE: 北京东路，南京市政府门口，一群警察武警再次殴打手无寸铁的百姓家长，把一位爸爸强行边打边拖走！！！流氓行为令人发指！！！[发怒][发怒][发怒]#江苏高考# http://t.cn/Rqgobfg .</p>
@@ -53,7 +59,7 @@
 </h2>
 <p>//@邵明波:回复@搭讪子:那他们的儿女也该高考了吧？ //@搭讪子:你是在人伤口撒盐，人家就因为没有好好读书，才仇视你们的，才仇视读书后生滴。<br><br>RE: 北京东路，南京市政府门口，一群警察武警再次殴打手无寸铁的百姓家长，把一位爸爸强行边打边拖走！！！流氓行为令人发指！！！[发怒][发怒][发怒]#江苏高考# http://t.cn/Rqgobfg .</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3975148191343583" target="freeweibo-mirror">//@一品泥人://@苏州常熟徐文石: //@腾讯苑泉:南海…</a>
 </h2>
@@ -76,6 +82,12 @@
 	<a href="https://freeweibo.com/weibo/3975144244687866" target="freeweibo-mirror">但愿没有心脏病</a>
 </h2>
 <p>但愿没有心脏病<br><br>RE: 北京东路，南京市政府门口，一群警察武警再次殴打手无寸铁的百姓家长，把一位爸爸强行边打边拖走！！！流氓行为令人发指！！！[发怒][发怒][发怒]#江苏高考# http://t.cn/Rqgobfg .</p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3975142360721810" target="freeweibo-mirror">//@崔小平律师://@王甫律师:下手了？</a>
+</h2>
+<p>//@崔小平律师://@王甫律师:下手了？<br><br>RE: 北京东路，南京市政府门口，一群警察武警再次殴打手无寸铁的百姓家长，把一位爸爸强行边打边拖走！！！流氓行为令人发指！！！[发怒][发怒][发怒]#江苏高考# http://t.cn/Rqgobfg .</p>
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
@@ -126,18 +138,6 @@
 <p>//@博者文摘: 转发微博<br><br>RE: 北京东路，南京市政府门口，一群警察武警再次殴打手无寸铁的百姓家长，把一位爸爸强行边打边拖走！！！流氓行为令人发指！！！[发怒][发怒][发怒]#江苏高考# http://t.cn/Rqgobfg .</p>
 <p>
 	<small> ============== 5小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3975118793933809" target="freeweibo-mirror">我除了笑，真没什么能说的。[笑cry]</a>
-</h2>
-<p>我除了笑，真没什么能说的。[笑cry]<br><img src="http://ww2.sinaimg.cn/large/006rCqRqgw1f3v559yh9tj30eg0c6div.jpg"></p>
-<p>
-	<small> ============== 5小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3975102712378999" target="freeweibo-mirror">【质疑医院“假疫苗” 重庆数百市民围堵医院】昨日晚间，因质疑…</a>
-</h2>
-<p>【质疑医院“假疫苗” 重庆数百市民围堵医院】昨日晚间，因质疑重庆南岸区花园路街道社区卫生服务中心违规使用疫苗，数百名重庆市民围堵医院、路口讨说法。目击者称，昨晚约60名公安和特勤人员来到现场维持秩序。http://t.cn/Rqg6LYA<br><img src="http://ww1.sinaimg.cn/large/707e96d5gw1f3v1qcl36hj20go0ch74z.jpg"></p>
-<p>
-	<small> ============== 6小时前</small>
 </p>
 <table>
     <tr>
