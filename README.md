@@ -29,7 +29,7 @@
 </h2>
 <p>//@大尸凶的漫画://@喷嚏网铂程://@LifeTime:昌平群众也不如朝阳的。警方说雷洋9点多到，群众8点多就举报了。[瞧瞧]</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3974962722777600" target="freeweibo-mirror">定性呗，如此执法，没有安全感！[蜡烛][蜡烛][蜡烛]</a>
 </h2>
@@ -59,7 +59,7 @@
 </h2>
 <p>//@书生不带刀: //@袁熙台:转发微博</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3974818136935846" target="freeweibo-mirror">很快，各种关于雷洋的帖子冒了出来，绝大多数帖子上都冠有人大硕…</a>
 </h2>
