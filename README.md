@@ -29,7 +29,7 @@
 </h2>
 <p>北京公安局：你们这是想继续恶化事态，给上头添麻烦，是吧？<br><br>RE: 已经开始慰问了吗？#人大硕士身亡#（图片来自网络）<br><img src="http://ww2.sinaimg.cn/large/7e035fcbgw1f3uqwhkzndj20zk0qo0yl.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3974985213373945" target="freeweibo-mirror">不准妄议京都警察[挖鼻]</a>
 </h2>
@@ -47,7 +47,7 @@
 </h2>
 <p>//@大尸凶的漫画://@喷嚏网铂程://@LifeTime:昌平群众也不如朝阳的。警方说雷洋9点多到，群众8点多就举报了。[瞧瞧]</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3974962722777600" target="freeweibo-mirror">定性呗，如此执法，没有安全感！[蜡烛][蜡烛][蜡烛]</a>
 </h2>
