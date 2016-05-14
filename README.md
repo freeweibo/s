@@ -125,13 +125,13 @@
 </h2>
 <p>[怒][怒][怒][[话筒][话筒][话筒]//@笑笑白菜蒡: //@博者文摘: 转发微博<br><br>RE: 北京东路，南京市政府门口，一群警察武警再次殴打手无寸铁的百姓家长，把一位爸爸强行边打边拖走！！！流氓行为令人发指！！！[发怒][发怒][发怒]#江苏高考# http://t.cn/Rqgobfg .</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3975121867770471" target="freeweibo-mirror">今天上午的大连，人们在星海广场沿滨海路沿线进行了毛泽东思想和…</a>
 </h2>
 <p>今天上午的大连，人们在星海广场沿滨海路沿线进行了毛泽东思想和抵制转基因的宣传活动。 这是现场的图片，最醒目的就是印着大海航行靠舵手的这面旗帜!<br><img src="http://ww4.sinaimg.cn/large/e4419e84gw1f3v5iass83j20zk0qowiq.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3975119463889686" target="freeweibo-mirror">//@博者文摘: 转发微博</a>
 </h2>
