@@ -113,7 +113,7 @@
 </h2>
 <p>SPAM //@江水东逝: [晕]//@张老汉一世: 当年胡赵不这样，如今新贵会摆谱//@米尔海姆桑11:以为是谣言，搜了一下，顿时石化了。想象力的翅膀，都跟不上大国外交出洋相的步伐。搜索关键词the royal guests from hell。//@Fion-是我名: →_→    http://t.cn/RqdQiWc    //@水漫刀山:神經病！地獄貴賓實至名歸。<br><br>RE: 去不列颠，自带食物有什么好说的？哼！<br><img src="http://ww1.sinaimg.cn/large/759fdc83gw1f3twm20eauj20ju0jvwi3.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3974770313384936" target="freeweibo-mirror">不要装外宾嘛，我国富贵人有几个不信风水的，资产上亿或者官至市…</a>
 </h2>
