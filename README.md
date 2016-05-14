@@ -35,7 +35,7 @@
 </h2>
 <p>//@杨杨Jasmine:论裸官对中国的灭顶危害//@陆疯郎: 中国人民还是请美国来统治好点。//@天使牧羊人coolboy:难怪一直以美帝为假想敌！//@博者文摘:转发微博<br><br>RE: 出大事了！美国又来搅局了...： 中国被一棒敲昏！ 美国亮棒：要爆光180万官员国外子女档案 多年以来，美国就在世界范围内大抓特抓受其中国贪官之种种把柄，养兵千日，用兵一时，中国贪官之把柄...文字版>> http://t.cn/R4xjZUv （新浪长微博>> http://t.cn/zOXAaic）<br><img src="http://ww1.sinaimg.cn/large/006qOztrjw1f3uxgxhp2tj30c854se2l.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3975175491878960" target="freeweibo-mirror">SPAM //@宝宝用品跟我买:[心]【台湾锐瓷陶瓷刀三件套…</a>
 </h2>
@@ -119,13 +119,13 @@
 </h2>
 <p>//@崔小平律师://@王甫律师:下手了？<br><br>RE: 北京东路，南京市政府门口，一群警察武警再次殴打手无寸铁的百姓家长，把一位爸爸强行边打边拖走！！！流氓行为令人发指！！！[发怒][发怒][发怒]#江苏高考# http://t.cn/Rqgobfg .</p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3975141937684568" target="freeweibo-mirror">SPAM //@李英俊律师://@上海旅游人王琪:好闲//@…</a>
 </h2>
 <p>SPAM //@李英俊律师://@上海旅游人王琪:好闲//@八桂直播:[笑cry]//@孔智-勇: //@铁渣涅槃4://@淡紫色的冰冰: 歪果仁都去哪儿了？[笑cry][笑cry][笑cry]<br><br>RE: 我除了笑，真没什么能说的。[笑cry]<br><img src="http://ww2.sinaimg.cn/large/006rCqRqgw1f3v559yh9tj30eg0c6div.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3975140737339632" target="freeweibo-mirror">王海丁，人呢？还不快来洗地啊！</a>
 </h2>
