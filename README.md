@@ -47,7 +47,7 @@
 </h2>
 <p>【京衡律师了解现场】雷洋亲属委托的两家律所的律师，昨天有三位到了遗体检验场所，经过反复交涉有一位进场见证了遗体检验，但家属未被允许拍照。家属见人后情绪失控痛哭。京衡两位律师实地重走了雷洋案事发经过现场。今天将增加工作力量。<br><img src="http://ww2.sinaimg.cn/large/6b804b51gw1f3uhdc1bnyj20zk0k0whc.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3974908650945712" target="freeweibo-mirror">【北京检方已经介入雷洋案初查】已陆续开展对事发现场的勘验，向…</a>
 </h2>
