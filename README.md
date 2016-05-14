@@ -91,6 +91,12 @@
 <p>
 	<small> ============== 7小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3975072299544313" target="freeweibo-mirror">北京东路，南京市政府门口，一群警察武警再次殴打手无寸铁的百姓…</a>
+</h2>
+<p>北京东路，南京市政府门口，一群警察武警再次殴打手无寸铁的百姓家长，把一位爸爸强行边打边拖走！！！流氓行为令人发指！！！[发怒][发怒][发怒]#江苏高考# http://t.cn/Rqgobfg .</p>
+<p>
+	<small> ============== 7小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3975070143311926" target="freeweibo-mirror">【美帝又在造謠！ 】中國現任中央委員共計204名，有子女18…</a>
 </h2>
 <p>【美帝又在造謠！ 】中國現任中央委員共計204名，有子女187人，其中移民歐美的占91%。 候補中央委員167名，有子女142人，其中移民海外的占到85%。 部級子女親屬中，持有海外綠卡者占91%。 地市級以上領導，其配偶子女在國外居住或入籍者，高達344290人！ 請問這是不是美帝造謠？<br><img src="http://ww1.sinaimg.cn/large/006rQp0rjw1f3uv3hcz6oj30f80bzmyi.jpg"></p>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3975056478161057" target="freeweibo-mirror">SPAM 这是一群断子绝孙的黑狗。 //@彭园v://@Le…</a>
 </h2>
 <p>SPAM 这是一群断子绝孙的黑狗。 //@彭园v://@LesFaussesConfidences:评论里洗地的五毛们，你们全家都被打死<br><br>RE: #江苏高考减招#  简单粗暴。 http://t.cn/RqgVCfv .</p>
-<p>
-	<small> ============== 8小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3975051693057757" target="freeweibo-mirror">SPAM 家有考生。//@安徽人在厦门:记者的克星  宣传部…</a>
-</h2>
-<p>SPAM 家有考生。//@安徽人在厦门:记者的克星  宣传部[笑cry]//@于建嵘:是考验江苏执政者智慧和能力的时候了。<br><br>RE: 今日的江苏省政府门口，现场没有一家媒体，记者朋友们，这里需要您！@杨锦麟 @于建嵘 @葛永喜律师 @财经网 @蓝鲸财经记者工作平台 @六六<br><img src="http://ww4.sinaimg.cn/large/70d665f3gw1f3uvvn45grj20no0hstcs.jpg"></p>
 <p>
 	<small> ============== 8小时前</small>
 </p>
