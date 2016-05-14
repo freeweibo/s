@@ -19,6 +19,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3974962722777600" target="freeweibo-mirror">定性呗，如此执法，没有安全感！[蜡烛][蜡烛][蜡烛]</a>
+</h2>
+<p>定性呗，如此执法，没有安全感！[蜡烛][蜡烛][蜡烛]<br><br>RE: 不去慰问死者家属，是去慰问死亡现场的警察吗？传达几个意思？放射了什么信号？<br><img src="http://ww3.sinaimg.cn/large/537fde99jw1f3un5lhgfxj20zk0qo7an.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3974911615357803" target="freeweibo-mirror">【京衡律师了解现场】雷洋亲属委托的两家律所的律师，昨天有三位…</a>
 </h2>
 <p>【京衡律师了解现场】雷洋亲属委托的两家律所的律师，昨天有三位到了遗体检验场所，经过反复交涉有一位进场见证了遗体检验，但家属未被允许拍照。家属见人后情绪失控痛哭。京衡两位律师实地重走了雷洋案事发经过现场。今天将增加工作力量。<br><img src="http://ww2.sinaimg.cn/large/6b804b51gw1f3uhdc1bnyj20zk0k0whc.jpg"></p>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3974742560383142" target="freeweibo-mirror">//@六安自媒体:转发微博</a>
 </h2>
 <p>//@六安自媒体:转发微博<br><br>RE: 近日，郑州市研究生毕业的范华培持刀刺死3名拆迁人员，被警方当场击毙。范华培死后，当地村民自发排队为其送上花圈，并提上“永垂不朽”字样等，这社会变味了…  http://t.cn/RqdhRqq</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3974738784840781" target="freeweibo-mirror">转帖：当前宏观经济的政治分析： 最近很多人问我，为何不怎么写…</a>
-</h2>
-<p>转帖：当前宏观经济的政治分析： 最近很多人问我，为何不怎么写微博了？拜托，不是我不想写，而且写了的微博都被秒删！不光是微博，对于所有对当前经济政策的不赞成的观点和言论，都被约谈和禁...文字版>> http://t.cn/RqdHJpD （新浪长微博>> http://t.cn/zOXAaic）<br><img src="http://ww4.sinaimg.cn/large/b6ddfe6djw1f3txjzs990j20c85bxhdt.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
