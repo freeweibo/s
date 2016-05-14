@@ -19,6 +19,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3974967294985097" target="freeweibo-mirror">//@happy热哥: //@公民小曹://@喷嚏网铂程:/…</a>
+</h2>
+<p>//@happy热哥: //@公民小曹://@喷嚏网铂程://@LifeTime:昌平群众也不如朝阳的。警方说雷洋9点多到，群众8点多就举报了。[瞧瞧]</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3974962722777600" target="freeweibo-mirror">定性呗，如此执法，没有安全感！[蜡烛][蜡烛][蜡烛]</a>
 </h2>
 <p>定性呗，如此执法，没有安全感！[蜡烛][蜡烛][蜡烛]<br><br>RE: 不去慰问死者家属，是去慰问死亡现场的警察吗？传达几个意思？放射了什么信号？<br><img src="http://ww3.sinaimg.cn/large/537fde99jw1f3un5lhgfxj20zk0qo7an.jpg"></p>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3974770313384936" target="freeweibo-mirror">不要装外宾嘛，我国富贵人有几个不信风水的，资产上亿或者官至市…</a>
 </h2>
 <p>不要装外宾嘛，我国富贵人有几个不信风水的，资产上亿或者官至市级，不信风水基本上不可能了，形势比人强//@d1018:信风水，果然是真信中医 //@米尔海姆桑11:以为是谣言，搜了一下，顿时石化了。这两天努力扑腾想象力的翅膀，都跟不上大国外交出洋相的步伐。//@Fion-是我名: →_→  http://t.cn/RqdQiWc<br><br>RE: 去不列颠，自带食物有什么好说的？哼！<br><img src="http://ww1.sinaimg.cn/large/759fdc83gw1f3twm20eauj20ju0jvwi3.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3974764315332742" target="freeweibo-mirror">【历史上的今天】 公元1998年5月13日，印尼首都雅加达在…</a>
-</h2>
-<p>【历史上的今天】 公元1998年5月13日，印尼首都雅加达在苏哈托独裁政府的纵容下，印尼暴徒抢劫华人店铺，杀人放火，致死一千多华人，一千多华人女性被强奸轮奸！世界各大主流媒体在第一时间追踪报道！    只有我大天朝的媒体装聋作哑！CCTV的新闻联播依然是领盗人很忙，人民生活很幸福。。。。！让人吃...全文： http://m.weibo.cn/5723704622/3974764315332742<br><img src="http://ww2.sinaimg.cn/large/006fm52ugw1f3u0gpmeqdj306y06yt94.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
