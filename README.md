@@ -131,7 +131,7 @@
 </h2>
 <p>【北京检方已经介入雷洋案初查】已陆续开展对事发现场的勘验，向雷某家属、社区居民和办案民警了解核实情况，调取有关视频资料等工作。专家证人公安大学教授张慧芹说，尸检工作非常仔细。预计5月14日凌晨，才可能完成初步的尸检工作。http://t.cn/Rqgwn67<br><img src="http://ww1.sinaimg.cn/large/6b804b51gw1f3uh25rx8bj20dc08w0tx.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3974822809700722" target="freeweibo-mirror">//@书生不带刀: //@袁熙台:转发微博</a>
 </h2>
