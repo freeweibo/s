@@ -47,7 +47,7 @@
 </h2>
 <p>SPAM //@李英俊律师://@上海旅游人王琪:好闲//@八桂直播:[笑cry]//@孔智-勇: //@铁渣涅槃4://@淡紫色的冰冰: 歪果仁都去哪儿了？[笑cry][笑cry][笑cry]<br><br>RE: 我除了笑，真没什么能说的。[笑cry]<br><img src="http://ww2.sinaimg.cn/large/006rCqRqgw1f3v559yh9tj30eg0c6div.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3975129194962955" target="freeweibo-mirror">人们为什么怀念毛主席，大家懂。//@寒竹逸香: //@爱红色…</a>
 </h2>
@@ -70,6 +70,12 @@
 	<a href="https://freeweibo.com/weibo/3975121867770471" target="freeweibo-mirror">今天上午的大连，人们在星海广场沿滨海路沿线进行了毛泽东思想和…</a>
 </h2>
 <p>今天上午的大连，人们在星海广场沿滨海路沿线进行了毛泽东思想和抵制转基因的宣传活动。 这是现场的图片，最醒目的就是印着大海航行靠舵手的这面旗帜!<br><img src="http://ww4.sinaimg.cn/large/e4419e84gw1f3v5iass83j20zk0qowiq.jpg"></p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3975118793933809" target="freeweibo-mirror">我除了笑，真没什么能说的。[笑cry]</a>
+</h2>
+<p>我除了笑，真没什么能说的。[笑cry]<br><img src="http://ww2.sinaimg.cn/large/006rCqRqgw1f3v559yh9tj30eg0c6div.jpg"></p>
 <p>
 	<small> ============== 4小时前</small>
 </p><h2>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3975058433023662" target="freeweibo-mirror">SPAM [话筒] //@手术刀_李医生:这是一群断子绝孙的…</a>
 </h2>
 <p>SPAM [话筒] //@手术刀_李医生:这是一群断子绝孙的黑狗。 //@彭园v://@LesFaussesConfidences:评论里洗地的五毛们，你们全家都被打死<br><br>RE: #江苏高考减招#  简单粗暴。 http://t.cn/RqgVCfv .</p>
-<p>
-	<small> ============== 8小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3975056478161057" target="freeweibo-mirror">SPAM 这是一群断子绝孙的黑狗。 //@彭园v://@Le…</a>
-</h2>
-<p>SPAM 这是一群断子绝孙的黑狗。 //@彭园v://@LesFaussesConfidences:评论里洗地的五毛们，你们全家都被打死<br><br>RE: #江苏高考减招#  简单粗暴。 http://t.cn/RqgVCfv .</p>
 <p>
 	<small> ============== 8小时前</small>
 </p>
