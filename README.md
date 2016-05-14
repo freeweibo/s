@@ -59,11 +59,17 @@
 </h2>
 <p>这是谣言引发的还是真实情况，如果确有其事，疫苗事件这么久，现在才处理？ //@香港文匯網:重庆成立联合调查组调查“假疫苗”http://t.cn/Rqg0uWt<br><br>RE: 【质疑“假疫苗” 数百市民围堵医院】昨晚，因质疑重庆南岸区花园路街道社区卫生服务中心违规使用疫苗，数百名重庆市民围堵医院、路口讨说法。http://t.cn/Rqgi3tf<br><img src="http://ww1.sinaimg.cn/large/9ce4bf2fgw1f3uwlfwnroj20go0akjrx.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3975122492758274" target="freeweibo-mirror">[怒][怒][怒][[话筒][话筒][话筒]//@笑笑白菜蒡…</a>
 </h2>
 <p>[怒][怒][怒][[话筒][话筒][话筒]//@笑笑白菜蒡: //@博者文摘: 转发微博<br><br>RE: 北京东路，南京市政府门口，一群警察武警再次殴打手无寸铁的百姓家长，把一位爸爸强行边打边拖走！！！流氓行为令人发指！！！[发怒][发怒][发怒]#江苏高考# http://t.cn/Rqgobfg .</p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3975121867770471" target="freeweibo-mirror">今天上午的大连，人们在星海广场沿滨海路沿线进行了毛泽东思想和…</a>
+</h2>
+<p>今天上午的大连，人们在星海广场沿滨海路沿线进行了毛泽东思想和抵制转基因的宣传活动。 这是现场的图片，最醒目的就是印着大海航行靠舵手的这面旗帜!<br><img src="http://ww4.sinaimg.cn/large/e4419e84gw1f3v5iass83j20zk0qowiq.jpg"></p>
 <p>
 	<small> ============== 4小时前</small>
 </p><h2>
@@ -77,7 +83,7 @@
 </h2>
 <p>//@mbssjsw索士6世://@Shawn1976: //@在打盹://@博闻联播:警察实话实说，党的天下怎么可能有真相？//@大力水手AAA://@守候者说: //@闪亮水閬:转发微博<br><br>RE: 雷洋之死，当局会不会公布真相？某警察一语道破天机。汶川大地震后，艾未未因调查豆腐渣校舍真相，被成都警方控制，打得颅内出血。一名警察咆哮道：想要人权，想要真相？请你滚到美国要去。这里是共产党的天下。<br><img src="http://ww2.sinaimg.cn/large/006ds1BBgw1f3urxsi2wxj306x08c3z0.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3975076967770627" target="freeweibo-mirror">没几个啊，我只看到三个！</a>
 </h2>
@@ -101,7 +107,7 @@
 </h2>
 <p>想起了当年五四运动。//@私家野史: 警察合法镇压刁民非法集会，警察好样的。[good]<br><br>RE: #江苏高考减招#  简单粗暴。 http://t.cn/RqgVCfv .</p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3975061100851766" target="freeweibo-mirror">//@章鱼大笑: //@南开老魏034://@哒摩E之剑: …</a>
 </h2>
@@ -132,12 +138,6 @@
 <p>SPAM 家有考生。//@安徽人在厦门:记者的克星  宣传部[笑cry]//@于建嵘:是考验江苏执政者智慧和能力的时候了。<br><br>RE: 今日的江苏省政府门口，现场没有一家媒体，记者朋友们，这里需要您！@杨锦麟 @于建嵘 @葛永喜律师 @财经网 @蓝鲸财经记者工作平台 @六六<br><img src="http://ww4.sinaimg.cn/large/70d665f3gw1f3uvvn45grj20no0hstcs.jpg"></p>
 <p>
 	<small> ============== 8小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3975046168849261" target="freeweibo-mirror">//@黄奎ART: //@粉雨://@崔小平律师://@律师…</a>
-</h2>
-<p>//@黄奎ART: //@粉雨://@崔小平律师://@律师老周401://@霜葉15s_://@毒舌男爵45: 最恨转发健被没收，截图加复制接力</p>
-<p>
-	<small> ============== 9小时前</small>
 </p>
 <table>
     <tr>
