@@ -53,7 +53,7 @@
 </h2>
 <p>//@尘封一XYZ:耻辱啊，身为80后现在才知道，居然瞒了的这么久</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3974798939635259" target="freeweibo-mirror">//@愚民512三号://@三爪撬牆:過期作廢 //@景山公…</a>
 </h2>
