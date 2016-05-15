@@ -23,7 +23,7 @@
 </h2>
 <p>SPAM 好污的表情包[笑cry]</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3975356748973861" target="freeweibo-mirror">SPAM 学搭配ing~</a>
 </h2>
@@ -119,7 +119,7 @@
 </h2>
 <p>SPAM 不错的健身平-台推 ——荐-关！注@happy减肥瘦身[doge]</p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3975203694374172" target="freeweibo-mirror">【王l琳: 废除《卖淫嫖娼人员收容教育办法》刻不容缓】   …</a>
 </h2>
