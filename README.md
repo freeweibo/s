@@ -53,7 +53,7 @@
 </h2>
 <p>#雷洋案#5月13日遗体检验到14日凌晨6时结束。五位雷洋家属检前察看了尸体表面，不让拍照。检验机构由家属和北京龚律师选定。家属聘请的两位专家一位律师全程在场见证尸检，禁止拍照，并写了书面承诺对检验情况保密。检验工作非常仔细。60天内出死因结果。家属书面签字要求期间不得火化尸体。<br><img src="http://ww4.sinaimg.cn/large/6b804b51jw1f3vqvd988aj20qo1bgwlb.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3975286309211607" target="freeweibo-mirror">#博友爆料# 关注。@LRLENA  //@助人女郎:据说有…</a>
 </h2>
@@ -83,7 +83,7 @@
 </h2>
 <p>//@杨杨Jasmine:论裸官对中国的灭顶危害//@陆疯郎: 中国人民还是请美国来统治好点。//@天使牧羊人coolboy:难怪一直以美帝为假想敌！//@博者文摘:转发微博<br><br>RE: 出大事了！美国又来搅局了...： 中国被一棒敲昏！ 美国亮棒：要爆光180万官员国外子女档案 多年以来，美国就在世界范围内大抓特抓受其中国贪官之种种把柄，养兵千日，用兵一时，中国贪官之把柄...文字版>> http://t.cn/R4xjZUv （新浪长微博>> http://t.cn/zOXAaic）<br><img src="http://ww1.sinaimg.cn/large/006qOztrjw1f3uxgxhp2tj30c854se2l.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3975175491878960" target="freeweibo-mirror">SPAM //@宝宝用品跟我买:[心]【台湾锐瓷陶瓷刀三件套…</a>
 </h2>
