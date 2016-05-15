@@ -47,7 +47,7 @@
 </h2>
 <p>[给力][威武] //@传媒总编:转发微博<br><br>RE: 今天上午的大连，人们在星海广场沿滨海路沿线进行了毛泽东思想和抵制转基因的宣传活动。 这是现场的图片，最醒目的就是印着大海航行靠舵手的这面旗帜!<br><img src="http://ww4.sinaimg.cn/large/e4419e84gw1f3v5iass83j20zk0qowiq.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3975161407440743" target="freeweibo-mirror">//@英拉-西那瓦://@一品泥人://@苏州常熟徐文石: …</a>
 </h2>
