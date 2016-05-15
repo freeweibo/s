@@ -107,13 +107,13 @@
 </h2>
 <p>#雷洋案#这道力量的介入，将改变案情信息披露完全由北京昌平警方控制的局面，也将在社会大众压倒性的舆论质疑甚至谣言中，多出一种澄清事实真相的功能。官方、大众、办案律师，这是一种力量的平衡。处理得当，将化解官方、民间互相不信任，也能避免社会的进一步撕裂。http://t.cn/RqeUlJC<br><img src="http://ww1.sinaimg.cn/large/6b804b51jw1f3w1oub77cj20qo1bgq9e.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3975401301006135" target="freeweibo-mirror">SPAM 周小川并没有一个叫周天宇（或Zhou Tianyu…</a>
 </h2>
 <p>SPAM 周小川并没有一个叫周天宇（或Zhou Tianyu同音不同字）的儿子。</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3975393750399036" target="freeweibo-mirror">SPAM 他说：中国政府解决了人民的吃饭问题和中国有军队来保…</a>
 </h2>
