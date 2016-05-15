@@ -37,11 +37,17 @@
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3975460586894115" target="freeweibo-mirror">[吃惊]//@谭显荣财富人生: [吃惊] //@范剑平:转发…</a>
+</h2>
+<p>[吃惊]//@谭显荣财富人生: [吃惊] //@范剑平:转发微博<br><br>RE: 江苏省各级机关都发了通知，就看家长觉得孩子前途重要还是自己的前途重要了。<br><img src="http://ww4.sinaimg.cn/large/3e47063fgw1f3w4bfvh4uj20eb06vaal.jpg"></p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3975460255496255" target="freeweibo-mirror">//@华民族3041467643://@网易大明夜不收:原来…</a>
 </h2>
 <p>//@华民族3041467643://@网易大明夜不收:原来如此[嘻嘻]//@亮剑兄又来啦:[嘻嘻][嘻嘻][嘻嘻]//@余名睡猪: 几代君王和子孙丑陋事尽在手中握，无人能耐何的。[嘻嘻]//@东方夜鹰007: 搞金融的有钱！<br><br>RE: 网传：1.6亿元买下加拿大豪宅的留学生周天宇他爹叫周小川。据说，中国一家银行行长叫周小川。目前，还没人对传闻澄清。@中国政府网<br><img src="http://ww3.sinaimg.cn/large/006qS1edjw1f3w2ieag39j30k00zk0xp.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3975444091149199" target="freeweibo-mirror">SPAM //@程中柳://@导演高晓舰小号://@无肉不欢…</a>
 </h2>
@@ -77,7 +83,7 @@
 </h2>
 <p>SPAM 蘑菇写得好详细！业界良心～</p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3975410544417176" target="freeweibo-mirror">SPAM 回复@武警医院联合莆田系残害百姓:两个味。 //@…</a>
 </h2>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3975405016341800" target="freeweibo-mirror">回复@冰婉小盆友:蒋介石不讲民主，蒋介石是货真价实的党国一体…</a>
 </h2>
 <p>回复@冰婉小盆友:蒋介石不讲民主，蒋介石是货真价实的党国一体、党天下的独裁者，这没争议。当然，蒋经国特别是蒋经国晚期的政治改良，咱另算。 //@冰婉小盆友:老蒋打日本不太好使 打老毛也不太好使  到底为神魔？不光是技术问题吧。。。。</p>
-<p>
-	<small> ============== 7小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3975401954465018" target="freeweibo-mirror">#雷洋案#这道力量的介入，将改变案情信息披露完全由北京昌平警…</a>
-</h2>
-<p>#雷洋案#这道力量的介入，将改变案情信息披露完全由北京昌平警方控制的局面，也将在社会大众压倒性的舆论质疑甚至谣言中，多出一种澄清事实真相的功能。官方、大众、办案律师，这是一种力量的平衡。处理得当，将化解官方、民间互相不信任，也能避免社会的进一步撕裂。http://t.cn/RqeUlJC<br><img src="http://ww1.sinaimg.cn/large/6b804b51jw1f3w1oub77cj20qo1bgq9e.jpg"></p>
 <p>
 	<small> ============== 7小时前</small>
 </p>
