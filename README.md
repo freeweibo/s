@@ -19,6 +19,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3975553470644448" target="freeweibo-mirror">SPAM 翻翻她的微-博@happy减肥瘦身 [doge]你…</a>
+</h2>
+<p>SPAM 翻翻她的微-博@happy减肥瘦身 [doge]你会发现甩掉肥-肉拥有好身-材是很简单的事情[心]</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3975545567387608" target="freeweibo-mirror">SPAM 还不错的减肥班（和训练U盘），想瘦身塑形的女孩们 …</a>
 </h2>
 <p>SPAM 还不错的减肥班（和训练U盘），想瘦身塑形的女孩们 直戳总教练微博哦</p>
@@ -29,7 +35,7 @@
 </h2>
 <p>上联：令计划在天津受审 下联：温家宝到内蒙透气 求横批：上联：令计划在天津受审 下联：温家宝到内蒙透气求横批 中央电视台前天刚刚宣布令计划在天津受审，今天就有报道说温家宝在内蒙赤峰市穿...文字版>> http://t.cn/Rqe0G4Y （新浪长微博>> http://t.cn/zOXAaic）<br><img src="http://ww3.sinaimg.cn/large/3e6961b2jw1f3wi0qw5f6j20c80sfn19.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3975540497541070" target="freeweibo-mirror">SPAM //@小季伏枥:这一个盛世 //@自由职业者在浦东…</a>
 </h2>
@@ -132,12 +138,6 @@
 <p>SPAM //@程中柳://@导演高晓舰小号://@无肉不欢911://@陈满华CMH:你可以看到底线的。 //@俗家人释永乖:[doge]//@小飞侠0311号:他们喜欢为民做主。</p>
 <p>
 	<small> ============== 9小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3975426009877430" target="freeweibo-mirror">信息社会条件下，不可低估舆论战场的特殊作用。有些重大误导，会…</a>
-</h2>
-<p>信息社会条件下，不可低估舆论战场的特殊作用。有些重大误导，会严重影响全局。只有我亲自去识别、辟谣、澄清。这是办案的一部分。我只用百分之一的精力在应对。集中办案。//@陆上漂客：我觉得陈律还是有些沉不住气。对喷也得讲究个对手啊。整天跟一些思想品德满分常识负分的人较劲，有意思么？<br><br>RE: #雷洋案#这道力量的介入，将改变案情信息披露完全由北京昌平警方控制的局面，也将在社会大众压倒性的舆论质疑甚至谣言中，多出一种澄清事实真相的功能。官方、大众、办案律师，这是一种力量的平衡。处理得当，将化解官方、民间互相不信任，也能避免社会的进一步撕裂。http://t.cn/RqeUlJC<br><img src="http://ww1.sinaimg.cn/large/6b804b51jw1f3w1oub77cj20qo1bgq9e.jpg"></p>
-<p>
-	<small> ============== 10小时前</small>
 </p>
 <table>
     <tr>
