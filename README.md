@@ -89,7 +89,7 @@
 </h2>
 <p>SPAM 号称国际媒体，造谣没有底线。 照片中4个人， 对其中3个人，造谣者根据自己的想象做了重新命名。 与其说是在恶心司马南， 何如说是在恶心媒体自己！<br><img src="http://ww2.sinaimg.cn/large/4b4e0e98jw1f3wd6w7oggj20u01hcwyd.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3975493709755200" target="freeweibo-mirror">【1.5亿在温哥华买豪宅的留学生找到了！】他叫周天宇，爷爷叫…</a>
 </h2>
