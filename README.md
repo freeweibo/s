@@ -73,6 +73,12 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3975401954465018" target="freeweibo-mirror">#雷洋案#这道力量的介入，将改变案情信息披露完全由北京昌平警…</a>
+</h2>
+<p>#雷洋案#这道力量的介入，将改变案情信息披露完全由北京昌平警方控制的局面，也将在社会大众压倒性的舆论质疑甚至谣言中，多出一种澄清事实真相的功能。官方、大众、办案律师，这是一种力量的平衡。处理得当，将化解官方、民间互相不信任，也能避免社会的进一步撕裂。http://t.cn/RqeUlJC<br><img src="http://ww1.sinaimg.cn/large/6b804b51jw1f3w1oub77cj20qo1bgq9e.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3975401301006135" target="freeweibo-mirror">SPAM 周小川并没有一个叫周天宇（或Zhou Tianyu…</a>
 </h2>
 <p>SPAM 周小川并没有一个叫周天宇（或Zhou Tianyu同音不同字）的儿子。</p>
@@ -101,7 +107,7 @@
 </h2>
 <p>【求批谣:中国留学生花1.6亿人民币买下温哥华一栋豪宅】豪宅约一个标准足球场大小，面积约14663平方英尺。有5个卧室、8个卫生间、健身房、游泳馆、图书馆等豪华设施。学生名叫周天宇。爷爷周建南，曾任机械工业部部长，爸爸周小川（现任央行行长）。周天宇被外媒封为"全加拿大最土豪的学生"。求批谣!<br><img src="http://ww2.sinaimg.cn/large/00666Omzjw1f3w00rihwgj30h60bf3zj.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3975386029731421" target="freeweibo-mirror">SPAM #全国辟谣平台#  何在？ [嘻嘻]   //@吃…</a>
 </h2>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3975377195623335" target="freeweibo-mirror">//@水陆橘洲C://@郭47于-华-清华:[話筒][話筒]…</a>
 </h2>
 <p>//@水陆橘洲C://@郭47于-华-清华:[話筒][話筒]//@章诒和: “是互联网改变了雷案的传播。虽然网络上各种删帖依旧，但是你想发出的声音总能发出，此起彼伏，生生不息。在此过程中，大浪淘沙，民智在生长，权利和自由也在生长。”</p>
-<p>
-	<small> ============== 4小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3975376260196448" target="freeweibo-mirror">SPAM 嗯</a>
-</h2>
-<p>SPAM 嗯<br><img src="http://ww1.sinaimg.cn/large/6a246be6gw1f3vyrc8a9yj20hs0vkq6h.jpg"></p>
 <p>
 	<small> ============== 4小时前</small>
 </p>
