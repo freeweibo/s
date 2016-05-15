@@ -35,7 +35,7 @@
 </h2>
 <p>【求批谣:中国留学生花1.6亿人民币买下温哥华一栋豪宅】豪宅约一个标准足球场大小，面积约14663平方英尺。有5个卧室、8个卫生间、健身房、游泳馆、图书馆等豪华设施。学生名叫周天宇。爷爷周建南，曾任机械工业部部长，爸爸周小川（现任央行行长）。周天宇被外媒封为"全加拿大最土豪的学生"。求批谣!<br><img src="http://ww2.sinaimg.cn/large/00666Omzjw1f3w00rihwgj30h60bf3zj.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3975386029731421" target="freeweibo-mirror">SPAM #全国辟谣平台#  何在？ [嘻嘻]   //@吃…</a>
 </h2>
@@ -119,13 +119,13 @@
 </h2>
 <p>//@给力哥的哥: //@大尸凶的漫画://@Grtmars: //@禅宗七祖:这背后还有一场可望不可及的改革，人民渴望言论更加自由<br><br>RE: 魏则西事件、雷洋之死、苏鄂减招，正是民众最关注的三大领域：医疗、公共安全、教育。如此集中爆发，既有偶然，也当必然。人民需要一场正心诚意的改革！</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3975358078538984" target="freeweibo-mirror">SPAM 好污的表情包[笑cry]</a>
 </h2>
 <p>SPAM 好污的表情包[笑cry]</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3975356748322131" target="freeweibo-mirror">我多次夸过这些草包废物白痴笨蛋，真的是夸，按我本意是想骂他们…</a>
 </h2>
