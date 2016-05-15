@@ -101,7 +101,7 @@
 </h2>
 <p>SPAM 号称国际媒体，造谣没有底线。 照片中4个人， 对其中3个人，造谣者根据自己的想象做了重新命名。 与其说是在恶心司马南， 何如说是在恶心媒体自己！<br><img src="http://ww2.sinaimg.cn/large/4b4e0e98jw1f3wd6w7oggj20u01hcwyd.jpg"></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3975493709755200" target="freeweibo-mirror">【1.5亿在温哥华买豪宅的留学生找到了！】他叫周天宇，爷爷叫…</a>
 </h2>
@@ -125,7 +125,7 @@
 </h2>
 <p>//@崔小平律师://@刘建辉lawyer:这些所谓特勤就是土匪，权力黑社会西西里化！ //@平顶山老刑警:呐喊扩散<br><br>RE: 分享视频：北京东路，南京市政府门口，一群警察武警再次殴打手无寸铁的百姓家长，把一位爸爸强行边打边拖走！！！流氓行为令人发指！！！[发怒][发怒][发怒]#江苏高考# http://t.cn/Rqgobfg</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3975462642789354" target="freeweibo-mirror">//@刘建辉lawyer:这些所谓特勤就是土匪，权力黑社会西…</a>
 </h2>
