@@ -59,7 +59,7 @@
 </h2>
 <p>SPAM //@私家专列:好好干，别砸了牌位！<br><br>RE: #雷洋案#5月13日遗体检验到14日凌晨6时结束。五位雷洋家属检前察看了尸体表面，不让拍照。检验机构由家属和北京龚律师选定。家属聘请的两位专家一位律师全程在场见证尸检，禁止拍照，并写了书面承诺对检验情况保密。检验工作非常仔细。60天内出死因结果。家属书面签字要求期间不得火化尸体。<br><img src="http://ww4.sinaimg.cn/large/6b804b51jw1f3vqvd988aj20qo1bgwlb.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3975307918164720" target="freeweibo-mirror">#雷洋案#5月13日遗体检验到14日凌晨6时结束。五位雷洋家…</a>
 </h2>
@@ -85,11 +85,17 @@
 <p>
 	<small> ============== 10小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3975203694374172" target="freeweibo-mirror">【王l琳: 废除《卖淫嫖娼人员收容教育办法》刻不容缓】   …</a>
+</h2>
+<p>【王l琳: 废除《卖淫嫖娼人员收容教育办法》刻不容缓】          雷洋，一位青年公民的非正常死亡，将嫖娼的过与罚，重又拉回到舆论场的漩涡中心。          尽管围绕雷洋的死，还有太多的争议需要更充分的证据来化解。但这一点多数民意已有共识：坐实雷洋嫖娼，他也过不足死。          性产业在中国...全文： http://m.weibo.cn/1866319581/3975203694374172<br><img src="http://ww3.sinaimg.cn/large/6f3dc6ddgw1f3ves0qthlj20qo1bgjy8.jpg"></p>
+<p>
+	<small> ============== 11小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3975190386353557" target="freeweibo-mirror">SPAM 看完都惊叹不已[吃惊]</a>
 </h2>
 <p>SPAM 看完都惊叹不已[吃惊]</p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3975187651315671" target="freeweibo-mirror">//@杨杨Jasmine:论裸官对中国的灭顶危害//@陆疯郎…</a>
 </h2>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3975158185918696" target="freeweibo-mirror">SPAM 让我坐8个小时不玩手机估计都得疯……</a>
 </h2>
 <p>SPAM 让我坐8个小时不玩手机估计都得疯……</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3975156697448676" target="freeweibo-mirror">当年背的校史总算派上了用场……  //@昭杨-法国历史: 论…</a>
-</h2>
-<p>当年背的校史总算派上了用场……  //@昭杨-法国历史: 论文作者后来因为在大学中与同学相恋，向杨森提出离婚，结果被杀掉了，这是真实的民国豪门故事。蔡文娜《一个过渡时代的家庭》全文PDF链接 http://t.cn/RqgohSN</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
