@@ -101,7 +101,7 @@
 </h2>
 <p>愿灾难永远成为历史。</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3975364365431704" target="freeweibo-mirror">//@潮人达人: //@章诒和:“是互联网改变了雷案的传播。…</a>
 </h2>
