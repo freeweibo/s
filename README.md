@@ -19,6 +19,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3975337878712968" target="freeweibo-mirror">SPAM //@陈有西:禁止现在披露。//@西安杨少普：初步…</a>
+</h2>
+<p>SPAM //@陈有西:禁止现在披露。//@西安杨少普：初步尸检发现有什么问题吗？陈律师<br><br>RE: #雷洋案#5月13日遗体检验到14日凌晨6时结束。五位雷洋家属检前察看了尸体表面，不让拍照。检验机构由家属和北京龚律师选定。家属聘请的两位专家一位律师全程在场见证尸检，禁止拍照，并写了书面承诺对检验情况保密。检验工作非常仔细。60天内出死因结果。家属书面签字要求期间不得火化尸体。<br><img src="http://ww4.sinaimg.cn/large/6b804b51jw1f3vqvd988aj20qo1bgwlb.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3975286309211607" target="freeweibo-mirror">#博友爆料# 关注。@LRLENA  //@助人女郎:据说有…</a>
 </h2>
 <p>#博友爆料# 关注。@LRLENA  //@助人女郎:据说有城管死亡，但目前不知死亡人数！[伤心]//@周李城:云南德宏突发事件！</p>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3975142360721810" target="freeweibo-mirror">//@崔小平律师://@王甫律师:下手了？</a>
 </h2>
 <p>//@崔小平律师://@王甫律师:下手了？<br><br>RE: 北京东路，南京市政府门口，一群警察武警再次殴打手无寸铁的百姓家长，把一位爸爸强行边打边拖走！！！流氓行为令人发指！！！[发怒][发怒][发怒]#江苏高考# http://t.cn/Rqgobfg .</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3975141937684568" target="freeweibo-mirror">SPAM //@李英俊律师://@上海旅游人王琪:好闲//@…</a>
-</h2>
-<p>SPAM //@李英俊律师://@上海旅游人王琪:好闲//@八桂直播:[笑cry]//@孔智-勇: //@铁渣涅槃4://@淡紫色的冰冰: 歪果仁都去哪儿了？[笑cry][笑cry][笑cry]<br><br>RE: 我除了笑，真没什么能说的。[笑cry]<br><img src="http://ww2.sinaimg.cn/large/006rCqRqgw1f3v559yh9tj30eg0c6div.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
