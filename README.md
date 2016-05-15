@@ -19,6 +19,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3975545567387608" target="freeweibo-mirror">SPAM 还不错的减肥班（和训练U盘），想瘦身塑形的女孩们 …</a>
+</h2>
+<p>SPAM 还不错的减肥班（和训练U盘），想瘦身塑形的女孩们 直戳总教练微博哦</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3975543890345525" target="freeweibo-mirror">上联：令计划在天津受审 下联：温家宝到内蒙透气 求横批：上联…</a>
 </h2>
 <p>上联：令计划在天津受审 下联：温家宝到内蒙透气 求横批：上联：令计划在天津受审 下联：温家宝到内蒙透气求横批 中央电视台前天刚刚宣布令计划在天津受审，今天就有报道说温家宝在内蒙赤峰市穿...文字版>> http://t.cn/Rqe0G4Y （新浪长微博>> http://t.cn/zOXAaic）<br><img src="http://ww3.sinaimg.cn/large/3e6961b2jw1f3wi0qw5f6j20c80sfn19.jpg"></p>
@@ -59,7 +65,7 @@
 </h2>
 <p>//@齐河律师:转发微博<br><br>RE: 【警察最擅长的4件事】 一，扫黄。二，抓赌。三，阻止上访。四，协助拆迁。扫黄可以养眼罚款，抓赌可以分钱，阻止上访可以讨好上司，协助拆迁可以结交有钱人。这四个项目不但政治正确，还没有风险，警察干这事时，相当的兴奋。发生像雷洋这种事毕竞是难得一遇，所以，警察扫黄的积极性不会因此而下降。</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3975519710220038" target="freeweibo-mirror">同名？[挖鼻]</a>
 </h2>
@@ -107,13 +113,13 @@
 </h2>
 <p>[吃惊]//@谭显荣财富人生: [吃惊] //@范剑平:转发微博<br><br>RE: 江苏省各级机关都发了通知，就看家长觉得孩子前途重要还是自己的前途重要了。<br><img src="http://ww4.sinaimg.cn/large/3e47063fgw1f3w4bfvh4uj20eb06vaal.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3975460255496255" target="freeweibo-mirror">//@华民族3041467643://@网易大明夜不收:原来…</a>
 </h2>
 <p>//@华民族3041467643://@网易大明夜不收:原来如此[嘻嘻]//@亮剑兄又来啦:[嘻嘻][嘻嘻][嘻嘻]//@余名睡猪: 几代君王和子孙丑陋事尽在手中握，无人能耐何的。[嘻嘻]//@东方夜鹰007: 搞金融的有钱！<br><br>RE: 网传：1.6亿元买下加拿大豪宅的留学生周天宇他爹叫周小川。据说，中国一家银行行长叫周小川。目前，还没人对传闻澄清。@中国政府网<br><img src="http://ww3.sinaimg.cn/large/006qS1edjw1f3w2ieag39j30k00zk0xp.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3975444091149199" target="freeweibo-mirror">SPAM //@程中柳://@导演高晓舰小号://@无肉不欢…</a>
 </h2>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3975425715416622" target="freeweibo-mirror">//@陈有西:重庆李庄案时，5000多水军攻击。网络工程师告…</a>
 </h2>
 <p>//@陈有西:重庆李庄案时，5000多水军攻击。网络工程师告诉我，每秒点击几万次堵塞术，攻垮了《陈有西学术网》三次。//@ChuYi_Zhuang：为什么那么多人攻击你[汗]<br><br>RE: #雷洋案#这道力量的介入，将改变案情信息披露完全由北京昌平警方控制的局面，也将在社会大众压倒性的舆论质疑甚至谣言中，多出一种澄清事实真相的功能。官方、大众、办案律师，这是一种力量的平衡。处理得当，将化解官方、民间互相不信任，也能避免社会的进一步撕裂。http://t.cn/RqeUlJC<br><img src="http://ww1.sinaimg.cn/large/6b804b51jw1f3w1oub77cj20qo1bgq9e.jpg"></p>
-<p>
-	<small> ============== 10小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3975424842805113" target="freeweibo-mirror">江苏省各级机关都发了通知，就看家长觉得孩子前途重要还是自己的…</a>
-</h2>
-<p>江苏省各级机关都发了通知，就看家长觉得孩子前途重要还是自己的前途重要了。<br><img src="http://ww4.sinaimg.cn/large/3e47063fgw1f3w4bfvh4uj20eb06vaal.jpg"></p>
 <p>
 	<small> ============== 10小时前</small>
 </p>
