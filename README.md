@@ -59,7 +59,7 @@
 </h2>
 <p>这都是这届对江苏的恩赐。//@Value_at_Risk:事到如今还有什么可说的，毫无疑问是这届人民不行！//@断线的红风筝: 转发微博<br><br>RE: #江苏高考##高考难度排行榜# 1.昨晚众多学校紧急召开家长会，以不签影响高考为由威胁家长签同意书，并拿公职人员开刀。[微笑]2.昨天示威时出面的领导还说还给满意的答案，今天就把整条省go.vern.ment门前的路封上了，一直封到高考结束[微笑]#江苏减招#<br><img src="http://ww1.sinaimg.cn/large/005PndRugw1f3w1kdfjvmj30qo1begry.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3975529588178169" target="freeweibo-mirror">更正一下：扫黄不单是捞钱，警察自己嫖娼还不需要付费。//@迟…</a>
 </h2>
