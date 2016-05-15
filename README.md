@@ -25,11 +25,23 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3975462642789354" target="freeweibo-mirror">//@刘建辉lawyer:这些所谓特勤就是土匪，权力黑社会西…</a>
+</h2>
+<p>//@刘建辉lawyer:这些所谓特勤就是土匪，权力黑社会西西里化！ //@平顶山老刑警:呐喊扩散<br><br>RE: 分享视频：北京东路，南京市政府门口，一群警察武警再次殴打手无寸铁的百姓家长，把一位爸爸强行边打边拖走！！！流氓行为令人发指！！！[发怒][发怒][发怒]#江苏高考# http://t.cn/Rqgobfg</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3975460255496255" target="freeweibo-mirror">//@华民族3041467643://@网易大明夜不收:原来…</a>
 </h2>
 <p>//@华民族3041467643://@网易大明夜不收:原来如此[嘻嘻]//@亮剑兄又来啦:[嘻嘻][嘻嘻][嘻嘻]//@余名睡猪: 几代君王和子孙丑陋事尽在手中握，无人能耐何的。[嘻嘻]//@东方夜鹰007: 搞金融的有钱！<br><br>RE: 网传：1.6亿元买下加拿大豪宅的留学生周天宇他爹叫周小川。据说，中国一家银行行长叫周小川。目前，还没人对传闻澄清。@中国政府网<br><img src="http://ww3.sinaimg.cn/large/006qS1edjw1f3w2ieag39j30k00zk0xp.jpg"></p>
 <p>
 	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3975444091149199" target="freeweibo-mirror">SPAM //@程中柳://@导演高晓舰小号://@无肉不欢…</a>
+</h2>
+<p>SPAM //@程中柳://@导演高晓舰小号://@无肉不欢911://@陈满华CMH:你可以看到底线的。 //@俗家人释永乖:[doge]//@小飞侠0311号:他们喜欢为民做主。</p>
+<p>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3975426009877430" target="freeweibo-mirror">信息社会条件下，不可低估舆论战场的特殊作用。有些重大误导，会…</a>
 </h2>
@@ -47,7 +59,7 @@
 </h2>
 <p>重庆李庄案时，5000多水军攻击。网络工程师告诉我，每秒点击几万次堵塞术，攻垮了《陈有西学术网》三次。//@ChuYi_Zhuang：为什么那么多人攻击你[汗]<br><br>RE: #雷洋案#这道力量的介入，将改变案情信息披露完全由北京昌平警方控制的局面，也将在社会大众压倒性的舆论质疑甚至谣言中，多出一种澄清事实真相的功能。官方、大众、办案律师，这是一种力量的平衡。处理得当，将化解官方、民间互相不信任，也能避免社会的进一步撕裂。http://t.cn/RqeUlJC<br><img src="http://ww1.sinaimg.cn/large/6b804b51jw1f3w1oub77cj20qo1bgq9e.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3975422511588993" target="freeweibo-mirror">你现在就可以叫了。//@云游I：别天真了，有真相我叫您祖宗</a>
 </h2>
@@ -71,13 +83,13 @@
 </h2>
 <p>网传：1.6亿元买下加拿大豪宅的留学生周天宇他爹叫周小川。据说，中国一家银行行长叫周小川。目前，还没人对传闻澄清。@中国政府网<br><img src="http://ww3.sinaimg.cn/large/006qS1edjw1f3w2ieag39j30k00zk0xp.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3975409651665978" target="freeweibo-mirror">确定？别以讹传讹啊[吃惊]//@朱庄虹007: "周扒皮"是…</a>
 </h2>
 <p>确定？别以讹传讹啊[吃惊]//@朱庄虹007: "周扒皮"是"著名作家"高玉宝笔下的"恶霸地主"(出自《半夜鸡叫》//@走出思维: 长子周小鹤（中创集团总经理），次子周小川（央行行长）<br><br>RE: 周建南（1917年——1995年），男，江苏宜兴人。国立交通大学电机系（上海交通大学、西安交通大学前身）毕业。曾任中华人民共和国机械工业部部长。<br><img src="http://ww2.sinaimg.cn/large/006qpIARjw1f3vppzxtb8j30hs1moags.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3975408380913256" target="freeweibo-mirror">"周扒皮"是"著名作家"高玉宝笔下的"恶霸地主"(出自《半夜…</a>
 </h2>
@@ -126,18 +138,6 @@
 <p>SPAM 周小川并没有一个叫周天宇（或Zhou Tianyu同音不同字）的儿子。</p>
 <p>
 	<small> ============== 6小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3975393750399036" target="freeweibo-mirror">SPAM 他说：中国政府解决了人民的吃饭问题和中国有军队来保…</a>
-</h2>
-<p>SPAM 他说：中国政府解决了人民的吃饭问题和中国有军队来保护人民。 他说：英国的纳税人们维持了英国政府的运转和英国的国防开支。<br><img src="http://ww2.sinaimg.cn/large/7fd6e271jw1f3w0rtg2nnj20fa0f2abq.jpg"></p>
-<p>
-	<small> ============== 6小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3975393184404969" target="freeweibo-mirror">//@杨佩昌:会不会是重名？求辟谣。//@邵明波://@IC…</a>
-</h2>
-<p>//@杨佩昌:会不会是重名？求辟谣。//@邵明波://@ICO刘开明: 转发微博<br><br>RE: 【求批谣:中国留学生花1.6亿人民币买下温哥华一栋豪宅】豪宅约一个标准足球场大小，面积约14663平方英尺。有5个卧室、8个卫生间、健身房、游泳馆、图书馆等豪华设施。学生名叫周天宇。爷爷周建南，曾任机械工业部部长，爸爸周小川（现任央行行长）。周天宇被外媒封为"全加拿大最土豪的学生"。求批谣!<br><img src="http://ww2.sinaimg.cn/large/00666Omzjw1f3w00rihwgj30h60bf3zj.jpg"></p>
-<p>
-	<small> ============== 7小时前</small>
 </p>
 <table>
     <tr>
