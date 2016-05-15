@@ -47,7 +47,7 @@
 </h2>
 <p>SPAM 蘑菇写得好详细！业界良心～</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3975410544417176" target="freeweibo-mirror">SPAM 回复@武警医院联合莆田系残害百姓:两个味。 //@…</a>
 </h2>
