@@ -35,7 +35,7 @@
 </h2>
 <p>SPAM 谢谢哦！//@男海岸: //@守候者说://@北京太舟坞于世平://@汪俊廷5: 转发微博<br><br>RE: 立场与观点。<br><img src="http://ww1.sinaimg.cn/large/006p1QFjjw1f3vpdszi7kj30cs0gndgq.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3975337878712968" target="freeweibo-mirror">SPAM //@陈有西:禁止现在披露。//@西安杨少普：初步…</a>
 </h2>
@@ -77,7 +77,13 @@
 </h2>
 <p>#雷洋案#5月13日遗体检验到14日凌晨6时结束。五位雷洋家属检前察看了尸体表面，不让拍照。检验机构由家属和北京龚律师选定。家属聘请的两位专家一位律师全程在场见证尸检，禁止拍照，并写了书面承诺对检验情况保密。检验工作非常仔细。60天内出死因结果。家属书面签字要求期间不得火化尸体。<br><img src="http://ww4.sinaimg.cn/large/6b804b51jw1f3vqvd988aj20qo1bgwlb.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3975294605942407" target="freeweibo-mirror">立场与观点。</a>
+</h2>
+<p>立场与观点。<br><img src="http://ww1.sinaimg.cn/large/006p1QFjjw1f3vpdszi7kj30cs0gndgq.jpg"></p>
+<p>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3975286309211607" target="freeweibo-mirror">#博友爆料# 关注。@LRLENA  //@助人女郎:据说有…</a>
 </h2>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3975161407440743" target="freeweibo-mirror">//@英拉-西那瓦://@一品泥人://@苏州常熟徐文石: …</a>
 </h2>
 <p>//@英拉-西那瓦://@一品泥人://@苏州常熟徐文石: //@腾讯苑泉:南海有纷争让警察先上今天谁打人谁死全家，而且绝子绝孙，绝到茅草不生根！<br><br>RE: 北京东路，南京市政府门口，一群警察武警再次殴打手无寸铁的百姓家长，把一位爸爸强行边打边拖走！！！流氓行为令人发指！！！[发怒][发怒][发怒]#江苏高考# http://t.cn/Rqgobfg .</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3975160921168123" target="freeweibo-mirror">//@北京厨子新号:。。。。。。让你演，你特么的玩真的了。。…</a>
-</h2>
-<p>//@北京厨子新号:。。。。。。让你演，你特么的玩真的了。。。妈逼的把人眼镜都摔坏了。。。//@陆亚明: 唉！[悲伤]<br><br>RE: 北京东路，南京市政府门口，一群警察武警再次殴打手无寸铁的百姓家长，把一位爸爸强行边打边拖走！！！流氓行为令人发指！！！[发怒][发怒][发怒]#江苏高考# http://t.cn/Rqgobfg .</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
