@@ -35,7 +35,7 @@
 </h2>
 <p>重庆李庄案时，5000多水军攻击。网络工程师告诉我，每秒点击几万次堵塞术，攻垮了《陈有西学术网》三次。//@ChuYi_Zhuang：为什么那么多人攻击你[汗]<br><br>RE: #雷洋案#这道力量的介入，将改变案情信息披露完全由北京昌平警方控制的局面，也将在社会大众压倒性的舆论质疑甚至谣言中，多出一种澄清事实真相的功能。官方、大众、办案律师，这是一种力量的平衡。处理得当，将化解官方、民间互相不信任，也能避免社会的进一步撕裂。http://t.cn/RqeUlJC<br><img src="http://ww1.sinaimg.cn/large/6b804b51jw1f3w1oub77cj20qo1bgq9e.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3975422511588993" target="freeweibo-mirror">你现在就可以叫了。//@云游I：别天真了，有真相我叫您祖宗</a>
 </h2>
@@ -59,7 +59,7 @@
 </h2>
 <p>确定？别以讹传讹啊[吃惊]//@朱庄虹007: "周扒皮"是"著名作家"高玉宝笔下的"恶霸地主"(出自《半夜鸡叫》//@走出思维: 长子周小鹤（中创集团总经理），次子周小川（央行行长）<br><br>RE: 周建南（1917年——1995年），男，江苏宜兴人。国立交通大学电机系（上海交通大学、西安交通大学前身）毕业。曾任中华人民共和国机械工业部部长。<br><img src="http://ww2.sinaimg.cn/large/006qpIARjw1f3vppzxtb8j30hs1moags.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3975408380913256" target="freeweibo-mirror">"周扒皮"是"著名作家"高玉宝笔下的"恶霸地主"(出自《半夜…</a>
 </h2>
@@ -113,7 +113,7 @@
 </h2>
 <p>SPAM 他说：中国政府解决了人民的吃饭问题和中国有军队来保护人民。 他说：英国的纳税人们维持了英国政府的运转和英国的国防开支。<br><img src="http://ww2.sinaimg.cn/large/7fd6e271jw1f3w0rtg2nnj20fa0f2abq.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3975393184404969" target="freeweibo-mirror">//@杨佩昌:会不会是重名？求辟谣。//@邵明波://@IC…</a>
 </h2>
