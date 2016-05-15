@@ -25,6 +25,24 @@
 <p>
 	<small> ============== 1小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3975425715416622" target="freeweibo-mirror">//@陈有西:重庆李庄案时，5000多水军攻击。网络工程师告…</a>
+</h2>
+<p>//@陈有西:重庆李庄案时，5000多水军攻击。网络工程师告诉我，每秒点击几万次堵塞术，攻垮了《陈有西学术网》三次。//@ChuYi_Zhuang：为什么那么多人攻击你[汗]<br><br>RE: #雷洋案#这道力量的介入，将改变案情信息披露完全由北京昌平警方控制的局面，也将在社会大众压倒性的舆论质疑甚至谣言中，多出一种澄清事实真相的功能。官方、大众、办案律师，这是一种力量的平衡。处理得当，将化解官方、民间互相不信任，也能避免社会的进一步撕裂。http://t.cn/RqeUlJC<br><img src="http://ww1.sinaimg.cn/large/6b804b51jw1f3w1oub77cj20qo1bgq9e.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3975424264586008" target="freeweibo-mirror">重庆李庄案时，5000多水军攻击。网络工程师告诉我，每秒点击…</a>
+</h2>
+<p>重庆李庄案时，5000多水军攻击。网络工程师告诉我，每秒点击几万次堵塞术，攻垮了《陈有西学术网》三次。//@ChuYi_Zhuang：为什么那么多人攻击你[汗]<br><br>RE: #雷洋案#这道力量的介入，将改变案情信息披露完全由北京昌平警方控制的局面，也将在社会大众压倒性的舆论质疑甚至谣言中，多出一种澄清事实真相的功能。官方、大众、办案律师，这是一种力量的平衡。处理得当，将化解官方、民间互相不信任，也能避免社会的进一步撕裂。http://t.cn/RqeUlJC<br><img src="http://ww1.sinaimg.cn/large/6b804b51jw1f3w1oub77cj20qo1bgq9e.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3975422511588993" target="freeweibo-mirror">你现在就可以叫了。//@云游I：别天真了，有真相我叫您祖宗</a>
+</h2>
+<p>你现在就可以叫了。//@云游I：别天真了，有真相我叫您祖宗<br><br>RE: #雷洋案#这道力量的介入，将改变案情信息披露完全由北京昌平警方控制的局面，也将在社会大众压倒性的舆论质疑甚至谣言中，多出一种澄清事实真相的功能。官方、大众、办案律师，这是一种力量的平衡。处理得当，将化解官方、民间互相不信任，也能避免社会的进一步撕裂。http://t.cn/RqeUlJC<br><img src="http://ww1.sinaimg.cn/large/6b804b51jw1f3w1oub77cj20qo1bgq9e.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3975415280598622" target="freeweibo-mirror">SPAM 蘑菇写得好详细！业界良心～</a>
 </h2>
 <p>SPAM 蘑菇写得好详细！业界良心～</p>
@@ -41,7 +59,7 @@
 </h2>
 <p>确定？别以讹传讹啊[吃惊]//@朱庄虹007: "周扒皮"是"著名作家"高玉宝笔下的"恶霸地主"(出自《半夜鸡叫》//@走出思维: 长子周小鹤（中创集团总经理），次子周小川（央行行长）<br><br>RE: 周建南（1917年——1995年），男，江苏宜兴人。国立交通大学电机系（上海交通大学、西安交通大学前身）毕业。曾任中华人民共和国机械工业部部长。<br><img src="http://ww2.sinaimg.cn/large/006qpIARjw1f3vppzxtb8j30hs1moags.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3975408380913256" target="freeweibo-mirror">"周扒皮"是"著名作家"高玉宝笔下的"恶霸地主"(出自《半夜…</a>
 </h2>
@@ -95,7 +113,7 @@
 </h2>
 <p>SPAM 他说：中国政府解决了人民的吃饭问题和中国有军队来保护人民。 他说：英国的纳税人们维持了英国政府的运转和英国的国防开支。<br><img src="http://ww2.sinaimg.cn/large/7fd6e271jw1f3w0rtg2nnj20fa0f2abq.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3975393184404969" target="freeweibo-mirror">//@杨佩昌:会不会是重名？求辟谣。//@邵明波://@IC…</a>
 </h2>
@@ -118,24 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3975386029731421" target="freeweibo-mirror">SPAM #全国辟谣平台#  何在？ [嘻嘻]   //@吃…</a>
 </h2>
 <p>SPAM #全国辟谣平台#  何在？ [嘻嘻]   //@吃素的好老虎: //@吃素的好老虎: 周小川的儿子？  [吃惊]//@B2B2C研究III: 周建南，曾任机械工业部部长；妹妹周秀雯，长子周小鹤，次子周小川。<br><br>RE: 斥资1.5亿买下温哥华最贵豪宅的中国留学生名叫tian yu Zhou，祖父叫jian nan Zhou，其他资料你们还是自己搜吧。</p>
-<p>
-	<small> ============== 4小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3975385748566842" target="freeweibo-mirror">【好文分享】1、一位官二代的去世，为何引起民众如此悲伤痛哭？…</a>
-</h2>
-<p>【好文分享】1、一位官二代的去世，为何引起民众如此悲伤痛哭？2、真实的以色列！3、北大发布全国最好医院排名，关键时刻救命（再也不用麻烦百度了！）4、一个披着资本主义外衣的真正共产主义国家，惊呆了！5、又一位美女倒下了，她是央视前美女主持人，年仅44岁！更多精彩请添加关注：zhebsls<br><img src="http://ww2.sinaimg.cn/large/9647a31egw1f3vzuvuwtvj20ku112dig.jpg"></p>
-<p>
-	<small> ============== 4小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3975385362222909" target="freeweibo-mirror">//@天涯归鸿2011:1.5亿这鸡毛蒜皮的小时你们用大惊小…</a>
-</h2>
-<p>//@天涯归鸿2011:1.5亿这鸡毛蒜皮的小时你们用大惊小怪吗？<br><br>RE: 操你妈逼的共产党员周小川，你把百姓的民脂血膏拿到你这群畜牲口中的邪恶国家。你这群狗娘养的土匪，土匪，土匪。[怒][怒][怒]⚡⚡⚡</p>
-<p>
-	<small> ============== 4小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3975382745493467" target="freeweibo-mirror">SPAM //@闲云孤鹤行脚僧: //@不仅是围观者: //…</a>
-</h2>
-<p>SPAM //@闲云孤鹤行脚僧: //@不仅是围观者: //@长大去天上人间玩: [哈哈] //@左丘失明://@梁惠王://@秦州閒人/@法医Z:手机故障。不负责任。//@疯狂历史老师:超级富豪//@运河的过街老鼠:网友是万能的！[哈哈][good]//@B2B2C研究III: 周建南，曾任机械工业部部长；妹妹周秀雯，长子周小鹤，次子周小川。<br><br>RE: 斥资1.5亿买下温哥华最贵豪宅的中国留学生名叫tian yu Zhou，祖父叫jian nan Zhou，其他资料你们还是自己搜吧。</p>
 <p>
 	<small> ============== 4小时前</small>
 </p>
