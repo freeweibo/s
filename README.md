@@ -67,6 +67,18 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3975364365431704" target="freeweibo-mirror">//@潮人达人: //@章诒和:“是互联网改变了雷案的传播。…</a>
+</h2>
+<p>//@潮人达人: //@章诒和:“是互联网改变了雷案的传播。虽然网络上各种删帖依旧，但是你想发出的声音总能发出，此起彼伏，生生不息。在此过程中，大浪淘沙，民智在生长，权利和自由也在生长。”</p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3975358128656245" target="freeweibo-mirror">//@给力哥的哥: //@大尸凶的漫画://@Grtmars…</a>
+</h2>
+<p>//@给力哥的哥: //@大尸凶的漫画://@Grtmars: //@禅宗七祖:这背后还有一场可望不可及的改革，人民渴望言论更加自由<br><br>RE: 魏则西事件、雷洋之死、苏鄂减招，正是民众最关注的三大领域：医疗、公共安全、教育。如此集中爆发，既有偶然，也当必然。人民需要一场正心诚意的改革！</p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3975358078538984" target="freeweibo-mirror">SPAM 好污的表情包[笑cry]</a>
 </h2>
 <p>SPAM 好污的表情包[笑cry]</p>
@@ -124,18 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3975345701228550" target="freeweibo-mirror">SPAM //@齐河律师: 转发微博</a>
 </h2>
 <p>SPAM //@齐河律师: 转发微博</p>
-<p>
-	<small> ============== 4小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3975341469442514" target="freeweibo-mirror">SPAM  //@崔小平律师://@李继锋://@金陵酒徒仓…</a>
-</h2>
-<p>SPAM  //@崔小平律师://@李继锋://@金陵酒徒仓氏: //@费煜鈞://@麻毛雄: //@于菲082:覺醒<br><br>RE: 昨天就看到了这张图(左)，今天才知道他们就是与范英雄同村的。英雄不死啊！[作揖]声援！✊<br><img src="http://ww2.sinaimg.cn/large/006dw2b0gw1f3vse71l1rj30j60cjtae.jpg"></p>
-<p>
-	<small> ============== 4小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3975338163687492" target="freeweibo-mirror">SPAM 谢谢哦！//@男海岸: //@守候者说://@北京…</a>
-</h2>
-<p>SPAM 谢谢哦！//@男海岸: //@守候者说://@北京太舟坞于世平://@汪俊廷5: 转发微博<br><br>RE: 立场与观点。<br><img src="http://ww1.sinaimg.cn/large/006p1QFjjw1f3vpdszi7kj30cs0gndgq.jpg"></p>
 <p>
 	<small> ============== 4小时前</small>
 </p>
