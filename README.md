@@ -19,6 +19,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3975492824193712" target="freeweibo-mirror">童大焕：胡适先生说：一个肮脏的国家，如果人人都开始讲规则而不…</a>
+</h2>
+<p>童大焕：胡适先生说：一个肮脏的国家，如果人人都开始讲规则而不是谈道德，最终会变成一个有人味儿的正常国家，道德自然会逐渐回归。一个乾净的国家，如果人人都不讲规则却大谈道德，天天没事儿就谈道德规范，最终这个国家会堕落成为一个伪君子遍布的肮脏国家。http://t.cn/Rqexdvj<br><img src="http://ww2.sinaimg.cn/large/6b804b51jw1f3wc5i7kz8j20qo1bgtec.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3975465016802857" target="freeweibo-mirror">//@崔小平律师://@刘建辉lawyer:这些所谓特勤就是…</a>
 </h2>
 <p>//@崔小平律师://@刘建辉lawyer:这些所谓特勤就是土匪，权力黑社会西西里化！ //@平顶山老刑警:呐喊扩散<br><br>RE: 分享视频：北京东路，南京市政府门口，一群警察武警再次殴打手无寸铁的百姓家长，把一位爸爸强行边打边拖走！！！流氓行为令人发指！！！[发怒][发怒][发怒]#江苏高考# http://t.cn/Rqgobfg</p>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3975401954465018" target="freeweibo-mirror">#雷洋案#这道力量的介入，将改变案情信息披露完全由北京昌平警…</a>
 </h2>
 <p>#雷洋案#这道力量的介入，将改变案情信息披露完全由北京昌平警方控制的局面，也将在社会大众压倒性的舆论质疑甚至谣言中，多出一种澄清事实真相的功能。官方、大众、办案律师，这是一种力量的平衡。处理得当，将化解官方、民间互相不信任，也能避免社会的进一步撕裂。http://t.cn/RqeUlJC<br><img src="http://ww1.sinaimg.cn/large/6b804b51jw1f3w1oub77cj20qo1bgq9e.jpg"></p>
-<p>
-	<small> ============== 7小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3975401301006135" target="freeweibo-mirror">SPAM 周小川并没有一个叫周天宇（或Zhou Tianyu…</a>
-</h2>
-<p>SPAM 周小川并没有一个叫周天宇（或Zhou Tianyu同音不同字）的儿子。</p>
 <p>
 	<small> ============== 7小时前</small>
 </p>
