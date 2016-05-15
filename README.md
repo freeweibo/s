@@ -23,7 +23,7 @@
 </h2>
 <p>SPAM 蘑菇写得好详细！业界良心～</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3975410544417176" target="freeweibo-mirror">SPAM 回复@武警医院联合莆田系残害百姓:两个味。 //@…</a>
 </h2>
@@ -34,6 +34,12 @@
 	<a href="https://freeweibo.com/weibo/3975409651665978" target="freeweibo-mirror">确定？别以讹传讹啊[吃惊]//@朱庄虹007: "周扒皮"是…</a>
 </h2>
 <p>确定？别以讹传讹啊[吃惊]//@朱庄虹007: "周扒皮"是"著名作家"高玉宝笔下的"恶霸地主"(出自《半夜鸡叫》//@走出思维: 长子周小鹤（中创集团总经理），次子周小川（央行行长）<br><br>RE: 周建南（1917年——1995年），男，江苏宜兴人。国立交通大学电机系（上海交通大学、西安交通大学前身）毕业。曾任中华人民共和国机械工业部部长。<br><img src="http://ww2.sinaimg.cn/large/006qpIARjw1f3vppzxtb8j30hs1moags.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3975408380913256" target="freeweibo-mirror">"周扒皮"是"著名作家"高玉宝笔下的"恶霸地主"(出自《半夜…</a>
+</h2>
+<p>"周扒皮"是"著名作家"高玉宝笔下的"恶霸地主"(出自《半夜鸡叫》//@走出思维: 长子周小鹤（中创集团总经理），次子周小川（央行行长）<br><br>RE: 周建南（1917年——1995年），男，江苏宜兴人。国立交通大学电机系（上海交通大学、西安交通大学前身）毕业。曾任中华人民共和国机械工业部部长。<br><img src="http://ww2.sinaimg.cn/large/006qpIARjw1f3vppzxtb8j30hs1moags.jpg"></p>
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
@@ -107,13 +113,13 @@
 </h2>
 <p>【好文分享】1、一位官二代的去世，为何引起民众如此悲伤痛哭？2、真实的以色列！3、北大发布全国最好医院排名，关键时刻救命（再也不用麻烦百度了！）4、一个披着资本主义外衣的真正共产主义国家，惊呆了！5、又一位美女倒下了，她是央视前美女主持人，年仅44岁！更多精彩请添加关注：zhebsls<br><img src="http://ww2.sinaimg.cn/large/9647a31egw1f3vzuvuwtvj20ku112dig.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3975385362222909" target="freeweibo-mirror">//@天涯归鸿2011:1.5亿这鸡毛蒜皮的小时你们用大惊小…</a>
 </h2>
 <p>//@天涯归鸿2011:1.5亿这鸡毛蒜皮的小时你们用大惊小怪吗？<br><br>RE: 操你妈逼的共产党员周小川，你把百姓的民脂血膏拿到你这群畜牲口中的邪恶国家。你这群狗娘养的土匪，土匪，土匪。[怒][怒][怒]⚡⚡⚡</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3975382745493467" target="freeweibo-mirror">SPAM //@闲云孤鹤行脚僧: //@不仅是围观者: //…</a>
 </h2>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3975376260196448" target="freeweibo-mirror">SPAM 嗯</a>
 </h2>
 <p>SPAM 嗯<br><img src="http://ww1.sinaimg.cn/large/6a246be6gw1f3vyrc8a9yj20hs0vkq6h.jpg"></p>
-<p>
-	<small> ============== 4小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3975375408664609" target="freeweibo-mirror">哈哈，赶紧把右边的草包送安定门//@俊五倍: //@胡杨麟:…</a>
-</h2>
-<p>哈哈，赶紧把右边的草包送安定门//@俊五倍: //@胡杨麟:我多次夸过这些草包废物白痴笨蛋，真的是夸，按我本意是想骂他们是汉奸内贼的。//@烧伤超人阿宝: 昨天有朋友说：请把矛头对准谣媒，宣传部门是一起对抗谣媒的友军。我说这友军真特么好，当你在前线浴血奋战的时候，他在你背后狠狠捅一刀。<br><br>RE: 一个是省级宣传部，一个是省级公安厅，虽然分属两省，不会狭隘到为自己地缘因素站台，同是党的天下，差别的还是个人意识，差的还是主管人员的认识！http://t.cn/Rqevato</p>
 <p>
 	<small> ============== 4小时前</small>
 </p>
