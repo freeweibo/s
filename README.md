@@ -125,13 +125,13 @@
 </h2>
 <p>//@杜君立: //@章诒和: “是互联网改变了雷案的传播。虽然网络上各种删帖依旧，但是你想发出的声音总能发出，此起彼伏，生生不息。在此过程中，大浪淘沙，民智在生长，权利和自由也在生长。”</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3975349978922845" target="freeweibo-mirror">回复@东方一树:[话筒] //@刘军宁:13亿人民，你们怎么…</a>
 </h2>
 <p>回复@东方一树:[话筒] //@刘军宁:13亿人民，你们怎么连吃饭问题都要党和政府来解决？ //@光明在黑暗:好像我们的吃饭问题真的是他们解决了似的 //@华商天民: //@中国黑镜头: //@汪俊廷5:转发微博<br><br>RE: 立场与观点。<br><img src="http://ww1.sinaimg.cn/large/006p1QFjjw1f3vpdszi7kj30cs0gndgq.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3975345701228550" target="freeweibo-mirror">SPAM //@齐河律师: 转发微博</a>
 </h2>
