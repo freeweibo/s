@@ -53,7 +53,7 @@
 </h2>
 <p>SPAM 谢谢哦！//@男海岸: //@守候者说://@北京太舟坞于世平://@汪俊廷5: 转发微博<br><br>RE: 立场与观点。<br><img src="http://ww1.sinaimg.cn/large/006p1QFjjw1f3vpdszi7kj30cs0gndgq.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3975337878712968" target="freeweibo-mirror">SPAM //@陈有西:禁止现在披露。//@西安杨少普：初步…</a>
 </h2>
@@ -95,7 +95,7 @@
 </h2>
 <p>#雷洋案#5月13日遗体检验到14日凌晨6时结束。五位雷洋家属检前察看了尸体表面，不让拍照。检验机构由家属和北京龚律师选定。家属聘请的两位专家一位律师全程在场见证尸检，禁止拍照，并写了书面承诺对检验情况保密。检验工作非常仔细。60天内出死因结果。家属书面签字要求期间不得火化尸体。<br><img src="http://ww4.sinaimg.cn/large/6b804b51jw1f3vqvd988aj20qo1bgwlb.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3975294605942407" target="freeweibo-mirror">立场与观点。</a>
 </h2>
