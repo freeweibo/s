@@ -19,6 +19,18 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3975377195623335" target="freeweibo-mirror">//@水陆橘洲C://@郭47于-华-清华:[話筒][話筒]…</a>
+</h2>
+<p>//@水陆橘洲C://@郭47于-华-清华:[話筒][話筒]//@章诒和: “是互联网改变了雷案的传播。虽然网络上各种删帖依旧，但是你想发出的声音总能发出，此起彼伏，生生不息。在此过程中，大浪淘沙，民智在生长，权利和自由也在生长。”</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3975374800427334" target="freeweibo-mirror">[泪]//@中和平正: 77年参与档案清理时读过很多材料，感…</a>
+</h2>
+<p>[泪]//@中和平正: 77年参与档案清理时读过很多材料，感觉四清运动沉底消灭了人与人之间的信任，相互揭发检举，小到什么程度——某人在食堂偷拿了几根小葱；普遍到什么程度——几乎是所有人都有检举，也有被检举…… //@长安-君:<br><br>RE: 在今天，“四清”对于很多人来说是陌生的，但正是这场运动发明了蹲牛棚、暴打，抄家，“文革”只是沿袭这个运动的模式。如此至关重要的历史为何会被集体遗忘？因为它是由刘少奇挂帅，王光美蹲点示范的运动，否定文革后则正是这一股势力占了上风。如此看来记忆并非我们想象的那么诚实，它非常的势利。<br><img src="http://ww1.sinaimg.cn/large/63a72d15jw1f3vdi90z8dj20xc18gwlu.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3975358078538984" target="freeweibo-mirror">SPAM 好污的表情包[笑cry]</a>
 </h2>
 <p>SPAM 好污的表情包[笑cry]</p>
@@ -101,7 +113,7 @@
 </h2>
 <p>立场与观点。<br><img src="http://ww1.sinaimg.cn/large/006p1QFjjw1f3vpdszi7kj30cs0gndgq.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3975286309211607" target="freeweibo-mirror">#博友爆料# 关注。@LRLENA  //@助人女郎:据说有…</a>
 </h2>
@@ -124,18 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3975203694374172" target="freeweibo-mirror">【王l琳: 废除《卖淫嫖娼人员收容教育办法》刻不容缓】   …</a>
 </h2>
 <p>【王l琳: 废除《卖淫嫖娼人员收容教育办法》刻不容缓】          雷洋，一位青年公民的非正常死亡，将嫖娼的过与罚，重又拉回到舆论场的漩涡中心。          尽管围绕雷洋的死，还有太多的争议需要更充分的证据来化解。但这一点多数民意已有共识：坐实雷洋嫖娼，他也过不足死。          性产业在中国...全文： http://m.weibo.cn/1866319581/3975203694374172<br><img src="http://ww3.sinaimg.cn/large/6f3dc6ddgw1f3ves0qthlj20qo1bgjy8.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3975190386353557" target="freeweibo-mirror">SPAM 看完都惊叹不已[吃惊]</a>
-</h2>
-<p>SPAM 看完都惊叹不已[吃惊]</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3975187651315671" target="freeweibo-mirror">//@杨杨Jasmine:论裸官对中国的灭顶危害//@陆疯郎…</a>
-</h2>
-<p>//@杨杨Jasmine:论裸官对中国的灭顶危害//@陆疯郎: 中国人民还是请美国来统治好点。//@天使牧羊人coolboy:难怪一直以美帝为假想敌！//@博者文摘:转发微博<br><br>RE: 出大事了！美国又来搅局了...： 中国被一棒敲昏！ 美国亮棒：要爆光180万官员国外子女档案 多年以来，美国就在世界范围内大抓特抓受其中国贪官之种种把柄，养兵千日，用兵一时，中国贪官之把柄...文字版>> http://t.cn/R4xjZUv （新浪长微博>> http://t.cn/zOXAaic）<br><img src="http://ww1.sinaimg.cn/large/006qOztrjw1f3uxgxhp2tj30c854se2l.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
