@@ -107,7 +107,7 @@
 </h2>
 <p>SPAM 看完都惊叹不已[吃惊]</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3975187651315671" target="freeweibo-mirror">//@杨杨Jasmine:论裸官对中国的灭顶危害//@陆疯郎…</a>
 </h2>
