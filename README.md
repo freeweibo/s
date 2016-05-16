@@ -83,7 +83,7 @@
 </h2>
 <p>SPAM //@翻译与翻译研究:今天是五十周年日。<br><br>RE: 人生轨迹（217）读图辨史http://t.cn/RqDb9Yi</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3975875273383536" target="freeweibo-mirror">人生轨迹（217）读图辨史http://t.cn/RqDb9…</a>
 </h2>
@@ -131,13 +131,13 @@
 </h2>
 <p>[蜡烛] 悼念<br><br>RE: 为了不忘却的纪念：文革期间被迫害致死的155位大师 http://t.cn/RqDZtT0</p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3975835508136595" target="freeweibo-mirror">为了不忘却的纪念：文革期间被迫害致死的155位大师 http…</a>
 </h2>
 <p>为了不忘却的纪念：文革期间被迫害致死的155位大师 http://t.cn/RqDZtT0</p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p>
 <table>
     <tr>
