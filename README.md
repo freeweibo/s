@@ -19,6 +19,18 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3975660429390205" target="freeweibo-mirror">重大疑点出现了？</a>
+</h2>
+<p>重大疑点出现了？<br><br>RE: 【律师调查发现重要疑问】雷洋苹果手机有指纹密码和数字密码，别人无法打开。昨天律师从移动公司查到雷洋手机8日午夜00：19解锁拨通其父记录。其父说接通过无人说话。而雷洋7日22：09已送到医院记载死亡。谁拨出的？警方说此时手机还丢在抓人现场，找回后也无法解锁。由此可证明警方向央视说的不是事实...全文： http://m.weibo.cn/1803570001/3975659099259239<br><img src="http://ww4.sinaimg.cn/large/6b804b51jw1f3wv7zj39yj20ch0m8abn.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3975649368246384" target="freeweibo-mirror">516</a>
+</h2>
+<p>516<br><br>RE: 50年前的今天，一个通知打破了平靜的中国，文革的种子象一声惊雷被深深埋下，他穿上军装戴上红卫兵袖章，他说“要武嘛”！这“要武”从当年红八月开始打死平民、知识分子、地富反坏右，整整持续了50年，从七九到孙志刚，到余纯合，到雷洋…杀戮在继续【费二爷】</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3975599997359173" target="freeweibo-mirror">SPAM 亲身测试确实有效，现在已经瘦了好多斤[太开心]，还…</a>
 </h2>
 <p>SPAM 亲身测试确实有效，现在已经瘦了好多斤[太开心]，还我女神梦[爱你]，不瘦下来你还真不知道你长啥样，美美哒[偷笑]，推荐给那些小胖胖，+唯心: vipnr86</p>
@@ -29,7 +41,7 @@
 </h2>
 <p>无语。//@傻了吧唧的光光: 把相关权力关进笼子，切断里边的黑利益链条才是解决问题的根本！ //@不沉默的大多数:[衰]不可思议</p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3975553470644448" target="freeweibo-mirror">SPAM 翻翻她的微-博@happy减肥瘦身 [doge]你…</a>
 </h2>
@@ -47,7 +59,7 @@
 </h2>
 <p>上联：令计划在天津受审 下联：温家宝到内蒙透气 求横批：上联：令计划在天津受审 下联：温家宝到内蒙透气求横批 中央电视台前天刚刚宣布令计划在天津受审，今天就有报道说温家宝在内蒙赤峰市穿...文字版>> http://t.cn/Rqe0G4Y （新浪长微博>> http://t.cn/zOXAaic）<br><img src="http://ww3.sinaimg.cn/large/3e6961b2jw1f3wi0qw5f6j20c80sfn19.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3975540497541070" target="freeweibo-mirror">SPAM //@小季伏枥:这一个盛世 //@自由职业者在浦东…</a>
 </h2>
@@ -124,18 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3975465016802857" target="freeweibo-mirror">//@崔小平律师://@刘建辉lawyer:这些所谓特勤就是…</a>
 </h2>
 <p>//@崔小平律师://@刘建辉lawyer:这些所谓特勤就是土匪，权力黑社会西西里化！ //@平顶山老刑警:呐喊扩散<br><br>RE: 分享视频：北京东路，南京市政府门口，一群警察武警再次殴打手无寸铁的百姓家长，把一位爸爸强行边打边拖走！！！流氓行为令人发指！！！[发怒][发怒][发怒]#江苏高考# http://t.cn/Rqgobfg</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3975462642789354" target="freeweibo-mirror">//@刘建辉lawyer:这些所谓特勤就是土匪，权力黑社会西…</a>
-</h2>
-<p>//@刘建辉lawyer:这些所谓特勤就是土匪，权力黑社会西西里化！ //@平顶山老刑警:呐喊扩散<br><br>RE: 分享视频：北京东路，南京市政府门口，一群警察武警再次殴打手无寸铁的百姓家长，把一位爸爸强行边打边拖走！！！流氓行为令人发指！！！[发怒][发怒][发怒]#江苏高考# http://t.cn/Rqgobfg</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3975460586894115" target="freeweibo-mirror">[吃惊]//@谭显荣财富人生: [吃惊] //@范剑平:转发…</a>
-</h2>
-<p>[吃惊]//@谭显荣财富人生: [吃惊] //@范剑平:转发微博<br><br>RE: 江苏省各级机关都发了通知，就看家长觉得孩子前途重要还是自己的前途重要了。<br><img src="http://ww4.sinaimg.cn/large/3e47063fgw1f3w4bfvh4uj20eb06vaal.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
