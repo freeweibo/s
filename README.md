@@ -25,6 +25,12 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3975784290822674" target="freeweibo-mirror">国家真正的羞耻就是那些实际做不到，却空想着自以为是，折腾人民…</a>
+</h2>
+<p>国家真正的羞耻就是那些实际做不到，却空想着自以为是，折腾人民的傻子。//@歐陽劒凴:难道不是中华人民共和国之耻吗？//@林岳芳:到处是足浴店就是不争的事实，辱骂别人妻女的畜生已毫无人性！//@不沉默的大多数:有朱元璋将对手妻女罚为营妓的野蛮，在以南京大屠杀的态度对待社会。</p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3975783766688758" target="freeweibo-mirror">人类只有一个地球，计划生育功在当代，利在千秋！</a>
 </h2>
 <p>人类只有一个地球，计划生育功在当代，利在千秋！</p>
@@ -47,17 +53,23 @@
 </h2>
 <p>今天朋友圈满屏文革，可是能影响到的年轻人应该没有几个。只要教科书忽略，高考不考，文学影视作品不让提，这场浩劫对很多年轻人就几乎没有发生过，甚至变成值得向往的年代。中国历史就还会循环往复……刚才发的朋友圈，事实是，这段历史变成了404……<br><img src="http://ww1.sinaimg.cn/large/67931ce1jw1f3x8uish12j20k00zktfw.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3975777642354691" target="freeweibo-mirror">SPAM [吃惊][可怜][怒]我在看【雷洋的屎尿+【精液气…</a>
 </h2>
 <p>SPAM [吃惊][可怜][怒]我在看【雷洋的屎尿+【精液气味】弥漫在小汽车里】, 分享给你, 快来看看吧！ | http://t.cn/RqeRLpY<br><img src="http://ww1.sinaimg.cn/large/616fbcb3jw1f3x8v7caqmj20a00fxgna.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3975776841959530" target="freeweibo-mirror">//@笨笨an: 应称之为狭隘民族主义小报 //@金融评论员…</a>
 </h2>
 <p>//@笨笨an: 应称之为狭隘民族主义小报 //@金融评论员:“中国民族主义小报”最先用的我记得是华尔街日报，你们应该注明出处。[哼]<br><br>RE: 【中国网信办批评《环球时报》炒作】中国互联网监管机构对中国民族主义小报《环球时报》的报道提出批评，这些报道包括在台湾新总统就职典礼前夕推出一项具有好斗色彩的在线民调，以及把美国总统候选人唐纳德•特朗普称为“跳梁小丑”。http://t.cn/RqeF7rI<br><img src="http://ww2.sinaimg.cn/large/6538fd8cjw1f3x83e30e6j20go09egmo.jpg"></p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3975775457944115" target="freeweibo-mirror">//@ICO刘开明:转发微博</a>
+</h2>
+<p>//@ICO刘开明:转发微博<br><br>RE: 就事论事。雷洋的手机是否被解锁，夜里十二点多的电话是否是按有些人说的回拨，都非最关键的。警方说雷洋的手机丢在现场草地里、雷洋死后他们回去现场才找到，后第一时间联系了家属。而家属是夜里一点多接到的警方通知。现在的要点是时间对不上！十二点多的那次“回拨”雷父，是谁拨的？<br><img src="http://ww4.sinaimg.cn/large/005vSjEdjw1f3x2nhcw8zj30k00epgmz.jpg"></p>
 <p>
 	<small> ============== 4小时前</small>
 </p><h2>
@@ -89,19 +101,19 @@
 </h2>
 <p>[吃惊]//@岛国根性VS大国玻璃心: 现在也不知庄周梦蝴蝶还是蝴蝶梦庄周了……<br><br>RE: 【人文浩劫】文革是非战争状态下的人类浩劫，其实质是人文的浩劫，无法统计当时毁灭了多少有形的文物，但无形的文化和人类的良善之心已荡然无存，如今的五毛和毛粉就是那些邪恶的思维产物，他们邪恶到了比畜生还要畜生的地步，这需要几代人进化蜕变。那么有无可能再次发生文革？几率多大？我可以肯定地...全文： http://m.weibo.cn/1180291890/3975696533000632...全文： http://m.weibo.cn/1180291890/3975696533000632<br><img src="http://ww2.sinaimg.cn/large/4659d332jw1f3wzju7myfj20ay0dwjte.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3975763059400790" target="freeweibo-mirror">雷洋的屎尿+【精液气味】弥漫在小汽车里 http://t.c…</a>
 </h2>
 <p>雷洋的屎尿+【精液气味】弥漫在小汽车里 http://t.cn/RqeRsAH</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3975762811963375" target="freeweibo-mirror">SPAM #该不该鼓励绝症病人# 痛苦的绝症病人想要放弃自己…</a>
 </h2>
 <p>SPAM #该不该鼓励绝症病人# 痛苦的绝症病人想要放弃自己的生命，我该不该鼓励他？这期奇葩说适合每个人都看一遍，来自不同角度的生死抉择，一秒泪奔。[悲伤]<br><img src="http://ww1.sinaimg.cn/large/67dd74e0gw1f3x72yukxuj20uj27jdx7.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3975761747113167" target="freeweibo-mirror">一个民族应该把自己最令人痛心的教训当作一面镜子，时时檫拭，时…</a>
 </h2>
@@ -124,18 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3975745954897215" target="freeweibo-mirror">好吧，这篇文章是真的被删除了。</a>
 </h2>
 <p>好吧，这篇文章是真的被删除了。<br><br>RE: 【探访全国唯一遗存的文革墓群】50年前的今天，中国历史上的“文革”开始。作为那个狂热年代的历史见证，重庆沙坪公园至今遗存着全国唯一一个文革武斗死难者墓群，向后人诉说着那段真实存在的历史。 http://t.cn/RqeH22P</p>
-<p>
-	<small> ============== 6小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3975744248130857" target="freeweibo-mirror">SPAM 【纪念日】只是提醒一下，别忘了。所有媒体都讳莫如深…</a>
-</h2>
-<p>SPAM 【纪念日】只是提醒一下，别忘了。所有媒体都讳莫如深，恰好表明记忆很深刻。<br><img src="http://ww1.sinaimg.cn/large/48866320jw1f3x513g8zij20pw0zkjuo.jpg"></p>
-<p>
-	<small> ============== 6小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3975741089437596" target="freeweibo-mirror">SPAM 中国有7.8亿的网民都在网上淘-宝买，每天有过亿的…</a>
-</h2>
-<p>SPAM 中国有7.8亿的网民都在网上淘-宝买，每天有过亿的成交量，你却可以利用这个机会开店。</p>
 <p>
 	<small> ============== 6小时前</small>
 </p>
