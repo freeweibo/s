@@ -95,7 +95,7 @@
 </h2>
 <p>//@虎叔-: 文革所有史料一日不公开，清算也就遥遥无期</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3975763226714783" target="freeweibo-mirror">[吃惊]//@岛国根性VS大国玻璃心: 现在也不知庄周梦蝴蝶…</a>
 </h2>
@@ -131,7 +131,7 @@
 </h2>
 <p>今天，是文革被发动50周年，特再次推荐此文。摘要：文革并未盖棺定论。如今中国文革幽灵游荡，文革回潮阴霾弥漫。中国正处于一个关键的历史时刻。中国向何处去，再一次成为焦点。重新讨论文革，正本清源，澄清历史事实，还原历史真相，彻底肃清文革影响，已是当务之急。<br><img src="http://ww1.sinaimg.cn/large/53bd81b0jw1f3x5k4y2sbj20qo1bgn3e.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3975745954897215" target="freeweibo-mirror">好吧，这篇文章是真的被删除了。</a>
 </h2>
