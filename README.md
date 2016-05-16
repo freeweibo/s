@@ -29,7 +29,7 @@
 </h2>
 <p>SPAM //@北美时尚快报:你拍七，我排七，724转发送白泥！</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3975907721533683" target="freeweibo-mirror">SPAM //@李翔196811://@不让上网就上你://…</a>
 </h2>
@@ -107,7 +107,7 @@
 </h2>
 <p></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3975857230261471" target="freeweibo-mirror">人性泯灭，党性猖狂，好党员！ //@北京律师王兴:以官方文件…</a>
 </h2>
