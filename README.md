@@ -101,7 +101,7 @@
 </h2>
 <p>大屠殺通知書，精神的屠戮至今未停[蜡烛]<br><img src="http://ww4.sinaimg.cn/large/64ff12efjw1f3wzf7a2aaj20j60qftcl.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3975695333817405" target="freeweibo-mirror">放心了//@活捉死老鼠: //@铁树扉://@幽曾I: //…</a>
 </h2>
