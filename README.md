@@ -19,11 +19,59 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3975677487073112" target="freeweibo-mirror">绝望，只有毛2.0出世能改变//@普法三十年-://@阿宝背…</a>
+</h2>
+<p>绝望，只有毛2.0出世能改变//@普法三十年-://@阿宝背书的美好生活: 过去的二届有反日，但没有复兴。 //@针叶林2: //@阿宝背书的美好生活:两个不否定以后的事。前二届没有这种事！ //@夜郎国主: 举个呼吁宪政的标语试试看？根本就是隐秘的价值观。<br><br>RE: 当局的暧昧，导致死灰复燃。昨天有人借一年一度大连国际徒步大会，高举文革图腾“大海航行靠舵手”。<br><img src="http://ww2.sinaimg.cn/large/dd816182gw1f3wiyfy2wsj20sg0g2whe.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3975677193950256" target="freeweibo-mirror">//@兰小欢:先毁了物质资本的所有权，才能系统性的打压甚至毁…</a>
+</h2>
+<p>//@兰小欢:先毁了物质资本的所有权，才能系统性的打压甚至毁灭人力资本。今天市场经济条件下，第一条都做不到，想朝着文革方向打人力资本的主意，是妄想。<br><br>RE: 当局的暧昧，导致死灰复燃。昨天有人借一年一度大连国际徒步大会，高举文革图腾“大海航行靠舵手”。<br><img src="http://ww2.sinaimg.cn/large/dd816182gw1f3wiyfy2wsj20sg0g2whe.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3975676631785577" target="freeweibo-mirror">按一贯套路来说：很难说这事背后没有敌对势力支持，这种制造人民…</a>
+</h2>
+<p>按一贯套路来说：很难说这事背后没有敌对势力支持，这种制造人民内部对立的活是不是应该查一查有没有变相的赞助？先抓后审嘛！//@黄飞珏:文革的事中央是有决议的，此行为实属公然反党，应查处。 //@图个什么:遗患无穷。<br><br>RE: 当局的暧昧，导致死灰复燃。昨天有人借一年一度大连国际徒步大会，高举文革图腾“大海航行靠舵手”。<br><img src="http://ww2.sinaimg.cn/large/dd816182gw1f3wiyfy2wsj20sg0g2whe.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3975674064613921" target="freeweibo-mirror">//@情系南北疆: 嘴里没个实话。//@学缠悟缠: 警方撒谎…</a>
 </h2>
 <p>//@情系南北疆: 嘴里没个实话。//@学缠悟缠: 警方撒谎，并不意外//@微笑的苹苹:转发微博</p>
 <p>
 	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3975671724095336" target="freeweibo-mirror">脑残数量庞大，民族必危矣[泪]//@美黛是红菜苔://@阿宝…</a>
+</h2>
+<p>脑残数量庞大，民族必危矣[泪]//@美黛是红菜苔://@阿宝背书的美好生活:有了个人崇拜，才有文革！ //@鸿哥2010:【东方又红】【你这样平易近人】【不知道怎么称呼你】陛下英明，圣上万岁！ //@阿宝背书的美好生活: 就是想东方又红！ //@放炮台主:这个现象的频繁出现是有它的政治背景的；<br><br>RE: 当局的暧昧，导致死灰复燃。昨天有人借一年一度大连国际徒步大会，高举文革图腾“大海航行靠舵手”。<br><img src="http://ww2.sinaimg.cn/large/dd816182gw1f3wiyfy2wsj20sg0g2whe.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3975670104847897" target="freeweibo-mirror">SPAM //@不是报纸://@東東古来稀: //@梧桐之城…</a>
+</h2>
+<p>SPAM //@不是报纸://@東東古来稀: //@梧桐之城: [吃惊] //@夙生律师事务所: //@草原上的寶雲d://@冬天小平果://@枫叶aaa红不了:靠！[哼] //@砂器--47://@乌托国民16://@东郭-文奴儿:[怒][怒骂]<br><br>RE: 上海交大招生关系户爆光，特招就是这么明目张胆！！！<br><img src="http://ww2.sinaimg.cn/large/006p0GMxgw1f3w8dg41a0j30e50eh408.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3975667806351178" target="freeweibo-mirror">//@大尸凶的漫画://@何兵: //@北京厨子新号://@…</a>
+</h2>
+<p>//@大尸凶的漫画://@何兵: //@北京厨子新号://@洛兵: 红蓝这么一配，恍惚以为国军来了。。。//@员外_:大连连续的两位书记：红二代薄某来；工人出身的孙春兰 //@十一点以前不睡觉:[吃惊][吃惊][吃惊]<br><br>RE: 当局的暧昧，导致死灰复燃。昨天有人借一年一度大连国际徒步大会，高举文革图腾“大海航行靠舵手”。<br><img src="http://ww2.sinaimg.cn/large/dd816182gw1f3wiyfy2wsj20sg0g2whe.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3975667592415717" target="freeweibo-mirror">//@行者老陈: //@东海之风://@侯小强: 故意忘掉这…</a>
+</h2>
+<p>//@行者老陈: //@东海之风://@侯小强: 故意忘掉这一天是邪恶，忘掉这一天则是愚昧。<br><br>RE: 五十年前，被定性為「十年浩劫」的「無產階級文化大革命」就是從今天開始正式揭開序幕的。<br><img src="http://ww3.sinaimg.cn/large/5937c055jw1f3wuu6m7r9j20j60qfdkd.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3975666187407491" target="freeweibo-mirror">文革余孽！//@大尸凶的漫画://@何兵: //@北京厨子新…</a>
+</h2>
+<p>文革余孽！//@大尸凶的漫画://@何兵: //@北京厨子新号://@洛兵: 红蓝这么一配，恍惚以为国军来了。。。//@员外_:大连连续的两位书记：红二代薄某来；工人出身的孙春兰 //@十一点以前不睡觉:[吃惊][吃惊][吃惊]<br><br>RE: 当局的暧昧，导致死灰复燃。昨天有人借一年一度大连国际徒步大会，高举文革图腾“大海航行靠舵手”。<br><img src="http://ww2.sinaimg.cn/large/dd816182gw1f3wiyfy2wsj20sg0g2whe.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3975665064145236" target="freeweibo-mirror">律师@陈有西 说：雷洋苹果手机有指纹密码和数字密码，别人无法…</a>
 </h2>
@@ -31,9 +79,27 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3975663909974432" target="freeweibo-mirror">//@常四麻子:[弱] //@周难的微博://@50年矛苔:…</a>
+</h2>
+<p>//@常四麻子:[弱] //@周难的微博://@50年矛苔: //@林萍薇-:血色恐怖<br><br>RE: 当局的暧昧，导致死灰复燃。昨天有人借一年一度大连国际徒步大会，高举文革图腾“大海航行靠舵手”。<br><img src="http://ww2.sinaimg.cn/large/dd816182gw1f3wiyfy2wsj20sg0g2whe.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3975663562567840" target="freeweibo-mirror">//@传播学邓建国://@我是西蒙周:转发微博</a>
+</h2>
+<p>//@传播学邓建国://@我是西蒙周:转发微博<br><br>RE: 1966.5.16-2016.5.16 文革50周年。一人发动，举国神经。<br><img src="http://ww4.sinaimg.cn/large/006lO13Bgw1f3vvccf6jbj30ap078t9o.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3975663357217399" target="freeweibo-mirror">//@何兵: //@北京厨子新号://@洛兵: 红蓝这么一配…</a>
 </h2>
 <p>//@何兵: //@北京厨子新号://@洛兵: 红蓝这么一配，恍惚以为国军来了。。。//@员外_:大连连续的两位书记：红二代薄某来；工人出身的孙春兰 //@十一点以前不睡觉:[吃惊][吃惊][吃惊]<br><br>RE: 当局的暧昧，导致死灰复燃。昨天有人借一年一度大连国际徒步大会，高举文革图腾“大海航行靠舵手”。<br><img src="http://ww2.sinaimg.cn/large/dd816182gw1f3wiyfy2wsj20sg0g2whe.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3975663142787203" target="freeweibo-mirror">//@我是西蒙周:转发微博</a>
+</h2>
+<p>//@我是西蒙周:转发微博<br><br>RE: 1966.5.16-2016.5.16 文革50周年。一人发动，举国神经。<br><img src="http://ww4.sinaimg.cn/large/006lO13Bgw1f3vvccf6jbj30ap078t9o.jpg"></p>
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
@@ -72,72 +138,6 @@
 <p>516<br><br>RE: 50年前的今天，一个通知打破了平靜的中国，文革的种子象一声惊雷被深深埋下，他穿上军装戴上红卫兵袖章，他说“要武嘛”！这“要武”从当年红八月开始打死平民、知识分子、地富反坏右，整整持续了50年，从七九到孙志刚，到余纯合，到雷洋…杀戮在继续【费二爷】</p>
 <p>
 	<small> ============== 3小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3975629394894097" target="freeweibo-mirror">50年前的今天，一个通知打破了平靜的中国，文革的种子象一声惊…</a>
-</h2>
-<p>50年前的今天，一个通知打破了平靜的中国，文革的种子象一声惊雷被深深埋下，他穿上军装戴上红卫兵袖章，他说“要武嘛”！这“要武”从当年红八月开始打死平民、知识分子、地富反坏右，整整持续了50年，从七九到孙志刚，到余纯合，到雷洋…杀戮在继续【费二爷】</p>
-<p>
-	<small> ============== 4小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3975599997359173" target="freeweibo-mirror">SPAM 亲身测试确实有效，现在已经瘦了好多斤[太开心]，还…</a>
-</h2>
-<p>SPAM 亲身测试确实有效，现在已经瘦了好多斤[太开心]，还我女神梦[爱你]，不瘦下来你还真不知道你长啥样，美美哒[偷笑]，推荐给那些小胖胖，+唯心: vipnr86</p>
-<p>
-	<small> ============== 6小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3975558323225658" target="freeweibo-mirror">无语。//@傻了吧唧的光光: 把相关权力关进笼子，切断里边的…</a>
-</h2>
-<p>无语。//@傻了吧唧的光光: 把相关权力关进笼子，切断里边的黑利益链条才是解决问题的根本！ //@不沉默的大多数:[衰]不可思议</p>
-<p>
-	<small> ============== 9小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3975553470644448" target="freeweibo-mirror">SPAM 翻翻她的微-博@happy减肥瘦身 [doge]你…</a>
-</h2>
-<p>SPAM 翻翻她的微-博@happy减肥瘦身 [doge]你会发现甩掉肥-肉拥有好身-材是很简单的事情[心]</p>
-<p>
-	<small> ============== 9小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3975552220724047" target="freeweibo-mirror">当局的暧昧，导致死灰复燃。昨天有人借一年一度大连国际徒步大会…</a>
-</h2>
-<p>当局的暧昧，导致死灰复燃。昨天有人借一年一度大连国际徒步大会，高举文革图腾“大海航行靠舵手”。<br><img src="http://ww2.sinaimg.cn/large/dd816182gw1f3wiyfy2wsj20sg0g2whe.jpg"></p>
-<p>
-	<small> ============== 9小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3975545567387608" target="freeweibo-mirror">SPAM 还不错的减肥班（和训练U盘），想瘦身塑形的女孩们 …</a>
-</h2>
-<p>SPAM 还不错的减肥班（和训练U盘），想瘦身塑形的女孩们 直戳总教练微博哦</p>
-<p>
-	<small> ============== 10小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3975543890345525" target="freeweibo-mirror">上联：令计划在天津受审 下联：温家宝到内蒙透气 求横批：上联…</a>
-</h2>
-<p>上联：令计划在天津受审 下联：温家宝到内蒙透气 求横批：上联：令计划在天津受审 下联：温家宝到内蒙透气求横批 中央电视台前天刚刚宣布令计划在天津受审，今天就有报道说温家宝在内蒙赤峰市穿...文字版>> http://t.cn/Rqe0G4Y （新浪长微博>> http://t.cn/zOXAaic）<br><img src="http://ww3.sinaimg.cn/large/3e6961b2jw1f3wi0qw5f6j20c80sfn19.jpg"></p>
-<p>
-	<small> ============== 10小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3975540497541070" target="freeweibo-mirror">SPAM //@小季伏枥:这一个盛世 //@自由职业者在浦东…</a>
-</h2>
-<p>SPAM //@小季伏枥:这一个盛世 //@自由职业者在浦东://@粗茶淡饭-可以清心也: //@沧海蓝狐VB://@-蓝色-心情://@酒缸不小8097://@黄河天下天2:疫苗！疫苗！还是疫苗！人命关天！</p>
-<p>
-	<small> ============== 10小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3975533429944770" target="freeweibo-mirror">SPAM 看完都叹为观止[吃惊][吃惊][赞]</a>
-</h2>
-<p>SPAM 看完都叹为观止[吃惊][吃惊][赞]</p>
-<p>
-	<small> ============== 11小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3975531227347790" target="freeweibo-mirror">这都是这届对江苏的恩赐。//@Value_at_Risk:事…</a>
-</h2>
-<p>这都是这届对江苏的恩赐。//@Value_at_Risk:事到如今还有什么可说的，毫无疑问是这届人民不行！//@断线的红风筝: 转发微博<br><br>RE: #江苏高考##高考难度排行榜# 1.昨晚众多学校紧急召开家长会，以不签影响高考为由威胁家长签同意书，并拿公职人员开刀。[微笑]2.昨天示威时出面的领导还说还给满意的答案，今天就把整条省go.vern.ment门前的路封上了，一直封到高考结束[微笑]#江苏减招#<br><img src="http://ww1.sinaimg.cn/large/005PndRugw1f3w1kdfjvmj30qo1begry.jpg"></p>
-<p>
-	<small> ============== 11小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3975529588178169" target="freeweibo-mirror">更正一下：扫黄不单是捞钱，警察自己嫖娼还不需要付费。//@迟…</a>
-</h2>
-<p>更正一下：扫黄不单是捞钱，警察自己嫖娼还不需要付费。//@迟夙生律师: 博主不一般。 //@定言_无悔://@自由的章鱼哥12://@黃毓民說:翁先生說得很到位，看問題也有独特的见解！[赞]//@涛声依然2016://@沈水微评:博主总结分析的太棒了！[威武] //@东郭-文奴儿://@戎戎日98记:[威武]<br><br>RE: 【警察最擅长的4件事】 一，扫黄。二，抓赌。三，阻止上访。四，协助拆迁。扫黄可以养眼罚款，抓赌可以分钱，阻止上访可以讨好上司，协助拆迁可以结交有钱人。这四个项目不但政治正确，还没有风险，警察干这事时，相当的兴奋。发生像雷洋这种事毕竞是难得一遇，所以，警察扫黄的积极性不会因此而下降。</p>
-<p>
-	<small> ============== 11小时前</small>
 </p>
 <table>
     <tr>
