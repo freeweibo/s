@@ -35,7 +35,7 @@
 </h2>
 <p>SPAM //@李翔196811://@不让上网就上你://@深圳结构老猫: //@乌托国民16://@又来金好多: //@背条老藤上北京://@与狼共舞和握拳而立: [doge]//@加菲g炮1314Cat:[doge]//@叶伟强E:[喵喵] //@青山怎能不妩媚:[doge]//@一滴水里的石头: [doge]<br><br>RE: 「殺人兇手被「悼念」是一個危險信號。」——@新華網<br><img src="http://ww4.sinaimg.cn/large/006rAavhgw1f3xhdq9ks7j30et0ghq5b.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3975898220760866" target="freeweibo-mirror">//@临时到永远://@程海律师: @孟猛律师 @徐昕 @河…</a>
 </h2>
@@ -53,13 +53,13 @@
 </h2>
 <p>//@LifeTime:明明是“中共中央”发的文革通知，怎么只算成毛个人发动？[悲催]<br><br>RE: 516——为了忘却的纪念。什么时候真正全面反思文革，反思它的个人崇拜、无休止的运动、煽动年轻人、破坏法治、盲目仇外、糟蹋历史……中国什么时候才能真正走向文明！黑格尔说历史往往是相似的，第一次出现是悲剧，第二次就是闹剧了。同意请转发<br><img src="http://ww1.sinaimg.cn/large/62c109c2jw1f3xjn80yktj20m80goq5g.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3975892168236603" target="freeweibo-mirror">SPAM http://t.cn/RqDI4hE</a>
 </h2>
 <p>SPAM http://t.cn/RqDI4hE</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3975890364901083" target="freeweibo-mirror">人间地狱！http://t.cn/RqeHC15</a>
 </h2>
@@ -101,7 +101,7 @@
 </h2>
 <p>发图片吧。<br><img src="http://ww4.sinaimg.cn/large/5938534bgw1f3xin86t0wj20ku112gq6.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3975859012466318" target="freeweibo-mirror"></a>
 </h2>
