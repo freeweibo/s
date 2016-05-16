@@ -23,7 +23,7 @@
 </h2>
 <p>SPAM 【纪念日】只是提醒一下，别忘了。所有媒体都讳莫如深，恰好表明记忆很深刻。<br><img src="http://ww1.sinaimg.cn/large/48866320jw1f3x513g8zij20pw0zkjuo.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3975741089437596" target="freeweibo-mirror">SPAM 中国有7.8亿的网民都在网上淘-宝买，每天有过亿的…</a>
 </h2>
@@ -119,13 +119,13 @@
 </h2>
 <p>SPAM 回复@大仙:他亲人不多，却每次运动都搭进一个。 //@大仙:五十年前的今天，某人开始抡刀了，然后人们开始残杀<br><br>RE: 大屠殺通知書，精神的屠戮至今未停[蜡烛]<br><img src="http://ww4.sinaimg.cn/large/64ff12efjw1f3wzf7a2aaj20j60qftcl.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3975698156153379" target="freeweibo-mirror">“文革”的罪孽，不仅在于人权受到极大摧残，经济停滞乃至频临崩…</a>
 </h2>
 <p>“文革”的罪孽，不仅在于人权受到极大摧残，经济停滞乃至频临崩溃。它最大范围地激发了人性中的恶，割断了民族文化，摧毁了道德信仰。不可思议的是，对这样一场深重的浩劫，认识至今还在存疑，流毒至今没能肃清，元凶至今未得追究。<br><img src="http://ww3.sinaimg.cn/large/4ce32014jw1f3wzolq3toj206y0acq3e.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3975695455917336" target="freeweibo-mirror">大屠殺通知書，精神的屠戮至今未停[蜡烛]</a>
 </h2>
