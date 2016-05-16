@@ -47,13 +47,13 @@
 </h2>
 <p>//@彭园v://@流浪男人2:到底在掩盖什么呢？雷惹住谁了[思考]<br><br>RE: 【惊悉：雷洋案获重大发现】今天上午，雷洋案律师组发布重大调查发现：雷洋手机一直在警方手上，且位置信息确实遭到删除，警方在央视上的说法与事实不符。微评：是狐狸总会有露出尾巴的一天。昌平警方上央视回应公众质疑，看似理直气壮，实则假话鬼话连篇，此事必遭舆论新一轮炮轰！试问：视频真相还能...全文： http://m.weibo.cn/3675736060/3975760786283660<br><img src="http://ww2.sinaimg.cn/large/db1747fcgw1f3x6wvxlomj20fu0f8goj.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3975832109668995" target="freeweibo-mirror">//@流浪男人2:到底在掩盖什么呢？雷惹住谁了[思考]</a>
 </h2>
 <p>//@流浪男人2:到底在掩盖什么呢？雷惹住谁了[思考]<br><br>RE: 【惊悉：雷洋案获重大发现】今天上午，雷洋案律师组发布重大调查发现：雷洋手机一直在警方手上，且位置信息确实遭到删除，警方在央视上的说法与事实不符。微评：是狐狸总会有露出尾巴的一天。昌平警方上央视回应公众质疑，看似理直气壮，实则假话鬼话连篇，此事必遭舆论新一轮炮轰！试问：视频真相还能...全文： http://m.weibo.cn/3675736060/3975760786283660<br><img src="http://ww2.sinaimg.cn/large/db1747fcgw1f3x6wvxlomj20fu0f8goj.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3975830625558008" target="freeweibo-mirror">//@杨锦麟: //@朱学东:转发微博</a>
 </h2>
@@ -64,6 +64,12 @@
 	<a href="https://freeweibo.com/weibo/3975830616862853" target="freeweibo-mirror">SPAM 这疯狂十年使用任何词汇都不为过！</a>
 </h2>
 <p>SPAM 这疯狂十年使用任何词汇都不为过！<br><br>RE: 大数据<br><img src="http://ww1.sinaimg.cn/large/59381f1cgw1f3xcdtkrg8j20cl7ps4qp.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3975830260233479" target="freeweibo-mirror">居然有人给文革那种无法无天的乱象洗地吗？</a>
+</h2>
+<p>居然有人给文革那种无法无天的乱象洗地吗？<br><br>RE: 文革中，我们家隔壁就是造反派打人的地方，晚上经常传来人被拷打发出的惨叫。有天夜里，惨叫声特别凄厉，第二天一早，我妈妈朝隔壁看了看，发现是单位里年轻的大学生，已经遍体鳞伤，他看到我妈妈说：阿姨，给口水喝吧。我妈妈连忙舀了一大瓢水递过去。第二天，这个年轻人就死了，有如风中的草芥。</p>
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
@@ -107,7 +113,7 @@
 </h2>
 <p>SPAM //@崔小平律师://@法律案例-文史典故:有点不甘心？<br><br>RE: 老纳粹！<br><img src="http://ww4.sinaimg.cn/large/617fc8a9jw1f3xcmetr8kj20ff0kq77j.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3975815861577619" target="freeweibo-mirror">SPAM 沾满鲜血，不知廉耻</a>
 </h2>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3975814183160464" target="freeweibo-mirror">血腥罪恶的文革将中国的文明、廉耻和智慧彻底铲除殆尽，这在那些…</a>
 </h2>
 <p>血腥罪恶的文革将中国的文明、廉耻和智慧彻底铲除殆尽，这在那些对文革不死心的恶棍身上体现得淋漓尽致！[熊猫]<br><br>RE: 老纳粹！<br><img src="http://ww4.sinaimg.cn/large/617fc8a9jw1f3xcmetr8kj20ff0kq77j.jpg"></p>
-<p>
-	<small> ============== 4小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3975813646635441" target="freeweibo-mirror">//@中科大胡不归:支持习教授，孰是孰非一目了然</a>
-</h2>
-<p>//@中科大胡不归:支持习教授，孰是孰非一目了然</p>
 <p>
 	<small> ============== 4小时前</small>
 </p>
