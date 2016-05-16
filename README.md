@@ -35,13 +35,19 @@
 </h2>
 <p>SPAM //@翻译与翻译研究:今天是五十周年日。<br><br>RE: 人生轨迹（217）读图辨史http://t.cn/RqDb9Yi</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3975875273383536" target="freeweibo-mirror">人生轨迹（217）读图辨史http://t.cn/RqDb9…</a>
 </h2>
 <p>人生轨迹（217）读图辨史http://t.cn/RqDb9Yi</p>
 <p>
 	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3975862786865464" target="freeweibo-mirror">发图片吧。</a>
+</h2>
+<p>发图片吧。<br><img src="http://ww4.sinaimg.cn/large/5938534bgw1f3xin86t0wj20ku112gq6.jpg"></p>
+<p>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3975857230261471" target="freeweibo-mirror">人性泯灭，党性猖狂，好党员！ //@北京律师王兴:以官方文件…</a>
 </h2>
@@ -65,13 +71,13 @@
 </h2>
 <p>[蜡烛] 悼念<br><br>RE: 为了不忘却的纪念：文革期间被迫害致死的155位大师 http://t.cn/RqDZtT0</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3975835508136595" target="freeweibo-mirror">为了不忘却的纪念：文革期间被迫害致死的155位大师 http…</a>
 </h2>
 <p>为了不忘却的纪念：文革期间被迫害致死的155位大师 http://t.cn/RqDZtT0</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3975833251607590" target="freeweibo-mirror">//@花上蝇:有人想回那个癫狂的时代，想的是自己一定会是那个…</a>
 </h2>
@@ -113,7 +119,7 @@
 </h2>
 <p>SPAM //@水木双刀_: //@日天小巨人://@轰天老炮://@鹰隼N1A晏欢:轉發微博<br><br>RE: 大数据<br><img src="http://ww1.sinaimg.cn/large/59381f1cgw1f3xcdtkrg8j20cl7ps4qp.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3975819111995499" target="freeweibo-mirror">SPAM [挖鼻]//@忆梅下西舟: //@章诒和: 她“不…</a>
 </h2>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3975818528585245" target="freeweibo-mirror">SPAM [doge][doge][弱]</a>
 </h2>
 <p>SPAM [doge][doge][弱]<br><br>RE: 老纳粹！<br><img src="http://ww4.sinaimg.cn/large/617fc8a9jw1f3xcmetr8kj20ff0kq77j.jpg"></p>
-<p>
-	<small> ============== 7小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3975818310948372" target="freeweibo-mirror">//@徐昕: //@小怪兽很神勇:文革余孽 //@王小山:聂…</a>
-</h2>
-<p>//@徐昕: //@小怪兽很神勇:文革余孽 //@王小山:聂元梓？//@章诒和:她“不忘”，我们更不忘！//@北村: 纪念……<br><br>RE: 老纳粹！<br><img src="http://ww4.sinaimg.cn/large/617fc8a9jw1f3xcmetr8kj20ff0kq77j.jpg"></p>
 <p>
 	<small> ============== 7小时前</small>
 </p>
