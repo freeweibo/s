@@ -25,6 +25,54 @@
 <p>
 	<small> ============== 1小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3975708739439552" target="freeweibo-mirror">//@大尸凶的漫画: //@张晨初艺术空间:  http:/…</a>
+</h2>
+<p>//@大尸凶的漫画: //@张晨初艺术空间:  http://t.cn/RqeuVT1  //@地理小霸王:持续关注中<br><br>RE: 请不要没收我的转发键和屏蔽阅读。雷洋案全国关注，我们选择公开的都是律师渠道获得的、集体研究过可以公开的消息。有关敏感内容会提交给北京市检察院查证，先不公开。屏蔽律师声音，只会导致社会进一步猜测和不满。于社情、舆情稳定无补。<br><img src="http://ww4.sinaimg.cn/large/6b804b51jw1f3x0flscn2j20qo1bgwqj.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3975708672002061" target="freeweibo-mirror">//@何兵:《论律师求饶》 ？//@张晨初艺术空间: htt…</a>
+</h2>
+<p>//@何兵:《论律师求饶》 ？//@张晨初艺术空间: http://t.cn/RqeuVT1 //@地理小霸王:持续关注中<br><br>RE: 请不要没收我的转发键和屏蔽阅读。雷洋案全国关注，我们选择公开的都是律师渠道获得的、集体研究过可以公开的消息。有关敏感内容会提交给北京市检察院查证，先不公开。屏蔽律师声音，只会导致社会进一步猜测和不满。于社情、舆情稳定无补。<br><img src="http://ww4.sinaimg.cn/large/6b804b51jw1f3x0flscn2j20qo1bgwqj.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3975708030204364" target="freeweibo-mirror">//@筑景园: 转发微博</a>
+</h2>
+<p>//@筑景园: 转发微博<br><br>RE: 请不要没收我的转发键和屏蔽阅读。雷洋案全国关注，我们选择公开的都是律师渠道获得的、集体研究过可以公开的消息。有关敏感内容会提交给北京市检察院查证，先不公开。屏蔽律师声音，只会导致社会进一步猜测和不满。于社情、舆情稳定无补。<br><img src="http://ww4.sinaimg.cn/large/6b804b51jw1f3x0flscn2j20qo1bgwqj.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3975707971904790" target="freeweibo-mirror">//@民间治堵人陈哲宏: //@大尸凶的漫画: //@张晨初…</a>
+</h2>
+<p>//@民间治堵人陈哲宏: //@大尸凶的漫画: //@张晨初艺术空间:   http://t.cn/RqeuVT1   //@地理小霸王:持续关注中<br><br>RE: 请不要没收我的转发键和屏蔽阅读。雷洋案全国关注，我们选择公开的都是律师渠道获得的、集体研究过可以公开的消息。有关敏感内容会提交给北京市检察院查证，先不公开。屏蔽律师声音，只会导致社会进一步猜测和不满。于社情、舆情稳定无补。<br><img src="http://ww4.sinaimg.cn/large/6b804b51jw1f3x0flscn2j20qo1bgwqj.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3975707597533534" target="freeweibo-mirror">《论律师求饶》 ？//@张晨初艺术空间: http://t.…</a>
+</h2>
+<p>《论律师求饶》 ？//@张晨初艺术空间: http://t.cn/RqeuVT1 //@地理小霸王:持续关注中<br><br>RE: 请不要没收我的转发键和屏蔽阅读。雷洋案全国关注，我们选择公开的都是律师渠道获得的、集体研究过可以公开的消息。有关敏感内容会提交给北京市检察院查证，先不公开。屏蔽律师声音，只会导致社会进一步猜测和不满。于社情、舆情稳定无补。<br><img src="http://ww4.sinaimg.cn/large/6b804b51jw1f3x0flscn2j20qo1bgwqj.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3975706440833610" target="freeweibo-mirror">http://t.cn/RqeuVT1 //@地理小霸王:持…</a>
+</h2>
+<p>http://t.cn/RqeuVT1 //@地理小霸王:持续关注中<br><br>RE: 请不要没收我的转发键和屏蔽阅读。雷洋案全国关注，我们选择公开的都是律师渠道获得的、集体研究过可以公开的消息。有关敏感内容会提交给北京市检察院查证，先不公开。屏蔽律师声音，只会导致社会进一步猜测和不满。于社情、舆情稳定无补。<br><img src="http://ww4.sinaimg.cn/large/6b804b51jw1f3x0flscn2j20qo1bgwqj.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3975698945350444" target="freeweibo-mirror">SPAM 回复@大仙:他亲人不多，却每次运动都搭进一个。 /…</a>
+</h2>
+<p>SPAM 回复@大仙:他亲人不多，却每次运动都搭进一个。 //@大仙:五十年前的今天，某人开始抡刀了，然后人们开始残杀<br><br>RE: 大屠殺通知書，精神的屠戮至今未停[蜡烛]<br><img src="http://ww4.sinaimg.cn/large/64ff12efjw1f3wzf7a2aaj20j60qftcl.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3975698156153379" target="freeweibo-mirror">“文革”的罪孽，不仅在于人权受到极大摧残，经济停滞乃至频临崩…</a>
+</h2>
+<p>“文革”的罪孽，不仅在于人权受到极大摧残，经济停滞乃至频临崩溃。它最大范围地激发了人性中的恶，割断了民族文化，摧毁了道德信仰。不可思议的是，对这样一场深重的浩劫，认识至今还在存疑，流毒至今没能肃清，元凶至今未得追究。<br><img src="http://ww3.sinaimg.cn/large/4ce32014jw1f3wzolq3toj206y0acq3e.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3975689655118869" target="freeweibo-mirror">勿忘文革。</a>
 </h2>
 <p>勿忘文革。<br><br>RE: 5.16，文化大革命50周年，勿忘文革、反思文革！ http://t.cn/R2dLCDN<br><img src="http://ww3.sinaimg.cn/large/73570bbdgw1f3wxqhzb0fj20fa0acmy9.jpg"></p>
@@ -41,7 +89,7 @@
 </h2>
 <p>毛左最喜欢说毛大公无私，从不为家人捞好处。事实是，毛让自己的老婆进入权力核心，成为中央文革小组实际领导者；毛的女儿李讷，26岁便接管正军级的解放军报；毛的侄儿毛远新，三十出头便官拜沈阳军区政委，是政治局与毛之间的联络员。如此谋私，可谓登峰造极。毛左视而不见，是把智商变成了痔疮。</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3975687751007108" target="freeweibo-mirror">//@杨锦麟: 五十年前，此類事甚多！</a>
 </h2>
@@ -88,54 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3975681479712339" target="freeweibo-mirror">SPAM //@bj-鲁公: 今天是他们的耻辱日！他们要为此…</a>
 </h2>
 <p>SPAM //@bj-鲁公: 今天是他们的耻辱日！他们要为此背负骂名一万年！<br><br>RE: 五十年来伤心事，三千万户起悲声。<br><img src="http://ww3.sinaimg.cn/large/6362d8eagw1f3wwecf36ej20fd0lcq5o.jpg"></p>
-<p>
-	<small> ============== 3小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3975681354094410" target="freeweibo-mirror">//@南大景凯旋:转发微博</a>
-</h2>
-<p>//@南大景凯旋:转发微博<br><br>RE: 想起王秋赦的箴言<br><img src="http://ww1.sinaimg.cn/large/56facffcjw1f3wwpoq3nyj20br0gojt8.jpg"></p>
-<p>
-	<small> ============== 3小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3975681022950872" target="freeweibo-mirror">//@南大景凯旋://@光远看经济: 一场浩劫，始于50年前…</a>
-</h2>
-<p>//@南大景凯旋://@光远看经济: 一场浩劫，始于50年前的今日。<br><br>RE: 今天是5月16日，是一个特殊的日子。很多年轻人可能不知道，50年前的今天，1966年5月16日，中央发布了《五一六通知》，正式揭开了“文化大革命”的序幕。http://t.cn/Rqe8Jmz</p>
-<p>
-	<small> ============== 3小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3975680917808899" target="freeweibo-mirror">//@作家金槿姬:这次算你们赢！[抓狂]//@-7007-：…</a>
-</h2>
-<p>//@作家金槿姬:这次算你们赢！[抓狂]//@-7007-： @作家金槿姬 你们不行</p>
-<p>
-	<small> ============== 3小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3975680792369698" target="freeweibo-mirror">//@南大景凯旋://@袁立: 【总盯着过去，你会瞎掉一只眼…</a>
-</h2>
-<p>//@南大景凯旋://@袁立: 【总盯着过去，你会瞎掉一只眼，然而忘却历史，你会双目失明】——索尔仁尼琴 //@袁腾飞:中华五千年文明史上、人类八千年文明史上最黑暗的十年！<br><br>RE: 【50年前的今天，5.16宣言发表，文革正式开始】官方材料：文革420余万人被关押审查，172.8万余人死亡，13.5万被以反革命罪处决，武斗死亡23.7万人，703万人伤残，7万多家庭被毁。78年12月13日，叶剑英在中央工作会议闭幕式上说：“文革期间全国整了1亿人，死了2000万人。”警惕文革重来，开放文革档案<br><img src="http://ww2.sinaimg.cn/large/656952ecjw1f3ww30jdq0j20k00ba75p.jpg"></p>
-<p>
-	<small> ============== 3小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3975680742227381" target="freeweibo-mirror">5.16，文化大革命50周年，勿忘文革、反思文革！ http…</a>
-</h2>
-<p>5.16，文化大革命50周年，勿忘文革、反思文革！ http://t.cn/R2dLCDN<br><img src="http://ww3.sinaimg.cn/large/73570bbdgw1f3wxqhzb0fj20fa0acmy9.jpg"></p>
-<p>
-	<small> ============== 3小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3975680641501344" target="freeweibo-mirror">//@侯会微博:回复@喂小猴儿:博客里写过一些。 //@喂小…</a>
-</h2>
-<p>//@侯会微博:回复@喂小猴儿:博客里写过一些。 //@喂小猴儿:侯老师您也能写一些你的文革记忆 //@侯会微博: //@寒山风:抵制左祸！ //@月湖无人区: →_→ //@金陵酒徒仓氏:发动文革的土壤存在，只要某些人需要随时都可以再演一次。</p>
-<p>
-	<small> ============== 3小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3975679848279152" target="freeweibo-mirror">//@羽微微: //@福州曾宏: 警惕史上最大的愚民运动死灰…</a>
-</h2>
-<p>//@羽微微: //@福州曾宏: 警惕史上最大的愚民运动死灰复燃！ //@侯会微博://@寒山风:祸国殃民的文革！<br><br>RE: 【50年前的今天，5.16宣言发表，文革正式开始】官方材料：文革420余万人被关押审查，172.8万余人死亡，13.5万被以反革命罪处决，武斗死亡23.7万人，703万人伤残，7万多家庭被毁。78年12月13日，叶剑英在中央工作会议闭幕式上说：“文革期间全国整了1亿人，死了2000万人。”警惕文革重来，开放文革档案<br><img src="http://ww2.sinaimg.cn/large/656952ecjw1f3ww30jdq0j20k00ba75p.jpg"></p>
-<p>
-	<small> ============== 3小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3975679790052717" target="freeweibo-mirror">//@蓉蓉亿米阳光://@卓越兄:转发微博</a>
-</h2>
-<p>//@蓉蓉亿米阳光://@卓越兄:转发微博<br><br>RE: 五十年前，被定性為「十年浩劫」的「無產階級文化大革命」就是從今天開始正式揭開序幕的。<br><img src="http://ww3.sinaimg.cn/large/5937c055jw1f3wuu6m7r9j20j60qfdkd.jpg"></p>
 <p>
 	<small> ============== 3小时前</small>
 </p>
