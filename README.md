@@ -25,6 +25,12 @@
 <p>
 	<small> ============== 1小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3975886505773556" target="freeweibo-mirror">所以我不担心纪念文革所导致的社会撕裂，我更关注的是社会表达和…</a>
+</h2>
+<p>所以我不担心纪念文革所导致的社会撕裂，我更关注的是社会表达和公开辩论的自由，以及能否形成基础性的辩论规则，从而避免民粹主义的暴力，减少社会成本。</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3975881301226225" target="freeweibo-mirror">SPAM //@翻译与翻译研究:今天是五十周年日。</a>
 </h2>
 <p>SPAM //@翻译与翻译研究:今天是五十周年日。<br><br>RE: 人生轨迹（217）读图辨史http://t.cn/RqDb9Yi</p>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3975817854126916" target="freeweibo-mirror">//@小怪兽很神勇:文革余孽 //@王小山:聂元梓？//@章…</a>
 </h2>
 <p>//@小怪兽很神勇:文革余孽 //@王小山:聂元梓？//@章诒和:她“不忘”，我们更不忘！//@北村: 纪念……<br><br>RE: 老纳粹！<br><img src="http://ww4.sinaimg.cn/large/617fc8a9jw1f3xcmetr8kj20ff0kq77j.jpg"></p>
-<p>
-	<small> ============== 6小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3975816750543190" target="freeweibo-mirror">SPAM //@崔小平律师://@法律案例-文史典故:有点不…</a>
-</h2>
-<p>SPAM //@崔小平律师://@法律案例-文史典故:有点不甘心？<br><br>RE: 老纳粹！<br><img src="http://ww4.sinaimg.cn/large/617fc8a9jw1f3xcmetr8kj20ff0kq77j.jpg"></p>
 <p>
 	<small> ============== 6小时前</small>
 </p>
