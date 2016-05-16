@@ -19,6 +19,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3975709770774668" target="freeweibo-mirror">//@何兵: 《论律师求饶》 ？//@张晨初艺术空间:  h…</a>
+</h2>
+<p>//@何兵: 《论律师求饶》 ？//@张晨初艺术空间:  http://t.cn/RqeuVT1  //@地理小霸王:持续关注中<br><br>RE: 请不要没收我的转发键和屏蔽阅读。雷洋案全国关注，我们选择公开的都是律师渠道获得的、集体研究过可以公开的消息。有关敏感内容会提交给北京市检察院查证，先不公开。屏蔽律师声音，只会导致社会进一步猜测和不满。于社情、舆情稳定无补。<br><img src="http://ww4.sinaimg.cn/large/6b804b51jw1f3x0flscn2j20qo1bgwqj.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3975689655118869" target="freeweibo-mirror">勿忘文革。</a>
 </h2>
 <p>勿忘文革。<br><br>RE: 5.16，文化大革命50周年，勿忘文革、反思文革！ http://t.cn/R2dLCDN<br><img src="http://ww3.sinaimg.cn/large/73570bbdgw1f3wxqhzb0fj20fa0acmy9.jpg"></p>
@@ -41,19 +47,19 @@
 </h2>
 <p>//@杨锦麟: 五十年前，此類事甚多！<br><br>RE: 今天是5．16，文革发动50周年。<br><img src="http://ww4.sinaimg.cn/large/6b804b51jw1f3wvn9qcoej20gu0dgtal.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3975687323114975" target="freeweibo-mirror">必须删[doge]//@白发潇潇法律人:那条关于手机的帖子咋…</a>
 </h2>
 <p>必须删[doge]//@白发潇潇法律人:那条关于手机的帖子咋走失了呢？[抓狂][抓狂][话筒][话筒]<br><br>RE: 【律师调查证据证实警方对雷洋进行了车上突审】律师向雷明芳提取到视频证据显示：5月8日昌平警方向雷洋家属通报死亡原因，允许雷明芳手机录像。视频中警方说：“在车上突审，完了之后回到派出所。这个过程中，突然开车门，就司机往下踹，踹了就想跑”。第一次公开通报中用语“抗拒执法”。第二次通报用...全文： http://m.weibo.cn/1803570001/3975676220223362...全文： http://m.weibo.cn/1803570001/3975676220223362<br><img src="http://ww2.sinaimg.cn/large/6b804b51jw1f3wx77081cj20qo0zkn7i.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3975686626031206" target="freeweibo-mirror">关键词出来了:车上突审。</a>
 </h2>
 <p>关键词出来了:车上突审。<br><br>RE: 【律师调查证据证实警方对雷洋进行了车上突审】律师向雷明芳提取到视频证据显示：5月8日昌平警方向雷洋家属通报死亡原因，允许雷明芳手机录像。视频中警方说：“在车上突审，完了之后回到派出所。这个过程中，突然开车门，就司机往下踹，踹了就想跑”。第一次公开通报中用语“抗拒执法”。第二次通报用...全文： http://m.weibo.cn/1803570001/3975676220223362...全文： http://m.weibo.cn/1803570001/3975676220223362<br><img src="http://ww2.sinaimg.cn/large/6b804b51jw1f3wx77081cj20qo0zkn7i.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3975686143622066" target="freeweibo-mirror">突审</a>
 </h2>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3975679790052717" target="freeweibo-mirror">//@蓉蓉亿米阳光://@卓越兄:转发微博</a>
 </h2>
 <p>//@蓉蓉亿米阳光://@卓越兄:转发微博<br><br>RE: 五十年前，被定性為「十年浩劫」的「無產階級文化大革命」就是從今天開始正式揭開序幕的。<br><img src="http://ww3.sinaimg.cn/large/5937c055jw1f3wuu6m7r9j20j60qfdkd.jpg"></p>
-<p>
-	<small> ============== 3小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3975679773267062" target="freeweibo-mirror">陈大绿什么意思啊，难道不可以在车上进行询问吗？这是警察的职责…</a>
-</h2>
-<p>陈大绿什么意思啊，难道不可以在车上进行询问吗？这是警察的职责，有什么可叽歪的呢。<br><br>RE: 【律师调查证据证实警方对雷洋进行了车上突审】律师向雷明芳提取到视频证据显示：5月8日昌平警方向雷洋家属通报死亡原因，允许雷明芳手机录像。视频中警方说：“在车上突审，完了之后回到派出所。这个过程中，突然开车门，就司机往下踹，踹了就想跑”。第一次公开通报中用语“抗拒执法”。第二次通报用...全文： http://m.weibo.cn/1803570001/3975676220223362...全文： http://m.weibo.cn/1803570001/3975676220223362<br><img src="http://ww2.sinaimg.cn/large/6b804b51jw1f3wx77081cj20qo0zkn7i.jpg"></p>
 <p>
 	<small> ============== 3小时前</small>
 </p>
