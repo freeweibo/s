@@ -23,13 +23,13 @@
 </h2>
 <p>[蜡烛] 悼念<br><br>RE: 为了不忘却的纪念：文革期间被迫害致死的155位大师 http://t.cn/RqDZtT0</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3975835508136595" target="freeweibo-mirror">为了不忘却的纪念：文革期间被迫害致死的155位大师 http…</a>
 </h2>
 <p>为了不忘却的纪念：文革期间被迫害致死的155位大师 http://t.cn/RqDZtT0</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3975832302844330" target="freeweibo-mirror">//@彭园v://@流浪男人2:到底在掩盖什么呢？雷惹住谁了…</a>
 </h2>
@@ -41,7 +41,7 @@
 </h2>
 <p>SPAM //@水木双刀_: //@日天小巨人://@轰天老炮://@鹰隼N1A晏欢:轉發微博<br><br>RE: 大数据<br><img src="http://ww1.sinaimg.cn/large/59381f1cgw1f3xcdtkrg8j20cl7ps4qp.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3975819111995499" target="freeweibo-mirror">SPAM [挖鼻]//@忆梅下西舟: //@章诒和: 她“不…</a>
 </h2>
