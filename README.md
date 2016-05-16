@@ -23,7 +23,7 @@
 </h2>
 <p>SPAM //@翻译与翻译研究:今天是五十周年日。<br><br>RE: 人生轨迹（217）读图辨史http://t.cn/RqDb9Yi</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3975857230261471" target="freeweibo-mirror">人性泯灭，党性猖狂，好党员！ //@北京律师王兴:以官方文件…</a>
 </h2>
@@ -41,13 +41,13 @@
 </h2>
 <p>[蜡烛] 悼念<br><br>RE: 为了不忘却的纪念：文革期间被迫害致死的155位大师 http://t.cn/RqDZtT0</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3975835508136595" target="freeweibo-mirror">为了不忘却的纪念：文革期间被迫害致死的155位大师 http…</a>
 </h2>
 <p>为了不忘却的纪念：文革期间被迫害致死的155位大师 http://t.cn/RqDZtT0</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3975833251607590" target="freeweibo-mirror">//@花上蝇:有人想回那个癫狂的时代，想的是自己一定会是那个…</a>
 </h2>
@@ -89,7 +89,7 @@
 </h2>
 <p>SPAM //@水木双刀_: //@日天小巨人://@轰天老炮://@鹰隼N1A晏欢:轉發微博<br><br>RE: 大数据<br><img src="http://ww1.sinaimg.cn/large/59381f1cgw1f3xcdtkrg8j20cl7ps4qp.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3975819111995499" target="freeweibo-mirror">SPAM [挖鼻]//@忆梅下西舟: //@章诒和: 她“不…</a>
 </h2>
