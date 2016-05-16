@@ -23,7 +23,7 @@
 </h2>
 <p>SPAM 这位女士倒是适合写写“陪侍生涯”之类的回忆录。哪位有渠道的，拜托转达。//@忆梅下西舟: //@章诒和: 她“不忘”，我们更不忘！//@北村: 纪念……<br><br>RE: 老纳粹！<br><img src="http://ww4.sinaimg.cn/large/617fc8a9jw1f3xcmetr8kj20ff0kq77j.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3975818528585245" target="freeweibo-mirror">SPAM [doge][doge][弱]</a>
 </h2>
@@ -107,7 +107,7 @@
 </h2>
 <p>//@jlijames:404图不错。 //@中国公共政策评论: //@北平頑主: //@沙鸥Mark: //@喷嚏网铂程:转发微博<br><br>RE: 今天朋友圈满屏文革，可是能影响到的年轻人应该没有几个。只要教科书忽略，高考不考，文学影视作品不让提，这场浩劫对很多年轻人就几乎没有发生过，甚至变成值得向往的年代。中国历史就还会循环往复……刚才发的朋友圈，事实是，这段历史变成了404……<br><img src="http://ww1.sinaimg.cn/large/67931ce1jw1f3x8uish12j20k00zktfw.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3975802767158860" target="freeweibo-mirror">葛兆光：我绝不接受有人说“文革”有可取之处 http://t…</a>
 </h2>
