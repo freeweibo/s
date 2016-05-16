@@ -43,6 +43,12 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3975745954897215" target="freeweibo-mirror">好吧，这篇文章是真的被删除了。</a>
+</h2>
+<p>好吧，这篇文章是真的被删除了。<br><br>RE: 【探访全国唯一遗存的文革墓群】50年前的今天，中国历史上的“文革”开始。作为那个狂热年代的历史见证，重庆沙坪公园至今遗存着全国唯一一个文革武斗死难者墓群，向后人诉说着那段真实存在的历史。 http://t.cn/RqeH22P</p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3975744248130857" target="freeweibo-mirror">SPAM 【纪念日】只是提醒一下，别忘了。所有媒体都讳莫如深…</a>
 </h2>
 <p>SPAM 【纪念日】只是提醒一下，别忘了。所有媒体都讳莫如深，恰好表明记忆很深刻。<br><img src="http://ww1.sinaimg.cn/large/48866320jw1f3x513g8zij20pw0zkjuo.jpg"></p>
@@ -53,7 +59,7 @@
 </h2>
 <p>SPAM 中国有7.8亿的网民都在网上淘-宝买，每天有过亿的成交量，你却可以利用这个机会开店。</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3975736869634470" target="freeweibo-mirror">//@微笑类星体://@神舟互通: [伤心]//@陆长瑞: …</a>
 </h2>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3975706134285911" target="freeweibo-mirror">【50年前的今天】5.16宣言发表，文革正式开始。当下中国，…</a>
 </h2>
 <p>【50年前的今天】5.16宣言发表，文革正式开始。当下中国，必须警惕文革重来。反思文革，从开放文革档案开始<br><img src="http://ww4.sinaimg.cn/large/656952ecjw1f3x0nis27sj20k00ba75p.jpg"></p>
-<p>
-	<small> ============== 6小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3975704963669267" target="freeweibo-mirror">请不要没收我的转发键和屏蔽阅读。雷洋案全国关注，我们选择公开…</a>
-</h2>
-<p>请不要没收我的转发键和屏蔽阅读。雷洋案全国关注，我们选择公开的都是律师渠道获得的、集体研究过可以公开的消息。有关敏感内容会提交给北京市检察院查证，先不公开。屏蔽律师声音，只会导致社会进一步猜测和不满。于社情、舆情稳定无补。<br><img src="http://ww4.sinaimg.cn/large/6b804b51jw1f3x0flscn2j20qo1bgwqj.jpg"></p>
 <p>
 	<small> ============== 6小时前</small>
 </p>
