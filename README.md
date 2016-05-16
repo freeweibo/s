@@ -53,7 +53,7 @@
 </h2>
 <p>“大革文化命”的“文化大革命”阴魂不散。</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3975763763624593" target="freeweibo-mirror">//@虎叔-: 文革所有史料一日不公开，清算也就遥遥无期</a>
 </h2>
@@ -64,6 +64,12 @@
 	<a href="https://freeweibo.com/weibo/3975763226714783" target="freeweibo-mirror">[吃惊]//@岛国根性VS大国玻璃心: 现在也不知庄周梦蝴蝶…</a>
 </h2>
 <p>[吃惊]//@岛国根性VS大国玻璃心: 现在也不知庄周梦蝴蝶还是蝴蝶梦庄周了……<br><br>RE: 【人文浩劫】文革是非战争状态下的人类浩劫，其实质是人文的浩劫，无法统计当时毁灭了多少有形的文物，但无形的文化和人类的良善之心已荡然无存，如今的五毛和毛粉就是那些邪恶的思维产物，他们邪恶到了比畜生还要畜生的地步，这需要几代人进化蜕变。那么有无可能再次发生文革？几率多大？我可以肯定地...全文： http://m.weibo.cn/1180291890/3975696533000632...全文： http://m.weibo.cn/1180291890/3975696533000632<br><img src="http://ww2.sinaimg.cn/large/4659d332jw1f3wzju7myfj20ay0dwjte.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3975763059400790" target="freeweibo-mirror">雷洋的屎尿+【精液气味】弥漫在小汽车里 http://t.c…</a>
+</h2>
+<p>雷洋的屎尿+【精液气味】弥漫在小汽车里 http://t.cn/RqeRsAH</p>
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
@@ -107,7 +113,7 @@
 </h2>
 <p>//@微笑类星体://@神舟互通: [伤心]//@陆长瑞: //@耋耋翁: #历史上的今天#<br><br>RE: #文革历史上的今天#今天是文化大革命50周年纪念日，1966.5.16~2016.5.16日，为在革中死去的冤魂默哀，愿悲剧不再重演！！！！[蜡烛][蜡烛][蜡烛]<br><img src="http://ww1.sinaimg.cn/large/98d89811jw1f3ww58rfx5j20dw0autad.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3975732889730515" target="freeweibo-mirror">//@隋彭生民商法://@呼格吉勒图父母: 那个苦呀！连顿饱…</a>
 </h2>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3975709884502335" target="freeweibo-mirror">//@邓相超:文革十年已经正在永远把某些人钉在历史的耻辱柱上…</a>
 </h2>
 <p>//@邓相超:文革十年已经正在永远把某些人钉在历史的耻辱柱上！！！ //@又来金好多://@疯-俍话://@蜀黍30:转发微博<br><br>RE: 大屠殺通知書，精神的屠戮至今未停[蜡烛]<br><img src="http://ww4.sinaimg.cn/large/64ff12efjw1f3wzf7a2aaj20j60qftcl.jpg"></p>
-<p>
-	<small> ============== 6小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3975709770774668" target="freeweibo-mirror">//@何兵: 《论律师求饶》 ？//@张晨初艺术空间:  h…</a>
-</h2>
-<p>//@何兵: 《论律师求饶》 ？//@张晨初艺术空间:  http://t.cn/RqeuVT1  //@地理小霸王:持续关注中<br><br>RE: 请不要没收我的转发键和屏蔽阅读。雷洋案全国关注，我们选择公开的都是律师渠道获得的、集体研究过可以公开的消息。有关敏感内容会提交给北京市检察院查证，先不公开。屏蔽律师声音，只会导致社会进一步猜测和不满。于社情、舆情稳定无补。<br><img src="http://ww4.sinaimg.cn/large/6b804b51jw1f3x0flscn2j20qo1bgwqj.jpg"></p>
 <p>
 	<small> ============== 6小时前</small>
 </p>
