@@ -23,7 +23,7 @@
 </h2>
 <p>//@jlijames:404图不错。 //@中国公共政策评论: //@北平頑主: //@沙鸥Mark: //@喷嚏网铂程:转发微博<br><br>RE: 今天朋友圈满屏文革，可是能影响到的年轻人应该没有几个。只要教科书忽略，高考不考，文学影视作品不让提，这场浩劫对很多年轻人就几乎没有发生过，甚至变成值得向往的年代。中国历史就还会循环往复……刚才发的朋友圈，事实是，这段历史变成了404……<br><img src="http://ww1.sinaimg.cn/large/67931ce1jw1f3x8uish12j20k00zktfw.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3975783766688758" target="freeweibo-mirror">人类只有一个地球，计划生育功在当代，利在千秋！</a>
 </h2>
@@ -125,7 +125,7 @@
 </h2>
 <p>SPAM 【纪念日】只是提醒一下，别忘了。所有媒体都讳莫如深，恰好表明记忆很深刻。<br><img src="http://ww1.sinaimg.cn/large/48866320jw1f3x513g8zij20pw0zkjuo.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3975741089437596" target="freeweibo-mirror">SPAM 中国有7.8亿的网民都在网上淘-宝买，每天有过亿的…</a>
 </h2>
