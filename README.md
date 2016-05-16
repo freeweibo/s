@@ -29,13 +29,13 @@
 </h2>
 <p>SPAM [doge][doge][弱]<br><br>RE: 老纳粹！<br><img src="http://ww4.sinaimg.cn/large/617fc8a9jw1f3xcmetr8kj20ff0kq77j.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3975817854126916" target="freeweibo-mirror">//@小怪兽很神勇:文革余孽 //@王小山:聂元梓？//@章…</a>
 </h2>
 <p>//@小怪兽很神勇:文革余孽 //@王小山:聂元梓？//@章诒和:她“不忘”，我们更不忘！//@北村: 纪念……<br><br>RE: 老纳粹！<br><img src="http://ww4.sinaimg.cn/large/617fc8a9jw1f3xcmetr8kj20ff0kq77j.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3975816750543190" target="freeweibo-mirror">SPAM //@崔小平律师://@法律案例-文史典故:有点不…</a>
 </h2>
@@ -79,6 +79,12 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3975810345570329" target="freeweibo-mirror">老纳粹！</a>
+</h2>
+<p>老纳粹！<br><img src="http://ww4.sinaimg.cn/large/617fc8a9jw1f3xcmetr8kj20ff0kq77j.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3975808517313020" target="freeweibo-mirror">SPAM 哪里有压迫？哪里就有反抗！打得赢就打，打不赢就走！</a>
 </h2>
 <p>SPAM 哪里有压迫？哪里就有反抗！打得赢就打，打不赢就走！<br><img src="http://ww1.sinaimg.cn/large/418feff3gw1f3xcbv3pvkj20g0046my9.jpg"></p>
@@ -103,6 +109,12 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3975802767158860" target="freeweibo-mirror">葛兆光：我绝不接受有人说“文革”有可取之处 http://t…</a>
+</h2>
+<p>葛兆光：我绝不接受有人说“文革”有可取之处 http://t.cn/Rqe1H0l</p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3975800874911041" target="freeweibo-mirror">【今天是文革爆发50周年纪念日，特列《文革罪名大全》以供极左…</a>
 </h2>
 <p>【今天是文革爆发50周年纪念日，特列《文革罪名大全》以供极左分子害人骂人、抓人、杀人前使用】现行反革命、历史反革命、反革命破坏分子、反革命修正主义分子、阶级报复反动分子、阶级异己分子、投机倒把分子、投机分子、反党分子、三反分子、三开分子、四不清分子、右派分子、右倾分子、地主分子、富...全文： http://m.weibo.cn/1449533345/3975800874911041</p>
@@ -119,23 +131,11 @@
 </h2>
 <p>SPAM 这就是传说中的“私人订制”呗</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3975784290822674" target="freeweibo-mirror">国家真正的羞耻就是那些实际做不到，却空想着自以为是，折腾人民…</a>
 </h2>
 <p>国家真正的羞耻就是那些实际做不到，却空想着自以为是，折腾人民的傻子。//@歐陽劒凴:难道不是中华人民共和国之耻吗？//@林岳芳:到处是足浴店就是不争的事实，辱骂别人妻女的畜生已毫无人性！//@不沉默的大多数:有朱元璋将对手妻女罚为营妓的野蛮，在以南京大屠杀的态度对待社会。</p>
-<p>
-	<small> ============== 4小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3975783766688758" target="freeweibo-mirror">人类只有一个地球，计划生育功在当代，利在千秋！</a>
-</h2>
-<p>人类只有一个地球，计划生育功在当代，利在千秋！</p>
-<p>
-	<small> ============== 4小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3975781069468160" target="freeweibo-mirror">Poem, and far far away[心] //@我…</a>
-</h2>
-<p>Poem, and far far away[心] //@我讲旧童话:“成延洲于1968年11月生，吉林大学法学硕士，现任内乡县法院党组书记、院长，“其对文学、哲学、宗教学、社会学、美学等都有潜心的学习和思索，并写有哲理类和抒情类等现代诗300多首，受到过汪国真、周国平的赞赏” [哈哈]<br><br>RE: 【河南内乡法院院长：党性和人性冲突时，坚决只论党性不论人性】昨晚，一条法院院长“论党性不论人性”的帖子在微博热传。今天上午，该院工作人员向记者转发了院长成延洲的回应，称被误解和置疑，“不论本身也含着论”，“当党性和人性重合时，既论党性又论人性；当党性和人性并列时，先论党性后论人性...全文： http://m.weibo.cn/5044281310/3975772089179329<br><img src="http://ww1.sinaimg.cn/large/005vnhZYgw1f3x881tx2uj30go0ci75h.jpg"></p>
 <p>
 	<small> ============== 4小时前</small>
 </p>
