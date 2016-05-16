@@ -37,11 +37,29 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3975772089179329" target="freeweibo-mirror">【河南内乡法院院长：党性和人性冲突时，坚决只论党性不论人性】…</a>
+</h2>
+<p>【河南内乡法院院长：党性和人性冲突时，坚决只论党性不论人性】昨晚，一条法院院长“论党性不论人性”的帖子在微博热传。今天上午，该院工作人员向记者转发了院长成延洲的回应，称被误解和置疑，“不论本身也含着论”，“当党性和人性重合时，既论党性又论人性；当党性和人性并列时，先论党性后论人性...全文： http://m.weibo.cn/5044281310/3975772089179329<br><img src="http://ww1.sinaimg.cn/large/005vnhZYgw1f3x881tx2uj30go0ci75h.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3975770915036470" target="freeweibo-mirror">【中国网信办批评《环球时报》炒作】中国互联网监管机构对中国民…</a>
 </h2>
 <p>【中国网信办批评《环球时报》炒作】中国互联网监管机构对中国民族主义小报《环球时报》的报道提出批评，这些报道包括在台湾新总统就职典礼前夕推出一项具有好斗色彩的在线民调，以及把美国总统候选人唐纳德•特朗普称为“跳梁小丑”。http://t.cn/RqeF7rI<br><img src="http://ww2.sinaimg.cn/large/6538fd8cjw1f3x83e30e6j20go09egmo.jpg"></p>
 <p>
 	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3975766452319654" target="freeweibo-mirror">“大革文化命”的“文化大革命”阴魂不散。</a>
+</h2>
+<p>“大革文化命”的“文化大革命”阴魂不散。</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3975763763624593" target="freeweibo-mirror">//@虎叔-: 文革所有史料一日不公开，清算也就遥遥无期</a>
+</h2>
+<p>//@虎叔-: 文革所有史料一日不公开，清算也就遥遥无期</p>
+<p>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3975763226714783" target="freeweibo-mirror">[吃惊]//@岛国根性VS大国玻璃心: 现在也不知庄周梦蝴蝶…</a>
 </h2>
@@ -60,6 +78,12 @@
 <p>//@活着就是煎熬-网易07: //@哥们风太大:基本同意//@梁知行迩://@老渔翁在路上://@崔小平律师:转发微博<br><br>RE: 【人文浩劫】文革是非战争状态下的人类浩劫，其实质是人文的浩劫，无法统计当时毁灭了多少有形的文物，但无形的文化和人类的良善之心已荡然无存，如今的五毛和毛粉就是那些邪恶的思维产物，他们邪恶到了比畜生还要畜生的地步，这需要几代人进化蜕变。那么有无可能再次发生文革？几率多大？我可以肯定地...全文： http://m.weibo.cn/1180291890/3975696533000632...全文： http://m.weibo.cn/1180291890/3975696533000632<br><img src="http://ww2.sinaimg.cn/large/4659d332jw1f3wzju7myfj20ay0dwjte.jpg"></p>
 <p>
 	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3975749171729376" target="freeweibo-mirror">今天，是文革被发动50周年，特再次推荐此文。摘要：文革并未盖…</a>
+</h2>
+<p>今天，是文革被发动50周年，特再次推荐此文。摘要：文革并未盖棺定论。如今中国文革幽灵游荡，文革回潮阴霾弥漫。中国正处于一个关键的历史时刻。中国向何处去，再一次成为焦点。重新讨论文革，正本清源，澄清历史事实，还原历史真相，彻底肃清文革影响，已是当务之急。<br><img src="http://ww1.sinaimg.cn/large/53bd81b0jw1f3x5k4y2sbj20qo1bgn3e.jpg"></p>
+<p>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3975745954897215" target="freeweibo-mirror">好吧，这篇文章是真的被删除了。</a>
 </h2>
@@ -112,30 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3975709770774668" target="freeweibo-mirror">//@何兵: 《论律师求饶》 ？//@张晨初艺术空间:  h…</a>
 </h2>
 <p>//@何兵: 《论律师求饶》 ？//@张晨初艺术空间:  http://t.cn/RqeuVT1  //@地理小霸王:持续关注中<br><br>RE: 请不要没收我的转发键和屏蔽阅读。雷洋案全国关注，我们选择公开的都是律师渠道获得的、集体研究过可以公开的消息。有关敏感内容会提交给北京市检察院查证，先不公开。屏蔽律师声音，只会导致社会进一步猜测和不满。于社情、舆情稳定无补。<br><img src="http://ww4.sinaimg.cn/large/6b804b51jw1f3x0flscn2j20qo1bgwqj.jpg"></p>
-<p>
-	<small> ============== 6小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3975708739439552" target="freeweibo-mirror">//@大尸凶的漫画: //@张晨初艺术空间:  http:/…</a>
-</h2>
-<p>//@大尸凶的漫画: //@张晨初艺术空间:  http://t.cn/RqeuVT1  //@地理小霸王:持续关注中<br><br>RE: 请不要没收我的转发键和屏蔽阅读。雷洋案全国关注，我们选择公开的都是律师渠道获得的、集体研究过可以公开的消息。有关敏感内容会提交给北京市检察院查证，先不公开。屏蔽律师声音，只会导致社会进一步猜测和不满。于社情、舆情稳定无补。<br><img src="http://ww4.sinaimg.cn/large/6b804b51jw1f3x0flscn2j20qo1bgwqj.jpg"></p>
-<p>
-	<small> ============== 6小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3975708672002061" target="freeweibo-mirror">//@何兵:《论律师求饶》 ？//@张晨初艺术空间: htt…</a>
-</h2>
-<p>//@何兵:《论律师求饶》 ？//@张晨初艺术空间: http://t.cn/RqeuVT1 //@地理小霸王:持续关注中<br><br>RE: 请不要没收我的转发键和屏蔽阅读。雷洋案全国关注，我们选择公开的都是律师渠道获得的、集体研究过可以公开的消息。有关敏感内容会提交给北京市检察院查证，先不公开。屏蔽律师声音，只会导致社会进一步猜测和不满。于社情、舆情稳定无补。<br><img src="http://ww4.sinaimg.cn/large/6b804b51jw1f3x0flscn2j20qo1bgwqj.jpg"></p>
-<p>
-	<small> ============== 6小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3975708030204364" target="freeweibo-mirror">//@筑景园: 转发微博</a>
-</h2>
-<p>//@筑景园: 转发微博<br><br>RE: 请不要没收我的转发键和屏蔽阅读。雷洋案全国关注，我们选择公开的都是律师渠道获得的、集体研究过可以公开的消息。有关敏感内容会提交给北京市检察院查证，先不公开。屏蔽律师声音，只会导致社会进一步猜测和不满。于社情、舆情稳定无补。<br><img src="http://ww4.sinaimg.cn/large/6b804b51jw1f3x0flscn2j20qo1bgwqj.jpg"></p>
-<p>
-	<small> ============== 6小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3975707971904790" target="freeweibo-mirror">//@民间治堵人陈哲宏: //@大尸凶的漫画: //@张晨初…</a>
-</h2>
-<p>//@民间治堵人陈哲宏: //@大尸凶的漫画: //@张晨初艺术空间:   http://t.cn/RqeuVT1   //@地理小霸王:持续关注中<br><br>RE: 请不要没收我的转发键和屏蔽阅读。雷洋案全国关注，我们选择公开的都是律师渠道获得的、集体研究过可以公开的消息。有关敏感内容会提交给北京市检察院查证，先不公开。屏蔽律师声音，只会导致社会进一步猜测和不满。于社情、舆情稳定无补。<br><img src="http://ww4.sinaimg.cn/large/6b804b51jw1f3x0flscn2j20qo1bgwqj.jpg"></p>
 <p>
 	<small> ============== 6小时前</small>
 </p>
