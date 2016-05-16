@@ -47,7 +47,7 @@
 </h2>
 <p>//@微笑类星体://@神舟互通: [伤心]//@陆长瑞: //@耋耋翁: #历史上的今天#<br><br>RE: #文革历史上的今天#今天是文化大革命50周年纪念日，1966.5.16~2016.5.16日，为在革中死去的冤魂默哀，愿悲剧不再重演！！！！[蜡烛][蜡烛][蜡烛]<br><img src="http://ww1.sinaimg.cn/large/98d89811jw1f3ww58rfx5j20dw0autad.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3975732889730515" target="freeweibo-mirror">//@隋彭生民商法://@呼格吉勒图父母: 那个苦呀！连顿饱…</a>
 </h2>
@@ -113,13 +113,13 @@
 </h2>
 <p>http://t.cn/RqeuVT1 //@地理小霸王:持续关注中<br><br>RE: 请不要没收我的转发键和屏蔽阅读。雷洋案全国关注，我们选择公开的都是律师渠道获得的、集体研究过可以公开的消息。有关敏感内容会提交给北京市检察院查证，先不公开。屏蔽律师声音，只会导致社会进一步猜测和不满。于社情、舆情稳定无补。<br><img src="http://ww4.sinaimg.cn/large/6b804b51jw1f3x0flscn2j20qo1bgwqj.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3975706134285911" target="freeweibo-mirror">【50年前的今天】5.16宣言发表，文革正式开始。当下中国，…</a>
 </h2>
 <p>【50年前的今天】5.16宣言发表，文革正式开始。当下中国，必须警惕文革重来。反思文革，从开放文革档案开始<br><img src="http://ww4.sinaimg.cn/large/656952ecjw1f3x0nis27sj20k00ba75p.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3975704963669267" target="freeweibo-mirror">请不要没收我的转发键和屏蔽阅读。雷洋案全国关注，我们选择公开…</a>
 </h2>
