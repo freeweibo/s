@@ -19,6 +19,36 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3975818991043918" target="freeweibo-mirror">SPAM 这位女士倒是适合写写“陪侍生涯”之类的回忆录。哪位…</a>
+</h2>
+<p>SPAM 这位女士倒是适合写写“陪侍生涯”之类的回忆录。哪位有渠道的，拜托转达。//@忆梅下西舟: //@章诒和: 她“不忘”，我们更不忘！//@北村: 纪念……<br><br>RE: 老纳粹！<br><img src="http://ww4.sinaimg.cn/large/617fc8a9jw1f3xcmetr8kj20ff0kq77j.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3975818528585245" target="freeweibo-mirror">SPAM [doge][doge][弱]</a>
+</h2>
+<p>SPAM [doge][doge][弱]<br><br>RE: 老纳粹！<br><img src="http://ww4.sinaimg.cn/large/617fc8a9jw1f3xcmetr8kj20ff0kq77j.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3975817854126916" target="freeweibo-mirror">//@小怪兽很神勇:文革余孽 //@王小山:聂元梓？//@章…</a>
+</h2>
+<p>//@小怪兽很神勇:文革余孽 //@王小山:聂元梓？//@章诒和:她“不忘”，我们更不忘！//@北村: 纪念……<br><br>RE: 老纳粹！<br><img src="http://ww4.sinaimg.cn/large/617fc8a9jw1f3xcmetr8kj20ff0kq77j.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3975816750543190" target="freeweibo-mirror">SPAM //@崔小平律师://@法律案例-文史典故:有点不…</a>
+</h2>
+<p>SPAM //@崔小平律师://@法律案例-文史典故:有点不甘心？<br><br>RE: 老纳粹！<br><img src="http://ww4.sinaimg.cn/large/617fc8a9jw1f3xcmetr8kj20ff0kq77j.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3975815861577619" target="freeweibo-mirror">SPAM 沾满鲜血，不知廉耻</a>
+</h2>
+<p>SPAM 沾满鲜血，不知廉耻<br><br>RE: 老纳粹！<br><img src="http://ww4.sinaimg.cn/large/617fc8a9jw1f3xcmetr8kj20ff0kq77j.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3975803714359277" target="freeweibo-mirror">//@jlijames:404图不错。 //@中国公共政策评…</a>
 </h2>
 <p>//@jlijames:404图不错。 //@中国公共政策评论: //@北平頑主: //@沙鸥Mark: //@喷嚏网铂程:转发微博<br><br>RE: 今天朋友圈满屏文革，可是能影响到的年轻人应该没有几个。只要教科书忽略，高考不考，文学影视作品不让提，这场浩劫对很多年轻人就几乎没有发生过，甚至变成值得向往的年代。中国历史就还会循环往复……刚才发的朋友圈，事实是，这段历史变成了404……<br><img src="http://ww1.sinaimg.cn/large/67931ce1jw1f3x8uish12j20k00zktfw.jpg"></p>
@@ -83,7 +113,7 @@
 </h2>
 <p>【中国网信办批评《环球时报》炒作】中国互联网监管机构对中国民族主义小报《环球时报》的报道提出批评，这些报道包括在台湾新总统就职典礼前夕推出一项具有好斗色彩的在线民调，以及把美国总统候选人唐纳德•特朗普称为“跳梁小丑”。http://t.cn/RqeF7rI<br><img src="http://ww2.sinaimg.cn/large/6538fd8cjw1f3x83e30e6j20go09egmo.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3975766452319654" target="freeweibo-mirror">“大革文化命”的“文化大革命”阴魂不散。</a>
 </h2>
@@ -108,36 +138,6 @@
 <p>雷洋的屎尿+【精液气味】弥漫在小汽车里 http://t.cn/RqeRsAH</p>
 <p>
 	<small> ============== 5小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3975762811963375" target="freeweibo-mirror">SPAM #该不该鼓励绝症病人# 痛苦的绝症病人想要放弃自己…</a>
-</h2>
-<p>SPAM #该不该鼓励绝症病人# 痛苦的绝症病人想要放弃自己的生命，我该不该鼓励他？这期奇葩说适合每个人都看一遍，来自不同角度的生死抉择，一秒泪奔。[悲伤]<br><img src="http://ww1.sinaimg.cn/large/67dd74e0gw1f3x72yukxuj20uj27jdx7.jpg"></p>
-<p>
-	<small> ============== 5小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3975761747113167" target="freeweibo-mirror">一个民族应该把自己最令人痛心的教训当作一面镜子，时时檫拭，时…</a>
-</h2>
-<p>一个民族应该把自己最令人痛心的教训当作一面镜子，时时檫拭，时时映照，以便一代又一代的人不重犯历史性的失误，使整个民族能够持续进步。 http://t.cn/RqeDuyv</p>
-<p>
-	<small> ============== 5小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3975760089393182" target="freeweibo-mirror">//@活着就是煎熬-网易07: //@哥们风太大:基本同意/…</a>
-</h2>
-<p>//@活着就是煎熬-网易07: //@哥们风太大:基本同意//@梁知行迩://@老渔翁在路上://@崔小平律师:转发微博<br><br>RE: 【人文浩劫】文革是非战争状态下的人类浩劫，其实质是人文的浩劫，无法统计当时毁灭了多少有形的文物，但无形的文化和人类的良善之心已荡然无存，如今的五毛和毛粉就是那些邪恶的思维产物，他们邪恶到了比畜生还要畜生的地步，这需要几代人进化蜕变。那么有无可能再次发生文革？几率多大？我可以肯定地...全文： http://m.weibo.cn/1180291890/3975696533000632...全文： http://m.weibo.cn/1180291890/3975696533000632<br><img src="http://ww2.sinaimg.cn/large/4659d332jw1f3wzju7myfj20ay0dwjte.jpg"></p>
-<p>
-	<small> ============== 5小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3975749171729376" target="freeweibo-mirror">今天，是文革被发动50周年，特再次推荐此文。摘要：文革并未盖…</a>
-</h2>
-<p>今天，是文革被发动50周年，特再次推荐此文。摘要：文革并未盖棺定论。如今中国文革幽灵游荡，文革回潮阴霾弥漫。中国正处于一个关键的历史时刻。中国向何处去，再一次成为焦点。重新讨论文革，正本清源，澄清历史事实，还原历史真相，彻底肃清文革影响，已是当务之急。<br><img src="http://ww1.sinaimg.cn/large/53bd81b0jw1f3x5k4y2sbj20qo1bgn3e.jpg"></p>
-<p>
-	<small> ============== 6小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3975745954897215" target="freeweibo-mirror">好吧，这篇文章是真的被删除了。</a>
-</h2>
-<p>好吧，这篇文章是真的被删除了。<br><br>RE: 【探访全国唯一遗存的文革墓群】50年前的今天，中国历史上的“文革”开始。作为那个狂热年代的历史见证，重庆沙坪公园至今遗存着全国唯一一个文革武斗死难者墓群，向后人诉说着那段真实存在的历史。 http://t.cn/RqeH22P</p>
-<p>
-	<small> ============== 6小时前</small>
 </p>
 <table>
     <tr>
