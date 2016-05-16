@@ -19,6 +19,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3975907721533683" target="freeweibo-mirror">SPAM //@李翔196811://@不让上网就上你://…</a>
+</h2>
+<p>SPAM //@李翔196811://@不让上网就上你://@深圳结构老猫: //@乌托国民16://@又来金好多: //@背条老藤上北京://@与狼共舞和握拳而立: [doge]//@加菲g炮1314Cat:[doge]//@叶伟强E:[喵喵] //@青山怎能不妩媚:[doge]//@一滴水里的石头: [doge]<br><br>RE: 「殺人兇手被「悼念」是一個危險信號。」——@新華網<br><img src="http://ww4.sinaimg.cn/large/006rAavhgw1f3xhdq9ks7j30et0ghq5b.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3975892403775796" target="freeweibo-mirror">//@LifeTime:明明是“中共中央”发的文革通知，怎么…</a>
 </h2>
 <p>//@LifeTime:明明是“中共中央”发的文革通知，怎么只算成毛个人发动？[悲催]<br><br>RE: 516——为了忘却的纪念。什么时候真正全面反思文革，反思它的个人崇拜、无休止的运动、煽动年轻人、破坏法治、盲目仇外、糟蹋历史……中国什么时候才能真正走向文明！黑格尔说历史往往是相似的，第一次出现是悲剧，第二次就是闹剧了。同意请转发<br><img src="http://ww1.sinaimg.cn/large/62c109c2jw1f3xjn80yktj20m80goq5g.jpg"></p>
@@ -65,7 +71,7 @@
 </h2>
 <p>伤员不能喝水吧：华主席好像很在行，喂鸡蛋清！//@铁头一: 转发微博<br><br>RE: 文革中，我们家隔壁就是造反派打人的地方，晚上经常传来人被拷打发出的惨叫。有天夜里，惨叫声特别凄厉，第二天一早，我妈妈朝隔壁看了看，发现是单位里年轻的大学生，已经遍体鳞伤，他看到我妈妈说：阿姨，给口水喝吧。我妈妈连忙舀了一大瓢水递过去。第二天，这个年轻人就死了，有如风中的草芥。</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3975836212283996" target="freeweibo-mirror">[蜡烛] 悼念</a>
 </h2>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3975818991043918" target="freeweibo-mirror">SPAM 这位女士倒是适合写写“陪侍生涯”之类的回忆录。哪位…</a>
 </h2>
 <p>SPAM 这位女士倒是适合写写“陪侍生涯”之类的回忆录。哪位有渠道的，拜托转达。//@忆梅下西舟: //@章诒和: 她“不忘”，我们更不忘！//@北村: 纪念……<br><br>RE: 老纳粹！<br><img src="http://ww4.sinaimg.cn/large/617fc8a9jw1f3xcmetr8kj20ff0kq77j.jpg"></p>
-<p>
-	<small> ============== 7小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3975818528585245" target="freeweibo-mirror">SPAM [doge][doge][弱]</a>
-</h2>
-<p>SPAM [doge][doge][弱]<br><br>RE: 老纳粹！<br><img src="http://ww4.sinaimg.cn/large/617fc8a9jw1f3xcmetr8kj20ff0kq77j.jpg"></p>
 <p>
 	<small> ============== 7小时前</small>
 </p>
