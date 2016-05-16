@@ -43,6 +43,12 @@
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3975778033043068" target="freeweibo-mirror">今天朋友圈满屏文革，可是能影响到的年轻人应该没有几个。只要教…</a>
+</h2>
+<p>今天朋友圈满屏文革，可是能影响到的年轻人应该没有几个。只要教科书忽略，高考不考，文学影视作品不让提，这场浩劫对很多年轻人就几乎没有发生过，甚至变成值得向往的年代。中国历史就还会循环往复……刚才发的朋友圈，事实是，这段历史变成了404……<br><img src="http://ww1.sinaimg.cn/large/67931ce1jw1f3x8uish12j20k00zktfw.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3975777642354691" target="freeweibo-mirror">SPAM [吃惊][可怜][怒]我在看【雷洋的屎尿+【精液气…</a>
 </h2>
 <p>SPAM [吃惊][可怜][怒]我在看【雷洋的屎尿+【精液气味】弥漫在小汽车里】, 分享给你, 快来看看吧！ | http://t.cn/RqeRLpY<br><img src="http://ww1.sinaimg.cn/large/616fbcb3jw1f3x8v7caqmj20a00fxgna.jpg"></p>
@@ -107,7 +113,7 @@
 </h2>
 <p>//@活着就是煎熬-网易07: //@哥们风太大:基本同意//@梁知行迩://@老渔翁在路上://@崔小平律师:转发微博<br><br>RE: 【人文浩劫】文革是非战争状态下的人类浩劫，其实质是人文的浩劫，无法统计当时毁灭了多少有形的文物，但无形的文化和人类的良善之心已荡然无存，如今的五毛和毛粉就是那些邪恶的思维产物，他们邪恶到了比畜生还要畜生的地步，这需要几代人进化蜕变。那么有无可能再次发生文革？几率多大？我可以肯定地...全文： http://m.weibo.cn/1180291890/3975696533000632...全文： http://m.weibo.cn/1180291890/3975696533000632<br><img src="http://ww2.sinaimg.cn/large/4659d332jw1f3wzju7myfj20ay0dwjte.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3975749171729376" target="freeweibo-mirror">今天，是文革被发动50周年，特再次推荐此文。摘要：文革并未盖…</a>
 </h2>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3975741089437596" target="freeweibo-mirror">SPAM 中国有7.8亿的网民都在网上淘-宝买，每天有过亿的…</a>
 </h2>
 <p>SPAM 中国有7.8亿的网民都在网上淘-宝买，每天有过亿的成交量，你却可以利用这个机会开店。</p>
-<p>
-	<small> ============== 6小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3975736869634470" target="freeweibo-mirror">//@微笑类星体://@神舟互通: [伤心]//@陆长瑞: …</a>
-</h2>
-<p>//@微笑类星体://@神舟互通: [伤心]//@陆长瑞: //@耋耋翁: #历史上的今天#<br><br>RE: #文革历史上的今天#今天是文化大革命50周年纪念日，1966.5.16~2016.5.16日，为在革中死去的冤魂默哀，愿悲剧不再重演！！！！[蜡烛][蜡烛][蜡烛]<br><img src="http://ww1.sinaimg.cn/large/98d89811jw1f3ww58rfx5j20dw0autad.jpg"></p>
 <p>
 	<small> ============== 6小时前</small>
 </p>
