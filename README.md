@@ -53,7 +53,7 @@
 </h2>
 <p>//@崔小平律师:警方掩盖毁灭证据嫌疑很大，不刑事立案，民众猜测不是警方干的可能性，多SB啊！【无法证明警察解锁雷洋手机】有网友称，还有第三种可能性。雷父曾电话雷洋，未接，然后警察出于某种原因触碰该未接来电，就会回拨出去。我刚用苹果手机实验，确如此，故不能证明警察已经解锁雷洋手机和撒谎<br><br>RE: 【陈有西律师曝雷洋案发现最新一个重要疑问】警方称，雷洋苹果手机有指纹密码和数字密码，别人无法打开。但陈有西发微博说，昨天律师从移动公司查到雷洋手机8日午夜00：19解锁拨通其父雷明芳记录。其父说接通过无人说话。而雷洋7日22：09已送到医院记载死亡。谁拨出的？警方说此时手机还丢在抓人现场，...全文： http://m.weibo.cn/1642326133/3975676447319614...全文： http://m.weibo.cn/1642326133/3975676447319614<br><img src="http://ww3.sinaimg.cn/large/61e3e875gw1f3wx60mhwpj20ch0m8q4k.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3975709884502335" target="freeweibo-mirror">//@邓相超:文革十年已经正在永远把某些人钉在历史的耻辱柱上…</a>
 </h2>
@@ -103,6 +103,12 @@
 <p>
 	<small> ============== 5小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3975706134285911" target="freeweibo-mirror">【50年前的今天】5.16宣言发表，文革正式开始。当下中国，…</a>
+</h2>
+<p>【50年前的今天】5.16宣言发表，文革正式开始。当下中国，必须警惕文革重来。反思文革，从开放文革档案开始<br><img src="http://ww4.sinaimg.cn/large/656952ecjw1f3x0nis27sj20k00ba75p.jpg"></p>
+<p>
+	<small> ============== 5小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3975704963669267" target="freeweibo-mirror">请不要没收我的转发键和屏蔽阅读。雷洋案全国关注，我们选择公开…</a>
 </h2>
 <p>请不要没收我的转发键和屏蔽阅读。雷洋案全国关注，我们选择公开的都是律师渠道获得的、集体研究过可以公开的消息。有关敏感内容会提交给北京市检察院查证，先不公开。屏蔽律师声音，只会导致社会进一步猜测和不满。于社情、舆情稳定无补。<br><img src="http://ww4.sinaimg.cn/large/6b804b51jw1f3x0flscn2j20qo1bgwqj.jpg"></p>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3975695455917336" target="freeweibo-mirror">大屠殺通知書，精神的屠戮至今未停[蜡烛]</a>
 </h2>
 <p>大屠殺通知書，精神的屠戮至今未停[蜡烛]<br><img src="http://ww4.sinaimg.cn/large/64ff12efjw1f3wzf7a2aaj20j60qftcl.jpg"></p>
-<p>
-	<small> ============== 6小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3975695333817405" target="freeweibo-mirror">放心了//@活捉死老鼠: //@铁树扉://@幽曾I: //…</a>
-</h2>
-<p>放心了//@活捉死老鼠: //@铁树扉://@幽曾I: //@Nuclear-Winter://@江山勇者2016://@冰负5度:转发微博<br><br>RE: 这届啥都不行 除了警察还行<br><img src="http://ww1.sinaimg.cn/large/006fEXh7gw1f3wueq1s88j30k00zk12a.jpg"></p>
 <p>
 	<small> ============== 6小时前</small>
 </p>
