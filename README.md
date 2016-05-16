@@ -25,6 +25,18 @@
 <p>
 	<small> ============== 1小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3975832302844330" target="freeweibo-mirror">//@彭园v://@流浪男人2:到底在掩盖什么呢？雷惹住谁了…</a>
+</h2>
+<p>//@彭园v://@流浪男人2:到底在掩盖什么呢？雷惹住谁了[思考]<br><br>RE: 【惊悉：雷洋案获重大发现】今天上午，雷洋案律师组发布重大调查发现：雷洋手机一直在警方手上，且位置信息确实遭到删除，警方在央视上的说法与事实不符。微评：是狐狸总会有露出尾巴的一天。昌平警方上央视回应公众质疑，看似理直气壮，实则假话鬼话连篇，此事必遭舆论新一轮炮轰！试问：视频真相还能...全文： http://m.weibo.cn/3675736060/3975760786283660<br><img src="http://ww2.sinaimg.cn/large/db1747fcgw1f3x6wvxlomj20fu0f8goj.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3975821025259355" target="freeweibo-mirror">SPAM //@水木双刀_: //@日天小巨人://@轰天老…</a>
+</h2>
+<p>SPAM //@水木双刀_: //@日天小巨人://@轰天老炮://@鹰隼N1A晏欢:轉發微博<br><br>RE: 大数据<br><img src="http://ww1.sinaimg.cn/large/59381f1cgw1f3xcdtkrg8j20cl7ps4qp.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3975819111995499" target="freeweibo-mirror">SPAM [挖鼻]//@忆梅下西舟: //@章诒和: 她“不…</a>
 </h2>
 <p>SPAM [挖鼻]//@忆梅下西舟: //@章诒和: 她“不忘”，我们更不忘！//@北村: 纪念……<br><br>RE: 老纳粹！<br><img src="http://ww4.sinaimg.cn/large/617fc8a9jw1f3xcmetr8kj20ff0kq77j.jpg"></p>
@@ -59,7 +71,7 @@
 </h2>
 <p>SPAM //@崔小平律师://@法律案例-文史典故:有点不甘心？<br><br>RE: 老纳粹！<br><img src="http://ww4.sinaimg.cn/large/617fc8a9jw1f3xcmetr8kj20ff0kq77j.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3975815861577619" target="freeweibo-mirror">SPAM 沾满鲜血，不知廉耻</a>
 </h2>
@@ -97,6 +109,12 @@
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3975812178952605" target="freeweibo-mirror">//@梧桐树影影婆娑：//@南开老魏034: //@高_彦生…</a>
+</h2>
+<p>//@梧桐树影影婆娑：//@南开老魏034: //@高_彦生: //@沸扬的水:公然假话，这帮流氓警察！<br><br>RE: 【惊悉：雷洋案获重大发现】今天上午，雷洋案律师组发布重大调查发现：雷洋手机一直在警方手上，且位置信息确实遭到删除，警方在央视上的说法与事实不符。微评：是狐狸总会有露出尾巴的一天。昌平警方上央视回应公众质疑，看似理直气壮，实则假话鬼话连篇，此事必遭舆论新一轮炮轰！试问：视频真相还能...全文： http://m.weibo.cn/3675736060/3975760786283660<br><img src="http://ww2.sinaimg.cn/large/db1747fcgw1f3x6wvxlomj20fu0f8goj.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3975810895178019" target="freeweibo-mirror">SPAM 不急，在熬熬就过去了。</a>
 </h2>
 <p>SPAM 不急，在熬熬就过去了。<br><br>RE: 老纳粹！<br><img src="http://ww4.sinaimg.cn/large/617fc8a9jw1f3xcmetr8kj20ff0kq77j.jpg"></p>
@@ -118,24 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3975807665183005" target="freeweibo-mirror">家属说：凌晨00：19分左右接到消息。时间有啥不对的？看看：…</a>
 </h2>
 <p>家属说：凌晨00：19分左右接到消息。时间有啥不对的？看看：http://t.cn/RqD7mLn； http://t.cn/RqD7kIN //@BOBO土豆皮:姐，我也是就事论事哈，就说苹果手机在锁屏并且有未接来电的情况下，点住未接来电往右滑动就能直接拨出去了，不用解锁。<br><br>RE: 就事论事。雷洋的手机是否被解锁，夜里十二点多的电话是否是按有些人说的回拨，都非最关键的。警方说雷洋的手机丢在现场草地里、雷洋死后他们回去现场才找到，后第一时间联系了家属。而家属是夜里一点多接到的警方通知。现在的要点是时间对不上！十二点多的那次“回拨”雷父，是谁拨的？<br><img src="http://ww4.sinaimg.cn/large/005vSjEdjw1f3x2nhcw8zj30k00epgmz.jpg"></p>
-<p>
-	<small> ============== 3小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3975806235720796" target="freeweibo-mirror">//@封新城:转发微博</a>
-</h2>
-<p>//@封新城:转发微博<br><br>RE: 葛兆光：我绝不接受有人说“文革”有可取之处 http://t.cn/Rqe1H0l</p>
-<p>
-	<small> ============== 3小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3975803714359277" target="freeweibo-mirror">//@jlijames:404图不错。 //@中国公共政策评…</a>
-</h2>
-<p>//@jlijames:404图不错。 //@中国公共政策评论: //@北平頑主: //@沙鸥Mark: //@喷嚏网铂程:转发微博<br><br>RE: 今天朋友圈满屏文革，可是能影响到的年轻人应该没有几个。只要教科书忽略，高考不考，文学影视作品不让提，这场浩劫对很多年轻人就几乎没有发生过，甚至变成值得向往的年代。中国历史就还会循环往复……刚才发的朋友圈，事实是，这段历史变成了404……<br><img src="http://ww1.sinaimg.cn/large/67931ce1jw1f3x8uish12j20k00zktfw.jpg"></p>
-<p>
-	<small> ============== 3小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3975802767158860" target="freeweibo-mirror">葛兆光：我绝不接受有人说“文革”有可取之处 http://t…</a>
-</h2>
-<p>葛兆光：我绝不接受有人说“文革”有可取之处 http://t.cn/Rqe1H0l</p>
 <p>
 	<small> ============== 3小时前</small>
 </p>
