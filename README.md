@@ -83,25 +83,25 @@
 </h2>
 <p>//@常四麻子:[弱] //@周难的微博://@50年矛苔: //@林萍薇-:血色恐怖<br><br>RE: 当局的暧昧，导致死灰复燃。昨天有人借一年一度大连国际徒步大会，高举文革图腾“大海航行靠舵手”。<br><img src="http://ww2.sinaimg.cn/large/dd816182gw1f3wiyfy2wsj20sg0g2whe.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3975663562567840" target="freeweibo-mirror">//@传播学邓建国://@我是西蒙周:转发微博</a>
 </h2>
 <p>//@传播学邓建国://@我是西蒙周:转发微博<br><br>RE: 1966.5.16-2016.5.16 文革50周年。一人发动，举国神经。<br><img src="http://ww4.sinaimg.cn/large/006lO13Bgw1f3vvccf6jbj30ap078t9o.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3975663357217399" target="freeweibo-mirror">//@何兵: //@北京厨子新号://@洛兵: 红蓝这么一配…</a>
 </h2>
 <p>//@何兵: //@北京厨子新号://@洛兵: 红蓝这么一配，恍惚以为国军来了。。。//@员外_:大连连续的两位书记：红二代薄某来；工人出身的孙春兰 //@十一点以前不睡觉:[吃惊][吃惊][吃惊]<br><br>RE: 当局的暧昧，导致死灰复燃。昨天有人借一年一度大连国际徒步大会，高举文革图腾“大海航行靠舵手”。<br><img src="http://ww2.sinaimg.cn/large/dd816182gw1f3wiyfy2wsj20sg0g2whe.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3975663142787203" target="freeweibo-mirror">//@我是西蒙周:转发微博</a>
 </h2>
 <p>//@我是西蒙周:转发微博<br><br>RE: 1966.5.16-2016.5.16 文革50周年。一人发动，举国神经。<br><img src="http://ww4.sinaimg.cn/large/006lO13Bgw1f3vvccf6jbj30ap078t9o.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3975660937114727" target="freeweibo-mirror">//@张鸣:警方的谎撒得太多了。</a>
 </h2>
@@ -121,6 +121,12 @@
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3975655752975000" target="freeweibo-mirror">五十年前，被定性為「十年浩劫」的「無產階級文化大革命」就是從…</a>
+</h2>
+<p>五十年前，被定性為「十年浩劫」的「無產階級文化大革命」就是從今天開始正式揭開序幕的。<br><img src="http://ww3.sinaimg.cn/large/5937c055jw1f3wuu6m7r9j20j60qfdkd.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3975655022909669" target="freeweibo-mirror">朋友早上好！//@王有旺导演: 转发微博</a>
 </h2>
 <p>朋友早上好！//@王有旺导演: 转发微博</p>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3975652321080282" target="freeweibo-mirror">@江月听风   【1.5亿在温哥华买豪宅的留学生他叫周天宇，…</a>
 </h2>
 <p>@江月听风   【1.5亿在温哥华买豪宅的留学生他叫周天宇，爷爷叫周建南，曾任机械工业部部长；爸爸叫周小川，中国人民银行行长。一个小留学生，既无工作，又无企业，也无专利发明，何来的上亿巨款？人民的钱就是你家的钱？周行长是不是需要出来澄清一下，你们自称无产阶级，是不是一直在放狗屁。</p>
-<p>
-	<small> ============== 3小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3975649368246384" target="freeweibo-mirror">516</a>
-</h2>
-<p>516<br><br>RE: 50年前的今天，一个通知打破了平靜的中国，文革的种子象一声惊雷被深深埋下，他穿上军装戴上红卫兵袖章，他说“要武嘛”！这“要武”从当年红八月开始打死平民、知识分子、地富反坏右，整整持续了50年，从七九到孙志刚，到余纯合，到雷洋…杀戮在继续【费二爷】</p>
 <p>
 	<small> ============== 3小时前</small>
 </p>
