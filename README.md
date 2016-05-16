@@ -19,6 +19,18 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3975780290241258" target="freeweibo-mirror">年轻人不知道或不了解文革，我们知识分子有责任，即使环境如何恶…</a>
+</h2>
+<p>年轻人不知道或不了解文革，我们知识分子有责任，即使环境如何恶劣，我们没有拿出像样的有关文革真实全景记录的著作。</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3975777642354691" target="freeweibo-mirror">SPAM [吃惊][可怜][怒]我在看【雷洋的屎尿+【精液气…</a>
+</h2>
+<p>SPAM [吃惊][可怜][怒]我在看【雷洋的屎尿+【精液气味】弥漫在小汽车里】, 分享给你, 快来看看吧！ | http://t.cn/RqeRLpY<br><img src="http://ww1.sinaimg.cn/large/616fbcb3jw1f3x8v7caqmj20a00fxgna.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3975776841959530" target="freeweibo-mirror">//@笨笨an: 应称之为狭隘民族主义小报 //@金融评论员…</a>
 </h2>
 <p>//@笨笨an: 应称之为狭隘民族主义小报 //@金融评论员:“中国民族主义小报”最先用的我记得是华尔街日报，你们应该注明出处。[哼]<br><br>RE: 【中国网信办批评《环球时报》炒作】中国互联网监管机构对中国民族主义小报《环球时报》的报道提出批评，这些报道包括在台湾新总统就职典礼前夕推出一项具有好斗色彩的在线民调，以及把美国总统候选人唐纳德•特朗普称为“跳梁小丑”。http://t.cn/RqeF7rI<br><img src="http://ww2.sinaimg.cn/large/6538fd8cjw1f3x83e30e6j20go09egmo.jpg"></p>
@@ -35,13 +47,13 @@
 </h2>
 <p>[吃惊]//@岛国根性VS大国玻璃心: 现在也不知庄周梦蝴蝶还是蝴蝶梦庄周了……<br><br>RE: 【人文浩劫】文革是非战争状态下的人类浩劫，其实质是人文的浩劫，无法统计当时毁灭了多少有形的文物，但无形的文化和人类的良善之心已荡然无存，如今的五毛和毛粉就是那些邪恶的思维产物，他们邪恶到了比畜生还要畜生的地步，这需要几代人进化蜕变。那么有无可能再次发生文革？几率多大？我可以肯定地...全文： http://m.weibo.cn/1180291890/3975696533000632...全文： http://m.weibo.cn/1180291890/3975696533000632<br><img src="http://ww2.sinaimg.cn/large/4659d332jw1f3wzju7myfj20ay0dwjte.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3975762811963375" target="freeweibo-mirror">SPAM #该不该鼓励绝症病人# 痛苦的绝症病人想要放弃自己…</a>
 </h2>
 <p>SPAM #该不该鼓励绝症病人# 痛苦的绝症病人想要放弃自己的生命，我该不该鼓励他？这期奇葩说适合每个人都看一遍，来自不同角度的生死抉择，一秒泪奔。[悲伤]<br><img src="http://ww1.sinaimg.cn/large/67dd74e0gw1f3x72yukxuj20uj27jdx7.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3975760089393182" target="freeweibo-mirror">//@活着就是煎熬-网易07: //@哥们风太大:基本同意/…</a>
 </h2>
@@ -77,7 +89,7 @@
 </h2>
 <p>//@隋彭生民商法://@呼格吉勒图父母: 那个苦呀！连顿饱饭都吃不上，唉无法形容了！[泪][泪][泪][泪][泪][泪][泪][拳头]<br><br>RE: 【50年前的今天】5.16宣言发表，文革正式开始。当下中国，必须警惕文革重来。反思文革，从开放文革档案开始<br><img src="http://ww4.sinaimg.cn/large/656952ecjw1f3x0nis27sj20k00ba75p.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3975727307641813" target="freeweibo-mirror">SPAM 之前买过他家果园的莲雾，味道还不错，喜欢清甜新鲜水…</a>
 </h2>
@@ -124,18 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3975707971904790" target="freeweibo-mirror">//@民间治堵人陈哲宏: //@大尸凶的漫画: //@张晨初…</a>
 </h2>
 <p>//@民间治堵人陈哲宏: //@大尸凶的漫画: //@张晨初艺术空间:   http://t.cn/RqeuVT1   //@地理小霸王:持续关注中<br><br>RE: 请不要没收我的转发键和屏蔽阅读。雷洋案全国关注，我们选择公开的都是律师渠道获得的、集体研究过可以公开的消息。有关敏感内容会提交给北京市检察院查证，先不公开。屏蔽律师声音，只会导致社会进一步猜测和不满。于社情、舆情稳定无补。<br><img src="http://ww4.sinaimg.cn/large/6b804b51jw1f3x0flscn2j20qo1bgwqj.jpg"></p>
-<p>
-	<small> ============== 6小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3975707597533534" target="freeweibo-mirror">《论律师求饶》 ？//@张晨初艺术空间: http://t.…</a>
-</h2>
-<p>《论律师求饶》 ？//@张晨初艺术空间: http://t.cn/RqeuVT1 //@地理小霸王:持续关注中<br><br>RE: 请不要没收我的转发键和屏蔽阅读。雷洋案全国关注，我们选择公开的都是律师渠道获得的、集体研究过可以公开的消息。有关敏感内容会提交给北京市检察院查证，先不公开。屏蔽律师声音，只会导致社会进一步猜测和不满。于社情、舆情稳定无补。<br><img src="http://ww4.sinaimg.cn/large/6b804b51jw1f3x0flscn2j20qo1bgwqj.jpg"></p>
-<p>
-	<small> ============== 6小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3975706440833610" target="freeweibo-mirror">http://t.cn/RqeuVT1 //@地理小霸王:持…</a>
-</h2>
-<p>http://t.cn/RqeuVT1 //@地理小霸王:持续关注中<br><br>RE: 请不要没收我的转发键和屏蔽阅读。雷洋案全国关注，我们选择公开的都是律师渠道获得的、集体研究过可以公开的消息。有关敏感内容会提交给北京市检察院查证，先不公开。屏蔽律师声音，只会导致社会进一步猜测和不满。于社情、舆情稳定无补。<br><img src="http://ww4.sinaimg.cn/large/6b804b51jw1f3x0flscn2j20qo1bgwqj.jpg"></p>
 <p>
 	<small> ============== 6小时前</small>
 </p>
