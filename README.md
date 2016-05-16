@@ -19,6 +19,18 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3975763226714783" target="freeweibo-mirror">[吃惊]//@岛国根性VS大国玻璃心: 现在也不知庄周梦蝴蝶…</a>
+</h2>
+<p>[吃惊]//@岛国根性VS大国玻璃心: 现在也不知庄周梦蝴蝶还是蝴蝶梦庄周了……<br><br>RE: 【人文浩劫】文革是非战争状态下的人类浩劫，其实质是人文的浩劫，无法统计当时毁灭了多少有形的文物，但无形的文化和人类的良善之心已荡然无存，如今的五毛和毛粉就是那些邪恶的思维产物，他们邪恶到了比畜生还要畜生的地步，这需要几代人进化蜕变。那么有无可能再次发生文革？几率多大？我可以肯定地...全文： http://m.weibo.cn/1180291890/3975696533000632...全文： http://m.weibo.cn/1180291890/3975696533000632<br><img src="http://ww2.sinaimg.cn/large/4659d332jw1f3wzju7myfj20ay0dwjte.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3975760089393182" target="freeweibo-mirror">//@活着就是煎熬-网易07: //@哥们风太大:基本同意/…</a>
+</h2>
+<p>//@活着就是煎熬-网易07: //@哥们风太大:基本同意//@梁知行迩://@老渔翁在路上://@崔小平律师:转发微博<br><br>RE: 【人文浩劫】文革是非战争状态下的人类浩劫，其实质是人文的浩劫，无法统计当时毁灭了多少有形的文物，但无形的文化和人类的良善之心已荡然无存，如今的五毛和毛粉就是那些邪恶的思维产物，他们邪恶到了比畜生还要畜生的地步，这需要几代人进化蜕变。那么有无可能再次发生文革？几率多大？我可以肯定地...全文： http://m.weibo.cn/1180291890/3975696533000632...全文： http://m.weibo.cn/1180291890/3975696533000632<br><img src="http://ww2.sinaimg.cn/large/4659d332jw1f3wzju7myfj20ay0dwjte.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3975744248130857" target="freeweibo-mirror">SPAM 【纪念日】只是提醒一下，别忘了。所有媒体都讳莫如深…</a>
 </h2>
 <p>SPAM 【纪念日】只是提醒一下，别忘了。所有媒体都讳莫如深，恰好表明记忆很深刻。<br><img src="http://ww1.sinaimg.cn/large/48866320jw1f3x513g8zij20pw0zkjuo.jpg"></p>
@@ -41,7 +53,7 @@
 </h2>
 <p>//@隋彭生民商法://@呼格吉勒图父母: 那个苦呀！连顿饱饭都吃不上，唉无法形容了！[泪][泪][泪][泪][泪][泪][泪][拳头]<br><br>RE: 【50年前的今天】5.16宣言发表，文革正式开始。当下中国，必须警惕文革重来。反思文革，从开放文革档案开始<br><img src="http://ww4.sinaimg.cn/large/656952ecjw1f3x0nis27sj20k00ba75p.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3975727307641813" target="freeweibo-mirror">SPAM 之前买过他家果园的莲雾，味道还不错，喜欢清甜新鲜水…</a>
 </h2>
@@ -124,18 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3975698945350444" target="freeweibo-mirror">SPAM 回复@大仙:他亲人不多，却每次运动都搭进一个。 /…</a>
 </h2>
 <p>SPAM 回复@大仙:他亲人不多，却每次运动都搭进一个。 //@大仙:五十年前的今天，某人开始抡刀了，然后人们开始残杀<br><br>RE: 大屠殺通知書，精神的屠戮至今未停[蜡烛]<br><img src="http://ww4.sinaimg.cn/large/64ff12efjw1f3wzf7a2aaj20j60qftcl.jpg"></p>
-<p>
-	<small> ============== 6小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3975698156153379" target="freeweibo-mirror">“文革”的罪孽，不仅在于人权受到极大摧残，经济停滞乃至频临崩…</a>
-</h2>
-<p>“文革”的罪孽，不仅在于人权受到极大摧残，经济停滞乃至频临崩溃。它最大范围地激发了人性中的恶，割断了民族文化，摧毁了道德信仰。不可思议的是，对这样一场深重的浩劫，认识至今还在存疑，流毒至今没能肃清，元凶至今未得追究。<br><img src="http://ww3.sinaimg.cn/large/4ce32014jw1f3wzolq3toj206y0acq3e.jpg"></p>
-<p>
-	<small> ============== 6小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3975695455917336" target="freeweibo-mirror">大屠殺通知書，精神的屠戮至今未停[蜡烛]</a>
-</h2>
-<p>大屠殺通知書，精神的屠戮至今未停[蜡烛]<br><img src="http://ww4.sinaimg.cn/large/64ff12efjw1f3wzf7a2aaj20j60qftcl.jpg"></p>
 <p>
 	<small> ============== 6小时前</small>
 </p>
