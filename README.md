@@ -71,7 +71,7 @@
 </h2>
 <p>请不要没收我的转发键和屏蔽阅读。雷洋案全国关注，我们选择公开的都是律师渠道获得的、集体研究过可以公开的消息。有关敏感内容会提交给北京市检察院查证，先不公开。屏蔽律师声音，只会导致社会进一步猜测和不满。于社情、舆情稳定无补。<br><img src="http://ww4.sinaimg.cn/large/6b804b51jw1f3x0flscn2j20qo1bgwqj.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3975703890261178" target="freeweibo-mirror">//@韩东言: 邓飞这个态度实事求是，非常客观，也是探求真相…</a>
 </h2>
@@ -113,13 +113,13 @@
 </h2>
 <p>勿忘文革。<br><br>RE: 5.16，文化大革命50周年，勿忘文革、反思文革！ http://t.cn/R2dLCDN<br><img src="http://ww3.sinaimg.cn/large/73570bbdgw1f3wxqhzb0fj20fa0acmy9.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3975689314671825" target="freeweibo-mirror">以史为鉴，这种很多人以为日本鬼子才能干出来的事情，千万不要被…</a>
 </h2>
 <p>以史为鉴，这种很多人以为日本鬼子才能干出来的事情，千万不要被遗忘[蜡烛][蜡烛][蜡烛][蜡烛][蜡烛]//@徐幸起: //@杨锦麟: 五十年前，此類事甚多！<br><br>RE: 今天是5．16，文革发动50周年。<br><img src="http://ww4.sinaimg.cn/large/6b804b51jw1f3wvn9qcoej20gu0dgtal.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3975688916889827" target="freeweibo-mirror">毛左最喜欢说毛大公无私，从不为家人捞好处。事实是，毛让自己的…</a>
 </h2>
