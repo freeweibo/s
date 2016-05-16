@@ -41,7 +41,7 @@
 </h2>
 <p>人生轨迹（217）读图辨史http://t.cn/RqDb9Yi</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3975857230261471" target="freeweibo-mirror">人性泯灭，党性猖狂，好党员！ //@北京律师王兴:以官方文件…</a>
 </h2>
