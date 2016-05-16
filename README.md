@@ -35,7 +35,7 @@
 </h2>
 <p>SPAM [吃惊][可怜][怒]我在看【雷洋的屎尿+【精液气味】弥漫在小汽车里】, 分享给你, 快来看看吧！ | http://t.cn/RqeRLpY<br><img src="http://ww1.sinaimg.cn/large/616fbcb3jw1f3x8v7caqmj20a00fxgna.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3975776841959530" target="freeweibo-mirror">//@笨笨an: 应称之为狭隘民族主义小报 //@金融评论员…</a>
 </h2>
@@ -71,19 +71,19 @@
 </h2>
 <p>[吃惊]//@岛国根性VS大国玻璃心: 现在也不知庄周梦蝴蝶还是蝴蝶梦庄周了……<br><br>RE: 【人文浩劫】文革是非战争状态下的人类浩劫，其实质是人文的浩劫，无法统计当时毁灭了多少有形的文物，但无形的文化和人类的良善之心已荡然无存，如今的五毛和毛粉就是那些邪恶的思维产物，他们邪恶到了比畜生还要畜生的地步，这需要几代人进化蜕变。那么有无可能再次发生文革？几率多大？我可以肯定地...全文： http://m.weibo.cn/1180291890/3975696533000632...全文： http://m.weibo.cn/1180291890/3975696533000632<br><img src="http://ww2.sinaimg.cn/large/4659d332jw1f3wzju7myfj20ay0dwjte.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3975763059400790" target="freeweibo-mirror">雷洋的屎尿+【精液气味】弥漫在小汽车里 http://t.c…</a>
 </h2>
 <p>雷洋的屎尿+【精液气味】弥漫在小汽车里 http://t.cn/RqeRsAH</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3975762811963375" target="freeweibo-mirror">SPAM #该不该鼓励绝症病人# 痛苦的绝症病人想要放弃自己…</a>
 </h2>
 <p>SPAM #该不该鼓励绝症病人# 痛苦的绝症病人想要放弃自己的生命，我该不该鼓励他？这期奇葩说适合每个人都看一遍，来自不同角度的生死抉择，一秒泪奔。[悲伤]<br><img src="http://ww1.sinaimg.cn/large/67dd74e0gw1f3x72yukxuj20uj27jdx7.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3975760089393182" target="freeweibo-mirror">//@活着就是煎熬-网易07: //@哥们风太大:基本同意/…</a>
 </h2>
@@ -125,7 +125,7 @@
 </h2>
 <p>//@隋彭生民商法://@呼格吉勒图父母: 那个苦呀！连顿饱饭都吃不上，唉无法形容了！[泪][泪][泪][泪][泪][泪][泪][拳头]<br><br>RE: 【50年前的今天】5.16宣言发表，文革正式开始。当下中国，必须警惕文革重来。反思文革，从开放文革档案开始<br><img src="http://ww4.sinaimg.cn/large/656952ecjw1f3x0nis27sj20k00ba75p.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3975727307641813" target="freeweibo-mirror">SPAM 之前买过他家果园的莲雾，味道还不错，喜欢清甜新鲜水…</a>
 </h2>
