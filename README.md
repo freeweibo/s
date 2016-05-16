@@ -43,6 +43,12 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3975890364901083" target="freeweibo-mirror">人间地狱！http://t.cn/RqeHC15</a>
+</h2>
+<p>人间地狱！http://t.cn/RqeHC15</p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3975886505773556" target="freeweibo-mirror">所以我不担心纪念文革所导致的社会撕裂，我更关注的是社会表达和…</a>
 </h2>
 <p>所以我不担心纪念文革所导致的社会撕裂，我更关注的是社会表达和公开辩论的自由，以及能否形成基础性的辩论规则，从而避免民粹主义的暴力，减少社会成本。</p>
@@ -65,13 +71,19 @@
 </h2>
 <p>人生轨迹（217）读图辨史http://t.cn/RqDb9Yi</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3975862786865464" target="freeweibo-mirror">发图片吧。</a>
 </h2>
 <p>发图片吧。<br><img src="http://ww4.sinaimg.cn/large/5938534bgw1f3xin86t0wj20ku112gq6.jpg"></p>
 <p>
 	<small> ============== 4小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3975859012466318" target="freeweibo-mirror"></a>
+</h2>
+<p></p>
+<p>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3975857230261471" target="freeweibo-mirror">人性泯灭，党性猖狂，好党员！ //@北京律师王兴:以官方文件…</a>
 </h2>
@@ -82,6 +94,12 @@
 	<a href="https://freeweibo.com/weibo/3975851786337003" target="freeweibo-mirror">三、其实，「超级魅力型领袖」有时是权力的产物，如果权力和地位…</a>
 </h2>
 <p>三、其实，「超级魅力型领袖」有时是权力的产物，如果权力和地位像蚂蚁窝或蜂窝里的蚁王、蜂王般显赫，他自然就有了魅力，领袖谈笑风扔挥斥方遒的魅力，其实是边上敬业的群众演员衬托出来的，典型如金三。坚持认为猫天生霸气且魅力的人，请看看他站在斯大林和蒋介石身边是个什么样。</p>
+<p>
+	<small> ============== 5小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3975851781535999" target="freeweibo-mirror">「殺人兇手被「悼念」是一個危險信號。」——@新華網</a>
+</h2>
+<p>「殺人兇手被「悼念」是一個危險信號。」——@新華網<br><img src="http://ww4.sinaimg.cn/large/006rAavhgw1f3xhdq9ks7j30et0ghq5b.jpg"></p>
 <p>
 	<small> ============== 5小时前</small>
 </p><h2>
@@ -118,24 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3975832109668995" target="freeweibo-mirror">//@流浪男人2:到底在掩盖什么呢？雷惹住谁了[思考]</a>
 </h2>
 <p>//@流浪男人2:到底在掩盖什么呢？雷惹住谁了[思考]<br><br>RE: 【惊悉：雷洋案获重大发现】今天上午，雷洋案律师组发布重大调查发现：雷洋手机一直在警方手上，且位置信息确实遭到删除，警方在央视上的说法与事实不符。微评：是狐狸总会有露出尾巴的一天。昌平警方上央视回应公众质疑，看似理直气壮，实则假话鬼话连篇，此事必遭舆论新一轮炮轰！试问：视频真相还能...全文： http://m.weibo.cn/3675736060/3975760786283660<br><img src="http://ww2.sinaimg.cn/large/db1747fcgw1f3x6wvxlomj20fu0f8goj.jpg"></p>
-<p>
-	<small> ============== 6小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3975830625558008" target="freeweibo-mirror">//@杨锦麟: //@朱学东:转发微博</a>
-</h2>
-<p>//@杨锦麟: //@朱学东:转发微博<br><br>RE: 大数据<br><img src="http://ww1.sinaimg.cn/large/59381f1cgw1f3xcdtkrg8j20cl7ps4qp.jpg"></p>
-<p>
-	<small> ============== 6小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3975830616862853" target="freeweibo-mirror">SPAM 这疯狂十年使用任何词汇都不为过！</a>
-</h2>
-<p>SPAM 这疯狂十年使用任何词汇都不为过！<br><br>RE: 大数据<br><img src="http://ww1.sinaimg.cn/large/59381f1cgw1f3xcdtkrg8j20cl7ps4qp.jpg"></p>
-<p>
-	<small> ============== 6小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3975830260233479" target="freeweibo-mirror">居然有人给文革那种无法无天的乱象洗地吗？</a>
-</h2>
-<p>居然有人给文革那种无法无天的乱象洗地吗？<br><br>RE: 文革中，我们家隔壁就是造反派打人的地方，晚上经常传来人被拷打发出的惨叫。有天夜里，惨叫声特别凄厉，第二天一早，我妈妈朝隔壁看了看，发现是单位里年轻的大学生，已经遍体鳞伤，他看到我妈妈说：阿姨，给口水喝吧。我妈妈连忙舀了一大瓢水递过去。第二天，这个年轻人就死了，有如风中的草芥。</p>
 <p>
 	<small> ============== 6小时前</small>
 </p>
