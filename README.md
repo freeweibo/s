@@ -37,6 +37,12 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3975629394894097" target="freeweibo-mirror">50年前的今天，一个通知打破了平靜的中国，文革的种子象一声惊…</a>
+</h2>
+<p>50年前的今天，一个通知打破了平靜的中国，文革的种子象一声惊雷被深深埋下，他穿上军装戴上红卫兵袖章，他说“要武嘛”！这“要武”从当年红八月开始打死平民、知识分子、地富反坏右，整整持续了50年，从七九到孙志刚，到余纯合，到雷洋…杀戮在继续【费二爷】</p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3975599997359173" target="freeweibo-mirror">SPAM 亲身测试确实有效，现在已经瘦了好多斤[太开心]，还…</a>
 </h2>
 <p>SPAM 亲身测试确实有效，现在已经瘦了好多斤[太开心]，还我女神梦[爱你]，不瘦下来你还真不知道你长啥样，美美哒[偷笑]，推荐给那些小胖胖，+唯心: vipnr86</p>
@@ -77,7 +83,7 @@
 </h2>
 <p>SPAM 看完都叹为观止[吃惊][吃惊][赞]</p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3975531227347790" target="freeweibo-mirror">这都是这届对江苏的恩赐。//@Value_at_Risk:事…</a>
 </h2>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3975492824193712" target="freeweibo-mirror">童大焕：胡适先生说：一个肮脏的国家，如果人人都开始讲规则而不…</a>
 </h2>
 <p>童大焕：胡适先生说：一个肮脏的国家，如果人人都开始讲规则而不是谈道德，最终会变成一个有人味儿的正常国家，道德自然会逐渐回归。一个乾净的国家，如果人人都不讲规则却大谈道德，天天没事儿就谈道德规范，最终这个国家会堕落成为一个伪君子遍布的肮脏国家。http://t.cn/Rqexdvj<br><img src="http://ww2.sinaimg.cn/large/6b804b51jw1f3wc5i7kz8j20qo1bgtec.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3975480220832228" target="freeweibo-mirror">SPAM @推广微_薄-粉-丝 768570786[q]</a>
-</h2>
-<p>SPAM @推广微_薄-粉-丝 768570786[q]</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
