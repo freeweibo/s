@@ -83,43 +83,43 @@
 </h2>
 <p>SPAM //@bj-鲁公: 今天是他们的耻辱日！他们要为此背负骂名一万年！<br><br>RE: 五十年来伤心事，三千万户起悲声。<br><img src="http://ww3.sinaimg.cn/large/6362d8eagw1f3wwecf36ej20fd0lcq5o.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3975681354094410" target="freeweibo-mirror">//@南大景凯旋:转发微博</a>
 </h2>
 <p>//@南大景凯旋:转发微博<br><br>RE: 想起王秋赦的箴言<br><img src="http://ww1.sinaimg.cn/large/56facffcjw1f3wwpoq3nyj20br0gojt8.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3975681022950872" target="freeweibo-mirror">//@南大景凯旋://@光远看经济: 一场浩劫，始于50年前…</a>
 </h2>
 <p>//@南大景凯旋://@光远看经济: 一场浩劫，始于50年前的今日。<br><br>RE: 今天是5月16日，是一个特殊的日子。很多年轻人可能不知道，50年前的今天，1966年5月16日，中央发布了《五一六通知》，正式揭开了“文化大革命”的序幕。http://t.cn/Rqe8Jmz</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3975680917808899" target="freeweibo-mirror">//@作家金槿姬:这次算你们赢！[抓狂]//@-7007-：…</a>
 </h2>
 <p>//@作家金槿姬:这次算你们赢！[抓狂]//@-7007-： @作家金槿姬 你们不行</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3975680792369698" target="freeweibo-mirror">//@南大景凯旋://@袁立: 【总盯着过去，你会瞎掉一只眼…</a>
 </h2>
 <p>//@南大景凯旋://@袁立: 【总盯着过去，你会瞎掉一只眼，然而忘却历史，你会双目失明】——索尔仁尼琴 //@袁腾飞:中华五千年文明史上、人类八千年文明史上最黑暗的十年！<br><br>RE: 【50年前的今天，5.16宣言发表，文革正式开始】官方材料：文革420余万人被关押审查，172.8万余人死亡，13.5万被以反革命罪处决，武斗死亡23.7万人，703万人伤残，7万多家庭被毁。78年12月13日，叶剑英在中央工作会议闭幕式上说：“文革期间全国整了1亿人，死了2000万人。”警惕文革重来，开放文革档案<br><img src="http://ww2.sinaimg.cn/large/656952ecjw1f3ww30jdq0j20k00ba75p.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3975680742227381" target="freeweibo-mirror">5.16，文化大革命50周年，勿忘文革、反思文革！ http…</a>
 </h2>
 <p>5.16，文化大革命50周年，勿忘文革、反思文革！ http://t.cn/R2dLCDN<br><img src="http://ww3.sinaimg.cn/large/73570bbdgw1f3wxqhzb0fj20fa0acmy9.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3975680641501344" target="freeweibo-mirror">//@侯会微博:回复@喂小猴儿:博客里写过一些。 //@喂小…</a>
 </h2>
 <p>//@侯会微博:回复@喂小猴儿:博客里写过一些。 //@喂小猴儿:侯老师您也能写一些你的文革记忆 //@侯会微博: //@寒山风:抵制左祸！ //@月湖无人区: →_→ //@金陵酒徒仓氏:发动文革的土壤存在，只要某些人需要随时都可以再演一次。</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3975679848279152" target="freeweibo-mirror">//@羽微微: //@福州曾宏: 警惕史上最大的愚民运动死灰…</a>
 </h2>
