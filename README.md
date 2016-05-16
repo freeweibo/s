@@ -77,13 +77,13 @@
 </h2>
 <p>//@民间治堵人陈哲宏: //@大尸凶的漫画: //@张晨初艺术空间:   http://t.cn/RqeuVT1   //@地理小霸王:持续关注中<br><br>RE: 请不要没收我的转发键和屏蔽阅读。雷洋案全国关注，我们选择公开的都是律师渠道获得的、集体研究过可以公开的消息。有关敏感内容会提交给北京市检察院查证，先不公开。屏蔽律师声音，只会导致社会进一步猜测和不满。于社情、舆情稳定无补。<br><img src="http://ww4.sinaimg.cn/large/6b804b51jw1f3x0flscn2j20qo1bgwqj.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3975707597533534" target="freeweibo-mirror">《论律师求饶》 ？//@张晨初艺术空间: http://t.…</a>
 </h2>
 <p>《论律师求饶》 ？//@张晨初艺术空间: http://t.cn/RqeuVT1 //@地理小霸王:持续关注中<br><br>RE: 请不要没收我的转发键和屏蔽阅读。雷洋案全国关注，我们选择公开的都是律师渠道获得的、集体研究过可以公开的消息。有关敏感内容会提交给北京市检察院查证，先不公开。屏蔽律师声音，只会导致社会进一步猜测和不满。于社情、舆情稳定无补。<br><img src="http://ww4.sinaimg.cn/large/6b804b51jw1f3x0flscn2j20qo1bgwqj.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3975706440833610" target="freeweibo-mirror">http://t.cn/RqeuVT1 //@地理小霸王:持…</a>
 </h2>
