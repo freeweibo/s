@@ -19,6 +19,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3975836212283996" target="freeweibo-mirror">[蜡烛] 悼念</a>
+</h2>
+<p>[蜡烛] 悼念<br><br>RE: 为了不忘却的纪念：文革期间被迫害致死的155位大师 http://t.cn/RqDZtT0</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3975819111995499" target="freeweibo-mirror">SPAM [挖鼻]//@忆梅下西舟: //@章诒和: 她“不…</a>
 </h2>
 <p>SPAM [挖鼻]//@忆梅下西舟: //@章诒和: 她“不忘”，我们更不忘！//@北村: 纪念……<br><br>RE: 老纳粹！<br><img src="http://ww4.sinaimg.cn/large/617fc8a9jw1f3xcmetr8kj20ff0kq77j.jpg"></p>
@@ -59,19 +65,19 @@
 </h2>
 <p>SPAM 沾满鲜血，不知廉耻<br><br>RE: 老纳粹！<br><img src="http://ww4.sinaimg.cn/large/617fc8a9jw1f3xcmetr8kj20ff0kq77j.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3975815332648584" target="freeweibo-mirror">//@又见叶飘零: 晒大魔头！聂元梓，“文革”时期北京造反派…</a>
 </h2>
 <p>//@又见叶飘零: 晒大魔头！聂元梓，“文革”时期北京造反派的五大领袖之一。<br><br>RE: 老纳粹！<br><img src="http://ww4.sinaimg.cn/large/617fc8a9jw1f3xcmetr8kj20ff0kq77j.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3975815174231567" target="freeweibo-mirror">//@米家那个山:转发微博</a>
 </h2>
 <p>//@米家那个山:转发微博<br><br>RE: 【历史·文革】1966年5月16日，中共中央政治局扩大会议通过关于开展文化大革命的通知，标志着十年文革正式开始。1981年中共十一届六中全会通过《关于建国以来党的若干历史问题的决议》，庄重宣布：“文化大革命”是一场由领导者错误发动，被反革命集团利用，给党、国家和各族人民带来严重灾难的内乱。<br><img src="http://ww2.sinaimg.cn/large/61e04755jw1f3x5wvy5cej20j60gm0u8.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3975814183160464" target="freeweibo-mirror">血腥罪恶的文革将中国的文明、廉耻和智慧彻底铲除殆尽，这在那些…</a>
 </h2>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3975802767158860" target="freeweibo-mirror">葛兆光：我绝不接受有人说“文革”有可取之处 http://t…</a>
 </h2>
 <p>葛兆光：我绝不接受有人说“文革”有可取之处 http://t.cn/Rqe1H0l</p>
-<p>
-	<small> ============== 3小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3975800874911041" target="freeweibo-mirror">【今天是文革爆发50周年纪念日，特列《文革罪名大全》以供极左…</a>
-</h2>
-<p>【今天是文革爆发50周年纪念日，特列《文革罪名大全》以供极左分子害人骂人、抓人、杀人前使用】现行反革命、历史反革命、反革命破坏分子、反革命修正主义分子、阶级报复反动分子、阶级异己分子、投机倒把分子、投机分子、反党分子、三反分子、三开分子、四不清分子、右派分子、右倾分子、地主分子、富...全文： http://m.weibo.cn/1449533345/3975800874911041</p>
 <p>
 	<small> ============== 3小时前</small>
 </p>
