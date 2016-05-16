@@ -85,6 +85,18 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3975695333817405" target="freeweibo-mirror">放心了//@活捉死老鼠: //@铁树扉://@幽曾I: //…</a>
+</h2>
+<p>放心了//@活捉死老鼠: //@铁树扉://@幽曾I: //@Nuclear-Winter://@江山勇者2016://@冰负5度:转发微博<br><br>RE: 这届啥都不行 除了警察还行<br><img src="http://ww1.sinaimg.cn/large/006fEXh7gw1f3wueq1s88j30k00zk12a.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3975694138817473" target="freeweibo-mirror">//@六安自媒体:[疑问]//@邓飞:如果不是已经解锁的警察…</a>
+</h2>
+<p>//@六安自媒体:[疑问]//@邓飞:如果不是已经解锁的警察撒谎，那就是雷洋魂魄自己打父亲手机喊冤？<br><br>RE: 【陈有西律师曝雷洋案发现最新一个重要疑问】警方称，雷洋苹果手机有指纹密码和数字密码，别人无法打开。但陈有西发微博说，昨天律师从移动公司查到雷洋手机8日午夜00：19解锁拨通其父雷明芳记录。其父说接通过无人说话。而雷洋7日22：09已送到医院记载死亡。谁拨出的？警方说此时手机还丢在抓人现场，...全文： http://m.weibo.cn/1642326133/3975676447319614...全文： http://m.weibo.cn/1642326133/3975676447319614<br><img src="http://ww3.sinaimg.cn/large/61e3e875gw1f3wx60mhwpj20ch0m8q4k.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3975689655118869" target="freeweibo-mirror">勿忘文革。</a>
 </h2>
 <p>勿忘文革。<br><br>RE: 5.16，文化大革命50周年，勿忘文革、反思文革！ http://t.cn/R2dLCDN<br><img src="http://ww3.sinaimg.cn/large/73570bbdgw1f3wxqhzb0fj20fa0acmy9.jpg"></p>
@@ -124,18 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3975686143622066" target="freeweibo-mirror">突审</a>
 </h2>
 <p>突审<br><br>RE: 【律师调查证据证实警方对雷洋进行了车上突审】律师向雷明芳提取到视频证据显示：5月8日昌平警方向雷洋家属通报死亡原因，允许雷明芳手机录像。视频中警方说：“在车上突审，完了之后回到派出所。这个过程中，突然开车门，就司机往下踹，踹了就想跑”。第一次公开通报中用语“抗拒执法”。第二次通报用...全文： http://m.weibo.cn/1803570001/3975676220223362...全文： http://m.weibo.cn/1803570001/3975676220223362<br><img src="http://ww2.sinaimg.cn/large/6b804b51jw1f3wx77081cj20qo0zkn7i.jpg"></p>
-<p>
-	<small> ============== 3小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3975685167052160" target="freeweibo-mirror">2016年5月16日，巨大的缄默。能否彻底否定文革？全民如何…</a>
-</h2>
-<p>2016年5月16日，巨大的缄默。能否彻底否定文革？全民如何反思文革？<br><img src="http://ww3.sinaimg.cn/large/64e9831agw1f3wy85aw0ij20j60qfwj2.jpg"></p>
-<p>
-	<small> ============== 3小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3975685158864917" target="freeweibo-mirror">SPAM 形「左」實右，以「左」謀私，至今大有人在 http…</a>
-</h2>
-<p>SPAM 形「左」實右，以「左」謀私，至今大有人在 http://t.cn/RqeNLm6</p>
 <p>
 	<small> ============== 3小时前</small>
 </p>
