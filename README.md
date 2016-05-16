@@ -65,19 +65,19 @@
 </h2>
 <p>2016年5月16日，巨大的缄默。能否彻底否定文革？全民如何反思文革？<br><img src="http://ww3.sinaimg.cn/large/64e9831agw1f3wy85aw0ij20j60qfwj2.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3975685158864917" target="freeweibo-mirror">SPAM 形「左」實右，以「左」謀私，至今大有人在 http…</a>
 </h2>
 <p>SPAM 形「左」實右，以「左」謀私，至今大有人在 http://t.cn/RqeNLm6</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3975684836250302" target="freeweibo-mirror">//@荷永: 如此造假是更严重的犯罪//@自然的张侃: 难怪…</a>
 </h2>
 <p>//@荷永: 如此造假是更严重的犯罪//@自然的张侃: 难怪受委托律师团要及时发布了解到的最新情况。看来，律师团面对的不是一般的执法过度致人死亡案件。律师团想必也觉得危险，因此采取试图获得民众支持的自保。警方执法致死人命，总会发生的……能不能不要造假？要保住这个底线嘛，真是无法无天。<br><br>RE: 【律师调查证据证实警方对雷洋进行了车上突审】律师向雷明芳提取到视频证据显示：5月8日昌平警方向雷洋家属通报死亡原因，允许雷明芳手机录像。视频中警方说：“在车上突审，完了之后回到派出所。这个过程中，突然开车门，就司机往下踹，踹了就想跑”。第一次公开通报中用语“抗拒执法”。第二次通报用...全文： http://m.weibo.cn/1803570001/3975676220223362...全文： http://m.weibo.cn/1803570001/3975676220223362<br><img src="http://ww2.sinaimg.cn/large/6b804b51jw1f3wx77081cj20qo0zkn7i.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3975681479712339" target="freeweibo-mirror">SPAM //@bj-鲁公: 今天是他们的耻辱日！他们要为此…</a>
 </h2>
