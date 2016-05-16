@@ -77,7 +77,7 @@
 </h2>
 <p>发表了博文《20律师要求对雷洋案警察等立即按滥用职权罪立案追责！》雷洋非正常死亡案律师法律意见书致函人（20位律师）：程海北京悟天律师事务所律师，18910535236。孟猛北京华泰（郑州）律师事务所http://t.cn/RqDfoqH<br><img src="http://ww4.sinaimg.cn/large/8f4dacc9jw1f3xl4z1zavj207607fjs8.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3975883243116620" target="freeweibo-mirror">//@普法三十年-: //@迷-与-悟丶94: //@舜之壤…</a>
 </h2>
