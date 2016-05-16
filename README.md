@@ -19,6 +19,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3975803714359277" target="freeweibo-mirror">//@jlijames:404图不错。 //@中国公共政策评…</a>
+</h2>
+<p>//@jlijames:404图不错。 //@中国公共政策评论: //@北平頑主: //@沙鸥Mark: //@喷嚏网铂程:转发微博<br><br>RE: 今天朋友圈满屏文革，可是能影响到的年轻人应该没有几个。只要教科书忽略，高考不考，文学影视作品不让提，这场浩劫对很多年轻人就几乎没有发生过，甚至变成值得向往的年代。中国历史就还会循环往复……刚才发的朋友圈，事实是，这段历史变成了404……<br><img src="http://ww1.sinaimg.cn/large/67931ce1jw1f3x8uish12j20k00zktfw.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3975781069468160" target="freeweibo-mirror">Poem, and far far away[心] //@我…</a>
 </h2>
 <p>Poem, and far far away[心] //@我讲旧童话:“成延洲于1968年11月生，吉林大学法学硕士，现任内乡县法院党组书记、院长，“其对文学、哲学、宗教学、社会学、美学等都有潜心的学习和思索，并写有哲理类和抒情类等现代诗300多首，受到过汪国真、周国平的赞赏” [哈哈]<br><br>RE: 【河南内乡法院院长：党性和人性冲突时，坚决只论党性不论人性】昨晚，一条法院院长“论党性不论人性”的帖子在微博热传。今天上午，该院工作人员向记者转发了院长成延洲的回应，称被误解和置疑，“不论本身也含着论”，“当党性和人性重合时，既论党性又论人性；当党性和人性并列时，先论党性后论人性...全文： http://m.weibo.cn/5044281310/3975772089179329<br><img src="http://ww1.sinaimg.cn/large/005vnhZYgw1f3x881tx2uj30go0ci75h.jpg"></p>
@@ -53,7 +59,7 @@
 </h2>
 <p>【中国网信办批评《环球时报》炒作】中国互联网监管机构对中国民族主义小报《环球时报》的报道提出批评，这些报道包括在台湾新总统就职典礼前夕推出一项具有好斗色彩的在线民调，以及把美国总统候选人唐纳德•特朗普称为“跳梁小丑”。http://t.cn/RqeF7rI<br><img src="http://ww2.sinaimg.cn/large/6538fd8cjw1f3x83e30e6j20go09egmo.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3975766452319654" target="freeweibo-mirror">“大革文化命”的“文化大革命”阴魂不散。</a>
 </h2>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3975732889730515" target="freeweibo-mirror">//@隋彭生民商法://@呼格吉勒图父母: 那个苦呀！连顿饱…</a>
 </h2>
 <p>//@隋彭生民商法://@呼格吉勒图父母: 那个苦呀！连顿饱饭都吃不上，唉无法形容了！[泪][泪][泪][泪][泪][泪][泪][拳头]<br><br>RE: 【50年前的今天】5.16宣言发表，文革正式开始。当下中国，必须警惕文革重来。反思文革，从开放文革档案开始<br><img src="http://ww4.sinaimg.cn/large/656952ecjw1f3x0nis27sj20k00ba75p.jpg"></p>
-<p>
-	<small> ============== 6小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3975727307641813" target="freeweibo-mirror">SPAM 之前买过他家果园的莲雾，味道还不错，喜欢清甜新鲜水…</a>
-</h2>
-<p>SPAM 之前买过他家果园的莲雾，味道还不错，喜欢清甜新鲜水果的朋友可以拿下。</p>
 <p>
 	<small> ============== 6小时前</small>
 </p>
