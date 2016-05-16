@@ -41,7 +41,7 @@
 </h2>
 <p>//@花上蝇:有人想回那个癫狂的时代，想的是自己一定会是那个打人者，而不是被害者。但身处那个时代，还真不一定谁是那个被打死的。想回去不过是想捞点规则以外的利益罢了。<br><br>RE: 文革中，我们家隔壁就是造反派打人的地方，晚上经常传来人被拷打发出的惨叫。有天夜里，惨叫声特别凄厉，第二天一早，我妈妈朝隔壁看了看，发现是单位里年轻的大学生，已经遍体鳞伤，他看到我妈妈说：阿姨，给口水喝吧。我妈妈连忙舀了一大瓢水递过去。第二天，这个年轻人就死了，有如风中的草芥。</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3975832302844330" target="freeweibo-mirror">//@彭园v://@流浪男人2:到底在掩盖什么呢？雷惹住谁了…</a>
 </h2>
@@ -95,19 +95,19 @@
 </h2>
 <p>SPAM [doge][doge][弱]<br><br>RE: 老纳粹！<br><img src="http://ww4.sinaimg.cn/large/617fc8a9jw1f3xcmetr8kj20ff0kq77j.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3975818310948372" target="freeweibo-mirror">//@徐昕: //@小怪兽很神勇:文革余孽 //@王小山:聂…</a>
 </h2>
 <p>//@徐昕: //@小怪兽很神勇:文革余孽 //@王小山:聂元梓？//@章诒和:她“不忘”，我们更不忘！//@北村: 纪念……<br><br>RE: 老纳粹！<br><img src="http://ww4.sinaimg.cn/large/617fc8a9jw1f3xcmetr8kj20ff0kq77j.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3975817854126916" target="freeweibo-mirror">//@小怪兽很神勇:文革余孽 //@王小山:聂元梓？//@章…</a>
 </h2>
 <p>//@小怪兽很神勇:文革余孽 //@王小山:聂元梓？//@章诒和:她“不忘”，我们更不忘！//@北村: 纪念……<br><br>RE: 老纳粹！<br><img src="http://ww4.sinaimg.cn/large/617fc8a9jw1f3xcmetr8kj20ff0kq77j.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3975816750543190" target="freeweibo-mirror">SPAM //@崔小平律师://@法律案例-文史典故:有点不…</a>
 </h2>
