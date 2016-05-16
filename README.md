@@ -49,6 +49,12 @@
 <p>
 	<small> ============== 4小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3975851786337003" target="freeweibo-mirror">三、其实，「超级魅力型领袖」有时是权力的产物，如果权力和地位…</a>
+</h2>
+<p>三、其实，「超级魅力型领袖」有时是权力的产物，如果权力和地位像蚂蚁窝或蜂窝里的蚁王、蜂王般显赫，他自然就有了魅力，领袖谈笑风扔挥斥方遒的魅力，其实是边上敬业的群众演员衬托出来的，典型如金三。坚持认为猫天生霸气且魅力的人，请看看他站在斯大林和蒋介石身边是个什么样。</p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3975838795596475" target="freeweibo-mirror">伤员不能喝水吧：华主席好像很在行，喂鸡蛋清！//@铁头一: …</a>
 </h2>
 <p>伤员不能喝水吧：华主席好像很在行，喂鸡蛋清！//@铁头一: 转发微博<br><br>RE: 文革中，我们家隔壁就是造反派打人的地方，晚上经常传来人被拷打发出的惨叫。有天夜里，惨叫声特别凄厉，第二天一早，我妈妈朝隔壁看了看，发现是单位里年轻的大学生，已经遍体鳞伤，他看到我妈妈说：阿姨，给口水喝吧。我妈妈连忙舀了一大瓢水递过去。第二天，这个年轻人就死了，有如风中的草芥。</p>
@@ -89,19 +95,19 @@
 </h2>
 <p>//@杨锦麟: //@朱学东:转发微博<br><br>RE: 大数据<br><img src="http://ww1.sinaimg.cn/large/59381f1cgw1f3xcdtkrg8j20cl7ps4qp.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3975830616862853" target="freeweibo-mirror">SPAM 这疯狂十年使用任何词汇都不为过！</a>
 </h2>
 <p>SPAM 这疯狂十年使用任何词汇都不为过！<br><br>RE: 大数据<br><img src="http://ww1.sinaimg.cn/large/59381f1cgw1f3xcdtkrg8j20cl7ps4qp.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3975830260233479" target="freeweibo-mirror">居然有人给文革那种无法无天的乱象洗地吗？</a>
 </h2>
 <p>居然有人给文革那种无法无天的乱象洗地吗？<br><br>RE: 文革中，我们家隔壁就是造反派打人的地方，晚上经常传来人被拷打发出的惨叫。有天夜里，惨叫声特别凄厉，第二天一早，我妈妈朝隔壁看了看，发现是单位里年轻的大学生，已经遍体鳞伤，他看到我妈妈说：阿姨，给口水喝吧。我妈妈连忙舀了一大瓢水递过去。第二天，这个年轻人就死了，有如风中的草芥。</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3975821025259355" target="freeweibo-mirror">SPAM //@水木双刀_: //@日天小巨人://@轰天老…</a>
 </h2>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3975818310948372" target="freeweibo-mirror">//@徐昕: //@小怪兽很神勇:文革余孽 //@王小山:聂…</a>
 </h2>
 <p>//@徐昕: //@小怪兽很神勇:文革余孽 //@王小山:聂元梓？//@章诒和:她“不忘”，我们更不忘！//@北村: 纪念……<br><br>RE: 老纳粹！<br><img src="http://ww4.sinaimg.cn/large/617fc8a9jw1f3xcmetr8kj20ff0kq77j.jpg"></p>
-<p>
-	<small> ============== 6小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3975817854126916" target="freeweibo-mirror">//@小怪兽很神勇:文革余孽 //@王小山:聂元梓？//@章…</a>
-</h2>
-<p>//@小怪兽很神勇:文革余孽 //@王小山:聂元梓？//@章诒和:她“不忘”，我们更不忘！//@北村: 纪念……<br><br>RE: 老纳粹！<br><img src="http://ww4.sinaimg.cn/large/617fc8a9jw1f3xcmetr8kj20ff0kq77j.jpg"></p>
 <p>
 	<small> ============== 6小时前</small>
 </p>
