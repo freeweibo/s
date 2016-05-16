@@ -101,7 +101,7 @@
 </h2>
 <p>//@封新城:转发微博<br><br>RE: 葛兆光：我绝不接受有人说“文革”有可取之处 http://t.cn/Rqe1H0l</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3975803714359277" target="freeweibo-mirror">//@jlijames:404图不错。 //@中国公共政策评…</a>
 </h2>
