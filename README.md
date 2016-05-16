@@ -61,6 +61,12 @@
 <p>
 	<small> ============== 1小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3975704963669267" target="freeweibo-mirror">请不要没收我的转发键和屏蔽阅读。雷洋案全国关注，我们选择公开…</a>
+</h2>
+<p>请不要没收我的转发键和屏蔽阅读。雷洋案全国关注，我们选择公开的都是律师渠道获得的、集体研究过可以公开的消息。有关敏感内容会提交给北京市检察院查证，先不公开。屏蔽律师声音，只会导致社会进一步猜测和不满。于社情、舆情稳定无补。<br><img src="http://ww4.sinaimg.cn/large/6b804b51jw1f3x0flscn2j20qo1bgwqj.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3975698945350444" target="freeweibo-mirror">SPAM 回复@大仙:他亲人不多，却每次运动都搭进一个。 /…</a>
 </h2>
 <p>SPAM 回复@大仙:他亲人不多，却每次运动都搭进一个。 //@大仙:五十年前的今天，某人开始抡刀了，然后人们开始残杀<br><br>RE: 大屠殺通知書，精神的屠戮至今未停[蜡烛]<br><img src="http://ww4.sinaimg.cn/large/64ff12efjw1f3wzf7a2aaj20j60qftcl.jpg"></p>
@@ -77,13 +83,13 @@
 </h2>
 <p>勿忘文革。<br><br>RE: 5.16，文化大革命50周年，勿忘文革、反思文革！ http://t.cn/R2dLCDN<br><img src="http://ww3.sinaimg.cn/large/73570bbdgw1f3wxqhzb0fj20fa0acmy9.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3975689314671825" target="freeweibo-mirror">以史为鉴，这种很多人以为日本鬼子才能干出来的事情，千万不要被…</a>
 </h2>
 <p>以史为鉴，这种很多人以为日本鬼子才能干出来的事情，千万不要被遗忘[蜡烛][蜡烛][蜡烛][蜡烛][蜡烛]//@徐幸起: //@杨锦麟: 五十年前，此類事甚多！<br><br>RE: 今天是5．16，文革发动50周年。<br><img src="http://ww4.sinaimg.cn/large/6b804b51jw1f3wvn9qcoej20gu0dgtal.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3975688916889827" target="freeweibo-mirror">毛左最喜欢说毛大公无私，从不为家人捞好处。事实是，毛让自己的…</a>
 </h2>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3975684836250302" target="freeweibo-mirror">//@荷永: 如此造假是更严重的犯罪//@自然的张侃: 难怪…</a>
 </h2>
 <p>//@荷永: 如此造假是更严重的犯罪//@自然的张侃: 难怪受委托律师团要及时发布了解到的最新情况。看来，律师团面对的不是一般的执法过度致人死亡案件。律师团想必也觉得危险，因此采取试图获得民众支持的自保。警方执法致死人命，总会发生的……能不能不要造假？要保住这个底线嘛，真是无法无天。<br><br>RE: 【律师调查证据证实警方对雷洋进行了车上突审】律师向雷明芳提取到视频证据显示：5月8日昌平警方向雷洋家属通报死亡原因，允许雷明芳手机录像。视频中警方说：“在车上突审，完了之后回到派出所。这个过程中，突然开车门，就司机往下踹，踹了就想跑”。第一次公开通报中用语“抗拒执法”。第二次通报用...全文： http://m.weibo.cn/1803570001/3975676220223362...全文： http://m.weibo.cn/1803570001/3975676220223362<br><img src="http://ww2.sinaimg.cn/large/6b804b51jw1f3wx77081cj20qo0zkn7i.jpg"></p>
-<p>
-	<small> ============== 3小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3975681479712339" target="freeweibo-mirror">SPAM //@bj-鲁公: 今天是他们的耻辱日！他们要为此…</a>
-</h2>
-<p>SPAM //@bj-鲁公: 今天是他们的耻辱日！他们要为此背负骂名一万年！<br><br>RE: 五十年来伤心事，三千万户起悲声。<br><img src="http://ww3.sinaimg.cn/large/6362d8eagw1f3wwecf36ej20fd0lcq5o.jpg"></p>
 <p>
 	<small> ============== 3小时前</small>
 </p>
