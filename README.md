@@ -19,6 +19,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3976272637997072" target="freeweibo-mirror">依法办案，还原真相于天下，才能真正体现法治国家的尊严，挽回民…</a>
+</h2>
+<p>依法办案，还原真相于天下，才能真正体现法治国家的尊严，挽回民心，体现公平正义。<br><br>RE: 雷洋家属在8日凌晨在中医院太平间、和13日在北京市公安局法医中心尸检前，都看到雷洋身上右额部被重击淤肿、阴部睾丸肿胀、右上臂、腰部、脸部都有严重伤痕，明显系暴力殴打形成 http://t.cn/RqkvTdg</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3976250059581113" target="freeweibo-mirror">SPAM //@gtchenweio://@顺服者: 毛笔不…</a>
 </h2>
 <p>SPAM //@gtchenweio://@顺服者: 毛笔不错 //@公民-平子哥://@舜之壤一胡尘里: 大姨妈//@背条老藤上北京:转发微博</p>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3976167302576366" target="freeweibo-mirror">低级趣味！//@大尸凶的漫画:博主这个低级趣味，道德败坏的漫…</a>
 </h2>
 <p>低级趣味！//@大尸凶的漫画:博主这个低级趣味，道德败坏的漫画家!取关了[挖鼻][怒][怒]//@格瓦拉:[笑cry][笑cry][笑cry]<br><br>RE: 洞房花烛夜[阴险][阴险][笑cry][哈哈]#胸是小漫画#<br><img src="http://ww4.sinaimg.cn/large/3bbd9d9bjw1f3yem3z998j20fw0m8wha.jpg"></p>
-<p>
-	<small> ============== 8小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3976167289568737" target="freeweibo-mirror">牛逼！不过也太公然了吧？//@北京厨子新号: //@张洪峰:…</a>
-</h2>
-<p>牛逼！不过也太公然了吧？//@北京厨子新号: //@张洪峰: 直接去检察院控告，验伤，打人的警察面对检察官时，也就一发抖的主儿。<br><br>RE: #兰州身边事#【网曝：兰州市和平镇民警暴力执法，用警棍殴打大学生[怒]】网友爆料：“兰州市和平民警粗暴执法，使用暴力打大学生，[怒]民警为夺证据视频，将大学生拉倒派出所，用警棍和耳光轮番伺候，而且不准叫出声来，叫一声加5棍，两个人的屁股都开花了！#兰州微导航# 请问，警察就这样执法吗？如何...全文： http://m.weibo.cn/3051949107/3976133244293224<br><img src="http://ww4.sinaimg.cn/large/b5e90c33jw1f3ydnpd5i0j20f60ixdiv.jpg"></p>
 <p>
 	<small> ============== 8小时前</small>
 </p>
