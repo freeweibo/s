@@ -31,6 +31,12 @@
 <p>
 	<small> ============== 4小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3976307954525681" target="freeweibo-mirror">【不多说以防被删，报案书中基本把所有疑点都说的很清楚了。希望…</a>
+</h2>
+<p>【不多说以防被删，报案书中基本把所有疑点都说的很清楚了。希望事情最后能有一个公开透明的处理结果。为了正义，也为了我们早已缺失的安全感。】摘自《雷洋妻子向北京市检察院报案：嫖娼是栽赃，雷洋被打死》http://t.cn/Rqk6bTP——能否洗冤</p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3976298726146503" target="freeweibo-mirror">//@未得糊涂://@50年矛苔: //@流小曲:[话筒]/…</a>
 </h2>
 <p>//@未得糊涂://@50年矛苔: //@流小曲:[话筒]//@守候者说: //@博者文摘:转发微博<br><br>RE: 嫖娼硕士妻报案书：嫖娼是栽赃，雷洋被打死<br><img src="http://ww4.sinaimg.cn/large/48cd1054jw1f3yqpy8bufj20qo0zkjyx.jpg"></p>
@@ -73,6 +79,12 @@
 <p>
 	<small> ============== 6小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3976275611152182" target="freeweibo-mirror">雷洋家属关于要求北京市检察院立案侦查雷洋被害案的刑事报案书</a>
+</h2>
+<p>雷洋家属关于要求北京市检察院立案侦查雷洋被害案的刑事报案书<br><img src="http://ww1.sinaimg.cn/large/5460e745gw1f3yu21kpnqj20f66gukjl.jpg"></p>
+<p>
+	<small> ============== 6小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3976275091754460" target="freeweibo-mirror">//@明觉其事://@wpcn2000:转发微博</a>
 </h2>
 <p>//@明觉其事://@wpcn2000:转发微博<br><br>RE: 雷洋家属在8日凌晨在中医院太平间、和13日在北京市公安局法医中心尸检前，都看到雷洋身上右额部被重击淤肿、阴部睾丸肿胀、右上臂、腰部、脸部都有严重伤痕，明显系暴力殴打形成 http://t.cn/RqkvTdg</p>
@@ -89,7 +101,7 @@
 </h2>
 <p>//@MLHZG://@路见不平踩一下://@公民红蚁A: //@腾晓东: 为什么中国的恶J没有“底线”？因为他们没有人性。[酷] //@谢文://@叶檀:守住底线，精英统治阶段，精英守住底线，执法、司法部门守住底线，这三个群体守不住，底线就是无底线。<br><br>RE: 曼德拉一次庭审时，公诉人Bosch突然跑过去握着他的手说：我不干了，我鄙视我做的事情。显然，有人在恶制度中随波逐流时，内心咯噔一声，触到了一种叫底线的东西。老子不干了，是人之为人的底线。从枪杀徐存合的恶警身上，从打死雷洋的民警身上，这种底线未曾有过。底线存在与否，有时候真与制度无关。</p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3976272637997072" target="freeweibo-mirror">依法办案，还原真相于天下，才能真正体现法治国家的尊严，挽回民…</a>
 </h2>
@@ -109,6 +121,12 @@
 <p>
 	<small> ============== 7小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3976268636083144" target="freeweibo-mirror">雷洋妻子的报案书。截个屏举手之劳。</a>
+</h2>
+<p>雷洋妻子的报案书。截个屏举手之劳。<br><img src="http://ww3.sinaimg.cn/large/6092804djw1f3yt54oyzgj20ku1120wl.jpg"></p>
+<p>
+	<small> ============== 7小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3976267114110250" target="freeweibo-mirror">SPAM 加一个</a>
 </h2>
 <p>SPAM 加一个</p>
@@ -118,24 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3976266752964584" target="freeweibo-mirror">SPAM //@肾肾先生://@城南邮局:我想要冰激凌 你就…</a>
 </h2>
 <p>SPAM //@肾肾先生://@城南邮局:我想要冰激凌 你就给我个冰激凌呗</p>
-<p>
-	<small> ============== 7小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3976266614521995" target="freeweibo-mirror">SPAM //@城南邮局:我想要冰激凌 你就给我个冰激凌呗</a>
-</h2>
-<p>SPAM //@城南邮局:我想要冰激凌 你就给我个冰激凌呗</p>
-<p>
-	<small> ============== 7小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3976263469273966" target="freeweibo-mirror">SPAM 党外人士真是一针见血啊</a>
-</h2>
-<p>SPAM 党外人士真是一针见血啊</p>
-<p>
-	<small> ============== 7小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3976262945255175" target="freeweibo-mirror">五味杂陈</a>
-</h2>
-<p>五味杂陈<br><br>RE: 【且等！】5月17日上午，雷洋家属及代理律师向北京检方递交了一份《刑事报案书》，以控告北京市公安局昌平分局参加办理雷洋涉嫌“嫖娼”案件的相关警察、辅警。 http://t.cn/RqkxTjC</p>
 <p>
 	<small> ============== 7小时前</small>
 </p>
