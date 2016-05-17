@@ -25,6 +25,12 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3976244951571822" target="freeweibo-mirror">嘴上否定文革，实际投鼠忌器，没治了。</a>
+</h2>
+<p>嘴上否定文革，实际投鼠忌器，没治了。</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3976231772660282" target="freeweibo-mirror">SPAM 隔壁老王</a>
 </h2>
 <p>SPAM 隔壁老王</p>
@@ -131,13 +137,7 @@
 </h2>
 <p>SPAM 那个知乎的傻逼帖子说OW的蓄力狙是山寨TF2，我还特地去买了个虚幻竞技场2004，果然没记错，那时候就有蓄力狙了<br><img src="http://ww3.sinaimg.cn/large/66cb4654gw1f3ygsta48oj20yy0lj0xa.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3976160305792347" target="freeweibo-mirror">70年代初，还是小孩的我看过一本书，是文革中昆明的“八派”编…</a>
-</h2>
-<p>70年代初，还是小孩的我看过一本书，是文革中昆明的“八派”编著的正规出版物，里边宣传了好几位在武斗里“牺牲烈士”，还有遗体照片，但书名我忘了，求教大家，我现在真想找到它，来数数上面的血!</p>
-<p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p>
 <table>
     <tr>
