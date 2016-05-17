@@ -71,7 +71,7 @@
 </h2>
 <p>人间地狱！http://t.cn/RqeHC15</p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3975886505773556" target="freeweibo-mirror">所以我不担心纪念文革所导致的社会撕裂，我更关注的是社会表达和…</a>
 </h2>
@@ -101,7 +101,7 @@
 </h2>
 <p>人生轨迹（217）读图辨史http://t.cn/RqDb9Yi</p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3975862786865464" target="freeweibo-mirror">发图片吧。</a>
 </h2>
