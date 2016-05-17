@@ -29,7 +29,7 @@
 </h2>
 <p>SPAM //@慕恭: //@DopeyTom: 为图转。//@邓相超: //@禁言too: //@疯狂历史老师:配图好评[good]<br><br>RE: 50周年<br><img src="http://ww1.sinaimg.cn/large/717d7913gw1f3wyv38maij20vk0hsn2r.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3976024872694345" target="freeweibo-mirror">环球时报说，文革已经被彻底否定，是吗？为何人日和环球在516…</a>
 </h2>
@@ -77,7 +77,7 @@
 </h2>
 <p>//@杨锦麟: 回复@葉子lucky07:不徹底否定之，所謂的徹底否定，也就是奉命做文章，說說而已。單仁平就是這樣的人。//@葉子lucky07:吴伟责问非常犀利！→_→  http://t.cn/RqDXJVD<br><br>RE: 人民日报：决不允许“文革”错误重演。頻繁屏蔽涉及文革的文章，不正是錯誤已經重演的典型症狀嗎？ http://t.cn/RqDX5DX</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3975996711478499" target="freeweibo-mirror">[蜡烛][蜡烛]//@萧含:[蜡烛][蜡烛]//@张洪忠: …</a>
 </h2>
