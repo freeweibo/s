@@ -119,7 +119,7 @@
 </h2>
 <p>在新婚之夜抄写党章，是“论党性不论人性”的实践吗？</p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3976060351715685" target="freeweibo-mirror">这届人民不行//@Black_黑数码:这届人民不行//@霜叶…</a>
 </h2>
