@@ -25,6 +25,12 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3976063614664099" target="freeweibo-mirror">在新婚之夜抄写党章，是“论党性不论人性”的实践吗？</a>
+</h2>
+<p>在新婚之夜抄写党章，是“论党性不论人性”的实践吗？</p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3976060351715685" target="freeweibo-mirror">这届人民不行//@Black_黑数码:这届人民不行//@霜叶…</a>
 </h2>
 <p>这届人民不行//@Black_黑数码:这届人民不行//@霜叶不活跃: 这届人民不行//@tiry: //@死废鹅-星屑://@RX-78-8://@J-cupEvil: //@能靠点儿谱吗: 的确是这届人民不行//@HA_HoshinoArika:这届人民不行<br><br>RE: 2014年，汪龙起诉了中国联通，因为它没有提供完整的互联网服务（上不去 Google）。这个案子，最后的结局，居然是如此这般魔幻现实主义。本文已经获得原作者授权转载。<br><img src="http://ww1.sinaimg.cn/large/006r4rWYgw1f3xn6gyt0cj30ku112whe.jpg"></p>
@@ -59,7 +65,7 @@
 </h2>
 <p>文革是空前绝后惨烈吗？——这是对历时与事实的误解，自由派在历时政治观上的出息也只有这么大，思维很难散步到历时决议划定的框架之外，跑不出教科书的如来神掌，文革研究权威宋永毅说，如果按照今天大陆对文革的调子来反思文革建纪念馆，还不如不建，这样的结果更加误导人.@胡戈 @黄章晋ster<br><img src="http://ww4.sinaimg.cn/large/d18840fbgw1f3y3z4br2oj20ri4a4wo7.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3976042287105977" target="freeweibo-mirror">御辱常见口炮吹，全凭方队壮国威，演习摧枯八千里，沙盘征战五百…</a>
 </h2>
@@ -77,7 +83,7 @@
 </h2>
 <p>恩，我要存下来//@二吼: 全是套路//@王小山: 哈哈哈。//@黄奎ART://@博者文摘:转发微博<br><br>RE: 2014年，汪龙起诉了中国联通，因为它没有提供完整的互联网服务（上不去 Google）。这个案子，最后的结局，居然是如此这般魔幻现实主义。本文已经获得原作者授权转载。<br><img src="http://ww1.sinaimg.cn/large/006r4rWYgw1f3xn6gyt0cj30ku112whe.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3976029468674854" target="freeweibo-mirror">SPAM //@慕恭: //@DopeyTom: 为图转。/…</a>
 </h2>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3976009684319874" target="freeweibo-mirror">//@zhuxunlu:转发微博</a>
 </h2>
 <p>//@zhuxunlu:转发微博</p>
-<p>
-	<small> ============== 6小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3976007284834416" target="freeweibo-mirror">//@Raymondle:评论都不敢开，散了吧都。个人崇拜严…</a>
-</h2>
-<p>//@Raymondle:评论都不敢开，散了吧都。个人崇拜严重。整天大大麻麻。傻不傻。我们投票了吗？</p>
 <p>
 	<small> ============== 6小时前</small>
 </p>
