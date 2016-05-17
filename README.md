@@ -91,6 +91,12 @@
 <p>
 	<small> ============== 8小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3975935055121075" target="freeweibo-mirror">【“文革期间的成绩”并不等于“文革的成绩”】比如，陈景润在文…</a>
+</h2>
+<p>【“文革期间的成绩”并不等于“文革的成绩”】比如，陈景润在文革期间有成绩，但那并不是文革的功劳，而是他抵制文革、逃避文革、在艰难的环境中继续埋头研究的成果。此点可以依此类推。文革是破坏性的，但它还无法破坏一切，于是就有人有成绩了，这怎么能说是“文革的成绩”呢？<br><img src="http://ww2.sinaimg.cn/large/daa5b8bfjw1f3xqxzwjj4j20cs0h174g.jpg"></p>
+<p>
+	<small> ============== 8小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3975918404140809" target="freeweibo-mirror">SPAM //@北美时尚快报:你拍七，我排七，724转发送白…</a>
 </h2>
 <p>SPAM //@北美时尚快报:你拍七，我排七，724转发送白泥！</p>
@@ -109,6 +115,12 @@
 <p>
 	<small> ============== 10小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3975894240259864" target="freeweibo-mirror">白天开了一天会，晚上一刷朋友圈，发现很多篇关于那场十年疯人院…</a>
+</h2>
+<p>白天开了一天会，晚上一刷朋友圈，发现很多篇关于那场十年疯人院运动的文章点开后都是这样的显示。仔细想想，疯人院也好，雷洋也好，减招也好，中概回归也好，很多事的背后都是同一个道理--没有边界的权力=随时可能被践踏的权利。如果连病根儿都不让讨论，治愈一定比病魔更遥远。<br><img src="http://ww3.sinaimg.cn/large/47665bc1jw1f3xm8hy1vgj20ku11275d.jpg"></p>
+<p>
+	<small> ============== 11小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3975893489678519" target="freeweibo-mirror">假如，有人现在没机会批斗反革命走资派了，就来批斗买春客和失足…</a>
 </h2>
 <p>假如，有人现在没机会批斗反革命走资派了，就来批斗买春客和失足妇女，不以政治的理由而以道德的名义，大家觉得会如何？[思考] //@张鸿://@雷颐://@眠琴山房: MLGB！今天这一天真憋屈。</p>
@@ -124,18 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3975892168236603" target="freeweibo-mirror">SPAM http://t.cn/RqDI4hE</a>
 </h2>
 <p>SPAM http://t.cn/RqDI4hE</p>
-<p>
-	<small> ============== 11小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3975890364901083" target="freeweibo-mirror">人间地狱！http://t.cn/RqeHC15</a>
-</h2>
-<p>人间地狱！http://t.cn/RqeHC15</p>
-<p>
-	<small> ============== 11小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3975886505773556" target="freeweibo-mirror">所以我不担心纪念文革所导致的社会撕裂，我更关注的是社会表达和…</a>
-</h2>
-<p>所以我不担心纪念文革所导致的社会撕裂，我更关注的是社会表达和公开辩论的自由，以及能否形成基础性的辩论规则，从而避免民粹主义的暴力，减少社会成本。</p>
 <p>
 	<small> ============== 11小时前</small>
 </p>
