@@ -19,6 +19,18 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3976036322698424" target="freeweibo-mirror">SPAM //@顾猷:党章不排除对某些人也能起到制服作用。</a>
+</h2>
+<p>SPAM //@顾猷:党章不排除对某些人也能起到制服作用。</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3976029468674854" target="freeweibo-mirror">SPAM //@慕恭: //@DopeyTom: 为图转。/…</a>
+</h2>
+<p>SPAM //@慕恭: //@DopeyTom: 为图转。//@邓相超: //@禁言too: //@疯狂历史老师:配图好评[good]<br><br>RE: 50周年<br><img src="http://ww1.sinaimg.cn/large/717d7913gw1f3wyv38maij20vk0hsn2r.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3975988213726223" target="freeweibo-mirror">//@陨石老刀: [给力]//@哈尔滨九九八十一:怀念，世界…</a>
 </h2>
 <p>//@陨石老刀: [给力]//@哈尔滨九九八十一:怀念，世界尊重滴毛凙東！。早安納福。//@陨石老刀: [话筒][话筒]//@兔牙木木:转发微博</p>
@@ -29,7 +41,7 @@
 </h2>
 <p>SPAM [爱你] [爱你]</p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3975918404140809" target="freeweibo-mirror">SPAM //@北美时尚快报:你拍七，我排七，724转发送白…</a>
 </h2>
@@ -124,18 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3975851786337003" target="freeweibo-mirror">三、其实，「超级魅力型领袖」有时是权力的产物，如果权力和地位…</a>
 </h2>
 <p>三、其实，「超级魅力型领袖」有时是权力的产物，如果权力和地位像蚂蚁窝或蜂窝里的蚁王、蜂王般显赫，他自然就有了魅力，领袖谈笑风扔挥斥方遒的魅力，其实是边上敬业的群众演员衬托出来的，典型如金三。坚持认为猫天生霸气且魅力的人，请看看他站在斯大林和蒋介石身边是个什么样。</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3975851781535999" target="freeweibo-mirror">「殺人兇手被「悼念」是一個危險信號。」——@新華網</a>
-</h2>
-<p>「殺人兇手被「悼念」是一個危險信號。」——@新華網<br><img src="http://ww4.sinaimg.cn/large/006rAavhgw1f3xhdq9ks7j30et0ghq5b.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3975838795596475" target="freeweibo-mirror">伤员不能喝水吧：华主席好像很在行，喂鸡蛋清！//@铁头一: …</a>
-</h2>
-<p>伤员不能喝水吧：华主席好像很在行，喂鸡蛋清！//@铁头一: 转发微博<br><br>RE: 文革中，我们家隔壁就是造反派打人的地方，晚上经常传来人被拷打发出的惨叫。有天夜里，惨叫声特别凄厉，第二天一早，我妈妈朝隔壁看了看，发现是单位里年轻的大学生，已经遍体鳞伤，他看到我妈妈说：阿姨，给口水喝吧。我妈妈连忙舀了一大瓢水递过去。第二天，这个年轻人就死了，有如风中的草芥。</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
