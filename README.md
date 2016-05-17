@@ -35,7 +35,7 @@
 </h2>
 <p>//@林治波://@真理阳光VVV: 时代在进步，理论也要进步，不反无产阶级，也不反资产阶级，但要维护国家统一，维护公平正义，维护人类历史发展和进步，不断解放和发展人和人权，永远站在历史前进的潮头浪尖<br><br>RE: 文革是一把尺，测量着谁拥护毛泽东思想？谁反对毛泽东思想？文革是一把刀，无产阶级喜欢，资产阶级害怕！文革是分水岭，一边站着社会主义阵营，一边站着资本主义阵营。文革将永久记在无产阶级心中，文革就是一面旗帜！<br><img src="http://ww1.sinaimg.cn/large/cb787320gw1f3xzr4begoj2085064weq.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3976042287105977" target="freeweibo-mirror">御辱常见口炮吹，全凭方队壮国威，演习摧枯八千里，沙盘征战五百…</a>
 </h2>
@@ -65,13 +65,13 @@
 </h2>
 <p>环球时报说，文革已经被彻底否定，是吗？为何人日和环球在516这天不说，偏要在今天5月17号说呢？</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3976024317808548" target="freeweibo-mirror">呵呵 //@黄奎ART://@博者文摘:转发微博</a>
 </h2>
 <p>呵呵 //@黄奎ART://@博者文摘:转发微博<br><br>RE: 2014年，汪龙起诉了中国联通，因为它没有提供完整的互联网服务（上不去 Google）。这个案子，最后的结局，居然是如此这般魔幻现实主义。本文已经获得原作者授权转载。<br><img src="http://ww1.sinaimg.cn/large/006r4rWYgw1f3xn6gyt0cj30ku112whe.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3976022674011582" target="freeweibo-mirror">//@李大华V://@作家金槿姬:其中包括：中华人民共和国国…</a>
 </h2>
@@ -107,7 +107,7 @@
 </h2>
 <p>//@zhuxunlu:转发微博</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3976007284834416" target="freeweibo-mirror">//@Raymondle:评论都不敢开，散了吧都。个人崇拜严…</a>
 </h2>
