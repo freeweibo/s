@@ -43,6 +43,12 @@
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3976109550571671" target="freeweibo-mirror">否定同时限制公开讨论被否定的历史事件，是最大的历史虚无主义。</a>
+</h2>
+<p>否定同时限制公开讨论被否定的历史事件，是最大的历史虚无主义。</p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3976091418953067" target="freeweibo-mirror">【山东日照多名男生厕所围殴同学要其“舔屎”，警方：已和解】 …</a>
 </h2>
 <p>【山东日照多名男生厕所围殴同学要其“舔屎”，警方：已和解】 http://t.cn/RqDULkb 评：和解的本质是为了一己私利而纵容作恶！强化了作恶者花钱即可摆平的可怕心理！via刘胜军<br><img src="http://ww4.sinaimg.cn/large/77101dc1jw1f3y5elpuywj20qo1bfqbm.jpg"></p>
@@ -77,7 +83,7 @@
 </h2>
 <p>【财新网】5月17日上午，雷洋家属及代理律师向北京市检察院递交了《关于要求北京市检察院立案侦查雷洋被害案的刑事报案书》（下称报案书）。律师告诉财新记者，北京市检察院举报中心工作人员接收了举报材料，称“检方表示会重视此案，将研究决定是否受理，再通知我们。”http://t.cn/RqDY6jZ<br><img src="http://ww3.sinaimg.cn/large/6b804b51gw1f3y78zwctmj20rs0ku7cp.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3976075660534618" target="freeweibo-mirror">包子要一个一个吃，如果可以反思文革，也许还有机会往前走，一点…</a>
 </h2>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3976054244366310" target="freeweibo-mirror">//@林治波://@真理阳光VVV: 时代在进步，理论也要进…</a>
 </h2>
 <p>//@林治波://@真理阳光VVV: 时代在进步，理论也要进步，不反无产阶级，也不反资产阶级，但要维护国家统一，维护公平正义，维护人类历史发展和进步，不断解放和发展人和人权，永远站在历史前进的潮头浪尖<br><br>RE: 文革是一把尺，测量着谁拥护毛泽东思想？谁反对毛泽东思想？文革是一把刀，无产阶级喜欢，资产阶级害怕！文革是分水岭，一边站着社会主义阵营，一边站着资本主义阵营。文革将永久记在无产阶级心中，文革就是一面旗帜！<br><img src="http://ww1.sinaimg.cn/large/cb787320gw1f3xzr4begoj2085064weq.jpg"></p>
-<p>
-	<small> ============== 7小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3976054017838037" target="freeweibo-mirror">人民日报深夜发文，对这段时间愈演愈烈的“文革”之争，给左右各…</a>
-</h2>
-<p>人民日报深夜发文，对这段时间愈演愈烈的“文革”之争，给左右各一巴掌。它告诉左派，“文革”必须否定，决不允许重来；它告诉右派，“文革”只是错误，是教训，不是罪行，别企图利用否定“文革”来否定党。<br><img src="http://ww4.sinaimg.cn/large/4ce32014jw1f3y4ka1v4zj20k00pzq9f.jpg"></p>
 <p>
 	<small> ============== 7小时前</small>
 </p>
