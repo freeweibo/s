@@ -61,6 +61,12 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3976072426911490" target="freeweibo-mirror">列宁和斯大林哪个更残酷些？当然是列宁，他曾当面批评斯大林的软…</a>
+</h2>
+<p>列宁和斯大林哪个更残酷些？当然是列宁，他曾当面批评斯大林的软弱和自由主义倾向。莫洛托夫如是说。//@经济观察报-书评:只反思大清洗和肃反，列宁主义是无辜的，赫鲁晓夫如是说。 //@黄章晋ster:我记得徐友渔老师也这样说，如果按建国以来若干历史问题的决议定的调子来建文革纪念馆，那还不如不建。<br><br>RE: 文革是空前绝后惨烈吗？——这是对历时与事实的误解，自由派在历时政治观上的出息也只有这么大，思维很难散步到历时决议划定的框架之外，跑不出教科书的如来神掌，文革研究权威宋永毅说，如果按照今天大陆对文革的调子来反思文革建纪念馆，还不如不建，这样的结果更加误导人.@胡戈 @黄章晋ster<br><img src="http://ww4.sinaimg.cn/large/d18840fbgw1f3y3z4br2oj20ri4a4wo7.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3976067905031178" target="freeweibo-mirror">哈哈哈哈 //@罗昌平:右边这位小伙伴，请你出来一下。//@…</a>
 </h2>
 <p>哈哈哈哈 //@罗昌平:右边这位小伙伴，请你出来一下。//@littlehawk：是践行“党指挥枪”的原则！！！<br><br>RE: 在新婚之夜抄写党章，是“论党性不论人性”的实践吗？</p>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3976033860422543" target="freeweibo-mirror">恩，我要存下来//@二吼: 全是套路//@王小山: 哈哈哈。…</a>
 </h2>
 <p>恩，我要存下来//@二吼: 全是套路//@王小山: 哈哈哈。//@黄奎ART://@博者文摘:转发微博<br><br>RE: 2014年，汪龙起诉了中国联通，因为它没有提供完整的互联网服务（上不去 Google）。这个案子，最后的结局，居然是如此这般魔幻现实主义。本文已经获得原作者授权转载。<br><img src="http://ww1.sinaimg.cn/large/006r4rWYgw1f3xn6gyt0cj30ku112whe.jpg"></p>
-<p>
-	<small> ============== 5小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3976029468674854" target="freeweibo-mirror">SPAM //@慕恭: //@DopeyTom: 为图转。/…</a>
-</h2>
-<p>SPAM //@慕恭: //@DopeyTom: 为图转。//@邓相超: //@禁言too: //@疯狂历史老师:配图好评[good]<br><br>RE: 50周年<br><img src="http://ww1.sinaimg.cn/large/717d7913gw1f3wyv38maij20vk0hsn2r.jpg"></p>
 <p>
 	<small> ============== 5小时前</small>
 </p>
