@@ -43,6 +43,12 @@
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3976185480976798" target="freeweibo-mirror">【人民网逆天为“贵族”站台？】人民网文史频道推荐《贵族的理想…</a>
+</h2>
+<p>【人民网逆天为“贵族”站台？】人民网文史频道推荐《贵族的理想——他们支撑了中国》［http://t.cn/RqD6Sdj ］，称“作者提出提出观点：历代帝王将相主导国家资源配置失败，导致亿万人贫穷落后，而贵族的重大贡献是：以家族经济共同体，配置经济与文化资源、帮助平民消除愚昧无知、推动中国向富民强国...全文： http://m.weibo.cn/1665808371/3976185480976798<br><img src="http://ww1.sinaimg.cn/large/634a37f3gw1f3yjpeujexj20eo20446t.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3976173999888079" target="freeweibo-mirror">官员们分福利房，所以才说房价不高；官员们有特供菜，才说食品安…</a>
 </h2>
 <p>官员们分福利房，所以才说房价不高；官员们有特供菜，才说食品安全；官员们有全球最好的医疗，才不担心吃破鞋胶囊；官员们孩子在国外受教育，所以才尽情糟蹋国内的教育。中国真正的二元体制绝非城乡体制，而是官民二元体制。这个体制不打破，中国不可能成为现代社会，不可能建设文明国家。——马光远<br><img src="http://ww4.sinaimg.cn/large/77101dc1jw1f3y9c337dpj20qo0u977q.jpg"></p>
@@ -101,13 +107,13 @@
 </h2>
 <p>SPAM 那个知乎的傻逼帖子说OW的蓄力狙是山寨TF2，我还特地去买了个虚幻竞技场2004，果然没记错，那时候就有蓄力狙了<br><img src="http://ww3.sinaimg.cn/large/66cb4654gw1f3ygsta48oj20yy0lj0xa.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3976160305792347" target="freeweibo-mirror">70年代初，还是小孩的我看过一本书，是文革中昆明的“八派”编…</a>
 </h2>
 <p>70年代初，还是小孩的我看过一本书，是文革中昆明的“八派”编著的正规出版物，里边宣传了好几位在武斗里“牺牲烈士”，还有遗体照片，但书名我忘了，求教大家，我现在真想找到它，来数数上面的血!</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3976157369808778" target="freeweibo-mirror">@牛的海: 其实，我们真正关心的是，在昌平警方出警前，使用民…</a>
 </h2>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3976151489604884" target="freeweibo-mirror">SPAM TIP：有在武汉高校的粉丝吗？最好在学校里面认识读…</a>
 </h2>
 <p>SPAM TIP：有在武汉高校的粉丝吗？最好在学校里面认识读书类社团或者学生组织的人哦，想在武汉举办一场读书会活动哦，有意向的戳我qq：1085917754，我们一起来谈谈人生！[嘻嘻][微笑][微笑]<br><img src="http://ww3.sinaimg.cn/large/9dbd2e69jw1f3yfsuvpuej20ap0aojrc.jpg"></p>
-<p>
-	<small> ============== 5小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3976146884363796" target="freeweibo-mirror">警察执法过程，公民有权进行拍摄监督。//@张洪峰:直接去检察…</a>
-</h2>
-<p>警察执法过程，公民有权进行拍摄监督。//@张洪峰:直接去检察院控告，验伤，打人的警察面对检察官时，也就一发抖的主儿。<br><br>RE: #兰州身边事#【网曝：兰州市和平镇民警暴力执法，用警棍殴打大学生[怒]】网友爆料：“兰州市和平民警粗暴执法，使用暴力打大学生，[怒]民警为夺证据视频，将大学生拉倒派出所，用警棍和耳光轮番伺候，而且不准叫出声来，叫一声加5棍，两个人的屁股都开花了！#兰州微导航# 请问，警察就这样执法吗？如何...全文： http://m.weibo.cn/3051949107/3976133244293224<br><img src="http://ww4.sinaimg.cn/large/b5e90c33jw1f3ydnpd5i0j20f60ixdiv.jpg"></p>
 <p>
 	<small> ============== 5小时前</small>
 </p>
