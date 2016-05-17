@@ -95,7 +95,7 @@
 </h2>
 <p>在新婚之夜抄写党章，是“论党性不论人性”的实践吗？</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3976060351715685" target="freeweibo-mirror">这届人民不行//@Black_黑数码:这届人民不行//@霜叶…</a>
 </h2>
@@ -131,7 +131,7 @@
 </h2>
 <p>文革是空前绝后惨烈吗？——这是对历时与事实的误解，自由派在历时政治观上的出息也只有这么大，思维很难散步到历时决议划定的框架之外，跑不出教科书的如来神掌，文革研究权威宋永毅说，如果按照今天大陆对文革的调子来反思文革建纪念馆，还不如不建，这样的结果更加误导人.@胡戈 @黄章晋ster<br><img src="http://ww4.sinaimg.cn/large/d18840fbgw1f3y3z4br2oj20ri4a4wo7.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3976042287105977" target="freeweibo-mirror">御辱常见口炮吹，全凭方队壮国威，演习摧枯八千里，沙盘征战五百…</a>
 </h2>
