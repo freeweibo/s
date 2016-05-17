@@ -23,7 +23,7 @@
 </h2>
 <p>//@陨石老刀: [给力]//@哈尔滨九九八十一:怀念，世界尊重滴毛凙東！。早安納福。//@陨石老刀: [话筒][话筒]//@兔牙木木:转发微博</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3975937001366885" target="freeweibo-mirror">SPAM [爱你] [爱你]</a>
 </h2>
@@ -113,7 +113,7 @@
 </h2>
 <p></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3975857230261471" target="freeweibo-mirror">人性泯灭，党性猖狂，好党员！ //@北京律师王兴:以官方文件…</a>
 </h2>
