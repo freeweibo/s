@@ -101,7 +101,7 @@
 </h2>
 <p>【抄党章】如果小两口出于信仰、自己乐意，应该尊重他们的做法，祝福他们，不必冷嘲热讽。但这种场面不应被拿出来展示宣传。“两学一做”不需要这种示范，这背离了“两学一做”的初衷。<br><img src="http://ww3.sinaimg.cn/large/6232d08bjw1f3yahlxrv4j20vd0qo782.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3976095001130083" target="freeweibo-mirror">京衡这次调集了近20位律师参加办理雷洋案。法律援助雷洋家属理…</a>
 </h2>
