@@ -35,7 +35,7 @@
 </h2>
 <p>恩，我要存下来//@二吼: 全是套路//@王小山: 哈哈哈。//@黄奎ART://@博者文摘:转发微博<br><br>RE: 2014年，汪龙起诉了中国联通，因为它没有提供完整的互联网服务（上不去 Google）。这个案子，最后的结局，居然是如此这般魔幻现实主义。本文已经获得原作者授权转载。<br><img src="http://ww1.sinaimg.cn/large/006r4rWYgw1f3xn6gyt0cj30ku112whe.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3976029468674854" target="freeweibo-mirror">SPAM //@慕恭: //@DopeyTom: 为图转。/…</a>
 </h2>
@@ -119,7 +119,7 @@
 </h2>
 <p>//@陨石老刀: [给力]//@哈尔滨九九八十一:怀念，世界尊重滴毛凙東！。早安納福。//@陨石老刀: [话筒][话筒]//@兔牙木木:转发微博</p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3975947835277008" target="freeweibo-mirror">吊唁文革中被迫害致死或自杀身亡的155位艺术大师 http:…</a>
 </h2>
