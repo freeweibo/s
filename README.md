@@ -23,7 +23,7 @@
 </h2>
 <p>SPAM //@顾猷:党章不排除对某些人也能起到制服作用。</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3976029468674854" target="freeweibo-mirror">SPAM //@慕恭: //@DopeyTom: 为图转。/…</a>
 </h2>
@@ -65,7 +65,7 @@
 </h2>
 <p>SPAM //@孔智-勇://@风青杨V://@杜君立: 非礼勿视，非礼勿听，非礼勿言，懂规矩，讲党性[熊猫]//@张欣bpv://@邓相超://@禁言too://@疯狂历史老师:配图好评[good]<br><br>RE: 50周年<br><img src="http://ww1.sinaimg.cn/large/717d7913gw1f3wyv38maij20vk0hsn2r.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3976009684319874" target="freeweibo-mirror">//@zhuxunlu:转发微博</a>
 </h2>
