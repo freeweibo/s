@@ -37,11 +37,17 @@
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3976054017838037" target="freeweibo-mirror">人民日报深夜发文，对这段时间愈演愈烈的“文革”之争，给左右各…</a>
+</h2>
+<p>人民日报深夜发文，对这段时间愈演愈烈的“文革”之争，给左右各一巴掌。它告诉左派，“文革”必须否定，决不允许重来；它告诉右派，“文革”只是错误，是教训，不是罪行，别企图利用否定“文革”来否定党。<br><img src="http://ww4.sinaimg.cn/large/4ce32014jw1f3y4ka1v4zj20k00pzq9f.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3976042287105977" target="freeweibo-mirror">御辱常见口炮吹，全凭方队壮国威，演习摧枯八千里，沙盘征战五百…</a>
 </h2>
 <p>御辱常见口炮吹，全凭方队壮国威，演习摧枯八千里，沙盘征战五百回；正步走出军中将，叠被砌起营内灰，可笑肩章豆星亮，功绩多是海带堆。<br><img src="http://ww4.sinaimg.cn/large/006dU8v4jw1f3y34ulgn4j30ep0qodid.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3976036322698424" target="freeweibo-mirror">SPAM //@顾猷:党章不排除对某些人也能起到制服作用。</a>
 </h2>
@@ -101,7 +107,7 @@
 </h2>
 <p>文革是一把尺，测量着谁拥护毛泽东思想？谁反对毛泽东思想？文革是一把刀，无产阶级喜欢，资产阶级害怕！文革是分水岭，一边站着社会主义阵营，一边站着资本主义阵营。文革将永久记在无产阶级心中，文革就是一面旗帜！<br><img src="http://ww1.sinaimg.cn/large/cb787320gw1f3xzr4begoj2085064weq.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3976009684319874" target="freeweibo-mirror">//@zhuxunlu:转发微博</a>
 </h2>
@@ -125,17 +131,11 @@
 </h2>
 <p>[蜡烛][蜡烛]//@萧含:[蜡烛][蜡烛]//@张洪忠: 转发微博<br><br>RE: 吊唁文革中被迫害致死或自杀身亡的155位艺术大师 http://t.cn/RqDPCCq</p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3975995156004376" target="freeweibo-mirror">人民日报：把“文化大革命”时期同作为政治运动的“文化大革命”…</a>
 </h2>
 <p>人民日报：把“文化大革命”时期同作为政治运动的“文化大革命”区分开来，把“文化大革命”的错误理论与实践同这十年的整个历史区分开来。翻译一下：要把纳粹二战时“错误”与德国二战期间历史分开。这离文革翻案只差一步了，他们想干啥？</p>
-<p>
-	<small> ============== 7小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3975988213726223" target="freeweibo-mirror">//@陨石老刀: [给力]//@哈尔滨九九八十一:怀念，世界…</a>
-</h2>
-<p>//@陨石老刀: [给力]//@哈尔滨九九八十一:怀念，世界尊重滴毛凙東！。早安納福。//@陨石老刀: [话筒][话筒]//@兔牙木木:转发微博</p>
 <p>
 	<small> ============== 7小时前</small>
 </p>
