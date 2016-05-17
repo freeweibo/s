@@ -19,6 +19,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3976054244366310" target="freeweibo-mirror">//@林治波://@真理阳光VVV: 时代在进步，理论也要进…</a>
+</h2>
+<p>//@林治波://@真理阳光VVV: 时代在进步，理论也要进步，不反无产阶级，也不反资产阶级，但要维护国家统一，维护公平正义，维护人类历史发展和进步，不断解放和发展人和人权，永远站在历史前进的潮头浪尖<br><br>RE: 文革是一把尺，测量着谁拥护毛泽东思想？谁反对毛泽东思想？文革是一把刀，无产阶级喜欢，资产阶级害怕！文革是分水岭，一边站着社会主义阵营，一边站着资本主义阵营。文革将永久记在无产阶级心中，文革就是一面旗帜！<br><img src="http://ww1.sinaimg.cn/large/cb787320gw1f3xzr4begoj2085064weq.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3976036322698424" target="freeweibo-mirror">SPAM //@顾猷:党章不排除对某些人也能起到制服作用。</a>
 </h2>
 <p>SPAM //@顾猷:党章不排除对某些人也能起到制服作用。</p>
@@ -89,7 +95,7 @@
 </h2>
 <p>[蜡烛][蜡烛]//@萧含:[蜡烛][蜡烛]//@张洪忠: 转发微博<br><br>RE: 吊唁文革中被迫害致死或自杀身亡的155位艺术大师 http://t.cn/RqDPCCq</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3975995156004376" target="freeweibo-mirror">人民日报：把“文化大革命”时期同作为政治运动的“文化大革命”…</a>
 </h2>
@@ -119,7 +125,7 @@
 </h2>
 <p>SPAM [爱你] [爱你]</p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3975935055121075" target="freeweibo-mirror">【“文革期间的成绩”并不等于“文革的成绩”】比如，陈景润在文…</a>
 </h2>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3975918404140809" target="freeweibo-mirror">SPAM //@北美时尚快报:你拍七，我排七，724转发送白…</a>
 </h2>
 <p>SPAM //@北美时尚快报:你拍七，我排七，724转发送白泥！</p>
-<p>
-	<small> ============== 11小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3975907721533683" target="freeweibo-mirror">SPAM //@李翔196811://@不让上网就上你://…</a>
-</h2>
-<p>SPAM //@李翔196811://@不让上网就上你://@深圳结构老猫: //@乌托国民16://@又来金好多: //@背条老藤上北京://@与狼共舞和握拳而立: [doge]//@加菲g炮1314Cat:[doge]//@叶伟强E:[喵喵] //@青山怎能不妩媚:[doge]//@一滴水里的石头: [doge]<br><br>RE: 「殺人兇手被「悼念」是一個危險信號。」——@新華網<br><img src="http://ww4.sinaimg.cn/large/006rAavhgw1f3xhdq9ks7j30et0ghq5b.jpg"></p>
 <p>
 	<small> ============== 11小时前</small>
 </p>
