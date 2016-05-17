@@ -29,7 +29,7 @@
 </h2>
 <p>一则趣闻：某地方政府联合当地官媒搞了一个政务App，给领导汇报测试时，领导发现App的推送权限竟然还要用户允许才能通过，勃然大怒，让手下「找苹果来谈谈」，「我们政府发的权威消息，苹果怎么敢搞拦截」。（via阑夕）<br><img src="http://ww2.sinaimg.cn/large/77101dc1jw1f3y64pafwij20jz0zkq6p.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3976133353594403" target="freeweibo-mirror">若是虚构事实诬陷他人犯罪，是刑事案件请依法追究刑事责任，而应…</a>
 </h2>
@@ -107,7 +107,7 @@
 </h2>
 <p>SPAM 这就是风靡国外的一体衣，刚入了一套尝尝鲜。@ONEPIECE-CLOTHING 挺有个性的，分享几张图想入手的可以用我的折扣码：Running  去试试，地址http://t.cn/RqC7n5Z<br><img src="http://ww3.sinaimg.cn/large/9fa011c4jw1f3y7xcl28gj20nv0nvaf6.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3976079939517965" target="freeweibo-mirror">密切关注雷洋（故且称嫖娼嫌疑人被抓嫖致死）案件进展，不仅仅是…</a>
 </h2>
