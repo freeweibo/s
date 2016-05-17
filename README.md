@@ -59,7 +59,7 @@
 </h2>
 <p>SPAM Shinsegae Duty Free Shop D-1<br><img src="http://ww1.sinaimg.cn/large/e1b3af7bgw1f3ynh54dhuj20j50ccwf4.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3976207001929007" target="freeweibo-mirror">//@勇敢的春之声2015://@炎黄子孙412: //@司…</a>
 </h2>
@@ -101,13 +101,13 @@
 </h2>
 <p>//@康少见: [吃惊]//@迟夙生律师: //@张洲:牛逼！不过也太公然了吧？//@北京厨子新号: //@张洪峰: 直接去检察院控告，验伤，打人的警察面对检察官时，也就一发抖的主儿。<br><br>RE: #兰州身边事#【网曝：兰州市和平镇民警暴力执法，用警棍殴打大学生[怒]】网友爆料：“兰州市和平民警粗暴执法，使用暴力打大学生，[怒]民警为夺证据视频，将大学生拉倒派出所，用警棍和耳光轮番伺候，而且不准叫出声来，叫一声加5棍，两个人的屁股都开花了！#兰州微导航# 请问，警察就这样执法吗？如何...全文： http://m.weibo.cn/3051949107/3976133244293224<br><img src="http://ww4.sinaimg.cn/large/b5e90c33jw1f3ydnpd5i0j20f60ixdiv.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3976172398562428" target="freeweibo-mirror">//@紫衫黎庶: //@舞云弄雨雾中龙: //@北京厨子新号…</a>
 </h2>
 <p>//@紫衫黎庶: //@舞云弄雨雾中龙: //@北京厨子新号:<br><br>RE: #兰州身边事#【网曝：兰州市和平镇民警暴力执法，用警棍殴打大学生[怒]】网友爆料：“兰州市和平民警粗暴执法，使用暴力打大学生，[怒]民警为夺证据视频，将大学生拉倒派出所，用警棍和耳光轮番伺候，而且不准叫出声来，叫一声加5棍，两个人的屁股都开花了！#兰州微导航# 请问，警察就这样执法吗？如何...全文： http://m.weibo.cn/3051949107/3976133244293224<br><img src="http://ww4.sinaimg.cn/large/b5e90c33jw1f3ydnpd5i0j20f60ixdiv.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3976172314300427" target="freeweibo-mirror">//@迟夙生律师: //@张洲:牛逼！不过也太公然了吧？//…</a>
 </h2>
