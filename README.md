@@ -23,7 +23,13 @@
 </h2>
 <p>再一次证明了一点，那就是：档指挥 枪！[嘘]//@亚军要学习: 想要“为人民服务”而不择手段……<br><br>RE: 在新婚之夜抄写党章，是“论党性不论人性”的实践吗？</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3976060351715685" target="freeweibo-mirror">这届人民不行//@Black_黑数码:这届人民不行//@霜叶…</a>
+</h2>
+<p>这届人民不行//@Black_黑数码:这届人民不行//@霜叶不活跃: 这届人民不行//@tiry: //@死废鹅-星屑://@RX-78-8://@J-cupEvil: //@能靠点儿谱吗: 的确是这届人民不行//@HA_HoshinoArika:这届人民不行<br><br>RE: 2014年，汪龙起诉了中国联通，因为它没有提供完整的互联网服务（上不去 Google）。这个案子，最后的结局，居然是如此这般魔幻现实主义。本文已经获得原作者授权转载。<br><img src="http://ww1.sinaimg.cn/large/006r4rWYgw1f3xn6gyt0cj30ku112whe.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3976054244366310" target="freeweibo-mirror">//@林治波://@真理阳光VVV: 时代在进步，理论也要进…</a>
 </h2>
@@ -35,7 +41,7 @@
 </h2>
 <p>SPAM //@顾猷:党章不排除对某些人也能起到制服作用。</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3976033860422543" target="freeweibo-mirror">恩，我要存下来//@二吼: 全是套路//@王小山: 哈哈哈。…</a>
 </h2>
@@ -83,7 +89,7 @@
 </h2>
 <p>SPAM //@孔智-勇://@风青杨V://@杜君立: 非礼勿视，非礼勿听，非礼勿言，懂规矩，讲党性[熊猫]//@张欣bpv://@邓相超://@禁言too://@疯狂历史老师:配图好评[good]<br><br>RE: 50周年<br><img src="http://ww1.sinaimg.cn/large/717d7913gw1f3wyv38maij20vk0hsn2r.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3976011849129496" target="freeweibo-mirror">文革是一把尺，测量着谁拥护毛泽东思想？谁反对毛泽东思想？文革…</a>
 </h2>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3975947835277008" target="freeweibo-mirror">吊唁文革中被迫害致死或自杀身亡的155位艺术大师 http:…</a>
 </h2>
 <p>吊唁文革中被迫害致死或自杀身亡的155位艺术大师 http://t.cn/RqDPCCq</p>
-<p>
-	<small> ============== 9小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3975946317318849" target="freeweibo-mirror">人民日报：决不允许“文革”错误重演。頻繁屏蔽涉及文革的文章，…</a>
-</h2>
-<p>人民日报：决不允许“文革”错误重演。頻繁屏蔽涉及文革的文章，不正是錯誤已經重演的典型症狀嗎？ http://t.cn/RqDX5DX</p>
 <p>
 	<small> ============== 9小时前</small>
 </p>
