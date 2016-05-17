@@ -41,7 +41,7 @@
 </h2>
 <p>SPAM 这就是风靡国外的一体衣，刚入了一套尝尝鲜。@ONEPIECE-CLOTHING 挺有个性的，分享几张图想入手的可以用我的折扣码：Running  去试试，地址http://t.cn/RqC7n5Z<br><img src="http://ww3.sinaimg.cn/large/9fa011c4jw1f3y7xcl28gj20nv0nvaf6.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3976079939517965" target="freeweibo-mirror">密切关注雷洋（故且称嫖娼嫌疑人被抓嫖致死）案件进展，不仅仅是…</a>
 </h2>
@@ -77,7 +77,7 @@
 </h2>
 <p>哈哈哈哈 //@罗昌平:右边这位小伙伴，请你出来一下。//@littlehawk：是践行“党指挥枪”的原则！！！<br><br>RE: 在新婚之夜抄写党章，是“论党性不论人性”的实践吗？</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3976065560559955" target="freeweibo-mirror">再一次证明了一点，那就是：档指挥 枪！[嘘]//@亚军要学习…</a>
 </h2>
@@ -113,7 +113,7 @@
 </h2>
 <p>人民日报深夜发文，对这段时间愈演愈烈的“文革”之争，给左右各一巴掌。它告诉左派，“文革”必须否定，决不允许重来；它告诉右派，“文革”只是错误，是教训，不是罪行，别企图利用否定“文革”来否定党。<br><img src="http://ww4.sinaimg.cn/large/4ce32014jw1f3y4ka1v4zj20k00pzq9f.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3976050684072516" target="freeweibo-mirror">我记得徐友渔老师也这样说，如果按建国以来若干历史问题的决议定…</a>
 </h2>
