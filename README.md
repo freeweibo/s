@@ -25,9 +25,21 @@
 <p>
 	<small> ============== 4小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3976308856350753" target="freeweibo-mirror">不用多说，也已删除！</a>
+</h2>
+<p>不用多说，也已删除！<br><br>RE: 【不多说以防被删，报案书中基本把所有疑点都说的很清楚了。希望事情最后能有一个公开透明的处理结果。为了正义，也为了我们早已缺失的安全感。】摘自《雷洋妻子向北京市检察院报案：嫖娼是栽赃，雷洋被打死》http://t.cn/Rqk6bTP——能否洗冤</p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3976298726146503" target="freeweibo-mirror">//@未得糊涂://@50年矛苔: //@流小曲:[话筒]/…</a>
 </h2>
 <p>//@未得糊涂://@50年矛苔: //@流小曲:[话筒]//@守候者说: //@博者文摘:转发微博<br><br>RE: 嫖娼硕士妻报案书：嫖娼是栽赃，雷洋被打死<br><img src="http://ww4.sinaimg.cn/large/48cd1054jw1f3yqpy8bufj20qo0zkjyx.jpg"></p>
+<p>
+	<small> ============== 5小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3976298437619988" target="freeweibo-mirror">SPAM #晚间话题# 这个关于雷洋案刑事报案书的文章还没删…</a>
+</h2>
+<p>SPAM #晚间话题# 这个关于雷洋案刑事报案书的文章还没删除！http://t.cn/RqkoiUa</p>
 <p>
 	<small> ============== 5小时前</small>
 </p><h2>
@@ -124,18 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3976262945255175" target="freeweibo-mirror">五味杂陈</a>
 </h2>
 <p>五味杂陈<br><br>RE: 【且等！】5月17日上午，雷洋家属及代理律师向北京检方递交了一份《刑事报案书》，以控告北京市公安局昌平分局参加办理雷洋涉嫌“嫖娼”案件的相关警察、辅警。 http://t.cn/RqkxTjC</p>
-<p>
-	<small> ============== 7小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3976262328438796" target="freeweibo-mirror">SPAM 我党能做好所有可以用数字精确衡量的事，而文宣这种不…</a>
-</h2>
-<p>SPAM 我党能做好所有可以用数字精确衡量的事，而文宣这种不能用数字衡量的基本没戏。典型的理工科生治国。</p>
-<p>
-	<small> ============== 7小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3976260268950093" target="freeweibo-mirror">SPAM 哈哈哈//@PanTadeusz://@住在武藏上…</a>
-</h2>
-<p>SPAM 哈哈哈//@PanTadeusz://@住在武藏上的葵托利:[阴险]御驾亲征洗面奶233→//@無畏的小肥羊VI: 滋磁！另外強烈要求用洗頭艇代替太空梭海盜船，以及加入洗面奶等娛樂項目[阴险]<br><br>RE: 【提议在上海迪士尼乐园内开设100家庆丰包子铺！】上海迪士尼乐园内的杂牌天价小笼包，让刘信达非常生气，恨不得扔过去打狗！庆丰乃中华第一包子，那么亲民，为啥不引进？刘信达提议关闭园内所有的中西餐饮店，全部改为庆丰包子铺！在刘信达心目中，庆丰包子最时尚，最防腐，最美味，与迪士尼最绝配！</p>
 <p>
 	<small> ============== 7小时前</small>
 </p>
