@@ -35,7 +35,7 @@
 </h2>
 <p>环球时报说，文革已经被彻底否定，是吗？为何人日和环球在516这天不说，偏要在今天5月17号说呢？</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3976022674011582" target="freeweibo-mirror">//@李大华V://@作家金槿姬:其中包括：中华人民共和国国…</a>
 </h2>
@@ -65,7 +65,7 @@
 </h2>
 <p>//@zhuxunlu:转发微博</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3976007284834416" target="freeweibo-mirror">//@Raymondle:评论都不敢开，散了吧都。个人崇拜严…</a>
 </h2>
@@ -125,7 +125,7 @@
 </h2>
 <p>SPAM //@北美时尚快报:你拍七，我排七，724转发送白泥！</p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3975907721533683" target="freeweibo-mirror">SPAM //@李翔196811://@不让上网就上你://…</a>
 </h2>
