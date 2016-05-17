@@ -53,7 +53,7 @@
 </h2>
 <p>假如，有人现在没机会批斗反革命走资派了，就来批斗买春客和失足妇女，不以政治的理由而以道德的名义，大家觉得会如何？[思考] //@张鸿://@雷颐://@眠琴山房: MLGB！今天这一天真憋屈。</p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3975892403775796" target="freeweibo-mirror">//@LifeTime:明明是“中共中央”发的文革通知，怎么…</a>
 </h2>
@@ -107,7 +107,7 @@
 </h2>
 <p>发图片吧。<br><img src="http://ww4.sinaimg.cn/large/5938534bgw1f3xin86t0wj20ku112gq6.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3975859012466318" target="freeweibo-mirror"></a>
 </h2>
