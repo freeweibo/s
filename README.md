@@ -83,7 +83,7 @@
 </h2>
 <p>[蜡烛][蜡烛]//@萧含:[蜡烛][蜡烛]//@张洪忠: 转发微博<br><br>RE: 吊唁文革中被迫害致死或自杀身亡的155位艺术大师 http://t.cn/RqDPCCq</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3975995156004376" target="freeweibo-mirror">人民日报：把“文化大革命”时期同作为政治运动的“文化大革命”…</a>
 </h2>
@@ -113,7 +113,7 @@
 </h2>
 <p>SPAM [爱你] [爱你]</p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3975935055121075" target="freeweibo-mirror">【“文革期间的成绩”并不等于“文革的成绩”】比如，陈景润在文…</a>
 </h2>
