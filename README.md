@@ -29,7 +29,7 @@
 </h2>
 <p>这届人民不行//@Black_黑数码:这届人民不行//@霜叶不活跃: 这届人民不行//@tiry: //@死废鹅-星屑://@RX-78-8://@J-cupEvil: //@能靠点儿谱吗: 的确是这届人民不行//@HA_HoshinoArika:这届人民不行<br><br>RE: 2014年，汪龙起诉了中国联通，因为它没有提供完整的互联网服务（上不去 Google）。这个案子，最后的结局，居然是如此这般魔幻现实主义。本文已经获得原作者授权转载。<br><img src="http://ww1.sinaimg.cn/large/006r4rWYgw1f3xn6gyt0cj30ku112whe.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3976054244366310" target="freeweibo-mirror">//@林治波://@真理阳光VVV: 时代在进步，理论也要进…</a>
 </h2>
