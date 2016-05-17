@@ -31,6 +31,18 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3976024872694345" target="freeweibo-mirror">环球时报说，文革已经被彻底否定，是吗？为何人日和环球在516…</a>
+</h2>
+<p>环球时报说，文革已经被彻底否定，是吗？为何人日和环球在516这天不说，偏要在今天5月17号说呢？</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3976022674011582" target="freeweibo-mirror">//@李大华V://@作家金槿姬:其中包括：中华人民共和国国…</a>
+</h2>
+<p>//@李大华V://@作家金槿姬:其中包括：中华人民共和国国歌《义勇军进行曲》的歌词作者田汉先生，中国有史以来的第一个世界冠军获得者、世界著名乒乓球运动员容国团均被迫自杀身亡！[蜡烛][蜡烛][蜡烛]<br><br>RE: 吊唁文革中被迫害致死或自杀身亡的155位艺术大师 http://t.cn/RqDPCCq</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3976022414755406" target="freeweibo-mirror">//@老蔺草民://@怪才老顽童3://@寒霜落萍浮:经典。</a>
 </h2>
 <p>//@老蔺草民://@怪才老顽童3://@寒霜落萍浮:经典。<br><br>RE: 毛泽东干革命搞建设，应用的是公心、培育的也是公心；邓小平搞改革弄经济，利用的是私心、刺激的也是私心。</p>
@@ -48,6 +60,12 @@
 <p>SPAM //@孔智-勇://@风青杨V://@杜君立: 非礼勿视，非礼勿听，非礼勿言，懂规矩，讲党性[熊猫]//@张欣bpv://@邓相超://@禁言too://@疯狂历史老师:配图好评[good]<br><br>RE: 50周年<br><img src="http://ww1.sinaimg.cn/large/717d7913gw1f3wyv38maij20vk0hsn2r.jpg"></p>
 <p>
 	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3976009684319874" target="freeweibo-mirror">//@zhuxunlu:转发微博</a>
+</h2>
+<p>//@zhuxunlu:转发微博</p>
+<p>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3975999513157281" target="freeweibo-mirror">//@杨锦麟: 回复@葉子lucky07:不徹底否定之，所謂…</a>
 </h2>
@@ -113,29 +131,11 @@
 </h2>
 <p>//@临时到永远://@程海律师: @孟猛律师 @徐昕 @河南石玉 @蔺其磊律师 @干卫东律师 @常伯阳夫人 @发明人沈保民 @覃永沛律师 @董前勇律师青羊马甲 @李静林-律师 @李仲伟律师 @张锦宏律师 @济南律师王道刚<br><br>RE: 发表了博文《20律师要求对雷洋案警察等立即按滥用职权罪立案追责！》雷洋非正常死亡案律师法律意见书致函人（20位律师）：程海北京悟天律师事务所律师，18910535236。孟猛北京华泰（郑州）律师事务所http://t.cn/RqDfoqH<br><img src="http://ww4.sinaimg.cn/large/8f4dacc9jw1f3xl4z1zavj207607fjs8.jpg"></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3975894240259864" target="freeweibo-mirror">白天开了一天会，晚上一刷朋友圈，发现很多篇关于那场十年疯人院…</a>
 </h2>
 <p>白天开了一天会，晚上一刷朋友圈，发现很多篇关于那场十年疯人院运动的文章点开后都是这样的显示。仔细想想，疯人院也好，雷洋也好，减招也好，中概回归也好，很多事的背后都是同一个道理--没有边界的权力=随时可能被践踏的权利。如果连病根儿都不让讨论，治愈一定比病魔更遥远。<br><img src="http://ww3.sinaimg.cn/large/47665bc1jw1f3xm8hy1vgj20ku11275d.jpg"></p>
-<p>
-	<small> ============== 11小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3975893489678519" target="freeweibo-mirror">假如，有人现在没机会批斗反革命走资派了，就来批斗买春客和失足…</a>
-</h2>
-<p>假如，有人现在没机会批斗反革命走资派了，就来批斗买春客和失足妇女，不以政治的理由而以道德的名义，大家觉得会如何？[思考] //@张鸿://@雷颐://@眠琴山房: MLGB！今天这一天真憋屈。</p>
-<p>
-	<small> ============== 11小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3975892403775796" target="freeweibo-mirror">//@LifeTime:明明是“中共中央”发的文革通知，怎么…</a>
-</h2>
-<p>//@LifeTime:明明是“中共中央”发的文革通知，怎么只算成毛个人发动？[悲催]<br><br>RE: 516——为了忘却的纪念。什么时候真正全面反思文革，反思它的个人崇拜、无休止的运动、煽动年轻人、破坏法治、盲目仇外、糟蹋历史……中国什么时候才能真正走向文明！黑格尔说历史往往是相似的，第一次出现是悲剧，第二次就是闹剧了。同意请转发<br><img src="http://ww1.sinaimg.cn/large/62c109c2jw1f3xjn80yktj20m80goq5g.jpg"></p>
-<p>
-	<small> ============== 11小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3975892168236603" target="freeweibo-mirror">SPAM http://t.cn/RqDI4hE</a>
-</h2>
-<p>SPAM http://t.cn/RqDI4hE</p>
 <p>
 	<small> ============== 11小时前</small>
 </p>
