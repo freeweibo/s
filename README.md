@@ -113,7 +113,7 @@
 </h2>
 <p>SPAM //@gtchenweio://@顺服者: 毛笔不错 //@公民-平子哥://@舜之壤一胡尘里: 大姨妈//@背条老藤上北京:转发微博</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3976246608722002" target="freeweibo-mirror">//@轰天老炮:呵呵，文革逻辑和马列逻辑分得开吗？</a>
 </h2>
