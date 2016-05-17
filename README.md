@@ -47,7 +47,7 @@
 </h2>
 <p>【山东日照多名男生厕所围殴同学要其“舔屎”，警方：已和解】 http://t.cn/RqDULkb 评：和解的本质是为了一己私利而纵容作恶！强化了作恶者花钱即可摆平的可怕心理！via刘胜军<br><img src="http://ww4.sinaimg.cn/large/77101dc1jw1f3y5elpuywj20qo1bfqbm.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3976087048488744" target="freeweibo-mirror">这打飞机太恐怖了吧？[傻眼][抓狂][哈哈]还好只打几分钟，…</a>
 </h2>
@@ -83,7 +83,7 @@
 </h2>
 <p>包子要一个一个吃，如果可以反思文革，也许还有机会往前走，一点一点突破禁区，总不能想着，先把最难突破的禁区突破了，然后再来简单的。那不是跟某党左派的激进主义一样了么//@黄章晋ster: 列宁和斯大林哪个更残酷些？当然是列宁，他曾当面批评斯大林的软弱和自由主义倾向。莫洛托夫如是说<br><br>RE: 文革是空前绝后惨烈吗？——这是对历时与事实的误解，自由派在历时政治观上的出息也只有这么大，思维很难散步到历时决议划定的框架之外，跑不出教科书的如来神掌，文革研究权威宋永毅说，如果按照今天大陆对文革的调子来反思文革建纪念馆，还不如不建，这样的结果更加误导人.@胡戈 @黄章晋ster<br><img src="http://ww4.sinaimg.cn/large/d18840fbgw1f3y3z4br2oj20ri4a4wo7.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3976075098504633" target="freeweibo-mirror">//@严锋:太惨</a>
 </h2>
@@ -119,7 +119,7 @@
 </h2>
 <p>这届人民不行//@Black_黑数码:这届人民不行//@霜叶不活跃: 这届人民不行//@tiry: //@死废鹅-星屑://@RX-78-8://@J-cupEvil: //@能靠点儿谱吗: 的确是这届人民不行//@HA_HoshinoArika:这届人民不行<br><br>RE: 2014年，汪龙起诉了中国联通，因为它没有提供完整的互联网服务（上不去 Google）。这个案子，最后的结局，居然是如此这般魔幻现实主义。本文已经获得原作者授权转载。<br><img src="http://ww1.sinaimg.cn/large/006r4rWYgw1f3xn6gyt0cj30ku112whe.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3976054496874043" target="freeweibo-mirror">如果连这些问题都不准提出来，不去搞清楚，都要被删帖，那还谈何…</a>
 </h2>
