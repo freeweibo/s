@@ -29,7 +29,7 @@
 </h2>
 <p>SPAM //@慕恭: //@DopeyTom: 为图转。//@邓相超: //@禁言too: //@疯狂历史老师:配图好评[good]<br><br>RE: 50周年<br><img src="http://ww1.sinaimg.cn/large/717d7913gw1f3wyv38maij20vk0hsn2r.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3976022414755406" target="freeweibo-mirror">//@老蔺草民://@怪才老顽童3://@寒霜落萍浮:经典。</a>
 </h2>
@@ -53,7 +53,7 @@
 </h2>
 <p>//@杨锦麟: 回复@葉子lucky07:不徹底否定之，所謂的徹底否定，也就是奉命做文章，說說而已。單仁平就是這樣的人。//@葉子lucky07:吴伟责问非常犀利！→_→  http://t.cn/RqDXJVD<br><br>RE: 人民日报：决不允许“文革”错误重演。頻繁屏蔽涉及文革的文章，不正是錯誤已經重演的典型症狀嗎？ http://t.cn/RqDX5DX</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3975996711478499" target="freeweibo-mirror">[蜡烛][蜡烛]//@萧含:[蜡烛][蜡烛]//@张洪忠: …</a>
 </h2>
@@ -72,6 +72,18 @@
 <p>//@陨石老刀: [给力]//@哈尔滨九九八十一:怀念，世界尊重滴毛凙東！。早安納福。//@陨石老刀: [话筒][话筒]//@兔牙木木:转发微博</p>
 <p>
 	<small> ============== 4小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3975947835277008" target="freeweibo-mirror">吊唁文革中被迫害致死或自杀身亡的155位艺术大师 http:…</a>
+</h2>
+<p>吊唁文革中被迫害致死或自杀身亡的155位艺术大师 http://t.cn/RqDPCCq</p>
+<p>
+	<small> ============== 7小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3975946317318849" target="freeweibo-mirror">人民日报：决不允许“文革”错误重演。頻繁屏蔽涉及文革的文章，…</a>
+</h2>
+<p>人民日报：决不允许“文革”错误重演。頻繁屏蔽涉及文革的文章，不正是錯誤已經重演的典型症狀嗎？ http://t.cn/RqDX5DX</p>
+<p>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3975937001366885" target="freeweibo-mirror">SPAM [爱你] [爱你]</a>
 </h2>
@@ -101,7 +113,7 @@
 </h2>
 <p>假如，有人现在没机会批斗反革命走资派了，就来批斗买春客和失足妇女，不以政治的理由而以道德的名义，大家觉得会如何？[思考] //@张鸿://@雷颐://@眠琴山房: MLGB！今天这一天真憋屈。</p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3975892403775796" target="freeweibo-mirror">//@LifeTime:明明是“中共中央”发的文革通知，怎么…</a>
 </h2>
@@ -124,18 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3975886505773556" target="freeweibo-mirror">所以我不担心纪念文革所导致的社会撕裂，我更关注的是社会表达和…</a>
 </h2>
 <p>所以我不担心纪念文革所导致的社会撕裂，我更关注的是社会表达和公开辩论的自由，以及能否形成基础性的辩论规则，从而避免民粹主义的暴力，减少社会成本。</p>
-<p>
-	<small> ============== 11小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3975884488090034" target="freeweibo-mirror">发表了博文《20律师要求对雷洋案警察等立即按滥用职权罪立案追…</a>
-</h2>
-<p>发表了博文《20律师要求对雷洋案警察等立即按滥用职权罪立案追责！》雷洋非正常死亡案律师法律意见书致函人（20位律师）：程海北京悟天律师事务所律师，18910535236。孟猛北京华泰（郑州）律师事务所http://t.cn/RqDfoqH<br><img src="http://ww4.sinaimg.cn/large/8f4dacc9jw1f3xl4z1zavj207607fjs8.jpg"></p>
-<p>
-	<small> ============== 11小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3975883243116620" target="freeweibo-mirror">//@普法三十年-: //@迷-与-悟丶94: //@舜之壤…</a>
-</h2>
-<p>//@普法三十年-: //@迷-与-悟丶94: //@舜之壤一胡尘里: 习李//@上善若水童:转发微博<br><br>RE: </p>
 <p>
 	<small> ============== 11小时前</small>
 </p>
