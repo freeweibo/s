@@ -23,7 +23,7 @@
 </h2>
 <p>SPAM //@顾猷:党章不排除对某些人也能起到制服作用。</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3976029468674854" target="freeweibo-mirror">SPAM //@慕恭: //@DopeyTom: 为图转。/…</a>
 </h2>
@@ -59,11 +59,17 @@
 </h2>
 <p>SPAM //@孔智-勇://@风青杨V://@杜君立: 非礼勿视，非礼勿听，非礼勿言，懂规矩，讲党性[熊猫]//@张欣bpv://@邓相超://@禁言too://@疯狂历史老师:配图好评[good]<br><br>RE: 50周年<br><img src="http://ww1.sinaimg.cn/large/717d7913gw1f3wyv38maij20vk0hsn2r.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3976009684319874" target="freeweibo-mirror">//@zhuxunlu:转发微博</a>
 </h2>
 <p>//@zhuxunlu:转发微博</p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3976007284834416" target="freeweibo-mirror">//@Raymondle:评论都不敢开，散了吧都。个人崇拜严…</a>
+</h2>
+<p>//@Raymondle:评论都不敢开，散了吧都。个人崇拜严重。整天大大麻麻。傻不傻。我们投票了吗？</p>
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3975898220760866" target="freeweibo-mirror">//@临时到永远://@程海律师: @孟猛律师 @徐昕 @河…</a>
 </h2>
 <p>//@临时到永远://@程海律师: @孟猛律师 @徐昕 @河南石玉 @蔺其磊律师 @干卫东律师 @常伯阳夫人 @发明人沈保民 @覃永沛律师 @董前勇律师青羊马甲 @李静林-律师 @李仲伟律师 @张锦宏律师 @济南律师王道刚<br><br>RE: 发表了博文《20律师要求对雷洋案警察等立即按滥用职权罪立案追责！》雷洋非正常死亡案律师法律意见书致函人（20位律师）：程海北京悟天律师事务所律师，18910535236。孟猛北京华泰（郑州）律师事务所http://t.cn/RqDfoqH<br><img src="http://ww4.sinaimg.cn/large/8f4dacc9jw1f3xl4z1zavj207607fjs8.jpg"></p>
-<p>
-	<small> ============== 11小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3975894240259864" target="freeweibo-mirror">白天开了一天会，晚上一刷朋友圈，发现很多篇关于那场十年疯人院…</a>
-</h2>
-<p>白天开了一天会，晚上一刷朋友圈，发现很多篇关于那场十年疯人院运动的文章点开后都是这样的显示。仔细想想，疯人院也好，雷洋也好，减招也好，中概回归也好，很多事的背后都是同一个道理--没有边界的权力=随时可能被践踏的权利。如果连病根儿都不让讨论，治愈一定比病魔更遥远。<br><img src="http://ww3.sinaimg.cn/large/47665bc1jw1f3xm8hy1vgj20ku11275d.jpg"></p>
 <p>
 	<small> ============== 11小时前</small>
 </p>
