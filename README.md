@@ -23,7 +23,7 @@
 </h2>
 <p>【深圳这位高官曾买42套房 其女以4.5折低价购房】新华视点：深圳政法委原书记蒋尊玉涉嫌受贿7000多万，大多涉及房地产开发。2015年2月9日，广东省纪委副书记钟世坚介绍反腐情况时指出，蒋尊玉为家人先后买入了42套住房，存款和投资股票银行资金有两亿多元，巨额资产来源不明http://t.cn/RqD85vK<br><img src="http://ww3.sinaimg.cn/large/77101dc1jw1f3yc1sfbkvj20qe0hsmzc.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3976091418953067" target="freeweibo-mirror">【山东日照多名男生厕所围殴同学要其“舔屎”，警方：已和解】 …</a>
 </h2>
