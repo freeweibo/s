@@ -31,6 +31,42 @@
 <p>
 	<small> ============== 1小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3976022414755406" target="freeweibo-mirror">//@老蔺草民://@怪才老顽童3://@寒霜落萍浮:经典。</a>
+</h2>
+<p>//@老蔺草民://@怪才老顽童3://@寒霜落萍浮:经典。<br><br>RE: 毛泽东干革命搞建设，应用的是公心、培育的也是公心；邓小平搞改革弄经济，利用的是私心、刺激的也是私心。</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3976021688948587" target="freeweibo-mirror">放屁！[弱]//@孔智-勇:坑爹的辩证历史观。//@我要法网…</a>
+</h2>
+<p>放屁！[弱]//@孔智-勇:坑爹的辩证历史观。//@我要法网: 半夜发文，鬼祟缠身！文化革命，从来有停？！</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3976021118609844" target="freeweibo-mirror">SPAM //@孔智-勇://@风青杨V://@杜君立: 非…</a>
+</h2>
+<p>SPAM //@孔智-勇://@风青杨V://@杜君立: 非礼勿视，非礼勿听，非礼勿言，懂规矩，讲党性[熊猫]//@张欣bpv://@邓相超://@禁言too://@疯狂历史老师:配图好评[good]<br><br>RE: 50周年<br><img src="http://ww1.sinaimg.cn/large/717d7913gw1f3wyv38maij20vk0hsn2r.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3975999513157281" target="freeweibo-mirror">//@杨锦麟: 回复@葉子lucky07:不徹底否定之，所謂…</a>
+</h2>
+<p>//@杨锦麟: 回复@葉子lucky07:不徹底否定之，所謂的徹底否定，也就是奉命做文章，說說而已。單仁平就是這樣的人。//@葉子lucky07:吴伟责问非常犀利！→_→  http://t.cn/RqDXJVD<br><br>RE: 人民日报：决不允许“文革”错误重演。頻繁屏蔽涉及文革的文章，不正是錯誤已經重演的典型症狀嗎？ http://t.cn/RqDX5DX</p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3975996711478499" target="freeweibo-mirror">[蜡烛][蜡烛]//@萧含:[蜡烛][蜡烛]//@张洪忠: …</a>
+</h2>
+<p>[蜡烛][蜡烛]//@萧含:[蜡烛][蜡烛]//@张洪忠: 转发微博<br><br>RE: 吊唁文革中被迫害致死或自杀身亡的155位艺术大师 http://t.cn/RqDPCCq</p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3975995156004376" target="freeweibo-mirror">人民日报：把“文化大革命”时期同作为政治运动的“文化大革命”…</a>
+</h2>
+<p>人民日报：把“文化大革命”时期同作为政治运动的“文化大革命”区分开来，把“文化大革命”的错误理论与实践同这十年的整个历史区分开来。翻译一下：要把纳粹二战时“错误”与德国二战期间历史分开。这离文革翻案只差一步了，他们想干啥？</p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3975988213726223" target="freeweibo-mirror">//@陨石老刀: [给力]//@哈尔滨九九八十一:怀念，世界…</a>
 </h2>
 <p>//@陨石老刀: [给力]//@哈尔滨九九八十一:怀念，世界尊重滴毛凙東！。早安納福。//@陨石老刀: [话筒][话筒]//@兔牙木木:转发微博</p>
@@ -53,7 +89,7 @@
 </h2>
 <p>SPAM //@李翔196811://@不让上网就上你://@深圳结构老猫: //@乌托国民16://@又来金好多: //@背条老藤上北京://@与狼共舞和握拳而立: [doge]//@加菲g炮1314Cat:[doge]//@叶伟强E:[喵喵] //@青山怎能不妩媚:[doge]//@一滴水里的石头: [doge]<br><br>RE: 「殺人兇手被「悼念」是一個危險信號。」——@新華網<br><img src="http://ww4.sinaimg.cn/large/006rAavhgw1f3xhdq9ks7j30et0ghq5b.jpg"></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3975898220760866" target="freeweibo-mirror">//@临时到永远://@程海律师: @孟猛律师 @徐昕 @河…</a>
 </h2>
@@ -71,13 +107,13 @@
 </h2>
 <p>//@LifeTime:明明是“中共中央”发的文革通知，怎么只算成毛个人发动？[悲催]<br><br>RE: 516——为了忘却的纪念。什么时候真正全面反思文革，反思它的个人崇拜、无休止的运动、煽动年轻人、破坏法治、盲目仇外、糟蹋历史……中国什么时候才能真正走向文明！黑格尔说历史往往是相似的，第一次出现是悲剧，第二次就是闹剧了。同意请转发<br><img src="http://ww1.sinaimg.cn/large/62c109c2jw1f3xjn80yktj20m80goq5g.jpg"></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3975892168236603" target="freeweibo-mirror">SPAM http://t.cn/RqDI4hE</a>
 </h2>
 <p>SPAM http://t.cn/RqDI4hE</p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3975890364901083" target="freeweibo-mirror">人间地狱！http://t.cn/RqeHC15</a>
 </h2>
@@ -102,42 +138,6 @@
 <p>//@普法三十年-: //@迷-与-悟丶94: //@舜之壤一胡尘里: 习李//@上善若水童:转发微博<br><br>RE: </p>
 <p>
 	<small> ============== 11小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3975881301226225" target="freeweibo-mirror">SPAM //@翻译与翻译研究:今天是五十周年日。</a>
-</h2>
-<p>SPAM //@翻译与翻译研究:今天是五十周年日。<br><br>RE: 人生轨迹（217）读图辨史http://t.cn/RqDb9Yi</p>
-<p>
-	<small> ============== 11小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3975875273383536" target="freeweibo-mirror">人生轨迹（217）读图辨史http://t.cn/RqDb9…</a>
-</h2>
-<p>人生轨迹（217）读图辨史http://t.cn/RqDb9Yi</p>
-<p>
-	<small> ============== 12小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3975862786865464" target="freeweibo-mirror">发图片吧。</a>
-</h2>
-<p>发图片吧。<br><img src="http://ww4.sinaimg.cn/large/5938534bgw1f3xin86t0wj20ku112gq6.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3975859012466318" target="freeweibo-mirror"></a>
-</h2>
-<p></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3975857230261471" target="freeweibo-mirror">人性泯灭，党性猖狂，好党员！ //@北京律师王兴:以官方文件…</a>
-</h2>
-<p>人性泯灭，党性猖狂，好党员！ //@北京律师王兴:以官方文件的形式确认了党性与人性的互斥 //@李方平律师:党令一来，违法的、泯灭人性的（平坟、强制堕胎等等）都可以干。<br><br>RE: 【党的好院长】河南内乡法院院长成延洲再次重申：“当党性和人性冲突时，我们坚决只论党性不论人性”。<br><img src="http://ww3.sinaimg.cn/large/6a80bfcdgw1f3x8yrr0kij20fa0k275v.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3975851786337003" target="freeweibo-mirror">三、其实，「超级魅力型领袖」有时是权力的产物，如果权力和地位…</a>
-</h2>
-<p>三、其实，「超级魅力型领袖」有时是权力的产物，如果权力和地位像蚂蚁窝或蜂窝里的蚁王、蜂王般显赫，他自然就有了魅力，领袖谈笑风扔挥斥方遒的魅力，其实是边上敬业的群众演员衬托出来的，典型如金三。坚持认为猫天生霸气且魅力的人，请看看他站在斯大林和蒋介石身边是个什么样。</p>
-<p>
-	<small> ============== 1天前</small>
 </p>
 <table>
     <tr>
