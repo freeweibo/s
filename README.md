@@ -43,11 +43,29 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3976271120130905" target="freeweibo-mirror">SPAM 关键是欺软怕硬，对小民过硬，对大老板过软，又挑起了…</a>
+</h2>
+<p>SPAM 关键是欺软怕硬，对小民过硬，对大老板过软，又挑起了事件和情绪的对立又培养了对手，很不明智。 //@八大商人:习总批评得对：“竟无一人是男儿！”[挖鼻] //@梦遗唐朝:党外人士真是一针见血啊</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3976267114110250" target="freeweibo-mirror">SPAM 加一个</a>
+</h2>
+<p>SPAM 加一个</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3976263469273966" target="freeweibo-mirror">SPAM 党外人士真是一针见血啊</a>
+</h2>
+<p>SPAM 党外人士真是一针见血啊</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3976262328438796" target="freeweibo-mirror">SPAM 我党能做好所有可以用数字精确衡量的事，而文宣这种不…</a>
 </h2>
 <p>SPAM 我党能做好所有可以用数字精确衡量的事，而文宣这种不能用数字衡量的基本没戏。典型的理工科生治国。</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3976260268950093" target="freeweibo-mirror">SPAM 哈哈哈//@PanTadeusz://@住在武藏上…</a>
 </h2>
@@ -79,6 +97,18 @@
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3976254279303729" target="freeweibo-mirror">SPAM 文革一定会重来  文革是毛主席领导干的两件大事之一…</a>
+</h2>
+<p>SPAM 文革一定会重来  文革是毛主席领导干的两件大事之一。文革在毛主席逝世后党作了结论－－灾难。至少未来二十年不必再讨论再结论了。 但文革还会再来，且还会有很多次，形式可能会与时俱进！ 中国几千年，一直持续的是不断的农民革命，每一次农民革命都是无数生命的牺牲和生产力的大破坏！是毛主席一代领...全文： http://m.weibo.cn/1926889203/3976254279303729</p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3976251637241065" target="freeweibo-mirror">文革，放到今天不可思议，放在当年的环境背景中不难理解。过高赞…</a>
+</h2>
+<p>文革，放到今天不可思议，放在当年的环境背景中不难理解。过高赞扬和过多批评都没有必要，那就是一段自己的不成功历史。//@高立东-刀尖舞者:馊主意！怎么可能～//@李鸣生: 这个主意不错！<br><br>RE: 【文革申遗】中国最有资格做、而一直没有做的事情，就是将文革申遗。按照专家们的说法，作为人类历史上空前绝后的一场所有恶的总爆发，它完全符合申遗的第6条标准——“特殊的历史事件对人类的影响”。可以作为参考的是，“奥斯维辛迫害犹太人集中营”和“广岛和平公园”都已经是国外申遗成功的先例。<br><img src="http://ww3.sinaimg.cn/large/93cec5b8jw1f3yp29torpj209k0e2my9.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3976250059581113" target="freeweibo-mirror">SPAM //@gtchenweio://@顺服者: 毛笔不…</a>
 </h2>
 <p>SPAM //@gtchenweio://@顺服者: 毛笔不错 //@公民-平子哥://@舜之壤一胡尘里: 大姨妈//@背条老藤上北京:转发微博</p>
@@ -89,11 +119,17 @@
 </h2>
 <p>//@轰天老炮:呵呵，文革逻辑和马列逻辑分得开吗？<br><br>RE: 嘴上否定文革，实际投鼠忌器，没治了。</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3976244951571822" target="freeweibo-mirror">嘴上否定文革，实际投鼠忌器，没治了。</a>
 </h2>
 <p>嘴上否定文革，实际投鼠忌器，没治了。</p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3976243998696144" target="freeweibo-mirror">//@范剑平: //@张开磊:记住这张脸和这套衣服。 //@…</a>
+</h2>
+<p>//@范剑平: //@张开磊:记住这张脸和这套衣服。 //@老罗的微博:睁着眼睛说瞎话//@程中柳://@两棵白杨树的天堂：<br><br>RE: 雷洋家属在8日凌晨在中医院太平间、和13日在北京市公安局法医中心尸检前，都看到雷洋身上右额部被重击淤肿、阴部睾丸肿胀、右上臂、腰部、脸部都有严重伤痕，明显系暴力殴打形成 http://t.cn/RqkvTdg</p>
 <p>
 	<small> ============== 4小时前</small>
 </p><h2>
@@ -102,42 +138,6 @@
 <p>//@张开磊:记住这张脸和这套衣服。 //@老罗的微博:睁着眼睛说瞎话//@程中柳://@两棵白杨树的天堂：<br><br>RE: 雷洋家属在8日凌晨在中医院太平间、和13日在北京市公安局法医中心尸检前，都看到雷洋身上右额部被重击淤肿、阴部睾丸肿胀、右上臂、腰部、脸部都有严重伤痕，明显系暴力殴打形成 http://t.cn/RqkvTdg</p>
 <p>
 	<small> ============== 4小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3976233068977380" target="freeweibo-mirror">【文革申遗】中国最有资格做、而一直没有做的事情，就是将文革申…</a>
-</h2>
-<p>【文革申遗】中国最有资格做、而一直没有做的事情，就是将文革申遗。按照专家们的说法，作为人类历史上空前绝后的一场所有恶的总爆发，它完全符合申遗的第6条标准——“特殊的历史事件对人类的影响”。可以作为参考的是，“奥斯维辛迫害犹太人集中营”和“广岛和平公园”都已经是国外申遗成功的先例。<br><img src="http://ww3.sinaimg.cn/large/93cec5b8jw1f3yp29torpj209k0e2my9.jpg"></p>
-<p>
-	<small> ============== 4小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3976232565197105" target="freeweibo-mirror">SPAM 狗狗今晚好乖…[酷] http://t.cn/Rq…</a>
-</h2>
-<p>SPAM 狗狗今晚好乖…[酷] http://t.cn/RqETCaf</p>
-<p>
-	<small> ============== 4小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3976231772660282" target="freeweibo-mirror">SPAM 隔壁老王</a>
-</h2>
-<p>SPAM 隔壁老王</p>
-<p>
-	<small> ============== 4小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3976224647168977" target="freeweibo-mirror">这几天为大量媒体朋友找我，未能接受釆访请谅。刚在腾讯作了半小…</a>
-</h2>
-<p>这几天为大量媒体朋友找我，未能接受釆访请谅。刚在腾讯作了半小时直播访谈，能说的都说了。再申明几点：1，京衡律师第一阶段工作顺利完成已经离开北京。2，上午北京市检察院已经受理家属刑事报案，下一步两个等待：立案与否；尸检结论。3，目前为止，北京检方对本案是高度重视的，立案前的初查工作做...全文： http://m.weibo.cn/1803570001/3976224647168977<br><img src="http://ww3.sinaimg.cn/large/6b804b51gw1f3yo7c20fkj20qo0zkjyw.jpg"></p>
-<p>
-	<small> ============== 5小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3976218800248871" target="freeweibo-mirror">SPAM Shinsegae Duty Free Shop …</a>
-</h2>
-<p>SPAM Shinsegae Duty Free Shop D-1<br><img src="http://ww1.sinaimg.cn/large/e1b3af7bgw1f3ynh54dhuj20j50ccwf4.jpg"></p>
-<p>
-	<small> ============== 5小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3976208229803533" target="freeweibo-mirror">雷洋家属在8日凌晨在中医院太平间、和13日在北京市公安局法医…</a>
-</h2>
-<p>雷洋家属在8日凌晨在中医院太平间、和13日在北京市公安局法医中心尸检前，都看到雷洋身上右额部被重击淤肿、阴部睾丸肿胀、右上臂、腰部、脸部都有严重伤痕，明显系暴力殴打形成 http://t.cn/RqkvTdg</p>
-<p>
-	<small> ============== 6小时前</small>
 </p>
 <table>
     <tr>
