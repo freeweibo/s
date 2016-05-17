@@ -119,7 +119,7 @@
 </h2>
 <p>SPAM 我党能做好所有可以用数字精确衡量的事，而文宣这种不能用数字衡量的基本没戏。典型的理工科生治国。</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3976260268950093" target="freeweibo-mirror">SPAM 哈哈哈//@PanTadeusz://@住在武藏上…</a>
 </h2>
