@@ -29,7 +29,7 @@
 </h2>
 <p>这几天为大量媒体朋友找我，未能接受釆访请谅。刚在腾讯作了半小时直播访谈，能说的都说了。再申明几点：1，京衡律师第一阶段工作顺利完成已经离开北京。2，上午北京市检察院已经受理家属刑事报案，下一步两个等待：立案与否；尸检结论。3，目前为止，北京检方对本案是高度重视的，立案前的初查工作做...全文： http://m.weibo.cn/1803570001/3976224647168977<br><img src="http://ww3.sinaimg.cn/large/6b804b51gw1f3yo7c20fkj20qo0zkjyw.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3976218800248871" target="freeweibo-mirror">SPAM Shinsegae Duty Free Shop …</a>
 </h2>
