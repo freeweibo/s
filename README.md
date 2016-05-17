@@ -29,17 +29,23 @@
 </h2>
 <p>//@蓷8蘠8的8人: //@凉开水V泡茶:从许多伪造的事实来看，我更倾向于这是一宗谋杀案。<br><br>RE: 头条：雷洋最新情报：【“刑事报案书”描述雷洋之死经历》 今上午，雷洋家属及代理律师向北京检方递交了一份《刑事报案书》，控告北京公安局昌平分局相关警察、辅警。报案请求：对涉嫌犯罪的全部办案人员立案侦查，依法追究刑事责任！ http://t.cn/RqDFpti</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3976282699845964" target="freeweibo-mirror">//@郭靖55:杨锦麟个老不死的//@辟谣与真相:文中称：“…</a>
 </h2>
 <p>//@郭靖55:杨锦麟个老不死的//@辟谣与真相:文中称：“明显是外力伤害致死。待法医检验结论出来之后，一定会进一步证实这一结论。”——尸检机构、“专家证人”都是家属委托的。既然“一定”会证实你的结论，那么等结果出来再宣布“被打死”岂不稳操胜券？何必非要抢在结果出来前宣布“外力伤害致死？”<br><br>RE: “嫖娼”硕士妻报案书：嫖娼是栽赃，雷洋被打死。 http://t.cn/RqkzM7z</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3976280082866598" target="freeweibo-mirror">SPAM 老司机开车了？</a>
 </h2>
 <p>SPAM 老司机开车了？<br><br>RE: 女生什么时候最想啪啪啪呢？已经发了，[哆啦A梦吃惊]可加公主号liaoai233。查阅[偷笑]<br><img src="http://ww3.sinaimg.cn/large/b28db48cgw1f3yui8jq1qj20ku112gpb.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3976279613279996" target="freeweibo-mirror">女生什么时候最想啪啪啪呢？已经发了，[哆啦A梦吃惊]可加公主…</a>
+</h2>
+<p>女生什么时候最想啪啪啪呢？已经发了，[哆啦A梦吃惊]可加公主号liaoai233。查阅[偷笑]<br><img src="http://ww3.sinaimg.cn/large/b28db48cgw1f3yui8jq1qj20ku112gpb.jpg"></p>
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
@@ -83,13 +89,13 @@
 </h2>
 <p>SPAM 加一个</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3976266752964584" target="freeweibo-mirror">SPAM //@肾肾先生://@城南邮局:我想要冰激凌 你就…</a>
 </h2>
 <p>SPAM //@肾肾先生://@城南邮局:我想要冰激凌 你就给我个冰激凌呗</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3976266614521995" target="freeweibo-mirror">SPAM //@城南邮局:我想要冰激凌 你就给我个冰激凌呗</a>
 </h2>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3976258285396237" target="freeweibo-mirror">//@记者钱莽墩: 疑点重重[吃惊][吃惊]</a>
 </h2>
 <p>//@记者钱莽墩: 疑点重重[吃惊][吃惊]<br><br>RE: 雷洋家属在8日凌晨在中医院太平间、和13日在北京市公安局法医中心尸检前，都看到雷洋身上右额部被重击淤肿、阴部睾丸肿胀、右上臂、腰部、脸部都有严重伤痕，明显系暴力殴打形成 http://t.cn/RqkvTdg</p>
-<p>
-	<small> ============== 4小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3976254912965838" target="freeweibo-mirror">SPAM 微信圈里，几位党外朋友这样对我说。真郁闷死了！ —…</a>
-</h2>
-<p>SPAM 微信圈里，几位党外朋友这样对我说。真郁闷死了！ ——“贵党在抢占舆论高地时总跑输。” ——“贵党输在部门领导缺钙，只懂官本位，不敢担当。”</p>
 <p>
 	<small> ============== 4小时前</small>
 </p>
