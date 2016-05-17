@@ -19,6 +19,18 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3976145508146697" target="freeweibo-mirror">SPAM 《她阅》——女性专属阅读时尚。</a>
+</h2>
+<p>SPAM 《她阅》——女性专属阅读时尚。</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3976144367165013" target="freeweibo-mirror">一则趣闻：某地方政府联合当地官媒搞了一个政务App，给领导汇…</a>
+</h2>
+<p>一则趣闻：某地方政府联合当地官媒搞了一个政务App，给领导汇报测试时，领导发现App的推送权限竟然还要用户允许才能通过，勃然大怒，让手下「找苹果来谈谈」，「我们政府发的权威消息，苹果怎么敢搞拦截」。（via阑夕）<br><img src="http://ww2.sinaimg.cn/large/77101dc1jw1f3y64pafwij20jz0zkq6p.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3976133353594403" target="freeweibo-mirror">若是虚构事实诬陷他人犯罪，是刑事案件请依法追究刑事责任，而应…</a>
 </h2>
 <p>若是虚构事实诬陷他人犯罪，是刑事案件请依法追究刑事责任，而应该不是删帖。</p>
@@ -31,11 +43,29 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3976126932263758" target="freeweibo-mirror">//@干卫东律师://@章诒和://@雷颐:  //@北京江…</a>
+</h2>
+<p>//@干卫东律师://@章诒和://@雷颐:  //@北京江荣生:致敬！<br><br>RE: 京衡这次调集了近20位律师参加办理雷洋案。法律援助雷洋家属理性、依法维护自己合法权益。到京参加现场调查取证的有7位律师。邓学平律师，原苏州市某检察院公诉处副处长。周晓凤助理，原安徽省十佳公诉人，宣城市公诉处副处长。张建飞律师，原嘉兴市公安局刑侦支队警察。赵勤犇律师，原杭州市下城检察...全文： http://m.weibo.cn/1803570001/3976095001130083<br><img src="http://ww3.sinaimg.cn/large/6b804b51gw1f3y9adjtayj20rs0ku77m.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3976125988929365" target="freeweibo-mirror">http://t.cn/RqDzrGV对健康的追求才是对生活…</a>
 </h2>
 <p>http://t.cn/RqDzrGV对健康的追求才是对生活品质真正的有要求，突然发现这个视频——澳大利亚前总理陆克文的女儿Jessica Rudd选择澳洲最畅销的a2牛奶。都说a2全系产品都只含A2-β酪乳蛋白，不含A1，更亲和人体、易被消化道吸收。这可是一杯国家首脑家庭餐桌上的牛奶， 我们一起来看看视频里她怎么说?</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3976125312860590" target="freeweibo-mirror">//@北京厨子新号://@李铁军://@烹肘: 之前转过类似…</a>
+</h2>
+<p>//@北京厨子新号://@李铁军://@烹肘: 之前转过类似的，发现被删了，再转。这内容哪违法？若是虚构事实诬陷他人犯罪，是刑事案件请依法追究刑事责任，而应该不是删帖。 //@杨学林律师:转发微博</p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3976122980612784" target="freeweibo-mirror">SPAM 自拍？[思考]//@罗昌平:很好奇，谁在新婚之夜负…</a>
+</h2>
+<p>SPAM 自拍？[思考]//@罗昌平:很好奇，谁在新婚之夜负责拍照？什么时候去的，什么时候走的？<br><br>RE: 【抄党章】如果小两口出于信仰、自己乐意，应该尊重他们的做法，祝福他们，不必冷嘲热讽。但这种场面不应被拿出来展示宣传。“两学一做”不需要这种示范，这背离了“两学一做”的初衷。<br><img src="http://ww3.sinaimg.cn/large/6232d08bjw1f3yahlxrv4j20vd0qo782.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3976118811238463" target="freeweibo-mirror">【深圳这位高官曾买42套房 其女以4.5折低价购房】新华视点…</a>
 </h2>
@@ -108,36 +138,6 @@
 <p>哈哈哈哈 //@罗昌平:右边这位小伙伴，请你出来一下。//@littlehawk：是践行“党指挥枪”的原则！！！<br><br>RE: 在新婚之夜抄写党章，是“论党性不论人性”的实践吗？</p>
 <p>
 	<small> ============== 6小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3976065560559955" target="freeweibo-mirror">再一次证明了一点，那就是：档指挥 枪！[嘘]//@亚军要学习…</a>
-</h2>
-<p>再一次证明了一点，那就是：档指挥 枪！[嘘]//@亚军要学习: 想要“为人民服务”而不择手段……<br><br>RE: 在新婚之夜抄写党章，是“论党性不论人性”的实践吗？</p>
-<p>
-	<small> ============== 6小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3976063614664099" target="freeweibo-mirror">在新婚之夜抄写党章，是“论党性不论人性”的实践吗？</a>
-</h2>
-<p>在新婚之夜抄写党章，是“论党性不论人性”的实践吗？</p>
-<p>
-	<small> ============== 7小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3976060351715685" target="freeweibo-mirror">这届人民不行//@Black_黑数码:这届人民不行//@霜叶…</a>
-</h2>
-<p>这届人民不行//@Black_黑数码:这届人民不行//@霜叶不活跃: 这届人民不行//@tiry: //@死废鹅-星屑://@RX-78-8://@J-cupEvil: //@能靠点儿谱吗: 的确是这届人民不行//@HA_HoshinoArika:这届人民不行<br><br>RE: 2014年，汪龙起诉了中国联通，因为它没有提供完整的互联网服务（上不去 Google）。这个案子，最后的结局，居然是如此这般魔幻现实主义。本文已经获得原作者授权转载。<br><img src="http://ww1.sinaimg.cn/large/006r4rWYgw1f3xn6gyt0cj30ku112whe.jpg"></p>
-<p>
-	<small> ============== 7小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3976054496874043" target="freeweibo-mirror">如果连这些问题都不准提出来，不去搞清楚，都要被删帖，那还谈何…</a>
-</h2>
-<p>如果连这些问题都不准提出来，不去搞清楚，都要被删帖，那还谈何“绝不允许文革重演”？<br><img src="http://ww1.sinaimg.cn/large/53bd81b0jw1f3y4jy6b2wj20ku112gr3.jpg"></p>
-<p>
-	<small> ============== 7小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3976054244366310" target="freeweibo-mirror">//@林治波://@真理阳光VVV: 时代在进步，理论也要进…</a>
-</h2>
-<p>//@林治波://@真理阳光VVV: 时代在进步，理论也要进步，不反无产阶级，也不反资产阶级，但要维护国家统一，维护公平正义，维护人类历史发展和进步，不断解放和发展人和人权，永远站在历史前进的潮头浪尖<br><br>RE: 文革是一把尺，测量着谁拥护毛泽东思想？谁反对毛泽东思想？文革是一把刀，无产阶级喜欢，资产阶级害怕！文革是分水岭，一边站着社会主义阵营，一边站着资本主义阵营。文革将永久记在无产阶级心中，文革就是一面旗帜！<br><img src="http://ww1.sinaimg.cn/large/cb787320gw1f3xzr4begoj2085064weq.jpg"></p>
-<p>
-	<small> ============== 7小时前</small>
 </p>
 <table>
     <tr>
