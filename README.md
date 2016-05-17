@@ -79,6 +79,12 @@
 <p>
 	<small> ============== 4小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3976011849129496" target="freeweibo-mirror">文革是一把尺，测量着谁拥护毛泽东思想？谁反对毛泽东思想？文革…</a>
+</h2>
+<p>文革是一把尺，测量着谁拥护毛泽东思想？谁反对毛泽东思想？文革是一把刀，无产阶级喜欢，资产阶级害怕！文革是分水岭，一边站着社会主义阵营，一边站着资本主义阵营。文革将永久记在无产阶级心中，文革就是一面旗帜！<br><img src="http://ww1.sinaimg.cn/large/cb787320gw1f3xzr4begoj2085064weq.jpg"></p>
+<p>
+	<small> ============== 5小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3976009684319874" target="freeweibo-mirror">//@zhuxunlu:转发微博</a>
 </h2>
 <p>//@zhuxunlu:转发微博</p>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3975937001366885" target="freeweibo-mirror">SPAM [爱你] [爱你]</a>
 </h2>
 <p>SPAM [爱你] [爱你]</p>
-<p>
-	<small> ============== 10小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3975935055121075" target="freeweibo-mirror">【“文革期间的成绩”并不等于“文革的成绩”】比如，陈景润在文…</a>
-</h2>
-<p>【“文革期间的成绩”并不等于“文革的成绩”】比如，陈景润在文革期间有成绩，但那并不是文革的功劳，而是他抵制文革、逃避文革、在艰难的环境中继续埋头研究的成果。此点可以依此类推。文革是破坏性的，但它还无法破坏一切，于是就有人有成绩了，这怎么能说是“文革的成绩”呢？<br><img src="http://ww2.sinaimg.cn/large/daa5b8bfjw1f3xqxzwjj4j20cs0h174g.jpg"></p>
 <p>
 	<small> ============== 10小时前</small>
 </p>
