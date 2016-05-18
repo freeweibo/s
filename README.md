@@ -19,6 +19,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3976458382646039" target="freeweibo-mirror">SPAM 原来洞房抄党章的源头在此！伟大！真伟大！</a>
+</h2>
+<p>SPAM 原来洞房抄党章的源头在此！伟大！真伟大！<br><br>RE: 最早的抄党章——窑洞里、上炕之前。<br><img src="http://ww1.sinaimg.cn/large/006jks6Djw1f3zc7hu4mnj30930640sp.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3976432739043428" target="freeweibo-mirror">SPAM [怒骂][怒骂][怒骂]我也是</a>
 </h2>
 <p>SPAM [怒骂][怒骂][怒骂]我也是</p>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3976396600250324" target="freeweibo-mirror">开</a>
 </h2>
 <p>开</p>
-<p>
-	<small> ============== 5小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3976392755044094" target="freeweibo-mirror">我正在看【雷洋事件报案书曝光！嫖娼是栽赃，雷洋被打死！】，分…</a>
-</h2>
-<p>我正在看【雷洋事件报案书曝光！嫖娼是栽赃，雷洋被打死！】，分享给你，一起看吧！http://t.cn/Rqk0USb<br><img src="http://ww4.sinaimg.cn/large/72276697jw1f3z7ierfkqj20ee09kt9o.jpg"></p>
 <p>
 	<small> ============== 5小时前</small>
 </p>
