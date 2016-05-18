@@ -25,6 +25,18 @@
 <p>
 	<small> ============== 1小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3976427857043226" target="freeweibo-mirror">接班人得经历风雨和挫折！@绿皮怪侠:打共产主义接班人，这得多…</a>
+</h2>
+<p>接班人得经历风雨和挫折！@绿皮怪侠:打共产主义接班人，这得多大的勇气啊<br><br>RE: 【打屁股无性命之忧，兰州警察吸取雷洋案教训】兰州一大学生称，其拍摄警察粗暴执法，因拒交所拍视频，他和同学遭警察轮番殴打，“屁股被打开花”。网传雷洋妻子正举报昌平警察打其丈夫睾丸，兰州警察打屁股显然吸取雷洋案教训。警察打人，不管打哪都是打党和政府的脸。网友评论“警察不作案，治安好一...全文： http://m.weibo.cn/3198720857/3976381668751684<br><img src="http://ww2.sinaimg.cn/large/bea89b59jw1f3z5dzhzmsj20k00qowgl.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3976427131084641" target="freeweibo-mirror">[笑cry]@况秀猛:兰州成了中国大陆的“新加坡”[挖鼻][…</a>
+</h2>
+<p>[笑cry]@况秀猛:兰州成了中国大陆的“新加坡”[挖鼻][挖鼻] //@v珍妮:屁股被打成这样，不及时治疗，血栓会进入心脏[喵喵]，也会引起栓塞猝死<br><br>RE: 【打屁股无性命之忧，兰州警察吸取雷洋案教训】兰州一大学生称，其拍摄警察粗暴执法，因拒交所拍视频，他和同学遭警察轮番殴打，“屁股被打开花”。网传雷洋妻子正举报昌平警察打其丈夫睾丸，兰州警察打屁股显然吸取雷洋案教训。警察打人，不管打哪都是打党和政府的脸。网友评论“警察不作案，治安好一...全文： http://m.weibo.cn/3198720857/3976381668751684<br><img src="http://ww2.sinaimg.cn/large/bea89b59jw1f3z5dzhzmsj20k00qowgl.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3976424400358770" target="freeweibo-mirror">警察打屁股，为哪般？//@曹小明律师: [ok]//@曾与风…</a>
 </h2>
 <p>警察打屁股，为哪般？//@曹小明律师: [ok]//@曾与风舞:打在他们的屁股上犹如打在共产党“依法治国”的脸上。<br><br>RE: 【打屁股无性命之忧，兰州警察吸取雷洋案教训】兰州一大学生称，其拍摄警察粗暴执法，因拒交所拍视频，他和同学遭警察轮番殴打，“屁股被打开花”。网传雷洋妻子正举报昌平警察打其丈夫睾丸，兰州警察打屁股显然吸取雷洋案教训。警察打人，不管打哪都是打党和政府的脸。网友评论“警察不作案，治安好一...全文： http://m.weibo.cn/3198720857/3976381668751684<br><img src="http://ww2.sinaimg.cn/large/bea89b59jw1f3z5dzhzmsj20k00qowgl.jpg"></p>
@@ -41,19 +53,19 @@
 </h2>
 <p>雷洋妻子正式报案：嫖娼是栽赃，雷洋致命处睾丸异常肿大系被打死 http://t.cn/RqkpkZv</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3976396600250324" target="freeweibo-mirror">开</a>
 </h2>
 <p>开</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3976381668751684" target="freeweibo-mirror">【打屁股无性命之忧，兰州警察吸取雷洋案教训】兰州一大学生称，…</a>
 </h2>
 <p>【打屁股无性命之忧，兰州警察吸取雷洋案教训】兰州一大学生称，其拍摄警察粗暴执法，因拒交所拍视频，他和同学遭警察轮番殴打，“屁股被打开花”。网传雷洋妻子正举报昌平警察打其丈夫睾丸，兰州警察打屁股显然吸取雷洋案教训。警察打人，不管打哪都是打党和政府的脸。网友评论“警察不作案，治安好一...全文： http://m.weibo.cn/3198720857/3976381668751684<br><img src="http://ww2.sinaimg.cn/large/bea89b59jw1f3z5dzhzmsj20k00qowgl.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3976355278469402" target="freeweibo-mirror">//@良心于23://@frank7383://@崔小平律师…</a>
 </h2>
@@ -124,18 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3976280082866598" target="freeweibo-mirror">SPAM 老司机开车了？</a>
 </h2>
 <p>SPAM 老司机开车了？<br><br>RE: 女生什么时候最想啪啪啪呢？已经发了，[哆啦A梦吃惊]可加公主号liaoai233。查阅[偷笑]<br><img src="http://ww3.sinaimg.cn/large/b28db48cgw1f3yui8jq1qj20ku112gpb.jpg"></p>
-<p>
-	<small> ============== 11小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3976279613279996" target="freeweibo-mirror">女生什么时候最想啪啪啪呢？已经发了，[哆啦A梦吃惊]可加公主…</a>
-</h2>
-<p>女生什么时候最想啪啪啪呢？已经发了，[哆啦A梦吃惊]可加公主号liaoai233。查阅[偷笑]<br><img src="http://ww3.sinaimg.cn/large/b28db48cgw1f3yui8jq1qj20ku112gpb.jpg"></p>
-<p>
-	<small> ============== 11小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3976275611152182" target="freeweibo-mirror">雷洋家属关于要求北京市检察院立案侦查雷洋被害案的刑事报案书</a>
-</h2>
-<p>雷洋家属关于要求北京市检察院立案侦查雷洋被害案的刑事报案书<br><img src="http://ww1.sinaimg.cn/large/5460e745gw1f3yu21kpnqj20f66gukjl.jpg"></p>
 <p>
 	<small> ============== 11小时前</small>
 </p>
