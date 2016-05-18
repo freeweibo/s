@@ -19,6 +19,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3976465072198832" target="freeweibo-mirror">【民众有免于恐惧的自由，从这方面看，文革从未结束】</a>
+</h2>
+<p>【民众有免于恐惧的自由，从这方面看，文革从未结束】<br><img src="http://ww4.sinaimg.cn/large/77101dc1jw1f3zckr7hugj20qo1bfqaj.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3976458382646039" target="freeweibo-mirror">SPAM 原来洞房抄党章的源头在此！伟大！真伟大！</a>
 </h2>
 <p>SPAM 原来洞房抄党章的源头在此！伟大！真伟大！<br><br>RE: 最早的抄党章——窑洞里、上炕之前。<br><img src="http://ww1.sinaimg.cn/large/006jks6Djw1f3zc7hu4mnj30930640sp.jpg"></p>
@@ -29,7 +35,7 @@
 </h2>
 <p>SPAM //@连岳lianyue: 你愿意和我一起抄党章吗？<br><br>RE: 有些行业就是反应迅速，值得学习！<br><img src="http://ww1.sinaimg.cn/large/6106a4f0gw1f3zbtdj14ej20qo0zkdii.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3976449117585686" target="freeweibo-mirror">法治中国 年度照[衰]</a>
 </h2>
@@ -52,6 +58,12 @@
 	<a href="https://freeweibo.com/weibo/3976445107717459" target="freeweibo-mirror">SPAM //@法律人童朝平://@夏伯多禄: [话筒][围…</a>
 </h2>
 <p>SPAM //@法律人童朝平://@夏伯多禄: [话筒][围观][怒]</p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3976444121719002" target="freeweibo-mirror">#网友播报#【四川抗议一本录取率全国垫底 数名家长教育厅请愿…</a>
+</h2>
+<p>#网友播报#【四川抗议一本录取率全国垫底 数名家长教育厅请愿】据多名网友向身边君爆料，今日上午，四川数名家长聚集在四川省教育厅，手拿写着“抗议一本率垫底、拒绝注水一本率”等字条，为四川的孩子们请愿，争取扩招。据参与家长透露，现场大约有上百人，大家都很理性，很克制。<br><img src="http://ww3.sinaimg.cn/large/62ba1e89gw1f3zddn7pqvj20k00fh77t.jpg"></p>
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
@@ -124,18 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3976430259431964" target="freeweibo-mirror">他有道理，完全可以反驳。我说一句这个毫无依据就扣帽子狂喷的人…</a>
 </h2>
 <p>他有道理，完全可以反驳。我说一句这个毫无依据就扣帽子狂喷的人是江苏的，就怎么啦？为什么喷我，大家心知肚明，何必装逼！至于说涉重庆的事，本人说的是不是事实？说点事实就是“给平西王洗地”？要点逼脸吧！//@精诚无间CY:正确与否都不谈，就你这地域炮的格局，以及下面赞的蠢货，都证明:1</p>
-<p>
-	<small> ============== 4小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3976428976103008" target="freeweibo-mirror">//@xys1984: 转发微博</a>
-</h2>
-<p>//@xys1984: 转发微博<br><br>RE: 人生四大悲～～洞房抄党章，接站被嫖娼，久病逢莆田，金榜落他乡。<br><img src="http://ww3.sinaimg.cn/large/615ce479jw1f3yjjukt5aj20d4091aan.jpg"></p>
-<p>
-	<small> ============== 4小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3976427857043226" target="freeweibo-mirror">接班人得经历风雨和挫折！@绿皮怪侠:打共产主义接班人，这得多…</a>
-</h2>
-<p>接班人得经历风雨和挫折！@绿皮怪侠:打共产主义接班人，这得多大的勇气啊<br><br>RE: 【打屁股无性命之忧，兰州警察吸取雷洋案教训】兰州一大学生称，其拍摄警察粗暴执法，因拒交所拍视频，他和同学遭警察轮番殴打，“屁股被打开花”。网传雷洋妻子正举报昌平警察打其丈夫睾丸，兰州警察打屁股显然吸取雷洋案教训。警察打人，不管打哪都是打党和政府的脸。网友评论“警察不作案，治安好一...全文： http://m.weibo.cn/3198720857/3976381668751684<br><img src="http://ww2.sinaimg.cn/large/bea89b59jw1f3z5dzhzmsj20k00qowgl.jpg"></p>
 <p>
 	<small> ============== 4小时前</small>
 </p>
