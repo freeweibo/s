@@ -19,6 +19,24 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3976619217101239" target="freeweibo-mirror">SPAM //@首席观察://@左春和: [good] //…</a>
+</h2>
+<p>SPAM //@首席观察://@左春和: [good] //@石言内:衰竭中的陀螺。<br><br>RE: 抄写党章之事是一种“新常态”中的表态焦虑，他们复制了祖辈的投机形式，但抽空了信仰的立场宣誓成为了十足的反讽。这是政治末梢神经的真实状况，其形式化创新的萎缩象征生命力的枯竭，彻底进入政治摆拍时代已经预示了它的未来。娱乐化效果的表忠除了增加些笑料之外，它还像一面镜子，陡然间映出了一个...全文： http://m.weibo.cn/1234732574/3976600942794695</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3976610626973847" target="freeweibo-mirror">SPAM //@殷锋de一些事一些情:特权</a>
+</h2>
+<p>SPAM //@殷锋de一些事一些情:特权<br><br>RE: 真大支嘢<br><img src="http://ww4.sinaimg.cn/large/997acbc3jw1f3zv3r82jbj20p00quq74.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3976609562575050" target="freeweibo-mirror">其实这与儒家的虚伪一脉相承，所谓的24孝也都是虚假的表忠式的…</a>
+</h2>
+<p>其实这与儒家的虚伪一脉相承，所谓的24孝也都是虚假的表忠式的无耻，因为那会的举孝廉，孝就是政治资本。//@左春和: [good] //@石言内:衰竭中的陀螺。<br><br>RE: 抄写党章之事是一种“新常态”中的表态焦虑，他们复制了祖辈的投机形式，但抽空了信仰的立场宣誓成为了十足的反讽。这是政治末梢神经的真实状况，其形式化创新的萎缩象征生命力的枯竭，彻底进入政治摆拍时代已经预示了它的未来。娱乐化效果的表忠除了增加些笑料之外，它还像一面镜子，陡然间映出了一个...全文： http://m.weibo.cn/1234732574/3976600942794695</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3976596165554254" target="freeweibo-mirror">SPAM 今天更新的内容：1️⃣遗传基因太强大！又一个从一号…</a>
 </h2>
 <p>SPAM 今天更新的内容：1️⃣遗传基因太强大！又一个从一号位打到五号位的球员诞生了 。2️⃣21世纪以来1-30各顺位最好的球员是？3️⃣你的经典台词是________ ？4️⃣BA官网预测：英格拉姆状元 勇士30位选周琦 。<br><img src="http://ww4.sinaimg.cn/large/90f58663jw1f3zuu6qpj0j20ku11278k.jpg"></p>
@@ -120,24 +138,6 @@
 <p>//@萧瑟洋场: 转发微博<br><br>RE: 分享图片<br><img src="http://ww1.sinaimg.cn/large/7fc633f9gw1f3z8gmtfoyj20j60pktev.jpg"></p>
 <p>
 	<small> ============== 8小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3976508177318506" target="freeweibo-mirror">【关注屠夫】屠夫吴淦于去年5月19日在南昌被当局拘捕，后被转…</a>
-</h2>
-<p>【关注屠夫】屠夫吴淦于去年5月19日在南昌被当局拘捕，后被转至福州，再又被移送天津羁押，至今已失去自由整整365天。明天是屠夫被拘一周年纪念日。持续关注、[话筒][围观]声援！[给力]✊<br><img src="http://ww3.sinaimg.cn/large/006dw2b0gw1f3zkqygvnmj30c809f3yx.jpg"></p>
-<p>
-	<small> ============== 9小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3976504008698673" target="freeweibo-mirror">//@胡上士:转发微博</a>
-</h2>
-<p>//@胡上士:转发微博<br><br>RE: 从在港五毛打出的标语看，估计花生政变了......<br><img src="http://ww2.sinaimg.cn/large/005XJB2mgw1f3zioai97xj30go09e75l.jpg"></p>
-<p>
-	<small> ============== 9小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3976503366674711" target="freeweibo-mirror">SPAM //@大鸟919: 删帖者，请你想想，那一天你自己…</a>
-</h2>
-<p>SPAM //@大鸟919: 删帖者，请你想想，那一天你自己、你的亲人朋友也碰到发帖求助被删，你做何感想呢？转发无罪有功！@财经网 @头条新闻 @媒体人欧菲 @南方人物周刊 @福建第一眼 @网易新闻客户端 @联合国<br><br>RE: 他们若可以删雷洋妻子的刑事报案书，也可以删你我的。因此，我必须转。<br><img src="http://ww4.sinaimg.cn/large/dde1047djw1f3z6pgg3orj20ff6kjkjl.jpg"></p>
-<p>
-	<small> ============== 9小时前</small>
 </p>
 <table>
     <tr>
