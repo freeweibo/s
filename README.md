@@ -65,13 +65,13 @@
 </h2>
 <p>SPAM 很全的健身教程，有你需要的</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3976485784483968" target="freeweibo-mirror">【律师协助家属向北京市检报案 要求侦查涉事民警"三宗罪"】5…</a>
 </h2>
 <p>【律师协助家属向北京市检报案 要求侦查涉事民警"三宗罪"】5 月 17 日上午，雷洋家属及代理律师向北京市检察院递交了《关于要求北京市检察院立案侦查雷洋被害案的刑事报案书。北京市检察院举报中心工作人员接收了举报材料，称 " 检方表示会重视此案，将研究决定是否受理，再通知"http://t.cn/Rqk3w6T</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3976485548892832" target="freeweibo-mirror">SPAM 上海的同学可以去看 //@学术大观察:“其实我从小…</a>
 </h2>
@@ -85,11 +85,17 @@
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3976477739178268" target="freeweibo-mirror">有愛國團體熱烈歡迎領導人到香港視察</a>
+</h2>
+<p>有愛國團體熱烈歡迎領導人到香港視察<br><img src="http://ww3.sinaimg.cn/large/0061Mxw5jw1f3zh8quhcqj30qo0f0got.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3976471040631298" target="freeweibo-mirror">哈哈，不要试图跟欧洲左派小清新讲道理，你会毫不知情的被扣上种…</a>
 </h2>
 <p>哈哈，不要试图跟欧洲左派小清新讲道理，你会毫不知情的被扣上种族主义的帽子//@伯杨_老y: 转发微博<br><br>RE: 图中为伦敦的穆斯林新市长Sadiq Khan的集会上台下拥趸打出很多圣战旗帜和哈里发旗帜(见图1各种极端旗帜出现的时间表)的视频截图。这位穆斯林市长对这些圣战旗帜好像没啥意见。很多人说他温和。他温和个屁。川普集会上曾出现过一个来自前东德的老太太行纳粹礼的照片，被主流媒体广为传播，意思是说“川...全文： http://m.weibo.cn/3477513373/3976237841892119<br><img src="http://ww4.sinaimg.cn/large/cf46a49dgw1f3ypajubnmj20qo1bedn4.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3976469803866941" target="freeweibo-mirror">美国人的政治正确在对待黑人问题上一直都有显现。政治正确在任何…</a>
 </h2>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3976458453595652" target="freeweibo-mirror">【“雷洋案”代表律师陈有西：二十多份证据已经固定】@新京报 …</a>
 </h2>
 <p>【“雷洋案”代表律师陈有西：二十多份证据已经固定】@新京报 ：5月17日上午9时，雷洋家属向北京市检察院递交了《关于要求北京市检察院立案侦查雷洋被害案的刑事报案书》，就该案多处疑点提出质疑。 当天下午，陈有西就雷洋案关切问题作出回应：我们一共六个律师在星期天开始进行全面的调查取证，现在...全文： http://m.weibo.cn/1231759973/3976458453595652<br><img src="http://ww3.sinaimg.cn/large/496b2a65jw1f3zf21f2ldj20ag0aqjsh.jpg"></p>
-<p>
-	<small> ============== 4小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3976458382646039" target="freeweibo-mirror">SPAM 原来洞房抄党章的源头在此！伟大！真伟大！</a>
-</h2>
-<p>SPAM 原来洞房抄党章的源头在此！伟大！真伟大！<br><br>RE: 最早的抄党章——窑洞里、上炕之前。<br><img src="http://ww1.sinaimg.cn/large/006jks6Djw1f3zc7hu4mnj30930640sp.jpg"></p>
 <p>
 	<small> ============== 4小时前</small>
 </p>
