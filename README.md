@@ -19,6 +19,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3976428976103008" target="freeweibo-mirror">//@xys1984: 转发微博</a>
+</h2>
+<p>//@xys1984: 转发微博<br><br>RE: 人生四大悲～～洞房抄党章，接站被嫖娼，久病逢莆田，金榜落他乡。<br><img src="http://ww3.sinaimg.cn/large/615ce479jw1f3yjjukt5aj20d4091aan.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3976396600250324" target="freeweibo-mirror">开</a>
 </h2>
 <p>开</p>
@@ -41,7 +47,7 @@
 </h2>
 <p>//@苏湘迅://@平凡的香草://@且听枫吟://@tinyfool://@邢孔育: 转发微博<br><br>RE: 雷洋家属关于要求北京市检察院立案侦查雷洋被害案的刑事报案书<br><img src="http://ww1.sinaimg.cn/large/5460e745gw1f3yu21kpnqj20f66gukjl.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3976312403675298" target="freeweibo-mirror">//@平凡的香草://@且听枫吟://@tinyfool:/…</a>
 </h2>
@@ -65,19 +71,19 @@
 </h2>
 <p>//@未得糊涂://@50年矛苔: //@流小曲:[话筒]//@守候者说: //@博者文摘:转发微博<br><br>RE: 嫖娼硕士妻报案书：嫖娼是栽赃，雷洋被打死<br><img src="http://ww4.sinaimg.cn/large/48cd1054jw1f3yqpy8bufj20qo0zkjyx.jpg"></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3976298437619988" target="freeweibo-mirror">SPAM #晚间话题# 这个关于雷洋案刑事报案书的文章还没删…</a>
 </h2>
 <p>SPAM #晚间话题# 这个关于雷洋案刑事报案书的文章还没删除！http://t.cn/RqkoiUa</p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3976283588693636" target="freeweibo-mirror">这只能把雷往嫖娼里推，看吧//@辟谣与真相:文中称：“明显是…</a>
 </h2>
 <p>这只能把雷往嫖娼里推，看吧//@辟谣与真相:文中称：“明显是外力伤害致死。待法医检验结论出来之后，一定会进一步证实这一结论。”——尸检机构、“专家证人”都是家属委托的。既然“一定”会证实你的结论，那么等结果出来再宣布“被打死”岂不稳操胜券？何必非要抢在结果出来前宣布“外力伤害致死？”<br><br>RE: “嫖娼”硕士妻报案书：嫖娼是栽赃，雷洋被打死。 http://t.cn/RqkzM7z</p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3976282754406479" target="freeweibo-mirror">//@蓷8蘠8的8人: //@凉开水V泡茶:从许多伪造的事实…</a>
 </h2>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3976272637997072" target="freeweibo-mirror">依法办案，还原真相于天下，才能真正体现法治国家的尊严，挽回民…</a>
 </h2>
 <p>依法办案，还原真相于天下，才能真正体现法治国家的尊严，挽回民心，体现公平正义。<br><br>RE: 雷洋家属在8日凌晨在中医院太平间、和13日在北京市公安局法医中心尸检前，都看到雷洋身上右额部被重击淤肿、阴部睾丸肿胀、右上臂、腰部、脸部都有严重伤痕，明显系暴力殴打形成 http://t.cn/RqkvTdg</p>
-<p>
-	<small> ============== 11小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3976272277849929" target="freeweibo-mirror">//@深圳祝羚://@检察露薇:事件还在持续发酵，坐等更多证…</a>
-</h2>
-<p>//@深圳祝羚://@检察露薇:事件还在持续发酵，坐等更多证据和细节曝光<br><br>RE: 雷洋家属在8日凌晨在中医院太平间、和13日在北京市公安局法医中心尸检前，都看到雷洋身上右额部被重击淤肿、阴部睾丸肿胀、右上臂、腰部、脸部都有严重伤痕，明显系暴力殴打形成 http://t.cn/RqkvTdg</p>
 <p>
 	<small> ============== 11小时前</small>
 </p>
