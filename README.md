@@ -53,7 +53,7 @@
 </h2>
 <p>//@老林时评:转发微博<br><br>RE: 【睾丸肿胀洗地说】至少有五名雷洋家属在察看雷洋尸体时，除了发现其全身伤痕累累，还发现雷洋阴部睾丸异常肿胀。微评：当然也可以洗地说：雷洋觉得自己的睾丸不争气，恨铁不成钢，找来此祸，巨怒之下一把捏了！<br><img src="http://ww2.sinaimg.cn/large/6a80bfcdgw1f3z7s16j1pj20de0hcq4x.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3976489193564522" target="freeweibo-mirror">回复@辰安巳逸:警方可以到电视台上公开辩解，人家受害者为什么…</a>
 </h2>
@@ -89,7 +89,7 @@
 </h2>
 <p>有愛國團體熱烈歡迎領導人到香港視察<br><img src="http://ww3.sinaimg.cn/large/0061Mxw5jw1f3zh8quhcqj30qo0f0got.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3976471040631298" target="freeweibo-mirror">哈哈，不要试图跟欧洲左派小清新讲道理，你会毫不知情的被扣上种…</a>
 </h2>
@@ -125,7 +125,7 @@
 </h2>
 <p>回复@草原雄鹰刘媒婆:便衣 异地执法，前提是大 重案，这件案子本身就是违法执法，你是它们中的吗？这几个一定被绳之以法！<br><br>RE: 【“雷洋案”代表律师陈有西：二十多份证据已经固定】@新京报 ：5月17日上午9时，雷洋家属向北京市检察院递交了《关于要求北京市检察院立案侦查雷洋被害案的刑事报案书》，就该案多处疑点提出质疑。 当天下午，陈有西就雷洋案关切问题作出回应：我们一共六个律师在星期天开始进行全面的调查取证，现在...全文： http://m.weibo.cn/1231759973/3976458453595652<br><img src="http://ww3.sinaimg.cn/large/496b2a65jw1f3zf21f2ldj20ag0aqjsh.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3976460056232605" target="freeweibo-mirror">//@星火必燎原:！！！ //@崔小平律师://@法律人童朝…</a>
 </h2>
