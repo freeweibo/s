@@ -25,6 +25,12 @@
 <p>
 	<small> ============== 1小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3976469803866941" target="freeweibo-mirror">美国人的政治正确在对待黑人问题上一直都有显现。政治正确在任何…</a>
+</h2>
+<p>美国人的政治正确在对待黑人问题上一直都有显现。政治正确在任何地方都不是好东西，极易误导人。//@盐光水灵Isabel: 我对英国的感官因为这个市长而彻底冷淡下来。英国没想到也算自食其果，记得来美国之前两年，要去欧洲旅游，当时想去欧洲所有的主要国家，但因为申根签证，我那时根本办不下来去英国<br><br>RE: 图中为伦敦的穆斯林新市长Sadiq Khan的集会上台下拥趸打出很多圣战旗帜和哈里发旗帜(见图1各种极端旗帜出现的时间表)的视频截图。这位穆斯林市长对这些圣战旗帜好像没啥意见。很多人说他温和。他温和个屁。川普集会上曾出现过一个来自前东德的老太太行纳粹礼的照片，被主流媒体广为传播，意思是说“川...全文： http://m.weibo.cn/3477513373/3976237841892119<br><img src="http://ww4.sinaimg.cn/large/cf46a49dgw1f3ypajubnmj20qo1bedn4.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3976465072198832" target="freeweibo-mirror">【民众有免于恐惧的自由，从这方面看，文革从未结束】</a>
 </h2>
 <p>【民众有免于恐惧的自由，从这方面看，文革从未结束】<br><img src="http://ww4.sinaimg.cn/large/77101dc1jw1f3zckr7hugj20qo1bfqaj.jpg"></p>
@@ -113,7 +119,7 @@
 </h2>
 <p>[哈哈]//@一只思考喵生的猫:明明是“滚出香港”<br><br>RE: 【张德江到香港视察 遇示威者反对】17日，中国人民代表大会常务委员长张德江抵达香港，香港市民们在市中心举行了抗议示威。数十名示威者举行集会，走上街头高喊“张德江离开香港”的口号，参加示威的香港市民们拿出了黄色雨伞。香港政府为应对示威在市中心部署了6000多名警察。http://t.cn/RqkWQOA<br><img src="http://ww1.sinaimg.cn/large/706ecc39gw1f3z9ko0m47j20f009zwgq.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3976433938724368" target="freeweibo-mirror">最早的抄党章——窑洞里、上炕之前。</a>
 </h2>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3976432739043428" target="freeweibo-mirror">SPAM [怒骂][怒骂][怒骂]我也是</a>
 </h2>
 <p>SPAM [怒骂][怒骂][怒骂]我也是</p>
-<p>
-	<small> ============== 5小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3976432398981192" target="freeweibo-mirror">→_→//@骗了无涯过客:如果夜里有帮人拦住我，我大喊的是：…</a>
-</h2>
-<p>→_→//@骗了无涯过客:如果夜里有帮人拦住我，我大喊的是：“抢劫啊！救命啊！”#绝对不会大喊：“他们不是真警察”！#//@辟谣与真相: ［警察是否向雷洋出示证件、表明了身份?来看看媒体采访目击者的报道］   http://t.cn/RqklxNV</p>
 <p>
 	<small> ============== 5小时前</small>
 </p>
