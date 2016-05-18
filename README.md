@@ -35,7 +35,7 @@
 </h2>
 <p>伟大领袖不是天生的，而是PS的。越挂领袖像，国家的危险系数就越高。一个国家的危险系数与挂政治领袖像的多少成相关。民主政体内，权为民所授，公众无须对他顶礼膜拜。专制体制下，才有可能形成个人崇拜。大众民主意识一旦觉醒，个人崇拜便成为笑柄。政治强人一旦失去强权的支撑，便归于滑稽可笑。<br><img src="http://ww3.sinaimg.cn/large/006tnYcfjw1f3zqqemavlj30dw0dwmy2.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3976558437508934" target="freeweibo-mirror">SPAM //@公民林静在维权5: //@怀化麻阳黄雨慧黄雨…</a>
 </h2>
