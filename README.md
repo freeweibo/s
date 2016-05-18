@@ -23,7 +23,7 @@
 </h2>
 <p>SPAM 很全的健身教程，有你需要的</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3976469803866941" target="freeweibo-mirror">美国人的政治正确在对待黑人问题上一直都有显现。政治正确在任何…</a>
 </h2>
