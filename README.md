@@ -101,7 +101,7 @@
 </h2>
 <p>SPAM 吓得我都不敢抄党章了。//@连岳lianyue: 帅哥，抄党章吗？//@Ivan各革: 段子手正在赶来：洛阳亲友如相问，就说我在抄党章；夜来抄党章，花落知多少；商女不知亡国恨，隔江犹在抄党章；少壮不努力，老大抄党章；遥想公瑾当年，小乔抄党章……<br><br>RE: 有些行业就是反应迅速，值得学习！<br><img src="http://ww1.sinaimg.cn/large/6106a4f0gw1f3zbtdj14ej20qo0zkdii.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3976433938724368" target="freeweibo-mirror">最早的抄党章——窑洞里、上炕之前。</a>
 </h2>
