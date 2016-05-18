@@ -131,7 +131,7 @@
 </h2>
 <p>SPAM //@高小曜: //@苏州常熟徐文石: //@摄色光: //@南辕北辙001:砸牌坊了。//@崔小平律师://@湖嗨散人:这不就是不忠不义不仁不孝吗，呵呵//@Thomas程5: 唉！<br><br>RE: 宋美龄评价其姐宋庆龄一生。<br><img src="http://ww4.sinaimg.cn/large/6322f7ddjw1f3zcwqnd8vj20hs0vkdjr.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3976552837845186" target="freeweibo-mirror">56朵花，绽开怒放，像沸腾的山泉，扑面而来[鲜花][鲜花][…</a>
 </h2>
