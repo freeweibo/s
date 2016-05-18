@@ -89,7 +89,7 @@
 </h2>
 <p>SPAM 【一段最温馨的高考寄语】送给即将高考的小伙伴们，也让我们回想起那个时光。<br><img src="http://ww1.sinaimg.cn/large/77101dc1jw1f3zath3vt1j20c80gadhl.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3976415189771019" target="freeweibo-mirror">群众还不错，是社会管理太差</a>
 </h2>
@@ -127,17 +127,17 @@
 <p>
 	<small> ============== 4小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3976392755044094" target="freeweibo-mirror">我正在看【雷洋事件报案书曝光！嫖娼是栽赃，雷洋被打死！】，分…</a>
+</h2>
+<p>我正在看【雷洋事件报案书曝光！嫖娼是栽赃，雷洋被打死！】，分享给你，一起看吧！http://t.cn/Rqk0USb<br><img src="http://ww4.sinaimg.cn/large/72276697jw1f3z7ierfkqj20ee09kt9o.jpg"></p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3976381668751684" target="freeweibo-mirror">【打屁股无性命之忧，兰州警察吸取雷洋案教训】兰州一大学生称，…</a>
 </h2>
 <p>【打屁股无性命之忧，兰州警察吸取雷洋案教训】兰州一大学生称，其拍摄警察粗暴执法，因拒交所拍视频，他和同学遭警察轮番殴打，“屁股被打开花”。网传雷洋妻子正举报昌平警察打其丈夫睾丸，兰州警察打屁股显然吸取雷洋案教训。警察打人，不管打哪都是打党和政府的脸。网友评论“警察不作案，治安好一...全文： http://m.weibo.cn/3198720857/3976381668751684<br><img src="http://ww2.sinaimg.cn/large/bea89b59jw1f3z5dzhzmsj20k00qowgl.jpg"></p>
 <p>
 	<small> ============== 5小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3976355278469402" target="freeweibo-mirror">//@良心于23://@frank7383://@崔小平律师…</a>
-</h2>
-<p>//@良心于23://@frank7383://@崔小平律师:五毛狗本性嘛。//@梅虔:这些人会不会也嫖娼致死？ //@未得糊涂:讽刺的是，雷洋或许是他们的粉丝。//@何日复青天: 不得好死这帮王八蛋人渣 //@何辉新:转发微博。</p>
-<p>
-	<small> ============== 7小时前</small>
 </p>
 <table>
     <tr>
