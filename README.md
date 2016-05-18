@@ -35,7 +35,7 @@
 </h2>
 <p>SPAM //@公民林静在维权5: //@怀化麻阳黄雨慧黄雨霞3://@随州小民://@活捉死老鼠: @联合国 @联合国人权高专办 //@铁树扉: //@怀化麻阳黄雨慧黄雨霞3: 放人！<br><br>RE: 【关注屠夫】屠夫吴淦于去年5月19日在南昌被当局拘捕，后被转至福州，再又被移送天津羁押，至今已失去自由整整365天。明天是屠夫被拘一周年纪念日。持续关注、[话筒][围观]声援！[给力]✊<br><img src="http://ww3.sinaimg.cn/large/006dw2b0gw1f3zkqygvnmj30c809f3yx.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3976554646260469" target="freeweibo-mirror">SPAM //@高小曜: //@苏州常熟徐文石: //@摄色…</a>
 </h2>
@@ -115,6 +115,12 @@
 <p>
 	<small> ============== 7小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3976508177318506" target="freeweibo-mirror">【关注屠夫】屠夫吴淦于去年5月19日在南昌被当局拘捕，后被转…</a>
+</h2>
+<p>【关注屠夫】屠夫吴淦于去年5月19日在南昌被当局拘捕，后被转至福州，再又被移送天津羁押，至今已失去自由整整365天。明天是屠夫被拘一周年纪念日。持续关注、[话筒][围观]声援！[给力]✊<br><img src="http://ww3.sinaimg.cn/large/006dw2b0gw1f3zkqygvnmj30c809f3yx.jpg"></p>
+<p>
+	<small> ============== 8小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3976504008698673" target="freeweibo-mirror">//@胡上士:转发微博</a>
 </h2>
 <p>//@胡上士:转发微博<br><br>RE: 从在港五毛打出的标语看，估计花生政变了......<br><img src="http://ww2.sinaimg.cn/large/005XJB2mgw1f3zioai97xj30go09e75l.jpg"></p>
@@ -132,12 +138,6 @@
 <p>SPAM 必须的。<br><br>RE: 他们若可以删雷洋妻子的刑事报案书，也可以删你我的。因此，我必须转。<br><img src="http://ww4.sinaimg.cn/large/dde1047djw1f3z6pgg3orj20ff6kjkjl.jpg"></p>
 <p>
 	<small> ============== 8小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3976495628590228" target="freeweibo-mirror">致老习于何地？？？//@蠡湖泛舟: [哈哈]//@love蓝…</a>
-</h2>
-<p>致老习于何地？？？//@蠡湖泛舟: [哈哈]//@love蓝小屋://@海龙-28://@游明磊47: [哈哈]//@1024专员: [偷笑]//@不作死就不会死-: 太作死了，，//@無畏的小肥羊VI:這麼早就欽定了！[阴险] //@KaKa2onWB:德江水暖有先知！？//@悠一Online:反啦反啦[偷笑]//@花甲孺子牛: 作死还是擦錯鞋？(新國家主席)<br><br>RE: 有愛國團體熱烈歡迎領導人到香港視察<br><img src="http://ww3.sinaimg.cn/large/0061Mxw5jw1f3zh8quhcqj30qo0f0got.jpg"></p>
-<p>
-	<small> ============== 9小时前</small>
 </p>
 <table>
     <tr>
