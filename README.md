@@ -47,7 +47,7 @@
 </h2>
 <p>真大支嘢<br><img src="http://ww4.sinaimg.cn/large/997acbc3jw1f3zv3r82jbj20p00quq74.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3976596165554254" target="freeweibo-mirror">SPAM 今天更新的内容：1️⃣遗传基因太强大！又一个从一号…</a>
 </h2>
