@@ -25,9 +25,69 @@
 <p>
 	<small> ============== 1小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3976450237583805" target="freeweibo-mirror">SPAM //@连岳lianyue: 你愿意和我一起抄党章吗…</a>
+</h2>
+<p>SPAM //@连岳lianyue: 你愿意和我一起抄党章吗？<br><br>RE: 有些行业就是反应迅速，值得学习！<br><img src="http://ww1.sinaimg.cn/large/6106a4f0gw1f3zbtdj14ej20qo0zkdii.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3976445841533566" target="freeweibo-mirror">不排除终有一天，会受到世界的驱逐！//@崔小平律师: //@…</a>
+</h2>
+<p>不排除终有一天，会受到世界的驱逐！//@崔小平律师: //@太平金黄鱼:[偷笑]//@_我的天空谁的城_:[打脸][打脸]//@老饕加佑://@曹先生2012H://@柳林清幽: 有句话说：脸被打的跟包子一样，原来如此。//@小靓-蔷薇鹿://@活得轻松些真是不容易:撒逼又被抽脸!<br><br>RE: 津巴布韦反对党要求驱逐所有中国人<br><img src="http://ww1.sinaimg.cn/large/006frryFgw1f3za15owyzj30k00zkgrf.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3976445107717459" target="freeweibo-mirror">SPAM //@法律人童朝平://@夏伯多禄: [话筒][围…</a>
+</h2>
+<p>SPAM //@法律人童朝平://@夏伯多禄: [话筒][围观][怒]</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3976443799218122" target="freeweibo-mirror">//@太平金黄鱼:[偷笑]//@_我的天空谁的城_:[打脸]…</a>
+</h2>
+<p>//@太平金黄鱼:[偷笑]//@_我的天空谁的城_:[打脸][打脸]//@老饕加佑://@曹先生2012H://@柳林清幽: 有句话说：脸被打的跟包子一样，原来如此。//@小靓-蔷薇鹿://@活得轻松些真是不容易:撒逼又被抽脸!<br><br>RE: 津巴布韦反对党要求驱逐所有中国人<br><img src="http://ww1.sinaimg.cn/large/006frryFgw1f3za15owyzj30k00zkgrf.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3976443208204741" target="freeweibo-mirror">SPAM //@太平金黄鱼:抄不停[阴险]//@_我的天空谁…</a>
+</h2>
+<p>SPAM //@太平金黄鱼:抄不停[阴险]//@_我的天空谁的城_:[笑cry]//@加菲g炮1314Cat:[嘻嘻]//@大_树_洞:[吃惊]//@敏如姐姐: 简体字的[嘻嘻]//@尖爪爪: [哈哈] //@花甲孺子牛:[哈哈][哈哈]//@汝恒__常在:<br><br>RE: 有些行业就是反应迅速，值得学习！<br><img src="http://ww1.sinaimg.cn/large/6106a4f0gw1f3zbtdj14ej20qo0zkdii.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3976442935549159" target="freeweibo-mirror">SPAM //@我们爱讲俏皮话:马再看~</a>
+</h2>
+<p>SPAM //@我们爱讲俏皮话:马再看~</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3976439571615443" target="freeweibo-mirror">//@法律人童朝平://@公民林静在维权4: //@南街个体…</a>
+</h2>
+<p>//@法律人童朝平://@公民林静在维权4: //@南街个体户凌杰:警察国家，司空见惯！[怒][怒骂]//@孤家寡哥2016://@長髮老男孩:又來一個？偌大中國，每天有多少人這樣離奇死亡？</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3976437356583079" target="freeweibo-mirror">SPAM 吓得我都不敢抄党章了。//@连岳lianyue: …</a>
+</h2>
+<p>SPAM 吓得我都不敢抄党章了。//@连岳lianyue: 帅哥，抄党章吗？//@Ivan各革: 段子手正在赶来：洛阳亲友如相问，就说我在抄党章；夜来抄党章，花落知多少；商女不知亡国恨，隔江犹在抄党章；少壮不努力，老大抄党章；遥想公瑾当年，小乔抄党章……<br><br>RE: 有些行业就是反应迅速，值得学习！<br><img src="http://ww1.sinaimg.cn/large/6106a4f0gw1f3zbtdj14ej20qo0zkdii.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3976432739043428" target="freeweibo-mirror">SPAM [怒骂][怒骂][怒骂]我也是</a>
 </h2>
 <p>SPAM [怒骂][怒骂][怒骂]我也是</p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3976432398981192" target="freeweibo-mirror">→_→//@骗了无涯过客:如果夜里有帮人拦住我，我大喊的是：…</a>
+</h2>
+<p>→_→//@骗了无涯过客:如果夜里有帮人拦住我，我大喊的是：“抢劫啊！救命啊！”#绝对不会大喊：“他们不是真警察”！#//@辟谣与真相: ［警察是否向雷洋出示证件、表明了身份?来看看媒体采访目击者的报道］   http://t.cn/RqklxNV</p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3976430259431964" target="freeweibo-mirror">他有道理，完全可以反驳。我说一句这个毫无依据就扣帽子狂喷的人…</a>
+</h2>
+<p>他有道理，完全可以反驳。我说一句这个毫无依据就扣帽子狂喷的人是江苏的，就怎么啦？为什么喷我，大家心知肚明，何必装逼！至于说涉重庆的事，本人说的是不是事实？说点事实就是“给平西王洗地”？要点逼脸吧！//@精诚无间CY:正确与否都不谈，就你这地域炮的格局，以及下面赞的蠢货，都证明:1</p>
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
@@ -78,66 +138,6 @@
 <p>[赞]//@不沉默的大多数:群众还不错，是社会管理太差<br><br>RE: 【打屁股无性命之忧，兰州警察吸取雷洋案教训】兰州一大学生称，其拍摄警察粗暴执法，因拒交所拍视频，他和同学遭警察轮番殴打，“屁股被打开花”。网传雷洋妻子正举报昌平警察打其丈夫睾丸，兰州警察打屁股显然吸取雷洋案教训。警察打人，不管打哪都是打党和政府的脸。网友评论“警察不作案，治安好一...全文： http://m.weibo.cn/3198720857/3976381668751684<br><img src="http://ww2.sinaimg.cn/large/bea89b59jw1f3z5dzhzmsj20k00qowgl.jpg"></p>
 <p>
 	<small> ============== 3小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3976423759119154" target="freeweibo-mirror">危险啊！//@佛山大叔:车被警察叔叔拦下了，就乖乖掏罚款。-…</a>
-</h2>
-<p>危险啊！//@佛山大叔:车被警察叔叔拦下了，就乖乖掏罚款。----发财之道，淘宝买套假警服，假证件，估计当天收回投资！[哈哈][哈哈][哈哈]<br><br>RE: 【打屁股无性命之忧，兰州警察吸取雷洋案教训】兰州一大学生称，其拍摄警察粗暴执法，因拒交所拍视频，他和同学遭警察轮番殴打，“屁股被打开花”。网传雷洋妻子正举报昌平警察打其丈夫睾丸，兰州警察打屁股显然吸取雷洋案教训。警察打人，不管打哪都是打党和政府的脸。网友评论“警察不作案，治安好一...全文： http://m.weibo.cn/3198720857/3976381668751684<br><img src="http://ww2.sinaimg.cn/large/bea89b59jw1f3z5dzhzmsj20k00qowgl.jpg"></p>
-<p>
-	<small> ============== 3小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3976423666303488" target="freeweibo-mirror">友情提示[嘻嘻]@版纳东生:时代不同了，出门在外要提防“嫖娼…</a>
-</h2>
-<p>友情提示[嘻嘻]@版纳东生:时代不同了，出门在外要提防“嫖娼”“抗法”“突发心脏病”[吃惊][吃惊][吃惊]<br><br>RE: 【打屁股无性命之忧，兰州警察吸取雷洋案教训】兰州一大学生称，其拍摄警察粗暴执法，因拒交所拍视频，他和同学遭警察轮番殴打，“屁股被打开花”。网传雷洋妻子正举报昌平警察打其丈夫睾丸，兰州警察打屁股显然吸取雷洋案教训。警察打人，不管打哪都是打党和政府的脸。网友评论“警察不作案，治安好一...全文： http://m.weibo.cn/3198720857/3976381668751684<br><img src="http://ww2.sinaimg.cn/large/bea89b59jw1f3z5dzhzmsj20k00qowgl.jpg"></p>
-<p>
-	<small> ============== 3小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3976422135008326" target="freeweibo-mirror">//@浩正刘臻: 对呀，应该禁止穿鞋 //@欢乐笨-张斌:工…</a>
-</h2>
-<p>//@浩正刘臻: 对呀，应该禁止穿鞋 //@欢乐笨-张斌:工作没有做到位，还有鞋子呢~~鞋子~~//@格瓦拉:[笑cry]<br><br>RE: 【图说】 在中共政治局常委、人大委员长张德江访问香港前夕，警方不仅推出严密保安措施，而且还把人行道上的砖头用胶水加固。立法会议员说，砖头被粘上，是为了防止张德江到访的时候，抗议者捡起碎石投掷。[偷笑][偷笑][偷笑]<br><img src="http://ww1.sinaimg.cn/large/937f01f5jw1f3z71u3gabj20gi0b03zt.jpg"></p>
-<p>
-	<small> ============== 3小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3976421720526355" target="freeweibo-mirror">SPAM 【一段最温馨的高考寄语】送给即将高考的小伙伴们，也…</a>
-</h2>
-<p>SPAM 【一段最温馨的高考寄语】送给即将高考的小伙伴们，也让我们回想起那个时光。<br><img src="http://ww1.sinaimg.cn/large/77101dc1jw1f3zath3vt1j20c80gadhl.jpg"></p>
-<p>
-	<small> ============== 3小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3976415189771019" target="freeweibo-mirror">群众还不错，是社会管理太差</a>
-</h2>
-<p>群众还不错，是社会管理太差<br><br>RE: 【打屁股无性命之忧，兰州警察吸取雷洋案教训】兰州一大学生称，其拍摄警察粗暴执法，因拒交所拍视频，他和同学遭警察轮番殴打，“屁股被打开花”。网传雷洋妻子正举报昌平警察打其丈夫睾丸，兰州警察打屁股显然吸取雷洋案教训。警察打人，不管打哪都是打党和政府的脸。网友评论“警察不作案，治安好一...全文： http://m.weibo.cn/3198720857/3976381668751684<br><img src="http://ww2.sinaimg.cn/large/bea89b59jw1f3z5dzhzmsj20k00qowgl.jpg"></p>
-<p>
-	<small> ============== 4小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3976414308957648" target="freeweibo-mirror">SPAM 今天学会一个新词：按闹分配，多闹多得。惩罚良民奖励…</a>
-</h2>
-<p>SPAM 今天学会一个新词：按闹分配，多闹多得。惩罚良民奖励刁民，大清国要完！<br><br>RE: 为啥党的公信力越来越低？很简单，这么多年来党的政策一直在惩罚听话的人，同时奖励对着干的人。人家回回违反计划生育政策，一连下了10个崽，CCAV竟然还号召大家去给他捐款，汉族想多生一个就给你强制引产。惩罚信你的人，奖励对着干的人，结果就是所有人都想跟你对着干。这个党正在砸自己的脚。<br><img src="http://ww2.sinaimg.cn/large/5513b1cdgw1f3yssfot80j20dx0ckjs9.jpg"></p>
-<p>
-	<small> ============== 4小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3976403198731890" target="freeweibo-mirror">//@天地玄黄7856: //@F-D-C-: //@崔小平…</a>
-</h2>
-<p>//@天地玄黄7856: //@F-D-C-: //@崔小平律师:转发微博<br><br>RE: 我正在看【雷洋事件报案书曝光！嫖娼是栽赃，雷洋被打死！】，分享给你，一起看吧！http://t.cn/Rqk0USb<br><img src="http://ww4.sinaimg.cn/large/72276697jw1f3z7ierfkqj20ee09kt9o.jpg"></p>
-<p>
-	<small> ============== 5小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3976403156004059" target="freeweibo-mirror">SPAM 雷洋案刑事报案书</a>
-</h2>
-<p>SPAM 雷洋案刑事报案书<br><img src="http://ww4.sinaimg.cn/large/55004ab7jw1f3z8pdgm9wj20m89goe81.jpg"></p>
-<p>
-	<small> ============== 5小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3976396864840587" target="freeweibo-mirror">雷洋妻子正式报案：嫖娼是栽赃，雷洋致命处睾丸异常肿大系被打死…</a>
-</h2>
-<p>雷洋妻子正式报案：嫖娼是栽赃，雷洋致命处睾丸异常肿大系被打死 http://t.cn/RqkpkZv</p>
-<p>
-	<small> ============== 5小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3976396600250324" target="freeweibo-mirror">开</a>
-</h2>
-<p>开</p>
-<p>
-	<small> ============== 5小时前</small>
 </p>
 <table>
     <tr>
