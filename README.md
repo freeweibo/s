@@ -23,7 +23,7 @@
 </h2>
 <p>SPAM 原来洞房抄党章的源头在此！伟大！真伟大！<br><br>RE: 最早的抄党章——窑洞里、上炕之前。<br><img src="http://ww1.sinaimg.cn/large/006jks6Djw1f3zc7hu4mnj30930640sp.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3976450237583805" target="freeweibo-mirror">SPAM //@连岳lianyue: 你愿意和我一起抄党章吗…</a>
 </h2>
@@ -59,19 +59,19 @@
 </h2>
 <p>//@太平金黄鱼:[偷笑]//@_我的天空谁的城_:[打脸][打脸]//@老饕加佑://@曹先生2012H://@柳林清幽: 有句话说：脸被打的跟包子一样，原来如此。//@小靓-蔷薇鹿://@活得轻松些真是不容易:撒逼又被抽脸!<br><br>RE: 津巴布韦反对党要求驱逐所有中国人<br><img src="http://ww1.sinaimg.cn/large/006frryFgw1f3za15owyzj30k00zkgrf.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3976443208204741" target="freeweibo-mirror">SPAM //@太平金黄鱼:抄不停[阴险]//@_我的天空谁…</a>
 </h2>
 <p>SPAM //@太平金黄鱼:抄不停[阴险]//@_我的天空谁的城_:[笑cry]//@加菲g炮1314Cat:[嘻嘻]//@大_树_洞:[吃惊]//@敏如姐姐: 简体字的[嘻嘻]//@尖爪爪: [哈哈] //@花甲孺子牛:[哈哈][哈哈]//@汝恒__常在:<br><br>RE: 有些行业就是反应迅速，值得学习！<br><img src="http://ww1.sinaimg.cn/large/6106a4f0gw1f3zbtdj14ej20qo0zkdii.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3976442935549159" target="freeweibo-mirror">SPAM //@我们爱讲俏皮话:马再看~</a>
 </h2>
 <p>SPAM //@我们爱讲俏皮话:马再看~</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3976439571615443" target="freeweibo-mirror">//@法律人童朝平://@公民林静在维权4: //@南街个体…</a>
 </h2>
@@ -88,6 +88,12 @@
 	<a href="https://freeweibo.com/weibo/3976433938724368" target="freeweibo-mirror">最早的抄党章——窑洞里、上炕之前。</a>
 </h2>
 <p>最早的抄党章——窑洞里、上炕之前。<br><img src="http://ww1.sinaimg.cn/large/006jks6Djw1f3zc7hu4mnj30930640sp.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3976433082524817" target="freeweibo-mirror">回复@左京531:记得截图完整点，我前面说了是对抓嫖这种行政…</a>
+</h2>
+<p>回复@左京531:记得截图完整点，我前面说了是对抓嫖这种行政执法。你们洗地水平不高，成高级黑，污蔑水平也不高，老被打脸[哈哈]//@左京531:某人刚刚才义正言辞的“没有现场抓获铁的证据，一律不得执法”，结果现在马上就双标要条子们冒头就打，我赶快截了个图，免得某些人赖账[笑cry]<br><br>RE: #山东广饶系列命案# #东营突发#【广饶5·16杀人纵火案受害者父亲发声，称警方不作为终酿惨剧】“这个案件不是一个突发事件，危机其实已经酝酿了很久，只是因为公安部门不作为，才导致发生了一系列惨剧。”这位绝望的父亲写道。如果继续无所作为，我们都有可能成为下一个刘晓敬。@新京报 @财经网 ...全文： http://m.weibo.cn/1760465203/3976276157143629</p>
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
@@ -119,23 +125,17 @@
 </h2>
 <p>//@xys1984: 转发微博<br><br>RE: 人生四大悲～～洞房抄党章，接站被嫖娼，久病逢莆田，金榜落他乡。<br><img src="http://ww3.sinaimg.cn/large/615ce479jw1f3yjjukt5aj20d4091aan.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3976427857043226" target="freeweibo-mirror">接班人得经历风雨和挫折！@绿皮怪侠:打共产主义接班人，这得多…</a>
 </h2>
 <p>接班人得经历风雨和挫折！@绿皮怪侠:打共产主义接班人，这得多大的勇气啊<br><br>RE: 【打屁股无性命之忧，兰州警察吸取雷洋案教训】兰州一大学生称，其拍摄警察粗暴执法，因拒交所拍视频，他和同学遭警察轮番殴打，“屁股被打开花”。网传雷洋妻子正举报昌平警察打其丈夫睾丸，兰州警察打屁股显然吸取雷洋案教训。警察打人，不管打哪都是打党和政府的脸。网友评论“警察不作案，治安好一...全文： http://m.weibo.cn/3198720857/3976381668751684<br><img src="http://ww2.sinaimg.cn/large/bea89b59jw1f3z5dzhzmsj20k00qowgl.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3976427131084641" target="freeweibo-mirror">[笑cry]@况秀猛:兰州成了中国大陆的“新加坡”[挖鼻][…</a>
 </h2>
 <p>[笑cry]@况秀猛:兰州成了中国大陆的“新加坡”[挖鼻][挖鼻] //@v珍妮:屁股被打成这样，不及时治疗，血栓会进入心脏[喵喵]，也会引起栓塞猝死<br><br>RE: 【打屁股无性命之忧，兰州警察吸取雷洋案教训】兰州一大学生称，其拍摄警察粗暴执法，因拒交所拍视频，他和同学遭警察轮番殴打，“屁股被打开花”。网传雷洋妻子正举报昌平警察打其丈夫睾丸，兰州警察打屁股显然吸取雷洋案教训。警察打人，不管打哪都是打党和政府的脸。网友评论“警察不作案，治安好一...全文： http://m.weibo.cn/3198720857/3976381668751684<br><img src="http://ww2.sinaimg.cn/large/bea89b59jw1f3z5dzhzmsj20k00qowgl.jpg"></p>
-<p>
-	<small> ============== 4小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3976426791560662" target="freeweibo-mirror">//@piggyprince小猪王子:总是说警力不够，抓嫖娼…</a>
-</h2>
-<p>//@piggyprince小猪王子:总是说警力不够，抓嫖娼，打百姓时似乎警力总是非常充足的。<br><br>RE: 【打屁股无性命之忧，兰州警察吸取雷洋案教训】兰州一大学生称，其拍摄警察粗暴执法，因拒交所拍视频，他和同学遭警察轮番殴打，“屁股被打开花”。网传雷洋妻子正举报昌平警察打其丈夫睾丸，兰州警察打屁股显然吸取雷洋案教训。警察打人，不管打哪都是打党和政府的脸。网友评论“警察不作案，治安好一...全文： http://m.weibo.cn/3198720857/3976381668751684<br><img src="http://ww2.sinaimg.cn/large/bea89b59jw1f3z5dzhzmsj20k00qowgl.jpg"></p>
 <p>
 	<small> ============== 4小时前</small>
 </p>
