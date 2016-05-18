@@ -83,7 +83,7 @@
 </h2>
 <p>世纪之争，十字路口，何去何从？曹先生2010年一篇长文，值得一读！[思考]<br><img src="http://ww3.sinaimg.cn/large/006dpeZNgw1f3zuxybkd3j30qo1a7jze.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3976596165554254" target="freeweibo-mirror">SPAM 今天更新的内容：1️⃣遗传基因太强大！又一个从一号…</a>
 </h2>
