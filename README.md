@@ -31,9 +31,45 @@
 <p>
 	<small> ============== 1小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3976495628590228" target="freeweibo-mirror">致老习于何地？？？//@蠡湖泛舟: [哈哈]//@love蓝…</a>
+</h2>
+<p>致老习于何地？？？//@蠡湖泛舟: [哈哈]//@love蓝小屋://@海龙-28://@游明磊47: [哈哈]//@1024专员: [偷笑]//@不作死就不会死-: 太作死了，，//@無畏的小肥羊VI:這麼早就欽定了！[阴险] //@KaKa2onWB:德江水暖有先知！？//@悠一Online:反啦反啦[偷笑]//@花甲孺子牛: 作死还是擦錯鞋？(新國家主席)<br><br>RE: 有愛國團體熱烈歡迎領導人到香港視察<br><img src="http://ww3.sinaimg.cn/large/0061Mxw5jw1f3zh8quhcqj30qo0f0got.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3976494365618013" target="freeweibo-mirror">这起案件的真相，在他们说摄像坏了的时候大家已经懂了。//@关…</a>
+</h2>
+<p>这起案件的真相，在他们说摄像坏了的时候大家已经懂了。//@关洪导演://@崔小平律师:呵呵。<br><br>RE: 【律师协助家属向北京市检报案 要求侦查涉事民警"三宗罪"】5 月 17 日上午，雷洋家属及代理律师向北京市检察院递交了《关于要求北京市检察院立案侦查雷洋被害案的刑事报案书。北京市检察院举报中心工作人员接收了举报材料，称 " 检方表示会重视此案，将研究决定是否受理，再通知"http://t.cn/Rqk3w6T</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3976494176406029" target="freeweibo-mirror">[哈哈]//@love蓝小屋://@海龙-28://@游明磊…</a>
+</h2>
+<p>[哈哈]//@love蓝小屋://@海龙-28://@游明磊47: [哈哈]//@1024专员: [偷笑]//@不作死就不会死-: 太作死了，，//@無畏的小肥羊VI:這麼早就欽定了！[阴险] //@KaKa2onWB:德江水暖有先知！？//@悠一Online:反啦反啦[偷笑]//@花甲孺子牛: [笑cry]作死还是擦錯鞋？(新國家主席)<br><br>RE: 有愛國團體熱烈歡迎領導人到香港視察<br><img src="http://ww3.sinaimg.cn/large/0061Mxw5jw1f3zh8quhcqj30qo0f0got.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3976492054377332" target="freeweibo-mirror">//@老林时评:转发微博</a>
+</h2>
+<p>//@老林时评:转发微博<br><br>RE: 【睾丸肿胀洗地说】至少有五名雷洋家属在察看雷洋尸体时，除了发现其全身伤痕累累，还发现雷洋阴部睾丸异常肿胀。微评：当然也可以洗地说：雷洋觉得自己的睾丸不争气，恨铁不成钢，找来此祸，巨怒之下一把捏了！<br><img src="http://ww2.sinaimg.cn/large/6a80bfcdgw1f3z7s16j1pj20de0hcq4x.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3976489193564522" target="freeweibo-mirror">回复@辰安巳逸:警方可以到电视台上公开辩解，人家受害者为什么…</a>
+</h2>
+<p>回复@辰安巳逸:警方可以到电视台上公开辩解，人家受害者为什么不可以在网络上公开申明。只许州官放火，不许百姓点灯？ //@辰安巳逸:又在玩舆论政治，让法律的归于法律，让雷洋在法治和正义中安息而不是在舆论喧嚣中招魂。在美国，律师也敢这么玩吗？<br><br>RE: 【“雷洋案”代表律师陈有西：二十多份证据已经固定】@新京报 ：5月17日上午9时，雷洋家属向北京市检察院递交了《关于要求北京市检察院立案侦查雷洋被害案的刑事报案书》，就该案多处疑点提出质疑。 当天下午，陈有西就雷洋案关切问题作出回应：我们一共六个律师在星期天开始进行全面的调查取证，现在...全文： http://m.weibo.cn/1231759973/3976458453595652<br><img src="http://ww3.sinaimg.cn/large/496b2a65jw1f3zf21f2ldj20ag0aqjsh.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3976486442513914" target="freeweibo-mirror">SPAM 很全的健身教程，有你需要的</a>
 </h2>
 <p>SPAM 很全的健身教程，有你需要的</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3976485548892832" target="freeweibo-mirror">SPAM 上海的同学可以去看 //@学术大观察:“其实我从小…</a>
+</h2>
+<p>SPAM 上海的同学可以去看 //@学术大观察:“其实我从小就有喜欢的对象，她个性倔强又很容易掉眼泪，是个很奇特的女孩子。” 新一说[害羞] //@上海交通大学研究生会:优惠购票→http://t.cn/RqDjaVd //@同济大学研究生会:柯南君[哆啦A梦微笑]</p>
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
@@ -61,6 +97,24 @@
 <p>
 	<small> ============== 4小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3976464464452278" target="freeweibo-mirror">SPAM //@我是伏起: //@程中柳: //@M袁飏: …</a>
+</h2>
+<p>SPAM //@我是伏起: //@程中柳: //@M袁飏: //@九思蜗牛:「雷洋妻报案书：嫖娼是栽赃，雷洋被打死」<br><br>RE: 帮帮忙一下……<br><img src="http://ww1.sinaimg.cn/large/006ds1BBgw1f3z5i1ka6vg30c84m842o.gif"></p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3976463209878670" target="freeweibo-mirror">必须将违法执法者绳之以法！</a>
+</h2>
+<p>必须将违法执法者绳之以法！<br><br>RE: 【“雷洋案”代表律师陈有西：二十多份证据已经固定】@新京报 ：5月17日上午9时，雷洋家属向北京市检察院递交了《关于要求北京市检察院立案侦查雷洋被害案的刑事报案书》，就该案多处疑点提出质疑。 当天下午，陈有西就雷洋案关切问题作出回应：我们一共六个律师在星期天开始进行全面的调查取证，现在...全文： http://m.weibo.cn/1231759973/3976458453595652<br><img src="http://ww3.sinaimg.cn/large/496b2a65jw1f3zf21f2ldj20ag0aqjsh.jpg"></p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3976462836525412" target="freeweibo-mirror">回复@草原雄鹰刘媒婆:便衣 异地执法，前提是大 重案，这件案…</a>
+</h2>
+<p>回复@草原雄鹰刘媒婆:便衣 异地执法，前提是大 重案，这件案子本身就是违法执法，你是它们中的吗？这几个一定被绳之以法！<br><br>RE: 【“雷洋案”代表律师陈有西：二十多份证据已经固定】@新京报 ：5月17日上午9时，雷洋家属向北京市检察院递交了《关于要求北京市检察院立案侦查雷洋被害案的刑事报案书》，就该案多处疑点提出质疑。 当天下午，陈有西就雷洋案关切问题作出回应：我们一共六个律师在星期天开始进行全面的调查取证，现在...全文： http://m.weibo.cn/1231759973/3976458453595652<br><img src="http://ww3.sinaimg.cn/large/496b2a65jw1f3zf21f2ldj20ag0aqjsh.jpg"></p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3976460056232605" target="freeweibo-mirror">//@星火必燎原:！！！ //@崔小平律师://@法律人童朝…</a>
 </h2>
 <p>//@星火必燎原:！！！ //@崔小平律师://@法律人童朝平://@公民林静在维权4: //@南街个体户凌杰:警察国家，司空见惯！[怒][怒骂]//@孤家寡哥2016://@長髮老男孩:又來一個？偌大中國，每天有多少人這樣離奇死亡？</p>
@@ -82,60 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3976449117585686" target="freeweibo-mirror">法治中国 年度照[衰]</a>
 </h2>
 <p>法治中国 年度照[衰]<br><br>RE: #遮脸露屁股# 昌平警方和榆中警方都表示相互不服：昌平说我没打他的头只踹了他的蛋，榆中说我打学生屁股没打昌平的脸。<br><img src="http://ww2.sinaimg.cn/large/6cbb92cfgw1f3zdb2juw8j20j60r50v2.jpg"></p>
-<p>
-	<small> ============== 5小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3976446412291184" target="freeweibo-mirror">[怒]早就评价执法欺软怕硬，抓嫖起劲，反恐不力。要接受群众教…</a>
-</h2>
-<p>[怒]早就评价执法欺软怕硬，抓嫖起劲，反恐不力。要接受群众教育，基层警察那点水平，群众里面还多得是，对不？//@魏岳:这个杀人前已经有放火烧车行为了居然不处理，日了狗了。//@沙虫-剑无痕jjy: 警力有限都去维稳了？</p>
-<p>
-	<small> ============== 5小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3976445841533566" target="freeweibo-mirror">不排除终有一天，会受到世界的驱逐！//@崔小平律师: //@…</a>
-</h2>
-<p>不排除终有一天，会受到世界的驱逐！//@崔小平律师: //@太平金黄鱼:[偷笑]//@_我的天空谁的城_:[打脸][打脸]//@老饕加佑://@曹先生2012H://@柳林清幽: 有句话说：脸被打的跟包子一样，原来如此。//@小靓-蔷薇鹿://@活得轻松些真是不容易:撒逼又被抽脸!<br><br>RE: 津巴布韦反对党要求驱逐所有中国人<br><img src="http://ww1.sinaimg.cn/large/006frryFgw1f3za15owyzj30k00zkgrf.jpg"></p>
-<p>
-	<small> ============== 5小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3976445107717459" target="freeweibo-mirror">SPAM //@法律人童朝平://@夏伯多禄: [话筒][围…</a>
-</h2>
-<p>SPAM //@法律人童朝平://@夏伯多禄: [话筒][围观][怒]</p>
-<p>
-	<small> ============== 5小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3976444121719002" target="freeweibo-mirror">#网友播报#【四川抗议一本录取率全国垫底 数名家长教育厅请愿…</a>
-</h2>
-<p>#网友播报#【四川抗议一本录取率全国垫底 数名家长教育厅请愿】据多名网友向身边君爆料，今日上午，四川数名家长聚集在四川省教育厅，手拿写着“抗议一本率垫底、拒绝注水一本率”等字条，为四川的孩子们请愿，争取扩招。据参与家长透露，现场大约有上百人，大家都很理性，很克制。<br><img src="http://ww3.sinaimg.cn/large/62ba1e89gw1f3zddn7pqvj20k00fh77t.jpg"></p>
-<p>
-	<small> ============== 5小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3976443799218122" target="freeweibo-mirror">//@太平金黄鱼:[偷笑]//@_我的天空谁的城_:[打脸]…</a>
-</h2>
-<p>//@太平金黄鱼:[偷笑]//@_我的天空谁的城_:[打脸][打脸]//@老饕加佑://@曹先生2012H://@柳林清幽: 有句话说：脸被打的跟包子一样，原来如此。//@小靓-蔷薇鹿://@活得轻松些真是不容易:撒逼又被抽脸!<br><br>RE: 津巴布韦反对党要求驱逐所有中国人<br><img src="http://ww1.sinaimg.cn/large/006frryFgw1f3za15owyzj30k00zkgrf.jpg"></p>
-<p>
-	<small> ============== 5小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3976443610730764" target="freeweibo-mirror">#遮脸露屁股# 昌平警方和榆中警方都表示相互不服：昌平说我没…</a>
-</h2>
-<p>#遮脸露屁股# 昌平警方和榆中警方都表示相互不服：昌平说我没打他的头只踹了他的蛋，榆中说我打学生屁股没打昌平的脸。<br><img src="http://ww2.sinaimg.cn/large/6cbb92cfgw1f3zdb2juw8j20j60r50v2.jpg"></p>
-<p>
-	<small> ============== 5小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3976443208204741" target="freeweibo-mirror">SPAM //@太平金黄鱼:抄不停[阴险]//@_我的天空谁…</a>
-</h2>
-<p>SPAM //@太平金黄鱼:抄不停[阴险]//@_我的天空谁的城_:[笑cry]//@加菲g炮1314Cat:[嘻嘻]//@大_树_洞:[吃惊]//@敏如姐姐: 简体字的[嘻嘻]//@尖爪爪: [哈哈] //@花甲孺子牛:[哈哈][哈哈]//@汝恒__常在:<br><br>RE: 有些行业就是反应迅速，值得学习！<br><img src="http://ww1.sinaimg.cn/large/6106a4f0gw1f3zbtdj14ej20qo0zkdii.jpg"></p>
-<p>
-	<small> ============== 5小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3976442935549159" target="freeweibo-mirror">SPAM //@我们爱讲俏皮话:马再看~</a>
-</h2>
-<p>SPAM //@我们爱讲俏皮话:马再看~</p>
-<p>
-	<small> ============== 5小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3976439571615443" target="freeweibo-mirror">//@法律人童朝平://@公民林静在维权4: //@南街个体…</a>
-</h2>
-<p>//@法律人童朝平://@公民林静在维权4: //@南街个体户凌杰:警察国家，司空见惯！[怒][怒骂]//@孤家寡哥2016://@長髮老男孩:又來一個？偌大中國，每天有多少人這樣離奇死亡？</p>
 <p>
 	<small> ============== 5小时前</small>
 </p>
