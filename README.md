@@ -71,7 +71,7 @@
 </h2>
 <p>SPAM 吓得我都不敢抄党章了。//@连岳lianyue: 帅哥，抄党章吗？//@Ivan各革: 段子手正在赶来：洛阳亲友如相问，就说我在抄党章；夜来抄党章，花落知多少；商女不知亡国恨，隔江犹在抄党章；少壮不努力，老大抄党章；遥想公瑾当年，小乔抄党章……<br><br>RE: 有些行业就是反应迅速，值得学习！<br><img src="http://ww1.sinaimg.cn/large/6106a4f0gw1f3zbtdj14ej20qo0zkdii.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3976432739043428" target="freeweibo-mirror">SPAM [怒骂][怒骂][怒骂]我也是</a>
 </h2>
@@ -82,6 +82,12 @@
 	<a href="https://freeweibo.com/weibo/3976432398981192" target="freeweibo-mirror">→_→//@骗了无涯过客:如果夜里有帮人拦住我，我大喊的是：…</a>
 </h2>
 <p>→_→//@骗了无涯过客:如果夜里有帮人拦住我，我大喊的是：“抢劫啊！救命啊！”#绝对不会大喊：“他们不是真警察”！#//@辟谣与真相: ［警察是否向雷洋出示证件、表明了身份?来看看媒体采访目击者的报道］   http://t.cn/RqklxNV</p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3976430322970735" target="freeweibo-mirror">有些行业就是反应迅速，值得学习！</a>
+</h2>
+<p>有些行业就是反应迅速，值得学习！<br><img src="http://ww1.sinaimg.cn/large/6106a4f0gw1f3zbtdj14ej20qo0zkdii.jpg"></p>
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3976423980683142" target="freeweibo-mirror">[ok]//@曾与风舞:打在他们的屁股上犹如打在共产党“依法…</a>
 </h2>
 <p>[ok]//@曾与风舞:打在他们的屁股上犹如打在共产党“依法治国”的脸上。<br><br>RE: 【打屁股无性命之忧，兰州警察吸取雷洋案教训】兰州一大学生称，其拍摄警察粗暴执法，因拒交所拍视频，他和同学遭警察轮番殴打，“屁股被打开花”。网传雷洋妻子正举报昌平警察打其丈夫睾丸，兰州警察打屁股显然吸取雷洋案教训。警察打人，不管打哪都是打党和政府的脸。网友评论“警察不作案，治安好一...全文： http://m.weibo.cn/3198720857/3976381668751684<br><img src="http://ww2.sinaimg.cn/large/bea89b59jw1f3z5dzhzmsj20k00qowgl.jpg"></p>
-<p>
-	<small> ============== 3小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3976423926343943" target="freeweibo-mirror">[赞]//@不沉默的大多数:群众还不错，是社会管理太差</a>
-</h2>
-<p>[赞]//@不沉默的大多数:群众还不错，是社会管理太差<br><br>RE: 【打屁股无性命之忧，兰州警察吸取雷洋案教训】兰州一大学生称，其拍摄警察粗暴执法，因拒交所拍视频，他和同学遭警察轮番殴打，“屁股被打开花”。网传雷洋妻子正举报昌平警察打其丈夫睾丸，兰州警察打屁股显然吸取雷洋案教训。警察打人，不管打哪都是打党和政府的脸。网友评论“警察不作案，治安好一...全文： http://m.weibo.cn/3198720857/3976381668751684<br><img src="http://ww2.sinaimg.cn/large/bea89b59jw1f3z5dzhzmsj20k00qowgl.jpg"></p>
 <p>
 	<small> ============== 3小时前</small>
 </p>
