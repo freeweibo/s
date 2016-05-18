@@ -19,11 +19,17 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3976560225285780" target="freeweibo-mirror">伟大领袖不是天生的，而是PS的。越挂领袖像，国家的危险系数就…</a>
+</h2>
+<p>伟大领袖不是天生的，而是PS的。越挂领袖像，国家的危险系数就越高。一个国家的危险系数与挂政治领袖像的多少成相关。民主政体内，权为民所授，公众无须对他顶礼膜拜。专制体制下，才有可能形成个人崇拜。大众民主意识一旦觉醒，个人崇拜便成为笑柄。政治强人一旦失去强权的支撑，便归于滑稽可笑。<br><img src="http://ww3.sinaimg.cn/large/006tnYcfjw1f3zqqemavlj30dw0dwmy2.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3976554646260469" target="freeweibo-mirror">SPAM //@高小曜: //@苏州常熟徐文石: //@摄色…</a>
 </h2>
 <p>SPAM //@高小曜: //@苏州常熟徐文石: //@摄色光: //@南辕北辙001:砸牌坊了。//@崔小平律师://@湖嗨散人:这不就是不忠不义不仁不孝吗，呵呵//@Thomas程5: 唉！<br><br>RE: 宋美龄评价其姐宋庆龄一生。<br><img src="http://ww4.sinaimg.cn/large/6322f7ddjw1f3zcwqnd8vj20hs0vkdjr.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3976543984179671" target="freeweibo-mirror">SPAM 橙色和蓝色的好想拥有！感觉不拥有就不会幸福了……[…</a>
 </h2>
@@ -71,13 +77,13 @@
 </h2>
 <p>SPAM 查個明白</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3976523655128924" target="freeweibo-mirror">原来是这样的马英九，全程萌萌哒</a>
 </h2>
 <p>原来是这样的马英九，全程萌萌哒<br><br>RE: 【还有两天就卸任的马英九 突然转型成为段子手】马英九任期倒数两天，他今早在Facebook上传自拍感谢短片，回应网友的一些有趣问题，挺搞笑的，成功转型成为段子手！ http://t.cn/Rqklfsk</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3976523189380761" target="freeweibo-mirror">SPAM 雷洋案，法治不可辜负一个中产妻子的克制。 別以為我…</a>
 </h2>
@@ -119,23 +125,17 @@
 </h2>
 <p>这起案件的真相，在他们说摄像坏了的时候大家已经懂了。//@关洪导演://@崔小平律师:呵呵。<br><br>RE: 【律师协助家属向北京市检报案 要求侦查涉事民警"三宗罪"】5 月 17 日上午，雷洋家属及代理律师向北京市检察院递交了《关于要求北京市检察院立案侦查雷洋被害案的刑事报案书。北京市检察院举报中心工作人员接收了举报材料，称 " 检方表示会重视此案，将研究决定是否受理，再通知"http://t.cn/Rqk3w6T</p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3976494176406029" target="freeweibo-mirror">[哈哈]//@love蓝小屋://@海龙-28://@游明磊…</a>
 </h2>
 <p>[哈哈]//@love蓝小屋://@海龙-28://@游明磊47: [哈哈]//@1024专员: [偷笑]//@不作死就不会死-: 太作死了，，//@無畏的小肥羊VI:這麼早就欽定了！[阴险] //@KaKa2onWB:德江水暖有先知！？//@悠一Online:反啦反啦[偷笑]//@花甲孺子牛: [笑cry]作死还是擦錯鞋？(新國家主席)<br><br>RE: 有愛國團體熱烈歡迎領導人到香港視察<br><img src="http://ww3.sinaimg.cn/large/0061Mxw5jw1f3zh8quhcqj30qo0f0got.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3976492054377332" target="freeweibo-mirror">//@老林时评:转发微博</a>
 </h2>
 <p>//@老林时评:转发微博<br><br>RE: 【睾丸肿胀洗地说】至少有五名雷洋家属在察看雷洋尸体时，除了发现其全身伤痕累累，还发现雷洋阴部睾丸异常肿胀。微评：当然也可以洗地说：雷洋觉得自己的睾丸不争气，恨铁不成钢，找来此祸，巨怒之下一把捏了！<br><img src="http://ww2.sinaimg.cn/large/6a80bfcdgw1f3z7s16j1pj20de0hcq4x.jpg"></p>
-<p>
-	<small> ============== 7小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3976490544481943" target="freeweibo-mirror">从在港五毛打出的标语看，估计花生政变了......</a>
-</h2>
-<p>从在港五毛打出的标语看，估计花生政变了......<br><img src="http://ww2.sinaimg.cn/large/005XJB2mgw1f3zioai97xj30go09e75l.jpg"></p>
 <p>
 	<small> ============== 7小时前</small>
 </p>
