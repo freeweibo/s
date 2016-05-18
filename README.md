@@ -19,6 +19,18 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3976503366674711" target="freeweibo-mirror">SPAM //@大鸟919: 删帖者，请你想想，那一天你自己…</a>
+</h2>
+<p>SPAM //@大鸟919: 删帖者，请你想想，那一天你自己、你的亲人朋友也碰到发帖求助被删，你做何感想呢？转发无罪有功！@财经网 @头条新闻 @媒体人欧菲 @南方人物周刊 @福建第一眼 @网易新闻客户端 @联合国<br><br>RE: 他们若可以删雷洋妻子的刑事报案书，也可以删你我的。因此，我必须转。<br><img src="http://ww4.sinaimg.cn/large/dde1047djw1f3z6pgg3orj20ff6kjkjl.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3976503211384748" target="freeweibo-mirror">SPAM 必须的。</a>
+</h2>
+<p>SPAM 必须的。<br><br>RE: 他们若可以删雷洋妻子的刑事报案书，也可以删你我的。因此，我必须转。<br><img src="http://ww4.sinaimg.cn/large/dde1047djw1f3z6pgg3orj20ff6kjkjl.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3976486442513914" target="freeweibo-mirror">SPAM 很全的健身教程，有你需要的</a>
 </h2>
 <p>SPAM 很全的健身教程，有你需要的</p>
@@ -29,7 +41,7 @@
 </h2>
 <p>据媒体报道，南昌供电段南昌西供电车间助理工程师李某、检修车间助工陈某新婚之夜，铺开纸张，工整地抄下党章，给新婚之夜留下美好记忆。这则新闻引起了热议。赞许者有之，批评者不少，戏说者更甚。有网友指... http://t.cn/RqkutFf</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3976471040631298" target="freeweibo-mirror">哈哈，不要试图跟欧洲左派小清新讲道理，你会毫不知情的被扣上种…</a>
 </h2>
@@ -47,7 +59,7 @@
 </h2>
 <p>【民众有免于恐惧的自由，从这方面看，文革从未结束】<br><img src="http://ww4.sinaimg.cn/large/77101dc1jw1f3zckr7hugj20qo1bfqaj.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3976460056232605" target="freeweibo-mirror">//@星火必燎原:！！！ //@崔小平律师://@法律人童朝…</a>
 </h2>
@@ -65,7 +77,7 @@
 </h2>
 <p>SPAM //@连岳lianyue: 你愿意和我一起抄党章吗？<br><br>RE: 有些行业就是反应迅速，值得学习！<br><img src="http://ww1.sinaimg.cn/large/6106a4f0gw1f3zbtdj14ej20qo0zkdii.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3976449117585686" target="freeweibo-mirror">法治中国 年度照[衰]</a>
 </h2>
@@ -124,18 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3976439571615443" target="freeweibo-mirror">//@法律人童朝平://@公民林静在维权4: //@南街个体…</a>
 </h2>
 <p>//@法律人童朝平://@公民林静在维权4: //@南街个体户凌杰:警察国家，司空见惯！[怒][怒骂]//@孤家寡哥2016://@長髮老男孩:又來一個？偌大中國，每天有多少人這樣離奇死亡？</p>
-<p>
-	<small> ============== 5小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3976437356583079" target="freeweibo-mirror">SPAM 吓得我都不敢抄党章了。//@连岳lianyue: …</a>
-</h2>
-<p>SPAM 吓得我都不敢抄党章了。//@连岳lianyue: 帅哥，抄党章吗？//@Ivan各革: 段子手正在赶来：洛阳亲友如相问，就说我在抄党章；夜来抄党章，花落知多少；商女不知亡国恨，隔江犹在抄党章；少壮不努力，老大抄党章；遥想公瑾当年，小乔抄党章……<br><br>RE: 有些行业就是反应迅速，值得学习！<br><img src="http://ww1.sinaimg.cn/large/6106a4f0gw1f3zbtdj14ej20qo0zkdii.jpg"></p>
-<p>
-	<small> ============== 5小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3976435359706132" target="freeweibo-mirror">[哈哈]//@一只思考喵生的猫:明明是“滚出香港”</a>
-</h2>
-<p>[哈哈]//@一只思考喵生的猫:明明是“滚出香港”<br><br>RE: 【张德江到香港视察 遇示威者反对】17日，中国人民代表大会常务委员长张德江抵达香港，香港市民们在市中心举行了抗议示威。数十名示威者举行集会，走上街头高喊“张德江离开香港”的口号，参加示威的香港市民们拿出了黄色雨伞。香港政府为应对示威在市中心部署了6000多名警察。http://t.cn/RqkWQOA<br><img src="http://ww1.sinaimg.cn/large/706ecc39gw1f3z9ko0m47j20f009zwgq.jpg"></p>
 <p>
 	<small> ============== 5小时前</small>
 </p>
