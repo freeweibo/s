@@ -29,7 +29,7 @@
 </h2>
 <p>SPAM 橙色和蓝色的好想拥有！感觉不拥有就不会幸福了……[笑cry]</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3976541795015223" target="freeweibo-mirror">SPAM #辞职兑现20年前承诺#他为了兑现20年前对妈妈许…</a>
 </h2>
@@ -65,7 +65,7 @@
 </h2>
 <p>哼，压根没有脸书这个网站！//@李开复:转发微博<br><br>RE: 【还有两天就卸任的马英九 突然转型成为段子手】马英九任期倒数两天，他今早在Facebook上传自拍感谢短片，回应网友的一些有趣问题，挺搞笑的，成功转型成为段子手！ http://t.cn/Rqklfsk</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3976524561102334" target="freeweibo-mirror">SPAM 查個明白</a>
 </h2>
