@@ -103,6 +103,12 @@
 <p>
 	<small> ============== 4小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3976435359706132" target="freeweibo-mirror">[哈哈]//@一只思考喵生的猫:明明是“滚出香港”</a>
+</h2>
+<p>[哈哈]//@一只思考喵生的猫:明明是“滚出香港”<br><br>RE: 【张德江到香港视察 遇示威者反对】17日，中国人民代表大会常务委员长张德江抵达香港，香港市民们在市中心举行了抗议示威。数十名示威者举行集会，走上街头高喊“张德江离开香港”的口号，参加示威的香港市民们拿出了黄色雨伞。香港政府为应对示威在市中心部署了6000多名警察。http://t.cn/RqkWQOA<br><img src="http://ww1.sinaimg.cn/large/706ecc39gw1f3z9ko0m47j20f009zwgq.jpg"></p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3976433938724368" target="freeweibo-mirror">最早的抄党章——窑洞里、上炕之前。</a>
 </h2>
 <p>最早的抄党章——窑洞里、上炕之前。<br><img src="http://ww1.sinaimg.cn/large/006jks6Djw1f3zc7hu4mnj30930640sp.jpg"></p>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3976430322970735" target="freeweibo-mirror">有些行业就是反应迅速，值得学习！</a>
 </h2>
 <p>有些行业就是反应迅速，值得学习！<br><img src="http://ww1.sinaimg.cn/large/6106a4f0gw1f3zbtdj14ej20qo0zkdii.jpg"></p>
-<p>
-	<small> ============== 4小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3976430259431964" target="freeweibo-mirror">他有道理，完全可以反驳。我说一句这个毫无依据就扣帽子狂喷的人…</a>
-</h2>
-<p>他有道理，完全可以反驳。我说一句这个毫无依据就扣帽子狂喷的人是江苏的，就怎么啦？为什么喷我，大家心知肚明，何必装逼！至于说涉重庆的事，本人说的是不是事实？说点事实就是“给平西王洗地”？要点逼脸吧！//@精诚无间CY:正确与否都不谈，就你这地域炮的格局，以及下面赞的蠢货，都证明:1</p>
 <p>
 	<small> ============== 4小时前</small>
 </p>
