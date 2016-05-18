@@ -37,6 +37,12 @@
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3976547054530219" target="freeweibo-mirror">做梦，欺软怕硬是在哪国呢？//@亮亮999:希望全国人民共同…</a>
+</h2>
+<p>做梦，欺软怕硬是在哪国呢？//@亮亮999:希望全国人民共同努力，制止中国警察执法过度娘娘腔的趋势。多用用警棍手枪，学学美国警察。否则我们真的感觉慢慢在失去安全感。//@范剑平<br><br>RE: 【公民的屁股，为什么开花？】让公安把大V抓起来，让公安把死磕律师抓起来，让公安把网络管起来。然后，公安就可以放心大胆地打屁股了。授权警察实施暴力，绝不能同时授权警察管理言论。如果警察可以一手拿警棍，一手堵嘴巴，公民的屁股，必然会节节开花。<br><img src="http://ww1.sinaimg.cn/large/486bea1ajw1f3zeigjwq1j20c80dr0t6.jpg"></p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3976543984179671" target="freeweibo-mirror">SPAM 橙色和蓝色的好想拥有！感觉不拥有就不会幸福了……[…</a>
 </h2>
 <p>SPAM 橙色和蓝色的好想拥有！感觉不拥有就不会幸福了……[笑cry]</p>
@@ -119,7 +125,7 @@
 </h2>
 <p>SPAM 必须的。<br><br>RE: 他们若可以删雷洋妻子的刑事报案书，也可以删你我的。因此，我必须转。<br><img src="http://ww4.sinaimg.cn/large/dde1047djw1f3z6pgg3orj20ff6kjkjl.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3976495628590228" target="freeweibo-mirror">致老习于何地？？？//@蠡湖泛舟: [哈哈]//@love蓝…</a>
 </h2>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3976494365618013" target="freeweibo-mirror">这起案件的真相，在他们说摄像坏了的时候大家已经懂了。//@关…</a>
 </h2>
 <p>这起案件的真相，在他们说摄像坏了的时候大家已经懂了。//@关洪导演://@崔小平律师:呵呵。<br><br>RE: 【律师协助家属向北京市检报案 要求侦查涉事民警"三宗罪"】5 月 17 日上午，雷洋家属及代理律师向北京市检察院递交了《关于要求北京市检察院立案侦查雷洋被害案的刑事报案书。北京市检察院举报中心工作人员接收了举报材料，称 " 检方表示会重视此案，将研究决定是否受理，再通知"http://t.cn/Rqk3w6T</p>
-<p>
-	<small> ============== 7小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3976494176406029" target="freeweibo-mirror">[哈哈]//@love蓝小屋://@海龙-28://@游明磊…</a>
-</h2>
-<p>[哈哈]//@love蓝小屋://@海龙-28://@游明磊47: [哈哈]//@1024专员: [偷笑]//@不作死就不会死-: 太作死了，，//@無畏的小肥羊VI:這麼早就欽定了！[阴险] //@KaKa2onWB:德江水暖有先知！？//@悠一Online:反啦反啦[偷笑]//@花甲孺子牛: [笑cry]作死还是擦錯鞋？(新國家主席)<br><br>RE: 有愛國團體熱烈歡迎領導人到香港視察<br><img src="http://ww3.sinaimg.cn/large/0061Mxw5jw1f3zh8quhcqj30qo0f0got.jpg"></p>
 <p>
 	<small> ============== 7小时前</small>
 </p>
