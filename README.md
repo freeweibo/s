@@ -19,6 +19,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3976540067283669" target="freeweibo-mirror">回复@傅立叶经济:若沉默就是擔當，羔羊皆為棟梁。//@傅立叶…</a>
+</h2>
+<p>回复@傅立叶经济:若沉默就是擔當，羔羊皆為棟梁。//@傅立叶经济:老是冷嘲热讽可不好，士要有责任和担当。<br><br>RE: 權威人士有一點是可愛的，至少不睜著眼睛說瞎話，承認了L型的現實。但是，權威人士，不敢談超級地租，不敢面對雙重信用潰敗。當然，也就不會給出有價值的藥方。哥哥們迷信，相信哈佛耶魯，相信各國中國銷售部經理，就是不相信自己的眼睛和良知。一個電工，拿著個工具箱，要去醫院給人看病。也是醉了！</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3976531082963677" target="freeweibo-mirror">SPAM //@不沉默的大多数:雷洋家人的理性维权 依法维权…</a>
 </h2>
 <p>SPAM //@不沉默的大多数:雷洋家人的理性维权 依法维权，已经脱离了医闹法闹上访那种传统做法，是一个现代文明社会里平等主体间的法律交锋。[赞]该案是未来社会风向标。</p>
@@ -43,6 +49,12 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3976519724246003" target="freeweibo-mirror">//@萧瑟洋场: 转发微博</a>
+</h2>
+<p>//@萧瑟洋场: 转发微博<br><br>RE: 分享图片<br><img src="http://ww1.sinaimg.cn/large/7fc633f9gw1f3z8gmtfoyj20j60pktev.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3976504008698673" target="freeweibo-mirror">//@胡上士:转发微博</a>
 </h2>
 <p>//@胡上士:转发微博<br><br>RE: 从在港五毛打出的标语看，估计花生政变了......<br><img src="http://ww2.sinaimg.cn/large/005XJB2mgw1f3zioai97xj30go09e75l.jpg"></p>
@@ -59,7 +71,7 @@
 </h2>
 <p>SPAM 必须的。<br><br>RE: 他们若可以删雷洋妻子的刑事报案书，也可以删你我的。因此，我必须转。<br><img src="http://ww4.sinaimg.cn/large/dde1047djw1f3z6pgg3orj20ff6kjkjl.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3976495628590228" target="freeweibo-mirror">致老习于何地？？？//@蠡湖泛舟: [哈哈]//@love蓝…</a>
 </h2>
@@ -124,18 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3976485548892832" target="freeweibo-mirror">SPAM 上海的同学可以去看 //@学术大观察:“其实我从小…</a>
 </h2>
 <p>SPAM 上海的同学可以去看 //@学术大观察:“其实我从小就有喜欢的对象，她个性倔强又很容易掉眼泪，是个很奇特的女孩子。” 新一说[害羞] //@上海交通大学研究生会:优惠购票→http://t.cn/RqDjaVd //@同济大学研究生会:柯南君[哆啦A梦微笑]</p>
-<p>
-	<small> ============== 5小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3976480462079473" target="freeweibo-mirror">据媒体报道，南昌供电段南昌西供电车间助理工程师李某、检修车间…</a>
-</h2>
-<p>据媒体报道，南昌供电段南昌西供电车间助理工程师李某、检修车间助工陈某新婚之夜，铺开纸张，工整地抄下党章，给新婚之夜留下美好记忆。这则新闻引起了热议。赞许者有之，批评者不少，戏说者更甚。有网友指... http://t.cn/RqkutFf</p>
-<p>
-	<small> ============== 5小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3976477739178268" target="freeweibo-mirror">有愛國團體熱烈歡迎領導人到香港視察</a>
-</h2>
-<p>有愛國團體熱烈歡迎領導人到香港視察<br><img src="http://ww3.sinaimg.cn/large/0061Mxw5jw1f3zh8quhcqj30qo0f0got.jpg"></p>
 <p>
 	<small> ============== 5小时前</small>
 </p>
