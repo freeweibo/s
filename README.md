@@ -121,6 +121,12 @@
 <p>
 	<small> ============== 4小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3976458453595652" target="freeweibo-mirror">【“雷洋案”代表律师陈有西：二十多份证据已经固定】@新京报 …</a>
+</h2>
+<p>【“雷洋案”代表律师陈有西：二十多份证据已经固定】@新京报 ：5月17日上午9时，雷洋家属向北京市检察院递交了《关于要求北京市检察院立案侦查雷洋被害案的刑事报案书》，就该案多处疑点提出质疑。 当天下午，陈有西就雷洋案关切问题作出回应：我们一共六个律师在星期天开始进行全面的调查取证，现在...全文： http://m.weibo.cn/1231759973/3976458453595652<br><img src="http://ww3.sinaimg.cn/large/496b2a65jw1f3zf21f2ldj20ag0aqjsh.jpg"></p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3976458382646039" target="freeweibo-mirror">SPAM 原来洞房抄党章的源头在此！伟大！真伟大！</a>
 </h2>
 <p>SPAM 原来洞房抄党章的源头在此！伟大！真伟大！<br><br>RE: 最早的抄党章——窑洞里、上炕之前。<br><img src="http://ww1.sinaimg.cn/large/006jks6Djw1f3zc7hu4mnj30930640sp.jpg"></p>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3976450237583805" target="freeweibo-mirror">SPAM //@连岳lianyue: 你愿意和我一起抄党章吗…</a>
 </h2>
 <p>SPAM //@连岳lianyue: 你愿意和我一起抄党章吗？<br><br>RE: 有些行业就是反应迅速，值得学习！<br><img src="http://ww1.sinaimg.cn/large/6106a4f0gw1f3zbtdj14ej20qo0zkdii.jpg"></p>
-<p>
-	<small> ============== 5小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3976449117585686" target="freeweibo-mirror">法治中国 年度照[衰]</a>
-</h2>
-<p>法治中国 年度照[衰]<br><br>RE: #遮脸露屁股# 昌平警方和榆中警方都表示相互不服：昌平说我没打他的头只踹了他的蛋，榆中说我打学生屁股没打昌平的脸。<br><img src="http://ww2.sinaimg.cn/large/6cbb92cfgw1f3zdb2juw8j20j60r50v2.jpg"></p>
 <p>
 	<small> ============== 5小时前</small>
 </p>
