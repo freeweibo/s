@@ -29,7 +29,7 @@
 </h2>
 <p>SPAM #5.20# #宅播# 这个神秘嘉宾不是我[doge]但和我是娘儿俩～并无太大区别哇咔咔[嘻嘻]</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3976540067283669" target="freeweibo-mirror">回复@傅立叶经济:若沉默就是擔當，羔羊皆為棟梁。//@傅立叶…</a>
 </h2>
