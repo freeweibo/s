@@ -29,13 +29,13 @@
 </h2>
 <p>//@xys1984: 转发微博<br><br>RE: 人生四大悲～～洞房抄党章，接站被嫖娼，久病逢莆田，金榜落他乡。<br><img src="http://ww3.sinaimg.cn/large/615ce479jw1f3yjjukt5aj20d4091aan.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3976427857043226" target="freeweibo-mirror">接班人得经历风雨和挫折！@绿皮怪侠:打共产主义接班人，这得多…</a>
 </h2>
 <p>接班人得经历风雨和挫折！@绿皮怪侠:打共产主义接班人，这得多大的勇气啊<br><br>RE: 【打屁股无性命之忧，兰州警察吸取雷洋案教训】兰州一大学生称，其拍摄警察粗暴执法，因拒交所拍视频，他和同学遭警察轮番殴打，“屁股被打开花”。网传雷洋妻子正举报昌平警察打其丈夫睾丸，兰州警察打屁股显然吸取雷洋案教训。警察打人，不管打哪都是打党和政府的脸。网友评论“警察不作案，治安好一...全文： http://m.weibo.cn/3198720857/3976381668751684<br><img src="http://ww2.sinaimg.cn/large/bea89b59jw1f3z5dzhzmsj20k00qowgl.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3976427131084641" target="freeweibo-mirror">[笑cry]@况秀猛:兰州成了中国大陆的“新加坡”[挖鼻][…</a>
 </h2>
