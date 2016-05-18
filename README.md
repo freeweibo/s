@@ -71,7 +71,7 @@
 </h2>
 <p>法治中国 年度照[衰]<br><br>RE: #遮脸露屁股# 昌平警方和榆中警方都表示相互不服：昌平说我没打他的头只踹了他的蛋，榆中说我打学生屁股没打昌平的脸。<br><img src="http://ww2.sinaimg.cn/large/6cbb92cfgw1f3zdb2juw8j20j60r50v2.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3976446412291184" target="freeweibo-mirror">[怒]早就评价执法欺软怕硬，抓嫖起劲，反恐不力。要接受群众教…</a>
 </h2>
