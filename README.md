@@ -47,7 +47,7 @@
 </h2>
 <p>SPAM //@高小曜: //@苏州常熟徐文石: //@摄色光: //@南辕北辙001:砸牌坊了。//@崔小平律师://@湖嗨散人:这不就是不忠不义不仁不孝吗，呵呵//@Thomas程5: 唉！<br><br>RE: 宋美龄评价其姐宋庆龄一生。<br><img src="http://ww4.sinaimg.cn/large/6322f7ddjw1f3zcwqnd8vj20hs0vkdjr.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3976547054530219" target="freeweibo-mirror">做梦，欺软怕硬是在哪国呢？//@亮亮999:希望全国人民共同…</a>
 </h2>
@@ -101,13 +101,13 @@
 </h2>
 <p>SPAM 查個明白</p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3976523655128924" target="freeweibo-mirror">原来是这样的马英九，全程萌萌哒</a>
 </h2>
 <p>原来是这样的马英九，全程萌萌哒<br><br>RE: 【还有两天就卸任的马英九 突然转型成为段子手】马英九任期倒数两天，他今早在Facebook上传自拍感谢短片，回应网友的一些有趣问题，挺搞笑的，成功转型成为段子手！ http://t.cn/Rqklfsk</p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3976523189380761" target="freeweibo-mirror">SPAM 雷洋案，法治不可辜负一个中产妻子的克制。 別以為我…</a>
 </h2>
