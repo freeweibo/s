@@ -59,7 +59,7 @@
 </h2>
 <p>//@老林时评:转发微博<br><br>RE: 【睾丸肿胀洗地说】至少有五名雷洋家属在察看雷洋尸体时，除了发现其全身伤痕累累，还发现雷洋阴部睾丸异常肿胀。微评：当然也可以洗地说：雷洋觉得自己的睾丸不争气，恨铁不成钢，找来此祸，巨怒之下一把捏了！<br><img src="http://ww2.sinaimg.cn/large/6a80bfcdgw1f3z7s16j1pj20de0hcq4x.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3976490544481943" target="freeweibo-mirror">从在港五毛打出的标语看，估计花生政变了......</a>
 </h2>
@@ -113,7 +113,7 @@
 </h2>
 <p>有愛國團體熱烈歡迎領導人到香港視察<br><img src="http://ww3.sinaimg.cn/large/0061Mxw5jw1f3zh8quhcqj30qo0f0got.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3976471657775118" target="freeweibo-mirror">SPAM 真相出来之后，这些人该怎么演呢？[哈哈][哈哈][…</a>
 </h2>
