@@ -103,6 +103,18 @@
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3976403198731890" target="freeweibo-mirror">//@天地玄黄7856: //@F-D-C-: //@崔小平…</a>
+</h2>
+<p>//@天地玄黄7856: //@F-D-C-: //@崔小平律师:转发微博<br><br>RE: 我正在看【雷洋事件报案书曝光！嫖娼是栽赃，雷洋被打死！】，分享给你，一起看吧！http://t.cn/Rqk0USb<br><img src="http://ww4.sinaimg.cn/large/72276697jw1f3z7ierfkqj20ee09kt9o.jpg"></p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3976403156004059" target="freeweibo-mirror">SPAM 雷洋案刑事报案书</a>
+</h2>
+<p>SPAM 雷洋案刑事报案书<br><img src="http://ww4.sinaimg.cn/large/55004ab7jw1f3z8pdgm9wj20m89goe81.jpg"></p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3976396864840587" target="freeweibo-mirror">雷洋妻子正式报案：嫖娼是栽赃，雷洋致命处睾丸异常肿大系被打死…</a>
 </h2>
 <p>雷洋妻子正式报案：嫖娼是栽赃，雷洋致命处睾丸异常肿大系被打死 http://t.cn/RqkpkZv</p>
@@ -126,18 +138,6 @@
 <p>//@良心于23://@frank7383://@崔小平律师:五毛狗本性嘛。//@梅虔:这些人会不会也嫖娼致死？ //@未得糊涂:讽刺的是，雷洋或许是他们的粉丝。//@何日复青天: 不得好死这帮王八蛋人渣 //@何辉新:转发微博。</p>
 <p>
 	<small> ============== 7小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3976349524231967" target="freeweibo-mirror">见证奇迹[哈哈] //@张郎来了:看博主那一串名字，跟逛通州…</a>
-</h2>
-<p>见证奇迹[哈哈] //@张郎来了:看博主那一串名字，跟逛通州狗市似的。[哈哈]//@蓝色宇宙89:祝五毛们，早日被嫖娼致死//@崔小平律师:五毛狗本性嘛。//@梅虔:这些人会不会也嫖娼致死？ //@未得糊涂:讽刺的是，雷洋或许是他们的粉丝。//@何日复青天: 不得好死这帮王八蛋人渣 //@何辉新:转发微博。</p>
-<p>
-	<small> ============== 7小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3976314391819846" target="freeweibo-mirror">//@苏湘迅://@平凡的香草://@且听枫吟://@tin…</a>
-</h2>
-<p>//@苏湘迅://@平凡的香草://@且听枫吟://@tinyfool://@邢孔育: 转发微博<br><br>RE: 雷洋家属关于要求北京市检察院立案侦查雷洋被害案的刑事报案书<br><img src="http://ww1.sinaimg.cn/large/5460e745gw1f3yu21kpnqj20f66gukjl.jpg"></p>
-<p>
-	<small> ============== 10小时前</small>
 </p>
 <table>
     <tr>
