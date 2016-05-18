@@ -19,6 +19,30 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3976531082963677" target="freeweibo-mirror">SPAM //@不沉默的大多数:雷洋家人的理性维权 依法维权…</a>
+</h2>
+<p>SPAM //@不沉默的大多数:雷洋家人的理性维权 依法维权，已经脱离了医闹法闹上访那种传统做法，是一个现代文明社会里平等主体间的法律交锋。[赞]该案是未来社会风向标。</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3976524561102334" target="freeweibo-mirror">SPAM 查個明白</a>
+</h2>
+<p>SPAM 查個明白</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3976523655128924" target="freeweibo-mirror">原来是这样的马英九，全程萌萌哒</a>
+</h2>
+<p>原来是这样的马英九，全程萌萌哒<br><br>RE: 【还有两天就卸任的马英九 突然转型成为段子手】马英九任期倒数两天，他今早在Facebook上传自拍感谢短片，回应网友的一些有趣问题，挺搞笑的，成功转型成为段子手！ http://t.cn/Rqklfsk</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3976523189380761" target="freeweibo-mirror">SPAM 雷洋案，法治不可辜负一个中产妻子的克制。 別以為我…</a>
+</h2>
+<p>SPAM 雷洋案，法治不可辜负一个中产妻子的克制。 別以為我們會淡忘他的死。 http://t.cn/RqkeIUk</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3976504008698673" target="freeweibo-mirror">//@胡上士:转发微博</a>
 </h2>
 <p>//@胡上士:转发微博<br><br>RE: 从在港五毛打出的标语看，估计花生政变了......<br><img src="http://ww2.sinaimg.cn/large/005XJB2mgw1f3zioai97xj30go09e75l.jpg"></p>
@@ -41,7 +65,7 @@
 </h2>
 <p>致老习于何地？？？//@蠡湖泛舟: [哈哈]//@love蓝小屋://@海龙-28://@游明磊47: [哈哈]//@1024专员: [偷笑]//@不作死就不会死-: 太作死了，，//@無畏的小肥羊VI:這麼早就欽定了！[阴险] //@KaKa2onWB:德江水暖有先知！？//@悠一Online:反啦反啦[偷笑]//@花甲孺子牛: 作死还是擦錯鞋？(新國家主席)<br><br>RE: 有愛國團體熱烈歡迎領導人到香港視察<br><img src="http://ww3.sinaimg.cn/large/0061Mxw5jw1f3zh8quhcqj30qo0f0got.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3976494365618013" target="freeweibo-mirror">这起案件的真相，在他们说摄像坏了的时候大家已经懂了。//@关…</a>
 </h2>
@@ -107,35 +131,11 @@
 </h2>
 <p>据媒体报道，南昌供电段南昌西供电车间助理工程师李某、检修车间助工陈某新婚之夜，铺开纸张，工整地抄下党章，给新婚之夜留下美好记忆。这则新闻引起了热议。赞许者有之，批评者不少，戏说者更甚。有网友指... http://t.cn/RqkutFf</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3976477739178268" target="freeweibo-mirror">有愛國團體熱烈歡迎領導人到香港視察</a>
 </h2>
 <p>有愛國團體熱烈歡迎領導人到香港視察<br><img src="http://ww3.sinaimg.cn/large/0061Mxw5jw1f3zh8quhcqj30qo0f0got.jpg"></p>
-<p>
-	<small> ============== 5小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3976471657775118" target="freeweibo-mirror">SPAM 真相出来之后，这些人该怎么演呢？[哈哈][哈哈][…</a>
-</h2>
-<p>SPAM 真相出来之后，这些人该怎么演呢？[哈哈][哈哈][哈哈] //@鱼儿煮酒坊:帮帮忙一下，何等的无助、绝望。[泪]//@十里河菩提姐: @平安昌平 ，看看这个<br><br>RE: 帮帮忙一下……<br><img src="http://ww1.sinaimg.cn/large/006ds1BBgw1f3z5i1ka6vg30c84m842o.gif"></p>
-<p>
-	<small> ============== 5小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3976471040631298" target="freeweibo-mirror">哈哈，不要试图跟欧洲左派小清新讲道理，你会毫不知情的被扣上种…</a>
-</h2>
-<p>哈哈，不要试图跟欧洲左派小清新讲道理，你会毫不知情的被扣上种族主义的帽子//@伯杨_老y: 转发微博<br><br>RE: 图中为伦敦的穆斯林新市长Sadiq Khan的集会上台下拥趸打出很多圣战旗帜和哈里发旗帜(见图1各种极端旗帜出现的时间表)的视频截图。这位穆斯林市长对这些圣战旗帜好像没啥意见。很多人说他温和。他温和个屁。川普集会上曾出现过一个来自前东德的老太太行纳粹礼的照片，被主流媒体广为传播，意思是说“川...全文： http://m.weibo.cn/3477513373/3976237841892119<br><img src="http://ww4.sinaimg.cn/large/cf46a49dgw1f3ypajubnmj20qo1bedn4.jpg"></p>
-<p>
-	<small> ============== 5小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3976469803866941" target="freeweibo-mirror">美国人的政治正确在对待黑人问题上一直都有显现。政治正确在任何…</a>
-</h2>
-<p>美国人的政治正确在对待黑人问题上一直都有显现。政治正确在任何地方都不是好东西，极易误导人。//@盐光水灵Isabel: 我对英国的感官因为这个市长而彻底冷淡下来。英国没想到也算自食其果，记得来美国之前两年，要去欧洲旅游，当时想去欧洲所有的主要国家，但因为申根签证，我那时根本办不下来去英国<br><br>RE: 图中为伦敦的穆斯林新市长Sadiq Khan的集会上台下拥趸打出很多圣战旗帜和哈里发旗帜(见图1各种极端旗帜出现的时间表)的视频截图。这位穆斯林市长对这些圣战旗帜好像没啥意见。很多人说他温和。他温和个屁。川普集会上曾出现过一个来自前东德的老太太行纳粹礼的照片，被主流媒体广为传播，意思是说“川...全文： http://m.weibo.cn/3477513373/3976237841892119<br><img src="http://ww4.sinaimg.cn/large/cf46a49dgw1f3ypajubnmj20qo1bedn4.jpg"></p>
-<p>
-	<small> ============== 5小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3976465072198832" target="freeweibo-mirror">【民众有免于恐惧的自由，从这方面看，文革从未结束】</a>
-</h2>
-<p>【民众有免于恐惧的自由，从这方面看，文革从未结束】<br><img src="http://ww4.sinaimg.cn/large/77101dc1jw1f3zckr7hugj20qo1bfqaj.jpg"></p>
 <p>
 	<small> ============== 5小时前</small>
 </p>
