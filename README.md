@@ -35,7 +35,13 @@
 </h2>
 <p>SPAM 【一段最温馨的高考寄语】送给即将高考的小伙伴们，也让我们回想起那个时光。<br><img src="http://ww1.sinaimg.cn/large/77101dc1jw1f3zath3vt1j20c80gadhl.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3976396864840587" target="freeweibo-mirror">雷洋妻子正式报案：嫖娼是栽赃，雷洋致命处睾丸异常肿大系被打死…</a>
+</h2>
+<p>雷洋妻子正式报案：嫖娼是栽赃，雷洋致命处睾丸异常肿大系被打死 http://t.cn/RqkpkZv</p>
+<p>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3976396600250324" target="freeweibo-mirror">开</a>
 </h2>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3976275091754460" target="freeweibo-mirror">//@明觉其事://@wpcn2000:转发微博</a>
 </h2>
 <p>//@明觉其事://@wpcn2000:转发微博<br><br>RE: 雷洋家属在8日凌晨在中医院太平间、和13日在北京市公安局法医中心尸检前，都看到雷洋身上右额部被重击淤肿、阴部睾丸肿胀、右上臂、腰部、脸部都有严重伤痕，明显系暴力殴打形成 http://t.cn/RqkvTdg</p>
-<p>
-	<small> ============== 11小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3976274487670070" target="freeweibo-mirror">所以要呼吁公开证据。//@智慧创造：其实很简单，警察为了完成…</a>
-</h2>
-<p>所以要呼吁公开证据。//@智慧创造：其实很简单，警察为了完成抓嫖任务罚点小钱。特么遇到了雷洋，他一个国资委干部，没看得起小警察，任死不背黑锅。特么手没收住，干死了。小警汇报大警，动用关系上电视定罪，‘‘自从上了电视，麻麻再也不用担心我办错案了’’。倒霉这次遇到硬茬了。就这么简单！<br><br>RE: “嫖娼”硕士妻报案书：嫖娼是栽赃，雷洋被打死。 http://t.cn/RqkzM7z</p>
 <p>
 	<small> ============== 11小时前</small>
 </p>
