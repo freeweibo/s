@@ -59,13 +59,13 @@
 </h2>
 <p>//@胡上士:转发微博<br><br>RE: 从在港五毛打出的标语看，估计花生政变了......<br><img src="http://ww2.sinaimg.cn/large/005XJB2mgw1f3zioai97xj30go09e75l.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3976503366674711" target="freeweibo-mirror">SPAM //@大鸟919: 删帖者，请你想想，那一天你自己…</a>
 </h2>
 <p>SPAM //@大鸟919: 删帖者，请你想想，那一天你自己、你的亲人朋友也碰到发帖求助被删，你做何感想呢？转发无罪有功！@财经网 @头条新闻 @媒体人欧菲 @南方人物周刊 @福建第一眼 @网易新闻客户端 @联合国<br><br>RE: 他们若可以删雷洋妻子的刑事报案书，也可以删你我的。因此，我必须转。<br><img src="http://ww4.sinaimg.cn/large/dde1047djw1f3z6pgg3orj20ff6kjkjl.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3976503211384748" target="freeweibo-mirror">SPAM 必须的。</a>
 </h2>
@@ -113,13 +113,13 @@
 </h2>
 <p>这不科学，本来不该有人来查的，领导表扬一下就可以了@姚醒龙:从这份报案书不难看出，昌平警方的侦察能力“举世无双”，但反侦察能力却实在一般。甚至公众会怀疑他们的智商，他们或许也后悔在做这一切之前沒请个专家“谋划指点”。还是那句古话实用：“要想人不知，除非已莫为。”<br><br>RE: 他们若可以删雷洋妻子的刑事报案书，也可以删你我的。因此，我必须转。<br><img src="http://ww4.sinaimg.cn/large/dde1047djw1f3z6pgg3orj20ff6kjkjl.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3976489193564522" target="freeweibo-mirror">回复@辰安巳逸:警方可以到电视台上公开辩解，人家受害者为什么…</a>
 </h2>
 <p>回复@辰安巳逸:警方可以到电视台上公开辩解，人家受害者为什么不可以在网络上公开申明。只许州官放火，不许百姓点灯？ //@辰安巳逸:又在玩舆论政治，让法律的归于法律，让雷洋在法治和正义中安息而不是在舆论喧嚣中招魂。在美国，律师也敢这么玩吗？<br><br>RE: 【“雷洋案”代表律师陈有西：二十多份证据已经固定】@新京报 ：5月17日上午9时，雷洋家属向北京市检察院递交了《关于要求北京市检察院立案侦查雷洋被害案的刑事报案书》，就该案多处疑点提出质疑。 当天下午，陈有西就雷洋案关切问题作出回应：我们一共六个律师在星期天开始进行全面的调查取证，现在...全文： http://m.weibo.cn/1231759973/3976458453595652<br><img src="http://ww3.sinaimg.cn/large/496b2a65jw1f3zf21f2ldj20ag0aqjsh.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3976486442513914" target="freeweibo-mirror">SPAM 很全的健身教程，有你需要的</a>
 </h2>
