@@ -113,7 +113,7 @@
 </h2>
 <p>SPAM //@殷锋de一些事一些情:特权<br><br>RE: 真大支嘢<br><img src="http://ww4.sinaimg.cn/large/997acbc3jw1f3zv3r82jbj20p00quq74.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3976609562575050" target="freeweibo-mirror">其实这与儒家的虚伪一脉相承，所谓的24孝也都是虚假的表忠式的…</a>
 </h2>
