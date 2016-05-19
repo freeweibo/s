@@ -77,7 +77,7 @@
 </h2>
 <p>SPAM //@蒋方舟:……//@黄章晋ster: 足疗女是有心人。<br><br>RE: 媒体你们现在什么素质，黑白都分不清楚[怒]<br><img src="http://ww3.sinaimg.cn/large/623e1d29jw1f40mmqhnu2j20gi0m8n01.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3976870720888679" target="freeweibo-mirror">//@天下归民://@你想干什么dong鲁光:根基不牢，地动…</a>
 </h2>
@@ -107,7 +107,7 @@
 </h2>
 <p>他们投资什么？清真寺，还是瓦哈比训练中心？还是阿拉伯语学校？沙特有什么先进技术？管理经验是伊斯兰教法，你要不要？[拜拜]</p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3976849039851441" target="freeweibo-mirror">从江苏到湖北，这又到了河北，风起云涌了！这是啥子中国节奏？！…</a>
 </h2>
@@ -125,13 +125,13 @@
 </h2>
 <p>SPAM 这叫打太极！</p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3976846360041972" target="freeweibo-mirror">希望我们也有选择的权利 //@迟夙生律师:[赞] //@只为…</a>
 </h2>
 <p>希望我们也有选择的权利 //@迟夙生律师:[赞] //@只为苍生呼唤: //@王周生:凭对立两派微笑交接班，就该点赞。<br><br>RE: 希望有一天所有炎黄子孙都能和台湾人民一样，享有自由、民主与法治的多元生活方式。我们深信，这样的梦想并不遥远，因为这些价值在台湾都已经实现，不是西方人的权利，台湾经验应可作为中国大陆未来发展的借镜。---马英九【感】感谢马英九、蔡英文们，是他们为华人走出了让华人倍感有尊严的大道。<br><img src="http://ww2.sinaimg.cn/large/d1974d95jw1f3zt24myoej20ht0ahq4j.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3976843323310115" target="freeweibo-mirror">想问最高领导：这时进步，还是退步？</a>
 </h2>
