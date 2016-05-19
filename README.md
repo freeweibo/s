@@ -23,7 +23,7 @@
 </h2>
 <p>SPAM 能不够。。//@侯虹斌:相声艺术家<br><br>RE: 17号的新讲话，报菜名已经成保留节目了。<br><img src="http://ww3.sinaimg.cn/large/005NTcI0gw1f40la85vzbj30qo1betkl.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3976860872991872" target="freeweibo-mirror">他们投资什么？清真寺，还是瓦哈比训练中心？还是阿拉伯语学校？…</a>
 </h2>
@@ -34,6 +34,12 @@
 	<a href="https://freeweibo.com/weibo/3976849039851441" target="freeweibo-mirror">从江苏到湖北，这又到了河北，风起云涌了！这是啥子中国节奏？！…</a>
 </h2>
 <p>从江苏到湖北，这又到了河北，风起云涌了！这是啥子中国节奏？！[吃惊][吃惊][吃惊]<br><br>RE: 河北家长打条幅：喊着京津冀一体化的口号，却对河北考生如此残忍～～<br><img src="http://ww3.sinaimg.cn/large/5f6520eajw1f40ntnjyonj20m80go411.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3976848511734145" target="freeweibo-mirror">河北家长打条幅：喊着京津冀一体化的口号，却对河北考生如此残忍…</a>
+</h2>
+<p>河北家长打条幅：喊着京津冀一体化的口号，却对河北考生如此残忍～～<br><img src="http://ww3.sinaimg.cn/large/5f6520eajw1f40ntnjyonj20m80go411.jpg"></p>
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
@@ -71,7 +77,7 @@
 </h2>
 <p>//@北京大众2015://@茶人悟茶:人人都可能是雨田洋。//@阿忆: 雷洋也曾活得好好的，你可能明天就死。 //@浮生若梦MQ: 操，最反感说每个人都可能是下一个雷洋，尼玛的你们不是活得好好吗，名利双收。 //@阿忆：这就是官方的态度<br><br>RE: 央视采访足浴女可以，律师发布调查进程不可以；五毛党在微博下谩骂可以，网友关心转发不可以；涉事民警接受采访是澄清，代理律师接受采访就是炒作。重大公共事件基本上都是一个套路。当代中国最大矛盾就是日益增长的公民意识与传统维稳的宣传思路！<br><img src="http://ww2.sinaimg.cn/large/5ce92b4dgw1f40dxumnvhj20kl0zj0wo.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3976830921423697" target="freeweibo-mirror">[弱][弱][弱]//@上海老顽童吴德余:有过之无不及！ /…</a>
 </h2>
@@ -101,7 +107,7 @@
 </h2>
 <p>SPAM @陈有西 新浪微博被限发，不能及时发布。现在只能我们来代发了，转起来吧！陈有西对市检将雷洋案下交督办的表态！<br><img src="http://ww3.sinaimg.cn/large/60b0044bgw1f40k5cc91jj20v91jlgv2.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3976816580499243" target="freeweibo-mirror">#来自银河系的我#事件似乎正在向有利於真相大白的方向發展！「…</a>
 </h2>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3976785391706868" target="freeweibo-mirror">黑暗极恶//@于建嵘:无法表达我的感受！</a>
 </h2>
 <p>黑暗极恶//@于建嵘:无法表达我的感受！<br><br>RE: 社会主义好！社会主义优越性充分体现！习主席万岁！万万岁！共产党万岁万万岁！这几个老百姓都感谢政府感谢党感谢的话都不会说了！ http://t.cn/RqFbSy6 .</p>
-<p>
-	<small> ============== 8小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3976780841428135" target="freeweibo-mirror">SPAM //@北京张胖子:长此以往，必然会出现//@真理阳…</a>
-</h2>
-<p>SPAM //@北京张胖子:长此以往，必然会出现//@真理阳光VVV: 我最担心会出现: "我们民族的我们管，我们少数民族的我们管"的这种情况，从某些邪教徒动不动的"少民"口吻来看，他们有这种野心和企图。//@现充小圆:[药丸]//@真理阳光VVV: 民宗委，都堂然皇之地标榜自己为"伊宗委"了<br><br>RE: 银川市兴庆区民宗局LOGO，再一次证明了民委和宗教局是反动组织，我们必须和他斗争到底！<br><img src="http://ww4.sinaimg.cn/large/685a65d9jw1f402qa1ge7j20qo1bfaeh.jpg"></p>
 <p>
 	<small> ============== 8小时前</small>
 </p>
