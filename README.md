@@ -29,7 +29,7 @@
 </h2>
 <p>抄党章？out了，老土了。俺几十年前就干过此等事：抄语录，抄老三篇。<br><br>RE: 习大大说作为社会主义接班人，人民的好公仆，就得抄写党章，认真抄写，反复抄写[笑cry][笑cry][笑cry][笑cry][笑cry]新婚之夜也得抄写[笑cry][笑cry][笑cry][笑cry] http://t.cn/R2WxClD<br><img src="http://ww4.sinaimg.cn/large/c2bec9ccgw1f3zu0x2xoej20qo0zkqdk.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3976785391706868" target="freeweibo-mirror">黑暗极恶//@于建嵘:无法表达我的感受！</a>
 </h2>
@@ -125,7 +125,7 @@
 </h2>
 <p>SPAM [爱你][爱你]</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3976629644686436" target="freeweibo-mirror">//@唐巴马:艳艳好 //@红艳艳A:巴马晚上好哦[握手][…</a>
 </h2>
