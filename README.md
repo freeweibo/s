@@ -89,7 +89,7 @@
 </h2>
 <p>真大支嘢<br><img src="http://ww4.sinaimg.cn/large/997acbc3jw1f3zv3r82jbj20p00quq74.jpg"></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3976597046192799" target="freeweibo-mirror">世纪之争，十字路口，何去何从？曹先生2010年一篇长文，值得…</a>
 </h2>
