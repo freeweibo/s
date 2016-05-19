@@ -43,6 +43,12 @@
 <p>
 	<small> ============== 5小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3976894875034866" target="freeweibo-mirror">#警方通报#【沙井客运站内1楼1名男子持刀砍人】@平安宝安：…</a>
+</h2>
+<p>#警方通报#【沙井客运站内1楼1名男子持刀砍人】@平安宝安：5月19日13时47分，110接报在沙井客运站内1楼1名男子持刀砍人，宝安分局指挥中心立即指令上南派出所出警。民警到达现场后将嫌疑人覃某某（男，38岁，广西人）抓获，并通知120将7名伤者（5男2女）送往医院治疗。目前案件仍在调查中。<br><img src="http://ww2.sinaimg.cn/large/70f4e244gw1f40t61n81ng208w06o1kx.gif"></p>
+<p>
+	<small> ============== 5小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3976892875176857" target="freeweibo-mirror">SPAM 绝不护短</a>
 </h2>
 <p>SPAM 绝不护短<br><br>RE: 媒体你们现在什么素质，黑白都分不清楚[怒]<br><img src="http://ww3.sinaimg.cn/large/623e1d29jw1f40mmqhnu2j20gi0m8n01.jpg"></p>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3976837962668630" target="freeweibo-mirror">媒体你们现在什么素质，黑白都分不清楚[怒]</a>
 </h2>
 <p>媒体你们现在什么素质，黑白都分不清楚[怒]<br><img src="http://ww3.sinaimg.cn/large/623e1d29jw1f40mmqhnu2j20gi0m8n01.jpg"></p>
-<p>
-	<small> ============== 9小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3976832699194892" target="freeweibo-mirror">//@北京大众2015://@茶人悟茶:人人都可能是雨田洋。…</a>
-</h2>
-<p>//@北京大众2015://@茶人悟茶:人人都可能是雨田洋。//@阿忆: 雷洋也曾活得好好的，你可能明天就死。 //@浮生若梦MQ: 操，最反感说每个人都可能是下一个雷洋，尼玛的你们不是活得好好吗，名利双收。 //@阿忆：这就是官方的态度<br><br>RE: 央视采访足浴女可以，律师发布调查进程不可以；五毛党在微博下谩骂可以，网友关心转发不可以；涉事民警接受采访是澄清，代理律师接受采访就是炒作。重大公共事件基本上都是一个套路。当代中国最大矛盾就是日益增长的公民意识与传统维稳的宣传思路！<br><img src="http://ww2.sinaimg.cn/large/5ce92b4dgw1f40dxumnvhj20kl0zj0wo.jpg"></p>
 <p>
 	<small> ============== 9小时前</small>
 </p>
