@@ -59,7 +59,7 @@
 </h2>
 <p>【坐等“真相”？】因为雷案，杨金柱律师11个微信群全部封杀。陈有西律师被限制转发和屏蔽阅读。难得只能坐等官方发布“真相”？<br><img src="http://ww1.sinaimg.cn/large/6a80bfcdgw1f40eqdx4y0j20qo0zkdiu.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3976761723208284" target="freeweibo-mirror">//@吴澧-猪草园://@黎宛冰://@周铁东本人://@忧…</a>
 </h2>
