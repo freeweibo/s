@@ -19,11 +19,23 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3976800340005825" target="freeweibo-mirror">//@一大哄：剧务水平差！这么一个长镜头，多处道具明显错误，…</a>
+</h2>
+<p>//@一大哄：剧务水平差！这么一个长镜头，多处道具明显错误，明明要表现解放前万恶的、吃人的旧社会，却在镜头中出现了今天的家用电器…不过演员表演很到位，比影帝还真！<br><br>RE: 社会主义好！社会主义优越性充分体现！习主席万岁！万万岁！共产党万岁万万岁！这几个老百姓都感谢政府感谢党感谢的话都不会说了！ http://t.cn/RqFbSy6 .</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3976797169606335" target="freeweibo-mirror">抄党章？out了，老土了。俺几十年前就干过此等事：抄语录，抄…</a>
 </h2>
 <p>抄党章？out了，老土了。俺几十年前就干过此等事：抄语录，抄老三篇。<br><br>RE: 习大大说作为社会主义接班人，人民的好公仆，就得抄写党章，认真抄写，反复抄写[笑cry][笑cry][笑cry][笑cry][笑cry]新婚之夜也得抄写[笑cry][笑cry][笑cry][笑cry] http://t.cn/R2WxClD<br><img src="http://ww4.sinaimg.cn/large/c2bec9ccgw1f3zu0x2xoej20qo0zkqdk.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3976785391706868" target="freeweibo-mirror">黑暗极恶//@于建嵘:无法表达我的感受！</a>
+</h2>
+<p>黑暗极恶//@于建嵘:无法表达我的感受！<br><br>RE: 社会主义好！社会主义优越性充分体现！习主席万岁！万万岁！共产党万岁万万岁！这几个老百姓都感谢政府感谢党感谢的话都不会说了！ http://t.cn/RqFbSy6 .</p>
+<p>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3976780841428135" target="freeweibo-mirror">SPAM //@北京张胖子:长此以往，必然会出现//@真理阳…</a>
 </h2>
@@ -124,18 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3976620761322373" target="freeweibo-mirror">//@湖嗨散人:其实这与儒家的虚伪一脉相承，所谓的24孝也都…</a>
 </h2>
 <p>//@湖嗨散人:其实这与儒家的虚伪一脉相承，所谓的24孝也都是虚假的表忠式的无耻，因为那会的举孝廉，孝就是政治资本。//@左春和: [good] //@石言内:衰竭中的陀螺。<br><br>RE: 抄写党章之事是一种“新常态”中的表态焦虑，他们复制了祖辈的投机形式，但抽空了信仰的立场宣誓成为了十足的反讽。这是政治末梢神经的真实状况，其形式化创新的萎缩象征生命力的枯竭，彻底进入政治摆拍时代已经预示了它的未来。娱乐化效果的表忠除了增加些笑料之外，它还像一面镜子，陡然间映出了一个...全文： http://m.weibo.cn/1234732574/3976600942794695</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3976620530404163" target="freeweibo-mirror">//@公民林静在维权5: //@听古笑今://@刀锋论78:…</a>
-</h2>
-<p>//@公民林静在维权5: //@听古笑今://@刀锋论78://@风尘仆仆撑山巅://@何时天明20://@胡上士:转发微博<br><br>RE: 世纪之争，十字路口，何去何从？曹先生2010年一篇长文，值得一读！[思考]<br><img src="http://ww3.sinaimg.cn/large/006dpeZNgw1f3zuxybkd3j30qo1a7jze.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3976619532069235" target="freeweibo-mirror">第二个简直了[doge]//@小颖学姐a: 个个都好高能！[…</a>
-</h2>
-<p>第二个简直了[doge]//@小颖学姐a: 个个都好高能！[拜拜]</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
