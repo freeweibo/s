@@ -65,7 +65,7 @@
 </h2>
 <p>SPAM //@北京张胖子:长此以往，必然会出现//@真理阳光VVV: 我最担心会出现: "我们民族的我们管，我们少数民族的我们管"的这种情况，从某些邪教徒动不动的"少民"口吻来看，他们有这种野心和企图。//@现充小圆:[药丸]//@真理阳光VVV: 民宗委，都堂然皇之地标榜自己为"伊宗委"了<br><br>RE: 银川市兴庆区民宗局LOGO，再一次证明了民委和宗教局是反动组织，我们必须和他斗争到底！<br><img src="http://ww4.sinaimg.cn/large/685a65d9jw1f402qa1ge7j20qo1bfaeh.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3976770631786656" target="freeweibo-mirror">SPAM 政教合一 //@梅新育:[围观]</a>
 </h2>
@@ -84,6 +84,12 @@
 <p>【坐等“真相”？】因为雷案，杨金柱律师11个微信群全部封杀。陈有西律师被限制转发和屏蔽阅读。难得只能坐等官方发布“真相”？<br><img src="http://ww1.sinaimg.cn/large/6a80bfcdgw1f40eqdx4y0j20qo0zkdiu.jpg"></p>
 <p>
 	<small> ============== 6小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3976762188776459" target="freeweibo-mirror">央视采访足浴女可以，律师发布调查进程不可以；五毛党在微博下谩…</a>
+</h2>
+<p>央视采访足浴女可以，律师发布调查进程不可以；五毛党在微博下谩骂可以，网友关心转发不可以；涉事民警接受采访是澄清，代理律师接受采访就是炒作。重大公共事件基本上都是一个套路。当代中国最大矛盾就是日益增长的公民意识与传统维稳的宣传思路！<br><img src="http://ww2.sinaimg.cn/large/5ce92b4dgw1f40dxumnvhj20kl0zj0wo.jpg"></p>
+<p>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3976761723208284" target="freeweibo-mirror">//@吴澧-猪草园://@黎宛冰://@周铁东本人://@忧…</a>
 </h2>
@@ -119,7 +125,7 @@
 </h2>
 <p>SPAM 广州蛋糕哪里好吃哪里打折哪里有特色[疑问] 来看网友_vivi3m 的★疯狂蛋糕kong推介★提拉米苏、蓝莓芝士、还有超浓郁的朱古力蛋糕~最搞笑是那件笑面芝士挞[馋嘴] vivi3m，你真不愧是蛋糕控！！！<br><img src="http://ww1.sinaimg.cn/large/6b2b208ejw1f40clvyn7oj20c80ge0v6.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3976748314209989" target="freeweibo-mirror">SPAM [兔子]【测一测：你身旁的人有多喜欢你？】你有没有…</a>
 </h2>
@@ -132,12 +138,6 @@
 <p>SPAM #情感树洞# 晚上好 树洞 最近特别惆怅，和男朋友在一起两年之久 感情一直挺不错 其实主要还是我爱他很多 他是第一次谈恋爱 不懂表达也不浪漫 这些我也理解 每当我想要什么想去到哪里 他总是跟我讲 以后再去 我们是异地恋 他从来不会给我打电话 我们聊天也不多 他很爱玩游戏，我每次跟他讲让他少玩一会...全文： http://m.weibo.cn/2154013651/3976719113727323<br><img src="http://ww1.sinaimg.cn/large/8063a3d3gw1f3zcba8rh9j20ku112t95.jpg"></p>
 <p>
 	<small> ============== 10小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3976664734196191" target="freeweibo-mirror">银川市兴庆区民宗局LOGO，再一次证明了民委和宗教局是反动组…</a>
-</h2>
-<p>银川市兴庆区民宗局LOGO，再一次证明了民委和宗教局是反动组织，我们必须和他斗争到底！<br><img src="http://ww4.sinaimg.cn/large/685a65d9jw1f402qa1ge7j20qo1bfaeh.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
 </p>
 <table>
     <tr>
