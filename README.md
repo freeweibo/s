@@ -23,7 +23,7 @@
 </h2>
 <p>SPAM 能不够。。//@侯虹斌:相声艺术家<br><br>RE: 17号的新讲话，报菜名已经成保留节目了。<br><img src="http://ww3.sinaimg.cn/large/005NTcI0gw1f40la85vzbj30qo1betkl.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3976860872991872" target="freeweibo-mirror">他们投资什么？清真寺，还是瓦哈比训练中心？还是阿拉伯语学校？…</a>
 </h2>
@@ -65,7 +65,7 @@
 </h2>
 <p>//@北京大众2015://@茶人悟茶:人人都可能是雨田洋。//@阿忆: 雷洋也曾活得好好的，你可能明天就死。 //@浮生若梦MQ: 操，最反感说每个人都可能是下一个雷洋，尼玛的你们不是活得好好吗，名利双收。 //@阿忆：这就是官方的态度<br><br>RE: 央视采访足浴女可以，律师发布调查进程不可以；五毛党在微博下谩骂可以，网友关心转发不可以；涉事民警接受采访是澄清，代理律师接受采访就是炒作。重大公共事件基本上都是一个套路。当代中国最大矛盾就是日益增长的公民意识与传统维稳的宣传思路！<br><img src="http://ww2.sinaimg.cn/large/5ce92b4dgw1f40dxumnvhj20kl0zj0wo.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3976830921423697" target="freeweibo-mirror">[弱][弱][弱]//@上海老顽童吴德余:有过之无不及！ /…</a>
 </h2>
@@ -85,17 +85,23 @@
 <p>
 	<small> ============== 4小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3976826449756122" target="freeweibo-mirror">17号的新讲话，报菜名已经成保留节目了。</a>
+</h2>
+<p>17号的新讲话，报菜名已经成保留节目了。<br><img src="http://ww3.sinaimg.cn/large/005NTcI0gw1f40la85vzbj30qo1betkl.jpg"></p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3976816672578436" target="freeweibo-mirror">SPAM @陈有西 新浪微博被限发，不能及时发布。现在只能我…</a>
 </h2>
 <p>SPAM @陈有西 新浪微博被限发，不能及时发布。现在只能我们来代发了，转起来吧！陈有西对市检将雷洋案下交督办的表态！<br><img src="http://ww3.sinaimg.cn/large/60b0044bgw1f40k5cc91jj20v91jlgv2.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3976816580499243" target="freeweibo-mirror">#来自银河系的我#事件似乎正在向有利於真相大白的方向發展！「…</a>
 </h2>
 <p>#来自银河系的我#事件似乎正在向有利於真相大白的方向發展！「相關人員接受調查」，「堅決依紀依法處理，絕不護短」。但為什麼要不斷刪帖子呢？<br><img src="http://ww1.sinaimg.cn/large/5937c055jw1f40k4uzu9tj20de0eamz3.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3976814835896168" target="freeweibo-mirror">不是需外部认同，而是自己内部的事情做好了，对外部强硬时就会少…</a>
 </h2>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3976770631786656" target="freeweibo-mirror">SPAM 政教合一 //@梅新育:[围观]</a>
 </h2>
 <p>SPAM 政教合一 //@梅新育:[围观]<br><br>RE: 银川市兴庆区民宗局LOGO，再一次证明了民委和宗教局是反动组织，我们必须和他斗争到底！<br><img src="http://ww4.sinaimg.cn/large/685a65d9jw1f402qa1ge7j20qo1bfaeh.jpg"></p>
-<p>
-	<small> ============== 8小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3976770169949451" target="freeweibo-mirror">五个便衣真的那么重要？！</a>
-</h2>
-<p>五个便衣真的那么重要？！</p>
 <p>
 	<small> ============== 8小时前</small>
 </p>
