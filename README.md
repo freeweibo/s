@@ -19,6 +19,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3976846360041972" target="freeweibo-mirror">希望我们也有选择的权利 //@迟夙生律师:[赞] //@只为…</a>
+</h2>
+<p>希望我们也有选择的权利 //@迟夙生律师:[赞] //@只为苍生呼唤: //@王周生:凭对立两派微笑交接班，就该点赞。<br><br>RE: 希望有一天所有炎黄子孙都能和台湾人民一样，享有自由、民主与法治的多元生活方式。我们深信，这样的梦想并不遥远，因为这些价值在台湾都已经实现，不是西方人的权利，台湾经验应可作为中国大陆未来发展的借镜。---马英九【感】感谢马英九、蔡英文们，是他们为华人走出了让华人倍感有尊严的大道。<br><img src="http://ww2.sinaimg.cn/large/d1974d95jw1f3zt24myoej20ht0ahq4j.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3976842459540284" target="freeweibo-mirror">SPAM 哦，欺软怕硬啊！即使人肉出来你们敢去打么？大概也只…</a>
 </h2>
 <p>SPAM 哦，欺软怕硬啊！即使人肉出来你们敢去打么？大概也只能恨恨滴干嚎一句：民主后杀全家！[哈哈]//@斯坦福之星: 主人打不了，还不让打打狗？//@珠光绣:唉，人肉出来做啥？那么多有名有姓的大屠夫不用人肉，你们又怎样了？[挖鼻]</p>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3976752537704487" target="freeweibo-mirror">SPAM 郭于华//@夏循祥_子游肥爹: //@英格兰小札:…</a>
 </h2>
 <p>SPAM 郭于华//@夏循祥_子游肥爹: //@英格兰小札: Repost<br><br>RE: 勿评，看完转就好。<br><img src="http://ww4.sinaimg.cn/large/7c0e9549gw1f3zuu4uihnj20qo19iwsb.jpg"></p>
-<p>
-	<small> ============== 8小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3976750587169682" target="freeweibo-mirror">SPAM 广州蛋糕哪里好吃哪里打折哪里有特色[疑问] 来看网…</a>
-</h2>
-<p>SPAM 广州蛋糕哪里好吃哪里打折哪里有特色[疑问] 来看网友_vivi3m 的★疯狂蛋糕kong推介★提拉米苏、蓝莓芝士、还有超浓郁的朱古力蛋糕~最搞笑是那件笑面芝士挞[馋嘴] vivi3m，你真不愧是蛋糕控！！！<br><img src="http://ww1.sinaimg.cn/large/6b2b208ejw1f40clvyn7oj20c80ge0v6.jpg"></p>
 <p>
 	<small> ============== 8小时前</small>
 </p>
