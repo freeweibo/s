@@ -35,7 +35,7 @@
 </h2>
 <p>SPAM 喜欢皮蛋的宝宝可以看这里[doge]<br><img src="http://ww2.sinaimg.cn/large/005zgTSzgw1f410htn4xcj30ku112tce.jpg"></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3976955260331587" target="freeweibo-mirror">//@尹鸿: 看来承认有短了……</a>
 </h2>
@@ -65,7 +65,7 @@
 </h2>
 <p>有网友认为，“毕节儿童集体自杀会写下遗书”与“雷洋嫖娼会带套套打飞机”一样，极不科学。而我以为，这一切太正常了。在强权政治压倒一切的地方，科学常识与科学结论也是会“被自杀”、“被强奸”的。因为人的良心都死了，也就没有什么常识不能颠覆，而法官的良心死了，强盗的谎言也是呈堂证供。<br><img src="http://ww3.sinaimg.cn/large/006scI7Igw1f40xn8ekfkj30fw0l3wia.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3976925699771839" target="freeweibo-mirror">经警方进一步核实，嫌疑人覃某某（男，38岁，广西人），有精神…</a>
 </h2>
