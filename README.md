@@ -23,7 +23,7 @@
 </h2>
 <p>SPAM //@北京张胖子:长此以往，必然会出现//@真理阳光VVV: 我最担心会出现: "我们民族的我们管，我们少数民族的我们管"的这种情况，从某些邪教徒动不动的"少民"口吻来看，他们有这种野心和企图。//@现充小圆:[药丸]//@真理阳光VVV: 民宗委，都堂然皇之地标榜自己为"伊宗委"了<br><br>RE: 银川市兴庆区民宗局LOGO，再一次证明了民委和宗教局是反动组织，我们必须和他斗争到底！<br><img src="http://ww4.sinaimg.cn/large/685a65d9jw1f402qa1ge7j20qo1bfaeh.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3976770631786656" target="freeweibo-mirror">SPAM 政教合一 //@梅新育:[围观]</a>
 </h2>
@@ -59,7 +59,7 @@
 </h2>
 <p>SPAM 广州蛋糕哪里好吃哪里打折哪里有特色[疑问] 来看网友_vivi3m 的★疯狂蛋糕kong推介★提拉米苏、蓝莓芝士、还有超浓郁的朱古力蛋糕~最搞笑是那件笑面芝士挞[馋嘴] vivi3m，你真不愧是蛋糕控！！！<br><img src="http://ww1.sinaimg.cn/large/6b2b208ejw1f40clvyn7oj20c80ge0v6.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3976748314209989" target="freeweibo-mirror">SPAM [兔子]【测一测：你身旁的人有多喜欢你？】你有没有…</a>
 </h2>
@@ -73,11 +73,17 @@
 <p>
 	<small> ============== 6小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3976664734196191" target="freeweibo-mirror">银川市兴庆区民宗局LOGO，再一次证明了民委和宗教局是反动组…</a>
+</h2>
+<p>银川市兴庆区民宗局LOGO，再一次证明了民委和宗教局是反动组织，我们必须和他斗争到底！<br><img src="http://ww4.sinaimg.cn/large/685a65d9jw1f402qa1ge7j20qo1bfaeh.jpg"></p>
+<p>
+	<small> ============== 9小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3976660225186641" target="freeweibo-mirror">SPAM 【Delphin宝宝游泳可叠加手臂浮圈，EUR 2…</a>
 </h2>
 <p>SPAM 【Delphin宝宝游泳可叠加手臂浮圈，EUR 26,90】适合1岁以上儿童，德国孩子学习游泳必备！热成型柔软的聚乙烯材料制成，一套6片，左右双臂各三片。可以根据学习游泳的进度逐渐减少片数，直到完全掌握不用为止。http://t.cn/R24TiJL<br><img src="http://ww2.sinaimg.cn/large/74b5d787gw1f3zlh4pb8oj20i80pdq7y.jpg"></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3976654210197015" target="freeweibo-mirror">SPAM [爱你][爱你]</a>
 </h2>
@@ -89,7 +95,7 @@
 </h2>
 <p>//@唐巴马:艳艳好 //@红艳艳A:巴马晚上好哦[握手][嘻嘻] //@唐巴马:人民的呐喊<br><br>RE: 56朵花，绽开怒放，像沸腾的山泉，扑面而来[鲜花][鲜花][鲜花] http://t.cn/RqEILZO</p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3976624695817890" target="freeweibo-mirror">SPAM 明天早上10点，不见不散！[爱你][爱你][爱你]</a>
 </h2>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3976609562575050" target="freeweibo-mirror">其实这与儒家的虚伪一脉相承，所谓的24孝也都是虚假的表忠式的…</a>
 </h2>
 <p>其实这与儒家的虚伪一脉相承，所谓的24孝也都是虚假的表忠式的无耻，因为那会的举孝廉，孝就是政治资本。//@左春和: [good] //@石言内:衰竭中的陀螺。<br><br>RE: 抄写党章之事是一种“新常态”中的表态焦虑，他们复制了祖辈的投机形式，但抽空了信仰的立场宣誓成为了十足的反讽。这是政治末梢神经的真实状况，其形式化创新的萎缩象征生命力的枯竭，彻底进入政治摆拍时代已经预示了它的未来。娱乐化效果的表忠除了增加些笑料之外，它还像一面镜子，陡然间映出了一个...全文： http://m.weibo.cn/1234732574/3976600942794695</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3976609364493531" target="freeweibo-mirror">SPAM //@左春和: [good] //@石言内:衰竭中…</a>
-</h2>
-<p>SPAM //@左春和: [good] //@石言内:衰竭中的陀螺。<br><br>RE: 抄写党章之事是一种“新常态”中的表态焦虑，他们复制了祖辈的投机形式，但抽空了信仰的立场宣誓成为了十足的反讽。这是政治末梢神经的真实状况，其形式化创新的萎缩象征生命力的枯竭，彻底进入政治摆拍时代已经预示了它的未来。娱乐化效果的表忠除了增加些笑料之外，它还像一面镜子，陡然间映出了一个...全文： http://m.weibo.cn/1234732574/3976600942794695</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
