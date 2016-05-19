@@ -101,7 +101,7 @@
 </h2>
 <p>本报社要搞个大新闻[笑cry][笑cry][笑cry]<br><img src="http://ww2.sinaimg.cn/large/913f6f56gw1f40q2tpiadj20ld0hsaeg.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3976865469072719" target="freeweibo-mirror">#名博曝光# </a>
 </h2>
