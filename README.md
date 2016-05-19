@@ -107,7 +107,7 @@
 </h2>
 <p>//@唐巴马:艳艳好 //@红艳艳A:巴马晚上好哦[握手][嘻嘻] //@唐巴马:人民的呐喊<br><br>RE: 56朵花，绽开怒放，像沸腾的山泉，扑面而来[鲜花][鲜花][鲜花] http://t.cn/RqEILZO</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3976624695817890" target="freeweibo-mirror">SPAM 明天早上10点，不见不散！[爱你][爱你][爱你]</a>
 </h2>
