@@ -25,9 +25,21 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3976843323310115" target="freeweibo-mirror">想问最高领导：这时进步，还是退步？</a>
+</h2>
+<p>想问最高领导：这时进步，还是退步？<br><br>RE: 希望有一天所有炎黄子孙都能和台湾人民一样，享有自由、民主与法治的多元生活方式。我们深信，这样的梦想并不遥远，因为这些价值在台湾都已经实现，不是西方人的权利，台湾经验应可作为中国大陆未来发展的借镜。---马英九【感】感谢马英九、蔡英文们，是他们为华人走出了让华人倍感有尊严的大道。<br><img src="http://ww2.sinaimg.cn/large/d1974d95jw1f3zt24myoej20ht0ahq4j.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3976842459540284" target="freeweibo-mirror">SPAM 哦，欺软怕硬啊！即使人肉出来你们敢去打么？大概也只…</a>
 </h2>
 <p>SPAM 哦，欺软怕硬啊！即使人肉出来你们敢去打么？大概也只能恨恨滴干嚎一句：民主后杀全家！[哈哈]//@斯坦福之星: 主人打不了，还不让打打狗？//@珠光绣:唉，人肉出来做啥？那么多有名有姓的大屠夫不用人肉，你们又怎样了？[挖鼻]</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3976841880485716" target="freeweibo-mirror">中国的未来会更美好。//@迟夙生律师: [赞] //@只为苍…</a>
+</h2>
+<p>中国的未来会更美好。//@迟夙生律师: [赞] //@只为苍生呼唤: //@王周生:凭对立两派微笑交接班，就该点赞。<br><br>RE: 希望有一天所有炎黄子孙都能和台湾人民一样，享有自由、民主与法治的多元生活方式。我们深信，这样的梦想并不遥远，因为这些价值在台湾都已经实现，不是西方人的权利，台湾经验应可作为中国大陆未来发展的借镜。---马英九【感】感谢马英九、蔡英文们，是他们为华人走出了让华人倍感有尊严的大道。<br><img src="http://ww2.sinaimg.cn/large/d1974d95jw1f3zt24myoej20ht0ahq4j.jpg"></p>
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
@@ -58,6 +70,12 @@
 	<a href="https://freeweibo.com/weibo/3976816580499243" target="freeweibo-mirror">#来自银河系的我#事件似乎正在向有利於真相大白的方向發展！「…</a>
 </h2>
 <p>#来自银河系的我#事件似乎正在向有利於真相大白的方向發展！「相關人員接受調查」，「堅決依紀依法處理，絕不護短」。但為什麼要不斷刪帖子呢？<br><img src="http://ww1.sinaimg.cn/large/5937c055jw1f40k4uzu9tj20de0eamz3.jpg"></p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3976814835896168" target="freeweibo-mirror">不是需外部认同，而是自己内部的事情做好了，对外部强硬时就会少…</a>
+</h2>
+<p>不是需外部认同，而是自己内部的事情做好了，对外部强硬时就会少很多掣肘，得到更多的支持。//@cyh116:【港台都出现离心，相当原因是内地社会治理问题层出不穷，缺乏足够说服力和吸引力】错！中国作的再好，也不可能赢得西化派的欢心。俄罗斯就是榜样。</p>
 <p>
 	<small> ============== 4小时前</small>
 </p><h2>
@@ -120,24 +138,6 @@
 <p>//@梁君健:转发微博<br><br>RE: 勿评，看完转就好。<br><img src="http://ww4.sinaimg.cn/large/7c0e9549gw1f3zuu4uihnj20qo19iwsb.jpg"></p>
 <p>
 	<small> ============== 7小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3976761047829594" target="freeweibo-mirror">//@黎宛冰://@周铁东本人://@忧天湘人:顶//@湖嗨…</a>
-</h2>
-<p>//@黎宛冰://@周铁东本人://@忧天湘人:顶//@湖嗨散人://@阿弥陀佛绿坚果: 转发微博<br><br>RE: 勿评，看完转就好。<br><img src="http://ww4.sinaimg.cn/large/7c0e9549gw1f3zuu4uihnj20qo19iwsb.jpg"></p>
-<p>
-	<small> ============== 7小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3976760032240970" target="freeweibo-mirror">//@角落深深: 看着好心酸啊//@广州区伯:智取威虎山的唱…</a>
-</h2>
-<p>//@角落深深: 看着好心酸啊//@广州区伯:智取威虎山的唱词：小常宝，控诉了土匪的罪状，字字血，声声泪，激起我仇恨满腔…………。  http://t.cn/RqFG3yJ<br><br>RE: 社会主义好！社会主义优越性充分体现！习主席万岁！万万岁！共产党万岁万万岁！这几个老百姓都感谢政府感谢党感谢的话都不会说了！ http://t.cn/RqFbSy6 .</p>
-<p>
-	<small> ============== 7小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3976752537704487" target="freeweibo-mirror">SPAM 郭于华//@夏循祥_子游肥爹: //@英格兰小札:…</a>
-</h2>
-<p>SPAM 郭于华//@夏循祥_子游肥爹: //@英格兰小札: Repost<br><br>RE: 勿评，看完转就好。<br><img src="http://ww4.sinaimg.cn/large/7c0e9549gw1f3zuu4uihnj20qo19iwsb.jpg"></p>
-<p>
-	<small> ============== 8小时前</small>
 </p>
 <table>
     <tr>
