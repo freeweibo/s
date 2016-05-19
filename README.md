@@ -83,7 +83,7 @@
 </h2>
 <p>SPAM [嘻嘻] //@超级无敌新手://@刚刚路过03:够气派！ //@雾好霾:哈哈//@清华池一级搓泥工:哈哈哈//@全球民_主化转世1次号:言论自由了？臣民不信。//@梦晨伤:由衷地发自内心的佩服……[哆啦A梦微笑]……//@奥卡姆剃刀:佩服！有本事520前不删的话我服！//@高飞George:佩服小编的勇气[微笑]<br><br>RE: 本报社要搞个大新闻[笑cry][笑cry][笑cry]<br><img src="http://ww2.sinaimg.cn/large/913f6f56gw1f40q2tpiadj20ld0hsaeg.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3976894875034866" target="freeweibo-mirror">#警方通报#【沙井客运站内1楼1名男子持刀砍人】@平安宝安：…</a>
 </h2>
