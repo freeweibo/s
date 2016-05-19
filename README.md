@@ -19,6 +19,24 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3976761047829594" target="freeweibo-mirror">//@黎宛冰://@周铁东本人://@忧天湘人:顶//@湖嗨…</a>
+</h2>
+<p>//@黎宛冰://@周铁东本人://@忧天湘人:顶//@湖嗨散人://@阿弥陀佛绿坚果: 转发微博<br><br>RE: 勿评，看完转就好。<br><img src="http://ww4.sinaimg.cn/large/7c0e9549gw1f3zuu4uihnj20qo19iwsb.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3976750587169682" target="freeweibo-mirror">SPAM 广州蛋糕哪里好吃哪里打折哪里有特色[疑问] 来看网…</a>
+</h2>
+<p>SPAM 广州蛋糕哪里好吃哪里打折哪里有特色[疑问] 来看网友_vivi3m 的★疯狂蛋糕kong推介★提拉米苏、蓝莓芝士、还有超浓郁的朱古力蛋糕~最搞笑是那件笑面芝士挞[馋嘴] vivi3m，你真不愧是蛋糕控！！！<br><img src="http://ww1.sinaimg.cn/large/6b2b208ejw1f40clvyn7oj20c80ge0v6.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3976748314209989" target="freeweibo-mirror">SPAM [兔子]【测一测：你身旁的人有多喜欢你？】你有没有…</a>
+</h2>
+<p>SPAM [兔子]【测一测：你身旁的人有多喜欢你？】你有没有想过，在别人的眼中，你拥有哪种别人没有的优点呢？身旁的人又有多喜欢你？现在就让我们透过这个小测验来测测吧！【[心]请关注薇.信：qizhit，在朋友圈阅读[心]】<br><img src="http://ww1.sinaimg.cn/large/6b2b208ejw1f40cchp32qg206t046u0x.gif"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3976719113727323" target="freeweibo-mirror">SPAM #情感树洞# 晚上好 树洞 最近特别惆怅，和男朋友…</a>
 </h2>
 <p>SPAM #情感树洞# 晚上好 树洞 最近特别惆怅，和男朋友在一起两年之久 感情一直挺不错 其实主要还是我爱他很多 他是第一次谈恋爱 不懂表达也不浪漫 这些我也理解 每当我想要什么想去到哪里 他总是跟我讲 以后再去 我们是异地恋 他从来不会给我打电话 我们聊天也不多 他很爱玩游戏，我每次跟他讲让他少玩一会...全文： http://m.weibo.cn/2154013651/3976719113727323<br><img src="http://ww1.sinaimg.cn/large/8063a3d3gw1f3zcba8rh9j20ku112t95.jpg"></p>
@@ -118,24 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3976573956881402" target="freeweibo-mirror">//@海龙湾姚姨://@海珠大喊十://@何兵:【不能让猫承…</a>
 </h2>
 <p>//@海龙湾姚姨://@海珠大喊十://@何兵:【不能让猫承包鱼塘，不能让警察管理言论】在所有政府机构中，警察是可以合法行使暴力的机构，因此必然是舆论监督的重中之重。让警察管理言论，如同让猫承包鱼塘，最终舆论无法监督警察，暴力失控，祸害国家和人民。<br><br>RE: 【公民的屁股，为什么开花？】让公安把大V抓起来，让公安把死磕律师抓起来，让公安把网络管起来。然后，公安就可以放心大胆地打屁股了。授权警察实施暴力，绝不能同时授权警察管理言论。如果警察可以一手拿警棍，一手堵嘴巴，公民的屁股，必然会节节开花。<br><img src="http://ww1.sinaimg.cn/large/486bea1ajw1f3zeigjwq1j20c80dr0t6.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3976560225285780" target="freeweibo-mirror">伟大领袖不是天生的，而是PS的。越挂领袖像，国家的危险系数就…</a>
-</h2>
-<p>伟大领袖不是天生的，而是PS的。越挂领袖像，国家的危险系数就越高。一个国家的危险系数与挂政治领袖像的多少成相关。民主政体内，权为民所授，公众无须对他顶礼膜拜。专制体制下，才有可能形成个人崇拜。大众民主意识一旦觉醒，个人崇拜便成为笑柄。政治强人一旦失去强权的支撑，便归于滑稽可笑。<br><img src="http://ww3.sinaimg.cn/large/006tnYcfjw1f3zqqemavlj30dw0dwmy2.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3976558437508934" target="freeweibo-mirror">SPAM //@公民林静在维权5: //@怀化麻阳黄雨慧黄雨…</a>
-</h2>
-<p>SPAM //@公民林静在维权5: //@怀化麻阳黄雨慧黄雨霞3://@随州小民://@活捉死老鼠: @联合国 @联合国人权高专办 //@铁树扉: //@怀化麻阳黄雨慧黄雨霞3: 放人！<br><br>RE: 【关注屠夫】屠夫吴淦于去年5月19日在南昌被当局拘捕，后被转至福州，再又被移送天津羁押，至今已失去自由整整365天。明天是屠夫被拘一周年纪念日。持续关注、[话筒][围观]声援！[给力]✊<br><img src="http://ww3.sinaimg.cn/large/006dw2b0gw1f3zkqygvnmj30c809f3yx.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3976554646260469" target="freeweibo-mirror">SPAM //@高小曜: //@苏州常熟徐文石: //@摄色…</a>
-</h2>
-<p>SPAM //@高小曜: //@苏州常熟徐文石: //@摄色光: //@南辕北辙001:砸牌坊了。//@崔小平律师://@湖嗨散人:这不就是不忠不义不仁不孝吗，呵呵//@Thomas程5: 唉！<br><br>RE: 宋美龄评价其姐宋庆龄一生。<br><img src="http://ww4.sinaimg.cn/large/6322f7ddjw1f3zcwqnd8vj20hs0vkdjr.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
