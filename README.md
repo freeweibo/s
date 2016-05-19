@@ -31,6 +31,12 @@
 <p>
 	<small> ============== 1小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3976846368720431" target="freeweibo-mirror">SPAM 这叫打太极！</a>
+</h2>
+<p>SPAM 这叫打太极！</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3976846360041972" target="freeweibo-mirror">希望我们也有选择的权利 //@迟夙生律师:[赞] //@只为…</a>
 </h2>
 <p>希望我们也有选择的权利 //@迟夙生律师:[赞] //@只为苍生呼唤: //@王周生:凭对立两派微笑交接班，就该点赞。<br><br>RE: 希望有一天所有炎黄子孙都能和台湾人民一样，享有自由、民主与法治的多元生活方式。我们深信，这样的梦想并不遥远，因为这些价值在台湾都已经实现，不是西方人的权利，台湾经验应可作为中国大陆未来发展的借镜。---马英九【感】感谢马英九、蔡英文们，是他们为华人走出了让华人倍感有尊严的大道。<br><img src="http://ww2.sinaimg.cn/large/d1974d95jw1f3zt24myoej20ht0ahq4j.jpg"></p>
@@ -41,7 +47,7 @@
 </h2>
 <p>想问最高领导：这时进步，还是退步？<br><br>RE: 希望有一天所有炎黄子孙都能和台湾人民一样，享有自由、民主与法治的多元生活方式。我们深信，这样的梦想并不遥远，因为这些价值在台湾都已经实现，不是西方人的权利，台湾经验应可作为中国大陆未来发展的借镜。---马英九【感】感谢马英九、蔡英文们，是他们为华人走出了让华人倍感有尊严的大道。<br><img src="http://ww2.sinaimg.cn/large/d1974d95jw1f3zt24myoej20ht0ahq4j.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3976842459540284" target="freeweibo-mirror">SPAM 哦，欺软怕硬啊！即使人肉出来你们敢去打么？大概也只…</a>
 </h2>
@@ -76,6 +82,12 @@
 	<a href="https://freeweibo.com/weibo/3976826735126678" target="freeweibo-mirror">刪帖衹是“習慣性動作”。[偷笑][偷笑]//@崇法NO7:转…</a>
 </h2>
 <p>刪帖衹是“習慣性動作”。[偷笑][偷笑]//@崇法NO7:转发微博<br><br>RE: #来自银河系的我#事件似乎正在向有利於真相大白的方向發展！「相關人員接受調查」，「堅決依紀依法處理，絕不護短」。但為什麼要不斷刪帖子呢？<br><img src="http://ww1.sinaimg.cn/large/5937c055jw1f40k4uzu9tj20de0eamz3.jpg"></p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3976816672578436" target="freeweibo-mirror">SPAM @陈有西 新浪微博被限发，不能及时发布。现在只能我…</a>
+</h2>
+<p>SPAM @陈有西 新浪微博被限发，不能及时发布。现在只能我们来代发了，转起来吧！陈有西对市检将雷洋案下交督办的表态！<br><img src="http://ww3.sinaimg.cn/large/60b0044bgw1f40k5cc91jj20v91jlgv2.jpg"></p>
 <p>
 	<small> ============== 4小时前</small>
 </p><h2>
@@ -126,18 +138,6 @@
 <p>五个便衣真的那么重要？！</p>
 <p>
 	<small> ============== 7小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3976769130475207" target="freeweibo-mirror">【坐等“真相”？】因为雷案，杨金柱律师11个微信群全部封杀。…</a>
-</h2>
-<p>【坐等“真相”？】因为雷案，杨金柱律师11个微信群全部封杀。陈有西律师被限制转发和屏蔽阅读。难得只能坐等官方发布“真相”？<br><img src="http://ww1.sinaimg.cn/large/6a80bfcdgw1f40eqdx4y0j20qo0zkdiu.jpg"></p>
-<p>
-	<small> ============== 7小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3976762188776459" target="freeweibo-mirror">央视采访足浴女可以，律师发布调查进程不可以；五毛党在微博下谩…</a>
-</h2>
-<p>央视采访足浴女可以，律师发布调查进程不可以；五毛党在微博下谩骂可以，网友关心转发不可以；涉事民警接受采访是澄清，代理律师接受采访就是炒作。重大公共事件基本上都是一个套路。当代中国最大矛盾就是日益增长的公民意识与传统维稳的宣传思路！<br><img src="http://ww2.sinaimg.cn/large/5ce92b4dgw1f40dxumnvhj20kl0zj0wo.jpg"></p>
-<p>
-	<small> ============== 8小时前</small>
 </p>
 <table>
     <tr>
