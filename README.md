@@ -29,7 +29,7 @@
 </h2>
 <p>#来自银河系的我#事件似乎正在向有利於真相大白的方向發展！「相關人員接受調查」，「堅決依紀依法處理，絕不護短」。但為什麼要不斷刪帖子呢？<br><img src="http://ww1.sinaimg.cn/large/5937c055jw1f40k4uzu9tj20de0eamz3.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3976800340005825" target="freeweibo-mirror">//@一大哄：剧务水平差！这么一个长镜头，多处道具明显错误，…</a>
 </h2>
