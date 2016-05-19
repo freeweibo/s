@@ -23,7 +23,7 @@
 </h2>
 <p>刪帖衹是“習慣性動作”。[偷笑][偷笑]//@崇法NO7:转发微博<br><br>RE: #来自银河系的我#事件似乎正在向有利於真相大白的方向發展！「相關人員接受調查」，「堅決依紀依法處理，絕不護短」。但為什麼要不斷刪帖子呢？<br><img src="http://ww1.sinaimg.cn/large/5937c055jw1f40k4uzu9tj20de0eamz3.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3976816580499243" target="freeweibo-mirror">#来自银河系的我#事件似乎正在向有利於真相大白的方向發展！「…</a>
 </h2>
@@ -41,7 +41,7 @@
 </h2>
 <p>抄党章？out了，老土了。俺几十年前就干过此等事：抄语录，抄老三篇。<br><br>RE: 习大大说作为社会主义接班人，人民的好公仆，就得抄写党章，认真抄写，反复抄写[笑cry][笑cry][笑cry][笑cry][笑cry]新婚之夜也得抄写[笑cry][笑cry][笑cry][笑cry] http://t.cn/R2WxClD<br><img src="http://ww4.sinaimg.cn/large/c2bec9ccgw1f3zu0x2xoej20qo0zkqdk.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3976785391706868" target="freeweibo-mirror">黑暗极恶//@于建嵘:无法表达我的感受！</a>
 </h2>
