@@ -31,6 +31,12 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3976770169949451" target="freeweibo-mirror">五个便衣真的那么重要？！</a>
+</h2>
+<p>五个便衣真的那么重要？！</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3976761723208284" target="freeweibo-mirror">//@吴澧-猪草园://@黎宛冰://@周铁东本人://@忧…</a>
 </h2>
 <p>//@吴澧-猪草园://@黎宛冰://@周铁东本人://@忧天湘人:顶//@湖嗨散人://@阿弥陀佛绿坚果: 转发微博<br><br>RE: 勿评，看完转就好。<br><img src="http://ww4.sinaimg.cn/large/7c0e9549gw1f3zuu4uihnj20qo19iwsb.jpg"></p>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3976610626973847" target="freeweibo-mirror">SPAM //@殷锋de一些事一些情:特权</a>
 </h2>
 <p>SPAM //@殷锋de一些事一些情:特权<br><br>RE: 真大支嘢<br><img src="http://ww4.sinaimg.cn/large/997acbc3jw1f3zv3r82jbj20p00quq74.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3976609562575050" target="freeweibo-mirror">其实这与儒家的虚伪一脉相承，所谓的24孝也都是虚假的表忠式的…</a>
-</h2>
-<p>其实这与儒家的虚伪一脉相承，所谓的24孝也都是虚假的表忠式的无耻，因为那会的举孝廉，孝就是政治资本。//@左春和: [good] //@石言内:衰竭中的陀螺。<br><br>RE: 抄写党章之事是一种“新常态”中的表态焦虑，他们复制了祖辈的投机形式，但抽空了信仰的立场宣誓成为了十足的反讽。这是政治末梢神经的真实状况，其形式化创新的萎缩象征生命力的枯竭，彻底进入政治摆拍时代已经预示了它的未来。娱乐化效果的表忠除了增加些笑料之外，它还像一面镜子，陡然间映出了一个...全文： http://m.weibo.cn/1234732574/3976600942794695</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
