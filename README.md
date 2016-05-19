@@ -83,7 +83,7 @@
 </h2>
 <p>SPAM 绝不护短<br><br>RE: 媒体你们现在什么素质，黑白都分不清楚[怒]<br><img src="http://ww3.sinaimg.cn/large/623e1d29jw1f40mmqhnu2j20gi0m8n01.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3976891487181683" target="freeweibo-mirror">SPAM //@蒋方舟:……//@黄章晋ster: 足疗女是…</a>
 </h2>
@@ -113,7 +113,7 @@
 </h2>
 <p>SPAM 能不够。。//@侯虹斌:相声艺术家<br><br>RE: 17号的新讲话，报菜名已经成保留节目了。<br><img src="http://ww3.sinaimg.cn/large/005NTcI0gw1f40la85vzbj30qo1betkl.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3976860872991872" target="freeweibo-mirror">他们投资什么？清真寺，还是瓦哈比训练中心？还是阿拉伯语学校？…</a>
 </h2>
