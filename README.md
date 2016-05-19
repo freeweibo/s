@@ -65,7 +65,7 @@
 </h2>
 <p>SPAM [兔子]【测一测：你身旁的人有多喜欢你？】你有没有想过，在别人的眼中，你拥有哪种别人没有的优点呢？身旁的人又有多喜欢你？现在就让我们透过这个小测验来测测吧！【[心]请关注薇.信：qizhit，在朋友圈阅读[心]】<br><img src="http://ww1.sinaimg.cn/large/6b2b208ejw1f40cchp32qg206t046u0x.gif"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3976719113727323" target="freeweibo-mirror">SPAM #情感树洞# 晚上好 树洞 最近特别惆怅，和男朋友…</a>
 </h2>
@@ -113,13 +113,13 @@
 </h2>
 <p>第二个简直了[doge]//@小颖学姐a: 个个都好高能！[拜拜]</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3976619217101239" target="freeweibo-mirror">SPAM //@首席观察://@左春和: [good] //…</a>
 </h2>
 <p>SPAM //@首席观察://@左春和: [good] //@石言内:衰竭中的陀螺。<br><br>RE: 抄写党章之事是一种“新常态”中的表态焦虑，他们复制了祖辈的投机形式，但抽空了信仰的立场宣誓成为了十足的反讽。这是政治末梢神经的真实状况，其形式化创新的萎缩象征生命力的枯竭，彻底进入政治摆拍时代已经预示了它的未来。娱乐化效果的表忠除了增加些笑料之外，它还像一面镜子，陡然间映出了一个...全文： http://m.weibo.cn/1234732574/3976600942794695</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3976610626973847" target="freeweibo-mirror">SPAM //@殷锋de一些事一些情:特权</a>
 </h2>
