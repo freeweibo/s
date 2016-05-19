@@ -71,13 +71,13 @@
 </h2>
 <p>从江苏到湖北，这又到了河北，风起云涌了！这是啥子中国节奏？！[吃惊][吃惊][吃惊]<br><br>RE: 河北家长打条幅：喊着京津冀一体化的口号，却对河北考生如此残忍～～<br><img src="http://ww3.sinaimg.cn/large/5f6520eajw1f40ntnjyonj20m80go411.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3976848511734145" target="freeweibo-mirror">河北家长打条幅：喊着京津冀一体化的口号，却对河北考生如此残忍…</a>
 </h2>
 <p>河北家长打条幅：喊着京津冀一体化的口号，却对河北考生如此残忍～～<br><img src="http://ww3.sinaimg.cn/large/5f6520eajw1f40ntnjyonj20m80go411.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3976846368720431" target="freeweibo-mirror">SPAM 这叫打太极！</a>
 </h2>
@@ -109,6 +109,12 @@
 <p>
 	<small> ============== 8小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3976837962668630" target="freeweibo-mirror">媒体你们现在什么素质，黑白都分不清楚[怒]</a>
+</h2>
+<p>媒体你们现在什么素质，黑白都分不清楚[怒]<br><img src="http://ww3.sinaimg.cn/large/623e1d29jw1f40mmqhnu2j20gi0m8n01.jpg"></p>
+<p>
+	<small> ============== 8小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3976832699194892" target="freeweibo-mirror">//@北京大众2015://@茶人悟茶:人人都可能是雨田洋。…</a>
 </h2>
 <p>//@北京大众2015://@茶人悟茶:人人都可能是雨田洋。//@阿忆: 雷洋也曾活得好好的，你可能明天就死。 //@浮生若梦MQ: 操，最反感说每个人都可能是下一个雷洋，尼玛的你们不是活得好好吗，名利双收。 //@阿忆：这就是官方的态度<br><br>RE: 央视采访足浴女可以，律师发布调查进程不可以；五毛党在微博下谩骂可以，网友关心转发不可以；涉事民警接受采访是澄清，代理律师接受采访就是炒作。重大公共事件基本上都是一个套路。当代中国最大矛盾就是日益增长的公民意识与传统维稳的宣传思路！<br><img src="http://ww2.sinaimg.cn/large/5ce92b4dgw1f40dxumnvhj20kl0zj0wo.jpg"></p>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3976826735126678" target="freeweibo-mirror">刪帖衹是“習慣性動作”。[偷笑][偷笑]//@崇法NO7:转…</a>
 </h2>
 <p>刪帖衹是“習慣性動作”。[偷笑][偷笑]//@崇法NO7:转发微博<br><br>RE: #来自银河系的我#事件似乎正在向有利於真相大白的方向發展！「相關人員接受調查」，「堅決依紀依法處理，絕不護短」。但為什麼要不斷刪帖子呢？<br><img src="http://ww1.sinaimg.cn/large/5937c055jw1f40k4uzu9tj20de0eamz3.jpg"></p>
-<p>
-	<small> ============== 9小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3976826449756122" target="freeweibo-mirror">17号的新讲话，报菜名已经成保留节目了。</a>
-</h2>
-<p>17号的新讲话，报菜名已经成保留节目了。<br><img src="http://ww3.sinaimg.cn/large/005NTcI0gw1f40la85vzbj30qo1betkl.jpg"></p>
 <p>
 	<small> ============== 9小时前</small>
 </p>
