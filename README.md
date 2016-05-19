@@ -89,7 +89,7 @@
 </h2>
 <p>17号的新讲话，报菜名已经成保留节目了。<br><img src="http://ww3.sinaimg.cn/large/005NTcI0gw1f40la85vzbj30qo1betkl.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3976816672578436" target="freeweibo-mirror">SPAM @陈有西 新浪微博被限发，不能及时发布。现在只能我…</a>
 </h2>
@@ -131,7 +131,7 @@
 </h2>
 <p>SPAM //@北京张胖子:长此以往，必然会出现//@真理阳光VVV: 我最担心会出现: "我们民族的我们管，我们少数民族的我们管"的这种情况，从某些邪教徒动不动的"少民"口吻来看，他们有这种野心和企图。//@现充小圆:[药丸]//@真理阳光VVV: 民宗委，都堂然皇之地标榜自己为"伊宗委"了<br><br>RE: 银川市兴庆区民宗局LOGO，再一次证明了民委和宗教局是反动组织，我们必须和他斗争到底！<br><img src="http://ww4.sinaimg.cn/large/685a65d9jw1f402qa1ge7j20qo1bfaeh.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3976770631786656" target="freeweibo-mirror">SPAM 政教合一 //@梅新育:[围观]</a>
 </h2>
