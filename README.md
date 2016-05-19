@@ -121,6 +121,12 @@
 <p>
 	<small> ============== 1天前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3976596190317679" target="freeweibo-mirror">勿评，看完转就好。</a>
+</h2>
+<p>勿评，看完转就好。<br><img src="http://ww4.sinaimg.cn/large/7c0e9549gw1f3zuu4uihnj20qo19iwsb.jpg"></p>
+<p>
+	<small> ============== 1天前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3976596165554254" target="freeweibo-mirror">SPAM 今天更新的内容：1️⃣遗传基因太强大！又一个从一号…</a>
 </h2>
 <p>SPAM 今天更新的内容：1️⃣遗传基因太强大！又一个从一号位打到五号位的球员诞生了 。2️⃣21世纪以来1-30各顺位最好的球员是？3️⃣你的经典台词是________ ？4️⃣BA官网预测：英格拉姆状元 勇士30位选周琦 。<br><img src="http://ww4.sinaimg.cn/large/90f58663jw1f3zuu6qpj0j20ku11278k.jpg"></p>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3976585369561843" target="freeweibo-mirror">//@云中鹤138://@我是伏起: //@中華尋夢: 转发…</a>
 </h2>
 <p>//@云中鹤138://@我是伏起: //@中華尋夢: 转发微博<br><br>RE: 曾仕明 ，网名@是我纳税人a ，70后，四川眉山人，自称没文化，当过送水工、医院护工。3月26日下午，他只身前往成都天府广场举牌，呼吁放开党禁报禁，被拘留五日。4月28日，因声援郭飞雄被约谈。5月13日，他再次被传唤，五天过去了，音讯全无。他以绵薄之力，为我们争公民权利。没人关心他？<br><img src="http://ww2.sinaimg.cn/large/006ds1BBgw1f3zmgp778qj30d70cj3z8.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3976573956881402" target="freeweibo-mirror">//@海龙湾姚姨://@海珠大喊十://@何兵:【不能让猫承…</a>
-</h2>
-<p>//@海龙湾姚姨://@海珠大喊十://@何兵:【不能让猫承包鱼塘，不能让警察管理言论】在所有政府机构中，警察是可以合法行使暴力的机构，因此必然是舆论监督的重中之重。让警察管理言论，如同让猫承包鱼塘，最终舆论无法监督警察，暴力失控，祸害国家和人民。<br><br>RE: 【公民的屁股，为什么开花？】让公安把大V抓起来，让公安把死磕律师抓起来，让公安把网络管起来。然后，公安就可以放心大胆地打屁股了。授权警察实施暴力，绝不能同时授权警察管理言论。如果警察可以一手拿警棍，一手堵嘴巴，公民的屁股，必然会节节开花。<br><img src="http://ww1.sinaimg.cn/large/486bea1ajw1f3zeigjwq1j20c80dr0t6.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
