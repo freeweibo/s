@@ -125,7 +125,7 @@
 </h2>
 <p>SPAM 今天更新的内容：1️⃣遗传基因太强大！又一个从一号位打到五号位的球员诞生了 。2️⃣21世纪以来1-30各顺位最好的球员是？3️⃣你的经典台词是________ ？4️⃣BA官网预测：英格拉姆状元 勇士30位选周琦 。<br><img src="http://ww4.sinaimg.cn/large/90f58663jw1f3zuu6qpj0j20ku11278k.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3976585369561843" target="freeweibo-mirror">//@云中鹤138://@我是伏起: //@中華尋夢: 转发…</a>
 </h2>
