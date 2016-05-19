@@ -19,6 +19,18 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3976830921423697" target="freeweibo-mirror">[弱][弱][弱]//@上海老顽童吴德余:有过之无不及！ /…</a>
+</h2>
+<p>[弱][弱][弱]//@上海老顽童吴德余:有过之无不及！ //@刘力博士://@政经评论2015:薄熙来王立军监狱里笑了，原来大家都一样。[嘻嘻][嘻嘻][嘻嘻]<br><br>RE: 央视采访足浴女可以，律师发布调查进程不可以；五毛党在微博下谩骂可以，网友关心转发不可以；涉事民警接受采访是澄清，代理律师接受采访就是炒作。重大公共事件基本上都是一个套路。当代中国最大矛盾就是日益增长的公民意识与传统维稳的宣传思路！<br><img src="http://ww2.sinaimg.cn/large/5ce92b4dgw1f40dxumnvhj20kl0zj0wo.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3976829490058190" target="freeweibo-mirror">//@乘桴子: //@空如上人字_飯香://@茶香字海里默轩…</a>
+</h2>
+<p>//@乘桴子: //@空如上人字_飯香://@茶香字海里默轩://@雷颐: //@薛明波:转发微博<br><br>RE: 央视采访足浴女可以，律师发布调查进程不可以；五毛党在微博下谩骂可以，网友关心转发不可以；涉事民警接受采访是澄清，代理律师接受采访就是炒作。重大公共事件基本上都是一个套路。当代中国最大矛盾就是日益增长的公民意识与传统维稳的宣传思路！<br><img src="http://ww2.sinaimg.cn/large/5ce92b4dgw1f40dxumnvhj20kl0zj0wo.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3976826735126678" target="freeweibo-mirror">刪帖衹是“習慣性動作”。[偷笑][偷笑]//@崇法NO7:转…</a>
 </h2>
 <p>刪帖衹是“習慣性動作”。[偷笑][偷笑]//@崇法NO7:转发微博<br><br>RE: #来自银河系的我#事件似乎正在向有利於真相大白的方向發展！「相關人員接受調查」，「堅決依紀依法處理，絕不護短」。但為什麼要不斷刪帖子呢？<br><img src="http://ww1.sinaimg.cn/large/5937c055jw1f40k4uzu9tj20de0eamz3.jpg"></p>
@@ -124,18 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3976664734196191" target="freeweibo-mirror">银川市兴庆区民宗局LOGO，再一次证明了民委和宗教局是反动组…</a>
 </h2>
 <p>银川市兴庆区民宗局LOGO，再一次证明了民委和宗教局是反动组织，我们必须和他斗争到底！<br><img src="http://ww4.sinaimg.cn/large/685a65d9jw1f402qa1ge7j20qo1bfaeh.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3976660225186641" target="freeweibo-mirror">SPAM 【Delphin宝宝游泳可叠加手臂浮圈，EUR 2…</a>
-</h2>
-<p>SPAM 【Delphin宝宝游泳可叠加手臂浮圈，EUR 26,90】适合1岁以上儿童，德国孩子学习游泳必备！热成型柔软的聚乙烯材料制成，一套6片，左右双臂各三片。可以根据学习游泳的进度逐渐减少片数，直到完全掌握不用为止。http://t.cn/R24TiJL<br><img src="http://ww2.sinaimg.cn/large/74b5d787gw1f3zlh4pb8oj20i80pdq7y.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3976654210197015" target="freeweibo-mirror">SPAM [爱你][爱你]</a>
-</h2>
-<p>SPAM [爱你][爱你]</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
