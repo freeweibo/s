@@ -41,7 +41,7 @@
 </h2>
 <p>//@乘桴子: //@空如上人字_飯香://@茶香字海里默轩://@雷颐: //@薛明波:转发微博<br><br>RE: 央视采访足浴女可以，律师发布调查进程不可以；五毛党在微博下谩骂可以，网友关心转发不可以；涉事民警接受采访是澄清，代理律师接受采访就是炒作。重大公共事件基本上都是一个套路。当代中国最大矛盾就是日益增长的公民意识与传统维稳的宣传思路！<br><img src="http://ww2.sinaimg.cn/large/5ce92b4dgw1f40dxumnvhj20kl0zj0wo.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3976826735126678" target="freeweibo-mirror">刪帖衹是“習慣性動作”。[偷笑][偷笑]//@崇法NO7:转…</a>
 </h2>
@@ -95,7 +95,7 @@
 </h2>
 <p>【坐等“真相”？】因为雷案，杨金柱律师11个微信群全部封杀。陈有西律师被限制转发和屏蔽阅读。难得只能坐等官方发布“真相”？<br><img src="http://ww1.sinaimg.cn/large/6a80bfcdgw1f40eqdx4y0j20qo0zkdiu.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3976762188776459" target="freeweibo-mirror">央视采访足浴女可以，律师发布调查进程不可以；五毛党在微博下谩…</a>
 </h2>
