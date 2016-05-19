@@ -83,13 +83,13 @@
 </h2>
 <p>//@黎宛冰://@周铁东本人://@忧天湘人:顶//@湖嗨散人://@阿弥陀佛绿坚果: 转发微博<br><br>RE: 勿评，看完转就好。<br><img src="http://ww4.sinaimg.cn/large/7c0e9549gw1f3zuu4uihnj20qo19iwsb.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3976760032240970" target="freeweibo-mirror">//@角落深深: 看着好心酸啊//@广州区伯:智取威虎山的唱…</a>
 </h2>
 <p>//@角落深深: 看着好心酸啊//@广州区伯:智取威虎山的唱词：小常宝，控诉了土匪的罪状，字字血，声声泪，激起我仇恨满腔…………。  http://t.cn/RqFG3yJ<br><br>RE: 社会主义好！社会主义优越性充分体现！习主席万岁！万万岁！共产党万岁万万岁！这几个老百姓都感谢政府感谢党感谢的话都不会说了！ http://t.cn/RqFbSy6 .</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3976752537704487" target="freeweibo-mirror">SPAM 郭于华//@夏循祥_子游肥爹: //@英格兰小札:…</a>
 </h2>
