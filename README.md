@@ -19,6 +19,18 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3976780841428135" target="freeweibo-mirror">SPAM //@北京张胖子:长此以往，必然会出现//@真理阳…</a>
+</h2>
+<p>SPAM //@北京张胖子:长此以往，必然会出现//@真理阳光VVV: 我最担心会出现: "我们民族的我们管，我们少数民族的我们管"的这种情况，从某些邪教徒动不动的"少民"口吻来看，他们有这种野心和企图。//@现充小圆:[药丸]//@真理阳光VVV: 民宗委，都堂然皇之地标榜自己为"伊宗委"了<br><br>RE: 银川市兴庆区民宗局LOGO，再一次证明了民委和宗教局是反动组织，我们必须和他斗争到底！<br><img src="http://ww4.sinaimg.cn/large/685a65d9jw1f402qa1ge7j20qo1bfaeh.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3976770631786656" target="freeweibo-mirror">SPAM 政教合一 //@梅新育:[围观]</a>
+</h2>
+<p>SPAM 政教合一 //@梅新育:[围观]<br><br>RE: 银川市兴庆区民宗局LOGO，再一次证明了民委和宗教局是反动组织，我们必须和他斗争到底！<br><img src="http://ww4.sinaimg.cn/large/685a65d9jw1f402qa1ge7j20qo1bfaeh.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3976761723208284" target="freeweibo-mirror">//@吴澧-猪草园://@黎宛冰://@周铁东本人://@忧…</a>
 </h2>
 <p>//@吴澧-猪草园://@黎宛冰://@周铁东本人://@忧天湘人:顶//@湖嗨散人://@阿弥陀佛绿坚果: 转发微博<br><br>RE: 勿评，看完转就好。<br><img src="http://ww4.sinaimg.cn/large/7c0e9549gw1f3zuu4uihnj20qo19iwsb.jpg"></p>
@@ -71,7 +83,7 @@
 </h2>
 <p>SPAM [爱你][爱你]</p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3976629644686436" target="freeweibo-mirror">//@唐巴马:艳艳好 //@红艳艳A:巴马晚上好哦[握手][…</a>
 </h2>
@@ -124,18 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3976609364493531" target="freeweibo-mirror">SPAM //@左春和: [good] //@石言内:衰竭中…</a>
 </h2>
 <p>SPAM //@左春和: [good] //@石言内:衰竭中的陀螺。<br><br>RE: 抄写党章之事是一种“新常态”中的表态焦虑，他们复制了祖辈的投机形式，但抽空了信仰的立场宣誓成为了十足的反讽。这是政治末梢神经的真实状况，其形式化创新的萎缩象征生命力的枯竭，彻底进入政治摆拍时代已经预示了它的未来。娱乐化效果的表忠除了增加些笑料之外，它还像一面镜子，陡然间映出了一个...全文： http://m.weibo.cn/1234732574/3976600942794695</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3976598212118526" target="freeweibo-mirror">真大支嘢</a>
-</h2>
-<p>真大支嘢<br><img src="http://ww4.sinaimg.cn/large/997acbc3jw1f3zv3r82jbj20p00quq74.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3976597046192799" target="freeweibo-mirror">世纪之争，十字路口，何去何从？曹先生2010年一篇长文，值得…</a>
-</h2>
-<p>世纪之争，十字路口，何去何从？曹先生2010年一篇长文，值得一读！[思考]<br><img src="http://ww3.sinaimg.cn/large/006dpeZNgw1f3zuxybkd3j30qo1a7jze.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
