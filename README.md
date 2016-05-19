@@ -19,6 +19,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3976797169606335" target="freeweibo-mirror">抄党章？out了，老土了。俺几十年前就干过此等事：抄语录，抄…</a>
+</h2>
+<p>抄党章？out了，老土了。俺几十年前就干过此等事：抄语录，抄老三篇。<br><br>RE: 习大大说作为社会主义接班人，人民的好公仆，就得抄写党章，认真抄写，反复抄写[笑cry][笑cry][笑cry][笑cry][笑cry]新婚之夜也得抄写[笑cry][笑cry][笑cry][笑cry] http://t.cn/R2WxClD<br><img src="http://ww4.sinaimg.cn/large/c2bec9ccgw1f3zu0x2xoej20qo0zkqdk.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3976780841428135" target="freeweibo-mirror">SPAM //@北京张胖子:长此以往，必然会出现//@真理阳…</a>
 </h2>
 <p>SPAM //@北京张胖子:长此以往，必然会出现//@真理阳光VVV: 我最担心会出现: "我们民族的我们管，我们少数民族的我们管"的这种情况，从某些邪教徒动不动的"少民"口吻来看，他们有这种野心和企图。//@现充小圆:[药丸]//@真理阳光VVV: 民宗委，都堂然皇之地标榜自己为"伊宗委"了<br><br>RE: 银川市兴庆区民宗局LOGO，再一次证明了民委和宗教局是反动组织，我们必须和他斗争到底！<br><img src="http://ww4.sinaimg.cn/large/685a65d9jw1f402qa1ge7j20qo1bfaeh.jpg"></p>
@@ -101,7 +107,7 @@
 </h2>
 <p>SPAM [爱你][爱你]</p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3976629644686436" target="freeweibo-mirror">//@唐巴马:艳艳好 //@红艳艳A:巴马晚上好哦[握手][…</a>
 </h2>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3976619532069235" target="freeweibo-mirror">第二个简直了[doge]//@小颖学姐a: 个个都好高能！[…</a>
 </h2>
 <p>第二个简直了[doge]//@小颖学姐a: 个个都好高能！[拜拜]</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3976619217101239" target="freeweibo-mirror">SPAM //@首席观察://@左春和: [good] //…</a>
-</h2>
-<p>SPAM //@首席观察://@左春和: [good] //@石言内:衰竭中的陀螺。<br><br>RE: 抄写党章之事是一种“新常态”中的表态焦虑，他们复制了祖辈的投机形式，但抽空了信仰的立场宣誓成为了十足的反讽。这是政治末梢神经的真实状况，其形式化创新的萎缩象征生命力的枯竭，彻底进入政治摆拍时代已经预示了它的未来。娱乐化效果的表忠除了增加些笑料之外，它还像一面镜子，陡然间映出了一个...全文： http://m.weibo.cn/1234732574/3976600942794695</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
