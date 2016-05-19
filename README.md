@@ -19,6 +19,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3976826735126678" target="freeweibo-mirror">刪帖衹是“習慣性動作”。[偷笑][偷笑]//@崇法NO7:转…</a>
+</h2>
+<p>刪帖衹是“習慣性動作”。[偷笑][偷笑]//@崇法NO7:转发微博<br><br>RE: #来自银河系的我#事件似乎正在向有利於真相大白的方向發展！「相關人員接受調查」，「堅決依紀依法處理，絕不護短」。但為什麼要不斷刪帖子呢？<br><img src="http://ww1.sinaimg.cn/large/5937c055jw1f40k4uzu9tj20de0eamz3.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3976800340005825" target="freeweibo-mirror">//@一大哄：剧务水平差！这么一个长镜头，多处道具明显错误，…</a>
 </h2>
 <p>//@一大哄：剧务水平差！这么一个长镜头，多处道具明显错误，明明要表现解放前万恶的、吃人的旧社会，却在镜头中出现了今天的家用电器…不过演员表演很到位，比影帝还真！<br><br>RE: 社会主义好！社会主义优越性充分体现！习主席万岁！万万岁！共产党万岁万万岁！这几个老百姓都感谢政府感谢党感谢的话都不会说了！ http://t.cn/RqFbSy6 .</p>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3976629644686436" target="freeweibo-mirror">//@唐巴马:艳艳好 //@红艳艳A:巴马晚上好哦[握手][…</a>
 </h2>
 <p>//@唐巴马:艳艳好 //@红艳艳A:巴马晚上好哦[握手][嘻嘻] //@唐巴马:人民的呐喊<br><br>RE: 56朵花，绽开怒放，像沸腾的山泉，扑面而来[鲜花][鲜花][鲜花] http://t.cn/RqEILZO</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3976624695817890" target="freeweibo-mirror">SPAM 明天早上10点，不见不散！[爱你][爱你][爱你]</a>
-</h2>
-<p>SPAM 明天早上10点，不见不散！[爱你][爱你][爱你]</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
