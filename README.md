@@ -25,6 +25,24 @@
 <p>
 	<small> ============== 1小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3976899036141450" target="freeweibo-mirror">SPAM [嘻嘻] //@超级无敌新手://@刚刚路过03:…</a>
+</h2>
+<p>SPAM [嘻嘻] //@超级无敌新手://@刚刚路过03:够气派！ //@雾好霾:哈哈//@清华池一级搓泥工:哈哈哈//@全球民_主化转世1次号:言论自由了？臣民不信。//@梦晨伤:由衷地发自内心的佩服……[哆啦A梦微笑]……//@奥卡姆剃刀:佩服！有本事520前不删的话我服！//@高飞George:佩服小编的勇气[微笑]<br><br>RE: 本报社要搞个大新闻[笑cry][笑cry][笑cry]<br><img src="http://ww2.sinaimg.cn/large/913f6f56gw1f40q2tpiadj20ld0hsaeg.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3976870720888679" target="freeweibo-mirror">//@天下归民://@你想干什么dong鲁光:根基不牢，地动…</a>
+</h2>
+<p>//@天下归民://@你想干什么dong鲁光:根基不牢，地动山摇！打，只能打出民怨。//@钱仁富money: //@老渔翁在路上://@caomin3194775397:转发微博</p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3976865469072719" target="freeweibo-mirror">#名博曝光# </a>
+</h2>
+<p>#名博曝光# </p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3976862244288921" target="freeweibo-mirror">SPAM 能不够。。//@侯虹斌:相声艺术家</a>
 </h2>
 <p>SPAM 能不够。。//@侯虹斌:相声艺术家<br><br>RE: 17号的新讲话，报菜名已经成保留节目了。<br><img src="http://ww3.sinaimg.cn/large/005NTcI0gw1f40la85vzbj30qo1betkl.jpg"></p>
@@ -120,24 +138,6 @@
 <p>#来自银河系的我#事件似乎正在向有利於真相大白的方向發展！「相關人員接受調查」，「堅決依紀依法處理，絕不護短」。但為什麼要不斷刪帖子呢？<br><img src="http://ww1.sinaimg.cn/large/5937c055jw1f40k4uzu9tj20de0eamz3.jpg"></p>
 <p>
 	<small> ============== 7小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3976814835896168" target="freeweibo-mirror">不是需外部认同，而是自己内部的事情做好了，对外部强硬时就会少…</a>
-</h2>
-<p>不是需外部认同，而是自己内部的事情做好了，对外部强硬时就会少很多掣肘，得到更多的支持。//@cyh116:【港台都出现离心，相当原因是内地社会治理问题层出不穷，缺乏足够说服力和吸引力】错！中国作的再好，也不可能赢得西化派的欢心。俄罗斯就是榜样。</p>
-<p>
-	<small> ============== 7小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3976800340005825" target="freeweibo-mirror">//@一大哄：剧务水平差！这么一个长镜头，多处道具明显错误，…</a>
-</h2>
-<p>//@一大哄：剧务水平差！这么一个长镜头，多处道具明显错误，明明要表现解放前万恶的、吃人的旧社会，却在镜头中出现了今天的家用电器…不过演员表演很到位，比影帝还真！<br><br>RE: 社会主义好！社会主义优越性充分体现！习主席万岁！万万岁！共产党万岁万万岁！这几个老百姓都感谢政府感谢党感谢的话都不会说了！ http://t.cn/RqFbSy6 .</p>
-<p>
-	<small> ============== 8小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3976797169606335" target="freeweibo-mirror">抄党章？out了，老土了。俺几十年前就干过此等事：抄语录，抄…</a>
-</h2>
-<p>抄党章？out了，老土了。俺几十年前就干过此等事：抄语录，抄老三篇。<br><br>RE: 习大大说作为社会主义接班人，人民的好公仆，就得抄写党章，认真抄写，反复抄写[笑cry][笑cry][笑cry][笑cry][笑cry]新婚之夜也得抄写[笑cry][笑cry][笑cry][笑cry] http://t.cn/R2WxClD<br><img src="http://ww4.sinaimg.cn/large/c2bec9ccgw1f3zu0x2xoej20qo0zkqdk.jpg"></p>
-<p>
-	<small> ============== 8小时前</small>
 </p>
 <table>
     <tr>
