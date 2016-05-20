@@ -35,7 +35,7 @@
 </h2>
 <p>SPAM 520收到来自@网易天谕 的一份大礼～玄极手办一只[馋嘴][馋嘴][馋嘴]感谢！大家520happy～<br><img src="http://ww1.sinaimg.cn/large/4c778ed2gw1f41wgv5se7j20hs0dcabo.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3977229769588557" target="freeweibo-mirror">看完了，总体感受挺好，至少在一致性上传承了非常经典的英文风格…</a>
 </h2>
@@ -47,7 +47,7 @@
 </h2>
 <p>“国家不会因为领导人而伟大，全体国民的共同奋斗，才让这个国家伟大。"<br><br>RE: 520演說<br><img src="http://ww1.sinaimg.cn/large/c1d2c5a4jw1f41rz6yci8j20c36a1npd.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3977219636471905" target="freeweibo-mirror">【患者术前嘱家人：如有异常，别不理智】10日，68岁的张先生…</a>
 </h2>
