@@ -59,7 +59,7 @@
 </h2>
 <p>SPAM 干活的～ //@华夏跰趾:何许人也？未来储君？？[围观][围观][围观]<br><br>RE: 【王小洪势头甚猛，17个月里职务5次任命】<br><img src="http://ww4.sinaimg.cn/large/6f3dc6ddgw1f41m41l0rtj20b40dwmxt.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3977153974351864" target="freeweibo-mirror">今天距蒋经国开放党禁、报禁近三十年，政党轮替已成常态。此时我…</a>
 </h2>
