@@ -79,6 +79,12 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3977239600830487" target="freeweibo-mirror">握个手就交接了，沒有拿幾千万人頭来换，這是中國歷史上開天辟地…</a>
+</h2>
+<p>握个手就交接了，沒有拿幾千万人頭来换，這是中國歷史上開天辟地的大事變。<br><img src="http://ww4.sinaimg.cn/large/7670e137gw1f41wpclugfj20go0d6754.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3977239588012603" target="freeweibo-mirror">//@徐昕://@幸运杨梓：恐怖啊 //@呼格吉勒图父母: …</a>
 </h2>
 <p>//@徐昕://@幸运杨梓：恐怖啊 //@呼格吉勒图父母: 转发</p>
@@ -90,6 +96,18 @@
 <p>SPAM 520收到来自@网易天谕 的一份大礼～玄极手办一只[馋嘴][馋嘴][馋嘴]感谢！大家520happy～<br><img src="http://ww1.sinaimg.cn/large/4c778ed2gw1f41wgv5se7j20hs0dcabo.jpg"></p>
 <p>
 	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3977234869865057" target="freeweibo-mirror">【龙应台：为什么台湾人不想统一？】台湾人已经习惯生活在一个民…</a>
+</h2>
+<p>【龙应台：为什么台湾人不想统一？】台湾人已经习惯生活在一个民主体制里，他习惯看到官员为政策错误而被弹劾。他习惯读到报纸对政府的抨击，对领 导人的诘问。他习惯表达对政治人物的取笑和鄙视。他不怕警察，因为有法律保障了他的权利，他发言批评，可以不担心被报复。<br><img src="http://ww1.sinaimg.cn/large/74c7ed63jw1f41w850sfej208c0cgmyg.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3977231254737799" target="freeweibo-mirror">「它們有著世界上最多的電視觀眾，可它們卻不敢讓它們的電視觀眾…</a>
+</h2>
+<p>「它們有著世界上最多的電視觀眾，可它們卻不敢讓它們的電視觀眾觀看全球矚目的總統就職典禮。」——海外觀察人士 http://t.cn/RqsalHW</p>
+<p>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3977229769588557" target="freeweibo-mirror">看完了，总体感受挺好，至少在一致性上传承了非常经典的英文风格…</a>
 </h2>
@@ -118,24 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3977215727044093" target="freeweibo-mirror">//@徐幸起: 转发微博</a>
 </h2>
 <p>//@徐幸起: 转发微博<br><br>RE: 小英说：国家不会因为领导人而伟大；全体国民的共同奋斗，才让这个国家伟大。总统该团结的不只是支持者，总统该团结的是整个国家。团结是为了改变，这是我对这个国家最深切的期待。在这裡我要诚恳地呼吁，请给这个国家一个机会，让我们抛下成见，抛下过去的对立，我们一起来完成新时代交给我们的使命。<br><img src="http://ww4.sinaimg.cn/large/53bd81b0jw1f41sl843s4j206r4xvaq4.jpg"></p>
-<p>
-	<small> ============== 5小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3977213903141443" target="freeweibo-mirror">SPAM 演说全文</a>
-</h2>
-<p>SPAM 演说全文<br><br>RE: 全文，如图：<br><img src="http://ww2.sinaimg.cn/large/006qEEUFjw1f41pjbd9nuj30icdhokjm.jpg"></p>
-<p>
-	<small> ============== 5小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3977213378778077" target="freeweibo-mirror">SPAM  //@闾丘露薇:Repost</a>
-</h2>
-<p>SPAM  //@闾丘露薇:Repost<br><br>RE: 全文，如图：<br><img src="http://ww2.sinaimg.cn/large/006qEEUFjw1f41pjbd9nuj30icdhokjm.jpg"></p>
-<p>
-	<small> ============== 5小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3977211340576202" target="freeweibo-mirror">你懂的</a>
-</h2>
-<p>你懂的<br><br>RE: 【一年半三履新 王小洪任公安部副部长 】（记者 林韵诗）5月20日，人社部官网发布最新一期国务院任免国家工作人员名单，北京市副市长、市公安局长王小洪出任公安部副部长。这是2014年底才跻身副省部级的王小洪，在一年半时间内的第三次履新。 http://t.cn/RqsVw8s<br><img src="http://ww3.sinaimg.cn/large/632dab64jw1f41tc26jsqj20dc08wq4h.jpg"></p>
 <p>
 	<small> ============== 5小时前</small>
 </p>
