@@ -71,7 +71,7 @@
 </h2>
 <p>一带一路<br><img src="http://ww2.sinaimg.cn/large/621d03b7jw1f427eq8h6dj20hs0k1q3t.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3977324195530370" target="freeweibo-mirror">弄成簡化字，這哪還像中華民國？[哈哈]</a>
 </h2>
@@ -125,7 +125,7 @@
 </h2>
 <p>SPAM [挖鼻]这诗能代表京籍诗人的平均水准吗？@大仙</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3977279895718575" target="freeweibo-mirror">还没立案？？？[汗][汗][汗]</a>
 </h2>
