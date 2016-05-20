@@ -59,7 +59,7 @@
 </h2>
 <p>以前的李登辉、陈水扁、马英九都是独裁暴政？真你妈猪队友啊，为什么不给这个逗逼建个特区让他们自玩自嗨呢。<br><br>RE: 今天是台湾人民划时代的大日子，台湾人民作为华夏文化圈的一员，走在了自由、民主、法治的道路上，人民远离暴政，保证了免于恐惧的权利，祝福台湾人民！</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3977132550077705" target="freeweibo-mirror">SPAM //@昕静自然好: //@晓晓的盛夏微微凉：原来往…</a>
 </h2>
@@ -89,25 +89,25 @@
 </h2>
 <p>四年一次520。</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3977120902455219" target="freeweibo-mirror">SPAM 看台湾，我们有权利憧憬自己的未来，并为之不懈努力。</a>
 </h2>
 <p>SPAM 看台湾，我们有权利憧憬自己的未来，并为之不懈努力。<br><br>RE: 今天将是载入史册的一天！ http://t.cn/RyhW8OV<br><img src="http://ww4.sinaimg.cn/large/73570bbdjw1f41hbfpnazj20hm11078o.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3977120474219965" target="freeweibo-mirror">SPAM [话筒]//@刘军宁: [话筒] //@章诒和:谢…</a>
 </h2>
 <p>SPAM [话筒]//@刘军宁: [话筒] //@章诒和:谢谢牛津！</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3977120163845572" target="freeweibo-mirror">SPAM //@章诒和:谢谢牛津！</a>
 </h2>
 <p>SPAM //@章诒和:谢谢牛津！</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3977115470204154" target="freeweibo-mirror">今天是台湾人民划时代的大日子，台湾人民作为华夏文化圈的一员，…</a>
 </h2>
