@@ -19,6 +19,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3977239588012603" target="freeweibo-mirror">//@徐昕://@幸运杨梓：恐怖啊 //@呼格吉勒图父母: …</a>
+</h2>
+<p>//@徐昕://@幸运杨梓：恐怖啊 //@呼格吉勒图父母: 转发</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3977229769588557" target="freeweibo-mirror">看完了，总体感受挺好，至少在一致性上传承了非常经典的英文风格…</a>
 </h2>
 <p>看完了，总体感受挺好，至少在一致性上传承了非常经典的英文风格，我倒觉得比那个所谓袁红兵代笔的仿作要好太多。两点感受：1、在解严三十年，总统直选二十年后，台湾才来得及成立真相与和解委员会，才有实现转型正义的三年规划。可见转型正义这个主体是多么沉重和脆弱。2、蔡政府面临的问题与亟待推进...全文： http://m.weibo.cn/2774892563/3977229769588557<br><img src="http://ww2.sinaimg.cn/large/a5658013gw1f41vn2jwqjj20514xvtmd.jpg"></p>
@@ -132,12 +138,6 @@
 <p>520演說<br><img src="http://ww1.sinaimg.cn/large/c1d2c5a4jw1f41rz6yci8j20c36a1npd.jpg"></p>
 <p>
 	<small> ============== 4小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3977194407385249" target="freeweibo-mirror">SPAM //@谢文:刚刚信誓旦旦地说过不扣帽子，不抓辫子，…</a>
-</h2>
-<p>SPAM //@谢文:刚刚信誓旦旦地说过不扣帽子，不抓辫子，不打棍子，接着就棍子帽子辫子齐飞，没一点诚意，没一丝信用。 //@罗昌平:[熊猫]//@周博通炳钻: //@LifeTime:[瞧瞧]<br><br>RE: 和我书里的预测完全相符<br><img src="http://ww2.sinaimg.cn/large/88d5e7begw1f40rpbsnyjj20ku0vun19.jpg"></p>
-<p>
-	<small> ============== 5小时前</small>
 </p>
 <table>
     <tr>
