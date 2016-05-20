@@ -77,7 +77,7 @@
 </h2>
 <p>[赞] //@况秀猛:什么时候海岸这边也有一位女领导[偷笑] //@喷嚏网铂程:转发微博<br><br>RE: 今天将是载入史册的一天！ http://t.cn/RyhW8OV<br><img src="http://ww4.sinaimg.cn/large/73570bbdjw1f41hbfpnazj20hm11078o.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3977123779918534" target="freeweibo-mirror">SPAM //@晓晓的盛夏微微凉：原来往事并不如烟，过去的终…</a>
 </h2>
@@ -113,7 +113,7 @@
 </h2>
 <p>今天是台湾人民划时代的大日子，台湾人民作为华夏文化圈的一员，走在了自由、民主、法治的道路上，人民远离暴政，保证了免于恐惧的权利，祝福台湾人民！</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3977114246180758" target="freeweibo-mirror">SPAM 台湾的巨幅广告上写‘台湾最美丽的风景是台湾人’，深…</a>
 </h2>
