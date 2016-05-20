@@ -77,7 +77,7 @@
 </h2>
 <p>从50年代“中国人民一定要解放台湾”到今天“一个中国前提下什么都可以谈”……现在人家连一个中国都不认，小岛岛气暴戾，蹬鼻子上脸，大陆路无可退，糖豆哄孩办法彻底不灵。似不能停留在反分裂法原则陈述上，立了规矩就要坚决按规矩办，糖豆豆黑豆豆，两种东西都要有，两手都要硬。<br><img src="http://ww2.sinaimg.cn/large/4b4e0e98jw1f41yrv0paej20gh0rtain.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3977258202933105" target="freeweibo-mirror">SPAM 天安门那个是什么鬼？</a>
 </h2>
