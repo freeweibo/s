@@ -53,13 +53,13 @@
 </h2>
 <p>你懂的<br><br>RE: 【一年半三履新 王小洪任公安部副部长 】（记者 林韵诗）5月20日，人社部官网发布最新一期国务院任免国家工作人员名单，北京市副市长、市公安局长王小洪出任公安部副部长。这是2014年底才跻身副省部级的王小洪，在一年半时间内的第三次履新。 http://t.cn/RqsVw8s<br><img src="http://ww3.sinaimg.cn/large/632dab64jw1f41tc26jsqj20dc08wq4h.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3977210979317170" target="freeweibo-mirror">SPAM 这个演讲好。和平与善意，关注民意民生。</a>
 </h2>
 <p>SPAM 这个演讲好。和平与善意，关注民意民生。<br><br>RE: 全文，如图：<br><img src="http://ww2.sinaimg.cn/large/006qEEUFjw1f41pjbd9nuj30icdhokjm.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3977209691395348" target="freeweibo-mirror">【一年半三履新 王小洪任公安部副部长 】（记者 林韵诗）5月…</a>
 </h2>
@@ -97,6 +97,12 @@
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3977197892724385" target="freeweibo-mirror">520演說</a>
+</h2>
+<p>520演說<br><img src="http://ww1.sinaimg.cn/large/c1d2c5a4jw1f41rz6yci8j20c36a1npd.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3977194407385249" target="freeweibo-mirror">SPAM //@谢文:刚刚信誓旦旦地说过不扣帽子，不抓辫子，…</a>
 </h2>
 <p>SPAM //@谢文:刚刚信誓旦旦地说过不扣帽子，不抓辫子，不打棍子，接着就棍子帽子辫子齐飞，没一点诚意，没一丝信用。 //@罗昌平:[熊猫]//@周博通炳钻: //@LifeTime:[瞧瞧]<br><br>RE: 和我书里的预测完全相符<br><img src="http://ww2.sinaimg.cn/large/88d5e7begw1f40rpbsnyjj20ku0vun19.jpg"></p>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3977182613039202" target="freeweibo-mirror">估计是得考虑意识形态要求的意思。[挖鼻][挖鼻]//@来去之…</a>
 </h2>
 <p>估计是得考虑意识形态要求的意思。[挖鼻][挖鼻]//@来去之间:前三条可以理解，第四条啥意思？不讨论意识形态问题不是好事儿么？<br><br>RE: 和我书里的预测完全相符<br><img src="http://ww2.sinaimg.cn/large/88d5e7begw1f40rpbsnyjj20ku0vun19.jpg"></p>
-<p>
-	<small> ============== 4小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3977182026028012" target="freeweibo-mirror">两岸关系 http://t.cn/RqsXYMA .</a>
-</h2>
-<p>两岸关系 http://t.cn/RqsXYMA .</p>
 <p>
 	<small> ============== 4小时前</small>
 </p>
