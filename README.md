@@ -19,6 +19,18 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3977298300494955" target="freeweibo-mirror">查明真相，合理要求。</a>
+</h2>
+<p>查明真相，合理要求。<br><br>RE: 【北京昌平检察院约见雷洋家属核实情况 当场收下家属请求书】今日下午，北京市昌平区检察院约见了雷洋家属吴某某，向其核实情况征求意见。雷洋的家属随后向昌平区检察院提交了书面请求，要求检方对雷洋被害一案立案侦查。雷洋案代理律师表示，检方当场收下了书面请求。http://t.cn/RqsQYJr<br><img src="http://ww1.sinaimg.cn/large/005EHRy1gw1f420867r3dj30g40lqtai.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3977293502706515" target="freeweibo-mirror">//@孔维嘉://@所感所想所悟://@珠海小魚女://@正…</a>
+</h2>
+<p>//@孔维嘉://@所感所想所悟://@珠海小魚女://@正能量地球人2016: //@齐河律师: 转发微博<br><br>RE: 【北京昌平检察院约见雷洋家属核实情况 当场收下家属请求书】今日下午，北京市昌平区检察院约见了雷洋家属吴某某，向其核实情况征求意见。雷洋的家属随后向昌平区检察院提交了书面请求，要求检方对雷洋被害一案立案侦查。雷洋案代理律师表示，检方当场收下了书面请求。http://t.cn/RqsQYJr<br><img src="http://ww1.sinaimg.cn/large/005EHRy1gw1f420867r3dj30g40lqtai.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3977286435223367" target="freeweibo-mirror">SPAM [挖鼻]这诗能代表京籍诗人的平均水准吗？@大仙</a>
 </h2>
 <p>SPAM [挖鼻]这诗能代表京籍诗人的平均水准吗？@大仙</p>
@@ -71,13 +83,13 @@
 </h2>
 <p>SPAM 天安门那个是什么鬼？<br><br>RE: 冥煮的呆湾打破了时差的桎梏，成功让台北与华盛顿同时沐浴在阳光下<br><img src="http://ww3.sinaimg.cn/large/6715afcfgw1f41shxu41lj20l40bsq4m.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3977257896890865" target="freeweibo-mirror">！！！//@大鼻涕将军:同意楼主！有个整天叨叨武统台湾的同事…</a>
 </h2>
 <p>！！！//@大鼻涕将军:同意楼主！有个整天叨叨武统台湾的同事，有一天我问他，让你儿子站在登陆艇铁门后面第一排，你愿意不？ 然后，他再也不说了。<br><br>RE: 凡是 表明 武统台湾 的，都是五毛或没有政治常识的。以前毛在时候，都没有统。现在，更不可能。对政治家而言，和平时代对同宗的中国人发生战争，就是民族罪人。这个历史罪名，谁也不会去背的。说到强大，上世纪70年代的时候，我们还在阶级斗争的时候，台湾就是亚洲四小龙了。我们刚开始改革开放的时候...全文： http://m.weibo.cn/1652811601/3977181661415060</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3977252750386873" target="freeweibo-mirror">装逼还装出情操来了，当年国民党杀了多少共产党啊，连杨开慧宋振…</a>
 </h2>
@@ -124,18 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3977231254737799" target="freeweibo-mirror">「它們有著世界上最多的電視觀眾，可它們卻不敢讓它們的電視觀眾…</a>
 </h2>
 <p>「它們有著世界上最多的電視觀眾，可它們卻不敢讓它們的電視觀眾觀看全球矚目的總統就職典禮。」——海外觀察人士 http://t.cn/RqsalHW</p>
-<p>
-	<small> ============== 6小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3977229769588557" target="freeweibo-mirror">看完了，总体感受挺好，至少在一致性上传承了非常经典的英文风格…</a>
-</h2>
-<p>看完了，总体感受挺好，至少在一致性上传承了非常经典的英文风格，我倒觉得比那个所谓袁红兵代笔的仿作要好太多。两点感受：1、在解严三十年，总统直选二十年后，台湾才来得及成立真相与和解委员会，才有实现转型正义的三年规划。可见转型正义这个主体是多么沉重和脆弱。2、蔡政府面临的问题与亟待推进...全文： http://m.weibo.cn/2774892563/3977229769588557<br><img src="http://ww2.sinaimg.cn/large/a5658013gw1f41vn2jwqjj20514xvtmd.jpg"></p>
-<p>
-	<small> ============== 6小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3977228780147111" target="freeweibo-mirror">呃//@如东民警李Sir:地球是平的[笑cry]//@囧字当…</a>
-</h2>
-<p>呃//@如东民警李Sir:地球是平的[笑cry]//@囧字当头:谁说地球是圆的，天圆地方，中华正统在台湾[doge]//@河之虾:我醉了！这北京和华盛顿能同时拥有一个太阳光。确实是不愧为诈骗岛！<br><br>RE: 冥煮的呆湾打破了时差的桎梏，成功让台北与华盛顿同时沐浴在阳光下<br><img src="http://ww3.sinaimg.cn/large/6715afcfgw1f41shxu41lj20l40bsq4m.jpg"></p>
 <p>
 	<small> ============== 6小时前</small>
 </p>
