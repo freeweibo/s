@@ -47,7 +47,7 @@
 </h2>
 <p>SPAM 小马哥是一手好牌打到烂，蔡老师会一手烂牌输到尽。稍有不慎，结局未必比阿扁好。。。呵呵，听人说C家在上海的楼盘快要开盘了。//@ECO中文网: [思考]//@华杉2009:不看好。批评前任太狠，未来调门太高，不像就职演说，倒像是竞选演说。政府没那么大力量。她做做就知道自己其实做不成啥事，慢慢学习吧<br><br>RE: 全文，如图：<br><img src="http://ww2.sinaimg.cn/large/006qEEUFjw1f41pjbd9nuj30icdhokjm.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3977215727044093" target="freeweibo-mirror">//@徐幸起: 转发微博</a>
 </h2>
@@ -113,7 +113,7 @@
 </h2>
 <p>SPAM 吃笔抄更有效！<br><br>RE: SPAM 【新疆、云南干部异口同声：党章是最好的胎教】“党章党规是最好的胎教”，怀二胎4月参加竞赛的（云南）陇川县防震减灾局副局长李擎说。新疆医科大一附院党办三孕妇也是如此说…<br><img src="http://ww1.sinaimg.cn/large/6a80bfcdgw1f41s4j5hr3j20m80ci76p.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3977201378477189" target="freeweibo-mirror">想把手伸到对岸来，统一管理两岸事务？ //@李鸿文在深圳:小…</a>
 </h2>
