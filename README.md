@@ -31,6 +31,12 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3977161456938518" target="freeweibo-mirror">【统独两派现场“对掐”】http://t.cn/RqsxKM…</a>
+</h2>
+<p>【统独两派现场“对掐”】http://t.cn/RqsxKMD<br><img src="http://ww4.sinaimg.cn/large/6298156bjw1f41nsj7ngyj20go0b5aaw.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3977160530570179" target="freeweibo-mirror">SPAM #今日贴纸打卡#看這模樣，不是個別部門單位的獨活創…</a>
 </h2>
 <p>SPAM #今日贴纸打卡#看這模樣，不是個別部門單位的獨活創意，而是自上而下的政治任務佈置。呵呵！<br><img src="http://ww3.sinaimg.cn/large/5937c055jw1f41nnjo0jcj20zk0jzgoh.jpg"></p>
@@ -47,7 +53,7 @@
 </h2>
 <p>SPAM 干活的～ //@华夏跰趾:何许人也？未来储君？？[围观][围观][围观]<br><br>RE: 【王小洪势头甚猛，17个月里职务5次任命】<br><img src="http://ww4.sinaimg.cn/large/6f3dc6ddgw1f41m41l0rtj20b40dwmxt.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3977153974351864" target="freeweibo-mirror">今天距蒋经国开放党禁、报禁近三十年，政党轮替已成常态。此时我…</a>
 </h2>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3977123779918534" target="freeweibo-mirror">SPAM //@晓晓的盛夏微微凉：原来往事并不如烟，过去的终…</a>
 </h2>
 <p>SPAM //@晓晓的盛夏微微凉：原来往事并不如烟，过去的终不会过去… //@章诒和:谢谢牛津！</p>
-<p>
-	<small> ============== 5小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3977120940560756" target="freeweibo-mirror">四年一次520。</a>
-</h2>
-<p>四年一次520。</p>
 <p>
 	<small> ============== 5小时前</small>
 </p>
