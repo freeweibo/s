@@ -29,7 +29,7 @@
 </h2>
 <p>//@陕西德盛传媒: 转发微博<br><br>RE: 今天将是载入史册的一天！ http://t.cn/RyhW8OV<br><img src="http://ww4.sinaimg.cn/large/73570bbdjw1f41hbfpnazj20hm11078o.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3977129966413040" target="freeweibo-mirror">[赞] //@况秀猛:什么时候海岸这边也有一位女领导[偷笑]…</a>
 </h2>
