@@ -31,6 +31,24 @@
 <p>
 	<small> ============== 1小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3977144306615218" target="freeweibo-mirror">SPAM //@中華保釣號: //@徐昕:祝福台湾[心]</a>
+</h2>
+<p>SPAM //@中華保釣號: //@徐昕:祝福台湾[心]<br><br>RE: 【华人社会首位“女总统”履职，直播】中華民國總統.副總統就職慶祝大會 網路直播 : 1. 總統府官網首頁: http://t.cn/aFLAKa 2. YouTube: http://t.cn/RqFxAZZ 3. hievent: http://t.cn/RqFGqu0 第三个不用翻墙可以直接打开<br><img src="http://ww4.sinaimg.cn/large/918d47a2gw1f41l64eospj20zk0qotbs.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3977141991735000" target="freeweibo-mirror">SPAM 祝福台湾[心]</a>
+</h2>
+<p>SPAM 祝福台湾[心]<br><br>RE: 【华人社会首位“女总统”履职，直播】中華民國總統.副總統就職慶祝大會 網路直播 : 1. 總統府官網首頁: http://t.cn/aFLAKa 2. YouTube: http://t.cn/RqFxAZZ 3. hievent: http://t.cn/RqFGqu0 第三个不用翻墙可以直接打开<br><img src="http://ww4.sinaimg.cn/large/918d47a2gw1f41l64eospj20zk0qotbs.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3977136124158100" target="freeweibo-mirror">以前的李登辉、陈水扁、马英九都是独裁暴政？真你妈猪队友啊，为…</a>
+</h2>
+<p>以前的李登辉、陈水扁、马英九都是独裁暴政？真你妈猪队友啊，为什么不给这个逗逼建个特区让他们自玩自嗨呢。<br><br>RE: 今天是台湾人民划时代的大日子，台湾人民作为华夏文化圈的一员，走在了自由、民主、法治的道路上，人民远离暴政，保证了免于恐惧的权利，祝福台湾人民！</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3977132550077705" target="freeweibo-mirror">SPAM //@昕静自然好: //@晓晓的盛夏微微凉：原来往…</a>
 </h2>
 <p>SPAM //@昕静自然好: //@晓晓的盛夏微微凉：原来往事并不如烟，过去的终不会过去… //@章诒和:谢谢牛津！</p>
@@ -67,9 +85,21 @@
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3977120474219965" target="freeweibo-mirror">SPAM [话筒]//@刘军宁: [话筒] //@章诒和:谢…</a>
+</h2>
+<p>SPAM [话筒]//@刘军宁: [话筒] //@章诒和:谢谢牛津！</p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3977120163845572" target="freeweibo-mirror">SPAM //@章诒和:谢谢牛津！</a>
 </h2>
 <p>SPAM //@章诒和:谢谢牛津！</p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3977114246180758" target="freeweibo-mirror">SPAM 台湾的巨幅广告上写‘台湾最美丽的风景是台湾人’，深…</a>
+</h2>
+<p>SPAM 台湾的巨幅广告上写‘台湾最美丽的风景是台湾人’，深以为然。社会治理成功的结果//@迟夙生律师:[鲜花] //@摸着良心观社会:此时唯一的心境是感谢台湾，因为有你们，才知道我们要继续的目标和动力，祝福台湾！！！[心][赞]<br><br>RE: 今天将是载入史册的一天！ http://t.cn/RyhW8OV<br><img src="http://ww4.sinaimg.cn/large/73570bbdjw1f41hbfpnazj20hm11078o.jpg"></p>
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
@@ -83,7 +113,7 @@
 </h2>
 <p>//@粉雨://@阿瑟queen://@LifeTime:魏则西事件后，莆田系、百度毫发未损，官方却顺手牵羊：所有导航网站都被强行将党媒们置顶。这与百度强行给用户“推广”医疗机构的劣性有何区别？[生病]<br><br>RE: 网址导航站现在全都姓党了。<br><img src="http://ww1.sinaimg.cn/large/59183920gw1f40hz6v7xdj20xl0kfthq.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3977107048486805" target="freeweibo-mirror">[哈哈] //@金刚:[蜡烛] //@-荡空山-:看看这个时…</a>
 </h2>
@@ -108,36 +138,6 @@
 <p>[蜡烛] //@-荡空山-:看看这个时代，我好想退出游戏重新开档。。。//@LifeTime:魏则西事件后，莆田系、百度毫发未损，官方却顺手牵羊：所有导航网站都被强行将党媒们置顶。这与百度强行给用户“推广”医疗机构的劣性有何区别？[生病]<br><br>RE: 网址导航站现在全都姓党了。<br><img src="http://ww1.sinaimg.cn/large/59183920gw1f40hz6v7xdj20xl0kfthq.jpg"></p>
 <p>
 	<small> ============== 4小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3977093237036651" target="freeweibo-mirror">@章诒和 關於文革他們的記憶 http://t.cn/Rqs…</a>
-</h2>
-<p>@章诒和 關於文革他們的記憶 http://t.cn/Rqsb7JJ<br><img src="http://ww3.sinaimg.cn/large/63e45c26jw1f41fyk53dmj20hs0d6411.jpg"></p>
-<p>
-	<small> ============== 4小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3977091776896982" target="freeweibo-mirror">//@LifeTime:魏则西事件后，莆田系、百度毫发未损，…</a>
-</h2>
-<p>//@LifeTime:魏则西事件后，莆田系、百度毫发未损，官方却顺手牵羊：所有导航网站都被强行将党媒们置顶。这与百度强行给用户“推广”医疗机构的劣性有何区别？[生病]<br><br>RE: 网址导航站现在全都姓党了。<br><img src="http://ww1.sinaimg.cn/large/59183920gw1f40hz6v7xdj20xl0kfthq.jpg"></p>
-<p>
-	<small> ============== 5小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3977087808759894" target="freeweibo-mirror">除了焦点处多了一块外，没发现其他有什么变化//@游云庭律师:…</a>
-</h2>
-<p>除了焦点处多了一块外，没发现其他有什么变化//@游云庭律师:不要脸<br><br>RE: 网址导航站现在全都姓党了。<br><img src="http://ww1.sinaimg.cn/large/59183920gw1f40hz6v7xdj20xl0kfthq.jpg"></p>
-<p>
-	<small> ============== 5小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3977083492792138" target="freeweibo-mirror">雷洋一事，长时间内舆论热度不减，在于它刺痛了一个庞大中坚群体…</a>
-</h2>
-<p>雷洋一事，长时间内舆论热度不减，在于它刺痛了一个庞大中坚群体的神经，事件使得这个群体油然而生地产生恐惧感。一个成语“人人自危”可以用来形容这个庞大群体目前内心的想法。雷洋之死，和以往任何一次媒体曝光的不正常死亡事件都不同，甚至比孙志刚还更触及灵魂。中国人开始深刻体会到什么是“免于...全文： http://m.weibo.cn/1299166353/3977083492792138</p>
-<p>
-	<small> ============== 5小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3977065642573733" target="freeweibo-mirror">//@何兵:@Fanny77_88:这次给林诗人点个赞[go…</a>
-</h2>
-<p>//@何兵:@Fanny77_88:这次给林诗人点个赞[good] //@柳林清幽:挺难得的。@被淹死的鲔鱼://@冰海雪涛44:顶芳芳<br><br>RE: 雷洋案件，让我又一次看清楚了一些人。他们先用“捡到一个图片”的方式，拼命给死者泼污水，试图告诉人们，此人是色狼人渣，该死。接着，他们挖出雷洋官员身份，试图用这种方式让质疑的公知们闭嘴，结果也毫无作用。然后，有人开始破口大骂，骂雷洋妻子，骂那个刚刚出生的孩子。那些人，真的太邪恶了！</p>
-<p>
-	<small> ============== 6小时前</small>
 </p>
 <table>
     <tr>
