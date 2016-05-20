@@ -53,7 +53,7 @@
 </h2>
 <p>从50年代“中国人民一定要解放台湾”到今天“一个中国前提下什么都可以谈”……现在人家连一个中国都不认，小岛岛气暴戾，蹬鼻子上脸，大陆路无可退，糖豆哄孩办法彻底不灵。似不能停留在反分裂法原则陈述上，立了规矩就要坚决按规矩办，糖豆豆黑豆豆，两种东西都要有，两手都要硬。<br><img src="http://ww2.sinaimg.cn/large/4b4e0e98jw1f41yrv0paej20gh0rtain.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3977258202933105" target="freeweibo-mirror">SPAM 天安门那个是什么鬼？</a>
 </h2>
@@ -125,7 +125,7 @@
 </h2>
 <p>呃//@如东民警李Sir:地球是平的[笑cry]//@囧字当头:谁说地球是圆的，天圆地方，中华正统在台湾[doge]//@河之虾:我醉了！这北京和华盛顿能同时拥有一个太阳光。确实是不愧为诈骗岛！<br><br>RE: 冥煮的呆湾打破了时差的桎梏，成功让台北与华盛顿同时沐浴在阳光下<br><img src="http://ww3.sinaimg.cn/large/6715afcfgw1f41shxu41lj20l40bsq4m.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3977222165153819" target="freeweibo-mirror">“国家不会因为领导人而伟大，全体国民的共同奋斗，才让这个国家…</a>
 </h2>
