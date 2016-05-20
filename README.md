@@ -43,6 +43,18 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3977150157902270" target="freeweibo-mirror">【排斥民主的诸种理由与方法】1）那是虚伪的，背后还是资本和财…</a>
+</h2>
+<p>【排斥民主的诸种理由与方法】1）那是虚伪的，背后还是资本和财阀在控制；2）国民教育水准太低，需要提升。这算是一个比较坦率的理由，但也不成立；3）虽然没有选举，但执政者比选举出来的人更能够代表人民利益，因而使一种实质性的民主；4）民主没有固定定义，提出一些搅混水式的概念，例如“九总统制...全文： http://m.weibo.cn/1216766752/3977150157902270</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3977147024927505" target="freeweibo-mirror">【王小洪势头甚猛，17个月里职务5次任命】</a>
+</h2>
+<p>【王小洪势头甚猛，17个月里职务5次任命】<br><img src="http://ww4.sinaimg.cn/large/6f3dc6ddgw1f41m41l0rtj20b40dwmxt.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3977144726230393" target="freeweibo-mirror">见贤思齐，蒋经国做到了，国民党于是也就做到了。</a>
 </h2>
 <p>见贤思齐，蒋经国做到了，国民党于是也就做到了。<br><br>RE: 【华人社会首位“女总统”履职，直播】中華民國總統.副總統就職慶祝大會 網路直播 : 1. 總統府官網首頁: http://t.cn/aFLAKa 2. YouTube: http://t.cn/RqFxAZZ 3. hievent: http://t.cn/RqFGqu0 第三个不用翻墙可以直接打开<br><img src="http://ww4.sinaimg.cn/large/918d47a2gw1f41l64eospj20zk0qotbs.jpg"></p>
@@ -126,18 +138,6 @@
 <p>SPAM //@章诒和:谢谢牛津！</p>
 <p>
 	<small> ============== 4小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3977115470204154" target="freeweibo-mirror">今天是台湾人民划时代的大日子，台湾人民作为华夏文化圈的一员，…</a>
-</h2>
-<p>今天是台湾人民划时代的大日子，台湾人民作为华夏文化圈的一员，走在了自由、民主、法治的道路上，人民远离暴政，保证了免于恐惧的权利，祝福台湾人民！</p>
-<p>
-	<small> ============== 5小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3977114246180758" target="freeweibo-mirror">SPAM 台湾的巨幅广告上写‘台湾最美丽的风景是台湾人’，深…</a>
-</h2>
-<p>SPAM 台湾的巨幅广告上写‘台湾最美丽的风景是台湾人’，深以为然。社会治理成功的结果//@迟夙生律师:[鲜花] //@摸着良心观社会:此时唯一的心境是感谢台湾，因为有你们，才知道我们要继续的目标和动力，祝福台湾！！！[心][赞]<br><br>RE: 今天将是载入史册的一天！ http://t.cn/RyhW8OV<br><img src="http://ww4.sinaimg.cn/large/73570bbdjw1f41hbfpnazj20hm11078o.jpg"></p>
-<p>
-	<small> ============== 5小时前</small>
 </p>
 <table>
     <tr>
