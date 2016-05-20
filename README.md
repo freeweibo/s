@@ -41,7 +41,7 @@
 </h2>
 <p>SPAM //@谢文:刚刚信誓旦旦地说过不扣帽子，不抓辫子，不打棍子，接着就棍子帽子辫子齐飞，没一点诚意，没一丝信用。 //@罗昌平:[熊猫]//@周博通炳钻: //@LifeTime:[瞧瞧]<br><br>RE: 和我书里的预测完全相符<br><img src="http://ww2.sinaimg.cn/large/88d5e7begw1f40rpbsnyjj20ku0vun19.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3977192863583679" target="freeweibo-mirror">[哈哈]//@公平正义是立国之本: 在薄粉眼里，支持习主席的…</a>
 </h2>
