@@ -37,6 +37,12 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3977215727044093" target="freeweibo-mirror">//@徐幸起: 转发微博</a>
+</h2>
+<p>//@徐幸起: 转发微博<br><br>RE: 小英说：国家不会因为领导人而伟大；全体国民的共同奋斗，才让这个国家伟大。总统该团结的不只是支持者，总统该团结的是整个国家。团结是为了改变，这是我对这个国家最深切的期待。在这裡我要诚恳地呼吁，请给这个国家一个机会，让我们抛下成见，抛下过去的对立，我们一起来完成新时代交给我们的使命。<br><img src="http://ww4.sinaimg.cn/large/53bd81b0jw1f41sl843s4j206r4xvaq4.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3977213903141443" target="freeweibo-mirror">SPAM 演说全文</a>
 </h2>
 <p>SPAM 演说全文<br><br>RE: 全文，如图：<br><img src="http://ww2.sinaimg.cn/large/006qEEUFjw1f41pjbd9nuj30icdhokjm.jpg"></p>
@@ -70,6 +76,12 @@
 	<a href="https://freeweibo.com/weibo/3977209364074086" target="freeweibo-mirror">//@王其挡010:替搜狐[赞啊]//@草民正华N://@萧…</a>
 </h2>
 <p>//@王其挡010:替搜狐[赞啊]//@草民正华N://@萧迪居04://@心一飞一翔II: 呵呵，媒体也要这样才能发[哈哈]//@小猫小狗_74635: //@又来金好多://@-农妇:转//@笨笨an:转发微博<br><br>RE: 全文，如图：<br><img src="http://ww2.sinaimg.cn/large/006qEEUFjw1f41pjbd9nuj30icdhokjm.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3977206605246504" target="freeweibo-mirror">//@扁头Sean: 转发微博</a>
+</h2>
+<p>//@扁头Sean: 转发微博<br><br>RE: 全文，如图：<br><img src="http://ww2.sinaimg.cn/large/006qEEUFjw1f41pjbd9nuj30icdhokjm.jpg"></p>
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
@@ -124,18 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3977191219721610" target="freeweibo-mirror">SPAM 改变年轻人的处境，就是改变这个国家的处境[haha…</a>
 </h2>
 <p>SPAM 改变年轻人的处境，就是改变这个国家的处境[haha]<br><br>RE: 全文，如图：<br><img src="http://ww2.sinaimg.cn/large/006qEEUFjw1f41pjbd9nuj30icdhokjm.jpg"></p>
-<p>
-	<small> ============== 4小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3977184429231295" target="freeweibo-mirror">SPAM 你前进的每一步，都是我们所期待的梦想！</a>
-</h2>
-<p>SPAM 你前进的每一步，都是我们所期待的梦想！<br><br>RE: 感謝臺灣，她告訴世界：華人區域是可以實現民主的，在華人區域實現民主不會帶來什麼動亂，更別談什麼「亡黨亡國」，中國改朝換代，國從未亡過。民主能帶來繁榮，民主和華人的文化並不相斥！所謂特殊「國情」，國人素質低下不适合民的論調，都是借口。祝福台灣，民主保佑台灣，人民百姓享有尊嚴和幸福！<br><img src="http://ww2.sinaimg.cn/large/006tkCK2gw1f41p9mfrdkj306y08cwen.jpg"></p>
-<p>
-	<small> ============== 4小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3977182613039202" target="freeweibo-mirror">估计是得考虑意识形态要求的意思。[挖鼻][挖鼻]//@来去之…</a>
-</h2>
-<p>估计是得考虑意识形态要求的意思。[挖鼻][挖鼻]//@来去之间:前三条可以理解，第四条啥意思？不讨论意识形态问题不是好事儿么？<br><br>RE: 和我书里的预测完全相符<br><img src="http://ww2.sinaimg.cn/large/88d5e7begw1f40rpbsnyjj20ku0vun19.jpg"></p>
 <p>
 	<small> ============== 4小时前</small>
 </p>
