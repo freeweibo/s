@@ -23,7 +23,7 @@
 </h2>
 <p>SPAM //@昕静自然好: //@晓晓的盛夏微微凉：原来往事并不如烟，过去的终不会过去… //@章诒和:谢谢牛津！</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3977132079902177" target="freeweibo-mirror">//@陕西德盛传媒: 转发微博</a>
 </h2>
@@ -113,7 +113,7 @@
 </h2>
 <p>除了焦点处多了一块外，没发现其他有什么变化//@游云庭律师:不要脸<br><br>RE: 网址导航站现在全都姓党了。<br><img src="http://ww1.sinaimg.cn/large/59183920gw1f40hz6v7xdj20xl0kfthq.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3977083492792138" target="freeweibo-mirror">雷洋一事，长时间内舆论热度不减，在于它刺痛了一个庞大中坚群体…</a>
 </h2>
