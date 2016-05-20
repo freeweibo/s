@@ -19,6 +19,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3977286435223367" target="freeweibo-mirror">SPAM [挖鼻]这诗能代表京籍诗人的平均水准吗？@大仙</a>
+</h2>
+<p>SPAM [挖鼻]这诗能代表京籍诗人的平均水准吗？@大仙</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3977269305058671" target="freeweibo-mirror">[哈哈]//@芳菲7989: 右边[偷笑][给力]//@伶牙…</a>
 </h2>
 <p>[哈哈]//@芳菲7989: 右边[偷笑][给力]//@伶牙俐齿的李医生:舔逼舔出高尚感了//@崔紫剑同志:原po和右边，要不你们举个例子，看看哪国换个省长要拿几千万人头换呗[挖鼻]当国家级政权更替啊？还拿人头换?你俩把台湾当国家么？//@罗昌平:文明与野蛮的区别！<br><br>RE: 握个手就交接了，沒有拿幾千万人頭来换，這是中國歷史上開天辟地的大事變。<br><img src="http://ww4.sinaimg.cn/large/7670e137gw1f41wpclugfj20go0d6754.jpg"></p>
@@ -59,13 +65,13 @@
 </h2>
 <p>SPAM 天安门那个是什么鬼？<br><br>RE: 冥煮的呆湾打破了时差的桎梏，成功让台北与华盛顿同时沐浴在阳光下<br><img src="http://ww3.sinaimg.cn/large/6715afcfgw1f41shxu41lj20l40bsq4m.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3977257896890865" target="freeweibo-mirror">！！！//@大鼻涕将军:同意楼主！有个整天叨叨武统台湾的同事…</a>
 </h2>
 <p>！！！//@大鼻涕将军:同意楼主！有个整天叨叨武统台湾的同事，有一天我问他，让你儿子站在登陆艇铁门后面第一排，你愿意不？ 然后，他再也不说了。<br><br>RE: 凡是 表明 武统台湾 的，都是五毛或没有政治常识的。以前毛在时候，都没有统。现在，更不可能。对政治家而言，和平时代对同宗的中国人发生战争，就是民族罪人。这个历史罪名，谁也不会去背的。说到强大，上世纪70年代的时候，我们还在阶级斗争的时候，台湾就是亚洲四小龙了。我们刚开始改革开放的时候...全文： http://m.weibo.cn/1652811601/3977181661415060</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3977252750386873" target="freeweibo-mirror">装逼还装出情操来了，当年国民党杀了多少共产党啊，连杨开慧宋振…</a>
 </h2>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3977222165153819" target="freeweibo-mirror">“国家不会因为领导人而伟大，全体国民的共同奋斗，才让这个国家…</a>
 </h2>
 <p>“国家不会因为领导人而伟大，全体国民的共同奋斗，才让这个国家伟大。"<br><br>RE: 520演說<br><img src="http://ww1.sinaimg.cn/large/c1d2c5a4jw1f41rz6yci8j20c36a1npd.jpg"></p>
-<p>
-	<small> ============== 6小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3977219636471905" target="freeweibo-mirror">【患者术前嘱家人：如有异常，别不理智】10日，68岁的张先生…</a>
-</h2>
-<p>【患者术前嘱家人：如有异常，别不理智】10日，68岁的张先生在上海一医院手术前给家人留字条：“如发生异常情况，家人不得与院方和医生发生不理智行为。”此前，张先生曾患胃癌、喉癌，治疗中对医务人员充满感激。医生说，工作28年第一次看到这样的字条，没有理由辜负患者的信赖。[心]<br><img src="http://ww4.sinaimg.cn/large/77101dc1jw1f41tzydgqlj20cx0g20tz.jpg"></p>
 <p>
 	<small> ============== 6小时前</small>
 </p>
