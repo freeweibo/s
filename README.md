@@ -43,9 +43,27 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3977182613039202" target="freeweibo-mirror">估计是得考虑意识形态要求的意思。[挖鼻][挖鼻]//@来去之…</a>
+</h2>
+<p>估计是得考虑意识形态要求的意思。[挖鼻][挖鼻]//@来去之间:前三条可以理解，第四条啥意思？不讨论意识形态问题不是好事儿么？<br><br>RE: 和我书里的预测完全相符<br><img src="http://ww2.sinaimg.cn/large/88d5e7begw1f40rpbsnyjj20ku0vun19.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3977182026028012" target="freeweibo-mirror">两岸关系 http://t.cn/RqsXYMA .</a>
 </h2>
 <p>两岸关系 http://t.cn/RqsXYMA .</p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3977177391507547" target="freeweibo-mirror">SPAM 白衣素服，呵呵</a>
+</h2>
+<p>SPAM 白衣素服，呵呵<br><br>RE: 520現場照（六）就職演說ing...<br><img src="http://ww2.sinaimg.cn/large/8b987560jw1f41oofeu0cj20qo0hrgnl.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3977176804736261" target="freeweibo-mirror">SPAM 阿水也玩过</a>
+</h2>
+<p>SPAM 阿水也玩过</p>
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
@@ -118,24 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3977144726230393" target="freeweibo-mirror">见贤思齐，蒋经国做到了，国民党于是也就做到了。</a>
 </h2>
 <p>见贤思齐，蒋经国做到了，国民党于是也就做到了。<br><br>RE: 【华人社会首位“女总统”履职，直播】中華民國總統.副總統就職慶祝大會 網路直播 : 1. 總統府官網首頁: http://t.cn/aFLAKa 2. YouTube: http://t.cn/RqFxAZZ 3. hievent: http://t.cn/RqFGqu0 第三个不用翻墙可以直接打开<br><img src="http://ww4.sinaimg.cn/large/918d47a2gw1f41l64eospj20zk0qotbs.jpg"></p>
-<p>
-	<small> ============== 5小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3977144382327357" target="freeweibo-mirror">SPAM //@程中柳://@中華保釣號: //@徐昕:祝福…</a>
-</h2>
-<p>SPAM //@程中柳://@中華保釣號: //@徐昕:祝福台湾[心]<br><br>RE: 【华人社会首位“女总统”履职，直播】中華民國總統.副總統就職慶祝大會 網路直播 : 1. 總統府官網首頁: http://t.cn/aFLAKa 2. YouTube: http://t.cn/RqFxAZZ 3. hievent: http://t.cn/RqFGqu0 第三个不用翻墙可以直接打开<br><img src="http://ww4.sinaimg.cn/large/918d47a2gw1f41l64eospj20zk0qotbs.jpg"></p>
-<p>
-	<small> ============== 5小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3977144306615218" target="freeweibo-mirror">SPAM //@中華保釣號: //@徐昕:祝福台湾[心]</a>
-</h2>
-<p>SPAM //@中華保釣號: //@徐昕:祝福台湾[心]<br><br>RE: 【华人社会首位“女总统”履职，直播】中華民國總統.副總統就職慶祝大會 網路直播 : 1. 總統府官網首頁: http://t.cn/aFLAKa 2. YouTube: http://t.cn/RqFxAZZ 3. hievent: http://t.cn/RqFGqu0 第三个不用翻墙可以直接打开<br><img src="http://ww4.sinaimg.cn/large/918d47a2gw1f41l64eospj20zk0qotbs.jpg"></p>
-<p>
-	<small> ============== 5小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3977141991735000" target="freeweibo-mirror">SPAM 祝福台湾[心]</a>
-</h2>
-<p>SPAM 祝福台湾[心]<br><br>RE: 【华人社会首位“女总统”履职，直播】中華民國總統.副總統就職慶祝大會 網路直播 : 1. 總統府官網首頁: http://t.cn/aFLAKa 2. YouTube: http://t.cn/RqFxAZZ 3. hievent: http://t.cn/RqFGqu0 第三个不用翻墙可以直接打开<br><img src="http://ww4.sinaimg.cn/large/918d47a2gw1f41l64eospj20zk0qotbs.jpg"></p>
 <p>
 	<small> ============== 5小时前</small>
 </p>
