@@ -83,7 +83,7 @@
 </h2>
 <p>不懂历史的无法想象这一握手的巨大意义，传统上中国的政权都是靠杀人去抢的。<br><img src="http://ww1.sinaimg.cn/large/4d39707fjw1f424zvl2gzj20go0b4wf5.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3977308051665643" target="freeweibo-mirror">说实话，我现在对这种带有浓重鸡汤风韵、干货甚少的台湾式表达越…</a>
 </h2>
