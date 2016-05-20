@@ -19,6 +19,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3977107711080112" target="freeweibo-mirror">//@粉雨://@阿瑟queen://@LifeTime:魏…</a>
+</h2>
+<p>//@粉雨://@阿瑟queen://@LifeTime:魏则西事件后，莆田系、百度毫发未损，官方却顺手牵羊：所有导航网站都被强行将党媒们置顶。这与百度强行给用户“推广”医疗机构的劣性有何区别？[生病]<br><br>RE: 网址导航站现在全都姓党了。<br><img src="http://ww1.sinaimg.cn/large/59183920gw1f40hz6v7xdj20xl0kfthq.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3977107048486805" target="freeweibo-mirror">[哈哈] //@金刚:[蜡烛] //@-荡空山-:看看这个时…</a>
 </h2>
 <p>[哈哈] //@金刚:[蜡烛] //@-荡空山-:看看这个时代，我好想退出游戏重新开档。。。//@LifeTime:魏则西事件后，莆田系、百度毫发未损，官方却顺手牵羊：所有导航网站都被强行将党媒们置顶。这与百度强行给用户“推广”医疗机构的劣性有何区别？[生病]<br><br>RE: 网址导航站现在全都姓党了。<br><img src="http://ww1.sinaimg.cn/large/59183920gw1f40hz6v7xdj20xl0kfthq.jpg"></p>
@@ -35,7 +41,7 @@
 </h2>
 <p>雷洋一事，长时间内舆论热度不减，在于它刺痛了一个庞大中坚群体的神经，事件使得这个群体油然而生地产生恐惧感。一个成语“人人自危”可以用来形容这个庞大群体目前内心的想法。雷洋之死，和以往任何一次媒体曝光的不正常死亡事件都不同，甚至比孙志刚还更触及灵魂。中国人开始深刻体会到什么是“免于...全文： http://m.weibo.cn/1299166353/3977083492792138</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3977065642573733" target="freeweibo-mirror">//@何兵:@Fanny77_88:这次给林诗人点个赞[go…</a>
 </h2>
@@ -53,7 +59,7 @@
 </h2>
 <p>SPAM 今天更新的内容：1️⃣他超过易帝、比肩姚明，比周琦更有希望进入NBA，如今却沦为看客。2️⃣我有一个梦想！就是像他一样把鞋架摆满房间。3️⃣快去练球吧，要不然没几年你就要被小盆友虐了。<br><img src="http://ww2.sinaimg.cn/large/90f58663jw1f410w9eealj20ku1120xi.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3976958679190686" target="freeweibo-mirror">SPAM 喜欢皮蛋的宝宝可以看这里[doge]</a>
 </h2>
@@ -65,13 +71,13 @@
 </h2>
 <p>//@尹鸿: 看来承认有短了……<br><br>RE: 雷洋之死案获得重大突破！北京方面表示“相关人员接受调查，绝不护短”。真相正在一步步迫近！如果没有网民集体声援，没有家属绝不放弃，没有舆论倒逼，是很难走到这一步的。中国法治之路艰难而漫长，我们每一个人都不只是围观者，更是参与者。请大家为自己鼓掌！<br><img src="http://ww3.sinaimg.cn/large/62c109c2gw1f40x7xn17vj20de0eadhk.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3976955194322150" target="freeweibo-mirror">//@不让上网就上你: 卖淫女写收据正常吗//@神游再归来:…</a>
 </h2>
 <p>//@不让上网就上你: 卖淫女写收据正常吗//@神游再归来: //@孔门七十二咸:当年亩产数万斤水稻呢//@不加V是的://@南街个体户凌杰:转发微博<br><br>RE: 有网友认为，“毕节儿童集体自杀会写下遗书”与“雷洋嫖娼会带套套打飞机”一样，极不科学。而我以为，这一切太正常了。在强权政治压倒一切的地方，科学常识与科学结论也是会“被自杀”、“被强奸”的。因为人的良心都死了，也就没有什么常识不能颠覆，而法官的良心死了，强盗的谎言也是呈堂证供。<br><img src="http://ww3.sinaimg.cn/large/006scI7Igw1f40xn8ekfkj30fw0l3wia.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3976953906751086" target="freeweibo-mirror">回复@落井abc下石:人死在警察面前，我不质疑警察，难道去质…</a>
 </h2>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3976892875176857" target="freeweibo-mirror">SPAM 绝不护短</a>
 </h2>
 <p>SPAM 绝不护短<br><br>RE: 媒体你们现在什么素质，黑白都分不清楚[怒]<br><img src="http://ww3.sinaimg.cn/large/623e1d29jw1f40mmqhnu2j20gi0m8n01.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3976891487181683" target="freeweibo-mirror">SPAM //@蒋方舟:……//@黄章晋ster: 足疗女是…</a>
-</h2>
-<p>SPAM //@蒋方舟:……//@黄章晋ster: 足疗女是有心人。<br><br>RE: 媒体你们现在什么素质，黑白都分不清楚[怒]<br><img src="http://ww3.sinaimg.cn/large/623e1d29jw1f40mmqhnu2j20gi0m8n01.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
