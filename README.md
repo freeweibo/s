@@ -23,7 +23,7 @@
 </h2>
 <p>“国家不会因为领导人而伟大，全体国民的共同奋斗，才让这个国家伟大。"<br><br>RE: 520演說<br><img src="http://ww1.sinaimg.cn/large/c1d2c5a4jw1f41rz6yci8j20c36a1npd.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3977219636471905" target="freeweibo-mirror">【患者术前嘱家人：如有异常，别不理智】10日，68岁的张先生…</a>
 </h2>
@@ -107,7 +107,7 @@
 </h2>
 <p>//@一个老实人V: //@北京大兴亦庄张憬民:看来一年前砍死拆迁员的北京大兴亦庄吴子玉家要被强拆啦！</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3977191219721610" target="freeweibo-mirror">SPAM 改变年轻人的处境，就是改变这个国家的处境[haha…</a>
 </h2>
@@ -137,7 +137,7 @@
 </h2>
 <p>SPAM 白衣素服，呵呵<br><br>RE: 520現場照（六）就職演說ing...<br><img src="http://ww2.sinaimg.cn/large/8b987560jw1f41oofeu0cj20qo0hrgnl.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p>
 <table>
     <tr>
