@@ -19,6 +19,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3977184429231295" target="freeweibo-mirror">SPAM 你前进的每一步，都是我们所期待的梦想！</a>
+</h2>
+<p>SPAM 你前进的每一步，都是我们所期待的梦想！<br><br>RE: 感謝臺灣，她告訴世界：華人區域是可以實現民主的，在華人區域實現民主不會帶來什麼動亂，更別談什麼「亡黨亡國」，中國改朝換代，國從未亡過。民主能帶來繁榮，民主和華人的文化並不相斥！所謂特殊「國情」，國人素質低下不适合民的論調，都是借口。祝福台灣，民主保佑台灣，人民百姓享有尊嚴和幸福！<br><img src="http://ww2.sinaimg.cn/large/006tkCK2gw1f41p9mfrdkj306y08cwen.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3977182026028012" target="freeweibo-mirror">两岸关系 http://t.cn/RqsXYMA .</a>
 </h2>
 <p>两岸关系 http://t.cn/RqsXYMA .</p>
@@ -53,7 +59,7 @@
 </h2>
 <p>这次不仅仅是政权的交接!//@围脖摘要:转发微博<br><br>RE: 宣誓<br><img src="http://ww4.sinaimg.cn/large/6d0b6b33gw1f41ku3cba9j20zk0qo7i8.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3977156399352991" target="freeweibo-mirror">零阅读</a>
 </h2>
@@ -89,19 +95,19 @@
 </h2>
 <p>见贤思齐，蒋经国做到了，国民党于是也就做到了。<br><br>RE: 【华人社会首位“女总统”履职，直播】中華民國總統.副總統就職慶祝大會 網路直播 : 1. 總統府官網首頁: http://t.cn/aFLAKa 2. YouTube: http://t.cn/RqFxAZZ 3. hievent: http://t.cn/RqFGqu0 第三个不用翻墙可以直接打开<br><img src="http://ww4.sinaimg.cn/large/918d47a2gw1f41l64eospj20zk0qotbs.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3977144382327357" target="freeweibo-mirror">SPAM //@程中柳://@中華保釣號: //@徐昕:祝福…</a>
 </h2>
 <p>SPAM //@程中柳://@中華保釣號: //@徐昕:祝福台湾[心]<br><br>RE: 【华人社会首位“女总统”履职，直播】中華民國總統.副總統就職慶祝大會 網路直播 : 1. 總統府官網首頁: http://t.cn/aFLAKa 2. YouTube: http://t.cn/RqFxAZZ 3. hievent: http://t.cn/RqFGqu0 第三个不用翻墙可以直接打开<br><img src="http://ww4.sinaimg.cn/large/918d47a2gw1f41l64eospj20zk0qotbs.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3977144306615218" target="freeweibo-mirror">SPAM //@中華保釣號: //@徐昕:祝福台湾[心]</a>
 </h2>
 <p>SPAM //@中華保釣號: //@徐昕:祝福台湾[心]<br><br>RE: 【华人社会首位“女总统”履职，直播】中華民國總統.副總統就職慶祝大會 網路直播 : 1. 總統府官網首頁: http://t.cn/aFLAKa 2. YouTube: http://t.cn/RqFxAZZ 3. hievent: http://t.cn/RqFGqu0 第三个不用翻墙可以直接打开<br><img src="http://ww4.sinaimg.cn/large/918d47a2gw1f41l64eospj20zk0qotbs.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3977141991735000" target="freeweibo-mirror">SPAM 祝福台湾[心]</a>
 </h2>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3977132550077705" target="freeweibo-mirror">SPAM //@昕静自然好: //@晓晓的盛夏微微凉：原来往…</a>
 </h2>
 <p>SPAM //@昕静自然好: //@晓晓的盛夏微微凉：原来往事并不如烟，过去的终不会过去… //@章诒和:谢谢牛津！</p>
-<p>
-	<small> ============== 5小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3977132079902177" target="freeweibo-mirror">//@陕西德盛传媒: 转发微博</a>
-</h2>
-<p>//@陕西德盛传媒: 转发微博<br><br>RE: 今天将是载入史册的一天！ http://t.cn/RyhW8OV<br><img src="http://ww4.sinaimg.cn/large/73570bbdjw1f41hbfpnazj20hm11078o.jpg"></p>
 <p>
 	<small> ============== 5小时前</small>
 </p>
