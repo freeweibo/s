@@ -107,7 +107,7 @@
 </h2>
 <p>下图是台湾蔡英文的就职演说词，給我的印象是蔡英文沒有什麼文化！什麼柏拉圖、黑格爾、康德、馬克思、伏爾泰、尼釆、別爾嘉耶夫、蘇格拉底、羅素⋯⋯所有外國大哲學家、大思想家中，蔡英文在就职演说中沒有提到過一位。台湾人民选出了一位文盲总统。[得意]<br><img src="http://ww4.sinaimg.cn/large/ca98d4a4jw1f423jtzbk5j20d67psb29.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3977298300494955" target="freeweibo-mirror">查明真相，合理要求。</a>
 </h2>
