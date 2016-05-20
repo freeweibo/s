@@ -107,19 +107,19 @@
 </h2>
 <p>SPAM 图？<br><br>RE: 一带一路<br><img src="http://ww2.sinaimg.cn/large/621d03b7jw1f427eq8h6dj20hs0k1q3t.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3977337039470840" target="freeweibo-mirror">哈佛大学法学博士和伦敦政经学院政治学博士的职位交接。//@天…</a>
 </h2>
 <p>哈佛大学法学博士和伦敦政经学院政治学博士的职位交接。//@天天有贼: //@杜君立: 从一场比赛无耻和暴力的游戏，变成一场比赛文明和智慧的公开竞选，政治诞生了。<br><br>RE: 不懂历史的无法想象这一握手的巨大意义，传统上中国的政权都是靠杀人去抢的。<br><img src="http://ww1.sinaimg.cn/large/4d39707fjw1f424zvl2gzj20go0b4wf5.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3977337017943577" target="freeweibo-mirror">还是这届台湾人民不行！ //@杜君立:没有博士文凭就是这样[…</a>
 </h2>
 <p>还是这届台湾人民不行！ //@杜君立:没有博士文凭就是这样[酷]//@加藤蚁: //@左春和:达不到初一水平。<br><br>RE: 下图是台湾蔡英文的就职演说词，給我的印象是蔡英文沒有什麼文化！什麼柏拉圖、黑格爾、康德、馬克思、伏爾泰、尼釆、別爾嘉耶夫、蘇格拉底、羅素⋯⋯所有外國大哲學家、大思想家中，蔡英文在就职演说中沒有提到過一位。台湾人民选出了一位文盲总统。[得意]<br><img src="http://ww4.sinaimg.cn/large/ca98d4a4jw1f423jtzbk5j20d67psb29.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3977333704894733" target="freeweibo-mirror">//@张晨初艺术空间: http://t.cn/RqsmQR…</a>
 </h2>
