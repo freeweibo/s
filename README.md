@@ -59,7 +59,7 @@
 </h2>
 <p>SPAM 【新疆、云南干部异口同声：党章是最好的胎教】“党章党规是最好的胎教”，怀二胎4月参加竞赛的（云南）陇川县防震减灾局副局长李擎说。新疆医科大一附院党办三孕妇也是如此说…<br><img src="http://ww1.sinaimg.cn/large/6a80bfcdgw1f41s4j5hr3j20m80ci76p.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3977194407385249" target="freeweibo-mirror">SPAM //@谢文:刚刚信誓旦旦地说过不扣帽子，不抓辫子，…</a>
 </h2>
@@ -83,7 +83,7 @@
 </h2>
 <p>SPAM 你前进的每一步，都是我们所期待的梦想！<br><br>RE: 感謝臺灣，她告訴世界：華人區域是可以實現民主的，在華人區域實現民主不會帶來什麼動亂，更別談什麼「亡黨亡國」，中國改朝換代，國從未亡過。民主能帶來繁榮，民主和華人的文化並不相斥！所謂特殊「國情」，國人素質低下不适合民的論調，都是借口。祝福台灣，民主保佑台灣，人民百姓享有尊嚴和幸福！<br><img src="http://ww2.sinaimg.cn/large/006tkCK2gw1f41p9mfrdkj306y08cwen.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3977182613039202" target="freeweibo-mirror">估计是得考虑意识形态要求的意思。[挖鼻][挖鼻]//@来去之…</a>
 </h2>
