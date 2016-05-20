@@ -113,7 +113,7 @@
 </h2>
 <p>我发表了头条文章:《蔡英文就职演说：国家是因国民，不因领导人而伟大。》 http://t.cn/RqsuHZG</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3977298640010800" target="freeweibo-mirror">下图是台湾蔡英文的就职演说词，給我的印象是蔡英文沒有什麼文化…</a>
 </h2>
