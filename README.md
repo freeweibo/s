@@ -47,13 +47,13 @@
 </h2>
 <p>SPAM 演说全文<br><br>RE: 全文，如图：<br><img src="http://ww2.sinaimg.cn/large/006qEEUFjw1f41pjbd9nuj30icdhokjm.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3977213378778077" target="freeweibo-mirror">SPAM  //@闾丘露薇:Repost</a>
 </h2>
 <p>SPAM  //@闾丘露薇:Repost<br><br>RE: 全文，如图：<br><img src="http://ww2.sinaimg.cn/large/006qEEUFjw1f41pjbd9nuj30icdhokjm.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3977211340576202" target="freeweibo-mirror">你懂的</a>
 </h2>
@@ -85,6 +85,12 @@
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3977203873694383" target="freeweibo-mirror">//@用户0a94bsrbr9:台湾的明天一定更美好，中华民…</a>
+</h2>
+<p>//@用户0a94bsrbr9:台湾的明天一定更美好，中华民族之幸//@崔小平律师: 转发微博<br><br>RE: 选民创造历史  民选改变社会 http://t.cn/R2W6M4G<br><img src="http://ww1.sinaimg.cn/large/88ff16fdgw1f41pcfp1qpj20pe0df41g.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3977201847929049" target="freeweibo-mirror">SPAM 吃笔抄更有效！</a>
 </h2>
 <p>SPAM 吃笔抄更有效！<br><br>RE: SPAM 【新疆、云南干部异口同声：党章是最好的胎教】“党章党规是最好的胎教”，怀二胎4月参加竞赛的（云南）陇川县防震减灾局副局长李擎说。新疆医科大一附院党办三孕妇也是如此说…<br><img src="http://ww1.sinaimg.cn/large/6a80bfcdgw1f41s4j5hr3j20m80ci76p.jpg"></p>
@@ -113,7 +119,7 @@
 </h2>
 <p>520演說<br><img src="http://ww1.sinaimg.cn/large/c1d2c5a4jw1f41rz6yci8j20c36a1npd.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3977194407385249" target="freeweibo-mirror">SPAM //@谢文:刚刚信誓旦旦地说过不扣帽子，不抓辫子，…</a>
 </h2>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3977192742427148" target="freeweibo-mirror">//@一个老实人V: //@北京大兴亦庄张憬民:看来一年前砍…</a>
 </h2>
 <p>//@一个老实人V: //@北京大兴亦庄张憬民:看来一年前砍死拆迁员的北京大兴亦庄吴子玉家要被强拆啦！</p>
-<p>
-	<small> ============== 4小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3977191219721610" target="freeweibo-mirror">SPAM 改变年轻人的处境，就是改变这个国家的处境[haha…</a>
-</h2>
-<p>SPAM 改变年轻人的处境，就是改变这个国家的处境[haha]<br><br>RE: 全文，如图：<br><img src="http://ww2.sinaimg.cn/large/006qEEUFjw1f41pjbd9nuj30icdhokjm.jpg"></p>
 <p>
 	<small> ============== 4小时前</small>
 </p>
