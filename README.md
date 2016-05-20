@@ -35,19 +35,19 @@
 </h2>
 <p>SPAM 图？<br><br>RE: 一带一路<br><img src="http://ww2.sinaimg.cn/large/621d03b7jw1f427eq8h6dj20hs0k1q3t.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3977337039470840" target="freeweibo-mirror">哈佛大学法学博士和伦敦政经学院政治学博士的职位交接。//@天…</a>
 </h2>
 <p>哈佛大学法学博士和伦敦政经学院政治学博士的职位交接。//@天天有贼: //@杜君立: 从一场比赛无耻和暴力的游戏，变成一场比赛文明和智慧的公开竞选，政治诞生了。<br><br>RE: 不懂历史的无法想象这一握手的巨大意义，传统上中国的政权都是靠杀人去抢的。<br><img src="http://ww1.sinaimg.cn/large/4d39707fjw1f424zvl2gzj20go0b4wf5.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3977337017943577" target="freeweibo-mirror">还是这届台湾人民不行！ //@杜君立:没有博士文凭就是这样[…</a>
 </h2>
 <p>还是这届台湾人民不行！ //@杜君立:没有博士文凭就是这样[酷]//@加藤蚁: //@左春和:达不到初一水平。<br><br>RE: 下图是台湾蔡英文的就职演说词，給我的印象是蔡英文沒有什麼文化！什麼柏拉圖、黑格爾、康德、馬克思、伏爾泰、尼釆、別爾嘉耶夫、蘇格拉底、羅素⋯⋯所有外國大哲學家、大思想家中，蔡英文在就职演说中沒有提到過一位。台湾人民选出了一位文盲总统。[得意]<br><img src="http://ww4.sinaimg.cn/large/ca98d4a4jw1f423jtzbk5j20d67psb29.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3977333704894733" target="freeweibo-mirror">//@张晨初艺术空间: http://t.cn/RqsmQR…</a>
 </h2>
@@ -72,6 +72,12 @@
 <p>//@青春的gw89: //@禁言too: //@喷嚏网铂程:转发微博<br><br>RE: 不懂历史的无法想象这一握手的巨大意义，传统上中国的政权都是靠杀人去抢的。<br><img src="http://ww1.sinaimg.cn/large/4d39707fjw1f424zvl2gzj20go0b4wf5.jpg"></p>
 <p>
 	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3977311609253008" target="freeweibo-mirror">不懂历史的无法想象这一握手的巨大意义，传统上中国的政权都是靠…</a>
+</h2>
+<p>不懂历史的无法想象这一握手的巨大意义，传统上中国的政权都是靠杀人去抢的。<br><img src="http://ww1.sinaimg.cn/large/4d39707fjw1f424zvl2gzj20go0b4wf5.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3977308051665643" target="freeweibo-mirror">说实话，我现在对这种带有浓重鸡汤风韵、干货甚少的台湾式表达越…</a>
 </h2>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3977266478531955" target="freeweibo-mirror">//@男海岸: //@守候者说://@杜君立:能够跳出暴力无…</a>
 </h2>
 <p>//@男海岸: //@守候者说://@杜君立:能够跳出暴力无耻的宫廷阴谋和鸡犬升天的权力私授，中国人也可以成为文明的现代人，这或许已经成为中国与鞑靼的最大区别[熊猫]//@边城酒家: //@罗昌平:文明与野蛮的区别！<br><br>RE: 握个手就交接了，沒有拿幾千万人頭来换，這是中國歷史上開天辟地的大事變。<br><img src="http://ww4.sinaimg.cn/large/7670e137gw1f41wpclugfj20go0d6754.jpg"></p>
-<p>
-	<small> ============== 6小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3977263093308312" target="freeweibo-mirror">SPAM //@邓树林律师://@xugeqi: //@关洪…</a>
-</h2>
-<p>SPAM //@邓树林律师://@xugeqi: //@关洪导演://@浩正刘臻://@崔小平律师://@梅虔:三个自信雄赳赳，小小典礼算个毬，弹丸之地换新君，吓到王朝倾神州？[挖鼻] //@望望_30179:大朝鲜 处处正能量//@权钱jian强法理:小王国啊[太开心] //@吴学谦的微博: //@陌上行者2015: //@刘春龙微博:时常勤拂拭，勿使民智开。<br><br>RE: 勿视，勿听，勿传，坚决抵制负能量<br><img src="http://ww4.sinaimg.cn/large/473f8cfdjw1f41vzmyb8sj207i0dcq3r.jpg"></p>
 <p>
 	<small> ============== 6小时前</small>
 </p>
