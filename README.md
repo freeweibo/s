@@ -19,6 +19,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3977201847929049" target="freeweibo-mirror">SPAM 吃笔抄更有效！</a>
+</h2>
+<p>SPAM 吃笔抄更有效！<br><br>RE: SPAM 【新疆、云南干部异口同声：党章是最好的胎教】“党章党规是最好的胎教”，怀二胎4月参加竞赛的（云南）陇川县防震减灾局副局长李擎说。新疆医科大一附院党办三孕妇也是如此说…<br><img src="http://ww1.sinaimg.cn/large/6a80bfcdgw1f41s4j5hr3j20m80ci76p.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3977201378477189" target="freeweibo-mirror">想把手伸到对岸来，统一管理两岸事务？ //@李鸿文在深圳:小…</a>
 </h2>
 <p>想把手伸到对岸来，统一管理两岸事务？ //@李鸿文在深圳:小英姐绿皮红心，向往海峡对岸。//@四输五尽19: 一个中国的表述？<br><br>RE: “我们的司法已经失去人民的信任，我们的食安问题困扰着每个家庭。”蔡英文这话说的是哪儿？</p>
@@ -71,13 +77,13 @@
 </h2>
 <p>感謝臺灣，她告訴世界：華人區域是可以實現民主的，在華人區域實現民主不會帶來什麼動亂，更別談什麼「亡黨亡國」，中國改朝換代，國從未亡過。民主能帶來繁榮，民主和華人的文化並不相斥！所謂特殊「國情」，國人素質低下不适合民的論調，都是借口。祝福台灣，民主保佑台灣，人民百姓享有尊嚴和幸福！<br><img src="http://ww2.sinaimg.cn/large/006tkCK2gw1f41p9mfrdkj306y08cwen.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3977174203733058" target="freeweibo-mirror">“我们的司法已经失去人民的信任，我们的食安问题困扰着每个家庭…</a>
 </h2>
 <p>“我们的司法已经失去人民的信任，我们的食安问题困扰着每个家庭。”蔡英文这话说的是哪儿？</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3977173038266724" target="freeweibo-mirror">面对九二共识，中国有三股势力，三个流派。民进党：拒绝或婉拒。…</a>
 </h2>
@@ -113,7 +119,7 @@
 </h2>
 <p>这次不仅仅是政权的交接!//@围脖摘要:转发微博<br><br>RE: 宣誓<br><img src="http://ww4.sinaimg.cn/large/6d0b6b33gw1f41ku3cba9j20zk0qo7i8.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3977156399352991" target="freeweibo-mirror">零阅读</a>
 </h2>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3977153974351864" target="freeweibo-mirror">今天距蒋经国开放党禁、报禁近三十年，政党轮替已成常态。此时我…</a>
 </h2>
 <p>今天距蒋经国开放党禁、报禁近三十年，政党轮替已成常态。此时我想到的却是多少人付出的血水泪水汗水，是被囚在景美、绿岛的思想犯、政治犯，是雷震、殷海光们在「自由中国」上的思与言，是「文星」、「大学」、「台湾政论」、「美丽岛」持续不断的努力，「要怎么收获，先那样栽」，胡适明白。<br><img src="http://ww3.sinaimg.cn/large/48fe46d9jw1f41mxpeancj20zk0k077g.jpg"></p>
-<p>
-	<small> ============== 5小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3977150157902270" target="freeweibo-mirror">【排斥民主的诸种理由与方法】1）那是虚伪的，背后还是资本和财…</a>
-</h2>
-<p>【排斥民主的诸种理由与方法】1）那是虚伪的，背后还是资本和财阀在控制；2）国民教育水准太低，需要提升。这算是一个比较坦率的理由，但也不成立；3）虽然没有选举，但执政者比选举出来的人更能够代表人民利益，因而使一种实质性的民主；4）民主没有固定定义，提出一些搅混水式的概念，例如“九总统制...全文： http://m.weibo.cn/1216766752/3977150157902270</p>
 <p>
 	<small> ============== 5小时前</small>
 </p>
