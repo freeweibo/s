@@ -31,6 +31,12 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3977174694042133" target="freeweibo-mirror">感謝臺灣，她告訴世界：華人區域是可以實現民主的，在華人區域實…</a>
+</h2>
+<p>感謝臺灣，她告訴世界：華人區域是可以實現民主的，在華人區域實現民主不會帶來什麼動亂，更別談什麼「亡黨亡國」，中國改朝換代，國從未亡過。民主能帶來繁榮，民主和華人的文化並不相斥！所謂特殊「國情」，國人素質低下不适合民的論調，都是借口。祝福台灣，民主保佑台灣，人民百姓享有尊嚴和幸福！<br><img src="http://ww2.sinaimg.cn/large/006tkCK2gw1f41p9mfrdkj306y08cwen.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3977173038266724" target="freeweibo-mirror">面对九二共识，中国有三股势力，三个流派。民进党：拒绝或婉拒。…</a>
 </h2>
 <p>面对九二共识，中国有三股势力，三个流派。民进党：拒绝或婉拒。国民党：一个中国，各自表述。大陆：只承认一个中国，否认各自表述。显然，只存在谈判，没有达成共识。//@雷公旗: 转发微博<br><br>RE: 【统独两派现场“对掐”】http://t.cn/RqsxKMD<br><img src="http://ww4.sinaimg.cn/large/6298156bjw1f41nsj7ngyj20go0b5aaw.jpg"></p>
@@ -132,12 +138,6 @@
 <p>宣誓<br><img src="http://ww4.sinaimg.cn/large/6d0b6b33gw1f41ku3cba9j20zk0qo7i8.jpg"></p>
 <p>
 	<small> ============== 5小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3977132550077705" target="freeweibo-mirror">SPAM //@昕静自然好: //@晓晓的盛夏微微凉：原来往…</a>
-</h2>
-<p>SPAM //@昕静自然好: //@晓晓的盛夏微微凉：原来往事并不如烟，过去的终不会过去… //@章诒和:谢谢牛津！</p>
-<p>
-	<small> ============== 6小时前</small>
 </p>
 <table>
     <tr>
