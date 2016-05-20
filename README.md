@@ -83,7 +83,7 @@
 </h2>
 <p>SPAM 嗨！我爱这个世界，我也爱你们～么么哒[爱你][爱你]<br><img src="http://ww2.sinaimg.cn/large/4ba87c17gw1f41xwx5rrzj20qo0yg47h.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3977239600830487" target="freeweibo-mirror">握个手就交接了，沒有拿幾千万人頭来换，這是中國歷史上開天辟地…</a>
 </h2>
@@ -107,7 +107,7 @@
 </h2>
 <p>【龙应台：为什么台湾人不想统一？】台湾人已经习惯生活在一个民主体制里，他习惯看到官员为政策错误而被弹劾。他习惯读到报纸对政府的抨击，对领 导人的诘问。他习惯表达对政治人物的取笑和鄙视。他不怕警察，因为有法律保障了他的权利，他发言批评，可以不担心被报复。<br><img src="http://ww1.sinaimg.cn/large/74c7ed63jw1f41w850sfej208c0cgmyg.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3977231254737799" target="freeweibo-mirror">「它們有著世界上最多的電視觀眾，可它們卻不敢讓它們的電視觀眾…</a>
 </h2>
@@ -137,7 +137,7 @@
 </h2>
 <p>【患者术前嘱家人：如有异常，别不理智】10日，68岁的张先生在上海一医院手术前给家人留字条：“如发生异常情况，家人不得与院方和医生发生不理智行为。”此前，张先生曾患胃癌、喉癌，治疗中对医务人员充满感激。医生说，工作28年第一次看到这样的字条，没有理由辜负患者的信赖。[心]<br><img src="http://ww4.sinaimg.cn/large/77101dc1jw1f41tzydgqlj20cx0g20tz.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p>
 <table>
     <tr>
