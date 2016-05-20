@@ -71,7 +71,7 @@
 </h2>
 <p>装逼还装出情操来了，当年国民党杀了多少共产党啊，连杨开慧宋振中这样的妇女儿童都毫不留情的杀掉，现在开始装纯，找个用过的尿片写上文明俩字贴脸上到处显摆，也真有大陆的傻逼去舔的，陈年尿碱是药引子，是制作二逼顺气丸的必需成分，多舔点，发家致富就靠这个了。//@罗昌平: 文明与野蛮的区别！<br><br>RE: 握个手就交接了，沒有拿幾千万人頭来换，這是中國歷史上開天辟地的大事變。<br><img src="http://ww4.sinaimg.cn/large/7670e137gw1f41wpclugfj20go0d6754.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3977251156135929" target="freeweibo-mirror">有的人认为，一切问题的症结在于“钱”：不愿意回归，是因为嫌大…</a>
 </h2>
@@ -101,7 +101,7 @@
 </h2>
 <p>SPAM 520收到来自@网易天谕 的一份大礼～玄极手办一只[馋嘴][馋嘴][馋嘴]感谢！大家520happy～<br><img src="http://ww1.sinaimg.cn/large/4c778ed2gw1f41wgv5se7j20hs0dcabo.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3977234869865057" target="freeweibo-mirror">【龙应台：为什么台湾人不想统一？】台湾人已经习惯生活在一个民…</a>
 </h2>
@@ -131,7 +131,7 @@
 </h2>
 <p>“国家不会因为领导人而伟大，全体国民的共同奋斗，才让这个国家伟大。"<br><br>RE: 520演說<br><img src="http://ww1.sinaimg.cn/large/c1d2c5a4jw1f41rz6yci8j20c36a1npd.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3977219636471905" target="freeweibo-mirror">【患者术前嘱家人：如有异常，别不理智】10日，68岁的张先生…</a>
 </h2>
