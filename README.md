@@ -95,7 +95,7 @@
 </h2>
 <p>[蜡烛] //@-荡空山-:看看这个时代，我好想退出游戏重新开档。。。//@LifeTime:魏则西事件后，莆田系、百度毫发未损，官方却顺手牵羊：所有导航网站都被强行将党媒们置顶。这与百度强行给用户“推广”医疗机构的劣性有何区别？[生病]<br><br>RE: 网址导航站现在全都姓党了。<br><img src="http://ww1.sinaimg.cn/large/59183920gw1f40hz6v7xdj20xl0kfthq.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3977093237036651" target="freeweibo-mirror">@章诒和 關於文革他們的記憶 http://t.cn/Rqs…</a>
 </h2>
