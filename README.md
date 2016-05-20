@@ -23,7 +23,7 @@
 </h2>
 <p>想把手伸到对岸来，统一管理两岸事务？ //@李鸿文在深圳:小英姐绿皮红心，向往海峡对岸。//@四输五尽19: 一个中国的表述？<br><br>RE: “我们的司法已经失去人民的信任，我们的食安问题困扰着每个家庭。”蔡英文这话说的是哪儿？</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3977199264701543" target="freeweibo-mirror">SPAM 【新疆、云南干部异口同声：党章是最好的胎教】“党章…</a>
 </h2>
@@ -119,7 +119,7 @@
 </h2>
 <p>SPAM 干活的～ //@华夏跰趾:何许人也？未来储君？？[围观][围观][围观]<br><br>RE: 【王小洪势头甚猛，17个月里职务5次任命】<br><img src="http://ww4.sinaimg.cn/large/6f3dc6ddgw1f41m41l0rtj20b40dwmxt.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3977153974351864" target="freeweibo-mirror">今天距蒋经国开放党禁、报禁近三十年，政党轮替已成常态。此时我…</a>
 </h2>
