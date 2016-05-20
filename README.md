@@ -19,6 +19,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3977120902455219" target="freeweibo-mirror">SPAM 看台湾，我们有权利憧憬自己的未来，并为之不懈努力。</a>
+</h2>
+<p>SPAM 看台湾，我们有权利憧憬自己的未来，并为之不懈努力。<br><br>RE: 今天将是载入史册的一天！ http://t.cn/RyhW8OV<br><img src="http://ww4.sinaimg.cn/large/73570bbdjw1f41hbfpnazj20hm11078o.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3977107711080112" target="freeweibo-mirror">//@粉雨://@阿瑟queen://@LifeTime:魏…</a>
 </h2>
 <p>//@粉雨://@阿瑟queen://@LifeTime:魏则西事件后，莆田系、百度毫发未损，官方却顺手牵羊：所有导航网站都被强行将党媒们置顶。这与百度强行给用户“推广”医疗机构的劣性有何区别？[生病]<br><br>RE: 网址导航站现在全都姓党了。<br><img src="http://ww1.sinaimg.cn/large/59183920gw1f40hz6v7xdj20xl0kfthq.jpg"></p>
@@ -29,7 +35,7 @@
 </h2>
 <p>[哈哈] //@金刚:[蜡烛] //@-荡空山-:看看这个时代，我好想退出游戏重新开档。。。//@LifeTime:魏则西事件后，莆田系、百度毫发未损，官方却顺手牵羊：所有导航网站都被强行将党媒们置顶。这与百度强行给用户“推广”医疗机构的劣性有何区别？[生病]<br><br>RE: 网址导航站现在全都姓党了。<br><img src="http://ww1.sinaimg.cn/large/59183920gw1f40hz6v7xdj20xl0kfthq.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3977105970842361" target="freeweibo-mirror">@贵观天下:他口是心非，坏着呢！</a>
 </h2>
@@ -47,7 +53,7 @@
 </h2>
 <p>//@LifeTime:魏则西事件后，莆田系、百度毫发未损，官方却顺手牵羊：所有导航网站都被强行将党媒们置顶。这与百度强行给用户“推广”医疗机构的劣性有何区别？[生病]<br><br>RE: 网址导航站现在全都姓党了。<br><img src="http://ww1.sinaimg.cn/large/59183920gw1f40hz6v7xdj20xl0kfthq.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3977087808759894" target="freeweibo-mirror">除了焦点处多了一块外，没发现其他有什么变化//@游云庭律师:…</a>
 </h2>
@@ -83,7 +89,7 @@
 </h2>
 <p>SPAM 今天更新的内容：1️⃣他超过易帝、比肩姚明，比周琦更有希望进入NBA，如今却沦为看客。2️⃣我有一个梦想！就是像他一样把鞋架摆满房间。3️⃣快去练球吧，要不然没几年你就要被小盆友虐了。<br><img src="http://ww2.sinaimg.cn/large/90f58663jw1f410w9eealj20ku1120xi.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3976958679190686" target="freeweibo-mirror">SPAM 喜欢皮蛋的宝宝可以看这里[doge]</a>
 </h2>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3976925699771839" target="freeweibo-mirror">经警方进一步核实，嫌疑人覃某某（男，38岁，广西人），有精神…</a>
 </h2>
 <p>经警方进一步核实，嫌疑人覃某某（男，38岁，广西人），有精神病史，于5月19日13时46分在沙井客运站手持小刀伤人，13时50分被民警、巡防队员及客运站保安员合力快速制服。 目前7名伤者伤情稳定，无生命危险。案件仍在进一步调查中。<br><br>RE: #警方通报#【沙井客运站内1楼1名男子持刀砍人】@平安宝安：5月19日13时47分，110接报在沙井客运站内1楼1名男子持刀砍人，宝安分局指挥中心立即指令上南派出所出警。民警到达现场后将嫌疑人覃某某（男，38岁，广西人）抓获，并通知120将7名伤者（5男2女）送往医院治疗。目前案件仍在调查中。<br><img src="http://ww2.sinaimg.cn/large/70f4e244gw1f40t61n81ng208w06o1kx.gif"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3976916672774977" target="freeweibo-mirror">男子深圳沙井客运站持刀伤7人，已被警方果断控制后抓获。据@深…</a>
-</h2>
-<p>男子深圳沙井客运站持刀伤7人，已被警方果断控制后抓获。据@深圳公安 @平安宝安 消息，5月19日13时47分，深圳公安110接到报警称，沙井客运站内1楼1男子持刀砍人。@平安宝安 指挥中心立即指令上南派出所迅速出警。民警到达后果断将犯罪嫌疑人覃某某（男，38岁，广西人）控制并抓获，并迅速通知120急救中...全文： http://m.weibo.cn/2315355472/3976916672774977<br><img src="http://ww1.sinaimg.cn/large/8a018550gw1f40vmgawy4j20c80emdha.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
