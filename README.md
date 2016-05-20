@@ -19,6 +19,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3977083492792138" target="freeweibo-mirror">雷洋一事，长时间内舆论热度不减，在于它刺痛了一个庞大中坚群体…</a>
+</h2>
+<p>雷洋一事，长时间内舆论热度不减，在于它刺痛了一个庞大中坚群体的神经，事件使得这个群体油然而生地产生恐惧感。一个成语“人人自危”可以用来形容这个庞大群体目前内心的想法。雷洋之死，和以往任何一次媒体曝光的不正常死亡事件都不同，甚至比孙志刚还更触及灵魂。中国人开始深刻体会到什么是“免于...全文： http://m.weibo.cn/1299166353/3977083492792138</p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3976986709474830" target="freeweibo-mirror">SPAM //@深秋_2016: //@公民林静在维权4:/…</a>
 </h2>
 <p>SPAM //@深秋_2016: //@公民林静在维权4://@孤家寡哥2016://@张天戈-9://@李斯之夏日清爽: 什么情况？//@颜--佩剑:[话筒] //@东方夜鹰007:卧槽[吃惊]</p>
@@ -29,7 +35,7 @@
 </h2>
 <p>SPAM 今天更新的内容：1️⃣他超过易帝、比肩姚明，比周琦更有希望进入NBA，如今却沦为看客。2️⃣我有一个梦想！就是像他一样把鞋架摆满房间。3️⃣快去练球吧，要不然没几年你就要被小盆友虐了。<br><img src="http://ww2.sinaimg.cn/large/90f58663jw1f410w9eealj20ku1120xi.jpg"></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3976958679190686" target="freeweibo-mirror">SPAM 喜欢皮蛋的宝宝可以看这里[doge]</a>
 </h2>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3976862244288921" target="freeweibo-mirror">SPAM 能不够。。//@侯虹斌:相声艺术家</a>
 </h2>
 <p>SPAM 能不够。。//@侯虹斌:相声艺术家<br><br>RE: 17号的新讲话，报菜名已经成保留节目了。<br><img src="http://ww3.sinaimg.cn/large/005NTcI0gw1f40la85vzbj30qo1betkl.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3976860872991872" target="freeweibo-mirror">他们投资什么？清真寺，还是瓦哈比训练中心？还是阿拉伯语学校？…</a>
-</h2>
-<p>他们投资什么？清真寺，还是瓦哈比训练中心？还是阿拉伯语学校？沙特有什么先进技术？管理经验是伊斯兰教法，你要不要？[拜拜]</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
