@@ -29,7 +29,19 @@
 </h2>
 <p>SPAM 演说全文<br><br>RE: 全文，如图：<br><img src="http://ww2.sinaimg.cn/large/006qEEUFjw1f41pjbd9nuj30icdhokjm.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3977210979317170" target="freeweibo-mirror">SPAM 这个演讲好。和平与善意，关注民意民生。</a>
+</h2>
+<p>SPAM 这个演讲好。和平与善意，关注民意民生。<br><br>RE: 全文，如图：<br><img src="http://ww2.sinaimg.cn/large/006qEEUFjw1f41pjbd9nuj30icdhokjm.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3977209364074086" target="freeweibo-mirror">//@王其挡010:替搜狐[赞啊]//@草民正华N://@萧…</a>
+</h2>
+<p>//@王其挡010:替搜狐[赞啊]//@草民正华N://@萧迪居04://@心一飞一翔II: 呵呵，媒体也要这样才能发[哈哈]//@小猫小狗_74635: //@又来金好多://@-农妇:转//@笨笨an:转发微博<br><br>RE: 全文，如图：<br><img src="http://ww2.sinaimg.cn/large/006qEEUFjw1f41pjbd9nuj30icdhokjm.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3977201847929049" target="freeweibo-mirror">SPAM 吃笔抄更有效！</a>
 </h2>
@@ -58,6 +70,12 @@
 	<a href="https://freeweibo.com/weibo/3977192863583679" target="freeweibo-mirror">[哈哈]//@公平正义是立国之本: 在薄粉眼里，支持习主席的…</a>
 </h2>
 <p>[哈哈]//@公平正义是立国之本: 在薄粉眼里，支持习主席的警察都是恶警？//@黄河长龙: 会清理恶警吗? //@民警吕宏伟:获悉王小洪任公安部副部长。恭祝好人一生平安！[鼓掌]//@民警吕宏伟: 我和王小洪省长交谈过两次，一次是13年中秋节支队民警家属，我在场。</p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3977192742427148" target="freeweibo-mirror">//@一个老实人V: //@北京大兴亦庄张憬民:看来一年前砍…</a>
+</h2>
+<p>//@一个老实人V: //@北京大兴亦庄张憬民:看来一年前砍死拆迁员的北京大兴亦庄吴子玉家要被强拆啦！</p>
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
@@ -115,29 +133,11 @@
 <p>
 	<small> ============== 4小时前</small>
 </p><h2>
-	<a href="https://freeweibo.com/weibo/3977169363091818" target="freeweibo-mirror">520現場照（六）就職演說ing...</a>
+	<a href="https://freeweibo.com/weibo/3977171728881820" target="freeweibo-mirror">SPAM 2016年5月20日北京大兴鹿圏  海南暴力强拆在…</a>
 </h2>
-<p>520現場照（六）就職演說ing...<br><img src="http://ww2.sinaimg.cn/large/8b987560jw1f41oofeu0cj20qo0hrgnl.jpg"></p>
+<p>SPAM 2016年5月20日北京大兴鹿圏  海南暴力强拆在北京重演 http://t.cn/RqsijpN .</p>
 <p>
 	<small> ============== 4小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3977162048440920" target="freeweibo-mirror">SPAM //@沙漠渔夫809: //@秋江千里奏霓裳:这个…</a>
-</h2>
-<p>SPAM //@沙漠渔夫809: //@秋江千里奏霓裳:这个问题裆朝真不敢回答。[嘻嘻][赞]<br><br>RE: 零阅读<br><img src="http://ww4.sinaimg.cn/large/c72b9682gw1f41n7q0j1gj20ku112jte.jpg"></p>
-<p>
-	<small> ============== 5小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3977161456938518" target="freeweibo-mirror">【统独两派现场“对掐”】http://t.cn/RqsxKM…</a>
-</h2>
-<p>【统独两派现场“对掐”】http://t.cn/RqsxKMD<br><img src="http://ww4.sinaimg.cn/large/6298156bjw1f41nsj7ngyj20go0b5aaw.jpg"></p>
-<p>
-	<small> ============== 5小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3977160530570179" target="freeweibo-mirror">SPAM #今日贴纸打卡#看這模樣，不是個別部門單位的獨活創…</a>
-</h2>
-<p>SPAM #今日贴纸打卡#看這模樣，不是個別部門單位的獨活創意，而是自上而下的政治任務佈置。呵呵！<br><img src="http://ww3.sinaimg.cn/large/5937c055jw1f41nnjo0jcj20zk0jzgoh.jpg"></p>
-<p>
-	<small> ============== 5小时前</small>
 </p>
 <table>
     <tr>
