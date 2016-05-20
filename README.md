@@ -37,11 +37,17 @@
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3977065642573733" target="freeweibo-mirror">//@何兵:@Fanny77_88:这次给林诗人点个赞[go…</a>
+</h2>
+<p>//@何兵:@Fanny77_88:这次给林诗人点个赞[good] //@柳林清幽:挺难得的。@被淹死的鲔鱼://@冰海雪涛44:顶芳芳<br><br>RE: 雷洋案件，让我又一次看清楚了一些人。他们先用“捡到一个图片”的方式，拼命给死者泼污水，试图告诉人们，此人是色狼人渣，该死。接着，他们挖出雷洋官员身份，试图用这种方式让质疑的公知们闭嘴，结果也毫无作用。然后，有人开始破口大骂，骂雷洋妻子，骂那个刚刚出生的孩子。那些人，真的太邪恶了！</p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3976986709474830" target="freeweibo-mirror">SPAM //@深秋_2016: //@公民林静在维权4:/…</a>
 </h2>
 <p>SPAM //@深秋_2016: //@公民林静在维权4://@孤家寡哥2016://@张天戈-9://@李斯之夏日清爽: 什么情况？//@颜--佩剑:[话筒] //@东方夜鹰007:卧槽[吃惊]</p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3976962722755596" target="freeweibo-mirror">SPAM 今天更新的内容：1️⃣他超过易帝、比肩姚明，比周琦…</a>
 </h2>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3976870720888679" target="freeweibo-mirror">//@天下归民://@你想干什么dong鲁光:根基不牢，地动…</a>
 </h2>
 <p>//@天下归民://@你想干什么dong鲁光:根基不牢，地动山摇！打，只能打出民怨。//@钱仁富money: //@老渔翁在路上://@caomin3194775397:转发微博</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3976867880468984" target="freeweibo-mirror">本报社要搞个大新闻[笑cry][笑cry][笑cry]</a>
-</h2>
-<p>本报社要搞个大新闻[笑cry][笑cry][笑cry]<br><img src="http://ww2.sinaimg.cn/large/913f6f56gw1f40q2tpiadj20ld0hsaeg.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
