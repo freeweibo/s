@@ -29,7 +29,7 @@
 </h2>
 <p>看完了，总体感受挺好，至少在一致性上传承了非常经典的英文风格，我倒觉得比那个所谓袁红兵代笔的仿作要好太多。两点感受：1、在解严三十年，总统直选二十年后，台湾才来得及成立真相与和解委员会，才有实现转型正义的三年规划。可见转型正义这个主体是多么沉重和脆弱。2、蔡政府面临的问题与亟待推进...全文： http://m.weibo.cn/2774892563/3977229769588557<br><img src="http://ww2.sinaimg.cn/large/a5658013gw1f41vn2jwqjj20514xvtmd.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3977222165153819" target="freeweibo-mirror">“国家不会因为领导人而伟大，全体国民的共同奋斗，才让这个国家…</a>
 </h2>
@@ -131,7 +131,7 @@
 </h2>
 <p>SPAM 【新疆、云南干部异口同声：党章是最好的胎教】“党章党规是最好的胎教”，怀二胎4月参加竞赛的（云南）陇川县防震减灾局副局长李擎说。新疆医科大一附院党办三孕妇也是如此说…<br><img src="http://ww1.sinaimg.cn/large/6a80bfcdgw1f41s4j5hr3j20m80ci76p.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3977197892724385" target="freeweibo-mirror">520演說</a>
 </h2>
