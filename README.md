@@ -19,11 +19,17 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3977343107730337" target="freeweibo-mirror">SPAM 妇孺皆知</a>
+</h2>
+<p>SPAM 妇孺皆知<br><br>RE: 一带一路<br><img src="http://ww2.sinaimg.cn/large/621d03b7jw1f427eq8h6dj20hs0k1q3t.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3977340419084095" target="freeweibo-mirror">//@晓雨闻铃://@杨洪纲: //@法律人童朝平://@M…</a>
 </h2>
 <p>//@晓雨闻铃://@杨洪纲: //@法律人童朝平://@M袁飏: //@刘力博士://@Wk实干兴邦://@天蝎黄世旭://@爱就向往://@杜君立: 从一场比赛无耻和暴力的游戏，变成一场比赛文明和智慧的公开竞选，政治诞生了。<br><br>RE: 不懂历史的无法想象这一握手的巨大意义，传统上中国的政权都是靠杀人去抢的。<br><img src="http://ww1.sinaimg.cn/large/4d39707fjw1f424zvl2gzj20go0b4wf5.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3977337563419270" target="freeweibo-mirror">而且是真博士不是靠特权取得的 //@邵明波:哈佛大学法学博士…</a>
 </h2>
@@ -119,7 +125,7 @@
 </h2>
 <p>还没立案？？？[汗][汗][汗]<br><img src="http://ww1.sinaimg.cn/large/006taHCNgw1f421dye5paj30hs0nzq3d.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3977277824383703" target="freeweibo-mirror">禁止外地逼随意在北京生活居住，禁止民族大学附中参与北京市的高…</a>
 </h2>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3977269972812755" target="freeweibo-mirror">【北京昌平检察院约见雷洋家属核实情况 当场收下家属请求书】今…</a>
 </h2>
 <p>【北京昌平检察院约见雷洋家属核实情况 当场收下家属请求书】今日下午，北京市昌平区检察院约见了雷洋家属吴某某，向其核实情况征求意见。雷洋的家属随后向昌平区检察院提交了书面请求，要求检方对雷洋被害一案立案侦查。雷洋案代理律师表示，检方当场收下了书面请求。http://t.cn/RqsQYJr<br><img src="http://ww1.sinaimg.cn/large/005EHRy1gw1f420867r3dj30g40lqtai.jpg"></p>
-<p>
-	<small> ============== 6小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3977269305058671" target="freeweibo-mirror">[哈哈]//@芳菲7989: 右边[偷笑][给力]//@伶牙…</a>
-</h2>
-<p>[哈哈]//@芳菲7989: 右边[偷笑][给力]//@伶牙俐齿的李医生:舔逼舔出高尚感了//@崔紫剑同志:原po和右边，要不你们举个例子，看看哪国换个省长要拿几千万人头换呗[挖鼻]当国家级政权更替啊？还拿人头换?你俩把台湾当国家么？//@罗昌平:文明与野蛮的区别！<br><br>RE: 握个手就交接了，沒有拿幾千万人頭来换，這是中國歷史上開天辟地的大事變。<br><img src="http://ww4.sinaimg.cn/large/7670e137gw1f41wpclugfj20go0d6754.jpg"></p>
 <p>
 	<small> ============== 6小时前</small>
 </p>
