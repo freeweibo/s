@@ -89,13 +89,13 @@
 </h2>
 <p>握个手就交接了，沒有拿幾千万人頭来换，這是中國歷史上開天辟地的大事變。<br><img src="http://ww4.sinaimg.cn/large/7670e137gw1f41wpclugfj20go0d6754.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3977239588012603" target="freeweibo-mirror">//@徐昕://@幸运杨梓：恐怖啊 //@呼格吉勒图父母: …</a>
 </h2>
 <p>//@徐昕://@幸运杨梓：恐怖啊 //@呼格吉勒图父母: 转发</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3977237185590789" target="freeweibo-mirror">SPAM 520收到来自@网易天谕 的一份大礼～玄极手办一只…</a>
 </h2>
