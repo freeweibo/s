@@ -95,7 +95,7 @@
 </h2>
 <p>SPAM 祝福台湾[心]<br><br>RE: 【华人社会首位“女总统”履职，直播】中華民國總統.副總統就職慶祝大會 網路直播 : 1. 總統府官網首頁: http://t.cn/aFLAKa 2. YouTube: http://t.cn/RqFxAZZ 3. hievent: http://t.cn/RqFGqu0 第三个不用翻墙可以直接打开<br><img src="http://ww4.sinaimg.cn/large/918d47a2gw1f41l64eospj20zk0qotbs.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3977138602524959" target="freeweibo-mirror">【华人社会首位“女总统”履职，直播】中華民國總統.副總統就職…</a>
 </h2>
