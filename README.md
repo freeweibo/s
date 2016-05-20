@@ -31,6 +31,24 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3977105970842361" target="freeweibo-mirror">@贵观天下:他口是心非，坏着呢！</a>
+</h2>
+<p>@贵观天下:他口是心非，坏着呢！<br><br>RE: 邓小平想出一条妙计：他于1978年6月指出，把“四人帮”揭深批透，非联系揭批林不可，因为林彪名声已经臭了。为清除障碍，一定要批评毛泽东晚年的错误，但不能出格。如果全盘否定毛泽东，就等于把这面大旗让给了自己的政治对手。邓清醒地知道，如果毁坏毛泽东在人民心中的形象，他的新政权等于建在沙滩...全文： http://m.weibo.cn/3608663131/3976986457927083<br><img src="http://ww1.sinaimg.cn/large/d717d45bjw1f40za5llutj20qo0zkwq8.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3977104066201307" target="freeweibo-mirror">[蜡烛] //@-荡空山-:看看这个时代，我好想退出游戏重新…</a>
+</h2>
+<p>[蜡烛] //@-荡空山-:看看这个时代，我好想退出游戏重新开档。。。//@LifeTime:魏则西事件后，莆田系、百度毫发未损，官方却顺手牵羊：所有导航网站都被强行将党媒们置顶。这与百度强行给用户“推广”医疗机构的劣性有何区别？[生病]<br><br>RE: 网址导航站现在全都姓党了。<br><img src="http://ww1.sinaimg.cn/large/59183920gw1f40hz6v7xdj20xl0kfthq.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3977091776896982" target="freeweibo-mirror">//@LifeTime:魏则西事件后，莆田系、百度毫发未损，…</a>
+</h2>
+<p>//@LifeTime:魏则西事件后，莆田系、百度毫发未损，官方却顺手牵羊：所有导航网站都被强行将党媒们置顶。这与百度强行给用户“推广”医疗机构的劣性有何区别？[生病]<br><br>RE: 网址导航站现在全都姓党了。<br><img src="http://ww1.sinaimg.cn/large/59183920gw1f40hz6v7xdj20xl0kfthq.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3977087808759894" target="freeweibo-mirror">除了焦点处多了一块外，没发现其他有什么变化//@游云庭律师:…</a>
 </h2>
 <p>除了焦点处多了一块外，没发现其他有什么变化//@游云庭律师:不要脸<br><br>RE: 网址导航站现在全都姓党了。<br><img src="http://ww1.sinaimg.cn/large/59183920gw1f40hz6v7xdj20xl0kfthq.jpg"></p>
@@ -118,24 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3976901649007957" target="freeweibo-mirror">SPAM [哈哈]//@刚刚路过03:够气派！ //@雾好霾…</a>
 </h2>
 <p>SPAM [哈哈]//@刚刚路过03:够气派！ //@雾好霾:哈哈//@清华池一级搓泥工:哈哈哈//@全球民_主化转世1次号:言论自由了？臣民不信。//@梦晨伤:由衷地发自内心的佩服……[哆啦A梦微笑]……//@奥卡姆剃刀:佩服！有本事520前不删的话我服！//@高飞George:佩服小编的勇气[微笑]<br><br>RE: 本报社要搞个大新闻[笑cry][笑cry][笑cry]<br><img src="http://ww2.sinaimg.cn/large/913f6f56gw1f40q2tpiadj20ld0hsaeg.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3976899036141450" target="freeweibo-mirror">SPAM [嘻嘻] //@超级无敌新手://@刚刚路过03:…</a>
-</h2>
-<p>SPAM [嘻嘻] //@超级无敌新手://@刚刚路过03:够气派！ //@雾好霾:哈哈//@清华池一级搓泥工:哈哈哈//@全球民_主化转世1次号:言论自由了？臣民不信。//@梦晨伤:由衷地发自内心的佩服……[哆啦A梦微笑]……//@奥卡姆剃刀:佩服！有本事520前不删的话我服！//@高飞George:佩服小编的勇气[微笑]<br><br>RE: 本报社要搞个大新闻[笑cry][笑cry][笑cry]<br><img src="http://ww2.sinaimg.cn/large/913f6f56gw1f40q2tpiadj20ld0hsaeg.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3976894875034866" target="freeweibo-mirror">#警方通报#【沙井客运站内1楼1名男子持刀砍人】@平安宝安：…</a>
-</h2>
-<p>#警方通报#【沙井客运站内1楼1名男子持刀砍人】@平安宝安：5月19日13时47分，110接报在沙井客运站内1楼1名男子持刀砍人，宝安分局指挥中心立即指令上南派出所出警。民警到达现场后将嫌疑人覃某某（男，38岁，广西人）抓获，并通知120将7名伤者（5男2女）送往医院治疗。目前案件仍在调查中。<br><img src="http://ww2.sinaimg.cn/large/70f4e244gw1f40t61n81ng208w06o1kx.gif"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3976892875176857" target="freeweibo-mirror">SPAM 绝不护短</a>
-</h2>
-<p>SPAM 绝不护短<br><br>RE: 媒体你们现在什么素质，黑白都分不清楚[怒]<br><img src="http://ww3.sinaimg.cn/large/623e1d29jw1f40mmqhnu2j20gi0m8n01.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
