@@ -19,6 +19,18 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3977217014969753" target="freeweibo-mirror">SPAM 小马哥是一手好牌打到烂，蔡老师会一手烂牌输到尽。稍…</a>
+</h2>
+<p>SPAM 小马哥是一手好牌打到烂，蔡老师会一手烂牌输到尽。稍有不慎，结局未必比阿扁好。。。呵呵，听人说C家在上海的楼盘快要开盘了。//@ECO中文网: [思考]//@华杉2009:不看好。批评前任太狠，未来调门太高，不像就职演说，倒像是竞选演说。政府没那么大力量。她做做就知道自己其实做不成啥事，慢慢学习吧<br><br>RE: 全文，如图：<br><img src="http://ww2.sinaimg.cn/large/006qEEUFjw1f41pjbd9nuj30icdhokjm.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3977213903141443" target="freeweibo-mirror">SPAM 演说全文</a>
+</h2>
+<p>SPAM 演说全文<br><br>RE: 全文，如图：<br><img src="http://ww2.sinaimg.cn/large/006qEEUFjw1f41pjbd9nuj30icdhokjm.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3977201847929049" target="freeweibo-mirror">SPAM 吃笔抄更有效！</a>
 </h2>
 <p>SPAM 吃笔抄更有效！<br><br>RE: SPAM 【新疆、云南干部异口同声：党章是最好的胎教】“党章党规是最好的胎教”，怀二胎4月参加竞赛的（云南）陇川县防震减灾局副局长李擎说。新疆医科大一附院党办三孕妇也是如此说…<br><img src="http://ww1.sinaimg.cn/large/6a80bfcdgw1f41s4j5hr3j20m80ci76p.jpg"></p>
@@ -59,13 +71,13 @@
 </h2>
 <p>估计是得考虑意识形态要求的意思。[挖鼻][挖鼻]//@来去之间:前三条可以理解，第四条啥意思？不讨论意识形态问题不是好事儿么？<br><br>RE: 和我书里的预测完全相符<br><img src="http://ww2.sinaimg.cn/large/88d5e7begw1f40rpbsnyjj20ku0vun19.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3977182026028012" target="freeweibo-mirror">两岸关系 http://t.cn/RqsXYMA .</a>
 </h2>
 <p>两岸关系 http://t.cn/RqsXYMA .</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3977177391507547" target="freeweibo-mirror">SPAM 白衣素服，呵呵</a>
 </h2>
@@ -124,18 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3977160530570179" target="freeweibo-mirror">SPAM #今日贴纸打卡#看這模樣，不是個別部門單位的獨活創…</a>
 </h2>
 <p>SPAM #今日贴纸打卡#看這模樣，不是個別部門單位的獨活創意，而是自上而下的政治任務佈置。呵呵！<br><img src="http://ww3.sinaimg.cn/large/5937c055jw1f41nnjo0jcj20zk0jzgoh.jpg"></p>
-<p>
-	<small> ============== 5小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3977159300694255" target="freeweibo-mirror">这次不仅仅是政权的交接!//@围脖摘要:转发微博</a>
-</h2>
-<p>这次不仅仅是政权的交接!//@围脖摘要:转发微博<br><br>RE: 宣誓<br><img src="http://ww4.sinaimg.cn/large/6d0b6b33gw1f41ku3cba9j20zk0qo7i8.jpg"></p>
-<p>
-	<small> ============== 5小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3977156399352991" target="freeweibo-mirror">零阅读</a>
-</h2>
-<p>零阅读<br><img src="http://ww4.sinaimg.cn/large/c72b9682gw1f41n7q0j1gj20ku112jte.jpg"></p>
 <p>
 	<small> ============== 5小时前</small>
 </p>
