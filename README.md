@@ -19,6 +19,24 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3977201378477189" target="freeweibo-mirror">想把手伸到对岸来，统一管理两岸事务？ //@李鸿文在深圳:小…</a>
+</h2>
+<p>想把手伸到对岸来，统一管理两岸事务？ //@李鸿文在深圳:小英姐绿皮红心，向往海峡对岸。//@四输五尽19: 一个中国的表述？<br><br>RE: “我们的司法已经失去人民的信任，我们的食安问题困扰着每个家庭。”蔡英文这话说的是哪儿？</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3977199264701543" target="freeweibo-mirror">SPAM 【新疆、云南干部异口同声：党章是最好的胎教】“党章…</a>
+</h2>
+<p>SPAM 【新疆、云南干部异口同声：党章是最好的胎教】“党章党规是最好的胎教”，怀二胎4月参加竞赛的（云南）陇川县防震减灾局副局长李擎说。新疆医科大一附院党办三孕妇也是如此说…<br><img src="http://ww1.sinaimg.cn/large/6a80bfcdgw1f41s4j5hr3j20m80ci76p.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3977192863583679" target="freeweibo-mirror">[哈哈]//@公平正义是立国之本: 在薄粉眼里，支持习主席的…</a>
+</h2>
+<p>[哈哈]//@公平正义是立国之本: 在薄粉眼里，支持习主席的警察都是恶警？//@黄河长龙: 会清理恶警吗? //@民警吕宏伟:获悉王小洪任公安部副部长。恭祝好人一生平安！[鼓掌]//@民警吕宏伟: 我和王小洪省长交谈过两次，一次是13年中秋节支队民警家属，我在场。</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3977184429231295" target="freeweibo-mirror">SPAM 你前进的每一步，都是我们所期待的梦想！</a>
 </h2>
 <p>SPAM 你前进的每一步，都是我们所期待的梦想！<br><br>RE: 感謝臺灣，她告訴世界：華人區域是可以實現民主的，在華人區域實現民主不會帶來什麼動亂，更別談什麼「亡黨亡國」，中國改朝換代，國從未亡過。民主能帶來繁榮，民主和華人的文化並不相斥！所謂特殊「國情」，國人素質低下不适合民的論調，都是借口。祝福台灣，民主保佑台灣，人民百姓享有尊嚴和幸福！<br><img src="http://ww2.sinaimg.cn/large/006tkCK2gw1f41p9mfrdkj306y08cwen.jpg"></p>
@@ -29,7 +47,7 @@
 </h2>
 <p>两岸关系 http://t.cn/RqsXYMA .</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3977174694042133" target="freeweibo-mirror">感謝臺灣，她告訴世界：華人區域是可以實現民主的，在華人區域實…</a>
 </h2>
@@ -120,24 +138,6 @@
 <p>SPAM 祝福台湾[心]<br><br>RE: 【华人社会首位“女总统”履职，直播】中華民國總統.副總統就職慶祝大會 網路直播 : 1. 總統府官網首頁: http://t.cn/aFLAKa 2. YouTube: http://t.cn/RqFxAZZ 3. hievent: http://t.cn/RqFGqu0 第三个不用翻墙可以直接打开<br><img src="http://ww4.sinaimg.cn/large/918d47a2gw1f41l64eospj20zk0qotbs.jpg"></p>
 <p>
 	<small> ============== 5小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3977138602524959" target="freeweibo-mirror">【华人社会首位“女总统”履职，直播】中華民國總統.副總統就職…</a>
-</h2>
-<p>【华人社会首位“女总统”履职，直播】中華民國總統.副總統就職慶祝大會 網路直播 : 1. 總統府官網首頁: http://t.cn/aFLAKa 2. YouTube: http://t.cn/RqFxAZZ 3. hievent: http://t.cn/RqFGqu0 第三个不用翻墙可以直接打开<br><img src="http://ww4.sinaimg.cn/large/918d47a2gw1f41l64eospj20zk0qotbs.jpg"></p>
-<p>
-	<small> ============== 5小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3977136124158100" target="freeweibo-mirror">以前的李登辉、陈水扁、马英九都是独裁暴政？真你妈猪队友啊，为…</a>
-</h2>
-<p>以前的李登辉、陈水扁、马英九都是独裁暴政？真你妈猪队友啊，为什么不给这个逗逼建个特区让他们自玩自嗨呢。<br><br>RE: 今天是台湾人民划时代的大日子，台湾人民作为华夏文化圈的一员，走在了自由、民主、法治的道路上，人民远离暴政，保证了免于恐惧的权利，祝福台湾人民！</p>
-<p>
-	<small> ============== 6小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3977135703850470" target="freeweibo-mirror">宣誓</a>
-</h2>
-<p>宣誓<br><img src="http://ww4.sinaimg.cn/large/6d0b6b33gw1f41ku3cba9j20zk0qo7i8.jpg"></p>
-<p>
-	<small> ============== 6小时前</small>
 </p>
 <table>
     <tr>
