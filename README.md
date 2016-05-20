@@ -47,19 +47,19 @@
 </h2>
 <p>四年一次520。</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3977120902455219" target="freeweibo-mirror">SPAM 看台湾，我们有权利憧憬自己的未来，并为之不懈努力。</a>
 </h2>
 <p>SPAM 看台湾，我们有权利憧憬自己的未来，并为之不懈努力。<br><br>RE: 今天将是载入史册的一天！ http://t.cn/RyhW8OV<br><img src="http://ww4.sinaimg.cn/large/73570bbdjw1f41hbfpnazj20hm11078o.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3977120163845572" target="freeweibo-mirror">SPAM //@章诒和:谢谢牛津！</a>
 </h2>
 <p>SPAM //@章诒和:谢谢牛津！</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3977112920728183" target="freeweibo-mirror">520今天，中国人面对一个无情的现实，台湾回归祖国只是一个梦…</a>
 </h2>
@@ -83,13 +83,13 @@
 </h2>
 <p>@贵观天下:他口是心非，坏着呢！<br><br>RE: 邓小平想出一条妙计：他于1978年6月指出，把“四人帮”揭深批透，非联系揭批林不可，因为林彪名声已经臭了。为清除障碍，一定要批评毛泽东晚年的错误，但不能出格。如果全盘否定毛泽东，就等于把这面大旗让给了自己的政治对手。邓清醒地知道，如果毁坏毛泽东在人民心中的形象，他的新政权等于建在沙滩...全文： http://m.weibo.cn/3608663131/3976986457927083<br><img src="http://ww1.sinaimg.cn/large/d717d45bjw1f40za5llutj20qo0zkwq8.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3977105064809077" target="freeweibo-mirror">今天将是载入史册的一天！ http://t.cn/RyhW8…</a>
 </h2>
 <p>今天将是载入史册的一天！ http://t.cn/RyhW8OV<br><img src="http://ww4.sinaimg.cn/large/73570bbdjw1f41hbfpnazj20hm11078o.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3977104066201307" target="freeweibo-mirror">[蜡烛] //@-荡空山-:看看这个时代，我好想退出游戏重新…</a>
 </h2>
