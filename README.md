@@ -47,7 +47,7 @@
 </h2>
 <p>【北京昌平检察院约见雷洋家属核实情况 当场收下家属请求书】今日下午，北京市昌平区检察院约见了雷洋家属吴某某，向其核实情况征求意见。雷洋的家属随后向昌平区检察院提交了书面请求，要求检方对雷洋被害一案立案侦查。雷洋案代理律师表示，检方当场收下了书面请求。http://t.cn/RqsQYJr<br><img src="http://ww1.sinaimg.cn/large/005EHRy1gw1f420867r3dj30g40lqtai.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3977269305058671" target="freeweibo-mirror">[哈哈]//@芳菲7989: 右边[偷笑][给力]//@伶牙…</a>
 </h2>
@@ -119,13 +119,13 @@
 </h2>
 <p>握个手就交接了，沒有拿幾千万人頭来换，這是中國歷史上開天辟地的大事變。<br><img src="http://ww4.sinaimg.cn/large/7670e137gw1f41wpclugfj20go0d6754.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3977239588012603" target="freeweibo-mirror">//@徐昕://@幸运杨梓：恐怖啊 //@呼格吉勒图父母: …</a>
 </h2>
 <p>//@徐昕://@幸运杨梓：恐怖啊 //@呼格吉勒图父母: 转发</p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3977237185590789" target="freeweibo-mirror">SPAM 520收到来自@网易天谕 的一份大礼～玄极手办一只…</a>
 </h2>
