@@ -83,7 +83,7 @@
 </h2>
 <p>面对九二共识，中国有三股势力，三个流派。民进党：拒绝或婉拒。国民党：一个中国，各自表述。大陆：只承认一个中国，否认各自表述。显然，只存在谈判，没有达成共识。//@雷公旗: 转发微博<br><br>RE: 【统独两派现场“对掐”】http://t.cn/RqsxKMD<br><img src="http://ww4.sinaimg.cn/large/6298156bjw1f41nsj7ngyj20go0b5aaw.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3977169363091818" target="freeweibo-mirror">520現場照（六）就職演說ing...</a>
 </h2>
