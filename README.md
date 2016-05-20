@@ -23,7 +23,7 @@
 </h2>
 <p>面对九二共识，中国有三股势力，三个流派。民进党：拒绝或婉拒。国民党：一个中国，各自表述。大陆：只承认一个中国，否认各自表述。显然，只存在谈判，没有达成共识。//@雷公旗: 转发微博<br><br>RE: 【统独两派现场“对掐”】http://t.cn/RqsxKMD<br><img src="http://ww4.sinaimg.cn/large/6298156bjw1f41nsj7ngyj20go0b5aaw.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3977162048440920" target="freeweibo-mirror">SPAM //@沙漠渔夫809: //@秋江千里奏霓裳:这个…</a>
 </h2>
@@ -48,6 +48,12 @@
 <p>这次不仅仅是政权的交接!//@围脖摘要:转发微博<br><br>RE: 宣誓<br><img src="http://ww4.sinaimg.cn/large/6d0b6b33gw1f41ku3cba9j20zk0qo7i8.jpg"></p>
 <p>
 	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3977156399352991" target="freeweibo-mirror">零阅读</a>
+</h2>
+<p>零阅读<br><img src="http://ww4.sinaimg.cn/large/c72b9682gw1f41n7q0j1gj20ku112jte.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3977155249228113" target="freeweibo-mirror">SPAM 干活的～ //@华夏跰趾:何许人也？未来储君？？[…</a>
 </h2>
@@ -132,12 +138,6 @@
 <p>[赞] //@况秀猛:什么时候海岸这边也有一位女领导[偷笑] //@喷嚏网铂程:转发微博<br><br>RE: 今天将是载入史册的一天！ http://t.cn/RyhW8OV<br><img src="http://ww4.sinaimg.cn/large/73570bbdjw1f41hbfpnazj20hm11078o.jpg"></p>
 <p>
 	<small> ============== 4小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3977123779918534" target="freeweibo-mirror">SPAM //@晓晓的盛夏微微凉：原来往事并不如烟，过去的终…</a>
-</h2>
-<p>SPAM //@晓晓的盛夏微微凉：原来往事并不如烟，过去的终不会过去… //@章诒和:谢谢牛津！</p>
-<p>
-	<small> ============== 5小时前</small>
 </p>
 <table>
     <tr>
