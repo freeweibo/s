@@ -43,6 +43,12 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3977138602524959" target="freeweibo-mirror">【华人社会首位“女总统”履职，直播】中華民國總統.副總統就職…</a>
+</h2>
+<p>【华人社会首位“女总统”履职，直播】中華民國總統.副總統就職慶祝大會 網路直播 : 1. 總統府官網首頁: http://t.cn/aFLAKa 2. YouTube: http://t.cn/RqFxAZZ 3. hievent: http://t.cn/RqFGqu0 第三个不用翻墙可以直接打开<br><img src="http://ww4.sinaimg.cn/large/918d47a2gw1f41l64eospj20zk0qotbs.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3977136124158100" target="freeweibo-mirror">以前的李登辉、陈水扁、马英九都是独裁暴政？真你妈猪队友啊，为…</a>
 </h2>
 <p>以前的李登辉、陈水扁、马英九都是独裁暴政？真你妈猪队友啊，为什么不给这个逗逼建个特区让他们自玩自嗨呢。<br><br>RE: 今天是台湾人民划时代的大日子，台湾人民作为华夏文化圈的一员，走在了自由、民主、法治的道路上，人民远离暴政，保证了免于恐惧的权利，祝福台湾人民！</p>
@@ -97,6 +103,12 @@
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3977115470204154" target="freeweibo-mirror">今天是台湾人民划时代的大日子，台湾人民作为华夏文化圈的一员，…</a>
+</h2>
+<p>今天是台湾人民划时代的大日子，台湾人民作为华夏文化圈的一员，走在了自由、民主、法治的道路上，人民远离暴政，保证了免于恐惧的权利，祝福台湾人民！</p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3977114246180758" target="freeweibo-mirror">SPAM 台湾的巨幅广告上写‘台湾最美丽的风景是台湾人’，深…</a>
 </h2>
 <p>SPAM 台湾的巨幅广告上写‘台湾最美丽的风景是台湾人’，深以为然。社会治理成功的结果//@迟夙生律师:[鲜花] //@摸着良心观社会:此时唯一的心境是感谢台湾，因为有你们，才知道我们要继续的目标和动力，祝福台湾！！！[心][赞]<br><br>RE: 今天将是载入史册的一天！ http://t.cn/RyhW8OV<br><img src="http://ww4.sinaimg.cn/large/73570bbdjw1f41hbfpnazj20hm11078o.jpg"></p>
@@ -107,7 +119,7 @@
 </h2>
 <p>520今天，中国人面对一个无情的现实，台湾回归祖国只是一个梦想？[伤心]<br><img src="http://ww3.sinaimg.cn/large/5f260dd3gw1f41hyf81ipj20qe0hldj3.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3977107711080112" target="freeweibo-mirror">//@粉雨://@阿瑟queen://@LifeTime:魏…</a>
 </h2>
@@ -124,18 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3977105970842361" target="freeweibo-mirror">@贵观天下:他口是心非，坏着呢！</a>
 </h2>
 <p>@贵观天下:他口是心非，坏着呢！<br><br>RE: 邓小平想出一条妙计：他于1978年6月指出，把“四人帮”揭深批透，非联系揭批林不可，因为林彪名声已经臭了。为清除障碍，一定要批评毛泽东晚年的错误，但不能出格。如果全盘否定毛泽东，就等于把这面大旗让给了自己的政治对手。邓清醒地知道，如果毁坏毛泽东在人民心中的形象，他的新政权等于建在沙滩...全文： http://m.weibo.cn/3608663131/3976986457927083<br><img src="http://ww1.sinaimg.cn/large/d717d45bjw1f40za5llutj20qo0zkwq8.jpg"></p>
-<p>
-	<small> ============== 4小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3977105064809077" target="freeweibo-mirror">今天将是载入史册的一天！ http://t.cn/RyhW8…</a>
-</h2>
-<p>今天将是载入史册的一天！ http://t.cn/RyhW8OV<br><img src="http://ww4.sinaimg.cn/large/73570bbdjw1f41hbfpnazj20hm11078o.jpg"></p>
-<p>
-	<small> ============== 4小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3977104066201307" target="freeweibo-mirror">[蜡烛] //@-荡空山-:看看这个时代，我好想退出游戏重新…</a>
-</h2>
-<p>[蜡烛] //@-荡空山-:看看这个时代，我好想退出游戏重新开档。。。//@LifeTime:魏则西事件后，莆田系、百度毫发未损，官方却顺手牵羊：所有导航网站都被强行将党媒们置顶。这与百度强行给用户“推广”医疗机构的劣性有何区别？[生病]<br><br>RE: 网址导航站现在全都姓党了。<br><img src="http://ww1.sinaimg.cn/large/59183920gw1f40hz6v7xdj20xl0kfthq.jpg"></p>
 <p>
 	<small> ============== 4小时前</small>
 </p>
