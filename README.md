@@ -101,13 +101,13 @@
 </h2>
 <p>//@用户0a94bsrbr9:台湾的明天一定更美好，中华民族之幸//@崔小平律师: 转发微博<br><br>RE: 选民创造历史  民选改变社会 http://t.cn/R2W6M4G<br><img src="http://ww1.sinaimg.cn/large/88ff16fdgw1f41pcfp1qpj20pe0df41g.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3977203412731538" target="freeweibo-mirror">小英说：国家不会因为领导人而伟大；全体国民的共同奋斗，才让这…</a>
 </h2>
 <p>小英说：国家不会因为领导人而伟大；全体国民的共同奋斗，才让这个国家伟大。总统该团结的不只是支持者，总统该团结的是整个国家。团结是为了改变，这是我对这个国家最深切的期待。在这裡我要诚恳地呼吁，请给这个国家一个机会，让我们抛下成见，抛下过去的对立，我们一起来完成新时代交给我们的使命。<br><img src="http://ww4.sinaimg.cn/large/53bd81b0jw1f41sl843s4j206r4xvaq4.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3977201847929049" target="freeweibo-mirror">SPAM 吃笔抄更有效！</a>
 </h2>
