@@ -83,7 +83,7 @@
 </h2>
 <p>我发表了头条文章:《蔡英文就职演说：国家是因国民，不因领导人而伟大。》 http://t.cn/RqsuHZG</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3977298300494955" target="freeweibo-mirror">查明真相，合理要求。</a>
 </h2>
