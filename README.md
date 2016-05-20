@@ -131,7 +131,7 @@
 </h2>
 <p>520今天，中国人面对一个无情的现实，台湾回归祖国只是一个梦想？[伤心]<br><img src="http://ww3.sinaimg.cn/large/5f260dd3gw1f41hyf81ipj20qe0hldj3.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3977107711080112" target="freeweibo-mirror">//@粉雨://@阿瑟queen://@LifeTime:魏…</a>
 </h2>
