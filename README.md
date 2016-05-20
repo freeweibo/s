@@ -29,7 +29,7 @@
 </h2>
 <p>SPAM 【新疆、云南干部异口同声：党章是最好的胎教】“党章党规是最好的胎教”，怀二胎4月参加竞赛的（云南）陇川县防震减灾局副局长李擎说。新疆医科大一附院党办三孕妇也是如此说…<br><img src="http://ww1.sinaimg.cn/large/6a80bfcdgw1f41s4j5hr3j20m80ci76p.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3977192863583679" target="freeweibo-mirror">[哈哈]//@公平正义是立国之本: 在薄粉眼里，支持习主席的…</a>
 </h2>
@@ -41,7 +41,7 @@
 </h2>
 <p>SPAM 你前进的每一步，都是我们所期待的梦想！<br><br>RE: 感謝臺灣，她告訴世界：華人區域是可以實現民主的，在華人區域實現民主不會帶來什麼動亂，更別談什麼「亡黨亡國」，中國改朝換代，國從未亡過。民主能帶來繁榮，民主和華人的文化並不相斥！所謂特殊「國情」，國人素質低下不适合民的論調，都是借口。祝福台灣，民主保佑台灣，人民百姓享有尊嚴和幸福！<br><img src="http://ww2.sinaimg.cn/large/006tkCK2gw1f41p9mfrdkj306y08cwen.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3977182613039202" target="freeweibo-mirror">估计是得考虑意识形态要求的意思。[挖鼻][挖鼻]//@来去之…</a>
 </h2>
@@ -78,6 +78,12 @@
 <p>面对九二共识，中国有三股势力，三个流派。民进党：拒绝或婉拒。国民党：一个中国，各自表述。大陆：只承认一个中国，否认各自表述。显然，只存在谈判，没有达成共识。//@雷公旗: 转发微博<br><br>RE: 【统独两派现场“对掐”】http://t.cn/RqsxKMD<br><img src="http://ww4.sinaimg.cn/large/6298156bjw1f41nsj7ngyj20go0b5aaw.jpg"></p>
 <p>
 	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3977169363091818" target="freeweibo-mirror">520現場照（六）就職演說ing...</a>
+</h2>
+<p>520現場照（六）就職演說ing...<br><img src="http://ww2.sinaimg.cn/large/8b987560jw1f41oofeu0cj20qo0hrgnl.jpg"></p>
+<p>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3977162048440920" target="freeweibo-mirror">SPAM //@沙漠渔夫809: //@秋江千里奏霓裳:这个…</a>
 </h2>
@@ -119,7 +125,7 @@
 </h2>
 <p>今天距蒋经国开放党禁、报禁近三十年，政党轮替已成常态。此时我想到的却是多少人付出的血水泪水汗水，是被囚在景美、绿岛的思想犯、政治犯，是雷震、殷海光们在「自由中国」上的思与言，是「文星」、「大学」、「台湾政论」、「美丽岛」持续不断的努力，「要怎么收获，先那样栽」，胡适明白。<br><img src="http://ww3.sinaimg.cn/large/48fe46d9jw1f41mxpeancj20zk0k077g.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3977150157902270" target="freeweibo-mirror">【排斥民主的诸种理由与方法】1）那是虚伪的，背后还是资本和财…</a>
 </h2>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3977147024927505" target="freeweibo-mirror">【王小洪势头甚猛，17个月里职务5次任命】</a>
 </h2>
 <p>【王小洪势头甚猛，17个月里职务5次任命】<br><img src="http://ww4.sinaimg.cn/large/6f3dc6ddgw1f41m41l0rtj20b40dwmxt.jpg"></p>
-<p>
-	<small> ============== 5小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3977144726230393" target="freeweibo-mirror">见贤思齐，蒋经国做到了，国民党于是也就做到了。</a>
-</h2>
-<p>见贤思齐，蒋经国做到了，国民党于是也就做到了。<br><br>RE: 【华人社会首位“女总统”履职，直播】中華民國總統.副總統就職慶祝大會 網路直播 : 1. 總統府官網首頁: http://t.cn/aFLAKa 2. YouTube: http://t.cn/RqFxAZZ 3. hievent: http://t.cn/RqFGqu0 第三个不用翻墙可以直接打开<br><img src="http://ww4.sinaimg.cn/large/918d47a2gw1f41l64eospj20zk0qotbs.jpg"></p>
 <p>
 	<small> ============== 5小时前</small>
 </p>
