@@ -19,6 +19,18 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3977173038266724" target="freeweibo-mirror">面对九二共识，中国有三股势力，三个流派。民进党：拒绝或婉拒。…</a>
+</h2>
+<p>面对九二共识，中国有三股势力，三个流派。民进党：拒绝或婉拒。国民党：一个中国，各自表述。大陆：只承认一个中国，否认各自表述。显然，只存在谈判，没有达成共识。//@雷公旗: 转发微博<br><br>RE: 【统独两派现场“对掐”】http://t.cn/RqsxKMD<br><img src="http://ww4.sinaimg.cn/large/6298156bjw1f41nsj7ngyj20go0b5aaw.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3977162048440920" target="freeweibo-mirror">SPAM //@沙漠渔夫809: //@秋江千里奏霓裳:这个…</a>
+</h2>
+<p>SPAM //@沙漠渔夫809: //@秋江千里奏霓裳:这个问题裆朝真不敢回答。[嘻嘻][赞]<br><br>RE: 零阅读<br><img src="http://ww4.sinaimg.cn/large/c72b9682gw1f41n7q0j1gj20ku112jte.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3977160530570179" target="freeweibo-mirror">SPAM #今日贴纸打卡#看這模樣，不是個別部門單位的獨活創…</a>
 </h2>
 <p>SPAM #今日贴纸打卡#看這模樣，不是個別部門單位的獨活創意，而是自上而下的政治任務佈置。呵呵！<br><img src="http://ww3.sinaimg.cn/large/5937c055jw1f41nnjo0jcj20zk0jzgoh.jpg"></p>
@@ -124,18 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3977120940560756" target="freeweibo-mirror">四年一次520。</a>
 </h2>
 <p>四年一次520。</p>
-<p>
-	<small> ============== 5小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3977120902455219" target="freeweibo-mirror">SPAM 看台湾，我们有权利憧憬自己的未来，并为之不懈努力。</a>
-</h2>
-<p>SPAM 看台湾，我们有权利憧憬自己的未来，并为之不懈努力。<br><br>RE: 今天将是载入史册的一天！ http://t.cn/RyhW8OV<br><img src="http://ww4.sinaimg.cn/large/73570bbdjw1f41hbfpnazj20hm11078o.jpg"></p>
-<p>
-	<small> ============== 5小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3977120474219965" target="freeweibo-mirror">SPAM [话筒]//@刘军宁: [话筒] //@章诒和:谢…</a>
-</h2>
-<p>SPAM [话筒]//@刘军宁: [话筒] //@章诒和:谢谢牛津！</p>
 <p>
 	<small> ============== 5小时前</small>
 </p>
