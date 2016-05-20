@@ -31,6 +31,12 @@
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3977304872600581" target="freeweibo-mirror">我发表了头条文章:《蔡英文就职演说：国家是因国民，不因领导人…</a>
+</h2>
+<p>我发表了头条文章:《蔡英文就职演说：国家是因国民，不因领导人而伟大。》 http://t.cn/RqsuHZG</p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3977298300494955" target="freeweibo-mirror">查明真相，合理要求。</a>
 </h2>
 <p>查明真相，合理要求。<br><br>RE: 【北京昌平检察院约见雷洋家属核实情况 当场收下家属请求书】今日下午，北京市昌平区检察院约见了雷洋家属吴某某，向其核实情况征求意见。雷洋的家属随后向昌平区检察院提交了书面请求，要求检方对雷洋被害一案立案侦查。雷洋案代理律师表示，检方当场收下了书面请求。http://t.cn/RqsQYJr<br><img src="http://ww1.sinaimg.cn/large/005EHRy1gw1f420867r3dj30g40lqtai.jpg"></p>
@@ -65,7 +71,7 @@
 </h2>
 <p>【北京昌平检察院约见雷洋家属核实情况 当场收下家属请求书】今日下午，北京市昌平区检察院约见了雷洋家属吴某某，向其核实情况征求意见。雷洋的家属随后向昌平区检察院提交了书面请求，要求检方对雷洋被害一案立案侦查。雷洋案代理律师表示，检方当场收下了书面请求。http://t.cn/RqsQYJr<br><img src="http://ww1.sinaimg.cn/large/005EHRy1gw1f420867r3dj30g40lqtai.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3977269305058671" target="freeweibo-mirror">[哈哈]//@芳菲7989: 右边[偷笑][给力]//@伶牙…</a>
 </h2>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3977249826541909" target="freeweibo-mirror">SPAM 嗨！我爱这个世界，我也爱你们～么么哒[爱你][爱你…</a>
 </h2>
 <p>SPAM 嗨！我爱这个世界，我也爱你们～么么哒[爱你][爱你]<br><img src="http://ww2.sinaimg.cn/large/4ba87c17gw1f41xwx5rrzj20qo0yg47h.jpg"></p>
-<p>
-	<small> ============== 7小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3977239600830487" target="freeweibo-mirror">握个手就交接了，沒有拿幾千万人頭来换，這是中國歷史上開天辟地…</a>
-</h2>
-<p>握个手就交接了，沒有拿幾千万人頭来换，這是中國歷史上開天辟地的大事變。<br><img src="http://ww4.sinaimg.cn/large/7670e137gw1f41wpclugfj20go0d6754.jpg"></p>
 <p>
 	<small> ============== 7小时前</small>
 </p>
