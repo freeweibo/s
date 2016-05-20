@@ -47,7 +47,7 @@
 </h2>
 <p>而且是真博士不是靠特权取得的 //@邵明波:哈佛大学法学博士和伦敦政经学院政治学博士的职位交接。//@天天有贼: //@杜君立: 从一场比赛无耻和暴力的游戏，变成一场比赛文明和智慧的公开竞选，政治诞生了。<br><br>RE: 不懂历史的无法想象这一握手的巨大意义，传统上中国的政权都是靠杀人去抢的。<br><img src="http://ww1.sinaimg.cn/large/4d39707fjw1f424zvl2gzj20go0b4wf5.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3977337370663211" target="freeweibo-mirror">SPAM 图？</a>
 </h2>
@@ -95,7 +95,7 @@
 </h2>
 <p>//@青春的gw89: //@禁言too: //@喷嚏网铂程:转发微博<br><br>RE: 不懂历史的无法想象这一握手的巨大意义，传统上中国的政权都是靠杀人去抢的。<br><img src="http://ww1.sinaimg.cn/large/4d39707fjw1f424zvl2gzj20go0b4wf5.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3977311609253008" target="freeweibo-mirror">不懂历史的无法想象这一握手的巨大意义，传统上中国的政权都是靠…</a>
 </h2>
@@ -107,7 +107,7 @@
 </h2>
 <p>说实话，我现在对这种带有浓重鸡汤风韵、干货甚少的台湾式表达越来越没有兴趣。这篇就职演说前面大半部分就是如此。这些年眼界渐开，看问题不再单一，很多小确幸迈不过的坎，就是格局与境界。尽管这边的梦更有局限。<br><br>RE: 我发表了头条文章:《蔡英文就职演说：国家是因国民，不因领导人而伟大。》 http://t.cn/RqsuHZG</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3977304872600581" target="freeweibo-mirror">我发表了头条文章:《蔡英文就职演说：国家是因国民，不因领导人…</a>
 </h2>
@@ -133,9 +133,9 @@
 <p>
 	<small> ============== 5小时前</small>
 </p><h2>
-	<a href="https://freeweibo.com/weibo/3977286435223367" target="freeweibo-mirror">SPAM [挖鼻]这诗能代表京籍诗人的平均水准吗？@大仙</a>
+	<a href="https://freeweibo.com/weibo/3977292059255011" target="freeweibo-mirror">当年台湾雷震主持《自由中国》被判刑；民进党人林义雄的母亲和 …</a>
 </h2>
-<p>SPAM [挖鼻]这诗能代表京籍诗人的平均水准吗？@大仙</p>
+<p>当年台湾雷震主持《自由中国》被判刑；民进党人林义雄的母亲和 一对孪生女儿被人利斧砍死；陈水扁的妻子吴淑珍，被人故意用车辗过双脚而残废；客家委员会主委叶菊兰，其丈夫就是为了争取言论自由而自焚的郑南榕，还有施明德曾被判死刑，吕秀莲判刑12年，不要羡慕海峡彼岸，自由平等从来都不是天降的！<br><img src="http://ww4.sinaimg.cn/large/ca98d4a4jw1f422sjyilaj20u00k00u2.jpg"></p>
 <p>
 	<small> ============== 6小时前</small>
 </p>
