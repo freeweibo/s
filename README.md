@@ -107,7 +107,7 @@
 </h2>
 <p>//@扁头Sean: 转发微博<br><br>RE: 全文，如图：<br><img src="http://ww2.sinaimg.cn/large/006qEEUFjw1f41pjbd9nuj30icdhokjm.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3977203873694383" target="freeweibo-mirror">//@用户0a94bsrbr9:台湾的明天一定更美好，中华民…</a>
 </h2>
