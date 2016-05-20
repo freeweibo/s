@@ -29,7 +29,7 @@
 </h2>
 <p>今天距蒋经国开放党禁、报禁近三十年，政党轮替已成常态。此时我想到的却是多少人付出的血水泪水汗水，是被囚在景美、绿岛的思想犯、政治犯，是雷震、殷海光们在「自由中国」上的思与言，是「文星」、「大学」、「台湾政论」、「美丽岛」持续不断的努力，「要怎么收获，先那样栽」，胡适明白。<br><img src="http://ww3.sinaimg.cn/large/48fe46d9jw1f41mxpeancj20zk0k077g.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3977144726230393" target="freeweibo-mirror">见贤思齐，蒋经国做到了，国民党于是也就做到了。</a>
 </h2>
@@ -89,7 +89,7 @@
 </h2>
 <p>SPAM //@晓晓的盛夏微微凉：原来往事并不如烟，过去的终不会过去… //@章诒和:谢谢牛津！</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3977120940560756" target="freeweibo-mirror">四年一次520。</a>
 </h2>
