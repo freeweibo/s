@@ -59,7 +59,7 @@
 </h2>
 <p>SPAM 喜欢皮蛋的宝宝可以看这里[doge]<br><img src="http://ww2.sinaimg.cn/large/005zgTSzgw1f410htn4xcj30ku112tce.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3976955260331587" target="freeweibo-mirror">//@尹鸿: 看来承认有短了……</a>
 </h2>
