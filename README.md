@@ -65,7 +65,7 @@
 </h2>
 <p>//@法律案例-文史典故://@仁教心学:最高权力的和平交接，乃是中国几千年皇权专制一直未解决的问题和困境！民主选举乃是唯一的出路，否则剩下的选项就是以暴易暴，以恶胜恶，以毒攻毒，以黑打黑！！！</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3977340419084095" target="freeweibo-mirror">//@晓雨闻铃://@杨洪纲: //@法律人童朝平://@M…</a>
 </h2>
@@ -131,7 +131,7 @@
 </h2>
 <p>不懂历史的无法想象这一握手的巨大意义，传统上中国的政权都是靠杀人去抢的。<br><img src="http://ww1.sinaimg.cn/large/4d39707fjw1f424zvl2gzj20go0b4wf5.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3977308051665643" target="freeweibo-mirror">说实话，我现在对这种带有浓重鸡汤风韵、干货甚少的台湾式表达越…</a>
 </h2>
