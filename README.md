@@ -19,6 +19,18 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3977222165153819" target="freeweibo-mirror">“国家不会因为领导人而伟大，全体国民的共同奋斗，才让这个国家…</a>
+</h2>
+<p>“国家不会因为领导人而伟大，全体国民的共同奋斗，才让这个国家伟大。"<br><br>RE: 520演說<br><img src="http://ww1.sinaimg.cn/large/c1d2c5a4jw1f41rz6yci8j20c36a1npd.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3977219636471905" target="freeweibo-mirror">【患者术前嘱家人：如有异常，别不理智】10日，68岁的张先生…</a>
+</h2>
+<p>【患者术前嘱家人：如有异常，别不理智】10日，68岁的张先生在上海一医院手术前给家人留字条：“如发生异常情况，家人不得与院方和医生发生不理智行为。”此前，张先生曾患胃癌、喉癌，治疗中对医务人员充满感激。医生说，工作28年第一次看到这样的字条，没有理由辜负患者的信赖。[心]<br><img src="http://ww4.sinaimg.cn/large/77101dc1jw1f41tzydgqlj20cx0g20tz.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3977217014969753" target="freeweibo-mirror">SPAM 小马哥是一手好牌打到烂，蔡老师会一手烂牌输到尽。稍…</a>
 </h2>
 <p>SPAM 小马哥是一手好牌打到烂，蔡老师会一手烂牌输到尽。稍有不慎，结局未必比阿扁好。。。呵呵，听人说C家在上海的楼盘快要开盘了。//@ECO中文网: [思考]//@华杉2009:不看好。批评前任太狠，未来调门太高，不像就职演说，倒像是竞选演说。政府没那么大力量。她做做就知道自己其实做不成啥事，慢慢学习吧<br><br>RE: 全文，如图：<br><img src="http://ww2.sinaimg.cn/large/006qEEUFjw1f41pjbd9nuj30icdhokjm.jpg"></p>
@@ -28,6 +40,12 @@
 	<a href="https://freeweibo.com/weibo/3977213903141443" target="freeweibo-mirror">SPAM 演说全文</a>
 </h2>
 <p>SPAM 演说全文<br><br>RE: 全文，如图：<br><img src="http://ww2.sinaimg.cn/large/006qEEUFjw1f41pjbd9nuj30icdhokjm.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3977213378778077" target="freeweibo-mirror">SPAM  //@闾丘露薇:Repost</a>
+</h2>
+<p>SPAM  //@闾丘露薇:Repost<br><br>RE: 全文，如图：<br><img src="http://ww2.sinaimg.cn/large/006qEEUFjw1f41pjbd9nuj30icdhokjm.jpg"></p>
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
@@ -118,24 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3977174694042133" target="freeweibo-mirror">感謝臺灣，她告訴世界：華人區域是可以實現民主的，在華人區域實…</a>
 </h2>
 <p>感謝臺灣，她告訴世界：華人區域是可以實現民主的，在華人區域實現民主不會帶來什麼動亂，更別談什麼「亡黨亡國」，中國改朝換代，國從未亡過。民主能帶來繁榮，民主和華人的文化並不相斥！所謂特殊「國情」，國人素質低下不适合民的論調，都是借口。祝福台灣，民主保佑台灣，人民百姓享有尊嚴和幸福！<br><img src="http://ww2.sinaimg.cn/large/006tkCK2gw1f41p9mfrdkj306y08cwen.jpg"></p>
-<p>
-	<small> ============== 4小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3977174203733058" target="freeweibo-mirror">“我们的司法已经失去人民的信任，我们的食安问题困扰着每个家庭…</a>
-</h2>
-<p>“我们的司法已经失去人民的信任，我们的食安问题困扰着每个家庭。”蔡英文这话说的是哪儿？</p>
-<p>
-	<small> ============== 4小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3977173038266724" target="freeweibo-mirror">面对九二共识，中国有三股势力，三个流派。民进党：拒绝或婉拒。…</a>
-</h2>
-<p>面对九二共识，中国有三股势力，三个流派。民进党：拒绝或婉拒。国民党：一个中国，各自表述。大陆：只承认一个中国，否认各自表述。显然，只存在谈判，没有达成共识。//@雷公旗: 转发微博<br><br>RE: 【统独两派现场“对掐”】http://t.cn/RqsxKMD<br><img src="http://ww4.sinaimg.cn/large/6298156bjw1f41nsj7ngyj20go0b5aaw.jpg"></p>
-<p>
-	<small> ============== 5小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3977172538466999" target="freeweibo-mirror">【法广：中国社科院宣布，将对学位论文进行“意识形态审读”】 …</a>
-</h2>
-<p>【法广：中国社科院宣布，将对学位论文进行“意识形态审读”】 在中国社科院学位论文的评阅、答辩和审议过程中，将着重审查学位论文是否存在以下四个方面的问题。 首先，是否存在坚持资产阶级自由化立场、反对四项基本原则，反对党的改革开放决策等情况；其次，是否违背党的基本理论、基本路线、基本纲...全文： http://m.weibo.cn/2323668352/3977172538466999</p>
 <p>
 	<small> ============== 5小时前</small>
 </p>
