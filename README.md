@@ -37,6 +37,12 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3977194407385249" target="freeweibo-mirror">SPAM //@谢文:刚刚信誓旦旦地说过不扣帽子，不抓辫子，…</a>
+</h2>
+<p>SPAM //@谢文:刚刚信誓旦旦地说过不扣帽子，不抓辫子，不打棍子，接着就棍子帽子辫子齐飞，没一点诚意，没一丝信用。 //@罗昌平:[熊猫]//@周博通炳钻: //@LifeTime:[瞧瞧]<br><br>RE: 和我书里的预测完全相符<br><img src="http://ww2.sinaimg.cn/large/88d5e7begw1f40rpbsnyjj20ku0vun19.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3977192863583679" target="freeweibo-mirror">[哈哈]//@公平正义是立国之本: 在薄粉眼里，支持习主席的…</a>
 </h2>
 <p>[哈哈]//@公平正义是立国之本: 在薄粉眼里，支持习主席的警察都是恶警？//@黄河长龙: 会清理恶警吗? //@民警吕宏伟:获悉王小洪任公安部副部长。恭祝好人一生平安！[鼓掌]//@民警吕宏伟: 我和王小洪省长交谈过两次，一次是13年中秋节支队民警家属，我在场。</p>
@@ -91,6 +97,12 @@
 <p>
 	<small> ============== 4小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3977172538466999" target="freeweibo-mirror">【法广：中国社科院宣布，将对学位论文进行“意识形态审读”】 …</a>
+</h2>
+<p>【法广：中国社科院宣布，将对学位论文进行“意识形态审读”】 在中国社科院学位论文的评阅、答辩和审议过程中，将着重审查学位论文是否存在以下四个方面的问题。 首先，是否存在坚持资产阶级自由化立场、反对四项基本原则，反对党的改革开放决策等情况；其次，是否违背党的基本理论、基本路线、基本纲...全文： http://m.weibo.cn/2323668352/3977172538466999</p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3977169363091818" target="freeweibo-mirror">520現場照（六）就職演說ing...</a>
 </h2>
 <p>520現場照（六）就職演說ing...<br><img src="http://ww2.sinaimg.cn/large/8b987560jw1f41oofeu0cj20qo0hrgnl.jpg"></p>
@@ -113,7 +125,7 @@
 </h2>
 <p>SPAM #今日贴纸打卡#看這模樣，不是個別部門單位的獨活創意，而是自上而下的政治任務佈置。呵呵！<br><img src="http://ww3.sinaimg.cn/large/5937c055jw1f41nnjo0jcj20zk0jzgoh.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3977159300694255" target="freeweibo-mirror">这次不仅仅是政权的交接!//@围脖摘要:转发微博</a>
 </h2>
@@ -124,18 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3977156399352991" target="freeweibo-mirror">零阅读</a>
 </h2>
 <p>零阅读<br><img src="http://ww4.sinaimg.cn/large/c72b9682gw1f41n7q0j1gj20ku112jte.jpg"></p>
-<p>
-	<small> ============== 5小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3977155249228113" target="freeweibo-mirror">SPAM 干活的～ //@华夏跰趾:何许人也？未来储君？？[…</a>
-</h2>
-<p>SPAM 干活的～ //@华夏跰趾:何许人也？未来储君？？[围观][围观][围观]<br><br>RE: 【王小洪势头甚猛，17个月里职务5次任命】<br><img src="http://ww4.sinaimg.cn/large/6f3dc6ddgw1f41m41l0rtj20b40dwmxt.jpg"></p>
-<p>
-	<small> ============== 5小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3977153974351864" target="freeweibo-mirror">今天距蒋经国开放党禁、报禁近三十年，政党轮替已成常态。此时我…</a>
-</h2>
-<p>今天距蒋经国开放党禁、报禁近三十年，政党轮替已成常态。此时我想到的却是多少人付出的血水泪水汗水，是被囚在景美、绿岛的思想犯、政治犯，是雷震、殷海光们在「自由中国」上的思与言，是「文星」、「大学」、「台湾政论」、「美丽岛」持续不断的努力，「要怎么收获，先那样栽」，胡适明白。<br><img src="http://ww3.sinaimg.cn/large/48fe46d9jw1f41mxpeancj20zk0k077g.jpg"></p>
 <p>
 	<small> ============== 5小时前</small>
 </p>
