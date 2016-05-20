@@ -19,6 +19,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3977229769588557" target="freeweibo-mirror">看完了，总体感受挺好，至少在一致性上传承了非常经典的英文风格…</a>
+</h2>
+<p>看完了，总体感受挺好，至少在一致性上传承了非常经典的英文风格，我倒觉得比那个所谓袁红兵代笔的仿作要好太多。两点感受：1、在解严三十年，总统直选二十年后，台湾才来得及成立真相与和解委员会，才有实现转型正义的三年规划。可见转型正义这个主体是多么沉重和脆弱。2、蔡政府面临的问题与亟待推进...全文： http://m.weibo.cn/2774892563/3977229769588557<br><img src="http://ww2.sinaimg.cn/large/a5658013gw1f41vn2jwqjj20514xvtmd.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3977222165153819" target="freeweibo-mirror">“国家不会因为领导人而伟大，全体国民的共同奋斗，才让这个国家…</a>
 </h2>
 <p>“国家不会因为领导人而伟大，全体国民的共同奋斗，才让这个国家伟大。"<br><br>RE: 520演說<br><img src="http://ww1.sinaimg.cn/large/c1d2c5a4jw1f41rz6yci8j20c36a1npd.jpg"></p>
@@ -29,7 +35,7 @@
 </h2>
 <p>【患者术前嘱家人：如有异常，别不理智】10日，68岁的张先生在上海一医院手术前给家人留字条：“如发生异常情况，家人不得与院方和医生发生不理智行为。”此前，张先生曾患胃癌、喉癌，治疗中对医务人员充满感激。医生说，工作28年第一次看到这样的字条，没有理由辜负患者的信赖。[心]<br><img src="http://ww4.sinaimg.cn/large/77101dc1jw1f41tzydgqlj20cx0g20tz.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3977217014969753" target="freeweibo-mirror">SPAM 小马哥是一手好牌打到烂，蔡老师会一手烂牌输到尽。稍…</a>
 </h2>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3977194407385249" target="freeweibo-mirror">SPAM //@谢文:刚刚信誓旦旦地说过不扣帽子，不抓辫子，…</a>
 </h2>
 <p>SPAM //@谢文:刚刚信誓旦旦地说过不扣帽子，不抓辫子，不打棍子，接着就棍子帽子辫子齐飞，没一点诚意，没一丝信用。 //@罗昌平:[熊猫]//@周博通炳钻: //@LifeTime:[瞧瞧]<br><br>RE: 和我书里的预测完全相符<br><img src="http://ww2.sinaimg.cn/large/88d5e7begw1f40rpbsnyjj20ku0vun19.jpg"></p>
-<p>
-	<small> ============== 4小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3977192863583679" target="freeweibo-mirror">[哈哈]//@公平正义是立国之本: 在薄粉眼里，支持习主席的…</a>
-</h2>
-<p>[哈哈]//@公平正义是立国之本: 在薄粉眼里，支持习主席的警察都是恶警？//@黄河长龙: 会清理恶警吗? //@民警吕宏伟:获悉王小洪任公安部副部长。恭祝好人一生平安！[鼓掌]//@民警吕宏伟: 我和王小洪省长交谈过两次，一次是13年中秋节支队民警家属，我在场。</p>
 <p>
 	<small> ============== 4小时前</small>
 </p>
