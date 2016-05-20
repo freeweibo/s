@@ -23,7 +23,7 @@
 </h2>
 <p>查明真相，合理要求。<br><br>RE: 【北京昌平检察院约见雷洋家属核实情况 当场收下家属请求书】今日下午，北京市昌平区检察院约见了雷洋家属吴某某，向其核实情况征求意见。雷洋的家属随后向昌平区检察院提交了书面请求，要求检方对雷洋被害一案立案侦查。雷洋案代理律师表示，检方当场收下了书面请求。http://t.cn/RqsQYJr<br><img src="http://ww1.sinaimg.cn/large/005EHRy1gw1f420867r3dj30g40lqtai.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3977293502706515" target="freeweibo-mirror">//@孔维嘉://@所感所想所悟://@珠海小魚女://@正…</a>
 </h2>
@@ -101,7 +101,7 @@
 </h2>
 <p>装逼还装出情操来了，当年国民党杀了多少共产党啊，连杨开慧宋振中这样的妇女儿童都毫不留情的杀掉，现在开始装纯，找个用过的尿片写上文明俩字贴脸上到处显摆，也真有大陆的傻逼去舔的，陈年尿碱是药引子，是制作二逼顺气丸的必需成分，多舔点，发家致富就靠这个了。//@罗昌平: 文明与野蛮的区别！<br><br>RE: 握个手就交接了，沒有拿幾千万人頭来换，這是中國歷史上開天辟地的大事變。<br><img src="http://ww4.sinaimg.cn/large/7670e137gw1f41wpclugfj20go0d6754.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3977251156135929" target="freeweibo-mirror">有的人认为，一切问题的症结在于“钱”：不愿意回归，是因为嫌大…</a>
 </h2>
@@ -131,7 +131,7 @@
 </h2>
 <p>SPAM 520收到来自@网易天谕 的一份大礼～玄极手办一只[馋嘴][馋嘴][馋嘴]感谢！大家520happy～<br><img src="http://ww1.sinaimg.cn/large/4c778ed2gw1f41wgv5se7j20hs0dcabo.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3977234869865057" target="freeweibo-mirror">【龙应台：为什么台湾人不想统一？】台湾人已经习惯生活在一个民…</a>
 </h2>
