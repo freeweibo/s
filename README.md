@@ -41,7 +41,7 @@
 </h2>
 <p>SPAM #今日贴纸打卡#看這模樣，不是個別部門單位的獨活創意，而是自上而下的政治任務佈置。呵呵！<br><img src="http://ww3.sinaimg.cn/large/5937c055jw1f41nnjo0jcj20zk0jzgoh.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3977159300694255" target="freeweibo-mirror">这次不仅仅是政权的交接!//@围脖摘要:转发微博</a>
 </h2>
@@ -137,7 +137,7 @@
 </h2>
 <p>[赞] //@况秀猛:什么时候海岸这边也有一位女领导[偷笑] //@喷嚏网铂程:转发微博<br><br>RE: 今天将是载入史册的一天！ http://t.cn/RyhW8OV<br><img src="http://ww4.sinaimg.cn/large/73570bbdjw1f41hbfpnazj20hm11078o.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p>
 <table>
     <tr>
