@@ -19,6 +19,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3977723937967979" target="freeweibo-mirror">SPAM //@王小山:OMG.//@张晨初艺术空间: [伤…</a>
+</h2>
+<p>SPAM //@王小山:OMG.//@张晨初艺术空间: [伤心]//@梧桐树影影婆娑: //@长沙罗刚: 他在北京奋斗扎根，肯定够坚强。可是，两周来，为孩子上小学四处奔波，竟然被逼自焚。父爱的绝望，坚冰的冷漠。人心世道，同情心何在？<br><br>RE: 昌平非京籍家长自焚案的报道。苍天有眼，有些人必有报应。<br><img src="http://ww4.sinaimg.cn/large/6200b57bjw1f43d15o7gtj20qo2frb29.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3977721623186601" target="freeweibo-mirror">//@喷嚏网铂程://@人见人爱的肉唐僧: 为人民服务！</a>
 </h2>
 <p>//@喷嚏网铂程://@人见人爱的肉唐僧: 为人民服务！<br><br>RE: 昌平非京籍家长自焚案的报道。苍天有眼，有些人必有报应。<br><img src="http://ww4.sinaimg.cn/large/6200b57bjw1f43d15o7gtj20qo2frb29.jpg"></p>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3977701377116157" target="freeweibo-mirror">单位还都姓党！[good]//@迟夙生律师: 雷洋自己生前不…</a>
 </h2>
 <p>单位还都姓党！[good]//@迟夙生律师: 雷洋自己生前不关注苦难民众的艰辛，他选择的工作单位也和他一样，更有甚者连自己的员工之死也不关注，但这并不影响成千上万的网民越来越多的人开始关注雷洋现象、也关注雷洋工作单位的现象。//@我们去养猪：从雷洋单位不发半句话，就可明白这是个操蛋的国度。<br><br>RE: 雷洋的身份从人大硕士研究生到国家机关所属事业单位的官员，网友们并没有因此而减少对他死因的关心热度，这种趋于平和的态度，对人的生命重视程序，是社会的一个巨大进步，无论你承不承认，这是客观存在的事实！ http://t.cn/RyhW8OV<br><img src="http://ww2.sinaimg.cn/large/73570bbdjw1f43d1x6xshj20ku112grm.jpg"></p>
-<p>
-	<small> ============== 3小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3977701150318527" target="freeweibo-mirror">昌平区这段时间表现太突出了，盖过了北京和中央的风头。</a>
-</h2>
-<p>昌平区这段时间表现太突出了，盖过了北京和中央的风头。<br><img src="http://ww2.sinaimg.cn/large/4ac11db3jw1f43ds0zxngj20qo2fr1kx.jpg"></p>
 <p>
 	<small> ============== 3小时前</small>
 </p>
