@@ -23,7 +23,7 @@
 </h2>
 <p>//@喷嚏网铂程://@人见人爱的肉唐僧: 为人民服务！<br><br>RE: 昌平非京籍家长自焚案的报道。苍天有眼，有些人必有报应。<br><img src="http://ww4.sinaimg.cn/large/6200b57bjw1f43d15o7gtj20qo2frb29.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3977720847909280" target="freeweibo-mirror">//@绍兴师爷行北京://@邵明波:转发微博</a>
 </h2>
@@ -83,7 +83,7 @@
 </h2>
 <p>2333 //@viphjw://@李铁军: 美帝又吃了败仗[笑cry]//@jlijames: 好，我们的人民如何经得起这种赤果果的道理[挖鼻] //@邵明波:转发微博<br><br>RE: 捡图@海口逗逗<br><img src="http://ww4.sinaimg.cn/large/6a246be6gw1f43ad28kh7j20ez0qo419.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3977703793089929" target="freeweibo-mirror">//@尹鸿:每个人都认为别人是倒霉蛋，自己是幸运儿。千百年来…</a>
 </h2>
