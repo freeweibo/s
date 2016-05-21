@@ -31,6 +31,30 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3977588223509449" target="freeweibo-mirror">SPAM //@李方平律师:狱中许博士听到会极其悲伤！</a>
+</h2>
+<p>SPAM //@李方平律师:狱中许博士听到会极其悲伤！<br><br>RE: 北京昌平：非京籍儿童家长因入学权自焚抗议？<br><img src="http://ww2.sinaimg.cn/large/6a80bfcdgw1f430d4gssgj20hs0vmzmq.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3977587111750975" target="freeweibo-mirror">既然已是多党轮替的民主政治，描绘国民党一党专政的国歌语句就不…</a>
+</h2>
+<p>既然已是多党轮替的民主政治，描绘国民党一党专政的国歌语句就不合适了，应该改 //@喷嚏网铂程:转发微博<br><br>RE: 此有心人的观察。至于总统府宣誓面对的那半神像，迟早要取下的，国歌也要改的。<br><img src="http://ww2.sinaimg.cn/large/473f8cfdjw1f42rjaihyej20hs7gqtub.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3977585119505782" target="freeweibo-mirror">这一届人民开窍了……[笑cry][笑cry][笑cry][d…</a>
+</h2>
+<p>这一届人民开窍了……[笑cry][笑cry][笑cry][doge][doge][doge][酷][酷][酷]<br><img src="http://ww4.sinaimg.cn/large/3bd4391ajw1f430g9n4gij20ci0m8wgg.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3977575556969020" target="freeweibo-mirror">中华民国，乃我华夏千年专制后最光明之民主政体，当大陆身陷文化…</a>
+</h2>
+<p>中华民国，乃我华夏千年专制后最光明之民主政体，当大陆身陷文化、政治及道德之系统性崩毁，台岛也就成了华人未来希望之所系。 祈愿天佑台湾，国祚永庚！//@王小山:小英和大仁哥，哈哈哈，好玩。//@徐昕:批判性阅读 //@绍兴师爷行北京://@何光伟://@斯韦爵:真正体现了什么叫自信！<br><br>RE: 此有心人的观察。至于总统府宣誓面对的那半神像，迟早要取下的，国歌也要改的。<br><img src="http://ww2.sinaimg.cn/large/473f8cfdjw1f42rjaihyej20hs7gqtub.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3977572784580834" target="freeweibo-mirror">//@搜云看雾: //@陌上行者2015://@亮剑兄又来啦…</a>
 </h2>
 <p>//@搜云看雾: //@陌上行者2015://@亮剑兄又来啦: //@遇见渔人: 有吗？ //@霜葉15s_://@Pig_of_life: //@浊酒秋月: //@雷公旗://@善良恩圣: 转发微博<br><br>RE: 这位网友说没有资格考人家台湾，请问他说的对吗？我读书少，不懂。<br><img src="http://ww2.sinaimg.cn/large/006pmDnJjw1f42v0u9vbyj30k00zk0z8.jpg"></p>
@@ -48,6 +72,12 @@
 <p>SPAM 三自信课题研究的子题之一<br><img src="http://ww2.sinaimg.cn/large/473f8cfdjw1f42y8797maj20dy6ik4ku.jpg"></p>
 <p>
 	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3977553934572318" target="freeweibo-mirror">SPAM  //@崔小平律师://@徐昕:批判性阅读 //@…</a>
+</h2>
+<p>SPAM  //@崔小平律师://@徐昕:批判性阅读 //@绍兴师爷行北京://@何光伟://@斯韦爵:真正体现了什么叫自信！<br><br>RE: 此有心人的观察。至于总统府宣誓面对的那半神像，迟早要取下的，国歌也要改的。<br><img src="http://ww2.sinaimg.cn/large/473f8cfdjw1f42rjaihyej20hs7gqtub.jpg"></p>
+<p>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3977553163208195" target="freeweibo-mirror">//@吴情树:因为人口多，土地大，钱多和官多？ //@程中柳…</a>
 </h2>
@@ -108,36 +138,6 @@
 <p>SPAM  //@点子正:[赞]//@椒江叶Sir:#520用爱发电# 我说的就是对你说的的翻译。//@如东县曹埠派出所肖飞:我啥都没听懂，我听懂了我也装没听懂[笑cry] //@鸿_钧_:我承认，但我就不承认我承认[挖鼻]<br><br>RE: #520用爱发电#台湾男版pi酱解读小英讲话，打脸凶猛啊。。[笑cry] http://t.cn/R5vPwAC .</p>
 <p>
 	<small> ============== 8小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3977484804827204" target="freeweibo-mirror">//@伊锘://@梅铮星://@benben马甲: 转发微博</a>
-</h2>
-<p>//@伊锘://@梅铮星://@benben马甲: 转发微博</p>
-<p>
-	<small> ============== 8小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3977480609964316" target="freeweibo-mirror">世界知名学府对中国著名政治特产——”五毛“的研究报告出炉！！…</a>
-</h2>
-<p>世界知名学府对中国著名政治特产——”五毛“的研究报告出炉！！[doge][喵喵]</p>
-<p>
-	<small> ============== 9小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3977477586344117" target="freeweibo-mirror">//@做绘本的懒老姬:五毛钱比百元大钞还有内涵[偷笑]//@…</a>
-</h2>
-<p>//@做绘本的懒老姬:五毛钱比百元大钞还有内涵[偷笑]//@liguantu: 研究五毛党，拿博士学位。[doge]</p>
-<p>
-	<small> ============== 9小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3977363551289934" target="freeweibo-mirror">SPAM //@心灵必须课:阅读全文请看文章最下图，后续更精…</a>
-</h2>
-<p>SPAM //@心灵必须课:阅读全文请看文章最下图，后续更精彩！</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3977361190194037" target="freeweibo-mirror">SPAM Sense大促开始了，寄国内还是抽税，女鞋：htt…</a>
-</h2>
-<p>SPAM Sense大促开始了，寄国内还是抽税，女鞋：http://t.cn/R5vARwG  女包：http://t.cn/R5vARwU 今天网站没瘫，谢天谢地。独穷穷不如众穷穷。<br><img src="http://ww1.sinaimg.cn/large/682942e4gw1f429xuuvlxj20ns0lan1d.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
 </p>
 <table>
     <tr>
