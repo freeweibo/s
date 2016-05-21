@@ -137,7 +137,7 @@
 </h2>
 <p>SPAM 为了孩子读书都得自焚？//@糠王://@叶匡政: [泪] //@杨学林律师:震惊。<br><br>RE: 北京昌平：非京籍儿童家长因入学权自焚抗议？<br><img src="http://ww2.sinaimg.cn/large/6a80bfcdgw1f430d4gssgj20hs0vmzmq.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p>
 <table>
     <tr>
