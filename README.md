@@ -29,7 +29,7 @@
 </h2>
 <p>//@一碗余:同样的法学博士，法治意识咋差距那么大捏//@炼金术士gewesen:噗[笑cry] //@vetiver010:海峡两岸的最高领导人同时都拥有【法学博士】，这在历史上，还是第一次。[阴险]<br><br>RE: 【真正的法学博士是不需要报书单的】蔡英文先后在美国康乃尔大学获得法学硕士，在英国伦敦大学政经学院获得法学博士。这次就职演讲，莎士比亚、华兹华斯、简·奥斯汀、狄更斯……孟德斯鸠、伏尔泰、卢梭、狄德罗……普希金、托尔斯泰、肖洛霍夫……一个都没有提及，没有。<br><img src="http://ww1.sinaimg.cn/large/bbe0ddc1gw1f42gbp4de8j20ic0abjrv.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3977491167444123" target="freeweibo-mirror">//@江烈农:论文pdf：http://t.cn/R5vAa…</a>
 </h2>
