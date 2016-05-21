@@ -19,6 +19,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3977721623186601" target="freeweibo-mirror">//@喷嚏网铂程://@人见人爱的肉唐僧: 为人民服务！</a>
+</h2>
+<p>//@喷嚏网铂程://@人见人爱的肉唐僧: 为人民服务！<br><br>RE: 昌平非京籍家长自焚案的报道。苍天有眼，有些人必有报应。<br><img src="http://ww4.sinaimg.cn/large/6200b57bjw1f43d15o7gtj20qo2frb29.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3977708528226640" target="freeweibo-mirror">SPAM 大牌使用！牙黄克星</a>
 </h2>
 <p>SPAM 大牌使用！牙黄克星</p>
@@ -41,19 +47,19 @@
 </h2>
 <p>我是来看网友评论的[doge]<br><br>RE: 媒体黑白不分，给昌平警方制造了多少麻烦[怒]我本想帮忙分析说可能裤子黑的上衣白的，没想到视频1分11秒足疗女原话是“穿一身黑的”：http://t.cn/RqBJq0L，忠臣难当[泪]<br><img src="http://ww1.sinaimg.cn/large/623e1d29jw1f43151o25tj20gi0m8tbl.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3977703180375856" target="freeweibo-mirror">每个人都认为别人是倒霉蛋，自己是幸运儿。千百年来，只扫自家门…</a>
 </h2>
 <p>每个人都认为别人是倒霉蛋，自己是幸运儿。千百年来，只扫自家门前雪，不管他人瓦上霜，所以活的就是一个赌概率。<br><br>RE: 雷洋自己生前不关注民众苦难、不关注死磕律师玩命死磕的那些冤案，他选择的工作单位也和他一样，特别是他的单位连自己员工之死也不关注和发声，但这并不影响成千上万网民越来越多的开始关注雷洋，我们不妨把过去雷洋的情况称之为雷洋现象，把他单位的态度称之为雷洋单位现象。 http://t.cn/RyhW8OV<br><img src="http://ww1.sinaimg.cn/large/73570bbdjw1f43dlxouiqj20qo0qotnk.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3977702538737437" target="freeweibo-mirror">回复@张开磊:不自杀难道让他去杀人？[吃惊]//@张开磊:自…</a>
 </h2>
 <p>回复@张开磊:不自杀难道让他去杀人？[吃惊]//@张开磊:自杀太过愚蠢<br><br>RE: 昌平区这段时间表现太突出了，盖过了北京和中央的风头。<br><img src="http://ww2.sinaimg.cn/large/4ac11db3jw1f43ds0zxngj20qo2fr1kx.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3977701612058934" target="freeweibo-mirror">单位还都姓党！[鼓掌][鼓掌][鼓掌][鼓掌][鼓掌][鼓掌…</a>
 </h2>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3977679533074812" target="freeweibo-mirror">SPAM //@邵明波://@李学鹏:建议中宣部将此文按反动…</a>
 </h2>
 <p>SPAM //@邵明波://@李学鹏:建议中宣部将此文按反动案例处理，并公示天下进行批评！//@大道至简ABC:太反动，简直了<br><br>RE: 俺文化低，竟然无言以对，请网友狠批[作揖]<br><img src="http://ww4.sinaimg.cn/large/005GgY2ggw1f42xa2v5qtj30j60y3k0b.jpg"></p>
-<p>
-	<small> ============== 4小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3977675032340424" target="freeweibo-mirror">SPAM //@侯会微博: //@李_磊:删除雷洋手机信息的…</a>
-</h2>
-<p>SPAM //@侯会微博: //@李_磊:删除雷洋手机信息的基本事实，谁也无法否认了。//@北京驴爷: //@爱和正义:以央视公布的为准！不要造谣！[怒]//@李_磊:当事人删除当事人信息，是帮助毁灭（隐匿）证据罪呀！将错就错罪上加罪，已经不打自招了。//@萧含: //@玉风: 转发，已经无话可说！<br><br>RE: 分享图片<br><img src="http://ww3.sinaimg.cn/large/698c1b27gw1f438680vwaj20k00zk0wo.jpg"></p>
 <p>
 	<small> ============== 4小时前</small>
 </p>
