@@ -43,6 +43,36 @@
 <p>
 	<small> ============== 1小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3977602399594819" target="freeweibo-mirror">喏……[浮云]//@格瓦拉:[泪] //@假装大律师:[伤心…</a>
+</h2>
+<p>喏……[浮云]//@格瓦拉:[泪] //@假装大律师:[伤心] //@徐昕:[泪]//@喜欢短发姑娘:悲哀//@黃毓民讀史: //@叶匡政:[泪] //@杨学林律师:震惊。<br><br>RE: 北京昌平：非京籍儿童家长因入学权自焚抗议？<br><img src="http://ww2.sinaimg.cn/large/6a80bfcdgw1f430d4gssgj20hs0vmzmq.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3977600081068817" target="freeweibo-mirror">[吃惊] //@盘子微谈:[泪]//@谓贤之音:[泪]//@…</a>
+</h2>
+<p>[吃惊] //@盘子微谈:[泪]//@谓贤之音:[泪]//@袁国宝: [泪] //@叶匡政:[泪] //@杨学林律师:震惊。<br><br>RE: 北京昌平：非京籍儿童家长因入学权自焚抗议？<br><img src="http://ww2.sinaimg.cn/large/6a80bfcdgw1f430d4gssgj20hs0vmzmq.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3977598574757368" target="freeweibo-mirror">为其祷告！为他们的家庭祷告！</a>
+</h2>
+<p>为其祷告！为他们的家庭祷告！<br><br>RE: 北京昌平：非京籍儿童家长因入学权自焚抗议？<br><img src="http://ww2.sinaimg.cn/large/6a80bfcdgw1f430d4gssgj20hs0vmzmq.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3977597366953863" target="freeweibo-mirror">后来自己删了[猪头]//@风青杨V: //@天涯赵瑜: 哈哈…</a>
+</h2>
+<p>后来自己删了[猪头]//@风青杨V: //@天涯赵瑜: 哈哈。这一届人民的确那啥</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3977592568249419" target="freeweibo-mirror">【雷洋案调查抓紧进行】北京市检察院技术部门今天放弃休息，三位…</a>
+</h2>
+<p>【雷洋案调查抓紧进行】北京市检察院技术部门今天放弃休息，三位检察院技术人员查验、提取、保全了雷洋手机数据。查验工作在昌平区检察院进行，由雷洋妻子当场解码，全程录像。前后进行了三个多小时。雷洋多位亲属在场。提取的具体内容被告知不允许透露。（陈有西律师授权发布）</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3977592090235423" target="freeweibo-mirror">//@老李牧鑫: //@男海岸://@阳光润泉:转发微博</a>
 </h2>
 <p>//@老李牧鑫: //@男海岸://@阳光润泉:转发微博<br><br>RE: 此有心人的观察。至于总统府宣誓面对的那半神像，迟早要取下的，国歌也要改的。<br><img src="http://ww2.sinaimg.cn/large/473f8cfdjw1f42rjaihyej20hs7gqtub.jpg"></p>
@@ -101,43 +131,13 @@
 </h2>
 <p>SPAM 三自信课题研究的子题之一<br><img src="http://ww2.sinaimg.cn/large/473f8cfdjw1f42y8797maj20dy6ik4ku.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3977553934572318" target="freeweibo-mirror">SPAM  //@崔小平律师://@徐昕:批判性阅读 //@…</a>
 </h2>
 <p>SPAM  //@崔小平律师://@徐昕:批判性阅读 //@绍兴师爷行北京://@何光伟://@斯韦爵:真正体现了什么叫自信！<br><br>RE: 此有心人的观察。至于总统府宣誓面对的那半神像，迟早要取下的，国歌也要改的。<br><img src="http://ww2.sinaimg.cn/large/473f8cfdjw1f42rjaihyej20hs7gqtub.jpg"></p>
 <p>
 	<small> ============== 4小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3977553163208195" target="freeweibo-mirror">//@吴情树:因为人口多，土地大，钱多和官多？ //@程中柳…</a>
-</h2>
-<p>//@吴情树:因为人口多，土地大，钱多和官多？ //@程中柳://@雷公旗: //@善良恩圣: 转发微博<br><br>RE: 这位网友说没有资格考人家台湾，请问他说的对吗？我读书少，不懂。<br><img src="http://ww2.sinaimg.cn/large/006pmDnJjw1f42v0u9vbyj30k00zk0z8.jpg"></p>
-<p>
-	<small> ============== 4小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3977552005991476" target="freeweibo-mirror">SPAM 这篇目录，解决了我人生最重要的问题！</a>
-</h2>
-<p>SPAM 这篇目录，解决了我人生最重要的问题！</p>
-<p>
-	<small> ============== 4小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3977551334682338" target="freeweibo-mirror">SPAM 这紧急通知有意思[围观] //@FrFrancis…</a>
-</h2>
-<p>SPAM 这紧急通知有意思[围观] //@FrFrancis003:请加入温哥华信友堂为中国国际自由主日洪牧师特别讲道 在中国国内直接点击链接就马上翻墙可以看了： For PC视窗电脑Windows: http://t.cn/R5vEHqh  http://t.cn/R5vEHqz  http://t.cn/R5vEHq7  For 苹果电脑Mac:  http://t.cn/R5vEHq4  http://t.cn/R5vEHqZ<br><br>RE: 誰知道視頻在哪裡看呢？<br><img src="http://ww4.sinaimg.cn/large/b5f1ace9gw1f42s69j4jfj20k00zkdhk.jpg"></p>
-<p>
-	<small> ============== 4小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3977550096787184" target="freeweibo-mirror">//@一碗余:同样的法学博士，法治意识咋差距那么大捏//@炼…</a>
-</h2>
-<p>//@一碗余:同样的法学博士，法治意识咋差距那么大捏//@炼金术士gewesen:噗[笑cry] //@vetiver010:海峡两岸的最高领导人同时都拥有【法学博士】，这在历史上，还是第一次。[阴险]<br><br>RE: 【真正的法学博士是不需要报书单的】蔡英文先后在美国康乃尔大学获得法学硕士，在英国伦敦大学政经学院获得法学博士。这次就职演讲，莎士比亚、华兹华斯、简·奥斯汀、狄更斯……孟德斯鸠、伏尔泰、卢梭、狄德罗……普希金、托尔斯泰、肖洛霍夫……一个都没有提及，没有。<br><img src="http://ww1.sinaimg.cn/large/bbe0ddc1gw1f42gbp4de8j20ic0abjrv.jpg"></p>
-<p>
-	<small> ============== 5小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3977537874410655" target="freeweibo-mirror">这位网友说没有资格考人家台湾，请问他说的对吗？我读书少，不懂…</a>
-</h2>
-<p>这位网友说没有资格考人家台湾，请问他说的对吗？我读书少，不懂。<br><img src="http://ww2.sinaimg.cn/large/006pmDnJjw1f42v0u9vbyj30k00zk0z8.jpg"></p>
-<p>
-	<small> ============== 5小时前</small>
 </p>
 <table>
     <tr>
