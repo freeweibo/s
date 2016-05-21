@@ -95,7 +95,7 @@
 </h2>
 <p>【为他们争取教育平权的人已经在服刑了】   昨天昌平区有非京籍儿童家长因孩子上学问题被拒无望后自焚，现在积水潭医院烧伤科。国内没有一家媒体有骨气敢报道，北京有2000多万非京籍人员，如果都不为孩子的上学公平争取权益，没有人敢说下一个受害者不是你！ http://t.cn/R5P4tyN<br><img src="http://ww2.sinaimg.cn/large/eae85510jw1f43461f4igj20hs0vmjve.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3977614685547082" target="freeweibo-mirror">//@未得糊涂://@阿靖2016: //@郭解放v: 转发…</a>
 </h2>
