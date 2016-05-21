@@ -19,6 +19,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3977703180375856" target="freeweibo-mirror">每个人都认为别人是倒霉蛋，自己是幸运儿。千百年来，只扫自家门…</a>
+</h2>
+<p>每个人都认为别人是倒霉蛋，自己是幸运儿。千百年来，只扫自家门前雪，不管他人瓦上霜，所以活的就是一个赌概率。<br><br>RE: 雷洋自己生前不关注民众苦难、不关注死磕律师玩命死磕的那些冤案，他选择的工作单位也和他一样，特别是他的单位连自己员工之死也不关注和发声，但这并不影响成千上万网民越来越多的开始关注雷洋，我们不妨把过去雷洋的情况称之为雷洋现象，把他单位的态度称之为雷洋单位现象。 http://t.cn/RyhW8OV<br><img src="http://ww1.sinaimg.cn/large/73570bbdjw1f43dlxouiqj20qo0qotnk.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3977692355183778" target="freeweibo-mirror">SPAM [赞]//@解密人性: [话筒]</a>
 </h2>
 <p>SPAM [赞]//@解密人性: [话筒]</p>
@@ -125,17 +131,11 @@
 </h2>
 <p>//@石扉客2014: 腾讯天天快报作了社交媒体资讯整合<br><br>RE: 哀莫大于心死『昨天昌平区有非京籍儿童家长因孩子上学问题被拒无望后自焚，现在积水潭医院烧伤科。国内没有一家媒体有骨气敢报道，北京有2000多万非京籍人员，如果都不为孩子的上学公平争取权益，没有人敢说下一个受害者不是你！』http://t.cn/R5PGAIr</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3977633505084807" target="freeweibo-mirror">哲学社会科学经常找不到北。</a>
 </h2>
 <p>哲学社会科学经常找不到北。<br><img src="http://ww4.sinaimg.cn/large/791ae3d5jw1f4360c5xkuj21be0qoamp.jpg"></p>
-<p>
-	<small> ============== 6小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3977628740948416" target="freeweibo-mirror">【非京籍儿童家长因孩子上学问题自焚，致重度烧伤】网友爆料，昨…</a>
-</h2>
-<p>【非京籍儿童家长因孩子上学问题自焚，致重度烧伤】网友爆料，昨天，昌平区有非京籍儿童家长因孩子上学问题自焚。据称，因租房税的日期滞后，孩子不符合入学要求。昨天是昌平区采集信息的最后一天，夫妻俩心急如焚求学无望，妻子早早来到区政府门口哭诉，丈夫见此情景，心情急剧低落，难以自控自焚。...全文： http://m.weibo.cn/1744259092/3977628740948416<br><img src="http://ww2.sinaimg.cn/large/67f74814gw1f435betgrej20iu0lkmzr.jpg"></p>
 <p>
 	<small> ============== 6小时前</small>
 </p>
