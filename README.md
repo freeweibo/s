@@ -55,6 +55,12 @@
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3977537874410655" target="freeweibo-mirror">这位网友说没有资格考人家台湾，请问他说的对吗？我读书少，不懂…</a>
+</h2>
+<p>这位网友说没有资格考人家台湾，请问他说的对吗？我读书少，不懂。<br><img src="http://ww2.sinaimg.cn/large/006pmDnJjw1f42v0u9vbyj30k00zk0z8.jpg"></p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3977491167444123" target="freeweibo-mirror">//@江烈农:论文pdf：http://t.cn/R5vAa…</a>
 </h2>
 <p>//@江烈农:论文pdf：http://t.cn/R5vAadX //@夜郎国主: 还有监狱里的网评员，今古奇观。</p>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3977343444097514" target="freeweibo-mirror">//@大势将至: 张局看罢，放下正在誊抄的《党章》，正色道：…</a>
 </h2>
 <p>//@大势将至: 张局看罢，放下正在誊抄的《党章》，正色道：呵呵，国民党反动派在关键时刻，还是暴露了资产阶级的软弱性。换作我们，重型机械上场！[酷]<br><br>RE: 当年台湾雷震主持《自由中国》被判刑；民进党人林义雄的母亲和 一对孪生女儿被人利斧砍死；陈水扁的妻子吴淑珍，被人故意用车辗过双脚而残废；客家委员会主委叶菊兰，其丈夫就是为了争取言论自由而自焚的郑南榕，还有施明德曾被判死刑，吕秀莲判刑12年，不要羡慕海峡彼岸，自由平等从来都不是天降的！<br><img src="http://ww4.sinaimg.cn/large/ca98d4a4jw1f422sjyilaj20u00k00u2.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3977343380607211" target="freeweibo-mirror">[赞][话筒]</a>
-</h2>
-<p>[赞][话筒]<br><br>RE: 由于时差的关系，大游行将发生在中国的日落西山之后。连纽约的时代广场大荧光屏都发消息，这是怎样的民心表达！ //@曹明华和曹明逸: 5月21日，全球反孟山都和抗议转基因食品大游行！转基因种植最泛滥的国家中国缺席【四次】（http://t.cn/R5vvFSS）</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
