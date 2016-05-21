@@ -41,19 +41,19 @@
 </h2>
 <p>//@绍兴师爷行北京://@邵明波:转发微博<br><br>RE: 有些事是改变，不是改革。比如，政府强行参股互联网公司。这种改变从方向性来讲就是赤裸裸的倒退。如果前几届政府也像这样“热心”，就根本不可能有今天中国互联网行业规模。尽管这些事被官方冠名“改革”，但是社会各界非常鄙视这种行为。</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3977720419445921" target="freeweibo-mirror">//@人见人爱的肉唐僧: 为人民服务！</a>
 </h2>
 <p>//@人见人爱的肉唐僧: 为人民服务！<br><br>RE: 昌平非京籍家长自焚案的报道。苍天有眼，有些人必有报应。<br><img src="http://ww4.sinaimg.cn/large/6200b57bjw1f43d15o7gtj20qo2frb29.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3977720179757639" target="freeweibo-mirror">SPAM OMG.//@张晨初艺术空间: [伤心]//@梧桐…</a>
 </h2>
 <p>SPAM OMG.//@张晨初艺术空间: [伤心]//@梧桐树影影婆娑: //@长沙罗刚: 他在北京奋斗扎根，肯定够坚强。可是，两周来，为孩子上小学四处奔波，竟然被逼自焚。父爱的绝望，坚冰的冷漠。人心世道，同情心何在？<br><br>RE: 昌平非京籍家长自焚案的报道。苍天有眼，有些人必有报应。<br><img src="http://ww4.sinaimg.cn/large/6200b57bjw1f43d15o7gtj20qo2frb29.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3977719399999339" target="freeweibo-mirror">SPAM //@郭贺军Andy:人，生而平等，无国界。党国自…</a>
 </h2>
