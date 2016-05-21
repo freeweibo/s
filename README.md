@@ -29,7 +29,7 @@
 </h2>
 <p>SPAM  //@点子正:[赞]//@椒江叶Sir:#520用爱发电# 我说的就是对你说的的翻译。//@如东县曹埠派出所肖飞:我啥都没听懂，我听懂了我也装没听懂[笑cry] //@鸿_钧_:我承认，但我就不承认我承认[挖鼻]<br><br>RE: #520用爱发电#台湾男版pi酱解读小英讲话，打脸凶猛啊。。[笑cry] http://t.cn/R5vPwAC .</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3977484804827204" target="freeweibo-mirror">//@伊锘://@梅铮星://@benben马甲: 转发微博</a>
 </h2>
@@ -71,7 +71,7 @@
 </h2>
 <p>SPAM 哈哈，你这是在宣誓呢，还是想打孙大炮？<br><img src="http://ww3.sinaimg.cn/large/48c00fbbgw1f4291aiffxj20qo0g077j.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3977345814160149" target="freeweibo-mirror">SPAM [鲜花]//@陈光武律师://@萧含:简洁。庄重。</a>
 </h2>
