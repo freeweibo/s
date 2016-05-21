@@ -43,6 +43,12 @@
 <p>
 	<small> ============== 1小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3977602803147783" target="freeweibo-mirror">http://t.cn/R5PAk0l //@拜骨山: 传播…</a>
+</h2>
+<p>http://t.cn/R5PAk0l //@拜骨山: 传播一点真相，还得曲线救国。<br><br>RE: 【雷洋案调查抓紧进行】北京市检察院技术部门今天放弃休息，三位检察院技术人员查验、提取、保全了雷洋手机数据。查验工作在昌平区检察院进行，由雷洋妻子当场解码，全程录像。前后进行了三个多小时。雷洋多位亲属在场。提取的具体内容被告知不允许透露。（陈有西律师授权发布）</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3977602735391760" target="freeweibo-mirror">这届人民醒了……//@互联网的那点事:hhhhh</a>
 </h2>
 <p>这届人民醒了……//@互联网的那点事:hhhhh</p>
@@ -61,17 +67,53 @@
 <p>
 	<small> ============== 1小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3977601805085294" target="freeweibo-mirror">SPAM [泪] //@假装大律师:[伤心] //@徐昕:[…</a>
+</h2>
+<p>SPAM [泪] //@假装大律师:[伤心] //@徐昕:[泪]//@喜欢短发姑娘:悲哀//@黃毓民讀史: //@叶匡政:[泪] //@杨学林律师:震惊。<br><br>RE: 北京昌平：非京籍儿童家长因入学权自焚抗议？<br><img src="http://ww2.sinaimg.cn/large/6a80bfcdgw1f430d4gssgj20hs0vmzmq.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3977601447580781" target="freeweibo-mirror">SPAM 为了孩子读书都得自焚？//@糠王://@叶匡政: …</a>
+</h2>
+<p>SPAM 为了孩子读书都得自焚？//@糠王://@叶匡政: [泪] //@杨学林律师:震惊。<br><br>RE: 北京昌平：非京籍儿童家长因入学权自焚抗议？<br><img src="http://ww2.sinaimg.cn/large/6a80bfcdgw1f430d4gssgj20hs0vmzmq.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3977600839763859" target="freeweibo-mirror">//@张晨初艺术空间://@星星在海的那一边://@文盲李世…</a>
+</h2>
+<p>//@张晨初艺术空间://@星星在海的那一边://@文盲李世威:[哈哈]//@金融评论员:[哈哈] //@天涯赵瑜:哈哈。这一届人民的确那啥</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3977600604647266" target="freeweibo-mirror">SPAM //@张晨初艺术空间: [伤心]//@小桥流水cm…</a>
+</h2>
+<p>SPAM //@张晨初艺术空间: [伤心]//@小桥流水cmm:痛//@盘子微谈:[泪]//@谓贤之音:[泪]//@袁国宝: [泪] //@叶匡政:[泪] //@杨学林律师:震惊。<br><br>RE: 北京昌平：非京籍儿童家长因入学权自焚抗议？<br><img src="http://ww2.sinaimg.cn/large/6a80bfcdgw1f430d4gssgj20hs0vmzmq.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3977600081068817" target="freeweibo-mirror">[吃惊] //@盘子微谈:[泪]//@谓贤之音:[泪]//@…</a>
 </h2>
 <p>[吃惊] //@盘子微谈:[泪]//@谓贤之音:[泪]//@袁国宝: [泪] //@叶匡政:[泪] //@杨学林律师:震惊。<br><br>RE: 北京昌平：非京籍儿童家长因入学权自焚抗议？<br><img src="http://ww2.sinaimg.cn/large/6a80bfcdgw1f430d4gssgj20hs0vmzmq.jpg"></p>
 <p>
 	<small> ============== 1小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3977598704841835" target="freeweibo-mirror">万恶的[泪][泪][泪]//@孙公Talking40:日他妈…</a>
+</h2>
+<p>万恶的[泪][泪][泪]//@孙公Talking40:日他妈，什么社会主义呀。[吐] //@叶匡政:[泪] //@杨学林律师:震惊。<br><br>RE: 北京昌平：非京籍儿童家长因入学权自焚抗议？<br><img src="http://ww2.sinaimg.cn/large/6a80bfcdgw1f430d4gssgj20hs0vmzmq.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3977598574757368" target="freeweibo-mirror">为其祷告！为他们的家庭祷告！</a>
 </h2>
 <p>为其祷告！为他们的家庭祷告！<br><br>RE: 北京昌平：非京籍儿童家长因入学权自焚抗议？<br><img src="http://ww2.sinaimg.cn/large/6a80bfcdgw1f430d4gssgj20hs0vmzmq.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3977597488006356" target="freeweibo-mirror">[熊猫]//@叶匡政: 世界上最野蛮、最无人性的行为，就是不…</a>
+</h2>
+<p>[熊猫]//@叶匡政: 世界上最野蛮、最无人性的行为，就是不让孩子上学！ //@杨学林律师:震惊。<br><br>RE: 北京昌平：非京籍儿童家长因入学权自焚抗议？<br><img src="http://ww2.sinaimg.cn/large/6a80bfcdgw1f430d4gssgj20hs0vmzmq.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3977597366953863" target="freeweibo-mirror">后来自己删了[猪头]//@风青杨V: //@天涯赵瑜: 哈哈…</a>
 </h2>
@@ -79,65 +121,23 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
-	<a href="https://freeweibo.com/weibo/3977592568249419" target="freeweibo-mirror">【雷洋案调查抓紧进行】北京市检察院技术部门今天放弃休息，三位…</a>
+	<a href="https://freeweibo.com/weibo/3977596398173732" target="freeweibo-mirror">世界上最野蛮、最无人性的行为，就是不让孩子上学！ //@杨学…</a>
 </h2>
-<p>【雷洋案调查抓紧进行】北京市检察院技术部门今天放弃休息，三位检察院技术人员查验、提取、保全了雷洋手机数据。查验工作在昌平区检察院进行，由雷洋妻子当场解码，全程录像。前后进行了三个多小时。雷洋多位亲属在场。提取的具体内容被告知不允许透露。（陈有西律师授权发布）</p>
+<p>世界上最野蛮、最无人性的行为，就是不让孩子上学！ //@杨学林律师:震惊。<br><br>RE: 北京昌平：非京籍儿童家长因入学权自焚抗议？<br><img src="http://ww2.sinaimg.cn/large/6a80bfcdgw1f430d4gssgj20hs0vmzmq.jpg"></p>
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
-	<a href="https://freeweibo.com/weibo/3977592090235423" target="freeweibo-mirror">//@老李牧鑫: //@男海岸://@阳光润泉:转发微博</a>
+	<a href="https://freeweibo.com/weibo/3977596108535494" target="freeweibo-mirror">SPAM [泪] //@叶匡政:[泪] //@杨学林律师:震…</a>
 </h2>
-<p>//@老李牧鑫: //@男海岸://@阳光润泉:转发微博<br><br>RE: 此有心人的观察。至于总统府宣誓面对的那半神像，迟早要取下的，国歌也要改的。<br><img src="http://ww2.sinaimg.cn/large/473f8cfdjw1f42rjaihyej20hs7gqtub.jpg"></p>
+<p>SPAM [泪] //@叶匡政:[泪] //@杨学林律师:震惊。<br><br>RE: 北京昌平：非京籍儿童家长因入学权自焚抗议？<br><img src="http://ww2.sinaimg.cn/large/6a80bfcdgw1f430d4gssgj20hs0vmzmq.jpg"></p>
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
-	<a href="https://freeweibo.com/weibo/3977588299074306" target="freeweibo-mirror">这一届人民开窍了……</a>
+	<a href="https://freeweibo.com/weibo/3977594421940170" target="freeweibo-mirror">貌似人民网自己把帖子删了。//@文盲李世威: [哈哈]//@…</a>
 </h2>
-<p>这一届人民开窍了……</p>
+<p>貌似人民网自己把帖子删了。//@文盲李世威: [哈哈]//@金融评论员:[哈哈] //@天涯赵瑜:哈哈。这一届人民的确那啥</p>
 <p>
 	<small> ============== 2小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3977588223509449" target="freeweibo-mirror">SPAM //@李方平律师:狱中许博士听到会极其悲伤！</a>
-</h2>
-<p>SPAM //@李方平律师:狱中许博士听到会极其悲伤！<br><br>RE: 北京昌平：非京籍儿童家长因入学权自焚抗议？<br><img src="http://ww2.sinaimg.cn/large/6a80bfcdgw1f430d4gssgj20hs0vmzmq.jpg"></p>
-<p>
-	<small> ============== 2小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3977587111750975" target="freeweibo-mirror">既然已是多党轮替的民主政治，描绘国民党一党专政的国歌语句就不…</a>
-</h2>
-<p>既然已是多党轮替的民主政治，描绘国民党一党专政的国歌语句就不合适了，应该改 //@喷嚏网铂程:转发微博<br><br>RE: 此有心人的观察。至于总统府宣誓面对的那半神像，迟早要取下的，国歌也要改的。<br><img src="http://ww2.sinaimg.cn/large/473f8cfdjw1f42rjaihyej20hs7gqtub.jpg"></p>
-<p>
-	<small> ============== 2小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3977585119505782" target="freeweibo-mirror">这一届人民开窍了……[笑cry][笑cry][笑cry][d…</a>
-</h2>
-<p>这一届人民开窍了……[笑cry][笑cry][笑cry][doge][doge][doge][酷][酷][酷]<br><img src="http://ww4.sinaimg.cn/large/3bd4391ajw1f430g9n4gij20ci0m8wgg.jpg"></p>
-<p>
-	<small> ============== 2小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3977584767726720" target="freeweibo-mirror">北京昌平：非京籍儿童家长因入学权自焚抗议？</a>
-</h2>
-<p>北京昌平：非京籍儿童家长因入学权自焚抗议？<br><img src="http://ww2.sinaimg.cn/large/6a80bfcdgw1f430d4gssgj20hs0vmzmq.jpg"></p>
-<p>
-	<small> ============== 2小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3977575556969020" target="freeweibo-mirror">中华民国，乃我华夏千年专制后最光明之民主政体，当大陆身陷文化…</a>
-</h2>
-<p>中华民国，乃我华夏千年专制后最光明之民主政体，当大陆身陷文化、政治及道德之系统性崩毁，台岛也就成了华人未来希望之所系。 祈愿天佑台湾，国祚永庚！//@王小山:小英和大仁哥，哈哈哈，好玩。//@徐昕:批判性阅读 //@绍兴师爷行北京://@何光伟://@斯韦爵:真正体现了什么叫自信！<br><br>RE: 此有心人的观察。至于总统府宣誓面对的那半神像，迟早要取下的，国歌也要改的。<br><img src="http://ww2.sinaimg.cn/large/473f8cfdjw1f42rjaihyej20hs7gqtub.jpg"></p>
-<p>
-	<small> ============== 3小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3977572784580834" target="freeweibo-mirror">//@搜云看雾: //@陌上行者2015://@亮剑兄又来啦…</a>
-</h2>
-<p>//@搜云看雾: //@陌上行者2015://@亮剑兄又来啦: //@遇见渔人: 有吗？ //@霜葉15s_://@Pig_of_life: //@浊酒秋月: //@雷公旗://@善良恩圣: 转发微博<br><br>RE: 这位网友说没有资格考人家台湾，请问他说的对吗？我读书少，不懂。<br><img src="http://ww2.sinaimg.cn/large/006pmDnJjw1f42v0u9vbyj30k00zk0z8.jpg"></p>
-<p>
-	<small> ============== 3小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3977571659554247" target="freeweibo-mirror">//@陌上行者2015://@亮剑兄又来啦: //@遇见渔人…</a>
-</h2>
-<p>//@陌上行者2015://@亮剑兄又来啦: //@遇见渔人: 有吗？ //@霜葉15s_://@Pig_of_life: //@浊酒秋月: //@雷公旗://@善良恩圣: 转发微博<br><br>RE: 这位网友说没有资格考人家台湾，请问他说的对吗？我读书少，不懂。<br><img src="http://ww2.sinaimg.cn/large/006pmDnJjw1f42v0u9vbyj30k00zk0z8.jpg"></p>
-<p>
-	<small> ============== 3小时前</small>
 </p>
 <table>
     <tr>
