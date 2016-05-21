@@ -95,7 +95,7 @@
 </h2>
 <p>[吃惊] //@盘子微谈:[泪]//@谓贤之音:[泪]//@袁国宝: [泪] //@叶匡政:[泪] //@杨学林律师:震惊。<br><br>RE: 北京昌平：非京籍儿童家长因入学权自焚抗议？<br><img src="http://ww2.sinaimg.cn/large/6a80bfcdgw1f430d4gssgj20hs0vmzmq.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3977598704841835" target="freeweibo-mirror">万恶的[泪][泪][泪]//@孙公Talking40:日他妈…</a>
 </h2>
