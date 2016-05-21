@@ -23,13 +23,13 @@
 </h2>
 <p>//@搜云看雾: //@陌上行者2015://@亮剑兄又来啦: //@遇见渔人: 有吗？ //@霜葉15s_://@Pig_of_life: //@浊酒秋月: //@雷公旗://@善良恩圣: 转发微博<br><br>RE: 这位网友说没有资格考人家台湾，请问他说的对吗？我读书少，不懂。<br><img src="http://ww2.sinaimg.cn/large/006pmDnJjw1f42v0u9vbyj30k00zk0z8.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3977571659554247" target="freeweibo-mirror">//@陌上行者2015://@亮剑兄又来啦: //@遇见渔人…</a>
 </h2>
 <p>//@陌上行者2015://@亮剑兄又来啦: //@遇见渔人: 有吗？ //@霜葉15s_://@Pig_of_life: //@浊酒秋月: //@雷公旗://@善良恩圣: 转发微博<br><br>RE: 这位网友说没有资格考人家台湾，请问他说的对吗？我读书少，不懂。<br><img src="http://ww2.sinaimg.cn/large/006pmDnJjw1f42v0u9vbyj30k00zk0z8.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3977565821702093" target="freeweibo-mirror">SPAM 三自信课题研究的子题之一</a>
 </h2>
