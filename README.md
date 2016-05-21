@@ -53,7 +53,7 @@
 </h2>
 <p>SPAM //@心灵必须课:阅读全文请看文章最下图，后续更精彩！</p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3977361190194037" target="freeweibo-mirror">SPAM Sense大促开始了，寄国内还是抽税，女鞋：htt…</a>
 </h2>
@@ -119,7 +119,7 @@
 </h2>
 <p>//@晓雨闻铃://@杨洪纲: //@法律人童朝平://@M袁飏: //@刘力博士://@Wk实干兴邦://@天蝎黄世旭://@爱就向往://@杜君立: 从一场比赛无耻和暴力的游戏，变成一场比赛文明和智慧的公开竞选，政治诞生了。<br><br>RE: 不懂历史的无法想象这一握手的巨大意义，传统上中国的政权都是靠杀人去抢的。<br><img src="http://ww1.sinaimg.cn/large/4d39707fjw1f424zvl2gzj20go0b4wf5.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3977339660408695" target="freeweibo-mirror">#520用爱发电#台湾男版pi酱解读小英讲话，打脸凶猛啊。。…</a>
 </h2>
