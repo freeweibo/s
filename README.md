@@ -19,6 +19,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3977652513726002" target="freeweibo-mirror">SPAM 这个必须看[心]</a>
+</h2>
+<p>SPAM 这个必须看[心]</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3977614685547082" target="freeweibo-mirror">//@未得糊涂://@阿靖2016: //@郭解放v: 转发…</a>
 </h2>
 <p>//@未得糊涂://@阿靖2016: //@郭解放v: 转发微博<br><br>RE: 【雷洋案，期待@最高人民检察院】去年，最高法刮骨疗伤，纠正了备受关注的呼格吉勒图冤案，今年“两会”反对票创10年最低。现在，雷洋案交给了检察院，公众充满信心。<br><img src="http://ww3.sinaimg.cn/large/53d307eajw1f41m2f2f89j20hs0vkjuz.jpg"></p>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3977601447580781" target="freeweibo-mirror">SPAM 为了孩子读书都得自焚？//@糠王://@叶匡政: …</a>
 </h2>
 <p>SPAM 为了孩子读书都得自焚？//@糠王://@叶匡政: [泪] //@杨学林律师:震惊。<br><br>RE: 北京昌平：非京籍儿童家长因入学权自焚抗议？<br><img src="http://ww2.sinaimg.cn/large/6a80bfcdgw1f430d4gssgj20hs0vmzmq.jpg"></p>
-<p>
-	<small> ============== 4小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3977601003490786" target="freeweibo-mirror">资本主义国家的孩子在大城市里读书会需要面对各种苛刻的门槛吗？…</a>
-</h2>
-<p>资本主义国家的孩子在大城市里读书会需要面对各种苛刻的门槛吗？ //@defect3:一边骂被台湾香港歧视一边歧视自己人[哈哈]//@李军林导演:鼓励农民出来打工，又不能让农民的孩子在城里读书，只能让孩子回农村去做留守儿童，又他妈的天天喊要关爱留守儿童，你妈的个傻逼政策，一群虚伪的既得利益者同盟。<br><br>RE: 北京昌平：非京籍儿童家长因入学权自焚抗议？<br><img src="http://ww2.sinaimg.cn/large/6a80bfcdgw1f430d4gssgj20hs0vmzmq.jpg"></p>
 <p>
 	<small> ============== 4小时前</small>
 </p>
