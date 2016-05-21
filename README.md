@@ -71,7 +71,7 @@
 </h2>
 <p>SPAM 这个必须看[心]</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3977647400206933" target="freeweibo-mirror">“似乎与他在《60分钟》节目中接受华莱士采访时的一流表现恰恰…</a>
 </h2>
