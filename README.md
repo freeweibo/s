@@ -29,7 +29,19 @@
 </h2>
 <p>//@伊锘://@梅铮星://@benben马甲: 转发微博</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3977480609964316" target="freeweibo-mirror">世界知名学府对中国著名政治特产——”五毛“的研究报告出炉！！…</a>
+</h2>
+<p>世界知名学府对中国著名政治特产——”五毛“的研究报告出炉！！[doge][喵喵]</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3977477586344117" target="freeweibo-mirror">//@做绘本的懒老姬:五毛钱比百元大钞还有内涵[偷笑]//@…</a>
+</h2>
+<p>//@做绘本的懒老姬:五毛钱比百元大钞还有内涵[偷笑]//@liguantu: 研究五毛党，拿博士学位。[doge]</p>
+<p>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3977363551289934" target="freeweibo-mirror">SPAM //@心灵必须课:阅读全文请看文章最下图，后续更精…</a>
 </h2>
@@ -126,18 +138,6 @@
 <p>哈佛大学法学博士和伦敦政经学院政治学博士的职位交接。//@天天有贼: //@杜君立: 从一场比赛无耻和暴力的游戏，变成一场比赛文明和智慧的公开竞选，政治诞生了。<br><br>RE: 不懂历史的无法想象这一握手的巨大意义，传统上中国的政权都是靠杀人去抢的。<br><img src="http://ww1.sinaimg.cn/large/4d39707fjw1f424zvl2gzj20go0b4wf5.jpg"></p>
 <p>
 	<small> ============== 11小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3977337017943577" target="freeweibo-mirror">还是这届台湾人民不行！ //@杜君立:没有博士文凭就是这样[…</a>
-</h2>
-<p>还是这届台湾人民不行！ //@杜君立:没有博士文凭就是这样[酷]//@加藤蚁: //@左春和:达不到初一水平。<br><br>RE: 下图是台湾蔡英文的就职演说词，給我的印象是蔡英文沒有什麼文化！什麼柏拉圖、黑格爾、康德、馬克思、伏爾泰、尼釆、別爾嘉耶夫、蘇格拉底、羅素⋯⋯所有外國大哲學家、大思想家中，蔡英文在就职演说中沒有提到過一位。台湾人民选出了一位文盲总统。[得意]<br><img src="http://ww4.sinaimg.cn/large/ca98d4a4jw1f423jtzbk5j20d67psb29.jpg"></p>
-<p>
-	<small> ============== 11小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3977333704894733" target="freeweibo-mirror">//@张晨初艺术空间: http://t.cn/RqsmQR…</a>
-</h2>
-<p>//@张晨初艺术空间: http://t.cn/RqsmQRw  //@壬辰子龙RCZL://@gg弋平: 公检法吗，谁立谁呀…………//@斯韦爵:还没立案？ //@孔智-勇:真的假的？[吃惊][吃惊][吃惊] //@虎叔-:呵呵，你喝多了吧？</p>
-<p>
-	<small> ============== 12小时前</small>
 </p>
 <table>
     <tr>
