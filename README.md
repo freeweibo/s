@@ -131,13 +131,13 @@
 </h2>
 <p>SPAM 为了孩子读书都得自焚？//@糠王://@叶匡政: [泪] //@杨学林律师:震惊。<br><br>RE: 北京昌平：非京籍儿童家长因入学权自焚抗议？<br><img src="http://ww2.sinaimg.cn/large/6a80bfcdgw1f430d4gssgj20hs0vmzmq.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3977601003490786" target="freeweibo-mirror">资本主义国家的孩子在大城市里读书会需要面对各种苛刻的门槛吗？…</a>
 </h2>
 <p>资本主义国家的孩子在大城市里读书会需要面对各种苛刻的门槛吗？ //@defect3:一边骂被台湾香港歧视一边歧视自己人[哈哈]//@李军林导演:鼓励农民出来打工，又不能让农民的孩子在城里读书，只能让孩子回农村去做留守儿童，又他妈的天天喊要关爱留守儿童，你妈的个傻逼政策，一群虚伪的既得利益者同盟。<br><br>RE: 北京昌平：非京籍儿童家长因入学权自焚抗议？<br><img src="http://ww2.sinaimg.cn/large/6a80bfcdgw1f430d4gssgj20hs0vmzmq.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p>
 <table>
     <tr>
