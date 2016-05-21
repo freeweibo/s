@@ -25,6 +25,12 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3977550096787184" target="freeweibo-mirror">//@一碗余:同样的法学博士，法治意识咋差距那么大捏//@炼…</a>
+</h2>
+<p>//@一碗余:同样的法学博士，法治意识咋差距那么大捏//@炼金术士gewesen:噗[笑cry] //@vetiver010:海峡两岸的最高领导人同时都拥有【法学博士】，这在历史上，还是第一次。[阴险]<br><br>RE: 【真正的法学博士是不需要报书单的】蔡英文先后在美国康乃尔大学获得法学硕士，在英国伦敦大学政经学院获得法学博士。这次就职演讲，莎士比亚、华兹华斯、简·奥斯汀、狄更斯……孟德斯鸠、伏尔泰、卢梭、狄德罗……普希金、托尔斯泰、肖洛霍夫……一个都没有提及，没有。<br><img src="http://ww1.sinaimg.cn/large/bbe0ddc1gw1f42gbp4de8j20ic0abjrv.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3977491167444123" target="freeweibo-mirror">//@江烈农:论文pdf：http://t.cn/R5vAa…</a>
 </h2>
 <p>//@江烈农:论文pdf：http://t.cn/R5vAadX //@夜郎国主: 还有监狱里的网评员，今古奇观。</p>
@@ -53,7 +59,7 @@
 </h2>
 <p>//@做绘本的懒老姬:五毛钱比百元大钞还有内涵[偷笑]//@liguantu: 研究五毛党，拿博士学位。[doge]</p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3977363551289934" target="freeweibo-mirror">SPAM //@心灵必须课:阅读全文请看文章最下图，后续更精…</a>
 </h2>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3977339660408695" target="freeweibo-mirror">#520用爱发电#台湾男版pi酱解读小英讲话，打脸凶猛啊。。…</a>
 </h2>
 <p>#520用爱发电#台湾男版pi酱解读小英讲话，打脸凶猛啊。。[笑cry] http://t.cn/R5vPwAC .</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3977339329564806" target="freeweibo-mirror">由于时差的关系，大游行将发生在中国的日落西山之后。连纽约的时…</a>
-</h2>
-<p>由于时差的关系，大游行将发生在中国的日落西山之后。连纽约的时代广场大荧光屏都发消息，这是怎样的民心表达！ //@曹明华和曹明逸: 5月21日，全球反孟山都和抗议转基因食品大游行！转基因种植最泛滥的国家中国缺席【四次】（http://t.cn/R5vvFSS）</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
