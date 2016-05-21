@@ -23,7 +23,13 @@
 </h2>
 <p>//@江烈农:论文pdf：http://t.cn/R5vAadX //@夜郎国主: 还有监狱里的网评员，今古奇观。</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3977490755494031" target="freeweibo-mirror">SPAM  //@点子正:[赞]//@椒江叶Sir:#520…</a>
+</h2>
+<p>SPAM  //@点子正:[赞]//@椒江叶Sir:#520用爱发电# 我说的就是对你说的的翻译。//@如东县曹埠派出所肖飞:我啥都没听懂，我听懂了我也装没听懂[笑cry] //@鸿_钧_:我承认，但我就不承认我承认[挖鼻]<br><br>RE: #520用爱发电#台湾男版pi酱解读小英讲话，打脸凶猛啊。。[笑cry] http://t.cn/R5vPwAC .</p>
+<p>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3977484804827204" target="freeweibo-mirror">//@伊锘://@梅铮星://@benben马甲: 转发微博</a>
 </h2>
@@ -113,7 +119,7 @@
 </h2>
 <p>//@晓雨闻铃://@杨洪纲: //@法律人童朝平://@M袁飏: //@刘力博士://@Wk实干兴邦://@天蝎黄世旭://@爱就向往://@杜君立: 从一场比赛无耻和暴力的游戏，变成一场比赛文明和智慧的公开竞选，政治诞生了。<br><br>RE: 不懂历史的无法想象这一握手的巨大意义，传统上中国的政权都是靠杀人去抢的。<br><img src="http://ww1.sinaimg.cn/large/4d39707fjw1f424zvl2gzj20go0b4wf5.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3977339329564806" target="freeweibo-mirror">由于时差的关系，大游行将发生在中国的日落西山之后。连纽约的时…</a>
 </h2>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3977337370663211" target="freeweibo-mirror">SPAM 图？</a>
 </h2>
 <p>SPAM 图？<br><br>RE: 一带一路<br><img src="http://ww2.sinaimg.cn/large/621d03b7jw1f427eq8h6dj20hs0k1q3t.jpg"></p>
-<p>
-	<small> ============== 12小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3977337039470840" target="freeweibo-mirror">哈佛大学法学博士和伦敦政经学院政治学博士的职位交接。//@天…</a>
-</h2>
-<p>哈佛大学法学博士和伦敦政经学院政治学博士的职位交接。//@天天有贼: //@杜君立: 从一场比赛无耻和暴力的游戏，变成一场比赛文明和智慧的公开竞选，政治诞生了。<br><br>RE: 不懂历史的无法想象这一握手的巨大意义，传统上中国的政权都是靠杀人去抢的。<br><img src="http://ww1.sinaimg.cn/large/4d39707fjw1f424zvl2gzj20go0b4wf5.jpg"></p>
 <p>
 	<small> ============== 12小时前</small>
 </p>
