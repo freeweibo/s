@@ -47,11 +47,17 @@
 </h2>
 <p>//@吴情树:因为人口多，土地大，钱多和官多？ //@程中柳://@雷公旗: //@善良恩圣: 转发微博<br><br>RE: 这位网友说没有资格考人家台湾，请问他说的对吗？我读书少，不懂。<br><img src="http://ww2.sinaimg.cn/large/006pmDnJjw1f42v0u9vbyj30k00zk0z8.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3977552005991476" target="freeweibo-mirror">SPAM 这篇目录，解决了我人生最重要的问题！</a>
 </h2>
 <p>SPAM 这篇目录，解决了我人生最重要的问题！</p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3977551334682338" target="freeweibo-mirror">SPAM 这紧急通知有意思[围观] //@FrFrancis…</a>
+</h2>
+<p>SPAM 这紧急通知有意思[围观] //@FrFrancis003:请加入温哥华信友堂为中国国际自由主日洪牧师特别讲道 在中国国内直接点击链接就马上翻墙可以看了： For PC视窗电脑Windows: http://t.cn/R5vEHqh  http://t.cn/R5vEHqz  http://t.cn/R5vEHq7  For 苹果电脑Mac:  http://t.cn/R5vEHq4  http://t.cn/R5vEHqZ<br><br>RE: 誰知道視頻在哪裡看呢？<br><img src="http://ww4.sinaimg.cn/large/b5f1ace9gw1f42s69j4jfj20k00zkdhk.jpg"></p>
 <p>
 	<small> ============== 4小时前</small>
 </p><h2>
@@ -65,7 +71,13 @@
 </h2>
 <p>这位网友说没有资格考人家台湾，请问他说的对吗？我读书少，不懂。<br><img src="http://ww2.sinaimg.cn/large/006pmDnJjw1f42v0u9vbyj30k00zk0z8.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3977536503360076" target="freeweibo-mirror">台湾男版@papi酱 。。。//@来去之间:这个台湾网红。。…</a>
+</h2>
+<p>台湾男版@papi酱 。。。//@来去之间:这个台湾网红。。。<br><br>RE: 分享视频 http://t.cn/R5vZTL5 .</p>
+<p>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3977491167444123" target="freeweibo-mirror">//@江烈农:论文pdf：http://t.cn/R5vAa…</a>
 </h2>
@@ -95,7 +107,7 @@
 </h2>
 <p>//@做绘本的懒老姬:五毛钱比百元大钞还有内涵[偷笑]//@liguantu: 研究五毛党，拿博士学位。[doge]</p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3977363551289934" target="freeweibo-mirror">SPAM //@心灵必须课:阅读全文请看文章最下图，后续更精…</a>
 </h2>
@@ -124,18 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3977345814160149" target="freeweibo-mirror">SPAM [鲜花]//@陈光武律师://@萧含:简洁。庄重。</a>
 </h2>
 <p>SPAM [鲜花]//@陈光武律师://@萧含:简洁。庄重。</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3977345435867513" target="freeweibo-mirror">//@王小山: 我知道挺好的事，可就是想笑，不好意思。//@…</a>
-</h2>
-<p>//@王小山: 我知道挺好的事，可就是想笑，不好意思。//@榕粉团: 注意听，口称是”向全国人民宣誓“。这个像是”宪法“定的啦。//@王小山: 我怎么好想笑，跟过家家似的。另，为什么对着孙大炮宣誓？//@吴哥cool: //@梅春来律师:真好，中国传统文化、印信、恭谨谦卑的礼节全在台湾保存了 //@萧含:简洁</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3977343809219498" target="freeweibo-mirror">SPAM [笑cry] //@猫小喵滴兔子:[笑cry]//…</a>
-</h2>
-<p>SPAM [笑cry] //@猫小喵滴兔子:[笑cry]//@lswylmx:[笑cry]//@老辣陈香:[笑cry]//@阿理汗:[笑cry]//@椒江叶Sir:[笑cry] //@一都阿叔:[笑cry] //@苦行僧兵:[笑cry]//@余姚二姐:</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
