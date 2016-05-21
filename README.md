@@ -79,6 +79,18 @@
 <p>
 	<small> ============== 5小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3977513124079952" target="freeweibo-mirror">誰知道視頻在哪裡看呢？</a>
+</h2>
+<p>誰知道視頻在哪裡看呢？<br><img src="http://ww4.sinaimg.cn/large/b5f1ace9gw1f42s69j4jfj20k00zkdhk.jpg"></p>
+<p>
+	<small> ============== 7小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3977508179176628" target="freeweibo-mirror">此有心人的观察。至于总统府宣誓面对的那半神像，迟早要取下的，…</a>
+</h2>
+<p>此有心人的观察。至于总统府宣誓面对的那半神像，迟早要取下的，国歌也要改的。<br><img src="http://ww2.sinaimg.cn/large/473f8cfdjw1f42rjaihyej20hs7gqtub.jpg"></p>
+<p>
+	<small> ============== 7小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3977491167444123" target="freeweibo-mirror">//@江烈农:论文pdf：http://t.cn/R5vAa…</a>
 </h2>
 <p>//@江烈农:论文pdf：http://t.cn/R5vAadX //@夜郎国主: 还有监狱里的网评员，今古奇观。</p>
@@ -124,18 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3977361094015469" target="freeweibo-mirror">SPAM #情感树洞#今天是我和我男朋友好四年的日子，但是在…</a>
 </h2>
 <p>SPAM #情感树洞#今天是我和我男朋友好四年的日子，但是在前段时间我们分手了。本来感觉已经放下他了，但在今天这个日子心还是在隐隐作痛，想和他聊聊关于我们之间的事，但又没什么聊的，聊不到一起，心情特别不好，准备一会儿去操场和舍友打打篮球，整理整理心情。<br><img src="http://ww3.sinaimg.cn/large/8063a3d3jw1f42aq1ulkfj20dw0c8aam.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3977353207624387" target="freeweibo-mirror">分享视频 http://t.cn/R5vZTL5 .</a>
-</h2>
-<p>分享视频 http://t.cn/R5vZTL5 .</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3977346618885254" target="freeweibo-mirror">SPAM 哈哈，你这是在宣誓呢，还是想打孙大炮？</a>
-</h2>
-<p>SPAM 哈哈，你这是在宣誓呢，还是想打孙大炮？<br><img src="http://ww3.sinaimg.cn/large/48c00fbbgw1f4291aiffxj20qo0g077j.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
