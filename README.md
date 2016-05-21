@@ -29,7 +29,7 @@
 </h2>
 <p>SPAM //@萧含://@玉风: 转发，已经无话可说！<br><br>RE: 分享图片<br><img src="http://ww3.sinaimg.cn/large/698c1b27gw1f438680vwaj20k00zk0wo.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3977661921279402" target="freeweibo-mirror">其实这是一个学霸教香港动机不良的记者做人的故事。</a>
 </h2>
