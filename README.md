@@ -19,6 +19,30 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3977603662312000" target="freeweibo-mirror">//@M袁飏: [good]</a>
+</h2>
+<p>//@M袁飏: [good]<br><br>RE: 【雷洋案调查抓紧进行】北京市检察院技术部门今天放弃休息，三位检察院技术人员查验、提取、保全了雷洋手机数据。查验工作在昌平区检察院进行，由雷洋妻子当场解码，全程录像。前后进行了三个多小时。雷洋多位亲属在场。提取的具体内容被告知不允许透露。（陈有西律师授权发布）</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3977603407122228" target="freeweibo-mirror">//@张晨初艺术空间: http://t.cn/R5PAk0…</a>
+</h2>
+<p>//@张晨初艺术空间: http://t.cn/R5PAk0l //@拜骨山: 传播一点真相，还得曲线救国。<br><br>RE: 【雷洋案调查抓紧进行】北京市检察院技术部门今天放弃休息，三位检察院技术人员查验、提取、保全了雷洋手机数据。查验工作在昌平区检察院进行，由雷洋妻子当场解码，全程录像。前后进行了三个多小时。雷洋多位亲属在场。提取的具体内容被告知不允许透露。（陈有西律师授权发布）</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3977602735391760" target="freeweibo-mirror">这届人民醒了……//@互联网的那点事:hhhhh</a>
+</h2>
+<p>这届人民醒了……//@互联网的那点事:hhhhh</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3977602475940050" target="freeweibo-mirror">//@梦晨伤:喏……[浮云]//@格瓦拉:[泪] //@假装…</a>
+</h2>
+<p>//@梦晨伤:喏……[浮云]//@格瓦拉:[泪] //@假装大律师:[伤心] //@徐昕:[泪]//@喜欢短发姑娘:悲哀//@黃毓民讀史: //@叶匡政:[泪] //@杨学林律师:震惊。<br><br>RE: 北京昌平：非京籍儿童家长因入学权自焚抗议？<br><img src="http://ww2.sinaimg.cn/large/6a80bfcdgw1f430d4gssgj20hs0vmzmq.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3977592090235423" target="freeweibo-mirror">//@老李牧鑫: //@男海岸://@阳光润泉:转发微博</a>
 </h2>
 <p>//@老李牧鑫: //@男海岸://@阳光润泉:转发微博<br><br>RE: 此有心人的观察。至于总统府宣誓面对的那半神像，迟早要取下的，国歌也要改的。<br><img src="http://ww2.sinaimg.cn/large/473f8cfdjw1f42rjaihyej20hs7gqtub.jpg"></p>
@@ -46,6 +70,12 @@
 	<a href="https://freeweibo.com/weibo/3977585119505782" target="freeweibo-mirror">这一届人民开窍了……[笑cry][笑cry][笑cry][d…</a>
 </h2>
 <p>这一届人民开窍了……[笑cry][笑cry][笑cry][doge][doge][doge][酷][酷][酷]<br><img src="http://ww4.sinaimg.cn/large/3bd4391ajw1f430g9n4gij20ci0m8wgg.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3977584767726720" target="freeweibo-mirror">北京昌平：非京籍儿童家长因入学权自焚抗议？</a>
+</h2>
+<p>北京昌平：非京籍儿童家长因入学权自焚抗议？<br><img src="http://ww2.sinaimg.cn/large/6a80bfcdgw1f430d4gssgj20hs0vmzmq.jpg"></p>
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
@@ -101,43 +131,13 @@
 </h2>
 <p>//@一碗余:同样的法学博士，法治意识咋差距那么大捏//@炼金术士gewesen:噗[笑cry] //@vetiver010:海峡两岸的最高领导人同时都拥有【法学博士】，这在历史上，还是第一次。[阴险]<br><br>RE: 【真正的法学博士是不需要报书单的】蔡英文先后在美国康乃尔大学获得法学硕士，在英国伦敦大学政经学院获得法学博士。这次就职演讲，莎士比亚、华兹华斯、简·奥斯汀、狄更斯……孟德斯鸠、伏尔泰、卢梭、狄德罗……普希金、托尔斯泰、肖洛霍夫……一个都没有提及，没有。<br><img src="http://ww1.sinaimg.cn/large/bbe0ddc1gw1f42gbp4de8j20ic0abjrv.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3977537874410655" target="freeweibo-mirror">这位网友说没有资格考人家台湾，请问他说的对吗？我读书少，不懂…</a>
 </h2>
 <p>这位网友说没有资格考人家台湾，请问他说的对吗？我读书少，不懂。<br><img src="http://ww2.sinaimg.cn/large/006pmDnJjw1f42v0u9vbyj30k00zk0z8.jpg"></p>
 <p>
 	<small> ============== 5小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3977536503360076" target="freeweibo-mirror">台湾男版@papi酱 。。。//@来去之间:这个台湾网红。。…</a>
-</h2>
-<p>台湾男版@papi酱 。。。//@来去之间:这个台湾网红。。。<br><br>RE: 分享视频 http://t.cn/R5vZTL5 .</p>
-<p>
-	<small> ============== 5小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3977513124079952" target="freeweibo-mirror">誰知道視頻在哪裡看呢？</a>
-</h2>
-<p>誰知道視頻在哪裡看呢？<br><img src="http://ww4.sinaimg.cn/large/b5f1ace9gw1f42s69j4jfj20k00zkdhk.jpg"></p>
-<p>
-	<small> ============== 7小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3977508179176628" target="freeweibo-mirror">此有心人的观察。至于总统府宣誓面对的那半神像，迟早要取下的，…</a>
-</h2>
-<p>此有心人的观察。至于总统府宣誓面对的那半神像，迟早要取下的，国歌也要改的。<br><img src="http://ww2.sinaimg.cn/large/473f8cfdjw1f42rjaihyej20hs7gqtub.jpg"></p>
-<p>
-	<small> ============== 7小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3977491167444123" target="freeweibo-mirror">//@江烈农:论文pdf：http://t.cn/R5vAa…</a>
-</h2>
-<p>//@江烈农:论文pdf：http://t.cn/R5vAadX //@夜郎国主: 还有监狱里的网评员，今古奇观。</p>
-<p>
-	<small> ============== 8小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3977490755494031" target="freeweibo-mirror">SPAM  //@点子正:[赞]//@椒江叶Sir:#520…</a>
-</h2>
-<p>SPAM  //@点子正:[赞]//@椒江叶Sir:#520用爱发电# 我说的就是对你说的的翻译。//@如东县曹埠派出所肖飞:我啥都没听懂，我听懂了我也装没听懂[笑cry] //@鸿_钧_:我承认，但我就不承认我承认[挖鼻]<br><br>RE: #520用爱发电#台湾男版pi酱解读小英讲话，打脸凶猛啊。。[笑cry] http://t.cn/R5vPwAC .</p>
-<p>
-	<small> ============== 8小时前</small>
 </p>
 <table>
     <tr>
