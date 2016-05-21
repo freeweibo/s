@@ -25,9 +25,63 @@
 <p>
 	<small> ============== 1小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3977720847909280" target="freeweibo-mirror">//@绍兴师爷行北京://@邵明波:转发微博</a>
+</h2>
+<p>//@绍兴师爷行北京://@邵明波:转发微博<br><br>RE: 有些事是改变，不是改革。比如，政府强行参股互联网公司。这种改变从方向性来讲就是赤裸裸的倒退。如果前几届政府也像这样“热心”，就根本不可能有今天中国互联网行业规模。尽管这些事被官方冠名“改革”，但是社会各界非常鄙视这种行为。</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3977720419445921" target="freeweibo-mirror">//@人见人爱的肉唐僧: 为人民服务！</a>
+</h2>
+<p>//@人见人爱的肉唐僧: 为人民服务！<br><br>RE: 昌平非京籍家长自焚案的报道。苍天有眼，有些人必有报应。<br><img src="http://ww4.sinaimg.cn/large/6200b57bjw1f43d15o7gtj20qo2frb29.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3977720179757639" target="freeweibo-mirror">SPAM OMG.//@张晨初艺术空间: [伤心]//@梧桐…</a>
+</h2>
+<p>SPAM OMG.//@张晨初艺术空间: [伤心]//@梧桐树影影婆娑: //@长沙罗刚: 他在北京奋斗扎根，肯定够坚强。可是，两周来，为孩子上小学四处奔波，竟然被逼自焚。父爱的绝望，坚冰的冷漠。人心世道，同情心何在？<br><br>RE: 昌平非京籍家长自焚案的报道。苍天有眼，有些人必有报应。<br><img src="http://ww4.sinaimg.cn/large/6200b57bjw1f43d15o7gtj20qo2frb29.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3977719399999339" target="freeweibo-mirror">SPAM //@郭贺军Andy:人，生而平等，无国界。党国自…</a>
+</h2>
+<p>SPAM //@郭贺军Andy:人，生而平等，无国界。党国自信、自信、自信。//@李国斌律师: 美帝在中国必须适应中国国情，休想有获得超过中国人所拥有的言论自由的范围，否则一样灭口！天朝威武，直逼大清。[威武][威武][威武]<br><br>RE: 捡图@海口逗逗<br><img src="http://ww4.sinaimg.cn/large/6a246be6gw1f43ad28kh7j20ez0qo419.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3977718804763797" target="freeweibo-mirror">SPAM [伤心]//@梧桐树影影婆娑: //@长沙罗刚: …</a>
+</h2>
+<p>SPAM [伤心]//@梧桐树影影婆娑: //@长沙罗刚: 他在北京奋斗扎根，肯定够坚强。可是，两周来，为孩子上小学四处奔波，竟然被逼自焚。父爱的绝望，坚冰的冷漠。人心世道，同情心何在？<br><br>RE: 昌平非京籍家长自焚案的报道。苍天有眼，有些人必有报应。<br><img src="http://ww4.sinaimg.cn/large/6200b57bjw1f43d15o7gtj20qo2frb29.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3977718620475360" target="freeweibo-mirror">//@萧含://@邵明波:转给@微言教育  请问袁部长，这个…</a>
+</h2>
+<p>//@萧含://@邵明波:转给@微言教育  请问袁部长，这个父亲自焚之后，他的孩子可以在北京上学了吧？如此，也算值得了。<br><br>RE: 昌平非京籍家长自焚案的报道。苍天有眼，有些人必有报应。<br><img src="http://ww4.sinaimg.cn/large/6200b57bjw1f43d15o7gtj20qo2frb29.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3977716287703499" target="freeweibo-mirror">俗话说：两岁看大，三岁看老！你们懂的。。。//@云上的五花肉…</a>
+</h2>
+<p>俗话说：两岁看大，三岁看老！你们懂的。。。//@云上的五花肉: //@斯韦爵: //@绍兴师爷行北京://@邵明波:转发微博<br><br>RE: 有些事是改变，不是改革。比如，政府强行参股互联网公司。这种改变从方向性来讲就是赤裸裸的倒退。如果前几届政府也像这样“热心”，就根本不可能有今天中国互联网行业规模。尽管这些事被官方冠名“改革”，但是社会各界非常鄙视这种行为。</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3977716149885761" target="freeweibo-mirror">你b牛！</a>
+</h2>
+<p>你b牛！</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3977708528226640" target="freeweibo-mirror">SPAM 大牌使用！牙黄克星</a>
 </h2>
 <p>SPAM 大牌使用！牙黄克星</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3977707022860477" target="freeweibo-mirror">2333 //@viphjw://@李铁军: 美帝又吃了败仗…</a>
+</h2>
+<p>2333 //@viphjw://@李铁军: 美帝又吃了败仗[笑cry]//@jlijames: 好，我们的人民如何经得起这种赤果果的道理[挖鼻] //@邵明波:转发微博<br><br>RE: 捡图@海口逗逗<br><img src="http://ww4.sinaimg.cn/large/6a246be6gw1f43ad28kh7j20ez0qo419.jpg"></p>
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
@@ -35,13 +89,13 @@
 </h2>
 <p>//@尹鸿:每个人都认为别人是倒霉蛋，自己是幸运儿。千百年来，只扫自家门前雪，不管他人瓦上霜，所以活的就是一个赌概率。<br><br>RE: 雷洋自己生前不关注民众苦难、不关注死磕律师玩命死磕的那些冤案，他选择的工作单位也和他一样，特别是他的单位连自己员工之死也不关注和发声，但这并不影响成千上万网民越来越多的开始关注雷洋，我们不妨把过去雷洋的情况称之为雷洋现象，把他单位的态度称之为雷洋单位现象。 http://t.cn/RyhW8OV<br><img src="http://ww1.sinaimg.cn/large/73570bbdjw1f43dlxouiqj20qo0qotnk.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3977703730796494" target="freeweibo-mirror">確實要批判一下( ⊙ o ⊙ )啊！[偷樂]//@简直: /…</a>
 </h2>
 <p>確實要批判一下( ⊙ o ⊙ )啊！[偷樂]//@简直: //@胡杨树2012:转发微博<br><br>RE: 俺文化低，竟然无言以对，请网友狠批[作揖]<br><img src="http://ww4.sinaimg.cn/large/005GgY2ggw1f42xa2v5qtj30j60y3k0b.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3977703419915981" target="freeweibo-mirror">我是来看网友评论的[doge]</a>
 </h2>
@@ -58,6 +112,12 @@
 	<a href="https://freeweibo.com/weibo/3977702538737437" target="freeweibo-mirror">回复@张开磊:不自杀难道让他去杀人？[吃惊]//@张开磊:自…</a>
 </h2>
 <p>回复@张开磊:不自杀难道让他去杀人？[吃惊]//@张开磊:自杀太过愚蠢<br><br>RE: 昌平区这段时间表现太突出了，盖过了北京和中央的风头。<br><img src="http://ww2.sinaimg.cn/large/4ac11db3jw1f43ds0zxngj20qo2fr1kx.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3977702538737318" target="freeweibo-mirror">这应该就是宁死也要抹黑祖国吧！[怒]//@李学鹏: 为了孩子…</a>
+</h2>
+<p>这应该就是宁死也要抹黑祖国吧！[怒]//@李学鹏: 为了孩子自焚在祖国的心脏 //@邵明波:政府机关，一直在为人民服务！！！//@深圳王剑: 转发微博<br><br>RE: 昌平非京籍家长自焚案的报道。苍天有眼，有些人必有报应。<br><img src="http://ww4.sinaimg.cn/large/6200b57bjw1f43d15o7gtj20qo2frb29.jpg"></p>
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
@@ -78,66 +138,6 @@
 <p>昌平区这段时间表现太突出了，盖过了北京和中央的风头。<br><img src="http://ww2.sinaimg.cn/large/4ac11db3jw1f43ds0zxngj20qo2fr1kx.jpg"></p>
 <p>
 	<small> ============== 3小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3977699679111846" target="freeweibo-mirror">雷洋自己生前不关注民众苦难、不关注死磕律师玩命死磕的那些冤案…</a>
-</h2>
-<p>雷洋自己生前不关注民众苦难、不关注死磕律师玩命死磕的那些冤案，他选择的工作单位也和他一样，特别是他的单位连自己员工之死也不关注和发声，但这并不影响成千上万网民越来越多的开始关注雷洋，我们不妨把过去雷洋的情况称之为雷洋现象，把他单位的态度称之为雷洋单位现象。 http://t.cn/RyhW8OV<br><img src="http://ww1.sinaimg.cn/large/73570bbdjw1f43dlxouiqj20qo0qotnk.jpg"></p>
-<p>
-	<small> ============== 3小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3977697904708824" target="freeweibo-mirror">[最右] //@迟夙生律师:雷洋自己生前不关注苦难民众的艰辛…</a>
-</h2>
-<p>[最右] //@迟夙生律师:雷洋自己生前不关注苦难民众的艰辛，他选择的工作单位也和他一样，更有甚者连自己的员工之死也不关注，但这并不影响成千上万的网民越来越多的人开始关注雷洋现象、也关注雷洋工作单位的现象。//@我们去养猪：从雷洋单位不发半句话，就可明白这是个操蛋的国度。<br><br>RE: 雷洋的身份从人大硕士研究生到国家机关所属事业单位的官员，网友们并没有因此而减少对他死因的关心热度，这种趋于平和的态度，对人的生命重视程序，是社会的一个巨大进步，无论你承不承认，这是客观存在的事实！ http://t.cn/RyhW8OV<br><img src="http://ww2.sinaimg.cn/large/73570bbdjw1f43d1x6xshj20ku112grm.jpg"></p>
-<p>
-	<small> ============== 3小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3977697580811851" target="freeweibo-mirror">雷洋自己生前不关注苦难民众的艰辛，他选择的工作单位也和他一样…</a>
-</h2>
-<p>雷洋自己生前不关注苦难民众的艰辛，他选择的工作单位也和他一样，更有甚者连自己的员工之死也不关注，但这并不影响成千上万的网民越来越多的人开始关注雷洋现象、也关注雷洋工作单位的现象。//@我们去养猪：从雷洋单位不发半句话，就可明白这是个操蛋的国度。<br><br>RE: 雷洋的身份从人大硕士研究生到国家机关所属事业单位的官员，网友们并没有因此而减少对他死因的关心热度，这种趋于平和的态度，对人的生命重视程序，是社会的一个巨大进步，无论你承不承认，这是客观存在的事实！ http://t.cn/RyhW8OV<br><img src="http://ww2.sinaimg.cn/large/73570bbdjw1f43d1x6xshj20ku112grm.jpg"></p>
-<p>
-	<small> ============== 3小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3977697174493055" target="freeweibo-mirror">//@李不白的店://@印白宇: 是否嫖娼一点也不重要，怎么…</a>
-</h2>
-<p>//@李不白的店://@印白宇: 是否嫖娼一点也不重要，怎么死的，网友很关心。<br><br>RE: 雷洋的身份从人大硕士研究生到国家机关所属事业单位的官员，网友们并没有因此而减少对他死因的关心热度，这种趋于平和的态度，对人的生命重视程序，是社会的一个巨大进步，无论你承不承认，这是客观存在的事实！ http://t.cn/RyhW8OV<br><img src="http://ww2.sinaimg.cn/large/73570bbdjw1f43d1x6xshj20ku112grm.jpg"></p>
-<p>
-	<small> ============== 3小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3977695765811674" target="freeweibo-mirror">SPAM //@ICO刘开明://@王天定://@罗昌平: …</a>
-</h2>
-<p>SPAM //@ICO刘开明://@王天定://@罗昌平: 十年前的忽闻新政，还有孙志刚事件，现在有一次上好的点赞机会，却是不理不睬。</p>
-<p>
-	<small> ============== 3小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3977694858774528" target="freeweibo-mirror">雷洋的身份从人大硕士研究生到国家机关所属事业单位的官员，网友…</a>
-</h2>
-<p>雷洋的身份从人大硕士研究生到国家机关所属事业单位的官员，网友们并没有因此而减少对他死因的关心热度，这种趋于平和的态度，对人的生命重视程序，是社会的一个巨大进步，无论你承不承认，这是客观存在的事实！ http://t.cn/RyhW8OV<br><img src="http://ww2.sinaimg.cn/large/73570bbdjw1f43d1x6xshj20ku112grm.jpg"></p>
-<p>
-	<small> ============== 3小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3977692355183778" target="freeweibo-mirror">SPAM [赞]//@解密人性: [话筒]</a>
-</h2>
-<p>SPAM [赞]//@解密人性: [话筒]</p>
-<p>
-	<small> ============== 3小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3977689327588214" target="freeweibo-mirror">SPAM #继续关注雷洋#  今天看朋友圈，关于雷洋的内容已…</a>
-</h2>
-<p>SPAM #继续关注雷洋#  今天看朋友圈，关于雷洋的内容已经少之又少。的确，每天都有新闻，生活总要继续。人们不可能永远停留在一件事里，我们需要蓝天白云草长莺飞，也需要饭局酒局帅哥美女。我们没理由总想着这样美好的生活有可能在某个夜晚或者白天，某个转角或者街头，戛然而止。  雷洋事件无非两个走向：...全文： http://m.weibo.cn/1197890497/3977689327588214</p>
-<p>
-	<small> ============== 3小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3977682158473968" target="freeweibo-mirror">SPAM 你们现在没人在对什么大大之类的抱有幻想了吧//@杜…</a>
-</h2>
-<p>SPAM 你们现在没人在对什么大大之类的抱有幻想了吧//@杜-芝-富-15: [哈哈][哈哈] //@沙漠渔夫809:宇宙全能专业。//@北京老妪:到底什么专业[嘻嘻]//@沙漠渔夫809: 放羊可以使人思维升华//@张定元的微博:红卫兵了不起//@邱大春先生:初中生无所不能啊！[哈哈]//@虎叔-: 建议社科院不惜重金聘请习总全面指导<br><br>RE: 哲学社会科学经常找不到北。<br><img src="http://ww4.sinaimg.cn/large/791ae3d5jw1f4360c5xkuj21be0qoamp.jpg"></p>
-<p>
-	<small> ============== 4小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3977679533074812" target="freeweibo-mirror">SPAM //@邵明波://@李学鹏:建议中宣部将此文按反动…</a>
-</h2>
-<p>SPAM //@邵明波://@李学鹏:建议中宣部将此文按反动案例处理，并公示天下进行批评！//@大道至简ABC:太反动，简直了<br><br>RE: 俺文化低，竟然无言以对，请网友狠批[作揖]<br><img src="http://ww4.sinaimg.cn/large/005GgY2ggw1f42xa2v5qtj30j60y3k0b.jpg"></p>
-<p>
-	<small> ============== 4小时前</small>
 </p>
 <table>
     <tr>
