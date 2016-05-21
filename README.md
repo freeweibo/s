@@ -19,6 +19,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3977614685547082" target="freeweibo-mirror">//@未得糊涂://@阿靖2016: //@郭解放v: 转发…</a>
+</h2>
+<p>//@未得糊涂://@阿靖2016: //@郭解放v: 转发微博<br><br>RE: 【雷洋案，期待@最高人民检察院】去年，最高法刮骨疗伤，纠正了备受关注的呼格吉勒图冤案，今年“两会”反对票创10年最低。现在，雷洋案交给了检察院，公众充满信心。<br><img src="http://ww3.sinaimg.cn/large/53d307eajw1f41m2f2f89j20hs0vkjuz.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3977609509798391" target="freeweibo-mirror">//@上官舒雅: //@民生焦点转播: //@李永强郑州:/…</a>
 </h2>
 <p>//@上官舒雅: //@民生焦点转播: //@李永强郑州://@王占阳:可以。//@北京老妪: 被删掉的内容是否可以恢复？//@文盲李世威: 等好久了！<br><br>RE: 【雷洋案调查抓紧进行】北京市检察院技术部门今天放弃休息，三位检察院技术人员查验、提取、保全了雷洋手机数据。查验工作在昌平区检察院进行，由雷洋妻子当场解码，全程录像。前后进行了三个多小时。雷洋多位亲属在场。提取的具体内容被告知不允许透露。（陈有西律师授权发布）</p>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3977598704841835" target="freeweibo-mirror">万恶的[泪][泪][泪]//@孙公Talking40:日他妈…</a>
 </h2>
 <p>万恶的[泪][泪][泪]//@孙公Talking40:日他妈，什么社会主义呀。[吐] //@叶匡政:[泪] //@杨学林律师:震惊。<br><br>RE: 北京昌平：非京籍儿童家长因入学权自焚抗议？<br><img src="http://ww2.sinaimg.cn/large/6a80bfcdgw1f430d4gssgj20hs0vmzmq.jpg"></p>
-<p>
-	<small> ============== 2小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3977598574757368" target="freeweibo-mirror">为其祷告！为他们的家庭祷告！</a>
-</h2>
-<p>为其祷告！为他们的家庭祷告！<br><br>RE: 北京昌平：非京籍儿童家长因入学权自焚抗议？<br><img src="http://ww2.sinaimg.cn/large/6a80bfcdgw1f430d4gssgj20hs0vmzmq.jpg"></p>
 <p>
 	<small> ============== 2小时前</small>
 </p>
