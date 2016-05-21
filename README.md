@@ -77,7 +77,7 @@
 </h2>
 <p>雷洋自己生前不关注民众苦难、不关注死磕律师玩命死磕的那些冤案，他选择的工作单位也和他一样，特别是他的单位连自己员工之死也不关注和发声，但这并不影响成千上万网民越来越多的开始关注雷洋，我们不妨把过去雷洋的情况称之为雷洋现象，把他单位的态度称之为雷洋单位现象。 http://t.cn/RyhW8OV<br><img src="http://ww1.sinaimg.cn/large/73570bbdjw1f43dlxouiqj20qo0qotnk.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3977697904708824" target="freeweibo-mirror">[最右] //@迟夙生律师:雷洋自己生前不关注苦难民众的艰辛…</a>
 </h2>
