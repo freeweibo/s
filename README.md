@@ -47,31 +47,31 @@
 </h2>
 <p>http://t.cn/R5PAk0l //@拜骨山: 传播一点真相，还得曲线救国。<br><br>RE: 【雷洋案调查抓紧进行】北京市检察院技术部门今天放弃休息，三位检察院技术人员查验、提取、保全了雷洋手机数据。查验工作在昌平区检察院进行，由雷洋妻子当场解码，全程录像。前后进行了三个多小时。雷洋多位亲属在场。提取的具体内容被告知不允许透露。（陈有西律师授权发布）</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3977602735391760" target="freeweibo-mirror">这届人民醒了……//@互联网的那点事:hhhhh</a>
 </h2>
 <p>这届人民醒了……//@互联网的那点事:hhhhh</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3977602475940050" target="freeweibo-mirror">//@梦晨伤:喏……[浮云]//@格瓦拉:[泪] //@假装…</a>
 </h2>
 <p>//@梦晨伤:喏……[浮云]//@格瓦拉:[泪] //@假装大律师:[伤心] //@徐昕:[泪]//@喜欢短发姑娘:悲哀//@黃毓民讀史: //@叶匡政:[泪] //@杨学林律师:震惊。<br><br>RE: 北京昌平：非京籍儿童家长因入学权自焚抗议？<br><img src="http://ww2.sinaimg.cn/large/6a80bfcdgw1f430d4gssgj20hs0vmzmq.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3977602399594819" target="freeweibo-mirror">喏……[浮云]//@格瓦拉:[泪] //@假装大律师:[伤心…</a>
 </h2>
 <p>喏……[浮云]//@格瓦拉:[泪] //@假装大律师:[伤心] //@徐昕:[泪]//@喜欢短发姑娘:悲哀//@黃毓民讀史: //@叶匡政:[泪] //@杨学林律师:震惊。<br><br>RE: 北京昌平：非京籍儿童家长因入学权自焚抗议？<br><img src="http://ww2.sinaimg.cn/large/6a80bfcdgw1f430d4gssgj20hs0vmzmq.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3977601805085294" target="freeweibo-mirror">SPAM [泪] //@假装大律师:[伤心] //@徐昕:[…</a>
 </h2>
 <p>SPAM [泪] //@假装大律师:[伤心] //@徐昕:[泪]//@喜欢短发姑娘:悲哀//@黃毓民讀史: //@叶匡政:[泪] //@杨学林律师:震惊。<br><br>RE: 北京昌平：非京籍儿童家长因入学权自焚抗议？<br><img src="http://ww2.sinaimg.cn/large/6a80bfcdgw1f430d4gssgj20hs0vmzmq.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3977601447580781" target="freeweibo-mirror">SPAM 为了孩子读书都得自焚？//@糠王://@叶匡政: …</a>
 </h2>
@@ -121,6 +121,12 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3977596624418515" target="freeweibo-mirror">【陈有西律师授权崔武律师发布:雷洋案最新消息，该案调查正抓紧…</a>
+</h2>
+<p>【陈有西律师授权崔武律师发布:雷洋案最新消息，该案调查正抓紧进行】北京市检察院技术部门今天放弃休息，三位检察院技术人员查验、提取、保全了雷洋手机数据。查验工作在昌平区检察院进行，由雷洋妻子当场解码，全程录像。前后进行了三个多小时。雷洋多位亲属在场。提取的具体内容被告知不允许透露。</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3977596398173732" target="freeweibo-mirror">世界上最野蛮、最无人性的行为，就是不让孩子上学！ //@杨学…</a>
 </h2>
 <p>世界上最野蛮、最无人性的行为，就是不让孩子上学！ //@杨学林律师:震惊。<br><br>RE: 北京昌平：非京籍儿童家长因入学权自焚抗议？<br><img src="http://ww2.sinaimg.cn/large/6a80bfcdgw1f430d4gssgj20hs0vmzmq.jpg"></p>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3977596108535494" target="freeweibo-mirror">SPAM [泪] //@叶匡政:[泪] //@杨学林律师:震…</a>
 </h2>
 <p>SPAM [泪] //@叶匡政:[泪] //@杨学林律师:震惊。<br><br>RE: 北京昌平：非京籍儿童家长因入学权自焚抗议？<br><img src="http://ww2.sinaimg.cn/large/6a80bfcdgw1f430d4gssgj20hs0vmzmq.jpg"></p>
-<p>
-	<small> ============== 2小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3977594421940170" target="freeweibo-mirror">貌似人民网自己把帖子删了。//@文盲李世威: [哈哈]//@…</a>
-</h2>
-<p>貌似人民网自己把帖子删了。//@文盲李世威: [哈哈]//@金融评论员:[哈哈] //@天涯赵瑜:哈哈。这一届人民的确那啥</p>
 <p>
 	<small> ============== 2小时前</small>
 </p>
