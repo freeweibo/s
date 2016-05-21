@@ -19,6 +19,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3977792947598326" target="freeweibo-mirror">【好 文分享】1、当你被关进精神病院，如何证明自己不是精神病…</a>
+</h2>
+<p>【好 文分享】1、当你被关进精神病院，如何证明自己不是精神病？2、雷 洋的文笔才情！看哭了所有人。3、不扔原子弹日本也会投降吗？4、真实的以色列，太可怕了！5、北大发布全国最好医院排名，关键时刻救命。6、一个披着资本主义外衣的真正共产主义国家，惊呆了！更多精彩请添加关注：zhebsls<br><img src="http://ww3.sinaimg.cn/large/9647a31ejw1f43obkjvznj20ku112dig.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3977725590634208" target="freeweibo-mirror">SPAM //@记者-薛洪涛://@LifeTime:有些地…</a>
 </h2>
 <p>SPAM //@记者-薛洪涛://@LifeTime:有些地方就是恶人当道。之前“平度”反复成热点，现在“昌平”总在头条。[生病]</p>
@@ -71,7 +77,7 @@
 </h2>
 <p>//@萧含://@邵明波:转给@微言教育  请问袁部长，这个父亲自焚之后，他的孩子可以在北京上学了吧？如此，也算值得了。<br><br>RE: 昌平非京籍家长自焚案的报道。苍天有眼，有些人必有报应。<br><img src="http://ww4.sinaimg.cn/large/6200b57bjw1f43d15o7gtj20qo2frb29.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3977716287703499" target="freeweibo-mirror">俗话说：两岁看大，三岁看老！你们懂的。。。//@云上的五花肉…</a>
 </h2>
@@ -113,29 +119,23 @@
 </h2>
 <p>我是来看网友评论的[doge]<br><br>RE: 媒体黑白不分，给昌平警方制造了多少麻烦[怒]我本想帮忙分析说可能裤子黑的上衣白的，没想到视频1分11秒足疗女原话是“穿一身黑的”：http://t.cn/RqBJq0L，忠臣难当[泪]<br><img src="http://ww1.sinaimg.cn/large/623e1d29jw1f43151o25tj20gi0m8tbl.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3977703180375856" target="freeweibo-mirror">每个人都认为别人是倒霉蛋，自己是幸运儿。千百年来，只扫自家门…</a>
 </h2>
 <p>每个人都认为别人是倒霉蛋，自己是幸运儿。千百年来，只扫自家门前雪，不管他人瓦上霜，所以活的就是一个赌概率。<br><br>RE: 雷洋自己生前不关注民众苦难、不关注死磕律师玩命死磕的那些冤案，他选择的工作单位也和他一样，特别是他的单位连自己员工之死也不关注和发声，但这并不影响成千上万网民越来越多的开始关注雷洋，我们不妨把过去雷洋的情况称之为雷洋现象，把他单位的态度称之为雷洋单位现象。 http://t.cn/RyhW8OV<br><img src="http://ww1.sinaimg.cn/large/73570bbdjw1f43dlxouiqj20qo0qotnk.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3977702538737437" target="freeweibo-mirror">回复@张开磊:不自杀难道让他去杀人？[吃惊]//@张开磊:自…</a>
 </h2>
 <p>回复@张开磊:不自杀难道让他去杀人？[吃惊]//@张开磊:自杀太过愚蠢<br><br>RE: 昌平区这段时间表现太突出了，盖过了北京和中央的风头。<br><img src="http://ww2.sinaimg.cn/large/4ac11db3jw1f43ds0zxngj20qo2fr1kx.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3977702538737318" target="freeweibo-mirror">这应该就是宁死也要抹黑祖国吧！[怒]//@李学鹏: 为了孩子…</a>
 </h2>
 <p>这应该就是宁死也要抹黑祖国吧！[怒]//@李学鹏: 为了孩子自焚在祖国的心脏 //@邵明波:政府机关，一直在为人民服务！！！//@深圳王剑: 转发微博<br><br>RE: 昌平非京籍家长自焚案的报道。苍天有眼，有些人必有报应。<br><img src="http://ww4.sinaimg.cn/large/6200b57bjw1f43d15o7gtj20qo2frb29.jpg"></p>
-<p>
-	<small> ============== 8小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3977701637311228" target="freeweibo-mirror">国企的合并也是倒退，很多事情看不懂</a>
-</h2>
-<p>国企的合并也是倒退，很多事情看不懂<br><br>RE: 有些事是改变，不是改革。比如，政府强行参股互联网公司。这种改变从方向性来讲就是赤裸裸的倒退。如果前几届政府也像这样“热心”，就根本不可能有今天中国互联网行业规模。尽管这些事被官方冠名“改革”，但是社会各界非常鄙视这种行为。</p>
 <p>
 	<small> ============== 9小时前</small>
 </p>
