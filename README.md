@@ -131,13 +131,13 @@
 </h2>
 <p>SPAM 图？<br><br>RE: 一带一路<br><img src="http://ww2.sinaimg.cn/large/621d03b7jw1f427eq8h6dj20hs0k1q3t.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3977337039470840" target="freeweibo-mirror">哈佛大学法学博士和伦敦政经学院政治学博士的职位交接。//@天…</a>
 </h2>
 <p>哈佛大学法学博士和伦敦政经学院政治学博士的职位交接。//@天天有贼: //@杜君立: 从一场比赛无耻和暴力的游戏，变成一场比赛文明和智慧的公开竞选，政治诞生了。<br><br>RE: 不懂历史的无法想象这一握手的巨大意义，传统上中国的政权都是靠杀人去抢的。<br><img src="http://ww1.sinaimg.cn/large/4d39707fjw1f424zvl2gzj20go0b4wf5.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p>
 <table>
     <tr>
