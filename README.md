@@ -19,6 +19,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3977592090235423" target="freeweibo-mirror">//@老李牧鑫: //@男海岸://@阳光润泉:转发微博</a>
+</h2>
+<p>//@老李牧鑫: //@男海岸://@阳光润泉:转发微博<br><br>RE: 此有心人的观察。至于总统府宣誓面对的那半神像，迟早要取下的，国歌也要改的。<br><img src="http://ww2.sinaimg.cn/large/473f8cfdjw1f42rjaihyej20hs7gqtub.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3977572784580834" target="freeweibo-mirror">//@搜云看雾: //@陌上行者2015://@亮剑兄又来啦…</a>
 </h2>
 <p>//@搜云看雾: //@陌上行者2015://@亮剑兄又来啦: //@遇见渔人: 有吗？ //@霜葉15s_://@Pig_of_life: //@浊酒秋月: //@雷公旗://@善良恩圣: 转发微博<br><br>RE: 这位网友说没有资格考人家台湾，请问他说的对吗？我读书少，不懂。<br><img src="http://ww2.sinaimg.cn/large/006pmDnJjw1f42v0u9vbyj30k00zk0z8.jpg"></p>
@@ -47,7 +53,7 @@
 </h2>
 <p>SPAM 这篇目录，解决了我人生最重要的问题！</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3977550096787184" target="freeweibo-mirror">//@一碗余:同样的法学博士，法治意识咋差距那么大捏//@炼…</a>
 </h2>
@@ -65,7 +71,7 @@
 </h2>
 <p>//@江烈农:论文pdf：http://t.cn/R5vAadX //@夜郎国主: 还有监狱里的网评员，今古奇观。</p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3977490755494031" target="freeweibo-mirror">SPAM  //@点子正:[赞]//@椒江叶Sir:#520…</a>
 </h2>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3977343809219498" target="freeweibo-mirror">SPAM [笑cry] //@猫小喵滴兔子:[笑cry]//…</a>
 </h2>
 <p>SPAM [笑cry] //@猫小喵滴兔子:[笑cry]//@lswylmx:[笑cry]//@老辣陈香:[笑cry]//@阿理汗:[笑cry]//@椒江叶Sir:[笑cry] //@一都阿叔:[笑cry] //@苦行僧兵:[笑cry]//@余姚二姐:</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3977343444097514" target="freeweibo-mirror">//@大势将至: 张局看罢，放下正在誊抄的《党章》，正色道：…</a>
-</h2>
-<p>//@大势将至: 张局看罢，放下正在誊抄的《党章》，正色道：呵呵，国民党反动派在关键时刻，还是暴露了资产阶级的软弱性。换作我们，重型机械上场！[酷]<br><br>RE: 当年台湾雷震主持《自由中国》被判刑；民进党人林义雄的母亲和 一对孪生女儿被人利斧砍死；陈水扁的妻子吴淑珍，被人故意用车辗过双脚而残废；客家委员会主委叶菊兰，其丈夫就是为了争取言论自由而自焚的郑南榕，还有施明德曾被判死刑，吕秀莲判刑12年，不要羡慕海峡彼岸，自由平等从来都不是天降的！<br><img src="http://ww4.sinaimg.cn/large/ca98d4a4jw1f422sjyilaj20u00k00u2.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
