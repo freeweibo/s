@@ -23,7 +23,7 @@
 </h2>
 <p>//@老李牧鑫: //@男海岸://@阳光润泉:转发微博<br><br>RE: 此有心人的观察。至于总统府宣誓面对的那半神像，迟早要取下的，国歌也要改的。<br><img src="http://ww2.sinaimg.cn/large/473f8cfdjw1f42rjaihyej20hs7gqtub.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3977588299074306" target="freeweibo-mirror">这一届人民开窍了……</a>
 </h2>
