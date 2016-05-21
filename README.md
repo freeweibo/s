@@ -25,9 +25,21 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3977703793089929" target="freeweibo-mirror">//@尹鸿:每个人都认为别人是倒霉蛋，自己是幸运儿。千百年来…</a>
+</h2>
+<p>//@尹鸿:每个人都认为别人是倒霉蛋，自己是幸运儿。千百年来，只扫自家门前雪，不管他人瓦上霜，所以活的就是一个赌概率。<br><br>RE: 雷洋自己生前不关注民众苦难、不关注死磕律师玩命死磕的那些冤案，他选择的工作单位也和他一样，特别是他的单位连自己员工之死也不关注和发声，但这并不影响成千上万网民越来越多的开始关注雷洋，我们不妨把过去雷洋的情况称之为雷洋现象，把他单位的态度称之为雷洋单位现象。 http://t.cn/RyhW8OV<br><img src="http://ww1.sinaimg.cn/large/73570bbdjw1f43dlxouiqj20qo0qotnk.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3977703730796494" target="freeweibo-mirror">確實要批判一下( ⊙ o ⊙ )啊！[偷樂]//@简直: /…</a>
 </h2>
 <p>確實要批判一下( ⊙ o ⊙ )啊！[偷樂]//@简直: //@胡杨树2012:转发微博<br><br>RE: 俺文化低，竟然无言以对，请网友狠批[作揖]<br><img src="http://ww4.sinaimg.cn/large/005GgY2ggw1f42xa2v5qtj30j60y3k0b.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3977703419915981" target="freeweibo-mirror">我是来看网友评论的[doge]</a>
+</h2>
+<p>我是来看网友评论的[doge]<br><br>RE: 媒体黑白不分，给昌平警方制造了多少麻烦[怒]我本想帮忙分析说可能裤子黑的上衣白的，没想到视频1分11秒足疗女原话是“穿一身黑的”：http://t.cn/RqBJq0L，忠臣难当[泪]<br><img src="http://ww1.sinaimg.cn/large/623e1d29jw1f43151o25tj20gi0m8tbl.jpg"></p>
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
@@ -83,7 +95,7 @@
 </h2>
 <p>//@李不白的店://@印白宇: 是否嫖娼一点也不重要，怎么死的，网友很关心。<br><br>RE: 雷洋的身份从人大硕士研究生到国家机关所属事业单位的官员，网友们并没有因此而减少对他死因的关心热度，这种趋于平和的态度，对人的生命重视程序，是社会的一个巨大进步，无论你承不承认，这是客观存在的事实！ http://t.cn/RyhW8OV<br><img src="http://ww2.sinaimg.cn/large/73570bbdjw1f43d1x6xshj20ku112grm.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3977695765811674" target="freeweibo-mirror">SPAM //@ICO刘开明://@王天定://@罗昌平: …</a>
 </h2>
@@ -113,7 +125,7 @@
 </h2>
 <p>SPAM 你们现在没人在对什么大大之类的抱有幻想了吧//@杜-芝-富-15: [哈哈][哈哈] //@沙漠渔夫809:宇宙全能专业。//@北京老妪:到底什么专业[嘻嘻]//@沙漠渔夫809: 放羊可以使人思维升华//@张定元的微博:红卫兵了不起//@邱大春先生:初中生无所不能啊！[哈哈]//@虎叔-: 建议社科院不惜重金聘请习总全面指导<br><br>RE: 哲学社会科学经常找不到北。<br><img src="http://ww4.sinaimg.cn/large/791ae3d5jw1f4360c5xkuj21be0qoamp.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3977679533074812" target="freeweibo-mirror">SPAM //@邵明波://@李学鹏:建议中宣部将此文按反动…</a>
 </h2>
@@ -124,18 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3977675032340424" target="freeweibo-mirror">SPAM //@侯会微博: //@李_磊:删除雷洋手机信息的…</a>
 </h2>
 <p>SPAM //@侯会微博: //@李_磊:删除雷洋手机信息的基本事实，谁也无法否认了。//@北京驴爷: //@爱和正义:以央视公布的为准！不要造谣！[怒]//@李_磊:当事人删除当事人信息，是帮助毁灭（隐匿）证据罪呀！将错就错罪上加罪，已经不打自招了。//@萧含: //@玉风: 转发，已经无话可说！<br><br>RE: 分享图片<br><img src="http://ww3.sinaimg.cn/large/698c1b27gw1f438680vwaj20k00zk0wo.jpg"></p>
-<p>
-	<small> ============== 4小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3977672516192477" target="freeweibo-mirror">好好看看微博第一条，这个坏的摄像头，只证明他出小区时间，与他…</a>
-</h2>
-<p>好好看看微博第一条，这个坏的摄像头，只证明他出小区时间，与他是否进出足浴店和警察执法没有一点关系。而其他几个没坏的摄像头也能对出门时间加以判断。懂了吗？孩子？//@king200053:好一个无关紧要！呵呵！至关重要的证据被你直接说是无关紧要，服！你辟的是什么谣？揭露的是什么真相？</p>
-<p>
-	<small> ============== 4小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3977670213425508" target="freeweibo-mirror">SPAM //@黄奎ART://@李_磊:当事人删除当事人信…</a>
-</h2>
-<p>SPAM //@黄奎ART://@李_磊:当事人删除当事人信息，是帮助毁灭（隐匿）证据罪呀！将错就错罪上加罪，已经不打自招了。//@萧含: //@玉风: 转发，已经无话可说！<br><br>RE: 分享图片<br><img src="http://ww3.sinaimg.cn/large/698c1b27gw1f438680vwaj20k00zk0wo.jpg"></p>
 <p>
 	<small> ============== 4小时前</small>
 </p>
