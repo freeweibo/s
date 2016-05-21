@@ -23,7 +23,7 @@
 </h2>
 <p>SPAM [赞]//@解密人性: [话筒]</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3977682158473968" target="freeweibo-mirror">SPAM 你们现在没人在对什么大大之类的抱有幻想了吧//@杜…</a>
 </h2>
@@ -89,7 +89,7 @@
 </h2>
 <p>“似乎与他在《60分钟》节目中接受华莱士采访时的一流表现恰恰相反，几周以后，在一次对香港记者的新闻发布会上，他发火了。 ” ————《他改变了中国》罗伯特·劳伦斯·库恩 http://t.cn/R5PfFSE .</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3977641867955036" target="freeweibo-mirror">@粤赣高速2012：中国的每一点小小的进步都要老百姓拿命来换…</a>
 </h2>
