@@ -55,6 +55,12 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3977603150575288" target="freeweibo-mirror">//@桀骜朗朗: //@天快亮了1965://@王占阳: 保…</a>
+</h2>
+<p>//@桀骜朗朗: //@天快亮了1965://@王占阳: 保全了雷洋手机数据，这点可能很重要。<br><br>RE: 【雷洋案调查抓紧进行】北京市检察院技术部门今天放弃休息，三位检察院技术人员查验、提取、保全了雷洋手机数据。查验工作在昌平区检察院进行，由雷洋妻子当场解码，全程录像。前后进行了三个多小时。雷洋多位亲属在场。提取的具体内容被告知不允许透露。（陈有西律师授权发布）</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3977602803147783" target="freeweibo-mirror">http://t.cn/R5PAk0l //@拜骨山: 传播…</a>
 </h2>
 <p>http://t.cn/R5PAk0l //@拜骨山: 传播一点真相，还得曲线救国。<br><br>RE: 【雷洋案调查抓紧进行】北京市检察院技术部门今天放弃休息，三位检察院技术人员查验、提取、保全了雷洋手机数据。查验工作在昌平区检察院进行，由雷洋妻子当场解码，全程录像。前后进行了三个多小时。雷洋多位亲属在场。提取的具体内容被告知不允许透露。（陈有西律师授权发布）</p>
@@ -91,6 +97,12 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3977601003490786" target="freeweibo-mirror">资本主义国家的孩子在大城市里读书会需要面对各种苛刻的门槛吗？…</a>
+</h2>
+<p>资本主义国家的孩子在大城市里读书会需要面对各种苛刻的门槛吗？ //@defect3:一边骂被台湾香港歧视一边歧视自己人[哈哈]//@李军林导演:鼓励农民出来打工，又不能让农民的孩子在城里读书，只能让孩子回农村去做留守儿童，又他妈的天天喊要关爱留守儿童，你妈的个傻逼政策，一群虚伪的既得利益者同盟。<br><br>RE: 北京昌平：非京籍儿童家长因入学权自焚抗议？<br><img src="http://ww2.sinaimg.cn/large/6a80bfcdgw1f430d4gssgj20hs0vmzmq.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3977600839763859" target="freeweibo-mirror">//@张晨初艺术空间://@星星在海的那一边://@文盲李世…</a>
 </h2>
 <p>//@张晨初艺术空间://@星星在海的那一边://@文盲李世威:[哈哈]//@金融评论员:[哈哈] //@天涯赵瑜:哈哈。这一届人民的确那啥</p>
@@ -109,6 +121,12 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3977599602849464" target="freeweibo-mirror">鼓励农民出来打工，又不能让农民的孩子在城里读书，只能让孩子回…</a>
+</h2>
+<p>鼓励农民出来打工，又不能让农民的孩子在城里读书，只能让孩子回农村去做留守儿童，又他妈的天天喊要关爱留守儿童，你妈的个傻逼政策，一群虚伪的既得利益者同盟。<br><br>RE: 北京昌平：非京籍儿童家长因入学权自焚抗议？<br><img src="http://ww2.sinaimg.cn/large/6a80bfcdgw1f430d4gssgj20hs0vmzmq.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3977598704841835" target="freeweibo-mirror">万恶的[泪][泪][泪]//@孙公Talking40:日他妈…</a>
 </h2>
 <p>万恶的[泪][泪][泪]//@孙公Talking40:日他妈，什么社会主义呀。[吐] //@叶匡政:[泪] //@杨学林律师:震惊。<br><br>RE: 北京昌平：非京籍儿童家长因入学权自焚抗议？<br><img src="http://ww2.sinaimg.cn/large/6a80bfcdgw1f430d4gssgj20hs0vmzmq.jpg"></p>
@@ -118,24 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3977598574757368" target="freeweibo-mirror">为其祷告！为他们的家庭祷告！</a>
 </h2>
 <p>为其祷告！为他们的家庭祷告！<br><br>RE: 北京昌平：非京籍儿童家长因入学权自焚抗议？<br><img src="http://ww2.sinaimg.cn/large/6a80bfcdgw1f430d4gssgj20hs0vmzmq.jpg"></p>
-<p>
-	<small> ============== 2小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3977597488006356" target="freeweibo-mirror">[熊猫]//@叶匡政: 世界上最野蛮、最无人性的行为，就是不…</a>
-</h2>
-<p>[熊猫]//@叶匡政: 世界上最野蛮、最无人性的行为，就是不让孩子上学！ //@杨学林律师:震惊。<br><br>RE: 北京昌平：非京籍儿童家长因入学权自焚抗议？<br><img src="http://ww2.sinaimg.cn/large/6a80bfcdgw1f430d4gssgj20hs0vmzmq.jpg"></p>
-<p>
-	<small> ============== 2小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3977597366953863" target="freeweibo-mirror">后来自己删了[猪头]//@风青杨V: //@天涯赵瑜: 哈哈…</a>
-</h2>
-<p>后来自己删了[猪头]//@风青杨V: //@天涯赵瑜: 哈哈。这一届人民的确那啥</p>
-<p>
-	<small> ============== 2小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3977596624418515" target="freeweibo-mirror">【陈有西律师授权崔武律师发布:雷洋案最新消息，该案调查正抓紧…</a>
-</h2>
-<p>【陈有西律师授权崔武律师发布:雷洋案最新消息，该案调查正抓紧进行】北京市检察院技术部门今天放弃休息，三位检察院技术人员查验、提取、保全了雷洋手机数据。查验工作在昌平区检察院进行，由雷洋妻子当场解码，全程录像。前后进行了三个多小时。雷洋多位亲属在场。提取的具体内容被告知不允许透露。</p>
 <p>
 	<small> ============== 2小时前</small>
 </p>
