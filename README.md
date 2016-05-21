@@ -25,6 +25,24 @@
 <p>
 	<small> ============== 1小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3977571659554247" target="freeweibo-mirror">//@陌上行者2015://@亮剑兄又来啦: //@遇见渔人…</a>
+</h2>
+<p>//@陌上行者2015://@亮剑兄又来啦: //@遇见渔人: 有吗？ //@霜葉15s_://@Pig_of_life: //@浊酒秋月: //@雷公旗://@善良恩圣: 转发微博<br><br>RE: 这位网友说没有资格考人家台湾，请问他说的对吗？我读书少，不懂。<br><img src="http://ww2.sinaimg.cn/large/006pmDnJjw1f42v0u9vbyj30k00zk0z8.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3977565821702093" target="freeweibo-mirror">SPAM 三自信课题研究的子题之一</a>
+</h2>
+<p>SPAM 三自信课题研究的子题之一<br><img src="http://ww2.sinaimg.cn/large/473f8cfdjw1f42y8797maj20dy6ik4ku.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3977553163208195" target="freeweibo-mirror">//@吴情树:因为人口多，土地大，钱多和官多？ //@程中柳…</a>
+</h2>
+<p>//@吴情树:因为人口多，土地大，钱多和官多？ //@程中柳://@雷公旗: //@善良恩圣: 转发微博<br><br>RE: 这位网友说没有资格考人家台湾，请问他说的对吗？我读书少，不懂。<br><img src="http://ww2.sinaimg.cn/large/006pmDnJjw1f42v0u9vbyj30k00zk0z8.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3977552005991476" target="freeweibo-mirror">SPAM 这篇目录，解决了我人生最重要的问题！</a>
 </h2>
 <p>SPAM 这篇目录，解决了我人生最重要的问题！</p>
@@ -65,7 +83,7 @@
 </h2>
 <p>//@做绘本的懒老姬:五毛钱比百元大钞还有内涵[偷笑]//@liguantu: 研究五毛党，拿博士学位。[doge]</p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3977363551289934" target="freeweibo-mirror">SPAM //@心灵必须课:阅读全文请看文章最下图，后续更精…</a>
 </h2>
@@ -118,24 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3977343380607211" target="freeweibo-mirror">[赞][话筒]</a>
 </h2>
 <p>[赞][话筒]<br><br>RE: 由于时差的关系，大游行将发生在中国的日落西山之后。连纽约的时代广场大荧光屏都发消息，这是怎样的民心表达！ //@曹明华和曹明逸: 5月21日，全球反孟山都和抗议转基因食品大游行！转基因种植最泛滥的国家中国缺席【四次】（http://t.cn/R5vvFSS）</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3977343107730337" target="freeweibo-mirror">SPAM 妇孺皆知</a>
-</h2>
-<p>SPAM 妇孺皆知<br><br>RE: 一带一路<br><img src="http://ww2.sinaimg.cn/large/621d03b7jw1f427eq8h6dj20hs0k1q3t.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3977341913122397" target="freeweibo-mirror">//@法律案例-文史典故://@仁教心学:最高权力的和平交接…</a>
-</h2>
-<p>//@法律案例-文史典故://@仁教心学:最高权力的和平交接，乃是中国几千年皇权专制一直未解决的问题和困境！民主选举乃是唯一的出路，否则剩下的选项就是以暴易暴，以恶胜恶，以毒攻毒，以黑打黑！！！</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3977340419084095" target="freeweibo-mirror">//@晓雨闻铃://@杨洪纲: //@法律人童朝平://@M…</a>
-</h2>
-<p>//@晓雨闻铃://@杨洪纲: //@法律人童朝平://@M袁飏: //@刘力博士://@Wk实干兴邦://@天蝎黄世旭://@爱就向往://@杜君立: 从一场比赛无耻和暴力的游戏，变成一场比赛文明和智慧的公开竞选，政治诞生了。<br><br>RE: 不懂历史的无法想象这一握手的巨大意义，传统上中国的政权都是靠杀人去抢的。<br><img src="http://ww1.sinaimg.cn/large/4d39707fjw1f424zvl2gzj20go0b4wf5.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
