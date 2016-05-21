@@ -23,7 +23,7 @@
 </h2>
 <p>//@江烈农:论文pdf：http://t.cn/R5vAadX //@夜郎国主: 还有监狱里的网评员，今古奇观。</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3977490755494031" target="freeweibo-mirror">SPAM  //@点子正:[赞]//@椒江叶Sir:#520…</a>
 </h2>
@@ -53,7 +53,7 @@
 </h2>
 <p>SPAM //@心灵必须课:阅读全文请看文章最下图，后续更精彩！</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3977361190194037" target="freeweibo-mirror">SPAM Sense大促开始了，寄国内还是抽税，女鞋：htt…</a>
 </h2>
