@@ -23,7 +23,7 @@
 </h2>
 <p>//@未得糊涂://@阿靖2016: //@郭解放v: 转发微博<br><br>RE: 【雷洋案，期待@最高人民检察院】去年，最高法刮骨疗伤，纠正了备受关注的呼格吉勒图冤案，今年“两会”反对票创10年最低。现在，雷洋案交给了检察院，公众充满信心。<br><img src="http://ww3.sinaimg.cn/large/53d307eajw1f41m2f2f89j20hs0vkjuz.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3977611551878982" target="freeweibo-mirror">很多人都在关注调查进程。[围观]//@王占阳:可以。//@北…</a>
 </h2>
