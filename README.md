@@ -19,6 +19,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3978027501021160" target="freeweibo-mirror">SPAM 紧跟哲学社会科学的学习，体验底层乞丐生活扶贫帮困，…</a>
+</h2>
+<p>SPAM 紧跟哲学社会科学的学习，体验底层乞丐生活扶贫帮困，理论与实践结合的快，再带一个小姑娘来一首《小曲好唱口难开》就更好了。</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3977999093045658" target="freeweibo-mirror">你观点鲜明，果断取关。  http://t.cn/R57wX…</a>
 </h2>
 <p>你观点鲜明，果断取关。  http://t.cn/R57wXLs //@亟兮般若:这些人不是重庆人吧！是人吗？应该不是吧！都是日本狗腿子吧！@重庆言子哥 @重庆事儿 @新浪重庆 @今日重庆 @人人爱重庆 ？？？[怒][怒][怒]<br><br>RE: 重慶也有皇民？當年被炸出快感了嗎？<br><img src="http://ww1.sinaimg.cn/large/a770158cgw1f4484oe6xbj20go09d40g.jpg"></p>
@@ -54,6 +60,12 @@
 <p>//@伟荣V实说://@伟荣V实说: //@看破红尘宝贝六: 这群畜生！[鄙视] //@自-由蓝-莲花再开:副总理一来，大家病都好了！[good] //@雷公旗: //@学缠悟缠: 都知道在演，都不点破 //@ICO刘开明:转发微博<br><br>RE: 能不能演得真一点？<br><img src="http://ww1.sinaimg.cn/large/644481degw1f43zu1dspbj20qo0tiafe.jpg"></p>
 <p>
 	<small> ============== 5小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3977955573073449" target="freeweibo-mirror">SPAM 乞讨日记  2016年5月22日下午15:00左右…</a>
+</h2>
+<p>SPAM 乞讨日记  2016年5月22日下午15:00左右. 北京地铁二号线东直门东北角出站口. 打破地铁禁止乞讨的禁令,胡同大爷手持一杆最便宜的二胡, 坐在一个小马扎上,面前放了一个红色洋铁皮收钱罐,因为松香涂抹的比较多的缘故，一柄二胡发出了刺耳的噪声. 先是试着拉一曲《梁祝》,实在是没有办法听下去, 自己都不忍...全文： http://m.weibo.cn/1263406744/3977955573073449<br><img src="http://ww4.sinaimg.cn/large/4b4e0e98jw1f446qnamvuj20go0dmzrn.jpg"></p>
+<p>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3977949143535629" target="freeweibo-mirror">此文已被删一次，请速转</a>
 </h2>
@@ -124,18 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3977904137742846" target="freeweibo-mirror">刑事报案书有删的必要吗？：关于要求北京市检察院立案侦查雷洋被…</a>
 </h2>
 <p>刑事报案书有删的必要吗？：关于要求北京市检察院立案侦查雷洋被害案的刑事报案书    报案人：吴****，系雷洋（）之妻。  犯罪嫌疑人：北京市公安局昌平分局参加办理雷洋涉嫌“嫖娼”案件的相关...文字版>> http://t.cn/R5h0Hut （新浪长微博>> http://t.cn/zOXAaic）<br><img src="http://ww3.sinaimg.cn/large/b172128cjw1f4413auj21j20c83q97wh.jpg"></p>
-<p>
-	<small> ============== 9小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3977903513148925" target="freeweibo-mirror">//@夙生律师事务所: 许多人就是有官瘾。//@西部的西部:…</a>
-</h2>
-<p>//@夙生律师事务所: 许多人就是有官瘾。//@西部的西部: //@蚌埠钱进: //@王亚东522:此表态无非是做低姿态低头认错，其目的是给自己儿子铺路//@花前一壶酒09:→_→//@西之壺辦2016://@真的回头A: 成王败寇！输了忏悔！赢了就是薄 大 大！//@fromkin1:转发微博<br><br>RE: 港媒《动向》杂志2016年5月号报导了题为《薄熙来“忏悔”不应进官场》的消息称，在秦城监狱服刑的中共前政治局委员、重庆市委书记薄熙来在最近“每月学习与反思心得中”表露：其父在80年代初已叮嘱子女不要步他父母的后尘进官场，把精力放在“科学、事业上”。<br><img src="http://ww4.sinaimg.cn/large/006hITqEgw1f43z83gaj0j30cj0893zm.jpg"></p>
-<p>
-	<small> ============== 9小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3977902083505995" target="freeweibo-mirror">SPAM 回复@枫树上的海狸:湖北已经闹过了//@枫树上的海…</a>
-</h2>
-<p>SPAM 回复@枫树上的海狸:湖北已经闹过了//@枫树上的海狸:河南今年分到了1W8还闹........湖北什么都没闹啊<br><br>RE: 大河南？不会是P的吧？<br><img src="http://ww3.sinaimg.cn/large/53a7ac51jw1f440603xixj20f00qoq69.jpg"></p>
 <p>
 	<small> ============== 9小时前</small>
 </p>
