@@ -25,6 +25,12 @@
 <p>
 	<small> ============== 1小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3977841861829908" target="freeweibo-mirror">//@天良2012://@雁塔晓木屋://@陈积无量c:法治…</a>
+</h2>
+<p>//@天良2012://@雁塔晓木屋://@陈积无量c:法治举步维艰，体制重重锁关。<br><br>RE: 我发了两条涉及雷洋的微博，转眼之间就被没收了转发键，内容也被屏蔽了，指挥干这事的和干这事的能不能成为下一个雷洋呢？[疑问] http://t.cn/RyhW8OV<br><img src="http://ww1.sinaimg.cn/large/73570bbdjw1f43q33bcf3j20ku112wm1.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3977829911549074" target="freeweibo-mirror">//@舒可心:如果维持目前的机制补改变，每个人都可能是下一个…</a>
 </h2>
 <p>//@舒可心:如果维持目前的机制补改变，每个人都可能是下一个，包括下一代！<br><br>RE: 我发了两条涉及雷洋的微博，转眼之间就被没收了转发键，内容也被屏蔽了，指挥干这事的和干这事的能不能成为下一个雷洋呢？[疑问] http://t.cn/RyhW8OV<br><img src="http://ww1.sinaimg.cn/large/73570bbdjw1f43q33bcf3j20ku112wm1.jpg"></p>
@@ -53,7 +59,7 @@
 </h2>
 <p>SPAM //@记者-薛洪涛://@LifeTime:有些地方就是恶人当道。之前“平度”反复成热点，现在“昌平”总在头条。[生病]</p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3977723937967979" target="freeweibo-mirror">SPAM //@王小山:OMG.//@张晨初艺术空间: [伤…</a>
 </h2>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3977703793089929" target="freeweibo-mirror">//@尹鸿:每个人都认为别人是倒霉蛋，自己是幸运儿。千百年来…</a>
 </h2>
 <p>//@尹鸿:每个人都认为别人是倒霉蛋，自己是幸运儿。千百年来，只扫自家门前雪，不管他人瓦上霜，所以活的就是一个赌概率。<br><br>RE: 雷洋自己生前不关注民众苦难、不关注死磕律师玩命死磕的那些冤案，他选择的工作单位也和他一样，特别是他的单位连自己员工之死也不关注和发声，但这并不影响成千上万网民越来越多的开始关注雷洋，我们不妨把过去雷洋的情况称之为雷洋现象，把他单位的态度称之为雷洋单位现象。 http://t.cn/RyhW8OV<br><img src="http://ww1.sinaimg.cn/large/73570bbdjw1f43dlxouiqj20qo0qotnk.jpg"></p>
-<p>
-	<small> ============== 11小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3977703730796494" target="freeweibo-mirror">確實要批判一下( ⊙ o ⊙ )啊！[偷樂]//@简直: /…</a>
-</h2>
-<p>確實要批判一下( ⊙ o ⊙ )啊！[偷樂]//@简直: //@胡杨树2012:转发微博<br><br>RE: 俺文化低，竟然无言以对，请网友狠批[作揖]<br><img src="http://ww4.sinaimg.cn/large/005GgY2ggw1f42xa2v5qtj30j60y3k0b.jpg"></p>
 <p>
 	<small> ============== 11小时前</small>
 </p>
