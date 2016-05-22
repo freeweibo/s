@@ -59,7 +59,7 @@
 </h2>
 <p>//@舒可心:如果维持目前的机制补改变，每个人都可能是下一个，包括下一代！<br><br>RE: 我发了两条涉及雷洋的微博，转眼之间就被没收了转发键，内容也被屏蔽了，指挥干这事的和干这事的能不能成为下一个雷洋呢？[疑问] http://t.cn/RyhW8OV<br><img src="http://ww1.sinaimg.cn/large/73570bbdjw1f43q33bcf3j20ku112wm1.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3977822274314287" target="freeweibo-mirror">一条海峡把我们的同胞们隔成两个政治实体。一边，公民牛逼了，牛…</a>
 </h2>
