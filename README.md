@@ -37,17 +37,35 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3978047886020462" target="freeweibo-mirror">[草泥马]//@LifeTime: 是时候上“意识形态”警察…</a>
+</h2>
+<p>[草泥马]//@LifeTime: 是时候上“意识形态”警察了。 [瞧瞧]<br><br>RE: 大学课堂里设“便衣巡视员”，是对教师职业的终极侮辱。你可以不提高大学教师的工资待遇，也可以逼着大学教师发文章、评职称、争课题，但无论如何，你不能像特务一样监控他们在讲台上说了些什么。我实在无法想象，在这样的教育体制下，如何能建成所谓的“世界一流大学”。</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3978045700409857" target="freeweibo-mirror">SPAM 今天更新的内容：1️⃣华丽战绩太过耀眼，但别忘了他…</a>
 </h2>
 <p>SPAM 今天更新的内容：1️⃣华丽战绩太过耀眼，但别忘了他们并不完美！2️⃣“五大”对抗“五小”？下赛季的76人将逆天改命？3️⃣十大三号球衣球星：答案韦德谁第一？<br><img src="http://ww2.sinaimg.cn/large/90f58663jw1f44hb0e2fqj20ku112wjb.jpg"></p>
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3978041074110895" target="freeweibo-mirror">//@西边的太阳快落山:你懂的太多了</a>
+</h2>
+<p>//@西边的太阳快落山:你懂的太多了<br><br>RE: 绝不搞西方那一套，西方那一套究竟是什么？ 你们不敢说。西方那一套是:1新闻自由。 你们不敢搞，因为害怕人民监督。2官员财产公开。你们不敢搞，因为害怕腐败曝光。3一人一票，你们不敢搞，因为害怕人民不选你们。4司法独立,你们不敢搞，因为害怕被审判 5军队国家化，你们不敢搞，没了鹰犬，谁会怕你<br><img src="http://ww3.sinaimg.cn/large/006tBkjEjw1f43vrrvjfej30jm0d640j.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3978040922998670" target="freeweibo-mirror">//@JiWeiweiiii:干点实事，别一天到晚讲道理</a>
+</h2>
+<p>//@JiWeiweiiii:干点实事，别一天到晚讲道理<br><br>RE: 【让群众在公安执法中感到正义】每次看到这一个“让”字，我总能看到权势者那种高高在上的派头，总能看到那种对民众不屑一顾的轻蔑的眼神。这个“让”仿佛是一种恩赐、一种怜悯、一种予夺予取，一种为所欲为。殊不知这种享受公平正义本身就应该是民主应该拥有的权力，这是天然权力，任何人无权剥夺。<br><img src="http://ww4.sinaimg.cn/large/005M7QzIjw1f426q5e9m6j30sp0ht0yb.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3978029124420693" target="freeweibo-mirror">SPAM 回复@安崇民:[偷笑] //@温星0528:不管作…</a>
 </h2>
 <p>SPAM 回复@安崇民:[偷笑] //@温星0528:不管作为乞丐还是作为演员，司马南都太不敬业，起码跟老大爷换换衣服嘛，而且留给大爷纪念不许换回来。[偷笑] //@安崇民:形不似神更不是。[哈哈] //@安崇民:曾经邻座。博主，你不认真化妆打扮，演不好现实里乞讨者角色；太不认真，只为出镜，必须批评。[嘻嘻][衰]</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3978027501021160" target="freeweibo-mirror">SPAM 紧跟哲学社会科学的学习，体验底层乞丐生活扶贫帮困，…</a>
 </h2>
@@ -65,7 +83,7 @@
 </h2>
 <p>你观点鲜明，果断取关。  http://t.cn/R57wXLs //@亟兮般若:这些人不是重庆人吧！是人吗？应该不是吧！都是日本狗腿子吧！@重庆言子哥 @重庆事儿 @新浪重庆 @今日重庆 @人人爱重庆 ？？？[怒][怒][怒]<br><br>RE: 重慶也有皇民？當年被炸出快感了嗎？<br><img src="http://ww1.sinaimg.cn/large/a770158cgw1f4484oe6xbj20go09d40g.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3977994613168573" target="freeweibo-mirror">//@上海鱼鱼1: //@精日钟表-表哥: //@马操188…</a>
 </h2>
@@ -118,24 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3977942172574250" target="freeweibo-mirror">SPAM [弱]//@为人师表2010://@隐者飞飞: […</a>
 </h2>
 <p>SPAM [弱]//@为人师表2010://@隐者飞飞: [挖鼻]上下一起演，就像把头插地里的驼鸟。//@ICO刘开明: 转发微博<br><br>RE: 能不能演得真一点？<br><img src="http://ww1.sinaimg.cn/large/644481degw1f43zu1dspbj20qo0tiafe.jpg"></p>
-<p>
-	<small> ============== 9小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3977942134458073" target="freeweibo-mirror">//@忘却纪念:[吃惊][吃惊][吃惊]//@奔跑的武: /…</a>
-</h2>
-<p>//@忘却纪念:[吃惊][吃惊][吃惊]//@奔跑的武: //@紧爷的菜园子:回复@-章乾浦:毛的一生：红厚黑学。 //@-章乾浦:从没阳谋过，观其一生他自己总结的很到位，就一破衣行僧，独自行走与风雨之中。</p>
-<p>
-	<small> ============== 9小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3977941463387800" target="freeweibo-mirror">构陷太恐怖！</a>
-</h2>
-<p>构陷太恐怖！<br><br>RE: 陈有西可能走在被嫖娼的路上。当看到陈有西发微博说：谁害怕真相。因为受理雷洋案，我的新浪微博遭遇了三步曲。先是禁转发，次是被屏蔽，三是被限发。同时造谣诽谤五毛贴却可以在我的贴上评论谩骂。李庄案时现象重现。每个人都可能遭遇雷洋的命运，不要以维稳的漂亮口号，颠倒是非，包庇罪恶，助纣为虐</p>
-<p>
-	<small> ============== 9小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3977941404447401" target="freeweibo-mirror">SPAM 1、央视主播，赵普，也挺好玩的。 2、他在请教水军…</a>
-</h2>
-<p>SPAM 1、央视主播，赵普，也挺好玩的。 2、他在请教水军建制问题，谁来回答一下呢？班排连营团？上阵是否分波次？战功如何考核？指标如何确立？ 3、赵普问，这个点去做足疗是否妥当，我回答：只要不嫖就妥当！ 4、怎么可能会有真相呢？莫天真呢了，这是说雷洋案子吗？<br><img src="http://ww2.sinaimg.cn/large/6fb87d17jw1f4458ym1tpj20qo1bftey.jpg"></p>
 <p>
 	<small> ============== 9小时前</small>
 </p>
