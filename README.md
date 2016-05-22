@@ -47,7 +47,7 @@
 </h2>
 <p>//@徐战前://@读陶://@vagrantbenthos: 有人潜心探索人、社会和自然的奥秘，有人拿着大帽子大棍子在一边儿监督………通过诚实劳动挣钱养家的职业其实很多，当便衣巡视员、信息员、当五毛是一种不光彩的行当，不建议年轻人干这个。<br><br>RE: 大学课堂里设“便衣巡视员”，是对教师职业的终极侮辱。你可以不提高大学教师的工资待遇，也可以逼着大学教师发文章、评职称、争课题，但无论如何，你不能像特务一样监控他们在讲台上说了些什么。我实在无法想象，在这样的教育体制下，如何能建成所谓的“世界一流大学”。</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3978049349817182" target="freeweibo-mirror">听说过一个词，音译“盖世太保”。 //@一品泥人:[草泥马]…</a>
 </h2>
@@ -71,13 +71,13 @@
 </h2>
 <p>//@西边的太阳快落山:你懂的太多了<br><br>RE: 绝不搞西方那一套，西方那一套究竟是什么？ 你们不敢说。西方那一套是:1新闻自由。 你们不敢搞，因为害怕人民监督。2官员财产公开。你们不敢搞，因为害怕腐败曝光。3一人一票，你们不敢搞，因为害怕人民不选你们。4司法独立,你们不敢搞，因为害怕被审判 5军队国家化，你们不敢搞，没了鹰犬，谁会怕你<br><img src="http://ww3.sinaimg.cn/large/006tBkjEjw1f43vrrvjfej30jm0d640j.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3978040922998670" target="freeweibo-mirror">//@JiWeiweiiii:干点实事，别一天到晚讲道理</a>
 </h2>
 <p>//@JiWeiweiiii:干点实事，别一天到晚讲道理<br><br>RE: 【让群众在公安执法中感到正义】每次看到这一个“让”字，我总能看到权势者那种高高在上的派头，总能看到那种对民众不屑一顾的轻蔑的眼神。这个“让”仿佛是一种恩赐、一种怜悯、一种予夺予取，一种为所欲为。殊不知这种享受公平正义本身就应该是民主应该拥有的权力，这是天然权力，任何人无权剥夺。<br><img src="http://ww4.sinaimg.cn/large/005M7QzIjw1f426q5e9m6j30sp0ht0yb.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3978029124420693" target="freeweibo-mirror">SPAM 回复@安崇民:[偷笑] //@温星0528:不管作…</a>
 </h2>
@@ -109,6 +109,12 @@
 <p>
 	<small> ============== 7小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3977985209486164" target="freeweibo-mirror">《抄完黨章也不洗澡》这歌好听[哈哈][哈哈][哈哈] htt…</a>
+</h2>
+<p>《抄完黨章也不洗澡》这歌好听[哈哈][哈哈][哈哈] http://t.cn/R57PnuX .</p>
+<p>
+	<small> ============== 7小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3977972517677373" target="freeweibo-mirror">SPAM [哈哈][哈哈][哈哈][哈哈][哈哈][哈哈][…</a>
 </h2>
 <p>SPAM [哈哈][哈哈][哈哈][哈哈][哈哈][哈哈][哈哈][哈哈]好一笔破字<br><br>RE: 重慶也有皇民？當年被炸出快感了嗎？<br><img src="http://ww1.sinaimg.cn/large/a770158cgw1f4484oe6xbj20go09d40g.jpg"></p>
@@ -125,17 +131,11 @@
 </h2>
 <p>重慶也有皇民？當年被炸出快感了嗎？<br><img src="http://ww1.sinaimg.cn/large/a770158cgw1f4484oe6xbj20go09d40g.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3977961658856948" target="freeweibo-mirror">//@伟荣V实说://@伟荣V实说: //@看破红尘宝贝六:…</a>
 </h2>
 <p>//@伟荣V实说://@伟荣V实说: //@看破红尘宝贝六: 这群畜生！[鄙视] //@自-由蓝-莲花再开:副总理一来，大家病都好了！[good] //@雷公旗: //@学缠悟缠: 都知道在演，都不点破 //@ICO刘开明:转发微博<br><br>RE: 能不能演得真一点？<br><img src="http://ww1.sinaimg.cn/large/644481degw1f43zu1dspbj20qo0tiafe.jpg"></p>
-<p>
-	<small> ============== 9小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3977955573073449" target="freeweibo-mirror">SPAM 乞讨日记  2016年5月22日下午15:00左右…</a>
-</h2>
-<p>SPAM 乞讨日记  2016年5月22日下午15:00左右. 北京地铁二号线东直门东北角出站口. 打破地铁禁止乞讨的禁令,胡同大爷手持一杆最便宜的二胡, 坐在一个小马扎上,面前放了一个红色洋铁皮收钱罐,因为松香涂抹的比较多的缘故，一柄二胡发出了刺耳的噪声. 先是试着拉一曲《梁祝》,实在是没有办法听下去, 自己都不忍...全文： http://m.weibo.cn/1263406744/3977955573073449<br><img src="http://ww4.sinaimg.cn/large/4b4e0e98jw1f446qnamvuj20go0dmzrn.jpg"></p>
 <p>
 	<small> ============== 9小时前</small>
 </p>
