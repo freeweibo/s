@@ -101,7 +101,7 @@
 </h2>
 <p>1949年3月25日，毛从西柏坡移驾北平，住香山双清别墅，次日即召见当年窑洞对探周期率的老朋友黄炎培，恳请其作为中间人向民族实业家传递、解释党的政策，称社会主义改造上将大大有别于斯大林。黄领命广为宣传，众多实业家决定留在大陆。后来历史证明：毛是玩阴大家，骗人不打草稿，把黄炎培当托使了。<br><img src="http://ww1.sinaimg.cn/large/006tnYcfjw1f4433lmvwtj30m80vzafi.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3977909423458389" target="freeweibo-mirror">漏气。</a>
 </h2>
