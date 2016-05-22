@@ -29,7 +29,7 @@
 </h2>
 <p>//@天良2012://@雁塔晓木屋://@陈积无量c:法治举步维艰，体制重重锁关。<br><br>RE: 我发了两条涉及雷洋的微博，转眼之间就被没收了转发键，内容也被屏蔽了，指挥干这事的和干这事的能不能成为下一个雷洋呢？[疑问] http://t.cn/RyhW8OV<br><img src="http://ww1.sinaimg.cn/large/73570bbdjw1f43q33bcf3j20ku112wm1.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3977829911549074" target="freeweibo-mirror">//@舒可心:如果维持目前的机制补改变，每个人都可能是下一个…</a>
 </h2>
@@ -47,7 +47,7 @@
 </h2>
 <p>//@千里马常有:回复@汶金让:图片评论 http://t.cn/R5hZNiX //@汶金让:静待尸检结果，此案已引起中央领导关注[心][给力]//@千里马常有:每一个人都可能成为雷洋，除非有民主法治，不过，那些指挥删贴子的人，成为雷洋的可能性更大一点！<br><br>RE: 我发了两条涉及雷洋的微博，转眼之间就被没收了转发键，内容也被屏蔽了，指挥干这事的和干这事的能不能成为下一个雷洋呢？[疑问] http://t.cn/RyhW8OV<br><img src="http://ww1.sinaimg.cn/large/73570bbdjw1f43q33bcf3j20ku112wm1.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3977809371976715" target="freeweibo-mirror">静待尸检结果，此案已引起中央领导关注[心][给力]//@千里…</a>
 </h2>
@@ -89,19 +89,19 @@
 </h2>
 <p>//@绍兴师爷行北京://@邵明波:转发微博<br><br>RE: 有些事是改变，不是改革。比如，政府强行参股互联网公司。这种改变从方向性来讲就是赤裸裸的倒退。如果前几届政府也像这样“热心”，就根本不可能有今天中国互联网行业规模。尽管这些事被官方冠名“改革”，但是社会各界非常鄙视这种行为。</p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3977720419445921" target="freeweibo-mirror">//@人见人爱的肉唐僧: 为人民服务！</a>
 </h2>
 <p>//@人见人爱的肉唐僧: 为人民服务！<br><br>RE: 昌平非京籍家长自焚案的报道。苍天有眼，有些人必有报应。<br><img src="http://ww4.sinaimg.cn/large/6200b57bjw1f43d15o7gtj20qo2frb29.jpg"></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3977720179757639" target="freeweibo-mirror">SPAM OMG.//@张晨初艺术空间: [伤心]//@梧桐…</a>
 </h2>
 <p>SPAM OMG.//@张晨初艺术空间: [伤心]//@梧桐树影影婆娑: //@长沙罗刚: 他在北京奋斗扎根，肯定够坚强。可是，两周来，为孩子上小学四处奔波，竟然被逼自焚。父爱的绝望，坚冰的冷漠。人心世道，同情心何在？<br><br>RE: 昌平非京籍家长自焚案的报道。苍天有眼，有些人必有报应。<br><img src="http://ww4.sinaimg.cn/large/6200b57bjw1f43d15o7gtj20qo2frb29.jpg"></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3977719399999339" target="freeweibo-mirror">SPAM //@郭贺军Andy:人，生而平等，无国界。党国自…</a>
 </h2>
