@@ -53,7 +53,7 @@
 </h2>
 <p>静待尸检结果，此案已引起中央领导关注[心][给力]//@千里马常有:每一个人都可能成为雷洋，除非有民主法治，不过，那些指挥删贴子的人，成为雷洋的可能性更大一点！<br><br>RE: 我发了两条涉及雷洋的微博，转眼之间就被没收了转发键，内容也被屏蔽了，指挥干这事的和干这事的能不能成为下一个雷洋呢？[疑问] http://t.cn/RyhW8OV<br><img src="http://ww1.sinaimg.cn/large/73570bbdjw1f43q33bcf3j20ku112wm1.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3977808336228606" target="freeweibo-mirror">我发了两条涉及雷洋的微博，转眼之间就被没收了转发键，内容也被…</a>
 </h2>
@@ -107,13 +107,13 @@
 </h2>
 <p>SPAM //@郭贺军Andy:人，生而平等，无国界。党国自信、自信、自信。//@李国斌律师: 美帝在中国必须适应中国国情，休想有获得超过中国人所拥有的言论自由的范围，否则一样灭口！天朝威武，直逼大清。[威武][威武][威武]<br><br>RE: 捡图@海口逗逗<br><img src="http://ww4.sinaimg.cn/large/6a246be6gw1f43ad28kh7j20ez0qo419.jpg"></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3977718804763797" target="freeweibo-mirror">SPAM [伤心]//@梧桐树影影婆娑: //@长沙罗刚: …</a>
 </h2>
 <p>SPAM [伤心]//@梧桐树影影婆娑: //@长沙罗刚: 他在北京奋斗扎根，肯定够坚强。可是，两周来，为孩子上小学四处奔波，竟然被逼自焚。父爱的绝望，坚冰的冷漠。人心世道，同情心何在？<br><br>RE: 昌平非京籍家长自焚案的报道。苍天有眼，有些人必有报应。<br><img src="http://ww4.sinaimg.cn/large/6200b57bjw1f43d15o7gtj20qo2frb29.jpg"></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3977718620475360" target="freeweibo-mirror">//@萧含://@邵明波:转给@微言教育  请问袁部长，这个…</a>
 </h2>
