@@ -23,7 +23,19 @@
 </h2>
 <p>你观点鲜明，果断取关。  http://t.cn/R57wXLs //@亟兮般若:这些人不是重庆人吧！是人吗？应该不是吧！都是日本狗腿子吧！@重庆言子哥 @重庆事儿 @新浪重庆 @今日重庆 @人人爱重庆 ？？？[怒][怒][怒]<br><br>RE: 重慶也有皇民？當年被炸出快感了嗎？<br><img src="http://ww1.sinaimg.cn/large/a770158cgw1f4484oe6xbj20go09d40g.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3977994613168573" target="freeweibo-mirror">//@上海鱼鱼1: //@精日钟表-表哥: //@马操188…</a>
+</h2>
+<p>//@上海鱼鱼1: //@精日钟表-表哥: //@马操188:[赞]→_→ //@老猫-围脖:觉醒的中国人<br><br>RE: 重慶也有皇民？當年被炸出快感了嗎？<br><img src="http://ww1.sinaimg.cn/large/a770158cgw1f4484oe6xbj20go09d40g.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3977972517677373" target="freeweibo-mirror">SPAM [哈哈][哈哈][哈哈][哈哈][哈哈][哈哈][…</a>
+</h2>
+<p>SPAM [哈哈][哈哈][哈哈][哈哈][哈哈][哈哈][哈哈][哈哈]好一笔破字<br><br>RE: 重慶也有皇民？當年被炸出快感了嗎？<br><img src="http://ww1.sinaimg.cn/large/a770158cgw1f4484oe6xbj20go09d40g.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3977970730865554" target="freeweibo-mirror">无敌自信，霸气侧漏。[熊猫]//@渔夫转播: //@牛年狂蝎…</a>
 </h2>
@@ -95,7 +107,7 @@
 </h2>
 <p>陈有西可能走在被嫖娼的路上。当看到陈有西发微博说：谁害怕真相。因为受理雷洋案，我的新浪微博遭遇了三步曲。先是禁转发，次是被屏蔽，三是被限发。同时造谣诽谤五毛贴却可以在我的贴上评论谩骂。李庄案时现象重现。每个人都可能遭遇雷洋的命运，不要以维稳的漂亮口号，颠倒是非，包庇罪恶，助纣为虐</p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3977904725430189" target="freeweibo-mirror">回复@中国公知精神病及脑残康复中心V:山东人不闹就对了，跟领…</a>
 </h2>
@@ -124,18 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3977898383342740" target="freeweibo-mirror">SPAM //@杨佩昌: 刚送的钱已经用完，俄毛手头又紧了。…</a>
 </h2>
 <p>SPAM //@杨佩昌: 刚送的钱已经用完，俄毛手头又紧了。//@金融评论员:再送点钱，这是催款通知1… //@杜子建:我就说，老毛子不能信<br><br>RE: 俄罗斯首次针对南中国海行为准则表达立场。-----没了俄爹，怎么办？<br><img src="http://ww2.sinaimg.cn/large/00688VQAjw1f43wp9ckxpj30f10czjuq.jpg"></p>
-<p>
-	<small> ============== 8小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3977897653861452" target="freeweibo-mirror">SPAM  //@谢文:估计再给500亿可以搞定。//@杨佩…</a>
-</h2>
-<p>SPAM  //@谢文:估计再给500亿可以搞定。//@杨佩昌: 刚送的钱已经用完，俄毛手头又紧了。//@金融评论员:再送点钱，这是催款通知1… //@杜子建:我就说，老毛子不能信<br><br>RE: 俄罗斯首次针对南中国海行为准则表达立场。-----没了俄爹，怎么办？<br><img src="http://ww2.sinaimg.cn/large/00688VQAjw1f43wp9ckxpj30f10czjuq.jpg"></p>
-<p>
-	<small> ============== 8小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3977897579051465" target="freeweibo-mirror">//@公民王海滨://@ls和m: 转发微博</a>
-</h2>
-<p>//@公民王海滨://@ls和m: 转发微博<br><br>RE: 俄罗斯首次针对南中国海行为准则表达立场。-----没了俄爹，怎么办？<br><img src="http://ww2.sinaimg.cn/large/00688VQAjw1f43wp9ckxpj30f10czjuq.jpg"></p>
 <p>
 	<small> ============== 8小时前</small>
 </p>
