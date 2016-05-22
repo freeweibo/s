@@ -65,23 +65,29 @@
 </h2>
 <p>SPAM //@杨佩昌: 刚送的钱已经用完，俄毛手头又紧了。//@金融评论员:再送点钱，这是催款通知1… //@杜子建:我就说，老毛子不能信<br><br>RE: 俄罗斯首次针对南中国海行为准则表达立场。-----没了俄爹，怎么办？<br><img src="http://ww2.sinaimg.cn/large/00688VQAjw1f43wp9ckxpj30f10czjuq.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3977897653861452" target="freeweibo-mirror">SPAM  //@谢文:估计再给500亿可以搞定。//@杨佩…</a>
 </h2>
 <p>SPAM  //@谢文:估计再给500亿可以搞定。//@杨佩昌: 刚送的钱已经用完，俄毛手头又紧了。//@金融评论员:再送点钱，这是催款通知1… //@杜子建:我就说，老毛子不能信<br><br>RE: 俄罗斯首次针对南中国海行为准则表达立场。-----没了俄爹，怎么办？<br><img src="http://ww2.sinaimg.cn/large/00688VQAjw1f43wp9ckxpj30f10czjuq.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3977897579051465" target="freeweibo-mirror">//@公民王海滨://@ls和m: 转发微博</a>
 </h2>
 <p>//@公民王海滨://@ls和m: 转发微博<br><br>RE: 俄罗斯首次针对南中国海行为准则表达立场。-----没了俄爹，怎么办？<br><img src="http://ww2.sinaimg.cn/large/00688VQAjw1f43wp9ckxpj30f10czjuq.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3977895686631444" target="freeweibo-mirror">SPAM 关注，跟上时尚潮流~</a>
 </h2>
 <p>SPAM 关注，跟上时尚潮流~</p>
+<p>
+	<small> ============== 6小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3977893271559669" target="freeweibo-mirror">能不能演得真一点？</a>
+</h2>
+<p>能不能演得真一点？<br><img src="http://ww1.sinaimg.cn/large/644481degw1f43zu1dspbj20qo0tiafe.jpg"></p>
 <p>
 	<small> ============== 6小时前</small>
 </p><h2>
@@ -119,7 +125,7 @@
 </h2>
 <p>[笑cry] //@罗玉凤:社会主义好，社会主义好，社会主义国家人民地位高/反动派被打倒/美帝主义夹着尾巴逃跑了[挖鼻][挖鼻]<br><br>RE: 【美国两名警察因不恰当行为致一男子死亡，死者曾数次求饶】美国纽约时报于当地时间5月20日公布了一段事发于2015年11月视频。http://t.cn/R5PTFmI 视频中，警察用手铐将一男子铐住，并表示再反抗就要使用电击设备了。死者试图挣脱手铐，并伸手去抢一名警察的电击设备。之后，其中两名警察对该男子进行...全文： http://m.weibo.cn/5044281310/3977691902786223</p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3977882193482979" target="freeweibo-mirror">暴力抗法都是在找死</a>
 </h2>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3977879307639002" target="freeweibo-mirror">转发：陈有西微博被封，已不用对雷洋案得到公正对待抱多少幻想。…</a>
 </h2>
 <p>转发：陈有西微博被封，已不用对雷洋案得到公正对待抱多少幻想。中共入股各大视频网站，全面控制网络视频已被证实，入股各大门户新闻网站也只是时间问题。今后类似雷洋之死这样的负面新闻都不会出现在我们视界中，1984已然到来。我们就这样在沉默中默默的死去的盛世即将到来，如你所愿。</p>
-<p>
-	<small> ============== 7小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3977878439457302" target="freeweibo-mirror">雷洋案反映了不制衡的极权公权力，已经到了普遍危害公民生命安全…</a>
-</h2>
-<p>雷洋案反映了不制衡的极权公权力，已经到了普遍危害公民生命安全，滥杀公民极度恶劣的程度。公权力再不制衡，整个社会就会变成猎杀公民的丛林，滥杀无辜的屠宰场。河南的范培华案，则反映了社会正在转向民不畏死，何以死惧之的社会，猪的社会正在向狼的社会转化。社会要和谐安定，停止恐怖势在必行！</p>
 <p>
 	<small> ============== 7小时前</small>
 </p>
