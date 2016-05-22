@@ -107,7 +107,7 @@
 </h2>
 <p>//@上海鱼鱼1: //@精日钟表-表哥: //@马操188:[赞]→_→ //@老猫-围脖:觉醒的中国人<br><br>RE: 重慶也有皇民？當年被炸出快感了嗎？<br><img src="http://ww1.sinaimg.cn/large/a770158cgw1f4484oe6xbj20go09d40g.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3977972517677373" target="freeweibo-mirror">SPAM [哈哈][哈哈][哈哈][哈哈][哈哈][哈哈][…</a>
 </h2>
