@@ -19,6 +19,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3977895686631444" target="freeweibo-mirror">SPAM 关注，跟上时尚潮流~</a>
+</h2>
+<p>SPAM 关注，跟上时尚潮流~</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3977883535848941" target="freeweibo-mirror">[笑cry] //@罗玉凤:社会主义好，社会主义好，社会主义…</a>
 </h2>
 <p>[笑cry] //@罗玉凤:社会主义好，社会主义好，社会主义国家人民地位高/反动派被打倒/美帝主义夹着尾巴逃跑了[挖鼻][挖鼻]<br><br>RE: 【美国两名警察因不恰当行为致一男子死亡，死者曾数次求饶】美国纽约时报于当地时间5月20日公布了一段事发于2015年11月视频。http://t.cn/R5PTFmI 视频中，警察用手铐将一男子铐住，并表示再反抗就要使用电击设备了。死者试图挣脱手铐，并伸手去抢一名警察的电击设备。之后，其中两名警察对该男子进行...全文： http://m.weibo.cn/5044281310/3977691902786223</p>
@@ -53,7 +59,7 @@
 </h2>
 <p>发表了博文《控诉中国警察》【一个捐助过6500位贫困生的女士为什么控诉中国警察？】作者：董淑贞王毅部长：您好！我是董淑贞，中央统战部海外联谊会理事，全国台联海外联谊会理事，江西、辽宁政协特邀委员，世界http://t.cn/R5hyUxu</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3977829911549074" target="freeweibo-mirror">//@舒可心:如果维持目前的机制补改变，每个人都可能是下一个…</a>
 </h2>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3977720179757639" target="freeweibo-mirror">SPAM OMG.//@张晨初艺术空间: [伤心]//@梧桐…</a>
 </h2>
 <p>SPAM OMG.//@张晨初艺术空间: [伤心]//@梧桐树影影婆娑: //@长沙罗刚: 他在北京奋斗扎根，肯定够坚强。可是，两周来，为孩子上小学四处奔波，竟然被逼自焚。父爱的绝望，坚冰的冷漠。人心世道，同情心何在？<br><br>RE: 昌平非京籍家长自焚案的报道。苍天有眼，有些人必有报应。<br><img src="http://ww4.sinaimg.cn/large/6200b57bjw1f43d15o7gtj20qo2frb29.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3977719399999339" target="freeweibo-mirror">SPAM //@郭贺军Andy:人，生而平等，无国界。党国自…</a>
-</h2>
-<p>SPAM //@郭贺军Andy:人，生而平等，无国界。党国自信、自信、自信。//@李国斌律师: 美帝在中国必须适应中国国情，休想有获得超过中国人所拥有的言论自由的范围，否则一样灭口！天朝威武，直逼大清。[威武][威武][威武]<br><br>RE: 捡图@海口逗逗<br><img src="http://ww4.sinaimg.cn/large/6a246be6gw1f43ad28kh7j20ez0qo419.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
