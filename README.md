@@ -23,7 +23,7 @@
 </h2>
 <p>//@孟庆泉律师:[给力]稳定压倒一切，视人民为敌人！<br><br>RE: 我发了两条涉及雷洋的微博，转眼之间就被没收了转发键，内容也被屏蔽了，指挥干这事的和干这事的能不能成为下一个雷洋呢？[疑问] http://t.cn/RyhW8OV<br><img src="http://ww1.sinaimg.cn/large/73570bbdjw1f43q33bcf3j20ku112wm1.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3977841861829908" target="freeweibo-mirror">//@天良2012://@雁塔晓木屋://@陈积无量c:法治…</a>
 </h2>
@@ -37,9 +37,21 @@
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3977818637980057" target="freeweibo-mirror">[抓狂] //@大连的一人君://@谢流石:法治不昌 谁都有…</a>
+</h2>
+<p>[抓狂] //@大连的一人君://@谢流石:法治不昌 谁都有可能成为下一个<br><br>RE: 我发了两条涉及雷洋的微博，转眼之间就被没收了转发键，内容也被屏蔽了，指挥干这事的和干这事的能不能成为下一个雷洋呢？[疑问] http://t.cn/RyhW8OV<br><img src="http://ww1.sinaimg.cn/large/73570bbdjw1f43q33bcf3j20ku112wm1.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3977811251872732" target="freeweibo-mirror">//@千里马常有:回复@汶金让:图片评论 http://t.…</a>
 </h2>
 <p>//@千里马常有:回复@汶金让:图片评论 http://t.cn/R5hZNiX //@汶金让:静待尸检结果，此案已引起中央领导关注[心][给力]//@千里马常有:每一个人都可能成为雷洋，除非有民主法治，不过，那些指挥删贴子的人，成为雷洋的可能性更大一点！<br><br>RE: 我发了两条涉及雷洋的微博，转眼之间就被没收了转发键，内容也被屏蔽了，指挥干这事的和干这事的能不能成为下一个雷洋呢？[疑问] http://t.cn/RyhW8OV<br><img src="http://ww1.sinaimg.cn/large/73570bbdjw1f43q33bcf3j20ku112wm1.jpg"></p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3977809371976715" target="freeweibo-mirror">静待尸检结果，此案已引起中央领导关注[心][给力]//@千里…</a>
+</h2>
+<p>静待尸检结果，此案已引起中央领导关注[心][给力]//@千里马常有:每一个人都可能成为雷洋，除非有民主法治，不过，那些指挥删贴子的人，成为雷洋的可能性更大一点！<br><br>RE: 我发了两条涉及雷洋的微博，转眼之间就被没收了转发键，内容也被屏蔽了，指挥干这事的和干这事的能不能成为下一个雷洋呢？[疑问] http://t.cn/RyhW8OV<br><img src="http://ww1.sinaimg.cn/large/73570bbdjw1f43q33bcf3j20ku112wm1.jpg"></p>
 <p>
 	<small> ============== 4小时前</small>
 </p><h2>
@@ -124,18 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3977708528226640" target="freeweibo-mirror">SPAM 大牌使用！牙黄克星</a>
 </h2>
 <p>SPAM 大牌使用！牙黄克星</p>
-<p>
-	<small> ============== 11小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3977707022860477" target="freeweibo-mirror">2333 //@viphjw://@李铁军: 美帝又吃了败仗…</a>
-</h2>
-<p>2333 //@viphjw://@李铁军: 美帝又吃了败仗[笑cry]//@jlijames: 好，我们的人民如何经得起这种赤果果的道理[挖鼻] //@邵明波:转发微博<br><br>RE: 捡图@海口逗逗<br><img src="http://ww4.sinaimg.cn/large/6a246be6gw1f43ad28kh7j20ez0qo419.jpg"></p>
-<p>
-	<small> ============== 11小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3977703793089929" target="freeweibo-mirror">//@尹鸿:每个人都认为别人是倒霉蛋，自己是幸运儿。千百年来…</a>
-</h2>
-<p>//@尹鸿:每个人都认为别人是倒霉蛋，自己是幸运儿。千百年来，只扫自家门前雪，不管他人瓦上霜，所以活的就是一个赌概率。<br><br>RE: 雷洋自己生前不关注民众苦难、不关注死磕律师玩命死磕的那些冤案，他选择的工作单位也和他一样，特别是他的单位连自己员工之死也不关注和发声，但这并不影响成千上万网民越来越多的开始关注雷洋，我们不妨把过去雷洋的情况称之为雷洋现象，把他单位的态度称之为雷洋单位现象。 http://t.cn/RyhW8OV<br><img src="http://ww1.sinaimg.cn/large/73570bbdjw1f43dlxouiqj20qo0qotnk.jpg"></p>
 <p>
 	<small> ============== 11小时前</small>
 </p>
