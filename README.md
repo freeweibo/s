@@ -23,7 +23,7 @@
 </h2>
 <p>SPAM 关注，跟上时尚潮流~</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3977889874157788" target="freeweibo-mirror">美国版雷洋</a>
 </h2>
