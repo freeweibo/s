@@ -107,7 +107,7 @@
 </h2>
 <p>//@喷嚏网铂程://@人见人爱的肉唐僧: 为人民服务！<br><br>RE: 昌平非京籍家长自焚案的报道。苍天有眼，有些人必有报应。<br><img src="http://ww4.sinaimg.cn/large/6200b57bjw1f43d15o7gtj20qo2frb29.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3977720847909280" target="freeweibo-mirror">//@绍兴师爷行北京://@邵明波:转发微博</a>
 </h2>
