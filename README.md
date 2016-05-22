@@ -47,7 +47,7 @@
 </h2>
 <p>//@天良2012://@雁塔晓木屋://@陈积无量c:法治举步维艰，体制重重锁关。<br><br>RE: 我发了两条涉及雷洋的微博，转眼之间就被没收了转发键，内容也被屏蔽了，指挥干这事的和干这事的能不能成为下一个雷洋呢？[疑问] http://t.cn/RyhW8OV<br><img src="http://ww1.sinaimg.cn/large/73570bbdjw1f43q33bcf3j20ku112wm1.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3977830968108499" target="freeweibo-mirror">发表了博文《控诉中国警察》【一个捐助过6500位贫困生的女士…</a>
 </h2>
@@ -77,7 +77,7 @@
 </h2>
 <p>//@千里马常有:回复@汶金让:图片评论 http://t.cn/R5hZNiX //@汶金让:静待尸检结果，此案已引起中央领导关注[心][给力]//@千里马常有:每一个人都可能成为雷洋，除非有民主法治，不过，那些指挥删贴子的人，成为雷洋的可能性更大一点！<br><br>RE: 我发了两条涉及雷洋的微博，转眼之间就被没收了转发键，内容也被屏蔽了，指挥干这事的和干这事的能不能成为下一个雷洋呢？[疑问] http://t.cn/RyhW8OV<br><img src="http://ww1.sinaimg.cn/large/73570bbdjw1f43q33bcf3j20ku112wm1.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3977809371976715" target="freeweibo-mirror">静待尸检结果，此案已引起中央领导关注[心][给力]//@千里…</a>
 </h2>
