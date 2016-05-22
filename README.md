@@ -71,7 +71,7 @@
 </h2>
 <p>陈有西可能走在被嫖娼的路上。当看到陈有西发微博说：谁害怕真相。因为受理雷洋案，我的新浪微博遭遇了三步曲。先是禁转发，次是被屏蔽，三是被限发。同时造谣诽谤五毛贴却可以在我的贴上评论谩骂。李庄案时现象重现。每个人都可能遭遇雷洋的命运，不要以维稳的漂亮口号，颠倒是非，包庇罪恶，助纣为虐</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3977904725430189" target="freeweibo-mirror">回复@中国公知精神病及脑残康复中心V:山东人不闹就对了，跟领…</a>
 </h2>
@@ -125,13 +125,13 @@
 </h2>
 <p>能不能演得真一点？<br><img src="http://ww1.sinaimg.cn/large/644481degw1f43zu1dspbj20qo0tiafe.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3977892952051242" target="freeweibo-mirror">SPAM 咋整的？ //@徐昕://@巓雲://@杨佩昌:刚…</a>
 </h2>
 <p>SPAM 咋整的？ //@徐昕://@巓雲://@杨佩昌:刚送的钱已经用完，俄毛手头又紧了。//@金融评论员:再送点钱，这是催款通知1… //@杜子建:我就说，老毛子不能信<br><br>RE: 俄罗斯首次针对南中国海行为准则表达立场。-----没了俄爹，怎么办？<br><img src="http://ww2.sinaimg.cn/large/00688VQAjw1f43wp9ckxpj30f10czjuq.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3977889874157788" target="freeweibo-mirror">美国版雷洋</a>
 </h2>
