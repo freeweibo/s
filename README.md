@@ -35,7 +35,7 @@
 </h2>
 <p>经典！！</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3977999093045658" target="freeweibo-mirror">你观点鲜明，果断取关。  http://t.cn/R57wX…</a>
 </h2>
@@ -71,7 +71,7 @@
 </h2>
 <p>//@伟荣V实说://@伟荣V实说: //@看破红尘宝贝六: 这群畜生！[鄙视] //@自-由蓝-莲花再开:副总理一来，大家病都好了！[good] //@雷公旗: //@学缠悟缠: 都知道在演，都不点破 //@ICO刘开明:转发微博<br><br>RE: 能不能演得真一点？<br><img src="http://ww1.sinaimg.cn/large/644481degw1f43zu1dspbj20qo0tiafe.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3977955573073449" target="freeweibo-mirror">SPAM 乞讨日记  2016年5月22日下午15:00左右…</a>
 </h2>
