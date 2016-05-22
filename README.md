@@ -31,6 +31,12 @@
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3977949143535629" target="freeweibo-mirror">此文已被删一次，请速转</a>
+</h2>
+<p>此文已被删一次，请速转<br><br>RE: 政法大学客座教授张捷就雷洋案发了一篇长文，充满了大量错误或误导的法律概念，如果司考不是代考的只能说昧尽了良心。同时，该人还以知情人身份透露了警方只要串通诬陷就可以给任何无辜者定罪的惊人信息 @雷洋家属唯一微博 @陈有西 @司马南 @谁是谁非任评说 http://t.cn/R5h1x9E</p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3977942172574250" target="freeweibo-mirror">SPAM [弱]//@为人师表2010://@隐者飞飞: […</a>
 </h2>
 <p>SPAM [弱]//@为人师表2010://@隐者飞飞: [挖鼻]上下一起演，就像把头插地里的驼鸟。//@ICO刘开明: 转发微博<br><br>RE: 能不能演得真一点？<br><img src="http://ww1.sinaimg.cn/large/644481degw1f43zu1dspbj20qo0tiafe.jpg"></p>
@@ -65,7 +71,7 @@
 </h2>
 <p>1949年3月25日，毛从西柏坡移驾北平，住香山双清别墅，次日即召见当年窑洞对探周期率的老朋友黄炎培，恳请其作为中间人向民族实业家传递、解释党的政策，称社会主义改造上将大大有别于斯大林。黄领命广为宣传，众多实业家决定留在大陆。后来历史证明：毛是玩阴大家，骗人不打草稿，把黄炎培当托使了。<br><img src="http://ww1.sinaimg.cn/large/006tnYcfjw1f4433lmvwtj30m80vzafi.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3977909423458389" target="freeweibo-mirror">漏气。</a>
 </h2>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3977893271559669" target="freeweibo-mirror">能不能演得真一点？</a>
 </h2>
 <p>能不能演得真一点？<br><img src="http://ww1.sinaimg.cn/large/644481degw1f43zu1dspbj20qo0tiafe.jpg"></p>
-<p>
-	<small> ============== 7小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3977892952051242" target="freeweibo-mirror">SPAM 咋整的？ //@徐昕://@巓雲://@杨佩昌:刚…</a>
-</h2>
-<p>SPAM 咋整的？ //@徐昕://@巓雲://@杨佩昌:刚送的钱已经用完，俄毛手头又紧了。//@金融评论员:再送点钱，这是催款通知1… //@杜子建:我就说，老毛子不能信<br><br>RE: 俄罗斯首次针对南中国海行为准则表达立场。-----没了俄爹，怎么办？<br><img src="http://ww2.sinaimg.cn/large/00688VQAjw1f43wp9ckxpj30f10czjuq.jpg"></p>
 <p>
 	<small> ============== 7小时前</small>
 </p>
