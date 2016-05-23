@@ -89,7 +89,7 @@
 </h2>
 <p>//@古道西风壹苍狼:[哈哈]真特么的能闹 //@忘却纪念:[哈哈]//@清风飘逸噻: [哈哈] //@mt108:[哈哈] //@公民公民999://@真的回头A:转发微博<br><br>RE: 《抄完黨章也不洗澡》这歌好听[哈哈][哈哈][哈哈] http://t.cn/R57PnuX .</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3978056320269462" target="freeweibo-mirror">//@徐战前://@读陶://@vagrantbenthos…</a>
 </h2>
