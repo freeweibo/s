@@ -65,7 +65,7 @@
 </h2>
 <p>SPAM 一个专为夜猫提供的暖心夜刊！失眠读物微X1n: shimianduwu</p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3978072347196837" target="freeweibo-mirror">SPAM 不定期有红 包 哦！</a>
 </h2>
