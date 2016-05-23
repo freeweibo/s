@@ -41,7 +41,7 @@
 </h2>
 <p>深改组应该有个官方微博吧？<br><br>RE: 京冀苏豫鄂齐呼“教育公平”，深改组应该提上议事日程了！<br><img src="http://ww4.sinaimg.cn/large/6a80bfcdgw1f459mualoaj20rs0kuq8v.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3978292459565192" target="freeweibo-mirror">京冀苏豫鄂齐呼“教育公平”，深改组应该提上议事日程了！</a>
 </h2>
