@@ -85,6 +85,12 @@
 <p>
 	<small> ============== 6小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3978244615320517" target="freeweibo-mirror">新官上任三把火[嘻嘻]</a>
+</h2>
+<p>新官上任三把火[嘻嘻]<br><img src="http://ww3.sinaimg.cn/large/006qPhabgw1f4546cbba5j30go0b4q41.jpg"></p>
+<p>
+	<small> ============== 6小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3978242576491430" target="freeweibo-mirror">中国人的智慧是逼出来的：民工在江西高院门前集体抄写党章讨薪……</a>
 </h2>
 <p>中国人的智慧是逼出来的：民工在江西高院门前集体抄写党章讨薪……[思考]<br><img src="http://ww3.sinaimg.cn/large/006eBu5Vgw1f453x7uvnpj30nq0hs42v.jpg"></p>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3978207742428683" target="freeweibo-mirror">又在歪曲煽动。我国法律本就赋予尸检过程中家属可以在场的权利，…</a>
 </h2>
 <p>又在歪曲煽动。我国法律本就赋予尸检过程中家属可以在场的权利，需要家属找这位尸检证人“求情”才能进去吗？嗯，尸检结果还没出来，但只要家属一下跪，就等于“公权力”有问题。事实上，不管真冤假冤，下跪的家属并不少。 http://t.cn/R573wOm //@吕吕-吕:上了热搜，评论才36？<br><br>RE: 【雷洋父母看完遗体后，为何当场给尸检证人下跪？】，分享给你，快来看！ http://t.cn/R57pwKJ<br><img src="http://ww1.sinaimg.cn/large/a2e5ebb3jw1f44ld6ynzpj20go0go0v8.jpg"></p>
-<p>
-	<small> ============== 8小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3978201732217039" target="freeweibo-mirror">SPAM 八九</a>
-</h2>
-<p>SPAM 八九<br><br>RE: 这些救人的英雄！他们在哪里？有人认识他们吗？  一起寻找他们！<br><img src="http://ww2.sinaimg.cn/large/006tcLkSgw1f44h7ahop0j30dr09cdg7.jpg"></p>
 <p>
 	<small> ============== 9小时前</small>
 </p>
