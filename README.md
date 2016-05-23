@@ -19,6 +19,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3978217184202614" target="freeweibo-mirror">//@李方平律师: 如果这就是“深改”，我是醉了！</a>
+</h2>
+<p>//@李方平律师: 如果这就是“深改”，我是醉了！<br><br>RE: 【是否构成国家“强迫交易罪”？】5月18日广电总局召开了一场重要的“吹风会”， 许多视频行业内大型企业都被要求前往，会议提出，国内大型视频网站优酷土豆、爱奇艺、腾讯视频等须接受国资“特殊管理股”。<br><img src="http://ww1.sinaimg.cn/large/6a80bfcdgw1f43be5pm2lj20qo1bfwn5.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3978091938410731" target="freeweibo-mirror">SPAM 收了睡觉看</a>
 </h2>
 <p>SPAM 收了睡觉看<br><br>RE: http://t.cn/R570B84 【我爱着哥哥，可哥哥和嫂子作乐夜^_^.夜不关门，我在隔壁房间饱受煎熬，终于有一天忍不住闯了进去……】</p>
@@ -65,7 +71,7 @@
 </h2>
 <p>看评论真是可怕。 //@王甫律师:这几年这个国家的政治越来越像是一场拙劣的喜剧，一群满脸横肉的家伙，花样翻新地表演者各种杂耍。他们似乎不明白一个浅显的道理：真理和真相可以穿透任何恐惧，直达人心。<br><br>RE: 大学课堂里设“便衣巡视员”，是对教师职业的终极侮辱。你可以不提高大学教师的工资待遇，也可以逼着大学教师发文章、评职称、争课题，但无论如何，你不能像特务一样监控他们在讲台上说了些什么。我实在无法想象，在这样的教育体制下，如何能建成所谓的“世界一流大学”。</p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3978063538068086" target="freeweibo-mirror">//@博者文摘:转发微博</a>
 </h2>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3978040922998670" target="freeweibo-mirror">//@JiWeiweiiii:干点实事，别一天到晚讲道理</a>
 </h2>
 <p>//@JiWeiweiiii:干点实事，别一天到晚讲道理<br><br>RE: 【让群众在公安执法中感到正义】每次看到这一个“让”字，我总能看到权势者那种高高在上的派头，总能看到那种对民众不屑一顾的轻蔑的眼神。这个“让”仿佛是一种恩赐、一种怜悯、一种予夺予取，一种为所欲为。殊不知这种享受公平正义本身就应该是民主应该拥有的权力，这是天然权力，任何人无权剥夺。<br><img src="http://ww4.sinaimg.cn/large/005M7QzIjw1f426q5e9m6j30sp0ht0yb.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3978036318147759" target="freeweibo-mirror">戚本禹对特色领袖邓小平的评价</a>
-</h2>
-<p>戚本禹对特色领袖邓小平的评价<br><img src="http://ww1.sinaimg.cn/large/d65de563jw1f44g8pr5rqj20dc0m80w0.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
