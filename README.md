@@ -19,6 +19,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3978282401687605" target="freeweibo-mirror">雷洋案不应该被淡忘，此案性质极其恶劣。不亚于当年的孙志刚案。…</a>
+</h2>
+<p>雷洋案不应该被淡忘，此案性质极其恶劣。不亚于当年的孙志刚案。可惜，最好的时代过去了，那是媒体的黄金时代，由媒体发布议程设置，律师和社会精英形成舆论合力，便足以推动法制的微小进步。弹指不过几年，神州大陆已经：萧瑟秋风今又是，换了人间。<br><br>RE: 【雷洋案成了敏感词？】你们天天删帖，是遏制言论自由？还是我们的言论危害社会？删帖背后的利益集团之手！<br><img src="http://ww3.sinaimg.cn/large/6f3dc6ddjw1f457p7p9gjj20qo1bg46n.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3978251095086367" target="freeweibo-mirror">//@小种闯天涯:</a>
 </h2>
 <p>//@小种闯天涯:<br><br>RE: 孩子就地受教育的权利是绝对权利！在美国，哪怕是非法移民的孩子，照样平等上学。咱们海南岛的孩子去隔壁越南上学，照收不误，还给免费午餐。试图以扼杀儿童的权利控制超大城市人口，是人类千年未有之恶政。【京漂家长为孩子上学昌平自焚致全身80%重伤】</p>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3978080681089768" target="freeweibo-mirror">【雷洋父母看完遗体后，为何当场给尸检证人下跪？】，分享给你，…</a>
 </h2>
 <p>【雷洋父母看完遗体后，为何当场给尸检证人下跪？】，分享给你，快来看！ http://t.cn/R57pwKJ<br><img src="http://ww1.sinaimg.cn/large/a2e5ebb3jw1f44ld6ynzpj20go0go0v8.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3978079540195716" target="freeweibo-mirror">SPAM 关注祈愿信箱，每晚陪你一起入睡</a>
-</h2>
-<p>SPAM 关注祈愿信箱，每晚陪你一起入睡</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
