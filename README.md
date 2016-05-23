@@ -23,7 +23,7 @@
 </h2>
 <p>SPAM 一国一制多好，选啊！//@IB林立人: //@干卫东律师://@发明人沈保民:一十三亿八仟万//@信周:一国一制就把大陆给制住了//@尘世之言: 球过来了下一步怎么踢？//@Docter-李://@瞽聋: [赞]//@真的回头A: //@雷豐俠:[给力][给力][给力]<br><br>RE: 新官上任三把火[嘻嘻]<br><img src="http://ww3.sinaimg.cn/large/006qPhabgw1f4546cbba5j30go0b4q41.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3978296147025362" target="freeweibo-mirror">教育公平</a>
 </h2>
