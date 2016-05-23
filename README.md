@@ -103,6 +103,12 @@
 <p>
 	<small> ============== 1天前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3978080681089768" target="freeweibo-mirror">【雷洋父母看完遗体后，为何当场给尸检证人下跪？】，分享给你，…</a>
+</h2>
+<p>【雷洋父母看完遗体后，为何当场给尸检证人下跪？】，分享给你，快来看！ http://t.cn/R57pwKJ<br><img src="http://ww1.sinaimg.cn/large/a2e5ebb3jw1f44ld6ynzpj20go0go0v8.jpg"></p>
+<p>
+	<small> ============== 1天前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3978079540195716" target="freeweibo-mirror">SPAM 关注祈愿信箱，每晚陪你一起入睡</a>
 </h2>
 <p>SPAM 关注祈愿信箱，每晚陪你一起入睡</p>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3978063538068086" target="freeweibo-mirror">//@博者文摘:转发微博</a>
 </h2>
 <p>//@博者文摘:转发微博<br><br>RE: 【让群众在公安执法中感到正义】每次看到这一个“让”字，我总能看到权势者那种高高在上的派头，总能看到那种对民众不屑一顾的轻蔑的眼神。这个“让”仿佛是一种恩赐、一种怜悯、一种予夺予取，一种为所欲为。殊不知这种享受公平正义本身就应该是民主应该拥有的权力，这是天然权力，任何人无权剥夺。<br><img src="http://ww4.sinaimg.cn/large/005M7QzIjw1f426q5e9m6j30sp0ht0yb.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3978062448800212" target="freeweibo-mirror">//@小贝的真妮花://@被淹死的鲔鱼:初中生理解起來有點喫…</a>
-</h2>
-<p>//@小贝的真妮花://@被淹死的鲔鱼:初中生理解起來有點喫力，不怕[挖鼻]//@言非语2015:去掉“当时”二字，意思大相径庭。谁有这样大的胆子？<br><br>RE: 【研子微语】※※毛左头挖坑 一群毛左跟！※※习近，平原话：如果当时否定毛泽东，天下会打乱，结果变“如果否定毛泽东天下会大乱。”@一毛障目 @毛派必胜16 @被淹死的鲔鱼 @腾讯净莲 @紧爷的菜园子 @老豆还要来33 @文理科2112 @老陈师傅 @小贝的真妮花 @真话哥 @霜葉15s_ http://t.cn/RyhYRYF<br><img src="http://ww2.sinaimg.cn/large/006rbfrXgw1f43jzv0189j30cl08cjrp.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
