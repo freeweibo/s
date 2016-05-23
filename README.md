@@ -95,7 +95,7 @@
 </h2>
 <p>新官上任三把火[嘻嘻]<br><img src="http://ww3.sinaimg.cn/large/006qPhabgw1f4546cbba5j30go0b4q41.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3978242576491430" target="freeweibo-mirror">中国人的智慧是逼出来的：民工在江西高院门前集体抄写党章讨薪……</a>
 </h2>
