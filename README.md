@@ -37,6 +37,18 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3978242576491430" target="freeweibo-mirror">中国人的智慧是逼出来的：民工在江西高院门前集体抄写党章讨薪……</a>
+</h2>
+<p>中国人的智慧是逼出来的：民工在江西高院门前集体抄写党章讨薪……[思考]<br><img src="http://ww3.sinaimg.cn/large/006eBu5Vgw1f453x7uvnpj30nq0hs42v.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3978237137331518" target="freeweibo-mirror">孩子就地受教育的权利是绝对权利！在美国，哪怕是非法移民的孩子…</a>
+</h2>
+<p>孩子就地受教育的权利是绝对权利！在美国，哪怕是非法移民的孩子，照样平等上学。咱们海南岛的孩子去隔壁越南上学，照收不误，还给免费午餐。试图以扼杀儿童的权利控制超大城市人口，是人类千年未有之恶政。【京漂家长为孩子上学昌平自焚致全身80%重伤】</p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3978236805521031" target="freeweibo-mirror">SPAM 哈哈哈 //@阿子:哈哈哈//@magasa:环球…</a>
 </h2>
 <p>SPAM 哈哈哈 //@阿子:哈哈哈//@magasa:环球时报已经有解释了，因为发熊猫卖萌，所以粉丝多，不要大惊小怪。<br><br>RE: 原来是用外汇买的粉...<br><img src="http://ww3.sinaimg.cn/large/697c1dc3gw1f44ypbzr0yj212a1n64d9.jpg"></p>
@@ -65,7 +77,7 @@
 </h2>
 <p>又在歪曲煽动。我国法律本就赋予尸检过程中家属可以在场的权利，需要家属找这位尸检证人“求情”才能进去吗？嗯，尸检结果还没出来，但只要家属一下跪，就等于“公权力”有问题。事实上，不管真冤假冤，下跪的家属并不少。 http://t.cn/R573wOm //@吕吕-吕:上了热搜，评论才36？<br><br>RE: 【雷洋父母看完遗体后，为何当场给尸检证人下跪？】，分享给你，快来看！ http://t.cn/R57pwKJ<br><img src="http://ww1.sinaimg.cn/large/a2e5ebb3jw1f44ld6ynzpj20go0go0v8.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3978201732217039" target="freeweibo-mirror">SPAM 八九</a>
 </h2>
@@ -76,6 +88,12 @@
 	<a href="https://freeweibo.com/weibo/3978198473206671" target="freeweibo-mirror">不在伊斯兰教尚处弱小的状态下把它镇压住，中华民族将来要付出更…</a>
 </h2>
 <p>不在伊斯兰教尚处弱小的状态下把它镇压住，中华民族将来要付出更大的代价。<br><br>RE: 【沙甸禁酒是否涉嫌违反国家法律】近些年来，云南沙甸是人们关注的热点地区之一。关于沙甸禁酒事件，成为网民讨论的话题之一。为迎接“清洁的斋月”沙甸穆斯林组成禁酒小组，进入非穆斯林家庭，搜查并没收违反伊斯兰教法的“物品”。据称，禁酒小组将“屡教不改”者赶出沙甸。沙甸禁酒涉及公民基本权利...全文： http://m.weibo.cn/1442246695/3977712676986365<br><img src="http://ww4.sinaimg.cn/large/55f6f027jw1f43f1jcr7oj2085064gly.jpg"></p>
+<p>
+	<small> ============== 5小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3978196845795416" target="freeweibo-mirror">原来是用外汇买的粉...</a>
+</h2>
+<p>原来是用外汇买的粉...<br><img src="http://ww3.sinaimg.cn/large/697c1dc3gw1f44ypbzr0yj212a1n64d9.jpg"></p>
 <p>
 	<small> ============== 5小时前</small>
 </p><h2>
@@ -118,24 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3978078273400554" target="freeweibo-mirror">SPAM 一个专为夜猫提供的暖心夜刊！失眠读物微X1n: s…</a>
 </h2>
 <p>SPAM 一个专为夜猫提供的暖心夜刊！失眠读物微X1n: shimianduwu</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3978072347196837" target="freeweibo-mirror">SPAM 不定期有红 包 哦！</a>
-</h2>
-<p>SPAM 不定期有红 包 哦！</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3978065194977195" target="freeweibo-mirror">看评论真是可怕。 //@王甫律师:这几年这个国家的政治越来越…</a>
-</h2>
-<p>看评论真是可怕。 //@王甫律师:这几年这个国家的政治越来越像是一场拙劣的喜剧，一群满脸横肉的家伙，花样翻新地表演者各种杂耍。他们似乎不明白一个浅显的道理：真理和真相可以穿透任何恐惧，直达人心。<br><br>RE: 大学课堂里设“便衣巡视员”，是对教师职业的终极侮辱。你可以不提高大学教师的工资待遇，也可以逼着大学教师发文章、评职称、争课题，但无论如何，你不能像特务一样监控他们在讲台上说了些什么。我实在无法想象，在这样的教育体制下，如何能建成所谓的“世界一流大学”。</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3978063538068086" target="freeweibo-mirror">//@博者文摘:转发微博</a>
-</h2>
-<p>//@博者文摘:转发微博<br><br>RE: 【让群众在公安执法中感到正义】每次看到这一个“让”字，我总能看到权势者那种高高在上的派头，总能看到那种对民众不屑一顾的轻蔑的眼神。这个“让”仿佛是一种恩赐、一种怜悯、一种予夺予取，一种为所欲为。殊不知这种享受公平正义本身就应该是民主应该拥有的权力，这是天然权力，任何人无权剥夺。<br><img src="http://ww4.sinaimg.cn/large/005M7QzIjw1f426q5e9m6j30sp0ht0yb.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
