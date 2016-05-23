@@ -47,7 +47,7 @@
 </h2>
 <p>因为关注雷洋案，关注709律师被抓案，不断发声的崔小平律师被封号了，小号为@崔小平_律师 请大家关注并转发。</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3978296147025362" target="freeweibo-mirror">教育公平</a>
 </h2>
