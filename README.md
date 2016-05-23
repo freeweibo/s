@@ -55,6 +55,12 @@
 <p>
 	<small> ============== 6小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3978300684426948" target="freeweibo-mirror">#遇害民警张际勇妻子#</a>
+</h2>
+<p>#遇害民警张际勇妻子#<br><img src="http://ww1.sinaimg.cn/large/4d626bcdgw1f45aloleodj20qo1bfwk3.jpg"></p>
+<p>
+	<small> ============== 6小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3978300512930957" target="freeweibo-mirror">因为关注雷洋案，关注709律师被抓案，不断发声的崔小平律师被…</a>
 </h2>
 <p>因为关注雷洋案，关注709律师被抓案，不断发声的崔小平律师被封号了，小号为@崔小平_律师 请大家关注并转发。</p>
@@ -89,7 +95,7 @@
 </h2>
 <p>雷洋案不应该被淡忘，此案性质极其恶劣。不亚于当年的孙志刚案。可惜，最好的时代过去了，那是媒体的黄金时代，由媒体发布议程设置，律师和社会精英形成舆论合力，便足以推动法制的微小进步。弹指不过几年，神州大陆已经：萧瑟秋风今又是，换了人间。<br><br>RE: 【雷洋案成了敏感词？】你们天天删帖，是遏制言论自由？还是我们的言论危害社会？删帖背后的利益集团之手！<br><img src="http://ww3.sinaimg.cn/large/6f3dc6ddjw1f457p7p9gjj20qo1bg46n.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3978276793959162" target="freeweibo-mirror">【雷洋案成了敏感词？】你们天天删帖，是遏制言论自由？还是我们…</a>
 </h2>
@@ -107,7 +113,7 @@
 </h2>
 <p>//@小种闯天涯:<br><br>RE: 孩子就地受教育的权利是绝对权利！在美国，哪怕是非法移民的孩子，照样平等上学。咱们海南岛的孩子去隔壁越南上学，照收不误，还给免费午餐。试图以扼杀儿童的权利控制超大城市人口，是人类千年未有之恶政。【京漂家长为孩子上学昌平自焚致全身80%重伤】</p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3978250579180443" target="freeweibo-mirror">SPAM 【深圳：大批旅客因专项行动滞留海关查验区域 有人打…</a>
 </h2>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3978242576491430" target="freeweibo-mirror">中国人的智慧是逼出来的：民工在江西高院门前集体抄写党章讨薪……</a>
 </h2>
 <p>中国人的智慧是逼出来的：民工在江西高院门前集体抄写党章讨薪……[思考]<br><img src="http://ww3.sinaimg.cn/large/006eBu5Vgw1f453x7uvnpj30nq0hs42v.jpg"></p>
-<p>
-	<small> ============== 10小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3978237137331518" target="freeweibo-mirror">孩子就地受教育的权利是绝对权利！在美国，哪怕是非法移民的孩子…</a>
-</h2>
-<p>孩子就地受教育的权利是绝对权利！在美国，哪怕是非法移民的孩子，照样平等上学。咱们海南岛的孩子去隔壁越南上学，照收不误，还给免费午餐。试图以扼杀儿童的权利控制超大城市人口，是人类千年未有之恶政。【京漂家长为孩子上学昌平自焚致全身80%重伤】</p>
 <p>
 	<small> ============== 10小时前</small>
 </p>
