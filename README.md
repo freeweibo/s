@@ -113,7 +113,7 @@
 </h2>
 <p>SPAM 今天更新的内容：1️⃣华丽战绩太过耀眼，但别忘了他们并不完美！2️⃣“五大”对抗“五小”？下赛季的76人将逆天改命？3️⃣十大三号球衣球星：答案韦德谁第一？<br><img src="http://ww2.sinaimg.cn/large/90f58663jw1f44hb0e2fqj20ku112wjb.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3978041908096272" target="freeweibo-mirror">不可怜，富裕之后是要民主的，但没富裕时扯淡民主就很无聊了，那…</a>
 </h2>
