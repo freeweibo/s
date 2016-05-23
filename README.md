@@ -23,7 +23,7 @@
 </h2>
 <p>SPAM //@忘却纪念:[吃惊]//@LoveTrust哩: //@暱名用戶-17: //@国际时事军事评论员吴戈://@你让我听见花开: 全世界转着圈地丢人，你以为别人都傻吗？你才是撒比！ //@大漠零清: //@刘力博士://@無果花0001:撒币多 //@面朝大海_200410:邪教//@北马南山:卧巢，僵尸粉还要出国买啊？！[衰]<br><br>RE: 原来是用外汇买的粉...<br><img src="http://ww3.sinaimg.cn/large/697c1dc3gw1f44ypbzr0yj212a1n64d9.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3978217184202614" target="freeweibo-mirror">//@李方平律师: 如果这就是“深改”，我是醉了！</a>
 </h2>
@@ -47,7 +47,7 @@
 </h2>
 <p>SPAM 收了睡觉看<br><br>RE: http://t.cn/R570B84 【我爱着哥哥，可哥哥和嫂子作乐夜^_^.夜不关门，我在隔壁房间饱受煎熬，终于有一天忍不住闯了进去……】</p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3978088788724563" target="freeweibo-mirror">http://t.cn/R570B84 【我爱着哥哥，可哥哥…</a>
 </h2>
