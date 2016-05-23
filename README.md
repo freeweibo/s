@@ -43,6 +43,12 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3978423493771238" target="freeweibo-mirror">网友爆料，昨天，昌平区有非京籍儿童家长因孩子上学问题自焚，现…</a>
+</h2>
+<p>网友爆料，昨天，昌平区有非京籍儿童家长因孩子上学问题自焚，现在积水潭医院烧伤科。据称，因为租房税的日期滞后，孩子不符合入学要求，两口子... http://t.cn/R5zgQM7 http://t.cn/R2WJNJt<br><img src="http://ww3.sinaimg.cn/large/6534405djw1f45oqk5r1uj20hs0kv75z.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3978421794851146" target="freeweibo-mirror">SPAM 今日好文推荐[爱你]</a>
 </h2>
 <p>SPAM 今日好文推荐[爱你]<br><img src="http://ww4.sinaimg.cn/large/8d5c03a7jw1f45ojk9bjhj20ku112jwo.jpg"></p>
@@ -132,12 +138,6 @@
 <p>SPAM 看最后一图，兴化市的上级，泰兴市检察院已介入。http://t.cn/R5zaOPE；http://t.cn/R5zouON；http://t.cn/R5zosWO； http://t.cn/R5zNYUJ //@I-Design修罗蓝:<br><br>RE: #遇害民警张际勇妻子#<br><img src="http://ww1.sinaimg.cn/large/4d626bcdgw1f45aloleodj20qo1bfwk3.jpg"></p>
 <p>
 	<small> ============== 6小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3978351125802255" target="freeweibo-mirror">【好 文 分 享】1、当你被关进精神病院，如何证明自己不是精…</a>
-</h2>
-<p>【好 文 分 享】1、当你被关进精神病院，如何证明自己不是精神病？2、雷 洋的文笔才情！看哭了所有人。3、不扔原子弹日本也会投降吗？4、真实的以色列，太可怕 了！5、北大发布全国最好医院排名，关键时刻救命。6、一个披着资本主义外衣的真正共产主义国家，惊呆了！更 多精彩请添加关注：zhebsls<br><img src="http://ww3.sinaimg.cn/large/9647a31ejw1f45gfdx6lvj20ku112dig.jpg"></p>
-<p>
-	<small> ============== 7小时前</small>
 </p>
 <table>
     <tr>
