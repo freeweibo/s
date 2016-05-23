@@ -23,7 +23,7 @@
 </h2>
 <p>SPAM 猪鼻一变[猪头]  迷倒一片[爱你]</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3978426703049891" target="freeweibo-mirror">SPAM [怒][怒]救救孩子</a>
 </h2>
@@ -70,6 +70,12 @@
 	<a href="https://freeweibo.com/weibo/3978408059132477" target="freeweibo-mirror">SPAM 我们一块读书吧的卫星号“乐读会”（Enjoying…</a>
 </h2>
 <p>SPAM 我们一块读书吧的卫星号“乐读会”（Enjoyingbooks）每天都会有精彩推送哦！精彩不容错过，快来关注吧！今天的内容有：【书单】如果你也是东野圭吾迷，【品读】三毛：她并不算优雅的女人，但她值得被爱，【红袖添香夜读书】第70期：沙漏私语<br><img src="http://ww4.sinaimg.cn/large/9dbd2e69gw1f45myqs2svj20j60wg0u1.jpg"></p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3978404770446151" target="freeweibo-mirror">这些消息哪来的？</a>
+</h2>
+<p>这些消息哪来的？<br><br>RE: 民进党上台三天，一天一个动作！520,蔡英文就职演说提出九二事实，而非九二共识。521,蔡英文发布致大陆同胞书，发布其大陆态度，呼吁大陆推进民主自由，正视历史正视1912年成立的中华民国。522,民进党发表“一国一制”主张，倡导多党普选统一中国，否认未经过全民普选上台的大陆政权对中国的统治权。</p>
 <p>
 	<small> ============== 4小时前</small>
 </p><h2>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3978366736387268" target="freeweibo-mirror">SPAM 更正：兴化市的上级，泰州市。//@辟谣与真相:看最…</a>
 </h2>
 <p>SPAM 更正：兴化市的上级，泰州市。//@辟谣与真相:看最后一图，兴化市的上级，泰兴市检察院已介入。http://t.cn/R5zaOPE；http://t.cn/R5zouON；http://t.cn/R5zosWO； http://t.cn/R5zNYUJ //@I-Design修罗蓝:<br><br>RE: #遇害民警张际勇妻子#<br><img src="http://ww1.sinaimg.cn/large/4d626bcdgw1f45aloleodj20qo1bfwk3.jpg"></p>
-<p>
-	<small> ============== 7小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3978366069184304" target="freeweibo-mirror">SPAM -l、//@张三条1961:文明一定战胜野蛮·这是…</a>
-</h2>
-<p>SPAM -l、//@张三条1961:文明一定战胜野蛮·这是【毋庸置疑】的。。。。。。[拳头][拳头][拳头]<br><br>RE: 常言道「男人再硬，女人都能搞得定。」不信可以放馬過來嘛！<br><img src="http://ww4.sinaimg.cn/large/006eJXXsgw1f44nnfzbg4j30kd0hm42f.jpg"></p>
 <p>
 	<small> ============== 7小时前</small>
 </p>
