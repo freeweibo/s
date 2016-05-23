@@ -19,6 +19,18 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3978251095086367" target="freeweibo-mirror">//@小种闯天涯:</a>
+</h2>
+<p>//@小种闯天涯:<br><br>RE: 孩子就地受教育的权利是绝对权利！在美国，哪怕是非法移民的孩子，照样平等上学。咱们海南岛的孩子去隔壁越南上学，照收不误，还给免费午餐。试图以扼杀儿童的权利控制超大城市人口，是人类千年未有之恶政。【京漂家长为孩子上学昌平自焚致全身80%重伤】</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3978250579180443" target="freeweibo-mirror">SPAM 【深圳：大批旅客因专项行动滞留海关查验区域 有人打…</a>
+</h2>
+<p>SPAM 【深圳：大批旅客因专项行动滞留海关查验区域 有人打伤警察】22日，从福田口岸入境的旅客有6.2万多人，下午3点开始，海关开始专项行动，入境速度变得十分缓慢，有大批旅客滞留在海关查验区域。有旅客情绪激动，打伤了现场维持秩序的边检民警。http://t.cn/R57103p http://t.cn/R5759wh<br><img src="http://ww4.sinaimg.cn/large/77101dc1jw1f452ub0fl0j20dw0ecgn0.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3978228374527248" target="freeweibo-mirror">SPAM //@忘却纪念:[吃惊]//@LoveTrust哩…</a>
 </h2>
 <p>SPAM //@忘却纪念:[吃惊]//@LoveTrust哩: //@暱名用戶-17: //@国际时事军事评论员吴戈://@你让我听见花开: 全世界转着圈地丢人，你以为别人都傻吗？你才是撒比！ //@大漠零清: //@刘力博士://@無果花0001:撒币多 //@面朝大海_200410:邪教//@北马南山:卧巢，僵尸粉还要出国买啊？！[衰]<br><br>RE: 原来是用外汇买的粉...<br><img src="http://ww3.sinaimg.cn/large/697c1dc3gw1f44ypbzr0yj212a1n64d9.jpg"></p>
@@ -35,7 +47,7 @@
 </h2>
 <p>SPAM 八九<br><br>RE: 这些救人的英雄！他们在哪里？有人认识他们吗？  一起寻找他们！<br><img src="http://ww2.sinaimg.cn/large/006tcLkSgw1f44h7ahop0j30dr09cdg7.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3978198473206671" target="freeweibo-mirror">不在伊斯兰教尚处弱小的状态下把它镇压住，中华民族将来要付出更…</a>
 </h2>
@@ -124,18 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3978049349817182" target="freeweibo-mirror">听说过一个词，音译“盖世太保”。 //@一品泥人:[草泥马]…</a>
 </h2>
 <p>听说过一个词，音译“盖世太保”。 //@一品泥人:[草泥马]//@LifeTime: 是时候上“意识形态”警察了。 [瞧瞧]<br><br>RE: 大学课堂里设“便衣巡视员”，是对教师职业的终极侮辱。你可以不提高大学教师的工资待遇，也可以逼着大学教师发文章、评职称、争课题，但无论如何，你不能像特务一样监控他们在讲台上说了些什么。我实在无法想象，在这样的教育体制下，如何能建成所谓的“世界一流大学”。</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3978047886020462" target="freeweibo-mirror">[草泥马]//@LifeTime: 是时候上“意识形态”警察…</a>
-</h2>
-<p>[草泥马]//@LifeTime: 是时候上“意识形态”警察了。 [瞧瞧]<br><br>RE: 大学课堂里设“便衣巡视员”，是对教师职业的终极侮辱。你可以不提高大学教师的工资待遇，也可以逼着大学教师发文章、评职称、争课题，但无论如何，你不能像特务一样监控他们在讲台上说了些什么。我实在无法想象，在这样的教育体制下，如何能建成所谓的“世界一流大学”。</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3978045700409857" target="freeweibo-mirror">SPAM 今天更新的内容：1️⃣华丽战绩太过耀眼，但别忘了他…</a>
-</h2>
-<p>SPAM 今天更新的内容：1️⃣华丽战绩太过耀眼，但别忘了他们并不完美！2️⃣“五大”对抗“五小”？下赛季的76人将逆天改命？3️⃣十大三号球衣球星：答案韦德谁第一？<br><img src="http://ww2.sinaimg.cn/large/90f58663jw1f44hb0e2fqj20ku112wjb.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
