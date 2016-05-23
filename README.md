@@ -23,7 +23,7 @@
 </h2>
 <p>SPAM 几度风雨几度春秋……<br><br>RE: #遇害民警张际勇妻子#<br><img src="http://ww1.sinaimg.cn/large/4d626bcdgw1f45aloleodj20qo1bfwk3.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3978374470491524" target="freeweibo-mirror">//@mixivivo: //@L-Cabot: //@青鲤…</a>
 </h2>
@@ -37,6 +37,12 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3978363658506175" target="freeweibo-mirror">这是警察的遭遇，一个交警总不反动不推墙吧 而雷洋也算事业单位…</a>
+</h2>
+<p>这是警察的遭遇，一个交警总不反动不推墙吧 而雷洋也算事业单位。那些把空头政治看得比一个人生命一家人幸福更高的，是些什么人？<br><br>RE: #遇害民警张际勇妻子#<br><img src="http://ww1.sinaimg.cn/large/4d626bcdgw1f45aloleodj20qo1bfwk3.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3978351125802255" target="freeweibo-mirror">【好 文 分 享】1、当你被关进精神病院，如何证明自己不是精…</a>
 </h2>
 <p>【好 文 分 享】1、当你被关进精神病院，如何证明自己不是精神病？2、雷 洋的文笔才情！看哭了所有人。3、不扔原子弹日本也会投降吗？4、真实的以色列，太可怕 了！5、北大发布全国最好医院排名，关键时刻救命。6、一个披着资本主义外衣的真正共产主义国家，惊呆了！更 多精彩请添加关注：zhebsls<br><img src="http://ww3.sinaimg.cn/large/9647a31ejw1f45gfdx6lvj20ku112dig.jpg"></p>
@@ -46,6 +52,24 @@
 	<a href="https://freeweibo.com/weibo/3978335623361239" target="freeweibo-mirror">炒作洞房抄党章的后遗症……执法部门反思一下吧，//@椒江叶S…</a>
 </h2>
 <p>炒作洞房抄党章的后遗症……执法部门反思一下吧，//@椒江叶Sir:网上网下有组织联动，配合推进。//@牛哥吐槽: 资本，后面果然都在赶趟！  http://t.cn/R5zGqk5  //@雷文山://@唯有云梦://@司马平邦:</p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3978335296414041" target="freeweibo-mirror">问：@平安江苏 @平安泰州 @平安兴化 :张警官会游泳吗？水…</a>
+</h2>
+<p>问：@平安江苏 @平安泰州 @平安兴化 :张警官会游泳吗？水乡的警察有几个旱鸭子？上班途中溺水，居然敢在上班途中去河里？//@黄奎ART://@小道信息://@针叶林2: //@帐号_异常://@哲魔者: 转发微博<br><br>RE: #遇害民警张际勇妻子#<br><img src="http://ww1.sinaimg.cn/large/4d626bcdgw1f45aloleodj20qo1bfwk3.jpg"></p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3978334062578226" target="freeweibo-mirror">张警官会游泳吗？水乡的警察有几个旱鸭子？上班途中溺水，居然敢…</a>
+</h2>
+<p>张警官会游泳吗？水乡的警察有几个旱鸭子？上班途中溺水，居然敢在上班途中去河里？//@黄奎ART://@小道信息://@针叶林2: //@帐号_异常://@哲魔者: 转发微博<br><br>RE: #遇害民警张际勇妻子#<br><img src="http://ww1.sinaimg.cn/large/4d626bcdgw1f45aloleodj20qo1bfwk3.jpg"></p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3978333576074625" target="freeweibo-mirror">1之前说的他死前被暴打,颈部被勒,双手反绑过.这些在尸检中是…</a>
+</h2>
+<p>1之前说的他死前被暴打,颈部被勒,双手反绑过.这些在尸检中是否验出?2现在为何又提出之前从未提及的被下毒说法?3@平安兴化 应就家属关注的扣贩毒车一事做情况通报～<br><br>RE: #遇害民警张际勇妻子#<br><img src="http://ww1.sinaimg.cn/large/4d626bcdgw1f45aloleodj20qo1bfwk3.jpg"></p>
 <p>
 	<small> ============== 4小时前</small>
 </p><h2>
@@ -71,13 +95,13 @@
 </h2>
 <p>#遇害民警张际勇妻子#<br><img src="http://ww1.sinaimg.cn/large/4d626bcdgw1f45aloleodj20qo1bfwk3.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3978300512930957" target="freeweibo-mirror">因为关注雷洋案，关注709律师被抓案，不断发声的崔小平律师被…</a>
 </h2>
 <p>因为关注雷洋案，关注709律师被抓案，不断发声的崔小平律师被封号了，小号为@崔小平_律师 请大家关注并转发。</p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3978296147025362" target="freeweibo-mirror">教育公平</a>
 </h2>
@@ -114,30 +138,6 @@
 <p>【雷洋案成了敏感词？】你们天天删帖，是遏制言论自由？还是我们的言论危害社会？删帖背后的利益集团之手！<br><img src="http://ww3.sinaimg.cn/large/6f3dc6ddjw1f457p7p9gjj20qo1bg46n.jpg"></p>
 <p>
 	<small> ============== 8小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3978275652575929" target="freeweibo-mirror">//@一个老实人V: //@法律人冯岩://@萧迪居04: …</a>
-</h2>
-<p>//@一个老实人V: //@法律人冯岩://@萧迪居04: //@cqyzs转世寻友: //@天涯云梦3://@老杜微评: //@徐旭://@-李蒙:转发微博</p>
-<p>
-	<small> ============== 8小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3978251095086367" target="freeweibo-mirror">//@小种闯天涯:</a>
-</h2>
-<p>//@小种闯天涯:<br><br>RE: 孩子就地受教育的权利是绝对权利！在美国，哪怕是非法移民的孩子，照样平等上学。咱们海南岛的孩子去隔壁越南上学，照收不误，还给免费午餐。试图以扼杀儿童的权利控制超大城市人口，是人类千年未有之恶政。【京漂家长为孩子上学昌平自焚致全身80%重伤】</p>
-<p>
-	<small> ============== 10小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3978250579180443" target="freeweibo-mirror">SPAM 【深圳：大批旅客因专项行动滞留海关查验区域 有人打…</a>
-</h2>
-<p>SPAM 【深圳：大批旅客因专项行动滞留海关查验区域 有人打伤警察】22日，从福田口岸入境的旅客有6.2万多人，下午3点开始，海关开始专项行动，入境速度变得十分缓慢，有大批旅客滞留在海关查验区域。有旅客情绪激动，打伤了现场维持秩序的边检民警。http://t.cn/R57103p http://t.cn/R5759wh<br><img src="http://ww4.sinaimg.cn/large/77101dc1jw1f452ub0fl0j20dw0ecgn0.jpg"></p>
-<p>
-	<small> ============== 10小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3978250549618088" target="freeweibo-mirror">//@践行者Harry://@摸着良心观社会:一种建立在光辉…</a>
-</h2>
-<p>//@践行者Harry://@摸着良心观社会:一种建立在光辉党章下的无奈讨薪路<br><br>RE: 中国人的智慧是逼出来的：民工在江西高院门前集体抄写党章讨薪……[思考]<br><img src="http://ww3.sinaimg.cn/large/006eBu5Vgw1f453x7uvnpj30nq0hs42v.jpg"></p>
-<p>
-	<small> ============== 10小时前</small>
 </p>
 <table>
     <tr>
