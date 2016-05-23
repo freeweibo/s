@@ -25,6 +25,12 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3978201732217039" target="freeweibo-mirror">SPAM 八九</a>
+</h2>
+<p>SPAM 八九<br><br>RE: 这些救人的英雄！他们在哪里？有人认识他们吗？  一起寻找他们！<br><img src="http://ww2.sinaimg.cn/large/006tcLkSgw1f44h7ahop0j30dr09cdg7.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3978091938410731" target="freeweibo-mirror">SPAM 收了睡觉看</a>
 </h2>
 <p>SPAM 收了睡觉看<br><br>RE: http://t.cn/R570B84 【我爱着哥哥，可哥哥和嫂子作乐夜^_^.夜不关门，我在隔壁房间饱受煎熬，终于有一天忍不住闯了进去……】</p>
@@ -65,13 +71,13 @@
 </h2>
 <p>SPAM 不定期有红 包 哦！</p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3978065194977195" target="freeweibo-mirror">看评论真是可怕。 //@王甫律师:这几年这个国家的政治越来越…</a>
 </h2>
 <p>看评论真是可怕。 //@王甫律师:这几年这个国家的政治越来越像是一场拙劣的喜剧，一群满脸横肉的家伙，花样翻新地表演者各种杂耍。他们似乎不明白一个浅显的道理：真理和真相可以穿透任何恐惧，直达人心。<br><br>RE: 大学课堂里设“便衣巡视员”，是对教师职业的终极侮辱。你可以不提高大学教师的工资待遇，也可以逼着大学教师发文章、评职称、争课题，但无论如何，你不能像特务一样监控他们在讲台上说了些什么。我实在无法想象，在这样的教育体制下，如何能建成所谓的“世界一流大学”。</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3978063538068086" target="freeweibo-mirror">//@博者文摘:转发微博</a>
 </h2>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3978041074110895" target="freeweibo-mirror">//@西边的太阳快落山:你懂的太多了</a>
 </h2>
 <p>//@西边的太阳快落山:你懂的太多了<br><br>RE: 绝不搞西方那一套，西方那一套究竟是什么？ 你们不敢说。西方那一套是:1新闻自由。 你们不敢搞，因为害怕人民监督。2官员财产公开。你们不敢搞，因为害怕腐败曝光。3一人一票，你们不敢搞，因为害怕人民不选你们。4司法独立,你们不敢搞，因为害怕被审判 5军队国家化，你们不敢搞，没了鹰犬，谁会怕你<br><img src="http://ww3.sinaimg.cn/large/006tBkjEjw1f43vrrvjfej30jm0d640j.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3978040922998670" target="freeweibo-mirror">//@JiWeiweiiii:干点实事，别一天到晚讲道理</a>
-</h2>
-<p>//@JiWeiweiiii:干点实事，别一天到晚讲道理<br><br>RE: 【让群众在公安执法中感到正义】每次看到这一个“让”字，我总能看到权势者那种高高在上的派头，总能看到那种对民众不屑一顾的轻蔑的眼神。这个“让”仿佛是一种恩赐、一种怜悯、一种予夺予取，一种为所欲为。殊不知这种享受公平正义本身就应该是民主应该拥有的权力，这是天然权力，任何人无权剥夺。<br><img src="http://ww4.sinaimg.cn/large/005M7QzIjw1f426q5e9m6j30sp0ht0yb.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
