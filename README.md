@@ -19,6 +19,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3978379055701563" target="freeweibo-mirror">SPAM 执法记录仪又没了。//@蚍蜉种树:转发一下受害者家…</a>
+</h2>
+<p>SPAM 执法记录仪又没了。//@蚍蜉种树:转发一下受害者家属的话，不评论她的无证据猜测。这件事很糟糕的一点是：执法记录仪又没了。<br><br>RE: #遇害民警张际勇妻子#<br><img src="http://ww1.sinaimg.cn/large/4d626bcdgw1f45aloleodj20qo1bfwk3.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3978375687316133" target="freeweibo-mirror">SPAM 几度风雨几度春秋……</a>
 </h2>
 <p>SPAM 几度风雨几度春秋……<br><br>RE: #遇害民警张际勇妻子#<br><img src="http://ww1.sinaimg.cn/large/4d626bcdgw1f45aloleodj20qo1bfwk3.jpg"></p>
@@ -36,6 +42,12 @@
 <p>SPAM  @段郎说事//@夏循祥_子游肥爹:我国人民要有大心脏//@宪阁微观: 上午好像还没加v。//@凯雷: 看呆了，帮帮这个泰州警察。@传说中的女网警 @Kampfer_ruc   //@喜之郎0723:这下事情有一个清晰的脉络了，@郑维 @我是西蒙周 @凯雷 麻烦3位关注下。//@喷嚏网铂程://@烹肘:@椒江叶Sir<br><br>RE: #遇害民警张际勇妻子#<br><img src="http://ww1.sinaimg.cn/large/4d626bcdgw1f45aloleodj20qo1bfwk3.jpg"></p>
 <p>
 	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3978366736387268" target="freeweibo-mirror">SPAM 更正：兴化市的上级，泰州市。//@辟谣与真相:看最…</a>
+</h2>
+<p>SPAM 更正：兴化市的上级，泰州市。//@辟谣与真相:看最后一图，兴化市的上级，泰兴市检察院已介入。http://t.cn/R5zaOPE；http://t.cn/R5zouON；http://t.cn/R5zosWO； http://t.cn/R5zNYUJ //@I-Design修罗蓝:<br><br>RE: #遇害民警张际勇妻子#<br><img src="http://ww1.sinaimg.cn/large/4d626bcdgw1f45aloleodj20qo1bfwk3.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3978363658506175" target="freeweibo-mirror">这是警察的遭遇，一个交警总不反动不推墙吧 而雷洋也算事业单位…</a>
 </h2>
@@ -124,18 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3978292459565192" target="freeweibo-mirror">京冀苏豫鄂齐呼“教育公平”，深改组应该提上议事日程了！</a>
 </h2>
 <p>京冀苏豫鄂齐呼“教育公平”，深改组应该提上议事日程了！<br><img src="http://ww4.sinaimg.cn/large/6a80bfcdgw1f459mualoaj20rs0kuq8v.jpg"></p>
-<p>
-	<small> ============== 7小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3978282401687605" target="freeweibo-mirror">雷洋案不应该被淡忘，此案性质极其恶劣。不亚于当年的孙志刚案。…</a>
-</h2>
-<p>雷洋案不应该被淡忘，此案性质极其恶劣。不亚于当年的孙志刚案。可惜，最好的时代过去了，那是媒体的黄金时代，由媒体发布议程设置，律师和社会精英形成舆论合力，便足以推动法制的微小进步。弹指不过几年，神州大陆已经：萧瑟秋风今又是，换了人间。<br><br>RE: 【雷洋案成了敏感词？】你们天天删帖，是遏制言论自由？还是我们的言论危害社会？删帖背后的利益集团之手！<br><img src="http://ww3.sinaimg.cn/large/6f3dc6ddjw1f457p7p9gjj20qo1bg46n.jpg"></p>
-<p>
-	<small> ============== 8小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3978276793959162" target="freeweibo-mirror">【雷洋案成了敏感词？】你们天天删帖，是遏制言论自由？还是我们…</a>
-</h2>
-<p>【雷洋案成了敏感词？】你们天天删帖，是遏制言论自由？还是我们的言论危害社会？删帖背后的利益集团之手！<br><img src="http://ww3.sinaimg.cn/large/6f3dc6ddjw1f457p7p9gjj20qo1bg46n.jpg"></p>
 <p>
 	<small> ============== 8小时前</small>
 </p>
