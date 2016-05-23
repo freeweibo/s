@@ -37,6 +37,12 @@
 <p>
 	<small> ============== 4小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3978300512930957" target="freeweibo-mirror">因为关注雷洋案，关注709律师被抓案，不断发声的崔小平律师被…</a>
+</h2>
+<p>因为关注雷洋案，关注709律师被抓案，不断发声的崔小平律师被封号了，小号为@崔小平_律师 请大家关注并转发。</p>
+<p>
+	<small> ============== 5小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3978296147025362" target="freeweibo-mirror">教育公平</a>
 </h2>
 <p>教育公平<br><br>RE: 京冀苏豫鄂齐呼“教育公平”，深改组应该提上议事日程了！<br><img src="http://ww4.sinaimg.cn/large/6a80bfcdgw1f459mualoaj20rs0kuq8v.jpg"></p>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3978217184202614" target="freeweibo-mirror">//@李方平律师: 如果这就是“深改”，我是醉了！</a>
 </h2>
 <p>//@李方平律师: 如果这就是“深改”，我是醉了！<br><br>RE: 【是否构成国家“强迫交易罪”？】5月18日广电总局召开了一场重要的“吹风会”， 许多视频行业内大型企业都被要求前往，会议提出，国内大型视频网站优酷土豆、爱奇艺、腾讯视频等须接受国资“特殊管理股”。<br><img src="http://ww1.sinaimg.cn/large/6a80bfcdgw1f43be5pm2lj20qo1bfwn5.jpg"></p>
-<p>
-	<small> ============== 10小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3978216421365278" target="freeweibo-mirror">//@乱世狂刀01:一群疯子//@听雨人独立: ……国中之国</a>
-</h2>
-<p>//@乱世狂刀01:一群疯子//@听雨人独立: ……国中之国<br><br>RE: 【沙甸禁酒是否涉嫌违反国家法律】近些年来，云南沙甸是人们关注的热点地区之一。关于沙甸禁酒事件，成为网民讨论的话题之一。为迎接“清洁的斋月”沙甸穆斯林组成禁酒小组，进入非穆斯林家庭，搜查并没收违反伊斯兰教法的“物品”。据称，禁酒小组将“屡教不改”者赶出沙甸。沙甸禁酒涉及公民基本权利...全文： http://m.weibo.cn/1442246695/3977712676986365<br><img src="http://ww4.sinaimg.cn/large/55f6f027jw1f43f1jcr7oj2085064gly.jpg"></p>
 <p>
 	<small> ============== 10小时前</small>
 </p>
