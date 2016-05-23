@@ -73,6 +73,12 @@
 <p>
 	<small> ============== 4小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3978214600878628" target="freeweibo-mirror">http://t.cn/R571pFH  雷洋案看似个案，其…</a>
+</h2>
+<p>http://t.cn/R571pFH  雷洋案看似个案，其实静下心来想，雷洋案决非小事。其中包含着：丛林规则对法治秩序的挑战；公权力蔑视宪法；因而，每一位公民的生存权是否得到保护，尊严权能否得到尊重，着实在探试中国宪法权威性的虚实，更是对中央依宪依法治国国策的宣战。所以，之后发生的所有大事都没它影...全文： http://m.weibo.cn/1866319581/3978214600878628</p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3978207742428683" target="freeweibo-mirror">又在歪曲煽动。我国法律本就赋予尸检过程中家属可以在场的权利，…</a>
 </h2>
 <p>又在歪曲煽动。我国法律本就赋予尸检过程中家属可以在场的权利，需要家属找这位尸检证人“求情”才能进去吗？嗯，尸检结果还没出来，但只要家属一下跪，就等于“公权力”有问题。事实上，不管真冤假冤，下跪的家属并不少。 http://t.cn/R573wOm //@吕吕-吕:上了热搜，评论才36？<br><br>RE: 【雷洋父母看完遗体后，为何当场给尸检证人下跪？】，分享给你，快来看！ http://t.cn/R57pwKJ<br><img src="http://ww1.sinaimg.cn/large/a2e5ebb3jw1f44ld6ynzpj20go0go0v8.jpg"></p>
@@ -89,7 +95,7 @@
 </h2>
 <p>不在伊斯兰教尚处弱小的状态下把它镇压住，中华民族将来要付出更大的代价。<br><br>RE: 【沙甸禁酒是否涉嫌违反国家法律】近些年来，云南沙甸是人们关注的热点地区之一。关于沙甸禁酒事件，成为网民讨论的话题之一。为迎接“清洁的斋月”沙甸穆斯林组成禁酒小组，进入非穆斯林家庭，搜查并没收违反伊斯兰教法的“物品”。据称，禁酒小组将“屡教不改”者赶出沙甸。沙甸禁酒涉及公民基本权利...全文： http://m.weibo.cn/1442246695/3977712676986365<br><img src="http://ww4.sinaimg.cn/large/55f6f027jw1f43f1jcr7oj2085064gly.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3978196845795416" target="freeweibo-mirror">原来是用外汇买的粉...</a>
 </h2>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3978079540195716" target="freeweibo-mirror">SPAM 关注祈愿信箱，每晚陪你一起入睡</a>
 </h2>
 <p>SPAM 关注祈愿信箱，每晚陪你一起入睡</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3978078273400554" target="freeweibo-mirror">SPAM 一个专为夜猫提供的暖心夜刊！失眠读物微X1n: s…</a>
-</h2>
-<p>SPAM 一个专为夜猫提供的暖心夜刊！失眠读物微X1n: shimianduwu</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
