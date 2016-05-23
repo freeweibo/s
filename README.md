@@ -23,7 +23,7 @@
 </h2>
 <p>//@小种闯天涯:<br><br>RE: 孩子就地受教育的权利是绝对权利！在美国，哪怕是非法移民的孩子，照样平等上学。咱们海南岛的孩子去隔壁越南上学，照收不误，还给免费午餐。试图以扼杀儿童的权利控制超大城市人口，是人类千年未有之恶政。【京漂家长为孩子上学昌平自焚致全身80%重伤】</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3978250579180443" target="freeweibo-mirror">SPAM 【深圳：大批旅客因专项行动滞留海关查验区域 有人打…</a>
 </h2>
@@ -41,7 +41,7 @@
 </h2>
 <p>SPAM 哈哈哈 //@阿子:哈哈哈//@magasa:环球时报已经有解释了，因为发熊猫卖萌，所以粉丝多，不要大惊小怪。<br><br>RE: 原来是用外汇买的粉...<br><img src="http://ww3.sinaimg.cn/large/697c1dc3gw1f44ypbzr0yj212a1n64d9.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3978228374527248" target="freeweibo-mirror">SPAM //@忘却纪念:[吃惊]//@LoveTrust哩…</a>
 </h2>
