@@ -113,7 +113,7 @@
 </h2>
 <p>SPAM 随便摇一摇手机，竟然摇到了这个……每天有5次摇奖机会，吃饭没事儿摇一摇，喝水没事儿摇一摇，上下班路上摇一摇，睡觉之前摇一摇，躺着、坐着、蹲着摇，想怎么摇都随你，轻松一摇，免费流量到手！还在等什么，快点摇起来！</p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3978394532653679" target="freeweibo-mirror">SPAM pics from @朱小朵666</a>
 </h2>
@@ -131,7 +131,7 @@
 </h2>
 <p>推荐阅读：中国姓氏趣味地理大分布: 你，姓啥? 住哪？</p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3978379055701563" target="freeweibo-mirror">SPAM 执法记录仪又没了。//@蚍蜉种树:转发一下受害者家…</a>
 </h2>
