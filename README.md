@@ -65,7 +65,7 @@
 </h2>
 <p>SPAM 关注祈愿信箱，每晚陪你一起入睡</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3978078273400554" target="freeweibo-mirror">SPAM 一个专为夜猫提供的暖心夜刊！失眠读物微X1n: s…</a>
 </h2>
