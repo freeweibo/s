@@ -25,6 +25,12 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3978276793959162" target="freeweibo-mirror">【雷洋案成了敏感词？】你们天天删帖，是遏制言论自由？还是我们…</a>
+</h2>
+<p>【雷洋案成了敏感词？】你们天天删帖，是遏制言论自由？还是我们的言论危害社会？删帖背后的利益集团之手！<br><img src="http://ww3.sinaimg.cn/large/6f3dc6ddjw1f457p7p9gjj20qo1bg46n.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3978251095086367" target="freeweibo-mirror">//@小种闯天涯:</a>
 </h2>
 <p>//@小种闯天涯:<br><br>RE: 孩子就地受教育的权利是绝对权利！在美国，哪怕是非法移民的孩子，照样平等上学。咱们海南岛的孩子去隔壁越南上学，照收不误，还给免费午餐。试图以扼杀儿童的权利控制超大城市人口，是人类千年未有之恶政。【京漂家长为孩子上学昌平自焚致全身80%重伤】</p>
@@ -101,7 +107,7 @@
 </h2>
 <p>不在伊斯兰教尚处弱小的状态下把它镇压住，中华民族将来要付出更大的代价。<br><br>RE: 【沙甸禁酒是否涉嫌违反国家法律】近些年来，云南沙甸是人们关注的热点地区之一。关于沙甸禁酒事件，成为网民讨论的话题之一。为迎接“清洁的斋月”沙甸穆斯林组成禁酒小组，进入非穆斯林家庭，搜查并没收违反伊斯兰教法的“物品”。据称，禁酒小组将“屡教不改”者赶出沙甸。沙甸禁酒涉及公民基本权利...全文： http://m.weibo.cn/1442246695/3977712676986365<br><img src="http://ww4.sinaimg.cn/large/55f6f027jw1f43f1jcr7oj2085064gly.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3978196845795416" target="freeweibo-mirror">原来是用外汇买的粉...</a>
 </h2>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3978082358244050" target="freeweibo-mirror">SPAM 胃信：icplove，想要更多的cp头像的来。[哆…</a>
 </h2>
 <p>SPAM 胃信：icplove，想要更多的cp头像的来。[哆啦A梦花心]</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3978080681089768" target="freeweibo-mirror">【雷洋父母看完遗体后，为何当场给尸检证人下跪？】，分享给你，…</a>
-</h2>
-<p>【雷洋父母看完遗体后，为何当场给尸检证人下跪？】，分享给你，快来看！ http://t.cn/R57pwKJ<br><img src="http://ww1.sinaimg.cn/large/a2e5ebb3jw1f44ld6ynzpj20go0go0v8.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
