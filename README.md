@@ -71,7 +71,7 @@
 </h2>
 <p>SPAM 今日好文推荐[爱你]<br><img src="http://ww4.sinaimg.cn/large/8d5c03a7jw1f45ojk9bjhj20ku112jwo.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3978415670924786" target="freeweibo-mirror">SPAM 我装没看见[泪]//@酒缸不小A:我去抄党章了。[…</a>
 </h2>
@@ -131,7 +131,7 @@
 </h2>
 <p>SPAM 几度风雨几度春秋……<br><br>RE: #遇害民警张际勇妻子#<br><img src="http://ww1.sinaimg.cn/large/4d626bcdgw1f45aloleodj20qo1bfwk3.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3978374470491524" target="freeweibo-mirror">//@mixivivo: //@L-Cabot: //@青鲤…</a>
 </h2>
