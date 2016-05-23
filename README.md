@@ -25,6 +25,24 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3978426484754605" target="freeweibo-mirror">SPAM 谁在亲手制造大批留守儿童？？？</a>
+</h2>
+<p>SPAM 谁在亲手制造大批留守儿童？？？<br><br>RE: 网友爆料，昨天，昌平区有非京籍儿童家长因孩子上学问题自焚，现在积水潭医院烧伤科。据称，因为租房税的日期滞后，孩子不符合入学要求，两口子... http://t.cn/R5zgQM7 http://t.cn/R2WJNJt<br><img src="http://ww3.sinaimg.cn/large/6534405djw1f45oqk5r1uj20hs0kv75z.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3978426270530048" target="freeweibo-mirror">SPAM 为什么你的眼睛里常含泪水，因为我对这土地爱恨交加</a>
+</h2>
+<p>SPAM 为什么你的眼睛里常含泪水，因为我对这土地爱恨交加<br><br>RE: 网友爆料，昨天，昌平区有非京籍儿童家长因孩子上学问题自焚，现在积水潭医院烧伤科。据称，因为租房税的日期滞后，孩子不符合入学要求，两口子... http://t.cn/R5zgQM7 http://t.cn/R2WJNJt<br><img src="http://ww3.sinaimg.cn/large/6534405djw1f45oqk5r1uj20hs0kv75z.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3978425901334671" target="freeweibo-mirror">SPAM /中国梦，上学梦...</a>
+</h2>
+<p>SPAM /中国梦，上学梦...<br><br>RE: 网友爆料，昨天，昌平区有非京籍儿童家长因孩子上学问题自焚，现在积水潭医院烧伤科。据称，因为租房税的日期滞后，孩子不符合入学要求，两口子... http://t.cn/R5zgQM7 http://t.cn/R2WJNJt<br><img src="http://ww3.sinaimg.cn/large/6534405djw1f45oqk5r1uj20hs0kv75z.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3978421794851146" target="freeweibo-mirror">SPAM 今日好文推荐[爱你]</a>
 </h2>
 <p>SPAM 今日好文推荐[爱你]<br><img src="http://ww4.sinaimg.cn/large/8d5c03a7jw1f45ojk9bjhj20ku112jwo.jpg"></p>
@@ -65,7 +83,7 @@
 </h2>
 <p>推荐阅读：中国姓氏趣味地理大分布: 你，姓啥? 住哪？</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3978379055701563" target="freeweibo-mirror">SPAM 执法记录仪又没了。//@蚍蜉种树:转发一下受害者家…</a>
 </h2>
@@ -118,24 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3978351125802255" target="freeweibo-mirror">【好 文 分 享】1、当你被关进精神病院，如何证明自己不是精…</a>
 </h2>
 <p>【好 文 分 享】1、当你被关进精神病院，如何证明自己不是精神病？2、雷 洋的文笔才情！看哭了所有人。3、不扔原子弹日本也会投降吗？4、真实的以色列，太可怕 了！5、北大发布全国最好医院排名，关键时刻救命。6、一个披着资本主义外衣的真正共产主义国家，惊呆了！更 多精彩请添加关注：zhebsls<br><img src="http://ww3.sinaimg.cn/large/9647a31ejw1f45gfdx6lvj20ku112dig.jpg"></p>
-<p>
-	<small> ============== 7小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3978348055742791" target="freeweibo-mirror">SPAM 如果真的“双手反绑”，这么重要重要重要重要的证据，…</a>
-</h2>
-<p>SPAM 如果真的“双手反绑”，这么重要重要重要重要的证据，博主难道不知道亮出来？ http://t.cn/R5zKDAN //@醒了不如醉了:我就想知道他手是不是被反绑的？？<br><br>RE: #遇害民警张际勇妻子#<br><img src="http://ww1.sinaimg.cn/large/4d626bcdgw1f45aloleodj20qo1bfwk3.jpg"></p>
-<p>
-	<small> ============== 7小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3978345303492241" target="freeweibo-mirror">SPAM 1、此前博主说他“身上面部全非，被多人殴打后扔至河…</a>
-</h2>
-<p>SPAM 1、此前博主说他“身上面部全非，被多人殴打后扔至河里，谋杀！”而最后尸检结果“排除被殴打的可能”http://t.cn/R5zaOPE ；2、几张图，请大家自己动脑看：http://t.cn/R5zouON；http://t.cn/R5zosWO；http://t.cn/R5PVIdb； http://t.cn/R5zK2xo<br><br>RE: #遇害民警张际勇妻子#<br><img src="http://ww1.sinaimg.cn/large/4d626bcdgw1f45aloleodj20qo1bfwk3.jpg"></p>
-<p>
-	<small> ============== 7小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3978339972988193" target="freeweibo-mirror">SPAM 二、此前博主言之凿凿一口咬定“身上面部全非，被多人…</a>
-</h2>
-<p>SPAM 二、此前博主言之凿凿一口咬定“身上面部全非，被多人殴打后扔至河里，谋杀！”围观群众打鸡血，而最后尸检结果“排除被殴打的可能”http://t.cn/R5zaOPE 有同事指其丈夫“抑郁”遭反驳:http://t.cn/R5PVIdb；http://t.cn/R5h6QMP；http://t.cn/R5hXMEN<br><br>RE: #遇害民警张际勇妻子#<br><img src="http://ww1.sinaimg.cn/large/4d626bcdgw1f45aloleodj20qo1bfwk3.jpg"></p>
 <p>
 	<small> ============== 7小时前</small>
 </p>
