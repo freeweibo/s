@@ -83,7 +83,7 @@
 </h2>
 <p>又在歪曲煽动。我国法律本就赋予尸检过程中家属可以在场的权利，需要家属找这位尸检证人“求情”才能进去吗？嗯，尸检结果还没出来，但只要家属一下跪，就等于“公权力”有问题。事实上，不管真冤假冤，下跪的家属并不少。 http://t.cn/R573wOm //@吕吕-吕:上了热搜，评论才36？<br><br>RE: 【雷洋父母看完遗体后，为何当场给尸检证人下跪？】，分享给你，快来看！ http://t.cn/R57pwKJ<br><img src="http://ww1.sinaimg.cn/large/a2e5ebb3jw1f44ld6ynzpj20go0go0v8.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3978201732217039" target="freeweibo-mirror">SPAM 八九</a>
 </h2>
