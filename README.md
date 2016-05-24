@@ -65,7 +65,7 @@
 </h2>
 <p>推荐阅读：这个900度近视画家笔下的“神秘女子”，会让你分不清照片和画作！</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3978437683139058" target="freeweibo-mirror">SPAM 忍不了，但他们怂逼不敢来见我，所以这帐都算你头上，…</a>
 </h2>
@@ -121,6 +121,12 @@
 <p>
 	<small> ============== 1天前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3978420855586146" target="freeweibo-mirror">什么情况[吃惊](视频来源网络）http://t.cn/R5…</a>
+</h2>
+<p>什么情况[吃惊](视频来源网络）http://t.cn/R5zrRHm</p>
+<p>
+	<small> ============== 1天前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3978415670924786" target="freeweibo-mirror">SPAM 我装没看见[泪]//@酒缸不小A:我去抄党章了。[…</a>
 </h2>
 <p>SPAM 我装没看见[泪]//@酒缸不小A:我去抄党章了。[傻眼]<br><br>RE: 据说世界上只有两个组织要解放全人类，其中一个是is</p>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3978408059132477" target="freeweibo-mirror">SPAM 我们一块读书吧的卫星号“乐读会”（Enjoying…</a>
 </h2>
 <p>SPAM 我们一块读书吧的卫星号“乐读会”（Enjoyingbooks）每天都会有精彩推送哦！精彩不容错过，快来关注吧！今天的内容有：【书单】如果你也是东野圭吾迷，【品读】三毛：她并不算优雅的女人，但她值得被爱，【红袖添香夜读书】第70期：沙漏私语<br><img src="http://ww4.sinaimg.cn/large/9dbd2e69gw1f45myqs2svj20j60wg0u1.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3978404770446151" target="freeweibo-mirror">这些消息哪来的？</a>
-</h2>
-<p>这些消息哪来的？<br><br>RE: 民进党上台三天，一天一个动作！520,蔡英文就职演说提出九二事实，而非九二共识。521,蔡英文发布致大陆同胞书，发布其大陆态度，呼吁大陆推进民主自由，正视历史正视1912年成立的中华民国。522,民进党发表“一国一制”主张，倡导多党普选统一中国，否认未经过全民普选上台的大陆政权对中国的统治权。</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
