@@ -77,7 +77,7 @@
 </h2>
 <p>SPAM 还好不入党[doge]//@防务君:[围观]<br><br>RE: 已經蔚然成風！<br><img src="http://ww4.sinaimg.cn/large/5937c055jw1f46n1xz4hpj20hs0bvabr.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3978731690941251" target="freeweibo-mirror">[doge]右边~//@老卒过河: http://t.cn/…</a>
 </h2>
