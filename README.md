@@ -43,6 +43,12 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3978768173831945" target="freeweibo-mirror">【金星村的银杏树奇观[赞]】2016年4月23日，国家公园投…</a>
+</h2>
+<p>【金星村的银杏树奇观[赞]】2016年4月23日，国家公园投资考察之旅起航，并在24日圆满结束。来自五湖四海的朋友们在国家公园开化完成了一次基地投资寻宝之旅，考察了隐秘在开化县金星村的“深渡人家”。深渡银杏(浙江省最美古树)有三奇：一奇（2006年，千年银杏濒临枯亡，8月16日，时任浙江省委书记习近...全文： http://m.weibo.cn/2031805397/3978768173831945<br><img src="http://ww2.sinaimg.cn/large/791ae3d5gw1f46s6r3aflj20hs08vmyy.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3978767489167564" target="freeweibo-mirror">背诵党章，佩戴党徽//@水兵李铭://@书语晴://@佩尔琳…</a>
 </h2>
 <p>背诵党章，佩戴党徽//@水兵李铭://@书语晴://@佩尔琳_:[生病]病得不轻啊 //@刀锋论78:转发微博<br><br>RE: 不仔細看，我還以為我穿越了呢[抓狂][抓狂]<br><img src="http://ww1.sinaimg.cn/large/006nBcZngw1f46e9az3cpj30pa0r10xw.jpg"></p>
@@ -76,6 +82,12 @@
 	<a href="https://freeweibo.com/weibo/3978747692691149" target="freeweibo-mirror">SPAM 还好不入党[doge]//@防务君:[围观]</a>
 </h2>
 <p>SPAM 还好不入党[doge]//@防务君:[围观]<br><br>RE: 已經蔚然成風！<br><img src="http://ww4.sinaimg.cn/large/5937c055jw1f46n1xz4hpj20hs0bvabr.jpg"></p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3978743284359345" target="freeweibo-mirror">一群狗屁不通的党棍“巡视”社科院，要求政治审查学者专家的研究…</a>
+</h2>
+<p>一群狗屁不通的党棍“巡视”社科院，要求政治审查学者专家的研究成果，对敢于直言者横加指责，利用“巡视”权力任意扣帽子打棍子，这和习总的“三不”承诺直接相左，意欲何为？难道又是“给老大挖坑”？[怒][抓狂]<br><img src="http://ww2.sinaimg.cn/large/53bd81b0jw1f46pgb36dgj20m808wjti.jpg"></p>
 <p>
 	<small> ============== 4小时前</small>
 </p><h2>
@@ -124,18 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3978676133328332" target="freeweibo-mirror">SPAM #名博评论# [吃惊]//@公路美学：为实现个人政…</a>
 </h2>
 <p>SPAM #名博评论# [吃惊]//@公路美学：为实现个人政治野心不择手段！[吃惊][吃惊]</p>
-<p>
-	<small> ============== 8小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3978671033743600" target="freeweibo-mirror">SPAM 看线上电影的朋友请快去观zhu她@电影搬主任</a>
-</h2>
-<p>SPAM 看线上电影的朋友请快去观zhu她@电影搬主任</p>
-<p>
-	<small> ============== 9小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3978666796804779" target="freeweibo-mirror">隔壁老x？//@黎津平老师: //@浪飞牛牛肆世:看来必须出…</a>
-</h2>
-<p>隔壁老x？//@黎津平老师: //@浪飞牛牛肆世:看来必须出版学党章和学系列讲话的胎教作品了！！<br><br>RE: 媒体报道，宁夏杂文家白景森（笔名王涂鸦）向女同事赠送党章，鼓励肚中孩子“两学一做，争做共产主义接班人”！<br><img src="http://ww3.sinaimg.cn/large/58500250jw1f46fjcmfyvj20hs0nqjtt.jpg"></p>
 <p>
 	<small> ============== 9小时前</small>
 </p>
