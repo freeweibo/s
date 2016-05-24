@@ -19,6 +19,18 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3978772585830399" target="freeweibo-mirror">//@大尸凶的漫画: [偷笑]//@黄奎ART: //@令鹄…</a>
+</h2>
+<p>//@大尸凶的漫画: [偷笑]//@黄奎ART: //@令鹄冲:温家宝说文革不远矣！这不就来了<br><br>RE: 已經蔚然成風！<br><img src="http://ww4.sinaimg.cn/large/5937c055jw1f46n1xz4hpj20hs0bvabr.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3978767489167564" target="freeweibo-mirror">背诵党章，佩戴党徽//@水兵李铭://@书语晴://@佩尔琳…</a>
+</h2>
+<p>背诵党章，佩戴党徽//@水兵李铭://@书语晴://@佩尔琳_:[生病]病得不轻啊 //@刀锋论78:转发微博<br><br>RE: 不仔細看，我還以為我穿越了呢[抓狂][抓狂]<br><img src="http://ww1.sinaimg.cn/large/006nBcZngw1f46e9az3cpj30pa0r10xw.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3978759604845116" target="freeweibo-mirror">SPAM 厨子的私生子么……</a>
 </h2>
 <p>SPAM 厨子的私生子么……</p>
@@ -41,7 +53,7 @@
 </h2>
 <p>臣本布衣，抄党章于南阳，两学一做于盛世，三严三实于基层。<br><img src="http://ww2.sinaimg.cn/large/005yczpRgw1f46mzhcik9j30go0lytag.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3978699960773024" target="freeweibo-mirror">#毒舌时评# 有钱国外充大头，没钱国内搞民生！大！傻！逼！ …</a>
 </h2>
@@ -59,7 +71,7 @@
 </h2>
 <p>SPAM #名博评论# 为什么？//@英楠1980：支持治理，整顿，要不当官哪里来的服务意识，衙门里有几个是一心一意做事的，都在攀关系，搞权术，早几年还有做事的，近几年已经无人做事。</p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3978676133328332" target="freeweibo-mirror">SPAM #名博评论# [吃惊]//@公路美学：为实现个人政…</a>
 </h2>
@@ -107,7 +119,7 @@
 </h2>
 <p>SPAM 种草[哆啦A梦吃惊][哆啦A梦吃惊][哆啦A梦吃惊]</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3978587151391565" target="freeweibo-mirror">//@贺延光:口是心非！</a>
 </h2>
@@ -124,18 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3978583208548993" target="freeweibo-mirror">图片评论 http://t.cn/R5ZGJ9o //@常四…</a>
 </h2>
 <p>图片评论 http://t.cn/R5ZGJ9o //@常四麻子://@长风破浪138:转发微博</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3978582340166857" target="freeweibo-mirror">SPAM //@三封的微博:这不是金三胖吗？</a>
-</h2>
-<p>SPAM //@三封的微博:这不是金三胖吗？<br><br>RE: 央视记者问，你幸福吗？<br><img src="http://ww3.sinaimg.cn/large/58500250jw1f4640z8m4hj20hs0g00ug.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3978571552889954" target="freeweibo-mirror">[哈哈]//@流氓六:负分滚粗 //@东河-猎鹰倚天屠龙:[…</a>
-</h2>
-<p>[哈哈]//@流氓六:负分滚粗 //@东河-猎鹰倚天屠龙:[偷笑]//@立场-0-旁观:和今上同等学识，所以可飞黄腾达。[酷]//@斯韦爵:这逼装的负分，滚粗！</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
