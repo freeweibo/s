@@ -23,7 +23,7 @@
 </h2>
 <p>//@贺延光:口是心非！</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3978583208548993" target="freeweibo-mirror">图片评论 http://t.cn/R5ZGJ9o //@常四…</a>
 </h2>
