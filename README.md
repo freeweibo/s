@@ -95,7 +95,7 @@
 </h2>
 <p>世上除三胖果然还有如此奇葩 //@大尸凶的漫画:[偷笑]//@黄奎ART://@令鹄冲:温家宝说文革不远矣！这不就来了<br><br>RE: 已經蔚然成風！<br><img src="http://ww4.sinaimg.cn/large/5937c055jw1f46n1xz4hpj20hs0bvabr.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3978759604845116" target="freeweibo-mirror">SPAM 厨子的私生子么……</a>
 </h2>
@@ -115,6 +115,12 @@
 <p>
 	<small> ============== 5小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3978733990285253" target="freeweibo-mirror">这是一颗神奇的树！</a>
+</h2>
+<p>这是一颗神奇的树！<br><img src="http://ww2.sinaimg.cn/large/6a3d7f8cjw1f46odz69f4j20go0m8wh6.jpg"></p>
+<p>
+	<small> ============== 6小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3978731690941251" target="freeweibo-mirror">[doge]右边~//@老卒过河: http://t.cn/…</a>
 </h2>
 <p>[doge]右边~//@老卒过河: http://t.cn/R5ZWJTp  //@烧鸡烧鸡呢:今当入党，临表涕零，尤为赛艇。<br><br>RE: 臣本布衣，抄党章于南阳，两学一做于盛世，三严三实于基层。<br><img src="http://ww2.sinaimg.cn/large/005yczpRgw1f46mzhcik9j30go0lytag.jpg"></p>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3978722375307813" target="freeweibo-mirror">臣本布衣，抄党章于南阳，两学一做于盛世，三严三实于基层。</a>
 </h2>
 <p>臣本布衣，抄党章于南阳，两学一做于盛世，三严三实于基层。<br><img src="http://ww2.sinaimg.cn/large/005yczpRgw1f46mzhcik9j30go0lytag.jpg"></p>
-<p>
-	<small> ============== 6小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3978722367478634" target="freeweibo-mirror">已經蔚然成風！</a>
-</h2>
-<p>已經蔚然成風！<br><img src="http://ww4.sinaimg.cn/large/5937c055jw1f46n1xz4hpj20hs0bvabr.jpg"></p>
 <p>
 	<small> ============== 6小时前</small>
 </p>
