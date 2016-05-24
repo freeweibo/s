@@ -31,6 +31,12 @@
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3978722375307813" target="freeweibo-mirror">臣本布衣，抄党章于南阳，两学一做于盛世，三严三实于基层。</a>
+</h2>
+<p>臣本布衣，抄党章于南阳，两学一做于盛世，三严三实于基层。<br><img src="http://ww2.sinaimg.cn/large/005yczpRgw1f46mzhcik9j30go0lytag.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3978699960773024" target="freeweibo-mirror">#毒舌时评# 有钱国外充大头，没钱国内搞民生！大！傻！逼！ …</a>
 </h2>
 <p>#毒舌时评# 有钱国外充大头，没钱国内搞民生！大！傻！逼！ [怒]<br><img src="http://ww3.sinaimg.cn/large/5a3fe34ajw1f46khkd2gmj20j61ibk4b.jpg"></p>
@@ -65,7 +71,7 @@
 </h2>
 <p>隔壁老x？//@黎津平老师: //@浪飞牛牛肆世:看来必须出版学党章和学系列讲话的胎教作品了！！<br><br>RE: 媒体报道，宁夏杂文家白景森（笔名王涂鸦）向女同事赠送党章，鼓励肚中孩子“两学一做，争做共产主义接班人”！<br><img src="http://ww3.sinaimg.cn/large/58500250jw1f46fjcmfyvj20hs0nqjtt.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3978659305862613" target="freeweibo-mirror">//@星夜之辰84://@公民林静在维权4://@南方街头:…</a>
 </h2>
@@ -101,7 +107,7 @@
 </h2>
 <p>经警方调查，白色越野车驾驶员潘某(女，26岁，厦门人)因其母亲投资“招宝网”理财项目，与黑色轿车车主所在公司发生矛盾。黑色轿车车主欲阻挡其驶离，潘某遂驾车多次冲撞黑色轿车后逃逸，造成黑色轿车严重损坏。当晚，思明警方将潘某抓获归案。目前，潘某因涉嫌故意毁坏财物罪被警方依法刑事拘留<br><br>RE: 什么情况[吃惊](视频来源网络）http://t.cn/R5zrRHm</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3978583208548993" target="freeweibo-mirror">图片评论 http://t.cn/R5ZGJ9o //@常四…</a>
 </h2>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3978547406528119" target="freeweibo-mirror">SPAM   【好 文 分 享】1、当你被关进精神病院，如何…</a>
 </h2>
 <p>SPAM   【好 文 分 享】1、当你被关进精神病院，如何证明自己不是 精神病？2、雷 洋的文笔才情！看哭了所有人。3、不扔原子弹日本也会投降吗？4、真实的以色列，太可怕 了！5、北大发布全国最好医院排名，关键时刻救命。6、一个披着 资本主义外衣的真正共产主义国家，惊呆了！更多精彩请添加关注：zhebsls<br><img src="http://ww2.sinaimg.cn/large/9647a31ejw1f462ywu8ouj20j60y3mze.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3978516447870497" target="freeweibo-mirror">SPAM @北冥有键盘猫Guiwu 橘色那盘有点好看。想买粉…</a>
-</h2>
-<p>SPAM @北冥有键盘猫Guiwu 橘色那盘有点好看。想买粉饼，结果都不上底妆。 http://t.cn/R5Z25S4</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
