@@ -41,7 +41,7 @@
 </h2>
 <p>//@石言内: 谁能给他挖坑？<br><br>RE: 一群狗屁不通的党棍“巡视”社科院，要求政治审查学者专家的研究成果，对敢于直言者横加指责，利用“巡视”权力任意扣帽子打棍子，这和习总的“三不”承诺直接相左，意欲何为？难道又是“给老大挖坑”？[怒][抓狂]<br><img src="http://ww2.sinaimg.cn/large/53bd81b0jw1f46pgb36dgj20m808wjti.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3978772585830399" target="freeweibo-mirror">//@大尸凶的漫画: [偷笑]//@黄奎ART: //@令鹄…</a>
 </h2>
@@ -101,7 +101,7 @@
 </h2>
 <p>一群狗屁不通的党棍“巡视”社科院，要求政治审查学者专家的研究成果，对敢于直言者横加指责，利用“巡视”权力任意扣帽子打棍子，这和习总的“三不”承诺直接相左，意欲何为？难道又是“给老大挖坑”？[怒][抓狂]<br><img src="http://ww2.sinaimg.cn/large/53bd81b0jw1f46pgb36dgj20m808wjti.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3978731690941251" target="freeweibo-mirror">[doge]右边~//@老卒过河: http://t.cn/…</a>
 </h2>
