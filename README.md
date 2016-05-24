@@ -47,11 +47,17 @@
 </h2>
 <p>SPAM 今当入党，临表涕零，尤为赛艇。<br><br>RE: 臣本布衣，抄党章于南阳，两学一做于盛世，三严三实于基层。<br><img src="http://ww2.sinaimg.cn/large/005yczpRgw1f46mzhcik9j30go0lytag.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3978722375307813" target="freeweibo-mirror">臣本布衣，抄党章于南阳，两学一做于盛世，三严三实于基层。</a>
 </h2>
 <p>臣本布衣，抄党章于南阳，两学一做于盛世，三严三实于基层。<br><img src="http://ww2.sinaimg.cn/large/005yczpRgw1f46mzhcik9j30go0lytag.jpg"></p>
+<p>
+	<small> ============== 5小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3978722367478634" target="freeweibo-mirror">已經蔚然成風！</a>
+</h2>
+<p>已經蔚然成風！<br><img src="http://ww4.sinaimg.cn/large/5937c055jw1f46n1xz4hpj20hs0bvabr.jpg"></p>
 <p>
 	<small> ============== 5小时前</small>
 </p><h2>
@@ -65,7 +71,7 @@
 </h2>
 <p>SPAM 每个人都有苦衷，但不是掩盖真相的借口。@新浪<br><br>RE: #遇害民警张际勇妻子#<br><img src="http://ww3.sinaimg.cn/large/4d626bcdgw1f45pa55y8dj20qo1bfwk3.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3978676439843322" target="freeweibo-mirror">SPAM #名博评论# 为什么？//@英楠1980：支持治理…</a>
 </h2>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3978583837955369" target="freeweibo-mirror">经警方调查，白色越野车驾驶员潘某(女，26岁，厦门人)因其母…</a>
 </h2>
 <p>经警方调查，白色越野车驾驶员潘某(女，26岁，厦门人)因其母亲投资“招宝网”理财项目，与黑色轿车车主所在公司发生矛盾。黑色轿车车主欲阻挡其驶离，潘某遂驾车多次冲撞黑色轿车后逃逸，造成黑色轿车严重损坏。当晚，思明警方将潘某抓获归案。目前，潘某因涉嫌故意毁坏财物罪被警方依法刑事拘留<br><br>RE: 什么情况[吃惊](视频来源网络）http://t.cn/R5zrRHm</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3978583208548993" target="freeweibo-mirror">图片评论 http://t.cn/R5ZGJ9o //@常四…</a>
-</h2>
-<p>图片评论 http://t.cn/R5ZGJ9o //@常四麻子://@长风破浪138:转发微博</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
