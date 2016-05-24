@@ -65,7 +65,7 @@
 </h2>
 <p>SPAM   【好 文 分 享】1、当你被关进精神病院，如何证明自己不是 精神病？2、雷 洋的文笔才情！看哭了所有人。3、不扔原子弹日本也会投降吗？4、真实的以色列，太可怕 了！5、北大发布全国最好医院排名，关键时刻救命。6、一个披着 资本主义外衣的真正共产主义国家，惊呆了！更多精彩请添加关注：zhebsls<br><img src="http://ww2.sinaimg.cn/large/9647a31ejw1f462ywu8ouj20j60y3mze.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3978516447870497" target="freeweibo-mirror">SPAM @北冥有键盘猫Guiwu 橘色那盘有点好看。想买粉…</a>
 </h2>
