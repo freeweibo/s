@@ -47,7 +47,7 @@
 </h2>
 <p>隔壁老x？//@黎津平老师: //@浪飞牛牛肆世:看来必须出版学党章和学系列讲话的胎教作品了！！<br><br>RE: 媒体报道，宁夏杂文家白景森（笔名王涂鸦）向女同事赠送党章，鼓励肚中孩子“两学一做，争做共产主义接班人”！<br><img src="http://ww3.sinaimg.cn/large/58500250jw1f46fjcmfyvj20hs0nqjtt.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3978659305862613" target="freeweibo-mirror">//@星夜之辰84://@公民林静在维权4://@南方街头:…</a>
 </h2>
