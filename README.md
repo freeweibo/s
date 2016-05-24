@@ -19,6 +19,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3978793343075711" target="freeweibo-mirror">SPAM 在游乐场里，孩子跌倒很少哭泣。因为他们要赶着去玩，…</a>
+</h2>
+<p>SPAM 在游乐场里，孩子跌倒很少哭泣。因为他们要赶着去玩，没有时间哭泣。我们要把自己的人生过得像游乐场一样，尽情玩耍，没有时间沮丧。<br><img src="http://ww2.sinaimg.cn/large/77101dc1jw1f468l3qg4dj20qo0u977q.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3978787693116878" target="freeweibo-mirror">SPAM 这树做笔杆肯定更奇[赞]//@徐昕: [笑cry]…</a>
 </h2>
 <p>SPAM 这树做笔杆肯定更奇[赞]//@徐昕: [笑cry]//@孟彦弘:[笑cry]<br><br>RE: 这是一颗神奇的树！<br><img src="http://ww2.sinaimg.cn/large/6a3d7f8cjw1f46odz69f4j20go0m8wh6.jpg"></p>
@@ -36,6 +42,12 @@
 <p>SPAM //@真意气书生5: 最好是蘸着初血和精液写——别说俺下流，反正是比着恶心呗。 //@陈满华CMH:有蔚然成风之势。</p>
 <p>
 	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3978774627988349" target="freeweibo-mirror">SPAM 啧啧啧，这才是迷信，神憎鬼厌。 //@雁塔晓木屋:…</a>
+</h2>
+<p>SPAM 啧啧啧，这才是迷信，神憎鬼厌。 //@雁塔晓木屋:我日//@鲁壁藏书: 无法翻译成英语，可惜！//@新罗居士: 迷信！//@邱仦剛:祥瑞啊<br><br>RE: 这是一颗神奇的树！<br><img src="http://ww2.sinaimg.cn/large/6a3d7f8cjw1f46odz69f4j20go0m8wh6.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3978774305618013" target="freeweibo-mirror">//@石言内: 谁能给他挖坑？</a>
 </h2>
@@ -89,7 +101,7 @@
 </h2>
 <p>SPAM 厨子的私生子么……</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3978747692691149" target="freeweibo-mirror">SPAM 还好不入党[doge]//@防务君:[围观]</a>
 </h2>
@@ -126,18 +138,6 @@
 <p>已經蔚然成風！<br><img src="http://ww4.sinaimg.cn/large/5937c055jw1f46n1xz4hpj20hs0bvabr.jpg"></p>
 <p>
 	<small> ============== 6小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3978699960773024" target="freeweibo-mirror">#毒舌时评# 有钱国外充大头，没钱国内搞民生！大！傻！逼！ …</a>
-</h2>
-<p>#毒舌时评# 有钱国外充大头，没钱国内搞民生！大！傻！逼！ [怒]<br><img src="http://ww3.sinaimg.cn/large/5a3fe34ajw1f46khkd2gmj20j61ibk4b.jpg"></p>
-<p>
-	<small> ============== 7小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3978679534595616" target="freeweibo-mirror">SPAM 每个人都有苦衷，但不是掩盖真相的借口。@新浪</a>
-</h2>
-<p>SPAM 每个人都有苦衷，但不是掩盖真相的借口。@新浪<br><br>RE: #遇害民警张际勇妻子#<br><img src="http://ww3.sinaimg.cn/large/4d626bcdgw1f45pa55y8dj20qo1bfwk3.jpg"></p>
-<p>
-	<small> ============== 9小时前</small>
 </p>
 <table>
     <tr>
