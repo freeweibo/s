@@ -77,7 +77,7 @@
 </h2>
 <p>SPAM 这树做笔杆肯定更奇[赞]//@徐昕: [笑cry]//@孟彦弘:[笑cry]<br><br>RE: 这是一颗神奇的树！<br><img src="http://ww2.sinaimg.cn/large/6a3d7f8cjw1f46odz69f4j20go0m8wh6.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3978783675167910" target="freeweibo-mirror">[猪头][草泥马]//@科特迪瓦提督猩蜀黍：侯爷透过这副惨烈…</a>
 </h2>
@@ -113,7 +113,7 @@
 </h2>
 <p>//@大尸凶的漫画: [偷笑]//@黄奎ART: //@令鹄冲:温家宝说文革不远矣！这不就来了<br><br>RE: 已經蔚然成風！<br><img src="http://ww4.sinaimg.cn/large/5937c055jw1f46n1xz4hpj20hs0bvabr.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3978769464728319" target="freeweibo-mirror">还敢信？//@章诒和:第一把手不是对社科界刚讲过要“宽松”“…</a>
 </h2>
