@@ -41,7 +41,7 @@
 </h2>
 <p>SPAM 在游乐场里，孩子跌倒很少哭泣。因为他们要赶着去玩，没有时间哭泣。我们要把自己的人生过得像游乐场一样，尽情玩耍，没有时间沮丧。<br><img src="http://ww2.sinaimg.cn/large/77101dc1jw1f468l3qg4dj20qo0u977q.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3978787693116878" target="freeweibo-mirror">SPAM 这树做笔杆肯定更奇[赞]//@徐昕: [笑cry]…</a>
 </h2>
@@ -131,7 +131,7 @@
 </h2>
 <p>SPAM 还好不入党[doge]//@防务君:[围观]<br><br>RE: 已經蔚然成風！<br><img src="http://ww4.sinaimg.cn/large/5937c055jw1f46n1xz4hpj20hs0bvabr.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3978743284359345" target="freeweibo-mirror">一群狗屁不通的党棍“巡视”社科院，要求政治审查学者专家的研究…</a>
 </h2>
