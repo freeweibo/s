@@ -23,7 +23,7 @@
 </h2>
 <p>//@大尸凶的漫画: [偷笑]//@黄奎ART: //@令鹄冲:温家宝说文革不远矣！这不就来了<br><br>RE: 已經蔚然成風！<br><img src="http://ww4.sinaimg.cn/large/5937c055jw1f46n1xz4hpj20hs0bvabr.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3978767489167564" target="freeweibo-mirror">背诵党章，佩戴党徽//@水兵李铭://@书语晴://@佩尔琳…</a>
 </h2>
@@ -95,7 +95,7 @@
 </h2>
 <p>隔壁老x？//@黎津平老师: //@浪飞牛牛肆世:看来必须出版学党章和学系列讲话的胎教作品了！！<br><br>RE: 媒体报道，宁夏杂文家白景森（笔名王涂鸦）向女同事赠送党章，鼓励肚中孩子“两学一做，争做共产主义接班人”！<br><img src="http://ww3.sinaimg.cn/large/58500250jw1f46fjcmfyvj20hs0nqjtt.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3978659305862613" target="freeweibo-mirror">//@星夜之辰84://@公民林静在维权4://@南方街头:…</a>
 </h2>
@@ -119,7 +119,7 @@
 </h2>
 <p>#江苏交警失联后死亡##遇害民警张际勇妻子# 关于死者的视频…很明显 溺水前被人殴打的很厉害 血都吐出来了。 http://t.cn/R57awjt</p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3978609233791907" target="freeweibo-mirror">SPAM 种草[哆啦A梦吃惊][哆啦A梦吃惊][哆啦A梦吃惊…</a>
 </h2>
