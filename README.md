@@ -133,9 +133,9 @@
 <p>
 	<small> ============== 1天前</small>
 </p><h2>
-	<a href="https://freeweibo.com/weibo/3978583837955369" target="freeweibo-mirror">经警方调查，白色越野车驾驶员潘某(女，26岁，厦门人)因其母…</a>
+	<a href="https://freeweibo.com/weibo/3978585356020443" target="freeweibo-mirror">今日好文推荐[爱你]</a>
 </h2>
-<p>经警方调查，白色越野车驾驶员潘某(女，26岁，厦门人)因其母亲投资“招宝网”理财项目，与黑色轿车车主所在公司发生矛盾。黑色轿车车主欲阻挡其驶离，潘某遂驾车多次冲撞黑色轿车后逃逸，造成黑色轿车严重损坏。当晚，思明警方将潘某抓获归案。目前，潘某因涉嫌故意毁坏财物罪被警方依法刑事拘留<br><br>RE: 什么情况[吃惊](视频来源网络）http://t.cn/R5zrRHm</p>
+<p>今日好文推荐[爱你]<br><img src="http://ww2.sinaimg.cn/large/8d5c03a7jw1f467bppmelj20ku112jwo.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
