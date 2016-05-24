@@ -83,7 +83,7 @@
 </h2>
 <p>网友爆料，昨天，昌平区有非京籍儿童家长因孩子上学问题自焚，现在积水潭医院烧伤科。据称，因为租房税的日期滞后，孩子不符合入学要求，两口子... http://t.cn/R5zgQM7 http://t.cn/R2WJNJt<br><img src="http://ww3.sinaimg.cn/large/6534405djw1f45oqk5r1uj20hs0kv75z.jpg"></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3978421794851146" target="freeweibo-mirror">SPAM 今日好文推荐[爱你]</a>
 </h2>
