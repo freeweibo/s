@@ -107,7 +107,7 @@
 </h2>
 <p>世上除三胖果然还有如此奇葩 //@大尸凶的漫画:[偷笑]//@黄奎ART://@令鹄冲:温家宝说文革不远矣！这不就来了<br><br>RE: 已經蔚然成風！<br><img src="http://ww4.sinaimg.cn/large/5937c055jw1f46n1xz4hpj20hs0bvabr.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3978759604845116" target="freeweibo-mirror">SPAM 厨子的私生子么……</a>
 </h2>
