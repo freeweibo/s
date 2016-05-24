@@ -55,6 +55,12 @@
 <p>
 	<small> ============== 4小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3978656923460189" target="freeweibo-mirror">媒体报道，宁夏杂文家白景森（笔名王涂鸦）向女同事赠送党章，鼓…</a>
+</h2>
+<p>媒体报道，宁夏杂文家白景森（笔名王涂鸦）向女同事赠送党章，鼓励肚中孩子“两学一做，争做共产主义接班人”！<br><img src="http://ww3.sinaimg.cn/large/58500250jw1f46fjcmfyvj20hs0nqjtt.jpg"></p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3978643027652685" target="freeweibo-mirror">从89至97年，一共营救300多人。前线总指挥是香港商人陈达…</a>
 </h2>
 <p>从89至97年，一共营救300多人。前线总指挥是香港商人陈达钲，后方支援为司徒华、牧师朱耀明、影星梅艳芳。行动期间，4位无名英雄牺牲，葬身大海。连大圈帮都参与其中。最终，因王军氵寿中了圈套，两名行动组成员被捕，陈被迫北上，与公安谈判，淡出行动。这就是鲜为人知的黄雀行动。<br><img src="http://ww1.sinaimg.cn/large/006eDQFggw1f46dobtrx2j30g40hzmzg.jpg"></p>
@@ -107,7 +113,7 @@
 </h2>
 <p>SPAM   【好 文 分 享】1、当你被关进精神病院，如何证明自己不是 精神病？2、雷 洋的文笔才情！看哭了所有人。3、不扔原子弹日本也会投降吗？4、真实的以色列，太可怕 了！5、北大发布全国最好医院排名，关键时刻救命。6、一个披着 资本主义外衣的真正共产主义国家，惊呆了！更多精彩请添加关注：zhebsls<br><img src="http://ww2.sinaimg.cn/large/9647a31ejw1f462ywu8ouj20j60y3mze.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3978516447870497" target="freeweibo-mirror">SPAM @北冥有键盘猫Guiwu 橘色那盘有点好看。想买粉…</a>
 </h2>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3978437683139058" target="freeweibo-mirror">SPAM 忍不了，但他们怂逼不敢来见我，所以这帐都算你头上，…</a>
 </h2>
 <p>SPAM 忍不了，但他们怂逼不敢来见我，所以这帐都算你头上，周日把你打死结账。周日你千万千万别怂逼了，一定要来，不来是三孙子。//@守护我们美丽的乡村:菜刀胡这都能忍[哈哈][哈哈]<br><br>RE: 盆盆，老汉正跟你媳妇被窝抄党章捏。抄完我俩就吃奶睡觉觉。[害羞]@胡杨麟<br><img src="http://ww3.sinaimg.cn/large/006deocojw1f45pxvpgg4j30k00wp0we.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3978434348288101" target="freeweibo-mirror">盆盆，老汉正跟你媳妇被窝抄党章捏。抄完我俩就吃奶睡觉觉。[害…</a>
-</h2>
-<p>盆盆，老汉正跟你媳妇被窝抄党章捏。抄完我俩就吃奶睡觉觉。[害羞]@胡杨麟<br><img src="http://ww3.sinaimg.cn/large/006deocojw1f45pxvpgg4j30k00wp0we.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
