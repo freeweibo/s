@@ -59,7 +59,7 @@
 </h2>
 <p>SPAM 啧啧啧，这才是迷信，神憎鬼厌。 //@雁塔晓木屋:我日//@鲁壁藏书: 无法翻译成英语，可惜！//@新罗居士: 迷信！//@邱仦剛:祥瑞啊<br><br>RE: 这是一颗神奇的树！<br><img src="http://ww2.sinaimg.cn/large/6a3d7f8cjw1f46odz69f4j20go0m8wh6.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3978774305618013" target="freeweibo-mirror">//@石言内: 谁能给他挖坑？</a>
 </h2>
@@ -113,7 +113,7 @@
 </h2>
 <p>SPAM 厨子的私生子么……</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3978747692691149" target="freeweibo-mirror">SPAM 还好不入党[doge]//@防务君:[围观]</a>
 </h2>
