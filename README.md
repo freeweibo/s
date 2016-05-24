@@ -37,9 +37,33 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3978769464728319" target="freeweibo-mirror">还敢信？//@章诒和:第一把手不是对社科界刚讲过要“宽松”“…</a>
+</h2>
+<p>还敢信？//@章诒和:第一把手不是对社科界刚讲过要“宽松”“包容”吗？说的和做的咋不一样呢？让我们信哪头呀？//@去V的刘建锋: 转发微博<br><br>RE: 一群狗屁不通的党棍“巡视”社科院，要求政治审查学者专家的研究成果，对敢于直言者横加指责，利用“巡视”权力任意扣帽子打棍子，这和习总的“三不”承诺直接相左，意欲何为？难道又是“给老大挖坑”？[怒][抓狂]<br><img src="http://ww2.sinaimg.cn/large/53bd81b0jw1f46pgb36dgj20m808wjti.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3978767489167564" target="freeweibo-mirror">背诵党章，佩戴党徽//@水兵李铭://@书语晴://@佩尔琳…</a>
 </h2>
 <p>背诵党章，佩戴党徽//@水兵李铭://@书语晴://@佩尔琳_:[生病]病得不轻啊 //@刀锋论78:转发微博<br><br>RE: 不仔細看，我還以為我穿越了呢[抓狂][抓狂]<br><img src="http://ww1.sinaimg.cn/large/006nBcZngw1f46e9az3cpj30pa0r10xw.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3978767313190303" target="freeweibo-mirror">SPAM 威武！//@何兵:听听大家意见。</a>
+</h2>
+<p>SPAM 威武！//@何兵:听听大家意见。<br><br>RE: 已經蔚然成風！<br><img src="http://ww4.sinaimg.cn/large/5937c055jw1f46n1xz4hpj20hs0bvabr.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3978767221478387" target="freeweibo-mirror">//@笨笨an:世上除三胖果然还有如此奇葩 //@大尸凶的漫…</a>
+</h2>
+<p>//@笨笨an:世上除三胖果然还有如此奇葩 //@大尸凶的漫画:[偷笑]//@黄奎ART://@令鹄冲:温家宝说文革不远矣！这不就来了<br><br>RE: 已經蔚然成風！<br><img src="http://ww4.sinaimg.cn/large/5937c055jw1f46n1xz4hpj20hs0bvabr.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3978765266576057" target="freeweibo-mirror">世上除三胖果然还有如此奇葩 //@大尸凶的漫画:[偷笑]//…</a>
+</h2>
+<p>世上除三胖果然还有如此奇葩 //@大尸凶的漫画:[偷笑]//@黄奎ART://@令鹄冲:温家宝说文革不远矣！这不就来了<br><br>RE: 已經蔚然成風！<br><img src="http://ww4.sinaimg.cn/large/5937c055jw1f46n1xz4hpj20hs0bvabr.jpg"></p>
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
@@ -49,11 +73,17 @@
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3978747692691149" target="freeweibo-mirror">SPAM 还好不入党[doge]//@防务君:[围观]</a>
+</h2>
+<p>SPAM 还好不入党[doge]//@防务君:[围观]<br><br>RE: 已經蔚然成風！<br><img src="http://ww4.sinaimg.cn/large/5937c055jw1f46n1xz4hpj20hs0bvabr.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3978731690941251" target="freeweibo-mirror">[doge]右边~//@老卒过河: http://t.cn/…</a>
 </h2>
 <p>[doge]右边~//@老卒过河: http://t.cn/R5ZWJTp  //@烧鸡烧鸡呢:今当入党，临表涕零，尤为赛艇。<br><br>RE: 臣本布衣，抄党章于南阳，两学一做于盛世，三严三实于基层。<br><img src="http://ww2.sinaimg.cn/large/005yczpRgw1f46mzhcik9j30go0lytag.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3978724963575116" target="freeweibo-mirror">SPAM 今当入党，临表涕零，尤为赛艇。</a>
 </h2>
@@ -101,43 +131,13 @@
 </h2>
 <p>SPAM 看线上电影的朋友请快去观zhu她@电影搬主任</p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3978666796804779" target="freeweibo-mirror">隔壁老x？//@黎津平老师: //@浪飞牛牛肆世:看来必须出…</a>
 </h2>
 <p>隔壁老x？//@黎津平老师: //@浪飞牛牛肆世:看来必须出版学党章和学系列讲话的胎教作品了！！<br><br>RE: 媒体报道，宁夏杂文家白景森（笔名王涂鸦）向女同事赠送党章，鼓励肚中孩子“两学一做，争做共产主义接班人”！<br><img src="http://ww3.sinaimg.cn/large/58500250jw1f46fjcmfyvj20hs0nqjtt.jpg"></p>
 <p>
 	<small> ============== 9小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3978659305862613" target="freeweibo-mirror">//@星夜之辰84://@公民林静在维权4://@南方街头:…</a>
-</h2>
-<p>//@星夜之辰84://@公民林静在维权4://@南方街头:感谢香港同胞。[心]</p>
-<p>
-	<small> ============== 9小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3978656923460189" target="freeweibo-mirror">媒体报道，宁夏杂文家白景森（笔名王涂鸦）向女同事赠送党章，鼓…</a>
-</h2>
-<p>媒体报道，宁夏杂文家白景森（笔名王涂鸦）向女同事赠送党章，鼓励肚中孩子“两学一做，争做共产主义接班人”！<br><img src="http://ww3.sinaimg.cn/large/58500250jw1f46fjcmfyvj20hs0nqjtt.jpg"></p>
-<p>
-	<small> ============== 9小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3978645711898690" target="freeweibo-mirror">不仔細看，我還以為我穿越了呢[抓狂][抓狂]</a>
-</h2>
-<p>不仔細看，我還以為我穿越了呢[抓狂][抓狂]<br><img src="http://ww1.sinaimg.cn/large/006nBcZngw1f46e9az3cpj30pa0r10xw.jpg"></p>
-<p>
-	<small> ============== 10小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3978643027652685" target="freeweibo-mirror">从89至97年，一共营救300多人。前线总指挥是香港商人陈达…</a>
-</h2>
-<p>从89至97年，一共营救300多人。前线总指挥是香港商人陈达钲，后方支援为司徒华、牧师朱耀明、影星梅艳芳。行动期间，4位无名英雄牺牲，葬身大海。连大圈帮都参与其中。最终，因王军氵寿中了圈套，两名行动组成员被捕，陈被迫北上，与公安谈判，淡出行动。这就是鲜为人知的黄雀行动。<br><img src="http://ww1.sinaimg.cn/large/006eDQFggw1f46dobtrx2j30g40hzmzg.jpg"></p>
-<p>
-	<small> ============== 10小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3978621415113767" target="freeweibo-mirror">#江苏交警失联后死亡##遇害民警张际勇妻子# 关于死者的视频…</a>
-</h2>
-<p>#江苏交警失联后死亡##遇害民警张际勇妻子# 关于死者的视频…很明显 溺水前被人殴打的很厉害 血都吐出来了。 http://t.cn/R57awjt</p>
-<p>
-	<small> ============== 12小时前</small>
 </p>
 <table>
     <tr>
