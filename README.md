@@ -95,7 +95,13 @@
 </h2>
 <p>晋城黑老大陈三，原名陈右哲，96年贩卖枪支判无期，06年出狱，09年霸占赵五志煤矿判刑，今天上午出狱。出监狱时，六辆悍马，二十辆路虎，三十辆奔驰，两辆猛禽装鞭炮，一万响鞭炮36盘，打手120个全部黑。该父亲原为城区医院院长，今天中午在海天大酒店摆了100桌。 http://t.cn/R5wpanO</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3979099363911957" target="freeweibo-mirror">周小平痛斥蔡英文的文章，蔡英文不會看，台灣的媒體也不會刊登，…</a>
+</h2>
+<p>周小平痛斥蔡英文的文章，蔡英文不會看，台灣的媒體也不會刊登，話語表達與台灣社會任何一個階層都是隔閡的，既不對症下藥，也不合乎時宜！建議涉台部門對周小平突擊培訓一下，這類文章自己看了痛快，他的領導部門看了也痛快，但其實只會起到反面效果⋯⋯ http://t.cn/R5wou2R</p>
+<p>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3979072050542182" target="freeweibo-mirror">SPAM 比较实用，因为是USB所以能带着走，教室里没空调没…</a>
 </h2>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3979010331244442" target="freeweibo-mirror">SPAM 伊利莎白一世要从坟墓里爬出来了</a>
 </h2>
 <p>SPAM 伊利莎白一世要从坟墓里爬出来了<br><br>RE: 果然是兄弟国家，口气都一样的[笑cry]<br><img src="http://ww4.sinaimg.cn/large/9b7ad381gw1f47do049rbj20hs0qota1.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3979006535958434" target="freeweibo-mirror">SPAM //@千里马常有: 太监总说做a很痛苦！[偷笑]</a>
-</h2>
-<p>SPAM //@千里马常有: 太监总说做a很痛苦！[偷笑]<br><br>RE: 果然是兄弟国家，口气都一样的[笑cry]<br><img src="http://ww4.sinaimg.cn/large/9b7ad381gw1f47do049rbj20hs0qota1.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
