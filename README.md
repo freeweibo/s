@@ -71,13 +71,19 @@
 </h2>
 <p>英文菜，原来中文更菜。<br><br>RE: 丧权辱省！省长蔡English面对米国佬便低三下气磕磕巴巴羞怯地自称自己说中文有问题，反被米国佬用中文安慰。看得尴尬癌都犯了，这可是台湾一人一票选出来的“国家元首”啊！真特么丧权辱省！ http://t.cn/R5ZlTWO http://t.cn/R5ZlTWO</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3978975473218951" target="freeweibo-mirror">中国人说自己中文不好是一种时髦吗？</a>
 </h2>
 <p>中国人说自己中文不好是一种时髦吗？<br><br>RE: 丧权辱省！省长蔡English面对米国佬便低三下气磕磕巴巴羞怯地自称自己说中文有问题，反被米国佬用中文安慰。看得尴尬癌都犯了，这可是台湾一人一票选出来的“国家元首”啊！真特么丧权辱省！ http://t.cn/R5ZlTWO http://t.cn/R5ZlTWO</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3978968182760933" target="freeweibo-mirror">#重庆生活# 网爆：25日凌晨，重庆红旗河沟和加州附近，多辆…</a>
+</h2>
+<p>#重庆生活# 网爆：25日凌晨，重庆红旗河沟和加州附近，多辆出租车围堵滴滴快车表示抗议。且要求降“板板钱”，要求严惩网约非法营运车辆，此次聚集有无人员伤亡暂时未知。我发起了一个投票 【你怎样看待出租车围堵快车事件？】http://t.cn/R5wLUuq<br><img src="http://ww2.sinaimg.cn/large/90070af8gw1f47evz0cd5j20hs0nq0vv.jpg"></p>
+<p>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3978960741837405" target="freeweibo-mirror">[哈哈]相对于personality disorder来说，…</a>
 </h2>
@@ -119,7 +125,7 @@
 </h2>
 <p>//@在等人V://@特许连锁李维华://@欢喜城的猪:自古以来。。。//@新阶梯: //@民间治堵人陈哲宏: //@胤懿:自古以来。。。。//@天快亮了2022: //@福州新人:自古以来。。。//@春又绿了: 转发微博<br><br>RE: 【自古以来】借用一下外交部的“自古以来”：自古以来，中国的寺庙都不收门票，你们一来，就筑高门坎收门票；自古以来，中国的土地房屋都私人所有，自由买卖，你们一来，就归你所有限制买卖；自古以来，百姓大江南北自由迁移，你们一来，就划地为牢户藉限制；自古以来，祖国的名胜古迹髙山大川自由欣赏...全文： http://m.weibo.cn/5711209226/3978649172289619</p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3978897773215175" target="freeweibo-mirror">抄完党章，再复习一下黑心思想。枪杆子里面出政权。白猫黑猫让儿…</a>
 </h2>
@@ -132,12 +138,6 @@
 <p>分享图片出租车又闹事了 貌似围住了一个滴滴!!<br><img src="http://ww3.sinaimg.cn/large/a14262cfgw1f475bnb3ryj20ij0dxq4a.jpg"></p>
 <p>
 	<small> ============== 12小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3978821248676192" target="freeweibo-mirror">SPAM 陆家嘴香艳皂[doge]目测，不是东方汇经就是太平…</a>
-</h2>
-<p>SPAM 陆家嘴香艳皂[doge]目测，不是东方汇经就是太平金融大厦？[哈哈][哈哈][哈哈]<br><br>RE: 大半夜的，有人发给我一个业内的香艳视频，我看完就睡不着了，打算发截图上来，让你们也不好好睡。[喵喵]<br><img src="http://ww4.sinaimg.cn/large/8d354b32jw1f46xdl7t1ij20u01hcgo3.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
 </p>
 <table>
     <tr>
