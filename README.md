@@ -19,6 +19,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3978975791395936" target="freeweibo-mirror">英文菜，原来中文更菜。</a>
+</h2>
+<p>英文菜，原来中文更菜。<br><br>RE: 丧权辱省！省长蔡English面对米国佬便低三下气磕磕巴巴羞怯地自称自己说中文有问题，反被米国佬用中文安慰。看得尴尬癌都犯了，这可是台湾一人一票选出来的“国家元首”啊！真特么丧权辱省！ http://t.cn/R5ZlTWO http://t.cn/R5ZlTWO</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3978975473218951" target="freeweibo-mirror">中国人说自己中文不好是一种时髦吗？</a>
 </h2>
 <p>中国人说自己中文不好是一种时髦吗？<br><br>RE: 丧权辱省！省长蔡English面对米国佬便低三下气磕磕巴巴羞怯地自称自己说中文有问题，反被米国佬用中文安慰。看得尴尬癌都犯了，这可是台湾一人一票选出来的“国家元首”啊！真特么丧权辱省！ http://t.cn/R5ZlTWO http://t.cn/R5ZlTWO</p>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3978793343075711" target="freeweibo-mirror">SPAM 在游乐场里，孩子跌倒很少哭泣。因为他们要赶着去玩，…</a>
 </h2>
 <p>SPAM 在游乐场里，孩子跌倒很少哭泣。因为他们要赶着去玩，没有时间哭泣。我们要把自己的人生过得像游乐场一样，尽情玩耍，没有时间沮丧。<br><img src="http://ww2.sinaimg.cn/large/77101dc1jw1f468l3qg4dj20qo0u977q.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3978787693116878" target="freeweibo-mirror">SPAM 这树做笔杆肯定更奇[赞]//@徐昕: [笑cry]…</a>
-</h2>
-<p>SPAM 这树做笔杆肯定更奇[赞]//@徐昕: [笑cry]//@孟彦弘:[笑cry]<br><br>RE: 这是一颗神奇的树！<br><img src="http://ww2.sinaimg.cn/large/6a3d7f8cjw1f46odz69f4j20go0m8wh6.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
