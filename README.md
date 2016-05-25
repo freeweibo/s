@@ -101,7 +101,7 @@
 </h2>
 <p>#重庆生活# 网爆：25日凌晨，重庆红旗河沟和加州附近，多辆出租车围堵滴滴快车表示抗议。且要求降“板板钱”，要求严惩网约非法营运车辆，此次聚集有无人员伤亡暂时未知。我发起了一个投票 【你怎样看待出租车围堵快车事件？】http://t.cn/R5wLUuq<br><img src="http://ww2.sinaimg.cn/large/90070af8gw1f47evz0cd5j20hs0nq0vv.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3978960741837405" target="freeweibo-mirror">[哈哈]相对于personality disorder来说，…</a>
 </h2>
