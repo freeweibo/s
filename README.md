@@ -107,7 +107,7 @@
 </h2>
 <p>SPAM 啧啧啧，这才是迷信，神憎鬼厌。 //@雁塔晓木屋:我日//@鲁壁藏书: 无法翻译成英语，可惜！//@新罗居士: 迷信！//@邱仦剛:祥瑞啊<br><br>RE: 这是一颗神奇的树！<br><img src="http://ww2.sinaimg.cn/large/6a3d7f8cjw1f46odz69f4j20go0m8wh6.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3978774305618013" target="freeweibo-mirror">//@石言内: 谁能给他挖坑？</a>
 </h2>
@@ -131,13 +131,13 @@
 </h2>
 <p>【金星村的银杏树奇观[赞]】2016年4月23日，国家公园投资考察之旅起航，并在24日圆满结束。来自五湖四海的朋友们在国家公园开化完成了一次基地投资寻宝之旅，考察了隐秘在开化县金星村的“深渡人家”。深渡银杏(浙江省最美古树)有三奇：一奇（2006年，千年银杏濒临枯亡，8月16日，时任浙江省委书记习近...全文： http://m.weibo.cn/2031805397/3978768173831945<br><img src="http://ww2.sinaimg.cn/large/791ae3d5gw1f46s6r3aflj20hs08vmyy.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3978767489167564" target="freeweibo-mirror">背诵党章，佩戴党徽//@水兵李铭://@书语晴://@佩尔琳…</a>
 </h2>
 <p>背诵党章，佩戴党徽//@水兵李铭://@书语晴://@佩尔琳_:[生病]病得不轻啊 //@刀锋论78:转发微博<br><br>RE: 不仔細看，我還以為我穿越了呢[抓狂][抓狂]<br><img src="http://ww1.sinaimg.cn/large/006nBcZngw1f46e9az3cpj30pa0r10xw.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p>
 <table>
     <tr>
