@@ -41,7 +41,7 @@
 </h2>
 <p>沐猴而冠@乔先生:“I have problem to say Chinese language” “知道”<br><br>RE: 丧权辱省！省长蔡English面对米国佬便低三下气磕磕巴巴羞怯地自称自己说中文有问题，反被米国佬用中文安慰。看得尴尬癌都犯了，这可是台湾一人一票选出来的“国家元首”啊！真特么丧权辱省！ http://t.cn/R5ZlTWO http://t.cn/R5ZlTWO</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3978931034389846" target="freeweibo-mirror">SPAM 万一中了呢！//@虽少光茫未必暗淡: 壕无人性， …</a>
 </h2>
@@ -61,6 +61,12 @@
 <p>
 	<small> ============== 6小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3978897773215175" target="freeweibo-mirror">抄完党章，再复习一下黑心思想。枪杆子里面出政权。白猫黑猫让儿…</a>
+</h2>
+<p>抄完党章，再复习一下黑心思想。枪杆子里面出政权。白猫黑猫让儿子们先富起来。闷声大发财，喝血社会，小组长的中国梦。睡觉。觉得今天这一天过得特别充实。[哈哈][哈哈][哈哈]<br><img src="http://ww4.sinaimg.cn/large/006tL7Zagw1f4777h0p0ug305c03kkh1.gif"></p>
+<p>
+	<small> ============== 7小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3978881507105054" target="freeweibo-mirror">分享图片出租车又闹事了 貌似围住了一个滴滴!!</a>
 </h2>
 <p>分享图片出租车又闹事了 貌似围住了一个滴滴!!<br><img src="http://ww3.sinaimg.cn/large/a14262cfgw1f475bnb3ryj20ij0dxq4a.jpg"></p>
@@ -77,7 +83,13 @@
 </h2>
 <p>SPAM 明天会有新闻吗 //@思饭辙://@傅峙峰WSJ:靠 你转发出来干嘛//@未未未未未生-实习小编WHY: 跟国师一起求//@傅峙峰WSJ：求视频<br><br>RE: 大半夜的，有人发给我一个业内的香艳视频，我看完就睡不着了，打算发截图上来，让你们也不好好睡。[喵喵]<br><img src="http://ww4.sinaimg.cn/large/8d354b32jw1f46xdl7t1ij20u01hcgo3.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3978815468509083" target="freeweibo-mirror">丧权辱省！省长蔡English面对米国佬便低三下气磕磕巴巴羞…</a>
+</h2>
+<p>丧权辱省！省长蔡English面对米国佬便低三下气磕磕巴巴羞怯地自称自己说中文有问题，反被米国佬用中文安慰。看得尴尬癌都犯了，这可是台湾一人一票选出来的“国家元首”啊！真特么丧权辱省！ http://t.cn/R5ZlTWO http://t.cn/R5ZlTWO</p>
+<p>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3978814273351235" target="freeweibo-mirror">SPAM 靠 你转发出来干嘛//@未未未未未生-实习小编WH…</a>
 </h2>
@@ -124,18 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3978787693116878" target="freeweibo-mirror">SPAM 这树做笔杆肯定更奇[赞]//@徐昕: [笑cry]…</a>
 </h2>
 <p>SPAM 这树做笔杆肯定更奇[赞]//@徐昕: [笑cry]//@孟彦弘:[笑cry]<br><br>RE: 这是一颗神奇的树！<br><img src="http://ww2.sinaimg.cn/large/6a3d7f8cjw1f46odz69f4j20go0m8wh6.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3978783675167910" target="freeweibo-mirror">[猪头][草泥马]//@科特迪瓦提督猩蜀黍：侯爷透过这副惨烈…</a>
-</h2>
-<p>[猪头][草泥马]//@科特迪瓦提督猩蜀黍：侯爷透过这副惨烈装逼图向我们坦荡荡地展示了某党在文化方面的本质</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3978783512168550" target="freeweibo-mirror">金星代言金星村，好主意。//@Tomas宇:可以请金星去当旅…</a>
-</h2>
-<p>金星代言金星村，好主意。//@Tomas宇:可以请金星去当旅游大使<br><br>RE: 【金星村的银杏树奇观[赞]】2016年4月23日，国家公园投资考察之旅起航，并在24日圆满结束。来自五湖四海的朋友们在国家公园开化完成了一次基地投资寻宝之旅，考察了隐秘在开化县金星村的“深渡人家”。深渡银杏(浙江省最美古树)有三奇：一奇（2006年，千年银杏濒临枯亡，8月16日，时任浙江省委书记习近...全文： http://m.weibo.cn/2031805397/3978768173831945<br><img src="http://ww2.sinaimg.cn/large/791ae3d5gw1f46s6r3aflj20hs08vmyy.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
