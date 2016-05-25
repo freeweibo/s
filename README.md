@@ -59,7 +59,7 @@
 </h2>
 <p>SPAM //@千里马常有: 太监总说做a很痛苦！[偷笑]<br><br>RE: 果然是兄弟国家，口气都一样的[笑cry]<br><img src="http://ww4.sinaimg.cn/large/9b7ad381gw1f47do049rbj20hs0qota1.jpg"></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3979002178095261" target="freeweibo-mirror">【好文分享】1、当你被关进精神病院，如何证明自己不是精神病？…</a>
 </h2>
