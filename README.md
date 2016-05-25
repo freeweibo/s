@@ -35,7 +35,7 @@
 </h2>
 <p>SPAM 伊利莎白一世要从坟墓里爬出来了<br><br>RE: 果然是兄弟国家，口气都一样的[笑cry]<br><img src="http://ww4.sinaimg.cn/large/9b7ad381gw1f47do049rbj20hs0qota1.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3979006535958434" target="freeweibo-mirror">SPAM //@千里马常有: 太监总说做a很痛苦！[偷笑]</a>
 </h2>
@@ -137,7 +137,7 @@
 </h2>
 <p>分享图片出租车又闹事了 貌似围住了一个滴滴!!<br><img src="http://ww3.sinaimg.cn/large/a14262cfgw1f475bnb3ryj20ij0dxq4a.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p>
 <table>
     <tr>
