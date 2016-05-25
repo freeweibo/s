@@ -77,7 +77,7 @@
 </h2>
 <p>SPAM 在游乐场里，孩子跌倒很少哭泣。因为他们要赶着去玩，没有时间哭泣。我们要把自己的人生过得像游乐场一样，尽情玩耍，没有时间沮丧。<br><img src="http://ww2.sinaimg.cn/large/77101dc1jw1f468l3qg4dj20qo0u977q.jpg"></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3978787693116878" target="freeweibo-mirror">SPAM 这树做笔杆肯定更奇[赞]//@徐昕: [笑cry]…</a>
 </h2>
@@ -125,7 +125,7 @@
 </h2>
 <p>还敢信？//@章诒和:第一把手不是对社科界刚讲过要“宽松”“包容”吗？说的和做的咋不一样呢？让我们信哪头呀？//@去V的刘建锋: 转发微博<br><br>RE: 一群狗屁不通的党棍“巡视”社科院，要求政治审查学者专家的研究成果，对敢于直言者横加指责，利用“巡视”权力任意扣帽子打棍子，这和习总的“三不”承诺直接相左，意欲何为？难道又是“给老大挖坑”？[怒][抓狂]<br><img src="http://ww2.sinaimg.cn/large/53bd81b0jw1f46pgb36dgj20m808wjti.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3978768173831945" target="freeweibo-mirror">【金星村的银杏树奇观[赞]】2016年4月23日，国家公园投…</a>
 </h2>
