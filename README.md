@@ -23,7 +23,7 @@
 </h2>
 <p>SPAM 万一中了呢！//@虽少光茫未必暗淡: 壕无人性， “生态合作”连环爆，粉丝福利新标杆！//@超级手机: #十核高能，实力在沃# 支持联通乐2实力版，转发本微博并@超级手机 @中国联通 ，手机君加送#超级手机乐2#两台。</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3978914525448344" target="freeweibo-mirror">//@在等人V://@特许连锁李维华://@欢喜城的猪:自古…</a>
 </h2>
@@ -89,7 +89,7 @@
 </h2>
 <p>SPAM 这树做笔杆肯定更奇[赞]//@徐昕: [笑cry]//@孟彦弘:[笑cry]<br><br>RE: 这是一颗神奇的树！<br><img src="http://ww2.sinaimg.cn/large/6a3d7f8cjw1f46odz69f4j20go0m8wh6.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3978783675167910" target="freeweibo-mirror">[猪头][草泥马]//@科特迪瓦提督猩蜀黍：侯爷透过这副惨烈…</a>
 </h2>
