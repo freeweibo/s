@@ -59,7 +59,7 @@
 </h2>
 <p>沐猴而冠@乔先生:“I have problem to say Chinese language” “知道”<br><br>RE: 丧权辱省！省长蔡English面对米国佬便低三下气磕磕巴巴羞怯地自称自己说中文有问题，反被米国佬用中文安慰。看得尴尬癌都犯了，这可是台湾一人一票选出来的“国家元首”啊！真特么丧权辱省！ http://t.cn/R5ZlTWO http://t.cn/R5ZlTWO</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3978931034389846" target="freeweibo-mirror">SPAM 万一中了呢！//@虽少光茫未必暗淡: 壕无人性， …</a>
 </h2>
