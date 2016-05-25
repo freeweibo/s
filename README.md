@@ -89,7 +89,7 @@
 </h2>
 <p>#重庆生活# 网爆：25日凌晨，重庆红旗河沟和加州附近，多辆出租车围堵滴滴快车表示抗议。且要求降“板板钱”，要求严惩网约非法营运车辆，此次聚集有无人员伤亡暂时未知。我发起了一个投票 【你怎样看待出租车围堵快车事件？】http://t.cn/R5wLUuq<br><img src="http://ww2.sinaimg.cn/large/90070af8gw1f47evz0cd5j20hs0nq0vv.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3978960741837405" target="freeweibo-mirror">[哈哈]相对于personality disorder来说，…</a>
 </h2>
@@ -107,7 +107,7 @@
 </h2>
 <p>SPAM 新华社这段“单身原罪论”，令人瞠目结舌，再一次刷新了无耻的下限。<br><img src="http://ww1.sinaimg.cn/large/77101dc1jw1f47dj1q9t8j20f00qo0vq.jpg"></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3978947915768451" target="freeweibo-mirror">沐猴而冠@乔先生:“I have problem to sa…</a>
 </h2>
@@ -131,7 +131,7 @@
 </h2>
 <p>//@在等人V://@特许连锁李维华://@欢喜城的猪:自古以来。。。//@新阶梯: //@民间治堵人陈哲宏: //@胤懿:自古以来。。。。//@天快亮了2022: //@福州新人:自古以来。。。//@春又绿了: 转发微博<br><br>RE: 【自古以来】借用一下外交部的“自古以来”：自古以来，中国的寺庙都不收门票，你们一来，就筑高门坎收门票；自古以来，中国的土地房屋都私人所有，自由买卖，你们一来，就归你所有限制买卖；自古以来，百姓大江南北自由迁移，你们一来，就划地为牢户藉限制；自古以来，祖国的名胜古迹髙山大川自由欣赏...全文： http://m.weibo.cn/5711209226/3978649172289619</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3978897773215175" target="freeweibo-mirror">抄完党章，再复习一下黑心思想。枪杆子里面出政权。白猫黑猫让儿…</a>
 </h2>
