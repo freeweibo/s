@@ -71,7 +71,7 @@
 </h2>
 <p>//@一个老实人V: //@王修216://@热血6132911:[哈哈]新闻连起来看才有意思 //@軍魂-IV://@神游再归来: //@摩羯老潘A:怪不得那些以通奸为荣的贪官污吏们都幸福得不得了[嘻嘻][哈哈]//@王林的微博客://@I核I平I奖:    http://t.cn/R5w2OEU    //@余渔yu:[哈哈]//@老饕加佑:转发微博<br><br>RE: 果然是兄弟国家，口气都一样的[笑cry]<br><img src="http://ww4.sinaimg.cn/large/9b7ad381gw1f47do049rbj20hs0qota1.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3978979034006818" target="freeweibo-mirror">SPAM //@冷俊123:呵呵呵。//@穿越时空cyc:/…</a>
 </h2>
@@ -113,7 +113,7 @@
 </h2>
 <p>果然是兄弟国家，口气都一样的[笑cry]<br><img src="http://ww4.sinaimg.cn/large/9b7ad381gw1f47do049rbj20hs0qota1.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3978952806832323" target="freeweibo-mirror">SPAM 新华社这段“单身原罪论”，令人瞠目结舌，再一次刷新…</a>
 </h2>
@@ -125,7 +125,7 @@
 </h2>
 <p>沐猴而冠@乔先生:“I have problem to say Chinese language” “知道”<br><br>RE: 丧权辱省！省长蔡English面对米国佬便低三下气磕磕巴巴羞怯地自称自己说中文有问题，反被米国佬用中文安慰。看得尴尬癌都犯了，这可是台湾一人一票选出来的“国家元首”啊！真特么丧权辱省！ http://t.cn/R5ZlTWO http://t.cn/R5ZlTWO</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3978931034389846" target="freeweibo-mirror">SPAM 万一中了呢！//@虽少光茫未必暗淡: 壕无人性， …</a>
 </h2>
