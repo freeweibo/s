@@ -31,6 +31,12 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3979141894058827" target="freeweibo-mirror">晋城黑老大陈三，原名陈右哲，96年贩卖枪支判无期，06年出狱…</a>
+</h2>
+<p>晋城黑老大陈三，原名陈右哲，96年贩卖枪支判无期，06年出狱，09年霸占赵五志煤矿判刑，今天上午出狱。出监狱时，六辆悍马，二十辆路虎，三十辆奔驰，两辆猛禽装鞭炮，一万响鞭炮36盘，打手120个全部黑。该父亲原为城区医院院长，今天中午在海天大酒店摆了100桌。 http://t.cn/R5wpanO</p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3979072050542182" target="freeweibo-mirror">SPAM 比较实用，因为是USB所以能带着走，教室里没空调没…</a>
 </h2>
 <p>SPAM 比较实用，因为是USB所以能带着走，教室里没空调没电扇的来一个吧……对了，爱自拍的也有用。</p>
@@ -83,7 +89,7 @@
 </h2>
 <p>//@一个老实人V: //@王修216://@热血6132911:[哈哈]新闻连起来看才有意思 //@軍魂-IV://@神游再归来: //@摩羯老潘A:怪不得那些以通奸为荣的贪官污吏们都幸福得不得了[嘻嘻][哈哈]//@王林的微博客://@I核I平I奖:    http://t.cn/R5w2OEU    //@余渔yu:[哈哈]//@老饕加佑:转发微博<br><br>RE: 果然是兄弟国家，口气都一样的[笑cry]<br><img src="http://ww4.sinaimg.cn/large/9b7ad381gw1f47do049rbj20hs0qota1.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3978979034006818" target="freeweibo-mirror">SPAM //@冷俊123:呵呵呵。//@穿越时空cyc:/…</a>
 </h2>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3978952806832323" target="freeweibo-mirror">SPAM 新华社这段“单身原罪论”，令人瞠目结舌，再一次刷新…</a>
 </h2>
 <p>SPAM 新华社这段“单身原罪论”，令人瞠目结舌，再一次刷新了无耻的下限。<br><img src="http://ww1.sinaimg.cn/large/77101dc1jw1f47dj1q9t8j20f00qo0vq.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3978947915768451" target="freeweibo-mirror">沐猴而冠@乔先生:“I have problem to sa…</a>
-</h2>
-<p>沐猴而冠@乔先生:“I have problem to say Chinese language” “知道”<br><br>RE: 丧权辱省！省长蔡English面对米国佬便低三下气磕磕巴巴羞怯地自称自己说中文有问题，反被米国佬用中文安慰。看得尴尬癌都犯了，这可是台湾一人一票选出来的“国家元首”啊！真特么丧权辱省！ http://t.cn/R5ZlTWO http://t.cn/R5ZlTWO</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
