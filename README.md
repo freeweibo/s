@@ -23,7 +23,7 @@
 </h2>
 <p>SPAM 新华社这段“单身原罪论”，令人瞠目结舌，再一次刷新了无耻的下限。<br><img src="http://ww1.sinaimg.cn/large/77101dc1jw1f47dj1q9t8j20f00qo0vq.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3978931034389846" target="freeweibo-mirror">SPAM 万一中了呢！//@虽少光茫未必暗淡: 壕无人性， …</a>
 </h2>
