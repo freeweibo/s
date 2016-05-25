@@ -29,7 +29,7 @@
 </h2>
 <p>SPAM 堵的好，堵的妙，堵的鬼子嗷嗷叫！嗷嗷叫！//@清澈的空中之眼: 我参与了@我爱重庆 发起的投票 【你怎样看待出租车围堵快车事件？】，我投给了“被出租车各种拒载过坑过，想说：活该！”这个选项。你也快来表态吧~<br><br>RE: #重庆生活# 网爆：25日凌晨，重庆红旗河沟和加州附近，多辆出租车围堵滴滴快车表示抗议。且要求降“板板钱”，要求严惩网约非法营运车辆，此次聚集有无人员伤亡暂时未知。我发起了一个投票 【你怎样看待出租车围堵快车事件？】http://t.cn/R5wLUuq<br><img src="http://ww2.sinaimg.cn/large/90070af8gw1f47evz0cd5j20hs0nq0vv.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3979018929926633" target="freeweibo-mirror">来个猪肉餐你吃会死人吗？哦，真会死……后见不到安拉或失去72…</a>
 </h2>
@@ -125,7 +125,7 @@
 </h2>
 <p>SPAM #博友爆料# 什么情况？出租车和滴滴车的决斗？[话筒][话筒][话筒]@段贵发 @西子丹67 @民间治堵人陈哲宏<br><br>RE: 分享图片出租车又闹事了 貌似围住了一个滴滴!!<br><img src="http://ww3.sinaimg.cn/large/a14262cfgw1f475bnb3ryj20ij0dxq4a.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3978914525448344" target="freeweibo-mirror">//@在等人V://@特许连锁李维华://@欢喜城的猪:自古…</a>
 </h2>
