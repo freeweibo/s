@@ -89,19 +89,19 @@
 </h2>
 <p>英文菜，原来中文更菜。<br><br>RE: 丧权辱省！省长蔡English面对米国佬便低三下气磕磕巴巴羞怯地自称自己说中文有问题，反被米国佬用中文安慰。看得尴尬癌都犯了，这可是台湾一人一票选出来的“国家元首”啊！真特么丧权辱省！ http://t.cn/R5ZlTWO http://t.cn/R5ZlTWO</p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3978975473218951" target="freeweibo-mirror">中国人说自己中文不好是一种时髦吗？</a>
 </h2>
 <p>中国人说自己中文不好是一种时髦吗？<br><br>RE: 丧权辱省！省长蔡English面对米国佬便低三下气磕磕巴巴羞怯地自称自己说中文有问题，反被米国佬用中文安慰。看得尴尬癌都犯了，这可是台湾一人一票选出来的“国家元首”啊！真特么丧权辱省！ http://t.cn/R5ZlTWO http://t.cn/R5ZlTWO</p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3978968182760933" target="freeweibo-mirror">#重庆生活# 网爆：25日凌晨，重庆红旗河沟和加州附近，多辆…</a>
 </h2>
 <p>#重庆生活# 网爆：25日凌晨，重庆红旗河沟和加州附近，多辆出租车围堵滴滴快车表示抗议。且要求降“板板钱”，要求严惩网约非法营运车辆，此次聚集有无人员伤亡暂时未知。我发起了一个投票 【你怎样看待出租车围堵快车事件？】http://t.cn/R5wLUuq<br><img src="http://ww2.sinaimg.cn/large/90070af8gw1f47evz0cd5j20hs0nq0vv.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3978960741837405" target="freeweibo-mirror">[哈哈]相对于personality disorder来说，…</a>
 </h2>
