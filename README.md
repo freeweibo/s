@@ -29,13 +29,13 @@
 </h2>
 <p>SPAM 不清楚<br><br>RE: 既然原文被高效删除，就再发一遍图片。持续关注雷洋案。<br><img src="http://ww2.sinaimg.cn/large/47665bc1jw1f481wq2r1bj205n502wqg.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3979166438843929" target="freeweibo-mirror">SPAM //@肾肾先生://@城南邮局:她在的时候就好好爱…</a>
 </h2>
 <p>SPAM //@肾肾先生://@城南邮局:她在的时候就好好爱她 不在的时候就思念她</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3979165298605659" target="freeweibo-mirror">既然原文被高效删除，就再发一遍图片。持续关注雷洋案。</a>
 </h2>
