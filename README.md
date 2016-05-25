@@ -19,6 +19,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3978975473218951" target="freeweibo-mirror">中国人说自己中文不好是一种时髦吗？</a>
+</h2>
+<p>中国人说自己中文不好是一种时髦吗？<br><br>RE: 丧权辱省！省长蔡English面对米国佬便低三下气磕磕巴巴羞怯地自称自己说中文有问题，反被米国佬用中文安慰。看得尴尬癌都犯了，这可是台湾一人一票选出来的“国家元首”啊！真特么丧权辱省！ http://t.cn/R5ZlTWO http://t.cn/R5ZlTWO</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3978960741837405" target="freeweibo-mirror">[哈哈]相对于personality disorder来说，…</a>
 </h2>
 <p>[哈哈]相对于personality disorder来说，狗格大爆发。 //@护A盘:狗狗竟然.......着实令兽医（资深）[吃惊]转给@手术刀_李医生 分析研究[偷笑]//@小贝的真妮花: [拍照] //<br><br>RE: 抄完党章，再复习一下黑心思想。枪杆子里面出政权。白猫黑猫让儿子们先富起来。闷声大发财，喝血社会，小组长的中国梦。睡觉。觉得今天这一天过得特别充实。[哈哈][哈哈][哈哈]<br><img src="http://ww4.sinaimg.cn/large/006tL7Zagw1f4777h0p0ug305c03kkh1.gif"></p>
@@ -89,13 +95,13 @@
 </h2>
 <p>SPAM 妈呀 股社区直播了 罪过罪过<br><br>RE: 大半夜的，有人发给我一个业内的香艳视频，我看完就睡不着了，打算发截图上来，让你们也不好好睡。[喵喵]<br><img src="http://ww4.sinaimg.cn/large/8d354b32jw1f46xdl7t1ij20u01hcgo3.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3978812964076302" target="freeweibo-mirror">SPAM 午夜狂飙了[鼓掌] //@霜叶不活跃:老司机快开车</a>
 </h2>
 <p>SPAM 午夜狂飙了[鼓掌] //@霜叶不活跃:老司机快开车<br><br>RE: 大半夜的，有人发给我一个业内的香艳视频，我看完就睡不着了，打算发截图上来，让你们也不好好睡。[喵喵]<br><img src="http://ww4.sinaimg.cn/large/8d354b32jw1f46xdl7t1ij20u01hcgo3.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3978812208749374" target="freeweibo-mirror">大半夜的，有人发给我一个业内的香艳视频，我看完就睡不着了，打…</a>
 </h2>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3978783512168550" target="freeweibo-mirror">金星代言金星村，好主意。//@Tomas宇:可以请金星去当旅…</a>
 </h2>
 <p>金星代言金星村，好主意。//@Tomas宇:可以请金星去当旅游大使<br><br>RE: 【金星村的银杏树奇观[赞]】2016年4月23日，国家公园投资考察之旅起航，并在24日圆满结束。来自五湖四海的朋友们在国家公园开化完成了一次基地投资寻宝之旅，考察了隐秘在开化县金星村的“深渡人家”。深渡银杏(浙江省最美古树)有三奇：一奇（2006年，千年银杏濒临枯亡，8月16日，时任浙江省委书记习近...全文： http://m.weibo.cn/2031805397/3978768173831945<br><img src="http://ww2.sinaimg.cn/large/791ae3d5gw1f46s6r3aflj20hs08vmyy.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3978779392509913" target="freeweibo-mirror">SPAM //@真意气书生5: 最好是蘸着初血和精液写——别…</a>
-</h2>
-<p>SPAM //@真意气书生5: 最好是蘸着初血和精液写——别说俺下流，反正是比着恶心呗。 //@陈满华CMH:有蔚然成风之势。</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
