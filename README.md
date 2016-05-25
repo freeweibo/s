@@ -19,6 +19,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3979245003139505" target="freeweibo-mirror">SPAM ...</a>
+</h2>
+<p>SPAM ...</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3979174685280754" target="freeweibo-mirror">SPAM 我有故事，你有酒吗？来看故事吧 [心] V信：sh…</a>
 </h2>
 <p>SPAM 我有故事，你有酒吗？来看故事吧 [心] V信：shuiqiangushi520</p>
@@ -125,17 +131,11 @@
 </h2>
 <p>周小平痛斥蔡英文的文章，蔡英文不會看，台灣的媒體也不會刊登，話語表達與台灣社會任何一個階層都是隔閡的，既不對症下藥，也不合乎時宜！建議涉台部門對周小平突擊培訓一下，這類文章自己看了痛快，他的領導部門看了也痛快，但其實只會起到反面效果⋯⋯ http://t.cn/R5wou2R</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3979072050542182" target="freeweibo-mirror">SPAM 比较实用，因为是USB所以能带着走，教室里没空调没…</a>
 </h2>
 <p>SPAM 比较实用，因为是USB所以能带着走，教室里没空调没电扇的来一个吧……对了，爱自拍的也有用。</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3979071936919391" target="freeweibo-mirror">李洪岩、范旭仑考证钱在牛津学位非副博士，杨给丁部长打电话哭诉…</a>
-</h2>
-<p>李洪岩、范旭仑考证钱在牛津学位非副博士，杨给丁部长打电话哭诉，李范之书销禁。所以今天这趟“RIP”的车我没搭 //@王小山: 然后又心安理得地写岁月静好，一家三口各种趣事。唉，活久见//@张晓舟:1996年王小波家聚会，“丁部长”一直是王小波舌尖上的笑话 //@喵污君:冷刻、精明，以及隐秘的利己主义</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
