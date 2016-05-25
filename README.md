@@ -59,7 +59,7 @@
 </h2>
 <p>果然是兄弟国家，口气都一样的[笑cry]<br><img src="http://ww4.sinaimg.cn/large/9b7ad381gw1f47do049rbj20hs0qota1.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3978952806832323" target="freeweibo-mirror">SPAM 新华社这段“单身原罪论”，令人瞠目结舌，再一次刷新…</a>
 </h2>
