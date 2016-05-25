@@ -19,6 +19,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3979029335392776" target="freeweibo-mirror">SPAM 堵的好，堵的妙，堵的鬼子嗷嗷叫！嗷嗷叫！//@清澈…</a>
+</h2>
+<p>SPAM 堵的好，堵的妙，堵的鬼子嗷嗷叫！嗷嗷叫！//@清澈的空中之眼: 我参与了@我爱重庆 发起的投票 【你怎样看待出租车围堵快车事件？】，我投给了“被出租车各种拒载过坑过，想说：活该！”这个选项。你也快来表态吧~<br><br>RE: #重庆生活# 网爆：25日凌晨，重庆红旗河沟和加州附近，多辆出租车围堵滴滴快车表示抗议。且要求降“板板钱”，要求严惩网约非法营运车辆，此次聚集有无人员伤亡暂时未知。我发起了一个投票 【你怎样看待出租车围堵快车事件？】http://t.cn/R5wLUuq<br><img src="http://ww2.sinaimg.cn/large/90070af8gw1f47evz0cd5j20hs0nq0vv.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3979010331244442" target="freeweibo-mirror">SPAM 伊利莎白一世要从坟墓里爬出来了</a>
 </h2>
 <p>SPAM 伊利莎白一世要从坟墓里爬出来了<br><br>RE: 果然是兄弟国家，口气都一样的[笑cry]<br><img src="http://ww4.sinaimg.cn/large/9b7ad381gw1f47do049rbj20hs0qota1.jpg"></p>
@@ -35,7 +41,7 @@
 </h2>
 <p>【好文分享】1、当你被关进精神病院，如何证明自己不是精神病？2、孩子，有人打你，你要打他！。3、中国电影为什么烂，冯小刚几句话就 说明白了！4、民国红颜录！5、北大发布全国最好 医院排名，关键时刻救命。6、一个披着 资本主义外衣的真正共产主义国家，惊呆了！更多精彩请添加关注：zhebsls<br><img src="http://ww4.sinaimg.cn/large/9647a31ejw1f47j76cpryj20j60y3mze.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3979000650499314" target="freeweibo-mirror">//@一个老实人V: //@王修216://@热血61329…</a>
 </h2>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3978818723717909" target="freeweibo-mirror">SPAM 明天会有新闻吗 //@思饭辙://@傅峙峰WSJ:…</a>
 </h2>
 <p>SPAM 明天会有新闻吗 //@思饭辙://@傅峙峰WSJ:靠 你转发出来干嘛//@未未未未未生-实习小编WHY: 跟国师一起求//@傅峙峰WSJ：求视频<br><br>RE: 大半夜的，有人发给我一个业内的香艳视频，我看完就睡不着了，打算发截图上来，让你们也不好好睡。[喵喵]<br><img src="http://ww4.sinaimg.cn/large/8d354b32jw1f46xdl7t1ij20u01hcgo3.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3978815468509083" target="freeweibo-mirror">丧权辱省！省长蔡English面对米国佬便低三下气磕磕巴巴羞…</a>
-</h2>
-<p>丧权辱省！省长蔡English面对米国佬便低三下气磕磕巴巴羞怯地自称自己说中文有问题，反被米国佬用中文安慰。看得尴尬癌都犯了，这可是台湾一人一票选出来的“国家元首”啊！真特么丧权辱省！ http://t.cn/R5ZlTWO http://t.cn/R5ZlTWO</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
