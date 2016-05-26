@@ -25,6 +25,18 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3979343858480792" target="freeweibo-mirror">[围观]//@老猫上灯台: //@张忆安-龙战于野:快变成沙…</a>
+</h2>
+<p>[围观]//@老猫上灯台: //@张忆安-龙战于野:快变成沙特了吧？//@老端:太可怕啦，一个小县的民宗局就这么强大。<br><br>RE: 发布了头条文章：《永宁县民族宗教局，老子和你卯上了》 所有文件全部为政府公开文件，记录了2011至2016年一个平和的地方如何一步步极端化最终连学校都不放过。我知道和政府作对的代价，但我是教师，学校的学生是无辜的，只有这点，决不妥协 http://t.cn/R5wkcSi</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3979338484917360" target="freeweibo-mirror">SPAM 钉子板凳是真的吗？[笑cry][笑cry]</a>
+</h2>
+<p>SPAM 钉子板凳是真的吗？[笑cry][笑cry]<br><br>RE: 【中国制造】最近两个中国的新发明在Twitter上已经扬名全球。 烟台公园收费板凳，坐前投币，钉子就会下去，超过时间限制钉子就会顶上来； 浙江立交下镶满尖钉水泥墩，彻底解决了无家可归的流浪者露宿桥下影响市容的问题。 我国万事不先进，唯独“防民术”超过先进国。——梁启超 http://t.cn/R5wFFef<br><img src="http://ww4.sinaimg.cn/large/6fafc189jw1f48kjl8xjyj20cs0t5abo.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3979332139508322" target="freeweibo-mirror">SPAM 卧槽，这是什么梗？</a>
 </h2>
 <p>SPAM 卧槽，这是什么梗？</p>
@@ -124,18 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3979166438843929" target="freeweibo-mirror">SPAM //@肾肾先生://@城南邮局:她在的时候就好好爱…</a>
 </h2>
 <p>SPAM //@肾肾先生://@城南邮局:她在的时候就好好爱她 不在的时候就思念她</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3979165298605659" target="freeweibo-mirror">既然原文被高效删除，就再发一遍图片。持续关注雷洋案。</a>
-</h2>
-<p>既然原文被高效删除，就再发一遍图片。持续关注雷洋案。<br><img src="http://ww2.sinaimg.cn/large/47665bc1jw1f481wq2r1bj205n502wqg.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3979164711286485" target="freeweibo-mirror">SPAM //@一湖一天堂: 如周某翻墙则违法，否则请网警解…</a>
-</h2>
-<p>SPAM //@一湖一天堂: 如周某翻墙则违法，否则请网警解释//@哥们风太大: →_→//@愉快的小痘痘: 我就问一句“@周小平先生 在哪看的蔡英文就职演说？”还认真的看完了？发出来让大家都看看，让我们也挑挑毛病找找漏洞攻击攻击她行不？<br><br>RE: 周小平痛斥蔡英文的文章，蔡英文不會看，台灣的媒體也不會刊登，話語表達與台灣社會任何一個階層都是隔閡的，既不對症下藥，也不合乎時宜！建議涉台部門對周小平突擊培訓一下，這類文章自己看了痛快，他的領導部門看了也痛快，但其實只會起到反面效果⋯⋯ http://t.cn/R5wou2R</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
