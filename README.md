@@ -25,6 +25,12 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3979439936680972" target="freeweibo-mirror">SPAM 我似乎帮女运动员找到了成功的方法！[奥特曼]</a>
+</h2>
+<p>SPAM 我似乎帮女运动员找到了成功的方法！[奥特曼]<br><img src="http://ww1.sinaimg.cn/large/a71a21a5jw1f48xbzjxcjj20c80g9tah.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3979419464534936" target="freeweibo-mirror">SPAM 这绝对是最好的六一</a>
 </h2>
 <p>SPAM 这绝对是最好的六一</p>
@@ -47,13 +53,13 @@
 </h2>
 <p>SPAM 【好文分享】1、这辈子我不会再喝一滴牛奶！2、孩子，有人打你，你要打他！。3、中国电影为什么烂，冯小刚几句话就说明白了！4、民国红颜录！5、中国最缺德的人出现了！！人人要看。6、天色将晚，抱妻上 床；世间破事，去他个娘。！更多精彩请添加关注：zhebsls<br><img src="http://ww4.sinaimg.cn/large/9647a31ejw1f48u0r9ldqj20j60y3mze.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3979409331515101" target="freeweibo-mirror">//@西子丹67:原文《雷洋案：嫖娼之外的另一种可能》htt…</a>
 </h2>
 <p>//@西子丹67:原文《雷洋案：嫖娼之外的另一种可能》http://t.cn/R5AbvZ8[话筒][话筒][话筒]<br><br>RE: 【最新观点：雷洋死于警察错抓】今天上午，看了《雷洋案：嫖娼之外的另一种可能http://weibo.com/ttarticle/p/show》的文章后，本博认为，笔者经实地考证、缜密分析后得出的“警察抓错了去足疗店门口公交车站等车的雷洋”的逻辑结论，合乎情理，无懈可击。相较于昌平警方先前漏洞百出的说辞，公众应该...全文： http://m.weibo.cn/3675736060/3979398238090409<br><img src="http://ww1.sinaimg.cn/large/db1747fcgw1f48sjmrzp7j20g40ci0ul.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3979403786652905" target="freeweibo-mirror">SPAM 【等公交车引发的血案】就某热点事件，某有考据癖的网…</a>
 </h2>
@@ -71,7 +77,7 @@
 </h2>
 <p>有这种事？不会吧？//@钱中华: 转发微博</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3979381762907403" target="freeweibo-mirror">SPAM #寻人平台# 叶可意，（女）9岁，台州市椒江区吴叶…</a>
 </h2>
@@ -113,7 +119,7 @@
 </h2>
 <p>算依法检查，群众的批评是否干预行政呢？请洗地党快来挺民宗局，批评媒体造谣煽情，支持有关部门依法办事。//@Kasrsenclave:宗教局还真可以管学校。根据2000年《关于在各级各类学校设置清真食堂、清真灶有关问题的通知》规定：凡是十个清真饭食习惯的少数民族寄宿制中小学和幼儿园，必须建立清真食堂。<br><br>RE: 发布了头条文章：《永宁县民族宗教局，老子和你卯上了》 所有文件全部为政府公开文件，记录了2011至2016年一个平和的地方如何一步步极端化最终连学校都不放过。我知道和政府作对的代价，但我是教师，学校的学生是无辜的，只有这点，决不妥协 http://t.cn/R5wkcSi</p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3979362430698995" target="freeweibo-mirror">[哈哈]右边SB蛮自信的，那就不妨放开让大家表态，怕啥？//…</a>
 </h2>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3979359243237097" target="freeweibo-mirror">不得了，这是搞国中之国啊//@笑劉忙:转：永宁那边的情况是这…</a>
 </h2>
 <p>不得了，这是搞国中之国啊//@笑劉忙:转：永宁那边的情况是这样的  宁夏已经从宁南回族聚居区搞了很多年的生态移民    而搬迁过去的回族就立即抱团  ；我所知的欺行霸市  专线运营之类的不在少数     一条线的大巴小巴只许某几家运营      有其他人做通常会被砸车胖揍  然后这个事情就变成民族宗教事件<br><br>RE: 发布了头条文章：《永宁县民族宗教局，老子和你卯上了》 所有文件全部为政府公开文件，记录了2011至2016年一个平和的地方如何一步步极端化最终连学校都不放过。我知道和政府作对的代价，但我是教师，学校的学生是无辜的，只有这点，决不妥协 http://t.cn/R5wkcSi</p>
-<p>
-	<small> ============== 8小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3979358790159091" target="freeweibo-mirror">SPAM 推荐阅读：走向死亡的农村！</a>
-</h2>
-<p>SPAM 推荐阅读：走向死亡的农村！</p>
 <p>
 	<small> ============== 8小时前</small>
 </p>
