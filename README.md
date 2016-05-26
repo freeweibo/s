@@ -25,6 +25,12 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3979513748449540" target="freeweibo-mirror">站错队，这才是实质。</a>
+</h2>
+<p>站错队，这才是实质。<br><img src="http://ww2.sinaimg.cn/large/006r3yEJjw1f495y9m9kvj30f00qogo9.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3979511181850150" target="freeweibo-mirror">SPAM 一个淳朴的养蜂人，看他微博可以学习很多知识，值得关…</a>
 </h2>
 <p>SPAM 一个淳朴的养蜂人，看他微博可以学习很多知识，值得关注！[赞]</p>
@@ -71,7 +77,7 @@
 </h2>
 <p>SPAM （虾扯蛋）一直想听党的话，向少奇学习，没想到:少奇成了叛徒内奸工贼！接着又想向林彪学习，又没想到:彪叔叛国潜逃摔死了！后来又向警察叔叔学习，更没想到:康师傅成了贪污犯给抓起来了！现在想来惊了一身汗:幸亏没敢认真学习，否则，秦城监狱也有俺一席之地！微评:谁说不好好学习都是"错"？[嘻嘻]<br><img src="http://ww4.sinaimg.cn/large/006maboJjw1f48ztbph7qj30ek0ergmh.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3979450414031017" target="freeweibo-mirror">呃，多抄党章 //@广州城堡堡主:领导们一番苦心要大家多读书…</a>
 </h2>
@@ -132,12 +138,6 @@
 <p>SPAM 【等公交车引发的血案】就某热点事件，某有考据癖的网友做了迄今为止最合情合理的分析。原文太长，简单说就是雷军家族一个500年前的亲戚去足疗店门口的车站坐车，然后就被抓了然后就没有然后了。这种可能性更加合情合理，所有疑点都能得到解释。 此文已被删三次，这是第四次发，再次被删前赶紧看。 朗...全文： http://m.weibo.cn/1494819104/3979403786652905<br><img src="http://ww4.sinaimg.cn/large/59192120gw1f48tb3it8qj20dw07kwfg.jpg"></p>
 <p>
 	<small> ============== 9小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3979398238090409" target="freeweibo-mirror">【最新观点：雷洋死于警察错抓】今天上午，看了《雷洋案：嫖娼之…</a>
-</h2>
-<p>【最新观点：雷洋死于警察错抓】今天上午，看了《雷洋案：嫖娼之外的另一种可能http://weibo.com/ttarticle/p/show》的文章后，本博认为，笔者经实地考证、缜密分析后得出的“警察抓错了去足疗店门口公交车站等车的雷洋”的逻辑结论，合乎情理，无懈可击。相较于昌平警方先前漏洞百出的说辞，公众应该...全文： http://m.weibo.cn/3675736060/3979398238090409<br><img src="http://ww1.sinaimg.cn/large/db1747fcgw1f48sjmrzp7j20g40ci0ul.jpg"></p>
-<p>
-	<small> ============== 10小时前</small>
 </p>
 <table>
     <tr>
