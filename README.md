@@ -29,7 +29,7 @@
 </h2>
 <p>呃，多抄党章 //@广州城堡堡主:领导们一番苦心要大家多读书少上网。 //@虎叔-:[吐] //@洋葱音乐站:2009年YouTube被禁，2010年Google被禁，2014年instagram被禁，2016年Tumblr被禁。似乎我们正在与主流世界渐行渐远，我们的视野也早已被操纵。<br><br>RE: 【News】全球最大的轻博客网站 Tumblr 今日在中国惨遭封杀，目前为止 PC 端和移动 App 端均无法访问，已彻底被墙！（移动端改 WiFi DNS 为 8.8.8.8 还可使用但应该撑不了多久）另外在百度贴吧的 Tumblr 吧也被封杀！因为一个事件而封杀一个平台的做法依旧很好笑，还是那句话：这个国家有希望了~<br><img src="http://ww4.sinaimg.cn/large/6faa4746gw1f48mppdh4uj20c50clq38.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3979440419059428" target="freeweibo-mirror">推荐阅读：历史上美国是如何由腐败转向清廉的？</a>
 </h2>
@@ -101,7 +101,7 @@
 </h2>
 <p>这一届警察真行！人大硕士雷洋被警方宣布“嫖娼死”后，引发舆论关注。“凯迪社区”发表《警察抓嫖扫黄的收入与分配》的文章。有人在天涯论坛发帖骂其在派出所当警察老公包养小三，未公开的出警（实际是分赃）细节。大陆警察为啥热衷扫黄抓赌。原来所有50%罚款入警察个人腰包，另外50%是警局“创收”。<br><img src="http://ww3.sinaimg.cn/large/495531fbjw1f48q4bqag3j20ci0goaba.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3979369686319502" target="freeweibo-mirror">SPAM #咳嗽离我远一点# 最近气温反常,忽高忽低，大人孩…</a>
 </h2>
