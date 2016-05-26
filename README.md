@@ -137,7 +137,7 @@
 </h2>
 <p>【版面语言】亏了这次是杨绛和一些厅官。干媒体这么多年，真觉得到处是雷啊！<br><img src="http://ww3.sinaimg.cn/large/5d0b33degw1f490jox3emj20jk0rsadw.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p>
 <table>
     <tr>
