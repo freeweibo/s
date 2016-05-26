@@ -19,6 +19,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3979524875510805" target="freeweibo-mirror">几年前，某城市的NGO拉到企业的一笔资金，资助了10个因家境…</a>
+</h2>
+<p>几年前，某城市的NGO拉到企业的一笔资金，资助了10个因家境贫穷而无法负担学费的大学生。受企业要求，这些学生参加了一场流水化的受助仪式——你懂的，让老板上台风光一把，在镁光灯的包围下给贫寒学子发钱——后来有媒体炸锅，怒骂企业作秀不顾人道尊严，在当地搞出不小的舆论危机，企业也被喷得狗血...全文： http://m.weibo.cn/1997544897/3979524875510805<br><img src="http://ww1.sinaimg.cn/large/77101dc1jw1f48v842bktj20qo0u977q.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3979517007489191" target="freeweibo-mirror">说了实话，法律算个啥？</a>
 </h2>
 <p>说了实话，法律算个啥？<br><br>RE: 站错队，这才是实质。<br><img src="http://ww2.sinaimg.cn/large/006r3yEJjw1f495y9m9kvj30f00qogo9.jpg"></p>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3979409331515101" target="freeweibo-mirror">//@西子丹67:原文《雷洋案：嫖娼之外的另一种可能》htt…</a>
 </h2>
 <p>//@西子丹67:原文《雷洋案：嫖娼之外的另一种可能》http://t.cn/R5AbvZ8[话筒][话筒][话筒]<br><br>RE: 【最新观点：雷洋死于警察错抓】今天上午，看了《雷洋案：嫖娼之外的另一种可能http://weibo.com/ttarticle/p/show》的文章后，本博认为，笔者经实地考证、缜密分析后得出的“警察抓错了去足疗店门口公交车站等车的雷洋”的逻辑结论，合乎情理，无懈可击。相较于昌平警方先前漏洞百出的说辞，公众应该...全文： http://m.weibo.cn/3675736060/3979398238090409<br><img src="http://ww1.sinaimg.cn/large/db1747fcgw1f48sjmrzp7j20g40ci0ul.jpg"></p>
-<p>
-	<small> ============== 9小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3979403786652905" target="freeweibo-mirror">SPAM 【等公交车引发的血案】就某热点事件，某有考据癖的网…</a>
-</h2>
-<p>SPAM 【等公交车引发的血案】就某热点事件，某有考据癖的网友做了迄今为止最合情合理的分析。原文太长，简单说就是雷军家族一个500年前的亲戚去足疗店门口的车站坐车，然后就被抓了然后就没有然后了。这种可能性更加合情合理，所有疑点都能得到解释。 此文已被删三次，这是第四次发，再次被删前赶紧看。 朗...全文： http://m.weibo.cn/1494819104/3979403786652905<br><img src="http://ww4.sinaimg.cn/large/59192120gw1f48tb3it8qj20dw07kwfg.jpg"></p>
 <p>
 	<small> ============== 9小时前</small>
 </p>
