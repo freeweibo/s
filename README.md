@@ -59,13 +59,13 @@
 </h2>
 <p>下了课，你办讲座写文章，那是你的“学术自由”——而上课时，按教学大纲内容授课，是做人和从业最基本的素质要求。//@王小东:坦率说：我认为剩余价值不对，所以我也不吃这碗饭，就也没人干涉我。你吃的就是这碗饭，那当然得遵守契约</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3979440419059428" target="freeweibo-mirror">推荐阅读：历史上美国是如何由腐败转向清廉的？</a>
 </h2>
 <p>推荐阅读：历史上美国是如何由腐败转向清廉的？</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3979439936680972" target="freeweibo-mirror">SPAM 我似乎帮女运动员找到了成功的方法！[奥特曼]</a>
 </h2>
@@ -89,7 +89,7 @@
 </h2>
 <p>SPAM 冰淇淋一直是我的最爱[偷笑]<br><img src="http://ww2.sinaimg.cn/large/6a970939gw1f48u0wjweej20no0zkmzc.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3979409859825781" target="freeweibo-mirror">SPAM 【好文分享】1、这辈子我不会再喝一滴牛奶！2、孩子…</a>
 </h2>
