@@ -23,7 +23,7 @@
 </h2>
 <p>说了实话，法律算个啥？<br><br>RE: 站错队，这才是实质。<br><img src="http://ww2.sinaimg.cn/large/006r3yEJjw1f495y9m9kvj30f00qogo9.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3979511181850150" target="freeweibo-mirror">SPAM 一个淳朴的养蜂人，看他微博可以学习很多知识，值得关…</a>
 </h2>
@@ -47,7 +47,7 @@
 </h2>
 <p>记得第二次被围攻，是说那个把脚踩在妇女头上的恶警，于是，又嗷嗷叫着上来一大批，温度再降20。接着是雷洋案、大学生屁股打开花，还有今晚的帖子......呵，蛮好，看来你们只听得进赞歌，却没有心胸听任何批评。该降降温了！也许之前对警察群体狂热的爱，有些病态。在你们下流无比的谩骂里，逐渐清醒！</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3979500682881435" target="freeweibo-mirror">SPAM 今天的内容[酷]</a>
 </h2>
