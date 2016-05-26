@@ -59,7 +59,7 @@
 </h2>
 <p>【版面语言】亏了这次是杨绛和一些厅官。干媒体这么多年，真觉得到处是雷啊！<br><img src="http://ww3.sinaimg.cn/large/5d0b33degw1f490jox3emj20jk0rsadw.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3979461265262456" target="freeweibo-mirror">SPAM （虾扯蛋）一直想听党的话，向少奇学习，没想到:少奇…</a>
 </h2>
