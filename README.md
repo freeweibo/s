@@ -107,7 +107,7 @@
 </h2>
 <p>SPAM 女神都爱的包包，爱包包的你一定会爱上我的！[爱你]快+V芯:157591517</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3979166724598593" target="freeweibo-mirror">SPAM 不清楚</a>
 </h2>
