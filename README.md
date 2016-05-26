@@ -77,13 +77,13 @@
 </h2>
 <p>SPAM 快看看『雷洋案：嫖娼之外的另一种可能』http://t.cn/R5wHdCX</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3979288246084157" target="freeweibo-mirror">//@薇光Sparkle:看他们的评论，基本上都是谩骂和人生…</a>
 </h2>
 <p>//@薇光Sparkle:看他们的评论，基本上都是谩骂和人生攻击的话，就知道这些人其实不是真正有思想的人，不是在讨论问题，他们只是在显示无知和暴力罢了。<br><br>RE: 古有发丘中郎将，今有发囚文宣将。监狱犯人五毛慢慢曝光，它们ID一般方便好记，比起租住在地下室的五毛，更丧心病狂。去年那篇雄文《若动乱比苏联更惨》，就出自一名监狱五毛之手，文章极尽颠倒黑白，混淆视听，文宣系统有人欣赏此文，大力推荐，流毒之广，结果让俄罗斯驻华使馆出面反驳，贻笑大方。<br><img src="http://ww3.sinaimg.cn/large/006tnYcfjw1f489rsthdaj30hs0bsgpe.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3979275750657150" target="freeweibo-mirror">//@上海杨卫华律师://@隋彭生民商法: //@中行无咎2…</a>
 </h2>
@@ -101,7 +101,7 @@
 </h2>
 <p>SPAM 我有故事，你有酒吗？来看故事吧 [心] V信：shuiqiangushi520</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3979173247180592" target="freeweibo-mirror">SPAM 女神都爱的包包，爱包包的你一定会爱上我的！[爱你]…</a>
 </h2>
