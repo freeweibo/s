@@ -55,6 +55,12 @@
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3979517326761672" target="freeweibo-mirror">SPAM @公安部刑侦局 //@民生焦点转播:帝都狗恶少//…</a>
+</h2>
+<p>SPAM @公安部刑侦局 //@民生焦点转播:帝都狗恶少//@交警陈清洲:#清洲说警事# [吃惊][吃惊]<br><br>RE: #宝马男殴打加油站女工#网曝：北京万泉河辅路的中石化加油站，一个酒驾的宝马男，跟加油站工作人员一言不合大打出手，女工作人员上去阻拦依旧被打，而且下手相当狠辣！ [怒]http://t.cn/R5AJBzK</p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3979517103835187" target="freeweibo-mirror">SPAM #醉酒宝马男殴打加油站女工#网曝：北京万泉河辅路的…</a>
 </h2>
 <p>SPAM #醉酒宝马男殴打加油站女工#网曝：北京万泉河辅路的中石化加油站，一个酒驾的宝马男，跟加油站工作人员一言不合大打出手，女工作人员上去阻拦依旧被打，而且下手相当狠辣！#吐槽曝料# [怒]http://t.cn/R5AJBzK</p>
@@ -125,19 +131,13 @@
 </h2>
 <p>死转『雷洋案：嫖娼之外的另一种可能_16小时网』http://t.cn/R5AbvZ8</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3979467019876845" target="freeweibo-mirror">【版面语言】亏了这次是杨绛和一些厅官。干媒体这么多年，真觉得…</a>
 </h2>
 <p>【版面语言】亏了这次是杨绛和一些厅官。干媒体这么多年，真觉得到处是雷啊！<br><img src="http://ww3.sinaimg.cn/large/5d0b33degw1f490jox3emj20jk0rsadw.jpg"></p>
 <p>
 	<small> ============== 6小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3979461265262456" target="freeweibo-mirror">SPAM （虾扯蛋）一直想听党的话，向少奇学习，没想到:少奇…</a>
-</h2>
-<p>SPAM （虾扯蛋）一直想听党的话，向少奇学习，没想到:少奇成了叛徒内奸工贼！接着又想向林彪学习，又没想到:彪叔叛国潜逃摔死了！后来又向警察叔叔学习，更没想到:康师傅成了贪污犯给抓起来了！现在想来惊了一身汗:幸亏没敢认真学习，否则，秦城监狱也有俺一席之地！微评:谁说不好好学习都是"错"？[嘻嘻]<br><img src="http://ww4.sinaimg.cn/large/006maboJjw1f48ztbph7qj30ek0ergmh.jpg"></p>
-<p>
-	<small> ============== 7小时前</small>
 </p>
 <table>
     <tr>
