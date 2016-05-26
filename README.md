@@ -41,7 +41,7 @@
 </h2>
 <p>SPAM 一个淳朴的养蜂人，看他微博可以学习很多知识，值得关注！[赞]</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3979510019757757" target="freeweibo-mirror">让他们疯狂吧，我们先安静地看着。记得当时公知也这样，我们最爱…</a>
 </h2>
@@ -89,7 +89,7 @@
 </h2>
 <p>呃，多抄党章 //@广州城堡堡主:领导们一番苦心要大家多读书少上网。 //@虎叔-:[吐] //@洋葱音乐站:2009年YouTube被禁，2010年Google被禁，2014年instagram被禁，2016年Tumblr被禁。似乎我们正在与主流世界渐行渐远，我们的视野也早已被操纵。<br><br>RE: 【News】全球最大的轻博客网站 Tumblr 今日在中国惨遭封杀，目前为止 PC 端和移动 App 端均无法访问，已彻底被墙！（移动端改 WiFi DNS 为 8.8.8.8 还可使用但应该撑不了多久）另外在百度贴吧的 Tumblr 吧也被封杀！因为一个事件而封杀一个平台的做法依旧很好笑，还是那句话：这个国家有希望了~<br><img src="http://ww4.sinaimg.cn/large/6faa4746gw1f48mppdh4uj20c50clq38.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3979441128632282" target="freeweibo-mirror">下了课，你办讲座写文章，那是你的“学术自由”——而上课时，按…</a>
 </h2>
