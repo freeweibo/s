@@ -23,7 +23,7 @@
 </h2>
 <p>令人发指啊。//@猪是念的来过倒: //@穆罕默德的小羊: 文章里都是真实的材料和新闻数据，讲述了自2011年起五年来的变化，客观到令人发指。希望有关部门能挽救这个被绿毒迅速吞噬的国家。<br><br>RE: 发布了头条文章：《永宁县民族宗教局，老子和你卯上了》 所有文件全部为政府公开文件，记录了2011至2016年一个平和的地方如何一步步极端化最终连学校都不放过。我知道和政府作对的代价，但我是教师，学校的学生是无辜的，只有这点，决不妥协 http://t.cn/R5wkcSi</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3979343858480792" target="freeweibo-mirror">[围观]//@老猫上灯台: //@张忆安-龙战于野:快变成沙…</a>
 </h2>
@@ -41,7 +41,19 @@
 </h2>
 <p>SPAM 卧槽，这是什么梗？</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3979327340570868" target="freeweibo-mirror">【中国制造】最近两个中国的新发明在Twitter上已经扬名全…</a>
+</h2>
+<p>【中国制造】最近两个中国的新发明在Twitter上已经扬名全球。 烟台公园收费板凳，坐前投币，钉子就会下去，超过时间限制钉子就会顶上来； 浙江立交下镶满尖钉水泥墩，彻底解决了无家可归的流浪者露宿桥下影响市容的问题。 我国万事不先进，唯独“防民术”超过先进国。——梁启超 http://t.cn/R5wFFef<br><img src="http://ww4.sinaimg.cn/large/6fafc189jw1f48kjl8xjyj20cs0t5abo.jpg"></p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3979318353212633" target="freeweibo-mirror">发布了头条文章：《永宁县民族宗教局，老子和你卯上了》 所有文…</a>
+</h2>
+<p>发布了头条文章：《永宁县民族宗教局，老子和你卯上了》 所有文件全部为政府公开文件，记录了2011至2016年一个平和的地方如何一步步极端化最终连学校都不放过。我知道和政府作对的代价，但我是教师，学校的学生是无辜的，只有这点，决不妥协 http://t.cn/R5wkcSi</p>
+<p>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3979314904703421" target="freeweibo-mirror">SPAM //@周难的微博:不比三胖的制造的笑话少。[dog…</a>
 </h2>
@@ -124,18 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3979173247180592" target="freeweibo-mirror">SPAM 女神都爱的包包，爱包包的你一定会爱上我的！[爱你]…</a>
 </h2>
 <p>SPAM 女神都爱的包包，爱包包的你一定会爱上我的！[爱你]快+V芯:157591517</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3979166724598593" target="freeweibo-mirror">SPAM 不清楚</a>
-</h2>
-<p>SPAM 不清楚<br><br>RE: 既然原文被高效删除，就再发一遍图片。持续关注雷洋案。<br><img src="http://ww2.sinaimg.cn/large/47665bc1jw1f481wq2r1bj205n502wqg.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3979166438843929" target="freeweibo-mirror">SPAM //@肾肾先生://@城南邮局:她在的时候就好好爱…</a>
-</h2>
-<p>SPAM //@肾肾先生://@城南邮局:她在的时候就好好爱她 不在的时候就思念她</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
