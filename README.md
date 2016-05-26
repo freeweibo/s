@@ -35,7 +35,7 @@
 </h2>
 <p>【最新观点：雷洋死于警察错抓】今天上午，看了《雷洋案：嫖娼之外的另一种可能http://weibo.com/ttarticle/p/show》的文章后，本博认为，笔者经实地考证、缜密分析后得出的“警察抓错了去足疗店门口公交车站等车的雷洋”的逻辑结论，合乎情理，无懈可击。相较于昌平警方先前漏洞百出的说辞，公众应该...全文： http://m.weibo.cn/3675736060/3979398238090409<br><img src="http://ww1.sinaimg.cn/large/db1747fcgw1f48sjmrzp7j20g40ci0ul.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3979394227741967" target="freeweibo-mirror">有这种事？不会吧？//@钱中华: 转发微博</a>
 </h2>
