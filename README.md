@@ -89,7 +89,7 @@
 </h2>
 <p>[good]【转】《法制日报》记者：对雷洋案真相我仍抱有希望『《法制日报》记者：对雷洋案真相我仍抱有希望』http://t.cn/R5A9gIv</p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3979630450481298" target="freeweibo-mirror">SPAM //@晓谭的博客://@吴顾问1970: //@腾…</a>
 </h2>
