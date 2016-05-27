@@ -121,6 +121,12 @@
 <p>
 	<small> ============== 10小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3979736177279114" target="freeweibo-mirror">网讯:20日抄了廖锡俊在贵阳的三个家，查获人民币三千七百余万…</a>
+</h2>
+<p>网讯:20日抄了廖锡俊在贵阳的三个家，查获人民币三千七百余万，黄金等贵重物品十多箱，其老婆同时被抓；当天被抓的还有西龙的养女(原总后结算中心会计)，西龙的专职情妇廖婕敏(原儿媳，去北京时不带老婆只带小敏，儿子一气离婚，其老婆一直在成都)，并交出人民币四千万元。其贪腐问题比郭徐严重得多。<br><img src="http://ww1.sinaimg.cn/large/67c53c97gw1f49vhnhk05j20dw0afgn7.jpg"></p>
+<p>
+	<small> ============== 10小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3979735925426931" target="freeweibo-mirror">SPAM #微博记微#对雷洋一案的看法，我也存有希望。htt…</a>
 </h2>
 <p>SPAM #微博记微#对雷洋一案的看法，我也存有希望。http://t.cn/R5ARVu6<br><img src="http://ww3.sinaimg.cn/large/44de9a03gw1f49vfgb7uvj20qo1bewrn.jpg"></p>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3979724752070113" target="freeweibo-mirror">刘强东接受央视采访，在面对“整顿假货”问题时，这场面太尴尬啦…</a>
 </h2>
 <p>刘强东接受央视采访，在面对“整顿假货”问题时，这场面太尴尬啦!! [哈哈]<br><img src="http://ww3.sinaimg.cn/large/6b1394a6gw1f49u6lftgaj209w0xcwhq.jpg"></p>
-<p>
-	<small> ============== 11小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3979715918925879" target="freeweibo-mirror">赵威，网名考拉，91年生，毕业于江西师大新闻专业。她正直善良…</a>
-</h2>
-<p>赵威，网名考拉，91年生，毕业于江西师大新闻专业。她正直善良，上大学时，就参与公民活动。2014年10月，担任锋锐所律师李和平助手。2015年7月10日，被警方从家中带走，羁押于天津。2016年1月，被正式逮捕，颠覆罪。当局一直阻挠律师会见，生死不明。最近有消息传出，她在看守所遭受人身侮辱。<br><img src="http://ww1.sinaimg.cn/large/006eDQFggw1f49t590pnej304l0643ye.jpg"></p>
 <p>
 	<small> ============== 11小时前</small>
 </p>
