@@ -23,7 +23,7 @@
 </h2>
 <p>http://t.cn/R52bj1F //@开心oko1: [阴险]//@孔智-勇: //@作家秦风:被茶花女弄SB了？[偷笑][偷笑]<br><br>RE: 刘强东接受央视采访，在面对“整顿假货”问题时，这场面太尴尬啦!! [哈哈]<br><img src="http://ww3.sinaimg.cn/large/6b1394a6gw1f49u6lftgaj209w0xcwhq.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3979810021208110" target="freeweibo-mirror">第一届毕业生、86级校友要求保留和加强中青院本科的呼吁书</a>
 </h2>
