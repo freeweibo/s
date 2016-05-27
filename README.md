@@ -59,7 +59,7 @@
 </h2>
 <p>SPAM 少将又丢人了。[衰]<br><br>RE: 毛新宇少将介绍二战美国向日本投放原子弹。我听的有点蒙圈。 http://t.cn/R52vQZ1 .</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3979880762807564" target="freeweibo-mirror">SPAM 做将军比做股票容易多了！日本人在听讲吗？</a>
 </h2>
@@ -127,15 +127,15 @@
 <p>
 	<small> ============== 4小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3979854254378743" target="freeweibo-mirror">有人说他是混进共产党队伍里的野心家；有人说他是无产阶级命的叛…</a>
+</h2>
+<p>有人说他是混进共产党队伍里的野心家；有人说他是无产阶级命的叛徒；有人说他是投机钻营的政治扒手；有人说他是口心是非的两面派；有人说他是拉山头搞宗派的阴谋家；有人说他是挑动群众斗群众的总后台；有人说他是“文革”武斗的策划者；又是屠杀人民的刽子手，是搞乱中国的罪魁祸首！<br><img src="http://ww3.sinaimg.cn/large/005AQ7zfjw1f4a921vv7fj308c06b3yo.jpg"></p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3979845069108358" target="freeweibo-mirror">SPAM “亲爱的翻译官”有看么？他们家app榜单都登顶了……</a>
 </h2>
 <p>SPAM “亲爱的翻译官”有看么？他们家app榜单都登顶了……很火啊！<br><img src="http://ww4.sinaimg.cn/large/b952aec3gw1f4a8046f3aj20yi1pcaju.jpg"></p>
-<p>
-	<small> ============== 5小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3979837876227722" target="freeweibo-mirror">http://t.cn/R52bj1F //@开心oko1:…</a>
-</h2>
-<p>http://t.cn/R52bj1F //@开心oko1: [阴险]//@孔智-勇: //@作家秦风:被茶花女弄SB了？[偷笑][偷笑]<br><br>RE: 刘强东接受央视采访，在面对“整顿假货”问题时，这场面太尴尬啦!! [哈哈]<br><img src="http://ww3.sinaimg.cn/large/6b1394a6gw1f49u6lftgaj209w0xcwhq.jpg"></p>
 <p>
 	<small> ============== 5小时前</small>
 </p>
