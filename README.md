@@ -47,7 +47,7 @@
 </h2>
 <p>SPAM 我服Θ..Θ //@亻造天堂:九级膜//@温文谦恭老加图:[doge]</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3979530026447237" target="freeweibo-mirror">有钱就牛B//@澜潮哥: //@50年矛苔://@梁山汉: …</a>
 </h2>
