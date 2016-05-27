@@ -19,6 +19,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3979909514478616" target="freeweibo-mirror">我选举你当五毛 //@大卫农夫:商家反应可真快，接下来还可以…</a>
+</h2>
+<p>我选举你当五毛 //@大卫农夫:商家反应可真快，接下来还可以退出：抄累了休息椅、抄累了游戏APP、抄累了钟点房、抄累了回复体力再接着抄之马杀鸡套餐……<br><br>RE: 继续抄党章跳忠字舞<br><img src="http://ww3.sinaimg.cn/large/696678cagw1f4aez98lxhj20zk0qodn1.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3979899624652518" target="freeweibo-mirror">SPAM 招募手机网络主播，达到以下条件者，请直接联络本博主…</a>
 </h2>
 <p>SPAM 招募手机网络主播，达到以下条件者，请直接联络本博主：1、上镜；2、语言表达能力佳；3、每天有两个小时以上业余时间，加-薇-信：1350 933 0008<br><img src="http://ww4.sinaimg.cn/large/bdc1323cgw1f4ae947334j20k00k0gng.jpg"></p>
@@ -28,6 +34,12 @@
 	<a href="https://freeweibo.com/weibo/3979897959206902" target="freeweibo-mirror">[good]//@九洲四海的微博:一派胡言！集体大锅饭与家庭…</a>
 </h2>
 <p>[good]//@九洲四海的微博:一派胡言！集体大锅饭与家庭联产承包谁好谁坏，只有亲身经历过的农民才有发言权，文革余孽、毛左分子和拿钱发帖的五毛根本就没有发言权。改革开放三十多年，绝大多数国人得到了巨大实惠（可以对比），只有那些玩嘴皮子的人和有手好闲的懒人才是改革开放的失意者，这些人拼命诋<br><br>RE: 农村体制改革之后，把人人一心为公改成了个个一心为私，把大家一起干改成了千家万户小单干，把大块的园田化改成了小块的角落丘，把原来十成灌溉面积改成了三成左右，把原本着手安装的路灯改成了没半盏，把年迈的老人和小孩留在家里守孤独。<br><img src="http://ww3.sinaimg.cn/large/d81ffff5gw1f4a7lcnjdpj208i064js1.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3979897141839284" target="freeweibo-mirror">尼玛，风向又变了？害我白抄了好几天党章！</a>
+</h2>
+<p>尼玛，风向又变了？害我白抄了好几天党章！</p>
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
@@ -113,7 +125,7 @@
 </h2>
 <p>律师董亚楠，请开口讲话？//@公民林静在维权4: 转发微博<br><br>RE: “求是”#惊闻有消息说“709大抓捕律师事件”最年轻的政治犯，赵威女士在天津市看守所遭到人身侮辱！？多地网友及国内外媒体致电本律师询问事情真相！无奈，作为一开始就接受赵威亲属委托的辩护人，我对此表示遗憾，因为我自15年7月至今从未被天津警方允许会见过赵威女士，更不可能知道此一传闻的真相...全文： http://m.weibo.cn/1626095121/3979791495841530<br><img src="http://ww3.sinaimg.cn/large/60ec3e11jw1f4a1tsexlij20qo0zkq4x.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3979875112723014" target="freeweibo-mirror">怪不得毛太祖当年不认毛孙子。这少将咋不上天呢？两颗原子弹炸死…</a>
 </h2>
@@ -124,18 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3979875007653849" target="freeweibo-mirror">//@马周扬:[笑cry][笑cry][笑cry][笑cry…</a>
 </h2>
 <p>//@马周扬:[笑cry][笑cry][笑cry][笑cry][笑cry][笑cry]//@LifeTime:基因好。[瞧瞧] //@谢文://@杨佩昌:[笑cry]//@织梦作坊:“广岛炸死7-8万人，炸伤3-7万人，约占日本总人口的48%；长崎炸死2万多人，炸伤4万多人，约占日本当时总人口的29%”。将军一定还记得你的体育老师的名字吧？<br><br>RE: 毛新宇少将介绍二战美国向日本投放原子弹。我听的有点蒙圈。 http://t.cn/R52vQZ1 .</p>
-<p>
-	<small> ============== 4小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3979871744856915" target="freeweibo-mirror">何苦来！//@自由基005: //@摸着良心观社会://@晨…</a>
-</h2>
-<p>何苦来！//@自由基005: //@摸着良心观社会://@晨曦的北斗:转发微博</p>
-<p>
-	<small> ============== 4小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3979861993413593" target="freeweibo-mirror">我就看看[思考]</a>
-</h2>
-<p>我就看看[思考]<br><br>RE: 网讯:20日抄了廖锡俊在贵阳的三个家，查获人民币三千七百余万，黄金等贵重物品十多箱，其老婆同时被抓；当天被抓的还有西龙的养女(原总后结算中心会计)，西龙的专职情妇廖婕敏(原儿媳，去北京时不带老婆只带小敏，儿子一气离婚，其老婆一直在成都)，并交出人民币四千万元。其贪腐问题比郭徐严重得多。<br><img src="http://ww1.sinaimg.cn/large/67c53c97gw1f49vhnhk05j20dw0afgn7.jpg"></p>
 <p>
 	<small> ============== 4小时前</small>
 </p>
