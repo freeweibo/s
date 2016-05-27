@@ -41,13 +41,19 @@
 </h2>
 <p>SPAM #微博记微#对雷洋一案的看法，我也存有希望。http://t.cn/R5ARVu6<br><img src="http://ww3.sinaimg.cn/large/44de9a03gw1f49vfgb7uvj20qo1bewrn.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3979715918925879" target="freeweibo-mirror">赵威，网名考拉，91年生，毕业于江西师大新闻专业。她正直善良…</a>
+</h2>
+<p>赵威，网名考拉，91年生，毕业于江西师大新闻专业。她正直善良，上大学时，就参与公民活动。2014年10月，担任锋锐所律师李和平助手。2015年7月10日，被警方从家中带走，羁押于天津。2016年1月，被正式逮捕，颠覆罪。当局一直阻挠律师会见，生死不明。最近有消息传出，她在看守所遭受人身侮辱。<br><img src="http://ww1.sinaimg.cn/large/006eDQFggw1f49t590pnej304l0643ye.jpg"></p>
+<p>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3979706024371541" target="freeweibo-mirror">//@雷公旗: //@公民王海滨: //@_____独行客:…</a>
 </h2>
 <p>//@雷公旗: //@公民王海滨: //@_____独行客: 转发微博<br><br>RE: 所谓雷洋的笔录，口供和签字画押，明摆着是弄虚作假，怎么没人敢再提雷洋的笔录了？因为雷洋死前根本就不存在录制笔录和口供时间，相反，谁拿出雷洋的笔录，谁就是自证伪造笔录的刑事犯罪事实，并且还是真凭实据。所以，伪造雷洋嫖娼笔录这项罪名已经成立，问题就是调查清楚，到底是谁干的！拭目以待！</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3979702706733649" target="freeweibo-mirror">回复@灰领屌丝:一直支持花呗分期的，具体见花呗官方说明：ht…</a>
 </h2>
@@ -77,7 +83,7 @@
 </h2>
 <p>SPAM 提升您价值的深度阅读~</p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3979666610154351" target="freeweibo-mirror">//@六合屯:往下看全是笑脸</a>
 </h2>
@@ -95,7 +101,7 @@
 </h2>
 <p>SPAM 高品质，中等价，新定位。[哆啦A梦微笑] //@资深金融小邪女:上海，北京精品水果市场，这样的一斤卖25，而且不怎么新鲜。我们江浙沪皖包邮，其他区域加点运费，全部发顺丰空运。淘宝店已经设置好。欢迎品尝又香又甜的特级芒果。[爱你][爱你][爱你]</p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3979655948331143" target="freeweibo-mirror">[good]【转】《法制日报》记者：对雷洋案真相我仍抱有希望…</a>
 </h2>
@@ -107,7 +113,7 @@
 </h2>
 <p>SPAM //@晓谭的博客://@吴顾问1970: //@腾晓东:兔子的“一带一路”，没有钱白给也要搞。[酷]<br><br>RE: 庆丰撒币[弱]<br><img src="http://ww4.sinaimg.cn/large/7c16a697jw1f491nyo0c0j20ja0mxmzt.jpg"></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3979530773149699" target="freeweibo-mirror">SPAM 我服Θ..Θ //@亻造天堂:九级膜//@温文谦恭…</a>
 </h2>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3979529090805479" target="freeweibo-mirror">蔡英文在總統府吃的是家人送來的便當，也不用銀針試毒，這689…</a>
 </h2>
 <p>蔡英文在總統府吃的是家人送來的便當，也不用銀針試毒，這689萬選票選來的總統當既寒酸又無威儀，竟然能酸掉對岸的滿口大牙。 http://t.cn/R5ApahA .</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3979524875510805" target="freeweibo-mirror">几年前，某城市的NGO拉到企业的一笔资金，资助了10个因家境…</a>
-</h2>
-<p>几年前，某城市的NGO拉到企业的一笔资金，资助了10个因家境贫穷而无法负担学费的大学生。受企业要求，这些学生参加了一场流水化的受助仪式——你懂的，让老板上台风光一把，在镁光灯的包围下给贫寒学子发钱——后来有媒体炸锅，怒骂企业作秀不顾人道尊严，在当地搞出不小的舆论危机，企业也被喷得狗血...全文： http://m.weibo.cn/1997544897/3979524875510805<br><img src="http://ww1.sinaimg.cn/large/77101dc1jw1f48v842bktj20qo0u977q.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
