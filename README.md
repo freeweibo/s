@@ -95,7 +95,7 @@
 </h2>
 <p>SPAM #微博记微#对雷洋一案的看法，我也存有希望。http://t.cn/R5ARVu6<br><img src="http://ww3.sinaimg.cn/large/44de9a03gw1f49vfgb7uvj20qo1bewrn.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3979715918925879" target="freeweibo-mirror">赵威，网名考拉，91年生，毕业于江西师大新闻专业。她正直善良…</a>
 </h2>
@@ -107,13 +107,13 @@
 </h2>
 <p>//@雷公旗: //@公民王海滨: //@_____独行客: 转发微博<br><br>RE: 所谓雷洋的笔录，口供和签字画押，明摆着是弄虚作假，怎么没人敢再提雷洋的笔录了？因为雷洋死前根本就不存在录制笔录和口供时间，相反，谁拿出雷洋的笔录，谁就是自证伪造笔录的刑事犯罪事实，并且还是真凭实据。所以，伪造雷洋嫖娼笔录这项罪名已经成立，问题就是调查清楚，到底是谁干的！拭目以待！</p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3979705823093703" target="freeweibo-mirror">今天得知赵威在看守所里受到人身侮辱，希望官方指定的赵威的律师…</a>
 </h2>
 <p>今天得知赵威在看守所里受到人身侮辱，希望官方指定的赵威的律师董亚南能了解下这个情况，并给家属一个回复。<br><img src="http://ww1.sinaimg.cn/large/006qLY3fgw1f49rw61tozj30k00zkdm8.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3979702706733649" target="freeweibo-mirror">回复@灰领屌丝:一直支持花呗分期的，具体见花呗官方说明：ht…</a>
 </h2>
