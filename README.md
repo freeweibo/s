@@ -131,7 +131,7 @@
 </h2>
 <p>何苦来！//@自由基005: //@摸着良心观社会://@晨曦的北斗:转发微博</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3979861993413593" target="freeweibo-mirror">我就看看[思考]</a>
 </h2>
