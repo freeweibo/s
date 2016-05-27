@@ -137,7 +137,7 @@
 </h2>
 <p>SPAM 今天的内容[酷]<br><img src="http://ww1.sinaimg.cn/large/90f58663jw1f494g4s6fmj20qa0kuacq.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p>
 <table>
     <tr>
