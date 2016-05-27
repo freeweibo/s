@@ -35,7 +35,7 @@
 </h2>
 <p>期待真相公布天下！<br><br>RE: [good]【转】《法制日报》记者：对雷洋案真相我仍抱有希望『《法制日报》记者：对雷洋案真相我仍抱有希望』http://t.cn/R5A9gIv</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3979694011911196" target="freeweibo-mirror">所谓雷洋的笔录，口供和签字画押，明摆着是弄虚作假，怎么没人敢…</a>
 </h2>
