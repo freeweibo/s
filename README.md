@@ -23,7 +23,7 @@
 </h2>
 <p>//@小种闯天涯: //@郭涛1969:傻逼呗，别的也不会干 //@无肉不欢911:看评路过//@andy-THU:每次新闻联播里那些幸福的又唱又跳的群众，我都感到背后发凉。<br><br>RE: 政治表演盛行，形式主义盛行，为什么？还不是有人想借此讨上面的好。</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3979775502115865" target="freeweibo-mirror">尊重女性是家教和修养，是道德与人格，也是法纪。</a>
 </h2>
@@ -47,7 +47,7 @@
 </h2>
 <p>//@律师秦雷: 转发微博<br><br>RE: 今天得知赵威在看守所里受到人身侮辱，希望官方指定的赵威的律师董亚南能了解下这个情况，并给家属一个回复。<br><img src="http://ww1.sinaimg.cn/large/006qLY3fgw1f49rw61tozj30k00zkdm8.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3979758615782243" target="freeweibo-mirror">//@美露姐姐:那么强大的核武器难道害怕一个小女子的嘴？</a>
 </h2>
