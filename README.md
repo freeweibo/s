@@ -35,7 +35,7 @@
 </h2>
 <p>我选举你当五毛 //@大卫农夫:商家反应可真快，接下来还可以退出：抄累了休息椅、抄累了游戏APP、抄累了钟点房、抄累了回复体力再接着抄之马杀鸡套餐……<br><br>RE: 继续抄党章跳忠字舞<br><img src="http://ww3.sinaimg.cn/large/696678cagw1f4aez98lxhj20zk0qodn1.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3979905857351228" target="freeweibo-mirror">继续抄党章跳忠字舞</a>
 </h2>
