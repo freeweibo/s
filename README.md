@@ -31,6 +31,18 @@
 <p>
 	<small> ============== 1小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3979772831451812" target="freeweibo-mirror">一个女孩子，在看守所里被侮辱，深切理解家属的心情，并希望天津…</a>
+</h2>
+<p>一个女孩子，在看守所里被侮辱，深切理解家属的心情，并希望天津看守所和官方指定的辩护律师，能本着基本的人道主义，维护好一个女孩子的权利和合法权益。历史不是胜利者书写的，而是时间来裁判的。//@胡坤821: //@律师秦雷: 转发微博<br><br>RE: 今天得知赵威在看守所里受到人身侮辱，希望官方指定的赵威的律师董亚南能了解下这个情况，并给家属一个回复。<br><img src="http://ww1.sinaimg.cn/large/006qLY3fgw1f49rw61tozj30k00zkdm8.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3979768229787103" target="freeweibo-mirror">//@律师秦雷: 转发微博</a>
+</h2>
+<p>//@律师秦雷: 转发微博<br><br>RE: 今天得知赵威在看守所里受到人身侮辱，希望官方指定的赵威的律师董亚南能了解下这个情况，并给家属一个回复。<br><img src="http://ww1.sinaimg.cn/large/006qLY3fgw1f49rw61tozj30k00zkdm8.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3979758615782243" target="freeweibo-mirror">//@美露姐姐:那么强大的核武器难道害怕一个小女子的嘴？</a>
 </h2>
 <p>//@美露姐姐:那么强大的核武器难道害怕一个小女子的嘴？<br><br>RE: 赵威，网名考拉，91年生，毕业于江西师大新闻专业。她正直善良，上大学时，就参与公民活动。2014年10月，担任锋锐所律师李和平助手。2015年7月10日，被警方从家中带走，羁押于天津。2016年1月，被正式逮捕，颠覆罪。当局一直阻挠律师会见，生死不明。最近有消息传出，她在看守所遭受人身侮辱。<br><img src="http://ww1.sinaimg.cn/large/006eDQFggw1f49t590pnej304l0643ye.jpg"></p>
@@ -126,18 +138,6 @@
 <p>SPAM //@晓谭的博客://@吴顾问1970: //@腾晓东:兔子的“一带一路”，没有钱白给也要搞。[酷]<br><br>RE: 庆丰撒币[弱]<br><img src="http://ww4.sinaimg.cn/large/7c16a697jw1f491nyo0c0j20ja0mxmzt.jpg"></p>
 <p>
 	<small> ============== 11小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3979530773149699" target="freeweibo-mirror">SPAM 我服Θ..Θ //@亻造天堂:九级膜//@温文谦恭…</a>
-</h2>
-<p>SPAM 我服Θ..Θ //@亻造天堂:九级膜//@温文谦恭老加图:[doge]</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3979530026447237" target="freeweibo-mirror">有钱就牛B//@澜潮哥: //@50年矛苔://@梁山汉: …</a>
-</h2>
-<p>有钱就牛B//@澜潮哥: //@50年矛苔://@梁山汉: 转发微博<br><br>RE: #醉酒宝马男殴打加油站女工#网曝：北京万泉河辅路的中石化加油站，一个酒驾的宝马男，跟加油站工作人员一言不合大打出手，女工作人员上去阻拦依旧被打，而且下手相当狠辣！#正义呐喊#[怒] #郁言詼語# [怒]http://t.cn/R5AJBzK</p>
-<p>
-	<small> ============== 1天前</small>
 </p>
 <table>
     <tr>
