@@ -79,15 +79,27 @@
 <p>
 	<small> ============== 6小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3979705823093703" target="freeweibo-mirror">今天得知赵威在看守所里受到人身侮辱，希望官方指定的赵威的律师…</a>
+</h2>
+<p>今天得知赵威在看守所里受到人身侮辱，希望官方指定的赵威的律师董亚南能了解下这个情况，并给家属一个回复。<br><img src="http://ww1.sinaimg.cn/large/006qLY3fgw1f49rw61tozj30k00zkdm8.jpg"></p>
+<p>
+	<small> ============== 6小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3979702706733649" target="freeweibo-mirror">回复@灰领屌丝:一直支持花呗分期的，具体见花呗官方说明：ht…</a>
 </h2>
 <p>回复@灰领屌丝:一直支持花呗分期的，具体见花呗官方说明：http://t.cn/R5ABoxb http://t.cn/R5ABox4 //@灰领屌丝:贵司 能搞搞 免息分期 也好</p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3979700256502886" target="freeweibo-mirror">期待真相公布天下！</a>
 </h2>
 <p>期待真相公布天下！<br><br>RE: [good]【转】《法制日报》记者：对雷洋案真相我仍抱有希望『《法制日报》记者：对雷洋案真相我仍抱有希望』http://t.cn/R5A9gIv</p>
+<p>
+	<small> ============== 7小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3979698000161814" target="freeweibo-mirror">惊闻有消息说“709大抓捕律师事件”最年轻的政治犯，赵威女士…</a>
+</h2>
+<p>惊闻有消息说“709大抓捕律师事件”最年轻的政治犯，赵威女士在天津市看守所遭到人身侮辱！？多地网友及国内外媒体致电本律师询问事情真相！无奈，作为一开始就接受赵威亲属委托的辩护人，我对此表示遗憾，因为我自15年7月至今从未被天津警方允许会见过赵威女士，更不可能知道此一传闻的真相！为了社会...全文： http://m.weibo.cn/1626095121/3979698000161814<br><img src="http://ww1.sinaimg.cn/large/60ec3e11jw1f49qxccyh1j20qo0zk769.jpg"></p>
 <p>
 	<small> ============== 7小时前</small>
 </p><h2>
@@ -126,18 +138,6 @@
 <p>SPAM 高品质，中等价，新定位。[哆啦A梦微笑] //@资深金融小邪女:上海，北京精品水果市场，这样的一斤卖25，而且不怎么新鲜。我们江浙沪皖包邮，其他区域加点运费，全部发顺丰空运。淘宝店已经设置好。欢迎品尝又香又甜的特级芒果。[爱你][爱你][爱你]</p>
 <p>
 	<small> ============== 9小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3979655948331143" target="freeweibo-mirror">[good]【转】《法制日报》记者：对雷洋案真相我仍抱有希望…</a>
-</h2>
-<p>[good]【转】《法制日报》记者：对雷洋案真相我仍抱有希望『《法制日报》记者：对雷洋案真相我仍抱有希望』http://t.cn/R5A9gIv</p>
-<p>
-	<small> ============== 10小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3979630450481298" target="freeweibo-mirror">SPAM //@晓谭的博客://@吴顾问1970: //@腾…</a>
-</h2>
-<p>SPAM //@晓谭的博客://@吴顾问1970: //@腾晓东:兔子的“一带一路”，没有钱白给也要搞。[酷]<br><br>RE: 庆丰撒币[弱]<br><img src="http://ww4.sinaimg.cn/large/7c16a697jw1f491nyo0c0j20ja0mxmzt.jpg"></p>
-<p>
-	<small> ============== 11小时前</small>
 </p>
 <table>
     <tr>
