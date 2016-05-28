@@ -37,6 +37,12 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3980230815578233" target="freeweibo-mirror">传闻某人在狱中死了，知道的太多了。</a>
+</h2>
+<p>传闻某人在狱中死了，知道的太多了。</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3980222720057472" target="freeweibo-mirror">//@网络连通世界:太可怕了</a>
 </h2>
 <p>//@网络连通世界:太可怕了<br><br>RE: 消息未必确实。但管不住自个嘴的人通常会有麻烦<br><img src="http://ww4.sinaimg.cn/large/5eac8cf4jw1f4betc49k8j20l10g4n01.jpg"></p>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3980156991060334" target="freeweibo-mirror">//@大雷律师: 【雷洋案】//@杨兴权律师:向何教授致敬！</a>
 </h2>
 <p>//@大雷律师: 【雷洋案】//@杨兴权律师:向何教授致敬！</p>
-<p>
-	<small> ============== 7小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3980156458841515" target="freeweibo-mirror">证据学专家何家弘教授评说雷阳案//@忧天湘人:转发微博</a>
-</h2>
-<p>证据学专家何家弘教授评说雷阳案//@忧天湘人:转发微博</p>
 <p>
 	<small> ============== 7小时前</small>
 </p>
