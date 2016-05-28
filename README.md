@@ -37,6 +37,12 @@
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3980047721508591" target="freeweibo-mirror">文革时期，为贯彻落实政治挂帅，中国空军部队大做表面文章，工作…</a>
+</h2>
+<p>文革时期，为贯彻落实政治挂帅，中国空军部队大做表面文章，工作中各出奇招，把形式主义发挥到极致。上海空军某部首创“用毛泽东思想占领天空，用毛主席语录指挥飞行”创新战法，在全空军施行，作战飞机都刷着毛主席语录或革命标语，飞行员与塔台空地联络要先喊毛主席语录和革命口号，飞行员和地勤的主...全文： http://m.weibo.cn/1403915120/3980047721508591<br><img src="http://ww3.sinaimg.cn/large/53ae0b70jw1f4av84000aj20ov0gmq4q.jpg"></p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3980043418422406" target="freeweibo-mirror">//@Ming_the_Great_大明:嘿嘿//@绍兴师爷…</a>
 </h2>
 <p>//@Ming_the_Great_大明:嘿嘿//@绍兴师爷行北京:这个逻辑就是，如果徐、郭没有不尊重、没有架空军委主席，是不是可以说，贪腐是可以被容忍的，他们至少也不是今天的下场呢?这样的＂政治底线＂都可以泄露，看来身边这届谋士也不行啊。</p>
@@ -89,7 +95,7 @@
 </h2>
 <p>当法院的大楼越盖越豪华，法院大门越来越难进，法院的法警越来越多，法院还增加加了保安后，法院的公正审判就越来越难了。这些表面现象的背后有着深刻的原因。 http://t.cn/RyhW8OV<br><img src="http://ww1.sinaimg.cn/large/73570bbdgw1f4aq3ao2aaj20f609swfs.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3979962996464489" target="freeweibo-mirror">SPAM 想要华丽转身，却被肥肉阻挡了女神梦！你瘦够了还是受…</a>
 </h2>
@@ -101,7 +107,7 @@
 </h2>
 <p>30岁的Tiffany Li因涉及合谋杀害前男友格林（Keith Green）而被捕。李凡尼在本周二过堂，母亲李继红在其助手邵先生的陪同下现身法庭。据李家的友人透露：「她（李继红）的爸爸妈妈都是中国的大官，至少是军区司令，李家在北京权力很大，很有钱，在北京和美国都有大量物业。」李母行事向来低调，在北京...全文： http://m.weibo.cn/1371675920/3979927159961426<br><img src="http://ww3.sinaimg.cn/large/51c21d10gw1f4ahfa96glj20h209jwf0.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3979918729858555" target="freeweibo-mirror">发布了头条文章：《【稀有资源】非诚勿扰女嘉宾闫凤娇艳照门全套…</a>
 </h2>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3979899624652518" target="freeweibo-mirror">SPAM 招募手机网络主播，达到以下条件者，请直接联络本博主…</a>
 </h2>
 <p>SPAM 招募手机网络主播，达到以下条件者，请直接联络本博主：1、上镜；2、语言表达能力佳；3、每天有两个小时以上业余时间，加-薇-信：1350 933 0008<br><img src="http://ww4.sinaimg.cn/large/bdc1323cgw1f4ae947334j20k00k0gng.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3979897959206902" target="freeweibo-mirror">[good]//@九洲四海的微博:一派胡言！集体大锅饭与家庭…</a>
-</h2>
-<p>[good]//@九洲四海的微博:一派胡言！集体大锅饭与家庭联产承包谁好谁坏，只有亲身经历过的农民才有发言权，文革余孽、毛左分子和拿钱发帖的五毛根本就没有发言权。改革开放三十多年，绝大多数国人得到了巨大实惠（可以对比），只有那些玩嘴皮子的人和有手好闲的懒人才是改革开放的失意者，这些人拼命诋<br><br>RE: 农村体制改革之后，把人人一心为公改成了个个一心为私，把大家一起干改成了千家万户小单干，把大块的园田化改成了小块的角落丘，把原来十成灌溉面积改成了三成左右，把原本着手安装的路灯改成了没半盏，把年迈的老人和小孩留在家里守孤独。<br><img src="http://ww3.sinaimg.cn/large/d81ffff5gw1f4a7lcnjdpj208i064js1.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
