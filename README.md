@@ -71,7 +71,7 @@
 </h2>
 <p>消息未必确实。但管不住自个嘴的人通常会有麻烦<br><img src="http://ww4.sinaimg.cn/large/5eac8cf4jw1f4betc49k8j20l10g4n01.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3980216818956387" target="freeweibo-mirror">SPAM ?</a>
 </h2>
