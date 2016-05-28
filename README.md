@@ -23,11 +23,35 @@
 </h2>
 <p>SPAM ?<br><br>RE: 这么好的无脸阶级革命家就这么挂了，我有点痛心。莫不是故意放风，试试反映？[思考]<br><img src="http://ww3.sinaimg.cn/large/494abd77gw1f4bbpr6c6wj20ci0m840g.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3980213861656272" target="freeweibo-mirror">[泪][泪][泪] //@徐智明:我连智障都不如，我不活了[…</a>
+</h2>
+<p>[泪][泪][泪] //@徐智明:我连智障都不如，我不活了[泪] //@五岳散人:妈的，试了试，居然背不出……</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3980207469678513" target="freeweibo-mirror">不是，这是你奈我何的心理，指鹿为马的人当然知道那个不是马，但…</a>
+</h2>
+<p>不是，这是你奈我何的心理，指鹿为马的人当然知道那个不是马，但我就把大家当白痴耍，看谁敢当面反对？不敢正面肛背后反对的那种人只是败犬，他不在乎//@非著名军事吐槽家昆羽桑：宣传口的都是智障吗</p>
+<p>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3980191393042908" target="freeweibo-mirror">这么好的无脸阶级革命家就这么挂了，我有点痛心。莫不是故意放风…</a>
 </h2>
 <p>这么好的无脸阶级革命家就这么挂了，我有点痛心。莫不是故意放风，试试反映？[思考]<br><img src="http://ww3.sinaimg.cn/large/494abd77gw1f4bbpr6c6wj20ci0m840g.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3980190654758284" target="freeweibo-mirror">智障朋友，你们受苦了！报告书记，我背不了。。。。。。[泪][…</a>
+</h2>
+<p>智障朋友，你们受苦了！报告书记，我背不了。。。。。。[泪][泪][泪][泪][泪]</p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3980189416961609" target="freeweibo-mirror">//@宏鑫88: [笑cry]→_→//@粵東老趙://@原…</a>
+</h2>
+<p>//@宏鑫88: [笑cry]→_→//@粵東老趙://@原子漫画:只有智障才背这玩意 //@1024专员:能记着番号，这个真不行[泪]</p>
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
@@ -65,13 +89,13 @@
 </h2>
 <p>//@大雷律师: 【雷洋案】//@杨兴权律师:向何教授致敬！</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3980156458841515" target="freeweibo-mirror">证据学专家何家弘教授评说雷阳案//@忧天湘人:转发微博</a>
 </h2>
 <p>证据学专家何家弘教授评说雷阳案//@忧天湘人:转发微博</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3980154584394504" target="freeweibo-mirror">据微信消息，李嫁给一美国人，目前已取得美帝国公民身份。访民最…</a>
 </h2>
@@ -112,30 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3980136246126300" target="freeweibo-mirror"></a>
 </h2>
 <p></p>
-<p>
-	<small> ============== 7小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3980133960290214" target="freeweibo-mirror">名至实归，奇葩//@斯图卡98:转发微博</a>
-</h2>
-<p>名至实归，奇葩//@斯图卡98:转发微博<br><br>RE: 党校忙着反党，教育部忙着改语文教材，中宣部在忙什么呢？忙着追韩剧[晕]<br><img src="http://ww1.sinaimg.cn/large/7772f1d3gw1f4ax8b2p2tj20hs0kztby.jpg"></p>
-<p>
-	<small> ============== 7小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3980133692591040" target="freeweibo-mirror">//@珠海半夏: //@研子五味201604: 回复@阳春白…</a>
-</h2>
-<p>//@珠海半夏: //@研子五味201604: 回复@阳春白雪41982:粮食，是饭，民主是水，专制是屎，你自己挑着吃。//@阳春白雪41982:回复@研子五味201604:对啊，人必须吃粮食，很多公知不懂这个道理，认为他们喊叫的那个民主比吃粮食都重要。//@研子五味201604:不“毛主席万岁！”？[哈哈][哈哈]@根克絮案骑平</p>
-<p>
-	<small> ============== 7小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3980133616366276" target="freeweibo-mirror">SPAM 【好文分享】1、雷 洋父母看完遗体后，为何当场给尸…</a>
-</h2>
-<p>SPAM 【好文分享】1、雷 洋父母看完遗体后，为何当场给尸检证人下跪？！2、孩子，有人 打你，你要打他！。3、中国电影为什么烂，冯小刚几句话就说明白了！4、民国红 颜录！5、中国最缺德的人出现了！！人人要看。6、天色将晚，抱妻上床；世间破事，去他个娘。！更多精彩请 添加关注：zhebsls<br><img src="http://ww1.sinaimg.cn/large/9647a31ejw1f4b55608isj20dc0nqt9b.jpg"></p>
-<p>
-	<small> ============== 7小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3980133369151402" target="freeweibo-mirror">SPAM [嘻嘻]【还单身？那一定要做完这条测试！】还单身？…</a>
-</h2>
-<p>SPAM [嘻嘻]【还单身？那一定要做完这条测试！】还单身？为什么找不到男朋友呢，好好做下这个测试吧，看看你是什么类型的女生，该怎样找男朋友呢？做完以后，也许你就知道了~【[心]请关注薇.信：meitiff，在朋友圈阅读[心]】<br><img src="http://ww4.sinaimg.cn/large/6b2b208ejw1f4b544wgb4g20dw07shag.gif"></p>
 <p>
 	<small> ============== 7小时前</small>
 </p>
