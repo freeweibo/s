@@ -29,7 +29,7 @@
 </h2>
 <p>SPAM //@IB林立人: //@孤家寡哥在逃亡:这脸打得……或许是叼盘被处罚心怀不满故意黑包子的。[笑cry]<br><br>RE: 老外欺负习近平。<br><img src="http://ww1.sinaimg.cn/large/006dw2b0gw1f4bj5ktepyj30go0b3wfr.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3980255721236684" target="freeweibo-mirror">老外欺负习近平。</a>
 </h2>
@@ -83,13 +83,13 @@
 </h2>
 <p>传闻某人在狱中死了，知道的太多了。</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3980230345423864" target="freeweibo-mirror">SPAM #我想和你唱#[有鸭梨]想参加但是唱歌不好听，还是…</a>
 </h2>
 <p>SPAM #我想和你唱#[有鸭梨]想参加但是唱歌不好听，还是看吧《我想和你唱》想去唱，哎我想和你唱歌，是谁来做主持的呀，很激动</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3980222720057472" target="freeweibo-mirror">//@网络连通世界:太可怕了</a>
 </h2>
