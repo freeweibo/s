@@ -95,7 +95,7 @@
 </h2>
 <p>继续抄党章跳忠字舞<br><img src="http://ww3.sinaimg.cn/large/696678cagw1f4aez98lxhj20zk0qodn1.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3979903495606062" target="freeweibo-mirror">SPAM 你的美 需要我来点缀[害羞][害羞][害羞]喜欢就…</a>
 </h2>
