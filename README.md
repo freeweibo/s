@@ -73,6 +73,12 @@
 <p>
 	<small> ============== 5小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3980014469409878" target="freeweibo-mirror">【这样的女人，难怪大陆官媒瞧不起！】贵为总统了，自己拎包找东…</a>
+</h2>
+<p>【这样的女人，难怪大陆官媒瞧不起！】贵为总统了，自己拎包找东西，嘴里还咬张车票，太不成体统！<br><img src="http://ww3.sinaimg.cn/large/6a80bfcdgw1f4argc0oa5j20hs0ofwhu.jpg"></p>
+<p>
+	<small> ============== 6小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3980005803092266" target="freeweibo-mirror">SPAM 没想到我勤勤恳恳回答翻译相关问题，第一个热门答问竟…</a>
 </h2>
 <p>SPAM 没想到我勤勤恳恳回答翻译相关问题，第一个热门答问竟然是八卦……（未婚妻昨晚开玩笑说：早知道我自己来问了，这个人靠分成就赚了20多块钱了，可以吃一个ben and jerry's了……（今早起床她将发现，可以吃两个了[微笑][微笑]  上帝保佑，大家早安！<br><img src="http://ww3.sinaimg.cn/large/9535c634jw1f4aqc5vlxdj20hs0qo77o.jpg"></p>
@@ -101,7 +107,7 @@
 </h2>
 <p>发布了头条文章：《【稀有资源】非诚勿扰女嘉宾闫凤娇艳照门全套未处理照片》 http://t.cn/R52oAK0</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3979909514478616" target="freeweibo-mirror">我选举你当五毛 //@大卫农夫:商家反应可真快，接下来还可以…</a>
 </h2>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3979897959206902" target="freeweibo-mirror">[good]//@九洲四海的微博:一派胡言！集体大锅饭与家庭…</a>
 </h2>
 <p>[good]//@九洲四海的微博:一派胡言！集体大锅饭与家庭联产承包谁好谁坏，只有亲身经历过的农民才有发言权，文革余孽、毛左分子和拿钱发帖的五毛根本就没有发言权。改革开放三十多年，绝大多数国人得到了巨大实惠（可以对比），只有那些玩嘴皮子的人和有手好闲的懒人才是改革开放的失意者，这些人拼命诋<br><br>RE: 农村体制改革之后，把人人一心为公改成了个个一心为私，把大家一起干改成了千家万户小单干，把大块的园田化改成了小块的角落丘，把原来十成灌溉面积改成了三成左右，把原本着手安装的路灯改成了没半盏，把年迈的老人和小孩留在家里守孤独。<br><img src="http://ww3.sinaimg.cn/large/d81ffff5gw1f4a7lcnjdpj208i064js1.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3979897141839284" target="freeweibo-mirror">尼玛，风向又变了？害我白抄了好几天党章！</a>
-</h2>
-<p>尼玛，风向又变了？害我白抄了好几天党章！</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
