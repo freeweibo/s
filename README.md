@@ -83,7 +83,7 @@
 </h2>
 <p>【这样的女人，难怪大陆官媒瞧不起！】贵为总统了，自己拎包找东西，嘴里还咬张车票，太不成体统！<br><img src="http://ww3.sinaimg.cn/large/6a80bfcdgw1f4argc0oa5j20hs0ofwhu.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3980005803092266" target="freeweibo-mirror">SPAM 没想到我勤勤恳恳回答翻译相关问题，第一个热门答问竟…</a>
 </h2>
