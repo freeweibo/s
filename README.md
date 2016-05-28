@@ -23,7 +23,7 @@
 </h2>
 <p>//@Ming_the_Great_大明:嘿嘿//@绍兴师爷行北京:这个逻辑就是，如果徐、郭没有不尊重、没有架空军委主席，是不是可以说，贪腐是可以被容忍的，他们至少也不是今天的下场呢?这样的＂政治底线＂都可以泄露，看来身边这届谋士也不行啊。</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3980041383158580" target="freeweibo-mirror">//@雷颐: //@吴巢:转发微博</a>
 </h2>
@@ -107,7 +107,7 @@
 </h2>
 <p>SPAM 招募手机网络主播，达到以下条件者，请直接联络本博主：1、上镜；2、语言表达能力佳；3、每天有两个小时以上业余时间，加-薇-信：1350 933 0008<br><img src="http://ww4.sinaimg.cn/large/bdc1323cgw1f4ae947334j20k00k0gng.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3979897959206902" target="freeweibo-mirror">[good]//@九洲四海的微博:一派胡言！集体大锅饭与家庭…</a>
 </h2>
