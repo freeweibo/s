@@ -59,7 +59,7 @@
 </h2>
 <p>SPAM //@IB林立人: //@孤家寡哥在逃亡:这脸打得……或许是叼盘被处罚心怀不满故意黑包子的。[笑cry]<br><br>RE: 老外欺负习近平。<br><img src="http://ww1.sinaimg.cn/large/006dw2b0gw1f4bj5ktepyj30go0b3wfr.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3980255951758843" target="freeweibo-mirror">这新闻……</a>
 </h2>
