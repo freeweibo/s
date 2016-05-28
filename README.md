@@ -103,6 +103,12 @@
 <p>
 	<small> ============== 4小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3980216592755867" target="freeweibo-mirror">SPAM #我想和你唱#我对这个《我想和你唱》也是我想对你唱…</a>
+</h2>
+<p>SPAM #我想和你唱#我对这个《我想和你唱》也是我想对你唱一首情歌。很喜欢的呢</p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3980213861656272" target="freeweibo-mirror">[泪][泪][泪] //@徐智明:我连智障都不如，我不活了[…</a>
 </h2>
 <p>[泪][泪][泪] //@徐智明:我连智障都不如，我不活了[泪] //@五岳散人:妈的，试了试，居然背不出……</p>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3980191393042908" target="freeweibo-mirror">这么好的无脸阶级革命家就这么挂了，我有点痛心。莫不是故意放风…</a>
 </h2>
 <p>这么好的无脸阶级革命家就这么挂了，我有点痛心。莫不是故意放风，试试反映？[思考]<br><img src="http://ww3.sinaimg.cn/large/494abd77gw1f4bbpr6c6wj20ci0m840g.jpg"></p>
-<p>
-	<small> ============== 6小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3980190654758284" target="freeweibo-mirror">智障朋友，你们受苦了！报告书记，我背不了。。。。。。[泪][…</a>
-</h2>
-<p>智障朋友，你们受苦了！报告书记，我背不了。。。。。。[泪][泪][泪][泪][泪]</p>
 <p>
 	<small> ============== 6小时前</small>
 </p>
