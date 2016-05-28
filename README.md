@@ -107,7 +107,7 @@
 </h2>
 <p>据微信消息，李嫁给一美国人，目前已取得美帝国公民身份。访民最后变成美国公民，也算脱离苦海了，祝福她。[威武]<br><img src="http://ww1.sinaimg.cn/large/006p0GMxgw1f4b7hykbjlj30i20dgq4l.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3980149541811692" target="freeweibo-mirror">//@记者-薛洪涛: //@糜新元:[good] //@德宇…</a>
 </h2>
@@ -131,7 +131,7 @@
 </h2>
 <p>//@赤耳丹朵: //@反资斗私郑大林:发表了博文《社会主义大旗还能打多久？》近年以来，国内风云变幻诡异事件不断发生。先是内阁大臣喊出：中美是夫妻关系。首相大人更是提出：救美国就等于救中国。中国增持美债券达4万亿美元，这是投名状还是见面礼？ http://t.cn/RGB2Lpg</p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3980137336310821" target="freeweibo-mirror">转发:中国人民大学法学教授、博士研究生导师、中国行为法学会副…</a>
 </h2>
