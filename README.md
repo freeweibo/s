@@ -35,13 +35,13 @@
 </h2>
 <p>不是，这是你奈我何的心理，指鹿为马的人当然知道那个不是马，但我就把大家当白痴耍，看谁敢当面反对？不敢正面肛背后反对的那种人只是败犬，他不在乎//@非著名军事吐槽家昆羽桑：宣传口的都是智障吗</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3980191393042908" target="freeweibo-mirror">这么好的无脸阶级革命家就这么挂了，我有点痛心。莫不是故意放风…</a>
 </h2>
 <p>这么好的无脸阶级革命家就这么挂了，我有点痛心。莫不是故意放风，试试反映？[思考]<br><img src="http://ww3.sinaimg.cn/large/494abd77gw1f4bbpr6c6wj20ci0m840g.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3980190654758284" target="freeweibo-mirror">智障朋友，你们受苦了！报告书记，我背不了。。。。。。[泪][…</a>
 </h2>
@@ -113,7 +113,7 @@
 </h2>
 <p>向何教授致敬！</p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3980142420753428" target="freeweibo-mirror">芮成钢…</a>
 </h2>
