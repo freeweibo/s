@@ -47,7 +47,7 @@
 </h2>
 <p>[疑问]//@老百姓----:要害的是，这两兄弟是怎么上来的，是谁让他们俩权集一时，又是谁？吃了他们俩的贿赂？至今依逍遥法外？<br><br>RE: 【军报：郭伯雄，徐才厚贪腐骇人听闻，但不是要害，要害是政治问题】我有些糊涂“贪腐骇人听闻，但不是要害”，贪腐是法律问题，法律是有规矩方圆的，有是非曲直的，而政治是各说各话，是站队问题，是效忠问题。法律应该是要害，政治应当在法律范围内运作，法律为政治让道是可怕的！<br><img src="http://ww2.sinaimg.cn/large/bea89b59jw1f49vbv2dr7j20ow0glgne.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3980405583543961" target="freeweibo-mirror">尸检结果呢？//@阿桐木木仔：很多网民的记忆跟金鱼是差不多的…</a>
 </h2>
@@ -107,13 +107,13 @@
 </h2>
 <p>SPAM Lui June 2016 EBONEE Photographer: David Bellemere Model: Ebonee Davis<br><img src="http://ww3.sinaimg.cn/large/56a2ad31gw1f4bjz43yolj21kw21nth1.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3980264033784659" target="freeweibo-mirror">SPAM [嘻嘻]//@筑景园: //@ICO刘开明: //…</a>
 </h2>
 <p>SPAM [嘻嘻]//@筑景园: //@ICO刘开明: //@IB林立人: //@孤家寡哥在逃亡:这脸打得……或许是叼盘被处罚心怀不满故意黑包子的。[笑cry]<br><br>RE: 老外欺负习近平。<br><img src="http://ww1.sinaimg.cn/large/006dw2b0gw1f4bj5ktepyj30go0b3wfr.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3980262054687349" target="freeweibo-mirror">SPAM [good][good][good]太棒了 @污话</a>
 </h2>
