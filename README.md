@@ -101,7 +101,7 @@
 </h2>
 <p>SPAM 【德国Doppelherz双心改善关节氨糖1000软骨素营养胶囊3盒X40粒】适用症状：关节疼痛、肿胀、骨质疏松、运动过度关节受损或患关节炎的人士。成分：1000毫克氨基葡萄糖、150毫克软骨素、锌、镁、维生素D、维生素E。每日服用两粒，超值120粒大包装售价：EUR 22.99 http://t.cn/R5LtiYL<br><img src="http://ww3.sinaimg.cn/large/74b5d787jw1f4bkec1bycj20sj15ogsl.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3980264092445625" target="freeweibo-mirror">SPAM Lui June 2016 EBONEE Phot…</a>
 </h2>
