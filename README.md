@@ -43,6 +43,12 @@
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3980591265242009" target="freeweibo-mirror">新闻联播几十年来基本就干了三件事:1.代表党教育人民，2.代…</a>
+</h2>
+<p>新闻联播几十年来基本就干了三件事:1.代表党教育人民，2.代表人民感谢党，3.外面的世界糟透了。<br><img src="http://ww1.sinaimg.cn/large/006oMYovgw1f4clpahianj30ci06x0t8.jpg"></p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3980570754862321" target="freeweibo-mirror">SPAM 就算他罪大恶极，该死一万次，临审前被噎成植物人，仔…</a>
 </h2>
 <p>SPAM 就算他罪大恶极，该死一万次，临审前被噎成植物人，仔细想想，很恐怖。<br><img src="http://ww2.sinaimg.cn/large/6c0d9c6ejw1f4cj7zkl8oj20e70gxq55.jpg"></p>
@@ -65,7 +71,7 @@
 </h2>
 <p>SPAM @黄靖翔 这两天一直在玩天下手游，我想要当天机蜀黍拐走他！[doge]现在求码上车还来得及吗？[馋嘴]@网易天下手游<br><img src="http://ww3.sinaimg.cn/large/4c778ed2gw1f4cig9p1zbj20go0m8wfz.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3980560663065616" target="freeweibo-mirror">SPAM //@小腐女一个://@二次元网90后:大爱二次元</a>
 </h2>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3980502815461590" target="freeweibo-mirror">SPAM //@心儿煮焖渣浪:[good][蜡烛]</a>
 </h2>
 <p>SPAM //@心儿煮焖渣浪:[good][蜡烛]</p>
-<p>
-	<small> ============== 9小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3980500504873681" target="freeweibo-mirror">SPAM 真假？</a>
-</h2>
-<p>SPAM 真假？<br><br>RE: 听说芮成钢已经死于燕城监狱，死因是食管堵塞，也就是说，他不小心把自己噎死了。我一直都鄙视这个代表全世界提问的傻逼，但我更鄙视这个三千年来原地踏步的死法:瘐毙。</p>
 <p>
 	<small> ============== 10小时前</small>
 </p>
