@@ -23,7 +23,7 @@
 </h2>
 <p>SPAM 【留美女学生遭暴打 只因讲了中文】上周，在美留学的中国女大学生石晓琳在乘坐火车时因和朋友讲中文，遭到一个白人年轻妇女的谩骂，叫喊“你们是混蛋，滚回中国去”。女生到站下车后，该妇女还不罢休尾随女生，挥拳猛击中国女生的脸部，使其鼻骨被打断，眼睛被打肿。详情阅读：http://t.cn/R5LSXSn<br><img src="http://ww1.sinaimg.cn/large/77101dc1jw1f4bzer26g2j208y090wfg.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3980405583543961" target="freeweibo-mirror">尸检结果呢？//@阿桐木木仔：很多网民的记忆跟金鱼是差不多的…</a>
 </h2>
