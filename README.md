@@ -77,7 +77,7 @@
 </h2>
 <p>SPAM //@心儿煮焖渣浪:[good][蜡烛]</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3980500504873681" target="freeweibo-mirror">SPAM 真假？</a>
 </h2>
