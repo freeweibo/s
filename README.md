@@ -59,7 +59,7 @@
 </h2>
 <p>//@Lily-况莉莉:对于一个人，不管他如何罪大恶极，也不管他犯什么罪。如果外界对于他的信息是：生死不明！这样的流氓国家，已经没有存在的价值了。必须推翻它，立即！多存在一天，都是反人类。这种恐怖政权，亡国就是最大的解放。<br><br>RE: 考拉在监狱被轮奸被残害。监狱的警察在外嚣张的讲怎么轮奸考拉，叫她【无尾熊】。【无尾熊】指被用微创磨骨磨掉尾椎骨，我也被特工磨掉了尾椎骨，我也被轮奸毁容还剪了我生殖器，我的家人也被凄辱。一般进了监狱610特工都会给人种植微晶芯片，定位监控人，还会用电波定向辐射人，催眠轮奸……<br><img src="http://ww2.sinaimg.cn/large/ba1d3b6agw1f4c0yjvu4jj20hs0qo78g.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3980620135202288" target="freeweibo-mirror">//@肖铁://@半两簃主人: //@孟彦弘:[偷笑] //…</a>
 </h2>
@@ -119,13 +119,13 @@
 </h2>
 <p>SPAM 呵呵，一年比一年人少，这批人死了之后估计也差不多了。<br><img src="http://ww2.sinaimg.cn/large/bcb72106jw1f4cneohvuaj20p018ggtv.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3980591265242009" target="freeweibo-mirror">新闻联播几十年来基本就干了三件事:1.代表党教育人民，2.代…</a>
 </h2>
 <p>新闻联播几十年来基本就干了三件事:1.代表党教育人民，2.代表人民感谢党，3.外面的世界糟透了。<br><img src="http://ww1.sinaimg.cn/large/006oMYovgw1f4clpahianj30ci06x0t8.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3980582789111594" target="freeweibo-mirror">“俯身献菊花”的上联终于对上了。 （转）</a>
 </h2>
