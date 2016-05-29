@@ -53,7 +53,7 @@
 </h2>
 <p>SPAM 如何找到适合自己的护肤品，看这</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3980523074438826" target="freeweibo-mirror">//@黄奎ART: //@戎99戎日记:转发微博</a>
 </h2>
@@ -107,7 +107,7 @@
 </h2>
 <p>什么情况？扩散求真相！[吃惊] @周李城 @石小杰微博 @陈光武律师 @平安北京 关注！ http://t.cn/R5LjVFX .</p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3980475422708638" target="freeweibo-mirror">[钟]//@法律及其价值: //@邓树林律师://@上善若水…</a>
 </h2>
