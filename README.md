@@ -71,7 +71,7 @@
 </h2>
 <p>中国公安部就雷洋案召集媒体引导舆论<br><img src="http://ww1.sinaimg.cn/large/006frtHVgw1f4cd3e5k9qj30k04fq1kx.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3980502815461590" target="freeweibo-mirror">SPAM //@心儿煮焖渣浪:[good][蜡烛]</a>
 </h2>
@@ -125,7 +125,7 @@
 </h2>
 <p>纳粹德国宣传部长戈培尔名言。<br><img src="http://ww3.sinaimg.cn/large/9b7ad381jw1f4c4et645fj20c80jbtcj.jpg"></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3980432582554223" target="freeweibo-mirror">//@谢文://@蓝鲸财经记者工作平台: //@罗昌平: 谁…</a>
 </h2>
