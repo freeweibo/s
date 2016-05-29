@@ -65,7 +65,7 @@
 </h2>
 <p>//@肖铁://@半两簃主人: //@孟彦弘:[偷笑] //@喂小猴儿:意淫、自慰、射美国！ //@大藏布:催眠药<br><br>RE: 新闻联播几十年来基本就干了三件事:1.代表党教育人民，2.代表人民感谢党，3.外面的世界糟透了。<br><img src="http://ww1.sinaimg.cn/large/006oMYovgw1f4clpahianj30ci06x0t8.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3980618733217380" target="freeweibo-mirror">//@余胜海: 不是三个代表吗，怎么少一个?[哈哈]//@I…</a>
 </h2>
