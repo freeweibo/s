@@ -19,6 +19,18 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3980570595599227" target="freeweibo-mirror">//@雷公旗: //@主权在民天赋人权: 转发微博</a>
+</h2>
+<p>//@雷公旗: //@主权在民天赋人权: 转发微博<br><br>RE: 【中国被俄罗斯耍了】#听海观潮#俄罗斯在最困难的时候 中国高价从俄罗斯购买油气，还给了很多无偿的资金援助，俄罗斯却把先进的武器卖给印度和越南，不卖给中国，来制约中国。现在他又倒向美国和曰本这边，在南海问题上暗算国，落井下石，上演了现代版的农夫和蛇的故事。<br><img src="http://ww2.sinaimg.cn/large/4fa29975gw1f4c79zlp20j20k00tc43t.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3980567529678034" target="freeweibo-mirror">SPAM //@律师王学明:报应很快就来的 //@李方平律师…</a>
+</h2>
+<p>SPAM //@律师王学明:报应很快就来的 //@李方平律师:太黑了！ //@杨兴权律师:欺负牧师就是挑战基督耶稣，我看这几个家伙是不要命了！<br><br>RE: 【活石教案：办案人要把牧师变成猪饲料喂猪！】（重发）当事人牧师仰华——李国志表示，办案检察官柯骏对其刑讯，并威胁说“我把你变成饲料去喂猪！我随时让你人间蒸发！”@迟夙生律师 @律师李贵生 @徐昕 @伍雷看夹边沟 @李方平律师 @大大陈以轩 @葛永喜律师 @何兵 @律师刘卫国 http://t.cn/R2d27Xl<br><img src="http://ww3.sinaimg.cn/large/006ftNiTjw1f4bc1m0c94j30zk0qo42l.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3980562954031241" target="freeweibo-mirror">SPAM @黄靖翔 这两天一直在玩天下手游，我想要当天机蜀黍…</a>
 </h2>
 <p>SPAM @黄靖翔 这两天一直在玩天下手游，我想要当天机蜀黍拐走他！[doge]现在求码上车还来得及吗？[馋嘴]@网易天下手游<br><img src="http://ww3.sinaimg.cn/large/4c778ed2gw1f4cig9p1zbj20go0m8wfz.jpg"></p>
@@ -126,18 +138,6 @@
 <p>[钟]//@法律及其价值: //@邓树林律师://@上善若水童: 转发微博//@邓树林律师://@上善若水童: 转发微博<br><br>RE: 纳粹德国宣传部长戈培尔名言。<br><img src="http://ww3.sinaimg.cn/large/9b7ad381jw1f4c4et645fj20c80jbtcj.jpg"></p>
 <p>
 	<small> ============== 8小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3980454594547564" target="freeweibo-mirror">20年前倡导的目标实现了而已。//@学习动态: 嗯！说得对！…</a>
-</h2>
-<p>20年前倡导的目标实现了而已。//@学习动态: 嗯！说得对！为家人或自己谋私利是之前很常态化的事情了！//@青鸟唤春:这个不假！<br><br>RE: 为何会形成权贵资本主义？就是因为在改革开放过程中，政治改革之后，原来极权式的权力架构，几乎原封不动进入市场经济。附在权力上的人和家属们，凭借权力直接攫取资源，成立他们被权力罩着的企业。这些人和企业，可以不按市场规矩办事。</p>
-<p>
-	<small> ============== 10小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3980440697983598" target="freeweibo-mirror">纳粹德国宣传部长戈培尔名言。</a>
-</h2>
-<p>纳粹德国宣传部长戈培尔名言。<br><img src="http://ww3.sinaimg.cn/large/9b7ad381jw1f4c4et645fj20c80jbtcj.jpg"></p>
-<p>
-	<small> ============== 11小时前</small>
 </p>
 <table>
     <tr>
