@@ -89,7 +89,7 @@
 </h2>
 <p>//@黄奎ART: //@戎99戎日记:转发微博<br><br>RE: 中国公安部就雷洋案召集媒体引导舆论<br><img src="http://ww1.sinaimg.cn/large/006frtHVgw1f4cd3e5k9qj30k04fq1kx.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3980520678878003" target="freeweibo-mirror">//@戎99戎日记:转发微博</a>
 </h2>
