@@ -19,11 +19,35 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3980432582554223" target="freeweibo-mirror">//@谢文://@蓝鲸财经记者工作平台: //@罗昌平: 谁…</a>
+</h2>
+<p>//@谢文://@蓝鲸财经记者工作平台: //@罗昌平: 谁知道准信？案子好像没有审判吧！<br><br>RE: 这位男主播涉案以来，没有公诉审判消息，各种传言四起，无一获得官方通报和回应。此次传称其在监所遭遇不测，蔓延很广，相信亲属分外担心，而且未必有渠道可以知晓，纪、检部门应当对此做适当回应。如果是谣言，也不妨查一查源头，以正视听。<br><img src="http://ww4.sinaimg.cn/large/74ab24d1jw1f4c26zsoloj20nz0mwn2p.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3980432066000402" target="freeweibo-mirror">SPAM 关注，学习ing~</a>
+</h2>
+<p>SPAM 关注，学习ing~</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3980429470344801" target="freeweibo-mirror">右二对 //@不许注册是什么意思:@罗昌平 不鼓动民意，搞乱…</a>
+</h2>
+<p>右二对 //@不许注册是什么意思:@罗昌平 不鼓动民意，搞乱社会，怎么去领狗粮啊。//@薛定谔的触手:涉密案子不公开审判很正常，为什么要回应？微博民意大多数都是吃饱了撑的，根本没有必要理会//@罗昌平: 谁知道准信？案子好像没有审判吧！<br><br>RE: 这位男主播涉案以来，没有公诉审判消息，各种传言四起，无一获得官方通报和回应。此次传称其在监所遭遇不测，蔓延很广，相信亲属分外担心，而且未必有渠道可以知晓，纪、检部门应当对此做适当回应。如果是谣言，也不妨查一查源头，以正视听。<br><img src="http://ww4.sinaimg.cn/large/74ab24d1jw1f4c26zsoloj20nz0mwn2p.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3980413468248402" target="freeweibo-mirror">//@包刚升博士_FDU: //@王天定://@罗昌平: 尸…</a>
 </h2>
 <p>//@包刚升博士_FDU: //@王天定://@罗昌平: 尸检结果呢？//@阿桐木木仔：很多网民的记忆跟金鱼是差不多的，伤疤都没好就已经忘了疼。<br><br>RE: 事到如今，雷洋一案毫无意外的进入有司装死的静默期，誓与公众的记忆和耐性赛跑。在传播链条中，任何偏差——比如误将某地小偷挨打的视频当做雷洋现场——都被高效辟谣，与当局立场一致的声音亦得意洋洋，大有「叫你们不信政府，这下被打脸了吧」的快意，同时，任何难以回避的痛点——比如雷洋服装被目...全文： http://m.weibo.cn/1560906700/3980228088678453</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3980411883162521" target="freeweibo-mirror">//@鹏媒体赵鹏://@张鸣: 为何会形成权贵资本主义？就是…</a>
+</h2>
+<p>//@鹏媒体赵鹏://@张鸣: 为何会形成权贵资本主义？就是因为在改革开放过程中，政治改革之后，原来极权式的权力架构，几乎原封不动进入市场经济。附在权力上的人和家属们，凭借权力直接攫取资源，成立他们被权力罩着的企业。这些人和企业，可以不按市场规矩办事。<br><br>RE: 【中国最大的敌人，不是西方价值观，而是权贵资本】干部家属子女是如何做起国有企业，进入央企生意的？谁让他们进去的？为什么可以肆无忌惮靠山吃山？到底吃了多少山？山都吃到哪里去了？权力如果比法大，靠山吃山就会继续，国企总资产超过100万亿，不够！ http://t.cn/R520HuP</p>
+<p>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3980411883162932" target="freeweibo-mirror">[泪]//@北方猎手: 贪腐不重要，只要跟对人，拿下两兄弟，…</a>
 </h2>
@@ -112,30 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3980264033784659" target="freeweibo-mirror">SPAM [嘻嘻]//@筑景园: //@ICO刘开明: //…</a>
 </h2>
 <p>SPAM [嘻嘻]//@筑景园: //@ICO刘开明: //@IB林立人: //@孤家寡哥在逃亡:这脸打得……或许是叼盘被处罚心怀不满故意黑包子的。[笑cry]<br><br>RE: 老外欺负习近平。<br><img src="http://ww1.sinaimg.cn/large/006dw2b0gw1f4bj5ktepyj30go0b3wfr.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3980262054687349" target="freeweibo-mirror">SPAM [good][good][good]太棒了 @污话</a>
-</h2>
-<p>SPAM [good][good][good]太棒了 @污话</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3980260531643489" target="freeweibo-mirror">SPAM //@IB林立人: //@孤家寡哥在逃亡:这脸打得…</a>
-</h2>
-<p>SPAM //@IB林立人: //@孤家寡哥在逃亡:这脸打得……或许是叼盘被处罚心怀不满故意黑包子的。[笑cry]<br><br>RE: 老外欺负习近平。<br><img src="http://ww1.sinaimg.cn/large/006dw2b0gw1f4bj5ktepyj30go0b3wfr.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3980255951758843" target="freeweibo-mirror">这新闻……</a>
-</h2>
-<p>这新闻……<br><br>RE: 据宣传「对越自卫反击战，女护士用乳汁喂养不能进食而奄奄一息的伤员，甘甜的乳汁救活了伤员，随军记者用相机记录这伟大圣洁的一刻」！我想了好多年，没想通「女兵用奶头直接塞到男人嘴里？没有碗？士兵是不允许结婚的，不结婚哪里来的奶水？哺乳期产妇上战场」？听说，是领导找丰满女兵摆拍，未证实。<br><img src="http://ww3.sinaimg.cn/large/7d3674e9jw1f4b1a3aw76j20yi0lrq5y.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3980255721236684" target="freeweibo-mirror">老外欺负习近平。</a>
-</h2>
-<p>老外欺负习近平。<br><img src="http://ww1.sinaimg.cn/large/006dw2b0gw1f4bj5ktepyj30go0b3wfr.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
