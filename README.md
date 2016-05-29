@@ -23,7 +23,7 @@
 </h2>
 <p>不是革命者就更没必要了 //@黄奎ART:回上海了再买你一年鸡[笑cry] //@人见人爱的肉唐僧:我不是个革命者，我只是厌恶现在的统治者，我希望中国有更好的政体。我表达这个厌恶，付出了代价。是不是就两不相欠了？阿伦特说“如果一个人把全部精力都投入到公共生活中，那他的人生是浅薄的”。总得有个头吧？</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3980325665444702" target="freeweibo-mirror">//@老夫子001:转发微博</a>
 </h2>
@@ -71,7 +71,7 @@
 </h2>
 <p>SPAM //@IB林立人: //@孤家寡哥在逃亡:这脸打得……或许是叼盘被处罚心怀不满故意黑包子的。[笑cry]<br><br>RE: 老外欺负习近平。<br><img src="http://ww1.sinaimg.cn/large/006dw2b0gw1f4bj5ktepyj30go0b3wfr.jpg"></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3980255951758843" target="freeweibo-mirror">这新闻……</a>
 </h2>
