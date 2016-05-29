@@ -65,7 +65,7 @@
 </h2>
 <p>//@记者-薛洪涛: //@米家那个山: 转发微博<br><br>RE: http://t.cn/R5L4Gy6 据英国广播BBC，11日报道,美方代表基斯·哈珀在联合国人权理事会会议上代表美国、澳大利亚、英国、丹麦、芬兰、德国、冰岛、爱尔兰、日本、挪威、荷兰、瑞典等12个国家发表联合声明称,对中国“继续恶化的人权纪录感到担忧”,尤其是“逮捕和监禁人权活动人士、公民社会领袖和律师</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3980530372286959" target="freeweibo-mirror">SPAM 今天529游行，害怕人民代表的政府 http://…</a>
 </h2>
@@ -95,7 +95,7 @@
 </h2>
 <p>//@戎99戎日记:转发微博<br><br>RE: 中国公安部就雷洋案召集媒体引导舆论<br><img src="http://ww1.sinaimg.cn/large/006frtHVgw1f4cd3e5k9qj30k04fq1kx.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3980516304803502" target="freeweibo-mirror">中国公安部就雷洋案召集媒体引导舆论</a>
 </h2>
