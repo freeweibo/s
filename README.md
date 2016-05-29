@@ -29,7 +29,7 @@
 </h2>
 <p>//@戎99戎日记:转发微博<br><br>RE: 中国公安部就雷洋案召集媒体引导舆论<br><img src="http://ww1.sinaimg.cn/large/006frtHVgw1f4cd3e5k9qj30k04fq1kx.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3980516304803502" target="freeweibo-mirror">中国公安部就雷洋案召集媒体引导舆论</a>
 </h2>
@@ -77,7 +77,7 @@
 </h2>
 <p>[钟]//@法律及其价值: //@邓树林律师://@上善若水童: 转发微博//@邓树林律师://@上善若水童: 转发微博<br><br>RE: 纳粹德国宣传部长戈培尔名言。<br><img src="http://ww3.sinaimg.cn/large/9b7ad381jw1f4c4et645fj20c80jbtcj.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3980454594547564" target="freeweibo-mirror">20年前倡导的目标实现了而已。//@学习动态: 嗯！说得对！…</a>
 </h2>
@@ -107,7 +107,7 @@
 </h2>
 <p>右二对 //@不许注册是什么意思:@罗昌平 不鼓动民意，搞乱社会，怎么去领狗粮啊。//@薛定谔的触手:涉密案子不公开审判很正常，为什么要回应？微博民意大多数都是吃饱了撑的，根本没有必要理会//@罗昌平: 谁知道准信？案子好像没有审判吧！<br><br>RE: 这位男主播涉案以来，没有公诉审判消息，各种传言四起，无一获得官方通报和回应。此次传称其在监所遭遇不测，蔓延很广，相信亲属分外担心，而且未必有渠道可以知晓，纪、检部门应当对此做适当回应。如果是谣言，也不妨查一查源头，以正视听。<br><img src="http://ww4.sinaimg.cn/large/74ab24d1jw1f4c26zsoloj20nz0mwn2p.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3980426332892171" target="freeweibo-mirror">为什么能长时间不开庭?//@李不白的店:[吃惊]//@罗昌平…</a>
 </h2>
@@ -131,7 +131,7 @@
 </h2>
 <p>#李光洁唱的是气质#大家都看到了不，是不是都是很激动了呀[可爱] undo</p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3980413875403383" target="freeweibo-mirror">#李光洁唱的是气质#现在看到了吗啊，总之呢，大家都在等着的啦…</a>
 </h2>
