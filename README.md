@@ -23,7 +23,7 @@
 </h2>
 <p>//@余胜海: 不是三个代表吗，怎么少一个?[哈哈]//@IB林立人://@叁-壹-陆-零: //@大藏布:催眠药<br><br>RE: 新闻联播几十年来基本就干了三件事:1.代表党教育人民，2.代表人民感谢党，3.外面的世界糟透了。<br><img src="http://ww1.sinaimg.cn/large/006oMYovgw1f4clpahianj30ci06x0t8.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3980617328222950" target="freeweibo-mirror">不是三个代表吗，怎么少一个?[哈哈]//@IB林立人://@…</a>
 </h2>
@@ -77,13 +77,13 @@
 </h2>
 <p>//@张天戈-9://@鵟風海韻: 转发微博</p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3980542607091741" target="freeweibo-mirror">SPAM //@张天戈-9://@戎99戎日记: //@犹大…</a>
 </h2>
 <p>SPAM //@张天戈-9://@戎99戎日记: //@犹大家的狮子: //@哥们风太大a://@槍挑六合V:[微风][微风][心] //@劍指八荒V:[微风][微风][推荐] //@憮堓又落英:[微风][微风][心] //@憮堓不飛花:[微风][推荐] //@加H菲炮1314Cat:酒吧！[微风][微风][推荐][推荐]<br><br>RE: 今天酒吧的衣服 http://t.cn/R2WiV9F<br><img src="http://ww2.sinaimg.cn/large/005CpTLFjw1f4cejajg9cj30qo0qotdm.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3980535816375984" target="freeweibo-mirror">//@记者-薛洪涛: //@米家那个山: 转发微博</a>
 </h2>
