@@ -119,7 +119,7 @@
 </h2>
 <p>山本：''把南京大屠杀从教科书中改了，大大滴好。'' 汉奸：''只要太君高兴，愿为太君效力''<br><img src="http://ww3.sinaimg.cn/large/b0e3799egw1f4bio5fno2j20d207pt94.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3980247835479307" target="freeweibo-mirror">SPAM 如此“宣传”，恐怕也只是“宣传”了。 //@无差别…</a>
 </h2>
