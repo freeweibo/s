@@ -125,7 +125,7 @@
 </h2>
 <p>中国公安部就雷洋案召集媒体引导舆论<br><img src="http://ww1.sinaimg.cn/large/006frtHVgw1f4cd3e5k9qj30k04fq1kx.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3980502815461590" target="freeweibo-mirror">SPAM //@心儿煮焖渣浪:[good][蜡烛]</a>
 </h2>
