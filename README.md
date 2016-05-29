@@ -31,6 +31,24 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3980621653698786" target="freeweibo-mirror">//@大藏布: 不忍转，希望只是谣言[泪]</a>
+</h2>
+<p>//@大藏布: 不忍转，希望只是谣言[泪]<br><br>RE: 考拉在监狱被轮奸被残害。监狱的警察在外嚣张的讲怎么轮奸考拉，叫她【无尾熊】。【无尾熊】指被用微创磨骨磨掉尾椎骨，我也被特工磨掉了尾椎骨，我也被轮奸毁容还剪了我生殖器，我的家人也被凄辱。一般进了监狱610特工都会给人种植微晶芯片，定位监控人，还会用电波定向辐射人，催眠轮奸……<br><img src="http://ww2.sinaimg.cn/large/ba1d3b6agw1f4c0yjvu4jj20hs0qo78g.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3980621547859441" target="freeweibo-mirror">//@Lily-况莉莉:对于一个人，不管他如何罪大恶极，也不…</a>
+</h2>
+<p>//@Lily-况莉莉:对于一个人，不管他如何罪大恶极，也不管他犯什么罪。如果外界对于他的信息是：生死不明！这样的流氓国家，已经没有存在的价值了。必须推翻它，立即！多存在一天，都是反人类。这种恐怖政权，亡国就是最大的解放。<br><br>RE: 考拉在监狱被轮奸被残害。监狱的警察在外嚣张的讲怎么轮奸考拉，叫她【无尾熊】。【无尾熊】指被用微创磨骨磨掉尾椎骨，我也被特工磨掉了尾椎骨，我也被轮奸毁容还剪了我生殖器，我的家人也被凄辱。一般进了监狱610特工都会给人种植微晶芯片，定位监控人，还会用电波定向辐射人，催眠轮奸……<br><img src="http://ww2.sinaimg.cn/large/ba1d3b6agw1f4c0yjvu4jj20hs0qo78g.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3980620135202288" target="freeweibo-mirror">//@肖铁://@半两簃主人: //@孟彦弘:[偷笑] //…</a>
+</h2>
+<p>//@肖铁://@半两簃主人: //@孟彦弘:[偷笑] //@喂小猴儿:意淫、自慰、射美国！ //@大藏布:催眠药<br><br>RE: 新闻联播几十年来基本就干了三件事:1.代表党教育人民，2.代表人民感谢党，3.外面的世界糟透了。<br><img src="http://ww1.sinaimg.cn/large/006oMYovgw1f4clpahianj30ci06x0t8.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3980618733217380" target="freeweibo-mirror">//@余胜海: 不是三个代表吗，怎么少一个?[哈哈]//@I…</a>
 </h2>
 <p>//@余胜海: 不是三个代表吗，怎么少一个?[哈哈]//@IB林立人://@叁-壹-陆-零: //@大藏布:催眠药<br><br>RE: 新闻联播几十年来基本就干了三件事:1.代表党教育人民，2.代表人民感谢党，3.外面的世界糟透了。<br><img src="http://ww1.sinaimg.cn/large/006oMYovgw1f4clpahianj30ci06x0t8.jpg"></p>
@@ -40,6 +58,30 @@
 	<a href="https://freeweibo.com/weibo/3980617328222950" target="freeweibo-mirror">不是三个代表吗，怎么少一个?[哈哈]//@IB林立人://@…</a>
 </h2>
 <p>不是三个代表吗，怎么少一个?[哈哈]//@IB林立人://@叁-壹-陆-零: //@大藏布:催眠药<br><br>RE: 新闻联播几十年来基本就干了三件事:1.代表党教育人民，2.代表人民感谢党，3.外面的世界糟透了。<br><img src="http://ww1.sinaimg.cn/large/006oMYovgw1f4clpahianj30ci06x0t8.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3980616682221803" target="freeweibo-mirror">//@Lily-况莉莉:你对别人没有底线，别人也不会对你有底…</a>
+</h2>
+<p>//@Lily-况莉莉:你对别人没有底线，别人也不会对你有底线。假如有遭全盘清算的那一天，你自己的老婆，女儿也会被别人轮奸。永远不要以为别人拿你没辙，不积阴德，报应总是来的很快。抬头看看天，看上苍饶过谁。 //@北极熊号: //@大藏布:不忍转，希望只是谣言[泪]<br><br>RE: 考拉在监狱被轮奸被残害。监狱的警察在外嚣张的讲怎么轮奸考拉，叫她【无尾熊】。【无尾熊】指被用微创磨骨磨掉尾椎骨，我也被特工磨掉了尾椎骨，我也被轮奸毁容还剪了我生殖器，我的家人也被凄辱。一般进了监狱610特工都会给人种植微晶芯片，定位监控人，还会用电波定向辐射人，催眠轮奸……<br><img src="http://ww2.sinaimg.cn/large/ba1d3b6agw1f4c0yjvu4jj20hs0qo78g.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3980614317389935" target="freeweibo-mirror">//@叁-壹-陆-零: //@大藏布:催眠药</a>
+</h2>
+<p>//@叁-壹-陆-零: //@大藏布:催眠药<br><br>RE: 新闻联播几十年来基本就干了三件事:1.代表党教育人民，2.代表人民感谢党，3.外面的世界糟透了。<br><img src="http://ww1.sinaimg.cn/large/006oMYovgw1f4clpahianj30ci06x0t8.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3980613423750923" target="freeweibo-mirror">[霹雳][霹雳] //@孤独哥111:[怒] //@L王梓航…</a>
+</h2>
+<p>[霹雳][霹雳] //@孤独哥111:[怒] //@L王梓航S:[怒][怒][怒] //@美裙百灵鸟儿:[吃惊][怒] //@攻城第七狮://@会跑的鹿: //@埋己无土地://@洎油_泯注:[怒]//@朝歌102军-长:[怒]//@王林的微博客:[怒]//@儒林泊客:[怒]//@王狼默:[怒]//@孤家寡哥在彷徨:[怒]//@慕松的中年人:[怒]//@用脚投票14:[怒]<br><br>RE: 考拉在监狱被轮奸被残害。监狱的警察在外嚣张的讲怎么轮奸考拉，叫她【无尾熊】。【无尾熊】指被用微创磨骨磨掉尾椎骨，我也被特工磨掉了尾椎骨，我也被轮奸毁容还剪了我生殖器，我的家人也被凄辱。一般进了监狱610特工都会给人种植微晶芯片，定位监控人，还会用电波定向辐射人，催眠轮奸……<br><img src="http://ww2.sinaimg.cn/large/ba1d3b6agw1f4c0yjvu4jj20hs0qo78g.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3980612073932950" target="freeweibo-mirror">//@何光荣国民华中5: [吃惊][吃惊][吃惊]//@铁幕…</a>
+</h2>
+<p>//@何光荣国民华中5: [吃惊][吃惊][吃惊]//@铁幕一民://@李翔196811: //@不让上网就上你:属实吗[怒]//@孤家寡哥在彷徨: //@慕松的中年人:[吃惊][怒]//@用脚投票14:[吃惊][吃惊]//@梅花刺7://@四郎东:[吃惊][怒]//@居士鸿斌: 请@人民日报 @央视新闻 出来解释一下<br><br>RE: 考拉在监狱被轮奸被残害。监狱的警察在外嚣张的讲怎么轮奸考拉，叫她【无尾熊】。【无尾熊】指被用微创磨骨磨掉尾椎骨，我也被特工磨掉了尾椎骨，我也被轮奸毁容还剪了我生殖器，我的家人也被凄辱。一般进了监狱610特工都会给人种植微晶芯片，定位监控人，还会用电波定向辐射人，催眠轮奸……<br><img src="http://ww2.sinaimg.cn/large/ba1d3b6agw1f4c0yjvu4jj20hs0qo78g.jpg"></p>
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
@@ -96,48 +138,6 @@
 <p>//@张天戈-9://@鵟風海韻: 转发微博</p>
 <p>
 	<small> ============== 7小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3980542607091741" target="freeweibo-mirror">SPAM //@张天戈-9://@戎99戎日记: //@犹大…</a>
-</h2>
-<p>SPAM //@张天戈-9://@戎99戎日记: //@犹大家的狮子: //@哥们风太大a://@槍挑六合V:[微风][微风][心] //@劍指八荒V:[微风][微风][推荐] //@憮堓又落英:[微风][微风][心] //@憮堓不飛花:[微风][推荐] //@加H菲炮1314Cat:酒吧！[微风][微风][推荐][推荐]<br><br>RE: 今天酒吧的衣服 http://t.cn/R2WiV9F<br><img src="http://ww2.sinaimg.cn/large/005CpTLFjw1f4cejajg9cj30qo0qotdm.jpg"></p>
-<p>
-	<small> ============== 7小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3980535816375984" target="freeweibo-mirror">//@记者-薛洪涛: //@米家那个山: 转发微博</a>
-</h2>
-<p>//@记者-薛洪涛: //@米家那个山: 转发微博<br><br>RE: http://t.cn/R5L4Gy6 据英国广播BBC，11日报道,美方代表基斯·哈珀在联合国人权理事会会议上代表美国、澳大利亚、英国、丹麦、芬兰、德国、冰岛、爱尔兰、日本、挪威、荷兰、瑞典等12个国家发表联合声明称,对中国“继续恶化的人权纪录感到担忧”,尤其是“逮捕和监禁人权活动人士、公民社会领袖和律师</p>
-<p>
-	<small> ============== 7小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3980530372286959" target="freeweibo-mirror">SPAM 今天529游行，害怕人民代表的政府 http://…</a>
-</h2>
-<p>SPAM 今天529游行，害怕人民代表的政府 http://t.cn/R2WJbRn<br><img src="http://ww4.sinaimg.cn/large/005CpTLFjw1f4cep049mej30zk0qowma.jpg"></p>
-<p>
-	<small> ============== 8小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3980528913075703" target="freeweibo-mirror">今天酒吧的衣服 http://t.cn/R2WiV9F</a>
-</h2>
-<p>今天酒吧的衣服 http://t.cn/R2WiV9F<br><img src="http://ww2.sinaimg.cn/large/005CpTLFjw1f4cejajg9cj30qo0qotdm.jpg"></p>
-<p>
-	<small> ============== 8小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3980525209573348" target="freeweibo-mirror">SPAM 如何找到适合自己的护肤品，看这</a>
-</h2>
-<p>SPAM 如何找到适合自己的护肤品，看这</p>
-<p>
-	<small> ============== 8小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3980523074438826" target="freeweibo-mirror">//@黄奎ART: //@戎99戎日记:转发微博</a>
-</h2>
-<p>//@黄奎ART: //@戎99戎日记:转发微博<br><br>RE: 中国公安部就雷洋案召集媒体引导舆论<br><img src="http://ww1.sinaimg.cn/large/006frtHVgw1f4cd3e5k9qj30k04fq1kx.jpg"></p>
-<p>
-	<small> ============== 8小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3980520678878003" target="freeweibo-mirror">//@戎99戎日记:转发微博</a>
-</h2>
-<p>//@戎99戎日记:转发微博<br><br>RE: 中国公安部就雷洋案召集媒体引导舆论<br><img src="http://ww1.sinaimg.cn/large/006frtHVgw1f4cd3e5k9qj30k04fq1kx.jpg"></p>
-<p>
-	<small> ============== 8小时前</small>
 </p>
 <table>
     <tr>
