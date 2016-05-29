@@ -137,7 +137,7 @@
 </h2>
 <p>SPAM 【德国双立人Zwilling 255毫米长鸡架剪，EUR 34,42】无论生鸡还是熟鸡用鸡架剪可以轻松快速的分解成鸡块，煲鸡汤不再因为切块麻烦而烦恼。除了鸡，鸭子、鹅也能剪成小块，适合中餐烹调。优质不锈钢材制作，知名品牌德国制造质量保证 http://t.cn/RZRwDiw<br><img src="http://ww2.sinaimg.cn/large/74b5d787jw1f4bm5t18wyj20ce15ota0.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p>
 <table>
     <tr>
