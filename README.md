@@ -89,13 +89,13 @@
 </h2>
 <p>这新闻……<br><br>RE: 据宣传「对越自卫反击战，女护士用乳汁喂养不能进食而奄奄一息的伤员，甘甜的乳汁救活了伤员，随军记者用相机记录这伟大圣洁的一刻」！我想了好多年，没想通「女兵用奶头直接塞到男人嘴里？没有碗？士兵是不允许结婚的，不结婚哪里来的奶水？哺乳期产妇上战场」？听说，是领导找丰满女兵摆拍，未证实。<br><img src="http://ww3.sinaimg.cn/large/7d3674e9jw1f4b1a3aw76j20yi0lrq5y.jpg"></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3980255721236684" target="freeweibo-mirror">老外欺负习近平。</a>
 </h2>
 <p>老外欺负习近平。<br><img src="http://ww1.sinaimg.cn/large/006dw2b0gw1f4bj5ktepyj30go0b3wfr.jpg"></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3980251434457077" target="freeweibo-mirror">山本：''把南京大屠杀从教科书中改了，大大滴好。'' 汉奸：…</a>
 </h2>
