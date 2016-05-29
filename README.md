@@ -19,6 +19,18 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3980523074438826" target="freeweibo-mirror">//@黄奎ART: //@戎99戎日记:转发微博</a>
+</h2>
+<p>//@黄奎ART: //@戎99戎日记:转发微博<br><br>RE: 中国公安部就雷洋案召集媒体引导舆论<br><img src="http://ww1.sinaimg.cn/large/006frtHVgw1f4cd3e5k9qj30k04fq1kx.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3980520678878003" target="freeweibo-mirror">//@戎99戎日记:转发微博</a>
+</h2>
+<p>//@戎99戎日记:转发微博<br><br>RE: 中国公安部就雷洋案召集媒体引导舆论<br><img src="http://ww1.sinaimg.cn/large/006frtHVgw1f4cd3e5k9qj30k04fq1kx.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3980500504873681" target="freeweibo-mirror">SPAM 真假？</a>
 </h2>
 <p>SPAM 真假？<br><br>RE: 听说芮成钢已经死于燕城监狱，死因是食管堵塞，也就是说，他不小心把自己噎死了。我一直都鄙视这个代表全世界提问的傻逼，但我更鄙视这个三千年来原地踏步的死法:瘐毙。</p>
@@ -35,7 +47,7 @@
 </h2>
 <p>SPAM 拍电影[吃惊]//@周李城:什么情况？[吃惊] #中国微力量# 转发求真相！<br><br>RE: 什么情况？扩散求真相！[吃惊] @周李城 @石小杰微博 @陈光武律师 @平安北京 关注！ http://t.cn/R5LjVFX .</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3980479894577319" target="freeweibo-mirror">什么情况？扩散求真相！[吃惊] @周李城 @石小杰微博 @陈…</a>
 </h2>
@@ -95,7 +107,7 @@
 </h2>
 <p>这位男主播涉案以来，没有公诉审判消息，各种传言四起，无一获得官方通报和回应。此次传称其在监所遭遇不测，蔓延很广，相信亲属分外担心，而且未必有渠道可以知晓，纪、检部门应当对此做适当回应。如果是谣言，也不妨查一查源头，以正视听。<br><img src="http://ww4.sinaimg.cn/large/74ab24d1jw1f4c26zsoloj20nz0mwn2p.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3980414576586039" target="freeweibo-mirror">#李光洁唱的是气质#大家都看到了不，是不是都是很激动了呀[可…</a>
 </h2>
@@ -124,18 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3980411883162932" target="freeweibo-mirror">[泪]//@北方猎手: 贪腐不重要，只要跟对人，拿下两兄弟，…</a>
 </h2>
 <p>[泪]//@北方猎手: 贪腐不重要，只要跟对人，拿下两兄弟，自有后来人。//@曹小明律师:[疑问]//@老百姓----:要害的是，这两兄弟是怎么上来的，是谁让他们俩权集一时，又是谁？吃了他们俩的贿赂？至今依逍遥法外？<br><br>RE: 【军报：郭伯雄，徐才厚贪腐骇人听闻，但不是要害，要害是政治问题】我有些糊涂“贪腐骇人听闻，但不是要害”，贪腐是法律问题，法律是有规矩方圆的，有是非曲直的，而政治是各说各话，是站队问题，是效忠问题。法律应该是要害，政治应当在法律范围内运作，法律为政治让道是可怕的！<br><img src="http://ww2.sinaimg.cn/large/bea89b59jw1f49vbv2dr7j20ow0glgne.jpg"></p>
-<p>
-	<small> ============== 8小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3980411434617376" target="freeweibo-mirror">//@罗昌平: 尸检结果呢？//@阿桐木木仔：很多网民的记忆…</a>
-</h2>
-<p>//@罗昌平: 尸检结果呢？//@阿桐木木仔：很多网民的记忆跟金鱼是差不多的，伤疤都没好就已经忘了疼。<br><br>RE: 事到如今，雷洋一案毫无意外的进入有司装死的静默期，誓与公众的记忆和耐性赛跑。在传播链条中，任何偏差——比如误将某地小偷挨打的视频当做雷洋现场——都被高效辟谣，与当局立场一致的声音亦得意洋洋，大有「叫你们不信政府，这下被打脸了吧」的快意，同时，任何难以回避的痛点——比如雷洋服装被目...全文： http://m.weibo.cn/1560906700/3980228088678453</p>
-<p>
-	<small> ============== 8小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3980408574134470" target="freeweibo-mirror">SPAM 【留美女学生遭暴打 只因讲了中文】上周，在美留学的…</a>
-</h2>
-<p>SPAM 【留美女学生遭暴打 只因讲了中文】上周，在美留学的中国女大学生石晓琳在乘坐火车时因和朋友讲中文，遭到一个白人年轻妇女的谩骂，叫喊“你们是混蛋，滚回中国去”。女生到站下车后，该妇女还不罢休尾随女生，挥拳猛击中国女生的脸部，使其鼻骨被打断，眼睛被打肿。详情阅读：http://t.cn/R5LSXSn<br><img src="http://ww1.sinaimg.cn/large/77101dc1jw1f4bzer26g2j208y090wfg.jpg"></p>
 <p>
 	<small> ============== 8小时前</small>
 </p>
