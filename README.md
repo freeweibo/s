@@ -71,7 +71,7 @@
 </h2>
 <p>[赞]//@复旦孙沛东: [good]“我们不是生活在五十年代。你可以选择唱，我可以选择不出版。“//@吴铭: 打开天窗说亮话。</p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3980840054277342" target="freeweibo-mirror">[good]//@赵查理: 转发微博</a>
 </h2>
@@ -113,7 +113,7 @@
 </h2>
 <p>萱萱部长出席《太阳的后裔》研讨会的消息被全网封杀了。[笑cry]</p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3980819598713665" target="freeweibo-mirror">SPAM 《刑事诉讼法》第一百九十六条 宣告判决，一律公开进…</a>
 </h2>
