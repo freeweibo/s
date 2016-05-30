@@ -31,6 +31,30 @@
 <p>
 	<small> ============== 1小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3980767069036498" target="freeweibo-mirror">SPAM [生病]好多IP是国外的。。咱有墙，人家国外没墙，…</a>
+</h2>
+<p>SPAM [生病]好多IP是国外的。。咱有墙，人家国外没墙，每个华人都在关心这个案子，关心这个国家。对了，张建国就是境外IP，应予逮捕。 //@北京厨子新号:一看到境外势力四个字，我心就死了。 //@尹鸿: 媒介素养培训半天，就忘了最根本一条：知情权！<br><br>RE: 分享图片<br><img src="http://ww1.sinaimg.cn/large/befb4b9bjw1f4cei3m3g7j20hs3xzqp8.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3980762698534750" target="freeweibo-mirror">SPAM 这个逻辑环终于闭上了，非常好。//@姚广孝_way…</a>
+</h2>
+<p>SPAM 这个逻辑环终于闭上了，非常好。//@姚广孝_wayne:“JC是弱势群体”——你弱你有理？[doge]//<br><br>RE: 分享图片<br><img src="http://ww1.sinaimg.cn/large/befb4b9bjw1f4cei3m3g7j20hs3xzqp8.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3980757665890391" target="freeweibo-mirror">SPAM 哈哈哈！ //@蔡老板:乃们总想搞个大新闻[goo…</a>
+</h2>
+<p>SPAM 哈哈哈！ //@蔡老板:乃们总想搞个大新闻[good][good]<br><br>RE: 如何判断一个人是不是网红？<br><img src="http://ww4.sinaimg.cn/large/005OQa2Gjw1f4d3yztkfoj30kr0hngop.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3980742008119508" target="freeweibo-mirror">//@朱田夫: 终于来了内行领导，还看了IP地址 //@上海…</a>
+</h2>
+<p>//@朱田夫: 终于来了内行领导，还看了IP地址 //@上海陈子善:中国人大的校友不是遍布世界的吗?"境外"就必有问题，必别有用心?[白眼]//@宪阁微观:空窗期、境外//@陆浑戎: [衰]//@孟彦弘:哪天，官员从关心动机，变为更关心事实本身了，政府就长大了点。原来，还说公民有知情权；现在，好像成了“你别管”<br><br>RE: 分享图片<br><img src="http://ww1.sinaimg.cn/large/befb4b9bjw1f4cei3m3g7j20hs3xzqp8.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3980740158491339" target="freeweibo-mirror">律师、记者，难兄难弟！[黑线]</a>
 </h2>
 <p>律师、记者，难兄难弟！[黑线]<br><br>RE: 朱明勇律师：今日听闻南方某地两律师在东北办案开庭前被当地黑帮掐脖子，要扔进河里去，求助法官法官说自己一个小法官保证不了律师安全。最终法院大门被围堵，两律师被逼在法院写下撤诉书，法官当场发裁定准许撤诉。后两律师从法院后门翻墙逃离。——这都是未见媒体报道的重磅啊。</p>
@@ -107,35 +131,11 @@
 </h2>
 <p>【人大代表、政协委员不能每天无所事事！要干点啥！】你的人大代表、政协委员，有监督政府机构的功能，那么出现这种事，这些代表委员就要去调查。这是他们的工作！不说去监督政府，做点调查总是要的吧。美国出了事，都是美国议员出面调查。<br><br>RE: 考拉在监狱被轮奸被残害。监狱的警察在外嚣张的讲怎么轮奸考拉，叫她【无尾熊】。【无尾熊】指被用微创磨骨磨掉尾椎骨，我也被特工磨掉了尾椎骨，我也被轮奸毁容还剪了我生殖器，我的家人也被凄辱。一般进了监狱610特工都会给人种植微晶芯片，定位监控人，还会用电波定向辐射人，催眠轮奸……<br><img src="http://ww2.sinaimg.cn/large/ba1d3b6agw1f4c0yjvu4jj20hs0qo78g.jpg"></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3980624861221050" target="freeweibo-mirror">这不会是真的吧？？</a>
 </h2>
 <p>这不会是真的吧？？<br><br>RE: 考拉在监狱被轮奸被残害。监狱的警察在外嚣张的讲怎么轮奸考拉，叫她【无尾熊】。【无尾熊】指被用微创磨骨磨掉尾椎骨，我也被特工磨掉了尾椎骨，我也被轮奸毁容还剪了我生殖器，我的家人也被凄辱。一般进了监狱610特工都会给人种植微晶芯片，定位监控人，还会用电波定向辐射人，催眠轮奸……<br><img src="http://ww2.sinaimg.cn/large/ba1d3b6agw1f4c0yjvu4jj20hs0qo78g.jpg"></p>
-<p>
-	<small> ============== 11小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3980624320633300" target="freeweibo-mirror">SPAM 【大婚当夜，他放//纵自己，以致王妃昏死榻上……】…</a>
-</h2>
-<p>SPAM 【大婚当夜，他放//纵自己，以致王妃昏死榻上……】大婚之夜，他竟用手检查我的贞//洁，我落胎之时，他带回神秘女子纳为恻妃，婚乐声伴着御医的叹息…他就这么恨我？恨到连死过一次的我都不放过，恨到要让我人尽可夫！？#锦绣未央# http://t.cn/R5y7YmW</p>
-<p>
-	<small> ============== 11小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3980623246931410" target="freeweibo-mirror">SPAM [哈哈]//@jlijames:[笑cry]//@…</a>
-</h2>
-<p>SPAM [哈哈]//@jlijames:[笑cry]//@悠野V: [哈哈]//@三角锋评: [哈哈]//@道玄僟: [哈哈]//@被淹死的鲔鱼: [笑cry]//@-生为东道主:[笑cry]//@哥们风太大a: [哈哈]//@柳林卿清:[哈哈]//@淡紫色的冰冰:[笑cry] //@摔三角拍烟画:[good]//@耳光赵荒唐:哈哈//@石扉客2014:绝对<br><br>RE: “俯身献菊花”的上联终于对上了。 （转）<br><img src="http://ww4.sinaimg.cn/large/53ae0b70gw1f4ckq8xqh0j20i20eqtab.jpg"></p>
-<p>
-	<small> ============== 11小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3980621653698786" target="freeweibo-mirror">//@大藏布: 不忍转，希望只是谣言[泪]</a>
-</h2>
-<p>//@大藏布: 不忍转，希望只是谣言[泪]<br><br>RE: 考拉在监狱被轮奸被残害。监狱的警察在外嚣张的讲怎么轮奸考拉，叫她【无尾熊】。【无尾熊】指被用微创磨骨磨掉尾椎骨，我也被特工磨掉了尾椎骨，我也被轮奸毁容还剪了我生殖器，我的家人也被凄辱。一般进了监狱610特工都会给人种植微晶芯片，定位监控人，还会用电波定向辐射人，催眠轮奸……<br><img src="http://ww2.sinaimg.cn/large/ba1d3b6agw1f4c0yjvu4jj20hs0qo78g.jpg"></p>
-<p>
-	<small> ============== 11小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3980621547859441" target="freeweibo-mirror">//@Lily-况莉莉:对于一个人，不管他如何罪大恶极，也不…</a>
-</h2>
-<p>//@Lily-况莉莉:对于一个人，不管他如何罪大恶极，也不管他犯什么罪。如果外界对于他的信息是：生死不明！这样的流氓国家，已经没有存在的价值了。必须推翻它，立即！多存在一天，都是反人类。这种恐怖政权，亡国就是最大的解放。<br><br>RE: 考拉在监狱被轮奸被残害。监狱的警察在外嚣张的讲怎么轮奸考拉，叫她【无尾熊】。【无尾熊】指被用微创磨骨磨掉尾椎骨，我也被特工磨掉了尾椎骨，我也被轮奸毁容还剪了我生殖器，我的家人也被凄辱。一般进了监狱610特工都会给人种植微晶芯片，定位监控人，还会用电波定向辐射人，催眠轮奸……<br><img src="http://ww2.sinaimg.cn/large/ba1d3b6agw1f4c0yjvu4jj20hs0qo78g.jpg"></p>
 <p>
 	<small> ============== 11小时前</small>
 </p>
