@@ -35,7 +35,7 @@
 </h2>
 <p>SPAM [心] get</p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3980630121244731" target="freeweibo-mirror">SPAM //@战争史研究WHS: 回复@此用户不清真:我电…</a>
 </h2>
@@ -65,7 +65,7 @@
 </h2>
 <p>SPAM [哈哈]//@jlijames:[笑cry]//@悠野V: [哈哈]//@三角锋评: [哈哈]//@道玄僟: [哈哈]//@被淹死的鲔鱼: [笑cry]//@-生为东道主:[笑cry]//@哥们风太大a: [哈哈]//@柳林卿清:[哈哈]//@淡紫色的冰冰:[笑cry] //@摔三角拍烟画:[good]//@耳光赵荒唐:哈哈//@石扉客2014:绝对<br><br>RE: “俯身献菊花”的上联终于对上了。 （转）<br><img src="http://ww4.sinaimg.cn/large/53ae0b70gw1f4ckq8xqh0j20i20eqtab.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3980621653698786" target="freeweibo-mirror">//@大藏布: 不忍转，希望只是谣言[泪]</a>
 </h2>
@@ -115,6 +115,12 @@
 <p>
 	<small> ============== 9小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3980614942450874" target="freeweibo-mirror">“求是”#惊闻有消息说“七0九大抓捕律师事件”最年轻的政治犯…</a>
+</h2>
+<p>“求是”#惊闻有消息说“七0九大抓捕律师事件”最年轻的政治犯，赵威女士在天津市看守所遭到人身侮辱！？多地网友及国内外媒体致电本律师询问事情真相！无奈，作为一开始就接受赵威亲属委托的辩护人，我对此表示遗憾，因为我自15年7月至今从未被天津警方允许会见过赵威女士，更不可能知道此一传闻的真...全文： http://m.weibo.cn/1626095121/3980614942450874<br><img src="http://ww2.sinaimg.cn/large/60ec3e11jw1f4cof5qc9ij20qo0zkq4x.jpg"></p>
+<p>
+	<small> ============== 9小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3980614317389935" target="freeweibo-mirror">//@叁-壹-陆-零: //@大藏布:催眠药</a>
 </h2>
 <p>//@叁-壹-陆-零: //@大藏布:催眠药<br><br>RE: 新闻联播几十年来基本就干了三件事:1.代表党教育人民，2.代表人民感谢党，3.外面的世界糟透了。<br><img src="http://ww1.sinaimg.cn/large/006oMYovgw1f4clpahianj30ci06x0t8.jpg"></p>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3980612073932950" target="freeweibo-mirror">//@何光荣国民华中5: [吃惊][吃惊][吃惊]//@铁幕…</a>
 </h2>
 <p>//@何光荣国民华中5: [吃惊][吃惊][吃惊]//@铁幕一民://@李翔196811: //@不让上网就上你:属实吗[怒]//@孤家寡哥在彷徨: //@慕松的中年人:[吃惊][怒]//@用脚投票14:[吃惊][吃惊]//@梅花刺7://@四郎东:[吃惊][怒]//@居士鸿斌: 请@人民日报 @央视新闻 出来解释一下<br><br>RE: 考拉在监狱被轮奸被残害。监狱的警察在外嚣张的讲怎么轮奸考拉，叫她【无尾熊】。【无尾熊】指被用微创磨骨磨掉尾椎骨，我也被特工磨掉了尾椎骨，我也被轮奸毁容还剪了我生殖器，我的家人也被凄辱。一般进了监狱610特工都会给人种植微晶芯片，定位监控人，还会用电波定向辐射人，催眠轮奸……<br><img src="http://ww2.sinaimg.cn/large/ba1d3b6agw1f4c0yjvu4jj20hs0qo78g.jpg"></p>
-<p>
-	<small> ============== 9小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3980611843192115" target="freeweibo-mirror">SPAM 因为主力都转向“本土”、“城邦”了</a>
-</h2>
-<p>SPAM 因为主力都转向“本土”、“城邦”了</p>
 <p>
 	<small> ============== 9小时前</small>
 </p>
