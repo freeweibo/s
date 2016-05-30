@@ -19,6 +19,18 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3980722873734656" target="freeweibo-mirror">关注！//@神游再归来://@小石城主人:只有法律外寻求正义…</a>
+</h2>
+<p>关注！//@神游再归来://@小石城主人:只有法律外寻求正义一条路。//@白帽_青衫: 如果是真的，对滥用公权的凶手，任何血亲复仇都不为过！[怒]//@萧迪居04:关注赵威，求真相[话筒][话筒]//@唤醒不醒拉倒001: 转发微博<br><br>RE: “求是”#惊闻有消息说“七0九大抓捕律师事件”最年轻的政治犯，赵威女士在天津市看守所遭到人身侮辱！？多地网友及国内外媒体致电本律师询问事情真相！无奈，作为一开始就接受赵威亲属委托的辩护人，我对此表示遗憾，因为我自15年7月至今从未被天津警方允许会见过赵威女士，更不可能知道此一传闻的真...全文： http://m.weibo.cn/1626095121/3980614942450874<br><img src="http://ww2.sinaimg.cn/large/60ec3e11jw1f4cof5qc9ij20qo0zkq4x.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3980717622620492" target="freeweibo-mirror">SPAM 万一中了呢</a>
+</h2>
+<p>SPAM 万一中了呢</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3980654045288743" target="freeweibo-mirror">SPAM [心] get</a>
 </h2>
 <p>SPAM [心] get</p>
@@ -89,13 +101,13 @@
 </h2>
 <p>不是三个代表吗，怎么少一个?[哈哈]//@IB林立人://@叁-壹-陆-零: //@大藏布:催眠药<br><br>RE: 新闻联播几十年来基本就干了三件事:1.代表党教育人民，2.代表人民感谢党，3.外面的世界糟透了。<br><img src="http://ww1.sinaimg.cn/large/006oMYovgw1f4clpahianj30ci06x0t8.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3980616682221803" target="freeweibo-mirror">//@Lily-况莉莉:你对别人没有底线，别人也不会对你有底…</a>
 </h2>
 <p>//@Lily-况莉莉:你对别人没有底线，别人也不会对你有底线。假如有遭全盘清算的那一天，你自己的老婆，女儿也会被别人轮奸。永远不要以为别人拿你没辙，不积阴德，报应总是来的很快。抬头看看天，看上苍饶过谁。 //@北极熊号: //@大藏布:不忍转，希望只是谣言[泪]<br><br>RE: 考拉在监狱被轮奸被残害。监狱的警察在外嚣张的讲怎么轮奸考拉，叫她【无尾熊】。【无尾熊】指被用微创磨骨磨掉尾椎骨，我也被特工磨掉了尾椎骨，我也被轮奸毁容还剪了我生殖器，我的家人也被凄辱。一般进了监狱610特工都会给人种植微晶芯片，定位监控人，还会用电波定向辐射人，催眠轮奸……<br><img src="http://ww2.sinaimg.cn/large/ba1d3b6agw1f4c0yjvu4jj20hs0qo78g.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3980615906807263" target="freeweibo-mirror">//@格瓦拉:</a>
 </h2>
@@ -126,18 +138,6 @@
 <p>SPAM 因为主力都转向“本土”、“城邦”了</p>
 <p>
 	<small> ============== 9小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3980606406884083" target="freeweibo-mirror">SPAM 呵呵，一年比一年人少，这批人死了之后估计也差不多了…</a>
-</h2>
-<p>SPAM 呵呵，一年比一年人少，这批人死了之后估计也差不多了。<br><img src="http://ww2.sinaimg.cn/large/bcb72106jw1f4cneohvuaj20p018ggtv.jpg"></p>
-<p>
-	<small> ============== 9小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3980591265242009" target="freeweibo-mirror">新闻联播几十年来基本就干了三件事:1.代表党教育人民，2.代…</a>
-</h2>
-<p>新闻联播几十年来基本就干了三件事:1.代表党教育人民，2.代表人民感谢党，3.外面的世界糟透了。<br><img src="http://ww1.sinaimg.cn/large/006oMYovgw1f4clpahianj30ci06x0t8.jpg"></p>
-<p>
-	<small> ============== 10小时前</small>
 </p>
 <table>
     <tr>
