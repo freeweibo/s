@@ -71,7 +71,7 @@
 </h2>
 <p>//@律师老周401://@光老顽童:要舆论引导就是强奸民意。要舆情平稳就是删贴封口。要通过雷洋事件对老百姓进行一次普法教育就是倒打一耙。扯境外势力是推手就是阴谋陷害海外关心祖国法治建设的留学生。<br><br>RE: 分享图片<br><img src="http://ww1.sinaimg.cn/large/befb4b9bjw1f4cei3m3g7j20hs3xzqp8.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3980742008119508" target="freeweibo-mirror">//@朱田夫: 终于来了内行领导，还看了IP地址 //@上海…</a>
 </h2>
