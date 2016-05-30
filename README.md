@@ -35,7 +35,7 @@
 </h2>
 <p>SPAM //@律师老周401://@荒堂省三://@我是老音_59696: 真成植物人了？[吃惊][疑问] //@中国刘学刚:[可怜] //@六安自媒体:[吃惊] //@民间治堵人陈哲宏:[吃惊][吃惊][吃惊] //@ICO刘开明: //@深夜一只猫:芮成钢噎死了?<br><br>RE: 一个临公审前噎成植物人。一个临出狱前心肌梗死。一个人不知鬼不觉高位截瘫。想想真害怕。。。 http://t.cn/R2d26jJ<br><img src="http://ww1.sinaimg.cn/large/4aca2fbdjw1f4cgjovc4xj20nz0mwq6o.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3980654045288743" target="freeweibo-mirror">SPAM [心] get</a>
 </h2>
@@ -119,7 +119,7 @@
 </h2>
 <p>//@格瓦拉:<br><br>RE: 新闻联播几十年来基本就干了三件事:1.代表党教育人民，2.代表人民感谢党，3.外面的世界糟透了。<br><img src="http://ww1.sinaimg.cn/large/006oMYovgw1f4clpahianj30ci06x0t8.jpg"></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3980614942450874" target="freeweibo-mirror">“求是”#惊闻有消息说“七0九大抓捕律师事件”最年轻的政治犯…</a>
 </h2>
