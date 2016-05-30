@@ -19,6 +19,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3980889077549943" target="freeweibo-mirror">SPAM 说千道万，就是怕人民当家剥夺了它们作威作福的特权/…</a>
+</h2>
+<p>SPAM 说千道万，就是怕人民当家剥夺了它们作威作福的特权//@承文革://@创新中医:所以现在的特权和精英阶层怕再挨斗而反对文革。//@华夏-中原浪友:转发微博</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3980857800384442" target="freeweibo-mirror">SPAM 某翻译行业剧正热，六六居然不知道男猪脚何许人也！昨…</a>
 </h2>
 <p>SPAM 某翻译行业剧正热，六六居然不知道男猪脚何许人也！昨儿个深夜，#六六#放大招，扬言携#海清#凭借#女不强大天不容#“裸战”轩翻译雷先森，不战不英雄，不裸不诚心，5月31号，咱江湖擂台见！<br><img src="http://ww4.sinaimg.cn/large/6f59401ajw1f4dgbazl6nj20hs0o9dhb.jpg"></p>
@@ -35,7 +41,7 @@
 </h2>
 <p>//@Ming_the_Great_大明://@南大景凯旋:[赞]//@复旦孙沛东: [good]“我们不是生活在五十年代。你可以选择唱，我可以选择不出版。“//@吴铭: 打开天窗说亮话。</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3980840641707861" target="freeweibo-mirror">[赞]//@复旦孙沛东: [good]“我们不是生活在五十年…</a>
 </h2>
@@ -66,6 +72,12 @@
 <p>SPAM //@用脚投票14://@汉水古鮶://@被幸福的奴: 知道了，不炒//@和五毛左说相声://@堵城之诺: 秘密宣判，不要炒作</p>
 <p>
 	<small> ============== 5小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3980827160911428" target="freeweibo-mirror">SPAM 孙子问我文革到底好不好？我告诉他，文革时老百姓可以…</a>
+</h2>
+<p>SPAM 孙子问我文革到底好不好？我告诉他，文革时老百姓可以斗当官的，不论官职大小，哪怕他是国家主席，只要他违反国家政策，做了对不起人民的事，老百姓就可以写他的大字报，可以把他绑起来游街，所以那时没有官员贪腐现象。         孙子又问:那现在这么多腐败分子，为什么不斗他们？         我告诉他:现...全文： http://m.weibo.cn/3413668640/3980827160911428<br><img src="http://ww4.sinaimg.cn/large/cb787320jw1f4dcs3pcwxj20nn0mawl0.jpg"></p>
+<p>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3980827073822737" target="freeweibo-mirror">SPAM 官家必须炒作//@黄思敏律师: 绝对不可以炒作！ …</a>
 </h2>
@@ -101,7 +113,7 @@
 </h2>
 <p>SPAM 刚接到广州市司法局律管处的电话，说唐荆陵、袁新亭、王清营涉嫌煽动颠覆国家政权罪一案明天二审宣判，让我不要炒作。我问明天什么时候在哪里宣判，他说这一切都不知道。        特此周知，望大家也不要炒作！               葛永喜            二0一六年五月三十日</p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3980800275369081" target="freeweibo-mirror">今天打针碰上姚云，原新华社副总编。说眼熟，问你是谁，答唐师曾…</a>
 </h2>
@@ -113,7 +125,7 @@
 </h2>
 <p>SPAM //@楊颖icon::他们大声疾呼受骗！说泛亚是红头文件成立，红头文件监管，16家银行为其开通银商转账，新华社，大数据等签订战略合作协议…，如今大玩变脸游戏，责任方极力撇清责任，让百姓承担责任。 @何兵 @吴晓求 @光远看经济 @胡舒立 @胡歌 @记者胡建兵 @董郎dxp @杨锦麟 @香港卫视杜利勇 @香港子夜<br><br>RE: 2016.5.29上海泛民雨中维权#问责云昆政府##今日热点舆情##竹林小语#@凯雷 @今晚报 @金融界网站 @今日微焦点 @今日排行榜 @经济日报 @经济参考报 @劲爆新资讯 @交大上海高级金融学院 @见闻实时新闻。<br><img src="http://ww4.sinaimg.cn/large/005wPNZ2gw1f4clhum56gj30k00da404.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3980769904799013" target="freeweibo-mirror">SPAM //@一颗流星1999://@拿狗的乖耗子-会咬人…</a>
 </h2>
@@ -126,18 +138,6 @@
 <p>SPAM 好牛X //@庐陵子村:这个账号你们不封么？//@盛京大志: @金国 [doge] //@尹乐:@火猩二狗 @盛京大志<br><br>RE: 如何判断一个人是不是网红？<br><img src="http://ww4.sinaimg.cn/large/005OQa2Gjw1f4d3yztkfoj30kr0hngop.jpg"></p>
 <p>
 	<small> ============== 9小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3980767283390719" target="freeweibo-mirror">SPAM //@丁声基: //@盛京大志:@金国 [doge…</a>
-</h2>
-<p>SPAM //@丁声基: //@盛京大志:@金国 [doge] //@尹乐:@火猩二狗 @盛京大志<br><br>RE: 如何判断一个人是不是网红？<br><img src="http://ww4.sinaimg.cn/large/005OQa2Gjw1f4d3yztkfoj30kr0hngop.jpg"></p>
-<p>
-	<small> ============== 10小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3980767069036498" target="freeweibo-mirror">SPAM [生病]好多IP是国外的。。咱有墙，人家国外没墙，…</a>
-</h2>
-<p>SPAM [生病]好多IP是国外的。。咱有墙，人家国外没墙，每个华人都在关心这个案子，关心这个国家。对了，张建国就是境外IP，应予逮捕。 //@北京厨子新号:一看到境外势力四个字，我心就死了。 //@尹鸿: 媒介素养培训半天，就忘了最根本一条：知情权！<br><br>RE: 分享图片<br><img src="http://ww1.sinaimg.cn/large/befb4b9bjw1f4cei3m3g7j20hs3xzqp8.jpg"></p>
-<p>
-	<small> ============== 10小时前</small>
 </p>
 <table>
     <tr>
