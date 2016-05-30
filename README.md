@@ -41,7 +41,7 @@
 </h2>
 <p>SPAM 《刑事诉讼法》第一百九十六条 宣告判决，一律公开进行。</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3980815832285067" target="freeweibo-mirror">去抄党章去！ //@唐师曾:听党的！//@旺旺是拉布拉多：老…</a>
 </h2>
