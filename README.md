@@ -79,6 +79,12 @@
 <p>
 	<small> ============== 4小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3980921486706800" target="freeweibo-mirror">你们曾经保护的就是今天别人奴役你的权利……自作自受 http…</a>
+</h2>
+<p>你们曾经保护的就是今天别人奴役你的权利……自作自受 http://t.cn/R5zgOCE</p>
+<p>
+	<small> ============== 5小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3980916005534377" target="freeweibo-mirror">//@水-火-木: //@邓树林律师: //@ONETsin…</a>
 </h2>
 <p>//@水-火-木: //@邓树林律师: //@ONETsing: //@律师文摘: 没有敌人也要制造敌人。//@阳光润泉://@尘封客: //@北京老妪://@法尚应舍-: 它们就是最大的敌对势力//@郭48于-华-清华://@超炫777: //@dhq777777://@遥天居士A:转发微博</p>
@@ -107,7 +113,7 @@
 </h2>
 <p>SPAM 江苏省副省长李云峰被调查  中纪委  江苏省委常委、副省长李云峰涉嫌严重违纪，目前正接受组织调查。  【与我最近频繁去江苏没一毛关系，请记住了。[生病][生病][生病][泪]】<br><img src="http://ww4.sinaimg.cn/large/63aa2d9cjw1f4dh39npi8j20qo1be0xw.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3980857800384442" target="freeweibo-mirror">SPAM 某翻译行业剧正热，六六居然不知道男猪脚何许人也！昨…</a>
 </h2>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3980840641707861" target="freeweibo-mirror">[赞]//@复旦孙沛东: [good]“我们不是生活在五十年…</a>
 </h2>
 <p>[赞]//@复旦孙沛东: [good]“我们不是生活在五十年代。你可以选择唱，我可以选择不出版。“//@吴铭: 打开天窗说亮话。</p>
-<p>
-	<small> ============== 10小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3980840054277342" target="freeweibo-mirror">[good]//@赵查理: 转发微博</a>
-</h2>
-<p>[good]//@赵查理: 转发微博</p>
 <p>
 	<small> ============== 10小时前</small>
 </p>
