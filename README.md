@@ -41,7 +41,7 @@
 </h2>
 <p>SPAM 回复@公益阳光:</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3980844194257576" target="freeweibo-mirror">//@Ming_the_Great_大明://@南大景凯旋:…</a>
 </h2>
@@ -59,7 +59,7 @@
 </h2>
 <p>[good]//@赵查理: 转发微博</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3980831565682349" target="freeweibo-mirror">SPAM 【吴铭：打开天窗说亮话。】//@北陈徒手: 人文社…</a>
 </h2>
