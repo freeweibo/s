@@ -71,7 +71,7 @@
 </h2>
 <p>马青，65年生于成都，毕业于川北医学院。她是诗人，独立作家，异议者。代表作为《告别共产主义》。现任职成都信息工程大学图书馆。虽身居象牙塔，但关心民间疾苦。因推介一种跟 “那件事” 有关的酒，5月27日，她被10几个警察从家中带走。据说已被刑拘，涉嫌煽颠。这他妈都叫什么事！<br><img src="http://ww2.sinaimg.cn/large/006eDQMTgw1f4dqnfjo5ij30ae0aidga.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3980953410025507" target="freeweibo-mirror">当民主先驱一个个被投入监狱时，这里的夜空是这么的黑暗。一个尊…</a>
 </h2>
@@ -119,7 +119,7 @@
 </h2>
 <p>[怒骂]<br><br>RE: 你们曾经保护的就是今天别人奴役你的权利……自作自受 http://t.cn/R5zgOCE</p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3980936326802216" target="freeweibo-mirror">//@公民林静在维权4: [话筒]//@枫林秋色2008:同…</a>
 </h2>
