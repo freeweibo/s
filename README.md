@@ -23,7 +23,7 @@
 </h2>
 <p>SPAM //@郭48于-华-清华: 归来帮推[微风][微风][微风]//@心儿煮焖渣浪: 果断收了！[good][推荐][推荐][推荐]<br><br>RE: 「歸來，尋找同道」面對強權，堅定不移、義無反顧的站在正義這一邊！<br><img src="http://ww4.sinaimg.cn/large/006u80iegw1f4d9igj191j304l064a9z.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3980916005534377" target="freeweibo-mirror">//@水-火-木: //@邓树林律师: //@ONETsin…</a>
 </h2>
@@ -35,7 +35,7 @@
 </h2>
 <p>SPAM 说千道万，就是怕人民当家剥夺了它们作威作福的特权//@承文革://@创新中医:所以现在的特权和精英阶层怕再挨斗而反对文革。//@华夏-中原浪友:转发微博</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3980872678217443" target="freeweibo-mirror">真这样一点脑子都没有，看过三八线了吗？//@夏尔谢夫工程师:…</a>
 </h2>
@@ -65,7 +65,7 @@
 </h2>
 <p>//@Ming_the_Great_大明://@南大景凯旋:[赞]//@复旦孙沛东: [good]“我们不是生活在五十年代。你可以选择唱，我可以选择不出版。“//@吴铭: 打开天窗说亮话。</p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3980840641707861" target="freeweibo-mirror">[赞]//@复旦孙沛东: [good]“我们不是生活在五十年…</a>
 </h2>
