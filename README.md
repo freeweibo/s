@@ -41,7 +41,7 @@
 </h2>
 <p>[赞]//@复旦孙沛东: [good]“我们不是生活在五十年代。你可以选择唱，我可以选择不出版。“//@吴铭: 打开天窗说亮话。</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3980840054277342" target="freeweibo-mirror">[good]//@赵查理: 转发微博</a>
 </h2>
