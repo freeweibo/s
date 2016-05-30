@@ -29,7 +29,7 @@
 </h2>
 <p>[good]//@赵查理: 转发微博</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3980831565682349" target="freeweibo-mirror">SPAM 【吴铭：打开天窗说亮话。】//@北陈徒手: 人文社…</a>
 </h2>
