@@ -125,7 +125,7 @@
 </h2>
 <p>SPAM 这个逻辑环终于闭上了，非常好。//@姚广孝_wayne:“JC是弱势群体”——你弱你有理？[doge]//<br><br>RE: 分享图片<br><img src="http://ww1.sinaimg.cn/large/befb4b9bjw1f4cei3m3g7j20hs3xzqp8.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3980757665890391" target="freeweibo-mirror">SPAM 哈哈哈！ //@蔡老板:乃们总想搞个大新闻[goo…</a>
 </h2>
