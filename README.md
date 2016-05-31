@@ -19,11 +19,23 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3981221803410812" target="freeweibo-mirror">SPAM 被打死了木有？</a>
+</h2>
+<p>SPAM 被打死了木有？<br><br>RE: 【80岁的东突IS】穆罕穆德.阿明到叙利亚参加IS，和他一起加入IS的还有他老婆，女儿和4个外孙子[doge]<br><img src="http://ww4.sinaimg.cn/large/eb2802begw1f4elpnr7m4j20qo10sgrc.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3981209615201735" target="freeweibo-mirror">SPAM 宋祖英唱道：今天是個好日子⋯⋯唱的也包括27年前的…</a>
 </h2>
 <p>SPAM 宋祖英唱道：今天是個好日子⋯⋯唱的也包括27年前的這一天！<br><img src="http://ww3.sinaimg.cn/large/5937c055jw1f4ekp6djmrj20dy07vaat.jpg"></p>
 <p>
 	<small> ============== 4小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3981198780424736" target="freeweibo-mirror">//@林一民-微博:红一是土匪，二代强盗！//@沥泉枪挑:红…</a>
+</h2>
+<p>//@林一民-微博:红一是土匪，二代强盗！//@沥泉枪挑:红色基因//@周铁东本人:地球从未诞生过如此邪恶的物种，真不知他们的基因从何而来。 //@新闻之殇:转发微博</p>
+<p>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3981187171323838" target="freeweibo-mirror">中国也被列上了 [笑cry]//@卍心潮澎湃卐:这事也没忘记…</a>
 </h2>
@@ -77,7 +89,7 @@
 </h2>
 <p>回复@飞舞的黄油酱:也不了解青少年，还以为讲讲上帝创世能毒害谁，不知道现在七年级的北京孩子各个脑内都有一整套亚当莉莉丝和夏娃的三角恋、路西法跟这天使那天使的恩怨情仇以及该隐的吸血鬼故事……<br><br>RE: 【北京语文教材录入《圣经》凸显放开文科教材编订权之危害】 北京语文课改教材第13册把《上帝创造宇宙》这篇基督教圣经内容被定为神话故事列入教材。已涉嫌违反 《中华人民共和国教育法》第八条规定；“国家实行教育与宗教相分离。”深层次则凸显教育部把全国统一语文教材改革为放开文科教材编订权是危...全文： http://m.weibo.cn/1665808371/3981102391315516<br><img src="http://ww1.sinaimg.cn/large/634a37f3gw1f4e8e0xjskj20eo24q471.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3981135510313861" target="freeweibo-mirror">//@尹国明:教育部教材改革作大死。 //@明月访竹:@微言…</a>
 </h2>
@@ -126,18 +138,6 @@
 <p>//@杨学林律师: 这是一个悲剧。<br><br>RE: 【截访者变成上访者  湖南双峰100多名基层干部激烈维权】上访的干部则表示，他们已经熟悉了政府对付上访者的思维方式和各类办法，但他们“不怕死”。在他们眼里，公务员身份是核心利益，所以，他们会不惜一切代价坚持维权，“到时，看是县政府的截访手段厉害，还是我们不惜一切代价的维权决心厉害。”<br><img src="http://ww2.sinaimg.cn/large/5f6520eajw1f4c8s8v5egj20hs0vln23.jpg"></p>
 <p>
 	<small> ============== 11小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3981094476687888" target="freeweibo-mirror">//@杨学林律师:这是一个悲剧。</a>
-</h2>
-<p>//@杨学林律师:这是一个悲剧。<br><br>RE: 【截访者变成上访者  湖南双峰100多名基层干部激烈维权】上访的干部则表示，他们已经熟悉了政府对付上访者的思维方式和各类办法，但他们“不怕死”。在他们眼里，公务员身份是核心利益，所以，他们会不惜一切代价坚持维权，“到时，看是县政府的截访手段厉害，还是我们不惜一切代价的维权决心厉害。”<br><img src="http://ww2.sinaimg.cn/large/5f6520eajw1f4c8s8v5egj20hs0vln23.jpg"></p>
-<p>
-	<small> ============== 11小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3981091675319210" target="freeweibo-mirror">北京街头宣传画。这个天安门画得哪里不对劲呢？[思考]</a>
-</h2>
-<p>北京街头宣传画。这个天安门画得哪里不对劲呢？[思考]<br><img src="http://ww4.sinaimg.cn/large/791ae3d5jw1f4e76a38coj21be0qok0l.jpg"></p>
-<p>
-	<small> ============== 12小时前</small>
 </p>
 <table>
     <tr>
