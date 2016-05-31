@@ -53,7 +53,7 @@
 </h2>
 <p>SPAM 宋祖英唱道：今天是個好日子⋯⋯唱的也包括27年前的這一天！<br><img src="http://ww3.sinaimg.cn/large/5937c055jw1f4ekp6djmrj20dy07vaat.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3981198780424736" target="freeweibo-mirror">//@林一民-微博:红一是土匪，二代强盗！//@沥泉枪挑:红…</a>
 </h2>
@@ -77,7 +77,7 @@
 </h2>
 <p>SPAM “优雅小礼裙的秘密”我的秒拍作品，一起来看~http://t.cn/R5UJJUf（使用#秒拍#录制）</p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3981162466063481" target="freeweibo-mirror">SPAM 推荐阅读：对不起，你那不叫努力，叫重复劳动！</a>
 </h2>
