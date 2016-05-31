@@ -47,7 +47,7 @@
 </h2>
 <p>19世纪的风景画，让人第一次感受到光与影的变幻可以如此微妙而生动，画面变得更加丰富而自由，让瞬间成为永恒。</p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3981311376710831" target="freeweibo-mirror">【娱乐分享】1、娱乐圈那些表白后惨遭拒绝的明星们，你知 道几…</a>
 </h2>
@@ -95,7 +95,7 @@
 </h2>
 <p>SPAM 非常好。</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3981243898887290" target="freeweibo-mirror">评论一片史尼妈，喷了，出租开到这种地步的也就西安了，补揍补揍…</a>
 </h2>
