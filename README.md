@@ -67,6 +67,12 @@
 <p>
 	<small> ============== 5小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3981102391315516" target="freeweibo-mirror">【北京语文教材录入《圣经》凸显放开文科教材编订权之危害】 北…</a>
+</h2>
+<p>【北京语文教材录入《圣经》凸显放开文科教材编订权之危害】 北京语文课改教材第13册把《上帝创造宇宙》这篇基督教圣经内容被定为神话故事列入教材。已涉嫌违反 《中华人民共和国教育法》第八条规定；“国家实行教育与宗教相分离。”深层次则凸显教育部把全国统一语文教材改革为放开文科教材编订权是危...全文： http://m.weibo.cn/1665808371/3981102391315516<br><img src="http://ww1.sinaimg.cn/large/634a37f3gw1f4e8e0xjskj20eo24q471.jpg"></p>
+<p>
+	<small> ============== 5小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3981100097273395" target="freeweibo-mirror">SPAM 去毛？</a>
 </h2>
 <p>SPAM 去毛？<br><br>RE: 北京街头宣传画。这个天安门画得哪里不对劲呢？[思考]<br><img src="http://ww4.sinaimg.cn/large/791ae3d5jw1f4e76a38coj21be0qok0l.jpg"></p>
@@ -77,7 +83,7 @@
 </h2>
 <p>//@杨学林律师: 这是一个悲剧。<br><br>RE: 【截访者变成上访者  湖南双峰100多名基层干部激烈维权】上访的干部则表示，他们已经熟悉了政府对付上访者的思维方式和各类办法，但他们“不怕死”。在他们眼里，公务员身份是核心利益，所以，他们会不惜一切代价坚持维权，“到时，看是县政府的截访手段厉害，还是我们不惜一切代价的维权决心厉害。”<br><img src="http://ww2.sinaimg.cn/large/5f6520eajw1f4c8s8v5egj20hs0vln23.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3981094476687888" target="freeweibo-mirror">//@杨学林律师:这是一个悲剧。</a>
 </h2>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3980975803668967" target="freeweibo-mirror">//@律师王学明: //@刀王子:转发微博</a>
 </h2>
 <p>//@律师王学明: //@刀王子:转发微博<br><br>RE: 上帝说：为众人抱火者， 不可使他冻毙于风雪！ 为自由开路者， 不可使他困顿于荆棘！——近日网络疯传考拉狱中遭到非人侵害！深感痛心与愤怒！此事倘若为真，非同一般！关注赵威狱中情况！[话筒][话筒][围观]<br><img src="http://ww4.sinaimg.cn/large/006dpe74gw1f4dqugrhztj30hs0sogpa.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3980973563206189" target="freeweibo-mirror">//@刀王子:转发微博</a>
-</h2>
-<p>//@刀王子:转发微博<br><br>RE: 上帝说：为众人抱火者， 不可使他冻毙于风雪！ 为自由开路者， 不可使他困顿于荆棘！——近日网络疯传考拉狱中遭到非人侵害！深感痛心与愤怒！此事倘若为真，非同一般！关注赵威狱中情况！[话筒][话筒][围观]<br><img src="http://ww4.sinaimg.cn/large/006dpe74gw1f4dqugrhztj30hs0sogpa.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
