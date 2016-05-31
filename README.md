@@ -23,7 +23,7 @@
 </h2>
 <p>SPAM 坐等中奖//@中兴通讯智能终端:#AXON天机7# 搭载定制系统麦飞4.0全新发布，一张图看懂MiFavor 4.0十项全能，带话题 #麦飞4.0，贴心更懂你# 转发此微博并艾特好友，有机会赢一台全新AXON天机 7。</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3981116899775334" target="freeweibo-mirror">//@路灯悬挂委://@江山勇者2016://@马正飞://…</a>
 </h2>
@@ -89,7 +89,7 @@
 </h2>
 <p>卖个酒你们也怕？[怒]<br><img src="http://ww4.sinaimg.cn/large/006eBDMHgw1f4dukv05jaj30ku0tgjw4.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3980978043158299" target="freeweibo-mirror">//@陈光武律师: //@律师王学明: //@刀王子:转发微…</a>
 </h2>
