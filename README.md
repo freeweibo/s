@@ -37,6 +37,12 @@
 <p>
 	<small> ============== 4小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3981179557850010" target="freeweibo-mirror">SPAM “优雅小礼裙的秘密”我的秒拍作品，一起来看~htt…</a>
+</h2>
+<p>SPAM “优雅小礼裙的秘密”我的秒拍作品，一起来看~http://t.cn/R5UJJUf（使用#秒拍#录制）</p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3981162466063481" target="freeweibo-mirror">SPAM 推荐阅读：对不起，你那不叫努力，叫重复劳动！</a>
 </h2>
 <p>SPAM 推荐阅读：对不起，你那不叫努力，叫重复劳动！</p>
@@ -113,7 +119,7 @@
 </h2>
 <p>SPAM 去毛？<br><br>RE: 北京街头宣传画。这个天安门画得哪里不对劲呢？[思考]<br><img src="http://ww4.sinaimg.cn/large/791ae3d5jw1f4e76a38coj21be0qok0l.jpg"></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3981098557819975" target="freeweibo-mirror">//@杨学林律师: 这是一个悲剧。</a>
 </h2>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3981091675319210" target="freeweibo-mirror">北京街头宣传画。这个天安门画得哪里不对劲呢？[思考]</a>
 </h2>
 <p>北京街头宣传画。这个天安门画得哪里不对劲呢？[思考]<br><img src="http://ww4.sinaimg.cn/large/791ae3d5jw1f4e76a38coj21be0qok0l.jpg"></p>
-<p>
-	<small> ============== 10小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3981089360236641" target="freeweibo-mirror">//@奔六://@老究://@心歸来兮://@国利馨哲:谁怕…</a>
-</h2>
-<p>//@奔六://@老究://@心歸来兮://@国利馨哲:谁怕文革？！坏人！@何易1: 当今权贵们如此惧恨文革，进一步证明了文革的正确性和必要性。<br><br>RE: 猫论上台后，以“决议”形式否定文革，丧心病狂地骂毛泽东，妖魔化毛主席公有制，把前三十年的伟大成就彻底否定，这是猫论不自信的根本原因。更可恶的是，以“不怕改革犯错误，就怕不改革”的口号把社会主义公有制这个根本性的东西扔了！把毛主席给人民的福利剥个干干净净，共产党还是共产党吗？<br><img src="http://ww3.sinaimg.cn/large/005AB4Ydjw1f4dd3pbeixj30fa07vq51.jpg"></p>
 <p>
 	<small> ============== 10小时前</small>
 </p>
