@@ -19,6 +19,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3981162466063481" target="freeweibo-mirror">SPAM 推荐阅读：对不起，你那不叫努力，叫重复劳动！</a>
+</h2>
+<p>SPAM 推荐阅读：对不起，你那不叫努力，叫重复劳动！</p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3981157878460730" target="freeweibo-mirror">//@司马南:真的.//@我叫强老湿:这个照片是真的， 还是…</a>
 </h2>
 <p>//@司马南:真的.//@我叫强老湿:这个照片是真的， 还是假的？[疑问] http://t.cn/R5UqcMO<br><br>RE: 【北京语文教材录入《圣经》凸显放开文科教材编订权之危害】 北京语文课改教材第13册把《上帝创造宇宙》这篇基督教圣经内容被定为神话故事列入教材。已涉嫌违反 《中华人民共和国教育法》第八条规定；“国家实行教育与宗教相分离。”深层次则凸显教育部把全国统一语文教材改革为放开文科教材编订权是危...全文： http://m.weibo.cn/1665808371/3981102391315516<br><img src="http://ww1.sinaimg.cn/large/634a37f3gw1f4e8e0xjskj20eo24q471.jpg"></p>
@@ -47,7 +53,7 @@
 </h2>
 <p>回复@飞舞的黄油酱:也不了解青少年，还以为讲讲上帝创世能毒害谁，不知道现在七年级的北京孩子各个脑内都有一整套亚当莉莉丝和夏娃的三角恋、路西法跟这天使那天使的恩怨情仇以及该隐的吸血鬼故事……<br><br>RE: 【北京语文教材录入《圣经》凸显放开文科教材编订权之危害】 北京语文课改教材第13册把《上帝创造宇宙》这篇基督教圣经内容被定为神话故事列入教材。已涉嫌违反 《中华人民共和国教育法》第八条规定；“国家实行教育与宗教相分离。”深层次则凸显教育部把全国统一语文教材改革为放开文科教材编订权是危...全文： http://m.weibo.cn/1665808371/3981102391315516<br><img src="http://ww1.sinaimg.cn/large/634a37f3gw1f4e8e0xjskj20eo24q471.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3981135510313861" target="freeweibo-mirror">//@尹国明:教育部教材改革作大死。 //@明月访竹:@微言…</a>
 </h2>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3980982321514557" target="freeweibo-mirror">卖个酒你们也怕？[怒]</a>
 </h2>
 <p>卖个酒你们也怕？[怒]<br><img src="http://ww4.sinaimg.cn/large/006eBDMHgw1f4dukv05jaj30ku0tgjw4.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3980978043158299" target="freeweibo-mirror">//@陈光武律师: //@律师王学明: //@刀王子:转发微…</a>
-</h2>
-<p>//@陈光武律师: //@律师王学明: //@刀王子:转发微博<br><br>RE: 上帝说：为众人抱火者， 不可使他冻毙于风雪！ 为自由开路者， 不可使他困顿于荆棘！——近日网络疯传考拉狱中遭到非人侵害！深感痛心与愤怒！此事倘若为真，非同一般！关注赵威狱中情况！[话筒][话筒][围观]<br><img src="http://ww4.sinaimg.cn/large/006dpe74gw1f4dqugrhztj30hs0sogpa.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
