@@ -47,7 +47,7 @@
 </h2>
 <p>//@杨学林律师:这是一个悲剧。<br><br>RE: 【截访者变成上访者  湖南双峰100多名基层干部激烈维权】上访的干部则表示，他们已经熟悉了政府对付上访者的思维方式和各类办法，但他们“不怕死”。在他们眼里，公务员身份是核心利益，所以，他们会不惜一切代价坚持维权，“到时，看是县政府的截访手段厉害，还是我们不惜一切代价的维权决心厉害。”<br><img src="http://ww2.sinaimg.cn/large/5f6520eajw1f4c8s8v5egj20hs0vln23.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3981091675319210" target="freeweibo-mirror">北京街头宣传画。这个天安门画得哪里不对劲呢？[思考]</a>
 </h2>
@@ -58,6 +58,12 @@
 	<a href="https://freeweibo.com/weibo/3981089360236641" target="freeweibo-mirror">//@奔六://@老究://@心歸来兮://@国利馨哲:谁怕…</a>
 </h2>
 <p>//@奔六://@老究://@心歸来兮://@国利馨哲:谁怕文革？！坏人！@何易1: 当今权贵们如此惧恨文革，进一步证明了文革的正确性和必要性。<br><br>RE: 猫论上台后，以“决议”形式否定文革，丧心病狂地骂毛泽东，妖魔化毛主席公有制，把前三十年的伟大成就彻底否定，这是猫论不自信的根本原因。更可恶的是，以“不怕改革犯错误，就怕不改革”的口号把社会主义公有制这个根本性的东西扔了！把毛主席给人民的福利剥个干干净净，共产党还是共产党吗？<br><img src="http://ww3.sinaimg.cn/large/005AB4Ydjw1f4dd3pbeixj30fa07vq51.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3981086008168756" target="freeweibo-mirror">SPAM //@公民林静在维权5://@胡生平C:怕文字、怕…</a>
+</h2>
+<p>SPAM //@公民林静在维权5://@胡生平C:怕文字、怕图片、怕真相。//@紫荆伴旅: 怕啥？[好囧][好囧][好囧]<br><br>RE: 卖个酒你们也怕？[怒]<br><img src="http://ww4.sinaimg.cn/large/006eBDMHgw1f4dukv05jaj30ku0tgjw4.jpg"></p>
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
@@ -83,7 +89,7 @@
 </h2>
 <p>//@刀王子:转发微博<br><br>RE: 上帝说：为众人抱火者， 不可使他冻毙于风雪！ 为自由开路者， 不可使他困顿于荆棘！——近日网络疯传考拉狱中遭到非人侵害！深感痛心与愤怒！此事倘若为真，非同一般！关注赵威狱中情况！[话筒][话筒][围观]<br><img src="http://ww4.sinaimg.cn/large/006dpe74gw1f4dqugrhztj30hs0sogpa.jpg"></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3980967880285917" target="freeweibo-mirror">//@水木双刀_:[拳头][拳头][拳头]</a>
 </h2>
@@ -125,17 +131,11 @@
 </h2>
 <p>上帝说：为众人抱火者， 不可使他冻毙于风雪！ 为自由开路者， 不可使他困顿于荆棘！——近日网络疯传考拉狱中遭到非人侵害！深感痛心与愤怒！此事倘若为真，非同一般！关注赵威狱中情况！[话筒][话筒][围观]<br><img src="http://ww4.sinaimg.cn/large/006dpe74gw1f4dqugrhztj30hs0sogpa.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3980948804891542" target="freeweibo-mirror">SPAM 推[推荐] //@榕粉团:多谢米总//@米瑞蓉: …</a>
 </h2>
 <p>SPAM 推[推荐] //@榕粉团:多谢米总//@米瑞蓉: 东西都收到了！牦牛肋、牦牛肉很好！  http://t.cn/R5yBBtT  //@6688网站:牛羊肉在这边   http://t.cn/R4OOLDO    三点前下单，次日到。</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3980948766619556" target="freeweibo-mirror">//@一品泥人: //@李不白的店: [汗]→_→//@老夫…</a>
-</h2>
-<p>//@一品泥人: //@李不白的店: [汗]→_→//@老夫宋祖法:一部《红岩》，把国民党改成另一个党重新出版，时间改成几十年后，就很真实了。<br><br>RE: 赵威，91年生，网名考拉，毕业于江西师大，锋锐所律师李和平助手。她正直善良，上大学时，就参与公益活动。2015年7月10日，她被警方从家中带走，羁押于天津。半年后被捕，被控颠覆政权。快一年了，不让律师会见。生死不明。近日有消息传出，她在看守所遭人身侮辱。这是真的吗？@平安天津<br><img src="http://ww1.sinaimg.cn/large/006eDQMTgw1f4dhwcremjj30lc0sgtby.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
