@@ -37,6 +37,12 @@
 <p>
 	<small> ============== 4小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3981251880728733" target="freeweibo-mirror"></a>
+</h2>
+<p></p>
+<p>
+	<small> ============== 5小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3981245299736204" target="freeweibo-mirror">SPAM 非常好。</a>
 </h2>
 <p>SPAM 非常好。</p>
@@ -65,7 +71,7 @@
 </h2>
 <p>SPAM 被打死了木有？<br><br>RE: 【80岁的东突IS】穆罕穆德.阿明到叙利亚参加IS，和他一起加入IS的还有他老婆，女儿和4个外孙子[doge]<br><img src="http://ww4.sinaimg.cn/large/eb2802begw1f4elpnr7m4j20qo10sgrc.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3981218918353446" target="freeweibo-mirror">【80岁的东突IS】穆罕穆德.阿明到叙利亚参加IS，和他一起…</a>
 </h2>
@@ -121,23 +127,17 @@
 <p>
 	<small> ============== 10小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3981165524183778" target="freeweibo-mirror">我只发图不说话！感谢@捷安特官方   中关村店铺 工作人员详…</a>
+</h2>
+<p>我只发图不说话！感谢@捷安特官方   中关村店铺 工作人员详细的讲解配合！</p>
+<p>
+	<small> ============== 10小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3981162466063481" target="freeweibo-mirror">SPAM 推荐阅读：对不起，你那不叫努力，叫重复劳动！</a>
 </h2>
 <p>SPAM 推荐阅读：对不起，你那不叫努力，叫重复劳动！</p>
 <p>
 	<small> ============== 10小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3981157878460730" target="freeweibo-mirror">//@司马南:真的.//@我叫强老湿:这个照片是真的， 还是…</a>
-</h2>
-<p>//@司马南:真的.//@我叫强老湿:这个照片是真的， 还是假的？[疑问] http://t.cn/R5UqcMO<br><br>RE: 【北京语文教材录入《圣经》凸显放开文科教材编订权之危害】 北京语文课改教材第13册把《上帝创造宇宙》这篇基督教圣经内容被定为神话故事列入教材。已涉嫌违反 《中华人民共和国教育法》第八条规定；“国家实行教育与宗教相分离。”深层次则凸显教育部把全国统一语文教材改革为放开文科教材编订权是危...全文： http://m.weibo.cn/1665808371/3981102391315516<br><img src="http://ww1.sinaimg.cn/large/634a37f3gw1f4e8e0xjskj20eo24q471.jpg"></p>
-<p>
-	<small> ============== 11小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3981154505930832" target="freeweibo-mirror">疾病是客观教育，基础是科学。圣经是宗教教育，基础是有神论。学…</a>
-</h2>
-<p>疾病是客观教育，基础是科学。圣经是宗教教育，基础是有神论。学龄儿童不具备独立判断能力，接触科学教育无妨，接触有神论则不宜，神话另说。圣经本非科学，如何让儿童科学理解？//@jia豪的微博：借此老师可以详细讲讲圣经是个什么东西，向同学科普下圣经不是更好吗？就像你让儿子接触艾滋病儿童<br><br>RE: 【北京语文教材录入《圣经》凸显放开文科教材编订权之危害】 北京语文课改教材第13册把《上帝创造宇宙》这篇基督教圣经内容被定为神话故事列入教材。已涉嫌违反 《中华人民共和国教育法》第八条规定；“国家实行教育与宗教相分离。”深层次则凸显教育部把全国统一语文教材改革为放开文科教材编订权是危...全文： http://m.weibo.cn/1665808371/3981102391315516<br><img src="http://ww1.sinaimg.cn/large/634a37f3gw1f4e8e0xjskj20eo24q471.jpg"></p>
-<p>
-	<small> ============== 11小时前</small>
 </p>
 <table>
     <tr>
