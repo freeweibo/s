@@ -59,7 +59,7 @@
 </h2>
 <p>SPAM 推荐好朋友一个性价比超高的饰品店给大家@FabulousTime-Beauty [抢到啦][抢到啦][抢到啦]<br><img src="http://ww3.sinaimg.cn/large/70237922jw1f4evyaysawj20zk0zktg5.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3981302644081275" target="freeweibo-mirror">SPAM @分答 第16天：回答了499个问题。总收益过万。…</a>
 </h2>
@@ -137,7 +137,7 @@
 </h2>
 <p>SPAM 宋祖英唱道：今天是個好日子⋯⋯唱的也包括27年前的這一天！<br><img src="http://ww3.sinaimg.cn/large/5937c055jw1f4ekp6djmrj20dy07vaat.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p>
 <table>
     <tr>
