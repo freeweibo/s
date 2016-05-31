@@ -53,7 +53,7 @@
 </h2>
 <p>北京街头宣传画。这个天安门画得哪里不对劲呢？[思考]<br><img src="http://ww4.sinaimg.cn/large/791ae3d5jw1f4e76a38coj21be0qok0l.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3981089360236641" target="freeweibo-mirror">//@奔六://@老究://@心歸来兮://@国利馨哲:谁怕…</a>
 </h2>
