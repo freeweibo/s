@@ -29,7 +29,7 @@
 </h2>
 <p>关注祈愿信箱 ，你会感同身受</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3981339999011205" target="freeweibo-mirror">SPAM [色]很不错的鞋子哦，鞋子控的朋友可以+威芯：ji…</a>
 </h2>
@@ -89,7 +89,7 @@
 </h2>
 <p></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3981245299736204" target="freeweibo-mirror">SPAM 非常好。</a>
 </h2>
