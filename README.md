@@ -25,6 +25,12 @@
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3981218918353446" target="freeweibo-mirror">【80岁的东突IS】穆罕穆德.阿明到叙利亚参加IS，和他一起…</a>
+</h2>
+<p>【80岁的东突IS】穆罕穆德.阿明到叙利亚参加IS，和他一起加入IS的还有他老婆，女儿和4个外孙子[doge]<br><img src="http://ww4.sinaimg.cn/large/eb2802begw1f4elpnr7m4j20qo10sgrc.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3981209615201735" target="freeweibo-mirror">SPAM 宋祖英唱道：今天是個好日子⋯⋯唱的也包括27年前的…</a>
 </h2>
 <p>SPAM 宋祖英唱道：今天是個好日子⋯⋯唱的也包括27年前的這一天！<br><img src="http://ww3.sinaimg.cn/large/5937c055jw1f4ekp6djmrj20dy07vaat.jpg"></p>
@@ -83,7 +89,7 @@
 </h2>
 <p>SPAM 坐等中奖//@中兴通讯智能终端:#AXON天机7# 搭载定制系统麦飞4.0全新发布，一张图看懂MiFavor 4.0十项全能，带话题 #麦飞4.0，贴心更懂你# 转发此微博并艾特好友，有机会赢一台全新AXON天机 7。</p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3981138667781667" target="freeweibo-mirror">回复@飞舞的黄油酱:也不了解青少年，还以为讲讲上帝创世能毒害…</a>
 </h2>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3981100097273395" target="freeweibo-mirror">SPAM 去毛？</a>
 </h2>
 <p>SPAM 去毛？<br><br>RE: 北京街头宣传画。这个天安门画得哪里不对劲呢？[思考]<br><img src="http://ww4.sinaimg.cn/large/791ae3d5jw1f4e76a38coj21be0qok0l.jpg"></p>
-<p>
-	<small> ============== 11小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3981098557819975" target="freeweibo-mirror">//@杨学林律师: 这是一个悲剧。</a>
-</h2>
-<p>//@杨学林律师: 这是一个悲剧。<br><br>RE: 【截访者变成上访者  湖南双峰100多名基层干部激烈维权】上访的干部则表示，他们已经熟悉了政府对付上访者的思维方式和各类办法，但他们“不怕死”。在他们眼里，公务员身份是核心利益，所以，他们会不惜一切代价坚持维权，“到时，看是县政府的截访手段厉害，还是我们不惜一切代价的维权决心厉害。”<br><img src="http://ww2.sinaimg.cn/large/5f6520eajw1f4c8s8v5egj20hs0vln23.jpg"></p>
 <p>
 	<small> ============== 11小时前</small>
 </p>
