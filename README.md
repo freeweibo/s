@@ -47,7 +47,7 @@
 </h2>
 <p>#喵喵捡了一个不能转发的东东[lxhx求表扬]# @傻哥嘚啵嘚<br><img src="http://ww1.sinaimg.cn/large/64815b7ajw1f4fr7vsreej20g00m4mys.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3981577790728693" target="freeweibo-mirror">！ //@重出江湖68:哀鸿遍野！</a>
 </h2>
@@ -131,13 +131,13 @@
 </h2>
 <p>【央视道歉吗？】今天，雷洋死亡案五警察被立案侦查，并采取刑事强制措施，公开传播雷洋嫖娼的央视该道歉了吧？@央视新闻 @人民网<br><img src="http://ww2.sinaimg.cn/large/593bcbb2jw1f4fnssgv0rj20dc08wq36.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3981550045050040" target="freeweibo-mirror">也不知这老家伙背了多少的新疆的血债//@说话的人很多不如我也…</a>
 </h2>
 <p>也不知这老家伙背了多少的新疆的血债//@说话的人很多不如我也说说: 同情老渣？！[怒]//@Rhchard85:同右边//@五行剑侠:辛酸尼玛币 //@Sleaze_Les:辛酸你mlgb 智障//@inside很无奈：看到老爷爷觉得又挺辛酸的。。。真的是希望世界和平，不要有这些无谓的纷争。<br><br>RE: 【ISIS的最老成员是一个81岁的中国人】该组织发表声明称，这位叫做Amin的成员早前离开了他在新疆的家人，独身一人投奔ISIS。最新公布的照片中，这位维族老汉拿着AK47和手枪，面对照相机摆出了不同造型，据说他强烈要求被派往前线参加战斗。[吃惊] Daily Mail<br><img src="http://ww4.sinaimg.cn/large/aac56f74gw1f4f0wfu49sj20hm09xdh5.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p>
 <table>
     <tr>
