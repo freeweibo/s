@@ -19,6 +19,18 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3981662280556228" target="freeweibo-mirror">//@夜郎国主: 再说次我经历的事情，90年代，某派出所长不…</a>
+</h2>
+<p>//@夜郎国主: 再说次我经历的事情，90年代，某派出所长不长眼，打了一贵宾亲戚，他辖区的普通小百姓。被上级勒令上门道歉。完事出门时脸胀的紫红，回到宿舍把电话锅碗瓢盆砸锅个稀巴烂。<br><br>RE: 海淀公安发这个帖什么意思？可不可以这样理解：1、打人是警察的天赋人权；2、警察直接把人打个半死或直接打死，是对犯罪最好的打击，也是对社会最好的震慑；3、警察权高于一切，任何监督和约束都可认为是对警察的挑战；4、……<br><img src="http://ww4.sinaimg.cn/large/49abe88bgw1f4fvg20trij20k00zkq5d.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3981662012986792" target="freeweibo-mirror">//@臧建春V:都是抓嫖好手！</a>
+</h2>
+<p>//@臧建春V:都是抓嫖好手！<br><br>RE: 海淀公安分局的官方微博上，这一条已经看不到了。<br><img src="http://ww2.sinaimg.cn/large/3f79a379jw1f4fwvoeil7j20k00zkjtl.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3981655456717510" target="freeweibo-mirror">SPAM +1s</a>
 </h2>
 <p>SPAM +1s<br><br>RE: 鸟叔PSY成名曲《江南style》 http://t.cn/R54CqBZ .</p>
@@ -65,7 +77,7 @@
 </h2>
 <p>双刃剑，覆舟… //@深夜走过长安街001://@呼啸的北狼灬灬:[微风][微风][微风]//@薛明仪:绝对同意，道义颠倒，暴力反噬//@十年砍柴:当刀的伤害力越来越大，总有一天会让刀的主人害怕。是谓“工具的异化”。<br><br>RE: 警权大到什么程度？在实际操作中，一个地级市甚至一个县的公安局长手中的权力比中央一个副部级官员更刚性、更有效。前者能让一个公民突然失去自由，甚至蒸发，而且一天内拿出一整套“合法”手续。后者的权力反应弧较长，必须通过前者之手才能显示权力之威。</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3981611785235068" target="freeweibo-mirror">在转</a>
 </h2>
@@ -113,29 +125,17 @@
 </h2>
 <p>//@山谷雨轩:这得多大的冤屈，多大的勇气，才会走这一步！？<br><br>RE: 震惊！！某国衙门前，竟然惊现裸体喊冤女子？？？这得多大勇气、多大冤屈啊？？？为何法院途径都失效了？？？某国为何遍地窦娥冤？？？法律都死了吗？？<br><img src="http://ww3.sinaimg.cn/large/006s7S6ojw1f4fp5d6al4j30kf0q8n01.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3981583394781574" target="freeweibo-mirror">SPAM 据说，@滴滴出行@滴滴出行开放合作平台 将携400…</a>
 </h2>
 <p>SPAM 据说，@滴滴出行@滴滴出行开放合作平台 将携400家APP开通打车功能。专属优惠券在不（app）远（里）处（面）等你呢，享乘车优惠5元起！</p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3981579954566658" target="freeweibo-mirror">#喵喵捡了一个不能转发的东东[lxhx求表扬]# @傻哥嘚啵…</a>
 </h2>
 <p>#喵喵捡了一个不能转发的东东[lxhx求表扬]# @傻哥嘚啵嘚<br><img src="http://ww1.sinaimg.cn/large/64815b7ajw1f4fr7vsreej20g00m4mys.jpg"></p>
-<p>
-	<small> ============== 7小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3981577790728693" target="freeweibo-mirror">！ //@重出江湖68:哀鸿遍野！</a>
-</h2>
-<p>！ //@重出江湖68:哀鸿遍野！<br><br>RE: 震惊！！某国衙门前，竟然惊现裸体喊冤女子？？？这得多大勇气、多大冤屈啊？？？为何法院途径都失效了？？？某国为何遍地窦娥冤？？？法律都死了吗？？<br><img src="http://ww3.sinaimg.cn/large/006s7S6ojw1f4fp5d6al4j30kf0q8n01.jpg"></p>
-<p>
-	<small> ============== 7小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3981574158380626" target="freeweibo-mirror">SPAM 发现一个超牛的号 看电影的童鞋可以关注 @先锋电影</a>
-</h2>
-<p>SPAM 发现一个超牛的号 看电影的童鞋可以关注 @先锋电影</p>
 <p>
 	<small> ============== 7小时前</small>
 </p>
