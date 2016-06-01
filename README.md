@@ -103,6 +103,12 @@
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3981679222230589" target="freeweibo-mirror">#我还只是个孩子#我看了這幅廣告之後，一驚，但想，估計這是九…</a>
+</h2>
+<p>#我还只是个孩子#我看了這幅廣告之後，一驚，但想，估計這是九零後的創意，這種創意，六零後，七零後未必能做得出來。孩子們打小就不知道那段歷史，或者根本就不知道這兩個字母很敏感，難免以為這是個可以天馬行空，胡思亂想，胡說八道的日子，於是⋯⋯⋯<br><img src="http://ww3.sinaimg.cn/large/5937c055jw1f4g2m4z96pj20k00zk0uz.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3981676113244745" target="freeweibo-mirror">SPAM 尼桑～//@ECO中文网:论营销策划人员的基本修养…</a>
 </h2>
 <p>SPAM 尼桑～//@ECO中文网:论营销策划人员的基本修养[doge]</p>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3981662012986792" target="freeweibo-mirror">//@臧建春V:都是抓嫖好手！</a>
 </h2>
 <p>//@臧建春V:都是抓嫖好手！<br><br>RE: 海淀公安分局的官方微博上，这一条已经看不到了。<br><img src="http://ww2.sinaimg.cn/large/3f79a379jw1f4fwvoeil7j20k00zkjtl.jpg"></p>
-<p>
-	<small> ============== 4小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3981660825587217" target="freeweibo-mirror">SPAM 要打折吗？ //@cy诚明: //@世界是他们的5…</a>
-</h2>
-<p>SPAM 要打折吗？ //@cy诚明: //@世界是他们的51: //@cccaaooo: //@Nuclear-Winter: //@無畏的小肥羊VI: 二十多年前不早就發生了嗎。。。[蜡烛][蜡烛][蜡烛] //@续蛤: 你们啊，不要老是想弄个大新闻<br><br>RE: 日产作死[蜡烛]<br><img src="http://ww3.sinaimg.cn/large/6d8a73c9gw1f4fzgdjidlj20yi1pcgrk.jpg"></p>
 <p>
 	<small> ============== 4小时前</small>
 </p>
