@@ -83,7 +83,7 @@
 </h2>
 <p>中国，我的左腿丢了，是你吞噬了吗？//@一品泥人://@砂器--49: //@尘曼天://@wyzxhp14://@南街个体户凌杰:转发微博<br><br>RE: 今天广州李小玲陪同六四幸存者齐志勇先生重回故地寻找失去的左腿。#勿忘国殤<br><img src="http://ww1.sinaimg.cn/large/006msUFCgw1f4g39a1ukdj30hs0np76l.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3981693696219543" target="freeweibo-mirror">SPAM [蜡烛][蜡烛][蜡烛][蜡烛]</a>
 </h2>
