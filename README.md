@@ -37,6 +37,12 @@
 <p>
 	<small> ============== 1小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3981545469629692" target="freeweibo-mirror">//@pi1ot: duang. //@来去之间: 要将个别…</a>
+</h2>
+<p>//@pi1ot: duang. //@来去之间: 要将个别违法乱纪的警察，同整个公安队伍区别开来——这点认同，公安里面设置纪检委，就是为了减少而不是消除这种事情——雷洋这事唯一想不通的是，疑点这么多，谁安排的警察上电视试图统一舆论观点？</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3981544966586519" target="freeweibo-mirror">//@喷嚏网铂程: //@小道信息: //@今夜不设防sty…</a>
 </h2>
 <p>//@喷嚏网铂程: //@小道信息: //@今夜不设防style: 王八喉舌[吐] //@转tie砖家:[衰]串通作案？//@北京老妪: [围观][围观]//@聪明如你2018: //@蒲子里的二流子:央视、北京卫视涉嫌伪证。应该协助调查。</p>
@@ -46,6 +52,12 @@
 	<a href="https://freeweibo.com/weibo/3981544932935743" target="freeweibo-mirror">//@律师老周401: 怎能漏了菜刀胡//@青光楚辞:这帮人…</a>
 </h2>
 <p>//@律师老周401: 怎能漏了菜刀胡//@青光楚辞:这帮人渣闭口不谈执法问题，一口咬定雷洋确实嫖娼，我不太理解为什么对嫖娼这事如此敏感？或者他们被妓女伤害过，或者家人从事这一行业！//@乌半仙儿: 五毛们今天如丧考妣</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3981544366226768" target="freeweibo-mirror">真替CCTV和BTV担心，这耳光被扇之后，怎么办？//@盘子…</a>
+</h2>
+<p>真替CCTV和BTV担心，这耳光被扇之后，怎么办？//@盘子微谈:期待真相！</p>
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
@@ -95,7 +107,7 @@
 </h2>
 <p>他还会再上央视吗？<br><img src="http://ww4.sinaimg.cn/large/6309fc78gw1f4flmvsrwqj20ej0c7q51.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3981530051251725" target="freeweibo-mirror">SPAM #周末父母#哇咔咔，刘恺威王鸥共同加盟《周末父母》…</a>
 </h2>
@@ -124,18 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3981515631382375" target="freeweibo-mirror">这就是被立案侦查的邢某某，之前上了央视</a>
 </h2>
 <p>这就是被立案侦查的邢某某，之前上了央视<br><img src="http://ww1.sinaimg.cn/large/a3dfe957jw1f4fju32tpxj20jz0zkwgf.jpg"></p>
-<p>
-	<small> ============== 3小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3981515232246877" target="freeweibo-mirror">SPAM #古巨基下跪# 上周的音乐大师课没拍，好难过[笑c…</a>
-</h2>
-<p>SPAM #古巨基下跪# 上周的音乐大师课没拍，好难过[笑cry][笑cry][笑cry] [会员一周年][会员一周年]</p>
-<p>
-	<small> ============== 3小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3981510086039978" target="freeweibo-mirror">期待客观公正的调查结果。从“做案时间”等方面看，雷洋案有太多…</a>
-</h2>
-<p>期待客观公正的调查结果。从“做案时间”等方面看，雷洋案有太多疑点需要给公众一个说法。当年在办一起腐败案件时发现，北京两名警察为了抓嫖，在一家酒吧对面潜伏了半个月，真不懂他们如此敬业，到底图的什么。</p>
 <p>
 	<small> ============== 4小时前</small>
 </p>
