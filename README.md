@@ -23,7 +23,7 @@
 </h2>
 <p>//@夜郎国主: 再说次我经历的事情，90年代，某派出所长不长眼，打了一贵宾亲戚，他辖区的普通小百姓。被上级勒令上门道歉。完事出门时脸胀的紫红，回到宿舍把电话锅碗瓢盆砸锅个稀巴烂。<br><br>RE: 海淀公安发这个帖什么意思？可不可以这样理解：1、打人是警察的天赋人权；2、警察直接把人打个半死或直接打死，是对犯罪最好的打击，也是对社会最好的震慑；3、警察权高于一切，任何监督和约束都可认为是对警察的挑战；4、……<br><img src="http://ww4.sinaimg.cn/large/49abe88bgw1f4fvg20trij20k00zkq5d.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3981662012986792" target="freeweibo-mirror">//@臧建春V:都是抓嫖好手！</a>
 </h2>
@@ -97,6 +97,12 @@
 <p>
 	<small> ============== 4小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3981619075147244" target="freeweibo-mirror">海淀公安发这个帖什么意思？可不可以这样理解：1、打人是警察的…</a>
+</h2>
+<p>海淀公安发这个帖什么意思？可不可以这样理解：1、打人是警察的天赋人权；2、警察直接把人打个半死或直接打死，是对犯罪最好的打击，也是对社会最好的震慑；3、警察权高于一切，任何监督和约束都可认为是对警察的挑战；4、……<br><img src="http://ww4.sinaimg.cn/large/49abe88bgw1f4fvg20trij20k00zkq5d.jpg"></p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3981616462268774" target="freeweibo-mirror">武大郎多次作虚假广告，被阳谷县工商局没收了杆秤，掀翻了摊子，…</a>
 </h2>
 <p>武大郎多次作虚假广告，被阳谷县工商局没收了杆秤，掀翻了摊子，打断了狗腿，还驱逐出境……<br><img src="http://ww2.sinaimg.cn/large/006tM2u5jw1f4fvegl81ej30qo1bednv.jpg"></p>
@@ -132,12 +138,6 @@
 <p>#国保是个啥东西？！#刚刚接到赵威家属@游明磊47 的来电，说当地一种叫“国保”的警察警告他明天不要去天津！如果不听话明天到当地福州机场也会把他强制拦下！因近期惊闻七0九大抓捕事件赵威女士可能狱中遭遇伤害于是本辩护人与家属约定明天一起去天津要求会见寻求赵威是否被伤害的真相！警察如此，两...全文： http://m.weibo.cn/1626095121/3981605465186773<br><img src="http://ww4.sinaimg.cn/large/60ec3e11jw1f4fu6l0st7j20qo0hqq5k.jpg"></p>
 <p>
 	<small> ============== 5小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3981597642001218" target="freeweibo-mirror">[话筒]【网传求证？】副省长……的秘密证明计划生育政策导致男…</a>
-</h2>
-<p>[话筒]【网传求证？】副省长……的秘密证明计划生育政策导致男女比例严重失衡？[挖鼻][酷][喵喵][喵喵]<br><img src="http://ww4.sinaimg.cn/large/006jfzlOgw1f4ft6v98ldj30k00gudhk.jpg"></p>
-<p>
-	<small> ============== 6小时前</small>
 </p>
 <table>
     <tr>
