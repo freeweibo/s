@@ -19,6 +19,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3981550045050040" target="freeweibo-mirror">也不知这老家伙背了多少的新疆的血债//@说话的人很多不如我也…</a>
+</h2>
+<p>也不知这老家伙背了多少的新疆的血债//@说话的人很多不如我也说说: 同情老渣？！[怒]//@Rhchard85:同右边//@五行剑侠:辛酸尼玛币 //@Sleaze_Les:辛酸你mlgb 智障//@inside很无奈：看到老爷爷觉得又挺辛酸的。。。真的是希望世界和平，不要有这些无谓的纷争。<br><br>RE: 【ISIS的最老成员是一个81岁的中国人】该组织发表声明称，这位叫做Amin的成员早前离开了他在新疆的家人，独身一人投奔ISIS。最新公布的照片中，这位维族老汉拿着AK47和手枪，面对照相机摆出了不同造型，据说他强烈要求被派往前线参加战斗。[吃惊] Daily Mail<br><img src="http://ww4.sinaimg.cn/large/aac56f74gw1f4f0wfu49sj20hm09xdh5.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3981517288593770" target="freeweibo-mirror">SPAM 一群土匪</a>
 </h2>
 <p>SPAM 一群土匪<br><br>RE: 分享图片<br><img src="http://ww2.sinaimg.cn/large/c37c67cbgw1f4dudiwdi6j20a50fsdi2.jpg"></p>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3981280695794200" target="freeweibo-mirror">我喜欢西安人，但有两次去西安，因为怕麻烦朋友开车接我，自己坐…</a>
 </h2>
 <p>我喜欢西安人，但有两次去西安，因为怕麻烦朋友开车接我，自己坐出租车，都受气。司机拒载、漫天要价……当时我还在微博上说过此事，也向当地放映过该问题，可惜，然并卵！你们凭什么抵制利民的新事物诞生？！//@头条新闻:转发微博<br><br>RE: 【网曝#西安出租抵制网约车#】今日上午，西安多名网友在微博爆料，市中心钟楼附近大量出租车聚集，交通一度拥堵，有网友称系出租车司机集体抵制网约车。（图片来源见水印）现场：http://t.cn/R5UMzDW 警方已到达现场：http://t.cn/R5UMZ9X<br><img src="http://ww3.sinaimg.cn/large/80e5c22ejw1f4egk3b4g5j20j60eejtp.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3981256528531488" target="freeweibo-mirror">今天心灵阅者的最新内容已经推送啦，【说到底，忙都只是借口】希…</a>
-</h2>
-<p>今天心灵阅者的最新内容已经推送啦，【说到底，忙都只是借口】希望大家都可以点开看一看。关，注V：xlyz78，么么哒~新关，注的朋友可以在“查找历史消息”里看到哦！<br><img src="http://ww4.sinaimg.cn/large/9b864c69gw1f4eq31jqcuj20ku0zo0wp.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
