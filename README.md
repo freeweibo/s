@@ -53,7 +53,7 @@
 </h2>
 <p>SPAM 续一km [蜡烛] //@一头小活猪: 如果我们的GTR继续前进[蜡烛] //@志我奋斗:[蜡烛] //@桶扣蛙:[蜡烛] //@续蛤:你们啊，不要老是想弄个大新闻<br><br>RE: 日产作死[蜡烛]<br><img src="http://ww3.sinaimg.cn/large/6d8a73c9gw1f4fzgdjidlj20yi1pcgrk.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3981655628957847" target="freeweibo-mirror">SPAM //@茉莉芬芳茶清香: 一颗赛艇。耐衣服</a>
 </h2>
@@ -95,7 +95,7 @@
 </h2>
 <p>鸟叔PSY成名曲《江南style》 http://t.cn/R54CqBZ .</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3981641347238690" target="freeweibo-mirror">//@寒江钓雪8: //@记者钱莽墩:当年也有人正义凛然说过…</a>
 </h2>
