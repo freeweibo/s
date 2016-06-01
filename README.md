@@ -31,6 +31,12 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3981568282742478" target="freeweibo-mirror">同問！</a>
+</h2>
+<p>同問！<br><br>RE: 【央视道歉吗？】今天，雷洋死亡案五警察被立案侦查，并采取刑事强制措施，公开传播雷洋嫖娼的央视该道歉了吧？@央视新闻 @人民网<br><img src="http://ww2.sinaimg.cn/large/593bcbb2jw1f4fnssgv0rj20dc08wq36.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3981558937314207" target="freeweibo-mirror">还有@人民日报 [哈哈]//@ICO刘开明://@博者文摘:…</a>
 </h2>
 <p>还有@人民日报 [哈哈]//@ICO刘开明://@博者文摘: //@湖嗨散人:回复@用户16336560:[喵喵] //@用户16336560:放心，北京电视台会和中央电视台会像没事儿似的，报道京检立案的消息的，脸不红心不跳是它们一惯的作风。<br><br>RE: 雷洋案件涉案警察已经被北京市检察院立案侦查，但是大家不要忘记，雷洋案事发第二天，@北京电视台 是怎么样为涉案警察洗地的，并且创造出来一个打飞机戴套的神话，请猛戳，@北京电视台 也出来走两步吧？ http://t.cn/RqrcdLb</p>
@@ -46,6 +52,12 @@
 	<a href="https://freeweibo.com/weibo/3981558433682080" target="freeweibo-mirror">SPAM 你可以测量他的脸皮厚度，却无法测量CCAV的脸皮厚…</a>
 </h2>
 <p>SPAM 你可以测量他的脸皮厚度，却无法测量CCAV的脸皮厚度。<br><img src="http://ww4.sinaimg.cn/large/6abaa945gw1f4forf2rgpj20dq0980u9.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3981554851879025" target="freeweibo-mirror">SPAM 别和我谈什么岁月静好，我就是冲着这个咖啡壶的颜值来…</a>
+</h2>
+<p>SPAM 别和我谈什么岁月静好，我就是冲着这个咖啡壶的颜值来的[笑cry]</p>
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
@@ -89,13 +101,13 @@
 </h2>
 <p>相信正义。//@我的大太和:最终5名警察会记过处分，重者开除党籍，换个地方，这是对外。对内什么事情都没有。这是一个人民群众想的。先在这挖个坑，看看最后是不是这样。<br><br>RE: 【重磅：雷洋案最新进展】6月1日快讯，北京市检察院第四分院依法决定对昌平区公安分局东小口派出所民警邢某某等五人进行立案侦查。同日，雷洋家属也收到了检察机关办理案件情况的通报。微评：雷洋案在公众舆论的倒逼下，检察机关终于对5名涉事民警立案侦查，能否赢回司法公信，公开公正是关键。[话筒]<br><img src="http://ww4.sinaimg.cn/large/db1747fcgw1f4fmmiby1uj20ik0dwgnu.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3981546945377286" target="freeweibo-mirror">雷洋案件涉案警察已经被北京市检察院立案侦查，但是大家不要忘记…</a>
 </h2>
 <p>雷洋案件涉案警察已经被北京市检察院立案侦查，但是大家不要忘记，雷洋案事发第二天，@北京电视台 是怎么样为涉案警察洗地的，并且创造出来一个打飞机戴套的神话，请猛戳，@北京电视台 也出来走两步吧？ http://t.cn/RqrcdLb</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3981545469629692" target="freeweibo-mirror">//@pi1ot: duang. //@来去之间: 要将个别…</a>
 </h2>
@@ -124,18 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3981544744290561" target="freeweibo-mirror">SPAM #霍去病最燃海报#我们都一起来等着关注的啊[奥特曼…</a>
 </h2>
 <p>SPAM #霍去病最燃海报#我们都一起来等着关注的啊[奥特曼] undesirable</p>
-<p>
-	<small> ============== 4小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3981544366226768" target="freeweibo-mirror">真替CCTV和BTV担心，这耳光被扇之后，怎么办？//@盘子…</a>
-</h2>
-<p>真替CCTV和BTV担心，这耳光被扇之后，怎么办？//@盘子微谈:期待真相！</p>
-<p>
-	<small> ============== 4小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3981543821251756" target="freeweibo-mirror">SPAM #反拐斗士赵薇#[nono大礼包]赶来围观和女神赵…</a>
-</h2>
-<p>SPAM #反拐斗士赵薇#[nono大礼包]赶来围观和女神赵薇一起并肩作战这温情提醒。 乔</p>
 <p>
 	<small> ============== 4小时前</small>
 </p>
