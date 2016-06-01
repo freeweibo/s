@@ -131,13 +131,13 @@
 </h2>
 <p>今天广州李小玲陪同六四幸存者齐志勇先生重回故地寻找失去的左腿。#勿忘国殤<br><img src="http://ww1.sinaimg.cn/large/006msUFCgw1f4g39a1ukdj30hs0np76l.jpg"></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3981684418313972" target="freeweibo-mirror">SPAM //@鲍迪克:瞎扯！周的公司的业务忙得做不过来，各…</a>
 </h2>
 <p>SPAM //@鲍迪克:瞎扯！周的公司的业务忙得做不过来，各级政府的活动邀请都排到了明年，出场费高过几乎所有大腕。这叫什么都不是？腾讯是私企，又不是党媒，本就从没用过他，什么叫用过就扔了？</p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p>
 <table>
     <tr>
