@@ -23,13 +23,13 @@
 </h2>
 <p>//@博者文摘: //@湖嗨散人:回复@用户16336560:[喵喵] //@用户16336560:放心，北京电视台会和中央电视台会像没事儿似的，报道京检立案的消息的，脸不红心不跳是它们一惯的作风。<br><br>RE: 雷洋案件涉案警察已经被北京市检察院立案侦查，但是大家不要忘记，雷洋案事发第二天，@北京电视台 是怎么样为涉案警察洗地的，并且创造出来一个打飞机戴套的神话，请猛戳，@北京电视台 也出来走两步吧？ http://t.cn/RqrcdLb</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3981558433682080" target="freeweibo-mirror">SPAM 你可以测量他的脸皮厚度，却无法测量CCAV的脸皮厚…</a>
 </h2>
 <p>SPAM 你可以测量他的脸皮厚度，却无法测量CCAV的脸皮厚度。<br><img src="http://ww4.sinaimg.cn/large/6abaa945gw1f4forf2rgpj20dq0980u9.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3981550045050040" target="freeweibo-mirror">也不知这老家伙背了多少的新疆的血债//@说话的人很多不如我也…</a>
 </h2>
@@ -46,6 +46,12 @@
 	<a href="https://freeweibo.com/weibo/3981547399331810" target="freeweibo-mirror">相信正义。//@我的大太和:最终5名警察会记过处分，重者开除…</a>
 </h2>
 <p>相信正义。//@我的大太和:最终5名警察会记过处分，重者开除党籍，换个地方，这是对外。对内什么事情都没有。这是一个人民群众想的。先在这挖个坑，看看最后是不是这样。<br><br>RE: 【重磅：雷洋案最新进展】6月1日快讯，北京市检察院第四分院依法决定对昌平区公安分局东小口派出所民警邢某某等五人进行立案侦查。同日，雷洋家属也收到了检察机关办理案件情况的通报。微评：雷洋案在公众舆论的倒逼下，检察机关终于对5名涉事民警立案侦查，能否赢回司法公信，公开公正是关键。[话筒]<br><img src="http://ww4.sinaimg.cn/large/db1747fcgw1f4fmmiby1uj20ik0dwgnu.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3981546945377286" target="freeweibo-mirror">雷洋案件涉案警察已经被北京市检察院立案侦查，但是大家不要忘记…</a>
+</h2>
+<p>雷洋案件涉案警察已经被北京市检察院立案侦查，但是大家不要忘记，雷洋案事发第二天，@北京电视台 是怎么样为涉案警察洗地的，并且创造出来一个打飞机戴套的神话，请猛戳，@北京电视台 也出来走两步吧？ http://t.cn/RqrcdLb</p>
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
@@ -89,13 +95,13 @@
 </h2>
 <p>SPAM #反拐斗士赵薇#[nono大礼包]赶来围观和女神赵薇一起并肩作战这温情提醒。 乔</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3981543099930813" target="freeweibo-mirror">被立案侦查的邢某，之前上了央视，接下来会不会再次上央视？</a>
 </h2>
 <p>被立案侦查的邢某，之前上了央视，接下来会不会再次上央视？<br><img src="http://ww1.sinaimg.cn/large/6f0978aajw1f4fn0kamtmj20jz0q1jtf.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3981541886956186" target="freeweibo-mirror">东小口出名多年了。</a>
 </h2>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3981537194487089" target="freeweibo-mirror">SPAM //@燃灯者2011: 转死这个畜生！</a>
 </h2>
 <p>SPAM //@燃灯者2011: 转死这个畜生！<br><br>RE: 他还会再上央视吗？<br><img src="http://ww4.sinaimg.cn/large/6309fc78gw1f4flmvsrwqj20ej0c7q51.jpg"></p>
-<p>
-	<small> ============== 3小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3981536459640228" target="freeweibo-mirror">SPAM #六一告别式#棒极了呢，重返六一这细心提醒让我滴小…</a>
-</h2>
-<p>SPAM #六一告别式#棒极了呢，重返六一这细心提醒让我滴小心脏砰砰直跳。 走走停停，到最后始终是一个人...</p>
 <p>
 	<small> ============== 3小时前</small>
 </p>
