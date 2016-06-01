@@ -77,7 +77,7 @@
 </h2>
 <p>日他妈的。//@微笑类星体: //@搏浪沙2010: 他的微博都不让转了 @湖嗨散人<br><br>RE: 【央视道歉吗？】今天，雷洋死亡案五警察被立案侦查，并采取刑事强制措施，公开传播雷洋嫖娼的央视该道歉了吧？@央视新闻 @人民网<br><img src="http://ww2.sinaimg.cn/large/593bcbb2jw1f4fnssgv0rj20dc08wq36.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3981568282742478" target="freeweibo-mirror">同問！</a>
 </h2>
