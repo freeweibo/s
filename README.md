@@ -23,7 +23,7 @@
 </h2>
 <p>傻子都看出那个收据是别有用心的人炮制诋毁警方的，您连那个造谣的收据都相信是警方提供的，我对您的律师生涯表示质疑！别的都不用说了！//@怀念艾跃进的赵宪君: 还有和傻逼一条心的，佩服！雷洋即使进屋10分钟，还得脱裤子、交钱、开具有单位名称的自己真实姓名的收据<br><br>RE: #喵喵捡了一个不能转发的东东[lxhx求表扬]# @傻哥嘚啵嘚<br><img src="http://ww1.sinaimg.cn/large/64815b7ajw1f4fr7vsreej20g00m4mys.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3981583394781574" target="freeweibo-mirror">SPAM 据说，@滴滴出行@滴滴出行开放合作平台 将携400…</a>
 </h2>
@@ -64,6 +64,12 @@
 	<a href="https://freeweibo.com/weibo/3981568282742478" target="freeweibo-mirror">同問！</a>
 </h2>
 <p>同問！<br><br>RE: 【央视道歉吗？】今天，雷洋死亡案五警察被立案侦查，并采取刑事强制措施，公开传播雷洋嫖娼的央视该道歉了吧？@央视新闻 @人民网<br><img src="http://ww2.sinaimg.cn/large/593bcbb2jw1f4fnssgv0rj20dc08wq36.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3981563279065377" target="freeweibo-mirror">震惊！！某国衙门前，竟然惊现裸体喊冤女子？？？这得多大勇气、…</a>
+</h2>
+<p>震惊！！某国衙门前，竟然惊现裸体喊冤女子？？？这得多大勇气、多大冤屈啊？？？为何法院途径都失效了？？？某国为何遍地窦娥冤？？？法律都死了吗？？<br><img src="http://ww3.sinaimg.cn/large/006s7S6ojw1f4fp5d6al4j30kf0q8n01.jpg"></p>
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3981548796034033" target="freeweibo-mirror">时间会磨灭、过滤真相吗//@当代包公:转发微博</a>
 </h2>
 <p>时间会磨灭、过滤真相吗//@当代包公:转发微博<br><br>RE: 【重磅：雷洋案最新进展】6月1日快讯，北京市检察院第四分院依法决定对昌平区公安分局东小口派出所民警邢某某等五人进行立案侦查。同日，雷洋家属也收到了检察机关办理案件情况的通报。微评：雷洋案在公众舆论的倒逼下，检察机关终于对5名涉事民警立案侦查，能否赢回司法公信，公开公正是关键。[话筒]<br><img src="http://ww4.sinaimg.cn/large/db1747fcgw1f4fmmiby1uj20ik0dwgnu.jpg"></p>
-<p>
-	<small> ============== 4小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3981547399331810" target="freeweibo-mirror">相信正义。//@我的大太和:最终5名警察会记过处分，重者开除…</a>
-</h2>
-<p>相信正义。//@我的大太和:最终5名警察会记过处分，重者开除党籍，换个地方，这是对外。对内什么事情都没有。这是一个人民群众想的。先在这挖个坑，看看最后是不是这样。<br><br>RE: 【重磅：雷洋案最新进展】6月1日快讯，北京市检察院第四分院依法决定对昌平区公安分局东小口派出所民警邢某某等五人进行立案侦查。同日，雷洋家属也收到了检察机关办理案件情况的通报。微评：雷洋案在公众舆论的倒逼下，检察机关终于对5名涉事民警立案侦查，能否赢回司法公信，公开公正是关键。[话筒]<br><img src="http://ww4.sinaimg.cn/large/db1747fcgw1f4fmmiby1uj20ik0dwgnu.jpg"></p>
 <p>
 	<small> ============== 4小时前</small>
 </p>
