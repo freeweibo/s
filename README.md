@@ -101,7 +101,7 @@
 </h2>
 <p>海淀公安发这个帖什么意思？可不可以这样理解：1、打人是警察的天赋人权；2、警察直接把人打个半死或直接打死，是对犯罪最好的打击，也是对社会最好的震慑；3、警察权高于一切，任何监督和约束都可认为是对警察的挑战；4、……<br><img src="http://ww4.sinaimg.cn/large/49abe88bgw1f4fvg20trij20k00zkq5d.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3981616462268774" target="freeweibo-mirror">武大郎多次作虚假广告，被阳谷县工商局没收了杆秤，掀翻了摊子，…</a>
 </h2>
