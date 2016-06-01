@@ -23,7 +23,7 @@
 </h2>
 <p>SPAM 一群土匪<br><br>RE: 分享图片<br><img src="http://ww2.sinaimg.cn/large/c37c67cbgw1f4dudiwdi6j20a50fsdi2.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3981510086039978" target="freeweibo-mirror">期待客观公正的调查结果。从“做案时间”等方面看，雷洋案有太多…</a>
 </h2>
