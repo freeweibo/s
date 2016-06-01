@@ -23,7 +23,7 @@
 </h2>
 <p>也不知这老家伙背了多少的新疆的血债//@说话的人很多不如我也说说: 同情老渣？！[怒]//@Rhchard85:同右边//@五行剑侠:辛酸尼玛币 //@Sleaze_Les:辛酸你mlgb 智障//@inside很无奈：看到老爷爷觉得又挺辛酸的。。。真的是希望世界和平，不要有这些无谓的纷争。<br><br>RE: 【ISIS的最老成员是一个81岁的中国人】该组织发表声明称，这位叫做Amin的成员早前离开了他在新疆的家人，独身一人投奔ISIS。最新公布的照片中，这位维族老汉拿着AK47和手枪，面对照相机摆出了不同造型，据说他强烈要求被派往前线参加战斗。[吃惊] Daily Mail<br><img src="http://ww4.sinaimg.cn/large/aac56f74gw1f4f0wfu49sj20hm09xdh5.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3981548796034033" target="freeweibo-mirror">时间会磨灭、过滤真相吗//@当代包公:转发微博</a>
 </h2>
@@ -113,7 +113,7 @@
 </h2>
 <p>//@我站在了巨人的肩膀上: 看来@陈有西 律师介入是个转折点…</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3981531058057783" target="freeweibo-mirror">他还会再上央视吗？</a>
 </h2>
