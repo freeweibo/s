@@ -49,6 +49,12 @@
 <p>
 	<small> ============== 1小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3981539887110512" target="freeweibo-mirror">【重磅：雷洋案最新进展】6月1日快讯，北京市检察院第四分院依…</a>
+</h2>
+<p>【重磅：雷洋案最新进展】6月1日快讯，北京市检察院第四分院依法决定对昌平区公安分局东小口派出所民警邢某某等五人进行立案侦查。同日，雷洋家属也收到了检察机关办理案件情况的通报。微评：雷洋案在公众舆论的倒逼下，检察机关终于对5名涉事民警立案侦查，能否赢回司法公信，公开公正是关键。[话筒]<br><img src="http://ww4.sinaimg.cn/large/db1747fcgw1f4fmmiby1uj20ik0dwgnu.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3981539810781030" target="freeweibo-mirror">SPAM //@龙love柳州://@殆知阁://@洋风汉魂…</a>
 </h2>
 <p>SPAM //@龙love柳州://@殆知阁://@洋风汉魂: 这张脸可能会遗臭万年。 //@书-会-儿:邢某某<br><br>RE: 他还会再上央视吗？<br><img src="http://ww4.sinaimg.cn/large/6309fc78gw1f4flmvsrwqj20ej0c7q51.jpg"></p>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3981509688545949" target="freeweibo-mirror">在吾国，几乎所有新闻，都有普利策奖的潜质，无论雷洋案，还是一…</a>
 </h2>
 <p>在吾国，几乎所有新闻，都有普利策奖的潜质，无论雷洋案，还是一年前的东方之星长江沉船事件。。。[泪]</p>
-<p>
-	<small> ============== 4小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3981506005107495" target="freeweibo-mirror">【北京检方对雷洋案五涉事民警立案侦查】北京市昌平区人民检察院…</a>
-</h2>
-<p>【北京检方对雷洋案五涉事民警立案侦查】北京市昌平区人民检察院完成对“雷洋涉嫌嫖娼被民警采取强制约束措施后死亡”线索初查工作，认为符合立案侦查条件。根据办案实际需要，北京市检察院决定将该案交由北京市检察院第四分院立案侦查。6月1日，北京市检察院第四分院决定对昌平区公安分局东小口派出所...全文： http://m.weibo.cn/1654134123/3981506005107495<br><img src="http://ww1.sinaimg.cn/large/6298156bjw1f4fipih4j8j20de0dxgnw.jpg"></p>
 <p>
 	<small> ============== 4小时前</small>
 </p>
