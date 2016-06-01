@@ -47,7 +47,7 @@
 </h2>
 <p>SPAM 要打折吗？ //@cy诚明: //@世界是他们的51: //@cccaaooo: //@Nuclear-Winter: //@無畏的小肥羊VI: 二十多年前不早就發生了嗎。。。[蜡烛][蜡烛][蜡烛] //@续蛤: 你们啊，不要老是想弄个大新闻<br><br>RE: 日产作死[蜡烛]<br><img src="http://ww3.sinaimg.cn/large/6d8a73c9gw1f4fzgdjidlj20yi1pcgrk.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3981657910375570" target="freeweibo-mirror">SPAM 续一km [蜡烛] //@一头小活猪: 如果我们的…</a>
 </h2>
@@ -113,7 +113,7 @@
 </h2>
 <p>是否冤不能看裸体喊冤<br><br>RE: 【依法治警  刻不容缓】今日网传，吉林市公安局船营区分局大门前，席地坐着一位背部写着“冤”字的赤裸女子......微评：赤裸鸣冤女子如此糟践自己，可想而知她背负着多大的冤屈！原来可敬可爱的人民警察，为何大部分都蜕变成了如今众夫指骂的“警匪”？如果官家觉得夸大事实，可敢进行一次民意问答？<br><img src="http://ww3.sinaimg.cn/large/db1747fcgw1f4ftipfatfj20hs0noq66.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3981629069764089" target="freeweibo-mirror">海淀公安分局的官方微博上，这一条已经看不到了。</a>
 </h2>
