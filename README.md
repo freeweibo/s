@@ -19,6 +19,18 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3981670808053168" target="freeweibo-mirror">SPAM 夏天到了 该減肉肉了。。我知道你们现在最需要这个[…</a>
+</h2>
+<p>SPAM 夏天到了 该減肉肉了。。我知道你们现在最需要这个[笑cry][笑cry][笑cry]</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3981669944193053" target="freeweibo-mirror">这是在抗议北京检察院立案（“雷洋”）？[疑问] //@公民用…</a>
+</h2>
+<p>这是在抗议北京检察院立案（“雷洋”）？[疑问] //@公民用户5921540650: 转发微博<br><br>RE: 海淀公安发这个帖什么意思？可不可以这样理解：1、打人是警察的天赋人权；2、警察直接把人打个半死或直接打死，是对犯罪最好的打击，也是对社会最好的震慑；3、警察权高于一切，任何监督和约束都可认为是对警察的挑战；4、……<br><img src="http://ww4.sinaimg.cn/large/49abe88bgw1f4fvg20trij20k00zkq5d.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3981662280556228" target="freeweibo-mirror">//@夜郎国主: 再说次我经历的事情，90年代，某派出所长不…</a>
 </h2>
 <p>//@夜郎国主: 再说次我经历的事情，90年代，某派出所长不长眼，打了一贵宾亲戚，他辖区的普通小百姓。被上级勒令上门道歉。完事出门时脸胀的紫红，回到宿舍把电话锅碗瓢盆砸锅个稀巴烂。<br><br>RE: 海淀公安发这个帖什么意思？可不可以这样理解：1、打人是警察的天赋人权；2、警察直接把人打个半死或直接打死，是对犯罪最好的打击，也是对社会最好的震慑；3、警察权高于一切，任何监督和约束都可认为是对警察的挑战；4、……<br><img src="http://ww4.sinaimg.cn/large/49abe88bgw1f4fvg20trij20k00zkq5d.jpg"></p>
@@ -107,7 +119,7 @@
 </h2>
 <p>海淀公安分局的官方微博上，这一条已经看不到了。<br><img src="http://ww2.sinaimg.cn/large/3f79a379jw1f4fwvoeil7j20k00zkjtl.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3981626624765623" target="freeweibo-mirror">//@鲲鹏展翅qd: //@学缠悟缠:[吃惊]//@冯师长:…</a>
 </h2>
@@ -126,18 +138,6 @@
 <p>武大郎多次作虚假广告，被阳谷县工商局没收了杆秤，掀翻了摊子，打断了狗腿，还驱逐出境……<br><img src="http://ww2.sinaimg.cn/large/006tM2u5jw1f4fvegl81ej30qo1bednv.jpg"></p>
 <p>
 	<small> ============== 5小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3981614092869280" target="freeweibo-mirror">双刃剑，覆舟… //@深夜走过长安街001://@呼啸的北狼…</a>
-</h2>
-<p>双刃剑，覆舟… //@深夜走过长安街001://@呼啸的北狼灬灬:[微风][微风][微风]//@薛明仪:绝对同意，道义颠倒，暴力反噬//@十年砍柴:当刀的伤害力越来越大，总有一天会让刀的主人害怕。是谓“工具的异化”。<br><br>RE: 警权大到什么程度？在实际操作中，一个地级市甚至一个县的公安局长手中的权力比中央一个副部级官员更刚性、更有效。前者能让一个公民突然失去自由，甚至蒸发，而且一天内拿出一整套“合法”手续。后者的权力反应弧较长，必须通过前者之手才能显示权力之威。</p>
-<p>
-	<small> ============== 5小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3981611785235068" target="freeweibo-mirror">在转</a>
-</h2>
-<p>在转</p>
-<p>
-	<small> ============== 6小时前</small>
 </p>
 <table>
     <tr>
