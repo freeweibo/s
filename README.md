@@ -25,6 +25,12 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3981614092869280" target="freeweibo-mirror">双刃剑，覆舟… //@深夜走过长安街001://@呼啸的北狼…</a>
+</h2>
+<p>双刃剑，覆舟… //@深夜走过长安街001://@呼啸的北狼灬灬:[微风][微风][微风]//@薛明仪:绝对同意，道义颠倒，暴力反噬//@十年砍柴:当刀的伤害力越来越大，总有一天会让刀的主人害怕。是谓“工具的异化”。<br><br>RE: 警权大到什么程度？在实际操作中，一个地级市甚至一个县的公安局长手中的权力比中央一个副部级官员更刚性、更有效。前者能让一个公民突然失去自由，甚至蒸发，而且一天内拿出一整套“合法”手续。后者的权力反应弧较长，必须通过前者之手才能显示权力之威。</p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3981590302996428" target="freeweibo-mirror">傻子都看出那个收据是别有用心的人炮制诋毁警方的，您连那个造谣…</a>
 </h2>
 <p>傻子都看出那个收据是别有用心的人炮制诋毁警方的，您连那个造谣的收据都相信是警方提供的，我对您的律师生涯表示质疑！别的都不用说了！//@怀念艾跃进的赵宪君: 还有和傻逼一条心的，佩服！雷洋即使进屋10分钟，还得脱裤子、交钱、开具有单位名称的自己真实姓名的收据<br><br>RE: #喵喵捡了一个不能转发的东东[lxhx求表扬]# @傻哥嘚啵嘚<br><img src="http://ww1.sinaimg.cn/large/64815b7ajw1f4fr7vsreej20g00m4mys.jpg"></p>
@@ -35,13 +41,13 @@
 </h2>
 <p>//@山谷雨轩:这得多大的冤屈，多大的勇气，才会走这一步！？<br><br>RE: 震惊！！某国衙门前，竟然惊现裸体喊冤女子？？？这得多大勇气、多大冤屈啊？？？为何法院途径都失效了？？？某国为何遍地窦娥冤？？？法律都死了吗？？<br><img src="http://ww3.sinaimg.cn/large/006s7S6ojw1f4fp5d6al4j30kf0q8n01.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3981583394781574" target="freeweibo-mirror">SPAM 据说，@滴滴出行@滴滴出行开放合作平台 将携400…</a>
 </h2>
 <p>SPAM 据说，@滴滴出行@滴滴出行开放合作平台 将携400家APP开通打车功能。专属优惠券在不（app）远（里）处（面）等你呢，享乘车优惠5元起！</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3981579954566658" target="freeweibo-mirror">#喵喵捡了一个不能转发的东东[lxhx求表扬]# @傻哥嘚啵…</a>
 </h2>
@@ -77,7 +83,7 @@
 </h2>
 <p>同問！<br><br>RE: 【央视道歉吗？】今天，雷洋死亡案五警察被立案侦查，并采取刑事强制措施，公开传播雷洋嫖娼的央视该道歉了吧？@央视新闻 @人民网<br><img src="http://ww2.sinaimg.cn/large/593bcbb2jw1f4fnssgv0rj20dc08wq36.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3981567841716271" target="freeweibo-mirror">SPAM #释小龙引路人粉围堵#想说，若大家都是很期待的哟</a>
 </h2>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3981550083577883" target="freeweibo-mirror">【央视道歉吗？】今天，雷洋死亡案五警察被立案侦查，并采取刑事…</a>
 </h2>
 <p>【央视道歉吗？】今天，雷洋死亡案五警察被立案侦查，并采取刑事强制措施，公开传播雷洋嫖娼的央视该道歉了吧？@央视新闻 @人民网<br><img src="http://ww2.sinaimg.cn/large/593bcbb2jw1f4fnssgv0rj20dc08wq36.jpg"></p>
-<p>
-	<small> ============== 7小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3981550045050040" target="freeweibo-mirror">也不知这老家伙背了多少的新疆的血债//@说话的人很多不如我也…</a>
-</h2>
-<p>也不知这老家伙背了多少的新疆的血债//@说话的人很多不如我也说说: 同情老渣？！[怒]//@Rhchard85:同右边//@五行剑侠:辛酸尼玛币 //@Sleaze_Les:辛酸你mlgb 智障//@inside很无奈：看到老爷爷觉得又挺辛酸的。。。真的是希望世界和平，不要有这些无谓的纷争。<br><br>RE: 【ISIS的最老成员是一个81岁的中国人】该组织发表声明称，这位叫做Amin的成员早前离开了他在新疆的家人，独身一人投奔ISIS。最新公布的照片中，这位维族老汉拿着AK47和手枪，面对照相机摆出了不同造型，据说他强烈要求被派往前线参加战斗。[吃惊] Daily Mail<br><img src="http://ww4.sinaimg.cn/large/aac56f74gw1f4f0wfu49sj20hm09xdh5.jpg"></p>
 <p>
 	<small> ============== 7小时前</small>
 </p>
