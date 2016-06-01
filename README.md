@@ -25,9 +25,99 @@
 <p>
 	<small> ============== 1小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3981548796034033" target="freeweibo-mirror">时间会磨灭、过滤真相吗//@当代包公:转发微博</a>
+</h2>
+<p>时间会磨灭、过滤真相吗//@当代包公:转发微博<br><br>RE: 【重磅：雷洋案最新进展】6月1日快讯，北京市检察院第四分院依法决定对昌平区公安分局东小口派出所民警邢某某等五人进行立案侦查。同日，雷洋家属也收到了检察机关办理案件情况的通报。微评：雷洋案在公众舆论的倒逼下，检察机关终于对5名涉事民警立案侦查，能否赢回司法公信，公开公正是关键。[话筒]<br><img src="http://ww4.sinaimg.cn/large/db1747fcgw1f4fmmiby1uj20ik0dwgnu.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3981547399331810" target="freeweibo-mirror">相信正义。//@我的大太和:最终5名警察会记过处分，重者开除…</a>
+</h2>
+<p>相信正义。//@我的大太和:最终5名警察会记过处分，重者开除党籍，换个地方，这是对外。对内什么事情都没有。这是一个人民群众想的。先在这挖个坑，看看最后是不是这样。<br><br>RE: 【重磅：雷洋案最新进展】6月1日快讯，北京市检察院第四分院依法决定对昌平区公安分局东小口派出所民警邢某某等五人进行立案侦查。同日，雷洋家属也收到了检察机关办理案件情况的通报。微评：雷洋案在公众舆论的倒逼下，检察机关终于对5名涉事民警立案侦查，能否赢回司法公信，公开公正是关键。[话筒]<br><img src="http://ww4.sinaimg.cn/large/db1747fcgw1f4fmmiby1uj20ik0dwgnu.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3981544966586519" target="freeweibo-mirror">//@喷嚏网铂程: //@小道信息: //@今夜不设防sty…</a>
+</h2>
+<p>//@喷嚏网铂程: //@小道信息: //@今夜不设防style: 王八喉舌[吐] //@转tie砖家:[衰]串通作案？//@北京老妪: [围观][围观]//@聪明如你2018: //@蒲子里的二流子:央视、北京卫视涉嫌伪证。应该协助调查。</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3981544932935743" target="freeweibo-mirror">//@律师老周401: 怎能漏了菜刀胡//@青光楚辞:这帮人…</a>
+</h2>
+<p>//@律师老周401: 怎能漏了菜刀胡//@青光楚辞:这帮人渣闭口不谈执法问题，一口咬定雷洋确实嫖娼，我不太理解为什么对嫖娼这事如此敏感？或者他们被妓女伤害过，或者家人从事这一行业！//@乌半仙儿: 五毛们今天如丧考妣</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3981539810781030" target="freeweibo-mirror">SPAM //@龙love柳州://@殆知阁://@洋风汉魂…</a>
+</h2>
+<p>SPAM //@龙love柳州://@殆知阁://@洋风汉魂: 这张脸可能会遗臭万年。 //@书-会-儿:邢某某<br><br>RE: 他还会再上央视吗？<br><img src="http://ww4.sinaimg.cn/large/6309fc78gw1f4flmvsrwqj20ej0c7q51.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3981537722022608" target="freeweibo-mirror">SPAM //@柳刀叶: //@记者钱莽墩:正义凛然：敢于魔…</a>
+</h2>
+<p>SPAM //@柳刀叶: //@记者钱莽墩:正义凛然：敢于魔鬼争高下，不向霸王让寸分[赞]<br><br>RE: 他还会再上央视吗？<br><img src="http://ww4.sinaimg.cn/large/6309fc78gw1f4flmvsrwqj20ej0c7q51.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3981537194487089" target="freeweibo-mirror">SPAM //@燃灯者2011: 转死这个畜生！</a>
+</h2>
+<p>SPAM //@燃灯者2011: 转死这个畜生！<br><br>RE: 他还会再上央视吗？<br><img src="http://ww4.sinaimg.cn/large/6309fc78gw1f4flmvsrwqj20ej0c7q51.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3981536459640228" target="freeweibo-mirror">SPAM #六一告别式#棒极了呢，重返六一这细心提醒让我滴小…</a>
+</h2>
+<p>SPAM #六一告别式#棒极了呢，重返六一这细心提醒让我滴小心脏砰砰直跳。 走走停停，到最后始终是一个人...</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3981535839570370" target="freeweibo-mirror">//@深夜走过长安街001: 人做天看，那些肆意泼污诽谤诋毁…</a>
+</h2>
+<p>//@深夜走过长安街001: 人做天看，那些肆意泼污诽谤诋毁他人的，不得好死。已经死好几个了。还有借机骂我的，是吧，呵呵，百姓互咬、谁最乐见？//@爱蓝胖纸的小玫瑰:一群洗地的5毛狗用倒钩烂逼微信截图泼脏水，不过也不奇怪，死了个警察他们自己人还洗地呢，所以说老百姓最可怜！<br><br>RE: 雷洋是被警察活活打死的，现在基本没有疑问了吧？非常清晰地记得，有一个“正警事儿”的号，发了一篇《雷某事件，民警正当执法，底气十足！》的稿子，阅读量巨大。这种颠倒黑白、指鹿为马、干扰舆论、洗地无下限的号，才是真正应该被封杀的对象，可是却没人来管。欢迎洗地党继续参与讨论。<br><img src="http://ww1.sinaimg.cn/large/006pGX6ejw1f4fjdi70qvj30i50dc3zf.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3981534526087043" target="freeweibo-mirror">//@我站在了巨人的肩膀上: 看来@陈有西 律师介入是个转折…</a>
+</h2>
+<p>//@我站在了巨人的肩膀上: 看来@陈有西 律师介入是个转折点…</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3981530051251725" target="freeweibo-mirror">SPAM #周末父母#哇咔咔，刘恺威王鸥共同加盟《周末父母》…</a>
+</h2>
+<p>SPAM #周末父母#哇咔咔，刘恺威王鸥共同加盟《周末父母》有喜点。 blacksmith</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3981529455151764" target="freeweibo-mirror">北京市检察院今天约见家属和律师告知，根据昌平检察院的初查，今…</a>
+</h2>
+<p>北京市检察院今天约见家属和律师告知，根据昌平检察院的初查，今天已经决定对雷洋死亡案五警察立案侦查，交由四分检侦办。犯罪嫌疑人已经采取刑事强制措施。雷洋案律师陈有西在京接受采访时表示： 一、感谢北京市检察院秉公执法，接受报案，及时立案，让每一个案件当事人都感受到法律的公平正义。 二、...全文： http://m.weibo.cn/1957373137/3981529455151764</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3981521607659431" target="freeweibo-mirror">SPAM #奇葩爸爸#经历多了听的广了触的深了，当下要背道而…</a>
+</h2>
+<p>SPAM #奇葩爸爸#经历多了听的广了触的深了，当下要背道而驶才能明哲保身不被人卖 consultant</p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3981517288593770" target="freeweibo-mirror">SPAM 一群土匪</a>
 </h2>
 <p>SPAM 一群土匪<br><br>RE: 分享图片<br><img src="http://ww2.sinaimg.cn/large/c37c67cbgw1f4dudiwdi6j20a50fsdi2.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3981515631382375" target="freeweibo-mirror">这就是被立案侦查的邢某某，之前上了央视</a>
+</h2>
+<p>这就是被立案侦查的邢某某，之前上了央视<br><img src="http://ww1.sinaimg.cn/large/a3dfe957jw1f4fju32tpxj20jz0zkwgf.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3981515232246877" target="freeweibo-mirror">SPAM #古巨基下跪# 上周的音乐大师课没拍，好难过[笑c…</a>
+</h2>
+<p>SPAM #古巨基下跪# 上周的音乐大师课没拍，好难过[笑cry][笑cry][笑cry] [会员一周年][会员一周年]</p>
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
@@ -41,103 +131,13 @@
 </h2>
 <p>在吾国，几乎所有新闻，都有普利策奖的潜质，无论雷洋案，还是一年前的东方之星长江沉船事件。。。[泪]</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3981506005107495" target="freeweibo-mirror">【北京检方对雷洋案五涉事民警立案侦查】北京市昌平区人民检察院…</a>
 </h2>
 <p>【北京检方对雷洋案五涉事民警立案侦查】北京市昌平区人民检察院完成对“雷洋涉嫌嫖娼被民警采取强制约束措施后死亡”线索初查工作，认为符合立案侦查条件。根据办案实际需要，北京市检察院决定将该案交由北京市检察院第四分院立案侦查。6月1日，北京市检察院第四分院决定对昌平区公安分局东小口派出所...全文： http://m.weibo.cn/1654134123/3981506005107495<br><img src="http://ww1.sinaimg.cn/large/6298156bjw1f4fipih4j8j20de0dxgnw.jpg"></p>
 <p>
 	<small> ============== 4小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3981458324811139" target="freeweibo-mirror">//@迟夙生律师: //@徐昕://@王万琼律师：振兴东北经…</a>
-</h2>
-<p>//@迟夙生律师: //@徐昕://@王万琼律师：振兴东北经济，依法保障非公有制企业的合法权益。<br><br>RE: 【律师集体致中央领导公开信：吉林辽源公安局滥用公权，以权谋私，违法办案】利用公权非法插手民企经济纠纷，从中渔利，故意制造冤案。违法管辖，非法审讯，殴打嫌疑人，不依法向律师告知案情。刑事侦查手段插手经济纠纷，干涉吉林中院股权纠纷案。滥用公权谋私，沦为他人谋利工具http://t.cn/R5UpivS<br><img src="http://ww2.sinaimg.cn/large/918d47a2gw1f4ensj0mm6j20hs0mr41u.jpg"></p>
-<p>
-	<small> ============== 7小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3981457422441010" target="freeweibo-mirror">SPAM 不知道真假，觉得不太可能。//@小女人湖水:转发微…</a>
-</h2>
-<p>SPAM 不知道真假，觉得不太可能。//@小女人湖水:转发微博</p>
-<p>
-	<small> ============== 7小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3981455158097521" target="freeweibo-mirror">SPAM //@小鱼的愤怒://@天创流:人在哪儿？//@刘…</a>
-</h2>
-<p>SPAM //@小鱼的愤怒://@天创流:人在哪儿？//@刘世银6041://@冷俊刹手://@刘二狗扯蛋蛋: //@良心于23:天使被魔鬼吞噬//@疾风知芳草:上帝,快让牠们下地狱吧!//@莫论独统: [怒]</p>
-<p>
-	<small> ============== 7小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3981455128068639" target="freeweibo-mirror">SPAM 转运 //@午后狂睡_Silent:从来不转类似的…</a>
-</h2>
-<p>SPAM 转运 //@午后狂睡_Silent:从来不转类似的，这个一定要转。 //@来去之间:转发求好运//@iF2007：[哆啦A梦吃惊]果然今天就被国家派到国外去了//@剩女小姐: 转运//@咚咚馄饨面_sk：5月太背了//@nottianyu://@hi-子豪:这个要转 一下<br><br>RE: 人呐就都不知道，自己不可以预料[鸿运当头]转发六月好运<br><img src="http://ww4.sinaimg.cn/large/409e8c4fjw1f4eaqzbsirj20dy07vaba.jpg"></p>
-<p>
-	<small> ============== 7小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3981446504913021" target="freeweibo-mirror">//@爱吐槽的酱油君: 高，实在是高！坐等新华社回应。[哈哈…</a>
-</h2>
-<p>//@爱吐槽的酱油君: 高，实在是高！坐等新华社回应。[哈哈][哈哈][哈哈]//@蒋祖权评论://@大道无名-: 一国一制噎住了一国两制，台湾有高人啊。</p>
-<p>
-	<small> ============== 8小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3981351818698913" target="freeweibo-mirror">#宋慧乔# 据传已经跟宋仲基在一起了，你信吗？今晚八卦已推：…</a>
-</h2>
-<p>#宋慧乔# 据传已经跟宋仲基在一起了，你信吗？今晚八卦已推：#娜扎姐姐#曝光 斥黑粉微博小号力挺妹妹 ；陈冠希大街热吻摸臀竟是她！维密天使华谊高管的老婆；祖峰《欢乐颂》第二季下线 猥琐大叔惨变”暴力狂“。关注W信公号：drjunjun 八卦夜宵快来品尝！<br><img src="http://ww1.sinaimg.cn/large/5452015cjw1f4f11219ulj20c80lqwfq.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3981349075777454" target="freeweibo-mirror">关注祈愿信箱 ，你会感同身受</a>
-</h2>
-<p>关注祈愿信箱 ，你会感同身受</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3981339999011205" target="freeweibo-mirror">SPAM [色]很不错的鞋子哦，鞋子控的朋友可以+威芯：ji…</a>
-</h2>
-<p>SPAM [色]很不错的鞋子哦，鞋子控的朋友可以+威芯：jia1360331【诚招代理】</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3981330511085019" target="freeweibo-mirror">SPAM //@muyeqing55：涨姿势[good]</a>
-</h2>
-<p>SPAM //@muyeqing55：涨姿势[good]</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3981327646721474" target="freeweibo-mirror">19世纪的风景画，让人第一次感受到光与影的变幻可以如此微妙而…</a>
-</h2>
-<p>19世纪的风景画，让人第一次感受到光与影的变幻可以如此微妙而生动，画面变得更加丰富而自由，让瞬间成为永恒。</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3981311376710831" target="freeweibo-mirror">【娱乐分享】1、娱乐圈那些表白后惨遭拒绝的明星们，你知 道几…</a>
-</h2>
-<p>【娱乐分享】1、娱乐圈那些表白后惨遭拒绝的明星们，你知 道几个？2、娱乐圈里你不知道的暗恋！3、摇滚女星台前迷人幕后吓人落差大，年度盘点最大亮点竟然是她！！4、揭秘娱乐圈明星应酬“天文数字”报价！更多精 彩请添加关注：闲闻趣事（xianwenqushi520）<br><img src="http://ww2.sinaimg.cn/large/9647a31ejw1f4eweo37kdj20ku112go1.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3981307685951879" target="freeweibo-mirror">SPAM 推荐好朋友一个性价比超高的饰品店给大家@Fabul…</a>
-</h2>
-<p>SPAM 推荐好朋友一个性价比超高的饰品店给大家@FabulousTime-Beauty [抢到啦][抢到啦][抢到啦]<br><img src="http://ww3.sinaimg.cn/large/70237922jw1f4evyaysawj20zk0zktg5.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3981302644081275" target="freeweibo-mirror">SPAM @分答 第16天：回答了499个问题。总收益过万。…</a>
-</h2>
-<p>SPAM @分答 第16天：回答了499个问题。总收益过万。用知识赚钱，辛苦并快乐着。知识工作者准备欢度儿童节啦！<br><img src="http://ww4.sinaimg.cn/large/53edaa46gw1f4evealrt0j20ku112wir.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3981290556524380" target="freeweibo-mirror">SPAM 乐视这动作够大的，#乐视生态618#我伙呆！</a>
-</h2>
-<p>SPAM 乐视这动作够大的，#乐视生态618#我伙呆！</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3981280695794200" target="freeweibo-mirror">我喜欢西安人，但有两次去西安，因为怕麻烦朋友开车接我，自己坐…</a>
-</h2>
-<p>我喜欢西安人，但有两次去西安，因为怕麻烦朋友开车接我，自己坐出租车，都受气。司机拒载、漫天要价……当时我还在微博上说过此事，也向当地放映过该问题，可惜，然并卵！你们凭什么抵制利民的新事物诞生？！//@头条新闻:转发微博<br><br>RE: 【网曝#西安出租抵制网约车#】今日上午，西安多名网友在微博爆料，市中心钟楼附近大量出租车聚集，交通一度拥堵，有网友称系出租车司机集体抵制网约车。（图片来源见水印）现场：http://t.cn/R5UMzDW 警方已到达现场：http://t.cn/R5UMZ9X<br><img src="http://ww3.sinaimg.cn/large/80e5c22ejw1f4egk3b4g5j20j60eejtp.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
 </p>
 <table>
     <tr>
