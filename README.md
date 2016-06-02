@@ -89,13 +89,13 @@
 </h2>
 <p>SPAM 爱国者？你们也配，别丑化爱国这两个字。</p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3981702625349854" target="freeweibo-mirror">SPAM //@李纯良Leon: 最右那个湖贱的蠢货，知道A…</a>
 </h2>
 <p>SPAM //@李纯良Leon: 最右那个湖贱的蠢货，知道Android系统是谁的吗？[笑cry] //@老陈师傅:[吃惊]我用错手机了？//@千里马常有 //@喵v我叫MT:我发现奇怪的问题，支持政府的基本都用安卓系统，要么就是国产手机！而那些鼓吹美国，抹黑政府，甚至连爱国青年也不放过的公知美分狗，大部分都用苹果！</p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3981702507894978" target="freeweibo-mirror">//@冰海雪涛44: 他只是挤破脑袋想做奴才的人//@千里马…</a>
 </h2>
