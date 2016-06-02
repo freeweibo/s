@@ -35,13 +35,13 @@
 </h2>
 <p>有关部门对于雷洋案盖、捂、删的做法都是无法且无耻的。<br><br>RE: 雷洋事件，十天来我的微博草稿箱里已经有187条积压发不出去。昨天有关领导都直接关心干预了，还是不正常。谁这么害怕我的正常理性的声音？本来只是几个北京警察闯祸，再这样捂下去，会变成一群警察和其他人有瓜葛。该洗手洗澡上岸了。//@八戒戒色戒酒肉：涉案警察有瞒上欺下(而非欺上瞒下)嫌疑。<br><img src="http://ww3.sinaimg.cn/large/6b804b51jw1f4ggg7z4t3j20qo1bgjve.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3981818355701405" target="freeweibo-mirror">八点声明，第二点非常好！</a>
 </h2>
 <p>八点声明，第二点非常好！<br><br>RE: 雷洋事件，十天来我的微博草稿箱里已经有187条积压发不出去。昨天有关领导都直接关心干预了，还是不正常。谁这么害怕我的正常理性的声音？本来只是几个北京警察闯祸，再这样捂下去，会变成一群警察和其他人有瓜葛。该洗手洗澡上岸了。//@八戒戒色戒酒肉：涉案警察有瞒上欺下(而非欺上瞒下)嫌疑。<br><img src="http://ww3.sinaimg.cn/large/6b804b51jw1f4ggg7z4t3j20qo1bgjve.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3981818045120791" target="freeweibo-mirror">//@北村:进展如何？ //@五岳散人:[哆啦A梦吃惊][g…</a>
 </h2>
@@ -64,6 +64,12 @@
 	<a href="https://freeweibo.com/weibo/3981815402276437" target="freeweibo-mirror">//@DopeyTom: 习惯性地用捂盖子的办法解决问题。</a>
 </h2>
 <p>//@DopeyTom: 习惯性地用捂盖子的办法解决问题。<br><br>RE: 雷洋事件，十天来我的微博草稿箱里已经有187条积压发不出去。昨天有关领导都直接关心干预了，还是不正常。谁这么害怕我的正常理性的声音？本来只是几个北京警察闯祸，再这样捂下去，会变成一群警察和其他人有瓜葛。该洗手洗澡上岸了。//@八戒戒色戒酒肉：涉案警察有瞒上欺下(而非欺上瞒下)嫌疑。<br><img src="http://ww3.sinaimg.cn/large/6b804b51jw1f4ggg7z4t3j20qo1bgjve.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3981814198711624" target="freeweibo-mirror">//@好响亮://@公务员张敏宴:领导干预后，总算有转发按钮…</a>
+</h2>
+<p>//@好响亮://@公务员张敏宴:领导干预后，总算有转发按钮了，但还间隙性发病<br><br>RE: 雷洋事件，十天来我的微博草稿箱里已经有187条积压发不出去。昨天有关领导都直接关心干预了，还是不正常。谁这么害怕我的正常理性的声音？本来只是几个北京警察闯祸，再这样捂下去，会变成一群警察和其他人有瓜葛。该洗手洗澡上岸了。//@八戒戒色戒酒肉：涉案警察有瞒上欺下(而非欺上瞒下)嫌疑。<br><img src="http://ww3.sinaimg.cn/large/6b804b51jw1f4ggg7z4t3j20qo1bgjve.jpg"></p>
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
@@ -119,23 +125,17 @@
 </h2>
 <p>SPAM //@anti-cctv弹道鸟蛋: //@又来金好多://@一品泥人://@砂器--49: //@尘曼天://@wyzxhp14://@南街个体户凌杰:转发微博<br><br>RE: 今天广州李小玲陪同六四幸存者齐志勇先生重回故地寻找失去的左腿。#勿忘国殤<br><img src="http://ww1.sinaimg.cn/large/006msUFCgw1f4g39a1ukdj30hs0np76l.jpg"></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3981697869289250" target="freeweibo-mirror">SPAM //@左春和: //@石言内://@999xx酒霸…</a>
 </h2>
 <p>SPAM //@左春和: //@石言内://@999xx酒霸: //@公民林静在维权4://@南街个体户凌杰:转发微博<br><br>RE: 今天广州李小玲陪同六四幸存者齐志勇先生重回故地寻找失去的左腿。#勿忘国殤<br><img src="http://ww1.sinaimg.cn/large/006msUFCgw1f4g39a1ukdj30hs0np76l.jpg"></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3981697172922596" target="freeweibo-mirror">SPAM //@林岳芳:他的生意真的那么好？可不能造谣呀。[…</a>
 </h2>
 <p>SPAM //@林岳芳:他的生意真的那么好？可不能造谣呀。[挖鼻]//@鲍迪克:瞎扯！周的公司的业务忙得做不过来，各级政府的活动邀请都排到了明年，出场费高过几乎所有大腕。这叫什么都不是？</p>
-<p>
-	<small> ============== 10小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3981694015577718" target="freeweibo-mirror">中国，我的左腿丢了，是你吞噬了吗？//@一品泥人://@砂器…</a>
-</h2>
-<p>中国，我的左腿丢了，是你吞噬了吗？//@一品泥人://@砂器--49: //@尘曼天://@wyzxhp14://@南街个体户凌杰:转发微博<br><br>RE: 今天广州李小玲陪同六四幸存者齐志勇先生重回故地寻找失去的左腿。#勿忘国殤<br><img src="http://ww1.sinaimg.cn/large/006msUFCgw1f4g39a1ukdj30hs0np76l.jpg"></p>
 <p>
 	<small> ============== 10小时前</small>
 </p>
