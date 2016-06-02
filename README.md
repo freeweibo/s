@@ -43,6 +43,24 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3982039512157363" target="freeweibo-mirror">有人说，文革时期没有腐败。半个世纪过去了，这是什么逻辑？腐败…</a>
+</h2>
+<p>有人说，文革时期没有腐败。半个世纪过去了，这是什么逻辑？腐败并不只是贪污受贿，还包括滥用职权、不当决策等等等导致严重后果。文革的决策过程，就是一种腐败形态，而且从来未被追责。</p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3982037012646817" target="freeweibo-mirror">苗德顺，63年生，河北人。那一年，他朝着火的拖拉机扔了一个筐…</a>
+</h2>
+<p>苗德顺，63年生，河北人。那一年，他朝着火的拖拉机扔了一个筐子，被判处死缓，反革命纵火罪。苗拒不认罪，被视为死硬派，92年才改为无期。狱友尊称他为苗大侠。97年刑期减为20年。2003年被诊断为精神病。现羁押于延庆监狱。听说他被摧残得不成人形。精神世界，永远定格在那一年，那一夜。</p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3982036773575635" target="freeweibo-mirror">李焕君:请求紧急声援 2016、6、2日有很多警察在李焕君、…</a>
+</h2>
+<p>李焕君:请求紧急声援 2016、6、2日有很多警察在李焕君、李美青妈妈家骚扰、请在北京的朋友前去声援，地址:北京市丰台区双庙村顶秀金石家园一号楼三单元1004号，他们凭什么去骚扰70多岁的多病的两位老人(老人都身患疾病)、如果我父母有什么事、我用生命讨还、请大量帮转 http://t.cn/R5bOtTJ .<br><img src="http://ww1.sinaimg.cn/large/006geaBRgw1f4h7n4hb7kj30c8202agi.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3982034257281458" target="freeweibo-mirror">SPAM 巨款！！！拉低中奖率！！！！</a>
 </h2>
 <p>SPAM 巨款！！！拉低中奖率！！！！<br><br>RE: 【抽个大浆】大家好，我要开店卖T恤惹，抽个价值1500软妹币以上的现金大大大大大大浆（←防屏蔽专用错字）！！！！！tb搜#WANTEE# 就可以惹！来一发吗[爱你]！！！<br><img src="http://ww1.sinaimg.cn/large/8edc8053jw1f4h53bj62wj20v9dnoqv5.jpg"></p>
@@ -85,6 +103,12 @@
 <p>
 	<small> ============== 5小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3982007585511210" target="freeweibo-mirror">韩国电影19禁《年轻的母亲》高清资源！！ 手慢无哦！[馋嘴]…</a>
+</h2>
+<p>韩国电影19禁《年轻的母亲》高清资源！！ 手慢无哦！[馋嘴] http://t.cn/R5boLj0</p>
+<p>
+	<small> ============== 5小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3982005416863233" target="freeweibo-mirror">//@顽强小草A: //@孤家寡哥在守望://@加H菲炮13…</a>
 </h2>
 <p>//@顽强小草A: //@孤家寡哥在守望://@加H菲炮1314Cat://@牧童1010://@自28由不再言论:转发微博<br><br>RE: 这个奴民国，六月三日之后，就是六月五日。因为在当局的惯性思维里，四日这天根本就不应该存在。</p>
@@ -101,7 +125,7 @@
 </h2>
 <p>艾虎生，男，1951年10月出生，河南禹县人。1967年3月参加工作。辽宁大学历史专业硕士研究生。2002年授予少将军衔。 曾任沈阳军区第39集团军116师347团团长（搭档刘建星）、116师参谋长、副师长、师长（搭档王平）、军参谋长。http://t.cn/R5b6UYc</p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3981981702276728" target="freeweibo-mirror">SPAM 手慢……有篇姐夫 小姨子 联欢会 的帖子 你们没看…</a>
 </h2>
@@ -112,30 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3981979848187743" target="freeweibo-mirror">SPAM //@东方夜鹰009:和领导深入交流是必要的！[喵…</a>
 </h2>
 <p>SPAM //@东方夜鹰009:和领导深入交流是必要的！[喵喵]</p>
-<p>
-	<small> ============== 7小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3981979668433518" target="freeweibo-mirror">//@S南京节度使://@SUN_天空:@江浙虎哥  //@…</a>
-</h2>
-<p>//@S南京节度使://@SUN_天空:@江浙虎哥  //@SUN_天空://@沙漠渔夫809:草！[怒]//@老许祈福-15s:表要碧莲[挖鼻]//@沙漠渔夫809:還有臉說。找塊豆腐撞死吧[怒]//@花前一壶酒09:转发微博<br><br>RE: 「你知道中國已經幫助六億人民脫貧了嗎？」——王毅「怒斥」西方記者用人權刁難中共當局<br><img src="http://ww1.sinaimg.cn/large/006eJXXsgw1f4gyuvzpzcj30k00zkwki.jpg"></p>
-<p>
-	<small> ============== 7小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3981976363421954" target="freeweibo-mirror">SPAM //@一品泥人://@l鑫鑫鑫l://@杜康111…</a>
-</h2>
-<p>SPAM //@一品泥人://@l鑫鑫鑫l://@杜康111://@洎油-泯注:日后提拔//@戎100戎日记: 转发微博</p>
-<p>
-	<small> ============== 7小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3981975776079232" target="freeweibo-mirror">http://t.cn/R5bJuBA //@水兵李铭://…</a>
-</h2>
-<p>http://t.cn/R5bJuBA //@水兵李铭://@茶道-高手://@刚刚路过03: //@o无想人生o：周密老道舆论上下呼应的系统…</p>
-<p>
-	<small> ============== 7小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3981975528060366" target="freeweibo-mirror">//@大藏布:转发微博</a>
-</h2>
-<p>//@大藏布:转发微博<br><br>RE: 莫日根达来的评论：其实我并不特别关心邢某某等这五个混蛋是否真的该得到应有的惩罚，我更关心的是两次公然造谣并“发布官方案情通报”的昌平区警方和他们背后的势力应该承担什么样的违法犯罪责任，以及北京电视台搬出一个按摩女公然在电视上示众和造谣诽谤的犯罪责任...（图：大蚊子）<br><img src="http://ww2.sinaimg.cn/large/6dd30887gw1f4gitykou9j22io1w0qv5.jpg"></p>
 <p>
 	<small> ============== 7小时前</small>
 </p>
