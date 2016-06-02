@@ -19,6 +19,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3981937641085325" target="freeweibo-mirror">还有因言获罪的。忘记了？//@侯会微博://@谢文:转发微博</a>
+</h2>
+<p>还有因言获罪的。忘记了？//@侯会微博://@谢文:转发微博<br><br>RE: 李洪林去世了，记得他当年一声喊：读书无禁区！鼓舞了多少人。现在回头想想，一个能因读书获罪的国家，是多么的悲哀。</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3981927394000204" target="freeweibo-mirror">//@大漠无痕cc: 大妈们辛苦１[哈哈][哈哈]//@疯少…</a>
 </h2>
 <p>//@大漠无痕cc: 大妈们辛苦１[哈哈][哈哈]//@疯少7V989: 呵呵//@爱卿評身免礼: //@被淹死的鲔鱼:哈哈//@18大前:转发微博<br><br>RE: 這是在變相提醒我們，不要忘了那一天麼？<br><img src="http://ww3.sinaimg.cn/large/005Gwpx3jw1f4gty51ifaj30qo0zktcf.jpg"></p>
@@ -31,15 +37,27 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3981924021779750" target="freeweibo-mirror">从焚书坑儒开始?这个地方就开始了……//@谢文:转发微博</a>
+</h2>
+<p>从焚书坑儒开始?这个地方就开始了……//@谢文:转发微博<br><br>RE: 李洪林去世了，记得他当年一声喊：读书无禁区！鼓舞了多少人。现在回头想想，一个能因读书获罪的国家，是多么的悲哀。</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3981923535425674" target="freeweibo-mirror">SPAM //@活捉死老鼠: //@八月辗鞑靼: //@世界…</a>
 </h2>
 <p>SPAM //@活捉死老鼠: //@八月辗鞑靼: //@世界是他们的51://@毒醉紅塵7: 紅䄂章、小紅帽，防階段敵人搞破壞嗎？[笑cry]<br><br>RE: 這是在變相提醒我們，不要忘了那一天麼？<br><img src="http://ww3.sinaimg.cn/large/005Gwpx3jw1f4gty51ifaj30qo0zktcf.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3981920536282253" target="freeweibo-mirror">//@汨子:还是靠明主恩公？唉。难怪《铡美案》历代长演不衰，…</a>
 </h2>
 <p>//@汨子:还是靠明主恩公？唉。难怪《铡美案》历代长演不衰，是精神鸦片啊。<br><br>RE: 习总干预下，雷洋案反转。如果最后仅仅是还雷洋公正，社会可以把这仅仅当作体制内人员的“特供”。雷洋案应该促使剥夺公安部对卖淫嫖娼的收容的权力，一切非拘留性质的监禁，都必须经过法庭同意。彻底取缔所有公安机关的长期拘押处置权才是社会期待雷洋案公正处理的结果。</p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3981917948948078" target="freeweibo-mirror">hstiisgsigsigk[哈哈][哈哈][抢到啦][抢到…</a>
+</h2>
+<p>hstiisgsigsigk[哈哈][哈哈][抢到啦][抢到啦][抢到啦][抢到啦]岛国小视频 黄嘉琪 xnjxjjjs泰西资源 小黑扒皮[抢到啦][抢到啦][抢到啦][哈哈][哈哈][哈哈][哈哈][温暖帽一次体系供应urhlsgksjg<br><img src="http://ww3.sinaimg.cn/large/596a0586jw1f4gu2jofj5j20pm0zkwjl.jpg"></p>
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
@@ -120,24 +138,6 @@
 <p>SPAM 呵呵//@刚刚路过03:</p>
 <p>
 	<small> ============== 7小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3981848520888328" target="freeweibo-mirror">//@梁发芾://@v珍妮:游戏[嘻嘻][拍照]//@备用盘…</a>
-</h2>
-<p>//@梁发芾://@v珍妮:游戏[嘻嘻][拍照]//@备用盘子: 转发微博<br><br>RE: 雷洋事件，十天来我的微博草稿箱里已经有187条积压发不出去。昨天有关领导都直接关心干预了，还是不正常。谁这么害怕我的正常理性的声音？本来只是几个北京警察闯祸，再这样捂下去，会变成一群警察和其他人有瓜葛。该洗手洗澡上岸了。//@八戒戒色戒酒肉：涉案警察有瞒上欺下(而非欺上瞒下)嫌疑。<br><img src="http://ww3.sinaimg.cn/large/6b804b51jw1f4ggg7z4t3j20qo1bgjve.jpg"></p>
-<p>
-	<small> ============== 7小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3981847463747089" target="freeweibo-mirror">//@liberum: 转发微博</a>
-</h2>
-<p>//@liberum: 转发微博<br><br>RE: 雷洋事件，十天来我的微博草稿箱里已经有187条积压发不出去。昨天有关领导都直接关心干预了，还是不正常。谁这么害怕我的正常理性的声音？本来只是几个北京警察闯祸，再这样捂下去，会变成一群警察和其他人有瓜葛。该洗手洗澡上岸了。//@八戒戒色戒酒肉：涉案警察有瞒上欺下(而非欺上瞒下)嫌疑。<br><img src="http://ww3.sinaimg.cn/large/6b804b51jw1f4ggg7z4t3j20qo1bgjve.jpg"></p>
-<p>
-	<small> ============== 7小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3981843629725424" target="freeweibo-mirror">SPAM [吃驚] //@大尸凶的漫画:[吃惊]//@杜君立…</a>
-</h2>
-<p>SPAM [吃驚] //@大尸凶的漫画:[吃惊]//@杜君立: [熊猫]//@贺兰山的阑珊: 噩擦！[吃惊]//@李-采-花: 栽赃，谋杀，渎职… //@徐付群:[怒]麻啦戈壁！//@米奇佬虎:电击睾丸，精液喷射，第一次听到这个酷刑。</p>
-<p>
-	<small> ============== 8小时前</small>
 </p>
 <table>
     <tr>
