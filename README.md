@@ -125,7 +125,7 @@
 </h2>
 <p>SPAM 涨姿势</p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3981959631998589" target="freeweibo-mirror">「你知道中國已經幫助六億人民脫貧了嗎？」——王毅「怒斥」西方…</a>
 </h2>
