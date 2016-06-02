@@ -77,7 +77,13 @@
 </h2>
 <p>SPAM 不会吧？这么狠？我还以为是阴毛呢[哼] http://t.cn/R5bUqlq<br><br>RE: 电击睾丸⋯⋯精液喷射⋯⋯你国「铁证如山」的犯罪事实简直创造力非凡⋯⋯[微笑]</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3981914324847859" target="freeweibo-mirror">李洪林去世了，记得他当年一声喊：读书无禁区！鼓舞了多少人。现…</a>
+</h2>
+<p>李洪林去世了，记得他当年一声喊：读书无禁区！鼓舞了多少人。现在回头想想，一个能因读书获罪的国家，是多么的悲哀。</p>
+<p>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3981913012016544" target="freeweibo-mirror">电击睾丸⋯⋯精液喷射⋯⋯你国「铁证如山」的犯罪事实简直创造力…</a>
 </h2>
@@ -95,13 +101,13 @@
 </h2>
 <p>dgkgdistuuari 大家好dhnfndmdj成人小[钱]视频我是张全蛋。今天我向各位隆微信小视频重介绍一位以及终生，啪哥。他是一个教会我撩妹小朋友dhkhrojlfjgs<br><img src="http://ww4.sinaimg.cn/large/596a0586jw1f4gry7lig1j20pm0zkwjl.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3981899121013745" target="freeweibo-mirror">SPAM 今天开始要好好JT了 66等我啊啊啊</a>
 </h2>
 <p>SPAM 今天开始要好好JT了 66等我啊啊啊<br><img src="http://ww1.sinaimg.cn/large/5db8744fgw1f4grtrdeecj20qo0qo11t.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3981864777264039" target="freeweibo-mirror">SPAM 没想到黑得丧心病狂 //@逆鳞dragon:丧心病…</a>
 </h2>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3981856569453338" target="freeweibo-mirror">昨天京城某公安局官号发布一句话，风雨之后见彩虹啥的，正好在雷…</a>
 </h2>
 <p>昨天京城某公安局官号发布一句话，风雨之后见彩虹啥的，正好在雷洋案警方五嫌疑人被立案调查之后。我其实挺理解警察的心情。平时固然看上去挺威风，实际上在越来越多的监督与摄像头下动辄得咎；扫黄是任务，可全扫清了既不现实、也没这个愿望与能力，夹板气。不过我劝您一句：中国早晚要进入真正的法治...全文： http://m.weibo.cn/1477045392/3981856569453338</p>
-<p>
-	<small> ============== 7小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3981855487092933" target="freeweibo-mirror">SPAM 呵呵//@刚刚路过03:</a>
-</h2>
-<p>SPAM 呵呵//@刚刚路过03:</p>
 <p>
 	<small> ============== 7小时前</small>
 </p>
