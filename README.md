@@ -47,7 +47,13 @@
 </h2>
 <p>//@DopeyTom: 习惯性地用捂盖子的办法解决问题。<br><br>RE: 雷洋事件，十天来我的微博草稿箱里已经有187条积压发不出去。昨天有关领导都直接关心干预了，还是不正常。谁这么害怕我的正常理性的声音？本来只是几个北京警察闯祸，再这样捂下去，会变成一群警察和其他人有瓜葛。该洗手洗澡上岸了。//@八戒戒色戒酒肉：涉案警察有瞒上欺下(而非欺上瞒下)嫌疑。<br><img src="http://ww3.sinaimg.cn/large/6b804b51jw1f4ggg7z4t3j20qo1bgjve.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3981800794110318" target="freeweibo-mirror">雷洋事件，十天来我的微博草稿箱里已经有187条积压发不出去。…</a>
+</h2>
+<p>雷洋事件，十天来我的微博草稿箱里已经有187条积压发不出去。昨天有关领导都直接关心干预了，还是不正常。谁这么害怕我的正常理性的声音？本来只是几个北京警察闯祸，再这样捂下去，会变成一群警察和其他人有瓜葛。该洗手洗澡上岸了。//@八戒戒色戒酒肉：涉案警察有瞒上欺下(而非欺上瞒下)嫌疑。<br><img src="http://ww3.sinaimg.cn/large/6b804b51jw1f4ggg7z4t3j20qo1bgjve.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3981706748706052" target="freeweibo-mirror">//@宏鑫88:雷政富[笑cry]//@碧海彩霞://@谎言…</a>
 </h2>
@@ -113,7 +119,7 @@
 </h2>
 <p>中国，我的左腿丢了，是你吞噬了吗？//@一品泥人://@砂器--49: //@尘曼天://@wyzxhp14://@南街个体户凌杰:转发微博<br><br>RE: 今天广州李小玲陪同六四幸存者齐志勇先生重回故地寻找失去的左腿。#勿忘国殤<br><img src="http://ww1.sinaimg.cn/large/006msUFCgw1f4g39a1ukdj30hs0np76l.jpg"></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3981693696219543" target="freeweibo-mirror">SPAM [蜡烛][蜡烛][蜡烛][蜡烛]</a>
 </h2>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3981691926189600" target="freeweibo-mirror">SPAM 我认为，作为与周一起奋战在网络爱国第一线的 @司马…</a>
 </h2>
 <p>SPAM 我认为，作为与周一起奋战在网络爱国第一线的 @司马南 等知名人士，应该勇敢站出来对无良媒体封杀爱国青年的行为做坚决的斗争。</p>
-<p>
-	<small> ============== 10小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3981691712118778" target="freeweibo-mirror">SPAM //@砂器--49: //@尘曼天://@wyzx…</a>
-</h2>
-<p>SPAM //@砂器--49: //@尘曼天://@wyzxhp14://@南街个体户凌杰:转发微博<br><br>RE: 今天广州李小玲陪同六四幸存者齐志勇先生重回故地寻找失去的左腿。#勿忘国殤<br><img src="http://ww1.sinaimg.cn/large/006msUFCgw1f4g39a1ukdj30hs0np76l.jpg"></p>
 <p>
 	<small> ============== 10小时前</small>
 </p>
