@@ -65,7 +65,7 @@
 </h2>
 <p>//@liberum: 转发微博<br><br>RE: 雷洋事件，十天来我的微博草稿箱里已经有187条积压发不出去。昨天有关领导都直接关心干预了，还是不正常。谁这么害怕我的正常理性的声音？本来只是几个北京警察闯祸，再这样捂下去，会变成一群警察和其他人有瓜葛。该洗手洗澡上岸了。//@八戒戒色戒酒肉：涉案警察有瞒上欺下(而非欺上瞒下)嫌疑。<br><img src="http://ww3.sinaimg.cn/large/6b804b51jw1f4ggg7z4t3j20qo1bgjve.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3981843629725424" target="freeweibo-mirror">SPAM [吃驚] //@大尸凶的漫画:[吃惊]//@杜君立…</a>
 </h2>
