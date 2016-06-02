@@ -23,7 +23,7 @@
 </h2>
 <p>//@liberum: 转发微博<br><br>RE: 雷洋事件，十天来我的微博草稿箱里已经有187条积压发不出去。昨天有关领导都直接关心干预了，还是不正常。谁这么害怕我的正常理性的声音？本来只是几个北京警察闯祸，再这样捂下去，会变成一群警察和其他人有瓜葛。该洗手洗澡上岸了。//@八戒戒色戒酒肉：涉案警察有瞒上欺下(而非欺上瞒下)嫌疑。<br><img src="http://ww3.sinaimg.cn/large/6b804b51jw1f4ggg7z4t3j20qo1bgjve.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3981835639525037" target="freeweibo-mirror">也是[笑cry][笑cry][笑cry]//@格瑞海斯环保:…</a>
 </h2>
@@ -101,19 +101,19 @@
 </h2>
 <p>//@北村:进展如何？ //@五岳散人:[哆啦A梦吃惊][good]<br><br>RE: 雷洋事件，十天来我的微博草稿箱里已经有187条积压发不出去。昨天有关领导都直接关心干预了，还是不正常。谁这么害怕我的正常理性的声音？本来只是几个北京警察闯祸，再这样捂下去，会变成一群警察和其他人有瓜葛。该洗手洗澡上岸了。//@八戒戒色戒酒肉：涉案警察有瞒上欺下(而非欺上瞒下)嫌疑。<br><img src="http://ww3.sinaimg.cn/large/6b804b51jw1f4ggg7z4t3j20qo1bgjve.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3981817750947401" target="freeweibo-mirror">//@小飞侠0311号:转发微博</a>
 </h2>
 <p>//@小飞侠0311号:转发微博<br><br>RE: 雷洋事件，十天来我的微博草稿箱里已经有187条积压发不出去。昨天有关领导都直接关心干预了，还是不正常。谁这么害怕我的正常理性的声音？本来只是几个北京警察闯祸，再这样捂下去，会变成一群警察和其他人有瓜葛。该洗手洗澡上岸了。//@八戒戒色戒酒肉：涉案警察有瞒上欺下(而非欺上瞒下)嫌疑。<br><img src="http://ww3.sinaimg.cn/large/6b804b51jw1f4ggg7z4t3j20qo1bgjve.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3981817096649325" target="freeweibo-mirror">[哆啦A梦吃惊][good]</a>
 </h2>
 <p>[哆啦A梦吃惊][good]<br><br>RE: 雷洋事件，十天来我的微博草稿箱里已经有187条积压发不出去。昨天有关领导都直接关心干预了，还是不正常。谁这么害怕我的正常理性的声音？本来只是几个北京警察闯祸，再这样捂下去，会变成一群警察和其他人有瓜葛。该洗手洗澡上岸了。//@八戒戒色戒酒肉：涉案警察有瞒上欺下(而非欺上瞒下)嫌疑。<br><img src="http://ww3.sinaimg.cn/large/6b804b51jw1f4ggg7z4t3j20qo1bgjve.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3981815830301958" target="freeweibo-mirror">//@大尸凶的漫画:转发微博</a>
 </h2>
