@@ -19,6 +19,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3981975776079232" target="freeweibo-mirror">http://t.cn/R5bJuBA //@水兵李铭://…</a>
+</h2>
+<p>http://t.cn/R5bJuBA //@水兵李铭://@茶道-高手://@刚刚路过03: //@o无想人生o：周密老道舆论上下呼应的系统…</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3981937641085325" target="freeweibo-mirror">还有因言获罪的。忘记了？//@侯会微博://@谢文:转发微博</a>
 </h2>
 <p>还有因言获罪的。忘记了？//@侯会微博://@谢文:转发微博<br><br>RE: 李洪林去世了，记得他当年一声喊：读书无禁区！鼓舞了多少人。现在回头想想，一个能因读书获罪的国家，是多么的悲哀。</p>
@@ -47,7 +53,7 @@
 </h2>
 <p>SPAM //@活捉死老鼠: //@八月辗鞑靼: //@世界是他们的51://@毒醉紅塵7: 紅䄂章、小紅帽，防階段敵人搞破壞嗎？[笑cry]<br><br>RE: 這是在變相提醒我們，不要忘了那一天麼？<br><img src="http://ww3.sinaimg.cn/large/005Gwpx3jw1f4gty51ifaj30qo0zktcf.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3981920536282253" target="freeweibo-mirror">//@汨子:还是靠明主恩公？唉。难怪《铡美案》历代长演不衰，…</a>
 </h2>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3981858398014944" target="freeweibo-mirror">【河北一警察设嫖抢劫  一审判刑八年】48岁的河北省石家庄长…</a>
 </h2>
 <p>【河北一警察设嫖抢劫  一审判刑八年】48岁的河北省石家庄长安分局广安大街派出所警察孔照福,勾结他人引诱介绍卖淫嫖娼，并带领四名辅警以抓嫖名义“执法”，抢劫、敲诈他人财物；辩护律师辩称其为完成罚款任务被法庭驳回。 http://t.cn/R54eeE9<br><img src="http://ww3.sinaimg.cn/large/77101dc1jw1f4gmpr1ixgj2089064dg2.jpg"></p>
-<p>
-	<small> ============== 9小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3981856569453338" target="freeweibo-mirror">昨天京城某公安局官号发布一句话，风雨之后见彩虹啥的，正好在雷…</a>
-</h2>
-<p>昨天京城某公安局官号发布一句话，风雨之后见彩虹啥的，正好在雷洋案警方五嫌疑人被立案调查之后。我其实挺理解警察的心情。平时固然看上去挺威风，实际上在越来越多的监督与摄像头下动辄得咎；扫黄是任务，可全扫清了既不现实、也没这个愿望与能力，夹板气。不过我劝您一句：中国早晚要进入真正的法治...全文： http://m.weibo.cn/1477045392/3981856569453338</p>
 <p>
 	<small> ============== 9小时前</small>
 </p>
