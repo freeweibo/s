@@ -23,7 +23,7 @@
 </h2>
 <p>//@S南京节度使://@SUN_天空:@江浙虎哥  //@SUN_天空://@沙漠渔夫809:草！[怒]//@老许祈福-15s:表要碧莲[挖鼻]//@沙漠渔夫809:還有臉說。找塊豆腐撞死吧[怒]//@花前一壶酒09:转发微博<br><br>RE: 「你知道中國已經幫助六億人民脫貧了嗎？」——王毅「怒斥」西方記者用人權刁難中共當局<br><img src="http://ww1.sinaimg.cn/large/006eJXXsgw1f4gyuvzpzcj30k00zkwki.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3981975776079232" target="freeweibo-mirror">http://t.cn/R5bJuBA //@水兵李铭://…</a>
 </h2>
