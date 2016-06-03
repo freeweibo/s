@@ -101,7 +101,7 @@
 </h2>
 <p>看老照片时，突然狂风暴雨<br><img src="http://ww1.sinaimg.cn/large/cfc95fc4gw1f4i7so5ngtj209m06dq35.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3982345931390042" target="freeweibo-mirror">SPAM #螺旋境界线OP# 王俊凯童鞋[爱你]王俊凯王俊凯…</a>
 </h2>
@@ -125,13 +125,13 @@
 </h2>
 <p>SPAM //@江水东逝: 不说也罢。[哈欠]<br><br>RE: 我有一束菊，今夜岂可说。</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3982335546021467" target="freeweibo-mirror">SPAM //@人生漫步111: //@炯宏160001: …</a>
 </h2>
 <p>SPAM //@人生漫步111: //@炯宏160001: [怒][怒][怒]//@涧山一剑:刚得知，微博把蜡烛图标都收了，太不自信了。<br><br>RE: 我有一束菊，今夜岂可说。</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3982335391673834" target="freeweibo-mirror">蜡烛.jpg,鲜花.jpg //@周铁东本人:蜡烛蜡烛蜡烛 …</a>
 </h2>
