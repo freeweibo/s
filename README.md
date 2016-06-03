@@ -65,7 +65,7 @@
 </h2>
 <p>【图说】<br><img src="http://ww2.sinaimg.cn/large/937f01f5jw1f4ijdlanfgj20m80gojs9.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3982449317194246" target="freeweibo-mirror">为什么我不能欣赏这一行为呢？因为二十七年的血痕已经淡了，历史…</a>
 </h2>
