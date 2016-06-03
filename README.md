@@ -73,6 +73,12 @@
 <p>
 	<small> ============== 5小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3982087595669360" target="freeweibo-mirror">【恐怖的答案[吃惊][吃惊]】该文分析雷洋司最有可能的答案只…</a>
+</h2>
+<p>【恐怖的答案[吃惊][吃惊]】该文分析雷洋司最有可能的答案只有一个：电击雷洋生殖器造成强迫射精伪造嫖娼证据。为了防止雷洋的惨叫被人听到，在对雷洋生殖器实施电击的同时，封堵雷洋呼吸道造成窒息。也可能由于颈部压迫造成心跳骤停。http://t.cn/R5brtvS</p>
+<p>
+	<small> ============== 9小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3982075289890089" target="freeweibo-mirror">27年......</a>
 </h2>
 <p>27年......<br><img src="http://ww4.sinaimg.cn/large/006qfdcPjw1f4hc4yhrxwj30q90hs76g.jpg"></p>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3982048291622216" target="freeweibo-mirror">//@尼禄1225: //@野村评论: //@合肥小泥鳅3:…</a>
 </h2>
 <p>//@尼禄1225: //@野村评论: //@合肥小泥鳅3: //@抱影無眠22:李美青被传唤    http://t.cn/R5bYhH1<br><br>RE: 李焕君:请求紧急声援 2016、6、2日有很多警察在李焕君、李美青妈妈家骚扰、请在北京的朋友前去声援，地址:北京市丰台区双庙村顶秀金石家园一号楼三单元1004号，他们凭什么去骚扰70多岁的多病的两位老人(老人都身患疾病)、如果我父母有什么事、我用生命讨还、请大量帮转 http://t.cn/R5bOtTJ .<br><img src="http://ww1.sinaimg.cn/large/006geaBRgw1f4h7n4hb7kj30c8202agi.jpg"></p>
-<p>
-	<small> ============== 12小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3982048257607399" target="freeweibo-mirror">//@孤家寡哥在守望: //@青海湖之旅201605://@…</a>
-</h2>
-<p>//@孤家寡哥在守望: //@青海湖之旅201605://@月在林梢-fe://@落花一片海:[怒骂][怒骂][话筒][话筒]//@抱影無眠22:李美青被传唤  http://t.cn/R5bYhH1<br><br>RE: 李焕君:请求紧急声援 2016、6、2日有很多警察在李焕君、李美青妈妈家骚扰、请在北京的朋友前去声援，地址:北京市丰台区双庙村顶秀金石家园一号楼三单元1004号，他们凭什么去骚扰70多岁的多病的两位老人(老人都身患疾病)、如果我父母有什么事、我用生命讨还、请大量帮转 http://t.cn/R5bOtTJ .<br><img src="http://ww1.sinaimg.cn/large/006geaBRgw1f4h7n4hb7kj30c8202agi.jpg"></p>
 <p>
 	<small> ============== 12小时前</small>
 </p>
