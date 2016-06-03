@@ -95,7 +95,7 @@
 </h2>
 <p>让一个人从墓穴里走出来。<br><img src="http://ww4.sinaimg.cn/large/a3bcdcbbjw1f4ik3w61wcj20zk0nq0ve.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3982455667186914" target="freeweibo-mirror">SPAM 今天二环每隔50米就有一个小伙子。本来他们不知道有…</a>
 </h2>
