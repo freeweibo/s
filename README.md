@@ -41,7 +41,7 @@
 </h2>
 <p>//@于峰: //@海啸VV:转发微博<br><br>RE: 分享图片<br><img src="http://ww2.sinaimg.cn/large/48a1a941jw1f4iifeuhl5j20ch08bwg5.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3982473941732561" target="freeweibo-mirror">SPAM //@金陵酒徒仓氏:[阴险][阴险][阴险]//@…</a>
 </h2>
@@ -65,7 +65,7 @@
 </h2>
 <p>SPAM 少抽点烟<br><br>RE: 今天凌晨。<br><img src="http://ww2.sinaimg.cn/large/62e0ba99gw1f4ikpcv49tj21kw0mbtm3.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3982463472801209" target="freeweibo-mirror">//@扛啤酒的蚂蚁: //@之乎者也K:转发微博</a>
 </h2>
