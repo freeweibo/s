@@ -23,7 +23,7 @@
 </h2>
 <p>SPAM //@江水东逝: 不说也罢。[哈欠]<br><br>RE: 我有一束菊，今夜岂可说。</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3982335391673834" target="freeweibo-mirror">蜡烛.jpg,鲜花.jpg //@周铁东本人:蜡烛蜡烛蜡烛 …</a>
 </h2>
