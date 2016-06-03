@@ -53,7 +53,7 @@
 </h2>
 <p>SPAM #天津东风日产长江专营店#这是昨天深夜的网络贴图…<br><img src="http://ww1.sinaimg.cn/large/43712f7dgw1f4hrq1ruu3j20u01bkqqf.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3982210053248545" target="freeweibo-mirror">除了语言和行为（用手指点对方）上的无礼，王外长的回答还体现了…</a>
 </h2>
@@ -101,7 +101,7 @@
 </h2>
 <p>球莫名堂！//@尼克安闲: 代表着一个国家的水平//@小楼春秋aqh://@满嘴谎言的爹:八旗丸绔弟子的范？ //@荒堂省三://@姚克玄: 大国崛起<br><br>RE: 王外长在国际场合表演粗鲁无教养不是第一次。两年前，他会见澳洲女外交部长，在谈到东海防空识别区时言行夸张失控，被外交官Peter Rowe公开称为“三十多年外交生涯中见过的最粗鲁的东西”("the rudest thing"）。两年后，王外长的粗鲁在加拿大又上了一个台阶，绝对世界最高水平。<br><img src="http://ww2.sinaimg.cn/large/006b3grAgw1f4hk7ijhgmj30h809q3zr.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3982195745877993" target="freeweibo-mirror">[萌] //@静娅_:【1998 – 2001 外交部部长助…</a>
 </h2>
