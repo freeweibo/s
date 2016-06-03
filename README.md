@@ -29,13 +29,13 @@
 </h2>
 <p>SPAM 外长发飙一夜之间成全球网红。感觉这是继长者怒斥香港记者之后的又一经典啊！不可不看。http://t.cn/R5GhCTv</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3982400873136421" target="freeweibo-mirror">//@冬天的鼠标-://@麦芽精36: //@雨里雾-://…</a>
 </h2>
 <p>//@冬天的鼠标-://@麦芽精36: //@雨里雾-://@小扌別:[鮮花]<br><br>RE: 最令人震撼的是，经过了文革的摧残，他们没有失落灵魂，而今天，我们依然找不着来时的路，因为我们怯懦。我们悼念这段鲜红的插曲，不是为了苟且似的平反，而是着力于重生，因为我们还有梦，摸着胸膛的跳动，证明我们还活着！[泪][拳头]<br><img src="http://ww1.sinaimg.cn/large/006tFDnWgw1f4ic78kgqhj30qo15e4dp.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3982400830105421" target="freeweibo-mirror">SPAM 真心建议微博服务器明天停止营运一天，这样很多人就不…</a>
 </h2>
