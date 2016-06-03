@@ -31,6 +31,12 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3982246849911034" target="freeweibo-mirror">我发表了头条文章:《周孝正评毛粪》 http://t.cn/…</a>
+</h2>
+<p>我发表了头条文章:《周孝正评毛粪》 http://t.cn/R5GtUZU</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3982229305069807" target="freeweibo-mirror">SPAM 他如何其实不是问题，而是这样一个人长期在共产党内部…</a>
 </h2>
 <p>SPAM 他如何其实不是问题，而是这样一个人长期在共产党内部混的风生水起，就是个问题了。<br><br>RE: 【这回“大炮”变“小炮”】95天之后，被关闭微博账号的任志强又“悄悄地”在一款名为“分答”的付费语音问答软件上现身了。截止至观察者网发稿，低调的“退休老汉‘任大炮’”回答了50个问题，总收入2091.55元。邀请他回答一次的价格，是“亲民的”10元钱。http://t.cn/R5bj8sl<br><img src="http://ww1.sinaimg.cn/large/707e96d5gw1f4haaasv1lj20go0nmdh2.jpg"></p>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3982192440596913" target="freeweibo-mirror">SPAM //@夏日海湾:我从来不看地摊上的小报[哼]。当然…</a>
 </h2>
 <p>SPAM //@夏日海湾:我从来不看地摊上的小报[哼]。当然，也没地方能买到。//@博闻联播:看报的方向对吗？<br><br>RE: 27年......<br><img src="http://ww4.sinaimg.cn/large/006qfdcPjw1f4hc4yhrxwj30q90hs76g.jpg"></p>
-<p>
-	<small> ============== 6小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3982189954277868" target="freeweibo-mirror">//@李大华V://@予象阿三:人家是党国天下//@水木双刀…</a>
-</h2>
-<p>//@李大华V://@予象阿三:人家是党国天下//@水木双刀_://@包子已觉醒:转发微博<br><br>RE: 吴祚来 1，党旗是党内旗帜，不应该让不是党员的孩子敬礼；2，共产党是一个政治组织不是一个宗教组织，不能作为信仰来崇拜；3，孩子未成年，不能参与政治组织，宗教与政治不应进入中小学；4，孩子不是党的，未经家长同意，不能用政治影响未成年人。<br><img src="http://ww1.sinaimg.cn/large/006786I5gw1f4havrr6caj30cs08jq48.jpg"></p>
 <p>
 	<small> ============== 6小时前</small>
 </p>
