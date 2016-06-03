@@ -89,7 +89,7 @@
 </h2>
 <p>SPAM //@伍雷去夹边沟: 无法忘却！<br><br>RE: 整整27年了！竟然可以27年！</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3982421550673118" target="freeweibo-mirror">SPAM 啥意思？数学不好！[笑cry]@西子丹67 @王海</a>
 </h2>
@@ -137,7 +137,7 @@
 </h2>
 <p>SPAM //@贺海林: //@水中窥月W://@姜汝祥部落电商:“不敢触摸”</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p>
 <table>
     <tr>
