@@ -37,6 +37,12 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3982328910469246" target="freeweibo-mirror">我有一束菊，今夜岂可说。</a>
+</h2>
+<p>我有一束菊，今夜岂可说。</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3982328633621276" target="freeweibo-mirror">SPAM 不知真偽，請大家考證！</a>
 </h2>
 <p>SPAM 不知真偽，請大家考證！<br><img src="http://ww2.sinaimg.cn/large/5937c055jw1f4i585p2itj20go0m8abv.jpg"></p>
@@ -48,6 +54,12 @@
 <p>SPAM #今日贴纸打卡#明天週六，休息一下子，一休和尚也是這麼說的，給自己放一兩天的假，六月五日再見！何以放假，你懂得！不小心被噎了一下，也讓平素整天盯著你的哥幾個休息一下⋯⋯<br><img src="http://ww2.sinaimg.cn/large/5937c055jw1f4i4ld6ivxj20c80cy0ti.jpg"></p>
 <p>
 	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3982321449006595" target="freeweibo-mirror">作为中国当代史的重要事件，它的真相不会被时间的车轮碾灭，被人…</a>
+</h2>
+<p>作为中国当代史的重要事件，它的真相不会被时间的车轮碾灭，被人造的谎言掩埋。怀念，让人们离事实更近，而不是遗忘。历史容不得虚假，真相不能沦为政治的附庸。我们如果遗忘历史，心灵便会永远被黑暗吞噬。谨以此记</p>
+<p>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3982316759571798" target="freeweibo-mirror">//@老關再來://@研子五味201604://@山上水童:…</a>
 </h2>
@@ -89,7 +101,7 @@
 </h2>
 <p>//@大藏布:[哈哈]</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3982264549099526" target="freeweibo-mirror">//@元135://@BE_OSv21: //@v木子123…</a>
 </h2>
@@ -119,23 +131,11 @@
 </h2>
 <p>我发表了头条文章:《周孝正评毛粪》 http://t.cn/R5GtUZU</p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3982242264896878" target="freeweibo-mirror">SPAM 【14张罚单算啥？上海最牛“僵尸车”易主】还记得被…</a>
 </h2>
 <p>SPAM 【14张罚单算啥？上海最牛“僵尸车”易主】还记得被贴14张罚单的上海最牛僵尸车吗？仅过一天，最牛僵尸车称号就易主了！在普陀区宜昌路的一段断头路上，有一辆全身被贴满近20张罚单的沪牌小汽车。一些罚单已经被撕去，最新的一张罚单，是6月1日凌晨3点21分来贴的。http://t.cn/R5Gwlsh<br><img src="http://ww2.sinaimg.cn/large/6e05a6dagw1f4hvbdyvdxj20gc0bztb3.jpg"></p>
-<p>
-	<small> ============== 8小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3982241325308808" target="freeweibo-mirror">江 绵 恒 正式被中纪委约谈！！！</a>
-</h2>
-<p>江 绵 恒 正式被中纪委约谈！！！</p>
-<p>
-	<small> ============== 8小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3982237454015873" target="freeweibo-mirror">SPAM 如果说，中国人有发言权的话？请不要删帖、限转、屏蔽…</a>
-</h2>
-<p>SPAM 如果说，中国人有发言权的话？请不要删帖、限转、屏蔽甚至销号。<br><img src="http://ww3.sinaimg.cn/large/7c0e9549gw1f4hurjjt7mj20qo425ty7.jpg"></p>
 <p>
 	<small> ============== 8小时前</small>
 </p>
