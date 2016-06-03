@@ -95,7 +95,7 @@
 </h2>
 <p>SPAM 啥意思？数学不好！[笑cry]@西子丹67 @王海<br><br>RE: 仅以此，纪念那年那天逝去的白衬衫。。。<br><img src="http://ww2.sinaimg.cn/large/737a4c10gw1f4ifowfop9j208a08ajrj.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3982419809388986" target="freeweibo-mirror">仅以此，纪念那年那天逝去的白衬衫。。。</a>
 </h2>
