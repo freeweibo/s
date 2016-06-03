@@ -25,6 +25,12 @@
 <p>
 	<small> ============== 1小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3982451757938853" target="freeweibo-mirror">【图说】</a>
+</h2>
+<p>【图说】<br><img src="http://ww2.sinaimg.cn/large/937f01f5jw1f4ijdlanfgj20m80gojs9.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3982449317194246" target="freeweibo-mirror">为什么我不能欣赏这一行为呢？因为二十七年的血痕已经淡了，历史…</a>
 </h2>
 <p>为什么我不能欣赏这一行为呢？因为二十七年的血痕已经淡了，历史走到现在，应该是和解拥抱的时刻，而不再是抱着过去的历史让今天的人为之负责的时刻。再者，假如燃烛者是没有私心私利的普通民众，假如悼念者是失去亲人的母亲们，我或许会极度尊敬，但很显然，在特殊利益诉求背景下的纪念，并非如此。</p>
@@ -59,11 +65,17 @@
 </h2>
 <p>//@越王尝胆再世: //@-蓝色-心情://@dazhouqingshan_63://@鸿斌居士言论: 共识网胆大//@美裙百灵鸟儿://@1个伟大的沟通者:前苏联？[想一想]//@NelsonStein：坦克还碾压过六月呢！</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3982431561722005" target="freeweibo-mirror">//@梦醒时分9241: //@股市的尘埃39://@-蓝色…</a>
 </h2>
 <p>//@梦醒时分9241: //@股市的尘埃39://@-蓝色-心情://@dazhouqingshan_63://@赵府木是国://@公民纳税人曹自强:转发微博<br><br>RE: #成都身边事#【成都双流区教师大规模上访维权】 今天下午5点左右双流区各中小学教师齐聚双流区政府门口为自己维权！为教师讨薪！据现场教师介绍：双流区公务员去年暑期人平发了8至10万，今年刚又发了8万?教师却未发放。PS：不管是否属实，但双流区领导应该学习《教师法》了。<br><img src="http://ww2.sinaimg.cn/large/93acee78gw1f4i86y1jf9j20qo0oeafd.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3982429934915732" target="freeweibo-mirror">今日网络热点：王外长怒斥外媒，吴律师半裸逃生。[嘻嘻][嘻嘻…</a>
+</h2>
+<p>今日网络热点：王外长怒斥外媒，吴律师半裸逃生。[嘻嘻][嘻嘻][嘻嘻]<br><img src="http://ww2.sinaimg.cn/large/dec457f5gw1f4igudb9yjj20b408cjrp.jpg"></p>
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
@@ -124,18 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3982422502363053" target="freeweibo-mirror">SPAM //@伍雷去夹边沟: 无法忘却！</a>
 </h2>
 <p>SPAM //@伍雷去夹边沟: 无法忘却！<br><br>RE: 整整27年了！竟然可以27年！</p>
-<p>
-	<small> ============== 3小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3982421550673118" target="freeweibo-mirror">SPAM 啥意思？数学不好！[笑cry]@西子丹67 @王海</a>
-</h2>
-<p>SPAM 啥意思？数学不好！[笑cry]@西子丹67 @王海<br><br>RE: 仅以此，纪念那年那天逝去的白衬衫。。。<br><img src="http://ww2.sinaimg.cn/large/737a4c10gw1f4ifowfop9j208a08ajrj.jpg"></p>
-<p>
-	<small> ============== 3小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3982419809388986" target="freeweibo-mirror">仅以此，纪念那年那天逝去的白衬衫。。。</a>
-</h2>
-<p>仅以此，纪念那年那天逝去的白衬衫。。。<br><img src="http://ww2.sinaimg.cn/large/737a4c10gw1f4ifowfop9j208a08ajrj.jpg"></p>
 <p>
 	<small> ============== 3小时前</small>
 </p>
