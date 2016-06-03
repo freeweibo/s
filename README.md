@@ -59,7 +59,7 @@
 </h2>
 <p>SPAM 都成立以团为编制的队伍了？[偷笑] //@蔡鸿岩:@米瑞蓉</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3982440915907593" target="freeweibo-mirror">SPAM 回复@灰色纪念日20130511:[嘻嘻][嘻嘻]…</a>
 </h2>
@@ -131,13 +131,13 @@
 </h2>
 <p>SPAM //@50年矛苔://@无托国人民17://@千山微语胡说: //@针叶林2: //@三爪撬牆: //@面朝大海_200410:[闭嘴]<br><br>RE: 台湾立法院为**默哀（感谢台湾</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3982426139429130" target="freeweibo-mirror">［历史上的明天］</a>
 </h2>
 <p>［历史上的明天］<br><img src="http://ww2.sinaimg.cn/large/658763f3jw1f4igfosxsfj20df09yjre.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p>
 <table>
     <tr>
