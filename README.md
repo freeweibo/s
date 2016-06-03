@@ -65,7 +65,7 @@
 </h2>
 <p>球莫名堂！//@尼克安闲: 代表着一个国家的水平//@小楼春秋aqh://@满嘴谎言的爹:八旗丸绔弟子的范？ //@荒堂省三://@姚克玄: 大国崛起<br><br>RE: 王外长在国际场合表演粗鲁无教养不是第一次。两年前，他会见澳洲女外交部长，在谈到东海防空识别区时言行夸张失控，被外交官Peter Rowe公开称为“三十多年外交生涯中见过的最粗鲁的东西”("the rudest thing"）。两年后，王外长的粗鲁在加拿大又上了一个台阶，绝对世界最高水平。<br><img src="http://ww2.sinaimg.cn/large/006b3grAgw1f4hk7ijhgmj30h809q3zr.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3982195745877993" target="freeweibo-mirror">[萌] //@静娅_:【1998 – 2001 外交部部长助…</a>
 </h2>
@@ -125,7 +125,7 @@
 </h2>
 <p>27年......<br><img src="http://ww4.sinaimg.cn/large/006qfdcPjw1f4hc4yhrxwj30q90hs76g.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3982074190504174" target="freeweibo-mirror">外媒：据昌平检察院朋友透露，雷案已全部查清，鉴于敏感日前后不…</a>
 </h2>
