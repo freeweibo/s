@@ -29,13 +29,13 @@
 </h2>
 <p>SPAM //@江水东逝: 不说也罢。[哈欠]<br><br>RE: 我有一束菊，今夜岂可说。</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3982335546021467" target="freeweibo-mirror">SPAM //@人生漫步111: //@炯宏160001: …</a>
 </h2>
 <p>SPAM //@人生漫步111: //@炯宏160001: [怒][怒][怒]//@涧山一剑:刚得知，微博把蜡烛图标都收了，太不自信了。<br><br>RE: 我有一束菊，今夜岂可说。</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3982335391673834" target="freeweibo-mirror">蜡烛.jpg,鲜花.jpg //@周铁东本人:蜡烛蜡烛蜡烛 …</a>
 </h2>
@@ -113,13 +113,13 @@
 </h2>
 <p>作为中国当代史的重要事件，它的真相不会被时间的车轮碾灭，被人造的谎言掩埋。怀念，让人们离事实更近，而不是遗忘。历史容不得虚假，真相不能沦为政治的附庸。我们如果遗忘历史，心灵便会永远被黑暗吞噬。谨以此记</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3982320911990341" target="freeweibo-mirror">SPAM 有人说嘉哥是被低估的主持人，他不知道的是喜欢嘉哥的…</a>
 </h2>
 <p>SPAM 有人说嘉哥是被低估的主持人，他不知道的是喜欢嘉哥的人永远不会低估他！嘉哥棒棒棒哒！快乐家族棒棒棒哒！  人家只是想让你开心一点嘛。</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3982316893798780" target="freeweibo-mirror">SPAM #心疼顶顶#现在做妈妈还是很忙的 [cqname]…</a>
 </h2>
