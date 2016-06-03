@@ -41,7 +41,7 @@
 </h2>
 <p>SPAM //@godard_wuhan://@赵景宜: 让装甲车从街道开出来<br><br>RE: 让一个人从墓穴里走出来。<br><img src="http://ww4.sinaimg.cn/large/a3bcdcbbjw1f4ik3w61wcj20zk0nq0ve.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3982466425829405" target="freeweibo-mirror">[话筒] //@buquedingyfm://@黄奎ART:…</a>
 </h2>
@@ -91,6 +91,12 @@
 <p>
 	<small> ============== 5小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3982458111730180" target="freeweibo-mirror">让一个人从墓穴里走出来。</a>
+</h2>
+<p>让一个人从墓穴里走出来。<br><img src="http://ww4.sinaimg.cn/large/a3bcdcbbjw1f4ik3w61wcj20zk0nq0ve.jpg"></p>
+<p>
+	<small> ============== 5小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3982455667186914" target="freeweibo-mirror">SPAM 今天二环每隔50米就有一个小伙子。本来他们不知道有…</a>
 </h2>
 <p>SPAM 今天二环每隔50米就有一个小伙子。本来他们不知道有什么事儿。但在防止有什么事儿的时候，他们又知道了什么事儿。种子就是这样。//@清华孙立平:转发微博<br><br>RE: 光阴流转，时间永不止息。多少年，又是多少年… http://t.cn/Rqz8f8V<br><img src="http://ww1.sinaimg.cn/large/006rtxGIgw1f4ijgtseilj30rs0ku0wx.jpg"></p>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3982451384461211" target="freeweibo-mirror">SPAM 每年的今天都会发一条等着被删除的，纪念404事件的…</a>
 </h2>
 <p>SPAM 每年的今天都会发一条等着被删除的，纪念404事件的微博。然后看看老大哥还在不在。</p>
-<p>
-	<small> ============== 6小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3982449317194246" target="freeweibo-mirror">为什么我不能欣赏这一行为呢？因为二十七年的血痕已经淡了，历史…</a>
-</h2>
-<p>为什么我不能欣赏这一行为呢？因为二十七年的血痕已经淡了，历史走到现在，应该是和解拥抱的时刻，而不再是抱着过去的历史让今天的人为之负责的时刻。再者，假如燃烛者是没有私心私利的普通民众，假如悼念者是失去亲人的母亲们，我或许会极度尊敬，但很显然，在特殊利益诉求背景下的纪念，并非如此。</p>
 <p>
 	<small> ============== 6小时前</small>
 </p>
