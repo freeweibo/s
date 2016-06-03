@@ -119,7 +119,7 @@
 </h2>
 <p>SPAM //@夏日海湾:我从来不看地摊上的小报[哼]。当然，也没地方能买到。//@博闻联播:看报的方向对吗？<br><br>RE: 27年......<br><img src="http://ww4.sinaimg.cn/large/006qfdcPjw1f4hc4yhrxwj30q90hs76g.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3982189954277868" target="freeweibo-mirror">//@李大华V://@予象阿三:人家是党国天下//@水木双刀…</a>
 </h2>
