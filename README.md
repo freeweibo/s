@@ -23,7 +23,7 @@
 </h2>
 <p>SPAM 少抽点烟<br><br>RE: 今天凌晨。<br><img src="http://ww2.sinaimg.cn/large/62e0ba99gw1f4ikpcv49tj21kw0mbtm3.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3982461715090934" target="freeweibo-mirror">//@网易淡茶半杯: //@IP阳光快乐天使:转发微博</a>
 </h2>
@@ -65,13 +65,13 @@
 </h2>
 <p>为什么我不能欣赏这一行为呢？因为二十七年的血痕已经淡了，历史走到现在，应该是和解拥抱的时刻，而不再是抱着过去的历史让今天的人为之负责的时刻。再者，假如燃烛者是没有私心私利的普通民众，假如悼念者是失去亲人的母亲们，我或许会极度尊敬，但很显然，在特殊利益诉求背景下的纪念，并非如此。</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3982449220669844" target="freeweibo-mirror">//@冷锋观察:知道了//@陆亚明: 评论关闭了？知道了～[…</a>
 </h2>
 <p>//@冷锋观察:知道了//@陆亚明: 评论关闭了？知道了～[挤眼]</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3982448616677648" target="freeweibo-mirror">//@buquedingyfm://@刘伟伟是:转发微博</a>
 </h2>
