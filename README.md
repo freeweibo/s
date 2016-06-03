@@ -41,13 +41,13 @@
 </h2>
 <p>共产党的良心。</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3982403762092656" target="freeweibo-mirror">小札：五毛或者自干五毛实在太多了。他们自豪地以为王毅部长没有…</a>
 </h2>
 <p>小札：五毛或者自干五毛实在太多了。他们自豪地以为王毅部长没有礼貌地抢白外国记者是英勇的行为。我觉得不是，我觉得大国之间的交往应该是在礼节上谦虚周到，而利益上寸步不让。还有，当国外指责我们人权问题时，外长勇敢地回应说人权问题只有中国人自己才有资格说话，替我们出了气。我只能呵呵，我相...全文： http://m.weibo.cn/1780853173/3982403762092656<br><img src="http://ww4.sinaimg.cn/large/6a25a9b5jw1f4idr2884sj20j60y3jwt.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3982402160025324" target="freeweibo-mirror">SPAM 這故事[doge]</a>
 </h2>
@@ -109,6 +109,12 @@
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3982398024479508" target="freeweibo-mirror">我什麼也不想說。我就在今夜保持沈默。權力， 別狂傲。那一天終…</a>
+</h2>
+<p>我什麼也不想說。我就在今夜保持沈默。權力， 別狂傲。那一天終會到來。</p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3982397127036769" target="freeweibo-mirror">苏楠说:希望中国公民在自由中快乐的生活！[泪]被三亚警察吓的…</a>
 </h2>
 <p>苏楠说:希望中国公民在自由中快乐的生活！[泪]被三亚警察吓的说胡话了吧？[生病][生病]//@老太太王:最了解中国人权状况的是中国人自己<br><br>RE:                     海南岛三亚惊魂一夜        2016年5月27日晚上11点45分，我正在海南岛三亚大东海的珠江花园酒店619号房间内睡觉，几名陌生人突然闯     进我的房间。<br><img src="http://ww4.sinaimg.cn/large/8177cee6jw1f4i43pui4wj20hs327e81.jpg"></p>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3982391988814797" target="freeweibo-mirror">SPAM #女侦探angelababy# 今晚baby要狠开…</a>
 </h2>
 <p>SPAM #女侦探angelababy# 今晚baby要狠开心了，保安应该是谁都不怕的吧 没骨气</p>
-<p>
-	<small> ============== 3小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3982391976632878" target="freeweibo-mirror">SPAM #女侦探angelababy# 这一期看着还挺有意…</a>
-</h2>
-<p>SPAM #女侦探angelababy# 这一期看着还挺有意思的啊，是吧。 木耳豆腐一锅煮</p>
 <p>
 	<small> ============== 3小时前</small>
 </p>
