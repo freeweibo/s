@@ -53,7 +53,7 @@
 </h2>
 <p>SPAM 這故事[doge]<br><br>RE:                     海南岛三亚惊魂一夜        2016年5月27日晚上11点45分，我正在海南岛三亚大东海的珠江花园酒店619号房间内睡觉，几名陌生人突然闯     进我的房间。<br><img src="http://ww4.sinaimg.cn/large/8177cee6jw1f4i43pui4wj20hs327e81.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3982401480459713" target="freeweibo-mirror">SPAM 外长发飙一夜之间成全球网红。感觉这是继长者怒斥香港…</a>
 </h2>
