@@ -35,7 +35,7 @@
 </h2>
 <p>SPAM 我們都活在今天。</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3982679328603368" target="freeweibo-mirror">SPAM #双子会员观影生日趴# 做个会员可以得到这么多的实…</a>
 </h2>
@@ -113,7 +113,7 @@
 </h2>
 <p>//@B2B2C研究III: //@小南街胡同D: 转发微博<br><br>RE: 东森新闻  http://t.cn/R5qyc9x .</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3982647938238874" target="freeweibo-mirror">东森新闻  http://t.cn/R5qyc9x .</a>
 </h2>
