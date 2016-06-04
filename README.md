@@ -19,6 +19,18 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3982725168360946" target="freeweibo-mirror">借题发挥，看不出来？[哈哈]//@金剑玉箫: 你们都不看原博…</a>
+</h2>
+<p>借题发挥，看不出来？[哈哈]//@金剑玉箫: 你们都不看原博的日期？自作多情啊。 //@粕琳琅:忆往昔峥嵘岁月稠//@缥缈:→_→//@书生意气:今天是几号？今天怎么了？//@快乐老米: 选择今天发表这样的文章，是几个意思？</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3982719605642620" target="freeweibo-mirror">//@水兵李铭://@Pig_of_life://@挎禁调寸…</a>
+</h2>
+<p>//@水兵李铭://@Pig_of_life://@挎禁调寸乏: 转发微博<br><br>RE: 根據科技記者 Richard Doherty 的說法，為了不讓中國海關發現察覺新的數位攝影成像技術，當年 Sony 與包括 Canon 在內的幾間廠商工程師與人員做出決定，忍痛在 IEEE 展會期間放棄新技術發表帶來的媒體曝光，並且懇求媒體記者考慮中國人民的生命，先不要報導。<br><img src="http://ww2.sinaimg.cn/large/006fimM7jw1f4jb2w5sq1j30ku112q9g.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3982710533597502" target="freeweibo-mirror">//@步军都虞候:山东人厚道啊。是该出总理了。//@维兰尼特…</a>
 </h2>
 <p>//@步军都虞候:山东人厚道啊。是该出总理了。//@维兰尼特:无非过渡下，给小孙挪位。//@步军都虞候: @我是风啊1888_80g 上海滩新官上任喽……<br><br>RE: 【上海市委书记赵洪祝到任】 韩正调任中央书记处书记... ...<br><img src="http://ww4.sinaimg.cn/large/9ce4058bgw1f4j81ni6s0j20ad0ejjrz.jpg"></p>
@@ -107,7 +119,7 @@
 </h2>
 <p>SPAM 今天，我们都在假装遗忘。 http://t.cn/R2Wx665<br><img src="http://ww1.sinaimg.cn/large/9dae44b2jw1f4j8l33q69j20oy0x110b.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3982666569700490" target="freeweibo-mirror">【上海市委书记赵洪祝到任】 韩正调任中央书记处书记... .…</a>
 </h2>
@@ -124,18 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3982665399425610" target="freeweibo-mirror">SPAM 【中国排名第二的公供号】腾讯刚刚透露，目前中国排名…</a>
 </h2>
 <p>SPAM 【中国排名第二的公供号】腾讯刚刚透露，目前中国排名第一的军事公供号暂时还空缺，一百个并列第二，本博就在这一百之内。2014年4月19日第一篇开始到现在，玩了两整年，写了940篇各类文字。各种有趣评论和图片，欢迎铁粉们关注微_信_公_众_号：keluoliaofucn。亲还可中文搜索【科罗廖夫的军事客厅】<br><img src="http://ww1.sinaimg.cn/large/53ae0b70jw1f4j7wts5j4j214k0qodmq.jpg"></p>
-<p>
-	<small> ============== 5小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3982663083995721" target="freeweibo-mirror">SPAM 这些关键词本来也是敏感词：六月X日，赵X阳，党政分…</a>
-</h2>
-<p>SPAM 这些关键词本来也是敏感词：六月X日，赵X阳，党政分开……</p>
-<p>
-	<small> ============== 5小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3982658592049896" target="freeweibo-mirror">SPAM 从来不需要想起，永远也不会忘记。</a>
-</h2>
-<p>SPAM 从来不需要想起，永远也不会忘记。<br><img src="http://ww2.sinaimg.cn/large/62de0712jw1f4j72ev61aj20go0b0758.jpg"></p>
 <p>
 	<small> ============== 5小时前</small>
 </p>
