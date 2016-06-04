@@ -53,13 +53,13 @@
 </h2>
 <p>//@水兵李铭://@Pig_of_life://@挎禁调寸乏: 转发微博<br><br>RE: 根據科技記者 Richard Doherty 的說法，為了不讓中國海關發現察覺新的數位攝影成像技術，當年 Sony 與包括 Canon 在內的幾間廠商工程師與人員做出決定，忍痛在 IEEE 展會期間放棄新技術發表帶來的媒體曝光，並且懇求媒體記者考慮中國人民的生命，先不要報導。<br><img src="http://ww2.sinaimg.cn/large/006fimM7jw1f4jb2w5sq1j30ku112q9g.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3982719472391974" target="freeweibo-mirror">//@Pig_of_life://@挎禁调寸乏: 转发微博</a>
 </h2>
 <p>//@Pig_of_life://@挎禁调寸乏: 转发微博<br><br>RE: 根據科技記者 Richard Doherty 的說法，為了不讓中國海關發現察覺新的數位攝影成像技術，當年 Sony 與包括 Canon 在內的幾間廠商工程師與人員做出決定，忍痛在 IEEE 展會期間放棄新技術發表帶來的媒體曝光，並且懇求媒體記者考慮中國人民的生命，先不要報導。<br><img src="http://ww2.sinaimg.cn/large/006fimM7jw1f4jb2w5sq1j30ku112q9g.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3982715047352593" target="freeweibo-mirror">//@叶宝密: 回复@看戏不怕幕布大:是的，仅此而已，我只是…</a>
 </h2>
@@ -107,13 +107,13 @@
 </h2>
 <p>可惜不是蒸汽动力，不然政治上就完全正确啦！[偷笑][哈哈]神教满塞！<br><br>RE: 一哥们的作品，太邪恶了！<br><img src="http://ww2.sinaimg.cn/large/8bfcdacbjw1f4jakxvg6oj20g40c3ta7.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3982689457443522" target="freeweibo-mirror">今天新浪管理员可能是最忙碌的一天。不停地删帖子，删符号，无政…</a>
 </h2>
 <p>今天新浪管理员可能是最忙碌的一天。不停地删帖子，删符号，无政治内容的也删，叫宁可错删一万，不可漏过一贴。辛苦</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3982688836769612" target="freeweibo-mirror">一哥们的作品，太邪恶了！</a>
 </h2>
