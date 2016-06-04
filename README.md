@@ -23,7 +23,7 @@
 </h2>
 <p>//@IB林立人: //@周难的微博://@谢家书屋: //@anti-cctv弹道鸟蛋://@冰火--扯淡://@公民企鹅: //@达洲的青山://@席挥散席://@路飞公爵52:转发微博<br><br>RE: 一个不屈的灵魂，一个永恒的身影！<br><img src="http://ww2.sinaimg.cn/large/005Bz8yxjw1f4j400jnzkj30hs0cvq3n.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3982643441443463" target="freeweibo-mirror">SPAM 那年，我也在街头奔走，正当青春年华！</a>
 </h2>
@@ -89,7 +89,7 @@
 </h2>
 <p>//@猫咪呢朋友8: 坦克战旗[嘻嘻][嘻嘻][嘻嘻][嘻嘻][嘻嘻][嘻嘻]//@杨老马甲:任志强居然成了中国民主旗帜！[吃惊]<br><br>RE: 分享图片 http://t.cn/R2Wiefy<br><img src="http://ww1.sinaimg.cn/large/6fe02277jw1f4irve9kp4j20p018gth6.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3982629504505184" target="freeweibo-mirror">SPAM 今天，這個在中國非比尋常的日子，台灣總統小英特別在…</a>
 </h2>
@@ -121,21 +121,21 @@
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3982616476493106" target="freeweibo-mirror">字字玑珠……＿＿魅力烛光</a>
+</h2>
+<p>字字玑珠……＿＿魅力烛光<br><img src="http://ww2.sinaimg.cn/large/5eac8cf4jw1f4j2amtvkjj20f00qojv9.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3982615826292919" target="freeweibo-mirror">SPAM //@上海老哥://@三俗大哥:转发微博</a>
 </h2>
 <p>SPAM //@上海老哥://@三俗大哥:转发微博</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3982615264456898" target="freeweibo-mirror">当年注册QQ时，我把生日填了今天。因为有些事情也许“你”已经…</a>
 </h2>
 <p>当年注册QQ时，我把生日填了今天。因为有些事情也许“你”已经忘记，但我们依然记得。当年老网民一看ID年龄这么小就知道含义，现在已然大叔了，许多年轻人居然真以为我27了。早上听戏，武生唱到：十八年后又是一条好汉！那汉子唱的热切，我的眼睛却湿润了。当年有一群骄傲的少年，曾在这片大地上走过<br><img src="http://ww1.sinaimg.cn/large/62c109c2gw1f4j1ypmctqj20qo1bgn2g.jpg"></p>
-<p>
-	<small> ============== 3小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3982610709928149" target="freeweibo-mirror">SPAM //@在华府://@我觉得一切事实全部串起来了: …</a>
-</h2>
-<p>SPAM //@在华府://@我觉得一切事实全部串起来了: //@社恐分子deadpoor:。<br><br>RE: 小英今天的fb狀態<br><img src="http://ww1.sinaimg.cn/large/0068KiSKgw1f4j0ecjtfgj30hs0vkn3e.jpg"></p>
 <p>
 	<small> ============== 4小时前</small>
 </p>
