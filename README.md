@@ -23,7 +23,7 @@
 </h2>
 <p>//@上海老哥://@ZS-D-義-士-聚-://@I菜英文: //@大Chi猛蚁: //@用脚投票14://@鱼香4靓丝://@顽强小草A: //@蓝星虫曰:转发微博<br><br>RE: 某年某月某日……<br><img src="http://ww4.sinaimg.cn/large/5f9a137dgw1f4j71pnvhzj20de0jktb7.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3982671245768939" target="freeweibo-mirror">SPAM 今天，我们都在假装遗忘。 http://t.cn/…</a>
 </h2>
@@ -77,7 +77,7 @@
 </h2>
 <p>//@IB林立人: //@周难的微博://@谢家书屋: //@anti-cctv弹道鸟蛋://@冰火--扯淡://@公民企鹅: //@达洲的青山://@席挥散席://@路飞公爵52:转发微博<br><br>RE: 一个不屈的灵魂，一个永恒的身影！<br><img src="http://ww2.sinaimg.cn/large/005Bz8yxjw1f4j400jnzkj30hs0cvq3n.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3982643441443463" target="freeweibo-mirror">SPAM 那年，我也在街头奔走，正当青春年华！</a>
 </h2>
