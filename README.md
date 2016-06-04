@@ -25,21 +25,33 @@
 <p>
 	<small> ============== 1小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3982771246766010" target="freeweibo-mirror">SPAM 感谢香港人民！衷心的谢谢你们！</a>
+</h2>
+<p>SPAM 感谢香港人民！衷心的谢谢你们！</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3982769296201433" target="freeweibo-mirror">今晚的晚會在晚上約九時四十五分完結束，主辦方宣佈有12.5萬…</a>
 </h2>
 <p>今晚的晚會在晚上約九時四十五分完結束，主辦方宣佈有12.5萬人參加。  出席市民一如以往，在晚會結束後協助清除球場地上的燭蠟。<br><img src="http://ww2.sinaimg.cn/large/006qUgFgjw1f4jjsps3sxj30ku0ku424.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3982769178058628" target="freeweibo-mirror">SPAM 。</a>
 </h2>
 <p>SPAM 。</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3982767286979156" target="freeweibo-mirror">SPAM //@笨笨an:[闭嘴]//@俗家人释永乖:[笑c…</a>
 </h2>
 <p>SPAM //@笨笨an:[闭嘴]//@俗家人释永乖:[笑cry]<br><br>RE: 分享图片<br><img src="http://ww4.sinaimg.cn/large/516dd248jw1f4j0tpgwadj20go097abe.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3982764409687193" target="freeweibo-mirror">//@律师王学明:转发微博</a>
+</h2>
+<p>//@律师王学明:转发微博<br><br>RE: 这是什么情况？哪里？@周保松<br><img src="http://ww2.sinaimg.cn/large/49f80595gw1f4jj6yf7rqj20j60ee429.jpg"></p>
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
@@ -124,18 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3982719605642620" target="freeweibo-mirror">//@水兵李铭://@Pig_of_life://@挎禁调寸…</a>
 </h2>
 <p>//@水兵李铭://@Pig_of_life://@挎禁调寸乏: 转发微博<br><br>RE: 根據科技記者 Richard Doherty 的說法，為了不讓中國海關發現察覺新的數位攝影成像技術，當年 Sony 與包括 Canon 在內的幾間廠商工程師與人員做出決定，忍痛在 IEEE 展會期間放棄新技術發表帶來的媒體曝光，並且懇求媒體記者考慮中國人民的生命，先不要報導。<br><img src="http://ww2.sinaimg.cn/large/006fimM7jw1f4jb2w5sq1j30ku112q9g.jpg"></p>
-<p>
-	<small> ============== 5小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3982719472391974" target="freeweibo-mirror">//@Pig_of_life://@挎禁调寸乏: 转发微博</a>
-</h2>
-<p>//@Pig_of_life://@挎禁调寸乏: 转发微博<br><br>RE: 根據科技記者 Richard Doherty 的說法，為了不讓中國海關發現察覺新的數位攝影成像技術，當年 Sony 與包括 Canon 在內的幾間廠商工程師與人員做出決定，忍痛在 IEEE 展會期間放棄新技術發表帶來的媒體曝光，並且懇求媒體記者考慮中國人民的生命，先不要報導。<br><img src="http://ww2.sinaimg.cn/large/006fimM7jw1f4jb2w5sq1j30ku112q9g.jpg"></p>
-<p>
-	<small> ============== 5小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3982715047352593" target="freeweibo-mirror">//@叶宝密: 回复@看戏不怕幕布大:是的，仅此而已，我只是…</a>
-</h2>
-<p>//@叶宝密: 回复@看戏不怕幕布大:是的，仅此而已，我只是就昨天的事情而讨论，至于人格，我不了解，没有发言权//@看戏不怕幕布大:回复@叶宝密:你这话没毛病。[good]//@叶宝密:[赞][赞][赞]快，准，狠，非常之事，用非常手段，<br><br>RE: 律师同仁们：杨金柱在南宁执业的弟子吴晖律师已经接受吴良述的委托，代理吴良述律师进行控告！杨金柱律师提出倡议：从下周一开始，所有律师一律暂时停止承办南宁市青秀区法院的案件！一律不出庭辩护！一律不出庭代理！</p>
 <p>
 	<small> ============== 5小时前</small>
 </p>
