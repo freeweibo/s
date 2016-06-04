@@ -47,7 +47,7 @@
 </h2>
 <p>唉，台湾真是选了一个愚蠢的总统.... //@空耳同传君:转发微博</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3982781049174666" target="freeweibo-mirror">车震 ，马震 都看过，来看看什么是“海底震 ”http://…</a>
 </h2>
