@@ -65,7 +65,7 @@
 </h2>
 <p>SPAM 現在，香港。<br><img src="http://ww2.sinaimg.cn/large/006rkyYajw1f4jkwz5ekej30k00qogp0.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3982778096408312" target="freeweibo-mirror">SPAM #2000块睡颜王#继续来关注了去 [ali郁闷]…</a>
 </h2>
