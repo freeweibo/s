@@ -71,7 +71,7 @@
 </h2>
 <p>SPAM 纸包鸡，奥利奥，iphone 6，唉你们这些同学啊.....//@北美吐槽君: ysl不知道就算了，5.8也no ？ [哼]//@北美吐槽君:湾仔码头也不鸡到的同学，快加Kissmemouth周末认真补补！</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3982482712430872" target="freeweibo-mirror">SPAM 首都戒烟！//@胡丽娘://@猪哥的围脖: //@…</a>
 </h2>
@@ -101,7 +101,7 @@
 </h2>
 <p>[话筒] //@buquedingyfm://@黄奎ART://@扛啤酒的蚂蚁: //@之乎者也K:转发微博</p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3982463850137375" target="freeweibo-mirror">SPAM 少抽点烟</a>
 </h2>
