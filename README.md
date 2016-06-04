@@ -61,6 +61,12 @@
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3982606851214878" target="freeweibo-mirror">日本的强盗逻辑？</a>
+</h2>
+<p>日本的强盗逻辑？<br><img src="http://ww4.sinaimg.cn/large/418feff3jw1f4j16celnjj20ak0fzaca.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3982604724388269" target="freeweibo-mirror">SPAM //@壹本正经2010: //@杨玉圣:第一次读到…</a>
 </h2>
 <p>SPAM //@壹本正经2010: //@杨玉圣:第一次读到阎步克教授的诗作[赞]//@深夜游离的孤魂野鬼: 未曾忘却的纪念 //@罗新PKU:长街鬼咒千里草， 梦里魂伤九畹兰。</p>
@@ -82,6 +88,12 @@
 	<a href="https://freeweibo.com/weibo/3982602895787734" target="freeweibo-mirror">SPAM [鲜花] //@曲阳竹子:过敏日，对啥名字都过敏，…</a>
 </h2>
 <p>SPAM [鲜花] //@曲阳竹子:过敏日，对啥名字都过敏，起个外号大家心领神会就是了[嘘] //@杜博杜博:老菜头[哈哈]<br><br>RE: 老菜头发言<br><img src="http://ww2.sinaimg.cn/large/74d93bb5jw1f4izh6frs2j20ri3d44k6.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3982602803420542" target="freeweibo-mirror">彼年今日此门中，人面桃花相映红。人面不知何处去，桃花依旧笑春…</a>
+</h2>
+<p>彼年今日此门中，人面桃花相映红。人面不知何处去，桃花依旧笑春风。李志的《广场》，感谢。 http://t.cn/R5qAupU</p>
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
@@ -124,18 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3982596239298650" target="freeweibo-mirror">这么多年了！</a>
 </h2>
 <p>这么多年了！<br><img src="http://ww1.sinaimg.cn/large/51c21d10gw1f4izyvaqdwj20no0hst9u.jpg"></p>
-<p>
-	<small> ============== 4小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3982594988943923" target="freeweibo-mirror">【老照片】198⁹年春，平静的北京。</a>
-</h2>
-<p>【老照片】198⁹年春，平静的北京。<br><img src="http://ww4.sinaimg.cn/large/834dc11cgw1f4iztnd1nzj20k00dago6.jpg"></p>
-<p>
-	<small> ============== 4小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3982594721303830" target="freeweibo-mirror">SPAM 想看你就看看吧……</a>
-</h2>
-<p>SPAM 想看你就看看吧……<br><img src="http://ww2.sinaimg.cn/large/43712f7djw1f4izsoud3sj20u02awx6p.jpg"></p>
 <p>
 	<small> ============== 4小时前</small>
 </p>
