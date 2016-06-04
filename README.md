@@ -79,6 +79,12 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3982760252936966" target="freeweibo-mirror">SPAM 岛国美女动作大片VR直播，要小心乐视，小心乐视，小…</a>
+</h2>
+<p>SPAM 岛国美女动作大片VR直播，要小心乐视，小心乐视，小心乐视……</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3982756708969097" target="freeweibo-mirror">SPAM //@程中柳://@谢家书屋: 感谢香港。</a>
 </h2>
 <p>SPAM //@程中柳://@谢家书屋: 感谢香港。<br><br>RE: 此時此刻。<br><img src="http://ww1.sinaimg.cn/large/6830a7c5jw1f4ji7m1aabj20qo0k0aff.jpg"></p>
@@ -101,19 +107,19 @@
 </h2>
 <p>SPAM //@谢家书屋: 感谢香港。<br><br>RE: 此時此刻。<br><img src="http://ww1.sinaimg.cn/large/6830a7c5jw1f4ji7m1aabj20qo0k0aff.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3982755085456845" target="freeweibo-mirror">此時此刻。</a>
 </h2>
 <p>此時此刻。<br><img src="http://ww1.sinaimg.cn/large/6830a7c5jw1f4ji7m1aabj20qo0k0aff.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3982754754647457" target="freeweibo-mirror">台北和香港在坚守</a>
 </h2>
 <p>台北和香港在坚守<br><img src="http://ww3.sinaimg.cn/large/8105d7a9gw1f4ji68waylj20qo1be7f4.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3982744071294651" target="freeweibo-mirror">代所有未能到現場的朋友點的。</a>
 </h2>
@@ -125,17 +131,11 @@
 </h2>
 <p>态度在自己。//@天堂1号_42918: 法理上没问题，但权在官手上//@法律人冯岩:最低限度构成违反治安管理，确保送法警进拘留所再说 //@肖国宁99319: //@天堂1号_42918:[good] // 最迟在下周一就面交《控告书》吧！//@六指掌柜: // [围观] //@人在---旅途:// 支持控告 法警<br><br>RE: 律师同仁们：杨金柱在南宁执业的弟子吴晖律师已经接受吴良述的委托，代理吴良述律师进行控告！杨金柱律师提出倡议：从下周一开始，所有律师一律暂时停止承办南宁市青秀区法院的案件！一律不出庭辩护！一律不出庭代理！</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3982725168360946" target="freeweibo-mirror">借题发挥，看不出来？[哈哈]//@金剑玉箫: 你们都不看原博…</a>
 </h2>
 <p>借题发挥，看不出来？[哈哈]//@金剑玉箫: 你们都不看原博的日期？自作多情啊。 //@粕琳琅:忆往昔峥嵘岁月稠//@缥缈:→_→//@书生意气:今天是几号？今天怎么了？//@快乐老米: 选择今天发表这样的文章，是几个意思？</p>
-<p>
-	<small> ============== 4小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3982719605642620" target="freeweibo-mirror">//@水兵李铭://@Pig_of_life://@挎禁调寸…</a>
-</h2>
-<p>//@水兵李铭://@Pig_of_life://@挎禁调寸乏: 转发微博<br><br>RE: 根據科技記者 Richard Doherty 的說法，為了不讓中國海關發現察覺新的數位攝影成像技術，當年 Sony 與包括 Canon 在內的幾間廠商工程師與人員做出決定，忍痛在 IEEE 展會期間放棄新技術發表帶來的媒體曝光，並且懇求媒體記者考慮中國人民的生命，先不要報導。<br><img src="http://ww2.sinaimg.cn/large/006fimM7jw1f4jb2w5sq1j30ku112q9g.jpg"></p>
 <p>
 	<small> ============== 5小时前</small>
 </p>
