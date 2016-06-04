@@ -35,7 +35,7 @@
 </h2>
 <p>今天新浪管理员可能是最忙碌的一天。不停地删帖子，删符号，无政治内容的也删，叫宁可错删一万，不可漏过一贴。辛苦</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3982688060544565" target="freeweibo-mirror">昨晚大号@LeMcDull 因为Tank Text Art的…</a>
 </h2>
