@@ -119,13 +119,13 @@
 </h2>
 <p>//@水兵李铭://@Pig_of_life://@挎禁调寸乏: 转发微博<br><br>RE: 根據科技記者 Richard Doherty 的說法，為了不讓中國海關發現察覺新的數位攝影成像技術，當年 Sony 與包括 Canon 在內的幾間廠商工程師與人員做出決定，忍痛在 IEEE 展會期間放棄新技術發表帶來的媒體曝光，並且懇求媒體記者考慮中國人民的生命，先不要報導。<br><img src="http://ww2.sinaimg.cn/large/006fimM7jw1f4jb2w5sq1j30ku112q9g.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3982719472391974" target="freeweibo-mirror">//@Pig_of_life://@挎禁调寸乏: 转发微博</a>
 </h2>
 <p>//@Pig_of_life://@挎禁调寸乏: 转发微博<br><br>RE: 根據科技記者 Richard Doherty 的說法，為了不讓中國海關發現察覺新的數位攝影成像技術，當年 Sony 與包括 Canon 在內的幾間廠商工程師與人員做出決定，忍痛在 IEEE 展會期間放棄新技術發表帶來的媒體曝光，並且懇求媒體記者考慮中國人民的生命，先不要報導。<br><img src="http://ww2.sinaimg.cn/large/006fimM7jw1f4jb2w5sq1j30ku112q9g.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3982715047352593" target="freeweibo-mirror">//@叶宝密: 回复@看戏不怕幕布大:是的，仅此而已，我只是…</a>
 </h2>
