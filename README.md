@@ -35,19 +35,19 @@
 </h2>
 <p>SPAM //@程中柳://@谢家书屋: 感谢香港。<br><br>RE: 此時此刻。<br><img src="http://ww1.sinaimg.cn/large/6830a7c5jw1f4ji7m1aabj20qo0k0aff.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3982756494909240" target="freeweibo-mirror">SPAM 同在</a>
 </h2>
 <p>SPAM 同在<br><br>RE: 此時此刻。<br><img src="http://ww1.sinaimg.cn/large/6830a7c5jw1f4ji7m1aabj20qo0k0aff.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3982756256094159" target="freeweibo-mirror">SPAM //@浊酒秋月://@喷嚏网铂程://@谢家书屋:…</a>
 </h2>
 <p>SPAM //@浊酒秋月://@喷嚏网铂程://@谢家书屋: 感谢香港。<br><br>RE: 此時此刻。<br><img src="http://ww1.sinaimg.cn/large/6830a7c5jw1f4ji7m1aabj20qo0k0aff.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3982755572803342" target="freeweibo-mirror">SPAM //@谢家书屋: 感谢香港。</a>
 </h2>
@@ -58,6 +58,12 @@
 	<a href="https://freeweibo.com/weibo/3982755085456845" target="freeweibo-mirror">此時此刻。</a>
 </h2>
 <p>此時此刻。<br><img src="http://ww1.sinaimg.cn/large/6830a7c5jw1f4ji7m1aabj20qo0k0aff.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3982754754647457" target="freeweibo-mirror">台北和香港在坚守</a>
+</h2>
+<p>台北和香港在坚守<br><img src="http://ww3.sinaimg.cn/large/8105d7a9gw1f4ji68waylj20qo1be7f4.jpg"></p>
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
@@ -101,7 +107,7 @@
 </h2>
 <p>//@步军都虞候:山东人厚道啊。是该出总理了。//@维兰尼特:无非过渡下，给小孙挪位。//@步军都虞候: @我是风啊1888_80g 上海滩新官上任喽……<br><br>RE: 【上海市委书记赵洪祝到任】 韩正调任中央书记处书记... ...<br><img src="http://ww4.sinaimg.cn/large/9ce4058bgw1f4j81ni6s0j20ad0ejjrz.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3982708847998235" target="freeweibo-mirror">SPAM #开扒奇葩粽子#简单的芝麻花生半肥瘦的猪肉味的粽子…</a>
 </h2>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3982690493428946" target="freeweibo-mirror">SPAM ……你们就没想过是同一顶吗？当然剧组一人一顶发的更…</a>
 </h2>
 <p>SPAM ……你们就没想过是同一顶吗？当然剧组一人一顶发的更可能。</p>
-<p>
-	<small> ============== 6小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3982689863893104" target="freeweibo-mirror">可惜不是蒸汽动力，不然政治上就完全正确啦！[偷笑][哈哈]神…</a>
-</h2>
-<p>可惜不是蒸汽动力，不然政治上就完全正确啦！[偷笑][哈哈]神教满塞！<br><br>RE: 一哥们的作品，太邪恶了！<br><img src="http://ww2.sinaimg.cn/large/8bfcdacbjw1f4jakxvg6oj20g40c3ta7.jpg"></p>
 <p>
 	<small> ============== 6小时前</small>
 </p>
