@@ -61,6 +61,12 @@
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3982688836769612" target="freeweibo-mirror">一哥们的作品，太邪恶了！</a>
+</h2>
+<p>一哥们的作品，太邪恶了！<br><img src="http://ww2.sinaimg.cn/large/8bfcdacbjw1f4jakxvg6oj20g40c3ta7.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3982688060544565" target="freeweibo-mirror">昨晚大号@LeMcDull 因为Tank Text Art的…</a>
 </h2>
 <p>昨晚大号@LeMcDull 因为Tank Text Art的艺术创作，在凌晨之交被小秘书的五对负重轮徐徐碾过，望各位周知。<br><img src="http://ww4.sinaimg.cn/large/006nUOcKjw1f4jaimat2pj30ku095gm5.jpg"></p>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3982658592049896" target="freeweibo-mirror">SPAM 从来不需要想起，永远也不会忘记。</a>
 </h2>
 <p>SPAM 从来不需要想起，永远也不会忘记。<br><img src="http://ww2.sinaimg.cn/large/62de0712jw1f4j72ev61aj20go0b0758.jpg"></p>
-<p>
-	<small> ============== 5小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3982658550048778" target="freeweibo-mirror">新华网发老赵的文章。http://t.cn/R5q4rc4</a>
-</h2>
-<p>新华网发老赵的文章。http://t.cn/R5q4rc4<br><img src="http://ww2.sinaimg.cn/large/539d77e6jw1f4j748nqn0j20y318gwpx.jpg"></p>
 <p>
 	<small> ============== 5小时前</small>
 </p>
