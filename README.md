@@ -95,7 +95,7 @@
 </h2>
 <p>SPAM 今天，這個在中國非比尋常的日子，台灣總統小英特別在臉書發表她的看法！<br><img src="http://ww3.sinaimg.cn/large/006441uFjw1f4j3pt602bj30ku112qbo.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3982627511698988" target="freeweibo-mirror">今天不吃日料了！愤怒！ //@远古的刀://@独秀秋白:打倒…</a>
 </h2>
