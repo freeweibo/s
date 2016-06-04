@@ -31,6 +31,12 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3982815949011566" target="freeweibo-mirror">SPAM 今夜，十二万香港同胞无眠。</a>
+</h2>
+<p>SPAM 今夜，十二万香港同胞无眠。<br><img src="http://ww2.sinaimg.cn/large/6a83dd8egw1f4jp7c9mg7j20zk0k0gpe.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3982808127215346" target="freeweibo-mirror">SPAM 人越来越少 //@阿忆:香港始终没有遗忘</a>
 </h2>
 <p>SPAM 人越来越少 //@阿忆:香港始终没有遗忘<br><br>RE: 请让我为你点上一盏烛光，就这样把你留在我心上。我越思越想越难忘，路越走越远越漫长。<br><img src="http://ww2.sinaimg.cn/large/65e6b0dejw1f4jn9tjuf2j20zk0lztez.jpg"></p>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3982777487575989" target="freeweibo-mirror">//@静娅_:转发微博</a>
 </h2>
 <p>//@静娅_:转发微博<br><br>RE: 歴史是混不過去的。——胡耀邦<br><img src="http://ww4.sinaimg.cn/large/4c15e0bcjw1f4jke5btkdj20br0gogn9.jpg"></p>
-<p>
-	<small> ============== 4小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3982777269819187" target="freeweibo-mirror">今天，台湾领导人蔡英文在facebook专页发文：如果对岸能…</a>
-</h2>
-<p>今天，台湾领导人蔡英文在facebook专页发文：如果对岸能够给予中国大陆人民更多的权利，世人将会给予中国大陆更多的尊敬。<br><img src="http://ww1.sinaimg.cn/large/c38ab5aagw1f4jkqdnv5vj20c811adly.jpg"></p>
 <p>
 	<small> ============== 4小时前</small>
 </p>
