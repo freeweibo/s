@@ -131,13 +131,13 @@
 </h2>
 <p>SPAM #我想和你唱#不知道下一期《我想和你唱》会是谁来嘉宾，好期待没办法，湖南卫视的综艺节目就是牛，《我想和你唱》，就是喜欢没办法<br><br>RE: #我想和你唱#胆大妄为组上线！鉴客团怪招百出，就在今晚湖南卫视！<br><img src="http://ww4.sinaimg.cn/large/822b8c71gw1f4jhavprcij2050050dgb.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3982772228518081" target="freeweibo-mirror">不说不等于心中没有。你可以封上我的嘴，但是你不能扼杀我的心灵…</a>
 </h2>
 <p>不说不等于心中没有。你可以封上我的嘴，但是你不能扼杀我的心灵！</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p>
 <table>
     <tr>
