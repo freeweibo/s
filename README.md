@@ -65,7 +65,7 @@
 </h2>
 <p>不说不等于心中没有。你可以封上我的嘴，但是你不能扼杀我的心灵！</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3982771443672865" target="freeweibo-mirror">SPAM [怒][话筒]//@兵70: //@今夜北方雨夹雪…</a>
 </h2>
