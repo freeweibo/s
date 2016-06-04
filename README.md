@@ -23,7 +23,7 @@
 </h2>
 <p>SPAM //@壹本正经2010: //@杨玉圣:第一次读到阎步克教授的诗作[赞]//@深夜游离的孤魂野鬼: 未曾忘却的纪念 //@罗新PKU:长街鬼咒千里草， 梦里魂伤九畹兰。</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3982603940102376" target="freeweibo-mirror">SPAM [衰][衰][衰][衰][衰][衰]好像蛮适用的喔</a>
 </h2>
@@ -71,7 +71,7 @@
 </h2>
 <p>SPAM //@小家碧玉的玉://@郭顺guoshun://@水木双刀_://@Billgong老窝: //@老三22792://@shishi1600://@狮狮上海: 年年都有6月4！繞不过去，迴避不了。<br><br>RE: “6.4”，“6.4”，年年都有6月4日，哪年没有6月4日？<br><img src="http://ww1.sinaimg.cn/large/642f46d5gw1f4gwkdd6pxj20dc0hsjs6.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3982579667027964" target="freeweibo-mirror">SPAM //@罗新PKU:长街鬼咒千里草， 梦里魂伤九畹兰…</a>
 </h2>
@@ -83,7 +83,7 @@
 </h2>
 <p>//@罗长亮575://@东台波涛装饰://@题字本:转发微博<br><br>RE: 我知道～ http://t.cn/8Fa4pCM<br><img src="http://ww2.sinaimg.cn/large/997c0867gw1f4idrj8x6gj20ku0ku75x.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3982567299061332" target="freeweibo-mirror">带血的历史！</a>
 </h2>
