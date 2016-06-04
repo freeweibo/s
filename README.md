@@ -77,7 +77,7 @@
 </h2>
 <p>//@B2B2C研究III: //@小南街胡同D: 转发微博<br><br>RE: 东森新闻  http://t.cn/R5qyc9x .</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3982647938238874" target="freeweibo-mirror">东森新闻  http://t.cn/R5qyc9x .</a>
 </h2>
@@ -125,7 +125,7 @@
 </h2>
 <p>//@IB林立人://@P民新传媒://@TopcrestWatchin:转发微博<br><br>RE: 分享图片<br><img src="http://ww4.sinaimg.cn/large/516dd248jw1f4j0tpgwadj20go097abe.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3982636072178851" target="freeweibo-mirror">照片中的历史</a>
 </h2>
