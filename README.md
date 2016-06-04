@@ -19,6 +19,18 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3982761842227390" target="freeweibo-mirror">//@7的代言: //@裟僧情怀: [作揖]//@恨天啊:/…</a>
+</h2>
+<p>//@7的代言: //@裟僧情怀: [作揖]//@恨天啊://@一品泥人: //@多多爸比: //@广廿巾木辛小亘://@迦勒-Techfever://@公爵之王:转发微博<br><br>RE: 台北和香港在坚守<br><img src="http://ww3.sinaimg.cn/large/8105d7a9gw1f4ji68waylj20qo1be7f4.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3982760551116177" target="freeweibo-mirror">//@anti-cctv弹道鸟蛋://@一品泥人://@多多…</a>
+</h2>
+<p>//@anti-cctv弹道鸟蛋://@一品泥人://@多多爸比: //@广廿巾木辛小亘://@迦勒-Techfever://@公爵之王:转发微博<br><br>RE: 台北和香港在坚守<br><img src="http://ww3.sinaimg.cn/large/8105d7a9gw1f4ji68waylj20qo1be7f4.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3982756256094159" target="freeweibo-mirror">SPAM //@浊酒秋月://@喷嚏网铂程://@谢家书屋:…</a>
 </h2>
 <p>SPAM //@浊酒秋月://@喷嚏网铂程://@谢家书屋: 感谢香港。<br><br>RE: 此時此刻。<br><img src="http://ww1.sinaimg.cn/large/6830a7c5jw1f4ji7m1aabj20qo0k0aff.jpg"></p>
@@ -83,7 +95,7 @@
 </h2>
 <p>SPAM #开扒奇葩粽子#简单的芝麻花生半肥瘦的猪肉味的粽子最爱 辛苦了</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3982705588472067" target="freeweibo-mirror">SPAM #开扒奇葩粽子#闽南的烧肉粽子，那叫一个香啊、 哥…</a>
 </h2>
@@ -95,7 +107,7 @@
 </h2>
 <p>根據科技記者 Richard Doherty 的說法，為了不讓中國海關發現察覺新的數位攝影成像技術，當年 Sony 與包括 Canon 在內的幾間廠商工程師與人員做出決定，忍痛在 IEEE 展會期間放棄新技術發表帶來的媒體曝光，並且懇求媒體記者考慮中國人民的生命，先不要報導。<br><img src="http://ww2.sinaimg.cn/large/006fimM7jw1f4jb2w5sq1j30ku112q9g.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3982690854516287" target="freeweibo-mirror">SPAM 周渝民是麼</a>
 </h2>
@@ -124,18 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3982688836769612" target="freeweibo-mirror">一哥们的作品，太邪恶了！</a>
 </h2>
 <p>一哥们的作品，太邪恶了！<br><img src="http://ww2.sinaimg.cn/large/8bfcdacbjw1f4jakxvg6oj20g40c3ta7.jpg"></p>
-<p>
-	<small> ============== 6小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3982688060544565" target="freeweibo-mirror">昨晚大号@LeMcDull 因为Tank Text Art的…</a>
-</h2>
-<p>昨晚大号@LeMcDull 因为Tank Text Art的艺术创作，在凌晨之交被小秘书的五对负重轮徐徐碾过，望各位周知。<br><img src="http://ww4.sinaimg.cn/large/006nUOcKjw1f4jaimat2pj30ku095gm5.jpg"></p>
-<p>
-	<small> ============== 6小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3982682138745839" target="freeweibo-mirror">SPAM 我們都活在今天。</a>
-</h2>
-<p>SPAM 我們都活在今天。</p>
 <p>
 	<small> ============== 6小时前</small>
 </p>
