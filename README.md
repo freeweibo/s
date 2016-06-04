@@ -113,19 +113,19 @@
 </h2>
 <p>SPAM #我想和你唱#《我想和你唱》，明星挑选环节，看着好激烈啊[微公益爱心]鲜<br><br>RE: #我想和你唱#胆大妄为组上线！鉴客团怪招百出，就在今晚湖南卫视！<br><img src="http://ww4.sinaimg.cn/large/822b8c71gw1f4jhavprcij2050050dgb.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3982774056280714" target="freeweibo-mirror">歴史是混不過去的。——胡耀邦</a>
 </h2>
 <p>歴史是混不過去的。——胡耀邦<br><img src="http://ww4.sinaimg.cn/large/4c15e0bcjw1f4jke5btkdj20br0gogn9.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3982773411236298" target="freeweibo-mirror">SPAM 每年这个时候都要向大家解释一遍，为什么评论的表情会…</a>
 </h2>
 <p>SPAM 每年这个时候都要向大家解释一遍，为什么评论的表情会变成文字……<br><img src="http://ww3.sinaimg.cn/large/5de32a03jw1f4jkaxaui9j20qo1bfgpw.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3982772534104778" target="freeweibo-mirror">SPAM #我想和你唱#不知道下一期《我想和你唱》会是谁来嘉…</a>
 </h2>
