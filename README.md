@@ -37,9 +37,21 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3982774056280714" target="freeweibo-mirror">歴史是混不過去的。——胡耀邦</a>
+</h2>
+<p>歴史是混不過去的。——胡耀邦<br><img src="http://ww4.sinaimg.cn/large/4c15e0bcjw1f4jke5btkdj20br0gogn9.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3982773411236298" target="freeweibo-mirror">SPAM 每年这个时候都要向大家解释一遍，为什么评论的表情会…</a>
 </h2>
 <p>SPAM 每年这个时候都要向大家解释一遍，为什么评论的表情会变成文字……<br><img src="http://ww3.sinaimg.cn/large/5de32a03jw1f4jkaxaui9j20qo1bfgpw.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3982772228518081" target="freeweibo-mirror">不说不等于心中没有。你可以封上我的嘴，但是你不能扼杀我的心灵…</a>
+</h2>
+<p>不说不等于心中没有。你可以封上我的嘴，但是你不能扼杀我的心灵！</p>
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
@@ -71,7 +83,7 @@
 </h2>
 <p>SPAM //@笨笨an:[闭嘴]//@俗家人释永乖:[笑cry]<br><br>RE: 分享图片<br><img src="http://ww4.sinaimg.cn/large/516dd248jw1f4j0tpgwadj20go097abe.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3982764409687193" target="freeweibo-mirror">//@律师王学明:转发微博</a>
 </h2>
@@ -124,18 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3982756708969097" target="freeweibo-mirror">SPAM //@程中柳://@谢家书屋: 感谢香港。</a>
 </h2>
 <p>SPAM //@程中柳://@谢家书屋: 感谢香港。<br><br>RE: 此時此刻。<br><img src="http://ww1.sinaimg.cn/large/6830a7c5jw1f4ji7m1aabj20qo0k0aff.jpg"></p>
-<p>
-	<small> ============== 3小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3982756494909240" target="freeweibo-mirror">SPAM 同在</a>
-</h2>
-<p>SPAM 同在<br><br>RE: 此時此刻。<br><img src="http://ww1.sinaimg.cn/large/6830a7c5jw1f4ji7m1aabj20qo0k0aff.jpg"></p>
-<p>
-	<small> ============== 3小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3982756256094159" target="freeweibo-mirror">SPAM //@浊酒秋月://@喷嚏网铂程://@谢家书屋:…</a>
-</h2>
-<p>SPAM //@浊酒秋月://@喷嚏网铂程://@谢家书屋: 感谢香港。<br><br>RE: 此時此刻。<br><img src="http://ww1.sinaimg.cn/large/6830a7c5jw1f4ji7m1aabj20qo0k0aff.jpg"></p>
 <p>
 	<small> ============== 3小时前</small>
 </p>
