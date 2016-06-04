@@ -23,7 +23,7 @@
 </h2>
 <p>今天不吃日料了！愤怒！ //@远古的刀://@独秀秋白:打倒日本帝国军国主义！ //@北外乔木:每年今天，就要把人日的这篇文章翻出来，把日本揭露一下。//@PeterSean在路上3:转发微博<br><br>RE: 日本的强盗逻辑？<br><img src="http://ww4.sinaimg.cn/large/418feff3jw1f4j16celnjj20ak0fzaca.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3982623678252581" target="freeweibo-mirror">//@荒岛恶郎十五代://@曹先生2012H://@超炫77…</a>
 </h2>
@@ -113,13 +113,13 @@
 </h2>
 <p>【掩耳盗铃】有些事情，有些日子，有些人物，虽然你不准人们去说，不许人们去评论，你可以掩耳盗铃。但是，他已经是历史的事实，也是人们心里面永远不能抹去的伤痛。而这个伤痛的烙印，又将永远深深地烙在了人们的心里。 http://t.cn/R7dlffG</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3982597258177199" target="freeweibo-mirror">SPAM 没挣钱就不要回来了[哈哈]</a>
 </h2>
 <p>SPAM 没挣钱就不要回来了[哈哈]<br><br>RE: 这么多年了！<br><img src="http://ww1.sinaimg.cn/large/51c21d10gw1f4izyvaqdwj20no0hst9u.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3982596239298650" target="freeweibo-mirror">这么多年了！</a>
 </h2>
