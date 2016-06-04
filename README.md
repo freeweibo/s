@@ -83,7 +83,7 @@
 </h2>
 <p>SPAM 不用出国，也能拍出宛如身在布拉格的婚 纱大 片~！你们猜这是哪里？[挤眼]</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3982792984951591" target="freeweibo-mirror">特别感动。</a>
 </h2>
@@ -119,7 +119,7 @@
 </h2>
 <p>车震 ，马震 都看过，来看看什么是“海底震 ”http://t.cn/RUjoJCu</p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3982778665908024" target="freeweibo-mirror">SPAM 現在，香港。</a>
 </h2>
