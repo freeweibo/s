@@ -107,7 +107,7 @@
 </h2>
 <p>//@王开岭wkl:转发微博<br><br>RE: 【老照片】198⁹年春，平静的北京。<br><img src="http://ww4.sinaimg.cn/large/834dc11cgw1f4iztnd1nzj20k00dago6.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3982598004982863" target="freeweibo-mirror">【掩耳盗铃】有些事情，有些日子，有些人物，虽然你不准人们去说…</a>
 </h2>
