@@ -29,7 +29,7 @@
 </h2>
 <p>SPAM 那年，我也在街头奔走，正当青春年华！<br><img src="http://ww1.sinaimg.cn/large/655f81d5gw1f4j5dxunfpj20c8084jrs.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3982640250346174" target="freeweibo-mirror">//@鲁壁藏书: What were they doing …</a>
 </h2>
@@ -101,7 +101,7 @@
 </h2>
 <p>今天不吃日料了！愤怒！ //@远古的刀://@独秀秋白:打倒日本帝国军国主义！ //@北外乔木:每年今天，就要把人日的这篇文章翻出来，把日本揭露一下。//@PeterSean在路上3:转发微博<br><br>RE: 日本的强盗逻辑？<br><img src="http://ww4.sinaimg.cn/large/418feff3jw1f4j16celnjj20ak0fzaca.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3982623678252581" target="freeweibo-mirror">//@荒岛恶郎十五代://@曹先生2012H://@超炫77…</a>
 </h2>
