@@ -23,13 +23,13 @@
 </h2>
 <p>SPAM [怒][话筒]//@兵70: //@今夜北方雨夹雪:[汗]//@司马平邦: 。</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3982771246766010" target="freeweibo-mirror">SPAM 感谢香港人民！衷心的谢谢你们！</a>
 </h2>
 <p>SPAM 感谢香港人民！衷心的谢谢你们！</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3982769296201433" target="freeweibo-mirror">今晚的晚會在晚上約九時四十五分完結束，主辦方宣佈有12.5萬…</a>
 </h2>
@@ -89,19 +89,19 @@
 </h2>
 <p>SPAM //@程中柳://@谢家书屋: 感谢香港。<br><br>RE: 此時此刻。<br><img src="http://ww1.sinaimg.cn/large/6830a7c5jw1f4ji7m1aabj20qo0k0aff.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3982756494909240" target="freeweibo-mirror">SPAM 同在</a>
 </h2>
 <p>SPAM 同在<br><br>RE: 此時此刻。<br><img src="http://ww1.sinaimg.cn/large/6830a7c5jw1f4ji7m1aabj20qo0k0aff.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3982756256094159" target="freeweibo-mirror">SPAM //@浊酒秋月://@喷嚏网铂程://@谢家书屋:…</a>
 </h2>
 <p>SPAM //@浊酒秋月://@喷嚏网铂程://@谢家书屋: 感谢香港。<br><br>RE: 此時此刻。<br><img src="http://ww1.sinaimg.cn/large/6830a7c5jw1f4ji7m1aabj20qo0k0aff.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3982755572803342" target="freeweibo-mirror">SPAM //@谢家书屋: 感谢香港。</a>
 </h2>
