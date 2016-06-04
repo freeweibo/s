@@ -131,7 +131,7 @@
 </h2>
 <p>代所有未能到現場的朋友點的。<br><img src="http://ww4.sinaimg.cn/large/6830a7c5jw1f4jgxgunw9j20ku0rsmxg.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3982725222710828" target="freeweibo-mirror">态度在自己。//@天堂1号_42918: 法理上没问题，但权…</a>
 </h2>
