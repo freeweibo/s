@@ -19,6 +19,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3982785675145554" target="freeweibo-mirror">唉，台湾真是选了一个愚蠢的总统.... //@空耳同传君:转…</a>
+</h2>
+<p>唉，台湾真是选了一个愚蠢的总统.... //@空耳同传君:转发微博</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3982781049174666" target="freeweibo-mirror">车震 ，马震 都看过，来看看什么是“海底震 ”http://…</a>
 </h2>
 <p>车震 ，马震 都看过，来看看什么是“海底震 ”http://t.cn/RUjoJCu</p>
@@ -43,11 +49,17 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3982777269819187" target="freeweibo-mirror">今天，台湾领导人蔡英文在facebook专页发文：如果对岸能…</a>
+</h2>
+<p>今天，台湾领导人蔡英文在facebook专页发文：如果对岸能够给予中国大陆人民更多的权利，世人将会给予中国大陆更多的尊敬。<br><img src="http://ww1.sinaimg.cn/large/c38ab5aagw1f4jkqdnv5vj20c811adly.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3982776543619890" target="freeweibo-mirror">//@生命过客转世: //@公民林静在维权4: //@自-由…</a>
 </h2>
 <p>//@生命过客转世: //@公民林静在维权4: //@自-由蓝-莲花再开://@Frozen_IV_Sunshine://@blue蓝蓝青天://@M1-4-14-16: //@叉烧烧烧酥://@AynseveN://@Aki_Kitajima:转发微博<br><br>RE: 分享图片<br><img src="http://ww1.sinaimg.cn/large/6daf3802gw1f4j2umanvzj20ku112ajx.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3982774748376501" target="freeweibo-mirror">SPAM #我想和你唱#我想和你唱什么时候在湖南卫视开播 外…</a>
 </h2>
@@ -124,18 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3982764409687193" target="freeweibo-mirror">//@律师王学明:转发微博</a>
 </h2>
 <p>//@律师王学明:转发微博<br><br>RE: 这是什么情况？哪里？@周保松<br><img src="http://ww2.sinaimg.cn/large/49f80595gw1f4jj6yf7rqj20j60ee429.jpg"></p>
-<p>
-	<small> ============== 3小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3982764275190260" target="freeweibo-mirror">我都不害怕，您新浪害怕啥呢？</a>
-</h2>
-<p>我都不害怕，您新浪害怕啥呢？<br><img src="http://ww2.sinaimg.cn/large/40acd97fjw1f4jj9j35onj20gq0c3gm7.jpg"></p>
-<p>
-	<small> ============== 3小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3982764040083594" target="freeweibo-mirror">//@半瓶老烧酒: 转发微博</a>
-</h2>
-<p>//@半瓶老烧酒: 转发微博<br><br>RE: 聽說是此時此刻的照片，哪兒的？香港的？<br><img src="http://ww1.sinaimg.cn/large/006iASj8gw1f4jipi2mmhj30qo0k0n2a.jpg"></p>
 <p>
 	<small> ============== 3小时前</small>
 </p>
