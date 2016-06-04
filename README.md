@@ -53,7 +53,7 @@
 </h2>
 <p>//@没倒挡://@掉进酱缸的鱼://@重出江湖68://@杜康111: //@三角锋评:敢动[good][围观]//@腾讯净莲: 转发微博</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3982799251726612" target="freeweibo-mirror">请让我为你点上一盏烛光，就这样把你留在我心上。我越思越想越难…</a>
 </h2>
@@ -83,7 +83,7 @@
 </h2>
 <p>SPAM 跪着的人<br><br>RE: 中国数字：12357890。<br><img src="http://ww2.sinaimg.cn/large/696678cagw1f4jjy1wtm4j20c607ggm7.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3982785675145554" target="freeweibo-mirror">唉，台湾真是选了一个愚蠢的总统.... //@空耳同传君:转…</a>
 </h2>
