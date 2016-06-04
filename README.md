@@ -59,7 +59,13 @@
 </h2>
 <p>SPAM 第一次读到阎步克教授的诗作[赞]//@深夜游离的孤魂野鬼: 未曾忘却的纪念 //@罗新PKU:长街鬼咒千里草， 梦里魂伤九畹兰。</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3982592083166573" target="freeweibo-mirror">老菜头发言</a>
+</h2>
+<p>老菜头发言<br><img src="http://ww2.sinaimg.cn/large/74d93bb5jw1f4izh6frs2j20ri3d44k6.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3982591369129563" target="freeweibo-mirror">SPAM 这款日历有明显被“日”过的痕迹！</a>
 </h2>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3982544305180226" target="freeweibo-mirror">SPAM 南海出版社[赞]</a>
 </h2>
 <p>SPAM 南海出版社[赞]</p>
-<p>
-	<small> ============== 6小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3982544104180092" target="freeweibo-mirror">//@buquedingyfm: 歷史的傷口⋯ //@德夫先…</a>
-</h2>
-<p>//@buquedingyfm: 歷史的傷口⋯ //@德夫先生://@潮汐车道://@陇上二哥://@宝宝xfshi:[闭嘴]//@第17粒://@空净入修:转发微博</p>
 <p>
 	<small> ============== 6小时前</small>
 </p>
