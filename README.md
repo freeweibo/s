@@ -83,7 +83,7 @@
 </h2>
 <p>SPAM //@步眠飞行: 将来这个歌声是你的挽歌 [泪]<br><br>RE: 彼年今日此门中，人面桃花相映红。人面不知何处去，桃花依旧笑春风。李志的《广场》，感谢。 http://t.cn/R5qAupU</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3982620468971358" target="freeweibo-mirror">//@上海老哥:转发微博</a>
 </h2>
@@ -113,7 +113,7 @@
 </h2>
 <p>日本的强盗逻辑？<br><img src="http://ww4.sinaimg.cn/large/418feff3jw1f4j16celnjj20ak0fzaca.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3982604724388269" target="freeweibo-mirror">SPAM //@壹本正经2010: //@杨玉圣:第一次读到…</a>
 </h2>
