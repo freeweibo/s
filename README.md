@@ -19,6 +19,18 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3983012141853185" target="freeweibo-mirror">王毅：你知道中国已经把保护人权列入到我们的宪法当中吗？我要告…</a>
+</h2>
+<p>王毅：你知道中国已经把保护人权列入到我们的宪法当中吗？我要告诉你，最了解中国人权状况的不是你！而是中国人自己！你没有发言权，而中国有发言权。所以请你不要再做这种不负责任的提问。中国欢迎一切善意的建议，但是我们拒绝任何无端的指责。”//@齐河律师: //@何兵:应该加强保密工作<br><br>RE: 网评工作的标准化，值得国家标准化委员会重视。<br><img src="http://ww2.sinaimg.cn/large/4bdb1fa0jw1f4k9f2xcsnj20ci0m80us.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3983012062978549" target="freeweibo-mirror">//@法律及其价值://@大力水手AAA://@王春晖律师:…</a>
+</h2>
+<p>//@法律及其价值://@大力水手AAA://@王春晖律师://@何兵:应该加强保密工作。[哈哈]//@Take-iteasy：党国内部有内鬼啊[笑cry]<br><br>RE: 网评工作的标准化，值得国家标准化委员会重视。<br><img src="http://ww2.sinaimg.cn/large/4bdb1fa0jw1f4k9f2xcsnj20ci0m80us.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3982994856807528" target="freeweibo-mirror">SPAM #那些年玩过的游戏#玩就是应该亚由更好的创意，你我…</a>
 </h2>
 <p>SPAM #那些年玩过的游戏#玩就是应该亚由更好的创意，你我现在一起出发好吧 哇！巴黎是个浪漫的国度，不仅是法国的首都和最大城市，也是法国的政治文化中心哦。</p>
@@ -47,7 +59,7 @@
 </h2>
 <p>颁布了那么多法律，有什么用？执法不严，违法不究，特权横行，司法不公。<br><br>RE: 发布了头条文章：《有关民族主义和爱国主义小札》 。爱国主义是流氓最后的庇护所。民族主义呢，我这两天深受广大爱国网友和民族主义网友围攻，特写一篇文字，和大家探讨。希望能理性讨论，而不是侮辱谩骂。我希望不论是否实名，您的发言都可以让家人看。 http://t.cn/R55fNY1</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3982969074765006" target="freeweibo-mirror">发布了头条文章：《有关民族主义和爱国主义小札》 。爱国主义是…</a>
 </h2>
@@ -124,18 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3982935600230976" target="freeweibo-mirror">转发[照相机]微博</a>
 </h2>
 <p>转发[照相机]微博</p>
-<p>
-	<small> ============== 6小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3982935491073184" target="freeweibo-mirror">#关爱老干部协会会长郭晓婷# 别人都在收割小鲜肉，她却和一票…</a>
-</h2>
-<p>#关爱老干部协会会长郭晓婷# 别人都在收割小鲜肉，她却和一票老干部做朋友~这个协会成立的太棒了，我举双手赞成[哈哈]老干部就是另一番风趣哈，嘎嘎。<br><img src="http://ww2.sinaimg.cn/large/5cde288bgw1f4k2xkjyzoj20j609c75j.jpg"></p>
-<p>
-	<small> ============== 6小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3982935361740824" target="freeweibo-mirror">SPAM [围观]#心疼刘涛#这个都是我们期待的啊 扩充性</a>
-</h2>
-<p>SPAM [围观]#心疼刘涛#这个都是我们期待的啊 扩充性</p>
 <p>
 	<small> ============== 6小时前</small>
 </p>
