@@ -107,7 +107,7 @@
 </h2>
 <p>纪念一下，被毙微博虽多，但这是第一个转发才两位数就被屏蔽了的微博[蜡烛]<br><img src="http://ww2.sinaimg.cn/large/68cdd145jw1f4kf15ikubj20ku1120z7.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3983029330092877" target="freeweibo-mirror">SPAM //@hellokit007: //@财联社APP…</a>
 </h2>
@@ -125,7 +125,7 @@
 </h2>
 <p>SPAM 玉帝太笨，天宫竟然无城管！ //@月光手帕伊莲娜:可怜的娃[嘻嘻]//@陈光武律师://@张晨初艺术空间:[哈哈]//@冯师长:[哈哈]</p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3983015741206191" target="freeweibo-mirror">SPAM 薪火相傳</a>
 </h2>
