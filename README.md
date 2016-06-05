@@ -23,7 +23,7 @@
 </h2>
 <p>SPAM 可怕//@杨元庆:校园暴力休矣！//@王巍w://@何兵: //@取坎填离:教育部，你该反思了。</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3982940071289752" target="freeweibo-mirror">SPAM //@IYALAN://@杨元庆:校园暴力休矣！/…</a>
 </h2>
@@ -59,13 +59,13 @@
 </h2>
 <p>SPAM //@刘鼎://@孟彦弘://@何兵:六月六日下午二点，蓟门决策第99期论坛，专题讨论“校园暴力的成因与对策。地点：学院路校区科研楼B209。欢迎光临。</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3982910576697511" target="freeweibo-mirror">SPAM 苟活者在淡红的血色中，会依稀看见微茫的希望；真的猛…</a>
 </h2>
 <p>SPAM 苟活者在淡红的血色中，会依稀看见微茫的希望；真的猛士，将更奋然而前行。-----鲁迅《纪念刘和珍君》</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3982887512318400" target="freeweibo-mirror">SPAM //@高小曜://@海阔天空的视界: Repost</a>
 </h2>
