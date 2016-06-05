@@ -23,13 +23,13 @@
 </h2>
 <p>王毅：你知道中国已经把保护人权列入到我们的宪法当中吗？我要告诉你，最了解中国人权状况的不是你！而是中国人自己！你没有发言权，而中国有发言权。所以请你不要再做这种不负责任的提问。中国欢迎一切善意的建议，但是我们拒绝任何无端的指责。”//@齐河律师: //@何兵:应该加强保密工作<br><br>RE: 网评工作的标准化，值得国家标准化委员会重视。<br><img src="http://ww2.sinaimg.cn/large/4bdb1fa0jw1f4k9f2xcsnj20ci0m80us.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3983012062978549" target="freeweibo-mirror">//@法律及其价值://@大力水手AAA://@王春晖律师:…</a>
 </h2>
 <p>//@法律及其价值://@大力水手AAA://@王春晖律师://@何兵:应该加强保密工作。[哈哈]//@Take-iteasy：党国内部有内鬼啊[笑cry]<br><br>RE: 网评工作的标准化，值得国家标准化委员会重视。<br><img src="http://ww2.sinaimg.cn/large/4bdb1fa0jw1f4k9f2xcsnj20ci0m80us.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3983010636530352" target="freeweibo-mirror">[哈哈] //@张宏杰:工作不细致，不用心！特别是保密工作出…</a>
 </h2>
@@ -55,6 +55,30 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3983007473524148" target="freeweibo-mirror">//@余渔yu:[怒]//@魚-疯收2:[怒]//@无托国人…</a>
+</h2>
+<p>//@余渔yu:[怒]//@魚-疯收2:[怒]//@无托国人民17://@刀法贤熟:@联合国@联合国人权高专办@美国驻华大使馆@日本国驻华大使馆@英国驻华使馆@德国驻华大使馆@加拿大大使馆官方微博//@白帽_青衫最少年: [哈哈]复制粘帖，这年头，就五毛的钱好赚了。//@京城探花:[怒]//@破布扯蛋:我不能转发[哈哈]//<br><br>RE: 什么事都上五毛。这钱是谁出？<br><img src="http://ww4.sinaimg.cn/large/006k9reyjw1f4k7z57jauj30ci0m8q51.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3983005163075171" target="freeweibo-mirror">//@长沙岳麓书院://@华商天民://@金顶论剑: [哈哈…</a>
+</h2>
+<p>//@长沙岳麓书院://@华商天民://@金顶论剑: [哈哈] //@徐昕:想当五毛挣钱，转发求介绍[笑cry] //@假装大律师://@黄州自干五：网评工作走在世界前列！<br><br>RE: 网评工作的标准化，值得国家标准化委员会重视。<br><img src="http://ww2.sinaimg.cn/large/4bdb1fa0jw1f4k9f2xcsnj20ci0m80us.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3983001186568958" target="freeweibo-mirror">[哈哈][哈哈]尽快吧。//@商无际: 五毛尽干露底裤的事！…</a>
+</h2>
+<p>[哈哈][哈哈]尽快吧。//@商无际: 五毛尽干露底裤的事！[哈哈][哈哈]//@邱旭瑜律师: 不要脸的政府、不要脸的五毛！//@徐昕:[哈哈]//@杜华程://@法律人侯日欣: 五毛内部出了叛徒啊！政委呐？严肃处理！[哈哈]<br><br>RE: 什么事都上五毛。这钱是谁出？<br><img src="http://ww4.sinaimg.cn/large/006k9reyjw1f4k7z57jauj30ci0m8q51.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3983000419179626" target="freeweibo-mirror">丑陋的世界//@何兵: 应该加强保密工作。[哈哈]//@Ta…</a>
+</h2>
+<p>丑陋的世界//@何兵: 应该加强保密工作。[哈哈]//@Take-iteasy：党国内部有内鬼啊[笑cry]<br><br>RE: 网评工作的标准化，值得国家标准化委员会重视。<br><img src="http://ww2.sinaimg.cn/large/4bdb1fa0jw1f4k9f2xcsnj20ci0m80us.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3983000146098494" target="freeweibo-mirror">//@廖睿: “五毛”的运作方式，绝不仅仅是发一帖给“五毛”…</a>
 </h2>
 <p>//@廖睿: “五毛”的运作方式，绝不仅仅是发一帖给“五毛”这样的初级阶段了。“五毛”已是一个组织严密、分布在各系统的集团军了，还有象周小平那样特别供养的重点外围“五毛”。<br><br>RE: 什么事都上五毛。这钱是谁出？<br><img src="http://ww4.sinaimg.cn/large/006k9reyjw1f4k7z57jauj30ci0m8q51.jpg"></p>
@@ -64,6 +88,12 @@
 	<a href="https://freeweibo.com/weibo/3983000007494507" target="freeweibo-mirror">本人好吃懒做良心泯灭，强烈要求加入五毛队伍！求接纳！</a>
 </h2>
 <p>本人好吃懒做良心泯灭，强烈要求加入五毛队伍！求接纳！<br><br>RE: 什么事都上五毛。这钱是谁出？<br><img src="http://ww4.sinaimg.cn/large/006k9reyjw1f4k7z57jauj30ci0m8q51.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3982999269844122" target="freeweibo-mirror">//@法医Z:“公知”队伍也爱特我，“爱国正能量”队伍也爱特…</a>
+</h2>
+<p>//@法医Z:“公知”队伍也爱特我，“爱国正能量”队伍也爱特我，你们经常这样弄，我会对自己定位很迷茫的，容易造成我精神分裂的。～～报道出现问题，未来你们要负责任的！//@刘钢弹他爹:@爱新觉罗载勋 @冯师长 @夜郎国议长 @法医Z @陈有西 @大尸凶的漫画 @广州区伯 @金陵酒徒仓氏 @美国大兵净多<br><br>RE: 什么事都上五毛。这钱是谁出？<br><img src="http://ww4.sinaimg.cn/large/006k9reyjw1f4k7z57jauj30ci0m8q51.jpg"></p>
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
@@ -78,6 +108,12 @@
 <p>SPAM [笑cry][笑cry][笑cry]钱不好赚，除了出卖良心还不够，还需要达到标准化。<br><br>RE: 网评工作的标准化，值得国家标准化委员会重视。<br><img src="http://ww2.sinaimg.cn/large/4bdb1fa0jw1f4k9f2xcsnj20ci0m80us.jpg"></p>
 <p>
 	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3982997244439662" target="freeweibo-mirror">SPAM 丢人//@吃素的好老虎: 中宣部的事业编制干的。</a>
+</h2>
+<p>SPAM 丢人//@吃素的好老虎: 中宣部的事业编制干的。<br><br>RE: 网评工作的标准化，值得国家标准化委员会重视。<br><img src="http://ww2.sinaimg.cn/large/4bdb1fa0jw1f4k9f2xcsnj20ci0m80us.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3982995952311982" target="freeweibo-mirror">SPAM #老师自费包高考房# 还有没有这样的老师要给我来点…</a>
 </h2>
@@ -102,42 +138,6 @@
 <p>网评工作的标准化，值得国家标准化委员会重视。<br><img src="http://ww2.sinaimg.cn/large/4bdb1fa0jw1f4k9f2xcsnj20ci0m80us.jpg"></p>
 <p>
 	<small> ============== 3小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3982983561771130" target="freeweibo-mirror">图不错。//@jiaxu自语://@天涯赵瑜: 恩。是的兄，…</a>
-</h2>
-<p>图不错。//@jiaxu自语://@天涯赵瑜: 恩。是的兄，只是临屏浅尝。你说的对，我所说的民族主义好，或者爱国主义的好，已经超出了这两个词的本义。可能只能是用来借代：好的民族主义。<br><br>RE: 发布了头条文章：《有关民族主义和爱国主义小札》 。爱国主义是流氓最后的庇护所。民族主义呢，我这两天深受广大爱国网友和民族主义网友围攻，特写一篇文字，和大家探讨。希望能理性讨论，而不是侮辱谩骂。我希望不论是否实名，您的发言都可以让家人看。 http://t.cn/R55fNY1</p>
-<p>
-	<small> ============== 3小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3982983561772441" target="freeweibo-mirror">//@i-lee2011://@王玉凡2011://@土田共…</a>
-</h2>
-<p>//@i-lee2011://@王玉凡2011://@土田共戈建高屋: //@薇薇877206:转发微博<br><br>RE: 像港台同胞致敬！[心][心][心][鲜花][鲜花][鲜花]<br><img src="http://ww4.sinaimg.cn/large/006m2SWSgw1f4k1c3bh3pj30hr54x1kx.jpg"></p>
-<p>
-	<small> ============== 3小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3982981604021566" target="freeweibo-mirror">//@南周梦://@天涯赵瑜:@贺卫方 @北村 @小众菜园 …</a>
-</h2>
-<p>//@南周梦://@天涯赵瑜:@贺卫方 @北村 @小众菜园 @潘采夫 @郑在索律师 @风青杨V @去V的刘建锋 @瓦当 @谢元 @严锋 @张鸣 @袁立 @梁惠王 @喷嚏网铂程 @顾猷 @于建嵘 @土家野夫 @北京厨子新号 ，求各位老师和兄台帮转。<br><br>RE: 发布了头条文章：《有关民族主义和爱国主义小札》 。爱国主义是流氓最后的庇护所。民族主义呢，我这两天深受广大爱国网友和民族主义网友围攻，特写一篇文字，和大家探讨。希望能理性讨论，而不是侮辱谩骂。我希望不论是否实名，您的发言都可以让家人看。 http://t.cn/R55fNY1</p>
-<p>
-	<small> ============== 3小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3982979678494925" target="freeweibo-mirror">什么事都上五毛。这钱是谁出？</a>
-</h2>
-<p>什么事都上五毛。这钱是谁出？<br><img src="http://ww4.sinaimg.cn/large/006k9reyjw1f4k7z57jauj30ci0m8q51.jpg"></p>
-<p>
-	<small> ============== 4小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3982977043600601" target="freeweibo-mirror">//@冰海雪涛44:膜拜司令官//@我还是个布娃娃: 吃屎不…</a>
-</h2>
-<p>//@冰海雪涛44:膜拜司令官//@我还是个布娃娃: 吃屎不忘拉屎人。[鄙视][鄙视][鄙视][哈哈]<br><br>RE: 司令官说他终于找到改革的好路子了，先卖田，再卖地，再卖山，再卖矿…… 卖得差不多了，再以“合作社”“公私合营”的形式国有化，循环利用，可持续发展，永远不会破产！[酷]<br><img src="http://ww4.sinaimg.cn/large/675d6d9dgw1f4iam26eygj20pt0hsmxz.jpg"></p>
-<p>
-	<small> ============== 4小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3982972602805918" target="freeweibo-mirror">颁布了那么多法律，有什么用？执法不严，违法不究，特权横行，司…</a>
-</h2>
-<p>颁布了那么多法律，有什么用？执法不严，违法不究，特权横行，司法不公。<br><br>RE: 发布了头条文章：《有关民族主义和爱国主义小札》 。爱国主义是流氓最后的庇护所。民族主义呢，我这两天深受广大爱国网友和民族主义网友围攻，特写一篇文字，和大家探讨。希望能理性讨论，而不是侮辱谩骂。我希望不论是否实名，您的发言都可以让家人看。 http://t.cn/R55fNY1</p>
-<p>
-	<small> ============== 4小时前</small>
 </p>
 <table>
     <tr>
