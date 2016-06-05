@@ -29,7 +29,7 @@
 </h2>
 <p>SPAM 回复@卍囧:当然有意义。不忘记就是意义。//@卍囧:每年的嘉年华会罢了，除此以外，没有任何意义。</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3983156304270759" target="freeweibo-mirror">SPAM 昨天，香港。</a>
 </h2>
