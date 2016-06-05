@@ -29,7 +29,7 @@
 </h2>
 <p>邓小平、江泽民因纵容贪污腐败、进行大屠杀、反人类被钉在历史的耻辱柱上！未来的人们也不会为他们平反。毛泽东错误再大，他也没有亲自下命令屠杀人民，也没有纵容、支持贪官污吏、法西斯分子！毛泽东的错误导致了悲剧，老百姓都知道！@忧国忧民王全杰@于建嵘@江平教授@阎学通@何兵</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3983073584183373" target="freeweibo-mirror">SPAM #女不强大天不容# 回复一直奔波:海清才可怜呢都连…</a>
 </h2>
@@ -71,13 +71,13 @@
 </h2>
 <p>SPAM 薪火相傳<br><img src="http://ww4.sinaimg.cn/large/652c11a8gw1f4kc5esizuj22o01s0x6q.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3983015656848499" target="freeweibo-mirror">SPAM 大圣啊～～他们是何方妖孽啊？[哆啦A梦微笑]</a>
 </h2>
 <p>SPAM 大圣啊～～他们是何方妖孽啊？[哆啦A梦微笑]</p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3983012141853185" target="freeweibo-mirror">王毅：你知道中国已经把保护人权列入到我们的宪法当中吗？我要告…</a>
 </h2>
