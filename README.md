@@ -67,6 +67,12 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3982936166369487" target="freeweibo-mirror">SPAM #心疼刘涛#嘻嘻是的呢，这个刘涛就是这么牛逼的啦[…</a>
+</h2>
+<p>SPAM #心疼刘涛#嘻嘻是的呢，这个刘涛就是这么牛逼的啦[心] 打不通</p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3982935600230976" target="freeweibo-mirror">转发[照相机]微博</a>
 </h2>
 <p>转发[照相机]微博</p>
@@ -79,9 +85,21 @@
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3982935202152627" target="freeweibo-mirror">SPAM 回复@__ShallWeTalk:你想做雷洋吗？</a>
+</h2>
+<p>SPAM 回复@__ShallWeTalk:你想做雷洋吗？<br><br>RE: 今日网络上榜名人：王部长、吴律师，并列第一名。 http://t.cn/R2W68J6<br><img src="http://ww2.sinaimg.cn/large/73570bbdgw1f4iey3vqcqj20b408cq39.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3982924334124079" target="freeweibo-mirror">SPAM 教育从娃娃抓起 //@康健可心://@杨元庆:校园…</a>
 </h2>
 <p>SPAM 教育从娃娃抓起 //@康健可心://@杨元庆:校园暴力休矣！//@王巍w://@何兵: //@取坎填离:教育部，你该反思了。</p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3982923361279231" target="freeweibo-mirror">[哈哈][蜡烛]//@尼克安闲:只不过纳粹是所有集权专制的杰…</a>
+</h2>
+<p>[哈哈][蜡烛]//@尼克安闲:只不过纳粹是所有集权专制的杰出代表//@墨斐斯:[哈哈]//@LeSilenceDeYeol:看了两遍  才发现主语说的是纳粹[嘻嘻]<br><br>RE: 为了巩固对民众的思想统治，纳粹强调的都是一些非智性的品格，诸如忠诚、纯洁、劳动、简朴和爱国主义等，并把喜欢思考的知识分子看成是不可靠的、有危害性的阶层。 http://t.cn/R55ZOwp</p>
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
@@ -103,6 +121,12 @@
 <p>
 	<small> ============== 4小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3982916230691393" target="freeweibo-mirror">SPAM 缉毒，排爆，武警围捕涉枪暴徒，你也去拍吗？吃流弹怪…</a>
+</h2>
+<p>SPAM 缉毒，排爆，武警围捕涉枪暴徒，你也去拍吗？吃流弹怪谁？<br><br>RE: 这个事情我同意，不知道你同不同意？要是也赞成，请转发神评一下吧！[作揖] http://t.cn/R2dyArc<br><img src="http://ww1.sinaimg.cn/large/73570bbdgw1f4j4p4l0qcj20cs0glq3r.jpg"></p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3982915953997633" target="freeweibo-mirror">SPAM 校园暴力休矣！//@王巍w://@何兵: //@取…</a>
 </h2>
 <p>SPAM 校园暴力休矣！//@王巍w://@何兵: //@取坎填离:教育部，你该反思了。</p>
@@ -112,30 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3982912082774773" target="freeweibo-mirror">八十年代，在邓小平先生的倡导下，全社会高喊解放思想，虽然步履…</a>
 </h2>
 <p>八十年代，在邓小平先生的倡导下，全社会高喊解放思想，虽然步履并不大，但人们心里充满期待。如今，不要解放要特色了。</p>
-<p>
-	<small> ============== 4小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3982911261329011" target="freeweibo-mirror">SPAM 唉！//@何兵:六月六日下午二点，蓟门决策第99期…</a>
-</h2>
-<p>SPAM 唉！//@何兵:六月六日下午二点，蓟门决策第99期论坛，专题讨论“校园暴力的成因与对策。地点：学院路校区科研楼B209。欢迎光临。</p>
-<p>
-	<small> ============== 4小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3982910782530775" target="freeweibo-mirror">SPAM //@刘鼎://@孟彦弘://@何兵:六月六日下午…</a>
-</h2>
-<p>SPAM //@刘鼎://@孟彦弘://@何兵:六月六日下午二点，蓟门决策第99期论坛，专题讨论“校园暴力的成因与对策。地点：学院路校区科研楼B209。欢迎光临。</p>
-<p>
-	<small> ============== 4小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3982910576697511" target="freeweibo-mirror">SPAM 苟活者在淡红的血色中，会依稀看见微茫的希望；真的猛…</a>
-</h2>
-<p>SPAM 苟活者在淡红的血色中，会依稀看见微茫的希望；真的猛士，将更奋然而前行。-----鲁迅《纪念刘和珍君》</p>
-<p>
-	<small> ============== 4小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3982910568305378" target="freeweibo-mirror">//@何兵:这里又是一起。</a>
-</h2>
-<p>//@何兵:这里又是一起。<br><br>RE: 是校园暴力？还是女流氓的温床？我的建议，统统搞死她！再在网络流传！#农村趣谈# http://t.cn/RUY051u</p>
 <p>
 	<small> ============== 4小时前</small>
 </p>
