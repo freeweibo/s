@@ -29,7 +29,7 @@
 </h2>
 <p>SPAM 这倒并不能说明没朋友，而是无法交流。这场合只有长者还能应付，古月都不行，虽然是清华毕业的。一次多国首脑的会议上，照片显示别人扎堆的时候，古月好孤独的样子。//@枣庄天下第一庄: [哈哈][哈哈]//@陈__大嘴: 这就是传说中的“帅到没朋友”？[哈哈]<br><br>RE: 老大的表情真是帅呆了，酷毙了[耶]<br><img src="http://ww1.sinaimg.cn/large/006tak8igw1f4kon8kewfj30ie07w3zj.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3983140680265071" target="freeweibo-mirror">SPAM 求好心人转发</a>
 </h2>
@@ -77,13 +77,13 @@
 </h2>
 <p>SPAM #拜托拿稳#林心如林心如  记得你还有韩若飞啊[lxhx泪目][lxhx病了][lxhx病了]<br><br>RE: #拜托拿稳# 每一个人的生活都应该像河水一样——开始是细小的，被限制在狭窄的两岸之间，然后热烈地冲过巨石，滑下瀑布。渐渐地，河道变宽了，河岸扩展了，河水流得平稳了。最后河水流入了海洋，不再有明显的间断和停顿，而后便毫无痛苦地摆脱了自身的存在。<br><img src="http://ww4.sinaimg.cn/large/e3b81d52gw1f4kkvh8kk4j20rs0igdlh.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3983112411638411" target="freeweibo-mirror">【雷洋案的直接驱动力是政治，而非法治，这才是最大危险所在。】…</a>
 </h2>
 <p>【雷洋案的直接驱动力是政治，而非法治，这才是最大危险所在。】评：法治不了最高权力，法治就不会真正到来！http://t.cn/R55m5Qs<br><img src="http://ww4.sinaimg.cn/large/656fdf41jw1f4kn949o6dj20u01f9k15.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3983111102233930" target="freeweibo-mirror">SPAM #拜托拿稳#韩若飞#贾乃亮奇妙的时光之旅#好帅哦！…</a>
 </h2>
