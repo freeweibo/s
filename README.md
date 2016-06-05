@@ -61,11 +61,17 @@
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3983112411638411" target="freeweibo-mirror">【雷洋案的直接驱动力是政治，而非法治，这才是最大危险所在。】…</a>
+</h2>
+<p>【雷洋案的直接驱动力是政治，而非法治，这才是最大危险所在。】评：法治不了最高权力，法治就不会真正到来！http://t.cn/R55m5Qs<br><img src="http://ww4.sinaimg.cn/large/656fdf41jw1f4kn949o6dj20u01f9k15.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3983111102233930" target="freeweibo-mirror">SPAM #拜托拿稳#韩若飞#贾乃亮奇妙的时光之旅#好帅哦！…</a>
 </h2>
 <p>SPAM #拜托拿稳#韩若飞#贾乃亮奇妙的时光之旅#好帅哦！[lxhx奔跑][lxhx奔跑][lxhx喵喵]<br><br>RE: #拜托拿稳# 每一个人的生活都应该像河水一样——开始是细小的，被限制在狭窄的两岸之间，然后热烈地冲过巨石，滑下瀑布。渐渐地，河道变宽了，河岸扩展了，河水流得平稳了。最后河水流入了海洋，不再有明显的间断和停顿，而后便毫无痛苦地摆脱了自身的存在。<br><img src="http://ww4.sinaimg.cn/large/e3b81d52gw1f4kkvh8kk4j20rs0igdlh.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3983110313392021" target="freeweibo-mirror">#拜托拿稳#风衣外套好帅[yz人呢][yz右边亮了][yz甩…</a>
 </h2>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3983080102251520" target="freeweibo-mirror">SPAM 雷洋案的直接驱动力是政治，而非法治，这才是最大危险…</a>
 </h2>
 <p>SPAM 雷洋案的直接驱动力是政治，而非法治，这才是最大危险所在。 http://t.cn/R55m5Qs</p>
-<p>
-	<small> ============== 6小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3983076524482177" target="freeweibo-mirror">邓小平、江泽民因纵容贪污腐败、进行大屠杀、反人类被钉在历史的…</a>
-</h2>
-<p>邓小平、江泽民因纵容贪污腐败、进行大屠杀、反人类被钉在历史的耻辱柱上！未来的人们也不会为他们平反。毛泽东错误再大，他也没有亲自下命令屠杀人民，也没有纵容、支持贪官污吏、法西斯分子！毛泽东的错误导致了悲剧，老百姓都知道！@忧国忧民王全杰@于建嵘@江平教授@阎学通@何兵</p>
 <p>
 	<small> ============== 6小时前</small>
 </p>
