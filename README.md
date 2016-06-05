@@ -23,7 +23,7 @@
 </h2>
 <p>假如执法也属机密，是不准任何人拍摄的。//@M袁飏: 转发微博<br><br>RE: 这个事情我同意，不知道你同不同意？要是也赞成，请转发神评一下吧！[作揖] http://t.cn/R2dyArc<br><img src="http://ww1.sinaimg.cn/large/73570bbdgw1f4j4p4l0qcj20cs0glq3r.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3982950602767074" target="freeweibo-mirror">SPAM 合情合理合法！墙裂赞成！</a>
 </h2>
@@ -71,7 +71,7 @@
 </h2>
 <p>SPAM #心疼刘涛#嘻嘻是的呢，这个刘涛就是这么牛逼的啦[心] 打不通</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3982935600230976" target="freeweibo-mirror">转发[照相机]微博</a>
 </h2>
