@@ -95,7 +95,7 @@
 </h2>
 <p>你他妈的喊过：“谁是凶手”么？舟山溃坝，你高喊舟山加油；汶川地震，你高喊汶川加油；上海火灾，你高喊上海加油；余姚水灾，你高喊余姚加油；青岛天津爆炸，你又喊青岛天津加油……你他妈的是免费加油站啊，你他妈的敢喊过：“谁是凶手？”么？？？一一转<br><img src="http://ww2.sinaimg.cn/large/995e9ff4jw1f4kforomz7j20qn0qnaap.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3983041132678919" target="freeweibo-mirror">纪念一下，被毙微博虽多，但这是第一个转发才两位数就被屏蔽了的…</a>
 </h2>
