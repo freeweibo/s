@@ -47,13 +47,13 @@
 </h2>
 <p>王毅：你知道中国已经把保护人权列入到我们的宪法当中吗？我要告诉你，最了解中国人权状况的不是你！而是中国人自己！你没有发言权，而中国有发言权。所以请你不要再做这种不负责任的提问。中国欢迎一切善意的建议，但是我们拒绝任何无端的指责。”//@齐河律师: //@何兵:应该加强保密工作<br><br>RE: 网评工作的标准化，值得国家标准化委员会重视。<br><img src="http://ww2.sinaimg.cn/large/4bdb1fa0jw1f4k9f2xcsnj20ci0m80us.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3983012062978549" target="freeweibo-mirror">//@法律及其价值://@大力水手AAA://@王春晖律师:…</a>
 </h2>
 <p>//@法律及其价值://@大力水手AAA://@王春晖律师://@何兵:应该加强保密工作。[哈哈]//@Take-iteasy：党国内部有内鬼啊[笑cry]<br><br>RE: 网评工作的标准化，值得国家标准化委员会重视。<br><img src="http://ww2.sinaimg.cn/large/4bdb1fa0jw1f4k9f2xcsnj20ci0m80us.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3983010636530352" target="freeweibo-mirror">[哈哈] //@张宏杰:工作不细致，不用心！特别是保密工作出…</a>
 </h2>
@@ -97,6 +97,18 @@
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3983003938063961" target="freeweibo-mirror">SPAM //@盘子微谈:[哈哈]//@可可-cm11:[哈…</a>
+</h2>
+<p>SPAM //@盘子微谈:[哈哈]//@可可-cm11:[哈哈] //@鱼儿闲谈:[哈哈][笑cry]//@沙漠渔夫809:[挖鼻]//@猪窝屯屯长:[哈哈]</p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3983003325749945" target="freeweibo-mirror">现在又提科技创新了。但政策制定者估计连一个专利也没看过，“创…</a>
+</h2>
+<p>现在又提科技创新了。但政策制定者估计连一个专利也没看过，“创新驱动”也是空话。//@繁芯流动:所以供给侧改革已经不怎么提了，执行不下去。<br><br>RE: 大伙儿侃大山，觉得供给侧改革的重头戏之一国企的提质增效与结构改革将会导致一批人失业。但实际上，再像以往一样牺牲一批人的利益，换取经济在一段时间的健康发展已经非常困难了。大概很多国企员工手头持有比其他领域老百姓更多的房产，他们的下岗就可能是贷款断供，由此引发的风险是巨大的。</p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3983001186568958" target="freeweibo-mirror">[哈哈][哈哈]尽快吧。//@商无际: 五毛尽干露底裤的事！…</a>
 </h2>
 <p>[哈哈][哈哈]尽快吧。//@商无际: 五毛尽干露底裤的事！[哈哈][哈哈]//@邱旭瑜律师: 不要脸的政府、不要脸的五毛！//@徐昕:[哈哈]//@杜华程://@法律人侯日欣: 五毛内部出了叛徒啊！政委呐？严肃处理！[哈哈]<br><br>RE: 什么事都上五毛。这钱是谁出？<br><img src="http://ww4.sinaimg.cn/large/006k9reyjw1f4k7z57jauj30ci0m8q51.jpg"></p>
@@ -124,18 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3982999269844122" target="freeweibo-mirror">//@法医Z:“公知”队伍也爱特我，“爱国正能量”队伍也爱特…</a>
 </h2>
 <p>//@法医Z:“公知”队伍也爱特我，“爱国正能量”队伍也爱特我，你们经常这样弄，我会对自己定位很迷茫的，容易造成我精神分裂的。～～报道出现问题，未来你们要负责任的！//@刘钢弹他爹:@爱新觉罗载勋 @冯师长 @夜郎国议长 @法医Z @陈有西 @大尸凶的漫画 @广州区伯 @金陵酒徒仓氏 @美国大兵净多<br><br>RE: 什么事都上五毛。这钱是谁出？<br><img src="http://ww4.sinaimg.cn/large/006k9reyjw1f4k7z57jauj30ci0m8q51.jpg"></p>
-<p>
-	<small> ============== 3小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3982999198489430" target="freeweibo-mirror">//@快乐的明天-2016: //@徐昕:[哈哈]//@杜华…</a>
-</h2>
-<p>//@快乐的明天-2016: //@徐昕:[哈哈]//@杜华程://@法律人侯日欣: 五毛内部出了叛徒啊！政委呐？严肃处理！[哈哈]<br><br>RE: 什么事都上五毛。这钱是谁出？<br><img src="http://ww4.sinaimg.cn/large/006k9reyjw1f4k7z57jauj30ci0m8q51.jpg"></p>
-<p>
-	<small> ============== 3小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3982998472464523" target="freeweibo-mirror">SPAM [笑cry][笑cry][笑cry]钱不好赚，除了…</a>
-</h2>
-<p>SPAM [笑cry][笑cry][笑cry]钱不好赚，除了出卖良心还不够，还需要达到标准化。<br><br>RE: 网评工作的标准化，值得国家标准化委员会重视。<br><img src="http://ww2.sinaimg.cn/large/4bdb1fa0jw1f4k9f2xcsnj20ci0m80us.jpg"></p>
 <p>
 	<small> ============== 3小时前</small>
 </p>
