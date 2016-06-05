@@ -41,7 +41,7 @@
 </h2>
 <p>SPAM //@1024专员:我们中出了一个叛徒[doge]<br><br>RE: 网评工作的标准化，值得国家标准化委员会重视。<br><img src="http://ww2.sinaimg.cn/large/4bdb1fa0jw1f4k9f2xcsnj20ci0m80us.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3983000146098494" target="freeweibo-mirror">//@廖睿: “五毛”的运作方式，绝不仅仅是发一帖给“五毛”…</a>
 </h2>
