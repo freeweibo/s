@@ -107,7 +107,7 @@
 </h2>
 <p>SPAM [笑cry][笑cry][笑cry]钱不好赚，除了出卖良心还不够，还需要达到标准化。<br><br>RE: 网评工作的标准化，值得国家标准化委员会重视。<br><img src="http://ww2.sinaimg.cn/large/4bdb1fa0jw1f4k9f2xcsnj20ci0m80us.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3982997244439662" target="freeweibo-mirror">SPAM 丢人//@吃素的好老虎: 中宣部的事业编制干的。</a>
 </h2>
