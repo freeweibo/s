@@ -43,6 +43,12 @@
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3983124549150841" target="freeweibo-mirror">老大的表情真是帅呆了，酷毙了[耶]</a>
+</h2>
+<p>老大的表情真是帅呆了，酷毙了[耶]<br><img src="http://ww1.sinaimg.cn/large/006tak8igw1f4kon8kewfj30ie07w3zj.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3983122733925461" target="freeweibo-mirror">SPAM #极限挑战# 绵羊背后是小猪的摊位吗[笑cry][…</a>
 </h2>
 <p>SPAM #极限挑战# 绵羊背后是小猪的摊位吗[笑cry][笑cry][笑cry]绵羊甜甜甜[许愿][许愿][许愿] 应该是霸王别鸡吧！呵呵</p>
@@ -53,7 +59,7 @@
 </h2>
 <p>SPAM 今年端午有哪些会玩的高颜值粽子？来看这里[doge]（搜公号ID：wymsdrc）<br><img src="http://ww1.sinaimg.cn/large/005zgTSzgw1f4kni32jbej30ku112aig.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3983112910091662" target="freeweibo-mirror">SPAM #拜托拿稳#林心如林心如  记得你还有韩若飞啊[l…</a>
 </h2>
@@ -127,17 +133,11 @@
 <p>
 	<small> ============== 5小时前</small>
 </p><h2>
-	<a href="https://freeweibo.com/weibo/3983082291808831" target="freeweibo-mirror">我们推翻封建王朝105年了，哪还有什么封建皇权？民主法治是一…</a>
+	<a href="https://freeweibo.com/weibo/3983091728533096" target="freeweibo-mirror">#拜托拿稳# 每一个人的生活都应该像河水一样——开始是细小的…</a>
 </h2>
-<p>我们推翻封建王朝105年了，哪还有什么封建皇权？民主法治是一个渐进的过程。//@梦想人生的坚持: 暴力革命、巩固政权会在民主法制中进行吗？这说明封建、皇权、腐化、暴政仍然在统治、主导中国。</p>
+<p>#拜托拿稳# 每一个人的生活都应该像河水一样——开始是细小的，被限制在狭窄的两岸之间，然后热烈地冲过巨石，滑下瀑布。渐渐地，河道变宽了，河岸扩展了，河水流得平稳了。最后河水流入了海洋，不再有明显的间断和停顿，而后便毫无痛苦地摆脱了自身的存在。<br><img src="http://ww4.sinaimg.cn/large/e3b81d52gw1f4kkvh8kk4j20rs0igdlh.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3983080102251520" target="freeweibo-mirror">SPAM 雷洋案的直接驱动力是政治，而非法治，这才是最大危险…</a>
-</h2>
-<p>SPAM 雷洋案的直接驱动力是政治，而非法治，这才是最大危险所在。 http://t.cn/R55m5Qs</p>
-<p>
-	<small> ============== 6小时前</small>
+	<small> ============== 5小时前</small>
 </p>
 <table>
     <tr>
