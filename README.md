@@ -77,19 +77,19 @@
 </h2>
 <p>丑陋的世界//@何兵: 应该加强保密工作。[哈哈]//@Take-iteasy：党国内部有内鬼啊[笑cry]<br><br>RE: 网评工作的标准化，值得国家标准化委员会重视。<br><img src="http://ww2.sinaimg.cn/large/4bdb1fa0jw1f4k9f2xcsnj20ci0m80us.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3983000146098494" target="freeweibo-mirror">//@廖睿: “五毛”的运作方式，绝不仅仅是发一帖给“五毛”…</a>
 </h2>
 <p>//@廖睿: “五毛”的运作方式，绝不仅仅是发一帖给“五毛”这样的初级阶段了。“五毛”已是一个组织严密、分布在各系统的集团军了，还有象周小平那样特别供养的重点外围“五毛”。<br><br>RE: 什么事都上五毛。这钱是谁出？<br><img src="http://ww4.sinaimg.cn/large/006k9reyjw1f4k7z57jauj30ci0m8q51.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3983000007494507" target="freeweibo-mirror">本人好吃懒做良心泯灭，强烈要求加入五毛队伍！求接纳！</a>
 </h2>
 <p>本人好吃懒做良心泯灭，强烈要求加入五毛队伍！求接纳！<br><br>RE: 什么事都上五毛。这钱是谁出？<br><img src="http://ww4.sinaimg.cn/large/006k9reyjw1f4k7z57jauj30ci0m8q51.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3982999269844122" target="freeweibo-mirror">//@法医Z:“公知”队伍也爱特我，“爱国正能量”队伍也爱特…</a>
 </h2>
