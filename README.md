@@ -65,7 +65,7 @@
 </h2>
 <p>SPAM 今夜，十二万香港同胞无眠。<br><img src="http://ww2.sinaimg.cn/large/6a83dd8egw1f4jp7c9mg7j20zk0k0gpe.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3982808127215346" target="freeweibo-mirror">SPAM 人越来越少 //@阿忆:香港始终没有遗忘</a>
 </h2>
@@ -137,7 +137,7 @@
 </h2>
 <p>唉，台湾真是选了一个愚蠢的总统.... //@空耳同传君:转发微博</p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p>
 <table>
     <tr>
