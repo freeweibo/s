@@ -71,7 +71,7 @@
 </h2>
 <p>SPAM 人越来越少 //@阿忆:香港始终没有遗忘<br><br>RE: 请让我为你点上一盏烛光，就这样把你留在我心上。我越思越想越难忘，路越走越远越漫长。<br><img src="http://ww2.sinaimg.cn/large/65e6b0dejw1f4jn9tjuf2j20zk0lztez.jpg"></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3982803739558881" target="freeweibo-mirror">SPAM 【有一天】 有一天 曾经有那么一天 有一天 你试图…</a>
 </h2>
@@ -113,7 +113,7 @@
 </h2>
 <p>特别感动。<br><img src="http://ww2.sinaimg.cn/large/7a076bb2jw1f4jmhqhc64j218g0udanm.jpg"></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3982790871425318" target="freeweibo-mirror">SPAM 90后在校生凭自己能力买宝马[星星] 翻翻她的微博…</a>
 </h2>
