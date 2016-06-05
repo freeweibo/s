@@ -89,7 +89,7 @@
 </h2>
 <p>网评工作的标准化，值得国家标准化委员会重视。<br><img src="http://ww2.sinaimg.cn/large/4bdb1fa0jw1f4k9f2xcsnj20ci0m80us.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3982983561771130" target="freeweibo-mirror">图不错。//@jiaxu自语://@天涯赵瑜: 恩。是的兄，…</a>
 </h2>
@@ -119,7 +119,7 @@
 </h2>
 <p>//@冰海雪涛44:膜拜司令官//@我还是个布娃娃: 吃屎不忘拉屎人。[鄙视][鄙视][鄙视][哈哈]<br><br>RE: 司令官说他终于找到改革的好路子了，先卖田，再卖地，再卖山，再卖矿…… 卖得差不多了，再以“合作社”“公私合营”的形式国有化，循环利用，可持续发展，永远不会破产！[酷]<br><img src="http://ww4.sinaimg.cn/large/675d6d9dgw1f4iam26eygj20pt0hsmxz.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3982972602805918" target="freeweibo-mirror">颁布了那么多法律，有什么用？执法不严，违法不究，特权横行，司…</a>
 </h2>
