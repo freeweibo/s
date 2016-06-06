@@ -41,13 +41,13 @@
 </h2>
 <p>//@老刘在德克萨斯:外交部长出访友好国家因言行粗鲁制造出外交事件，惊动另一国元首两度公开表态，并通过官方外交渠道向神州表达不满，在神州外交史上也是绝无仅有。只能说当事人属于不可多得的外交奇葩。<br><br>RE: 加国总理的视频来了。http://t.cn/R5tz5O1</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3983352451000500" target="freeweibo-mirror">[话筒] //@一品泥人://@菲力先生:</a>
 </h2>
 <p>[话筒] //@一品泥人://@菲力先生:<br><br>RE: 加国总理的视频来了。http://t.cn/R5tz5O1</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3983351813743881" target="freeweibo-mirror">//@一品泥人://@菲力先生:</a>
 </h2>
