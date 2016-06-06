@@ -125,7 +125,7 @@
 </h2>
 <p>SPAM #极限挑战# 绵羊背后是小猪的摊位吗[笑cry][笑cry][笑cry]绵羊甜甜甜[许愿][许愿][许愿] 应该是霸王别鸡吧！呵呵</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3983115007595507" target="freeweibo-mirror">SPAM 今年端午有哪些会玩的高颜值粽子？来看这里[doge…</a>
 </h2>
