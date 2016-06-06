@@ -65,7 +65,7 @@
 </h2>
 <p>SPAM 好好玩//@张锐强-写作者: 一样不一样，问女下属才知道。//@方达明的微博: 特殊材料。首长的宝贝跟常人位置不一样。<br><br>RE: 额…中间那位首长，你们的防弹衣穿反了，下面那玩意儿不是护臀…<br><img src="http://ww4.sinaimg.cn/large/6d5674bagw1f4ldiz8pzhj20kr0fognj.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3983392679258205" target="freeweibo-mirror">那几位太太为什么这么高兴啊？这表情不对啊[汗]//@老李随想…</a>
 </h2>
