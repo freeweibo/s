@@ -125,7 +125,7 @@
 </h2>
 <p>SPAM //@LifeTime:</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3983128701697096" target="freeweibo-mirror">“强盗土匪”已经不够形容它们了····</a>
 </h2>
