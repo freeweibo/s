@@ -47,7 +47,7 @@
 </h2>
 <p>SPAM 昨天，香港。<br><img src="http://ww4.sinaimg.cn/large/66ac8ae9jw1f4ksak4ufxj20lc0qogss.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3983148616437121" target="freeweibo-mirror">SPAM #张雪迎高考加油#上周看了张雪迎高考加油被绑架 简…</a>
 </h2>
@@ -125,7 +125,7 @@
 </h2>
 <p>SPAM #拜托拿稳#韩若飞#贾乃亮奇妙的时光之旅#好帅哦！[lxhx奔跑][lxhx奔跑][lxhx喵喵]<br><br>RE: #拜托拿稳# 每一个人的生活都应该像河水一样——开始是细小的，被限制在狭窄的两岸之间，然后热烈地冲过巨石，滑下瀑布。渐渐地，河道变宽了，河岸扩展了，河水流得平稳了。最后河水流入了海洋，不再有明显的间断和停顿，而后便毫无痛苦地摆脱了自身的存在。<br><img src="http://ww4.sinaimg.cn/large/e3b81d52gw1f4kkvh8kk4j20rs0igdlh.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3983110313392021" target="freeweibo-mirror">#拜托拿稳#风衣外套好帅[yz人呢][yz右边亮了][yz甩…</a>
 </h2>
