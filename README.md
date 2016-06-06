@@ -41,7 +41,7 @@
 </h2>
 <p>SPAM #素颜自拍大赛# 黑了吗好美的腿腿哦一箩筐<br><br>RE: “如果不能在一起，就不要给对方任何希望任何暗示，这才是最大的担当；分开了，不去打搅让对方安然生活，这才是最后的温柔。”<br><img src="http://ww2.sinaimg.cn/large/7d0a79d0gw1f4l5dkp3dsj20c80c7q37.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3983273812151186" target="freeweibo-mirror">//@顾肃: 上海的警察真够辛苦，任务山大/@ICO刘开明:…</a>
 </h2>
@@ -107,7 +107,7 @@
 </h2>
 <p>#张雪迎高考加油# 每一段路都是一种领悟，请记住每一片沿途的风景；每一段情都是一种幸福；请珍惜每一个爱你的人；每一种未来都是一种精彩，请谱写你的辉煌人生。<br><img src="http://ww3.sinaimg.cn/large/a15340b8jw1f4krci407nj20g40g3404.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3983142245678873" target="freeweibo-mirror">SPAM 这倒并不能说明没朋友，而是无法交流。这场合只有长者…</a>
 </h2>
