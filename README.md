@@ -101,7 +101,7 @@
 </h2>
 <p>#张雪迎高考加油# 每一段路都是一种领悟，请记住每一片沿途的风景；每一段情都是一种幸福；请珍惜每一个爱你的人；每一种未来都是一种精彩，请谱写你的辉煌人生。<br><img src="http://ww3.sinaimg.cn/large/a15340b8jw1f4krci407nj20g40g3404.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3983142245678873" target="freeweibo-mirror">SPAM 这倒并不能说明没朋友，而是无法交流。这场合只有长者…</a>
 </h2>
@@ -113,7 +113,7 @@
 </h2>
 <p>SPAM 求好心人转发</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3983137350094128" target="freeweibo-mirror">//@铁塔微报://@利民微言:敢，不听话吗？//@海蓝翔2…</a>
 </h2>
