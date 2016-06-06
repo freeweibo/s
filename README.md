@@ -35,7 +35,13 @@
 </h2>
 <p>//@顾肃: 上海的警察真够辛苦，任务山大/@ICO刘开明: //@李扒皮://@Y阿中:基层压力山大。。//@并求正义3://@行天下1125://@老陈2014:转发微博<br><br>RE: “强盗土匪”已经不够形容它们了····<br><img src="http://ww4.sinaimg.cn/large/005VX8Idgw1f4kp3cc10sj30ci0m8tam.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3983270239268615" target="freeweibo-mirror">“如果不能在一起，就不要给对方任何希望任何暗示，这才是最大的…</a>
+</h2>
+<p>“如果不能在一起，就不要给对方任何希望任何暗示，这才是最大的担当；分开了，不去打搅让对方安然生活，这才是最后的温柔。”<br><img src="http://ww2.sinaimg.cn/large/7d0a79d0gw1f4l5dkp3dsj20c80c7q37.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3983270028661560" target="freeweibo-mirror">上海的警察真够辛苦，任务山大/@ICO刘开明: //@李扒皮…</a>
 </h2>
@@ -53,7 +59,7 @@
 </h2>
 <p>SPAM 很多人都忘记了吧 //@北京磬石:香江，不能忘怀的帮助与坚守！</p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3983166384052798" target="freeweibo-mirror">SPAM [色]很不错的鞋子哦，鞋子控的朋友可以+威芯：21…</a>
 </h2>
@@ -107,7 +113,7 @@
 </h2>
 <p>//@铁塔微报://@利民微言:敢，不听话吗？//@海蓝翔2:“特色”卖国！罪魁祸首邓猫也！[衰][衰][衰]//@华夏wanziqianhong: 转发微博</p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3983135932441927" target="freeweibo-mirror">SPAM //@LifeTime:</a>
 </h2>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3983124549150841" target="freeweibo-mirror">老大的表情真是帅呆了，酷毙了[耶]</a>
 </h2>
 <p>老大的表情真是帅呆了，酷毙了[耶]<br><img src="http://ww1.sinaimg.cn/large/006tak8igw1f4kon8kewfj30ie07w3zj.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3983122733925461" target="freeweibo-mirror">SPAM #极限挑战# 绵羊背后是小猪的摊位吗[笑cry][…</a>
-</h2>
-<p>SPAM #极限挑战# 绵羊背后是小猪的摊位吗[笑cry][笑cry][笑cry]绵羊甜甜甜[许愿][许愿][许愿] 应该是霸王别鸡吧！呵呵</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
