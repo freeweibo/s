@@ -89,7 +89,7 @@
 </h2>
 <p>SPAM 昨天，香港。<br><img src="http://ww4.sinaimg.cn/large/66ac8ae9jw1f4ksak4ufxj20lc0qogss.jpg"></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3983148616437121" target="freeweibo-mirror">SPAM #张雪迎高考加油#上周看了张雪迎高考加油被绑架 简…</a>
 </h2>
