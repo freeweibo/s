@@ -23,7 +23,7 @@
 </h2>
 <p>【好文分享】1、马航MH370客机失联真相终于揭 晓了！2、1973年中国领导人私密照，竟然被一个老外拍到了！3、美国宇航局公布UFO绝密影像！4、看28位清朝状元的书法，惊呆了！5、中国最美的40个地方 。更多精彩请添加关注：zhebsls<br><img src="http://ww1.sinaimg.cn/large/9647a31ejw1f4l7kwq2kej20j60y3mze.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3983275850417836" target="freeweibo-mirror">SPAM #素颜自拍大赛# 黑了吗好美的腿腿哦一箩筐</a>
 </h2>
