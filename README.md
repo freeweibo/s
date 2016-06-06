@@ -19,6 +19,24 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3983354287816606" target="freeweibo-mirror">有这次的表现，王书记当副总理够格了吧？ //@徐辛XuXin…</a>
+</h2>
+<p>有这次的表现，王书记当副总理够格了吧？ //@徐辛XuXin:[话筒] //@一品泥人://@菲力先生:<br><br>RE: 加国总理的视频来了。http://t.cn/R5tz5O1</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3983353835863355" target="freeweibo-mirror">快封右边的号吧！[挖鼻]//@风中疾走:这届外长不行，如果是…</a>
+</h2>
+<p>快封右边的号吧！[挖鼻]//@风中疾走:这届外长不行，如果是敬爱的周总理面对记者这样的提问，肯定会睿智地回答：“谁说我们中国没有人权？我们有。。。在台湾！”现场会响起雷鸣般的掌声，经久不息。<br><br>RE: 加国总理的视频来了。http://t.cn/R5tz5O1</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3983353378458216" target="freeweibo-mirror">//@老刘在德克萨斯:外交部长出访友好国家因言行粗鲁制造出外…</a>
+</h2>
+<p>//@老刘在德克萨斯:外交部长出访友好国家因言行粗鲁制造出外交事件，惊动另一国元首两度公开表态，并通过官方外交渠道向神州表达不满，在神州外交史上也是绝无仅有。只能说当事人属于不可多得的外交奇葩。<br><br>RE: 加国总理的视频来了。http://t.cn/R5tz5O1</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3983343857601632" target="freeweibo-mirror">SPAM #这是一个怎样的时代# 在这个急功近利的时代，匠心…</a>
 </h2>
 <p>SPAM #这是一个怎样的时代# 在这个急功近利的时代，匠心变得更加容易还是更难？转发本条微博，随机抽奖，随机送360智能硬件：巴迪龙儿童手表SE3台！小水滴摄像机3台！行车记录仪3台！6月13日开奖。<br><img src="http://ww1.sinaimg.cn/large/61e61e8cgw1f4ldsk652xj20xf18xq5a.jpg"></p>
@@ -35,7 +53,7 @@
 </h2>
 <p>【好文分享】1、马航MH370客机失联真相终于揭 晓了！2、1973年中国领导人私密照，竟然被一个老外拍到了！3、美国宇航局公布UFO绝密影像！4、看28位清朝状元的书法，惊呆了！5、中国最美的40个地方 。更多精彩请添加关注：zhebsls<br><img src="http://ww1.sinaimg.cn/large/9647a31ejw1f4l7kwq2kej20j60y3mze.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3983278585828636" target="freeweibo-mirror">SPAM 自己穿过才敢推荐，喜欢的加 薇 ❤：aixie17</a>
 </h2>
@@ -118,24 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3983142245678873" target="freeweibo-mirror">SPAM 这倒并不能说明没朋友，而是无法交流。这场合只有长者…</a>
 </h2>
 <p>SPAM 这倒并不能说明没朋友，而是无法交流。这场合只有长者还能应付，古月都不行，虽然是清华毕业的。一次多国首脑的会议上，照片显示别人扎堆的时候，古月好孤独的样子。//@枣庄天下第一庄: [哈哈][哈哈]//@陈__大嘴: 这就是传说中的“帅到没朋友”？[哈哈]<br><br>RE: 老大的表情真是帅呆了，酷毙了[耶]<br><img src="http://ww1.sinaimg.cn/large/006tak8igw1f4kon8kewfj30ie07w3zj.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3983140680265071" target="freeweibo-mirror">SPAM 求好心人转发</a>
-</h2>
-<p>SPAM 求好心人转发</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3983137350094128" target="freeweibo-mirror">//@铁塔微报://@利民微言:敢，不听话吗？//@海蓝翔2…</a>
-</h2>
-<p>//@铁塔微报://@利民微言:敢，不听话吗？//@海蓝翔2:“特色”卖国！罪魁祸首邓猫也！[衰][衰][衰]//@华夏wanziqianhong: 转发微博</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3983135932441927" target="freeweibo-mirror">SPAM //@LifeTime:</a>
-</h2>
-<p>SPAM //@LifeTime:</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
