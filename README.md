@@ -83,7 +83,7 @@
 </h2>
 <p>视频中一位穿制服的使用警械猛打他人，旁边停着车身印有公 安二字、印有C3858数字。 http://t.cn/R5tBIiY .</p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3983374819758590" target="freeweibo-mirror">忍忍吧，孩子[傷心]王毅說了：中方愿帮助几内亚解决吃饭、就业…</a>
 </h2>
