@@ -83,13 +83,13 @@
 </h2>
 <p>求关注<br><br>RE: 【中国辩护人的辩护人的辩护人在接力！】程海，梁小军、李昱函、黄汉中等律师今晚星夜驰援在天津被限制自由的四位辩护律师蔡瑛、王磊、文东海、纪中久（李和平、王全璋律师等人的辩护人）。（图一后排被扣押律师，图二驰援律师）<br><img src="http://ww3.sinaimg.cn/large/6a80bfcdgw1f4ltrnny0yj20n30hetd2.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3983496705982040" target="freeweibo-mirror">一网打尽的好时机//@鸟瞰苍穹: //@李方平律师: 浙江吕…</a>
 </h2>
 <p>一网打尽的好时机//@鸟瞰苍穹: //@李方平律师: 浙江吕洲宾律师也已经赶到天津。//@周泽律师:请大家自觉排队，不要拥挤。<br><br>RE: 【中国辩护人的辩护人的辩护人在接力！】程海，梁小军、李昱函、黄汉中等律师今晚星夜驰援在天津被限制自由的四位辩护律师蔡瑛、王磊、文东海、纪中久（李和平、王全璋律师等人的辩护人）。（图一后排被扣押律师，图二驰援律师）<br><img src="http://ww3.sinaimg.cn/large/6a80bfcdgw1f4ltrnny0yj20n30hetd2.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3983494998691479" target="freeweibo-mirror">SPAM #难以克服的恐惧症#这个压力山大不是阿门[亲亲] …</a>
 </h2>
