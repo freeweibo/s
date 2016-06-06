@@ -23,13 +23,13 @@
 </h2>
 <p>有这次的表现，王书记当副总理够格了吧？ //@徐辛XuXin:[话筒] //@一品泥人://@菲力先生:<br><br>RE: 加国总理的视频来了。http://t.cn/R5tz5O1</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3983353835863355" target="freeweibo-mirror">快封右边的号吧！[挖鼻]//@风中疾走:这届外长不行，如果是…</a>
 </h2>
 <p>快封右边的号吧！[挖鼻]//@风中疾走:这届外长不行，如果是敬爱的周总理面对记者这样的提问，肯定会睿智地回答：“谁说我们中国没有人权？我们有。。。在台湾！”现场会响起雷鸣般的掌声，经久不息。<br><br>RE: 加国总理的视频来了。http://t.cn/R5tz5O1</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3983353378458216" target="freeweibo-mirror">//@老刘在德克萨斯:外交部长出访友好国家因言行粗鲁制造出外…</a>
 </h2>
@@ -113,7 +113,7 @@
 </h2>
 <p>SPAM 自己穿过才敢推荐，喜欢的加 薇 ❤：aixie17</p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3983275850417836" target="freeweibo-mirror">SPAM #素颜自拍大赛# 黑了吗好美的腿腿哦一箩筐</a>
 </h2>
