@@ -107,7 +107,7 @@
 </h2>
 <p>SPAM 这倒并不能说明没朋友，而是无法交流。这场合只有长者还能应付，古月都不行，虽然是清华毕业的。一次多国首脑的会议上，照片显示别人扎堆的时候，古月好孤独的样子。//@枣庄天下第一庄: [哈哈][哈哈]//@陈__大嘴: 这就是传说中的“帅到没朋友”？[哈哈]<br><br>RE: 老大的表情真是帅呆了，酷毙了[耶]<br><img src="http://ww1.sinaimg.cn/large/006tak8igw1f4kon8kewfj30ie07w3zj.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3983140680265071" target="freeweibo-mirror">SPAM 求好心人转发</a>
 </h2>
