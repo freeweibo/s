@@ -119,7 +119,7 @@
 </h2>
 <p>//@铁塔微报://@利民微言:敢，不听话吗？//@海蓝翔2:“特色”卖国！罪魁祸首邓猫也！[衰][衰][衰]//@华夏wanziqianhong: 转发微博</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3983135932441927" target="freeweibo-mirror">SPAM //@LifeTime:</a>
 </h2>
