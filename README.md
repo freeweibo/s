@@ -71,7 +71,7 @@
 </h2>
 <p>[嘻嘻]//@博者文摘: //@VIXY:[笑cry][笑cry][笑cry] //@刘世坚:红星照我去战斗… //@萬子千紅:缴械了，拿什么去战斗？//@刘世坚: 政治错误啊！！菊（局）部比裆部重要… //@广州城堡堡主:竟然没有人告诉首长他穿反了[生病][生病] //@船人-老姚:哈哈哈[哈哈]<br><br>RE: 额…中间那位首长，你们的防弹衣穿反了，下面那玩意儿不是护臀…<br><img src="http://ww4.sinaimg.cn/large/6d5674bagw1f4ldiz8pzhj20kr0fognj.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3983359196077202" target="freeweibo-mirror">//@网易大明夜不收: 王奇葩[哈哈]//@情系南北疆:外交…</a>
 </h2>
