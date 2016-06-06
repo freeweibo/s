@@ -23,7 +23,7 @@
 </h2>
 <p>我们组个群，又没让群员发誓效忠群主，又不领饷，依法当然应该言责自负，凭什么追究群主，你们懂法吗</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3983289406515725" target="freeweibo-mirror">【好文分享】1、马航MH370客机失联真相终于揭 晓了！2、…</a>
 </h2>
@@ -71,7 +71,7 @@
 </h2>
 <p>SPAM 很多人都忘记了吧 //@北京磬石:香江，不能忘怀的帮助与坚守！</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3983166384052798" target="freeweibo-mirror">SPAM [色]很不错的鞋子哦，鞋子控的朋友可以+威芯：21…</a>
 </h2>
