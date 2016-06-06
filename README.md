@@ -95,13 +95,13 @@
 </h2>
 <p>SPAM 昨天，香港。<br><img src="http://ww4.sinaimg.cn/large/66ac8ae9jw1f4ksak4ufxj20lc0qogss.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3983148616437121" target="freeweibo-mirror">SPAM #张雪迎高考加油#上周看了张雪迎高考加油被绑架 简…</a>
 </h2>
 <p>SPAM #张雪迎高考加油#上周看了张雪迎高考加油被绑架 简直笑惨我了[c变脸][c变脸][c变脸]<br><br>RE: #张雪迎高考加油# 每一段路都是一种领悟，请记住每一片沿途的风景；每一段情都是一种幸福；请珍惜每一个爱你的人；每一种未来都是一种精彩，请谱写你的辉煌人生。<br><img src="http://ww3.sinaimg.cn/large/a15340b8jw1f4krci407nj20g40g3404.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3983148083734484" target="freeweibo-mirror">#张雪迎高考加油# 每一段路都是一种领悟，请记住每一片沿途的…</a>
 </h2>
