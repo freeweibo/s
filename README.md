@@ -35,7 +35,7 @@
 </h2>
 <p>//@王敏竹--反计救国: [伤心]//@非胖子:[伤心]//@龙之父ywc: //@回头係岸:转发微博<br><br>RE: 忍忍吧，孩子[傷心]王毅說了：中方愿帮助几内亚解决吃饭、就业、健康问题 http://t.cn/R5t36Ul .</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3983389416020468" target="freeweibo-mirror">SPAM 我也去//@彭园v://@摸着良心观社会:赶快申请…</a>
 </h2>
@@ -65,7 +65,7 @@
 </h2>
 <p>忍忍吧，孩子[傷心]王毅說了：中方愿帮助几内亚解决吃饭、就业、健康问题 http://t.cn/R5t36Ul .</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3983361501967184" target="freeweibo-mirror">[嘻嘻]//@博者文摘: //@VIXY:[笑cry][笑c…</a>
 </h2>
