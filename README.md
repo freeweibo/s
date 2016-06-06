@@ -41,7 +41,7 @@
 </h2>
 <p>SPAM 好好玩//@张锐强-写作者: 一样不一样，问女下属才知道。//@方达明的微博: 特殊材料。首长的宝贝跟常人位置不一样。<br><br>RE: 额…中间那位首长，你们的防弹衣穿反了，下面那玩意儿不是护臀…<br><img src="http://ww4.sinaimg.cn/large/6d5674bagw1f4ldiz8pzhj20kr0fognj.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3983392679258205" target="freeweibo-mirror">那几位太太为什么这么高兴啊？这表情不对啊[汗]//@老李随想…</a>
 </h2>
@@ -125,13 +125,13 @@
 </h2>
 <p>//@老刘在德克萨斯:外交部长出访友好国家因言行粗鲁制造出外交事件，惊动另一国元首两度公开表态，并通过官方外交渠道向神州表达不满，在神州外交史上也是绝无仅有。只能说当事人属于不可多得的外交奇葩。<br><br>RE: 加国总理的视频来了。http://t.cn/R5tz5O1</p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3983352451000500" target="freeweibo-mirror">[话筒] //@一品泥人://@菲力先生:</a>
 </h2>
 <p>[话筒] //@一品泥人://@菲力先生:<br><br>RE: 加国总理的视频来了。http://t.cn/R5tz5O1</p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3983352094777006" target="freeweibo-mirror">娶老婆就要这样的！不惧怕任何事，无论你在何处，致死相随！//…</a>
 </h2>
