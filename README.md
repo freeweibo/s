@@ -89,7 +89,7 @@
 </h2>
 <p>#张雪迎高考加油# 每一段路都是一种领悟，请记住每一片沿途的风景；每一段情都是一种幸福；请珍惜每一个爱你的人；每一种未来都是一种精彩，请谱写你的辉煌人生。<br><img src="http://ww3.sinaimg.cn/large/a15340b8jw1f4krci407nj20g40g3404.jpg"></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3983142245678873" target="freeweibo-mirror">SPAM 这倒并不能说明没朋友，而是无法交流。这场合只有长者…</a>
 </h2>
@@ -131,7 +131,7 @@
 </h2>
 <p>老大的表情真是帅呆了，酷毙了[耶]<br><img src="http://ww1.sinaimg.cn/large/006tak8igw1f4kon8kewfj30ie07w3zj.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3983122733925461" target="freeweibo-mirror">SPAM #极限挑战# 绵羊背后是小猪的摊位吗[笑cry][…</a>
 </h2>
