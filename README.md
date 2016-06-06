@@ -77,7 +77,7 @@
 </h2>
 <p>SPAM [色]很不错的鞋子哦，鞋子控的朋友可以+威芯：2131544268【诚招代理】</p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3983161526121093" target="freeweibo-mirror">SPAM 回复@卍囧:当然有意义。不忘记就是意义。//@卍囧…</a>
 </h2>
