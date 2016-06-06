@@ -115,6 +115,12 @@
 <p>
 	<small> ============== 7小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3983370801258165" target="freeweibo-mirror">关于@蔡瑛律师 、文东海、王磊、纪中久四位律师被天津警方围捕…</a>
+</h2>
+<p>关于@蔡瑛律师 、文东海、王磊、纪中久四位律师被天津警方围捕 并限制人身自由的情况通报      上述四位律师分别系709被抓捕律师和公民李和平、王宇、刘四新、翟岩民的辩护人。虽然之前有天津警方李斌口头违法解除律师的辩护权，但家属和辩护人始终未收到被关押人员要求解除的相关材料。家属和律师，尤...全文： http://m.weibo.cn/3486080964/3983370801258165...全文： http://m.weibo.cn/3486080964/3983370801258165<br><img src="http://ww4.sinaimg.cn/large/cfc95fc4gw1f4lgxfm8emj20no0hsdit.jpg"></p>
+<p>
+	<small> ============== 7小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3983361501967184" target="freeweibo-mirror">[嘻嘻]//@博者文摘: //@VIXY:[笑cry][笑c…</a>
 </h2>
 <p>[嘻嘻]//@博者文摘: //@VIXY:[笑cry][笑cry][笑cry] //@刘世坚:红星照我去战斗… //@萬子千紅:缴械了，拿什么去战斗？//@刘世坚: 政治错误啊！！菊（局）部比裆部重要… //@广州城堡堡主:竟然没有人告诉首长他穿反了[生病][生病] //@船人-老姚:哈哈哈[哈哈]<br><br>RE: 额…中间那位首长，你们的防弹衣穿反了，下面那玩意儿不是护臀…<br><img src="http://ww4.sinaimg.cn/large/6d5674bagw1f4ldiz8pzhj20kr0fognj.jpg"></p>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3983354287816606" target="freeweibo-mirror">有这次的表现，王书记当副总理够格了吧？ //@徐辛XuXin…</a>
 </h2>
 <p>有这次的表现，王书记当副总理够格了吧？ //@徐辛XuXin:[话筒] //@一品泥人://@菲力先生:<br><br>RE: 加国总理的视频来了。http://t.cn/R5tz5O1</p>
-<p>
-	<small> ============== 8小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3983354040937376" target="freeweibo-mirror">和平抗议也违法？懂法给普法吧</a>
-</h2>
-<p>和平抗议也违法？懂法给普法吧<br><br>RE: 因抗议@天津市人民检察院 第二分院违法办理李和平、王全璋、戈平等人案件，李和平太太王峭岭被带至天津挂甲寺派出所，王全璋太太李文足被抓，戈平太太樊丽丽也被国保控制。@平安天津 法治沦陷区。<br><img src="http://ww1.sinaimg.cn/large/867a7319jw1f4ld9d8svyj20no0hsaep.jpg"></p>
 <p>
 	<small> ============== 8小时前</small>
 </p>
