@@ -53,7 +53,7 @@
 </h2>
 <p>SPAM 这样一比买乐视max2值了，特别是双6版本。</p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3983855264166132" target="freeweibo-mirror">"据说下午巴盟前旗一个女生高考迟到了不让进考场 然后这个女生…</a>
 </h2>
