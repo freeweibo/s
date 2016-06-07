@@ -59,13 +59,13 @@
 </h2>
 <p>→_→[哈哈]//@律师王学明:[哈哈] //@乌半仙儿:右边</p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3983533506175312" target="freeweibo-mirror">[哈哈] //@乌半仙儿:右边</a>
 </h2>
 <p>[哈哈] //@乌半仙儿:右边</p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3983531820225269" target="freeweibo-mirror">右边</a>
 </h2>
@@ -109,6 +109,12 @@
 <p>
 	<small> ============== 12小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3983498291345780" target="freeweibo-mirror">惊闻弟妹李文足和其他709家属、辩护律师被天津市河西区挂甲寺…</a>
+</h2>
+<p>惊闻弟妹李文足和其他709家属、辩护律师被天津市河西区挂甲寺派出所警察带走，至今没有恢复自由，原因为何？几个弱女子去寻找丈夫，何罪之有？她们还有三到六岁的孩子们在家等妈妈。           谁能告诉我，这到底怎么了？！我们还有没有活路？！  709被捕律师王全璋姐姐王全秀  2016年6月6日<br><img src="http://ww2.sinaimg.cn/large/005VWRtdjw1f4lvjohrvrj30qo1bgalr.jpg"></p>
+<p>
+	<small> ============== 12小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3983497343271583" target="freeweibo-mirror">SPAM #难以克服的恐惧症#等着看看去就等着关注了知道了不…</a>
 </h2>
 <p>SPAM #难以克服的恐惧症#等着看看去就等着关注了知道了不 钱钱</p>
@@ -119,23 +125,17 @@
 </h2>
 <p>求关注<br><br>RE: 【中国辩护人的辩护人的辩护人在接力！】程海，梁小军、李昱函、黄汉中等律师今晚星夜驰援在天津被限制自由的四位辩护律师蔡瑛、王磊、文东海、纪中久（李和平、王全璋律师等人的辩护人）。（图一后排被扣押律师，图二驰援律师）<br><img src="http://ww3.sinaimg.cn/large/6a80bfcdgw1f4ltrnny0yj20n30hetd2.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3983496705982040" target="freeweibo-mirror">一网打尽的好时机//@鸟瞰苍穹: //@李方平律师: 浙江吕…</a>
 </h2>
 <p>一网打尽的好时机//@鸟瞰苍穹: //@李方平律师: 浙江吕洲宾律师也已经赶到天津。//@周泽律师:请大家自觉排队，不要拥挤。<br><br>RE: 【中国辩护人的辩护人的辩护人在接力！】程海，梁小军、李昱函、黄汉中等律师今晚星夜驰援在天津被限制自由的四位辩护律师蔡瑛、王磊、文东海、纪中久（李和平、王全璋律师等人的辩护人）。（图一后排被扣押律师，图二驰援律师）<br><img src="http://ww3.sinaimg.cn/large/6a80bfcdgw1f4ltrnny0yj20n30hetd2.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3983494998691479" target="freeweibo-mirror">SPAM #难以克服的恐惧症#这个压力山大不是阿门[亲亲] …</a>
 </h2>
 <p>SPAM #难以克服的恐惧症#这个压力山大不是阿门[亲亲] 惨死</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3983493652111272" target="freeweibo-mirror">SPAM #我们哈你# 我一定要去上海这个国际电影节的不一样…</a>
-</h2>
-<p>SPAM #我们哈你# 我一定要去上海这个国际电影节的不一样。[微笑] 往后甩；甩在脑后了</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
