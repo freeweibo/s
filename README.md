@@ -25,6 +25,12 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3983869319513310" target="freeweibo-mirror">//@美裙百灵鸟儿://@猎手瓦西里:官文化</a>
+</h2>
+<p>//@美裙百灵鸟儿://@猎手瓦西里:官文化<br><br>RE: 初中生提文化自信，除了枪杆子文化，除了你死我活的意识形态，除了死板硬套自家人搞自家人的阶级斗争，你朝还有什么文化？猫论算么？维稳算么？戴三个表算么？文化审查算么？党禁报禁算么？用意识形态阉割文化60年，用权力强奸文化60年，用监狱管理文化60年，今天突然说文化自信，你让文化情何以堪？<br><img src="http://ww3.sinaimg.cn/large/006rBA9ujw1f4n1f0xpjej30m80wek1k.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3983861199542484" target="freeweibo-mirror">SPAM 这样一比买乐视max2值了，特别是双6版本。</a>
 </h2>
 <p>SPAM 这样一比买乐视max2值了，特别是双6版本。</p>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3983809596354713" target="freeweibo-mirror">SPAM #黄子韬十九岁# 那么丑还拍电影，我去，眼瞎的去看…</a>
 </h2>
 <p>SPAM #黄子韬十九岁# 那么丑还拍电影，我去，眼瞎的去看你电影那时放假了，啊哈哈哈… [BOBO拜][BOBO拜][BOBO拜]</p>
-<p>
-	<small> ============== 6小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3983808775255647" target="freeweibo-mirror">【倒行逆施无极限 党企不分走太远】中国的《公司法》是不是要作…</a>
-</h2>
-<p>【倒行逆施无极限 党企不分走太远】中国的《公司法》是不是要作废了？中国的公司企业制度要回到35年前？这是宣告中国现代公司制度的死亡。http://t.cn/R5V7ND3<br><img src="http://ww4.sinaimg.cn/large/6b804b51gw1f4mv86ze6oj20ku112aem.jpg"></p>
 <p>
 	<small> ============== 6小时前</small>
 </p>
