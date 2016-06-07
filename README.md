@@ -41,7 +41,7 @@
 </h2>
 <p>SPAM [挖鼻屎]琳#张鲁一0607生日快乐#真的是不错，这样子的感觉超级好滴</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3983708699176778" target="freeweibo-mirror">SPAM #张鲁一0607生日快乐#都为你来庆生来了[亲一口…</a>
 </h2>
@@ -77,7 +77,7 @@
 </h2>
 <p>回复@玉米爸爸:是的，摆设。//@玉米爸爸:民主是这样的么？政协那么多民主党派都是摆设？<br><br>RE: 中国和朝鲜都不是民主国家，中国是一党专制，朝鲜是一家专制。</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3983695235088337" target="freeweibo-mirror">SPAM #新三味聊斋#很久以前就特别喜欢看这个节目了，真的…</a>
 </h2>
@@ -88,6 +88,12 @@
 	<a href="https://freeweibo.com/weibo/3983693695579502" target="freeweibo-mirror">SPAM #王青冯建宇无限斗界#[给劲]好期待无限斗界的啊！…</a>
 </h2>
 <p>SPAM #王青冯建宇无限斗界#[给劲]好期待无限斗界的啊！不得不说这不部电影真的是可以的，我要看。</p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3983692529708854" target="freeweibo-mirror">中国和朝鲜都不是民主国家，中国是一党专制，朝鲜是一家专制。</a>
+</h2>
+<p>中国和朝鲜都不是民主国家，中国是一党专制，朝鲜是一家专制。</p>
 <p>
 	<small> ============== 4小时前</small>
 </p><h2>
@@ -113,7 +119,7 @@
 </h2>
 <p>SPAM [给劲]有了他们陪我们看球，真的简直不要太爽了啊，哈哈#新三味聊斋# 野鸭</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3983677131861394" target="freeweibo-mirror">SPAM 照转。</a>
 </h2>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3983675206812315" target="freeweibo-mirror">//@陈光武律师://@张颖军律师:地方司法公安各自接回，这…</a>
 </h2>
 <p>//@陈光武律师://@张颖军律师:地方司法公安各自接回，这是什么节奏？[疑问]律师？访民？<br><br>RE: 【王磊、蔡瑛、文东海等律师在津交涉辩护权被湘豫公安、司法接走！】石玉：王磊律师于今日凌晨3点55分离开派出所，在门口看到程海等几位律师，但因有很多天津警察在，且距离较远未打上招呼，对此表示歉意。他被天津警察指与家属在一起拍照涉嫌扰乱公共秩序。王磊律师坚决否认，反驳两点：第一，事实并...全文： http://m.weibo.cn/1786822605/3983619687526463<br><img src="http://ww3.sinaimg.cn/large/6a80bfcdgw1f4m9igwakzj20k10zkq52.jpg"></p>
-<p>
-	<small> ============== 5小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3983673294755885" target="freeweibo-mirror">SPAM #电影危城# 回复惠弓Z长:有眼光～[阴险]  你…</a>
-</h2>
-<p>SPAM #电影危城# 回复惠弓Z长:有眼光～[阴险]  你要减肥了啦！！！！</p>
 <p>
 	<small> ============== 5小时前</small>
 </p>
