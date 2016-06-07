@@ -19,6 +19,18 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3983677131861394" target="freeweibo-mirror">SPAM 照转。</a>
+</h2>
+<p>SPAM 照转。<br><br>RE: 【聊备一格】最近某法学刊物的目录（局部）。<br><img src="http://ww1.sinaimg.cn/large/48866320jw1f4ly0uvzsfj20zk0qodju.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3983675206812315" target="freeweibo-mirror">//@陈光武律师://@张颖军律师:地方司法公安各自接回，这…</a>
+</h2>
+<p>//@陈光武律师://@张颖军律师:地方司法公安各自接回，这是什么节奏？[疑问]律师？访民？<br><br>RE: 【王磊、蔡瑛、文东海等律师在津交涉辩护权被湘豫公安、司法接走！】石玉：王磊律师于今日凌晨3点55分离开派出所，在门口看到程海等几位律师，但因有很多天津警察在，且距离较远未打上招呼，对此表示歉意。他被天津警察指与家属在一起拍照涉嫌扰乱公共秩序。王磊律师坚决否认，反驳两点：第一，事实并...全文： http://m.weibo.cn/1786822605/3983619687526463<br><img src="http://ww3.sinaimg.cn/large/6a80bfcdgw1f4m9igwakzj20k10zkq52.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3983665195519678" target="freeweibo-mirror">SPAM #撞脸男友#就让我们静静的看着你们两个撕从逼吧。</a>
 </h2>
 <p>SPAM #撞脸男友#就让我们静静的看着你们两个撕从逼吧。</p>
@@ -124,18 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3983498655724988" target="freeweibo-mirror">律师的挡箭牌也没啦！[鼓掌][鼓掌][鼓掌][鼓掌][鼓掌]…</a>
 </h2>
 <p>律师的挡箭牌也没啦！[鼓掌][鼓掌][鼓掌][鼓掌][鼓掌][鼓掌][鼓掌][鼓掌][鼓掌][鼓掌][鼓掌][鼓掌][鼓掌][鼓掌][鼓掌][鼓掌][鼓掌][鼓掌][鼓掌][鼓掌][鼓掌]//@李方平律师: 浙江吕洲宾律师也已经赶到天津。//@周泽律师:请大家自觉排队，不要拥挤。<br><br>RE: 【中国辩护人的辩护人的辩护人在接力！】程海，梁小军、李昱函、黄汉中等律师今晚星夜驰援在天津被限制自由的四位辩护律师蔡瑛、王磊、文东海、纪中久（李和平、王全璋律师等人的辩护人）。（图一后排被扣押律师，图二驰援律师）<br><img src="http://ww3.sinaimg.cn/large/6a80bfcdgw1f4ltrnny0yj20n30hetd2.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3983498291345780" target="freeweibo-mirror">惊闻弟妹李文足和其他709家属、辩护律师被天津市河西区挂甲寺…</a>
-</h2>
-<p>惊闻弟妹李文足和其他709家属、辩护律师被天津市河西区挂甲寺派出所警察带走，至今没有恢复自由，原因为何？几个弱女子去寻找丈夫，何罪之有？她们还有三到六岁的孩子们在家等妈妈。           谁能告诉我，这到底怎么了？！我们还有没有活路？！  709被捕律师王全璋姐姐王全秀  2016年6月6日<br><img src="http://ww2.sinaimg.cn/large/005VWRtdjw1f4lvjohrvrj30qo1bgalr.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3983497343271583" target="freeweibo-mirror">SPAM #难以克服的恐惧症#等着看看去就等着关注了知道了不…</a>
-</h2>
-<p>SPAM #难以克服的恐惧症#等着看看去就等着关注了知道了不 钱钱</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
