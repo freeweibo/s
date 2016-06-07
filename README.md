@@ -121,6 +121,12 @@
 <p>
 	<small> ============== 5小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3983619687526463" target="freeweibo-mirror">【王磊、蔡瑛、文东海等律师在津交涉辩护权被湘豫公安、司法接走…</a>
+</h2>
+<p>【王磊、蔡瑛、文东海等律师在津交涉辩护权被湘豫公安、司法接走！】石玉：王磊律师于今日凌晨3点55分离开派出所，在门口看到程海等几位律师，但因有很多天津警察在，且距离较远未打上招呼，对此表示歉意。他被天津警察指与家属在一起拍照涉嫌扰乱公共秩序。王磊律师坚决否认，反驳两点：第一，事实并...全文： http://m.weibo.cn/1786822605/3983619687526463<br><img src="http://ww3.sinaimg.cn/large/6a80bfcdgw1f4m9igwakzj20k10zkq52.jpg"></p>
+<p>
+	<small> ============== 6小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3983618811075868" target="freeweibo-mirror">SPAM 【今天更新】《@经典读物- 》提升您价值的深度阅读…</a>
 </h2>
 <p>SPAM 【今天更新】《@经典读物- 》提升您价值的深度阅读，引领图文阅读时代。<br><img src="http://ww4.sinaimg.cn/large/aa0a453djw1f4m9eli0c3j20ku112wki.jpg"></p>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3983534454515563" target="freeweibo-mirror">→_→[哈哈]//@律师王学明:[哈哈] //@乌半仙儿:右…</a>
 </h2>
 <p>→_→[哈哈]//@律师王学明:[哈哈] //@乌半仙儿:右边</p>
-<p>
-	<small> ============== 12小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3983533506175312" target="freeweibo-mirror">[哈哈] //@乌半仙儿:右边</a>
-</h2>
-<p>[哈哈] //@乌半仙儿:右边</p>
 <p>
 	<small> ============== 12小时前</small>
 </p>
