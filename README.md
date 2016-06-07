@@ -71,7 +71,7 @@
 </h2>
 <p>一会儿就不迷了//@陈业文新大都://@彭园v://@肖鹏_上海:现在的中国富豪一部人积极外移资产就是怕这个下场<br><br>RE: 【丧心病狂的文革】“文革”期间，北京郊区大兴县曾活埋“地富反坏右”。一位祖母抱着幼年的孙儿站立在坑中，四周有人挥揪填土，飞扬的尘土眯住了祖孙的眼睛。孙儿说：“奶奶，眯眼。”奶奶平静地说：“孩子，一会就不眯了。”当泥土填到胸部时，祖孙二人死去。死得静悄悄，连泥土都不曾蠕动一下!<br><img src="http://ww3.sinaimg.cn/large/006rhDbagw1f4l9iwb1c2j30c80fpjth.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3983662057562009" target="freeweibo-mirror">SPAM #点赞萌娃环卫工# [嘻嘻]体验真实的环卫工生活绝…</a>
 </h2>
@@ -131,7 +131,7 @@
 </h2>
 <p>SPAM 【今天更新】《@经典读物- 》提升您价值的深度阅读，引领图文阅读时代。<br><img src="http://ww4.sinaimg.cn/large/aa0a453djw1f4m9eli0c3j20ku112wki.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3983534454515563" target="freeweibo-mirror">→_→[哈哈]//@律师王学明:[哈哈] //@乌半仙儿:右…</a>
 </h2>
