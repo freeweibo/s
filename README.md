@@ -97,6 +97,12 @@
 <p>
 	<small> ============== 6小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3983982133813169" target="freeweibo-mirror">【中国中产阶层的保守与彷徨】曾于里：学界认为中产阶层是社会变…</a>
+</h2>
+<p>【中国中产阶层的保守与彷徨】曾于里：学界认为中产阶层是社会变革的推动器，但太多例子证明，中国中产阶层的政治属性并不明显，他们呈现出保守、自私与犬儒，是一种普遍现象，也有制度根源。 http://t.cn/R5VomtI</p>
+<p>
+	<small> ============== 6小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3983886394098454" target="freeweibo-mirror">SPAM #情感树洞#前男友跟我说放不下我，我在别人那里知道…</a>
 </h2>
 <p>SPAM #情感树洞#前男友跟我说放不下我，我在别人那里知道他找了个女朋友、我问他，他说跟他的现任没感情，像普通朋友一样，还说如果他跟她分了我跟他还有没有可能，过几天他生日说要我陪他过。<br><img src="http://ww2.sinaimg.cn/large/8063a3d3jw1f4n456fttoj20ku112ab2.jpg"></p>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3983862675434175" target="freeweibo-mirror">初中生提文化自信，除了枪杆子文化，除了你死我活的意识形态，除…</a>
 </h2>
 <p>初中生提文化自信，除了枪杆子文化，除了你死我活的意识形态，除了死板硬套自家人搞自家人的阶级斗争，你朝还有什么文化？猫论算么？维稳算么？戴三个表算么？文化审查算么？党禁报禁算么？用意识形态阉割文化60年，用权力强奸文化60年，用监狱管理文化60年，今天突然说文化自信，你让文化情何以堪？<br><img src="http://ww3.sinaimg.cn/large/006rBA9ujw1f4n1f0xpjej30m80wek1k.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3983861199542484" target="freeweibo-mirror">SPAM 这样一比买乐视max2值了，特别是双6版本。</a>
-</h2>
-<p>SPAM 这样一比买乐视max2值了，特别是双6版本。</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
