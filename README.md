@@ -59,7 +59,7 @@
 </h2>
 <p>SPAM 极高 //@柠檬Lemon笨笨:说的极好！这届的领导水平极高！<br><br>RE: 外国人不许对我们指手画脚[怒] http://t.cn/R5V4NRY .</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3983983736293806" target="freeweibo-mirror">【好文分享】1、新疆究竟有多大？终于知道为什么不包邮了！！2…</a>
 </h2>
