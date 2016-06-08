@@ -23,13 +23,13 @@
 </h2>
 <p>//@不沉默的大多数:现场千夫所指，群众怨声载道，再不刹住土匪作风，就民心扫地了。不能为人民服务的人民警察，就清理出纪律部队，要下决心规范执法。<br><br>RE: 40年党龄的上海老人徐银华给韩正书记的信——《给平民百姓动手铐非常不妥》。<br><img src="http://ww4.sinaimg.cn/large/6362d8eagw1f4nw4q8ulcj20v92u6wmc.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3984219119872360" target="freeweibo-mirror">退休老人轻信网络断章取义的视频。所以赞成禁止别有用心的的人现…</a>
 </h2>
 <p>退休老人轻信网络断章取义的视频。所以赞成禁止别有用心的的人现场拍摄，掐头去尾在网上造谣惑众。 //@安崇民:这种炒作，不外乎给网人一种恶劣印象：共产党领导干预执法，无端又抹黑！<br><br>RE: 40年党龄的上海老人徐银华给韩正书记的信——《给平民百姓动手铐非常不妥》。<br><img src="http://ww4.sinaimg.cn/large/6362d8eagw1f4nw4q8ulcj20v92u6wmc.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3984211205977398" target="freeweibo-mirror">#李泽楷坚决反对港独# 我也是坚决反对港独的 核爆炸</a>
 </h2>
@@ -43,11 +43,29 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3984206944532897" target="freeweibo-mirror">40年党龄，上海老人——致敬！[赞]//@南开学子岳麓书人:…</a>
+</h2>
+<p>40年党龄，上海老人——致敬！[赞]//@南开学子岳麓书人: 这位徐银华先生是不是改革开放初期热映电影《小街》的编剧啊，老人家真是令人钦佩。<br><br>RE: 40年党龄的上海老人徐银华给韩正书记的信——《给平民百姓动手铐非常不妥》。<br><img src="http://ww4.sinaimg.cn/large/6362d8eagw1f4nw4q8ulcj20v92u6wmc.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3984206188553505" target="freeweibo-mirror">想起二十几年前的事，应该在90年代初，老家有一户人家的女儿死…</a>
 </h2>
 <p>想起二十几年前的事，应该在90年代初，老家有一户人家的女儿死得不明不白，但由于毫无背景和关系，命案就如同踢皮球般。那父母作了一个惊人决定，女儿下葬时，给她穿了一套红衣服和红鞋，染了红指甲… 不知道口含了什么。出殡时花圈都是红的…[失望]可见父母的用意，让冤魂索命去。<br><br>RE: 刚要转，原博没了。【云南大理法院原副院长之子遭北京警方执法时坠楼】事发时为北京第二外国语学院大三学生；其父为云南省大理法院原副院长刘继业，他要求北京警方公布执法记录仪内容，但迄今一年半未果。 http://t.cn/R5fLK7O】<br><img src="http://ww1.sinaimg.cn/large/005vSjEdjw1f4o2nxak49j30k00riwiv.jpg"></p>
 <p>
 	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3984206021147268" target="freeweibo-mirror">这交警如何对待群众，大家今后就会如何对它嗤之以鼻。教师 医生…</a>
+</h2>
+<p>这交警如何对待群众，大家今后就会如何对它嗤之以鼻。教师 医生 记者 售货员等等。<br><br>RE: 上海市嘉定城区，交警暴力执法，真的是寒民心啊，拿着纳税人民的工资，不服务为民也就算了，这就是现在的人民警察，呵呵，不得民心，应遭天谴。求转发求扩散。让这些人民公仆不敢这样光明正大的欺负平民百姓。 http://t.cn/R2WJEdt http://t.cn/R5fvAm7 .</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3984204196598203" target="freeweibo-mirror">SPAM #全民好基友李子峰#太喜欢惹！！！ 就是喜欢这种f…</a>
+</h2>
+<p>SPAM #全民好基友李子峰#太喜欢惹！！！ 就是喜欢这种feel 鱼</p>
+<p>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3984197754611899" target="freeweibo-mirror">这位副院可能是走X家的人，普通国民遇冤，还能开微博，勇揭真相…</a>
 </h2>
@@ -83,17 +101,23 @@
 </h2>
 <p>SPAM #郑钧三里屯街头卖唱#我现在就先去听歌去了呀[酷]这个电影就是这么给力的呀[鼓掌]</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3984189025793180" target="freeweibo-mirror">SPAM [挤眼]胤#郑钧三里屯街头卖唱#这个电影是相当给力…</a>
 </h2>
 <p>SPAM [挤眼]胤#郑钧三里屯街头卖唱#这个电影是相当给力的</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3984188254680860" target="freeweibo-mirror">SPAM #我的黑道妹妹#大家都看到了不，是可以先来的呢 骆…</a>
 </h2>
 <p>SPAM #我的黑道妹妹#大家都看到了不，是可以先来的呢 骆驼生驴</p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3984187918738048" target="freeweibo-mirror">现场千夫所指，群众怨声载道，再不刹住土匪作风，就民心扫地了。…</a>
+</h2>
+<p>现场千夫所指，群众怨声载道，再不刹住土匪作风，就民心扫地了。不能为人民服务的人民警察，就清理出纪律部队，要下决心规范执法。<br><br>RE: 40年党龄的上海老人徐银华给韩正书记的信——《给平民百姓动手铐非常不妥》。<br><img src="http://ww4.sinaimg.cn/large/6362d8eagw1f4nw4q8ulcj20v92u6wmc.jpg"></p>
 <p>
 	<small> ============== 4小时前</small>
 </p><h2>
@@ -112,30 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3984184579728506" target="freeweibo-mirror">SPAM #诛仙戮仙作者萧鼎#现在看看去，这个青春岁月你们自…</a>
 </h2>
 <p>SPAM #诛仙戮仙作者萧鼎#现在看看去，这个青春岁月你们自己都知道的[酷库熊点头][握手][ok]</p>
-<p>
-	<small> ============== 4小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3984183267423721" target="freeweibo-mirror">SPAM #诛仙戮仙作者萧鼎#好喜欢呀，这个是相当的期待了，…</a>
-</h2>
-<p>SPAM #诛仙戮仙作者萧鼎#好喜欢呀，这个是相当的期待了，哈哈哈[鼓掌]上</p>
-<p>
-	<small> ============== 4小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3984178942589836" target="freeweibo-mirror">SPAM #小S单飞处女秀# 又可以看到小s的，幽默搞笑的节…</a>
-</h2>
-<p>SPAM #小S单飞处女秀# 又可以看到小s的，幽默搞笑的节目啦，太开心啦 老母鸡上树</p>
-<p>
-	<small> ============== 4小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3984178762887380" target="freeweibo-mirror">SPAM #小S单飞处女秀#小s从头到脚都是挺有女王气质的 …</a>
-</h2>
-<p>SPAM #小S单飞处女秀#小s从头到脚都是挺有女王气质的 属耗子的</p>
-<p>
-	<small> ============== 4小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3984178371941523" target="freeweibo-mirror">SPAM #小S单飞处女秀# 小s内地首秀我好期待。 木公金…</a>
-</h2>
-<p>SPAM #小S单飞处女秀# 小s内地首秀我好期待。 木公金母</p>
 <p>
 	<small> ============== 4小时前</small>
 </p>
