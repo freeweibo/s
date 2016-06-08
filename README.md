@@ -113,7 +113,7 @@
 </h2>
 <p>40年党龄，上海老人——致敬！[赞]//@南开学子岳麓书人: 这位徐银华先生是不是改革开放初期热映电影《小街》的编剧啊，老人家真是令人钦佩。<br><br>RE: 40年党龄的上海老人徐银华给韩正书记的信——《给平民百姓动手铐非常不妥》。<br><img src="http://ww4.sinaimg.cn/large/6362d8eagw1f4nw4q8ulcj20v92u6wmc.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3984206188553505" target="freeweibo-mirror">想起二十几年前的事，应该在90年代初，老家有一户人家的女儿死…</a>
 </h2>
