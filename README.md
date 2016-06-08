@@ -53,7 +53,7 @@
 </h2>
 <p>SPAM //@大藏布: 我觉得应该用铁板[偷笑]<br><br>RE: 杭州把小区无人住的房屋，全部用红色木板封起来。说为防G20期间有狙击手躲在里面，向G20车队开枪。<br><img src="http://ww4.sinaimg.cn/large/006pOYPigw1f4o2pqgcp7j30jy0zkacs.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3984223305853746" target="freeweibo-mirror">貌似根本没什么惩戒？//@zhudongjun:几个行凶的大…</a>
 </h2>
