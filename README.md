@@ -29,7 +29,7 @@
 </h2>
 <p>SPAM 唐僧说：“为师要吃西瓜。”两只猴子立马都变作了西瓜；</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3984243732722626" target="freeweibo-mirror">SPAM 这些行为属于电视的自救行为，即便不认同，也不必挖苦…</a>
 </h2>
