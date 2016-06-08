@@ -59,7 +59,7 @@
 </h2>
 <p>这等于承认土匪基因了嘛！看不懂~看不懂~//@袁东1972://@炼金术士gewesen:以后还会继续捕捉的 //@M-theLFFbless: 以前没见这么坦率。 //@能靠点儿谱吗:捕捉……感觉当时有产阶级是一种类似于野兔的存在……//@囧纳森V:“捕捉豪绅地主筹款很多” 啧啧 坦率得连看的人都有点不好意思了<br><br>RE: 难得看新闻联播。今天新闻联播第一条：方志敏。刚才说给上海党组织送了35两黄金...<br><img src="http://ww3.sinaimg.cn/large/82667517jw1f4o0w2hndej20rr0f278u.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3984226959472795" target="freeweibo-mirror">SPAM //@大藏布: 我觉得应该用铁板[偷笑]</a>
 </h2>
