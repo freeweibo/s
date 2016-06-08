@@ -77,13 +77,13 @@
 </h2>
 <p>//@不沉默的大多数:现场千夫所指，群众怨声载道，再不刹住土匪作风，就民心扫地了。不能为人民服务的人民警察，就清理出纪律部队，要下决心规范执法。<br><br>RE: 40年党龄的上海老人徐银华给韩正书记的信——《给平民百姓动手铐非常不妥》。<br><img src="http://ww4.sinaimg.cn/large/6362d8eagw1f4nw4q8ulcj20v92u6wmc.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3984219119872360" target="freeweibo-mirror">退休老人轻信网络断章取义的视频。所以赞成禁止别有用心的的人现…</a>
 </h2>
 <p>退休老人轻信网络断章取义的视频。所以赞成禁止别有用心的的人现场拍摄，掐头去尾在网上造谣惑众。 //@安崇民:这种炒作，不外乎给网人一种恶劣印象：共产党领导干预执法，无端又抹黑！<br><br>RE: 40年党龄的上海老人徐银华给韩正书记的信——《给平民百姓动手铐非常不妥》。<br><img src="http://ww4.sinaimg.cn/large/6362d8eagw1f4nw4q8ulcj20v92u6wmc.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3984218045976934" target="freeweibo-mirror">分享视频：监控视频曝光：北二外大学生宿舍楼深夜两次遭到多人持…</a>
 </h2>
