@@ -71,7 +71,7 @@
 </h2>
 <p>SPAM 关于那年那事（知道也不要说出来）的讲话。希望你们评论转发的时候不要说敏感词，谢谢！ http://t.cn/R5VcDk0 .</p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3983862675434175" target="freeweibo-mirror">初中生提文化自信，除了枪杆子文化，除了你死我活的意识形态，除…</a>
 </h2>
