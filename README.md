@@ -41,7 +41,7 @@
 </h2>
 <p>//@美裙百灵鸟儿://@猎手瓦西里:官文化<br><br>RE: 初中生提文化自信，除了枪杆子文化，除了你死我活的意识形态，除了死板硬套自家人搞自家人的阶级斗争，你朝还有什么文化？猫论算么？维稳算么？戴三个表算么？文化审查算么？党禁报禁算么？用意识形态阉割文化60年，用权力强奸文化60年，用监狱管理文化60年，今天突然说文化自信，你让文化情何以堪？<br><img src="http://ww3.sinaimg.cn/large/006rBA9ujw1f4n1f0xpjej30m80wek1k.jpg"></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3983866123284468" target="freeweibo-mirror">SPAM 关于那年那事（知道也不要说出来）的讲话。希望你们评…</a>
 </h2>
@@ -65,7 +65,7 @@
 </h2>
 <p>"据说下午巴盟前旗一个女生高考迟到了不让进考场 然后这个女生就从22楼跳了下来[吃惊]#秒拍网事#" 我的秒拍作品,一起来看~http://t.cn/R5VGmLW（使用#秒拍#录制）</p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3983850713437554" target="freeweibo-mirror">美国。“嗯……妈，有事吗？”“没事，就是挺想你”“好啦好啦，…</a>
 </h2>
@@ -125,13 +125,13 @@
 </h2>
 <p>SPAM #什么让你变圆了# #杨幂##杨幂今天6了呀##电视剧三生三世十里桃花#85后第一位vouge副刊小花旦，引领young power。好厉害的样子。不过你够努力有资本。 任重道远</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3983831691731755" target="freeweibo-mirror">SPAM #李子峰杨宽#经典的不知道该怎样珍惜才好，稀罕，好…</a>
 </h2>
 <p>SPAM #李子峰杨宽#经典的不知道该怎样珍惜才好，稀罕，好喜欢呢。 短得见不了人</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3983827317620678" target="freeweibo-mirror">SPAM #张鲁一生日快乐#其实也是冲着这个张鲁一来的[转发…</a>
 </h2>
