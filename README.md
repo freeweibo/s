@@ -41,7 +41,7 @@
 </h2>
 <p>#李泽楷坚决反对港独# 支持李泽楷，香港是中国的 脑波</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3984206944532897" target="freeweibo-mirror">40年党龄，上海老人——致敬！[赞]//@南开学子岳麓书人:…</a>
 </h2>
@@ -64,6 +64,12 @@
 	<a href="https://freeweibo.com/weibo/3984204196598203" target="freeweibo-mirror">SPAM #全民好基友李子峰#太喜欢惹！！！ 就是喜欢这种f…</a>
 </h2>
 <p>SPAM #全民好基友李子峰#太喜欢惹！！！ 就是喜欢这种feel 鱼</p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3984201231832064" target="freeweibo-mirror">【雷洋案主要诉求：确认雷洋死因及到底有无嫖娼】代理律师龚女士…</a>
+</h2>
+<p>【雷洋案主要诉求：确认雷洋死因及到底有无嫖娼】代理律师龚女士称，她与雷洋的妻子今日上午见了检方工作人员，主要确认了代理律师委托手续问题，了解案件进展，并向检方咨询了尸检鉴定报告及目前情况。目前案子的主要诉求，律师方面主要为维护雷洋家属合法权益，确认雷洋死因，以及到底有没有嫖娼。<br><img src="http://ww1.sinaimg.cn/large/59183920gw1f4o4auvestj20fa05y75h.jpg"></p>
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3984187197323725" target="freeweibo-mirror">刚要转，原博没了。【云南大理法院原副院长之子遭北京警方执法时…</a>
 </h2>
 <p>刚要转，原博没了。【云南大理法院原副院长之子遭北京警方执法时坠楼】事发时为北京第二外国语学院大三学生；其父为云南省大理法院原副院长刘继业，他要求北京警方公布执法记录仪内容，但迄今一年半未果。 http://t.cn/R5fLK7O】<br><img src="http://ww1.sinaimg.cn/large/005vSjEdjw1f4o2nxak49j30k00riwiv.jpg"></p>
-<p>
-	<small> ============== 4小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3984184579728506" target="freeweibo-mirror">SPAM #诛仙戮仙作者萧鼎#现在看看去，这个青春岁月你们自…</a>
-</h2>
-<p>SPAM #诛仙戮仙作者萧鼎#现在看看去，这个青春岁月你们自己都知道的[酷库熊点头][握手][ok]</p>
 <p>
 	<small> ============== 4小时前</small>
 </p>
