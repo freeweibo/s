@@ -23,7 +23,7 @@
 </h2>
 <p>SPAM #701魔轮失控事件#哈哈对的呢，我现在就是在等蔓着看的哟</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3984131463393492" target="freeweibo-mirror">SPAM 出发！#IMAX3D魔兽#</a>
 </h2>
@@ -77,7 +77,7 @@
 </h2>
 <p>SPAM #浙江高考VS虚拟现实#如此有深度的[草泥马]这个考题也是不怎么好写的。提醒不知道怎么想的。</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3984098441919659" target="freeweibo-mirror">SPAM 每个人，都是从天上掉落到凡尘的天使。因为是天天上掉…</a>
 </h2>
