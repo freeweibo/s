@@ -35,13 +35,13 @@
 </h2>
 <p>方是淘金子的？//@Merlot杜樱: //@俊达翡翠://@M-theLFFbless: 以前没见这么坦率。 //@能靠点儿谱吗:捕捉……感觉当时有产阶级是一种类似于野兔的存在……//@囧纳森V:“捕捉豪绅地主筹款很多” 啧啧 坦率得连看的人都有点不好意思了<br><br>RE: 难得看新闻联播。今天新闻联播第一条：方志敏。刚才说给上海党组织送了35两黄金...<br><img src="http://ww3.sinaimg.cn/large/82667517jw1f4o0w2hndej20rr0f278u.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3984232311161311" target="freeweibo-mirror">SPAM 听 @王凯kkw 的推荐没错。完美无瑕的动人明眸，…</a>
 </h2>
 <p>SPAM 听 @王凯kkw 的推荐没错。完美无瑕的动人明眸，不会说谎；真诚明亮的眼神，用心传递正能量。</p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3984230595504906" target="freeweibo-mirror">这等于承认土匪基因了嘛！看不懂~看不懂~//@袁东1972:…</a>
 </h2>
