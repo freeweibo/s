@@ -47,7 +47,7 @@
 </h2>
 <p>SPAM #情感树洞#前男友跟我说放不下我，我在别人那里知道他找了个女朋友、我问他，他说跟他的现任没感情，像普通朋友一样，还说如果他跟她分了我跟他还有没有可能，过几天他生日说要我陪他过。<br><img src="http://ww2.sinaimg.cn/large/8063a3d3jw1f4n456fttoj20ku112ab2.jpg"></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3983877997351947" target="freeweibo-mirror">SPAM 唉，这规定不太人道，让进又不影响什么？何苦为难考生…</a>
 </h2>
@@ -107,7 +107,7 @@
 </h2>
 <p>//@大大陈以轩: //@王楚襄在晋国:[汗][汗]//@王甫律师:北京警方请告诉我，贵局是否有这样的匪徒？如果有，有多少？<br><br>RE: 【五警察围殴翟嫂，又增添一个中国酷刑事件】翟岩民夫人刘二敏，今天早上被北京门头沟永城镇派出所从天津挂甲寺派出所接回在北京，在北京永城镇派出所遭到四个男警察一个女警察的围殴，昏厥了二十分钟。<br><img src="http://ww1.sinaimg.cn/large/b494f6bajw1f4mybyvv2pj20hs0no0x6.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3983847660125645" target="freeweibo-mirror">SPAM #陈伟霆爵迹幽冥#继续努力吧，现在你还是事业的上升…</a>
 </h2>
