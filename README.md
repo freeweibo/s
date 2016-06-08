@@ -41,7 +41,7 @@
 </h2>
 <p>SPAM //@贺金云-://@正义哨兵://@8度新闻://@-蓝色-心情://@三番转世仁波切://@活得轻松些真是不容易:癫狂变态。<br><br>RE: 杭州把小区无人住的房屋，全部用红色木板封起来。说为防G20期间有狙击手躲在里面，向G20车队开枪。<br><img src="http://ww4.sinaimg.cn/large/006pOYPigw1f4o2pqgcp7j30jy0zkacs.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3984211205977398" target="freeweibo-mirror">#李泽楷坚决反对港独# 我也是坚决反对港独的 核爆炸</a>
 </h2>
