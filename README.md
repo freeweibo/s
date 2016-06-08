@@ -19,6 +19,18 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3984116313420523" target="freeweibo-mirror">SPAM #深圳妖男西红士#[dino热]备受瞩目的深圳妖男…</a>
+</h2>
+<p>SPAM #深圳妖男西红士#[dino热]备受瞩目的深圳妖男西红士已占据我心，顶呀……</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3984112564467160" target="freeweibo-mirror">SPAM #深圳妖男西红士#[dx加油]绝对真心的感觉网络人…</a>
+</h2>
+<p>SPAM #深圳妖男西红士#[dx加油]绝对真心的感觉网络人气超高的深圳妖男西红士很棒，真滴不错。。。。。。</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3984104556420612" target="freeweibo-mirror">这是发生在上海嘉定，警察跪在女人身上，旁边的警官手中拿着一沓…</a>
 </h2>
 <p>这是发生在上海嘉定，警察跪在女人身上，旁边的警官手中拿着一沓罚款收据，看来他们为了罚款创收，个个都是全力以赴。L秒拍视频<br><img src="http://ww1.sinaimg.cn/large/cb787320jw1f4nt20igkij20gc0dhta7.jpg"></p>
@@ -124,18 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3984066070004095" target="freeweibo-mirror">难怪有贪官感慨党恩大于天//@李建明10799:爹亲娘亲不如…</a>
 </h2>
 <p>难怪有贪官感慨党恩大于天//@李建明10799:爹亲娘亲不如档亲，，，<br><br>RE: 【有感于山西二万多干部主动退脏一亿七千万元】山西省委书记王儒林做客中纪委监察部网站谈到：山西二万多干部主动退脏一亿七千万。我初略测算了一下人均退脏8500元，按当时受贿5000元即可刑事立案标准，这两万多干部都涉嫌刑事犯罪。如果都严格依法追究，山西将无干部可用。看来法不责众是对的，对腐败...全文： http://m.weibo.cn/3198720857/3983791398033018<br><img src="http://ww3.sinaimg.cn/large/bea89b59jw1f4mslxizrbj20q8150djh.jpg"></p>
-<p>
-	<small> ============== 5小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3984065491180432" target="freeweibo-mirror">//@唐武举人_魅族:逐渐分不清楚这么优秀的制度为什么会出这…</a>
-</h2>
-<p>//@唐武举人_魅族:逐渐分不清楚这么优秀的制度为什么会出这么多烂人，还是这个制度存在就是为了养这些烂人？<br><br>RE: 【有感于山西二万多干部主动退脏一亿七千万元】山西省委书记王儒林做客中纪委监察部网站谈到：山西二万多干部主动退脏一亿七千万。我初略测算了一下人均退脏8500元，按当时受贿5000元即可刑事立案标准，这两万多干部都涉嫌刑事犯罪。如果都严格依法追究，山西将无干部可用。看来法不责众是对的，对腐败...全文： http://m.weibo.cn/3198720857/3983791398033018<br><img src="http://ww3.sinaimg.cn/large/bea89b59jw1f4mslxizrbj20q8150djh.jpg"></p>
-<p>
-	<small> ============== 5小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3984064773711854" target="freeweibo-mirror">强生真特么有种，接下来就看中国人有没有种，坚持不买强生了，我…</a>
-</h2>
-<p>强生真特么有种，接下来就看中国人有没有种，坚持不买强生了，我肯定不买了<br><br>RE: 前两天何韵诗被兰蔻终止合作后，强生旗下李施德林宣布放弃大陆市场，李施德林香港官网已经放上何韵诗代言的广告了。强生旗下品牌有：强生婴儿，可伶可俐，李施德林，邦迪，大宝，泰诺，露得清，娇爽，达克宁等等，大家注意避让[微笑]<br><img src="http://ww1.sinaimg.cn/large/006mP2ksgw1f4mtkm32vcj30ky104406.jpg"></p>
 <p>
 	<small> ============== 5小时前</small>
 </p>
