@@ -29,7 +29,7 @@
 </h2>
 <p>#内蒙古全记录# [吃惊][吃惊][吃惊]【内蒙古乌拉特前旗一高考女生跳楼死轻生】2016年6月7日15时06分，乌拉特前旗公安局110接到报警称：有人要在紫东建材城跳楼（后调查系本人报警）。接警后，途中出警民警拨打报警人电话均拒接。出警民警到达乌拉山镇紫东建材城现场后，立即开展现场封闭、劝解疏导和救...全文： http://m.weibo.cn/1649229124/3983992971068263<br><img src="http://ww1.sinaimg.cn/large/624d3d44jw1f4nga2wn3xj20yi0ommzt.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3983988345122443" target="freeweibo-mirror">SPAM 极高 //@柠檬Lemon笨笨:说的极好！这届的领…</a>
 </h2>
@@ -95,13 +95,13 @@
 </h2>
 <p>外国人不许对我们指手画脚[怒] http://t.cn/R5V4NRY .</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3983850080664408" target="freeweibo-mirror">SPAM [熊猫]#铁道飞虎1216干票大的#嘻嘻这都是我们…</a>
 </h2>
 <p>SPAM [熊猫]#铁道飞虎1216干票大的#嘻嘻这都是我们想要先去关注的 洁净度</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3983848452589516" target="freeweibo-mirror">//@大大陈以轩: //@王楚襄在晋国:[汗][汗]//@王…</a>
 </h2>
