@@ -29,7 +29,7 @@
 </h2>
 <p>SPAM 出发！#IMAX3D魔兽#<br><img src="http://ww2.sinaimg.cn/large/63ee9e7cgw1f4nwa78p9gj20qo147dqu.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3984128888194918" target="freeweibo-mirror">SPAM #好色就来玩# 表白宋茜</a>
 </h2>
@@ -53,7 +53,7 @@
 </h2>
 <p>SPAM #深圳妖男西红士#[dino热]备受瞩目的深圳妖男西红士已占据我心，顶呀……</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3984112564467160" target="freeweibo-mirror">SPAM #深圳妖男西红士#[dx加油]绝对真心的感觉网络人…</a>
 </h2>
