@@ -29,7 +29,7 @@
 </h2>
 <p>SPAM 赶紧上车</p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3984610365448442" target="freeweibo-mirror">SPAM 简洁 [心]</a>
 </h2>
@@ -77,7 +77,7 @@
 </h2>
 <p>SPAM #端午金曲捞#有点意茗思来的啊</p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3984553314494039" target="freeweibo-mirror">吓死老夫！还真有其事？谁知道真假？[吃惊][吃惊]</a>
 </h2>
