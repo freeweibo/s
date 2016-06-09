@@ -41,7 +41,7 @@
 </h2>
 <p>直到遇上了以色列<br><br>RE: #中穆百科#在伊斯兰历史上，阿拉伯大军在斋月发起的战役往往都赢得了胜利。先知穆罕默德本人也曾参加过数次斋月战役。正值伊斯兰神圣的斋月之际，本文简单回顾一下自先知时代以来穆斯林参加的重要斋月战役。 http://t.cn/R5fEqBO<br><img src="http://ww3.sinaimg.cn/large/41695b2cjw1f4opyi2lxbj20br0aedh0.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3984446295928306" target="freeweibo-mirror">//@赛县长:1.“斋月代表安乐和祥和。”2.斋月战争被以色…</a>
 </h2>
