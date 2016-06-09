@@ -89,7 +89,7 @@
 </h2>
 <p>自媒体都快被管死了，动不动就封，还说管得不细，怎么个细法？每台手机上陪个纪检干部？</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3984454332013140" target="freeweibo-mirror">//@曾朗说事: 转发微博</a>
 </h2>
