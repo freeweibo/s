@@ -29,7 +29,7 @@
 </h2>
 <p>官商勾结 //@鲲鹏展翅qd: //@duxl5656://@xiao草青qing89: //@非常健康海洋: //@上海鱼鱼1: //@但斌:<br><br>RE: 销声匿迹好一阵子后，最近任志强先生又公开现身了，6月5日他在第四届中国企业绿色契约论坛上讲："我们地价占房价 70%以上，6万块钱一平米的房价有四万二大概是政府地价。"我只有佩服他持续作战的精神了，尽管很多人不喜欢他，但我认为，他是好样的！房价高的最主要因素就是政府拿得太狠了，史无前例！<br><img src="http://ww3.sinaimg.cn/large/5411bc3bgw1f4orfkbkk9j20bk0bcwfa.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3984475710816432" target="freeweibo-mirror">SPAM #端午金曲捞#这个《端午金曲捞》已经来了震吗，哈哈</a>
 </h2>
@@ -107,7 +107,7 @@
 </h2>
 <p>//@赛县长:1.“斋月代表安乐和祥和。”2.斋月战争被以色列按着暴打。<br><br>RE: #中穆百科#在伊斯兰历史上，阿拉伯大军在斋月发起的战役往往都赢得了胜利。先知穆罕默德本人也曾参加过数次斋月战役。正值伊斯兰神圣的斋月之际，本文简单回顾一下自先知时代以来穆斯林参加的重要斋月战役。 http://t.cn/R5fEqBO<br><img src="http://ww3.sinaimg.cn/large/41695b2cjw1f4opyi2lxbj20br0aedh0.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3984445520803816" target="freeweibo-mirror">SPAM #高管为你接驾# 如果有高管为我接驾的话我一定会特…</a>
 </h2>
