@@ -47,13 +47,19 @@
 </h2>
 <p>//@正义哨兵:抓嫖，强拆日你妈来的快的狠[怒]@笑淡指尖:[吃惊]//@记者钱莽墩: 报警说有人嫖娼，警察马上到，学到起。<br><br>RE: 山东兖州8号晚四个人贩子抢夺一孩子并殴打孩子母亲和奶奶，孩子被周围群众夺回，一个人贩子被抓住群殴，报警后警察迟迟才到引发兖州民众不满，警车被掀翻！@曾朗说事 @法网 @地球新媒体 @不敢说话的屁民<br><img src="http://ww3.sinaimg.cn/large/a54305b7jw1f4obmuxtk4j20ku112jul.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3984400020537528" target="freeweibo-mirror">SPAM #别那么骄傲#现在看来，这个题材估计也是还可以 头…</a>
 </h2>
 <p>SPAM #别那么骄傲#现在看来，这个题材估计也是还可以 头头是道</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3984399969924392" target="freeweibo-mirror">SPAM //@周锦虹: 这仗白打了。</a>
+</h2>
+<p>SPAM //@周锦虹: 这仗白打了。<br><br>RE: 解放区路边卖菜的-------[白眼]--------国统区路边卖菜的。<br><img src="http://ww2.sinaimg.cn/large/006uljo5jw1f4o1iaql2bj30hs0nqmzt.jpg"></p>
+<p>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3984394916441332" target="freeweibo-mirror">警察出警不力警车被掀翻？//@大尸凶的漫画: 警察蜀黍不该把…</a>
 </h2>
@@ -95,7 +101,7 @@
 </h2>
 <p>【要做“人权律师”的六岁女孩】英国《卫报》专访人权律师家庭：李和平律师六岁女孩李佳美不仅要“救爸爸”，而且立志要成为人权律师。<br><img src="http://ww4.sinaimg.cn/large/6a80bfcdjw1f4onnlqi9xj20hs0vkdjn.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3984366038556543" target="freeweibo-mirror">SPAM 打得好！！[怒]</a>
 </h2>
@@ -132,12 +138,6 @@
 <p>我是来看评论的~//@博者文摘:转发微博<br><br>RE: 今晚新闻联播在说方志敏，我爸问，方志敏是怎么死的？我说，他因为绑架杀人被判死刑。“方志敏是烈士，国民党杀共产党要什么理由”。“他绑票美国传教士师达能夫妇，勒索不成就用大刀砍死，国际影响恶劣，所以国府集中围剿他，经过公开审判，判处死刑”。我爸说：你胡说八道！我说，你用手机浏览器搜一...全文： http://m.weibo.cn/2619081145/3984181950055172</p>
 <p>
 	<small> ============== 8小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3984312191880899" target="freeweibo-mirror">SPAM 想边吃边so？戳图↓↓↓看她的秘诀！</a>
-</h2>
-<p>SPAM 想边吃边so？戳图↓↓↓看她的秘诀！</p>
-<p>
-	<small> ============== 9小时前</small>
 </p>
 <table>
     <tr>
