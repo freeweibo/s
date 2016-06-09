@@ -29,7 +29,7 @@
 </h2>
 <p>//@智谷的吴扬文:原来！！lS//@安豐邑:➕ //@蔚蓝1916ROC:原来红色影视里无比残暴邪恶的“日本鬼子””国民党反动派”都是有真实原型的……<br><br>RE: 刚才看了一下！确实我搞错了！方志敏根本没动手！冤枉方志敏了！请大家帮忙转发一下！肥肠惭愧！<br><img src="http://ww4.sinaimg.cn/large/9c1c01b9gw1f4o99xfqt2j20qo1beqdi.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3984334409050290" target="freeweibo-mirror">我是来看评论的~//@博者文摘:转发微博</a>
 </h2>
@@ -60,6 +60,12 @@
 <p>SPAM 唐僧说：“为师要吃西瓜。”两只猴子立马都变作了西瓜；</p>
 <p>
 	<small> ============== 7小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3984244809705071" target="freeweibo-mirror">刚才看了一下！确实我搞错了！方志敏根本没动手！冤枉方志敏了！…</a>
+</h2>
+<p>刚才看了一下！确实我搞错了！方志敏根本没动手！冤枉方志敏了！请大家帮忙转发一下！肥肠惭愧！<br><img src="http://ww4.sinaimg.cn/large/9c1c01b9gw1f4o99xfqt2j20qo1beqdi.jpg"></p>
+<p>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3984243732722626" target="freeweibo-mirror">SPAM 这些行为属于电视的自救行为，即便不认同，也不必挖苦…</a>
 </h2>
@@ -125,17 +131,11 @@
 </h2>
 <p>SPAM //@贺金云-://@正义哨兵://@8度新闻://@-蓝色-心情://@三番转世仁波切://@活得轻松些真是不容易:癫狂变态。<br><br>RE: 杭州把小区无人住的房屋，全部用红色木板封起来。说为防G20期间有狙击手躲在里面，向G20车队开枪。<br><img src="http://ww4.sinaimg.cn/large/006pOYPigw1f4o2pqgcp7j30jy0zkacs.jpg"></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3984211205977398" target="freeweibo-mirror">#李泽楷坚决反对港独# 我也是坚决反对港独的 核爆炸</a>
 </h2>
 <p>#李泽楷坚决反对港独# 我也是坚决反对港独的 核爆炸</p>
-<p>
-	<small> ============== 11小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3984210458701974" target="freeweibo-mirror">SPAM #李泽楷坚决反对港独# 我觉得这就是他的立场，所以…</a>
-</h2>
-<p>SPAM #李泽楷坚决反对港独# 我觉得这就是他的立场，所以得，支持。 解释</p>
 <p>
 	<small> ============== 11小时前</small>
 </p>
