@@ -53,7 +53,7 @@
 </h2>
 <p>//@青海湖之旅201605:瓜瓜好样滴//@加m菲炮1314Cat:转发微博<br><br>RE: 吓死老夫！还真有其事？谁知道真假？[吃惊][吃惊]<br><img src="http://ww3.sinaimg.cn/large/006iVk1Djw1f4p8pdet4xj30k00k040x.jpg"></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3984570099578266" target="freeweibo-mirror">SPAM 解密潮流银饰,玩转你的in系配搭。@WuGeAte…</a>
 </h2>
@@ -95,7 +95,7 @@
 </h2>
 <p>周三应该很放心吧 不过上周三貌似北京高？年前最后一个 和绝对配角：锅锅 这是一档新鲜出炉的综艺脱口秀节目周三#四大名助#</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3984540408347923" target="freeweibo-mirror">SPAM #一句话证明你是单身汪# 简直棒的要爆炸！！终于可…</a>
 </h2>
