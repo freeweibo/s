@@ -23,7 +23,13 @@
 </h2>
 <p>关注@科技新一 转发此微博，即有机会得到@小米电视 送的小米电视60寸，70寸，小米MAX,小米手环2等等[偷笑]</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3984793324432939" target="freeweibo-mirror">回复@brahman:警權很尷尬，該作為的時候，不敢動，畏手…</a>
+</h2>
+<p>回复@brahman:警權很尷尬，該作為的時候，不敢動，畏手畏腳。該收斂的時候，卻肆無忌憚。//@brahman:给警察加工资，不给法官检查官加工资，这样的结果很正常，以后会更常见，更严重//@不如忍俊:公安部新領導到位，整頓在即。//@麻子王四:同意</p>
+<p>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3984787460594682" target="freeweibo-mirror">SPAM #跑男方特# 谁能告诉我是真的事假的</a>
 </h2>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3984573693544474" target="freeweibo-mirror">//@青海湖之旅201605:瓜瓜好样滴//@加m菲炮131…</a>
 </h2>
 <p>//@青海湖之旅201605:瓜瓜好样滴//@加m菲炮1314Cat:转发微博<br><br>RE: 吓死老夫！还真有其事？谁知道真假？[吃惊][吃惊]<br><img src="http://ww3.sinaimg.cn/large/006iVk1Djw1f4p8pdet4xj30k00k040x.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3984570099578266" target="freeweibo-mirror">SPAM 解密潮流银饰,玩转你的in系配搭。@WuGeAte…</a>
-</h2>
-<p>SPAM 解密潮流银饰,玩转你的in系配搭。@WuGeAtelier<br><img src="http://ww2.sinaimg.cn/large/70623bbbgw1f4p6erchy8j21ho1honhx.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
