@@ -77,7 +77,7 @@
 </h2>
 <p>SPAM [威武]#全员加速中#我现在已经看到了这个《全员加速中》这样子的综艺节目了 [cqname]死了</p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3984885343338358" target="freeweibo-mirror">SPAM #1931公演#感觉国内女子偶像组看到这个5月13…</a>
 </h2>
