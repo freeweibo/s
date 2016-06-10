@@ -29,7 +29,7 @@
 </h2>
 <p>SPAM 赶紧上车</p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3984610365448442" target="freeweibo-mirror">SPAM 简洁 [心]</a>
 </h2>
