@@ -77,23 +77,29 @@
 </h2>
 <p>SPAM #跑男方特# 谁能告诉我是真的事假的</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3984787302038915" target="freeweibo-mirror">@平安昌平 @公安部打四黑除四害 这样的王八蛋警察真的是少数…</a>
 </h2>
 <p>@平安昌平 @公安部打四黑除四害 这样的王八蛋警察真的是少数吗？<br><br>RE: #老谈说事# 【警察难道没结婚？】这是21号发生在深圳宝安西乡流塘大门口的事情，两名女孩出去逛街，被警察检查身份证…后被依法强制传唤！在去派出所的路上她偷偷录下这么一段视频…  http://t.cn/R5vsTKn</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3984786668863429" target="freeweibo-mirror">SPAM 谁来除？//@法律人童朝平:【恶警不除，你的孩子、…</a>
 </h2>
 <p>SPAM 谁来除？//@法律人童朝平:【恶警不除，你的孩子、不安全！】<br><br>RE: 【恶警不除，你的孩子、不安全！】 雷洋为什么会死？不将黑恶警察绳之以法，孩子不会有安全！ @中国政府网  @公安部刑侦局 http://t.cn/R5vsTKn</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3984786433369833" target="freeweibo-mirror">SPAM 【恶警不除，你的孩子、不安全！】</a>
 </h2>
 <p>SPAM 【恶警不除，你的孩子、不安全！】<br><br>RE: 【恶警不除，你的孩子、不安全！】 雷洋为什么会死？不将黑恶警察绳之以法，孩子不会有安全！ @中国政府网  @公安部刑侦局 http://t.cn/R5vsTKn</p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3984786080798825" target="freeweibo-mirror">【恶警不除，你的孩子、不安全！】 雷洋为什么会死？不将黑恶警…</a>
+</h2>
+<p>【恶警不除，你的孩子、不安全！】 雷洋为什么会死？不将黑恶警察绳之以法，孩子不会有安全！ @中国政府网  @公安部刑侦局 http://t.cn/R5vsTKn</p>
 <p>
 	<small> ============== 4小时前</small>
 </p><h2>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3984749804758294" target="freeweibo-mirror">SPAM 懂了 //@北京崔卫平:转： 这里逻辑看懂没？1、…</a>
 </h2>
 <p>SPAM 懂了 //@北京崔卫平:转： 这里逻辑看懂没？1、以后经公安同意，精神病院可收治正常人。2、之前未经公安同意，精神病院收治了正常人。3、之前经公安同意，精神病院收治了正常人。4、是不是收治精神病，不是医院说了算，是公安......太吓人了。都吓成精神病了。<br><br>RE: 说漏了<br><img src="http://ww4.sinaimg.cn/large/473f8cfdjw1f4pelg09a7j20k80c5gmu.jpg"></p>
-<p>
-	<small> ============== 6小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3984748328224866" target="freeweibo-mirror">SPAM 看懂这个，逻辑基本就过关了 [衰] ...</a>
-</h2>
-<p>SPAM 看懂这个，逻辑基本就过关了 [衰] ...<br><br>RE: 说漏了<br><img src="http://ww4.sinaimg.cn/large/473f8cfdjw1f4pelg09a7j20k80c5gmu.jpg"></p>
 <p>
 	<small> ============== 6小时前</small>
 </p>
