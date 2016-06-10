@@ -41,7 +41,7 @@
 </h2>
 <p>SPAM 看懂这个，逻辑基本就过关了 [衰] ...<br><br>RE: 说漏了<br><img src="http://ww4.sinaimg.cn/large/473f8cfdjw1f4pelg09a7j20k80c5gmu.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3984745647834286" target="freeweibo-mirror">[怒] //@郑克强:看来真有“被精神病”的情况@北京崔卫平…</a>
 </h2>
@@ -95,7 +95,7 @@
 </h2>
 <p>说漏了<br><img src="http://ww4.sinaimg.cn/large/473f8cfdjw1f4pelg09a7j20k80c5gmu.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3984584041747991" target="freeweibo-mirror">SPAM 想知道 //@小婊渣神吐槽: 想知道 //@让你变…</a>
 </h2>
