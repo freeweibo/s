@@ -77,7 +77,7 @@
 </h2>
 <p>SPAM [思考]咋确认你自己的性别 ？可有人证 ？可有公证 ？ //@弹琴de老牛:[吃惊]吓得我检查了一下身份证是否随身，然后确认了一遍自己的性别~<br><br>RE: 这位深圳警官太牛逼了 http://t.cn/R5vsTKn</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3984800006003396" target="freeweibo-mirror">关注@科技新一 转发此微博，即有机会得到@小米电视 送的小米…</a>
 </h2>
@@ -119,19 +119,19 @@
 </h2>
 <p>SPAM #跑男方特# 谁能告诉我是真的事假的</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3984787302038915" target="freeweibo-mirror">@平安昌平 @公安部打四黑除四害 这样的王八蛋警察真的是少数…</a>
 </h2>
 <p>@平安昌平 @公安部打四黑除四害 这样的王八蛋警察真的是少数吗？<br><br>RE: #老谈说事# 【警察难道没结婚？】这是21号发生在深圳宝安西乡流塘大门口的事情，两名女孩出去逛街，被警察检查身份证…后被依法强制传唤！在去派出所的路上她偷偷录下这么一段视频…  http://t.cn/R5vsTKn</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3984786668863429" target="freeweibo-mirror">SPAM 谁来除？//@法律人童朝平:【恶警不除，你的孩子、…</a>
 </h2>
 <p>SPAM 谁来除？//@法律人童朝平:【恶警不除，你的孩子、不安全！】<br><br>RE: 【恶警不除，你的孩子、不安全！】 雷洋为什么会死？不将黑恶警察绳之以法，孩子不会有安全！ @中国政府网  @公安部刑侦局 http://t.cn/R5vsTKn</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3984786433369833" target="freeweibo-mirror">SPAM 【恶警不除，你的孩子、不安全！】</a>
 </h2>
