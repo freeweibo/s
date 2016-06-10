@@ -23,7 +23,7 @@
 </h2>
 <p>SPAM 感谢七玥，让我找回了自信</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3984619702018099" target="freeweibo-mirror">SPAM 赶紧上车</a>
 </h2>
@@ -71,7 +71,7 @@
 </h2>
 <p>SPAM #美胸大挑战# 借这个机会欣赏下[doge][doge][doge]</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3984559362033355" target="freeweibo-mirror">SPAM #端午金曲捞#有点意茗思来的啊</a>
 </h2>
