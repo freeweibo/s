@@ -83,7 +83,7 @@
 </h2>
 <p>SPAM 懂了 //@北京崔卫平:转： 这里逻辑看懂没？1、以后经公安同意，精神病院可收治正常人。2、之前未经公安同意，精神病院收治了正常人。3、之前经公安同意，精神病院收治了正常人。4、是不是收治精神病，不是医院说了算，是公安......太吓人了。都吓成精神病了。<br><br>RE: 说漏了<br><img src="http://ww4.sinaimg.cn/large/473f8cfdjw1f4pelg09a7j20k80c5gmu.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3984748328224866" target="freeweibo-mirror">SPAM 看懂这个，逻辑基本就过关了 [衰] ...</a>
 </h2>
@@ -119,7 +119,7 @@
 </h2>
 <p>SPAM 感谢七玥，让我找回了自信</p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3984619702018099" target="freeweibo-mirror">SPAM 赶紧上车</a>
 </h2>
