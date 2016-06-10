@@ -65,7 +65,7 @@
 </h2>
 <p>SPAM 不参加支持什川大妈，加油，超喜欢[bm赞]选秀，你让倩云喝西北风活着吗#中国农民歌会#</p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3984560385439324" target="freeweibo-mirror">SPAM #美胸大挑战# 借这个机会欣赏下[doge][do…</a>
 </h2>
@@ -77,7 +77,7 @@
 </h2>
 <p>SPAM #端午金曲捞#有点意茗思来的啊</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3984553314494039" target="freeweibo-mirror">吓死老夫！还真有其事？谁知道真假？[吃惊][吃惊]</a>
 </h2>
