@@ -41,7 +41,7 @@
 </h2>
 <p>SPAM #我是伙星人#火星app里面真这样做起来真的是非常的好看好玩了。的有火星人，他们都还有意思</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3984898320661331" target="freeweibo-mirror">SPAM #我是伙星人#[不好意思][围观]地球已经被伙星人…</a>
 </h2>
