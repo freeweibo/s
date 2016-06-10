@@ -29,7 +29,7 @@
 </h2>
 <p>SPAM 赶紧上车</p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3984610365448442" target="freeweibo-mirror">SPAM 简洁 [心]</a>
 </h2>
@@ -65,7 +65,7 @@
 </h2>
 <p>SPAM 不参加支持什川大妈，加油，超喜欢[bm赞]选秀，你让倩云喝西北风活着吗#中国农民歌会#</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3984560385439324" target="freeweibo-mirror">SPAM #美胸大挑战# 借这个机会欣赏下[doge][do…</a>
 </h2>
