@@ -47,25 +47,25 @@
 </h2>
 <p>[怒] //@郑克强:看来真有“被精神病”的情况@北京崔卫平:转： 这里逻辑看懂没？1、以后经公安同意，精神病院可收治正常人。2、之前未经公安同意，精神病院收治了正常人。3、之前经公安同意，精神病院收治了正常人。4、是不是收治精神病，不是医院说了算，是公安......太吓人了。都吓成精神病了。<br><br>RE: 说漏了<br><img src="http://ww4.sinaimg.cn/large/473f8cfdjw1f4pelg09a7j20k80c5gmu.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3984730816551568" target="freeweibo-mirror">SPAM //@徐付群: 以前精神病医院收治有点乱！MaLe…</a>
 </h2>
 <p>SPAM //@徐付群: 以前精神病医院收治有点乱！MaLeGeBaZiDe ！<br><br>RE: 说漏了<br><img src="http://ww4.sinaimg.cn/large/473f8cfdjw1f4pelg09a7j20k80c5gmu.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3984730778565553" target="freeweibo-mirror">//@译匠2010: 经同意，就可以收治正常人？//@蔡蚱蜢…</a>
 </h2>
 <p>//@译匠2010: 经同意，就可以收治正常人？//@蔡蚱蜢仁波切: [笑cry] //@协和眼科Dr谢:真牛</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3984730008010289" target="freeweibo-mirror">SPAM //@北京崔卫平: 转： 这里的逻辑你看懂没？1、…</a>
 </h2>
 <p>SPAM //@北京崔卫平: 转： 这里的逻辑你看懂没？1、以后，经过公安同意，精神病院可以收治正常人。2、之前，未经公安机关同意，精神病院收治了正常人。3、之前，经过公安机关同意，精神病院收治了正常人。4、是不是收治精神病，不是医院说了算，是公安机关......。太吓人了。都吓成精神病了。<br><br>RE: 说漏了<br><img src="http://ww4.sinaimg.cn/large/473f8cfdjw1f4pelg09a7j20k80c5gmu.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3984688886417425" target="freeweibo-mirror">SPAM 感谢七玥，让我找回了自信</a>
 </h2>
