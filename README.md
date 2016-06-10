@@ -71,7 +71,7 @@
 </h2>
 <p>SPAM #美胸大挑战# 借这个机会欣赏下[doge][doge][doge]</p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3984559362033355" target="freeweibo-mirror">SPAM #端午金曲捞#有点意茗思来的啊</a>
 </h2>
@@ -83,7 +83,7 @@
 </h2>
 <p>吓死老夫！还真有其事？谁知道真假？[吃惊][吃惊]<br><img src="http://ww3.sinaimg.cn/large/006iVk1Djw1f4p8pdet4xj30k00k040x.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3984552051743411" target="freeweibo-mirror">SPAM [给力]芹#端午金曲捞#看到了这个金曲就是很喜欢的</a>
 </h2>
