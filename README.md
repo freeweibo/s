@@ -41,7 +41,7 @@
 </h2>
 <p>SPAM #我们的法则黄子韬#黄子韬黄子韬，你最棒实在是太吸引我了。，加油啦</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3985196497460656" target="freeweibo-mirror">SPAM #史上最强傻白甜陈煜霖#这种女孩在当仁今社会真是挺…</a>
 </h2>
@@ -109,6 +109,12 @@
 <p>
 	<small> ============== 4小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3985171516597246" target="freeweibo-mirror">2016-06-11 自由時報:劉雲山和中宣部部長劉奇葆都是…</a>
+</h2>
+<p>2016-06-11 自由時報:劉雲山和中宣部部長劉奇葆都是習要剷除的對象。近期已有五名政治局委員聯名彈劾劉。至於劉奇葆今年以來一直「捧殺」習，包括炒作「黨媒姓黨」，演出歌頌文革歌曲，迫使官方發表評論公開否定文革。人民論壇官網還曾刊出文章，影射劉奇葆對習搞「高級黑」<br><img src="http://ww3.sinaimg.cn/large/bdb5fda6jw1f4r7qisay3j20k50f4q53.jpg"></p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3985170757967954" target="freeweibo-mirror">SPAM #高考结束玩点啥# 我觉得可以多喝点酒，多睡一会儿…</a>
 </h2>
 <p>SPAM #高考结束玩点啥# 我觉得可以多喝点酒，多睡一会儿 臭豆腐下油锅</p>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3985161202882545" target="freeweibo-mirror">SPAM #陈学冬爵迹成长力#清爽，我太喜欢陈学冬出演[酷]…</a>
 </h2>
 <p>SPAM #陈学冬爵迹成长力#清爽，我太喜欢陈学冬出演[酷]电影《爵迹》开心事儿啦。</p>
-<p>
-	<small> ============== 5小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3985156904178349" target="freeweibo-mirror">SPAM #潇洒王牌戚薇#哈哈国庆档继续来关注了呢 未登陆</a>
-</h2>
-<p>SPAM #潇洒王牌戚薇#哈哈国庆档继续来关注了呢 未登陆</p>
 <p>
 	<small> ============== 5小时前</small>
 </p>
