@@ -41,7 +41,7 @@
 </h2>
 <p>SPAM 后续链接请戳http://t.cn/R5MvLUo</p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3984981745212062" target="freeweibo-mirror">SPAM 给你独一无二，一生一世的爱，</a>
 </h2>
