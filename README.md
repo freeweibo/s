@@ -119,13 +119,13 @@
 </h2>
 <p>2016-06-11 自由時報:劉雲山和中宣部部長劉奇葆都是習要剷除的對象。近期已有五名政治局委員聯名彈劾劉。至於劉奇葆今年以來一直「捧殺」習，包括炒作「黨媒姓黨」，演出歌頌文革歌曲，迫使官方發表評論公開否定文革。人民論壇官網還曾刊出文章，影射劉奇葆對習搞「高級黑」<br><img src="http://ww3.sinaimg.cn/large/bdb5fda6jw1f4r7qisay3j20k50f4q53.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3985170757967954" target="freeweibo-mirror">SPAM #高考结束玩点啥# 我觉得可以多喝点酒，多睡一会儿…</a>
 </h2>
 <p>SPAM #高考结束玩点啥# 我觉得可以多喝点酒，多睡一会儿 臭豆腐下油锅</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3985163643982207" target="freeweibo-mirror">惯犯？</a>
 </h2>
