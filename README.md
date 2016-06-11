@@ -89,7 +89,7 @@
 </h2>
 <p>专业性的法律服务都搞“任党唯亲”？<br><br>RE: 【不入党，不得食？】中办刚刚发布“中办发[2016]30号文件”明确规定：外聘法律顾问，一般应当是中国共产党党员。<br><img src="http://ww2.sinaimg.cn/large/6a80bfcdgw1f4rafje0bsj20yi1pctxo.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3985297895253175" target="freeweibo-mirror">SPAM #婚礼主创亮相上影节#其实我只是来看冯绍峰的[cc…</a>
 </h2>
