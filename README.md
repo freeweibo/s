@@ -61,6 +61,12 @@
 <p>
 	<small> ============== 5小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3985209538281076" target="freeweibo-mirror">#公路边说事# 手持党章听党指挥，“两学一做”在于实践，包括…</a>
+</h2>
+<p>#公路边说事# 手持党章听党指挥，“两学一做”在于实践，包括舞蹈！[doge] http://t.cn/R5xV0Ms .</p>
+<p>
+	<small> ============== 6小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3985205604275987" target="freeweibo-mirror">SPAM #黄子韬丛林表情包# 黄子韬丛林表情包黄子韬韬咪超…</a>
 </h2>
 <p>SPAM #黄子韬丛林表情包# 黄子韬丛林表情包黄子韬韬咪超级无敌可爱[好爱哦][好爱哦]</p>
@@ -113,7 +119,7 @@
 </h2>
 <p>SPAM #AiBB亚洲偶像榜#唱歌我就喜欢SixBomb[闭嘴]</p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3985178966097097" target="freeweibo-mirror">SPAM #高考结束玩点啥# [微笑]肯定是约上好同学一起去…</a>
 </h2>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3985177560258360" target="freeweibo-mirror">SPAM #黄子韬丛林表情包# 看了预告，好期待呀！！！ 菜…</a>
 </h2>
 <p>SPAM #黄子韬丛林表情包# 看了预告，好期待呀！！！ 菜鸟</p>
-<p>
-	<small> ============== 8小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3985173399900688" target="freeweibo-mirror">SPAM #三里屯探魔兽导师#看到他们在广场上面跳木广场舞</a>
-</h2>
-<p>SPAM #三里屯探魔兽导师#看到他们在广场上面跳木广场舞</p>
 <p>
 	<small> ============== 8小时前</small>
 </p>
