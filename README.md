@@ -83,7 +83,7 @@
 </h2>
 <p>SPAM #AiBB亚洲偶像榜#唱歌我就喜欢SixBomb[闭嘴]</p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3985178966097097" target="freeweibo-mirror">SPAM #高考结束玩点啥# [微笑]肯定是约上好同学一起去…</a>
 </h2>
