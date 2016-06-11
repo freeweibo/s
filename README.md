@@ -83,7 +83,7 @@
 </h2>
 <p>SPAM 深夜八卦~转需</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3984939853232428" target="freeweibo-mirror">SPAM #wuli蠢颖#[害羞]这些事儿还真是挺心酸的，时…</a>
 </h2>
