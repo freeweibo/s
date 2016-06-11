@@ -59,7 +59,7 @@
 </h2>
 <p>恭喜本朝，终于又从大跃进走到文革了，离改革开放只有一步之遥了，……。草泥马！<br><br>RE: #公路边说事# 手持党章听党指挥，“两学一做”在于实践，包括舞蹈！[doge] http://t.cn/R5xV0Ms .</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3985215171397998" target="freeweibo-mirror">SPAM #电影冲天火#[ali做鬼脸][转发]不错不错，很…</a>
 </h2>
