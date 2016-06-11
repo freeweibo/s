@@ -77,7 +77,7 @@
 </h2>
 <p>SPAM #wuli蠢颖#[害羞]这些事儿还真是挺心酸的，时光飞逝啊我最喜欢看跑男里杨颖的片段</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3984914393783057" target="freeweibo-mirror">SPAM 掐指一算，你需要夏日新搭。@WuGeAtelier</a>
 </h2>
