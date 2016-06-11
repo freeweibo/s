@@ -35,7 +35,7 @@
 </h2>
 <p>SPAM  //@1605一零五九:[酷][蜡烛][蜡烛][蜡烛]<br><br>RE: 本是同根生，相煎何太急！[鼓掌][鼓掌][鼓掌] http://t.cn/R5xuuP1 .</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3985359266071753" target="freeweibo-mirror">SPAM //@记者钱莽墩: [吃惊] //@云韵峰::为什…</a>
 </h2>
@@ -71,13 +71,13 @@
 </h2>
 <p>SPAM #边哭边玩游戏#相信一定有更多人跟我敬一样爱上它。</p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3985315675027090" target="freeweibo-mirror">#跨界歌王#这可跟其他的音乐节目雁不一样。</a>
 </h2>
 <p>#跨界歌王#这可跟其他的音乐节目雁不一样。</p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3985314219462676" target="freeweibo-mirror">SPAM #边哭边玩游戏#球球大作战也可以，真的觉得自己是手…</a>
 </h2>
