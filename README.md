@@ -71,7 +71,7 @@
 </h2>
 <p>#公路边说事# 手持党章听党指挥，“两学一做”在于实践，包括舞蹈！[doge] http://t.cn/R5xV0Ms .</p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3985205604275987" target="freeweibo-mirror">SPAM #黄子韬丛林表情包# 黄子韬丛林表情包黄子韬韬咪超…</a>
 </h2>
@@ -125,7 +125,7 @@
 </h2>
 <p>SPAM #AiBB亚洲偶像榜#唱歌我就喜欢SixBomb[闭嘴]</p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3985178966097097" target="freeweibo-mirror">SPAM #高考结束玩点啥# [微笑]肯定是约上好同学一起去…</a>
 </h2>
