@@ -19,6 +19,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3985096958028225" target="freeweibo-mirror">//@张夫子:1926年国共是合作的，北伐军攻长沙时，把地主…</a>
+</h2>
+<p>//@张夫子:1926年国共是合作的，北伐军攻长沙时，把地主企业家绑起来游行，就地处死，引来国际指责，当然不止长沙了，还有南昌等，谁杀的呢，你懂得。1927年3月军队要求蒋介石严惩，过几天北伐军从张宗昌手里占南京，第二、第六军发动南京事件，抢劫打砸外国人的学校教堂使馆，蒋介石才发动412清党。<br><br>RE: 一直以来，教科书有一个严重的漏洞，即老讲国民政府1927年4.12清党，是政府不义，逼共产党杀人放火。可是，毛泽东1927年3月发表的《湖南农民运动考察报告》就表明，共产党早就在组织农民造反，哪有一个社会受得了这样的折腾。http://t.cn/R5MSwDa<br><img src="http://ww1.sinaimg.cn/large/473f8cfdjw1f4qg517ppnj207i0a2q3f.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3985011449957634" target="freeweibo-mirror">SPAM 推荐一看</a>
 </h2>
 <p>SPAM 推荐一看</p>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3984882172641983" target="freeweibo-mirror">SPAM #十三亿分贝#方言歌曲？听上去就很有意思，什么时候…</a>
 </h2>
 <p>SPAM #十三亿分贝#方言歌曲？听上去就很有意思，什么时候播出，我估计听不懂几首吧！ [纠结][纠结][纠结][纠结][纠结]</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3984882084482352" target="freeweibo-mirror">SPAM #女同演员直播遇鬼影#这是吴晴演过的最棒的角色了不…</a>
-</h2>
-<p>SPAM #女同演员直播遇鬼影#这是吴晴演过的最棒的角色了不解释。[lt吹泡泡]</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
