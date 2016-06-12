@@ -23,7 +23,7 @@
 </h2>
 <p>SPAM 今晚的更新和大家聊聊现任对你的前任无法释怀的问题。（</p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3985701345566192" target="freeweibo-mirror">SPAM 竟然学会了[doge]</a>
 </h2>
