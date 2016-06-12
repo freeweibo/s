@@ -83,7 +83,7 @@
 </h2>
 <p>SPAM  //@1605一零五九:[酷][蜡烛][蜡烛][蜡烛]<br><br>RE: 本是同根生，相煎何太急！[鼓掌][鼓掌][鼓掌] http://t.cn/R5xuuP1 .</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3985359266071753" target="freeweibo-mirror">SPAM //@记者钱莽墩: [吃惊] //@云韵峰::为什…</a>
 </h2>
