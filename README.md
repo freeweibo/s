@@ -67,6 +67,12 @@
 <p>
 	<small> ============== 4小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3985478006809270" target="freeweibo-mirror">SPAM 欢迎！</a>
+</h2>
+<p>SPAM 欢迎！<br><br>RE: 大陸的朋友好！我是民進黨立委高嘉瑜。在此，希望和大家多多交流與互動。謝謝大家！<br><img src="http://ww3.sinaimg.cn/large/006rxNr7gw1f4rqha0x0cj308208caab.jpg"></p>
+<p>
+	<small> ============== 5小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3985472378633383" target="freeweibo-mirror">SPAM #吴亦凡留夏青春#哈哈，其实我我现在也是希望这个运…</a>
 </h2>
 <p>SPAM #吴亦凡留夏青春#哈哈，其实我我现在也是希望这个运气可以更好的也觉得吴亦凡特别的给力</p>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3985335136027173" target="freeweibo-mirror">SPAM 【好 文分享】1、鬼谷子七十二术，永久留下，终生研…</a>
 </h2>
 <p>SPAM 【好 文分享】1、鬼谷子七十二术，永久留下，终生研读！2、当韩信从屠夫的胯下钻过，看到一个影响他一生的东西！3、她是中国某高 官的女儿，却比平常人更低调，衣服没有名牌！4、成吉思汗5种死因：生殖器被西夏王妃咬掉？5、林彪准儿媳张宁长有天眼通 灵异一生揭秘。更多精彩请添加关注：zhebsls<br><img src="http://ww1.sinaimg.cn/large/9647a31ejw1f4rqj2aw72j20j60y3mze.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3985334586599336" target="freeweibo-mirror">本是同根生，相煎何太急！[鼓掌][鼓掌][鼓掌] http:…</a>
-</h2>
-<p>本是同根生，相煎何太急！[鼓掌][鼓掌][鼓掌] http://t.cn/R5xuuP1 .</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
