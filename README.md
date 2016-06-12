@@ -77,7 +77,7 @@
 </h2>
 <p>SPAM #我最好朋友的婚礼勇敢爱#喜欢舒淇的裙子，好美啊[萌]</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3985579832389839" target="freeweibo-mirror">SPAM #我最好朋友的婚礼勇敢爱#为了爱你的我请茜宝宝美美…</a>
 </h2>
