@@ -59,7 +59,7 @@
 </h2>
 <p>SPAM #花式晒自拍# 喜欢开心麻花，有他们的的作品我都很支持[最右]</p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3985434231434180" target="freeweibo-mirror">SPAM #花式晒自拍# 礼貌性赞美一下   不错呦！   …</a>
 </h2>
@@ -77,7 +77,7 @@
 </h2>
 <p>SPAM 笑了<br><br>RE: #老谈说事# 本是同根生，相煎何太急！自己人都不放过何况百姓呢？ http://t.cn/R5xuuP1</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3985360893906554" target="freeweibo-mirror">SPAM  //@1605一零五九:[酷][蜡烛][蜡烛][…</a>
 </h2>
