@@ -89,7 +89,7 @@
 </h2>
 <p>SPAM 这又是哪？ http://t.cn/R5J6ZQJ .</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3985548933200466" target="freeweibo-mirror">是的，公知们两种方法推翻现体制，目前实施的主流方法就是‘宁可…</a>
 </h2>
@@ -101,19 +101,19 @@
 </h2>
 <p>对于危害巨大的精神病患者（我说的就是恋童癖），在积极治疗（化学阉割）的前提下，限制活动，监视居住什么的我觉得也不算多侵害他们的人权。（二次元萝莉控不算精神病）//@薄薄的饺子:问题是，如果他没干什么，警察可以根据他说的抓他吗？<br><br>RE: 那件事的后续。姑娘有点不敢发，所以把图片发给了我。——对恋童癖就应当零容忍，光在网上封号是远远不够的！<br><img src="http://ww4.sinaimg.cn/large/6c83d38djw1f4se34dqqsj20qo17lahw.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3985542570107494" target="freeweibo-mirror">嗯哼？ http://t.cn/R5JxNfx</a>
 </h2>
 <p>嗯哼？ http://t.cn/R5JxNfx</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3985541768585524" target="freeweibo-mirror">最后警察把右打一顿关精神病院。自干五：支持警察！ //@一步…</a>
 </h2>
 <p>最后警察把右打一顿关精神病院。自干五：支持警察！ //@一步一喵:真是枉费我多年自干五，雷洋案我支持警察，张际勇案我支持警察，然而现在出了个孙宇剑最右就这态度？很好，你们说是精神病，那就司法鉴定吧，确定是精神病我个人出钱把这个变态扔精神病院，然后行政诉讼天津警方玩忽职守不作为</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3985541516506336" target="freeweibo-mirror">最右… //@梦晨伤:最右图片。。。//@飞雪之灵:[药]/…</a>
 </h2>
