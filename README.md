@@ -59,7 +59,7 @@
 </h2>
 <p>SPAM 笑了<br><br>RE: #老谈说事# 本是同根生，相煎何太急！自己人都不放过何况百姓呢？ http://t.cn/R5xuuP1</p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3985360893906554" target="freeweibo-mirror">SPAM  //@1605一零五九:[酷][蜡烛][蜡烛][…</a>
 </h2>
@@ -77,7 +77,7 @@
 </h2>
 <p>→_→ //@黄照旋:胆子不小，在警察值班住所公然相互袭警[怒]。这比“徐纯合案”更加恶劣，统统死了死了滴！//@背影的背影2015：哎马好像有枪<br><br>RE: 本是同根生，相煎何太急！[鼓掌][鼓掌][鼓掌] http://t.cn/R5xuuP1 .</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3985356300607911" target="freeweibo-mirror">SPAM 回复@张洲:为什么不开枪[怒骂]//@张洲:枪，是…</a>
 </h2>
