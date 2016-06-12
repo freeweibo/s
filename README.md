@@ -101,7 +101,7 @@
 </h2>
 <p>//@苏门山隐士:谁出事都不要奇怪<br><br>RE: 【大佬】今天，号称中国“金融风向标”的陆家嘴论坛开幕，央行行长周小川未见出席。上周（6月6日）中美战略论坛，原定由周小川主持的新闻发布会也被临时取消…  这位身兼全国政协副主席（副国级）的金融大佬本月缺席了两次重要会议。[可爱]<br><img src="http://ww4.sinaimg.cn/large/62e22e64gw1f4skxznrufj204f064jra.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3985677374833901" target="freeweibo-mirror">SPAM #拜托拿稳#似乎还是可以，每周日晚上都应嘿嘿不错，…</a>
 </h2>
