@@ -23,7 +23,7 @@
 </h2>
 <p>SPAM #吴亦凡留夏青春#哈哈，其实我我现在也是希望这个运气可以更好的也觉得吴亦凡特别的给力</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3985388319818041" target="freeweibo-mirror">SPAM //@谷凯: //@记者钱莽墩: [吃惊] //@…</a>
 </h2>
@@ -95,7 +95,7 @@
 </h2>
 <p>SPAM #边哭边玩游戏#球球大作战也可以，真的觉得自己是手残每次玩飞行棋就会停不下来了了。</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3985310185043469" target="freeweibo-mirror">SPAM 又到了露背的季节啦 这款美背bra  一字领和露背…</a>
 </h2>
