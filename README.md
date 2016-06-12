@@ -71,7 +71,7 @@
 </h2>
 <p>SPAM #我最好朋友的婚礼勇敢爱#宋茜在舒淇旁边显得有点壮[耶]</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3985580997944666" target="freeweibo-mirror">SPAM #我最好朋友的婚礼勇敢爱#喜欢舒淇的裙子，好美啊[…</a>
 </h2>
