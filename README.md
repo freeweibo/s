@@ -23,7 +23,7 @@
 </h2>
 <p>SPAM //@谷凯: //@记者钱莽墩: [吃惊] //@云韵峰::为什么不开枪[怒骂]//@张洲:枪，是不可以随便拔得。//@河北亦凡人:交警，斗殴，拔枪。这也可以？<br><br>RE: 本是同根生，相煎何太急！[鼓掌][鼓掌][鼓掌] http://t.cn/R5xuuP1 .</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3985364399889543" target="freeweibo-mirror">SPAM 笑了</a>
 </h2>
