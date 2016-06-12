@@ -29,7 +29,7 @@
 </h2>
 <p>SPAM #吴亦凡留夏青春#哈哈，其实我我现在也是希望这个运气可以更好的也觉得吴亦凡特别的给力</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3985448332853867" target="freeweibo-mirror">SPAM #花式晒自拍# 喜欢开心麻花，有他们的的作品我都很…</a>
 </h2>
@@ -83,7 +83,7 @@
 </h2>
 <p>#老谈说事# 本是同根生，相煎何太急！自己人都不放过何况百姓呢？ http://t.cn/R5xuuP1</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3985335136027173" target="freeweibo-mirror">SPAM 【好 文分享】1、鬼谷子七十二术，永久留下，终生研…</a>
 </h2>
