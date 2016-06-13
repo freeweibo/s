@@ -29,7 +29,7 @@
 </h2>
 <p>仔细回味这厮所谓的【新刁民运动：不管做什么事只要给当局找麻烦就是好事】和【扔火柴行动】//@又见冰轮1: 毋庸置疑，警察里边跟社会上一样有汉奸。有的是被美式普世价值洗脑了，有的是单纯地欣赏美国警察动辄掏枪的“帅气”。总而言之，再这样下去，中国警察就成美式警察了。//@怀念艾跃进的赵宪君<br><br>RE: 北风的讲话和夏业良是同一个研讨会，与会的很多“大佬”，其中只有北风这个流氓的话不是废话。多警惕吧。 http://t.cn/R5izim6 .</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3985818064181634" target="freeweibo-mirror">SPAM 时尚单品，潮人必备。 薇 ❤：aixie17</a>
 </h2>
@@ -83,13 +83,13 @@
 </h2>
 <p>SPAM 学院风 [心]</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3985697306069248" target="freeweibo-mirror">SPAM 看看下面的图 知性姐，啥都不说，你就应该来！ ix…</a>
 </h2>
 <p>SPAM 看看下面的图 知性姐，啥都不说，你就应该来！ ixxjie，ixxjie，ixxjie<br><img src="http://ww3.sinaimg.cn/large/9bbf4f5dgw1f4sw01r2n5j20yi1bun3a.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3985691748976355" target="freeweibo-mirror">SPAM 哈哈哈，学不会//@全球健身中心: 喷了我一手的口…</a>
 </h2>
