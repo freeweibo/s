@@ -65,7 +65,7 @@
 </h2>
 <p>下乡路上，到处看到五粮液酒之头的墙体标语口号，这是要攻占农村市场，赶跑老村长的节奏吗？今天中午，得买两瓶尝尝。谁想一起喝两口？拿着花生米，报名来！<br><img src="http://ww2.sinaimg.cn/large/61f00aaajw1f4tgoepvtvj20jj0dbtal.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3985874401998864" target="freeweibo-mirror">#国酒参与贵州大扶贫#[ok]宇好每次看了切实加强环境保护力…</a>
 </h2>
