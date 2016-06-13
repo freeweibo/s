@@ -101,7 +101,7 @@
 </h2>
 <p>#节目导演预言金星过气#好期素待，看到了哟，真好呢</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3985954228221369" target="freeweibo-mirror">[奥特曼]霄#节目导演预言金星过气#大家都看到了吗，总之也是…</a>
 </h2>
