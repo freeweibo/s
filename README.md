@@ -77,7 +77,7 @@
 </h2>
 <p>SPAM 竟然学会了[doge]</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3985697532741478" target="freeweibo-mirror">SPAM 学院风 [心]</a>
 </h2>
