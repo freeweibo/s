@@ -31,6 +31,12 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3986004883231787" target="freeweibo-mirror">SPAM #AKB48萌妹争霸女神诞生#[萌萌偷乐]偶可是看…</a>
+</h2>
+<p>SPAM #AKB48萌妹争霸女神诞生#[萌萌偷乐]偶可是看出来了，瞬间秒懂6月18日11:00AMAKB48第八届总决选将首次正版直播大好事儿。</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3986002613721313" target="freeweibo-mirror">SPAM 我看到的是：下生学！//@袁腾飞: 行个屁，都不知…</a>
 </h2>
 <p>SPAM 我看到的是：下生学！//@袁腾飞: 行个屁，都不知道避讳！[哈哈]<br><br>RE: 还是这届和尚行[good]<br><img src="http://ww2.sinaimg.cn/large/006u4JZRgw1f4tk66opzgj30j60edgqg.jpg"></p>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3985938490595634" target="freeweibo-mirror">SPAM 如果苦笑比眼泪更真 ，留住这世上最暖一面，茫茫人海…</a>
 </h2>
 <p>SPAM 如果苦笑比眼泪更真 ，留住这世上最暖一面，茫茫人海取暖渡过 恭喜冰冰妹纸的兑变，一个人努力去争取得到自己想要的东西，波波老师佩服和欣赏冰冰这样的妹纸。不用太感谢我哦<br><img src="http://ww3.sinaimg.cn/large/7858ee61jw1f4tntkm259j20fc0h8mys.jpg"></p>
-<p>
-	<small> ============== 7小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3985934041629238" target="freeweibo-mirror">SPAM #致青春原来你还在这里#什么时候播出，播出又是一年…</a>
-</h2>
-<p>SPAM #致青春原来你还在这里#什么时候播出，播出又是一年毕业季我们不曾分离了叫我女朋友一起看！</p>
 <p>
 	<small> ============== 7小时前</small>
 </p>
