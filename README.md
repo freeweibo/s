@@ -95,7 +95,7 @@
 </h2>
 <p>SPAM 哈哈哈，学不会//@全球健身中心: 喷了我一手的口水[笑cry][笑cry]</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3985689819272732" target="freeweibo-mirror">//@南云楼-://@围观倒车-: //@烟里的风:警察“泡…</a>
 </h2>
