@@ -95,7 +95,7 @@
 </h2>
 <p>北风的讲话和夏业良是同一个研讨会，与会的很多“大佬”，其中只有北风这个流氓的话不是废话。多警惕吧。 http://t.cn/R5izim6 .</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3985701664327913" target="freeweibo-mirror">SPAM 今晚的更新和大家聊聊现任对你的前任无法释怀的问题。…</a>
 </h2>
