@@ -77,7 +77,7 @@
 </h2>
 <p>SPAM #大张伟向你BiuBiuBiu#[ali做鬼脸]大老师的歌儿总是经典啊！</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3985841833182994" target="freeweibo-mirror">SPAM 【和尚们的拍功也了不得！】 习佛学 近民生 平天下</a>
 </h2>
@@ -89,7 +89,7 @@
 </h2>
 <p>这些畜生丧心病狂，要制造动乱恐慌，杀人放火了！民主的光环也不要了，赤裸裸的流氓杀人嘴脸！或者说民主本来就是杀人放火，就像世界上各地表现的一样！[怒]//@平民王小石: 颜色革命就在眼前，要格外警觉！<br><br>RE: 北风的讲话和夏业良是同一个研讨会，与会的很多“大佬”，其中只有北风这个流氓的话不是废话。多警惕吧。 http://t.cn/R5izim6 .</p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3985824959910858" target="freeweibo-mirror">仔细回味这厮所谓的【新刁民运动：不管做什么事只要给当局找麻烦…</a>
 </h2>
@@ -113,7 +113,7 @@
 </h2>
 <p>SPAM #花式晒自拍# 小鲜肉扎堆，我喜欢</p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3985796136254210" target="freeweibo-mirror">SPAM 对古风绘画感兴趣的小伙伴们可以到这里看看：http…</a>
 </h2>
