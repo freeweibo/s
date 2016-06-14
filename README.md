@@ -29,7 +29,7 @@
 </h2>
 <p>//@何光伟://@法律人童朝平:转发微博<br><br>RE: 【緊急關注郭飛雄姐姐】飛雄姐姐現正在陽春監獄青山農場門口靜坐，抗議當局非法阻止會見其弟弟，並限制送書給予郭飛雄的野蠻行為。<br><img src="http://ww1.sinaimg.cn/large/005FTseujw1f4up35dyjwj30hs0p9dkm.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3986262975532623" target="freeweibo-mirror">【緊急關注郭飛雄姐姐】飛雄姐姐現正在陽春監獄青山農場門口靜坐…</a>
 </h2>
@@ -73,6 +73,12 @@
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3986239810478113" target="freeweibo-mirror">无关人权与政治的反问:中国现行法律的明文规定难道不该有权威？…</a>
+</h2>
+<p>无关人权与政治的反问:中国现行法律的明文规定难道不该有权威？中央提出规范执法难道是错误要求？让警察遵守警察法很难吗？建设法治社会到底谁的法律意识淡薄？//@格竹熊:理论和实践差太远，社会是靠均衡和妥协的，不然走两极端，要么警察国家，要么治安恶化。<br><br>RE: 军博地铁通道，公交分局苹果园派出所安排以协警拦查行人身份证，既没出示证件，也不说明理由。当场投诉了这种违规不当做法，还请 @平安北京 解释下这种执法符合 警察法 身份证法 里的哪条规定？@新京报 首都应该是首善之区，规范执法的带头践行者，违规扰民谁来管？ http://t.cn/R2WJPUh<br><img src="http://ww3.sinaimg.cn/large/562bc1d7jw1f4ukreh44nj21bh0qotf4.jpg"></p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3986231014784246" target="freeweibo-mirror">SPAM #赖床悍匪钟汉良#一直都很期待这部电影蕊的啊，终于…</a>
 </h2>
 <p>SPAM #赖床悍匪钟汉良#一直都很期待这部电影蕊的啊，终于要上映了啊</p>
@@ -107,7 +113,7 @@
 </h2>
 <p>SPAM  //@ConnieTse:轉發微博</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3986225528417763" target="freeweibo-mirror">SPAM 这就是某部长所谓的人权？//@六安自媒体://@丰…</a>
 </h2>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3986217093317841" target="freeweibo-mirror">SPAM #819约见至尊宝韩庚#都等着呢这个必须泰要来直呼…</a>
 </h2>
 <p>SPAM #819约见至尊宝韩庚#都等着呢这个必须泰要来直呼来滴</p>
-<p>
-	<small> ============== 5小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3986213939518554" target="freeweibo-mirror">//@硬哥: 中国人民的老朋友又少一个……</a>
-</h2>
-<p>//@硬哥: 中国人民的老朋友又少一个……<br><br>RE: 古巴昨日宣布解禁 Google, Facebook 等美国敌对势力网站，Google 同时发表声明，愿意帮助包括古巴在内的所有国家公民免费上网，共享21世纪人类文明财富。目前，全球还有两个国家不能使用 Google 和 Facebook：朝鲜和你懂的。</p>
 <p>
 	<small> ============== 5小时前</small>
 </p>
