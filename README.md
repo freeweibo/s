@@ -29,7 +29,7 @@
 </h2>
 <p>#WWDC16# ① tvOS已经拥有1300个视频频道,在tvOS也已经拥有6000个应用。②Apple TV的影音库有超过65万部资源，包括YOUTUBE上的内容。③ 最新的球赛直播。④iPhone代替遥控器。<br><img src="http://ww1.sinaimg.cn/large/5e0b3d25jw1f4u4ms9mivj20dw0ai75q.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3986072146681600" target="freeweibo-mirror">SPAM #WWDC2016#凌晨1点，苹果将发布其iOS …</a>
 </h2>
