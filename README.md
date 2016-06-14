@@ -29,13 +29,13 @@
 </h2>
 <p>SPAM </p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3986229584046772" target="freeweibo-mirror">SPAM //@郑维: //@ConnieTse:轉發微博</a>
 </h2>
 <p>SPAM //@郑维: //@ConnieTse:轉發微博</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3986228380453110" target="freeweibo-mirror">SPAM  //@ConnieTse:轉發微博</a>
 </h2>
