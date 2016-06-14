@@ -43,6 +43,12 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3986201000008939" target="freeweibo-mirror">SPAM 瞧瞧对岸整天都在地图开疆，日记强国，用爱发电，贴纸…</a>
+</h2>
+<p>SPAM 瞧瞧对岸整天都在地图开疆，日记强国，用爱发电，贴纸独立，超市建交，诈骗创收，P图抗议，蜡像示威。。。就这点出息，我放心的去吃早餐了。</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3986200715117306" target="freeweibo-mirror">SPAM #一口一笑的秘密#大家都越来越重视节一口一笑的秘密…</a>
 </h2>
 <p>SPAM #一口一笑的秘密#大家都越来越重视节一口一笑的秘密吧[赞][赞]</p>
@@ -107,7 +113,7 @@
 </h2>
 <p>//@自由说了算://@大尾新疆在这: //@50年矛苔://@沦陷区遭受磨难的苦行僧: →_→//@躲裹酷陵勤:佛主都早姓党了，上帝和耶稣也抓紧吧！ //@千山何须胡说:马拉戈壁。//@私享乛家: 魔撑无处不在[怒]<br><br>RE: 浙江溫州的基督教天主教教堂被要求在建築物頂部和神壇掛國旗，教眾所捐款項須交由所在地鄉鎮管理，並指派黨員入駐教堂監控……<br><img src="http://ww2.sinaimg.cn/large/006oQ0U2gw1f4u2m785nfj30960drmxt.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3986164446541726" target="freeweibo-mirror">威武</a>
 </h2>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3986085077757877" target="freeweibo-mirror">#WWDC16# ① tvOS已经拥有1300个视频频道,在…</a>
 </h2>
 <p>#WWDC16# ① tvOS已经拥有1300个视频频道,在tvOS也已经拥有6000个应用。②Apple TV的影音库有超过65万部资源，包括YOUTUBE上的内容。③ 最新的球赛直播。④iPhone代替遥控器。<br><img src="http://ww1.sinaimg.cn/large/5e0b3d25jw1f4u4ms9mivj20dw0ai75q.jpg"></p>
-<p>
-	<small> ============== 10小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3986079168166448" target="freeweibo-mirror">[笑cry] 貼紙太小張了吧，我來幫忙放大  ｜  FB傳送…</a>
-</h2>
-<p>[笑cry] 貼紙太小張了吧，我來幫忙放大  ｜  FB傳送門：http://t.cn/R564RKL<br><img src="http://ww4.sinaimg.cn/large/a770158cgw1f4u3ymfnzmj20eo0qojs7.jpg"></p>
 <p>
 	<small> ============== 10小时前</small>
 </p>
