@@ -19,6 +19,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3986279680962363" target="freeweibo-mirror">在微博上早已不发言，但夏律师出现的日子我一定在线等 //@北…</a>
+</h2>
+<p>在微博上早已不发言，但夏律师出现的日子我一定在线等 //@北京徐晓:事实是，沉默关不能制止恶法。//@阿花的伊萨卡岛: 谢谢和岩。<br><br>RE: 夏霖的案子就要开庭了。我不见他已有一年半。漫长的日子里，偶尔我会听到夏霖一星半点的消息，听说他零口供，听说他已戒了烟，听说他白了很多——他一直很白，好吧！我想那是多日不见阳光吧。夏霖，希望17日那天我能看见你。无论法庭给你什么样的判决，你都是我的朋友。如同我一年半之前写的这篇小文。<br><img src="http://ww4.sinaimg.cn/large/6261bd9ejw1f4umnmd7rpj20c84ad1bo.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3986273251671597" target="freeweibo-mirror">//@何光伟://@法律人童朝平:转发微博</a>
 </h2>
 <p>//@何光伟://@法律人童朝平:转发微博<br><br>RE: 【緊急關注郭飛雄姐姐】飛雄姐姐現正在陽春監獄青山農場門口靜坐，抗議當局非法阻止會見其弟弟，並限制送書給予郭飛雄的野蠻行為。<br><img src="http://ww1.sinaimg.cn/large/005FTseujw1f4up35dyjwj30hs0p9dkm.jpg"></p>
@@ -132,12 +138,6 @@
 <p>//@硬哥: 中国人民的老朋友又少一个……<br><br>RE: 古巴昨日宣布解禁 Google, Facebook 等美国敌对势力网站，Google 同时发表声明，愿意帮助包括古巴在内的所有国家公民免费上网，共享21世纪人类文明财富。目前，全球还有两个国家不能使用 Google 和 Facebook：朝鲜和你懂的。</p>
 <p>
 	<small> ============== 5小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3986208134240202" target="freeweibo-mirror">SPAM 大不敬！//@会飞的鱼lee: 这么二货，到底什么…</a>
-</h2>
-<p>SPAM 大不敬！//@会飞的鱼lee: 这么二货，到底什么信仰？ //@爱新觉罗载勋:·<br><br>RE: 这个比较牛[吃惊]<br><img src="http://ww4.sinaimg.cn/large/c0841f72gw1f4tvho79e7j20dd08p75n.jpg"></p>
-<p>
-	<small> ============== 6小时前</small>
 </p>
 <table>
     <tr>
