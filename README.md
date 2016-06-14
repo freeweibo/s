@@ -35,7 +35,7 @@
 </h2>
 <p>【緊急關注郭飛雄姐姐】飛雄姐姐現正在陽春監獄青山農場門口靜坐，抗議當局非法阻止會見其弟弟，並限制送書給予郭飛雄的野蠻行為。<br><img src="http://ww1.sinaimg.cn/large/005FTseujw1f4up35dyjwj30hs0p9dkm.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3986261096164437" target="freeweibo-mirror">SPAM #那些说过的反话#真性情啊！现在看到代表只有说过的…</a>
 </h2>
@@ -65,7 +65,7 @@
 </h2>
 <p>SPAM 如果长时间喂牛吃青辣椒，牛吃上瘾了每顿饭离不开川菜，它的肉会不会就是辣的？一个科学的探讨……</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3986243853260301" target="freeweibo-mirror">SPAM #享乐做自己BeYourself#不管看到的未来是…</a>
 </h2>
