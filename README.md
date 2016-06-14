@@ -59,7 +59,7 @@
 </h2>
 <p>SPAM #最贵艺术电影长江图4K起航#善于打破常规最贵艺术电影长江图4K起航，的人果然是相当出彩</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3986018934349376" target="freeweibo-mirror">SPAM #最贵艺术电影长江图4K起航#爱你哦，真心感觉这些…</a>
 </h2>
