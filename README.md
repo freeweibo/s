@@ -41,13 +41,13 @@
 </h2>
 <p>SPAM </p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3986229584046772" target="freeweibo-mirror">SPAM //@郑维: //@ConnieTse:轉發微博</a>
 </h2>
 <p>SPAM //@郑维: //@ConnieTse:轉發微博</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3986228380453110" target="freeweibo-mirror">SPAM  //@ConnieTse:轉發微博</a>
 </h2>
@@ -83,7 +83,7 @@
 </h2>
 <p>//@硬哥: 中国人民的老朋友又少一个……<br><br>RE: 古巴昨日宣布解禁 Google, Facebook 等美国敌对势力网站，Google 同时发表声明，愿意帮助包括古巴在内的所有国家公民免费上网，共享21世纪人类文明财富。目前，全球还有两个国家不能使用 Google 和 Facebook：朝鲜和你懂的。</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3986208134240202" target="freeweibo-mirror">SPAM 大不敬！//@会飞的鱼lee: 这么二货，到底什么…</a>
 </h2>
