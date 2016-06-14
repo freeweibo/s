@@ -113,7 +113,7 @@
 </h2>
 <p>威武<br><br>RE: 古巴今日宣布解禁Google、Facebook 等美国敌对势力网站，Google 同时发表声明，愿意帮助包括古巴在内的所有国家公民免费上网，共享21世纪人类文明财富。目前，全球还有两个国家不能使用Google和Facebook：朝鲜和其他国家。<br><img src="http://ww2.sinaimg.cn/large/6f0978aajw1f4ucfsa1voj20ci063wem.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3986153134735968" target="freeweibo-mirror">古巴今日宣布解禁Google、Facebook 等美国敌对势…</a>
 </h2>
