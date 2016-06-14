@@ -101,7 +101,7 @@
 </h2>
 <p>古巴对美国臣服了！<br><br>RE: 古巴今日宣布解禁Google、Facebook 等美国敌对势力网站，Google 同时发表声明，愿意帮助包括古巴在内的所有国家公民免费上网，共享21世纪人类文明财富。目前，全球还有两个国家不能使用Google和Facebook：朝鲜和其他国家。<br><img src="http://ww2.sinaimg.cn/large/6f0978aajw1f4ucfsa1voj20ci063wem.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3986186064605394" target="freeweibo-mirror">[衰] //@徐昕://@社会学刘晨:谷歌对于查找英文文献非…</a>
 </h2>
@@ -125,7 +125,7 @@
 </h2>
 <p>SPAM 畜生！//@少数派判官:这还是执法吗？！<br><br>RE: 暴力执法，凶残如狼![怒] http://t.cn/R5irKDg .</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3986167844386593" target="freeweibo-mirror">//@自由说了算://@大尾新疆在这: //@50年矛苔:/…</a>
 </h2>
