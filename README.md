@@ -23,7 +23,7 @@
 </h2>
 <p>SPAM #范冰冰影分身#萝莉卖萌谁都行，敢走暗黑风格才是真女神，手游一族来爆款了，范冰冰代言《暗黑黎明2》，这一刻开始，和暗黑女王一起耍起来[太开心][太开心][太开心][太开心]<br><img src="http://ww4.sinaimg.cn/large/42c90bd7jw1f4uyoafkfej20cj0m8wh5.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3986336362636074" target="freeweibo-mirror">同病相怜！ //@澎湃新闻: 法国哲学家福柯曾经说，精神病学…</a>
 </h2>
