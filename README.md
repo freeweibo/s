@@ -37,6 +37,18 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3986177788841749" target="freeweibo-mirror">SPAM 畜生！//@少数派判官:这还是执法吗？！</a>
+</h2>
+<p>SPAM 畜生！//@少数派判官:这还是执法吗？！<br><br>RE: 暴力执法，凶残如狼![怒] http://t.cn/R5irKDg .</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3986164446541726" target="freeweibo-mirror">威武</a>
+</h2>
+<p>威武<br><br>RE: 古巴今日宣布解禁Google、Facebook 等美国敌对势力网站，Google 同时发表声明，愿意帮助包括古巴在内的所有国家公民免费上网，共享21世纪人类文明财富。目前，全球还有两个国家不能使用Google和Facebook：朝鲜和其他国家。<br><img src="http://ww2.sinaimg.cn/large/6f0978aajw1f4ucfsa1voj20ci063wem.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3986097920962138" target="freeweibo-mirror">SPAM 十年了，人类终于可以一键删除全部通知。#WWDC1…</a>
 </h2>
 <p>SPAM 十年了，人类终于可以一键删除全部通知。#WWDC16#  ——saic</p>
@@ -47,7 +59,7 @@
 </h2>
 <p>#WWDC16# ① tvOS已经拥有1300个视频频道,在tvOS也已经拥有6000个应用。②Apple TV的影音库有超过65万部资源，包括YOUTUBE上的内容。③ 最新的球赛直播。④iPhone代替遥控器。<br><img src="http://ww1.sinaimg.cn/large/5e0b3d25jw1f4u4ms9mivj20dw0ai75q.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3986072146681600" target="freeweibo-mirror">SPAM #WWDC2016#凌晨1点，苹果将发布其iOS …</a>
 </h2>
@@ -124,18 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3985999946098683" target="freeweibo-mirror">SPAM #女朋友觉得你的账号值多少钱# 徐璐 你说你在剧中…</a>
 </h2>
 <p>SPAM #女朋友觉得你的账号值多少钱# 徐璐 你说你在剧中怎么那么可爱[km得意]</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3985994254938930" target="freeweibo-mirror">#最贵艺术电影长江图4K起航#大家都要好好的研究下…我们需要…</a>
-</h2>
-<p>#最贵艺术电影长江图4K起航#大家都要好好的研究下…我们需要打破常规最贵艺术电影长江图4K起航，，天马星空</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3985993940286054" target="freeweibo-mirror">SPAM #AKB48萌妹争霸女神诞生#啊哦，我是看到AMA…</a>
-</h2>
-<p>SPAM #AKB48萌妹争霸女神诞生#啊哦，我是看到AMAKB48第八届总决选将首次正版直播这爱心提醒才来滴[鼓掌]</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
