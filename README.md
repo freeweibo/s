@@ -71,7 +71,7 @@
 </h2>
 <p>SPAM #期待追凶者也# 谢谢分享刘烨、张译等主演了，有机会去了解下。</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3986192904576495" target="freeweibo-mirror">古巴对美国臣服了！</a>
 </h2>
@@ -95,7 +95,7 @@
 </h2>
 <p>SPAM 减 肥 成功是一种什么体验？</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3986177788841749" target="freeweibo-mirror">SPAM 畜生！//@少数派判官:这还是执法吗？！</a>
 </h2>
