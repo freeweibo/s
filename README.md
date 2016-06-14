@@ -41,7 +41,7 @@
 </h2>
 <p>SPAM  //@ConnieTse:轉發微博</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3986222231752479" target="freeweibo-mirror">SPAM 教你如何用手指吹响哨，从小到大都没学会，这次只尝试…</a>
 </h2>
