@@ -23,7 +23,7 @@
 </h2>
 <p>古巴对美国臣服了！<br><br>RE: 古巴今日宣布解禁Google、Facebook 等美国敌对势力网站，Google 同时发表声明，愿意帮助包括古巴在内的所有国家公民免费上网，共享21世纪人类文明财富。目前，全球还有两个国家不能使用Google和Facebook：朝鲜和其他国家。<br><img src="http://ww2.sinaimg.cn/large/6f0978aajw1f4ucfsa1voj20ci063wem.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3986186064605394" target="freeweibo-mirror">[衰] //@徐昕://@社会学刘晨:谷歌对于查找英文文献非…</a>
 </h2>
@@ -41,7 +41,7 @@
 </h2>
 <p>SPAM 畜生！//@少数派判官:这还是执法吗？！<br><br>RE: 暴力执法，凶残如狼![怒] http://t.cn/R5irKDg .</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3986164446541726" target="freeweibo-mirror">威武</a>
 </h2>
@@ -65,7 +65,7 @@
 </h2>
 <p>SPAM #WWDC2016#凌晨1点，苹果将发布其iOS 10系统。此前iOS一共经历了9次大的更迭，每一次的更迭都会在功能及UI上带给用户惊喜，甚至引领整个行业的发展潮流。<br><img src="http://ww2.sinaimg.cn/large/5e0b3d25gw1f4u320l5soj207w0bs0sz.jpg"></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3986063792305340" target="freeweibo-mirror">SPAM 《为了未婚夫我不惜铤而走险，可他竟着我做出了这般无…</a>
 </h2>
@@ -77,7 +77,7 @@
 </h2>
 <p>//@首席观察:[哈哈] //@浩正刘臻:[哈哈] //@格瓦拉:[哈哈] //@漩涡蜗:[哈哈] //@王总90前:[哈哈] //@元猫大大: [哈哈]<br><br>RE: 问：假设中国政府允许人民持枪的话会是啥情况？答：中国人口可能会减少七、八千万。</p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3986025762473209" target="freeweibo-mirror">SPAM #最贵艺术电影长江图4K起航#善于打破常规最贵艺术…</a>
 </h2>
