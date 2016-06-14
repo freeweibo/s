@@ -47,7 +47,13 @@
 </h2>
 <p>SPAM [阴险]史#三人行全民枪战#好吧，我们都是想着可以先来这里看到了不</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3986328447912480" target="freeweibo-mirror">SPAM #我们15个这一年#让我来转发这条微博！</a>
+</h2>
+<p>SPAM #我们15个这一年#让我来转发这条微博！</p>
+<p>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3986327441330796" target="freeweibo-mirror">网易经常做一些低（qi）调（pa）的良心活动，这次严选的#3…</a>
 </h2>
@@ -85,11 +91,17 @@
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3986318398582164" target="freeweibo-mirror">澎湃你哪头的[doge] //@澎湃新闻:法国哲学家福柯曾经…</a>
+</h2>
+<p>澎湃你哪头的[doge] //@澎湃新闻:法国哲学家福柯曾经说，精神病学一开始就有维护社会秩序的镇压功能。他对“政治精神病学”的批判其来有自，据悉1978年时总人口不到3亿的苏联，就有450万名登记在册的精神病人。而到80年代末苏联政治解冻时，有200万人被改判为精神正常。<br><br>RE: 【有些基层政府娴熟地将精神病变成维稳手段】山东新泰的徐学玲，十年前为给妹妹维权开始上访，期间被鉴定患有“癔症”，被镇政府送进精神病院；妹妹的事情解决后，为了给自己“被精神病”的事讨说法，她再次上访，于是第二次被送入精神病院……基层政府娴熟地将一种疾病变成维稳手段，公权侵犯私权的姿...全文： http://m.weibo.cn/5044281310/3986311209198176...全文： http://m.weibo.cn/5044281310/3986311209198176<br><img src="http://ww1.sinaimg.cn/large/005vnhZYgw1f4uukbd9l3j30dw0a1q3p.jpg"></p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3986318277457924" target="freeweibo-mirror">SPAM #自拍侧脸# [瞧瞧]追凶者也由曹保平执导真是很不…</a>
 </h2>
 <p>SPAM #自拍侧脸# [瞧瞧]追凶者也由曹保平执导真是很不错的，这个可是很正能量的。</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3986311209198176" target="freeweibo-mirror">【有些基层政府娴熟地将精神病变成维稳手段】山东新泰的徐学玲，…</a>
 </h2>
@@ -124,18 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3986288485204756" target="freeweibo-mirror">SPAM 必须马[good]</a>
 </h2>
 <p>SPAM 必须马[good]</p>
-<p>
-	<small> ============== 5小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3986284341202761" target="freeweibo-mirror">SPAM #厦门蓝房##魏则西#父母：至今未接到道歉电话！丧…</a>
-</h2>
-<p>SPAM #厦门蓝房##魏则西#父母：至今未接到道歉电话！丧子之痛折磨着他们；他们等待百度等涉事方的道歉：“没有，什么都没有。”另一种非议也让他们措手不及：很多人以为他们获得了赔偿，或间接借钱，或直接要捐款。受害人要的只是一个道歉，为什么会有那么多恶意的揣测？[失望]<br><img src="http://ww2.sinaimg.cn/large/902405dcgw1f4uriyuc4rj20c407vgmj.jpg"></p>
-<p>
-	<small> ============== 6小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3986282013369113" target="freeweibo-mirror">SPAM #玄门大师#亮喽！看过专属90后玄幻之旅《玄门大师…</a>
-</h2>
-<p>SPAM #玄门大师#亮喽！看过专属90后玄幻之旅《玄门大师》热血来袭带来惊喜深有感触。</p>
 <p>
 	<small> ============== 6小时前</small>
 </p>
