@@ -41,13 +41,13 @@
 </h2>
 <p>SPAM 手淫强身，自淫成精，意淫建国 //@青石板上的蜗牛:齐活了！→_→//@铁打的西瓜: 瞧瞧对岸整天都在地图开疆，日记强国，用爱发电，贴纸独立，超市建交，诈骗创收，P图抗议，蜡像示威。。。就这点出息，我放心的去吃早餐了。</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3986201000008939" target="freeweibo-mirror">SPAM 瞧瞧对岸整天都在地图开疆，日记强国，用爱发电，贴纸…</a>
 </h2>
 <p>SPAM 瞧瞧对岸整天都在地图开疆，日记强国，用爱发电，贴纸独立，超市建交，诈骗创收，P图抗议，蜡像示威。。。就这点出息，我放心的去吃早餐了。</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3986200715117306" target="freeweibo-mirror">SPAM #一口一笑的秘密#大家都越来越重视节一口一笑的秘密…</a>
 </h2>
@@ -89,7 +89,7 @@
 </h2>
 <p>[衰] //@徐昕://@社会学刘晨:谷歌对于查找英文文献非常有用。<br><br>RE: 古巴今日宣布解禁Google、Facebook 等美国敌对势力网站，Google 同时发表声明，愿意帮助包括古巴在内的所有国家公民免费上网，共享21世纪人类文明财富。目前，全球还有两个国家不能使用Google和Facebook：朝鲜和其他国家。<br><img src="http://ww2.sinaimg.cn/large/6f0978aajw1f4ucfsa1voj20ci063wem.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3986184885710754" target="freeweibo-mirror">SPAM [笑cry]//@孤雁苍寒3://@KELE02:…</a>
 </h2>
