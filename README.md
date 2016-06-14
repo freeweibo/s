@@ -53,7 +53,7 @@
 </h2>
 <p>SPAM 必须马[good]</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3986284341202761" target="freeweibo-mirror">SPAM #厦门蓝房##魏则西#父母：至今未接到道歉电话！丧…</a>
 </h2>
@@ -95,7 +95,7 @@
 </h2>
 <p>//@何光伟://@法律人童朝平:转发微博<br><br>RE: 【緊急關注郭飛雄姐姐】飛雄姐姐現正在陽春監獄青山農場門口靜坐，抗議當局非法阻止會見其弟弟，並限制送書給予郭飛雄的野蠻行為。<br><img src="http://ww1.sinaimg.cn/large/005FTseujw1f4up35dyjwj30hs0p9dkm.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3986262975532623" target="freeweibo-mirror">【緊急關注郭飛雄姐姐】飛雄姐姐現正在陽春監獄青山農場門口靜坐…</a>
 </h2>
