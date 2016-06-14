@@ -19,6 +19,18 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3986192904576495" target="freeweibo-mirror">古巴对美国臣服了！</a>
+</h2>
+<p>古巴对美国臣服了！<br><br>RE: 古巴今日宣布解禁Google、Facebook 等美国敌对势力网站，Google 同时发表声明，愿意帮助包括古巴在内的所有国家公民免费上网，共享21世纪人类文明财富。目前，全球还有两个国家不能使用Google和Facebook：朝鲜和其他国家。<br><img src="http://ww2.sinaimg.cn/large/6f0978aajw1f4ucfsa1voj20ci063wem.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3986186064605394" target="freeweibo-mirror">[衰] //@徐昕://@社会学刘晨:谷歌对于查找英文文献非…</a>
+</h2>
+<p>[衰] //@徐昕://@社会学刘晨:谷歌对于查找英文文献非常有用。<br><br>RE: 古巴今日宣布解禁Google、Facebook 等美国敌对势力网站，Google 同时发表声明，愿意帮助包括古巴在内的所有国家公民免费上网，共享21世纪人类文明财富。目前，全球还有两个国家不能使用Google和Facebook：朝鲜和其他国家。<br><img src="http://ww2.sinaimg.cn/large/6f0978aajw1f4ucfsa1voj20ci063wem.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3986179496233832" target="freeweibo-mirror">SPAM 减 肥 成功是一种什么体验？</a>
 </h2>
 <p>SPAM 减 肥 成功是一种什么体验？</p>
@@ -29,7 +41,7 @@
 </h2>
 <p>SPAM 十年了，人类终于可以一键删除全部通知。#WWDC16#  ——saic</p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3986085077757877" target="freeweibo-mirror">#WWDC16# ① tvOS已经拥有1300个视频频道,在…</a>
 </h2>
@@ -124,18 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3985993940286054" target="freeweibo-mirror">SPAM #AKB48萌妹争霸女神诞生#啊哦，我是看到AMA…</a>
 </h2>
 <p>SPAM #AKB48萌妹争霸女神诞生#啊哦，我是看到AMAKB48第八届总决选将首次正版直播这爱心提醒才来滴[鼓掌]</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3985982929962145" target="freeweibo-mirror">SPAM #仙剑云之凡#又要辛苦追剧了，好难等哦[ali转圈…</a>
-</h2>
-<p>SPAM #仙剑云之凡#又要辛苦追剧了，好难等哦[ali转圈哭]其实我的妈妈还是非常年轻的。</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3985980350593412" target="freeweibo-mirror">SPAM #心疼余罪#看你演床叫的那段真的很滔搞笑的啊！</a>
-</h2>
-<p>SPAM #心疼余罪#看你演床叫的那段真的很滔搞笑的啊！</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
