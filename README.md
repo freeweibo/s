@@ -113,7 +113,7 @@
 </h2>
 <p>习的这个说法很牛啊。逐步弱化民族差异，根本没必要刻意强调民族自治。<br><img src="http://ww4.sinaimg.cn/large/e0645f27gw1f4vwpza8fpj21be0qok10.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3986638289414152" target="freeweibo-mirror">开个“迷你庭”，二中院逗你玩呢。</a>
 </h2>
