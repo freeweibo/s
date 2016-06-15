@@ -19,6 +19,30 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3986729712775123" target="freeweibo-mirror">//@如皋-乐极生: 没有旁听哪有公开，没有公开哪有公正，连…</a>
+</h2>
+<p>//@如皋-乐极生: 没有旁听哪有公开，没有公开哪有公正，连最简单的公民旁听都不能切实保障，这司法改革怎敢言成功。</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3986729184352606" target="freeweibo-mirror">我要去旁听夏霖律师案的开庭。//@阿潘茶馆:我要去旁听开庭。</a>
+</h2>
+<p>我要去旁听夏霖律师案的开庭。//@阿潘茶馆:我要去旁听开庭。<br><br>RE: 因众多亲友关心夏霖庭审，都想届时申请旁听，而我只有报两名直系亲属名额的权利，无能为力。只能试着委托丁锡奎王振宇两位律师向法院申请将目前的小厅换成大厅。出于人情天伦，@北京市第二中级人民法院 可否通融调整？谢谢。</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3986724726210935" target="freeweibo-mirror">SPAM #早熟的梨子你敢吃吗#好想去跳这个必须支持，我最喜…</a>
+</h2>
+<p>SPAM #早熟的梨子你敢吃吗#好想去跳这个必须支持，我最喜欢玩了伞啊，约起来好嘛！</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3986718120453951" target="freeweibo-mirror">SPAM 【单利华案开庭南通当局如临大敌】法庭调查快结束时，…</a>
+</h2>
+<p>SPAM 【单利华案开庭南通当局如临大敌】法庭调查快结束时，单利华因情绪激动而发病，庭审中断。 今天南通当局一级战备，三步一岗五步一哨。各个路口都有警察。 长江三角洲一带的维权公民差不多都被维稳在家里，但是仍有很多公民突破重围到现场要求旁听，但无法走近法院。<br><img src="http://ww4.sinaimg.cn/large/48e2aa03jw1f4w59h6emxj20f00qowfe.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3986709492250530" target="freeweibo-mirror">SPAM 一直都不知道原来乐视电视里边滨还有这么一个秘密。#…</a>
 </h2>
 <p>SPAM 一直都不知道原来乐视电视里边滨还有这么一个秘密。#我有不同看法#</p>
@@ -114,30 +138,6 @@
 <p>政府应该给他发一个女朋友，发达国家都是这么干的。<br><br>RE: 【浦东机场爆炸案追踪：“老实本分”的农村娃 何以提着炸弹走进浦东机场？】没有人知道，周兴柏为什么会想到要亡命疯狂，而且选择在了上海的浦东机场。他的爷爷罗亨富认为，如果有个家人在身旁，或者有女朋友跟他在一起，也许他不至于迷上赌博，更不会走上这条路。http://t.cn/R5XM6Xa<br><img src="http://ww3.sinaimg.cn/large/620beb06gw1f4vs1gcchaj20fa0bvdhn.jpg"></p>
 <p>
 	<small> ============== 7小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3986643150782532" target="freeweibo-mirror">习的这个说法很牛啊。逐步弱化民族差异，根本没必要刻意强调民族…</a>
-</h2>
-<p>习的这个说法很牛啊。逐步弱化民族差异，根本没必要刻意强调民族自治。<br><img src="http://ww4.sinaimg.cn/large/e0645f27gw1f4vwpza8fpj21be0qok10.jpg"></p>
-<p>
-	<small> ============== 7小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3986638289414152" target="freeweibo-mirror">开个“迷你庭”，二中院逗你玩呢。</a>
-</h2>
-<p>开个“迷你庭”，二中院逗你玩呢。<br><br>RE: 昨天庭前会已正式确认开庭时间为6月17日早9：30，在二中院第四法庭。这是一小厅，只有四五席可旁听，法院的意见，我虽是家属，但已列为证人不能旁听。丁锡奎律师在庭前会上明确表示：夏霖无罪，并要求对全部证据做非法证据排除。 http://t.cn/R5Xa6XX</p>
-<p>
-	<small> ============== 8小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3986637920510417" target="freeweibo-mirror">SPAM 太傻逼，沉迷赌博算在没女朋友身上？单身狗多了，都炸…</a>
-</h2>
-<p>SPAM 太傻逼，沉迷赌博算在没女朋友身上？单身狗多了，都炸机场去？怎么治？不铲除赌博，每人发一个女朋友吗？<br><br>RE: 【浦东机场爆炸案追踪：“老实本分”的农村娃 何以提着炸弹走进浦东机场？】没有人知道，周兴柏为什么会想到要亡命疯狂，而且选择在了上海的浦东机场。他的爷爷罗亨富认为，如果有个家人在身旁，或者有女朋友跟他在一起，也许他不至于迷上赌博，更不会走上这条路。http://t.cn/R5XM6Xa<br><img src="http://ww3.sinaimg.cn/large/620beb06gw1f4vs1gcchaj20fa0bvdhn.jpg"></p>
-<p>
-	<small> ============== 8小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3986631175946790" target="freeweibo-mirror">【浦东机场爆炸案追踪：“老实本分”的农村娃 何以提着炸弹走进…</a>
-</h2>
-<p>【浦东机场爆炸案追踪：“老实本分”的农村娃 何以提着炸弹走进浦东机场？】没有人知道，周兴柏为什么会想到要亡命疯狂，而且选择在了上海的浦东机场。他的爷爷罗亨富认为，如果有个家人在身旁，或者有女朋友跟他在一起，也许他不至于迷上赌博，更不会走上这条路。http://t.cn/R5XM6Xa<br><img src="http://ww3.sinaimg.cn/large/620beb06gw1f4vs1gcchaj20fa0bvdhn.jpg"></p>
-<p>
-	<small> ============== 8小时前</small>
 </p>
 <table>
     <tr>
