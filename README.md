@@ -25,6 +25,12 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3986584079165939" target="freeweibo-mirror">+1，用禁毒类比很合适//@打奥特曼de小怪兽: 让孩子吃饭…</a>
+</h2>
+<p>+1，用禁毒类比很合适//@打奥特曼de小怪兽: 让孩子吃饭，是丑化信仰....真特么高级黑。//@陌悠悠小窝: //@亻造天堂://@最高权力西塞罗:附议//@水门冤案尼克松: 最右+1//@女王的拖把--申-花余孽:右边+1 //@斗战胜佛之赤佬模子:就冲你们不让孩子吃饭，我都要反对你们这个信仰！<br><br>RE: 去年斋月里逼着学生吃西瓜，今年又升级了，竟然把封斋和毒品同步禁止啦！既然信仰不能干涉教育，为什么教育却可以丑化信仰呢？唉！真不知道，这些屁股决定脑袋的奇葩现象，到底是怎么形成的？！也是无语了……！[吃惊][晕]--李海洋<br><img src="http://ww2.sinaimg.cn/large/d012e0fajw1f4v4pkzhgbj20hs0nqad9.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3986558392620914" target="freeweibo-mirror">SPAM #12小时生存挑战#一路狂欢，[爱爱爱]也开始喜欢…</a>
 </h2>
 <p>SPAM #12小时生存挑战#一路狂欢，[爱爱爱]也开始喜欢12小时生存挑战这贴心提示了哈[ali转]</p>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3986430843596944" target="freeweibo-mirror">SPAM 睡前八卦！转需~</a>
 </h2>
 <p>SPAM 睡前八卦！转需~</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3986417224765193" target="freeweibo-mirror">SPAM #痞人推荐# 推荐德国便携衣物去渍笔。衣服上不小心…</a>
-</h2>
-<p>SPAM #痞人推荐# 推荐德国便携衣物去渍笔。衣服上不小心滴到咖啡和茶、果汁酱汁，或是蹭到的化妆品都可以用它擦掉。推荐给粗线条朋友们，避免尴尬。<br><img src="http://ww3.sinaimg.cn/large/7e2c0387gw1f4v6rnuvg0j20h90qotc5.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
