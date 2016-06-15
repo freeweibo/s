@@ -41,7 +41,7 @@
 </h2>
 <p>SPAM 天啊噜啊。。 太高能了！[doge]</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3986543384978188" target="freeweibo-mirror">//@西西福厮:这叫补刀，呵呵。//@张鹤慈:【一位当时的目…</a>
 </h2>
@@ -65,7 +65,7 @@
 </h2>
 <p>不看这个还真被蒙蔽了 //@LifeTime://@吴向宏_投资无国界:非常同意。现在国内的反穆言论和仇日仇台言论并没有什么不同，本质上都是用来转移视线的。。。。。最好是相信：民主制度在穆斯林面前必将崩溃，非穆只能靠普京、川普之类强人保护。<br><br>RE: 国内反穆是个耍猴的伪问题<br><img src="http://ww4.sinaimg.cn/large/005Korjfjw1f4una7ljv3j30ri4144qp.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3986530416961801" target="freeweibo-mirror">//@李本奇律师: 转发微博</a>
 </h2>
