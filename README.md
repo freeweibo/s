@@ -53,7 +53,7 @@
 </h2>
 <p>真相。<br><br>RE: 【深圳警察辱骂女子事发前监控曝光】媒体调查时，一位当时的目击者说，很可能是警察在盘查小刘姐妹身份证前受了气，拿小刘姐妹出气。http://t.cn/R56r2Ro</p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3986546669568098" target="freeweibo-mirror">SPAM 天啊噜啊。。 太高能了！[doge]</a>
 </h2>
@@ -137,7 +137,7 @@
 </h2>
 <p>去年斋月里逼着学生吃西瓜，今年又升级了，竟然把封斋和毒品同步禁止啦！既然信仰不能干涉教育，为什么教育却可以丑化信仰呢？唉！真不知道，这些屁股决定脑袋的奇葩现象，到底是怎么形成的？！也是无语了……！[吃惊][晕]--李海洋<br><img src="http://ww2.sinaimg.cn/large/d012e0fajw1f4v4pkzhgbj20hs0nqad9.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p>
 <table>
     <tr>
