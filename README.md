@@ -19,11 +19,17 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3986593464983191" target="freeweibo-mirror">吠解放军为“贼子胜土匪”的阿訇！ http://t.cn/R…</a>
+</h2>
+<p>吠解放军为“贼子胜土匪”的阿訇！ http://t.cn/R5XK72T //@梦遗唐朝: 一个不让孩子吃饭的信仰，呵呵 //@赛县长:@公安部刑侦局 怎么还不抓这种恐怖分子宣传队？<br><br>RE: 去年斋月里逼着学生吃西瓜，今年又升级了，竟然把封斋和毒品同步禁止啦！既然信仰不能干涉教育，为什么教育却可以丑化信仰呢？唉！真不知道，这些屁股决定脑袋的奇葩现象，到底是怎么形成的？！也是无语了……！[吃惊][晕]--李海洋<br><img src="http://ww2.sinaimg.cn/large/d012e0fajw1f4v4pkzhgbj20hs0nqad9.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3986558392620914" target="freeweibo-mirror">SPAM #12小时生存挑战#一路狂欢，[爱爱爱]也开始喜欢…</a>
 </h2>
 <p>SPAM #12小时生存挑战#一路狂欢，[爱爱爱]也开始喜欢12小时生存挑战这贴心提示了哈[ali转]</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3986550657811669" target="freeweibo-mirror">真相。</a>
 </h2>
@@ -41,13 +47,13 @@
 </h2>
 <p>//@西西福厮:这叫补刀，呵呵。//@张鹤慈:【一位当时的目击者说，很可能是警察在盘查小刘姐妹身份证前受了气】@澎湃新闻 的记者是法盲，先不说只是一个人的证词是非常弱的证据。这里的【很可能】三个字就是法庭必需排除的无效证据。目击者只能提供他看到听到的，不能提供他想到的。<br><br>RE: 【深圳警察辱骂女子事发前监控曝光http://t.cn/R56r2Ro 】小刘和妹妹为什么会被盘查身份证，被带上警车前发生了什么？一位当时的目击者说，很可能是警察在盘查小刘姐妹身份证前受了气，拿小刘姐妹出气，因为在盘查小刘姐妹前，这位民警盘查了一名男子，男子称自己没带身份证，还让警察出示证件，态度很...全文： http://m.weibo.cn/5044281310/3986364394110174</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3986543330588509" target="freeweibo-mirror">SPAM #我是完颜氏#真心感觉一起晒美照招数是我的大爱，必…</a>
 </h2>
 <p>SPAM #我是完颜氏#真心感觉一起晒美照招数是我的大爱，必须支持呀。</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3986540558018058" target="freeweibo-mirror">深圳一不输出革命，二不输出饥饿贫穷，山东吃饱了撑的要对深圳说…</a>
 </h2>
@@ -77,7 +83,7 @@
 </h2>
 <p>SPAM #吴晓波隐居杨梅岛#[dino害羞]额，吴晓波老师靠实力直播非同凡响[din亲亲][din亲亲]</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3986527824244738" target="freeweibo-mirror">//@RubyLinRubyLin:现在知道谁犯贱了吧？不知…</a>
 </h2>
@@ -119,7 +125,7 @@
 </h2>
 <p>SPAM 睡前八卦！转需~</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3986417224765193" target="freeweibo-mirror">SPAM #痞人推荐# 推荐德国便携衣物去渍笔。衣服上不小心…</a>
 </h2>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3986416171559760" target="freeweibo-mirror">SPAM 她被商业巨子买来当老婆，夜夜忍受着他在她身上叫别的…</a>
 </h2>
 <p>SPAM 她被商业巨子买来当老婆，夜夜忍受着他在她身上叫别的女人的名字，五年辛酸，她终于递上一纸离婚协议书，带着孩子离开…… http://t.cn/R5X23yP</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3986415723523512" target="freeweibo-mirror">SPAM 最新微[doge]信内容如下，欢迎大家查阅！【ID…</a>
-</h2>
-<p>SPAM 最新微[doge]信内容如下，欢迎大家查阅！【ID:qqzuqiu】【昵称：欧洲足球论坛】<br><img src="http://ww3.sinaimg.cn/large/8b98adefjw1f4v6mqzz2hj20hs0gwgnu.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
