@@ -77,7 +77,7 @@
 </h2>
 <p>//@缥缈:[微笑]//@八大山债人:服！！！！//@s恹恹s: 在此事上高瞻远瞩！<br><br>RE: 习的这个说法很牛啊。逐步弱化民族差异，根本没必要刻意强调民族自治。<br><img src="http://ww4.sinaimg.cn/large/e0645f27gw1f4vwpza8fpj21be0qok10.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3986676474395602" target="freeweibo-mirror">能够决定历史进程的所有力量，都不会允许文革重来，文革已经成为…</a>
 </h2>
