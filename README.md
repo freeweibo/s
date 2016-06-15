@@ -19,6 +19,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3986615170945637" target="freeweibo-mirror">SPAM #619父亲节想说情话#父亲节，我要准备希望爸爸一…</a>
+</h2>
+<p>SPAM #619父亲节想说情话#父亲节，我要准备希望爸爸一直都在我们身边一份礼物。</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3986593464983191" target="freeweibo-mirror">吠解放军为“贼子胜土匪”的阿訇！ http://t.cn/R…</a>
 </h2>
 <p>吠解放军为“贼子胜土匪”的阿訇！ http://t.cn/R5XK72T //@梦遗唐朝: 一个不让孩子吃饭的信仰，呵呵 //@赛县长:@公安部刑侦局 怎么还不抓这种恐怖分子宣传队？<br><br>RE: 去年斋月里逼着学生吃西瓜，今年又升级了，竟然把封斋和毒品同步禁止啦！既然信仰不能干涉教育，为什么教育却可以丑化信仰呢？唉！真不知道，这些屁股决定脑袋的奇葩现象，到底是怎么形成的？！也是无语了……！[吃惊][晕]--李海洋<br><img src="http://ww2.sinaimg.cn/large/d012e0fajw1f4v4pkzhgbj20hs0nqad9.jpg"></p>
@@ -41,7 +47,7 @@
 </h2>
 <p>SPAM #12小时生存挑战#一路狂欢，[爱爱爱]也开始喜欢12小时生存挑战这贴心提示了哈[ali转]</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3986550657811669" target="freeweibo-mirror">真相。</a>
 </h2>
@@ -59,13 +65,13 @@
 </h2>
 <p>//@西西福厮:这叫补刀，呵呵。//@张鹤慈:【一位当时的目击者说，很可能是警察在盘查小刘姐妹身份证前受了气】@澎湃新闻 的记者是法盲，先不说只是一个人的证词是非常弱的证据。这里的【很可能】三个字就是法庭必需排除的无效证据。目击者只能提供他看到听到的，不能提供他想到的。<br><br>RE: 【深圳警察辱骂女子事发前监控曝光http://t.cn/R56r2Ro 】小刘和妹妹为什么会被盘查身份证，被带上警车前发生了什么？一位当时的目击者说，很可能是警察在盘查小刘姐妹身份证前受了气，拿小刘姐妹出气，因为在盘查小刘姐妹前，这位民警盘查了一名男子，男子称自己没带身份证，还让警察出示证件，态度很...全文： http://m.weibo.cn/5044281310/3986364394110174</p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3986543330588509" target="freeweibo-mirror">SPAM #我是完颜氏#真心感觉一起晒美照招数是我的大爱，必…</a>
 </h2>
 <p>SPAM #我是完颜氏#真心感觉一起晒美照招数是我的大爱，必须支持呀。</p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3986540558018058" target="freeweibo-mirror">深圳一不输出革命，二不输出饥饿贫穷，山东吃饱了撑的要对深圳说…</a>
 </h2>
@@ -95,7 +101,7 @@
 </h2>
 <p>SPAM #吴晓波隐居杨梅岛#[dino害羞]额，吴晓波老师靠实力直播非同凡响[din亲亲][din亲亲]</p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3986527824244738" target="freeweibo-mirror">//@RubyLinRubyLin:现在知道谁犯贱了吧？不知…</a>
 </h2>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3986467204634293" target="freeweibo-mirror">去年斋月里逼着学生吃西瓜，今年又升级了，竟然把封斋和毒品同步…</a>
 </h2>
 <p>去年斋月里逼着学生吃西瓜，今年又升级了，竟然把封斋和毒品同步禁止啦！既然信仰不能干涉教育，为什么教育却可以丑化信仰呢？唉！真不知道，这些屁股决定脑袋的奇葩现象，到底是怎么形成的？！也是无语了……！[吃惊][晕]--李海洋<br><img src="http://ww2.sinaimg.cn/large/d012e0fajw1f4v4pkzhgbj20hs0nqad9.jpg"></p>
-<p>
-	<small> ============== 12小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3986465840978758" target="freeweibo-mirror">SPAM 不让豆豆闹情绪，处置豆豆小妙招</a>
-</h2>
-<p>SPAM 不让豆豆闹情绪，处置豆豆小妙招</p>
 <p>
 	<small> ============== 12小时前</small>
 </p>
