@@ -35,7 +35,7 @@
 </h2>
 <p>一个不让孩子吃饭的信仰，呵呵 //@赛县长:@公安部刑侦局 怎么还不抓这种恐怖分子宣传队？<br><br>RE: 去年斋月里逼着学生吃西瓜，今年又升级了，竟然把封斋和毒品同步禁止啦！既然信仰不能干涉教育，为什么教育却可以丑化信仰呢？唉！真不知道，这些屁股决定脑袋的奇葩现象，到底是怎么形成的？！也是无语了……！[吃惊][晕]--李海洋<br><img src="http://ww2.sinaimg.cn/large/d012e0fajw1f4v4pkzhgbj20hs0nqad9.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3986584079165939" target="freeweibo-mirror">+1，用禁毒类比很合适//@打奥特曼de小怪兽: 让孩子吃饭…</a>
 </h2>
@@ -59,7 +59,7 @@
 </h2>
 <p>SPAM 天啊噜啊。。 太高能了！[doge]</p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3986543384978188" target="freeweibo-mirror">//@西西福厮:这叫补刀，呵呵。//@张鹤慈:【一位当时的目…</a>
 </h2>
@@ -83,7 +83,7 @@
 </h2>
 <p>不看这个还真被蒙蔽了 //@LifeTime://@吴向宏_投资无国界:非常同意。现在国内的反穆言论和仇日仇台言论并没有什么不同，本质上都是用来转移视线的。。。。。最好是相信：民主制度在穆斯林面前必将崩溃，非穆只能靠普京、川普之类强人保护。<br><br>RE: 国内反穆是个耍猴的伪问题<br><img src="http://ww4.sinaimg.cn/large/005Korjfjw1f4una7ljv3j30ri4144qp.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3986530416961801" target="freeweibo-mirror">//@李本奇律师: 转发微博</a>
 </h2>
