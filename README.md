@@ -61,6 +61,12 @@
 <p>
 	<small> ============== 5小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3986581964694325" target="freeweibo-mirror">昨天庭前会已正式确认开庭时间为6月17日早9：30，在二中院…</a>
+</h2>
+<p>昨天庭前会已正式确认开庭时间为6月17日早9：30，在二中院第四法庭。这是一小厅，只有四五席可旁听，法院的意见，我虽是家属，但已列为证人不能旁听。丁锡奎律师在庭前会上明确表示：夏霖无罪，并要求对全部证据做非法证据排除。 http://t.cn/R5Xa6XX</p>
+<p>
+	<small> ============== 5小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3986572191625709" target="freeweibo-mirror">习总生日，是不是应该举国欢庆呢？最好放一天假！</a>
 </h2>
 <p>习总生日，是不是应该举国欢庆呢？最好放一天假！</p>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3986527824244738" target="freeweibo-mirror">//@RubyLinRubyLin:现在知道谁犯贱了吧？不知…</a>
 </h2>
 <p>//@RubyLinRubyLin:现在知道谁犯贱了吧？不知道微博的力量大是吗？<br><br>RE: 【深圳警察辱骂女子事发前监控曝光：双方拉扯35秒】监控显示，小刘姐妹穿过市场门口的马路时碰到查验证件的民警，这时小刘的妹妹用手比划着说着什么，情绪有点激动，随后小刘也和民警说了什么，民警用手推了一下小刘的肩膀，双方发生拉扯。有目击者称警察受了气，拿小刘姐妹出气。http://t.cn/R56EWqG</p>
-<p>
-	<small> ============== 9小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3986527274736478" target="freeweibo-mirror">SPAM //@情感者:码后看，精彩后续全文戳：http:/…</a>
-</h2>
-<p>SPAM //@情感者:码后看，精彩后续全文戳：http://t.cn/Rqj0zgB</p>
 <p>
 	<small> ============== 9小时前</small>
 </p>
