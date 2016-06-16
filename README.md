@@ -35,7 +35,7 @@
 </h2>
 <p>SPAM //@司徒一平律师: 女友犯什么法了？<br><br>RE: 【这届香港人真不争气！】加拿大小记者就香港书店事件提王外长问，惹部长严厉训斥其“无端指责”。没想到话音刚落，不争气的书店店长又冒出来了！<br><img src="http://ww2.sinaimg.cn/large/6a80bfcdjw1f4xiouug2sj20hs0vk426.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3987152628649263" target="freeweibo-mirror">//@访书客: 转发微博</a>
 </h2>
