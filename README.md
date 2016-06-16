@@ -101,7 +101,7 @@
 </h2>
 <p>[嘘]//@邵明波: 转发微博<br><br>RE: 吴英和周滨，一个是民间艰难集资经营，所集金额不过五亿；一个是利用父亲权力直接侵占，获利高达900多亿。然而与法律相遭遇，一个被判死刑，一个才18年。很明显地折射中国之权力和司法的本质。<br><img src="http://ww1.sinaimg.cn/large/005OrCXNgw1f4wr9rre7bj30ci08vmyi.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3986927755614924" target="freeweibo-mirror">SPAM #商业信时代来了#[ali哇][ppb鼓掌]真的特…</a>
 </h2>
