@@ -35,7 +35,7 @@
 </h2>
 <p>太疯狂 //@罗昌平:高官司法审判上的新纪录，不过，封疆大吏的身价远不止于此吧？！<br><br>RE: 一个共产党的省委书记，贪了近2.5亿元。这个世界真的让我这个无党非人士看不懂。http://t.cn/R5a1wuT</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3987025088737320" target="freeweibo-mirror">//@章诒和:这个政权配不上我们的老百姓。//@于建嵘: 回…</a>
 </h2>
@@ -71,7 +71,7 @@
 </h2>
 <p>一个共产党的省委书记，贪了近2.5亿元。这个世界真的让我这个无党非人士看不懂。http://t.cn/R5a1wuT</p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3986998648006432" target="freeweibo-mirror">SPAM #无限斗界定档716#海报做的还可以，不知桂道电影…</a>
 </h2>
