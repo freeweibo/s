@@ -125,7 +125,7 @@
 </h2>
 <p>吴英和周滨，一个是民间艰难集资经营，所集金额不过五亿；一个是利用父亲权力直接侵占，获利高达900多亿。然而与法律相遭遇，一个被判死刑，一个才18年。很明显地折射中国之权力和司法的本质。<br><img src="http://ww1.sinaimg.cn/large/005OrCXNgw1f4wr9rre7bj30ci08vmyi.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3986903877454150" target="freeweibo-mirror">【领导憋屈有话说】当年网络疯传的一段视频，近日又开始网传。视…</a>
 </h2>
