@@ -53,7 +53,13 @@
 </h2>
 <p>//@静娅_: 都说代表人民的根本利益，然周家敛财之巨，其真实数字可能连他们自己都不好意思公布了。<br><br>RE: 吴英和周滨，一个是民间艰难集资经营，所集金额不过五亿；一个是利用父亲权力直接侵占，获利高达900多亿。然而与法律相遭遇，一个被判死刑，一个才18年。很明显地折射中国之权力和司法的本质。<br><img src="http://ww1.sinaimg.cn/large/005OrCXNgw1f4wr9rre7bj30ci08vmyi.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3986944692647414" target="freeweibo-mirror">SPAM #废柴兄弟#所以说不开心的时候要看废柴兄弟。[有鸭…</a>
+</h2>
+<p>SPAM #废柴兄弟#所以说不开心的时候要看废柴兄弟。[有鸭梨]迎</p>
+<p>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3986943824382380" target="freeweibo-mirror">SPAM #废柴兄弟#所以说这个机秩会不会错过。</a>
 </h2>
@@ -95,7 +101,7 @@
 </h2>
 <p>SPAM #商业信时代来了#诚信是人生路上的一张通诚信是任何事情前的一张标牌行证</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3986932293483927" target="freeweibo-mirror">[嘘]//@邵明波: 转发微博</a>
 </h2>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3986920335371003" target="freeweibo-mirror">SPAM 好吧，Ethan真不愧是NY之QUEEN……</a>
 </h2>
 <p>SPAM 好吧，Ethan真不愧是NY之QUEEN……</p>
-<p>
-	<small> ============== 6小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3986918582227465" target="freeweibo-mirror">SPAM 。。。 //@地瓜熊老六:接待方的脑子呢，也一起阉…</a>
-</h2>
-<p>SPAM 。。。 //@地瓜熊老六:接待方的脑子呢，也一起阉割了？//@点子正:沈阳接待花了这么多功夫，让这个一嗓子毁了。。多此一嗓。外交无小事。。。[doge]//@点子正:小德子迎接德奶奶，记得把抢的东西送回来。。[doge]<br><br>RE: 【默克尔参观沈阳故宫，八国联军之一的德爷爷来了，接待方在门口一亮嗓子……那100年前纯正的太监味儿哟！[吐]http://t.cn/R563sdz】</p>
 <p>
 	<small> ============== 6小时前</small>
 </p>
