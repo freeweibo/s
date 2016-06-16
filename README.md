@@ -113,7 +113,7 @@
 </h2>
 <p>SPAM //@LifeTime:世界级丑闻。<br><br>RE: 分享图片<br><img src="http://ww3.sinaimg.cn/large/46e9d5dajw1f4xeux2nzpj206i5024dc.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3987113147755213" target="freeweibo-mirror">洋奴//@摩罗空间: 夫复何言哉！</a>
 </h2>
