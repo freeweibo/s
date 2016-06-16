@@ -23,13 +23,13 @@
 </h2>
 <p>//@惊醒的家奴37: //@小二在厨房: 很快全网封杀这个话题！明天又有一大帮转世网友了！[衰]//@種花家旳流氓兎:鱉鱉招致全球反感和憤慨 圈內還一片沒有強國世界完蛋的論調 //@牆腳爪爪: [怒] //@Henry轉世聯絡號:转发微博<br><br>RE: 人權寫進憲法…我呸<br><img src="http://ww1.sinaimg.cn/large/006uVsP5jw1f4xeeyf45mj30qo1fzgtb.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3987130424454689" target="freeweibo-mirror">SPAM [doge] //@Aptor9:呵呵 //@索菲…</a>
 </h2>
 <p>SPAM [doge] //@Aptor9:呵呵 //@索菲鹿://@北冥乘海生:这回我支持这个香港人！<br><br>RE: 分享图片<br><img src="http://ww3.sinaimg.cn/large/46e9d5dajw1f4xeux2nzpj206i5024dc.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3987128913850690" target="freeweibo-mirror">SPAM //@阿花的伊萨卡岛: 终于有人出来说话了。07年…</a>
 </h2>
