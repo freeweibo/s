@@ -77,13 +77,19 @@
 </h2>
 <p>SPAM 。。。 //@地瓜熊老六:接待方的脑子呢，也一起阉割了？//@点子正:沈阳接待花了这么多功夫，让这个一嗓子毁了。。多此一嗓。外交无小事。。。[doge]//@点子正:小德子迎接德奶奶，记得把抢的东西送回来。。[doge]<br><br>RE: 【默克尔参观沈阳故宫，八国联军之一的德爷爷来了，接待方在门口一亮嗓子……那100年前纯正的太监味儿哟！[吐]http://t.cn/R563sdz】</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3986908973607845" target="freeweibo-mirror">吴英和周滨，一个是民间艰难集资经营，所集金额不过五亿；一个是…</a>
+</h2>
+<p>吴英和周滨，一个是民间艰难集资经营，所集金额不过五亿；一个是利用父亲权力直接侵占，获利高达900多亿。然而与法律相遭遇，一个被判死刑，一个才18年。很明显地折射中国之权力和司法的本质。<br><img src="http://ww1.sinaimg.cn/large/005OrCXNgw1f4wr9rre7bj30ci08vmyi.jpg"></p>
+<p>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3986903877454150" target="freeweibo-mirror">【领导憋屈有话说】当年网络疯传的一段视频，近日又开始网传。视…</a>
 </h2>
 <p>【领导憋屈有话说】当年网络疯传的一段视频，近日又开始网传。视频中发表讲话的领导叫郑雁雄，2009年至2013年间，先后担任广东省汕尾市市长、市委书记一职，现任广东省委宣传部副部长。他在汕尾主政期间，发生了震惊全国的“乌坎群体事件”。http://t.cn/R4itgRa微问：你对这段视频讲话有什么看法？</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3986899699430184" target="freeweibo-mirror">SPAM 【好文分享】1、武大郎生活在没有城 管的年代，令人…</a>
 </h2>
@@ -107,7 +113,7 @@
 </h2>
 <p>SPAM 时上没有不以貌取人的君子，也没有不自爱自恋的女子！完善自己，下个网红就是你！</p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3986869652532858" target="freeweibo-mirror">最近俺很忙，最近俺很烦！[抓狂][抓狂][抓狂]</a>
 </h2>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3986775905120142" target="freeweibo-mirror">SPAM 胃信：icplove</a>
 </h2>
 <p>SPAM 胃信：icplove</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3986764538115263" target="freeweibo-mirror">SPAM #张柏芝崔胜铉失控上海#感觉《失控》全主创阵容首次…</a>
-</h2>
-<p>SPAM #张柏芝崔胜铉失控上海#感觉《失控》全主创阵容首次集体亮相真滴很赞。</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
