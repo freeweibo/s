@@ -83,23 +83,35 @@
 </h2>
 <p>//@惊醒的家奴37: //@小二在厨房: 很快全网封杀这个话题！明天又有一大帮转世网友了！[衰]//@種花家旳流氓兎:鱉鱉招致全球反感和憤慨 圈內還一片沒有強國世界完蛋的論調 //@牆腳爪爪: [怒] //@Henry轉世聯絡號:转发微博<br><br>RE: 人權寫進憲法…我呸<br><img src="http://ww1.sinaimg.cn/large/006uVsP5jw1f4xeeyf45mj30qo1fzgtb.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3987144949171562" target="freeweibo-mirror">SPAM //@水兵李铭://@Fanny_7788://@…</a>
 </h2>
 <p>SPAM //@水兵李铭://@Fanny_7788://@自由的章鱼哥12://@牆腳爪爪:香港帳號會被刪一批，營銷號再出來反轉，拿出林先生的口供，挖隱私揭露林先生港獨面目，再炒香港反中事件⋯⋯套路[挖鼻]<br><br>RE: 好像開始刪貼了。。。。。。接下來當然又是各種扣港[微笑]獨帽子然後最後又是都TM是外國勢力的錯[挖鼻]</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3987144823674398" target="freeweibo-mirror">SPAM //@Fanny_7788://@自由的章鱼哥12…</a>
 </h2>
 <p>SPAM //@Fanny_7788://@自由的章鱼哥12://@牆腳爪爪:香港帳號會被刪一批，營銷號再出來反轉，拿出林先生的口供，挖隱私揭露林先生港獨面目，再炒香港反中事件⋯⋯套路[挖鼻]<br><br>RE: 好像開始刪貼了。。。。。。接下來當然又是各種扣港[微笑]獨帽子然後最後又是都TM是外國勢力的錯[挖鼻]</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3987144568150223" target="freeweibo-mirror">SPAM 不想再忍受下去了。//@夏榆的海景房:轉發微博</a>
 </h2>
 <p>SPAM 不想再忍受下去了。//@夏榆的海景房:轉發微博</p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3987142457831857" target="freeweibo-mirror">手快把图存了，铜锣湾书店事件！现在好多人都在说大陆打脸，尼玛…</a>
+</h2>
+<p>手快把图存了，铜锣湾书店事件！现在好多人都在说大陆打脸，尼玛没经证实的瞎说什么，仅凭一方之词就可以认定谁是谁非？坐等@环球时报  其他人说的我都不信，我就信环时！求别删！有什么好删的！微博就是这样瞎删搞得人心惶惶！身正不怕影子斜！<br><img src="http://ww3.sinaimg.cn/large/73cb77adgw1f4xhzy3dtxj206i502akt.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3987141720042663" target="freeweibo-mirror">好像開始刪貼了。。。。。。接下來當然又是各種扣港[微笑]獨帽…</a>
+</h2>
+<p>好像開始刪貼了。。。。。。接下來當然又是各種扣港[微笑]獨帽子然後最後又是都TM是外國勢力的錯[挖鼻]</p>
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
@@ -119,23 +131,11 @@
 </h2>
 <p>SPAM [doge] //@Aptor9:呵呵 //@索菲鹿://@北冥乘海生:这回我支持这个香港人！<br><br>RE: 分享图片<br><img src="http://ww3.sinaimg.cn/large/46e9d5dajw1f4xeux2nzpj206i5024dc.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3987128913850690" target="freeweibo-mirror">SPAM //@阿花的伊萨卡岛: 终于有人出来说话了。07年…</a>
 </h2>
 <p>SPAM //@阿花的伊萨卡岛: 终于有人出来说话了。07年香港回归十周年，我去采访了大半个月，忘记当时谁对我说:香港改变不了大陆，大陆会吞掉香港。<br><br>RE: 分享图片<br><img src="http://ww3.sinaimg.cn/large/46e9d5dajw1f4xeux2nzpj206i5024dc.jpg"></p>
-<p>
-	<small> ============== 4小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3987128758879464" target="freeweibo-mirror">SPAM //@akid:</a>
-</h2>
-<p>SPAM //@akid:</p>
-<p>
-	<small> ============== 4小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3987128482208205" target="freeweibo-mirror">SPAM </a>
-</h2>
-<p>SPAM </p>
 <p>
 	<small> ============== 4小时前</small>
 </p>
