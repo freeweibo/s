@@ -49,6 +49,12 @@
 <p>
 	<small> ============== 4小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3986999826759308" target="freeweibo-mirror">一个共产党的省委书记，贪了近2.5亿元。这个世界真的让我这个…</a>
+</h2>
+<p>一个共产党的省委书记，贪了近2.5亿元。这个世界真的让我这个无党非人士看不懂。http://t.cn/R5a1wuT</p>
+<p>
+	<small> ============== 5小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3986998648006432" target="freeweibo-mirror">SPAM #无限斗界定档716#海报做的还可以，不知桂道电影…</a>
 </h2>
 <p>SPAM #无限斗界定档716#海报做的还可以，不知桂道电影怎么样。</p>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3986942763021187" target="freeweibo-mirror">都说代表人民的根本利益，然周家敛财之巨，其真实数字可能连他们…</a>
 </h2>
 <p>都说代表人民的根本利益，然周家敛财之巨，其真实数字可能连他们自己都不好意思公布了。<br><br>RE: 吴英和周滨，一个是民间艰难集资经营，所集金额不过五亿；一个是利用父亲权力直接侵占，获利高达900多亿。然而与法律相遭遇，一个被判死刑，一个才18年。很明显地折射中国之权力和司法的本质。<br><img src="http://ww1.sinaimg.cn/large/005OrCXNgw1f4wr9rre7bj30ci08vmyi.jpg"></p>
-<p>
-	<small> ============== 8小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3986942070609148" target="freeweibo-mirror">有血统和无血统的待遇！ //@民生焦点转播://@老王得学习…</a>
-</h2>
-<p>有血统和无血统的待遇！ //@民生焦点转播://@老王得学习://@莱德赵克强://@邵明波: 转发微博<br><br>RE: 吴英和周滨，一个是民间艰难集资经营，所集金额不过五亿；一个是利用父亲权力直接侵占，获利高达900多亿。然而与法律相遭遇，一个被判死刑，一个才18年。很明显地折射中国之权力和司法的本质。<br><img src="http://ww1.sinaimg.cn/large/005OrCXNgw1f4wr9rre7bj30ci08vmyi.jpg"></p>
 <p>
 	<small> ============== 8小时前</small>
 </p>
