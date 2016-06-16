@@ -131,13 +131,13 @@
 </h2>
 <p>SPAM 中国之所以这么大，不是充话费送的，不是谈仁爱换的，靠的是一个个王朝互相血腥的杀戮、征服、兼并来的。[微笑]<br><br>RE: 分享图片<br><img src="http://ww3.sinaimg.cn/large/46e9d5dajw1f4xeux2nzpj206i5024dc.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3987121137911983" target="freeweibo-mirror">SPAM //@阿花的伊萨卡岛:终于有人出来说话了。07年香…</a>
 </h2>
 <p>SPAM //@阿花的伊萨卡岛:终于有人出来说话了。07年香港回归十周年，我去采访了大半个月，忘记当时谁对我说:香港改变不了大陆，大陆会吞掉香港。<br><br>RE: 分享图片<br><img src="http://ww3.sinaimg.cn/large/46e9d5dajw1f4xeux2nzpj206i5024dc.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p>
 <table>
     <tr>
