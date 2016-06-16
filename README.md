@@ -107,7 +107,7 @@
 </h2>
 <p>绝对平均绝对贫穷，机会均等不等于结果平均。常识就是常识。 //@北京厨子新号:左派的灾难。</p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3986970415723863" target="freeweibo-mirror">SPAM #惊天魔盗团2#这样看骋起来还是蛮惊艳滴了</a>
 </h2>
