@@ -125,13 +125,13 @@
 </h2>
 <p>汉人应重建汉人宗教信仰//@记者土豆: 转发微博<br><br>RE: 【领导憋屈有话说】当年网络疯传的一段视频，近日又开始网传。视频中发表讲话的领导叫郑雁雄，2009年至2013年间，先后担任广东省汕尾市市长、市委书记一职，现任广东省委宣传部副部长。他在汕尾主政期间，发生了震惊全国的“乌坎群体事件”。http://t.cn/R4itgRa微问：你对这段视频讲话有什么看法？</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3986920335371003" target="freeweibo-mirror">SPAM 好吧，Ethan真不愧是NY之QUEEN……</a>
 </h2>
 <p>SPAM 好吧，Ethan真不愧是NY之QUEEN……</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3986918582227465" target="freeweibo-mirror">SPAM 。。。 //@地瓜熊老六:接待方的脑子呢，也一起阉…</a>
 </h2>
