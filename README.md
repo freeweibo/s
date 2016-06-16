@@ -77,13 +77,13 @@
 </h2>
 <p>SPAM 从此已经无法直视“活菩萨”这个词了……</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3986783022435587" target="freeweibo-mirror">//@yply678: [赞][作揖]//@雨里雾-://@…</a>
 </h2>
 <p>//@yply678: [赞][作揖]//@雨里雾-://@青青0翠竹://@泰山翁A://@追唐-如东李忠: //@阳光小老头b://@第一号傻瓜8: 又见旗袍[心]关于中国法律的本质一语道破→_→王法、皇法、帮规<br><br>RE: 旗袍：匪之法 匪之律 http://t.cn/R56Q8Z1 .</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3986775905120142" target="freeweibo-mirror">SPAM 胃信：icplove</a>
 </h2>
