@@ -23,7 +23,7 @@
 </h2>
 <p>SPAM #你真的会睡觉吗# 人类进化史=睡觉进化史！这个观点，我给100分。http://t.cn/R5aEpp1</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3986998648006432" target="freeweibo-mirror">SPAM #无限斗界定档716#海报做的还可以，不知桂道电影…</a>
 </h2>
