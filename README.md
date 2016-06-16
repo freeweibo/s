@@ -35,7 +35,7 @@
 </h2>
 <p>SPAM //@导演李军林: 司机用自己的车，拉愿意坐的百姓，把老百姓送到，老百姓给钱，挨你交警哪门子事了。如果司机愿意出租自己的车，政府部门唯一能做的就是让司机来登记备个案。关键是要免费备案，而不是渔利。</p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3987158316395525" target="freeweibo-mirror">SPAM //@司徒一平律师: 女友犯什么法了？</a>
 </h2>
@@ -107,13 +107,13 @@
 </h2>
 <p>//@仰望青:唉…//@腾晓东:都被“二代”害惨了。</p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3987147629325040" target="freeweibo-mirror">【这届香港人真不争气！】加拿大小记者就香港书店事件提王外长问…</a>
 </h2>
 <p>【这届香港人真不争气！】加拿大小记者就香港书店事件提王外长问，惹部长严厉训斥其“无端指责”。没想到话音刚落，不争气的书店店长又冒出来了！<br><img src="http://ww2.sinaimg.cn/large/6a80bfcdjw1f4xiouug2sj20hs0vk426.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3987147063635661" target="freeweibo-mirror">//@小古月半: 转发微博</a>
 </h2>
