@@ -37,6 +37,12 @@
 <p>
 	<small> ============== 4小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3987154495565728" target="freeweibo-mirror">SPAM 主动为敌，不断挑衅，一旦被打击，就高声喊冤。这帮狗…</a>
+</h2>
+<p>SPAM 主动为敌，不断挑衅，一旦被打击，就高声喊冤。这帮狗操的就是这么搞民主的。民主这样？我在民主国家生活了十几年，怎么从来没见过这样的民主？//@椒江叶Sir: 呵呵，挑事呗！<br><br>RE: 我和你谈笑风生http://t.cn/R5Sibdm //@吐槽鬼:但至少国内宣传口子开下,让大家知道他们做了啥啊~现在是只要提的都删帖封号~可闾丘露薇这样发的,反倒安稳如山~//@李牧: 这种货色挑衅后就喊冤,好像真不知自己在做什么.世上从没随便喷的言论自由<br><img src="http://ww2.sinaimg.cn/large/005tEfpPgw1f4xiucskjaj30hs0vkgqd.jpg"></p>
+<p>
+	<small> ============== 5小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3987152628649263" target="freeweibo-mirror">//@访书客: 转发微博</a>
 </h2>
 <p>//@访书客: 转发微博<br><br>RE: 【这届香港人真不争气！】加拿大小记者就香港书店事件提王外长问，惹部长严厉训斥其“无端指责”。没想到话音刚落，不争气的书店店长又冒出来了！<br><img src="http://ww2.sinaimg.cn/large/6a80bfcdjw1f4xiouug2sj20hs0vk426.jpg"></p>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3987146630985111" target="freeweibo-mirror">//@小小鸟1974: //@知不甩质://@浅水一汪: /…</a>
 </h2>
 <p>//@小小鸟1974: //@知不甩质://@浅水一汪: //@边城酒家:转发微博<br><br>RE: 发个香港的。万一销号 记得给我烧纸。<br><img src="http://ww3.sinaimg.cn/large/6362d8eagw1f4xg2d465kj20lz7pskjl.jpg"></p>
-<p>
-	<small> ============== 5小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3987145418346807" target="freeweibo-mirror">//@惊醒的家奴37: //@小二在厨房: 很快全网封杀这个…</a>
-</h2>
-<p>//@惊醒的家奴37: //@小二在厨房: 很快全网封杀这个话题！明天又有一大帮转世网友了！[衰]//@種花家旳流氓兎:鱉鱉招致全球反感和憤慨 圈內還一片沒有強國世界完蛋的論調 //@牆腳爪爪: [怒] //@Henry轉世聯絡號:转发微博<br><br>RE: 人權寫進憲法…我呸<br><img src="http://ww1.sinaimg.cn/large/006uVsP5jw1f4xeeyf45mj30qo1fzgtb.jpg"></p>
 <p>
 	<small> ============== 5小时前</small>
 </p>
