@@ -125,13 +125,13 @@
 </h2>
 <p>好像開始刪貼了。。。。。。接下來當然又是各種扣港[微笑]獨帽子然後最後又是都TM是外國勢力的錯[挖鼻]</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3987141299919830" target="freeweibo-mirror">SPAM 义人，勇士。//@能靠点儿谱吗:这种无中生有的东西…</a>
 </h2>
 <p>SPAM 义人，勇士。//@能靠点儿谱吗:这种无中生有的东西，你替他再说一遍等于你也有责任对伐<br><br>RE: 今天香港的大新闻。<br><img src="http://ww3.sinaimg.cn/large/6764cadegw1f4xf2q8kbfj20u0comhdy.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3987140838932902" target="freeweibo-mirror">SPAM //@与非YUFEI://@洁身自爱0912：比较…</a>
 </h2>
