@@ -71,7 +71,7 @@
 </h2>
 <p>SPAM [闭嘴] //@大项的天://@元猫大大://@与非YUFEI://@洁身自爱0912：比较关心买书的那几百内地人怎么样了。应该会被叫去反省吧[嘘]<br><br>RE: 今天香港的大新闻。<br><img src="http://ww3.sinaimg.cn/large/6764cadegw1f4xf2q8kbfj20u0comhdy.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3987147956510261" target="freeweibo-mirror">//@仰望青:唉…//@腾晓东:都被“二代”害惨了。</a>
 </h2>
@@ -85,6 +85,12 @@
 <p>
 	<small> ============== 4小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3987146966793680" target="freeweibo-mirror">SPAM 读者名单。删除这个原发微博，删除你我的转发，然后大…</a>
+</h2>
+<p>SPAM 读者名单。删除这个原发微博，删除你我的转发，然后大家都忘了自己发过啥 //@无肉不欢911://@lxdtelecombj: 逐一抓购书者。//@路人丙瘦熊:重点是要读者名单。。。<br><br>RE: 发个香港的。万一销号 记得给我烧纸。<br><img src="http://ww3.sinaimg.cn/large/6362d8eagw1f4xg2d465kj20lz7pskjl.jpg"></p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3987146870593300" target="freeweibo-mirror">SPAM //@殆知阁: //@银海面: 操终于真相大白。好…</a>
 </h2>
 <p>SPAM //@殆知阁: //@银海面: 操终于真相大白。好不容易找到个能转的，拼手速   http://t.cn/R5Sa3Qo   //@能靠点儿谱吗:这种无中生有的东西，你替他再说一遍等于你也有责任对伐<br><br>RE: 今天香港的大新闻。<br><img src="http://ww3.sinaimg.cn/large/6764cadegw1f4xf2q8kbfj20u0comhdy.jpg"></p>
@@ -94,6 +100,12 @@
 	<a href="https://freeweibo.com/weibo/3987146635181589" target="freeweibo-mirror">深夜讨论：为什么越来越多的人膜长者？</a>
 </h2>
 <p>深夜讨论：为什么越来越多的人膜长者？<br><img src="http://ww3.sinaimg.cn/large/71fa61e8gw1f4xikph7nlj20g40b30tn.jpg"></p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3987146630985111" target="freeweibo-mirror">//@小小鸟1974: //@知不甩质://@浅水一汪: /…</a>
+</h2>
+<p>//@小小鸟1974: //@知不甩质://@浅水一汪: //@边城酒家:转发微博<br><br>RE: 发个香港的。万一销号 记得给我烧纸。<br><img src="http://ww3.sinaimg.cn/large/6362d8eagw1f4xg2d465kj20lz7pskjl.jpg"></p>
 <p>
 	<small> ============== 4小时前</small>
 </p><h2>
@@ -124,18 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3987143481812565" target="freeweibo-mirror">SPAM 借花敬佛，獻給勇敢的銅T鑼L灣W林先生。</a>
 </h2>
 <p>SPAM 借花敬佛，獻給勇敢的銅T鑼L灣W林先生。<br><img src="http://ww4.sinaimg.cn/large/76636994gw1f4xi75v57tj20qo0zkdtr.jpg"></p>
-<p>
-	<small> ============== 4小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3987142457831857" target="freeweibo-mirror">手快把图存了，铜锣湾书店事件！现在好多人都在说大陆打脸，尼玛…</a>
-</h2>
-<p>手快把图存了，铜锣湾书店事件！现在好多人都在说大陆打脸，尼玛没经证实的瞎说什么，仅凭一方之词就可以认定谁是谁非？坐等@环球时报  其他人说的我都不信，我就信环时！求别删！有什么好删的！微博就是这样瞎删搞得人心惶惶！身正不怕影子斜！<br><img src="http://ww3.sinaimg.cn/large/73cb77adgw1f4xhzy3dtxj206i502akt.jpg"></p>
-<p>
-	<small> ============== 4小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3987141720042663" target="freeweibo-mirror">好像開始刪貼了。。。。。。接下來當然又是各種扣港[微笑]獨帽…</a>
-</h2>
-<p>好像開始刪貼了。。。。。。接下來當然又是各種扣港[微笑]獨帽子然後最後又是都TM是外國勢力的錯[挖鼻]</p>
 <p>
 	<small> ============== 4小时前</small>
 </p>
