@@ -41,13 +41,13 @@
 </h2>
 <p>//@访书客: 转发微博<br><br>RE: 【这届香港人真不争气！】加拿大小记者就香港书店事件提王外长问，惹部长严厉训斥其“无端指责”。没想到话音刚落，不争气的书店店长又冒出来了！<br><img src="http://ww2.sinaimg.cn/large/6a80bfcdjw1f4xiouug2sj20hs0vk426.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3987152288659189" target="freeweibo-mirror">SPAM 驴球、杨锦麟自打失业（被凤凰开除)后，只能靠激进推…</a>
 </h2>
 <p>SPAM 驴球、杨锦麟自打失业（被凤凰开除)后，只能靠激进推墙 刷存在感了！也许是再就业吧//@椒江叶Sir: 呵呵，挑事呗！<br><br>RE: 我和你谈笑风生http://t.cn/R5Sibdm //@吐槽鬼:但至少国内宣传口子开下,让大家知道他们做了啥啊~现在是只要提的都删帖封号~可闾丘露薇这样发的,反倒安稳如山~//@李牧: 这种货色挑衅后就喊冤,好像真不知自己在做什么.世上从没随便喷的言论自由<br><img src="http://ww2.sinaimg.cn/large/005tEfpPgw1f4xiucskjaj30hs0vkgqd.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3987151462682501" target="freeweibo-mirror">//@akid:歪哟！//@猪哥的围脖: [喵喵] //@周…</a>
 </h2>
@@ -76,6 +76,12 @@
 	<a href="https://freeweibo.com/weibo/3987149680571250" target="freeweibo-mirror">[doge] http://t.cn/R5SoGJF</a>
 </h2>
 <p>[doge] http://t.cn/R5SoGJF<br><br>RE: 深夜讨论：为什么越来越多的人膜长者？<br><img src="http://ww3.sinaimg.cn/large/71fa61e8gw1f4xikph7nlj20g40b30tn.jpg"></p>
+<p>
+	<small> ============== 5小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3987149008730864" target="freeweibo-mirror">我和你谈笑风生http://t.cn/R5Sibdm //@…</a>
+</h2>
+<p>我和你谈笑风生http://t.cn/R5Sibdm //@吐槽鬼:但至少国内宣传口子开下,让大家知道他们做了啥啊~现在是只要提的都删帖封号~可闾丘露薇这样发的,反倒安稳如山~//@李牧: 这种货色挑衅后就喊冤,好像真不知自己在做什么.世上从没随便喷的言论自由<br><img src="http://ww2.sinaimg.cn/large/005tEfpPgw1f4xiucskjaj30hs0vkgqd.jpg"></p>
 <p>
 	<small> ============== 5小时前</small>
 </p><h2>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3987145418346807" target="freeweibo-mirror">//@惊醒的家奴37: //@小二在厨房: 很快全网封杀这个…</a>
 </h2>
 <p>//@惊醒的家奴37: //@小二在厨房: 很快全网封杀这个话题！明天又有一大帮转世网友了！[衰]//@種花家旳流氓兎:鱉鱉招致全球反感和憤慨 圈內還一片沒有強國世界完蛋的論調 //@牆腳爪爪: [怒] //@Henry轉世聯絡號:转发微博<br><br>RE: 人權寫進憲法…我呸<br><img src="http://ww1.sinaimg.cn/large/006uVsP5jw1f4xeeyf45mj30qo1fzgtb.jpg"></p>
-<p>
-	<small> ============== 5小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3987144949171562" target="freeweibo-mirror">SPAM //@水兵李铭://@Fanny_7788://@…</a>
-</h2>
-<p>SPAM //@水兵李铭://@Fanny_7788://@自由的章鱼哥12://@牆腳爪爪:香港帳號會被刪一批，營銷號再出來反轉，拿出林先生的口供，挖隱私揭露林先生港獨面目，再炒香港反中事件⋯⋯套路[挖鼻]<br><br>RE: 好像開始刪貼了。。。。。。接下來當然又是各種扣港[微笑]獨帽子然後最後又是都TM是外國勢力的錯[挖鼻]</p>
 <p>
 	<small> ============== 5小时前</small>
 </p>
