@@ -41,7 +41,7 @@
 </h2>
 <p>//@章诒和:这个政权配不上我们的老百姓。//@于建嵘: 回复@goodnose:他当然比我可靠。我只是为这个国家感到悲哀，这是些什么东西在管理这个国家啊。如此贪婪！//@goodnose:尽管如此，在裆的眼里，他依然比你更可靠。<br><br>RE: 一个共产党的省委书记，贪了近2.5亿元。这个世界真的让我这个无党非人士看不懂。http://t.cn/R5a1wuT</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3987018998528212" target="freeweibo-mirror">//@李蒙不蒙你:2.5亿还多么？没见过钱。[哈哈]//@于…</a>
 </h2>
@@ -59,7 +59,7 @@
 </h2>
 <p>SPAM #你真的会睡觉吗# 人类进化史=睡觉进化史！这个观点，我给100分。http://t.cn/R5aEpp1</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3987005832751255" target="freeweibo-mirror">SPAM 麻麻被邀请去Zaker的【懂区Freak Show…</a>
 </h2>
