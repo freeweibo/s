@@ -35,7 +35,7 @@
 </h2>
 <p>【领导憋屈有话说】当年网络疯传的一段视频，近日又开始网传。视频中发表讲话的领导叫郑雁雄，2009年至2013年间，先后担任广东省汕尾市市长、市委书记一职，现任广东省委宣传部副部长。他在汕尾主政期间，发生了震惊全国的“乌坎群体事件”。http://t.cn/R4itgRa微问：你对这段视频讲话有什么看法？</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3986899699430184" target="freeweibo-mirror">SPAM 【好文分享】1、武大郎生活在没有城 管的年代，令人…</a>
 </h2>
@@ -59,7 +59,7 @@
 </h2>
 <p>SPAM 时上没有不以貌取人的君子，也没有不自爱自恋的女子！完善自己，下个网红就是你！</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3986869652532858" target="freeweibo-mirror">最近俺很忙，最近俺很烦！[抓狂][抓狂][抓狂]</a>
 </h2>
@@ -71,19 +71,19 @@
 </h2>
 <p>SPAM 从此已经无法直视“活菩萨”这个词了……</p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3986783022435587" target="freeweibo-mirror">//@yply678: [赞][作揖]//@雨里雾-://@…</a>
 </h2>
 <p>//@yply678: [赞][作揖]//@雨里雾-://@青青0翠竹://@泰山翁A://@追唐-如东李忠: //@阳光小老头b://@第一号傻瓜8: 又见旗袍[心]关于中国法律的本质一语道破→_→王法、皇法、帮规<br><br>RE: 旗袍：匪之法 匪之律 http://t.cn/R56Q8Z1 .</p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3986775905120142" target="freeweibo-mirror">SPAM 胃信：icplove</a>
 </h2>
 <p>SPAM 胃信：icplove</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3986764538115263" target="freeweibo-mirror">SPAM #张柏芝崔胜铉失控上海#感觉《失控》全主创阵容首次…</a>
 </h2>
