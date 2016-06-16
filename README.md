@@ -29,19 +29,19 @@
 </h2>
 <p>SPAM //@阿花的伊萨卡岛: 终于有人出来说话了。07年香港回归十周年，我去采访了大半个月，忘记当时谁对我说:香港改变不了大陆，大陆会吞掉香港。<br><br>RE: 分享图片<br><img src="http://ww3.sinaimg.cn/large/46e9d5dajw1f4xeux2nzpj206i5024dc.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3987128758879464" target="freeweibo-mirror">SPAM //@akid:</a>
 </h2>
 <p>SPAM //@akid:</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3987128482208205" target="freeweibo-mirror">SPAM </a>
 </h2>
 <p>SPAM </p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3987127567559568" target="freeweibo-mirror">SPAM  //@淵流青年:我想...我還是不要太恐懼太誤判…</a>
 </h2>
