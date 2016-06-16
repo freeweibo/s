@@ -119,7 +119,7 @@
 </h2>
 <p>手快把图存了，铜锣湾书店事件！现在好多人都在说大陆打脸，尼玛没经证实的瞎说什么，仅凭一方之词就可以认定谁是谁非？坐等@环球时报  其他人说的我都不信，我就信环时！求别删！有什么好删的！微博就是这样瞎删搞得人心惶惶！身正不怕影子斜！<br><img src="http://ww3.sinaimg.cn/large/73cb77adgw1f4xhzy3dtxj206i502akt.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3987141720042663" target="freeweibo-mirror">好像開始刪貼了。。。。。。接下來當然又是各種扣港[微笑]獨帽…</a>
 </h2>
