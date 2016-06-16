@@ -29,7 +29,7 @@
 </h2>
 <p>绝对平均绝对贫穷，机会均等不等于结果平均。常识就是常识。 //@北京厨子新号:左派的灾难。</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3986970415723863" target="freeweibo-mirror">SPAM #惊天魔盗团2#这样看骋起来还是蛮惊艳滴了</a>
 </h2>
@@ -77,13 +77,13 @@
 </h2>
 <p>都说代表人民的根本利益，然周家敛财之巨，其真实数字可能连他们自己都不好意思公布了。<br><br>RE: 吴英和周滨，一个是民间艰难集资经营，所集金额不过五亿；一个是利用父亲权力直接侵占，获利高达900多亿。然而与法律相遭遇，一个被判死刑，一个才18年。很明显地折射中国之权力和司法的本质。<br><img src="http://ww1.sinaimg.cn/large/005OrCXNgw1f4wr9rre7bj30ci08vmyi.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3986942070609148" target="freeweibo-mirror">有血统和无血统的待遇！ //@民生焦点转播://@老王得学习…</a>
 </h2>
 <p>有血统和无血统的待遇！ //@民生焦点转播://@老王得学习://@莱德赵克强://@邵明波: 转发微博<br><br>RE: 吴英和周滨，一个是民间艰难集资经营，所集金额不过五亿；一个是利用父亲权力直接侵占，获利高达900多亿。然而与法律相遭遇，一个被判死刑，一个才18年。很明显地折射中国之权力和司法的本质。<br><img src="http://ww1.sinaimg.cn/large/005OrCXNgw1f4wr9rre7bj30ci08vmyi.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3986941843766827" target="freeweibo-mirror">为什么不让她参观被她国抢过的北京故宫，怕她害臊？//@大佬杨…</a>
 </h2>
@@ -119,7 +119,7 @@
 </h2>
 <p>SPAM #商业信时代来了#[ali哇][ppb鼓掌]真的特别好，就是一个商业信息时代。认为我是月日月日月日消息</p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3986926380399607" target="freeweibo-mirror">SPAM #谭维维靓了#我也不懂是不是粉丝来的[偷笑]我的等…</a>
 </h2>
