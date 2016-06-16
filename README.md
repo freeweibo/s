@@ -89,7 +89,7 @@
 </h2>
 <p>SPAM #张柏芝崔胜铉失控上海#感觉《失控》全主创阵容首次集体亮相真滴很赞。</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3986761238023056" target="freeweibo-mirror">//@温良俭让1: 【打肉一下斥官腐】——只抓现案不追责，贪…</a>
 </h2>
