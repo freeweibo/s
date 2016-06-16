@@ -95,13 +95,13 @@
 </h2>
 <p>SPAM 中国之所以这么大，不是充话费送的，不是谈仁爱换的，靠的是一个个王朝互相血腥的杀戮、征服、兼并来的。[微笑]<br><br>RE: 分享图片<br><img src="http://ww3.sinaimg.cn/large/46e9d5dajw1f4xeux2nzpj206i5024dc.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3987121137911983" target="freeweibo-mirror">SPAM //@阿花的伊萨卡岛:终于有人出来说话了。07年香…</a>
 </h2>
 <p>SPAM //@阿花的伊萨卡岛:终于有人出来说话了。07年香港回归十周年，我去采访了大半个月，忘记当时谁对我说:香港改变不了大陆，大陆会吞掉香港。<br><br>RE: 分享图片<br><img src="http://ww3.sinaimg.cn/large/46e9d5dajw1f4xeux2nzpj206i5024dc.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3987119624629723" target="freeweibo-mirror">//@小二在厨房:[话筒][抓狂][抓狂]//@认准A头像:…</a>
 </h2>
@@ -137,7 +137,7 @@
 </h2>
 <p>太恐怖了！//@摩羯老潘A://@黄河天下天2://@愛murmur的小捌_36:那是什麼組織？ //@hhh去台湾:林说，抓他的那些人，不是国安，不是派出所，不是军人，而是中央专案组！[弱]//@老饕加右: 这下搞砸了[挖鼻]怎么收场 //@榆_木_根://@就是永不言qi:[拳头][拳头] //@派动反25:转发微博<br><br>RE: 中國逼香港人無路可走。（香港加油[拳頭][拳頭]）<br><img src="http://ww3.sinaimg.cn/large/006uo4Fdjw1f4xblihhf1j30ku1127bd.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p>
 <table>
     <tr>
