@@ -79,6 +79,12 @@
 <p>
 	<small> ============== 4小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3987147629325040" target="freeweibo-mirror">【这届香港人真不争气！】加拿大小记者就香港书店事件提王外长问…</a>
+</h2>
+<p>【这届香港人真不争气！】加拿大小记者就香港书店事件提王外长问，惹部长严厉训斥其“无端指责”。没想到话音刚落，不争气的书店店长又冒出来了！<br><img src="http://ww2.sinaimg.cn/large/6a80bfcdjw1f4xiouug2sj20hs0vk426.jpg"></p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3987147063635661" target="freeweibo-mirror">//@小古月半: 转发微博</a>
 </h2>
 <p>//@小古月半: 转发微博</p>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3987144568150223" target="freeweibo-mirror">SPAM 不想再忍受下去了。//@夏榆的海景房:轉發微博</a>
 </h2>
 <p>SPAM 不想再忍受下去了。//@夏榆的海景房:轉發微博</p>
-<p>
-	<small> ============== 4小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3987143481812565" target="freeweibo-mirror">SPAM 借花敬佛，獻給勇敢的銅T鑼L灣W林先生。</a>
-</h2>
-<p>SPAM 借花敬佛，獻給勇敢的銅T鑼L灣W林先生。<br><img src="http://ww4.sinaimg.cn/large/76636994gw1f4xi75v57tj20qo0zkdtr.jpg"></p>
 <p>
 	<small> ============== 4小时前</small>
 </p>
