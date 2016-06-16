@@ -83,7 +83,7 @@
 </h2>
 <p>SPAM #废柴兄弟#所以说不开心的时候要看废柴兄弟。[有鸭梨]迎</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3986943824382380" target="freeweibo-mirror">SPAM #废柴兄弟#所以说这个机秩会不会错过。</a>
 </h2>
