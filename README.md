@@ -113,13 +113,19 @@
 </h2>
 <p>//@访书客: 转发微博<br><br>RE: 【这届香港人真不争气！】加拿大小记者就香港书店事件提王外长问，惹部长严厉训斥其“无端指责”。没想到话音刚落，不争气的书店店长又冒出来了！<br><img src="http://ww2.sinaimg.cn/large/6a80bfcdjw1f4xiouug2sj20hs0vk426.jpg"></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3987152288659189" target="freeweibo-mirror">SPAM 驴球、杨锦麟自打失业（被凤凰开除)后，只能靠激进推…</a>
 </h2>
 <p>SPAM 驴球、杨锦麟自打失业（被凤凰开除)后，只能靠激进推墙 刷存在感了！也许是再就业吧//@椒江叶Sir: 呵呵，挑事呗！<br><br>RE: 我和你谈笑风生http://t.cn/R5Sibdm //@吐槽鬼:但至少国内宣传口子开下,让大家知道他们做了啥啊~现在是只要提的都删帖封号~可闾丘露薇这样发的,反倒安稳如山~//@李牧: 这种货色挑衅后就喊冤,好像真不知自己在做什么.世上从没随便喷的言论自由<br><img src="http://ww2.sinaimg.cn/large/005tEfpPgw1f4xiucskjaj30hs0vkgqd.jpg"></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3987151811492141" target="freeweibo-mirror">特大新闻，贵阳次南门退伍老兵VS特警部队[吃惊][吃惊][吃…</a>
+</h2>
+<p>特大新闻，贵阳次南门退伍老兵VS特警部队[吃惊][吃惊][吃惊][吃惊]#贵阳新闻##贵阳新闻# http://t.cn/R2W6yU0<br><img src="http://ww3.sinaimg.cn/large/006bdHaagw1f4xj4ek6loj30u00miaeq.jpg"></p>
+<p>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3987151462682501" target="freeweibo-mirror">//@akid:歪哟！//@猪哥的围脖: [喵喵] //@周…</a>
 </h2>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3987151370613842" target="freeweibo-mirror">漏夜等！[酷]</a>
 </h2>
 <p>漏夜等！[酷]<br><br>RE: 手快把图存了，铜锣湾书店事件！现在好多人都在说大陆打脸，尼玛没经证实的瞎说什么，仅凭一方之词就可以认定谁是谁非？坐等@环球时报  其他人说的我都不信，我就信环时！求别删！有什么好删的！微博就是这样瞎删搞得人心惶惶！身正不怕影子斜！<br><img src="http://ww3.sinaimg.cn/large/73cb77adgw1f4xhzy3dtxj206i502akt.jpg"></p>
-<p>
-	<small> ============== 11小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3987151182363950" target="freeweibo-mirror">歪哟！//@猪哥的围脖: [喵喵] //@周铁东本人:谁在制…</a>
-</h2>
-<p>歪哟！//@猪哥的围脖: [喵喵] //@周铁东本人:谁在制造不稳定因素？ //@金陵酒徒仓氏: //@导演李军林:司机用自己的车，拉愿意坐的百姓，把老百姓送到，老百姓给钱，挨你交警哪门子事了。如果司机愿意出租自己的车，政府部门唯一能做的就是让司机来登记备个案。关键是要免费备案，而不是渔利。</p>
 <p>
 	<small> ============== 11小时前</small>
 </p>
