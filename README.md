@@ -23,7 +23,7 @@
 </h2>
 <p>//@全震动:转发微博<br><br>RE: 反腐败审判证实的和斗争需要放出的一些似是而非真真假假的中国官场腐败消息，不断击穿我想象力的㡳线。亿元已成家常便饭。占有金钱私馆、占有美女面首、弄权巧取豪夺、互咬你死我活，今天中国官场已经成了古今中外丑恶的集大成者。反腐败该从选官用官的根子上、从基本制度上反了。<br><img src="http://ww1.sinaimg.cn/large/6b804b51gw1f4xuyl7x83j20k00zl0ws.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3987376403633924" target="freeweibo-mirror">夏霖律师之前当事人的父亲。</a>
 </h2>
@@ -47,7 +47,7 @@
 </h2>
 <p>SPAM 香港几家书店，没必要毁之吗！//@李方平律师:子产不毁乡校：对于乡人聚会议政的乡校，然明主张毁掉，子产不同意。<br><br>RE: 马英九如此喊话，是干涉什么“政”？<br><img src="http://ww4.sinaimg.cn/large/6a80bfcdjw1f4y2kdkg0kj20ku0vmaf2.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3987340625749984" target="freeweibo-mirror">//@李方平律师:凭良心、凭法治信仰做事的律师尤其不易！</a>
 </h2>
