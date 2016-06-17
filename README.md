@@ -83,7 +83,7 @@
 </h2>
 <p>SPAM 妄议，抓回来//@侬侬乐: //@阳春三月200103://@LifeTime:胆大包天，是时候让马英九偷渡自首了。[怒]<br><br>RE: 马英九如此喊话，是干涉什么“政”？<br><img src="http://ww4.sinaimg.cn/large/6a80bfcdjw1f4y2kdkg0kj20ku0vmaf2.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3987335231996984" target="freeweibo-mirror">SPAM //@李方平律师:子产不毁乡校：对于乡人聚会议政的…</a>
 </h2>
@@ -125,7 +125,7 @@
 </h2>
 <p>马英九如此喊话，是干涉什么“政”？<br><img src="http://ww4.sinaimg.cn/large/6a80bfcdjw1f4y2kdkg0kj20ku0vmaf2.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3987315523455573" target="freeweibo-mirror">//@盘子微谈://@绍兴师爷行北京: //@徐幸起://@…</a>
 </h2>
