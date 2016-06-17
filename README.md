@@ -25,6 +25,12 @@
 <p>
 	<small> ============== 1小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3987522307216762" target="freeweibo-mirror">林书记已被欧镇长抓走，望各大媒体 社会关注我们乌坎！</a>
+</h2>
+<p>林书记已被欧镇长抓走，望各大媒体 社会关注我们乌坎！</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3987505793950006" target="freeweibo-mirror">我看能不能转。</a>
 </h2>
 <p>我看能不能转。<br><br>RE: 【香港铜锣湾书店五名负责人失踪案 再引社会关注】香港铜锣湾书店五名负责人失踪案再次引发社会关注。失踪近八个月的书店店长林荣基日前突然现身，声称自己因带禁书进入大陆，被中央专案组人员押走。香港多个泛民团体上街示威，要求港府彻查有关事件。http://t.cn/R5oWPwe<br><img src="http://ww1.sinaimg.cn/large/dca14309jw1f4ym44tztpj20k00b9gmf.jpg"></p>
@@ -132,12 +138,6 @@
 <p>现役特警将来也是老兵……。 //@王鹏律师:[吃惊][吃惊][吃惊]//@元猫大大: //@不作死就不会死-:喷了//@傻斯拉: 咬</p>
 <p>
 	<small> ============== 7小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3987427519807123" target="freeweibo-mirror">SPAM [笑cry]//@北国红叶来南国:[哈哈][哈哈]…</a>
-</h2>
-<p>SPAM [笑cry]//@北国红叶来南国:[哈哈][哈哈][哈哈] //@贬香-地震-神秘://@虎啸风凝: 这骂人骂的[哈哈]//@晨曦的北斗:[笑cry]爱国爱成这样，也是让人醉了[阴险]//@有恶不打是怂货:智商堪忧[笑cry]//@博平自民:[笑cry]//@蔣问TX新号:哈哈//@不认命的奴隶:哈哈哈哈！<br><br>RE: 骂谁呢？[吃惊]<br><img src="http://ww4.sinaimg.cn/large/617fc8a9jw1f4yanoy1z6j20m80awq4h.jpg"></p>
-<p>
-	<small> ============== 8小时前</small>
 </p>
 <table>
     <tr>
