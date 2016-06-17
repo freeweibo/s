@@ -89,7 +89,7 @@
 </h2>
 <p>SPAM //@李方平律师:子产不毁乡校：对于乡人聚会议政的乡校，然明主张毁掉，子产不同意，他说，“其所善者，吾则行之，其所恶者，吾则改之，是吾师也。”<br><br>RE: 马英九如此喊话，是干涉什么“政”？<br><img src="http://ww4.sinaimg.cn/large/6a80bfcdjw1f4y2kdkg0kj20ku0vmaf2.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3987334485962404" target="freeweibo-mirror">转李瑾律师现场观感。夏霖案还在庭审中。夏霖代理过的崔英杰的老…</a>
 </h2>
