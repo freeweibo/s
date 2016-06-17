@@ -77,7 +77,7 @@
 </h2>
 <p>SPAM 今天，一个汉子走上法庭，里面故事暂时看不到，先插播个花絮吧<br><img src="http://ww3.sinaimg.cn/large/a22c60dbgw1f4yih4zcehj20hk4xv1kx.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3987458565113585" target="freeweibo-mirror">SPAM 继续转！！</a>
 </h2>
@@ -119,7 +119,7 @@
 </h2>
 <p>有种烧了身份证啊，反正也不是人。//@凡事留白会自在:对抗暴政不是该革命吗？你光一个不带身份证，算什么反抗暴政？<br><br>RE: 发起一个“不带身份证运动”，只要不出远门不办特殊事项，就把身份证放家里。对抗暴政必须用行动。越驯良绳套越紧。</p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3987442488400734" target="freeweibo-mirror">SPAM //@黄河天下天2: [微风][微风][微风]</a>
 </h2>
