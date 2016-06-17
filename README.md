@@ -47,25 +47,25 @@
 </h2>
 <p>//@李方平律师:凭良心、凭法治信仰做事的律师尤其不易！<br><br>RE: 【杨金柱、黄汉中天津市检静坐要求保障辩护权】杨金柱律师安安静静地在天津市检察院的大门口坐等于世平检察长的答复！北京来硕律师事务所黄汉中律师陪坐。黄汉中律师担任包龙军的辩护人。杨黄二律师都是湖南蛮子！<br><img src="http://ww1.sinaimg.cn/large/6a80bfcdjw1f4xz49f3azj20rs0kugs0.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3987340428904441" target="freeweibo-mirror">凭良心、凭法治信仰做事的律师尤其不易！</a>
 </h2>
 <p>凭良心、凭法治信仰做事的律师尤其不易！<br><br>RE: 【杨金柱、黄汉中天津市检静坐要求保障辩护权】杨金柱律师安安静静地在天津市检察院的大门口坐等于世平检察长的答复！北京来硕律师事务所黄汉中律师陪坐。黄汉中律师担任包龙军的辩护人。杨黄二律师都是湖南蛮子！<br><img src="http://ww1.sinaimg.cn/large/6a80bfcdjw1f4xz49f3azj20rs0kugs0.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3987340160485653" target="freeweibo-mirror">//@充气榔头://@李方平律师:做律师难呀！</a>
 </h2>
 <p>//@充气榔头://@李方平律师:做律师难呀！<br><br>RE: 【杨金柱、黄汉中天津市检静坐要求保障辩护权】杨金柱律师安安静静地在天津市检察院的大门口坐等于世平检察长的答复！北京来硕律师事务所黄汉中律师陪坐。黄汉中律师担任包龙军的辩护人。杨黄二律师都是湖南蛮子！<br><img src="http://ww1.sinaimg.cn/large/6a80bfcdjw1f4xz49f3azj20rs0kugs0.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3987340059674632" target="freeweibo-mirror">//@杜君立: //@馬鳴謙: 關注//@漫游者粒子: 转发…</a>
 </h2>
 <p>//@杜君立: //@馬鳴謙: 關注//@漫游者粒子: 转发微博<br><br>RE: 转李瑾律师现场观感。夏霖案还在庭审中。夏霖代理过的崔英杰的老父亲从外地入京，在门口默默等候。美国使馆有官员也来了，可惜不能进去。现场警车众多，不完全统计有十一辆。路透社记者要采访，被驱赶。继续等待。愿夏霖平安。朋友们信任你，在外守候你归来。<br><img src="http://ww3.sinaimg.cn/large/60b78779jw1f4y3zg5rl5j20u013eq7y.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3987339539514580" target="freeweibo-mirror">//@荷永://@去V的刘建锋:朱孝顶说，他进入法院后，无法…</a>
 </h2>
