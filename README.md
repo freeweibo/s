@@ -107,7 +107,7 @@
 </h2>
 <p>「你在1995年远走布宜诺斯艾力斯没错」<br><img src="http://ww1.sinaimg.cn/large/6a6f2089gw1f4xwwz0o6lj20u0comhdy.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3987268308177130" target="freeweibo-mirror">//@会打洞的猫: //@天蝎黄世旭:[吃惊]//@行云仙客…</a>
 </h2>
