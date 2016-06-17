@@ -29,7 +29,7 @@
 </h2>
 <p>//@sjkjk2131uusau01u03: 中国军队征兵海报怎么弄了个日本驱逐舰，征兵办都混进反贼了吗？//@斯韦爵: [嘻嘻] //@原子漫画:[嘻嘻]//@出羽一个塔: 毫不违和//@爱的战士_NightAria:[笑cry][笑cry][笑cry]<br><br>RE: 背景舰船：日本国海上自卫队，白根级二号舰鞍马号（DDH-144）<br><img src="http://ww4.sinaimg.cn/large/006qplDGgw1f4ygyczfcmj30j60pu79v.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3987464589244427" target="freeweibo-mirror">搜了，果然不错，博主真厉害。http://t.cn/R5o6…</a>
 </h2>
@@ -47,7 +47,13 @@
 </h2>
 <p>SPAM //@浩正刘臻: [嘘] //@盘子微谈:[衰]//@大尸凶的漫画:双杀[挖鼻]<br><br>RE: 骂谁呢？[吃惊]<br><img src="http://ww4.sinaimg.cn/large/617fc8a9jw1f4yanoy1z6j20m80awq4h.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3987446021223685" target="freeweibo-mirror">背景舰船：日本国海上自卫队，白根级二号舰鞍马号（DDH-14…</a>
+</h2>
+<p>背景舰船：日本国海上自卫队，白根级二号舰鞍马号（DDH-144）<br><img src="http://ww4.sinaimg.cn/large/006qplDGgw1f4ygyczfcmj30j60pu79v.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3987442488400734" target="freeweibo-mirror">SPAM //@黄河天下天2: [微风][微风][微风]</a>
 </h2>
@@ -127,15 +133,9 @@
 <p>
 	<small> ============== 9小时前</small>
 </p><h2>
-	<a href="https://freeweibo.com/weibo/3987360414278885" target="freeweibo-mirror">SPAM 这智商……[哈哈]//@H落花流水H: //@梦断…</a>
+	<a href="https://freeweibo.com/weibo/3987363493789786" target="freeweibo-mirror">昨夜，在贵阳市区，一名退役军人被警察打伤，呼求支援，200多…</a>
 </h2>
-<p>SPAM 这智商……[哈哈]//@H落花流水H: //@梦断了:[哈哈]//@全震动:[哈哈] //@兰州风清扬:[哈哈]//@守候者说: //@啤啤呼: [笑cry]//@50年矛苔:[笑哈哈][笑哈哈]<br><br>RE: 習粉智商堪憂啊！[笑cry]<br><img src="http://ww2.sinaimg.cn/large/006pHvzVjw1f4y44ezu1cj30m80awjss.jpg"></p>
-<p>
-	<small> ============== 9小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3987357127126892" target="freeweibo-mirror">反贼！！！[围观]</a>
-</h2>
-<p>反贼！！！[围观]<br><img src="http://ww4.sinaimg.cn/large/a4c701e9jw1f4y6qvkdzbj20qe0zkdje.jpg"></p>
+<p>昨夜，在贵阳市区，一名退役军人被警察打伤，呼求支援，200多老兵闻讯赶到。大批特警奉命前往现场，驱逐围观市民，围住老兵暴打，随后，老兵全部被捕。当夜，从凯里、遵义、安顺驰援的老兵，被拦截在半路。今天，各片区退役军人遭警告，不得闹事。被打老兵宣称，要与政府死磕到底。<br><img src="http://ww2.sinaimg.cn/large/006eDRb1gw1f4y7du4qqqj30du0a6gmj.jpg"></p>
 <p>
 	<small> ============== 9小时前</small>
 </p>
