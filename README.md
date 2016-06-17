@@ -47,7 +47,7 @@
 </h2>
 <p>认清谁是我们的敌人！<br><br>RE: 张雪忠：我从来不相信，中国人会低贱到连享有民主权利的资格都没有；我一直都认为，那些剥夺中国人的民主权利的人，才是中国人真正的敌人。他们吃喝嫖赌、任意挥霍，没有道德底线，他们阻止全民免费医疗，阻止公平教育、阻止平等养老金、阻止司法公平、阻止言论自由。请问他们不是我们的敌人那么谁是？<br><img src="http://ww1.sinaimg.cn/large/006uDL0Wgw1f4wc7nk2bfj30cs08jmyo.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3987266353760331" target="freeweibo-mirror">SPAM 最后知道真相的我眼泪掉下来[doge]</a>
 </h2>
@@ -65,7 +65,7 @@
 </h2>
 <p>SPAM //@翠花不在家://@俗家人释永乖:这是一个必然结果→_→ //@回头兮岸:老兵对特警说：我的今天就是你明天<br><br>RE: 特大新闻，贵阳次南门退伍老兵VS特警部队[吃惊][吃惊][吃惊][吃惊]#贵阳新闻##贵阳新闻# http://t.cn/R2W6yU0<br><img src="http://ww3.sinaimg.cn/large/006bdHaagw1f4xj4ek6loj30u00miaeq.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3987245628966221" target="freeweibo-mirror">[弱] //@王连军律师://@麻毛雄://@北京厨子新号:…</a>
 </h2>
