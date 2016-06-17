@@ -53,7 +53,7 @@
 </h2>
 <p>背景舰船：日本国海上自卫队，白根级二号舰鞍马号（DDH-144）<br><img src="http://ww4.sinaimg.cn/large/006qplDGgw1f4ygyczfcmj30j60pu79v.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3987442488400734" target="freeweibo-mirror">SPAM //@黄河天下天2: [微风][微风][微风]</a>
 </h2>
@@ -101,7 +101,7 @@
 </h2>
 <p>SPAM 专业官僚 //@虹摄库尔斯克:征兵办公室一搬都搞不清楚武器型号，乱用美帝俄毛鬼子军舰飞机坦克的多了去了 //@光線照準派:[doge]@列那狐的传说  //@趙璋碩鼠:</p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3987391175492092" target="freeweibo-mirror">骂谁呢？[吃惊]</a>
 </h2>
