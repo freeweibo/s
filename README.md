@@ -23,7 +23,7 @@
 </h2>
 <p>SPAM //@蔡崇国之二:<br><br>RE: 林书记已被欧镇长抓走，望各大媒体 社会关注我们乌坎！</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3987522307216762" target="freeweibo-mirror">林书记已被欧镇长抓走，望各大媒体 社会关注我们乌坎！</a>
 </h2>
@@ -43,9 +43,21 @@
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3987491772504676" target="freeweibo-mirror">人人自危//@陈光武律师:回复@陈光武律师:将来国家会不会人…</a>
+</h2>
+<p>人人自危//@陈光武律师:回复@陈光武律师:将来国家会不会人人都发一块这样的手表。。。。。。[吃惊][吃惊][吃惊] //@陈光武律师:想起了保护动物的野外放养监测......<br><br>RE: 据说浦志强出来后，国家送了块大手表。必须实时佩戴，人家不要回去自己还不能取下.......律师做不成了，在原单位做杂役......[吃惊][吃惊][泪][泪]<br><img src="http://ww1.sinaimg.cn/large/63aeaff7jw1f4yljfv232j208m06474b.jpg"></p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3987490970815236" target="freeweibo-mirror">【香港铜锣湾书店五名负责人失踪案 再引社会关注】香港铜锣湾书…</a>
 </h2>
 <p>【香港铜锣湾书店五名负责人失踪案 再引社会关注】香港铜锣湾书店五名负责人失踪案再次引发社会关注。失踪近八个月的书店店长林荣基日前突然现身，声称自己因带禁书进入大陆，被中央专案组人员押走。香港多个泛民团体上街示威，要求港府彻查有关事件。http://t.cn/R5oWPwe<br><img src="http://ww1.sinaimg.cn/large/dca14309jw1f4ym44tztpj20k00b9gmf.jpg"></p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3987486277575178" target="freeweibo-mirror">//@公民林静在维权4:转发微博</a>
+</h2>
+<p>//@公民林静在维权4:转发微博<br><br>RE: 据说浦志强出来后，国家送了块大手表。必须实时佩戴，人家不要回去自己还不能取下.......律师做不成了，在原单位做杂役......[吃惊][吃惊][泪][泪]<br><img src="http://ww1.sinaimg.cn/large/63aeaff7jw1f4yljfv232j208m06474b.jpg"></p>
 <p>
 	<small> ============== 4小时前</small>
 </p><h2>
@@ -124,18 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3987446021223685" target="freeweibo-mirror">背景舰船：日本国海上自卫队，白根级二号舰鞍马号（DDH-14…</a>
 </h2>
 <p>背景舰船：日本国海上自卫队，白根级二号舰鞍马号（DDH-144）<br><img src="http://ww4.sinaimg.cn/large/006qplDGgw1f4ygyczfcmj30j60pu79v.jpg"></p>
-<p>
-	<small> ============== 7小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3987444493469449" target="freeweibo-mirror">有种烧了身份证啊，反正也不是人。//@凡事留白会自在:对抗暴…</a>
-</h2>
-<p>有种烧了身份证啊，反正也不是人。//@凡事留白会自在:对抗暴政不是该革命吗？你光一个不带身份证，算什么反抗暴政？<br><br>RE: 发起一个“不带身份证运动”，只要不出远门不办特殊事项，就把身份证放家里。对抗暴政必须用行动。越驯良绳套越紧。</p>
-<p>
-	<small> ============== 7小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3987442488400734" target="freeweibo-mirror">SPAM //@黄河天下天2: [微风][微风][微风]</a>
-</h2>
-<p>SPAM //@黄河天下天2: [微风][微风][微风]<br><br>RE: 中國維權律師女兒求援 總統府回應了<br><img src="http://ww1.sinaimg.cn/large/006uo4Fdjw1f4ydnsasvmj30ku11243q.jpg"></p>
 <p>
 	<small> ============== 7小时前</small>
 </p>
