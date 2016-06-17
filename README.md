@@ -23,7 +23,7 @@
 </h2>
 <p>SPAM //@黄河天下天2: [微风][微风][微风]<br><br>RE: 中國維權律師女兒求援 總統府回應了<br><img src="http://ww1.sinaimg.cn/large/006uo4Fdjw1f4ydnsasvmj30ku11243q.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3987417390802901" target="freeweibo-mirror">中國維權律師女兒求援 總統府回應了</a>
 </h2>
@@ -131,7 +131,7 @@
 </h2>
 <p>SPAM 妄议，抓回来//@侬侬乐: //@阳春三月200103://@LifeTime:胆大包天，是时候让马英九偷渡自首了。[怒]<br><br>RE: 马英九如此喊话，是干涉什么“政”？<br><img src="http://ww4.sinaimg.cn/large/6a80bfcdjw1f4y2kdkg0kj20ku0vmaf2.jpg"></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3987335231996984" target="freeweibo-mirror">SPAM //@李方平律师:子产不毁乡校：对于乡人聚会议政的…</a>
 </h2>
