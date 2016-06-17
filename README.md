@@ -65,7 +65,7 @@
 </h2>
 <p>搜了，果然不错，博主真厉害。http://t.cn/R5o6aPj  不过灰机应该P上去的吧？ //@李颖_201508: 中日亲善，经济提携，共同反那啥[嘻嘻] //@猫首相:中日亲善嘛 //@杜恂孜改://@爱的战士_NightAria:<br><br>RE: 背景舰船：日本国海上自卫队，白根级二号舰鞍马号（DDH-144）<br><img src="http://ww4.sinaimg.cn/large/006qplDGgw1f4ygyczfcmj30j60pu79v.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3987459652130143" target="freeweibo-mirror">SPAM 今天，一个汉子走上法庭，里面故事暂时看不到，先插播…</a>
 </h2>
@@ -125,7 +125,7 @@
 </h2>
 <p>现役特警将来也是老兵……。 //@王鹏律师:[吃惊][吃惊][吃惊]//@元猫大大: //@不作死就不会死-:喷了//@傻斯拉: 咬</p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3987427519807123" target="freeweibo-mirror">SPAM [笑cry]//@北国红叶来南国:[哈哈][哈哈]…</a>
 </h2>
