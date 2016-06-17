@@ -31,6 +31,12 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3987514484224493" target="freeweibo-mirror">法律人是怎么练成的？//@我是德赛: 转发微博</a>
+</h2>
+<p>法律人是怎么练成的？//@我是德赛: 转发微博<br><br>RE: 零口供，已知有很多民主人士都经历过。单次审讯或多次审讯包括受到酷刑仍是零口供的同仁不乏其人！但宋泽、夏霖两位是我目前所知国内仅有的被刑拘一年以上却依然零口供的英雄！偏偏两位都是身体孱弱的眼镜人士，向两位真英雄献上由衷的敬礼！[赞][赞][赞][鲜花][鲜花][鲜花][作揖][作揖][作揖]<br><img src="http://ww2.sinaimg.cn/large/006uuMlIgw1f4xr1x3v2yj30qo1bfgwe.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3987505793950006" target="freeweibo-mirror">我看能不能转。</a>
 </h2>
 <p>我看能不能转。<br><br>RE: 【香港铜锣湾书店五名负责人失踪案 再引社会关注】香港铜锣湾书店五名负责人失踪案再次引发社会关注。失踪近八个月的书店店长林荣基日前突然现身，声称自己因带禁书进入大陆，被中央专案组人员押走。香港多个泛民团体上街示威，要求港府彻查有关事件。http://t.cn/R5oWPwe<br><img src="http://ww1.sinaimg.cn/large/dca14309jw1f4ym44tztpj20k00b9gmf.jpg"></p>
@@ -77,7 +83,7 @@
 </h2>
 <p>搜了，果然不错，博主真厉害。http://t.cn/R5o6aPj  不过灰机应该P上去的吧？ //@李颖_201508: 中日亲善，经济提携，共同反那啥[嘻嘻] //@猫首相:中日亲善嘛 //@杜恂孜改://@爱的战士_NightAria:<br><br>RE: 背景舰船：日本国海上自卫队，白根级二号舰鞍马号（DDH-144）<br><img src="http://ww4.sinaimg.cn/large/006qplDGgw1f4ygyczfcmj30j60pu79v.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3987459652130143" target="freeweibo-mirror">SPAM 今天，一个汉子走上法庭，里面故事暂时看不到，先插播…</a>
 </h2>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3987442488400734" target="freeweibo-mirror">SPAM //@黄河天下天2: [微风][微风][微风]</a>
 </h2>
 <p>SPAM //@黄河天下天2: [微风][微风][微风]<br><br>RE: 中國維權律師女兒求援 總統府回應了<br><img src="http://ww1.sinaimg.cn/large/006uo4Fdjw1f4ydnsasvmj30ku11243q.jpg"></p>
-<p>
-	<small> ============== 7小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3987434821777517" target="freeweibo-mirror">现役特警将来也是老兵……。 //@王鹏律师:[吃惊][吃惊]…</a>
-</h2>
-<p>现役特警将来也是老兵……。 //@王鹏律师:[吃惊][吃惊][吃惊]//@元猫大大: //@不作死就不会死-:喷了//@傻斯拉: 咬</p>
 <p>
 	<small> ============== 7小时前</small>
 </p>
