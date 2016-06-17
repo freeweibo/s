@@ -53,7 +53,7 @@
 </h2>
 <p>SPAM 这智商……[哈哈]//@H落花流水H: //@梦断了:[哈哈]//@全震动:[哈哈] //@兰州风清扬:[哈哈]//@守候者说: //@啤啤呼: [笑cry]//@50年矛苔:[笑哈哈][笑哈哈]<br><br>RE: 習粉智商堪憂啊！[笑cry]<br><img src="http://ww2.sinaimg.cn/large/006pHvzVjw1f4y44ezu1cj30m80awjss.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3987341066536595" target="freeweibo-mirror">SPAM 香港几家书店，没必要毁之吗！//@李方平律师:子产…</a>
 </h2>
