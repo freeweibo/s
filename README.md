@@ -37,6 +37,42 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3987340160485653" target="freeweibo-mirror">//@充气榔头://@李方平律师:做律师难呀！</a>
+</h2>
+<p>//@充气榔头://@李方平律师:做律师难呀！<br><br>RE: 【杨金柱、黄汉中天津市检静坐要求保障辩护权】杨金柱律师安安静静地在天津市检察院的大门口坐等于世平检察长的答复！北京来硕律师事务所黄汉中律师陪坐。黄汉中律师担任包龙军的辩护人。杨黄二律师都是湖南蛮子！<br><img src="http://ww1.sinaimg.cn/large/6a80bfcdjw1f4xz49f3azj20rs0kugs0.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3987340059674632" target="freeweibo-mirror">//@杜君立: //@馬鳴謙: 關注//@漫游者粒子: 转发…</a>
+</h2>
+<p>//@杜君立: //@馬鳴謙: 關注//@漫游者粒子: 转发微博<br><br>RE: 转李瑾律师现场观感。夏霖案还在庭审中。夏霖代理过的崔英杰的老父亲从外地入京，在门口默默等候。美国使馆有官员也来了，可惜不能进去。现场警车众多，不完全统计有十一辆。路透社记者要采访，被驱赶。继续等待。愿夏霖平安。朋友们信任你，在外守候你归来。<br><img src="http://ww3.sinaimg.cn/large/60b78779jw1f4y3zg5rl5j20u013eq7y.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3987339539514580" target="freeweibo-mirror">//@荷永://@去V的刘建锋:朱孝顶说，他进入法院后，无法…</a>
+</h2>
+<p>//@荷永://@去V的刘建锋:朱孝顶说，他进入法院后，无法入庭旁听，被限于拐角走道，听不见任何声音。<br><br>RE: 转李瑾律师现场观感。夏霖案还在庭审中。夏霖代理过的崔英杰的老父亲从外地入京，在门口默默等候。美国使馆有官员也来了，可惜不能进去。现场警车众多，不完全统计有十一辆。路透社记者要采访，被驱赶。继续等待。愿夏霖平安。朋友们信任你，在外守候你归来。<br><img src="http://ww3.sinaimg.cn/large/60b78779jw1f4y3zg5rl5j20u013eq7y.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3987337312406189" target="freeweibo-mirror">//@李方平律师:做律师难呀！</a>
+</h2>
+<p>//@李方平律师:做律师难呀！<br><br>RE: 【杨金柱、黄汉中天津市检静坐要求保障辩护权】杨金柱律师安安静静地在天津市检察院的大门口坐等于世平检察长的答复！北京来硕律师事务所黄汉中律师陪坐。黄汉中律师担任包龙军的辩护人。杨黄二律师都是湖南蛮子！<br><img src="http://ww1.sinaimg.cn/large/6a80bfcdjw1f4xz49f3azj20rs0kugs0.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3987336981223753" target="freeweibo-mirror">SPAM 妄议，抓回来//@侬侬乐: //@阳春三月2001…</a>
+</h2>
+<p>SPAM 妄议，抓回来//@侬侬乐: //@阳春三月200103://@LifeTime:胆大包天，是时候让马英九偷渡自首了。[怒]<br><br>RE: 马英九如此喊话，是干涉什么“政”？<br><img src="http://ww4.sinaimg.cn/large/6a80bfcdjw1f4y2kdkg0kj20ku0vmaf2.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3987335231996984" target="freeweibo-mirror">SPAM //@李方平律师:子产不毁乡校：对于乡人聚会议政的…</a>
+</h2>
+<p>SPAM //@李方平律师:子产不毁乡校：对于乡人聚会议政的乡校，然明主张毁掉，子产不同意，他说，“其所善者，吾则行之，其所恶者，吾则改之，是吾师也。”<br><br>RE: 马英九如此喊话，是干涉什么“政”？<br><img src="http://ww4.sinaimg.cn/large/6a80bfcdjw1f4y2kdkg0kj20ku0vmaf2.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3987331390688132" target="freeweibo-mirror">SPAM 为大家推荐一位从传统行业转型到电商行业的武大师弟，…</a>
 </h2>
 <p>SPAM 为大家推荐一位从传统行业转型到电商行业的武大师弟，他现为广东阳江一家企业负责自有厨刀品牌“拓”的全球化运营。该企业致力于打造世界一流的中国品牌，准上市公司，将成为中国刀剪产业第一家上市公司。现招募有合作意愿的品牌合伙人，有兴趣可以去搜“拓旗舰店”。@拓牌刀具<br><img src="http://ww1.sinaimg.cn/large/624c1e92gw1f4y3s9ladtj20nm0f1diz.jpg"></p>
@@ -59,7 +95,7 @@
 </h2>
 <p>//@盘子微谈://@绍兴师爷行北京: //@徐幸起://@雷颐: //@边城酒家:转发微博<br><br>RE: 本届中央已查处了原重庆市委书记薄熙来、原江西省委书记苏荣、原辽宁省省委书记王珉、原云南省委书记白恩培、原河北省委书记周本顺，省委书记群体犯罪率达到15%，远高于青少年群体犯罪率。过去全社会都关注青少年犯罪问题，看来这个群体老同志犯罪更值得关注！</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3987312930611688" target="freeweibo-mirror">//@昆明的老尹: 财产公示，民众监督要到何时？不敢！怕吓死…</a>
 </h2>
@@ -102,42 +138,6 @@
 <p>迷你庭。<br><br>RE: 好一个公开开庭！区区六席旁听，亲属中仅有夏霖的哥哥一人！而法院外还有这么多关心夏霖的人士！<br><img src="http://ww3.sinaimg.cn/large/48eae8aejw1f4y0eblwrkj22io1w0u0y.jpg"></p>
 <p>
 	<small> ============== 4小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3987302394797210" target="freeweibo-mirror">好一个公开开庭！区区六席旁听，亲属中仅有夏霖的哥哥一人！而法…</a>
-</h2>
-<p>好一个公开开庭！区区六席旁听，亲属中仅有夏霖的哥哥一人！而法院外还有这么多关心夏霖的人士！<br><img src="http://ww3.sinaimg.cn/large/48eae8aejw1f4y0eblwrkj22io1w0u0y.jpg"></p>
-<p>
-	<small> ============== 4小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3987297466383655" target="freeweibo-mirror">SPAM 武汉跑友福利真好！</a>
-</h2>
-<p>SPAM 武汉跑友福利真好！</p>
-<p>
-	<small> ============== 5小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3987294257485649" target="freeweibo-mirror">计算不准确，一地书记虽然只有一个，但从一段时间看，不只是一人…</a>
-</h2>
-<p>计算不准确，一地书记虽然只有一个，但从一段时间看，不只是一人。<br><br>RE: 本届中央已查处了原重庆市委书记薄熙来、原江西省委书记苏荣、原辽宁省省委书记王珉、原云南省委书记白恩培、原河北省委书记周本顺，省委书记群体犯罪率达到15%，远高于青少年群体犯罪率。过去全社会都关注青少年犯罪问题，看来这个群体老同志犯罪更值得关注！</p>
-<p>
-	<small> ============== 5小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3987287191253666" target="freeweibo-mirror">//@深山樵夫W://@暮怒雷: 一份政治正确的尸检报告，需…</a>
-</h2>
-<p>//@深山樵夫W://@暮怒雷: 一份政治正确的尸检报告，需要很多人的智慧努力，时间长些也是可以理解的。//@媒体人林-国-强:咋不见那五位涉事民警上央视说一番如何践踏公权呢?我......呸！//@秦宽宏:央视最关心美国的事，成了美国的操心人！ //@心援网-守护心灵和家庭:央视应该反思，应该改正。<br><br>RE: 【央视  公众喊你回家关注雷洋案】从5月7日案发已40天，从5月14日尸检也已33天，说好的结果呢？这么长的时间，央视除了开始让派出所副所长出来说了一通，还做了什么？后来立案证明纯属忽悠，央视你道歉了吗，你跟进了吗，你分析了吗，你追问了吗？http://t.cn/R5SURhY<br><img src="http://ww2.sinaimg.cn/large/4cae0e11jw1f4xc6az5mjj20b40m8my7.jpg"></p>
-<p>
-	<small> ============== 5小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3987280127944303" target="freeweibo-mirror">//@韩雨亭微观世界:[弱] //@王连军律师://@麻毛雄…</a>
-</h2>
-<p>//@韩雨亭微观世界:[弱] //@王连军律师://@麻毛雄://@北京厨子新号:令人毛骨悚然。就指望这个去统一台湾？//@陆亚明: 呵呵～//@庐陵道人:一个见不得光的神秘机构必将载入史册。</p>
-<p>
-	<small> ============== 6小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3987278764437227" target="freeweibo-mirror">//@倪雪君://@丁小瞎: //@和光和热和:转发微博</a>
-</h2>
-<p>//@倪雪君://@丁小瞎: //@和光和热和:转发微博<br><br>RE: 「你在1995年远走布宜诺斯艾力斯没错」<br><img src="http://ww1.sinaimg.cn/large/6a6f2089gw1f4xwwz0o6lj20u0comhdy.jpg"></p>
-<p>
-	<small> ============== 6小时前</small>
 </p>
 <table>
     <tr>
