@@ -65,7 +65,7 @@
 </h2>
 <p>SPAM 这智商……[哈哈]//@H落花流水H: //@梦断了:[哈哈]//@全震动:[哈哈] //@兰州风清扬:[哈哈]//@守候者说: //@啤啤呼: [笑cry]//@50年矛苔:[笑哈哈][笑哈哈]<br><br>RE: 習粉智商堪憂啊！[笑cry]<br><img src="http://ww2.sinaimg.cn/large/006pHvzVjw1f4y44ezu1cj30m80awjss.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3987357127126892" target="freeweibo-mirror">反贼！！！[围观]</a>
 </h2>
