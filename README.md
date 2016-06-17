@@ -77,7 +77,7 @@
 </h2>
 <p>SPAM 为大家推荐一位从传统行业转型到电商行业的武大师弟，他现为广东阳江一家企业负责自有厨刀品牌“拓”的全球化运营。该企业致力于打造世界一流的中国品牌，准上市公司，将成为中国刀剪产业第一家上市公司。现招募有合作意愿的品牌合伙人，有兴趣可以去搜“拓旗舰店”。@拓牌刀具<br><img src="http://ww1.sinaimg.cn/large/624c1e92gw1f4y3s9ladtj20nm0f1diz.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3987327908385053" target="freeweibo-mirror">回复@晓而不语369:单词正确，语法不尽然都正确的英文[偷笑…</a>
 </h2>
@@ -88,6 +88,12 @@
 	<a href="https://freeweibo.com/weibo/3987324368489660" target="freeweibo-mirror">SPAM 推荐阅读：一个德国人在中国山区支教10年，却害怕感…</a>
 </h2>
 <p>SPAM 推荐阅读：一个德国人在中国山区支教10年，却害怕感动中国！</p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3987320867076906" target="freeweibo-mirror">马英九如此喊话，是干涉什么“政”？</a>
+</h2>
+<p>马英九如此喊话，是干涉什么“政”？<br><img src="http://ww4.sinaimg.cn/large/6a80bfcdjw1f4y2kdkg0kj20ku0vmaf2.jpg"></p>
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3987305159050360" target="freeweibo-mirror">如临大敌？//@朱孝顶律师: 刚才又有警察要查身份证引起冲突…</a>
 </h2>
 <p>如临大敌？//@朱孝顶律师: 刚才又有警察要查身份证引起冲突，我忍不住上去想劝说两句，一个凶狠的便衣平头老男人恶狠狠地推我“有你事没有？”挑衅与流氓之势让人恶心透顶。骄阳似火心寒如冰！三个自信去哪了？[怒]<br><br>RE: 好一个公开开庭！区区六席旁听，亲属中仅有夏霖的哥哥一人！而法院外还有这么多关心夏霖的人士！<br><img src="http://ww3.sinaimg.cn/large/48eae8aejw1f4y0eblwrkj22io1w0u0y.jpg"></p>
-<p>
-	<small> ============== 4小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3987304546312934" target="freeweibo-mirror">迷你庭。</a>
-</h2>
-<p>迷你庭。<br><br>RE: 好一个公开开庭！区区六席旁听，亲属中仅有夏霖的哥哥一人！而法院外还有这么多关心夏霖的人士！<br><img src="http://ww3.sinaimg.cn/large/48eae8aejw1f4y0eblwrkj22io1w0u0y.jpg"></p>
 <p>
 	<small> ============== 4小时前</small>
 </p>
