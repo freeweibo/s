@@ -133,9 +133,9 @@
 <p>
 	<small> ============== 5小时前</small>
 </p><h2>
-	<a href="https://freeweibo.com/weibo/3987251892036241" target="freeweibo-mirror">SPAM //@翠花不在家://@俗家人释永乖:这是一个必然…</a>
+	<a href="https://freeweibo.com/weibo/3987252600553714" target="freeweibo-mirror">本届中央已查处了原重庆市委书记薄熙来、原江西省委书记苏荣、原…</a>
 </h2>
-<p>SPAM //@翠花不在家://@俗家人释永乖:这是一个必然结果→_→ //@回头兮岸:老兵对特警说：我的今天就是你明天<br><br>RE: 特大新闻，贵阳次南门退伍老兵VS特警部队[吃惊][吃惊][吃惊][吃惊]#贵阳新闻##贵阳新闻# http://t.cn/R2W6yU0<br><img src="http://ww3.sinaimg.cn/large/006bdHaagw1f4xj4ek6loj30u00miaeq.jpg"></p>
+<p>本届中央已查处了原重庆市委书记薄熙来、原江西省委书记苏荣、原辽宁省省委书记王珉、原云南省委书记白恩培、原河北省委书记周本顺，省委书记群体犯罪率达到15%，远高于青少年群体犯罪率。过去全社会都关注青少年犯罪问题，看来这个群体老同志犯罪更值得关注！</p>
 <p>
 	<small> ============== 6小时前</small>
 </p>
