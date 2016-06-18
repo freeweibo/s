@@ -125,13 +125,13 @@
 </h2>
 <p>法律人是怎么练成的？//@我是德赛: 转发微博<br><br>RE: 零口供，已知有很多民主人士都经历过。单次审讯或多次审讯包括受到酷刑仍是零口供的同仁不乏其人！但宋泽、夏霖两位是我目前所知国内仅有的被刑拘一年以上却依然零口供的英雄！偏偏两位都是身体孱弱的眼镜人士，向两位真英雄献上由衷的敬礼！[赞][赞][赞][鲜花][鲜花][鲜花][作揖][作揖][作揖]<br><img src="http://ww2.sinaimg.cn/large/006uuMlIgw1f4xr1x3v2yj30qo1bfgwe.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3987505793950006" target="freeweibo-mirror">我看能不能转。</a>
 </h2>
 <p>我看能不能转。<br><br>RE: 【香港铜锣湾书店五名负责人失踪案 再引社会关注】香港铜锣湾书店五名负责人失踪案再次引发社会关注。失踪近八个月的书店店长林荣基日前突然现身，声称自己因带禁书进入大陆，被中央专案组人员押走。香港多个泛民团体上街示威，要求港府彻查有关事件。http://t.cn/R5oWPwe<br><img src="http://ww1.sinaimg.cn/large/dca14309jw1f4ym44tztpj20k00b9gmf.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3987491772504676" target="freeweibo-mirror">人人自危//@陈光武律师:回复@陈光武律师:将来国家会不会人…</a>
 </h2>
