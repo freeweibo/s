@@ -53,7 +53,7 @@
 </h2>
 <p>SPAM 一直觉得认真的男人和爱笑的男人最具魅力 宋仲基。想瘦找她@阿瘦家的</p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3987826095295960" target="freeweibo-mirror">SPAM //@律师庞琨:等你见一面等了六百天 //@蔡崇国…</a>
 </h2>
@@ -101,7 +101,7 @@
 </h2>
 <p>//@何光伟: 转发微博</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3987762195461072" target="freeweibo-mirror">//@上官舒雅: //@守候者说: //@50年矛苔://@…</a>
 </h2>
