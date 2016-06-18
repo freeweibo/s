@@ -23,7 +23,7 @@
 </h2>
 <p>SPAM //@天使牧羊人coolboy://@李方平律师:汕尾公安几十部警车夜捕老村长。<br><br>RE: 【乌坎“秋后”？】乌坎村委会主任林祖恋刚“说一说”交托完后事就遭抓捕。<br><img src="http://ww3.sinaimg.cn/large/6a80bfcdjw1f4zjmmh0zxj20yi1pc4qp.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3987837609025719" target="freeweibo-mirror">SPAM 转转 //@大胡同刘四爷:扩[话筒]</a>
 </h2>
@@ -35,7 +35,13 @@
 </h2>
 <p>SPAM 乌坎村民，照旧站起身来！</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3987783134176908" target="freeweibo-mirror">【乌坎“秋后”？】乌坎村委会主任林祖恋刚“说一说”交托完后事…</a>
+</h2>
+<p>【乌坎“秋后”？】乌坎村委会主任林祖恋刚“说一说”交托完后事就遭抓捕。<br><img src="http://ww3.sinaimg.cn/large/6a80bfcdjw1f4zjmmh0zxj20yi1pc4qp.jpg"></p>
+<p>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3987780516525389" target="freeweibo-mirror">【好文分享】1、宋 美龄 骨子里的风骚！2、中国人严重被误导…</a>
 </h2>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3987714242133151" target="freeweibo-mirror">关注//@ICO刘开明://@蔡崇国之二:转！</a>
 </h2>
 <p>关注//@ICO刘开明://@蔡崇国之二:转！<br><br>RE: 原村委村霸把集体土地部分出售，部分租给一些企业。11年乌坎村民全村集体上访市政府两次，没想到基层政府贪官官官相卫，一味地对村民暴力镇压，武警特警，甚至还动用了坦克对乌坎围村，断水断粮！封锁消息！最终因为发生流血事件，一位村民在派出所“猝死”而有所缓。朱明国（原来是个大贪官，现已被抓...全文： http://m.weibo.cn/5428389650/3987707350710975<br><img src="http://ww1.sinaimg.cn/large/005VmY7Mgw1f4zaz3ep89j30f00qo0wg.jpg"></p>
-<p>
-	<small> ============== 10小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3987711713487003" target="freeweibo-mirror">//@蔡崇国之二:转！</a>
-</h2>
-<p>//@蔡崇国之二:转！<br><br>RE: 原村委村霸把集体土地部分出售，部分租给一些企业。11年乌坎村民全村集体上访市政府两次，没想到基层政府贪官官官相卫，一味地对村民暴力镇压，武警特警，甚至还动用了坦克对乌坎围村，断水断粮！封锁消息！最终因为发生流血事件，一位村民在派出所“猝死”而有所缓。朱明国（原来是个大贪官，现已被抓...全文： http://m.weibo.cn/5428389650/3987707350710975<br><img src="http://ww1.sinaimg.cn/large/005VmY7Mgw1f4zaz3ep89j30f00qo0wg.jpg"></p>
 <p>
 	<small> ============== 10小时前</small>
 </p>
