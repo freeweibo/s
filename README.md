@@ -125,7 +125,7 @@
 </h2>
 <p>SPAM ZUK手机今天凌晨7分钟全网支付破3000万！联想觉醒了也是比较可怕。<br><img src="http://ww3.sinaimg.cn/large/b952aec3gw1f4z1o8ra80j20u02fkgt3.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3987615755443446" target="freeweibo-mirror">SPAM 乌坎风云又起，这村还能过那个店吗？</a>
 </h2>
