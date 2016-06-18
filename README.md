@@ -35,7 +35,7 @@
 </h2>
 <p>SPAM 在这里，感受不被时光侵扰的美丽。</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3987626959226534" target="freeweibo-mirror">SPAM 以专政的思维，专政的精神来搞法治，是没法治的，最后…</a>
 </h2>
