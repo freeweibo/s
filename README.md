@@ -41,7 +41,7 @@
 </h2>
 <p>SPAM 乌坎风云又起，这村还能过那个店吗？<br><img src="http://ww2.sinaimg.cn/large/a9c7e7a9gw1f4z0gbwdrlj20hs0vkjuu.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3987599150214302" target="freeweibo-mirror">//@被唤醒的老狼://@潜龙016微评:转发微博</a>
 </h2>
@@ -65,7 +65,7 @@
 </h2>
 <p>SPAM 乌坎林祖恋被抓走！乌坎！乌坎！！！<br><img src="http://ww4.sinaimg.cn/large/9c12efc4gw1f4yrruenjaj20cx02hq37.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3987534810022201" target="freeweibo-mirror">//@吴伟bj:乌坎维权风云再起，这次会是个什么结局？</a>
 </h2>
@@ -95,7 +95,7 @@
 </h2>
 <p>SPAM 为什么？<br><br>RE: 林书记已被欧镇长抓走，望各大媒体 社会关注我们乌坎！</p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3987522307216762" target="freeweibo-mirror">林书记已被欧镇长抓走，望各大媒体 社会关注我们乌坎！</a>
 </h2>
