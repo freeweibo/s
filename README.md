@@ -29,7 +29,7 @@
 </h2>
 <p>SPAM //@天使牧羊人coolboy://@李方平律师:汕尾公安几十部警车夜捕老村长。<br><br>RE: 【乌坎“秋后”？】乌坎村委会主任林祖恋刚“说一说”交托完后事就遭抓捕。<br><img src="http://ww3.sinaimg.cn/large/6a80bfcdjw1f4zjmmh0zxj20yi1pc4qp.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3987837609025719" target="freeweibo-mirror">SPAM 转转 //@大胡同刘四爷:扩[话筒]</a>
 </h2>
@@ -59,7 +59,7 @@
 </h2>
 <p>SPAM 乌坎村民，照旧站起身来！</p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3987783134176908" target="freeweibo-mirror">【乌坎“秋后”？】乌坎村委会主任林祖恋刚“说一说”交托完后事…</a>
 </h2>
