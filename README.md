@@ -37,6 +37,12 @@
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3987626959226534" target="freeweibo-mirror">SPAM 以专政的思维，专政的精神来搞法治，是没法治的，最后…</a>
+</h2>
+<p>SPAM 以专政的思维，专政的精神来搞法治，是没法治的，最后还是专政。</p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3987626489081517" target="freeweibo-mirror">SPAM ZUK手机今天凌晨7分钟全网支付破3000万！联想…</a>
 </h2>
 <p>SPAM ZUK手机今天凌晨7分钟全网支付破3000万！联想觉醒了也是比较可怕。<br><img src="http://ww3.sinaimg.cn/large/b952aec3gw1f4z1o8ra80j20u02fkgt3.jpg"></p>
@@ -47,7 +53,7 @@
 </h2>
 <p>SPAM 乌坎风云又起，这村还能过那个店吗？<br><img src="http://ww2.sinaimg.cn/large/a9c7e7a9gw1f4z0gbwdrlj20hs0vkjuu.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3987599150214302" target="freeweibo-mirror">//@被唤醒的老狼://@潜龙016微评:转发微博</a>
 </h2>
@@ -71,7 +77,7 @@
 </h2>
 <p>SPAM 乌坎林祖恋被抓走！乌坎！乌坎！！！<br><img src="http://ww4.sinaimg.cn/large/9c12efc4gw1f4yrruenjaj20cx02hq37.jpg"></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3987534810022201" target="freeweibo-mirror">//@吴伟bj:乌坎维权风云再起，这次会是个什么结局？</a>
 </h2>
@@ -107,7 +113,7 @@
 </h2>
 <p>SPAM 为什么？<br><br>RE: 林书记已被欧镇长抓走，望各大媒体 社会关注我们乌坎！</p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3987522307216762" target="freeweibo-mirror">林书记已被欧镇长抓走，望各大媒体 社会关注我们乌坎！</a>
 </h2>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3987491772504676" target="freeweibo-mirror">人人自危//@陈光武律师:回复@陈光武律师:将来国家会不会人…</a>
 </h2>
 <p>人人自危//@陈光武律师:回复@陈光武律师:将来国家会不会人人都发一块这样的手表。。。。。。[吃惊][吃惊][吃惊] //@陈光武律师:想起了保护动物的野外放养监测......<br><br>RE: 据说浦志强出来后，国家送了块大手表。必须实时佩戴，人家不要回去自己还不能取下.......律师做不成了，在原单位做杂役......[吃惊][吃惊][泪][泪]<br><img src="http://ww1.sinaimg.cn/large/63aeaff7jw1f4yljfv232j208m06474b.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3987490970815236" target="freeweibo-mirror">【香港铜锣湾书店五名负责人失踪案 再引社会关注】香港铜锣湾书…</a>
-</h2>
-<p>【香港铜锣湾书店五名负责人失踪案 再引社会关注】香港铜锣湾书店五名负责人失踪案再次引发社会关注。失踪近八个月的书店店长林荣基日前突然现身，声称自己因带禁书进入大陆，被中央专案组人员押走。香港多个泛民团体上街示威，要求港府彻查有关事件。http://t.cn/R5oWPwe<br><img src="http://ww1.sinaimg.cn/large/dca14309jw1f4ym44tztpj20k00b9gmf.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
