@@ -77,7 +77,7 @@
 </h2>
 <p>SPAM //@菉竹-2: //@活捉死老鼠://@九段II: //@清淡06200://@WinterOnFire_Alex://@Docter-李://@你想干什么dong鲁光: 一个国家没有肚量，甚至没有诚信和人格，是一种耻辱。</p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3987764087028499" target="freeweibo-mirror">真牛逼，当大家都瞎 //@萧伯纳:到时候大家可以一起来谈谈咱…</a>
 </h2>
@@ -89,7 +89,7 @@
 </h2>
 <p>//@何光伟: 转发微博</p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3987762195461072" target="freeweibo-mirror">//@上官舒雅: //@守候者说: //@50年矛苔://@…</a>
 </h2>
@@ -131,7 +131,7 @@
 </h2>
 <p>//@去V的刘建锋:乌坎村记述村支书村委主任林祖恋被抓之经过与因由。<br><br>RE: 原村委村霸把集体土地部分出售，部分租给一些企业。11年乌坎村民全村集体上访市政府两次，没想到基层政府贪官官官相卫，一味地对村民暴力镇压，武警特警，甚至还动用了坦克对乌坎围村，断水断粮！封锁消息！最终因为发生流血事件，一位村民在派出所“猝死”而有所缓。朱明国（原来是个大贪官，现已被抓...全文： http://m.weibo.cn/5428389650/3987711335909842<br><img src="http://ww4.sinaimg.cn/large/005VmY7Mgw1f4zbfgolr4j30ci0m8jrq.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3987722722844073" target="freeweibo-mirror">当年也曾为乌坎刷屏，再见证无能、卑劣。</a>
 </h2>
