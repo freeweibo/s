@@ -19,6 +19,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3987845473589814" target="freeweibo-mirror">SPAM //@天使牧羊人coolboy://@李方平律师:…</a>
+</h2>
+<p>SPAM //@天使牧羊人coolboy://@李方平律师:汕尾公安几十部警车夜捕老村长。<br><br>RE: 【乌坎“秋后”？】乌坎村委会主任林祖恋刚“说一说”交托完后事就遭抓捕。<br><img src="http://ww3.sinaimg.cn/large/6a80bfcdjw1f4zjmmh0zxj20yi1pc4qp.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3987783934618886" target="freeweibo-mirror">SPAM 乌坎村民，照旧站起身来！</a>
 </h2>
 <p>SPAM 乌坎村民，照旧站起身来！</p>
@@ -101,13 +107,13 @@
 </h2>
 <p>//@去V的刘建锋: 乌坎村记述村支书村委主任林祖恋被抓之经过与因由。<br><br>RE: 原村委村霸把集体土地部分出售，部分租给一些企业。11年乌坎村民全村集体上访市政府两次，没想到基层政府贪官官官相卫，一味地对村民暴力镇压，武警特警，甚至还动用了坦克对乌坎围村，断水断粮！封锁消息！最终因为发生流血事件，一位村民在派出所“猝死”而有所缓。朱明国（原来是个大贪官，现已被抓...全文： http://m.weibo.cn/5428389650/3987711335909842<br><img src="http://ww4.sinaimg.cn/large/005VmY7Mgw1f4zbfgolr4j30ci0m8jrq.jpg"></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3987721406528720" target="freeweibo-mirror">乌坎风云再起。乌坎村民领袖,民选村委会主任林祖銮被抓。因为土…</a>
 </h2>
 <p>乌坎风云再起。乌坎村民领袖,民选村委会主任林祖銮被抓。因为土地维权问题未能解决。<br><br>RE: 原村委村霸把集体土地部分出售，部分租给一些企业。11年乌坎村民全村集体上访市政府两次，没想到基层政府贪官官官相卫，一味地对村民暴力镇压，武警特警，甚至还动用了坦克对乌坎围村，断水断粮！封锁消息！最终因为发生流血事件，一位村民在派出所“猝死”而有所缓。朱明国（原来是个大贪官，现已被抓...全文： http://m.weibo.cn/5428389650/3987711335909842<br><img src="http://ww4.sinaimg.cn/large/005VmY7Mgw1f4zbfgolr4j30ci0m8jrq.jpg"></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3987714552287378" target="freeweibo-mirror">SPAM 为啥我身边所有男性都能游刃有余地玩女性？除了花钱的…</a>
 </h2>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3987711679198552" target="freeweibo-mirror">//@封龙君:这么悲壮[可怜]//@馬鳴謙:[钟]//@公都…</a>
 </h2>
 <p>//@封龙君:这么悲壮[可怜]//@馬鳴謙:[钟]//@公都子V: [蠟燭][蠟燭][蠟燭]<br><br>RE: #乌坎事件再波折 林祖恋被以贿罪抓捕# 乌坎村民:"乌坎4年前土地问题仍未解决,被贪官出售的土地仍未追回,现任书记林祖恋组织村民原定21号上访市府,但18号凌晨大批特警以受贿名义直接将林逮捕.""政府为了阻止村民上访，深夜用计强抓走了林伯!"此前林已公开诀别妻子并公布于微博,已做好牺牲一切之准备。<br><img src="http://ww3.sinaimg.cn/large/53e07682jw1f4z93t2f6wj20qo1ben3t.jpg"></p>
-<p>
-	<small> ============== 10小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3987710505578747" target="freeweibo-mirror">转！</a>
-</h2>
-<p>转！<br><br>RE: 原村委村霸把集体土地部分出售，部分租给一些企业。11年乌坎村民全村集体上访市政府两次，没想到基层政府贪官官官相卫，一味地对村民暴力镇压，武警特警，甚至还动用了坦克对乌坎围村，断水断粮！封锁消息！最终因为发生流血事件，一位村民在派出所“猝死”而有所缓。朱明国（原来是个大贪官，现已被抓...全文： http://m.weibo.cn/5428389650/3987707350710975<br><img src="http://ww1.sinaimg.cn/large/005VmY7Mgw1f4zaz3ep89j30f00qo0wg.jpg"></p>
 <p>
 	<small> ============== 10小时前</small>
 </p>
