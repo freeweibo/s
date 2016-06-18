@@ -49,6 +49,24 @@
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3987646776604858" target="freeweibo-mirror">//@梦松堂:柬埔寨在12、14年2次反对菲律宾要求东盟对南…</a>
+</h2>
+<p>//@梦松堂:柬埔寨在12、14年2次反对菲律宾要求东盟对南海问题做决议，以及以东盟名义发表联合公报。认为南海问题是各声索国的事，其他国家不必参乎，被认为是东盟中最亲华国家。既然立场不变，就还是这立场。//@顾猷:柬埔寨太滑头了[抓狂]<br><br>RE: 据今日华街，神州称有60国支持其南海国际法庭仲裁立场，但实际上只有8国表态支持：阿富汗、赞比亚、肯尼亚、尼日尔、苏丹、多哥、瓦努图、莱索托。被神州纳入支持名单的国家中，已有波兰、斯洛文尼亚、斐济等明确向华街辟谣，老挝和汶莱不作评论，柬埔寨则称立场没变，但没说什么立场。<br><img src="http://ww3.sinaimg.cn/large/006b3grAjw1f4yspu9zn4j30jg0nugp9.jpg"></p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3987644503321525" target="freeweibo-mirror">SPAM 迪斯尼我没去过，但是去过几次户外音乐节，或者演唱会…</a>
+</h2>
+<p>SPAM 迪斯尼我没去过，但是去过几次户外音乐节，或者演唱会。无论附近有没有垃圾桶，我会把垃圾带走，找不到就带上车回去扔//@卡了蛋儿KYOSA:这个事不能光看表面一张照片，要看园区垃圾桶够不够，摆放位置是否明显合理，流线疏导做得怎样，这些都做的不错的话再批判不迟。并且雨天的话，也不能用平常的标准<br><br>RE: 首场考试勿及格！<br><img src="http://ww3.sinaimg.cn/large/aaa9073agw1f4xk1dbrurj20go0m8mzf.jpg"></p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3987642603262670" target="freeweibo-mirror">SPAM 门票有保险费，你可以去死一死了 //@善见优昙:门…</a>
+</h2>
+<p>SPAM 门票有保险费，你可以去死一死了 //@善见优昙:门票已经包含垃圾清理费用了，扔点垃圾怎么了，可以创造更多的工作机会，挺好的。<br><br>RE: 首场考试勿及格！<br><img src="http://ww3.sinaimg.cn/large/aaa9073agw1f4xk1dbrurj20go0m8mzf.jpg"></p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3987640111957937" target="freeweibo-mirror">我也给右边讲一个故事：前不久我去美国的时候，一个朋友告诉我，…</a>
 </h2>
 <p>我也给右边讲一个故事：前不久我去美国的时候，一个朋友告诉我，在美国华人圈中，有一种最让他们瞧不起，就是拼命割断自己的祖宗血脉，极力的将自己去中国化，恨不得把自己皮肤染成白色的那种人。 //@顾猷:阿宝常让我想起约翰逊博士提到一位屠夫痛心爱国的笑话，狠好玩的。<br><br>RE: 据今日华街，神州称有60国支持其南海国际法庭仲裁立场，但实际上只有8国表态支持：阿富汗、赞比亚、肯尼亚、尼日尔、苏丹、多哥、瓦努图、莱索托。被神州纳入支持名单的国家中，已有波兰、斯洛文尼亚、斐济等明确向华街辟谣，老挝和汶莱不作评论，柬埔寨则称立场没变，但没说什么立场。<br><img src="http://ww3.sinaimg.cn/large/006b3grAjw1f4yspu9zn4j30jg0nugp9.jpg"></p>
@@ -120,24 +138,6 @@
 <p>SPAM 要起义吗？ http://t.cn/R2WxKux<br><img src="http://ww3.sinaimg.cn/large/abfa5e0djw1f4yup7gjv0j20k00zk44v.jpg"></p>
 <p>
 	<small> ============== 9小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3987548399246431" target="freeweibo-mirror">据今日华街，神州称有60国支持其南海国际法庭仲裁立场，但实际…</a>
-</h2>
-<p>据今日华街，神州称有60国支持其南海国际法庭仲裁立场，但实际上只有8国表态支持：阿富汗、赞比亚、肯尼亚、尼日尔、苏丹、多哥、瓦努图、莱索托。被神州纳入支持名单的国家中，已有波兰、斯洛文尼亚、斐济等明确向华街辟谣，老挝和汶莱不作评论，柬埔寨则称立场没变，但没说什么立场。<br><img src="http://ww3.sinaimg.cn/large/006b3grAjw1f4yspu9zn4j30jg0nugp9.jpg"></p>
-<p>
-	<small> ============== 10小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3987540178286183" target="freeweibo-mirror">SPAM 乌坎林祖恋被抓走！乌坎！乌坎！！！</a>
-</h2>
-<p>SPAM 乌坎林祖恋被抓走！乌坎！乌坎！！！<br><img src="http://ww4.sinaimg.cn/large/9c12efc4gw1f4yrruenjaj20cx02hq37.jpg"></p>
-<p>
-	<small> ============== 11小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3987534810022201" target="freeweibo-mirror">//@吴伟bj:乌坎维权风云再起，这次会是个什么结局？</a>
-</h2>
-<p>//@吴伟bj:乌坎维权风云再起，这次会是个什么结局？<br><br>RE: 乌坎风云再起。刚刚接到乌坎多个电话,乌坎村民领袖,村委会主任林祖銮被抓。因为土地维权问题,乌坎准备21日全村数千人再次集体到市政府上访!乌坎现在敲响了表示有外敌入侵的铜锣,大量村民聚集在乌坎派出所。</p>
-<p>
-	<small> ============== 11小时前</small>
 </p>
 <table>
     <tr>
