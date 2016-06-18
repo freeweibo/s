@@ -35,7 +35,7 @@
 </h2>
 <p>SPAM 价格微降！EUR 104,99！</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3987565700656092" target="freeweibo-mirror">SPAM 要起义吗？ http://t.cn/R2WxKux</a>
 </h2>
@@ -83,7 +83,7 @@
 </h2>
 <p>林书记已被欧镇长抓走，望各大媒体 社会关注我们乌坎！</p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3987514484224493" target="freeweibo-mirror">法律人是怎么练成的？//@我是德赛: 转发微博</a>
 </h2>
