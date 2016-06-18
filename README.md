@@ -47,7 +47,7 @@
 </h2>
 <p>//@被唤醒的老狼://@潜龙016微评:转发微博</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3987568351071346" target="freeweibo-mirror">SPAM 价格微降！EUR 104,99！</a>
 </h2>
@@ -131,13 +131,13 @@
 </h2>
 <p>//@公民林静在维权4:转发微博<br><br>RE: 据说浦志强出来后，国家送了块大手表。必须实时佩戴，人家不要回去自己还不能取下.......律师做不成了，在原单位做杂役......[吃惊][吃惊][泪][泪]<br><img src="http://ww1.sinaimg.cn/large/63aeaff7jw1f4yljfv232j208m06474b.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3987485904770104" target="freeweibo-mirror">据说浦志强出来后，国家送了块大手表。必须实时佩戴，人家不要回…</a>
 </h2>
 <p>据说浦志强出来后，国家送了块大手表。必须实时佩戴，人家不要回去自己还不能取下.......律师做不成了，在原单位做杂役......[吃惊][吃惊][泪][泪]<br><img src="http://ww1.sinaimg.cn/large/63aeaff7jw1f4yljfv232j208m06474b.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p>
 <table>
     <tr>
