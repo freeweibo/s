@@ -71,7 +71,7 @@
 </h2>
 <p>SPAM 以专政的思维，专政的精神来搞法治，是没法治的，最后还是专政。</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3987626489081517" target="freeweibo-mirror">SPAM ZUK手机今天凌晨7分钟全网支付破3000万！联想…</a>
 </h2>
