@@ -71,7 +71,7 @@
 </h2>
 <p>SPAM 门票有保险费，你可以去死一死了 //@善见优昙:门票已经包含垃圾清理费用了，扔点垃圾怎么了，可以创造更多的工作机会，挺好的。<br><br>RE: 首场考试勿及格！<br><img src="http://ww3.sinaimg.cn/large/aaa9073agw1f4xk1dbrurj20go0m8mzf.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3987640111957937" target="freeweibo-mirror">我也给右边讲一个故事：前不久我去美国的时候，一个朋友告诉我，…</a>
 </h2>
@@ -113,7 +113,7 @@
 </h2>
 <p>SPAM 以专政的思维，专政的精神来搞法治，是没法治的，最后还是专政。</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3987626489081517" target="freeweibo-mirror">SPAM ZUK手机今天凌晨7分钟全网支付破3000万！联想…</a>
 </h2>
