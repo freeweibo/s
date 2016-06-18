@@ -53,7 +53,7 @@
 </h2>
 <p>//@被唤醒的老狼://@潜龙016微评:转发微博</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3987568351071346" target="freeweibo-mirror">SPAM 价格微降！EUR 104,99！</a>
 </h2>
@@ -88,6 +88,12 @@
 	<a href="https://freeweibo.com/weibo/3987530586426847" target="freeweibo-mirror">乌坎风云再起。刚刚接到乌坎多个电话,乌坎村民领袖,村委会主任…</a>
 </h2>
 <p>乌坎风云再起。刚刚接到乌坎多个电话,乌坎村民领袖,村委会主任林祖銮被抓。因为土地维权问题,乌坎准备21日全村数千人再次集体到市政府上访!乌坎现在敲响了表示有外敌入侵的铜锣,大量村民聚集在乌坎派出所。</p>
+<p>
+	<small> ============== 10小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3987527633356249" target="freeweibo-mirror">【俄媒暗示北京专坑朋友 中俄只是一场调情】在普京即将访华之际…</a>
+</h2>
+<p>【俄媒暗示北京专坑朋友 中俄只是一场调情】在普京即将访华之际，看衰中俄关系的声音此起彼伏，此前有俄媒批北京趁火打劫，利用朋友困境赚钱。而今又有俄媒称，中俄关系只是一场调情而已。俄罗斯《独立报》6月17日在题为《 与中国调情失败后，俄罗斯转回了欧洲》的文章中称，圣彼得堡国际经济论坛的开...全文： http://m.weibo.cn/5953113928/3987527633356249<br><img src="http://ww1.sinaimg.cn/large/006uSESAgw1f4yqbr5lq7j30r80kfn0y.jpg"></p>
 <p>
 	<small> ============== 10小时前</small>
 </p><h2>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3987490970815236" target="freeweibo-mirror">【香港铜锣湾书店五名负责人失踪案 再引社会关注】香港铜锣湾书…</a>
 </h2>
 <p>【香港铜锣湾书店五名负责人失踪案 再引社会关注】香港铜锣湾书店五名负责人失踪案再次引发社会关注。失踪近八个月的书店店长林荣基日前突然现身，声称自己因带禁书进入大陆，被中央专案组人员押走。香港多个泛民团体上街示威，要求港府彻查有关事件。http://t.cn/R5oWPwe<br><img src="http://ww1.sinaimg.cn/large/dca14309jw1f4ym44tztpj20k00b9gmf.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3987486277575178" target="freeweibo-mirror">//@公民林静在维权4:转发微博</a>
-</h2>
-<p>//@公民林静在维权4:转发微博<br><br>RE: 据说浦志强出来后，国家送了块大手表。必须实时佩戴，人家不要回去自己还不能取下.......律师做不成了，在原单位做杂役......[吃惊][吃惊][泪][泪]<br><img src="http://ww1.sinaimg.cn/large/63aeaff7jw1f4yljfv232j208m06474b.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
