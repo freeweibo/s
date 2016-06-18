@@ -41,7 +41,7 @@
 </h2>
 <p>SPAM 要起义吗？ http://t.cn/R2WxKux<br><img src="http://ww3.sinaimg.cn/large/abfa5e0djw1f4yup7gjv0j20k00zk44v.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3987540178286183" target="freeweibo-mirror">SPAM 乌坎林祖恋被抓走！乌坎！乌坎！！！</a>
 </h2>
@@ -53,7 +53,7 @@
 </h2>
 <p>//@吴伟bj:乌坎维权风云再起，这次会是个什么结局？<br><br>RE: 乌坎风云再起。刚刚接到乌坎多个电话,乌坎村民领袖,村委会主任林祖銮被抓。因为土地维权问题,乌坎准备21日全村数千人再次集体到市政府上访!乌坎现在敲响了表示有外敌入侵的铜锣,大量村民聚集在乌坎派出所。</p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3987534037846622" target="freeweibo-mirror">乌坎维权风云再起，这次会是个什么结局？</a>
 </h2>
