@@ -77,7 +77,7 @@
 </h2>
 <p>SPAM ZUK手机今天凌晨7分钟全网支付破3000万！联想觉醒了也是比较可怕。<br><img src="http://ww3.sinaimg.cn/large/b952aec3gw1f4z1o8ra80j20u02fkgt3.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3987615755443446" target="freeweibo-mirror">SPAM 乌坎风云又起，这村还能过那个店吗？</a>
 </h2>
@@ -101,7 +101,7 @@
 </h2>
 <p>SPAM 要起义吗？ http://t.cn/R2WxKux<br><img src="http://ww3.sinaimg.cn/large/abfa5e0djw1f4yup7gjv0j20k00zk44v.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3987540178286183" target="freeweibo-mirror">SPAM 乌坎林祖恋被抓走！乌坎！乌坎！！！</a>
 </h2>
@@ -113,7 +113,7 @@
 </h2>
 <p>//@吴伟bj:乌坎维权风云再起，这次会是个什么结局？<br><br>RE: 乌坎风云再起。刚刚接到乌坎多个电话,乌坎村民领袖,村委会主任林祖銮被抓。因为土地维权问题,乌坎准备21日全村数千人再次集体到市政府上访!乌坎现在敲响了表示有外敌入侵的铜锣,大量村民聚集在乌坎派出所。</p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3987534037846622" target="freeweibo-mirror">乌坎维权风云再起，这次会是个什么结局？</a>
 </h2>
