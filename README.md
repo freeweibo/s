@@ -29,19 +29,19 @@
 </h2>
 <p>//@张晓舟: //@區區500元先生: 转发微博</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3988116555851465" target="freeweibo-mirror">SPAM //@逆风蝴蝶: //@新启蒙熊伟:乌坎被封村？？…</a>
 </h2>
 <p>SPAM //@逆风蝴蝶: //@新启蒙熊伟:乌坎被封村？？？挺住，乌坎。//@吉林卢雪松: //@陈光武律师:<br><br>RE: 分享图片<br><img src="http://ww3.sinaimg.cn/large/006oMFFPgw1f50dz18x61j30qo0zknb6.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3988116487911438" target="freeweibo-mirror">//@區區500元先生: 转发微博</a>
 </h2>
 <p>//@區區500元先生: 转发微博</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3988112432045224" target="freeweibo-mirror">乌坎村民集会现场图//@大卡姐姐:转发微博</a>
 </h2>
@@ -65,7 +65,7 @@
 </h2>
 <p>#还我书记#  为什么从一个警察可以吓死一千人？为什么一百个警察治不了一宗走失案！下面有图解，全违背良心做事白拿钱！自己丢掉自己的尊严丢掉国家的尊严！年迈的人都不怕万丈阳光，几千大男人还排排坐在护荫下，丢人！ 是什么让村民团结一致不惧权势暴晒仍然紧握旗帜高喊！<br><img src="http://ww1.sinaimg.cn/large/b250ff70gw1f50jwey9xxj20k00zkq8o.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3988097584551853" target="freeweibo-mirror">SPAM 【好文分享】1、80年代被出国潮卷走的绝色女星：美…</a>
 </h2>
@@ -90,6 +90,12 @@
 <p>#第八次被限制转发# 第八次达成！现在，不管是谁在限制转发，你@北京交警 都活该背锅。如果是你们直接授意，这都是你应得的。如果是别人僭越，那就是猪队友黑你。@北京交警 @平安北京<br><img src="http://ww4.sinaimg.cn/large/6c22df23jw1f50h5zop3lj20yi1pchdt.jpg"></p>
 <p>
 	<small> ============== 4小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3988046896713958" target="freeweibo-mirror">烏一一一一坎</a>
+</h2>
+<p>烏一一一一坎<br><img src="http://ww3.sinaimg.cn/large/006oMFFPgw1f50dys6z18j30qo0zk4bu.jpg"></p>
+<p>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3988039560835351" target="freeweibo-mirror">//@我是来看热闹的111: 哦，原来如此//@陈光武律师:…</a>
 </h2>
@@ -119,7 +125,7 @@
 </h2>
 <p>//@毕明雄: //@王才亮律师://@新启蒙熊伟:相信乌坎村民会理性维权//@潇韬13: 乌坎又事发，有多少国人关注基层民众依法维权之艰辛？@贺卫方 @迟夙生律师 //@放眼观粤:乌坎，乌坎[围观]<br><br>RE: 【乌坎最新消息】乌坎村村民已向陆丰市各单位上报了申请，准备21号冲上市政府，人员队伍安排：第一国</p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3988022187660960" target="freeweibo-mirror">SPAM #乐视生态618#6月17日-6月20日，乐视商城…</a>
 </h2>
@@ -132,12 +138,6 @@
 <p>真他妈黑 //@花荣://@米家那个山:转发微博</p>
 <p>
 	<small> ============== 9小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3987990139124634" target="freeweibo-mirror">SPAM //@蒋祖权评论: //@斯韦爵: 报应！ //@…</a>
-</h2>
-<p>SPAM //@蒋祖权评论: //@斯韦爵: 报应！ //@京城探花:现世报[挖鼻]//@活得轻松些真是不容易:罪恶者必被清算!//@新落天山:37名共和国卫士_上海新闻网    http://t.cn/R5Kia7t  ，具体是哪一个？？//@老關再來: 坦克手还是机枪手？<br><br>RE: 报应，这个畜生!<br><img src="http://ww2.sinaimg.cn/large/006mrXJvjw1f4zbn92fvzj30k00zkacu.jpg"></p>
-<p>
-	<small> ============== 10小时前</small>
 </p>
 <table>
     <tr>
