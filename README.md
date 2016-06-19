@@ -35,7 +35,7 @@
 </h2>
 <p>//@IB林立人: //@小平崔律师://@去V的刘建锋://@忧天湘人:被行贿和被嫖娼是他们的两大法宝。//@迟夙生律师:回复@老侠转世:乌坎的民选副村长洪锐潮已经先期被超重判决四年，那绝对是个错判！我还准备找林做个证，他就进去了。<br><br>RE: 「74歲個老頭，何必勞師動眾」乌坎村委主任被指受贿遭强行带走http://t.cn/R597EFu http://t.cn/R59AZmR</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3988204807640210" target="freeweibo-mirror">//@忧天湘人:被行贿和被嫖娼是他们的两大法宝。//@迟夙生…</a>
 </h2>
@@ -59,13 +59,13 @@
 </h2>
 <p>//@天涯赵瑜:生于不义，死于耻辱。这个视频讲得太好了，苏联太坏。</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3988191545435444" target="freeweibo-mirror">SPAM //@回头兮岸: 看不懂日文，也转！</a>
 </h2>
 <p>SPAM //@回头兮岸: 看不懂日文，也转！<br><br>RE: 日本也報了喔！中国「民主の村」村長、収賄で拘束…村民は抗議<br><img src="http://ww1.sinaimg.cn/large/006uo4Fdjw1f50ufzmirfj31bg0qo48k.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3988190844929652" target="freeweibo-mirror">年龄是大了些。//@迟夙生律师: 回复@老侠转世:乌坎的民选…</a>
 </h2>
@@ -119,7 +119,7 @@
 </h2>
 <p>//@拘拘: //@北京磬石: //@左春和:转发微博<br><br>RE: 什么是民心，这就是民心！有些人一辈子都得不到！最后普及一下，那个常委朱明国最后也贪污落马了！呵呵！  我分享了 @a獨y無2 的头条文章 http://t.cn/R596FXU</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3988161027820369" target="freeweibo-mirror">//@拉杰的天空: //@黃毓民觀察: //@香港陳平:全力…</a>
 </h2>
