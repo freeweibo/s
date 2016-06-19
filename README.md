@@ -41,7 +41,7 @@
 </h2>
 <p>SPAM //@看破红尘宝贝六: 对付屁民，需要这么大动作吗？[鄙视] //@北京厨子新号:牛逼的乌坎 //@响马:我靠 //@阿吉_Aydge:乌坎人民斗争精神不错 //@杜子建:怎么又是乌坎？<br><br>RE: 乌坎告急，请全网关注！[作揖][作揖][作揖] http://t.cn/R59nvtk .</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3988212811236665" target="freeweibo-mirror">SPAM //@六叔一梦://@原名禁用://@易名軒博:/…</a>
 </h2>
@@ -125,13 +125,13 @@
 </h2>
 <p>//@路一半://@长安-君:乌坎！乌坎！//@左春和://@石言内://@没事不加-V: //@有恶不打是怂货://@回头兮岸:转发微博<br><br>RE: 2000武警封村<br><img src="http://ww3.sinaimg.cn/large/006uo4Fdjw1f50tjxmq05j30ku112gr4.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3988200164729134" target="freeweibo-mirror">//@新启蒙熊伟://@骑小猪去赶场: 广东是改革的前沿阵地…</a>
 </h2>
 <p>//@新启蒙熊伟://@骑小猪去赶场: 广东是改革的前沿阵地！藉此推进及倒逼官方政改亦未尝不可，毕竟公民的游行示威权是被中共写进宪法的！<br><br>RE: SPAM 今天下午的乌坎。希望乌坎村民和地方政府都能保持理性和克制，在法制的轨道解决问题。乌坎村民是经过风雨洗礼的，一味的压制，解决不了问题。<br><img src="http://ww3.sinaimg.cn/large/72ddf2f2jw1f50ttkz42zj20j60asdil.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3988198336171789" target="freeweibo-mirror">历史像一个大箱子，现在，那些压在箱底的东西，在不断地被翻出来…</a>
 </h2>
