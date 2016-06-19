@@ -41,7 +41,7 @@
 </h2>
 <p>//@公民林静在维权4: //@愛murmur的小捌_36:轉發微博</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3988118535020098" target="freeweibo-mirror">//@鲲鹏展翅qd: //@粉雨:这是干什么？ //@去V的…</a>
 </h2>
@@ -101,7 +101,7 @@
 </h2>
 <p>SPAM //@去V的刘建锋:乌坎，因乌坎人，而必定载入史册！<br><br>RE: 红旗飘飘，众志成城！我们没想过要伤害时，我们爱党爱国家！我们合法维权，你们没有权利阻止！望你们留我们一条生路！[鲜花][鲜花]@朱晓军1 @路透中文网ReutersChina @葛永喜律师 @去V的刘建锋<br><img src="http://ww3.sinaimg.cn/large/c4095c87gw1f50ht378dsj20k00f3taq.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3988102157099429" target="freeweibo-mirror">//@左春和://@去V的刘建锋://@狼儿小时候:有理的话…</a>
 </h2>
