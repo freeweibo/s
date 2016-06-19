@@ -89,7 +89,7 @@
 </h2>
 <p>SPAM 棒棒哒，关注看看[鼓掌]</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3988200282799323" target="freeweibo-mirror">//@路一半://@长安-君:乌坎！乌坎！//@左春和://…</a>
 </h2>
