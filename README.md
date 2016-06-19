@@ -71,7 +71,7 @@
 </h2>
 <p>SPAM //@律师庞琨:等你见一面等了六百天 //@蔡崇国之二://@阿花的伊萨卡岛: 本来想哭，听到夏霖在看守所比在外面还忙，分析一大堆案件，没忍住笑了[衰][衰][衰]嗯，是我们的夏霖。<br><br>RE: 等待7个半小时，终得以见了夏霖5分钟<br><img src="http://ww1.sinaimg.cn/large/5468e636jw1f4zb248shnj20ri313npd.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3987787222544221" target="freeweibo-mirror">#第六次被限制转发# 距离100次打压民意就只差94次了！我…</a>
 </h2>
