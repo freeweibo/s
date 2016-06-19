@@ -23,7 +23,7 @@
 </h2>
 <p>//@秋风不见倒春寒://@萧淆晓笑2://@行者老别://@一品泥人://@何光伟: 转发微博<br><br>RE: SPAM 今天下午的乌坎。希望乌坎村民和地方政府都能保持理性和克制，在法制的轨道解决问题。乌坎村民是经过风雨洗礼的，一味的压制，解决不了问题。<br><img src="http://ww3.sinaimg.cn/large/72ddf2f2jw1f50ttkz42zj20j60asdil.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3988216283612766" target="freeweibo-mirror">SPAM 一个国家和一个村庄的持久战。[加油啊]//@律师老…</a>
 </h2>
