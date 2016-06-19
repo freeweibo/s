@@ -29,7 +29,7 @@
 </h2>
 <p>SPAM 一个国家和一个村庄的持久战。[加油啊]//@律师老周401: //@北京厨子新号:牛逼的乌坎 //@响马:我靠 //@阿吉_Aydge:乌坎人民斗争精神不错 //@杜子建:怎么又是乌坎？<br><br>RE: 乌坎告急，请全网关注！[作揖][作揖][作揖] http://t.cn/R59nvtk .</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3988214391459341" target="freeweibo-mirror">SPAM //@看破红尘宝贝六: 对付屁民，需要这么大动作吗…</a>
 </h2>
@@ -103,6 +103,12 @@
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3988198000163514" target="freeweibo-mirror">乌坎告急，请全网关注！[作揖][作揖][作揖] http:/…</a>
+</h2>
+<p>乌坎告急，请全网关注！[作揖][作揖][作揖] http://t.cn/R59nvtk .</p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3988193264997488" target="freeweibo-mirror">//@毕明雄: //@何光伟:转发微博</a>
 </h2>
 <p>//@毕明雄: //@何光伟:转发微博<br><br>RE: SPAM 今天下午的乌坎。希望乌坎村民和地方政府都能保持理性和克制，在法制的轨道解决问题。乌坎村民是经过风雨洗礼的，一味的压制，解决不了问题。<br><img src="http://ww3.sinaimg.cn/large/72ddf2f2jw1f50ttkz42zj20j60asdil.jpg"></p>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3988190111611050" target="freeweibo-mirror">//@元猫大大: 如果当年我的历史老师这么上课，我高考历史也…</a>
 </h2>
 <p>//@元猫大大: 如果当年我的历史老师这么上课，我高考历史也不至于不及格。[泪]//@王少磊:他现在小心多了//@网络在现99:#借题发挥#：【言论反动动机不纯】，精华课堂视频被偷录……</p>
-<p>
-	<small> ============== 3小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3988188407853142" target="freeweibo-mirror">//@迟夙生律师: 回复@老侠转世:乌坎的民选副村长洪锐潮已…</a>
-</h2>
-<p>//@迟夙生律师: 回复@老侠转世:乌坎的民选副村长洪锐潮已经先期被超重判决四年，那绝对是个错判！我还准备找林做个证，他就进去了。<br><br>RE: 「74歲個老頭，何必勞師動眾」乌坎村委主任被指受贿遭强行带走http://t.cn/R597EFu http://t.cn/R59AZmR</p>
 <p>
 	<small> ============== 3小时前</small>
 </p>
