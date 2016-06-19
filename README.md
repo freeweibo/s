@@ -137,7 +137,7 @@
 </h2>
 <p>SPAM //@一品泥人://@回头兮岸: 看不懂日文，也转！<br><br>RE: 日本也報了喔！中国「民主の村」村長、収賄で拘束…村民は抗議<br><img src="http://ww1.sinaimg.cn/large/006uo4Fdjw1f50ufzmirfj31bg0qo48k.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p>
 <table>
     <tr>
