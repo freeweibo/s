@@ -107,19 +107,19 @@
 </h2>
 <p>//@黃毓民觀察: //@香港陳平:流氓＋流氓！<br><br>RE: 黨媒《環球時報》社論⋯⋯<br><img src="http://ww1.sinaimg.cn/large/006vbdHggw1f50lb0gajkj30f90lxacc.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3988112432045224" target="freeweibo-mirror">乌坎村民集会现场图//@大卡姐姐:转发微博</a>
 </h2>
 <p>乌坎村民集会现场图//@大卡姐姐:转发微博<br><br>RE: #还我书记#  为什么从一个警察可以吓死一千人？为什么一百个警察治不了一宗走失案！下面有图解，全违背良心做事白拿钱！自己丢掉自己的尊严丢掉国家的尊严！年迈的人都不怕万丈阳光，几千大男人还排排坐在护荫下，丢人！ 是什么让村民团结一致不惧权势暴晒仍然紧握旗帜高喊！<br><img src="http://ww1.sinaimg.cn/large/b250ff70gw1f50jwey9xxj20k00zkq8o.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3988112436818542" target="freeweibo-mirror">//@守候者说: //@麻子王四:哈哈 //@荒岛恶郎十五代…</a>
 </h2>
 <p>//@守候者说: //@麻子王四:哈哈 //@荒岛恶郎十五代:戴着更象个傻逼了。//@毒醉紅塵7:有錢任性[doge] //@看破红尘宝贝六:这次掏多少啊，，，[偷笑] //@回头兮岸:转发微博<br><br>RE: 这么大的项链，肯定值很多钱。 http://t.cn/RU1yaH1<br><img src="http://ww2.sinaimg.cn/large/006u7MRbgw1f50he916eqj30g10sgju1.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3988111815625625" target="freeweibo-mirror">？//@赵府_木是国: //@星雨辰辉://@周难的微博:/…</a>
 </h2>
