@@ -65,7 +65,7 @@
 </h2>
 <p>//@潇湘莫大先生: //@Z张-T天-G戈://@戚念甄博士004: //@星雨辰辉://@leyecn乐也:转发微博</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3988147044196516" target="freeweibo-mirror">SPAM #思想哥说# 一个网红背后，坐一个耐住寂寞的男人[…</a>
 </h2>
@@ -125,7 +125,7 @@
 </h2>
 <p>//@鲲鹏展翅qd: //@粉雨:这是干什么？ //@去V的刘建锋://@孟庆泉律师:若是对付人民，岂不是法西斯？//@去V的刘建锋:大批警察哈<br><br>RE: 多到令人发指，照片来自现场！到底在怕什么？手无缚鸡之力的老妇人家们能对你干嘛！？[拳头][拳头][拳头]@去V的刘建锋 @葛永喜律师 @路透中文网ReutersChina @猫眼观乌坎<br><img src="http://ww1.sinaimg.cn/large/c4095c87gw1f50k5vftn1j20k00f60ud.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3988116626542757" target="freeweibo-mirror">//@张晓舟: //@區區500元先生: 转发微博</a>
 </h2>
