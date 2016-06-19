@@ -19,6 +19,18 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3988217755732297" target="freeweibo-mirror">//@秋风不见倒春寒://@萧淆晓笑2://@行者老别://…</a>
+</h2>
+<p>//@秋风不见倒春寒://@萧淆晓笑2://@行者老别://@一品泥人://@何光伟: 转发微博<br><br>RE: SPAM 今天下午的乌坎。希望乌坎村民和地方政府都能保持理性和克制，在法制的轨道解决问题。乌坎村民是经过风雨洗礼的，一味的压制，解决不了问题。<br><img src="http://ww3.sinaimg.cn/large/72ddf2f2jw1f50ttkz42zj20j60asdil.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3988216283612766" target="freeweibo-mirror">SPAM 一个国家和一个村庄的持久战。[加油啊]//@律师老…</a>
+</h2>
+<p>SPAM 一个国家和一个村庄的持久战。[加油啊]//@律师老周401: //@北京厨子新号:牛逼的乌坎 //@响马:我靠 //@阿吉_Aydge:乌坎人民斗争精神不错 //@杜子建:怎么又是乌坎？<br><br>RE: 乌坎告急，请全网关注！[作揖][作揖][作揖] http://t.cn/R59nvtk .</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3988209873990129" target="freeweibo-mirror">//@黄河水长浪打浪: //@ZWF先森的微博: //@山河…</a>
 </h2>
 <p>//@黄河水长浪打浪: //@ZWF先森的微博: //@山河倒流://@谢文://@左春和://@石言内://@没事不加-V: //@有恶不打是怂货://@回头兮岸:转发微博<br><br>RE: 2000武警封村<br><img src="http://ww3.sinaimg.cn/large/006uo4Fdjw1f50tjxmq05j30ku112gr4.jpg"></p>
@@ -124,18 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3988161027820369" target="freeweibo-mirror">//@拉杰的天空: //@黃毓民觀察: //@香港陳平:全力…</a>
 </h2>
 <p>//@拉杰的天空: //@黃毓民觀察: //@香港陳平:全力以赴的關注！<br><br>RE: 「廣東陸豐烏坎村村民舉行村民大會」廣東陸豐市烏坎村村委會主任林祖戀，被指涉嫌受賄，日前被武警帶走。大批村民今日舉行村民大會，商討要求當局歸還土地的上訪安排。 而林祖戀妻子楊珍說，公安對林祖戀的指控是無中生有林祖戀並無貪污。<br><img src="http://ww3.sinaimg.cn/large/006vbdHggw1f50qons611j30k00b6wfx.jpg"></p>
-<p>
-	<small> ============== 5小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3988160809767526" target="freeweibo-mirror">与人民为敌。//@蓝色孤独0914: //@蛋疼的李帅_79…</a>
-</h2>
-<p>与人民为敌。//@蓝色孤独0914: //@蛋疼的李帅_79104: //@中華總舵主陳近南://@何光伟: //@忧天湘人:民心所向为啥要与人民为敌，还是人民政府吗？至少牌坊还是要立吧！//@公民之下的国家//@唤醒不醒拉倒001://@去V的刘建锋:乌坎。村民自发游行要求归还村总支书记、村委主任林祖恋。<br><br>RE: #还我书记# http://t.cn/R596JYw .</p>
-<p>
-	<small> ============== 5小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3988160742803564" target="freeweibo-mirror">若干年后，该村就入选“中国名村”。//@王鹏律师: 乌坎，又…</a>
-</h2>
-<p>若干年后，该村就入选“中国名村”。//@王鹏律师: 乌坎，又一次被聚焦。//@律师王学明:大义凛然 //@李方平律师:又一次进入历史。<br><br>RE: 【几十警车夜捕老村长】乌坎老村长此前已断绝老夫老妻关系，有一种“曝尸野外不回头”的豪迈！<br><img src="http://ww1.sinaimg.cn/large/6a80bfcdgw1f4zscybu7sj20go0m80ty.jpg"></p>
 <p>
 	<small> ============== 5小时前</small>
 </p>
