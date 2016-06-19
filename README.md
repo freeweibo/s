@@ -131,7 +131,7 @@
 </h2>
 <p>黨媒《環球時報》社論⋯⋯<br><img src="http://ww1.sinaimg.cn/large/006vbdHggw1f50lb0gajkj30f90lxacc.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3988106375679364" target="freeweibo-mirror">钓鱼岛吗？ //@stonebreaker2006://@去…</a>
 </h2>
