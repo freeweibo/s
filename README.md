@@ -59,7 +59,7 @@
 </h2>
 <p>SPAM //@去V的刘建锋:乌坎，因乌坎人，而必定载入史册！<br><br>RE: 红旗飘飘，众志成城！我们没想过要伤害时，我们爱党爱国家！我们合法维权，你们没有权利阻止！望你们留我们一条生路！[鲜花][鲜花]@朱晓军1 @路透中文网ReutersChina @葛永喜律师 @去V的刘建锋<br><img src="http://ww3.sinaimg.cn/large/c4095c87gw1f50ht378dsj20k00f3taq.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3988101732786211" target="freeweibo-mirror">#还我书记#  为什么从一个警察可以吓死一千人？为什么一百个…</a>
 </h2>
@@ -76,6 +76,12 @@
 	<a href="https://freeweibo.com/weibo/3988085605305717" target="freeweibo-mirror">SPAM 真不信了就 //@甜月亮moon:继续转！ //@…</a>
 </h2>
 <p>SPAM 真不信了就 //@甜月亮moon:继续转！ //@TONY老师爱布丁:我借你100条命 继续转[怒]<br><br>RE: #第八次被限制转发# 第八次达成！现在，不管是谁在限制转发，你@北京交警 都活该背锅。如果是你们直接授意，这都是你应得的。如果是别人僭越，那就是猪队友黑你。@北京交警 @平安北京<br><img src="http://ww4.sinaimg.cn/large/6c22df23jw1f50h5zop3lj20yi1pchdt.jpg"></p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3988081290387810" target="freeweibo-mirror">红旗飘飘，众志成城！我们没想过要伤害时，我们爱党爱国家！我们…</a>
+</h2>
+<p>红旗飘飘，众志成城！我们没想过要伤害时，我们爱党爱国家！我们合法维权，你们没有权利阻止！望你们留我们一条生路！[鲜花][鲜花]@朱晓军1 @路透中文网ReutersChina @葛永喜律师 @去V的刘建锋<br><img src="http://ww3.sinaimg.cn/large/c4095c87gw1f50ht378dsj20k00f3taq.jpg"></p>
 <p>
 	<small> ============== 4小时前</small>
 </p><h2>
@@ -132,12 +138,6 @@
 <p>SPAM #乐视生态618#6月17日-6月20日，乐视商城LeMall.com超级手机狂欢96小时，买会员机硬件再减50元，1元秒50元优惠券等8大权益等你来，赶紧来一发吧！</p>
 <p>
 	<small> ============== 8小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3987998880105992" target="freeweibo-mirror">真他妈黑 //@花荣://@米家那个山:转发微博</a>
-</h2>
-<p>真他妈黑 //@花荣://@米家那个山:转发微博</p>
-<p>
-	<small> ============== 9小时前</small>
 </p>
 <table>
     <tr>
