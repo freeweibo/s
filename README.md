@@ -79,6 +79,12 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3988209795510838" target="freeweibo-mirror">//@干卫东律师://@竹叶青好://@尼雅1976: //…</a>
+</h2>
+<p>//@干卫东律师://@竹叶青好://@尼雅1976: //@李方平律师:老人家早日归来！<br><br>RE: 【父亲的父亲皆在狱中】今天是父亲节，孩子的父亲超级屠夫吴淦被抓后，老父亲也莫名堂的关起来了，多次开庭且迟迟不判。干过预审处长，年过七旬的辩护律师林洪楠每每谈到这个案子就摇头叹息：太糟糕了！<br><img src="http://ww3.sinaimg.cn/large/6a80bfcdjw1f50qza500sj208c069mxj.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3988208428213401" target="freeweibo-mirror">SPAM //@一品泥人://@回头兮岸: 看不懂日文，也转…</a>
 </h2>
 <p>SPAM //@一品泥人://@回头兮岸: 看不懂日文，也转！<br><br>RE: 日本也報了喔！中国「民主の村」村長、収賄で拘束…村民は抗議<br><img src="http://ww1.sinaimg.cn/large/006uo4Fdjw1f50ufzmirfj31bg0qo48k.jpg"></p>
@@ -90,6 +96,12 @@
 <p>//@IB林立人: //@小平崔律师://@去V的刘建锋://@忧天湘人:被行贿和被嫖娼是他们的两大法宝。//@迟夙生律师:回复@老侠转世:乌坎的民选副村长洪锐潮已经先期被超重判决四年，那绝对是个错判！我还准备找林做个证，他就进去了。<br><br>RE: 「74歲個老頭，何必勞師動眾」乌坎村委主任被指受贿遭强行带走http://t.cn/R597EFu http://t.cn/R59AZmR</p>
 <p>
 	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3988206603477004" target="freeweibo-mirror">SPAM 脸上干净好多啦！真不错</a>
+</h2>
+<p>SPAM 脸上干净好多啦！真不错</p>
+<p>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3988204933778995" target="freeweibo-mirror">SPAM 记录历史。</a>
 </h2>
@@ -115,27 +127,15 @@
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3988200164729134" target="freeweibo-mirror">//@新启蒙熊伟://@骑小猪去赶场: 广东是改革的前沿阵地…</a>
+</h2>
+<p>//@新启蒙熊伟://@骑小猪去赶场: 广东是改革的前沿阵地！藉此推进及倒逼官方政改亦未尝不可，毕竟公民的游行示威权是被中共写进宪法的！<br><br>RE: SPAM 今天下午的乌坎。希望乌坎村民和地方政府都能保持理性和克制，在法制的轨道解决问题。乌坎村民是经过风雨洗礼的，一味的压制，解决不了问题。<br><img src="http://ww3.sinaimg.cn/large/72ddf2f2jw1f50ttkz42zj20j60asdil.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3988198336171789" target="freeweibo-mirror">历史像一个大箱子，现在，那些压在箱底的东西，在不断地被翻出来…</a>
 </h2>
 <p>历史像一个大箱子，现在，那些压在箱底的东西，在不断地被翻出来见阳光。好啊！//@邓相超: //@一品泥人: //@整合之道刘鸿雁: [吃惊][吃惊][吃惊]<br><br>RE: 我发表了头条文章:《崇拜毛的人应该归位兽类》 http://t.cn/R5KUkMT<br><img src="http://ww3.sinaimg.cn/large/0068unMYjw1f4zaxjylo6j30hn0m8goh.jpg"></p>
-<p>
-	<small> ============== 3小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3988198000163514" target="freeweibo-mirror">乌坎告急，请全网关注！[作揖][作揖][作揖] http:/…</a>
-</h2>
-<p>乌坎告急，请全网关注！[作揖][作揖][作揖] http://t.cn/R59nvtk .</p>
-<p>
-	<small> ============== 3小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3988193264997488" target="freeweibo-mirror">//@毕明雄: //@何光伟:转发微博</a>
-</h2>
-<p>//@毕明雄: //@何光伟:转发微博<br><br>RE: SPAM 今天下午的乌坎。希望乌坎村民和地方政府都能保持理性和克制，在法制的轨道解决问题。乌坎村民是经过风雨洗礼的，一味的压制，解决不了问题。<br><img src="http://ww3.sinaimg.cn/large/72ddf2f2jw1f50ttkz42zj20j60asdil.jpg"></p>
-<p>
-	<small> ============== 3小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3988192459456747" target="freeweibo-mirror">//@天涯赵瑜:生于不义，死于耻辱。这个视频讲得太好了，苏联…</a>
-</h2>
-<p>//@天涯赵瑜:生于不义，死于耻辱。这个视频讲得太好了，苏联太坏。</p>
 <p>
 	<small> ============== 3小时前</small>
 </p>
