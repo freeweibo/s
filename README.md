@@ -19,6 +19,24 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3988234235709452" target="freeweibo-mirror">SPAM 各种风格 [心]</a>
+</h2>
+<p>SPAM 各种风格 [心]</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3988232209058708" target="freeweibo-mirror">SPAM 红旗飘飘的是什么地方？</a>
+</h2>
+<p>SPAM 红旗飘飘的是什么地方？<br><br>RE: 雪崩的时候没有一片雪花是无辜的。<br><img src="http://ww4.sinaimg.cn/large/72ddf2f2jw1f50v7fmmjaj20gw0c30vd.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3988227792939647" target="freeweibo-mirror">SPAM [哆啦A梦花心][哆啦A梦花心]</a>
+</h2>
+<p>SPAM [哆啦A梦花心][哆啦A梦花心]</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3988217755732297" target="freeweibo-mirror">//@秋风不见倒春寒://@萧淆晓笑2://@行者老别://…</a>
 </h2>
 <p>//@秋风不见倒春寒://@萧淆晓笑2://@行者老别://@一品泥人://@何光伟: 转发微博<br><br>RE: SPAM 今天下午的乌坎。希望乌坎村民和地方政府都能保持理性和克制，在法制的轨道解决问题。乌坎村民是经过风雨洗礼的，一味的压制，解决不了问题。<br><img src="http://ww3.sinaimg.cn/large/72ddf2f2jw1f50ttkz42zj20j60asdil.jpg"></p>
@@ -107,35 +125,17 @@
 </h2>
 <p>SPAM 记录历史。<br><br>RE: 乌坎序曲(上篇) http://t.cn/R59SYxb . 乌坎序曲(下篇) http://t.cn/R59SusI .</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3988204807640210" target="freeweibo-mirror">//@忧天湘人:被行贿和被嫖娼是他们的两大法宝。//@迟夙生…</a>
 </h2>
 <p>//@忧天湘人:被行贿和被嫖娼是他们的两大法宝。//@迟夙生律师:回复@老侠转世:乌坎的民选副村长洪锐潮已经先期被超重判决四年，那绝对是个错判！我还准备找林做个证，他就进去了。<br><br>RE: 「74歲個老頭，何必勞師動眾」乌坎村委主任被指受贿遭强行带走http://t.cn/R597EFu http://t.cn/R59AZmR</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3988203041796237" target="freeweibo-mirror">SPAM 棒棒哒，关注看看[鼓掌]</a>
 </h2>
 <p>SPAM 棒棒哒，关注看看[鼓掌]</p>
-<p>
-	<small> ============== 4小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3988200282799323" target="freeweibo-mirror">//@路一半://@长安-君:乌坎！乌坎！//@左春和://…</a>
-</h2>
-<p>//@路一半://@长安-君:乌坎！乌坎！//@左春和://@石言内://@没事不加-V: //@有恶不打是怂货://@回头兮岸:转发微博<br><br>RE: 2000武警封村<br><img src="http://ww3.sinaimg.cn/large/006uo4Fdjw1f50tjxmq05j30ku112gr4.jpg"></p>
-<p>
-	<small> ============== 4小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3988200164729134" target="freeweibo-mirror">//@新启蒙熊伟://@骑小猪去赶场: 广东是改革的前沿阵地…</a>
-</h2>
-<p>//@新启蒙熊伟://@骑小猪去赶场: 广东是改革的前沿阵地！藉此推进及倒逼官方政改亦未尝不可，毕竟公民的游行示威权是被中共写进宪法的！<br><br>RE: SPAM 今天下午的乌坎。希望乌坎村民和地方政府都能保持理性和克制，在法制的轨道解决问题。乌坎村民是经过风雨洗礼的，一味的压制，解决不了问题。<br><img src="http://ww3.sinaimg.cn/large/72ddf2f2jw1f50ttkz42zj20j60asdil.jpg"></p>
-<p>
-	<small> ============== 4小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3988198336171789" target="freeweibo-mirror">历史像一个大箱子，现在，那些压在箱底的东西，在不断地被翻出来…</a>
-</h2>
-<p>历史像一个大箱子，现在，那些压在箱底的东西，在不断地被翻出来见阳光。好啊！//@邓相超: //@一品泥人: //@整合之道刘鸿雁: [吃惊][吃惊][吃惊]<br><br>RE: 我发表了头条文章:《崇拜毛的人应该归位兽类》 http://t.cn/R5KUkMT<br><img src="http://ww3.sinaimg.cn/large/0068unMYjw1f4zaxjylo6j30hn0m8goh.jpg"></p>
 <p>
 	<small> ============== 4小时前</small>
 </p>
