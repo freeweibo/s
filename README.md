@@ -137,7 +137,7 @@
 </h2>
 <p>//@黃毓民觀察: //@香港陳平:流氓＋流氓！<br><br>RE: 黨媒《環球時報》社論⋯⋯<br><img src="http://ww1.sinaimg.cn/large/006vbdHggw1f50lb0gajkj30f90lxacc.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p>
 <table>
     <tr>
