@@ -91,6 +91,12 @@
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3988106375679364" target="freeweibo-mirror">钓鱼岛吗？ //@stonebreaker2006://@去…</a>
+</h2>
+<p>钓鱼岛吗？ //@stonebreaker2006://@去V的刘建锋:大批警察哈<br><br>RE: 多到令人发指，照片来自现场！到底在怕什么？手无缚鸡之力的老妇人家们能对你干嘛！？[拳头][拳头][拳头]@去V的刘建锋 @葛永喜律师 @路透中文网ReutersChina @猫眼观乌坎<br><img src="http://ww1.sinaimg.cn/large/c4095c87gw1f50k5vftn1j20k00f60ud.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3988104665303367" target="freeweibo-mirror">SPAM //@去V的刘建锋:乌坎，因乌坎人，而必定载入史册…</a>
 </h2>
 <p>SPAM //@去V的刘建锋:乌坎，因乌坎人，而必定载入史册！<br><br>RE: 红旗飘飘，众志成城！我们没想过要伤害时，我们爱党爱国家！我们合法维权，你们没有权利阻止！望你们留我们一条生路！[鲜花][鲜花]@朱晓军1 @路透中文网ReutersChina @葛永喜律师 @去V的刘建锋<br><img src="http://ww3.sinaimg.cn/large/c4095c87gw1f50ht378dsj20k00f3taq.jpg"></p>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3988097039217947" target="freeweibo-mirror">//@陈光武律师: //@杭州萧山王水金2: 【要追求自由平…</a>
 </h2>
 <p>//@陈光武律师: //@杭州萧山王水金2: 【要追求自由平等、公平正义和民主法治！坚决抵制假的“依法治国”】//@追唐-如东李忠: //@王师北定FK:[吃惊] //@50年矛苔://@哪里来的底气:一个小村庄牵制中国三千兵力，你叫解放军怎么敢对外宣战。//@-尹纤雪@时移世易-@天津老魏038@鸡犬之声广播电台<br><br>RE: 分享图片<br><img src="http://ww3.sinaimg.cn/large/006oMFFPgw1f50dz18x61j30qo0zknb6.jpg"></p>
-<p>
-	<small> ============== 4小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3988090349873883" target="freeweibo-mirror">SPAM //@小平崔律师: //@去V的刘建锋:乌坎，警察…</a>
-</h2>
-<p>SPAM //@小平崔律师: //@去V的刘建锋:乌坎，警察入村驱赶记者。</p>
 <p>
 	<small> ============== 4小时前</small>
 </p>
