@@ -25,11 +25,71 @@
 <p>
 	<small> ============== 1小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3988208428213401" target="freeweibo-mirror">SPAM //@一品泥人://@回头兮岸: 看不懂日文，也转…</a>
+</h2>
+<p>SPAM //@一品泥人://@回头兮岸: 看不懂日文，也转！<br><br>RE: 日本也報了喔！中国「民主の村」村長、収賄で拘束…村民は抗議<br><img src="http://ww1.sinaimg.cn/large/006uo4Fdjw1f50ufzmirfj31bg0qo48k.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3988207849087409" target="freeweibo-mirror">//@IB林立人: //@小平崔律师://@去V的刘建锋:/…</a>
+</h2>
+<p>//@IB林立人: //@小平崔律师://@去V的刘建锋://@忧天湘人:被行贿和被嫖娼是他们的两大法宝。//@迟夙生律师:回复@老侠转世:乌坎的民选副村长洪锐潮已经先期被超重判决四年，那绝对是个错判！我还准备找林做个证，他就进去了。<br><br>RE: 「74歲個老頭，何必勞師動眾」乌坎村委主任被指受贿遭强行带走http://t.cn/R597EFu http://t.cn/R59AZmR</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3988204807640210" target="freeweibo-mirror">//@忧天湘人:被行贿和被嫖娼是他们的两大法宝。//@迟夙生…</a>
+</h2>
+<p>//@忧天湘人:被行贿和被嫖娼是他们的两大法宝。//@迟夙生律师:回复@老侠转世:乌坎的民选副村长洪锐潮已经先期被超重判决四年，那绝对是个错判！我还准备找林做个证，他就进去了。<br><br>RE: 「74歲個老頭，何必勞師動眾」乌坎村委主任被指受贿遭强行带走http://t.cn/R597EFu http://t.cn/R59AZmR</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3988203041796237" target="freeweibo-mirror">SPAM 棒棒哒，关注看看[鼓掌]</a>
 </h2>
 <p>SPAM 棒棒哒，关注看看[鼓掌]</p>
 <p>
 	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3988200282799323" target="freeweibo-mirror">//@路一半://@长安-君:乌坎！乌坎！//@左春和://…</a>
+</h2>
+<p>//@路一半://@长安-君:乌坎！乌坎！//@左春和://@石言内://@没事不加-V: //@有恶不打是怂货://@回头兮岸:转发微博<br><br>RE: 2000武警封村<br><img src="http://ww3.sinaimg.cn/large/006uo4Fdjw1f50tjxmq05j30ku112gr4.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3988192459456747" target="freeweibo-mirror">//@天涯赵瑜:生于不义，死于耻辱。这个视频讲得太好了，苏联…</a>
+</h2>
+<p>//@天涯赵瑜:生于不义，死于耻辱。这个视频讲得太好了，苏联太坏。</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3988191545435444" target="freeweibo-mirror">SPAM //@回头兮岸: 看不懂日文，也转！</a>
+</h2>
+<p>SPAM //@回头兮岸: 看不懂日文，也转！<br><br>RE: 日本也報了喔！中国「民主の村」村長、収賄で拘束…村民は抗議<br><img src="http://ww1.sinaimg.cn/large/006uo4Fdjw1f50ufzmirfj31bg0qo48k.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3988190844929652" target="freeweibo-mirror">年龄是大了些。//@迟夙生律师: 回复@老侠转世:乌坎的民选…</a>
+</h2>
+<p>年龄是大了些。//@迟夙生律师: 回复@老侠转世:乌坎的民选副村长洪锐潮已经先期被超重判决四年，那绝对是个错判！我还准备找林做个证，他就进去了。<br><br>RE: 「74歲個老頭，何必勞師動眾」乌坎村委主任被指受贿遭强行带走http://t.cn/R597EFu http://t.cn/R59AZmR</p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3988190111611050" target="freeweibo-mirror">//@元猫大大: 如果当年我的历史老师这么上课，我高考历史也…</a>
+</h2>
+<p>//@元猫大大: 如果当年我的历史老师这么上课，我高考历史也不至于不及格。[泪]//@王少磊:他现在小心多了//@网络在现99:#借题发挥#：【言论反动动机不纯】，精华课堂视频被偷录……</p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3988187501604323" target="freeweibo-mirror">SPAM 便秘客户反馈喝了以后天天上厕所，超级舒服，会继续回…</a>
+</h2>
+<p>SPAM 便秘客户反馈喝了以后天天上厕所，超级舒服，会继续回购[good]你还在受便秘的困扰吗？？猛戳V.芯：chiguo11 不吃药，就可以调理修复，并且让你彻底摆脱便秘（温馨提示：只有威芯号，没有相关工众号推送，谨防受骗！！）<br><img src="http://ww4.sinaimg.cn/large/93b64d65jw1f4zg5axnzhj20dj0nc40l.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3988186290264701" target="freeweibo-mirror">SPAM 今天下午的乌坎。希望乌坎村民和地方政府都能保持理性…</a>
+</h2>
+<p>SPAM 今天下午的乌坎。希望乌坎村民和地方政府都能保持理性和克制，在法制的轨道解决问题。乌坎村民是经过风雨洗礼的，一味的压制，解决不了问题。<br><img src="http://ww3.sinaimg.cn/large/72ddf2f2jw1f50ttkz42zj20j60asdil.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3988180363469248" target="freeweibo-mirror">SPAM //@朱国斌HK: 乌坎，这道坎能过去吗？ //@…</a>
 </h2>
@@ -65,79 +125,19 @@
 </h2>
 <p>//@拉杰的天空: //@黃毓民觀察: //@香港陳平:全力以赴的關注！<br><br>RE: 「廣東陸豐烏坎村村民舉行村民大會」廣東陸豐市烏坎村村委會主任林祖戀，被指涉嫌受賄，日前被武警帶走。大批村民今日舉行村民大會，商討要求當局歸還土地的上訪安排。 而林祖戀妻子楊珍說，公安對林祖戀的指控是無中生有林祖戀並無貪污。<br><img src="http://ww3.sinaimg.cn/large/006vbdHggw1f50qons611j30k00b6wfx.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3988160809767526" target="freeweibo-mirror">与人民为敌。//@蓝色孤独0914: //@蛋疼的李帅_79…</a>
 </h2>
 <p>与人民为敌。//@蓝色孤独0914: //@蛋疼的李帅_79104: //@中華總舵主陳近南://@何光伟: //@忧天湘人:民心所向为啥要与人民为敌，还是人民政府吗？至少牌坊还是要立吧！//@公民之下的国家//@唤醒不醒拉倒001://@去V的刘建锋:乌坎。村民自发游行要求归还村总支书记、村委主任林祖恋。<br><br>RE: #还我书记# http://t.cn/R596JYw .</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3988160742803564" target="freeweibo-mirror">若干年后，该村就入选“中国名村”。//@王鹏律师: 乌坎，又…</a>
 </h2>
 <p>若干年后，该村就入选“中国名村”。//@王鹏律师: 乌坎，又一次被聚焦。//@律师王学明:大义凛然 //@李方平律师:又一次进入历史。<br><br>RE: 【几十警车夜捕老村长】乌坎老村长此前已断绝老夫老妻关系，有一种“曝尸野外不回头”的豪迈！<br><img src="http://ww1.sinaimg.cn/large/6a80bfcdgw1f4zscybu7sj20go0m80ty.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3988160625034915" target="freeweibo-mirror">//@我心飞扬886: 中國廣東省陸豐市烏坎村黨總支書記兼村…</a>
-</h2>
-<p>//@我心飞扬886: 中國廣東省陸豐市烏坎村黨總支書記兼村委會主任林祖戀，因為組織村民抗議政府賤賣土地，竟遭陸豐市公安以涉嫌收賄的罪名逮捕。烏坎村村民今天（19日）下午1時30分召開村民大會，超過1000人聚集在村口牌坊，高呼「還我土地！還我書記！打倒貪官！」的口號，要求當局釋放林祖戀。<br><br>RE: 什么是民心，这就是民心！有些人一辈子都得不到！最后普及一下，那个常委朱明国最后也贪污落马了！呵呵！  我分享了 @a獨y無2 的头条文章 http://t.cn/R596FXU</p>
-<p>
-	<small> ============== 4小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3988151482048007" target="freeweibo-mirror">SPAM [心][心][心]所有言语都没表达我对您敬佩之情！</a>
-</h2>
-<p>SPAM [心][心][心]所有言语都没表达我对您敬佩之情！<br><img src="http://ww1.sinaimg.cn/large/c4095c87gw1f50pyeb8lsj20m80c5gml.jpg"></p>
-<p>
 	<small> ============== 5小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3988148742676186" target="freeweibo-mirror">Rosi。臀虽不大，但很完美[色][色][色]   更多福利…</a>
-</h2>
-<p>Rosi。臀虽不大，但很完美[色][色][色]   更多福利请关注@深夜19禁      http://t.cn/R5Ift1p</p>
-<p>
-	<small> ============== 5小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3988147799096848" target="freeweibo-mirror">//@潇湘莫大先生: //@Z张-T天-G戈://@戚念甄博…</a>
-</h2>
-<p>//@潇湘莫大先生: //@Z张-T天-G戈://@戚念甄博士004: //@星雨辰辉://@leyecn乐也:转发微博</p>
-<p>
-	<small> ============== 5小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3988147044196516" target="freeweibo-mirror">SPAM #思想哥说# 一个网红背后，坐一个耐住寂寞的男人[…</a>
-</h2>
-<p>SPAM #思想哥说# 一个网红背后，坐一个耐住寂寞的男人[哈哈]//@况秀猛: 没有看到后面的钱[哈哈][哈哈] //@柏铭007:哈哈</p>
-<p>
-	<small> ============== 5小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3988144757599055" target="freeweibo-mirror">//@正义哨兵://@何光伟://@忧天湘人:民心所向为啥要…</a>
-</h2>
-<p>//@正义哨兵://@何光伟://@忧天湘人:民心所向为啥要与人民为敌，还是人民政府吗？至少牌坊还是要立吧！//@公民之下的国家://@加m菲炮1314Cat://@陈___大_嘴://@唤醒不醒拉倒001://@去V的刘建锋:乌坎。村民自发游行要求归还村总支书记、村委主任林祖恋。<br><br>RE: #还我书记# http://t.cn/R596JYw .</p>
-<p>
-	<small> ============== 6小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3988139104059597" target="freeweibo-mirror">//@中文傳教士龐挺://@国民身份证: //@马操188:…</a>
-</h2>
-<p>//@中文傳教士龐挺://@国民身份证: //@马操188://@宏鑫88://@一品泥人://@谢流石://@LENOVO525: //@史海觅珠:转发微博<br><br>RE: 他们要求北京立即释放其他香港铜锣湾书店相关人士，并向香港市民交代此事。公民党、社民党、人民力量、香港众志等多个政党都参与 http://t.cn/R59xj8s<br><img src="http://ww3.sinaimg.cn/large/52038d40jw1f50it7l1spj20go0g6gog.jpg"></p>
-<p>
-	<small> ============== 6小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3988129045984001" target="freeweibo-mirror">SPAM //@轻雨2010://@一只博://@裟僧情怀:…</a>
-</h2>
-<p>SPAM //@轻雨2010://@一只博://@裟僧情怀: 拿什么也没用//@---1---伟大的沟通者:如果称之为军管，有意见吗？毒菜爆发后期。//@星雨辰辉: wk//@日匿_名用戶-25:<br><br>RE: </p>
-<p>
-	<small> ============== 7小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3988127044913531" target="freeweibo-mirror">//@民生焦点转播://@一品泥人://@谢流石://@LE…</a>
-</h2>
-<p>//@民生焦点转播://@一品泥人://@谢流石://@LENOVO525: //@史海觅珠:转发微博<br><br>RE: 他们要求北京立即释放其他香港铜锣湾书店相关人士，并向香港市民交代此事。公民党、社民党、人民力量、香港众志等多个政党都参与 http://t.cn/R59xj8s<br><img src="http://ww3.sinaimg.cn/large/52038d40jw1f50it7l1spj20go0g6gog.jpg"></p>
-<p>
-	<small> ============== 7小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3988126571235383" target="freeweibo-mirror">//@一品泥人://@谢流石://@LENOVO525: /…</a>
-</h2>
-<p>//@一品泥人://@谢流石://@LENOVO525: //@史海觅珠:转发微博<br><br>RE: 他们要求北京立即释放其他香港铜锣湾书店相关人士，并向香港市民交代此事。公民党、社民党、人民力量、香港众志等多个政党都参与 http://t.cn/R59xj8s<br><img src="http://ww3.sinaimg.cn/large/52038d40jw1f50it7l1spj20go0g6gog.jpg"></p>
-<p>
-	<small> ============== 7小时前</small>
 </p>
 <table>
     <tr>
