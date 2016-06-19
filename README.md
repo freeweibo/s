@@ -25,6 +25,12 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3988179486666772" target="freeweibo-mirror">什么情况？ //@lvzhizi:求扩散转发，谢谢@新浪新闻…</a>
+</h2>
+<p>什么情况？ //@lvzhizi:求扩散转发，谢谢@新浪新闻客户端 @深圳每日头条 @于建嵘 @深圳Jacky @茅于轼 @澎湃新闻 @路透中文网Reuters @南方都市报 @李帅 @健康深圳 @迟夙生律师 @陈有西 @贺卫方 @光远看经济 @清华孙立平  //@梅春来律师:又是一起环保问题引起的群体性争议！</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3988172558259437" target="freeweibo-mirror">SPAM 妹纸们来看看吧！</a>
 </h2>
 <p>SPAM 妹纸们来看看吧！</p>
@@ -89,7 +95,7 @@
 </h2>
 <p>//@正义哨兵://@何光伟://@忧天湘人:民心所向为啥要与人民为敌，还是人民政府吗？至少牌坊还是要立吧！//@公民之下的国家://@加m菲炮1314Cat://@陈___大_嘴://@唤醒不醒拉倒001://@去V的刘建锋:乌坎。村民自发游行要求归还村总支书记、村委主任林祖恋。<br><br>RE: #还我书记# http://t.cn/R596JYw .</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3988139104059597" target="freeweibo-mirror">//@中文傳教士龐挺://@国民身份证: //@马操188:…</a>
 </h2>
@@ -101,7 +107,7 @@
 </h2>
 <p>SPAM //@轻雨2010://@一只博://@裟僧情怀: 拿什么也没用//@---1---伟大的沟通者:如果称之为军管，有意见吗？毒菜爆发后期。//@星雨辰辉: wk//@日匿_名用戶-25:<br><br>RE: </p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3988127044913531" target="freeweibo-mirror">//@民生焦点转播://@一品泥人://@谢流石://@LE…</a>
 </h2>
@@ -115,6 +121,12 @@
 <p>
 	<small> ============== 6小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3988125543742131" target="freeweibo-mirror">向中央委员、深圳市委书记马兴瑞喊话：  （1）请官方公告：观…</a>
+</h2>
+<p>向中央委员、深圳市委书记马兴瑞喊话：  （1）请官方公告：观澜章阁垃圾填埋场/焚烧场的立项、环境评估、听证会，及整个项目按法律应该是什么样的程序，现在是否有严格遵守，请公告说明。  （2）请官方解释：中国与发达国家在处理垃圾问题上的差异，以及中国人，特别是深圳关于垃圾问题的长远计划，而...全文： http://m.weibo.cn/5584870804/3988125543742131<br><img src="http://ww2.sinaimg.cn/large/0065Xy1mgw1f50mwixrgpj30zk0qowjt.jpg"></p>
+<p>
+	<small> ============== 6小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3988123082145409" target="freeweibo-mirror">//@在等天明://@陈光武律师://@杭州萧山王水金2: …</a>
 </h2>
 <p>//@在等天明://@陈光武律师://@杭州萧山王水金2: 【要追求自由平等、公平正义和民主法治！坚决抵制假的“依法治国”】//@追唐-如东李忠: //@王师北定FK:[吃惊] //@50年矛苔://@哪里来的底气:一个小村庄牵制中国三千兵力，你叫解放军怎么敢对外宣战。//@-尹纤雪@时移世易-@天津老魏038@鸡犬之声广播电台<br><br>RE: 分享图片<br><img src="http://ww3.sinaimg.cn/large/006oMFFPgw1f50dz18x61j30qo0zknb6.jpg"></p>
@@ -124,18 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3988122246602461" target="freeweibo-mirror">SPAM 港媒。</a>
 </h2>
 <p>SPAM 港媒。<br><br>RE: 烏一一一一坎<br><img src="http://ww3.sinaimg.cn/large/006oMFFPgw1f50dys6z18j30qo0zk4bu.jpg"></p>
-<p>
-	<small> ============== 6小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3988119676641040" target="freeweibo-mirror">//@公民林静在维权4: //@愛murmur的小捌_36:…</a>
-</h2>
-<p>//@公民林静在维权4: //@愛murmur的小捌_36:轉發微博</p>
-<p>
-	<small> ============== 6小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3988118535020098" target="freeweibo-mirror">//@鲲鹏展翅qd: //@粉雨:这是干什么？ //@去V的…</a>
-</h2>
-<p>//@鲲鹏展翅qd: //@粉雨:这是干什么？ //@去V的刘建锋://@孟庆泉律师:若是对付人民，岂不是法西斯？//@去V的刘建锋:大批警察哈<br><br>RE: 多到令人发指，照片来自现场！到底在怕什么？手无缚鸡之力的老妇人家们能对你干嘛！？[拳头][拳头][拳头]@去V的刘建锋 @葛永喜律师 @路透中文网ReutersChina @猫眼观乌坎<br><img src="http://ww1.sinaimg.cn/large/c4095c87gw1f50k5vftn1j20k00f60ud.jpg"></p>
 <p>
 	<small> ============== 6小时前</small>
 </p>
