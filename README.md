@@ -41,7 +41,7 @@
 </h2>
 <p>//@臧建春V: //@俗家人释永乖://@阿姜aa: //@老關再來://@新落天山://@鱼香4靓丝: 同问//@chen迁迁19: //@还是1位去流浪:+1 //@索罗公爵53:还有我 //@吴布衣56:就自己转着玩儿。//@吴布衣56:转发4，我自己2次，泣血!<br><br>RE: 【每天一问】第2天:请问天津警方和董亚楠:考拉赵威还活着吗？？？<br><img src="http://ww4.sinaimg.cn/large/006umxd3jw1f4ztmgunh2j30qo1be489.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3988026554543778" target="freeweibo-mirror">//@毕明雄: //@王才亮律师://@新启蒙熊伟:相信乌坎…</a>
 </h2>
@@ -66,6 +66,12 @@
 <p>SPAM //@蒋祖权评论: //@斯韦爵: 报应！ //@京城探花:现世报[挖鼻]//@活得轻松些真是不容易:罪恶者必被清算!//@新落天山:37名共和国卫士_上海新闻网    http://t.cn/R5Kia7t  ，具体是哪一个？？//@老關再來: 坦克手还是机枪手？<br><br>RE: 报应，这个畜生!<br><img src="http://ww2.sinaimg.cn/large/006mrXJvjw1f4zbn92fvzj30k00zkacu.jpg"></p>
 <p>
 	<small> ============== 6小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3987978604628292" target="freeweibo-mirror">【乌坎最新消息】乌坎村村民已向陆丰市各单位上报了申请，准备2…</a>
+</h2>
+<p>【乌坎最新消息】乌坎村村民已向陆丰市各单位上报了申请，准备21号冲上市政府，人员队伍安排：第一国</p>
+<p>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3987975383323540" target="freeweibo-mirror">SPAM </a>
 </h2>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3987831636963080" target="freeweibo-mirror">SPAM 一直觉得认真的男人和爱笑的男人最具魅力 宋仲基。想…</a>
 </h2>
 <p>SPAM 一直觉得认真的男人和爱笑的男人最具魅力 宋仲基。想瘦找她@阿瘦家的</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3987826095295960" target="freeweibo-mirror">SPAM //@律师庞琨:等你见一面等了六百天 //@蔡崇国…</a>
-</h2>
-<p>SPAM //@律师庞琨:等你见一面等了六百天 //@蔡崇国之二://@阿花的伊萨卡岛: 本来想哭，听到夏霖在看守所比在外面还忙，分析一大堆案件，没忍住笑了[衰][衰][衰]嗯，是我们的夏霖。<br><br>RE: 等待7个半小时，终得以见了夏霖5分钟<br><img src="http://ww1.sinaimg.cn/large/5468e636jw1f4zb248shnj20ri313npd.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
