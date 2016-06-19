@@ -73,6 +73,12 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3988110767877180" target="freeweibo-mirror">黨媒《環球時報》社論⋯⋯</a>
+</h2>
+<p>黨媒《環球時報》社論⋯⋯<br><img src="http://ww1.sinaimg.cn/large/006vbdHggw1f50lb0gajkj30f90lxacc.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3988104665303367" target="freeweibo-mirror">SPAM //@去V的刘建锋:乌坎，因乌坎人，而必定载入史册…</a>
 </h2>
 <p>SPAM //@去V的刘建锋:乌坎，因乌坎人，而必定载入史册！<br><br>RE: 红旗飘飘，众志成城！我们没想过要伤害时，我们爱党爱国家！我们合法维权，你们没有权利阻止！望你们留我们一条生路！[鲜花][鲜花]@朱晓军1 @路透中文网ReutersChina @葛永喜律师 @去V的刘建锋<br><img src="http://ww3.sinaimg.cn/large/c4095c87gw1f50ht378dsj20k00f3taq.jpg"></p>
@@ -132,12 +138,6 @@
 <p>红旗飘飘，众志成城！我们没想过要伤害时，我们爱党爱国家！我们合法维权，你们没有权利阻止！望你们留我们一条生路！[鲜花][鲜花]@朱晓军1 @路透中文网ReutersChina @葛永喜律师 @去V的刘建锋<br><img src="http://ww3.sinaimg.cn/large/c4095c87gw1f50ht378dsj20k00f3taq.jpg"></p>
 <p>
 	<small> ============== 4小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3988076869384668" target="freeweibo-mirror">SPAM 这些人到底想干嘛！！？？？警察一车一车往村里送还各…</a>
-</h2>
-<p>SPAM 这些人到底想干嘛！！？？？警察一车一车往村里送还各配枪支！！！驱赶记者有用吗？纸是包不住火的！！不要欺负书记夫人我们会保护她的[拳头][拳头][拳头][拳头][拳头][拳头]@去V的刘建锋 @猫眼观乌坎 @葛永喜律师 @路透中文网ReutersChina @迟夙生律师 [怒][怒]<br><img src="http://ww2.sinaimg.cn/large/c4095c87gw1f50hbo5kuzj20k00fajt3.jpg"></p>
-<p>
-	<small> ============== 5小时前</small>
 </p>
 <table>
     <tr>
