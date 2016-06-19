@@ -23,7 +23,7 @@
 </h2>
 <p>//@潇湘莫大先生: //@Z张-T天-G戈://@戚念甄博士004: //@星雨辰辉://@leyecn乐也:转发微博</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3988139104059597" target="freeweibo-mirror">//@中文傳教士龐挺://@国民身份证: //@马操188:…</a>
 </h2>
@@ -71,7 +71,7 @@
 </h2>
 <p>//@鲲鹏展翅qd: //@粉雨:这是干什么？ //@去V的刘建锋://@孟庆泉律师:若是对付人民，岂不是法西斯？//@去V的刘建锋:大批警察哈<br><br>RE: 多到令人发指，照片来自现场！到底在怕什么？手无缚鸡之力的老妇人家们能对你干嘛！？[拳头][拳头][拳头]@去V的刘建锋 @葛永喜律师 @路透中文网ReutersChina @猫眼观乌坎<br><img src="http://ww1.sinaimg.cn/large/c4095c87gw1f50k5vftn1j20k00f60ud.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3988116626542757" target="freeweibo-mirror">//@张晓舟: //@區區500元先生: 转发微博</a>
 </h2>
