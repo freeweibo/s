@@ -49,6 +49,12 @@
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3988218426228148" target="freeweibo-mirror">//@碧海彩霞: //@砖家扯谈: //@草民齊文納://@…</a>
+</h2>
+<p>//@碧海彩霞: //@砖家扯谈: //@草民齊文納://@chen迁迁19: //@惊醒的家奴37://@鱼香4靓丝: //@畏缩仍甩堂暂: //@清华池一级搓泥工://@曹先生2012H:转发微博<br><br>RE: 乌坎村民选主任林祖念半夜被带走现场视频 http://t.cn/R59cjaK</p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3988217755732297" target="freeweibo-mirror">//@秋风不见倒春寒://@萧淆晓笑2://@行者老别://…</a>
 </h2>
 <p>//@秋风不见倒春寒://@萧淆晓笑2://@行者老别://@一品泥人://@何光伟: 转发微博<br><br>RE: SPAM 今天下午的乌坎。希望乌坎村民和地方政府都能保持理性和克制，在法制的轨道解决问题。乌坎村民是经过风雨洗礼的，一味的压制，解决不了问题。<br><img src="http://ww3.sinaimg.cn/large/72ddf2f2jw1f50ttkz42zj20j60asdil.jpg"></p>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3988206603477004" target="freeweibo-mirror">SPAM 脸上干净好多啦！真不错</a>
 </h2>
 <p>SPAM 脸上干净好多啦！真不错</p>
-<p>
-	<small> ============== 4小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3988204933778995" target="freeweibo-mirror">SPAM 记录历史。</a>
-</h2>
-<p>SPAM 记录历史。<br><br>RE: 乌坎序曲(上篇) http://t.cn/R59SYxb . 乌坎序曲(下篇) http://t.cn/R59SusI .</p>
 <p>
 	<small> ============== 4小时前</small>
 </p>
