@@ -71,7 +71,7 @@
 </h2>
 <p>//@中文傳教士龐挺://@国民身份证: //@马操188://@宏鑫88://@一品泥人://@谢流石://@LENOVO525: //@史海觅珠:转发微博<br><br>RE: 他们要求北京立即释放其他香港铜锣湾书店相关人士，并向香港市民交代此事。公民党、社民党、人民力量、香港众志等多个政党都参与 http://t.cn/R59xj8s<br><img src="http://ww3.sinaimg.cn/large/52038d40jw1f50it7l1spj20go0g6gog.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3988129045984001" target="freeweibo-mirror">SPAM //@轻雨2010://@一只博://@裟僧情怀:…</a>
 </h2>
