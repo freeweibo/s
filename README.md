@@ -77,7 +77,7 @@
 </h2>
 <p>黨媒《環球時報》社論⋯⋯<br><img src="http://ww1.sinaimg.cn/large/006vbdHggw1f50lb0gajkj30f90lxacc.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3988104665303367" target="freeweibo-mirror">SPAM //@去V的刘建锋:乌坎，因乌坎人，而必定载入史册…</a>
 </h2>
