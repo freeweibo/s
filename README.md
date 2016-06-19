@@ -59,7 +59,7 @@
 </h2>
 <p>//@友悦: 半夜三更执法好像不够光明磊落。 //@碧海彩霞: //@砖家扯谈: //@草民齊文納://@chen迁迁19: //@惊醒的家奴37://@鱼香4靓丝: //@畏缩仍甩堂暂: //@清华池一级搓泥工://@曹先生2012H:转发微博<br><br>RE: 乌坎村民选主任林祖念半夜被带走现场视频 http://t.cn/R59cjaK</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3988218426228148" target="freeweibo-mirror">//@碧海彩霞: //@砖家扯谈: //@草民齊文納://@…</a>
 </h2>
@@ -101,13 +101,13 @@
 </h2>
 <p>SPAM //@杨文斌律师: [吃惊][吃惊][吃惊]<br><br>RE: 我发表了头条文章:《崇拜毛的人应该归位兽类》 http://t.cn/R5KUkMT<br><img src="http://ww3.sinaimg.cn/large/0068unMYjw1f4zaxjylo6j30hn0m8goh.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3988210596448432" target="freeweibo-mirror">五年前，村官勾结奸商，卖了土地，贪了钱。乌坎人不下跪，不上访…</a>
 </h2>
 <p>五年前，村官勾结奸商，卖了土地，贪了钱。乌坎人不下跪，不上访，砸了村委会，自己选村长，用生命保卫土地，捍卫民权。今天，民选村长林祖恋被捕，村民和平请愿。乌坎再次被推到风尖浪口。乌坎的一小步，是中国民主运动的一大步。这是载入史册的大事，岂能旁观。http://t.cn/R59nvtk</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3988210084556687" target="freeweibo-mirror">转发键又被停止了。看来，这件事背景通天！</a>
 </h2>
