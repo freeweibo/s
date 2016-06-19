@@ -19,6 +19,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3988139104059597" target="freeweibo-mirror">//@中文傳教士龐挺://@国民身份证: //@马操188:…</a>
+</h2>
+<p>//@中文傳教士龐挺://@国民身份证: //@马操188://@宏鑫88://@一品泥人://@谢流石://@LENOVO525: //@史海觅珠:转发微博<br><br>RE: 他们要求北京立即释放其他香港铜锣湾书店相关人士，并向香港市民交代此事。公民党、社民党、人民力量、香港众志等多个政党都参与 http://t.cn/R59xj8s<br><img src="http://ww3.sinaimg.cn/large/52038d40jw1f50it7l1spj20go0g6gog.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3988129045984001" target="freeweibo-mirror">SPAM //@轻雨2010://@一只博://@裟僧情怀:…</a>
 </h2>
 <p>SPAM //@轻雨2010://@一只博://@裟僧情怀: 拿什么也没用//@---1---伟大的沟通者:如果称之为军管，有意见吗？毒菜爆发后期。//@星雨辰辉: wk//@日匿_名用戶-25:<br><br>RE: </p>
@@ -35,7 +41,7 @@
 </h2>
 <p>SPAM 港媒。<br><br>RE: 烏一一一一坎<br><img src="http://ww3.sinaimg.cn/large/006oMFFPgw1f50dys6z18j30qo0zk4bu.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3988119676641040" target="freeweibo-mirror">//@公民林静在维权4: //@愛murmur的小捌_36:…</a>
 </h2>
@@ -95,7 +101,7 @@
 </h2>
 <p>钓鱼岛吗？ //@stonebreaker2006://@去V的刘建锋:大批警察哈<br><br>RE: 多到令人发指，照片来自现场！到底在怕什么？手无缚鸡之力的老妇人家们能对你干嘛！？[拳头][拳头][拳头]@去V的刘建锋 @葛永喜律师 @路透中文网ReutersChina @猫眼观乌坎<br><img src="http://ww1.sinaimg.cn/large/c4095c87gw1f50k5vftn1j20k00f60ud.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3988104665303367" target="freeweibo-mirror">SPAM //@去V的刘建锋:乌坎，因乌坎人，而必定载入史册…</a>
 </h2>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3988099362929035" target="freeweibo-mirror"></a>
 </h2>
 <p></p>
-<p>
-	<small> ============== 4小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3988097895207517" target="freeweibo-mirror">//@欣然188: //@陈光武律师: //@杭州萧山王水金…</a>
-</h2>
-<p>//@欣然188: //@陈光武律师: //@杭州萧山王水金2: 【要追求自由平等、公平正义和民主法治！坚决抵制假的“依法治国”】//@追唐-如东李忠: //@王师北定FK:[吃惊] //@50年矛苔://@哪里来的底气:一个小村庄牵制中国三千兵力，你叫解放军怎敢对外宣战。//@-尹纤雪@时移世易-@天津老魏038@鸡犬之声广播电台<br><br>RE: 分享图片<br><img src="http://ww3.sinaimg.cn/large/006oMFFPgw1f50dz18x61j30qo0zknb6.jpg"></p>
 <p>
 	<small> ============== 4小时前</small>
 </p>
