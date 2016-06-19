@@ -77,13 +77,13 @@
 </h2>
 <p>//@友悦: [围观][围观][围观] //@中国曝光传媒:什么情况？[吃惊]有“真相”吗？[疑问][围观][怒][话筒][话筒]<br><br>RE: 转发键又被停止了。看来，这件事背景通天！<br><img src="http://ww1.sinaimg.cn/large/6a83dd8egw1f50wnk5qfyj20hs0qotob.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3988216283612766" target="freeweibo-mirror">SPAM 一个国家和一个村庄的持久战。[加油啊]//@律师老…</a>
 </h2>
 <p>SPAM 一个国家和一个村庄的持久战。[加油啊]//@律师老周401: //@北京厨子新号:牛逼的乌坎 //@响马:我靠 //@阿吉_Aydge:乌坎人民斗争精神不错 //@杜子建:怎么又是乌坎？<br><br>RE: 乌坎告急，请全网关注！[作揖][作揖][作揖] http://t.cn/R59nvtk .</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3988214391459341" target="freeweibo-mirror">SPAM //@看破红尘宝贝六: 对付屁民，需要这么大动作吗…</a>
 </h2>
