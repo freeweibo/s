@@ -37,6 +37,18 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3988160742803564" target="freeweibo-mirror">若干年后，该村就入选“中国名村”。//@王鹏律师: 乌坎，又…</a>
+</h2>
+<p>若干年后，该村就入选“中国名村”。//@王鹏律师: 乌坎，又一次被聚焦。//@律师王学明:大义凛然 //@李方平律师:又一次进入历史。<br><br>RE: 【几十警车夜捕老村长】乌坎老村长此前已断绝老夫老妻关系，有一种“曝尸野外不回头”的豪迈！<br><img src="http://ww1.sinaimg.cn/large/6a80bfcdgw1f4zscybu7sj20go0m80ty.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3988160625034915" target="freeweibo-mirror">//@我心飞扬886: 中國廣東省陸豐市烏坎村黨總支書記兼村…</a>
+</h2>
+<p>//@我心飞扬886: 中國廣東省陸豐市烏坎村黨總支書記兼村委會主任林祖戀，因為組織村民抗議政府賤賣土地，竟遭陸豐市公安以涉嫌收賄的罪名逮捕。烏坎村村民今天（19日）下午1時30分召開村民大會，超過1000人聚集在村口牌坊，高呼「還我土地！還我書記！打倒貪官！」的口號，要求當局釋放林祖戀。<br><br>RE: 什么是民心，这就是民心！有些人一辈子都得不到！最后普及一下，那个常委朱明国最后也贪污落马了！呵呵！  我分享了 @a獨y無2 的头条文章 http://t.cn/R596FXU</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3988147799096848" target="freeweibo-mirror">//@潇湘莫大先生: //@Z张-T天-G戈://@戚念甄博…</a>
 </h2>
 <p>//@潇湘莫大先生: //@Z张-T天-G戈://@戚念甄博士004: //@星雨辰辉://@leyecn乐也:转发微博</p>
@@ -83,7 +95,7 @@
 </h2>
 <p>//@在等天明://@陈光武律师://@杭州萧山王水金2: 【要追求自由平等、公平正义和民主法治！坚决抵制假的“依法治国”】//@追唐-如东李忠: //@王师北定FK:[吃惊] //@50年矛苔://@哪里来的底气:一个小村庄牵制中国三千兵力，你叫解放军怎么敢对外宣战。//@-尹纤雪@时移世易-@天津老魏038@鸡犬之声广播电台<br><br>RE: 分享图片<br><img src="http://ww3.sinaimg.cn/large/006oMFFPgw1f50dz18x61j30qo0zknb6.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3988122246602461" target="freeweibo-mirror">SPAM 港媒。</a>
 </h2>
@@ -124,18 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3988112659052925" target="freeweibo-mirror">//@黃毓民觀察: //@香港陳平:流氓＋流氓！</a>
 </h2>
 <p>//@黃毓民觀察: //@香港陳平:流氓＋流氓！<br><br>RE: 黨媒《環球時報》社論⋯⋯<br><img src="http://ww1.sinaimg.cn/large/006vbdHggw1f50lb0gajkj30f90lxacc.jpg"></p>
-<p>
-	<small> ============== 5小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3988112432045224" target="freeweibo-mirror">乌坎村民集会现场图//@大卡姐姐:转发微博</a>
-</h2>
-<p>乌坎村民集会现场图//@大卡姐姐:转发微博<br><br>RE: #还我书记#  为什么从一个警察可以吓死一千人？为什么一百个警察治不了一宗走失案！下面有图解，全违背良心做事白拿钱！自己丢掉自己的尊严丢掉国家的尊严！年迈的人都不怕万丈阳光，几千大男人还排排坐在护荫下，丢人！ 是什么让村民团结一致不惧权势暴晒仍然紧握旗帜高喊！<br><img src="http://ww1.sinaimg.cn/large/b250ff70gw1f50jwey9xxj20k00zkq8o.jpg"></p>
-<p>
-	<small> ============== 5小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3988112436818542" target="freeweibo-mirror">//@守候者说: //@麻子王四:哈哈 //@荒岛恶郎十五代…</a>
-</h2>
-<p>//@守候者说: //@麻子王四:哈哈 //@荒岛恶郎十五代:戴着更象个傻逼了。//@毒醉紅塵7:有錢任性[doge] //@看破红尘宝贝六:这次掏多少啊，，，[偷笑] //@回头兮岸:转发微博<br><br>RE: 这么大的项链，肯定值很多钱。 http://t.cn/RU1yaH1<br><img src="http://ww2.sinaimg.cn/large/006u7MRbgw1f50he916eqj30g10sgju1.jpg"></p>
 <p>
 	<small> ============== 5小时前</small>
 </p>
