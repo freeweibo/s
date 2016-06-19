@@ -77,19 +77,19 @@
 </h2>
 <p>//@张晓舟: //@區區500元先生: 转发微博</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3988116555851465" target="freeweibo-mirror">SPAM //@逆风蝴蝶: //@新启蒙熊伟:乌坎被封村？？…</a>
 </h2>
 <p>SPAM //@逆风蝴蝶: //@新启蒙熊伟:乌坎被封村？？？挺住，乌坎。//@吉林卢雪松: //@陈光武律师:<br><br>RE: 分享图片<br><img src="http://ww3.sinaimg.cn/large/006oMFFPgw1f50dz18x61j30qo0zknb6.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3988116487911438" target="freeweibo-mirror">//@區區500元先生: 转发微博</a>
 </h2>
 <p>//@區區500元先生: 转发微博</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3988112659052925" target="freeweibo-mirror">//@黃毓民觀察: //@香港陳平:流氓＋流氓！</a>
 </h2>
@@ -137,7 +137,7 @@
 </h2>
 <p>//@左春和://@去V的刘建锋://@狼儿小时候:有理的话还要这样做，还真当人民是“不明真相的群众”吗？哪来的智商优越感？[弱]//@去V的刘建锋:乌坎，警察入村驱赶记者。</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p>
 <table>
     <tr>
