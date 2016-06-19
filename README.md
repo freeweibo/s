@@ -137,7 +137,7 @@
 </h2>
 <p>历史像一个大箱子，现在，那些压在箱底的东西，在不断地被翻出来见阳光。好啊！//@邓相超: //@一品泥人: //@整合之道刘鸿雁: [吃惊][吃惊][吃惊]<br><br>RE: 我发表了头条文章:《崇拜毛的人应该归位兽类》 http://t.cn/R5KUkMT<br><img src="http://ww3.sinaimg.cn/large/0068unMYjw1f4zaxjylo6j30hn0m8goh.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p>
 <table>
     <tr>
