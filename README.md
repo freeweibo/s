@@ -35,7 +35,7 @@
 </h2>
 <p>呼籲大家一起關注烏坎的這位老者！希望他平安健康！<br><img src="http://ww3.sinaimg.cn/large/006vbdHggw1f51xcd89dvj30hi0n3tak.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3988519200310207" target="freeweibo-mirror">SPAM 呵呵～</a>
 </h2>
@@ -73,6 +73,12 @@
 <p>
 	<small> ============== 4小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3988503471488592" target="freeweibo-mirror">SPAM 又是海外敌对势力的阴谋！[阴险][阴险][阴险]</a>
+</h2>
+<p>SPAM 又是海外敌对势力的阴谋！[阴险][阴险][阴险]<br><br>RE: 昨天环球时报英文版的记者打电话采访，被我拒绝了，我告诉她：我以拒绝采访的行动，来表达我对环球时报的蔑视。这份报常以令人惊叹的逻辑、混乱的语言来评论每一件事，表达似是而非的观点，有时还具有相当的迷惑性。林祖恋组织人去信访，有什么违法之处吗？<br><img src="http://ww2.sinaimg.cn/large/cfc95fc4gw1f51qo633jjj22c0340b2b.jpg"></p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3988502531617516" target="freeweibo-mirror">SPAM [话筒][话筒][话筒]关注！！！广东陆丰乌-坎-…</a>
 </h2>
 <p>SPAM [话筒][话筒][话筒]关注！！！广东陆丰乌-坎-村！//@学习老王: [挖鼻] //@周氏琛平:[怒]//@于菲088:[怒]</p>
@@ -89,7 +95,7 @@
 </h2>
 <p>SPAM //@Docter-李: //@阳珠子: //@青独狼_75910: [给力][给力][给力][话筒]//@奇冤无处诉: //@陈光武律师://@亦品仙: //@婉莱依: //@卫义战士: 风在吼，人在怒[怒]//@黄易快乐天使: 枪在手，跟我走，杀四郎，抢自由！[给力][圍觀]<br><br>RE: 关注他们的现在，就是关注我们将来，为了争取我们想要的未来，他们走在了我们的前面。<br><img src="http://ww2.sinaimg.cn/large/006895ytjw1f519w9h7xrj30q40qogp4.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3988468272727000" target="freeweibo-mirror">//@闲着无聊036: //@太君别开枪_是我: //@永远…</a>
 </h2>
@@ -132,12 +138,6 @@
 <p>SPAM 给大家分享一个花王的广告……脑洞开的有些大……[doge][doge][doge] http://t.cn/R5Coee6 .</p>
 <p>
 	<small> ============== 8小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3988437071693953" target="freeweibo-mirror">乖，别看了，那是包哥哥给朝鲜猫、非洲猫、美国猫、英国猫、缅甸…</a>
-</h2>
-<p>乖，别看了，那是包哥哥给朝鲜猫、非洲猫、美国猫、英国猫、缅甸猫、印尼猫、波兰猫、捷克猫、俄罗斯猫、叙利亚猫、巴基斯坦猫、津巴布韦猫、塞尔维亚猫，乌兹别克斯坦猫们准备的。咱还是回家找地沟鼠吃吧……[泪][泪][泪]<br><img src="http://ww4.sinaimg.cn/large/006djKoKgw1f51mn9tysnj30fu0eigmg.jpg"></p>
-<p>
-	<small> ============== 9小时前</small>
 </p>
 <table>
     <tr>
