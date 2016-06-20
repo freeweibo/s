@@ -65,7 +65,7 @@
 </h2>
 <p>//@爱的放任: //@被殴打的截瘫病人李春霞: //@鞠帮A宇://@法律人童朝平://@陈辉鹏苏州: 转发微博<br><br>RE: 关注乌坎！声援乌坎！乌坎的今天就是你我之明天！<br><img src="http://ww3.sinaimg.cn/large/006uiImxgw1f51hmxdig6j30iu0hs0uu.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3988446856877878" target="freeweibo-mirror">SPAM 给大家分享一个花王的广告……脑洞开的有些大……[d…</a>
 </h2>
@@ -83,7 +83,7 @@
 </h2>
 <p>//@陈辉鹏苏州: 转发微博<br><br>RE: 关注乌坎！声援乌坎！乌坎的今天就是你我之明天！<br><img src="http://ww3.sinaimg.cn/large/006uiImxgw1f51hmxdig6j30iu0hs0uu.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3988422978768863" target="freeweibo-mirror">民选村长林祖恋被捕，村民和平请愿。乌坎再次被推到风尖浪口。乌…</a>
 </h2>
