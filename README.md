@@ -41,7 +41,7 @@
 </h2>
 <p>SPAM 呵呵～</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3988516913916275" target="freeweibo-mirror">//@联邦参议员一青岛王洪学:[拍照]又要过紧张的一年了[酷…</a>
 </h2>
@@ -71,7 +71,7 @@
 </h2>
 <p>梁书记！</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3988503471488592" target="freeweibo-mirror">SPAM 又是海外敌对势力的阴谋！[阴险][阴险][阴险]</a>
 </h2>
@@ -96,6 +96,12 @@
 <p>SPAM //@Docter-李: //@阳珠子: //@青独狼_75910: [给力][给力][给力][话筒]//@奇冤无处诉: //@陈光武律师://@亦品仙: //@婉莱依: //@卫义战士: 风在吼，人在怒[怒]//@黄易快乐天使: 枪在手，跟我走，杀四郎，抢自由！[给力][圍觀]<br><br>RE: 关注他们的现在，就是关注我们将来，为了争取我们想要的未来，他们走在了我们的前面。<br><img src="http://ww2.sinaimg.cn/large/006895ytjw1f519w9h7xrj30q40qogp4.jpg"></p>
 <p>
 	<small> ============== 5小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3988470940447105" target="freeweibo-mirror">昨天环球时报英文版的记者打电话采访，被我拒绝了，我告诉她：我…</a>
+</h2>
+<p>昨天环球时报英文版的记者打电话采访，被我拒绝了，我告诉她：我以拒绝采访的行动，来表达我对环球时报的蔑视。这份报常以令人惊叹的逻辑、混乱的语言来评论每一件事，表达似是而非的观点，有时还具有相当的迷惑性。林祖恋组织人去信访，有什么违法之处吗？<br><img src="http://ww2.sinaimg.cn/large/cfc95fc4gw1f51qo633jjj22c0340b2b.jpg"></p>
+<p>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3988468272727000" target="freeweibo-mirror">//@闲着无聊036: //@太君别开枪_是我: //@永远…</a>
 </h2>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3988448823611025" target="freeweibo-mirror">//@爱的放任: //@被殴打的截瘫病人李春霞: //@鞠帮…</a>
 </h2>
 <p>//@爱的放任: //@被殴打的截瘫病人李春霞: //@鞠帮A宇://@法律人童朝平://@陈辉鹏苏州: 转发微博<br><br>RE: 关注乌坎！声援乌坎！乌坎的今天就是你我之明天！<br><img src="http://ww3.sinaimg.cn/large/006uiImxgw1f51hmxdig6j30iu0hs0uu.jpg"></p>
-<p>
-	<small> ============== 8小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3988446856877878" target="freeweibo-mirror">SPAM 给大家分享一个花王的广告……脑洞开的有些大……[d…</a>
-</h2>
-<p>SPAM 给大家分享一个花王的广告……脑洞开的有些大……[doge][doge][doge] http://t.cn/R5Coee6 .</p>
 <p>
 	<small> ============== 8小时前</small>
 </p>
