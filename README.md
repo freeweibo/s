@@ -19,6 +19,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3988639924645686" target="freeweibo-mirror">SPAM 反正我很同意这观点，这个夏天我要痩[泪流满面]</a>
+</h2>
+<p>SPAM 反正我很同意这观点，这个夏天我要痩[泪流满面]</p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3988614758892917" target="freeweibo-mirror">SPAM 那些你不知道 的秘密[可怜]</a>
 </h2>
 <p>SPAM 那些你不知道 的秘密[可怜]</p>
@@ -59,19 +65,19 @@
 </h2>
 <p>[泪][伤心] //@只配叫猪_:转发微博<br><br>RE: 新书<br><img src="http://ww2.sinaimg.cn/large/005LF6Ssgw1f521y7riioj30c81k8wny.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3988574426456016" target="freeweibo-mirror">//@公民林静在维权4: //@天下不公131400:转发微…</a>
 </h2>
 <p>//@公民林静在维权4: //@天下不公131400:转发微博<br><br>RE: 新书<br><img src="http://ww2.sinaimg.cn/large/005LF6Ssgw1f521y7riioj30c81k8wny.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3988574104103133" target="freeweibo-mirror">所以说毛左是轮子。//@张鹤慈:回复@草色溪流:【文革十年被…</a>
 </h2>
 <p>所以说毛左是轮子。//@张鹤慈:回复@草色溪流:【文革十年被邓矮子一伙说成是动乱，西藏新疆怎么没独立呢？】毛泽东自己预言。他死后，因为文革问题，搞不好就得‘血雨腥风。中国如不是迅速的抓捕了四人帮，真的可能陷入血雨腥风，西藏，新疆和台湾就真的可能都独立了</p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3988574045089874" target="freeweibo-mirror">回复@大彭刚子:你又调皮了，开始代表老百姓了，叫你书记还是首…</a>
 </h2>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3988551651796046" target="freeweibo-mirror">国宝级CP同款瓷器</a>
 </h2>
 <p>国宝级CP同款瓷器<br><img src="http://ww4.sinaimg.cn/large/87490a4agw1f51zw79nuxj20pk0wnafy.jpg"></p>
-<p>
-	<small> ============== 10小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3988547999005620" target="freeweibo-mirror">看来这个网名为@飞行队长 的新华社记者是个黑军人的老手了，这…</a>
-</h2>
-<p>看来这个网名为@飞行队长 的新华社记者是个黑军人的老手了，这样的畜生怎么能在新华社当记者呢？ //@卍心潮澎湃卐: //@carlvinson金牛: //@赤县李卫民:这一下把他给暴露出来了，再解释也没什么用，直接滚蛋吧! //@义勇军民兵:转发微博<br><br>RE: 堂堂国社记者，呵呵呵呵呵呵呵呵<br><img src="http://ww1.sinaimg.cn/large/8031f80fgw1f51uls6vpbj20hs0vkq5y.jpg"></p>
 <p>
 	<small> ============== 10小时前</small>
 </p>
