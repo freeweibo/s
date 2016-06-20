@@ -41,7 +41,7 @@
 </h2>
 <p>//@联邦参议员一青岛王洪学:[拍照]又要过紧张的一年了[酷]//@微言_微语22:转发微博<br><br>RE: 自己接力，再发！[话筒][围观]<br><img src="http://ww2.sinaimg.cn/large/006s8rwPgw1f51n2ovfb3j30c81k8qce.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3988505720481340" target="freeweibo-mirror">这哥们儿，硬得不正常……</a>
 </h2>
@@ -77,7 +77,7 @@
 </h2>
 <p>SPAM 海陆丰那事？//@司马3忌:山前留名//@慕晓微说: 看看就得了，一会儿就得删。</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3988498941447279" target="freeweibo-mirror">SPAM //@Docter-李: //@阳珠子: //@青…</a>
 </h2>
