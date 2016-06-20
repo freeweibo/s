@@ -19,6 +19,18 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3988539295380453" target="freeweibo-mirror">SPAM [围观]</a>
+</h2>
+<p>SPAM [围观]</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3988539224003944" target="freeweibo-mirror">SPAM //@黃毓民品讀:勇敢的老者。</a>
+</h2>
+<p>SPAM //@黃毓民品讀:勇敢的老者。<br><br>RE: 呼籲大家一起關注烏坎的這位老者！希望他平安健康！<br><img src="http://ww3.sinaimg.cn/large/006vbdHggw1f51xcd89dvj30hi0n3tak.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3988519200310207" target="freeweibo-mirror">SPAM 呵呵～</a>
 </h2>
 <p>SPAM 呵呵～</p>
@@ -71,7 +83,7 @@
 </h2>
 <p>SPAM //@Docter-李: //@阳珠子: //@青独狼_75910: [给力][给力][给力][话筒]//@奇冤无处诉: //@陈光武律师://@亦品仙: //@婉莱依: //@卫义战士: 风在吼，人在怒[怒]//@黄易快乐天使: 枪在手，跟我走，杀四郎，抢自由！[给力][圍觀]<br><br>RE: 关注他们的现在，就是关注我们将来，为了争取我们想要的未来，他们走在了我们的前面。<br><img src="http://ww2.sinaimg.cn/large/006895ytjw1f519w9h7xrj30q40qogp4.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3988468272727000" target="freeweibo-mirror">//@闲着无聊036: //@太君别开枪_是我: //@永远…</a>
 </h2>
@@ -126,18 +138,6 @@
 <p>//@陈辉鹏苏州: 转发微博<br><br>RE: 关注乌坎！声援乌坎！乌坎的今天就是你我之明天！<br><img src="http://ww3.sinaimg.cn/large/006uiImxgw1f51hmxdig6j30iu0hs0uu.jpg"></p>
 <p>
 	<small> ============== 8小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3988422978768863" target="freeweibo-mirror">民选村长林祖恋被捕，村民和平请愿。乌坎再次被推到风尖浪口。乌…</a>
-</h2>
-<p>民选村长林祖恋被捕，村民和平请愿。乌坎再次被推到风尖浪口。乌坎的一小步，是中国民主运动的一大步。这是载入史册的大事[話筒]关注乌坎<br><img src="http://ww2.sinaimg.cn/large/006fooE6gw1f51l5uxm1lj308m4zu1ce.jpg"></p>
-<p>
-	<small> ============== 9小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3988385410306723" target="freeweibo-mirror">SPAM 失眠好了[太开心]，肠胃好了[太开心]，便秘也好了…</a>
-</h2>
-<p>SPAM 失眠好了[太开心]，肠胃好了[太开心]，便秘也好了[太开心]，喝了野生沙棘原浆的朋友都这么说，更多详情+V.芯：chiguo11，每天喝2杯，帮你彻底摆脱困扰[给力]（温馨提示：只有威芯号，没有相关工众号推送，谨防受骗！！）<br><img src="http://ww1.sinaimg.cn/large/93b64d65jw1f51gub56v6j20b30j4tah.jpg"></p>
-<p>
-	<small> ============== 11小时前</small>
 </p>
 <table>
     <tr>
