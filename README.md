@@ -23,13 +23,13 @@
 </h2>
 <p>SPAM [围观]</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3988539224003944" target="freeweibo-mirror">SPAM //@黃毓民品讀:勇敢的老者。</a>
 </h2>
 <p>SPAM //@黃毓民品讀:勇敢的老者。<br><br>RE: 呼籲大家一起關注烏坎的這位老者！希望他平安健康！<br><img src="http://ww3.sinaimg.cn/large/006vbdHggw1f51xcd89dvj30hi0n3tak.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3988529040447045" target="freeweibo-mirror">呼籲大家一起關注烏坎的這位老者！希望他平安健康！</a>
 </h2>
@@ -125,7 +125,7 @@
 </h2>
 <p>//@爱的放任: //@被殴打的截瘫病人李春霞: //@鞠帮A宇://@法律人童朝平://@陈辉鹏苏州: 转发微博<br><br>RE: 关注乌坎！声援乌坎！乌坎的今天就是你我之明天！<br><img src="http://ww3.sinaimg.cn/large/006uiImxgw1f51hmxdig6j30iu0hs0uu.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3988446856877878" target="freeweibo-mirror">SPAM 给大家分享一个花王的广告……脑洞开的有些大……[d…</a>
 </h2>
