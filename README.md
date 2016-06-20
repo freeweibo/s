@@ -125,7 +125,7 @@
 </h2>
 <p>唉！这样的镇干部素质？ http://t.cn/R5CdBhS</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3988529040447045" target="freeweibo-mirror">呼籲大家一起關注烏坎的這位老者！希望他平安健康！</a>
 </h2>
@@ -133,11 +133,11 @@
 <p>
 	<small> ============== 6小时前</small>
 </p><h2>
-	<a href="https://freeweibo.com/weibo/3988519200310207" target="freeweibo-mirror">SPAM 呵呵～</a>
+	<a href="https://freeweibo.com/weibo/3988528424024832" target="freeweibo-mirror">我诅咒汉奸卖国贼不得好死，于是吴建民车祸死了。接下来会是谁呢…</a>
 </h2>
-<p>SPAM 呵呵～</p>
+<p>我诅咒汉奸卖国贼不得好死，于是吴建民车祸死了。接下来会是谁呢？<br><img src="http://ww1.sinaimg.cn/large/0065lrTlgw1f51x2m3m3lj30fu0btt9h.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 6小时前</small>
 </p>
 <table>
     <tr>
