@@ -119,7 +119,7 @@
 </h2>
 <p>SPAM 各种风格 [心]</p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3988232209058708" target="freeweibo-mirror">SPAM 红旗飘飘的是什么地方？</a>
 </h2>
