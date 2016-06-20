@@ -91,6 +91,12 @@
 <p>
 	<small> ============== 5小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3988511717499106" target="freeweibo-mirror">【环球时报用了恐怕两字有点意思】广东乌坎村近日又成了舆论焦点…</a>
+</h2>
+<p>【环球时报用了恐怕两字有点意思】广东乌坎村近日又成了舆论焦点，外媒纷纷报道，该村党支部书记、村委会主任林祖恋日前因涉嫌利用职权受贿被警方带走。该村数千村民19日召开村民大会，并举行游行，要求当局释放林祖恋。http://t.cn/R5Cyctm<br><img src="http://ww2.sinaimg.cn/large/6b804b51gw1f51vcqxhcjj20qo1bgwle.jpg"></p>
+<p>
+	<small> ============== 6小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3988505720481340" target="freeweibo-mirror">这哥们儿，硬得不正常……</a>
 </h2>
 <p>这哥们儿，硬得不正常……</p>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3988502531617516" target="freeweibo-mirror">SPAM [话筒][话筒][话筒]关注！！！广东陆丰乌-坎-…</a>
 </h2>
 <p>SPAM [话筒][话筒][话筒]关注！！！广东陆丰乌-坎-村！//@学习老王: [挖鼻] //@周氏琛平:[怒]//@于菲088:[怒]</p>
-<p>
-	<small> ============== 6小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3988502200960734" target="freeweibo-mirror">SPAM 海陆丰那事？//@司马3忌:山前留名//@慕晓微说…</a>
-</h2>
-<p>SPAM 海陆丰那事？//@司马3忌:山前留名//@慕晓微说: 看看就得了，一会儿就得删。</p>
 <p>
 	<small> ============== 6小时前</small>
 </p>
