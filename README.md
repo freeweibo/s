@@ -19,6 +19,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3988578726479188" target="freeweibo-mirror">SPAM 支持现在的大学生创业农家特产[good]手工熬制的…</a>
+</h2>
+<p>SPAM 支持现在的大学生创业农家特产[good]手工熬制的红糖转发给身边的所有妹子！[心]</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3988574959623272" target="freeweibo-mirror">[泪][伤心] //@只配叫猪_:转发微博</a>
 </h2>
 <p>[泪][伤心] //@只配叫猪_:转发微博<br><br>RE: 新书<br><img src="http://ww2.sinaimg.cn/large/005LF6Ssgw1f521y7riioj30c81k8wny.jpg"></p>
@@ -28,6 +34,12 @@
 	<a href="https://freeweibo.com/weibo/3988574426456016" target="freeweibo-mirror">//@公民林静在维权4: //@天下不公131400:转发微…</a>
 </h2>
 <p>//@公民林静在维权4: //@天下不公131400:转发微博<br><br>RE: 新书<br><img src="http://ww2.sinaimg.cn/large/005LF6Ssgw1f521y7riioj30c81k8wny.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3988574045089874" target="freeweibo-mirror">回复@大彭刚子:你又调皮了，开始代表老百姓了，叫你书记还是首…</a>
+</h2>
+<p>回复@大彭刚子:你又调皮了，开始代表老百姓了，叫你书记还是首长合适？//@大彭刚子:回复@成都企业法律顾问:你要为你言论负责，老百姓都看在眼里，监督着，迟早要算总账<br><br>RE: 【这个社会正在一天天被撕裂】任何重大危机发生之前，至少有26个明显征兆，这是危机学的一个定律。雷洋死亡算一个吧，欧伯被嫖算吧，深圳警察查身份证滥用权力算吧，甚至今天报的大学生因火车票丢失，在火车站出站时被要求补票，这类小事都是征兆，这些事件把公权置于人心的对立面，社会一天天被撕裂</p>
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
@@ -47,7 +59,7 @@
 </h2>
 <p>//@守候者说://@上海老顽童吴德余:回复@黑暗的朝代:这文章内藏信息量极大，要细嚼！//@黑暗的朝代:环球这篇文章好像暗示林开会要集体上访了，所以就贪污受贿了。若林的罪名成立，当局拿下林应该堂堂正正光明正大，应该得到当地百姓拥护。而现实是半夜三更镇长拜访，然后背心短裤被拽走，弄得像绑票…</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3988547999005620" target="freeweibo-mirror">看来这个网名为@飞行队长 的新华社记者是个黑军人的老手了，这…</a>
 </h2>
@@ -77,7 +89,7 @@
 </h2>
 <p>博主涉嫌造谣，央视经常播放福原爱的可爱以及席琳迪翁的美妙身材。<br><br>RE: CCTV不厌其烦地攻击安倍的政策实实在在是在愚民，在转移国内矛盾的视线！你感觉到没有，日本和美国是世界上最文明的国家之一。我们的电视中，每天播出的就是这两个国家的灾难，枪击，游行示威，从来没有播放过这两个国家的文明，进步，环保，技术先进等任何的正面消息，这是为什么？因为执政者最害怕的...全文： http://m.weibo.cn/1242382844/3988518445853301</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3988535826461340" target="freeweibo-mirror">唉！这样的镇干部素质？ http://t.cn/R5CdBh…</a>
 </h2>
@@ -124,18 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3988505233932954" target="freeweibo-mirror">堂堂国社记者，呵呵呵呵呵呵呵呵</a>
 </h2>
 <p>堂堂国社记者，呵呵呵呵呵呵呵呵<br><img src="http://ww1.sinaimg.cn/large/8031f80fgw1f51uls6vpbj20hs0vkq5y.jpg"></p>
-<p>
-	<small> ============== 7小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3988504952545244" target="freeweibo-mirror">自己接力，再发！[话筒][围观]</a>
-</h2>
-<p>自己接力，再发！[话筒][围观]<br><img src="http://ww2.sinaimg.cn/large/006s8rwPgw1f51n2ovfb3j30c81k8qce.jpg"></p>
-<p>
-	<small> ============== 7小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3988504902489192" target="freeweibo-mirror">小事一桩</a>
-</h2>
-<p>小事一桩</p>
 <p>
 	<small> ============== 7小时前</small>
 </p>
