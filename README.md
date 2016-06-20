@@ -101,7 +101,7 @@
 </h2>
 <p>//@联邦参议员一青岛王洪学:[拍照]又要过紧张的一年了[酷]//@微言_微语22:转发微博<br><br>RE: 自己接力，再发！[话筒][围观]<br><img src="http://ww2.sinaimg.cn/large/006s8rwPgw1f51n2ovfb3j30c81k8qce.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3988511717499106" target="freeweibo-mirror">【环球时报用了恐怕两字有点意思】广东乌坎村近日又成了舆论焦点…</a>
 </h2>
