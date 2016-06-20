@@ -19,6 +19,24 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3988516913916275" target="freeweibo-mirror">//@联邦参议员一青岛王洪学:[拍照]又要过紧张的一年了[酷…</a>
+</h2>
+<p>//@联邦参议员一青岛王洪学:[拍照]又要过紧张的一年了[酷]//@微言_微语22:转发微博<br><br>RE: 自己接力，再发！[话筒][围观]<br><img src="http://ww2.sinaimg.cn/large/006s8rwPgw1f51n2ovfb3j30c81k8qce.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3988505720481340" target="freeweibo-mirror">这哥们儿，硬得不正常……</a>
+</h2>
+<p>这哥们儿，硬得不正常……</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3988504830427223" target="freeweibo-mirror">梁书记！</a>
+</h2>
+<p>梁书记！</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3988502531617516" target="freeweibo-mirror">SPAM [话筒][话筒][话筒]关注！！！广东陆丰乌-坎-…</a>
 </h2>
 <p>SPAM [话筒][话筒][话筒]关注！！！广东陆丰乌-坎-村！//@学习老王: [挖鼻] //@周氏琛平:[怒]//@于菲088:[怒]</p>
@@ -35,7 +53,7 @@
 </h2>
 <p>SPAM //@Docter-李: //@阳珠子: //@青独狼_75910: [给力][给力][给力][话筒]//@奇冤无处诉: //@陈光武律师://@亦品仙: //@婉莱依: //@卫义战士: 风在吼，人在怒[怒]//@黄易快乐天使: 枪在手，跟我走，杀四郎，抢自由！[给力][圍觀]<br><br>RE: 关注他们的现在，就是关注我们将来，为了争取我们想要的未来，他们走在了我们的前面。<br><img src="http://ww2.sinaimg.cn/large/006895ytjw1f519w9h7xrj30q40qogp4.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3988468272727000" target="freeweibo-mirror">//@闲着无聊036: //@太君别开枪_是我: //@永远…</a>
 </h2>
@@ -46,6 +64,12 @@
 	<a href="https://freeweibo.com/weibo/3988462115758456" target="freeweibo-mirror">SPAM 吓死人了！//@胡南越:[吐]</a>
 </h2>
 <p>SPAM 吓死人了！//@胡南越:[吐]<br><br>RE: 现实中的中南海警卫http://t.cn/R5CA1ee .纳粹德国第一装甲师军歌——“SS闪电部队在前进</p>
+<p>
+	<small> ============== 5小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3988455652530773" target="freeweibo-mirror">行 政 长 官 梁 振 英决定以书面形式向中 央政 府反映港…</a>
+</h2>
+<p>行 政 长 官 梁 振 英决定以书面形式向中 央政 府反映港人对铜 锣 湾 书店事件的关注和顾虑。#港闻推荐##香港身边事#  http://t.cn/R5CldVB .</p>
 <p>
 	<small> ============== 5小时前</small>
 </p><h2>
@@ -114,30 +138,6 @@
 <p>SPAM 塞国可远不是穷国。如此送钱，真得制止！<br><br>RE: 中塞人民友誼成本還很貴哦！但和當年勒緊褲腰帶援助巴爾幹半島的「山鷹之國」的付出相比，其實也還可以。咱家自己鋼鐵產能過剩問題，也許可以從這次收購獲得另一種解決問題的路徑。歷史上絲綢之路似乎還沒走到巴爾幹半島，阿爾卑斯山脈，希望這一次外交佈局，真的可以為一帶一路嘗試舖一條康莊大道！<br><img src="http://ww3.sinaimg.cn/large/5937c055jw1f51epl0m7gj20g10jmtaa.jpg"></p>
 <p>
 	<small> ============== 11小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3988370268375454" target="freeweibo-mirror">//@湘楚陈黎:明明是北朝鲜 //@私家野史:视频出现境外反…</a>
-</h2>
-<p>//@湘楚陈黎:明明是北朝鲜 //@私家野史:视频出现境外反动记者在鼓噪反政府？</p>
-<p>
-	<small> ============== 11小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3988369799335960" target="freeweibo-mirror">我倒是比较关心当初美国人为啥要在大喊制造业回归的2012年购…</a>
-</h2>
-<p>我倒是比较关心当初美国人为啥要在大喊制造业回归的2012年购买这个钢厂？花了多少钱？大家都要买这个钢厂，厂子背后又是谁？<br><br>RE: 中塞人民友誼成本還很貴哦！但和當年勒緊褲腰帶援助巴爾幹半島的「山鷹之國」的付出相比，其實也還可以。咱家自己鋼鐵產能過剩問題，也許可以從這次收購獲得另一種解決問題的路徑。歷史上絲綢之路似乎還沒走到巴爾幹半島，阿爾卑斯山脈，希望這一次外交佈局，真的可以為一帶一路嘗試舖一條康莊大道！<br><img src="http://ww3.sinaimg.cn/large/5937c055jw1f51epl0m7gj20g10jmtaa.jpg"></p>
-<p>
-	<small> ============== 11小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3988368179610227" target="freeweibo-mirror">中塞人民友誼成本還很貴哦！但和當年勒緊褲腰帶援助巴爾幹半島的…</a>
-</h2>
-<p>中塞人民友誼成本還很貴哦！但和當年勒緊褲腰帶援助巴爾幹半島的「山鷹之國」的付出相比，其實也還可以。咱家自己鋼鐵產能過剩問題，也許可以從這次收購獲得另一種解決問題的路徑。歷史上絲綢之路似乎還沒走到巴爾幹半島，阿爾卑斯山脈，希望這一次外交佈局，真的可以為一帶一路嘗試舖一條康莊大道！<br><img src="http://ww3.sinaimg.cn/large/5937c055jw1f51epl0m7gj20g10jmtaa.jpg"></p>
-<p>
-	<small> ============== 11小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3988361414558586" target="freeweibo-mirror">@中国政府网 //@吴顾问1970: //@老张评论:有人要…</a>
-</h2>
-<p>@中国政府网 //@吴顾问1970: //@老张评论:有人要名，有人要利//@吴顾问1970: //@隐于苔迹:<br><br>RE: 习大访问塞尔维亚，重金买下当地钢铁公司，帮助塞国解决了5000多人吃饭问题，这是战略、手段还是派糖？中国用金钱维持意识形态外交久唉，但世界变得越来越现实和刁钻，以至王毅外长失态与加国小报记者单挑，国际舆论哗然，中国需要支撑百年的价值体系，现实是五年的都没有，外交窘困和焦虑与日俱增。<br><img src="http://ww1.sinaimg.cn/large/56772fe1gw1f51c6rmjhyj20p00hzgor.jpg"></p>
-<p>
-	<small> ============== 12小时前</small>
 </p>
 <table>
     <tr>
