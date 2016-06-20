@@ -19,6 +19,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3988552264188692" target="freeweibo-mirror">//@守候者说://@上海老顽童吴德余:回复@黑暗的朝代:这…</a>
+</h2>
+<p>//@守候者说://@上海老顽童吴德余:回复@黑暗的朝代:这文章内藏信息量极大，要细嚼！//@黑暗的朝代:环球这篇文章好像暗示林开会要集体上访了，所以就贪污受贿了。若林的罪名成立，当局拿下林应该堂堂正正光明正大，应该得到当地百姓拥护。而现实是半夜三更镇长拜访，然后背心短裤被拽走，弄得像绑票…</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3988547999005620" target="freeweibo-mirror">看来这个网名为@飞行队长 的新华社记者是个黑军人的老手了，这…</a>
 </h2>
 <p>看来这个网名为@飞行队长 的新华社记者是个黑军人的老手了，这样的畜生怎么能在新华社当记者呢？ //@卍心潮澎湃卐: //@carlvinson金牛: //@赤县李卫民:这一下把他给暴露出来了，再解释也没什么用，直接滚蛋吧! //@义勇军民兵:转发微博<br><br>RE: 堂堂国社记者，呵呵呵呵呵呵呵呵<br><img src="http://ww1.sinaimg.cn/large/8031f80fgw1f51uls6vpbj20hs0vkq5y.jpg"></p>
@@ -37,6 +43,12 @@
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3988536581363828" target="freeweibo-mirror">博主涉嫌造谣，央视经常播放福原爱的可爱以及席琳迪翁的美妙身材…</a>
+</h2>
+<p>博主涉嫌造谣，央视经常播放福原爱的可爱以及席琳迪翁的美妙身材。<br><br>RE: CCTV不厌其烦地攻击安倍的政策实实在在是在愚民，在转移国内矛盾的视线！你感觉到没有，日本和美国是世界上最文明的国家之一。我们的电视中，每天播出的就是这两个国家的灾难，枪击，游行示威，从来没有播放过这两个国家的文明，进步，环保，技术先进等任何的正面消息，这是为什么？因为执政者最害怕的...全文： http://m.weibo.cn/1242382844/3988518445853301</p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3988535826461340" target="freeweibo-mirror">唉！这样的镇干部素质？ http://t.cn/R5CdBh…</a>
 </h2>
 <p>唉！这样的镇干部素质？ http://t.cn/R5CdBhS</p>
@@ -47,7 +59,7 @@
 </h2>
 <p>呼籲大家一起關注烏坎的這位老者！希望他平安健康！<br><img src="http://ww3.sinaimg.cn/large/006vbdHggw1f51xcd89dvj30hi0n3tak.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3988519200310207" target="freeweibo-mirror">SPAM 呵呵～</a>
 </h2>
@@ -113,7 +125,7 @@
 </h2>
 <p>SPAM //@Docter-李: //@阳珠子: //@青独狼_75910: [给力][给力][给力][话筒]//@奇冤无处诉: //@陈光武律师://@亦品仙: //@婉莱依: //@卫义战士: 风在吼，人在怒[怒]//@黄易快乐天使: 枪在手，跟我走，杀四郎，抢自由！[给力][圍觀]<br><br>RE: 关注他们的现在，就是关注我们将来，为了争取我们想要的未来，他们走在了我们的前面。<br><img src="http://ww2.sinaimg.cn/large/006895ytjw1f519w9h7xrj30q40qogp4.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3988470940447105" target="freeweibo-mirror">昨天环球时报英文版的记者打电话采访，被我拒绝了，我告诉她：我…</a>
 </h2>
@@ -124,18 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3988468272727000" target="freeweibo-mirror">//@闲着无聊036: //@太君别开枪_是我: //@永远…</a>
 </h2>
 <p>//@闲着无聊036: //@太君别开枪_是我: //@永远是多远老师://@鞠帮A宇://@gg弋平://@斯韦爵://@俗家人释永乖://@1937呐喊2://@彼岸花dll:转发微博<br><br>RE: 【每天一问】第3天:请问天津警方和董亚楠:考拉赵威还活着吗？？？<br><img src="http://ww4.sinaimg.cn/large/006umxd3jw1f51b3zff1bj30qo1begv9.jpg"></p>
-<p>
-	<small> ============== 8小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3988462115758456" target="freeweibo-mirror">SPAM 吓死人了！//@胡南越:[吐]</a>
-</h2>
-<p>SPAM 吓死人了！//@胡南越:[吐]<br><br>RE: 现实中的中南海警卫http://t.cn/R5CA1ee .纳粹德国第一装甲师军歌——“SS闪电部队在前进</p>
-<p>
-	<small> ============== 8小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3988455652530773" target="freeweibo-mirror">行 政 长 官 梁 振 英决定以书面形式向中 央政 府反映港…</a>
-</h2>
-<p>行 政 长 官 梁 振 英决定以书面形式向中 央政 府反映港人对铜 锣 湾 书店事件的关注和顾虑。#港闻推荐##香港身边事#  http://t.cn/R5CldVB .</p>
 <p>
 	<small> ============== 8小时前</small>
 </p>
