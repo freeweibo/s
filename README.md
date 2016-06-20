@@ -67,6 +67,12 @@
 <p>
 	<small> ============== 5小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3988505233932954" target="freeweibo-mirror">堂堂国社记者，呵呵呵呵呵呵呵呵</a>
+</h2>
+<p>堂堂国社记者，呵呵呵呵呵呵呵呵<br><img src="http://ww1.sinaimg.cn/large/8031f80fgw1f51uls6vpbj20hs0vkq5y.jpg"></p>
+<p>
+	<small> ============== 5小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3988504952545244" target="freeweibo-mirror">自己接力，再发！[话筒][围观]</a>
 </h2>
 <p>自己接力，再发！[话筒][围观]<br><img src="http://ww2.sinaimg.cn/large/006s8rwPgw1f51n2ovfb3j30c81k8qce.jpg"></p>
@@ -119,7 +125,7 @@
 </h2>
 <p>//@闲着无聊036: //@太君别开枪_是我: //@永远是多远老师://@鞠帮A宇://@gg弋平://@斯韦爵://@俗家人释永乖://@1937呐喊2://@彼岸花dll:转发微博<br><br>RE: 【每天一问】第3天:请问天津警方和董亚楠:考拉赵威还活着吗？？？<br><img src="http://ww4.sinaimg.cn/large/006umxd3jw1f51b3zff1bj30qo1begv9.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3988462115758456" target="freeweibo-mirror">SPAM 吓死人了！//@胡南越:[吐]</a>
 </h2>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3988455652530773" target="freeweibo-mirror">行 政 长 官 梁 振 英决定以书面形式向中 央政 府反映港…</a>
 </h2>
 <p>行 政 长 官 梁 振 英决定以书面形式向中 央政 府反映港人对铜 锣 湾 书店事件的关注和顾虑。#港闻推荐##香港身边事#  http://t.cn/R5CldVB .</p>
-<p>
-	<small> ============== 8小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3988455220063620" target="freeweibo-mirror">//@湖嗨散人://@郁金香J: 转发微博</a>
-</h2>
-<p>//@湖嗨散人://@郁金香J: 转发微博<br><br>RE: 民选村长林祖恋被捕，村民和平请愿。乌坎再次被推到风尖浪口。乌坎的一小步，是中国民主运动的一大步。这是载入史册的大事[話筒]关注乌坎<br><img src="http://ww2.sinaimg.cn/large/006fooE6gw1f51l5uxm1lj308m4zu1ce.jpg"></p>
 <p>
 	<small> ============== 8小时前</small>
 </p>
