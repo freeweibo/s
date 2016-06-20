@@ -31,11 +31,17 @@
 <p>
 	<small> ============== 1小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3988529040447045" target="freeweibo-mirror">呼籲大家一起關注烏坎的這位老者！希望他平安健康！</a>
+</h2>
+<p>呼籲大家一起關注烏坎的這位老者！希望他平安健康！<br><img src="http://ww3.sinaimg.cn/large/006vbdHggw1f51xcd89dvj30hi0n3tak.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3988519200310207" target="freeweibo-mirror">SPAM 呵呵～</a>
 </h2>
 <p>SPAM 呵呵～</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3988516913916275" target="freeweibo-mirror">//@联邦参议员一青岛王洪学:[拍照]又要过紧张的一年了[酷…</a>
 </h2>
@@ -65,7 +71,7 @@
 </h2>
 <p>梁书记！</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3988502531617516" target="freeweibo-mirror">SPAM [话筒][话筒][话筒]关注！！！广东陆丰乌-坎-…</a>
 </h2>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3988437071693953" target="freeweibo-mirror">乖，别看了，那是包哥哥给朝鲜猫、非洲猫、美国猫、英国猫、缅甸…</a>
 </h2>
 <p>乖，别看了，那是包哥哥给朝鲜猫、非洲猫、美国猫、英国猫、缅甸猫、印尼猫、波兰猫、捷克猫、俄罗斯猫、叙利亚猫、巴基斯坦猫、津巴布韦猫、塞尔维亚猫，乌兹别克斯坦猫们准备的。咱还是回家找地沟鼠吃吧……[泪][泪][泪]<br><img src="http://ww4.sinaimg.cn/large/006djKoKgw1f51mn9tysnj30fu0eigmg.jpg"></p>
-<p>
-	<small> ============== 8小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3988434252918909" target="freeweibo-mirror">//@陈辉鹏苏州: 转发微博</a>
-</h2>
-<p>//@陈辉鹏苏州: 转发微博<br><br>RE: 关注乌坎！声援乌坎！乌坎的今天就是你我之明天！<br><img src="http://ww3.sinaimg.cn/large/006uiImxgw1f51hmxdig6j30iu0hs0uu.jpg"></p>
 <p>
 	<small> ============== 8小时前</small>
 </p>
