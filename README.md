@@ -43,6 +43,12 @@
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3988446856877878" target="freeweibo-mirror">SPAM 给大家分享一个花王的广告……脑洞开的有些大……[d…</a>
+</h2>
+<p>SPAM 给大家分享一个花王的广告……脑洞开的有些大……[doge][doge][doge] http://t.cn/R5Coee6 .</p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3988437071693953" target="freeweibo-mirror">乖，别看了，那是包哥哥给朝鲜猫、非洲猫、美国猫、英国猫、缅甸…</a>
 </h2>
 <p>乖，别看了，那是包哥哥给朝鲜猫、非洲猫、美国猫、英国猫、缅甸猫、印尼猫、波兰猫、捷克猫、俄罗斯猫、叙利亚猫、巴基斯坦猫、津巴布韦猫、塞尔维亚猫，乌兹别克斯坦猫们准备的。咱还是回家找地沟鼠吃吧……[泪][泪][泪]<br><img src="http://ww4.sinaimg.cn/large/006djKoKgw1f51mn9tysnj30fu0eigmg.jpg"></p>
@@ -65,7 +71,7 @@
 </h2>
 <p>SPAM 失眠好了[太开心]，肠胃好了[太开心]，便秘也好了[太开心]，喝了野生沙棘原浆的朋友都这么说，更多详情+V.芯：chiguo11，每天喝2杯，帮你彻底摆脱困扰[给力]（温馨提示：只有威芯号，没有相关工众号推送，谨防受骗！！）<br><img src="http://ww1.sinaimg.cn/large/93b64d65jw1f51gub56v6j20b30j4tah.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3988379215148922" target="freeweibo-mirror">郭玉闪致夏霖案法官的信。</a>
 </h2>
@@ -89,7 +95,7 @@
 </h2>
 <p>//@湘楚陈黎:明明是北朝鲜 //@私家野史:视频出现境外反动记者在鼓噪反政府？</p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3988369799335960" target="freeweibo-mirror">我倒是比较关心当初美国人为啥要在大喊制造业回归的2012年购…</a>
 </h2>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3988344851946210" target="freeweibo-mirror">习大访问塞尔维亚，重金买下当地钢铁公司，帮助塞国解决了500…</a>
 </h2>
 <p>习大访问塞尔维亚，重金买下当地钢铁公司，帮助塞国解决了5000多人吃饭问题，这是战略、手段还是派糖？中国用金钱维持意识形态外交久唉，但世界变得越来越现实和刁钻，以至王毅外长失态与加国小报记者单挑，国际舆论哗然，中国需要支撑百年的价值体系，现实是五年的都没有，外交窘困和焦虑与日俱增。<br><img src="http://ww1.sinaimg.cn/large/56772fe1gw1f51c6rmjhyj20p00hzgor.jpg"></p>
-<p>
-	<small> ============== 10小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3988344771914517" target="freeweibo-mirror">新华社4.19日消息</a>
-</h2>
-<p>新华社4.19日消息<br><br>RE: 最新消息，我国宣佈以4569万欧元（合人民币3.36亿）买下塞尔维亚斯梅代雷沃钢厂。该钢厂2012年由美国人收购，因严重亏损不久前美国人以一美元象征性价格卖还塞尔维亚政府。习主席说买下钢厂是为保住五千多名塞尔维亚钢铁工人的饭碗。社会主义就是了不起。</p>
 <p>
 	<small> ============== 10小时前</small>
 </p>
