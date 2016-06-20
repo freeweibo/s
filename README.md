@@ -131,7 +131,7 @@
 </h2>
 <p>SPAM 给大家分享一个花王的广告……脑洞开的有些大……[doge][doge][doge] http://t.cn/R5Coee6 .</p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3988437071693953" target="freeweibo-mirror">乖，别看了，那是包哥哥给朝鲜猫、非洲猫、美国猫、英国猫、缅甸…</a>
 </h2>
