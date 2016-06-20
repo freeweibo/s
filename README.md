@@ -19,6 +19,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3988547999005620" target="freeweibo-mirror">看来这个网名为@飞行队长 的新华社记者是个黑军人的老手了，这…</a>
+</h2>
+<p>看来这个网名为@飞行队长 的新华社记者是个黑军人的老手了，这样的畜生怎么能在新华社当记者呢？ //@卍心潮澎湃卐: //@carlvinson金牛: //@赤县李卫民:这一下把他给暴露出来了，再解释也没什么用，直接滚蛋吧! //@义勇军民兵:转发微博<br><br>RE: 堂堂国社记者，呵呵呵呵呵呵呵呵<br><img src="http://ww1.sinaimg.cn/large/8031f80fgw1f51uls6vpbj20hs0vkq5y.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3988539295380453" target="freeweibo-mirror">SPAM [围观]</a>
 </h2>
 <p>SPAM [围观]</p>
@@ -30,6 +36,12 @@
 <p>SPAM //@黃毓民品讀:勇敢的老者。<br><br>RE: 呼籲大家一起關注烏坎的這位老者！希望他平安健康！<br><img src="http://ww3.sinaimg.cn/large/006vbdHggw1f51xcd89dvj30hi0n3tak.jpg"></p>
 <p>
 	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3988535826461340" target="freeweibo-mirror">唉！这样的镇干部素质？ http://t.cn/R5CdBh…</a>
+</h2>
+<p>唉！这样的镇干部素质？ http://t.cn/R5CdBhS</p>
+<p>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3988529040447045" target="freeweibo-mirror">呼籲大家一起關注烏坎的這位老者！希望他平安健康！</a>
 </h2>
@@ -124,18 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3988455220063620" target="freeweibo-mirror">//@湖嗨散人://@郁金香J: 转发微博</a>
 </h2>
 <p>//@湖嗨散人://@郁金香J: 转发微博<br><br>RE: 民选村长林祖恋被捕，村民和平请愿。乌坎再次被推到风尖浪口。乌坎的一小步，是中国民主运动的一大步。这是载入史册的大事[話筒]关注乌坎<br><img src="http://ww2.sinaimg.cn/large/006fooE6gw1f51l5uxm1lj308m4zu1ce.jpg"></p>
-<p>
-	<small> ============== 8小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3988451491502031" target="freeweibo-mirror">[哈哈]//@一只博://@杯中红酒临时供应: [哈哈]//…</a>
-</h2>
-<p>[哈哈]//@一只博://@杯中红酒临时供应: [哈哈]//@东郭-文奴儿: [笑cry][酷]//@-蓝妍-:[笑哈哈][笑哈哈]咬先！//@千山微语胡说:[哈哈][哈哈][哈哈]<br><br>RE: 乖，别看了，那是包哥哥给朝鲜猫、非洲猫、美国猫、英国猫、缅甸猫、印尼猫、波兰猫、捷克猫、俄罗斯猫、叙利亚猫、巴基斯坦猫、津巴布韦猫、塞尔维亚猫，乌兹别克斯坦猫们准备的。咱还是回家找地沟鼠吃吧……[泪][泪][泪]<br><img src="http://ww4.sinaimg.cn/large/006djKoKgw1f51mn9tysnj30fu0eigmg.jpg"></p>
-<p>
-	<small> ============== 8小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3988448823611025" target="freeweibo-mirror">//@爱的放任: //@被殴打的截瘫病人李春霞: //@鞠帮…</a>
-</h2>
-<p>//@爱的放任: //@被殴打的截瘫病人李春霞: //@鞠帮A宇://@法律人童朝平://@陈辉鹏苏州: 转发微博<br><br>RE: 关注乌坎！声援乌坎！乌坎的今天就是你我之明天！<br><img src="http://ww3.sinaimg.cn/large/006uiImxgw1f51hmxdig6j30iu0hs0uu.jpg"></p>
 <p>
 	<small> ============== 8小时前</small>
 </p>
