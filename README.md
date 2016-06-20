@@ -59,19 +59,19 @@
 </h2>
 <p>[泪][伤心] //@只配叫猪_:转发微博<br><br>RE: 新书<br><img src="http://ww2.sinaimg.cn/large/005LF6Ssgw1f521y7riioj30c81k8wny.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3988574426456016" target="freeweibo-mirror">//@公民林静在维权4: //@天下不公131400:转发微…</a>
 </h2>
 <p>//@公民林静在维权4: //@天下不公131400:转发微博<br><br>RE: 新书<br><img src="http://ww2.sinaimg.cn/large/005LF6Ssgw1f521y7riioj30c81k8wny.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3988574104103133" target="freeweibo-mirror">所以说毛左是轮子。//@张鹤慈:回复@草色溪流:【文革十年被…</a>
 </h2>
 <p>所以说毛左是轮子。//@张鹤慈:回复@草色溪流:【文革十年被邓矮子一伙说成是动乱，西藏新疆怎么没独立呢？】毛泽东自己预言。他死后，因为文革问题，搞不好就得‘血雨腥风。中国如不是迅速的抓捕了四人帮，真的可能陷入血雨腥风，西藏，新疆和台湾就真的可能都独立了</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3988574045089874" target="freeweibo-mirror">回复@大彭刚子:你又调皮了，开始代表老百姓了，叫你书记还是首…</a>
 </h2>
