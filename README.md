@@ -77,13 +77,13 @@
 </h2>
 <p>SPAM 又是海外敌对势力的阴谋！[阴险][阴险][阴险]<br><br>RE: 昨天环球时报英文版的记者打电话采访，被我拒绝了，我告诉她：我以拒绝采访的行动，来表达我对环球时报的蔑视。这份报常以令人惊叹的逻辑、混乱的语言来评论每一件事，表达似是而非的观点，有时还具有相当的迷惑性。林祖恋组织人去信访，有什么违法之处吗？<br><img src="http://ww2.sinaimg.cn/large/cfc95fc4gw1f51qo633jjj22c0340b2b.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3988502531617516" target="freeweibo-mirror">SPAM [话筒][话筒][话筒]关注！！！广东陆丰乌-坎-…</a>
 </h2>
 <p>SPAM [话筒][话筒][话筒]关注！！！广东陆丰乌-坎-村！//@学习老王: [挖鼻] //@周氏琛平:[怒]//@于菲088:[怒]</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3988502200960734" target="freeweibo-mirror">SPAM 海陆丰那事？//@司马3忌:山前留名//@慕晓微说…</a>
 </h2>
