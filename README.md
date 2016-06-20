@@ -43,11 +43,23 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3988573822945560" target="freeweibo-mirror">//@惊醒的家奴37://@陈___大_嘴: //@小绿红妆…</a>
+</h2>
+<p>//@惊醒的家奴37://@陈___大_嘴: //@小绿红妆: //@公民林静在维权4: [怒][怒] //@Nuclear-Winter:转发微博<br><br>RE: 郭飞雄绝食42天了，肯定已经用了鼻饲、灌食什么的招数了吧，但是也没人知道。</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3988569213493641" target="freeweibo-mirror">新书</a>
 </h2>
 <p>新书<br><img src="http://ww2.sinaimg.cn/large/005LF6Ssgw1f521y7riioj30c81k8wny.jpg"></p>
 <p>
 	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3988567879706616" target="freeweibo-mirror">也可能是一种净化，爱国网友通过此类事件把你这种公知倾向的人筛…</a>
+</h2>
+<p>也可能是一种净化，爱国网友通过此类事件把你这种公知倾向的人筛选出来，然后进行淘汰，剩下的具有正能量的人就可以一起愉快地建设社会主义了。这是他们的阳谋<br><br>RE: 【这个社会正在一天天被撕裂】任何重大危机发生之前，至少有26个明显征兆，这是危机学的一个定律。雷洋死亡算一个吧，欧伯被嫖算吧，深圳警察查身份证滥用权力算吧，甚至今天报的大学生因火车票丢失，在火车站出站时被要求补票，这类小事都是征兆，这些事件把公权置于人心的对立面，社会一天天被撕裂</p>
+<p>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3988563953664688" target="freeweibo-mirror">SPAM 又.到.了.露 .背.的.季.节，分.享.一.款.…</a>
 </h2>
@@ -126,18 +138,6 @@
 <p>【环球时报用了恐怕两字有点意思】广东乌坎村近日又成了舆论焦点，外媒纷纷报道，该村党支部书记、村委会主任林祖恋日前因涉嫌利用职权受贿被警方带走。该村数千村民19日召开村民大会，并举行游行，要求当局释放林祖恋。http://t.cn/R5Cyctm<br><img src="http://ww2.sinaimg.cn/large/6b804b51gw1f51vcqxhcjj20qo1bgwle.jpg"></p>
 <p>
 	<small> ============== 6小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3988505720481340" target="freeweibo-mirror">这哥们儿，硬得不正常……</a>
-</h2>
-<p>这哥们儿，硬得不正常……</p>
-<p>
-	<small> ============== 7小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3988505233932954" target="freeweibo-mirror">堂堂国社记者，呵呵呵呵呵呵呵呵</a>
-</h2>
-<p>堂堂国社记者，呵呵呵呵呵呵呵呵<br><img src="http://ww1.sinaimg.cn/large/8031f80fgw1f51uls6vpbj20hs0vkq5y.jpg"></p>
-<p>
-	<small> ============== 7小时前</small>
 </p>
 <table>
     <tr>
