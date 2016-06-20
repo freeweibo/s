@@ -89,7 +89,7 @@
 </h2>
 <p>SPAM 呵呵～</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3988518445853301" target="freeweibo-mirror">CCTV不厌其烦地攻击安倍的政策实实在在是在愚民，在转移国内…</a>
 </h2>
@@ -137,7 +137,7 @@
 </h2>
 <p>梁书记！</p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p>
 <table>
     <tr>
