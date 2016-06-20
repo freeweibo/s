@@ -23,7 +23,7 @@
 </h2>
 <p>SPAM [话筒][话筒][话筒]关注！！！广东陆丰乌-坎-村！//@学习老王: [挖鼻] //@周氏琛平:[怒]//@于菲088:[怒]</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3988498941447279" target="freeweibo-mirror">SPAM //@Docter-李: //@阳珠子: //@青…</a>
 </h2>
