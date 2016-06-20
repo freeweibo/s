@@ -29,13 +29,13 @@
 </h2>
 <p>SPAM [围观]</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3988539224003944" target="freeweibo-mirror">SPAM //@黃毓民品讀:勇敢的老者。</a>
 </h2>
 <p>SPAM //@黃毓民品讀:勇敢的老者。<br><br>RE: 呼籲大家一起關注烏坎的這位老者！希望他平安健康！<br><img src="http://ww3.sinaimg.cn/large/006vbdHggw1f51xcd89dvj30hi0n3tak.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3988535826461340" target="freeweibo-mirror">唉！这样的镇干部素质？ http://t.cn/R5CdBh…</a>
 </h2>
