@@ -35,13 +35,13 @@
 </h2>
 <p>//@爱的放任: //@被殴打的截瘫病人李春霞: //@鞠帮A宇://@法律人童朝平://@陈辉鹏苏州: 转发微博<br><br>RE: 关注乌坎！声援乌坎！乌坎的今天就是你我之明天！<br><img src="http://ww3.sinaimg.cn/large/006uiImxgw1f51hmxdig6j30iu0hs0uu.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3988434252918909" target="freeweibo-mirror">//@陈辉鹏苏州: 转发微博</a>
 </h2>
 <p>//@陈辉鹏苏州: 转发微博<br><br>RE: 关注乌坎！声援乌坎！乌坎的今天就是你我之明天！<br><img src="http://ww3.sinaimg.cn/large/006uiImxgw1f51hmxdig6j30iu0hs0uu.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3988422978768863" target="freeweibo-mirror">民选村长林祖恋被捕，村民和平请愿。乌坎再次被推到风尖浪口。乌…</a>
 </h2>
@@ -137,7 +137,7 @@
 </h2>
 <p>不能让社会主义的一个兄弟饿肚子。做得好<br><br>RE: 最新消息，我国宣佈以4569万欧元（合人民币3.36亿）买下塞尔维亚斯梅代雷沃钢厂。该钢厂2012年由美国人收购，因严重亏损不久前美国人以一美元象征性价格卖还塞尔维亚政府。习主席说买下钢厂是为保住五千多名塞尔维亚钢铁工人的饭碗。社会主义就是了不起。</p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p>
 <table>
     <tr>
