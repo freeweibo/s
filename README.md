@@ -71,13 +71,13 @@
 </h2>
 <p>行 政 长 官 梁 振 英决定以书面形式向中 央政 府反映港人对铜 锣 湾 书店事件的关注和顾虑。#港闻推荐##香港身边事#  http://t.cn/R5CldVB .</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3988455220063620" target="freeweibo-mirror">//@湖嗨散人://@郁金香J: 转发微博</a>
 </h2>
 <p>//@湖嗨散人://@郁金香J: 转发微博<br><br>RE: 民选村长林祖恋被捕，村民和平请愿。乌坎再次被推到风尖浪口。乌坎的一小步，是中国民主运动的一大步。这是载入史册的大事[話筒]关注乌坎<br><img src="http://ww2.sinaimg.cn/large/006fooE6gw1f51l5uxm1lj308m4zu1ce.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3988451491502031" target="freeweibo-mirror">[哈哈]//@一只博://@杯中红酒临时供应: [哈哈]//…</a>
 </h2>
@@ -125,7 +125,7 @@
 </h2>
 <p>郭玉闪致夏霖案法官的信。<br><img src="http://ww2.sinaimg.cn/large/60b78779jw1f51g0hws97j20hs5bhkjl.jpg"></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3988374505865034" target="freeweibo-mirror">//@雷公旗: //@王连军律师: //@律师王学明:@中国…</a>
 </h2>
