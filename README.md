@@ -55,11 +55,17 @@
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3988846532052267" target="freeweibo-mirror">五年前，乌欠人以命相搏，拿回部分公民权，重选村委会，实现地方…</a>
+</h2>
+<p>五年前，乌欠人以命相搏，拿回部分公民权，重选村委会，实现地方自治。但是，土地争端一直悬而未决。2016年5月，疑为开发商后台，前省委副书记朱明国被判刑，村长看到希望，欲率众上访。不料，当局抢先下手，抓了村长，以亲情要挟，逼他认罪。并调集大批特警维稳。这是一场打不赢的战争。</p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3988845429759156" target="freeweibo-mirror">央视法院判了？//@玉龙山人:那村民为何还出来游行？//@纪…</a>
 </h2>
 <p>央视法院判了？//@玉龙山人:那村民为何还出来游行？//@纪实作家张弓: 回复@中囯驻华夶使馆:认罪平台！ //@中囯驻华夶使馆:央视（相当于文革中的中央“两报一刊”）拿一个村书记在电视上公开认罪，有作秀之嫌。敢把康王，薄王及伯雄大将军等政要国戚在央视上公开认罪吗？ //@纪实作家张弓@海参崴以西:<br><br>RE: 【电视认罪，央视开了个好头！】今天上午，汕尾市人民政府新闻办通报乌坎村原党支部书记、村委会主任林祖恋在接受检察机关审讯时，主动供认受贿事实，并播放认罪视频。 http://t.cn/R5NEa8f</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3988839250570132" target="freeweibo-mirror">易到在一个竞争残酷的行业里，逆转重生，我也要好好学习一下易到…</a>
 </h2>
@@ -84,6 +90,12 @@
 <p>【电视认罪，央视开了个好头！】今天上午，汕尾市人民政府新闻办通报乌坎村原党支部书记、村委会主任林祖恋在接受检察机关审讯时，主动供认受贿事实，并播放认罪视频。 http://t.cn/R5NEa8f</p>
 <p>
 	<small> ============== 4小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3988826248405812" target="freeweibo-mirror">TVB姓黨的也被點名啊…看來這維穩傳媒不好當…隨時被犧牲</a>
+</h2>
+<p>TVB姓黨的也被點名啊…看來這維穩傳媒不好當…隨時被犧牲<br><img src="http://ww4.sinaimg.cn/large/006uEraQjw1f52vh7332rj30qo3q6dzt.jpg"></p>
+<p>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3988796272228583" target="freeweibo-mirror">SPAM //@不放肉少放油还要香:做梦去吧//@北京厨子新…</a>
 </h2>
@@ -126,18 +138,6 @@
 <p>SPAM 发布了头条文章：《显微镜下的痘痘，一颗痘痘》 http://t.cn/R5NOb0P</p>
 <p>
 	<small> ============== 9小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3988754974463066" target="freeweibo-mirror">SPAM //@古哥在线:。。。</a>
-</h2>
-<p>SPAM //@古哥在线:。。。<br><br>RE: 为了迎接G20浙江也是拼了....入住绍兴柯桥一个酒店...前台的这段话，笑到翔都出来了....太有才了...请认真读完第二张图片上的字.....<br><img src="http://ww4.sinaimg.cn/large/775e0851gw1f523kprqgkj20qo0zkguz.jpg"></p>
-<p>
-	<small> ============== 9小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3988751456284286" target="freeweibo-mirror">SPAM 最近剁手都救不了我了[礼物]</a>
-</h2>
-<p>SPAM 最近剁手都救不了我了[礼物]</p>
-<p>
-	<small> ============== 10小时前</small>
 </p>
 <table>
     <tr>
