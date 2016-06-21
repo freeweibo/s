@@ -29,7 +29,7 @@
 </h2>
 <p>海陆丰有传统。//@朱庄虹007: 镇官员就能这么厉害？//@顧村布衣A: 回复@路飞小姐航:有人故意放行媒體，想搞個大新聞//@路飞小姐航:逐步放开.循序渐进.[拍照]//@顧村布衣A:為什麼這個時候香港等境外媒體可以隨便採訪？這是個問題！！……<br><br>RE: 广东省陆丰市东海镇官员粗话辱骂记者，这种官员还配做人民公仆？告诉你！这种官员不查办，会严重损坏党的形象！@陆丰发布 [怒]http://t.cn/R5CFDBH</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3988706887066926" target="freeweibo-mirror">//@周治国微博: 任志强 张欣 潘石屹 李开复 薛蛮子  …</a>
 </h2>
@@ -113,13 +113,13 @@
 </h2>
 <p>SPAM 支持现在的大学生创业农家特产[good]手工熬制的红糖转发给身边的所有妹子！[心]</p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3988578549875699" target="freeweibo-mirror">差点就成了事了！只可惜中国的发展势头好，再脑残的粉都舍不得放…</a>
 </h2>
 <p>差点就成了事了！只可惜中国的发展势头好，再脑残的粉都舍不得放下手里的碗。<br><img src="http://ww1.sinaimg.cn/large/b4b5059agw1f522wosdb2j20df08qabo.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3988574959623272" target="freeweibo-mirror">[泪][伤心] //@只配叫猪_:转发微博</a>
 </h2>
