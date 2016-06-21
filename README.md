@@ -29,7 +29,7 @@
 </h2>
 <p>//@周治国微博: 任志强 张欣 潘石屹 李开复 薛蛮子  郑渊洁 于建嵘 袁立 章立凡 吴建民 张泉灵等，这是推墙党召开的一大会议，可惜星星之火灭于嫖娼、车祸、癌症。。。革命尚未成功，同志仍需努力。<br><br>RE: 差点就成了事了！只可惜中国的发展势头好，再脑残的粉都舍不得放下手里的碗。<br><img src="http://ww1.sinaimg.cn/large/b4b5059agw1f522wosdb2j20df08qabo.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3988703044533963" target="freeweibo-mirror">SPAM //@一棵稻草-: //@一墙的距离://@东方夜…</a>
 </h2>
