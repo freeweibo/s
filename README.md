@@ -29,7 +29,7 @@
 </h2>
 <p>SPAM 郑永年：吴建民走了，但他忧虑的民粹主义不会走 - 国情民情 - 共识网—在大变革时代寻找共识 http://t.cn/R5p6plH<br><img src="http://ww1.sinaimg.cn/large/744be08djw1f538zo8cd8j202z02zt8m.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3988942674030701" target="freeweibo-mirror">SPAM //@看破红尘宝贝六:还是苹果好！[思考] //@…</a>
 </h2>
@@ -52,6 +52,12 @@
 	<a href="https://freeweibo.com/weibo/3988938597199870" target="freeweibo-mirror">SPAM 发布了头条文章：《就林祖恋案对汕尾官方的几点疑问》…</a>
 </h2>
 <p>SPAM 发布了头条文章：《就林祖恋案对汕尾官方的几点疑问》 http://t.cn/R5pJO9o</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3988938399524269" target="freeweibo-mirror">【失去方向的中国】党有权管党，甚至从严治党；但公民却没义务要…</a>
+</h2>
+<p>【失去方向的中国】党有权管党，甚至从严治党；但公民却没义务要接受党的严管，党也从来不具天然的合法性来严控社会。权力不减量，公民权利就无增量；约束权力的宪政精神不落实，权力独裁的倾向就一定扩张。而权力独断的结果常常就是腐败与灾难。 http://t.cn/R5pJ9so</p>
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3988901666182806" target="freeweibo-mirror">也性胡？[哈哈]//@华之梁://@种花家的蓝领兔:[怒]/…</a>
 </h2>
 <p>也性胡？[哈哈]//@华之梁://@种花家的蓝领兔:[怒]//@大头菜盖菜://@蜗蜗小小A:[吐][吐] //@中国公知精神病总院:啧啧啧啧，吓死人了！[吃惊]//@透明空灵:@中国公知精神病总院[围观]<br><br>RE: 胡采苹暴露了，不要怕，这只是隐藏在阿里的一条线而已。除了她，有更多的台独战士奋战在新浪、网易、微博……[好得意] http://t.cn/R5NFR5d<br><img src="http://ww4.sinaimg.cn/large/006rg7aTjw1f52wt33g6wj308m064dgl.jpg"></p>
-<p>
-	<small> ============== 4小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3988899694683821" target="freeweibo-mirror">马云这个日本垄断资本的代理人，果然跟台独勾勾搭搭！[怒]//…</a>
-</h2>
-<p>马云这个日本垄断资本的代理人，果然跟台独勾勾搭搭！[怒]//@自己开导自己: //@走马微天下:扩给@阿里巴巴 这里又有人说你们养台独了！快删去吧！//@夹袄://@东海平民: [话筒][话筒]//@黑匹夫: //@司马平邦: 回复@狂拽酷炫之赵日天:妈的。 //@狂拽酷炫之赵日天: 观察者网这篇文章已经做截图，<br><br>RE: 阿里旗下媒体主编胡采苹被曝是“台独” 长期反华-观察者网 http://t.cn/R5pwJtp<br><img src="http://ww4.sinaimg.cn/large/537fd741jw1f530j5gdywj208m064aat.jpg"></p>
 <p>
 	<small> ============== 4小时前</small>
 </p>
