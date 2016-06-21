@@ -59,7 +59,7 @@
 </h2>
 <p>SPAM 【丢人丢成国耻了！】波兰民众在中国大使馆和广场抗议6.21玉林大屠杀！Cruelty Not Tradition Stop Yulin （残忍、不是传统，阻止玉林 ！） ；POLAND SAYS NO！TO YULIN（波兰对玉林说不 ！）。中国政府应彻查玉林政府和黑色产业链！迅即颁发《反对虐待动物法》！！！@人民日报 @央视新闻 @新华网 ...全文： http://m.weibo.cn/1220970732/3988863335120777<br><img src="http://ww2.sinaimg.cn/large/48c688ecgw1f52zpe4avej20hs1cxtg7.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3988859568288556" target="freeweibo-mirror">有意思的是…包子上台咁多年冇一年升過</a>
 </h2>
@@ -113,7 +113,7 @@
 </h2>
 <p>【电视认罪，央视开了个好头！】今天上午，汕尾市人民政府新闻办通报乌坎村原党支部书记、村委会主任林祖恋在接受检察机关审讯时，主动供认受贿事实，并播放认罪视频。 http://t.cn/R5NEa8f</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3988826248405812" target="freeweibo-mirror">TVB姓黨的也被點名啊…看來這維穩傳媒不好當…隨時被犧牲</a>
 </h2>
