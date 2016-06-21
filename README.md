@@ -23,13 +23,13 @@
 </h2>
 <p>愚蠢的当局，这就是在给自己掘墓啊！看看历史，蠢蛋们，近现代几乎每次颠覆，都从广东某地的运动开始都啊~//@只配叫猪_://@小小猫咪去钓鱼2://@小榄张华杰://@大川1967://@孤独哥A11: 转发微博<br><br>RE: 16:15出發，由學生打頭鎮。<br><img src="http://ww3.sinaimg.cn/large/006upfIPjw1f52za6sq3vj30qo1bgtgv.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3988871031468542" target="freeweibo-mirror">//@王甫律师: 采访政府机关可以用“申请”，一个自然村落村…</a>
 </h2>
 <p>//@王甫律师: 采访政府机关可以用“申请”，一个自然村落村民自愿接受媒体采访，向谁申请？申请的法律依据何在？<br><br>RE: TVB姓黨的也被點名啊…看來這維穩傳媒不好當…隨時被犧牲<br><img src="http://ww4.sinaimg.cn/large/006uEraQjw1f52vh7332rj30qo3q6dzt.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3988870515276731" target="freeweibo-mirror">采访政府机关可以用“申请”，一个自然村落村民自愿接受媒体采访…</a>
 </h2>
@@ -77,7 +77,7 @@
 </h2>
 <p>SPAM 很多人批评每年给外国人6500亿，不花在国人身上。很片面。每年8300亿维稳经费难道不是花在国人身上了吗？无知啊！</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3988854706348604" target="freeweibo-mirror">鸡蛋和石头，我永远站在鸡蛋这边。//@杜君立: 不认罪就抓你…</a>
 </h2>
@@ -125,19 +125,19 @@
 </h2>
 <p>TVB姓黨的也被點名啊…看來這維穩傳媒不好當…隨時被犧牲<br><img src="http://ww4.sinaimg.cn/large/006uEraQjw1f52vh7332rj30qo3q6dzt.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3988796272228583" target="freeweibo-mirror">SPAM //@不放肉少放油还要香:做梦去吧//@北京厨子新…</a>
 </h2>
 <p>SPAM //@不放肉少放油还要香:做梦去吧//@北京厨子新号:标的物是地下的石油的购买权。只要这个国家不耍赖，是不会发生要不回来的情况的。否则中国海军负责夷平他们的首都。<br><br>RE: 【650亿美元收不回，该问责？】一个寅吃卯粮的政权，为何向其累计借出650亿美元？商业贷款抑或政治支持？如果是后者，必然打水漂！<br><img src="http://ww2.sinaimg.cn/large/6a80bfcdgw1f521cfw79kj20qo1bf7da.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3988796111992621" target="freeweibo-mirror">网友发的，乌的坎，求证？</a>
 </h2>
 <p>网友发的，乌的坎，求证？<br><img src="http://ww1.sinaimg.cn/large/6a25a9b5jw1f52rz1hemkj20k00zktdm.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p>
 <table>
     <tr>
