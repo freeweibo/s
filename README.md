@@ -41,7 +41,7 @@
 </h2>
 <p>有喉舌、有大威、有大官、有无赖……任由这帮东西折腾，中国还能安宁吗？<br><br>RE: #人民眼睛雪亮# 前排左起: 张泉灵，任志强，鲁你懂得，李开复，张欣 。后排左起: 易中天，郑渊洁，薛必群，章立凡，潘石屹，王利芬，于建嵘，[未知]，刘春……这照片问题应该出在鲁你懂得。鲁炜，现任中共中央宣传部副部长，中共中央网络安全和信息化领导小组办公室、国家互联网信息办公室主任。待证？<br><img src="http://ww1.sinaimg.cn/large/9134f839jw1f5386g07ykj20df08qabf.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3988957496659958" target="freeweibo-mirror">SPAM 生日快乐！</a>
 </h2>
@@ -113,7 +113,7 @@
 </h2>
 <p>SPAM 郑永年：吴建民走了，但他忧虑的民粹主义不会走 - 国情民情 - 共识网—在大变革时代寻找共识 http://t.cn/R5p6plH<br><img src="http://ww1.sinaimg.cn/large/744be08djw1f538zo8cd8j202z02zt8m.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3988942674030701" target="freeweibo-mirror">SPAM //@看破红尘宝贝六:还是苹果好！[思考] //@…</a>
 </h2>
