@@ -23,19 +23,25 @@
 </h2>
 <p>SPAM //@不放肉少放油还要香:做梦去吧//@北京厨子新号:标的物是地下的石油的购买权。只要这个国家不耍赖，是不会发生要不回来的情况的。否则中国海军负责夷平他们的首都。<br><br>RE: 【650亿美元收不回，该问责？】一个寅吃卯粮的政权，为何向其累计借出650亿美元？商业贷款抑或政治支持？如果是后者，必然打水漂！<br><img src="http://ww2.sinaimg.cn/large/6a80bfcdgw1f521cfw79kj20qo1bf7da.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3988795609747536" target="freeweibo-mirror">SPAM //@小平崔律师://@干卫东律师:真没背好。[衰…</a>
 </h2>
 <p>SPAM //@小平崔律师://@干卫东律师:真没背好。[衰]//@学习老王:读得不顺，背得不牢，差评！<br><br>RE: "乌坎书记视频认罪！套路！ "#秒拍网事# 我的秒拍作品,一起来看~ http://t.cn/R5N8xGz（使用#秒拍#录制）</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3988795444980486" target="freeweibo-mirror">SPAM 看样子味道不错。 //@粉色小金龙:咬这亿口、牙酸…</a>
 </h2>
 <p>SPAM 看样子味道不错。 //@粉色小金龙:咬这亿口、牙酸酸的！ //@玩主-V: //@Soldier-shanxi: 转发微博<br><br>RE: 欢迎配文。<br><img src="http://ww2.sinaimg.cn/large/67c53c97gw1f52nwhfts9j20hc09rt9f.jpg"></p>
 <p>
 	<small> ============== 4小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3988780203593920" target="freeweibo-mirror">"乌坎书记视频认罪！套路！ "#秒拍网事# 我的秒拍作品,一…</a>
+</h2>
+<p>"乌坎书记视频认罪！套路！ "#秒拍网事# 我的秒拍作品,一起来看~ http://t.cn/R5N8xGz（使用#秒拍#录制）</p>
+<p>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3988771525591502" target="freeweibo-mirror">SPAM 这种赶脚，用钓迷的眼光看以为在下重窝，守巨物。也像…</a>
 </h2>
@@ -59,7 +65,7 @@
 </h2>
 <p>SPAM 最近剁手都救不了我了[礼物]</p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3988741054093598" target="freeweibo-mirror">错别字太多，看不懂！[哈哈] //@侯雁濒:回复@立场H旁观…</a>
 </h2>
@@ -101,7 +107,7 @@
 </h2>
 <p>SPAM //@战争史研究WHS:23333[笑cry][笑cry] //@冈瓦纳:希望会后能保持下去的 //@刘鑫Mars: 高级黑 //@齐梁后尘:哈哈我绍兴师爷V5<br><br>RE: 为了迎接G20浙江也是拼了....入住绍兴柯桥一个酒店...前台的这段话，笑到翔都出来了....太有才了...请认真读完第二张图片上的字.....<br><img src="http://ww4.sinaimg.cn/large/775e0851gw1f523kprqgkj20qo0zkguz.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3988719159777801" target="freeweibo-mirror">无坎事件村民被无情镇压的结局已无悬念，这中间不排除警C设套，…</a>
 </h2>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3988697491593669" target="freeweibo-mirror">天上有雷公，地上海陆丰。。</a>
 </h2>
 <p>天上有雷公，地上海陆丰。。<br><br>RE: HK的媒体朋友竟然不拿镇长当干部[阴险]http://t.cn/R5C141U</p>
-<p>
-	<small> ============== 10小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3988696279225384" target="freeweibo-mirror">//@天涯赵瑜:一声叹息。//@吴伟bj: 简直是仔卖爷田心…</a>
-</h2>
-<p>//@天涯赵瑜:一声叹息。//@吴伟bj: 简直是仔卖爷田心不疼！中国国内尚且有大量钢铁产能过剩，却跑到塞国花巨资购买钢铁厂，这是脑子进水了，还是拿中国纳税人的血汗当凉水随便泼啊！？[抓狂]<br><br>RE: 据报道，中国钢厂出资4600万欧元收购塞尔维亚斯梅代雷沃钢铁厂，并承诺保障约5000名员工的就业。昨天，习近平在贝尔格莱德参观这家钢厂时说，钢厂必将重现活力，增加当地就业-------。另据报道，2003年，美国公司以2300万美元收购破产的斯梅代雷沃钢厂，8年后因无法经营以1美元象征性的卖给塞政府。<br><img src="http://ww3.sinaimg.cn/large/bcb59d4bjw1f51etwuvyjj20p00gvn0j.jpg"></p>
 <p>
 	<small> ============== 10小时前</small>
 </p>
