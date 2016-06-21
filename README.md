@@ -137,7 +137,7 @@
 </h2>
 <p>采访政府机关可以用“申请”，一个自然村落村民自愿接受媒体采访，向谁申请？申请的法律依据何在？<br><br>RE: TVB姓黨的也被點名啊…看來這維穩傳媒不好當…隨時被犧牲<br><img src="http://ww4.sinaimg.cn/large/006uEraQjw1f52vh7332rj30qo3q6dzt.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p>
 <table>
     <tr>
