@@ -41,7 +41,7 @@
 </h2>
 <p>SPAM 分享 [话筒]</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3988679464941237" target="freeweibo-mirror">#博友爆料# [哈哈] //@杨宁远v:典型的流氓官员。 /…</a>
 </h2>
@@ -65,7 +65,7 @@
 </h2>
 <p>SPAM 反正我很同意这观点，这个夏天我要痩[泪流满面]</p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3988614758892917" target="freeweibo-mirror">SPAM 那些你不知道 的秘密[可怜]</a>
 </h2>
@@ -103,6 +103,12 @@
 <p>
 	<small> ============== 11小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3988578549875699" target="freeweibo-mirror">差点就成了事了！只可惜中国的发展势头好，再脑残的粉都舍不得放…</a>
+</h2>
+<p>差点就成了事了！只可惜中国的发展势头好，再脑残的粉都舍不得放下手里的碗。<br><img src="http://ww1.sinaimg.cn/large/b4b5059agw1f522wosdb2j20df08qabo.jpg"></p>
+<p>
+	<small> ============== 11小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3988574959623272" target="freeweibo-mirror">[泪][伤心] //@只配叫猪_:转发微博</a>
 </h2>
 <p>[泪][伤心] //@只配叫猪_:转发微博<br><br>RE: 新书<br><img src="http://ww2.sinaimg.cn/large/005LF6Ssgw1f521y7riioj30c81k8wny.jpg"></p>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3988573822945560" target="freeweibo-mirror">//@惊醒的家奴37://@陈___大_嘴: //@小绿红妆…</a>
 </h2>
 <p>//@惊醒的家奴37://@陈___大_嘴: //@小绿红妆: //@公民林静在维权4: [怒][怒] //@Nuclear-Winter:转发微博<br><br>RE: 郭飞雄绝食42天了，肯定已经用了鼻饲、灌食什么的招数了吧，但是也没人知道。</p>
-<p>
-	<small> ============== 11小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3988570476301229" target="freeweibo-mirror">人们对于事情的满意度判定往往不是最高分与最低分的平均，也不是…</a>
-</h2>
-<p>人们对于事情的满意度判定往往不是最高分与最低分的平均，也不是减法递减，而是要么全面肯定，要么全面否定。[思考] 这也就是所谓的“100-1=0”理论。<br><br>RE: 【这个社会正在一天天被撕裂】任何重大危机发生之前，至少有26个明显征兆，这是危机学的一个定律。雷洋死亡算一个吧，欧伯被嫖算吧，深圳警察查身份证滥用权力算吧，甚至今天报的大学生因火车票丢失，在火车站出站时被要求补票，这类小事都是征兆，这些事件把公权置于人心的对立面，社会一天天被撕裂</p>
 <p>
 	<small> ============== 11小时前</small>
 </p>
