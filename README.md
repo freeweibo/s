@@ -47,7 +47,7 @@
 </h2>
 <p>自古以来韩国都是中国不可分割的一部分！<br><br>RE: 分享图片<br><img src="http://ww1.sinaimg.cn/large/bfa66467jw1f52zb3vcejj20i20i240n.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3988883328611866" target="freeweibo-mirror">SPAM 胡球转，韩国的//@无名寂寂:祝福[心]//@臭皮…</a>
 </h2>
