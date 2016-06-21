@@ -67,6 +67,12 @@
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3988859526654189" target="freeweibo-mirror">16:15出發，由學生打頭鎮。</a>
+</h2>
+<p>16:15出發，由學生打頭鎮。<br><img src="http://ww3.sinaimg.cn/large/006upfIPjw1f52za6sq3vj30qo1bgtgv.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3988856150241066" target="freeweibo-mirror">SPAM 很多人批评每年给外国人6500亿，不花在国人身上。…</a>
 </h2>
 <p>SPAM 很多人批评每年给外国人6500亿，不花在国人身上。很片面。每年8300亿维稳经费难道不是花在国人身上了吗？无知啊！</p>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3988796111992621" target="freeweibo-mirror">网友发的，乌的坎，求证？</a>
 </h2>
 <p>网友发的，乌的坎，求证？<br><img src="http://ww1.sinaimg.cn/large/6a25a9b5jw1f52rz1hemkj20k00zktdm.jpg"></p>
-<p>
-	<small> ============== 7小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3988795609747536" target="freeweibo-mirror">SPAM //@小平崔律师://@干卫东律师:真没背好。[衰…</a>
-</h2>
-<p>SPAM //@小平崔律师://@干卫东律师:真没背好。[衰]//@学习老王:读得不顺，背得不牢，差评！<br><br>RE: "乌坎书记视频认罪！套路！ "#秒拍网事# 我的秒拍作品,一起来看~ http://t.cn/R5N8xGz（使用#秒拍#录制）</p>
 <p>
 	<small> ============== 7小时前</small>
 </p>
