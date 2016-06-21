@@ -19,11 +19,23 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3988918971644734" target="freeweibo-mirror">[哈哈]//@喷嚏网铂程: 转发微博</a>
+</h2>
+<p>[哈哈]//@喷嚏网铂程: 转发微博<br><br>RE: 建议设立一个专门的中国认罪电视台，让未经法院判决的嫌疑人先上电视低头认罪，以体现以法治国的威严。另外，希望大贪官们能起到先锋模范作用，带头上电视认罪。</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3988914093805233" target="freeweibo-mirror">//@南朵:回复@Chuke:是的。但这次林突然被抓，使乌坎…</a>
 </h2>
 <p>//@南朵:回复@Chuke:是的。但这次林突然被抓，使乌坎好不容易巩固下来的成果，变得难以预料了。//@Chuke:看了乌坎，知道中国还是有希望的//@南朵:谢谢卢老师转！[作揖][鲜花]//@吉林卢雪松://@南朵:翻墙看，【陽光衛視出品】《烏坎》上集 http://t.cn/R5phIHY 下集 http://t.cn/R5phIHj<br><br>RE: 看完阳光卫视出品长达2:45时，完整记录2011年乌坎事件的纪录片《乌坎》，激动难抑，数次潸然泪下。伟大的乌坎村民的惊人素质，无疑向世人宣示一条真理，一人一票民主选举才是一国政治昌盛之举。乌坎无愧中国基层民主第一村。在片子倒数第9分钟处，我看见一个熟悉的面孔，那是正系狱绝食的义士郭飞雄。<br><img src="http://ww1.sinaimg.cn/large/5c4d214egw1f52xp5vgo9j20iv0qodlj.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3988912286877517" target="freeweibo-mirror">因为公知对贪官犯法没有异议，但对薛蛮子，广州区伯等犯法有异议…</a>
+</h2>
+<p>因为公知对贪官犯法没有异议，但对薛蛮子，广州区伯等犯法有异议，不肯相信，所以只好请他们上电视台以正视听了。[微笑]<br><br>RE: 建议设立一个专门的中国认罪电视台，让未经法院判决的嫌疑人先上电视低头认罪，以体现以法治国的威严。另外，希望大贪官们能起到先锋模范作用，带头上电视认罪。</p>
+<p>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3988911766288363" target="freeweibo-mirror">//@我是你认识的王小能: 我记得我的友邻里也有谁想做这类记…</a>
 </h2>
@@ -53,7 +65,7 @@
 </h2>
 <p>马云这个日本垄断资本的代理人，果然跟台独勾勾搭搭！[怒]//@自己开导自己: //@走马微天下:扩给@阿里巴巴 这里又有人说你们养台独了！快删去吧！//@夹袄://@东海平民: [话筒][话筒]//@黑匹夫: //@司马平邦: 回复@狂拽酷炫之赵日天:妈的。 //@狂拽酷炫之赵日天: 观察者网这篇文章已经做截图，<br><br>RE: 阿里旗下媒体主编胡采苹被曝是“台独” 长期反华-观察者网 http://t.cn/R5pwJtp<br><img src="http://ww4.sinaimg.cn/large/537fd741jw1f530j5gdywj208m064aat.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3988893311302753" target="freeweibo-mirror">SPAM 回复@满脸横肉可爱多:你给我说说，我头有点晕。[嘻…</a>
 </h2>
@@ -126,18 +138,6 @@
 <p>阿里旗下媒体主编胡采苹被曝是“台独” 长期反华-观察者网 http://t.cn/R5pwJtp<br><img src="http://ww4.sinaimg.cn/large/537fd741jw1f530j5gdywj208m064aat.jpg"></p>
 <p>
 	<small> ============== 4小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3988865544416396" target="freeweibo-mirror">清理非法采访？ //@自由职业者在浦东: //@王瑞鸿ok二…</a>
-</h2>
-<p>清理非法采访？ //@自由职业者在浦东: //@王瑞鸿ok二树二世界: //@明十三60890: 嗯，人民網為端傳媒不遺餘力的宣傳，感謝！這是個年輕的媒體，希望大家多關心！端傳媒在文字和圖片都能給予讀者很高的享受[嘻嘻] //@牆角爪爪:回复@行杉一久:舔的姿勢不對也不行[笑cry] //@行杉一久:连cctvb都…[挖鼻]<br><br>RE: TVB姓黨的也被點名啊…看來這維穩傳媒不好當…隨時被犧牲<br><img src="http://ww4.sinaimg.cn/large/006uEraQjw1f52vh7332rj30qo3q6dzt.jpg"></p>
-<p>
-	<small> ============== 5小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3988863335120777" target="freeweibo-mirror">SPAM 【丢人丢成国耻了！】波兰民众在中国大使馆和广场抗议…</a>
-</h2>
-<p>SPAM 【丢人丢成国耻了！】波兰民众在中国大使馆和广场抗议6.21玉林大屠杀！Cruelty Not Tradition Stop Yulin （残忍、不是传统，阻止玉林 ！） ；POLAND SAYS NO！TO YULIN（波兰对玉林说不 ！）。中国政府应彻查玉林政府和黑色产业链！迅即颁发《反对虐待动物法》！！！@人民日报 @央视新闻 @新华网 ...全文： http://m.weibo.cn/1220970732/3988863335120777<br><img src="http://ww2.sinaimg.cn/large/48c688ecgw1f52zpe4avej20hs1cxtg7.jpg"></p>
-<p>
-	<small> ============== 5小时前</small>
 </p>
 <table>
     <tr>
