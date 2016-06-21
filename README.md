@@ -71,13 +71,13 @@
 </h2>
 <p>SPAM 发布了头条文章：《就林祖恋案对汕尾官方的几点疑问》 http://t.cn/R5pJO9o</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3988938399524269" target="freeweibo-mirror">【失去方向的中国】党有权管党，甚至从严治党；但公民却没义务要…</a>
 </h2>
 <p>【失去方向的中国】党有权管党，甚至从严治党；但公民却没义务要接受党的严管，党也从来不具天然的合法性来严控社会。权力不减量，公民权利就无增量；约束权力的宪政精神不落实，权力独裁的倾向就一定扩张。而权力独断的结果常常就是腐败与灾难。 http://t.cn/R5pJ9so</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3988933756594095" target="freeweibo-mirror">[黑线]</a>
 </h2>
