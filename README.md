@@ -37,9 +37,63 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3988957849546035" target="freeweibo-mirror">有喉舌、有大威、有大官、有无赖……任由这帮东西折腾，中国还能…</a>
+</h2>
+<p>有喉舌、有大威、有大官、有无赖……任由这帮东西折腾，中国还能安宁吗？<br><br>RE: #人民眼睛雪亮# 前排左起: 张泉灵，任志强，鲁你懂得，李开复，张欣 。后排左起: 易中天，郑渊洁，薛必群，章立凡，潘石屹，王利芬，于建嵘，[未知]，刘春……这照片问题应该出在鲁你懂得。鲁炜，现任中共中央宣传部副部长，中共中央网络安全和信息化领导小组办公室、国家互联网信息办公室主任。待证？<br><img src="http://ww1.sinaimg.cn/large/9134f839jw1f5386g07ykj20df08qabf.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3988957496659958" target="freeweibo-mirror">SPAM 生日快乐！</a>
+</h2>
+<p>SPAM 生日快乐！</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3988956016554217" target="freeweibo-mirror">SPAM 爱国者的悲哀就在于此！//@司马南: 您这句话让人…</a>
+</h2>
+<p>SPAM 爱国者的悲哀就在于此！//@司马南: 您这句话让人有一种想哭的感觉.握手！//@珂马拉色:现在知道了吧？“精忠”报不了“国”的！</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3988955861268707" target="freeweibo-mirror">SPAM 司马老师生日快乐！[蛋糕][干杯].//@----…</a>
+</h2>
+<p>SPAM 司马老师生日快乐！[蛋糕][干杯].//@------杜帅------:突然想到两句话，“天若有情天亦老，人间正道是沧桑。” “真的猛士，敢于直面惨淡的人生，敢于正视淋漓的鲜血。” 谢谢您潜移默化的影响着我们年轻人，无畏惧，讲真话。 愿您健康。 生日快乐。</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3988955311813597" target="freeweibo-mirror">谢,晚安.我先睡了.60岁之后见.按小沈阳说法,眼一闭,不睁…</a>
+</h2>
+<p>谢,晚安.我先睡了.60岁之后见.按小沈阳说法,眼一闭,不睁,那就过去了哈…….//@------杜帅------:突然想到两句话，“天若有情天亦老，人间正道是沧桑。” “真的猛士，敢于直面惨淡的人生，敢于正视淋漓的鲜血。” 谢谢您潜移默化的影响着我们年轻人，无畏惧，讲真话。 愿您健康。 生日快乐。</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3988953457146612" target="freeweibo-mirror">SPAM //@司马南:问题没有那样简单,问题可能相当复杂，…</a>
+</h2>
+<p>SPAM //@司马南:问题没有那样简单,问题可能相当复杂，但是到底是怎么回事,我现在还搞不清楚. 以前批评潘任美都没有遭到这样疯狂的删帖. 地产党大战共产党, 莫非有人判断失误？//@邓文模:估计小便们都是自动识别过滤删除的。可多搞些不同尺寸大小的图片，那样的话，小编们可就真得受累啦[阴险]</p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3988952443167917" target="freeweibo-mirror">SPAM 阶级立场，泾渭分明。生日快乐！[心][作揖]</a>
+</h2>
+<p>SPAM 阶级立场，泾渭分明。生日快乐！[心][作揖]</p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3988951629379381" target="freeweibo-mirror">SPAM 听说过一个词叫倔强吗？ 听说过一个词叫不屈服吗？ …</a>
+</h2>
+<p>SPAM 听说过一个词叫倔强吗？ 听说过一个词叫不屈服吗？ 听说过一个词叫宁折不弯吗？ 听说过一个词儿叫爱谁谁爱咋咋吗？ 潘任美者之流能量巨大,在互联网上一手遮天, 但要彻底抹去互联网记忆, 怕也没那么容易. 我今天豁出去和他们飙上了,怕血溅身，可先出去躲一会儿. //@舞三江日月:@司马南 你没完没了吧</p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3988951171141792" target="freeweibo-mirror">SPAM OMG！！【抖森新片《我看到了光》支援来啦！！】汤…</a>
 </h2>
 <p>SPAM OMG！！【抖森新片《我看到了光》支援来啦！！】汤姆·希德勒斯顿主演的Hank Williams的传记片。伊丽莎白·奥尔森饰演的是Hank Williams的妻子。马克·亚伯拉罕执导。见图。<br><img src="http://ww3.sinaimg.cn/large/76c73f8djw1f539rg9ityj21kw11xn4y.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3988949275821092" target="freeweibo-mirror">SPAM 不一定每次都能保证球不落地. 别怪旁边乌鸦嘴. h…</a>
+</h2>
+<p>SPAM 不一定每次都能保证球不落地. 别怪旁边乌鸦嘴. http://t.cn/R5pa46x .<br><img src="http://ww1.sinaimg.cn/large/4b4e0e98jw1f539hext62j20g509oafp.jpg"></p>
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
@@ -79,65 +133,11 @@
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
-	<a href="https://freeweibo.com/weibo/3988939868481599" target="freeweibo-mirror">SPAM 上次你打赏的一瓶二锅头，就几分钟搞没了[嘻嘻]</a>
+	<a href="https://freeweibo.com/weibo/3988940468218947" target="freeweibo-mirror">//@首席观察://@六安自媒体: //@湖嗨散人:[喵喵]</a>
 </h2>
-<p>SPAM 上次你打赏的一瓶二锅头，就几分钟搞没了[嘻嘻]</p>
+<p>//@首席观察://@六安自媒体: //@湖嗨散人:[喵喵]<br><br>RE: 其实我倒是不认为刘源是个精神分裂者，他不可能不记得杀父之仇，也不可能不知道体制之恶，但他为什么还要殊死捍卫？因为如果不这样，他就仅仅只是一条受伤的狗，早就饿死了，这就是体制造就的刘源，其实跟体制造就的刘少奇，又有什么不同呐？！<br><img src="http://ww3.sinaimg.cn/large/7fd6e271jw1f53668qcpvj208k097aaf.jpg"></p>
 <p>
 	<small> ============== 3小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3988939709145802" target="freeweibo-mirror">//@花石頭e:大陸在香港遺留的地下工作組不清理乾淨，香港社…</a>
-</h2>
-<p>//@花石頭e:大陸在香港遺留的地下工作組不清理乾淨，香港社會的法治局面就會越來越糟糕。當年胡耀邦要撤回來，變成了他的一道“罪狀”。//@LifeTime: 香港的法律和香港政府能否保护香港守法公民，是香港最致命的问题。 //@花石頭e:正常渠道抗爭<br><br>RE: 【梁振英已就铜锣湾书店事件向内地致函表关注】香港特区行政长官梁振英在今天表示，已经就铜锣湾书店事件向内地相关部门发出函件表达对事件的关注。函件主要包括四各方面的内容。 （分享自 @凤凰网） http://t.cn/R5pVEhd</p>
-<p>
-	<small> ============== 3小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3988938597199870" target="freeweibo-mirror">SPAM 发布了头条文章：《就林祖恋案对汕尾官方的几点疑问》…</a>
-</h2>
-<p>SPAM 发布了头条文章：《就林祖恋案对汕尾官方的几点疑问》 http://t.cn/R5pJO9o</p>
-<p>
-	<small> ============== 3小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3988938399524269" target="freeweibo-mirror">【失去方向的中国】党有权管党，甚至从严治党；但公民却没义务要…</a>
-</h2>
-<p>【失去方向的中国】党有权管党，甚至从严治党；但公民却没义务要接受党的严管，党也从来不具天然的合法性来严控社会。权力不减量，公民权利就无增量；约束权力的宪政精神不落实，权力独裁的倾向就一定扩张。而权力独断的结果常常就是腐败与灾难。 http://t.cn/R5pJ9so</p>
-<p>
-	<small> ============== 3小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3988933756594095" target="freeweibo-mirror">[黑线]</a>
-</h2>
-<p>[黑线]<br><br>RE: 【比吴磊张一山恶作剧搞笑】今天上午，广东汕尾市政府召开新闻通报会：6月20日，乌坎村原党支部书记、村委会主任林祖恋在接受检察机关审讯时，主动供认受贿事实，并播放认罪视频.....微评：当地政府以林祖恋的审讯视频作出”极速“回应，公众不得不”赞叹“检察机关的办案效率！http://t.cn/R5NEa8f更...全文： http://m.weibo.cn/3675736060/3988898734697472</p>
-<p>
-	<small> ============== 4小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3988933169751091" target="freeweibo-mirror">//@六安自媒体: //@湖嗨散人:[喵喵]</a>
-</h2>
-<p>//@六安自媒体: //@湖嗨散人:[喵喵]<br><br>RE: 其实我倒是不认为刘源是个精神分裂者，他不可能不记得杀父之仇，也不可能不知道体制之恶，但他为什么还要殊死捍卫？因为如果不这样，他就仅仅只是一条受伤的狗，早就饿死了，这就是体制造就的刘源，其实跟体制造就的刘少奇，又有什么不同呐？！<br><img src="http://ww3.sinaimg.cn/large/7fd6e271jw1f53668qcpvj208k097aaf.jpg"></p>
-<p>
-	<small> ============== 4小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3988932481543222" target="freeweibo-mirror">SPAM 不知真假，求证。。。</a>
-</h2>
-<p>SPAM 不知真假，求证。。。<br><img src="http://ww1.sinaimg.cn/large/006qDERpgw1f537n6wlpgj30hs0aemyd.jpg"></p>
-<p>
-	<small> ============== 4小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3988927079730472" target="freeweibo-mirror">【梁振英已就铜锣湾书店事件向内地致函表关注】香港特区行政长官…</a>
-</h2>
-<p>【梁振英已就铜锣湾书店事件向内地致函表关注】香港特区行政长官梁振英在今天表示，已经就铜锣湾书店事件向内地相关部门发出函件表达对事件的关注。函件主要包括四各方面的内容。 （分享自 @凤凰网） http://t.cn/R5pVEhd</p>
-<p>
-	<small> ============== 4小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3988921840604420" target="freeweibo-mirror">[喵喵]</a>
-</h2>
-<p>[喵喵]<br><br>RE: 其实我倒是不认为刘源是个精神分裂者，他不可能不记得杀父之仇，也不可能不知道体制之恶，但他为什么还要殊死捍卫？因为如果不这样，他就仅仅只是一条受伤的狗，早就饿死了，这就是体制造就的刘源，其实跟体制造就的刘少奇，又有什么不同呐？！<br><img src="http://ww3.sinaimg.cn/large/7fd6e271jw1f53668qcpvj208k097aaf.jpg"></p>
-<p>
-	<small> ============== 5小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3988920536128876" target="freeweibo-mirror">//@爱新觉罗载勋:回复@消沈阳:其实郑书记说的是误餐补助，…</a>
-</h2>
-<p>//@爱新觉罗载勋:回复@消沈阳:其实郑书记说的是误餐补助，不是请武警、请警察要花钱的意思，这容易误会！ //@消沈阳:最经典句子：“你以为请武警不要钱呐”。这也暴露了一些不应该暴露的情节。<br><br>RE: 即日起，本博连续刊出汕尾市委书记郑雁雄诉苦系列 http://t.cn/RqWQ486</p>
-<p>
-	<small> ============== 5小时前</small>
 </p>
 <table>
     <tr>
