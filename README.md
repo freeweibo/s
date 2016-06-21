@@ -37,6 +37,12 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3988859568288556" target="freeweibo-mirror">有意思的是…包子上台咁多年冇一年升過</a>
+</h2>
+<p>有意思的是…包子上台咁多年冇一年升過<br><img src="http://ww4.sinaimg.cn/large/006uEraQjw1f52zaypjpfj30ku0kuwgv.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3988856150241066" target="freeweibo-mirror">SPAM 很多人批评每年给外国人6500亿，不花在国人身上。…</a>
 </h2>
 <p>SPAM 很多人批评每年给外国人6500亿，不花在国人身上。很片面。每年8300亿维稳经费难道不是花在国人身上了吗？无知啊！</p>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3988751456284286" target="freeweibo-mirror">SPAM 最近剁手都救不了我了[礼物]</a>
 </h2>
 <p>SPAM 最近剁手都救不了我了[礼物]</p>
-<p>
-	<small> ============== 10小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3988741054093598" target="freeweibo-mirror">错别字太多，看不懂！[哈哈] //@侯雁濒:回复@立场H旁观…</a>
-</h2>
-<p>错别字太多，看不懂！[哈哈] //@侯雁濒:回复@立场H旁观:坚决不惹南海美帝强大的双航母编队，铲除“腐败”会继续进行！ //@立场H旁观:南海美帝强大的双航母编队，可不是单单冲这那几块礁石争端来的，腐败透顶的大独裁者，小心的。。。//@丰理骨现: //@回头系列://@睡马66://@大道荣生: 分析有道理//@榆_<br><br>RE: 无坎事件村民被无情镇压的结局已无悬念，这中间不排除警C设套，然后故意激怒村民，再然后，你懂得。五年前的抗争为何能取得部分成果？那是在18大在即的节点，百姓、官员甚至广东的汪一把手还都不知道包子神马馅，彷徨当中，村民选举成功。而今经过7.09讼师劫，中央专案组，书店跨境失踪，有恃无恐了！<br><img src="http://ww1.sinaimg.cn/large/006irc9Wjw1f52ips5b0yj30r80kfn2x.jpg"></p>
 <p>
 	<small> ============== 10小时前</small>
 </p>
