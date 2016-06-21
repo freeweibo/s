@@ -107,7 +107,7 @@
 </h2>
 <p>天上有雷公，地上海陆丰。。<br><br>RE: HK的媒体朋友竟然不拿镇长当干部[阴险]http://t.cn/R5C141U</p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3988696279225384" target="freeweibo-mirror">//@天涯赵瑜:一声叹息。//@吴伟bj: 简直是仔卖爷田心…</a>
 </h2>
