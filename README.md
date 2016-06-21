@@ -29,7 +29,7 @@
 </h2>
 <p>SPAM 分享 [话筒]</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3988674309827072" target="freeweibo-mirror">SPAM [拍照][拍照]</a>
 </h2>
@@ -47,7 +47,7 @@
 </h2>
 <p>SPAM 反正我很同意这观点，这个夏天我要痩[泪流满面]</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3988614758892917" target="freeweibo-mirror">SPAM 那些你不知道 的秘密[可怜]</a>
 </h2>
