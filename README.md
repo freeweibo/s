@@ -23,11 +23,23 @@
 </h2>
 <p>SPAM //@一棵稻草-: //@一墙的距离://@东方夜鹰0006:抗争越激烈，老头越安全？</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3988697491593669" target="freeweibo-mirror">天上有雷公，地上海陆丰。。</a>
+</h2>
+<p>天上有雷公，地上海陆丰。。<br><br>RE: HK的媒体朋友竟然不拿镇长当干部[阴险]http://t.cn/R5C141U</p>
+<p>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3988685462569441" target="freeweibo-mirror">SPAM 分享 [话筒]</a>
 </h2>
 <p>SPAM 分享 [话筒]</p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3988679464941237" target="freeweibo-mirror">#博友爆料# [哈哈] //@杨宁远v:典型的流氓官员。 /…</a>
+</h2>
+<p>#博友爆料# [哈哈] //@杨宁远v:典型的流氓官员。 //@老头子在阙里:很像谁？大家都知道。[哈哈]衢州集聚区的。我不说大家都知道。@衢州集聚区 @衢州发布 @浙江发布<br><br>RE: 广东省陆丰市东海镇官员粗话辱骂记者，这种官员还配做人民公仆？告诉你！这种官员不查办，会严重损坏党的形象！@陆丰发布 [怒]http://t.cn/R5CFDBH</p>
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
@@ -124,18 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3988569410264866" target="freeweibo-mirror">郭飞雄绝食42天了，肯定已经用了鼻饲、灌食什么的招数了吧，但…</a>
 </h2>
 <p>郭飞雄绝食42天了，肯定已经用了鼻饲、灌食什么的招数了吧，但是也没人知道。</p>
-<p>
-	<small> ============== 10小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3988569213493641" target="freeweibo-mirror">新书</a>
-</h2>
-<p>新书<br><img src="http://ww2.sinaimg.cn/large/005LF6Ssgw1f521y7riioj30c81k8wny.jpg"></p>
-<p>
-	<small> ============== 10小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3988567879706616" target="freeweibo-mirror">也可能是一种净化，爱国网友通过此类事件把你这种公知倾向的人筛…</a>
-</h2>
-<p>也可能是一种净化，爱国网友通过此类事件把你这种公知倾向的人筛选出来，然后进行淘汰，剩下的具有正能量的人就可以一起愉快地建设社会主义了。这是他们的阳谋<br><br>RE: 【这个社会正在一天天被撕裂】任何重大危机发生之前，至少有26个明显征兆，这是危机学的一个定律。雷洋死亡算一个吧，欧伯被嫖算吧，深圳警察查身份证滥用权力算吧，甚至今天报的大学生因火车票丢失，在火车站出站时被要求补票，这类小事都是征兆，这些事件把公权置于人心的对立面，社会一天天被撕裂</p>
 <p>
 	<small> ============== 10小时前</small>
 </p>
