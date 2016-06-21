@@ -53,7 +53,7 @@
 </h2>
 <p>SPAM 发布了头条文章：《显微镜下的痘痘，一颗痘痘》 http://t.cn/R5NOb0P</p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3988754974463066" target="freeweibo-mirror">SPAM //@古哥在线:。。。</a>
 </h2>
