@@ -77,7 +77,7 @@
 </h2>
 <p>SPAM //@战争史研究WHS:23333[笑cry][笑cry] //@冈瓦纳:希望会后能保持下去的 //@刘鑫Mars: 高级黑 //@齐梁后尘:哈哈我绍兴师爷V5<br><br>RE: 为了迎接G20浙江也是拼了....入住绍兴柯桥一个酒店...前台的这段话，笑到翔都出来了....太有才了...请认真读完第二张图片上的字.....<br><img src="http://ww4.sinaimg.cn/large/775e0851gw1f523kprqgkj20qo0zkguz.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3988719159777801" target="freeweibo-mirror">无坎事件村民被无情镇压的结局已无悬念，这中间不排除警C设套，…</a>
 </h2>
