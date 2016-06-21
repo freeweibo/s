@@ -35,7 +35,7 @@
 </h2>
 <p>天上有雷公，地上海陆丰。。<br><br>RE: HK的媒体朋友竟然不拿镇长当干部[阴险]http://t.cn/R5C141U</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3988685462569441" target="freeweibo-mirror">SPAM 分享 [话筒]</a>
 </h2>
