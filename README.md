@@ -19,9 +19,27 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3988871266343786" target="freeweibo-mirror">愚蠢的当局，这就是在给自己掘墓啊！看看历史，蠢蛋们，近现代几…</a>
+</h2>
+<p>愚蠢的当局，这就是在给自己掘墓啊！看看历史，蠢蛋们，近现代几乎每次颠覆，都从广东某地的运动开始都啊~//@只配叫猪_://@小小猫咪去钓鱼2://@小榄张华杰://@大川1967://@孤独哥A11: 转发微博<br><br>RE: 16:15出發，由學生打頭鎮。<br><img src="http://ww3.sinaimg.cn/large/006upfIPjw1f52za6sq3vj30qo1bgtgv.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3988871031468542" target="freeweibo-mirror">//@王甫律师: 采访政府机关可以用“申请”，一个自然村落村…</a>
 </h2>
 <p>//@王甫律师: 采访政府机关可以用“申请”，一个自然村落村民自愿接受媒体采访，向谁申请？申请的法律依据何在？<br><br>RE: TVB姓黨的也被點名啊…看來這維穩傳媒不好當…隨時被犧牲<br><img src="http://ww4.sinaimg.cn/large/006uEraQjw1f52vh7332rj30qo3q6dzt.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3988870515276731" target="freeweibo-mirror">采访政府机关可以用“申请”，一个自然村落村民自愿接受媒体采访…</a>
+</h2>
+<p>采访政府机关可以用“申请”，一个自然村落村民自愿接受媒体采访，向谁申请？申请的法律依据何在？<br><br>RE: TVB姓黨的也被點名啊…看來這維穩傳媒不好當…隨時被犧牲<br><img src="http://ww4.sinaimg.cn/large/006uEraQjw1f52vh7332rj30qo3q6dzt.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3988870502680665" target="freeweibo-mirror">SPAM 回覆@畅游的彭萨科拉:你仅仅在体制的粪坑里！还“顶…</a>
+</h2>
+<p>SPAM 回覆@畅游的彭萨科拉:你仅仅在体制的粪坑里！还“顶端”.[偷笑] //@畅游的彭萨科拉:智商，我发现狗粉脑子怎么都不好用。</p>
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
@@ -34,6 +52,12 @@
 	<a href="https://freeweibo.com/weibo/3988865544416396" target="freeweibo-mirror">清理非法采访？ //@自由职业者在浦东: //@王瑞鸿ok二…</a>
 </h2>
 <p>清理非法采访？ //@自由职业者在浦东: //@王瑞鸿ok二树二世界: //@明十三60890: 嗯，人民網為端傳媒不遺餘力的宣傳，感謝！這是個年輕的媒體，希望大家多關心！端傳媒在文字和圖片都能給予讀者很高的享受[嘻嘻] //@牆角爪爪:回复@行杉一久:舔的姿勢不對也不行[笑cry] //@行杉一久:连cctvb都…[挖鼻]<br><br>RE: TVB姓黨的也被點名啊…看來這維穩傳媒不好當…隨時被犧牲<br><img src="http://ww4.sinaimg.cn/large/006uEraQjw1f52vh7332rj30qo3q6dzt.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3988863335120777" target="freeweibo-mirror">SPAM 【丢人丢成国耻了！】波兰民众在中国大使馆和广场抗议…</a>
+</h2>
+<p>SPAM 【丢人丢成国耻了！】波兰民众在中国大使馆和广场抗议6.21玉林大屠杀！Cruelty Not Tradition Stop Yulin （残忍、不是传统，阻止玉林 ！） ；POLAND SAYS NO！TO YULIN（波兰对玉林说不 ！）。中国政府应彻查玉林政府和黑色产业链！迅即颁发《反对虐待动物法》！！！@人民日报 @央视新闻 @新华网 ...全文： http://m.weibo.cn/1220970732/3988863335120777<br><img src="http://ww2.sinaimg.cn/large/48c688ecgw1f52zpe4avej20hs1cxtg7.jpg"></p>
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
@@ -59,7 +83,7 @@
 </h2>
 <p>五年前，乌欠人以命相搏，拿回部分公民权，重选村委会，实现地方自治。但是，土地争端一直悬而未决。2016年5月，疑为开发商后台，前省委副书记朱明国被判刑，村长看到希望，欲率众上访。不料，当局抢先下手，抓了村长，以亲情要挟，逼他认罪。并调集大批特警维稳。这是一场打不赢的战争。</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3988845429759156" target="freeweibo-mirror">央视法院判了？//@玉龙山人:那村民为何还出来游行？//@纪…</a>
 </h2>
@@ -114,30 +138,6 @@
 <p>SPAM //@小平崔律师://@干卫东律师:真没背好。[衰]//@学习老王:读得不顺，背得不牢，差评！<br><br>RE: "乌坎书记视频认罪！套路！ "#秒拍网事# 我的秒拍作品,一起来看~ http://t.cn/R5N8xGz（使用#秒拍#录制）</p>
 <p>
 	<small> ============== 7小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3988795444980486" target="freeweibo-mirror">SPAM 看样子味道不错。 //@粉色小金龙:咬这亿口、牙酸…</a>
-</h2>
-<p>SPAM 看样子味道不错。 //@粉色小金龙:咬这亿口、牙酸酸的！ //@玩主-V: //@Soldier-shanxi: 转发微博<br><br>RE: 欢迎配文。<br><img src="http://ww2.sinaimg.cn/large/67c53c97gw1f52nwhfts9j20hc09rt9f.jpg"></p>
-<p>
-	<small> ============== 7小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3988780203593920" target="freeweibo-mirror">"乌坎书记视频认罪！套路！ "#秒拍网事# 我的秒拍作品,一…</a>
-</h2>
-<p>"乌坎书记视频认罪！套路！ "#秒拍网事# 我的秒拍作品,一起来看~ http://t.cn/R5N8xGz（使用#秒拍#录制）</p>
-<p>
-	<small> ============== 8小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3988771525591502" target="freeweibo-mirror">SPAM 这种赶脚，用钓迷的眼光看以为在下重窝，守巨物。也像…</a>
-</h2>
-<p>SPAM 这种赶脚，用钓迷的眼光看以为在下重窝，守巨物。也像是在打路亚[doge]//@上海老顽童吴德余:不蠢！想想能肥了多少掮客//@静娅_：三千多亿，一人一万，可资助三千多万孩子读中小学。委国人口才三千多万，仅向中国就借贷650亿美元，高达三千多亿人民币，摊到每人一万了。有多蠢的脑子才会这样不断借给它<br><br>RE: 【650亿美元收不回，该问责？】一个寅吃卯粮的政权，为何向其累计借出650亿美元？商业贷款抑或政治支持？如果是后者，必然打水漂！<br><img src="http://ww2.sinaimg.cn/large/6a80bfcdgw1f521cfw79kj20qo1bf7da.jpg"></p>
-<p>
-	<small> ============== 8小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3988756521945028" target="freeweibo-mirror">SPAM 发布了头条文章：《显微镜下的痘痘，一颗痘痘》 ht…</a>
-</h2>
-<p>SPAM 发布了头条文章：《显微镜下的痘痘，一颗痘痘》 http://t.cn/R5NOb0P</p>
-<p>
-	<small> ============== 9小时前</small>
 </p>
 <table>
     <tr>
