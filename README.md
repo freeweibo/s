@@ -41,7 +41,7 @@
 </h2>
 <p>SPAM 有喉舌、有老板、有大威、有大官、有美帝、有汉奸、有雄心、有使命、有团结、有配合……任由这帮东西折腾，中国还能安宁吗？</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3989092544967112" target="freeweibo-mirror">神配图。</a>
 </h2>
