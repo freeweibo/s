@@ -19,6 +19,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3989215177796444" target="freeweibo-mirror">//@小平崔律师: 转发微博</a>
+</h2>
+<p>//@小平崔律师: 转发微博<br><br>RE: （愤怒）@葛永喜律师 消息：乌坎村书记林祖恋儿子林雄、林伟、林壮委托我为林祖恋的辩护人，但今天上午十一点半左右，我们所主任谢乐安律师打电话给我，告知林壮汇来的律师费已经被司法局强令退回。主任告知，司法局要求凡涉乌坎的案子一律不出手续。 http://t.cn/R2Wi6xp</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3989192461627649" target="freeweibo-mirror">//@毕明雄:一遇敏感案子就把宪法和法律忘到九霄云外了！//…</a>
 </h2>
 <p>//@毕明雄:一遇敏感案子就把宪法和法律忘到九霄云外了！//@邱旭瑜律师:无耻联手，联手无耻！</p>
@@ -95,13 +101,13 @@
 </h2>
 <p>//@周泽律师:吃着律师的饭，砸律师的锅！//@杨学林律师：该司法局砸律师的饭碗，实在可恶。</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3989163353032626" target="freeweibo-mirror">//@忆梅下西舟: //@GM中国: [抓狂]</a>
 </h2>
 <p>//@忆梅下西舟: //@GM中国: [抓狂]</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3989162337672366" target="freeweibo-mirror">这就是牠们口里的淫quan//@北京律师王兴:撕法局 //@…</a>
 </h2>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3989154977579170" target="freeweibo-mirror">肉包子喂熊 庆丰包子店开到俄罗斯</a>
 </h2>
 <p>肉包子喂熊 庆丰包子店开到俄罗斯</p>
-<p>
-	<small> ============== 6小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3989153475691440" target="freeweibo-mirror">【好文分享】1、蒋介石的经典瞬间，全套照片演绎他的一生。2、…</a>
-</h2>
-<p>【好文分享】1、蒋介石的经典瞬间，全套照片演绎他的一生。2、手机将在5年后消失！3、法国人竟这样区分中国人和日本人，看完脸红了！4、中国历史上令人动容的10大悲壮瞬间！5、 他为 了她，放弃王位，做她侍卫70年！6、因为印度，中国已经没了退路！！更多精彩请添加关注：zhebsls<br><img src="http://ww2.sinaimg.cn/large/9647a31ejw1f53x255mrij20j60y3mze.jpg"></p>
 <p>
 	<small> ============== 6小时前</small>
 </p>
