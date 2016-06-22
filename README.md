@@ -119,7 +119,7 @@
 </h2>
 <p>神配图。<br><br>RE: 【易锐民：港人只剩移民一条路了？】一连串令港人透不过气来的政治新闻，其实都围绕着一个事实：北京治港政策的“急速左转”。港人难以接受大陆的价值观及处事手法。除了无论如何都会力挺北京的那一群之外，其余的港人，除了无声抵抗或倾力周旋之外，到最后，可能就只有移民了。http://t.cn/R5pOLW1<br><img src="http://ww4.sinaimg.cn/large/6298156bjw1f53os6xkzaj20i80pd0vv.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3989091014003769" target="freeweibo-mirror">SPAM @晓涛一念</a>
 </h2>
