@@ -65,7 +65,7 @@
 </h2>
 <p>呵呵，那媒体认定无罪呢？不骂流氓，骂打流氓的，有趣。//@张效羽:电视认罪是违反法治的，因为未经审判任何人不得被认定为犯罪。让犯罪嫌疑人在人身自由受到限制期间出来认罪，实际上就是认为未经法院判决仅凭侦查阶段未经质证的证据（包括口供）就能定罪了、就能对外宣示铁案了。连以前的游街还不如<br><br>RE: 电视认罪发明于ISIS，人质鲜有不悔罪认罪的。<br><img src="http://ww3.sinaimg.cn/large/006uSESAgw1f53lu9edwbj30dc0a0mxf.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3989105631026718" target="freeweibo-mirror">SPAM 不认罪的上不了电视</a>
 </h2>
