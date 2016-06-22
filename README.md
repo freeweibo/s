@@ -19,11 +19,23 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3989330810316117" target="freeweibo-mirror">SPAM 八卦~转需</a>
+</h2>
+<p>SPAM 八卦~转需</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3989326407056543" target="freeweibo-mirror">SPAM 真相了！[右哼哼]</a>
+</h2>
+<p>SPAM 真相了！[右哼哼]</p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3989314977348505" target="freeweibo-mirror">既然如此，那就所有的媒体都一视同仁吧，连自媒体也一样。别一方…</a>
 </h2>
 <p>既然如此，那就所有的媒体都一视同仁吧，连自媒体也一样。别一方可以通过记者大说特说，另一方却必须守法。一方可以通过自己和律师在微博上大声质疑，却不允许另一方通过媒体回应质疑。//@你最大的梦想是什么: 这个主要是程序问题，既然依法治国，就要把法律摆上面，是法庭宣判为准。现在搞这一出是什<br><br>RE: 【观察｜乌坎村支书“电视认罪”开历史倒车？舆论怎么说】舆论指出，“电视认罪”俨然就是“媒体审判”，凌驾于司法程序正义。外媒报道指出“现在电视媒体本身的公信力就成问题，这样做的效果只会适得其反”，认为“利用媒体对典型案例进行宣传是必要的，但选择宣传的方式更重要”http://t.cn/R50ipA9<br><img src="http://ww4.sinaimg.cn/large/9e0d48ebjw1f549re93coj20ci08mt9e.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3989312313301386" target="freeweibo-mirror">//@虎啸周D: //@水兵李铭: //@沥泉枪挑:绑架了你…</a>
 </h2>
@@ -124,18 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3989247814151266" target="freeweibo-mirror">SPAM //@狼狼我不服: 此地无银[挖鼻]</a>
 </h2>
 <p>SPAM //@狼狼我不服: 此地无银[挖鼻]</p>
-<p>
-	<small> ============== 8小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3989246451099554" target="freeweibo-mirror">SPAM 《写给刘春》  那个著名的刘春,在一个小时前刚刚给…</a>
-</h2>
-<p>SPAM 《写给刘春》  那个著名的刘春,在一个小时前刚刚给我写了一段话,照录如下: “最讨厌人拿合影说事，你跟人合过影，就是朋友？就是同党？照这么说，我当年参加活动，经常被要求合影，那同党也太多了吧？我现在混得不屌照，还常跟人合影呢，然并卵，人家会把我当死党吗？我跟你认识多年，似乎也和合影过，...全文： http://m.weibo.cn/1263406744/3989246451099554</p>
-<p>
-	<small> ============== 8小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3989242697247606" target="freeweibo-mirror">有人说，林祖恋已经认罪了，你们这些搞法律的人怎么还不相信呢？…</a>
-</h2>
-<p>有人说，林祖恋已经认罪了，你们这些搞法律的人怎么还不相信呢？是的，认罪的犯罪嫌疑人很多，比如呼格吉勒图，比如念斌，比如陈满，但是后来都被证据证明是无罪的。所以，法律人只信证据，不信认罪。 http://t.cn/R5NgNZc</p>
 <p>
 	<small> ============== 8小时前</small>
 </p>
