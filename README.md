@@ -35,7 +35,7 @@
 </h2>
 <p>//@程中柳://@斯韦爵: //@俗家人释永乖://@浩正刘臻: //@上海老顽童吴德余://@守候者说://@公民-LEO王斌3: //@广东陈小生A: 在当代世界历史潮流中，还用这种龌龊的、丧尽天良的手段来达到目的的组织，不单单是世界人民唾弃你们，就是他们自己内部的人，也是非常看不起他的！<br><br>RE: 看见孙子也进来了，爷爷即自证其罪。在潮汕那种宗族社会，孙子是爷，换个人也许吓唬一下要搞他孙子就瘫了。不相信他认的罪是吧？要的就是这效果，别以为洁身自好就能振臂一呼。斯大林大清洗时乌克兰书鸡扛住严刑拷打，但肃反人员将其16岁女儿带到他面前强奸，立马崩溃，签字认罪，三天后女儿卧轨自杀。<br><img src="http://ww1.sinaimg.cn/large/006itGuwjw1f53q6ajw6cj30hs0a03yw.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3989119383763420" target="freeweibo-mirror">鞑靼文化的秘密就是恶棍统治，败坏文明社会的习俗，最终使人类无…</a>
 </h2>
@@ -71,7 +71,7 @@
 </h2>
 <p>SPAM 不认罪的上不了电视<br><br>RE: 电视认罪发明于ISIS，人质鲜有不悔罪认罪的。<br><img src="http://ww3.sinaimg.cn/large/006uSESAgw1f53lu9edwbj30dc0a0mxf.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3989104732962072" target="freeweibo-mirror">这就是所谓的一国两制？</a>
 </h2>
@@ -125,7 +125,7 @@
 </h2>
 <p>SPAM @晓涛一念<br><br>RE: #西藏發生了什麼#<br><img src="http://ww3.sinaimg.cn/large/006uEraQjw1f52yl0ejk7j30df7pskjl.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3989087789024862" target="freeweibo-mirror">//@王楚襄在晋国: //@律师付永刚:真他妈的无耻到极点 …</a>
 </h2>
