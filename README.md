@@ -137,7 +137,7 @@
 </h2>
 <p>SPAM //@石扉客2014: //@尹鸿: ISIS绝对是山寨，发明权不归他们。<br><br>RE: 电视认罪发明于ISIS，人质鲜有不悔罪认罪的。<br><img src="http://ww3.sinaimg.cn/large/006uSESAgw1f53lu9edwbj30dc0a0mxf.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p>
 <table>
     <tr>
