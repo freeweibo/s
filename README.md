@@ -37,6 +37,12 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3989100736026210" target="freeweibo-mirror">SPAM 有喉舌、有老板、有大威、有大官、有美帝、有汉奸、有…</a>
+</h2>
+<p>SPAM 有喉舌、有老板、有大威、有大官、有美帝、有汉奸、有雄心、有使命、有团结、有配合……任由这帮东西折腾，中国还能安宁吗？</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3989081467580783" target="freeweibo-mirror">【易锐民：港人只剩移民一条路了？】一连串令港人透不过气来的政…</a>
 </h2>
 <p>【易锐民：港人只剩移民一条路了？】一连串令港人透不过气来的政治新闻，其实都围绕着一个事实：北京治港政策的“急速左转”。港人难以接受大陆的价值观及处事手法。除了无论如何都会力挺北京的那一群之外，其余的港人，除了无声抵抗或倾力周旋之外，到最后，可能就只有移民了。http://t.cn/R5pOLW1<br><img src="http://ww4.sinaimg.cn/large/6298156bjw1f53os6xkzaj20i80pd0vv.jpg"></p>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3988957496659958" target="freeweibo-mirror">SPAM 生日快乐！</a>
 </h2>
 <p>SPAM 生日快乐！</p>
-<p>
-	<small> ============== 11小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3988956016554217" target="freeweibo-mirror">SPAM 爱国者的悲哀就在于此！//@司马南: 您这句话让人…</a>
-</h2>
-<p>SPAM 爱国者的悲哀就在于此！//@司马南: 您这句话让人有一种想哭的感觉.握手！//@珂马拉色:现在知道了吧？“精忠”报不了“国”的！</p>
 <p>
 	<small> ============== 11小时前</small>
 </p>
