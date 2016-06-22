@@ -23,19 +23,25 @@
 </h2>
 <p>//@毕明雄:一遇敏感案子就把宪法和法律忘到九霄云外了！//@邱旭瑜律师:无耻联手，联手无耻！</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3989192134456982" target="freeweibo-mirror">一遇敏感案子就把宪法和法律忘到九霄云外了！//@邱旭瑜律师:…</a>
 </h2>
 <p>一遇敏感案子就把宪法和法律忘到九霄云外了！//@邱旭瑜律师:无耻联手，联手无耻！</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3989190607642033" target="freeweibo-mirror">那边让人在电视上认罪，这边干涉人家聘请律师，很不正常。 //…</a>
 </h2>
 <p>那边让人在电视上认罪，这边干涉人家聘请律师，很不正常。 //@北京律师王兴:撕法局 //@任方言:转发微博</p>
 <p>
 	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3989173055046529" target="freeweibo-mirror">电视认罪，抓家属，司法局强行让律所退费不让请律师……这是与依…</a>
+</h2>
+<p>电视认罪，抓家属，司法局强行让律所退费不让请律师……这是与依法治国唱反调，是公然的违法违宪</p>
+<p>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3989166238212430" target="freeweibo-mirror">//@宏鑫88: //@討厭鏡囝://@马路客2: //@晋…</a>
 </h2>
@@ -107,7 +113,7 @@
 </h2>
 <p>SPAM 看图，不说话！<br><img src="http://ww4.sinaimg.cn/large/85dec6cegw1f53w94m2srj20dw09zmy4.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3989140209493674" target="freeweibo-mirror">SPAM 最修身 [心]</a>
 </h2>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3989129660415409" target="freeweibo-mirror">他们是到学校讲核心价值观吧//@湖嗨散人: //@公路美学:…</a>
 </h2>
 <p>他们是到学校讲核心价值观吧//@湖嗨散人: //@公路美学: [围观][围观]<br><br>RE: 【仅存的无耻】据网友昨夜爆料，几位政府人员在乌坎学校逼让学生签家长名字，指证林祖恋贪污，被及时赶到的乌坎村民抓了个正着。村民们愤怒的呵斥道：你工作证拿来。眼镜男：我没带。村民：你是什么单位的？为什么逼学生签字？眼镜难无言以对。微评：这一幕，见证了什么叫无耻！http://t.cn/R5piZ3U<br><img src="http://ww2.sinaimg.cn/large/e59a2a43gw1f53sdiwoogj20og0b4dh7.jpg"></p>
-<p>
-	<small> ============== 6小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3989128204641575" target="freeweibo-mirror">SPAM //@石扉客2014: //@尹鸿: ISIS绝对…</a>
-</h2>
-<p>SPAM //@石扉客2014: //@尹鸿: ISIS绝对是山寨，发明权不归他们。<br><br>RE: 电视认罪发明于ISIS，人质鲜有不悔罪认罪的。<br><img src="http://ww3.sinaimg.cn/large/006uSESAgw1f53lu9edwbj30dc0a0mxf.jpg"></p>
 <p>
 	<small> ============== 6小时前</small>
 </p>
