@@ -41,7 +41,7 @@
 </h2>
 <p>回复@MCT陈:[赞] //@湖嗨散人: //@公路美学: [围观][围观]<br><br>RE: 【仅存的无耻】据网友昨夜爆料，几位政府人员在乌坎学校逼让学生签家长名字，指证林祖恋贪污，被及时赶到的乌坎村民抓了个正着。村民们愤怒的呵斥道：你工作证拿来。眼镜男：我没带。村民：你是什么单位的？为什么逼学生签字？眼镜难无言以对。微评：这一幕，见证了什么叫无耻！http://t.cn/R5piZ3U<br><img src="http://ww2.sinaimg.cn/large/e59a2a43gw1f53sdiwoogj20og0b4dh7.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3989133162310666" target="freeweibo-mirror">//@展江:法大。//@丰佐先生: //@罗九经: [嘻嘻]…</a>
 </h2>
@@ -125,7 +125,7 @@
 </h2>
 <p>呵呵，那媒体认定无罪呢？不骂流氓，骂打流氓的，有趣。//@张效羽:电视认罪是违反法治的，因为未经审判任何人不得被认定为犯罪。让犯罪嫌疑人在人身自由受到限制期间出来认罪，实际上就是认为未经法院判决仅凭侦查阶段未经质证的证据（包括口供）就能定罪了、就能对外宣示铁案了。连以前的游街还不如<br><br>RE: 电视认罪发明于ISIS，人质鲜有不悔罪认罪的。<br><img src="http://ww3.sinaimg.cn/large/006uSESAgw1f53lu9edwbj30dc0a0mxf.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3989105631026718" target="freeweibo-mirror">SPAM 不认罪的上不了电视</a>
 </h2>
