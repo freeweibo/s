@@ -23,7 +23,7 @@
 </h2>
 <p>//@忆梅下西舟: //@GM中国: [抓狂]</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3989156517072832" target="freeweibo-mirror">雷0洋案至少在决定由检察院立案收审时就已经搞清楚了，本来就不…</a>
 </h2>
@@ -71,7 +71,7 @@
 </h2>
 <p>//@展江:法大。//@丰佐先生: //@罗九经: [嘻嘻][嘻嘻]环球时报承认乌坎事件从没依法处理过，这次恐怕要依法了?<br><br>RE: 环球“黑”的漂亮！<br><img src="http://ww4.sinaimg.cn/large/006p6HWsgw1f539cu0w8xj30k00df41v.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3989129660415409" target="freeweibo-mirror">他们是到学校讲核心价值观吧//@湖嗨散人: //@公路美学:…</a>
 </h2>
