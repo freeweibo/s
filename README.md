@@ -77,7 +77,7 @@
 </h2>
 <p>SPAM 生日快乐！</p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3988956016554217" target="freeweibo-mirror">SPAM 爱国者的悲哀就在于此！//@司马南: 您这句话让人…</a>
 </h2>
