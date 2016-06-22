@@ -35,7 +35,7 @@
 </h2>
 <p>想练好口语，摆脱字幕看美剧的同学，这套LAST计划值得一试，思路很独特，看下面视频。</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3989274498052911" target="freeweibo-mirror">/[ok]/@老马迷途1: 有理有据。作为一个法学院毕业生及…</a>
 </h2>
@@ -59,7 +59,7 @@
 </h2>
 <p>SPAM //@狼狼我不服: 此地无银[挖鼻]</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3989246451099554" target="freeweibo-mirror">SPAM 《写给刘春》  那个著名的刘春,在一个小时前刚刚给…</a>
 </h2>
