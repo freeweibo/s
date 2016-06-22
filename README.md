@@ -125,7 +125,7 @@
 </h2>
 <p>【观察｜乌坎村支书“电视认罪”开历史倒车？舆论怎么说】舆论指出，“电视认罪”俨然就是“媒体审判”，凌驾于司法程序正义。外媒报道指出“现在电视媒体本身的公信力就成问题，这样做的效果只会适得其反”，认为“利用媒体对典型案例进行宣传是必要的，但选择宣传的方式更重要”http://t.cn/R50ipA9<br><img src="http://ww4.sinaimg.cn/large/9e0d48ebjw1f549re93coj20ci08mt9e.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3989262191596827" target="freeweibo-mirror">//@LAK啊://@阿花的伊萨卡岛:谢谢各位师友。</a>
 </h2>
