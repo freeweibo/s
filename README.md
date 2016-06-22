@@ -19,11 +19,17 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3989262191596827" target="freeweibo-mirror">//@LAK啊://@阿花的伊萨卡岛:谢谢各位师友。</a>
+</h2>
+<p>//@LAK啊://@阿花的伊萨卡岛:谢谢各位师友。<br><br>RE: 发布了头条文章：《若干法学学者关于夏霖律师被控诈骗罪一案的法律意见书》 http://t.cn/R50JTNP</p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3989247814151266" target="freeweibo-mirror">SPAM //@狼狼我不服: 此地无银[挖鼻]</a>
 </h2>
 <p>SPAM //@狼狼我不服: 此地无银[挖鼻]</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3989246451099554" target="freeweibo-mirror">SPAM 《写给刘春》  那个著名的刘春,在一个小时前刚刚给…</a>
 </h2>
@@ -107,7 +113,7 @@
 </h2>
 <p>//@打奥特曼de小怪兽:傻逼的两种状态：没上电视之前，哎呦，你这里面有什么黑幕，是不是迫害，敢不敢公开？.....上完电视之后，啊呸，你这是舆论审判，是游街示众，是践踏人权！....[doge]<br><br>RE: 【中国司法工作者对“电视认罪”表示忧虑】一位在大陆从事司法工作的基层工作者认为，“电视认罪”被玩坏了，“现在电视媒体本身的公信力就成问题，这样做的效果只会适得其反。”一般的中产阶级人士也对“电视认罪”十分反感，认为这无异于“游街示众、批倒批臭”。专业的法律人士，则都不讳言电视认罪...全文： http://m.weibo.cn/1654134123/3989134781904249<br><img src="http://ww2.sinaimg.cn/large/6298156bjw1f53uwhim6kj20dc0a0q32.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3989166238212430" target="freeweibo-mirror">//@宏鑫88: //@討厭鏡囝://@马路客2: //@晋…</a>
 </h2>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3989162337672366" target="freeweibo-mirror">这就是牠们口里的淫quan//@北京律师王兴:撕法局 //@…</a>
 </h2>
 <p>这就是牠们口里的淫quan//@北京律师王兴:撕法局 //@任方言:转发微博</p>
-<p>
-	<small> ============== 9小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3989156763749769" target="freeweibo-mirror">#博友爆料# [话筒][话筒][话筒]//@鸟语花香ww：我…</a>
-</h2>
-<p>#博友爆料# [话筒][话筒][话筒]//@鸟语花香ww：我们e租宝人不会放弃，本金不回，wq维权不止@戴维18969280999 @台湾驻大陆记者微博 @审查网 @最高人民检察院 @北京九叔 @小道妹子 @平语近人MZ @月满长空照远山 @林国雅微博<br><br>RE: 【今日北京信访】在这片土地上你们可以以非法之名查封正在运营的公司，冻结九十万人数百亿私人财产；在这片土地上，法院未判你们可以让人央视认罪。我们，哪怕再微弱也要发出自己的声音----公平，公正，公开处理e租宝事件。 http://t.cn/R2dLi1Q<br><img src="http://ww3.sinaimg.cn/large/4aaa10f3gw1f53r6lgxigj20go0m83zw.jpg"></p>
 <p>
 	<small> ============== 9小时前</small>
 </p>
