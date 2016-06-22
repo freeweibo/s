@@ -83,13 +83,13 @@
 </h2>
 <p>SPAM //@石扉客2014: //@尹鸿: ISIS绝对是山寨，发明权不归他们。<br><br>RE: 电视认罪发明于ISIS，人质鲜有不悔罪认罪的。<br><img src="http://ww3.sinaimg.cn/large/006uSESAgw1f53lu9edwbj30dc0a0mxf.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3989128138442801" target="freeweibo-mirror">//@公路美学: [围观][围观]</a>
 </h2>
 <p>//@公路美学: [围观][围观]<br><br>RE: 【仅存的无耻】据网友昨夜爆料，几位政府人员在乌坎学校逼让学生签家长名字，指证林祖恋贪污，被及时赶到的乌坎村民抓了个正着。村民们愤怒的呵斥道：你工作证拿来。眼镜男：我没带。村民：你是什么单位的？为什么逼学生签字？眼镜难无言以对。微评：这一幕，见证了什么叫无耻！http://t.cn/R5piZ3U<br><img src="http://ww2.sinaimg.cn/large/e59a2a43gw1f53sdiwoogj20og0b4dh7.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3989124450733998" target="freeweibo-mirror">原来是引进的？[吃惊] //@香港记者秦风:[哈哈][goo…</a>
 </h2>
@@ -125,13 +125,13 @@
 </h2>
 <p>警惕打着五毛、自干五的名义激化矛盾者//@198n: 哈哈。五毛利好 //@鲁振旺：以后新闻app的评论里，肯定祖国一片红，江山如此娇，外国那么乱，官员清廉好……//@曹增辉: //@来去之间:微博作为媒体平台，不会替媒体和机构管理评论，媒体需要按相关规定自主管理博文评论，管不了的可以关闭评论功能……</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3989113176467884" target="freeweibo-mirror">【仅存的无耻】据网友昨夜爆料，几位政府人员在乌坎学校逼让学生…</a>
 </h2>
 <p>【仅存的无耻】据网友昨夜爆料，几位政府人员在乌坎学校逼让学生签家长名字，指证林祖恋贪污，被及时赶到的乌坎村民抓了个正着。村民们愤怒的呵斥道：你工作证拿来。眼镜男：我没带。村民：你是什么单位的？为什么逼学生签字？眼镜难无言以对。微评：这一幕，见证了什么叫无耻！http://t.cn/R5piZ3U<br><img src="http://ww2.sinaimg.cn/large/e59a2a43gw1f53sdiwoogj20og0b4dh7.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3989111347823644" target="freeweibo-mirror">//@蓝之子89://@伤心王2011: //@又有来来7:…</a>
 </h2>
