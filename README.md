@@ -23,7 +23,7 @@
 </h2>
 <p>//@忆梅下西舟: //@GM中国: [抓狂]</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3989156517072832" target="freeweibo-mirror">雷0洋案至少在决定由检察院立案收审时就已经搞清楚了，本来就不…</a>
 </h2>
@@ -49,6 +49,12 @@
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3989151361094418" target="freeweibo-mirror">SPAM 卧槽，原来是这样……天下无人不通共，唯有中宣是美分…</a>
+</h2>
+<p>SPAM 卧槽，原来是这样……天下无人不通共，唯有中宣是美分！[哈哈]日你娘老B，真相了……<br><img src="http://ww1.sinaimg.cn/large/0065lrTljw1f53ws724nsj30qo1bfguh.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3989146626205139" target="freeweibo-mirror">SPAM 看图，不说话！</a>
 </h2>
 <p>SPAM 看图，不说话！<br><img src="http://ww4.sinaimg.cn/large/85dec6cegw1f53w94m2srj20dw09zmy4.jpg"></p>
@@ -71,7 +77,7 @@
 </h2>
 <p>//@展江:法大。//@丰佐先生: //@罗九经: [嘻嘻][嘻嘻]环球时报承认乌坎事件从没依法处理过，这次恐怕要依法了?<br><br>RE: 环球“黑”的漂亮！<br><img src="http://ww4.sinaimg.cn/large/006p6HWsgw1f539cu0w8xj30k00df41v.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3989129660415409" target="freeweibo-mirror">他们是到学校讲核心价值观吧//@湖嗨散人: //@公路美学:…</a>
 </h2>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3989113176467884" target="freeweibo-mirror">【仅存的无耻】据网友昨夜爆料，几位政府人员在乌坎学校逼让学生…</a>
 </h2>
 <p>【仅存的无耻】据网友昨夜爆料，几位政府人员在乌坎学校逼让学生签家长名字，指证林祖恋贪污，被及时赶到的乌坎村民抓了个正着。村民们愤怒的呵斥道：你工作证拿来。眼镜男：我没带。村民：你是什么单位的？为什么逼学生签字？眼镜难无言以对。微评：这一幕，见证了什么叫无耻！http://t.cn/R5piZ3U<br><img src="http://ww2.sinaimg.cn/large/e59a2a43gw1f53sdiwoogj20og0b4dh7.jpg"></p>
-<p>
-	<small> ============== 6小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3989111347823644" target="freeweibo-mirror">//@蓝之子89://@伤心王2011: //@又有来来7:…</a>
-</h2>
-<p>//@蓝之子89://@伤心王2011: //@又有来来7://@天下第一港: //@画家陈浩东://@正义哨兵: //@香港陳平:枉為人師<br><br>RE: 「無恥無底線」几位政府人员在乌坎学校让学生签家长名字，指证林祖恋贪污。被乌坎村民抓个正着……校长不敢拒绝要学生签字，被到场的父母质问，无法拿出证据，哑口无言，称工作证没带来！ http://t.cn/R5piZ3U .</p>
 <p>
 	<small> ============== 6小时前</small>
 </p>
