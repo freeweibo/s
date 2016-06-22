@@ -19,6 +19,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3989296828570450" target="freeweibo-mirror">SPAM //@公民林静在维权4: //@重头再来5674:…</a>
+</h2>
+<p>SPAM //@公民林静在维权4: //@重头再来5674:呼唤真理//@南沧海seb:关注乌坎村事件:[围观] http://t.cn/R59d8Ly  http://t.cn/SJ0BEk  http://t.cn/R59d8LU<br><br>RE: 【9·21乌坎村事件_百度百科】全方位了解9·21乌坎村事件，尽在百度百科！ http://t.cn/R5p233E http://t.cn/R50C6fS .</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3989281166907915" target="freeweibo-mirror">看不到了。</a>
 </h2>
 <p>看不到了。<br><br>RE: 发布了头条文章：《若干法学学者关于夏霖律师被控诈骗罪一案的法律意见书》 http://t.cn/R50JTNP</p>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3989177533897764" target="freeweibo-mirror">//@干卫东律师:我是流氓我怕谁？//@学习老王:嘿嘿</a>
 </h2>
 <p>//@干卫东律师:我是流氓我怕谁？//@学习老王:嘿嘿</p>
-<p>
-	<small> ============== 10小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3989173055046529" target="freeweibo-mirror">电视认罪，抓家属，司法局强行让律所退费不让请律师……这是与依…</a>
-</h2>
-<p>电视认罪，抓家属，司法局强行让律所退费不让请律师……这是与依法治国唱反调，是公然的违法违宪</p>
 <p>
 	<small> ============== 10小时前</small>
 </p>
