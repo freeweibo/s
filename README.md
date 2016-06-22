@@ -47,7 +47,7 @@
 </h2>
 <p>//@蓝之子89://@伤心王2011: //@又有来来7://@天下第一港: //@画家陈浩东://@正义哨兵: //@香港陳平:枉為人師<br><br>RE: 「無恥無底線」几位政府人员在乌坎学校让学生签家长名字，指证林祖恋贪污。被乌坎村民抓个正着……校长不敢拒绝要学生签字，被到场的父母质问，无法拿出证据，哑口无言，称工作证没带来！ http://t.cn/R5piZ3U .</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3989109372003193" target="freeweibo-mirror">5毛们，要涨薪了。//@琢磨先生: 人民群众深恶痛绝[怒]/…</a>
 </h2>
@@ -58,6 +58,12 @@
 	<a href="https://freeweibo.com/weibo/3989107107446334" target="freeweibo-mirror">呵呵，那媒体认定无罪呢？不骂流氓，骂打流氓的，有趣。//@张…</a>
 </h2>
 <p>呵呵，那媒体认定无罪呢？不骂流氓，骂打流氓的，有趣。//@张效羽:电视认罪是违反法治的，因为未经审判任何人不得被认定为犯罪。让犯罪嫌疑人在人身自由受到限制期间出来认罪，实际上就是认为未经法院判决仅凭侦查阶段未经质证的证据（包括口供）就能定罪了、就能对外宣示铁案了。连以前的游街还不如<br><br>RE: 电视认罪发明于ISIS，人质鲜有不悔罪认罪的。<br><img src="http://ww3.sinaimg.cn/large/006uSESAgw1f53lu9edwbj30dc0a0mxf.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3989105631026718" target="freeweibo-mirror">SPAM 不认罪的上不了电视</a>
+</h2>
+<p>SPAM 不认罪的上不了电视<br><br>RE: 电视认罪发明于ISIS，人质鲜有不悔罪认罪的。<br><img src="http://ww3.sinaimg.cn/large/006uSESAgw1f53lu9edwbj30dc0a0mxf.jpg"></p>
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
@@ -125,17 +131,11 @@
 </h2>
 <p>【易锐民：港人只剩移民一条路了？】一连串令港人透不过气来的政治新闻，其实都围绕着一个事实：北京治港政策的“急速左转”。港人难以接受大陆的价值观及处事手法。除了无论如何都会力挺北京的那一群之外，其余的港人，除了无声抵抗或倾力周旋之外，到最后，可能就只有移民了。http://t.cn/R5pOLW1<br><img src="http://ww4.sinaimg.cn/large/6298156bjw1f53os6xkzaj20i80pd0vv.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3989077600505205" target="freeweibo-mirror">打开小米电视看欧洲杯，还有大奖拿，明天就是最后一波大奖了，小…</a>
 </h2>
 <p>打开小米电视看欧洲杯，还有大奖拿，明天就是最后一波大奖了，小米Max和小米手环2，等你的运气。</p>
-<p>
-	<small> ============== 5小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3989071007043862" target="freeweibo-mirror">乌坎村委书记林祖恋的认罪视频。原先立案就是受贿，认罪也是收受…</a>
-</h2>
-<p>乌坎村委书记林祖恋的认罪视频。原先立案就是受贿，认罪也是收受回扣，同种罪行要构成自首，只能是侦查机关掌握的线索所指向的犯罪事实不成立才行，林某明白不？http://t.cn/R5NEKzH</p>
 <p>
 	<small> ============== 5小时前</small>
 </p>
