@@ -71,7 +71,7 @@
 </h2>
 <p>//@天天见-明见://@chen迁迁19: //@封神记三十七叔:转发微博<br><br>RE: 日本学者披露中共在抗战中与日本暗通款曲<br><img src="http://ww2.sinaimg.cn/large/006mDVWlgw1f55ektjyuyj30up0vs118.jpg"></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3989621212160248" target="freeweibo-mirror">日本学者披露中共在抗战中与日本暗通款曲</a>
 </h2>
@@ -101,7 +101,7 @@
 </h2>
 <p>//@唐山辣评:转发微博<br><br>RE: 【乌坎村民写给林祖恋书记的一封信】恕不作评，请广大网友自己看、自己判断......<br><img src="http://ww2.sinaimg.cn/large/e59a2a43gw1f5571esycpj207q064gln.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3989581407290184" target="freeweibo-mirror">？！[馋嘴] //@共识网:[doge]</a>
 </h2>
