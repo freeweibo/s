@@ -59,7 +59,7 @@
 </h2>
 <p>//@专业起哄:转发微博<br><br>RE: 若干法学学者关于夏霖律师被控诈骗罪一案的法律意见书（图片版），多谢朋友们转发。<br><img src="http://ww3.sinaimg.cn/large/70043df0jw1f54dxtqwvxj20hs3mwb29.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3989451082512909" target="freeweibo-mirror">祈祷平安//@醉牦牛://@影色渔樵://@迟夙生律师: /…</a>
 </h2>
