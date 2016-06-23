@@ -59,7 +59,7 @@
 </h2>
 <p>法律不是裆贱牌！<br><br>RE: 若干法学学者关于夏霖律师被控诈骗罪一案的法律意见书（图片版），多谢朋友们转发。<br><img src="http://ww3.sinaimg.cn/large/70043df0jw1f54dxtqwvxj20hs3mwb29.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3989434501768348" target="freeweibo-mirror">今天雷洋七七。尸检的结果还未公布。真相，不仅对于他的家庭，他…</a>
 </h2>
@@ -101,7 +101,7 @@
 </h2>
 <p>这时候舆论要求媒体不要凌驾于司法正义上了？当媒体顺着舆论影响司法的时候他们怎么不说呢？自己做婊子，还要逼别人立牌坊，也是醉了。<br><br>RE: 【观察｜乌坎村支书“电视认罪”开历史倒车？舆论怎么说】舆论指出，“电视认罪”俨然就是“媒体审判”，凌驾于司法程序正义。外媒报道指出“现在电视媒体本身的公信力就成问题，这样做的效果只会适得其反”，认为“利用媒体对典型案例进行宣传是必要的，但选择宣传的方式更重要”http://t.cn/R50ipA9<br><img src="http://ww4.sinaimg.cn/large/9e0d48ebjw1f549re93coj20ci08mt9e.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3989308220465823" target="freeweibo-mirror">SPAM  //@吴伟bj://@绍兴师爷行北京://@光老…</a>
 </h2>
