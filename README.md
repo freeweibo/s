@@ -97,6 +97,12 @@
 <p>
 	<small> ============== 5小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3989554799175957" target="freeweibo-mirror">【乌坎村民写给林祖恋书记的一封信】恕不作评，请广大网友自己看…</a>
+</h2>
+<p>【乌坎村民写给林祖恋书记的一封信】恕不作评，请广大网友自己看、自己判断......<br><img src="http://ww2.sinaimg.cn/large/e59a2a43gw1f5571esycpj207q064gln.jpg"></p>
+<p>
+	<small> ============== 5小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3989549640733012" target="freeweibo-mirror">SPAM 逻辑上说，没体验过，一般不会知道…//@雾隐新峰:…</a>
 </h2>
 <p>SPAM 逻辑上说，没体验过，一般不会知道…//@雾隐新峰:[挖鼻]如果他没偷着吃过猪肉，怎么确定那是烤猪肉串的香味？ //@张忆安-龙战于野:他家吃羊肉的时候，我能掀他家的桌子么？<br><br>RE: 【猪肉串味道飘到自家中 回族男子怒掀烧烤桌】山东泰安的尹某在公路南边开了一家烧烤店，住在对面的回族男子李某称，其烤猪肉串时味道经常飘到自己家中，影响到了正常生活。双方发生争吵，李某一怒之下将一烧烤桌子掀翻。经民警调解，李某表示道歉，尹某也表示放弃烤猪肉串。http://t.cn/R5Oym2x<br><img src="http://ww2.sinaimg.cn/large/b5f0eda6jw1f554t8n8wsj20af064wew.jpg"></p>
@@ -132,12 +138,6 @@
 <p>SPAM 超柔软的蕾丝上衣，最近一直被问黑色白色选哪个色好看？我觉得偏丰满的MM选黑色显瘦又带一些小性感，偏瘦的妹子选白色清新[嘻嘻][嘻嘻]<br><img src="http://ww2.sinaimg.cn/large/68c88a05gw1f552l46wcjj20qo0r4gsi.jpg"></p>
 <p>
 	<small> ============== 7小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3989504472129310" target="freeweibo-mirror">【强烈呼吁最高检介入调查林祖恋案】针对乌坎村书记林祖恋“受贿…</a>
-</h2>
-<p>【强烈呼吁最高检介入调查林祖恋案】针对乌坎村书记林祖恋“受贿”案，公众质疑的声音此起彼伏。先是汕尾检察机关公布林书记受审视频，接着被爆当地政府人员去乌坎学校让学生替家长签字指控林书记贪污，更加令人震惊的是，林书记两儿子委托的律师被逼退律师费。以上种种怪象，公众情何以堪？<br><img src="http://ww2.sinaimg.cn/large/e59a2a43gw1f551d0e67kj20og0b4dh7.jpg"></p>
-<p>
-	<small> ============== 8小时前</small>
 </p>
 <table>
     <tr>
