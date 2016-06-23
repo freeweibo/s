@@ -137,7 +137,7 @@
 </h2>
 <p>【乌坎村民写给林祖恋书记的一封信】恕不作评，请广大网友自己看、自己判断......<br><img src="http://ww2.sinaimg.cn/large/e59a2a43gw1f5571esycpj207q064gln.jpg"></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p>
 <table>
     <tr>
