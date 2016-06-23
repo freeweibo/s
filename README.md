@@ -65,7 +65,7 @@
 </h2>
 <p>法律不是裆贱牌！<br><br>RE: 若干法学学者关于夏霖律师被控诈骗罪一案的法律意见书（图片版），多谢朋友们转发。<br><img src="http://ww3.sinaimg.cn/large/70043df0jw1f54dxtqwvxj20hs3mwb29.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3989434501768348" target="freeweibo-mirror">今天雷洋七七。尸检的结果还未公布。真相，不仅对于他的家庭，他…</a>
 </h2>
@@ -89,7 +89,7 @@
 </h2>
 <p>SPAM 真相了！[右哼哼]</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3989314977348505" target="freeweibo-mirror">既然如此，那就所有的媒体都一视同仁吧，连自媒体也一样。别一方…</a>
 </h2>
