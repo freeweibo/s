@@ -53,7 +53,7 @@
 </h2>
 <p>全网删除乌坎事件新闻、林祖恋案、夏霖案、雷洋案！这是什么节奏？<br><img src="http://ww1.sinaimg.cn/large/b4a06e69gw1f550wj8u88j20ku112q87.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3989496053542940" target="freeweibo-mirror">SPAM 谁告诉你关木通是毒药了?你个中医黑～//@dean…</a>
 </h2>
