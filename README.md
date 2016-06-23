@@ -19,11 +19,23 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3989451082512909" target="freeweibo-mirror">祈祷平安//@醉牦牛://@影色渔樵://@迟夙生律师: /…</a>
+</h2>
+<p>祈祷平安//@醉牦牛://@影色渔樵://@迟夙生律师: //@c惠惠惠惠子://@李前军律师:转发微博</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3989445114385157" target="freeweibo-mirror">可以断定，他在对着写好的东西念[挖鼻][挖鼻][挖鼻]</a>
+</h2>
+<p>可以断定，他在对着写好的东西念[挖鼻][挖鼻][挖鼻]<br><br>RE: 有人说，林祖恋已经认罪了，你们这些搞法律的人怎么还不相信呢？是的，认罪的犯罪嫌疑人很多，比如呼格吉勒图，比如念斌，比如陈满，但是后来都被证据证明是无罪的。所以，法律人只信证据，不信认罪。 http://t.cn/R5Ngtni</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3989345058978198" target="freeweibo-mirror">SPAM 【痩身小窍门】想夏天甩肉的看这里</a>
 </h2>
 <p>SPAM 【痩身小窍门】想夏天甩肉的看这里</p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3989330810316117" target="freeweibo-mirror">SPAM 八卦~转需</a>
 </h2>
@@ -41,7 +53,7 @@
 </h2>
 <p>既然如此，那就所有的媒体都一视同仁吧，连自媒体也一样。别一方可以通过记者大说特说，另一方却必须守法。一方可以通过自己和律师在微博上大声质疑，却不允许另一方通过媒体回应质疑。//@你最大的梦想是什么: 这个主要是程序问题，既然依法治国，就要把法律摆上面，是法庭宣判为准。现在搞这一出是什<br><br>RE: 【观察｜乌坎村支书“电视认罪”开历史倒车？舆论怎么说】舆论指出，“电视认罪”俨然就是“媒体审判”，凌驾于司法程序正义。外媒报道指出“现在电视媒体本身的公信力就成问题，这样做的效果只会适得其反”，认为“利用媒体对典型案例进行宣传是必要的，但选择宣传的方式更重要”http://t.cn/R50ipA9<br><img src="http://ww4.sinaimg.cn/large/9e0d48ebjw1f549re93coj20ci08mt9e.jpg"></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3989312313301386" target="freeweibo-mirror">//@虎啸周D: //@水兵李铭: //@沥泉枪挑:绑架了你…</a>
 </h2>
@@ -124,18 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3989264062752969" target="freeweibo-mirror">【观察｜乌坎村支书“电视认罪”开历史倒车？舆论怎么说】舆论指…</a>
 </h2>
 <p>【观察｜乌坎村支书“电视认罪”开历史倒车？舆论怎么说】舆论指出，“电视认罪”俨然就是“媒体审判”，凌驾于司法程序正义。外媒报道指出“现在电视媒体本身的公信力就成问题，这样做的效果只会适得其反”，认为“利用媒体对典型案例进行宣传是必要的，但选择宣传的方式更重要”http://t.cn/R50ipA9<br><img src="http://ww4.sinaimg.cn/large/9e0d48ebjw1f549re93coj20ci08mt9e.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3989262191596827" target="freeweibo-mirror">//@LAK啊://@阿花的伊萨卡岛:谢谢各位师友。</a>
-</h2>
-<p>//@LAK啊://@阿花的伊萨卡岛:谢谢各位师友。<br><br>RE: 发布了头条文章：《若干法学学者关于夏霖律师被控诈骗罪一案的法律意见书》 http://t.cn/R50JTNP</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3989259943216153" target="freeweibo-mirror">发布了头条文章：《若干法学学者关于夏霖律师被控诈骗罪一案的法…</a>
-</h2>
-<p>发布了头条文章：《若干法学学者关于夏霖律师被控诈骗罪一案的法律意见书》 http://t.cn/R50JTNP</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
