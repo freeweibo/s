@@ -29,7 +29,19 @@
 </h2>
 <p>//@微酸百合: 山雨欲来风满楼[思考] //@小二在厨房:马上要干坏事的节奏！ //@燕赵无敌: //@-蓝色-心情: //@mad987: //@关洪导演: //@王业龙love出版: //@雷公旗: //@永不言败_胡钢: ？ //@茗礼堂-红茶味道V: //@金陵酒徒仓氏:呵呵 //@周铁东本人:作死的节奏。<br><br>RE: 全网删除乌坎事件新闻、林祖恋案、夏霖案、雷洋案！这是什么节奏？<br><img src="http://ww1.sinaimg.cn/large/b4a06e69gw1f550wj8u88j20ku112q87.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3989520024253346" target="freeweibo-mirror">【捍卫宪法尊严，必须要让破坏法治的人靠边！】总有那么一些人，…</a>
+</h2>
+<p>【捍卫宪法尊严，必须要让破坏法治的人靠边！】总有那么一些人，公然践踏着宪法和法律！之所以敢于肆无忌惮地破坏法治，是因为缺失追究其法律责任的机制、不排除其受到非法力量的纵容和袒护。法治，需要千千万万的公民勇敢地站出来，坚定地捍卫宪法的尊严，否则，岂能有法治中国？<br><br>RE: 广东葛永喜律师：继司法当局趁我在外省开庭之际勒令我们律师事务所退回林祖恋儿子汇来的律师费之后，林家聘请的另一辩护人玉品健律师也在前往陆丰的路上被“追回”。将“保障人权”写在宪法上（刑事辩护律师都知道刑事诉讼法第二条也写着“保障人权”），却让嫌疑人电视认罪，令律师无法介入。这就是依...全文： http://m.weibo.cn/3685615842/3989452320050871<br><img src="http://ww2.sinaimg.cn/large/dbae08e2gw1f54vbuu0l8j20dc08wq35.jpg"></p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3989515104360952" target="freeweibo-mirror">SPAM 超柔软的蕾丝上衣，最近一直被问黑色白色选哪个色好看…</a>
+</h2>
+<p>SPAM 超柔软的蕾丝上衣，最近一直被问黑色白色选哪个色好看？我觉得偏丰满的MM选黑色显瘦又带一些小性感，偏瘦的妹子选白色清新[嘻嘻][嘻嘻]<br><img src="http://ww2.sinaimg.cn/large/68c88a05gw1f552l46wcjj20qo0r4gsi.jpg"></p>
+<p>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3989496053542940" target="freeweibo-mirror">SPAM 谁告诉你关木通是毒药了?你个中医黑～//@dean…</a>
 </h2>
@@ -71,13 +83,13 @@
 </h2>
 <p>//@专业起哄:转发微博<br><br>RE: 若干法学学者关于夏霖律师被控诈骗罪一案的法律意见书（图片版），多谢朋友们转发。<br><img src="http://ww3.sinaimg.cn/large/70043df0jw1f54dxtqwvxj20hs3mwb29.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3989451082512909" target="freeweibo-mirror">祈祷平安//@醉牦牛://@影色渔樵://@迟夙生律师: /…</a>
 </h2>
 <p>祈祷平安//@醉牦牛://@影色渔樵://@迟夙生律师: //@c惠惠惠惠子://@李前军律师:转发微博</p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3989448586292481" target="freeweibo-mirror">SPAM 2016-6-22 Seb在Union Squar…</a>
 </h2>
@@ -124,18 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3989330810316117" target="freeweibo-mirror">SPAM 八卦~转需</a>
 </h2>
 <p>SPAM 八卦~转需</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3989326407056543" target="freeweibo-mirror">SPAM 真相了！[右哼哼]</a>
-</h2>
-<p>SPAM 真相了！[右哼哼]</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3989314977348505" target="freeweibo-mirror">既然如此，那就所有的媒体都一视同仁吧，连自媒体也一样。别一方…</a>
-</h2>
-<p>既然如此，那就所有的媒体都一视同仁吧，连自媒体也一样。别一方可以通过记者大说特说，另一方却必须守法。一方可以通过自己和律师在微博上大声质疑，却不允许另一方通过媒体回应质疑。//@你最大的梦想是什么: 这个主要是程序问题，既然依法治国，就要把法律摆上面，是法庭宣判为准。现在搞这一出是什<br><br>RE: 【观察｜乌坎村支书“电视认罪”开历史倒车？舆论怎么说】舆论指出，“电视认罪”俨然就是“媒体审判”，凌驾于司法程序正义。外媒报道指出“现在电视媒体本身的公信力就成问题，这样做的效果只会适得其反”，认为“利用媒体对典型案例进行宣传是必要的，但选择宣传的方式更重要”http://t.cn/R50ipA9<br><img src="http://ww4.sinaimg.cn/large/9e0d48ebjw1f549re93coj20ci08mt9e.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
