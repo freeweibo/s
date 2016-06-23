@@ -95,7 +95,7 @@
 </h2>
 <p>放学回家啦！<br><img src="http://ww4.sinaimg.cn/large/005WOkKfgw1f55awf5g2qj30dm0a0dih.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3989586235784324" target="freeweibo-mirror">//@唐山辣评:转发微博</a>
 </h2>
