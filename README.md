@@ -35,7 +35,7 @@
 </h2>
 <p>//@文盲李世威: 转发微博</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3989466140537141" target="freeweibo-mirror">SPAM #这么快你咋不上天呢# 对于吃货来说，没有小龙虾的…</a>
 </h2>
