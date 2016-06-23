@@ -23,13 +23,13 @@
 </h2>
 <p>SPAM 谁告诉你关木通是毒药了?你个中医黑～//@dean56：激动了？干嘛一说中医就激动？说的好像中医只有毒药？ //@吐槽鬼:你把中药当食物？好啊，少年，来，这里有两斤关木通，吃了对你腰子好～//@dean56：中医黑<br><br>RE: 除了穆斯林和狗奴，还有哪个族群会禁止别人吃他们不吃的食物？</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3989495319526880" target="freeweibo-mirror">SPAM 你把中药当食物？好啊，少年，来，这里有两斤关木通，…</a>
 </h2>
 <p>SPAM 你把中药当食物？好啊，少年，来，这里有两斤关木通，吃了对你腰子好～//@dean56：中医黑<br><br>RE: 除了穆斯林和狗奴，还有哪个族群会禁止别人吃他们不吃的食物？</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3989489427153033" target="freeweibo-mirror">//@文盲李世威: 转发微博</a>
 </h2>
@@ -41,7 +41,7 @@
 </h2>
 <p>SPAM #这么快你咋不上天呢# 对于吃货来说，没有小龙虾的夏天是不完整的夏天。如何吃到热气腾腾、新鲜干净、可口放心的小龙虾君？这是一个困扰了宝宝好久的问题。<br><img src="http://ww4.sinaimg.cn/large/95905e50gw1f54wyved9zj20hs4h27j6.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3989463740681223" target="freeweibo-mirror">除了穆斯林和狗奴，还有哪个族群会禁止别人吃他们不吃的食物？</a>
 </h2>
