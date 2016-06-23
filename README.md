@@ -89,7 +89,7 @@
 </h2>
 <p>SPAM 真相了！[右哼哼]</p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3989314977348505" target="freeweibo-mirror">既然如此，那就所有的媒体都一视同仁吧，连自媒体也一样。别一方…</a>
 </h2>
