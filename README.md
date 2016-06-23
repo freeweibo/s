@@ -83,7 +83,7 @@
 </h2>
 <p>SPAM 【痩身小窍门】想夏天甩肉的看这里</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3989330810316117" target="freeweibo-mirror">SPAM 八卦~转需</a>
 </h2>
