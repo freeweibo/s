@@ -101,7 +101,7 @@
 </h2>
 <p>除了穆斯林和狗奴，还有哪个族群会禁止别人吃他们不吃的食物？</p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3989453263141981" target="freeweibo-mirror">//@雷颐: //@静娅_:这案子的案情并不复杂，为啥这么久…</a>
 </h2>
@@ -131,7 +131,7 @@
 </h2>
 <p>SPAM 2016-6-22 Seb在Union Square Park与粉丝合影<br><img src="http://ww1.sinaimg.cn/large/54453accgw1f54uxg4gvij20ku112q7l.jpg"></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3989445922844615" target="freeweibo-mirror">//@守正投资:转起来，应该尽快雷洋尸检的结果，拖的太久了/…</a>
 </h2>
