@@ -107,7 +107,7 @@
 </h2>
 <p>【乌坎村民写给林祖恋书记的一封信】恕不作评，请广大网友自己看、自己判断......<br><img src="http://ww2.sinaimg.cn/large/e59a2a43gw1f5571esycpj207q064gln.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3989549640733012" target="freeweibo-mirror">SPAM 逻辑上说，没体验过，一般不会知道…//@雾隐新峰:…</a>
 </h2>
