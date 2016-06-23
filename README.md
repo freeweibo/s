@@ -41,7 +41,7 @@
 </h2>
 <p>SPAM 八卦~转需</p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3989326407056543" target="freeweibo-mirror">SPAM 真相了！[右哼哼]</a>
 </h2>
