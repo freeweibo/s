@@ -29,7 +29,7 @@
 </h2>
 <p>SPAM 不做一“斑”女人</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3989695798608308" target="freeweibo-mirror">SPAM //@爱地乃司V://@川A冷眼观河蟹://@俺用…</a>
 </h2>
@@ -83,7 +83,7 @@
 </h2>
 <p>SPAM 关于欧洲杯小组赛大数据，你需要关注这些</p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3989592350488265" target="freeweibo-mirror">SPAM 有道理[耶]//@卷下十二：宁可坐在自行车上笑，也…</a>
 </h2>
