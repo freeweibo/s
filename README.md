@@ -101,13 +101,13 @@
 </h2>
 <p>看不到了。<br><br>RE: 发布了头条文章：《若干法学学者关于夏霖律师被控诈骗罪一案的法律意见书》 http://t.cn/R50JTNP</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3989280676018484" target="freeweibo-mirror">//@和胖子: 学习。多赞一句：我个人感觉，许章润教授堪称大…</a>
 </h2>
 <p>//@和胖子: 学习。多赞一句：我个人感觉，许章润教授堪称大师级思想家。<br><br>RE: 发布了头条文章：《若干法学学者关于夏霖律师被控诈骗罪一案的法律意见书》 http://t.cn/R50JTNP</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3989278650985905" target="freeweibo-mirror">想练好口语，摆脱字幕看美剧的同学，这套LAST计划值得一试，…</a>
 </h2>
