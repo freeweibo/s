@@ -35,7 +35,7 @@
 </h2>
 <p>SPAM 真相了！[右哼哼]</p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3989314977348505" target="freeweibo-mirror">既然如此，那就所有的媒体都一视同仁吧，连自媒体也一样。别一方…</a>
 </h2>
@@ -53,7 +53,7 @@
 </h2>
 <p>这时候舆论要求媒体不要凌驾于司法正义上了？当媒体顺着舆论影响司法的时候他们怎么不说呢？自己做婊子，还要逼别人立牌坊，也是醉了。<br><br>RE: 【观察｜乌坎村支书“电视认罪”开历史倒车？舆论怎么说】舆论指出，“电视认罪”俨然就是“媒体审判”，凌驾于司法程序正义。外媒报道指出“现在电视媒体本身的公信力就成问题，这样做的效果只会适得其反”，认为“利用媒体对典型案例进行宣传是必要的，但选择宣传的方式更重要”http://t.cn/R50ipA9<br><img src="http://ww4.sinaimg.cn/large/9e0d48ebjw1f549re93coj20ci08mt9e.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3989308220465823" target="freeweibo-mirror">SPAM  //@吴伟bj://@绍兴师爷行北京://@光老…</a>
 </h2>
@@ -101,13 +101,13 @@
 </h2>
 <p>看不到了。<br><br>RE: 发布了头条文章：《若干法学学者关于夏霖律师被控诈骗罪一案的法律意见书》 http://t.cn/R50JTNP</p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3989280676018484" target="freeweibo-mirror">//@和胖子: 学习。多赞一句：我个人感觉，许章润教授堪称大…</a>
 </h2>
 <p>//@和胖子: 学习。多赞一句：我个人感觉，许章润教授堪称大师级思想家。<br><br>RE: 发布了头条文章：《若干法学学者关于夏霖律师被控诈骗罪一案的法律意见书》 http://t.cn/R50JTNP</p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3989278650985905" target="freeweibo-mirror">想练好口语，摆脱字幕看美剧的同学，这套LAST计划值得一试，…</a>
 </h2>
