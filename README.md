@@ -47,7 +47,7 @@
 </h2>
 <p>SPAM 有道理[耶]//@卷下十二：宁可坐在自行车上笑，也不在宝马车里哭<br><br>RE: 放学回家啦！<br><img src="http://ww4.sinaimg.cn/large/005WOkKfgw1f55awf5g2qj30dm0a0dih.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3989587447888209" target="freeweibo-mirror">放学回家啦！</a>
 </h2>
