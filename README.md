@@ -59,7 +59,7 @@
 </h2>
 <p>【国新办：家庭可适当提高杠杆率  帮助企业降低杠杆率】国新办新闻稿称，因公司债务风险，中国的不良贷款率上升，快速去杠杆会带来新的风险。中国政府和家庭领域可适当提高杠杆率，帮助企业降低杠杆率。中国将继续实施稳健的货币政策。http://t.cn/R5OJUgo<br><img src="http://ww4.sinaimg.cn/large/6298156bjw1f558l8l1b7j20gm0gtjsk.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3989564962570968" target="freeweibo-mirror">//@P民新传媒: //@未得糊涂://@野靖环1998: …</a>
 </h2>
