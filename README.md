@@ -29,7 +29,7 @@
 </h2>
 <p>SPAM 八卦~转需</p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3989326407056543" target="freeweibo-mirror">SPAM 真相了！[右哼哼]</a>
 </h2>
@@ -113,7 +113,7 @@
 </h2>
 <p>想练好口语，摆脱字幕看美剧的同学，这套LAST计划值得一试，思路很独特，看下面视频。</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3989274498052911" target="freeweibo-mirror">/[ok]/@老马迷途1: 有理有据。作为一个法学院毕业生及…</a>
 </h2>
