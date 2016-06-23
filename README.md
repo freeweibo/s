@@ -59,7 +59,7 @@
 </h2>
 <p>SPAM 乌--坎风云 [话筒][话筒][围观][围观]  http://t.cn/R5OnNzW .</p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3989633975113579" target="freeweibo-mirror">【好文分享】1、抗美援朝真正原因被曝光，无地自容？震惊国人！…</a>
 </h2>
@@ -89,7 +89,7 @@
 </h2>
 <p>SPAM 有道理[耶]//@卷下十二：宁可坐在自行车上笑，也不在宝马车里哭<br><br>RE: 放学回家啦！<br><img src="http://ww4.sinaimg.cn/large/005WOkKfgw1f55awf5g2qj30dm0a0dih.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3989587447888209" target="freeweibo-mirror">放学回家啦！</a>
 </h2>
