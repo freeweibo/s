@@ -71,7 +71,7 @@
 </h2>
 <p>【雷洋尸检单位遭举报 法医陷造假传闻】6月21日下午，雷洋案代理律师陈有西称，目前律师和家属还在等待雷洋的尸检报告，暂无最新情况介绍。然而，雷洋案指定的尸检机构法人代表霍家润日前连遭到网络举报，称其学历、履历造假，甚至还曾因赌博被免职。<br><img src="http://ww1.sinaimg.cn/large/006uSESAgw1f55o3j022qj30i20o277x.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3989695798608308" target="freeweibo-mirror">SPAM //@爱地乃司V://@川A冷眼观河蟹://@俺用…</a>
 </h2>
