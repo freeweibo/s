@@ -43,6 +43,12 @@
 <p>
 	<small> ============== 4小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3989886300218983" target="freeweibo-mirror">【林主任，你啥意思？】1.“相信”依法办案？问：办案到底是依…</a>
+</h2>
+<p>【林主任，你啥意思？】1.“相信”依法办案？问：办案到底是依法了、还是违法了？2.早已表态？问：是何年何月表态，有效期多长？3.更不需要“言止”任何人为我请律师，问：什么意思嘛？4.托字前面的字，与“非”相似，还写了“该上纟网”？问：写错字了？还要上网，不怕天下人笑话？<br><img src="http://ww1.sinaimg.cn/large/4c79ccf8gw1f569661y5hj20k00sewfp.jpg"></p>
+<p>
+	<small> ============== 5小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3989873361418137" target="freeweibo-mirror">今天的新文章，→_→ 【中国版的鲁斯特红场空降：他驾滑翔翼伞…</a>
 </h2>
 <p>今天的新文章，→_→ 【中国版的鲁斯特红场空降：他驾滑翔翼伞潜入天安门被拘留】 ，亲，你订阅了吗？ #科罗廖夫的军事会客厅#</p>
@@ -77,7 +83,7 @@
 </h2>
 <p>江苏盐城事件，从辟谣到抓捕造谣群众，到凶狠的风暴导致人员伤亡，天朝的政治生态，再度验证了谣言大多是遥遥领先的预言。而中共当局，角色转换也足够快，群众情绪被稳定了，轰轰烈烈的抢救，大爱无疆，谣言被删除，丧事就这样变成了喜事。</p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3989792561534638" target="freeweibo-mirror">SPAM 【好文分享】1、甲有5套房，不上班，靠收房租生活；…</a>
 </h2>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3989692686371519" target="freeweibo-mirror">午夜，来自人大校友群……[蜡烛]</a>
 </h2>
 <p>午夜，来自人大校友群……[蜡烛]<br><img src="http://ww4.sinaimg.cn/large/70d85613jw1f55mz8q6fbj20jg0elgma.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3989668691019145" target="freeweibo-mirror">SPAM “春眠不觉晓 发型很重要 看潮美发型 颜值增不少”…</a>
-</h2>
-<p>SPAM “春眠不觉晓 发型很重要 看潮美发型 颜值增不少”！！！[挤眼][挤眼][挤眼] 最具时尚气息和明星风范的发型统统分享给你！！！[噢耶][噢耶][噢耶] 搜 * 索 * 关 * 注 *同名超赞【卫-星-号】→_→meifa16秒懂发型对你的形象有多重要！！！[偷乐][偷乐][偷乐]<br><img src="http://ww3.sinaimg.cn/large/76043e25gw1f54vz06j8bj20hs0vk78t.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
