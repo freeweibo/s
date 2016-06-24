@@ -77,7 +77,7 @@
 </h2>
 <p>在“雷洋的那条街”，艺术家金子用她的身体指天，妄图颠倒道路，阻拦车轮。她色诱阳光，蔑视规则。她以肉体，直面钢铁和庞然大物们。【倒立-3】龙锦苑东五区附近。2016年6月16日 @金子art<br><img src="http://ww1.sinaimg.cn/large/55758575jw1f563zt5a0mj20nu0zkafa.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3989839226922381" target="freeweibo-mirror">//@打恶不如做恶吃香:让奴隶安心就是这么简单//@破布扯蛋…</a>
 </h2>
@@ -113,7 +113,7 @@
 </h2>
 <p>雷洋离开人间49天，人大同学自发追思，追问死因，希望早日公布尸检结果。<br><img src="http://ww3.sinaimg.cn/large/6b804b51gw1f55xzvntyhj20qo1bgwl4.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3989734885347520" target="freeweibo-mirror">SPAM 爱自己的女人才会美丽，还在犹豫什么？</a>
 </h2>
