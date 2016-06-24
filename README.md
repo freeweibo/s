@@ -77,7 +77,7 @@
 </h2>
 <p>SPAM 不做一“斑”女人</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3989717210675610" target="freeweibo-mirror">东京—日本福祉大学教授远藤誉去年著书《毛泽东 与日军共谋的男…</a>
 </h2>
