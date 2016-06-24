@@ -19,6 +19,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3989943472777452" target="freeweibo-mirror">SPAM //@朱凯ART: //@Peronnetta:这…</a>
+</h2>
+<p>SPAM //@朱凯ART: //@Peronnetta:这也是art……我天天art。  //@王周生:转发微博</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3989930797903810" target="freeweibo-mirror">【是错字，还是密码？】请高手解读。</a>
 </h2>
 <p>【是错字，还是密码？】请高手解读。<br><br>RE: 【林主任，你啥意思？】1.“相信”依法办案？问：办案到底是依法了、还是违法了？2.早已表态？问：是何年何月表态，有效期多长？3.更不需要“言止”任何人为我请律师，问：什么意思嘛？4.托字前面的字，与“非”相似，还写了“该上纟网”？问：写错字了？还要上网，不怕天下人笑话？<br><img src="http://ww1.sinaimg.cn/large/4c79ccf8gw1f569661y5hj20k00sewfp.jpg"></p>
@@ -65,7 +71,13 @@
 </h2>
 <p>杨金柱律师在此郑重向天下人承诺：如果杨金柱律师在今天下午6点钟之前，生不能见人（会见周世锋律师），死不能见字（周世锋律师拒绝杨金柱律师会见的书面材料），杨金柱律师将听从自己内心的召唤，为了维护中国现行法律赋予自己的神圣的辩护权（会见权），将于后天（周日）晚上直飞天津，于下周一上午...全文： http://m.weibo.cn/5616949951/3989849985398799...全文： http://m.weibo.cn/5616949951/3989849985398799...全文： http://m.weibo.cn/5616949951/3989849985398799...全文： http://m.weibo.cn/5616949951/3989849985398799...全文： http://m.weibo.cn/5616949951/3989849985398799</p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3989841223448278" target="freeweibo-mirror">在“雷洋的那条街”，艺术家金子用她的身体指天，妄图颠倒道路，…</a>
+</h2>
+<p>在“雷洋的那条街”，艺术家金子用她的身体指天，妄图颠倒道路，阻拦车轮。她色诱阳光，蔑视规则。她以肉体，直面钢铁和庞然大物们。【倒立-3】龙锦苑东五区附近。2016年6月16日 @金子art<br><img src="http://ww1.sinaimg.cn/large/55758575jw1f563zt5a0mj20nu0zkafa.jpg"></p>
+<p>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3989839226922381" target="freeweibo-mirror">//@打恶不如做恶吃香:让奴隶安心就是这么简单//@破布扯蛋…</a>
 </h2>
@@ -95,7 +107,7 @@
 </h2>
 <p>SPAM #情感树洞#前段时间他家里出了事，现在他压力很大满脑子都想赚钱，他想创业，我说再等我半年我毕业之后去赚钱支持他，他再等我半年，我还他一辈子。他爱我，但在一些事情上我又觉得他并没有那么爱我，我在广州他要去云南，我怕这样的爱抵不过距离。我不想他走，我怕他走了我们就完了。<br><img src="http://ww1.sinaimg.cn/large/8063a3d3jw1f55y4rq0nxj20ku1123zl.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3989788577621056" target="freeweibo-mirror">雷洋离开人间49天，人大同学自发追思，追问死因，希望早日公布…</a>
 </h2>
@@ -124,18 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3989702450778749" target="freeweibo-mirror">【雷洋尸检单位遭举报 法医陷造假传闻】6月21日下午，雷洋案…</a>
 </h2>
 <p>【雷洋尸检单位遭举报 法医陷造假传闻】6月21日下午，雷洋案代理律师陈有西称，目前律师和家属还在等待雷洋的尸检报告，暂无最新情况介绍。然而，雷洋案指定的尸检机构法人代表霍家润日前连遭到网络举报，称其学历、履历造假，甚至还曾因赌博被免职。<br><img src="http://ww1.sinaimg.cn/large/006uSESAgw1f55o3j022qj30i20o277x.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3989695798608308" target="freeweibo-mirror">SPAM //@爱地乃司V://@川A冷眼观河蟹://@俺用…</a>
-</h2>
-<p>SPAM //@爱地乃司V://@川A冷眼观河蟹://@俺用冷眼看世界:[给力][给力][给力]//@花和尚嘿低俗:[给力][给力][给力][话筒][话筒][话筒][赞啊]</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3989692686371519" target="freeweibo-mirror">午夜，来自人大校友群……[蜡烛]</a>
-</h2>
-<p>午夜，来自人大校友群……[蜡烛]<br><img src="http://ww4.sinaimg.cn/large/70d85613jw1f55mz8q6fbj20jg0elgma.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
