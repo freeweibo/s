@@ -23,7 +23,7 @@
 </h2>
 <p>//@何三畏:转发微博<br><br>RE: 【雷洋尸检单位遭举报 法医陷造假传闻】6月21日下午，雷洋案代理律师陈有西称，目前律师和家属还在等待雷洋的尸检报告，暂无最新情况介绍。然而，雷洋案指定的尸检机构法人代表霍家润日前连遭到网络举报，称其学历、履历造假，甚至还曾因赌博被免职。<br><img src="http://ww1.sinaimg.cn/large/006uSESAgw1f55o3j022qj30i20o277x.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3989792561534638" target="freeweibo-mirror">SPAM 【好文分享】1、甲有5套房，不上班，靠收房租生活；…</a>
 </h2>
@@ -77,7 +77,7 @@
 </h2>
 <p>午夜，来自人大校友群……[蜡烛]<br><img src="http://ww4.sinaimg.cn/large/70d85613jw1f55mz8q6fbj20jg0elgma.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3989668691019145" target="freeweibo-mirror">SPAM “春眠不觉晓 发型很重要 看潮美发型 颜值增不少”…</a>
 </h2>
