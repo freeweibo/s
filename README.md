@@ -133,9 +133,9 @@
 <p>
 	<small> ============== 5小时前</small>
 </p><h2>
-	<a href="https://freeweibo.com/weibo/3989966260512832" target="freeweibo-mirror">转：很多内地人不知道在1982年9月，撒切尔夫人访华后来香港…</a>
+	<a href="https://freeweibo.com/weibo/3989970102338357" target="freeweibo-mirror">发生这么大的灾难，除了这个杂种没有他国元首此时还在国外逍遥!</a>
 </h2>
-<p>转：很多内地人不知道在1982年9月，撒切尔夫人访华后来香港，是司徒华领导的港同盟人士跑到机场去抗议，反对「三项不平等条约」、「反对续约香港」，他们支持香港回归，要实行民主治港。「占中」主力学联，也曾经是最积极支持回归的力量。这些力量后来为什么成为抗争的主体?简单一句就是因为1989年。</p>
+<p>发生这么大的灾难，除了这个杂种没有他国元首此时还在国外逍遥!<br><img src="http://ww1.sinaimg.cn/large/006mrXJvjw1f56itefzdfj30hs0vlmyo.jpg"></p>
 <p>
 	<small> ============== 6小时前</small>
 </p>
