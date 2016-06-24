@@ -23,7 +23,7 @@
 </h2>
 <p>SPAM 发声，是公民承担己任；沉默，是整个民族之殇 http://t.cn/R5WbSQp</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3989899319807905" target="freeweibo-mirror">[话筒] [围观] 别隔锅台上炕 ！// [话筒] [围观]…</a>
 </h2>
