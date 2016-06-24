@@ -41,25 +41,25 @@
 </h2>
 <p>SPAM 唉//@高春辉: [熊猫] //@LifeTime:下手太黑。<br><br>RE: 失联101天<br><img src="http://ww2.sinaimg.cn/large/46e9d5dagw1f56nzobcfvj20jz0zkdoo.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3990018357589313" target="freeweibo-mirror">SPAM //@高春辉:[熊猫] //@LifeTime:下…</a>
 </h2>
 <p>SPAM //@高春辉:[熊猫] //@LifeTime:下手太黑。<br><br>RE: 失联101天<br><img src="http://ww2.sinaimg.cn/large/46e9d5dagw1f56nzobcfvj20jz0zkdoo.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3990018067976140" target="freeweibo-mirror">[吃惊]//@笑读苍海---V: 政治流氓 //@独有英雄驱…</a>
 </h2>
 <p>[吃惊]//@笑读苍海---V: 政治流氓 //@独有英雄驱虎豹V://@新工农联盟: //@Osaka崎://@蓝天_V: //@疯癫道人I: 资改流氓何其多！<br><br>RE: 田纪云是赵紫阳破格提拔的，矬子点头的。赵紫阳是资产阶级自由化的急先锋，田纪云现在跳出来一点也不奇怪！今天的特色痴情资产阶级是近四十年的积累。已积重难返！现在中央再向社会主义调整，何其难啊！田纪云们使足了劲，千方百计大力度阻止！田纪云最近出书否定建国初的社会主义三大改造即是例证！</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3990017414621397" target="freeweibo-mirror">SPAM [熊猫] //@LifeTime:下手太黑。</a>
 </h2>
 <p>SPAM [熊猫] //@LifeTime:下手太黑。<br><br>RE: 失联101天<br><img src="http://ww2.sinaimg.cn/large/46e9d5dagw1f56nzobcfvj20jz0zkdoo.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3990016622024506" target="freeweibo-mirror">SPAM //@LifeTime:下手太黑。</a>
 </h2>
