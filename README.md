@@ -47,7 +47,7 @@
 </h2>
 <p>SPAM 爱自己的女人才会美丽，还在犹豫什么？</p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3989732369047257" target="freeweibo-mirror">SPAM 不做一“斑”女人</a>
 </h2>
@@ -60,6 +60,12 @@
 <p>东京—日本福祉大学教授远藤誉去年著书《毛泽东 与日军共谋的男人》，最近翻译出版了中文版《毛泽东勾结日军的真相》，再次引起全球关注中国抗战史的华人注目。远藤在中文版中添加了她后来在日本外务省外交史料馆找到的她认为就是依据中共特务潘汉年给日本的一份长文报告构成的档案的内容，揭露了中共...全文： http://m.weibo.cn/5953113928/3989717210675610<br><img src="http://ww1.sinaimg.cn/large/006uSESAgw1f55paq6j1cj308c0dg75e.jpg"></p>
 <p>
 	<small> ============== 10小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3989702450778749" target="freeweibo-mirror">【雷洋尸检单位遭举报 法医陷造假传闻】6月21日下午，雷洋案…</a>
+</h2>
+<p>【雷洋尸检单位遭举报 法医陷造假传闻】6月21日下午，雷洋案代理律师陈有西称，目前律师和家属还在等待雷洋的尸检报告，暂无最新情况介绍。然而，雷洋案指定的尸检机构法人代表霍家润日前连遭到网络举报，称其学历、履历造假，甚至还曾因赌博被免职。<br><img src="http://ww1.sinaimg.cn/large/006uSESAgw1f55o3j022qj30i20o277x.jpg"></p>
+<p>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3989695798608308" target="freeweibo-mirror">SPAM //@爱地乃司V://@川A冷眼观河蟹://@俺用…</a>
 </h2>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3989586235784324" target="freeweibo-mirror">//@唐山辣评:转发微博</a>
 </h2>
 <p>//@唐山辣评:转发微博<br><br>RE: 【乌坎村民写给林祖恋书记的一封信】恕不作评，请广大网友自己看、自己判断......<br><img src="http://ww2.sinaimg.cn/large/e59a2a43gw1f5571esycpj207q064gln.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3989581407290184" target="freeweibo-mirror">？！[馋嘴] //@共识网:[doge]</a>
-</h2>
-<p>？！[馋嘴] //@共识网:[doge]<br><br>RE: 【国新办：家庭可适当提高杠杆率  帮助企业降低杠杆率】国新办新闻稿称，因公司债务风险，中国的不良贷款率上升，快速去杠杆会带来新的风险。中国政府和家庭领域可适当提高杠杆率，帮助企业降低杠杆率。中国将继续实施稳健的货币政策。http://t.cn/R5OJUgo<br><img src="http://ww4.sinaimg.cn/large/6298156bjw1f558l8l1b7j20gm0gtjsk.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
