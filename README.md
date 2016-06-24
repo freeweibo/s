@@ -31,6 +31,12 @@
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3989813675306485" target="freeweibo-mirror">江苏盐城事件，从辟谣到抓捕造谣群众，到凶狠的风暴导致人员伤亡…</a>
+</h2>
+<p>江苏盐城事件，从辟谣到抓捕造谣群众，到凶狠的风暴导致人员伤亡，天朝的政治生态，再度验证了谣言大多是遥遥领先的预言。而中共当局，角色转换也足够快，群众情绪被稳定了，轰轰烈烈的抢救，大爱无疆，谣言被删除，丧事就这样变成了喜事。</p>
+<p>
+	<small> ============== 5小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3989792561534638" target="freeweibo-mirror">SPAM 【好文分享】1、甲有5套房，不上班，靠收房租生活；…</a>
 </h2>
 <p>SPAM 【好文分享】1、甲有5套房，不上班，靠收房租生活；乙有1套房，上班赚工资……！2、陈佩斯在香港勇敢揭穿央视的老底，终于秒 懂春晚 为什么一年比一年难看了！3、三个天朝不喜欢的真实故事！4、英国首次曝光圆明园被烧毁前的照片，轰动世界！！更多精彩请添加关注：zhebsls<br><img src="http://ww4.sinaimg.cn/large/a4aae570jw1f55yghguimj20j60y3mze.jpg"></p>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3989592350488265" target="freeweibo-mirror">SPAM 有道理[耶]//@卷下十二：宁可坐在自行车上笑，也…</a>
 </h2>
 <p>SPAM 有道理[耶]//@卷下十二：宁可坐在自行车上笑，也不在宝马车里哭<br><br>RE: 放学回家啦！<br><img src="http://ww4.sinaimg.cn/large/005WOkKfgw1f55awf5g2qj30dm0a0dih.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3989587447888209" target="freeweibo-mirror">放学回家啦！</a>
-</h2>
-<p>放学回家啦！<br><img src="http://ww4.sinaimg.cn/large/005WOkKfgw1f55awf5g2qj30dm0a0dih.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
