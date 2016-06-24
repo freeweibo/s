@@ -19,6 +19,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3989839226922381" target="freeweibo-mirror">//@打恶不如做恶吃香:让奴隶安心就是这么简单//@破布扯蛋…</a>
+</h2>
+<p>//@打恶不如做恶吃香:让奴隶安心就是这么简单//@破布扯蛋十九:坏事儿又变成好事了……[挖鼻]//@转世如转身2世://@白帽_青衫最少年: //@洎油I泯注:转发微博<br><br>RE: 江苏盐城事件，从辟谣到抓捕造谣群众，到凶狠的风暴导致人员伤亡，天朝的政治生态，再度验证了谣言大多是遥遥领先的预言。而中共当局，角色转换也足够快，群众情绪被稳定了，轰轰烈烈的抢救，大爱无疆，谣言被删除，丧事就这样变成了喜事。</p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3989836995884704" target="freeweibo-mirror">//@何三畏:转发微博</a>
 </h2>
 <p>//@何三畏:转发微博<br><br>RE: 【雷洋尸检单位遭举报 法医陷造假传闻】6月21日下午，雷洋案代理律师陈有西称，目前律师和家属还在等待雷洋的尸检报告，暂无最新情况介绍。然而，雷洋案指定的尸检机构法人代表霍家润日前连遭到网络举报，称其学历、履历造假，甚至还曾因赌博被免职。<br><img src="http://ww1.sinaimg.cn/large/006uSESAgw1f55o3j022qj30i20o277x.jpg"></p>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3989587447888209" target="freeweibo-mirror">放学回家啦！</a>
 </h2>
 <p>放学回家啦！<br><img src="http://ww4.sinaimg.cn/large/005WOkKfgw1f55awf5g2qj30dm0a0dih.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3989586235784324" target="freeweibo-mirror">//@唐山辣评:转发微博</a>
-</h2>
-<p>//@唐山辣评:转发微博<br><br>RE: 【乌坎村民写给林祖恋书记的一封信】恕不作评，请广大网友自己看、自己判断......<br><img src="http://ww2.sinaimg.cn/large/e59a2a43gw1f5571esycpj207q064gln.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
