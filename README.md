@@ -59,7 +59,7 @@
 </h2>
 <p>午夜，来自人大校友群……[蜡烛]<br><img src="http://ww4.sinaimg.cn/large/70d85613jw1f55mz8q6fbj20jg0elgma.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3989668691019145" target="freeweibo-mirror">SPAM “春眠不觉晓 发型很重要 看潮美发型 颜值增不少”…</a>
 </h2>
