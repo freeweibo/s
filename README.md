@@ -29,7 +29,7 @@
 </h2>
 <p>其实这只不过是他最初的梦想而已。//@王玉凡2011:享受这种三呼万岁的感觉。<br><br>RE: 让多年的同事，当面举着自己的语录本、喊自己万岁，你就那么地好意思吗？安之若素，甘之若饴……<br><img src="http://ww4.sinaimg.cn/large/006lYjOWjw1f57b2859hpj30hs0andgl.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3990368430952847" target="freeweibo-mirror">//@Nuclear-Winter://@寒铁扉: //@文…</a>
 </h2>
@@ -65,7 +65,7 @@
 </h2>
 <p>SPAM //@章鱼大笑: [哈哈]养小鬼最终被鬼上身 //@301301wang:[doge]//@杨佩昌:[吃惊]？<br><br>RE: 同志加兄弟。<br><img src="http://ww3.sinaimg.cn/large/6f0978aajw1f57mttlnjjj20hs0vk79e.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3990323686500762" target="freeweibo-mirror">SPAM 好基友，一辈子。</a>
 </h2>
