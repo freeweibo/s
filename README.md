@@ -47,7 +47,7 @@
 </h2>
 <p>世间事最好是一笑了之，不必用眼泪去冲洗。-----泰戈尔 //@克罗诺斯2011:每个人心中都有一座文字狱。真正的审查不是中宣部的指令，而是你的恐惧。 //@上海碩鼠:[围观]//@黑黑_Ars: //@晓雨闻铃:→_→//@范剑平: →_→ //@茶人悟茶:瞎联想，吓得小编删掉了！<br><br>RE: 人民网发了条微博，后来删了，也不知道为什么？[思考]<br><img src="http://ww2.sinaimg.cn/large/776785c1gw1f57c3mzmakj20u01hc4pg.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3990271182066826" target="freeweibo-mirror">真能联想//@侯宁:中国人的脑子太复杂，难怪踢不好足球！[右…</a>
 </h2>
@@ -107,7 +107,7 @@
 </h2>
 <p>SPAM 来，联想无罪[doge]<br><br>RE: 人民网发了条微博，后来删了，也不知道为什么？[思考]<br><img src="http://ww2.sinaimg.cn/large/776785c1gw1f57c3mzmakj20u01hc4pg.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3990256208281536" target="freeweibo-mirror">SPAM 倒车时向左打方向…… //@林熊_DruidLyn…</a>
 </h2>
@@ -131,13 +131,13 @@
 </h2>
 <p>→_→ //@晓雨闻铃:→_→//@范剑平: →_→ //@茶人悟茶:瞎联想，吓得小编删掉了！<br><br>RE: 人民网发了条微博，后来删了，也不知道为什么？[思考]<br><img src="http://ww2.sinaimg.cn/large/776785c1gw1f57c3mzmakj20u01hc4pg.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3990241284988694" target="freeweibo-mirror">→_→//@范剑平: →_→ //@茶人悟茶:瞎联想，吓得小…</a>
 </h2>
 <p>→_→//@范剑平: →_→ //@茶人悟茶:瞎联想，吓得小编删掉了！<br><br>RE: 人民网发了条微博，后来删了，也不知道为什么？[思考]<br><img src="http://ww2.sinaimg.cn/large/776785c1gw1f57c3mzmakj20u01hc4pg.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p>
 <table>
     <tr>
