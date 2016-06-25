@@ -37,6 +37,12 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3990392590491685" target="freeweibo-mirror">拿我们的税钱请最好的律师。。。为啥我看病就不能报进口药。。。…</a>
+</h2>
+<p>拿我们的税钱请最好的律师。。。为啥我看病就不能报进口药。。。。。//@徐昕: 谁辩护不重要，重要的是由谁买单<br><br>RE: 雷洋案涉案5名警察、辅警分别聘请全国律协刑委会副主任翟建、秘书长韩嘉毅、委员杨晓虹、钱列阳等担任辩护人。http://t.cn/R5leoP5 好标准的配置!前些日有朋友在微信群内曝涉案警察、辅警辩护人系由公安统一“采购”,并提到了翟、钱等律师,莫非竟是真的？不知多位“红顶”律师为几名警察、辅警辩护,价...全文： http://m.weibo.cn/1272651680/3990374311094719</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3990372780141908" target="freeweibo-mirror">SPAM 能说明问题吗？//@诸子百家之一:当年请斯诺上天安…</a>
 </h2>
 <p>SPAM 能说明问题吗？//@诸子百家之一:当年请斯诺上天安门，就是为了向老美发出信号。无奈老美迟钝，没看懂//@邓相超</p>
@@ -47,7 +53,7 @@
 </h2>
 <p>其实这只不过是他最初的梦想而已。//@王玉凡2011:享受这种三呼万岁的感觉。<br><br>RE: 让多年的同事，当面举着自己的语录本、喊自己万岁，你就那么地好意思吗？安之若素，甘之若饴……<br><img src="http://ww4.sinaimg.cn/large/006lYjOWjw1f57b2859hpj30hs0andgl.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3990368430952847" target="freeweibo-mirror">//@Nuclear-Winter://@寒铁扉: //@文…</a>
 </h2>
@@ -83,7 +89,7 @@
 </h2>
 <p>SPAM //@章鱼大笑: [哈哈]养小鬼最终被鬼上身 //@301301wang:[doge]//@杨佩昌:[吃惊]？<br><br>RE: 同志加兄弟。<br><img src="http://ww3.sinaimg.cn/large/6f0978aajw1f57mttlnjjj20hs0vk79e.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3990323686500762" target="freeweibo-mirror">SPAM 好基友，一辈子。</a>
 </h2>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3990291516242146" target="freeweibo-mirror">高级黑#御剑倾城##路之遥#//@艾草根:黑 //@顾明峰:…</a>
 </h2>
 <p>高级黑#御剑倾城##路之遥#//@艾草根:黑 //@顾明峰://@冷俊123:呵呵呵。//@铁骑军会所01:[笑哈哈]//@逝去的年华精彩: [笑哈哈]//@靓-海棠鹿: //@七步閣3:[笑cry][笑cry][笑cry] //@吾醉吾亦梦:[哈哈][哈哈][哈哈][赞][赞][赞][笑cry][笑cry][笑cry] //@算盘纸:[哈哈][哈哈][哈哈][哈哈]</p>
-<p>
-	<small> ============== 9小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3990290170322694" target="freeweibo-mirror">SPAM 北冰洋的，西伯利亚的项目都咋样了？等南海表态么</a>
-</h2>
-<p>SPAM 北冰洋的，西伯利亚的项目都咋样了？等南海表态么<br><img src="http://ww4.sinaimg.cn/large/631f87b9jw1f57jkoribaj20m80ci75u.jpg"></p>
 <p>
 	<small> ============== 9小时前</small>
 </p>
