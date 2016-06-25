@@ -25,6 +25,12 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3990345262293722" target="freeweibo-mirror">小伙伴们都惊呆了！！！[吃惊][吃惊][吃惊]</a>
+</h2>
+<p>小伙伴们都惊呆了！！！[吃惊][吃惊][吃惊]<br><img src="http://ww1.sinaimg.cn/large/ab90477ejw1f57pwwywwmj20go0m8q49.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3990325221234928" target="freeweibo-mirror">SPAM //@章鱼大笑: [哈哈]养小鬼最终被鬼上身 //…</a>
 </h2>
 <p>SPAM //@章鱼大笑: [哈哈]养小鬼最终被鬼上身 //@301301wang:[doge]//@杨佩昌:[吃惊]？<br><br>RE: 同志加兄弟。<br><img src="http://ww3.sinaimg.cn/large/6f0978aajw1f57mttlnjjj20hs0vk79e.jpg"></p>
@@ -95,7 +101,7 @@
 </h2>
 <p>灾后有捐款和拨款，绷不住了。 //@灵逸飞羽:你妈滴，我天天转，释放表哥杨达才！//@一路向东ooo://@灵逸飞羽:每名干部都带块表！！表哥杨达才貌似就长一张笑脸，这几名党员干部一块笑，好开心，是不是可以打救灾款的主意了！[推荐]@灵逸飞羽:这个不处理，表哥杨达才太冤枉了！[哆啦A梦吃惊]<br><br>RE: 据说这是江苏盐城一领导笑容满面地视察灾区。请问这是哪个领导？ http://t.cn/R5lWJX4 .</p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3990275817459234" target="freeweibo-mirror">真实的林祖恋</a>
 </h2>
@@ -113,7 +119,7 @@
 </h2>
 <p>世间事最好是一笑了之，不必用眼泪去冲洗。-----泰戈尔 //@克罗诺斯2011:每个人心中都有一座文字狱。真正的审查不是中宣部的指令，而是你的恐惧。 //@上海碩鼠:[围观]//@黑黑_Ars: //@晓雨闻铃:→_→//@范剑平: →_→ //@茶人悟茶:瞎联想，吓得小编删掉了！<br><br>RE: 人民网发了条微博，后来删了，也不知道为什么？[思考]<br><img src="http://ww2.sinaimg.cn/large/776785c1gw1f57c3mzmakj20u01hc4pg.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3990271182066826" target="freeweibo-mirror">真能联想//@侯宁:中国人的脑子太复杂，难怪踢不好足球！[右…</a>
 </h2>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3990270976627134" target="freeweibo-mirror">//@happy热哥:[哈哈] //@侯宁:中国人的脑子太复…</a>
 </h2>
 <p>//@happy热哥:[哈哈] //@侯宁:中国人的脑子太复杂，难怪踢不好足球！[右哼哼][左哼哼]//@王君超: 编码无心，解码有意。 //@赵小波:真的有趣[哈哈]//@李正曦Sissi:[哈哈][哈哈][哈哈] //@响马:哈哈哈哈哈哈<br><br>RE: 人民网发了条微博，后来删了，也不知道为什么？[思考]<br><img src="http://ww2.sinaimg.cn/large/776785c1gw1f57c3mzmakj20u01hc4pg.jpg"></p>
-<p>
-	<small> ============== 8小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3990270263671704" target="freeweibo-mirror">嘴上高呼为共产主义奋斗！//@温兆儒:中国官员三大动力：升官…</a>
-</h2>
-<p>嘴上高呼为共产主义奋斗！//@温兆儒:中国官员三大动力：升官发财搞女人<br><br>RE: 【叶迎春与周永康好图到了什么】媒体报道央视美女叶迎春辞去全国政协委员职务，央视一群美女伺候当时党和国家领导人周永康，贾晓晔是康师傅明媒正娶，是有身份的；沈冰与康师傅私通有人说是为了副厅级职务，也有说是为了帮其房地产老公卖房子；叶迎春到底图了什么？难道是政协委员职务？这不属于政府信...全文： http://m.weibo.cn/3198720857/3990165279525557...全文： http://m.weibo.cn/3198720857/3990165279525557<br><img src="http://ww4.sinaimg.cn/large/bea89b59jw1f574v4kxj6j20gy0j6gnz.jpg"></p>
 <p>
 	<small> ============== 8小时前</small>
 </p>
