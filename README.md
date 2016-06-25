@@ -19,6 +19,24 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3990401532887870" target="freeweibo-mirror">慌什么？还有政法委呐！</a>
+</h2>
+<p>慌什么？还有政法委呐！<br><br>RE: 雷洋案涉案5名警察、辅警分别聘请全国律协刑委会副主任翟建、秘书长韩嘉毅、委员杨晓虹、钱列阳等担任辩护人。http://t.cn/R5leoP5 好标准的配置!前些日有朋友在微信群内曝涉案警察、辅警辩护人系由公安统一“采购”,并提到了翟、钱等律师,莫非竟是真的？不知多位“红顶”律师为几名警察、辅警辩护,价...全文： http://m.weibo.cn/1272651680/3990374311094719</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3990397640519045" target="freeweibo-mirror">最近香港警员被告，警队同袍可是自掏腰包凑钱请大状的哦！何来统…</a>
+</h2>
+<p>最近香港警员被告，警队同袍可是自掏腰包凑钱请大状的哦！何来统一采购？<br><br>RE: 雷洋案涉案5名警察、辅警分别聘请全国律协刑委会副主任翟建、秘书长韩嘉毅、委员杨晓虹、钱列阳等担任辩护人。http://t.cn/R5leoP5 好标准的配置!前些日有朋友在微信群内曝涉案警察、辅警辩护人系由公安统一“采购”,并提到了翟、钱等律师,莫非竟是真的？不知多位“红顶”律师为几名警察、辅警辩护,价...全文： http://m.weibo.cn/1272651680/3990374311094719</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3990393286453149" target="freeweibo-mirror">//@徐昕:谁辩护不重要，重要的是由谁买单</a>
+</h2>
+<p>//@徐昕:谁辩护不重要，重要的是由谁买单<br><br>RE: 雷洋案涉案5名警察、辅警分别聘请全国律协刑委会副主任翟建、秘书长韩嘉毅、委员杨晓虹、钱列阳等担任辩护人。http://t.cn/R5leoP5 好标准的配置!前些日有朋友在微信群内曝涉案警察、辅警辩护人系由公安统一“采购”,并提到了翟、钱等律师,莫非竟是真的？不知多位“红顶”律师为几名警察、辅警辩护,价...全文： http://m.weibo.cn/1272651680/3990374311094719</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3990372780141908" target="freeweibo-mirror">SPAM 能说明问题吗？//@诸子百家之一:当年请斯诺上天安…</a>
 </h2>
 <p>SPAM 能说明问题吗？//@诸子百家之一:当年请斯诺上天安门，就是为了向老美发出信号。无奈老美迟钝，没看懂//@邓相超</p>
@@ -35,13 +53,13 @@
 </h2>
 <p>//@Nuclear-Winter://@寒铁扉: //@文盲盛宴7世://@LVLVLVLV花生大少: //@东记水冰://@karies2007:转发微博//@文盲盛宴7世://@LVLVLVLV花生大少: //@东记水冰://@karies2007:转发微博<br><br>RE: 陈云飞被控寻衅滋事案将于6月30日在成都开庭审理 仅给家属两张旁听证（图）<br><img src="http://ww2.sinaimg.cn/large/006fOUDbjw1f57fo80qaej30ku11243d.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3990354300495952" target="freeweibo-mirror">SPAM //@星洪-:心声么。[挖鼻] //@耋耋翁:何至…</a>
 </h2>
 <p>SPAM //@星洪-:心声么。[挖鼻] //@耋耋翁:何至于此！<br><br>RE: 小伙伴们都惊呆了！！！[吃惊][吃惊][吃惊]<br><img src="http://ww1.sinaimg.cn/large/ab90477ejw1f57pwwywwmj20go0m8q49.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3990353008741001" target="freeweibo-mirror">愚民没底线//@中華保釣號://@为常识而奋斗2://@pa…</a>
 </h2>
@@ -71,7 +89,7 @@
 </h2>
 <p>SPAM 好基友，一辈子。<br><br>RE: 同志加兄弟。<br><img src="http://ww3.sinaimg.cn/large/6f0978aajw1f57mttlnjjj20hs0vk79e.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3990322894250048" target="freeweibo-mirror">SPAM 不仅有假币，还有毒品。//@杨佩昌: [吃惊]？</a>
 </h2>
@@ -107,7 +125,7 @@
 </h2>
 <p>//@歪说扯扯://@孔门七十二县人:转发微博</p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3990291516242146" target="freeweibo-mirror">高级黑#御剑倾城##路之遥#//@艾草根:黑 //@顾明峰:…</a>
 </h2>
@@ -120,24 +138,6 @@
 <p>SPAM 北冰洋的，西伯利亚的项目都咋样了？等南海表态么<br><img src="http://ww4.sinaimg.cn/large/631f87b9jw1f57jkoribaj20m80ci75u.jpg"></p>
 <p>
 	<small> ============== 9小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3990288630138842" target="freeweibo-mirror">//@老饕加右://@孔门七十二县人://@针叶林2:转发微…</a>
-</h2>
-<p>//@老饕加右://@孔门七十二县人://@针叶林2:转发微博<br><br>RE: 真实的林祖恋<br><img src="http://ww2.sinaimg.cn/large/006eDRBogw1f57hxnqbv9j30f00qoabt.jpg"></p>
-<p>
-	<small> ============== 9小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3990287761603363" target="freeweibo-mirror">灾后有捐款和拨款，绷不住了。 //@灵逸飞羽:你妈滴，我天天…</a>
-</h2>
-<p>灾后有捐款和拨款，绷不住了。 //@灵逸飞羽:你妈滴，我天天转，释放表哥杨达才！//@一路向东ooo://@灵逸飞羽:每名干部都带块表！！表哥杨达才貌似就长一张笑脸，这几名党员干部一块笑，好开心，是不是可以打救灾款的主意了！[推荐]@灵逸飞羽:这个不处理，表哥杨达才太冤枉了！[哆啦A梦吃惊]<br><br>RE: 据说这是江苏盐城一领导笑容满面地视察灾区。请问这是哪个领导？ http://t.cn/R5lWJX4 .</p>
-<p>
-	<small> ============== 9小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3990275817459234" target="freeweibo-mirror">真实的林祖恋</a>
-</h2>
-<p>真实的林祖恋<br><img src="http://ww2.sinaimg.cn/large/006eDRBogw1f57hxnqbv9j30f00qoabt.jpg"></p>
-<p>
-	<small> ============== 10小时前</small>
 </p>
 <table>
     <tr>
