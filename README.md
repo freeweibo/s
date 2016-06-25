@@ -95,7 +95,7 @@
 </h2>
 <p>其实这只不过是他最初的梦想而已。//@王玉凡2011:享受这种三呼万岁的感觉。<br><br>RE: 让多年的同事，当面举着自己的语录本、喊自己万岁，你就那么地好意思吗？安之若素，甘之若饴……<br><img src="http://ww4.sinaimg.cn/large/006lYjOWjw1f57b2859hpj30hs0andgl.jpg"></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3990368430952847" target="freeweibo-mirror">//@Nuclear-Winter://@寒铁扉: //@文…</a>
 </h2>
