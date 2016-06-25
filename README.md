@@ -29,7 +29,7 @@
 </h2>
 <p>有人用膝盖跪着，有人用精神跪着；想不跪着活应该是个很难的事情。//@徐昕: //@优雅波罗://@胡坤821:转或不转，大家自己看吧。 //@王鹏律师:哎！已经无力吐槽了。//@李继锋:不得不服吧//@柴喜男:好[good]把你们的人民踩在脚下<br><br>RE: “新土地革命” http://t.cn/R5lIPZi</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3990292933162163" target="freeweibo-mirror">//@歪说扯扯://@孔门七十二县人:转发微博</a>
 </h2>
@@ -47,11 +47,17 @@
 </h2>
 <p>SPAM 北冰洋的，西伯利亚的项目都咋样了？等南海表态么<br><img src="http://ww4.sinaimg.cn/large/631f87b9jw1f57jkoribaj20m80ci75u.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3990288630138842" target="freeweibo-mirror">//@老饕加右://@孔门七十二县人://@针叶林2:转发微…</a>
 </h2>
 <p>//@老饕加右://@孔门七十二县人://@针叶林2:转发微博<br><br>RE: 真实的林祖恋<br><img src="http://ww2.sinaimg.cn/large/006eDRBogw1f57hxnqbv9j30f00qoabt.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3990287761603363" target="freeweibo-mirror">灾后有捐款和拨款，绷不住了。 //@灵逸飞羽:你妈滴，我天天…</a>
+</h2>
+<p>灾后有捐款和拨款，绷不住了。 //@灵逸飞羽:你妈滴，我天天转，释放表哥杨达才！//@一路向东ooo://@灵逸飞羽:每名干部都带块表！！表哥杨达才貌似就长一张笑脸，这几名党员干部一块笑，好开心，是不是可以打救灾款的主意了！[推荐]@灵逸飞羽:这个不处理，表哥杨达才太冤枉了！[哆啦A梦吃惊]<br><br>RE: 据说这是江苏盐城一领导笑容满面地视察灾区。请问这是哪个领导？ http://t.cn/R5lWJX4 .</p>
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
@@ -65,7 +71,7 @@
 </h2>
 <p>SPAM 这也删？被打趣一下会死？自信呢？ //@识魔小白:小编索性穿上了尿不湿。//@猪猪侠是猪还是侠: →_→//@高立东-刀尖舞者://@实话史说: [哈哈] //@摔三角拍烟画:[哈哈]//@疯少7V989:[哈哈]//@防务君:[doge]//@蓝猫小美://@股社区: 途观（TG）开倒车，硬着陆，啊哈哈哈哈[偷笑]<br><br>RE: 人民网发了条微博，后来删了，也不知道为什么？[思考]<br><img src="http://ww2.sinaimg.cn/large/776785c1gw1f57c3mzmakj20u01hc4pg.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3990271760564129" target="freeweibo-mirror">世间事最好是一笑了之，不必用眼泪去冲洗。-----泰戈尔 /…</a>
 </h2>
@@ -132,12 +138,6 @@
 <p>[ok]//@雪落梅林2016:没有监督的权力，就犹如洪水猛兽。<br><br>RE: 【叶迎春与周永康好图到了什么】媒体报道央视美女叶迎春辞去全国政协委员职务，央视一群美女伺候当时党和国家领导人周永康，贾晓晔是康师傅明媒正娶，是有身份的；沈冰与康师傅私通有人说是为了副厅级职务，也有说是为了帮其房地产老公卖房子；叶迎春到底图了什么？难道是政协委员职务？这不属于政府信...全文： http://m.weibo.cn/3198720857/3990165279525557...全文： http://m.weibo.cn/3198720857/3990165279525557<br><img src="http://ww4.sinaimg.cn/large/bea89b59jw1f574v4kxj6j20gy0j6gnz.jpg"></p>
 <p>
 	<small> ============== 4小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3990257491765025" target="freeweibo-mirror">SPAM 来，联想无罪[doge]</a>
-</h2>
-<p>SPAM 来，联想无罪[doge]<br><br>RE: 人民网发了条微博，后来删了，也不知道为什么？[思考]<br><img src="http://ww2.sinaimg.cn/large/776785c1gw1f57c3mzmakj20u01hc4pg.jpg"></p>
-<p>
-	<small> ============== 5小时前</small>
 </p>
 <table>
     <tr>
