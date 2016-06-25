@@ -55,6 +55,24 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3990391151584675" target="freeweibo-mirror">与香港某警案聘请大律师一样</a>
+</h2>
+<p>与香港某警案聘请大律师一样<br><br>RE: 雷洋案涉案5名警察、辅警分别聘请全国律协刑委会副主任翟建、秘书长韩嘉毅、委员杨晓虹、钱列阳等担任辩护人。http://t.cn/R5leoP5 好标准的配置!前些日有朋友在微信群内曝涉案警察、辅警辩护人系由公安统一“采购”,并提到了翟、钱等律师,莫非竟是真的？不知多位“红顶”律师为几名警察、辅警辩护,价...全文： http://m.weibo.cn/1272651680/3990374311094719</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3990377696377111" target="freeweibo-mirror">谁辩护不重要，重要的是由谁买单</a>
+</h2>
+<p>谁辩护不重要，重要的是由谁买单<br><br>RE: 雷洋案涉案5名警察、辅警分别聘请全国律协刑委会副主任翟建、秘书长韩嘉毅、委员杨晓虹、钱列阳等担任辩护人。http://t.cn/R5leoP5 好标准的配置!前些日有朋友在微信群内曝涉案警察、辅警辩护人系由公安统一“采购”,并提到了翟、钱等律师,莫非竟是真的？不知多位“红顶”律师为几名警察、辅警辩护,价...全文： http://m.weibo.cn/1272651680/3990374311094719</p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3990374311094719" target="freeweibo-mirror">雷洋案涉案5名警察、辅警分别聘请全国律协刑委会副主任翟建、秘…</a>
+</h2>
+<p>雷洋案涉案5名警察、辅警分别聘请全国律协刑委会副主任翟建、秘书长韩嘉毅、委员杨晓虹、钱列阳等担任辩护人。http://t.cn/R5leoP5 好标准的配置!前些日有朋友在微信群内曝涉案警察、辅警辩护人系由公安统一“采购”,并提到了翟、钱等律师,莫非竟是真的？不知多位“红顶”律师为几名警察、辅警辩护,价...全文： http://m.weibo.cn/1272651680/3990374311094719</p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3990372780141908" target="freeweibo-mirror">SPAM 能说明问题吗？//@诸子百家之一:当年请斯诺上天安…</a>
 </h2>
 <p>SPAM 能说明问题吗？//@诸子百家之一:当年请斯诺上天安门，就是为了向老美发出信号。无奈老美迟钝，没看懂//@邓相超</p>
@@ -95,7 +113,7 @@
 </h2>
 <p>小伙伴们都惊呆了！！！[吃惊][吃惊][吃惊]<br><img src="http://ww1.sinaimg.cn/large/ab90477ejw1f57pwwywwmj20go0m8q49.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3990325221234928" target="freeweibo-mirror">SPAM //@章鱼大笑: [哈哈]养小鬼最终被鬼上身 //…</a>
 </h2>
@@ -120,24 +138,6 @@
 <p>SPAM [吃惊]？<br><br>RE: 同志加兄弟。<br><img src="http://ww3.sinaimg.cn/large/6f0978aajw1f57mttlnjjj20hs0vk79e.jpg"></p>
 <p>
 	<small> ============== 7小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3990320699754267" target="freeweibo-mirror">同志加兄弟。</a>
-</h2>
-<p>同志加兄弟。<br><img src="http://ww3.sinaimg.cn/large/6f0978aajw1f57mttlnjjj20hs0vk79e.jpg"></p>
-<p>
-	<small> ============== 7小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3990312436884677" target="freeweibo-mirror">@SK-II 的宣传一向大胆特别，前阵子那个剩女视频让很多人…</a>
-</h2>
-<p>@SK-II 的宣传一向大胆特别，前阵子那个剩女视频让很多人记忆犹新，一举获得戛纳创意节玻璃狮金奖。前两天他们又在全球九个城市24小时接力举办了一场关于梦想的讨论，引发了全球媒体的关注。这场全球活动通过儿童发声，鼓励现代女性重拾心中梦想，走出改写自己命运的第一步。<br><img src="http://ww4.sinaimg.cn/large/620e418ajw1f57m23r3pxj20qe0euacg.jpg"></p>
-<p>
-	<small> ============== 8小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3990305390222622" target="freeweibo-mirror">有人用膝盖跪着，有人用精神跪着；想不跪着活应该是个很难的事情…</a>
-</h2>
-<p>有人用膝盖跪着，有人用精神跪着；想不跪着活应该是个很难的事情。//@徐昕: //@优雅波罗://@胡坤821:转或不转，大家自己看吧。 //@王鹏律师:哎！已经无力吐槽了。//@李继锋:不得不服吧//@柴喜男:好[good]把你们的人民踩在脚下<br><br>RE: “新土地革命” http://t.cn/R5lIPZi</p>
-<p>
-	<small> ============== 8小时前</small>
 </p>
 <table>
     <tr>
