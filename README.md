@@ -23,7 +23,7 @@
 </h2>
 <p>SPAM //@章鱼大笑: [哈哈]养小鬼最终被鬼上身 //@301301wang:[doge]//@杨佩昌:[吃惊]？<br><br>RE: 同志加兄弟。<br><img src="http://ww3.sinaimg.cn/large/6f0978aajw1f57mttlnjjj20hs0vk79e.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3990323686500762" target="freeweibo-mirror">SPAM 好基友，一辈子。</a>
 </h2>
