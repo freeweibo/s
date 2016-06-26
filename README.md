@@ -59,7 +59,7 @@
 </h2>
 <p>SPAM 其实你也能想她们一样的[害羞]</p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3990401532887870" target="freeweibo-mirror">慌什么？还有政法委呐！</a>
 </h2>
