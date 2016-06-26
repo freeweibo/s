@@ -23,7 +23,7 @@
 </h2>
 <p>振振有词。//@海爷海爷: //@邓相超: //@翰翰的爸爸: [笑cry]//@孤独得农民: //@记者谈春平: 哈哈很明细啊 //@天天喝怡宝:辅导员、团委书记、人民日报、汕尾市长、现任广东宣传部副部长 //@记者谈春平:#老谈说事# 据传此人以胜任宣传部长。<br><br>RE: 其实他说出了大部分当官的心里话，只是大部分父母官道貌岸然的称为人民服务却在暗地里搜刮民脂民膏而已。 http://t.cn/R5liIkv .</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3990699491431159" target="freeweibo-mirror">//@B2B2C研究VI:胡编是非良知人士，不用担心[哈哈]…</a>
 </h2>
@@ -53,13 +53,13 @@
 </h2>
 <p>光天化日啊[吃惊]小心天打雷劈！#仙桃垃圾焚烧站 我不想生活在致癌区#在发布停建公告后的仙桃，到处抓人打人。@凤凰新闻客户端 @头条新闻 @央视新闻 @中国环境新闻  http://t.cn/R5jHjxH http://t.cn/R5jHjxH</p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3990657821496209" target="freeweibo-mirror">SPAM //@文理科2112://@Alex599cf: …</a>
 </h2>
 <p>SPAM //@文理科2112://@Alex599cf: //@老哥阿杜:咱这可是古今中外第一名啊<br><br>RE: 日本人说……<br><img src="http://ww3.sinaimg.cn/large/006g56pajw1f58ocg9qh2j30lf0f842m.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3990652666057601" target="freeweibo-mirror">[泪]声援仙桃人民。。</a>
 </h2>
@@ -113,7 +113,7 @@
 </h2>
 <p>养兵千日用兵一时：招之能战，战之必胜！//@新川江号子: //@活捉死老鼠:广告：易父而揍//@mixivivo://@维克多星球: 转发微博<br><br>RE: #仙桃垃圾焚烧站# 今晨有20余辆军用卡车两载千余名武警从外地赶到仙桃，这种卑劣的方式怎么让人有种那啥进村的感觉！火车站你建在天门，垃圾场你建到仙桃！湖北省委仙桃市委,仙桃人民的心声，只是不想每日每夜的生活在烟雾迷漫之中，不想做神仙，只想做个健康的人！不要冷了几百万仙桃人民的心！<br><img src="http://ww2.sinaimg.cn/large/bec56476gw1f58fui2ujuj20zk0qowq5.jpg"></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3990590363822109" target="freeweibo-mirror">湖北省仙桃市政府 就是这样欺压人民 我们人民怎么了 大家转起…</a>
 </h2>
