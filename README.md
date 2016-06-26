@@ -23,7 +23,7 @@
 </h2>
 <p>SPAM 【转汪金友先生文：著名杂文家朱铁志不幸辞世_凤凰博报】 http://t.cn/R5jr0MH</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3990657821496209" target="freeweibo-mirror">SPAM //@文理科2112://@Alex599cf: …</a>
 </h2>
@@ -41,7 +41,7 @@
 </h2>
 <p>日本人说……<br><img src="http://ww3.sinaimg.cn/large/006g56pajw1f58ocg9qh2j30lf0f842m.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3990640822564685" target="freeweibo-mirror">SPAM 太需要了，好爱LISA~</a>
 </h2>
