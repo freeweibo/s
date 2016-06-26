@@ -59,7 +59,7 @@
 </h2>
 <p>//@今晚报:涨姿势[微笑]//@椒江叶Sir:查么？ //@带刀小捕快:要查！ //@千钧客:当年大谣棍摆古论今还活着的时候，发一条抹黑中国的微博，境外给300元。那个时期，被公知捧推的小玲有话说、张婉系列等，哪个不是拿外国钱财攻击中国的？还有一部分本身就是轮子号。是谁在背后操控？<br><br>RE: #捡到个图#组织严密，考核严格，津贴奖金及时发放！看其中一位的发言，你说这是五毛，还是美分？[doge]<br><img src="http://ww3.sinaimg.cn/large/94f2ee88gw1f58wctupokj20iv0dkq63.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3990748338209815" target="freeweibo-mirror">仙桃子弟快当兵去啊//@鄢烈山: //@懒得开花也结果：回复…</a>
 </h2>
@@ -113,7 +113,7 @@
 </h2>
 <p>//@B2B2C研究VI:胡编是非良知人士，不用担心[哈哈]。//@雁塔10木屋: //@砖头的记忆: 胡编呢[doge]//@观者5V://@社会主义下的9527://@jhw333:？<br><br>RE: 這是什麼情況啊<br><img src="http://ww1.sinaimg.cn/large/89a8cbc1gw1f58sz1dmwxj20qo1bfdjs.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3990694420750186" target="freeweibo-mirror">骂了隔壁，一边造恶，一边还威胁网友微博微信不得谈论[怒]//…</a>
 </h2>
