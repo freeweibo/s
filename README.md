@@ -53,7 +53,7 @@
 </h2>
 <p>SPAM 一个女人旺不旺夫，看脸就知道</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3990407304254171" target="freeweibo-mirror">SPAM 其实你也能想她们一样的[害羞]</a>
 </h2>
