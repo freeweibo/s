@@ -125,7 +125,7 @@
 </h2>
 <p>SPAM 【转汪金友先生文：著名杂文家朱铁志不幸辞世_凤凰博报】 http://t.cn/R5jr0MH</p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3990685239879863" target="freeweibo-mirror">這是什麼情況啊</a>
 </h2>
