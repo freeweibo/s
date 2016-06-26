@@ -41,7 +41,7 @@
 </h2>
 <p>[泪]声援仙桃人民。。<br><br>RE: 我一直本着不传谣不造谣不生事的态度去看待网络上的舆情。在我不了解情况的时候，我也不会转发或评论任何事情。这件事情闹了两天，在看到民众的诉求得到了市长的正式回应，本以为告一段落。结果一面宣布停建，另一边依然在建并且一车车的武警。心寒。#仙桃垃圾焚烧站# http://t.cn/R5jQm7Q .</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3990645036997557" target="freeweibo-mirror">日本人说……</a>
 </h2>
@@ -77,7 +77,7 @@
 </h2>
 <p>//@刚刚刚刚刚侬刚: 没看懂什么事情，去堵警察局干嘛//@博者文摘:转发微博<br><br>RE: 湖北省仙桃市政府 就是这样欺压人民 我们人民怎么了 大家转起来 [怒][怒] http://t.cn/R2WJz0d http://t.cn/R5jNOLV .</p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3990609742116091" target="freeweibo-mirror">支持抵制！转发也是力量。//@都市盲人:@妩媚IS青山 是这…</a>
 </h2>
@@ -101,7 +101,7 @@
 </h2>
 <p>坚决抵制垃圾焚烧厂建在仙桃！看看人民群众的力量有多么强大。麻烦身在外地的朋友给点支持！<br><img src="http://ww2.sinaimg.cn/large/96b10177gw1f58gjb5hm4j20zk0qo10f.jpg"></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3990570957482344" target="freeweibo-mirror">#仙桃垃圾焚烧站# 今晨有20余辆军用卡车两载千余名武警从外…</a>
 </h2>
