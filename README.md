@@ -89,13 +89,13 @@
 </h2>
 <p>SPAM 好看，喜欢的入手呦~</p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3990631950347778" target="freeweibo-mirror">440也划算啊！ //@开水族馆的生物男:智商水平跟族群、环…</a>
 </h2>
 <p>440也划算啊！ //@开水族馆的生物男:智商水平跟族群、环境、营养、教育都有关……偏远地区基本全完蛋……每年都有费尽心思转学籍过去的<br><br>RE: 西藏高考分数线公布，如果你是一个西藏的汉族学生，你和你的同班少数民族同学考了一个分数，那么结果很可能是你去上了专科，而他去了一所211院校。这种政策你敢说不是故意把所有汉族赶出西藏？<br><img src="http://ww3.sinaimg.cn/large/8f1bd71bgw1f57u3wud90j20lc0phq8p.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3990621569669981" target="freeweibo-mirror">//@刚刚刚刚刚侬刚: 没看懂什么事情，去堵警察局干嘛//@…</a>
 </h2>
