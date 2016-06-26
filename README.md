@@ -19,6 +19,18 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3990631950347778" target="freeweibo-mirror">440也划算啊！ //@开水族馆的生物男:智商水平跟族群、环…</a>
+</h2>
+<p>440也划算啊！ //@开水族馆的生物男:智商水平跟族群、环境、营养、教育都有关……偏远地区基本全完蛋……每年都有费尽心思转学籍过去的<br><br>RE: 西藏高考分数线公布，如果你是一个西藏的汉族学生，你和你的同班少数民族同学考了一个分数，那么结果很可能是你去上了专科，而他去了一所211院校。这种政策你敢说不是故意把所有汉族赶出西藏？<br><img src="http://ww3.sinaimg.cn/large/8f1bd71bgw1f57u3wud90j20lc0phq8p.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3990621569669981" target="freeweibo-mirror">//@刚刚刚刚刚侬刚: 没看懂什么事情，去堵警察局干嘛//@…</a>
+</h2>
+<p>//@刚刚刚刚刚侬刚: 没看懂什么事情，去堵警察局干嘛//@博者文摘:转发微博<br><br>RE: 湖北省仙桃市政府 就是这样欺压人民 我们人民怎么了 大家转起来 [怒][怒] http://t.cn/R2WJz0d http://t.cn/R5jNOLV .</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3990609742116091" target="freeweibo-mirror">支持抵制！转发也是力量。//@都市盲人:@妩媚IS青山 是这…</a>
 </h2>
 <p>支持抵制！转发也是力量。//@都市盲人:@妩媚IS青山 是这事[疑问][疑问][疑问]//@泪水不再有温度:转发微博<br><br>RE: 坚决抵制垃圾焚烧厂建在仙桃！看看人民群众的力量有多么强大。麻烦身在外地的朋友给点支持！<br><img src="http://ww2.sinaimg.cn/large/96b10177gw1f58gjb5hm4j20zk0qo10f.jpg"></p>
@@ -124,18 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3990374311094719" target="freeweibo-mirror">雷洋案涉案5名警察、辅警分别聘请全国律协刑委会副主任翟建、秘…</a>
 </h2>
 <p>雷洋案涉案5名警察、辅警分别聘请全国律协刑委会副主任翟建、秘书长韩嘉毅、委员杨晓虹、钱列阳等担任辩护人。http://t.cn/R5leoP5 好标准的配置!前些日有朋友在微信群内曝涉案警察、辅警辩护人系由公安统一“采购”,并提到了翟、钱等律师,莫非竟是真的？不知多位“红顶”律师为几名警察、辅警辩护,价...全文： http://m.weibo.cn/1272651680/3990374311094719</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3990372780141908" target="freeweibo-mirror">SPAM 能说明问题吗？//@诸子百家之一:当年请斯诺上天安…</a>
-</h2>
-<p>SPAM 能说明问题吗？//@诸子百家之一:当年请斯诺上天安门，就是为了向老美发出信号。无奈老美迟钝，没看懂//@邓相超</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3990369706582281" target="freeweibo-mirror">其实这只不过是他最初的梦想而已。//@王玉凡2011:享受这…</a>
-</h2>
-<p>其实这只不过是他最初的梦想而已。//@王玉凡2011:享受这种三呼万岁的感觉。<br><br>RE: 让多年的同事，当面举着自己的语录本、喊自己万岁，你就那么地好意思吗？安之若素，甘之若饴……<br><img src="http://ww4.sinaimg.cn/large/006lYjOWjw1f57b2859hpj30hs0andgl.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
