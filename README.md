@@ -35,7 +35,7 @@
 </h2>
 <p>日本人说……<br><img src="http://ww3.sinaimg.cn/large/006g56pajw1f58ocg9qh2j30lf0f842m.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3990640822564685" target="freeweibo-mirror">SPAM 太需要了，好爱LISA~</a>
 </h2>
