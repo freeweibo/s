@@ -35,7 +35,7 @@
 </h2>
 <p>//@刚刚刚刚刚侬刚: 没看懂什么事情，去堵警察局干嘛//@博者文摘:转发微博<br><br>RE: 湖北省仙桃市政府 就是这样欺压人民 我们人民怎么了 大家转起来 [怒][怒] http://t.cn/R2WJz0d http://t.cn/R5jNOLV .</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3990609742116091" target="freeweibo-mirror">支持抵制！转发也是力量。//@都市盲人:@妩媚IS青山 是这…</a>
 </h2>
@@ -59,7 +59,7 @@
 </h2>
 <p>坚决抵制垃圾焚烧厂建在仙桃！看看人民群众的力量有多么强大。麻烦身在外地的朋友给点支持！<br><img src="http://ww2.sinaimg.cn/large/96b10177gw1f58gjb5hm4j20zk0qo10f.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3990570957482344" target="freeweibo-mirror">#仙桃垃圾焚烧站# 今晨有20余辆军用卡车两载千余名武警从外…</a>
 </h2>
