@@ -113,7 +113,7 @@
 </h2>
 <p>SPAM 喜欢的   加     威        ❤：aixie12</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3990521825267530" target="freeweibo-mirror">SPAM 情侣卡通  [心]</a>
 </h2>
