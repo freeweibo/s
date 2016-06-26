@@ -19,6 +19,18 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3990509070170881" target="freeweibo-mirror">呵呵，四分五裂？//@XN周华飞:欧伯，很佩服你所作所为，也…</a>
+</h2>
+<p>呵呵，四分五裂？//@XN周华飞:欧伯，很佩服你所作所为，也希望你能坚持，同时也希望这个社会能够越来越好。个别垃圾小人你不能把他们看成是共性，毕竟是个体，不要随便扣上大帽子。事实证明如果不是共产党领导与独政，中国或许早四分五裂了，这是所有华夏子孙都不愿见到的。</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3990500148882597" target="freeweibo-mirror">有城管的威武气势，有共产主义接班人之崇高素质！@微言教育 @…</a>
+</h2>
+<p>有城管的威武气势，有共产主义接班人之崇高素质！@微言教育 @共青团中央</p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3990426941204756" target="freeweibo-mirror">SPAM 一个女人旺不旺夫，看脸就知道</a>
 </h2>
 <p>SPAM 一个女人旺不旺夫，看脸就知道</p>
@@ -124,18 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3990345262293722" target="freeweibo-mirror">小伙伴们都惊呆了！！！[吃惊][吃惊][吃惊]</a>
 </h2>
 <p>小伙伴们都惊呆了！！！[吃惊][吃惊][吃惊]<br><img src="http://ww1.sinaimg.cn/large/ab90477ejw1f57pwwywwmj20go0m8q49.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3990325221234928" target="freeweibo-mirror">SPAM //@章鱼大笑: [哈哈]养小鬼最终被鬼上身 //…</a>
-</h2>
-<p>SPAM //@章鱼大笑: [哈哈]养小鬼最终被鬼上身 //@301301wang:[doge]//@杨佩昌:[吃惊]？<br><br>RE: 同志加兄弟。<br><img src="http://ww3.sinaimg.cn/large/6f0978aajw1f57mttlnjjj20hs0vk79e.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3990323686500762" target="freeweibo-mirror">SPAM 好基友，一辈子。</a>
-</h2>
-<p>SPAM 好基友，一辈子。<br><br>RE: 同志加兄弟。<br><img src="http://ww3.sinaimg.cn/large/6f0978aajw1f57mttlnjjj20hs0vk79e.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
