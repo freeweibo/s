@@ -23,7 +23,7 @@
 </h2>
 <p>SPAM 昨天写的长篇[爱你]<br><img src="http://ww3.sinaimg.cn/large/62212c5fgw1f59qfh9zimj20ku1120xw.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3990971349780708" target="freeweibo-mirror">一款好的运动文胸应该是什么样的？</a>
 </h2>
@@ -59,7 +59,7 @@
 </h2>
 <p>SPAM //@余胜海:网络评论员的酬劳真高，难怪他们跟疯狗一样到处咬人![偷笑]</p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3990898688209000" target="freeweibo-mirror">SPAM 强烈要求废了求是这个四不相的破名，改回《红旗》名号…</a>
 </h2>
