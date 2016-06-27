@@ -59,7 +59,7 @@
 </h2>
 <p>SPAM #《求是》杂志副总编辑朱铁志自缢辞世 # 　【财新网】（记者 周淇隽）6月26日下午，56岁的知名杂文家朱铁志自杀辞世的消息在网络迅速传播，众多文化界人士表示震惊和哀痛。晚间人民网发布消息证实，北京市杂文学会常务副会长、《求是》杂志副总编辑、著名杂文家朱铁志，于2016年6月26日凌晨不幸辞世。 ...全文： http://m.weibo.cn/1686199162/3990897760637132<br><img src="http://ww3.sinaimg.cn/large/64815b7ajw1f59hdbpwcbj20dh08z3yw.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3990895906399557" target="freeweibo-mirror">#美国恐怖故事# 主演Lady Gaga在ins上晒出了一组…</a>
 </h2>
