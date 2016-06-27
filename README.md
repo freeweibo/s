@@ -19,6 +19,18 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3991017823164107" target="freeweibo-mirror">//@aduing1982:不会是公安人员上技术手段了吧？</a>
+</h2>
+<p>//@aduing1982:不会是公安人员上技术手段了吧？<br><br>RE: 从这条微博大致可以看出汉人在宁夏的处境，和宁夏民族团结的真实状况。<br><img src="http://ww1.sinaimg.cn/large/5164d774gw1f59lvx2ln6j20hs0vkwh6.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3991008385604910" target="freeweibo-mirror">自称穆斯林的回族不接受历史的教训，最终将是民族的毁灭！[怒]…</a>
+</h2>
+<p>自称穆斯林的回族不接受历史的教训，最终将是民族的毁灭！[怒]//@小朋友家族族长: //@花子粮:汉人要做好准备了...谁都不可靠,还是要靠自己!//@风谷之竹: 回乱不远<br><br>RE: 从这条微博大致可以看出汉人在宁夏的处境，和宁夏民族团结的真实状况。<br><img src="http://ww1.sinaimg.cn/large/5164d774gw1f59lvx2ln6j20hs0vkwh6.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3991006535669793" target="freeweibo-mirror">SPAM [熊猫]//@大尸凶的漫画: 歪看木土杭州，没事黑…</a>
 </h2>
 <p>SPAM [熊猫]//@大尸凶的漫画: 歪看木土杭州，没事黑自己也开心[嘻嘻]<br><br>RE: 看得我何止醉了……这是杭州政府为了G20整出来的英语速成100句！<br><img src="http://ww3.sinaimg.cn/large/e9e35a9agw1f58ya5ncw7j20qo0zkgoz.jpg"></p>
@@ -67,6 +79,12 @@
 <p>
 	<small> ============== 4小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3990973572753174" target="freeweibo-mirror">SPAM @我是果子狸狸狸 @上曰下安 [哆啦A梦吃惊][哆…</a>
+</h2>
+<p>SPAM @我是果子狸狸狸 @上曰下安 [哆啦A梦吃惊][哆啦A梦吃惊][哆啦A梦吃惊]<br><br>RE: 看得我何止醉了……这是杭州政府为了G20整出来的英语速成100句！<br><img src="http://ww3.sinaimg.cn/large/e9e35a9agw1f58ya5ncw7j20qo0zkgoz.jpg"></p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3990971349780708" target="freeweibo-mirror">一款好的运动文胸应该是什么样的？</a>
 </h2>
 <p>一款好的运动文胸应该是什么样的？</p>
@@ -77,7 +95,7 @@
 </h2>
 <p>摸着石头过河，摸着摸着，就摸到运河了。<br><img src="http://ww3.sinaimg.cn/large/8e834d34jw1f59pg88ydvj20qo1begrb.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3990964060054355" target="freeweibo-mirror">SPAM [噢耶]歪看土木杭州 ～～～～</a>
 </h2>
@@ -107,7 +125,7 @@
 </h2>
 <p>SPAM 看衣服的配色……还以为Gaga和一个什么骑士队球迷见面呢～<br><br>RE: #美国恐怖故事# 主演Lady Gaga在ins上晒出了一组图片[微笑]<br><img src="http://ww1.sinaimg.cn/large/62fb751cgw1f59h50npmjj20ku112gru.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3990920146100104" target="freeweibo-mirror">完全不在乎中国市场的表现…深表遗憾。至少5年之内要和中国演出…</a>
 </h2>
@@ -118,24 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3990903565309929" target="freeweibo-mirror">SPAM 核了几个，存在！</a>
 </h2>
 <p>SPAM 核了几个，存在！</p>
-<p>
-	<small> ============== 9小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3990901443818636" target="freeweibo-mirror">SPAM //@余胜海:网络评论员的酬劳真高，难怪他们跟疯狗…</a>
-</h2>
-<p>SPAM //@余胜海:网络评论员的酬劳真高，难怪他们跟疯狗一样到处咬人![偷笑]</p>
-<p>
-	<small> ============== 9小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3990898688209000" target="freeweibo-mirror">SPAM 强烈要求废了求是这个四不相的破名，改回《红旗》名号…</a>
-</h2>
-<p>SPAM 强烈要求废了求是这个四不相的破名，改回《红旗》名号。</p>
-<p>
-	<small> ============== 9小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3990897760637132" target="freeweibo-mirror">SPAM #《求是》杂志副总编辑朱铁志自缢辞世 # 　【财新…</a>
-</h2>
-<p>SPAM #《求是》杂志副总编辑朱铁志自缢辞世 # 　【财新网】（记者 周淇隽）6月26日下午，56岁的知名杂文家朱铁志自杀辞世的消息在网络迅速传播，众多文化界人士表示震惊和哀痛。晚间人民网发布消息证实，北京市杂文学会常务副会长、《求是》杂志副总编辑、著名杂文家朱铁志，于2016年6月26日凌晨不幸辞世。 ...全文： http://m.weibo.cn/1686199162/3990897760637132<br><img src="http://ww3.sinaimg.cn/large/64815b7ajw1f59hdbpwcbj20dh08z3yw.jpg"></p>
 <p>
 	<small> ============== 9小时前</small>
 </p>
