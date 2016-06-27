@@ -131,7 +131,7 @@
 </h2>
 <p>SPAM 把达赖捧成圣人用来恶心中国是西方的政治正确，靠哗众取宠的明星肯定不会落后。不用太激动，知道就是了，如果你觉得她去捧一个要把中国三分之一国土分裂出去的人无所谓，也就无所谓了。<br><br>RE: Lady Gaga的最新ins。。。[拜拜]<br><img src="http://ww3.sinaimg.cn/large/67d6aa46jw1f590exuwv9j20qo1bfth1.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3990957705540578" target="freeweibo-mirror">看到G20真的笑不出来[拜拜] 每天中午单位还要强制学英语 …</a>
 </h2>
