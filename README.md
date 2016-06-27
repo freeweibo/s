@@ -107,7 +107,7 @@
 </h2>
 <p>#捡到个图#组织严密，考核严格，津贴奖金及时发放！看其中一位的发言，你说这是五毛，还是美分？[doge]<br><img src="http://ww3.sinaimg.cn/large/94f2ee88gw1f58wctupokj20iv0dkq63.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3990699491431159" target="freeweibo-mirror">//@B2B2C研究VI:胡编是非良知人士，不用担心[哈哈]…</a>
 </h2>
