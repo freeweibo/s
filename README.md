@@ -43,6 +43,12 @@
 <p>
 	<small> ============== 4小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3990967977330988" target="freeweibo-mirror">摸着石头过河，摸着摸着，就摸到运河了。</a>
+</h2>
+<p>摸着石头过河，摸着摸着，就摸到运河了。<br><img src="http://ww3.sinaimg.cn/large/8e834d34jw1f59pg88ydvj20qo1begrb.jpg"></p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3990964060054355" target="freeweibo-mirror">SPAM [噢耶]歪看土木杭州 ～～～～</a>
 </h2>
 <p>SPAM [噢耶]歪看土木杭州 ～～～～<br><br>RE: 看得我何止醉了……这是杭州政府为了G20整出来的英语速成100句！<br><img src="http://ww3.sinaimg.cn/large/e9e35a9agw1f58ya5ncw7j20qo0zkgoz.jpg"></p>
@@ -95,7 +101,7 @@
 </h2>
 <p>SPAM 强烈要求废了求是这个四不相的破名，改回《红旗》名号。</p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3990897760637132" target="freeweibo-mirror">SPAM #《求是》杂志副总编辑朱铁志自缢辞世 # 　【财新…</a>
 </h2>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3990875282924572" target="freeweibo-mirror">//@彼宜彼: 忧患元元忆逝翁，红旗缥缈没遥空。昏鸦三匝迷枯…</a>
 </h2>
 <p>//@彼宜彼: 忧患元元忆逝翁，红旗缥缈没遥空。昏鸦三匝迷枯树，回雁兼程溯旧踪。赤道雕弓能射虎，椰林匕首敢屠龙。景升父子皆豚犬，旋转还凭革命功。瑾以叶帅的《远望》作为对博文的评论吧。<br><br>RE: 中南海的警衛戰士都知道，邓小平從來都是講享受的。他的這一面毛主席是不了解的。1959 年國家進入困難時期，毛主席、總理都很節儉，可是鄧小平的養蜂夾道還是大魚大肉不斷，山珍海味不斷，而且還有各種娛樂設備，搓、摸、洗、泡什么都有，改革后出來的會館就是養蜂夾道那個模式的。（戚本禹回忆录）<br><img src="http://ww1.sinaimg.cn/large/9559e923jw1f58ebsf9m3j20fg09bq3s.jpg"></p>
-<p>
-	<small> ============== 10小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3990874855053970" target="freeweibo-mirror">原来如此//@百花吟馆唐祥: 转发微博</a>
-</h2>
-<p>原来如此//@百花吟馆唐祥: 转发微博<br><br>RE: 中南海的警衛戰士都知道，邓小平從來都是講享受的。他的這一面毛主席是不了解的。1959 年國家進入困難時期，毛主席、總理都很節儉，可是鄧小平的養蜂夾道還是大魚大肉不斷，山珍海味不斷，而且還有各種娛樂設備，搓、摸、洗、泡什么都有，改革后出來的會館就是養蜂夾道那個模式的。（戚本禹回忆录）<br><img src="http://ww1.sinaimg.cn/large/9559e923jw1f58ebsf9m3j20fg09bq3s.jpg"></p>
 <p>
 	<small> ============== 10小时前</small>
 </p>
