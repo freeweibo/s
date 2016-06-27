@@ -35,7 +35,7 @@
 </h2>
 <p>SPAM //@余胜海:网络评论员的酬劳真高，难怪他们跟疯狗一样到处咬人![偷笑]</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3990898688209000" target="freeweibo-mirror">SPAM 强烈要求废了求是这个四不相的破名，改回《红旗》名号…</a>
 </h2>
@@ -95,7 +95,7 @@
 </h2>
 <p>这名单是真的话，我会很震惊！<br><img src="http://ww1.sinaimg.cn/large/956fe628jw1f5932b6155j20iv0dkwhn.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3990768475483070" target="freeweibo-mirror">新浪微博，帮忙顶顶到热搜第一。仙桃市市长周文霞白天刚说完话表…</a>
 </h2>
