@@ -47,7 +47,7 @@
 </h2>
 <p>//@王敏竹--反计救国: //@追唐-如东李忠://@贬香-地震-神秘:运河水啊又深又急，连外国总统都淹死了。可是，中国有一些人，本事就是好，就是岿然不动！//@你想干什么dong鲁光: //@罗九经: //@王林的微博客://@封神纪四十二叔: //@拔剑兄:[阴险][阴险][阴险][阴险]//@坐家剩闲: 转发微博<br><br>RE: 摸着石头过河，摸着摸着，就摸到运河了。<br><img src="http://ww3.sinaimg.cn/large/8e834d34jw1f59pg88ydvj20qo1begrb.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3990993076074941" target="freeweibo-mirror">SPAM //@路更强1: //@傅强家园16:六月雪</a>
 </h2>
@@ -131,7 +131,7 @@
 </h2>
 <p>从这条微博大致可以看出汉人在宁夏的处境，和宁夏民族团结的真实状况。<br><img src="http://ww1.sinaimg.cn/large/5164d774gw1f59lvx2ln6j20hs0vkwh6.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3990922926646618" target="freeweibo-mirror">SPAM 看衣服的配色……还以为Gaga和一个什么骑士队球迷…</a>
 </h2>
