@@ -77,7 +77,7 @@
 </h2>
 <p>SPAM 这个口音很像印度或者巴基斯坦口音啊//@河上万齐: G20特供//@JillDG: 哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈笑一年 //@台湾阿呆仔:可以 第一句就笑了//@秋田六千: 哈哈哈哈哈哈哈哈哈这很英语<br><br>RE: 看得我何止醉了……这是杭州政府为了G20整出来的英语速成100句！<br><img src="http://ww3.sinaimg.cn/large/e9e35a9agw1f58ya5ncw7j20qo0zkgoz.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3990976520914582" target="freeweibo-mirror">SPAM 昨天写的长篇[爱你]</a>
 </h2>
