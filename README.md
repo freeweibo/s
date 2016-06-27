@@ -47,7 +47,7 @@
 </h2>
 <p>SPAM //@余胜海:网络评论员的酬劳真高，难怪他们跟疯狗一样到处咬人![偷笑]</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3990898688209000" target="freeweibo-mirror">SPAM 强烈要求废了求是这个四不相的破名，改回《红旗》名号…</a>
 </h2>
