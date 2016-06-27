@@ -53,7 +53,7 @@
 </h2>
 <p>SPAM 核了几个，存在！</p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3990901443818636" target="freeweibo-mirror">SPAM //@余胜海:网络评论员的酬劳真高，难怪他们跟疯狗…</a>
 </h2>
