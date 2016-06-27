@@ -59,7 +59,7 @@
 </h2>
 <p>//@aduing1982:不会是公安人员上技术手段了吧？<br><br>RE: 从这条微博大致可以看出汉人在宁夏的处境，和宁夏民族团结的真实状况。<br><img src="http://ww1.sinaimg.cn/large/5164d774gw1f59lvx2ln6j20hs0vkwh6.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3991008393734950" target="freeweibo-mirror">还记得多记者录音笔的那位吗？//@博者文摘: 转发微博</a>
 </h2>
@@ -83,7 +83,7 @@
 </h2>
 <p>SPAM 歪看木土杭州，没事黑自己也开心[嘻嘻]<br><br>RE: 看得我何止醉了……这是杭州政府为了G20整出来的英语速成100句！<br><img src="http://ww3.sinaimg.cn/large/e9e35a9agw1f58ya5ncw7j20qo0zkgoz.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3990996976509032" target="freeweibo-mirror">//@王敏竹--反计救国: //@追唐-如东李忠://@贬香…</a>
 </h2>
@@ -137,7 +137,7 @@
 </h2>
 <p>SPAM @我是果子狸狸狸 @上曰下安 [哆啦A梦吃惊][哆啦A梦吃惊][哆啦A梦吃惊]<br><br>RE: 看得我何止醉了……这是杭州政府为了G20整出来的英语速成100句！<br><img src="http://ww3.sinaimg.cn/large/e9e35a9agw1f58ya5ncw7j20qo0zkgoz.jpg"></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p>
 <table>
     <tr>
