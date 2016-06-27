@@ -35,7 +35,7 @@
 </h2>
 <p>SPAM 强烈要求废了求是这个四不相的破名，改回《红旗》名号。</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3990897760637132" target="freeweibo-mirror">SPAM #《求是》杂志副总编辑朱铁志自缢辞世 # 　【财新…</a>
 </h2>
