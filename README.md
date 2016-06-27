@@ -65,7 +65,7 @@
 </h2>
 <p>#美国恐怖故事# 主演Lady Gaga在ins上晒出了一组图片[微笑]<br><img src="http://ww1.sinaimg.cn/large/62fb751cgw1f59h50npmjj20ku112gru.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3990880090664293" target="freeweibo-mirror">//@南通维权陆红霞二世://@千里伏牛://@壹介女生:/…</a>
 </h2>
