@@ -89,7 +89,7 @@
 </h2>
 <p>由于上网时间短，很多我弄不明白的，但这样攻击党，把共产党比喻成纳粹，为反党反中人士站台，攻击习主席，我还是很看明白的！~最后一张图是不是说的就是美分们发津贴的过程呢，我就不得而知了@孤烟暮蝉 @老李随想 @察网中国 @义勇军团召集人 @紫光阁<br><img src="http://ww3.sinaimg.cn/large/006vRck7gw1f59xblleo0j30j60y3qa4.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3991034457197679" target="freeweibo-mirror">为维护一个塑造的形象搭进司法公信力,值吗?//@北京律师王兴…</a>
 </h2>
@@ -113,13 +113,13 @@
 </h2>
 <p>还记得多记者录音笔的那位吗？//@博者文摘: 转发微博<br><br>RE: 昨天仙桃今天潜江 湖北怎么了？ http://t.cn/R5YYNzq</p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3991008385604910" target="freeweibo-mirror">自称穆斯林的回族不接受历史的教训，最终将是民族的毁灭！[怒]…</a>
 </h2>
 <p>自称穆斯林的回族不接受历史的教训，最终将是民族的毁灭！[怒]//@小朋友家族族长: //@花子粮:汉人要做好准备了...谁都不可靠,还是要靠自己!//@风谷之竹: 回乱不远<br><br>RE: 从这条微博大致可以看出汉人在宁夏的处境，和宁夏民族团结的真实状况。<br><img src="http://ww1.sinaimg.cn/large/5164d774gw1f59lvx2ln6j20hs0vkwh6.jpg"></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3991006535669793" target="freeweibo-mirror">SPAM [熊猫]//@大尸凶的漫画: 歪看木土杭州，没事黑…</a>
 </h2>
