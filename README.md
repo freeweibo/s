@@ -41,7 +41,7 @@
 </h2>
 <p>[话筒]//@采i臣://@洪源://@姬红:这何许人也？证据确凿了，国安还不出手?<br><br>RE: 由于上网时间短，很多我弄不明白的，但这样攻击党，把共产党比喻成纳粹，为反党反中人士站台，攻击习主席，我还是很看明白的！~最后一张图是不是说的就是美分们发津贴的过程呢，我就不得而知了@孤烟暮蝉 @老李随想 @察网中国 @义勇军团召集人 @紫光阁<br><img src="http://ww3.sinaimg.cn/large/006vRck7gw1f59xblleo0j30j60y3qa4.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3991102388194081" target="freeweibo-mirror">湖北仙桃出名了</a>
 </h2>
@@ -107,7 +107,7 @@
 </h2>
 <p>//@aduing1982:不会是公安人员上技术手段了吧？<br><br>RE: 从这条微博大致可以看出汉人在宁夏的处境，和宁夏民族团结的真实状况。<br><img src="http://ww1.sinaimg.cn/large/5164d774gw1f59lvx2ln6j20hs0vkwh6.jpg"></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3991008393734950" target="freeweibo-mirror">还记得多记者录音笔的那位吗？//@博者文摘: 转发微博</a>
 </h2>
@@ -131,7 +131,7 @@
 </h2>
 <p>SPAM 歪看木土杭州，没事黑自己也开心[嘻嘻]<br><br>RE: 看得我何止醉了……这是杭州政府为了G20整出来的英语速成100句！<br><img src="http://ww3.sinaimg.cn/large/e9e35a9agw1f58ya5ncw7j20qo0zkgoz.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3990996976509032" target="freeweibo-mirror">//@王敏竹--反计救国: //@追唐-如东李忠://@贬香…</a>
 </h2>
