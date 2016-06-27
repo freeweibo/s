@@ -43,11 +43,29 @@
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3990964060054355" target="freeweibo-mirror">SPAM [噢耶]歪看土木杭州 ～～～～</a>
+</h2>
+<p>SPAM [噢耶]歪看土木杭州 ～～～～<br><br>RE: 看得我何止醉了……这是杭州政府为了G20整出来的英语速成100句！<br><img src="http://ww3.sinaimg.cn/large/e9e35a9agw1f58ya5ncw7j20qo0zkgoz.jpg"></p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3990960415758487" target="freeweibo-mirror">SPAM 把达赖捧成圣人用来恶心中国是西方的政治正确，靠哗众…</a>
+</h2>
+<p>SPAM 把达赖捧成圣人用来恶心中国是西方的政治正确，靠哗众取宠的明星肯定不会落后。不用太激动，知道就是了，如果你觉得她去捧一个要把中国三分之一国土分裂出去的人无所谓，也就无所谓了。<br><br>RE: Lady Gaga的最新ins。。。[拜拜]<br><img src="http://ww3.sinaimg.cn/large/67d6aa46jw1f590exuwv9j20qo1bfth1.jpg"></p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3990957705540578" target="freeweibo-mirror">看到G20真的笑不出来[拜拜] 每天中午单位还要强制学英语 …</a>
+</h2>
+<p>看到G20真的笑不出来[拜拜] 每天中午单位还要强制学英语 每天晚上电视台也要放这个英语教学 每天折腾杭州人//@新东方烹饪学校校花:我的英语白学了 //@这是一个很高冷的ID:哈哈哈想要一本  //@二次元种草机:哈哈哈学习了[笑cry][笑cry]<br><br>RE: 看得我何止醉了……这是杭州政府为了G20整出来的英语速成100句！<br><img src="http://ww3.sinaimg.cn/large/e9e35a9agw1f58ya5ncw7j20qo0zkgoz.jpg"></p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3990953637679746" target="freeweibo-mirror">//@温良俭让1:多想想国人吧！[抓狂][抓狂]</a>
 </h2>
 <p>//@温良俭让1:多想想国人吧！[抓狂][抓狂]<br><br>RE: 【穆加贝总统：中国是上帝赠给津巴布韦礼物】前几天津巴布韦总统穆加贝指责中国人加深其国内危机，中国政府快速反应，决定向津巴布韦捐赠国会大厦和粮食。老总统一生气，援助马上到。去年刚免除津国2.6亿元债务，今年又巨额援助，难怪老总统说“中国是上帝赠给津巴布韦礼物”！<br><img src="http://ww2.sinaimg.cn/large/bea89b59jw1f590hj7nfmj20dw07t3z8.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3990922926646618" target="freeweibo-mirror">SPAM 看衣服的配色……还以为Gaga和一个什么骑士队球迷…</a>
 </h2>
@@ -120,24 +138,6 @@
 <p>原来如此//@百花吟馆唐祥: 转发微博<br><br>RE: 中南海的警衛戰士都知道，邓小平從來都是講享受的。他的這一面毛主席是不了解的。1959 年國家進入困難時期，毛主席、總理都很節儉，可是鄧小平的養蜂夾道還是大魚大肉不斷，山珍海味不斷，而且還有各種娛樂設備，搓、摸、洗、泡什么都有，改革后出來的會館就是養蜂夾道那個模式的。（戚本禹回忆录）<br><img src="http://ww1.sinaimg.cn/large/9559e923jw1f58ebsf9m3j20fg09bq3s.jpg"></p>
 <p>
 	<small> ============== 10小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3990874729471152" target="freeweibo-mirror">玩物丧志啊 //@云贵高原彩霞飘: //@勇敢的春之声201…</a>
-</h2>
-<p>玩物丧志啊 //@云贵高原彩霞飘: //@勇敢的春之声2015: //@土耳棋: 中国民谣：毛主席像太阳、领导人民挖堰塘；邓小平像月亮、领导人民搓麻将；江泽民像星星、领导人民进歌厅。网评：前人栽树后人乘凉。<br><br>RE: 中南海的警衛戰士都知道，邓小平從來都是講享受的。他的這一面毛主席是不了解的。1959 年國家進入困難時期，毛主席、總理都很節儉，可是鄧小平的養蜂夾道還是大魚大肉不斷，山珍海味不斷，而且還有各種娛樂設備，搓、摸、洗、泡什么都有，改革后出來的會館就是養蜂夾道那個模式的。（戚本禹回忆录）<br><img src="http://ww1.sinaimg.cn/large/9559e923jw1f58ebsf9m3j20fg09bq3s.jpg"></p>
-<p>
-	<small> ============== 10小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3990872645397836" target="freeweibo-mirror">//@南通维权陆红霞二世: 转发微博</a>
-</h2>
-<p>//@南通维权陆红霞二世: 转发微博<br><br>RE: 新浪微博，帮忙顶顶到热搜第一。仙桃市市长周文霞白天刚说完话表态停建垃圾焚烧厂，就派了武警镇压百姓，晚上外面到处是警察抓人。什么都不说了，都上新浪微博搜索吧，媒体不停的在删帖。<br><img src="http://ww1.sinaimg.cn/large/005FTiLCjw1f592jcp1rlj30k00zkgoy.jpg"></p>
-<p>
-	<small> ============== 10小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3990773046980655" target="freeweibo-mirror">这名单是真的话，我会很震惊！</a>
-</h2>
-<p>这名单是真的话，我会很震惊！<br><img src="http://ww1.sinaimg.cn/large/956fe628jw1f5932b6155j20iv0dkwhn.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
 </p>
 <table>
     <tr>
