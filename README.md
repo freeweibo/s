@@ -95,7 +95,7 @@
 </h2>
 <p>新浪微博，帮忙顶顶到热搜第一。仙桃市市长周文霞白天刚说完话表态停建垃圾焚烧厂，就派了武警镇压百姓，晚上外面到处是警察抓人。什么都不说了，都上新浪微博搜索吧，媒体不停的在删帖。<br><img src="http://ww1.sinaimg.cn/large/005FTiLCjw1f592jcp1rlj30k00zkgoy.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3990766965238462" target="freeweibo-mirror">[酷]//@鄢烈山: //@远山看天下：更重要的是，涉及大众…</a>
 </h2>
