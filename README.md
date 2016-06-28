@@ -35,7 +35,7 @@
 </h2>
 <p>SPAM 仙桃的垃圾，挺住!<br><br>RE: 為了建一個「垃圾焚燒廠」它們就要「屠城」？然後把「垃圾焚燒廠」再改建成「焚尸廠」？<br><img src="http://ww2.sinaimg.cn/large/006uAytpgw1f5a1r6mqvnj30ci0m8myy.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3991263810872872" target="freeweibo-mirror">回复@youngyang1997:[作揖][作揖][作揖]/…</a>
 </h2>
