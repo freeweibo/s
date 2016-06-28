@@ -25,6 +25,12 @@
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3991420421495815" target="freeweibo-mirror">美国联邦政府对老兵有十六大项的福利，其中就包括医疗，别说优先…</a>
+</h2>
+<p>美国联邦政府对老兵有十六大项的福利，其中就包括医疗，别说优先挂号，人家直接政府花钱给治病。博主这种打着"平等"旗号，逃避社会责任，只占便宜不吃亏的傻逼，最好的归宿就是去索马里尝尝黑叔叔的厉害，那个平等，不用排队。</p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3991417456683443" target="freeweibo-mirror">SPAM //@清寒中的怒火: //@怀化麻阳黄雨慧黄雨霞3…</a>
 </h2>
 <p>SPAM //@清寒中的怒火: //@怀化麻阳黄雨慧黄雨霞3: //@九品仏邊://@活捉死老鼠://@XiyanFine88:就因不上电视认罪，还牵连了父亲  http://t.cn/R5HbrMJ  //@怀化麻阳黄雨慧黄雨霞3:良心恩人祝平安，我全家挂念你！<br><br>RE: 燕薪律师: 吴淦的侦查羁押期限经第三次延期，至八月二十日。<br><img src="http://ww1.sinaimg.cn/large/006f3JFCgw1f5aybg5ievj30cg0a8q3g.jpg"></p>
@@ -47,7 +53,7 @@
 </h2>
 <p>SPAM 不错，其实做烘焙真的很简单~[鼓掌]</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3991405153992954" target="freeweibo-mirror">SPAM 送给快晒成狗的ta[亲亲]~~</a>
 </h2>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3991102388194081" target="freeweibo-mirror">湖北仙桃出名了</a>
 </h2>
 <p>湖北仙桃出名了<br><img src="http://ww2.sinaimg.cn/large/a6994004jw1f5a4w0ywtlj20g30m8djg.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3991102174301667" target="freeweibo-mirror">国安，抓吧！//@老辣陈香: http://t.cn/R5T…</a>
-</h2>
-<p>国安，抓吧！//@老辣陈香: http://t.cn/R5Txedp 孤星引:   http://t.cn/R5TxedN  //@问沉1: //@问沉1:何许人也？ //@牛哥吐槽:梅雪飘香的微信，@点子正  @察网中国 @平民王小石 @無風即風  来看看？//@平凡的小小兵:@牛哥吐槽  这是整理出来的一条微博。<br><br>RE: 由于上网时间短，很多我弄不明白的，但这样攻击党，把共产党比喻成纳粹，为反党反中人士站台，攻击习主席，我还是很看明白的！~最后一张图是不是说的就是美分们发津贴的过程呢，我就不得而知了@孤烟暮蝉 @老李随想 @察网中国 @义勇军团召集人 @紫光阁<br><img src="http://ww3.sinaimg.cn/large/006vRck7gw1f59xblleo0j30j60y3qa4.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
