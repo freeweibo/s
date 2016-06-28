@@ -47,7 +47,7 @@
 </h2>
 <p>SPAM 之前戴的眼镜也有啦！ 今晚记得来[ok] http://t.cn/R5H78Ud<br><img src="http://ww2.sinaimg.cn/large/5db8744fgw1f5aum8x8zsj20ku0kujtu.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3991318344683119" target="freeweibo-mirror">SPAM #欧洲杯大屏直播出柜#虽然西班牙对意大利队非常有看…</a>
 </h2>
