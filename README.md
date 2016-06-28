@@ -41,7 +41,7 @@
 </h2>
 <p>SPAM 仙桃的垃圾，挺住!<br><br>RE: 為了建一個「垃圾焚燒廠」它們就要「屠城」？然後把「垃圾焚燒廠」再改建成「焚尸廠」？<br><img src="http://ww2.sinaimg.cn/large/006uAytpgw1f5a1r6mqvnj30ci0m8myy.jpg"></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3991263810872872" target="freeweibo-mirror">回复@youngyang1997:[作揖][作揖][作揖]/…</a>
 </h2>
@@ -59,7 +59,7 @@
 </h2>
 <p>【好文分享】1、学生高考后自杀：我的尸体要么烧了，要么扔了，别把我拿回去。心烦！！2、这是一位久经磨难唯一不死的伟大英雄！所有中国人都知道他的名字！3、狗日的中年——姜文！4、46年 她只做2款点心 小店 只有3平米 却年赚2300万人民币！更多精彩请添加关  注：lisimisi<br><img src="http://ww4.sinaimg.cn/large/9647a31ejw1f5ak7kqsz3j20j60y3mzf.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3991125456979964" target="freeweibo-mirror">SPAM //@悠游自在-小飛人:忽視它，它就是顛覆人性的漩…</a>
 </h2>
