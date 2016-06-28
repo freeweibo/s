@@ -41,7 +41,7 @@
 </h2>
 <p>SPAM 勾勒。</p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3991235787790812" target="freeweibo-mirror">【好文分享】1、学生高考后自杀：我的尸体要么烧了，要么扔了，…</a>
 </h2>
