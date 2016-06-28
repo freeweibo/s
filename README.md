@@ -35,7 +35,7 @@
 </h2>
 <p>SPAM 回复@余俊辛:这是要让政府知道，胆敢动我们的垃圾的下场。仙桃人的垃圾，永远属于仙桃，生在这里，死在这里，哪里也不会去。//@余俊辛:我操，不是说暂时搁置了吗，这是要干什么?//@西西福厮:仙桃的垃圾，挺住!<br><br>RE: 為了建一個「垃圾焚燒廠」它們就要「屠城」？然後把「垃圾焚燒廠」再改建成「焚尸廠」？<br><img src="http://ww2.sinaimg.cn/large/006uAytpgw1f5a1r6mqvnj30ci0m8myy.jpg"></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3991273922834741" target="freeweibo-mirror">SPAM 仙桃的垃圾，挺住!</a>
 </h2>
