@@ -53,7 +53,7 @@
 </h2>
 <p>SPAM 之前戴的眼镜也有啦！ 今晚记得来[ok] http://t.cn/R5H78Ud<br><img src="http://ww2.sinaimg.cn/large/5db8744fgw1f5aum8x8zsj20ku0kujtu.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3991318344683119" target="freeweibo-mirror">SPAM #欧洲杯大屏直播出柜#虽然西班牙对意大利队非常有看…</a>
 </h2>
@@ -71,7 +71,7 @@
 </h2>
 <p>SPAM 仙桃的垃圾，挺住!<br><br>RE: 為了建一個「垃圾焚燒廠」它們就要「屠城」？然後把「垃圾焚燒廠」再改建成「焚尸廠」？<br><img src="http://ww2.sinaimg.cn/large/006uAytpgw1f5a1r6mqvnj30ci0m8myy.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3991263810872872" target="freeweibo-mirror">回复@youngyang1997:[作揖][作揖][作揖]/…</a>
 </h2>
