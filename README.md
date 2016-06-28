@@ -65,7 +65,7 @@
 </h2>
 <p>SPAM //@联邦众议院-人权高于主权1987: 支持言论自由集会自由//@裸男很色:[话筒][话筒][话筒]</p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3991463031360677" target="freeweibo-mirror">//@活捉死老鼠: //@I_think_its_enoug…</a>
 </h2>
@@ -83,7 +83,7 @@
 </h2>
 <p>右边实在，毛左污蔑[偷笑]//@中国正义_30638: 右右在胡说，国家领袖是全体人民选举出来的，并不是你说的宫廷内斗//@哲王老祖:大家喜欢他，就是因为这个啊！[哈哈][哈哈]→_→//@哪里来的底气: 当年邓小平以在广东首先搞资本主义。换得了叶剑英的支持，从而扳倒了华国锋，取得国家控制权。</p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3991448867266931" target="freeweibo-mirror">SPAM 香港七一大游行由林荣基等政治犯领军</a>
 </h2>
@@ -119,7 +119,7 @@
 </h2>
 <p>709被抓律师谢阳的辩护律师不畏强权，控告长沙市公安局及湖南省、长沙市两级检察院违<br><img src="http://ww2.sinaimg.cn/large/006fN47Gjw1f5b5pnahpcj30ku112n3i.jpg"></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3991420421495815" target="freeweibo-mirror">美国联邦政府对老兵有十六大项的福利，其中就包括医疗，别说优先…</a>
 </h2>
