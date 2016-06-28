@@ -53,7 +53,7 @@
 </h2>
 <p>SPAM 发现一个超牛的号!!!看电影的童鞋可以关注 @看电影有瘾</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3991476537422508" target="freeweibo-mirror">//@不让上网就上你: //@梧桐之城: //@淡墨秋山A:…</a>
 </h2>
@@ -89,13 +89,13 @@
 </h2>
 <p>SPAM 香港七一大游行由林荣基等政治犯领军<br><img src="http://ww2.sinaimg.cn/large/006mCzchgw1f5b8ny656sj31kw1n8kj8.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3991448427375258" target="freeweibo-mirror">大家喜欢他，就是因为这个啊！[哈哈][哈哈]→_→//@哪里…</a>
 </h2>
 <p>大家喜欢他，就是因为这个啊！[哈哈][哈哈]→_→//@哪里来的底气: 当年邓小平以在广东首先搞资本主义。换得了叶剑英的支持，从而扳倒了华国锋，取得国家控制权。</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3991426138060071" target="freeweibo-mirror">SPAM 唉，挺好东西，又让你吆喝成天桥卖布鞋了……</a>
 </h2>
