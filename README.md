@@ -29,7 +29,7 @@
 </h2>
 <p>SPAM 仙桃的垃圾，挺住!<br><br>RE: 為了建一個「垃圾焚燒廠」它們就要「屠城」？然後把「垃圾焚燒廠」再改建成「焚尸廠」？<br><img src="http://ww2.sinaimg.cn/large/006uAytpgw1f5a1r6mqvnj30ci0m8myy.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3991245175509565" target="freeweibo-mirror">SPAM 勾勒。</a>
 </h2>
