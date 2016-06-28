@@ -23,7 +23,7 @@
 </h2>
 <p>SPAM 唉，挺好东西，又让你吆喝成天桥卖布鞋了……</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3991420421495815" target="freeweibo-mirror">美国联邦政府对老兵有十六大项的福利，其中就包括医疗，别说优先…</a>
 </h2>
