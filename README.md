@@ -23,7 +23,7 @@
 </h2>
 <p>SPAM 最最好的潮鞋在这里[爱你]喜欢潮鞋的朋友们快看过来！</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3991626634159495" target="freeweibo-mirror">//@营口81岁被劳教://@腾龙布雨: 岂有此理！人权呢？…</a>
 </h2>
@@ -41,7 +41,7 @@
 </h2>
 <p>SPAM //@谢文:以为野蛮粗暴可以成事，没想反而坏事 //@LifeTime:王毅已领赏，为何要在乎国家利益？ //@新疆张涛://@只配叫猪_:妖猴~~~//@小小猫咪去钓鱼2:罪人<br><br>RE: 窜稀一时爽，大事泡了汤。王毅真孙子，装逼卖癫狂。<br><img src="http://ww2.sinaimg.cn/large/006ucg4Sjw1f5b5z1lf4uj30ci0m8wgn.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3991500234920047" target="freeweibo-mirror">SPAM 以为野蛮粗暴可以成事，没想反而坏事 //@Life…</a>
 </h2>
