@@ -47,7 +47,7 @@
 </h2>
 <p>【警方回应藏族导演被带走：擅闯控制区找行李扰乱公共秩序】青海警方称，6月25日晚，万某在西宁机场擅自闯入到达厅控制区寻找行李，不听劝阻并和安检人员发生争执，执勤民警到达后，将万某强制带离现场时，由于其仍拒不配合，导致手腕有3处手铐勒痕。取证后警方将其拘留5日。http://t.cn/R5Q8bJu<br><img src="http://ww2.sinaimg.cn/large/61e04755jw1f5ceff7zl3j20dw0jmt9b.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3991802501759895" target="freeweibo-mirror">//@中国公知精神病总院发言人: 如果闯的是美国机场，也许@…</a>
 </h2>
@@ -119,7 +119,7 @@
 </h2>
 <p>//@朱孝顶律师: 中国各级律师协会认同这个观点吗？<br><br>RE: 【导演协会比律师协会强万倍】一个导演因旅行被机场公安羁押，中国导演协会还立即发表声明表示关注。律师履行职务被羁押者时有发生，很少见到律师协会发过声明，更没发布过如此立场清晰坚定的声明。<br><img src="http://ww3.sinaimg.cn/large/6a80bfcdjw1f5c4xadqwfj20qo1bfdpr.jpg"></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3991732351807085" target="freeweibo-mirror">【知名导演强闯机场监控管制区，协会首先需要自责和引以为耻】窃…</a>
 </h2>
