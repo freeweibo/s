@@ -19,6 +19,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3991800077401859" target="freeweibo-mirror">[思考] //@历史的尘埃39://@嘛嗰哆嘞: //@千山…</a>
+</h2>
+<p>[思考] //@历史的尘埃39://@嘛嗰哆嘞: //@千山微语胡说:老金！<br><br>RE: 微博好友@@性情中人_jzq_  被通缉，长期被国保骚扰，这次干的应该是国宝，26号他还在微博上转我贴呢？请大家关注！[怒][围观][话筒]<br><img src="http://ww1.sinaimg.cn/large/006eK7vlgw1f5c8uqem9ej30hs0vkjwn.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3991774965355707" target="freeweibo-mirror">大洗牌了！</a>
 </h2>
 <p>大洗牌了！<br><br>RE: 又一波：车俊任浙江省委副书记、提名浙江省长候选人；李强同志（原浙江省长）任江苏省委书记。。。</p>
@@ -77,7 +83,7 @@
 </h2>
 <p>【导演协会比律师协会强万倍】一个导演因旅行被机场公安羁押，中国导演协会还立即发表声明表示关注。律师履行职务被羁押者时有发生，很少见到律师协会发过声明，更没发布过如此立场清晰坚定的声明。<br><img src="http://ww3.sinaimg.cn/large/6a80bfcdjw1f5c4xadqwfj20qo1bfdpr.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3991718023506724" target="freeweibo-mirror">//@李昱琨:转发微博</a>
 </h2>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3991680140661460" target="freeweibo-mirror">关注藏区公益多年，接触过的藏族同胞都很和善，曾经在援助西藏发…</a>
 </h2>
 <p>关注藏区公益多年，接触过的藏族同胞都很和善，曾经在援助西藏发展基金会期间有幸见到@万玛才旦-pematseden  低调谦和，没啥架子，如果近距离接触他会给人的感觉就象隔壁家大叔一样亲切，希望他平安无事。</p>
-<p>
-	<small> ============== 10小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3991676379209725" target="freeweibo-mirror">严重关注，我们不只听信一面之词，但希望官方能有个说法</a>
-</h2>
-<p>严重关注，我们不只听信一面之词，但希望官方能有个说法<br><br>RE: 据可靠消息，6月25日晚上，藏族著名导演万玛才旦从北京到达青海西宁机场，离开机场前发现将一件行李落在了取行李处，拿票回去取时被机场警察强行用手铐将双手从背后铐死，以暴力手段强制带至西宁机场派出所进行通宵审讯，于次日26日凌晨以扰乱机场公共秩序为由强制带至西宁附近某拘留所进行拘留，27日...全文： http://m.weibo.cn/2013428442/3991641318718772...全文： http://m.weibo.cn/2013428442/3991641318718772...全文： http://m.weibo.cn/2013428442/3991641318718772...全文： http://m.weibo.cn/2013428442/3991641318718772<br><img src="http://ww2.sinaimg.cn/large/78027adajw1f5bus5ubv4j20c81qe470.jpg"></p>
 <p>
 	<small> ============== 10小时前</small>
 </p>
