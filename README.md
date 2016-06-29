@@ -43,6 +43,12 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3991666697813424" target="freeweibo-mirror">//@他回精神病院了:关注。 //@陳嘉上Gordon://…</a>
+</h2>
+<p>//@他回精神病院了:关注。 //@陳嘉上Gordon://@编剧吴波://@老晃微博://@卫西谛:万玛导演刚刚担任上海国际电影节评委。十分关注！ //@叶航:震惊 //@shuiguai1825:关注！万玛导演是个极其谦逊温厚的知识分子，竟也遭遇此番暴力。<br><br>RE: 据可靠消息，6月25日晚上，藏族著名导演万玛才旦从北京到达青海西宁机场，离开机场前发现将一件行李落在了取行李处，拿票回去取时被机场警察强行用手铐将双手从背后铐死，以暴力手段强制带至西宁机场派出所进行通宵审讯，于次日26日凌晨以扰乱机场公共秩序为由强制带至西宁附近某拘留所进行拘留，27日...全文： http://m.weibo.cn/2013428442/3991641318718772...全文： http://m.weibo.cn/2013428442/3991641318718772...全文： http://m.weibo.cn/2013428442/3991641318718772...全文： http://m.weibo.cn/2013428442/3991641318718772<br><img src="http://ww2.sinaimg.cn/large/78027adajw1f5bus5ubv4j20c81qe470.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3991629360922218" target="freeweibo-mirror">SPAM 最最好的潮鞋在这里[爱你]喜欢潮鞋的朋友们快看过来…</a>
 </h2>
 <p>SPAM 最最好的潮鞋在这里[爱你]喜欢潮鞋的朋友们快看过来！</p>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3991448867266931" target="freeweibo-mirror">SPAM 香港七一大游行由林荣基等政治犯领军</a>
 </h2>
 <p>SPAM 香港七一大游行由林荣基等政治犯领军<br><img src="http://ww2.sinaimg.cn/large/006mCzchgw1f5b8ny656sj31kw1n8kj8.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3991448427375258" target="freeweibo-mirror">大家喜欢他，就是因为这个啊！[哈哈][哈哈]→_→//@哪里…</a>
-</h2>
-<p>大家喜欢他，就是因为这个啊！[哈哈][哈哈]→_→//@哪里来的底气: 当年邓小平以在广东首先搞资本主义。换得了叶剑英的支持，从而扳倒了华国锋，取得国家控制权。</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
