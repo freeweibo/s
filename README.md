@@ -19,6 +19,18 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3991736159750220" target="freeweibo-mirror">//@朱孝顶律师: 中国各级律师协会认同这个观点吗？</a>
+</h2>
+<p>//@朱孝顶律师: 中国各级律师协会认同这个观点吗？<br><br>RE: 【导演协会比律师协会强万倍】一个导演因旅行被机场公安羁押，中国导演协会还立即发表声明表示关注。律师履行职务被羁押者时有发生，很少见到律师协会发过声明，更没发布过如此立场清晰坚定的声明。<br><img src="http://ww3.sinaimg.cn/large/6a80bfcdjw1f5c4xadqwfj20qo1bfdpr.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3991718023506724" target="freeweibo-mirror">//@李昱琨:转发微博</a>
+</h2>
+<p>//@李昱琨:转发微博<br><br>RE: 据可靠消息，6月25日晚上，藏族著名导演万玛才旦从北京到达青海西宁机场，离开机场前发现将一件行李落在了取行李处，拿票回去取时被机场警察强行用手铐将双手从背后铐死，以暴力手段强制带至西宁机场派出所进行通宵审讯，于次日26日凌晨以扰乱机场公共秩序为由强制带至西宁附近某拘留所进行拘留，27日...全文： http://m.weibo.cn/2036033817/3991670939156494</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3991690345201914" target="freeweibo-mirror">SPAM //@黄易快乐天使://@夫特56541:最好通过…</a>
 </h2>
 <p>SPAM //@黄易快乐天使://@夫特56541:最好通过。<br><br>RE: 美国即将要表决的。这最后一项看呆了<br><img src="http://ww3.sinaimg.cn/large/7448028fgw1f5be6t52kwj20go0l6wg4.jpg"></p>
@@ -126,18 +138,6 @@
 <p>//@营口81岁被劳教://@腾龙布雨: 岂有此理！人权呢？这样的土匪是有资格的！而且是带证的土匪！<br><br>RE: 【别样强拆  让人心碎】近日，网传一段发生在温州的人民子弟兵参与的政府强拆视频：现场一女子大声喊道：“什么手续都没有就过来强拆，叫你们的孩子过来看看，你们是怎么为人民服务的......” 微评：这一刻，耳边突然想起了“三大纪律八项注意歌”.....http://t.cn/R5LlwtZ视2频http://t.cn/z80hQSn</p>
 <p>
 	<small> ============== 8小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3991505716335853" target="freeweibo-mirror">SPAM  //@李鸿文在深圳://@谢文:以为野蛮粗暴可以…</a>
-</h2>
-<p>SPAM  //@李鸿文在深圳://@谢文:以为野蛮粗暴可以成事，没想反而坏事 //@LifeTime:王毅已领赏，为何要在乎国家利益？ //@新疆张涛://@只配叫猪_:妖猴~~~//@小小猫咪去钓鱼2:罪人<br><br>RE: 窜稀一时爽，大事泡了汤。王毅真孙子，装逼卖癫狂。<br><img src="http://ww2.sinaimg.cn/large/006ucg4Sjw1f5b5z1lf4uj30ci0m8wgn.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3991501476977553" target="freeweibo-mirror">SPAM //@谢文:以为野蛮粗暴可以成事，没想反而坏事 /…</a>
-</h2>
-<p>SPAM //@谢文:以为野蛮粗暴可以成事，没想反而坏事 //@LifeTime:王毅已领赏，为何要在乎国家利益？ //@新疆张涛://@只配叫猪_:妖猴~~~//@小小猫咪去钓鱼2:罪人<br><br>RE: 窜稀一时爽，大事泡了汤。王毅真孙子，装逼卖癫狂。<br><img src="http://ww2.sinaimg.cn/large/006ucg4Sjw1f5b5z1lf4uj30ci0m8wgn.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
 </p>
 <table>
     <tr>
