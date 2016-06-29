@@ -59,7 +59,7 @@
 </h2>
 <p>[思考] //@历史的尘埃39://@嘛嗰哆嘞: //@千山微语胡说:老金！<br><br>RE: 微博好友@@性情中人_jzq_  被通缉，长期被国保骚扰，这次干的应该是国宝，26号他还在微博上转我贴呢？请大家关注！[怒][围观][话筒]<br><img src="http://ww1.sinaimg.cn/large/006eK7vlgw1f5c8uqem9ej30hs0vkjwn.jpg"></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3991788546695179" target="freeweibo-mirror">必须严惩打人者！[怒] //@卍心潮澎湃卐: //@一个有点…</a>
 </h2>
