@@ -113,7 +113,7 @@
 </h2>
 <p>【新华社：徐麟同志任中央网络安全和信息化领导小组办公室主任】财联社29日讯，徐麟同志任中央网络安全和信息化领导小组办公室主任；鲁炜同志不再担任中央网络安全和信息化领导小组办公室主任职务。(来自财联社APP)会不会真的解放思想，网络放开？<br><img src="http://ww3.sinaimg.cn/large/63d2cabdjw1f5c5vimp68j20qo11v46y.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3991736159750220" target="freeweibo-mirror">//@朱孝顶律师: 中国各级律师协会认同这个观点吗？</a>
 </h2>
