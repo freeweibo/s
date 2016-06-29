@@ -47,7 +47,7 @@
 </h2>
 <p>【警方回应藏族导演被带走：擅闯控制区找行李扰乱公共秩序】青海警方称，6月25日晚，万某在西宁机场擅自闯入到达厅控制区寻找行李，不听劝阻并和安检人员发生争执，执勤民警到达后，将万某强制带离现场时，由于其仍拒不配合，导致手腕有3处手铐勒痕。取证后警方将其拘留5日。http://t.cn/R5Q8bJu<br><img src="http://ww2.sinaimg.cn/large/61e04755jw1f5ceff7zl3j20dw0jmt9b.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3991802501759895" target="freeweibo-mirror">//@中国公知精神病总院发言人: 如果闯的是美国机场，也许@…</a>
 </h2>
@@ -83,7 +83,7 @@
 </h2>
 <p>SPAM //@心如止水36://@狼狼我不服: 一个都不能少[挖鼻]</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3991749262691155" target="freeweibo-mirror">鲁三节裤腿，玩完了！</a>
 </h2>
