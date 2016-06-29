@@ -77,7 +77,7 @@
 </h2>
 <p>//@朱孝顶律师: 中国各级律师协会认同这个观点吗？<br><br>RE: 【导演协会比律师协会强万倍】一个导演因旅行被机场公安羁押，中国导演协会还立即发表声明表示关注。律师履行职务被羁押者时有发生，很少见到律师协会发过声明，更没发布过如此立场清晰坚定的声明。<br><img src="http://ww3.sinaimg.cn/large/6a80bfcdjw1f5c4xadqwfj20qo1bfdpr.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3991730707476897" target="freeweibo-mirror">【导演协会比律师协会强万倍】一个导演因旅行被机场公安羁押，中…</a>
 </h2>
