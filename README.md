@@ -53,7 +53,7 @@
 </h2>
 <p>SPAM 哦？//@好名发博:鲁就是个极左！</p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3991741906384573" target="freeweibo-mirror">徐麟同志任中央网络安全和信息化领导小组办公室主任；鲁炜同志不…</a>
 </h2>
