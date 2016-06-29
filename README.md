@@ -53,7 +53,7 @@
 </h2>
 <p>SPAM 发现一个超牛的号!!!看电影的童鞋可以关注 @看电影有瘾</p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3991476537422508" target="freeweibo-mirror">//@不让上网就上你: //@梧桐之城: //@淡墨秋山A:…</a>
 </h2>
@@ -77,7 +77,7 @@
 </h2>
 <p>SPAM 刚刚下载了豆丁文档:文一（《伟大的中国工业革命》-清华大学http://t.cn/R5qGV9l</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3991453854268008" target="freeweibo-mirror">右边实在，毛左污蔑[偷笑]//@中国正义_30638: 右右…</a>
 </h2>
