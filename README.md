@@ -107,7 +107,7 @@
 </h2>
 <p>带鱼的靠山走了。</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3991737892684096" target="freeweibo-mirror">【新华社：徐麟同志任中央网络安全和信息化领导小组办公室主任】…</a>
 </h2>
