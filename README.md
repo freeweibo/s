@@ -25,6 +25,12 @@
 <p>
 	<small> ============== 1小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3992125265602263" target="freeweibo-mirror">雷洋</a>
+</h2>
+<p>雷洋<br><img src="http://ww2.sinaimg.cn/large/918d47a2jw1f5dec74ejnj20k00zkdi3.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3992123542494346" target="freeweibo-mirror">[汗] //@秦陇复汉军: 穆大爷们，中国冤枉啊，我们给穆斯…</a>
 </h2>
 <p>[汗] //@秦陇复汉军: 穆大爷们，中国冤枉啊，我们给穆斯林各种补贴、优惠，就差没供起来了。请饶中国一命[嘻嘻]//@我重新出发也:/@wzlixiaoxin:如果它们有机会清除了所有的非穆，它们各教派之间就会展开殊死的搏杀！ //@花子粮:我总结成一句话就是:  除了穆斯林,全是敌人......<br><br>RE: 转载自脸书Britain First账号，视频发布时间为2016年6月29日，英国穆斯林在伦敦集会号召Jihad“吉哈德”（圣战）并抗议美、英、俄、中、印以及埃塞俄比亚对于伊斯兰国家和穆斯林的迫害，并声称只有沙利亚法（穆斯林教法）才是合法正当的法律。 http://t.cn/R58X6CG .</p>
@@ -59,13 +65,13 @@
 </h2>
 <p>//@浩正刘臻: 什么情况 //@况秀猛:资本主义很残酷，但至少是公开的。<br><br>RE: 剧情越来越热闹，卷入的人也越来越多……<br><img src="http://ww1.sinaimg.cn/large/4ad6dea7gw1f5d5cywuynj20m80eugnp.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3992067472377728" target="freeweibo-mirror">→@浩正刘臻: 看评论我就放心了……</a>
 </h2>
 <p>→@浩正刘臻: 看评论我就放心了……</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3992051542098481" target="freeweibo-mirror">转载自脸书Britain First账号，视频发布时间为20…</a>
 </h2>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3991833518162281" target="freeweibo-mirror">前天，微博老友金重齐杀了国保，被A级通缉 。他长期被国保骚扰…</a>
 </h2>
 <p>前天，微博老友金重齐杀了国保，被A级通缉 。他长期被国保骚扰，忍无可忍，终于酿成悲剧，党国的国保们，作恶要有底线。恳请各位一起关注金重齐杀国保事件！这是一起和杨佳杀警一样有相同意义的事件！</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3991823464697511" target="freeweibo-mirror">[哈哈][哈哈][哈哈][哈哈][哈哈][哈哈][哈哈][哈…</a>
-</h2>
-<p>[哈哈][哈哈][哈哈][哈哈][哈哈][哈哈][哈哈][哈哈][哈哈]转发图片<br><img src="http://ww4.sinaimg.cn/large/0062bg4mgw1f5cfoszjgkj30hs29pqks.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
