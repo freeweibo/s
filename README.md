@@ -23,7 +23,13 @@
 </h2>
 <p>//@战地红星l:转发微博<br><br>RE: 《慈湖夜谈》常凯申：共党做寿办堂会为毛不唱《国际歌》呢？常经国：目测共党已成长为社会民主党，哼唧几个耳熟能详的小曲儿大家乐呵一下得了，国际悲歌让人听了不舒服。 凯申：你我父子回溪口祖坟有望，睡吧。。。<br><img src="http://ww3.sinaimg.cn/large/e7c07448gw1f5do30dvpdj20iv0e0n12.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3992214201520785" target="freeweibo-mirror">央视告诉公众，此人的姓名叫“刑永瑞”！</a>
+</h2>
+<p>央视告诉公众，此人的姓名叫“刑永瑞”！<br><br>RE: 【杀害雷洋的真凶】虽然公安队伍中也有好警察，但是，不能因为是警察就可以法外开恩。合格的警察，从穿上警服那一天起，其职责就是打击犯罪、保护人民。反之，人民就会遭殃。杀害雷洋的凶手不严惩，就是对法律的亵渎！[拳头][拳头][拳头]<br><img src="http://ww1.sinaimg.cn/large/6a83dd8egw1f5dju90z61j20hc0d2408.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3992213911988990" target="freeweibo-mirror">《慈湖夜谈》常凯申：共党做寿办堂会为毛不唱《国际歌》呢？常经…</a>
 </h2>
@@ -41,7 +47,7 @@
 </h2>
 <p>等着看//@方便卫生起效快:鲁炜和这个货迟早挂路灯</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3992200776227246" target="freeweibo-mirror">//@神州八号99://@湘江滴水: 圣地网信办就是不一样</a>
 </h2>
@@ -49,9 +55,21 @@
 <p>
 	<small> ============== 4小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3992197173270937" target="freeweibo-mirror">//@记者谈春平:#老谈说事# 这张照片配的[哈哈]</a>
+</h2>
+<p>//@记者谈春平:#老谈说事# 这张照片配的[哈哈]</p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3992196355614328" target="freeweibo-mirror">检察院公布雷洋尸检，不但不是让正义得到申张，让雷洋得到昭雪。…</a>
 </h2>
 <p>检察院公布雷洋尸检，不但不是让正义得到申张，让雷洋得到昭雪。相反会再一次撕裂了社会。这个尸检的信息说明，雷洋事件不是某些人心中这样的故事:一个爱妻儿的青年才俊，走在马路上被警察拖过去殴打致死。检察院信息是他不是被殴打致死，警察也没犯故意伤害致死的罪。而是未发现他出现问题 ，及时送他...全文： http://m.weibo.cn/1481944214/3992196355614328</p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3992194735750650" target="freeweibo-mirror">//@装B大帅:活了几十年没有误吸而死，碰警察就误吸死了。还…</a>
+</h2>
+<p>//@装B大帅:活了几十年没有误吸而死，碰警察就误吸死了。还有那几个足浴房的人呢，明摆做假证，还有央视自己拉的便便，还不出来吃了？</p>
 <p>
 	<small> ============== 4小时前</small>
 </p><h2>
@@ -113,29 +131,11 @@
 </h2>
 <p>//@人生漫步111://@大胡子胖哥哦: //@孫文1915革命://@崇法NO7:转发微博<br><br>RE: 雷洋家属代理律师@陈有西 团队对鉴定结论的八点回应意见<br><img src="http://ww3.sinaimg.cn/large/60b0044bgw1f5df5q7v05j20ku2kxduo.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3992160556129545" target="freeweibo-mirror">@陈有西 检方全面起诉，庭审时充分辩论，真理愈辩愈明，才足以…</a>
 </h2>
 <p>@陈有西 检方全面起诉，庭审时充分辩论，真理愈辩愈明，才足以服人。<br><br>RE: 雷洋家属代理律师@陈有西 团队对鉴定结论的八点回应意见<br><img src="http://ww3.sinaimg.cn/large/60b0044bgw1f5df5q7v05j20ku2kxduo.jpg"></p>
-<p>
-	<small> ============== 6小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3992160519238198" target="freeweibo-mirror">//@谢文:故意伤害罪 //@樊建川: //@刘力博士://…</a>
-</h2>
-<p>//@谢文:故意伤害罪 //@樊建川: //@刘力博士://@李俊红--Ranababy:这个回应给力。//@西坡:转发微博<br><br>RE: 雷洋案被害人家属代理律师八点回应。<br><img src="http://ww1.sinaimg.cn/large/5ce92b4dgw1f5dep80tgzj20qo1bfal3.jpg"></p>
-<p>
-	<small> ============== 6小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3992159339945610" target="freeweibo-mirror">法院把卷宗丢了，警察把录像丢了，看守把犯人丢了，这才叫玩忽职…</a>
-</h2>
-<p>法院把卷宗丢了，警察把录像丢了，看守把犯人丢了，这才叫玩忽职守。 //@谢文:故意伤害罪 //@樊建川: //@刘力博士://@李俊红--Ranababy:这个回应给力。//@西坡:转发微博<br><br>RE: 雷洋案被害人家属代理律师八点回应。<br><img src="http://ww1.sinaimg.cn/large/5ce92b4dgw1f5dep80tgzj20qo1bfal3.jpg"></p>
-<p>
-	<small> ============== 7小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3992154965581161" target="freeweibo-mirror">SPAM @陈有西 律师的转发键迅速被没收，不会是@首都网警…</a>
-</h2>
-<p>SPAM @陈有西 律师的转发键迅速被没收，不会是@首都网警 做的案吧？[哈哈][哈哈][哈哈]<br><img src="http://ww3.sinaimg.cn/large/5f57da0egw1f5dhrx606tj20jz0zktf1.jpg"></p>
 <p>
 	<small> ============== 7小时前</small>
 </p>
