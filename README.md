@@ -19,6 +19,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3992133419099060" target="freeweibo-mirror">SPAM //@章诒和:真是长见识！//@徐昕: 玩忽职守，…</a>
+</h2>
+<p>SPAM //@章诒和:真是长见识！//@徐昕: 玩忽职守，呵呵<br><br>RE: 雷洋<br><img src="http://ww2.sinaimg.cn/large/918d47a2jw1f5dec74ejnj20k00zkdi3.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3992129728995661" target="freeweibo-mirror">SPAM 玩忽职守，呵呵</a>
 </h2>
 <p>SPAM 玩忽职守，呵呵<br><br>RE: 雷洋<br><img src="http://ww2.sinaimg.cn/large/918d47a2jw1f5dec74ejnj20k00zkdi3.jpg"></p>
@@ -28,6 +34,12 @@
 	<a href="https://freeweibo.com/weibo/3992125265602263" target="freeweibo-mirror">雷洋</a>
 </h2>
 <p>雷洋<br><img src="http://ww2.sinaimg.cn/large/918d47a2jw1f5dec74ejnj20k00zkdi3.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3992124195979172" target="freeweibo-mirror">聚会结束后，大家合影留念，并为安保资金捐款，一起祝方舟子老师…</a>
+</h2>
+<p>聚会结束后，大家合影留念，并为安保资金捐款，一起祝方舟子老师健康长寿，为他打着批评一切宗教思想旗号，实际上替极端宗教洗地的行为喝彩。<br><br>RE: 转载自脸书Britain First账号，视频发布时间为2016年6月29日，英国穆斯林在伦敦集会号召Jihad“吉哈德”（圣战）并抗议美、英、俄、中、印以及埃塞俄比亚对于伊斯兰国家和穆斯林的迫害，并声称只有沙利亚法（穆斯林教法）才是合法正当的法律。 http://t.cn/R58X6CG .</p>
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
@@ -124,18 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3991847195594200" target="freeweibo-mirror">SPAM 这个大招？？？？ //@关爱智障儿童成长:我靠！！…</a>
 </h2>
 <p>SPAM 这个大招？？？？ //@关爱智障儿童成长:我靠！！一起传送！！ //@Kee_Rw:卧槽这个大我怕了 //@早安卡林顿晚安老特拉福德:塔姆真是日了狗了//@Deft: 卧槽？？</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3991843882630935" target="freeweibo-mirror">潘秃子，鲁炜被撤职，你丫得负责！[哼]</a>
-</h2>
-<p>潘秃子，鲁炜被撤职，你丫得负责！[哼]<br><br>RE: 这张照片中有嫖娼犯，有留党察看者，有假借癌症逃过一劫者，有下海经商的官员老婆，听说又出了个腐败份子，剩下的那几个装逼货会有什么下场呢？@潘石屹 听说这场合是你安排的哦。[嘻嘻]<br><img src="http://ww2.sinaimg.cn/large/005MTzm0jw1f5chiw1q5uj30df08qq4l.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3991840636601838" target="freeweibo-mirror">SPAM 悦系芳心，挡不住的性感，舒适聚拢的美背款，四种穿法…</a>
-</h2>
-<p>SPAM 悦系芳心，挡不住的性感，舒适聚拢的美背款，四种穿法，想怎么穿就怎么穿[求关注]想怎么美就怎么秀[好喜欢][好喜欢] @YOMILLY悦美励Ally<br><img src="http://ww1.sinaimg.cn/large/70623bbbgw1f5bampmjgij20ws0ws75g.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
