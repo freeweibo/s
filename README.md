@@ -29,7 +29,7 @@
 </h2>
 <p>SPAM 可笑！<br><br>RE: 剧情越来越热闹，卷入的人也越来越多……<br><img src="http://ww1.sinaimg.cn/large/4ad6dea7gw1f5d5cywuynj20m80eugnp.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3992087123274828" target="freeweibo-mirror">舆论可以左右法律的时代。//@悬壶问茶:这就是真相？//@方…</a>
 </h2>
@@ -95,7 +95,7 @@
 </h2>
 <p>#中央纪委监察部# 别了，罗志军[拜拜]<br><img src="http://ww3.sinaimg.cn/large/006qfdcPjw1f5cvf1t15tj30a70eat94.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3991847195594200" target="freeweibo-mirror">SPAM 这个大招？？？？ //@关爱智障儿童成长:我靠！！…</a>
 </h2>
