@@ -41,7 +41,7 @@
 </h2>
 <p>SPAM 黄说话，啥信号？//@杜子建:推荐阅读！</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3992205867408895" target="freeweibo-mirror">等着看//@方便卫生起效快:鲁炜和这个货迟早挂路灯</a>
 </h2>
@@ -77,7 +77,7 @@
 </h2>
 <p>//@野靖环1998://@好多伍喵喲:香港人「不忘黨的恩情」吶！[笑cry]//@星雨辰辉://@加m菲炮1314Cat://@瞰望-:转发微博<br><br>RE: 香港同胞太热情了，贵党明天才生日。你们今天就开始庆祝了。真的正能量。<br><img src="http://ww1.sinaimg.cn/large/006nuyy2gw1f5dbk5bnloj30kk0bjtbi.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3992188071529254" target="freeweibo-mirror">//@陈-建新: //@baicheng曲://@Catin…</a>
 </h2>
