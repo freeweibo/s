@@ -47,7 +47,7 @@
 </h2>
 <p>法院把卷宗丢了，警察把录像丢了，看守把犯人丢了，这才叫玩忽职守。 //@谢文:故意伤害罪 //@樊建川: //@刘力博士://@李俊红--Ranababy:这个回应给力。//@西坡:转发微博<br><br>RE: 雷洋案被害人家属代理律师八点回应。<br><img src="http://ww1.sinaimg.cn/large/5ce92b4dgw1f5dep80tgzj20qo1bfal3.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3992154965581161" target="freeweibo-mirror">SPAM @陈有西 律师的转发键迅速被没收，不会是@首都网警…</a>
 </h2>
