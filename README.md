@@ -47,7 +47,7 @@
 </h2>
 <p>#中央纪委监察部# 别了，罗志军[拜拜]<br><img src="http://ww3.sinaimg.cn/large/006qfdcPjw1f5cvf1t15tj30a70eat94.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3991847195594200" target="freeweibo-mirror">SPAM 这个大招？？？？ //@关爱智障儿童成长:我靠！！…</a>
 </h2>
@@ -64,6 +64,12 @@
 	<a href="https://freeweibo.com/weibo/3991840636601838" target="freeweibo-mirror">SPAM 悦系芳心，挡不住的性感，舒适聚拢的美背款，四种穿法…</a>
 </h2>
 <p>SPAM 悦系芳心，挡不住的性感，舒适聚拢的美背款，四种穿法，想怎么穿就怎么穿[求关注]想怎么美就怎么秀[好喜欢][好喜欢] @YOMILLY悦美励Ally<br><img src="http://ww1.sinaimg.cn/large/70623bbbgw1f5bampmjgij20ws0ws75g.jpg"></p>
+<p>
+	<small> ============== 1天前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3991833518162281" target="freeweibo-mirror">前天，微博老友金重齐杀了国保，被A级通缉 。他长期被国保骚扰…</a>
+</h2>
+<p>前天，微博老友金重齐杀了国保，被A级通缉 。他长期被国保骚扰，忍无可忍，终于酿成悲剧，党国的国保们，作恶要有底线。恳请各位一起关注金重齐杀国保事件！这是一起和杨佳杀警一样有相同意义的事件！</p>
 <p>
 	<small> ============== 1天前</small>
 </p><h2>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3991749262691155" target="freeweibo-mirror">鲁三节裤腿，玩完了！</a>
 </h2>
 <p>鲁三节裤腿，玩完了！</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3991743554248236" target="freeweibo-mirror">SPAM 哦？//@好名发博:鲁就是个极左！</a>
-</h2>
-<p>SPAM 哦？//@好名发博:鲁就是个极左！</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
