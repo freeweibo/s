@@ -137,7 +137,7 @@
 </h2>
 <p>SPAM //@章诒和:真是长见识！//@徐昕: 玩忽职守，呵呵<br><br>RE: 雷洋<br><img src="http://ww2.sinaimg.cn/large/918d47a2jw1f5dec74ejnj20k00zkdi3.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p>
 <table>
     <tr>
