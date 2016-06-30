@@ -23,7 +23,7 @@
 </h2>
 <p>SPAM 玩忽职守，呵呵<br><br>RE: 雷洋<br><img src="http://ww2.sinaimg.cn/large/918d47a2jw1f5dec74ejnj20k00zkdi3.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3992125265602263" target="freeweibo-mirror">雷洋</a>
 </h2>
@@ -36,6 +36,12 @@
 <p>[汗] //@秦陇复汉军: 穆大爷们，中国冤枉啊，我们给穆斯林各种补贴、优惠，就差没供起来了。请饶中国一命[嘻嘻]//@我重新出发也:/@wzlixiaoxin:如果它们有机会清除了所有的非穆，它们各教派之间就会展开殊死的搏杀！ //@花子粮:我总结成一句话就是:  除了穆斯林,全是敌人......<br><br>RE: 转载自脸书Britain First账号，视频发布时间为2016年6月29日，英国穆斯林在伦敦集会号召Jihad“吉哈德”（圣战）并抗议美、英、俄、中、印以及埃塞俄比亚对于伊斯兰国家和穆斯林的迫害，并声称只有沙利亚法（穆斯林教法）才是合法正当的法律。 http://t.cn/R58X6CG .</p>
 <p>
 	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3992104957302107" target="freeweibo-mirror">黄奇帆今天也凑热闹，说万科的事不复杂。别由企业天天扯，搞成每…</a>
+</h2>
+<p>黄奇帆今天也凑热闹，说万科的事不复杂。别由企业天天扯，搞成每天的新闻亮点。政府从三个角度就可以解决。<br><img src="http://ww3.sinaimg.cn/large/7c1d7ba8gw1f5dc0d31asj20hs0vkwib.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3992088973117563" target="freeweibo-mirror">SPAM 可笑！</a>
 </h2>
@@ -89,13 +95,13 @@
 </h2>
 <p>//@摸着石头过河---水太深: //@竹林獨閑://@雁塔10木屋://@青山GG妩媚:[作揖]求无眠兄那篇文章。//@小二在厨房:这个事情已经变成微博最热了[话筒][话筒]//@上海鱼鱼1: //@东河-猎鹰倚天屠龙: //@千山何须胡说://@遊女長歌胡不歸: [微风][微风]大家注意，勿傳義士照片……<br><br>RE: 前天，微博老友金重齐杀了国保，被A级通缉 。他长期被国保骚扰，忍无可忍，终于酿成悲剧，党国的国保们，作恶要有底线。恳请各位一起关注金重齐杀国保事件！这是一起和杨佳杀警一样有相同意义的事件！</p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3991993607100505" target="freeweibo-mirror">SPAM 这前后逻辑，我智商又不够了[吃惊][哈哈]//@盛…</a>
 </h2>
 <p>SPAM 这前后逻辑，我智商又不够了[吃惊][哈哈]//@盛雨中居士: http://t.cn/R58Zv3g //@盛雨中居士:哭笑不得[泪][哈哈][泪][哈哈]//@独孤一剑长啸://@赤子刘杰V: //@小子之愚:这可是件大事！[哈哈]</p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3991989236580359" target="freeweibo-mirror">SPAM //@东林居士2011: //@猫眼看世13: /…</a>
 </h2>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3991840636601838" target="freeweibo-mirror">SPAM 悦系芳心，挡不住的性感，舒适聚拢的美背款，四种穿法…</a>
 </h2>
 <p>SPAM 悦系芳心，挡不住的性感，舒适聚拢的美背款，四种穿法，想怎么穿就怎么穿[求关注]想怎么美就怎么秀[好喜欢][好喜欢] @YOMILLY悦美励Ally<br><img src="http://ww1.sinaimg.cn/large/70623bbbgw1f5bampmjgij20ws0ws75g.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3991833518162281" target="freeweibo-mirror">前天，微博老友金重齐杀了国保，被A级通缉 。他长期被国保骚扰…</a>
-</h2>
-<p>前天，微博老友金重齐杀了国保，被A级通缉 。他长期被国保骚扰，忍无可忍，终于酿成悲剧，党国的国保们，作恶要有底线。恳请各位一起关注金重齐杀国保事件！这是一起和杨佳杀警一样有相同意义的事件！</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
