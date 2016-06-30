@@ -23,7 +23,7 @@
 </h2>
 <p>SPAM //@东林居士2011: //@猫眼看世13: //@遗失De曼珠沙华://@流氓坐庄://@第一号傻瓜8:还是那句话：没有民主法治，每个人都是待宰羔羊 。前刘之辙，后李之鉴 //@于菲088: 轉發微博<br><br>RE: 李源潮要被拿下，「無產階級專政就是一部絞肉機。」——林彪比誰都明白這點，所以林彪飛機墜機死比劉少奇的死法要聰明的多。<br><img src="http://ww1.sinaimg.cn/large/006uAytpgw1f5c7kqi3x3j30c8095q3m.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3991847195594200" target="freeweibo-mirror">SPAM 这个大招？？？？ //@关爱智障儿童成长:我靠！！…</a>
 </h2>
@@ -91,6 +91,12 @@
 <p>
 	<small> ============== 1天前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3991752723729710" target="freeweibo-mirror">李源潮要被拿下，「無產階級專政就是一部絞肉機。」——林彪比誰…</a>
+</h2>
+<p>李源潮要被拿下，「無產階級專政就是一部絞肉機。」——林彪比誰都明白這點，所以林彪飛機墜機死比劉少奇的死法要聰明的多。<br><img src="http://ww1.sinaimg.cn/large/006uAytpgw1f5c7kqi3x3j30c8095q3m.jpg"></p>
+<p>
+	<small> ============== 1天前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3991749262691155" target="freeweibo-mirror">鲁三节裤腿，玩完了！</a>
 </h2>
 <p>鲁三节裤腿，玩完了！</p>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3991732351807085" target="freeweibo-mirror">【知名导演强闯机场监控管制区，协会首先需要自责和引以为耻】窃…</a>
 </h2>
 <p>【知名导演强闯机场监控管制区，协会首先需要自责和引以为耻】窃以为，协会应该派律师顾问前往，而不是向全社会发协会声明。声明撇下这个不说，而冲着警方执法发表各种质疑，这就能维护导演尊严了？法治何在？自律何在？ 中国电影导演人难道就这种“圈子凌驾法治”的素质？<br><img src="http://ww2.sinaimg.cn/large/5d7227b8gw1f5c56xgglmj20c80hawf9.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3991730707476897" target="freeweibo-mirror">【导演协会比律师协会强万倍】一个导演因旅行被机场公安羁押，中…</a>
-</h2>
-<p>【导演协会比律师协会强万倍】一个导演因旅行被机场公安羁押，中国导演协会还立即发表声明表示关注。律师履行职务被羁押者时有发生，很少见到律师协会发过声明，更没发布过如此立场清晰坚定的声明。<br><img src="http://ww3.sinaimg.cn/large/6a80bfcdjw1f5c4xadqwfj20qo1bfdpr.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
