@@ -119,13 +119,13 @@
 </h2>
 <p>SPAM 玩忽职守，呵呵<br><br>RE: 雷洋<br><img src="http://ww2.sinaimg.cn/large/918d47a2jw1f5dec74ejnj20k00zkdi3.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3992129396747430" target="freeweibo-mirror">//@王冉:转发微博</a>
 </h2>
 <p>//@王冉:转发微博<br><br>RE: 【两警逮捕】刚才北京市检察院已经初步公开尸检简明结论，和雷洋案侦查进程，我们正在进行认真分析。针对很多媒体的追问和社会各界的高度关注，简要回应几点：1，感谢北京市检察院严格、依法、严谨办案，初步确定了警察行为导致外因死亡的案件性质，对涉嫌犯罪两名警察决定执行逮捕。2，死因已经排除原...全文： http://m.weibo.cn/1803570001/3992127191579513...全文： http://m.weibo.cn/1803570001/3992127191579513...全文： http://m.weibo.cn/1803570001/3992127191579513...全文： http://m.weibo.cn/1803570001/3992127191579513...全文： http://m.weibo.cn/1803570001/3992127191579513...全文： http://m.weibo.cn/1803570001/3992127191579513...全文： http://m.weibo.cn/1803570001/3992127191579513<br><img src="http://ww2.sinaimg.cn/large/6b804b51gw1f5dejbm339j20ku112q6v.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3992127191579513" target="freeweibo-mirror">【两警逮捕】刚才北京市检察院已经初步公开尸检简明结论，和雷洋…</a>
 </h2>
