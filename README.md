@@ -35,13 +35,13 @@
 </h2>
 <p>#中央纪委监察部# 别了，罗志军[拜拜]<br><img src="http://ww3.sinaimg.cn/large/006qfdcPjw1f5cvf1t15tj30a70eat94.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3991847195594200" target="freeweibo-mirror">SPAM 这个大招？？？？ //@关爱智障儿童成长:我靠！！…</a>
 </h2>
 <p>SPAM 这个大招？？？？ //@关爱智障儿童成长:我靠！！一起传送！！ //@Kee_Rw:卧槽这个大我怕了 //@早安卡林顿晚安老特拉福德:塔姆真是日了狗了//@Deft: 卧槽？？</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3991843882630935" target="freeweibo-mirror">潘秃子，鲁炜被撤职，你丫得负责！[哼]</a>
 </h2>
