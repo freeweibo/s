@@ -61,6 +61,12 @@
 <p>
 	<small> ============== 5小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3992051542098481" target="freeweibo-mirror">转载自脸书Britain First账号，视频发布时间为20…</a>
+</h2>
+<p>转载自脸书Britain First账号，视频发布时间为2016年6月29日，英国穆斯林在伦敦集会号召Jihad“吉哈德”（圣战）并抗议美、英、俄、中、印以及埃塞俄比亚对于伊斯兰国家和穆斯林的迫害，并声称只有沙利亚法（穆斯林教法）才是合法正当的法律。 http://t.cn/R58X6CG .</p>
+<p>
+	<small> ============== 6小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3992049415624649" target="freeweibo-mirror">剧情越来越热闹，卷入的人也越来越多……</a>
 </h2>
 <p>剧情越来越热闹，卷入的人也越来越多……<br><img src="http://ww1.sinaimg.cn/large/4ad6dea7gw1f5d5cywuynj20m80eugnp.jpg"></p>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3991822295100767" target="freeweibo-mirror">既然”全程有视音频记录”，请及时公布，到底是“与人无争”还是…</a>
 </h2>
 <p>既然”全程有视音频记录”，请及时公布，到底是“与人无争”还是“大吵大闹”，以事实说话。//@北京崔卫平:认识万玛导演多年，对他的彬彬有礼留下了深刻印象。他总是面带微笑，语调不高，与人无争。即使拿了许多国际奖项，他仍然保持谦和本色，为人处世低调。<br><br>RE: 【警方回应藏族导演被带走：擅闯控制区找行李扰乱公共秩序】青海警方称，6月25日晚，万某在西宁机场擅自闯入到达厅控制区寻找行李，不听劝阻并和安检人员发生争执，执勤民警到达后，将万某强制带离现场时，由于其仍拒不配合，导致手腕有3处手铐勒痕。取证后警方将其拘留5日。http://t.cn/R5Q8bJu<br><img src="http://ww2.sinaimg.cn/large/61e04755jw1f5ceff7zl3j20dw0jmt9b.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3991812852701010" target="freeweibo-mirror">【警方回应藏族导演被带走：擅闯控制区找行李扰乱公共秩序】青海…</a>
-</h2>
-<p>【警方回应藏族导演被带走：擅闯控制区找行李扰乱公共秩序】青海警方称，6月25日晚，万某在西宁机场擅自闯入到达厅控制区寻找行李，不听劝阻并和安检人员发生争执，执勤民警到达后，将万某强制带离现场时，由于其仍拒不配合，导致手腕有3处手铐勒痕。取证后警方将其拘留5日。http://t.cn/R5Q8bJu<br><img src="http://ww2.sinaimg.cn/large/61e04755jw1f5ceff7zl3j20dw0jmt9b.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
