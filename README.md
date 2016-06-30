@@ -127,15 +127,15 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
-	<a href="https://freeweibo.com/weibo/3992125265602263" target="freeweibo-mirror">雷洋</a>
+	<a href="https://freeweibo.com/weibo/3992127191579513" target="freeweibo-mirror">【两警逮捕】刚才北京市检察院已经初步公开尸检简明结论，和雷洋…</a>
 </h2>
-<p>雷洋<br><img src="http://ww2.sinaimg.cn/large/918d47a2jw1f5dec74ejnj20k00zkdi3.jpg"></p>
+<p>【两警逮捕】刚才北京市检察院已经初步公开尸检简明结论，和雷洋案侦查进程，我们正在进行认真分析。针对很多媒体的追问和社会各界的高度关注，简要回应几点：1，感谢北京市检察院严格、依法、严谨办案，初步确定了警察行为导致外因死亡的案件性质，对涉嫌犯罪两名警察决定执行逮捕。2，死因已经排除原...全文： http://m.weibo.cn/1803570001/3992127191579513...全文： http://m.weibo.cn/1803570001/3992127191579513...全文： http://m.weibo.cn/1803570001/3992127191579513...全文： http://m.weibo.cn/1803570001/3992127191579513...全文： http://m.weibo.cn/1803570001/3992127191579513...全文： http://m.weibo.cn/1803570001/3992127191579513...全文： http://m.weibo.cn/1803570001/3992127191579513<br><img src="http://ww2.sinaimg.cn/large/6b804b51gw1f5dejbm339j20ku112q6v.jpg"></p>
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
-	<a href="https://freeweibo.com/weibo/3992124195979172" target="freeweibo-mirror">聚会结束后，大家合影留念，并为安保资金捐款，一起祝方舟子老师…</a>
+	<a href="https://freeweibo.com/weibo/3992125265602263" target="freeweibo-mirror">雷洋</a>
 </h2>
-<p>聚会结束后，大家合影留念，并为安保资金捐款，一起祝方舟子老师健康长寿，为他打着批评一切宗教思想旗号，实际上替极端宗教洗地的行为喝彩。<br><br>RE: 转载自脸书Britain First账号，视频发布时间为2016年6月29日，英国穆斯林在伦敦集会号召Jihad“吉哈德”（圣战）并抗议美、英、俄、中、印以及埃塞俄比亚对于伊斯兰国家和穆斯林的迫害，并声称只有沙利亚法（穆斯林教法）才是合法正当的法律。 http://t.cn/R58X6CG .</p>
+<p>雷洋<br><img src="http://ww2.sinaimg.cn/large/918d47a2jw1f5dec74ejnj20k00zkdi3.jpg"></p>
 <p>
 	<small> ============== 3小时前</small>
 </p>
