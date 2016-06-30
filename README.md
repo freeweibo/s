@@ -47,7 +47,7 @@
 </h2>
 <p>#中央纪委监察部# 别了，罗志军[拜拜]<br><img src="http://ww3.sinaimg.cn/large/006qfdcPjw1f5cvf1t15tj30a70eat94.jpg"></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3991847195594200" target="freeweibo-mirror">SPAM 这个大招？？？？ //@关爱智障儿童成长:我靠！！…</a>
 </h2>
