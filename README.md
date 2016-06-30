@@ -23,7 +23,7 @@
 </h2>
 <p>SPAM //@章诒和:真是长见识！//@徐昕: 玩忽职守，呵呵<br><br>RE: 雷洋<br><img src="http://ww2.sinaimg.cn/large/918d47a2jw1f5dec74ejnj20k00zkdi3.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3992129728995661" target="freeweibo-mirror">SPAM 玩忽职守，呵呵</a>
 </h2>
