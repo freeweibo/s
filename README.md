@@ -73,6 +73,12 @@
 <p>
 	<small> ============== 4小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3992193696267353" target="freeweibo-mirror">//@野靖环1998://@好多伍喵喲:香港人「不忘黨的恩情…</a>
+</h2>
+<p>//@野靖环1998://@好多伍喵喲:香港人「不忘黨的恩情」吶！[笑cry]//@星雨辰辉://@加m菲炮1314Cat://@瞰望-:转发微博<br><br>RE: 香港同胞太热情了，贵党明天才生日。你们今天就开始庆祝了。真的正能量。<br><img src="http://ww1.sinaimg.cn/large/006nuyy2gw1f5dbk5bnloj30kk0bjtbi.jpg"></p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3992188071529254" target="freeweibo-mirror">//@陈-建新: //@baicheng曲://@Catin…</a>
 </h2>
 <p>//@陈-建新: //@baicheng曲://@CatintheBalcony://@浊酒秋月://@枫林秋色2008:转发微博<br><br>RE: 尸检出来了，一个17年武术练习者说了两点！ 第一，人不可能自己把自己呛死或者憋死！即使是在你失去意识后！这是医学常识！！ 第二，什么叫胃液混合物？？说白了就是呕吐物！为什么会倒吸入肺里，然后被呛死？只有一种可能，一边对胃神经部位施加暴力击打，一边堵塞住口鼻！！少一种都不可能。</p>
@@ -113,7 +119,7 @@
 </h2>
 <p>科匪给人民吃的那个东西难道叫“生物”？[偷笑]把Ti 偷偷放在“生物”里给别人当饭吃，不是匪是啥，啊？诺奖也不行，院士也不行，害人就是不行 //@夏尔谢夫工程师:"我比诺奖得主懂生物"//@媣香01://@幸福不会重复:转发微博<br><br>RE: 科学界能如此众口一词否认事实，能如此集体为资本利益站台卖脸，能如此无耻地以科学的名义背叛科学的精髓——为人类服务，凌驾于人类利益之上，这个人类的世界也许真的要走到末日了——  108名诺奖得主吁绿色和平放弃反对转基因，指其 反人类 http://t.cn/R58QqaL</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3992172586387392" target="freeweibo-mirror">SPAM 雷洋律师的解读</a>
 </h2>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3992161211526027" target="freeweibo-mirror">//@人生漫步111://@大胡子胖哥哦: //@孫文191…</a>
 </h2>
 <p>//@人生漫步111://@大胡子胖哥哦: //@孫文1915革命://@崇法NO7:转发微博<br><br>RE: 雷洋家属代理律师@陈有西 团队对鉴定结论的八点回应意见<br><img src="http://ww3.sinaimg.cn/large/60b0044bgw1f5df5q7v05j20ku2kxduo.jpg"></p>
-<p>
-	<small> ============== 7小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3992160556129545" target="freeweibo-mirror">@陈有西 检方全面起诉，庭审时充分辩论，真理愈辩愈明，才足以…</a>
-</h2>
-<p>@陈有西 检方全面起诉，庭审时充分辩论，真理愈辩愈明，才足以服人。<br><br>RE: 雷洋家属代理律师@陈有西 团队对鉴定结论的八点回应意见<br><img src="http://ww3.sinaimg.cn/large/60b0044bgw1f5df5q7v05j20ku2kxduo.jpg"></p>
 <p>
 	<small> ============== 7小时前</small>
 </p>
