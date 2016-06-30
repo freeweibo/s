@@ -25,6 +25,12 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3991985784474490" target="freeweibo-mirror">1978.09----1980.12任北京市医用射线机厂团委…</a>
+</h2>
+<p>1978.09----1980.12任北京市医用射线机厂团委书记。<br><br>RE: #中央纪委监察部# 别了，罗志军[拜拜]<br><img src="http://ww3.sinaimg.cn/large/006qfdcPjw1f5cvf1t15tj30a70eat94.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3991847195594200" target="freeweibo-mirror">SPAM 这个大招？？？？ //@关爱智障儿童成长:我靠！！…</a>
 </h2>
 <p>SPAM 这个大招？？？？ //@关爱智障儿童成长:我靠！！一起传送！！ //@Kee_Rw:卧槽这个大我怕了 //@早安卡林顿晚安老特拉福德:塔姆真是日了狗了//@Deft: 卧槽？？</p>
@@ -35,7 +41,7 @@
 </h2>
 <p>潘秃子，鲁炜被撤职，你丫得负责！[哼]<br><br>RE: 这张照片中有嫖娼犯，有留党察看者，有假借癌症逃过一劫者，有下海经商的官员老婆，听说又出了个腐败份子，剩下的那几个装逼货会有什么下场呢？@潘石屹 听说这场合是你安排的哦。[嘻嘻]<br><img src="http://ww2.sinaimg.cn/large/005MTzm0jw1f5chiw1q5uj30df08qq4l.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3991840636601838" target="freeweibo-mirror">SPAM 悦系芳心，挡不住的性感，舒适聚拢的美背款，四种穿法…</a>
 </h2>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3991736159750220" target="freeweibo-mirror">//@朱孝顶律师: 中国各级律师协会认同这个观点吗？</a>
 </h2>
 <p>//@朱孝顶律师: 中国各级律师协会认同这个观点吗？<br><br>RE: 【导演协会比律师协会强万倍】一个导演因旅行被机场公安羁押，中国导演协会还立即发表声明表示关注。律师履行职务被羁押者时有发生，很少见到律师协会发过声明，更没发布过如此立场清晰坚定的声明。<br><img src="http://ww3.sinaimg.cn/large/6a80bfcdjw1f5c4xadqwfj20qo1bfdpr.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3991732351807085" target="freeweibo-mirror">【知名导演强闯机场监控管制区，协会首先需要自责和引以为耻】窃…</a>
-</h2>
-<p>【知名导演强闯机场监控管制区，协会首先需要自责和引以为耻】窃以为，协会应该派律师顾问前往，而不是向全社会发协会声明。声明撇下这个不说，而冲着警方执法发表各种质疑，这就能维护导演尊严了？法治何在？自律何在？ 中国电影导演人难道就这种“圈子凌驾法治”的素质？<br><img src="http://ww2.sinaimg.cn/large/5d7227b8gw1f5c56xgglmj20c80hawf9.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
