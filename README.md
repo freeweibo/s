@@ -77,7 +77,7 @@
 </h2>
 <p>1978.09----1980.12任北京市医用射线机厂团委书记。<br><br>RE: #中央纪委监察部# 别了，罗志军[拜拜]<br><img src="http://ww3.sinaimg.cn/large/006qfdcPjw1f5cvf1t15tj30a70eat94.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3991960374815224" target="freeweibo-mirror">#中央纪委监察部# 别了，罗志军[拜拜]</a>
 </h2>
