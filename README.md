@@ -19,6 +19,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3992497304591066" target="freeweibo-mirror">单看照片，雷春风满面（每天见到的都是达官显贵），邢满脸沧桑（…</a>
+</h2>
+<p>单看照片，雷春风满面（每天见到的都是达官显贵），邢满脸沧桑（打交道的无非贩夫，走卒，地痞，流氓，刁民）！人大的精英们，哪里知道小警察的苦辣酸甜？！//@我本蕙质兰心: //@网忆天涯://@易天: 五千元工资撑起这些负担确实不易，抓嫖罚款也算创收～～可以说，这两个人都是制度的受害者！<br><br>RE: 雷洋从湖南灃县考入中国人大，刚有一个女儿。派出所副所长邢永瑞从甘肃贫困县以甘肃文科状元考入中国政法大学，父母及全村养羊卖羊供他上学，他每月5千工资既要供两个双胞胎女儿，又要供弟弟妹妹读大学。两个好学上进的平民子弟一次抓嫖命运彻底毁掉，希望籍此全民讨论以让中国司法环境前进一大步。 ...全文： http://m.weibo.cn/1254764477/3992352449704290<br><img src="http://ww2.sinaimg.cn/large/4aca2fbdjw1f5e4g7yzgnj20c309dwfe.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3992491353102927" target="freeweibo-mirror">[笑cry][笑cry] //@覃里雯:[笑cry][笑cr…</a>
 </h2>
 <p>[笑cry][笑cry] //@覃里雯:[笑cry][笑cry] //@王冉:[哈哈][哈哈]//@李开复: 转发微博<br><br>RE: 据说以后App开机都是这样的……<br><img src="http://ww2.sinaimg.cn/large/4242e8adjw1f5e74o5svwj20dc0m8wes.jpg"></p>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3992429407477165" target="freeweibo-mirror">SPAM 穷山恶水出刁民//@透明蠢抱_心怀荣耀战无不胜:啧…</a>
 </h2>
 <p>SPAM 穷山恶水出刁民//@透明蠢抱_心怀荣耀战无不胜:啧//@雅子黛远:心疼白衣天使们啊 //@唐花榆钱:心疼医生 //@这位带盾的妹妹我曾经见过的:[拜拜][拜拜][拜拜] //@阿库_MiddleEarth://@七色的偽物人形:討厭 //@攸米Metal:人性本恶。<br><br>RE: 随便一转。<br><img src="http://ww3.sinaimg.cn/large/625e550djw1f5dmvfoevrj20xc18gaku.jpg"></p>
-<p>
-	<small> ============== 6小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3992429114202752" target="freeweibo-mirror">SPAM 应该不是故意的吧？！[汗][囧][话筒]</a>
-</h2>
-<p>SPAM 应该不是故意的吧？！[汗][囧][话筒]<br><br>RE: 新华网出大事了：这个编辑要倒霉！[吃惊]<br><img src="http://ww2.sinaimg.cn/large/6b2e7e57jw1f5ed87ytojj20hs0vladj.jpg"></p>
 <p>
 	<small> ============== 6小时前</small>
 </p>
