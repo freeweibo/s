@@ -29,7 +29,7 @@
 </h2>
 <p>//@围观倒车-://@张-天-戈02://@王林的微博客: //@惊醒的家奴5://@IP阳光快乐天使: //@天艹起个名字也难啊:转发微博<br><br>RE: 看投票结果<br><img src="http://ww4.sinaimg.cn/large/006uTIPjjw1f5ern9fj8kj30hs0m840h.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3992562781610665" target="freeweibo-mirror">SPAM 130斤到98斤～    原来减肥那么简单，[心]…</a>
 </h2>
