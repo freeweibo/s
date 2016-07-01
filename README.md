@@ -107,25 +107,25 @@
 </h2>
 <p>孙老师，您觉得这是出于理想主义么?为了纯净人民的思想<br><br>RE: 【中国的防火墙是不是弄反了？】出去拍照，爬过几次长城，发现一个规律：长城都是朝外即朝向敌人的那一面险峻，敌人爬上来不容易；而朝内即朝向自己的这一面都比较平缓，自己上去防御比较容易。而现在中国的防火墙呢？好像是专门和自己过不去，自己出去不容易，敌人轻易进来却不管。这是不是弄反了呢？<br><img src="http://ww1.sinaimg.cn/large/408bb143jw1f5en40kym3j21kw11ynj5.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3992532213425150" target="freeweibo-mirror">SPAM //@罗昌平:监狱的墙，一定是防里面的人外出，而不…</a>
 </h2>
 <p>SPAM //@罗昌平:监狱的墙，一定是防里面的人外出，而不是防外面的人进来。<br><br>RE: 【中国的防火墙是不是弄反了？】出去拍照，爬过几次长城，发现一个规律：长城都是朝外即朝向敌人的那一面险峻，敌人爬上来不容易；而朝内即朝向自己的这一面都比较平缓，自己上去防御比较容易。而现在中国的防火墙呢？好像是专门和自己过不去，自己出去不容易，敌人轻易进来却不管。这是不是弄反了呢？<br><img src="http://ww1.sinaimg.cn/large/408bb143jw1f5en40kym3j21kw11ynj5.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3992531605697815" target="freeweibo-mirror">//@MKandyHK://@小鴿子愛藍天:转发微博</a>
 </h2>
 <p>//@MKandyHK://@小鴿子愛藍天:转发微博<br><br>RE: 分享图片<br><img src="http://ww2.sinaimg.cn/large/006iLiC9jw1f5eogg4jk5j30hs6d6b29.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3992531488956291" target="freeweibo-mirror">SPAM 监狱的墙，一定是防里面的人外出，而不是防外面的人进…</a>
 </h2>
 <p>SPAM 监狱的墙，一定是防里面的人外出，而不是防外面的人进来。<br><br>RE: 【中国的防火墙是不是弄反了？】出去拍照，爬过几次长城，发现一个规律：长城都是朝外即朝向敌人的那一面险峻，敌人爬上来不容易；而朝内即朝向自己的这一面都比较平缓，自己上去防御比较容易。而现在中国的防火墙呢？好像是专门和自己过不去，自己出去不容易，敌人轻易进来却不管。这是不是弄反了呢？<br><img src="http://ww1.sinaimg.cn/large/408bb143jw1f5en40kym3j21kw11ynj5.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3992531010743413" target="freeweibo-mirror">//@专业婚姻家庭律师:墙内的才是他们的敌人，因为他们发展军…</a>
 </h2>
