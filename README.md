@@ -41,7 +41,7 @@
 </h2>
 <p>家属心情可以理解，但还看看大家怎么评论的吧！<br><br>RE: 【雷洋案】据说这是嫌疑人邢永瑞（执法民警）家属给检察机关的公开信。希望此案能在保障各方合法权利的基础上查清事实，还原真相，追究相关人员的法律责任，这是法治的应有之义。<br><img src="http://ww4.sinaimg.cn/large/867a7319jw1f5dgwn9rl3j20ku3qgx5m.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3992335979007959" target="freeweibo-mirror">//@吃素有益健康1: 如果是普通草民，没人关注的话，那么肯…</a>
 </h2>
