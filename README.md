@@ -23,7 +23,7 @@
 </h2>
 <p>//@花石頭e:转发微博<br><br>RE: 分享图片<br><img src="http://ww4.sinaimg.cn/large/7128643bjw1f5ddjrxu6ej20c40gxdj7.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3992348238556341" target="freeweibo-mirror">当然了，领导也分大小……//@半生半悟:这个国家的法制是这样…</a>
 </h2>
@@ -77,7 +77,7 @@
 </h2>
 <p>雷洋的四种死法，必有一种是真实的：死法一（民警邢永瑞版）：暴力抗法跳车逃跑时头先着地摔死。死法二（ccTV版）：疑犯情绪引起激动心脏病突发猝死。死法三（雷洋家属版）：下体肿大疑似被重击或电击致死。死法四（北京市检察院公布的法医鉴定版）：胃内残留物倒灌至呼吸道窒息而死。</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3992214201520785" target="freeweibo-mirror">央视告诉公众，此人的姓名叫“刑永瑞”！</a>
 </h2>
