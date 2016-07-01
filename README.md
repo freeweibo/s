@@ -53,7 +53,7 @@
 </h2>
 <p>//@干卫东律师: //@徐昕:邢所长受到极大的宽待，罪名极轻 //@愤愤围脖:早就辟谣了，不是状元<br><br>RE: 雷洋从湖南灃县考入中国人大，刚有一个女儿。派出所副所长邢永瑞从甘肃贫困县以甘肃文科状元考入中国政法大学，父母及全村养羊卖羊供他上学，他每月5千工资既要供两个双胞胎女儿，又要供弟弟妹妹读大学。两个好学上进的平民子弟一次抓嫖命运彻底毁掉，希望籍此全民讨论以让中国司法环境前进一大步。 ...全文： http://m.weibo.cn/1254764477/3992352449704290<br><img src="http://ww2.sinaimg.cn/large/4aca2fbdjw1f5e4g7yzgnj20c309dwfe.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3992483808142417" target="freeweibo-mirror">//@李开复:转发微博</a>
 </h2>
@@ -71,7 +71,7 @@
 </h2>
 <p>SPAM 很好，这很广电总局！！话说这启动画面魔性太强，情不自禁地自动脑补 BGM 了…… http://t.cn/R5H2g0P<br><br>RE: 据说以后App开机都是这样的……<br><img src="http://ww2.sinaimg.cn/large/4242e8adjw1f5e74o5svwj20dc0m8wes.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3992458562595199" target="freeweibo-mirror">SPAM //@金好多金://@天明再会F:[推荐][微风]…</a>
 </h2>
