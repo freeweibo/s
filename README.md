@@ -19,6 +19,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3992543085581194" target="freeweibo-mirror">//@且伴-紫荆: 最新消息！[话筒][话筒][围观][围观…</a>
+</h2>
+<p>//@且伴-紫荆: 最新消息！[话筒][话筒][围观][围观]<br><br>RE: 遊行人士原定到中聯辦，現在改到下亞厘畢道，禮賓府正門方向。遊行人士與警方談判膠著，未知下步行動。----實習記者鄒嘉怡報導<br><img src="http://ww4.sinaimg.cn/large/006iV9dojw1f5eq73x4uxj31400qoguf.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3992537150477965" target="freeweibo-mirror">//@只配叫猪_: 年年有今朝。//@玛瑞恩://@黄河天下…</a>
 </h2>
 <p>//@只配叫猪_: 年年有今朝。//@玛瑞恩://@黄河天下天2: //@王林的微博客://@天津老魏038: 转发微博<br><br>RE: 由警隊開路<br><img src="http://ww2.sinaimg.cn/large/9f608f39jw1f5ejxmfu6aj20qo0zk4as.jpg"></p>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3992522944868926" target="freeweibo-mirror">据说有十一万人</a>
 </h2>
 <p>据说有十一万人<br><img src="http://ww1.sinaimg.cn/large/006fezt8gw1f5eo14271cj31410qoake.jpg"></p>
-<p>
-	<small> ============== 3小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3992520411197960" target="freeweibo-mirror">俩月，雷洋命断小中产、徐纯合纪念、汶川纪念、柳丝、深圳漂亮小…</a>
-</h2>
-<p>俩月，雷洋命断小中产、徐纯合纪念、汶川纪念、柳丝、深圳漂亮小姐妹、浦东航站楼、湖南高速大客、夏霖开庭、盐城、乌坎、仙桃、潜江、上海养老金、张志明金的代表人民、兰州殡仪及香港的党庆生....卡桑德拉大桥总在思绪中闪念。“主人，那SB又讲话啦！主人，那SB又讲话啦！”不听，让SB去死！[怒][怒]<br><img src="http://ww1.sinaimg.cn/large/006g9Eiejw1f5enqeyrpdj30j60eaju1.jpg"></p>
 <p>
 	<small> ============== 4小时前</small>
 </p>
