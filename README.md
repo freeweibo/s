@@ -23,7 +23,13 @@
 </h2>
 <p>SPAM 小企鹅跟某人有仇吗？<br><img src="http://ww1.sinaimg.cn/large/4dccf617jw1f5ecq6aby0j20jq1da10r.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3992414869696163" target="freeweibo-mirror">都发飙了 //@冠宸:腾讯变成痛讯//@北方猎手:完蛋了，这…</a>
+</h2>
+<p>都发飙了 //@冠宸:腾讯变成痛讯//@北方猎手:完蛋了，这是严重的政治问题，主编这个位置是保不住了[哈哈]</p>
+<p>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3992412328198602" target="freeweibo-mirror">SPAM //@东林居士2011: //@西子丹67:@李庄…</a>
 </h2>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3992270062166622" target="freeweibo-mirror">开始，一窝风说雷洋不会嫖娼，人大硕士，时间不够云云，言下之意…</a>
 </h2>
 <p>开始，一窝风说雷洋不会嫖娼，人大硕士，时间不够云云，言下之意警察故意杀人。 后来改口了，说"嫖娼就该死吗？"，尼玛！嘴脸换的比猴快！ 嫖娼当然不该死，属犯法，连犯罪都够不上，归治安管理处罚条例，而不是刑法。 但是，抗法的概念就不同了。 没抗，警察动武就是违法，抗了，警察理当强力制服，这...全文： http://m.weibo.cn/2335769290/3992270062166622</p>
-<p>
-	<small> ============== 12小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3992269335856488" target="freeweibo-mirror">SPAM :重返17岁，颜值逆天了！</a>
-</h2>
-<p>SPAM :重返17岁，颜值逆天了！</p>
 <p>
 	<small> ============== 12小时前</small>
 </p>
