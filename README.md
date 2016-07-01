@@ -25,6 +25,12 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3992541952991800" target="freeweibo-mirror">遊行人士原定到中聯辦，現在改到下亞厘畢道，禮賓府正門方向。遊…</a>
+</h2>
+<p>遊行人士原定到中聯辦，現在改到下亞厘畢道，禮賓府正門方向。遊行人士與警方談判膠著，未知下步行動。----實習記者鄒嘉怡報導<br><img src="http://ww4.sinaimg.cn/large/006iV9dojw1f5eq73x4uxj31400qoguf.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3992537150477965" target="freeweibo-mirror">//@只配叫猪_: 年年有今朝。//@玛瑞恩://@黄河天下…</a>
 </h2>
 <p>//@只配叫猪_: 年年有今朝。//@玛瑞恩://@黄河天下天2: //@王林的微博客://@天津老魏038: 转发微博<br><br>RE: 由警隊開路<br><img src="http://ww2.sinaimg.cn/large/9f608f39jw1f5ejxmfu6aj20qo0zk4as.jpg"></p>
@@ -132,12 +138,6 @@
 <p>SPAM //@清华孙立平:就像打牌一样，别人能看你的牌，你不能看别人的牌，不是吃亏吗？ //@清华孙立平:回复@虎法:那敌人能看我们的信息，我们不能看敌人的信息，我们不是吃亏吗？[嘻嘻][嘻嘻]//@虎法:偷换概念，这次防的是外部信息，让外部信息难以入侵，明白了吗，教授<br><br>RE: 【中国的防火墙是不是弄反了？】出去拍照，爬过几次长城，发现一个规律：长城都是朝外即朝向敌人的那一面险峻，敌人爬上来不容易；而朝内即朝向自己的这一面都比较平缓，自己上去防御比较容易。而现在中国的防火墙呢？好像是专门和自己过不去，自己出去不容易，敌人轻易进来却不管。这是不是弄反了呢？<br><img src="http://ww1.sinaimg.cn/large/408bb143jw1f5en40kym3j21kw11ynj5.jpg"></p>
 <p>
 	<small> ============== 3小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3992522944868926" target="freeweibo-mirror">据说有十一万人</a>
-</h2>
-<p>据说有十一万人<br><img src="http://ww1.sinaimg.cn/large/006fezt8gw1f5eo14271cj31410qoake.jpg"></p>
-<p>
-	<small> ============== 4小时前</small>
 </p>
 <table>
     <tr>
