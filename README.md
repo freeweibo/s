@@ -47,7 +47,7 @@
 </h2>
 <p>鲁炜居然是中共中央宣传部副部长<br><img src="http://ww3.sinaimg.cn/large/cb787320jw1f5efwk6rdzj20j60bjgnq.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3992451029553613" target="freeweibo-mirror">言之有理。</a>
 </h2>
