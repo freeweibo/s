@@ -59,7 +59,7 @@
 </h2>
 <p>路见不平一声吼，该出手时就出手！[怒][话筒]//@夜客Yeke: //@袁小靓:拿枪斗不过拿笔杆的？//@老左识途:听说全国警察被“通知”要“讲政治顾大局”，禁止发表涉案言论。<br><br>RE: 【同情这支纪律部队，他们被禁言了，这特么叫什么公平正义？我替他们转！这是其中一位原话，我一字未改：】“感谢曾经被我抓捕过的强奸、杀人、抢劫、盗窃、猥亵等等的嫌疑人，特别感谢卖淫嫖娼的，感谢！若不是你们身体好，若不是你们配合抓捕，没有拼死反抗，也许今天我已经在蹲大牢。再一次感谢！”</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3992443617276508" target="freeweibo-mirror">习在讲话最后引用了毛主席当年的“进京赶考说”，表示“努力交出…</a>
 </h2>
@@ -95,13 +95,13 @@
 </h2>
 <p>SPAM 错一个字，罚款一万元，看他们还错不错！[挖鼻][囧]//@丽江洛洛:新华网，正常正常[哈哈] //@汶金让:[偷笑] //@方家评说:都是拼音输入法惹的祸！<br><br>RE: 新华网出大事了：这个编辑要倒霉！[吃惊]<br><img src="http://ww2.sinaimg.cn/large/6b2e7e57jw1f5ed87ytojj20hs0vladj.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3992430757680391" target="freeweibo-mirror">SPAM [偷笑] //@方家评说:都是拼音输入法惹的祸！</a>
 </h2>
 <p>SPAM [偷笑] //@方家评说:都是拼音输入法惹的祸！<br><br>RE: 新华网出大事了：这个编辑要倒霉！[吃惊]<br><img src="http://ww2.sinaimg.cn/large/6b2e7e57jw1f5ed87ytojj20hs0vladj.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3992429663310318" target="freeweibo-mirror">SPAM 犯大忌了！[囧] //@狮子王tj:小编太不负责任…</a>
 </h2>
