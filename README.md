@@ -107,13 +107,13 @@
 </h2>
 <p>SPAM 著名摄影师老孙，请勿妄议。//@笨笨an:墙内的才是敌人 //@月满西楼_2008：他们认为最大的威胁还是在内部。<br><br>RE: 【中国的防火墙是不是弄反了？】出去拍照，爬过几次长城，发现一个规律：长城都是朝外即朝向敌人的那一面险峻，敌人爬上来不容易；而朝内即朝向自己的这一面都比较平缓，自己上去防御比较容易。而现在中国的防火墙呢？好像是专门和自己过不去，自己出去不容易，敌人轻易进来却不管。这是不是弄反了呢？<br><img src="http://ww1.sinaimg.cn/large/408bb143jw1f5en40kym3j21kw11ynj5.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3992534084425762" target="freeweibo-mirror">SPAM </a>
 </h2>
 <p>SPAM </p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3992533887511534" target="freeweibo-mirror">[哈哈]//@中国道: //@博者文摘://@paixuej…</a>
 </h2>
