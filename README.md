@@ -19,6 +19,24 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3992431458636624" target="freeweibo-mirror">SPAM 错一个字，罚款一万元，看他们还错不错！[挖鼻][囧…</a>
+</h2>
+<p>SPAM 错一个字，罚款一万元，看他们还错不错！[挖鼻][囧]//@丽江洛洛:新华网，正常正常[哈哈] //@汶金让:[偷笑] //@方家评说:都是拼音输入法惹的祸！<br><br>RE: 新华网出大事了：这个编辑要倒霉！[吃惊]<br><img src="http://ww2.sinaimg.cn/large/6b2e7e57jw1f5ed87ytojj20hs0vladj.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3992430757680391" target="freeweibo-mirror">SPAM [偷笑] //@方家评说:都是拼音输入法惹的祸！</a>
+</h2>
+<p>SPAM [偷笑] //@方家评说:都是拼音输入法惹的祸！<br><br>RE: 新华网出大事了：这个编辑要倒霉！[吃惊]<br><img src="http://ww2.sinaimg.cn/large/6b2e7e57jw1f5ed87ytojj20hs0vladj.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3992429663310318" target="freeweibo-mirror">SPAM 犯大忌了！[囧] //@狮子王tj:小编太不负责任…</a>
+</h2>
+<p>SPAM 犯大忌了！[囧] //@狮子王tj:小编太不负责任了！<br><br>RE: 新华网出大事了：这个编辑要倒霉！[吃惊]<br><img src="http://ww2.sinaimg.cn/large/6b2e7e57jw1f5ed87ytojj20hs0vladj.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3992424470515032" target="freeweibo-mirror">SPAM 小企鹅跟某人有仇吗？</a>
 </h2>
 <p>SPAM 小企鹅跟某人有仇吗？<br><img src="http://ww1.sinaimg.cn/large/4dccf617jw1f5ecq6aby0j20jq1da10r.jpg"></p>
@@ -119,25 +137,7 @@
 </h2>
 <p>SPAM //@叶上初阳复活://@红彤彤德天://@独有英雄驱虎豹V://@繁华灬终落寞3: 中华人民不屈不饶的努力必将稳步达到自己的目的[白眼]//@方寸问道://@聿-日20: //@忻子菲://@楼兰断梦9: //@shbh132: //@夜雨巴山-: 港口已不远，自由的钟声我已听见。——惠特曼<br><br>RE: 没有单纯、善良和真实，就没有伟大！                                                                             -----托尔斯泰<br><img src="http://ww3.sinaimg.cn/large/006tH8bJjw1f5djp7zizgj30b408qdge.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3992326637958735" target="freeweibo-mirror">【我差一点成为雷洋——亲身经历：我遭受昌平东小口派出所非法审…</a>
-</h2>
-<p>【我差一点成为雷洋——亲身经历：我遭受昌平东小口派出所非法审讯】和雷洋一样，我与北京昌平东小口派出所也有过一段不愉快的经历。我比雷洋幸运，我没有死在东小口派出所。但生活在今天中国这样一个社会里，我们又都是不幸的。 http://t.cn/R5R5ekP</p>
-<p>
-	<small> ============== 8小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3992325116618688" target="freeweibo-mirror">记得雷洋突然死亡后，警方第一次通告就迫不及待抛出了“雷洋是心…</a>
-</h2>
-<p>记得雷洋突然死亡后，警方第一次通告就迫不及待抛出了“雷洋是心脏病突发猝死”的说辞。在雷洋家人提出疑义：雷洋本人没有心脏病史、也没有家族病史之后，警方还煞有介事地对公众进行过“科普”：心脏病可以在没有任何征兆的情况下猝发。如今回看真是呵呵。</p>
-<p>
 	<small> ============== 9小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3992270062166622" target="freeweibo-mirror">开始，一窝风说雷洋不会嫖娼，人大硕士，时间不够云云，言下之意…</a>
-</h2>
-<p>开始，一窝风说雷洋不会嫖娼，人大硕士，时间不够云云，言下之意警察故意杀人。 后来改口了，说"嫖娼就该死吗？"，尼玛！嘴脸换的比猴快！ 嫖娼当然不该死，属犯法，连犯罪都够不上，归治安管理处罚条例，而不是刑法。 但是，抗法的概念就不同了。 没抗，警察动武就是违法，抗了，警察理当强力制服，这...全文： http://m.weibo.cn/2335769290/3992270062166622</p>
-<p>
-	<small> ============== 1天前</small>
 </p>
 <table>
     <tr>
