@@ -19,6 +19,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3992510521367525" target="freeweibo-mirror">//@IB林立人: //@历史的尘埃39://@雷公旗: /…</a>
+</h2>
+<p>//@IB林立人: //@历史的尘埃39://@雷公旗: //@受伤园丁://@50年矛苔: //@珠海小魚女: [话筒]//@普通的坚持者: 好尴尬啊！//@小白兔379:同问！//@清风飘逸噻: 同问！ //@一毛障目://@陈光武律师://@西子丹67: 同问<br><br>RE: 【问】雷洋究竟有没有嫖娼？ 戴套打飞机是谁、如何炮制出来？ 为什么是雷洋，他是偶然的受害者，还是什么的阴谋? 内容物是哪里来，是谁塞进去，是什么? 谁导演了洗头女指证的闹剧? 央视为什么提前给予案子“定性”。其明目张胆的“造谣”如何处罚?～<br><img src="http://ww1.sinaimg.cn/large/b270f231gw1f5e4yay07pj20bf0bn3z3.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3992497304591066" target="freeweibo-mirror">单看照片，雷春风满面（每天见到的都是达官显贵），邢满脸沧桑（…</a>
 </h2>
 <p>单看照片，雷春风满面（每天见到的都是达官显贵），邢满脸沧桑（打交道的无非贩夫，走卒，地痞，流氓，刁民）！人大的精英们，哪里知道小警察的苦辣酸甜？！//@我本蕙质兰心: //@网忆天涯://@易天: 五千元工资撑起这些负担确实不易，抓嫖罚款也算创收～～可以说，这两个人都是制度的受害者！<br><br>RE: 雷洋从湖南灃县考入中国人大，刚有一个女儿。派出所副所长邢永瑞从甘肃贫困县以甘肃文科状元考入中国政法大学，父母及全村养羊卖羊供他上学，他每月5千工资既要供两个双胞胎女儿，又要供弟弟妹妹读大学。两个好学上进的平民子弟一次抓嫖命运彻底毁掉，希望籍此全民讨论以让中国司法环境前进一大步。 ...全文： http://m.weibo.cn/1254764477/3992352449704290<br><img src="http://ww2.sinaimg.cn/large/4aca2fbdjw1f5e4g7yzgnj20c309dwfe.jpg"></p>
@@ -31,11 +37,23 @@
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3992486856546483" target="freeweibo-mirror">//@干卫东律师: //@徐昕:邢所长受到极大的宽待，罪名极…</a>
+</h2>
+<p>//@干卫东律师: //@徐昕:邢所长受到极大的宽待，罪名极轻 //@愤愤围脖:早就辟谣了，不是状元<br><br>RE: 雷洋从湖南灃县考入中国人大，刚有一个女儿。派出所副所长邢永瑞从甘肃贫困县以甘肃文科状元考入中国政法大学，父母及全村养羊卖羊供他上学，他每月5千工资既要供两个双胞胎女儿，又要供弟弟妹妹读大学。两个好学上进的平民子弟一次抓嫖命运彻底毁掉，希望籍此全民讨论以让中国司法环境前进一大步。 ...全文： http://m.weibo.cn/1254764477/3992352449704290<br><img src="http://ww2.sinaimg.cn/large/4aca2fbdjw1f5e4g7yzgnj20c309dwfe.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3992483808142417" target="freeweibo-mirror">//@李开复:转发微博</a>
 </h2>
 <p>//@李开复:转发微博<br><br>RE: 据说以后App开机都是这样的……<br><img src="http://ww2.sinaimg.cn/large/4242e8adjw1f5e74o5svwj20dc0m8wes.jpg"></p>
 <p>
 	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3992478463296247" target="freeweibo-mirror">//@徐昕: 邢所长受到极大的宽待，罪名极轻 //@愤愤围脖…</a>
+</h2>
+<p>//@徐昕: 邢所长受到极大的宽待，罪名极轻 //@愤愤围脖:早就辟谣了，不是状元<br><br>RE: 雷洋从湖南灃县考入中国人大，刚有一个女儿。派出所副所长邢永瑞从甘肃贫困县以甘肃文科状元考入中国政法大学，父母及全村养羊卖羊供他上学，他每月5千工资既要供两个双胞胎女儿，又要供弟弟妹妹读大学。两个好学上进的平民子弟一次抓嫖命运彻底毁掉，希望籍此全民讨论以让中国司法环境前进一大步。 ...全文： http://m.weibo.cn/1254764477/3992352449704290<br><img src="http://ww2.sinaimg.cn/large/4aca2fbdjw1f5e4g7yzgnj20c309dwfe.jpg"></p>
+<p>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3992471035677993" target="freeweibo-mirror">SPAM 很好，这很广电总局！！话说这启动画面魔性太强，情不…</a>
 </h2>
@@ -118,24 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3992431458636624" target="freeweibo-mirror">SPAM 错一个字，罚款一万元，看他们还错不错！[挖鼻][囧…</a>
 </h2>
 <p>SPAM 错一个字，罚款一万元，看他们还错不错！[挖鼻][囧]//@丽江洛洛:新华网，正常正常[哈哈] //@汶金让:[偷笑] //@方家评说:都是拼音输入法惹的祸！<br><br>RE: 新华网出大事了：这个编辑要倒霉！[吃惊]<br><img src="http://ww2.sinaimg.cn/large/6b2e7e57jw1f5ed87ytojj20hs0vladj.jpg"></p>
-<p>
-	<small> ============== 7小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3992430757680391" target="freeweibo-mirror">SPAM [偷笑] //@方家评说:都是拼音输入法惹的祸！</a>
-</h2>
-<p>SPAM [偷笑] //@方家评说:都是拼音输入法惹的祸！<br><br>RE: 新华网出大事了：这个编辑要倒霉！[吃惊]<br><img src="http://ww2.sinaimg.cn/large/6b2e7e57jw1f5ed87ytojj20hs0vladj.jpg"></p>
-<p>
-	<small> ============== 7小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3992429663310318" target="freeweibo-mirror">SPAM 犯大忌了！[囧] //@狮子王tj:小编太不负责任…</a>
-</h2>
-<p>SPAM 犯大忌了！[囧] //@狮子王tj:小编太不负责任了！<br><br>RE: 新华网出大事了：这个编辑要倒霉！[吃惊]<br><img src="http://ww2.sinaimg.cn/large/6b2e7e57jw1f5ed87ytojj20hs0vladj.jpg"></p>
-<p>
-	<small> ============== 7小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3992429407477165" target="freeweibo-mirror">SPAM 穷山恶水出刁民//@透明蠢抱_心怀荣耀战无不胜:啧…</a>
-</h2>
-<p>SPAM 穷山恶水出刁民//@透明蠢抱_心怀荣耀战无不胜:啧//@雅子黛远:心疼白衣天使们啊 //@唐花榆钱:心疼医生 //@这位带盾的妹妹我曾经见过的:[拜拜][拜拜][拜拜] //@阿库_MiddleEarth://@七色的偽物人形:討厭 //@攸米Metal:人性本恶。<br><br>RE: 随便一转。<br><img src="http://ww3.sinaimg.cn/large/625e550djw1f5dmvfoevrj20xc18gaku.jpg"></p>
 <p>
 	<small> ============== 7小时前</small>
 </p>
