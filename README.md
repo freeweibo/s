@@ -43,6 +43,12 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3992451029553613" target="freeweibo-mirror">言之有理。</a>
+</h2>
+<p>言之有理。<br><br>RE: 我想，关心雷洋案件的网友，都急切等待着案件真相。此案，从嫖娼猝死，相关人员上电视，北京检方介入、尸检、立案、批捕，过程实在漫长。各方声音焦躁，真相若隐若现，更引起了网友追根问底的好奇心。刚才看到涉案警察邢某夫人一封致北京检察机关的公开信，其中提了很多问题。我觉得，在不影响案件继续...全文： http://m.weibo.cn/1585922627/3992215233898266<br><img src="http://ww2.sinaimg.cn/large/5e874243gw1f5dooedfn6j20j63xhtor.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3992446499384043" target="freeweibo-mirror">路见不平一声吼，该出手时就出手！[怒][话筒]//@夜客Ye…</a>
 </h2>
 <p>路见不平一声吼，该出手时就出手！[怒][话筒]//@夜客Yeke: //@袁小靓:拿枪斗不过拿笔杆的？//@老左识途:听说全国警察被“通知”要“讲政治顾大局”，禁止发表涉案言论。<br><br>RE: 【同情这支纪律部队，他们被禁言了，这特么叫什么公平正义？我替他们转！这是其中一位原话，我一字未改：】“感谢曾经被我抓捕过的强奸、杀人、抢劫、盗窃、猥亵等等的嫌疑人，特别感谢卖淫嫖娼的，感谢！若不是你们身体好，若不是你们配合抓捕，没有拼死反抗，也许今天我已经在蹲大牢。再一次感谢！”</p>
@@ -58,6 +64,18 @@
 	<a href="https://freeweibo.com/weibo/3992438865265937" target="freeweibo-mirror">SPAM //@叶上初阳复活: //@佛道合一://@-雪冰…</a>
 </h2>
 <p>SPAM //@叶上初阳复活: //@佛道合一://@-雪冰寒风-zallii://@许四麻子: //@回望沂蒙山://@东风来雨: //@楼兰断梦9: [心][心][心]</p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3992435413780829" target="freeweibo-mirror">京视更高级人民法院，央视更最高人民法院，去哪里告？！</a>
+</h2>
+<p>京视更高级人民法院，央视更最高人民法院，去哪里告？！<br><br>RE: 【建议雷洋家属起诉京视央视】法律面前人人平等，任何人和任何单位都不例外！雷洋案一经曝光就引发自媒体的各种质疑，紧接着就是删帖封号。不日，包括京视央视在内的各路媒体开始抢占了舆论制高点，各种一边倒的报道把公众搞得雨里雾里。普通民众不经意的传谣就要遭来牢狱之灾，京视央视公然编谣传谣又...全文： http://m.weibo.cn/3675736060/3992425674718630...全文： http://m.weibo.cn/3675736060/3992425674718630<br><img src="http://ww4.sinaimg.cn/large/db1747fcgw1f5ectd79tmj20p00dwq4g.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3992434625617623" target="freeweibo-mirror">法治的洪流要人命、要人房、要人田，雷洋不是第一个，也不会是最…</a>
+</h2>
+<p>法治的洪流要人命、要人房、要人田，雷洋不是第一个，也不会是最后一个！</p>
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
@@ -79,6 +97,12 @@
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3992429407477165" target="freeweibo-mirror">SPAM 穷山恶水出刁民//@透明蠢抱_心怀荣耀战无不胜:啧…</a>
+</h2>
+<p>SPAM 穷山恶水出刁民//@透明蠢抱_心怀荣耀战无不胜:啧//@雅子黛远:心疼白衣天使们啊 //@唐花榆钱:心疼医生 //@这位带盾的妹妹我曾经见过的:[拜拜][拜拜][拜拜] //@阿库_MiddleEarth://@七色的偽物人形:討厭 //@攸米Metal:人性本恶。<br><br>RE: 随便一转。<br><img src="http://ww3.sinaimg.cn/large/625e550djw1f5dmvfoevrj20xc18gaku.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3992429114202752" target="freeweibo-mirror">SPAM 应该不是故意的吧？！[汗][囧][话筒]</a>
 </h2>
 <p>SPAM 应该不是故意的吧？！[汗][囧][话筒]<br><br>RE: 新华网出大事了：这个编辑要倒霉！[吃惊]<br><img src="http://ww2.sinaimg.cn/large/6b2e7e57jw1f5ed87ytojj20hs0vladj.jpg"></p>
@@ -97,47 +121,23 @@
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
-	<a href="https://freeweibo.com/weibo/3992425539725308" target="freeweibo-mirror">SPAM 嚓，我刚要来判断呢？禁评了[哈哈][哈哈][哈哈]</a>
+	<a href="https://freeweibo.com/weibo/3992427382124596" target="freeweibo-mirror">回复@狐狸先生来自东海:不干，滚远点！有志青年有的是。//@…</a>
 </h2>
-<p>SPAM 嚓，我刚要来判断呢？禁评了[哈哈][哈哈][哈哈]<br><img src="http://ww1.sinaimg.cn/large/005Idu42jw1f5ectw5gr4j30gl0ecwhk.jpg"></p>
+<p>回复@狐狸先生来自东海:不干，滚远点！有志青年有的是。//@狐狸先生来自东海:没事，以后人们遇到事自己解决吧，反正我要是警察我才不管，大不了辞职，那么拼命干嘛，最后没有好处不说还被人骂，还被抓，警察们你们不是奴隶！<br><br>RE: 【同情这支纪律部队，他们被禁言了，这特么叫什么公平正义？我替他们转！这是其中一位原话，我一字未改：】“感谢曾经被我抓捕过的强奸、杀人、抢劫、盗窃、猥亵等等的嫌疑人，特别感谢卖淫嫖娼的，感谢！若不是你们身体好，若不是你们配合抓捕，没有拼死反抗，也许今天我已经在蹲大牢。再一次感谢！”</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
-	<a href="https://freeweibo.com/weibo/3992424470515032" target="freeweibo-mirror">SPAM 小企鹅跟某人有仇吗？</a>
+	<a href="https://freeweibo.com/weibo/3992427318868390" target="freeweibo-mirror">美吗？啥都不美！离下台最近！</a>
 </h2>
-<p>SPAM 小企鹅跟某人有仇吗？<br><img src="http://ww1.sinaimg.cn/large/4dccf617jw1f5ecq6aby0j20jq1da10r.jpg"></p>
+<p>美吗？啥都不美！离下台最近！<br><br>RE: 【美女市长岂可如此简单粗暴】两年前，湖北仙桃市在一片反建声中强行开工建设垃圾焚烧发电厂；两年后的6月26日，在周遭百姓大规模的抗议示威活动中叫停了该项目。微评：市长周文霞简单粗暴的喊话，不仅遭来“下台”的回应，“火箭升迁”的简历也于昨日被网曝。http://t.cn/R5YmUw0身为一市之长，不顾民...全文： http://m.weibo.cn/3675736060/3991986484971237<br><img src="http://ww3.sinaimg.cn/large/db1747fcgw1f5cyce9jrej20j60y3grb.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
-	<a href="https://freeweibo.com/weibo/3992421983655319" target="freeweibo-mirror">SPAM http://t.cn/R5R0iYS</a>
+	<a href="https://freeweibo.com/weibo/3992427062219180" target="freeweibo-mirror">回复@安家垴拐枣:那个副所长就是一畜生，等着判大刑吧，谁也就…</a>
 </h2>
-<p>SPAM http://t.cn/R5R0iYS</p>
+<p>回复@安家垴拐枣:那个副所长就是一畜生，等着判大刑吧，谁也就不了牠！//@安家垴拐枣:副所长都被抓了。没有局长带队，绝不出警。没有检察院提前介入，绝不抓人。[笑cry]@公安部打四黑除四害 @平安北京<br><br>RE: 【同情这支纪律部队，他们被禁言了，这特么叫什么公平正义？我替他们转！这是其中一位原话，我一字未改：】“感谢曾经被我抓捕过的强奸、杀人、抢劫、盗窃、猥亵等等的嫌疑人，特别感谢卖淫嫖娼的，感谢！若不是你们身体好，若不是你们配合抓捕，没有拼死反抗，也许今天我已经在蹲大牢。再一次感谢！”</p>
 <p>
-	<small> ============== 4小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3992414869696163" target="freeweibo-mirror">都发飙了 //@冠宸:腾讯变成痛讯//@北方猎手:完蛋了，这…</a>
-</h2>
-<p>都发飙了 //@冠宸:腾讯变成痛讯//@北方猎手:完蛋了，这是严重的政治问题，主编这个位置是保不住了[哈哈]</p>
-<p>
-	<small> ============== 4小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3992412328198602" target="freeweibo-mirror">SPAM //@东林居士2011: //@西子丹67:@李庄…</a>
-</h2>
-<p>SPAM //@东林居士2011: //@西子丹67:@李庄 @王福重 @谢文  @章诒和 @清华孙立平 @徐昕   @周泽律师 @律师文摘 @律师王学明 @老徐时评 @鄢烈山 @作家刘小海 @张智勇律师 @记者钱莽墩<br><br>RE: 【雷洋案到底还有多少秘密】雷洋在天堂盼了近两月，盼来了一个尚不知原因的被“梗死”的结果；被打的“飞机”早已成了太空“碎片”，但打碎飞机的“名妓”好似在人间被蒸发了；BTV和CCTV慌剧播出这么久了，但幕后“导演”至今还逍遥于云端，一边嬉逗雷洋，一边遥控执导续集......苍天啊，能否借助您的...全文： http://m.weibo.cn/3675736060/3992389825855111<br><img src="http://ww1.sinaimg.cn/large/db1747fcgw1f5e8o5qvkvj20m90ciaao.jpg"></p>
-<p>
-	<small> ============== 4小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3992408469414748" target="freeweibo-mirror">SPAM 前方高能预警，粉丝务必入坑→音悦台史上首次最大规模…</a>
-</h2>
-<p>SPAM 前方高能预警，粉丝务必入坑→音悦台史上首次最大规模粉丝应援活动#728粉丝节# 壕举承包下北上广三大城市，145个地铁站，300个地铁广告牌，帮你的偶像做应援！广告位置由你选，宣传文案由你定，你安利偶像我花钱助攻，全世界的粉丝，请吃下这口安利！http://t.cn/R5WKVKY<br><img src="http://ww2.sinaimg.cn/large/6f59401ajw1f5eah6j2erj20ht0vlgpb.jpg"></p>
-<p>
-	<small> ============== 5小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3992389825855111" target="freeweibo-mirror">【雷洋案到底还有多少秘密】雷洋在天堂盼了近两月，盼来了一个尚…</a>
-</h2>
-<p>【雷洋案到底还有多少秘密】雷洋在天堂盼了近两月，盼来了一个尚不知原因的被“梗死”的结果；被打的“飞机”早已成了太空“碎片”，但打碎飞机的“名妓”好似在人间被蒸发了；BTV和CCTV慌剧播出这么久了，但幕后“导演”至今还逍遥于云端，一边嬉逗雷洋，一边遥控执导续集......苍天啊，能否借助您的...全文： http://m.weibo.cn/3675736060/3992389825855111<br><img src="http://ww1.sinaimg.cn/large/db1747fcgw1f5e8o5qvkvj20m90ciaao.jpg"></p>
-<p>
-	<small> ============== 6小时前</small>
+	<small> ============== 3小时前</small>
 </p>
 <table>
     <tr>
