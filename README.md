@@ -77,7 +77,7 @@
 </h2>
 <p>//@花石頭e:转发微博<br><br>RE: 分享图片<br><img src="http://ww4.sinaimg.cn/large/7128643bjw1f5ddjrxu6ej20c40gxdj7.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3992348238556341" target="freeweibo-mirror">当然了，领导也分大小……//@半生半悟:这个国家的法制是这样…</a>
 </h2>
