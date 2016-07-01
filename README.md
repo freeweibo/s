@@ -41,7 +41,7 @@
 </h2>
 <p>SPAM 很好，这很广电总局！！话说这启动画面魔性太强，情不自禁地自动脑补 BGM 了…… http://t.cn/R5H2g0P<br><br>RE: 据说以后App开机都是这样的……<br><img src="http://ww2.sinaimg.cn/large/4242e8adjw1f5e74o5svwj20dc0m8wes.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3992458562595199" target="freeweibo-mirror">SPAM //@金好多金://@天明再会F:[推荐][微风]…</a>
 </h2>
