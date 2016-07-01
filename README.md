@@ -91,6 +91,12 @@
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3992516229025412" target="freeweibo-mirror">【中国的防火墙是不是弄反了？】出去拍照，爬过几次长城，发现一…</a>
+</h2>
+<p>【中国的防火墙是不是弄反了？】出去拍照，爬过几次长城，发现一个规律：长城都是朝外即朝向敌人的那一面险峻，敌人爬上来不容易；而朝内即朝向自己的这一面都比较平缓，自己上去防御比较容易。而现在中国的防火墙呢？好像是专门和自己过不去，自己出去不容易，敌人轻易进来却不管。这是不是弄反了呢？<br><img src="http://ww1.sinaimg.cn/large/408bb143jw1f5en40kym3j21kw11ynj5.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3992510521367525" target="freeweibo-mirror">//@IB林立人: //@历史的尘埃39://@雷公旗: /…</a>
 </h2>
 <p>//@IB林立人: //@历史的尘埃39://@雷公旗: //@受伤园丁://@50年矛苔: //@珠海小魚女: [话筒]//@普通的坚持者: 好尴尬啊！//@小白兔379:同问！//@清风飘逸噻: 同问！ //@一毛障目://@陈光武律师://@西子丹67: 同问<br><br>RE: 【问】雷洋究竟有没有嫖娼？ 戴套打飞机是谁、如何炮制出来？ 为什么是雷洋，他是偶然的受害者，还是什么的阴谋? 内容物是哪里来，是谁塞进去，是什么? 谁导演了洗头女指证的闹剧? 央视为什么提前给予案子“定性”。其明目张胆的“造谣”如何处罚?～<br><img src="http://ww1.sinaimg.cn/large/b270f231gw1f5e4yay07pj20bf0bn3z3.jpg"></p>
@@ -119,7 +125,7 @@
 </h2>
 <p>[笑cry][笑cry] //@覃里雯:[笑cry][笑cry] //@王冉:[哈哈][哈哈]//@李开复: 转发微博<br><br>RE: 据说以后App开机都是这样的……<br><img src="http://ww2.sinaimg.cn/large/4242e8adjw1f5e74o5svwj20dc0m8wes.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3992486856546483" target="freeweibo-mirror">//@干卫东律师: //@徐昕:邢所长受到极大的宽待，罪名极…</a>
 </h2>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3992483808142417" target="freeweibo-mirror">//@李开复:转发微博</a>
 </h2>
 <p>//@李开复:转发微博<br><br>RE: 据说以后App开机都是这样的……<br><img src="http://ww2.sinaimg.cn/large/4242e8adjw1f5e74o5svwj20dc0m8wes.jpg"></p>
-<p>
-	<small> ============== 5小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3992478463296247" target="freeweibo-mirror">//@徐昕: 邢所长受到极大的宽待，罪名极轻 //@愤愤围脖…</a>
-</h2>
-<p>//@徐昕: 邢所长受到极大的宽待，罪名极轻 //@愤愤围脖:早就辟谣了，不是状元<br><br>RE: 雷洋从湖南灃县考入中国人大，刚有一个女儿。派出所副所长邢永瑞从甘肃贫困县以甘肃文科状元考入中国政法大学，父母及全村养羊卖羊供他上学，他每月5千工资既要供两个双胞胎女儿，又要供弟弟妹妹读大学。两个好学上进的平民子弟一次抓嫖命运彻底毁掉，希望籍此全民讨论以让中国司法环境前进一大步。 ...全文： http://m.weibo.cn/1254764477/3992352449704290<br><img src="http://ww2.sinaimg.cn/large/4aca2fbdjw1f5e4g7yzgnj20c309dwfe.jpg"></p>
 <p>
 	<small> ============== 5小时前</small>
 </p>
