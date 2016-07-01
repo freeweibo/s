@@ -19,6 +19,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3992483808142417" target="freeweibo-mirror">//@李开复:转发微博</a>
+</h2>
+<p>//@李开复:转发微博<br><br>RE: 据说以后App开机都是这样的……<br><img src="http://ww2.sinaimg.cn/large/4242e8adjw1f5e74o5svwj20dc0m8wes.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3992458562595199" target="freeweibo-mirror">SPAM //@金好多金://@天明再会F:[推荐][微风]…</a>
 </h2>
 <p>SPAM //@金好多金://@天明再会F:[推荐][微风][微风]//@易名滥觞:[推荐][推荐]<br><br>RE: H/k狂欢节，星辰凑热闹归来寻友[笑哈哈][笑哈哈][作揖][握手][微风][微风][爱你]<br><img src="http://ww1.sinaimg.cn/large/006g53r9gw1f5eg8tyj91j30ig0igjs5.jpg"></p>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3992428052575706" target="freeweibo-mirror">这是今天香港大学学生会发给每个同学的邮件。引用知乎上刚才看到…</a>
 </h2>
 <p>这是今天香港大学学生会发给每个同学的邮件。引用知乎上刚才看到的一句：真正的“被洗脑”，是在逃离了一种语言霸权之后，毫不思索地投入到另一种语言霸权里。<br><img src="http://ww3.sinaimg.cn/large/8f1bd71bgw1f5ed3hl6s2j20zk0zkdri.jpg"></p>
-<p>
-	<small> ============== 5小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3992427382124596" target="freeweibo-mirror">回复@狐狸先生来自东海:不干，滚远点！有志青年有的是。//@…</a>
-</h2>
-<p>回复@狐狸先生来自东海:不干，滚远点！有志青年有的是。//@狐狸先生来自东海:没事，以后人们遇到事自己解决吧，反正我要是警察我才不管，大不了辞职，那么拼命干嘛，最后没有好处不说还被人骂，还被抓，警察们你们不是奴隶！<br><br>RE: 【同情这支纪律部队，他们被禁言了，这特么叫什么公平正义？我替他们转！这是其中一位原话，我一字未改：】“感谢曾经被我抓捕过的强奸、杀人、抢劫、盗窃、猥亵等等的嫌疑人，特别感谢卖淫嫖娼的，感谢！若不是你们身体好，若不是你们配合抓捕，没有拼死反抗，也许今天我已经在蹲大牢。再一次感谢！”</p>
 <p>
 	<small> ============== 5小时前</small>
 </p>
