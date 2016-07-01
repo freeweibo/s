@@ -67,6 +67,12 @@
 <p>
 	<small> ============== 5小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3992325116618688" target="freeweibo-mirror">记得雷洋突然死亡后，警方第一次通告就迫不及待抛出了“雷洋是心…</a>
+</h2>
+<p>记得雷洋突然死亡后，警方第一次通告就迫不及待抛出了“雷洋是心脏病突发猝死”的说辞。在雷洋家人提出疑义：雷洋本人没有心脏病史、也没有家族病史之后，警方还煞有介事地对公众进行过“科普”：心脏病可以在没有任何征兆的情况下猝发。如今回看真是呵呵。</p>
+<p>
+	<small> ============== 5小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3992269335856488" target="freeweibo-mirror">SPAM :重返17岁，颜值逆天了！</a>
 </h2>
 <p>SPAM :重返17岁，颜值逆天了！</p>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3992194735750650" target="freeweibo-mirror">//@装B大帅:活了几十年没有误吸而死，碰警察就误吸死了。还…</a>
 </h2>
 <p>//@装B大帅:活了几十年没有误吸而死，碰警察就误吸死了。还有那几个足浴房的人呢，明摆做假证，还有央视自己拉的便便，还不出来吃了？</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3992193696267353" target="freeweibo-mirror">//@野靖环1998://@好多伍喵喲:香港人「不忘黨的恩情…</a>
-</h2>
-<p>//@野靖环1998://@好多伍喵喲:香港人「不忘黨的恩情」吶！[笑cry]//@星雨辰辉://@加m菲炮1314Cat://@瞰望-:转发微博<br><br>RE: 香港同胞太热情了，贵党明天才生日。你们今天就开始庆祝了。真的正能量。<br><img src="http://ww1.sinaimg.cn/large/006nuyy2gw1f5dbk5bnloj30kk0bjtbi.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
