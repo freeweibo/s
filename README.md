@@ -43,6 +43,12 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3992428854135677" target="freeweibo-mirror">新华网出大事了：这个编辑要倒霉！[吃惊]</a>
+</h2>
+<p>新华网出大事了：这个编辑要倒霉！[吃惊]<br><img src="http://ww2.sinaimg.cn/large/6b2e7e57jw1f5ed87ytojj20hs0vladj.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3992424470515032" target="freeweibo-mirror">SPAM 小企鹅跟某人有仇吗？</a>
 </h2>
 <p>SPAM 小企鹅跟某人有仇吗？<br><img src="http://ww1.sinaimg.cn/large/4dccf617jw1f5ecq6aby0j20jq1da10r.jpg"></p>
@@ -132,12 +138,6 @@
 <p>//@llovehope: 我也是雷洋之一！被工作地方派出所以检查暂住证为名！抓进派出所！用尽各种虐待的手段折磨我！恐吓家人会送进拘留所！没有任何犯罪嫌疑！被没有任何手续！就关押我二十四小时！恐吓甚至折磨！没有诈出莫须有罪名后！就让交罚款！交六百块我幸运的出来了2002年始认识到警察真的不都是好人<br><br>RE: 【我差一点成为雷洋——亲身经历：我遭受昌平东小口派出所非法审讯】和雷洋一样，我与北京昌平东小口派出所也有过一段不愉快的经历。我比雷洋幸运，我没有死在东小口派出所。但生活在今天中国这样一个社会里，我们又都是不幸的。 http://t.cn/R5R5ekP</p>
 <p>
 	<small> ============== 8小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3992329041677925" target="freeweibo-mirror">如果李源潮真的被拿下，就说明大的博弈已经分出高低了。二哥毕竟…</a>
-</h2>
-<p>如果李源潮真的被拿下，就说明大的博弈已经分出高低了。二哥毕竟还是二哥，与大哥相比还是力不从心啊！</p>
-<p>
-	<small> ============== 9小时前</small>
 </p>
 <table>
     <tr>
