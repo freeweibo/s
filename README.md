@@ -53,7 +53,7 @@
 </h2>
 <p>看投票结果<br><img src="http://ww4.sinaimg.cn/large/006uTIPjjw1f5ern9fj8kj30hs0m840h.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3992543085581194" target="freeweibo-mirror">//@且伴-紫荆: 最新消息！[话筒][话筒][围观][围观…</a>
 </h2>
