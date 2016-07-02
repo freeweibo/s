@@ -23,11 +23,29 @@
 </h2>
 <p>//@剑哥传奇://@小道信息: //@刘子粱: //@活捉死老鼠: //@赣B_自油博报: 附议!<br><br>RE: 警察的工资是公务员里最高的，仅次于军人，平时还要到洗头房足疗店去打牙祭罚嫖娼，去强拆的现场捞外快！这么好的差事还拿捏着哭诉，这不是矫情嘛！你不干，就悄悄脱下警服，到工地去搬砖，到工厂去做工，到街上去摆摊，要么就到互联网去创业，总之社会上有的是让你施展才华的天地，你抹滴神马眼泪，辞...全文： http://m.weibo.cn/3742897543/3992772836339061<br><img src="http://ww1.sinaimg.cn/large/df181587jw1f5fgq20zn8j20h50jr7ci.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3992918408144679" target="freeweibo-mirror">SPAM 和苍蝇比也算清官了。//@醉眠柳岸: 整个庭审过程…</a>
+</h2>
+<p>SPAM 和苍蝇比也算清官了。//@醉眠柳岸: 整个庭审过程仔细看了，真正说不清楚的钱才十数万。把政治，阴谋，犯罪加私生活私德放一边，相对来说薄是现在少有的清官。<br><br>RE: 昨天下午，王铮老师一行六人，前往秦城监狱为薄公送去生日鲜花和贺卡，并成功将礼物交由武警收转。[围观][good][心][鲜花][给力][赞][威武][爱你][话筒][话筒][话筒]@周瑾1963<br><img src="http://ww4.sinaimg.cn/large/006tcUeBgw1f5ftnmzsojj30k00ht0vf.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3992915535420503" target="freeweibo-mirror">那个时候不会从小学到大学都洗脑！教育政治化是教育的退化。//…</a>
 </h2>
 <p>那个时候不会从小学到大学都洗脑！教育政治化是教育的退化。//@记者-薛洪涛:转发微博<br><br>RE: 楼下大爷说：秦皇汉武独裁时代，一句话说不好就会掉脑袋，但历史上许多言官诤吏很多，如今新民主社会主义时期，讲真话的官吏如凤毛麟角般珍稀了！</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3992915489217222" target="freeweibo-mirror">还有顾秀林。可称当代中华三女杰！//@骨德柏:我知道有两个“…</a>
+</h2>
+<p>还有顾秀林。可称当代中华三女杰！//@骨德柏:我知道有两个“女汉子”，一个是最高检的“王雪梅”，一个就是北京某学院的“王铮”。<br><br>RE: 昨天下午，王铮老师一行六人，前往秦城监狱为薄公送去生日鲜花和贺卡，并成功将礼物交由武警收转。[围观][good][心][鲜花][给力][赞][威武][爱你][话筒][话筒][话筒]@周瑾1963<br><img src="http://ww4.sinaimg.cn/large/006tcUeBgw1f5ftnmzsojj30k00ht0vf.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3992915342471269" target="freeweibo-mirror">//@龟仙的二大爷: //@李不白的店://@大藏布: 转发…</a>
+</h2>
+<p>//@龟仙的二大爷: //@李不白的店://@大藏布: 转发微博<br><br>RE: 【从穹顶之下到牢狱之中？】连柴静都要被喝茶，这个社会定没救了。<br><img src="http://ww3.sinaimg.cn/large/93acee78gw1f5fuomtj34j20ci0k4dgw.jpg"></p>
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
@@ -36,6 +54,12 @@
 <p>楼下大爷说：秦皇汉武独裁时代，一句话说不好就会掉脑袋，但历史上许多言官诤吏很多，如今新民主社会主义时期，讲真话的官吏如凤毛麟角般珍稀了！</p>
 <p>
 	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3992879674031054" target="freeweibo-mirror">//@三耳牛: 从雷死的那一刻起，警方就开始疯狂造假造势撒谎…</a>
+</h2>
+<p>//@三耳牛: 从雷死的那一刻起，警方就开始疯狂造假造势撒谎，可恶至极！//@司马3忌:在雷洋案的整个过程中，昌平警方的说辞粗劣不堪，还能动用CCTV、人日等国家级媒体背书，也算是肆无忌惮了//@三耳牛: 转出来，邢所长说谎那是板上钉钉的，为什么说谎？检察院说有妨碍侦查。为脱责掩真相，必然要说谎。</p>
+<p>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3992868588830755" target="freeweibo-mirror">SPAM 毫不同情，很难相信是第一次做这种事。每种行业必须有…</a>
 </h2>
@@ -112,30 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3992763429312694" target="freeweibo-mirror">//@TANG_56246:洗脑、愚民教育，催残花朵、误人子…</a>
 </h2>
 <p>//@TANG_56246:洗脑、愚民教育，催残花朵、误人子弟<br><br>RE: 浙江一幼儿园小“党课”：全班孩子喊“怕死就别当共产党员”<br><img src="http://ww2.sinaimg.cn/large/656952ecjw1f5ewfh3ud8j20u01hc1kx.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3992750309355853" target="freeweibo-mirror">http://t.cn/R5EOHKu //@樊建川:腰不疼…</a>
-</h2>
-<p>http://t.cn/R5EOHKu //@樊建川:腰不疼。 //@郭晏平:老石自从离开体制后，看事情愈发清晰了</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3992749734768371" target="freeweibo-mirror">SPAM 微博禁止了两维码//@宇宙无敌臭西瓜: 发黄图不如…</a>
-</h2>
-<p>SPAM 微博禁止了两维码//@宇宙无敌臭西瓜: 发黄图不如发个二维码//@科罗廖夫: 在威信的宫众号上，订阅一下就能看到 //@浇花的胖狐狸:文章在哪里？没看见啊？ //@科罗廖夫:今天的新文章，→_→ 【台军雄风导弹大摆乌龙：为何三倍音速的航母毁灭者竟沦为渔船杀手】 ，亲，你订阅了吗？</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3992742188576023" target="freeweibo-mirror">SPAM 在问，把你抓起来，整疯</a>
-</h2>
-<p>SPAM 在问，把你抓起来，整疯<br><br>RE: 在雷洋案中，央视和北京电视台扮演了啥角色？要不要负点啥责任？<br><img src="http://ww1.sinaimg.cn/large/7cc9aaf1gw1f5eqfkmfa7j20j60bkmyf.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3992737964974661" target="freeweibo-mirror">没雨后台，怎敢如此猖狂？//@雨农谈股: 醒来！[泪]</a>
-</h2>
-<p>没雨后台，怎敢如此猖狂？//@雨农谈股: 醒来！[泪]</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
