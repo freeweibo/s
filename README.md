@@ -23,7 +23,7 @@
 </h2>
 <p>SPAM 毫不同情，很难相信是第一次做这种事。每种行业必须有起码的底线。//@伟荣V实说:自作孽不可活！<br><br>RE: 恶警的老婆在哭，我很开心<br><img src="http://ww3.sinaimg.cn/large/006wfsDQjw1f5etr9j8yvj30j63xh4d1.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3992858232747014" target="freeweibo-mirror">反动分子[弱]//@公民王海滨://@风雨中燕子归: 转发微…</a>
 </h2>
@@ -59,7 +59,7 @@
 </h2>
 <p>杭州民众抵制垃圾焚烧发电厂，与警察发生冲突，近40人受伤。对此，网民@老辣陈香 质问：警察为何不开枪？此言一出，舆论哗然，有人说，煽动警察对手无寸铁的民众开枪，居心叵测，唯恐天下不乱。这个极端分子叫陈玮麟，台州市委宣传部副调研员，网络中心主任，负责网上舆论引导工作。挂！<br><img src="http://ww4.sinaimg.cn/large/006eK794gw1f5fj07t0vmj30bi08jwez.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3992791279856905" target="freeweibo-mirror">要求公布现场视频？怎么能提这种过分要求呢？万一视频被境外势力…</a>
 </h2>
@@ -95,7 +95,7 @@
 </h2>
 <p>//@TANG_56246:洗脑、愚民教育，催残花朵、误人子弟<br><br>RE: 浙江一幼儿园小“党课”：全班孩子喊“怕死就别当共产党员”<br><img src="http://ww2.sinaimg.cn/large/656952ecjw1f5ewfh3ud8j20u01hc1kx.jpg"></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3992750309355853" target="freeweibo-mirror">http://t.cn/R5EOHKu //@樊建川:腰不疼…</a>
 </h2>
