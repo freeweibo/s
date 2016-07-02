@@ -65,7 +65,7 @@
 </h2>
 <p>要求公布现场视频？怎么能提这种过分要求呢？万一视频被境外势力利用呢？ http://t.cn/R5ECyhd</p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3992787446200065" target="freeweibo-mirror">SPAM //@李北方2:好像是孔夫子说的：老而不死是为贼。…</a>
 </h2>
@@ -119,7 +119,7 @@
 </h2>
 <p>没雨后台，怎敢如此猖狂？//@雨农谈股: 醒来！[泪]</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3992720672775272" target="freeweibo-mirror">小费另算。。忽悠！</a>
 </h2>
