@@ -29,7 +29,7 @@
 </h2>
 <p>SPAM //@李北方2:好像是孔夫子说的：老而不死是为贼。真是至理名言。<br><br>RE: 好像是罗素说的：年轻时不相信共产主义是没有良心；到年老时还相信共产主义是没有头脑。真是至理名言。</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3992786216859524" target="freeweibo-mirror">SPAM #比打死雷洋更可怕的# ……  打死雷洋，全国人民…</a>
 </h2>
@@ -71,7 +71,7 @@
 </h2>
 <p>SPAM 在问，把你抓起来，整疯<br><br>RE: 在雷洋案中，央视和北京电视台扮演了啥角色？要不要负点啥责任？<br><img src="http://ww1.sinaimg.cn/large/7cc9aaf1gw1f5eqfkmfa7j20j60bkmyf.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3992737964974661" target="freeweibo-mirror">没雨后台，怎敢如此猖狂？//@雨农谈股: 醒来！[泪]</a>
 </h2>
