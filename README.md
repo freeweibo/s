@@ -23,7 +23,7 @@
 </h2>
 <p>SPAM 回复@查理不是怪蜀黍:倒贴差不多。//@查理不是怪蜀黍:收了也不错呀，多个收税源耶//@庄志明律师:俺不要这个累赘。</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3992697032977881" target="freeweibo-mirror">SPAM 俺不要这个累赘。</a>
 </h2>
