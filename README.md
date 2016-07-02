@@ -65,7 +65,7 @@
 </h2>
 <p>要求公布现场视频？怎么能提这种过分要求呢？万一视频被境外势力利用呢？ http://t.cn/R5ECyhd</p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3992787446200065" target="freeweibo-mirror">SPAM //@李北方2:好像是孔夫子说的：老而不死是为贼。…</a>
 </h2>
