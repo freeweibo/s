@@ -43,6 +43,12 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3992763429312694" target="freeweibo-mirror">//@TANG_56246:洗脑、愚民教育，催残花朵、误人子…</a>
+</h2>
+<p>//@TANG_56246:洗脑、愚民教育，催残花朵、误人子弟<br><br>RE: 浙江一幼儿园小“党课”：全班孩子喊“怕死就别当共产党员”<br><img src="http://ww2.sinaimg.cn/large/656952ecjw1f5ewfh3ud8j20u01hc1kx.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3992750309355853" target="freeweibo-mirror">http://t.cn/R5EOHKu //@樊建川:腰不疼…</a>
 </h2>
 <p>http://t.cn/R5EOHKu //@樊建川:腰不疼。 //@郭晏平:老石自从离开体制后，看事情愈发清晰了</p>
@@ -125,17 +131,11 @@
 </h2>
 <p>//@邱旭瑜律师: 向来如比！//@吉祥-幸运://@捣陶:某些媒体的无耻程度，已经超出了我们的想象。</p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3992697032977881" target="freeweibo-mirror">SPAM 俺不要这个累赘。</a>
 </h2>
 <p>SPAM 俺不要这个累赘。</p>
-<p>
-	<small> ============== 8小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3992695099445033" target="freeweibo-mirror">SPAM 三忠于，四无限。已经铭刻在脑海里，溶化在血液中，这…</a>
-</h2>
-<p>SPAM 三忠于，四无限。已经铭刻在脑海里，溶化在血液中，这辈子至死也改不了。俺也一样，三十一年党龄。</p>
 <p>
 	<small> ============== 8小时前</small>
 </p>
