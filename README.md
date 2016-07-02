@@ -89,7 +89,7 @@
 </h2>
 <p>遊行人士原定到中聯辦，現在改到下亞厘畢道，禮賓府正門方向。遊行人士與警方談判膠著，未知下步行動。----實習記者鄒嘉怡報導<br><img src="http://ww4.sinaimg.cn/large/006iV9dojw1f5eq73x4uxj31400qoguf.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3992537150477965" target="freeweibo-mirror">//@只配叫猪_: 年年有今朝。//@玛瑞恩://@黄河天下…</a>
 </h2>
@@ -131,13 +131,13 @@
 </h2>
 <p>SPAM 著名摄影师老孙，请勿妄议。//@笨笨an:墙内的才是敌人 //@月满西楼_2008：他们认为最大的威胁还是在内部。<br><br>RE: 【中国的防火墙是不是弄反了？】出去拍照，爬过几次长城，发现一个规律：长城都是朝外即朝向敌人的那一面险峻，敌人爬上来不容易；而朝内即朝向自己的这一面都比较平缓，自己上去防御比较容易。而现在中国的防火墙呢？好像是专门和自己过不去，自己出去不容易，敌人轻易进来却不管。这是不是弄反了呢？<br><img src="http://ww1.sinaimg.cn/large/408bb143jw1f5en40kym3j21kw11ynj5.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3992534084425762" target="freeweibo-mirror">SPAM </a>
 </h2>
 <p>SPAM </p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p>
 <table>
     <tr>
