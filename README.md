@@ -71,7 +71,7 @@
 </h2>
 <p>SPAM 其实你也能像她们一样的[害羞]</p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3992593819384801" target="freeweibo-mirror">[笑cry][笑cry]</a>
 </h2>
