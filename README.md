@@ -25,15 +25,27 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3992689907216179" target="freeweibo-mirror">绝对忠诚就可以腐败吗？//@泪水不再有温度:可以共产了吗？[…</a>
+</h2>
+<p>绝对忠诚就可以腐败吗？//@泪水不再有温度:可以共产了吗？[哈哈] //@LifeTime:习总眼光就是独到。[doge] //@谢文:每个宗教都是这样要求信徒的 //@阿嚏:难道不应该在忠诚？</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3992681501684099" target="freeweibo-mirror">SPAM 宗教可不这样... //@谢文:每个宗教都是这样要…</a>
 </h2>
 <p>SPAM 宗教可不这样... //@谢文:每个宗教都是这样要求信徒的 //@阿嚏:难道不应该在忠诚？</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3992679589853181" target="freeweibo-mirror">//@天天见-明见:哪里？//@沈榄nb: //@睡马66:…</a>
 </h2>
 <p>//@天天见-明见:哪里？//@沈榄nb: //@睡马66://@笑吟嫣雨258://@观天象知冷暖43546://@青山GG妩媚: //@雲頂寨郭家大小姐://@種花家旳流氓兎://@MKandyHK://@I勇者鬥惡龍I:转发微博<br><br>RE: 「今日香港」  只發不評。<br><img src="http://ww2.sinaimg.cn/large/d3504604jw1f5eo5u2qdzj21300qo46p.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3992678624449956" target="freeweibo-mirror">//@学习老王: 哈哈哈，龟儿子……</a>
+</h2>
+<p>//@学习老王: 哈哈哈，龟儿子……<br><br>RE: 【龟儿子[嘻嘻]】于建嵘：今给某省直机关一百五十多名领导干部讲法治。课间休息时，一领导说：＂我们党许可你这样的教授讲话，是胸怀＂。我曰：＂龟儿子的，这是公民的宪法权利＂。他惊呼：＂老师，你骂人＂。我笑：＂老师说你龟儿子，那是爱称；就象你们这些当官的抢了老百姓房子自己发财，还说是为了...全文： http://m.weibo.cn/2878359422/3992445030762757<br><img src="http://ww2.sinaimg.cn/large/ab90477ejw1f5ef20zkt5j20by06amx7.jpg"></p>
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
@@ -53,7 +65,7 @@
 </h2>
 <p>SPAM 饿饿饿</p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3992568050083350" target="freeweibo-mirror">//@围观倒车-://@张-天-戈02://@王林的微博客:…</a>
 </h2>
@@ -124,18 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3992535309183106" target="freeweibo-mirror">SPAM [阴险]→_→//@罗昌平:监狱的墙，一定是防里面…</a>
 </h2>
 <p>SPAM [阴险]→_→//@罗昌平:监狱的墙，一定是防里面的人外出，而不是防外面的人进来。<br><br>RE: 【中国的防火墙是不是弄反了？】出去拍照，爬过几次长城，发现一个规律：长城都是朝外即朝向敌人的那一面险峻，敌人爬上来不容易；而朝内即朝向自己的这一面都比较平缓，自己上去防御比较容易。而现在中国的防火墙呢？好像是专门和自己过不去，自己出去不容易，敌人轻易进来却不管。这是不是弄反了呢？<br><img src="http://ww1.sinaimg.cn/large/408bb143jw1f5en40kym3j21kw11ynj5.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3992534608486998" target="freeweibo-mirror">SPAM 著名摄影师老孙，请勿妄议。//@笨笨an:墙内的才…</a>
-</h2>
-<p>SPAM 著名摄影师老孙，请勿妄议。//@笨笨an:墙内的才是敌人 //@月满西楼_2008：他们认为最大的威胁还是在内部。<br><br>RE: 【中国的防火墙是不是弄反了？】出去拍照，爬过几次长城，发现一个规律：长城都是朝外即朝向敌人的那一面险峻，敌人爬上来不容易；而朝内即朝向自己的这一面都比较平缓，自己上去防御比较容易。而现在中国的防火墙呢？好像是专门和自己过不去，自己出去不容易，敌人轻易进来却不管。这是不是弄反了呢？<br><img src="http://ww1.sinaimg.cn/large/408bb143jw1f5en40kym3j21kw11ynj5.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3992534084425762" target="freeweibo-mirror">SPAM </a>
-</h2>
-<p>SPAM </p>
 <p>
 	<small> ============== 1天前</small>
 </p>
