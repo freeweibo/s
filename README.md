@@ -101,7 +101,7 @@
 </h2>
 <p>[笑cry][笑cry]<br><img src="http://ww4.sinaimg.cn/large/006ntcNGjw1f5ew6b2avvj30a00hsjsg.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3992584294330366" target="freeweibo-mirror">目前尚无法了解雷洋案全部真相。但法医的证词和检察院的刑拘涉事…</a>
 </h2>
