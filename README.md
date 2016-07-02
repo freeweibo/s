@@ -41,7 +41,7 @@
 </h2>
 <p>SPAM 有道理啊！</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3992777924275555" target="freeweibo-mirror">SPAM 无眠：比打死雷洋更可怕的……  打死雷洋，全国人民…</a>
 </h2>
