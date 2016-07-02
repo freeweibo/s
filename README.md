@@ -95,13 +95,13 @@
 </h2>
 <p>SPAM 130斤到98斤～    原来减肥那么简单，[心] 相信她你就能能瘦成一道闪电[闪电] 劈死曾经说你胖的人。 @sunshine96-佩佩</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3992562601537866" target="freeweibo-mirror">//@张-天-戈02://@王林的微博客: //@惊醒的家奴…</a>
 </h2>
 <p>//@张-天-戈02://@王林的微博客: //@惊醒的家奴5://@IP阳光快乐天使: //@天艹起个名字也难啊:转发微博<br><br>RE: 看投票结果<br><img src="http://ww4.sinaimg.cn/large/006uTIPjjw1f5ern9fj8kj30hs0m840h.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3992554393149606" target="freeweibo-mirror">看投票结果</a>
 </h2>
