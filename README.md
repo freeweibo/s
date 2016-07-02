@@ -89,7 +89,7 @@
 </h2>
 <p>SPAM #比打死雷洋更可怕的# ……  打死雷洋，全国人民觉得恐惧：在大赵国生活，太没安全感了，一个大活人，十几分钟就给弄死了。  这是最可怕的吗？ 不是。  比打死雷洋更可怕的是：随后所做的一系列动作。  1，洗地掩盖。 警方并没有第一时间公布执法现场录像和视频。 只是不断的改口，撒谎，掩盖真相。 就...全文： http://m.weibo.cn/1404232085/3992786216859524</p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3992782252646780" target="freeweibo-mirror">SPAM 有道理啊！</a>
 </h2>
@@ -107,7 +107,7 @@
 </h2>
 <p>//@TANG_56246:洗脑、愚民教育，催残花朵、误人子弟<br><br>RE: 浙江一幼儿园小“党课”：全班孩子喊“怕死就别当共产党员”<br><img src="http://ww2.sinaimg.cn/large/656952ecjw1f5ewfh3ud8j20u01hc1kx.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3992750309355853" target="freeweibo-mirror">http://t.cn/R5EOHKu //@樊建川:腰不疼…</a>
 </h2>
