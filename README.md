@@ -101,7 +101,7 @@
 </h2>
 <p>http://t.cn/R5EOHKu //@樊建川:腰不疼。 //@郭晏平:老石自从离开体制后，看事情愈发清晰了</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3992749734768371" target="freeweibo-mirror">SPAM 微博禁止了两维码//@宇宙无敌臭西瓜: 发黄图不如…</a>
 </h2>
