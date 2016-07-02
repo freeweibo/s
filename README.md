@@ -35,7 +35,7 @@
 </h2>
 <p>//@天天见-明见:哪里？//@沈榄nb: //@睡马66://@笑吟嫣雨258://@观天象知冷暖43546://@青山GG妩媚: //@雲頂寨郭家大小姐://@種花家旳流氓兎://@MKandyHK://@I勇者鬥惡龍I:转发微博<br><br>RE: 「今日香港」  只發不評。<br><img src="http://ww2.sinaimg.cn/large/d3504604jw1f5eo5u2qdzj21300qo46p.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3992670596680112" target="freeweibo-mirror">//@快乐段小欣:金三胖也是要求全国的猪绝对忠诚。 //@网…</a>
 </h2>
@@ -83,7 +83,7 @@
 </h2>
 <p>//@且伴-紫荆: 最新消息！[话筒][话筒][围观][围观]<br><br>RE: 遊行人士原定到中聯辦，現在改到下亞厘畢道，禮賓府正門方向。遊行人士與警方談判膠著，未知下步行動。----實習記者鄒嘉怡報導<br><img src="http://ww4.sinaimg.cn/large/006iV9dojw1f5eq73x4uxj31400qoguf.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3992541952991800" target="freeweibo-mirror">遊行人士原定到中聯辦，現在改到下亞厘畢道，禮賓府正門方向。遊…</a>
 </h2>
@@ -119,13 +119,13 @@
 </h2>
 <p>//@京城探花: 不像话！<br><br>RE: 新浪微博越来越不像话了<br><img src="http://ww2.sinaimg.cn/large/6a1250ddjw1f5eim6hmnqj20k00zkdkr.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3992535309183106" target="freeweibo-mirror">SPAM [阴险]→_→//@罗昌平:监狱的墙，一定是防里面…</a>
 </h2>
 <p>SPAM [阴险]→_→//@罗昌平:监狱的墙，一定是防里面的人外出，而不是防外面的人进来。<br><br>RE: 【中国的防火墙是不是弄反了？】出去拍照，爬过几次长城，发现一个规律：长城都是朝外即朝向敌人的那一面险峻，敌人爬上来不容易；而朝内即朝向自己的这一面都比较平缓，自己上去防御比较容易。而现在中国的防火墙呢？好像是专门和自己过不去，自己出去不容易，敌人轻易进来却不管。这是不是弄反了呢？<br><img src="http://ww1.sinaimg.cn/large/408bb143jw1f5en40kym3j21kw11ynj5.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3992534608486998" target="freeweibo-mirror">SPAM 著名摄影师老孙，请勿妄议。//@笨笨an:墙内的才…</a>
 </h2>
