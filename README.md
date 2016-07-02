@@ -35,7 +35,7 @@
 </h2>
 <p>//@剑哥传奇://@小道信息: //@刘子粱: //@活捉死老鼠: //@赣B_自油博报: 附议!<br><br>RE: 警察的工资是公务员里最高的，仅次于军人，平时还要到洗头房足疗店去打牙祭罚嫖娼，去强拆的现场捞外快！这么好的差事还拿捏着哭诉，这不是矫情嘛！你不干，就悄悄脱下警服，到工地去搬砖，到工厂去做工，到街上去摆摊，要么就到互联网去创业，总之社会上有的是让你施展才华的天地，你抹滴神马眼泪，辞...全文： http://m.weibo.cn/3742897543/3992772836339061<br><img src="http://ww1.sinaimg.cn/large/df181587jw1f5fgq20zn8j20h50jr7ci.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3992923618273020" target="freeweibo-mirror">SPAM 这么热的天！终于找到适合我的短发了！[泪]</a>
 </h2>
@@ -52,6 +52,12 @@
 	<a href="https://freeweibo.com/weibo/3992916579577413" target="freeweibo-mirror">//@刘子粱: //@活捉死老鼠: //@赣B_自油博报: …</a>
 </h2>
 <p>//@刘子粱: //@活捉死老鼠: //@赣B_自油博报: 附议!<br><br>RE: 警察的工资是公务员里最高的，仅次于军人，平时还要到洗头房足疗店去打牙祭罚嫖娼，去强拆的现场捞外快！这么好的差事还拿捏着哭诉，这不是矫情嘛！你不干，就悄悄脱下警服，到工地去搬砖，到工厂去做工，到街上去摆摊，要么就到互联网去创业，总之社会上有的是让你施展才华的天地，你抹滴神马眼泪，辞...全文： http://m.weibo.cn/3742897543/3992772836339061<br><img src="http://ww1.sinaimg.cn/large/df181587jw1f5fgq20zn8j20h50jr7ci.jpg"></p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3992916411910784" target="freeweibo-mirror">SPAM 同意点赞  想瘦找她@胖西西的瘦身日志</a>
+</h2>
+<p>SPAM 同意点赞  想瘦找她@胖西西的瘦身日志</p>
 <p>
 	<small> ============== 4小时前</small>
 </p><h2>
@@ -95,7 +101,7 @@
 </h2>
 <p>【从穹顶之下到牢狱之中？】连柴静都要被喝茶，这个社会定没救了。<br><img src="http://ww3.sinaimg.cn/large/93acee78gw1f5fuomtj34j20ci0k4dgw.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3992888528788727" target="freeweibo-mirror">SPAM 转载：中共，为什么总书记总是在叛党？ 第一任陈独秀…</a>
 </h2>
@@ -113,7 +119,7 @@
 </h2>
 <p>//@三耳牛: 从雷死的那一刻起，警方就开始疯狂造假造势撒谎，可恶至极！//@司马3忌:在雷洋案的整个过程中，昌平警方的说辞粗劣不堪，还能动用CCTV、人日等国家级媒体背书，也算是肆无忌惮了//@三耳牛: 转出来，邢所长说谎那是板上钉钉的，为什么说谎？检察院说有妨碍侦查。为脱责掩真相，必然要说谎。</p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3992868588830755" target="freeweibo-mirror">SPAM 毫不同情，很难相信是第一次做这种事。每种行业必须有…</a>
 </h2>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3992856748730577" target="freeweibo-mirror">SPAM 德亚直营AmazonBasics旅游防盗腰包只需 …</a>
 </h2>
 <p>SPAM 德亚直营AmazonBasics旅游防盗腰包只需 EUR 8.99，购买 http://t.cn/R58zMxO</p>
-<p>
-	<small> ============== 8小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3992850545329669" target="freeweibo-mirror">[话筒]//@陈光武律师://@臧建春V: 听说此人是大五毛…</a>
-</h2>
-<p>[话筒]//@陈光武律师://@臧建春V: 听说此人是大五毛！<br><br>RE: 杭州民众抵制垃圾焚烧发电厂，与警察发生冲突，近40人受伤。对此，网民@老辣陈香 质问：警察为何不开枪？此言一出，舆论哗然，有人说，煽动警察对手无寸铁的民众开枪，居心叵测，唯恐天下不乱。这个极端分子叫陈玮麟，台州市委宣传部副调研员，网络中心主任，负责网上舆论引导工作。挂！<br><img src="http://ww4.sinaimg.cn/large/006eK794gw1f5fj07t0vmj30bi08jwez.jpg"></p>
 <p>
 	<small> ============== 8小时前</small>
 </p>
