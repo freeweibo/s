@@ -19,9 +19,27 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3992750309355853" target="freeweibo-mirror">http://t.cn/R5EOHKu //@樊建川:腰不疼…</a>
+</h2>
+<p>http://t.cn/R5EOHKu //@樊建川:腰不疼。 //@郭晏平:老石自从离开体制后，看事情愈发清晰了</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3992737964974661" target="freeweibo-mirror">没雨后台，怎敢如此猖狂？//@雨农谈股: 醒来！[泪]</a>
+</h2>
+<p>没雨后台，怎敢如此猖狂？//@雨农谈股: 醒来！[泪]</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3992703329175707" target="freeweibo-mirror">SPAM 回复@查理不是怪蜀黍:倒贴差不多。//@查理不是怪…</a>
 </h2>
 <p>SPAM 回复@查理不是怪蜀黍:倒贴差不多。//@查理不是怪蜀黍:收了也不错呀，多个收税源耶//@庄志明律师:俺不要这个累赘。</p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3992698589045044" target="freeweibo-mirror">//@邱旭瑜律师: 向来如比！//@吉祥-幸运://@捣陶:…</a>
+</h2>
+<p>//@邱旭瑜律师: 向来如比！//@吉祥-幸运://@捣陶:某些媒体的无耻程度，已经超出了我们的想象。</p>
 <p>
 	<small> ============== 4小时前</small>
 </p><h2>
@@ -29,7 +47,7 @@
 </h2>
 <p>SPAM 俺不要这个累赘。</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3992695099445033" target="freeweibo-mirror">SPAM 三忠于，四无限。已经铭刻在脑海里，溶化在血液中，这…</a>
 </h2>
@@ -47,7 +65,7 @@
 </h2>
 <p>SPAM 宗教可不这样... //@谢文:每个宗教都是这样要求信徒的 //@阿嚏:难道不应该在忠诚？</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3992679589853181" target="freeweibo-mirror">//@天天见-明见:哪里？//@沈榄nb: //@睡马66:…</a>
 </h2>
@@ -78,6 +96,12 @@
 <p>[笑cry][笑cry]<br><img src="http://ww4.sinaimg.cn/large/006ntcNGjw1f5ew6b2avvj30a00hsjsg.jpg"></p>
 <p>
 	<small> ============== 11小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3992584294330366" target="freeweibo-mirror">目前尚无法了解雷洋案全部真相。但法医的证词和检察院的刑拘涉事…</a>
+</h2>
+<p>目前尚无法了解雷洋案全部真相。但法医的证词和检察院的刑拘涉事警察的决定却足以证明警方曾借助媒体撒谎。媒体此举属助纣为虐，丧失基本良知和职业道德，作为同行深以为耻。请不要辩解说迫不得已，受命而已，吃饭而已。你可以不干，天天迫使记者干这个的媒体给你多少钱也不值得供职。<br><img src="http://ww1.sinaimg.cn/large/4fcb878ajw1f5ev2qld6hj20qo0qon4z.jpg"></p>
+<p>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3992576074048301" target="freeweibo-mirror">SPAM 饿饿饿</a>
 </h2>
@@ -112,30 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3992543085581194" target="freeweibo-mirror">//@且伴-紫荆: 最新消息！[话筒][话筒][围观][围观…</a>
 </h2>
 <p>//@且伴-紫荆: 最新消息！[话筒][话筒][围观][围观]<br><br>RE: 遊行人士原定到中聯辦，現在改到下亞厘畢道，禮賓府正門方向。遊行人士與警方談判膠著，未知下步行動。----實習記者鄒嘉怡報導<br><img src="http://ww4.sinaimg.cn/large/006iV9dojw1f5eq73x4uxj31400qoguf.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3992541952991800" target="freeweibo-mirror">遊行人士原定到中聯辦，現在改到下亞厘畢道，禮賓府正門方向。遊…</a>
-</h2>
-<p>遊行人士原定到中聯辦，現在改到下亞厘畢道，禮賓府正門方向。遊行人士與警方談判膠著，未知下步行動。----實習記者鄒嘉怡報導<br><img src="http://ww4.sinaimg.cn/large/006iV9dojw1f5eq73x4uxj31400qoguf.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3992537150477965" target="freeweibo-mirror">//@只配叫猪_: 年年有今朝。//@玛瑞恩://@黄河天下…</a>
-</h2>
-<p>//@只配叫猪_: 年年有今朝。//@玛瑞恩://@黄河天下天2: //@王林的微博客://@天津老魏038: 转发微博<br><br>RE: 由警隊開路<br><img src="http://ww2.sinaimg.cn/large/9f608f39jw1f5ejxmfu6aj20qo0zk4as.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3992537151157384" target="freeweibo-mirror">SPAM 一到夏天就大爱裙子啊</a>
-</h2>
-<p>SPAM 一到夏天就大爱裙子啊</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3992536811458093" target="freeweibo-mirror">//@恨天啊: //@华夏天会再蓝3:转发微博</a>
-</h2>
-<p>//@恨天啊: //@华夏天会再蓝3:转发微博<br><br>RE: 据说有十一万人<br><img src="http://ww1.sinaimg.cn/large/006fezt8gw1f5eo14271cj31410qoake.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
