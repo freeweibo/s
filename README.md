@@ -23,7 +23,13 @@
 </h2>
 <p>http://t.cn/R5EOHKu //@樊建川:腰不疼。 //@郭晏平:老石自从离开体制后，看事情愈发清晰了</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3992742188576023" target="freeweibo-mirror">SPAM 在问，把你抓起来，整疯</a>
+</h2>
+<p>SPAM 在问，把你抓起来，整疯<br><br>RE: 在雷洋案中，央视和北京电视台扮演了啥角色？要不要负点啥责任？<br><img src="http://ww1.sinaimg.cn/large/7cc9aaf1gw1f5eqfkmfa7j20j60bkmyf.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3992737964974661" target="freeweibo-mirror">没雨后台，怎敢如此猖狂？//@雨农谈股: 醒来！[泪]</a>
 </h2>
@@ -59,7 +65,7 @@
 </h2>
 <p>绝对忠诚就可以腐败吗？//@泪水不再有温度:可以共产了吗？[哈哈] //@LifeTime:习总眼光就是独到。[doge] //@谢文:每个宗教都是这样要求信徒的 //@阿嚏:难道不应该在忠诚？</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3992681501684099" target="freeweibo-mirror">SPAM 宗教可不这样... //@谢文:每个宗教都是这样要…</a>
 </h2>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3992554393149606" target="freeweibo-mirror">看投票结果</a>
 </h2>
 <p>看投票结果<br><img src="http://ww4.sinaimg.cn/large/006uTIPjjw1f5ern9fj8kj30hs0m840h.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3992543085581194" target="freeweibo-mirror">//@且伴-紫荆: 最新消息！[话筒][话筒][围观][围观…</a>
-</h2>
-<p>//@且伴-紫荆: 最新消息！[话筒][话筒][围观][围观]<br><br>RE: 遊行人士原定到中聯辦，現在改到下亞厘畢道，禮賓府正門方向。遊行人士與警方談判膠著，未知下步行動。----實習記者鄒嘉怡報導<br><img src="http://ww4.sinaimg.cn/large/006iV9dojw1f5eq73x4uxj31400qoguf.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
