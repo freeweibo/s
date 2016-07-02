@@ -31,11 +31,23 @@
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3992856748730577" target="freeweibo-mirror">SPAM 德亚直营AmazonBasics旅游防盗腰包只需 …</a>
+</h2>
+<p>SPAM 德亚直营AmazonBasics旅游防盗腰包只需 EUR 8.99，购买 http://t.cn/R58zMxO</p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3992850545329669" target="freeweibo-mirror">[话筒]//@陈光武律师://@臧建春V: 听说此人是大五毛…</a>
 </h2>
 <p>[话筒]//@陈光武律师://@臧建春V: 听说此人是大五毛！<br><br>RE: 杭州民众抵制垃圾焚烧发电厂，与警察发生冲突，近40人受伤。对此，网民@老辣陈香 质问：警察为何不开枪？此言一出，舆论哗然，有人说，煽动警察对手无寸铁的民众开枪，居心叵测，唯恐天下不乱。这个极端分子叫陈玮麟，台州市委宣传部副调研员，网络中心主任，负责网上舆论引导工作。挂！<br><img src="http://ww4.sinaimg.cn/large/006eK794gw1f5fj07t0vmj30bi08jwez.jpg"></p>
 <p>
 	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3992845340220182" target="freeweibo-mirror">SPAM @文盲李世威:乌坎事件，等，为何与强权抗争的群体事…</a>
+</h2>
+<p>SPAM @文盲李世威:乌坎事件，等，为何与强权抗争的群体事件基本发生在南方？青岛出租车司机罢工等事件，为何北方的群体事件多是用来对付跟自己一样弱小的同行呢？这个问题绝对值得思考！南方很多地方皆是宗族群居，有宗祠、族谱，甚至有宗族办的学校，故而极具凝聚力，所以，南方人比北方人血性多了！<br><img src="http://ww3.sinaimg.cn/large/55004ab7jw1f5fp2botj4j20f003374q.jpg"></p>
+<p>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3992820404593190" target="freeweibo-mirror">这是一头网络疯狗，可惜网民没齐心逼他下课//@月湖无人区: …</a>
 </h2>
@@ -59,7 +71,7 @@
 </h2>
 <p>SPAM //@李北方2:好像是孔夫子说的：老而不死是为贼。真是至理名言。<br><br>RE: 好像是罗素说的：年轻时不相信共产主义是没有良心；到年老时还相信共产主义是没有头脑。真是至理名言。</p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3992786216859524" target="freeweibo-mirror">SPAM #比打死雷洋更可怕的# ……  打死雷洋，全国人民…</a>
 </h2>
@@ -101,7 +113,7 @@
 </h2>
 <p>SPAM 在问，把你抓起来，整疯<br><br>RE: 在雷洋案中，央视和北京电视台扮演了啥角色？要不要负点啥责任？<br><img src="http://ww1.sinaimg.cn/large/7cc9aaf1gw1f5eqfkmfa7j20j60bkmyf.jpg"></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3992737964974661" target="freeweibo-mirror">没雨后台，怎敢如此猖狂？//@雨农谈股: 醒来！[泪]</a>
 </h2>
@@ -124,18 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3992719463966033" target="freeweibo-mirror">回复@尊重个人啊:独立之人格，自由之思想。他们也许有，但表达…</a>
 </h2>
 <p>回复@尊重个人啊:独立之人格，自由之思想。他们也许有，但表达何其难。于是敢于表达的就成了敌对势力的一部分，这就是精英！//@尊重个人啊:大学教授算精英吗？//@邱旭瑜律师:回复@尊重个人啊:还不是一回事，没有独立性，连思想都不自由，谈什么G8精英，码字匠而已！//@尊重个人啊:媒体记者算精英吗？</p>
-<p>
-	<small> ============== 12小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3992718638839761" target="freeweibo-mirror">回复@独立检察官1979:现在的罪犯，从羁押那一刻起，连人都…</a>
-</h2>
-<p>回复@独立检察官1979:现在的罪犯，从羁押那一刻起，连人都不是。只是一个会说话的畜生，正义从哪里来？</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3992717727852412" target="freeweibo-mirror">回复@尊重个人啊:还不是一回事，没有独立性，连思想都不自由，…</a>
-</h2>
-<p>回复@尊重个人啊:还不是一回事，没有独立性，连思想都不自由，谈什么G8精英，码字匠而已！//@尊重个人啊:媒体记者算精英吗？//@邱旭瑜律师:回复@尊重个人啊:律师原本具有贵族性，但在中国草根性占据了上风。一盘散沙，为稻粱谋，何来精英性？//@尊重个人啊:回复@邱旭瑜律师:律师阶层算精英吗？</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
