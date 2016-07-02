@@ -53,7 +53,7 @@
 </h2>
 <p>//@快乐段小欣:金三胖也是要求全国的猪绝对忠诚。 //@网易微博关闭了:→_→//@蝗虫8884:接下来是不是该组织圣战了？//@LifeTime:习总眼光就是独到。[doge] //@谢文:每个宗教都是这样要求信徒的 //@阿嚏:难道不应该在忠诚？</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3992611582161391" target="freeweibo-mirror">SPAM 其实你也能像她们一样的[害羞]</a>
 </h2>
@@ -101,7 +101,7 @@
 </h2>
 <p>遊行人士原定到中聯辦，現在改到下亞厘畢道，禮賓府正門方向。遊行人士與警方談判膠著，未知下步行動。----實習記者鄒嘉怡報導<br><img src="http://ww4.sinaimg.cn/large/006iV9dojw1f5eq73x4uxj31400qoguf.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3992537150477965" target="freeweibo-mirror">//@只配叫猪_: 年年有今朝。//@玛瑞恩://@黄河天下…</a>
 </h2>
