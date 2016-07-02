@@ -19,6 +19,30 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3992787446200065" target="freeweibo-mirror">SPAM //@李北方2:好像是孔夫子说的：老而不死是为贼。…</a>
+</h2>
+<p>SPAM //@李北方2:好像是孔夫子说的：老而不死是为贼。真是至理名言。<br><br>RE: 好像是罗素说的：年轻时不相信共产主义是没有良心；到年老时还相信共产主义是没有头脑。真是至理名言。</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3992786216859524" target="freeweibo-mirror">SPAM #比打死雷洋更可怕的# ……  打死雷洋，全国人民…</a>
+</h2>
+<p>SPAM #比打死雷洋更可怕的# ……  打死雷洋，全国人民觉得恐惧：在大赵国生活，太没安全感了，一个大活人，十几分钟就给弄死了。  这是最可怕的吗？ 不是。  比打死雷洋更可怕的是：随后所做的一系列动作。  1，洗地掩盖。 警方并没有第一时间公布执法现场录像和视频。 只是不断的改口，撒谎，掩盖真相。 就...全文： http://m.weibo.cn/1404232085/3992786216859524</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3992782252646780" target="freeweibo-mirror">SPAM 有道理啊！</a>
+</h2>
+<p>SPAM 有道理啊！</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3992777924275555" target="freeweibo-mirror">SPAM 无眠：比打死雷洋更可怕的……  打死雷洋，全国人民…</a>
+</h2>
+<p>SPAM 无眠：比打死雷洋更可怕的……  打死雷洋，全国人民觉得恐惧：在大赵国生活，太没安全感了，一个大活人，十几分钟就给弄死了。  这是最可怕的吗？ 不是。  比打死雷洋更可怕的是：随后所做的一系列动作。  1，洗地掩盖。 警方并没有第一时间公布执法现场录像和视频。 只是不断的改口，撒谎，掩盖真相。...全文： http://m.weibo.cn/1874336053/3992777924275555<br><img src="http://ww2.sinaimg.cn/large/6fb81935jw1f5fhbemktzj209u07owek.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3992750309355853" target="freeweibo-mirror">http://t.cn/R5EOHKu //@樊建川:腰不疼…</a>
 </h2>
 <p>http://t.cn/R5EOHKu //@樊建川:腰不疼。 //@郭晏平:老石自从离开体制后，看事情愈发清晰了</p>
@@ -35,7 +59,7 @@
 </h2>
 <p>SPAM 在问，把你抓起来，整疯<br><br>RE: 在雷洋案中，央视和北京电视台扮演了啥角色？要不要负点啥责任？<br><img src="http://ww1.sinaimg.cn/large/7cc9aaf1gw1f5eqfkmfa7j20j60bkmyf.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3992737964974661" target="freeweibo-mirror">没雨后台，怎敢如此猖狂？//@雨农谈股: 醒来！[泪]</a>
 </h2>
@@ -107,37 +131,13 @@
 </h2>
 <p>SPAM 俺不要这个累赘。</p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3992695099445033" target="freeweibo-mirror">SPAM 三忠于，四无限。已经铭刻在脑海里，溶化在血液中，这…</a>
 </h2>
 <p>SPAM 三忠于，四无限。已经铭刻在脑海里，溶化在血液中，这辈子至死也改不了。俺也一样，三十一年党龄。</p>
 <p>
 	<small> ============== 8小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3992689907216179" target="freeweibo-mirror">绝对忠诚就可以腐败吗？//@泪水不再有温度:可以共产了吗？[…</a>
-</h2>
-<p>绝对忠诚就可以腐败吗？//@泪水不再有温度:可以共产了吗？[哈哈] //@LifeTime:习总眼光就是独到。[doge] //@谢文:每个宗教都是这样要求信徒的 //@阿嚏:难道不应该在忠诚？</p>
-<p>
-	<small> ============== 8小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3992681501684099" target="freeweibo-mirror">SPAM 宗教可不这样... //@谢文:每个宗教都是这样要…</a>
-</h2>
-<p>SPAM 宗教可不这样... //@谢文:每个宗教都是这样要求信徒的 //@阿嚏:难道不应该在忠诚？</p>
-<p>
-	<small> ============== 8小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3992679589853181" target="freeweibo-mirror">//@天天见-明见:哪里？//@沈榄nb: //@睡马66:…</a>
-</h2>
-<p>//@天天见-明见:哪里？//@沈榄nb: //@睡马66://@笑吟嫣雨258://@观天象知冷暖43546://@青山GG妩媚: //@雲頂寨郭家大小姐://@種花家旳流氓兎://@MKandyHK://@I勇者鬥惡龍I:转发微博<br><br>RE: 「今日香港」  只發不評。<br><img src="http://ww2.sinaimg.cn/large/d3504604jw1f5eo5u2qdzj21300qo46p.jpg"></p>
-<p>
-	<small> ============== 9小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3992678624449956" target="freeweibo-mirror">//@学习老王: 哈哈哈，龟儿子……</a>
-</h2>
-<p>//@学习老王: 哈哈哈，龟儿子……<br><br>RE: 【龟儿子[嘻嘻]】于建嵘：今给某省直机关一百五十多名领导干部讲法治。课间休息时，一领导说：＂我们党许可你这样的教授讲话，是胸怀＂。我曰：＂龟儿子的，这是公民的宪法权利＂。他惊呼：＂老师，你骂人＂。我笑：＂老师说你龟儿子，那是爱称；就象你们这些当官的抢了老百姓房子自己发财，还说是为了...全文： http://m.weibo.cn/2878359422/3992445030762757<br><img src="http://ww2.sinaimg.cn/large/ab90477ejw1f5ef20zkt5j20by06amx7.jpg"></p>
-<p>
-	<small> ============== 9小时前</small>
 </p>
 <table>
     <tr>
