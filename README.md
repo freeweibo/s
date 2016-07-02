@@ -53,19 +53,19 @@
 </h2>
 <p>那个时候不会从小学到大学都洗脑！教育政治化是教育的退化。//@记者-薛洪涛:转发微博<br><br>RE: 楼下大爷说：秦皇汉武独裁时代，一句话说不好就会掉脑袋，但历史上许多言官诤吏很多，如今新民主社会主义时期，讲真话的官吏如凤毛麟角般珍稀了！</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3992915489217222" target="freeweibo-mirror">还有顾秀林。可称当代中华三女杰！//@骨德柏:我知道有两个“…</a>
 </h2>
 <p>还有顾秀林。可称当代中华三女杰！//@骨德柏:我知道有两个“女汉子”，一个是最高检的“王雪梅”，一个就是北京某学院的“王铮”。<br><br>RE: 昨天下午，王铮老师一行六人，前往秦城监狱为薄公送去生日鲜花和贺卡，并成功将礼物交由武警收转。[围观][good][心][鲜花][给力][赞][威武][爱你][话筒][话筒][话筒]@周瑾1963<br><img src="http://ww4.sinaimg.cn/large/006tcUeBgw1f5ftnmzsojj30k00ht0vf.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3992915342471269" target="freeweibo-mirror">//@龟仙的二大爷: //@李不白的店://@大藏布: 转发…</a>
 </h2>
 <p>//@龟仙的二大爷: //@李不白的店://@大藏布: 转发微博<br><br>RE: 【从穹顶之下到牢狱之中？】连柴静都要被喝茶，这个社会定没救了。<br><img src="http://ww3.sinaimg.cn/large/93acee78gw1f5fuomtj34j20ci0k4dgw.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3992906413560697" target="freeweibo-mirror">SPAM 言之凿凿//@李保毅1:[哈哈]犀利！//@街众张…</a>
 </h2>
