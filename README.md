@@ -41,7 +41,7 @@
 </h2>
 <p>绝对忠诚就可以腐败吗？//@泪水不再有温度:可以共产了吗？[哈哈] //@LifeTime:习总眼光就是独到。[doge] //@谢文:每个宗教都是这样要求信徒的 //@阿嚏:难道不应该在忠诚？</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3992681501684099" target="freeweibo-mirror">SPAM 宗教可不这样... //@谢文:每个宗教都是这样要…</a>
 </h2>
@@ -83,7 +83,7 @@
 </h2>
 <p>SPAM 饿饿饿</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3992568050083350" target="freeweibo-mirror">//@围观倒车-://@张-天-戈02://@王林的微博客:…</a>
 </h2>
