@@ -19,6 +19,30 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3992695099445033" target="freeweibo-mirror">SPAM 三忠于，四无限。已经铭刻在脑海里，溶化在血液中，这…</a>
+</h2>
+<p>SPAM 三忠于，四无限。已经铭刻在脑海里，溶化在血液中，这辈子至死也改不了。俺也一样，三十一年党龄。</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3992681501684099" target="freeweibo-mirror">SPAM 宗教可不这样... //@谢文:每个宗教都是这样要…</a>
+</h2>
+<p>SPAM 宗教可不这样... //@谢文:每个宗教都是这样要求信徒的 //@阿嚏:难道不应该在忠诚？</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3992679589853181" target="freeweibo-mirror">//@天天见-明见:哪里？//@沈榄nb: //@睡马66:…</a>
+</h2>
+<p>//@天天见-明见:哪里？//@沈榄nb: //@睡马66://@笑吟嫣雨258://@观天象知冷暖43546://@青山GG妩媚: //@雲頂寨郭家大小姐://@種花家旳流氓兎://@MKandyHK://@I勇者鬥惡龍I:转发微博<br><br>RE: 「今日香港」  只發不評。<br><img src="http://ww2.sinaimg.cn/large/d3504604jw1f5eo5u2qdzj21300qo46p.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3992670596680112" target="freeweibo-mirror">//@快乐段小欣:金三胖也是要求全国的猪绝对忠诚。 //@网…</a>
+</h2>
+<p>//@快乐段小欣:金三胖也是要求全国的猪绝对忠诚。 //@网易微博关闭了:→_→//@蝗虫8884:接下来是不是该组织圣战了？//@LifeTime:习总眼光就是独到。[doge] //@谢文:每个宗教都是这样要求信徒的 //@阿嚏:难道不应该在忠诚？</p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3992611582161391" target="freeweibo-mirror">SPAM 其实你也能像她们一样的[害羞]</a>
 </h2>
 <p>SPAM 其实你也能像她们一样的[害羞]</p>
@@ -53,7 +77,7 @@
 </h2>
 <p>看投票结果<br><img src="http://ww4.sinaimg.cn/large/006uTIPjjw1f5ern9fj8kj30hs0m840h.jpg"></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3992543085581194" target="freeweibo-mirror">//@且伴-紫荆: 最新消息！[话筒][话筒][围观][围观…</a>
 </h2>
@@ -112,30 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3992534084425762" target="freeweibo-mirror">SPAM </a>
 </h2>
 <p>SPAM </p>
-<p>
-	<small> ============== 12小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3992533887511534" target="freeweibo-mirror">[哈哈]//@中国道: //@博者文摘://@paixuej…</a>
-</h2>
-<p>[哈哈]//@中国道: //@博者文摘://@paixuejinwu拍雪进屋://@东河-猎鹰倚天屠龙://@蓉蓉亿米阳光:[哈哈]//@Dr狗的一些事一些情:怂//@walbgt: 这叫自信，懂不懂？[笑cry]<br><br>RE: 新浪微博越来越不像话了<br><img src="http://ww2.sinaimg.cn/large/6a1250ddjw1f5eim6hmnqj20k00zkdkr.jpg"></p>
-<p>
-	<small> ============== 12小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3992533870174758" target="freeweibo-mirror">SPAM 然也！//@罗昌平: 监狱的墙，一定是防里面的人外…</a>
-</h2>
-<p>SPAM 然也！//@罗昌平: 监狱的墙，一定是防里面的人外出，而不是防外面的人进来。<br><br>RE: 【中国的防火墙是不是弄反了？】出去拍照，爬过几次长城，发现一个规律：长城都是朝外即朝向敌人的那一面险峻，敌人爬上来不容易；而朝内即朝向自己的这一面都比较平缓，自己上去防御比较容易。而现在中国的防火墙呢？好像是专门和自己过不去，自己出去不容易，敌人轻易进来却不管。这是不是弄反了呢？<br><img src="http://ww1.sinaimg.cn/large/408bb143jw1f5en40kym3j21kw11ynj5.jpg"></p>
-<p>
-	<small> ============== 12小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3992532650572702" target="freeweibo-mirror">//@云中鹤138://@hehuanlinzhao: //…</a>
-</h2>
-<p>//@云中鹤138://@hehuanlinzhao: //@我们那许山河私帝王://@Patista-58://@荒漠O甘泉:[转发]//@星风辉辰:转发微博<br><br>RE: 俩月，雷洋命断小中产、徐纯合纪念、汶川纪念、柳丝、深圳漂亮小姐妹、浦东航站楼、湖南高速大客、夏霖开庭、盐城、乌坎、仙桃、潜江、上海养老金、张志明金的代表人民、兰州殡仪及香港的党庆生....卡桑德拉大桥总在思绪中闪念。“主人，那SB又讲话啦！主人，那SB又讲话啦！”不听，让SB去死！[怒][怒]<br><img src="http://ww1.sinaimg.cn/large/006g9Eiejw1f5enqeyrpdj30j60eaju1.jpg"></p>
-<p>
-	<small> ============== 12小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3992532364444186" target="freeweibo-mirror">孙老师，您觉得这是出于理想主义么?为了纯净人民的思想</a>
-</h2>
-<p>孙老师，您觉得这是出于理想主义么?为了纯净人民的思想<br><br>RE: 【中国的防火墙是不是弄反了？】出去拍照，爬过几次长城，发现一个规律：长城都是朝外即朝向敌人的那一面险峻，敌人爬上来不容易；而朝内即朝向自己的这一面都比较平缓，自己上去防御比较容易。而现在中国的防火墙呢？好像是专门和自己过不去，自己出去不容易，敌人轻易进来却不管。这是不是弄反了呢？<br><img src="http://ww1.sinaimg.cn/large/408bb143jw1f5en40kym3j21kw11ynj5.jpg"></p>
 <p>
 	<small> ============== 12小时前</small>
 </p>
