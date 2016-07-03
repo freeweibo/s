@@ -89,7 +89,7 @@
 </h2>
 <p>//@孙万宝: //@律师王学明:那群老百姓已经蹲下举手投降了，警察依然在狠狠的打，我艹！ //@夙生律师事务所:转发微博<br><br>RE: 禄步被警察包围，并且民众被打伤 http://t.cn/R5nROca .</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3993241160155897" target="freeweibo-mirror">//@孙万宝: //@October十月君://@Kevin…</a>
 </h2>
