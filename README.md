@@ -47,11 +47,17 @@
 </h2>
 <p>//@就在这里V://@V猛小蛇家纺V:能转发/@钰玉裕:转发微博<br><br>RE: 主流媒体不敢批判政客，却把笔头对准百姓；国家军队不去保国卫民，却助纣为虐；博士专家不去问责政权，却把责任推给民众；艺术文人不去捍卫自由，却把愚昧灌输底层；亿兆纳税不去提高民生，却把巨资赠与番邦；下流草根不去争取权利，却把希望寄托于所谓明君！<br><img src="http://ww1.sinaimg.cn/large/8f5a4a73jw1f5gldqj4t0j20b40fmmxs.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3993131764437606" target="freeweibo-mirror">SPAM [偷笑]我了个去，我居然把手伸进了同桌的校裤里了！…</a>
 </h2>
 <p>SPAM [偷笑]我了个去，我居然把手伸进了同桌的校裤里了！！！[doge]<br><img src="http://ww2.sinaimg.cn/large/6b2b208ejw1f5glyk8b2ej20b99uze81.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3993126727391700" target="freeweibo-mirror">主流媒体不敢批判政客，却把笔头对准百姓；国家军队不去保国卫民…</a>
+</h2>
+<p>主流媒体不敢批判政客，却把笔头对准百姓；国家军队不去保国卫民，却助纣为虐；博士专家不去问责政权，却把责任推给民众；艺术文人不去捍卫自由，却把愚昧灌输底层；亿兆纳税不去提高民生，却把巨资赠与番邦；下流草根不去争取权利，却把希望寄托于所谓明君！<br><img src="http://ww1.sinaimg.cn/large/8f5a4a73jw1f5gldqj4t0j20b40fmmxs.jpg"></p>
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
@@ -83,7 +89,7 @@
 </h2>
 <p>SPAM 她被赤身裸体扔在青楼门口，全身青紫，血流不止，随后一个举动却惊呆众人…… http://t.cn/R5nS3iF</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3993033421061070" target="freeweibo-mirror">2016年7月3日，四年又112天！为书记祈福，祈盼书记早日…</a>
 </h2>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3992916579577413" target="freeweibo-mirror">//@刘子粱: //@活捉死老鼠: //@赣B_自油博报: …</a>
 </h2>
 <p>//@刘子粱: //@活捉死老鼠: //@赣B_自油博报: 附议!<br><br>RE: 警察的工资是公务员里最高的，仅次于军人，平时还要到洗头房足疗店去打牙祭罚嫖娼，去强拆的现场捞外快！这么好的差事还拿捏着哭诉，这不是矫情嘛！你不干，就悄悄脱下警服，到工地去搬砖，到工厂去做工，到街上去摆摊，要么就到互联网去创业，总之社会上有的是让你施展才华的天地，你抹滴神马眼泪，辞...全文： http://m.weibo.cn/3742897543/3992772836339061<br><img src="http://ww1.sinaimg.cn/large/df181587jw1f5fgq20zn8j20h50jr7ci.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3992916411910784" target="freeweibo-mirror">SPAM 同意点赞  想瘦找她@胖西西的瘦身日志</a>
-</h2>
-<p>SPAM 同意点赞  想瘦找她@胖西西的瘦身日志</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
