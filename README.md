@@ -35,13 +35,13 @@
 </h2>
 <p>现在原因也有了。</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3993314136768815" target="freeweibo-mirror">王毅外长：中国的人权怎么样，中国人民最有发言权。。。</a>
 </h2>
 <p>王毅外长：中国的人权怎么样，中国人民最有发言权。。。</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3993312136944683" target="freeweibo-mirror">//@戆夫子30:这逼国家哪一天不在制造贻笑大方的国际丑闻？…</a>
 </h2>
@@ -131,7 +131,7 @@
 </h2>
 <p>SPAM //@孤荷斋:[衰][衰][衰]<br><br>RE: 刚爆出！手无寸铁还都抱头蹲下了，这也打？不是说好依法执法吗[怒][怒]，坐等又怎么洗？ 速看！速转！[怒]http://t.cn/R5nuHJr .</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3993298617583459" target="freeweibo-mirror">SPAM //@大鹏论天下:唉…[吃惊][吃惊]</a>
 </h2>
