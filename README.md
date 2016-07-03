@@ -71,13 +71,13 @@
 </h2>
 <p>打人就象抽鸦片一样，会上瘾的。我对警察和他们的家人说。<br><br>RE: 终于忍不住动手了，面对手无寸铁的老百姓，警棍挥舞。[怒]关注:2016.7.3号广东省肇庆市禄步镇垃圾焚烧场事件。转发声援[话筒] http://t.cn/R5nHiE9</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3993194079759620" target="freeweibo-mirror">[怒]这肯定发生在台湾省。</a>
 </h2>
 <p>[怒]这肯定发生在台湾省。<br><br>RE: 这才是为人民服务，使劲学吧！ http://t.cn/R5n8NTt .</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3993193009833732" target="freeweibo-mirror">[怒][怒][怒]所有反動派都是紙老虎！一一毛澤東#微博时评…</a>
 </h2>
@@ -107,7 +107,7 @@
 </h2>
 <p>终于忍不住动手了，面对手无寸铁的老百姓，警棍挥舞。[怒]关注:2016.7.3号广东省肇庆市禄步镇垃圾焚烧场事件。转发声援[话筒] http://t.cn/R5nHiE9</p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3993178098773011" target="freeweibo-mirror">SPAM 自信满满！[哈哈][哈哈][哈哈]//@刘志强律师…</a>
 </h2>
