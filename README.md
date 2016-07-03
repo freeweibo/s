@@ -35,13 +35,13 @@
 </h2>
 <p>//@公民小尘: //@营口81岁被劳教://@高先生0703: //@阿依土豪公主://@浴过天情://@泣血的白杨: //@北京的齐爷:转发微博<br><br>RE: 肇庆禄步不得了啊，好几千特警部队落来镇压，听说冲突不断，有打人受伤。就因为焚烧垃圾？#肇庆禄步# http://t.cn/R5nBagt .</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3993266674385642" target="freeweibo-mirror">SPAM [怒]//@半张碟: //@胡淑芬:天哪//@胡戈…</a>
 </h2>
 <p>SPAM [怒]//@半张碟: //@胡淑芬:天哪//@胡戈: //@子夜的昙4: 天哪！ //@KaFuoVoVoVo://@林北塞林木: //@奇文玉兄三世://@九段II://@DazooA://@B2B2C研究IV:法西斯！//@仰嶽Admire仰嶽: [话筒]//@mad987://@金轮法王新号:[围观]<br><br>RE: 分享也是帮助！ http://t.cn/R5nuccy .</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3993265205700141" target="freeweibo-mirror">SPAM [思考]我只是不明白……为啥人都蹲成一排了走回来还…</a>
 </h2>
@@ -107,13 +107,13 @@
 </h2>
 <p>[吃惊]//@陪你看日出---凯歌:2016.7.3号广东省肇庆市禄步镇垃圾焚烧场事件。<br><br>RE: 第一问：这是哪？第二问：为嘛？ http://t.cn/R5n8NTt</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3993236224043569" target="freeweibo-mirror">毛泽东的能耐：制造了8300万冤魂，3000万件冤案。</a>
 </h2>
 <p>毛泽东的能耐：制造了8300万冤魂，3000万件冤案。<br><img src="http://ww4.sinaimg.cn/large/006f0euxgw1f5gxxgo0zuj30qo4iann2.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3993235112470554" target="freeweibo-mirror">肇庆禄步不得了啊，好几千特警部队落来镇压，听说冲突不断，有打…</a>
 </h2>
