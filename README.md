@@ -59,7 +59,7 @@
 </h2>
 <p>SPAM 葵花宝典。[doge]<br><br>RE: 原来是这样啊！<br><img src="http://ww4.sinaimg.cn/large/617fc8a9jw1f5gn7yvmfaj20hs0jstaq.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3993178354597139" target="freeweibo-mirror">终于忍不住动手了，面对手无寸铁的老百姓，警棍挥舞。[怒]关注…</a>
 </h2>
@@ -89,7 +89,7 @@
 </h2>
 <p>SPAM 哈哈哈哈～太坏。</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3993164055961607" target="freeweibo-mirror">[哈哈] //@张晨初艺术空间://@龙绳勋://@罗昌平:…</a>
 </h2>
@@ -131,7 +131,7 @@
 </h2>
 <p>西方宁愿接纳穆斯林也不接纳共产主义，结果被杀的的嗷嗷叫！[哈哈][哈哈][哈哈][哈哈][哈哈][哈哈]，现在后悔莫及啊！//@刘忠世: 呵呵。//@草根播报_: [good][good][good]当然了，其他国家共产党大部分被消灭了，中共当然是</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3993147598392095" target="freeweibo-mirror">7月3日，广东省肇庆市高要区禄步镇，大批群众上街抗议将于该镇…</a>
 </h2>
