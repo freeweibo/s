@@ -19,6 +19,24 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3993102119021561" target="freeweibo-mirror">SPAM //@阿米尓mzd: [蛋糕][心]//@坚持追寻…</a>
+</h2>
+<p>SPAM //@阿米尓mzd: [蛋糕][心]//@坚持追寻正义2://@中国心J://@易原原微博:@思想火炬 @旗帜 @军报记者 //@思念的银杏树ADA:[蛋糕][蛋糕][蛋糕][心][心][心]</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3993099951130126" target="freeweibo-mirror">SPAM [蛋糕][心]//@坚持追寻正义2://@中国心J…</a>
+</h2>
+<p>SPAM [蛋糕][心]//@坚持追寻正义2://@中国心J://@易原原微博:@思想火炬 @旗帜 @军报记者 //@思念的银杏树ADA:[蛋糕][蛋糕][蛋糕][心][心][心]</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3993033421061070" target="freeweibo-mirror">2016年7月3日，四年又112天！为书记祈福，祈盼书记早日…</a>
+</h2>
+<p>2016年7月3日，四年又112天！为书记祈福，祈盼书记早日归来！[心][心][心][心][心][心]<br><img src="http://ww3.sinaimg.cn/large/006tcUeBgw1f5fzuhc8fcj311r0qo0yx.jpg"></p>
+<p>
+	<small> ============== 6小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3992937120106772" target="freeweibo-mirror">SPAM //@鹰眼看世界13: //@傻哥说醉话:感谢博主…</a>
 </h2>
 <p>SPAM //@鹰眼看世界13: //@傻哥说醉话:感谢博主帮俺扩散~//@独有英雄驱虎豹V: //@捍卫千木灵芝释放全桂林: [心][心][心]<br><br>RE: 老帅哥[心][心][心][心][伤心][伤心][伤心][伤心]<br><img src="http://ww4.sinaimg.cn/large/0065lrTljw1f5fvrw7zxej30qo1begwi.jpg"></p>
@@ -118,24 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3992886632937346" target="freeweibo-mirror">昨天下午，王铮老师一行六人，前往秦城监狱为薄公送去生日鲜花和…</a>
 </h2>
 <p>昨天下午，王铮老师一行六人，前往秦城监狱为薄公送去生日鲜花和贺卡，并成功将礼物交由武警收转。[围观][good][心][鲜花][给力][赞][威武][爱你][话筒][话筒][话筒]@周瑾1963<br><img src="http://ww4.sinaimg.cn/large/006tcUeBgw1f5ftnmzsojj30k00ht0vf.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3992879674031054" target="freeweibo-mirror">//@三耳牛: 从雷死的那一刻起，警方就开始疯狂造假造势撒谎…</a>
-</h2>
-<p>//@三耳牛: 从雷死的那一刻起，警方就开始疯狂造假造势撒谎，可恶至极！//@司马3忌:在雷洋案的整个过程中，昌平警方的说辞粗劣不堪，还能动用CCTV、人日等国家级媒体背书，也算是肆无忌惮了//@三耳牛: 转出来，邢所长说谎那是板上钉钉的，为什么说谎？检察院说有妨碍侦查。为脱责掩真相，必然要说谎。</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3992868588830755" target="freeweibo-mirror">SPAM 毫不同情，很难相信是第一次做这种事。每种行业必须有…</a>
-</h2>
-<p>SPAM 毫不同情，很难相信是第一次做这种事。每种行业必须有起码的底线。//@伟荣V实说:自作孽不可活！<br><br>RE: 恶警的老婆在哭，我很开心<br><img src="http://ww3.sinaimg.cn/large/006wfsDQjw1f5etr9j8yvj30j63xh4d1.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3992858232747014" target="freeweibo-mirror">反动分子[弱]//@公民王海滨://@风雨中燕子归: 转发微…</a>
-</h2>
-<p>反动分子[弱]//@公民王海滨://@风雨中燕子归: 转发微博://@老辣陈香是五毛小人！ //@钟华敏律师:这可是刺裸裸的煽动民族仇恨罪 啊 可以立案吗？@胡混十年: 警察为何不击毙这个极端分子？<br><br>RE: 杭州民众抵制垃圾焚烧发电厂，与警察发生冲突，近40人受伤。对此，网民@老辣陈香 质问：警察为何不开枪？此言一出，舆论哗然，有人说，煽动警察对手无寸铁的民众开枪，居心叵测，唯恐天下不乱。这个极端分子叫陈玮麟，台州市委宣传部副调研员，网络中心主任，负责网上舆论引导工作。挂！<br><img src="http://ww4.sinaimg.cn/large/006eK794gw1f5fj07t0vmj30bi08jwez.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
