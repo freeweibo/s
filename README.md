@@ -83,7 +83,7 @@
 </h2>
 <p>这才是为人民服务，使劲学吧！ http://t.cn/R5n8NTt .</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3993185363320709" target="freeweibo-mirror">SPAM 葵花宝典。[doge]</a>
 </h2>
@@ -113,7 +113,7 @@
 </h2>
 <p>SPAM 真是超级不要脸<br><br>RE: 原来是这样啊！<br><img src="http://ww4.sinaimg.cn/large/617fc8a9jw1f5gn7yvmfaj20hs0jstaq.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3993169870336601" target="freeweibo-mirror">SPAM 哈哈哈哈～太坏。</a>
 </h2>
