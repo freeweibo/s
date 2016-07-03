@@ -19,6 +19,30 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3993295179355539" target="freeweibo-mirror">SPAM [鼓掌][good]虽千万人，吾往矣！</a>
+</h2>
+<p>SPAM [鼓掌][good]虽千万人，吾往矣！<br><br>RE: 昨天下午，薄友一行六人，前往秦城监狱为书记送去生日鲜花和贺卡，并成功将礼物留下，由武警收下！@李望知<br><img src="http://ww1.sinaimg.cn/large/005LAtKRjw1f5fu3h5binj30k00zkjsu.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3993293471590241" target="freeweibo-mirror">SPAM 对……就是不理解为什么蹲下了还要打……[思考]//…</a>
+</h2>
+<p>SPAM 对……就是不理解为什么蹲下了还要打……[思考]//@许丹:已经蹲下了，为什么还要打呢？<br><br>RE: 怎么回事？ http://t.cn/R5n1yXz .</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3993289243835928" target="freeweibo-mirror">法律何在？//@老太太00：//@堪萨斯的旋律: 棒打手无寸…</a>
+</h2>
+<p>法律何在？//@老太太00：//@堪萨斯的旋律: 棒打手无寸铁的群众真是令人发指！看不下去了[怒] //@李方平律师:不得了！ //@守望春天777://@法律人童朝平://@王敏竹--反计救国: //@广州城堡堡主:[吃惊]出手太狠了吧？ //@上海卡布:这是在打犯罪分子吗？<br><br>RE: 怎么回事？ http://t.cn/R5n1yXz .</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3993278007358468" target="freeweibo-mirror">SPAM //@砀山人_在上海X: 看到就转！</a>
+</h2>
+<p>SPAM //@砀山人_在上海X: 看到就转！<br><br>RE: 廣東高要市禄步鎮， 因當地政府興建垃圾焚燒發電廠，7月3日萬人和平示威，現場幾萬當地居民因保護家園向當地政府陳情抗議，而遭幾千城管特警毆打[怒][怒][怒]希望看到的都转发让更多人知道它们都干了些什么。http://t.cn/R5nnS1P http://t.cn/R5nuG2V</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3993274458751830" target="freeweibo-mirror">SPAM @MY-sheng潮品铺</a>
 </h2>
 <p>SPAM @MY-sheng潮品铺<br><img src="http://ww4.sinaimg.cn/large/70623bbbgw1f5h2cd6jf9j20m80m8t8w.jpg"></p>
@@ -89,7 +113,7 @@
 </h2>
 <p>//@好老虎:献礼么？！//@王鹏律师://@律师王学明:那群老百姓已经蹲下举手投降了，警察依然在狠狠的打，我艹！ //@夙生律师事务所:转发微博<br><br>RE: 禄步被警察包围，并且民众被打伤 http://t.cn/R5nROca .</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3993242796481510" target="freeweibo-mirror">//@孙万宝: //@律师王学明:那群老百姓已经蹲下举手投降…</a>
 </h2>
@@ -114,30 +138,6 @@
 <p>毛泽东的能耐：制造了8300万冤魂，3000万件冤案。<br><img src="http://ww4.sinaimg.cn/large/006f0euxgw1f5gxxgo0zuj30qo4iann2.jpg"></p>
 <p>
 	<small> ============== 5小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3993235112470554" target="freeweibo-mirror">肇庆禄步不得了啊，好几千特警部队落来镇压，听说冲突不断，有打…</a>
-</h2>
-<p>肇庆禄步不得了啊，好几千特警部队落来镇压，听说冲突不断，有打人受伤。就因为焚烧垃圾？#肇庆禄步# http://t.cn/R5nBagt .</p>
-<p>
-	<small> ============== 5小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3993234332683162" target="freeweibo-mirror">SPAM //@并行_: //@火麒麟-V:#受害者无端被杀…</a>
-</h2>
-<p>SPAM //@并行_: //@火麒麟-V:#受害者无端被杀儿子惨变孤儿#//@伟荣V实说://@小靓-铃兰鹿://@河南安阳马氏庄园://@小瘦驴儿100000:[衰] //@神游新回://@湖景龍魂74://@精日钟表-表哥:这是哪？//@原来的微博名称有点危险: //@顽强小草4A:转发微博<br><br>RE: 禄步游行 http://t.cn/R5nHM3N .</p>
-<p>
-	<small> ============== 5小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3993233858628295" target="freeweibo-mirror">SPAM //@赤峰龙腾: 转发微博</a>
-</h2>
-<p>SPAM //@赤峰龙腾: 转发微博<br><br>RE: #郁言詼語#【中國保護生態環境就這麼難嗎？】#微博时评团#廣東高要市禄步鎮， 因當地政府興建垃圾焚燒發電廠，7月3日萬人和平示威，現場幾萬當地居民因保護家園向當地政府陳情抗議，而遭幾千城管特警毆打。身在海外的我不明白，垃圾為什麼不掩埋？為什麼一定要大興土木興建焚燒發電廠來污染環境？為什...全文： http://m.weibo.cn/2476458562/3993217264798364</p>
-<p>
-	<small> ============== 5小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3993223749665330" target="freeweibo-mirror">陸方偵測到飛彈發射　外媒：習近平下令越界即摧毀 | 國際 |…</a>
-</h2>
-<p>陸方偵測到飛彈發射　外媒：習近平下令越界即摧毀 | 國際 | 三立新聞網  SETN.COM http://t.cn/R5EgXN8<br><img src="http://ww1.sinaimg.cn/large/89a78836jw1f5gwivc36jj20e607zweg.jpg"></p>
-<p>
-	<small> ============== 6小时前</small>
 </p>
 <table>
     <tr>
