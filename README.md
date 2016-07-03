@@ -71,13 +71,13 @@
 </h2>
 <p>//@公民小尘: //@营口81岁被劳教://@高先生0703: //@阿依土豪公主://@浴过天情://@泣血的白杨: //@北京的齐爷:转发微博<br><br>RE: 肇庆禄步不得了啊，好几千特警部队落来镇压，听说冲突不断，有打人受伤。就因为焚烧垃圾？#肇庆禄步# http://t.cn/R5nBagt .</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3993266674385642" target="freeweibo-mirror">SPAM [怒]//@半张碟: //@胡淑芬:天哪//@胡戈…</a>
 </h2>
 <p>SPAM [怒]//@半张碟: //@胡淑芬:天哪//@胡戈: //@子夜的昙4: 天哪！ //@KaFuoVoVoVo://@林北塞林木: //@奇文玉兄三世://@九段II://@DazooA://@B2B2C研究IV:法西斯！//@仰嶽Admire仰嶽: [话筒]//@mad987://@金轮法王新号:[围观]<br><br>RE: 分享也是帮助！ http://t.cn/R5nuccy .</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3993265671347638" target="freeweibo-mirror">http://t.cn/R5nDagU，停建还有这样的？这是…</a>
 </h2>
