@@ -43,6 +43,12 @@
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3993178354597139" target="freeweibo-mirror">终于忍不住动手了，面对手无寸铁的老百姓，警棍挥舞。[怒]关注…</a>
+</h2>
+<p>终于忍不住动手了，面对手无寸铁的老百姓，警棍挥舞。[怒]关注:2016.7.3号广东省肇庆市禄步镇垃圾焚烧场事件。转发声援[话筒] http://t.cn/R5nHiE9</p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3993178098773011" target="freeweibo-mirror">SPAM 自信满满！[哈哈][哈哈][哈哈]//@刘志强律师…</a>
 </h2>
 <p>SPAM 自信满满！[哈哈][哈哈][哈哈]//@刘志强律师:天哪！饿的神。 //@落雪视点:[赞][赞]<br><br>RE: 原来是这样啊！<br><img src="http://ww4.sinaimg.cn/large/617fc8a9jw1f5gn7yvmfaj20hs0jstaq.jpg"></p>
@@ -59,7 +65,7 @@
 </h2>
 <p>SPAM 真是超级不要脸<br><br>RE: 原来是这样啊！<br><img src="http://ww4.sinaimg.cn/large/617fc8a9jw1f5gn7yvmfaj20hs0jstaq.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3993169870336601" target="freeweibo-mirror">SPAM 哈哈哈哈～太坏。</a>
 </h2>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3993142749110500" target="freeweibo-mirror">原来是这样啊！</a>
 </h2>
 <p>原来是这样啊！<br><img src="http://ww4.sinaimg.cn/large/617fc8a9jw1f5gn7yvmfaj20hs0jstaq.jpg"></p>
-<p>
-	<small> ============== 5小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3993142673539096" target="freeweibo-mirror">//@潘采夫:最后那个“提一下”，意境全出。//@侯虹斌: …</a>
-</h2>
-<p>//@潘采夫:最后那个“提一下”，意境全出。//@侯虹斌: 太祖焉能跟高祖比，今上又怎么配给武帝提鞋？经历虽相似，然而汉前朝数位皇帝均是推动社会和历史发展的；当朝所为，恰恰相反。<br><br>RE: 转：话说当年秦军入关屠戮中原，刘邦游而不击，江东项公才是抗秦主力。项公巨鹿等大型会战九战九捷，刘邦打过什么大会战?一分抗秦二分应付七分发展。抗秦胜利后鸿门协定，项公仁慈放走刘邦，不料刘邦忘恩负义，发动广武，荥阳，垓下三大战役夺了天下。 刘邦登基后，北上白登见匈奴单于，对慈父和亲俯首...全文： http://m.weibo.cn/1667274237/3992810976106193</p>
 <p>
 	<small> ============== 5小时前</small>
 </p>
