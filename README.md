@@ -103,6 +103,12 @@
 <p>
 	<small> ============== 4小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3993236224043569" target="freeweibo-mirror">毛泽东的能耐：制造了8300万冤魂，3000万件冤案。</a>
+</h2>
+<p>毛泽东的能耐：制造了8300万冤魂，3000万件冤案。<br><img src="http://ww4.sinaimg.cn/large/006f0euxgw1f5gxxgo0zuj30qo4iann2.jpg"></p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3993235112470554" target="freeweibo-mirror">肇庆禄步不得了啊，好几千特警部队落来镇压，听说冲突不断，有打…</a>
 </h2>
 <p>肇庆禄步不得了啊，好几千特警部队落来镇压，听说冲突不断，有打人受伤。就因为焚烧垃圾？#肇庆禄步# http://t.cn/R5nBagt .</p>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3993219220495505" target="freeweibo-mirror">立功了。 //@李鸿文在深圳:视民众为草芥，视民众为仇寇。/…</a>
 </h2>
 <p>立功了。 //@李鸿文在深圳:视民众为草芥，视民众为仇寇。//@白垩纪之猛犸象: 境外敌对势力的军队自己侵入内地了？没有报道呀？//@恩泽://@活捉死老鼠:没有报仇就没有进步。<br><br>RE: 这才是为人民服务，使劲学吧！ http://t.cn/R5n8NTt .</p>
-<p>
-	<small> ============== 5小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3993217638658000" target="freeweibo-mirror">//@勤奋的少平2: //@坐淫神棍:那姿勢，帥呆了！[互相…</a>
-</h2>
-<p>//@勤奋的少平2: //@坐淫神棍:那姿勢，帥呆了！[互相膜拜]你們要轉發嗎？[疑问]/@坐淫神棍 [感冒]//@牛的海:CCTV  环球们，来来来，快快评论一下，这些美国警察对不反抗的美国人民施暴了，美国的人权需要注意了！不评论，美国很快就会删帖了！//@晓雨闻铃: 为毛？<br><br>RE: 这才是为人民服务，使劲学吧！ http://t.cn/R5n8NTt .</p>
 <p>
 	<small> ============== 5小时前</small>
 </p>
