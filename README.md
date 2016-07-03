@@ -29,7 +29,7 @@
 </h2>
 <p>SPAM [思考]我只是不明白……为啥人都蹲成一排了走回来还要打，不理解……//@梦晨伤:。。。。。//@胡淑芬:天哪//@胡戈: //@子夜的昙4: 天哪！ //@KaFuoVoVoVo://@林北塞林木: //@奇文玉兄三世://@九段II://@DazooA://@B2B2C研究IV:法西斯！//@仰嶽Admire仰嶽: [话筒]//@mad987://@金轮法王新号:[围观]<br><br>RE: 分享也是帮助！ http://t.cn/R5nuccy .</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3993264107699068" target="freeweibo-mirror">SPAM 据说高要 //@中国阿桑奇:这是什么地方？//@A…</a>
 </h2>
@@ -119,7 +119,7 @@
 </h2>
 <p>打倒法西斯！我分享了@孙万宝 的视频 http://t.cn/R5n8NTt</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3993198953097273" target="freeweibo-mirror">//@江湖侠客吴仲湛: 打人就象抽鸦片一样，会上瘾的。我对警…</a>
 </h2>
