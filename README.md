@@ -41,7 +41,7 @@
 </h2>
 <p>SPAM 这么热的天！终于找到适合我的短发了！[泪]</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3992918408144679" target="freeweibo-mirror">SPAM 和苍蝇比也算清官了。//@醉眠柳岸: 整个庭审过程…</a>
 </h2>
