@@ -95,19 +95,19 @@
 </h2>
 <p>SPAM @广东政法 @公安部刑侦局 ，谁该负责，谁对纳税人负责？<br><br>RE: 网传廣東高要市禄步鎮， 因當地政府興建垃圾焚燒發電廠，7月3日萬人和平示威，現場幾萬當地居民因保護家園向當地政府陳情抗議，而遭幾千城管特警毆打。求视频真伪，等当地政府通稿！[话筒]@露涼- @秦岭二月 @西子丹67 #探索发现##朋友圈分享##搞笑内涵图# http://t.cn/R5nr6W2 .</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3993264455946809" target="freeweibo-mirror">SPAM 国民党反动派//@瓦当://@胡淑芬: 天哪//@…</a>
 </h2>
 <p>SPAM 国民党反动派//@瓦当://@胡淑芬: 天哪//@胡戈: //@子夜的昙4: 天哪！ //@KaFuoVoVoVo://@林北塞林木: //@奇文玉兄三世://@九段II://@DazooA://@B2B2C研究IV:法西斯！//@仰嶽Admire仰嶽: [话筒]//@mad987://@金轮法王新号:[围观]<br><br>RE: 分享也是帮助！ http://t.cn/R5nuccy .</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3993264107699068" target="freeweibo-mirror">SPAM 据说高要 //@中国阿桑奇:这是什么地方？//@A…</a>
 </h2>
 <p>SPAM 据说高要 //@中国阿桑奇:这是什么地方？//@A杨晶: //@大地黄牛:再转<br><br>RE: 分享也是帮助！ http://t.cn/R5nuccy .</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3993263411539347" target="freeweibo-mirror">SPAM //@大地黄牛:再转</a>
 </h2>
