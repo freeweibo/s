@@ -47,7 +47,7 @@
 </h2>
 <p>SPAM 和苍蝇比也算清官了。//@醉眠柳岸: 整个庭审过程仔细看了，真正说不清楚的钱才十数万。把政治，阴谋，犯罪加私生活私德放一边，相对来说薄是现在少有的清官。<br><br>RE: 昨天下午，王铮老师一行六人，前往秦城监狱为薄公送去生日鲜花和贺卡，并成功将礼物交由武警收转。[围观][good][心][鲜花][给力][赞][威武][爱你][话筒][话筒][话筒]@周瑾1963<br><img src="http://ww4.sinaimg.cn/large/006tcUeBgw1f5ftnmzsojj30k00ht0vf.jpg"></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3992916579577413" target="freeweibo-mirror">//@刘子粱: //@活捉死老鼠: //@赣B_自油博报: …</a>
 </h2>
@@ -95,7 +95,7 @@
 </h2>
 <p>老帅哥[心][心][心][心][伤心][伤心][伤心][伤心]<br><img src="http://ww4.sinaimg.cn/large/0065lrTljw1f5fvrw7zxej30qo1begwi.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3992897529025024" target="freeweibo-mirror">楼下大爷说：秦皇汉武独裁时代，一句话说不好就会掉脑袋，但历史…</a>
 </h2>
