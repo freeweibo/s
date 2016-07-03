@@ -29,7 +29,7 @@
 </h2>
 <p>SPAM 脸好太多了 太厉害了 @中草药配方祛痘</p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3992925194633576" target="freeweibo-mirror">//@剑哥传奇://@小道信息: //@刘子粱: //@活捉…</a>
 </h2>
@@ -95,7 +95,7 @@
 </h2>
 <p>老帅哥[心][心][心][心][伤心][伤心][伤心][伤心]<br><img src="http://ww4.sinaimg.cn/large/0065lrTljw1f5fvrw7zxej30qo1begwi.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3992897529025024" target="freeweibo-mirror">楼下大爷说：秦皇汉武独裁时代，一句话说不好就会掉脑袋，但历史…</a>
 </h2>
