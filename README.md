@@ -73,6 +73,12 @@
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3993223749665330" target="freeweibo-mirror">陸方偵測到飛彈發射　外媒：習近平下令越界即摧毀 | 國際 |…</a>
+</h2>
+<p>陸方偵測到飛彈發射　外媒：習近平下令越界即摧毀 | 國際 | 三立新聞網  SETN.COM http://t.cn/R5EgXN8<br><img src="http://ww1.sinaimg.cn/large/89a78836jw1f5gwivc36jj20e607zweg.jpg"></p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3993219220495505" target="freeweibo-mirror">立功了。 //@李鸿文在深圳:视民众为草芥，视民众为仇寇。/…</a>
 </h2>
 <p>立功了。 //@李鸿文在深圳:视民众为草芥，视民众为仇寇。//@白垩纪之猛犸象: 境外敌对势力的军队自己侵入内地了？没有报道呀？//@恩泽://@活捉死老鼠:没有报仇就没有进步。<br><br>RE: 这才是为人民服务，使劲学吧！ http://t.cn/R5n8NTt .</p>
@@ -90,6 +96,12 @@
 <p>#郁言詼語#【中國保護生態環境就這麼難嗎？】#微博时评团#廣東高要市禄步鎮， 因當地政府興建垃圾焚燒發電廠，7月3日萬人和平示威，現場幾萬當地居民因保護家園向當地政府陳情抗議，而遭幾千城管特警毆打。身在海外的我不明白，垃圾為什麼不掩埋？為什麼一定要大興土木興建焚燒發電廠來污染環境？為什...全文： http://m.weibo.cn/2476458562/3993217264798364</p>
 <p>
 	<small> ============== 4小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3993214765302085" target="freeweibo-mirror">分享也是帮助！ http://t.cn/R5nuccy .</a>
+</h2>
+<p>分享也是帮助！ http://t.cn/R5nuccy .</p>
+<p>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3993205005993869" target="freeweibo-mirror">打倒法西斯！我分享了@孙万宝 的视频 http://t.cn…</a>
 </h2>
@@ -124,18 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3993194255618579" target="freeweibo-mirror">打人就象抽鸦片一样，会上瘾的。我对警察和他们的家人说。</a>
 </h2>
 <p>打人就象抽鸦片一样，会上瘾的。我对警察和他们的家人说。<br><br>RE: 终于忍不住动手了，面对手无寸铁的老百姓，警棍挥舞。[怒]关注:2016.7.3号广东省肇庆市禄步镇垃圾焚烧场事件。转发声援[话筒] http://t.cn/R5nHiE9</p>
-<p>
-	<small> ============== 6小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3993194079759620" target="freeweibo-mirror">[怒]这肯定发生在台湾省。</a>
-</h2>
-<p>[怒]这肯定发生在台湾省。<br><br>RE: 这才是为人民服务，使劲学吧！ http://t.cn/R5n8NTt .</p>
-<p>
-	<small> ============== 6小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3993193009833732" target="freeweibo-mirror">[怒][怒][怒]所有反動派都是紙老虎！一一毛澤東#微博时评…</a>
-</h2>
-<p>[怒][怒][怒]所有反動派都是紙老虎！一一毛澤東#微博时评团##郁言詼語##助愛回家##微博打赏#//@第一现场热播:老百姓都跪下屈服于淫威了！你们还不放过？这帮杂碎[怒][弱]怒转扩散[话筒]<br><br>RE: 终于忍不住动手了，面对手无寸铁的老百姓，警棍挥舞。[怒]关注:2016.7.3号广东省肇庆市禄步镇垃圾焚烧场事件。转发声援[话筒] http://t.cn/R5nHiE9</p>
 <p>
 	<small> ============== 6小时前</small>
 </p>
