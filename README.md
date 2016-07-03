@@ -29,7 +29,7 @@
 </h2>
 <p>SPAM 对……就是不理解为什么蹲下了还要打……[思考]//@许丹:已经蹲下了，为什么还要打呢？<br><br>RE: 怎么回事？ http://t.cn/R5n1yXz .</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3993289243835928" target="freeweibo-mirror">法律何在？//@老太太00：//@堪萨斯的旋律: 棒打手无寸…</a>
 </h2>
@@ -37,11 +37,23 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3993284210311661" target="freeweibo-mirror">→_→//@不沉默的大多数:【7月1日起，六种执法公安机关必…</a>
+</h2>
+<p>→_→//@不沉默的大多数:【7月1日起，六种执法公安机关必须音视频记录？】①6种执法：接受群众报警或110指令后处警，当场盘问、检查，处置重大突发事件、群体性事件等；②自到达现场开始执法直至执法结束时停止 @公安部打四黑除四害 广东这起执法属于六种情况吗？当地警察是不是不归公安部管？<br><br>RE: 怎么回事？ http://t.cn/R5n1yXz .</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3993281266142284" target="freeweibo-mirror">【7月1日起，六种执法公安机关必须音视频记录？】①6种执法：…</a>
+</h2>
+<p>【7月1日起，六种执法公安机关必须音视频记录？】①6种执法：接受群众报警或110指令后处警，当场盘问、检查，处置重大突发事件、群体性事件等；②自到达现场开始执法直至执法结束时停止 @公安部打四黑除四害 广东这起执法属于六种情况吗？当地警察是不是不归公安部管？<br><br>RE: 怎么回事？ http://t.cn/R5n1yXz .</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3993278007358468" target="freeweibo-mirror">SPAM //@砀山人_在上海X: 看到就转！</a>
 </h2>
 <p>SPAM //@砀山人_在上海X: 看到就转！<br><br>RE: 廣東高要市禄步鎮， 因當地政府興建垃圾焚燒發電廠，7月3日萬人和平示威，現場幾萬當地居民因保護家園向當地政府陳情抗議，而遭幾千城管特警毆打[怒][怒][怒]希望看到的都转发让更多人知道它们都干了些什么。http://t.cn/R5nnS1P http://t.cn/R5nuG2V</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3993274458751830" target="freeweibo-mirror">SPAM @MY-sheng潮品铺</a>
 </h2>
@@ -67,9 +79,21 @@
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3993265671347638" target="freeweibo-mirror">http://t.cn/R5nDagU，停建还有这样的？这是…</a>
+</h2>
+<p>http://t.cn/R5nDagU，停建还有这样的？这是在报复吗？   http://t.cn/R5nDag4 //@苏湘迅:@广东政法 @公安部刑侦局 ，谁该负责，谁对纳税人负责？<br><br>RE: 网传廣東高要市禄步鎮， 因當地政府興建垃圾焚燒發電廠，7月3日萬人和平示威，現場幾萬當地居民因保護家園向當地政府陳情抗議，而遭幾千城管特警毆打。求视频真伪，等当地政府通稿！[话筒]@露涼- @秦岭二月 @西子丹67 #探索发现##朋友圈分享##搞笑内涵图# http://t.cn/R5nr6W2 .</p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3993265205700141" target="freeweibo-mirror">SPAM [思考]我只是不明白……为啥人都蹲成一排了走回来还…</a>
 </h2>
 <p>SPAM [思考]我只是不明白……为啥人都蹲成一排了走回来还要打，不理解……//@梦晨伤:。。。。。//@胡淑芬:天哪//@胡戈: //@子夜的昙4: 天哪！ //@KaFuoVoVoVo://@林北塞林木: //@奇文玉兄三世://@九段II://@DazooA://@B2B2C研究IV:法西斯！//@仰嶽Admire仰嶽: [话筒]//@mad987://@金轮法王新号:[围观]<br><br>RE: 分享也是帮助！ http://t.cn/R5nuccy .</p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3993264530832768" target="freeweibo-mirror">SPAM @广东政法 @公安部刑侦局 ，谁该负责，谁对纳税人…</a>
+</h2>
+<p>SPAM @广东政法 @公安部刑侦局 ，谁该负责，谁对纳税人负责？<br><br>RE: 网传廣東高要市禄步鎮， 因當地政府興建垃圾焚燒發電廠，7月3日萬人和平示威，現場幾萬當地居民因保護家園向當地政府陳情抗議，而遭幾千城管特警毆打。求视频真伪，等当地政府通稿！[话筒]@露涼- @秦岭二月 @西子丹67 #探索发现##朋友圈分享##搞笑内涵图# http://t.cn/R5nr6W2 .</p>
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
@@ -89,13 +113,19 @@
 </h2>
 <p>SPAM //@大地黄牛:再转<br><br>RE: 分享也是帮助！ http://t.cn/R5nuccy .</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3993263037919848" target="freeweibo-mirror">SPAM 。。。。。//@胡淑芬:天哪//@胡戈: //@子…</a>
 </h2>
 <p>SPAM 。。。。。//@胡淑芬:天哪//@胡戈: //@子夜的昙4: 天哪！ //@KaFuoVoVoVo://@林北塞林木: //@奇文玉兄三世://@九段II://@DazooA://@B2B2C研究IV:法西斯！//@仰嶽Admire仰嶽: [话筒]//@mad987://@金轮法王新号:[围观]<br><br>RE: 分享也是帮助！ http://t.cn/R5nuccy .</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3993261309646084" target="freeweibo-mirror">[吃惊]//@昕静自然好://@胡坤821:刚转过，被删了。…</a>
+</h2>
+<p>[吃惊]//@昕静自然好://@胡坤821:刚转过，被删了。速度。//@何光伟: //@法律人童朝平://@王敏竹--反计救国: //@广州城堡堡主:[吃惊]出手太狠了吧？ //@上海卡布:这是在打犯罪分子吗？<br><br>RE: 怎么回事？ http://t.cn/R5n1yXz .</p>
+<p>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3993261166864208" target="freeweibo-mirror">SPAM //@白总黑皇后喵星人:确实如此。我们要花几乎一半…</a>
 </h2>
@@ -108,36 +138,6 @@
 <p>SPAM 阅读原文：http://t.cn/R5n6K1O</p>
 <p>
 	<small> ============== 4小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3993255781427005" target="freeweibo-mirror">//@好老虎:献礼么？！//@王鹏律师://@律师王学明:那…</a>
-</h2>
-<p>//@好老虎:献礼么？！//@王鹏律师://@律师王学明:那群老百姓已经蹲下举手投降了，警察依然在狠狠的打，我艹！ //@夙生律师事务所:转发微博<br><br>RE: 禄步被警察包围，并且民众被打伤 http://t.cn/R5nROca .</p>
-<p>
-	<small> ============== 4小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3993250404641783" target="freeweibo-mirror">廣東高要市禄步鎮， 因當地政府興建垃圾焚燒發電廠，7月3日萬…</a>
-</h2>
-<p>廣東高要市禄步鎮， 因當地政府興建垃圾焚燒發電廠，7月3日萬人和平示威，現場幾萬當地居民因保護家園向當地政府陳情抗議，而遭幾千城管特警毆打[怒][怒][怒]希望看到的都转发让更多人知道它们都干了些什么。http://t.cn/R5nnS1P http://t.cn/R5nuG2V</p>
-<p>
-	<small> ============== 4小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3993244716770142" target="freeweibo-mirror">//@自儆自省: //@何光伟://@法律人童朝平://@王…</a>
-</h2>
-<p>//@自儆自省: //@何光伟://@法律人童朝平://@王敏竹--反计救国: //@广州城堡堡主:[吃惊]出手太狠了吧？ //@上海卡布:这是在打犯罪分子吗？<br><br>RE: 怎么回事？ http://t.cn/R5n1yXz .</p>
-<p>
-	<small> ============== 5小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3993243257240183" target="freeweibo-mirror">//@王敏竹--反计救国: //@广州城堡堡主:[吃惊]出手…</a>
-</h2>
-<p>//@王敏竹--反计救国: //@广州城堡堡主:[吃惊]出手太狠了吧？ //@上海卡布:这是在打犯罪分子吗？<br><br>RE: 怎么回事？ http://t.cn/R5n1yXz .</p>
-<p>
-	<small> ============== 5小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3993242959408496" target="freeweibo-mirror">//@孙万宝: 这些畜生用棍子为人民服务！</a>
-</h2>
-<p>//@孙万宝: 这些畜生用棍子为人民服务！<br><br>RE: 什么情况如此…… http://t.cn/R5nBtsA .</p>
-<p>
-	<small> ============== 5小时前</small>
 </p>
 <table>
     <tr>
