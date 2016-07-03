@@ -67,6 +67,12 @@
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3993274538152003" target="freeweibo-mirror">//@记者-薛洪涛:转发微博</a>
+</h2>
+<p>//@记者-薛洪涛:转发微博<br><br>RE: 有些人总说美国警察会怎么执法，这事如果真发生在持抢合法的美国，谁能保证警察会在几万人的示威中不留下几具尸体？广东省高要市禄步镇7～3事件，民众反对在镇上建垃圾焚烧发电厂 http://t.cn/R5nuccy</p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3993274458751830" target="freeweibo-mirror">SPAM @MY-sheng潮品铺</a>
 </h2>
 <p>SPAM @MY-sheng潮品铺<br><img src="http://ww4.sinaimg.cn/large/70623bbbgw1f5h2cd6jf9j20m80m8t8w.jpg"></p>
@@ -77,7 +83,7 @@
 </h2>
 <p>//@剑君DV://@蘇聯滅亡的那年聖誕喝醉了:毛一死，八億人民就能吃飽，就憑這點就「偉大」的不得了，不信，誰死個給我瞧瞧。<br><br>RE: 毛泽东的能耐：制造了8300万冤魂，3000万件冤案。<br><img src="http://ww4.sinaimg.cn/large/006f0euxgw1f5gxxgo0zuj30qo4iann2.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3993267286529108" target="freeweibo-mirror">//@公民小尘: //@营口81岁被劳教://@高先生070…</a>
 </h2>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3993263037919848" target="freeweibo-mirror">SPAM 。。。。。//@胡淑芬:天哪//@胡戈: //@子…</a>
 </h2>
 <p>SPAM 。。。。。//@胡淑芬:天哪//@胡戈: //@子夜的昙4: 天哪！ //@KaFuoVoVoVo://@林北塞林木: //@奇文玉兄三世://@九段II://@DazooA://@B2B2C研究IV:法西斯！//@仰嶽Admire仰嶽: [话筒]//@mad987://@金轮法王新号:[围观]<br><br>RE: 分享也是帮助！ http://t.cn/R5nuccy .</p>
-<p>
-	<small> ============== 4小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3993261309646084" target="freeweibo-mirror">[吃惊]//@昕静自然好://@胡坤821:刚转过，被删了。…</a>
-</h2>
-<p>[吃惊]//@昕静自然好://@胡坤821:刚转过，被删了。速度。//@何光伟: //@法律人童朝平://@王敏竹--反计救国: //@广州城堡堡主:[吃惊]出手太狠了吧？ //@上海卡布:这是在打犯罪分子吗？<br><br>RE: 怎么回事？ http://t.cn/R5n1yXz .</p>
 <p>
 	<small> ============== 4小时前</small>
 </p>
