@@ -53,13 +53,13 @@
 </h2>
 <p>//@刘子粱: //@活捉死老鼠: //@赣B_自油博报: 附议!<br><br>RE: 警察的工资是公务员里最高的，仅次于军人，平时还要到洗头房足疗店去打牙祭罚嫖娼，去强拆的现场捞外快！这么好的差事还拿捏着哭诉，这不是矫情嘛！你不干，就悄悄脱下警服，到工地去搬砖，到工厂去做工，到街上去摆摊，要么就到互联网去创业，总之社会上有的是让你施展才华的天地，你抹滴神马眼泪，辞...全文： http://m.weibo.cn/3742897543/3992772836339061<br><img src="http://ww1.sinaimg.cn/large/df181587jw1f5fgq20zn8j20h50jr7ci.jpg"></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3992916411910784" target="freeweibo-mirror">SPAM 同意点赞  想瘦找她@胖西西的瘦身日志</a>
 </h2>
 <p>SPAM 同意点赞  想瘦找她@胖西西的瘦身日志</p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3992915535420503" target="freeweibo-mirror">那个时候不会从小学到大学都洗脑！教育政治化是教育的退化。//…</a>
 </h2>
@@ -107,7 +107,7 @@
 </h2>
 <p>【从穹顶之下到牢狱之中？】连柴静都要被喝茶，这个社会定没救了。<br><img src="http://ww3.sinaimg.cn/large/93acee78gw1f5fuomtj34j20ci0k4dgw.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3992888528788727" target="freeweibo-mirror">SPAM 转载：中共，为什么总书记总是在叛党？ 第一任陈独秀…</a>
 </h2>
