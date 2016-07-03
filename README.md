@@ -19,6 +19,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3993272181450370" target="freeweibo-mirror">//@剑君DV://@蘇聯滅亡的那年聖誕喝醉了:毛一死，八億…</a>
+</h2>
+<p>//@剑君DV://@蘇聯滅亡的那年聖誕喝醉了:毛一死，八億人民就能吃飽，就憑這點就「偉大」的不得了，不信，誰死個給我瞧瞧。<br><br>RE: 毛泽东的能耐：制造了8300万冤魂，3000万件冤案。<br><img src="http://ww4.sinaimg.cn/large/006f0euxgw1f5gxxgo0zuj30qo4iann2.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3993266674385642" target="freeweibo-mirror">SPAM [怒]//@半张碟: //@胡淑芬:天哪//@胡戈…</a>
 </h2>
 <p>SPAM [怒]//@半张碟: //@胡淑芬:天哪//@胡戈: //@子夜的昙4: 天哪！ //@KaFuoVoVoVo://@林北塞林木: //@奇文玉兄三世://@九段II://@DazooA://@B2B2C研究IV:法西斯！//@仰嶽Admire仰嶽: [话筒]//@mad987://@金轮法王新号:[围观]<br><br>RE: 分享也是帮助！ http://t.cn/R5nuccy .</p>
@@ -53,7 +59,7 @@
 </h2>
 <p>//@好老虎:献礼么？！//@王鹏律师://@律师王学明:那群老百姓已经蹲下举手投降了，警察依然在狠狠的打，我艹！ //@夙生律师事务所:转发微博<br><br>RE: 禄步被警察包围，并且民众被打伤 http://t.cn/R5nROca .</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3993242796481510" target="freeweibo-mirror">//@孙万宝: //@律师王学明:那群老百姓已经蹲下举手投降…</a>
 </h2>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3993198953097273" target="freeweibo-mirror">//@江湖侠客吴仲湛: 打人就象抽鸦片一样，会上瘾的。我对警…</a>
 </h2>
 <p>//@江湖侠客吴仲湛: 打人就象抽鸦片一样，会上瘾的。我对警察和他们的家人说。<br><br>RE: 终于忍不住动手了，面对手无寸铁的老百姓，警棍挥舞。[怒]关注:2016.7.3号广东省肇庆市禄步镇垃圾焚烧场事件。转发声援[话筒] http://t.cn/R5nHiE9</p>
-<p>
-	<small> ============== 6小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3993198122610080" target="freeweibo-mirror">看来穿制服的也分成冲在前面的和躲在后面的。</a>
-</h2>
-<p>看来穿制服的也分成冲在前面的和躲在后面的。<br><br>RE: 终于忍不住动手了，面对手无寸铁的老百姓，警棍挥舞。[怒]关注:2016.7.3号广东省肇庆市禄步镇垃圾焚烧场事件。转发声援[话筒] http://t.cn/R5nHiE9</p>
 <p>
 	<small> ============== 6小时前</small>
 </p>
