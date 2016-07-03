@@ -47,7 +47,7 @@
 </h2>
 <p>SPAM [思考]我只是不明白……为啥人都蹲成一排了走回来还要打，不理解……//@梦晨伤:。。。。。//@胡淑芬:天哪//@胡戈: //@子夜的昙4: 天哪！ //@KaFuoVoVoVo://@林北塞林木: //@奇文玉兄三世://@九段II://@DazooA://@B2B2C研究IV:法西斯！//@仰嶽Admire仰嶽: [话筒]//@mad987://@金轮法王新号:[围观]<br><br>RE: 分享也是帮助！ http://t.cn/R5nuccy .</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3993264455946809" target="freeweibo-mirror">SPAM 国民党反动派//@瓦当://@胡淑芬: 天哪//@…</a>
 </h2>
@@ -119,7 +119,7 @@
 </h2>
 <p>肇庆禄步不得了啊，好几千特警部队落来镇压，听说冲突不断，有打人受伤。就因为焚烧垃圾？#肇庆禄步# http://t.cn/R5nBagt .</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3993234332683162" target="freeweibo-mirror">SPAM //@并行_: //@火麒麟-V:#受害者无端被杀…</a>
 </h2>
