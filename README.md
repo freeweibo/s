@@ -35,7 +35,7 @@
 </h2>
 <p>2016年7月3日，四年又112天！为书记祈福，祈盼书记早日归来！[心][心][心][心][心][心]<br><img src="http://ww3.sinaimg.cn/large/006tcUeBgw1f5fzuhc8fcj311r0qo0yx.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3992937120106772" target="freeweibo-mirror">SPAM //@鹰眼看世界13: //@傻哥说醉话:感谢博主…</a>
 </h2>
