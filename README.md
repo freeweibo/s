@@ -23,7 +23,7 @@
 </h2>
 <p>SPAM [怒]//@半张碟: //@胡淑芬:天哪//@胡戈: //@子夜的昙4: 天哪！ //@KaFuoVoVoVo://@林北塞林木: //@奇文玉兄三世://@九段II://@DazooA://@B2B2C研究IV:法西斯！//@仰嶽Admire仰嶽: [话筒]//@mad987://@金轮法王新号:[围观]<br><br>RE: 分享也是帮助！ http://t.cn/R5nuccy .</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3993265205700141" target="freeweibo-mirror">SPAM [思考]我只是不明白……为啥人都蹲成一排了走回来还…</a>
 </h2>
@@ -71,7 +71,7 @@
 </h2>
 <p>[吃惊]//@陪你看日出---凯歌:2016.7.3号广东省肇庆市禄步镇垃圾焚烧场事件。<br><br>RE: 第一问：这是哪？第二问：为嘛？ http://t.cn/R5n8NTt</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3993234332683162" target="freeweibo-mirror">SPAM //@并行_: //@火麒麟-V:#受害者无端被杀…</a>
 </h2>
