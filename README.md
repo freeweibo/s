@@ -85,6 +85,12 @@
 <p>
 	<small> ============== 4小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3993268590571439" target="freeweibo-mirror">#警察暴力执法# 广东省高要市禄步镇7.3事件，民众反对在镇…</a>
+</h2>
+<p>#警察暴力执法# 广东省高要市禄步镇7.3事件，民众反对在镇上建垃圾焚烧发电厂。 警察使用警械是有严格规定的，当嫌疑人放弃抵抗且服从命令，警察必须终止武力。而从视频中可以看到，警察就像土匪一样肆意妄为，置党纪国法于不顾甚至是恶意践踏法律。 http://t.cn/R5nkqbV .</p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3993267286529108" target="freeweibo-mirror">//@公民小尘: //@营口81岁被劳教://@高先生070…</a>
 </h2>
 <p>//@公民小尘: //@营口81岁被劳教://@高先生0703: //@阿依土豪公主://@浴过天情://@泣血的白杨: //@北京的齐爷:转发微博<br><br>RE: 肇庆禄步不得了啊，好几千特警部队落来镇压，听说冲突不断，有打人受伤。就因为焚烧垃圾？#肇庆禄步# http://t.cn/R5nBagt .</p>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3993263411539347" target="freeweibo-mirror">SPAM //@大地黄牛:再转</a>
 </h2>
 <p>SPAM //@大地黄牛:再转<br><br>RE: 分享也是帮助！ http://t.cn/R5nuccy .</p>
-<p>
-	<small> ============== 4小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3993263037919848" target="freeweibo-mirror">SPAM 。。。。。//@胡淑芬:天哪//@胡戈: //@子…</a>
-</h2>
-<p>SPAM 。。。。。//@胡淑芬:天哪//@胡戈: //@子夜的昙4: 天哪！ //@KaFuoVoVoVo://@林北塞林木: //@奇文玉兄三世://@九段II://@DazooA://@B2B2C研究IV:法西斯！//@仰嶽Admire仰嶽: [话筒]//@mad987://@金轮法王新号:[围观]<br><br>RE: 分享也是帮助！ http://t.cn/R5nuccy .</p>
 <p>
 	<small> ============== 4小时前</small>
 </p>
