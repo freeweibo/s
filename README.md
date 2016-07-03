@@ -23,7 +23,7 @@
 </h2>
 <p>SPAM [鼓掌][good]虽千万人，吾往矣！<br><br>RE: 昨天下午，薄友一行六人，前往秦城监狱为书记送去生日鲜花和贺卡，并成功将礼物留下，由武警收下！@李望知<br><img src="http://ww1.sinaimg.cn/large/005LAtKRjw1f5fu3h5binj30k00zkjsu.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3993293471590241" target="freeweibo-mirror">SPAM 对……就是不理解为什么蹲下了还要打……[思考]//…</a>
 </h2>
@@ -47,7 +47,7 @@
 </h2>
 <p>【7月1日起，六种执法公安机关必须音视频记录？】①6种执法：接受群众报警或110指令后处警，当场盘问、检查，处置重大突发事件、群体性事件等；②自到达现场开始执法直至执法结束时停止 @公安部打四黑除四害 广东这起执法属于六种情况吗？当地警察是不是不归公安部管？<br><br>RE: 怎么回事？ http://t.cn/R5n1yXz .</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3993278007358468" target="freeweibo-mirror">SPAM //@砀山人_在上海X: 看到就转！</a>
 </h2>
@@ -83,13 +83,13 @@
 </h2>
 <p>http://t.cn/R5nDagU，停建还有这样的？这是在报复吗？   http://t.cn/R5nDag4 //@苏湘迅:@广东政法 @公安部刑侦局 ，谁该负责，谁对纳税人负责？<br><br>RE: 网传廣東高要市禄步鎮， 因當地政府興建垃圾焚燒發電廠，7月3日萬人和平示威，現場幾萬當地居民因保護家園向當地政府陳情抗議，而遭幾千城管特警毆打。求视频真伪，等当地政府通稿！[话筒]@露涼- @秦岭二月 @西子丹67 #探索发现##朋友圈分享##搞笑内涵图# http://t.cn/R5nr6W2 .</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3993265205700141" target="freeweibo-mirror">SPAM [思考]我只是不明白……为啥人都蹲成一排了走回来还…</a>
 </h2>
 <p>SPAM [思考]我只是不明白……为啥人都蹲成一排了走回来还要打，不理解……//@梦晨伤:。。。。。//@胡淑芬:天哪//@胡戈: //@子夜的昙4: 天哪！ //@KaFuoVoVoVo://@林北塞林木: //@奇文玉兄三世://@九段II://@DazooA://@B2B2C研究IV:法西斯！//@仰嶽Admire仰嶽: [话筒]//@mad987://@金轮法王新号:[围观]<br><br>RE: 分享也是帮助！ http://t.cn/R5nuccy .</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3993264530832768" target="freeweibo-mirror">SPAM @广东政法 @公安部刑侦局 ，谁该负责，谁对纳税人…</a>
 </h2>
