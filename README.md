@@ -89,7 +89,7 @@
 </h2>
 <p>7月3日，广东省肇庆市高要区禄步镇，大批群众上街抗议将于该镇岗头仔村建造的垃圾焚烧发电厂项目。该垃圾发电厂离西江仅一公里，下游是肇庆、广州等城市。传有逾千警察进驻禄步镇，封锁321国道，禁止广州肇庆方向车辆进入禄步。<br><img src="http://ww4.sinaimg.cn/large/006lFkk8jw1f5gnrwk2aaj30ch0m8wfy.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3993144913684817" target="freeweibo-mirror">.//@魔鬼的狂欢日922B://@佛道合一: //@中国心…</a>
 </h2>
@@ -137,7 +137,7 @@
 </h2>
 <p>SPAM [偷笑]我了个去，我居然把手伸进了同桌的校裤里了！！！[doge]<br><img src="http://ww2.sinaimg.cn/large/6b2b208ejw1f5glyk8b2ej20b99uze81.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p>
 <table>
     <tr>
