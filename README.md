@@ -35,7 +35,7 @@
 </h2>
 <p>法律何在？//@老太太00：//@堪萨斯的旋律: 棒打手无寸铁的群众真是令人发指！看不下去了[怒] //@李方平律师:不得了！ //@守望春天777://@法律人童朝平://@王敏竹--反计救国: //@广州城堡堡主:[吃惊]出手太狠了吧？ //@上海卡布:这是在打犯罪分子吗？<br><br>RE: 怎么回事？ http://t.cn/R5n1yXz .</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3993284583421238" target="freeweibo-mirror">//@竹三风:见过日本鬼子，但你见过中国鬼子吗？哪一种鬼子才…</a>
 </h2>
@@ -71,13 +71,13 @@
 </h2>
 <p>//@记者-薛洪涛:转发微博<br><br>RE: 有些人总说美国警察会怎么执法，这事如果真发生在持抢合法的美国，谁能保证警察会在几万人的示威中不留下几具尸体？广东省高要市禄步镇7～3事件，民众反对在镇上建垃圾焚烧发电厂 http://t.cn/R5nuccy</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3993274458751830" target="freeweibo-mirror">SPAM @MY-sheng潮品铺</a>
 </h2>
 <p>SPAM @MY-sheng潮品铺<br><img src="http://ww4.sinaimg.cn/large/70623bbbgw1f5h2cd6jf9j20m80m8t8w.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3993272181450370" target="freeweibo-mirror">//@剑君DV://@蘇聯滅亡的那年聖誕喝醉了:毛一死，八億…</a>
 </h2>
