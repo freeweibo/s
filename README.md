@@ -107,7 +107,7 @@
 </h2>
 <p>SPAM //@-笑看-:他不是少先队[偷笑]//@独上江楼-: //@半瓶酒4-网易: //@代号刀锋987: //@仰望星空lol:希望的种子[赞]<br><br>RE: 围观轮子采访香港小学生政治达人[笑cry] http://t.cn/R5nqmYC</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3993171077578733" target="freeweibo-mirror">SPAM 真是超级不要脸</a>
 </h2>
