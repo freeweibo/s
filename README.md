@@ -53,7 +53,7 @@
 </h2>
 <p>//@剑君DV://@蘇聯滅亡的那年聖誕喝醉了:毛一死，八億人民就能吃飽，就憑這點就「偉大」的不得了，不信，誰死個給我瞧瞧。<br><br>RE: 毛泽东的能耐：制造了8300万冤魂，3000万件冤案。<br><img src="http://ww4.sinaimg.cn/large/006f0euxgw1f5gxxgo0zuj30qo4iann2.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3993267286529108" target="freeweibo-mirror">//@公民小尘: //@营口81岁被劳教://@高先生070…</a>
 </h2>
@@ -107,11 +107,29 @@
 </h2>
 <p>SPAM 阅读原文：http://t.cn/R5n6K1O</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3993255781427005" target="freeweibo-mirror">//@好老虎:献礼么？！//@王鹏律师://@律师王学明:那…</a>
 </h2>
 <p>//@好老虎:献礼么？！//@王鹏律师://@律师王学明:那群老百姓已经蹲下举手投降了，警察依然在狠狠的打，我艹！ //@夙生律师事务所:转发微博<br><br>RE: 禄步被警察包围，并且民众被打伤 http://t.cn/R5nROca .</p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3993244716770142" target="freeweibo-mirror">//@自儆自省: //@何光伟://@法律人童朝平://@王…</a>
+</h2>
+<p>//@自儆自省: //@何光伟://@法律人童朝平://@王敏竹--反计救国: //@广州城堡堡主:[吃惊]出手太狠了吧？ //@上海卡布:这是在打犯罪分子吗？<br><br>RE: 怎么回事？ http://t.cn/R5n1yXz .</p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3993243257240183" target="freeweibo-mirror">//@王敏竹--反计救国: //@广州城堡堡主:[吃惊]出手…</a>
+</h2>
+<p>//@王敏竹--反计救国: //@广州城堡堡主:[吃惊]出手太狠了吧？ //@上海卡布:这是在打犯罪分子吗？<br><br>RE: 怎么回事？ http://t.cn/R5n1yXz .</p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3993242959408496" target="freeweibo-mirror">//@孙万宝: 这些畜生用棍子为人民服务！</a>
+</h2>
+<p>//@孙万宝: 这些畜生用棍子为人民服务！<br><br>RE: 什么情况如此…… http://t.cn/R5nBtsA .</p>
 <p>
 	<small> ============== 4小时前</small>
 </p><h2>
@@ -120,24 +138,6 @@
 <p>//@孙万宝: //@律师王学明:那群老百姓已经蹲下举手投降了，警察依然在狠狠的打，我艹！ //@夙生律师事务所:转发微博<br><br>RE: 禄步被警察包围，并且民众被打伤 http://t.cn/R5nROca .</p>
 <p>
 	<small> ============== 4小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3993241160155897" target="freeweibo-mirror">//@孙万宝: //@October十月君://@Kevin…</a>
-</h2>
-<p>//@孙万宝: //@October十月君://@Kevin-2018: //@砀山人_在上海X:这视频删不掉的！[怒]发脸书了！<br><br>RE: 打倒法西斯！我分享了@孙万宝 的视频 http://t.cn/R5n8NTt</p>
-<p>
-	<small> ============== 4小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3993237096700323" target="freeweibo-mirror">[吃惊]//@陪你看日出---凯歌:2016.7.3号广东省…</a>
-</h2>
-<p>[吃惊]//@陪你看日出---凯歌:2016.7.3号广东省肇庆市禄步镇垃圾焚烧场事件。<br><br>RE: 第一问：这是哪？第二问：为嘛？ http://t.cn/R5n8NTt</p>
-<p>
-	<small> ============== 5小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3993236224043569" target="freeweibo-mirror">毛泽东的能耐：制造了8300万冤魂，3000万件冤案。</a>
-</h2>
-<p>毛泽东的能耐：制造了8300万冤魂，3000万件冤案。<br><img src="http://ww4.sinaimg.cn/large/006f0euxgw1f5gxxgo0zuj30qo4iann2.jpg"></p>
-<p>
-	<small> ============== 5小时前</small>
 </p>
 <table>
     <tr>
