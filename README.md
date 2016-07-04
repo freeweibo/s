@@ -19,6 +19,18 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3993455107522261" target="freeweibo-mirror">国军就是不如共军威武。下跪，对共军是永远不可能的。//@李方…</a>
+</h2>
+<p>国军就是不如共军威武。下跪，对共军是永远不可能的。//@李方平律师:需要这样的国家军队。<br><br>RE: 【国军官兵长跪40分钟灵前谢罪】误发导弹贯通渔船致渔民一死三伤，台湾金江舰舰长帅三名肇事官兵到受害者家中长跪40分钟谢罪。解放军会如何？<br><img src="http://ww3.sinaimg.cn/large/6a80bfcdgw1f5hmc2e1fij20jy0eqdig.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3993454042813710" target="freeweibo-mirror">需要这样的国家军队。</a>
+</h2>
+<p>需要这样的国家军队。<br><br>RE: 【国军官兵长跪40分钟灵前谢罪】误发导弹贯通渔船致渔民一死三伤，台湾金江舰舰长帅三名肇事官兵到受害者家中长跪40分钟谢罪。解放军会如何？<br><img src="http://ww3.sinaimg.cn/large/6a80bfcdgw1f5hmc2e1fij20jy0eqdig.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3993452843251001" target="freeweibo-mirror">//@顾肃: //@ICO刘开明: 转发微博</a>
 </h2>
 <p>//@顾肃: //@ICO刘开明: 转发微博<br><br>RE: 【国军官兵长跪40分钟灵前谢罪】误发导弹贯通渔船致渔民一死三伤，台湾金江舰舰长帅三名肇事官兵到受害者家中长跪40分钟谢罪。解放军会如何？<br><img src="http://ww3.sinaimg.cn/large/6a80bfcdgw1f5hmc2e1fij20jy0eqdig.jpg"></p>
@@ -126,18 +138,6 @@
 <p>【对手随便瞎说，自己都不让说】中国的萱萱主管机关真牛逼，你们是，管宣传的高高手，干宣传的大蠢货。<br><img src="http://ww4.sinaimg.cn/large/53ae0b70gw1f5hh09j96jj20ip09xglw.jpg"></p>
 <p>
 	<small> ============== 5小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3993316691730526" target="freeweibo-mirror">SPAM //@作家沙光:[伤心] [怒] 太过分了！</a>
-</h2>
-<p>SPAM //@作家沙光:[伤心] [怒] 太过分了！<br><br>RE: 刚爆出！手无寸铁还都抱头蹲下了，这也打？不是说好依法执法吗[怒][怒]，坐等又怎么洗？ 速看！速转！[怒]http://t.cn/R5nuHJr .</p>
-<p>
-	<small> ============== 10小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3993316154191229" target="freeweibo-mirror">SPAM 比皇军狠多了！ //@重出江湖68://@一壶老酒…</a>
-</h2>
-<p>SPAM 比皇军狠多了！ //@重出江湖68://@一壶老酒醉美人: //@西子丹67: [伤心][伤心][伤心]@于建嵘  @清华孙立平 @迟夙生律师 @陈光武律师 @传媒老王 @杨建国  @董藩 @鹏媒体赵鹏  @大尸凶的漫画 @周李城 @广州区伯 @连线记者 @特约记者邓百华 @王海 @李鸣生 @米家那个山</p>
-<p>
-	<small> ============== 10小时前</small>
 </p>
 <table>
     <tr>
