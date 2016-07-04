@@ -23,7 +23,7 @@
 </h2>
 <p>SPAM 【好文分享】1、你绝对想不到：4个裸 女打麻将的油画暗含的惊世的秘密！2、你已被移出群聊！3、震惊：谁编的，这才是知识大全，绝对要收藏！4、“神秘”女子震惊世界，更让人震惊的是她背后的男人！ 5、 邓丽君已转世的真相轰动华人 圈 。。。。更多精彩请添加关注：zhebsls<br><img src="http://ww4.sinaimg.cn/large/a4aae570jw1f5hvijzd83j20ku112dig.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3993509969119318" target="freeweibo-mirror">SPAM 真不是我存心想黑哈...... http://t.…</a>
 </h2>
@@ -83,7 +83,7 @@
 </h2>
 <p>//@顾肃: //@ICO刘开明: 转发微博<br><br>RE: 【国军官兵长跪40分钟灵前谢罪】误发导弹贯通渔船致渔民一死三伤，台湾金江舰舰长帅三名肇事官兵到受害者家中长跪40分钟谢罪。解放军会如何？<br><img src="http://ww3.sinaimg.cn/large/6a80bfcdgw1f5hmc2e1fij20jy0eqdig.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3993451148367823" target="freeweibo-mirror">这贴没必要删吧？把中国建立成一个自由民主的国家，不正是当年老…</a>
 </h2>
