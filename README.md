@@ -71,7 +71,7 @@
 </h2>
 <p>国军就是不如共军威武。下跪，对共军是永远不可能的。//@李方平律师:需要这样的国家军队。<br><br>RE: 【国军官兵长跪40分钟灵前谢罪】误发导弹贯通渔船致渔民一死三伤，台湾金江舰舰长帅三名肇事官兵到受害者家中长跪40分钟谢罪。解放军会如何？<br><img src="http://ww3.sinaimg.cn/large/6a80bfcdgw1f5hmc2e1fij20jy0eqdig.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3993454042813710" target="freeweibo-mirror">需要这样的国家军队。</a>
 </h2>
