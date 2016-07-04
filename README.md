@@ -23,7 +23,7 @@
 </h2>
 <p>//@鱼儿闲谈: //@戎绒日记:转发微博<br><br>RE: 陕西省公安厅门口的上访（誰維穩誰？我看不懂）<br><img src="http://ww2.sinaimg.cn/large/006uBsw5jw1f5hy1g3d3vj30ku112q7z.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3993555414659017" target="freeweibo-mirror">SPAM //@卓越兄: 回复@朋友张运和:→_→//@朋友…</a>
 </h2>
@@ -125,7 +125,7 @@
 </h2>
 <p>这贴没必要删吧？把中国建立成一个自由民主的国家，不正是当年老一代革命家承诺的“初心”吗？<br><img src="http://ww3.sinaimg.cn/large/00666Omzjw1f5hmii8lc1j30qo0tgjwi.jpg"></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3993448590112895" target="freeweibo-mirror">【国军官兵长跪40分钟灵前谢罪】误发导弹贯通渔船致渔民一死三…</a>
 </h2>
