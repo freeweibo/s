@@ -65,7 +65,7 @@
 </h2>
 <p>【腐败分子们一个个服从判决，不上诉，对于依法治国来说，这究竟是一件好事呢，还是坏事？[疑问][思考]】[话筒]<br><img src="http://ww1.sinaimg.cn/large/6b2e7e57jw1f5i4tqlp7aj20fr0iwmz3.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3993606819994974" target="freeweibo-mirror">SPAM //@ZWF先森的微博://@国民女神勇敢的心02…</a>
 </h2>
