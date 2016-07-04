@@ -29,7 +29,7 @@
 </h2>
 <p>SPAM 真不是我存心想黑哈...... http://t.cn/R5mNlxi<br><br>RE: 多么熟悉的身影；没做亏心事，何必跟isis一样做蒙面人·····<br><img src="http://ww4.sinaimg.cn/large/005X3mKEgw1f5hopejukfj30hs0bfabh.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3993503971199411" target="freeweibo-mirror">SPAM 我们的孩子在党旗下宣誓呢！//@追唐-如东李忠: …</a>
 </h2>
@@ -131,7 +131,7 @@
 </h2>
 <p>SPAM 只有揭示雷洋案真相，公开公正公平地审判犯罪嫌疑人，追究那些消灭犯罪证据、做伪证、妨碍司法侦查的人的刑事责任，追究那些动用国家媒体为犯罪嫌疑人喊冤洗白的人的渎职罪，才能依法治国，平息汹涌舆情，安抚民心！</p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3993416913928383" target="freeweibo-mirror">//@我是个种田的乡下人: //@黄照旋:这种视频没有版权之…</a>
 </h2>
