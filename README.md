@@ -41,7 +41,7 @@
 </h2>
 <p>//@顾肃: //@ICO刘开明: 转发微博<br><br>RE: 【国军官兵长跪40分钟灵前谢罪】误发导弹贯通渔船致渔民一死三伤，台湾金江舰舰长帅三名肇事官兵到受害者家中长跪40分钟谢罪。解放军会如何？<br><img src="http://ww3.sinaimg.cn/large/6a80bfcdgw1f5hmc2e1fij20jy0eqdig.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3993451148367823" target="freeweibo-mirror">这贴没必要删吧？把中国建立成一个自由民主的国家，不正是当年老…</a>
 </h2>
