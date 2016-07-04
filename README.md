@@ -25,6 +25,12 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3993602986684485" target="freeweibo-mirror">毕竟年轻，较之康师傅，精神还比较饱满。[视频]令计划一审被判…</a>
+</h2>
+<p>毕竟年轻，较之康师傅，精神还比较饱满。[视频]令计划一审被判处无期徒刑_CCTV节目官网-CCTV-1_央视网(cctv.com) http://t.cn/R5mkjYk</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3993595846944192" target="freeweibo-mirror">SPAM 。。。 //@无聊至极type猴惨: 两岸一家亲 …</a>
 </h2>
 <p>SPAM 。。。 //@无聊至极type猴惨: 两岸一家亲    http://t.cn/R5mIePQ<br><br>RE: 妈的智障<br><img src="http://ww1.sinaimg.cn/large/44d8ed59gw1f5hlavwiyaj20dj0ndq73.jpg"></p>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3993457254590279" target="freeweibo-mirror">[吃惊][吃惊][吃惊] //@宛乡暖客:村民只是静坐，挨那…</a>
 </h2>
 <p>[吃惊][吃惊][吃惊] //@宛乡暖客:村民只是静坐，挨那么多打也没还手，也没逃跑。但他们好像是要守护什么东西，是什么给了他们勇气和力量。比绵羊还驯服的民族.究竟还要承受多少苦难。<br><br>RE: 网传的，我只是转发，不发表评论，这是哪里？http://t.cn/R5nuHJr .</p>
-<p>
-	<small> ============== 11小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3993455107522261" target="freeweibo-mirror">国军就是不如共军威武。下跪，对共军是永远不可能的。//@李方…</a>
-</h2>
-<p>国军就是不如共军威武。下跪，对共军是永远不可能的。//@李方平律师:需要这样的国家军队。<br><br>RE: 【国军官兵长跪40分钟灵前谢罪】误发导弹贯通渔船致渔民一死三伤，台湾金江舰舰长帅三名肇事官兵到受害者家中长跪40分钟谢罪。解放军会如何？<br><img src="http://ww3.sinaimg.cn/large/6a80bfcdgw1f5hmc2e1fij20jy0eqdig.jpg"></p>
 <p>
 	<small> ============== 12小时前</small>
 </p>
