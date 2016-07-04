@@ -19,6 +19,18 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3993606379409007" target="freeweibo-mirror">SPAM 那啥呀，正确的读音是líng计划，而不是lìng计…</a>
+</h2>
+<p>SPAM 那啥呀，正确的读音是líng计划，而不是lìng计划，审判长无须普通话读音一级甲等，但央视旁白配音能读对音吗？<br><br>RE: 毕竟年轻，较之康师傅，精神还比较饱满。[视频]令计划一审被判处无期徒刑_CCTV节目官网-CCTV-1_央视网(cctv.com) http://t.cn/R5mkjYk</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3993595846944192" target="freeweibo-mirror">SPAM 。。。 //@无聊至极type猴惨: 两岸一家亲 …</a>
+</h2>
+<p>SPAM 。。。 //@无聊至极type猴惨: 两岸一家亲    http://t.cn/R5mIePQ<br><br>RE: 妈的智障<br><img src="http://ww1.sinaimg.cn/large/44d8ed59gw1f5hlavwiyaj20dj0ndq73.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3993574804864374" target="freeweibo-mirror">SPAM 好像是有一个开壳锯直接切……//@殆知阁:我一直很…</a>
 </h2>
 <p>SPAM 好像是有一个开壳锯直接切……//@殆知阁:我一直很好奇这个缝是咋弄出来的。。//@荀夜羽: 回复@狗粮品鉴研究推广部部长:你不是一个人！！！//@狗粮品鉴研究推广部部长:牙齿咬崩一颗后发现有夹子[微笑]</p>
@@ -35,7 +47,7 @@
 </h2>
 <p>[哈哈]是不是敌对势力操纵的//@甘肃青年人微博: 警察蜀黍上访？武警官兵维稳？一出好戏！<br><br>RE: 陕西省公安厅门口的上访（誰維穩誰？我看不懂）<br><img src="http://ww2.sinaimg.cn/large/006uBsw5jw1f5hy1g3d3vj30ku112q7z.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3993555959480632" target="freeweibo-mirror">//@鱼儿闲谈: //@戎绒日记:转发微博</a>
 </h2>
@@ -113,7 +125,7 @@
 </h2>
 <p>“伟大”的三峡大坝，造价万亿，移民百万，上游多了一个平湖，下游多了两个草原；耕地少了三十万亩，园地少了十五万亩；中游沒了中华鲟，下游沒了白鳍豚；大船进不了重庆，小船到不了武汉；电价比以前更贵，水质比以前更糟；养肥一帮电老虎，喂饱一群水老鼠。（转发）<br><img src="http://ww3.sinaimg.cn/large/006uWcKojw1f5hohubu2ej30gk0m8wgg.jpg"></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3993457254590279" target="freeweibo-mirror">[吃惊][吃惊][吃惊] //@宛乡暖客:村民只是静坐，挨那…</a>
 </h2>
@@ -124,18 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3993455107522261" target="freeweibo-mirror">国军就是不如共军威武。下跪，对共军是永远不可能的。//@李方…</a>
 </h2>
 <p>国军就是不如共军威武。下跪，对共军是永远不可能的。//@李方平律师:需要这样的国家军队。<br><br>RE: 【国军官兵长跪40分钟灵前谢罪】误发导弹贯通渔船致渔民一死三伤，台湾金江舰舰长帅三名肇事官兵到受害者家中长跪40分钟谢罪。解放军会如何？<br><img src="http://ww3.sinaimg.cn/large/6a80bfcdgw1f5hmc2e1fij20jy0eqdig.jpg"></p>
-<p>
-	<small> ============== 11小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3993454042813710" target="freeweibo-mirror">需要这样的国家军队。</a>
-</h2>
-<p>需要这样的国家军队。<br><br>RE: 【国军官兵长跪40分钟灵前谢罪】误发导弹贯通渔船致渔民一死三伤，台湾金江舰舰长帅三名肇事官兵到受害者家中长跪40分钟谢罪。解放军会如何？<br><img src="http://ww3.sinaimg.cn/large/6a80bfcdgw1f5hmc2e1fij20jy0eqdig.jpg"></p>
-<p>
-	<small> ============== 11小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3993452843251001" target="freeweibo-mirror">//@顾肃: //@ICO刘开明: 转发微博</a>
-</h2>
-<p>//@顾肃: //@ICO刘开明: 转发微博<br><br>RE: 【国军官兵长跪40分钟灵前谢罪】误发导弹贯通渔船致渔民一死三伤，台湾金江舰舰长帅三名肇事官兵到受害者家中长跪40分钟谢罪。解放军会如何？<br><img src="http://ww3.sinaimg.cn/large/6a80bfcdgw1f5hmc2e1fij20jy0eqdig.jpg"></p>
 <p>
 	<small> ============== 11小时前</small>
 </p>
