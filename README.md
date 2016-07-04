@@ -101,7 +101,7 @@
 </h2>
 <p>畜生！//@徐昕:五毛快来洗地 //@三日散人:五毛速现急急如律令//@徐科律师://@王天定:这还是警察吗？<br><br>RE: 殴打抱头缩在角落里的民众，这些畜牲还是人吗？你们咋不上钓鱼岛？[怒][怒][怒] http://t.cn/R5n1a3S</p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3993431530825870" target="freeweibo-mirror">//@椒江叶Sir: 请@陈里 表态！ //@千钧客:【两种…</a>
 </h2>
@@ -113,7 +113,7 @@
 </h2>
 <p>SPAM 安全感是最低需求。</p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3993426918166316" target="freeweibo-mirror">SPAM //@翠花不在家://@俗家人释永乖: //@观者…</a>
 </h2>
