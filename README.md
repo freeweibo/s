@@ -35,7 +35,7 @@
 </h2>
 <p>SPAM 。。。 //@无聊至极type猴惨: 两岸一家亲    http://t.cn/R5mIePQ<br><br>RE: 妈的智障<br><img src="http://ww1.sinaimg.cn/large/44d8ed59gw1f5hlavwiyaj20dj0ndq73.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3993574804864374" target="freeweibo-mirror">SPAM 好像是有一个开壳锯直接切……//@殆知阁:我一直很…</a>
 </h2>
@@ -77,7 +77,7 @@
 </h2>
 <p>陕西省公安厅门口的上访（誰維穩誰？我看不懂）<br><img src="http://ww2.sinaimg.cn/large/006uBsw5jw1f5hy1g3d3vj30ku112q7z.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3993548858961810" target="freeweibo-mirror">令计划罪大恶极 ，按理说其毒害程度高过毒枭几十倍几百倍，有吧…</a>
 </h2>
