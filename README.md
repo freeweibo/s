@@ -59,7 +59,7 @@
 </h2>
 <p>“伟大”的三峡大坝，造价万亿，移民百万，上游多了一个平湖，下游多了两个草原；耕地少了三十万亩，园地少了十五万亩；中游沒了中华鲟，下游沒了白鳍豚；大船进不了重庆，小船到不了武汉；电价比以前更贵，水质比以前更糟；养肥一帮电老虎，喂饱一群水老鼠。（转发）<br><img src="http://ww3.sinaimg.cn/large/006uWcKojw1f5hohubu2ej30gk0m8wgg.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3993457254590279" target="freeweibo-mirror">[吃惊][吃惊][吃惊] //@宛乡暖客:村民只是静坐，挨那…</a>
 </h2>
