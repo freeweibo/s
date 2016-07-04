@@ -65,13 +65,13 @@
 </h2>
 <p>现在原因也有了。</p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3993314136768815" target="freeweibo-mirror">王毅外长：中国的人权怎么样，中国人民最有发言权。。。</a>
 </h2>
 <p>王毅外长：中国的人权怎么样，中国人民最有发言权。。。</p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3993312136944683" target="freeweibo-mirror">//@戆夫子30:这逼国家哪一天不在制造贻笑大方的国际丑闻？…</a>
 </h2>
