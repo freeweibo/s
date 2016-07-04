@@ -47,7 +47,7 @@
 </h2>
 <p>SPAM 那啥呀，正确的读音是líng计划，而不是lìng计划，审判长无须普通话读音一级甲等，但央视旁白配音能读对音吗？<br><br>RE: 毕竟年轻，较之康师傅，精神还比较饱满。[视频]令计划一审被判处无期徒刑_CCTV节目官网-CCTV-1_央视网(cctv.com) http://t.cn/R5mkjYk</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3993602986684485" target="freeweibo-mirror">毕竟年轻，较之康师傅，精神还比较饱满。[视频]令计划一审被判…</a>
 </h2>
