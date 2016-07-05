@@ -41,7 +41,7 @@
 </h2>
 <p>SPAM 潮人 [心]</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3994019338000147" target="freeweibo-mirror">此事不一般 //@天津马辛:转发微博</a>
 </h2>
@@ -97,6 +97,12 @@
 <p>
 	<small> ============== 5小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3994000476426082" target="freeweibo-mirror">【黑龙江绥芬河边防战士王增志 持枪杀人后逃跑】7月5日晚，网…</a>
+</h2>
+<p>【黑龙江绥芬河边防战士王增志 持枪杀人后逃跑】7月5日晚，网传一张《关于迅速对命案逃犯王增志开展查堵工作的通知》，称绥芬河边防战士王增志持枪杀人后逃跑，逃跑时身穿迷彩服，携带一把微冲，19发子弹。京华时报记者联系绥芬河边防检查站，对方确认该《通知》属实。（京华时报 ）...全文： http://m.weibo.cn/1642512402/3994000476426082<br><img src="http://ww3.sinaimg.cn/large/61e6c012gw1f5jdq7q15dj20dc0hs76a.jpg"></p>
+<p>
+	<small> ============== 6小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3994000010864772" target="freeweibo-mirror">SPAM //@小平崔律师://@LifeTime:小强在理…</a>
 </h2>
 <p>SPAM //@小平崔律师://@LifeTime:小强在理，有何用？</p>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3993995912361622" target="freeweibo-mirror">可以投票的话，我投李克强//@Vale_iOS: //@阑夕…</a>
 </h2>
 <p>可以投票的话，我投李克强//@Vale_iOS: //@阑夕:哈哈，原文的确如此：°习近平李克强分别对国企改革作出指示批示<br><br>RE: 分享图片<br><img src="http://ww3.sinaimg.cn/large/6322f7ddjw1f5j1wal01hj20ci0m8jth.jpg"></p>
-<p>
-	<small> ============== 6小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3993995250620716" target="freeweibo-mirror">第三✔️…//@望月轩听雨：这种新闻老百姓关心一点意义都没有…</a>
-</h2>
-<p>第三✔️…//@望月轩听雨：这种新闻老百姓关心一点意义都没有。老百姓关心有所居，有所养，有所医！<br><br>RE: 两位国家级大佬都服从判决，不上诉。这是否说明：1、他们真的认为判决事实清楚、证据确凿充分、量刑得当，而认罪服法；2、他们深知中国法律的本质，知道上诉没有用；3、已经判得够轻的了，再上诉都不好意思了。还有什么？<br><img src="http://ww4.sinaimg.cn/large/6cefc1a7jw1f5jc6jcavxj20b407o3zg.jpg"></p>
 <p>
 	<small> ============== 6小时前</small>
 </p>
