@@ -19,6 +19,18 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3993879487413922" target="freeweibo-mirror">这年头傻B真不多。//@李成腾讯: //@罗九经://@语关…</a>
+</h2>
+<p>这年头傻B真不多。//@李成腾讯: //@罗九经://@语关联2://@追唐-如东李忠://@西安路104号://@伊人憋住喔://@加m菲炮1314Cat: //@东郭-文奴儿://@戎绒日记:[话筒]<br><br>RE: 俄羅斯、委內瑞拉、津巴布韋等共同特徵是什麼？疑似有五：一、都在鬧經濟危機、通貨膨脹、貨幣貶值；二、都是中國人民的老朋友；三、都是抗美英雄；四、都在不斷撕毀與中方簽訂的各種合約；五、都在不斷逼迫中方為其經濟危機買單。<br><img src="http://ww1.sinaimg.cn/large/006tSYZjjw1f5iq92ptufg30co05k0tr.gif"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3993866689871047" target="freeweibo-mirror">一等洋人，二等官，三等少民，四等汉 //@FrostMapl…</a>
+</h2>
+<p>一等洋人，二等官，三等少民，四等汉 //@FrostMaple://@陈杰要骑车://@majorcheng: 为最右图//@王小东: [蜡烛]//@田地發:[蜡烛]//@人渣狐:[蜡烛]//@FYJS罐头鱼://@左岸听河:原博应该配这张图，原博图上左边那个被养猪场当场射杀，右边那个被判死刑[蜡烛]   http://t.cn/R5uaUpr<br><br>RE: 《无衣》：  十亿头颅如草芥， 蒙元恶律急相煎。  但歌盛世遮民怨， 凡怒不平成罪愆。  乡土年年洇血色， 山河寸寸染腥膻。  敲醒半世非非想， 与子同袍济世颠。 [蜡烛][拳头]<br><img src="http://ww1.sinaimg.cn/large/5162c2fdgw1f5ink4qyezj20gs0ohq6c.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3993860936521246" target="freeweibo-mirror">[蜡烛]//@田地發:[蜡烛]//@人渣狐:[蜡烛]//@天…</a>
 </h2>
 <p>[蜡烛]//@田地發:[蜡烛]//@人渣狐:[蜡烛]//@天真纯洁布列斯:[蜡烛] //@飞扬跋扈假黄瓜:[蜡烛]//@ronni_weng:[蜡烛] //@FYJS罐头鱼://@左岸听河:原博应该配这张图，原博图上左边那个被养猪场当场射杀，右边那个被判死刑[蜡烛] http://t.cn/R5uaUpr<br><br>RE: 《无衣》：  十亿头颅如草芥， 蒙元恶律急相煎。  但歌盛世遮民怨， 凡怒不平成罪愆。  乡土年年洇血色， 山河寸寸染腥膻。  敲醒半世非非想， 与子同袍济世颠。 [蜡烛][拳头]<br><img src="http://ww1.sinaimg.cn/large/5162c2fdgw1f5ink4qyezj20gs0ohq6c.jpg"></p>
@@ -126,18 +138,6 @@
 <p>《无衣》：  十亿头颅如草芥， 蒙元恶律急相煎。  但歌盛世遮民怨， 凡怒不平成罪愆。  乡土年年洇血色， 山河寸寸染腥膻。  敲醒半世非非想， 与子同袍济世颠。 [蜡烛][拳头]<br><img src="http://ww1.sinaimg.cn/large/5162c2fdgw1f5ink4qyezj20gs0ohq6c.jpg"></p>
 <p>
 	<small> ============== 8小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3993684397630773" target="freeweibo-mirror">SPAM 美鞋集市[心]</a>
-</h2>
-<p>SPAM 美鞋集市[心]</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3993676843238952" target="freeweibo-mirror">//@撩笔论天下://:@要点灯的人:你泄露了凳的私密@撩笔…</a>
-</h2>
-<p>//@撩笔论天下://:@要点灯的人:你泄露了凳的私密@撩笔论天下:为了一个家庭腐败,让社会腐败,拖党下水,使更多干部成为腐败主力军.所谓的邓公阴谋就是邓公设下的腐败圈套: 彻底反腐吧"亡党",不彻底反腐吧新中国受到威胁,要想彻底反腐还要真刀真枪发动群众,直捣官倒腐败巢穴才能破掉邓公设下腐败谜局<br><br>RE: 邓氏“先富论”，就是“一家吃饱，天下不饿”的强盗逻辑！<br><img src="http://ww1.sinaimg.cn/large/9fa72927jw1f5h49j8jcvj20ci082q3t.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
 </p>
 <table>
     <tr>
