@@ -65,13 +65,13 @@
 </h2>
 <p>SPAM //@鱼儿闲谈: 圣意难测，连中堂也犯错啊！//@自由的章鱼哥12://@仰嶽Admire仰嶽://@永远是多远老师://@私享乛家:老二是以实际出发发表言论//@金好多金: //@黄照旋:回复@火星人梅:回答正确！//@火星人梅:一胖一瘦[doge]<br><br>RE: 今天上午11点多， 中国政府网发了一条微博，不久却消失不见了，（这条被删的微博截图如下）。问：博主为什么删除？<br><img src="http://ww1.sinaimg.cn/large/6a83dd8egw1f5j6zngk63j20go0dlwgy.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3993997380917671" target="freeweibo-mirror">我总想不通，这么明白的问题为啥还要像小白鼠实验一样试了一次又…</a>
 </h2>
 <p>我总想不通，这么明白的问题为啥还要像小白鼠实验一样试了一次又一次？//@哪儿都不敏感: 想起《虎口脱险》里一句经典台词：“他们开始抓自己人了？！”//@静娅_:[吃惊][吃惊]九十年代的国企改制算咋回事？<br><br>RE: 这个官博居然也删除了。。。[吃惊]<br><img src="http://ww2.sinaimg.cn/large/593f5307jw1f5j3l9mmitj20k00zkdjj.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3993995250620716" target="freeweibo-mirror">第三✔️…//@望月轩听雨：这种新闻老百姓关心一点意义都没有…</a>
 </h2>
