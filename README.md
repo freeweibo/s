@@ -53,19 +53,19 @@
 </h2>
 <p>SPAM 评论有真相。真英雄！[作揖] //@广州城堡堡主:看了评论才知道怎么回事，英雄啊[good] //@防务君:[good]</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3993879499253219" target="freeweibo-mirror">SPAM 岂曰无衣？与子同袍。王于兴师，修我戈矛。与子同仇。…</a>
 </h2>
 <p>SPAM 岂曰无衣？与子同袍。王于兴师，修我戈矛。与子同仇。纪念欺侮事件遇难同胞[蜡烛]</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3993879487413922" target="freeweibo-mirror">这年头傻B真不多。//@李成腾讯: //@罗九经://@语关…</a>
 </h2>
 <p>这年头傻B真不多。//@李成腾讯: //@罗九经://@语关联2://@追唐-如东李忠://@西安路104号://@伊人憋住喔://@加m菲炮1314Cat: //@东郭-文奴儿://@戎绒日记:[话筒]<br><br>RE: 俄羅斯、委內瑞拉、津巴布韋等共同特徵是什麼？疑似有五：一、都在鬧經濟危機、通貨膨脹、貨幣貶值；二、都是中國人民的老朋友；三、都是抗美英雄；四、都在不斷撕毀與中方簽訂的各種合約；五、都在不斷逼迫中方為其經濟危機買單。<br><img src="http://ww1.sinaimg.cn/large/006tSYZjjw1f5iq92ptufg30co05k0tr.gif"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3993878669359874" target="freeweibo-mirror">貌合神离的所谓民族团结只能如此。//@北京麦子2010:这就…</a>
 </h2>
@@ -125,7 +125,7 @@
 </h2>
 <p>SPAM //@斯韦爵: 呵呵 //@天涯赵瑜:不忘初心，原来是这个意思啊。</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3993847715242671" target="freeweibo-mirror">SPAM 【那年，有个带头大哥】</a>
 </h2>
