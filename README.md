@@ -55,6 +55,12 @@
 <p>
 	<small> ============== 4小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3994033837056002" target="freeweibo-mirror">#黑龙江绥芬河边防战士持枪杀人逃跑# 7月5日晚，网传一张《…</a>
+</h2>
+<p>#黑龙江绥芬河边防战士持枪杀人逃跑# 7月5日晚，网传一张《关于迅速对命案逃犯王增志开展查堵工作的通知》，称绥芬河边防战士王增志持枪杀人后逃跑，逃跑时身穿迷 彩服，携带一把微冲，19发子弹。京华时报记者联系绥芬河边防检查站，对方确认该《通知》属实。该通知系发给“乘警支队、各派出所”。《通...全文： http://m.weibo.cn/3955358362/3994033837056002<br><img src="http://ww2.sinaimg.cn/large/ebc1fa9ajw1f5jhiz1msgj20dc0hsmz5.jpg"></p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3994033548188368" target="freeweibo-mirror">[黑龙江绥芬河#边防战士持枪杀人逃跑# 携一把79微冲 19…</a>
 </h2>
 <p>[黑龙江绥芬河#边防战士持枪杀人逃跑# 携一把79微冲 19发子弹]7月5日晚，《关于迅速对命案逃犯王增志开展查堵工作的通知》，称绥芬河边防战士王增志持枪杀人后逃跑，逃跑时身穿迷 彩服，携带一把微冲，19发子弹。[吃惊]<br><img src="http://ww2.sinaimg.cn/large/562bc1d7jw1f5jhiq9t6uj20dc0hs0u3.jpg"></p>
@@ -125,17 +131,11 @@
 </h2>
 <p>//@只配叫猪_:转发微博</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3994007682544886" target="freeweibo-mirror">SPAM 不是一个口径 //@LifeTime:小强在理，有…</a>
 </h2>
 <p>SPAM 不是一个口径 //@LifeTime:小强在理，有何用？</p>
-<p>
-	<small> ============== 6小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3994003755769446" target="freeweibo-mirror">//@刘力博士:[哈哈][哈哈] //@郗晓钟:这是不是常委…</a>
-</h2>
-<p>//@刘力博士:[哈哈][哈哈] //@郗晓钟:这是不是常委专用法庭？连庭警都是同一个人<br><br>RE: 两位国家级大佬都服从判决，不上诉。这是否说明：1、他们真的认为判决事实清楚、证据确凿充分、量刑得当，而认罪服法；2、他们深知中国法律的本质，知道上诉没有用；3、已经判得够轻的了，再上诉都不好意思了。还有什么？<br><img src="http://ww4.sinaimg.cn/large/6cefc1a7jw1f5jc6jcavxj20b407o3zg.jpg"></p>
 <p>
 	<small> ============== 6小时前</small>
 </p>
