@@ -23,7 +23,7 @@
 </h2>
 <p>SPAM 潮人 [心]</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3994011893476691" target="freeweibo-mirror">SPAM 药丸//@王世颖: //@田地發://@陆弃://…</a>
 </h2>
