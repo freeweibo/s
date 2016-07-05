@@ -53,7 +53,7 @@
 </h2>
 <p>随便看看//@深圳朱律师://@律师王学明:你们维稳过别人上访吧？//@正义哨兵: [挖鼻]//@广州区伯:警察维什么权呢？都回去抄抄党章吧！//@病态国度F:别人维权时他们来镇压，现在也尝试到维权的酸楚了吧？<br><br>RE: #西安身边事# 网友爆料，警察也有上访的时候[吃惊]，请维护他们的合法权益。求证@陕西公安 这是什么情况？<br><img src="http://ww2.sinaimg.cn/large/005WySsNjw1f5hzdja31aj30j60dn0w6.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3993775346736793" target="freeweibo-mirror">这种时候那些在警察犯法激起众怒时候口口声声维护警察权威，维护…</a>
 </h2>
@@ -77,7 +77,7 @@
 </h2>
 <p>SPAM 美鞋集市[心]</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3993676843238952" target="freeweibo-mirror">//@撩笔论天下://:@要点灯的人:你泄露了凳的私密@撩笔…</a>
 </h2>
