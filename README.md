@@ -19,6 +19,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3994032444602781" target="freeweibo-mirror">SPAM 潮人 [心]</a>
+</h2>
+<p>SPAM 潮人 [心]</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3994011893476691" target="freeweibo-mirror">SPAM 药丸//@王世颖: //@田地發://@陆弃://…</a>
 </h2>
 <p>SPAM 药丸//@王世颖: //@田地發://@陆弃://@尹国明:[思考]//@斜阳照古道:一个让胖，一个让瘦，当然要删了<br><br>RE: 今天上午11点多， 中国政府网发了一条微博，不久却消失不见了，（这条被删的微博截图如下）。问：博主为什么删除？<br><img src="http://ww1.sinaimg.cn/large/6a83dd8egw1f5j6zngk63j20go0dlwgy.jpg"></p>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3993990578006376" target="freeweibo-mirror">SPAM //@金好多金: //@黄照旋:回复@火星人梅:回…</a>
 </h2>
 <p>SPAM //@金好多金: //@黄照旋:回复@火星人梅:回答正确！//@火星人梅:一胖一瘦[doge]<br><br>RE: 今天上午11点多， 中国政府网发了一条微博，不久却消失不见了，（这条被删的微博截图如下）。问：博主为什么删除？<br><img src="http://ww1.sinaimg.cn/large/6a83dd8egw1f5j6zngk63j20go0dlwgy.jpg"></p>
-<p>
-	<small> ============== 4小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3993989285801340" target="freeweibo-mirror">说明这么多年，没白接受党的教育。</a>
-</h2>
-<p>说明这么多年，没白接受党的教育。<br><br>RE: 两位国家级大佬都服从判决，不上诉。这是否说明：1、他们真的认为判决事实清楚、证据确凿充分、量刑得当，而认罪服法；2、他们深知中国法律的本质，知道上诉没有用；3、已经判得够轻的了，再上诉都不好意思了。还有什么？<br><img src="http://ww4.sinaimg.cn/large/6cefc1a7jw1f5jc6jcavxj20b407o3zg.jpg"></p>
 <p>
 	<small> ============== 4小时前</small>
 </p>
