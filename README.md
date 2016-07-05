@@ -29,7 +29,7 @@
 </h2>
 <p>每次百姓遭灾他们都乐的屁眼开花，然后这些人渣一本正经的说他们为百姓争取民主宪政普世价值，他们是民主先蛆，百姓要谢谢他们，有这么不要脸的吗。//@醋葫芦_玉楼春:媒体人=贱人。//@凌濛初刻:天灾大敌当前，如此伤害灾区人民的心，现在这些媒体人都怎么了？出生时被他妈逼挤坏了脑子？<br><br>RE: 第二艘航母在长沙下水，名字据说二选一，橘子洲号或毛润之号！<br><img src="http://ww2.sinaimg.cn/large/621d03b7gw1f5j4a1fkllj20g00f3gm8.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3993924231862847" target="freeweibo-mirror">SPAM 热不热？就问你热不热？哈哈哈，来瓶冰镇果粒王吧！饱…</a>
 </h2>
@@ -47,7 +47,7 @@
 </h2>
 <p>第二艘航母在长沙下水，名字据说二选一，橘子洲号或毛润之号！<br><img src="http://ww2.sinaimg.cn/large/621d03b7gw1f5j4a1fkllj20g00f3gm8.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3993902241074912" target="freeweibo-mirror">什么是国耻? 这就是【国耻】:声明里，有林祖恋的夫人杨珍、孙…</a>
 </h2>
