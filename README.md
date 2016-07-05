@@ -79,9 +79,21 @@
 <p>
 	<small> ============== 4小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3994032910633279" target="freeweibo-mirror">回复@百变猫仔William:如只是事故，赶紧和部队沟通，然…</a>
+</h2>
+<p>回复@百变猫仔William:如只是事故，赶紧和部队沟通，然后赶紧自首，如此可免被围捕。一旦大规模围捕，就是要就地将危险降到最低的方式来解决。 //@百变猫仔William:然而还有个新闻啊：边防战士枪支走火致战友身亡 因害怕携手枪躲入山林 现正在返回部队途中，到底咋回事捏？？？<br><br>RE: 【这个太危险了，见到就是格杀勿论，除非投案自首恐怕是不会留活口的！】黑龙江绥芬河边防战士持枪杀人逃跑 携微冲带19发子弹 http://t.cn/R53xb81<br><img src="http://ww1.sinaimg.cn/large/4d661393jw1f5jh2qa74wj20dc0hsjtb.jpg"></p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3994032444602781" target="freeweibo-mirror">SPAM 潮人 [心]</a>
 </h2>
 <p>SPAM 潮人 [心]</p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3994030553810990" target="freeweibo-mirror">SPAM #转新闻#【黑龙江绥芬河边防战士持枪杀人逃跑】网传…</a>
+</h2>
+<p>SPAM #转新闻#【黑龙江绥芬河边防战士持枪杀人逃跑】网传一张《关于迅速对命案逃犯王增志开展查堵工作的通知》，称绥芬河边防战士王增志持枪杀人后逃跑，逃跑时身穿迷 彩服，携带一把微冲，19发子弹。京华时报记者联系绥芬河边防检查站，对方确认该《通知》属实。http://t.cn/R53USrz<br><img src="http://ww4.sinaimg.cn/large/4969c683gw1f5jh6mn4ioj20dc0hsgnj.jpg"></p>
 <p>
 	<small> ============== 4小时前</small>
 </p><h2>
@@ -95,7 +107,7 @@
 </h2>
 <p>SPAM 黑龙江绥芬河边防战士持枪杀人逃跑  （分享自 @新浪新闻） http://t.cn/R53USrz<br><img src="http://ww1.sinaimg.cn/large/acd88db5jw1f5jgpopy1sj20dc0hsdhu.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3994021318286456" target="freeweibo-mirror">SPAM 【黑龙江一边防战士杀人逃逸 携微冲带19发子弹！！…</a>
 </h2>
@@ -119,23 +131,11 @@
 </h2>
 <p>SPAM 药丸//@王世颖: //@田地發://@陆弃://@尹国明:[思考]//@斜阳照古道:一个让胖，一个让瘦，当然要删了<br><br>RE: 今天上午11点多， 中国政府网发了一条微博，不久却消失不见了，（这条被删的微博截图如下）。问：博主为什么删除？<br><img src="http://ww1.sinaimg.cn/large/6a83dd8egw1f5j6zngk63j20go0dlwgy.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3994011788036038" target="freeweibo-mirror">SPAM 有点乱，需要静静。 //@谢开聪:史上最NB的删贴…</a>
 </h2>
 <p>SPAM 有点乱，需要静静。 //@谢开聪:史上最NB的删贴[阴险]//@晓丹的新车:删起微博来连中国政府网都不放过 //@LifeTime:小强在理，有何用？</p>
-<p>
-	<small> ============== 5小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3994011721642098" target="freeweibo-mirror">#作死千方#【isis游记】画tank和长者总被屏蔽不知道为…</a>
-</h2>
-<p>#作死千方#【isis游记】画tank和长者总被屏蔽不知道为啥，画点别的题材吧<br><img src="http://ww2.sinaimg.cn/large/a339bd15jw1f5jewt880sj20m80tqgme.jpg"></p>
-<p>
-	<small> ============== 5小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3994010114465887" target="freeweibo-mirror">SPAM 为了迎接7月24日与@石家庄永昌足球队 的比赛，重…</a>
-</h2>
-<p>SPAM 为了迎接7月24日与@石家庄永昌足球队 的比赛，重庆市政府也是蛮拼的[拜拜]<br><img src="http://ww1.sinaimg.cn/large/61264588jw1f5jeu4xay5j20gi0gi408.jpg"></p>
 <p>
 	<small> ============== 6小时前</small>
 </p>
