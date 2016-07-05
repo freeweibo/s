@@ -53,13 +53,13 @@
 </h2>
 <p>当局 又打脸了[害羞][害羞]<br><img src="http://ww1.sinaimg.cn/large/c4095c87gw1f5j1q3vk5hj20qo0zkq58.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3993895728173344" target="freeweibo-mirror">[吃惊]//@北京的晖子:当政府不能保护百姓安全的时候，有人…</a>
 </h2>
 <p>[吃惊]//@北京的晖子:当政府不能保护百姓安全的时候，有人选择了自救，然后政府把自救者枪毙了，施暴者反而被减刑，我学识浅薄，不是太懂这样的民族政策。</p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3993893329134919" target="freeweibo-mirror">[衰]//@刘力博士:[黑线]//@El_你才是怪蜀黍:烂污…</a>
 </h2>
