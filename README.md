@@ -35,7 +35,7 @@
 </h2>
 <p>声明里，有林祖恋的夫人杨珍、孙子林立义、孙女林白茹。林家留在乌坎的亲人，一致发声：林祖恋不需要政府提供免费的法律援助，林家要自己花钱请律师。<br><br>RE: 当局 又打脸了[害羞][害羞]<br><img src="http://ww1.sinaimg.cn/large/c4095c87gw1f5j1q3vk5hj20qo0zkq58.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3993896063314178" target="freeweibo-mirror">当局 又打脸了[害羞][害羞]</a>
 </h2>
