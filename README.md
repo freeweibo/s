@@ -19,6 +19,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3993986425877272" target="freeweibo-mirror">【好文分享】1、你知 道为什么出国旅游的新疆人那么少吗？看完…</a>
+</h2>
+<p>【好文分享】1、你知 道为什么出国旅游的新疆人那么少吗？看完你就明白了！2、一条忍着不死的鱼！3、全球最穷的十个国家，看到最后我傻了！4、美国义工大声呵斥中国志愿者：“你要干什么？放下！”！ 5、 这是一位久经磨难唯一不死的伟大英雄！所有中国人都知道他的名字。更多精彩请添加关注：zhebsls<br><img src="http://ww1.sinaimg.cn/large/a4aae570jw1f5jc473zwej20j60y3mze.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3993924231862847" target="freeweibo-mirror">SPAM 热不热？就问你热不热？哈哈哈，来瓶冰镇果粒王吧！饱…</a>
 </h2>
 <p>SPAM 热不热？就问你热不热？哈哈哈，来瓶冰镇果粒王吧！饱满果粒看得见，参与游戏拿奖品～快来挑战！这个夏天就是要#有你心满粒足#<br><img src="http://ww3.sinaimg.cn/large/aa0a453dgw1f5j2g9uouuj20bn0b00tl.jpg"></p>
@@ -95,7 +101,7 @@
 </h2>
 <p>当年的带头大哥，下场很惨吧？//@GK同人于野: 当初对事件的处理，是少数民族不满，汉人不满，国际社会也没人帮着说话 - 一个朋友都没有。</p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3993879746764328" target="freeweibo-mirror">SPAM 评论有真相。真英雄！[作揖] //@广州城堡堡主:…</a>
 </h2>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3993875116712749" target="freeweibo-mirror">//@流小曲: [围观]//@守候者说: //@五指山夫:/…</a>
 </h2>
 <p>//@流小曲: [围观]//@守候者说: //@五指山夫://@张洲: 我真的想起那句“皇上，今儿，您翻哪个牌子啊？还去东宫吗？”的台词。//@喷嚏网铂程: //@徐凤文: 学到了一句新词：人文关怀……</p>
-<p>
-	<small> ============== 8小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3993866689871047" target="freeweibo-mirror">一等洋人，二等官，三等少民，四等汉 //@FrostMapl…</a>
-</h2>
-<p>一等洋人，二等官，三等少民，四等汉 //@FrostMaple://@陈杰要骑车://@majorcheng: 为最右图//@王小东: [蜡烛]//@田地發:[蜡烛]//@人渣狐:[蜡烛]//@FYJS罐头鱼://@左岸听河:原博应该配这张图，原博图上左边那个被养猪场当场射杀，右边那个被判死刑[蜡烛]   http://t.cn/R5uaUpr<br><br>RE: 《无衣》：  十亿头颅如草芥， 蒙元恶律急相煎。  但歌盛世遮民怨， 凡怒不平成罪愆。  乡土年年洇血色， 山河寸寸染腥膻。  敲醒半世非非想， 与子同袍济世颠。 [蜡烛][拳头]<br><img src="http://ww1.sinaimg.cn/large/5162c2fdgw1f5ink4qyezj20gs0ohq6c.jpg"></p>
 <p>
 	<small> ============== 9小时前</small>
 </p>
