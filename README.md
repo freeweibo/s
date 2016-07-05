@@ -35,7 +35,7 @@
 </h2>
 <p>[蜡烛]//@王小东:[蜡烛]//@田地發:[蜡烛]//@人渣狐:[蜡烛]//@天真纯洁布列斯:[蜡烛] //@飞扬跋扈假黄瓜:[蜡烛]//@ronni_weng:[蜡烛] //@FYJS罐头鱼://@左岸听河:原博应该配这张图，原博图上左边那个被养猪场当场射杀，右边那个被判死刑[蜡烛] http://t.cn/R5uaUpr<br><br>RE: 《无衣》：  十亿头颅如草芥， 蒙元恶律急相煎。  但歌盛世遮民怨， 凡怒不平成罪愆。  乡土年年洇血色， 山河寸寸染腥膻。  敲醒半世非非想， 与子同袍济世颠。 [蜡烛][拳头]<br><img src="http://ww1.sinaimg.cn/large/5162c2fdgw1f5ink4qyezj20gs0ohq6c.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3993860936521246" target="freeweibo-mirror">[蜡烛]//@田地發:[蜡烛]//@人渣狐:[蜡烛]//@天…</a>
 </h2>
@@ -65,13 +65,13 @@
 </h2>
 <p>SPAM //@天涯赵瑜:不忘初心，原来是这个意思啊。</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3993831365830626" target="freeweibo-mirror">杨飞：为什么中国没有新闻法？</a>
 </h2>
 <p>杨飞：为什么中国没有新闻法？<br><img src="http://ww4.sinaimg.cn/large/7c0e9549gw1f5iub287hbj20qo4sce81.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3993815029042249" target="freeweibo-mirror">SPAM 官方报告首次承认：九成先富起来的是高干子弟！ 他們…</a>
 </h2>
@@ -107,7 +107,7 @@
 </h2>
 <p>非蠢即坏//@中问-时评:这个时候他们个个是刘谦，不仅会演，而且能骗。//@成都企业法律顾问:这种时候那些在警察犯法激起众怒时候口口声声维护警察权威，维护警察利益，支持警方的五毛，还有那些觉得做警察委屈不想干的朋友。神奇的不见了，比刘谦的魔术还神奇<br><br>RE: #西安身边事# 网友爆料，警察也有上访的时候[吃惊]，请维护他们的合法权益。求证@陕西公安 这是什么情况？<br><img src="http://ww2.sinaimg.cn/large/005WySsNjw1f5hzdja31aj30j60dn0w6.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3993785061523633" target="freeweibo-mirror">//@阿宝背书的美好生活://@119江南囚: 转发微博</a>
 </h2>
