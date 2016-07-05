@@ -23,7 +23,7 @@
 </h2>
 <p>SPAM 药丸//@王世颖: //@田地發://@陆弃://@尹国明:[思考]//@斜阳照古道:一个让胖，一个让瘦，当然要删了<br><br>RE: 今天上午11点多， 中国政府网发了一条微博，不久却消失不见了，（这条被删的微博截图如下）。问：博主为什么删除？<br><img src="http://ww1.sinaimg.cn/large/6a83dd8egw1f5j6zngk63j20go0dlwgy.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3994008675619713" target="freeweibo-mirror">//@只配叫猪_:转发微博</a>
 </h2>
@@ -67,6 +67,12 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3993997380917671" target="freeweibo-mirror">我总想不通，这么明白的问题为啥还要像小白鼠实验一样试了一次又…</a>
+</h2>
+<p>我总想不通，这么明白的问题为啥还要像小白鼠实验一样试了一次又一次？//@哪儿都不敏感: 想起《虎口脱险》里一句经典台词：“他们开始抓自己人了？！”//@静娅_:[吃惊][吃惊]九十年代的国企改制算咋回事？<br><br>RE: 这个官博居然也删除了。。。[吃惊]<br><img src="http://ww2.sinaimg.cn/large/593f5307jw1f5j3l9mmitj20k00zkdjj.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3993995250620716" target="freeweibo-mirror">第三✔️…//@望月轩听雨：这种新闻老百姓关心一点意义都没有…</a>
 </h2>
 <p>第三✔️…//@望月轩听雨：这种新闻老百姓关心一点意义都没有。老百姓关心有所居，有所养，有所医！<br><br>RE: 两位国家级大佬都服从判决，不上诉。这是否说明：1、他们真的认为判决事实清楚、证据确凿充分、量刑得当，而认罪服法；2、他们深知中国法律的本质，知道上诉没有用；3、已经判得够轻的了，再上诉都不好意思了。还有什么？<br><img src="http://ww4.sinaimg.cn/large/6cefc1a7jw1f5jc6jcavxj20b407o3zg.jpg"></p>
@@ -76,6 +82,12 @@
 	<a href="https://freeweibo.com/weibo/3993995246023989" target="freeweibo-mirror">SPAM 呵呵。。。。。</a>
 </h2>
 <p>SPAM 呵呵。。。。。<br><br>RE: 这个官博居然也删除了。。。[吃惊]<br><img src="http://ww2.sinaimg.cn/large/593f5307jw1f5j3l9mmitj20k00zkdjj.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3993993400738714" target="freeweibo-mirror">SPAM [吃惊][吃惊]九十年代的国企改制算咋回事？</a>
+</h2>
+<p>SPAM [吃惊][吃惊]九十年代的国企改制算咋回事？<br><br>RE: 这个官博居然也删除了。。。[吃惊]<br><img src="http://ww2.sinaimg.cn/large/593f5307jw1f5j3l9mmitj20k00zkdjj.jpg"></p>
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
@@ -126,18 +138,6 @@
 <p>!//@五行剑侠:估计这微博也许活不过半个小时，但我还是发了，因为我知道，哪怕是公开的新闻，也有尘封的可能。一年的断网，一年的惶惶不安，一年的主旋律，或许在人类历史不值一提。但我有责任告诉每个可以看到这条微博的人：三股势力如此反华反党反人类，我们要全方位记录下它们的肮脏！以警示大众！<br><br>RE: 七年前不仅仅是众所周知的那一天，还有后续，不是两天之后，而是持续了将近两个半月的扎针事件。它们在公共汽车里、在学校门口、在餐馆里、在商场里——只要是人多的场所，它们用着“没有毒的针”去扎每一个根本不认识的汉族面孔。直到后来群众们愤怒到极点，当场打残几个，才算是这一系列的彻底完结。</p>
 <p>
 	<small> ============== 4小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3993948379372264" target="freeweibo-mirror">每次百姓遭灾他们都乐的屁眼开花，然后这些人渣一本正经的说他们…</a>
-</h2>
-<p>每次百姓遭灾他们都乐的屁眼开花，然后这些人渣一本正经的说他们为百姓争取民主宪政普世价值，他们是民主先蛆，百姓要谢谢他们，有这么不要脸的吗。//@醋葫芦_玉楼春:媒体人=贱人。//@凌濛初刻:天灾大敌当前，如此伤害灾区人民的心，现在这些媒体人都怎么了？出生时被他妈逼挤坏了脑子？<br><br>RE: 第二艘航母在长沙下水，名字据说二选一，橘子洲号或毛润之号！<br><img src="http://ww2.sinaimg.cn/large/621d03b7gw1f5j4a1fkllj20g00f3gm8.jpg"></p>
-<p>
-	<small> ============== 6小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3993942251215923" target="freeweibo-mirror">今天上午11点多， 中国政府网发了一条微博，不久却消失不见了…</a>
-</h2>
-<p>今天上午11点多， 中国政府网发了一条微博，不久却消失不见了，（这条被删的微博截图如下）。问：博主为什么删除？<br><img src="http://ww1.sinaimg.cn/large/6a83dd8egw1f5j6zngk63j20go0dlwgy.jpg"></p>
-<p>
-	<small> ============== 6小时前</small>
 </p>
 <table>
     <tr>
