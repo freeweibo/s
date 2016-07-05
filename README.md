@@ -35,11 +35,17 @@
 </h2>
 <p>SPAM 你不清真。 //@tinyfool://@朴灵: [拜拜]//@ShiningRay: //@跳跳可爱虎:[打脸]//@午后狂睡_Silent:[笑cry][笑cry] //@鸡老师的肉身:我也来一个 [笑cry]   http://t.cn/R53xqtk   //@M-HamBurger: 哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈//@Geforce北川:这不清真<br><br>RE: #作死千方#【isis游记】画tank和长者总被屏蔽不知道为啥，画点别的题材吧<br><img src="http://ww2.sinaimg.cn/large/a339bd15jw1f5jewt880sj20m80tqgme.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3994038786623388" target="freeweibo-mirror">SPAM //@朴灵: [拜拜]//@ShiningRay:…</a>
 </h2>
 <p>SPAM //@朴灵: [拜拜]//@ShiningRay: //@跳跳可爱虎:[打脸]//@午后狂睡_Silent:[笑cry][笑cry] //@鸡老师的肉身:我也来一个 [笑cry]   http://t.cn/R53xqtk   //@M-HamBurger: 哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈//@Geforce北川:这不清真<br><br>RE: #作死千方#【isis游记】画tank和长者总被屏蔽不知道为啥，画点别的题材吧<br><img src="http://ww2.sinaimg.cn/large/a339bd15jw1f5jewt880sj20m80tqgme.jpg"></p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3994035045412234" target="freeweibo-mirror">//@P民新传媒: //@三角锋评:突然想起那个会单手换弹夹…</a>
+</h2>
+<p>//@P民新传媒: //@三角锋评:突然想起那个会单手换弹夹的汉子[吃惊][围观]//@晋华L: //@铁骑军会所01:莫忘建国门······[霹雳]//@林遙辰2_o12_: //@美裙百灵鸟儿://@我是德赛: //@李方平律师:捂着不好，像国军一样有错认错，取信于民。<br><br>RE: 【涉军恶性事件也应该正常报道以防微杜渐】近日，绥芬河边防战士王增志持枪杀人后身穿迷彩服，携带一把微冲和19发子弹逃跑。五年前，沈阳军区四名新兵蛋子带一支95式自动步枪和795发子弹没请假离开营房，在抚顺被警方严阵以待、围追堵截后击毙三人，擒获一人。不过至今不明何种原因。<br><img src="http://ww2.sinaimg.cn/large/6a80bfcdgw1f5jdza8l6vj20dc0hsgml.jpg"></p>
 <p>
 	<small> ============== 4小时前</small>
 </p><h2>
@@ -52,6 +58,12 @@
 	<a href="https://freeweibo.com/weibo/3994034852649552" target="freeweibo-mirror">SPAM [伤心]//@柠檬你个可乐：我是他战友，我刚下哨，…</a>
 </h2>
 <p>SPAM [伤心]//@柠檬你个可乐：我是他战友，我刚下哨，小志接的我哨。我们边防时刻充满着危险，枪弹结合我们在危及到生命时是有权自保，我相信我战友是遇到了突发情况不得已才开枪。请大家相信军人，相信我战友<br><br>RE: 【黑龙江绥芬河边防战士王增志 持枪杀人后逃跑】7月5日晚，网传一张《关于迅速对命案逃犯王增志开展查堵工作的通知》，称绥芬河边防战士王增志持枪杀人后逃跑，逃跑时身穿迷彩服，携带一把微冲，19发子弹。京华时报记者联系绥芬河边防检查站，对方确认该《通知》属实。（京华时报 ）...全文： http://m.weibo.cn/1642512402/3994000476426082<br><img src="http://ww3.sinaimg.cn/large/61e6c012gw1f5jdq7q15dj20dc0hs76a.jpg"></p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3994034798672087" target="freeweibo-mirror">【边防战士枪支走火致战友身亡， 因害怕躲入山林】据@京华时报…</a>
+</h2>
+<p>【边防战士枪支走火致战友身亡， 因害怕躲入山林】据@京华时报，今日7时15分许，处突分队班长王增志因验枪走火致人死亡。事件发生后，王增志担心害怕，携带一支77式手枪离开现场跑入驻地附近山林，后主动与家人和部队联系。据黑龙江公安边防总队消息，王增志目前正在返回部队途中。http://t.cn/R53xqWa<br><br>RE: 【黑龙江绥芬河边防战士持枪杀人逃跑 携一把79微冲19发子弹】7月5日晚，网传一张《关于迅速对命案逃犯王增志开展查堵工作的通知》，称绥芬河边防战士王增志持枪杀人后逃跑，身穿迷彩服，携带一把微冲，19发子弹。记者联系绥芬河边防检查站，对方确认该《通知》属实。http://t.cn/R53USrz<br><img src="http://ww2.sinaimg.cn/large/4bc7844dgw1f5jhlhjllsj20dc0hsdh1.jpg"></p>
 <p>
 	<small> ============== 4小时前</small>
 </p><h2>
@@ -124,18 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3994010114465887" target="freeweibo-mirror">SPAM 为了迎接7月24日与@石家庄永昌足球队 的比赛，重…</a>
 </h2>
 <p>SPAM 为了迎接7月24日与@石家庄永昌足球队 的比赛，重庆市政府也是蛮拼的[拜拜]<br><img src="http://ww1.sinaimg.cn/large/61264588jw1f5jeu4xay5j20gi0gi408.jpg"></p>
-<p>
-	<small> ============== 5小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3994008675619713" target="freeweibo-mirror">//@只配叫猪_:转发微博</a>
-</h2>
-<p>//@只配叫猪_:转发微博</p>
-<p>
-	<small> ============== 6小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3994007682544886" target="freeweibo-mirror">SPAM 不是一个口径 //@LifeTime:小强在理，有…</a>
-</h2>
-<p>SPAM 不是一个口径 //@LifeTime:小强在理，有何用？</p>
 <p>
 	<small> ============== 6小时前</small>
 </p>
