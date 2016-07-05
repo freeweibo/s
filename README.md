@@ -77,7 +77,7 @@
 </h2>
 <p>SPAM //@金好多金: //@黄照旋:回复@火星人梅:回答正确！//@火星人梅:一胖一瘦[doge]<br><br>RE: 今天上午11点多， 中国政府网发了一条微博，不久却消失不见了，（这条被删的微博截图如下）。问：博主为什么删除？<br><img src="http://ww1.sinaimg.cn/large/6a83dd8egw1f5j6zngk63j20go0dlwgy.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3993989285801340" target="freeweibo-mirror">说明这么多年，没白接受党的教育。</a>
 </h2>
@@ -109,6 +109,12 @@
 <p>
 	<small> ============== 5小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3993942251215923" target="freeweibo-mirror">今天上午11点多， 中国政府网发了一条微博，不久却消失不见了…</a>
+</h2>
+<p>今天上午11点多， 中国政府网发了一条微博，不久却消失不见了，（这条被删的微博截图如下）。问：博主为什么删除？<br><img src="http://ww1.sinaimg.cn/large/6a83dd8egw1f5j6zngk63j20go0dlwgy.jpg"></p>
+<p>
+	<small> ============== 6小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3993924231862847" target="freeweibo-mirror">SPAM 热不热？就问你热不热？哈哈哈，来瓶冰镇果粒王吧！饱…</a>
 </h2>
 <p>SPAM 热不热？就问你热不热？哈哈哈，来瓶冰镇果粒王吧！饱满果粒看得见，参与游戏拿奖品～快来挑战！这个夏天就是要#有你心满粒足#<br><img src="http://ww3.sinaimg.cn/large/aa0a453dgw1f5j2g9uouuj20bn0b00tl.jpg"></p>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3993902241074912" target="freeweibo-mirror">什么是国耻? 这就是【国耻】:声明里，有林祖恋的夫人杨珍、孙…</a>
 </h2>
 <p>什么是国耻? 这就是【国耻】:声明里，有林祖恋的夫人杨珍、孙子林立义、孙女林白茹。林家留在乌坎的亲人，一致发声：林祖恋不需要政府提供免费的法律援助，林家要自己花钱请律师。在21世纪的人类社会，政府还能够干出这种下流事，这是全中国人的耻辱。<br><br>RE: 当局 又打脸了[害羞][害羞]<br><img src="http://ww1.sinaimg.cn/large/c4095c87gw1f5j1q3vk5hj20qo0zkq58.jpg"></p>
-<p>
-	<small> ============== 8小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3993899716529701" target="freeweibo-mirror">毛骨悚然！</a>
-</h2>
-<p>毛骨悚然！</p>
 <p>
 	<small> ============== 8小时前</small>
 </p>
