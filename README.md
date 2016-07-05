@@ -37,6 +37,12 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3993896063314178" target="freeweibo-mirror">当局 又打脸了[害羞][害羞]</a>
+</h2>
+<p>当局 又打脸了[害羞][害羞]<br><img src="http://ww1.sinaimg.cn/large/c4095c87gw1f5j1q3vk5hj20qo0zkq58.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3993895728173344" target="freeweibo-mirror">[吃惊]//@北京的晖子:当政府不能保护百姓安全的时候，有人…</a>
 </h2>
 <p>[吃惊]//@北京的晖子:当政府不能保护百姓安全的时候，有人选择了自救，然后政府把自救者枪毙了，施暴者反而被减刑，我学识浅薄，不是太懂这样的民族政策。</p>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3993860936521246" target="freeweibo-mirror">[蜡烛]//@田地發:[蜡烛]//@人渣狐:[蜡烛]//@天…</a>
 </h2>
 <p>[蜡烛]//@田地發:[蜡烛]//@人渣狐:[蜡烛]//@天真纯洁布列斯:[蜡烛] //@飞扬跋扈假黄瓜:[蜡烛]//@ronni_weng:[蜡烛] //@FYJS罐头鱼://@左岸听河:原博应该配这张图，原博图上左边那个被养猪场当场射杀，右边那个被判死刑[蜡烛] http://t.cn/R5uaUpr<br><br>RE: 《无衣》：  十亿头颅如草芥， 蒙元恶律急相煎。  但歌盛世遮民怨， 凡怒不平成罪愆。  乡土年年洇血色， 山河寸寸染腥膻。  敲醒半世非非想， 与子同袍济世颠。 [蜡烛][拳头]<br><img src="http://ww1.sinaimg.cn/large/5162c2fdgw1f5ink4qyezj20gs0ohq6c.jpg"></p>
-<p>
-	<small> ============== 4小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3993860717931005" target="freeweibo-mirror">俄羅斯、委內瑞拉、津巴布韋等共同特徵是什麼？疑似有五：一、都…</a>
-</h2>
-<p>俄羅斯、委內瑞拉、津巴布韋等共同特徵是什麼？疑似有五：一、都在鬧經濟危機、通貨膨脹、貨幣貶值；二、都是中國人民的老朋友；三、都是抗美英雄；四、都在不斷撕毀與中方簽訂的各種合約；五、都在不斷逼迫中方為其經濟危機買單。<br><img src="http://ww1.sinaimg.cn/large/006tSYZjjw1f5iq92ptufg30co05k0tr.gif"></p>
 <p>
 	<small> ============== 4小时前</small>
 </p>
