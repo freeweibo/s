@@ -35,13 +35,13 @@
 </h2>
 <p>SPAM 官方报告首次承认：九成先富起来的是高干子弟！ 他們都富起來了，才叫我們不忘初心，繼續前進⋯⋯ http://t.cn/R5ms7p2</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3993814840608876" target="freeweibo-mirror">[怒]//@北京厨子新号:中华low 逼共和国。//@王小山…</a>
 </h2>
 <p>[怒]//@北京厨子新号:中华low 逼共和国。//@王小山: 这什么朋友啊。</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3993805251774889" target="freeweibo-mirror">//@方无码: 太惨了//@超重型社会主义路灯://@-my…</a>
 </h2>
@@ -65,7 +65,7 @@
 </h2>
 <p>//@阿宝背书的美好生活://@119江南囚: 转发微博</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3993782779261128" target="freeweibo-mirror">随便看看//@深圳朱律师://@律师王学明:你们维稳过别人上…</a>
 </h2>
