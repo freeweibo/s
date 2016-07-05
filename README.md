@@ -29,13 +29,13 @@
 </h2>
 <p>SPAM 药丸//@王世颖: //@田地發://@陆弃://@尹国明:[思考]//@斜阳照古道:一个让胖，一个让瘦，当然要删了<br><br>RE: 今天上午11点多， 中国政府网发了一条微博，不久却消失不见了，（这条被删的微博截图如下）。问：博主为什么删除？<br><img src="http://ww1.sinaimg.cn/large/6a83dd8egw1f5j6zngk63j20go0dlwgy.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3994011788036038" target="freeweibo-mirror">SPAM 有点乱，需要静静。 //@谢开聪:史上最NB的删贴…</a>
 </h2>
 <p>SPAM 有点乱，需要静静。 //@谢开聪:史上最NB的删贴[阴险]//@晓丹的新车:删起微博来连中国政府网都不放过 //@LifeTime:小强在理，有何用？</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3994010114465887" target="freeweibo-mirror">SPAM 为了迎接7月24日与@石家庄永昌足球队 的比赛，重…</a>
 </h2>
