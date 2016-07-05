@@ -65,7 +65,7 @@
 </h2>
 <p>【好文分享】1、你知 道为什么出国旅游的新疆人那么少吗？看完你就明白了！2、一条忍着不死的鱼！3、全球最穷的十个国家，看到最后我傻了！4、美国义工大声呵斥中国志愿者：“你要干什么？放下！”！ 5、 这是一位久经磨难唯一不死的伟大英雄！所有中国人都知道他的名字。更多精彩请添加关注：zhebsls<br><img src="http://ww1.sinaimg.cn/large/a4aae570jw1f5jc473zwej20j60y3mze.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3993948379372264" target="freeweibo-mirror">每次百姓遭灾他们都乐的屁眼开花，然后这些人渣一本正经的说他们…</a>
 </h2>
@@ -113,13 +113,13 @@
 </h2>
 <p>当局 又打脸了[害羞][害羞]<br><img src="http://ww1.sinaimg.cn/large/c4095c87gw1f5j1q3vk5hj20qo0zkq58.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3993895728173344" target="freeweibo-mirror">[吃惊]//@北京的晖子:当政府不能保护百姓安全的时候，有人…</a>
 </h2>
 <p>[吃惊]//@北京的晖子:当政府不能保护百姓安全的时候，有人选择了自救，然后政府把自救者枪毙了，施暴者反而被减刑，我学识浅薄，不是太懂这样的民族政策。</p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3993893329134919" target="freeweibo-mirror">[衰]//@刘力博士:[黑线]//@El_你才是怪蜀黍:烂污…</a>
 </h2>
