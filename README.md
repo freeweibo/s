@@ -67,6 +67,12 @@
 <p>
 	<small> ============== 4小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3994034148242455" target="freeweibo-mirror">【黑龙江绥芬河边防战士持枪杀人逃跑 携一把79微冲19发子弹…</a>
+</h2>
+<p>【黑龙江绥芬河边防战士持枪杀人逃跑 携一把79微冲19发子弹】7月5日晚，网传一张《关于迅速对命案逃犯王增志开展查堵工作的通知》，称绥芬河边防战士王增志持枪杀人后逃跑，身穿迷彩服，携带一把微冲，19发子弹。记者联系绥芬河边防检查站，对方确认该《通知》属实。http://t.cn/R53USrz<br><img src="http://ww2.sinaimg.cn/large/4bc7844dgw1f5jhlhjllsj20dc0hsdh1.jpg"></p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3994033837056002" target="freeweibo-mirror">#黑龙江绥芬河边防战士持枪杀人逃跑# 7月5日晚，网传一张《…</a>
 </h2>
 <p>#黑龙江绥芬河边防战士持枪杀人逃跑# 7月5日晚，网传一张《关于迅速对命案逃犯王增志开展查堵工作的通知》，称绥芬河边防战士王增志持枪杀人后逃跑，逃跑时身穿迷 彩服，携带一把微冲，19发子弹。京华时报记者联系绥芬河边防检查站，对方确认该《通知》属实。该通知系发给“乘警支队、各派出所”。《通...全文： http://m.weibo.cn/3955358362/3994033837056002<br><img src="http://ww2.sinaimg.cn/large/ebc1fa9ajw1f5jhiz1msgj20dc0hsmz5.jpg"></p>
@@ -89,7 +95,7 @@
 </h2>
 <p>SPAM 潮人 [心]</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3994030553810990" target="freeweibo-mirror">SPAM #转新闻#【黑龙江绥芬河边防战士持枪杀人逃跑】网传…</a>
 </h2>
@@ -100,6 +106,12 @@
 	<a href="https://freeweibo.com/weibo/3994029958551434" target="freeweibo-mirror">SPAM [7.5] #陈伟霆张大佛爷# › #张艺兴二月红…</a>
 </h2>
 <p>SPAM [7.5] #陈伟霆张大佛爷# › #张艺兴二月红# › #霍建华林心如结婚# › #歪果仁看中国神话# › #Doctors# › #陈晓陈妍希领证# › #我爱老九门# › #边防战士持枪杀人逃跑# › #极限挑战# › #TFBOYS周年三部曲# › #湖北暴雨# › #Hello七月# » http://t.cn/RPoZKMP 手机版» http://t.cn/RPoZlJR</p>
+<p>
+	<small> ============== 5小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3994029605866918" target="freeweibo-mirror">【这个太危险了，见到就是格杀勿论，除非投案自首恐怕是不会留活…</a>
+</h2>
+<p>【这个太危险了，见到就是格杀勿论，除非投案自首恐怕是不会留活口的！】黑龙江绥芬河边防战士持枪杀人逃跑 携微冲带19发子弹 http://t.cn/R53xb81<br><img src="http://ww1.sinaimg.cn/large/4d661393jw1f5jh2qa74wj20dc0hsjtb.jpg"></p>
 <p>
 	<small> ============== 5小时前</small>
 </p><h2>
@@ -126,18 +138,6 @@
 <p>此事不一般 //@天津马辛:转发微博<br><br>RE: 【黑龙江绥芬河边防战士王增志 持枪杀人后逃跑】7月5日晚，网传一张《关于迅速对命案逃犯王增志开展查堵工作的通知》，称绥芬河边防战士王增志持枪杀人后逃跑，逃跑时身穿迷彩服，携带一把微冲，19发子弹。京华时报记者联系绥芬河边防检查站，对方确认该《通知》属实。（京华时报 ）...全文： http://m.weibo.cn/1642512402/3994000476426082<br><img src="http://ww3.sinaimg.cn/large/61e6c012gw1f5jdq7q15dj20dc0hs76a.jpg"></p>
 <p>
 	<small> ============== 5小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3994011893476691" target="freeweibo-mirror">SPAM 药丸//@王世颖: //@田地發://@陆弃://…</a>
-</h2>
-<p>SPAM 药丸//@王世颖: //@田地發://@陆弃://@尹国明:[思考]//@斜阳照古道:一个让胖，一个让瘦，当然要删了<br><br>RE: 今天上午11点多， 中国政府网发了一条微博，不久却消失不见了，（这条被删的微博截图如下）。问：博主为什么删除？<br><img src="http://ww1.sinaimg.cn/large/6a83dd8egw1f5j6zngk63j20go0dlwgy.jpg"></p>
-<p>
-	<small> ============== 6小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3994011788036038" target="freeweibo-mirror">SPAM 有点乱，需要静静。 //@谢开聪:史上最NB的删贴…</a>
-</h2>
-<p>SPAM 有点乱，需要静静。 //@谢开聪:史上最NB的删贴[阴险]//@晓丹的新车:删起微博来连中国政府网都不放过 //@LifeTime:小强在理，有何用？</p>
-<p>
-	<small> ============== 6小时前</small>
 </p>
 <table>
     <tr>
