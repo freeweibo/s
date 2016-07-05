@@ -131,7 +131,7 @@
 </h2>
 <p>SPAM //@金好多金: //@黄照旋:回复@火星人梅:回答正确！//@火星人梅:一胖一瘦[doge]<br><br>RE: 今天上午11点多， 中国政府网发了一条微博，不久却消失不见了，（这条被删的微博截图如下）。问：博主为什么删除？<br><img src="http://ww1.sinaimg.cn/large/6a83dd8egw1f5j6zngk63j20go0dlwgy.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3993989285801340" target="freeweibo-mirror">说明这么多年，没白接受党的教育。</a>
 </h2>
