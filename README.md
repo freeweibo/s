@@ -29,7 +29,7 @@
 </h2>
 <p>毛骨悚然！</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3993898839732834" target="freeweibo-mirror">声明里，有林祖恋的夫人杨珍、孙子林立义、孙女林白茹。林家留在…</a>
 </h2>
