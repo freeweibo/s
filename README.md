@@ -37,9 +37,39 @@
 <p>
 	<small> ============== 1小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3993892666274391" target="freeweibo-mirror">SPAM //@提刀探花在缅北://@斜齿齿轮：带头大哥韩俊…</a>
+</h2>
+<p>SPAM //@提刀探花在缅北://@斜齿齿轮：带头大哥韩俊波，被党妈判了死刑</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3993891533748658" target="freeweibo-mirror">//@北京麦子2010: 这就是为什么热衷视频而不是“专家”…</a>
+</h2>
+<p>//@北京麦子2010: 这就是为什么热衷视频而不是“专家”们的狗屁分析…几宽的政策怂恿纵容了享受这种待遇的群体飞扬跋扈高人一等的心理～说：一千个人中有一个坏的您就不能说全是好人…政策起了反作用，让这些好人跟着仅有的一个坏人走…理由很简单，大伙看到了这个坏人犯法却因为政策没受到相应的惩罚</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3993879746764328" target="freeweibo-mirror">SPAM 评论有真相。真英雄！[作揖] //@广州城堡堡主:…</a>
+</h2>
+<p>SPAM 评论有真相。真英雄！[作揖] //@广州城堡堡主:看了评论才知道怎么回事，英雄啊[good] //@防务君:[good]</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3993879499253219" target="freeweibo-mirror">SPAM 岂曰无衣？与子同袍。王于兴师，修我戈矛。与子同仇。…</a>
+</h2>
+<p>SPAM 岂曰无衣？与子同袍。王于兴师，修我戈矛。与子同仇。纪念欺侮事件遇难同胞[蜡烛]</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3993879487413922" target="freeweibo-mirror">这年头傻B真不多。//@李成腾讯: //@罗九经://@语关…</a>
 </h2>
 <p>这年头傻B真不多。//@李成腾讯: //@罗九经://@语关联2://@追唐-如东李忠://@西安路104号://@伊人憋住喔://@加m菲炮1314Cat: //@东郭-文奴儿://@戎绒日记:[话筒]<br><br>RE: 俄羅斯、委內瑞拉、津巴布韋等共同特徵是什麼？疑似有五：一、都在鬧經濟危機、通貨膨脹、貨幣貶值；二、都是中國人民的老朋友；三、都是抗美英雄；四、都在不斷撕毀與中方簽訂的各種合約；五、都在不斷逼迫中方為其經濟危機買單。<br><img src="http://ww1.sinaimg.cn/large/006tSYZjjw1f5iq92ptufg30co05k0tr.gif"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3993878669359874" target="freeweibo-mirror">貌合神离的所谓民族团结只能如此。//@北京麦子2010:这就…</a>
+</h2>
+<p>貌合神离的所谓民族团结只能如此。//@北京麦子2010:这就是小爷为什么热衷于视频而不是听“专家”狗屁分析…几宽政策怂恿了享受这种待遇的群体飞扬跋扈、高人一等心理～…政策起了反作用，让这些好人跟着仅有的一个坏人走…理由很简单，大伙看到了这个坏人犯法却因为政策没受到相应的惩罚！</p>
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
@@ -55,6 +85,12 @@
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3993865801444407" target="freeweibo-mirror">新疆75是全中国人民的痛,包括汉和维,我们不继承仇恨,但要明…</a>
+</h2>
+<p>新疆75是全中国人民的痛,包括汉和维,我们不继承仇恨,但要明白问题所在.恐怖分子固然挑唆,但维人对汉人的仇恨确实令人惊讶.这个录像是我当时记忆最深刻,一个老太太,一个年轻女人,如何能对一个路人如此仇视?这是对给钱给优惠,但又要求异化的民族政策的最大嘲讽,认为钱和特权能解决问题,完全是惰政表现<br><img src="http://ww4.sinaimg.cn/large/4a139f0bgw1f5ixwqi44dj20sk0kfdiy.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3993862324449984" target="freeweibo-mirror">[蜡烛]//@王小东:[蜡烛]//@田地發:[蜡烛]//@人…</a>
 </h2>
 <p>[蜡烛]//@王小东:[蜡烛]//@田地發:[蜡烛]//@人渣狐:[蜡烛]//@天真纯洁布列斯:[蜡烛] //@飞扬跋扈假黄瓜:[蜡烛]//@ronni_weng:[蜡烛] //@FYJS罐头鱼://@左岸听河:原博应该配这张图，原博图上左边那个被养猪场当场射杀，右边那个被判死刑[蜡烛] http://t.cn/R5uaUpr<br><br>RE: 《无衣》：  十亿头颅如草芥， 蒙元恶律急相煎。  但歌盛世遮民怨， 凡怒不平成罪愆。  乡土年年洇血色， 山河寸寸染腥膻。  敲醒半世非非想， 与子同袍济世颠。 [蜡烛][拳头]<br><img src="http://ww1.sinaimg.cn/large/5162c2fdgw1f5ink4qyezj20gs0ohq6c.jpg"></p>
@@ -65,13 +101,13 @@
 </h2>
 <p>[蜡烛]//@田地發:[蜡烛]//@人渣狐:[蜡烛]//@天真纯洁布列斯:[蜡烛] //@飞扬跋扈假黄瓜:[蜡烛]//@ronni_weng:[蜡烛] //@FYJS罐头鱼://@左岸听河:原博应该配这张图，原博图上左边那个被养猪场当场射杀，右边那个被判死刑[蜡烛] http://t.cn/R5uaUpr<br><br>RE: 《无衣》：  十亿头颅如草芥， 蒙元恶律急相煎。  但歌盛世遮民怨， 凡怒不平成罪愆。  乡土年年洇血色， 山河寸寸染腥膻。  敲醒半世非非想， 与子同袍济世颠。 [蜡烛][拳头]<br><img src="http://ww1.sinaimg.cn/large/5162c2fdgw1f5ink4qyezj20gs0ohq6c.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3993860717931005" target="freeweibo-mirror">俄羅斯、委內瑞拉、津巴布韋等共同特徵是什麼？疑似有五：一、都…</a>
 </h2>
 <p>俄羅斯、委內瑞拉、津巴布韋等共同特徵是什麼？疑似有五：一、都在鬧經濟危機、通貨膨脹、貨幣貶值；二、都是中國人民的老朋友；三、都是抗美英雄；四、都在不斷撕毀與中方簽訂的各種合約；五、都在不斷逼迫中方為其經濟危機買單。<br><img src="http://ww1.sinaimg.cn/large/006tSYZjjw1f5iq92ptufg30co05k0tr.gif"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3993852253438300" target="freeweibo-mirror">SPAM  //@红岛渔民:→_→ //@饶荣虎://@中国…</a>
 </h2>
@@ -91,53 +127,17 @@
 <p>
 	<small> ============== 4小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3993847715242671" target="freeweibo-mirror">SPAM 【那年，有个带头大哥】</a>
+</h2>
+<p>SPAM 【那年，有个带头大哥】<br><img src="http://ww2.sinaimg.cn/large/53ae0b70gw1f5iw3v9vaxj20m80fejtd.jpg"></p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3993847152916256" target="freeweibo-mirror">SPAM //@天涯赵瑜:不忘初心，原来是这个意思啊。</a>
 </h2>
 <p>SPAM //@天涯赵瑜:不忘初心，原来是这个意思啊。</p>
 <p>
 	<small> ============== 4小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3993831365830626" target="freeweibo-mirror">杨飞：为什么中国没有新闻法？</a>
-</h2>
-<p>杨飞：为什么中国没有新闻法？<br><img src="http://ww4.sinaimg.cn/large/7c0e9549gw1f5iub287hbj20qo4sce81.jpg"></p>
-<p>
-	<small> ============== 5小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3993815029042249" target="freeweibo-mirror">SPAM 官方报告首次承认：九成先富起来的是高干子弟！ 他們…</a>
-</h2>
-<p>SPAM 官方报告首次承认：九成先富起来的是高干子弟！ 他們都富起來了，才叫我們不忘初心，繼續前進⋯⋯ http://t.cn/R5ms7p2</p>
-<p>
-	<small> ============== 6小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3993814840608876" target="freeweibo-mirror">[怒]//@北京厨子新号:中华low 逼共和国。//@王小山…</a>
-</h2>
-<p>[怒]//@北京厨子新号:中华low 逼共和国。//@王小山: 这什么朋友啊。</p>
-<p>
-	<small> ============== 6小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3993805251774889" target="freeweibo-mirror">//@方无码: 太惨了//@超重型社会主义路灯://@-my…</a>
-</h2>
-<p>//@方无码: 太惨了//@超重型社会主义路灯://@-mythbuster-://@枪药之神我Sauron:这笔血债汉族记着了 //@列宁格勒保卫者:果断转发 //@godloveyou://@麦大黑的小窝: //@一颗大冰糖://@温都尔汗上空的鹰://@鱿鱼鱼鱼鱼鱼鱼鱼鱼鱼鱼鱼:转发微博</p>
-<p>
-	<small> ============== 7小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3993793461549964" target="freeweibo-mirror">//@彭园v://@东西南悲5866303293:军队快来，…</a>
-</h2>
-<p>//@彭园v://@东西南悲5866303293:军队快来，非法集会，聚众闹事<br><br>RE: #西安身边事# 网友爆料，警察也有上访的时候[吃惊]，请维护他们的合法权益。求证@陕西公安 这是什么情况？<br><img src="http://ww2.sinaimg.cn/large/005WySsNjw1f5hzdja31aj30j60dn0w6.jpg"></p>
-<p>
-	<small> ============== 8小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3993793340368913" target="freeweibo-mirror">“忠言逆耳，良药苦口。”100周年以后，你共产党能还有一口气…</a>
-</h2>
-<p>“忠言逆耳，良药苦口。”100周年以后，你共产党能还有一口气，必须忏悔100年中干过的坏事，犯过的错误，感谢所有建言和谏言的声音、批评和批判的声音！你今天连一个名不见经传的账号都要紧张，一个公知的发言都要紧张！没收转发键、删帖、销号你很拿手你很从容，你不想想，面对广大的民心，你就是怂！</p>
-<p>
-	<small> ============== 8小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3993786768220397" target="freeweibo-mirror">非蠢即坏//@中问-时评:这个时候他们个个是刘谦，不仅会演，…</a>
-</h2>
-<p>非蠢即坏//@中问-时评:这个时候他们个个是刘谦，不仅会演，而且能骗。//@成都企业法律顾问:这种时候那些在警察犯法激起众怒时候口口声声维护警察权威，维护警察利益，支持警方的五毛，还有那些觉得做警察委屈不想干的朋友。神奇的不见了，比刘谦的魔术还神奇<br><br>RE: #西安身边事# 网友爆料，警察也有上访的时候[吃惊]，请维护他们的合法权益。求证@陕西公安 这是什么情况？<br><img src="http://ww2.sinaimg.cn/large/005WySsNjw1f5hzdja31aj30j60dn0w6.jpg"></p>
-<p>
-	<small> ============== 8小时前</small>
 </p>
 <table>
     <tr>
