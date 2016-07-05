@@ -23,7 +23,7 @@
 </h2>
 <p>什么是国耻? 这就是【国耻】:声明里，有林祖恋的夫人杨珍、孙子林立义、孙女林白茹。林家留在乌坎的亲人，一致发声：林祖恋不需要政府提供免费的法律援助，林家要自己花钱请律师。在21世纪的人类社会，政府还能够干出这种下流事，这是全中国人的耻辱。<br><br>RE: 当局 又打脸了[害羞][害羞]<br><img src="http://ww1.sinaimg.cn/large/c4095c87gw1f5j1q3vk5hj20qo0zkq58.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3993899716529701" target="freeweibo-mirror">毛骨悚然！</a>
 </h2>
