@@ -41,13 +41,13 @@
 </h2>
 <p>当局 又打脸了[害羞][害羞]<br><img src="http://ww1.sinaimg.cn/large/c4095c87gw1f5j1q3vk5hj20qo0zkq58.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3993895728173344" target="freeweibo-mirror">[吃惊]//@北京的晖子:当政府不能保护百姓安全的时候，有人…</a>
 </h2>
 <p>[吃惊]//@北京的晖子:当政府不能保护百姓安全的时候，有人选择了自救，然后政府把自救者枪毙了，施暴者反而被减刑，我学识浅薄，不是太懂这样的民族政策。</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3993893329134919" target="freeweibo-mirror">[衰]//@刘力博士:[黑线]//@El_你才是怪蜀黍:烂污…</a>
 </h2>
@@ -125,7 +125,7 @@
 </h2>
 <p>新疆75是全中国人民的痛,包括汉和维,我们不继承仇恨,但要明白问题所在.恐怖分子固然挑唆,但维人对汉人的仇恨确实令人惊讶.这个录像是我当时记忆最深刻,一个老太太,一个年轻女人,如何能对一个路人如此仇视?这是对给钱给优惠,但又要求异化的民族政策的最大嘲讽,认为钱和特权能解决问题,完全是惰政表现<br><img src="http://ww4.sinaimg.cn/large/4a139f0bgw1f5ixwqi44dj20sk0kfdiy.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3993862324449984" target="freeweibo-mirror">[蜡烛]//@王小东:[蜡烛]//@田地發:[蜡烛]//@人…</a>
 </h2>
