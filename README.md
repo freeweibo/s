@@ -19,9 +19,21 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3993902241074912" target="freeweibo-mirror">什么是国耻? 这就是【国耻】:声明里，有林祖恋的夫人杨珍、孙…</a>
+</h2>
+<p>什么是国耻? 这就是【国耻】:声明里，有林祖恋的夫人杨珍、孙子林立义、孙女林白茹。林家留在乌坎的亲人，一致发声：林祖恋不需要政府提供免费的法律援助，林家要自己花钱请律师。在21世纪的人类社会，政府还能够干出这种下流事，这是全中国人的耻辱。<br><br>RE: 当局 又打脸了[害羞][害羞]<br><img src="http://ww1.sinaimg.cn/large/c4095c87gw1f5j1q3vk5hj20qo0zkq58.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3993899716529701" target="freeweibo-mirror">毛骨悚然！</a>
 </h2>
 <p>毛骨悚然！</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3993898839732834" target="freeweibo-mirror">声明里，有林祖恋的夫人杨珍、孙子林立义、孙女林白茹。林家留在…</a>
+</h2>
+<p>声明里，有林祖恋的夫人杨珍、孙子林立义、孙女林白茹。林家留在乌坎的亲人，一致发声：林祖恋不需要政府提供免费的法律援助，林家要自己花钱请律师。<br><br>RE: 当局 又打脸了[害羞][害羞]<br><img src="http://ww1.sinaimg.cn/large/c4095c87gw1f5j1q3vk5hj20qo0zkq58.jpg"></p>
 <p>
 	<small> ============== 1小时前</small>
 </p><h2>
@@ -83,7 +95,7 @@
 </h2>
 <p>一等洋人，二等官，三等少民，四等汉 //@FrostMaple://@陈杰要骑车://@majorcheng: 为最右图//@王小东: [蜡烛]//@田地發:[蜡烛]//@人渣狐:[蜡烛]//@FYJS罐头鱼://@左岸听河:原博应该配这张图，原博图上左边那个被养猪场当场射杀，右边那个被判死刑[蜡烛]   http://t.cn/R5uaUpr<br><br>RE: 《无衣》：  十亿头颅如草芥， 蒙元恶律急相煎。  但歌盛世遮民怨， 凡怒不平成罪愆。  乡土年年洇血色， 山河寸寸染腥膻。  敲醒半世非非想， 与子同袍济世颠。 [蜡烛][拳头]<br><img src="http://ww1.sinaimg.cn/large/5162c2fdgw1f5ink4qyezj20gs0ohq6c.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3993865801444407" target="freeweibo-mirror">新疆75是全中国人民的痛,包括汉和维,我们不继承仇恨,但要明…</a>
 </h2>
@@ -113,29 +125,17 @@
 </h2>
 <p>SPAM  //@红岛渔民:→_→ //@饶荣虎://@中国日本文学研究会:此时承认，是因为现在已经有了空前的自信！</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3993851612423281" target="freeweibo-mirror">SPAM [傻眼]</a>
 </h2>
 <p>SPAM [傻眼]</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3993849996902919" target="freeweibo-mirror">SPAM //@斯韦爵: 呵呵 //@天涯赵瑜:不忘初心，原…</a>
 </h2>
 <p>SPAM //@斯韦爵: 呵呵 //@天涯赵瑜:不忘初心，原来是这个意思啊。</p>
-<p>
-	<small> ============== 5小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3993847715242671" target="freeweibo-mirror">SPAM 【那年，有个带头大哥】</a>
-</h2>
-<p>SPAM 【那年，有个带头大哥】<br><img src="http://ww2.sinaimg.cn/large/53ae0b70gw1f5iw3v9vaxj20m80fejtd.jpg"></p>
-<p>
-	<small> ============== 5小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3993847152916256" target="freeweibo-mirror">SPAM //@天涯赵瑜:不忘初心，原来是这个意思啊。</a>
-</h2>
-<p>SPAM //@天涯赵瑜:不忘初心，原来是这个意思啊。</p>
 <p>
 	<small> ============== 5小时前</small>
 </p>
