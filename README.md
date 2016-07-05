@@ -83,7 +83,7 @@
 </h2>
 <p>SPAM 【黑龙江绥芬河边防战士持枪杀人逃跑 携一把79微冲19发子弹[吃惊]】7月5日晚，网传一张《关于迅速对命案逃犯王增志开展查堵工作的通知》，称绥芬河边防战士王增志持枪杀人后逃跑，身穿迷彩服，携带一把微冲，19发子弹。记者联系绥芬河边防检查站，对方确认该《通知》属实。http://t.cn/R53USrz（京华时...全文： http://m.weibo.cn/2097081305/3994020260826340<br><img src="http://ww4.sinaimg.cn/large/7cfeebd9jw1f5jg02wq37j20dc0hsab2.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3994019338000147" target="freeweibo-mirror">此事不一般 //@天津马辛:转发微博</a>
 </h2>
