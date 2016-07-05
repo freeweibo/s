@@ -101,7 +101,7 @@
 </h2>
 <p>SPAM #转新闻#【黑龙江绥芬河边防战士持枪杀人逃跑】网传一张《关于迅速对命案逃犯王增志开展查堵工作的通知》，称绥芬河边防战士王增志持枪杀人后逃跑，逃跑时身穿迷 彩服，携带一把微冲，19发子弹。京华时报记者联系绥芬河边防检查站，对方确认该《通知》属实。http://t.cn/R53USrz<br><img src="http://ww4.sinaimg.cn/large/4969c683gw1f5jh6mn4ioj20dc0hsgnj.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3994029958551434" target="freeweibo-mirror">SPAM [7.5] #陈伟霆张大佛爷# › #张艺兴二月红…</a>
 </h2>
