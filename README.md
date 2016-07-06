@@ -25,6 +25,12 @@
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3994175743375996" target="freeweibo-mirror">【李克强冒大雨急赴武汉长江干堤管涌现场指挥抢险救灾】7月6日…</a>
+</h2>
+<p>【李克强冒大雨急赴武汉长江干堤管涌现场指挥抢险救灾】7月6日一早，李克强总理从湖南岳阳乘高铁急赴湖北武汉，一路上大雨如注。总理一下车，直奔青山区长江干堤倒口湖堤段管涌现场指挥抢险救灾。<br><img src="http://ww3.sinaimg.cn/large/9e5389bbjw1f5jxuuo3a7j212p0ow46q.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3994156055264259" target="freeweibo-mirror">//@守候者说: //@海S小丸子:对得起初中生博士这个称号…</a>
 </h2>
 <p>//@守候者说: //@海S小丸子:对得起初中生博士这个称号，搞黑恶一把好手；搞经济一窍不通！<br><br>RE: 就国企问题，老大、老二各自的态度如下：<br><img src="http://ww4.sinaimg.cn/large/51834496jw1f5jtlzroswj20iw0zkgom.jpg"></p>
@@ -35,7 +41,7 @@
 </h2>
 <p>//@光老顽童:听谁的？ //@LifeTime:有意思。继经济形势“开门红”与“L”分歧之后，再次公开分道扬镳。<br><br>RE: 就国企问题，老大、老二各自的态度如下：<br><img src="http://ww4.sinaimg.cn/large/51834496jw1f5jtlzroswj20iw0zkgom.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3994143510720354" target="freeweibo-mirror">SPAM 大家早上好</a>
 </h2>
@@ -47,19 +53,19 @@
 </h2>
 <p>害怕怕//@律师老周401: //@scarlett冰火2:香港人你们颤抖了吗?<br><br>RE: 公安：铜锣湾书店老板必须返回内地再接受调查，否则将采取强制措施。[拳头][拳头][拳头]<br><img src="http://ww2.sinaimg.cn/large/539d77e6jw1f5jb2chckoj20wy18gtie.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3994138749408074" target="freeweibo-mirror">就国企问题，老大、老二各自的态度如下：</a>
 </h2>
 <p>就国企问题，老大、老二各自的态度如下：<br><img src="http://ww4.sinaimg.cn/large/51834496jw1f5jtlzroswj20iw0zkgom.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3994106675471142" target="freeweibo-mirror">没有丑女人只有懒女人，要美就快来[挤眼]加个人卫_星：shc…</a>
 </h2>
 <p>没有丑女人只有懒女人，要美就快来[挤眼]加个人卫_星：shc997</p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3994053378353479" target="freeweibo-mirror">SPAM 原来如此//@心灵钥匙0618: 【边防战士枪支走…</a>
 </h2>
@@ -77,13 +83,13 @@
 </h2>
 <p>SPAM 你不清真。 //@tinyfool://@朴灵: [拜拜]//@ShiningRay: //@跳跳可爱虎:[打脸]//@午后狂睡_Silent:[笑cry][笑cry] //@鸡老师的肉身:我也来一个 [笑cry]   http://t.cn/R53xqtk   //@M-HamBurger: 哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈//@Geforce北川:这不清真<br><br>RE: #作死千方#【isis游记】画tank和长者总被屏蔽不知道为啥，画点别的题材吧<br><img src="http://ww2.sinaimg.cn/large/a339bd15jw1f5jewt880sj20m80tqgme.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3994038786623388" target="freeweibo-mirror">SPAM //@朴灵: [拜拜]//@ShiningRay:…</a>
 </h2>
 <p>SPAM //@朴灵: [拜拜]//@ShiningRay: //@跳跳可爱虎:[打脸]//@午后狂睡_Silent:[笑cry][笑cry] //@鸡老师的肉身:我也来一个 [笑cry]   http://t.cn/R53xqtk   //@M-HamBurger: 哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈//@Geforce北川:这不清真<br><br>RE: #作死千方#【isis游记】画tank和长者总被屏蔽不知道为啥，画点别的题材吧<br><img src="http://ww2.sinaimg.cn/large/a339bd15jw1f5jewt880sj20m80tqgme.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3994035045412234" target="freeweibo-mirror">//@P民新传媒: //@三角锋评:突然想起那个会单手换弹夹…</a>
 </h2>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3994032910633279" target="freeweibo-mirror">回复@百变猫仔William:如只是事故，赶紧和部队沟通，然…</a>
 </h2>
 <p>回复@百变猫仔William:如只是事故，赶紧和部队沟通，然后赶紧自首，如此可免被围捕。一旦大规模围捕，就是要就地将危险降到最低的方式来解决。 //@百变猫仔William:然而还有个新闻啊：边防战士枪支走火致战友身亡 因害怕携手枪躲入山林 现正在返回部队途中，到底咋回事捏？？？<br><br>RE: 【这个太危险了，见到就是格杀勿论，除非投案自首恐怕是不会留活口的！】黑龙江绥芬河边防战士持枪杀人逃跑 携微冲带19发子弹 http://t.cn/R53xb81<br><img src="http://ww1.sinaimg.cn/large/4d661393jw1f5jh2qa74wj20dc0hsjtb.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3994032444602781" target="freeweibo-mirror">SPAM 潮人 [心]</a>
-</h2>
-<p>SPAM 潮人 [心]</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
