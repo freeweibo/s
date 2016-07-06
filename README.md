@@ -47,7 +47,7 @@
 </h2>
 <p>【李克强冒大雨急赴武汉长江干堤管涌现场指挥抢险救灾】7月6日一早，李克强总理从湖南岳阳乘高铁急赴湖北武汉，一路上大雨如注。总理一下车，直奔青山区长江干堤倒口湖堤段管涌现场指挥抢险救灾。<br><img src="http://ww3.sinaimg.cn/large/9e5389bbjw1f5jxuuo3a7j212p0ow46q.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3994156055264259" target="freeweibo-mirror">//@守候者说: //@海S小丸子:对得起初中生博士这个称号…</a>
 </h2>
