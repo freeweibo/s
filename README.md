@@ -19,6 +19,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3994352487840054" target="freeweibo-mirror">//@雷公旗://@周氏琛平: 人祸…//@缘聚紫荆://@…</a>
+</h2>
+<p>//@雷公旗://@周氏琛平: 人祸…//@缘聚紫荆://@非物质文盲遗产：别人家这么救援 http://t.cn/R51Zqov<br><br>RE: 拍脑袋的经济决策:围湖造地、填河造地建房、让人吐槽的城市规划设计、贪污巨额回扣而致的豆腐渣工程，是加重灾害的直接原因。灾害出现了只有把老百姓的儿子送上去承受它们的过错，然后它们象职业哭丧人一样，在那里“感天动地” http://t.cn/R2WieFY<br><img src="http://ww3.sinaimg.cn/large/006s8B3fgw1f5jzpl7bocj30k00zkgqg.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3994349157703714" target="freeweibo-mirror">SPAM //@东河-猎鹰倚天屠龙:[偷笑]</a>
 </h2>
 <p>SPAM //@东河-猎鹰倚天屠龙:[偷笑]<br><br>RE: 脸书上的这位朋友不懂中国，所以发问，看英文翻译——问：后面有台阶，干嘛站水里？我回复他说：对面有相机，拍完就上去。。<br><img src="http://ww4.sinaimg.cn/large/006fooE6gw1f5khex4pzoj30hs0i2q3x.jpg"></p>
@@ -37,11 +43,17 @@
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3994330253418024" target="freeweibo-mirror">//@临老装疯:武汉中心城区内涝早于远城区洪汛，130亿的投…</a>
+</h2>
+<p>//@临老装疯:武汉中心城区内涝早于远城区洪汛，130亿的投资效果不该被拿出来说事儿吗？<br><br>RE: 武汉发大水，极少数人追问治水的130亿花哪儿去了。面对质问，武汉外宣办主任梅华很生气，她说“小心武汉人民抄家伙”。<br><img src="http://ww2.sinaimg.cn/large/7c1f76efgw1f5k8b51684j20xr0qowhu.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3994320639558359" target="freeweibo-mirror">“首长，后面有台阶可以站”……“不行，那样群众就不会感动了。…</a>
 </h2>
 <p>“首长，后面有台阶可以站”……“不行，那样群众就不会感动了。“”<br><img src="http://ww2.sinaimg.cn/large/006pBBc9jw1f5kei112rtj30hs0i30un.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3994306845044524" target="freeweibo-mirror">SPAM twipic </a>
 </h2>
@@ -126,18 +138,6 @@
 <p>SPAM #奥运冠军聚首重返战场#田亮、刘璇、王皓、冯喆、廖辉，这五人聚首的阵势榜姐是前所未见啊~~毕竟榜姐才15岁[doge] ，我也要跟着他们上车去了！前方赶紧退让~~<br><br>RE: 都别猜啦，其实我的新战场就是梦幻手游全民PK争霸赛！电竞赛事和奥运一样是个公平竞技的战场，梦幻手游其实对于策略和竞技能力也有非常高的要求。不一样的战场，同样的公平，同样的夺冠之心。@刘璇 @王皓乒乓 @冯喆小胖 @廖辉<br><img src="http://ww2.sinaimg.cn/large/624c473cjw1f5jblxulw8j20ku1127wh.jpg"></p>
 <p>
 	<small> ============== 8小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3994245217701521" target="freeweibo-mirror">@张鸣  @紫光阁  @王占阳  @邓相超  @哲王老祖  …</a>
-</h2>
-<p>@张鸣  @紫光阁  @王占阳  @邓相超  @哲王老祖  @人民日报  @北京酋长  @南方人物周刊  @陈明德  @巴曙松  @点子正 『邓小平的政治人品』http://t.cn/R539ClM</p>
-<p>
-	<small> ============== 8小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3994238917958469" target="freeweibo-mirror">这么会有这么傻逼脑残呢[怒]</a>
-</h2>
-<p>这么会有这么傻逼脑残呢[怒]<br><br>RE: 除非再发动一场“文革”，否则，这些脑残是打不倒@茅于轼 先生的，他不是汉奸，也不卖国贼，他们是民族的脊梁！ http://t.cn/R53mjPN .</p>
-<p>
-	<small> ============== 9小时前</small>
 </p>
 <table>
     <tr>
