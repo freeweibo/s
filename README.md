@@ -137,7 +137,7 @@
 </h2>
 <p>//@光老顽童:听谁的？ //@LifeTime:有意思。继经济形势“开门红”与“L”分歧之后，再次公开分道扬镳。<br><br>RE: 就国企问题，老大、老二各自的态度如下：<br><img src="http://ww4.sinaimg.cn/large/51834496jw1f5jtlzroswj20iw0zkgom.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p>
 <table>
     <tr>
