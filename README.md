@@ -47,7 +47,7 @@
 </h2>
 <p>SPAM 大家早上好<br><br>RE: 就国企问题，老大、老二各自的态度如下：<br><img src="http://ww4.sinaimg.cn/large/51834496jw1f5jtlzroswj20iw0zkgom.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3994139337596849" target="freeweibo-mirror">害怕怕//@律师老周401: //@scarlett冰火2:…</a>
 </h2>
@@ -71,7 +71,7 @@
 </h2>
 <p>SPAM 原来如此//@心灵钥匙0618: 【边防战士枪支走火致战友身亡 因害怕躲入山林】据@京华时报，今日7时15分许，突分队班长王增志因验枪走火致人死亡。事件发生后，王增志因害怕，携带一支77式手枪离开现场跑入驻地附近山林，后主动与家人和部队联系。据黑龙江公安边防总队消息，王增志目前正在返回部队途中。<br><br>RE: #黑龙江绥芬河边防战士持枪杀人逃跑# 7月5日晚，网传一张《关于迅速对命案逃犯王增志开展查堵工作的通知》，称绥芬河边防战士王增志持枪杀人后逃跑，逃跑时身穿迷 彩服，携带一把微冲，19发子弹。京华时报记者联系绥芬河边防检查站，对方确认该《通知》属实。该通知系发给“乘警支队、各派出所”。《通...全文： http://m.weibo.cn/3955358362/3994033837056002<br><img src="http://ww2.sinaimg.cn/large/ebc1fa9ajw1f5jhiz1msgj20dc0hsmz5.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3994049465331759" target="freeweibo-mirror">SPAM //@冀翼book: [汗]//@純情小杰瑞: 哈…</a>
 </h2>
