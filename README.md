@@ -19,6 +19,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3994384402317862" target="freeweibo-mirror">对，所有人都脑残，就你眼尖伶牙俐齿小聪明，上至朝野下至黎明百…</a>
+</h2>
+<p>对，所有人都脑残，就你眼尖伶牙俐齿小聪明，上至朝野下至黎明百姓，都得给你当神一样早晚三炷香供起来。听听武汉人民怎么说，早晨三峡控制泄洪量，下午水就退了。而98年洪水整整一星期后才退。善良比聪明能力更重要，所以不要拿灾区人民的痛苦当幽默。//@陈有西: 没办法，是确有脑残。</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3994381541351023" target="freeweibo-mirror">//@陈有西: 小黑你用上低价电了吗？//@小黑-KEREN…</a>
 </h2>
 <p>//@陈有西: 小黑你用上低价电了吗？//@小黑-KEREN：我是真心心疼三峡大坝，遇事就得背黑锅，然而用电的时候就没人想它的好。虽说大坝建成有利有弊，但是能不能讲点儿理呢？别什么事都怪大坝好吗？</p>
@@ -37,6 +43,12 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3994373269867728" target="freeweibo-mirror">[弱]//@投资家王新平:这次水灾是上游洪水吗？借此机会幸灾…</a>
+</h2>
+<p>[弱]//@投资家王新平:这次水灾是上游洪水吗？借此机会幸灾乐祸和专业以及见识没有关系，而是你人品有问题，说白了就是一投机钻营的sb。这个世界不管是谁，认识自己太难，周围人忽悠一下，自己再意淫一下，很容易就变成无所不通，无所不能的神了。灾难面前如果帮不上忙没有关系，请不要落井下石！</p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3994361937626292" target="freeweibo-mirror">//@鲲鹏展翅qd:[哈哈] //@陈有西:[嘻嘻]有吗？我…</a>
 </h2>
 <p>//@鲲鹏展翅qd:[哈哈] //@陈有西:[嘻嘻]有吗？我可帮五毛挣了不少狗粮。他们从不谢我。//@夏天的鼠标1992：陈律师应该改名字 叫陈霸天。</p>
@@ -47,7 +59,7 @@
 </h2>
 <p>//@辛巴的平凡世界:由谎言构成的一群流氓组织</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3994355885183924" target="freeweibo-mirror">//@陈有西: [嘻嘻]有吗？我可帮五毛挣了不少狗粮。他们从…</a>
 </h2>
@@ -124,18 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3994306845044524" target="freeweibo-mirror">SPAM twipic </a>
 </h2>
 <p>SPAM twipic </p>
-<p>
-	<small> ============== 7小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3994302847621138" target="freeweibo-mirror">SPAM 用心的去选择好的产品，不然，以后的工作都是白做，真…</a>
-</h2>
-<p>SPAM 用心的去选择好的产品，不然，以后的工作都是白做，真的是白做。</p>
-<p>
-	<small> ============== 7小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3994300125409175" target="freeweibo-mirror">杨连宁：别再说什么“吃党饭砸党锅”的错话啦！</a>
-</h2>
-<p>杨连宁：别再说什么“吃党饭砸党锅”的错话啦！<br><img src="http://ww1.sinaimg.cn/large/7c0e9549gw1f5kc53a8lij20hs11pal2.jpg"></p>
 <p>
 	<small> ============== 7小时前</small>
 </p>
