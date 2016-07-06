@@ -77,7 +77,7 @@
 </h2>
 <p>SPAM //@冀翼book: [汗]//@純情小杰瑞: 哈哈蛤<br><br>RE: #作死千方#【isis游记】画tank和长者总被屏蔽不知道为啥，画点别的题材吧<br><img src="http://ww2.sinaimg.cn/large/a339bd15jw1f5jewt880sj20m80tqgme.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3994040338251122" target="freeweibo-mirror">SPAM 你不清真。 //@tinyfool://@朴灵: …</a>
 </h2>
