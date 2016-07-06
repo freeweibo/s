@@ -131,7 +131,7 @@
 </h2>
 <p>SPAM 大家早上好<br><br>RE: 就国企问题，老大、老二各自的态度如下：<br><img src="http://ww4.sinaimg.cn/large/51834496jw1f5jtlzroswj20iw0zkgom.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3994139337596849" target="freeweibo-mirror">害怕怕//@律师老周401: //@scarlett冰火2:…</a>
 </h2>
