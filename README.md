@@ -65,7 +65,7 @@
 </h2>
 <p>这是明目张胆的阴谋。表明万恶的资本主义忘我之心不死。<br><img src="http://ww1.sinaimg.cn/large/473f8cfdjw1f5k66la6wmj20hs0t7mzy.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3994246354127277" target="freeweibo-mirror">SPAM #奥运冠军聚首重返战场#田亮、刘璇、王皓、冯喆、廖…</a>
 </h2>
