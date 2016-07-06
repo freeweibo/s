@@ -25,6 +25,12 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3994320639558359" target="freeweibo-mirror">“首长，后面有台阶可以站”……“不行，那样群众就不会感动了。…</a>
+</h2>
+<p>“首长，后面有台阶可以站”……“不行，那样群众就不会感动了。“”<br><img src="http://ww2.sinaimg.cn/large/006pBBc9jw1f5kei112rtj30hs0i30un.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3994306845044524" target="freeweibo-mirror">SPAM twipic </a>
 </h2>
 <p>SPAM twipic </p>
@@ -132,12 +138,6 @@
 <p>武汉被淹，除了大雨之外，都说跟湖泊被填有关。这个我有发言权，我曾经去调查过某大公司占东湖建房子的事，武汉被称为千湖，但实际上很多都已经被填得不成样子，东湖是武汉最大的湖，也最受关注，所以一般不敢填东湖，但实际上悄悄填东湖一直在进行中。而且这个调查很简单，不需要专业知识，用Google e...全文： http://m.weibo.cn/1737870711/3994194940824357...全文： http://m.weibo.cn/1737870711/3994194940824357</p>
 <p>
 	<small> ============== 11小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3994185704793697" target="freeweibo-mirror">［节日祝福］7月6日，全球16亿穆斯林迎来一年中最重要的节日…</a>
-</h2>
-<p>［节日祝福］7月6日，全球16亿穆斯林迎来一年中最重要的节日——开斋节，一个众人快乐、关爱、原谅与友好的时刻。然而，在刚刚过去的斋月，叙利亚停火不断遭到破坏，伊拉克、阿富汗、土耳其、索马里、孟加拉国接连遭受恐怖袭击，加沙地带的巴勒斯坦人仍在封锁下艰难度日。让我们为这片土地祈福。[蜡烛]<br><img src="http://ww3.sinaimg.cn/large/65dfab2dgw1f5jobotr4zj20hs09i0ud.jpg"></p>
-<p>
-	<small> ============== 12小时前</small>
 </p>
 <table>
     <tr>
