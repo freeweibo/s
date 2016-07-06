@@ -35,7 +35,13 @@
 </h2>
 <p>吓得我吃了块叉烧[doge]<br><br>RE: ［节日祝福］7月6日，全球16亿穆斯林迎来一年中最重要的节日——开斋节，一个众人快乐、关爱、原谅与友好的时刻。然而，在刚刚过去的斋月，叙利亚停火不断遭到破坏，伊拉克、阿富汗、土耳其、索马里、孟加拉国接连遭受恐怖袭击，加沙地带的巴勒斯坦人仍在封锁下艰难度日。让我们为这片土地祈福。[蜡烛]<br><img src="http://ww3.sinaimg.cn/large/65dfab2dgw1f5jobotr4zj20hs09i0ud.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3994248762393387" target="freeweibo-mirror">这是明目张胆的阴谋。表明万恶的资本主义忘我之心不死。</a>
+</h2>
+<p>这是明目张胆的阴谋。表明万恶的资本主义忘我之心不死。<br><img src="http://ww1.sinaimg.cn/large/473f8cfdjw1f5k66la6wmj20hs0t7mzy.jpg"></p>
+<p>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3994246354127277" target="freeweibo-mirror">SPAM #奥运冠军聚首重返战场#田亮、刘璇、王皓、冯喆、廖…</a>
 </h2>
@@ -64,6 +70,12 @@
 	<a href="https://freeweibo.com/weibo/3994194940824357" target="freeweibo-mirror">武汉被淹，除了大雨之外，都说跟湖泊被填有关。这个我有发言权，…</a>
 </h2>
 <p>武汉被淹，除了大雨之外，都说跟湖泊被填有关。这个我有发言权，我曾经去调查过某大公司占东湖建房子的事，武汉被称为千湖，但实际上很多都已经被填得不成样子，东湖是武汉最大的湖，也最受关注，所以一般不敢填东湖，但实际上悄悄填东湖一直在进行中。而且这个调查很简单，不需要专业知识，用Google e...全文： http://m.weibo.cn/1737870711/3994194940824357...全文： http://m.weibo.cn/1737870711/3994194940824357</p>
+<p>
+	<small> ============== 8小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3994185704793697" target="freeweibo-mirror">［节日祝福］7月6日，全球16亿穆斯林迎来一年中最重要的节日…</a>
+</h2>
+<p>［节日祝福］7月6日，全球16亿穆斯林迎来一年中最重要的节日——开斋节，一个众人快乐、关爱、原谅与友好的时刻。然而，在刚刚过去的斋月，叙利亚停火不断遭到破坏，伊拉克、阿富汗、土耳其、索马里、孟加拉国接连遭受恐怖袭击，加沙地带的巴勒斯坦人仍在封锁下艰难度日。让我们为这片土地祈福。[蜡烛]<br><img src="http://ww3.sinaimg.cn/large/65dfab2dgw1f5jobotr4zj20hs09i0ud.jpg"></p>
 <p>
 	<small> ============== 8小时前</small>
 </p><h2>
@@ -124,18 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3994049465331759" target="freeweibo-mirror">SPAM //@冀翼book: [汗]//@純情小杰瑞: 哈…</a>
 </h2>
 <p>SPAM //@冀翼book: [汗]//@純情小杰瑞: 哈哈蛤<br><br>RE: #作死千方#【isis游记】画tank和长者总被屏蔽不知道为啥，画点别的题材吧<br><img src="http://ww2.sinaimg.cn/large/a339bd15jw1f5jewt880sj20m80tqgme.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3994040338251122" target="freeweibo-mirror">SPAM 你不清真。 //@tinyfool://@朴灵: …</a>
-</h2>
-<p>SPAM 你不清真。 //@tinyfool://@朴灵: [拜拜]//@ShiningRay: //@跳跳可爱虎:[打脸]//@午后狂睡_Silent:[笑cry][笑cry] //@鸡老师的肉身:我也来一个 [笑cry]   http://t.cn/R53xqtk   //@M-HamBurger: 哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈//@Geforce北川:这不清真<br><br>RE: #作死千方#【isis游记】画tank和长者总被屏蔽不知道为啥，画点别的题材吧<br><img src="http://ww2.sinaimg.cn/large/a339bd15jw1f5jewt880sj20m80tqgme.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3994038786623388" target="freeweibo-mirror">SPAM //@朴灵: [拜拜]//@ShiningRay:…</a>
-</h2>
-<p>SPAM //@朴灵: [拜拜]//@ShiningRay: //@跳跳可爱虎:[打脸]//@午后狂睡_Silent:[笑cry][笑cry] //@鸡老师的肉身:我也来一个 [笑cry]   http://t.cn/R53xqtk   //@M-HamBurger: 哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈//@Geforce北川:这不清真<br><br>RE: #作死千方#【isis游记】画tank和长者总被屏蔽不知道为啥，画点别的题材吧<br><img src="http://ww2.sinaimg.cn/large/a339bd15jw1f5jewt880sj20m80tqgme.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
