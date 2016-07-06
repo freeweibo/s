@@ -31,6 +31,12 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3994208626317866" target="freeweibo-mirror">除非再发动一场“文革”，否则，这些脑残是打不倒@茅于轼 先生…</a>
+</h2>
+<p>除非再发动一场“文革”，否则，这些脑残是打不倒@茅于轼 先生的，他不是汉奸，也不卖国贼，他们是民族的脊梁！ http://t.cn/R53mjPN .</p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3994179820130735" target="freeweibo-mirror">#湖北暴雨#李克强冒大雨急赴武汉长江干堤管涌现场指挥抢险救灾…</a>
 </h2>
 <p>#湖北暴雨#李克强冒大雨急赴武汉长江干堤管涌现场指挥抢险救灾。<br><br>RE: 【李克强冒大雨急赴武汉长江干堤管涌现场指挥抢险救灾】7月6日一早，李克强总理从湖南岳阳乘高铁急赴湖北武汉，一路上大雨如注。总理一下车，直奔青山区长江干堤倒口湖堤段管涌现场指挥抢险救灾。<br><img src="http://ww3.sinaimg.cn/large/9e5389bbjw1f5jxuuo3a7j212p0ow46q.jpg"></p>
@@ -41,7 +47,7 @@
 </h2>
 <p>【李克强冒大雨急赴武汉长江干堤管涌现场指挥抢险救灾】7月6日一早，李克强总理从湖南岳阳乘高铁急赴湖北武汉，一路上大雨如注。总理一下车，直奔青山区长江干堤倒口湖堤段管涌现场指挥抢险救灾。<br><img src="http://ww3.sinaimg.cn/large/9e5389bbjw1f5jxuuo3a7j212p0ow46q.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3994156055264259" target="freeweibo-mirror">//@守候者说: //@海S小丸子:对得起初中生博士这个称号…</a>
 </h2>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3994034148242455" target="freeweibo-mirror">【黑龙江绥芬河边防战士持枪杀人逃跑 携一把79微冲19发子弹…</a>
 </h2>
 <p>【黑龙江绥芬河边防战士持枪杀人逃跑 携一把79微冲19发子弹】7月5日晚，网传一张《关于迅速对命案逃犯王增志开展查堵工作的通知》，称绥芬河边防战士王增志持枪杀人后逃跑，身穿迷彩服，携带一把微冲，19发子弹。记者联系绥芬河边防检查站，对方确认该《通知》属实。http://t.cn/R53USrz<br><img src="http://ww2.sinaimg.cn/large/4bc7844dgw1f5jhlhjllsj20dc0hsdh1.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3994033837056002" target="freeweibo-mirror">#黑龙江绥芬河边防战士持枪杀人逃跑# 7月5日晚，网传一张《…</a>
-</h2>
-<p>#黑龙江绥芬河边防战士持枪杀人逃跑# 7月5日晚，网传一张《关于迅速对命案逃犯王增志开展查堵工作的通知》，称绥芬河边防战士王增志持枪杀人后逃跑，逃跑时身穿迷 彩服，携带一把微冲，19发子弹。京华时报记者联系绥芬河边防检查站，对方确认该《通知》属实。该通知系发给“乘警支队、各派出所”。《通...全文： http://m.weibo.cn/3955358362/3994033837056002<br><img src="http://ww2.sinaimg.cn/large/ebc1fa9ajw1f5jhiz1msgj20dc0hsmz5.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
