@@ -19,6 +19,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3994337798526679" target="freeweibo-mirror">[阴险]</a>
+</h2>
+<p>[阴险]<br><br>RE: “首长，后面有台阶可以站”……“不行，那样群众就不会感动了。“”<br><img src="http://ww2.sinaimg.cn/large/006pBBc9jw1f5kei112rtj30hs0i30un.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3994306845044524" target="freeweibo-mirror">SPAM twipic </a>
 </h2>
 <p>SPAM twipic </p>
@@ -132,12 +138,6 @@
 <p>［节日祝福］7月6日，全球16亿穆斯林迎来一年中最重要的节日——开斋节，一个众人快乐、关爱、原谅与友好的时刻。然而，在刚刚过去的斋月，叙利亚停火不断遭到破坏，伊拉克、阿富汗、土耳其、索马里、孟加拉国接连遭受恐怖袭击，加沙地带的巴勒斯坦人仍在封锁下艰难度日。让我们为这片土地祈福。[蜡烛]<br><img src="http://ww3.sinaimg.cn/large/65dfab2dgw1f5jobotr4zj20hs09i0ud.jpg"></p>
 <p>
 	<small> ============== 11小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3994179820130735" target="freeweibo-mirror">#湖北暴雨#李克强冒大雨急赴武汉长江干堤管涌现场指挥抢险救灾…</a>
-</h2>
-<p>#湖北暴雨#李克强冒大雨急赴武汉长江干堤管涌现场指挥抢险救灾。<br><br>RE: 【李克强冒大雨急赴武汉长江干堤管涌现场指挥抢险救灾】7月6日一早，李克强总理从湖南岳阳乘高铁急赴湖北武汉，一路上大雨如注。总理一下车，直奔青山区长江干堤倒口湖堤段管涌现场指挥抢险救灾。<br><img src="http://ww3.sinaimg.cn/large/9e5389bbjw1f5jxuuo3a7j212p0ow46q.jpg"></p>
-<p>
-	<small> ============== 12小时前</small>
 </p>
 <table>
     <tr>
