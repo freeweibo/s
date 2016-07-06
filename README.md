@@ -53,7 +53,7 @@
 </h2>
 <p>//@守候者说: //@海S小丸子:对得起初中生博士这个称号，搞黑恶一把好手；搞经济一窍不通！<br><br>RE: 就国企问题，老大、老二各自的态度如下：<br><img src="http://ww4.sinaimg.cn/large/51834496jw1f5jtlzroswj20iw0zkgom.jpg"></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3994153392735465" target="freeweibo-mirror">//@光老顽童:听谁的？ //@LifeTime:有意思。继…</a>
 </h2>
