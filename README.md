@@ -19,9 +19,21 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3994349157703714" target="freeweibo-mirror">SPAM //@东河-猎鹰倚天屠龙:[偷笑]</a>
+</h2>
+<p>SPAM //@东河-猎鹰倚天屠龙:[偷笑]<br><br>RE: 脸书上的这位朋友不懂中国，所以发问，看英文翻译——问：后面有台阶，干嘛站水里？我回复他说：对面有相机，拍完就上去。。<br><img src="http://ww4.sinaimg.cn/large/006fooE6gw1f5khex4pzoj30hs0i2q3x.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3994337798526679" target="freeweibo-mirror">[阴险]</a>
 </h2>
 <p>[阴险]<br><br>RE: “首长，后面有台阶可以站”……“不行，那样群众就不会感动了。“”<br><img src="http://ww2.sinaimg.cn/large/006pBBc9jw1f5kei112rtj30hs0i30un.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3994331600144259" target="freeweibo-mirror">毛左同意这个，其他人不同意——毛左与其他人，就是不共戴天的敌…</a>
+</h2>
+<p>毛左同意这个，其他人不同意——毛左与其他人，就是不共戴天的敌人。敌人之间，不必同意，不应该同意。[嘻嘻]改革开放，毛病不少，但仍然比以前好。[拍照]</p>
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
@@ -89,7 +101,7 @@
 </h2>
 <p>SPAM 填湖 ，侵占河道，大量不透水的硬化地面，开发商代建的城市道理不达标。这是我们城市化发展中走过的弯路.不回避，正视才能改变<br><br>RE: 武汉被淹，除了大雨之外，都说跟湖泊被填有关。这个我有发言权，我曾经去调查过某大公司占东湖建房子的事，武汉被称为千湖，但实际上很多都已经被填得不成样子，东湖是武汉最大的湖，也最受关注，所以一般不敢填东湖，但实际上悄悄填东湖一直在进行中。而且这个调查很简单，不需要专业知识，用Google e...全文： http://m.weibo.cn/1737870711/3994194940824357...全文： http://m.weibo.cn/1737870711/3994194940824357</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3994276922807631" target="freeweibo-mirror">为什么？ //@刘金滨_律师:长江泄不了洪水是为什么？[怒]…</a>
 </h2>
@@ -115,29 +127,17 @@
 <p>
 	<small> ============== 8小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3994245217701521" target="freeweibo-mirror">@张鸣  @紫光阁  @王占阳  @邓相超  @哲王老祖  …</a>
+</h2>
+<p>@张鸣  @紫光阁  @王占阳  @邓相超  @哲王老祖  @人民日报  @北京酋长  @南方人物周刊  @陈明德  @巴曙松  @点子正 『邓小平的政治人品』http://t.cn/R539ClM</p>
+<p>
+	<small> ============== 8小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3994238917958469" target="freeweibo-mirror">这么会有这么傻逼脑残呢[怒]</a>
 </h2>
 <p>这么会有这么傻逼脑残呢[怒]<br><br>RE: 除非再发动一场“文革”，否则，这些脑残是打不倒@茅于轼 先生的，他不是汉奸，也不卖国贼，他们是民族的脊梁！ http://t.cn/R53mjPN .</p>
 <p>
 	<small> ============== 8小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3994230953808850" target="freeweibo-mirror">【130个亿真打水漂了。@湖北省人民检察院，你们不査查？】这…</a>
-</h2>
-<p>【130个亿真打水漂了。@湖北省人民检察院，你们不査查？】这种景象很荒唐，但一点都不意外。相反，如果一个腐败的政府能把公共工程做得好好的，那倒真是天大的意外了。<br><img src="http://ww4.sinaimg.cn/large/eae85510jw1f5k45iuyjoj20hs0bk75r.jpg"></p>
-<p>
-	<small> ============== 9小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3994208626317866" target="freeweibo-mirror">除非再发动一场“文革”，否则，这些脑残是打不倒@茅于轼 先生…</a>
-</h2>
-<p>除非再发动一场“文革”，否则，这些脑残是打不倒@茅于轼 先生的，他不是汉奸，也不卖国贼，他们是民族的脊梁！ http://t.cn/R53mjPN .</p>
-<p>
-	<small> ============== 10小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3994194940824357" target="freeweibo-mirror">武汉被淹，除了大雨之外，都说跟湖泊被填有关。这个我有发言权，…</a>
-</h2>
-<p>武汉被淹，除了大雨之外，都说跟湖泊被填有关。这个我有发言权，我曾经去调查过某大公司占东湖建房子的事，武汉被称为千湖，但实际上很多都已经被填得不成样子，东湖是武汉最大的湖，也最受关注，所以一般不敢填东湖，但实际上悄悄填东湖一直在进行中。而且这个调查很简单，不需要专业知识，用Google e...全文： http://m.weibo.cn/1737870711/3994194940824357...全文： http://m.weibo.cn/1737870711/3994194940824357</p>
-<p>
-	<small> ============== 11小时前</small>
 </p>
 <table>
     <tr>
