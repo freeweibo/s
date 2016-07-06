@@ -23,7 +23,7 @@
 </h2>
 <p>SPAM 用心的去选择好的产品，不然，以后的工作都是白做，真的是白做。</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3994292198105729" target="freeweibo-mirror">天灾固然可怕，人祸更加可恨！什么时候，我们的当权者才不干此类…</a>
 </h2>
@@ -71,7 +71,7 @@
 </h2>
 <p>吓得我吃了块叉烧[doge]<br><br>RE: ［节日祝福］7月6日，全球16亿穆斯林迎来一年中最重要的节日——开斋节，一个众人快乐、关爱、原谅与友好的时刻。然而，在刚刚过去的斋月，叙利亚停火不断遭到破坏，伊拉克、阿富汗、土耳其、索马里、孟加拉国接连遭受恐怖袭击，加沙地带的巴勒斯坦人仍在封锁下艰难度日。让我们为这片土地祈福。[蜡烛]<br><img src="http://ww3.sinaimg.cn/large/65dfab2dgw1f5jobotr4zj20hs09i0ud.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3994248762393387" target="freeweibo-mirror">这是明目张胆的阴谋。表明万恶的资本主义忘我之心不死。</a>
 </h2>
