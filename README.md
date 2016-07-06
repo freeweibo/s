@@ -113,7 +113,7 @@
 </h2>
 <p>//@临老装疯:武汉中心城区内涝早于远城区洪汛，130亿的投资效果不该被拿出来说事儿吗？<br><br>RE: 武汉发大水，极少数人追问治水的130亿花哪儿去了。面对质问，武汉外宣办主任梅华很生气，她说“小心武汉人民抄家伙”。<br><img src="http://ww2.sinaimg.cn/large/7c1f76efgw1f5k8b51684j20xr0qowhu.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3994320639558359" target="freeweibo-mirror">“首长，后面有台阶可以站”……“不行，那样群众就不会感动了。…</a>
 </h2>
