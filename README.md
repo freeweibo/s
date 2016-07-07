@@ -19,6 +19,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3994669879245194" target="freeweibo-mirror">狗日的人民“日”报。</a>
+</h2>
+<p>狗日的人民“日”报。<br><br>RE: 【人民日报谈铁路改革：打破垄断，引入平等竞争者】总负债已突破4万亿元的中国铁路总公司，恐怕再难独自撑起投资翻番的新摊子。如果说，撤销铁道部建立铁总，政企分开，理顺铁路与国家关系，是中国铁路改革第一步，那么，打破垄断引入平等竞争者，理顺铁路行业内部关系，则是中国铁路改革的第二步。<br><img src="http://ww4.sinaimg.cn/large/a716fd45jw1f5k7o6my05j20ku0wtasf.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3994655294550620" target="freeweibo-mirror">//@海青传媒: @青岛公安 @平安北京 //@紫色偶然52…</a>
 </h2>
 <p>//@海青传媒: @青岛公安 @平安北京 //@紫色偶然520: 为中国反恐而转发。//@再寻找://@北京老汉:[吃惊]//@两袖清风陈阿扁:还不够红，帮一把//@与天铃兰: //@夜語菲: 。。。握草？//@小肥羊_当了节操换酒喝: →_→公安呢//@您拨打的用户智商不在服务区:[生病]//@他们叫我冰箱: 卧槽！！！ //@古道Block5</p>
@@ -71,7 +77,7 @@
 </h2>
 <p>→_→//@海风清扬HF:→_→//@程序猿小怪学画画:人家是在刷真主的微博<br><br>RE: 【这些开斋节聚礼上玩手机的，早晚要受到真主的惩罚】前三张图是青海省西宁市东关清蒸大寺“开斋节”聚礼，里面那玩手机的几个不虔诚，一定对真主半信半疑。后六个图是中国上海穆斯林同胞喜庆开斋节，没错，那十字路口和街道上乌漾乌漾的非法占道人群，是在中国上海，不是麦加。城管去哪了？<br><img src="http://ww4.sinaimg.cn/large/53ae0b70jw1f5kyn4zv0uj20dg0bi40w.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3994583073818356" target="freeweibo-mirror">@乐山公安 @公安部打四黑除四害</a>
 </h2>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3994484167357308" target="freeweibo-mirror">SPAM 看她们背后的故事</a>
 </h2>
 <p>SPAM 看她们背后的故事</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3994484008760948" target="freeweibo-mirror">#外媒新闻#：【求证外文的含义】，英文的意思是：后面有台阶，…</a>
-</h2>
-<p>#外媒新闻#：【求证外文的含义】，英文的意思是：后面有台阶，为啥站水里？(作品：@北京酋长)<br><img src="http://ww3.sinaimg.cn/large/006rkiKrgw1f5kx5ass0vj30hs0i2jt4.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
