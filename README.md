@@ -77,13 +77,13 @@
 </h2>
 <p>//@辛巴的平凡世界:由谎言构成的一群流氓组织</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3994355885183924" target="freeweibo-mirror">//@陈有西: [嘻嘻]有吗？我可帮五毛挣了不少狗粮。他们从…</a>
 </h2>
 <p>//@陈有西: [嘻嘻]有吗？我可帮五毛挣了不少狗粮。他们从不谢我。//@夏天的鼠标1992：陈律师应该改名字 叫陈霸天。</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3994354974583787" target="freeweibo-mirror">SPAM //@一笑道人: //@我是风啊1888_80g:…</a>
 </h2>
