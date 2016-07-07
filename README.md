@@ -59,7 +59,7 @@
 </h2>
 <p>//@i-want-it-that-way://@莫志谨://@枫林秋色2008:[偷笑] //@赞美诗6201:[嘻嘻]//@不一百X://@阿的一丁://@胤懿:吃马克思的饭，不能砸恩格斯的锅。[哈哈]//@天快亮了2022: 转发微博<br><br>RE: 杨连宁：别再说什么“吃党饭砸党锅”的错话啦！<br><img src="http://ww1.sinaimg.cn/large/7c0e9549gw1f5kc53a8lij20hs11pal2.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3994373269867728" target="freeweibo-mirror">[弱]//@投资家王新平:这次水灾是上游洪水吗？借此机会幸灾…</a>
 </h2>
