@@ -77,7 +77,7 @@
 </h2>
 <p>@乐山公安 @公安部打四黑除四害<br><img src="http://ww4.sinaimg.cn/large/59479230gw1f5l8m8eumjj20hm46gqdi.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3994582205354915" target="freeweibo-mirror">最右是在认真准备打死网友么，能向公安举报你么//@月球上的阿…</a>
 </h2>
@@ -107,7 +107,7 @@
 </h2>
 <p>SPAM GM～[心][心][心]</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3994499263382473" target="freeweibo-mirror">SPAM 爱自己的女人才会美丽，还在等什么？</a>
 </h2>
