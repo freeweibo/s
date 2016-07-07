@@ -31,6 +31,12 @@
 <p>
 	<small> ============== 1小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3994514727775749" target="freeweibo-mirror">SPAM GM～[心][心][心]</a>
+</h2>
+<p>SPAM GM～[心][心][心]</p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3994499263382473" target="freeweibo-mirror">SPAM 爱自己的女人才会美丽，还在等什么？</a>
 </h2>
 <p>SPAM 爱自己的女人才会美丽，还在等什么？</p>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3994337798526679" target="freeweibo-mirror">[阴险]</a>
 </h2>
 <p>[阴险]<br><br>RE: “首长，后面有台阶可以站”……“不行，那样群众就不会感动了。“”<br><img src="http://ww2.sinaimg.cn/large/006pBBc9jw1f5kei112rtj30hs0i30un.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3994331600144259" target="freeweibo-mirror">毛左同意这个，其他人不同意——毛左与其他人，就是不共戴天的敌…</a>
-</h2>
-<p>毛左同意这个，其他人不同意——毛左与其他人，就是不共戴天的敌人。敌人之间，不必同意，不应该同意。[嘻嘻]改革开放，毛病不少，但仍然比以前好。[拍照]</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
