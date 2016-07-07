@@ -95,7 +95,7 @@
 </h2>
 <p>//@雷公旗://@周氏琛平: 人祸…//@缘聚紫荆://@非物质文盲遗产：别人家这么救援 http://t.cn/R51Zqov<br><br>RE: 拍脑袋的经济决策:围湖造地、填河造地建房、让人吐槽的城市规划设计、贪污巨额回扣而致的豆腐渣工程，是加重灾害的直接原因。灾害出现了只有把老百姓的儿子送上去承受它们的过错，然后它们象职业哭丧人一样，在那里“感天动地” http://t.cn/R2WieFY<br><img src="http://ww3.sinaimg.cn/large/006s8B3fgw1f5jzpl7bocj30k00zkgqg.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3994351619648167" target="freeweibo-mirror">SPAM 打骨折或者五折的话，一个月我也能忍了，//@北京厨…</a>
 </h2>
