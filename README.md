@@ -77,7 +77,7 @@
 </h2>
 <p>//@辛巴的平凡世界:由谎言构成的一群流氓组织</p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3994355885183924" target="freeweibo-mirror">//@陈有西: [嘻嘻]有吗？我可帮五毛挣了不少狗粮。他们从…</a>
 </h2>
@@ -107,7 +107,7 @@
 </h2>
 <p>SPAM //@东河-猎鹰倚天屠龙:[偷笑]<br><br>RE: 脸书上的这位朋友不懂中国，所以发问，看英文翻译——问：后面有台阶，干嘛站水里？我回复他说：对面有相机，拍完就上去。。<br><img src="http://ww4.sinaimg.cn/large/006fooE6gw1f5khex4pzoj30hs0i2q3x.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3994347860829316" target="freeweibo-mirror">SPAM 图七那款比较深邃，十天能到国内吧。</a>
 </h2>
