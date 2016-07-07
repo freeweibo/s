@@ -25,6 +25,12 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3994694717395959" target="freeweibo-mirror">SPAM 他是我学习的对象//@中问-时评:你是点不醒他的，…</a>
+</h2>
+<p>SPAM 他是我学习的对象//@中问-时评:你是点不醒他的，这个孙子警官才是祖国需要的小粉红、正能量，他们对比深信不疑，直到有一天也被强拆被雷洋，他们还会对比继续深信不疑，生是组织的人，起是组织的鬼……//@成都企业法律顾问:说得太对了，长沙那档子事，天真的没塌。只是房子塌了死了个屁民而已。</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3994669879245194" target="freeweibo-mirror">狗日的人民“日”报。</a>
 </h2>
 <p>狗日的人民“日”报。<br><br>RE: 【人民日报谈铁路改革：打破垄断，引入平等竞争者】总负债已突破4万亿元的中国铁路总公司，恐怕再难独自撑起投资翻番的新摊子。如果说，撤销铁道部建立铁总，政企分开，理顺铁路与国家关系，是中国铁路改革第一步，那么，打破垄断引入平等竞争者，理顺铁路行业内部关系，则是中国铁路改革的第二步。<br><img src="http://ww4.sinaimg.cn/large/a716fd45jw1f5k7o6my05j20ku0wtasf.jpg"></p>
@@ -47,7 +53,7 @@
 </h2>
 <p>【考拉还在你们手里？为何莫名的一唱一和？】天津警方转发考拉微博，蛮有意思的！<br><img src="http://ww1.sinaimg.cn/large/6a80bfcdgw1f5lgl1gqr6j20x80a8jtr.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3994642364424045" target="freeweibo-mirror">SPAM [嘻嘻] //@伯安微博:更接地气吧//@duxl…</a>
 </h2>
@@ -83,7 +89,7 @@
 </h2>
 <p>//@科罗廖夫:好害怕呀，不用打死，右边的信仰气场能直接吓死人  //@红月明夜:说些不敬言论的当心被人肉搜索出来打死，在我们宁夏这样说是很危险的。这是信仰，不要轻易大放厥词<br><br>RE: 【这些开斋节聚礼上玩手机的，早晚要受到真主的惩罚】前三张图是青海省西宁市东关清蒸大寺“开斋节”聚礼，里面那玩手机的几个不虔诚，一定对真主半信半疑。后六个图是中国上海穆斯林同胞喜庆开斋节，没错，那十字路口和街道上乌漾乌漾的非法占道人群，是在中国上海，不是麦加。城管去哪了？<br><img src="http://ww4.sinaimg.cn/large/53ae0b70jw1f5kyn4zv0uj20dg0bi40w.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3994585380664784" target="freeweibo-mirror">好害怕呀，不用打死，右边的信仰气场能直接吓死人  //@红月…</a>
 </h2>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3994514727775749" target="freeweibo-mirror">SPAM GM～[心][心][心]</a>
 </h2>
 <p>SPAM GM～[心][心][心]</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3994499263382473" target="freeweibo-mirror">SPAM 爱自己的女人才会美丽，还在等什么？</a>
-</h2>
-<p>SPAM 爱自己的女人才会美丽，还在等什么？</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
