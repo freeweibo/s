@@ -23,7 +23,7 @@
 </h2>
 <p>SPAM //@九段II: 然//@arielpiaf://@周氏琛平://@字谓贤:[话筒]//@祁连山洞里的: 轉發微博</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3994696545886222" target="freeweibo-mirror">//@柳絮2009-:@考拉：放个自拍照呗，这样人们就相信了…</a>
 </h2>
