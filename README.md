@@ -41,7 +41,7 @@
 </h2>
 <p>SPAM GM～[心][心][心]</p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3994499263382473" target="freeweibo-mirror">SPAM 爱自己的女人才会美丽，还在等什么？</a>
 </h2>
