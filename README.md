@@ -89,7 +89,7 @@
 </h2>
 <p>SPAM 拉个仇恨值#李宇春#  大家#李宇春2016野蛮生长巡演# 北京站见了[哆啦A梦汗][哆啦A梦汗][哆啦A梦汗]<br><img src="http://ww2.sinaimg.cn/large/62209e25jw1f5mg39bx4zj20qo0zk7bp.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3994957872792440" target="freeweibo-mirror">//@杭州玉林: 好文章，以前没想过。</a>
 </h2>
