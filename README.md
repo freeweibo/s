@@ -59,7 +59,7 @@
 </h2>
 <p>//@轰天老炮://@王海:记者暗访揭开删帖内幕：删一条负面消息2000元左右，销一个认证号6万元，屏蔽关键词8万元......<br><br>RE: 【黑幕：微博删帖是怎么回事】......一般来说，删完帖子后，对方会收到一条私信，这样他就不敢再发类似的信息了。新浪有规定，反复发，反复删除，最后不听劝告的，就自动封号...... http://t.cn/R5rRyrx</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3995106078531328" target="freeweibo-mirror">//@贺金云-://@深圳单身情人:这就是中国金钱社会</a>
 </h2>
@@ -101,7 +101,7 @@
 </h2>
 <p>//@小平崔律师://@王甫律师:转发微博<br><br>RE: 709律师家属声明（请大家转发）<br><img src="http://ww1.sinaimg.cn/large/006w4fJTgw1f5mojsyhjzj30h97ps4qp.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3995080358559268" target="freeweibo-mirror">萱萱还是那些人，只是观众不再是以前盲从的观众。当政府部门或官…</a>
 </h2>
