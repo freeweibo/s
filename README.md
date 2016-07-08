@@ -29,7 +29,7 @@
 </h2>
 <p>SPAM 重返17岁，颜值逆天了！</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3994722823108698" target="freeweibo-mirror">SPAM //@九段II: 然//@arielpiaf://…</a>
 </h2>
@@ -64,6 +64,12 @@
 	<a href="https://freeweibo.com/weibo/3994666573246537" target="freeweibo-mirror">谁改谁就是狗日的卖国贼。//@龙王爷与龙王庙: 谁把铁路私有…</a>
 </h2>
 <p>谁改谁就是狗日的卖国贼。//@龙王爷与龙王庙: 谁把铁路私有化，谁就是犯罪。@羊头怪怪头羊: 我建议啊！如果想把铁路搞私有化，就先让那些私人资本先修一条青藏铁路，不能用国家一分钱，更不允许国家出一分力！<br><br>RE: 【人民日报谈铁路改革：打破垄断，引入平等竞争者】总负债已突破4万亿元的中国铁路总公司，恐怕再难独自撑起投资翻番的新摊子。如果说，撤销铁道部建立铁总，政企分开，理顺铁路与国家关系，是中国铁路改革第一步，那么，打破垄断引入平等竞争者，理顺铁路行业内部关系，则是中国铁路改革的第二步。<br><img src="http://ww4.sinaimg.cn/large/a716fd45jw1f5k7o6my05j20ku0wtasf.jpg"></p>
+<p>
+	<small> ============== 1天前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3994656767668442" target="freeweibo-mirror">长沙岳麓区观沙岭茶子山农妇龚雪辉，由于房屋被强拆，失踪半个月…</a>
+</h2>
+<p>长沙岳麓区观沙岭茶子山农妇龚雪辉，由于房屋被强拆，失踪半个月！寻找但无果。今日挖土机翻挖被强拆的房屋，翻出赫然已四分五裂连全尸都不得已保存！[怒骂]操他妈的现在当地政府正在抢夺尸体！http://t.cn/R5BVmPl（使用#秒拍#录制）</p>
 <p>
 	<small> ============== 1天前</small>
 </p><h2>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3994583945985724" target="freeweibo-mirror">→_→//@海风清扬HF:→_→//@程序猿小怪学画画:人家…</a>
 </h2>
 <p>→_→//@海风清扬HF:→_→//@程序猿小怪学画画:人家是在刷真主的微博<br><br>RE: 【这些开斋节聚礼上玩手机的，早晚要受到真主的惩罚】前三张图是青海省西宁市东关清蒸大寺“开斋节”聚礼，里面那玩手机的几个不虔诚，一定对真主半信半疑。后六个图是中国上海穆斯林同胞喜庆开斋节，没错，那十字路口和街道上乌漾乌漾的非法占道人群，是在中国上海，不是麦加。城管去哪了？<br><img src="http://ww4.sinaimg.cn/large/53ae0b70jw1f5kyn4zv0uj20dg0bi40w.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3994583073818356" target="freeweibo-mirror">@乐山公安 @公安部打四黑除四害</a>
-</h2>
-<p>@乐山公安 @公安部打四黑除四害<br><img src="http://ww4.sinaimg.cn/large/59479230gw1f5l8m8eumjj20hm46gqdi.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
