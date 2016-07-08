@@ -53,11 +53,17 @@
 </h2>
 <p>SPAM 重返17岁，颜值逆天了！</p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3994722823108698" target="freeweibo-mirror">SPAM //@九段II: 然//@arielpiaf://…</a>
 </h2>
 <p>SPAM //@九段II: 然//@arielpiaf://@周氏琛平://@字谓贤:[话筒]//@祁连山洞里的: 轉發微博</p>
+<p>
+	<small> ============== 1天前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3994704963872464" target="freeweibo-mirror">亮瞎我的钛合金...！</a>
+</h2>
+<p>亮瞎我的钛合金...！<br><img src="http://ww3.sinaimg.cn/large/006eNokpjw1f5lmmi5ezhj30fm0kut9k.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p><h2>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3994605719051091" target="freeweibo-mirror">最右微博里还转菩萨呢，现在都乱了[汗] http://t.c…</a>
 </h2>
 <p>最右微博里还转菩萨呢，现在都乱了[汗] http://t.cn/R5BAkrQ //@王小东:我最近也有可能去，会不会被打死？[泪]//@弗虑弗为:请教，最近要去“你们”宁夏，不知道在哪儿办签证？//@红月明夜:说些不敬言论的当心被人肉搜索出来打死，在我们宁夏这样说是很危险的。这是信仰，不要轻易大放厥词<br><br>RE: 【这些开斋节聚礼上玩手机的，早晚要受到真主的惩罚】前三张图是青海省西宁市东关清蒸大寺“开斋节”聚礼，里面那玩手机的几个不虔诚，一定对真主半信半疑。后六个图是中国上海穆斯林同胞喜庆开斋节，没错，那十字路口和街道上乌漾乌漾的非法占道人群，是在中国上海，不是麦加。城管去哪了？<br><img src="http://ww4.sinaimg.cn/large/53ae0b70jw1f5kyn4zv0uj20dg0bi40w.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3994602317026347" target="freeweibo-mirror">//@竹山吃山竹:哈哈哈，右边又犯贱了，不过我喜欢//@吐槽…</a>
-</h2>
-<p>//@竹山吃山竹:哈哈哈，右边又犯贱了，不过我喜欢//@吐槽鬼: 最右你挺能喝啊,几种酒参着不怕醉啊～  http://t.cn/R5BwtPp  //@远离中医药:都不敢去宁夏斯坦了//@科罗廖夫:好害怕呀//@红月明夜:说不敬言论当心被人肉出来打死.在我们宁夏你这样是很危险的。这是信仰,不要大放厥词<br><br>RE: 【这些开斋节聚礼上玩手机的，早晚要受到真主的惩罚】前三张图是青海省西宁市东关清蒸大寺“开斋节”聚礼，里面那玩手机的几个不虔诚，一定对真主半信半疑。后六个图是中国上海穆斯林同胞喜庆开斋节，没错，那十字路口和街道上乌漾乌漾的非法占道人群，是在中国上海，不是麦加。城管去哪了？<br><img src="http://ww4.sinaimg.cn/large/53ae0b70jw1f5kyn4zv0uj20dg0bi40w.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
