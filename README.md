@@ -29,7 +29,7 @@
 </h2>
 <p>SPAM 悄悄的干，闷声发大财，打枪的不要？</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3995011236694740" target="freeweibo-mirror">//@徐幸起: //@耋耋翁:回复@甲醇866:在意识形态、…</a>
 </h2>
