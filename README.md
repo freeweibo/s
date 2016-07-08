@@ -121,6 +121,12 @@
 <p>
 	<small> ============== 1天前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3994741064915453" target="freeweibo-mirror">广东省肇庆高要市禄步镇防暴警察超级暴力事件！老百姓全部蹲下双…</a>
+</h2>
+<p>广东省肇庆高要市禄步镇防暴警察超级暴力事件！老百姓全部蹲下双手抱头，仍遭防暴警察暴打！高要市委书记与市长大人请自觉辞职！[失望]http://t.cn/R5BLai8</p>
+<p>
+	<small> ============== 1天前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3994722823108698" target="freeweibo-mirror">SPAM //@九段II: 然//@arielpiaf://…</a>
 </h2>
 <p>SPAM //@九段II: 然//@arielpiaf://@周氏琛平://@字谓贤:[话筒]//@祁连山洞里的: 轉發微博</p>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3994704963872464" target="freeweibo-mirror">亮瞎我的钛合金...！</a>
 </h2>
 <p>亮瞎我的钛合金...！<br><img src="http://ww3.sinaimg.cn/large/006eNokpjw1f5lmmi5ezhj30fm0kut9k.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3994696545886222" target="freeweibo-mirror">//@柳絮2009-:@考拉：放个自拍照呗，这样人们就相信了…</a>
-</h2>
-<p>//@柳絮2009-:@考拉：放个自拍照呗，这样人们就相信了！[doge] //@干卫东律师:以为网友智商和他们一样？[晕]//@作家沙光:[晕]//@李方平律师:先是天津警方说考拉已取保，接着考拉微博出现此段“颂警”文，随后天津警方马上转发！<br><br>RE: 【考拉还在你们手里？为何莫名的一唱一和？】天津警方转发考拉微博，蛮有意思的！<br><img src="http://ww1.sinaimg.cn/large/6a80bfcdgw1f5lgl1gqr6j20x80a8jtr.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
