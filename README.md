@@ -47,7 +47,7 @@
 </h2>
 <p>SPAM 【信函选登：临夏政府落实教育与宗教相分离】@全体成员 السلام عليكم ورحمة الله وبركاته  希望各位穆斯林弟兄姐妹们在网上少传那些回族媳妇跳舞喝酒，什么回族男人打老婆，赌博，什么啊訇打满啦，什么清真寺宗教问题，幼儿园教经文等等的，大家都知道这些内容除了给你空间...全文： http://m.weibo.cn/1442246695/3994984434805177...全文： http://m.weibo.cn/1442246695/3994984434805177<br><img src="http://ww4.sinaimg.cn/large/55f6f027jw1f5mikxukvcj20zk0qownu.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3994977862341788" target="freeweibo-mirror">很多人骂WZ，我不骂。为何？就算是演戏，有洪水他在灾情最严重…</a>
 </h2>
@@ -125,7 +125,7 @@
 </h2>
 <p>SPAM →_→ //@阅读才子:[衰]//@我是美食君:这么好看啊，不看后悔死了。。<br><br>RE: 发布了头条文章：《 和陌生人吻，女人必须试一次。》 http://t.cn/R5BMjYm</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3994885533447498" target="freeweibo-mirror">SPAM 马//@美食号:内容超精彩，马了</a>
 </h2>
