@@ -25,6 +25,12 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3994977862341788" target="freeweibo-mirror">很多人骂WZ，我不骂。为何？就算是演戏，有洪水他在灾情最严重…</a>
+</h2>
+<p>很多人骂WZ，我不骂。为何？就算是演戏，有洪水他在灾情最严重的地方演，汶川地震他第一时间冲到核心区演，玉树、雅安地震他都是第一时间亲临一线演。他没有说过任何反民主法制的言论，也没有说过诸如“吃D饭砸D锅”之类无知的言论。而且多次在公开场合批评文革，呼吁政治改革。<br><img src="http://ww4.sinaimg.cn/large/4d5432bbjw1f5mhxoqe7nj20g40d2ta0.jpg"></p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3994975261406929" target="freeweibo-mirror">//@鹏媒体赵鹏: 看着这样的言论，真的觉得文革随时可能暴发…</a>
 </h2>
 <p>//@鹏媒体赵鹏: 看着这样的言论，真的觉得文革随时可能暴发。//@观世音720809：看这帮公知 支持台独 钓鱼岛可以给日本 南海可以让 多占一尺又何妨 我都觉得文革对他们来说一点也不冤枉 只要我们别牵连正常人就行 文革快来吧[馋嘴]<br><br>RE: 【我们距二次文革就一个小时】如果要发生文革，只要中央有一声号令即可做到。全国所有的省市县电视、广播电台都会同步直播。讲话一般为30分钟。我估计，待讲话一结束，不用号召，肯定全国人民都行动起来了--从开始讲话，到全面发动，不会超过一个小时。 http://t.cn/R5rqdRK</p>
@@ -77,7 +83,7 @@
 </h2>
 <p>【我们距二次文革就一个小时】如果要发生文革，只要中央有一声号令即可做到。全国所有的省市县电视、广播电台都会同步直播。讲话一般为30分钟。我估计，待讲话一结束，不用号召，肯定全国人民都行动起来了--从开始讲话，到全面发动，不会超过一个小时。 http://t.cn/R5rqdRK</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3994942533370856" target="freeweibo-mirror">//@蝗虫8884://@民生焦点转播:公务用车[赞]//@…</a>
 </h2>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3994722823108698" target="freeweibo-mirror">SPAM //@九段II: 然//@arielpiaf://…</a>
 </h2>
 <p>SPAM //@九段II: 然//@arielpiaf://@周氏琛平://@字谓贤:[话筒]//@祁连山洞里的: 轉發微博</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3994704963872464" target="freeweibo-mirror">亮瞎我的钛合金...！</a>
-</h2>
-<p>亮瞎我的钛合金...！<br><img src="http://ww3.sinaimg.cn/large/006eNokpjw1f5lmmi5ezhj30fm0kut9k.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
