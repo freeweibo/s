@@ -77,7 +77,7 @@
 </h2>
 <p>//@杭州玉林: 好文章，以前没想过。<br><br>RE: 【我们距二次文革就一个小时】如果要发生文革，只要中央有一声号令即可做到。全国所有的省市县电视、广播电台都会同步直播。讲话一般为30分钟。我估计，待讲话一结束，不用号召，肯定全国人民都行动起来了--从开始讲话，到全面发动，不会超过一个小时。 http://t.cn/R5rqdRK</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3994955821204563" target="freeweibo-mirror">有一种警察，叫国保。李和平等律师被抓的案件是他们干的，考拉所…</a>
 </h2>
@@ -95,7 +95,7 @@
 </h2>
 <p>//@蝗虫8884://@民生焦点转播:公务用车[赞]//@李永强郑州:转发微博<br><br>RE: 亮瞎我的钛合金...！<br><img src="http://ww3.sinaimg.cn/large/006eNokpjw1f5lmmi5ezhj30fm0kut9k.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3994929162751847" target="freeweibo-mirror">公务用车[赞]//@李永强郑州:转发微博</a>
 </h2>
