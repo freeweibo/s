@@ -41,7 +41,7 @@
 </h2>
 <p>SPAM //@sy漁夫:[酷][围观]//@婉莱依://@星风辉辰: //@皓月-朱颜辞镜花辞树:[话筒][话筒]<br><br>RE: 709山巅一周年！[话筒][话筒][围观][围观]<br><img src="http://ww4.sinaimg.cn/large/006ewAEngw1f5nhbkfa8pj30qo12qgt3.jpg"></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3995295307638266" target="freeweibo-mirror">//@兰州记者: //@媒体人张园:#微博新资讯# #民生曝…</a>
 </h2>
@@ -83,7 +83,7 @@
 </h2>
 <p>[疑问]//@熊培云:他可以超现实，你不能有想象力。<br><br>RE: 【赵威出来了，辩护律师任全牛进去了】所谓“谣言”：明明有两个玻璃球放在那里，白的白，黑的黑，一看便知，警察却偏偏捂住让你猜，猜错了就是造谣。<br><img src="http://ww1.sinaimg.cn/large/006nVaoZjw1f5n4awlji4j30c816aq9g.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3995260244380140" target="freeweibo-mirror">求证。</a>
 </h2>
