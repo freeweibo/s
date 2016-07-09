@@ -47,7 +47,7 @@
 </h2>
 <p>[疑问]//@熊培云:他可以超现实，你不能有想象力。<br><br>RE: 【赵威出来了，辩护律师任全牛进去了】所谓“谣言”：明明有两个玻璃球放在那里，白的白，黑的黑，一看便知，警察却偏偏捂住让你猜，猜错了就是造谣。<br><img src="http://ww1.sinaimg.cn/large/006nVaoZjw1f5n4awlji4j30c816aq9g.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3995260244380140" target="freeweibo-mirror">求证。</a>
 </h2>
