@@ -131,7 +131,7 @@
 </h2>
 <p>悲剧<br><img src="http://ww1.sinaimg.cn/large/54493690gw1f5nq2emlabj20qo1bfn07.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3995309970903112" target="freeweibo-mirror">//@联邦聞訊-揭神:回复@放逐浮世的行者:一中国没有，二有…</a>
 </h2>
