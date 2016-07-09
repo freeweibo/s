@@ -37,6 +37,12 @@
 <p>
 	<small> ============== 4小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3995391395779292" target="freeweibo-mirror">零阅读[震惊]</a>
+</h2>
+<p>零阅读[震惊]<br><img src="http://ww4.sinaimg.cn/large/80571fbfgw1f5ntgxlxqlj20qo1bf79g.jpg"></p>
+<p>
+	<small> ============== 6小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3995383024164904" target="freeweibo-mirror">SPAM 用玩三流学术的心态、方式（玩概念）治国，焉能不败？…</a>
 </h2>
 <p>SPAM 用玩三流学术的心态、方式（玩概念）治国，焉能不败？//@晚霞中的小豆娘: 人家擅长搞概念，我是听不懂，我只知道能讲清楚的理念不需要造新词。<br><br>RE: 悲剧<br><img src="http://ww1.sinaimg.cn/large/54493690gw1f5nq2emlabj20qo1bfn07.jpg"></p>
@@ -59,7 +65,7 @@
 </h2>
 <p>纪念这个快死的视频，本宫预计“你”能活到晚上。阿门！</p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3995296490502315" target="freeweibo-mirror">SPAM //@sy漁夫:[酷][围观]//@婉莱依://@…</a>
 </h2>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3995229415186573" target="freeweibo-mirror">//@秋之赋A：老早我就提出中国的体制才是最大的老虎，这个体…</a>
 </h2>
 <p>//@秋之赋A：老早我就提出中国的体制才是最大的老虎，这个体制自它诞生到现在最少吞噬了1亿中国人，中国人现在还在被送进虎口，不知是该赞扬中国人的"明知山有虎，偏向虎山行"的勇敢精神呢？还是应该气愤中国人明知前面有吃人的老虎还要继续送上门的愚昧无知。</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3995199241262524" target="freeweibo-mirror">三峽工程，大大的壞呀！</a>
-</h2>
-<p>三峽工程，大大的壞呀！<br><img src="http://ww3.sinaimg.cn/large/006iFqtugw1f5n7e1o00dj30ku112ajx.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
