@@ -29,7 +29,7 @@
 </h2>
 <p>回复@工厂改善:关键还总是断句错误//@工厂改善:我从他说的讲得一些话几乎就是管理咨询公司的文案，就晓得，他没干货，当时在想，是他想忽悠，还是幕僚在忽悠他。要知道管理咨询公司就是每一两年创造一些先进管理名词，根本不管如何落实的，而且绝大多管理咨询公司尽是各种忽悠大神的。<br><br>RE: 悲剧<br><img src="http://ww1.sinaimg.cn/large/54493690gw1f5nq2emlabj20qo1bfn07.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3995383024164904" target="freeweibo-mirror">SPAM 用玩三流学术的心态、方式（玩概念）治国，焉能不败？…</a>
 </h2>
@@ -41,7 +41,7 @@
 </h2>
 <p>悲剧<br><img src="http://ww1.sinaimg.cn/large/54493690gw1f5nq2emlabj20qo1bfn07.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3995309970903112" target="freeweibo-mirror">//@联邦聞訊-揭神:回复@放逐浮世的行者:一中国没有，二有…</a>
 </h2>
