@@ -53,7 +53,7 @@
 </h2>
 <p>709山巅一周年！[话筒][话筒][围观][围观]<br><img src="http://ww4.sinaimg.cn/large/006ewAEngw1f5nhbkfa8pj30qo12qgt3.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3995266703064554" target="freeweibo-mirror">[疑问]//@熊培云:他可以超现实，你不能有想象力。</a>
 </h2>
@@ -101,7 +101,7 @@
 </h2>
 <p>【赵威出来了，辩护律师任全牛进去了】所谓“谣言”：明明有两个玻璃球放在那里，白的白，黑的黑，一看便知，警察却偏偏捂住让你猜，猜错了就是造谣。<br><img src="http://ww1.sinaimg.cn/large/006nVaoZjw1f5n4awlji4j30c816aq9g.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3995163267600736" target="freeweibo-mirror">SPAM 【Davidoff大卫杜夫神秘水女士淡香水100m…</a>
 </h2>
