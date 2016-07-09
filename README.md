@@ -107,7 +107,7 @@
 </h2>
 <p>【5000亿拯救俄国,4000亿救委内瑞拉,除了中国还有谁？】   【江苏灾民达88.9万人 7县应急救灾款共469万元】省民政厅还将探索建立信息转介平台,积极引导社会力量参与“救急难”,实现政府与社会的接力救助……我只想送给他们5个字：操！！！<br><img src="http://ww1.sinaimg.cn/large/006udSHSjw1f5nvjf6zkuj30d60dqjsi.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3995407098406927" target="freeweibo-mirror">回复@工厂改善:关键还总是断句错误//@工厂改善:我从他说的…</a>
 </h2>
