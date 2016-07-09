@@ -89,7 +89,7 @@
 </h2>
 <p>萨德反导系统几乎覆盖了除新疆西藏之外的大部分中国领土，所有这些地方导弹的发射，都在萨德反导系统的摧毁范围之内，那就等于是两家打仗，对方在你家门框上挂了个手榴弹，你一出门就被炸，求科普下武统台湾的梦醒了没？<br><img src="http://ww3.sinaimg.cn/large/006oybpLjw1f5ngn1v824j30is0u0776.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3995266703064554" target="freeweibo-mirror">[疑问]//@熊培云:他可以超现实，你不能有想象力。</a>
 </h2>
