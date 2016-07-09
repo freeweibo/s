@@ -59,7 +59,7 @@
 </h2>
 <p>SPAM 用玩三流学术的心态、方式（玩概念）治国，焉能不败？//@晚霞中的小豆娘: 人家擅长搞概念，我是听不懂，我只知道能讲清楚的理念不需要造新词。<br><br>RE: 悲剧<br><img src="http://ww1.sinaimg.cn/large/54493690gw1f5nq2emlabj20qo1bfn07.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3995361746207787" target="freeweibo-mirror">悲剧</a>
 </h2>
@@ -77,7 +77,7 @@
 </h2>
 <p>纪念这个快死的视频，本宫预计“你”能活到晚上。阿门！</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3995296490502315" target="freeweibo-mirror">SPAM //@sy漁夫:[酷][围观]//@婉莱依://@…</a>
 </h2>
