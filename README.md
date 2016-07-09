@@ -113,7 +113,7 @@
 </h2>
 <p>SPAM 用玩三流学术的心态、方式（玩概念）治国，焉能不败？//@晚霞中的小豆娘: 人家擅长搞概念，我是听不懂，我只知道能讲清楚的理念不需要造新词。<br><br>RE: 悲剧<br><img src="http://ww1.sinaimg.cn/large/54493690gw1f5nq2emlabj20qo1bfn07.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3995361746207787" target="freeweibo-mirror">悲剧</a>
 </h2>
