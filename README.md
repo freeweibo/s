@@ -23,7 +23,7 @@
 </h2>
 <p>//@秋之赋A：老早我就提出中国的体制才是最大的老虎，这个体制自它诞生到现在最少吞噬了1亿中国人，中国人现在还在被送进虎口，不知是该赞扬中国人的"明知山有虎，偏向虎山行"的勇敢精神呢？还是应该气愤中国人明知前面有吃人的老虎还要继续送上门的愚昧无知。</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3995178702780465" target="freeweibo-mirror">SPAM 【Davidoff大卫杜夫 Cool Water冷…</a>
 </h2>
@@ -131,7 +131,7 @@
 </h2>
 <p>SPAM 我就是想看有多少人不知道核桃在活着的时候是什么样的……呃，是带皮的时候……</p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3995077594725207" target="freeweibo-mirror">SPAM //@TT风的季节: //@一泓清泉e: 看清“维…</a>
 </h2>
