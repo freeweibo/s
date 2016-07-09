@@ -89,7 +89,7 @@
 </h2>
 <p>求证。<br><br>RE: 三峽工程，大大的壞呀！<br><img src="http://ww3.sinaimg.cn/large/006iFqtugw1f5n7e1o00dj30ku112ajx.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3995256183916752" target="freeweibo-mirror">【林祖恋家人发声明  拒绝认可官派律师】7月6日联合网讯，乌…</a>
 </h2>
