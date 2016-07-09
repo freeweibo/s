@@ -83,7 +83,7 @@
 </h2>
 <p>SPAM //@sy漁夫:[酷][围观]//@婉莱依://@星风辉辰: //@皓月-朱颜辞镜花辞树:[话筒][话筒]<br><br>RE: 709山巅一周年！[话筒][话筒][围观][围观]<br><img src="http://ww4.sinaimg.cn/large/006ewAEngw1f5nhbkfa8pj30qo12qgt3.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3995295307638266" target="freeweibo-mirror">//@兰州记者: //@媒体人张园:#微博新资讯# #民生曝…</a>
 </h2>
