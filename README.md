@@ -107,7 +107,7 @@
 </h2>
 <p>零阅读[震惊]<br><img src="http://ww4.sinaimg.cn/large/80571fbfgw1f5ntgxlxqlj20qo1bf79g.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3995383024164904" target="freeweibo-mirror">SPAM 用玩三流学术的心态、方式（玩概念）治国，焉能不败？…</a>
 </h2>
