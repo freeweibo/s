@@ -47,7 +47,7 @@
 </h2>
 <p>【仅仅7月，中国外援又超过1000亿，怎么好意思让自己老百姓在为本国水灾募捐？！】天大丑闻！震惊！ http://t.cn/R5dWhFq<br><img src="http://ww2.sinaimg.cn/large/006v0w7sjw1f5oiidfvryj30hs23re5p.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3995587651810720" target="freeweibo-mirror">SPAM 爹吃考拉人血馒头 儿子吃爹的。也算公平。最赚的是他…</a>
 </h2>
