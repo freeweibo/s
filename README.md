@@ -35,7 +35,7 @@
 </h2>
 <p>SPAM //@城南邮局:我本有千万句话想告诉你 却唯独少了一个可以联系你的身份</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3995827570199516" target="freeweibo-mirror">//@名人经典: 出门在外，没有一块像样的手表怎么能行呢？手…</a>
 </h2>
