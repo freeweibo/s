@@ -23,7 +23,7 @@
 </h2>
 <p>SPAM 其实，大多情况下，没有你想象的那么严重：“你的抑郁症是矫情，你的拖延症是懒，你的强迫症是闲的发慌，你的失眠是根本不困，你的选择恐惧症是因为穷。”<br><img src="http://ww2.sinaimg.cn/large/91ec545dgw1f5nqtq69lmj20jx0y4jub.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3995472550528121" target="freeweibo-mirror">SPAM //@明夷道四: //@最好的职业是老板03://…</a>
 </h2>
