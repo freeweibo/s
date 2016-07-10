@@ -29,7 +29,7 @@
 </h2>
 <p>//@积缘: //@小道信息://@雷公旗: //@csss在北韓: //@引擎13842240082://@无托国人民17://@反腐提速:真的吗？<br><br>RE: 【仅仅7月，中国外援又超过1000亿，怎么好意思让自己老百姓在为本国水灾募捐？！】天大丑闻！震惊！ http://t.cn/R5dWhFq<br><img src="http://ww2.sinaimg.cn/large/006v0w7sjw1f5oiidfvryj30hs23re5p.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3995652985267280" target="freeweibo-mirror">//@好客山东: //@小道信息://@雷公旗: //@cs…</a>
 </h2>
@@ -65,7 +65,7 @@
 </h2>
 <p>SPAM [ok]</p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3995568525795880" target="freeweibo-mirror">//@荒堂省三: //@黄竣扬: 他们在东欧又不是没干过。/…</a>
 </h2>
