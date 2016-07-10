@@ -29,7 +29,7 @@
 </h2>
 <p>笑比哭好<br><br>RE: 刘源将军说：“现在，世界上能打败中国军队的只有一个，那就是腐败。”——网友神回复：“现在，世界上能保卫中国腐败的也只有一个，那就是军队。”</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3995819600947349" target="freeweibo-mirror">SPAM 我赞同 。  想瘦找她@瘦子的小密友</a>
 </h2>
@@ -52,6 +52,12 @@
 	<a href="https://freeweibo.com/weibo/3995812549125816" target="freeweibo-mirror">SPAM 的确是一个大狗@goldcrest-可爱萌萌教星星…</a>
 </h2>
 <p>SPAM 的确是一个大狗@goldcrest-可爱萌萌教星星眼教主<br><img src="http://ww3.sinaimg.cn/large/54453accgw1f5p5tal4fej215o15o1kx.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3995811052987877" target="freeweibo-mirror">//@北方猎手:没有别人能搞死你，要死也是腐败政权、失去民心…</a>
+</h2>
+<p>//@北方猎手:没有别人能搞死你，要死也是腐败政权、失去民心的必然结果。历朝历代皇权覆灭莫不源于内因！</p>
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3995570441331360" target="freeweibo-mirror">SPAM [ok]</a>
 </h2>
 <p>SPAM [ok]</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3995568525795880" target="freeweibo-mirror">//@荒堂省三: //@黄竣扬: 他们在东欧又不是没干过。/…</a>
-</h2>
-<p>//@荒堂省三: //@黄竣扬: 他们在东欧又不是没干过。//@西粤江郎://@oo馨星之心oo://@中山粉丝团:///@荣耀老毛驴: 求证//@橙色记忆000://@红岛渔民:转发求证@牧键<br><br>RE: 1945年苏联占领中国东北全境后，苏军掠夺东北资源奸淫屠杀中国人，一些妇女在车站，大街上就直接被苏军强奸，并责令当地政府每天往司令部送一定数量的妇女，街上商铺都惨遭苏军的洗劫，反抗苏军的中国人全部被屠杀，东三省的工厂设备均被运回苏联！有一美国人当时在沈阳回忆说“俄国人抢空了整座城市”<br><img src="http://ww2.sinaimg.cn/large/006qVZwWjw1f5nr2v5bpvj30go09a0tn.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
