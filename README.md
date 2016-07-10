@@ -77,7 +77,7 @@
 </h2>
 <p>SPAM 这顿饭估计他能记一辈子吧？<br><img src="http://ww3.sinaimg.cn/large/005WOkKfgw1f5ozkwgznwj30k00evmyq.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3995700197145476" target="freeweibo-mirror">SPAM 成功的速度赶上父母老去的速度 羡慕别人不如自己拥有…</a>
 </h2>
@@ -89,7 +89,7 @@
 </h2>
 <p>有用吗？</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3995661731464457" target="freeweibo-mirror">//@积缘: //@小道信息://@雷公旗: //@csss…</a>
 </h2>
