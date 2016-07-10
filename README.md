@@ -41,7 +41,7 @@
 </h2>
 <p>SPAM 的确是一个大狗@goldcrest-可爱萌萌教星星眼教主<br><img src="http://ww3.sinaimg.cn/large/54453accgw1f5p5tal4fej215o15o1kx.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3995810591318210" target="freeweibo-mirror">安倍比大大小一岁半，同年登基，当然安倍是二进宫。四年过去了，…</a>
 </h2>
