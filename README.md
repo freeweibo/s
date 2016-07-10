@@ -41,7 +41,7 @@
 </h2>
 <p>SPAM [ok]</p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3995568525795880" target="freeweibo-mirror">//@荒堂省三: //@黄竣扬: 他们在东欧又不是没干过。/…</a>
 </h2>
