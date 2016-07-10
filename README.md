@@ -47,7 +47,7 @@
 </h2>
 <p>安倍比大大小一岁半，同年登基，当然安倍是二进宫。四年过去了，安倍也没喊啥口号，但小日本却一改自小泉内阁以来首相走马灯模式，异常稳固。细思极恐！http://t.cn/R5gTKJX<br><img src="http://ww3.sinaimg.cn/large/bfa66467jw1f5p5m9w36uj20dj0gojt1.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3995810053720032" target="freeweibo-mirror">//@孤独旁观者:党的女人，党的干部玩玩儿有什么不可以！</a>
 </h2>
@@ -77,7 +77,7 @@
 </h2>
 <p>有用吗？</p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3995661731464457" target="freeweibo-mirror">//@积缘: //@小道信息://@雷公旗: //@csss…</a>
 </h2>
