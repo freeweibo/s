@@ -29,7 +29,7 @@
 </h2>
 <p>有用吗？</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3995661731464457" target="freeweibo-mirror">//@积缘: //@小道信息://@雷公旗: //@csss…</a>
 </h2>
@@ -83,7 +83,7 @@
 </h2>
 <p>//@虫子在北京://@乐不如众le://@王Wangcao://@LifeTime://@楊康令:转发微博<br><br>RE: 关注<br><img src="http://ww2.sinaimg.cn/large/006tloOpgw1f5nblccz50j30qo785hdt.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3995558986699365" target="freeweibo-mirror">//@在华府://@今天您串了吗: //@娘歆://@姚广孝…</a>
 </h2>
