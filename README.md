@@ -107,7 +107,7 @@
 </h2>
 <p>//@江南独钓客之圣手书生://@chen迁迁20://@果果--015:转发微博<br><br>RE: 被它们删了，害的我重新写，截图发 http://t.cn/R2W6H98<br><img src="http://ww3.sinaimg.cn/large/006s8B3fgw1f5o0413080j30k00zkq9t.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3995450291291321" target="freeweibo-mirror">//@剑君DV://@一品泥人://@歪说扯扯: //@河源…</a>
 </h2>
