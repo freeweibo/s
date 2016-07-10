@@ -41,7 +41,7 @@
 </h2>
 <p>SPAM [ok]</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3995568525795880" target="freeweibo-mirror">//@荒堂省三: //@黄竣扬: 他们在东欧又不是没干过。/…</a>
 </h2>
@@ -95,7 +95,7 @@
 </h2>
 <p>SPAM 拿走不谢</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3995455086447778" target="freeweibo-mirror">//@因爱天晴: 小气→_→//@夙夜难寐aaa:毛也不捐！…</a>
 </h2>
