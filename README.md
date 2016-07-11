@@ -71,7 +71,7 @@
 </h2>
 <p>[衰]//@tianlanmengmeng:也就是说绿教图已经在中国某些地方开始执行沙里亚法了，这很严重，绿化中华进城加快了啊。</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3996086890177763" target="freeweibo-mirror">SPAM //@宏鑫88: //@马操188:圈子都不绕了，…</a>
 </h2>
@@ -84,6 +84,12 @@
 <p>SPAM  //@名人经典: //@婚恋哲学:俗话说：冬吃萝卜，夏吃姜。姜能在夏天给人体补充足够的阳气，推荐！</p>
 <p>
 	<small> ============== 5小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3996060278132608" target="freeweibo-mirror">【内蒙古通辽一派出所门前副所长被疑犯枪杀 枪已追回正在抓捕】…</a>
+</h2>
+<p>【内蒙古通辽一派出所门前副所长被疑犯枪杀 枪已追回正在抓捕】施介派出所发生枪击案，一名警察当场死亡，枪击者落荒而逃”，今天，通辽一知情人士向媒体反映，昨晚，当地一派出所副所长办案期间，在派出所门前被嫌疑人持枪击中身亡，此消息已获当地警方证实并称，涉案枪支已追回，抓捕工作正在进行。...全文： http://m.weibo.cn/1697601814/3996060278132608<br><img src="http://ww4.sinaimg.cn/large/652f5916gw1f5py2imhg9j209m084jrg.jpg"></p>
+<p>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3996027008291544" target="freeweibo-mirror">1900年，慈禧老佛爷也跟全世界宣战来着，后来的结果大家都知…</a>
 </h2>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3995958561414744" target="freeweibo-mirror">2015年5月27日，项城市伊斯兰教协会组建“清真食品”监察…</a>
 </h2>
 <p>2015年5月27日，项城市伊斯兰教协会组建“清真食品”监察大队。何方授权？如何执法？<br><img src="http://ww2.sinaimg.cn/large/55f6f027jw1f5pmidn4zuj20hs0a075r.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3995953855234745" target="freeweibo-mirror">中国真的强大到了可以跟所有人为敌吗？当年我们反对帝修反的年代…</a>
-</h2>
-<p>中国真的强大到了可以跟所有人为敌吗？当年我们反对帝修反的年代，真的是一个黄金岁月？</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
