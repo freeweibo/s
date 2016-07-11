@@ -71,7 +71,7 @@
 </h2>
 <p>SPAM //@城南邮局:我本有千万句话想告诉你 却唯独少了一个可以联系你的身份</p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3995827570199516" target="freeweibo-mirror">//@名人经典: 出门在外，没有一块像样的手表怎么能行呢？手…</a>
 </h2>
@@ -107,7 +107,7 @@
 </h2>
 <p>SPAM 每个产品，我们都不敢马虎 //@资深金融小邪女:小米的真实评价出来了。亲们可以与15块一斤的比较一下。[爱你]感恩对合作社的支持。</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3995812549125816" target="freeweibo-mirror">SPAM 的确是一个大狗@goldcrest-可爱萌萌教星星…</a>
 </h2>
