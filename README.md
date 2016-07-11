@@ -47,7 +47,7 @@
 </h2>
 <p>SPAM 工行已沦陷 //@写作昕子读铃酱:？？？？？ //@惠子累死惹:[笑cry]  //@MEGAMKAFroakie:233333我只服你们</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3996092259750413" target="freeweibo-mirror">[衰]//@tianlanmengmeng:也就是说绿教图已…</a>
 </h2>
@@ -95,7 +95,7 @@
 </h2>
 <p>所谓新闻全部都是造假，死了千余人，新闻报道死亡2人，根本不是天灾，就是人祸，水库承包给鱼塘，舍不得放水，等到台风当天，实在受不住了，几个水库一起放，雨下的并不大，往年下的更大更久的一点事都没有，这样的政府，这样的新闻，能信吗，能看吗？<br><img src="http://ww3.sinaimg.cn/large/9e253baagw1f5ppv4cbvpj20hs0qojt6.jpg"></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3995969744342075" target="freeweibo-mirror">SPAM ok@百[发红包啦][熊猫][转发][汽车][飞机…</a>
 </h2>
