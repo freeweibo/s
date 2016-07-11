@@ -47,7 +47,7 @@
 </h2>
 <p>[生病]//@能好就好啊://@宝宝xfshi:超市一次死200人[疑问][哆啦A梦吃惊]讨伐闽清政府[汗]//@蒲子里的二流子:不说数，就描述事实，比较安全，数字就用很多等代替比较安全 //@摔三角拍烟画:现在消息越来越少//@摔三角拍烟画://@花前壹拾伍://@天津老魏038:转发微博<br><br>RE: 人祸、满大街都是“尸体”死亡人数己达500人左右。[惊恐]<br><img src="http://ww1.sinaimg.cn/large/006uNNyEgw1f5p6pt35mcj30m80goabx.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3995939079541493" target="freeweibo-mirror">//@消沈阳: //@长空击鹰006://@未得糊涂:真的假…</a>
 </h2>
@@ -89,13 +89,13 @@
 </h2>
 <p>人祸、满大街都是“尸体”死亡人数己达500人左右。[惊恐]<br><img src="http://ww1.sinaimg.cn/large/006uNNyEgw1f5p6pt35mcj30m80goabx.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3995819600947349" target="freeweibo-mirror">SPAM 我赞同 。  想瘦找她@瘦子的小密友</a>
 </h2>
 <p>SPAM 我赞同 。  想瘦找她@瘦子的小密友</p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3995817427213837" target="freeweibo-mirror">//@140个意识流: //@清风和韵文化传媒: //@范县…</a>
 </h2>
@@ -113,7 +113,7 @@
 </h2>
 <p>SPAM 的确是一个大狗@goldcrest-可爱萌萌教星星眼教主<br><img src="http://ww3.sinaimg.cn/large/54453accgw1f5p5tal4fej215o15o1kx.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3995811052987877" target="freeweibo-mirror">//@北方猎手:没有别人能搞死你，要死也是腐败政权、失去民心…</a>
 </h2>
