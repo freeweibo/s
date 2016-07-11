@@ -89,7 +89,7 @@
 </h2>
 <p>赞@张鸣[哈哈] //@徐幸起:[晕] //@耋耋翁:政策和策略是党的生命，各级领导同志务必充分注意，万万不可粗心大意。<br><br>RE: 不看不知道，一看吓一跳！<br><img src="http://ww2.sinaimg.cn/large/006h4JwXgw1f5p7rywhndj30dc0aat9i.jpg"></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3996109817157125" target="freeweibo-mirror">[晕] //@耋耋翁:政策和策略是党的生命，各级领导同志务必…</a>
 </h2>
