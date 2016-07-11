@@ -29,7 +29,7 @@
 </h2>
 <p>//@只配叫猪_://@玛瑞恩://@黄河天下天2:[泪]//@五哥放羊44:一D独裁，遍地是灾。//@B2B2C研究IV: [话筒][围观]//@菉竹-2: //@FineXiyan:··<br><br>RE: 福建省闽清县坂东镇的真实事，坂东人民死的死，伤的伤，没有水，没有食物，停水又停电，通讯中断。坂东镇已经遍体鳞伤，现在媒体又在掩盖事实，过世的人已有接近两百人，为什么报道只有一人遇难，失踪11人？到底政府又在掩盖什么不为人之的事实？？？@福州那点事儿 http://t.cn/Ryh0nuz<br><img src="http://ww2.sinaimg.cn/large/8747ccbegw1f5ozghnlmxj20k00zkafn.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3995940514186256" target="freeweibo-mirror">[生病]//@能好就好啊://@宝宝xfshi:超市一次死2…</a>
 </h2>
@@ -47,7 +47,7 @@
 </h2>
 <p>SPAM 今晚和大家聊聊婆媳问题。（</p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3995836247610644" target="freeweibo-mirror">SPAM //@城南邮局:我本有千万句话想告诉你 却唯独少了…</a>
 </h2>
@@ -95,13 +95,13 @@
 </h2>
 <p>//@北方猎手:没有别人能搞死你，要死也是腐败政权、失去民心的必然结果。历朝历代皇权覆灭莫不源于内因！</p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3995810591318210" target="freeweibo-mirror">安倍比大大小一岁半，同年登基，当然安倍是二进宫。四年过去了，…</a>
 </h2>
 <p>安倍比大大小一岁半，同年登基，当然安倍是二进宫。四年过去了，安倍也没喊啥口号，但小日本却一改自小泉内阁以来首相走马灯模式，异常稳固。细思极恐！http://t.cn/R5gTKJX<br><img src="http://ww3.sinaimg.cn/large/bfa66467jw1f5p5m9w36uj20dj0gojt1.jpg"></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3995810053720032" target="freeweibo-mirror">//@孤独旁观者:党的女人，党的干部玩玩儿有什么不可以！</a>
 </h2>
