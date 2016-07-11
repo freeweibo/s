@@ -47,7 +47,7 @@
 </h2>
 <p>帮你艾特一下，打脸得让它知道@人民日报 //@憶芳顏: //@京城探花: 历史，是有记忆的。。。</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3996097385344883" target="freeweibo-mirror">人民日报，你老祖宗喊你回家看看，看看到底哪个才是中国的版图？…</a>
 </h2>
@@ -119,7 +119,7 @@
 </h2>
 <p>所谓新闻全部都是造假，死了千余人，新闻报道死亡2人，根本不是天灾，就是人祸，水库承包给鱼塘，舍不得放水，等到台风当天，实在受不住了，几个水库一起放，雨下的并不大，往年下的更大更久的一点事都没有，这样的政府，这样的新闻，能信吗，能看吗？<br><img src="http://ww3.sinaimg.cn/large/9e253baagw1f5ppv4cbvpj20hs0qojt6.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3995969744342075" target="freeweibo-mirror">SPAM ok@百[发红包啦][熊猫][转发][汽车][飞机…</a>
 </h2>
