@@ -95,7 +95,7 @@
 </h2>
 <p>[晕] //@耋耋翁:政策和策略是党的生命，各级领导同志务必充分注意，万万不可粗心大意。<br><br>RE: 不看不知道，一看吓一跳！<br><img src="http://ww2.sinaimg.cn/large/006h4JwXgw1f5p7rywhndj30dc0aat9i.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3996099955490774" target="freeweibo-mirror">帮你艾特一下，打脸得让它知道@人民日报 //@憶芳顏: //…</a>
 </h2>
