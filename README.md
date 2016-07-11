@@ -95,13 +95,13 @@
 </h2>
 <p>中国真的强大到了可以跟所有人为敌吗？当年我们反对帝修反的年代，真的是一个黄金岁月？</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3995953277484192" target="freeweibo-mirror">//@东方夜鹰0009: 玛勒戈壁不要脸！</a>
 </h2>
 <p>//@东方夜鹰0009: 玛勒戈壁不要脸！<br><br>RE: 【仅仅7月，中国外援又超过1000亿，怎么好意思让自己老百姓在为本国水灾募捐？！】天大丑闻！震惊！<br><img src="http://ww3.sinaimg.cn/large/006uNNyEgw1f5ovg0j682j30hs1u8gt3.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3995950709827817" target="freeweibo-mirror">！//@哲王老祖://@消沈阳: //@长空击鹰006://…</a>
 </h2>
