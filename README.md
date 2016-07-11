@@ -23,7 +23,7 @@
 </h2>
 <p>为了商场里漂亮的衣服，为了仰慕已久的男神，为了不让别人白眼...... [最右] 加个人卫_星：shou5928</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3996188972258053" target="freeweibo-mirror">这是典型的卖国贼言论！[吐][草泥马]//@信仰的力量61:…</a>
 </h2>
@@ -125,7 +125,7 @@
 </h2>
 <p>[衰]//@tianlanmengmeng:也就是说绿教图已经在中国某些地方开始执行沙里亚法了，这很严重，绿化中华进城加快了啊。</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3996086890177763" target="freeweibo-mirror">SPAM //@宏鑫88: //@马操188:圈子都不绕了，…</a>
 </h2>
