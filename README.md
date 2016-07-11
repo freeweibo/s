@@ -113,7 +113,7 @@
 </h2>
 <p>SPAM 俗话说：冬吃萝卜，夏吃姜。姜能在夏天给人体补充足够的阳气，推荐！</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3996092658483486" target="freeweibo-mirror">SPAM 工行已沦陷 //@写作昕子读铃酱:？？？？？ //…</a>
 </h2>
