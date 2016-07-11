@@ -31,11 +31,17 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3996187587809907" target="freeweibo-mirror">回复@laozu:每个共产党员、中国人都应崇敬国父毛主席，毛…</a>
+</h2>
+<p>回复@laozu:每个共产党员、中国人都应崇敬国父毛主席，毛泽东思想是我们应永远高举的旗帜。毛主席是全党、全军和全国人民心中，举世无双的伟大领袖和导师。所有正直的人都无仰毛主席和毛泽东思想！而那些仇视\抹黑与诋毁毛主席和毛泽东思想，所谓的中国人或假共党，都是丑恶的民族败类丶汉奸卖国贼！</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3996184395195033" target="freeweibo-mirror">SPAM 吹～[偷乐]</a>
 </h2>
 <p>SPAM 吹～[偷乐]<br><br>RE: 向十一国宣战，相信义和团无坚不摧，这是某些人真能干出来的事。</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3996163156304846" target="freeweibo-mirror">SPAM 推</a>
 </h2>
@@ -59,7 +65,7 @@
 </h2>
 <p>奇怪！听说要打仗了，没见谁摩拳擦掌、秣马厉兵，却见满屏都是学英语，学日语的<br><img src="http://ww3.sinaimg.cn/large/853c636egw1f5q7d2zqsqj20q60lgjtn.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3996113521021771" target="freeweibo-mirror">//@京华时报:【嫌犯已被抓获】科尔沁政府宣传部工作人员告诉…</a>
 </h2>
@@ -83,7 +89,7 @@
 </h2>
 <p>[晕] //@耋耋翁:政策和策略是党的生命，各级领导同志务必充分注意，万万不可粗心大意。<br><br>RE: 不看不知道，一看吓一跳！<br><img src="http://ww2.sinaimg.cn/large/006h4JwXgw1f5p7rywhndj30dc0aat9i.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3996099955490774" target="freeweibo-mirror">帮你艾特一下，打脸得让它知道@人民日报 //@憶芳顏: //…</a>
 </h2>
@@ -101,7 +107,7 @@
 </h2>
 <p>SPAM 俗话说：冬吃萝卜，夏吃姜。姜能在夏天给人体补充足够的阳气，推荐！</p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3996092658483486" target="freeweibo-mirror">SPAM 工行已沦陷 //@写作昕子读铃酱:？？？？？ //…</a>
 </h2>
@@ -132,12 +138,6 @@
 <p>【内蒙古通辽一派出所门前副所长被疑犯枪杀 枪已追回正在抓捕】施介派出所发生枪击案，一名警察当场死亡，枪击者落荒而逃”，今天，通辽一知情人士向媒体反映，昨晚，当地一派出所副所长办案期间，在派出所门前被嫌疑人持枪击中身亡，此消息已获当地警方证实并称，涉案枪支已追回，抓捕工作正在进行。...全文： http://m.weibo.cn/1697601814/3996060278132608<br><img src="http://ww4.sinaimg.cn/large/652f5916gw1f5py2imhg9j209m084jrg.jpg"></p>
 <p>
 	<small> ============== 11小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3996027008291544" target="freeweibo-mirror">1900年，慈禧老佛爷也跟全世界宣战来着，后来的结果大家都知…</a>
-</h2>
-<p>1900年，慈禧老佛爷也跟全世界宣战来着，后来的结果大家都知道了<br><br>RE: 中国真的强大到了可以跟所有人为敌吗？当年我们反对帝修反的年代，真的是一个黄金岁月？</p>
-<p>
-	<small> ============== 1天前</small>
 </p>
 <table>
     <tr>
