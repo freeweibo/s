@@ -107,7 +107,7 @@
 </h2>
 <p>人民日报，你老祖宗喊你回家看看，看看到底哪个才是中国的版图？真是个不孝子，都做“鸡”了还能这么自豪。<br><img src="http://ww3.sinaimg.cn/large/006uAtJkgw1f5q2hl15vhj30k00zk0uw.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3996094189374658" target="freeweibo-mirror">SPAM 俗话说：冬吃萝卜，夏吃姜。姜能在夏天给人体补充足够…</a>
 </h2>
