@@ -65,7 +65,7 @@
 </h2>
 <p>[生病]//@能好就好啊://@宝宝xfshi:超市一次死200人[疑问][哆啦A梦吃惊]讨伐闽清政府[汗]//@蒲子里的二流子:不说数，就描述事实，比较安全，数字就用很多等代替比较安全 //@摔三角拍烟画:现在消息越来越少//@摔三角拍烟画://@花前壹拾伍://@天津老魏038:转发微博<br><br>RE: 人祸、满大街都是“尸体”死亡人数己达500人左右。[惊恐]<br><img src="http://ww1.sinaimg.cn/large/006uNNyEgw1f5p6pt35mcj30m80goabx.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3995939079541493" target="freeweibo-mirror">//@消沈阳: //@长空击鹰006://@未得糊涂:真的假…</a>
 </h2>
@@ -77,7 +77,7 @@
 </h2>
 <p>SPAM 想像图片中她们一样，那快来吧/</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3995841574988808" target="freeweibo-mirror">SPAM 今晚和大家聊聊婆媳问题。（</a>
 </h2>
