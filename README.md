@@ -107,7 +107,7 @@
 </h2>
 <p>SPAM 精彩文章推荐：【新中国历史上的那些战争】 【雷洋案中的卖淫女是谁安排的？】 【比打死雷洋更可怕的】 http://t.cn/R5e2eyV</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3995958561414744" target="freeweibo-mirror">2015年5月27日，项城市伊斯兰教协会组建“清真食品”监察…</a>
 </h2>
