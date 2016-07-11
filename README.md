@@ -89,7 +89,7 @@
 </h2>
 <p>【内蒙古通辽一派出所门前副所长被疑犯枪杀 枪已追回正在抓捕】施介派出所发生枪击案，一名警察当场死亡，枪击者落荒而逃”，今天，通辽一知情人士向媒体反映，昨晚，当地一派出所副所长办案期间，在派出所门前被嫌疑人持枪击中身亡，此消息已获当地警方证实并称，涉案枪支已追回，抓捕工作正在进行。...全文： http://m.weibo.cn/1697601814/3996060278132608<br><img src="http://ww4.sinaimg.cn/large/652f5916gw1f5py2imhg9j209m084jrg.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3996027008291544" target="freeweibo-mirror">1900年，慈禧老佛爷也跟全世界宣战来着，后来的结果大家都知…</a>
 </h2>
@@ -107,7 +107,7 @@
 </h2>
 <p>SPAM 问过虫子的意见吗，虫子它同意吗[哈哈][哈哈]//@雷公旗: 一个不小心，拍到蛋蛋鸟！建议全球通缉这位博屎[阴险]//@微笑类星体: 这虫招谁惹谁了！[酷]//@厌非再来: //@东河-猎鹰倚天屠龙: 呵呵！<br><br>RE: 分享图片<br><img src="http://ww1.sinaimg.cn/large/006uTIPjjw1f5poovffkrj30c312otg1.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3995988744506652" target="freeweibo-mirror">SPAM //@微笑类星体: 这虫招谁惹谁了！[酷]//@厌…</a>
 </h2>
