@@ -47,7 +47,7 @@
 </h2>
 <p>//@只配叫猪_://@玛瑞恩://@黄河天下天2:[泪]//@五哥放羊44:一D独裁，遍地是灾。//@B2B2C研究IV: [话筒][围观]//@菉竹-2: //@FineXiyan:··<br><br>RE: 福建省闽清县坂东镇的真实事，坂东人民死的死，伤的伤，没有水，没有食物，停水又停电，通讯中断。坂东镇已经遍体鳞伤，现在媒体又在掩盖事实，过世的人已有接近两百人，为什么报道只有一人遇难，失踪11人？到底政府又在掩盖什么不为人之的事实？？？@福州那点事儿 http://t.cn/Ryh0nuz<br><img src="http://ww2.sinaimg.cn/large/8747ccbegw1f5ozghnlmxj20k00zkafn.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3995940514186256" target="freeweibo-mirror">[生病]//@能好就好啊://@宝宝xfshi:超市一次死2…</a>
 </h2>
@@ -71,7 +71,7 @@
 </h2>
 <p>SPAM 今晚和大家聊聊婆媳问题。（</p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3995836247610644" target="freeweibo-mirror">SPAM //@城南邮局:我本有千万句话想告诉你 却唯独少了…</a>
 </h2>
