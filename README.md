@@ -101,7 +101,7 @@
 </h2>
 <p>帮你艾特一下，打脸得让它知道@人民日报 //@憶芳顏: //@京城探花: 历史，是有记忆的。。。</p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3996097385344883" target="freeweibo-mirror">人民日报，你老祖宗喊你回家看看，看看到底哪个才是中国的版图？…</a>
 </h2>
@@ -119,7 +119,7 @@
 </h2>
 <p>SPAM 工行已沦陷 //@写作昕子读铃酱:？？？？？ //@惠子累死惹:[笑cry]  //@MEGAMKAFroakie:233333我只服你们</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3996092259750413" target="freeweibo-mirror">[衰]//@tianlanmengmeng:也就是说绿教图已…</a>
 </h2>
