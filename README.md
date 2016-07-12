@@ -131,7 +131,7 @@
 </h2>
 <p>自古以來就有「先下手為強」的說法，解放軍吶，十三億人民就等你們對「美帝國主義」開第一炮，那樣大家得解放，你們得解脫。<br><img src="http://ww3.sinaimg.cn/large/006uyHVggw1f5qdv6j985j30pc0od0wa.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3996188972258053" target="freeweibo-mirror">这是典型的卖国贼言论！[吐][草泥马]//@信仰的力量61:…</a>
 </h2>
