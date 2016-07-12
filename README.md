@@ -23,7 +23,7 @@
 </h2>
 <p>//@吕玻:[顶][顶][顶]//@平民正义://@佩尔琳_: //@霜葉19s://@独狼复仇373244:最好的诠释！//@围观倒车-: //@无名寂寂:转发微博<br><br>RE: 这才是真相。<br><img src="http://ww4.sinaimg.cn/large/756ed4dfgw1f5qz6zb3xdj20fm0fgdi3.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3996402633703024" target="freeweibo-mirror">打好打好，只要打就是中国人民的胜利！//@崇法NO7:转发微…</a>
 </h2>
