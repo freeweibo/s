@@ -35,7 +35,7 @@
 </h2>
 <p>中南海不属于中国!<br><br>RE: 小菲菲的示威标语挺有幽默感，这张照片出现在CNN官网的头版<br><img src="http://ww2.sinaimg.cn/large/4fb82604gw1f5r29dkth5j20lo0c678e.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3996485857607565" target="freeweibo-mirror">O(∩_∩)O~</a>
 </h2>
