@@ -31,6 +31,12 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3996493624568774" target="freeweibo-mirror">「现在九段线被否了，当初从民国继承了11段线，为了意识形态，…</a>
+</h2>
+<p>「现在九段线被否了，当初从民国继承了11段线，为了意识形态，把两段抹了，把北部湾海域和岛屿送给越南，变成9段线，征求过人民的意见吗？或者有一个民选的议会立法、监督、参与决策吗？有自由的媒体容许讨论民意、民生、民权吗？国不知有民，民何苦有国？」<br><img src="http://ww2.sinaimg.cn/large/7c0e9549gw1f5rc2a07fej20qo19gaog.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3996489598544630" target="freeweibo-mirror">没错就是这样//@PCYeol1127: 没错[doge] …</a>
 </h2>
 <p>没错就是这样//@PCYeol1127: 没错[doge] //@仪仪仪仪仪iii:[哈哈] //@可以的话不想醒:[可爱] //@-choiii-:[微笑][微笑][微笑]<br><br>RE: 南海仲裁这个事我觉得大家还是得理性一点看待，你是一个中国人你当然认为南海是中国的，但如果你是一个菲律宾人，你不就是一个傻逼吗？[微笑]</p>
@@ -65,7 +71,7 @@
 </h2>
 <p>1919年，巴黎和会，中国代表顾维钧泣血高呼：【山东乃孔孟降生，中国文化发祥之圣地。中国不能失去山东，如同基督徒之不能失去耶路撒冷。】结果大家都知道了。1931年，九一八事变，蒋介石宣布要：【以此案诉之于国联行政院,以待公理之解决。】结果大家也知道了。2016年，国际法庭裁决南海主权归属菲律...全文： http://m.weibo.cn/1458470903/3996484363369518</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3996480107423363" target="freeweibo-mirror">刚和一位有军方背景的朋友聊天，谈起南海局势，对美帝迟早要打 …</a>
 </h2>
@@ -119,7 +125,7 @@
 </h2>
 <p>刚和一位有军方背景的朋友聊天，谈起南海局势，对美帝迟早要打 ，早打比晚打好，打掉美国，我们不畏惧战争！ 现在要考虑的问题是： 一、战场是选在横店还是中山影视城？ 二、战役组织的任务到底交给八一厂还是华谊兄弟？ 三、前线指挥选冯小刚还是张艺谋？ 四、攻坚还用不用黄海波？<br><img src="http://ww3.sinaimg.cn/large/55555cb3gw1f5r7hs5welj20dw0gowhf.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3996447546585949" target="freeweibo-mirror">[挖鼻]唐伯桥算哪门子民运人士？——他只是条忠实的狗，是江湖…</a>
 </h2>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3996439804219688" target="freeweibo-mirror">//@刘军宁:[话筒]</a>
 </h2>
 <p>//@刘军宁:[话筒]</p>
-<p>
-	<small> ============== 6小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3996439103681581" target="freeweibo-mirror">中國海外民運人士預言紙老虎去日無多</a>
-</h2>
-<p>中國海外民運人士預言紙老虎去日無多<br><img src="http://ww3.sinaimg.cn/large/005VVZj9gw1f5r5q3meilj30k00p742x.jpg"></p>
 <p>
 	<small> ============== 6小时前</small>
 </p>
