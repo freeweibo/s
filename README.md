@@ -35,13 +35,13 @@
 </h2>
 <p>狂热的爱国主义又迎来一次高潮.国内的矛盾视线又被成功转移。叫嚣战争的口号一浪高过一浪.党媒更是开足马力。看下图绝对不敢开战，即使开战也得等二手辽宁号打鱼归来.<br><img src="http://ww1.sinaimg.cn/large/006wjydejw1f5rgkmruxij30fq0m8dhy.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3996536998712079" target="freeweibo-mirror">SPAM 为了福利[doge]</a>
 </h2>
 <p>SPAM 为了福利[doge]<br><br>RE: 有哪些平价又好喝的饮料推荐？喜欢的看这里[doge]（文末有福利哦）<br><img src="http://ww4.sinaimg.cn/large/005zgTSzgw1f5rgp7g3mmj30ku112gt1.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3996534348179736" target="freeweibo-mirror">有哪些平价又好喝的饮料推荐？喜欢的看这里[doge]（文末有…</a>
 </h2>
@@ -71,7 +71,7 @@
 </h2>
 <p>//@天津张翔://@三岔河口我的家:还有这事？//@欧美风格导向标:转发微博<br><br>RE: 「现在九段线被否了，当初从民国继承了11段线，为了意识形态，把两段抹了，把北部湾海域和岛屿送给越南，变成9段线，征求过人民的意见吗？或者有一个民选的议会立法、监督、参与决策吗？有自由的媒体容许讨论民意、民生、民权吗？国不知有民，民何苦有国？」<br><img src="http://ww2.sinaimg.cn/large/7c0e9549gw1f5rc2a07fej20qo19gaog.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3996506224248920" target="freeweibo-mirror">//@天地律师:呵呵//@虎叔-:呵呵</a>
 </h2>
@@ -113,7 +113,7 @@
 </h2>
 <p>对美帝迟早要打 ，早打比晚打好，这是国际大环境所决定的！打掉美国，不仅可以敲打菲律宾，对越南、日本以及台独也有震慑意义。现在要考虑的问题是： 一、战场是选在横店还是中山影视城？ 二、战役组织的任务到底交给八一厂还是华谊兄弟？ 三、前线指挥选冯小刚还是张艺谋？ 四、攻坚还用不用黄海波？<br><img src="http://ww2.sinaimg.cn/large/474243c8jw1f5rbu8psrvj20ic0ggwg3.jpg"></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3996490286943984" target="freeweibo-mirror">SPAM 这智商容我笑一会</a>
 </h2>
