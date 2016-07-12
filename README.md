@@ -43,9 +43,21 @@
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3996496795443925" target="freeweibo-mirror">[怒]//@阅中国:转发微博</a>
+</h2>
+<p>[怒]//@阅中国:转发微博<br><br>RE: 对美帝迟早要打 ，早打比晚打好，这是国际大环境所决定的！打掉美国，不仅可以敲打菲律宾，对越南、日本以及台独也有震慑意义。现在要考虑的问题是： 一、战场是选在横店还是中山影视城？ 二、战役组织的任务到底交给八一厂还是华谊兄弟？ 三、前线指挥选冯小刚还是张艺谋？ 四、攻坚还用不用黄海波？<br><img src="http://ww2.sinaimg.cn/large/474243c8jw1f5rbu8psrvj20ic0ggwg3.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3996493624568774" target="freeweibo-mirror">「现在九段线被否了，当初从民国继承了11段线，为了意识形态，…</a>
 </h2>
 <p>「现在九段线被否了，当初从民国继承了11段线，为了意识形态，把两段抹了，把北部湾海域和岛屿送给越南，变成9段线，征求过人民的意见吗？或者有一个民选的议会立法、监督、参与决策吗？有自由的媒体容许讨论民意、民生、民权吗？国不知有民，民何苦有国？」<br><img src="http://ww2.sinaimg.cn/large/7c0e9549gw1f5rc2a07fej20qo19gaog.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3996492941733864" target="freeweibo-mirror">对呀//@付玥玥: //@一只肾小球://@少女可否把心还我…</a>
+</h2>
+<p>对呀//@付玥玥: //@一只肾小球://@少女可否把心还我:还有嘲笑有的国家又小又穷的...是什么心态 //@你有一块钱吗://@Tiger公子:感谢每一个支持我们的国家//@桃包鲨美:排最右，学历史的我深有体会//@xyhbbjifssvhjnkibdrsbjn：别小看这些小学生国家，当年中国是怎么进联合国的[微笑]<br><br>RE: 【南海仲裁结果即将出炉 至少66国支持中国立场】虽然美国、日本等积极掺和仲裁案，部分西方国家也在“敲边鼓”，但据不完全统计，目前已经有至少66个国家，明确支持中国在南海的立场：俄罗斯、印度、冈比亚、波兰、巴基斯坦、吉布提、索马里、科摩罗、多哥、阿富汗、布隆迪、莱索托、马拉维、乌干达、...全文： http://m.weibo.cn/1642088277/3996338025157419<br><img src="http://ww1.sinaimg.cn/large/61e04755jw1f5qu6wvh52j20qy0ae405.jpg"></p>
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
@@ -65,7 +77,7 @@
 </h2>
 <p>中南海不属于中国!<br><br>RE: 小菲菲的示威标语挺有幽默感，这张照片出现在CNN官网的头版<br><img src="http://ww2.sinaimg.cn/large/4fb82604gw1f5r29dkth5j20lo0c678e.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3996485857607565" target="freeweibo-mirror">O(∩_∩)O~</a>
 </h2>
@@ -126,18 +138,6 @@
 <p>SPAM 人品好的人，敢托付终身。人品差的人，甭管拿出多少钱塞到口袋里，在身边半小时都觉得危险。//@简直: //@刘力博士:[偷笑]//@未得糊涂://@华富婧: //@织梦作坊: //@守候者说: //@石榴红chn:非浅见，简直高见，甩长安街好几条街咧。<br><br>RE: 国际关系，一位妇人之浅见。<br><img src="http://ww3.sinaimg.cn/large/7c0e9549jw1f5r4ewgvpuj20ri2cjtqj.jpg"></p>
 <p>
 	<small> ============== 5小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3996456106460242" target="freeweibo-mirror">菲律宾主演的闹剧</a>
-</h2>
-<p>菲律宾主演的闹剧<br><br>RE: 小菲菲的示威标语挺有幽默感，这张照片出现在CNN官网的头版<br><img src="http://ww2.sinaimg.cn/large/4fb82604gw1f5r29dkth5j20lo0c678e.jpg"></p>
-<p>
-	<small> ============== 6小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3996453838246465" target="freeweibo-mirror">刚和一位有军方背景的朋友聊天，谈起南海局势，对美帝迟早要打 …</a>
-</h2>
-<p>刚和一位有军方背景的朋友聊天，谈起南海局势，对美帝迟早要打 ，早打比晚打好，打掉美国，我们不畏惧战争！ 现在要考虑的问题是： 一、战场是选在横店还是中山影视城？ 二、战役组织的任务到底交给八一厂还是华谊兄弟？ 三、前线指挥选冯小刚还是张艺谋？ 四、攻坚还用不用黄海波？<br><img src="http://ww3.sinaimg.cn/large/55555cb3gw1f5r7hs5welj20dw0gowhf.jpg"></p>
-<p>
-	<small> ============== 6小时前</small>
 </p>
 <table>
     <tr>
