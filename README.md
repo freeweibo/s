@@ -19,6 +19,24 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3996439804219688" target="freeweibo-mirror">//@刘军宁:[话筒]</a>
+</h2>
+<p>//@刘军宁:[话筒]</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3996437588794403" target="freeweibo-mirror">//@高春辉:→_→//@刘军宁:[话筒]</a>
+</h2>
+<p>//@高春辉:→_→//@刘军宁:[话筒]</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3996435832208718" target="freeweibo-mirror">→_→//@刘军宁:[话筒]</a>
+</h2>
+<p>→_→//@刘军宁:[话筒]</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3996431713106204" target="freeweibo-mirror">//@吕玻:[顶][顶][顶]//@平民正义://@佩尔琳_…</a>
 </h2>
 <p>//@吕玻:[顶][顶][顶]//@平民正义://@佩尔琳_: //@霜葉19s://@独狼复仇373244:最好的诠释！//@围观倒车-: //@无名寂寂:转发微博<br><br>RE: 这才是真相。<br><img src="http://ww4.sinaimg.cn/large/756ed4dfgw1f5qz6zb3xdj20fm0fgdi3.jpg"></p>
@@ -118,24 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3996367355899499" target="freeweibo-mirror">一些人真知道打的结果，于是喊打；一些人不知道打的结果，也喊打…</a>
 </h2>
 <p>一些人真知道打的结果，于是喊打；一些人不知道打的结果，也喊打。[嘻嘻][嘻嘻][嘻嘻]今天这一片闹哄哄[嘻嘻][嘻嘻][嘻嘻]</p>
-<p>
-	<small> ============== 6小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3996367167324363" target="freeweibo-mirror">SPAM //@铁哥日记718: 看不到！能再发一次吗？//…</a>
-</h2>
-<p>SPAM //@铁哥日记718: 看不到！能再发一次吗？//@雷公旗: 删了！可惜没看到//@鱼儿闲谈: 以后必须凭乡长开证明才能买汽油//@深红老王:汽油价格还得涨些 //@博浪沙-A:[赞]//@大道圣人15:[嘻嘻]//@鱼儿闲谈: //@私享A家:[鼓掌][鼓掌]<br><br>RE: 浙江一乡长被村民泼汽油点火[汗] http://t.cn/R5D9vMK .</p>
-<p>
-	<small> ============== 6小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3996365232661215" target="freeweibo-mirror">//@18前: //@秋风不见倒春寒: 转发微博</a>
-</h2>
-<p>//@18前: //@秋风不见倒春寒: 转发微博<br><br>RE: 浙江一乡长被村民泼汽油点火[汗] http://t.cn/R5D9vMK .</p>
-<p>
-	<small> ============== 6小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3996364256521523" target="freeweibo-mirror">SPAM 能真正重視民生民主民權的政府才是好政府。靠強拆強占…</a>
-</h2>
-<p>SPAM 能真正重視民生民主民權的政府才是好政府。靠強拆強占、血腥鎮壓、破壞生態環境、網絡禁言刪貼封號抓人維穩出來的正腐是太平天國。//@交晌乐:焦点访谈……</p>
 <p>
 	<small> ============== 6小时前</small>
 </p>
