@@ -89,13 +89,13 @@
 </h2>
 <p>[心]这是我们的祖国<br><br>RE: 中国牛逼就牛逼在，推特上因为南海仲裁事件，都闹翻了天了，这次是中国外交史上最严重的事件，都涉及到领土问题了，我国人民依然可以坐在空调房里舒坦着刷微博嘻嘻哈哈。祖国足够强大，才让你有了这样毫无压力的生活。[心]</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3996500234885428" target="freeweibo-mirror">SPAM //@华夏苍生:迅速把菲律宾端了再说。//@HK-…</a>
 </h2>
 <p>SPAM //@华夏苍生:迅速把菲律宾端了再说。//@HK-阿祖:最新：菲律賓呼籲各方保持克制。<br><br>RE: 主席最高指令：準備作戰！<br><img src="http://ww1.sinaimg.cn/large/005OEaArgw1f5railardnj30hm2fs7ge.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3996496795443925" target="freeweibo-mirror">[怒]//@阅中国:转发微博</a>
 </h2>
