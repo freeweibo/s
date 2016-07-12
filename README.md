@@ -49,6 +49,18 @@
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3996468065179172" target="freeweibo-mirror">SPAM 人品好的人，敢托付终身。人品差的人，甭管拿出多少钱…</a>
+</h2>
+<p>SPAM 人品好的人，敢托付终身。人品差的人，甭管拿出多少钱塞到口袋里，在身边半小时都觉得危险。//@简直: //@刘力博士:[偷笑]//@未得糊涂://@华富婧: //@织梦作坊: //@守候者说: //@石榴红chn:非浅见，简直高见，甩长安街好几条街咧。<br><br>RE: 国际关系，一位妇人之浅见。<br><img src="http://ww3.sinaimg.cn/large/7c0e9549jw1f5r4ewgvpuj20ri2cjtqj.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3996456106460242" target="freeweibo-mirror">菲律宾主演的闹剧</a>
+</h2>
+<p>菲律宾主演的闹剧<br><br>RE: 小菲菲的示威标语挺有幽默感，这张照片出现在CNN官网的头版<br><img src="http://ww2.sinaimg.cn/large/4fb82604gw1f5r29dkth5j20lo0c678e.jpg"></p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3996453838246465" target="freeweibo-mirror">刚和一位有军方背景的朋友聊天，谈起南海局势，对美帝迟早要打 …</a>
 </h2>
 <p>刚和一位有军方背景的朋友聊天，谈起南海局势，对美帝迟早要打 ，早打比晚打好，打掉美国，我们不畏惧战争！ 现在要考虑的问题是： 一、战场是选在横店还是中山影视城？ 二、战役组织的任务到底交给八一厂还是华谊兄弟？ 三、前线指挥选冯小刚还是张艺谋？ 四、攻坚还用不用黄海波？<br><img src="http://ww3.sinaimg.cn/large/55555cb3gw1f5r7hs5welj20dw0gowhf.jpg"></p>
@@ -107,7 +119,7 @@
 </h2>
 <p>国际关系，一位妇人之浅见。<br><img src="http://ww3.sinaimg.cn/large/7c0e9549jw1f5r4ewgvpuj20ri2cjtqj.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3996422179431684" target="freeweibo-mirror">用安全员替代并非不可，但要顾及现有员工的利益，这些人年龄学历…</a>
 </h2>
@@ -124,18 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3996402633703024" target="freeweibo-mirror">打好打好，只要打就是中国人民的胜利！//@崇法NO7:转发微…</a>
 </h2>
 <p>打好打好，只要打就是中国人民的胜利！//@崇法NO7:转发微博<br><br>RE: 一些人真知道打的结果，于是喊打；一些人不知道打的结果，也喊打。[嘻嘻][嘻嘻][嘻嘻]今天这一片闹哄哄[嘻嘻][嘻嘻][嘻嘻]</p>
-<p>
-	<small> ============== 7小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3996398221865320" target="freeweibo-mirror">SPAM 打打打[嘻嘻]</a>
-</h2>
-<p>SPAM 打打打[嘻嘻]<br><br>RE: 一些人真知道打的结果，于是喊打；一些人不知道打的结果，也喊打。[嘻嘻][嘻嘻][嘻嘻]今天这一片闹哄哄[嘻嘻][嘻嘻][嘻嘻]</p>
-<p>
-	<small> ============== 7小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3996397553921601" target="freeweibo-mirror">SPAM [喵喵]//@公民王海滨: //@北京厨子新号: …</a>
-</h2>
-<p>SPAM [喵喵]//@公民王海滨: //@北京厨子新号: [笑cry]//@陆亚明: 还没开打啊？快点儿，磨叽啥啊，急死我了~[笑cry]<br><br>RE: 一些人真知道打的结果，于是喊打；一些人不知道打的结果，也喊打。[嘻嘻][嘻嘻][嘻嘻]今天这一片闹哄哄[嘻嘻][嘻嘻][嘻嘻]</p>
 <p>
 	<small> ============== 7小时前</small>
 </p>
