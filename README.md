@@ -53,7 +53,7 @@
 </h2>
 <p>刚和一位有军方背景的朋友聊天，谈起南海局势，对美帝迟早要打 ，早打比晚打好，打掉美国，我们不畏惧战争！ 现在要考虑的问题是： 一、战场是选在横店还是中山影视城？ 二、战役组织的任务到底交给八一厂还是华谊兄弟？ 三、前线指挥选冯小刚还是张艺谋？ 四、攻坚还用不用黄海波？<br><img src="http://ww3.sinaimg.cn/large/55555cb3gw1f5r7hs5welj20dw0gowhf.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3996447546585949" target="freeweibo-mirror">[挖鼻]唐伯桥算哪门子民运人士？——他只是条忠实的狗，是江湖…</a>
 </h2>
@@ -71,7 +71,7 @@
 </h2>
 <p>中國海外民運人士預言紙老虎去日無多<br><img src="http://ww3.sinaimg.cn/large/005VVZj9gw1f5r5q3meilj30k00p742x.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3996437588794403" target="freeweibo-mirror">//@高春辉:→_→//@刘军宁:[话筒]</a>
 </h2>
@@ -103,11 +103,23 @@
 <p>
 	<small> ============== 5小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3996427011656568" target="freeweibo-mirror">国际关系，一位妇人之浅见。</a>
+</h2>
+<p>国际关系，一位妇人之浅见。<br><img src="http://ww3.sinaimg.cn/large/7c0e9549jw1f5r4ewgvpuj20ri2cjtqj.jpg"></p>
+<p>
+	<small> ============== 5小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3996422179431684" target="freeweibo-mirror">用安全员替代并非不可，但要顾及现有员工的利益，这些人年龄学历…</a>
 </h2>
 <p>用安全员替代并非不可，但要顾及现有员工的利益，这些人年龄学历都没有竞争力，很难找到其他工作，领导应为他们考虑着想不要简单粗暴的处理问题。<br><br>RE: #北京事儿#【300路售票员罢工[话筒]】@姆们说：今天300路快的售票员集体罢工，原因是北京公交集团领导一意孤行取消售票员，只保留所谓的安全员，对售票员不分流，导致大量基层售票员只能失业下岗。。。本次300内环的集体罢工只是为了维护北京中下层人民的利益，希望大家能体谅基层公交人的疾苦</p>
 <p>
 	<small> ============== 6小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3996408363359719" target="freeweibo-mirror">小菲菲的示威标语挺有幽默感，这张照片出现在CNN官网的头版</a>
+</h2>
+<p>小菲菲的示威标语挺有幽默感，这张照片出现在CNN官网的头版<br><img src="http://ww2.sinaimg.cn/large/4fb82604gw1f5r29dkth5j20lo0c678e.jpg"></p>
+<p>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3996402633703024" target="freeweibo-mirror">打好打好，只要打就是中国人民的胜利！//@崇法NO7:转发微…</a>
 </h2>
@@ -124,18 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3996397553921601" target="freeweibo-mirror">SPAM [喵喵]//@公民王海滨: //@北京厨子新号: …</a>
 </h2>
 <p>SPAM [喵喵]//@公民王海滨: //@北京厨子新号: [笑cry]//@陆亚明: 还没开打啊？快点儿，磨叽啥啊，急死我了~[笑cry]<br><br>RE: 一些人真知道打的结果，于是喊打；一些人不知道打的结果，也喊打。[嘻嘻][嘻嘻][嘻嘻]今天这一片闹哄哄[嘻嘻][嘻嘻][嘻嘻]</p>
-<p>
-	<small> ============== 7小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3996396136328451" target="freeweibo-mirror">SPAM [笑cry][笑cry][笑cry]难得的共识。</a>
-</h2>
-<p>SPAM [笑cry][笑cry][笑cry]难得的共识。<br><br>RE: 一些人真知道打的结果，于是喊打；一些人不知道打的结果，也喊打。[嘻嘻][嘻嘻][嘻嘻]今天这一片闹哄哄[嘻嘻][嘻嘻][嘻嘻]</p>
-<p>
-	<small> ============== 7小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3996395151790798" target="freeweibo-mirror">SPAM [笑cry]起哄架秧子的多，大抵因为真的事主智商太…</a>
-</h2>
-<p>SPAM [笑cry]起哄架秧子的多，大抵因为真的事主智商太低了。 //@DopeyTom:能不能打赢不要紧，这是水平问题。打不打很要紧，这关系到态度问题。//@枫林秋色2008:打！ //@大大齿猛蚁:打！打！打！<br><br>RE: 一些人真知道打的结果，于是喊打；一些人不知道打的结果，也喊打。[嘻嘻][嘻嘻][嘻嘻]今天这一片闹哄哄[嘻嘻][嘻嘻][嘻嘻]</p>
 <p>
 	<small> ============== 7小时前</small>
 </p>
