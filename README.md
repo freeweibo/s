@@ -71,7 +71,7 @@
 </h2>
 <p>//@青山GG妩媚: [挖鼻]祈盼哪位英雄不遵号令，向着老米开一炮，绝对的青史留名，现在的、将来的无数的中国人将会感激你。//@狡兔三窟黔驴技穷:坐等你们完球!<br><br>RE: 自古以來就有「先下手為強」的說法，解放軍吶，十三億人民就等你們對「美帝國主義」開第一炮，那樣大家得解放，你們得解脫。<br><img src="http://ww3.sinaimg.cn/large/006uyHVggw1f5qdv6j985j30pc0od0wa.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3996301065059061" target="freeweibo-mirror">和谁战？海牙国际法庭？//@戎绒日记: //@东方夜鹰000…</a>
 </h2>
@@ -83,7 +83,7 @@
 </h2>
 <p>//@干卫东律师:造谣吧？//@冯师长:打苍蝇！<br><br>RE: 快讯：：中央军委主席习近平已向军方发出「准备作战」的命令，要求军队「不惜一战」捍衞南海主权和领土完整。南部战区已进入一级戒备，南海舰队、火箭军和空军已进入战前状态。[围观][围观][围观]<br><img src="http://ww2.sinaimg.cn/large/006vBqN8gw1f5qf9wtdxuj30i20a5jt0.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3996265778249906" target="freeweibo-mirror">SPAM 【Darmvital 99%高纯度芦荟胶 200m…</a>
 </h2>
