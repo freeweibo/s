@@ -65,7 +65,7 @@
 </h2>
 <p>向十一国宣战，相信义和团无坚不摧，这是某些人真能干出来的事。</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3996148077712303" target="freeweibo-mirror">SPAM #金希澈# #金政模# 新专辑《#综合大礼包# 》…</a>
 </h2>
