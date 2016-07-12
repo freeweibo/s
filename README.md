@@ -23,7 +23,7 @@
 </h2>
 <p>SPAM //@铁哥日记718: 看不到！能再发一次吗？//@雷公旗: 删了！可惜没看到//@鱼儿闲谈: 以后必须凭乡长开证明才能买汽油//@深红老王:汽油价格还得涨些 //@博浪沙-A:[赞]//@大道圣人15:[嘻嘻]//@鱼儿闲谈: //@私享A家:[鼓掌][鼓掌]<br><br>RE: 浙江一乡长被村民泼汽油点火[汗] http://t.cn/R5D9vMK .</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3996365232661215" target="freeweibo-mirror">//@18前: //@秋风不见倒春寒: 转发微博</a>
 </h2>
@@ -34,6 +34,12 @@
 	<a href="https://freeweibo.com/weibo/3996364256521523" target="freeweibo-mirror">SPAM 能真正重視民生民主民權的政府才是好政府。靠強拆強占…</a>
 </h2>
 <p>SPAM 能真正重視民生民主民權的政府才是好政府。靠強拆強占、血腥鎮壓、破壞生態環境、網絡禁言刪貼封號抓人維穩出來的正腐是太平天國。//@交晌乐:焦点访谈……</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3996360140762576" target="freeweibo-mirror">SPAM 这都不开腔！//@胡坤821: 大家自己看吧。</a>
+</h2>
+<p>SPAM 这都不开腔！//@胡坤821: 大家自己看吧。<br><br>RE: 浙江一乡长被村民泼汽油点火[汗] http://t.cn/R5D9vMK .</p>
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
@@ -59,11 +65,17 @@
 </h2>
 <p>[笑cry]//@大尸凶的漫画:哈哈，五毛bug了//@陈有西:极度恶劣、堕落。早晚有一天会将这些幕后操纵的罪犯曝光在太阳下示众。作恶都逃不过人民的清算，更何况计算机技术会留下所有的证据。永远无法抹去。<br><br>RE: 机器人五毛军团现身！一个只发了1条微博的账号，这一条内容是“这条微博只是用来测试的”，却引起一大群账号转发评论上千，全部微博1级会员，粉丝很少，发言不多，全部是正能量拥护国家的发言。未免被删，留图存证。原微博地址http://t.cn/R5DhWeY 还有谁敢说五毛不存在的吗？机器人军团都来了<br><img src="http://ww3.sinaimg.cn/large/d60724d4jw1f5q9zl5nfsj20mi0exn1j.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3996350272593418" target="freeweibo-mirror">浙江一乡长被村民泼汽油点火[汗] http://t.cn/R…</a>
 </h2>
 <p>浙江一乡长被村民泼汽油点火[汗] http://t.cn/R5D9vMK .</p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3996347810257752" target="freeweibo-mirror">SPAM #郁言詼語#某個地方 你跟它說真話 它說你違規 你…</a>
+</h2>
+<p>SPAM #郁言詼語#某個地方 你跟它說真話 它說你違規 你跟它說 你種的那棵樹根都爛了 該修枝剪葉施肥了 它說你違規 你跟它說 你摸著石頭過河 你有三個自信 你掌控了宇宙真理 你萬歲萬歲萬萬歲 它竟然當真了.......#微博时评团##助愛回家##微博打赏# http://t.cn/R47dNaK<br><img src="http://ww4.sinaimg.cn/large/939bc242jw1f5qv8d2i9mj20qo1bejyx.jpg"></p>
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
@@ -124,18 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3996328465305639" target="freeweibo-mirror">SPAM //@京城探花:[吃惊][吃惊]</a>
 </h2>
 <p>SPAM //@京城探花:[吃惊][吃惊]</p>
-<p>
-	<small> ============== 4小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3996327556233879" target="freeweibo-mirror">//@彭园v: //@北京韩非子:打仗的话我会不会死我不知道…</a>
-</h2>
-<p>//@彭园v: //@北京韩非子:打仗的话我会不会死我不知道，但是他们一定会死，这个我知道。<br><br>RE: 快讯：：中央军委主席习近平已向军方发出「准备作战」的命令，要求军队「不惜一战」捍衞南海主权和领土完整。南部战区已进入一级戒备，南海舰队、火箭军和空军已进入战前状态。[围观][围观][围观]<br><img src="http://ww2.sinaimg.cn/large/006vBqN8gw1f5qf9wtdxuj30i20a5jt0.jpg"></p>
-<p>
-	<small> ============== 4小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3996327366370648" target="freeweibo-mirror">//@北京韩非子:打仗的话我会不会死我不知道，但是他们一定会…</a>
-</h2>
-<p>//@北京韩非子:打仗的话我会不会死我不知道，但是他们一定会死，这个我知道。<br><br>RE: 快讯：：中央军委主席习近平已向军方发出「准备作战」的命令，要求军队「不惜一战」捍衞南海主权和领土完整。南部战区已进入一级戒备，南海舰队、火箭军和空军已进入战前状态。[围观][围观][围观]<br><img src="http://ww2.sinaimg.cn/large/006vBqN8gw1f5qf9wtdxuj30i20a5jt0.jpg"></p>
 <p>
 	<small> ============== 4小时前</small>
 </p>
