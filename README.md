@@ -67,6 +67,12 @@
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3996480107423363" target="freeweibo-mirror">刚和一位有军方背景的朋友聊天，谈起南海局势，对美帝迟早要打 …</a>
+</h2>
+<p>刚和一位有军方背景的朋友聊天，谈起南海局势，对美帝迟早要打 ，早打比晚打好，打掉美国，我们不畏惧战争！ 现在要考虑的问题是： 一、战场是选在横店还是中山影视城？ 二、战役组织的任务到底交给八一厂还是华谊兄弟？ 三、前线指挥选冯小刚还是张艺谋？ 四、攻坚还用不用黄海波？ k收起 f<br><img src="http://ww4.sinaimg.cn/large/006s5yoogw1f5raifijnqj30fk0h8t96.jpg"></p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3996478928163840" target="freeweibo-mirror">//@柳三便: 有理有据</a>
 </h2>
 <p>//@柳三便: 有理有据<br><br>RE: 南海仲裁这个事我觉得大家还是得理性一点看待，你是一个中国人你当然认为南海是中国的，但如果你是一个菲律宾人，你不就是一个傻逼吗？[微笑]</p>
@@ -101,7 +107,7 @@
 </h2>
 <p>SPAM 人品好的人，敢托付终身。人品差的人，甭管拿出多少钱塞到口袋里，在身边半小时都觉得危险。//@简直: //@刘力博士:[偷笑]//@未得糊涂://@华富婧: //@织梦作坊: //@守候者说: //@石榴红chn:非浅见，简直高见，甩长安街好几条街咧。<br><br>RE: 国际关系，一位妇人之浅见。<br><img src="http://ww3.sinaimg.cn/large/7c0e9549jw1f5r4ewgvpuj20ri2cjtqj.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3996456106460242" target="freeweibo-mirror">菲律宾主演的闹剧</a>
 </h2>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3996439103681581" target="freeweibo-mirror">中國海外民運人士預言紙老虎去日無多</a>
 </h2>
 <p>中國海外民運人士預言紙老虎去日無多<br><img src="http://ww3.sinaimg.cn/large/005VVZj9gw1f5r5q3meilj30k00p742x.jpg"></p>
-<p>
-	<small> ============== 6小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3996437588794403" target="freeweibo-mirror">//@高春辉:→_→//@刘军宁:[话筒]</a>
-</h2>
-<p>//@高春辉:→_→//@刘军宁:[话筒]</p>
 <p>
 	<small> ============== 6小时前</small>
 </p>
