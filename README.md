@@ -29,7 +29,7 @@
 </h2>
 <p>//@未得糊涂: //@九钻女王: //@知行合一童: 转发微博<br><br>RE: 狂热的爱国主义又迎来一次高潮.国内的矛盾视线又被成功转移。叫嚣战争的口号一浪高过一浪.党媒更是开足马力。看下图绝对不敢开战，即使开战也得等二手辽宁号打鱼归来.<br><img src="http://ww1.sinaimg.cn/large/006wjydejw1f5rgkmruxij30fq0m8dhy.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3996549719224551" target="freeweibo-mirror">//@公民王海滨://@长风破浪138: //@涅磐的自由:…</a>
 </h2>
@@ -119,7 +119,7 @@
 </h2>
 <p>对美帝迟早要打 ，早打比晚打好，这是国际大环境所决定的！打掉美国，不仅可以敲打菲律宾，对越南、日本以及台独也有震慑意义。现在要考虑的问题是： 一、战场是选在横店还是中山影视城？ 二、战役组织的任务到底交给八一厂还是华谊兄弟？ 三、前线指挥选冯小刚还是张艺谋？ 四、攻坚还用不用黄海波？<br><img src="http://ww2.sinaimg.cn/large/474243c8jw1f5rbu8psrvj20ic0ggwg3.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3996490286943984" target="freeweibo-mirror">SPAM 这智商容我笑一会</a>
 </h2>
