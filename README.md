@@ -95,7 +95,7 @@
 </h2>
 <p>SPAM [笑cry][笑cry][笑cry]难得的共识。<br><br>RE: 一些人真知道打的结果，于是喊打；一些人不知道打的结果，也喊打。[嘻嘻][嘻嘻][嘻嘻]今天这一片闹哄哄[嘻嘻][嘻嘻][嘻嘻]</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3996395151790798" target="freeweibo-mirror">SPAM [笑cry]起哄架秧子的多，大抵因为真的事主智商太…</a>
 </h2>
