@@ -23,7 +23,7 @@
 </h2>
 <p>SPAM 【好文分享】1、噩耗！昨天，一位伟大母亲去世了...无数中国人心碎落泪！2、看了日本的“抗洪神器”，才知道什么是城市的良心！3、她16岁为初恋险自杀，32岁为救弟倾家荡产，38岁下嫁跛足富豪，如今45岁却美若妙龄！4 从风流才子 到 一代高僧，他一生风云变幻！！更多精彩请添加关注：zhebsls<br><img src="http://ww2.sinaimg.cn/large/a4aae570jw1f5qt783xbyj20j60y3mze.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3996327556233879" target="freeweibo-mirror">//@彭园v: //@北京韩非子:打仗的话我会不会死我不知道…</a>
 </h2>
@@ -77,7 +77,7 @@
 </h2>
 <p>快讯：：中央军委主席习近平已向军方发出「准备作战」的命令，要求军队「不惜一战」捍衞南海主权和领土完整。南部战区已进入一级戒备，南海舰队、火箭军和空军已进入战前状态。[围观][围观][围观]<br><img src="http://ww2.sinaimg.cn/large/006vBqN8gw1f5qf9wtdxuj30i20a5jt0.jpg"></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3996188972258053" target="freeweibo-mirror">这是典型的卖国贼言论！[吐][草泥马]//@信仰的力量61:…</a>
 </h2>
