@@ -53,13 +53,19 @@
 </h2>
 <p>SPAM 【Darmvital 99%高纯度芦荟胶 200ml, EUR 9,95 】万能护肤品，居家常备，出差、旅游建议也应随身携带一支高纯度芦荟胶，对皮肤滋润、恢复效果显，著好处作用多多，：因皮肤干燥造成的瘙痒、起皮；过敏反应；日晒后的灼伤；蚊虫叮咬和皮疹  http://t.cn/R2jjuU3<br><img src="http://ww3.sinaimg.cn/large/74b5d787jw1f5qlw9o1r1j20pr15oju1.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3996220622006711" target="freeweibo-mirror">为了商场里漂亮的衣服，为了仰慕已久的男神，为了不让别人白眼.…</a>
 </h2>
 <p>为了商场里漂亮的衣服，为了仰慕已久的男神，为了不让别人白眼...... [最右] 加个人卫_星：shou5928</p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3996208215762769" target="freeweibo-mirror">快讯：：中央军委主席习近平已向军方发出「准备作战」的命令，要…</a>
+</h2>
+<p>快讯：：中央军委主席习近平已向军方发出「准备作战」的命令，要求军队「不惜一战」捍衞南海主权和领土完整。南部战区已进入一级戒备，南海舰队、火箭军和空军已进入战前状态。[围观][围观][围观]<br><img src="http://ww2.sinaimg.cn/large/006vBqN8gw1f5qf9wtdxuj30i20a5jt0.jpg"></p>
+<p>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3996188972258053" target="freeweibo-mirror">这是典型的卖国贼言论！[吐][草泥马]//@信仰的力量61:…</a>
 </h2>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3996109817157125" target="freeweibo-mirror">[晕] //@耋耋翁:政策和策略是党的生命，各级领导同志务必…</a>
 </h2>
 <p>[晕] //@耋耋翁:政策和策略是党的生命，各级领导同志务必充分注意，万万不可粗心大意。<br><br>RE: 不看不知道，一看吓一跳！<br><img src="http://ww2.sinaimg.cn/large/006h4JwXgw1f5p7rywhndj30dc0aat9i.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3996099955490774" target="freeweibo-mirror">帮你艾特一下，打脸得让它知道@人民日报 //@憶芳顏: //…</a>
-</h2>
-<p>帮你艾特一下，打脸得让它知道@人民日报 //@憶芳顏: //@京城探花: 历史，是有记忆的。。。</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
