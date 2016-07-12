@@ -23,7 +23,7 @@
 </h2>
 <p>打好打好，只要打就是中国人民的胜利！//@崇法NO7:转发微博<br><br>RE: 一些人真知道打的结果，于是喊打；一些人不知道打的结果，也喊打。[嘻嘻][嘻嘻][嘻嘻]今天这一片闹哄哄[嘻嘻][嘻嘻][嘻嘻]</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3996398221865320" target="freeweibo-mirror">SPAM 打打打[嘻嘻]</a>
 </h2>
@@ -119,7 +119,7 @@
 </h2>
 <p>SPAM 这是来搞笑的吗[笑cry]</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3996353900599987" target="freeweibo-mirror">//@老刘在德克萨斯:神州人民交点税，除了要养官吏及其全家外…</a>
 </h2>
