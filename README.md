@@ -125,7 +125,7 @@
 </h2>
 <p>中南海不属于中国!<br><br>RE: 小菲菲的示威标语挺有幽默感，这张照片出现在CNN官网的头版<br><img src="http://ww2.sinaimg.cn/large/4fb82604gw1f5r29dkth5j20lo0c678e.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3996487044796908" target="freeweibo-mirror">[心] //@志龍予聲:[心] //@TGYBOM:[心] …</a>
 </h2>
