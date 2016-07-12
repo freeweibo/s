@@ -19,9 +19,21 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3996329376534862" target="freeweibo-mirror">SPAM 【好文分享】1、噩耗！昨天，一位伟大母亲去世了..…</a>
+</h2>
+<p>SPAM 【好文分享】1、噩耗！昨天，一位伟大母亲去世了...无数中国人心碎落泪！2、看了日本的“抗洪神器”，才知道什么是城市的良心！3、她16岁为初恋险自杀，32岁为救弟倾家荡产，38岁下嫁跛足富豪，如今45岁却美若妙龄！4 从风流才子 到 一代高僧，他一生风云变幻！！更多精彩请添加关注：zhebsls<br><img src="http://ww2.sinaimg.cn/large/a4aae570jw1f5qt783xbyj20j60y3mze.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3996327556233879" target="freeweibo-mirror">//@彭园v: //@北京韩非子:打仗的话我会不会死我不知道…</a>
 </h2>
 <p>//@彭园v: //@北京韩非子:打仗的话我会不会死我不知道，但是他们一定会死，这个我知道。<br><br>RE: 快讯：：中央军委主席习近平已向军方发出「准备作战」的命令，要求军队「不惜一战」捍衞南海主权和领土完整。南部战区已进入一级戒备，南海舰队、火箭军和空军已进入战前状态。[围观][围观][围观]<br><img src="http://ww2.sinaimg.cn/large/006vBqN8gw1f5qf9wtdxuj30i20a5jt0.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3996327366370648" target="freeweibo-mirror">//@北京韩非子:打仗的话我会不会死我不知道，但是他们一定会…</a>
+</h2>
+<p>//@北京韩非子:打仗的话我会不会死我不知道，但是他们一定会死，这个我知道。<br><br>RE: 快讯：：中央军委主席习近平已向军方发出「准备作战」的命令，要求军队「不惜一战」捍衞南海主权和领土完整。南部战区已进入一级戒备，南海舰队、火箭军和空军已进入战前状态。[围观][围观][围观]<br><img src="http://ww2.sinaimg.cn/large/006vBqN8gw1f5qf9wtdxuj30i20a5jt0.jpg"></p>
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
@@ -124,18 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3996112896073640" target="freeweibo-mirror">//@微言_微语22://@歸來再戰://@槍挑六合://@…</a>
 </h2>
 <p>//@微言_微语22://@歸來再戰://@槍挑六合://@戎绒日记://@冷雪残颜: 转发微博<br><br>RE: 所谓新闻全部都是造假，死了千余人，新闻报道死亡2人，根本不是天灾，就是人祸，水库承包给鱼塘，舍不得放水，等到台风当天，实在受不住了，几个水库一起放，雨下的并不大，往年下的更大更久的一点事都没有，这样的政府，这样的新闻，能信吗，能看吗？<br><img src="http://ww3.sinaimg.cn/large/9e253baagw1f5ppv4cbvpj20hs0qojt6.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3996110894382952" target="freeweibo-mirror">赞@张鸣[哈哈] //@徐幸起:[晕] //@耋耋翁:政策和…</a>
-</h2>
-<p>赞@张鸣[哈哈] //@徐幸起:[晕] //@耋耋翁:政策和策略是党的生命，各级领导同志务必充分注意，万万不可粗心大意。<br><br>RE: 不看不知道，一看吓一跳！<br><img src="http://ww2.sinaimg.cn/large/006h4JwXgw1f5p7rywhndj30dc0aat9i.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3996109817157125" target="freeweibo-mirror">[晕] //@耋耋翁:政策和策略是党的生命，各级领导同志务必…</a>
-</h2>
-<p>[晕] //@耋耋翁:政策和策略是党的生命，各级领导同志务必充分注意，万万不可粗心大意。<br><br>RE: 不看不知道，一看吓一跳！<br><img src="http://ww2.sinaimg.cn/large/006h4JwXgw1f5p7rywhndj30dc0aat9i.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
