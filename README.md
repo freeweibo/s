@@ -29,13 +29,13 @@
 </h2>
 <p>//@18前: //@秋风不见倒春寒: 转发微博<br><br>RE: 浙江一乡长被村民泼汽油点火[汗] http://t.cn/R5D9vMK .</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3996364256521523" target="freeweibo-mirror">SPAM 能真正重視民生民主民權的政府才是好政府。靠強拆強占…</a>
 </h2>
 <p>SPAM 能真正重視民生民主民權的政府才是好政府。靠強拆強占、血腥鎮壓、破壞生態環境、網絡禁言刪貼封號抓人維穩出來的正腐是太平天國。//@交晌乐:焦点访谈……</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3996361747152464" target="freeweibo-mirror">[笑cry]//@陈业文新大都: [笑cry][笑cry][…</a>
 </h2>
@@ -83,7 +83,7 @@
 </h2>
 <p>浙江一乡长被村民泼汽油点火[汗] http://t.cn/R5D9vMK .</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3996347810257752" target="freeweibo-mirror">SPAM #郁言詼語#某個地方 你跟它說真話 它說你違規 你…</a>
 </h2>
@@ -113,7 +113,7 @@
 </h2>
 <p>五毛机，感觉好高级，看来五毛要失业了//@孙戡:服 //@老刘在德克萨斯:神州人民交点税，除了要养官吏及其全家外，还要养五毛跟五毛机。这个是前无古人，可能也后无来者。//@麻黑浮云: 哈哈<br><br>RE: 机器人五毛军团现身！一个只发了1条微博的账号，这一条内容是“这条微博只是用来测试的”，却引起一大群账号转发评论上千，全部微博1级会员，粉丝很少，发言不多，全部是正能量拥护国家的发言。未免被删，留图存证。原微博地址http://t.cn/R5DhWeY 还有谁敢说五毛不存在的吗？机器人军团都来了<br><img src="http://ww3.sinaimg.cn/large/d60724d4jw1f5q9zl5nfsj20mi0exn1j.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3996332735352199" target="freeweibo-mirror">回复@菜鸟-Asir:把菲律宾那艘霸占我们岛礁的破船扔出去。…</a>
 </h2>
