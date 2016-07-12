@@ -19,6 +19,18 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3996367167324363" target="freeweibo-mirror">SPAM //@铁哥日记718: 看不到！能再发一次吗？//…</a>
+</h2>
+<p>SPAM //@铁哥日记718: 看不到！能再发一次吗？//@雷公旗: 删了！可惜没看到//@鱼儿闲谈: 以后必须凭乡长开证明才能买汽油//@深红老王:汽油价格还得涨些 //@博浪沙-A:[赞]//@大道圣人15:[嘻嘻]//@鱼儿闲谈: //@私享A家:[鼓掌][鼓掌]<br><br>RE: 浙江一乡长被村民泼汽油点火[汗] http://t.cn/R5D9vMK .</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3996358249871044" target="freeweibo-mirror">SPAM 全球共庆！7月11-17日，亚马逊全球“超级会员日…</a>
+</h2>
+<p>SPAM 全球共庆！7月11-17日，亚马逊全球“超级会员日”盛大开抢，亚马逊中国“全球狂欢盛典”也同期开启，让中国消费者不仅能享全球同步特惠，还独获本地叠加福利。国际大牌、数码潮品，尽在亚马逊“海外购”！购物攻略详见“亚马逊新播报”公众号今日推送，亚马逊镇店之宝还有更多惊喜！@亚马逊  ...全文： http://m.weibo.cn/1837948162/3996358249871044<br><img src="http://ww2.sinaimg.cn/large/6d8cdd02gw1f5qw8tskh3j215o0b4gq0.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3996357327351154" target="freeweibo-mirror">SPAM 这是来搞笑的吗[笑cry]</a>
 </h2>
 <p>SPAM 这是来搞笑的吗[笑cry]</p>
@@ -65,7 +77,7 @@
 </h2>
 <p>SPAM //@京城探花:[吃惊][吃惊]</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3996327556233879" target="freeweibo-mirror">//@彭园v: //@北京韩非子:打仗的话我会不会死我不知道…</a>
 </h2>
@@ -126,18 +138,6 @@
 <p>快讯：：中央军委主席习近平已向军方发出「准备作战」的命令，要求军队「不惜一战」捍衞南海主权和领土完整。南部战区已进入一级戒备，南海舰队、火箭军和空军已进入战前状态。[围观][围观][围观]<br><img src="http://ww2.sinaimg.cn/large/006vBqN8gw1f5qf9wtdxuj30i20a5jt0.jpg"></p>
 <p>
 	<small> ============== 11小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3996196265302779" target="freeweibo-mirror">自古以來就有「先下手為強」的說法，解放軍吶，十三億人民就等你…</a>
-</h2>
-<p>自古以來就有「先下手為強」的說法，解放軍吶，十三億人民就等你們對「美帝國主義」開第一炮，那樣大家得解放，你們得解脫。<br><img src="http://ww3.sinaimg.cn/large/006uyHVggw1f5qdv6j985j30pc0od0wa.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3996188972258053" target="freeweibo-mirror">这是典型的卖国贼言论！[吐][草泥马]//@信仰的力量61:…</a>
-</h2>
-<p>这是典型的卖国贼言论！[吐][草泥马]//@信仰的力量61: //@锤镰子弟: 别说12国，抗美援朝与22个国家开战不是也打赢了吗？现在是新中国，你以为还是满清吗？//@默默无语不是罪:哪里出问题了？//@文韬武略辛弃疾:讽刺的是这些人却是官老爷座上宾//@默默无语不是罪:是的 慌不择食<br><br>RE: 向十一国宣战，相信义和团无坚不摧，这是某些人真能干出来的事。</p>
-<p>
-	<small> ============== 1天前</small>
 </p>
 <table>
     <tr>
