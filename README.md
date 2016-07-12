@@ -59,7 +59,7 @@
 </h2>
 <p>//@干卫东律师:造谣吧？//@冯师长:打苍蝇！<br><br>RE: 快讯：：中央军委主席习近平已向军方发出「准备作战」的命令，要求军队「不惜一战」捍衞南海主权和领土完整。南部战区已进入一级戒备，南海舰队、火箭军和空军已进入战前状态。[围观][围观][围观]<br><img src="http://ww2.sinaimg.cn/large/006vBqN8gw1f5qf9wtdxuj30i20a5jt0.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3996265778249906" target="freeweibo-mirror">SPAM 【Darmvital 99%高纯度芦荟胶 200m…</a>
 </h2>
