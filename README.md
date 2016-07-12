@@ -77,7 +77,7 @@
 </h2>
 <p>刚和一位有军方背景的朋友聊天，谈起南海局势，对美帝迟早要打 ，早打比晚打好，打掉美国，我们不畏惧战争！ 现在要考虑的问题是： 一、战场是选在横店还是中山影视城？ 二、战役组织的任务到底交给八一厂还是华谊兄弟？ 三、前线指挥选冯小刚还是张艺谋？ 四、攻坚还用不用黄海波？<br><img src="http://ww3.sinaimg.cn/large/55555cb3gw1f5r7hs5welj20dw0gowhf.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3996447546585949" target="freeweibo-mirror">[挖鼻]唐伯桥算哪门子民运人士？——他只是条忠实的狗，是江湖…</a>
 </h2>
@@ -95,7 +95,7 @@
 </h2>
 <p>中國海外民運人士預言紙老虎去日無多<br><img src="http://ww3.sinaimg.cn/large/005VVZj9gw1f5r5q3meilj30k00p742x.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3996437588794403" target="freeweibo-mirror">//@高春辉:→_→//@刘军宁:[话筒]</a>
 </h2>
