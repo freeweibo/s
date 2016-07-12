@@ -25,6 +25,30 @@
 <p>
 	<small> ============== 1小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3996323746824778" target="freeweibo-mirror">//@审计师理查德: 发枪吧，我们都去～//@张宏杰:转发微…</a>
+</h2>
+<p>//@审计师理查德: 发枪吧，我们都去～//@张宏杰:转发微博<br><br>RE: 快讯：：中央军委主席习近平已向军方发出「准备作战」的命令，要求军队「不惜一战」捍衞南海主权和领土完整。南部战区已进入一级戒备，南海舰队、火箭军和空军已进入战前状态。[围观][围观][围观]<br><img src="http://ww2.sinaimg.cn/large/006vBqN8gw1f5qf9wtdxuj30i20a5jt0.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3996319766283509" target="freeweibo-mirror">不要慌，按既定方针办！西方列强的指责暴露了他们的野心！反正我…</a>
+</h2>
+<p>不要慌，按既定方针办！西方列强的指责暴露了他们的野心！反正我们已经崛起了！如果美国为首的西方各国干扰我们南海利益，进攻是最好的防守，我们可以退出国联，然后主动出击，派出王毅将军率领的航母舰队偷袭珍珠港！<br><br>RE: 快讯：：中央军委主席习近平已向军方发出「准备作战」的命令，要求军队「不惜一战」捍衞南海主权和领土完整。南部战区已进入一级戒备，南海舰队、火箭军和空军已进入战前状态。[围观][围观][围观]<br><img src="http://ww2.sinaimg.cn/large/006vBqN8gw1f5qf9wtdxuj30i20a5jt0.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3996301065059061" target="freeweibo-mirror">和谁战？海牙国际法庭？//@戎绒日记: //@东方夜鹰000…</a>
+</h2>
+<p>和谁战？海牙国际法庭？//@戎绒日记: //@东方夜鹰0009: 准备打哈欠！[哈欠]<br><br>RE: 快讯：：中央军委主席习近平已向军方发出「准备作战」的命令，要求军队「不惜一战」捍衞南海主权和领土完整。南部战区已进入一级戒备，南海舰队、火箭军和空军已进入战前状态。[围观][围观][围观]<br><img src="http://ww2.sinaimg.cn/large/006vBqN8gw1f5qf9wtdxuj30i20a5jt0.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3996288318459174" target="freeweibo-mirror">//@干卫东律师:造谣吧？//@冯师长:打苍蝇！</a>
+</h2>
+<p>//@干卫东律师:造谣吧？//@冯师长:打苍蝇！<br><br>RE: 快讯：：中央军委主席习近平已向军方发出「准备作战」的命令，要求军队「不惜一战」捍衞南海主权和领土完整。南部战区已进入一级戒备，南海舰队、火箭军和空军已进入战前状态。[围观][围观][围观]<br><img src="http://ww2.sinaimg.cn/large/006vBqN8gw1f5qf9wtdxuj30i20a5jt0.jpg"></p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3996265778249906" target="freeweibo-mirror">SPAM 【Darmvital 99%高纯度芦荟胶 200m…</a>
 </h2>
 <p>SPAM 【Darmvital 99%高纯度芦荟胶 200ml, EUR 9,95 】万能护肤品，居家常备，出差、旅游建议也应随身携带一支高纯度芦荟胶，对皮肤滋润、恢复效果显，著好处作用多多，：因皮肤干燥造成的瘙痒、起皮；过敏反应；日晒后的灼伤；蚊虫叮咬和皮疹  http://t.cn/R2jjuU3<br><img src="http://ww3.sinaimg.cn/large/74b5d787jw1f5qlw9o1r1j20pr15oju1.jpg"></p>
@@ -65,7 +89,7 @@
 </h2>
 <p>SPAM 推</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3996157291724899" target="freeweibo-mirror">向十一国宣战，相信义和团无坚不摧，这是某些人真能干出来的事。</a>
 </h2>
@@ -112,30 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3996099955490774" target="freeweibo-mirror">帮你艾特一下，打脸得让它知道@人民日报 //@憶芳顏: //…</a>
 </h2>
 <p>帮你艾特一下，打脸得让它知道@人民日报 //@憶芳顏: //@京城探花: 历史，是有记忆的。。。</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3996097385344883" target="freeweibo-mirror">人民日报，你老祖宗喊你回家看看，看看到底哪个才是中国的版图？…</a>
-</h2>
-<p>人民日报，你老祖宗喊你回家看看，看看到底哪个才是中国的版图？真是个不孝子，都做“鸡”了还能这么自豪。<br><img src="http://ww3.sinaimg.cn/large/006uAtJkgw1f5q2hl15vhj30k00zk0uw.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3996094189374658" target="freeweibo-mirror">SPAM 俗话说：冬吃萝卜，夏吃姜。姜能在夏天给人体补充足够…</a>
-</h2>
-<p>SPAM 俗话说：冬吃萝卜，夏吃姜。姜能在夏天给人体补充足够的阳气，推荐！</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3996092658483486" target="freeweibo-mirror">SPAM 工行已沦陷 //@写作昕子读铃酱:？？？？？ //…</a>
-</h2>
-<p>SPAM 工行已沦陷 //@写作昕子读铃酱:？？？？？ //@惠子累死惹:[笑cry]  //@MEGAMKAFroakie:233333我只服你们</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3996092259750413" target="freeweibo-mirror">[衰]//@tianlanmengmeng:也就是说绿教图已…</a>
-</h2>
-<p>[衰]//@tianlanmengmeng:也就是说绿教图已经在中国某些地方开始执行沙里亚法了，这很严重，绿化中华进城加快了啊。</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
