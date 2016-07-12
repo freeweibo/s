@@ -107,7 +107,7 @@
 </h2>
 <p>【2016年夏天楼市像天气：“旱的旱死，涝的涝死”】一边是一线城市和二线核心城市房价高涨、地王频出而不得不推出限购、限贷等政策，一边是广大三四线城市和部分二线城市仍存在巨大的去库存压力而不断出台去库存政策，2016年夏天的楼市，分化仍是主旋律。http://t.cn/R5DaOks<br><img src="http://ww1.sinaimg.cn/large/768ab125jw1f5quk7kh34j20hs0h4ju2.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3996335043245150" target="freeweibo-mirror">五毛机，感觉好高级，看来五毛要失业了//@孙戡:服 //@老…</a>
 </h2>
