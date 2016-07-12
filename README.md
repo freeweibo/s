@@ -29,7 +29,7 @@
 </h2>
 <p>打好打好，只要打就是中国人民的胜利！//@崇法NO7:转发微博<br><br>RE: 一些人真知道打的结果，于是喊打；一些人不知道打的结果，也喊打。[嘻嘻][嘻嘻][嘻嘻]今天这一片闹哄哄[嘻嘻][嘻嘻][嘻嘻]</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3996398221865320" target="freeweibo-mirror">SPAM 打打打[嘻嘻]</a>
 </h2>
@@ -97,6 +97,12 @@
 <p>
 	<small> ============== 4小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3996381607967525" target="freeweibo-mirror">这才是真相。</a>
+</h2>
+<p>这才是真相。<br><img src="http://ww4.sinaimg.cn/large/756ed4dfgw1f5qz6zb3xdj20fm0fgdi3.jpg"></p>
+<p>
+	<small> ============== 5小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3996375378656346" target="freeweibo-mirror">【中国曾暗中要求会见仲裁庭主席被婉拒】南中国海仲裁案去年关于…</a>
 </h2>
 <p>【中国曾暗中要求会见仲裁庭主席被婉拒】南中国海仲裁案去年关于管辖权的裁决书披露，中国曾在幕后要求会见仲裁庭首席仲裁员，但被婉拒，因单方面私下接触法官不符合司法程序。对于中国尝试在庭外影响仲裁案进程的做法，学者表示不感意外，因为中国从一开始就不承认仲裁庭具有对这起菲律宾单方面提起的...全文： http://m.weibo.cn/1654134123/3996375378656346<br><img src="http://ww2.sinaimg.cn/large/6298156bjw1f5qwfce9bxj206h060t8q.jpg"></p>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3996364256521523" target="freeweibo-mirror">SPAM 能真正重視民生民主民權的政府才是好政府。靠強拆強占…</a>
 </h2>
 <p>SPAM 能真正重視民生民主民權的政府才是好政府。靠強拆強占、血腥鎮壓、破壞生態環境、網絡禁言刪貼封號抓人維穩出來的正腐是太平天國。//@交晌乐:焦点访谈……</p>
-<p>
-	<small> ============== 6小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3996361747152464" target="freeweibo-mirror">[笑cry]//@陈业文新大都: [笑cry][笑cry][…</a>
-</h2>
-<p>[笑cry]//@陈业文新大都: [笑cry][笑cry][笑cry]博主咋不早点说呢？ //@万鲁建:坏人，又给天朝上套//@民国年间那些事: 同感!<br><br>RE: 南海问题今天将做出仲裁，中国的态度是不参与，不接受和不执行。如果国际仲裁庭有点幽默感的话，做出有利于中国的仲裁，看中国怎么回应。是不接受不执行还是欢迎做出正确裁决？真心替政府着急。</p>
 <p>
 	<small> ============== 6小时前</small>
 </p>
