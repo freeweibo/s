@@ -35,7 +35,7 @@
 </h2>
 <p>SPAM 帮一把这SB //@午后狂睡_Silent:帮转送他进去。//@吐槽鬼: 还真是一群脑瘫.@福建网警巡查执法 原博够标准进去醒悟了～//@夏尔谢夫工程师:博主造谣  http://t.cn/R5FXavE<br><br>RE: 水库无预警泄洪 闽清上千人死亡<br><img src="http://ww1.sinaimg.cn/large/6d648adagw1f5shli91u0j20hs0qojv9.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3996892629178918" target="freeweibo-mirror">还真是一群脑瘫.@福建网警巡查执法 原博够标准进去醒悟了～/…</a>
 </h2>
