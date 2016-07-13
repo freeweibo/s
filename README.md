@@ -29,7 +29,7 @@
 </h2>
 <p>//@clubcar://@路见不平的家001:[笑cry]//@一品泥人: //@星风辉辰: [笑cry][笑cry]</p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3996749662137511" target="freeweibo-mirror">【转】不希望开战的理由 A我两儿子一女儿都是美国人； B我所…</a>
 </h2>
