@@ -29,7 +29,7 @@
 </h2>
 <p>SPAM [笑cry]//@雷公旗: //@百花裁决:[笑哈哈]//@江南独钓客之圣手书生://@雪青色的冰冰:这是药丸吗[哈哈][哈哈][哈哈] //@回锅闻道:博主名字好有特色[偷笑]//@果果--015:[哈哈][哈哈][哈哈][哈哈]<br><br>RE: [笑cry]讓我笑一會<br><img src="http://ww4.sinaimg.cn/large/006uAyx6gw1f5rk080yxdj30o40xcjv4.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3996706133391299" target="freeweibo-mirror">回复@轩是停车坐爱枫林晚的轩:1927年才参加革命，那时候还…</a>
 </h2>
