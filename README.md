@@ -53,7 +53,7 @@
 </h2>
 <p>有哪些平价又好喝的饮料推荐？喜欢的看这里[doge]（文末有福利哦）<br><img src="http://ww4.sinaimg.cn/large/005zgTSzgw1f5rgp7g3mmj30ku112gt1.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3996528101728639" target="freeweibo-mirror">哈哈哈[笑cry] //@陈禹TONY_MS:是的 //@清…</a>
 </h2>
