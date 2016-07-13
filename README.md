@@ -89,7 +89,7 @@
 </h2>
 <p>SPAM 马蛋 //@喷嚏网铂程://@响马: 哈哈哈哈哈哈哈哈哈哈 //@Zodzod_张浩: 总有刁民...//@简直: [笑cry]<br><br>RE: 以前我真不知道什么叫做拍马屁拍到马腿上，今儿个见到活的了。不过这哥们更惨，他这记马屁拍到马蛋上了……<br><img src="http://ww1.sinaimg.cn/large/631692f3jw1f5sge0h3mrj20jz0zkq74.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3996855312137881" target="freeweibo-mirror">水库无预警泄洪 闽清上千人死亡</a>
 </h2>
