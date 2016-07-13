@@ -35,7 +35,7 @@
 </h2>
 <p>【转】不希望开战的理由 A我两儿子一女儿都是美国人； B我所有资产已转移美国； C美国借12000亿美金怎么还？ D军队都去前线打仗，谁来维稳？ E看不到《权利的游戏》第七季； F苹果手机和电脑售后服务怎么办？ G打赢占领美国，美国人人带枪，不好收税； H打输美国占领我们，肯定搞民选，我他妈的肯定选...全文： http://m.weibo.cn/5948385943/3996749662137511<br><img src="http://ww2.sinaimg.cn/large/006uyOULgw1f5s5gt07raj30go0go3zb.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3996717831423980" target="freeweibo-mirror">[哈哈]//@肖75雪慧: [偷笑][偷笑]//@风霾之歌1…</a>
 </h2>
@@ -71,7 +71,7 @@
 </h2>
 <p>SPAM //@张学军://@布小什大师:技术贴，无脑粉红喷之前应该先补补课。</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3996695055882604" target="freeweibo-mirror">SPAM 终于看到一条说对了的</a>
 </h2>
