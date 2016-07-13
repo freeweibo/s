@@ -59,7 +59,7 @@
 </h2>
 <p>SPAM 终于看到一条说对了的</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3996689482592689" target="freeweibo-mirror">[笑哈哈]//@玉吅:[good] //@竹盦先生:[哈哈]…</a>
 </h2>
@@ -71,7 +71,7 @@
 </h2>
 <p>SPAM 我现在的一个舍友，有天在阳台洗手池用牙刷刷脚！我刚巧走过去洗手看见，她直接摔牙刷对我骂“草你马”。我说，那你来草呗。我就纳闷了，拿牙刷刷脚还怕人看了。</p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3996562823033965" target="freeweibo-mirror">[笑cry]讓我笑一會</a>
 </h2>
