@@ -47,13 +47,13 @@
 </h2>
 <p>//@华富婧: 你们再怎么折腾也不许将中华民国的旗号给弄没有了！我们还指望着她收复根本就没有经过仲裁就疯送的领土！谁在嚷嚷九段线谁就是汉奸卖国贼！只要中华民国在就是十一段线！城门楼上一声嘶喊，将做了300年亡国奴换来的疆土葬送了多多少少！看图说话是惨不忍睹啊！胡闹到几时！@立场H旁观:子曰:</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3996862094343337" target="freeweibo-mirror">SPAM 马蛋 //@喷嚏网铂程://@响马: 哈哈哈哈哈哈…</a>
 </h2>
 <p>SPAM 马蛋 //@喷嚏网铂程://@响马: 哈哈哈哈哈哈哈哈哈哈 //@Zodzod_张浩: 总有刁民...//@简直: [笑cry]<br><br>RE: 以前我真不知道什么叫做拍马屁拍到马腿上，今儿个见到活的了。不过这哥们更惨，他这记马屁拍到马蛋上了……<br><img src="http://ww1.sinaimg.cn/large/631692f3jw1f5sge0h3mrj20jz0zkq74.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3996845602146000" target="freeweibo-mirror">SPAM 哈哈哈哈哈哈哈哈</a>
 </h2>
@@ -90,6 +90,12 @@
 <p>//@clubcar://@路见不平的家001:[笑cry]//@一品泥人: //@星风辉辰: [笑cry][笑cry]</p>
 <p>
 	<small> ============== 9小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3996765755873059" target="freeweibo-mirror">蔡英文下令巡航南海，并乘军舰到南海宣示维护国家主权。巾帼不让…</a>
+</h2>
+<p>蔡英文下令巡航南海，并乘军舰到南海宣示维护国家主权。巾帼不让须眉，有种！[赞]<br><img src="http://ww3.sinaimg.cn/large/6a83dd8egw1f5s7ammf9ej20k00zktd0.jpg"></p>
+<p>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3996749662137511" target="freeweibo-mirror">【转】不希望开战的理由 A我两儿子一女儿都是美国人； B我所…</a>
 </h2>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3996696667236785" target="freeweibo-mirror">SPAM //@张学军://@布小什大师:技术贴，无脑粉红喷…</a>
 </h2>
 <p>SPAM //@张学军://@布小什大师:技术贴，无脑粉红喷之前应该先补补课。</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3996695055882604" target="freeweibo-mirror">SPAM 终于看到一条说对了的</a>
-</h2>
-<p>SPAM 终于看到一条说对了的</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
