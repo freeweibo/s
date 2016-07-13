@@ -67,6 +67,12 @@
 <p>
 	<small> ============== 4小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3996855312137881" target="freeweibo-mirror">水库无预警泄洪 闽清上千人死亡</a>
+</h2>
+<p>水库无预警泄洪 闽清上千人死亡<br><img src="http://ww1.sinaimg.cn/large/6d648adagw1f5shli91u0j20hs0qojv9.jpg"></p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3996845602146000" target="freeweibo-mirror">SPAM 哈哈哈哈哈哈哈哈</a>
 </h2>
 <p>SPAM 哈哈哈哈哈哈哈哈<br><br>RE: 以前我真不知道什么叫做拍马屁拍到马腿上，今儿个见到活的了。不过这哥们更惨，他这记马屁拍到马蛋上了……<br><img src="http://ww1.sinaimg.cn/large/631692f3jw1f5sge0h3mrj20jz0zkq74.jpg"></p>
@@ -83,7 +89,7 @@
 </h2>
 <p>【谁在对中华民族犯罪】南海仲裁。有人却在大力宣扬中国固有9段线的理论。中华民国还在吧，老子没死，儿子就想继承遗产了？中国有继承中华民国11段线的资格吗？再说，中华民国拥有确凿的11段线历史继承依据。宣扬九段线，抹灭中华民国，实际是自毁中华民族在南海11段线的疆域权利。对民族罪大恶极！！<br><img src="http://ww2.sinaimg.cn/large/006s92IVjw1f5sffnd4anj30c80fmaam.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3996813059429126" target="freeweibo-mirror">SPAM #爱在初生前#母爱与生俱来，而父爱需要后天勤加培养…</a>
 </h2>
@@ -95,7 +101,7 @@
 </h2>
 <p>上课发现班花帮同桌打灰机…<br><img src="http://ww2.sinaimg.cn/large/005I2vnbjw1f5s8gn2qpuj30b23xu1ky.jpg"></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3996771926019364" target="freeweibo-mirror">//@clubcar://@路见不平的家001:[笑cry]…</a>
 </h2>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3996706133391299" target="freeweibo-mirror">回复@轩是停车坐爱枫林晚的轩:1927年才参加革命，那时候还…</a>
 </h2>
 <p>回复@轩是停车坐爱枫林晚的轩:1927年才参加革命，那时候还在穿草鞋。//@轩是停车坐爱枫林晚的轩:科大……你什么年纪……我还以为你三十多，但是看你说胶底鞋解放鞋……感觉你快五十。//@科罗廖夫:后来总结主要是在水泥地上打球的缘故//@北京厨子新号:回力其实也是很牛逼的。就是不耐洗。</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3996705210353922" target="freeweibo-mirror">好段子：仲裁结果一出来，中国政府忙着军演，菲律宾人民忙着游行…</a>
-</h2>
-<p>好段子：仲裁结果一出来，中国政府忙着军演，菲律宾人民忙着游行。因为菲律宾政府没法军演，而中国人民没法游行～真是各有各的难处。<br><img src="http://ww1.sinaimg.cn/large/006wj5Dejw1f5s0d3vnunj30eg0ji3zi.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
