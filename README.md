@@ -83,7 +83,7 @@
 </h2>
 <p>帮帮乌坎。<br><img src="http://ww1.sinaimg.cn/large/9c6df861gw1f5sixot8quj20qo0zin36.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3996862094343337" target="freeweibo-mirror">SPAM 马蛋 //@喷嚏网铂程://@响马: 哈哈哈哈哈哈…</a>
 </h2>
