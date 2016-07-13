@@ -35,7 +35,7 @@
 </h2>
 <p>SPAM （想获取视频中的音乐，来 wei .[心] 找我吧 记住，sdimusic，sdimusic，曲包在那等着你... ）</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3996882760192115" target="freeweibo-mirror">SPAM //@徐昕:[赞]//@星槎泛海://@丰佐先生:…</a>
 </h2>
@@ -71,7 +71,7 @@
 </h2>
 <p>水库无预警泄洪 闽清上千人死亡<br><img src="http://ww1.sinaimg.cn/large/6d648adagw1f5shli91u0j20hs0qojv9.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3996845602146000" target="freeweibo-mirror">SPAM 哈哈哈哈哈哈哈哈</a>
 </h2>
@@ -119,7 +119,7 @@
 </h2>
 <p>【转】不希望开战的理由 A我两儿子一女儿都是美国人； B我所有资产已转移美国； C美国借12000亿美金怎么还？ D军队都去前线打仗，谁来维稳？ E看不到《权利的游戏》第七季； F苹果手机和电脑售后服务怎么办？ G打赢占领美国，美国人人带枪，不好收税； H打输美国占领我们，肯定搞民选，我他妈的肯定选...全文： http://m.weibo.cn/5948385943/3996749662137511<br><img src="http://ww2.sinaimg.cn/large/006uyOULgw1f5s5gt07raj30go0go3zb.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3996717831423980" target="freeweibo-mirror">[哈哈]//@肖75雪慧: [偷笑][偷笑]//@风霾之歌1…</a>
 </h2>
