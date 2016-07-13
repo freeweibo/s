@@ -53,7 +53,7 @@
 </h2>
 <p>SPAM （想获取视频中的音乐，来 wei .[心] 找我吧 记住，sdimusic，sdimusic，曲包在那等着你... ）</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3996882760192115" target="freeweibo-mirror">SPAM //@徐昕:[赞]//@星槎泛海://@丰佐先生:…</a>
 </h2>
@@ -95,7 +95,7 @@
 </h2>
 <p>水库无预警泄洪 闽清上千人死亡<br><img src="http://ww1.sinaimg.cn/large/6d648adagw1f5shli91u0j20hs0qojv9.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3996845602146000" target="freeweibo-mirror">SPAM 哈哈哈哈哈哈哈哈</a>
 </h2>
@@ -131,7 +131,7 @@
 </h2>
 <p>//@clubcar://@路见不平的家001:[笑cry]//@一品泥人: //@星风辉辰: [笑cry][笑cry]</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3996765755873059" target="freeweibo-mirror">蔡英文下令巡航南海，并乘军舰到南海宣示维护国家主权。巾帼不让…</a>
 </h2>
