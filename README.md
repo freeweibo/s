@@ -59,7 +59,7 @@
 </h2>
 <p>SPAM 终于看到一条说对了的</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3996689482592689" target="freeweibo-mirror">[笑哈哈]//@玉吅:[good] //@竹盦先生:[哈哈]…</a>
 </h2>
