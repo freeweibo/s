@@ -73,6 +73,12 @@
 <p>
 	<small> ============== 4小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3996866931251952" target="freeweibo-mirror">帮帮乌坎。</a>
+</h2>
+<p>帮帮乌坎。<br><img src="http://ww1.sinaimg.cn/large/9c6df861gw1f5sixot8quj20qo0zin36.jpg"></p>
+<p>
+	<small> ============== 5小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3996862094343337" target="freeweibo-mirror">SPAM 马蛋 //@喷嚏网铂程://@响马: 哈哈哈哈哈哈…</a>
 </h2>
 <p>SPAM 马蛋 //@喷嚏网铂程://@响马: 哈哈哈哈哈哈哈哈哈哈 //@Zodzod_张浩: 总有刁民...//@简直: [笑cry]<br><br>RE: 以前我真不知道什么叫做拍马屁拍到马腿上，今儿个见到活的了。不过这哥们更惨，他这记马屁拍到马蛋上了……<br><img src="http://ww1.sinaimg.cn/large/631692f3jw1f5sge0h3mrj20jz0zkq74.jpg"></p>
@@ -101,7 +107,7 @@
 </h2>
 <p>【谁在对中华民族犯罪】南海仲裁。有人却在大力宣扬中国固有9段线的理论。中华民国还在吧，老子没死，儿子就想继承遗产了？中国有继承中华民国11段线的资格吗？再说，中华民国拥有确凿的11段线历史继承依据。宣扬九段线，抹灭中华民国，实际是自毁中华民族在南海11段线的疆域权利。对民族罪大恶极！！<br><img src="http://ww2.sinaimg.cn/large/006s92IVjw1f5sffnd4anj30c80fmaam.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3996813059429126" target="freeweibo-mirror">SPAM #爱在初生前#母爱与生俱来，而父爱需要后天勤加培养…</a>
 </h2>
@@ -113,7 +119,7 @@
 </h2>
 <p>上课发现班花帮同桌打灰机…<br><img src="http://ww2.sinaimg.cn/large/005I2vnbjw1f5s8gn2qpuj30b23xu1ky.jpg"></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3996771926019364" target="freeweibo-mirror">//@clubcar://@路见不平的家001:[笑cry]…</a>
 </h2>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3996749662137511" target="freeweibo-mirror">【转】不希望开战的理由 A我两儿子一女儿都是美国人； B我所…</a>
 </h2>
 <p>【转】不希望开战的理由 A我两儿子一女儿都是美国人； B我所有资产已转移美国； C美国借12000亿美金怎么还？ D军队都去前线打仗，谁来维稳？ E看不到《权利的游戏》第七季； F苹果手机和电脑售后服务怎么办？ G打赢占领美国，美国人人带枪，不好收税； H打输美国占领我们，肯定搞民选，我他妈的肯定选...全文： http://m.weibo.cn/5948385943/3996749662137511<br><img src="http://ww2.sinaimg.cn/large/006uyOULgw1f5s5gt07raj30go0go3zb.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3996717831423980" target="freeweibo-mirror">[哈哈]//@肖75雪慧: [偷笑][偷笑]//@风霾之歌1…</a>
-</h2>
-<p>[哈哈]//@肖75雪慧: [偷笑][偷笑]//@风霾之歌181: //@海龙-31://@活着煎熬一12: 转发微博<br><br>RE: 好段子：仲裁结果一出来，中国政府忙着军演，菲律宾人民忙着游行。因为菲律宾政府没法军演，而中国人民没法游行～真是各有各的难处。<br><img src="http://ww1.sinaimg.cn/large/006wj5Dejw1f5s0d3vnunj30eg0ji3zi.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
