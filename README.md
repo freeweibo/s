@@ -23,7 +23,7 @@
 </h2>
 <p>//@clubcar://@路见不平的家001:[笑cry]//@一品泥人: //@星风辉辰: [笑cry][笑cry]</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3996749662137511" target="freeweibo-mirror">【转】不希望开战的理由 A我两儿子一女儿都是美国人； B我所…</a>
 </h2>
@@ -65,7 +65,7 @@
 </h2>
 <p>SPAM //@张学军://@布小什大师:技术贴，无脑粉红喷之前应该先补补课。</p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3996695055882604" target="freeweibo-mirror">SPAM 终于看到一条说对了的</a>
 </h2>
