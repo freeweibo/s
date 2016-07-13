@@ -29,7 +29,7 @@
 </h2>
 <p>SPAM //@寞寂寂寞: //@IB林立人: //@WK浩:24天了<br><br>RE: 帮帮乌坎。<br><img src="http://ww1.sinaimg.cn/large/9c6df861gw1f5sixot8quj20qo0zin36.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3996894336264788" target="freeweibo-mirror">SPAM 帮一把这SB //@午后狂睡_Silent:帮转送…</a>
 </h2>
@@ -47,7 +47,7 @@
 </h2>
 <p>SPAM //@木兰花慢慢3: 同问 //@郭55于-华-清华:真相在哪？//@-蓝色-心情: //@岳阳楼新主人:天灾、人祸的N次方。//@李保毅1: //@人命日報努力講真話:<br><br>RE: 水库无预警泄洪 闽清上千人死亡<br><img src="http://ww1.sinaimg.cn/large/6d648adagw1f5shli91u0j20hs0qojv9.jpg"></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3996886023751448" target="freeweibo-mirror">SPAM （想获取视频中的音乐，来 wei .[心] 找我吧…</a>
 </h2>
