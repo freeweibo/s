@@ -125,7 +125,7 @@
 </h2>
 <p>上课发现班花帮同桌打灰机…<br><img src="http://ww2.sinaimg.cn/large/005I2vnbjw1f5s8gn2qpuj30b23xu1ky.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3996771926019364" target="freeweibo-mirror">//@clubcar://@路见不平的家001:[笑cry]…</a>
 </h2>
