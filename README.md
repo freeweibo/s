@@ -41,7 +41,7 @@
 </h2>
 <p>[哈哈]//@肖75雪慧: [偷笑][偷笑]//@风霾之歌181: //@海龙-31://@活着煎熬一12: 转发微博<br><br>RE: 好段子：仲裁结果一出来，中国政府忙着军演，菲律宾人民忙着游行。因为菲律宾政府没法军演，而中国人民没法游行～真是各有各的难处。<br><img src="http://ww1.sinaimg.cn/large/006wj5Dejw1f5s0d3vnunj30eg0ji3zi.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3996716124107275" target="freeweibo-mirror">SPAM [笑cry]//@雷公旗: //@百花裁决:[笑哈…</a>
 </h2>
