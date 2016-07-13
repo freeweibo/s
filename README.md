@@ -35,7 +35,7 @@
 </h2>
 <p>//@未得糊涂: //@九钻女王: //@知行合一童: 转发微博<br><br>RE: 狂热的爱国主义又迎来一次高潮.国内的矛盾视线又被成功转移。叫嚣战争的口号一浪高过一浪.党媒更是开足马力。看下图绝对不敢开战，即使开战也得等二手辽宁号打鱼归来.<br><img src="http://ww1.sinaimg.cn/large/006wjydejw1f5rgkmruxij30fq0m8dhy.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3996549719224551" target="freeweibo-mirror">//@公民王海滨://@长风破浪138: //@涅磐的自由:…</a>
 </h2>
@@ -109,6 +109,12 @@
 <p>
 	<small> ============== 1天前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3996496515560769" target="freeweibo-mirror">不希望开战的理由 A我两儿子一女儿都是美国人； B我所有资产…</a>
+</h2>
+<p>不希望开战的理由 A我两儿子一女儿都是美国人； B我所有资产已转移美国； C美国借12000亿美金怎么还？ D军队都去前线打仗，谁来维稳？ E看不到《权利的游戏》第七季； F苹果手机和电脑售后服务怎么办？ G打赢占领美国，美国人人带枪，不好收税； H打输美国占领我们，肯定搞民选，我他妈的肯定选不上；</p>
+<p>
+	<small> ============== 1天前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3996493624568774" target="freeweibo-mirror">「现在九段线被否了，当初从民国继承了11段线，为了意识形态，…</a>
 </h2>
 <p>「现在九段线被否了，当初从民国继承了11段线，为了意识形态，把两段抹了，把北部湾海域和岛屿送给越南，变成9段线，征求过人民的意见吗？或者有一个民选的议会立法、监督、参与决策吗？有自由的媒体容许讨论民意、民生、民权吗？国不知有民，民何苦有国？」<br><img src="http://ww2.sinaimg.cn/large/7c0e9549gw1f5rc2a07fej20qo19gaog.jpg"></p>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3996490286943984" target="freeweibo-mirror">SPAM 这智商容我笑一会</a>
 </h2>
 <p>SPAM 这智商容我笑一会</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3996489598544630" target="freeweibo-mirror">没错就是这样//@PCYeol1127: 没错[doge] …</a>
-</h2>
-<p>没错就是这样//@PCYeol1127: 没错[doge] //@仪仪仪仪仪iii:[哈哈] //@可以的话不想醒:[可爱] //@-choiii-:[微笑][微笑][微笑]<br><br>RE: 南海仲裁这个事我觉得大家还是得理性一点看待，你是一个中国人你当然认为南海是中国的，但如果你是一个菲律宾人，你不就是一个傻逼吗？[微笑]</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
