@@ -131,7 +131,7 @@
 </h2>
 <p>蔡英文下令巡航南海，并乘军舰到南海宣示维护国家主权。巾帼不让须眉，有种！[赞]<br><img src="http://ww3.sinaimg.cn/large/6a83dd8egw1f5s7ammf9ej20k00zktd0.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3996749662137511" target="freeweibo-mirror">【转】不希望开战的理由 A我两儿子一女儿都是美国人； B我所…</a>
 </h2>
