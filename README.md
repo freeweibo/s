@@ -61,6 +61,12 @@
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3997166030920319" target="freeweibo-mirror">SPAM 第一次见到号召网民抵制自己的，[嘻嘻] //@艾晓…</a>
+</h2>
+<p>SPAM 第一次见到号召网民抵制自己的，[嘻嘻] //@艾晓光1970:  http://t.cn/R5sXmu0<br><br>RE: 看到一句话，觉得有点道理。抵制什么货都不如抵制蠢货来得迫切。</p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3997159600578591" target="freeweibo-mirror">SPAM 估计厨子跟美国公司的供货有特殊交情，要么一起睡过，…</a>
 </h2>
 <p>SPAM 估计厨子跟美国公司的供货有特殊交情，要么一起睡过，要么被睡过//@不是结结结结巴:不光土拨鼠，看看airJordan//@科罗廖夫:为什么同样的土拨鼠你那卖的比京东还便宜，美国人给的回扣不一样嘛。</p>
@@ -119,7 +125,7 @@
 </h2>
 <p>和爱国青年，讲几个常识。<br><img src="http://ww1.sinaimg.cn/large/5d098bccjw1f5t61rlragj20yib1g1kz.jpg"></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3997059315170325" target="freeweibo-mirror">中国是不仅是常设仲裁庭的普通成员国，还是Host Count…</a>
 </h2>
@@ -132,12 +138,6 @@
 <p>SPAM 是不是真的啊</p>
 <p>
 	<small> ============== 10小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3997052218316348" target="freeweibo-mirror">SPAM 南海诸岛才是中国的，南海太大了。</a>
-</h2>
-<p>SPAM 南海诸岛才是中国的，南海太大了。</p>
-<p>
-	<small> ============== 11小时前</small>
 </p>
 <table>
     <tr>
