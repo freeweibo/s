@@ -35,7 +35,7 @@
 </h2>
 <p>//@王海: //@Ming_the_Great_大明: 去智化教育要的就是排除常識<br><br>RE: 和爱国青年，讲几个常识。<br><img src="http://ww1.sinaimg.cn/large/5d098bccjw1f5t61rlragj20yib1g1kz.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3997131939367237" target="freeweibo-mirror">//@麻毛雄://@Ming_the_Great_大明: 去…</a>
 </h2>
@@ -47,7 +47,7 @@
 </h2>
 <p>//@治愈芯話:转发微博</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3997104001448652" target="freeweibo-mirror">SPAM 为什么同样的土拨鼠你那卖的比京东还便宜，美国人给的…</a>
 </h2>
@@ -113,13 +113,13 @@
 </h2>
 <p>中国有一群人渣，在他们眼里：割让领土的不是恶人，贪污受贿的不是恶人，转移财产不是恶人，强拆民宅不是恶人，欺压农民不是恶人，滥杀无辜不是恶人，污染环境不是恶人，枪击百姓不是恶人。但是，当你批评这个滋生了无数丑恶的zf的时候，你却成了恶人，被骂为反动势力、破坏国家安定。</p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3997031850464988" target="freeweibo-mirror">SPAM //@喷嚏网铂程: 转发微博</a>
 </h2>
 <p>SPAM //@喷嚏网铂程: 转发微博</p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3996948157642536" target="freeweibo-mirror">一天放学回家，我亲眼看见妹妹被姨父压在身下，我气急了，拿起刀…</a>
 </h2>
