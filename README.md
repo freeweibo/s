@@ -59,7 +59,7 @@
 </h2>
 <p>和爱国青年，讲几个常识。<br><img src="http://ww1.sinaimg.cn/large/5d098bccjw1f5t61rlragj20yib1g1kz.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3997059315170325" target="freeweibo-mirror">中国是不仅是常设仲裁庭的普通成员国，还是Host Count…</a>
 </h2>
