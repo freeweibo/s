@@ -53,13 +53,13 @@
 </h2>
 <p>【闽清最新灾情统计：死亡60人，损失52.3亿元】受#第一号台风尼伯特# 影响，截至7月14日18时，这次特大洪灾已造成60人死亡，其中确认身份52人、未确认身份8人。由于灾区道路、通信、电力中断，地形复杂，堆积物多，给人员搜救和身份核实工作带来极大困难。目前，各受灾乡镇仍在继续排查是否还有失踪人...全文： http://m.weibo.cn/1658388624/3997285367379666<br><img src="http://ww3.sinaimg.cn/large/62d90090gw1f5tuzf77cbj20hs0d6gnp.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3997285228185576" target="freeweibo-mirror">SPAM 帮转。</a>
 </h2>
 <p>SPAM 帮转。<br><br>RE: 帮转<br><img src="http://ww1.sinaimg.cn/large/46e9d5dagw1f5tuvf5i4ej20ku0rstc5.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3997274629358713" target="freeweibo-mirror">SPAM 博主老年痴呆现象时间很长了，自娱自乐去吧，别打扰了…</a>
 </h2>
@@ -107,7 +107,7 @@
 </h2>
 <p>SPAM 一点不能少！<br><br>RE: 一點也不能少！<br><img src="http://ww4.sinaimg.cn/large/d3504604jw1f5tmy477o1j20k00p2dhm.jpg"></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3997254857211816" target="freeweibo-mirror">//@拿枪打鸟76298:这才几个！大的还没出来</a>
 </h2>
