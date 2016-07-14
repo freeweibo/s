@@ -101,7 +101,7 @@
 </h2>
 <p>//@王海: //@Ming_the_Great_大明: 去智化教育要的就是排除常識<br><br>RE: 和爱国青年，讲几个常识。<br><img src="http://ww1.sinaimg.cn/large/5d098bccjw1f5t61rlragj20yib1g1kz.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3997131939367237" target="freeweibo-mirror">//@麻毛雄://@Ming_the_Great_大明: 去…</a>
 </h2>
@@ -113,7 +113,7 @@
 </h2>
 <p>//@治愈芯話:转发微博</p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3997104001448652" target="freeweibo-mirror">SPAM 为什么同样的土拨鼠你那卖的比京东还便宜，美国人给的…</a>
 </h2>
