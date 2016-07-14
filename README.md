@@ -19,11 +19,23 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3997297341472723" target="freeweibo-mirror">閩清這次的洪水是真的很嚴重，但因為其他新聞的關係，報導篇幅沒…</a>
+</h2>
+<p>閩清這次的洪水是真的很嚴重，但因為其他新聞的關係，報導篇幅沒那麼多，以致於很多人不知道福建發生那麼大的洪水，大家也請多關注一下閩清災情<br><br>RE: 【闽清最新灾情统计：死亡60人，损失52.3亿元】受#第一号台风尼伯特# 影响，截至7月14日18时，这次特大洪灾已造成60人死亡，其中确认身份52人、未确认身份8人。由于灾区道路、通信、电力中断，地形复杂，堆积物多，给人员搜救和身份核实工作带来极大困难。目前，各受灾乡镇仍在继续排查是否还有失踪人...全文： http://m.weibo.cn/1658388624/3997285367379666<br><img src="http://ww3.sinaimg.cn/large/62d90090gw1f5tuzf77cbj20hs0d6gnp.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3997291113296497" target="freeweibo-mirror">SPAM 他家银耳太好吃了，竹荪肯定也错不了，菌子这种东西，…</a>
+</h2>
+<p>SPAM 他家银耳太好吃了，竹荪肯定也错不了，菌子这种东西，怎么吃都美味。</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3997286754707820" target="freeweibo-mirror">//@风语留言:转发微博</a>
 </h2>
 <p>//@风语留言:转发微博<br><br>RE: 帮转<br><img src="http://ww1.sinaimg.cn/large/46e9d5dagw1f5tuvf5i4ej20ku0rstc5.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3997285228185576" target="freeweibo-mirror">SPAM 帮转。</a>
 </h2>
@@ -107,7 +119,7 @@
 </h2>
 <p>纪连海喝大了吧，以为自己是老毛呢，可以坦然让十亿人去死。你老几呀，装赵家人也没有这样装的。</p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3997222359627263" target="freeweibo-mirror">SPAM //@雪崖寻芳: //@neo571h: 幕后的主…</a>
 </h2>
@@ -126,18 +138,6 @@
 <p>SPAM 随便看看 http://t.cn/zTmSuig<br><img src="http://ww1.sinaimg.cn/large/c21db86fgw1f5tklrbkjdj20k00f0jsa.jpg"></p>
 <p>
 	<small> ============== 9小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3997180064713328" target="freeweibo-mirror">SPAM 妹子不要说没有告诉你，我是雷锋，不谢~</a>
-</h2>
-<p>SPAM 妹子不要说没有告诉你，我是雷锋，不谢~<br><br>RE: 夏天短发总有适合你的一款！[太开心]<br><img src="http://ww2.sinaimg.cn/large/76043e25gw1f5tiqsqu58j20dv0dx41f.jpg"></p>
-<p>
-	<small> ============== 10小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3997179792576149" target="freeweibo-mirror">SPAM 博主所言极其正确，尤应抵制蠢货砖家//@梅铮星: …</a>
-</h2>
-<p>SPAM 博主所言极其正确，尤应抵制蠢货砖家//@梅铮星: //@shbh132: 叶蓬(1901—1947)黄陂南丰菏山下叶家湾人，民国陆军师长，汪伪武汉绥靖公署主任、湖北省长，参谋总长、陆军部长。1947年以汉奸罪被枪决http://t.cn/R5sKtDc//@老了糊涂的赵宪君: 叶檀，女，博士，知名财经评论家、财经专栏作家<br><br>RE: 看到一句话，觉得有点道理。抵制什么货都不如抵制蠢货来得迫切。</p>
-<p>
-	<small> ============== 10小时前</small>
 </p>
 <table>
     <tr>
