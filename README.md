@@ -19,6 +19,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3997307776815647" target="freeweibo-mirror">SPAM 获得美丽有时就在你的一念之间</a>
+</h2>
+<p>SPAM 获得美丽有时就在你的一念之间</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3997297341472723" target="freeweibo-mirror">閩清這次的洪水是真的很嚴重，但因為其他新聞的關係，報導篇幅沒…</a>
 </h2>
 <p>閩清這次的洪水是真的很嚴重，但因為其他新聞的關係，報導篇幅沒那麼多，以致於很多人不知道福建發生那麼大的洪水，大家也請多關注一下閩清災情<br><br>RE: 【闽清最新灾情统计：死亡60人，损失52.3亿元】受#第一号台风尼伯特# 影响，截至7月14日18时，这次特大洪灾已造成60人死亡，其中确认身份52人、未确认身份8人。由于灾区道路、通信、电力中断，地形复杂，堆积物多，给人员搜救和身份核实工作带来极大困难。目前，各受灾乡镇仍在继续排查是否还有失踪人...全文： http://m.weibo.cn/1658388624/3997285367379666<br><img src="http://ww3.sinaimg.cn/large/62d90090gw1f5tuzf77cbj20hs0d6gnp.jpg"></p>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3997228265498691" target="freeweibo-mirror">SPAM @梅春来律师 收拾好换洗衣服，准备去看守所过年 h…</a>
 </h2>
 <p>SPAM @梅春来律师 收拾好换洗衣服，准备去看守所过年 http://t.cn/R2WJL6n<br><img src="http://ww4.sinaimg.cn/large/a22c60dbgw1f5toeumeu0j20bh4xvb29.jpg"></p>
-<p>
-	<small> ============== 7小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3997226348351412" target="freeweibo-mirror">纪连海喝大了吧，以为自己是老毛呢，可以坦然让十亿人去死。你老…</a>
-</h2>
-<p>纪连海喝大了吧，以为自己是老毛呢，可以坦然让十亿人去死。你老几呀，装赵家人也没有这样装的。</p>
 <p>
 	<small> ============== 7小时前</small>
 </p>
