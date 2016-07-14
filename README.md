@@ -65,7 +65,7 @@
 </h2>
 <p>SPAM //@寞寂寂寞: //@IB林立人: //@WK浩:24天了<br><br>RE: 帮帮乌坎。<br><img src="http://ww1.sinaimg.cn/large/9c6df861gw1f5sixot8quj20qo0zin36.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3996894336264788" target="freeweibo-mirror">SPAM 帮一把这SB //@午后狂睡_Silent:帮转送…</a>
 </h2>
