@@ -23,7 +23,7 @@
 </h2>
 <p>//@风语留言:转发微博<br><br>RE: 帮转<br><img src="http://ww1.sinaimg.cn/large/46e9d5dagw1f5tuvf5i4ej20ku0rstc5.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3997285228185576" target="freeweibo-mirror">SPAM 帮转。</a>
 </h2>
@@ -107,7 +107,7 @@
 </h2>
 <p>纪连海喝大了吧，以为自己是老毛呢，可以坦然让十亿人去死。你老几呀，装赵家人也没有这样装的。</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3997222359627263" target="freeweibo-mirror">SPAM //@雪崖寻芳: //@neo571h: 幕后的主…</a>
 </h2>
