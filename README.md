@@ -19,6 +19,24 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3997170077660247" target="freeweibo-mirror">【把法律当统治工具】1955年1月间，刘少奇曾经说：“在宪法…</a>
+</h2>
+<p>【把法律当统治工具】1955年1月间，刘少奇曾经说：“在宪法颁布以后，我们必须加强法制，要善于利用法制，利用国家政权和社会群众的力量来开展阶级斗争。我们的法律不是为了约束自己，而是用来约束敌人，打击和消灭敌人的。”1955年7月间，刘少奇又在北戴河向最高人民检察院负责人指示说：“我们的法律...全文： http://m.weibo.cn/1195347197/3997170077660247</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3997168652076862" target="freeweibo-mirror">【文革中究竟死了多少人】1978年12月13日，叶剑英在中央…</a>
+</h2>
+<p>【文革中究竟死了多少人】1978年12月13日，叶剑英在中央工作会议闭幕式上说：“文革期间，全国整了1亿人，死了2000万人。”1980年邓小平对意大利女记者法拉奇说：“永远也统计不了，因为死的原因各种各样，中国又是那样广大，总之，人死了很多！”《建国以来历史政治运动事实》给出的数据是：420余万人...全文： http://m.weibo.cn/1195347197/3997168652076862</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3997159600578591" target="freeweibo-mirror">SPAM 估计厨子跟美国公司的供货有特殊交情，要么一起睡过，…</a>
+</h2>
+<p>SPAM 估计厨子跟美国公司的供货有特殊交情，要么一起睡过，要么被睡过//@不是结结结结巴:不光土拨鼠，看看airJordan//@科罗廖夫:为什么同样的土拨鼠你那卖的比京东还便宜，美国人给的回扣不一样嘛。</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3997139140450797" target="freeweibo-mirror">[赞][话筒] //@王海: //@Ming_the_Gre…</a>
 </h2>
 <p>[赞][话筒] //@王海: //@Ming_the_Great_大明: 去智化教育要的就是排除常識<br><br>RE: 和爱国青年，讲几个常识。<br><img src="http://ww1.sinaimg.cn/large/5d098bccjw1f5t61rlragj20yib1g1kz.jpg"></p>
@@ -120,24 +138,6 @@
 <p>SPAM //@喷嚏网铂程: 转发微博</p>
 <p>
 	<small> ============== 10小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3996948157642536" target="freeweibo-mirror">一天放学回家，我亲眼看见妹妹被姨父压在身下，我气急了，拿起刀…</a>
-</h2>
-<p>一天放学回家，我亲眼看见妹妹被姨父压在身下，我气急了，拿起刀子就冲了过去，后来，为了保护她为了挣钱，我放弃高考进了夜总会…… http://t.cn/R5FQyO2</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3996910903180663" target="freeweibo-mirror">SPAM 当你老了</a>
-</h2>
-<p>SPAM 当你老了<br><img src="http://ww1.sinaimg.cn/large/713b3d4fjw1f5snzi6nnhg20dc08we86.gif"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3996905904622293" target="freeweibo-mirror">SPAM //@寞寂寂寞: //@IB林立人: //@WK浩…</a>
-</h2>
-<p>SPAM //@寞寂寂寞: //@IB林立人: //@WK浩:24天了<br><br>RE: 帮帮乌坎。<br><img src="http://ww1.sinaimg.cn/large/9c6df861gw1f5sixot8quj20qo0zin36.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
 </p>
 <table>
     <tr>
