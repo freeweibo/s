@@ -71,7 +71,7 @@
 </h2>
 <p>SPAM 我女神要嫁给我男神了，送一个祝福[心][心]</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3996878657986466" target="freeweibo-mirror">SPAM 这个地图怎么变成树叶了？</a>
 </h2>
