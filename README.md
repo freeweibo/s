@@ -35,7 +35,7 @@
 </h2>
 <p>SPAM 是不是真的啊</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3997052218316348" target="freeweibo-mirror">SPAM 南海诸岛才是中国的，南海太大了。</a>
 </h2>
