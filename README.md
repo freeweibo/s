@@ -29,7 +29,7 @@
 </h2>
 <p>閩清這次的洪水是真的很嚴重，但因為其他新聞的關係，報導篇幅沒那麼多，以致於很多人不知道福建發生那麼大的洪水，大家也請多關注一下閩清災情<br><br>RE: 【闽清最新灾情统计：死亡60人，损失52.3亿元】受#第一号台风尼伯特# 影响，截至7月14日18时，这次特大洪灾已造成60人死亡，其中确认身份52人、未确认身份8人。由于灾区道路、通信、电力中断，地形复杂，堆积物多，给人员搜救和身份核实工作带来极大困难。目前，各受灾乡镇仍在继续排查是否还有失踪人...全文： http://m.weibo.cn/1658388624/3997285367379666<br><img src="http://ww3.sinaimg.cn/large/62d90090gw1f5tuzf77cbj20hs0d6gnp.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3997291113296497" target="freeweibo-mirror">SPAM 他家银耳太好吃了，竹荪肯定也错不了，菌子这种东西，…</a>
 </h2>
@@ -131,7 +131,7 @@
 </h2>
 <p>李嘉诚算个屁，从小一直搞到八十岁了才赚了那么多，看看大陆这些年纪轻轻的“旷世奇才”？你又算个啥？[哼]<br><img src="http://ww2.sinaimg.cn/large/006whzRQgw1f5tp4zgbgvj30iu0psq5w.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3997228265498691" target="freeweibo-mirror">SPAM @梅春来律师 收拾好换洗衣服，准备去看守所过年 h…</a>
 </h2>
