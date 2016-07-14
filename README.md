@@ -47,7 +47,7 @@
 </h2>
 <p>//@风语留言:转发微博<br><br>RE: 帮转<br><img src="http://ww1.sinaimg.cn/large/46e9d5dagw1f5tuvf5i4ej20ku0rstc5.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3997285367379666" target="freeweibo-mirror">【闽清最新灾情统计：死亡60人，损失52.3亿元】受#第一号…</a>
 </h2>
