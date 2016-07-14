@@ -41,13 +41,13 @@
 </h2>
 <p>[鄙视][生病] //@斯韦爵: //@神评_剑客90:爱锅渣！[挖鼻]<br><br>RE: 中国有一群人渣，在他们眼里：割让领土的不是恶人，贪污受贿的不是恶人，转移财产不是恶人，强拆民宅不是恶人，欺压农民不是恶人，滥杀无辜不是恶人，污染环境不是恶人，枪击百姓不是恶人。但是，当你批评这个滋生了无数丑恶的zf的时候，你却成了恶人，被骂为反动势力、破坏国家安定。</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3997033633797306" target="freeweibo-mirror">SPAM //@作家金槿姬:外长说啥就是啥！你这个臭美分！[…</a>
 </h2>
 <p>SPAM //@作家金槿姬:外长说啥就是啥！你这个臭美分！[怒骂]</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3997033029748705" target="freeweibo-mirror">【好文分享】1、没想到！决定寿命长短的不是吃和运动，而是………</a>
 </h2>
@@ -83,7 +83,7 @@
 </h2>
 <p>SPAM //@寞寂寂寞: //@IB林立人: //@WK浩:24天了<br><br>RE: 帮帮乌坎。<br><img src="http://ww1.sinaimg.cn/large/9c6df861gw1f5sixot8quj20qo0zin36.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3996894336264788" target="freeweibo-mirror">SPAM 帮一把这SB //@午后狂睡_Silent:帮转送…</a>
 </h2>
