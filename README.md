@@ -59,7 +59,7 @@
 </h2>
 <p>//@麻毛雄://@Ming_the_Great_大明: 去智化教育要的就是排除常識<br><br>RE: 和爱国青年，讲几个常识。<br><img src="http://ww1.sinaimg.cn/large/5d098bccjw1f5t61rlragj20yib1g1kz.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3997121889424849" target="freeweibo-mirror">//@治愈芯話:转发微博</a>
 </h2>
