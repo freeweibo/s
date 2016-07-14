@@ -41,7 +41,7 @@
 </h2>
 <p>SPAM 南海诸岛才是中国的，南海太大了。</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3997049416928212" target="freeweibo-mirror">[鄙视][生病] //@斯韦爵: //@神评_剑客90:爱锅…</a>
 </h2>
