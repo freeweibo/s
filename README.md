@@ -77,7 +77,7 @@
 </h2>
 <p>SPAM 当你老了<br><img src="http://ww1.sinaimg.cn/large/713b3d4fjw1f5snzi6nnhg20dc08we86.gif"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3996905904622293" target="freeweibo-mirror">SPAM //@寞寂寂寞: //@IB林立人: //@WK浩…</a>
 </h2>
