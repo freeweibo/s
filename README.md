@@ -125,7 +125,7 @@
 </h2>
 <p>SPAM 这是真的么？<br><br>RE: 菲律宾官网被黑了，是哪位英雄干的，请接受我膝盖[good]上面挂满了五星红旗红红火火恍恍惚惚，还唱起了中国国歌，66666！[酷]http://t.cn/R5kPIoM</p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3997092693284394" target="freeweibo-mirror">看到一句话，觉得有点道理。抵制什么货都不如抵制蠢货来得迫切。</a>
 </h2>
