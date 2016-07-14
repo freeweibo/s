@@ -89,7 +89,7 @@
 </h2>
 <p>SPAM 第一次见到号召网民抵制自己的，[嘻嘻] //@艾晓光1970:  http://t.cn/R5sXmu0<br><br>RE: 看到一句话，觉得有点道理。抵制什么货都不如抵制蠢货来得迫切。</p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3997159600578591" target="freeweibo-mirror">SPAM 估计厨子跟美国公司的供货有特殊交情，要么一起睡过，…</a>
 </h2>
