@@ -95,7 +95,7 @@
 </h2>
 <p>李嘉诚算个屁，从小一直搞到八十岁了才赚了那么多，看看大陆这些年纪轻轻的“旷世奇才”？你又算个啥？[哼]<br><img src="http://ww2.sinaimg.cn/large/006whzRQgw1f5tp4zgbgvj30iu0psq5w.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3997228265498691" target="freeweibo-mirror">SPAM @梅春来律师 收拾好换洗衣服，准备去看守所过年 h…</a>
 </h2>
