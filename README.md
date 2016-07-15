@@ -29,7 +29,7 @@
 </h2>
 <p>这算不算反人类罪恶？[历史学者-纪连海:南海中美开战，中国即使牺牲10亿人，也是世界人口第二多，中国不惜一战！]这帮人还真把自己当人看。[弱]<br><img src="http://ww4.sinaimg.cn/large/91239a94gw1f5ufknx313j20ku0m8wg1.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3997413549398103" target="freeweibo-mirror">SPAM 【好文分享】1、牛逼的都自杀了，他就成为近代最傲娇…</a>
 </h2>
@@ -41,7 +41,7 @@
 </h2>
 <p>//@丰佐先生://@作家沙光://@米家那个山://@喷嚏网铂程: 转发微博<br><br>RE: 一份声明<br><img src="http://ww4.sinaimg.cn/large/7c0e9549gw1f5twwzi0msj20qo1gch0r.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3997391662632427" target="freeweibo-mirror">SPAM 到苹果店验一下真货再砸！//@大尸凶的漫画:淘宝同…</a>
 </h2>
