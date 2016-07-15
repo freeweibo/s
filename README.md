@@ -47,7 +47,7 @@
 </h2>
 <p>//@米家那个山://@喷嚏网铂程: 转发微博<br><br>RE: 一份声明<br><img src="http://ww4.sinaimg.cn/large/7c0e9549gw1f5twwzi0msj20qo1gch0r.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3997374315327895" target="freeweibo-mirror">//@微笑老张头:转发微博</a>
 </h2>
@@ -83,7 +83,7 @@
 </h2>
 <p>SPAM 获得美丽有时就在你的一念之间</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3997302102154593" target="freeweibo-mirror">一份声明</a>
 </h2>
