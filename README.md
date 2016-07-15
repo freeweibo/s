@@ -23,7 +23,7 @@
 </h2>
 <p>SPAM 该来即会来，急也没用。微信测试版 for windows10已经上架商店，现在是PC端，至于以后正式版会和目前的桌面应用有多大差别，慢慢观察。手机端也不必急躁。<br><img src="http://ww3.sinaimg.cn/large/6f898224jw1f5v2vds31rj21hc0u041z.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3997663948719266" target="freeweibo-mirror">这段时间老做同样的梦，老是梦见被追杀，估计今晚也会做这样的梦…</a>
 </h2>
@@ -83,7 +83,7 @@
 </h2>
 <p>SPAM //@邓相超://@守候者说: //@原子漫画:不打是孙子，这也是孙子兵法中最高的境界：不战而胜。战没有打，凝聚力加强，共党有一套。 //@一品泥人: //@追唐-如东李忠: //@胡說八道O:转发微博</p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3997636241705757" target="freeweibo-mirror">SPAM //@守候者说: //@原子漫画:不打是孙子，这也…</a>
 </h2>
