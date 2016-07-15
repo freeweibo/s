@@ -19,6 +19,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3997482507999765" target="freeweibo-mirror">SPAM #最忠平论# 有媒体爆料说，朴槿惠致电习近平解释部…</a>
+</h2>
+<p>SPAM #最忠平论# 有媒体爆料说，朴槿惠致电习近平解释部署萨德导弹事宜，习近平拒绝接电话沟通。 中评：我们的立场很坚定了，没啥可说的了，只需要等着我们反制而已，还聊啥！</p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3997464652220123" target="freeweibo-mirror">这算不算反人类罪恶？[历史学者-纪连海:南海中美开战，中国即…</a>
 </h2>
 <p>这算不算反人类罪恶？[历史学者-纪连海:南海中美开战，中国即使牺牲10亿人，也是世界人口第二多，中国不惜一战！]这帮人还真把自己当人看。[弱]<br><img src="http://ww4.sinaimg.cn/large/91239a94gw1f5ufknx313j20ku0m8wg1.jpg"></p>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3997285228185576" target="freeweibo-mirror">SPAM 帮转。</a>
 </h2>
 <p>SPAM 帮转。<br><br>RE: 帮转<br><img src="http://ww1.sinaimg.cn/large/46e9d5dagw1f5tuvf5i4ej20ku0rstc5.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3997274629358713" target="freeweibo-mirror">SPAM 博主老年痴呆现象时间很长了，自娱自乐去吧，别打扰了…</a>
-</h2>
-<p>SPAM 博主老年痴呆现象时间很长了，自娱自乐去吧，别打扰了！@中国公知精神病总院 //@林汉波--圆梦行者:@张鸣：作为一个大学教授，你不会小学都没毕业吧？连个假设句都看不懂。都说现在的大学生文化水平越来越低，看了你微博，我知道原因所在了。<br><br>RE: 纪连海喝大了吧，以为自己是老毛呢，可以坦然让十亿人去死。你老几呀，装赵家人也没有这样装的。</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
