@@ -35,7 +35,7 @@
 </h2>
 <p>英国新首相特蕾莎·梅的首次演讲，非常务实、亲和、并富有感染力。这要比天C那些只会干巴巴念政府“工作报告”的“红二代”们强一千倍。[good]  http://t.cn/R5F3lWZ</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3997482507999765" target="freeweibo-mirror">SPAM #最忠平论# 有媒体爆料说，朴槿惠致电习近平解释部…</a>
 </h2>
