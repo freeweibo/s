@@ -35,7 +35,7 @@
 </h2>
 <p>SPAM 到苹果店验一下真货再砸！//@大尸凶的漫画:淘宝同款模型8.8元  这才是理性爱国么[偷笑]<br><br>RE: #实拍视频#爱国，从砸“苹果”开始[哈哈][哈哈][围观][话筒] http://t.cn/R2Wi45b http://t.cn/R5s9qWh .</p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3997383177875957" target="freeweibo-mirror">SPAM 疯狂之后就是灭亡……</a>
 </h2>
