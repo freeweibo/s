@@ -71,7 +71,7 @@
 </h2>
 <p>SPAM //@狡兔三窟黔驴技穷:反击给力! http://t.cn/RtvUYzM<br><br>RE: 一份声明<br><img src="http://ww4.sinaimg.cn/large/7c0e9549gw1f5twwzi0msj20qo1gch0r.jpg"></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3997352848849572" target="freeweibo-mirror">//@燕赵无敌://@我是德赛: //@紧de爷:回复@独醒…</a>
 </h2>
