@@ -53,7 +53,7 @@
 </h2>
 <p>//@米家那个山://@喷嚏网铂程: 转发微博<br><br>RE: 一份声明<br><img src="http://ww4.sinaimg.cn/large/7c0e9549gw1f5twwzi0msj20qo1gch0r.jpg"></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3997374315327895" target="freeweibo-mirror">//@微笑老张头:转发微博</a>
 </h2>
@@ -83,7 +83,7 @@
 </h2>
 <p>//@燕赵无敌://@我是德赛: //@紧de爷:回复@独醒真累:这本杂志是风向标，右派的舆论阵地。它的内部大换血，表示党内公开允许适度存在不同声音的30年，成为历史。 //@独醒真累:居然还真出了红头？[思考] http://t.cn/RtvAPsP //@紧de爷:初中生亲爹的签名，也挡不住初中生坚定的步伐。<br><br>RE: 一份声明<br><img src="http://ww4.sinaimg.cn/large/7c0e9549gw1f5twwzi0msj20qo1gch0r.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3997307776815647" target="freeweibo-mirror">SPAM 获得美丽有时就在你的一念之间</a>
 </h2>
