@@ -37,6 +37,12 @@
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3997374315327895" target="freeweibo-mirror">//@微笑老张头:转发微博</a>
+</h2>
+<p>//@微笑老张头:转发微博<br><br>RE: 一份声明<br><img src="http://ww4.sinaimg.cn/large/7c0e9549gw1f5twwzi0msj20qo1gch0r.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3997373539522658" target="freeweibo-mirror">[嘻嘻][嘻嘻][嘻嘻]//@一起去旅行吧朋友:#网红带你去…</a>
 </h2>
 <p>[嘻嘻][嘻嘻][嘻嘻]//@一起去旅行吧朋友:#网红带你去旅行# 走进旅行网客栈线路预订；  http://t.cn/R5gvHSO</p>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3997268367872983" target="freeweibo-mirror">SPAM 赫鲁晓夫当时听了为这边百姓捏了一把汗~ //@i-…</a>
 </h2>
 <p>SPAM 赫鲁晓夫当时听了为这边百姓捏了一把汗~ //@i-want-it-that-way: //@赣B_自油博报: //@多多爸比: //@迩東晨:我要活着，谁想奔死就去死吧。 //@一品泥人: //@沥泉枪挑: 老毛只敢死三亿，纪连海顶三个老毛[笑cry] //@中山粉丝团:[good]<br><br>RE: 纪连海喝大了吧，以为自己是老毛呢，可以坦然让十亿人去死。你老几呀，装赵家人也没有这样装的。</p>
-<p>
-	<small> ============== 10小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3997265980882489" target="freeweibo-mirror">清真狗粮，穆斯林群众可以给自家宠物买回去尝尝[doge]</a>
-</h2>
-<p>清真狗粮，穆斯林群众可以给自家宠物买回去尝尝[doge]<br><img src="http://ww3.sinaimg.cn/large/006c8Blbjw1f5tsqtk8zmj30c10bsdju.jpg"></p>
 <p>
 	<small> ============== 10小时前</small>
 </p>
