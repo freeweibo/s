@@ -23,7 +23,7 @@
 </h2>
 <p>SPAM 【好文分享】1、牛逼的都自杀了，他就成为近代最傲娇的天才！2、中医将亡于中药（深刻到绝望的好文），痛心！3、你是汉族吗？你知道真正的汉族是什么样的吗？4 重庆，你再次震撼了亚 洲，震撼了世 界！5、在上了床也没结果的时代，品 味 牵手就是一辈子的爱情！更多精彩请添加关注：zhebsls<br><img src="http://ww2.sinaimg.cn/large/a4aae570jw1f5u9psjxbyj20j60y3mze.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3997396230958240" target="freeweibo-mirror">//@丰佐先生://@作家沙光://@米家那个山://@喷嚏…</a>
 </h2>
@@ -119,13 +119,13 @@
 </h2>
 <p>【闽清最新灾情统计：死亡60人，损失52.3亿元】受#第一号台风尼伯特# 影响，截至7月14日18时，这次特大洪灾已造成60人死亡，其中确认身份52人、未确认身份8人。由于灾区道路、通信、电力中断，地形复杂，堆积物多，给人员搜救和身份核实工作带来极大困难。目前，各受灾乡镇仍在继续排查是否还有失踪人...全文： http://m.weibo.cn/1658388624/3997285367379666<br><img src="http://ww3.sinaimg.cn/large/62d90090gw1f5tuzf77cbj20hs0d6gnp.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3997285228185576" target="freeweibo-mirror">SPAM 帮转。</a>
 </h2>
 <p>SPAM 帮转。<br><br>RE: 帮转<br><img src="http://ww1.sinaimg.cn/large/46e9d5dagw1f5tuvf5i4ej20ku0rstc5.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3997274629358713" target="freeweibo-mirror">SPAM 博主老年痴呆现象时间很长了，自娱自乐去吧，别打扰了…</a>
 </h2>
