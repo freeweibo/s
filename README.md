@@ -89,7 +89,7 @@
 </h2>
 <p>一份声明<br><img src="http://ww4.sinaimg.cn/large/7c0e9549gw1f5twwzi0msj20qo1gch0r.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3997297341472723" target="freeweibo-mirror">閩清這次的洪水是真的很嚴重，但因為其他新聞的關係，報導篇幅沒…</a>
 </h2>
