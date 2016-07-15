@@ -89,7 +89,7 @@
 </h2>
 <p>一份声明<br><img src="http://ww4.sinaimg.cn/large/7c0e9549gw1f5twwzi0msj20qo1gch0r.jpg"></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3997297341472723" target="freeweibo-mirror">閩清這次的洪水是真的很嚴重，但因為其他新聞的關係，報導篇幅沒…</a>
 </h2>
@@ -113,7 +113,7 @@
 </h2>
 <p>//@风语留言:转发微博<br><br>RE: 帮转<br><img src="http://ww1.sinaimg.cn/large/46e9d5dagw1f5tuvf5i4ej20ku0rstc5.jpg"></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3997285367379666" target="freeweibo-mirror">【闽清最新灾情统计：死亡60人，损失52.3亿元】受#第一号…</a>
 </h2>
