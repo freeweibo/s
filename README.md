@@ -53,7 +53,7 @@
 </h2>
 <p>SPAM [笑cry] //@RunRabbit09: [喵喵] //@贴吧娘:你们太坏了[喵喵]<br><br>RE: 难怪我看外长总有一种谜一般的熟悉感，看了图一才知道这是为什么 [doge]<br><img src="http://ww2.sinaimg.cn/large/70707858gw1f5uyd5d29jj20cg09cmxa.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3997639802307542" target="freeweibo-mirror">“主权不在民，国不知有民，民何苦有国，都是赵家的。”【比南海…</a>
 </h2>
@@ -119,7 +119,7 @@
 </h2>
 <p>明犯强汉者,虽远必诛。 #原子漫画#<br><img src="http://ww3.sinaimg.cn/large/3d78f362gw1f5uy91n0cpj20p00p0abz.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3997583255317019" target="freeweibo-mirror">此处没有法律，只有鹰犬和打手！</a>
 </h2>
