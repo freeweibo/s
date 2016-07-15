@@ -41,7 +41,7 @@
 </h2>
 <p>//@丰佐先生://@作家沙光://@米家那个山://@喷嚏网铂程: 转发微博<br><br>RE: 一份声明<br><img src="http://ww4.sinaimg.cn/large/7c0e9549gw1f5twwzi0msj20qo1gch0r.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3997391662632427" target="freeweibo-mirror">SPAM 到苹果店验一下真货再砸！//@大尸凶的漫画:淘宝同…</a>
 </h2>
