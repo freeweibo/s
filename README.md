@@ -97,6 +97,12 @@
 <p>
 	<small> ============== 1天前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3997307861296631" target="freeweibo-mirror">关注[话筒]【济南历下学生家长维权，又见暴力执法！】网友爆料…</a>
+</h2>
+<p>关注[话筒]【济南历下学生家长维权，又见暴力执法！】网友爆料：几名妇女被拉入院内殴打，过路司机，部分市民也被扣押，其中一人因拍摄视频被十几人追赶后群殴，导致尾骨骨折，现已住院。拍摄视频的多人手机被抢，人被控制。[怒] http://t.cn/R5snvLx</p>
+<p>
+	<small> ============== 1天前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3997307776815647" target="freeweibo-mirror">SPAM 获得美丽有时就在你的一念之间</a>
 </h2>
 <p>SPAM 获得美丽有时就在你的一念之间</p>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3997286754707820" target="freeweibo-mirror">//@风语留言:转发微博</a>
 </h2>
 <p>//@风语留言:转发微博<br><br>RE: 帮转<br><img src="http://ww1.sinaimg.cn/large/46e9d5dagw1f5tuvf5i4ej20ku0rstc5.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3997285367379666" target="freeweibo-mirror">【闽清最新灾情统计：死亡60人，损失52.3亿元】受#第一号…</a>
-</h2>
-<p>【闽清最新灾情统计：死亡60人，损失52.3亿元】受#第一号台风尼伯特# 影响，截至7月14日18时，这次特大洪灾已造成60人死亡，其中确认身份52人、未确认身份8人。由于灾区道路、通信、电力中断，地形复杂，堆积物多，给人员搜救和身份核实工作带来极大困难。目前，各受灾乡镇仍在继续排查是否还有失踪人...全文： http://m.weibo.cn/1658388624/3997285367379666<br><img src="http://ww3.sinaimg.cn/large/62d90090gw1f5tuzf77cbj20hs0d6gnp.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
