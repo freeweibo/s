@@ -71,7 +71,7 @@
 </h2>
 <p>SPAM //@狡兔三窟黔驴技穷:反击给力! http://t.cn/RtvUYzM<br><br>RE: 一份声明<br><img src="http://ww4.sinaimg.cn/large/7c0e9549gw1f5twwzi0msj20qo1gch0r.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3997352848849572" target="freeweibo-mirror">//@燕赵无敌://@我是德赛: //@紧de爷:回复@独醒…</a>
 </h2>
@@ -107,7 +107,7 @@
 </h2>
 <p>SPAM 彭麻麻风评被害 //@香港维虵奶国际集团有限公司:真是无奇不有//@收智商税的小白:以后要有清真宠物了[微笑]//@八卦毒物:[doge]//@灵异档案员王昙:一共十五款，msl群众快去支持下[doge]<br><br>RE: 清真狗粮，穆斯林群众可以给自家宠物买回去尝尝[doge]<br><img src="http://ww3.sinaimg.cn/large/006c8Blbjw1f5tsqtk8zmj30c10bsdju.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3997286754707820" target="freeweibo-mirror">//@风语留言:转发微博</a>
 </h2>
