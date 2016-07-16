@@ -119,7 +119,7 @@
 </h2>
 <p>SPAM  //@迟夙生律师://@宛乡暖客：纯属虚构，请勿对号入座。[拍照]<br><br>RE: 惊天大杀器横空出世，，，，，口炮无敌。<br><img src="http://ww1.sinaimg.cn/large/006cYaORjw1f5vnzfxjvbj30hs2o8ah8.jpg"></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3997881294233850" target="freeweibo-mirror">张雪忠：我从来不相信，中国人会低贱到连享有民主权利的资格都没…</a>
 </h2>
