@@ -19,9 +19,57 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3998025368393219" target="freeweibo-mirror">SPAM 这己不是金钱问题，而是政治事件了！#赵薇事件# #…</a>
+</h2>
+<p>SPAM 这己不是金钱问题，而是政治事件了！#赵薇事件# #资本控制舆论#</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3998022554180149" target="freeweibo-mirror">SPAM →_→//@elephant_rain:还有这个真…</a>
+</h2>
+<p>SPAM →_→//@elephant_rain:还有这个真就没人管了吗 http://t.cn/Rth5odn</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3998020602850793" target="freeweibo-mirror">SPAM //@幸运段誉:资本家删帖，你可以开另一个媒体和对…</a>
+</h2>
+<p>SPAM //@幸运段誉:资本家删帖，你可以开另一个媒体和对着干啊。政治家删帖，你怎么地？如果(我说的是如果)资本家敢删D媒的帖，这是未必是坏事。</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3998019559285565" target="freeweibo-mirror">SPAM 公然宣战了//@张忆安-龙战于野:恍如回到解放前</a>
+</h2>
+<p>SPAM 公然宣战了//@张忆安-龙战于野:恍如回到解放前</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3998017805805035" target="freeweibo-mirror">//@章鱼大笑: //@我是德赛:转发微博</a>
 </h2>
 <p>//@章鱼大笑: //@我是德赛:转发微博<br><br>RE: 天朝靠高税收刚攒点脂粉钱，就开始了一掷千金的撒币外交，除了给人财大气粗、不要脸的暴发户形象外，还能有什么呢？花钱买面子，才是真不要脸。操刀谈道德，其实是耍流氓。血腥中谈慈悲，其实是没人性。屁股上生烂疮，脸上涂指抹粉，其实是没脚蟹。爹娘四处乞讨，自己花天酒地，其实是日他先人个板板！</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3998017759411843" target="freeweibo-mirror">SPAM 资本媒体实力太大！太危险！//@一泓清泉e:军报及…</a>
+</h2>
+<p>SPAM 资本媒体实力太大！太危险！//@一泓清泉e:军报及多个分社发内容发不出去，这什么节奏？！要颜色革命吗？[吃惊]</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3998016728405087" target="freeweibo-mirror">SPAM 军报及多个分社发内容发不出去，这什么节奏？！要颜色…</a>
+</h2>
+<p>SPAM 军报及多个分社发内容发不出去，这什么节奏？！要颜色革命吗？[吃惊]</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3998016035550474" target="freeweibo-mirror">SPAM →_→//@蓝羽时评:操，这相当于“伪军”在根据地…</a>
+</h2>
+<p>SPAM →_→//@蓝羽时评:操，这相当于“伪军”在根据地内关“司令部”的禁闭！这到底是在“解放区”还是“敌占区”？</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3998015587351431" target="freeweibo-mirror">SPAM //@ripeachtime://@张忆安-龙战于…</a>
+</h2>
+<p>SPAM //@ripeachtime://@张忆安-龙战于野: 恍如回到解放前</p>
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
@@ -36,6 +84,24 @@
 <p>SPAM //@云水逸僧://@风中的蒲公英云://@良心-医生://@凡宝移山://@如皋老猫:我忽然想到一件事，如果中国与外夷有一战，腾讯也好，搜狐也好，凤凰也好，财经也好，心惊肉跳也好，男方都是也好，包括浪浪，黄易，中新，国搜，加多宝，祝家庄，您说他们不得像过年一样狂欢啊？然后排山倒海，全是煽动屁</p>
 <p>
 	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3998012600227213" target="freeweibo-mirror">SPAM //@风中的蒲公英云://@良心-医生://@凡宝…</a>
+</h2>
+<p>SPAM //@风中的蒲公英云://@良心-医生://@凡宝移山://@德国的农村妇女://@如皋老猫:我忽然想到一件事，如果中国与外夷有一战，腾讯也好，搜狐也好，凤凰也好，财经也好，心惊肉跳也好，男方都是也好，包括浪浪，黄易，中新，国搜，加多宝，祝家庄，您说他们不得像过年一样狂欢啊？然后排山倒海，全是煽动屁</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3998008758509690" target="freeweibo-mirror">SPAM 恍如回到解放前</a>
+</h2>
+<p>SPAM 恍如回到解放前</p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3998007701488476" target="freeweibo-mirror">SPAM 【今日社会】►73死滑坡事故无1人露面 中央为深圳…</a>
+</h2>
+<p>SPAM 【今日社会】►73死滑坡事故无1人露面 中央为深圳掩盖什么？ http://t.cn/RtPzAEi►华裔商人随商贸团访华被捕 以危害国安罪起诉 http://t.cn/RtPi3OF►北京锋锐律所4人涉颠覆国家政权罪被提起公诉 http://t.cn/RtPPAfB►成都夫妇种下1200余亩私家花园 把生活过成诗 http://t.cn/RtP32wL<br><img src="http://ww4.sinaimg.cn/large/6e5a43b3jw1f5w5yc485fj20g4093dgc.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3998000818491339" target="freeweibo-mirror">SPAM //@谭显荣财富人生: //@PTA老王子:必须查…</a>
 </h2>
@@ -72,72 +138,6 @@
 <p>SPAM 老板，全部打包，我要带走[哈哈][哈哈]</p>
 <p>
 	<small> ============== 6小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3997960520171945" target="freeweibo-mirror">SPAM 配合夏天的Simple Silver. @IAM-…</a>
-</h2>
-<p>SPAM 配合夏天的Simple Silver. @IAM-TINGTING<br><img src="http://ww3.sinaimg.cn/large/70623bbbgw1f5vj3vj0jxj20qo0qoadi.jpg"></p>
-<p>
-	<small> ============== 6小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3997945696803475" target="freeweibo-mirror">他们有枪，他们有坦克，却最终屈服于民众，是民众强大吗？非也，…</a>
-</h2>
-<p>他们有枪，他们有坦克，却最终屈服于民众，是民众强大吗？非也，我想是因为土耳其军队有颗伟大的心。。然而伟大的心能对抗得了偏执的信仰吗？好怕，我又开始担心以敦煌为圆心的那三千里江山了。。#土耳其军事政变#<br><img src="http://ww3.sinaimg.cn/large/64dd4f89jw1f5vytlyofmj20m80ii76z.jpg"></p>
-<p>
-	<small> ============== 7小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3997943658923695" target="freeweibo-mirror">最右//@菲力先生:学雷锋还要改名？ //@吴顾问1970:…</a>
-</h2>
-<p>最右//@菲力先生:学雷锋还要改名？ //@吴顾问1970: //@法律及其价值:哀哉！[伤心]//@蓉蓉亿米阳光://@挥洒成雨:想想国内的老少边穷，够无耻无下限[弱][弱]<br><br>RE: 翻墙看柬埔寨首相洪森的脸书。他昨天用高棉语发了关于与李克强总理会面的贴并配发10张照片。用谷歌翻译翻成中文，证实了中国的确承诺2016～2018三年间向柬埔寨提供36亿无偿援助。不过真正的亮点是，他把李克强当成了李鹏……当……成……了……李……鹏…………<br><img src="http://ww3.sinaimg.cn/large/4b7d5019gw1f5vkykqc9oj20ku11277d.jpg"></p>
-<p>
-	<small> ============== 7小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3997941168048001" target="freeweibo-mirror">//@迟夙生律师: //@赞美诗6201: 现在还有人赞美魔…</a>
-</h2>
-<p>//@迟夙生律师: //@赞美诗6201: 现在还有人赞美魔鬼[怒]/@walbgt://@一个老人1933: //@小靓-凌霄鹿: //@北山-晴雪://@霜葉19s: //@张-天-戈03://@wang白笼子: //@江南独钓客之圣手书生://@贫嘴yy://@网易Pegasus:奴性和兽性到了极致 //@Wildcat2T2:别嘲笑ISIS，再来一次中国人还会这德行<br><br>RE: 文革杀人现场目击记！转<br><img src="http://ww3.sinaimg.cn/large/006pBBc9jw1f5vhr7obrej30c868ee81.jpg"></p>
-<p>
-	<small> ============== 7小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3997940966141724" target="freeweibo-mirror">//@梦醒时分9241:有钱任性[笑cry][笑cry] /…</a>
-</h2>
-<p>//@梦醒时分9241:有钱任性[笑cry][笑cry] //@a_Bing://@一网打尽1861://@刚刚路过03:只要钱，不认人。 //@活捉死老鼠://@寒铁扉://@sideofU://@衣紋坂高瀬屋月見雪:hhh //@游戏如人生1980:[笑cry][笑cry][笑cry]<br><br>RE: 翻墙看柬埔寨首相洪森的脸书。他昨天用高棉语发了关于与李克强总理会面的贴并配发10张照片。用谷歌翻译翻成中文，证实了中国的确承诺2016～2018三年间向柬埔寨提供36亿无偿援助。不过真正的亮点是，他把李克强当成了李鹏……当……成……了……李……鹏…………<br><img src="http://ww3.sinaimg.cn/large/4b7d5019gw1f5vkykqc9oj20ku11277d.jpg"></p>
-<p>
-	<small> ============== 7小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3997939858776612" target="freeweibo-mirror">[偷笑][偷笑][偷笑][偷笑][偷笑][偷笑]</a>
-</h2>
-<p>[偷笑][偷笑][偷笑][偷笑][偷笑][偷笑]<br><br>RE: 翻墙看柬埔寨首相洪森的脸书。他昨天用高棉语发了关于与李克强总理会面的贴并配发10张照片。用谷歌翻译翻成中文，证实了中国的确承诺2016～2018三年间向柬埔寨提供36亿无偿援助。不过真正的亮点是，他把李克强当成了李鹏……当……成……了……李……鹏…………<br><img src="http://ww3.sinaimg.cn/large/4b7d5019gw1f5vkykqc9oj20ku11277d.jpg"></p>
-<p>
-	<small> ============== 7小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3997937761536557" target="freeweibo-mirror">不彻底反思，就有可能复发。//@但斌: //@迟夙生律师:/…</a>
-</h2>
-<p>不彻底反思，就有可能复发。//@但斌: //@迟夙生律师://@赞美诗6201: 现在还有人赞美魔鬼[怒]/@walbgt://@一个老人1933: //@小靓-凌霄鹿: //@北山-晴雪://@霜葉19s: //@张-天-戈03://@wang白笼子: //@江南独钓客之圣手书生://@贫嘴yy://@网易Pegasus:奴性和兽性到了极致 //@Wildcat2T2:别嘲笑ISIS，<br><br>RE: 文革杀人现场目击记！转<br><img src="http://ww3.sinaimg.cn/large/006pBBc9jw1f5vhr7obrej30c868ee81.jpg"></p>
-<p>
-	<small> ============== 7小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3997937451886463" target="freeweibo-mirror">无力吐槽#御剑倾城#//@风中疾走:开始收钱了吗？南海事件站…</a>
-</h2>
-<p>无力吐槽#御剑倾城#//@风中疾走:开始收钱了吗？南海事件站在中国这边表态的一共多少个国家来的？ //@谢泼德:这大骗子！怎么这样！//@娘歆:[笑cry] //@Super暱名帳戶30://@牆外爪爪:收完錢，今天貼的就是安倍首相[笑cry][笑cry][笑cry]  http://t.cn/RtPBRYr //@冷眼残局:哈哈哈哈哈哈哈来的？<br><br>RE: 翻墙看柬埔寨首相洪森的脸书。他昨天用高棉语发了关于与李克强总理会面的贴并配发10张照片。用谷歌翻译翻成中文，证实了中国的确承诺2016～2018三年间向柬埔寨提供36亿无偿援助。不过真正的亮点是，他把李克强当成了李鹏……当……成……了……李……鹏…………<br><img src="http://ww3.sinaimg.cn/large/4b7d5019gw1f5vkykqc9oj20ku11277d.jpg"></p>
-<p>
-	<small> ============== 7小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3997937203557037" target="freeweibo-mirror">//@迟夙生律师://@赞美诗6201: 现在还有人赞美魔鬼…</a>
-</h2>
-<p>//@迟夙生律师://@赞美诗6201: 现在还有人赞美魔鬼[怒]/@walbgt://@一个老人1933: //@小靓-凌霄鹿: //@北山-晴雪://@霜葉19s: //@张-天-戈03://@wang白笼子: //@江南独钓客之圣手书生://@贫嘴yy://@网易Pegasus:奴性和兽性到了极致 //@Wildcat2T2:别嘲笑ISIS，再来一次中国人还会这德行<br><br>RE: 文革杀人现场目击记！转<br><img src="http://ww3.sinaimg.cn/large/006pBBc9jw1f5vhr7obrej30c868ee81.jpg"></p>
-<p>
-	<small> ============== 7小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3997930958691021" target="freeweibo-mirror">//@斯韦爵: //@陈业文新大都:首先是误国、祸民。这个没…</a>
-</h2>
-<p>//@斯韦爵: //@陈业文新大都:首先是误国、祸民。这个没跑。 //@波浪女郎:他们才是真正的卖国贼<br><br>RE: 张雪忠：我从来不相信，中国人会低贱到连享有民主权利的资格都没有；我一直都认为，那些剥夺中国人的民主权利的人，才是中国人真正的敌人。他们吃喝嫖赌、任意挥霍，没有道德底线，他们阻止全民免费医疗，阻止公平教育、阻止平等养老金、阻止司法公平、阻止言论自由。请问他们不是我们的敌人那么谁是？</p>
-<p>
-	<small> ============== 8小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3997921252649653" target="freeweibo-mirror">公安、政府做的是想让雷洋家属出具“谅解书”，这样法院判刑时可…</a>
-</h2>
-<p>公安、政府做的是想让雷洋家属出具“谅解书”，这样法院判刑时可以从轻。这种逼迫受害人家属出具“谅解书”，本质上是一种干涉司法、滥用权力的违法行为。公诉案件不存在受害人撤诉问题，是谅解不谅解的问题。<br><br>RE: 转自@荣剑 老师：通报雷洋事件的几点情况，1、上边在做雷洋家属的工作，湖南方面是政府部门布置下来的，北京方面是公安内部人士，就是想让家属撤诉，家属深感安全受到威胁。人大校友在帮助家属，鼓励家属挺住，一定要坚持下去。2、人大校友自愿募捐，迄今为止已募集100万元，已转到家属手中。</p>
-<p>
-	<small> ============== 8小时前</small>
 </p>
 <table>
     <tr>
