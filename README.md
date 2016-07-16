@@ -59,7 +59,7 @@
 </h2>
 <p>SPAM 该来即会来，急也没用。微信测试版 for windows10已经上架商店，现在是PC端，至于以后正式版会和目前的桌面应用有多大差别，慢慢观察。手机端也不必急躁。<br><img src="http://ww3.sinaimg.cn/large/6f898224jw1f5v2vds31rj21hc0u041z.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3997663948719266" target="freeweibo-mirror">这段时间老做同样的梦，老是梦见被追杀，估计今晚也会做这样的梦…</a>
 </h2>
