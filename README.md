@@ -71,7 +71,7 @@
 </h2>
 <p>SPAM 老板，全部打包，我要带走[哈哈][哈哈]</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3997960520171945" target="freeweibo-mirror">SPAM 配合夏天的Simple Silver. @IAM-…</a>
 </h2>
