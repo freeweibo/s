@@ -71,13 +71,13 @@
 </h2>
 <p>//@迟夙生律师: //@赞美诗6201: 现在还有人赞美魔鬼[怒]/@walbgt://@一个老人1933: //@小靓-凌霄鹿: //@北山-晴雪://@霜葉19s: //@张-天-戈03://@wang白笼子: //@江南独钓客之圣手书生://@贫嘴yy://@网易Pegasus:奴性和兽性到了极致 //@Wildcat2T2:别嘲笑ISIS，再来一次中国人还会这德行<br><br>RE: 文革杀人现场目击记！转<br><img src="http://ww3.sinaimg.cn/large/006pBBc9jw1f5vhr7obrej30c868ee81.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3997940966141724" target="freeweibo-mirror">//@梦醒时分9241:有钱任性[笑cry][笑cry] /…</a>
 </h2>
 <p>//@梦醒时分9241:有钱任性[笑cry][笑cry] //@a_Bing://@一网打尽1861://@刚刚路过03:只要钱，不认人。 //@活捉死老鼠://@寒铁扉://@sideofU://@衣紋坂高瀬屋月見雪:hhh //@游戏如人生1980:[笑cry][笑cry][笑cry]<br><br>RE: 翻墙看柬埔寨首相洪森的脸书。他昨天用高棉语发了关于与李克强总理会面的贴并配发10张照片。用谷歌翻译翻成中文，证实了中国的确承诺2016～2018三年间向柬埔寨提供36亿无偿援助。不过真正的亮点是，他把李克强当成了李鹏……当……成……了……李……鹏…………<br><img src="http://ww3.sinaimg.cn/large/4b7d5019gw1f5vkykqc9oj20ku11277d.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3997939858776612" target="freeweibo-mirror">[偷笑][偷笑][偷笑][偷笑][偷笑][偷笑]</a>
 </h2>
