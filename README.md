@@ -29,7 +29,7 @@
 </h2>
 <p>SPAM 这己不是金钱问题，而是政治事件了！#赵薇事件# #资本控制舆论#</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3998022554180149" target="freeweibo-mirror">SPAM →_→//@elephant_rain:还有这个真…</a>
 </h2>
@@ -46,6 +46,12 @@
 	<a href="https://freeweibo.com/weibo/3998019559285565" target="freeweibo-mirror">SPAM 公然宣战了//@张忆安-龙战于野:恍如回到解放前</a>
 </h2>
 <p>SPAM 公然宣战了//@张忆安-龙战于野:恍如回到解放前</p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3998019370239434" target="freeweibo-mirror">今天是新公民運動推動者，許志永博士蒙難入獄三週年。許志永，公…</a>
+</h2>
+<p>今天是新公民運動推動者，許志永博士蒙難入獄三週年。許志永，公盟創始人之一，新公民運動的標誌性人物，中國著名青年法學家、憲政學者和公民維權的領軍人物。倡導公民以非暴力的方式維護自己的權益，要求給予國民平等接受教育的權利，要求官員公布財產，並懲治腐敗。 http://t.cn/R2WJvly<br><img src="http://ww2.sinaimg.cn/large/006p8M2Kjw1f5w76csqqpj30sg0p9wij.jpg"></p>
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3998000818491339" target="freeweibo-mirror">SPAM //@谭显荣财富人生: //@PTA老王子:必须查…</a>
 </h2>
 <p>SPAM //@谭显荣财富人生: //@PTA老王子:必须查查，马云一直在做政府的事情，多则少 //@初级金融民工男:小黑本//@王世颖:这是要造反啊[拜拜] //@文韬武略辛弃疾:[围观]//@汉扬a://@v秋叶v:[睡]//@张艺清大爷: 继续搞[doge]我倒看看党中央还管不管了[doge]</p>
-<p>
-	<small> ============== 4小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3997999182831817" target="freeweibo-mirror">SPAM 敏感词过滤。。。。。</a>
-</h2>
-<p>SPAM 敏感词过滤。。。。。</p>
 <p>
 	<small> ============== 4小时前</small>
 </p>
