@@ -49,6 +49,12 @@
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3997988064199237" target="freeweibo-mirror">SPAM 【解放军也遭到报复！】 由于发表关于赵薇与台独演员…</a>
+</h2>
+<p>SPAM 【解放军也遭到报复！】 由于发表关于赵薇与台独演员问题的文章，解放军的军报也被封锁了！ 资本控制媒介，己构成对中国社会的严重危害！！！<br><img src="http://ww2.sinaimg.cn/large/8b3902cagw1f5w331o5jej20bj0m8mzm.jpg"></p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3997983865058052" target="freeweibo-mirror">SPAM 连军事政变都舔啊[晕]</a>
 </h2>
 <p>SPAM 连军事政变都舔啊[晕]<br><br>RE: 他们有枪，他们有坦克，却最终屈服于民众，是民众强大吗？非也，我想是因为土耳其军队有颗伟大的心。。然而伟大的心能对抗得了偏执的信仰吗？好怕，我又开始担心以敦煌为圆心的那三千里江山了。。#土耳其军事政变#<br><img src="http://ww3.sinaimg.cn/large/64dd4f89jw1f5vytlyofmj20m80ii76z.jpg"></p>
@@ -71,13 +77,13 @@
 </h2>
 <p>SPAM 配合夏天的Simple Silver. @IAM-TINGTING<br><img src="http://ww3.sinaimg.cn/large/70623bbbgw1f5vj3vj0jxj20qo0qoadi.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3997945696803475" target="freeweibo-mirror">他们有枪，他们有坦克，却最终屈服于民众，是民众强大吗？非也，…</a>
 </h2>
 <p>他们有枪，他们有坦克，却最终屈服于民众，是民众强大吗？非也，我想是因为土耳其军队有颗伟大的心。。然而伟大的心能对抗得了偏执的信仰吗？好怕，我又开始担心以敦煌为圆心的那三千里江山了。。#土耳其军事政变#<br><img src="http://ww3.sinaimg.cn/large/64dd4f89jw1f5vytlyofmj20m80ii76z.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3997943658923695" target="freeweibo-mirror">最右//@菲力先生:学雷锋还要改名？ //@吴顾问1970:…</a>
 </h2>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3997921252649653" target="freeweibo-mirror">公安、政府做的是想让雷洋家属出具“谅解书”，这样法院判刑时可…</a>
 </h2>
 <p>公安、政府做的是想让雷洋家属出具“谅解书”，这样法院判刑时可以从轻。这种逼迫受害人家属出具“谅解书”，本质上是一种干涉司法、滥用权力的违法行为。公诉案件不存在受害人撤诉问题，是谅解不谅解的问题。<br><br>RE: 转自@荣剑 老师：通报雷洋事件的几点情况，1、上边在做雷洋家属的工作，湖南方面是政府部门布置下来的，北京方面是公安内部人士，就是想让家属撤诉，家属深感安全受到威胁。人大校友在帮助家属，鼓励家属挺住，一定要坚持下去。2、人大校友自愿募捐，迄今为止已募集100万元，已转到家属手中。</p>
-<p>
-	<small> ============== 8小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3997916031059296" target="freeweibo-mirror">你起个鸟哄呀？这是公诉案件，检察院不诉还得当事人不自诉。</a>
-</h2>
-<p>你起个鸟哄呀？这是公诉案件，检察院不诉还得当事人不自诉。<br><br>RE: 转自@荣剑 老师：通报雷洋事件的几点情况，1、上边在做雷洋家属的工作，湖南方面是政府部门布置下来的，北京方面是公安内部人士，就是想让家属撤诉，家属深感安全受到威胁。人大校友在帮助家属，鼓励家属挺住，一定要坚持下去。2、人大校友自愿募捐，迄今为止已募集100万元，已转到家属手中。</p>
 <p>
 	<small> ============== 8小时前</small>
 </p>
