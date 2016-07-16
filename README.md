@@ -35,7 +35,7 @@
 </h2>
 <p>SPAM 配合夏天的Simple Silver. @IAM-TINGTING<br><img src="http://ww3.sinaimg.cn/large/70623bbbgw1f5vj3vj0jxj20qo0qoadi.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3997943658923695" target="freeweibo-mirror">最右//@菲力先生:学雷锋还要改名？ //@吴顾问1970:…</a>
 </h2>
@@ -107,7 +107,7 @@
 </h2>
 <p>//@sumtec: 宪法说人民有言论和集会的自由。（啊，我说的是美国，别来跨洋抄水表 //@norton_the_Monster:这特么违法吧？ //@sumtec:庭外接触对方是否可以被认为属于试图贿赂和影响司法公正？<br><br>RE: 转自@荣剑 老师：通报雷洋事件的几点情况，1、上边在做雷洋家属的工作，湖南方面是政府部门布置下来的，北京方面是公安内部人士，就是想让家属撤诉，家属深感安全受到威胁。人大校友在帮助家属，鼓励家属挺住，一定要坚持下去。2、人大校友自愿募捐，迄今为止已募集100万元，已转到家属手中。</p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3997893733687823" target="freeweibo-mirror">//@徐昕:公诉案件且还没起诉，家属怎么撤诉？是不让控告吧？…</a>
 </h2>
