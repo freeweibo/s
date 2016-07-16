@@ -53,13 +53,13 @@
 </h2>
 <p>发表了博文《杨金柱律师致中国30万律师公开信的十点内容》杨金柱律师致中国30万律师公开信的十点内容杨金柱律师明天（星期天）中午12点0分发表《律师为律师辩护的辩护权不能依法得到保障，我们还有脸面做律师http://t.cn/RtPVlhX</p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3997667409006755" target="freeweibo-mirror">SPAM 该来即会来，急也没用。微信测试版 for wind…</a>
 </h2>
 <p>SPAM 该来即会来，急也没用。微信测试版 for windows10已经上架商店，现在是PC端，至于以后正式版会和目前的桌面应用有多大差别，慢慢观察。手机端也不必急躁。<br><img src="http://ww3.sinaimg.cn/large/6f898224jw1f5v2vds31rj21hc0u041z.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3997663948719266" target="freeweibo-mirror">这段时间老做同样的梦，老是梦见被追杀，估计今晚也会做这样的梦…</a>
 </h2>
