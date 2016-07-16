@@ -131,13 +131,13 @@
 </h2>
 <p>欲言又止？//@顧村布衣A: 就恐袭慰问法国，习已经好多次了，感觉每次都是欲言又止//@清风哲文</p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3997726926602755" target="freeweibo-mirror">SPAM [围观] //@时报翔哥:流氓！</a>
 </h2>
 <p>SPAM [围观] //@时报翔哥:流氓！<br><br>RE: 分享图片<br><img src="http://ww2.sinaimg.cn/large/53bd81b0jw1f5upw83svkj20l64xvayn.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p>
 <table>
     <tr>
