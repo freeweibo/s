@@ -65,7 +65,7 @@
 </h2>
 <p>SPAM //@疯狂历史系教授: 打脸//@LifeTime:不仅仅是毛对领土问题随心所欲，中俄边界最终划分等重大问题也是悄悄“代表”拍板了。无论是将军们怒吼的“老祖宗留下的土地一寸不能少”，还是这次网民齐呼的“一点不能少”听起来缺乏真实感。</p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3997646093757538" target="freeweibo-mirror">乔木兄所言极是。。//@上海旅游人王琪: 转发微博</a>
 </h2>
@@ -83,7 +83,7 @@
 </h2>
 <p>SPAM [笑cry] //@RunRabbit09: [喵喵] //@贴吧娘:你们太坏了[喵喵]<br><br>RE: 难怪我看外长总有一种谜一般的熟悉感，看了图一才知道这是为什么 [doge]<br><img src="http://ww2.sinaimg.cn/large/70707858gw1f5uyd5d29jj20cg09cmxa.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3997639802307542" target="freeweibo-mirror">“主权不在民，国不知有民，民何苦有国，都是赵家的。”【比南海…</a>
 </h2>
