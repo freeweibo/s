@@ -59,7 +59,7 @@
 </h2>
 <p>SPAM 军报及多个分社发内容发不出去，这什么节奏？！要颜色革命吗？[吃惊]</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3998016035550474" target="freeweibo-mirror">SPAM →_→//@蓝羽时评:操，这相当于“伪军”在根据地…</a>
 </h2>
@@ -113,13 +113,13 @@
 </h2>
 <p>SPAM //@林爱玥: 细思恐极//@杯中窥人丫:赵薇是在避重就轻，重点是资本控制舆论！！资本控制舆论！！文章没讲到赵薇如何让四大门户不发声，如何控制各大论坛删帖，如何操纵新浪删除共青团、人民日报、国家意识形态研究院等官媒的帖子，更别说有多少网友为此被封号，现在却转移话题，转移大家注意力。</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3998001293217099" target="freeweibo-mirror">SPAM //@巍岳钦禹:哪里封锁的？</a>
 </h2>
 <p>SPAM //@巍岳钦禹:哪里封锁的？</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3998000818491339" target="freeweibo-mirror">SPAM //@谭显荣财富人生: //@PTA老王子:必须查…</a>
 </h2>
