@@ -77,7 +77,7 @@
 </h2>
 <p>“主权不在民，国不知有民，民何苦有国，都是赵家的。”【比南海问题更麻烦的是看热闹心理 | 乔木】 http://t.cn/RtvnFty<br><img src="http://ww4.sinaimg.cn/large/7c0e9549gw1f5uzp7lsogj20pb7pskjl.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3997638833522341" target="freeweibo-mirror">//@糨糊水://@阿迪斯爹://@黄广慈://@新疆张涛:…</a>
 </h2>
