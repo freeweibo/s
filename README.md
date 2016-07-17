@@ -37,6 +37,18 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3998375411747272" target="freeweibo-mirror">SPAM 吃涮肉看你家境问题，呵呵～90后的小崽们就别跟着瞎…</a>
+</h2>
+<p>SPAM 吃涮肉看你家境问题，呵呵～90后的小崽们就别跟着瞎惹惹了。我就问一个问题，北京人家在1990年，有多少人可以随意想吃涮肉就吃涮肉，自家支火锅子，更有甚者，还是只吃从东来顺弄的羊肉？90后小崽懂吃涮肉也得96年以后吧，真正知道滋味也得二十一世纪了吧，在这点，八零后就足够碾压你们了。</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3998370257592510" target="freeweibo-mirror">SPAM 很不错的内容</a>
+</h2>
+<p>SPAM 很不错的内容<br><br>RE: 知神发新消息了，宝贝们赶紧关注：zhishen0808，get你想看的信息~~<br><img src="http://ww4.sinaimg.cn/large/006fDRpEgw1f5wqht7chrj30ku112796.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3998363928426408" target="freeweibo-mirror">体制内乡愿太多，有几人为国分忧？//@平凡的小小兵:团中央此…</a>
 </h2>
 <p>体制内乡愿太多，有几人为国分忧？//@平凡的小小兵:团中央此贴已经被人删除，我再次@共青团中央 ，请团团再发一次。//@朱德泉:举牌的扯布的是同一波，转发抹黑“爱国”的是同一波，用假舆情写歪评论的是同一波。然后黑心外媒和轮子媒体再大肆渲染，国际上污名中国的生产线就是这么在国内组装传递的。<br><br>RE: 听说有人抵制肯德基？然而网民不是傻瓜，反转来了<br><img src="http://ww1.sinaimg.cn/large/005JGRlJgw1f5x4m901etj30kz0bsgoe.jpg"></p>
@@ -47,7 +59,7 @@
 </h2>
 <p>//@筑景园: //@似线的雨: //@天涯赵瑜:@共青团中央  ，我个人觉得，这些青年的出现，你们负有不可推卸的责任。建议发微博说明一下爱国应该做的事情。而不是像现在义和团一样的破坏公共秩序。</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3998357296913740" target="freeweibo-mirror">//@wangxiaoban://@陈光武律师://@昆明律…</a>
 </h2>
@@ -124,18 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3998346031136370" target="freeweibo-mirror">同一批杂碎，经费哪个团队给的？//@朱德泉: 举牌的扯布的是…</a>
 </h2>
 <p>同一批杂碎，经费哪个团队给的？//@朱德泉: 举牌的扯布的是同一波，转发抹黑“爱国”的是同一波，用假舆情写歪评论的是同一波。然后黑心外媒和轮子媒体再大肆渲染，国际上污名中国的生产线就是这么在国内组装传递的//<br><br>RE: 听说有人抵制肯德基？然而网民不是傻瓜，反转来了<br><img src="http://ww1.sinaimg.cn/large/005JGRlJgw1f5x4m901etj30kz0bsgoe.jpg"></p>
-<p>
-	<small> ============== 4小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3998345212978943" target="freeweibo-mirror">//@用脚投票14:我去[哈哈]//@金好多金://@我还是…</a>
-</h2>
-<p>//@用脚投票14:我去[哈哈]//@金好多金://@我还是个布娃娃:革命不分先后，傻逼不论大小。[怒]//@私享A家:中国分大傻逼跟小傻逼 [哈哈]//@Frozen_IV_Sunshine: [哈哈][哈哈][哈哈]//@围渔:赵老爷：哈哈哈，这群傻逼奴才 //@杨佩昌:义和团。//@程中柳://@蒋祖权评论: //@北方猎手: //@律师陆伟民:干嘛不冲<br><br>RE: 南海没打响河北跟肯德基干上了。<br><img src="http://ww4.sinaimg.cn/large/006gg2qjgw1f5x61zncb4j30go2jfahs.jpg"></p>
-<p>
-	<small> ============== 4小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3998344567297186" target="freeweibo-mirror">杀得光就好了。</a>
-</h2>
-<p>杀得光就好了。<br><br>RE: 反对者，格杀勿论。<br><img src="http://ww3.sinaimg.cn/large/006tloOpgw1f5wpcgl92tj30qo2wre2a.jpg"></p>
 <p>
 	<small> ============== 4小时前</small>
 </p>
