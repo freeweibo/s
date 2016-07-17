@@ -71,7 +71,7 @@
 </h2>
 <p>//@wangxiaoban://@陈光武律师://@昆明律师许思龙: @环球时报 快来辟谣！@//@梅丽芳菲://@华夏天会再蓝3://@阿淡6://@律师音之影://@腾晓东:[衰][衰][衰]<br><br>RE: 斯诺登爆料 :  中国贪官海外资产可供中国人免费医疗625年<br><img src="http://ww1.sinaimg.cn/large/005Akz8ajw1f5wum11vkaj30hs0qomz0.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3998356567536406" target="freeweibo-mirror">//@点子正:→_→//@朱德泉:举牌的扯布的是同一波，转发…</a>
 </h2>
