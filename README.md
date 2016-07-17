@@ -47,7 +47,7 @@
 </h2>
 <p>//@沉默的历史39://@扬尘无风://@WK浩: 转发微博<br><br>RE: 几千村民每天的游行活动就能看出林老在村里的威望，地方当局实在是太低估乌坎村民了，连当官都要村民教你怎么当，一厢情愿的以为放几条狗嗷嗷叫几声，然后村民就理所当然的退缩了，实在是可笑之至！<br><img src="http://ww2.sinaimg.cn/large/9dcb1d4cgw1f5waw94vhyj20qo1bdk1s.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3998193966091616" target="freeweibo-mirror">回复@亲医用皮肤记号笔该补货了吧:右边你还是个公众号呢，说话…</a>
 </h2>
@@ -95,7 +95,7 @@
 </h2>
 <p>//@章诒和:转发微博</p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3998136462222275" target="freeweibo-mirror">//@北京四九城儿: //@章诒和:转发微博</a>
 </h2>
@@ -119,7 +119,7 @@
 </h2>
 <p>SPAM 记住。一代代。</p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3998065780262303" target="freeweibo-mirror">那一年那一月，那辆坦克那条街</a>
 </h2>
