@@ -35,7 +35,7 @@
 </h2>
 <p>SPAM //@朱学东://@王周生://@馬鳴謙:改开年代正式终结，新帝制时期开启。//@封龙君: [蜡烛]//@陆浑戎:路过<br><br>RE: 分享图片<br><img src="http://ww4.sinaimg.cn/large/543c442bjw1f5wwxtb723j20b451x1kx.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3998256394664685" target="freeweibo-mirror">SPAM //@王周生://@馬鳴謙:改开年代正式终结，新帝…</a>
 </h2>
@@ -89,7 +89,7 @@
 </h2>
 <p>SPAM //@雷颐: //@张清专栏:不诡异，不诧异，但不能不在意。<br><br>RE: 发生在北京某杂志社的事情～～相当诡异～～本来～～既然有协议在先～～就该按章办事啊<br><img src="http://ww3.sinaimg.cn/large/5943c293gw1f5w844pdeuj20k00k0din.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3998218372606972" target="freeweibo-mirror">SPAM //@封龙君://@不將袍子換袈裟:回复@山中修道…</a>
 </h2>
