@@ -19,6 +19,18 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3998144846495826" target="freeweibo-mirror">忘不了[蜡烛]//@圆排骨来了://@章诒和: 转发微博</a>
+</h2>
+<p>忘不了[蜡烛]//@圆排骨来了://@章诒和: 转发微博</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3998144352598723" target="freeweibo-mirror">//@章诒和:转发微博</a>
+</h2>
+<p>//@章诒和:转发微博</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3998032129481309" target="freeweibo-mirror">//@北京的齐爷://@豫R大地:大写的人。[good] /…</a>
 </h2>
 <p>//@北京的齐爷://@豫R大地:大写的人。[good] //@唤醒不醒拉倒001://@斯韦爵: //@星风辉辰://@大送朝过客:转发微博<br><br>RE: 今天是新公民運動推動者，許志永博士蒙難入獄三週年。許志永，公盟創始人之一，新公民運動的標誌性人物，中國著名青年法學家、憲政學者和公民維權的領軍人物。倡導公民以非暴力的方式維護自己的權益，要求給予國民平等接受教育的權利，要求官員公布財產，並懲治腐敗。 http://t.cn/R2WJvly<br><img src="http://ww2.sinaimg.cn/large/006p8M2Kjw1f5w76csqqpj30sg0p9wij.jpg"></p>
@@ -47,19 +59,19 @@
 </h2>
 <p>SPAM 公然宣战了//@张忆安-龙战于野:恍如回到解放前</p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3998019370239434" target="freeweibo-mirror">今天是新公民運動推動者，許志永博士蒙難入獄三週年。許志永，公…</a>
 </h2>
 <p>今天是新公民運動推動者，許志永博士蒙難入獄三週年。許志永，公盟創始人之一，新公民運動的標誌性人物，中國著名青年法學家、憲政學者和公民維權的領軍人物。倡導公民以非暴力的方式維護自己的權益，要求給予國民平等接受教育的權利，要求官員公布財產，並懲治腐敗。 http://t.cn/R2WJvly<br><img src="http://ww2.sinaimg.cn/large/006p8M2Kjw1f5w76csqqpj30sg0p9wij.jpg"></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3998019211308526" target="freeweibo-mirror">//@马上的仟毛:说的是！  http://t.cn/Rth…</a>
 </h2>
 <p>//@马上的仟毛:说的是！  http://t.cn/Rthq3vM //@viva_la_france:右边明显需要一点常识，街头飙坦克本来就是北约老大美国先玩出来的[doge]至于天朝根本没碾过人 //@马上的仟毛:不会吧……好歹也算北约之一啊，怎么沦落到跟中国“人民解放军”一个操行了？</p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3998017960864479" target="freeweibo-mirror">//@俯瞰中华:右边你真毒！//@平淡激越: 所以，若中国有…</a>
 </h2>
@@ -126,18 +138,6 @@
 <p>SPAM 【今日社会】►73死滑坡事故无1人露面 中央为深圳掩盖什么？ http://t.cn/RtPzAEi►华裔商人随商贸团访华被捕 以危害国安罪起诉 http://t.cn/RtPi3OF►北京锋锐律所4人涉颠覆国家政权罪被提起公诉 http://t.cn/RtPPAfB►成都夫妇种下1200余亩私家花园 把生活过成诗 http://t.cn/RtP32wL<br><img src="http://ww4.sinaimg.cn/large/6e5a43b3jw1f5w5yc485fj20g4093dgc.jpg"></p>
 <p>
 	<small> ============== 10小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3998002559222751" target="freeweibo-mirror">SPAM 军报及多个分社发内容发不出去，这什么节奏？！</a>
-</h2>
-<p>SPAM 军报及多个分社发内容发不出去，这什么节奏？！</p>
-<p>
-	<small> ============== 11小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3998001993672399" target="freeweibo-mirror">SPAM //@林爱玥: 细思恐极//@杯中窥人丫:赵薇是在…</a>
-</h2>
-<p>SPAM //@林爱玥: 细思恐极//@杯中窥人丫:赵薇是在避重就轻，重点是资本控制舆论！！资本控制舆论！！文章没讲到赵薇如何让四大门户不发声，如何控制各大论坛删帖，如何操纵新浪删除共青团、人民日报、国家意识形态研究院等官媒的帖子，更别说有多少网友为此被封号，现在却转移话题，转移大家注意力。</p>
-<p>
-	<small> ============== 11小时前</small>
 </p>
 <table>
     <tr>
