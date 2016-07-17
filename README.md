@@ -83,7 +83,7 @@
 </h2>
 <p>SPAM 这己不是金钱问题，而是政治事件了！#赵薇事件# #资本控制舆论#</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3998022554180149" target="freeweibo-mirror">SPAM →_→//@elephant_rain:还有这个真…</a>
 </h2>
