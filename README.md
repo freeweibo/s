@@ -23,7 +23,7 @@
 </h2>
 <p>//@章诒和: 转发微博</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3998149368235002" target="freeweibo-mirror">SPAM //@东林居士2011: //@冰海雪涛45:@大…</a>
 </h2>
@@ -89,7 +89,7 @@
 </h2>
 <p>SPAM →_→//@elephant_rain:还有这个真就没人管了吗 http://t.cn/Rth5odn</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3998020602850793" target="freeweibo-mirror">SPAM //@幸运段誉:资本家删帖，你可以开另一个媒体和对…</a>
 </h2>
