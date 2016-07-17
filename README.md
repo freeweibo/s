@@ -31,6 +31,12 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3998266876464148" target="freeweibo-mirror">不砸不是中国人！整天大骂汉奸走狗的爱国贼，不是要砸日本货美国…</a>
+</h2>
+<p>不砸不是中国人！整天大骂汉奸走狗的爱国贼，不是要砸日本货美国货吗？看图：这个美国的原装进口波音747-400，日本的丰田考斯特，你们敢砸吗？不要光找软的捏！呼吁爱国青年们，行动起来，砸了美国货！坚决抵制美国！让领导们坐牛车风筝出国访问！还是轿子好。环保。[哈哈][哈哈][哈哈][哈哈][哈哈]<br><img src="http://ww3.sinaimg.cn/large/00688foJjw1f5wzg13v21j305k08174h.jpg"></p>
+<p>
+	<small> ============== 6小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3998262375129874" target="freeweibo-mirror">SPAM //@魏力在北京: //@朱学东://@王周生:/…</a>
 </h2>
 <p>SPAM //@魏力在北京: //@朱学东://@王周生://@馬鳴謙:改开年代正式终结，新帝制时期开启。//@封龙君: [蜡烛]//@陆浑戎:路过<br><br>RE: 分享图片<br><img src="http://ww4.sinaimg.cn/large/543c442bjw1f5wwxtb723j20b451x1kx.jpg"></p>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3998205886646210" target="freeweibo-mirror">//@李方平律师://@邓相超://@郭顺guoshun: …</a>
 </h2>
 <p>//@李方平律师://@邓相超://@郭顺guoshun: 不将杀人凶犯绳之以法，赔7000万也不行！//@贬香-地震-神秘:公安局犯事，民政局埋单！特色逻辑真TM奇葩！//@宝宝xfshi: 民政局赔[疑问]纳税人买单后，雷洋案继续[思考]//@农夫李生://@丰佐先生://@克鲁伦河之波:拿钱就可以买命，还要法律干什么？</p>
-<p>
-	<small> ============== 10小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3998204858989881" target="freeweibo-mirror">//@沉默的历史39://@扬尘无风://@WK浩: 转发微…</a>
-</h2>
-<p>//@沉默的历史39://@扬尘无风://@WK浩: 转发微博<br><br>RE: 几千村民每天的游行活动就能看出林老在村里的威望，地方当局实在是太低估乌坎村民了，连当官都要村民教你怎么当，一厢情愿的以为放几条狗嗷嗷叫几声，然后村民就理所当然的退缩了，实在是可笑之至！<br><img src="http://ww2.sinaimg.cn/large/9dcb1d4cgw1f5waw94vhyj20qo1bdk1s.jpg"></p>
 <p>
 	<small> ============== 10小时前</small>
 </p>
