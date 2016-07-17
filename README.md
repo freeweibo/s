@@ -65,7 +65,7 @@
 </h2>
 <p>//@沉默的历史39://@扬尘无风://@WK浩: 转发微博<br><br>RE: 几千村民每天的游行活动就能看出林老在村里的威望，地方当局实在是太低估乌坎村民了，连当官都要村民教你怎么当，一厢情愿的以为放几条狗嗷嗷叫几声，然后村民就理所当然的退缩了，实在是可笑之至！<br><img src="http://ww2.sinaimg.cn/large/9dcb1d4cgw1f5waw94vhyj20qo1bdk1s.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3998202929751137" target="freeweibo-mirror">#武大郎保妻#郓哥没钱，想向武大郎赊个吹饼，武大郎不给。郓哥…</a>
 </h2>
@@ -119,7 +119,7 @@
 </h2>
 <p>//@章诒和:转发微博</p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3998136462222275" target="freeweibo-mirror">//@北京四九城儿: //@章诒和:转发微博</a>
 </h2>
