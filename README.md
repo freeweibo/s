@@ -35,7 +35,7 @@
 </h2>
 <p>忘不了[蜡烛]//@圆排骨来了://@章诒和: 转发微博</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3998144352598723" target="freeweibo-mirror">//@章诒和:转发微博</a>
 </h2>
@@ -59,7 +59,7 @@
 </h2>
 <p>當人命貼上「價碼」時，殺人不過就是一門「生意」。<br><img src="http://ww4.sinaimg.cn/large/006uBwhRgw1f5wk18fbpuj30k00zkgoc.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3998129303543146" target="freeweibo-mirror">SPAM 记住。一代代。</a>
 </h2>
