@@ -77,7 +77,7 @@
 </h2>
 <p>//@老张_39030: //@骑牛隐士:一看就是吃不起肯德基的混混。//@杜子建: 这都什么奇葩呀？</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3998327487952845" target="freeweibo-mirror">//@杜强强cnu: 转发微博</a>
 </h2>
