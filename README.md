@@ -23,7 +23,7 @@
 </h2>
 <p>SPAM [围观]//@全震动: //@胡新宇-filmmaker: //@LifeTime:党媒添新火了。//@李方平律师：作者雷希颖，团中央网络智库成员</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3998382278039351" target="freeweibo-mirror">SPAM  //@咖啡叶子爱评论://@LifeTime:党…</a>
 </h2>
@@ -77,7 +77,7 @@
 </h2>
 <p>//@点子正:→_→//@朱德泉:举牌的扯布的是同一波，转发抹黑“爱国”的是同一波，用假舆情写歪评论的是同一波。然后黑心外媒和轮子媒体再大肆渲染，国际上污名中国的生产线就是这么在国内组装传递的<br><br>RE: 听说有人抵制肯德基？然而网民不是傻瓜，反转来了<br><img src="http://ww1.sinaimg.cn/large/005JGRlJgw1f5x4m901etj30kz0bsgoe.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3998355136822235" target="freeweibo-mirror">举牌的扯布的这批人冒充爱国者，为的是给爱国抹黑。//@椒江叶…</a>
 </h2>
