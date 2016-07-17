@@ -53,7 +53,7 @@
 </h2>
 <p>SPAM //@胡发云:记住。一代代。</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3998130305927538" target="freeweibo-mirror">當人命貼上「價碼」時，殺人不過就是一門「生意」。</a>
 </h2>
@@ -83,7 +83,7 @@
 </h2>
 <p>SPAM 这己不是金钱问题，而是政治事件了！#赵薇事件# #资本控制舆论#</p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3998022554180149" target="freeweibo-mirror">SPAM →_→//@elephant_rain:还有这个真…</a>
 </h2>
