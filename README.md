@@ -29,7 +29,7 @@
 </h2>
 <p>SPAM //@东林居士2011: //@冰海雪涛45:@大佬杨<br><br>RE: 當人命貼上「價碼」時，殺人不過就是一門「生意」。<br><img src="http://ww4.sinaimg.cn/large/006uBwhRgw1f5wk18fbpuj30k00zkgoc.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3998144846495826" target="freeweibo-mirror">忘不了[蜡烛]//@圆排骨来了://@章诒和: 转发微博</a>
 </h2>
@@ -42,6 +42,18 @@
 <p>//@章诒和:转发微博</p>
 <p>
 	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3998136462222275" target="freeweibo-mirror">//@北京四九城儿: //@章诒和:转发微博</a>
+</h2>
+<p>//@北京四九城儿: //@章诒和:转发微博</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3998131651923079" target="freeweibo-mirror">SPAM //@胡发云:记住。一代代。</a>
+</h2>
+<p>SPAM //@胡发云:记住。一代代。</p>
+<p>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3998129303543146" target="freeweibo-mirror">SPAM 记住。一代代。</a>
 </h2>
@@ -124,18 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3998016035550474" target="freeweibo-mirror">SPAM →_→//@蓝羽时评:操，这相当于“伪军”在根据地…</a>
 </h2>
 <p>SPAM →_→//@蓝羽时评:操，这相当于“伪军”在根据地内关“司令部”的禁闭！这到底是在“解放区”还是“敌占区”？</p>
-<p>
-	<small> ============== 10小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3998015587351431" target="freeweibo-mirror">SPAM //@ripeachtime://@张忆安-龙战于…</a>
-</h2>
-<p>SPAM //@ripeachtime://@张忆安-龙战于野: 恍如回到解放前</p>
-<p>
-	<small> ============== 10小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3998013263863332" target="freeweibo-mirror">[哈哈]//@摸着石头过河---水太深: //@三俗大哥:/…</a>
-</h2>
-<p>[哈哈]//@摸着石头过河---水太深: //@三俗大哥://@多多爸比: //@为常识而奋斗2://@应祖庆律师://@泪水不再有温度:[哈哈] //@小道信息://@专业婚姻家庭律师: [哈哈]//@邓树林律师://@李保毅1: [哈哈]//@仰嶽Admire仰嶽: [嘻嘻]//@一條游龍A //@大道荣生:[哈哈]//@惊醒的家奴37: [哈哈][赞]// 转发微博<br><br>RE: 北大议会上，一社会系学生问导师：既然社会主义比资本主义优越，那为什么苏联没了美国还在呢？导师：求你别问了，我只是混口饭吃，不要刁难我了。</p>
 <p>
 	<small> ============== 10小时前</small>
 </p>
