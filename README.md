@@ -29,7 +29,7 @@
 </h2>
 <p>SPAM //@东林居士2011: //@冰海雪涛45:@大佬杨<br><br>RE: 當人命貼上「價碼」時，殺人不過就是一門「生意」。<br><img src="http://ww4.sinaimg.cn/large/006uBwhRgw1f5wk18fbpuj30k00zkgoc.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3998144846495826" target="freeweibo-mirror">忘不了[蜡烛]//@圆排骨来了://@章诒和: 转发微博</a>
 </h2>
@@ -95,7 +95,7 @@
 </h2>
 <p>SPAM //@幸运段誉:资本家删帖，你可以开另一个媒体和对着干啊。政治家删帖，你怎么地？如果(我说的是如果)资本家敢删D媒的帖，这是未必是坏事。</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3998019559285565" target="freeweibo-mirror">SPAM 公然宣战了//@张忆安-龙战于野:恍如回到解放前</a>
 </h2>
