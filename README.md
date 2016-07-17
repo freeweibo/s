@@ -35,7 +35,7 @@
 </h2>
 <p>SPAM //@王周生://@馬鳴謙:改开年代正式终结，新帝制时期开启。//@封龙君: [蜡烛]//@陆浑戎:路过<br><br>RE: 分享图片<br><img src="http://ww4.sinaimg.cn/large/543c442bjw1f5wwxtb723j20b451x1kx.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3998252136818328" target="freeweibo-mirror">//@社会温暖官员残暴://@朝阳真邪恶: //@阿依土豪公…</a>
 </h2>
@@ -131,7 +131,7 @@
 </h2>
 <p>//@章诒和: 转发微博</p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3998149368235002" target="freeweibo-mirror">SPAM //@东林居士2011: //@冰海雪涛45:@大…</a>
 </h2>
