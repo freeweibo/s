@@ -47,13 +47,13 @@
 </h2>
 <p>SPAM //@馬鳴謙:改开年代正式终结，新帝制时期开启。//@封龙君: [蜡烛]//@陆浑戎:路过<br><br>RE: 分享图片<br><img src="http://ww4.sinaimg.cn/large/543c442bjw1f5wwxtb723j20b451x1kx.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3998254859975737" target="freeweibo-mirror">SPAM 独裁必败，拭目以待！</a>
 </h2>
 <p>SPAM 独裁必败，拭目以待！<br><br>RE: 分享图片<br><img src="http://ww4.sinaimg.cn/large/543c442bjw1f5wwxtb723j20b451x1kx.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3998252136818328" target="freeweibo-mirror">//@社会温暖官员残暴://@朝阳真邪恶: //@阿依土豪公…</a>
 </h2>
@@ -77,7 +77,7 @@
 </h2>
 <p>//@崔心-君应有语: 评论区分红成片，今年小粉红数量激增，但是整体质量下滑的严重。秦书记他们已经饥不择食了！//@LUCY若水:我去！一咧嘴就索命，现在小粉红的口炮都这么腻害了！ //@李佳佳Audrey:今天收到的第59个死亡威胁。晚安哦～[爱你]//@大蜗牛爱流浪:我希望你去死一死，与国家无关<br><br>RE: 李佳佳：逼人屈服，大国就撅起了吗？<br><img src="http://ww2.sinaimg.cn/large/7c0e9549gw1f5vlhvq530j20u0ntfx6t.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3998230243537014" target="freeweibo-mirror">SPAM [哈哈][哈哈][哈哈]//@风青杨V://@冬天…</a>
 </h2>
@@ -101,7 +101,7 @@
 </h2>
 <p>SPAM 杯啊，来一杯喵？</p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3998207799419556" target="freeweibo-mirror">大家都恨金大爷，指望金二爷能改变。金二爷上台了，却更倒退，大…</a>
 </h2>
@@ -131,7 +131,7 @@
 </h2>
 <p>回复@亲医用皮肤记号笔该补货了吧:右边你还是个公众号呢，说话不过脑子也不嫌丢人？//@亲医用皮肤记号笔该补货了吧:我认为你是鹦鹉学舌，人云亦云，反对马列主义的当权者肯定要丑化马列主义，还是毛主席说的好，敌人反对的，我们就支持。你是否收了和平演变基金的钱？<br><br>RE: 【铁证如山】所有的共产主义运动都彻底失败了，连朝鲜都不提共产主义了，越南也不提了，古巴也不提了。马恩的诞生之地也抛弃了共产主义。我前几天到德国的马克思故居去看，他们把马克思当一个哲学家展示，但在最后一个房间却布置了“马克思主义对全人类带来的灾难”。马主义已是公认历史垃圾。土家野夫</p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3998190321474491" target="freeweibo-mirror">回复@陈业文新大都:佛教不也有禅宗密宗之分，教会不也有门派嘛…</a>
 </h2>
