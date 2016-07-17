@@ -29,7 +29,7 @@
 </h2>
 <p>SPAM //@封龙君://@不將袍子換袈裟:回复@山中修道:我的意思是有没有人下载下来打个包……一篇篇下太痛苦了……//@山中修道:cnki有//@不將袍子換袈裟:《炎黄》之前的文章有全面电子化吗？//@土拉河:我就想到不忘初心了<br><br>RE: 杜老发声～～～<br><img src="http://ww2.sinaimg.cn/large/5943c293gw1f5w8poem2cj20zk0qo76c.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3998208978514453" target="freeweibo-mirror">SPAM 杯啊，来一杯喵？</a>
 </h2>
