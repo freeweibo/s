@@ -71,7 +71,7 @@
 </h2>
 <p>那一年那一月，那辆坦克那条街<br><img src="http://ww3.sinaimg.cn/large/006tSWjSgw1f5wcm0fwphj30lg0tmdlq.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3998032129481309" target="freeweibo-mirror">//@北京的齐爷://@豫R大地:大写的人。[good] /…</a>
 </h2>
@@ -95,7 +95,7 @@
 </h2>
 <p>SPAM //@幸运段誉:资本家删帖，你可以开另一个媒体和对着干啊。政治家删帖，你怎么地？如果(我说的是如果)资本家敢删D媒的帖，这是未必是坏事。</p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3998019559285565" target="freeweibo-mirror">SPAM 公然宣战了//@张忆安-龙战于野:恍如回到解放前</a>
 </h2>
