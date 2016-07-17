@@ -23,7 +23,7 @@
 </h2>
 <p>//@章诒和: 转发微博</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3998149368235002" target="freeweibo-mirror">SPAM //@东林居士2011: //@冰海雪涛45:@大…</a>
 </h2>
@@ -52,6 +52,12 @@
 	<a href="https://freeweibo.com/weibo/3998131651923079" target="freeweibo-mirror">SPAM //@胡发云:记住。一代代。</a>
 </h2>
 <p>SPAM //@胡发云:记住。一代代。</p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3998130305927538" target="freeweibo-mirror">當人命貼上「價碼」時，殺人不過就是一門「生意」。</a>
+</h2>
+<p>當人命貼上「價碼」時，殺人不過就是一門「生意」。<br><img src="http://ww4.sinaimg.cn/large/006uBwhRgw1f5wk18fbpuj30k00zkgoc.jpg"></p>
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3998016728405087" target="freeweibo-mirror">SPAM 军报及多个分社发内容发不出去，这什么节奏？！要颜色…</a>
 </h2>
 <p>SPAM 军报及多个分社发内容发不出去，这什么节奏？！要颜色革命吗？[吃惊]</p>
-<p>
-	<small> ============== 10小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3998016035550474" target="freeweibo-mirror">SPAM →_→//@蓝羽时评:操，这相当于“伪军”在根据地…</a>
-</h2>
-<p>SPAM →_→//@蓝羽时评:操，这相当于“伪军”在根据地内关“司令部”的禁闭！这到底是在“解放区”还是“敌占区”？</p>
 <p>
 	<small> ============== 10小时前</small>
 </p>
