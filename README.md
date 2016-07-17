@@ -65,13 +65,13 @@
 </h2>
 <p>//@ITM-都市猎人:要砸就砸高级货[嘻嘻]<br><br>RE: 不砸不是中国人！整天大骂汉奸走狗的爱国贼，不是要砸日本货美国货吗？看图：这个美国的原装进口波音747-400，日本的丰田考斯特，你们敢砸吗？不要光找软的捏！呼吁爱国青年们，行动起来，砸了美国货！坚决抵制美国！让领导们坐牛车风筝出国访问！还是轿子好。环保。[哈哈][哈哈][哈哈][哈哈][哈哈]<br><img src="http://ww3.sinaimg.cn/large/00688foJjw1f5wzg13v21j305k08174h.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3998333821548401" target="freeweibo-mirror">SPAM [偷笑]//@曹先生2012H: //@冰医123…</a>
 </h2>
 <p>SPAM [偷笑]//@曹先生2012H: //@冰医123: [哈哈][哈哈][哈哈]<br><br>RE: 轮到政府被屁民“维稳”，不知情绪是否稳定？哈哈 http://t.cn/RU1yaH1<br><img src="http://ww1.sinaimg.cn/large/006u7MRbgw1f5x1ind1n5j307x08dwf4.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3998331732592195" target="freeweibo-mirror">//@老张_39030: //@骑牛隐士:一看就是吃不起肯德…</a>
 </h2>
@@ -95,7 +95,7 @@
 </h2>
 <p>//@李保毅1:[哈哈][哈哈][哈哈]//@公民高高杨021: [笑cry][笑cry][笑cry]<br><br>RE: 不砸不是中国人！整天大骂汉奸走狗的爱国贼，不是要砸日本货美国货吗？看图：这个美国的原装进口波音747-400，日本的丰田考斯特，你们敢砸吗？不要光找软的捏！呼吁爱国青年们，行动起来，砸了美国货！坚决抵制美国！让领导们坐牛车风筝出国访问！还是轿子好。环保。[哈哈][哈哈][哈哈][哈哈][哈哈]<br><img src="http://ww3.sinaimg.cn/large/00688foJjw1f5wzg13v21j305k08174h.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3998299532986257" target="freeweibo-mirror">人肉一下这个傻逼，这种脑残也只有到肯德基吓唬普通老百姓的本事…</a>
 </h2>
@@ -131,7 +131,7 @@
 </h2>
 <p>SPAM //@陆浑戎:路过<br><br>RE: 分享图片<br><img src="http://ww4.sinaimg.cn/large/543c442bjw1f5wwxtb723j20b451x1kx.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3998257694756626" target="freeweibo-mirror">SPAM //@朱学东://@王周生://@馬鳴謙:改开年代…</a>
 </h2>
