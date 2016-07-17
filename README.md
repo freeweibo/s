@@ -29,7 +29,7 @@
 </h2>
 <p>//@wangxiaoban://@陈光武律师://@昆明律师许思龙: @环球时报 快来辟谣！@//@梅丽芳菲://@华夏天会再蓝3://@阿淡6://@律师音之影://@腾晓东:[衰][衰][衰]<br><br>RE: 斯诺登爆料 :  中国贪官海外资产可供中国人免费医疗625年<br><img src="http://ww1.sinaimg.cn/large/005Akz8ajw1f5wum11vkaj30hs0qomz0.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3998354290193444" target="freeweibo-mirror">//@张宏杰:[飞机]</a>
 </h2>
@@ -89,7 +89,7 @@
 </h2>
 <p>SPAM //@博者文摘:转发微博<br><br>RE: 求辟谣:是真的吗？（因转发键被没收.重发）<br><img src="http://ww3.sinaimg.cn/large/006wjydejw1f5wztvq76hj30k50g8gom.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3998341824327018" target="freeweibo-mirror">//@杨佩昌:不听不听，就是不听！//@昆明律师许思龙:@环…</a>
 </h2>
