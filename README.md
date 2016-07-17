@@ -133,9 +133,9 @@
 <p>
 	<small> ============== 8小时前</small>
 </p><h2>
-	<a href="https://freeweibo.com/weibo/3998245871116151" target="freeweibo-mirror">SPAM [哈哈]//@ff888水儿:[哈哈][哈哈][哈…</a>
+	<a href="https://freeweibo.com/weibo/3998246054954470" target="freeweibo-mirror">局内人评论南海问题</a>
 </h2>
-<p>SPAM [哈哈]//@ff888水儿:[哈哈][哈哈][哈哈]//@中郑培杰:金莲是武大郎的[哈哈]//@于菲088:轉發微博<br><br>RE: #武大郎保妻#郓哥没钱，想向武大郎赊个吹饼，武大郎不给。郓哥找王婆支招，王婆说:“你只要在武大郎面前大喊一声‘潘金莲是武大郎的’，保你日日不愁吹饼吃！”  郓哥照做，武大郎果然高高兴兴给了郓哥几个吹饼。  郓哥问王婆个中秘诀，王婆说:没啥，没用的怂货都吃这一套。[偷乐]<br><img src="http://ww1.sinaimg.cn/large/006exSwHgw1f5wr4k9477j30k00dlq3k.jpg"></p>
+<p>局内人评论南海问题<br><img src="http://ww3.sinaimg.cn/large/006tloOpgw1f5wxbsoc5fj30qo3ldkjl.jpg"></p>
 <p>
 	<small> ============== 8小时前</small>
 </p>
