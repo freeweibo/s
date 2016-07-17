@@ -37,6 +37,12 @@
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3998356567536406" target="freeweibo-mirror">//@点子正:→_→//@朱德泉:举牌的扯布的是同一波，转发…</a>
+</h2>
+<p>//@点子正:→_→//@朱德泉:举牌的扯布的是同一波，转发抹黑“爱国”的是同一波，用假舆情写歪评论的是同一波。然后黑心外媒和轮子媒体再大肆渲染，国际上污名中国的生产线就是这么在国内组装传递的<br><br>RE: 听说有人抵制肯德基？然而网民不是傻瓜，反转来了<br><img src="http://ww1.sinaimg.cn/large/005JGRlJgw1f5x4m901etj30kz0bsgoe.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3998355136822235" target="freeweibo-mirror">举牌的扯布的这批人冒充爱国者，为的是给爱国抹黑。//@椒江叶…</a>
 </h2>
 <p>举牌的扯布的这批人冒充爱国者，为的是给爱国抹黑。//@椒江叶Sir: 坏蛋挤一堆了！ //@农民工入城://@点子正:→_→//@朱德泉:举牌的扯布的是同一波，转发抹黑“爱国”的是同一波，用假舆情写歪评论的是同一波。然后黑心外媒和轮子媒体再大肆渲染，国际上污名中国的生产线就是这么在国内组装传递的<br><br>RE: 听说有人抵制肯德基？然而网民不是傻瓜，反转来了<br><img src="http://ww1.sinaimg.cn/large/005JGRlJgw1f5x4m901etj30kz0bsgoe.jpg"></p>
@@ -97,11 +103,17 @@
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3998346031136370" target="freeweibo-mirror">同一批杂碎，经费哪个团队给的？//@朱德泉: 举牌的扯布的是…</a>
+</h2>
+<p>同一批杂碎，经费哪个团队给的？//@朱德泉: 举牌的扯布的是同一波，转发抹黑“爱国”的是同一波，用假舆情写歪评论的是同一波。然后黑心外媒和轮子媒体再大肆渲染，国际上污名中国的生产线就是这么在国内组装传递的//<br><br>RE: 听说有人抵制肯德基？然而网民不是傻瓜，反转来了<br><img src="http://ww1.sinaimg.cn/large/005JGRlJgw1f5x4m901etj30kz0bsgoe.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3998345212978943" target="freeweibo-mirror">//@用脚投票14:我去[哈哈]//@金好多金://@我还是…</a>
 </h2>
 <p>//@用脚投票14:我去[哈哈]//@金好多金://@我还是个布娃娃:革命不分先后，傻逼不论大小。[怒]//@私享A家:中国分大傻逼跟小傻逼 [哈哈]//@Frozen_IV_Sunshine: [哈哈][哈哈][哈哈]//@围渔:赵老爷：哈哈哈，这群傻逼奴才 //@杨佩昌:义和团。//@程中柳://@蒋祖权评论: //@北方猎手: //@律师陆伟民:干嘛不冲<br><br>RE: 南海没打响河北跟肯德基干上了。<br><img src="http://ww4.sinaimg.cn/large/006gg2qjgw1f5x61zncb4j30go2jfahs.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3998344567297186" target="freeweibo-mirror">杀得光就好了。</a>
 </h2>
@@ -124,18 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3998342684270482" target="freeweibo-mirror">SPAM 丢人！//@杨佩昌:义和团。//@程中柳://@蒋…</a>
 </h2>
 <p>SPAM 丢人！//@杨佩昌:义和团。//@程中柳://@蒋祖权评论: //@北方猎手: //@律师陆伟民:干嘛不冲进去？没种！<br><br>RE: 南海没打响河北跟肯德基干上了。<br><img src="http://ww4.sinaimg.cn/large/006gg2qjgw1f5x61zncb4j30go2jfahs.jpg"></p>
-<p>
-	<small> ============== 4小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3998341824327018" target="freeweibo-mirror">//@杨佩昌:不听不听，就是不听！//@昆明律师许思龙:@环…</a>
-</h2>
-<p>//@杨佩昌:不听不听，就是不听！//@昆明律师许思龙:@环球时报 快来辟谣！@//@梅丽芳菲://@华夏天会再蓝3://@阿淡6://@律师音之影://@腾晓东:[衰][衰][衰]<br><br>RE: 斯诺登爆料 :  中国贪官海外资产可供中国人免费医疗625年<br><img src="http://ww1.sinaimg.cn/large/005Akz8ajw1f5wum11vkaj30hs0qomz0.jpg"></p>
-<p>
-	<small> ============== 4小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3998340414239728" target="freeweibo-mirror">秦晓建议分步实施：一，加强监管协调，将具有系统重要性金融机构…</a>
-</h2>
-<p>秦晓建议分步实施：一，加强监管协调，将具有系统重要性金融机构的监管移交央行，以“一行两会”或设立金融协调委员会的方式，先建立过渡模式；二，在完善宏观审慎管理的基础上，实现功能监管和强化行为监管，最终形成“央行+行为管理局”的模式。这建议外圆，不知里面是什么形状？[偷笑]</p>
 <p>
 	<small> ============== 4小时前</small>
 </p>
