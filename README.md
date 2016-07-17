@@ -41,7 +41,7 @@
 </h2>
 <p>//@章诒和:转发微博</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3998136462222275" target="freeweibo-mirror">//@北京四九城儿: //@章诒和:转发微博</a>
 </h2>
@@ -65,7 +65,7 @@
 </h2>
 <p>SPAM 记住。一代代。</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3998065780262303" target="freeweibo-mirror">那一年那一月，那辆坦克那条街</a>
 </h2>
