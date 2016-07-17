@@ -23,7 +23,7 @@
 </h2>
 <p>忘不了[蜡烛]//@圆排骨来了://@章诒和: 转发微博</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3998144352598723" target="freeweibo-mirror">//@章诒和:转发微博</a>
 </h2>
