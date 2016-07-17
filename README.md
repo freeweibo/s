@@ -23,7 +23,7 @@
 </h2>
 <p>SPAM //@雷颐: //@张清专栏:不诡异，不诧异，但不能不在意。<br><br>RE: 发生在北京某杂志社的事情～～相当诡异～～本来～～既然有协议在先～～就该按章办事啊<br><img src="http://ww3.sinaimg.cn/large/5943c293gw1f5w844pdeuj20k00k0din.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3998218372606972" target="freeweibo-mirror">SPAM //@封龙君://@不將袍子換袈裟:回复@山中修道…</a>
 </h2>
@@ -101,7 +101,7 @@
 </h2>
 <p>//@北京四九城儿: //@章诒和:转发微博</p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3998131651923079" target="freeweibo-mirror">SPAM //@胡发云:记住。一代代。</a>
 </h2>
