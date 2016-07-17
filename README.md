@@ -25,6 +25,12 @@
 <p>
 	<small> ============== 1小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3998258935919651" target="freeweibo-mirror">SPAM //@陆浑戎:路过</a>
+</h2>
+<p>SPAM //@陆浑戎:路过<br><br>RE: 分享图片<br><img src="http://ww4.sinaimg.cn/large/543c442bjw1f5wwxtb723j20b451x1kx.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3998257694756626" target="freeweibo-mirror">SPAM //@朱学东://@王周生://@馬鳴謙:改开年代…</a>
 </h2>
 <p>SPAM //@朱学东://@王周生://@馬鳴謙:改开年代正式终结，新帝制时期开启。//@封龙君: [蜡烛]//@陆浑戎:路过<br><br>RE: 分享图片<br><img src="http://ww4.sinaimg.cn/large/543c442bjw1f5wwxtb723j20b451x1kx.jpg"></p>
@@ -34,6 +40,18 @@
 	<a href="https://freeweibo.com/weibo/3998256394664685" target="freeweibo-mirror">SPAM //@王周生://@馬鳴謙:改开年代正式终结，新帝…</a>
 </h2>
 <p>SPAM //@王周生://@馬鳴謙:改开年代正式终结，新帝制时期开启。//@封龙君: [蜡烛]//@陆浑戎:路过<br><br>RE: 分享图片<br><img src="http://ww4.sinaimg.cn/large/543c442bjw1f5wwxtb723j20b451x1kx.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3998254931129625" target="freeweibo-mirror">SPAM //@馬鳴謙:改开年代正式终结，新帝制时期开启。/…</a>
+</h2>
+<p>SPAM //@馬鳴謙:改开年代正式终结，新帝制时期开启。//@封龙君: [蜡烛]//@陆浑戎:路过<br><br>RE: 分享图片<br><img src="http://ww4.sinaimg.cn/large/543c442bjw1f5wwxtb723j20b451x1kx.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3998254859975737" target="freeweibo-mirror">SPAM 独裁必败，拭目以待！</a>
+</h2>
+<p>SPAM 独裁必败，拭目以待！<br><br>RE: 分享图片<br><img src="http://ww4.sinaimg.cn/large/543c442bjw1f5wwxtb723j20b451x1kx.jpg"></p>
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
@@ -53,7 +71,7 @@
 </h2>
 <p>SPAM [哈哈]//@ff888水儿:[哈哈][哈哈][哈哈]//@中郑培杰:金莲是武大郎的[哈哈]//@于菲088:轉發微博<br><br>RE: #武大郎保妻#郓哥没钱，想向武大郎赊个吹饼，武大郎不给。郓哥找王婆支招，王婆说:“你只要在武大郎面前大喊一声‘潘金莲是武大郎的’，保你日日不愁吹饼吃！”  郓哥照做，武大郎果然高高兴兴给了郓哥几个吹饼。  郓哥问王婆个中秘诀，王婆说:没啥，没用的怂货都吃这一套。[偷乐]<br><img src="http://ww1.sinaimg.cn/large/006exSwHgw1f5wr4k9477j30k00dlq3k.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3998239022282397" target="freeweibo-mirror">//@崔心-君应有语: 评论区分红成片，今年小粉红数量激增，…</a>
 </h2>
@@ -65,7 +83,7 @@
 </h2>
 <p>SPAM [哈哈][哈哈][哈哈]//@风青杨V://@冬天小平果: //@曼谷亲王:精辟[哈哈][good]<br><br>RE: 大家都恨金大爷，指望金二爷能改变。金二爷上台了，却更倒退，大家就开始怀念金大爷，寄希望金三爷。金三爷上台了，还要倒退，大家又开始怀念金二爷，寄希望金四爷。其实，只要金家的专制独裁体制不变，甭管哪个爷上台都一个操行。谁不明白这么浅显的道理，谁就是傻子。转</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3998226665231166" target="freeweibo-mirror">SPAM //@雷颐: //@张清专栏:不诡异，不诧异，但不…</a>
 </h2>
@@ -120,24 +138,6 @@
 <p>回复@陈业文新大都:佛教不也有禅宗密宗之分，教会不也有门派嘛[嘻嘻]//@陈业文新大都:共产党不是马克思主义政党？[嘻嘻]//@郭晏平:马克思主义在我党七大就名存实亡了，代之的是伟大的毛泽东思想[哈哈] //@陈业文新大都://@风青杨时评://@杜君立: //@李佬: //@老树茶业: //@荒堂省三:<br><br>RE: 【铁证如山】所有的共产主义运动都彻底失败了，连朝鲜都不提共产主义了，越南也不提了，古巴也不提了。马恩的诞生之地也抛弃了共产主义。我前几天到德国的马克思故居去看，他们把马克思当一个哲学家展示，但在最后一个房间却布置了“马克思主义对全人类带来的灾难”。马主义已是公认历史垃圾。土家野夫</p>
 <p>
 	<small> ============== 6小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3998183678301737" target="freeweibo-mirror">//@风青杨时评://@杜君立: //@李佬: //@老树茶…</a>
-</h2>
-<p>//@风青杨时评://@杜君立: //@李佬: //@老树茶业: //@荒堂省三: //@三叶草2424585605: @含笑三步癫<br><br>RE: 【铁证如山】所有的共产主义运动都彻底失败了，连朝鲜都不提共产主义了，越南也不提了，古巴也不提了。马恩的诞生之地也抛弃了共产主义。我前几天到德国的马克思故居去看，他们把马克思当一个哲学家展示，但在最后一个房间却布置了“马克思主义对全人类带来的灾难”。马主义已是公认历史垃圾。土家野夫</p>
-<p>
-	<small> ============== 7小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3998183308422953" target="freeweibo-mirror">SPAM 《被陌生人吻，女人必须试一次。》 http://t…</a>
-</h2>
-<p>SPAM 《被陌生人吻，女人必须试一次。》 http://t.cn/RthNhtB</p>
-<p>
-	<small> ============== 7小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3998150131214651" target="freeweibo-mirror">//@章诒和: 转发微博</a>
-</h2>
-<p>//@章诒和: 转发微博</p>
-<p>
-	<small> ============== 9小时前</small>
 </p>
 <table>
     <tr>
