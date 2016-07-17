@@ -67,6 +67,12 @@
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3998282596605029" target="freeweibo-mirror">轮到政府被屁民“维稳”，不知情绪是否稳定？哈哈 http:/…</a>
+</h2>
+<p>轮到政府被屁民“维稳”，不知情绪是否稳定？哈哈 http://t.cn/RU1yaH1<br><img src="http://ww1.sinaimg.cn/large/006u7MRbgw1f5x1ind1n5j307x08dwf4.jpg"></p>
+<p>
+	<small> ============== 5小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3998277567826824" target="freeweibo-mirror">［常识启蒙帖］政府是国家吗？不是！政府是一个国家里管理人民的…</a>
 </h2>
 <p>［常识启蒙帖］政府是国家吗？不是！政府是一个国家里管理人民的一个机构，它类似于小区物业的管理职能，它是由全民授权，有清晰、明确的管理权限的有一定管理期限的管理机构，由宪法的形式体现出来，授权某政党或政治组织来实现， 所以，国家≠党派≠政府！ 因此，批评政府不是骂祖国，更不是五毛所说...全文： http://m.weibo.cn/5973829198/3998277567826824<br><img src="http://ww2.sinaimg.cn/large/006whzRQgw1f5x0xjkmxxj30cs0h1wfj.jpg"></p>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3998245871116151" target="freeweibo-mirror">SPAM [哈哈]//@ff888水儿:[哈哈][哈哈][哈…</a>
 </h2>
 <p>SPAM [哈哈]//@ff888水儿:[哈哈][哈哈][哈哈]//@中郑培杰:金莲是武大郎的[哈哈]//@于菲088:轉發微博<br><br>RE: #武大郎保妻#郓哥没钱，想向武大郎赊个吹饼，武大郎不给。郓哥找王婆支招，王婆说:“你只要在武大郎面前大喊一声‘潘金莲是武大郎的’，保你日日不愁吹饼吃！”  郓哥照做，武大郎果然高高兴兴给了郓哥几个吹饼。  郓哥问王婆个中秘诀，王婆说:没啥，没用的怂货都吃这一套。[偷乐]<br><img src="http://ww1.sinaimg.cn/large/006exSwHgw1f5wr4k9477j30k00dlq3k.jpg"></p>
-<p>
-	<small> ============== 8小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3998239022282397" target="freeweibo-mirror">//@崔心-君应有语: 评论区分红成片，今年小粉红数量激增，…</a>
-</h2>
-<p>//@崔心-君应有语: 评论区分红成片，今年小粉红数量激增，但是整体质量下滑的严重。秦书记他们已经饥不择食了！//@LUCY若水:我去！一咧嘴就索命，现在小粉红的口炮都这么腻害了！ //@李佳佳Audrey:今天收到的第59个死亡威胁。晚安哦～[爱你]//@大蜗牛爱流浪:我希望你去死一死，与国家无关<br><br>RE: 李佳佳：逼人屈服，大国就撅起了吗？<br><img src="http://ww2.sinaimg.cn/large/7c0e9549gw1f5vlhvq530j20u0ntfx6t.jpg"></p>
 <p>
 	<small> ============== 8小时前</small>
 </p>
