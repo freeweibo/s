@@ -23,7 +23,7 @@
 </h2>
 <p>SPAM 真狠//@中壮:不肖子孫？！//@海科haike:一声叹息/@郭55于-华-清华:[转发]<br><br>RE: 辜负了习老生前的期望啊！[泪]<br><img src="http://ww2.sinaimg.cn/large/0062EKBRgw1f5ydujxx7fj30fu0gjjuc.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3998691402040416" target="freeweibo-mirror">SPAM 它说它爹最伟大，死鬼刘汉是傻瓜，一个亿打水漂，老婆…</a>
 </h2>
