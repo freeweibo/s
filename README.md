@@ -19,6 +19,30 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3998691402040416" target="freeweibo-mirror">SPAM 它说它爹最伟大，死鬼刘汉是傻瓜，一个亿打水漂，老婆…</a>
+</h2>
+<p>SPAM 它说它爹最伟大，死鬼刘汉是傻瓜，一个亿打水漂，老婆花的笑哈哈！ http://t.cn/Rt7FZZx //@回灯添酒: 呜呼！中国人。//@西安张显:老胡的儿子胡德平也说两句吧。<br><br>RE: #困兽尤斗！#<br><img src="http://ww2.sinaimg.cn/large/64815b7ajw1f5ybi9bwrgj20go0m8q45.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3998689641084274" target="freeweibo-mirror">SPAM 呜呼！中国人。//@西安张显:老胡的儿子胡德平也说…</a>
+</h2>
+<p>SPAM 呜呼！中国人。//@西安张显:老胡的儿子胡德平也说两句吧。<br><br>RE: #困兽尤斗！#<br><img src="http://ww2.sinaimg.cn/large/64815b7ajw1f5ybi9bwrgj20go0m8q45.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3998688282040130" target="freeweibo-mirror">SPAM 回复@think_do_:老而不死是为贼，负隅顽抗…</a>
+</h2>
+<p>SPAM 回复@think_do_:老而不死是为贼，负隅顽抗思变天！ //@think_do_:应将这个狗汉奸绳之以法。<br><br>RE: #困兽尤斗！#<br><img src="http://ww2.sinaimg.cn/large/64815b7ajw1f5ybi9bwrgj20go0m8q45.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3998686202288486" target="freeweibo-mirror">越来越多的爱国言论，充斥着对于生命的残忍、暴戾与冷血，也充斥…</a>
+</h2>
+<p>越来越多的爱国言论，充斥着对于生命的残忍、暴戾与冷血，也充斥着对于现代文明与秩序的破坏与漠视。这种现象虽不自今日始，却越来越有于今为烈的态势。”<br><br>RE: 1、这篇最后那个小机灵可以不抖。2、胡锡进那段话扭曲到无法直视。3、我最想说的是，这类事件最应该第一时间站出来亮明态度并将肇事者绳之以法的，是当地警方。这种微型义和团，如果警方缺席，如果得不到法律的及时惩罚，下一个九一五屈指可待，而中产群体对未来的不确定感与不安全感也将愈演愈烈。...全文： http://m.weibo.cn/2774892563/3998681021549831</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3998681823286050" target="freeweibo-mirror">SPAM 甘地无可奈何的“不合作主义”。</a>
 </h2>
 <p>SPAM 甘地无可奈何的“不合作主义”。<br><br>RE: 说不出话来<br><img src="http://ww2.sinaimg.cn/large/abf3c072jw1f5ya2n98g3j20qo0zk76x.jpg"></p>
@@ -114,30 +138,6 @@
 <p>SPAM [赞]If you have to die, die in honor!<br><img src="http://ww3.sinaimg.cn/large/8a805d80gw1f5y95nvfkfj20qo0zkdij.jpg"></p>
 <p>
 	<small> ============== 3小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3998661337363025" target="freeweibo-mirror">刚刚看到，这是这个时代的知识分子的耻辱事件。</a>
-</h2>
-<p>刚刚看到，这是这个时代的知识分子的耻辱事件。<br><img src="http://ww3.sinaimg.cn/large/6a25a9b5jw1f5y90rrdz0j20qo0zk785.jpg"></p>
-<p>
-	<small> ============== 3小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3998660717267063" target="freeweibo-mirror">停了！</a>
-</h2>
-<p>停了！<br><img src="http://ww4.sinaimg.cn/large/680d8f00gw1f5y8y8dt9lj20j60pkwgf.jpg"></p>
-<p>
-	<small> ============== 3小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3998645722192679" target="freeweibo-mirror">不比不知道姚晨这么难看//@金陵淞沪苏杭教父斯小开:姚晨，赵…</a>
-</h2>
-<p>不比不知道姚晨这么难看//@金陵淞沪苏杭教父斯小开:姚晨，赵薇，大国师吴稼祥的主子的弟弟，梅婷，周涛。中间这男人和李东生、苏达仁、车峰、郭文贵、芮成钢、王林大师并列号称为中国七大媒人，在香港四季酒店专门介绍大陆港台女明星和大陆官员商人交往。<br><br>RE: 中间那位是谁?[思考]<br><img src="http://ww4.sinaimg.cn/large/aa38daaagw1f5xy8ozw0aj20go0a2gmo.jpg"></p>
-<p>
-	<small> ============== 4小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3998645600350106" target="freeweibo-mirror">谁呀//@金陵淞沪苏杭教父斯小开:姚晨，赵薇，大国师吴稼祥的…</a>
-</h2>
-<p>谁呀//@金陵淞沪苏杭教父斯小开:姚晨，赵薇，大国师吴稼祥的主子的弟弟，梅婷，周涛。中间这男人和李东生、苏达仁、车峰、郭文贵、芮成钢、王林大师并列号称为中国七大媒人，在香港四季酒店专门介绍大陆港台女明星和大陆官员商人交往。<br><br>RE: 中间那位是谁?[思考]<br><img src="http://ww4.sinaimg.cn/large/aa38daaagw1f5xy8ozw0aj20go0a2gmo.jpg"></p>
-<p>
-	<small> ============== 4小时前</small>
 </p>
 <table>
     <tr>
