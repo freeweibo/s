@@ -115,6 +115,12 @@
 <p>
 	<small> ============== 7小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3998595390676969" target="freeweibo-mirror">【求证】路透社消息：美国防部长卡特称赞仲裁后中国军队在南海很…</a>
+</h2>
+<p>【求证】路透社消息：美国防部长卡特称赞仲裁后中国军队在南海很守规则，没有超越各方规定的底线。并十分赞赏中方揢淺争议共同开发南海的明智之举。美方并多次要求菲律宾要保持克制不要刺激中国。仲裁前美中双方曾通过电话达成：中方在不超越仲裁㡳线的前提下，美国决不随意动武的承诺。<br><img src="http://ww1.sinaimg.cn/large/c03c5c2bgw1f5y1fwczbvj20go0ie41b.jpg"></p>
+<p>
+	<small> ============== 7小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3998595110065027" target="freeweibo-mirror">//@邵明波:“原产愤青“之外，无。””//@我是半耳人: …</a>
 </h2>
 <p>//@邵明波:“原产愤青“之外，无。””//@我是半耳人: 你把这些所谓的国产车拆开，看看发动机都是谁生产的！更直接一点，这汽车都特么是中国发明的么？现代100年，除了贡献愤青以外，中国还给世界贡献过什么？别说汽车了！//@余胜海: 团中央这样做是爱国还是祸国?//向中央汇报你们的战绩<br><br>RE: 【直隶青年继续抵制美日韩货】继河北乐亭之后，廊坊爱国青年开清一色国产车扬我国威。看到直隶青年如此爱国，共青团应该满意了吧！<br><img src="http://ww2.sinaimg.cn/large/6a80bfcdgw1f5xyhthspxj20ku112mz8.jpg"></p>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3998591862976102" target="freeweibo-mirror">SPAM [笑cry] http://t.cn/Rt7YSG…</a>
 </h2>
 <p>SPAM [笑cry] http://t.cn/Rt7YSGM<br><br>RE: 坚决抵制KFC!将来开战美帝扔过来的每一发炮弹都有我们赞助的钱[怒]  270×390mm康颂专业素描纸#大尸凶的漫画#<br><img src="http://ww3.sinaimg.cn/large/767e4963jw1f5xb7xmz04j212e0qowly.jpg"></p>
-<p>
-	<small> ============== 7小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3998591158970045" target="freeweibo-mirror">//@谷凯: //@彭园v://@sjkjk2131uusa…</a>
-</h2>
-<p>//@谷凯: //@彭园v://@sjkjk2131uusau01u03:行动之前报备了吗？这是不是扰乱社会秩序、非法集会了？<br><br>RE: 看见郴州居然也抵制肯德基！我想说你怎么不把苹果给砸了！这根本不是爱国。。是在给国家抹黑好吗<br><img src="http://ww4.sinaimg.cn/large/af2d1dc5gw1f5xxgbk0jaj20zk0qogpp.jpg"></p>
 <p>
 	<small> ============== 7小时前</small>
 </p>
