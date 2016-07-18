@@ -29,7 +29,7 @@
 </h2>
 <p>SPAM 因为玉碎不为瓦全。<br><br>RE: 停吧。<br><img src="http://ww3.sinaimg.cn/large/6cefc1a7jw1f5yb7u4z1kj20go0m8abs.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3998677771442681" target="freeweibo-mirror">其实无论读者还是编者这两年来都早已有心理准备 //@骑猪使劲…</a>
 </h2>
