@@ -47,7 +47,7 @@
 </h2>
 <p>SPAM 呜呼！中国人。//@西安张显:老胡的儿子胡德平也说两句吧。<br><br>RE: #困兽尤斗！#<br><img src="http://ww2.sinaimg.cn/large/64815b7ajw1f5ybi9bwrgj20go0m8q45.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3998688282040130" target="freeweibo-mirror">SPAM 回复@think_do_:老而不死是为贼，负隅顽抗…</a>
 </h2>
