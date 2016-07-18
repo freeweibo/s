@@ -29,7 +29,7 @@
 </h2>
 <p>//@没倒挡://@悠野V:删你妹！看到就转//@喷嚏网铂程: 转发微博<br><br>RE: 刚刚看到，这是这个时代的知识分子的耻辱事件。<br><img src="http://ww3.sinaimg.cn/large/6a25a9b5jw1f5y90rrdz0j20qo0zk785.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3998662977468952" target="freeweibo-mirror">SPAM 宁为玉碎，不为瓦全。</a>
 </h2>
