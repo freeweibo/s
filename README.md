@@ -47,13 +47,13 @@
 </h2>
 <p>//@谷凯: //@彭园v://@sjkjk2131uusau01u03:行动之前报备了吗？这是不是扰乱社会秩序、非法集会了？<br><br>RE: 看见郴州居然也抵制肯德基！我想说你怎么不把苹果给砸了！这根本不是爱国。。是在给国家抹黑好吗<br><img src="http://ww4.sinaimg.cn/large/af2d1dc5gw1f5xxgbk0jaj20zk0qogpp.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3998590726450943" target="freeweibo-mirror">//@彭园v://@sjkjk2131uusau01u03:…</a>
 </h2>
 <p>//@彭园v://@sjkjk2131uusau01u03:行动之前报备了吗？这是不是扰乱社会秩序、非法集会了？<br><br>RE: 看见郴州居然也抵制肯德基！我想说你怎么不把苹果给砸了！这根本不是爱国。。是在给国家抹黑好吗<br><img src="http://ww4.sinaimg.cn/large/af2d1dc5gw1f5xxgbk0jaj20zk0qogpp.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3998589615484139" target="freeweibo-mirror">昨天那谁说长江以北才盛产这种物种的过来看看，我大弗兰也历来不…</a>
 </h2>
@@ -82,6 +82,12 @@
 	<a href="https://freeweibo.com/weibo/3998584644791305" target="freeweibo-mirror">//@Ada出生在美国: 连胡总都看不下去这种狂热的极端主义…</a>
 </h2>
 <p>//@Ada出生在美国: 连胡总都看不下去这种狂热的极端主义了……<br><br>RE: 第一，拉这个横幅的人是一帮标准SB。第二，以为这个横幅在中国有代表性，宣扬中国爱国者都这模样的，是标准大SB。中国的肯德基至少上千家，就算拉横幅的人真是因为“爱国”干这事，它所显示的爱国者出精神病的概率，比骂“爱国贼”那帮人里出偏执狂的概率小多了。反对极端爱国主义和极端反爱国主义。<br><img src="http://ww4.sinaimg.cn/large/7697cf01jw1f5xxtjqiaij20k00bdwfz.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3998583776576274" target="freeweibo-mirror">【网曝唐山小伙吃肯德基被路人批“汉奸" 】河北小伙吃肯德基遭…</a>
+</h2>
+<p>【网曝唐山小伙吃肯德基被路人批“汉奸" 】河北小伙吃肯德基遭“爱国青年”打横幅围堵进行“爱国教育”，阻止进入，横幅上写着：“抵制美日韩菲，爱我中华民族，你吃的是美国肯德基，丢的是老祖宗的脸。”  （微评：现在要当个汉奸实在太容易了。）http://t.cn/Rt7lTUH<br><img src="http://ww4.sinaimg.cn/large/59183920gw1f5y038kanij20m30edaeb.jpg"></p>
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3998576771947374" target="freeweibo-mirror">在大街上内急，为爱国拒美帝，我先找爱国贼们开的机关单位方便，…</a>
 </h2>
 <p>在大街上内急，为爱国拒美帝，我先找爱国贼们开的机关单位方便，常常碰壁、不得不上肯德基的卫生间，睁着眼睛被美帝笑话，请问爱国贼们，这事何以解决？<br><br>RE: 第一，拉这个横幅的人是一帮标准SB。第二，以为这个横幅在中国有代表性，宣扬中国爱国者都这模样的，是标准大SB。中国的肯德基至少上千家，就算拉横幅的人真是因为“爱国”干这事，它所显示的爱国者出精神病的概率，比骂“爱国贼”那帮人里出偏执狂的概率小多了。反对极端爱国主义和极端反爱国主义。<br><img src="http://ww4.sinaimg.cn/large/7697cf01jw1f5xxtjqiaij20k00bdwfz.jpg"></p>
-<p>
-	<small> ============== 3小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3998575602504115" target="freeweibo-mirror">踏马一点也不敬业，伪装爱国者之前还不先去删掉之前那些情真意切…</a>
-</h2>
-<p>踏马一点也不敬业，伪装爱国者之前还不先去删掉之前那些情真意切的跪舔花旗国微博[笑cry]不过删掉的话是不是主子的系统就识别不到工作量，没法发工资？？<br><br>RE: 【《林海雪原》情节摘要】杨子荣升任敌滨绥图佳保安第5旅上校团副之后，首次值日巡察威虎山暗堡工事。忽听枪声大作，有人高叫“共军来了”，只见一支队伍向山头冲来。杨子荣冷冷一笑，举枪就打，瞬间毙伤一片。躲在岩后偷窥的座山雕叫苦不迭，忙喊“停火”。原来，这群货全是伪装成解放军的土匪小喽罗<br><img src="http://ww1.sinaimg.cn/large/8b3902cagw1f5xx9ldttjj20k00zk0w2.jpg"></p>
 <p>
 	<small> ============== 3小时前</small>
 </p>
