@@ -83,7 +83,7 @@
 </h2>
 <p>SPAM 很不错的内容<br><br>RE: 知神发新消息了，宝贝们赶紧关注：zhishen0808，get你想看的信息~~<br><img src="http://ww4.sinaimg.cn/large/006fDRpEgw1f5wqht7chrj30ku112796.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3998368243697202" target="freeweibo-mirror">SPAM [微风][微风]</a>
 </h2>
