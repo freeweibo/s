@@ -35,7 +35,7 @@
 </h2>
 <p>SPAM 回复@think_do_:老而不死是为贼，负隅顽抗思变天！ //@think_do_:应将这个狗汉奸绳之以法。<br><br>RE: #困兽尤斗！#<br><img src="http://ww2.sinaimg.cn/large/64815b7ajw1f5ybi9bwrgj20go0m8q45.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3998686202288486" target="freeweibo-mirror">越来越多的爱国言论，充斥着对于生命的残忍、暴戾与冷血，也充斥…</a>
 </h2>
@@ -43,9 +43,21 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3998684905134473" target="freeweibo-mirror">#困兽尤斗！#</a>
+</h2>
+<p>#困兽尤斗！#<br><img src="http://ww2.sinaimg.cn/large/64815b7ajw1f5ybi9bwrgj20go0m8q45.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3998681823286050" target="freeweibo-mirror">SPAM 甘地无可奈何的“不合作主义”。</a>
 </h2>
 <p>SPAM 甘地无可奈何的“不合作主义”。<br><br>RE: 说不出话来<br><img src="http://ww2.sinaimg.cn/large/abf3c072jw1f5ya2n98g3j20qo0zk76x.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3998681021549831" target="freeweibo-mirror">1、这篇最后那个小机灵可以不抖。2、胡锡进那段话扭曲到无法直…</a>
+</h2>
+<p>1、这篇最后那个小机灵可以不抖。2、胡锡进那段话扭曲到无法直视。3、我最想说的是，这类事件最应该第一时间站出来亮明态度并将肇事者绳之以法的，是当地警方。这种微型义和团，如果警方缺席，如果得不到法律的及时惩罚，下一个九一五屈指可待，而中产群体对未来的不确定感与不安全感也将愈演愈烈。...全文： http://m.weibo.cn/2774892563/3998681021549831</p>
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
@@ -89,7 +101,7 @@
 </h2>
 <p>SPAM 一声长叹。此国天天大踏步倒车，从上到下各种low，诸位有能力还是移民，为了你们的下一代不在酱缸中长大。</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3998672910341662" target="freeweibo-mirror">SPAM 太好了，又一个胜利，哈哈哈哈哈哈[哈哈][哈哈][…</a>
 </h2>
@@ -124,18 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3998670514468612" target="freeweibo-mirror">说不出话来</a>
 </h2>
 <p>说不出话来<br><img src="http://ww2.sinaimg.cn/large/abf3c072jw1f5ya2n98g3j20qo0zk76x.jpg"></p>
-<p>
-	<small> ============== 3小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3998669651396469" target="freeweibo-mirror">SPAM [嘻嘻][阴险][阴险]</a>
-</h2>
-<p>SPAM [嘻嘻][阴险][阴险]<br><img src="http://ww3.sinaimg.cn/large/63aa2d9cjw1f5y9yyzc6yj20qo0zkjt2.jpg"></p>
-<p>
-	<small> ============== 3小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3998667637435491" target="freeweibo-mirror">SPAM Die with honor .//@李鸿文在深圳…</a>
-</h2>
-<p>SPAM Die with honor .//@李鸿文在深圳:If you have to die, die in honor![赞]//@谢文: 宁为玉碎，不为瓦全。</p>
 <p>
 	<small> ============== 3小时前</small>
 </p>
