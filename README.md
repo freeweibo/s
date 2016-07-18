@@ -23,7 +23,7 @@
 </h2>
 <p>//@75年的老虎:喂狗也比喂这些畜牲不如的狗官强//@wzp信息:转发微博<br><br>RE: 时间仅隔一天，刚刚收到中国6亿美元感谢费的柬埔寨总理洪森，一改在南海问题上为中国“仗义执言”的态度。16日，洪森在乌兰巴托与日本首相安倍会面时表示，永远不会忘记当年是日本最先派出维和人员来到柬埔寨，现在也全面支持日本在南海问题上的主张。————中国人民的血汗钱又喂狗了。<br><img src="http://ww4.sinaimg.cn/large/006cUUAggw1f5y73ljj67j30jy0zkwj8.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3998729457389667" target="freeweibo-mirror">他连共产党都不是，民建的。这是阴谋和党争夺群众！妄图颠覆中国…</a>
 </h2>
@@ -67,15 +67,51 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3998720657765785" target="freeweibo-mirror">//@雷颐: //@普法三十年-: //@粵東老趙: //@…</a>
+</h2>
+<p>//@雷颐: //@普法三十年-: //@粵東老趙: //@忘却纪念: //@齐柏林飞船: 只是让全世界看笑话罢了，都以为朝鲜人是宇宙第一SB，一看老师出来了。</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3998720381478620" target="freeweibo-mirror">//@Laruence: 社科院......[衰]//@沐然…</a>
+</h2>
+<p>//@Laruence: 社科院......[衰]//@沐然的爸爸: 转发微博</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3998719990829895" target="freeweibo-mirror">SPAM 这个要转</a>
+</h2>
+<p>SPAM 这个要转<br><img src="http://ww1.sinaimg.cn/large/6a3d7f8cjw1f5yfr76z60j20dc0nq764.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3998719294766666" target="freeweibo-mirror">SPAM 爱生活爱家居~</a>
+</h2>
+<p>SPAM 爱生活爱家居~</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3998717839800068" target="freeweibo-mirror">@共青团中央 ，你丫过来看看，这是所谓公知组织人黑爱国者？你…</a>
 </h2>
 <p>@共青团中央 ，你丫过来看看，这是所谓公知组织人黑爱国者？你们这帮孙子忽悠了没脑子的傻逼然后想甩锅？太他妈不仗义了吧？这个@朱继东 是谁？臭不要脸的东西。 http://t.cn/RU1yjlN<br><img src="http://ww4.sinaimg.cn/large/5809ec90gw1f5yfgriaqlj20k00qogo6.jpg"></p>
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3998713648614216" target="freeweibo-mirror">//@化鐸://@联欢画:轉發微博</a>
+</h2>
+<p>//@化鐸://@联欢画:轉發微博<br><br>RE: 在一个一党专政的国家里，洗脑式的宣传“爱国主义”，实际会产生大量傻逼和暴力……<br><img src="http://ww3.sinaimg.cn/large/7c0e9549jw1f5y4w66trcj20ri0v9wkp.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3998710956749702" target="freeweibo-mirror">再次被问话，上海滩郭老板安好？</a>
 </h2>
 <p>再次被问话，上海滩郭老板安好？</p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3998710801745443" target="freeweibo-mirror">//@绿蛙半导体://@牆外爪爪: //@大偉魯魯蛇:撇除部…</a>
+</h2>
+<p>//@绿蛙半导体://@牆外爪爪: //@大偉魯魯蛇:撇除部分小粉紅作亂，上臉書看道歉文是很開心的事。<br><br>RE: Facebook 正在举办#第一届向中国道歉大赛# ，看得出海峡两岸民间的裂痕已经相当大，要实现统一，几乎是梦！PS：本人是坚决反对台独的，你们不能抛下十三亿中国人不管啊！<br><img src="http://ww3.sinaimg.cn/large/45108567gw1f5wj88657fj20zk0k0q70.jpg"></p>
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
@@ -102,42 +138,6 @@
 <p>SPAM 呜呼！中国人。//@西安张显:老胡的儿子胡德平也说两句吧。<br><br>RE: #困兽尤斗！#<br><img src="http://ww2.sinaimg.cn/large/64815b7ajw1f5ybi9bwrgj20go0m8q45.jpg"></p>
 <p>
 	<small> ============== 4小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3998688282040130" target="freeweibo-mirror">SPAM 回复@think_do_:老而不死是为贼，负隅顽抗…</a>
-</h2>
-<p>SPAM 回复@think_do_:老而不死是为贼，负隅顽抗思变天！ //@think_do_:应将这个狗汉奸绳之以法。<br><br>RE: #困兽尤斗！#<br><img src="http://ww2.sinaimg.cn/large/64815b7ajw1f5ybi9bwrgj20go0m8q45.jpg"></p>
-<p>
-	<small> ============== 4小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3998686202288486" target="freeweibo-mirror">越来越多的爱国言论，充斥着对于生命的残忍、暴戾与冷血，也充斥…</a>
-</h2>
-<p>越来越多的爱国言论，充斥着对于生命的残忍、暴戾与冷血，也充斥着对于现代文明与秩序的破坏与漠视。这种现象虽不自今日始，却越来越有于今为烈的态势。”<br><br>RE: 1、这篇最后那个小机灵可以不抖。2、胡锡进那段话扭曲到无法直视。3、我最想说的是，这类事件最应该第一时间站出来亮明态度并将肇事者绳之以法的，是当地警方。这种微型义和团，如果警方缺席，如果得不到法律的及时惩罚，下一个九一五屈指可待，而中产群体对未来的不确定感与不安全感也将愈演愈烈。...全文： http://m.weibo.cn/2774892563/3998681021549831</p>
-<p>
-	<small> ============== 4小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3998686008741372" target="freeweibo-mirror">SPAM 《太阳报》狗仔们的敬业，长久蹲点斯坦福桥，终于在一…</a>
-</h2>
-<p>SPAM 《太阳报》狗仔们的敬业，长久蹲点斯坦福桥，终于在一张已经丢弃的废纸中发现了端倪，进一步窥探到了孔蒂的战术。未来的英超征战中，孔蒂将祭出无锋阵！这阵容，说了好听点叫4-2-4，说的难听点嘛：4-2-4-0[doge]贝戈维奇/伊万诺维奇、特里、吉洛博吉、巴巴/米克尔、马蒂奇/威廉、奇克、科斯塔、摩西<br><img src="http://ww4.sinaimg.cn/large/6a60c1b5gw1f5ybqe3n7pj20k00qotcm.jpg"></p>
-<p>
-	<small> ============== 4小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3998684905134473" target="freeweibo-mirror">#困兽尤斗！#</a>
-</h2>
-<p>#困兽尤斗！#<br><img src="http://ww2.sinaimg.cn/large/64815b7ajw1f5ybi9bwrgj20go0m8q45.jpg"></p>
-<p>
-	<small> ============== 4小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3998681823286050" target="freeweibo-mirror">SPAM 甘地无可奈何的“不合作主义”。</a>
-</h2>
-<p>SPAM 甘地无可奈何的“不合作主义”。<br><br>RE: 说不出话来<br><img src="http://ww2.sinaimg.cn/large/abf3c072jw1f5ya2n98g3j20qo0zk76x.jpg"></p>
-<p>
-	<small> ============== 5小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3998681021549831" target="freeweibo-mirror">1、这篇最后那个小机灵可以不抖。2、胡锡进那段话扭曲到无法直…</a>
-</h2>
-<p>1、这篇最后那个小机灵可以不抖。2、胡锡进那段话扭曲到无法直视。3、我最想说的是，这类事件最应该第一时间站出来亮明态度并将肇事者绳之以法的，是当地警方。这种微型义和团，如果警方缺席，如果得不到法律的及时惩罚，下一个九一五屈指可待，而中产群体对未来的不确定感与不安全感也将愈演愈烈。...全文： http://m.weibo.cn/2774892563/3998681021549831</p>
-<p>
-	<small> ============== 5小时前</small>
 </p>
 <table>
     <tr>
