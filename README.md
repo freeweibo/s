@@ -77,7 +77,7 @@
 </h2>
 <p>SPAM 看呆了[拜拜]<br><br>RE: 这帮人有病吧？？ http://t.cn/Rt7WnCV</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3998584644791305" target="freeweibo-mirror">//@Ada出生在美国: 连胡总都看不下去这种狂热的极端主义…</a>
 </h2>
