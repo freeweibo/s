@@ -119,7 +119,7 @@
 </h2>
 <p>SPAM 这就是你们口中的小粉红？我觉得有点老啊！[笑cry]<br><img src="http://ww4.sinaimg.cn/large/537b30c4jw1f5xyubjp02j20k00qowj0.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3998568027196716" target="freeweibo-mirror">//@郝劲松:看看他们如何表演//@张洲: 大首领刚才秒删，…</a>
 </h2>
@@ -127,15 +127,15 @@
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
-	<a href="https://freeweibo.com/weibo/3998565313619794" target="freeweibo-mirror">胡锡进：拉这个横幅的人是一帮标准SB。</a>
+	<a href="https://freeweibo.com/weibo/3998566085055305" target="freeweibo-mirror">【《林海雪原》情节摘要】杨子荣升任敌滨绥图佳保安第5旅上校团…</a>
 </h2>
-<p>胡锡进：拉这个横幅的人是一帮标准SB。<br><img src="http://ww2.sinaimg.cn/large/7c1f76efgw1f5xxzmbagij20hs0vktdv.jpg"></p>
+<p>【《林海雪原》情节摘要】杨子荣升任敌滨绥图佳保安第5旅上校团副之后，首次值日巡察威虎山暗堡工事。忽听枪声大作，有人高叫“共军来了”，只见一支队伍向山头冲来。杨子荣冷冷一笑，举枪就打，瞬间毙伤一片。躲在岩后偷窥的座山雕叫苦不迭，忙喊“停火”。原来，这群货全是伪装成解放军的土匪小喽罗<br><img src="http://ww1.sinaimg.cn/large/8b3902cagw1f5xx9ldttjj20k00zk0w2.jpg"></p>
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
-	<a href="https://freeweibo.com/weibo/3998563794430625" target="freeweibo-mirror">第一，拉这个横幅的人是一帮标准SB。第二，以为这个横幅在中国…</a>
+	<a href="https://freeweibo.com/weibo/3998565313619794" target="freeweibo-mirror">胡锡进：拉这个横幅的人是一帮标准SB。</a>
 </h2>
-<p>第一，拉这个横幅的人是一帮标准SB。第二，以为这个横幅在中国有代表性，宣扬中国爱国者都这模样的，是标准大SB。中国的肯德基至少上千家，就算拉横幅的人真是因为“爱国”干这事，它所显示的爱国者出精神病的概率，比骂“爱国贼”那帮人里出偏执狂的概率小多了。反对极端爱国主义和极端反爱国主义。<br><img src="http://ww4.sinaimg.cn/large/7697cf01jw1f5xxtjqiaij20k00bdwfz.jpg"></p>
+<p>胡锡进：拉这个横幅的人是一帮标准SB。<br><img src="http://ww2.sinaimg.cn/large/7c1f76efgw1f5xxzmbagij20hs0vktdv.jpg"></p>
 <p>
 	<small> ============== 3小时前</small>
 </p>
