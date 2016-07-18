@@ -41,13 +41,13 @@
 </h2>
 <p>[围观]有意思，这个姓朱应该是和团中央一伙的啊。</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3998725556993067" target="freeweibo-mirror">//@五岳散人:党中央一再强调和平发展，这些人假借爱国的名义…</a>
 </h2>
 <p>//@五岳散人:党中央一再强调和平发展，这些人假借爱国的名义煽动仇恨、与中央大政方针背离，这是什么意思？</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3998717839800068" target="freeweibo-mirror">@共青团中央 ，你丫过来看看，这是所谓公知组织人黑爱国者？你…</a>
 </h2>
@@ -125,13 +125,13 @@
 </h2>
 <p>SPAM 因为玉碎不为瓦全。<br><br>RE: 停吧。<br><img src="http://ww3.sinaimg.cn/large/6cefc1a7jw1f5yb7u4z1kj20go0m8abs.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3998680492845173" target="freeweibo-mirror">停吧。</a>
 </h2>
 <p>停吧。<br><img src="http://ww3.sinaimg.cn/large/6cefc1a7jw1f5yb7u4z1kj20go0m8abs.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3998677771442681" target="freeweibo-mirror">其实无论读者还是编者这两年来都早已有心理准备 //@骑猪使劲…</a>
 </h2>
