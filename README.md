@@ -65,7 +65,7 @@
 </h2>
 <p>SPAM 真狠//@中壮:不肖子孫？！//@海科haike:一声叹息/@郭55于-华-清华:[转发]<br><br>RE: 辜负了习老生前的期望啊！[泪]<br><img src="http://ww2.sinaimg.cn/large/0062EKBRgw1f5ydujxx7fj30fu0gjjuc.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3998703943800755" target="freeweibo-mirror">辜负了习老生前的期望啊！[泪]</a>
 </h2>
