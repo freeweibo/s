@@ -37,9 +37,27 @@
 <p>
 	<small> ============== 1小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3998590726450943" target="freeweibo-mirror">//@彭园v://@sjkjk2131uusau01u03:…</a>
+</h2>
+<p>//@彭园v://@sjkjk2131uusau01u03:行动之前报备了吗？这是不是扰乱社会秩序、非法集会了？<br><br>RE: 看见郴州居然也抵制肯德基！我想说你怎么不把苹果给砸了！这根本不是爱国。。是在给国家抹黑好吗<br><img src="http://ww4.sinaimg.cn/large/af2d1dc5gw1f5xxgbk0jaj20zk0qogpp.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3998588944407744" target="freeweibo-mirror">星星之火可以燎原。</a>
+</h2>
+<p>星星之火可以燎原。<br><br>RE: 郴州也开始了？这就是甩锅不表态恶果！这就是我为什么火力全开不站队表态的原因！遇到这样事，首要是明确表态这种行为是错误的，而不是着急甩锅给谁，前者是公义，后者是私仇。如果真的蔓延下去......讲真我这次对一些自干五的表现都很失望！我知道这话得罪人，但我就这么说了！爱咋咋地！<br><img src="http://ww1.sinaimg.cn/large/71ad0be1jw1f5xxqz4a1gj20yi1pc4qp.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3998585156123200" target="freeweibo-mirror">SPAM 看呆了[拜拜]</a>
 </h2>
 <p>SPAM 看呆了[拜拜]<br><br>RE: 这帮人有病吧？？ http://t.cn/Rt7WnCV</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3998584644791305" target="freeweibo-mirror">//@Ada出生在美国: 连胡总都看不下去这种狂热的极端主义…</a>
+</h2>
+<p>//@Ada出生在美国: 连胡总都看不下去这种狂热的极端主义了……<br><br>RE: 第一，拉这个横幅的人是一帮标准SB。第二，以为这个横幅在中国有代表性，宣扬中国爱国者都这模样的，是标准大SB。中国的肯德基至少上千家，就算拉横幅的人真是因为“爱国”干这事，它所显示的爱国者出精神病的概率，比骂“爱国贼”那帮人里出偏执狂的概率小多了。反对极端爱国主义和极端反爱国主义。<br><img src="http://ww4.sinaimg.cn/large/7697cf01jw1f5xxtjqiaij20k00bdwfz.jpg"></p>
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
@@ -49,15 +67,51 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3998582426111242" target="freeweibo-mirror">//@邵明波:只有老胡这种极大标准SB，才能扯出如此SB的逻…</a>
+</h2>
+<p>//@邵明波:只有老胡这种极大标准SB，才能扯出如此SB的逻辑。//@余胜海: 真正的SB!//@二号首长黄晓阳:这真是胡锡进在发言吗？怎么这么个嘴脸？ //@普渡哥:[思考] //@王小东:收钱就不是SB了，没收钱才是SB[挖鼻] //@观察者网:<br><br>RE: 第一，拉这个横幅的人是一帮标准SB。第二，以为这个横幅在中国有代表性，宣扬中国爱国者都这模样的，是标准大SB。中国的肯德基至少上千家，就算拉横幅的人真是因为“爱国”干这事，它所显示的爱国者出精神病的概率，比骂“爱国贼”那帮人里出偏执狂的概率小多了。反对极端爱国主义和极端反爱国主义。<br><img src="http://ww4.sinaimg.cn/large/7697cf01jw1f5xxtjqiaij20k00bdwfz.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3998579733550382" target="freeweibo-mirror">显而易见的事，没那么复杂。</a>
+</h2>
+<p>显而易见的事，没那么复杂。</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3998579343403100" target="freeweibo-mirror">//@朱学东:又一个反水的。@不沉默的大多数 兄是我看到的第…</a>
 </h2>
 <p>//@朱学东:又一个反水的。@不沉默的大多数 兄是我看到的第一个，坚持对仗好多天了哈[哈哈]二中央早上好象也反水了，不知道能持续多久。//@陆亚明: [酷]//@不沉默的大多数:胡总这么爱国的也骂人了，补充一点:挑动群众这样犯傻的人是坏逼。@共青团中央<br><br>RE: 胡锡进：拉这个横幅的人是一帮标准SB。<br><img src="http://ww2.sinaimg.cn/large/7c1f76efgw1f5xxzmbagij20hs0vktdv.jpg"></p>
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3998578823072610" target="freeweibo-mirror">这真是胡锡进在发言吗？怎么这么个嘴脸？ //@普渡哥:[思考…</a>
+</h2>
+<p>这真是胡锡进在发言吗？怎么这么个嘴脸？ //@普渡哥:[思考] //@王小东:收钱就不是SB了，没收钱才是SB[挖鼻] //@观察者网:先要搞清楚是不是收钱办事。如果是，要搞清楚收了谁的钱。然后再参考胡老师观点。<br><br>RE: 第一，拉这个横幅的人是一帮标准SB。第二，以为这个横幅在中国有代表性，宣扬中国爱国者都这模样的，是标准大SB。中国的肯德基至少上千家，就算拉横幅的人真是因为“爱国”干这事，它所显示的爱国者出精神病的概率，比骂“爱国贼”那帮人里出偏执狂的概率小多了。反对极端爱国主义和极端反爱国主义。<br><img src="http://ww4.sinaimg.cn/large/7697cf01jw1f5xxtjqiaij20k00bdwfz.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3998577560433113" target="freeweibo-mirror">[哈哈][哈哈][哈哈]→_→//@水火相息:这在徐克的《智…</a>
+</h2>
+<p>[哈哈][哈哈][哈哈]→_→//@水火相息:这在徐克的《智取威虎山》里也有表现。事后座山雕对出这主意的老三说：“一个字，你当时怎么没在下面，被他打死！”<br><br>RE: 【《林海雪原》情节摘要】杨子荣升任敌滨绥图佳保安第5旅上校团副之后，首次值日巡察威虎山暗堡工事。忽听枪声大作，有人高叫“共军来了”，只见一支队伍向山头冲来。杨子荣冷冷一笑，举枪就打，瞬间毙伤一片。躲在岩后偷窥的座山雕叫苦不迭，忙喊“停火”。原来，这群货全是伪装成解放军的土匪小喽罗<br><img src="http://ww1.sinaimg.cn/large/8b3902cagw1f5xx9ldttjj20k00zk0w2.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3998576771947374" target="freeweibo-mirror">在大街上内急，为爱国拒美帝，我先找爱国贼们开的机关单位方便，…</a>
+</h2>
+<p>在大街上内急，为爱国拒美帝，我先找爱国贼们开的机关单位方便，常常碰壁、不得不上肯德基的卫生间，睁着眼睛被美帝笑话，请问爱国贼们，这事何以解决？<br><br>RE: 第一，拉这个横幅的人是一帮标准SB。第二，以为这个横幅在中国有代表性，宣扬中国爱国者都这模样的，是标准大SB。中国的肯德基至少上千家，就算拉横幅的人真是因为“爱国”干这事，它所显示的爱国者出精神病的概率，比骂“爱国贼”那帮人里出偏执狂的概率小多了。反对极端爱国主义和极端反爱国主义。<br><img src="http://ww4.sinaimg.cn/large/7697cf01jw1f5xxtjqiaij20k00bdwfz.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3998574780245473" target="freeweibo-mirror">还小粉红？//@庄志明律师:关键得揪出后面的力量。//@烧伤…</a>
 </h2>
 <p>还小粉红？//@庄志明律师:关键得揪出后面的力量。//@烧伤超人阿宝: 像这种事情，根本没必要逼逼到底是爱国脑残还是公知伪装，以寻衅滋事抓起来关几天，就消停了。反正左中右对此都完全支持，对吧？</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3998573856979982" target="freeweibo-mirror">SPAM 像这种事情，根本没必要逼逼到底是爱国脑残还是公知伪…</a>
+</h2>
+<p>SPAM 像这种事情，根本没必要逼逼到底是爱国脑残还是公知伪装，以寻衅滋事抓起来关几天，就消停了。反正左中右对此都完全支持，对吧？</p>
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
@@ -84,60 +138,6 @@
 <p>第一，拉这个横幅的人是一帮标准SB。第二，以为这个横幅在中国有代表性，宣扬中国爱国者都这模样的，是标准大SB。中国的肯德基至少上千家，就算拉横幅的人真是因为“爱国”干这事，它所显示的爱国者出精神病的概率，比骂“爱国贼”那帮人里出偏执狂的概率小多了。反对极端爱国主义和极端反爱国主义。<br><img src="http://ww4.sinaimg.cn/large/7697cf01jw1f5xxtjqiaij20k00bdwfz.jpg"></p>
 <p>
 	<small> ============== 3小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3998538209951249" target="freeweibo-mirror">相亲对象第一次见面，就对我动手动脚，更过分的是，他竟然还让我…</a>
-</h2>
-<p>相亲对象第一次见面，就对我动手动脚，更过分的是，他竟然还让我摸他的那里……<br><img src="http://ww1.sinaimg.cn/large/6232ced8gw1f5xuvq4hk0j20b2d1aav5.jpg"></p>
-<p>
-	<small> ============== 5小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3998534783243260" target="freeweibo-mirror">男友深夜与我姨妈电话传情，竟是......</a>
-</h2>
-<p>男友深夜与我姨妈电话传情，竟是......<br><img src="http://ww3.sinaimg.cn/large/0065Wl4Ngw1f5xuhklox2j30goa4yu0x.jpg"></p>
-<p>
-	<small> ============== 5小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3998475437664350" target="freeweibo-mirror">SPAM 自己瘦了不必羡慕别人哟[笑cry][笑cry]</a>
-</h2>
-<p>SPAM 自己瘦了不必羡慕别人哟[笑cry][笑cry]</p>
-<p>
-	<small> ============== 9小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3998475169333681" target="freeweibo-mirror">SPAM 赶快领走，总有一款适合你:[心]</a>
-</h2>
-<p>SPAM 赶快领走，总有一款适合你:[心]</p>
-<p>
-	<small> ============== 9小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3998474858519082" target="freeweibo-mirror">SPAM 超级棒的夏天健身指导[赞][赞]</a>
-</h2>
-<p>SPAM 超级棒的夏天健身指导[赞][赞]</p>
-<p>
-	<small> ============== 9小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3998473902124107" target="freeweibo-mirror">SPAM </a>
-</h2>
-<p>SPAM </p>
-<p>
-	<small> ============== 9小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3998473504166745" target="freeweibo-mirror">SPAM </a>
-</h2>
-<p>SPAM </p>
-<p>
-	<small> ============== 9小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3998472946480818" target="freeweibo-mirror">SPAM :</a>
-</h2>
-<p>SPAM :</p>
-<p>
-	<small> ============== 9小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3998386677671403" target="freeweibo-mirror">SPAM [围观]//@全震动: //@胡新宇-filmma…</a>
-</h2>
-<p>SPAM [围观]//@全震动: //@胡新宇-filmmaker: //@LifeTime:党媒添新火了。//@李方平律师：作者雷希颖，团中央网络智库成员</p>
-<p>
-	<small> ============== 1天前</small>
 </p>
 <table>
     <tr>
