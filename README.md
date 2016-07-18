@@ -35,13 +35,13 @@
 </h2>
 <p>以大妈为主//@喷嚏网铂程:转发微博<br><br>RE: 看见郴州居然也抵制肯德基！我想说你怎么不把苹果给砸了！这根本不是爱国。。是在给国家抹黑好吗<br><img src="http://ww4.sinaimg.cn/large/af2d1dc5gw1f5xxgbk0jaj20zk0qogpp.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3998591862976102" target="freeweibo-mirror">SPAM [笑cry] http://t.cn/Rt7YSG…</a>
 </h2>
 <p>SPAM [笑cry] http://t.cn/Rt7YSGM<br><br>RE: 坚决抵制KFC!将来开战美帝扔过来的每一发炮弹都有我们赞助的钱[怒]  270×390mm康颂专业素描纸#大尸凶的漫画#<br><img src="http://ww3.sinaimg.cn/large/767e4963jw1f5xb7xmz04j212e0qowly.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3998591158970045" target="freeweibo-mirror">//@谷凯: //@彭园v://@sjkjk2131uusa…</a>
 </h2>
@@ -137,7 +137,7 @@
 </h2>
 <p>在大街上内急，为爱国拒美帝，我先找爱国贼们开的机关单位方便，常常碰壁、不得不上肯德基的卫生间，睁着眼睛被美帝笑话，请问爱国贼们，这事何以解决？<br><br>RE: 第一，拉这个横幅的人是一帮标准SB。第二，以为这个横幅在中国有代表性，宣扬中国爱国者都这模样的，是标准大SB。中国的肯德基至少上千家，就算拉横幅的人真是因为“爱国”干这事，它所显示的爱国者出精神病的概率，比骂“爱国贼”那帮人里出偏执狂的概率小多了。反对极端爱国主义和极端反爱国主义。<br><img src="http://ww4.sinaimg.cn/large/7697cf01jw1f5xxtjqiaij20k00bdwfz.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p>
 <table>
     <tr>
