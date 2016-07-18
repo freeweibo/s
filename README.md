@@ -83,19 +83,19 @@
 </h2>
 <p>昨天那谁说长江以北才盛产这种物种的过来看看，我大弗兰也历来不缺这些傻逼//@喷嚏网铂程:转发微博<br><br>RE: 看见郴州居然也抵制肯德基！我想说你怎么不把苹果给砸了！这根本不是爱国。。是在给国家抹黑好吗<br><img src="http://ww4.sinaimg.cn/large/af2d1dc5gw1f5xxgbk0jaj20zk0qogpp.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3998589145196233" target="freeweibo-mirror">//@sjkjk2131uusau01u03:行动之前报备了…</a>
 </h2>
 <p>//@sjkjk2131uusau01u03:行动之前报备了吗？这是不是扰乱社会秩序、非法集会了？<br><br>RE: 看见郴州居然也抵制肯德基！我想说你怎么不把苹果给砸了！这根本不是爱国。。是在给国家抹黑好吗<br><img src="http://ww4.sinaimg.cn/large/af2d1dc5gw1f5xxgbk0jaj20zk0qogpp.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3998588944407744" target="freeweibo-mirror">星星之火可以燎原。</a>
 </h2>
 <p>星星之火可以燎原。<br><br>RE: 郴州也开始了？这就是甩锅不表态恶果！这就是我为什么火力全开不站队表态的原因！遇到这样事，首要是明确表态这种行为是错误的，而不是着急甩锅给谁，前者是公义，后者是私仇。如果真的蔓延下去......讲真我这次对一些自干五的表现都很失望！我知道这话得罪人，但我就这么说了！爱咋咋地！<br><img src="http://ww1.sinaimg.cn/large/71ad0be1jw1f5xxqz4a1gj20yi1pc4qp.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3998585156123200" target="freeweibo-mirror">SPAM 看呆了[拜拜]</a>
 </h2>
