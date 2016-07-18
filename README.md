@@ -35,7 +35,7 @@
 </h2>
 <p>SPAM 回复@think_do_:老而不死是为贼，负隅顽抗思变天！ //@think_do_:应将这个狗汉奸绳之以法。<br><br>RE: #困兽尤斗！#<br><img src="http://ww2.sinaimg.cn/large/64815b7ajw1f5ybi9bwrgj20go0m8q45.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3998686202288486" target="freeweibo-mirror">越来越多的爱国言论，充斥着对于生命的残忍、暴戾与冷血，也充斥…</a>
 </h2>
@@ -107,13 +107,13 @@
 </h2>
 <p>SPAM 富人移民的主要原因：救救孩子。 //@虫子在北京:一声长叹。此国天天大踏步倒车，从上到下各种low，诸位有能力还是移民，为了你们的下一代不在酱缸中长大。</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3998673257773297" target="freeweibo-mirror">SPAM 一声长叹。此国天天大踏步倒车，从上到下各种low，…</a>
 </h2>
 <p>SPAM 一声长叹。此国天天大踏步倒车，从上到下各种low，诸位有能力还是移民，为了你们的下一代不在酱缸中长大。</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3998672910341662" target="freeweibo-mirror">SPAM 太好了，又一个胜利，哈哈哈哈哈哈[哈哈][哈哈][…</a>
 </h2>
