@@ -31,11 +31,23 @@
 <p>
 	<small> ============== 1小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3998662977468952" target="freeweibo-mirror">SPAM 宁为玉碎，不为瓦全。</a>
+</h2>
+<p>SPAM 宁为玉碎，不为瓦全。</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3998662617079486" target="freeweibo-mirror">SPAM [赞]If you have to die, di…</a>
+</h2>
+<p>SPAM [赞]If you have to die, die in honor!<br><img src="http://ww3.sinaimg.cn/large/8a805d80gw1f5y95nvfkfj20qo0zkdij.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3998632032233656" target="freeweibo-mirror">//@中一在线: 首都，政治中心！但这个权力中心城市对经济、…</a>
 </h2>
 <p>//@中一在线: 首都，政治中心！但这个权力中心城市对经济、文化、资源形成了强大的集聚效应，才会在一个自然资源不丰富的地方与天津双双长成了布局不合理的超大城市。人为的资源调配造就了畸型都市！//@侃侃的冰美式://@FT中文网:对北京优质资源的收紧，成为一条有效的红线。行政管理者发现，控制外地</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3998630250258259" target="freeweibo-mirror">黎岩：当人们满怀梦想地来到这座城市，却并没有倒逼它在规划能力…</a>
 </h2>
@@ -124,18 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3998584644791305" target="freeweibo-mirror">//@Ada出生在美国: 连胡总都看不下去这种狂热的极端主义…</a>
 </h2>
 <p>//@Ada出生在美国: 连胡总都看不下去这种狂热的极端主义了……<br><br>RE: 第一，拉这个横幅的人是一帮标准SB。第二，以为这个横幅在中国有代表性，宣扬中国爱国者都这模样的，是标准大SB。中国的肯德基至少上千家，就算拉横幅的人真是因为“爱国”干这事，它所显示的爱国者出精神病的概率，比骂“爱国贼”那帮人里出偏执狂的概率小多了。反对极端爱国主义和极端反爱国主义。<br><img src="http://ww4.sinaimg.cn/large/7697cf01jw1f5xxtjqiaij20k00bdwfz.jpg"></p>
-<p>
-	<small> ============== 7小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3998583776576274" target="freeweibo-mirror">【网曝唐山小伙吃肯德基被路人批“汉奸" 】河北小伙吃肯德基遭…</a>
-</h2>
-<p>【网曝唐山小伙吃肯德基被路人批“汉奸" 】河北小伙吃肯德基遭“爱国青年”打横幅围堵进行“爱国教育”，阻止进入，横幅上写着：“抵制美日韩菲，爱我中华民族，你吃的是美国肯德基，丢的是老祖宗的脸。”  （微评：现在要当个汉奸实在太容易了。）http://t.cn/Rt7lTUH<br><img src="http://ww4.sinaimg.cn/large/59183920gw1f5y038kanij20m30edaeb.jpg"></p>
-<p>
-	<small> ============== 7小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3998583688421790" target="freeweibo-mirror">//@深圳王剑://@罗志渊:反的好</a>
-</h2>
-<p>//@深圳王剑://@罗志渊:反的好</p>
 <p>
 	<small> ============== 7小时前</small>
 </p>
