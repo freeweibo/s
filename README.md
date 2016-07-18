@@ -23,7 +23,7 @@
 </h2>
 <p>SPAM Die with honor .//@李鸿文在深圳:If you have to die, die in honor![赞]//@谢文: 宁为玉碎，不为瓦全。</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3998664022418791" target="freeweibo-mirror">//@没倒挡://@悠野V:删你妹！看到就转//@喷嚏网铂程…</a>
 </h2>
@@ -43,6 +43,18 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3998661337363025" target="freeweibo-mirror">刚刚看到，这是这个时代的知识分子的耻辱事件。</a>
+</h2>
+<p>刚刚看到，这是这个时代的知识分子的耻辱事件。<br><img src="http://ww3.sinaimg.cn/large/6a25a9b5jw1f5y90rrdz0j20qo0zk785.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3998660717267063" target="freeweibo-mirror">停了！</a>
+</h2>
+<p>停了！<br><img src="http://ww4.sinaimg.cn/large/680d8f00gw1f5y8y8dt9lj20j60pkwgf.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3998632032233656" target="freeweibo-mirror">//@中一在线: 首都，政治中心！但这个权力中心城市对经济、…</a>
 </h2>
 <p>//@中一在线: 首都，政治中心！但这个权力中心城市对经济、文化、资源形成了强大的集聚效应，才会在一个自然资源不丰富的地方与天津双双长成了布局不合理的超大城市。人为的资源调配造就了畸型都市！//@侃侃的冰美式://@FT中文网:对北京优质资源的收紧，成为一条有效的红线。行政管理者发现，控制外地</p>
@@ -59,7 +71,7 @@
 </h2>
 <p>应该查一查//@野叟说田黄: 有意思 //@罗九京:又是境外反华势力?<br><br>RE: 4000余退役军人聚集中央军委周边拉布维权。应该查一查，他们是不是维权死磕派律师煸动策划的？<br><img src="http://ww3.sinaimg.cn/large/e3e7f996jw1f5y3qp557zj20sg0eqtbu.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3998615720997696" target="freeweibo-mirror">4000余退役军人聚集中央军委周边拉布维权。应该查一查，他们…</a>
 </h2>
@@ -89,13 +101,13 @@
 </h2>
 <p>以大妈为主//@喷嚏网铂程:转发微博<br><br>RE: 看见郴州居然也抵制肯德基！我想说你怎么不把苹果给砸了！这根本不是爱国。。是在给国家抹黑好吗<br><img src="http://ww4.sinaimg.cn/large/af2d1dc5gw1f5xxgbk0jaj20zk0qogpp.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3998591862976102" target="freeweibo-mirror">SPAM [笑cry] http://t.cn/Rt7YSG…</a>
 </h2>
 <p>SPAM [笑cry] http://t.cn/Rt7YSGM<br><br>RE: 坚决抵制KFC!将来开战美帝扔过来的每一发炮弹都有我们赞助的钱[怒]  270×390mm康颂专业素描纸#大尸凶的漫画#<br><img src="http://ww3.sinaimg.cn/large/767e4963jw1f5xb7xmz04j212e0qowly.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3998591158970045" target="freeweibo-mirror">//@谷凯: //@彭园v://@sjkjk2131uusa…</a>
 </h2>
@@ -124,18 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3998588944407744" target="freeweibo-mirror">星星之火可以燎原。</a>
 </h2>
 <p>星星之火可以燎原。<br><br>RE: 郴州也开始了？这就是甩锅不表态恶果！这就是我为什么火力全开不站队表态的原因！遇到这样事，首要是明确表态这种行为是错误的，而不是着急甩锅给谁，前者是公义，后者是私仇。如果真的蔓延下去......讲真我这次对一些自干五的表现都很失望！我知道这话得罪人，但我就这么说了！爱咋咋地！<br><img src="http://ww1.sinaimg.cn/large/71ad0be1jw1f5xxqz4a1gj20yi1pc4qp.jpg"></p>
-<p>
-	<small> ============== 7小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3998585156123200" target="freeweibo-mirror">SPAM 看呆了[拜拜]</a>
-</h2>
-<p>SPAM 看呆了[拜拜]<br><br>RE: 这帮人有病吧？？ http://t.cn/Rt7WnCV</p>
-<p>
-	<small> ============== 7小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3998584644791305" target="freeweibo-mirror">//@Ada出生在美国: 连胡总都看不下去这种狂热的极端主义…</a>
-</h2>
-<p>//@Ada出生在美国: 连胡总都看不下去这种狂热的极端主义了……<br><br>RE: 第一，拉这个横幅的人是一帮标准SB。第二，以为这个横幅在中国有代表性，宣扬中国爱国者都这模样的，是标准大SB。中国的肯德基至少上千家，就算拉横幅的人真是因为“爱国”干这事，它所显示的爱国者出精神病的概率，比骂“爱国贼”那帮人里出偏执狂的概率小多了。反对极端爱国主义和极端反爱国主义。<br><img src="http://ww4.sinaimg.cn/large/7697cf01jw1f5xxtjqiaij20k00bdwfz.jpg"></p>
 <p>
 	<small> ============== 7小时前</small>
 </p>
