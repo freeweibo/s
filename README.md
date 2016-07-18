@@ -19,6 +19,18 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3998667637435491" target="freeweibo-mirror">SPAM Die with honor .//@李鸿文在深圳…</a>
+</h2>
+<p>SPAM Die with honor .//@李鸿文在深圳:If you have to die, die in honor![赞]//@谢文: 宁为玉碎，不为瓦全。</p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3998664022418791" target="freeweibo-mirror">//@没倒挡://@悠野V:删你妹！看到就转//@喷嚏网铂程…</a>
+</h2>
+<p>//@没倒挡://@悠野V:删你妹！看到就转//@喷嚏网铂程: 转发微博<br><br>RE: 刚刚看到，这是这个时代的知识分子的耻辱事件。<br><img src="http://ww3.sinaimg.cn/large/6a25a9b5jw1f5y90rrdz0j20qo0zk785.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3998632032233656" target="freeweibo-mirror">//@中一在线: 首都，政治中心！但这个权力中心城市对经济、…</a>
 </h2>
 <p>//@中一在线: 首都，政治中心！但这个权力中心城市对经济、文化、资源形成了强大的集聚效应，才会在一个自然资源不丰富的地方与天津双双长成了布局不合理的超大城市。人为的资源调配造就了畸型都市！//@侃侃的冰美式://@FT中文网:对北京优质资源的收紧，成为一条有效的红线。行政管理者发现，控制外地</p>
@@ -41,7 +53,7 @@
 </h2>
 <p>4000余退役军人聚集中央军委周边拉布维权。应该查一查，他们是不是维权死磕派律师煸动策划的？<br><img src="http://ww3.sinaimg.cn/large/e3e7f996jw1f5y3qp557zj20sg0eqtbu.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3998615028002038" target="freeweibo-mirror">丽江艳遇果然名不虚传，我到了丽江的第一个晚上就……失……</a>
 </h2>
@@ -107,7 +119,7 @@
 </h2>
 <p>SPAM 看呆了[拜拜]<br><br>RE: 这帮人有病吧？？ http://t.cn/Rt7WnCV</p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3998584644791305" target="freeweibo-mirror">//@Ada出生在美国: 连胡总都看不下去这种狂热的极端主义…</a>
 </h2>
@@ -124,18 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3998583688421790" target="freeweibo-mirror">//@深圳王剑://@罗志渊:反的好</a>
 </h2>
 <p>//@深圳王剑://@罗志渊:反的好</p>
-<p>
-	<small> ============== 7小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3998582426111242" target="freeweibo-mirror">//@邵明波:只有老胡这种极大标准SB，才能扯出如此SB的逻…</a>
-</h2>
-<p>//@邵明波:只有老胡这种极大标准SB，才能扯出如此SB的逻辑。//@余胜海: 真正的SB!//@二号首长黄晓阳:这真是胡锡进在发言吗？怎么这么个嘴脸？ //@普渡哥:[思考] //@王小东:收钱就不是SB了，没收钱才是SB[挖鼻] //@观察者网:<br><br>RE: 第一，拉这个横幅的人是一帮标准SB。第二，以为这个横幅在中国有代表性，宣扬中国爱国者都这模样的，是标准大SB。中国的肯德基至少上千家，就算拉横幅的人真是因为“爱国”干这事，它所显示的爱国者出精神病的概率，比骂“爱国贼”那帮人里出偏执狂的概率小多了。反对极端爱国主义和极端反爱国主义。<br><img src="http://ww4.sinaimg.cn/large/7697cf01jw1f5xxtjqiaij20k00bdwfz.jpg"></p>
-<p>
-	<small> ============== 7小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3998581481808341" target="freeweibo-mirror">//@一个老实人V: 正确做法是查税收，卫生，环保，消防让其…</a>
-</h2>
-<p>//@一个老实人V: 正确做法是查税收，卫生，环保，消防让其整改，光明正大的不敢做，专门做鬼吓人 //@未得糊涂:假设所谓的汉奸逻辑成立，根子也在办理登记注册的有关部门吧？！//@一个老实人V: 我不吃肯德基，但我没有权利让别人不吃，法律说你是罪犯。 //@正义哨兵://@毕明雄:当地警方为什么不作为？<br><br>RE: 搜狐快评【假借爱国抵制肯德基是寻衅滋事】河北乐亭县肯德基餐厅7月17日受到某些“爱国”青年围堵，执法者面对滋扰肯德基的现实做法，有一种投鼠忌器的心态，以为这是与爱国相抵触。如果这种错误的心态不能祛除，就会影响执法判断，放纵这类名为抵制实为滋扰的事例，让爱国成为流氓的庇护所，这才是害...全文： http://m.weibo.cn/5890672121/3998539300275684<br><img src="http://ww3.sinaimg.cn/large/006qEEUFjw1f5xv07rpo0j30k00bdabl.jpg"></p>
 <p>
 	<small> ============== 7小时前</small>
 </p>
