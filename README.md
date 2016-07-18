@@ -41,7 +41,7 @@
 </h2>
 <p>4000余退役军人聚集中央军委周边拉布维权。应该查一查，他们是不是维权死磕派律师煸动策划的？<br><img src="http://ww3.sinaimg.cn/large/e3e7f996jw1f5y3qp557zj20sg0eqtbu.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3998597140326552" target="freeweibo-mirror">肯德基的芒果甜筒真心好吃！</a>
 </h2>
@@ -101,7 +101,7 @@
 </h2>
 <p>SPAM 看呆了[拜拜]<br><br>RE: 这帮人有病吧？？ http://t.cn/Rt7WnCV</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3998584644791305" target="freeweibo-mirror">//@Ada出生在美国: 连胡总都看不下去这种狂热的极端主义…</a>
 </h2>
