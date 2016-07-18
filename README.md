@@ -41,13 +41,13 @@
 </h2>
 <p>SPAM </p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3998473504166745" target="freeweibo-mirror">SPAM </a>
 </h2>
 <p>SPAM </p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3998472946480818" target="freeweibo-mirror">SPAM :</a>
 </h2>
