@@ -61,6 +61,12 @@
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3998563794430625" target="freeweibo-mirror">第一，拉这个横幅的人是一帮标准SB。第二，以为这个横幅在中国…</a>
+</h2>
+<p>第一，拉这个横幅的人是一帮标准SB。第二，以为这个横幅在中国有代表性，宣扬中国爱国者都这模样的，是标准大SB。中国的肯德基至少上千家，就算拉横幅的人真是因为“爱国”干这事，它所显示的爱国者出精神病的概率，比骂“爱国贼”那帮人里出偏执狂的概率小多了。反对极端爱国主义和极端反爱国主义。<br><img src="http://ww4.sinaimg.cn/large/7697cf01jw1f5xxtjqiaij20k00bdwfz.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3998538209951249" target="freeweibo-mirror">相亲对象第一次见面，就对我动手动脚，更过分的是，他竟然还让我…</a>
 </h2>
 <p>相亲对象第一次见面，就对我动手动脚，更过分的是，他竟然还让我摸他的那里……<br><img src="http://ww1.sinaimg.cn/large/6232ced8gw1f5xuvq4hk0j20b2d1aav5.jpg"></p>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3998375411747272" target="freeweibo-mirror">SPAM 吃涮肉看你家境问题，呵呵～90后的小崽们就别跟着瞎…</a>
 </h2>
 <p>SPAM 吃涮肉看你家境问题，呵呵～90后的小崽们就别跟着瞎惹惹了。我就问一个问题，北京人家在1990年，有多少人可以随意想吃涮肉就吃涮肉，自家支火锅子，更有甚者，还是只吃从东来顺弄的羊肉？90后小崽懂吃涮肉也得96年以后吧，真正知道滋味也得二十一世纪了吧，在这点，八零后就足够碾压你们了。</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3998370257592510" target="freeweibo-mirror">SPAM 很不错的内容</a>
-</h2>
-<p>SPAM 很不错的内容<br><br>RE: 知神发新消息了，宝贝们赶紧关注：zhishen0808，get你想看的信息~~<br><img src="http://ww4.sinaimg.cn/large/006fDRpEgw1f5wqht7chrj30ku112796.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
