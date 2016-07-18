@@ -29,7 +29,7 @@
 </h2>
 <p>//@深圳王剑://@罗志渊:反的好</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3998579343403100" target="freeweibo-mirror">//@朱学东:又一个反水的。@不沉默的大多数 兄是我看到的第…</a>
 </h2>
@@ -53,13 +53,19 @@
 </h2>
 <p>//@郝劲松:看看他们如何表演//@张洲: 大首领刚才秒删，原来是没加图。大首领教训得是！应该让它们好好领会。怕得就是它们不听你的话，或者不承认，不执行……你得想个辙啊……<br><br>RE: 第一，拉这个横幅的人是一帮标准SB。第二，以为这个横幅在中国有代表性，宣扬中国爱国者都这模样的，是标准大SB。中国的肯德基至少上千家，就算拉横幅的人真是因为“爱国”干这事，它所显示的爱国者出精神病的概率，比骂“爱国贼”那帮人里出偏执狂的概率小多了。反对极端爱国主义和极端反爱国主义。<br><img src="http://ww4.sinaimg.cn/large/7697cf01jw1f5xxtjqiaij20k00bdwfz.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/3998565313619794" target="freeweibo-mirror">胡锡进：拉这个横幅的人是一帮标准SB。</a>
+</h2>
+<p>胡锡进：拉这个横幅的人是一帮标准SB。<br><img src="http://ww2.sinaimg.cn/large/7c1f76efgw1f5xxzmbagij20hs0vktdv.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3998538209951249" target="freeweibo-mirror">相亲对象第一次见面，就对我动手动脚，更过分的是，他竟然还让我…</a>
 </h2>
 <p>相亲对象第一次见面，就对我动手动脚，更过分的是，他竟然还让我摸他的那里……<br><img src="http://ww1.sinaimg.cn/large/6232ced8gw1f5xuvq4hk0j20b2d1aav5.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3998534783243260" target="freeweibo-mirror">男友深夜与我姨妈电话传情，竟是......</a>
 </h2>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3998370257592510" target="freeweibo-mirror">SPAM 很不错的内容</a>
 </h2>
 <p>SPAM 很不错的内容<br><br>RE: 知神发新消息了，宝贝们赶紧关注：zhishen0808，get你想看的信息~~<br><img src="http://ww4.sinaimg.cn/large/006fDRpEgw1f5wqht7chrj30ku112796.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3998368243697202" target="freeweibo-mirror">SPAM [微风][微风]</a>
-</h2>
-<p>SPAM [微风][微风]</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
