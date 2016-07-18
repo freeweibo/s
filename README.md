@@ -23,7 +23,7 @@
 </h2>
 <p>SPAM 甘地无可奈何的“不合作主义”。<br><br>RE: 说不出话来<br><img src="http://ww2.sinaimg.cn/large/abf3c072jw1f5ya2n98g3j20qo0zk76x.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3998680555820932" target="freeweibo-mirror">SPAM 因为玉碎不为瓦全。</a>
 </h2>
