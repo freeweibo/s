@@ -65,7 +65,7 @@
 </h2>
 <p>mdzz//@ECO中文网: 大意了，大水冲了龙王庙，没有协调好[doge]//@战争史研究WHS:@思想火炬 你们朱副主任被共青团中央说成公知了。快骂回去！[偷笑]</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3998725602893243" target="freeweibo-mirror">[围观]有意思，这个姓朱应该是和团中央一伙的啊。</a>
 </h2>
