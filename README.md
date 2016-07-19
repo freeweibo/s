@@ -25,6 +25,12 @@
 <p>
 	<small> ============== 1小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3998913016993970" target="freeweibo-mirror">SPAM 听说一份刊物停刊，那种心情，我可以理解。1989年…</a>
+</h2>
+<p>SPAM 听说一份刊物停刊，那种心情，我可以理解。1989年末，我为之努力了6个年头，发行量曾达百万的刊物，也被停刊了。<br><img src="http://ww3.sinaimg.cn/large/55a4207fgw1f5z1wg6ujlj20ch0gq75v.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3998909410111480" target="freeweibo-mirror">这条竟然还活着[笑cry]</a>
 </h2>
 <p>这条竟然还活着[笑cry]<br><br>RE: 一个粉丝问：只要在微博上质疑赵薇就会被删。背后的阴谋是什么？谁在控制舆论？因此，我对她提供了一点小小的建议<br><img src="http://ww3.sinaimg.cn/large/6764cadegw1f5y39cxavuj20qo136q6y.jpg"></p>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3998725434841058" target="freeweibo-mirror">不要逼脸[吐]</a>
 </h2>
 <p>不要逼脸[吐]</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3998725023665420" target="freeweibo-mirror">→_→//@雷颐://@普法三十年-: //@粵東老趙: /…</a>
-</h2>
-<p>→_→//@雷颐://@普法三十年-: //@粵東老趙: //@忘却纪念: //@齐柏林飞船: 只是让全世界看笑话罢了，都以为朝鲜人是宇宙第一SB，一看老师出来了。</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
