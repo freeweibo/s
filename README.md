@@ -29,7 +29,7 @@
 </h2>
 <p>SPAM 咳咳，活好不粘人[偷乐]链接接着戳评论。<br><img src="http://ww2.sinaimg.cn/large/6d5306acjw1f5z34ndnh0j20cai9yx6c.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3998913016993970" target="freeweibo-mirror">SPAM 听说一份刊物停刊，那种心情，我可以理解。1989年…</a>
 </h2>
@@ -41,7 +41,7 @@
 </h2>
 <p>这条竟然还活着[笑cry]<br><br>RE: 一个粉丝问：只要在微博上质疑赵薇就会被删。背后的阴谋是什么？谁在控制舆论？因此，我对她提供了一点小小的建议<br><img src="http://ww3.sinaimg.cn/large/6764cadegw1f5y39cxavuj20qo136q6y.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3998892246703025" target="freeweibo-mirror">还是团中央嘛！//@曾朗说事:总感觉博主有点不对劲又说不出。</a>
 </h2>
