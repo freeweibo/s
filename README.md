@@ -53,7 +53,7 @@
 </h2>
 <p>外媒爆郭案已经由解放军军事法院秘密审判完毕，郭将面临20年至终身监禁。案件八一前后公布。郭自己及通过家人收受部下买官贿赂，涉及军官包括现役上将、中将和少将，贿款数额巨大，但法庭认定其数目只是很少部分。案涉其妻子、儿子和女儿。其女儿已经入籍美国。<br><img src="http://ww1.sinaimg.cn/large/006uSESAgw1f5zcxugb81j30du0addg5.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3999004758599334" target="freeweibo-mirror">@念念吾思：蓟县鼓楼广场？[疑问]</a>
 </h2>
@@ -83,7 +83,7 @@
 </h2>
 <p>SPAM 听说一份刊物停刊，那种心情，我可以理解。1989年末，我为之努力了6个年头，发行量曾达百万的刊物，也被停刊了。<br><img src="http://ww3.sinaimg.cn/large/55a4207fgw1f5z1wg6ujlj20ch0gq75v.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3998909410111480" target="freeweibo-mirror">这条竟然还活着[笑cry]</a>
 </h2>
