@@ -53,7 +53,7 @@
 </h2>
 <p>SPAM 这个可以要[ok]</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3998732791822150" target="freeweibo-mirror">哎！人民日的报//@聚爱成行1964://@沙河杨先生: /…</a>
 </h2>
