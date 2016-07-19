@@ -95,7 +95,7 @@
 </h2>
 <p>SPAM #聚撸sir，挑战王者之力#今晚7点，我在淘宝直播间和聚划算直播间教你撩妹。<br><img src="http://ww1.sinaimg.cn/large/a9e8f35bgw1f5zfb36pi9j20nc0y076q.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3999023457487743" target="freeweibo-mirror">//@脑残弱智不快乐:转发！//@公民钝勇:转发微博</a>
 </h2>
