@@ -77,7 +77,7 @@
 </h2>
 <p>SPAM 咳咳，活好不粘人[偷乐]链接接着戳评论。<br><img src="http://ww2.sinaimg.cn/large/6d5306acjw1f5z34ndnh0j20cai9yx6c.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3998913016993970" target="freeweibo-mirror">SPAM 听说一份刊物停刊，那种心情，我可以理解。1989年…</a>
 </h2>
