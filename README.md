@@ -35,7 +35,7 @@
 </h2>
 <p>SPAM 咳咳，活好不粘人[偷乐]链接接着戳评论。<br><img src="http://ww2.sinaimg.cn/large/6d5306acjw1f5z34ndnh0j20cai9yx6c.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3998913016993970" target="freeweibo-mirror">SPAM 听说一份刊物停刊，那种心情，我可以理解。1989年…</a>
 </h2>
@@ -53,7 +53,7 @@
 </h2>
 <p>还是团中央嘛！//@曾朗说事:总感觉博主有点不对劲又说不出。</p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3998876351019307" target="freeweibo-mirror">//@格桑梅朵汝奇://@纳兰洛林: //@赤耳丹朵:转发微…</a>
 </h2>
