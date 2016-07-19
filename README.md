@@ -65,7 +65,7 @@
 </h2>
 <p>SPAM [赞][赞][赞][赞][赞][赞]</p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3999078746115753" target="freeweibo-mirror">MMM //@喃东尼:有点意思 //@说谎的人要吞一千根鸡巴…</a>
 </h2>
