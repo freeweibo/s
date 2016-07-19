@@ -37,6 +37,12 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3998749216808463" target="freeweibo-mirror">夜半传来丧钟长鸣，一本汉奸杂志连同它的谎言谣诼，终于被扫进历…</a>
+</h2>
+<p>夜半传来丧钟长鸣，一本汉奸杂志连同它的谎言谣诼，终于被扫进历史的垃圾堆。是老天开眼了？还是罪有应得？老祖宗说得好，耻之于人莫大焉，士大夫之无耻谓之国耻！老百姓说得更好，人在做天在看，自作孽不可活！<br><img src="http://ww3.sinaimg.cn/large/7394ef87jw1f5yj45ujz0j20i10m8myv.jpg"></p>
+<p>
+	<small> ============== 10小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3998734704960650" target="freeweibo-mirror">SPAM 这个可以要[ok]</a>
 </h2>
 <p>SPAM 这个可以要[ok]</p>
@@ -83,7 +89,7 @@
 </h2>
 <p>mdzz//@ECO中文网: 大意了，大水冲了龙王庙，没有协调好[doge]//@战争史研究WHS:@思想火炬 你们朱副主任被共青团中央说成公知了。快骂回去！[偷笑]</p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3998725602893243" target="freeweibo-mirror">[围观]有意思，这个姓朱应该是和团中央一伙的啊。</a>
 </h2>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3998720657765785" target="freeweibo-mirror">//@雷颐: //@普法三十年-: //@粵東老趙: //@…</a>
 </h2>
 <p>//@雷颐: //@普法三十年-: //@粵東老趙: //@忘却纪念: //@齐柏林飞船: 只是让全世界看笑话罢了，都以为朝鲜人是宇宙第一SB，一看老师出来了。</p>
-<p>
-	<small> ============== 12小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3998720502433747" target="freeweibo-mirror">//@林萍在日本:[汗][汗]→_→→_→</a>
-</h2>
-<p>//@林萍在日本:[汗][汗]→_→→_→</p>
 <p>
 	<small> ============== 12小时前</small>
 </p>
