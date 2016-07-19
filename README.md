@@ -19,6 +19,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3998909410111480" target="freeweibo-mirror">这条竟然还活着[笑cry]</a>
+</h2>
+<p>这条竟然还活着[笑cry]<br><br>RE: 一个粉丝问：只要在微博上质疑赵薇就会被删。背后的阴谋是什么？谁在控制舆论？因此，我对她提供了一点小小的建议<br><img src="http://ww3.sinaimg.cn/large/6764cadegw1f5y39cxavuj20qo136q6y.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3998876351019307" target="freeweibo-mirror">//@格桑梅朵汝奇://@纳兰洛林: //@赤耳丹朵:转发微…</a>
 </h2>
 <p>//@格桑梅朵汝奇://@纳兰洛林: //@赤耳丹朵:转发微博</p>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3998721844474860" target="freeweibo-mirror">为什么不抵制波音和互联网？//@你的档案:居然真的是社科院[…</a>
 </h2>
 <p>为什么不抵制波音和互联网？//@你的档案:居然真的是社科院[打脸]//@Laruence: 社科院......[衰]</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3998720883779232" target="freeweibo-mirror">@思想火炬 你们朱副主任被共青团中央说成公知了。快骂回去！[…</a>
-</h2>
-<p>@思想火炬 你们朱副主任被共青团中央说成公知了。快骂回去！[偷笑][偷笑]</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
