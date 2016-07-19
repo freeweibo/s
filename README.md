@@ -71,7 +71,7 @@
 </h2>
 <p>好事 //@无尾熊森林本尊://@思古堂先生:好啊，来得迟了点，还好总算来了//@坚持追寻正义2: 转发微博<br><br>RE: 言谎蠢球？天气有变？历史虚无主义搞了这么多年，是该退休了。 http://t.cn/Rtz6ILQ<br><img src="http://ww4.sinaimg.cn/large/98fe75a2jw1f5yylyp2utj20m80vf77e.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3998923489862804" target="freeweibo-mirror">SPAM 咳咳，活好不粘人[偷乐]链接接着戳评论。</a>
 </h2>
