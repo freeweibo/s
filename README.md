@@ -47,7 +47,7 @@
 </h2>
 <p>夜半传来丧钟长鸣，一本汉奸杂志连同它的谎言谣诼，终于被扫进历史的垃圾堆。是老天开眼了？还是罪有应得？老祖宗说得好，耻之于人莫大焉，士大夫之无耻谓之国耻！老百姓说得更好，人在做天在看，自作孽不可活！<br><img src="http://ww3.sinaimg.cn/large/7394ef87jw1f5yj45ujz0j20i10m8myv.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3998734704960650" target="freeweibo-mirror">SPAM 这个可以要[ok]</a>
 </h2>
