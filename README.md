@@ -19,11 +19,17 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3998969534833393" target="freeweibo-mirror">爱国青年！升赵家旗！</a>
+</h2>
+<p>爱国青年！升赵家旗！<br><img src="http://ww3.sinaimg.cn/large/7c16a697jw1f5z8ezu0gpj206y06ymxk.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3998927789665895" target="freeweibo-mirror">好事 //@无尾熊森林本尊://@思古堂先生:好啊，来得迟了…</a>
 </h2>
 <p>好事 //@无尾熊森林本尊://@思古堂先生:好啊，来得迟了点，还好总算来了//@坚持追寻正义2: 转发微博<br><br>RE: 言谎蠢球？天气有变？历史虚无主义搞了这么多年，是该退休了。 http://t.cn/Rtz6ILQ<br><img src="http://ww4.sinaimg.cn/large/98fe75a2jw1f5yylyp2utj20m80vf77e.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3998923489862804" target="freeweibo-mirror">SPAM 咳咳，活好不粘人[偷乐]链接接着戳评论。</a>
 </h2>
@@ -35,7 +41,7 @@
 </h2>
 <p>SPAM 听说一份刊物停刊，那种心情，我可以理解。1989年末，我为之努力了6个年头，发行量曾达百万的刊物，也被停刊了。<br><img src="http://ww3.sinaimg.cn/large/55a4207fgw1f5z1wg6ujlj20ch0gq75v.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3998909410111480" target="freeweibo-mirror">这条竟然还活着[笑cry]</a>
 </h2>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3998725602893243" target="freeweibo-mirror">[围观]有意思，这个姓朱应该是和团中央一伙的啊。</a>
 </h2>
 <p>[围观]有意思，这个姓朱应该是和团中央一伙的啊。</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3998725556993067" target="freeweibo-mirror">//@五岳散人:党中央一再强调和平发展，这些人假借爱国的名义…</a>
-</h2>
-<p>//@五岳散人:党中央一再强调和平发展，这些人假借爱国的名义煽动仇恨、与中央大政方针背离，这是什么意思？</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
