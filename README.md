@@ -53,7 +53,7 @@
 </h2>
 <p>#吐槽曝料# 打砸是犯罪，为何不抓！[doge] http://t.cn/RtZcUVw .</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3999086514254565" target="freeweibo-mirror">SPAM [赞][赞][赞][赞][赞][赞]</a>
 </h2>
@@ -95,7 +95,7 @@
 </h2>
 <p>//@脑残弱智不快乐:转发！//@公民钝勇:转发微博<br><br>RE: 「建議書」明年香港特首選舉，我有個想法：能否國共兩黨各自提出一名候選人，香港本地提出一名候選人，三人公開競選，當選者上任。以此探討出一條化解矛盾，消除隔閡，促進國家統一的新思路。支持的請轉。「如果轉發超過1000條，我會提請黨中央，和北京溝通」<br><img src="http://ww4.sinaimg.cn/large/d3504604jw1f5yd3k3yvxj20jz0dcdg1.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3999010580110824" target="freeweibo-mirror">外媒爆郭案已经由解放军军事法院秘密审判完毕，郭将面临20年至…</a>
 </h2>
