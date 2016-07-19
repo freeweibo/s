@@ -89,7 +89,7 @@
 </h2>
 <p>SPAM 精神不正常的人越来越多了//@通州府尹:@林悲欢 我操。。你们家门口啊。。。<br><br>RE: @念念吾思：蓟县鼓楼广场？[疑问]<br><img src="http://ww3.sinaimg.cn/large/88678931jw1f5zcc79c2rj20go0m8tbd.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3999029556064142" target="freeweibo-mirror">SPAM #聚撸sir，挑战王者之力#今晚7点，我在淘宝直播…</a>
 </h2>
@@ -101,7 +101,7 @@
 </h2>
 <p>//@脑残弱智不快乐:转发！//@公民钝勇:转发微博<br><br>RE: 「建議書」明年香港特首選舉，我有個想法：能否國共兩黨各自提出一名候選人，香港本地提出一名候選人，三人公開競選，當選者上任。以此探討出一條化解矛盾，消除隔閡，促進國家統一的新思路。支持的請轉。「如果轉發超過1000條，我會提請黨中央，和北京溝通」<br><img src="http://ww4.sinaimg.cn/large/d3504604jw1f5yd3k3yvxj20jz0dcdg1.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3999010580110824" target="freeweibo-mirror">外媒爆郭案已经由解放军军事法院秘密审判完毕，郭将面临20年至…</a>
 </h2>
