@@ -41,13 +41,13 @@
 </h2>
 <p>[吃惊][吃惊][吃惊]草：员工买iPhone7要被开除[衰]互联网还是美国发明的，关网不？？？[怒][怒][怒]<br><br>RE: 【如此爱国 员工买iPhone7要被开除[衰]】近日，这份“爱国通知”开始在网上流传。“即日起，仍然在使用苹果手机的公司员工请更换手机品牌，公司将给予相应补贴；凡购买iPhone7的公司员工，作开除处理，因此事被开除的员工终身不得录用……“杭州比纳实业有限公司”。互联网是美国发明的，关网不[怒]<br><img src="http://ww4.sinaimg.cn/large/5a0a3799gw1f606mqc75gj20c20e4mxw.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3999267456484982" target="freeweibo-mirror">【如此爱国 员工买iPhone7要被开除[衰]】近日，这份“…</a>
 </h2>
 <p>【如此爱国 员工买iPhone7要被开除[衰]】近日，这份“爱国通知”开始在网上流传。“即日起，仍然在使用苹果手机的公司员工请更换手机品牌，公司将给予相应补贴；凡购买iPhone7的公司员工，作开除处理，因此事被开除的员工终身不得录用……“杭州比纳实业有限公司”。互联网是美国发明的，关网不[怒]<br><img src="http://ww4.sinaimg.cn/large/5a0a3799gw1f606mqc75gj20c20e4mxw.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3999265740977127" target="freeweibo-mirror">SPAM 旅行再也不用担心手机没电了…小歇一下就能满血复活</a>
 </h2>
