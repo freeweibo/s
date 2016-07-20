@@ -101,7 +101,7 @@
 </h2>
 <p>人不要脸就天下无敌了//@自干五红四军:[话筒]且看特共多无耻·[笑cry]<br><br>RE: 原来原子弹是在邓小平领导下造出来的呀[赞]改开也是这么搞起来的[赞] http://t.cn/RtZbKUn http://t.cn/RtZbKUn</p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3999319532765299" target="freeweibo-mirror">SPAM 洒脱——“退身江湖如浓夜入墨，红尘来颠倒我”。</a>
 </h2>
