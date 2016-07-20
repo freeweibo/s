@@ -23,7 +23,7 @@
 </h2>
 <p>//@怪才老顽童3:转发微博<br><br>RE: 导致社会问题成堆，不在于“特色”的名称，而在于“特色”的内容。<br><img src="http://ww3.sinaimg.cn/large/d81ffff5gw1f5z8f8fynhj20ax064t92.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3999230840212725" target="freeweibo-mirror">SPAM 这和抵制肯德基一个智商呀[挖鼻]//@街众张志杰:…</a>
 </h2>
@@ -95,7 +95,7 @@
 </h2>
 <p>混账流氓，无人能管？！@公安部打四黑除四害<br><br>RE: #吐槽曝料# 打砸是犯罪，为何不抓！[doge] http://t.cn/RtZcUVw .</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3999102536403162" target="freeweibo-mirror">SPAM 这都是哪个地方的口音？[哼]</a>
 </h2>
