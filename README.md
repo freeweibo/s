@@ -47,7 +47,7 @@
 </h2>
 <p>SPAM 手残 党的福 利[doge]@潮美甲师</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3999433044150125" target="freeweibo-mirror">[偷笑]//@弱者的躯壳: 常人该有的没有，圣人才有的却要求…</a>
 </h2>
@@ -91,6 +91,12 @@
 <p>
 	<small> ============== 7小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3999380279020052" target="freeweibo-mirror">【沈勇平：有病就得治】中国是一个精神病国家，有长征精神 ，有…</a>
+</h2>
+<p>【沈勇平：有病就得治】中国是一个精神病国家，有长征精神 ，有延安精神 ，有雷锋精神，有愚公精神，有大庆精神，有航天精神，有井冈山精神，有白求恩精神，有艰苦奋斗精神，有共产主义精神，有爱国主义精神，有国际主义精神……那么多忽悠傻逼的精神 ，就是没有正常人应有的自由精神，正常社会应有的...全文： http://m.weibo.cn/2081330505/3999380279020052<br><img src="http://ww1.sinaimg.cn/large/7c0e9549gw1f60jl4cnohj20hs0hs40v.jpg"></p>
+<p>
+	<small> ============== 7小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3999351963260726" target="freeweibo-mirror">SPAM 发布了头条文章：《厨色生香，将军别咬我......…</a>
 </h2>
 <p>SPAM 发布了头条文章：《厨色生香，将军别咬我......》 纤手搓来玉色匀，碧油煎出嫩黄深。孟茯苓被婆家休弃，却心怀天下，靠一双芊芊玉手，做尽天下美食，觅得如意郎君……#国史古风# http://t.cn/RtZkjqm</p>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3999269142186766" target="freeweibo-mirror">SPAM #北京暴雨#神人现场直播教你现场处理泡水车</a>
 </h2>
 <p>SPAM #北京暴雨#神人现场直播教你现场处理泡水车<br><br>RE: 直播求打赏，修车用！！！！ #北京暴雨#  #北京暴雨#（来自http://t.cn/RtZjJ0e）APP下载地址：http://t.cn/R5rm8tt</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3999267783669577" target="freeweibo-mirror">[吃惊][吃惊][吃惊]草：员工买iPhone7要被开除[衰…</a>
-</h2>
-<p>[吃惊][吃惊][吃惊]草：员工买iPhone7要被开除[衰]互联网还是美国发明的，关网不？？？[怒][怒][怒]<br><br>RE: 【如此爱国 员工买iPhone7要被开除[衰]】近日，这份“爱国通知”开始在网上流传。“即日起，仍然在使用苹果手机的公司员工请更换手机品牌，公司将给予相应补贴；凡购买iPhone7的公司员工，作开除处理，因此事被开除的员工终身不得录用……“杭州比纳实业有限公司”。互联网是美国发明的，关网不[怒]<br><img src="http://ww4.sinaimg.cn/large/5a0a3799gw1f606mqc75gj20c20e4mxw.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
