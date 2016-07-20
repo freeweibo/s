@@ -59,7 +59,7 @@
 </h2>
 <p>[偷笑]//@弱者的躯壳: 常人该有的没有，圣人才有的却要求常人都要有，确实是个变态国家。<br><br>RE: 【沈勇平：有病就得治】中国是一个精神病国家，有长征精神 ，有延安精神 ，有雷锋精神，有愚公精神，有大庆精神，有航天精神，有井冈山精神，有白求恩精神，有艰苦奋斗精神，有共产主义精神，有爱国主义精神，有国际主义精神……那么多忽悠傻逼的精神 ，就是没有正常人应有的自由精神，正常社会应有的...全文： http://m.weibo.cn/2081330505/3999380279020052<br><img src="http://ww1.sinaimg.cn/large/7c0e9549gw1f60jl4cnohj20hs0hs40v.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3999424180957587" target="freeweibo-mirror">SPAM ( •̀∀•́ )这个衣服好像不错？？？</a>
 </h2>
@@ -89,13 +89,13 @@
 </h2>
 <p>《海棠依旧》电视剧将我国研制氢弹的功劳放在邓小平身上，是严重的篡改历史和杜撰。原中科院院长周光召说过，当年毛主席和周总理点将由钱三强挂帅原子弹氢弹，具体原子弹由邓稼先和王淦昌设计，氢弹由于敏和周光召设计，导弹由钱学森负责，直接受聂荣臻领导。周总理坐镇，没有提一句邓小平。@央视新闻</p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3999386906540275" target="freeweibo-mirror">SPAM 夜班车开车，上车滴两声[doge]</a>
 </h2>
 <p>SPAM 夜班车开车，上车滴两声[doge]<br><img src="http://ww4.sinaimg.cn/large/7f8c1087gw1f60kckz4qaj20k00zkdhx.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3999380279020052" target="freeweibo-mirror">【沈勇平：有病就得治】中国是一个精神病国家，有长征精神 ，有…</a>
 </h2>
@@ -119,7 +119,7 @@
 </h2>
 <p>SPAM 洒脱——“退身江湖如浓夜入墨，红尘来颠倒我”。</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3999302013347040" target="freeweibo-mirror">原来原子弹是在邓小平领导下造出来的呀[赞]改开也是这么搞起来…</a>
 </h2>
