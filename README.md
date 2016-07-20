@@ -23,7 +23,7 @@
 </h2>
 <p>[吃惊][吃惊][吃惊]草：员工买iPhone7要被开除[衰]互联网还是美国发明的，关网不？？？[怒][怒][怒]<br><br>RE: 【如此爱国 员工买iPhone7要被开除[衰]】近日，这份“爱国通知”开始在网上流传。“即日起，仍然在使用苹果手机的公司员工请更换手机品牌，公司将给予相应补贴；凡购买iPhone7的公司员工，作开除处理，因此事被开除的员工终身不得录用……“杭州比纳实业有限公司”。互联网是美国发明的，关网不[怒]<br><img src="http://ww4.sinaimg.cn/large/5a0a3799gw1f606mqc75gj20c20e4mxw.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3999233365867520" target="freeweibo-mirror">//@怪才老顽童3:转发微博</a>
 </h2>
@@ -95,7 +95,7 @@
 </h2>
 <p>应该把这SB的房子先拆了。 //@龙华开心他爸:[晕][晕][晕]<br><br>RE: 砸完肯德基，这人又踩着电单车去搬砖了，怪不得有人说越穷越“爱国”了 http://t.cn/RtZcUVw</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3999105765642668" target="freeweibo-mirror">混账流氓，无人能管？！@公安部打四黑除四害</a>
 </h2>
