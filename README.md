@@ -41,7 +41,7 @@
 </h2>
 <p>原来原子弹是在邓小平领导下造出来的呀[赞]改开也是这么搞起来的[赞] http://t.cn/RtZbKUn http://t.cn/RtZbKUn</p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3999284569177203" target="freeweibo-mirror">SPAM 一小时充电，看起来不错</a>
 </h2>
@@ -107,7 +107,7 @@
 </h2>
 <p>//@怪才老顽童3:转发微博<br><br>RE: 导致社会问题成堆，不在于“特色”的名称，而在于“特色”的内容。<br><img src="http://ww3.sinaimg.cn/large/d81ffff5gw1f5z8f8fynhj20ax064t92.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3999230840212725" target="freeweibo-mirror">SPAM 这和抵制肯德基一个智商呀[挖鼻]//@街众张志杰:…</a>
 </h2>
