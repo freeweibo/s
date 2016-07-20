@@ -41,7 +41,7 @@
 </h2>
 <p>原来原子弹是在邓小平领导下造出来的呀[赞]改开也是这么搞起来的[赞] http://t.cn/RtZbKUn http://t.cn/RtZbKUn</p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3999284569177203" target="freeweibo-mirror">SPAM 一小时充电，看起来不错</a>
 </h2>
