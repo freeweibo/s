@@ -43,6 +43,12 @@
 <p>
 	<small> ============== 4小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/3999387652430625" target="freeweibo-mirror">《海棠依旧》电视剧将我国研制氢弹的功劳放在邓小平身上，是严重…</a>
+</h2>
+<p>《海棠依旧》电视剧将我国研制氢弹的功劳放在邓小平身上，是严重的篡改历史和杜撰。原中科院院长周光召说过，当年毛主席和周总理点将由钱三强挂帅原子弹氢弹，具体原子弹由邓稼先和王淦昌设计，氢弹由于敏和周光召设计，导弹由钱学森负责，直接受聂荣臻领导。周总理坐镇，没有提一句邓小平。@央视新闻</p>
+<p>
+	<small> ============== 5小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3999386906540275" target="freeweibo-mirror">SPAM 夜班车开车，上车滴两声[doge]</a>
 </h2>
 <p>SPAM 夜班车开车，上车滴两声[doge]<br><img src="http://ww4.sinaimg.cn/large/7f8c1087gw1f60kckz4qaj20k00zkdhx.jpg"></p>
@@ -59,7 +65,7 @@
 </h2>
 <p>人不要脸就天下无敌了//@自干五红四军:[话筒]且看特共多无耻·[笑cry]<br><br>RE: 原来原子弹是在邓小平领导下造出来的呀[赞]改开也是这么搞起来的[赞] http://t.cn/RtZbKUn http://t.cn/RtZbKUn</p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3999319532765299" target="freeweibo-mirror">SPAM 洒脱——“退身江湖如浓夜入墨，红尘来颠倒我”。</a>
 </h2>
@@ -83,7 +89,7 @@
 </h2>
 <p>SPAM 都这样了？得注意安全啊。[吃惊]<br><br>RE: 直播求打赏，修车用！！！！ #北京暴雨#  #北京暴雨#（来自http://t.cn/RtZjJ0e）APP下载地址：http://t.cn/R5rm8tt</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3999269142186766" target="freeweibo-mirror">SPAM #北京暴雨#神人现场直播教你现场处理泡水车</a>
 </h2>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3999254483456986" target="freeweibo-mirror">直播求打赏，修车用！！！！ #北京暴雨#  #北京暴雨#（来…</a>
 </h2>
 <p>直播求打赏，修车用！！！！ #北京暴雨#  #北京暴雨#（来自http://t.cn/RtZjJ0e）APP下载地址：http://t.cn/R5rm8tt</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3999233365867520" target="freeweibo-mirror">//@怪才老顽童3:转发微博</a>
-</h2>
-<p>//@怪才老顽童3:转发微博<br><br>RE: 导致社会问题成堆，不在于“特色”的名称，而在于“特色”的内容。<br><img src="http://ww3.sinaimg.cn/large/d81ffff5gw1f5z8f8fynhj20ax064t92.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
