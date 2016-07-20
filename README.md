@@ -19,6 +19,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/3999267783669577" target="freeweibo-mirror">[吃惊][吃惊][吃惊]草：员工买iPhone7要被开除[衰…</a>
+</h2>
+<p>[吃惊][吃惊][吃惊]草：员工买iPhone7要被开除[衰]互联网还是美国发明的，关网不？？？[怒][怒][怒]<br><br>RE: 【如此爱国 员工买iPhone7要被开除[衰]】近日，这份“爱国通知”开始在网上流传。“即日起，仍然在使用苹果手机的公司员工请更换手机品牌，公司将给予相应补贴；凡购买iPhone7的公司员工，作开除处理，因此事被开除的员工终身不得录用……“杭州比纳实业有限公司”。互联网是美国发明的，关网不[怒]<br><img src="http://ww4.sinaimg.cn/large/5a0a3799gw1f606mqc75gj20c20e4mxw.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/3999233365867520" target="freeweibo-mirror">//@怪才老顽童3:转发微博</a>
 </h2>
 <p>//@怪才老顽童3:转发微博<br><br>RE: 导致社会问题成堆，不在于“特色”的名称，而在于“特色”的内容。<br><img src="http://ww3.sinaimg.cn/large/d81ffff5gw1f5z8f8fynhj20ax064t92.jpg"></p>
@@ -53,7 +59,7 @@
 </h2>
 <p>//@林波_清晨六点零三分:转发微博<br><br>RE: 天朝一共持有美国国债1.2440万亿美元！按美帝最新型的“福特”级航母150亿美元的造价来算，可以帮美帝造83艘，换成M1A2主战坦克是248800辆，换成F22猛禽战斗机是16586架~</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3999211169077440" target="freeweibo-mirror">SPAM 我擦，这些妖孽，这是我老家人的口音。//@西粤江郎…</a>
 </h2>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3999078746115753" target="freeweibo-mirror">MMM //@喃东尼:有点意思 //@说谎的人要吞一千根鸡巴…</a>
 </h2>
 <p>MMM //@喃东尼:有点意思 //@说谎的人要吞一千根鸡巴:就是这个游戏啊啊啊！我为了摸杀人魔先生的唧唧，死了好多次……//@梨七七七七七七七：就是这个游戏！考试周不睡觉就在肝HE！最后肝到甜死我了！！！！</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3999040452010421" target="freeweibo-mirror">SPAM 一旦拥有，别无所求；爱在每时每分每秒；静让世界停止…</a>
-</h2>
-<p>SPAM 一旦拥有，别无所求；爱在每时每分每秒；静让世界停止，动让世界前行；见证历史，把握未来；男女手表。</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
