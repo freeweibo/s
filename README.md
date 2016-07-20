@@ -29,7 +29,7 @@
 </h2>
 <p>SPAM 这和抵制肯德基一个智商呀[挖鼻]//@街众张志杰: [哈哈][哈哈]<br><br>RE: 天朝一共持有美国国债1.2440万亿美元！按美帝最新型的“福特”级航母150亿美元的造价来算，可以帮美帝造83艘，换成M1A2主战坦克是248800辆，换成F22猛禽战斗机是16586架~</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3999228113823879" target="freeweibo-mirror">SPAM //@法律人童朝平: 有这事？//@海之岸9812…</a>
 </h2>
@@ -101,13 +101,13 @@
 </h2>
 <p>SPAM 这都是哪个地方的口音？[哼]<br><br>RE: #吐槽曝料# 打砸是犯罪，为何不抓！[doge] http://t.cn/RtZcUVw .</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3999102179805114" target="freeweibo-mirror">法律就是个儿戏！[哼]</a>
 </h2>
 <p>法律就是个儿戏！[哼]<br><br>RE: #吐槽曝料# 打砸是犯罪，为何不抓！[doge] http://t.cn/RtZcUVw .</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3999100867746074" target="freeweibo-mirror">砸完肯德基，这人又踩着电单车去搬砖了，怪不得有人说越穷越“爱…</a>
 </h2>
