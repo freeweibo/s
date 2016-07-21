@@ -59,7 +59,7 @@
 </h2>
 <p>[偷笑]//@弱者的躯壳: 常人该有的没有，圣人才有的却要求常人都要有，确实是个变态国家。<br><br>RE: 【沈勇平：有病就得治】中国是一个精神病国家，有长征精神 ，有延安精神 ，有雷锋精神，有愚公精神，有大庆精神，有航天精神，有井冈山精神，有白求恩精神，有艰苦奋斗精神，有共产主义精神，有爱国主义精神，有国际主义精神……那么多忽悠傻逼的精神 ，就是没有正常人应有的自由精神，正常社会应有的...全文： http://m.weibo.cn/2081330505/3999380279020052<br><img src="http://ww1.sinaimg.cn/large/7c0e9549gw1f60jl4cnohj20hs0hs40v.jpg"></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3999424180957587" target="freeweibo-mirror">SPAM ( •̀∀•́ )这个衣服好像不错？？？</a>
 </h2>
@@ -71,7 +71,7 @@
 </h2>
 <p>SPAM ▶Vaude沃德  儿童防晒遮阳帽， EUR13.99 ◀ 夏天炎炎烈日[太阳]当空时外出必备防晒用品，这种款型 遮帽全方位防晒效果最佳[赞]夏季佩戴清凉不闷热，采用舒适、快干的Supplex材料 http://t.cn/R5IL6Lc<br><img src="http://ww4.sinaimg.cn/large/74b5d787jw1f60n0inmbnj20zf25xdsw.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3999400059557643" target="freeweibo-mirror">我吐了</a>
 </h2>
