@@ -29,7 +29,7 @@
 </h2>
 <p>SPAM 【好文分享】1、中国渔船为什么被全世界痛恨！2、美国中 央情报局评中国微信 ，笑傻了！3、当遭遇1885次拒绝，你会怎么样！4 、那时那么穷，我们为什么却很还念？因为两个字：温情！5、“乱世佳人”赛金花的真面目！6、台湾女人和内地女人有什么区别？ 更多精彩请添加关 注：zhebsls<br><img src="http://ww2.sinaimg.cn/large/9647a31ejw1f60ttdrtkuj20j60y3mze.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3999459228851444" target="freeweibo-mirror">SPAM //@xh云中散步: //@张晨初艺术空间://@…</a>
 </h2>
