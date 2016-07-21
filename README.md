@@ -53,7 +53,7 @@
 </h2>
 <p>SPAM 美丽不担心，我有我的秘密。@娜娜123走起<br><img src="http://ww4.sinaimg.cn/large/70623bbbgw1f61q2bqq56j20zk0zkae3.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3999720219464243" target="freeweibo-mirror">SPAM 请有关部门紧急辟谣！ //@陈光武律师: //@街…</a>
 </h2>
@@ -65,7 +65,7 @@
 </h2>
 <p>SPAM 搬个板凳坐等看戏//@王晓鸥_地产://@闲庭信步-徐勇:[围观][围观][围观]//@中壮:[围观]//@余耕归来:搬个板凳瞧热闹。//@斯韦爵://@人间秋雨：阳光是最好的力量！</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3999693736574905" target="freeweibo-mirror">SPAM 经常飞的人都知道累积里程很重要，但这里面有许多隐藏…</a>
 </h2>
