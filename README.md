@@ -35,7 +35,7 @@
 </h2>
 <p>SPAM 经常飞的人都知道累积里程很重要，但这里面有许多隐藏的窍门，知道的人可以迅速涨里程，合理使用规则很必要！艾马，刚看到的这文儿可长知识了…</p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3999693002109522" target="freeweibo-mirror">SPAM 真够奇葩的了</a>
 </h2>
