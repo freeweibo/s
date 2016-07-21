@@ -23,7 +23,7 @@
 </h2>
 <p>SPAM 请有关部门紧急辟谣！ //@陈光武律师: //@街众张志杰: 搬个板凳坐等看戏 //@王晓鸥_地产: //@闲庭信步-徐勇:[围观][围观][围观] //@中壮:[围观] //@余耕归来:搬个板凳瞧热闹。 //@斯韦爵: //@人间秋雨：阳光是最好的力量！</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3999713873874349" target="freeweibo-mirror">SPAM 搬个板凳坐等看戏//@王晓鸥_地产://@闲庭信步…</a>
 </h2>
@@ -47,7 +47,7 @@
 </h2>
 <p>SPAM 这是想把马仔刘给牺牲掉吗？<br><img src="http://ww4.sinaimg.cn/large/005u0ECSgw1f61flk6v07j30k00hgaci.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3999659519191922" target="freeweibo-mirror">SPAM 很实在的卖家，喜欢[心]</a>
 </h2>
