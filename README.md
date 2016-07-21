@@ -83,7 +83,7 @@
 </h2>
 <p>SPAM 这是想把马仔刘给牺牲掉吗？<br><img src="http://ww4.sinaimg.cn/large/005u0ECSgw1f61flk6v07j30k00hgaci.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3999659519191922" target="freeweibo-mirror">SPAM 很实在的卖家，喜欢[心]</a>
 </h2>
