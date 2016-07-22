@@ -23,7 +23,7 @@
 </h2>
 <p>没有把拥堵带来的不便包含进去，所以这个排行榜商榷的空间很大的。//@叶青: 转发微博<br><br>RE: 【出行最便利大学排行榜出炉，华科中南财大华师上榜！】出行最便利大学排行榜出炉，其中华中科技大学以304站位居第25位，中南财经政法大学首义小区以287站位居第33位，华中师范大学以268站位居第37位。而武汉设计工程学院、中国地质大学（北区）则上榜最不便利大学。<br><img src="http://ww3.sinaimg.cn/large/712547e4gw1f62ijiryfvj20j647k4qp.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3999979128835002" target="freeweibo-mirror">SPAM 尼玛这PP音乐～http://t.cn/RtAC0…</a>
 </h2>
