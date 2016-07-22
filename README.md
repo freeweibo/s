@@ -37,6 +37,12 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/4000208009005022" target="freeweibo-mirror">这个小不点永远都不会理解，仅仅几天前她的强大的祖国向全世界人…</a>
+</h2>
+<p>这个小不点永远都不会理解，仅仅几天前她的强大的祖国向全世界人群情激愤地表示：中国一点都不能少！ //@amantsun:[泪]//@陆亚明: [泪][泪][泪]<br><br>RE: 一个是中国中央电视台多套节目眼含泪水连续几周反复报道的外国孩子；一个是时隔一天了仍然入不了央视法眼里的中国河北孩子。<br><img src="http://ww2.sinaimg.cn/large/006unzuUjw1f634otlbxvj30go0akjt2.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/4000207995360575" target="freeweibo-mirror">[蜡烛]//@记者谈春平: #老谈说事#   http://…</a>
 </h2>
 <p>[蜡烛]//@记者谈春平: #老谈说事#   http://t.cn/RtLUuUf<br><br>RE: #老谈说事# 满网都是邢台刷频，邢台方面官方和媒体报道没死亡，一片作为的声音，可结果呢？民众不答应了，愤怒了为何？据传是邢台官方泄洪估计不足，转移不及造成了死亡[蜡烛]，但就是没见官方发声出来辟谣，事实成立邢台官员政治生涯将会终结。<br><img src="http://ww1.sinaimg.cn/large/9287c5cejw1f636b7n8l4j20ku0rrwjn.jpg"></p>
@@ -55,6 +61,12 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/4000205906906572" target="freeweibo-mirror">//@胡淑芬:民众愤怒不仅因事件本身，也是反感对信息的粗暴封…</a>
+</h2>
+<p>//@胡淑芬:民众愤怒不仅因事件本身，也是反感对信息的粗暴封锁。这种粗暴哪次不是小事化大，大事化到不可收拾。传播如此发达，信息公开易封锁难，为何总是采取更难更易恶化局面的手段？还是老毛病，制度性愚蠢。视民如草芥，怕官如畏虎，怕上峰怪罪丢乌纱。滔天民意若不能泄洪，你们丢的岂止乌纱。<br><br>RE: 泪撒国道107 http://t.cn/Rt2T8y7</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/4000205399303512" target="freeweibo-mirror">民众愤怒不仅因事件本身，也是反感对信息的粗暴封锁。这种粗暴哪…</a>
 </h2>
 <p>民众愤怒不仅因事件本身，也是反感对信息的粗暴封锁。这种粗暴哪次不是小事化大，大事化到不可收拾。传播如此发达，信息公开易封锁难，为何总是采取更难更易恶化局面的手段？还是老毛病，制度性愚蠢。视民如草芥，怕官如畏虎，怕上峰怪罪丢乌纱。滔天民意若不能泄洪，你们丢的岂止乌纱。<br><br>RE: 泪撒国道107 http://t.cn/Rt2T8y7</p>
@@ -64,6 +76,12 @@
 	<a href="https://freeweibo.com/weibo/4000205063816324" target="freeweibo-mirror">#老谈说事# 满网都是邢台刷频，邢台方面官方和媒体报道没死亡…</a>
 </h2>
 <p>#老谈说事# 满网都是邢台刷频，邢台方面官方和媒体报道没死亡，一片作为的声音，可结果呢？民众不答应了，愤怒了为何？据传是邢台官方泄洪估计不足，转移不及造成了死亡[蜡烛]，但就是没见官方发声出来辟谣，事实成立邢台官员政治生涯将会终结。<br><img src="http://ww1.sinaimg.cn/large/9287c5cejw1f636b7n8l4j20ku0rrwjn.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/4000204439444360" target="freeweibo-mirror">这些为特色服务的狗都该枪毙，没有一丝同情心！//@郭璀诗:/…</a>
+</h2>
+<p>这些为特色服务的狗都该枪毙，没有一丝同情心！//@郭璀诗://@laoxuxu：对内强硬，对已经受到损失个伤害的老百姓，还会再来一刀，警察再一次充当了不光彩的角色。</p>
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
@@ -85,57 +103,39 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/4000203138601771" target="freeweibo-mirror">特色不管下面百姓，只看上面意图！//@郭璀诗://@小马驹呦…</a>
+</h2>
+<p>特色不管下面百姓，只看上面意图！//@郭璀诗://@小马驹呦：@人民日报 人民日报会不会顾及老百姓感受，来河北邢台市大贤村走访一下，去周围看看，失去亲人的家庭油多痛苦，有的失去两个孩子有的失去父母，爱人。明明可以避免，却因上级泄洪不通知，死伤无辜。谁来主持公道，这个国家还有没有人权</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/4000202602471891" target="freeweibo-mirror">//@守候者说://@巴楚渔樵://@我是你认识的王小能:伏…</a>
+</h2>
+<p>//@守候者说://@巴楚渔樵://@我是你认识的王小能:伏尸沙滩上的叙利亚小难民获得了全世界善心人的眼泪，我国的小娃娃则赤膊躺在泥水里，张着小嘴伸着小手，死得无声无息。这不是你国，不是他国，就是中国，就是垃圾们为之欢呼的睡在梦里的中国。继续辟谣吧终有一天你也不过是个谣言<br><br>RE: 泪撒国道107 http://t.cn/Rt2T8y7</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/4000202295823407" target="freeweibo-mirror">//@愚夫愚言://@山清水秀567: //@軍魂-IV:/…</a>
+</h2>
+<p>//@愚夫愚言://@山清水秀567: //@軍魂-IV://@仰嶽Admire仰嶽:让更多的人看穿它的伪善与冷酷!<br><br>RE: 一个是中国中央电视台多套节目眼含泪水连续几周反复报道的外国孩子；一个是时隔一天了仍然入不了央视法眼里的中国河北孩子。<br><img src="http://ww2.sinaimg.cn/large/006unzuUjw1f634otlbxvj30go0akjt2.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/4000202094370225" target="freeweibo-mirror">SPAM //@谌旭彬:你们的星辰大海，他在水底永远看不到了…</a>
 </h2>
 <p>SPAM //@谌旭彬:你们的星辰大海，他在水底永远看不到了。<br><br>RE: 魂归何处 http://t.cn/Rt2HzE7</p>
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/4000201981332360" target="freeweibo-mirror">【转发】//@煙囪想飛: //@我是你认识的王小能:伏尸沙滩…</a>
+</h2>
+<p>【转发】//@煙囪想飛: //@我是你认识的王小能:伏尸沙滩上的叙利亚小难民获得了全世界善心人的眼泪，我国的小娃娃则赤膊躺在泥水里，张着小嘴伸着小手，死得无声无息。这不是你国，不是他国，就是中国，就是垃圾们为之欢呼的睡在梦里的中国。继续辟谣吧，终有一天你也不过是个谣言。<br><br>RE: 泪撒国道107 http://t.cn/Rt2T8y7</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/4000201808987133" target="freeweibo-mirror">SPAM [泪][泪][泪]</a>
 </h2>
 <p>SPAM [泪][泪][泪]<br><br>RE: “#邢台抗洪救灾#”我的秒拍作品，一起来看~http://t.cn/Rt26blY（使用#秒拍#录制）</p>
-<p>
-	<small> ============== 2小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/4000201515462471" target="freeweibo-mirror">SPAM //@导演李军林:转发微博</a>
-</h2>
-<p>SPAM //@导演李军林:转发微博<br><br>RE: “#邢台抗洪救灾#”我的秒拍作品，一起来看~http://t.cn/Rt26blY（使用#秒拍#录制）</p>
-<p>
-	<small> ============== 2小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/4000201319107426" target="freeweibo-mirror">SPAM //@谢文://@阿嚏://@百磕儿全书://@幸…</a>
-</h2>
-<p>SPAM //@谢文://@阿嚏://@百磕儿全书://@幸运小青蛇:愤怒[怒]<br><br>RE: 下跪的是刑台市高新区党工委副书记，因他接受电视台采访时说，没有人伤亡。图片是他跪阻因灾死亡的家属进京告状。<br><img src="http://ww1.sinaimg.cn/large/80191561jw1f62yflrkyzj20hs0vmt9l.jpg"></p>
-<p>
-	<small> ============== 2小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/4000201075611126" target="freeweibo-mirror">SPAM //@朱学东://@尤素的电线杆子:惨</a>
-</h2>
-<p>SPAM //@朱学东://@尤素的电线杆子:惨</p>
-<p>
-	<small> ============== 2小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/4000200764438049" target="freeweibo-mirror">http://t.cn/R5qjmCj //@文盲李世威: …</a>
-</h2>
-<p>http://t.cn/R5qjmCj //@文盲李世威: 周云蓬有一首歌叫《不要做中国人的孩子》……<br><br>RE: 一个是中国中央电视台多套节目眼含泪水连续几周反复报道的外国孩子；一个是时隔一天了仍然入不了央视法眼里的中国河北孩子。<br><img src="http://ww2.sinaimg.cn/large/006unzuUjw1f634otlbxvj30go0akjt2.jpg"></p>
-<p>
-	<small> ============== 2小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/4000200130929522" target="freeweibo-mirror">//@焊武帝vip: 默哀 //@文盲李世威:周云蓬有一首歌…</a>
-</h2>
-<p>//@焊武帝vip: 默哀 //@文盲李世威:周云蓬有一首歌叫《不要做中国人的孩子》……<br><br>RE: 一个是中国中央电视台多套节目眼含泪水连续几周反复报道的外国孩子；一个是时隔一天了仍然入不了央视法眼里的中国河北孩子。<br><img src="http://ww2.sinaimg.cn/large/006unzuUjw1f634otlbxvj30go0akjt2.jpg"></p>
-<p>
-	<small> ============== 2小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/4000199040662200" target="freeweibo-mirror">SPAM 为什么有人恨我？因为我说对了。——郭德纲。“善恶终…</a>
-</h2>
-<p>SPAM 为什么有人恨我？因为我说对了。——郭德纲。“善恶终有报，天道好轮回，不信抬头看，苍天饶过谁。” //对，起码我每年高考季为无数的北京考生和家长排忧解难，其中包括许多跟你互动频繁的人。我想问问你这个“好人”，你做过什么？除了骂人？//@札克纳梵_冯_李希特二猪: 总之坏人都死全家，对，没错</p>
-<p>
-	<small> ============== 2小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/4000198256244294" target="freeweibo-mirror">SPAM 为什么有人恨我？因为我说对了。——郭德纲。//@深…</a>
-</h2>
-<p>SPAM 为什么有人恨我？因为我说对了。——郭德纲。//@深夜走过长安街001: 对，起码我每年高考季为无数的北京考生和家长排忧解难，其中包括许多跟你互动频繁的人。我想问问你这个“好人”，你做过什么？除了骂人？//@札克纳梵_冯_李希特二猪: 总之坏人都死全家，对，没错//@深夜走过长安街001</p>
 <p>
 	<small> ============== 2小时前</small>
 </p>
