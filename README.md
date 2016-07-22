@@ -29,13 +29,13 @@
 </h2>
 <p>[蜡烛]//@记者谈春平: #老谈说事#   http://t.cn/RtLUuUf<br><br>RE: #老谈说事# 满网都是邢台刷频，邢台方面官方和媒体报道没死亡，一片作为的声音，可结果呢？民众不答应了，愤怒了为何？据传是邢台官方泄洪估计不足，转移不及造成了死亡[蜡烛]，但就是没见官方发声出来辟谣，事实成立邢台官员政治生涯将会终结。<br><img src="http://ww1.sinaimg.cn/large/9287c5cejw1f636b7n8l4j20ku0rrwjn.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/4000207471987202" target="freeweibo-mirror">#老谈说事#  http://t.cn/RtLUuUf</a>
 </h2>
 <p>#老谈说事#  http://t.cn/RtLUuUf<br><br>RE: #老谈说事# 满网都是邢台刷频，邢台方面官方和媒体报道没死亡，一片作为的声音，可结果呢？民众不答应了，愤怒了为何？据传是邢台官方泄洪估计不足，转移不及造成了死亡[蜡烛]，但就是没见官方发声出来辟谣，事实成立邢台官员政治生涯将会终结。<br><img src="http://ww1.sinaimg.cn/large/9287c5cejw1f636b7n8l4j20ku0rrwjn.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/4000206813508497" target="freeweibo-mirror">#老谈说事# </a>
 </h2>
@@ -46,6 +46,12 @@
 	<a href="https://freeweibo.com/weibo/4000205399303512" target="freeweibo-mirror">民众愤怒不仅因事件本身，也是反感对信息的粗暴封锁。这种粗暴哪…</a>
 </h2>
 <p>民众愤怒不仅因事件本身，也是反感对信息的粗暴封锁。这种粗暴哪次不是小事化大，大事化到不可收拾。传播如此发达，信息公开易封锁难，为何总是采取更难更易恶化局面的手段？还是老毛病，制度性愚蠢。视民如草芥，怕官如畏虎，怕上峰怪罪丢乌纱。滔天民意若不能泄洪，你们丢的岂止乌纱。<br><br>RE: 泪撒国道107 http://t.cn/Rt2T8y7</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/4000205063816324" target="freeweibo-mirror">#老谈说事# 满网都是邢台刷频，邢台方面官方和媒体报道没死亡…</a>
+</h2>
+<p>#老谈说事# 满网都是邢台刷频，邢台方面官方和媒体报道没死亡，一片作为的声音，可结果呢？民众不答应了，愤怒了为何？据传是邢台官方泄洪估计不足，转移不及造成了死亡[蜡烛]，但就是没见官方发声出来辟谣，事实成立邢台官员政治生涯将会终结。<br><img src="http://ww1.sinaimg.cn/large/9287c5cejw1f636b7n8l4j20ku0rrwjn.jpg"></p>
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/4000197292471323" target="freeweibo-mirror">//@胡戈://@冷露无声2: 邢台东汪镇河北最大的板材基地…</a>
 </h2>
 <p>//@胡戈://@冷露无声2: 邢台东汪镇河北最大的板材基地，一夜之间化为废墟、被洪水冲走的老人孩子财物损失惨重，村民们愤怒的是，上游水库泄洪。下游村庄应该收到撤离通知，但是没有，20号凌晨两点洪水袭击了熟睡中的人们。一个村就失踪十几人。政府不报。现在没办法农民堵高速。<br><br>RE: “#邢台抗洪救灾#”我的秒拍作品，一起来看~http://t.cn/Rt26blY（使用#秒拍#录制）</p>
-<p>
-	<small> ============== 2小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/4000196151007642" target="freeweibo-mirror">SPAM 震惊</a>
-</h2>
-<p>SPAM 震惊</p>
 <p>
 	<small> ============== 2小时前</small>
 </p>
