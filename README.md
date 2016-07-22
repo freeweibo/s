@@ -25,6 +25,12 @@
 <p>
 	<small> ============== 1小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/4000196146276806" target="freeweibo-mirror">这事怎么不通知习近平？[怒]//@方新文2014冬://@许…</a>
+</h2>
+<p>这事怎么不通知习近平？[怒]//@方新文2014冬://@许合文: //@人生漫步111://@价值投资快客: //@swansu_yw: 自己痛了才开始叫。[泪]//@张晨初艺术空间:配图真的假的？[疑问]//@DDDT天堂: @张晨初艺术空间  //@公民用户5921540650:转发微博<br><br>RE: “没有人员伤亡”。邢台。<br><img src="http://ww2.sinaimg.cn/large/005LF6Ssjw1f62yv496djj30c80lswfk.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/4000195207548494" target="freeweibo-mirror">对不起 //@LifeTime:</a>
 </h2>
 <p>对不起 //@LifeTime:</p>
@@ -40,6 +46,12 @@
 	<a href="https://freeweibo.com/weibo/4000193013576955" target="freeweibo-mirror">这么严重！ //@人生漫步111://@换个马甲重新来3: …</a>
 </h2>
 <p>这么严重！ //@人生漫步111://@换个马甲重新来3: //@台湾是希望://@阿依土豪公主://@浩正刘臻:[话筒]</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/4000191122455997" target="freeweibo-mirror">SPAM 今夜微博不眠，满屏尽是邢台！ //@彭幼生:在这样…</a>
+</h2>
+<p>SPAM 今夜微博不眠，满屏尽是邢台！ //@彭幼生:在这样的灾难面前，还要洗地，简直畜牲不如！//@深夜走过长安街001:谁拼接图的死全家，洗地的狗死全家！造谣死全家！ http://t.cn/Rt2k2Lg //@曹安心: 奉劝博主不要故意制造仇恨，恶意拼接，造谣污蔑政府隐瞒情况！而且手段高明，害怕造谣被警方抓，故意来个疑</p>
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
@@ -101,19 +113,19 @@
 </h2>
 <p>//@飚哥思想://@远古的刀: //@长安修明://@神庙守护者铁马: 转发微博<br><br>RE: 邢台暴雨非常严重，怎么没有官媒报导？  http://t.cn/Rt2HzE7</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/4000178866349777" target="freeweibo-mirror">SPAM //@半虹骑士: 惨不忍睹！ //@贺金云-:泄洪…</a>
 </h2>
 <p>SPAM //@半虹骑士: 惨不忍睹！ //@贺金云-:泄洪未通知沿江居民提前撤离[怒]</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/4000178560650330" target="freeweibo-mirror">邢台居然这么大的伤亡[蜡烛]，既是天灾也有人祸</a>
 </h2>
 <p>邢台居然这么大的伤亡[蜡烛]，既是天灾也有人祸<br><br>RE: 一味得逃避解决不了问题，死了这么多人，是你想瞒就能瞒过去得吗！为死去得邢台人鸣不平！@中央电视台 @中国新闻联播 http://t.cn/R2d2iis<br><img src="http://ww4.sinaimg.cn/large/005TJ4QLjw1f6315kbjuoj30ku111gp8.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/4000176567617103" target="freeweibo-mirror">别人的孩子死了，全世界的人都知道，都为之心碎，我们的孩子死了…</a>
 </h2>
@@ -124,18 +136,6 @@
 	<a href="https://freeweibo.com/weibo/4000176550532284" target="freeweibo-mirror">//@迩東晨: [围观]</a>
 </h2>
 <p>//@迩東晨: [围观]<br><br>RE: 官媒不给一点消息，网民就要用微博来寻找真相！<br><img src="http://ww4.sinaimg.cn/large/006unzuUgw1f62vrz9fq3j30hf09t415.jpg"></p>
-<p>
-	<small> ============== 3小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/4000175308969856" target="freeweibo-mirror">SPAM //@萧含://@雷文1970:[泪][伤心][伤…</a>
-</h2>
-<p>SPAM //@萧含://@雷文1970:[泪][伤心][伤心]//@林立人_:对不起！鞠躬[伤心][伤心][伤心][蜡烛][蜡烛][蜡烛] //@叁-壹-陆-零: //@街众张志杰:[蜡烛][伤心][伤心]//@湖嗨散人:[蜡烛]//@甲古的时代: 我不信苍天可欺//@Z秦时明月H003:转发微博</p>
-<p>
-	<small> ============== 3小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/4000174005770677" target="freeweibo-mirror">SPAM //@李国斌律师://@围观blog: 转发微博</a>
-</h2>
-<p>SPAM //@李国斌律师://@围观blog: 转发微博</p>
 <p>
 	<small> ============== 3小时前</small>
 </p>
