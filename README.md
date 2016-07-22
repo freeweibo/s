@@ -23,13 +23,13 @@
 </h2>
 <p>SPAM 震惊</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/4000196146276806" target="freeweibo-mirror">这事怎么不通知习近平？[怒]//@方新文2014冬://@许…</a>
 </h2>
 <p>这事怎么不通知习近平？[怒]//@方新文2014冬://@许合文: //@人生漫步111://@价值投资快客: //@swansu_yw: 自己痛了才开始叫。[泪]//@张晨初艺术空间:配图真的假的？[疑问]//@DDDT天堂: @张晨初艺术空间  //@公民用户5921540650:转发微博<br><br>RE: “没有人员伤亡”。邢台。<br><img src="http://ww2.sinaimg.cn/large/005LF6Ssjw1f62yv496djj30c80lswfk.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/4000195207548494" target="freeweibo-mirror">对不起 //@LifeTime:</a>
 </h2>
@@ -113,7 +113,7 @@
 </h2>
 <p>呼叫新华社，呼叫人民日报，呼叫中央电视台！！！//@贝格海德: 转发微博<br><br>RE: 别人的孩子死了，全世界的人都知道，都为之心碎，我们的孩子死了，各种封锁消息，唯恐多一个人怜悯这些无辜死去的生命。不要说别人看不起中国人，我们自己最看不起自己，最不把自己当人。坂东之后是井陉，暴雨未停，还会有下一个受害者吗？<br><img src="http://ww2.sinaimg.cn/large/6ad9978dgw1f632v0r0saj20ku111n0t.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/4000180505685280" target="freeweibo-mirror">河北官府没办法删尽。又出现了原来的微博！//@张晨初艺术空间…</a>
 </h2>
