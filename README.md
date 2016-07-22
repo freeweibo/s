@@ -119,13 +119,13 @@
 </h2>
 <p>别人的孩子死了，全世界的人都知道，都为之心碎，我们的孩子死了，各种封锁消息，唯恐多一个人怜悯这些无辜死去的生命。不要说别人看不起中国人，我们自己最看不起自己，最不把自己当人。坂东之后是井陉，暴雨未停，还会有下一个受害者吗？<br><img src="http://ww2.sinaimg.cn/large/6ad9978dgw1f632v0r0saj20ku111n0t.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/4000176550532284" target="freeweibo-mirror">//@迩東晨: [围观]</a>
 </h2>
 <p>//@迩東晨: [围观]<br><br>RE: 官媒不给一点消息，网民就要用微博来寻找真相！<br><img src="http://ww4.sinaimg.cn/large/006unzuUgw1f62vrz9fq3j30hf09t415.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/4000175308969856" target="freeweibo-mirror">SPAM //@萧含://@雷文1970:[泪][伤心][伤…</a>
 </h2>
