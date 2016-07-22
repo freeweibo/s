@@ -23,7 +23,7 @@
 </h2>
 <p>SPAM 尼玛这PP音乐～http://t.cn/RtAC0mM #艺术人生#</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3999934971689042" target="freeweibo-mirror">资老婊的启蒙事业失败了不反省自己，反而怪罪意图被启蒙对象素质…</a>
 </h2>
