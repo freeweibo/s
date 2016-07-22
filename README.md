@@ -65,19 +65,19 @@
 </h2>
 <p>#老谈说事# </p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/4000205906906572" target="freeweibo-mirror">//@胡淑芬:民众愤怒不仅因事件本身，也是反感对信息的粗暴封…</a>
 </h2>
 <p>//@胡淑芬:民众愤怒不仅因事件本身，也是反感对信息的粗暴封锁。这种粗暴哪次不是小事化大，大事化到不可收拾。传播如此发达，信息公开易封锁难，为何总是采取更难更易恶化局面的手段？还是老毛病，制度性愚蠢。视民如草芥，怕官如畏虎，怕上峰怪罪丢乌纱。滔天民意若不能泄洪，你们丢的岂止乌纱。<br><br>RE: 泪撒国道107 http://t.cn/Rt2T8y7</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/4000205801936578" target="freeweibo-mirror">SPAM 这盛世！ //@喷嚏网铂程://@谌旭彬:你们的星…</a>
 </h2>
 <p>SPAM 这盛世！ //@喷嚏网铂程://@谌旭彬:你们的星辰大海，他在水底永远看不到了。<br><br>RE: 魂归何处 http://t.cn/Rt2HzE7</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/4000205399303512" target="freeweibo-mirror">民众愤怒不仅因事件本身，也是反感对信息的粗暴封锁。这种粗暴哪…</a>
 </h2>
