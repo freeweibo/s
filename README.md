@@ -19,6 +19,18 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/4000180791993245" target="freeweibo-mirror">呼叫新华社，呼叫人民日报，呼叫中央电视台！！！//@贝格海德…</a>
+</h2>
+<p>呼叫新华社，呼叫人民日报，呼叫中央电视台！！！//@贝格海德: 转发微博<br><br>RE: 别人的孩子死了，全世界的人都知道，都为之心碎，我们的孩子死了，各种封锁消息，唯恐多一个人怜悯这些无辜死去的生命。不要说别人看不起中国人，我们自己最看不起自己，最不把自己当人。坂东之后是井陉，暴雨未停，还会有下一个受害者吗？<br><img src="http://ww2.sinaimg.cn/large/6ad9978dgw1f632v0r0saj20ku111n0t.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/4000179403313594" target="freeweibo-mirror">隐瞒的背后，一定是黑暗的勾当！ //@正义少兵: //@清溪…</a>
+</h2>
+<p>隐瞒的背后，一定是黑暗的勾当！ //@正义少兵: //@清溪胡明伟:天灾+人祸。 //@胤懿: //@蓝色孤独0914: //@针叶林2: //@最帅广告文案: //@为姐伸冤:这是我们的政府干的事！遇事就隐瞒，镇压，百姓的命算什么，他们的前途才要紧 //@常州姚宝华家属: //@秀材江湖:@刘二狗捣蛋:<br><br>RE: 刘二狗蛋：邢台到底死了多少人？这绝对不是天灾！是人祸！！必须追究失职渎职官员的责任！老百姓如刍狗就是这样的！愤怒！无比愤怒！@肖75雪慧@郭55于-华-清华 @吴贤毅_在上海 @最帅广告文案@秀材江湖<br><img src="http://ww3.sinaimg.cn/large/006wj5Dejw1f6305nr5ktj30go0m8jte.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/4000170536877580" target="freeweibo-mirror">回复@小乱闹哄哄:小作镇是重点。//@小乱闹哄哄:石家庄井陉…</a>
 </h2>
 <p>回复@小乱闹哄哄:小作镇是重点。//@小乱闹哄哄:石家庄井陉县小作镇真的受灾很严重！<br><br>RE: 河北到底发生了什么？！求关注！！！[蜡烛][蜡烛][蜡烛][蜡烛][蜡烛]@中国政府网 @人民日报 @财新网 @澎湃新闻 @中国青年报 @CCTV焦点访谈 @南方周末 @南方都市报 @新京报 @新华视点<br><img src="http://ww4.sinaimg.cn/large/593f6eacgw1f62y9jnorcj20ku111jwq.jpg"></p>
@@ -89,7 +101,7 @@
 </h2>
 <p>//@老徐观察:必须问责。 //@周迪伦:相关官员严重渎职，漠视生命反人类！ //@平淡平安雪球:互联网如此发达的时代官员们还在玩掩耳盗铃，可笑，可恶，可恨！ //@周迪伦:官方信息严重缺失！！！这种情况怎么能捂得住？！！！</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/4000162244808351" target="freeweibo-mirror">赞成这种态度。这时候需要官员出来担当，如果是谣言，需要避谣，…</a>
 </h2>
@@ -124,18 +136,6 @@
 	<a href="https://freeweibo.com/weibo/4000159274618002" target="freeweibo-mirror">SPAM //@拖埿: //@1024专员:没有新闻？</a>
 </h2>
 <p>SPAM //@拖埿: //@1024专员:没有新闻？<br><br>RE: 河北到底发生了什么？！求关注！！！[蜡烛][蜡烛][蜡烛][蜡烛][蜡烛]@中国政府网 @人民日报 @财新网 @澎湃新闻 @中国青年报 @CCTV焦点访谈 @南方周末 @南方都市报 @新京报 @新华视点<br><img src="http://ww4.sinaimg.cn/large/593f6eacgw1f62y9jnorcj20ku111jwq.jpg"></p>
-<p>
-	<small> ============== 3小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/4000157319672601" target="freeweibo-mirror">SPAM 天呐</a>
-</h2>
-<p>SPAM 天呐</p>
-<p>
-	<small> ============== 3小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/4000156820721363" target="freeweibo-mirror">SPAM 严重关注此事！</a>
-</h2>
-<p>SPAM 严重关注此事！<br><br>RE: 河北到底发生了什么？！求关注！！！[蜡烛][蜡烛][蜡烛][蜡烛][蜡烛]@中国政府网 @人民日报 @财新网 @澎湃新闻 @中国青年报 @CCTV焦点访谈 @南方周末 @南方都市报 @新京报 @新华视点<br><img src="http://ww4.sinaimg.cn/large/593f6eacgw1f62y9jnorcj20ku111jwq.jpg"></p>
 <p>
 	<small> ============== 3小时前</small>
 </p>
