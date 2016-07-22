@@ -35,13 +35,13 @@
 </h2>
 <p>SPAM [怒][怒骂]<br><br>RE: “没有人员伤亡”。邢台。<br><img src="http://ww2.sinaimg.cn/large/005LF6Ssjw1f62yv496djj30c80lswfk.jpg"></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/4000193013576955" target="freeweibo-mirror">这么严重！ //@人生漫步111://@换个马甲重新来3: …</a>
 </h2>
 <p>这么严重！ //@人生漫步111://@换个马甲重新来3: //@台湾是希望://@阿依土豪公主://@浩正刘臻:[话筒]</p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/4000188874562639" target="freeweibo-mirror">SPAM 这样的后果原因何在？这个责任谁又能承担？ //@大…</a>
 </h2>
