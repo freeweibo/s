@@ -41,7 +41,7 @@
 </h2>
 <p>#老谈说事# </p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/4000205399303512" target="freeweibo-mirror">民众愤怒不仅因事件本身，也是反感对信息的粗暴封锁。这种粗暴哪…</a>
 </h2>
