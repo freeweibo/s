@@ -95,7 +95,7 @@
 </h2>
 <p>SPAM 暑期度假戏水用得找噢！现价：EUR 7.95</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/3999853186886104" target="freeweibo-mirror">SPAM 【 英国Jellycat 邦尼兔 经典害羞邦尼兔3…</a>
 </h2>
