@@ -19,6 +19,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/4000076688647136" target="freeweibo-mirror">失误咋成了政治错误?</a>
+</h2>
+<p>失误咋成了政治错误?<br><br>RE: 境外敌对势力又在造谣。这个就是个工作失误，可以说是严重工作失误，撤职也不为过。可怎么会成了政治错误呢，政治错误一定是主观故意。他们被证明是主观故意吗？<br><img src="http://ww1.sinaimg.cn/large/4ce32014jw1f62qf9nvs7j20k00j5got.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/4000052437342609" target="freeweibo-mirror">[话筒]//@我是西蒙周: 因“重大负面事件”，腾讯网总编和…</a>
 </h2>
 <p>[话筒]//@我是西蒙周: 因“重大负面事件”，腾讯网总编和主编被撤职，该网站也从由深圳网信办监管改为由北京网信办直接管理。（早报网）<br><br>RE: 新华网也发生过类似截图中的事件，将“最高领导人习近平”植为“最后领导人习近平”。其实，民众倒是希望习近平为了国家和人民真正发飙，仅仅撤销腾讯网高管是舍本逐末治表不治本。<br><img src="http://ww2.sinaimg.cn/large/a7902ee4jw1f62nghhycbj20go0ci402.jpg"></p>
@@ -47,7 +53,7 @@
 </h2>
 <p>SPAM #成龙不能老#，因为我们还想看你笑！《绝地逃亡》拳笑归来，首日破亿，龙叔老了，但还敢打还能打，致敬！#成龙暑假陪你笑#  http://t.cn/Rt2zUe7<br><img src="http://ww3.sinaimg.cn/large/a7caf992gw1f62kxml3c8j20u01hc48i.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/4000016202217068" target="freeweibo-mirror">SPAM 我正在看 秒拍视频，一起来看看吧 http://t…</a>
 </h2>
@@ -65,7 +71,7 @@
 </h2>
 <p>SPAM 只剩方框玳瑁啦，就是日日带的那款，现在能叠额外9折，CODE【SALE10】//@俄勒冈七姐: 流云墨镜¥1328.8到手了喂~又新加了一款黑色，和玳瑁色一样都是非常百搭的。走EMS被睡率低，上海广州等沿海城市查得进建议发国内亲戚朋友家再转国内快递回来。宝宝付款可能会有订单生成延迟，过半天到1天再查看</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/4000001770365403" target="freeweibo-mirror">严重关注胡友玲女士的告白！三看违法八天拒绝律师会见！！！//…</a>
 </h2>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3999853186886104" target="freeweibo-mirror">SPAM 【 英国Jellycat 邦尼兔 经典害羞邦尼兔3…</a>
 </h2>
 <p>SPAM 【 英国Jellycat 邦尼兔 经典害羞邦尼兔31cm, EUR 24.95 】治愈系超柔软毛绒玩具公仔[兔子] 治愈你的悲伤，听你说话，陪你入睡。阿汤哥的女儿Suri 从小走到哪都随身携带。郁金香粉色 http://t.cn/RtATL9k 花耳朵的大白兔 http://t.cn/RtATL9D 米色http://t.cn/RtATL9e<br><img src="http://ww1.sinaimg.cn/large/74b5d787jw1f621wkhmutj20dw0rvwgc.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3999827882796092" target="freeweibo-mirror">#郎摘新闻# 要求关闭华人市场 俄共借听证会政治宣传。320…</a>
-</h2>
-<p>#郎摘新闻# 要求关闭华人市场 俄共借听证会政治宣传。32000名莫斯科当地居民签名要求就关闭莫斯科商城、萨达沃特市场举行公开听证会。据悉，这次活动获得了市政当局的允许并将依法进行。有华人表示，华商在俄罗斯生活经商饱受歧视和打压，此次事件便是例证，回国生活才是最好的归宿。...全文： http://m.weibo.cn/1807715644/3999827882796092</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
