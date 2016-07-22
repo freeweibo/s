@@ -19,11 +19,23 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/4000052437342609" target="freeweibo-mirror">[话筒]//@我是西蒙周: 因“重大负面事件”，腾讯网总编和…</a>
+</h2>
+<p>[话筒]//@我是西蒙周: 因“重大负面事件”，腾讯网总编和主编被撤职，该网站也从由深圳网信办监管改为由北京网信办直接管理。（早报网）<br><br>RE: 新华网也发生过类似截图中的事件，将“最高领导人习近平”植为“最后领导人习近平”。其实，民众倒是希望习近平为了国家和人民真正发飙，仅仅撤销腾讯网高管是舍本逐末治表不治本。<br><img src="http://ww2.sinaimg.cn/large/a7902ee4jw1f62nghhycbj20go0ci402.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/4000051514400766" target="freeweibo-mirror">因“重大负面事件”，腾讯网总编和主编被撤职，该网站也从由深圳…</a>
+</h2>
+<p>因“重大负面事件”，腾讯网总编和主编被撤职，该网站也从由深圳网信办监管改为由北京网信办直接管理。（早报网）<br><br>RE: 新华网也发生过类似截图中的事件，将“最高领导人习近平”植为“最后领导人习近平”。其实，民众倒是希望习近平为了国家和人民真正发飙，仅仅撤销腾讯网高管是舍本逐末治表不治本。<br><img src="http://ww2.sinaimg.cn/large/a7902ee4jw1f62nghhycbj20go0ci402.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/4000019742946995" target="freeweibo-mirror">SPAM #成龙不能老#，因为我们还想看你笑！《绝地逃亡》拳…</a>
 </h2>
 <p>SPAM #成龙不能老#，因为我们还想看你笑！《绝地逃亡》拳笑归来，首日破亿，龙叔老了，但还敢打还能打，致敬！#成龙暑假陪你笑#  http://t.cn/Rt2zUe7<br><img src="http://ww3.sinaimg.cn/large/a7caf992gw1f62kxml3c8j20u01hc48i.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/4000016202217068" target="freeweibo-mirror">SPAM 我正在看 秒拍视频，一起来看看吧 http://t…</a>
 </h2>
@@ -41,7 +53,7 @@
 </h2>
 <p>SPAM 只剩方框玳瑁啦，就是日日带的那款，现在能叠额外9折，CODE【SALE10】//@俄勒冈七姐: 流云墨镜¥1328.8到手了喂~又新加了一款黑色，和玳瑁色一样都是非常百搭的。走EMS被睡率低，上海广州等沿海城市查得进建议发国内亲戚朋友家再转国内快递回来。宝宝付款可能会有订单生成延迟，过半天到1天再查看</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/4000001770365403" target="freeweibo-mirror">严重关注胡友玲女士的告白！三看违法八天拒绝律师会见！！！//…</a>
 </h2>
@@ -124,18 +136,6 @@
 	<a href="https://freeweibo.com/weibo/3999807938404748" target="freeweibo-mirror">//@馨悦谭:围基救赵自有道理，一损俱损，马云金融帝国的基石…</a>
 </h2>
 <p>//@馨悦谭:围基救赵自有道理，一损俱损，马云金融帝国的基石不能被撬。@平民王小石: 甚至人民日报旗下海外网的@侠客岛 也加入战团，一边痛斥用证据揭露戴立忍批评赵薇的网友是“阴谋论”，另一边却毫无证据地指控网友“以抵制外敌入侵的名义，抵制同胞。”<br><br>RE: 【赵薇事件评述：资本系媒体强赢现在却输尽未来】赵薇戴立忍事件剧情跌宕起伏、过程惊心动魄。这一场互联网舆论大战，爱国系力量（以草根网友为主）与资本系力量（以市场化媒体、公知为主）集结了几乎双方全部兵力，第一次展开了大兵团决战。且听我分析推演。 http://t.cn/RtZ9tov</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3999799738458383" target="freeweibo-mirror">//@斯韦爵://@蜀黍30:转发微博</a>
-</h2>
-<p>//@斯韦爵://@蜀黍30:转发微博<br><br>RE: 不知道真假。就算是真的，我看也不过是一条经常当前锋的走狗，这次替主子当了一回背黑锅的断后总兵。<br><img src="http://ww2.sinaimg.cn/large/006unzuUgw1f61u6q9zo9j30bj0d0gnb.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/3999797868569326" target="freeweibo-mirror">SPAM 哈哈哈哈哈哈又来了，奇怪CP组合。</a>
-</h2>
-<p>SPAM 哈哈哈哈哈哈又来了，奇怪CP组合。</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
