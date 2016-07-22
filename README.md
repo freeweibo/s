@@ -23,7 +23,7 @@
 </h2>
 <p>SPAM //@nownow:有关孩子的都搜不到了，但我们无论如何都得相信，作恶者、不作为者、杀善良人性命者，都下地狱。<br><br>RE: 刑台灾区。 http://t.cn/Rt2EyZn .</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/4000209409558210" target="freeweibo-mirror">绝望了的人们 //@任知:防灾救灾没本事，封锁消息维稳拦截群…</a>
 </h2>
