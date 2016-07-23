@@ -77,7 +77,7 @@
 </h2>
 <p>SPAM Wk人宣誓南海属于中国的第34天[作揖]<br><img src="http://ww4.sinaimg.cn/large/87be5584gw1f645i6czcpj20qo0zkn70.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/4000510082059274" target="freeweibo-mirror">SPAM [吃惊][吃惊][吃惊][吃惊][吃惊]无言以对</a>
 </h2>
