@@ -35,7 +35,7 @@
 </h2>
 <p>为了遥远南海岛礁的主权，你们义愤填膺誓死捍卫。而近在咫尺的邢台，一场洪水就冲夸虚伪的人权羊皮，爱国贼们却夹紧嘴巴惜字如金。在真正以人为本的人性体制里，人权永远高于主权。这一次没轮上你，不是你有比邢台人拥有更多人权，那只是你运气好而已。但是，没有人会一辈子都好运气的！<br><img src="http://ww4.sinaimg.cn/large/55555cb3gw1f63sbmk77ej20j60y2djd.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/4000391412476852" target="freeweibo-mirror">哪天洪水冲了他家死了人这傻狗就不会这样说了 //@余耕归来:…</a>
 </h2>
@@ -59,7 +59,7 @@
 </h2>
 <p>#名博妙评#【邢台洪祸】19日夜晚，洪水进入邢台的12个村庄，夺走多条人命。22日，这场灾难才以社交媒体草根账号图文爆料的形式进入公众视野，而非官方通报。这本身就是问题所在。责任绝不能推给“史上最强降水”，也不能因“抗洪大局为重”而忽略问责程序的启动。<br><img src="http://ww4.sinaimg.cn/large/bcfea259jw1f63qgn7ll7j20f00qo769.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/4000367396057628" target="freeweibo-mirror">SPAM //@耳光赵荒唐:“不管你们信不信，反正我信。”[…</a>
 </h2>
@@ -82,6 +82,12 @@
 	<a href="https://freeweibo.com/weibo/4000307581168291" target="freeweibo-mirror">SPAM 这不是故事</a>
 </h2>
 <p>SPAM 这不是故事<br><img src="http://ww4.sinaimg.cn/large/b13accadgw1f63i397lyaj20gm0frtd5.jpg"></p>
+<p>
+	<small> ============== 8小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/4000307031523118" target="freeweibo-mirror">就邢台事件来看，就政府责任心而言，中国真的不应该建造核电站，…</a>
+</h2>
+<p>就邢台事件来看，就政府责任心而言，中国真的不应该建造核电站，更不应该建造三峡大坝。旷古丑闻，千古奇冤，全体媒体哑火，全体爱国贼缄默，只剩下微博删帖删帖再删帖。这样的国，只有领导没有公民。这样的国，让傻逼们去爱吧！ http://t.cn/R2dbA3v<br><img src="http://ww1.sinaimg.cn/large/55555cb3gw1f63i0eemqxj20kh0mzmzd.jpg"></p>
 <p>
 	<small> ============== 8小时前</small>
 </p><h2>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/4000207995360575" target="freeweibo-mirror">[蜡烛]//@记者谈春平: #老谈说事#   http://…</a>
 </h2>
 <p>[蜡烛]//@记者谈春平: #老谈说事#   http://t.cn/RtLUuUf<br><br>RE: #老谈说事# 满网都是邢台刷频，邢台方面官方和媒体报道没死亡，一片作为的声音，可结果呢？民众不答应了，愤怒了为何？据传是邢台官方泄洪估计不足，转移不及造成了死亡[蜡烛]，但就是没见官方发声出来辟谣，事实成立邢台官员政治生涯将会终结。<br><img src="http://ww1.sinaimg.cn/large/9287c5cejw1f636b7n8l4j20ku0rrwjn.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/4000207471987202" target="freeweibo-mirror">#老谈说事#  http://t.cn/RtLUuUf</a>
-</h2>
-<p>#老谈说事#  http://t.cn/RtLUuUf<br><br>RE: #老谈说事# 满网都是邢台刷频，邢台方面官方和媒体报道没死亡，一片作为的声音，可结果呢？民众不答应了，愤怒了为何？据传是邢台官方泄洪估计不足，转移不及造成了死亡[蜡烛]，但就是没见官方发声出来辟谣，事实成立邢台官员政治生涯将会终结。<br><img src="http://ww1.sinaimg.cn/large/9287c5cejw1f636b7n8l4j20ku0rrwjn.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
