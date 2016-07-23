@@ -59,13 +59,13 @@
 </h2>
 <p>SPAM //@石1讷:如果这篇文章可以治罪，国民皆为待罪之身。</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/4000514091335906" target="freeweibo-mirror">SPAM 这不就是典型的文字狱吗？</a>
 </h2>
 <p>SPAM 这不就是典型的文字狱吗？</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/4000513060037831" target="freeweibo-mirror">SPAM 简直了……</a>
 </h2>
