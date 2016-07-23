@@ -77,7 +77,7 @@
 </h2>
 <p>SPAM 昨天下午去就看到说要关了，和大水无关，关的理由很那啥⋯//@SLASHlight:小粉红会说关的好，这就是资本控制的媒体！团团真棒！真·盛如愿//@desnudate_：是谁在控制舆论？小粉红们的脸肿不肿？[蜡烛]<br><br>RE: 刚应邀做完节目，睡个觉起来整个栏目都被端了[衰]<br><img src="http://ww4.sinaimg.cn/large/68cd22cbjw1f630bse3o0j20e608oaan.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/4000380818327834" target="freeweibo-mirror">#名博妙评#【邢台洪祸】19日夜晚，洪水进入邢台的12个村庄…</a>
 </h2>
@@ -125,7 +125,7 @@
 </h2>
 <p>//@老夫笑平生://@彭园v://@乱石山碧波潭巡回大使奔波儿灞:如果真是泄洪不通知，那当地的官员可以全部死刑</p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/4000296508350990" target="freeweibo-mirror">//@乱石山碧波潭巡回大使奔波儿灞:如果真是泄洪不通知，那当…</a>
 </h2>
