@@ -65,19 +65,19 @@
 </h2>
 <p>这个小不点永远都不会理解，仅仅几天前她的强大的祖国向全世界人群情激愤地表示：中国一点都不能少！ //@amantsun:[泪]//@陆亚明: [泪][泪][泪]<br><br>RE: 一个是中国中央电视台多套节目眼含泪水连续几周反复报道的外国孩子；一个是时隔一天了仍然入不了央视法眼里的中国河北孩子。<br><img src="http://ww2.sinaimg.cn/large/006unzuUjw1f634otlbxvj30go0akjt2.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/4000207995360575" target="freeweibo-mirror">[蜡烛]//@记者谈春平: #老谈说事#   http://…</a>
 </h2>
 <p>[蜡烛]//@记者谈春平: #老谈说事#   http://t.cn/RtLUuUf<br><br>RE: #老谈说事# 满网都是邢台刷频，邢台方面官方和媒体报道没死亡，一片作为的声音，可结果呢？民众不答应了，愤怒了为何？据传是邢台官方泄洪估计不足，转移不及造成了死亡[蜡烛]，但就是没见官方发声出来辟谣，事实成立邢台官员政治生涯将会终结。<br><img src="http://ww1.sinaimg.cn/large/9287c5cejw1f636b7n8l4j20ku0rrwjn.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/4000207471987202" target="freeweibo-mirror">#老谈说事#  http://t.cn/RtLUuUf</a>
 </h2>
 <p>#老谈说事#  http://t.cn/RtLUuUf<br><br>RE: #老谈说事# 满网都是邢台刷频，邢台方面官方和媒体报道没死亡，一片作为的声音，可结果呢？民众不答应了，愤怒了为何？据传是邢台官方泄洪估计不足，转移不及造成了死亡[蜡烛]，但就是没见官方发声出来辟谣，事实成立邢台官员政治生涯将会终结。<br><img src="http://ww1.sinaimg.cn/large/9287c5cejw1f636b7n8l4j20ku0rrwjn.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/4000206813508497" target="freeweibo-mirror">#老谈说事# </a>
 </h2>
