@@ -37,6 +37,12 @@
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/4000414284604513" target="freeweibo-mirror">个别中国人为钱杀人，我们会说他是人渣是垃圾活该被枪毙死后下地…</a>
+</h2>
+<p>个别中国人为钱杀人，我们会说他是人渣是垃圾活该被枪毙死后下地狱，荣誉杀人的凶手你们怎么评价的？到底谁极端？ //@李大大263:中国人为了钱杀人，穆斯林为了信仰杀人。中国人指着穆斯林骂极端。好玩的垃圾游戏[笑cry]</p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/4000413202604865" target="freeweibo-mirror">SPAM 这个也开除？妈的逼！//@广陵散人001://@雁…</a>
 </h2>
 <p>SPAM 这个也开除？妈的逼！//@广陵散人001://@雁塔10木屋://@公民王海滨: //@异次元微尘3: //@未得糊涂://@学员宫崎骏: 新时代的文字狱？ 可怕啊 [吃惊][吃惊][吃惊][怒][怒]//@落寞的行走:写篇文章发表看法，就要被开除！<br><br>RE: 亮点很多，你怎么看？<br><img src="http://ww2.sinaimg.cn/large/005As9Qdgw1f63ks02d4zj30qo0qoaey.jpg"></p>
@@ -77,7 +83,7 @@
 </h2>
 <p>SPAM 昨天下午去就看到说要关了，和大水无关，关的理由很那啥⋯//@SLASHlight:小粉红会说关的好，这就是资本控制的媒体！团团真棒！真·盛如愿//@desnudate_：是谁在控制舆论？小粉红们的脸肿不肿？[蜡烛]<br><br>RE: 刚应邀做完节目，睡个觉起来整个栏目都被端了[衰]<br><img src="http://ww4.sinaimg.cn/large/68cd22cbjw1f630bse3o0j20e608oaan.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/4000380818327834" target="freeweibo-mirror">#名博妙评#【邢台洪祸】19日夜晚，洪水进入邢台的12个村庄…</a>
 </h2>
@@ -132,12 +138,6 @@
 <p>//@乱石山碧波潭巡回大使奔波儿灞:如果真是泄洪不通知，那当地的官员可以全部死刑</p>
 <p>
 	<small> ============== 11小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/4000212576410808" target="freeweibo-mirror">SPAM //@nownow:有关孩子的都搜不到了，但我们无…</a>
-</h2>
-<p>SPAM //@nownow:有关孩子的都搜不到了，但我们无论如何都得相信，作恶者、不作为者、杀善良人性命者，都下地狱。<br><br>RE: 刑台灾区。 http://t.cn/Rt2EyZn .</p>
-<p>
-	<small> ============== 1天前</small>
 </p>
 <table>
     <tr>
