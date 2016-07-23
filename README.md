@@ -25,6 +25,24 @@
 <p>
 	<small> ============== 1小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/4000415420705736" target="freeweibo-mirror">SPAM 无产阶级文化大革命就是好 [国旗] 就是好 [拳头…</a>
+</h2>
+<p>SPAM 无产阶级文化大革命就是好 [国旗] 就是好 [拳头] 就是好 [霹雳]<br><br>RE: 刚应邀做完节目，睡个觉起来整个栏目都被端了[衰]<br><img src="http://ww4.sinaimg.cn/large/68cd22cbjw1f630bse3o0j20e608oaan.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/4000415064431040" target="freeweibo-mirror">这是要土耳其化吗？//@连鹏: 资本又在控制媒体，控制舆论了…</a>
+</h2>
+<p>这是要土耳其化吗？//@连鹏: 资本又在控制媒体，控制舆论了，太可怕了[抓狂]<br><br>RE: 刚应邀做完节目，睡个觉起来整个栏目都被端了[衰]<br><img src="http://ww4.sinaimg.cn/large/68cd22cbjw1f630bse3o0j20e608oaan.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/4000413202604865" target="freeweibo-mirror">SPAM 这个也开除？妈的逼！//@广陵散人001://@雁…</a>
+</h2>
+<p>SPAM 这个也开除？妈的逼！//@广陵散人001://@雁塔10木屋://@公民王海滨: //@异次元微尘3: //@未得糊涂://@学员宫崎骏: 新时代的文字狱？ 可怕啊 [吃惊][吃惊][吃惊][怒][怒]//@落寞的行走:写篇文章发表看法，就要被开除！<br><br>RE: 亮点很多，你怎么看？<br><img src="http://ww2.sinaimg.cn/large/005As9Qdgw1f63ks02d4zj30qo0qoaey.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/4000405992625888" target="freeweibo-mirror">SPAM ？？[吃惊]</a>
 </h2>
 <p>SPAM ？？[吃惊]<br><br>RE: 刚应邀做完节目，睡个觉起来整个栏目都被端了[衰]<br><img src="http://ww4.sinaimg.cn/large/68cd22cbjw1f630bse3o0j20e608oaan.jpg"></p>
@@ -64,6 +82,12 @@
 	<a href="https://freeweibo.com/weibo/4000380818327834" target="freeweibo-mirror">#名博妙评#【邢台洪祸】19日夜晚，洪水进入邢台的12个村庄…</a>
 </h2>
 <p>#名博妙评#【邢台洪祸】19日夜晚，洪水进入邢台的12个村庄，夺走多条人命。22日，这场灾难才以社交媒体草根账号图文爆料的形式进入公众视野，而非官方通报。这本身就是问题所在。责任绝不能推给“史上最强降水”，也不能因“抗洪大局为重”而忽略问责程序的启动。<br><img src="http://ww4.sinaimg.cn/large/bcfea259jw1f63qgn7ll7j20f00qo769.jpg"></p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/4000380595878315" target="freeweibo-mirror">//@越王尝胆再世: //@sandywu616://@一品…</a>
+</h2>
+<p>//@越王尝胆再世: //@sandywu616://@一品泥人://@多多爸比://@管汝佳_良知在线://@斯韦爵:此如此之国如何爱？<br><br>RE: 就邢台事件来看，就政府责任心而言，中国真的不应该建造核电站，更不应该建造三峡大坝。旷古丑闻，千古奇冤，全体媒体哑火，全体爱国贼缄默，只剩下微博删帖删帖再删帖。这样的国，只有领导没有公民。这样的国，让傻逼们去爱吧！ http://t.cn/R2dbA3v<br><img src="http://ww1.sinaimg.cn/large/55555cb3gw1f63i0eemqxj20kh0mzmzd.jpg"></p>
 <p>
 	<small> ============== 4小时前</small>
 </p><h2>
@@ -112,30 +136,6 @@
 	<a href="https://freeweibo.com/weibo/4000212576410808" target="freeweibo-mirror">SPAM //@nownow:有关孩子的都搜不到了，但我们无…</a>
 </h2>
 <p>SPAM //@nownow:有关孩子的都搜不到了，但我们无论如何都得相信，作恶者、不作为者、杀善良人性命者，都下地狱。<br><br>RE: 刑台灾区。 http://t.cn/Rt2EyZn .</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/4000209409558210" target="freeweibo-mirror">绝望了的人们 //@任知:防灾救灾没本事，封锁消息维稳拦截群…</a>
-</h2>
-<p>绝望了的人们 //@任知:防灾救灾没本事，封锁消息维稳拦截群众挺厉害//@喷嚏网铂程: //@看得见的历史:不见慰问的，只见维稳的。//@聖寶劍橡葉騎士: 和这些相比，海滩上难民的小孩真的算不了什么。//@谌旭彬:这星辰大海的盛世啊~<br><br>RE: 泪撒国道107 http://t.cn/Rt2T8y7</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/4000209237813569" target="freeweibo-mirror">[泪] //@于洲v:销号禁言更严重[衰] //@李翔196…</a>
-</h2>
-<p>[泪] //@于洲v:销号禁言更严重[衰] //@李翔196811://@雁塔10木屋:不得好死//@知行合一童: //@俺要胡说:骑驴看账本！[怒]//@遊女長歌胡不歸: 等着吧！！[霹雳][霹雳][霹雳]<br><br>RE: 你上台三年多，都干了些什么？抓律师，抓民运人士，四处撒钱，立法保护红族，假借反腐诛除异已，天灾人祸你却看不到。你，天不会容你，等着吧</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/4000208628500213" target="freeweibo-mirror">真难过 //@北京厨子新号:冲走村民的大贤村离市区中心不足五…</a>
-</h2>
-<p>真难过 //@北京厨子新号:冲走村民的大贤村离市区中心不足五公里！！！不足五公里！！！市长请你明天切腹！！！ //@陆亚明:[泪][泪][泪]<br><br>RE: 一个是中国中央电视台多套节目眼含泪水连续几周反复报道的外国孩子；一个是时隔一天了仍然入不了央视法眼里的中国河北孩子。<br><img src="http://ww2.sinaimg.cn/large/006unzuUjw1f634otlbxvj30go0akjt2.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/4000208009005022" target="freeweibo-mirror">这个小不点永远都不会理解，仅仅几天前她的强大的祖国向全世界人…</a>
-</h2>
-<p>这个小不点永远都不会理解，仅仅几天前她的强大的祖国向全世界人群情激愤地表示：中国一点都不能少！ //@amantsun:[泪]//@陆亚明: [泪][泪][泪]<br><br>RE: 一个是中国中央电视台多套节目眼含泪水连续几周反复报道的外国孩子；一个是时隔一天了仍然入不了央视法眼里的中国河北孩子。<br><img src="http://ww2.sinaimg.cn/large/006unzuUjw1f634otlbxvj30go0akjt2.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
