@@ -23,7 +23,7 @@
 </h2>
 <p>继续关注河北邢台泄洪致人死亡事件！//@京城探花:第一张，看着就心碎[伤心]</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/4000307581168291" target="freeweibo-mirror">SPAM 这不是故事</a>
 </h2>
@@ -47,7 +47,7 @@
 </h2>
 <p>SPAM //@nownow:有关孩子的都搜不到了，但我们无论如何都得相信，作恶者、不作为者、杀善良人性命者，都下地狱。<br><br>RE: 刑台灾区。 http://t.cn/Rt2EyZn .</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/4000209409558210" target="freeweibo-mirror">绝望了的人们 //@任知:防灾救灾没本事，封锁消息维稳拦截群…</a>
 </h2>
