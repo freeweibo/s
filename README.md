@@ -101,19 +101,19 @@
 </h2>
 <p>SPAM [吃惊][吃惊][吃惊][吃惊][吃惊]无言以对</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/4000509209135368" target="freeweibo-mirror">SPAM //@我要法网: 公权滥用公款乱花是中国特色区一切…</a>
 </h2>
 <p>SPAM //@我要法网: 公权滥用公款乱花是中国特色区一切悲剧之源！奥运亚运世博全运冬奥那次不是这样。这样的满分作文作者居然被王八当局开除，天理难容！</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/4000508937503354" target="freeweibo-mirror">SPAM [赞]//@石扉客2014:这篇文章写得大气从容，…</a>
 </h2>
 <p>SPAM [赞]//@石扉客2014:这篇文章写得大气从容，才华横溢。作者如果仅因此文即被开除公职和刑拘，那么我只能认为这个世界已经进入完全不讲理的阶段了。//@袁莉wsj: Repost</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/4000505887354712" target="freeweibo-mirror">SPAM //@亨利博士://@easyoff://@石扉客…</a>
 </h2>
