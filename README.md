@@ -41,7 +41,7 @@
 </h2>
 <p>SPAM 这个也开除？妈的逼！//@广陵散人001://@雁塔10木屋://@公民王海滨: //@异次元微尘3: //@未得糊涂://@学员宫崎骏: 新时代的文字狱？ 可怕啊 [吃惊][吃惊][吃惊][怒][怒]//@落寞的行走:写篇文章发表看法，就要被开除！<br><br>RE: 亮点很多，你怎么看？<br><img src="http://ww2.sinaimg.cn/large/005As9Qdgw1f63ks02d4zj30qo0qoaey.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/4000405992625888" target="freeweibo-mirror">SPAM ？？[吃惊]</a>
 </h2>
@@ -95,7 +95,7 @@
 </h2>
 <p>SPAM //@耳光赵荒唐:“不管你们信不信，反正我信。”[蜡烛]//@午后狂睡_Silent:[蜡烛]<br><br>RE: 2011年的今天，北京南开往福州的D301与杭州开往福州南的D3115发生追尾，六节车厢脱轨，40人死亡、172人受伤，铁道部原部长刘志军等54名事故责任人受到严肃处理。今天是事故五周年，五年前的今天，全网——无论明星大V还是普通网民都在转发问责，而现在这些事已没几个敢转发了。闷声发财，无奈和悲哀。<br><img src="http://ww2.sinaimg.cn/large/7e2c0387jw1f63m528oyfj20ci0fo76f.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/4000342955301764" target="freeweibo-mirror">2011年的今天，北京南开往福州的D301与杭州开往福州南的…</a>
 </h2>
@@ -113,13 +113,13 @@
 </h2>
 <p>SPAM 这不是故事<br><img src="http://ww4.sinaimg.cn/large/b13accadgw1f63i397lyaj20gm0frtd5.jpg"></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/4000307031523118" target="freeweibo-mirror">就邢台事件来看，就政府责任心而言，中国真的不应该建造核电站，…</a>
 </h2>
 <p>就邢台事件来看，就政府责任心而言，中国真的不应该建造核电站，更不应该建造三峡大坝。旷古丑闻，千古奇冤，全体媒体哑火，全体爱国贼缄默，只剩下微博删帖删帖再删帖。这样的国，只有领导没有公民。这样的国，让傻逼们去爱吧！ http://t.cn/R2dbA3v<br><img src="http://ww1.sinaimg.cn/large/55555cb3gw1f63i0eemqxj20kh0mzmzd.jpg"></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/4000300064753780" target="freeweibo-mirror">//@老夫笑平生://@彭园v://@乱石山碧波潭巡回大使奔…</a>
 </h2>
