@@ -107,7 +107,7 @@
 </h2>
 <p>#秒拍视频#我分享了 http://t.cn/RtLnTwo</p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/4000407745946996" target="freeweibo-mirror">我看了下周小平的自我介绍，想起，我认识的一些专演红色电影，或…</a>
 </h2>
@@ -131,7 +131,7 @@
 </h2>
 <p>为了遥远南海岛礁的主权，你们义愤填膺誓死捍卫。而近在咫尺的邢台，一场洪水就冲夸虚伪的人权羊皮，爱国贼们却夹紧嘴巴惜字如金。在真正以人为本的人性体制里，人权永远高于主权。这一次没轮上你，不是你有比邢台人拥有更多人权，那只是你运气好而已。但是，没有人会一辈子都好运气的！<br><img src="http://ww4.sinaimg.cn/large/55555cb3gw1f63sbmk77ej20j60y2djd.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/4000391412476852" target="freeweibo-mirror">哪天洪水冲了他家死了人这傻狗就不会这样说了 //@余耕归来:…</a>
 </h2>
