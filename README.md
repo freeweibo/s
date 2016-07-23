@@ -19,6 +19,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/4000405992625888" target="freeweibo-mirror">SPAM ？？[吃惊]</a>
+</h2>
+<p>SPAM ？？[吃惊]<br><br>RE: 刚应邀做完节目，睡个觉起来整个栏目都被端了[衰]<br><img src="http://ww4.sinaimg.cn/large/68cd22cbjw1f630bse3o0j20e608oaan.jpg"></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/4000400661788816" target="freeweibo-mirror">活着，靠的是行大运。这他么如何不觉悲从中来……[衰][泪][…</a>
 </h2>
 <p>活着，靠的是行大运。这他么如何不觉悲从中来……[衰][泪][伤心][怒]<br><br>RE: 为了遥远南海岛礁的主权，你们义愤填膺誓死捍卫。而近在咫尺的邢台，一场洪水就冲夸虚伪的人权羊皮，爱国贼们却夹紧嘴巴惜字如金。在真正以人为本的人性体制里，人权永远高于主权。这一次没轮上你，不是你有比邢台人拥有更多人权，那只是你运气好而已。但是，没有人会一辈子都好运气的！<br><img src="http://ww4.sinaimg.cn/large/55555cb3gw1f63sbmk77ej20j60y2djd.jpg"></p>
@@ -28,6 +34,12 @@
 	<a href="https://freeweibo.com/weibo/4000396722393608" target="freeweibo-mirror">为了遥远南海岛礁的主权，你们义愤填膺誓死捍卫。而近在咫尺的邢…</a>
 </h2>
 <p>为了遥远南海岛礁的主权，你们义愤填膺誓死捍卫。而近在咫尺的邢台，一场洪水就冲夸虚伪的人权羊皮，爱国贼们却夹紧嘴巴惜字如金。在真正以人为本的人性体制里，人权永远高于主权。这一次没轮上你，不是你有比邢台人拥有更多人权，那只是你运气好而已。但是，没有人会一辈子都好运气的！<br><img src="http://ww4.sinaimg.cn/large/55555cb3gw1f63sbmk77ej20j60y2djd.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/4000391412476852" target="freeweibo-mirror">哪天洪水冲了他家死了人这傻狗就不会这样说了 //@余耕归来:…</a>
+</h2>
+<p>哪天洪水冲了他家死了人这傻狗就不会这样说了 //@余耕归来:回复@___流星灼伤少年的面庞:别把自己伪装成利益集团的走狗，真走狗不会像你一样浅薄，你顶多就是一条外围吃屎的豺狗。//@___流星灼伤少年的面庞:没有三峡大坝今年下游早淹完了。轮的上你BB？大坝的确对生态有影响，但是就这么多年来看<br><br>RE: 就邢台事件来看，就政府责任心而言，中国真的不应该建造核电站，更不应该建造三峡大坝。旷古丑闻，千古奇冤，全体媒体哑火，全体爱国贼缄默，只剩下微博删帖删帖再删帖。这样的国，只有领导没有公民。这样的国，让傻逼们去爱吧！ http://t.cn/R2dbA3v<br><img src="http://ww1.sinaimg.cn/large/55555cb3gw1f63i0eemqxj20kh0mzmzd.jpg"></p>
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
@@ -124,18 +136,6 @@
 	<a href="https://freeweibo.com/weibo/4000206813508497" target="freeweibo-mirror">#老谈说事# </a>
 </h2>
 <p>#老谈说事# </p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/4000205906906572" target="freeweibo-mirror">//@胡淑芬:民众愤怒不仅因事件本身，也是反感对信息的粗暴封…</a>
-</h2>
-<p>//@胡淑芬:民众愤怒不仅因事件本身，也是反感对信息的粗暴封锁。这种粗暴哪次不是小事化大，大事化到不可收拾。传播如此发达，信息公开易封锁难，为何总是采取更难更易恶化局面的手段？还是老毛病，制度性愚蠢。视民如草芥，怕官如畏虎，怕上峰怪罪丢乌纱。滔天民意若不能泄洪，你们丢的岂止乌纱。<br><br>RE: 泪撒国道107 http://t.cn/Rt2T8y7</p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/4000205801936578" target="freeweibo-mirror">SPAM 这盛世！ //@喷嚏网铂程://@谌旭彬:你们的星…</a>
-</h2>
-<p>SPAM 这盛世！ //@喷嚏网铂程://@谌旭彬:你们的星辰大海，他在水底永远看不到了。<br><br>RE: 魂归何处 http://t.cn/Rt2HzE7</p>
 <p>
 	<small> ============== 1天前</small>
 </p>
