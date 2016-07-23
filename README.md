@@ -103,6 +103,12 @@
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/4000504692434267" target="freeweibo-mirror">到底是泄洪还是溃堤？白纸黑字！死了多少人？谁得责任？为什么当…</a>
+</h2>
+<p>到底是泄洪还是溃堤？白纸黑字！死了多少人？谁得责任？为什么当局不承认泄洪？<br><img src="http://ww4.sinaimg.cn/large/49e1242fgw1f644q8km54j20go0m8q4f.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/4000504066894312" target="freeweibo-mirror">SPAM //@刘忠世: 谣言，纯属谣言！为储时，出行即禁止…</a>
 </h2>
 <p>SPAM //@刘忠世: 谣言，纯属谣言！为储时，出行即禁止封路，现在岂能···？[泪]//@陈业文新大都: [话筒][话筒][话筒]再转一次！ //@朱学东://@石扉客2014: 这篇文章写得大气从容，才华横溢。作者如果仅因此文即被开除公职和刑拘，那么我只能认为这个世界已经进入完全不讲理的阶段了。//@袁莉wsj: Repost</p>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/4000495938961939" target="freeweibo-mirror">SPAM 这篇文章写得大气从容，才华横溢。作者如果仅因此文即…</a>
 </h2>
 <p>SPAM 这篇文章写得大气从容，才华横溢。作者如果仅因此文即被开除公职和刑拘，那么我只能认为这个世界已经进入完全不讲理的阶段了。//@袁莉wsj: Repost</p>
-<p>
-	<small> ============== 3小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/4000493346581490" target="freeweibo-mirror">SPAM 原文在此：【瓶子：杭州，为你羞耻】   今年没有去…</a>
-</h2>
-<p>SPAM 原文在此：【瓶子：杭州，为你羞耻】   今年没有去过美丽的杭州，但常常听到杭州的新闻。要举办G20峰会了，所有街道全部翻建了，屋顶全部亮化了，商店全部美化了。还有更加惊人的，政府给会场周边每户一万元，叫他们会议期间都出去旅游；想必周边单位一律放假，学校一律停课。  消息不断传来。有在杭州...全文： http://m.weibo.cn/1879326192/4000493346581490<br><img src="http://ww1.sinaimg.cn/large/70043df0jw1f643f6qyjjj20hs0hs0ud.jpg"></p>
 <p>
 	<small> ============== 3小时前</small>
 </p>
