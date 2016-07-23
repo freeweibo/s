@@ -41,7 +41,19 @@
 </h2>
 <p>SPAM 这么美的你</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/4000535109372393" target="freeweibo-mirror">//@朋友李鑫://@yubarnet: 做台灣的百姓也好辛…</a>
+</h2>
+<p>//@朋友李鑫://@yubarnet: 做台灣的百姓也好辛苦 ： 台灣高雄的小林村曾遭的洪水泥流淹沒，462名村民不幸罹難。[蜡烛][蜡烛][蜡烛] //@中和老頭-1:[蜡烛][蜡烛][蜡烛] 为何做中国的孩子这么辛苦？<br><br>RE: 12朵鲜花凋零在邢台，遇难孩子：李浩博，男，5岁；李浩凯，男，3岁；高浩，男，5岁；张雨诺，女，9岁；张皓轩，男，5岁；李记芸，女，7岁；张仔博，男，12岁；张少博，男，5岁。失踪孩子：李志芸，女，9岁；郝诗宇，男，4岁；郝诗萌，女，2岁；张榟阳，女，3岁。[蜡烛][蜡烛][蜡烛]<br><img src="http://ww1.sinaimg.cn/large/66e9c065jw1f640xd8jcdj20hs0miaf6.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/4000533998703466" target="freeweibo-mirror">//@徐付群:[悲伤]//@袁立:父母该多伤心....</a>
+</h2>
+<p>//@徐付群:[悲伤]//@袁立:父母该多伤心....<br><br>RE: 12朵鲜花凋零在邢台，遇难孩子：李浩博，男，5岁；李浩凯，男，3岁；高浩，男，5岁；张雨诺，女，9岁；张皓轩，男，5岁；李记芸，女，7岁；张仔博，男，12岁；张少博，男，5岁。失踪孩子：李志芸，女，9岁；郝诗宇，男，4岁；郝诗萌，女，2岁；张榟阳，女，3岁。[蜡烛][蜡烛][蜡烛]<br><img src="http://ww1.sinaimg.cn/large/66e9c065jw1f640xd8jcdj20hs0miaf6.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/4000532449980185" target="freeweibo-mirror">//@营口81岁被劳教:[悲伤][失望]//@万龙4号: /…</a>
 </h2>
@@ -58,6 +70,12 @@
 	<a href="https://freeweibo.com/weibo/4000532052147693" target="freeweibo-mirror">SPAM “MTV中文频道”官方微信平台也有抢票活动哦～关注…</a>
 </h2>
 <p>SPAM “MTV中文频道”官方微信平台也有抢票活动哦～关注参与吧[嘻嘻] http://t.cn/RtyEQ68</p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/4000531796716692" target="freeweibo-mirror">心都碎了！愿逝者安息[蜡烛][蜡烛][蜡烛]</a>
+</h2>
+<p>心都碎了！愿逝者安息[蜡烛][蜡烛][蜡烛]<br><br>RE: 12朵鲜花凋零在邢台，遇难孩子：李浩博，男，5岁；李浩凯，男，3岁；高浩，男，5岁；张雨诺，女，9岁；张皓轩，男，5岁；李记芸，女，7岁；张仔博，男，12岁；张少博，男，5岁。失踪孩子：李志芸，女，9岁；郝诗宇，男，4岁；郝诗萌，女，2岁；张榟阳，女，3岁。[蜡烛][蜡烛][蜡烛]<br><img src="http://ww1.sinaimg.cn/large/66e9c065jw1f640xd8jcdj20hs0miaf6.jpg"></p>
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
@@ -91,11 +109,17 @@
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/4000521456787299" target="freeweibo-mirror">[泪] //@徐付群:[悲伤]//@袁立:父母该多伤心...…</a>
+</h2>
+<p>[泪] //@徐付群:[悲伤]//@袁立:父母该多伤心....<br><br>RE: 12朵鲜花凋零在邢台，遇难孩子：李浩博，男，5岁；李浩凯，男，3岁；高浩，男，5岁；张雨诺，女，9岁；张皓轩，男，5岁；李记芸，女，7岁；张仔博，男，12岁；张少博，男，5岁。失踪孩子：李志芸，女，9岁；郝诗宇，男，4岁；郝诗萌，女，2岁；张榟阳，女，3岁。[蜡烛][蜡烛][蜡烛]<br><img src="http://ww1.sinaimg.cn/large/66e9c065jw1f640xd8jcdj20hs0miaf6.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/4000519150363200" target="freeweibo-mirror">河北邢台维稳高于一切，官员根本不管洪灾后的救助、受灾人员的统…</a>
 </h2>
 <p>河北邢台维稳高于一切，官员根本不管洪灾后的救助、受灾人员的统计、财产损失等，动用国家暴力统治力量——警察，先镇压群众！//@作家沙光: [伤心] 邢台遇难群众情绪非常稳定//@柳絮2009-:[围观]//@月满长空照远山:维稳甚于救灾//@西子丹67:转发微博<br><br>RE: 河北邢台 http://t.cn/Rt2T8y7 .</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/4000516968718988" target="freeweibo-mirror">SPAM //@王小渔在海边: //@陈业文新大都:[话筒]…</a>
 </h2>
@@ -109,33 +133,9 @@
 <p>
 	<small> ============== 4小时前</small>
 </p><h2>
-	<a href="https://freeweibo.com/weibo/4000514704050024" target="freeweibo-mirror">SPAM //@石1讷:如果这篇文章可以治罪，国民皆为待罪之…</a>
+	<a href="https://freeweibo.com/weibo/4000516101003516" target="freeweibo-mirror">痛心！//@袁立: 父母该多伤心....</a>
 </h2>
-<p>SPAM //@石1讷:如果这篇文章可以治罪，国民皆为待罪之身。</p>
-<p>
-	<small> ============== 4小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/4000514091335906" target="freeweibo-mirror">SPAM 这不就是典型的文字狱吗？</a>
-</h2>
-<p>SPAM 这不就是典型的文字狱吗？</p>
-<p>
-	<small> ============== 4小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/4000513060037831" target="freeweibo-mirror">SPAM 简直了……</a>
-</h2>
-<p>SPAM 简直了……</p>
-<p>
-	<small> ============== 4小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/4000512137250607" target="freeweibo-mirror">SPAM Wk人宣誓南海属于中国的第34天[作揖]</a>
-</h2>
-<p>SPAM Wk人宣誓南海属于中国的第34天[作揖]<br><img src="http://ww4.sinaimg.cn/large/87be5584gw1f645i6czcpj20qo0zkn70.jpg"></p>
-<p>
-	<small> ============== 4小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/4000510082059274" target="freeweibo-mirror">SPAM [吃惊][吃惊][吃惊][吃惊][吃惊]无言以对</a>
-</h2>
-<p>SPAM [吃惊][吃惊][吃惊][吃惊][吃惊]无言以对</p>
+<p>痛心！//@袁立: 父母该多伤心....<br><br>RE: 12朵鲜花凋零在邢台，遇难孩子：李浩博，男，5岁；李浩凯，男，3岁；高浩，男，5岁；张雨诺，女，9岁；张皓轩，男，5岁；李记芸，女，7岁；张仔博，男，12岁；张少博，男，5岁。失踪孩子：李志芸，女，9岁；郝诗宇，男，4岁；郝诗萌，女，2岁；张榟阳，女，3岁。[蜡烛][蜡烛][蜡烛]<br><img src="http://ww1.sinaimg.cn/large/66e9c065jw1f640xd8jcdj20hs0miaf6.jpg"></p>
 <p>
 	<small> ============== 4小时前</small>
 </p>
