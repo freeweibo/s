@@ -131,7 +131,7 @@
 </h2>
 <p>#秒拍视频#我分享了 http://t.cn/RtLnTwo</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/4000407745946996" target="freeweibo-mirror">我看了下周小平的自我介绍，想起，我认识的一些专演红色电影，或…</a>
 </h2>
