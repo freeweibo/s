@@ -77,7 +77,7 @@
 </h2>
 <p>【邢台水灾背后的维稳逻辑】曾于里：通过压制民众的情绪表达来维护稳定，完全曲解了维稳的内涵。维稳，应该是权利维稳，而不是权力维稳。http://t.cn/RtUW8xY<br><img src="http://ww3.sinaimg.cn/large/6538fd8cjw1f64z70kp13j20im0ahjsn.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/4000768073157506" target="freeweibo-mirror">SPAM 故事很精彩，点大图阅读</a>
 </h2>
