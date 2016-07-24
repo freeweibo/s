@@ -41,7 +41,7 @@
 </h2>
 <p>//@枫林秋色2008: 那个二傻子模样的金像是谁啊[偷笑] //@九钻女王://@总是大C总C统: 满目疮痍[怒]//@Fanny_7788: 右边犀利//@Janeskyline：意味深长。独裁与容忍独裁是因，人祸是果。//@林奇视角: 最后那张……<br><br>RE: 半岛电视台第一时间赶往邢台。图片来自@田川AJA<br><img src="http://ww4.sinaimg.cn/large/66ac8ae9jw1f64a1di25xj20zk0k0wfj.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/4000771701285542" target="freeweibo-mirror">//@第N代贫农://@正义少兵:关注永[怒]//@成霄峰：…</a>
 </h2>
@@ -95,7 +95,7 @@
 </h2>
 <p>看路标，这是要奔赴哪里？[疑问][疑问]<br><img src="http://ww4.sinaimg.cn/large/006iVd0Jgw1f64xo2smvoj30qo0gm3za.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/4000751413750912" target="freeweibo-mirror">【让“G19”看笑话？】“G20”在任何国家召开，料想必有或…</a>
 </h2>
@@ -137,7 +137,7 @@
 </h2>
 <p>这是@smz年少轻狂 他的家乡河北省邯郸永年县，家里房屋被淹，粮食地被冲毁，路上还有尸体飘着无人认领，乡亲们有家不能回，领导们为了头顶上的乌沙帽，不让往上报，对有怨言的乡亲们打的打，抓的抓，所有拍照的全部抓走，这就是中国，@联合国 这里是在泄洪不是天灾是人为，@央视新闻 上边领导调查清楚...全文： http://m.weibo.cn/2815128207/4000742316593428<br><img src="http://ww4.sinaimg.cn/large/a7cb728fgw1f64vtb7vvlj20dc0nq0t9.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p>
 <table>
     <tr>
