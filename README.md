@@ -47,7 +47,7 @@
 </h2>
 <p>//@稳重同学LIsixO:难不成在招待所开？五星级宾馆有其配套的设施和环境，改成个小酒店不知道要多费多少事，浪费多少时间<br><br>RE: 邢台抗洪救灾搞个发布会还在唯一的五星级酒店，中央领导下来，各方面都安排好了，做的不错啊！！！<br><img src="http://ww4.sinaimg.cn/large/5f6520eajw1f653o0ijf3j20dy0d240s.jpg"></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/4000823429617509" target="freeweibo-mirror">SPAM //@忘却纪念:[吃惊][吃惊][吃惊]</a>
 </h2>
@@ -89,13 +89,13 @@
 </h2>
 <p>缅怀先烈，再创辉煌！<br><img src="http://ww1.sinaimg.cn/large/006gg2qjgw1f652e1runoj30dw0de3zy.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/4000797325072005" target="freeweibo-mirror">对台州网民因批评G20会议准备工作被刑拘的评论被没收了转发键…</a>
 </h2>
 <p>对台州网民因批评G20会议准备工作被刑拘的评论被没收了转发键。心有不平。黄炎培去延安与毛谈起权力任性与腐败葬业的问题，毛提出“让人民来监督政府”。邓小平也说共产党要三怕；一怕党内监督、二怕人民群众、三怕民主党派。但现在是，三怕不知何处去，权力依旧笑春风。</p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/4000795911962416" target="freeweibo-mirror">SPAM 今天的内容来啦： 【跑步1年、跑步3年、跑步5年的…</a>
 </h2>
@@ -119,7 +119,7 @@
 </h2>
 <p>SPAM //@刘志强律师://@原子漫画://@明年today: //@书林深处://@宪政华夏: //@陈业文新大都:[白眼][围观][围观][围观] //@记者-薛洪涛:@高小曜: //@路见不平的家001: //@伊莲娜summer:快开饭了，怕灾民走散了没饭吃[挖鼻]//@啸看風雲tiger:洪水泛滥！这肯定是在积极救助被困群众！都散了吧！人顺利得救了！<br><br>RE: 刁民！哪里逃... http://t.cn/RtyrIH3</p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/4000781697470556" target="freeweibo-mirror">//@干卫东律师://@陈光武律师://@山东上诉律师: /…</a>
 </h2>
