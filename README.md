@@ -55,6 +55,18 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/4000764038887552" target="freeweibo-mirror">[怒][怒]//@北京磬石://@刘二狗捣蛋: //@长沙陈…</a>
+</h2>
+<p>[怒][怒]//@北京磬石://@刘二狗捣蛋: //@长沙陈文忠老师:天怒人怨！人神共愤[怒]<br><br>RE: 这是@smz年少轻狂 他的家乡河北省邯郸永年县，家里房屋被淹，粮食地被冲毁，路上还有尸体飘着无人认领，乡亲们有家不能回，领导们为了头顶上的乌沙帽，不让往上报，对有怨言的乡亲们打的打，抓的抓，所有拍照的全部抓走，这就是中国，@联合国 这里是在泄洪不是天灾是人为，@央视新闻 上边领导调查清楚...全文： http://m.weibo.cn/2815128207/4000742316593428<br><img src="http://ww4.sinaimg.cn/large/a7cb728fgw1f64vtb7vvlj20dc0nq0t9.jpg"></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/4000763795670667" target="freeweibo-mirror">不许说话啊！</a>
+</h2>
+<p>不许说话啊！</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/4000758854325393" target="freeweibo-mirror">SPAM 灾区。</a>
 </h2>
 <p>SPAM 灾区。<br><br>RE: 看路标，这是要奔赴哪里？[疑问][疑问]<br><img src="http://ww4.sinaimg.cn/large/006iVd0Jgw1f64xo2smvoj30qo0gm3za.jpg"></p>
@@ -64,6 +76,12 @@
 	<a href="https://freeweibo.com/weibo/4000756866243818" target="freeweibo-mirror">看路标，这是要奔赴哪里？[疑问][疑问]</a>
 </h2>
 <p>看路标，这是要奔赴哪里？[疑问][疑问]<br><img src="http://ww4.sinaimg.cn/large/006iVd0Jgw1f64xo2smvoj30qo0gm3za.jpg"></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="https://freeweibo.com/weibo/4000751413750912" target="freeweibo-mirror">【让“G19”看笑话？】“G20”在任何国家召开，料想必有或…</a>
+</h2>
+<p>【让“G19”看笑话？】“G20”在任何国家召开，料想必有或大或小的游行示威以表达诉求。浙江台州公务员郭恩平仅仅一篇质疑和讽刺杭州的文章，就被“寻衅滋事”刑事拘留。虽然是所谓内政问题，但十九国会怎么看中国？怎么看浙江？怎么看杭州？<br><img src="http://ww2.sinaimg.cn/large/6a80bfcdjw1f64wsq7q99j20hs0hs3zw.jpg"></p>
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
@@ -83,7 +101,7 @@
 </h2>
 <p>抵制肯德基的小粉红，现在以“家丑不可外扬”的名义，在抵制和举报网友发现场照了。 //@还我德赛:这场大雨能不能浇醒抵制肯德基的重灾区河北省人民呢？//@李行宪://@老許莫言002://@墙国4V://@针叶林2://@春雨A11://@叶薇祺-美玫: //@李斯之夏日清爽://@1937呐喊2://@八月辗鞑靼://@那年那月那日夏天</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/4000743701174968" target="freeweibo-mirror">//@清华SEM金勇军://@于建嵘: 家里没有电视，从不看…</a>
 </h2>
@@ -118,24 +136,6 @@
 	<a href="https://freeweibo.com/weibo/4000727821258539" target="freeweibo-mirror">SPAM 我的认识是隔音约好的音量可以更小，自然更保护，所以…</a>
 </h2>
 <p>SPAM 我的认识是隔音约好的音量可以更小，自然更保护，所以我一般买主动降噪耳机和头戴式的。//@勇敢无敌a123401：作为一个耳鼻喉大夫告诉你，所有的都损伤听力，入耳式尤其严重，你觉得没有损伤是目前语频区没有收到波及，可以查一个纯音看看4000赫兹有没有切迹。是不是损伤听力当然和声音大小和噪音持续时...全文： http://m.weibo.cn/1400776392/4000727821258539</p>
-<p>
-	<small> ============== 5小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/4000726030011014" target="freeweibo-mirror">SPAM //@沙漠里的曝光台: //@忘却纪念: [吃惊]…</a>
-</h2>
-<p>SPAM //@沙漠里的曝光台: //@忘却纪念: [吃惊][吃惊][吃惊]//@沙漠渔夫809: 呵呵，好大的官威。<br><br>RE: 分享图片<br><img src="http://ww3.sinaimg.cn/large/7c0e9549gw1f64rrh93caj20oo7ps1kz.jpg"></p>
-<p>
-	<small> ============== 5小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/4000723647719146" target="freeweibo-mirror">SPAM 我和你想得一样//@Jokerise2：作为耳机发…</a>
-</h2>
-<p>SPAM 我和你想得一样//@Jokerise2：作为耳机发烧友告诉您，入耳式不伤听力，影响听力与听的时长和听的音量有关，相反入耳式保护听力，因为开放式会导致不知不觉中调大音量。另外为索尼克的音质不错但是做工和质量的确相对来说差一点，但是他们的售后非常负责<br><br>RE: 昨天中午我爸说他耳机接触不良了，让我给他一个我淘汰的耳机，我拿了个价值千元的给他，他却倒过来挂在了耳朵上，说这样戴可以避免掉……[汗] 得知他一般是坐地铁时戴（需要隔音），有时跑步又怕掉（适合耳挂式）。于是我给他买了这款国产耳机，音质不错，隔音效果也好，就是做工确实一般，但愿耐用。<br><img src="http://ww1.sinaimg.cn/large/537e26c8jw1f64rqnkduuj20hv0hz75t.jpg"></p>
-<p>
-	<small> ============== 5小时前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/4000721614030194" target="freeweibo-mirror">SPAM 给那些企图妄议中央的反贼们敲响了警钟。[嘘]</a>
-</h2>
-<p>SPAM 给那些企图妄议中央的反贼们敲响了警钟。[嘘]<br><br>RE: 没想到我大台州椒江区会以这种方式名扬国内外。<br><img src="http://ww3.sinaimg.cn/large/692b692bjw1f64p2opp77j20m80m8dih.jpg"></p>
 <p>
 	<small> ============== 5小时前</small>
 </p>
