@@ -29,7 +29,7 @@
 </h2>
 <p>//@清华SEM金勇军://@于建嵘: 家里没有电视，从不看新闻联播，不知道具体情况。因此，你@ 我，属于情报不准。[嘻嘻]<br><br>RE: 新闻联播老套路：前十分钟，领导很忙；中十分钟，人民很幸福，报道了某个养老院里的幸福老人；后十分钟，外国人很悲惨，报道了德国慕尼黑枪击事件和土耳其政变。邢台洪灾，只字不提。然后，结束，上广告！难道老大不知道？怎么没有看到指示？中纪委刚出台的《...问责条例》呢？老王也没指示@于建嵘<br><img src="http://ww2.sinaimg.cn/large/3fa860dejw1f642ycn25ij20f00qognu.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/4000741339276802" target="freeweibo-mirror">//@元猫大大:又开除又拘留的，力度蛮大。[嘘]//@烧鸡烧…</a>
 </h2>
@@ -95,7 +95,7 @@
 </h2>
 <p>SPAM 一枚畜生，大畜生！//@格格动植物保护中心:路过，，，，<br><br>RE: 分享图片<br><img src="http://ww3.sinaimg.cn/large/7c0e9549gw1f64rrh93caj20oo7ps1kz.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/4000711601310317" target="freeweibo-mirror">//@徐昕: 有时凡事扯上敌对势力，甚至号召抵制肯德基麦当劳…</a>
 </h2>
