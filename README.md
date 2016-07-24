@@ -29,7 +29,7 @@
 </h2>
 <p>郭承认部分内容造谣了，这就称不上理性批评。至于处理是否得当，懂法律的人可以讨论。 http://t.cn/R2dU8Oo<br><img src="http://ww2.sinaimg.cn/large/7e76128dgw1f64jte717kj20bk5021jq.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/4000608849454752" target="freeweibo-mirror">他的切入点不对，如果说“我们为什么要花那么多钱去讨好境外势力…</a>
 </h2>
