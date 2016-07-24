@@ -83,7 +83,7 @@
 </h2>
 <p>【让“G19”看笑话？】“G20”在任何国家召开，料想必有或大或小的游行示威以表达诉求。浙江台州公务员郭恩平仅仅一篇质疑和讽刺杭州的文章，就被“寻衅滋事”刑事拘留。虽然是所谓内政问题，但十九国会怎么看中国？怎么看浙江？怎么看杭州？<br><img src="http://ww2.sinaimg.cn/large/6a80bfcdjw1f64wsq7q99j20hs0hs3zw.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/4000749866055987" target="freeweibo-mirror">批评莫分善意与恶意。有则改之，无则加勉。 //@徐昕:有时凡…</a>
 </h2>
