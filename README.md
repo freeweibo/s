@@ -23,7 +23,7 @@
 </h2>
 <p>//@影视时光鸡:不分日夜，不死不休。</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/4000989708814560" target="freeweibo-mirror">SPAM //@情话日志:后续全文戳：http://t.cn…</a>
 </h2>
@@ -77,7 +77,7 @@
 </h2>
 <p>SPAM 哈哈哈哈哈哈 //@苍老师说我壮如山吧喳嘿:</p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/4000912357788445" target="freeweibo-mirror">//@守望曙光3：无耻无底线</a>
 </h2>
