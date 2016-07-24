@@ -101,7 +101,7 @@
 </h2>
 <p>SPAM →_→<br><br>RE: 缅怀先烈，再创辉煌！<br><img src="http://ww1.sinaimg.cn/large/006gg2qjgw1f652e1runoj30dw0de3zy.jpg"></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/4000827578233232" target="freeweibo-mirror">//@稳重同学LIsixO:难不成在招待所开？五星级宾馆有其…</a>
 </h2>
