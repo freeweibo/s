@@ -65,7 +65,7 @@
 </h2>
 <p>//@枫林秋色2008: 那个二傻子模样的金像是谁啊[偷笑] //@九钻女王://@总是大C总C统: 满目疮痍[怒]//@Fanny_7788: 右边犀利//@Janeskyline：意味深长。独裁与容忍独裁是因，人祸是果。//@林奇视角: 最后那张……<br><br>RE: 半岛电视台第一时间赶往邢台。图片来自@田川AJA<br><img src="http://ww4.sinaimg.cn/large/66ac8ae9jw1f64a1di25xj20zk0k0wfj.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/4000771701285542" target="freeweibo-mirror">//@第N代贫农://@正义少兵:关注永[怒]//@成霄峰：…</a>
 </h2>
