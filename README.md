@@ -41,7 +41,7 @@
 </h2>
 <p>SPAM →_→<br><br>RE: 缅怀先烈，再创辉煌！<br><img src="http://ww1.sinaimg.cn/large/006gg2qjgw1f652e1runoj30dw0de3zy.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/4000827578233232" target="freeweibo-mirror">//@稳重同学LIsixO:难不成在招待所开？五星级宾馆有其…</a>
 </h2>
@@ -83,7 +83,7 @@
 </h2>
 <p>//@bj-鲁公: 转发微博<br><br>RE: 对台州网民因批评G20会议准备工作被刑拘的评论被没收了转发键。心有不平。黄炎培去延安与毛谈起权力任性与腐败葬业的问题，毛提出“让人民来监督政府”。邓小平也说共产党要三怕；一怕党内监督、二怕人民群众、三怕民主党派。但现在是，三怕不知何处去，权力依旧笑春风。</p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/4000797824341973" target="freeweibo-mirror">缅怀先烈，再创辉煌！</a>
 </h2>
