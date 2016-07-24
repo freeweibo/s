@@ -53,13 +53,13 @@
 </h2>
 <p>SPAM //@忘却纪念:[吃惊][吃惊][吃惊]<br><br>RE: 邢台抗洪救灾搞个发布会还在唯一的五星级酒店，中央领导下来，各方面都安排好了，做的不错啊！！！<br><img src="http://ww4.sinaimg.cn/large/5f6520eajw1f653o0ijf3j20dy0d240s.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/4000823199573370" target="freeweibo-mirror">//@梅虔: 面对悲惨真实的天灾人祸，你不发怒，你就不如一头…</a>
 </h2>
 <p>//@梅虔: 面对悲惨真实的天灾人祸，你不发怒，你就不如一头猪</p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/4000820858806886" target="freeweibo-mirror">//@上海村妇:从夏领导角度分析，是应该生气的。他想借会议提…</a>
 </h2>
