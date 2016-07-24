@@ -41,7 +41,7 @@
 </h2>
 <p>SPAM 大家看看，这话在理不？</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/4000727821258539" target="freeweibo-mirror">SPAM 我的认识是隔音约好的音量可以更小，自然更保护，所以…</a>
 </h2>
@@ -65,7 +65,7 @@
 </h2>
 <p>SPAM 长城、大运河很伟大，最后都成了埋葬一个王朝陵墓！</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/4000715623868560" target="freeweibo-mirror">//@山高水长1115:在杭州听或见到：给补贴让出门旅游或另…</a>
 </h2>
