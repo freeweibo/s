@@ -35,7 +35,7 @@
 </h2>
 <p>SPAM 在理 //@杨政:大家看看，这话在理不？</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/4000732539586120" target="freeweibo-mirror">SPAM 大家看看，这话在理不？</a>
 </h2>
