@@ -35,7 +35,7 @@
 </h2>
 <p>//@元猫大大:又开除又拘留的，力度蛮大。[嘘]//@烧鸡烧鸡呢:给那些企图妄议中央的反贼们敲响了警钟。[嘘]<br><br>RE: 没想到我大台州椒江区会以这种方式名扬国内外。<br><img src="http://ww3.sinaimg.cn/large/692b692bjw1f64p2opp77j20m80m8dih.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/4000732920959075" target="freeweibo-mirror">SPAM 在理 //@杨政:大家看看，这话在理不？</a>
 </h2>
@@ -59,7 +59,7 @@
 </h2>
 <p>SPAM //@沙漠里的曝光台: //@忘却纪念: [吃惊][吃惊][吃惊]//@沙漠渔夫809: 呵呵，好大的官威。<br><br>RE: 分享图片<br><img src="http://ww3.sinaimg.cn/large/7c0e9549gw1f64rrh93caj20oo7ps1kz.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/4000723647719146" target="freeweibo-mirror">SPAM 我和你想得一样//@Jokerise2：作为耳机发…</a>
 </h2>
