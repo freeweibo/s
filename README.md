@@ -65,7 +65,7 @@
 </h2>
 <p>八达岭野生动物园被老虎袭击当事人[衰][衰]博主觉得冲动是魔鬼，车上和家人吵架，下车后结果为难了自己[衰]<br><img src="http://ww1.sinaimg.cn/large/79595f5bjw1f65w0ij486j20zk0qon2y.jpg"></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/4001054120563809" target="freeweibo-mirror">才罚这么一点，兼职就是以资鼓励啊：打到美帝，党国万岁！</a>
 </h2>
@@ -101,7 +101,7 @@
 </h2>
 <p>天梭之旅 @天梭中国 感谢 ps 附上一张小刺猬巧克力图 真的太可爱了<br><img src="http://ww2.sinaimg.cn/large/c260f7abgw1f65pxphoygj20m80etjus.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/4000991109962429" target="freeweibo-mirror">//@影视时光鸡:不分日夜，不死不休。</a>
 </h2>
