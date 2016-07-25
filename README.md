@@ -125,7 +125,7 @@
 </h2>
 <p>SPAM 哈哈哈哈哈哈 //@苍老师说我壮如山吧喳嘿:</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/4000912357788445" target="freeweibo-mirror">//@守望曙光3：无耻无底线</a>
 </h2>
