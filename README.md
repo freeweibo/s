@@ -113,7 +113,7 @@
 </h2>
 <p>SPAM //@情伤诉:[心]</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/4001003202431085" target="freeweibo-mirror">天梭之旅 @天梭中国 感谢 ps 附上一张小刺猬巧克力图 真…</a>
 </h2>
