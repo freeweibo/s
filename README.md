@@ -89,7 +89,7 @@
 </h2>
 <p>SPAM 美女与野兽。</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/4000934176306326" target="freeweibo-mirror">SPAM 【好文分享】1、这张 脸，满足了男人对少妇的所有幻…</a>
 </h2>
