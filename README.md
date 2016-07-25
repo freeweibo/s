@@ -35,7 +35,7 @@
 </h2>
 <p>这是拉民族仇恨<br><br>RE: 北京某高校清真餐厅的穆斯林专区。[挖鼻][挖鼻]前几年还没有这设置。已经清真餐厅了，还设穆斯林专区，穆斯林高人一等？？！！@灵异档案员王昙 @习五一<br><img src="http://ww4.sinaimg.cn/large/c36cc64djw1f64zv4l8mwj21jw1ixtrp.jpg"></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/4001151411952004" target="freeweibo-mirror">嘴炮？我做记者只用亲自调查来的证据。昆明机场塌桥，我爬进桥洞…</a>
 </h2>
@@ -95,7 +95,7 @@
 </h2>
 <p>SPAM #刘亦菲# 在法国身穿红连衣裙的她分外美丽，又是一派“天仙攻”的模样[心]<br><br>RE: 天梭之旅 @天梭中国 感谢 ps 附上一张小刺猬巧克力图 真的太可爱了<br><img src="http://ww2.sinaimg.cn/large/c260f7abgw1f65pxphoygj20m80etjus.jpg"></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/4001046592361589" target="freeweibo-mirror">转辟。//@广东林剑://@伟荣V实说:转发微博</a>
 </h2>
