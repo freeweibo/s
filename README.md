@@ -89,7 +89,7 @@
 </h2>
 <p>//@影视时光鸡:不分日夜，不死不休。</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/4000989708814560" target="freeweibo-mirror">SPAM //@情话日志:后续全文戳：http://t.cn…</a>
 </h2>
