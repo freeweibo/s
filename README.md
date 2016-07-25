@@ -101,7 +101,7 @@
 </h2>
 <p>SPAM  少女心爆棚的kate Spade Surprise Sale来了，②⑤折起！无需CODE要从这个页面http://t.cn/RtbwZnj进入，填一下邮箱和邮编（可以随便编哒美国邮编5位纯数字）价格特别美好随便截几张图感受下。美国国内运费$5，发加拿大$10。不能直~邮~可~转~运~。不会滴童鞋们戳攻略http://t.cn/zYT6MyB<br><img src="http://ww2.sinaimg.cn/large/67ad1fd2gw1f668pt3rmoj20n4132tg1.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/4001165382960573" target="freeweibo-mirror">【踢自己的球，让他们取消去吧】已经到北京的祖国各地的曼联和曼…</a>
 </h2>
