@@ -71,7 +71,7 @@
 </h2>
 <p>SPAM //@情话日志:后续全文戳：http://t.cn/R5oijCC</p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/4000939625167068" target="freeweibo-mirror">SPAM 美女与野兽。</a>
 </h2>
