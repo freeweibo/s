@@ -65,13 +65,13 @@
 </h2>
 <p>转辟。//@广东林剑://@伟荣V实说:转发微博<br><br>RE: 文章：《党内调查报告披露惊人内幕：国家已被贪官掏空》 http://t.cn/Rt4yQuy</p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/4001046441266547" target="freeweibo-mirror">爱国蠢货们，教你们看看，卖国贼在哪里（不只是联合早报报道的摩…</a>
 </h2>
 <p>爱国蠢货们，教你们看看，卖国贼在哪里（不只是联合早报报道的摩根大通，报道中说了，摩根只是被美国处罚的第一家而已）？ 那些高官们一边卖国帮儿女发财，一边说，我儿子女儿靠自己本事赚的钱！可是，世界上偏偏就是有美国，美国偏偏就认真修理那些利用中国的卖国贼给母国狠赚财税的美国大公司。<br><img src="http://ww2.sinaimg.cn/large/53e07682jw1f65ux0xx0qj20qo1bewms.jpg"></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/4001028405858493" target="freeweibo-mirror">SPAM //@情伤诉:[心]</a>
 </h2>
