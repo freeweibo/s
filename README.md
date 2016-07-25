@@ -53,7 +53,7 @@
 </h2>
 <p>这是拉民族仇恨<br><br>RE: 北京某高校清真餐厅的穆斯林专区。[挖鼻][挖鼻]前几年还没有这设置。已经清真餐厅了，还设穆斯林专区，穆斯林高人一等？？！！@灵异档案员王昙 @习五一<br><img src="http://ww4.sinaimg.cn/large/c36cc64djw1f64zv4l8mwj21jw1ixtrp.jpg"></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/4001151411952004" target="freeweibo-mirror">嘴炮？我做记者只用亲自调查来的证据。昆明机场塌桥，我爬进桥洞…</a>
 </h2>
@@ -89,7 +89,7 @@
 </h2>
 <p>SPAM //@孙延富医生: //@星洪-:[衰] //@耋耋翁:爱有多深，恨有多深。所以有“爱恨情仇”四个字连在一起。至于说冲动是魔鬼，此说至少是不准确的：魔鬼只害人，不害己。但，人若冲动起来，往往害的是自己！<br><br>RE: 八达岭野生动物园被老虎袭击当事人[衰][衰]博主觉得冲动是魔鬼，车上和家人吵架，下车后结果为难了自己[衰]<br><img src="http://ww1.sinaimg.cn/large/79595f5bjw1f65w0ij486j20zk0qon2y.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/4001066766423915" target="freeweibo-mirror">【网友@五方元音 早已预警，而河北官方如在梦中】灾前十余天就…</a>
 </h2>
