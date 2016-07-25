@@ -29,7 +29,7 @@
 </h2>
 <p>八达岭野生动物园被老虎袭击当事人[衰][衰]博主觉得冲动是魔鬼，车上和家人吵架，下车后结果为难了自己[衰]<br><img src="http://ww1.sinaimg.cn/large/79595f5bjw1f65w0ij486j20zk0qon2y.jpg"></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/4001054120563809" target="freeweibo-mirror">才罚这么一点，兼职就是以资鼓励啊：打到美帝，党国万岁！</a>
 </h2>
@@ -131,7 +131,7 @@
 </h2>
 <p>//@守望曙光3：无耻无底线</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/4000903520575902" target="freeweibo-mirror">SPAM 每天更新喜欢的加微[心]信:Tia10000</a>
 </h2>
