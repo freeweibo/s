@@ -29,7 +29,7 @@
 </h2>
 <p>SPAM //@情伤诉:[心]</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/4000991109962429" target="freeweibo-mirror">//@影视时光鸡:不分日夜，不死不休。</a>
 </h2>
@@ -109,6 +109,12 @@
 <p>
 	<small> ============== 11小时前</small>
 </p><h2>
+	<a href="https://freeweibo.com/weibo/4000884243022390" target="freeweibo-mirror">文章：《党内调查报告披露惊人内幕：国家已被贪官掏空》 htt…</a>
+</h2>
+<p>文章：《党内调查报告披露惊人内幕：国家已被贪官掏空》 http://t.cn/Rt4yQuy</p>
+<p>
+	<small> ============== 1天前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/4000869324677475" target="freeweibo-mirror">属实的话，我预测这条孽龙会不得善终//@无机客：外媒说，是因…</a>
 </h2>
 <p>属实的话，我预测这条孽龙会不得善终//@无机客：外媒说，是因为浙江夏宝龙书记“震怒”，下了批示，当地政府才重新重罚。之前浙江各地⛪被拆十字架，据说也是夏的手笔。<br><br>RE: 台州干部郭恩平因为一篇有理有据的批评文章就被当局拘留、开除公职，这事儿的恶劣程度一点都不亚于邢台洪灾，且两者的人祸根源一脉相通：在一个极权国度里，人民命运不由自己掌握，他们就像被编好程的游戏角色，只设定赞美功能没有批评权力，他们的出生和定居由老大哥掌控，却在睡梦中糊里糊涂死去。</p>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/4000829536586841" target="freeweibo-mirror">SPAM →_→</a>
 </h2>
 <p>SPAM →_→<br><br>RE: 缅怀先烈，再创辉煌！<br><img src="http://ww1.sinaimg.cn/large/006gg2qjgw1f652e1runoj30dw0de3zy.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/4000827578233232" target="freeweibo-mirror">//@稳重同学LIsixO:难不成在招待所开？五星级宾馆有其…</a>
-</h2>
-<p>//@稳重同学LIsixO:难不成在招待所开？五星级宾馆有其配套的设施和环境，改成个小酒店不知道要多费多少事，浪费多少时间<br><br>RE: 邢台抗洪救灾搞个发布会还在唯一的五星级酒店，中央领导下来，各方面都安排好了，做的不错啊！！！<br><img src="http://ww4.sinaimg.cn/large/5f6520eajw1f653o0ijf3j20dy0d240s.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
