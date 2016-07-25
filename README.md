@@ -47,7 +47,7 @@
 </h2>
 <p>SPAM //@情话日志:后续全文戳：http://t.cn/R5oijCC</p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/4000939625167068" target="freeweibo-mirror">SPAM 美女与野兽。</a>
 </h2>
@@ -113,7 +113,7 @@
 </h2>
 <p>//@紫石卧熊:除了自媒体 我们的官方媒体 有一个敢刊载报道这组图片的吗？<br><br>RE: #邢台大贤村遭洪灾#震撼国人的一张照片！<br><img src="http://ww4.sinaimg.cn/large/66e9c065jw1f651t4xn02j20hs0nptcy.jpg"></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/4000884243022390" target="freeweibo-mirror">文章：《党内调查报告披露惊人内幕：国家已被贪官掏空》 htt…</a>
 </h2>
