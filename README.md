@@ -23,7 +23,7 @@
 </h2>
 <p>【台湾太抠门虐待蔡英文，专职厨师都不给配！让蔡总统自己掏腰包！】蔡英文月花6万请厨师开小灶 被讽“千金大小姐”。蔡英文刚就任台湾地区领导人时，曾向媒体透露“家里送便当来给我吃”。如今，蔡英文已自费聘请一位女厨师，作为个人专用厨师，月薪约6万新台币。对此，网友深表不满，直酸“权贵”、...全文： http://m.weibo.cn/5974189628/4001410259436556</p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/4001401162649694" target="freeweibo-mirror">感謝國家感謝人民</a>
 </h2>
@@ -35,7 +35,7 @@
 </h2>
 <p>忍耐是有限度的！<br><img src="http://ww1.sinaimg.cn/large/d4050bc4gw1f66yvb0ki3j20jy0jo42c.jpg"></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/4001368291289846" target="freeweibo-mirror">【好文分享】1、揭 密唐山大地震背后的真 相！2、卖不掉的日…</a>
 </h2>
