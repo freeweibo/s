@@ -19,6 +19,12 @@
             </tr>
 </table>
 <h2>
+	<a href="https://freeweibo.com/weibo/4001401162649694" target="freeweibo-mirror">感謝國家感謝人民</a>
+</h2>
+<p>感謝國家感謝人民</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="https://freeweibo.com/weibo/4001368291289846" target="freeweibo-mirror">【好文分享】1、揭 密唐山大地震背后的真 相！2、卖不掉的日…</a>
 </h2>
 <p>【好文分享】1、揭 密唐山大地震背后的真 相！2、卖不掉的日本车去哪里了？答案惊呆13亿中国人！3、大清朝最牛掰的女人，为了拍照也是拼了！4 、他拍摄了朝 鲜最不该拍的美女——被三胖的特工全球追杀！5、蚊香根本不用掰开点 ，原来这么多年我们都错了！更多精彩请添加 关 注：zhebsls<br><img src="http://ww3.sinaimg.cn/large/9647a31ejw1f66vwu0fxtj20j60y3di2.jpg"></p>
@@ -130,12 +136,6 @@
 	<a href="https://freeweibo.com/weibo/4001155640532641" target="freeweibo-mirror">这是拉民族仇恨</a>
 </h2>
 <p>这是拉民族仇恨<br><br>RE: 北京某高校清真餐厅的穆斯林专区。[挖鼻][挖鼻]前几年还没有这设置。已经清真餐厅了，还设穆斯林专区，穆斯林高人一等？？！！@灵异档案员王昙 @习五一<br><img src="http://ww4.sinaimg.cn/large/c36cc64djw1f64zv4l8mwj21jw1ixtrp.jpg"></p>
-<p>
-	<small> ============== 1天前</small>
-</p><h2>
-	<a href="https://freeweibo.com/weibo/4001151411952004" target="freeweibo-mirror">嘴炮？我做记者只用亲自调查来的证据。昆明机场塌桥，我爬进桥洞…</a>
-</h2>
-<p>嘴炮？我做记者只用亲自调查来的证据。昆明机场塌桥，我爬进桥洞里看箱梁、断处手挂半截钢筋拍摄下方、穿行查看支撑架，独家调查与之后专家组意见一致。我烈日下抚河大堤走2小时，夜带膝伤趟腰深洪水，汶川地震走灾区岂止万里。右边你们对工作要有我这精神，怎会不知七里河要出事？//@Jimmy_Damody:<br><br>RE: 【网友@五方元音 早已预警，而河北官方如在梦中】灾前十余天就有当地网友鉴于南方雨灾而去查看了七里河现场，并在博客图文公开了他的忧虑，防患未然，他比省委书记做得好！比市委书记做得好！河北省各级官府再懒政，哪怕有一个官员重视网上声音，搜一搜都可避免惨剧。为什么省市主官没有事前巡查？<br><img src="http://ww4.sinaimg.cn/large/53e07682jw1f65x5b1pmqj20qo1bewk7.jpg"></p>
 <p>
 	<small> ============== 1天前</small>
 </p>
