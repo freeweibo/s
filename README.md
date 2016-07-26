@@ -71,7 +71,7 @@
 </h2>
 <p>【此内容因违规无法查看】“接相关投诉，此内容违反《即时通信工具公众信息服务发展管理暂行规定》，查看详细内容”请戳如下图。（大家也许无数次看到这样的情况，但有谁读过这些规定。一个违宪、暂行的红头规定，拿来充当法令执行，这个世界还有谁？还有谁？）<br><img src="http://ww4.sinaimg.cn/large/7c0e9549gw1f66g4rn5zaj212w1cuapl.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/4001227048058177" target="freeweibo-mirror">//@笨笨an://@去V的刘建锋:转发微博</a>
 </h2>
