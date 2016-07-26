@@ -47,7 +47,7 @@
 </h2>
 <p>SPAM 听语音，猜歌名 每晚十点一首翻唱歌曲，等着您 记住，sdimusic，sdimusic，曲包在那等着你...<br><img src="http://ww4.sinaimg.cn/large/8a50ae76gw1f66jt50fe8j20h50hxjtc.jpg"></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://freeweibo.com/weibo/4001248061743794" target="freeweibo-mirror">//@陈光武律师://@邓树林律师: //@大国的小屁民00…</a>
 </h2>
